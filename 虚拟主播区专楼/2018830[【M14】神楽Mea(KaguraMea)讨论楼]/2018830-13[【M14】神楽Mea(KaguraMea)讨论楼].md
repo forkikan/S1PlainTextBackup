@@ -494,3 +494,23 @@ Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨
 
 不懂LOL，我王者荣耀钻石4，相当于几个LOL大师<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 17792#       发表于 2025-1-1 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">新年快乐各位
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+
+查看全部评分
+
