@@ -2845,3 +2845,60 @@ MV厉害了
 
 另一个是她自己搞的企划，说的依然是原本只想小规模结果不知不觉来了一大堆人参加的，不知道是什么今天应该会发表
 
+
+*****
+
+####  holoan  
+##### 10552#         楼主| 发表于 2025-1-1 21:19
+
+<img src="https://img.saraba1st.com/forum/202501/01/211910v0jkt90yk0gjignk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:19 上传
+
+开幕义务七字母
+
+*****
+
+####  holoan  
+##### 10553#         楼主| 发表于 2025-1-1 21:22
+
+<img src="https://img.saraba1st.com/forum/202501/01/212208g4l8lls4vcuvu8rr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:22 上传
+
+经典的MV现实重现
+
+*****
+
+####  holoan  
+##### 10554#         楼主| 发表于 2025-1-1 21:25
+
+<img src="https://img.saraba1st.com/forum/202501/01/212512wa7tz80n182yym1l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:25 上传
+
+*****
+
+####  holoan  
+##### 10555#         楼主| 发表于 2025-1-1 21:27
+
+<img src="https://img.saraba1st.com/forum/202501/01/212741oo22bnndinsond0k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:27 上传
+

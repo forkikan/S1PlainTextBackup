@@ -5204,3 +5204,14 @@ PV2开播前总会有吧
 
 就s1账号，我也就三个账号，一个是赵小姐送的（黑手哥），一个被永封了（最早那个），总共花费就20元，那个v开头的账号鸡掰是谁我也不知道，又是什么人给你们扣安徽哥帽子了。
 
+
+*****
+
+####  wasssf  
+##### 1832#       发表于 2025-1-1 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67079452&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-1 15:50</a>
+
+当年TRANSFORMERS也是不知道自己咋拍之后外包给派拉蒙之后整了真人世贝形金刚，你钢不会要走TRANSFORMERS老 ...</blockquote>
+很多遗老的年一高0080和00就是日升外人做的了
+
