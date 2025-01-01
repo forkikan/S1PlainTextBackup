@@ -14393,3 +14393,33 @@ asl剪辑还给了茜姨抬大腿特写，乐
 
 试试这个图床的图能不能用。。。
 
+
+*****
+
+####  Aendst  
+##### 5474#       发表于 2025-1-1 23:20
+
+ 本帖最后由 Aendst 于 2025-1-1 23:21 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/01/232014u3myfxg225g43fi4.jpg" referrerpolicy="no-referrer">
+
+<strong>20250102001941.jpg</strong> (21.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 23:20 上传
+
+根本的意思是不是可以只看mujica动画而不影响剧情理解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+图床炸了发个文字版
+[https://x.com/nemoto_bushi/status/1874424992294936924](https://x.com/nemoto_bushi/status/1874424992294936924)
+ <blockquote>新年あけましておめでとうございます。
+
+今年も何卒宜しくお願いいたします。
+
+明日よりAve Mujica放送開始となります。
+
+本作だけみても面白いです。前作のMyGOをみればより一層面白いです。
+
+#AveMujica #アニメムジカ</blockquote>
+
