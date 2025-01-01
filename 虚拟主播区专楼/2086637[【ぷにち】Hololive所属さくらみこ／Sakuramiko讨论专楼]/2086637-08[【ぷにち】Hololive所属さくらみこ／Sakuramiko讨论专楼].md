@@ -3036,3 +3036,34 @@ MV厉害了
 
 2025-1-1 23:03 上传
 
+
+*****
+
+####  holoan  
+##### 10567#         楼主| 发表于 2025-1-1 23:26
+
+<img src="https://img.saraba1st.com/forum/202501/01/232606wz3uhodo0dckkuua.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (262.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 23:26 上传
+
+*****
+
+####  holoan  
+##### 10568#         楼主| 发表于 2025-1-1 23:43
+
+<img src="https://img.saraba1st.com/forum/202501/01/234304kxb5dhcxnln3lclp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (499.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 23:43 上传
+
+完整节目单
+
+最后的live长达1小时
+

@@ -14446,3 +14446,37 @@ asl剪辑还给了茜姨抬大腿特写，乐
 
 很正常吧，都新系列TV了，要是不看狗有影响那应该直接叫狗2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 5478#       发表于 2025-1-1 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁泥潭已经发现初华又有问题了。
+睦家见睦妈那段，初华除了开头露个脸，聚餐说了句谢谢，整段就一句话一个镜头，之后查无此人
+然后睦家地下室两次，初华全没出现……
+现在初华是谜底最大的那个了
+
+*****
+
+####  山ノ内花音  
+##### 5479#       发表于 2025-1-1 23:48
+
+默默等待初华给祥子的killkiss到来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 5480#       发表于 2025-1-1 23:51
+
+相信独角兽的操作能让初华也人气大爆发<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 5481#       发表于 2025-1-1 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">还有个坏消息是初华同居那段，我看了下，就十秒钟，初华能藏啥啊……
+

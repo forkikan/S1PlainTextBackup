@@ -5227,3 +5227,17 @@ PV2开播前总会有吧
 あけおめ2025🐍
 <img src="https://p.sda1.dev/21/6b5c2432168f084c208a110af6abea69/20250101_212541.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1834#       发表于 2025-1-1 23:45
+
+<blockquote>Piano-Forest 发表于 2025-1-1 21:26
+竹 25年新年贺图
+
+https://x.com/_take_oekaki/status/1874341396892754008
+
+あけおめ2025🐍</blockquote>
+露琪亚即视感
+
