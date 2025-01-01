@@ -6,6 +6,6 @@ cd ~/S1PlainTextBackup
 git add .
 git commit -m "[脚本]自动上传于 $datime"
 echo "git commit: 上传于 $datime"
-git push
+git push origin master
 echo "finished..."
 
