@@ -486,3 +486,11 @@ Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨
 
 查看全部评分
 
+
+*****
+
+####  秋游刃  
+##### 17791#       发表于 2025-1-1 20:50
+
+不懂LOL，我王者荣耀钻石4，相当于几个LOL大师<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

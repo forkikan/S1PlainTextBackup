@@ -9107,3 +9107,23 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 那我选7个狂 然后遇到外星人怎么办 能中途换人吗（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计每个职介只能选一个
 
+
+*****
+
+####  eilot  
+##### 15943#       发表于 2025-1-1 20:49
+
+ 本帖最后由 eilot 于 2025-1-1 20:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67080750&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-1 19:47</a>
+
+那我选7个狂 然后遇到外星人怎么办 能中途换人吗（</blockquote>
+不可能這樣搞吧
+
+應該是只限手上已有原職階，升上為自選冠職階吧
+
+又或者真是能7個位置都選用狂，但放在冠劍職位置，他就原能力等直接變成劍職來使用(其實已經好BUG吧...)
+
+現在都是懷疑是否選完人後不能換，或者要極高昂代價來換(直接用1粒聖晶石就7階全部拆下來?)
+
+應該不會像5個追加被動開放，能無代價隨意轉來轉去???
+
