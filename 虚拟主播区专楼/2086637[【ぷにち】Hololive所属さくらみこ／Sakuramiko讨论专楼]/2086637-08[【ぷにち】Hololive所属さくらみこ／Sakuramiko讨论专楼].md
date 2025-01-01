@@ -2956,3 +2956,40 @@ MV厉害了
 
 2025-1-1 21:41 上传
 
+
+*****
+
+####  holoan  
+##### 10560#         楼主| 发表于 2025-1-1 21:46
+
+3D打印作品
+
+<img src="https://img.saraba1st.com/forum/202501/01/214616j22rqepe5ewxwjdp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:46 上传
+
+
+*****
+
+####  holoan  
+##### 10561#         楼主| 发表于 2025-1-1 21:55
+
+<img src="https://img.saraba1st.com/forum/202501/01/215458nv28ko76owpss57z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 21:54 上传
+
+*****
+
+####  rs5621  
+##### 10562#       发表于 2025-1-1 21:56
+
+这鲷鱼烧屋还真不错
+

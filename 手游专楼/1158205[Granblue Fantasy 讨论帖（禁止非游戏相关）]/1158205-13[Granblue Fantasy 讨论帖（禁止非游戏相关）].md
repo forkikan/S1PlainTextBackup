@@ -460,3 +460,18 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 泽塔是有的，但是武器我没砸进盘</blockquote>
 泽塔还是推荐砸到2的，石油火能用的就猎金用方天了。留给别的属性吧，比如最新最in的暴击插件光天羽……
 
+
+*****
+
+####  Sylpheed  
+##### 18144#       发表于 2025-1-1 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67080622&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2025-1-1 19:28</a>
+
+想请教下楼友，想选个旧石油给火属性，盘子追到三剑二斧一凤凰就没再砸了，平时也基本不猎金和不怎么手动， ...</blockquote>
+喜欢FA打一炮的玩法其实可以考虑石油短，主角用大帽子配合坏兽精灵和牛神将，用诱惑法可以做到1键单人5000W，还能挂4层碉堡，不过这个血量收益大的基本上就只有克属团战的90hell<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他不管是花圈还是方天哪怕手动对现在的火来说其实也没什么舒适度<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+顺便诋毁一下花圈，两年前风团换来打团，然后被200打死了，不稳定的预防盾真的没屁用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
