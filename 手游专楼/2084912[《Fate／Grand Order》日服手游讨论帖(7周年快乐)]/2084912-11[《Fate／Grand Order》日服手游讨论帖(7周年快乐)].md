@@ -9169,3 +9169,11 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 但是你想想 这个运营。。他正常吗？他有脑子吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 15948#       发表于 2025-1-2 00:27
+
+反正你游剧情里冠位顶班，资格乱扔都有过，不至于不让换
+
