@@ -9127,3 +9127,14 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 應該不會像5個追加被動開放，能無代價隨意轉來轉去???
 
+
+*****
+
+####  大十字紅朔  
+##### 15944#       发表于 2025-1-1 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67079787&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2025-1-1 16:54</a>
+
+多问一句，七个是限定正常七职介，还是无限制，可以在所有职介里自选？可以重复选一个职介吗？ ...</blockquote>
+光头在直播里问了这句，结果YLS没回答
+
