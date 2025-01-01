@@ -2993,3 +2993,46 @@ MV厉害了
 
 这鲷鱼烧屋还真不错
 
+
+*****
+
+####  holoan  
+##### 10563#         楼主| 发表于 2025-1-1 22:03
+
+<img src="https://img.saraba1st.com/forum/202501/01/220358s2aqllsl17zllgt1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 22:03 上传
+
+*****
+
+####  holoan  
+##### 10564#         楼主| 发表于 2025-1-1 23:00
+
+一个游戏部门介绍（玩）了一小时，以后搞自由工作甚至不需要准备其他部门了
+
+哪来的这么多会做游戏的粉丝
+
+*****
+
+####  holoan  
+##### 10565#         楼主| 发表于 2025-1-1 23:02
+
+这些抄来抄去的作品都怎么通过运营审查的，就不怕被人告
+
+*****
+
+####  holoan  
+##### 10566#         楼主| 发表于 2025-1-1 23:03
+
+<img src="https://img.saraba1st.com/forum/202501/01/230342weddbs6hors5lzjx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-1 23:03 上传
+

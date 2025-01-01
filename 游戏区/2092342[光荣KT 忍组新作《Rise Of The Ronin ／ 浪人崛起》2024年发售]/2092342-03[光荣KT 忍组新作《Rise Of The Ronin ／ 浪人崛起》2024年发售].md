@@ -188,3 +188,15 @@ KT确实是历史策略动作这边全员爱猴
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  寂长无星夜  
+##### 3306#       发表于 2025-1-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67081765&amp;ptid=2092342" target="_blank">名字已被吃 发表于 2025-1-1 22:15</a>
+这游戏跟npc谈恋爱究竟是个什么逻辑啊？我龙马好感度早拉满了，结果他伤好后我去找他，他要跟我决斗然后打 ...</blockquote>
+把相关人物支线都做完就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
