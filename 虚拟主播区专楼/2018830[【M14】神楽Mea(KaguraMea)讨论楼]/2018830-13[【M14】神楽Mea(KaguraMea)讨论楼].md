@@ -514,3 +514,14 @@ Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨
 
 查看全部评分
 
+
+*****
+
+####  sino__unnko3  
+##### 17793#       发表于 2025-1-2 00:49
+
+你咩怎么新年配信还在拉扯小楚南，
+还有今天这句话，群友也是提前录好了讨论，预判了主播的预判是吧<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/f7ac44e1ba6d4ba3db44782d32f108c5/image.jpg" referrerpolicy="no-referrer">
+会限才补完，是“拉”，这两次新年配信是“扯”，过了这么多年作为男友粉仍然没有习惯呢；
+btw她生理期预测最后一天正是31号
+
