@@ -5241,3 +5241,14 @@ https://x.com/_take_oekaki/status/1874341396892754008
 あけおめ2025🐍</blockquote>
 露琪亚即视感
 
+
+*****
+
+####  王留美  
+##### 1835#       发表于 2025-1-2 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67079452&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-1 15:50</a>
+
+当年TRANSFORMERS也是不知道自己咋拍之后外包给派拉蒙之后整了真人世贝形金刚，你钢不会要走TRANSFORMERS老 ...</blockquote>
+那不得不提G救世主了，觉得不够咖位的话看看复仇镇魂曲？再要不然等等传奇敢达？
+
