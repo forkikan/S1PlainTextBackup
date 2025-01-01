@@ -9096,3 +9096,14 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 不可能限职阶的，除非这特定战斗会特定到也是填固定坑的程度</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那我选7个狂 然后遇到外星人怎么办 能中途换人吗（
 
+
+*****
+
+####  qixinno2  
+##### 15942#       发表于 2025-1-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67080750&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-1 19:47</a>
+
+那我选7个狂 然后遇到外星人怎么办 能中途换人吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计每个职介只能选一个
+

@@ -4,17 +4,11 @@
 
 本仓库仅存放3日内超过1页有回复的新帖子。若3天内没有回复，该帖子的纯文本备份会被挪到2024至今历史存档中。
 
-* 相关存档
+* 历史年份存档
 
-[[https://github.com/TomoeMami/S1PlainTextArchive2021][2020-2021年历史存档]]
-
-[[https://github.com/TomoeMami/S1PlainTextArchive2022][2022年历史存档]]
-
-[[https://github.com/TomoeMami/S1PlainTextArchive2023][2023年历史存档]]
-
-[[https://github.com/TomoeMami/S1PlainTextArchive2024][2024年历史存档]]
-
-[[https://github.com/TomoeMami/S1PlainTextArchive2025][2025年至今历史存档]]
+|[[https://github.com/TomoeMami/S1PlainTextArchive2021][2020-2021]]|||
+|[[https://github.com/TomoeMami/S1PlainTextArchive2022][2022]]|[[https://github.com/TomoeMami/S1PlainTextArchive2023][2023]]|[[https://github.com/TomoeMami/S1PlainTextArchive2024][2024]]
+|[[https://github.com/TomoeMami/S1PlainTextArchive2025][2025至今]]||
 
 ** 目前支持的特殊效果
 
