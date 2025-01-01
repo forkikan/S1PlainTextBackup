@@ -966,3 +966,13 @@ ACLR》ACFA》ACV》ACVD》魂2》血源〉魂3》魂1复刻》法环》只狼�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  laosai13  
+##### 80#       发表于 2025-1-2 02:13
+
+ 本帖最后由 laosai13 于 2025-1-2 02:16 编辑 
+
+泥潭老害那么多吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我魂3才入的坑，后面玩的血源惊为天人，之后补的魂2魂1感觉还行，魂1比魂2好玩，再后来就是出一部玩一部了。总体来说魂系列里面，血源&gt;环&gt;只狼&gt;魂1&gt;魂3&gt;魂2&gt;恶魂。补充一点就是魂系列的开荒体验太好了，后面补有攻略和开荒论坛交流完全两码事，环刚发售的时候刚好疫情在家感觉无限快乐。
+
