@@ -3777,7 +3777,7 @@
     "lastedit": 1735695600,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 16701,
+    "totalreply": 16702,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1735759209,
+    "lastedit": 1735765572,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17055,10 +17055,10 @@
     "update": false
   },
   "2236146": {
-    "totalreply": 198,
+    "totalreply": 199,
     "title": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
     "newtitle": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
-    "lastedit": 1735760410,
+    "lastedit": 1735765572,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17217,10 +17217,10 @@
     "update": false
   },
   "2236207": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[你今年发烧了几次？]",
     "newtitle": "[你今年发烧了几次？]",
-    "lastedit": 1735758131,
+    "lastedit": 1735765689,
     "category": "外野",
     "active": true,
     "update": false
