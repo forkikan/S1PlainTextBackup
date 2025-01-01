@@ -5252,3 +5252,28 @@ https://x.com/_take_oekaki/status/1874341396892754008
 当年TRANSFORMERS也是不知道自己咋拍之后外包给派拉蒙之后整了真人世贝形金刚，你钢不会要走TRANSFORMERS老 ...</blockquote>
 那不得不提G救世主了，觉得不够咖位的话看看复仇镇魂曲？再要不然等等传奇敢达？
 
+
+*****
+
+####  刺客ares  
+##### 1836#       发表于 2025-1-2 00:17
+
+电影院官网偷跑了剧场版片长，确定为81分钟
+
+算上oped和部分裁剪，大约为四集内容
+
+不会是季番了，应该至少半年番
+
+*****
+
+####  刺客ares  
+##### 1837#       发表于 2025-1-2 00:18
+
+<img src="https://img.saraba1st.com/forum/202501/02/001820pff5jg63ahajj5bp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9789.jpeg</strong> (541.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 00:18 上传
+
