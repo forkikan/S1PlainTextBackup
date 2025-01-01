@@ -9138,3 +9138,14 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 多问一句，七个是限定正常七职介，还是无限制，可以在所有职介里自选？可以重复选一个职介吗？ ...</blockquote>
 光头在直播里问了这句，结果YLS没回答
 
+
+*****
+
+####  DARKGRAY  
+##### 15945#       发表于 2025-1-1 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67080750&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-1 19:47</a>
+
+那我选7个狂 然后遇到外星人怎么办 能中途换人吗（</blockquote>
+不能换不利于后来的新卡，个人偏向于要真不能换的话那就是第二部完结准备关服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
