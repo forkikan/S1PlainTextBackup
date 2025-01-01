@@ -429,3 +429,34 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 
 羊、兔子和老鼠刚出时在当时环境也挺强的吧。
 
+
+*****
+
+####  Aureth  
+##### 18141#       发表于 2025-1-1 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67080622&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2025-1-1 19:28</a>
+
+想请教下楼友，想选个旧石油给火属性，盘子追到三剑二斧一凤凰就没再砸了，平时也基本不猎金和不怎么手动， ...</blockquote>
+可以说从超短期到超高难所有场景都可以一把凤凰杖解决了……看你描述不知道你是不是没有泽塔，想给火补强就lm券拿一把吧。
+
+*****
+
+####  江戸前ルナ  
+##### 18142#       发表于 2025-1-1 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67081513&amp;ptid=1158205" target="_blank">Aureth 发表于 2025-1-1 21:35</a>
+
+可以说从超短期到超高难所有场景都可以一把凤凰杖解决了……看你描述不知道你是不是没有泽塔，想给火补强 ...</blockquote>
+泽塔是有的，但是武器我没砸进盘
+
+*****
+
+####  Aureth  
+##### 18143#       发表于 2025-1-1 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67081521&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2025-1-1 21:37</a>
+
+泽塔是有的，但是武器我没砸进盘</blockquote>
+泽塔还是推荐砸到2的，石油火能用的就猎金用方天了。留给别的属性吧，比如最新最in的暴击插件光天羽……
+
