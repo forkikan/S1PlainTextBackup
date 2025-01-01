@@ -9149,3 +9149,23 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 那我选7个狂 然后遇到外星人怎么办 能中途换人吗（</blockquote>
 不能换不利于后来的新卡，个人偏向于要真不能换的话那就是第二部完结准备关服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 15946#       发表于 2025-1-1 22:23
+
+假如不包括额外职介，复刻时就该说清楚，否则必定大炎上。特殊战斗前，应该可以自由更换，因为要求达到100级已经限制了资源，相当于每换个新人至少要消耗5个圣杯，再限制就没道理了。猜测每个职介最多1个冠位，总数为7。在剧情表现上，可以有对应的名称：冠位剑、冠位尺、冠位盾等，免得叫什么冠位剑1、冠位剑2、冠位EX1之类的。
+
+*****
+
+####  alucardcz  
+##### 15947#       发表于 2025-1-1 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67081809&amp;ptid=2084912" target="_blank">الطائر 发表于 2025-1-1 22:23</a>
+
+假如不包括额外职介，复刻时就该说清楚，否则必定大炎上。特殊战斗前，应该可以自由更换，因为要求达到100 ...</blockquote>
+对于正常运营来说你说的对
+
+但是你想想 这个运营。。他正常吗？他有脑子吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
