@@ -17572,3 +17572,36 @@ Timoris有个被前队友背刺的假药
 
 喵这个名利＞乐队的流量做法有争议太正常了，越这样后期鸡堕以后越离不开乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 5806#       发表于 2025-1-3 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091042&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-1-3 00:41</a>
+
+喵梦这个开盒即视感太重了</blockquote>
+紫色短发，难绷假面（动捕），倭寇担当，有点媚劲<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 5807#       发表于 2025-1-3 00:47
+
+大祥老师拉喵梦进队时本来就是拿初华和睦头人在队里作为筹码招来的，并且明说了要利用三人本来的流量，武道馆开盒行为算是很能理解也很合理的选择吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥爹这个前后反差的表现让我想起了战姬绝唱的响爹，而且那边也是赘婿，这算是日本人对事业失败的赘婿的刻板印象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 5808#       发表于 2025-1-3 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091081&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 00:47</a>
+
+大祥老师拉喵梦进队时本来就是拿初华和睦头人在队里作为筹码招来的，并且明说了要利用三人本来的流量，武道 ...</blockquote>
+从商业上来说，偶像乐队速通武道馆的时候，还确实就是最好的摘面具机会——你总不能打包票能搞蛋巡吧？何况这种舞台剧+演奏结合的方式也不适合上蛋。
+
+这点，不止喵梦想要，剩下的三个也都明白，只有（前）大小姐还在自我陶醉以为JK乐队真能讲实力讲音乐性。你们是五个宇多田光松隆子捆在一起么~
+

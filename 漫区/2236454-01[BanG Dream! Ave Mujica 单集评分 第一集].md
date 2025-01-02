@@ -693,3 +693,13 @@ op不错，+1
 
 结尾爆的有点刻意，但是这究极加速让我对后面很是期待
 
+
+*****
+
+####  DarkDuck  
+##### 80#       发表于 2025-1-3 00:44
+
+嚯嚯嚯，这么紧凑的第一集都有爱素唐磕的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

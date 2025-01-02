@@ -3445,3 +3445,25 @@ WWE2小时！？
 
 为什么好狐不用她的3D模型，两个3D的乱转<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10602#         楼主| 发表于 2025-1-3 00:15
+
+工作室准备各成员自己的曲子还可以理解，你怎么会想到连ホロウィッチ的曲子都准备上的这都被你想到了吗
+
+*****
+
+####  karastar  
+##### 10603#       发表于 2025-1-3 00:47
+
+兔皇出场太好笑了
+
+*****
+
+####  rs5621  
+##### 10604#       发表于 2025-1-3 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几个笑得也太颠了
+
