@@ -15423,3 +15423,80 @@ f7d0f4e1dffe669d2584657c5c9cb974.jpeg
 这是玩偶蛇还是真蛇啊</blockquote>
 真的呀，白化的缅甸蟒。
 
+
+*****
+
+####  影伴光生  
+##### 5575#       发表于 2025-1-2 21:18
+
+ 本帖最后由 影伴光生 于 2025-1-2 21:19 编辑 
+
+这90分钟里边包括了40分钟+的上一部回顾和10分钟+的广告，重点大概是在后5分钟的寄语
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黑夜落叶秋天  
+##### 5576#       发表于 2025-1-2 21:19
+
+<blockquote>カズマ 发表于 2025-1-2 21:17
+真的呀，白化的缅甸蟒。</blockquote>
+那李子还挺大胆的 居然可以让蛇缠上去不跑
+
+*****
+
+####  PDQ4  
+##### 5577#       发表于 2025-1-2 21:19
+
+挺水的，但是中之人的爱和团魂拉满了爱看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5578#       发表于 2025-1-2 21:20
+
+making都拍了能不能全部放出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">我要看团魂抱一起
+
+*****
+
+####  一心而用  
+##### 5579#       发表于 2025-1-2 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088954&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-2 20:42</a>
+钦定路线不同了吗</blockquote>
+<img src="https://p.sda1.dev/21/36152c8990aa404f6c0816e5d389afa6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5580#       发表于 2025-1-2 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089142&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-2 21:14</a>
+这是玩偶蛇还是真蛇啊</blockquote>
+真的蛇。
+
+
+*****
+
+####  akiomn  
+##### 5581#       发表于 2025-1-2 21:25
+
+发点下午广播有关的内容
+李子：avemujica确实很特别感觉会改变bangdream历史。
+梦以之前事务所的staff说学个乐器更好，试了键盘和吉他感觉都不行就去学了bass，四个月后武士道开始招募mujica人员，录了ppp的八月のif发给武士道，然后被选中了，李子是去试镜选上的。
+主持人：有点像少女乐队版的半泽直树 李子：确实有不少要素呢。
+mujica全员被李子带着吃火锅和麻辣烫，结月前几天还找梦以去吃了，李子喜欢喝麻辣烫店的香料可乐(？各种香料熬煮的水兑可乐)
+梦以爱喝豆乳，喝过豆乳味可乐(？怎么又是可乐)
+Mas?uerade Rhapsody Re?uest甩头前喊的那句像ソイ(豆soy)，下次想喊麻辣烫(?)
+
+半泽直树啊，很王道的带有复仇要素的剧，挺好看的（雅人叔表演超赞）
+如果真是少女乐队版的半泽直树确实值得期待，和以前的邦邦作品风格完全不一样
+
+*****
+
+####  AveMujica  
+##### 5582#         楼主| 发表于 2025-1-2 21:27
+
+2025年是属于ave mujica的，我们想让大家重新认识到这一点
+

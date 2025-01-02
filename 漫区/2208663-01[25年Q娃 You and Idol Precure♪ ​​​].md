@@ -759,3 +759,21 @@
 文三代大小姐还是好好认真的写南波万战队 别管其他吧
 已现在特摄风气她翻车怕是准备她家祖孙三代一起被问候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 207#       发表于 2025-1-2 21:23
+
+5号会上新PV吧？看看成色
+
+*****
+
+####  cmyk1234  
+##### 208#       发表于 2025-1-2 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089164&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-1-2 21:17</a>
+文三代大小姐还是好好认真的写南波万战队 别管其他吧
+已现在特摄风气她翻车怕是准备她家祖孙三代一起被问 ...</blockquote>
+既然井上亚树子有四五年编剧经历的带头人是加藤阳一，她的编剧稳定性和儿童接受度应该稳定，不会像风评那样翻江倒海。
+

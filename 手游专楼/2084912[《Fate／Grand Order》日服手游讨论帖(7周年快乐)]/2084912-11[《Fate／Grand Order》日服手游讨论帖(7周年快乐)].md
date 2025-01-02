@@ -9272,3 +9272,11 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">花了差不多1小时嗑了2个金苹果刷狗粮本也只能给角色升2级....是真的挺操蛋的
 
+
+*****
+
+####  保罗赫伯特  
+##### 15959#       发表于 2025-1-2 21:23
+
+大成功概率翻倍远不如直接经验翻倍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

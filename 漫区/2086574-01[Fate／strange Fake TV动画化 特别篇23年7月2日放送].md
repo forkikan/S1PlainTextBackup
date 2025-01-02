@@ -7469,3 +7469,11 @@ fsf能加的多了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一心而用  
+##### 390#       发表于 2025-1-2 21:25
+
+「搞笑漫画日和」x「Fate/strange Fake」(twi:odeyama_) ​​​<img src="https://p.sda1.dev/21/c00954e9e817c8dfbcafdf87bf0ab18f/image.jpg" referrerpolicy="no-referrer">
+
