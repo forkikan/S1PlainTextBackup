@@ -15131,3 +15131,11 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 (C105) [もえぷっしゅ (ちんげろ)] HAme Mujica (BanG Dream!) [中国翻訳] [DL版]
 <img src="https://p.sda1.dev/21/eb2a3044b90d5613492d04e3f67cc370/000.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 5547#       发表于 2025-1-2 17:52
+
+道德上有问题。。。。
+

@@ -609,3 +609,13 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aeolus039  
+##### 62#       发表于 2025-1-2 17:53
+
+据报道，炸弹的安装者疑似是另一名退役的美国军人马修·莱弗尔斯伯格
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
