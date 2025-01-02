@@ -17605,3 +17605,103 @@ Timoris有个被前队友背刺的假药
 
 这点，不止喵梦想要，剩下的三个也都明白，只有（前）大小姐还在自我陶醉以为JK乐队真能讲实力讲音乐性。你们是五个宇多田光松隆子捆在一起么~
 
+
+*****
+
+####  ParadiseMartyr  
+##### 5809#       发表于 2025-1-3 00:55
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-3 00:58 编辑 
+
+我有一个问题，她们哪儿来的资源这么快速通武道馆…
+这喵梦什么贱畜…
+
+*****
+
+####  江口夕  
+##### 5810#       发表于 2025-1-3 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大祥这是在老妈死了之后组的c团确实有点意外，算是打算重新出发又被老爹毁了，现在没坏掉已经很强了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  rollingusagi  
+##### 5811#       发表于 2025-1-3 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  2287217595  
+##### 5812#       发表于 2025-1-3 00:57
+
+喵梦这种干了几年都还是臭底边的**主到底哪来的自信教速通武道馆的祥p炒作的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aimujie  
+##### 5813#       发表于 2025-1-3 00:59
+
+爆爆爆，狠狠的爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  晓色暮云  
+##### 5814#       发表于 2025-1-3 01:00
+
+祥p的问题很明显了，小祥小祥不懂少女们的心啊
+
+*****
+
+####  LeonsCat  
+##### 5815#       发表于 2025-1-3 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091122&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 00:55</a>
+
+我有一个问题，她们哪儿来的资源这么快速通武道馆…</blockquote>
+如果把年龄都放大一点，差不多JD年纪，那就是一个财阀家大小姐，拉上自带顶流的少女偶像头牌+艺能界大御所的女儿，搞个新偶像企划，并且财阀明里暗里还有点支持（这儿只要祥爹的情况对外只是“病休”，还有tgw物产这种财阀核心企业投资那OK的），那么艺能界有人搞风险投资不至于天方夜谭。但是作为代价，除非丰川家明确下场，不然风险投资越是遇到奇迹式的成功，越是要快速兑现。
+
+*****
+
+####  不应  
+##### 5816#       发表于 2025-1-3 01:01
+
+集美们，生物爹真的不行
+
+*****
+
+####  PDQ4  
+##### 5817#       发表于 2025-1-3 01:02
+
+说不定祥p打算武道馆完了再进一步，不过说什么都是贷款，已经被喵梦打断了
+
+至少现在热度爆了，祥子真拿喵没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等喵梦被热度反噬的时候才能想起祥p在乎音乐性多正确<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  08df1258c5ed098  
+##### 5818#       发表于 2025-1-3 01:02
+
+既然初期积累是完全不露脸不宣传身份的，那祥子说的脸和数字到底是什么意思。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  试制甲炮  
+##### 5819#       发表于 2025-1-3 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091081&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 00:47</a>
+
+大祥老师拉喵梦进队时本来就是拿初华和睦头人在队里作为筹码招来的，并且明说了要利用三人本来的流量，武道 ...</blockquote>
+祥子我看就没考虑过啥时候能开盒吧，反正借着搞母鸡卡的机会能自闭一天就一天。
+
