@@ -5635,3 +5635,13 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 我先行图呢，难道不是每天一张<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 1872#       发表于 2025-1-2 13:14
+
+并非先行图
+
+只不过是带有倒计时的新年贺图
+
