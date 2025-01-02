@@ -3429,3 +3429,19 @@ WWE2小时！？
 
 这下确实某种意义上JP全员参战了还行
 
+
+*****
+
+####  holoan  
+##### 10600#         楼主| 发表于 2025-1-2 23:30
+
+花了多少时间在捏人和做帽子，简直是超越职人水平的还原度
+
+
+*****
+
+####  karastar  
+##### 10601#       发表于 2025-1-3 00:10
+
+为什么好狐不用她的3D模型，两个3D的乱转<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -588,3 +588,12 @@
 
 看完感觉祥子纯属争那一口气<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hysjmr  
+##### 68#       发表于 2025-1-3 00:09
+
+堆了很多要素以至于看上去像同人玛丽苏，节奏也不是很好，有点流水账。
+但是我相信这是staff下的战书，到底是事出有因丝丝入扣还是单纯闹麻了，反正只有三个月，答案很快就会揭晓的
+
