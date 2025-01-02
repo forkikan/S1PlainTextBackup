@@ -17433,3 +17433,77 @@ Magnet連接typeII: magnet:?xt=urn:btih:f2b48432ce58843f0bf9996646d522004e50f1f9
 还有聪明的Timoris其实是个笨蛋吗？ ...</blockquote>
 看到一个说法，Timoris在母鸡卡内部矛盾愈演愈烈的时候还会习惯性地类似买狗第九集那样作壁上观，导致引火烧身，明显是愚行。
 
+
+*****
+
+####  key君本命只有凛  
+##### 5791#       发表于 2025-1-3 00:29
+
+第一话看完，很难不喜欢祥子。
+祥爹真铁fw，话又说回来，这fw爹切割了大祥，大祥要不回去找爷爷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  不应  
+##### 5792#       发表于 2025-1-3 00:29
+
+武道馆还不够格的话小祥准备到什么舞台上面摘面具，国立吗
+
+*****
+
+####  skylah  
+##### 5793#       发表于 2025-1-3 00:30
+
+Timoris有个被前队友背刺的假药
+又或者那句“你觉得我不可信吗”是在钻牛角尖？
+至于初华，不善是为了祥子还是对着祥子，个人更倾向于前者<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5794#       发表于 2025-1-3 00:30
+
+似人还是有点难了，还得给祥子对似人爹的反应，有点浪费感情，最好就是就此下线不要再上线了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sugirraffe  
+##### 5795#       发表于 2025-1-3 00:32
+
+好笑吗？感觉不如富家大小姐第一次进餐厅就浪费饮料，ktv玩沙锤只会在一旁附庸风雅，建队拆队一条龙让队员措手不及，被猫猫一首春日影弹成路边，拿姐妹照片色诱美妆博主，住出租屋收老爹酒瓶被观众反复处刑，在live上被键帽当众开盒好笑
+
+这个看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙坪坝沙耶香  
+##### 5796#       发表于 2025-1-3 00:32
+
+祥爹确实很真诚，直说了有这样的女儿让他感觉到不爽，选择摆烂也要真诚的摆，一烂到底。
+
+
+*****
+
+####  上条仁美  
+##### 5797#       发表于 2025-1-3 00:34
+
+<blockquote>skylah 发表于 2025-1-3 01:30
+Timoris有个被前队友背刺的假药
+
+又或者那句“你觉得我不可信吗”是在钻牛角尖？
+
+至于初华，不善是为了祥子 ...</blockquote>
+初华女士的目标一开始就明说了是要和祥子一辈子，只是实现手段是不是属于常识范围还要看后面
+
+*****
+
+####  斑驳的阴影  
+##### 5798#       发表于 2025-1-3 00:34
+
+关掉弹幕看的，丰满的信息量真是太爽口啦<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+素祥各自没有说出口的话真是太美味了！<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
