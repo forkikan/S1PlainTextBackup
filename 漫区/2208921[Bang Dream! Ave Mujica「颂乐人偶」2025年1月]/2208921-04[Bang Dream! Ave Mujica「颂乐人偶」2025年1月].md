@@ -17705,3 +17705,88 @@ Timoris有个被前队友背刺的假药
 大祥老师拉喵梦进队时本来就是拿初华和睦头人在队里作为筹码招来的，并且明说了要利用三人本来的流量，武道 ...</blockquote>
 祥子我看就没考虑过啥时候能开盒吧，反正借着搞母鸡卡的机会能自闭一天就一天。
 
+
+*****
+
+####  ky怪  
+##### 5820#       发表于 2025-1-3 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091130&amp;ptid=2208921" target="_blank">2287217595 发表于 2025-1-3 00:57</a>
+喵梦这种干了几年都还是臭底边的网红到底哪来的自信教速通武道馆的祥p炒作的
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+是这样，没必要纠结武道馆不武道馆的，真讲究现实那一张面具照片就足够全家出道了，臭底边真不够格教大祥炒作吧
+
+*****
+
+####  晓色暮云  
+##### 5821#       发表于 2025-1-3 01:08
+
+根据喵梦的规划，她可能想要拿mujica当跳板，而不是要好好运营mujica，所以要炒作，我觉得祥p的规划肯定是合理的，路线没问题，组织上有问题
+
+*****
+
+####  江口夕  
+##### 5822#       发表于 2025-1-3 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091173&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-1-3 01:02</a>
+既然初期积累是完全不露脸不宣传身份的，那祥子说的脸和数字到底是什么意思。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当然是人先骗进来再说
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  PDQ4  
+##### 5823#       发表于 2025-1-3 01:08
+
+脸和数字是大概是等鸡名气和音乐性稳定后爆出来达成效应的，比如营销一下XX那么厉害没想到音乐也这么好
+
+初期就爆会吸引来大量不在乎乐队的偶像厨和颜粉，显然祥p不想鸡成为这样的组合
+
+毕竟音乐是她的本质之一
+
+虽然现实是你邦2.5企划<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 5824#       发表于 2025-1-3 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091173&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-1-3 01:02</a>
+
+既然初期积累是完全不露脸不宣传身份的，那祥子说的脸和数字到底是什么意思。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+其实业界惯例是，只要你自己做到不在公开场合揭面具，那至少同行（包括正经媒体）不会戳穿，至于公众猜那是公众的事情。毕竟你就是能对着观众戴面具，你还能对着工作人员戴面具？干脆对资方说工资发现金因为我要藏身份不能提供银行账户？怕不是被国税局教育。
+
+当然了，具体到祥子这上面，感觉她就是单纯的单纯……
+
+*****
+
+####  ParadiseMartyr  
+##### 5825#       发表于 2025-1-3 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091196&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-3 01:08</a>
+根据喵梦的规划，她可能想要拿mujica当跳板，而不是要好好运营mujica，所以要炒作，我觉得祥p的规划肯定是 ...</blockquote>
+所以祥子不拉其他低边鼓手，非要拉一个没练几天鼓的傻逼网红是为什么
+祥子是傻逼吗？
+
+
+*****
+
+####  ParadiseMartyr  
+##### 5826#       发表于 2025-1-3 01:12
+
+md祥子什么顶级抗压王，家里爸刚爆完，这边喵梦就接着开盒。
+他妈的还能绷得住，真是顶级抗压王…
+
+*****
+
+####  pokemon最爱  
+##### 5827#       发表于 2025-1-3 01:13
+
+与其相信大祥老师有什么超能力可以教网红喵梦做人带母鸡卡速通武道馆，我还不如相信母鸡卡速通武道馆就是大祥老师拿初华睦头喵梦的流量跟赞助商谈判并且暗中炒作带人气达成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
