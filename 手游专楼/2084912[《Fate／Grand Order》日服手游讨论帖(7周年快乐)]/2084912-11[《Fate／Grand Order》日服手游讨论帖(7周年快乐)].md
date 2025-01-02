@@ -9185,3 +9185,11 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 应该会包括额外吧，这个冠位应该不是跟菠萝菠萝的人理要的，而是根据ort捏冠位外星人灵基的资料研究出来的黑科技吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 15950#       发表于 2025-1-2 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我是傻逼 氪了福袋 一宝白公主 青子+1
+
