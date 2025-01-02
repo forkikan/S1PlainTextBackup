@@ -18271,3 +18271,17 @@ P站广告
 
 喵梦哪里来的自信。
 
+
+*****
+
+####  novalli  
+##### 5868#       发表于 2025-1-3 06:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090713&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-1-3 00:01</a>
+原来卖狗第一个镜头就是接
+
+之后的</blockquote>
+不太对，go第一个镜头是祥子去录音室，而祥子哭是在离开录音室之后。在哭的中间穿插的是祥子的回忆。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
