@@ -16831,3 +16831,91 @@ soyo看到大象摘面具会对anon说让我忘掉一切吧之类的话吗<img s
 顺便这个也上了热搜<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/7ed9960bf4735901ab8461dbbd89282a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  假面骑士3号  
+##### 5731#       发表于 2025-1-2 23:29
+
+卧槽，168亿，牛的啊
+
+*****
+
+####  高町城管  
+##### 5732#       发表于 2025-1-2 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 5733#       发表于 2025-1-2 23:32
+
+<blockquote>相坂君 发表于 2025-1-2 22:47
+不用个人承担，但要背锅，也没让渣爹承担，是赶出去了，又不去找工作</blockquote>
+站在祖父的视角说，赘婿本身能力一般，这一次捅篓子了，女儿也没了，赶出去有不是噶了，有能耐东山再起，到时候我们还是一家人，没能耐就让我孙女接班，以后是不是接济你一下我睁一只眼闭一只眼已经很好了
+
+*****
+
+####  JamieD  
+##### 5734#       发表于 2025-1-2 23:32
+
+因为看了第一集，让我回去找蝶团的歌重温了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5735#       发表于 2025-1-2 23:32
+
+Ave Mujica漫画开始连载
+<img src="https://p.sda1.dev/21/dd3ce3c9b21ccd7f4e1abfac7f87cd12/image.jpg" referrerpolicy="no-referrer">
+
+这个画师的x头像感觉很懂
+<img src="https://p.sda1.dev/21/23248a602fdcdd289cc843206b0cbf54/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海洋队手下mayo  
+##### 5736#       发表于 2025-1-2 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">明明一直都很爱大家却说了最mean的话去切割的自爆攻击式自虐者大翔老师 （谁也没获得幸福这点）更痛了
+
+这话最感兴趣的是大喵表演出来的这个话剧形象。赤裸展露自己欲望的危险女人，有点像莎士比亚话剧里面那种不受控的 动物般野性 魅惑又可怕的怪女巫。
+毕竟幼驯染三人确实是十足地压抑了自己欲望的 海铃虽然情报不足 这种通常理性示人的有不小概率出于“合理”去抛弃欲望
+
+由冠了“爱”之名的大喵来撕开压抑或许再合适不过
+
+*****
+
+####  jkl  
+##### 5737#       发表于 2025-1-2 23:35
+
+去过一次，从赤羽警察署走到祥爹家老远了，要走半个小时
+
+*****
+
+####  tide777  
+##### 5738#       发表于 2025-1-2 23:36
+
+立希给灯倒水那里，一秒三变脸给我看笑了。
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 5739#       发表于 2025-1-2 23:37
+
+虽然很心疼祥但是看到满屏弹幕拼好饭被偷了还是绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  香雨香香  
+##### 5740#       发表于 2025-1-2 23:38
+
+以上帝视角而言大祥老师的魅力真的太足了，最大的黑点也就是终结c团还当谜语人，然后对c团成员态度不太友好了。
+祥子的自尊肯定是不允许她在c团队友面前显露软弱的一面，但这无疑相当于是在她跟c团成员之间竖起了一面心之壁障，说简单点就是祥子终究是没把灯她们当做一辈子的朋友。
+当然对于祥子这样一个十几岁的小姑娘，还是第一次跟人组乐队，一上来就要求祥子这样自尊自强的人跟认识没多久的人掏心掏肺推心置腹地交流也不现实，所以我觉得祥子的塑造真的是很立体形象，很喜欢这样的大祥老师
+祥子过分依赖自己，不肯放下自尊寻求帮助不信任队友的问题估计在鸡团还会重演，就看鸡团队友们如何拯救祥子了，当然目前看鸡团队友们也是一个赛一个的问题儿童，都等着大祥老师去拯救呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
