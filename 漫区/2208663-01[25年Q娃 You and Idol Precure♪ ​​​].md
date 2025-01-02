@@ -692,3 +692,13 @@
 
 竟然真有加藤
 
+
+*****
+
+####  Blackson  
+##### 201#       发表于 2025-1-2 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67072428&amp;ptid=2208663" target="_blank">himfsz 发表于 2024-12-31 17:04</a>
+目前公布的情报都中规中矩吧，但是我现在的心态是只要有肉搏战就行了，今年的所谓追逐戏真是无聊得都开始反 ...</blockquote>
+我自己是觉得不可能。肉搏戏码给我感觉是（东映）怕吃家长投诉而不断调整激烈程度。看汪Q成绩这么好，估计会遵循下去
+
