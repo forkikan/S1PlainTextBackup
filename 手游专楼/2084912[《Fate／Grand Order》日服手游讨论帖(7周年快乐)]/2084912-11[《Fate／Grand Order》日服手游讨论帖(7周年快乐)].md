@@ -9193,3 +9193,32 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我是傻逼 氪了福袋 一宝白公主 青子+1
 
+
+*****
+
+####  alucardcz  
+##### 15951#       发表于 2025-1-2 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088420&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-2 19:06</a>
+
+我是傻逼 氪了福袋 一宝白公主 青子+1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">欧 都是我没有而且想要的！
+
+
+*****
+
+####  alucardcz  
+##### 15952#       发表于 2025-1-2 19:14
+
+现在居然就一个卡池。。这是暴风雨前的宁静吗
+
+*****
+
+####  qixinno2  
+##### 15953#       发表于 2025-1-2 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088453&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-2 19:12</a>
+
+欧 都是我没有而且想要的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不如萌新的福袋欧
+
