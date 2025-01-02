@@ -7426,3 +7426,15 @@ fsf能加的多了
 
 为什么暗杀的招数对剑士不起作用啊?
 
+
+*****
+
+####  岸波白野  
+##### 386#       发表于 2025-1-2 18:32
+
+ 本帖最后由 岸波白野 于 2025-1-2 18:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088130&amp;ptid=2086574" target="_blank">异界送 发表于 2025-1-2 18:20</a>
+
+为什么暗杀的招数对剑士不起作用啊?</blockquote><strong>
+被他宝具带的小兄弟僚机打掉了（那段应该有句叫了对方名字的台词吧没记错的话）</strong>
+
