@@ -16039,3 +16039,114 @@ b站最高同接多少来着
 
 好像最高到9.9w以后就降了，没破十万
 
+
+*****
+
+####  莉缇娅  
+##### 5646#       发表于 2025-1-2 22:30
+
+第一话就要大会员<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+说实话这成绩还不错
+
+*****
+
+####  yone0000  
+##### 5647#       发表于 2025-1-2 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">初华摘面具那段真是太棒了
+
+*****
+
+####  木板春香  
+##### 5648#       发表于 2025-1-2 22:32
+
+太少了 这一周一周要等到什么时候！
+
+*****
+
+####  就是剑鞘  
+##### 5649#       发表于 2025-1-2 22:32
+
+像是喝了很烈的酒<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 5650#       发表于 2025-1-2 22:32
+
+[https://x.com/BDP_AveMujica/status/1874825475559993732](https://x.com/BDP_AveMujica/status/1874825475559993732)
+
+哇
+
+*****
+
+####  Quelaan  
+##### 5651#       发表于 2025-1-2 22:33
+
+第一集就这么爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡卡布鲁根  
+##### 5652#       发表于 2025-1-2 22:33
+
+怎么直接开盒了啊
+
+这祥爹是真废物啊
+
+大祥老师这也是没苦硬吃了
+
+*****
+
+####  sliencer  
+##### 5653#       发表于 2025-1-2 22:33
+
+不是，第一集大祥老师整个一晨间剧女主附体了吧，恶意全堆到一块了
+
+*****
+
+####  PDQ4  
+##### 5654#       发表于 2025-1-2 22:33
+
+[https://www.youtube.com/watch?v=0PGfVrLeXUU](https://www.youtube.com/watch?v=0PGfVrLeXUU) killkiss live放了
+
+狂欢时刻
+
+*****
+
+####  影伴光生  
+##### 5655#       发表于 2025-1-2 22:34
+
+感觉mygo侧的画面比第一季BD版给得还要亮啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AveMujica  
+##### 5656#         楼主| 发表于 2025-1-2 22:34
+
+Alea jacta est
+
+*****
+
+####  Суслов  
+##### 5657#       发表于 2025-1-2 22:35
+
+mujica和祥子的回忆上了bbc滤镜，到了mygo这打光跟不要钱似的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awefhio  
+##### 5658#       发表于 2025-1-2 22:35
+
+独角兽是不是一点动静都不会有了
+
+*****
+
+####  onlv星骸  
+##### 5659#       发表于 2025-1-2 22:35
+
+B站这个清晰度不错啊
+
