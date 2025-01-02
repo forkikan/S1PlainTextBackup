@@ -486,3 +486,16 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 马公这不重拳出击？
 
+
+*****
+
+####  永远的访客  
+##### 51#       发表于 2025-1-2 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084082&amp;ptid=2236346" target="_blank">xinfengj 发表于 2025-1-2 10:34</a>
+
+”Polo，Small but Tough.” 现实复刻
+
+但是马老板连广告费都省了</blockquote>
+这个广告我也有印象，看一次笑一次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
