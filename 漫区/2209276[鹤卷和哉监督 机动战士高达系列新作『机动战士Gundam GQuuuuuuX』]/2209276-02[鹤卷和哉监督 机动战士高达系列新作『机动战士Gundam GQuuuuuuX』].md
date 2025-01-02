@@ -5679,3 +5679,14 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 高达自古以来就不是随随便便做一年一部能成功的，vgwx尝试年更失败之后每次新作都是乾坤一掷的感觉了，所以铁血把后续tv卡脖子的说法看一乐就行了
 
+
+*****
+
+####  线程召唤使  
+##### 1877#       发表于 2025-1-2 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087903&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-1-2 17:46</a>
+
+高达自古以来就不是随随便便做一年一部能成功的，vgwx尝试年更失败之后每次新作都是乾坤一掷的感觉了，所以 ...</blockquote>
+拿铁血说事的可能是多少看出了点问题但是年纪不够大没见过更前面的事情。
+

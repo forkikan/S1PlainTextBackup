@@ -7408,3 +7408,21 @@ fsf能加的多了
 
 有理查，没有腓力，腓特烈和萨拉丁有点遗憾
 
+
+*****
+
+####  异界送  
+##### 384#       发表于 2025-1-2 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223983&amp;ptid=2086574" target="_blank">03026829 发表于 2024-9-17 01:00</a>
+
+变成年番了</blockquote>
+不会变成奥运番吧
+
+*****
+
+####  异界送  
+##### 385#       发表于 2025-1-2 18:20
+
+为什么暗杀的招数对剑士不起作用啊?
+
