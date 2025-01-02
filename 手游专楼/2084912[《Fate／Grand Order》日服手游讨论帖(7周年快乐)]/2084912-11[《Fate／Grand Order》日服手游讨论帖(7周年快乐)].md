@@ -9280,3 +9280,13 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 大成功概率翻倍远不如直接经验翻倍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 15960#       发表于 2025-1-2 21:52
+
+福袋旺吉娜+麻婆，算是踩了一半的雷吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+理想是道满+新伯爵
+

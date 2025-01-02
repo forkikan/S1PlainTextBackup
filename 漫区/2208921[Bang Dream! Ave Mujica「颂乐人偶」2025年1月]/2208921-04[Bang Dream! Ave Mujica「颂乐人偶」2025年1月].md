@@ -15623,3 +15623,33 @@ https://x.com/kidanit/status/1874804883892867486
 
 这广告怎么还有隔壁刺团的啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悲伤颂偶  
+##### 5595#       发表于 2025-1-2 21:48
+
+传奇耐奶王母鸡卡
+
+*****
+
+####  PDQ4  
+##### 5596#       发表于 2025-1-2 21:52
+
+水魔还是llx，难道是革命机和大王冠吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 5597#       发表于 2025-1-2 21:53
+
+基本没啥重要内容，就是卖团魂为主
+
+
+*****
+
+####  山ノ内花音  
+##### 5598#       发表于 2025-1-2 21:54
+
+想成为好作品 只能往llx方向努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
