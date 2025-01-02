@@ -5588,3 +5588,11 @@ https://x.com/_take_oekaki/status/1874341396892754008
 我认为前期只会是宇宙势力之间的内战，联邦势力应该不会入场，毕竟这次是吉翁胜了，现在其他殖民卫星要独 ...</blockquote>
 外部势力不入场，只凭主角团两个女高中生和一个画涂鸦的能做得到吗，推翻宇宙nz扎比家势力，改组吉翁公国重回gh，让宇宙迎来新时代？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kisstv22  
+##### 1868#       发表于 2025-1-2 12:09
+
+半年番能上自然最好，主要看khara产能
+
