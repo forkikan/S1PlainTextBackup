@@ -16150,3 +16150,269 @@ mujica和祥子的回忆上了bbc滤镜，到了mygo这打光跟不要钱似的<
 
 B站这个清晰度不错啊
 
+
+*****
+
+####  木板春香  
+##### 5660#       发表于 2025-1-2 22:36
+
+我才重看了13集 Mygo ，狗那边也太亮太阳光了吧，祥子都很白祥
+
+*****
+
+####  虎纹鲨鱼鱼鱼  
+##### 5661#       发表于 2025-1-2 22:37
+
+ 本帖最后由 虎纹鲨鱼鱼鱼 于 2025-1-2 22:40 编辑 
+
+进来的时候有HDR真彩选项有6K码率，看完一遍再点了1080P怎么回不到HDR的选项了啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+找到办法了，去点一个其他的4K视频选4K画质，回来再进来就是了
+
+<img src="https://img.saraba1st.com/forum/202501/02/224026pve3s3suqsk1crgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (792.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 22:40 上传
+
+*****
+
+####  迷路的石头  
+##### 5662#       发表于 2025-1-2 22:37
+
+演出戴面具防盒这种事没写进合同？没有违约金就这样让人乱来？
+
+大象也是个草台班子啊
+
+*****
+
+####  sauron.j  
+##### 5663#       发表于 2025-1-2 22:37
+
+马希洛这下成丘处机路过牛家村了，该当何罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 5664#       发表于 2025-1-2 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089841&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-2 22:36</a>
+
+我才重看了13集 Mygo ，狗那边也太亮太阳光了吧，祥子都很白祥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">作为对比吧
+
+一边人生低谷，另一边快乐乐队
+
+*****
+
+####  PDQ4  
+##### 5665#       发表于 2025-1-2 22:38
+
+动画放完就放揭面killkiss，终于会宣传了，期间限定不骂wsd了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5666#       发表于 2025-1-2 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我4th缺的部分总算补了回来！！之前没看到揭面KiLLKiSS，整个4th索然无味
+
+*****
+
+####  嘴瓢王者  
+##### 5667#       发表于 2025-1-2 22:39
+
+感觉必会有祥子他爹包饺子的剧情
+
+*****
+
+####  qjw114514  
+##### 5668#       发表于 2025-1-2 22:39
+
+虽然早有准备，看到喵胡来果然还是有点血压上升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rrrimo  
+##### 5669#       发表于 2025-1-2 22:40
+
+168亿好像正好是个星鸣特工，原来是索尼千金，这波祥父是被sweetbaby欺诈了
+
+*****
+
+####  莉缇娅  
+##### 5670#       发表于 2025-1-2 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089857&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-2 22:37</a>
+
+马希洛这下成丘处机路过牛家村了，该当何罪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">要怪就怪马希洛菌子下的不够多吧
+
+*****
+
+####  罗克萨斯  
+##### 5671#       发表于 2025-1-2 22:41
+
+爱音到底是最后才找上soyo的，还是故意演了一出排除法暗示让soyo一起去的，想到枪版里老哥们的反应也是乐得不行，这一对确实蛮可爱的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  魔天使  
+##### 5672#       发表于 2025-1-2 22:42
+
+开头一整个演唱MV真不赖
+
+
+*****
+
+####  新HGCG  
+##### 5673#       发表于 2025-1-2 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089857&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-2 22:37</a>
+
+马希洛这下成丘处机路过牛家村了，该当何罪</blockquote>
+此话怎讲
+
+*****
+
+####  MLP_102  
+##### 5674#       发表于 2025-1-2 22:42
+
+艰难，想等等到3话放完再爬楼，但又忍不住呢
+
+*****
+
+####  海洋队手下mayo  
+##### 5675#       发表于 2025-1-2 22:43
+
+果然看文字剧透约等于没看看下来感觉很多地方理解完全不一样 大喵老师这手怎么看都是nice play啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5676#       发表于 2025-1-2 22:43
+
+这个killkiss一下就把当天的记忆给唤醒了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 5677#       发表于 2025-1-2 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089905&amp;ptid=2208921" target="_blank">罗克萨斯 发表于 2025-1-2 22:41</a>
+
+爱音到底是最后才找上soyo的，还是故意演了一出排除法暗示让soyo一起去的，想到枪版里老哥们的反应也是乐得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">应该是最后
+
+不过 说到底，要么tmr要么soyo，猫猫不去，rikki不感兴趣。
+
+考虑到tmr社恐，你说只有soyo这么一个选项也没啥问题
+
+也不用担心soyo拒绝，毕竟“我没说不去”
+
+*****
+
+####  山ノ内花音  
+##### 5678#       发表于 2025-1-2 22:43
+
+[https://x.com/00lagann/status/18 ... fBwUWaJJEgl3mSfUp5g](https://x.com/00lagann/status/1874825299541786736?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202501/02/224153aoobnehowcmv3qzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4085.jpeg</strong> (365.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 22:41 上传
+
+*****
+
+####  莉缇娅  
+##### 5679#       发表于 2025-1-2 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089922&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-2 22:42</a>
+
+此话怎讲</blockquote>
+没有马希洛，skk就不会想组乐队吧
+
+
+*****
+
+####  harmonytree  
+##### 5680#       发表于 2025-1-2 22:44
+
+第一集观后感
+
+<img src="https://img.saraba1st.com/forum/202501/02/224418j1dzgeg5gm16xs1m.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250102224357.jpg</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 22:44 上传
+
+
+*****
+
+####  新HGCG  
+##### 5681#       发表于 2025-1-2 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089954&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-2 22:43</a>
+
+没有马希洛，skk就不会想组乐队吧</blockquote>
+原来如此
+
+*****
+
+####  victorws  
+##### 5682#       发表于 2025-1-2 22:46
+
+呃其实公司亏了160多亿也不用个人承担吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 5683#       发表于 2025-1-2 22:46
+
+爱猫TV 启动
+
+*****
+
+####  卡卡布鲁根  
+##### 5684#       发表于 2025-1-2 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089987&amp;ptid=2208921" target="_blank">victorws 发表于 2025-1-2 22:46</a>
+
+呃其实公司亏了160多亿也不用个人承担吧</blockquote>
+引咎辞职而已吧。
+
+就是纯摆烂了恶心人呗
+
+*****
+
+####  相坂君  
+##### 5685#       发表于 2025-1-2 22:47
+
+不用个人承担，但要背锅，也没让渣爹承担，是赶出去了，又不去找工作
+
+*****
+
+####  刑部姬真可爱  
+##### 5686#       发表于 2025-1-2 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089905&amp;ptid=2208921" target="_blank">罗克萨斯 发表于 2025-1-2 22:41</a>
+
+爱音到底是最后才找上soyo的，还是故意演了一出排除法暗示让soyo一起去的，想到枪版里老哥们的反应也是乐得 ...</blockquote>
+欺负soyo0不好意思拒绝罢了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 5687#       发表于 2025-1-2 22:48
+
+椎名立希：演话剧的也配叫乐队？
+
