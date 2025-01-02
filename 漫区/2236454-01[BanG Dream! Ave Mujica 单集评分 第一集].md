@@ -729,3 +729,16 @@ op不错，+1
 
 而且也不太可能被家族舍弃吧 
 
+
+*****
+
+####  sdeplee  
+##### 83#       发表于 2025-1-3 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+祥爸算是个不太精明的好人吧 丧妻再被骗被赶出豪门后一下子落差大自暴自弃了 不过祥爹要是混不吝那种气质估计也娶不到祥妈
+
