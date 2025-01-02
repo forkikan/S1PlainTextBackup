@@ -2729,3 +2729,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 差点以为今天是愚人节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  提挈天地  
+##### 7366#       发表于 2025-1-2 12:52
+
+不会还是tgs期惯例发售日吧，平行开发就这?
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
