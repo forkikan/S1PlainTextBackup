@@ -14857,3 +14857,42 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 第几集才能好姐妹(不管是不是真姐妹)贴贴啊 不会是最后才黑白融合吧
 
+
+*****
+
+####  山ノ内花音  
+##### 5517#       发表于 2025-1-2 16:48
+
+12月的观众：三集连播太蠢了 社区环境全完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+1月的观众： 求你把13集都放出来吧 心已经要碎了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 5518#       发表于 2025-1-2 16:49
+
+感觉🐔的热度会高过🐶，只要脚本水平和🐶不相上下，基本锁定国内年度最有话题性动画
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  贰臣  
+##### 5519#       发表于 2025-1-2 16:50
+
+以国内舆论环境的极端来看，鸡的动画只有两个评价：超神和烂完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 5520#       发表于 2025-1-2 16:54
+
+ 本帖最后由 一心而用 于 2025-1-2 16:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087258&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-2 16:30</a>
+永山画睦祥了，1号初祥2号睦祥还挺端水的</blockquote>
+初华还原蛇绕颈
+<img src="https://p.sda1.dev/21/44421add88cc37423a9c5c81c8380fd4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/92a0a1629588ea344cb7b11b9996f876/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5cb069c863beadcb119dcc27f5f17d6f/image.jpg" referrerpolicy="no-referrer">
+
