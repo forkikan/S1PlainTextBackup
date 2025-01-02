@@ -14105,3 +14105,16 @@ CD到了，但广州场要一月才公布中签名单
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  evestart  
+##### 1376#       发表于 2025-1-2 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67036046&amp;ptid=2201887" target="_blank">ViyViy 发表于 2024-12-27 17:29</a>
+
+怎么感觉成品怪怪的……
+
+https://www.lovelive-anime.jp/news/01_4232.html</blockquote>
+感觉有点胖...........视角关系吗
+

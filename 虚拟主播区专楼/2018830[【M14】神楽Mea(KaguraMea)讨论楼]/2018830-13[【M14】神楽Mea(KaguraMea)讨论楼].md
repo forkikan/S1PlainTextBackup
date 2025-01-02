@@ -525,3 +525,16 @@ Twitch录像又被审核锁了，这回直接35分钟不给过，俺寻思苔姨
 会限才补完，是“拉”，这两次新年配信是“扯”，过了这么多年作为男友粉仍然没有习惯呢；
 btw她生理期预测最后一天正是31号
 
+
+*****
+
+####  sino__unnko3  
+##### 17794#       发表于 2025-1-2 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67033730&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-12-27 12:50</a>
+但我印象里她昨天ban了好几个人
+
+抛开生理期不谈</blockquote>
+在翻录播的存档，还真有人发DM；
+主播表示很久没打开棉花糖网站了
+
