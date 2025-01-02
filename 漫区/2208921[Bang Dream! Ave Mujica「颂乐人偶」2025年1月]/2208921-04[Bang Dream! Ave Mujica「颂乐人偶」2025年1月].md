@@ -15913,3 +15913,129 @@ B站竟然上了hdr，是真的么？
 欢迎来到，Ave Mujica的世界</blockquote>
 就你头像不对，快去换。
 
+
+*****
+
+####  cindy355  
+##### 5633#       发表于 2025-1-2 22:18
+
+爸爸会加油的哦
+
+爸爸会加油的哦
+
+爸爸会加油的哦
+
+*****
+
+####  yellow0507  
+##### 5634#       发表于 2025-1-2 22:18
+
+为什么只有一集  说好三集连播呢
+
+*****
+
+####  名津流  
+##### 5635#       发表于 2025-1-2 22:19
+
+<img src="https://img.saraba1st.com/forum/202501/02/221858o7kqrqibsicrsnzr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 22:18 上传
+
+9.5w同时在线观看了，还在升
+
+能破十万吗
+
+*****
+
+####  鲍里斯  
+##### 5636#       发表于 2025-1-2 22:21
+
+b站最高同接多少来着
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  eva02eva02  
+##### 5637#       发表于 2025-1-2 22:22
+
+我的拼好饭被人偷了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 5638#       发表于 2025-1-2 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089657&amp;ptid=2208921" target="_blank">鲍里斯 发表于 2025-1-2 22:21</a>
+
+b站最高同接多少来着
+
+—— 来自 vivo V2172A, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+骨王的20W还是30W
+
+
+*****
+
+####  cindy355  
+##### 5639#       发表于 2025-1-2 22:24
+
+呃，好神秘的叙事节奏，把第一话做得像总集篇一样
+
+*****
+
+####  虚无缥缈的光阴  
+##### 5640#       发表于 2025-1-2 22:25
+
+第一集这个美帝卖的也太生硬了，像是中学作文扣题般的故意点题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fufusako  
+##### 5641#       发表于 2025-1-2 22:26
+
+还要会员的，看个开头撤了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 5642#       发表于 2025-1-2 22:26
+
+看来就是9.9了
+
+*****
+
+####  莉缇娅  
+##### 5643#       发表于 2025-1-2 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089675&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-2 22:23</a>
+
+骨王的20W还是30W</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">肯定是没法和骨王比的
+
+*****
+
+####  doas9  
+##### 5644#       发表于 2025-1-2 22:26
+
+我草！盒！
+
+*****
+
+####  名津流  
+##### 5645#       发表于 2025-1-2 22:27
+
+<img src="https://img.saraba1st.com/forum/202501/02/222737dittxt6sw8krtcog.png" referrerpolicy="no-referrer">
+
+<strong>22.22.png</strong> (15.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 22:27 上传
+
+好像最高到9.9w以后就降了，没破十万
+
