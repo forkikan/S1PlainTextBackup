@@ -815,3 +815,17 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  novalli  
+##### 91#       发表于 2025-1-3 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090644&amp;ptid=2236454" target="_blank">aptx8285144 发表于 2025-1-2 23:52</a>
+路人其实早就有个很大疑惑，莫非音乐番的很多受众都是温室里的花朵，在我看来“前传”时期的祥子的“争议” ...</blockquote>
+主要是bang dream之前的风格一直是比较阳光的，除了初设漫画一般也不会给太沉重的背景故事，几乎没有对家庭和乐队外人物的深入挖掘。
+大多数人更多的是惊讶吧，但考虑到初设和之前也出现过看似包饺子但最后没包的情况，也算是没有打破bang dream的世界观吧。
+不过声优访谈明确说了和以往的bang dream氛围不同，估计这次包饺子会很艰难吧。但反过来有2.5企划托底，结局一定会收回来，中间的过程确实可以多发挥一些。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
