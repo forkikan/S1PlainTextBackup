@@ -7477,3 +7477,11 @@ fsf能加的多了
 
 「搞笑漫画日和」x「Fate/strange Fake」(twi:odeyama_) ​​​<img src="https://p.sda1.dev/21/c00954e9e817c8dfbcafdf87bf0ab18f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  henry8848  
+##### 391#       发表于 2025-1-2 22:05
+
+感觉日配的女主反而没有英配的好，过于冷静，没有英配的破碎感
+
