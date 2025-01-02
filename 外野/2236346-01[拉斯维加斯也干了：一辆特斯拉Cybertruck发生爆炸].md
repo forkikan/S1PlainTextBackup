@@ -453,3 +453,36 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 这是不是连车的电池都没点着
 
+
+*****
+
+####  有毒的蘑菇  
+##### 48#       发表于 2025-1-2 11:47
+
+ 监控视频截图
+
+<img src="https://img.saraba1st.com/forum/202501/02/114503a2w8777wj26wdwdk.jpg" referrerpolicy="no-referrer">
+
+<strong>2025010203.jpg</strong> (99.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 11:45 上传
+
+可能是没搞到炸药，而用烟花和汽油替代。 
+
+*****
+
+####  Mafise  
+##### 49#       发表于 2025-1-2 11:51
+
+感觉像教父里的马头，send a message 
+未来某一天马保国：将普里戈金我乎？
+
+*****
+
+####  UNICORN00  
+##### 50#       发表于 2025-1-2 11:51
+
+马公这不重拳出击？
+

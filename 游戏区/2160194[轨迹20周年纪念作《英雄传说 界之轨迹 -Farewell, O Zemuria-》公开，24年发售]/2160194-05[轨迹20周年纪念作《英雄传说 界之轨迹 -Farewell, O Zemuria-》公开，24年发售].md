@@ -2721,3 +2721,11 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 『界の軌跡』と平行する形で開発を進めていた『空の軌跡 the 1st』ですが、この度、2025年に全世界で同時発売することが正式に決定しました！
 
+
+*****
+
+####  一步成诗  
+##### 7365#       发表于 2025-1-2 11:47
+
+差点以为今天是愚人节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
