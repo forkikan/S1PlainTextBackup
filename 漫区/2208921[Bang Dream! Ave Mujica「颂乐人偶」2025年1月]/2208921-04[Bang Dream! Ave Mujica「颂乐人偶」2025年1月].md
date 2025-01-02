@@ -16919,3 +16919,90 @@ Ave Mujica漫画开始连载
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 5741#       发表于 2025-1-2 23:39
+
+<img src="https://p.sda1.dev/21/251199a313e1631c96d605e9ea9dc350/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 5742#       发表于 2025-1-2 23:40
+
+看完三话了，怎么没爱猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  findpkq  
+##### 5743#       发表于 2025-1-2 23:40
+
+信息量太大影响节奏安排了点，但是药味溢出还有什么不满呢，太劲了口牙
+
+祥子身世假药要是中了的话，结合kill kiss歌词的丑陋终局，后面大爆特爆时的烟花一定很美吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+按op看图说话来猜，mortis应该会因为共同利益先当祥子的共犯，虽然团队摇摇欲坠但两人先通通pua把所有人锁死在母鸡卡的船上(旋转木马🎠) 后面揭秘就得等背叛者初华了
+
+感觉母鸡卡的构筑是极其考虑戏剧上的工整性，现实层面的内容讨论时该阿虚.jpg的就应该即时抛掉(?
+
+*****
+
+####  aptx8285144  
+##### 5744#       发表于 2025-1-2 23:40
+
+路人怎么找不到严禁剧透的楼了？？
+
+*****
+
+####  jkl  
+##### 5745#       发表于 2025-1-2 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090562&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-2 23:40</a>
+
+路人怎么找不到严禁剧透的楼了？？</blockquote>
+开太多楼了，版主不乐意
+
+*****
+
+####  PDQ4  
+##### 5746#       发表于 2025-1-2 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090533&amp;ptid=2208921" target="_blank">香雨香香 发表于 2025-1-2 23:38</a>
+
+以上帝视角而言大祥老师的魅力真的太足了，最大的黑点也就是终结c团还当谜语人，然后对c团成员态度不太友好 ...</blockquote>
+虽然不喜欢你用黑称，但是观点差不多
+
+不过拯救过于俗套了，最有意思的是现在的祥子决定对鸡成员的人生负责，所以无论是喵梦搞事，还是其他成员出问题，祥子都必须去善后
+
+不过很想看到祥子发现鸡真的快碎掉无能为力的时候，其余四个人反过来对祥子的人生负责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假面骑士3号  
+##### 5747#       发表于 2025-1-2 23:43
+
+看样子mujica每集的名字都是拉丁语了，逼格太高了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 5748#       发表于 2025-1-2 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090480&amp;ptid=2208921" target="_blank">FeteFrumoase 发表于 2025-1-2 23:32</a>
+
+站在祖父的视角说，赘婿本身能力一般，这一次捅篓子了，女儿也没了，赶出去有不是噶了，有能耐东山再起， ...</blockquote>
+回忆中这垃圾爹估计很早之前就菜得被岳父嫌弃，能力方面确实明摆着的不行，所以捅娄子也只是赶出去没沉东京湾。他自己摆了不找工作还差点家暴女儿……不仅能力不行，抗压还不行。祖父嫌弃不是没道理的
+
+*****
+
+####  陶矢  
+##### 5749#       发表于 2025-1-2 23:47
+
+soyo视角睦就是标准贱女人，那边啥事都知道啥事都干了，这边啥热闹都看装傻充愣想办法看我丢人。
+现实中真就不能忍了，就该狠狠揪头发给她两巴掌，太可恨了。
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
