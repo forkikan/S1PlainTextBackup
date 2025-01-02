@@ -5446,3 +5446,12 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 是半年番就太好了
 
+
+*****
+
+####  Gysumitka  
+##### 1854#       发表于 2025-1-2 10:07
+
+<img src="https://p.sda1.dev/21/e88e515c23a31322c2d723b3283cb137/image.jpg" referrerpolicy="no-referrer">
+给这个综艺赞助
+
