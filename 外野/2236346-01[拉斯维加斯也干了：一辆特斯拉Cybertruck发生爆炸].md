@@ -511,3 +511,16 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  变老的大二  
+##### 53#       发表于 2025-1-2 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67085289&amp;ptid=2236346" target="_blank">fluent6.3 发表于 2025-1-2 12:27</a>
+
+别说，不锈钢还挺耐烧的。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+毕竟是用spacex的边角料做的，耐不耐锈不知道，但是绝对耐烧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

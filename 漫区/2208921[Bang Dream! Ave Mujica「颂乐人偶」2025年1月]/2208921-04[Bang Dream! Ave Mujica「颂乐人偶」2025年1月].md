@@ -14716,3 +14716,14 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 <img src="https://p.sda1.dev/21/d1b5e04a388921cf3e94fc726b8bb7bf/QQ图片20250102123059.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/556c377a7ba74b378f29b0880e621602/QQ图片20250102123103.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 5502#       发表于 2025-1-2 12:37
+
+刚才在想，这种在第一集没出现的画面做的宣传物料算不算剧透？
+仔细想了想，只讨论物料本身应该没问题，但指出这物料在哪里出现的可能就涉及剧透了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
