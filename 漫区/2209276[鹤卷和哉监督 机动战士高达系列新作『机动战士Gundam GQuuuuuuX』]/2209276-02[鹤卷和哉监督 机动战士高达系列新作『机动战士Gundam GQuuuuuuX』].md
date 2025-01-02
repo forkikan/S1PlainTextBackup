@@ -5577,3 +5577,14 @@ https://x.com/_take_oekaki/status/1874341396892754008
 吉翁方应该是很清楚所罗门大爆炸的原理，知道是类似奇迹的东西，常规环境下无法复现，所以不能把这个当做 ...</blockquote>
 我认为前期只会是宇宙势力之间的内战，联邦势力应该不会入场，毕竟这次是吉翁胜了，现在其他殖民卫星要独立权只需要向吉翁要，而不是和你联邦。通奸联邦才比较危险，吉翁反手告你吃里排外的轻轻松松，到时连大义的大旗都没有了。而且如果联邦一年战争把宇宙全丢光了，甚至连月球都丢了的话，我觉得在85年弱势的甚至可能是联邦。
 
+
+*****
+
+####  刺客ares  
+##### 1867#       发表于 2025-1-2 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084948&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-2 11:49</a>
+
+我认为前期只会是宇宙势力之间的内战，联邦势力应该不会入场，毕竟这次是吉翁胜了，现在其他殖民卫星要独 ...</blockquote>
+外部势力不入场，只凭主角团两个女高中生和一个画涂鸦的能做得到吗，推翻宇宙nz扎比家势力，改组吉翁公国重回gh，让宇宙迎来新时代？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
