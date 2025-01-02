@@ -17121,3 +17121,123 @@ soyo视角睦就是标准贱女人，那边啥事都知道啥事都干了，这�
 
 可能是我已经习惯了，感觉还好
 
+
+*****
+
+####  qjw114514  
+##### 5762#       发表于 2025-1-2 23:59
+
+的确感觉稍快，不过作为第一集快速交代背景足够了，mygo后期也是节奏很快的嘛，可惜剧透这些天看到太多，破坏了观感<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">要是没有三集先行该多好
+
+*****
+
+####  贰臣  
+##### 5763#       发表于 2025-1-2 23:59
+
+节奏确实太赶了，好几个场景可以多酝酿一会儿感情的跟赶场一样立刻切到下一个场景，信息量密度大到要来回看好几遍
+
+不过反正本来我也会盘几十遍无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5764#       发表于 2025-1-2 23:59
+
+至少剧情是可以理解的，一周一集对于细节消化时间倒是足够
+
+密度大对于剧情党还是很友好的
+
+*****
+
+####  山ノ内花音  
+##### 5765#       发表于 2025-1-3 00:01
+
+什么时候来点温情的 胃要受不了了
+
+*****
+
+####  kenqqex  
+##### 5766#       发表于 2025-1-3 00:01
+
+<img src="https://img.saraba1st.com/forum/202501/02/235901q99k9pw9mm68661e.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (222.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/02/235913dazy6202aoy4v3l9.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (172.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:59 上传
+
+原来卖狗第一个镜头就是接
+
+<img src="https://img.saraba1st.com/forum/202501/03/000033qebsna26pb020ob0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250103000024.jpg</strong> (71.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 00:00 上传
+
+之后的
+
+*****
+
+####  denpaSi  
+##### 5767#       发表于 2025-1-3 00:02
+
+第一集的信息量好大，不过总算是证实了祥爹对sakiko有着深刻影响。。善良的祥子只是在面对残酷现实的最后一击重锤后选择离开他那嗜酒的老爹，已经是仁至义尽了
+
+*****
+
+####  itsmyrailgun  
+##### 5768#       发表于 2025-1-3 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">看着面前三个喝完的无糖可乐罐子，感觉要代祥爹了
+
+
+*****
+
+####  [皆神孝介]  
+##### 5769#       发表于 2025-1-3 00:05
+
+没有哔哩哔哩会员的坛友可以下巴哈的
+
+BanG Dream! Ave Mujica - EP 01 [436.4 MB]
+[https://share.dmhy.org/topics/vi ... AC_AVC_CHT_MP4.html](https://share.dmhy.org/topics/view/686200_ANi_BanG_Dream%21_Ave_Mujica_-_01_1080P_Baha_WEB-DL_AAC_AVC_CHT_MP4.html)
+
+Magnet連接: magnet:?xt=urn:btih:6K2IIMWOLCCD6C7ZTFTENVJCABHFB4PZ
+
+Magnet連接typeII: magnet:?xt=urn:btih:f2b48432ce58843f0bf9996646d522004e50f1f9
+
+*****
+
+####  Renes  
+##### 5770#       发表于 2025-1-3 00:05
+
+ 本帖最后由 Renes 于 2025-1-3 00:07 编辑 
+
+第一集信息量还好吧，好好看完mygo的第一集绝大部分信息都是和mygo内容对答案啊，一口气弄完挺好的，后面可以专心展开故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便一说，我觉得老爹逼祥子切割他那行为，和祥子退CRYCHIC时的做法简直一样，毕竟祥子都上武道馆了，自己这种废物爹还是切割了好，只能说真是父女。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 5771#       发表于 2025-1-3 00:06
+
+比起之前场外各种破事和粉丝吵架，第一集的水平看着还挺稳的，超出预期——或者说符合我刚看完mygo时候的预期了
+
+*****
+
+####  千本blur  
+##### 5772#       发表于 2025-1-3 00:08
+
+传奇指挥组了银河战舰却发现明星队友第二把就开畜了。
+
