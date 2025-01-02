@@ -52,3 +52,16 @@ shit，这是我第6666贴，doomguy别杀我
 
 反正现在关注的游戏只要登录xgp就有点不想关注了
 
+
+*****
+
+####  双刀少女  
+##### 166#       发表于 2025-1-2 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086350&amp;ptid=2184766" target="_blank">JOJO42 发表于 2025-1-2 14:46</a>
+
+叔叔家有位老哥参与了制作，在评论区透了点内容，真假就不好说了，简单归纳一下——
+
+▪️ 这部前传是新时代 ...</blockquote>
+什么叫硬表面科幻题材？硬表面不是一种材质吗
+

@@ -556,3 +556,14 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 放个大烟花🎆
 
+
+*****
+
+####  atomone  
+##### 57#       发表于 2025-1-2 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67083162&amp;ptid=2236346" target="_blank">枯风瘦雪 发表于 2025-1-2 08:43</a>
+
+突然发现一件事，cybertruck用来干这事的破坏力好像比其他车型恐怖不少啊</blockquote>
+看图的话好像没强哪去，锂电池也没有说增伤。
+

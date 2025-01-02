@@ -586,3 +586,13 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 光天羽羽3月周年的时候记得还被人嘲笑呢，当时有个推荐换光天羽羽Q群的截图被嘲为神论还挂论坛，后来一段时 ...</blockquote>
 光天羽不清楚，水天羽应该早就是水高难最优解了
 
+
+*****
+
+####  Sylpheed  
+##### 18153#       发表于 2025-1-2 15:05
+
+这召唤最大的问题我觉得还是跟1技共享fa开关，其他到都还可以<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
