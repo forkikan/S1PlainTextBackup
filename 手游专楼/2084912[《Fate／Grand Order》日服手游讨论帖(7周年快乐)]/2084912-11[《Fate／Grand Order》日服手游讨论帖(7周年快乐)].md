@@ -9256,3 +9256,11 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 四个了，还剩3个要选谁
 
+
+*****
+
+####  DARKGRAY  
+##### 15957#       发表于 2025-1-2 20:04
+
+4号单抽不出就去碰青子福袋的路过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
