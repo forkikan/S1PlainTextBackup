@@ -14703,3 +14703,16 @@ asl剪辑还给了茜姨抬大腿特写，乐
 
 https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  AveMujica  
+##### 5501#         楼主| 发表于 2025-1-2 12:32
+
+韩国线下宣传
+<img src="https://p.sda1.dev/21/12b401e60c85f065f10a354b6fc802d5/QQ图片20250102123049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5404dbd5ad9545d7f48bf50ca9153465/QQ图片20250102123052.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d922190d3a294091d35f29a95d1ccba7/QQ图片20250102123055.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d1b5e04a388921cf3e94fc726b8bb7bf/QQ图片20250102123059.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/556c377a7ba74b378f29b0880e621602/QQ图片20250102123103.jpg" referrerpolicy="no-referrer">
+
