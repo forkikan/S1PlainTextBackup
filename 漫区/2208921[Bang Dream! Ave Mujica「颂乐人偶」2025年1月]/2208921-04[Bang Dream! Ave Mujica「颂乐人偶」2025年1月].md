@@ -14896,3 +14896,214 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 <img src="https://p.sda1.dev/21/92a0a1629588ea344cb7b11b9996f876/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/5cb069c863beadcb119dcc27f5f17d6f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 5521#       发表于 2025-1-2 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">这贺图的睦祥和服配饰还是同款啊，真是双子待遇，永山用心了
+永山和信泽都是wsd官方画师来着，睦祥初祥这俩是官方主推了
+结局再来个初睦祥大三角就完美了（笑死三角初华最后真成三角中的一角了）
+
+
+*****
+
+####  金属化反射装甲  
+##### 5522#       发表于 2025-1-2 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086703&amp;ptid=2236380" target="_blank">sauron.j 发表于 2025-1-2 15:25</a>
+
+不急，先看看会不会有4-6话先行放映会（</blockquote>
+我有种预感，武士道再接着烂炒，就要有舅舅剧透全篇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 5523#       发表于 2025-1-2 15:28
+
+看过三集的大伙要怎么融入只看过一集的群众当中呢，加油吧！
+
+*****
+
+####  ゆと  
+##### 5524#       发表于 2025-1-2 15:30
+
+好多鸡楼
+
+*****
+
+####  贰臣  
+##### 5525#       发表于 2025-1-2 15:32
+
+4-6先行什么的不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5526#       发表于 2025-1-2 15:36
+
+李子梦以广播有剧透，第四集还会爆，且之后鸡的困境更难（可以理解成之前的问题全没解决甚至产生了更多的问题）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆爆爆！我都不敢想白睦回来看到黑睦搞的事得有多爆炸了，怕是要对祥子从愧疚感变成自毁倾向了
+
+*****
+
+####  KOPKOM  
+##### 5527#       发表于 2025-1-2 15:41
+
+还能怎么爆啊，木头人因为在地下室囚禁女高中生被抓进局子关在祥爹隔壁牢房？
+
+*****
+
+####  qjw114514  
+##### 5528#       发表于 2025-1-2 15:44
+
+答案是黑睦加大了运动量却没有解决睡眠问题，还给祥子惹出一堆麻烦，直接给两人一块干过劳，医院当隔壁床去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 5529#       发表于 2025-1-2 16:02
+
+修仙乐队，睦熬通宵，初华半夜给祥子冲咖啡，海铃一天跑好几个乐队大概也得熬夜，只有喵梦网红要保养皮肤会早睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 5530#       发表于 2025-1-2 16:05
+
+<img src="https://p.sda1.dev/21/9e1a003cda9ce6ad418f3ee41aae771b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 5531#       发表于 2025-1-2 16:30
+
+永山画睦祥了，1号初祥2号睦祥还挺端水的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/02/163048vgy81ttgyxe9pjia.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (401.8 KB, 下载次数: 1)
+
+下载附件
+
+2025-1-2 16:30 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ytttsuuuba| + 1|好评加鹅|
+| 金属化反射装甲| + 1||
+| 山ノ内花音| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  新HGCG  
+##### 5532#       发表于 2025-1-2 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086882&amp;ptid=2208921" target="_blank">KOPKOM 发表于 2025-1-2 15:41</a>
+
+还能怎么爆啊，木头人因为在地下室囚禁女高中生被抓进局子关在祥爹隔壁牢房？ ...</blockquote>
+三集下来刚疯一个睦
+
+还有四个人没疯呢
+
+*****
+
+####  哈曼的YY  
+##### 5533#       发表于 2025-1-2 16:42
+
+第几集才能好姐妹(不管是不是真姐妹)贴贴啊 不会是最后才黑白融合吧
+
+*****
+
+####  山ノ内花音  
+##### 5534#       发表于 2025-1-2 16:48
+
+12月的观众：三集连播太蠢了 社区环境全完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+1月的观众： 求你把13集都放出来吧 心已经要碎了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 5535#       发表于 2025-1-2 16:49
+
+感觉🐔的热度会高过🐶，只要脚本水平和🐶不相上下，基本锁定国内年度最有话题性动画
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  贰臣  
+##### 5536#       发表于 2025-1-2 16:50
+
+以国内舆论环境的极端来看，鸡的动画只有两个评价：超神和烂完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5537#       发表于 2025-1-2 16:54
+
+ 本帖最后由 一心而用 于 2025-1-2 16:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087258&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-2 16:30</a>
+永山画睦祥了，1号初祥2号睦祥还挺端水的</blockquote>
+初华还原蛇绕颈
+<img src="https://p.sda1.dev/21/44421add88cc37423a9c5c81c8380fd4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/92a0a1629588ea344cb7b11b9996f876/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5cb069c863beadcb119dcc27f5f17d6f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 5538#       发表于 2025-1-2 17:06
+
+所以下半要接着13集的尾巴讲故事，无视剧透等到今天，有个无剧透也挺好，会1-3连播 还是一集一集更？
+
+*****
+
+####  rushsong  
+##### 5539#       发表于 2025-1-2 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087583&amp;ptid=2236380" target="_blank">木板春香 发表于 2025-1-2 17:06</a>
+所以下半要接着13集的尾巴讲故事，无视剧透等到今天，有个无剧透也挺好，会1-3连播 还是一集一集更？ ...</blockquote>
+肯定一集一集更，要是三集连播早通知了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 5540#       发表于 2025-1-2 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这贺图的睦祥和服配饰还是同款啊，真是双子待遇，永山用心了
+永山和信泽都是wsd官方画师来着，睦祥初祥这俩是官方主推了
+结局再来个初睦祥大三角就完美了（笑死三角初华最后真成三角中的一角了）
+
+*****
+
+####  gongsunfh  
+##### 5541#       发表于 2025-1-2 17:17
+
+丰川祥子你一定幸福啊
+
+*****
+
+####  木板春香  
+##### 5542#       发表于 2025-1-2 17:22
+
+ 结果帖子还是被合并了啊
+
+*****
+
+####  砂雪  
+##### 5543#       发表于 2025-1-2 17:23
+
+热播期动画专楼最多一个
+
