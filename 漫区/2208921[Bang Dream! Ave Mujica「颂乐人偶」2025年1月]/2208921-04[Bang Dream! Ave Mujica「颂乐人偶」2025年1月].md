@@ -15159,3 +15159,14 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 找规律找了半天发现没有规律，好像真的在端水<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 5550#       发表于 2025-1-2 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087896&amp;ptid=2208921" target="_blank">s1百综字幕组 发表于 2025-1-2 17:45</a>
+
+(C105) [もえぷっしゅ (ちんげろ)] HAme Mujica (BanG Dream!) [中国翻訳] [DL版]</blockquote>
+这本好像有官方中字吧
+
