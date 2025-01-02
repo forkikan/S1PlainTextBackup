@@ -597,3 +597,15 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 我怎么觉得就是个有车的川粉，准备露营，买了太多烟花，然后不小心在车内点燃烟花的火药自己炸了。这种草台 ...</blockquote>
 真这样也太艹了
 
+
+*****
+
+####  枯风瘦雪  
+##### 61#       发表于 2025-1-2 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086476&amp;ptid=2236346" target="_blank">atomone 发表于 2025-1-2 15:02</a>
+看图的话好像没强哪去，锂电池也没有说增伤。</blockquote>
+我想象中的场景是拿来撞人而不是装ide，这玩意外壳强度高棱角分明，感觉碰撞加伤害的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
