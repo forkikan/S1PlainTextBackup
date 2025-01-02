@@ -220,3 +220,11 @@ sky对やみえん的执念……连凸待都拉来参加
 黛灰算不算第一个毕业了还跟虹有这么多往来的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">毕业后往来最多的是bora
 
+
+*****
+
+####  aritaatsu222  
+##### 992#       发表于 2025-1-3 02:07
+
+我看sky再打stgr下去差不多可以陪yamien一起去死，真是美談
+

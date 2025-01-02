@@ -18030,3 +18030,108 @@ soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 5851#       发表于 2025-1-3 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091401&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-3 01:55</a>
+
+不是很懂日本乐队，主要是没怎么见到其他工作人员，而且也是祥子一个人在出租屋摁写歌，我感觉既然商业了 ...</blockquote>
+具体商业细节你就当邦多利世界观糊弄一下吧，毕竟是个随便组乐队就能随地大小live的设定<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 5852#       发表于 2025-1-3 02:06
+
+原来是这样的设定，母亲死了，爹出事了，真正让人意外的是这居然是在第一集就讲出来的，这样的话叙事节奏完全不是之前想的那种逐渐揭露的样子了
+<img src="https://p.sda1.dev/21/7aefd6ea9ad24d8b97ab24663d5ffcd6/58854017358273622.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/8820dd145ceab7afa4919e9ee2ad7716/IMG_20250102_223923.jpg" referrerpolicy="no-referrer">
+
+这个设定意外的没有什么回旋的余地，设计了一个除了倒运没有什么颓废的支持力的父亲角色，这样简单粗暴的设定是很让我意外的。
+
+这个角色没有什么故事发挥的空间呀，铺垫了许久的祥子往事，就这么多内容了？如果还要发掘其中的故事，顶多是只能是往丰川集团和祥子祖父那里发掘了，总不能是把祥子母亲的死做成谋杀悬疑剧吧，不可能不可能 
+
+现在看来祥子的确没有一丝玩弄人心的余裕，两次她都一直是单纯地在组乐队的过程中热爱或者努力，只不过她每次都总是恰好遇上那么一两个想要和她一辈子在一起的女孩子，因而显得多情总被无情恼  
+<img src="https://p.sda1.dev/21/63dc243971e62b66e9f3025d6ba252ea/66627117358274702.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/80b96c31b2cc4ef251b4477fe4f9c9f6/41108217358270762.png" referrerpolicy="no-referrer">
+
+mygo动画最神秘的除了祥子还有小睦，往事线还剩下的就是小睦了。祥子的往事目前似乎是简单明了的，如果要做成看似简单实则还有内幕的样子就得扯上若叶家了，但我总觉得这乐队番不大可能会再在这家族啊商战啊方面挖掘剧情向内容了。小睦的故事更可能也是个比较简单的原生家庭故事，不大可能是反转复杂的故事。
+
+我必须预测mujica可能会有的剧情向发展不大可能是往事发掘型的剧情向，而更可能是多元人物互动解决问题的剧情向
+<img src="https://p.sda1.dev/21/b95601b7c06ddaa4ea0ea4ba08e9638b/86446617358277542.png" referrerpolicy="no-referrer">
+
+原来祥子找soyo比小灯还要更早，soyo也是祥子忍痛割舍的好亲友，素祥win（
+
+这样看素祥还是有双箭头滴，soyo等了一季没等来的箭头，第一集冒出来了，win✌
+<img src="https://p.sda1.dev/21/e142879822f772ea8a6599545c03854f/67129117358274782.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/524a3754b59b9a681d0c58d07e2b3701/88204217358278462.png" referrerpolicy="no-referrer">
+
+soyo空发千条Line，怎得听白祥她这一句“soyo~”啊😭
+
+这样看C团是建立在祥子丧母之后，爹出事之前，如果没什么别的故事空间的话，这顺序的用意就只是解释祥子的退团了。由Morfonica引发而不是像上一季看起来的那样是由小灯引发的灵感，换了一个视角之后，第一季第三集灯祥那看起来梦幻的邂逅，其实也只是祥子生命中诸多戏剧性事件中的一件，祥子似乎是个总能引发和少女“梦幻的邂逅”的人，这许多故事线似乎是集中戏剧性于她一身的
+<img src="https://p.sda1.dev/21/2b199113a61300e4ffbe3aad422ff47b/65633417358315352.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8452a1dce854b73e0057299908557c75/Screenshot_20250103_014555_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+最后大喵这个“我是钢铁侠”的行动的确有点大河内的风格，先设计看起来暂时保守主义蓄势待发的气氛，主角也给人以现阶段保守主义的印象，再利用特定角色一直以来的动机突然发动激进主义的超展开，达成意料之外情理之中的惊讶效果，同时打破本来缓慢的现况实现剧情的暴走前进
+<img src="https://p.sda1.dev/21/afdc55b85ae22977832185fd1a5e4ead/127461517358284122.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 5853#       发表于 2025-1-3 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091401&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-3 01:55</a>
+
+不是很懂日本乐队，主要是没怎么见到其他工作人员，而且也是祥子一个人在出租屋摁写歌，我感觉既然商业了 ...</blockquote>
+没空写这些。
+
+其实邦邦世界观客观上还是存在工作人员的，ykn还说过不少工作可以委托给团队但是会很贵，加上她这人对live效果要求比较高，所以很多现场调整都是萝团亲自在盯——这儿“对效果要求比较高”怕不是不让live电费太贵？
+
+*****
+
+####  帆前  
+##### 5854#       发表于 2025-1-3 02:08
+
+总结一下就是很多方面都很意外
+
+祥子往事意外的简单而似乎没有什么变化的空间，叙事节奏意外的快，小灯对祥子的影响意外的似乎没有第一季看起来的那么大，未来祥子和众人的故事意外更加方向扑朔迷离了，原本的往事发掘型的故事走向可能性变小了，多元人物群像互动解决问题的故事走向可能性变大了
+<img src="https://p.sda1.dev/21/ce2105b98ee27e86be7a37a0b60af95b/Screenshot_20250103_012724_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+意外之外也有点让人觉得有点安定感的地方，那就是群像角色仍然在发挥着剧情向的作用，第一季的“众多人物众多动机交错推进剧情”传统应该不会被丢弃，除此之外，大河内式的每集爆点传统也保留了。
+<img src="https://p.sda1.dev/21/6993ed2a1e736e1106f944848d5b02fa/136227817358285942.png" referrerpolicy="no-referrer">
+
+个人看好的地方仍然是这个企划作为原创番的多元人物群像互动剧情向发展。个人持观望态度的地方则是叙事节奏能否保持住平衡点，以及看起来简单没有回旋余地的祥子家人设计能不能和主题契合好，而不走向某种尴尬的“争议性配角塑造片面化影响了整个故事的纯净”。
+<img src="https://p.sda1.dev/21/613e349d4ce3f1887d40250fc282d7d2/129296317358284722.png" referrerpolicy="no-referrer">
+
+祥子人设伴随着更多故事的展现，果然是朝着讨喜方向走，第一季视角下的刚硬人设正在软化，其实当初的soyo人设变化过程也是有些相似。不过她的情绪两极变化非常极端，作为争议性角色的程度更甚
+<img src="https://p.sda1.dev/21/3e614f302f58de0d4b14b237071f6717/109120917358281352.png" referrerpolicy="no-referrer">
+
+小睦神秘的人设走向了祥子影响向，说出“我从来没有觉得组乐队开心过”，应该就是为了帮助祥子退出，才说了违心的话，走向了某种非常极端的利他人格。祥子对这样一个连自己喜好都迁就自己的青梅抱有某种情绪，这种情绪绝不会是简单的由自尊和依赖而产生的迁怒，应该还有“恨她不肯坚持自我，只会伤害自己利好别人”和“本来一直并肩，直到自己开始受到不公的命运拖累”的意思，目前两人单方面不理解的依存关系是最扭曲的
+<img src="https://p.sda1.dev/21/8db3d7234cdeea55b60eb5149fc0d50d/112825317358282222.png" referrerpolicy="no-referrer">
+
+现在看来两季角色的悲欢不止不相通而且大相径庭。我希望看到的还是一个群像剧，虽然就组乐队的动机来说，只有C团还是比较纯粹的祥子丧母后聚集同龄人搞音乐的爱好，mygo和mujica乐队的组建多少粘点人心各异，但是由此而产生的人心最终走向连接互助的道路，才是此种悲欢强烈故事的醍醐味
+
+*****
+
+####  帆前  
+##### 5855#       发表于 2025-1-3 02:09
+
+第一集个人目测CP股市：
+
+初祥小涨↑   从注视C团的第一次LIVE到Mujica组队，毫不犹豫的支持，无可置疑的青梅忠犬股！
+<img src="https://p.sda1.dev/21/8c3b5be1871677625ce44598c4c4d43e/46805017358271502.png" referrerpolicy="no-referrer">
+
+睦祥大涨↑   从小时的音乐合作到家庭丧乱的陪伴，为了迁就祥子退出硬说在C团不开心的极端自虐，极度扭曲的青梅依存股！
+<img src="https://p.sda1.dev/21/e522c654dd54b8fb3044009231cdcf8a/Screenshot_20250103_013127_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+素祥大涨↑    好吧我承认，本来不是大涨，但是因为终于展露了素祥曾经是双箭头可以算是大涨，坏心眼的神明，带来命运的相遇，家世背景反向对称的白月光治愈股！
+<img src="https://p.sda1.dev/21/67988f10095b043020795facb6f75e6d/135609017358285682.png" referrerpolicy="no-referrer">
+
+灯祥小跌↓   上一季第三集的梦幻相遇原来不是祥子组队的初心，初心还是更早一点的Morfonica，只能说祥子生命中的戏剧性邂逅太多了，但是小灯念念不忘的“我的歌就是我的呐喊”，加上一季动画主角万雌王的惊人重女气势，还是可以有相当的回响潜力，两大主角的前任文学股！
+<img src="https://p.sda1.dev/21/47f7405807492340e4352faded402cf4/Screenshot_20250103_013235_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+其余各股持续，喵祥状态混沌不明，附赠经典盯防立希. jpg，在这个风雨飘摇的时代，她还在盯防爱音，令人安心，使人泪目
+<img src="https://p.sda1.dev/21/e980067a7f480ef518defb3ae0ed1c6c/101613817358368252.png" referrerpolicy="no-referrer">
+
