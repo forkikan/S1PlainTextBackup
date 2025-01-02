@@ -9222,3 +9222,25 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 欧 都是我没有而且想要的！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不如萌新的福袋欧
 
+
+*****
+
+####  alucardcz  
+##### 15954#       发表于 2025-1-2 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088487&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-2 19:17</a>
+
+不如萌新的福袋欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么又尬黑 白公主不是你最想要的吗（
+
+
+*****
+
+####  qixinno2  
+##### 15955#       发表于 2025-1-2 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088503&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-2 19:20</a>
+
+你怎么又尬黑 白公主不是你最想要的吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但比起青子+1我更想要梅莉
+
