@@ -15575,3 +15575,51 @@ https://x.com/kidanit/status/1874804883892867486
 他又开始了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">別吹了 我害怕.jpg
 
+
+*****
+
+####  akiomn  
+##### 5589#       发表于 2025-1-2 21:38
+
+只能肯定mujica的要素会和之前完全不一样
+如果像少女乐队版的半泽直树这个形容是正确的，会有不少相同要素，还有pv里说的丰川家的黑暗面，第一集丰川老登的台词也是很值得玩味的
+那么复仇会是mujica的主题要素之一了（这个要素我记得之前邦邦系列作品没出现过）
+
+*****
+
+####  PDQ4  
+##### 5590#       发表于 2025-1-2 21:39
+
+老登怎么还公开奶
+
+你鸡这要是能撑住那确实是传奇了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5591#       发表于 2025-1-2 21:40
+
+<img src="https://p.sda1.dev/21/f98eea17db401eb4e78a44723a2ca97f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5592#       发表于 2025-1-2 21:41
+
+一提到复仇我就会想起独角兽是大河内铁粉<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 5593#       发表于 2025-1-2 21:44
+
+每集结尾都有爆点这不就是大河内吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RPG-7  
+##### 5594#       发表于 2025-1-2 21:45
+
+这广告怎么还有隔壁刺团的啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

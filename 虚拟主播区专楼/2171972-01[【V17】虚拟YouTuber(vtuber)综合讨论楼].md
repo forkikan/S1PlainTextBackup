@@ -207,3 +207,16 @@ sky对やみえん的执念……连凸待都拉来参加
 
 黛灰算不算第一个毕业了还跟虹有这么多往来的
 
+
+*****
+
+####  艾特娜  
+##### 991#       发表于 2025-1-2 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088217&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-1-2 18:35</a>
+
+sky对やみえん的执念……连凸待都拉来参加 
+
+黛灰算不算第一个毕业了还跟虹有这么多往来的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">毕业后往来最多的是bora
+
