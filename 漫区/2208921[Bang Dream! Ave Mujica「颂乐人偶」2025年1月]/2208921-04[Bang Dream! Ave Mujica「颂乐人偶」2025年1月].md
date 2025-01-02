@@ -17854,3 +17854,117 @@ md祥子什么顶级抗压王，家里爸刚爆完，这边喵梦就接着开盒
 祥子是傻逼吗？ ...</blockquote>
 可能喵梦真有天赋？我看祥子的眼光是很厉害的。
 
+
+*****
+
+####  NODY  
+##### 5834#       发表于 2025-1-3 01:25
+
+二三集不就看出喵梦有多短视了么，热度全被睦这个大明星女儿给吸走了，喵梦自己变成了五个人里面最糊逼的
+
+这时候才刚出道没多久，乐队深度粉丝压根还没积累多少呢，都是跟风看流量来的，自然是谁热度高就跟风追谁
+
+本来戴面具当个本格乐队先积累深度粉，到时候摘了面具喵梦就能拿到鼓手amoris的那一波流量了，现在自作自受，本来有机会成她粉丝的全被睦和初华这种热门吸走，她自己依然是底边网红
+
+*****
+
+####  沙坪坝沙耶香  
+##### 5835#       发表于 2025-1-3 01:26
+
+mygo忘得差不多了，为啥母鸡卡她们隐瞒了身份还能一上来就在武道馆演出？
+
+*****
+
+####  LeonsCat  
+##### 5836#       发表于 2025-1-3 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091279&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-3 01:25</a>
+
+二三集不就看出喵梦有多短视了么，热度全被睦这个大明星女儿给吸走了，喵梦自己变成了五个人里面最糊逼的
+
+ ...</blockquote>
+你对少女偶像团（的实力）有什么不切实际的幻想……又对本格乐队（的商业价值）有什么不切实际的幻想……
+
+*****
+
+####  08df1258c5ed098  
+##### 5837#       发表于 2025-1-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091284&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-3 01:26</a>
+mygo忘得差不多了，为啥母鸡卡她们隐瞒了身份还能一上来就在武道馆演出？</blockquote>
+资本的大手吧
+狗最后一集就表示了，鸡团出道起步就是武道馆
+
+*****
+
+####  ParadiseMartyr  
+##### 5838#       发表于 2025-1-3 01:29
+
+soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，看来爱音 先生 的治疗相当成功啊
+
+
+*****
+
+####  skylah  
+##### 5839#       发表于 2025-1-3 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091284&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-3 01:26</a>
+mygo忘得差不多了，为啥母鸡卡她们隐瞒了身份还能一上来就在武道馆演出？</blockquote>
+商业乐队加上自身有实力啊
+面具是mujica世界观的一部分，为了表演戏剧
+而且观众又不在乎她们的身份
+
+*****
+
+####  sdeplee  
+##### 5840#       发表于 2025-1-3 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091279&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-3 01:25</a>
+
+二三集不就看出喵梦有多短视了么，热度全被睦这个大明星女儿给吸走了，喵梦自己变成了五个人里面最糊逼的
+
+ ...</blockquote>
+好分析不过还是尽量别太剧透哈
+
+
+*****
+
+####  沙坪坝沙耶香  
+##### 5841#       发表于 2025-1-3 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091294&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-1-3 01:28</a>
+
+资本的大手吧
+
+狗最后一集就表示了，鸡团出道起步就是武道馆</blockquote>
+那资金谁出的？看这一集像是都是祥子在安排，也不像是有制作人或者公司之类的
+
+*****
+
+####  晓色暮云  
+##### 5842#       发表于 2025-1-3 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091296&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 01:29</a>
+
+soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，看来爱音 先生 的治疗相当成功啊 ...</blockquote>
+其实爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  08df1258c5ed098  
+##### 5843#       发表于 2025-1-3 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091306&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-3 01:31</a>
+那资金谁出的？看这一集像是都是祥子在安排，也不像是有制作人或者公司之类的 ...</blockquote>
+这集说了，和初华是一个经纪公司
+
+*****
+
+####  鲍里斯  
+##### 5844#       发表于 2025-1-3 01:34
+
+可以看出第一视角对角色观感的影响之大，现在却有不少人可以理解祥子了。
+当然车祥子还是那一套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
