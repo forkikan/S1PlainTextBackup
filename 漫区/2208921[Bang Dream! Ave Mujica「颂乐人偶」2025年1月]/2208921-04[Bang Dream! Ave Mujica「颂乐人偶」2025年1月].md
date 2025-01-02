@@ -16603,3 +16603,101 @@ B站竟然上了hdr，是真的么？
 今日的官方Fanart第2弹来自 西條ユリカ 老师
 <img src="https://p.sda1.dev/21/a6f8f0ce0f1f35e2659460431607cbe1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 5709#       发表于 2025-1-2 23:11
+
+已经又重看了两遍
+
+直播是蓝原直播间看的，有人知道这两张图从哪里扒吗，好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/02/230831bfysudofrdzpprru.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/02/230845igsr4phjsjj4xtd4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:08 上传
+
+*****
+
+####  duskeyes  
+##### 5710#       发表于 2025-1-2 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090229&amp;ptid=2208921" target="_blank">鱼罐头2455 发表于 2025-1-2 23:04</a>
+
+估计是被诈欺的责任+老登看不起入赘女婿（祥子小时候回忆就有说到）</blockquote>
+合理怀疑就是被老登设计诈骗的，正好踢出祥爸，而且可以解释为什么不让他自己背债承担责任，除了本来就是自导自演，谁会好心到亏那么多就放别人走？
+
+
+*****
+
+####  山ノ内花音  
+##### 5711#       发表于 2025-1-2 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090256&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-2 23:07</a>
+今日的官方Fanart第2弹来自 西條ユリカ 老师</blockquote>
+主包真可爱啊主包
+
+*****
+
+####  鱼罐头2455  
+##### 5712#       发表于 2025-1-2 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090301&amp;ptid=2208921" target="_blank">duskeyes 发表于 2025-1-2 23:12</a>
+
+合理怀疑就是被老登设计诈骗的，正好踢出祥爸，而且可以解释为什么不让他自己背债承担责任，除了本来就是 ...</blockquote>
+我觉得说老登设计诈骗可能有点过（否则还得再洗白老登），有一种可能性是老登知道祥爹的操作有风险/可能被骗但故意不提醒
+
+*****
+
+####  NODY  
+##### 5713#       发表于 2025-1-2 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090020&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-2 22:48</a>
+
+椎名立希：演话剧的也配叫乐队？</blockquote>
+看完后两集就知道立希这里神预言了，后面祥子自己都差点因为“不是乐队”破防了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 5714#       发表于 2025-1-2 23:16
+
+诡计多端的soyo一句话把灯憋回去，灯不去立希肯定不会去，爱音只好找自己了
+
+*****
+
+####  苹果皮卡丘  
+##### 5715#       发表于 2025-1-2 23:17
+
+<img src="https://img.saraba1st.com/forum/202501/02/231701kk5hag8qgo85zdo5.jpg" referrerpolicy="no-referrer">
+
+<strong>MGGM.jpg</strong> (62.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:17 上传
+
+唉马希罗太坏了
+
+*****
+
+####  一心而用  
+##### 5716#       发表于 2025-1-2 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089893&amp;ptid=2208921" target="_blank">rrrimo 发表于 2025-1-2 22:40</a>
+168亿好像正好是个星鸣特工，原来是索尼千金，这波祥父是被sweetbaby欺诈了</blockquote>
+所见略同
+<img src="https://p.sda1.dev/21/747629dd9a1a951870f603904a9a8e7e/image.jpg" referrerpolicy="no-referrer">
+
