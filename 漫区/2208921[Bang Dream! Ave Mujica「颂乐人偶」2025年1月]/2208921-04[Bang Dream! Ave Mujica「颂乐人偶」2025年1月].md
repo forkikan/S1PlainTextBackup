@@ -15500,3 +15500,78 @@ Mas?uerade Rhapsody Re?uest甩头前喊的那句像ソイ(豆soy)，下次想喊
 
 2025年是属于ave mujica的，我们想让大家重新认识到这一点
 
+
+*****
+
+####  adcdqre  
+##### 5583#       发表于 2025-1-2 21:29
+
+还有官方剪辑版这下不用重看了
+
+*****
+
+####  夜游宫  
+##### 5584#       发表于 2025-1-2 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089207&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-2 21:25</a>
+
+发点下午广播有关的内容
+
+李子：avemujica确实很特别感觉会改变bangdream历史。
+
+梦以之前事务所的staff说学 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说半泽原型的那个银行家前不久进局子了。
+
+*****
+
+####  PDQ4  
+##### 5585#       发表于 2025-1-2 21:31
+
+感觉这个官切祥子戏份的范围，已经被前三集干碎了，是我的错觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第四集还会低气压，感觉祥子要昏过去了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 5586#       发表于 2025-1-2 21:36
+
+[https://x.com/kidanit/status/1874804883892867486](https://x.com/kidanit/status/1874804883892867486)
+
+他又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/02/213611wkocoqefqlrbqbsv.jpg" referrerpolicy="no-referrer">
+
+<strong>20250102223533.jpg</strong> (14.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 21:36 上传
+
+*****
+
+####  Aendst  
+##### 5587#       发表于 2025-1-2 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089248&amp;ptid=2208921" target="_blank">PDQ4 发表于 2025-1-2 21:31</a>
+
+感觉这个官切祥子戏份的范围，已经被前三集干碎了，是我的错觉吗
+
+第四集还会低气压，感觉祥子要昏过去了
+
+ ...</blockquote>
+所以某种意义上挺适合对照着看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 5588#       发表于 2025-1-2 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089270&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-2 21:36</a>
+
+https://x.com/kidanit/status/1874804883892867486
+
+他又开始了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">別吹了 我害怕.jpg
+

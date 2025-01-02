@@ -3252,3 +3252,72 @@ who???????
 
 新人把场面救回来了，奇迹啊
 
+
+*****
+
+####  holoan  
+##### 10585#         楼主| 发表于 2025-1-2 21:25
+
+<img src="https://img.saraba1st.com/forum/202501/02/212501xwl8el8d1mmcwvxo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 21:25 上传
+
+korone你自己的趣味吧
+
+*****
+
+####  holoan  
+##### 10586#         楼主| 发表于 2025-1-2 21:26
+
+放外景视频反而同接涨了
+
+刚才太果然地狱了观众都看不下去
+
+*****
+
+####  rs5621  
+##### 10587#       发表于 2025-1-2 21:30
+
+地下室不是更恐怖？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 10588#         楼主| 发表于 2025-1-2 21:30
+
+知名的地方灵异地
+
+<img src="https://img.saraba1st.com/forum/202501/02/212959ji8z8xwwi3jw7ieh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 21:29 上传
+
+另外一提当时这个外景拍完回来就生病了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  rs5621  
+##### 10589#       发表于 2025-1-2 21:33
+
+holo来福之小龙探险
+
