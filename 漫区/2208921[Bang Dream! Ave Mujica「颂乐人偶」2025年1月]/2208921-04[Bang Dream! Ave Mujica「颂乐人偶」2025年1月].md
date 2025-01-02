@@ -18010,3 +18010,23 @@ soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，�
 
 カリスマ到底在哪里
 
+
+*****
+
+####  沙坪坝沙耶香  
+##### 5849#       发表于 2025-1-3 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091363&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-3 01:43</a>
+
+在丰川家把内部变动压下来的前提下，就是丰川家大小姐找了相熟的艺能界大御所的女儿，还说服了少女偶像组 ...</blockquote>
+不是很懂日本乐队，主要是没怎么见到其他工作人员，而且也是祥子一个人在出租屋摁写歌，我感觉既然商业了那也应该也有辅助团队，什么时候摘面具也应该有人做规划拍板决定，这集看下来像是被放养
+
+感觉是20分钟时间太紧了确实塞不下，或是想加深两人矛盾的印象淡化了其他人
+
+*****
+
+####  Boliva  
+##### 5850#       发表于 2025-1-3 01:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

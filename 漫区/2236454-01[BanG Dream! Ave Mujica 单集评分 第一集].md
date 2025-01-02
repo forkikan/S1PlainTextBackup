@@ -742,3 +742,24 @@ op不错，+1
 祥子爹随便一个损失就变废人了</blockquote>
 祥爸算是个不太精明的好人吧 丧妻再被骗被赶出豪门后一下子落差大自暴自弃了 不过祥爹要是混不吝那种气质估计也娶不到祥妈
 
+
+*****
+
+####  Reinhold  
+##### 84#       发表于 2025-1-3 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+祥爹应该是自己开摆引咎辞职了。赘婿，丈人本来就看不上他，心灵支柱老婆没了，给女儿说自己会努力的结果捅了大篓子。看描述也是个除了真诚一无是处的普通男性<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名津流  
+##### 85#       发表于 2025-1-3 01:57
+
+唉，已经结束了，今年的年度动画悬念，大约在开年的第二天就已经结束了
+
