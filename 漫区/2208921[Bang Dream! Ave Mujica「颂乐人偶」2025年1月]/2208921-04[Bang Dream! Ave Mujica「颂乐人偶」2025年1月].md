@@ -15170,3 +15170,46 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 (C105) [もえぷっしゅ (ちんげろ)] HAme Mujica (BanG Dream!) [中国翻訳] [DL版]</blockquote>
 这本好像有官方中字吧
 
+
+*****
+
+####  纯田まな  
+##### 5551#       发表于 2025-1-2 20:21
+
+本日から放送開始.ᐟ.ᐟ.ᐟ.ᐟ
+
+私はsumimi 純田まな役として出演させて頂いております🍩🤍
+
+まな〜〜〜！！！大好きだよぉ！！！🎀
+
+みんなしっかり見てAve Mujicaさんの世界観にどっっぷり浸かりましょう🌙
+
+よろしくお願い致しますっ
+
+*****
+
+####  akiomn  
+##### 5552#       发表于 2025-1-2 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播出前发个海玲假药，贴吧看到的，挺有意思的
+
+海铃之前被旧乐队背叛过，然后最早pv的台下咬牙和12集握拳看手机都是在看那个背刺她的旧乐队，如果海铃那个背德感十期待破坏世界对应她其实也想摘面具，可能是海铃其实内心也在期待自己在mujica有了成就，然后露脸展现给曾经抛弃自己的人看，然后梦以在访谈还专门说过“有粉丝的猜测非常接近”，不知道是不是指的这个假药。
+然后ed现在基本确定是黑百合了，花语是诅咒和孤傲
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很传统的被背刺后渴望成功证明自己然后向背刺自己的人展示
+
+*****
+
+####  山ノ内花音  
+##### 5553#       发表于 2025-1-2 20:22
+
+[https://x.com/nunnun_0410/status ... fBwUWaJJEgl3mSfUp5g](https://x.com/nunnun_0410/status/1874790386348208612?s=61&amp;t=R0KfBwUWaJJEgl3mSfUp5g)
+
+<img src="https://img.saraba1st.com/forum/202501/02/202234ydp6pe0fcmtcspii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4084.jpeg</strong> (912.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 20:22 上传
+
