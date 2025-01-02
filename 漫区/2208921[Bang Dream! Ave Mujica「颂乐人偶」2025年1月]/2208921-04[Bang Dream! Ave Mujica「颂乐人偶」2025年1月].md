@@ -15115,3 +15115,19 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来只能靠大伙自觉了
 
+
+*****
+
+####  Yugao  
+##### 5545#       发表于 2025-1-2 17:42
+
+依稀记得当时迷宫饭分了可以剧透，剧透反白，禁止剧透，漫画四个楼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s1百综字幕组  
+##### 5546#       发表于 2025-1-2 17:45
+
+(C105) [もえぷっしゅ (ちんげろ)] HAme Mujica (BanG Dream!) [中国翻訳] [DL版]
+<img src="https://p.sda1.dev/21/eb2a3044b90d5613492d04e3f67cc370/000.jpg" referrerpolicy="no-referrer">
+
