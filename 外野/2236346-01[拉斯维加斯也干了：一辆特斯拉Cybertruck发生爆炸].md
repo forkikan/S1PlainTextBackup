@@ -664,3 +664,13 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 中国历史上有类似的故事么？参考下看看剧情<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失业十年  
+##### 68#       发表于 2025-1-2 19:56
+
+驴党有个专门干脏事的组织
+
+这是给阿川上眼药了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
