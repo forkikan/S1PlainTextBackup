@@ -1188,3 +1188,11 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 服了，公主的袋子除了公主都是new，结果就公主喜+1了</blockquote>
 同样…<img src="https://p.sda1.dev/21/59bafca78323e7332323f6b80a837913/IMG_CMP_31654175.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46929#       发表于 2025-1-3 01:16
+
+还债了还债了，TM的300石头连个金卡从者都没有，我说你不给我5星就算了，我认了，不至于4星都要还吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

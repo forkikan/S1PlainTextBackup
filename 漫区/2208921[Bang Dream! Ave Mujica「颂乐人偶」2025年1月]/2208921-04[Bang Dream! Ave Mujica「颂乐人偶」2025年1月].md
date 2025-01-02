@@ -17790,3 +17790,67 @@ md祥子什么顶级抗压王，家里爸刚爆完，这边喵梦就接着开盒
 
 与其相信大祥老师有什么超能力可以教网红喵梦做人带母鸡卡速通武道馆，我还不如相信母鸡卡速通武道馆就是大祥老师拿初华睦头喵梦的流量跟赞助商谈判并且暗中炒作带人气达成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 5828#       发表于 2025-1-3 01:14
+
+爆爆爆，目前看后面还得修复和祥爹的关系，不至于真不管爹了吧。
+
+*****
+
+####  晓色暮云  
+##### 5829#       发表于 2025-1-3 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091210&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 01:09</a>
+
+所以祥子不拉其他低边鼓手，非要拉一个没练几天鼓的傻逼网红是为什么
+
+祥子是傻逼吗？ ...</blockquote>
+第一季说了，脸和数字，还有祥p觉得喵梦打鼓的技巧也还可以。
+
+*****
+
+####  3353764798  
+##### 5830#       发表于 2025-1-3 01:19
+
+面具除了满足祥p的中二幻想以外，主要是给睦做缓冲的吧。其他人身份暴不暴露根本无所谓的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  08df1258c5ed098  
+##### 5831#       发表于 2025-1-3 01:22
+
+我倒觉得没必要急着骂键帽，人家十有八九还就是个翻版大祥，对流量变现需要很迫切
+毕竟从初华态度来看，运营这块就是祥子一手包办，但就算上了一阵武道馆祥子的生活条件也没有显著的起色。
+大喵蚌埠住跳了无可厚非吧
+其实说白了，在别人看来这破面具除了演中二小剧场有毛用啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥要浪费赚真金白银的机会陪你过家家
+
+*****
+
+####  sdeplee  
+##### 5832#       发表于 2025-1-3 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091122&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 00:55</a>
+
+我有一个问题，她们哪儿来的资源这么快速通武道馆…
+
+这喵梦什么贱畜…</blockquote>
+母鸡卡本质上就是个ZB流量乐队 赞助商里就有丰川本家的 各个大人赞助商与经济公司也是一丘之貉为了炒红不择手段呗
+
+*****
+
+####  凝滞雪雾  
+##### 5833#       发表于 2025-1-3 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091210&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 01:09</a>
+
+所以祥子不拉其他低边鼓手，非要拉一个没练几天鼓的傻逼网红是为什么
+
+祥子是傻逼吗？ ...</blockquote>
+可能喵梦真有天赋？我看祥子的眼光是很厉害的。
+
