@@ -17315,3 +17315,121 @@ Magnet連接typeII: magnet:?xt=urn:btih:f2b48432ce58843f0bf9996646d522004e50f1f9
 看祥子被祥爹扔啤酒罐像什么？那种感觉就像是学生时期看《活着》，看到福贵一家熬过三年自然灾害，有庆却因为给县长的女人献血被医院抽死了，医院院长冷血地对福贵说：你怎么只有一个儿子。
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这一集满足了一种观众深层的愿望，就是一开始就把角色血淋淋地摧毁，观众虽然有的恨铁不成钢，有的漠然不语，但实际上都非常享受角色生活在一开始就被彻底摧毁崩塌的实时录影，这第一集就满足了这残酷而又深层的观众欲望。
 
+
+*****
+
+####  山ノ内花音  
+##### 5781#       发表于 2025-1-3 00:19
+
+祥爹很容易发展成石头门中钵博士那种变态
+如果祥子继续和他一起 
+被牢爹刺死的可能性也不是0
+
+察觉到家暴的可能性
+赶紧跑路
+这是非常正确的
+但看祥子离开时的表情变化
+也很像触发了什么ptsd
+
+*****
+
+####  08df1258c5ed098  
+##### 5782#       发表于 2025-1-3 00:20
+
+ 本帖最后由 08df1258c5ed098 于 2025-1-3 00:21 编辑 
+
+我的妈祥子这抗压能力真的还属于人类么，但凡有一点变好的好兆头都会被立刻毁掉。
+
+遭受这一天之内接二连三连绵不断还招招冲着要害来的打击，最后居然还能绷得住笑，太疯了。
+
+作为观众知道小祥的好日子还在后头，但实在很难想象到底还有什么能用什么来击穿祥子的心理防线。
+
+果然恐惧的关键就在于未知，特别是分明知道还要挨打，但就是不知道什么时候和什么方式，非常挠人。
+
+心理惊悚，诚不我欺。
+
+*****
+
+####  水莲寺流歌  
+##### 5783#       发表于 2025-1-3 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">喷了，这素世和祥子两人对对方的评价都很高啊，素祥关系性还真有说法
+
+*****
+
+####  试制甲炮  
+##### 5784#       发表于 2025-1-3 00:23
+
+爱音：Soyorin，那个绿头发的吉他是谁？
+
+素世：是当初我打算想请过来替代你的……那个贝斯是谁？
+
+爱音：啊，是你退队后我们请过来替代你的。
+
+
+*****
+
+####  一心而用  
+##### 5785#       发表于 2025-1-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090836&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-3 00:16</a>
+隔壁NGA看到一个说法，既然慈爱的amoris自私自利，高贵的oblivionis无家可归，那么善良的Dolores真的就那么 ...</blockquote>
+全是反的，顺从的Mortis很快就学会反抗了。
+还有聪明的Timoris其实是个笨蛋吗？
+
+*****
+
+####  PDQ4  
+##### 5786#       发表于 2025-1-3 00:24
+
+祥子那倒不是触发了什么ptsd，我偏向于单纯的不可置信
+
+爹这个行为同时背叛了自己说过的“会努力的”，同时背刺了祥妈对爹的信任，以及祥子对爹和祥妈话的信任
+
+结局能摆脱酗酒不再进局子就是胜利，毕竟不能真把人写死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Reinhold  
+##### 5787#       发表于 2025-1-3 00:26
+
+祥子哭的时候我也眼圈一红，然后被拼好饭憋回去了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山ノ内花音  
+##### 5788#       发表于 2025-1-3 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090907&amp;ptid=2208921" target="_blank">PDQ4 发表于 2025-1-3 00:24</a>
+祥子那倒不是触发了什么ptsd，我偏向于单纯的不可置信
+
+爹这个行为同时背叛了自己说过的“会努力的”，同时 ...</blockquote>
+祥爹连3D模型都没有
+再次登场在医院打来的电话里
+喝酒喝死了
+负责给祥子的人生最后一击
+这是最好的展开 就看独角兽的魄力了
+
+*****
+
+####  一个陆仁贾  
+##### 5789#       发表于 2025-1-3 00:27
+
+爱素好甜<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  试制甲炮  
+##### 5790#       发表于 2025-1-3 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090901&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-3 00:24</a>
+
+全是反的，顺从的Mortis很快就学会反抗了。
+
+还有聪明的Timoris其实是个笨蛋吗？ ...</blockquote>
+看到一个说法，Timoris在母鸡卡内部矛盾愈演愈烈的时候还会习惯性地类似买狗第九集那样作壁上观，导致引火烧身，明显是愚行。
+
