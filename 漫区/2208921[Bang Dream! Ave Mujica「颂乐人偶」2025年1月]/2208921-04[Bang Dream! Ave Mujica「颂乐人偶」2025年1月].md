@@ -16521,3 +16521,85 @@ B站这个清晰度不错啊
 
 原来祥子老师一直是白祥 我哭死
 
+
+*****
+
+####  cocoaghost  
+##### 5700#       发表于 2025-1-2 22:59
+
+太棒啦，这第一集的制作质量和氛围渲染，满分
+
+*****
+
+####  kivz  
+##### 5701#       发表于 2025-1-2 23:02
+
+过年了，每周都能看到小祥真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 5702#       发表于 2025-1-2 23:02
+
+鸡真要描写什么黑暗现实？来看关系性的，希望工具人和背景板交代完就赶紧下线<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 5703#       发表于 2025-1-2 23:02
+
+姆茨咪
+
+<img src="https://img.saraba1st.com/forum/202501/02/230222ca553mrg5ttlm7g6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:02 上传
+
+*****
+
+####  makesense  
+##### 5704#       发表于 2025-1-2 23:03
+
+本来觉得mygo已经很爆了，这母鸡卡更是不得了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jkl  
+##### 5705#       发表于 2025-1-2 23:03
+
+今晚最大的惊喜还是把KiLLKiSS的live录像放出来了，之前看完4th一直苦于没地方回忆
+
+
+*****
+
+####  鱼罐头2455  
+##### 5706#       发表于 2025-1-2 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089987&amp;ptid=2208921" target="_blank">victorws 发表于 2025-1-2 22:46</a>
+
+呃其实公司亏了160多亿也不用个人承担吧</blockquote>
+估计是被诈欺的责任+老登看不起入赘女婿（祥子小时候回忆就有说到）
+
+*****
+
+####  Xerxes_2  
+##### 5707#       发表于 2025-1-2 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089596&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-2 22:15</a>
+
+B站竟然上了hdr，是真的么？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+很真，MBP 上白色字幕把我闪瞎了
+
+*****
+
+####  一心而用  
+##### 5708#       发表于 2025-1-2 23:07
+
+今日的官方Fanart第2弹来自 西條ユリカ 老师
+<img src="https://p.sda1.dev/21/a6f8f0ce0f1f35e2659460431607cbe1/image.jpg" referrerpolicy="no-referrer">
+

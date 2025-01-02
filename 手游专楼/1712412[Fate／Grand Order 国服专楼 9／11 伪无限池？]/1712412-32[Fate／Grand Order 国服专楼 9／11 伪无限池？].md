@@ -1178,3 +1178,13 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 服了，公主的袋子除了公主都是new，结果就公主喜+1了
 
+
+*****
+
+####  shokuji  
+##### 46928#       发表于 2025-1-2 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67083220&amp;ptid=1712412" target="_blank">哔—— 发表于 2025-1-2 08:51</a>
+服了，公主的袋子除了公主都是new，结果就公主喜+1了</blockquote>
+同样…<img src="https://p.sda1.dev/21/59bafca78323e7332323f6b80a837913/IMG_CMP_31654175.jpeg" referrerpolicy="no-referrer">
+
