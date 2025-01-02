@@ -2265,7 +2265,7 @@
     "lastedit": 1735816020,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 120941,
+    "totalreply": 120942,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1735850168,
+    "lastedit": 1735850768,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9405,10 +9405,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 13096,
+    "totalreply": 13097,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1735843449,
+    "lastedit": 1735850888,
     "category": "手游专楼",
     "active": true,
     "update": false
