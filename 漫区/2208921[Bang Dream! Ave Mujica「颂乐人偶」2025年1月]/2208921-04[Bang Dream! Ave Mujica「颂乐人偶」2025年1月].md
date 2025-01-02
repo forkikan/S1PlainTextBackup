@@ -15272,3 +15272,34 @@ f7d0f4e1dffe669d2584657c5c9cb974.jpeg
 
 <img src="https://img.saraba1st.com/forum/202501/02/203711m1p3gwn1pfjjs3pj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 5558#       发表于 2025-1-2 20:38
+
+广子含量有点高了 而且不是手游和WS国内都有么 干嘛广子不汉化
+
+*****
+
+####  哈曼的YY  
+##### 5559#       发表于 2025-1-2 20:42
+
+钦定路线不同了吗
+
+<img src="https://img.saraba1st.com/forum/202501/02/204209wx8ox4wcs0mrxzrx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-02-20-39-26-17_3aea4af51f236e4932235f**7d1643.jpg</strong> (375.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 20:42 上传
+
+
+*****
+
+####  KLHgg  
+##### 5560#       发表于 2025-1-2 20:46
+
+等楼友总结一下那个特别节目的重点，如果太水就不看了
+
