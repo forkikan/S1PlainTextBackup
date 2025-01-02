@@ -739,3 +739,23 @@
 
 爱活无印第四季只有半年明显是腰斩过的 街机上有好几位地方偶像只能在正片打酱油甚至没有登场 诺尔儿也是明显第四季要安排转正结果来不及
 
+
+*****
+
+####  上坂莲华  
+##### 205#       发表于 2025-1-2 21:15
+
+偶活没问题，别搞出偶活星就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 206#       发表于 2025-1-2 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67073562&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2024-12-31 19:51</a>
+今年井上亚树子主业在第一战队豪兽者，会不会写几集偶像q娃剧本？
+
+又或者看加藤阳一写超级战队 ...</blockquote>
+文三代大小姐还是好好认真的写南波万战队 别管其他吧
+已现在特摄风气她翻车怕是准备她家祖孙三代一起被问候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

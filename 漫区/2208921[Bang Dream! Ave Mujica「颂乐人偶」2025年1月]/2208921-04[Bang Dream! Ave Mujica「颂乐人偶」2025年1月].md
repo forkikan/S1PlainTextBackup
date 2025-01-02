@@ -15355,3 +15355,71 @@ f7d0f4e1dffe669d2584657c5c9cb974.jpeg
 
 是時候再看一次mygo第13話的團名曲LIVE了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 5567#       发表于 2025-1-2 21:07
+
+黑暗面 恐怖片要素 解密 每场live都值得关注 
+
+*****
+
+####  Aendst  
+##### 5568#       发表于 2025-1-2 21:09
+
+确实，看完mujica篇再去把mygo篇十三话重看一遍应该会更有感触吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5569#       发表于 2025-1-2 21:10
+
+真不是魔法少女小圆吗？
+<img src="https://p.sda1.dev/21/1a484c70088d91d0c9961948b3779d26/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5570#       发表于 2025-1-2 21:13
+
+看完鸡以后所有角色形象都会反转吗，我还挺期待的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+不过祥子家族黑暗面是什么，从邦邦角度来讲，第一集可能就算黑暗了？
+
+*****
+
+####  黑夜落叶秋天  
+##### 5571#       发表于 2025-1-2 21:14
+
+<blockquote>一心而用 发表于 2025-1-2 16:54
+初华还原蛇绕颈</blockquote>
+这是玩偶蛇还是真蛇啊
+
+
+*****
+
+####  山ノ内花音  
+##### 5572#       发表于 2025-1-2 21:14
+
+祥妈的人偶隐藏着什么秘密<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 5573#       发表于 2025-1-2 21:15
+
+3rd时高尾因为彩排不满意快压力哭了，其他四个人都去抱抱她
+
+会有那样的逆输入吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  カズマ  
+##### 5574#       发表于 2025-1-2 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089142&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-2 21:14</a>
+
+这是玩偶蛇还是真蛇啊</blockquote>
+真的呀，白化的缅甸蟒。
+
