@@ -424,3 +424,24 @@ ykw什么哏？
 ykw什么哏？</blockquote>
  you know who，本来指作品《哈利波特》中的角色伏地魔（Lord Voldemort）。现在多被用来指代某个语境下没有明说，但大家都知道是谁的情况。
 
+
+*****
+
+####  自演乙.  
+##### 45#       发表于 2025-1-2 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67082980&amp;ptid=2236346" target="_blank">ネオグランゾン 发表于 2025-1-2 08:02</a>
+
+监控录像
+
+https://files.catbox.moe/1ynwhe.mp4</blockquote>
+蹦出来的东西有点像烟花爆竹
+
+
+*****
+
+####  火星後繼者  
+##### 46#       发表于 2025-1-2 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">马一龙刺王杀驾啦
+
