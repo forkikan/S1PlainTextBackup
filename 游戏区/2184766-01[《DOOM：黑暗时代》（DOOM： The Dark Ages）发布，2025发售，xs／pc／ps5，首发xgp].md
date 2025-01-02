@@ -89,3 +89,14 @@ shit，这是我第6666贴，doomguy别杀我
 
 我理解是可能类似Mike Andrew Nash这种硬表面大佬参与过的那些作品的美术风格吧
 
+
+*****
+
+####  JOJO42  
+##### 169#       发表于 2025-1-2 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086523&amp;ptid=2184766" target="_blank">爱护动物抓根宝 发表于 2025-1-2 15:08</a>
+
+永恒第一个长演示里ssg备弹还有48发来着，敌人进攻性也没那么哈人，结果跳票跳了五个月就直接面目全非了 ...</blockquote>
+对，记得他们之前放出的人间地狱关卡演示里重型大炮伤害非常夸张，同时还有和敌人对拳给敌人造成硬直这种类似弹反的设计...同样被改动的就是新敌人出场时的过场动画，正式版也给删了
+
