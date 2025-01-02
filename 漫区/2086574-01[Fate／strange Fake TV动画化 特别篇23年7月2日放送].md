@@ -7438,3 +7438,14 @@ fsf能加的多了
 为什么暗杀的招数对剑士不起作用啊?</blockquote><strong>
 被他宝具带的小兄弟僚机打掉了（那段应该有句叫了对方名字的台词吧没记错的话）</strong>
 
+
+*****
+
+####  ナルバレック  
+##### 387#       发表于 2025-1-2 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086212&amp;ptid=2086574" target="_blank">Yugao 发表于 2025-1-2 14:29</a>
+
+有理查，没有腓力，腓特烈和萨拉丁有点遗憾</blockquote>
+这三个都被理查在FSF提到过了好几次
+

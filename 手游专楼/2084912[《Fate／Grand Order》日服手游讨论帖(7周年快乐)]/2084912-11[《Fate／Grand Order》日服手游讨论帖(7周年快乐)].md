@@ -9244,3 +9244,15 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 你怎么又尬黑 白公主不是你最想要的吗（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但比起青子+1我更想要梅莉
 
+
+*****
+
+####  大十字紅朔  
+##### 15956#       发表于 2025-1-2 19:31
+
+福袋这次不想氪了完全没想要的……
+
+团长、印度龙、荆轲、老芥
+
+四个了，还剩3个要选谁
+
