@@ -16701,3 +16701,133 @@ B站竟然上了hdr，是真的么？
 所见略同
 <img src="https://p.sda1.dev/21/747629dd9a1a951870f603904a9a8e7e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 5717#       发表于 2025-1-2 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090347&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-2 23:17</a>
+所见略同</blockquote>
+wsd那13个开放中的游戏也会赔168亿吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 5718#       发表于 2025-1-2 23:19
+
+祥子对soyo的态度转变是真难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+太和善了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  圣血天使  
+##### 5719#       发表于 2025-1-2 23:19
+
+没看之前超前的剧透，买狗也是今年跳着看的，万万没想到母鸡卡第一集这么爆，买狗第一集哭来西裤解散相比差远了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  cindy355  
+##### 5720#       发表于 2025-1-2 23:20
+
+这丰川老登和丰川赘登说话都有点人机，老登那句说话简直跟“你妈死了，以后我是你爹”一样
+
+
+*****
+
+####  xxxcc  
+##### 5721#       发表于 2025-1-2 23:20
+
+下一周好漫长，我要看睦头人破防！
+
+*****
+
+####  影伴光生  
+##### 5722#       发表于 2025-1-2 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090371&amp;ptid=2208921" target="_blank">壳壳牛 发表于 2025-1-2 23:19</a>
+祥子对soyo的态度转变是真难绷
+太和善了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo视角里祥睦双簧戏就是为了炸团重组，中间还狠狠地羞辱了自己一顿啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  三尖酸努努  
+##### 5723#       发表于 2025-1-2 23:22
+
+第一集虽然爆中爆但说实话有点赶了，信息量放太多了。直接讲完祥子的过去然后跟废物老爹切割，最后喵姆还直接摘面具了。不过这样可以直接把前作遗留的结束掉，后面就全力讲母鸡卡了，要求不高，后面再来两神回就行。无法预测的命运之舞台我可太喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5724#       发表于 2025-1-2 23:23
+
+圣地巡礼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a318db7947f387708078ad20fd34a5ae/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| victorws| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Ashice  
+##### 5725#       发表于 2025-1-2 23:23
+
+soyo看到大象摘面具会对anon说让我忘掉一切吧之类的话吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  假面骑士3号  
+##### 5726#       发表于 2025-1-2 23:24
+
+卧槽，morfornica
+
+*****
+
+####  kivz  
+##### 5727#       发表于 2025-1-2 23:25
+
+祥子果然还是白啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oneoutsider  
+##### 5728#       发表于 2025-1-2 23:27
+
+&amp;#x7965;&amp;#x7239;&amp;#x88AB;&amp;#x9A97;&amp;#x5230;&amp;#x6446;&amp;#x70C2;&amp;#x7684;&amp;#x5267;&amp;#x60C5;&amp;#x6709;&amp;#x70B9;&amp;#x968F;&amp;#x4FBF;&amp;#xFF0C;&amp;#x4E2A;&amp;#x4EBA;&amp;#x611F;&amp;#x89C9;&amp;#x540E;&amp;#x9762;&amp;#x5E94;&amp;#x8BE5;&amp;#x4F1A;&amp;#x5177;&amp;#x4F53;&amp;#x518D;&amp;#x8BB2;&amp;#x4E0B;&amp;#x7F18;&amp;#x7531;&amp;#x6240;&amp;#x4EE5;&amp;#x8FD9;&amp;#x90E8;&amp;#x5206;&amp;#x8FD8;&amp;#x597D;&amp;#x3002;&amp;#x771F;&amp;#x6B63;&amp;#x8840;&amp;#x538B;&amp;#x98D9;&amp;#x5347;&amp;#x7684;&amp;#x8FD8;&amp;#x662F;&amp;#x7784;&amp;#x68A6;&amp;#x64C5;&amp;#x81EA;&amp;#x6458;&amp;#x9762;&amp;#x5177;&amp;#x7684;&amp;#x884C;&amp;#x4E3A;&amp;#xFF0C;&amp;#x50CF;&amp;#x8FD9;&amp;#x79CD;&amp;#x5546;&amp;#x6F14;&amp;#x4E0D;&amp;#x6015;&amp;#x6BC1;&amp;#x7EA6;&amp;#xFF1F;&amp;#x603B;&amp;#x4E0D;&amp;#x80FD;&amp;#x53EA;&amp;#x662F;&amp;#x4E94;&amp;#x4EBA;&amp;#x95F4;&amp;#x53E3;&amp;#x5934;&amp;#x7EA6;&amp;#x5B9A;&amp;#x4E0D;&amp;#x5F97;&amp;#x79C1;&amp;#x81EA;&amp;#x6458;&amp;#x9762;&amp;#x5177;&amp;#x5427;<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假面骑士3号  
+##### 5729#       发表于 2025-1-2 23:27
+
+长崎爽世同学看起来很好相处<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5730#       发表于 2025-1-2 23:28
+
+热搜第4
+<img src="https://p.sda1.dev/21/1d535c7f6dd6f7a358fde950b49b14c3/image.jpg" referrerpolicy="no-referrer">
+
+顺便这个也上了热搜<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7ed9960bf4735901ab8461dbbd89282a/image.jpg" referrerpolicy="no-referrer">
+

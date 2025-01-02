@@ -14128,3 +14128,14 @@ https://www.lovelive-anime.jp/news/01_4232.html</blockquote>
 感觉有点胖...........视角关系吗</blockquote>
 就是比立绘胖…但这已经是次要的了，这脸是完全不能看，我感觉比一百出头的那几个景品还差。
 
+
+*****
+
+####  adw667  
+##### 1378#       发表于 2025-1-2 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087966&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-1-2 17:56</a>
+
+就是比立绘胖…但这已经是次要的了，这脸是完全不能看，我感觉比一百出头的那几个景品还差。 ...</blockquote>
+我还说一对五六百的话还能接受，结果你跟我说一对2000？
+
