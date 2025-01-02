@@ -15139,3 +15139,23 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 道德上有问题。。。。
 
+
+*****
+
+####  木板春香  
+##### 5548#       发表于 2025-1-2 18:00
+
+重新刷了一遍13集的卖狗，情绪攒的很足了
+
+
+*****
+
+####  PDQ4  
+##### 5549#       发表于 2025-1-2 18:02
+
+看到漏油说1.1 1.2初祥睦祥端水
+
+说一个好玩的，目前角色出现的顺序，乐器序、live站位序、正式PV1、OP、ED，没有一个是重合的
+
+找规律找了半天发现没有规律，好像真的在端水<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
