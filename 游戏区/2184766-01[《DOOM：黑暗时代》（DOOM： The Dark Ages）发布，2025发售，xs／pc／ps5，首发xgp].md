@@ -65,3 +65,27 @@ shit，这是我第6666贴，doomguy别杀我
 ▪️ 这部前传是新时代 ...</blockquote>
 什么叫硬表面科幻题材？硬表面不是一种材质吗
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 167#       发表于 2025-1-2 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086350&amp;ptid=2184766" target="_blank">JOJO42 发表于 2025-1-2 14:46</a>
+叔叔家有位老哥参与了制作，在评论区透了点内容，真假就不好说了，简单归纳一下——
+
+▪️ 这部前传是新时代 ...</blockquote>
+永恒第一个长演示里ssg备弹还有48发来着，敌人进攻性也没那么哈人，结果跳票跳了五个月就直接面目全非了，这作也不好说
+
+*****
+
+####  JOJO42  
+##### 168#       发表于 2025-1-2 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67086447&amp;ptid=2184766" target="_blank">双刀少女 发表于 2025-1-2 14:58</a>
+
+什么叫硬表面科幻题材？硬表面不是一种材质吗</blockquote>
+他原话如此，我只是转述
+
+我理解是可能类似Mike Andrew Nash这种硬表面大佬参与过的那些作品的美术风格吧
+
