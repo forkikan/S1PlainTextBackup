@@ -9290,3 +9290,36 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 理想是道满+新伯爵
 
+
+*****
+
+####  森兰丸  
+##### 15961#       发表于 2025-1-2 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">花了差不多1小时嗑了2个金苹果刷狗粮本也只能给角色升2级....是真的挺操蛋的
+
+*****
+
+####  保罗赫伯特  
+##### 15962#       发表于 2025-1-2 21:23
+
+大成功概率翻倍远不如直接经验翻倍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  乾理央  
+##### 15963#       发表于 2025-1-2 21:52
+
+福袋旺吉娜+麻婆，算是踩了一半的雷吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+理想是道满+新伯爵
+
+*****
+
+####  希望之花  
+##### 15964#       发表于 2025-1-3 07:30
+
+福袋学姐+1，哎汗水，哎努力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还好柱子战后期都是用借来的学姐和月p，目前刚11绊
+

@@ -18285,3 +18285,12 @@ P站广告
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  海洋队手下mayo  
+##### 5869#       发表于 2025-1-3 07:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵有点像激进版的猫+爱音 觉得无聊和想吸引眼球这方面 这几句台词看过mygo肯定会觉得眼熟。不过她们采取的行动完全不同 这个对比挺有意思的
+但大喵老师自己可能又没有爱音他们那种对自己感情的坦率 等大家开始情绪爆发就轮到她吃瘪了 想看
+
