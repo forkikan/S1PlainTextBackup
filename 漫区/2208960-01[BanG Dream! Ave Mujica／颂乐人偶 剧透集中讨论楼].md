@@ -498,3 +498,14 @@ CGスーパーバイザー
 
 这帖子能不能改造用用？变成正常放送话数讨论贴？
 
+
+*****
+
+####  绫奈由仁子  
+##### 44#         楼主| 发表于 2025-1-2 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67083832&amp;ptid=2208960" target="_blank">结衣小比取 发表于 2025-1-2 10:06</a>
+
+这帖子能不能改造用用？变成正常放送话数讨论贴？</blockquote>
+有点犹豫是改造这栋还是重开一个正常放送进度楼，改造这栋楼的话第一页可能有些让人疑惑，似乎还是重新开好一点
+

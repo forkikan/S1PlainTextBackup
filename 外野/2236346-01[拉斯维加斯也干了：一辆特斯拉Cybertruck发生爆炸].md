@@ -397,3 +397,30 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 搞半天死的是自爆者
 
+
+*****
+
+####  oyss  
+##### 42#       发表于 2025-1-2 11:00
+
+警察都帮忙打广告.发布会上说车结实,酒店门都没炸坏.
+
+*****
+
+####  dear81  
+##### 43#       发表于 2025-1-2 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67083207&amp;ptid=2236346" target="_blank">Hyst3r1a 发表于 2025-1-2 08:49</a>
+马斯克的车炸YKW的楼</blockquote>
+ykw什么哏？
+
+*****
+
+####  东方定助  
+##### 44#       发表于 2025-1-2 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084370&amp;ptid=2236346" target="_blank">dear81 发表于 2025-1-2 11:02</a>
+
+ykw什么哏？</blockquote>
+ you know who，本来指作品《哈利波特》中的角色伏地魔（Lord Voldemort）。现在多被用来指代某个语境下没有明说，但大家都知道是谁的情况。
+

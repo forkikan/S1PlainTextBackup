@@ -5479,3 +5479,26 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 那有没有可能红高达才是一角驴所以才要被次代MS当做假想敌
 
+
+*****
+
+####  刺客ares  
+##### 1858#       发表于 2025-1-2 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084138&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-2 10:39</a>
+
+说实话，如果女主那台MS原型真是为了针对红高达设计出来的就多少有点离谱了，给一台在那个世界观浑身上下都 ...</blockquote>
+核平所罗门重创联邦军的一代机是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+红高达一眼对标一角驴的神棍机，GQX的Ω系统一眼对标NTD
+
+换算一下就是巴上帝0096挥手灭舰队后五年，联邦开发针对独角兽的新型机，上面搭载让巴上帝开不出绿色奇迹骨架的新装备，这么一想就不离谱了
+
+
+*****
+
+####  Toby_dak  
+##### 1859#       发表于 2025-1-2 11:00
+
+2代机标准是Movable Frame，不然的话还是RX-78延长线。
+
