@@ -9264,3 +9264,11 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 4号单抽不出就去碰青子福袋的路过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 15958#       发表于 2025-1-2 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">花了差不多1小时嗑了2个金苹果刷狗粮本也只能给角色升2级....是真的挺操蛋的
+

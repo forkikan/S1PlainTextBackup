@@ -15213,3 +15213,62 @@ https://x.com/wttn3tpkt/status/1874657757884010659?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 2025-1-2 20:22 上传
 
+
+*****
+
+####  御幸一也  
+##### 5554#       发表于 2025-1-2 20:31
+
+怎麼還有特別倒數和bgm
+
+
+*****
+
+####  御幸一也  
+##### 5555#       发表于 2025-1-2 20:36
+
+<img src="https://img.saraba1st.com/forum/202501/02/203559b19tu1kntkx86tu2.jpg" referrerpolicy="no-referrer">
+
+<strong>アニメ放送直前特番「Ave Mujica_ Ante Masquerade」 4-1 screenshot.jpg</strong> (273.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 20:35 上传
+
+*****
+
+####  堀内爱里衣  
+##### 5556#       发表于 2025-1-2 20:36
+
+<[strong>动画播出前特别节目「Ave Mujica: Ante Masquerade」</strong>](https://www.bilibili.com/video/BV1vX6EYDEWn/) <blockquote>本节目将穿插真人乐队Ave Mujica的LIVE影像及访谈，对新动画的世界观及看点进行介绍。
+
+并以Ave Mujica的发起人丰川祥子为焦点，对动画「BanG Dream! It's MyGO!!!!!」进行回顾。
+
+包含大量和角色、制作相关的幕后故事，还请千万别错过！
+
+…ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+动画将于1月2日22点开始播出：
+[https://www.bilibili.com/bangumi/play/ss73081](https://www.bilibili.com/bangumi/play/ss73081)
+
+#BanGDream# #AveMujica#</blockquote>
+[https://www.bilibili.com/video/BV1vX6EYDEWn/](https://www.bilibili.com/video/BV1vX6EYDEWn/)
+
+*****
+
+####  御景  
+##### 5557#       发表于 2025-1-2 20:37
+
+访谈太注水了
+
+f7d0f4e1dffe669d2584657c5c9cb974.jpeg
+(217.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202501/02/203711m1p3gwn1pfjjs3pj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
