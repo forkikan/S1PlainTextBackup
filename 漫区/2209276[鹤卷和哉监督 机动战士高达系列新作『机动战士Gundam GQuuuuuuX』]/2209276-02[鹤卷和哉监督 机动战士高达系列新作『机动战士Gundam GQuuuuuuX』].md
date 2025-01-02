@@ -5502,3 +5502,18 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 2代机标准是Movable Frame，不然的话还是RX-78延长线。
 
+
+*****
+
+####  纪寞  
+##### 1860#       发表于 2025-1-2 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084321&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-2 10:58</a>
+
+核平所罗门重创联邦军的一代机是吧
+
+红高达一眼对标一角驴的神棍机，GQX的Ω系统一眼对标NTD
+
+换算一下就是 ...</blockquote>
+目前红高达神棍就爆炸，但吉翁都能派扎古去追感觉又没多忌惮。另外红高达的爆炸我认为应该不是鸭子能主动触发的，我奶一个拉拉死在所罗门，鸭子精神力暴走才这样的，不然就他那个nt水平够呛，除非鹤卷对鸭子有什么误会。然后浮游炮是后面纪念拉拉才加上去。
+
