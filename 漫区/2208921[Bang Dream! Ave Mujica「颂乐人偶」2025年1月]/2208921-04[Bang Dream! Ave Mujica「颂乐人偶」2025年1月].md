@@ -14647,3 +14647,11 @@ asl剪辑还给了茜姨抬大腿特写，乐
 今晚就有母鸡卡第一集看了大家开不开心啊</blockquote>
 一想到本来今天出来后路人讨论祥子的惨，马上有拿着文字剧透的云观众跳出来攻击祥子，就忍不住轻哼起来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 5495#       发表于 2025-1-2 09:28
+
+丰川祥子，汝好无能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
