@@ -5690,3 +5690,24 @@ https://x.com/_take_oekaki/status/1874341396892754008
 高达自古以来就不是随随便便做一年一部能成功的，vgwx尝试年更失败之后每次新作都是乾坤一掷的感觉了，所以 ...</blockquote>
 拿铁血说事的可能是多少看出了点问题但是年纪不够大没见过更前面的事情。
 
+
+*****
+
+####  ナルバレック  
+##### 1878#       发表于 2025-1-2 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67087903&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-1-2 17:46</a>
+
+高达自古以来就不是随随便便做一年一部能成功的，vgwx尝试年更失败之后每次新作都是乾坤一掷的感觉了，所以 ...</blockquote>
+这四个里W还是在商业上取得巨大成功的，V和X算是惨败，而且V和G中间隔了年吧
+
+*****
+
+####  wasssf  
+##### 1879#       发表于 2025-1-2 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089538&amp;ptid=2209276" target="_blank">ナルバレック 发表于 2025-1-2 22:10</a>
+
+这四个里W还是在商业上取得巨大成功的，V和X算是惨败，而且V和G中间隔了年吧 ...</blockquote>
+没隔年，只是讨论的时候没有放在一起产生了错觉
+

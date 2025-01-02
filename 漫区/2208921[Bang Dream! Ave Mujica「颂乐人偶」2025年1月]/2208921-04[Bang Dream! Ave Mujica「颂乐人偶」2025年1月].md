@@ -15827,3 +15827,89 @@ B站现在码率就这样了，只要不阉割勉强能看
 
 这就开始吵了
 
+
+*****
+
+####  stygian  
+##### 5622#       发表于 2025-1-2 22:08
+
+神他妈第一话标题sub rosa
+
+*****
+
+####  御幸一也  
+##### 5623#       发表于 2025-1-2 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088990&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-2 20:50</a></blockquote>
+聽了原話了，這翻譯怎麼怪怪的
+
+結合前後文，我感覺這裡就是很簡單的想說祥子家的問題導致祥子很辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fmban  
+##### 5624#       发表于 2025-1-2 22:11
+
+小祥太中二了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 5625#       发表于 2025-1-2 22:12
+
+祥 移动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 5626#       发表于 2025-1-2 22:13
+
+言うなれば運命共同体
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 5627#       发表于 2025-1-2 22:14
+
+b 站这码率跟狗屎一样
+
+*****
+
+####  Nanachi  
+##### 5628#       发表于 2025-1-2 22:15
+
+是不是第一个第一集就需要大会员才能看的新番
+
+*****
+
+####  novalli  
+##### 5629#       发表于 2025-1-2 22:15
+
+B站竟然上了hdr，是真的么？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  帕林马哲理  
+##### 5630#       发表于 2025-1-2 22:15
+
+葬礼上木头人直接坐在祥子后面，这是非常近的亲戚啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，大概率是表姐妹。
+
+*****
+
+####  akiomn  
+##### 5631#       发表于 2025-1-2 22:15
+
+幼年祥子发带那边确认是双色了，之前我以为正面双色是上色有问题或者是环境光，但看了背面还是有色差
+
+*****
+
+####  一心而用  
+##### 5632#       发表于 2025-1-2 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67089444&amp;ptid=2208921" target="_blank">要楽奈 发表于 2025-1-2 22:00</a>
+欢迎来到，Ave Mujica的世界</blockquote>
+就你头像不对，快去换。
+
