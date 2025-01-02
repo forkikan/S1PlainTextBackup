@@ -504,3 +504,49 @@
 
 才第一集我不评价，等第七集我再下论断<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LangMa  
+##### 58#       发表于 2025-1-2 23:48
+
+从头爽到尾，看到演出爽，看到祥子老爸这么废物好爽，看到摘下人格面具好好爽
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  香雨香香  
+##### 59#       发表于 2025-1-2 23:50
+
+又到了我最爱的s1热门新番每周单集评分节目了，最后完结时拉曲线看投票人数和评分曲线变化一定很有趣吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 60#       发表于 2025-1-2 23:52
+
+路人其实早就有个很大疑惑，莫非音乐番的很多受众都是温室里的花朵，在我看来“前传”时期的祥子的“争议”不过如此，哪怕独角兽给出的回答不是家庭变故而是其他更牵强原因造成，但是祥子起码有“作恶”或者说退出的觉悟，这就够了，虽然最后依然有不小的概率回到对邦的饺子里去，但是痛苦是属于所有人的存在，用那句名言就是扣下扳机的人必须也有被杀的觉悟，我觉得真要论争议和讽刺，<strong>土下坐以及说出那句我是来结束乐队名言然后被光速自己打自己脸的爽女士比祥子可要小丑多了</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 61#       发表于 2025-1-2 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090391&amp;ptid=2236454" target="_blank">MuramasaSP 发表于 2025-1-2 23:22</a>
+
+有哪些s1单集评分过的动画啊，除了国家队。</blockquote>
+新版银河英雄传说第一季，水星的魔女
+
+
+*****
+
+####  xyion  
+##### 62#       发表于 2025-1-2 23:57
+
+无论是觉得节奏赶，还是担心收不回来，如果母鸡卡完结时，剧本整体的质与量对得起这个叙事节奏的话，就都不是问题，反之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这也是单集投票的醍醐味
+

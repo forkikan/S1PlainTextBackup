@@ -17006,3 +17006,118 @@ soyo视角睦就是标准贱女人，那边啥事都知道啥事都干了，这�
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  sanae  
+##### 5750#       发表于 2025-1-2 23:48
+
+看红温了，要是在工作中碰到喵梦这种人真是血压拉满了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉普拉斯  
+##### 5751#       发表于 2025-1-2 23:50
+
+会努力的
+
+<img src="https://img.saraba1st.com/forum/202501/02/235058tbtgm34xrxtg0wi1.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_750308033782105.jpg</strong> (100.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:50 上传
+
+*****
+
+####  3353764798  
+##### 5752#       发表于 2025-1-2 23:51
+
+工作中喵梦这种客户不是很多吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  鱼罐头2455  
+##### 5753#       发表于 2025-1-2 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090499&amp;ptid=2208921" target="_blank">海洋队手下mayo 发表于 2025-1-2 23:34</a>
+
+明明一直都很爱大家却说了最mean的话去切割的自爆攻击式自虐者大翔老师 （谁也没获得幸福这点）更痛了
+
+这 ...</blockquote>
+这么一看确实祥爹和祥确实很像，都会（自说自话的）用伤害他人的方式爱着他人<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 5754#       发表于 2025-1-2 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到热爱爽世视角的观众是这个样我就放心了
+
+*****
+
+####  三尖酸努努  
+##### 5755#       发表于 2025-1-2 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b233e0886ba436f012ab9174eb67b28a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 5756#       发表于 2025-1-2 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有爱音视角和猫视角看soyo啊？
+
+*****
+
+####  梅斯之围  
+##### 5757#       发表于 2025-1-2 23:53
+
+虽然不少人说第1集时间赶，但是可以默认观众都看了前作了，得把背景赶快交代完，让观众理解现在是个什么状态，然后尽快展开全新的故事。所以我觉得节奏赶点无伤大雅
+
+
+*****
+
+####  结衣小比取  
+##### 5758#       发表于 2025-1-2 23:54
+
+这个是逗号吗？
+<img src="https://s2.loli.net/2025/01/02/aI3jHWZlfcqPFkN.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 5759#       发表于 2025-1-2 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090641&amp;ptid=2208921" target="_blank">三尖酸努努 发表于 2025-1-2 23:52</a></blockquote>
+反了，是成为我的母亲吧<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 5760#       发表于 2025-1-2 23:55
+
+<img src="https://img.saraba1st.com/forum/202501/02/235505a6k655lrww7nkq2v.png" referrerpolicy="no-referrer">
+
+<strong>H(8L6}`~3@FN3~C7D3@3VLB.png</strong> (86.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-2 23:55 上传
+
+
+*****
+
+####  Aendst  
+##### 5761#       发表于 2025-1-2 23:56
+
+节奏我觉得还好，主要是信息量太大了，跑火车一样讲了一堆东西
+
+这个问题在之后（我个人体感）可能也存在，估计mujica动画可能一直都会是这种疾走的节奏了
+
+可能是我已经习惯了，感觉还好
+
