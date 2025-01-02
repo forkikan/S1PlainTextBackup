@@ -674,3 +674,15 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 这是给阿川上眼药了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネオグランゾン  
+##### 69#       发表于 2025-1-3 05:42
+
+ 本帖最后由 ネオグランゾン 于 2025-1-3 05:43 编辑 
+
+最新消息
+
+特斯拉里的那位死者在爆炸前就已经脑门中弹而死了，警察调查说是自己开枪自尽了。这就很有意思了
+
