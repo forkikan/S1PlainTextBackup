@@ -7449,3 +7449,13 @@ fsf能加的多了
 有理查，没有腓力，腓特烈和萨拉丁有点遗憾</blockquote>
 这三个都被理查在FSF提到过了好几次
 
+
+*****
+
+####  一心而用  
+##### 388#       发表于 2025-1-2 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67088130&amp;ptid=2086574" target="_blank">异界送 发表于 2025-1-2 18:20</a>
+为什么暗杀的招数对剑士不起作用啊?</blockquote>
+简单来说就是“他不是一个人”。
+

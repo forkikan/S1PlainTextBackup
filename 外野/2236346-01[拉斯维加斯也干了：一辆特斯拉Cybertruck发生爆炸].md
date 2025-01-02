@@ -656,3 +656,11 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一树小草  
+##### 67#       发表于 2025-1-2 19:42
+
+中国历史上有类似的故事么？参考下看看剧情<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
