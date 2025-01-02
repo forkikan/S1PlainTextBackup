@@ -16416,3 +16416,108 @@ B站这个清晰度不错啊
 
 椎名立希：演话剧的也配叫乐队？
 
+
+*****
+
+####  新HGCG  
+##### 5688#       发表于 2025-1-2 22:49
+
+别到最后祥爹的钱就是素妈骗走的
+
+这种烂活不会有吧
+
+*****
+
+####  影伴光生  
+##### 5689#       发表于 2025-1-2 22:50
+
+第一集看完的主要感受就是高压，鸡团自己的剧情节奏和回忆环节都快到窒息
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 5690#       发表于 2025-1-2 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090034&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-2 22:49</a>
+
+别到最后祥爹的钱就是素妈骗走的
+
+这种烂活不会有吧</blockquote>
+
+不会，如果这样祥子就要和素世不共戴天了……而且正经来说时间线也对不上，没这个可能
+
+*****
+
+####  Libartas  
+##### 5691#       发表于 2025-1-2 22:51
+
+<img src="https://p.sda1.dev/21/328c0d407dd4beee71f4a86747c773cf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">职业病犯了
+
+*****
+
+####  刑部姬真可爱  
+##### 5692#       发表于 2025-1-2 22:52
+
+ 本帖最后由 刑部姬真可爱 于 2025-1-2 22:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090020&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-2 22:48</a>
+
+椎名立希：演话剧的也配叫乐队？</blockquote>
+海铃：我没意见
+
+*****
+
+####  pokemon最爱  
+##### 5693#       发表于 2025-1-2 22:52
+
+这第一话真是劲大，好哇好哇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在这里预祝大祥老师的银河战舰成功启航，不要圣Anon排完卖狗团的雷后还要来帮忙排母鸡卡的雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 5694#       发表于 2025-1-2 22:53
+
+爱音再磨一磨撒撒娇灯还是会陪她去的，毕竟这俩关系早已不一般
+不过既然是mujica的剧情当然是对c团感情最深的素世在场最适合
+
+
+*****
+
+####  山ノ内花音  
+##### 5695#       发表于 2025-1-2 22:54
+
+我的saki酱啊 好可怜啊saki酱<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SorakadoAo  
+##### 5696#       发表于 2025-1-2 22:55
+
+太美味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要忍住不然一口气看完要等三个礼拜感觉会死的
+
+*****
+
+####  akiomn  
+##### 5697#       发表于 2025-1-2 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子真是祥爹亲生的，byd祥爹没意识到自己还有祥子，而祥子没意识到身边还有睦
+我真是服了这对父女
+
+*****
+
+####  山ノ内花音  
+##### 5698#       发表于 2025-1-2 22:55
+
+168亿不会被初华换成黄金放在岛上了吧
+
+*****
+
+####  Mikumiku831  
+##### 5699#       发表于 2025-1-2 22:56
+
+原来祥子老师一直是白祥 我哭死
+
