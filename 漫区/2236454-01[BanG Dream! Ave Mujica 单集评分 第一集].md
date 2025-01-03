@@ -1139,3 +1139,20 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 
 至于小祥没苦硬吃，不吃就不是小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cnlmaa  
+##### 121#       发表于 2025-1-3 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">白月光陷入淤泥拼命挣扎的桥段真是百看不厌，美味
+
+*****
+
+####  万书言  
+##### 122#       发表于 2025-1-3 14:53
+
+应该不是小祥打工养家吧，是老爹不希望祥子过来所以不给小祥经济上的支援。负责也不会赔钱，最多扫地出门，钱还是有的。小祥打工主要是为自己赚生活费。
+
+不过小祥初中时应该还没到16岁，在日本不算童工吗？
+

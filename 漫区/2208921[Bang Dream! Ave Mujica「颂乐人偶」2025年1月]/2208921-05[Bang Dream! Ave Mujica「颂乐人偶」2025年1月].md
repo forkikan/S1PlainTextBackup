@@ -716,3 +716,73 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 初华第一集的小表情真的是，对祥子的箭头太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 5984#       发表于 2025-1-3 14:48
+
+访谈说了睦加入鸡团是因为对祥子的愧疚，喵梦是为了成名，海铃纯雇佣兵，初华就是最纯粹的为了祥子，真正意义上的“只要是为了祥子，无论什么事初华都会去做的”。
+所以素世跪下来说的话根本没有打动祥子是因为已经有人做过了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 5985#       发表于 2025-1-3 14:51
+
+ 本帖最后由 江口夕 于 2025-1-3 14:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了祥爸这个情况到底算不算人渣，没当过凤凰男不是很理解
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厄神之息  
+##### 5986#       发表于 2025-1-3 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093674&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 11:30</a>
+
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊 ...</blockquote>
+  想多了，且不说ccc组了就半个月，里面的人感情有没有那么深。立希从始至终都压根不在乎除了灯以外的c团人的事。这个第一季就明说了，否则她找soyo对峙的时候也不会被soyo一句话给噎得无言以对。灯则是一直都认为c团解散是自己唱的不好的问题。甚至她还是被爱音一句“第一次失败，那下次做好不就行了吗”给劝回来的，她看到祥子又组乐队只会尊重祝福。真要说也就素世一个人会破防，毕竟在他视角就是祥子带着木子米溜了自己几个月，在小公园把自己狠狠羞辱以后，抱着最后的希望跟木撒娇似的问你觉得怎么样，以为木子米会灰心难过觉得可惜，结果木子米的答案是笑着说“太好了呢（你可算滚了）”然后转头这俩就自己组乐队去了。合着你俩不是不想组乐队，而是不想跟我组乐队。素世女士肺都气炸了。
+
+*****
+
+####  友情的结晶  
+##### 5987#       发表于 2025-1-3 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095167&amp;ptid=2208921" target="_blank">枫林不见 发表于 2025-1-3 14:32</a>
+丰川祥子这就是铁铁的直女撩姬天打雷劈了</blockquote>
+祥子只能说组建crychic前就刚经历丧母之痛，加上后面一连串打击和高压没有精力谈恋爱。但是你看她在舞台剧的那些小动作，撩起人来一点也不含糊。属于是心中的女同无意识地表现在舞台上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等祥子有余裕了就不会显得这么木头了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  liu461  
+##### 5988#       发表于 2025-1-3 14:54
+
+你可以理解为罗森晚上十点的打折便当<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱祥男科  
+##### 5989#       发表于 2025-1-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095329&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-3 14:51</a>
+问题来了祥爸这个情况到底算不算人渣，没当过凤凰男不是很理解
+
+—— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
+算真男主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+参考水魔的挑染哥
+
+*****
+
+####  qjw114514  
+##### 5990#       发表于 2025-1-3 14:57
+
+祥子好像很中意小睦的头发，出道那场演出就又是梳又是撩的，这次第一集接着撩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

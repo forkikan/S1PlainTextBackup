@@ -6017,3 +6017,14 @@ pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达
 pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达是想用更"温和"的方式制住女主，估计这次打完双 ...</blockquote>
 想温和一下直接掉了两个bit，牢修要是没组织支撑，看着修理费会眼前一黑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 1910#       发表于 2025-1-3 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095285&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-3 14:46</a>
+
+想温和一下直接掉了两个bit，牢修要是没组织支撑，看着修理费会眼前一黑吗 ...</blockquote>
+能在一个殖民卫星内藏起一架高达，甚至出现离开都没人能阻止，以一个看起来16、7岁的来看一个人应该做不到这点，估计是卫星内有内应，甚至能给他安排出去和回来的隐秘通道。但是浮游炮我估计出卫星前会一直维持最多6个了，能给红高达提供的估计只有补充燃料之类的，补件可能就别想了。
+
