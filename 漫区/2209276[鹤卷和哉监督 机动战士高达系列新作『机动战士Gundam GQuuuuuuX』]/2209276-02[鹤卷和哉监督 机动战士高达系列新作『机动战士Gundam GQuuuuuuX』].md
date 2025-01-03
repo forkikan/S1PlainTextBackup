@@ -6483,3 +6483,27 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 设定上的平凡女高中生哪来的自信呢？
 
+
+*****
+
+####  ProAgressive  
+##### 1954#       发表于 2025-1-3 22:22
+
+这个三人组感觉会发展成一人黑化，尼娅安线战争难民被仇恨吞噬开MA复仇/修司线暴力反抗化身马夫蒂搞袭击，最后被女主揍一顿和解了一起包饺子迈向新时代
+
+*****
+
+####  刺客ares  
+##### 1955#       发表于 2025-1-3 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098565&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-3 22:13</a>
+
+不知道女主家庭状态如何，可能是想自己打工赚钱去地球看海的叛逆小姐姐一枚吖 ...</blockquote>
+你别说，UC主角的家人就朱总没怎么表吧
+
+其余的骡子鸭子卡缪巴上帝林有为在剧内都是有交代的
+
+玛秋好像是一个高中女生在side6独居出租屋的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+妮娅安和修司更别说了，感觉两个铁孤儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
