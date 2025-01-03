@@ -418,3 +418,16 @@ Screenshot_20250103_185119.jpg
 
 这很奥提斯……
 
+
+*****
+
+####  Jamaisvu  
+##### 1043#       发表于 2025-1-3 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098004&amp;ptid=2120922" target="_blank">salic428 发表于 2025-1-3 20:40</a>
+
+关于魔弹EGO我当一回预言家：
+
+首先显然这么长的动画（感觉都比三四五章关底的罪人EGO演出长了）怎么想也不 ...</blockquote>
+对不起，点错了，能不能回我一下把分加回去<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
