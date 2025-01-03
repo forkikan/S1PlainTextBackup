@@ -1270,3 +1270,23 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 
 经手8个亿rmb的商业诈骗到底是个啥感觉，99.99%的网友都不知道的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 132#       发表于 2025-1-3 17:39
+
+苦大仇深和乐队的中二设定我是真的不太吃这套，这个团的五个人感觉确实也没太大意思，随便看看了
+
+*****
+
+####  斑驳的阴影  
+##### 133#       发表于 2025-1-3 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+不是欠债吧，是造成了损失自己没脸干下去了，看起来原本祥子外公就不待见他
+

@@ -9371,3 +9371,29 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 但是突入终章的时间交给玩家这个说法，感觉好像推进终章会导致游戏环境发生某些不可逆的变化？
 
+
+*****
+
+####  alucardcz  
+##### 15970#       发表于 2025-1-3 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096763&amp;ptid=2084912" target="_blank">marxel 发表于 2025-1-3 17:36</a>
+
+这话的感觉是，25年肯定会进终章，但终章也不是一个时间点而是一段
+
+然后11周年也还会有，意味着不会说25 ...</blockquote>
+终章上 中 下
+
+终章完结篇 前 中 后
+
+终章完结篇 THE LAST ATTACK 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样？
+
+*****
+
+####  xunit  
+##### 15971#       发表于 2025-1-3 17:41
+
+最后一战之战中战之战了再战
+
