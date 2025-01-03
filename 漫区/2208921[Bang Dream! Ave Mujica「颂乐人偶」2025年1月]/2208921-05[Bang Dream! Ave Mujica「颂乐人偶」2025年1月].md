@@ -1174,3 +1174,22 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 主唱是星星，而恒星的最终归宿就是变成黑洞</blockquote>
 要够大才会变黑洞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6025#       发表于 2025-1-3 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096658&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-3 17:22</a>
+
+还真背负丰川祥子人生了</blockquote>
+高尾奏音就是三次元的白祥本祥。
+
+
+*****
+
+####  sauron.j  
+##### 6026#       发表于 2025-1-3 18:21
+
+的确现在这个炸只是小炸，一个加大码的爱音和一个节奏吉他。等后面二当家和主唱炸了才是大爆
+
