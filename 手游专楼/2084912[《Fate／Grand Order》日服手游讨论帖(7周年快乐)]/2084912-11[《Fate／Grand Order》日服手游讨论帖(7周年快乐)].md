@@ -9429,3 +9429,14 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 然后11周年也还会有，意味着不会说25 ...</blockquote>
 突入终章那个没啥特别的，第一部也有特意搞个玩家大型联欢，但说白了啥时候进终章还是只能看玩家的个人想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 15975#       发表于 2025-1-3 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097593&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-1-3 19:33</a>
+
+突入终章那个没啥特别的，第一部也有特意搞个玩家大型联欢，但说白了啥时候进终章还是只能看玩家的个人想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说的难道不是进了之后能不能通吗  打一半噔噔咚 也算是今年进终章
+
