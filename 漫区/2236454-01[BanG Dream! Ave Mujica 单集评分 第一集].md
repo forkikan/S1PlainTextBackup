@@ -1567,3 +1567,53 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 第一集就摘面具有点没想到，但如果当作半年番的13集感觉也没问题
 
+
+*****
+
+####  KokutouMikiya  
+##### 161#       发表于 2025-1-4 00:07
+
+为啥是十五年，上一个是？
+
+*****
+
+####  Linkwjj  
+##### 162#       发表于 2025-1-4 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092182&amp;ptid=2236454" target="_blank">废都刽子手 发表于 2025-1-3 09:02</a>
+
++1 对我来说，这集问题在并没有很好的回答祥子为啥要搞avemujica这个团</blockquote>
+靠搞音乐出人头地呗，家里需要经济支撑，不可能慢慢把C团那种过家家团搞出道，所以直接找强力团员直接商业出道
+
+
+*****
+
+####  Linkwjj  
+##### 163#       发表于 2025-1-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093152&amp;ptid=2236454" target="_blank">哈曼的YY 发表于 2025-1-3 10:43</a>
+
+当初看剧透就觉得没写祥老师从无法兼顾crychic到可以操办母鸡卡的转变的原因 总不能是打工赚钱了吧 都说杯 ...</blockquote>
+C团是玩票，只有支出没有收入，所以要打工，所以无法兼顾
+
+M团是正经出道，是赚钱的，就不用再打工了
+
+*****
+
+####  木板春香  
+##### 164#       发表于 2025-1-4 00:13
+
+09年还大女主？那不就是凉宫春日！总不能是战场原黒仪，平泽唯也算厉害，也不知道百合标准的大女主是谁了，炮姐？
+
+*****
+
+####  Linkwjj  
+##### 165#       发表于 2025-1-4 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094348&amp;ptid=2236454" target="_blank">zzf111 发表于 2025-1-3 12:55</a>
+
+主角好抗压啊，看着像会嗷的一声崩了然后飞人的类型
+
+就是不能理解为什么要和c团的人一刀两断，挖几个也不碍 ...</blockquote>
+C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
