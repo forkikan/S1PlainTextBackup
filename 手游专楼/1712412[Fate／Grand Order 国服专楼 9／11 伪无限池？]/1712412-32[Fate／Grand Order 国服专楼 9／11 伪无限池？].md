@@ -1206,3 +1206,26 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  marxel  
+##### 46931#       发表于 2025-1-3 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092051&amp;ptid=1712412" target="_blank">Kon-El 发表于 2025-1-3 08:44</a>
+
+奇怪了，客户端更新之后fga就不能正常放技能了
+
+—— 来自 vivo V1990A, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+说明覆盖安装坏了，这种建议卸载重装
+
+
+*****
+
+####  Kon-El  
+##### 46932#       发表于 2025-1-3 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092225&amp;ptid=1712412" target="_blank">marxel 发表于 2025-1-3 09:06</a>
+说明覆盖安装坏了，这种建议卸载重装</blockquote>
+感谢，我试试
+
