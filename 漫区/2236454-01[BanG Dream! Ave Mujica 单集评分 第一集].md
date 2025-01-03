@@ -1500,3 +1500,26 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 亲生的
 
+
+*****
+
+####  plazum  
+##### 154#       发表于 2025-1-3 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097843&amp;ptid=2236454" target="_blank">AveMujica 发表于 2025-1-3 20:11</a>
+
+史上最狂是武士道自己营销的营销词
+
+十五年来自某位看完全集的舅舅“十五年未有之大女主”
+
+ ...</blockquote>
+看完全集？？？！！！
+
+
+*****
+
+####  稀勢のささ  
+##### 155#       发表于 2025-1-3 21:52
+
+这母鸡卡组了个银河战舰，结果大部分部件都不用纯靠硬实力最速武道馆的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

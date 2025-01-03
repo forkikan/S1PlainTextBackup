@@ -6351,3 +6351,70 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 现在就喜欢精神有问题的傲娇。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1941#       发表于 2025-1-3 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098220&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-3 21:23</a>
+
+那我认为修司一开始就知道女主那台ms原型是升重高达是完全可能的，而且从头部被完全替换掉，可能是在战斗 ...</blockquote>
+女主怎么被打黑拳的选上也是很迷，nt特化机是随便路边拉来一个JK就能开的吗
+
+看台词，大姐头在女主上机之前根本不知道女主是nt
+
+流出的机设部分可能会稍有改动，但文字设定和简介统一率很高，应该是不会大改了，也就是说阿尔法杀手和升重高达都是剧内设定，那GQX的来历也不清楚了，这不是没背景的非法组织能随便搞到的机体
+
+*****
+
+####  RE㐅ia  
+##### 1942#       发表于 2025-1-3 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098314&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-3 21:37</a>
+
+新剧场版是大赢两部，大赢一部，轮到感人大结局香党寻思怎么都该我赢了吧
+
+结果 ...</blockquote>
+我当时刚从炮s出来觉醒了傲娇控的属性所以看破的时候还是香党。这些年渐渐的发觉了三无的好，重看的时候开始关注丽的戏份又是别样的体验<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 1943#       发表于 2025-1-3 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098341&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-3 21:39</a>
+
+当年就好三无这口，喜欢丽，年龄还小不懂傲娇。后来突然懂了傲娇的好，喜欢香，这些年能明显感觉到香的比重 ...</blockquote>
+艹怎么跟我完全相反
+
+*****
+
+####  RE㐅ia  
+##### 1944#       发表于 2025-1-3 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098395&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-3 21:47</a>
+
+女主怎么被打黑拳的选上也是很迷，nt特化机是随便路边拉来一个JK就能开的吗
+
+看台词，大姐头在女主上机之 ...</blockquote>
+感觉像是尼雅安遇到困难了然后女主见义勇为帮着去解围结果就纠缠上了
+
+
+*****
+
+####  wasssf  
+##### 1945#       发表于 2025-1-3 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098088&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-3 20:57</a>
+
+卡迪公不是富野版罗夏吗，拿来批判的，结果意外有人气</blockquote>
+我觉得就是光头嘴替啊，批判了一点但不多，类似夏亚
+
+*****
+
+####  PascalLefèvre  
+##### 1946#       发表于 2025-1-3 21:57
+
+从最早的时候看动画就喜欢安安静静的角色<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，可能和小时候必须躲着爹妈偷偷看有关（？
+

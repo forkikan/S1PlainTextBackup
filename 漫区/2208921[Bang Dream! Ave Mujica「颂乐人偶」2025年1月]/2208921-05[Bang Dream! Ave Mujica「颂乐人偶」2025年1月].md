@@ -1550,3 +1550,47 @@ c团回忆部分，吉他睦对灯立希soyo都有夸赞部分，唯独对祥子
 刚刚又看了一遍第一话，睦这个“移动”会不会是在复述老师的话？
 <img src="https://p.sda1.dev/21/e214335771edd3c73b6db702e2232f12/睦移动.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银酒监武  
+##### 6060#       发表于 2025-1-3 21:46
+
+感觉网友的两周不熟乐队分析和企划信息还是矛盾：如果c团真不重要的话，祥子干嘛哭那么惨？访谈的时候为啥老提呢？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  新HGCG  
+##### 6061#       发表于 2025-1-3 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098327&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-3 21:38</a>
+
+刚刚又看了一遍第一话，睦这个“移动”会不会是在复述老师的话？</blockquote>
+这个“移動”可以看成校园用语，“换课堂”的意思
+
+*****
+
+####  贰臣  
+##### 6062#       发表于 2025-1-3 21:50
+
+不知道为啥这么多人盯着移动不放，以前没看过别的校园番吗，像各种换教室的时候一般都是直接说的移动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  66367749  
+##### 6063#       发表于 2025-1-3 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098327&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-3 21:38</a>
+刚刚又看了一遍第一话，睦这个“移动”会不会是在复述老师的话？</blockquote>
+这个还有别的理解吗？
+
+*****
+
+####  山ノ内花音  
+##### 6064#       发表于 2025-1-3 21:56
+
+正常应该说移動しよう吧
+
