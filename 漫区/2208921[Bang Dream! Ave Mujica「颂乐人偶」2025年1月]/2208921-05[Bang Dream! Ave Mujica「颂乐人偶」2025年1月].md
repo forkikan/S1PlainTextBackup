@@ -1099,3 +1099,11 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 网友以前都说灯是重力源黑洞 这下访谈里真出来一个黑洞<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 6018#       发表于 2025-1-3 16:40
+
+主唱是星星，而恒星的最终归宿就是变成黑洞<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
