@@ -1658,3 +1658,11 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 只有我觉得这是家族故意搞祥爸导演的一出左手倒右手扣黑锅么？赘婿常见桥段 ...</blockquote>
 女儿身体不好，去世后把赘婿赶出去，孙女变养女，延续了血脉又把继承权捏在自己信任的人手里，有动机，但不够邦邦
 
+
+*****
+
+####  PascalLefèvre  
+##### 170#       发表于 2025-1-4 04:33
+
+炮姐根本没有成为大女主的基础条件吧，在魔禁这种神仙打架的世界观里<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
