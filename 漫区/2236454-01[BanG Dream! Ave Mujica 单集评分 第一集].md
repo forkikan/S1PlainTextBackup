@@ -915,3 +915,14 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 
 —— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  暴走的包子  
+##### 99#       发表于 2025-1-3 09:19
+
+之前看剧透感觉很爆，看了第一集感觉有点平淡，难道是阈值拉高了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+只能是0，+0.5给祥子吧，确实不容易
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

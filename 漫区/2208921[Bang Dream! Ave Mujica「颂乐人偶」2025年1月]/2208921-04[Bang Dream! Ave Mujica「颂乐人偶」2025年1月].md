@@ -18600,3 +18600,52 @@ KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
 可惜因为OP砍了长度，只有3分钟不到() ...</blockquote>
 不是4分多钟吗
 
+
+*****
+
+####  紫苑寺美琴  
+##### 5900#       发表于 2025-1-3 09:15
+
+搞错把甜甜圈女士的名字记成了sumimi了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5901#       发表于 2025-1-3 09:15
+
+女人指猫
+<img src="https://p.sda1.dev/21/3e9d4a053bf829b37fc83428cd53ec2c/QQ图片20250103091213.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 5902#       发表于 2025-1-3 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092303&amp;ptid=2208921" target="_blank">紫苑寺美琴 发表于 2025-1-3 09:15</a>
+
+搞错把甜甜圈女士的名字记成了sumimi了</blockquote>
+群里还见过把甜甜圈女士的姓记成反田的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 纯田まな| + 1|对的对的|
+
+查看全部评分
+
+*****
+
+####  ddy2811  
+##### 5903#       发表于 2025-1-3 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091296&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-3 01:29</a>
+
+soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，看来爱音 先生 的治疗相当成功啊 ...</blockquote>
+soyo其实是非常爆炸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

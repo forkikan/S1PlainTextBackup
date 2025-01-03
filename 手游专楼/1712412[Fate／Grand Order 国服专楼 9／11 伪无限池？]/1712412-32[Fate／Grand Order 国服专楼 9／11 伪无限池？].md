@@ -1229,3 +1229,15 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 说明覆盖安装坏了，这种建议卸载重装</blockquote>
 感谢，我试试
 
+
+*****
+
+####  Kon-El  
+##### 46933#       发表于 2025-1-3 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092225&amp;ptid=1712412" target="_blank">marxel 发表于 2025-1-3 09:06</a>
+说明覆盖安装坏了，这种建议卸载重装</blockquote>
+把客户端删了重装还是不行，设置好脚本之后，到放技能的时候就会点到取消导致技能放不出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
