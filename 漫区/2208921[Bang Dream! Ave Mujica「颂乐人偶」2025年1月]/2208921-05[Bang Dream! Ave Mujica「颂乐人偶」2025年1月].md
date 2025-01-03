@@ -1854,3 +1854,21 @@ Have a little sin, so that I can recognize you among the angels.
 
 看了老外开黑，大家看到祥子说素世是个和善的人嘴角都翘起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  试制甲炮  
+##### 6087#       发表于 2025-1-4 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099293&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-4 01:09</a>
+
+看了老外开黑，大家看到祥子说素世是个和善的人嘴角都翘起来了</blockquote>
+讲道理长期素食女士确实是很和善一人（毕竟之前是极端的讨好型人格）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，之所以闹成后来那样固然是命运使然，祥子你自己也得好好检讨一下自己。
+
+*****
+
+####  试制甲炮  
+##### 6088#       发表于 2025-1-4 01:47
+
+这个点叔叔那边还显示有3000号人正在看母鸡卡第一集...
+
