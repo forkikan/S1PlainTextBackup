@@ -18302,3 +18302,13 @@ P站广告
 
 等后面就是大喵露出pv和倒计时的表情:啊我草队友怎么又疯了啊
 
+
+*****
+
+####  桜庭千景  
+##### 5871#       发表于 2025-1-3 07:50
+
+等队友真爆了说不定就是轮流爱猫
+
+然后大猫是“祥子救我呀”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
