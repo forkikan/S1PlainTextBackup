@@ -596,3 +596,21 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Sylpheed  
+##### 18154#       发表于 2025-1-3 09:36
+
+150w3+1的风拳，勉强能接受，手感也没差人偶连点多少。再来个站桩超人能到3+0就好了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  洛克萨斯  
+##### 18155#       发表于 2025-1-3 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">五位已实装的天司角色只有一个不是gw满分
+

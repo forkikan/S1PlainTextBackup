@@ -18665,3 +18665,27 @@ soyo其实是非常爆炸的<img src="https://static.saraba1st.com/image/smiley/
 
 soyo还会去学校堵门吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 5906#       发表于 2025-1-3 09:42
+
+我靠，母鸡卡怎么有hdr的选项，之前在b站看番都没注意到有这个
+
+*****
+
+####  sheshiro  
+##### 5907#       发表于 2025-1-3 09:45
+
+封印解除！
+
+歌唱得怎么样无所谓，求求你们不要再把蕾丝胖次挂在半边脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 5908#       发表于 2025-1-3 09:45
+
+看完web放送顺带把枪版也看了，等web出了再看一遍。爆！
+
