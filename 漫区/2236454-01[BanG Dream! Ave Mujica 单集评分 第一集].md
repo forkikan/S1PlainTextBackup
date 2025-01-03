@@ -1456,3 +1456,15 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 某种意义上算是被资本主义剧透了
 
+
+*****
+
+####  kongxian  
+##### 150#       发表于 2025-1-3 20:40
+
+<blockquote>屑屑代沟尼亚 发表于 2025-1-3 19:57
+对刚死了妈没多久的祥子说以后就当没有你爹了这种话已经够过分了
+
+估计走的时候就已经打算跟丰川家剪切线 ...</blockquote>
+这个确实是认为缘由，是我老登僵化利益不够共情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

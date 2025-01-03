@@ -1501,3 +1501,24 @@ Disruption已经被提过好几次，可能是对照组，用来说明海铃为�
 初华对祥子……目前看真是黑洞
 祥子真是有福啊，摊上这俩个重量级青梅
 
+
+*****
+
+####  NODY  
+##### 6055#       发表于 2025-1-3 20:41
+
+**这个考据挺厉害的，都没注意到OP这么多0th要素
+[https://www.youtube.com/watch?v=wyqiNI2tz1U](https://www.youtube.com/watch?v=wyqiNI2tz1U)
+
+*****
+
+####  凝滞雪雾  
+##### 6056#       发表于 2025-1-3 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095577&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-1-3 15:13</a>
+
+下面那些人都没解释到最核心的一点
+
+拼好饭 十分难吃 勺子质量十分差 往往还送一瓶不知道什么野鸡牌子的饮 ...</blockquote>
+有的筷子还有毛刺。
+
