@@ -2848,3 +2848,15 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 昨天看了下我东迷1的存档还停留在第二章（2017年，坑了好久啊），在思索要不要补一下
 
+
+*****
+
+####  宛若青空  
+##### 7378#       发表于 2025-1-3 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097192&amp;ptid=2160194" target="_blank">TheOccuria 发表于 2025-1-3 18:33</a>
+说到东迷这游戏2代和1的故事有关联吗
+
+昨天看了下我东迷1的存档还停留在第二章（2017年，坑了好久啊），在 ...</blockquote>
+疑似主人公是1代男主的爷爷，我也还没玩发售前肯定要补一下了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
