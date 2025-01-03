@@ -6298,3 +6298,32 @@ engage手游的IF剧情里鸭子提前出场帮哈曼平定格雷米叛乱，事
 突然好奇eva当年香和丽有二三番位之争吗</blockquote>
 丽当年旧tv番位和人气都是铁女一，香香打不了一点，新剧场版出来丽的重要性逐步下降，香党才抬头
 
+
+*****
+
+####  猪突猛进R  
+##### 1936#       发表于 2025-1-3 21:20
+
+香党在过去势力就不小啊，旧剧场版结尾明日香不是和真嗣在一起么，丽党输得只剩个大头。
+
+反倒是新剧场版，丽党和香党都被扇了一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 1937#       发表于 2025-1-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098147&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-3 21:09</a>
+
+开发代号都叫阿尔法杀手了，应该是没跑了</blockquote>
+那我认为修司一开始就知道女主那台ms原型是升重高达是完全可能的，而且从头部被完全替换掉，可能是在战斗中被红高达完全破坏头部后的升重高达流入side6后改修来的。
+
+我再突发奇想点的话就是修司还认识g夸克斯原型升重高达的前驾驶员，在和升重高达的战斗中红高达击毁升重的头部并捅驾驶舱杀死了该驾驶员。然后女主的黑拳组织女领队是前吉翁军官，从红高达与升重战斗后离开吉翁并保下被毁坏的该升重高达，然后让女主驾驶g夸克斯是因为觉得女主气质像前驾驶员（
+
+*****
+
+####  Sliurus  
+##### 1938#       发表于 2025-1-3 21:24
+
+TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

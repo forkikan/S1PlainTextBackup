@@ -2901,3 +2901,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 刚来，最近有什么新消息</blockquote>
 至少得到26年才有下一作
 
+
+*****
+
+####  defer  
+##### 7383#       发表于 2025-1-3 21:24
+
+黎2用了10个人，一定比4个人的伊苏8好2.5倍吧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+要我说人越多越糟，编剧这种分工作业需要很多沟通成本的岗位，核心人员也就那么几个。多出来都是批量制造马桶给大伙通的。
+
