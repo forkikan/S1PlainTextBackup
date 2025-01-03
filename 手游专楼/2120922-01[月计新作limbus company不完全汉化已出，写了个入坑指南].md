@@ -431,3 +431,30 @@ Screenshot_20250103_185119.jpg
 首先显然这么长的动画（感觉都比三四五章关底的罪人EGO演出长了）怎么想也不 ...</blockquote>
 对不起，点错了，能不能回我一下把分加回去<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 1044#       发表于 2025-1-3 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098087&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2025-1-3 20:57</a>
+
+对不起，点错了，能不能回我一下把分加回去</blockquote>
+没关系（笑）
+
+不过这里有一个问题没法解释，就是如果是同化EGO的话是类似侵蚀那样的有站姿受伤动画的，不知道为什么这次PV没有放出来（当然也有可能就只是藏着）
+
+又看了一遍PV以后我还是确信它不应该需要魔弹奥的魔弹才能决定是第几发子弹
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jamaisvu| + 2|多谢 ！！！|
+
+查看全部评分
+

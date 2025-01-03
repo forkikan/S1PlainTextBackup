@@ -1468,3 +1468,35 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 估计走的时候就已经打算跟丰川家剪切线 ...</blockquote>
 这个确实是认为缘由，是我老登僵化利益不够共情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舌怪  
+##### 151#       发表于 2025-1-3 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096928&amp;ptid=2236454" target="_blank">木板春香 发表于 2025-1-3 17:56</a>
+
+决策失误使得公司遭受诈骗，损失高达168亿日元，后续离开公司，并没有要祥爹偿还的意思。  这段信息还是要 ...</blockquote>
+我觉得为了方便某些网友理解，“投资星鸣特攻血亏”的说法还真有必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 152#       发表于 2025-1-3 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098123&amp;ptid=2236454" target="_blank">舌怪 发表于 2025-1-3 21:06</a>
+
+我觉得为了方便某些网友理解，“投资星鸣特攻血亏”的说法还真有必要</blockquote>
+看完第一集还觉得要去祥子替父亲还168亿的，你说这个他也不懂吧！
+
+*****
+
+####  T7imal  
+##### 153#       发表于 2025-1-3 21:09
+
+祥子：我要切割Crychic
+
+祥爹：我要切割祥子
+
+亲生的
+
