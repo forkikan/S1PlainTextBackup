@@ -18312,3 +18312,41 @@ P站广告
 
 然后大猫是“祥子救我呀”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名津流  
+##### 5872#       发表于 2025-1-3 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091079&amp;ptid=2208921" target="_blank">sdeplee 发表于 2025-1-3 00:47</a>
+
+紫色短发，难绷假面（动捕），倭寇担当，有点媚劲</blockquote>
+基本不怎么看V，好奇这说的是哪位？什么事件？
+
+*****
+
+####  pzk  
+##### 5873#       发表于 2025-1-3 07:59
+
+我还是没想通，祥子有必要直接离家出走去陪老爸，然后立刻开始打零工吗？这中间的发展是不是太丝滑了一点
+
+
+*****
+
+####  苏修  
+##### 5874#       发表于 2025-1-3 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091786&amp;ptid=2208921" target="_blank">pzk 发表于 2025-1-3 07:59</a>
+我还是没想通，祥子有必要直接离家出走去陪老爸，然后立刻开始打零工吗？这中间的发展是不是太丝滑了一点 ...</blockquote>
+妈死了就剩爹了，再不管爹双亲就全死了
+
+*****
+
+####  小小雪空  
+##### 5875#       发表于 2025-1-3 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091776&amp;ptid=2208921" target="_blank">名津流 发表于 2025-1-3 07:57</a>
+
+基本不怎么看V，好奇这说的是哪位？什么事件？</blockquote>
+应该是指asoul，具体是指什么，我就不知道了……
+
