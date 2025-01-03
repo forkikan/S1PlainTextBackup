@@ -5751,3 +5751,21 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 高达op欺诈的确实少
 
+
+*****
+
+####  Gysumitka  
+##### 1884#       发表于 2025-1-3 10:57
+
+【特集】スタジオカラー×サンライズの「機動戦士Gundam GQuuuuuuX（ジークアクス）」はどのようなアニメになるか？　劇場公開に先がけ期待を語ろう【年始特集】 - GAME Watch
+https://game.watch.impress.co.jp/docs/feature/1650545.html
+宣传通稿，车轱辘话加一点边角料<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  砂雪  
+##### 1885#       发表于 2025-1-3 11:02
+
+17号上映的是和剧场版一个形式，在上映周期内直接去在播的电影院买票就行吗？打算去看，但17号当天部门年会不能请假，最早18号才能到日本…
+

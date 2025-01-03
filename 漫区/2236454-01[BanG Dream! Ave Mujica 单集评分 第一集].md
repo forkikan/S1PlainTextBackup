@@ -984,3 +984,23 @@ mygo团成员和祥子的明暗滤镜对比也很有趣
 
 有人猜测和飞鸟山之战前祥老师回了趟大宅有关系 和外公谈判之类的
 
+
+*****
+
+####  舌怪  
+##### 106#       发表于 2025-1-3 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093152&amp;ptid=2236454" target="_blank">哈曼的YY 发表于 2025-1-3 10:43</a>
+
+当初看剧透就觉得没写祥老师从无法兼顾crychic到可以操办母鸡卡的转变的原因 总不能是打工赚钱了吧 都说杯 ...</blockquote>
+这么说的话倒不用担心soyorin重新复辟了，倒是可以继续黑化<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">甚至要对邦都有动机了吖
+
+*****
+
+####  alialex  
+##### 107#       发表于 2025-1-3 11:05
+
+无法兼顾crychic是因为要打工赚钱
+
+操办母鸡卡本身就是可以赚大钱的买卖不需要打工了
+
