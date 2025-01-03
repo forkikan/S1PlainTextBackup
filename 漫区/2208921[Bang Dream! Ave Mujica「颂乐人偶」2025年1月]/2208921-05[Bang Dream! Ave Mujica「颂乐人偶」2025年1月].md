@@ -700,3 +700,19 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 为什么要调侃一个独立自强的人生活窘迫……不是很能理解</blockquote>
 经济窘迫吧。
 
+
+*****
+
+####  一心而用  
+##### 5982#       发表于 2025-1-3 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095024&amp;ptid=2208921" target="_blank">挺好的 发表于 2025-1-3 14:18</a></blockquote>
+这里初华有个非常明显的大喘气，明显是被祥子这句“把你们的余生交给我”震到了。
+
+*****
+
+####  qjw114514  
+##### 5983#       发表于 2025-1-3 14:42
+
+初华第一集的小表情真的是，对祥子的箭头太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

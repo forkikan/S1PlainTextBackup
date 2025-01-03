@@ -5976,3 +5976,44 @@ pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达
 
 牢修倒是一眼会下死手的那个，可能也就对女主控制一下火力
 
+
+*****
+
+####  ティグル  
+##### 1906#       发表于 2025-1-3 14:43
+
+要说老头的女性主角作品也绕不开BP吧，虽然国内口碑崩了（也确实太电波了）但是好歹在英文圈挽了下尊
+
+*****
+
+####  wasssf  
+##### 1907#       发表于 2025-1-3 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095259&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-3 14:43</a>
+
+要说老头的女性主角作品也绕不开BP吧，虽然国内口碑崩了（也确实太电波了）但是好歹在英文圈挽了下尊
+
+ ...</blockquote>
+被称作braindamaged挽尊吗
+
+*****
+
+####  RE㐅ia  
+##### 1908#       发表于 2025-1-3 14:46
+
+<blockquote>ティグル 发表于 2025-1-3 14:43
+要说老头的女性主角作品也绕不开BP吧，虽然国内口碑崩了（也确实太电波了）但是好歹在英文圈挽了下尊
+
+ ...</blockquote>
+我咋感觉是反的？印象里bp在国外反响也不是很好
+
+*****
+
+####  刺客ares  
+##### 1909#       发表于 2025-1-3 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095059&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-3 14:22</a>
+
+pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达是想用更"温和"的方式制住女主，估计这次打完双 ...</blockquote>
+想温和一下直接掉了两个bit，牢修要是没组织支撑，看着修理费会眼前一黑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
