@@ -6507,3 +6507,19 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 妮娅安和修司更别说了，感觉两个铁孤儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 1956#       发表于 2025-1-3 22:29
+
+朱总家最惨，兄妹俩相依为命，朱总捡（宇宙）垃圾供妹妹上学。
+
+
+*****
+
+####  赤黑的假面  
+##### 1957#       发表于 2025-1-3 22:33
+
+宇宙世纪前百年的主角不是官二代或者说科二代主角多吗，典中典骡子那种
+
