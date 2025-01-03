@@ -626,3 +626,14 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 拼好饭是什么？</blockquote>
 美团外卖的优惠，和别人拼单会优惠很多<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">然后有些外卖不会送到家门口，会放在小区/办公楼门口，有人会偷拿别人的餐
 
+
+*****
+
+####  irinwind  
+##### 5974#       发表于 2025-1-3 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093674&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 11:30</a>
+
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊 ...</blockquote>
+不会，而且更有可能的是soyo会很生气，然后发言说我们要击败ave mujica（
+

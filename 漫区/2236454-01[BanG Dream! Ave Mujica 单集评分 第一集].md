@@ -1118,3 +1118,14 @@ crychic（和mygo）是轻松愉快的课后喝茶乐队，avemujica是苦大仇
 
 “脸和数字”
 
+
+*****
+
+####  hagiwara  
+##### 119#       发表于 2025-1-3 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092023&amp;ptid=2236454" target="_blank">ads147147 发表于 2025-1-3 08:42</a>
+
+有一说一，碰到自己女儿找了个除了真诚什么都不太行的老公，你要是族长也是血压拉满，女儿一走没马上让他滚 ...</blockquote>
+Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10月的Overtake的男主角也做过这个兼职
+
