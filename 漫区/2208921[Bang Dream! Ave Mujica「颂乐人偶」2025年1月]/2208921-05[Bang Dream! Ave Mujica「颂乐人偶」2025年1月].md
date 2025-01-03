@@ -949,3 +949,29 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 头发也是钕同的性器官</blockquote>
 希望幼年回忆里再来点梳头扎头发什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jkl  
+##### 6005#       发表于 2025-1-3 15:51
+
+原来这个链接真的能打开
+[https://tickeforever.jp/l/avemujica/detail?id153220](https://tickeforever.jp/l/avemujica/detail?id153220)
+<img src="https://p.sda1.dev/21/1f12caf42afddc47e8bb13c6377c480c/510201B1-CBAC-4735-98DE-B0ECA92E9967.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 6006#       发表于 2025-1-3 15:51
+
+贷款的童年木箱剧情能在第四集看到吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 6007#       发表于 2025-1-3 15:51
+
+昨天特番里李子对初华的形容用词是黑洞。
+
+呃。。。我不知道
+
