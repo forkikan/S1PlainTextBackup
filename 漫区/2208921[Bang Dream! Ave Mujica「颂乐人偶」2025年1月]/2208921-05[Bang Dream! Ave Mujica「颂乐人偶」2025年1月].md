@@ -395,3 +395,57 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 
 [https://x.com/ng_suzuki3/status/1874761468090229120](https://x.com/ng_suzuki3/status/1874761468090229120)
 
+
+*****
+
+####  一个陆仁贾  
+##### 5953#       发表于 2025-1-3 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092748&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-3 10:03</a>
+几个爱素隐藏糖：
+
+1. soyo知道爱音喜欢的喵梦亲，还能聊上几句。
+
+2. 爱音中签后，soyo无感情地回复：“太好 ...</blockquote>
+甜得我老脸一红
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Суслов  
+##### 5954#       发表于 2025-1-3 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093674&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 11:30</a>
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊 ...</blockquote>
+其实还好，首先rikki绝对不会炸。tomorin会受影响但不会再像之前那样自闭了，这种情况anon陪着逛几次水族馆就好了，轻车熟路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 5955#       发表于 2025-1-3 12:12
+
+这么看安排soyo在观众席 
+其实本质目的是为了让她和爱音感情更进一步
+
+*****
+
+####  黑夜落叶秋天  
+##### 5956#       发表于 2025-1-3 12:16
+
+只要soyo不找祥子ttk 一切就还有余地
+
+*****
+
+####  oldgoat  
+##### 5957#       发表于 2025-1-3 12:16
+
+<blockquote>ParadiseMartyr 发表于 2025-1-3 01:09
+所以祥子不拉其他低边鼓手，非要拉一个没练几天鼓的傻逼网红是为什么
+
+祥子是傻逼吗？ ...</blockquote>
+有实力和人气等方面的考虑，同时还可能是得找一个有野心的来才能忽悠吧。不然如果单纯就是个底边鼓手，当听说个不认识的人给你画鸡团这种饼时怕不是就直接认为那位诈骗了。
+
