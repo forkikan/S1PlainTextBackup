@@ -1890,3 +1890,17 @@ Have a little sin, so that I can recognize you among the angels.
 
 突然的急转直下不是很折磨观众吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 6091#       发表于 2025-1-4 02:20
+
+ 本帖最后由 akiomn 于 2025-1-4 02:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我猜是先把睦的问题解决了，海玲喵梦有苗头但是还没完全爆，进入虚假的光阶段。然后海玲喵梦正式起爆，连带着祥子一起爆，最后收拾差不多了初华突然爆了
+
+总得先把睦的问题收拾到阶段性结束吧，不然黑睦在怕是鸡团先炸了
+
+当然要是变成祥子解决不掉黑睦彻底死心了，让黑睦和喵梦联合把鸡团变成表演团，海玲也顺从的话当我没说，毕竟这也是虚假的光阶段（代价是中后期集体爆炸）
+
