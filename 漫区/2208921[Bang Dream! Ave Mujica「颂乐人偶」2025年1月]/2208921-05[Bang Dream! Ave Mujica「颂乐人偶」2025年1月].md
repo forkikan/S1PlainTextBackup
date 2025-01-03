@@ -1038,3 +1038,56 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 如果说睦爆了是会影响祥子把祥子彻底逼入绝境（祥子除了mujica外只有睦了）那么海玲爆了就会影响整个鸡团了，这个二把手地位不可能平白无故设定的
 
+
+*****
+
+####  raii  
+##### 6012#       发表于 2025-1-3 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095892&amp;ptid=2208921" target="_blank">jkl 发表于 2025-1-3 15:51</a>
+
+原来这个链接真的能打开
+[https://tickeforever.jp/l/avemujica/detail?id153220](https://tickeforever.jp/l/avemujica/detail?id153220)</blockquote>
+非公式のファンサイトです。チケットの販売はしておりません。
+
+哪个人自己做的
+
+*****
+
+####  eyeego  
+##### 6013#       发表于 2025-1-3 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095577&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-1-3 15:13</a>
+下面那些人都没解释到最核心的一点
+
+拼好饭 十分难吃 勺子质量十分差 往往还送一瓶不知道什么野鸡牌子的饮 ...</blockquote>
+你在说啥东西 拼好饭又不是不能挑店的 觉得难吃换别家不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raharu39  
+##### 6014#       发表于 2025-1-3 16:17
+
+你们前三集都在哪看的啊
+
+
+*****
+
+####  新HGCG  
+##### 6015#       发表于 2025-1-3 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096104&amp;ptid=2208921" target="_blank">raharu39 发表于 2025-1-3 16:17</a>
+
+你们前三集都在哪看的啊</blockquote>
+我是日本的电影院里看的
+
+*****
+
+####  斑驳的阴影  
+##### 6016#       发表于 2025-1-3 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095302&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-3 14:48</a>
+
+访谈说了睦加入鸡团是因为对祥子的愧疚，喵梦是为了成名，海铃纯雇佣兵，初华就是最纯粹的为了祥子，真正意 ...</blockquote>
+虽然发色相近，但是实力上差太远了！（
+

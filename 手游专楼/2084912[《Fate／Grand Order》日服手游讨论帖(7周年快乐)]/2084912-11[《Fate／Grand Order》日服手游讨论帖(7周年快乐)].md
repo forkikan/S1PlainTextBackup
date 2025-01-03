@@ -9323,3 +9323,27 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 还好柱子战后期都是用借来的学姐和月p，目前刚11绊
 
+
+*****
+
+####  保罗赫伯特  
+##### 15965#       发表于 2025-1-3 16:21
+
+兽蕾和兽尼牵绊礼装都有30宝威，前者还有30对从者暴伤和自带1好感度提升，能选成冠位的话还是有不小提升的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 15966#       发表于 2025-1-3 16:23
+
+早期从者就有点吃亏了，羁绊礼装的效果都平平无奇。只不过我觉得所谓特定本应该范围很少
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qixinno2  
+##### 15967#       发表于 2025-1-3 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但无人能超越小碧池的幽默礼装 全队蓝卡集星+100%
+

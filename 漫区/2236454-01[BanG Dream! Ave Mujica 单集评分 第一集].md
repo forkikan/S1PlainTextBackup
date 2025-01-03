@@ -1164,3 +1164,25 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 
 请问在哪能看到先行的第二第三话<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kongxian  
+##### 124#       发表于 2025-1-3 16:20
+
+有线索有说祥非得离开本家的缘由吗。
+
+是家族企业亏钱了，这168也不见得都祥爹一人背负，说不定祥爹甚至都不用还。祥有什么缘由得离开家族认为自己只剩mujica了？
+
+*****
+
+####  刑部姬真可爱  
+##### 125#       发表于 2025-1-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096134&amp;ptid=2236454" target="_blank">kongxian 发表于 2025-1-3 16:20</a>
+
+有线索有说祥非得离开本家的缘由吗。
+
+是家族企业亏钱了，这168也不见得都祥爹一人背负，说不定祥爹甚至都不 ...</blockquote>
+没有非得离开的理由，只不过是想跟着亲爹一起而已
+
