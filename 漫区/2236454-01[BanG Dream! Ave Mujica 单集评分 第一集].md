@@ -953,3 +953,34 @@ mygo团成员和祥子的明暗滤镜对比也很有趣
 
 现在5分制相当于4.417分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rp1993  
+##### 103#       发表于 2025-1-3 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091028&amp;ptid=2236454" target="_blank">木板春香 发表于 2025-1-3 00:39</a>
+还没有抛弃爹吧</blockquote>
+都从爹家搬出去了，而且这种暴风展开，后面应该没篇幅再讲爹的事了吧，最多最后一集出来一起包饺子
+
+*****
+
+####  木板春香  
+##### 104#       发表于 2025-1-3 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093118&amp;ptid=2236454" target="_blank">rp1993 发表于 2025-1-3 10:40</a>
+
+都从爹家搬出去了，而且这种暴风展开，后面应该没篇幅再讲爹的事了吧，最多最后一集出来一起包饺子 ...</blockquote>
+故事的重点还是应该是乐队的成员吧，我是觉得这算情绪话，不能算抛弃。
+
+*****
+
+####  哈曼的YY  
+##### 105#       发表于 2025-1-3 10:43
+
+当初看剧透就觉得没写祥老师从无法兼顾crychic到可以操办母鸡卡的转变的原因 总不能是打工赚钱了吧 都说杯水车薪了 正片一看也确实没有
+
+这一块缺了观众会和爽女士一样误会你是不是觉得我们仨菜才去找别人组乐队
+
+有人猜测和飞鸟山之战前祥老师回了趟大宅有关系 和外公谈判之类的
+
