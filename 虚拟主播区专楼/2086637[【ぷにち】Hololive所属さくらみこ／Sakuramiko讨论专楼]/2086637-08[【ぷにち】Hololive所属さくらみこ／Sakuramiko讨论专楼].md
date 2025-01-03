@@ -3635,3 +3635,33 @@ mocopi有能
 
 2025-1-3 15:01 上传
 
+
+*****
+
+####  holoan  
+##### 10620#         楼主| 发表于 2025-1-3 16:13
+
+终于和vr正式联动了竟然不是micomet联动而是跟mikorone而且在mikorone24企划内告知，土井眼光
+
+*****
+
+####  holoan  
+##### 10621#         楼主| 发表于 2025-1-3 17:51
+
+真的直播23小时候还能唱跳的这2人什么体力？
+
+*****
+
+####  holoan  
+##### 10622#         楼主| 发表于 2025-1-3 17:52
+
+<img src="https://img.saraba1st.com/forum/202501/03/175223ljhwnv5n587pe5q3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 17:52 上传
+
+SPWN制作团队最强
+

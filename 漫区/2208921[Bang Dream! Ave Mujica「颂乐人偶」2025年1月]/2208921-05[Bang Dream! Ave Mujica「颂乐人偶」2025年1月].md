@@ -1163,3 +1163,14 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 愚神可以进动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 6024#       发表于 2025-1-3 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096291&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-1-3 16:40</a>
+
+主唱是星星，而恒星的最终归宿就是变成黑洞</blockquote>
+要够大才会变黑洞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
