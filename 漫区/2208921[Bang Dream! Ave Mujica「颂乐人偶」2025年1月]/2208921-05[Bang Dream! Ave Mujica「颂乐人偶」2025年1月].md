@@ -1872,3 +1872,11 @@ Have a little sin, so that I can recognize you among the angels.
 
 这个点叔叔那边还显示有3000号人正在看母鸡卡第一集...
 
+
+*****
+
+####  z2150966  
+##### 6089#       发表于 2025-1-4 01:52
+
+我先来个预测，祥子必定在第一次见到灯的桥上准备自杀，被灯给救下来，这回旋镖必然要回来，工工整整<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
