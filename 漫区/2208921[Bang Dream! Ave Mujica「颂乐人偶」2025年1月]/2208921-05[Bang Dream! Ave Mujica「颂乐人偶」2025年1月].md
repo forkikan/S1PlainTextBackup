@@ -1791,3 +1791,22 @@ Have a little sin, so that I can recognize you among the angels.
 鸡第一话复习元和二年白祥对soyo的看法的时候又想起这个地方来了，soyo对白祥来说无疑是比较重要的，最后 ...</blockquote>
 这个曲子应该不是随便安排的吧 网友都觉得是指爽女士 也就他算亚麻色头发
 
+
+*****
+
+####  银酒监武  
+##### 6080#       发表于 2025-1-4 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099113&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-4 00:17</a>
+
+这个曲子应该不是随便安排的吧 网友都觉得是指爽女士 也就他算亚麻色头发 ...</blockquote>
+祥母的发色现在看上去倒是不太像亚麻色
+
+
+*****
+
+####  seki_m  
+##### 6081#       发表于 2025-1-4 00:35
+
+这楼是前三集都能剧透吗？是的话我不看了
+
