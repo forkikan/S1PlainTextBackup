@@ -1523,3 +1523,29 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 这母鸡卡组了个银河战舰，结果大部分部件都不用纯靠硬实力最速武道馆的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3353764798  
+##### 156#       发表于 2025-1-3 22:38
+
+母鸡卡坠毁后祥老师加入弦卷财团，花了15年研发出了超大型米歇尔发动了地鸣，让世界感受痛楚。
+
+
+*****
+
+####  名津流  
+##### 157#       发表于 2025-1-3 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097873&amp;ptid=2236454" target="_blank">AveMujica 发表于 2025-1-3 20:15</a>
+
+补个图</blockquote>
+右边大女主什么的还好，左边看到写着S1百综直接没崩住
+
+*****
+
+####  无证madam  
+##### 158#       发表于 2025-1-3 22:43
+
+忍不住看偷跑了
+
