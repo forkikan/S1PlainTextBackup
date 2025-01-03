@@ -787,3 +787,21 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 下次可以新奥尔良模式。车撞加枪击，然后往车里一缩。不整天吹赛博卡的强度，这下只能出动装甲车了。
 
+
+*****
+
+####  L.L  
+##### 79#       发表于 2025-1-3 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092114&amp;ptid=2236346" target="_blank">弗里德里希大帝 发表于 2025-1-3 08:54</a>
+美国**证实，拉斯维加斯**酒店特斯拉爆炸案的制造者是现役美军绿色贝雷帽特种部队成员马修·利尔斯伯格（Ma ...</blockquote>
+同一天开车撞人那个退役+离婚2次 人生毁了那么做。这个居然是现役+标准精英会这么做没想到。
+
+*****
+
+####  名居守  
+##### 80#       发表于 2025-1-3 10:20
+
+要不是搞的汽车炸弹
+这成分简直是亚伦二代<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

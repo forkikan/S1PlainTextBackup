@@ -18853,3 +18853,32 @@ asoul的珈乐/谭杉杉，可能是看着团队上升期快结束了就直接�
 
 谁来分析分析soyo是真心为灯考虑，怕灯去Live现场不适应才劝阻还是又别的小心思
 
+
+*****
+
+####  Sarak  
+##### 5917#       发表于 2025-1-3 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091885&amp;ptid=2208921" target="_blank">pzk 发表于 2025-1-3 08:22</a>
+
+只是觉得帮亲爹也得讲方法啊，她一开始无疑是选择了效率最低的方式。</blockquote>
+pzk去看一下《激战》吧！
+
+
+*****
+
+####  新HGCG  
+##### 5918#       发表于 2025-1-3 10:23
+
+她亲爹不垃圾，怎么会有卖狗和母鸡卡呢
+
+*****
+
+####  影伴光生  
+##### 5919#       发表于 2025-1-3 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092867&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-1-3 10:15</a>
+
+谁来分析分析soyo是真心为灯考虑，怕灯去Live现场不适应才劝阻还是又别的小心思 ...</blockquote>
+soyo可能只是日常杠一下anno而已，一种条件反射行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

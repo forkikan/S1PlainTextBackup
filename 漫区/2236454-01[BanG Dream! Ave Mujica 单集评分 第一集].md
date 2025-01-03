@@ -926,3 +926,12 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Perfectfullmoon  
+##### 100#       发表于 2025-1-3 10:17
+
+零剧透看的第一话，信息量很大，情绪过山车好评<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+mygo团成员和祥子的明暗滤镜对比也很有趣
+
