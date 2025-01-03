@@ -874,3 +874,21 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 本来以为是车祸什么的，外公这句话感觉像是有家族遗传病。
 
+
+*****
+
+####  枫林不见  
+##### 5999#       发表于 2025-1-3 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095401&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-3 14:57</a>
+
+祥子好像很中意小睦的头发，出道那场演出就又是梳又是撩的，这次第一集接着撩 ...</blockquote>
+头发也是钕同的性器官<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6000#       发表于 2025-1-3 15:26
+
+体现了天然卷对直发的向往<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
