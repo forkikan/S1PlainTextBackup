@@ -178,3 +178,11 @@
 
 op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么多感情，看的挺乐的，互动写得真生硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jamella  
+##### 65#       发表于 2025-1-4 00:01
+
+第一次看动画会有点晕3d，超广角镜头下的背景加上光污染配色，有点顶不住
+

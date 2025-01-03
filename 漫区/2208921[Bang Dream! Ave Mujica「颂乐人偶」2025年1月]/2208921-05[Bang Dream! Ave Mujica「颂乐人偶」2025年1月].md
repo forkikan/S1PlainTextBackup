@@ -1722,3 +1722,48 @@ C团重要，而不是必要
 
 假药到这步就卡壳了
 
+
+*****
+
+####  Aendst  
+##### 6075#       发表于 2025-1-3 23:56
+
+ 本帖最后由 Aendst 于 2025-1-3 23:57 编辑 
+
+其实换个角度来说，你不能说祥子在外公和爹里选了不能放着爹去世就认定外公不重要
+
+同理，选择放弃crychic也不代表crychic不重要
+
+需要反对的是认为crychic比mygo和mujica都更重要的观点，这个确实就是纯魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica没播完不好说，mygo可是已经一辈子乐队了
+
+*****
+
+####  哈曼的YY  
+##### 6076#       发表于 2025-1-3 23:56
+
+Have a little sin, so that I can recognize you among the angels.
+
+<img src="https://img.saraba1st.com/forum/202501/03/235610neff8ed3ynxzndnn.jpg" referrerpolicy="no-referrer">
+
+<strong>GgVi5SuaoAE3BJZ.jpg</strong> (255.17 KB, 下载次数: 1)
+
+下载附件
+
+2025-1-3 23:56 上传
+
+[https://x.com/22694BZ/status/1875013561933771257](https://x.com/22694BZ/status/1875013561933771257)
+
+
+*****
+
+####  PDQ4  
+##### 6077#       发表于 2025-1-4 00:03
+
+其实就是最简单的鱼和熊掌嘛，就是不让你全都要做出抉择了而已
+
+从这个角度讲独角兽还挺残忍的，一直让角色做选择题
+
+通过这种方式让角色发现自己最想要的是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
