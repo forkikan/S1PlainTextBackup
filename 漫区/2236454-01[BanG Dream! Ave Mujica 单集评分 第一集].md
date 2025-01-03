@@ -840,3 +840,28 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 祥爹应该是自己开摆引咎辞职了。赘婿，丈人本来就看不上他，心灵支柱老婆没了，给女儿说自己会努力的结果 ...</blockquote>
 母亲大人不知道还有没有病得严重之类回忆杀，这镜头一转就是遗像连个“缓冲”都没有照实与其说是冲击巨大倒不如说让人恍恍惚惚一点“现实感”都没有<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帕林马哲理  
+##### 93#       发表于 2025-1-3 08:24
+
+其他不说，祥子在雨中哭泣的这段，光高尾奏音的配音也值得我打+2了。上次这么有感觉的配音还是老仓育的独白<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">。
+
+这么好的配音，必须对角色有完全的共鸣才能实现。
+
+
+*****
+
+####  ads147147  
+##### 94#       发表于 2025-1-3 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090092&amp;ptid=2236454" target="_blank">Porsche 发表于 2025-1-2 22:53</a>
+
+箱子跌在一开始就果断做出了无比正确的决定大祥老师非要跟过来赖谁</blockquote>
+你不能只在爹一路顺风的时候才和他住在一起jpg
+
+当然牢爹和祥子几乎是一个性子的，最终闹崩也是祥子能忍到武道馆这个时间点（可以说算是独立出去了，也不算回到丰川家）。
+
+说起来祥子说过的最重的两句分手话，一个是祝你幸福，一个是不要在和我扯上关系，全是牢爹的台词，美味的回扣。
+
