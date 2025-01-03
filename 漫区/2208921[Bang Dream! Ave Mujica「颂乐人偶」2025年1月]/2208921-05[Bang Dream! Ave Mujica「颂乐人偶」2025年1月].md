@@ -1627,3 +1627,24 @@ c团回忆部分，吉他睦对灯立希soyo都有夸赞部分，唯独对祥子
 
 不得不说制作组在细节上做得很用心
 
+
+*****
+
+####  海洋队手下mayo  
+##### 6068#       发表于 2025-1-3 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">mygo最后海铃对木头确认过一辈子 万一她只是默默当真了呢 一般乐队可不说这话
+说不定最大的反转就是看起来没感情其实一直都超爱的，平时随便你们闹 真想炸团的就默默发动铁T power去一个一个抓回来
+
+*****
+
+####  山ノ内花音  
+##### 6069#       发表于 2025-1-3 23:10
+
+说c团不熟是一个客观评价
+没有任何想贬低的意思
+不熟不代表不重要
+倒不如说是因为不熟 
+所以彼此之间才有那么深的滤镜 
+充满了好感<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
