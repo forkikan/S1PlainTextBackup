@@ -130,3 +130,11 @@
 
 不喜欢这个双马尾<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2048#       发表于 2025-1-3 13:49
+
+起码稀有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
