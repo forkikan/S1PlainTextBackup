@@ -826,3 +826,13 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  prattwhitney  
+##### 83#       发表于 2025-1-3 20:02
+
+不是，这人引爆之前已经被枪打死了，这不板上钉钉的栽赃陷害
+
+甚至搞不好就是私事纠纷，跟战友吵架动枪之后被打死了，然后那个杀人的觉得一不做二不休搞假旗
+
