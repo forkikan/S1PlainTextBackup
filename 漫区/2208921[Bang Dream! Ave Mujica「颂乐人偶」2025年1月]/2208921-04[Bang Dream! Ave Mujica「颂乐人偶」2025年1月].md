@@ -18689,3 +18689,34 @@ soyo还会去学校堵门吗<img src="https://static.saraba1st.com/image/smiley/
 
 看完web放送顺带把枪版也看了，等web出了再看一遍。爆！
 
+
+*****
+
+####  yozoraxsx  
+##### 5909#       发表于 2025-1-3 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不能只在三次元摘了难绷面具的时候的时候支持。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天邪鬼  
+##### 5910#       发表于 2025-1-3 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67083349&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-2 09:11</a>
+感觉都不如直接喵祥+初睦有节目效果</blockquote>
+蓝毛魔女和她底下的贱萌棋子
+那天对岛上原住民的金毛土妹子说要骑白马回来接她的那个人，为何再次重逢完全忘却了此事？本要心死疯狂的时候，却发现小姨子对这事记得一清二楚？
+大型连续剧——《回村的诱惑》绝赞播放中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 5911#       发表于 2025-1-3 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092566&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-3 09:45</a>
+
+看完web放送顺带把枪版也看了，等web出了再看一遍。爆！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪版来个地址
+

@@ -737,3 +737,13 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  变老的大二  
+##### 74#       发表于 2025-1-3 09:53
+
+你是在告诉我，一个有大量军事经验，马上就要退役，甚至近期还在网上卖东西的MAGA。
+
+租了辆赛博皮卡塞满烟花开到大楼前面一枪把自己爆头了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
