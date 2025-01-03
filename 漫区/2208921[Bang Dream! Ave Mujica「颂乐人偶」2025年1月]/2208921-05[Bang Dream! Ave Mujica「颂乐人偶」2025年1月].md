@@ -460,3 +460,31 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 新时代的mujica谷，清一色不带面具的颜值大up</blockquote>
 这里买狗的钥匙扣看着还不错，问下在哪能买？淘宝找中介吗？
 
+
+*****
+
+####  sdeplee  
+##### 5959#       发表于 2025-1-3 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091776&amp;ptid=2208921" target="_blank">名津流 发表于 2025-1-3 07:57</a>
+
+基本不怎么看V，好奇这说的是哪位？什么事件？</blockquote>
+珍爱生命远离VTB 
+
+*****
+
+####  桜庭千景  
+##### 5960#       发表于 2025-1-3 12:29
+
+<blockquote>盗号找不回 发表于 2025-1-3 12:18
+这里买狗的钥匙扣看着还不错，问下在哪能买？淘宝找中介吗？</blockquote>
+这个是快闪店限定的，第一批要买到估计略难or略贵，代购都不一定好找，可以看后续会不会上通贩
+
+<img src="https://img.saraba1st.com/forum/202501/03/122808sd90jy222qkybz48.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_2288588551837765.jpg</strong> (101.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 12:28 上传
+
