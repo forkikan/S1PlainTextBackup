@@ -1613,3 +1613,17 @@ c团回忆部分，吉他睦对灯立希soyo都有夸赞部分，唯独对祥子
 <img src="https://p.sda1.dev/21/702bf5f160f6558fe109ec7e1628099f/image.jpg" referrerpolicy="no-referrer">
 鸡第一话复习元和二年白祥对soyo的看法的时候又想起这个地方来了，soyo对白祥来说无疑是比较重要的，最后二人应该是会和解的吧，鉴于弹琴这段放在mygo第一话里了，母鸡卡最后一集难不成素祥要来个大的？
 
+
+*****
+
+####  Aendst  
+##### 6067#       发表于 2025-1-3 23:02
+
+ 本帖最后由 Aendst 于 2025-1-3 23:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实既然第一话已经出了……多看她们群聊就会发现真的非常不熟
+
+熟人之间很少那么讲话的，即使祥子说话很大小姐
+
+不得不说制作组在细节上做得很用心
+
