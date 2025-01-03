@@ -18350,3 +18350,46 @@ P站广告
 基本不怎么看V，好奇这说的是哪位？什么事件？</blockquote>
 应该是指asoul，具体是指什么，我就不知道了……
 
+
+*****
+
+####  桜庭千景  
+##### 5876#       发表于 2025-1-3 08:05
+
+<blockquote>pzk 发表于 2025-1-3 07:59
+我还是没想通，祥子有必要直接离家出走去陪老爸，然后立刻开始打零工吗？这中间的发展是不是太丝滑了一点 ...</blockquote>
+那是她亲爹
+
+*****
+
+####  LeonsCat  
+##### 5877#       发表于 2025-1-3 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091313&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-1-3 01:33</a>
+
+这集说了，和初华是一个经纪公司</blockquote>
+经纪公司可出不起这个钱，就算你是研音都够呛，能搞这么大阵仗的只有唱片公司。
+
+
+*****
+
+####  玖羽  
+##### 5878#       发表于 2025-1-3 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090935&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-3 00:28</a>
+
+看到一个说法，Timoris在母鸡卡内部矛盾愈演愈烈的时候还会习惯性地类似买狗第九集那样作壁上观，导致引火烧身，明显是愚行。</blockquote>
+我倒觉得相反，海铃不再对她加入的乐队作壁上观，明知会引火烧身还跳进去，对她来说才是愚行
+
+*****
+
+####  reagain  
+##### 5879#       发表于 2025-1-3 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090920&amp;ptid=2208921" target="_blank">Reinhold 发表于 2025-1-3 00:26</a>
+
+祥子哭的时候我也眼圈一红，然后被拼好饭憋回去了
+
+—— 来自 S1Fun</blockquote>
+为什么？搜了下没懂这个梗
+
