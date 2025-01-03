@@ -6627,3 +6627,14 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 话说人间系列是什么风格，只看过两本戏言
 
+
+*****
+
+####  王留美  
+##### 1968#       发表于 2025-1-4 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098778&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-3 23:01</a>
+ 平穏なコロニー暮らしの日常を、どこか偽物のように感じていた。这句可解释的方向性太多了。  厌恶日常的jk ...</blockquote>
+早说了女主巴纳吉位
+就看女二和男主谁是奥黛丽谁是利迪了
+

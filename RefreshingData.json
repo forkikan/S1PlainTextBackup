@@ -3777,7 +3777,7 @@
     "lastedit": 1735914480,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -10016,15 +10016,6 @@
     "active": false,
     "update": false
   },
-  "2125382": {
-    "totalreply": 237,
-    "title": "[『GOD.app』原创TV动画 2023年10月]",
-    "newtitle": "[『GOD.app』原创TV动画 2023年10月]",
-    "lastedit": 1734717613,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
   "2201926": {
     "totalreply": 36929,
     "title": "[【集中楼】百合&amp;泛百合讨论楼9.0]",
@@ -10899,10 +10890,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 1967,
+    "totalreply": 1968,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1735922903,
+    "lastedit": 1735927450,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11151,10 +11142,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 14848,
+    "totalreply": 14850,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1735926852,
+    "lastedit": 1735927449,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14661,10 +14652,10 @@
     "update": false
   },
   "2088649": {
-    "totalreply": 559,
+    "totalreply": 561,
     "title": "[武侠游戏新作《燕云十六声》7月26日公测]",
     "newtitle": "[武侠游戏新作《燕云十六声》7月26日公测]",
-    "lastedit": 1735922297,
+    "lastedit": 1735927569,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17478,10 +17469,10 @@
     "update": false
   },
   "2236569": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[于东来发布胖东来人结婚执行标准]",
     "newtitle": "[于东来发布胖东来人结婚执行标准]",
-    "lastedit": 1735926014,
+    "lastedit": 1735927329,
     "category": "外野",
     "active": true,
     "update": false
