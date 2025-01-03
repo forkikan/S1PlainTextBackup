@@ -18555,3 +18555,48 @@ KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
 
 pico里面也有麻里奈为了填补circle的装修费用去送报纸的小动画
 
+
+*****
+
+####  帆前  
+##### 5895#       发表于 2025-1-3 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091857&amp;ptid=2208921" target="_blank">名津流 发表于 2025-1-3 08:17</a>
+
+爱素也是大涨，同款项链都带上了</blockquote>
+感觉涨停了都
+
+*****
+
+####  刑部姬真可爱  
+##### 5896#       发表于 2025-1-3 08:58
+
+甜甜圈女士这么多设计，不会最后初华真就母鸡卡和苏咪咪一起干吧
+
+*****
+
+####  哈曼的YY  
+##### 5897#       发表于 2025-1-3 08:59
+
+梦以这张怎么又有点外星人
+
+
+*****
+
+####  刑部姬真可爱  
+##### 5898#       发表于 2025-1-3 09:00
+
+爱音和soyo的项链其实第一季很早就出现过了，都是她们常服的打扮，并不是现在突然有的
+
+*****
+
+####  名津流  
+##### 5899#       发表于 2025-1-3 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091958&amp;ptid=2208921" target="_blank">SakuraのOrigami 发表于 2025-1-3 08:34</a>
+
+KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
+
+可惜因为OP砍了长度，只有3分钟不到() ...</blockquote>
+不是4分多钟吗
+
