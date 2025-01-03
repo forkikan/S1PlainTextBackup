@@ -9440,3 +9440,19 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 突入终章那个没啥特别的，第一部也有特意搞个玩家大型联欢，但说白了啥时候进终章还是只能看玩家的个人想 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说的难道不是进了之后能不能通吗  打一半噔噔咚 也算是今年进终章
 
+
+*****
+
+####  大十字紅朔  
+##### 15976#       发表于 2025-1-3 23:35
+
+不情愿的打开FGO，不情愿的氪金，不情愿的沉船<img src="https://static.saraba1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/03/233510vjitio6jiugchib4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 23:35 上传
+

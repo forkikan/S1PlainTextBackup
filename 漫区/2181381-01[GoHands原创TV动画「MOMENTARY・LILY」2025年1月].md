@@ -170,3 +170,11 @@
 
 看到句弹幕说感谢gohands让人体会到什么叫2D眩晕症
 
+
+*****
+
+####  moras2694  
+##### 64#       发表于 2025-1-3 23:37
+
+op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么多感情，看的挺乐的，互动写得真生硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
