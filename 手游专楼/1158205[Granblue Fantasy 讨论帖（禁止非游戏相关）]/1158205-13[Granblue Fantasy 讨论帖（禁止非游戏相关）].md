@@ -614,3 +614,11 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">五位已实装的天司角色只有一个不是gw满分
 
+
+*****
+
+####  syndrome2032  
+##### 18156#       发表于 2025-1-3 14:54
+
+都怪先帝非得棒读，搞得hrt被迫害。
+

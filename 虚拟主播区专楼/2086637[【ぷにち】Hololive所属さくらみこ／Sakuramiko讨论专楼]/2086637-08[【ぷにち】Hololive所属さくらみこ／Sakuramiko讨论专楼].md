@@ -3607,3 +3607,31 @@ mocopi有能
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">表情不错
 
+
+*****
+
+####  rs5621  
+##### 10617#       发表于 2025-1-3 14:44
+
+帅大叔来了
+
+*****
+
+####  11512  
+##### 10618#       发表于 2025-1-3 14:58
+
+终于把ザコシショウ本人召唤出来了 
+
+*****
+
+####  rs5621  
+##### 10619#       发表于 2025-1-3 15:01
+
+<img src="https://img.saraba1st.com/forum/202501/03/150112rppu6tpt9kp1fubk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 15:01 上传
+
