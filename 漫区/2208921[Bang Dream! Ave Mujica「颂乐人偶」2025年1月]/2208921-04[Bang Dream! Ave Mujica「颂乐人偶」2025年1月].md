@@ -18464,3 +18464,24 @@ KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
 
 还有祥子看到灯说不要自杀，怕不是牢爹已经做过类似的事情了所以才会那么激动。
 
+
+*****
+
+####  一心而用  
+##### 5887#       发表于 2025-1-3 08:39
+
+官方首次放出摘面具照
+<img src="https://p.sda1.dev/21/18380b87fe5211b27631a721fc84de26/a3932886gy1hx6srzhi3ij216o1kw4bs.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/93eb01c4ee7987a46f2a3076fe76f430/a3932886gy1hx6ss1if7ej21kw1ame09.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/05fcbf889739ecc75732cd77402d8761/a3932886gy1hx6ss3t51qj22c0340qv5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f6cd7e2f5215c5cadf9aca0e45cfdccb/a3932886gy1hx6ss21z9rj20qg12s0ye.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/eeb6f7efc58199e8d05a426c03d8e504/a3932886gy1hx6ss4g0k7j20wq17mqaa.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5888#       发表于 2025-1-3 08:44
+
+不戴难崩的假面后观感好了很多了。
+
