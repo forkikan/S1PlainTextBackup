@@ -9347,3 +9347,27 @@ box里有一宝旧剑和一宝查理曼，一年用不到一次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但无人能超越小碧池的幽默礼装 全队蓝卡集星+100%
 
+
+*****
+
+####  quanlix  
+##### 15968#       发表于 2025-1-3 17:32
+
+看今儿晚上老青能不能捞个强化
+
+*****
+
+####  marxel  
+##### 15969#       发表于 2025-1-3 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095550&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-1-3 15:11</a>
+
+Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的部分。原文链接：https://www.famitsu.com/ar ...</blockquote>
+这话的感觉是，25年肯定会进终章，但终章也不是一个时间点而是一段
+
+然后11周年也还会有，意味着不会说25年就停运了
+
+不如说FGO现在这样不太可能突然关停，而是会完结掉主线，进入一个后日谈和活动交织的状态
+
+但是突入终章的时间交给玩家这个说法，感觉好像推进终章会导致游戏环境发生某些不可逆的变化？
+

@@ -1136,3 +1136,30 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 还真背负丰川祥子人生了
 
+
+*****
+
+####  达达葱2  
+##### 6021#       发表于 2025-1-3 17:26
+
+<blockquote>ytttsuuuba 发表于 2025-1-3 13:23
+按照乐器排的，主唱/吉他/贝斯/鼓/键盘/DJ这样的顺序。所以你可以看到祥子排最后。 ...</blockquote>
+原来是这样的啊
+
+*****
+
+####  PDQ4  
+##### 6022#       发表于 2025-1-3 17:29
+
+其实睦虽然爆了但没完全爆，女女关系性的冲突才是最大的爆点
+从这个角度讲，睦还要继续爆
+非常期待后续要搞什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 6023#       发表于 2025-1-3 17:30
+
+愚神可以进动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

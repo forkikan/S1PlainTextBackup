@@ -1253,3 +1253,20 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  小大头菜  
+##### 131#       发表于 2025-1-3 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+商战的脸谱化演绎，比如半泽直树第背5个亿的锅就要人生完蛋翻不了身了
+
+祥爹真诚，自己努力最后这么个下场，精神上先绷不住了
+
+经手8个亿rmb的商业诈骗到底是个啥感觉，99.99%的网友都不知道的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
