@@ -269,3 +269,55 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 
 2025-1-3 11:24 上传
 
+
+*****
+
+####  JELEEちゃん  
+##### 5941#       发表于 2025-1-3 11:26
+
+妈可能真的还有点戏份，毕竟这个人偶是妈的遗物
+
+*****
+
+####  山ノ内花音  
+##### 5942#       发表于 2025-1-3 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093615&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-3 11:25</a>
+新时代的mujica谷，清一色不带面具的颜值大up</blockquote>
+好时代 来临了
+
+*****
+
+####  山ノ内花音  
+##### 5943#       发表于 2025-1-3 11:27
+
+搞不好是妈临终时和祥子说了什么
+才埋下了mujica世界观的种子
+
+*****
+
+####  pokemon最爱  
+##### 5944#       发表于 2025-1-3 11:30
+
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 5945#       发表于 2025-1-3 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093674&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 11:30</a>
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊 ...</blockquote>
+也太看不起老c团的人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 5946#       发表于 2025-1-3 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093674&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-3 11:30</a>
+
+说起来母鸡卡直播开盒后卖狗的原C团3人又得炸然后要Anon安抚吧，Anon上辈子欠了大祥老师多少钱啊 ...</blockquote>
+应该不会这么夸张，不然就有点喧宾夺主了，我猜大概就是soyo会小炸
+
