@@ -6327,3 +6327,27 @@ engage手游的IF剧情里鸭子提前出场帮哈曼平定格雷米叛乱，事
 
 TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 1939#       发表于 2025-1-3 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098201&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-3 21:20</a>
+
+香党在过去势力就不小啊，旧剧场版结尾明日香不是和真嗣在一起么，丽党输得只剩个大头。
+
+反倒是新剧场版， ...</blockquote>
+新剧场版是<img src="https://static.saraba1st.com/image/smiley/carton2017/035.png" referrerpolicy="no-referrer">大赢一部，轮到感人大结局香党寻思怎么都该我赢了吧
+
+结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 1940#       发表于 2025-1-3 21:39
+
+当年就好三无这口，喜欢丽，年龄还小不懂傲娇，对剧场版的香感觉莫名其妙。后来突然懂了傲娇的好，喜欢香，这些年能明显感觉到香的比重增加。
+
+现在就喜欢精神有问题的傲娇。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
