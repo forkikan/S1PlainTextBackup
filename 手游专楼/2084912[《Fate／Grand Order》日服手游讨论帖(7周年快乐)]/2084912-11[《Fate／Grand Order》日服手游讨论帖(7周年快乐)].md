@@ -9479,3 +9479,11 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 你月现在的问题是没卡想抽，利好白嫖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 15980#       发表于 2025-1-4 01:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">lxs现在都给你准备好为爱氪金的全年轮替池了，爱他就给它氪满宝120全被动，这次可没有啥突然复刻所以准备时间不够的借口了不是
+
