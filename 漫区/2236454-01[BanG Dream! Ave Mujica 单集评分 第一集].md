@@ -1129,3 +1129,13 @@ crychic（和mygo）是轻松愉快的课后喝茶乐队，avemujica是苦大仇
 有一说一，碰到自己女儿找了个除了真诚什么都不太行的老公，你要是族长也是血压拉满，女儿一走没马上让他滚 ...</blockquote>
 Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10月的Overtake的男主角也做过这个兼职
 
+
+*****
+
+####  swessia  
+##### 120#       发表于 2025-1-3 14:29
+
++2，说实话节奏太赶了要减分，但考虑到后面也是疾风暴雨般的展开，就是这个味！
+
+至于小祥没苦硬吃，不吃就不是小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

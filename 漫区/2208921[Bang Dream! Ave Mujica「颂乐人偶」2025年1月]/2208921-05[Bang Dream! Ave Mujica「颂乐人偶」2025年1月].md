@@ -674,3 +674,29 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 为什么要调侃一个独立自强的人生活窘迫……不是很能理解</blockquote>
 可以理解成地狱笑话
 
+
+*****
+
+####  枫林不见  
+##### 5979#       发表于 2025-1-3 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095024&amp;ptid=2208921" target="_blank">挺好的 发表于 2025-1-3 14:18</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">心里已经和大祥过完一生了
+
+*****
+
+####  枫林不见  
+##### 5980#       发表于 2025-1-3 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丰川祥子这就是铁铁的直女撩姬天打雷劈了
+
+*****
+
+####  凝滞雪雾  
+##### 5981#       发表于 2025-1-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094831&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-3 13:57</a>
+
+为什么要调侃一个独立自强的人生活窘迫……不是很能理解</blockquote>
+经济窘迫吧。
+
