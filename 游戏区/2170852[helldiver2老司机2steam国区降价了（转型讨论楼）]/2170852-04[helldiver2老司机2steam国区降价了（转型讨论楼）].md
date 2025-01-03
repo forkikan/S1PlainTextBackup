@@ -49,3 +49,14 @@
 
 其他的就按感兴趣的解锁就好
 
+
+*****
+
+####  heseran  
+##### 5693#       发表于 2025-1-3 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095881&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-1-3 15:49</a>
+总动员是基础的免费债券，其他的是要蓝币解锁的。
+建议前期先多打1-3级难度，全清兴趣点来收集蓝币和奖章 ...</blockquote>
+感谢
+
