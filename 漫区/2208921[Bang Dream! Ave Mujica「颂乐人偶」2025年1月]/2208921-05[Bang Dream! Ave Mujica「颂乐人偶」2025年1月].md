@@ -165,3 +165,107 @@ soyo可能只是日常杠一下anno而已，一种条件反射行为</blockquote
 
 nga需要的是一个大热动画讨论版，一个普通动画讨论版，还有一个他们最爱的“x归猴”“未授权图片搬运”“锐评网文轻小说差异”“日本人国民性”板
 
+
+*****
+
+####  金钱与民主  
+##### 5938#       发表于 2025-1-3 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093218&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-3 10:49</a>
+
+无论初心是怎么样，祥爹在行动上都是完完全全地摆了，这一点是无论如何洗不了的。
+
+而且这个人物的后续处理 ...</blockquote>
+我倒觉得独角兽真有可能后面把人写死了，之前是觉得邦邦不太可能当场死人，但是Mujica已经相比前代的团突破太多了，如果说紫砂有碍公序良俗，那酗酒致死完全不会，甚至还有点警示教育的意义，因为比起费力去给一个风评注定好不起来的背景配角洗一个吃力不讨好的“好结局”，把父母双亡的祥子塑造好的难度就低太多了。
+
+
+*****
+
+####  Aendst  
+##### 5939#       发表于 2025-1-3 11:22
+
+大原昨天还帮忙宣传了一下动画转了官推
+
+私市淳可是一点反应都没
+
+指望爹有戏份不如指望妈有戏份
+
+*****
+
+####  桜庭千景  
+##### 5940#       发表于 2025-1-3 11:25
+
+新时代的mujica谷，清一色不带面具的颜值大up
+
+<img src="https://img.saraba1st.com/forum/202501/03/112328u41v8hiik4h422j3.jpg" referrerpolicy="no-referrer">
+
+<strong>-8536414441735873677907.jpg</strong> (74.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112334v7w5uupsch68wsuw.jpg" referrerpolicy="no-referrer">
+
+<strong>9809812871735873681745.jpg</strong> (55.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112339qv9cvo213h22hqzs.jpg" referrerpolicy="no-referrer">
+
+<strong>18577448871735873686182.jpg</strong> (53.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112421hnl232b2zbxx2j27.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_2285952064442334.jpg</strong> (158.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112426pbs9i08rs058b5t0.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_2286722269525550.jpg</strong> (151.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112431hbbh3hz05mm3ns0n.png" referrerpolicy="no-referrer">
+
+<strong>Image_2286774768204709.png</strong> (178.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112437pbxronneunpbevoe.png" referrerpolicy="no-referrer">
+
+<strong>Image_2286776596674500.png</strong> (170.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112441ombfeevz9m4vwefb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_2286861544778654.jpg</strong> (186.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/112445qu1tgjmu8b1k2xjj.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_2286868695776570.jpg</strong> (153.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 11:24 上传
+
