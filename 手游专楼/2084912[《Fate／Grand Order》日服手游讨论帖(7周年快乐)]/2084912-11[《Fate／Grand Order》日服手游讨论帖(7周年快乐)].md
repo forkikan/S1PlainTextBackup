@@ -9464,3 +9464,18 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">怎么没有定力呢 一个个说好的不抽福袋才几天就坚持不住了
 
+
+*****
+
+####  希望之花  
+##### 15978#       发表于 2025-1-4 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">过元旦讨个彩头，想了想与其给南宫梦和cy那种无底洞氪金，还是你月抽卡比较保值
+
+*****
+
+####  保罗赫伯特  
+##### 15979#       发表于 2025-1-4 00:38
+
+你月现在的问题是没卡想抽，利好白嫖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

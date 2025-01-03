@@ -1625,3 +1625,25 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 炮姐这要当麻救的真不够大吧 无印和s会让人感觉lv5就这？T后半捏巨人才感觉强点
 
+
+*****
+
+####  seki_m  
+##### 167#       发表于 2025-1-4 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+只有我觉得这是家族故意搞祥爸导演的一出左手倒右手扣黑锅么？赘婿常见桥段
+
+*****
+
+####  山ノ内花音  
+##### 168#       发表于 2025-1-4 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097873&amp;ptid=2236454" target="_blank">AveMujica 发表于 2025-1-3 20:15</a>
+补个图</blockquote>
+这不是百综整活吗？怎么变成舅舅了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
