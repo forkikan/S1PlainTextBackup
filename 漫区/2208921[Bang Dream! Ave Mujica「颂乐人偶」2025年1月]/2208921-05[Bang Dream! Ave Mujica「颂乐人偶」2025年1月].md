@@ -975,3 +975,24 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 呃。。。我不知道
 
+
+*****
+
+####  金属化反射装甲  
+##### 6008#       发表于 2025-1-3 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095589&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-3 15:15</a>
+
+长期素食女士气炸的点怎么完全和惊世一跪那时候祥子气炸的点完全一样... ...</blockquote>
+祥子要气老C团的人不和她组乐队就不会跟着睦去live现场+用眼神鼓励灯了
+
+*****
+
+####  akiomn  
+##### 6009#       发表于 2025-1-3 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095893&amp;ptid=2208921" target="_blank">贰臣 发表于 2025-1-3 15:51</a>
+贷款的童年木箱剧情能在第四集看到吗</blockquote>
+可能不会，昨天广播说了，第四集结尾令人震惊，而第五集开头让局面变得更加麻烦，可以理解成第四集正式开爆了
+睦祥童年可能会牵扯到睦线和祥子线的解题甚至整个mujica世界观这个核心谜题
+
