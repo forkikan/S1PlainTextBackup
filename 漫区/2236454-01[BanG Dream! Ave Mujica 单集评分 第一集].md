@@ -1329,3 +1329,16 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 好看，就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 138#       发表于 2025-1-3 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091317&amp;ptid=2236454" target="_blank">冰寒之月 发表于 2025-1-3 01:33</a>
+我的关注点倒是日本那边欠债就那么严重吗 
+
+祥子爹随便一个损失就变废人了</blockquote>
+168亿不是欠债，是他自己的行为导致的公司的损失，这就相当于某个经理操作不当导致公司损失然后引咎辞职，董事会也想把他开了。祥子爹自始至终就不是公司或某项资产的所有者，要是在国内估计连个失信被执行人都不算。
+至于前面举的什么国内欠债几千万逍遥自在，这种情况当事人属创业或生意失败居多，法人负债归个人偿还。再说，能借到几千万也算是个人或公司法人的本事。
+

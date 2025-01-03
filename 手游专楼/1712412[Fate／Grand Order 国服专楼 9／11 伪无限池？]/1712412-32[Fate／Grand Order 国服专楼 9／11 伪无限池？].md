@@ -1268,3 +1268,14 @@ BBC么？把新的那个选卡出台词的功能关掉，在游戏里面的设�
 哦哦，fga啊，这个我没用过，不过八成也是 ...</blockquote>
 fga的，刚试了下把战斗菜单里技能确认关了就行了
 
+
+*****
+
+####  marxel  
+##### 46936#       发表于 2025-1-3 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092404&amp;ptid=1712412" target="_blank">Kon-El 发表于 2025-1-3 09:29</a>
+
+fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
+那还挺奇怪的，一般来说升级安装不会导致技能确认开关状态变化吧……
+
