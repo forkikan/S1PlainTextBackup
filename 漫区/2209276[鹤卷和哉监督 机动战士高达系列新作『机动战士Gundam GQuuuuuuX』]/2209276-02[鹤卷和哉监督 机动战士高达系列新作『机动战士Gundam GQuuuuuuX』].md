@@ -6066,3 +6066,16 @@ pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  RE㐅ia  
+##### 1914#       发表于 2025-1-3 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096495&amp;ptid=2209276" target="_blank">kykawaiii 发表于 2025-1-3 17:05</a>
+
+是新剧场版吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+对，上周重温了前两部，这下子把q和终补了
+
