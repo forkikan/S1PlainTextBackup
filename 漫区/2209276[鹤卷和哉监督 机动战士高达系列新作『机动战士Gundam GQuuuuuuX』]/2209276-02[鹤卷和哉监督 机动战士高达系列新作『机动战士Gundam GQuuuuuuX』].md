@@ -6039,3 +6039,18 @@ pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达
 我咋感觉是反的？印象里bp在国外反响也不是很好</blockquote>
 现在的口碑还行，比V高达好一截
 
+
+*****
+
+####  Steel.Haze  
+##### 1912#       发表于 2025-1-3 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094729&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-3 13:45</a>
+
+很难想到扎比家能怎么没
+
+所罗门终战的话最多干掉一个大猩猩，卡尔马死不死为止就算死了好了
+
+那还有德金基 ...</blockquote>
+所罗门决战，联邦主力和观战的扎比一家全被精神力红高达暴走炸没了。史称宇宙世纪的第一次冲击。
+

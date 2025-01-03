@@ -622,3 +622,13 @@ lm的话，6龙好歹也是主推的角色团体，结果水龙到现在才领�
 
 都怪先帝非得棒读，搞得hrt被迫害。
 
+
+*****
+
+####  Sylpheed  
+##### 18157#       发表于 2025-1-3 17:05
+
+也不冤，进另外四个哪个落地至少都前排有班上，都还是比较优质的解，hrt嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

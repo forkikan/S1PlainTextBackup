@@ -1243,3 +1243,13 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 
 一边心疼小木头一边期待啥时候彻底疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，第一集虽然整体有点快（比如祥妈那个当场去世）但情绪调动还是可以的，就是武士道睿智操作搞得不敢讨论比较不爽
 
+
+*****
+
+####  子夜微雪  
+##### 130#       发表于 2025-1-3 17:03
+
+靠，怎么这楼还丢出了先行版，引诱人犯罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
