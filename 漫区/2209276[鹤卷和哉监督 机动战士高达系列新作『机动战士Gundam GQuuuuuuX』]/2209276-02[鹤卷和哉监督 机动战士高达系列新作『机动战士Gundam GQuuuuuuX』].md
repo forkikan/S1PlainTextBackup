@@ -6232,3 +6232,25 @@ engage手游的IF剧情里鸭子提前出场帮哈曼平定格雷米叛乱，事
 
 没人想说莉莉娜吗？吗的，狂野人生.jpg
 
+
+*****
+
+####  纪寞  
+##### 1929#       发表于 2025-1-3 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097816&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-3 20:06</a>
+
+现在最迷的就是牢修的身份和他是怎么获得红高达的，他能用8门浮游炮一眼是nt，那他和鸭子是什么关系，和 ...</blockquote>
+其实对于修司pv中的那句"高达在对我们说[战斗吧]"，我总有种感觉认为这里的高达其实都指女主那台g夸克斯和红高达。他本身就知道女主那台ms是高达型改过来的，进一步是他就认识那台原型是针对红高达的升重高达，女主也是那种在这个时代被命运指引而乘坐上高达的人。
+
+
+*****
+
+####  线程召唤使  
+##### 1930#       发表于 2025-1-3 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097934&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-3 20:25</a>
+
+没人想说莉莉娜吗？吗的，狂野人生.jpg</blockquote>
+相比同剧中的其他角色不够突出，不论男女。
+
