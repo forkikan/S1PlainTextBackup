@@ -2751,3 +2751,21 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 难得死了个npc就反复鞭尸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 7368#       发表于 2025-1-3 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丁格肯定是要在死一次了  不过也有克洛的先例  要有女粉使劲哭没准能活
+
+
+*****
+
+####  卢迪克  
+##### 7369#       发表于 2025-1-3 12:20
+
+ 本帖最后由 卢迪克 于 2025-1-3 12:22 编辑 
+
+都回溯到黎了。杰拉尔和丁格必活好吧，还都知道很多创世的事情，界2解密二人组<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
