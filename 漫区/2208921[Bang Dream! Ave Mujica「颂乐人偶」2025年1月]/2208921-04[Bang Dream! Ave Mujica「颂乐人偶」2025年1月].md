@@ -18720,3 +18720,118 @@ soyo还会去学校堵门吗<img src="https://static.saraba1st.com/image/smiley/
 看完web放送顺带把枪版也看了，等web出了再看一遍。爆！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪版来个地址
 
+
+*****
+
+####  AveMujica  
+##### 5912#         楼主| 发表于 2025-1-3 10:02
+
+官网更新无面具立绘
+[https://anime.bang-dream.com/avemujica/character/sakiko/](https://anime.bang-dream.com/avemujica/character/sakiko/)
+
+<img src="https://img.saraba1st.com/forum/202501/03/100207tqy887vlev7elkll.png" referrerpolicy="no-referrer">
+
+<strong>img_uika_1.png</strong> (63.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100208i94pfrfrrb5v9dzb.png" referrerpolicy="no-referrer">
+
+<strong>img_uika_2.png</strong> (82.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100204f4x1xw6fsn6wm2vd.png" referrerpolicy="no-referrer">
+
+<strong>img_mutsumi_1.png</strong> (76.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100204sk0gt0c841rrsv09.png" referrerpolicy="no-referrer">
+
+<strong>img_mutsumi_2.png</strong> (61.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100209ch337q6hk06bwtaa.png" referrerpolicy="no-referrer">
+
+<strong>img_umiri_1.png</strong> (70.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100208adecdn5zan8p1a4d.png" referrerpolicy="no-referrer">
+
+<strong>img_umiri_2.png</strong> (51.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100204a548vugllghnn1za.png" referrerpolicy="no-referrer">
+
+<strong>img_nyamu_1.png</strong> (59.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100205rxh2ht4x2i4mh13r.png" referrerpolicy="no-referrer">
+
+<strong>img_nyamu_2.png</strong> (52.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100205sf2mnorsrrwznnzi.png" referrerpolicy="no-referrer">
+
+<strong>img_sakiko_1.png</strong> (71.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/100205azp4qbfqjccc1ofq.png" referrerpolicy="no-referrer">
+
+<strong>img_sakiko_2.png</strong> (86.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 10:02 上传
+
+*****
+
+####  一心而用  
+##### 5913#       发表于 2025-1-3 10:03
+
+几个爱素隐藏糖：
+
+1. soyo知道爱音喜欢的喵梦亲，还能聊上几句。
+
+2. 爱音中签后，soyo无感情地回复：“太好了呢。”
+
+3. 灯本来已经低头在忙自己的事情了，爱音却邀请灯一起去，soyo却在爱音说出口的一瞬间立刻对灯说：“你不适应那种人多的地方吧。”言下之意爱音只能邀请自己了，因为灯不去立希一定也不去。
+
+4. 灯去的方案被立希否了，那么只剩下一个可能了。
+
+*****
+
+####  新HGCG  
+##### 5914#       发表于 2025-1-3 10:03
+
+喵梦就是红蜘蛛和眼镜蛇指挥官
+
+现实里你不会想要这种队友
+
+但是在虚构的戏里这种人能让这戏更精彩
+

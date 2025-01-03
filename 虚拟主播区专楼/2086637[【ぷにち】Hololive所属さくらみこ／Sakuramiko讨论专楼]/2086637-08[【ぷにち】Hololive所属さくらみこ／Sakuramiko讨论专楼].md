@@ -3490,3 +3490,26 @@ nene打不过体力杂鱼兔皇
 
 笑死
 
+
+*****
+
+####  holoan  
+##### 10607#         楼主| 发表于 2025-1-3 05:52
+
+<img src="https://img.saraba1st.com/forum/202501/03/055251ibgab2hgrj266e20.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 05:52 上传
+
+*****
+
+####  holoan  
+##### 10608#         楼主| 发表于 2025-1-3 09:54
+
+运营选的切片品味怎么说吧，不过最少减少了holomem的工作量
+
+mio真的是妈，一来现场就带一堆吃的
+

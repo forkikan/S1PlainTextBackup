@@ -747,3 +747,35 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 租了辆赛博皮卡塞满烟花开到大楼前面一枪把自己爆头了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundamff  
+##### 75#       发表于 2025-1-3 09:59
+
+这车炸了后 车灯还亮?
+
+
+*****
+
+####  andychen  
+##### 76#       发表于 2025-1-3 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092114&amp;ptid=2236346" target="_blank">弗里德里希大帝 发表于 2025-1-3 08:54</a>
+美国**证实，拉斯维加斯**酒店特斯拉爆炸案的制造者是现役美军绿色贝雷帽特种部队成员马修·利尔斯伯格（Ma ...</blockquote>
+从驻地看估计掺和了不少中东那边的脏事，信仰崩塌了吧
+
+*****
+
+####  FROST1997  
+##### 77#       发表于 2025-1-3 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67084910&amp;ptid=2236346" target="_blank">有毒的蘑菇 发表于 2025-1-2 11:47</a>
+
+监控视频截图
+
+可能是没搞到炸药，而用烟花和汽油替代。</blockquote>
+不是，大概是这人不专业。
+
+当然，这对于其他人来说是个好事。
+
