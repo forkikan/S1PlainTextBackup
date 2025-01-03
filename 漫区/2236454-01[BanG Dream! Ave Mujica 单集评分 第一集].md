@@ -935,3 +935,21 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 零剧透看的第一话，信息量很大，情绪过山车好评<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 mygo团成员和祥子的明暗滤镜对比也很有趣
 
+
+*****
+
+####  grax  
+##### 101#       发表于 2025-1-3 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092182&amp;ptid=2236454" target="_blank">废都刽子手 发表于 2025-1-3 09:02</a>
++1 对我来说，这集问题在并没有很好的回答祥子为啥要搞avemujica这个团</blockquote>
+母鸡卡是她对自己未来的投资啊
+其他成员相当于合伙人
+
+*****
+
+####  Aloereed  
+##### 102#       发表于 2025-1-3 10:30
+
+现在5分制相当于4.417分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

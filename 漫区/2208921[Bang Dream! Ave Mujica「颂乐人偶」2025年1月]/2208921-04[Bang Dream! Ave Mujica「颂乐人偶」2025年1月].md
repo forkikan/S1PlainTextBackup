@@ -18882,3 +18882,16 @@ pzk去看一下《激战》吧！
 谁来分析分析soyo是真心为灯考虑，怕灯去Live现场不适应才劝阻还是又别的小心思 ...</blockquote>
 soyo可能只是日常杠一下anno而已，一种条件反射行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名津流  
+##### 5920#       发表于 2025-1-3 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092823&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-3 10:10</a>
+
+asoul的珈乐/谭杉杉，可能是看着团队上升期快结束了就直接爆破跳船单干，还带什么“资本剥削”节奏，直接 ...</blockquote>
+哦，看前面楼层说相似，还以为是直播的时候扮演者直接把队友摄像头打开强行开盒呢<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+原来没这么爆啊
+
