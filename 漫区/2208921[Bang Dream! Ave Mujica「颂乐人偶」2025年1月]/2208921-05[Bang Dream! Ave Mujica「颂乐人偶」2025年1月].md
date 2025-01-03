@@ -656,3 +656,21 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 为什么要调侃一个独立自强的人生活窘迫……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很能理解
 
+
+*****
+
+####  挺好的  
+##### 5977#       发表于 2025-1-3 14:18
+
+<img src="https://pic1.imgdb.cn/item/6777806cd0e0a243d4ee6645.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  思绪云骞  
+##### 5978#       发表于 2025-1-3 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094831&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-3 13:57</a>
+
+为什么要调侃一个独立自强的人生活窘迫……不是很能理解</blockquote>
+可以理解成地狱笑话
+
