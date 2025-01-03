@@ -152,3 +152,11 @@
 
 节奏很怪，怎么看都是要一转黑深残啊
 
+
+*****
+
+####  k1no  
+##### 62#       发表于 2025-1-3 13:59
+
+这么好的人设，怎么配了这么肤浅的人物塑造<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
