@@ -513,3 +513,43 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 
 爆  大爆特爆  最狂
 
+
+*****
+
+####  cqc1021  
+##### 5964#       发表于 2025-1-3 13:07
+
+泥潭的专楼制度真的是好文明，隔壁满屏标题直球剧透真的受不了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  [皆神孝介]  
+##### 5965#       发表于 2025-1-3 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091857&amp;ptid=2208921" target="_blank">名津流 发表于 2025-1-3 08:17</a>
+
+爱素也是大涨，同款项链都带上了</blockquote>
+<img src="https://p.sda1.dev/21/c7cd999dfc9f6ff6bb93c6c36bb90d0d/项链对比.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 5966#       发表于 2025-1-3 13:10
+
+祥妈肯定是重要人物，都请大原了，而且pv和op甚至第一集全在明示人偶是重要线索道具，人偶又是祥妈的遗物
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥爹……我只能说别下次出场是直接寄了给祥子上强度的就行
+现在独角兽都明牌了，直接让拥有情报最多的睦掉线离开祥子甚至可能反手让黑睦给祥子来个重量级大活，摆明了要让祥子身处孤立无援的绝境
+
+*****
+
+####  一心而用  
+##### 5967#       发表于 2025-1-3 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67090663&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-1-2 23:54</a>
+
+反了，是成为我的母亲吧</blockquote>
+改好了
+<img src="https://p.sda1.dev/21/b28bf2f441492246d983b468f5b2a8f2/QQ图片20250103130812.jpg" referrerpolicy="no-referrer">
+
