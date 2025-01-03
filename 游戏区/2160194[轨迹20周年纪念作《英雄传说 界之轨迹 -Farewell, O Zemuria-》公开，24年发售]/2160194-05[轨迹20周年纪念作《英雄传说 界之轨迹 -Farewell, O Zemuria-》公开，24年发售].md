@@ -2828,3 +2828,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 就没想 ...</blockquote>
 就算还是十个编剧，我也不觉得能写好，界的结尾怎么接很考验编剧，加上还有轮回重置这种设定，我觉得他们写界这个剧情就没考虑过后果的，就想着给大家来个大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 7376#       发表于 2025-1-3 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096709&amp;ptid=2160194" target="_blank">一步成诗 发表于 2025-1-3 17:29</a>
+就算还是十个编剧，我也不觉得能写好，界的结尾怎么接很考验编剧，加上还有轮回重置这种设定，我觉得他们 ...</blockquote>
+不好说，当初闪3的剧情能把前面发生的所有事件全部串联起来证明肯定是有大纲的，不可能想到哪写到哪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
