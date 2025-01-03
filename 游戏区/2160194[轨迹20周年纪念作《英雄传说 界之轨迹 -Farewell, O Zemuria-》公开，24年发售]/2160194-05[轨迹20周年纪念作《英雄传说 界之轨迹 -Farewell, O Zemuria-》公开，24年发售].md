@@ -2777,3 +2777,11 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 别信你法，界多给一年也没弄的有多好，界2多给两年也不一定好的了哪去 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 7371#       发表于 2025-1-3 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说是多给一年，实际上开发还是前年年底开始的，同期还在做空RE和迷城2，界2实际情况也好不到哪去
+

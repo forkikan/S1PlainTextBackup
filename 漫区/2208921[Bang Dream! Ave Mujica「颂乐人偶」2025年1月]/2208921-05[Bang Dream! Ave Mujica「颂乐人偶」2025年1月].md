@@ -811,3 +811,66 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 睦头的语言模块变化，初中时像个仿生人，说话都不成句子的
 
+
+*****
+
+####  kenqqex  
+##### 5994#       发表于 2025-1-3 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091671&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-3 06:56</a>
+
+不太对，go第一个镜头是祥子去录音室，而祥子哭是在离开录音室之后。在哭的中间穿插的是祥子的回忆。
+
+— ...</blockquote>
+你直接开第一集看呀 去录音室之前还有一小段马路特写的
+
+*****
+
+####  结衣小比取  
+##### 5995#       发表于 2025-1-3 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092068&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-3 08:47</a>
+
+不对，为毛2024年了，霓虹还有送报纸的兼职可以做</blockquote>
+作品中应该是2019年，这是坛友的时间线考据
+[https://www.bilibili.com/read/cv39910363/](https://www.bilibili.com/read/cv39910363/)
+
+*****
+
+####  kenqqex  
+##### 5996#       发表于 2025-1-3 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094605&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-3 13:29</a>
+
+人在日本，不懂国内的新事物
+
+拼好饭是什么？</blockquote>
+下面那些人都没解释到最核心的一点
+
+拼好饭 十分难吃 勺子质量十分差 往往还送一瓶不知道什么野鸡牌子的饮料 十分难喝
+
+
+*****
+
+####  试制甲炮  
+##### 5997#       发表于 2025-1-3 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095335&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-3 14:51</a>
+
+想多了，且不说ccc组了就半个月，里面的人感情有没有那么深。立希从始至终都压根不在乎除了灯以外的c团 ...</blockquote>
+长期素食女士气炸的点怎么完全和惊世一跪那时候祥子气炸的点完全一样...
+
+*****
+
+####  一心而用  
+##### 5998#       发表于 2025-1-3 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094457&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-3 13:10</a>
+
+祥妈肯定是重要人物，都请大原了，而且pv和op甚至第一集全在明示人偶是重要线索道具，人偶又是祥妈的遗物
+
+ ...</blockquote>
+还有，一直没说祥妈的死因是吗？外公那句坚持得都够久了是什么意思？
+
+本来以为是车祸什么的，外公这句话感觉像是有家族遗传病。
+
