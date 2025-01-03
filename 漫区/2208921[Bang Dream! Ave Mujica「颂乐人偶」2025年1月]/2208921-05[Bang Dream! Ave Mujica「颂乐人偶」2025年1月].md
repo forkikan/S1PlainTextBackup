@@ -1820,3 +1820,21 @@ Have a little sin, so that I can recognize you among the angels.
 
 颓废和这不断升压不断炸的节奏不符合啊，甚至可能篇幅都不允许你角色颓废的。这节奏编剧折磨角色也是往这状态下颠簸比较符合直觉
 
+
+*****
+
+####  akiomn  
+##### 6083#       发表于 2025-1-4 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我只是说好听点叫颓废，说难听点就是被压力逼到极限了顶不住了不想管了，自己也爆了。比如说祥子好不容易解决了睦的问题，结果又碰上海玲和喵梦爆炸了，给祥子整了个大活，前脚祥子刚解决完睦的问题稍微回了点血，后脚又出大事了，这样祥子精神可能就顶不住了。这样只能初睦来解决问题了（然后速刷祥子接着把祥子拉回去收拾海喵）
+
+*****
+
+####  山ノ内花音  
+##### 6084#       发表于 2025-1-4 00:56
+
+唯一能确定的就是 这个虚假的光
+能让前期有一个情绪向上的单集
+要不然一路压抑到结局
+观众真能扛住吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
