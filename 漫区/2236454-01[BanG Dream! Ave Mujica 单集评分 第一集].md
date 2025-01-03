@@ -829,3 +829,14 @@ khara 的高达还是可以挣扎一下的，万一成了 top3 呢
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 92#       发表于 2025-1-3 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091398&amp;ptid=2236454" target="_blank">Reinhold 发表于 2025-1-3 01:54</a>
+
+祥爹应该是自己开摆引咎辞职了。赘婿，丈人本来就看不上他，心灵支柱老婆没了，给女儿说自己会努力的结果 ...</blockquote>
+母亲大人不知道还有没有病得严重之类回忆杀，这镜头一转就是遗像连个“缓冲”都没有照实与其说是冲击巨大倒不如说让人恍恍惚惚一点“现实感”都没有<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

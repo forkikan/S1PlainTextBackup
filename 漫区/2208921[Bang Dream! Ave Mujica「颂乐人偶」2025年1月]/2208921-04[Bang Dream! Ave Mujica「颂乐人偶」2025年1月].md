@@ -18393,3 +18393,44 @@ P站广告
 —— 来自 S1Fun</blockquote>
 为什么？搜了下没懂这个梗
 
+
+*****
+
+####  名津流  
+##### 5880#       发表于 2025-1-3 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091436&amp;ptid=2208921" target="_blank">帆前 发表于 2025-1-3 02:09</a>
+
+第一集个人目测CP股市：
+
+初祥小涨↑   从注视C团的第一次LIVE到Mujica组队，毫不犹豫的支持，无可置疑的青 ...</blockquote>
+爱素也是大涨，同款项链都带上了
+
+
+*****
+
+####  pzk  
+##### 5881#       发表于 2025-1-3 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091811&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-3 08:05</a>
+那是她亲爹</blockquote>
+只是觉得帮亲爹也得讲方法啊，她一开始无疑是选择了效率最低的方式。
+
+*****
+
+####  醋栗  
+##### 5882#       发表于 2025-1-3 08:22
+
+第一话太棒了，鸡皮疙瘩已经起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  pzk  
+##### 5883#       发表于 2025-1-3 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091791&amp;ptid=2208921" target="_blank">苏修 发表于 2025-1-3 08:00</a>
+妈死了就剩爹了，再不管爹双亲就全死了</blockquote>
+如果在第一集给祥子爹来个自杀未遂，强化一下“不管立马死”的紧迫感会好一点吧
+
