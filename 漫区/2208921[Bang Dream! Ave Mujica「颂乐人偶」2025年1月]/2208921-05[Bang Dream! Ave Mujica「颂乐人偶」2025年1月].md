@@ -1846,3 +1846,11 @@ Have a little sin, so that I can recognize you among the angels.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一路压抑到结局怎么搞，队友全炸初华后期也炸，祥子无力解决任何一个问题，结局要么be解散要么机械降神直接包饺子，怎么看都很糟糕吧
 
+
+*****
+
+####  IWS2000  
+##### 6086#       发表于 2025-1-4 01:09
+
+看了老外开黑，大家看到祥子说素世是个和善的人嘴角都翘起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1647,3 +1647,14 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 补个图</blockquote>
 这不是百综整活吗？怎么变成舅舅了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 169#       发表于 2025-1-4 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099207&amp;ptid=2236454" target="_blank">seki_m 发表于 2025-1-4 00:39</a>
+
+只有我觉得这是家族故意搞祥爸导演的一出左手倒右手扣黑锅么？赘婿常见桥段 ...</blockquote>
+女儿身体不好，去世后把赘婿赶出去，孙女变养女，延续了血脉又把继承权捏在自己信任的人手里，有动机，但不够邦邦
+
