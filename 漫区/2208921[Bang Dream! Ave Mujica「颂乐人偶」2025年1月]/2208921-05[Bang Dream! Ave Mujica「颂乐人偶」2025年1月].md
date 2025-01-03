@@ -1880,3 +1880,13 @@ Have a little sin, so that I can recognize you among the angels.
 
 我先来个预测，祥子必定在第一次见到灯的桥上准备自杀，被灯给救下来，这回旋镖必然要回来，工工整整<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 6090#       发表于 2025-1-4 02:04
+
+不可能一直压抑的，我还是猜测初华主线前会有一个虚假的和平
+
+突然的急转直下不是很折磨观众吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
