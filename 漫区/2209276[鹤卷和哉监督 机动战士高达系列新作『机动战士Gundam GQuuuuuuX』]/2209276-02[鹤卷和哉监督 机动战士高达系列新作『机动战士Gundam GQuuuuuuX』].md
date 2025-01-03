@@ -6054,3 +6054,15 @@ pv那个空中高度其实控制出力用浮游炮也没什么，感觉红高达
 那还有德金基 ...</blockquote>
 所罗门决战，联邦主力和观战的扎比一家全被精神力红高达暴走炸没了。史称宇宙世纪的第一次冲击。
 
+
+*****
+
+####  kykawaiii  
+##### 1913#       发表于 2025-1-3 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094167&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-3 12:29</a>
+一晚上补了两部eva剧场版。现在只想相信Khara</blockquote>
+是新剧场版吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

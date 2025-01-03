@@ -1107,3 +1107,24 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 主唱是星星，而恒星的最终归宿就是变成黑洞<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6019#       发表于 2025-1-3 17:12
+
+高尾奏音：
+
+命运的齿轮无法停止转动…🌙⚙️
+
+幼时的祥子、中学时代的祥子、现在的祥子……
+她背负的东西实在太沉重了。
+真想告诉她：“可以更脆弱一点哦。”并替她承受一切。😢
+
+希望祥子那如宝石般珍贵的心，能够有一天重新闪耀光芒。
+
+正在展开的#avemujica# 的故事，
+请一定陪伴到最后吧🕊
+
+<img src="https://p.sda1.dev/21/4a7dd287d9293de98979badfc9632cac/image.jpg" referrerpolicy="no-referrer">
+
