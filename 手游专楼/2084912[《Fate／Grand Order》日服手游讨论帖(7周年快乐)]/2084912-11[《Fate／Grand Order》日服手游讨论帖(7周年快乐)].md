@@ -9416,3 +9416,16 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 序，破，Q，the last kiss</blockquote>
 第一次去特异点F，并没有什么特别的感觉，因为独属于我的人理，我早已遇见（
 
+
+*****
+
+####  DARKGRAY  
+##### 15974#       发表于 2025-1-3 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096763&amp;ptid=2084912" target="_blank">marxel 发表于 2025-1-3 17:36</a>
+
+这话的感觉是，25年肯定会进终章，但终章也不是一个时间点而是一段
+
+然后11周年也还会有，意味着不会说25 ...</blockquote>
+突入终章那个没啥特别的，第一部也有特意搞个玩家大型联欢，但说白了啥时候进终章还是只能看玩家的个人想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

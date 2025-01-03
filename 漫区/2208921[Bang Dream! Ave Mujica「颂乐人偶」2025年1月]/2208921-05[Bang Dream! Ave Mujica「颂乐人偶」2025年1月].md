@@ -1299,3 +1299,19 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 
 需要瞒着高尾的剧情，我认为大概率还是指初华，这也对得上现在初华完美假面的人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 6037#       发表于 2025-1-3 19:31
+
+丰川祥子推动日本经济循环
+<img src="https://p.sda1.dev/21/2818f0944a8a5aae568da9abaef33144/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 6038#       发表于 2025-1-3 19:34
+
+说到唤醒睦，我就忍不住想到第一集里舞台剧里这句台词<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/b9c617554e4de33fd3455f088dddcfc8/image.jpg" referrerpolicy="no-referrer">
+

@@ -6115,3 +6115,16 @@ engage手游的IF剧情里鸭子提前出场帮哈曼平定格雷米叛乱，事
 
 最后还能善终，你就说气不气吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  线程召唤使  
+##### 1918#       发表于 2025-1-3 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097401&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-3 19:03</a>
+
+engage手游的IF剧情里鸭子提前出场帮哈曼平定格雷米叛乱，事实证明哈曼没鸭子还是不行。
+
+高达系列里几个大 ...</blockquote>
+善终不至于。
+
