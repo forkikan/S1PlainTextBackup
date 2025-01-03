@@ -1414,3 +1414,16 @@ OP人偶动了是祥妈偷偷用geass上号吗<img src="https://static.saraba1st
 
 祥妈为什么不是蓝毛
 
+
+*****
+
+####  Reinhold  
+##### 6047#       发表于 2025-1-3 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091846&amp;ptid=2208921" target="_blank">reagain 发表于 2025-1-3 08:14</a>
+
+为什么？搜了下没懂这个梗</blockquote>
+来源大概是 预告片里祥子哭的那一段弹幕里有人发“拼好饭被偷了”，泛式直播看到，锐评好笑然后被切片。
+
+今天重温，这一段做的真好啊，看得眼眶湿润，时隔一年的后劲在此刻释放。
+

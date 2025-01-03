@@ -1398,3 +1398,61 @@ ave mujika冲着流量去的，c团那几个实力强的就睦了，灯天赋性
 
 估计走的时候就已经打算跟丰川家剪切线了
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 145#       发表于 2025-1-3 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097554&amp;ptid=2236454" target="_blank">plazum 发表于 2025-1-3 19:28</a>
+
+主楼说的“史上最狂的十五年、拉开序幕”中的“史上最狂的十五年”是什么意思啊 ...</blockquote>
+官方自己的宣传，史上最狂<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/03/200804f6q5rq1q74hd5qas.jpg" referrerpolicy="no-referrer">
+
+<strong>05b669f277574e031a2485154571e35a_-9lddQ92ts-36u8K2cT3cSu0-hc.jpg</strong> (89.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 20:08 上传
+
+*****
+
+####  plazum  
+##### 146#       发表于 2025-1-3 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097823&amp;ptid=2236454" target="_blank">灼眼的夏娜酱 发表于 2025-1-3 20:08</a>
+
+官方自己的宣传，史上最狂</blockquote>
+又是日本人常用的“最狂”=“最强”的谐音梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是十五年又是什么意思呢
+
+
+*****
+
+####  AveMujica  
+##### 147#         楼主| 发表于 2025-1-3 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097554&amp;ptid=2236454" target="_blank">plazum 发表于 2025-1-3 19:28</a>
+主楼说的“史上最狂的十五年、拉开序幕”中的“史上最狂的十五年”是什么意思啊 ...</blockquote>
+史上最狂是武士道自己营销的营销词
+十五年来自某位看完全集的舅舅“十五年未有之大女主”
+
+*****
+
+####  AveMujica  
+##### 148#         楼主| 发表于 2025-1-3 20:15
+
+补个图
+<img src="https://p.sda1.dev/21/546f6bfa7bec0e5e0292f518de38281d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e1726111ccd40e3f7f80dafd8bf9ae04/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  伊迪潘宫森  
+##### 149#       发表于 2025-1-3 20:17
+
+因为这是邦邦企划动画，我知道结尾百分百大伙其乐融融包寿司，相应的对动画里这些角色处境的担忧就会减轻，代入感变弱了
+
+某种意义上算是被资本主义剧透了
+
