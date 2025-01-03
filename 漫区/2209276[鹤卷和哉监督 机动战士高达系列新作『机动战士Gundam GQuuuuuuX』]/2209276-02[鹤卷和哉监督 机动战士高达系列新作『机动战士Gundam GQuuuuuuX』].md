@@ -6443,3 +6443,43 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 二刺螈的事不用弄那么清楚，更何况是高达的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1950#       发表于 2025-1-3 22:08
+
+感觉女主是自己想打黑拳才去的，别人劝都劝不住的那种。除了大姐头好像就没一个人有半点支持她打黑拳的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 1951#       发表于 2025-1-3 22:12
+
+女主想寻求改变，然后从jk变通缉犯了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 1952#       发表于 2025-1-3 22:13
+
+不知道女主家庭状态如何，可能是想自己打工赚钱去地球看海的叛逆小姐姐一枚吖
+
+*****
+
+####  刺客ares  
+##### 1953#       发表于 2025-1-3 22:16
+
+妮娅安：“正常人才不会参加军团战。”
+
+黑拳组织四个人三个反对女主上机。
+
+大姐头嘴上给说明规则，实际换抗荷服的时候也扯领子上压力
+
+感觉真的是女主自己非常主动才能上机，上机之前她自己还很有信心
+
+还在那：“我们会赢，相信我。”
+
+设定上的平凡女高中生哪来的自信呢？
+
