@@ -5863,3 +5863,15 @@ v的残酷和欺诈只是表象，他的实质是富野自90年代以来一直�
 女反派巅峰得是哈曼吧</blockquote>
 哈曼没有卡迪公“颠”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1896#       发表于 2025-1-3 12:44
+
+ 本帖最后由 RE㐅ia 于 2025-1-3 12:46 编辑 
+<blockquote>猪突猛进R 发表于 2025-1-3 12:37
+哈曼没有卡迪公“颠”</blockquote>
+
+评判标准是癫的话那我不得不提一句tb后期的卡拉博士了（
+
