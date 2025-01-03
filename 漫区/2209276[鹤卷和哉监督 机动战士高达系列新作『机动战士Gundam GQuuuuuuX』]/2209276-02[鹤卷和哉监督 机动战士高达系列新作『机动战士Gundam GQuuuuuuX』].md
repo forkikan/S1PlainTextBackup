@@ -5769,3 +5769,22 @@ https://game.watch.impress.co.jp/docs/feature/1650545.html
 
 17号上映的是和剧场版一个形式，在上映周期内直接去在播的电影院买票就行吗？打算去看，但17号当天部门年会不能请假，最早18号才能到日本…
 
+
+*****
+
+####  Gysumitka  
+##### 1886#       发表于 2025-1-3 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67093386&amp;ptid=2209276" target="_blank">砂雪 发表于 2025-1-3 11:02</a>
+17号上映的是和剧场版一个形式，在上映周期内直接去在播的电影院买票就行吗？打算去看，但17号当天部门年会 ...</blockquote>
+是的，馆数也多，到地买票就行
+
+*****
+
+####  砂雪  
+##### 1887#       发表于 2025-1-3 11:08
+
+<blockquote>Gysumitka 发表于 2025-1-3 11:06
+是的，馆数也多，到地买票就行</blockquote>
+好的！谢谢～～
+
