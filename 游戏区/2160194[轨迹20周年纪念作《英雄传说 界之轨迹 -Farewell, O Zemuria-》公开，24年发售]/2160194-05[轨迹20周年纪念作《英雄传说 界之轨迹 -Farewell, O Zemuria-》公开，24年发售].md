@@ -2802,3 +2802,16 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 界2只有烂和更烂，难道在界这种基础下还能出什么良作吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7374#       发表于 2025-1-3 16:29
+
+<blockquote>一步成诗 发表于 2025-1-3 15:44
+界2只有烂和更烂，难道在界这种基础下还能出什么良作吗</blockquote>
+
+黎2的编剧加起来有十个人。界只剩下七个人。
+
+就没想做好
+

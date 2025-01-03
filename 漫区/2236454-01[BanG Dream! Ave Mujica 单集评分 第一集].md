@@ -1186,3 +1186,22 @@ Mujica剧情的发生时间应该比24年早，至于送报纸兼职，23年10�
 是家族企业亏钱了，这168也不见得都祥爹一人背负，说不定祥爹甚至都不 ...</blockquote>
 没有非得离开的理由，只不过是想跟着亲爹一起而已
 
+
+*****
+
+####  s1百综字幕组  
+##### 126#       发表于 2025-1-3 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67096021&amp;ptid=2236454" target="_blank">manyin1 发表于 2025-1-3 16:07</a>
+
+请问在哪能看到先行的第二第三话</blockquote>
+通过网盘分享的文件：鸡先行整合_字幕修正.zip
+
+链接：[https://pan.baidu.com/s/1x7yhHNaRyC5JXTKzaufsHg](https://pan.baidu.com/s/1x7yhHNaRyC5JXTKzaufsHg) 提取码: unic
+
+链接：[https://pan.quark.cn/s/9d77073e29a2](https://pan.quark.cn/s/9d77073e29a2) 提取码：heLz
+
+链接：[https://mypikpak.com/s/VOFGHCQOYgSGqk3U3gSay8Yfo1](https://mypikpak.com/s/VOFGHCQOYgSGqk3U3gSay8Yfo1) 提取码: unic
+
+解压码：Ave Mujica
+
