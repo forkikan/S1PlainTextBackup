@@ -553,3 +553,36 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 改好了
 <img src="https://p.sda1.dev/21/b28bf2f441492246d983b468f5b2a8f2/QQ图片20250103130812.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 5968#       发表于 2025-1-3 13:22
+
+到底谁是主角啊为啥初华是名单里第一个
+
+*****
+
+####  ytttsuuuba  
+##### 5969#       发表于 2025-1-3 13:23
+
+按照乐器排的，主唱/吉他/贝斯/鼓/键盘/DJ这样的顺序。所以你可以看到祥子排最后。
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 5970#       发表于 2025-1-3 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091846&amp;ptid=2208921" target="_blank">reagain 发表于 2025-1-3 08:14</a>
+
+为什么？搜了下没懂这个梗</blockquote>
+广为流传的一个表情包，祥子向天大哭配上了文字“我的拼好饭被偷了”
+
+<img src="https://img.saraba1st.com/forum/202501/03/132421uwb6w9n8a6wi8q0j.gif" referrerpolicy="no-referrer">
+
+<strong>dbb6e6e7598de43fb6930cc86e0bf05e171651964.gif</strong> (621.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 13:24 上传
+
