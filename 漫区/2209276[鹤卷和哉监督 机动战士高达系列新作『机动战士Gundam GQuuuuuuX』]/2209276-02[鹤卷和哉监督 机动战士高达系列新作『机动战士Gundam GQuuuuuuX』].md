@@ -6638,3 +6638,17 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 早说了女主巴纳吉位
 就看女二和男主谁是奥黛丽谁是利迪了
 
+
+*****
+
+####  RE㐅ia  
+##### 1969#       发表于 2025-1-4 03:50
+
+ 本帖最后由 RE㐅ia 于 2025-1-4 03:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098314&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-3 21:37</a>
+
+新剧场版是大赢两部，大赢一部，轮到感人大结局香党寻思怎么都该我赢了吧
+
+结果 ...</blockquote>
+在补漫画，本来以为这里才是香的主场，结果看到一半发现丽win的更厉害了。加戏比新剧场版还狠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
