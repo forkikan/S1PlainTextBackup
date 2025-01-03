@@ -105,3 +105,13 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/7bb8ded76ff7c1b59b530de9d2d71934/24670817358771732.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/6030036f010e61f4d4bdbf9c4a89af9e/Screenshot_20250103_121316_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeaha123  
+##### 59#       发表于 2025-1-3 13:00
+
+这动作戏成本不低的样子
+
+角色喊的那些招式台词挺中二的
+
