@@ -1780,3 +1780,14 @@ Have a little sin, so that I can recognize you among the angels.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼知道祥子炸不炸，不过如果四五集后还能顶着压力把队友拉回来到结局不炸，真是要封个传奇抗压王了
 但我总觉得独角兽对祥子不会那么简单的放过了，肯定要整点活，少说都得让祥子颓废个一两集吧
 
+
+*****
+
+####  哈曼的YY  
+##### 6079#       发表于 2025-1-4 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098759&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-3 22:55</a>
+
+鸡第一话复习元和二年白祥对soyo的看法的时候又想起这个地方来了，soyo对白祥来说无疑是比较重要的，最后 ...</blockquote>
+这个曲子应该不是随便安排的吧 网友都觉得是指爽女士 也就他算亚麻色头发
+
