@@ -18649,3 +18649,19 @@ KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
 soyo倒是看见睦和祥了也没爆炸，精神情况显著好转且稳定，看来爱音 先生 的治疗相当成功啊 ...</blockquote>
 soyo其实是非常爆炸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 5904#       发表于 2025-1-3 09:28
+
+我刻意把亮度拉满了，soyo其实炸了好几次。
+
+
+*****
+
+####  山ノ内花音  
+##### 5905#       发表于 2025-1-3 09:32
+
+soyo还会去学校堵门吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

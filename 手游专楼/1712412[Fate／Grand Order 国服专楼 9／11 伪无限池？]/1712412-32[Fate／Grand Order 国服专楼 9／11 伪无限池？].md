@@ -1241,3 +1241,30 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  marxel  
+##### 46934#       发表于 2025-1-3 09:26
+
+ 本帖最后由 marxel 于 2025-1-3 09:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092359&amp;ptid=1712412" target="_blank">Kon-El 发表于 2025-1-3 09:22</a>
+
+把客户端删了重装还是不行，设置好脚本之后，到放技能的时候就会点到取消导致技能放不出
+
+—— 来自 vivo ...</blockquote>
+BBC么？把新的那个选卡出台词的功能关掉，在游戏里面的设置里
+
+哦哦，fga啊，这个我没用过，不过八成也是类似原因（位置判断错了）
+
+*****
+
+####  Kon-El  
+##### 46935#       发表于 2025-1-3 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092383&amp;ptid=1712412" target="_blank">marxel 发表于 2025-1-3 09:26</a>
+BBC么？把新的那个选卡出台词的功能关掉，在游戏里面的设置里
+
+哦哦，fga啊，这个我没用过，不过八成也是 ...</blockquote>
+fga的，刚试了下把战斗菜单里技能确认关了就行了
+
