@@ -939,3 +939,13 @@ Soyo妈首先是个不会产生负面效应的正常人，当背景板起码是�
 —— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
 一个有手有脚的成年人，要自己的初中生女儿来补贴家用（都不说养活了），至少东亚社会是属于被批判的。
 
+
+*****
+
+####  qjw114514  
+##### 6004#       发表于 2025-1-3 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67095680&amp;ptid=2208921" target="_blank">枫林不见 发表于 2025-1-3 15:25</a>
+头发也是钕同的性器官</blockquote>
+希望幼年回忆里再来点梳头扎头发什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

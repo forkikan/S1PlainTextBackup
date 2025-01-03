@@ -2785,3 +2785,20 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说是多给一年，实际上开发还是前年年底开始的，同期还在做空RE和迷城2，界2实际情况也好不到哪去
 
+
+*****
+
+####  卢迪克  
+##### 7372#       发表于 2025-1-3 15:41
+
+京轨直接套用伊迪斯和扩建亚拉密斯就行了。另外做一些迷宫就行了。
+
+压力不大。
+
+*****
+
+####  一步成诗  
+##### 7373#       发表于 2025-1-3 15:44
+
+界2只有烂和更烂，难道在界这种基础下还能出什么良作吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
