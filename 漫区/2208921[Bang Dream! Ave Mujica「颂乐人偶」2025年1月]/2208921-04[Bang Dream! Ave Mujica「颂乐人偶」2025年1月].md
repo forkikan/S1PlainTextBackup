@@ -18835,3 +18835,21 @@ soyo还会去学校堵门吗<img src="https://static.saraba1st.com/image/smiley/
 
 但是在虚构的戏里这种人能让这戏更精彩
 
+
+*****
+
+####  ddy2811  
+##### 5915#       发表于 2025-1-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091776&amp;ptid=2208921" target="_blank">名津流 发表于 2025-1-3 07:57</a>
+
+基本不怎么看V，好奇这说的是哪位？什么事件？</blockquote>
+asoul的珈乐/谭杉杉，可能是看着团队上升期快结束了就直接爆破跳船单干，还带什么“资本剥削”节奏，直接把企划炸了个半死
+
+*****
+
+####  cauchua3  
+##### 5916#       发表于 2025-1-3 10:15
+
+谁来分析分析soyo是真心为灯考虑，怕灯去Live现场不适应才劝阻还是又别的小心思
+
