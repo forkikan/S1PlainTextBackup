@@ -1196,3 +1196,13 @@ new源为朝……<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 还债了还债了，TM的300石头连个金卡从者都没有，我说你不给我5星就算了，我认了，不至于4星都要还吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kon-El  
+##### 46930#       发表于 2025-1-3 08:44
+
+奇怪了，客户端更新之后fga就不能正常放技能了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

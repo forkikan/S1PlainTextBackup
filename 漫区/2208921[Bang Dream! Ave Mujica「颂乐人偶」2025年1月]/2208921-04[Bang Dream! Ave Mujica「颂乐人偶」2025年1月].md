@@ -18485,3 +18485,73 @@ KiLLKiSS听上头了，副歌旋律还有第2段预副歌的旋律写的真好()
 
 不戴难崩的假面后观感好了很多了。
 
+
+*****
+
+####  ads147147  
+##### 5889#       发表于 2025-1-3 08:47
+
+不对，为毛2024年了，霓虹还有送报纸的兼职可以做<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 5890#       发表于 2025-1-3 08:49
+
+官方的摘面具扭蛋
+<img src="https://p.sda1.dev/21/ce54f9cf8bc830bf6595aa2665d74c2f/001iVUoXly1hx6shoiul3j60xc0xc49l02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 5891#       发表于 2025-1-3 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67091895&amp;ptid=2208921" target="_blank">pzk 发表于 2025-1-3 08:23</a>
+
+如果在第一集给祥子爹来个自杀未遂，强化一下“不管立马死”的紧迫感会好一点吧 ...</blockquote>
+侧面来说她爹酗酒酗成这样，不说“不管立马死”也是“不管极有可能死”吧
+
+*****
+
+####  十九号大侠  
+##### 5892#       发表于 2025-1-3 08:54
+
+冬天醉酒，冻死在路边
+
+*****
+
+####  一心而用  
+##### 5893#       发表于 2025-1-3 08:56
+
+官网人设更新
+<img src="https://p.sda1.dev/21/09d4ff7d2f5bff7aeb4f53ab7d66f586/001iVUoXly1hx6vj9vzbfj60l40w8qaq02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/39086ab6e4cd67d4fb863e01a3e54ba9/001iVUoXly1hx6vj9w1vbj60l40w8dm102.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/af8f0e2c36751157c5e2d38054fb6cc0/001iVUoXly1hx6vj9qtscj60l40w8dk702.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/06007fe522fa332c614a119a54095711/001iVUoXly1hx6vj9r60fj60l40w842q02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/27cfd96121e9febbcf2636c15bc770e6/001iVUoXly1hx6vj9rjiyj60l40w8ae602.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4702c6a0748075371776989b296d0d14/001iVUoXly1hx6vj9vabhj60l40w879002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4bd3a701f9ab433440218c770d442f4c/001iVUoXly1hx6vj9vwbgj60l40w844z02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/27fe988a07b5f9bfc466e8a6fd4eeac1/001iVUoXly1hx6vj9uptmj60l40w80wr02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/194b67b413dc5a25d1429e37bac0e3f0/001iVUoXly1hx6vj9ur2jj60l40w8tei02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/aacfd24c11a113ae0a0ecbeda4a1be71/001iVUoXly1hx6vj9vcnzj60l40w8wkb02.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/4e518f3bbfa6deaabe9b0287fd4aa685/001iVUoXly1hx6vj9w2dej60l40w879d02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f6dd17385dbf4b673b235740dc54e82a/001iVUoXly1hx6vj9ve1tj60l40w8n3v02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f6dd17385dbf4b673b235740dc54e82a/001iVUoXly1hx6vj9ve1tj60l40w8n3v02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9da85d40109c6b6f67b65f7bfb9a3716/001iVUoXly1hx6vj9ve3vj60l40w8jwn02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ff49d651854bbb0e942061aa4df27842/001iVUoXly1hx6vj9uph3j60l40w8gr902.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/aa8727cca591ee726789c2cbb2ce0b6e/001iVUoXly1hx6vj9uiodj60l40w8af702.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 5894#       发表于 2025-1-3 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092068&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-3 08:47</a>
+
+不对，为毛2024年了，霓虹还有送报纸的兼职可以做</blockquote>
+夕阳产业反而更有可能为了节省支出而雇佣一些其实不太适合的人群去做吧
+
+pico里面也有麻里奈为了填补circle的装修费用去送报纸的小动画
+
