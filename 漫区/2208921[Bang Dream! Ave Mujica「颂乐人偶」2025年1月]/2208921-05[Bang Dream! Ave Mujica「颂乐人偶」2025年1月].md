@@ -586,3 +586,43 @@ nga需要的是一个大热动画讨论版，一个普通动画讨论版，还�
 
 2025-1-3 13:24 上传
 
+
+*****
+
+####  新HGCG  
+##### 5971#       发表于 2025-1-3 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094567&amp;ptid=2208921" target="_blank">蚊仔蚊仔蚊仔 发表于 2025-1-3 13:24</a>
+
+广为流传的一个表情包，祥子向天大哭配上了文字“我的拼好饭被偷了”</blockquote>
+人在日本，不懂国内的新事物
+
+拼好饭是什么？
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 5972#       发表于 2025-1-3 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094605&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-3 13:29</a>
+
+人在日本，不懂国内的新事物
+
+拼好饭是什么？</blockquote>
+美团一种外卖形式，在附近地段拼单让店家和外卖员统一配送。特点是价格比一般单点的外卖便宜，非极端天气也不用配送费。
+
+祥子拼好饭就是对她生活窘迫的一种调侃。
+
+*****
+
+####  光MIKAN  
+##### 5973#       发表于 2025-1-3 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67094605&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-3 13:29</a>
+
+人在日本，不懂国内的新事物
+
+拼好饭是什么？</blockquote>
+美团外卖的优惠，和别人拼单会优惠很多<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">然后有些外卖不会送到家门口，会放在小区/办公楼门口，有人会偷拿别人的餐
+
