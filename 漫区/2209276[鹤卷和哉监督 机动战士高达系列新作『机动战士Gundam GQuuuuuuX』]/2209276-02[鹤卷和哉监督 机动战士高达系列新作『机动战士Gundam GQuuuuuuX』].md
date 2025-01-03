@@ -6418,3 +6418,28 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 从最早的时候看动画就喜欢安安静静的角色<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，可能和小时候必须躲着爹妈偷偷看有关（？
 
+
+*****
+
+####  PascalLefèvre  
+##### 1947#       发表于 2025-1-3 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098410&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-3 21:48</a>
+
+我当时刚从炮s出来觉醒了傲娇控的属性所以看破的时候还是香党。这些年渐渐的发觉了三无的好，重看的时候开 ...</blockquote>
+感觉超炮的美琴真的没有很傲娇，尤其是和同期的那几个代表性的傲娇角色相比<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 1948#       发表于 2025-1-3 22:03
+
+女主角如果是完全没有MS驾驶经验但是被拉去打黑拳，这中间的逻辑真的想不到该怎么填
+
+*****
+
+####  番茄牛奶  
+##### 1949#       发表于 2025-1-3 22:07
+
+二刺螈的事不用弄那么清楚，更何况是高达的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
