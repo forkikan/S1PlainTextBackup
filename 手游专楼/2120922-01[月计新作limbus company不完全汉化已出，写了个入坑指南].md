@@ -226,3 +226,161 @@
 
 （休伯特直呼内行）
 
+
+*****
+
+####  Jamaisvu  
+##### 1041#       发表于 2025-1-3 19:00
+
+2025.1.9—1.23，瓦夜开启。
+
+新人格，句点夫和句点宝：
+
+<img src="https://img.saraba1st.com/forum/202501/03/185322yrz2npotmt4rrtnn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184545.jpg</strong> (155.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185322bozahz40ccwmpv2h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184604.jpg</strong> (180.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185323thepnulnyxryher8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184710.jpg</strong> (218.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:53 上传
+
+小夫穿上西装后更像罗兰了，掩不住的鳏夫气质。
+
+<img src="https://img.saraba1st.com/forum/202501/03/185401v1adl9seahldg4en.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184722.jpg</strong> (193.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185401gonn26rgjjgajtna.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184736.jpg</strong> (219.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185401buaub48sbttbaess.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184849.jpg</strong> (225.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:54 上传
+
+宝子这身真帅，换了发型显得干净利索，动作有些像DNF的枪剑士。
+
+<img src="https://img.saraba1st.com/forum/202501/03/185828mch2yi3gd5l2yu2l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184802.jpg</strong> (190.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:58 上传
+
+句点宝三个技能都演示了两次，应该是buff叠到一定层数获得强化。
+
+这两个人格好像有特殊的连携机制：当一者在场上一者在后备时，防御技能拼点胜利能让队友上来攻击一次。
+
+新敌人是齿轮教团：
+
+<img src="https://img.saraba1st.com/forum/202501/03/190036ae09zks0gfmymmf6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_185152.jpg</strong> (174.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185757j02wdtzdjwtrjmti.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184936.jpg</strong> (202.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185757bjzxqoodc9v6rp8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184641.jpg</strong> (131.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 18:57 上传
+
+当初句点三人组就是接单刺杀齿轮教主艾琳，结果被救驾的苍蓝残响吓得躲进了图书馆。现在可能和臼齿三人组一样也平静或贫净地生活在都市中吧...
+
+新EGO是魔弹射手奥提斯的售后，奥提斯EGP魔弹射手：
+
+播音员是安保部的netzach和句点三地鼠。
+
+<img src="https://img.saraba1st.com/forum/202501/03/190046kwl1v6vexx0v6e0q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250103_184913.jpg</strong> (188.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-3 19:00 上传
+
+Screenshot_20250103_185020.jpg
+(159.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 18:59 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185901pmpwmwpnawm3wspc.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20250103_185043.jpg
+(235.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 18:59 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185919d47leuv4yadaogok.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20250103_185119.jpg
+(167.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-3 18:59 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202501/03/185919h2x3lg1532x8sr7r.jpg" referrerpolicy="no-referrer">
+
