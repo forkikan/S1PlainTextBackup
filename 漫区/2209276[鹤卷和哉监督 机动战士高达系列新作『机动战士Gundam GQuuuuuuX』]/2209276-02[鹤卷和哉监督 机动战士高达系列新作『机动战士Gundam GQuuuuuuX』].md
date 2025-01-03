@@ -5731,3 +5731,23 @@ https://x.com/_take_oekaki/status/1874341396892754008
 
 红的补色不是青或绿吗？
 
+
+*****
+
+####  刺客ares  
+##### 1882#       发表于 2025-1-3 10:49
+
+让熟悉竹姐人设的宝批来抓抓要素吧
+
+不过也不用考据啥，直接看oped就行了，这个一般不骗人
+
+考据半天要素对仗，一到正片秒变路边<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双菜  
+##### 1883#       发表于 2025-1-3 10:53
+
+高达op欺诈的确实少
+

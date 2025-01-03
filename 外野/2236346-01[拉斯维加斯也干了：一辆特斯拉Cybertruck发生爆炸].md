@@ -805,3 +805,24 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 要不是搞的汽车炸弹
 这成分简直是亚伦二代<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magus  
+##### 81#       发表于 2025-1-3 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092906&amp;ptid=2236346" target="_blank">L.L 发表于 2025-1-3 10:19</a>
+同一天开车撞人那个退役+离婚2次 人生毁了那么做。这个居然是现役+标准精英会这么做没想到。这到底发生了 ...</blockquote>
+失败线的生死狙击？
+
+*****
+
+####  mj240608414  
+##### 82#       发表于 2025-1-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67092906&amp;ptid=2236346" target="_blank">L.L 发表于 2025-1-3 10:19</a>
+同一天开车撞人那个退役+离婚2次 人生毁了那么做。这个居然是现役+标准精英会这么做没想到。这到底发生了 ...</blockquote>
+该不会是因为近期马斯克网上跟maga对喷的事，让这人对懂王失望因爱生恨了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
