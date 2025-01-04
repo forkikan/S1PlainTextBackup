@@ -7823,3 +7823,23 @@ sin gun dam<img src="https://static.saraba1st.com/image/smiley/face2017/035.png"
 
 影院总不能放着高达预告片在宣传舞冰吧（）
 
+
+*****
+
+####  oi99o  
+##### 2067#       发表于 2025-1-5 00:06
+
+舞冰应该没有上影院宣传的可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看明天会不会官宣
+
+
+*****
+
+####  刺客ares  
+##### 2068#       发表于 2025-1-5 00:12
+
+推上律师粉回想起21年采访他特意提了倒A，觉得他那时在补高达
+
+感觉八九不离十了，近几天就会官宣吧
+
+只能说律师加油，狠狠引流（
+
