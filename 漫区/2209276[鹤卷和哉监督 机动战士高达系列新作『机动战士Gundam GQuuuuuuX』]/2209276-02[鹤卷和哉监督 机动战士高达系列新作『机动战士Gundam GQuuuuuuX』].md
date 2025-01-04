@@ -6685,3 +6685,17 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 其中很多人物在看过戏言自绞首到完全过激这些之后再去读会比较有意思
 
+
+*****
+
+####  kykawaiii  
+##### 1972#       发表于 2025-1-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099528&amp;ptid=2209276" target="_blank">补天士 发表于 2025-1-4 04:37</a>
+说明厨得不够深啊……（大雾）。
+
+因为大结局很多内容藏了，必须得等出DLC（看看鹤卷还有没有动力出）</blockquote>
+还有这个角度啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

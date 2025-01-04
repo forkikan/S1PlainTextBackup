@@ -1297,3 +1297,11 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 大号170了，终于不用卡那恶心的1COST了。
 
+
+*****
+
+####  CHCL3  
+##### 46939#       发表于 2025-1-4 12:26
+
+<img src="https://p.sda1.dev/21/a1a0f476d3bbc7c63cf088dbdffaaabd/CMP_20250104122605548.jpg" referrerpolicy="no-referrer">漏油2025快乐
+
