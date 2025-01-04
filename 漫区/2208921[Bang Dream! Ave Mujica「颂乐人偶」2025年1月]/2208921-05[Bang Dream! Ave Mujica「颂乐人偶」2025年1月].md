@@ -2228,3 +2228,18 @@ ed其他人有代表物件而初华只有面具，是因为初华的面具下面
 睦祥之间肯定是更甜的，想想看软糯祥遇事了也不硬撑了直接找睦撒娇要帮助，开朗睦敢说话了不怕被误解了直 ...</blockquote>
 睦感觉会更积极表达自己的情绪和喜恶，或许会有犀利吐槽让人笑出声的毒舌属性？
 
+
+*****
+
+####  银酒监武  
+##### 6122#       发表于 2025-1-4 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100776&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-4 12:50</a>
+隔壁昨天挖了一晚上的那个初华空洞论，感觉是目前最能自圆其说甚至对得上大部分伏笔和访谈的假说了
+
+大意是 ...</blockquote>
+所以初华与灯的相反之处也可以这么解释？
+<img src="https://p.sda1.dev/21/d32776ea299a65322372c8158d7ba3ef/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

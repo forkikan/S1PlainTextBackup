@@ -500,3 +500,11 @@ sd的档在墙内优先级是最高的而且存档冲突不会提醒直接覆盖
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  吃货红毛  
+##### 46#       发表于 2025-1-4 13:42
+
+挺期待的 游戏销量达标的开发者可以给G胖申请OLED的 我给自己和美术各申请一台 等着到货嘞<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
