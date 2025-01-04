@@ -2105,3 +2105,18 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 目前看的假药里最搞的就是祥子爸那168亿其实是素世妈骗的
 
+
+*****
+
+####  江口夕  
+##### 6111#       发表于 2025-1-4 12:38
+
+ 本帖最后由 江口夕 于 2025-1-4 12:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100465&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-4 11:53</a>
+我倒是觉得肯定会有祥子边哭边看mygo最后一集tmr给她写的歌词的画面
+
+光是想想都觉得无比美味 ...</blockquote>
+灯那歌词感动不了的，什么都不了解写出来的不会直击内心，起码这季得再写一遍。这季key肯定是睦，身份摆那。其他人都是蚊帐外，哪怕初华
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -2149,3 +2149,15 @@ s1邦群并非邦群
 
 2025-1-1 14:00 上传
 
+
+*****
+
+####  CyDiablo  
+##### 26802#       发表于 2025-1-4 12:43
+
+ 本帖最后由 CyDiablo 于 2025-1-4 12:44 编辑 
+
+[【喵喵喵～喵喵喵！神秘联动即将登场？！-哔哩哔哩】](https://b23.tv/GMFm5lF)
+国服联动小豆泥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来是ksm彩彩ykn和msr拿出来联动
+<img src="https://p.sda1.dev/21/7c1c87d713fce8874c8b73cd84222912/e1048aa4-c008-460f-98e0-295a587855e2.png" referrerpolicy="no-referrer">
+
