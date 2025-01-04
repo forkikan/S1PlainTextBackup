@@ -2308,3 +2308,11 @@ https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172
 丰川祥子，出租屋没有浴室，要么回大宅洗，要 ...</blockquote>
 我在公司附近租的房子带浴室还有阁楼的都只要一个月三万……
 
+
+*****
+
+####  sauron.j  
+##### 6128#       发表于 2025-1-4 15:15
+
+大祥那套私服从离开宅子穿到现在都穿出几层包浆了吧，难怪大猫第一次见了觉得着装欠妥（二次元你少管）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
