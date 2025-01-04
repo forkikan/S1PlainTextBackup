@@ -1916,3 +1916,26 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 而喵可以这么做本身就是祥子考虑不周，祥子从一开始就没有阻止任何人摘面具的手段，是否取下面具一直都是成员自己可以做决定的。
 结合摘面具是“取回人类的姿态”这个设定的话，这个展开可以说是底层逻辑了，以喵梦为导火索所有人最后都要在舞台上变回人类
 
+
+*****
+
+####  aptx8285144  
+##### 194#       发表于 2025-1-4 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104241&amp;ptid=2236454" target="_blank">杂灰 发表于 2025-1-4 23:15</a>
+
+因为这个是舞台，喵这个先手已经掌握了全场的流向，而不破坏演出是所有人的底线
+
+而喵可以这么做本身就是 ...</blockquote>
+并不是，“露出真面目的话，世界观就毁了”这是前半部最终话她在后台阻止紫毛拍直播说的话（怕外界会通过视频发现紫毛就是台上面具里的谁谁谁），但没有预防突发事件的后手恐怕也是真得<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  66367749  
+##### 195#       发表于 2025-1-4 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104306&amp;ptid=2236454" target="_blank">aptx8285144 发表于 2025-1-4 23:25</a>
+并不是，“露出真面目的话，世界观就毁了”这是前半部最终话她在后台阻止紫毛拍直播说的话（怕外界会通过 ...</blockquote>
+啥手段都挡不住舞台上搞事吧，之前隔壁偶像团体的live不也有暴言的。而且防也是防外人狗仔的吧
+
