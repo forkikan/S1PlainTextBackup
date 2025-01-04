@@ -478,3 +478,15 @@ sd的档在墙内优先级是最高的而且存档冲突不会提醒直接覆盖
 论坛助手,iPhone</blockquote>
 和 ns版有什么区别吗？
 
+
+*****
+
+####  木竹九  
+##### 44#       发表于 2025-1-4 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100383&amp;ptid=2236540" target="_blank">shanajiang 发表于 2025-1-4 11:37</a>
+和 ns版有什么区别吗？</blockquote>
+没用ns打过<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
