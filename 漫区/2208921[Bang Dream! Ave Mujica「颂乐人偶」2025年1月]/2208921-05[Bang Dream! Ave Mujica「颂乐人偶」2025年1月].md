@@ -2296,3 +2296,15 @@ GgVkLSYaAAEivI8.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/04/144238d0m9c9rd8nll8y3l.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 6127#       发表于 2025-1-4 15:05
+
+<blockquote>raii 发表于 2025-1-4 14:43
+https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172
+
+丰川祥子，出租屋没有浴室，要么回大宅洗，要 ...</blockquote>
+我在公司附近租的房子带浴室还有阁楼的都只要一个月三万……
+

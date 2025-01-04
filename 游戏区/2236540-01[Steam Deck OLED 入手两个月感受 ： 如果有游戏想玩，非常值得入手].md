@@ -522,3 +522,15 @@ steamos是arch衍生系统, 自带了flatpak, 可以直接装flatpak里的版本
 而且flatpak难得没有被墙, 可以不用折腾直接安装, emudeck的脚本里都是被墙的网站....
 <img src="https://wx2.sinaimg.cn/large/006TwI0Uly1hx8ph4jyq5j31lv14lhdt.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  你好s1  
+##### 48#       发表于 2025-1-4 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099278&amp;ptid=2236540" target="_blank">慕容断月 发表于 2025-1-4 01:04</a>
+楼下提到了，在有梯子的环境下直接下emudeck，一路配置完毕，包括一键更新啥的功能都有，emudeck适合懒人 ...</blockquote>
+Steam商店本身也有Retroarch，简单的用这个也行，真没必要用Emudeck<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

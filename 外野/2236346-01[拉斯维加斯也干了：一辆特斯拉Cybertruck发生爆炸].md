@@ -854,3 +854,35 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 刻板川粉印象 感觉不像是编的⊙ω⊙
 
+
+*****
+
+####  星花  
+##### 85#       发表于 2025-1-4 15:00
+
+太离谱了，我觉得不是编的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  机吉斯卡  
+##### 86#       发表于 2025-1-4 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101391&amp;ptid=2236346" target="_blank">迪米特里 发表于 2025-1-4 14:54</a>
+
+南海的浪涛：
+
+“美军特斯拉自爆特种兵利维尔斯伯格留给主播Sam Shoemate的遗书，内容匪夷所思。
+
+大意是中美 ...</blockquote>
+艹，前几天我还在外野推荐鲱鱼阿婆的飞碟系列视频
+
+感觉这人只是纯粹脑子有问题那种
+
+*****
+
+####  猪突猛进R  
+##### 87#       发表于 2025-1-4 15:05
+
+失败主义谋士。
+
