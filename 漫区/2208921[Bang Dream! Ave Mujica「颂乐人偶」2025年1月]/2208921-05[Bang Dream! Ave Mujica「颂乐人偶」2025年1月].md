@@ -3465,3 +3465,11 @@ mygo初祥天台见面初华就说记得去年的live了，所以她肯定是看
 
 初海希三人的联系其实很近，很容易推进剧情
 
+
+*****
+
+####  最终兵器狂战  
+##### 6238#       发表于 2025-1-5 00:40
+
+没看过Mygo怎么办？—— 没看过Mygo那就去看Mygo啊！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -3004,3 +3004,14 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 接下来就稍微歇歇，然后让我尝尝黎2是啥味道的罢。<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 7391#       发表于 2025-1-5 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104577&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2025-1-5 00:28</a>
+
+黎1打完了，感觉这相当好嘛。人数8个刚刚好不至于装备都买不回来。即时制虽然没啥用但是当成战外补CP手段还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">勇士
+
