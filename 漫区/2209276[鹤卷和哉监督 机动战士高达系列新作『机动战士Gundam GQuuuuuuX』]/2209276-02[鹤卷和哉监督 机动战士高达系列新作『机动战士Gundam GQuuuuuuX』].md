@@ -7318,3 +7318,29 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 。
 
+
+*****
+
+####  刺客ares  
+##### 2024#       发表于 2025-1-4 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103515&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-4 21:18</a>
+
+蛮想吐糟PV里靠臂盾就把实弹射击全部挡下来的，是该说枪械的射弹散布太小了吗？还是有什么黑科技将子弹偏转 ...</blockquote>
+这里操作还行，右手热能斧是要冲上去近战，离对方很近所以枪口基本无散布
+
+举臂盾保护胸口驾驶舱，对方枪线是对着驾驶舱去的
+
+*****
+
+####  刺客ares  
+##### 2025#       发表于 2025-1-4 21:30
+
+<img src="https://img.saraba1st.com/forum/202501/04/213006pnhm1lgil61mzhim.png" referrerpolicy="no-referrer">
+
+<strong>1735997340360.png</strong> (121.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:30 上传
+
