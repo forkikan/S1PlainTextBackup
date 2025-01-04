@@ -1800,3 +1800,19 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我给好评，若叶睦真的是难得让我眼前一亮的巨魔美少女
 
+
+*****
+
+####  borrowface  
+##### 183#       发表于 2025-1-4 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099968&amp;ptid=2236454" target="_blank">Mikumiku831 发表于 2025-1-4 09:58</a>
+我是外公早笑嘻了
+
+之前想着祥子肯定几周就混不下去 到时接回来就行 让她吃吃苦也好
+
+没想到真的一年完全靠自 ...</blockquote>
+不一定，Mujica这么快能火，说不定本身就是丰川家调动资源捧起来的，更别说队里面除了祥子还有两出身显赫的。到时候祥子发现自己真就硬吃苦，看起来商业前途有模有样的乐队其实终究不是靠自己能力捧起来的，说不定就跟老爸一个样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
