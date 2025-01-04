@@ -7411,3 +7411,27 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 这段拉片才能看出牢修放了多大的水，以及GQX还是有盾牌的，虽然这面积的臂盾面对浮游炮没什么用
 
+
+*****
+
+####  刺客ares  
+##### 2029#       发表于 2025-1-4 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103693&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-4 21:42</a>
+
+女主这是真的喜欢玩斧子吗，如果热能斧真是从杂兵手上抢的那和原配的光束刀得差多少啊，后面还会给她直接定 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/04/215208y0w8n4kxx01x9aw9.png" referrerpolicy="no-referrer">
+
+<strong>1735998638870.png</strong> (322.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:52 上传
+
+这个不管怎么看都比热能斧厉害多了吧？
+
+绿光剑在SW是JD领袖象征，代表和平与生命
+
+在UC就没啥含义了，但出现在吉翁机上感觉怪怪的
+
