@@ -7861,3 +7861,22 @@ sin gun dam<img src="https://static.saraba1st.com/image/smiley/face2017/035.png"
 
 了解骡鸭纠葛和金发男大脑升级过程就行了
 
+
+*****
+
+####  王留美  
+##### 2071#       发表于 2025-1-5 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104682&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-5 00:58</a>
+
+补UC不就是元祖、zetaC、CCA三件套吗
+
+了解骡鸭纠葛和金发男大脑升级过程就行了 ...</blockquote>
+人家是问看GQX要补啥
+
+CCA都0096了关0085的GQX啥事
+
+说实话连Z都不用，补Z唯一的用处就是万一卡缪出来了能认个脸熟
+
+唯一确实要补的就是0079
+

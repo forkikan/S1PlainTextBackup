@@ -651,3 +651,16 @@ Steam商店本身也有Retroarch，简单的用这个也行，真没必要用Emu
 
 我更中意rog，sd性能不满意，买台机子就玩独立游戏我不是太能接受
 
+
+*****
+
+####  月夜凝雪  
+##### 59#       发表于 2025-1-5 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101417&amp;ptid=2236540" target="_blank">你好s1 发表于 2025-1-4 15:01</a>
+
+Steam商店本身也有Retroarch，简单的用这个也行，真没必要用Emudeck
+
+—— 来自 vivo V2352A, Android 14 ...</blockquote>
+Retroarch里哪个是PS3模拟器？看得我一头雾水
+
