@@ -9684,3 +9684,14 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 信了你们的邪 扔了十呼符 绿方块+10</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">还有护肤继续抽（
 
+
+*****
+
+####  qixinno2  
+##### 16000#       发表于 2025-1-4 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103173&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-4 20:24</a>
+
+还有护肤继续抽（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不可能出货扔着玩的 毕竟狮心王对我来说毫无意义 青子我也2宝了更是毫无意义
+
