@@ -544,3 +544,29 @@ G胖有说啥时候出SD2或者SD加强版么，仔细想了下，自己想在SD
 
 问题是怕买了加强版就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  含恨未了切莫死  
+##### 50#       发表于 2025-1-4 15:44
+
+ 本帖最后由 含恨未了切莫死 于 2025-1-4 15:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101515&amp;ptid=2236540" target="_blank">kyonkoism二号机 发表于 2025-1-4 15:21</a>
+
+G胖有说啥时候出SD2或者SD加强版么，仔细想了下，自己想在SD上打的游戏在NS上也基本没法玩，所以和NS2定位 ...</blockquote>
+可以等等明年的pc掌机，据说可能搭载steamos
+
+sd现在买确实尴尬，性价比优势也没了，我觉得至少最早26年末才会出sd2
+
+实在想买推荐二手区便宜收个二手
+
+*****
+
+####  脚本水平  
+##### 51#       发表于 2025-1-4 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101515&amp;ptid=2236540" target="_blank">kyonkoism二号机 发表于 2025-1-4 15:21</a>
+G胖有说啥时候出SD2或者SD加强版么，仔细想了下，自己想在SD上打的游戏在NS上也基本没法玩，所以和NS2定位 ...</blockquote>
+oled就是lcd的全方位加强版
+二代短期内不用指望了
+
