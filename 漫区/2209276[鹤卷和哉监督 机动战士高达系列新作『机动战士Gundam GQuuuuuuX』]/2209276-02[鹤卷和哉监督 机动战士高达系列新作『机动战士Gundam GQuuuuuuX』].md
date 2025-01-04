@@ -7103,3 +7103,29 @@ PV音画不同步的地方很多
 按帧盯了一下，gq6ux扔浮游的时候，机身上没有热能斧和腰后光束军刀手柄，面部红Y字为关闭状态遮住眼部</blockquote>
 gqx和扎古打不应该是在殖民卫星外，实际pv里前一个镜头是扎古在殖民卫星内开枪，下一个镜头看背景其实gqx这时是在殖民卫星外的宇宙里了。
 
+
+*****
+
+####  纪寞  
+##### 2008#       发表于 2025-1-4 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102930&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-4 19:44</a>
+
+也可能只是第一次光凭一股子义气上机了结果打起来未能痛下杀手，后来想明白了才有pv那句必须出手了不然死 ...</blockquote>
+我认为所有黑拳的战斗场地都应该是在宇宙中，看UC的殖民卫星内也没有足够大能容纳ms对战的封闭场地，而且pv里一场黑拳的镜头都不给也不正常。那我姑且认为pv一共展示两场战斗，一场殖民卫星内，一场宇宙中，而且分别对应女主没穿驾驶服和穿了驾驶服。
+
+*****
+
+####  0aleph37  
+##### 2009#       发表于 2025-1-4 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102984&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-4 19:51</a>
+
+gqx和扎古打不应该是在殖民卫星外，实际pv里前一个镜头是扎古在殖民卫星内开枪，下一个镜头看背景其实gqx ...</blockquote>
+那看你怎么看待扎古开枪和下一段gq6ux举臂盾之间的关系了
+
+至少个人认为举臂盾和下一段拽钢缆旋转是连续的，它们在背景上是一致的
+
+<img src="https://p.sda1.dev/21/46db63a95d4436b5db836786f0ceea69/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_195850.255.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3c820f6fbb3b75205e1e9cc3c1c787cc/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_195805.260.jpg" referrerpolicy="no-referrer">
+

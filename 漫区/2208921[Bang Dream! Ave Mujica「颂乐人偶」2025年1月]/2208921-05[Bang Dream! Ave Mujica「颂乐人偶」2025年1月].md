@@ -2622,3 +2622,14 @@ c团已经永远地死了，不知道官漫里面还有多少c团戏份
 是的，熊本方言。
 也就是喵梦和隔壁gbc的仁菜是同龄老乡。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 6160#       发表于 2025-1-4 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102540&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-4 18:49</a>
+
+为何爽世非要和祥子重新组队不可？</blockquote>
+爽世父母离异的经历让她渴望归宿和认同，C这个归宿是祥子给的，本来祥子就是C的绝对核心，既然核心退队导致整个团解散，自己又一直联系不上她，正好这时候爱音给了契机，那她脑子里的大概计划就是自己先努力把C团其他人找回来，最后再去请祥子，复兴大业就算成了
+

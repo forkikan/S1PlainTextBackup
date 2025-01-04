@@ -3725,3 +3725,32 @@ SPWN制作团队最强
 
 @saki_miyamoto
 
+
+*****
+
+####  holoan  
+##### 10627#         楼主| 发表于 2025-1-4 19:50
+
+上面那个是旧图了，然而miko真想要的是enako老师的cos<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外
+
+<img src="https://img.saraba1st.com/forum/202501/04/194910vylgt2oncgoyytzz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 19:49 上传
+
+昨天前半窗的数据，7千7会员大概是会限之外的常规直播窗一辈子里最高的一次了
+
+*****
+
+####  holoan  
+##### 10628#         楼主| 发表于 2025-1-4 20:04
+
+fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你今年准备输给外国人多少次
+
