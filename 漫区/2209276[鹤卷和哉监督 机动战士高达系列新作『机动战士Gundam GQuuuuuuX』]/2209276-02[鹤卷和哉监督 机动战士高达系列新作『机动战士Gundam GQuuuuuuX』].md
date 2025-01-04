@@ -7001,3 +7001,36 @@ jk女主平凡生活
 
 扎古再次杀回来，二人在殖民卫星外头将其击破。
 
+
+*****
+
+####  刺客ares  
+##### 1998#       发表于 2025-1-4 19:19
+
+<blockquote>双菜 发表于 2025-1-4 18:56
+感觉是扎古追捕到了修司，然后女主跳出来说用地下黑拳的方式来决斗，扎古输了就放过修司的展开 ...</blockquote>
+这样展开，鹤卷gg会得到jzgg同款麻将脸的（
+
+*****
+
+####  纪寞  
+##### 1999#       发表于 2025-1-4 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102711&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-4 19:14</a>
+
+起黄雾的时候麻球还站着没上机呢</blockquote>
+所以我才认为是女主卷入红高达和扎古的战斗中，此时双方都不知道对方是ms驾驶员
+
+
+*****
+
+####  纪寞  
+##### 2000#       发表于 2025-1-4 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102722&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-4 19:15</a>
+
+结合简介和pv来看我猜是这样的顺序：
+
+jk女主平凡生活</blockquote>
+我觉得扎古还是在一场战斗中就解决了，打杂兵打一次还打不完的话有点太丢份了，甚至还是警卫用扎古，不配打二战。之后是gqx和红高达对峙，我觉得红高达是想调查gqx的，可能是修司知道gqx就是升重改修过来的，所以想让女主出舱看看，但被女主认为是敌对行为。
+
