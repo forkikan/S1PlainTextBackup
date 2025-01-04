@@ -1986,3 +1986,20 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  akiomn  
+##### 6100#       发表于 2025-1-4 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画op里闪过的喵梦戴上面具那一帧还没回收
+重新戴上面具这个是有说法的
+
+
+*****
+
+####  山ノ内花音  
+##### 6101#       发表于 2025-1-4 10:25
+
+周边也要重新戴上面具吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
