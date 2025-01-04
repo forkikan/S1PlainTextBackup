@@ -490,3 +490,13 @@ sd的档在墙内优先级是最高的而且存档冲突不会提醒直接覆盖
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Sayuki1025  
+##### 45#       发表于 2025-1-4 13:20
+
+马上可以用sd玩 35起源了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
