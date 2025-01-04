@@ -2205,3 +2205,26 @@ ed其他人有代表物件而初华只有面具，是因为初华的面具下面
 
 [https://x.com/lysine_slmr/status/1875043778903552507](https://x.com/lysine_slmr/status/1875043778903552507)
 
+
+*****
+
+####  akiomn  
+##### 6120#       发表于 2025-1-4 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100881&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-4 13:07</a>
+楼太多了追不完
+
+向前看，将来解决以后，祥睦之间可能会很甜。双方如果都黑过，会比以前更加了解对方。爱素 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥之间肯定是更甜的，想想看软糯祥遇事了也不硬撑了直接找睦撒娇要帮助，开朗睦敢说话了不怕被误解了直接帮祥子。
+这俩问题没解决时候就挺甜的了，满脑子都是对方，解决了后恐怕是装都不装了直球说想的全是对方都有可能
+
+
+*****
+
+####  66367749  
+##### 6121#       发表于 2025-1-4 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101002&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-4 13:30</a>
+睦祥之间肯定是更甜的，想想看软糯祥遇事了也不硬撑了直接找睦撒娇要帮助，开朗睦敢说话了不怕被误解了直 ...</blockquote>
+睦感觉会更积极表达自己的情绪和喜恶，或许会有犀利吐槽让人笑出声的毒舌属性？
+
