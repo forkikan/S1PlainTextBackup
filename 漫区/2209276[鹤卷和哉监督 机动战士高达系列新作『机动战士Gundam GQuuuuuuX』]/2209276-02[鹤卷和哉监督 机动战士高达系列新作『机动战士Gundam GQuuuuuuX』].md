@@ -7223,3 +7223,29 @@ gq6ux头部的变化步骤不少
 第三步Y字上抬，Y字上类似螺栓结构插入
 <img src="https://p.sda1.dev/21/49b68c75d967988d35400a1075993e7b/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_204833.280.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 2017#       发表于 2025-1-4 20:59
+
+ 本帖最后由 RE㐅ia 于 2025-1-4 21:02 编辑 
+
+比较难蚌的是女主出击的时候是满配。光剑步枪该有的一个不少，结果打到后面除了毛过来的斧头啥都没有了。该不会是傻子那同款败家驾驶员吧（
+
+<img src="https://img.saraba1st.com/forum/202501/04/205935w5qqr6wnn8ua74ej.png" referrerpolicy="no-referrer">
+
+<strong>5939CB4A-A8BD-412B-87CD-216751DE0C39.png</strong> (167.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 20:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/205933tlsr9sj39374csj5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>37047762-815D-41D0-A98B-D3631FBD696F.jpeg</strong> (107.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 20:59 上传
+
