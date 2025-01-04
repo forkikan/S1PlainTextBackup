@@ -508,3 +508,17 @@ sd的档在墙内优先级是最高的而且存档冲突不会提醒直接覆盖
 
 挺期待的 游戏销量达标的开发者可以给G胖申请OLED的 我给自己和美术各申请一台 等着到货嘞<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风夏  
+##### 47#       发表于 2025-1-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098404&amp;ptid=2236540" target="_blank">月夜凝雪 发表于 2025-1-3 21:48</a>
+
+那看来挺适合我，PS3模拟器我只是想玩机器人大战这只3050e性能都可以跑的游戏，SD的CPU怎么都比那东西强 ...</blockquote>
+steamos是arch衍生系统, 自带了flatpak, 可以直接装flatpak里的版本, (pacman装的软件貌似会在系统更新之后删掉)
+
+而且flatpak难得没有被墙, 可以不用折腾直接安装, emudeck的脚本里都是被墙的网站....
+<img src="https://wx2.sinaimg.cn/large/006TwI0Uly1hx8ph4jyq5j31lv14lhdt.jpg" referrerpolicy="no-referrer">
+
