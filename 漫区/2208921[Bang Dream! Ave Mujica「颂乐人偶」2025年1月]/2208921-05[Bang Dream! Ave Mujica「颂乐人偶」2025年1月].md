@@ -2896,3 +2896,53 @@ pua这个说法已经很温和了，早点接受比较好
 
 还有谢谢所有人看我表演当乐子
 
+
+*****
+
+####  595505568  
+##### 6183#       发表于 2025-1-4 21:46
+
+<blockquote>allesdg 发表于 2025-1-4 21:41
+我也觉得你的描述有问题你接受反驳吗，不也是屁股决定立场张口闭口离不开帽子，思维这么跳跃是访谈让你很 ...</blockquote>
+我接受，但不是访谈，是其他论坛的问题
+
+*****
+
+####  魔法使夜子  
+##### 6184#       发表于 2025-1-4 21:48
+
+怎么你楼都吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 6185#       发表于 2025-1-4 21:50
+
+看不懂，不知道为什么突然有人应激了，看话术还以为穿越回去年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金属化反射装甲  
+##### 6186#       发表于 2025-1-4 21:53
+
+这位仁兄到底想表达什么？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲍里斯  
+##### 6187#       发表于 2025-1-4 21:53
+
+先扣帽子是祥厨干的，然后自己看不了记录就说别人扣帽子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Aendst  
+##### 6188#       发表于 2025-1-4 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是去年的味，不过好像更过激点都直接人身攻击了，虽然我不介意
+
+想说的是下次可以不用自爆自己被管理封过号的，这不是什么好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
