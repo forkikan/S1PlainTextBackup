@@ -3427,3 +3427,29 @@ mygo初祥天台见面初华就说记得去年的live了，所以她肯定是看
 
 初华摘面具真是太美了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 6235#       发表于 2025-1-5 00:16
+
+<img src="https://p.sda1.dev/21/9cc83fc761c980362500f10611ed8697/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 13 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_001401.694.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1cf98b29fbcfc89ce1ac6f77cf3b93f8/5.png" referrerpolicy="no-referrer">
+
+"我不会说一同享受这种空话"
+
+*****
+
+####  595505568  
+##### 6236#       发表于 2025-1-5 00:16
+
+ 本帖最后由 595505568 于 2025-1-5 00:20 编辑 
+<blockquote>[皆神孝介] 发表于 2025-1-4 23:40
+给坛友在论坛消息里发送了一些关于在网页端浏览信息的方法，希望坛友找得到怎么查看论坛消息。
+
+ ...</blockquote>
+
+我是手机新web抓到详细信息看不到他发过什么..不知道是不是前端的问题…PC之前就行的，手机新web点开对方详细的历史信息不知道为什么会调用我自己的记录
+
+总之还是谢谢了Orz
+
