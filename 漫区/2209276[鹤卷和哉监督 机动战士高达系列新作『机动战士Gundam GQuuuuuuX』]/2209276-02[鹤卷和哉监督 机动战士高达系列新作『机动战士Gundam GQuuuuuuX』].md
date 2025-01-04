@@ -7815,3 +7815,11 @@ sin gun dam<img src="https://static.saraba1st.com/image/smiley/face2017/035.png"
 
 这就是新时代的UC高达吗？
 
+
+*****
+
+####  Gysumitka  
+##### 2066#       发表于 2025-1-4 23:59
+
+影院总不能放着高达预告片在宣传舞冰吧（）
+
