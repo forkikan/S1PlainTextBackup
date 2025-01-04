@@ -2003,3 +2003,20 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 周边也要重新戴上面具吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瞳映山川  
+##### 6102#       发表于 2025-1-4 10:45
+
+就算真的重新带上面具了，版权图和周边也不要戴好吗，不要浪费五个人伟大的脸<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 6103#       发表于 2025-1-4 10:47
+
+也可以心中有面具，脸上无面具<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
