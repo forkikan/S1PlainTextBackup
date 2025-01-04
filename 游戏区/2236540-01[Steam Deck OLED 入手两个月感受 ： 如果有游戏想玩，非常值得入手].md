@@ -587,3 +587,17 @@ oled就是lcd的全方位加强版
 
 每次开游戏，进游戏属性把steam云关一下再开一下，等同步完再开游戏。
 
+
+*****
+
+####  leafS  
+##### 53#       发表于 2025-1-4 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101628&amp;ptid=2236540" target="_blank">含恨未了切莫死 发表于 2025-1-4 15:44</a>
+可以等等明年的pc掌机，据说可能搭载steamos
+
+sd现在买确实尴尬，性价比优势也没了，rog ally一代才3000块 ...</blockquote>
+rog哪里能3000拿到啊？我看都是3800左右<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
