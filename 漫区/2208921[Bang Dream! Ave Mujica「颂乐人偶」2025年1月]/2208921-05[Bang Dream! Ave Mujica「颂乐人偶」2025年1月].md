@@ -2671,3 +2671,57 @@ c团已经永远地死了，不知道官漫里面还有多少c团戏份
 那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组 ...</blockquote>
 因为这soyo这神人一直高强度骚扰c团成员，还pua教唆木子米已经不是一天两天了。在go的时候，连灯这么内向软弱喜欢自我归因的人都已经学会无视soyo的短信了，祥子更是早早把她拉黑了。你就知道她有多离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 6165#       发表于 2025-1-4 21:14
+
+ 本帖最后由 595505568 于 2025-1-4 21:19 编辑 
+<blockquote>厄神之息 发表于 2025-1-4 20:39
+因为这soyo这神人一直高强度骚扰c团成员，还pua教唆木子米已经不是一天两天了。在go的时候，连灯这么内向 ...</blockquote>
+
+我发现你们祥厨给别人的推扣帽子扣得水平是真的高；灯是你saki嘴到自闭的你不提；睦跟着soyo和pua有什么关系，应对情绪反转要到Go-8，上来就说PUA；说得难听点没有你祥子老师不说人话不肯正视自己食言命运共同体的约定有人家追着你的前提吗？
+
+来，第一话嘴灯的是谁；为什么灯前两话乐队组队PTSD
+
+来，睦和素世在同学眼里是良好的关系，素世一直想找睦帮忙找祥子重组CCC是pua吗
+
+
+*****
+
+####  吹楼伞人  
+##### 6166#       发表于 2025-1-4 21:21
+
+<img src="https://p.sda1.dev/21/fa4bd727fdf1b1cc6967a8b2b13b0435/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/eafdc9458443665873b8a6c4a532136f/image.jpg" referrerpolicy="no-referrer">
+
+[手岛](https://x.com/_17meisai23/status/1875531465607540770)
+手岛的祥子！
+
+*****
+
+####  RPG-7  
+##### 6167#       发表于 2025-1-4 21:23
+
+坏了 宁波火腿又奶上了！
+
+*****
+
+####  Aendst  
+##### 6168#       发表于 2025-1-4 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103496&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:14</a>
+
+我发现你们祥厨给别人的推扣帽子扣得水平是真的高；灯是你saki嘴到自闭的你不提；睦跟着soyo和pua有什么 ...</blockquote>
+你但凡看看对方发帖记录再来评估一下这个帽子要不要乱扣？什么贼喊捉贼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是说你默认只要说爽世离谱就一定是祥厨？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这是什么预设立场我不好说，但肯定很讨厌祥子和祥厨吧
+
+*****
+
+####  戸川凛  
+##### 6169#       发表于 2025-1-4 21:26
+
+这小圆脸在手島圆润的画风下更圆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
