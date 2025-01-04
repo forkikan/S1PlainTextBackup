@@ -1733,3 +1733,13 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 这倒是，祥子能力出众，外祖父肯定也高兴
 
+
+*****
+
+####  江口夕  
+##### 177#       发表于 2025-1-4 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">首先原文是祥爸背上公司被诈欺的责任，属于责任人，没说祥爸本人涉及被诈欺。这里面可说道的挺多。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
