@@ -465,3 +465,16 @@ sd的档在墙内优先级是最高的而且存档冲突不会提醒直接覆盖
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shanajiang  
+##### 43#       发表于 2025-1-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100178&amp;ptid=2236540" target="_blank">木竹九 发表于 2025-1-4 10:52</a>
+
+用sd打传送门太爽了
+
+论坛助手,iPhone</blockquote>
+和 ns版有什么区别吗？
+
