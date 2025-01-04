@@ -9541,3 +9541,52 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 从来没有觉得抽福袋开心过
 
+
+*****
+
+####  qixinno2  
+##### 15987#       发表于 2025-1-4 09:51
+
+<blockquote>alucardcz 发表于 2025-1-3 23:58
+怎么没有定力呢 一个个说好的不抽福袋才几天就坚持不住了</blockquote>
+你不是要抽青子么 坐等狗萌新豹跳
+
+*****
+
+####  alucardcz  
+##### 15988#       发表于 2025-1-4 14:43
+
+ 本帖最后由 alucardcz 于 2025-1-4 14:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099947&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-4 09:51</a>
+
+你不是要抽青子么 坐等狗萌新豹跳</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/04/144315ltzsbo2x05xg5b0g.png" referrerpolicy="no-referrer">
+
+<strong>343434.png</strong> (610.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 14:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">太稳了 漏油
+
+*****
+
+####  qixinno2  
+##### 15989#       发表于 2025-1-4 15:50
+
+<blockquote>alucardcz 发表于 2025-1-4 14:43
+太稳了 漏油</blockquote>
+欧 羡慕 不亏是狗萌新
+
+*****
+
+####  alucardcz  
+##### 15990#       发表于 2025-1-4 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101673&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-4 15:50</a>
+
+欧 羡慕 不亏是狗萌新</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">图都挂了你羡慕啥（
+
