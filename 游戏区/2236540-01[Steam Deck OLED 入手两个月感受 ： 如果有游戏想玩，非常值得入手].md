@@ -601,3 +601,16 @@ rog哪里能3000拿到啊？我看都是3800左右<img src="https://static.sarab
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  含恨未了切莫死  
+##### 54#       发表于 2025-1-4 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101952&amp;ptid=2236540" target="_blank">leafS 发表于 2025-1-4 16:50</a>
+
+rog哪里能3000拿到啊？我看都是3800左右
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+忘加限定词3000是二手，pdd 3500以下能买到新的
+

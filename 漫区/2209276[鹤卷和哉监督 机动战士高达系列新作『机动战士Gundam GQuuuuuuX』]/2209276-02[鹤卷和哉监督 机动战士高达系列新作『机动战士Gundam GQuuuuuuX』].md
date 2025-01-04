@@ -6862,3 +6862,13 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 最害怕的可能性是PV的部分要演12集
 
+
+*****
+
+####  RE㐅ia  
+##### 1986#       发表于 2025-1-4 17:48
+
+<blockquote>0aleph37 发表于 2025-1-4 17:36
+最害怕的可能性是PV的部分要演12集</blockquote>
+4集顶天了。 beginning的pv就那點東西
+

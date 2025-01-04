@@ -2405,3 +2405,61 @@ soyo不能在自己操作的时候妄想其他玩家本轮不操作
 
 那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组乐队可以接受且祝福，听到长崎素世的名字就反应那么大呢？
 
+
+*****
+
+####  yone0000  
+##### 6138#       发表于 2025-1-4 17:50
+
+第四话能不能看到黑睦头在月之森拷打素世<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 6139#       发表于 2025-1-4 17:51
+
+隔壁考据发这条的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">https://ngabbs.com/read.php?tid=42927834
+<img src="https://p.sda1.dev/21/bd07a01140530589a1146e5c00e305a6/image.jpg" referrerpolicy="no-referrer">
+
+ID有band大概率也是玩乐队的，后面1027大概率是生日。然后邦邦学校就那么几个，于是……
+<img src="https://p.sda1.dev/21/3e6c17c925fbb6f752347bb8149ef52e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 6140#       发表于 2025-1-4 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102191&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-4 17:39</a>
+那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组 ...</blockquote>
+她一眼就看穿的soyo的小算盘了吧，利用灯对于saki来说算是不能原谅的点
+
+
+*****
+
+####  刑部姬真可爱  
+##### 6141#       发表于 2025-1-4 17:54
+
+ 本帖最后由 刑部姬真可爱 于 2025-1-4 17:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102191&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-4 17:39</a>
+
+那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组 ...</blockquote>
+应该就是打听灯，爱音拉着灯去ktv的时候祥子是看见了的。
+
+听到soyo名字就应激主要是因为被soyo短信骚扰了很久，搞得她对soyo是有负面想法的，然后爱音在回她话的时候其实表情不是友好的那种，并且报出了soyo的全名，意思就是当时爱音是认为C团的解散，灯不想再组乐队等等是因为祥子，而祥子在听到爱音报出soyo名字后认为是soyo将c团解散这些是归咎于她并且告诉了爱音，所以最后祥子得出了soyo组新的乐队是在报复她的结论。
+
+*****
+
+####  狂热飞鸟  
+##### 6142#       发表于 2025-1-4 17:54
+
+利用睦才是祥子不能原谅的(她自己逼不得已利用睦组mujica都很自责)，灯组mygo祥子一直是祝福态度
+
+*****
+
+####  ykyin09  
+##### 6143#       发表于 2025-1-4 17:57
+
+哎呀这个ars怎么这么坏啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
