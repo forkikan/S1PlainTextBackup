@@ -7435,3 +7435,18 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 在UC就没啥含义了，但出现在吉翁机上感觉怪怪的
 
+
+*****
+
+####  纪寞  
+##### 2030#       发表于 2025-1-4 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103797&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-4 21:57</a>
+
+这个不管怎么看都比热能斧厉害多了吧？
+
+绿光剑在SW是JD领袖象征，代表和平与生命
+
+在UC就没啥含义了，但 ...</blockquote>
+所以我不懂为什么还要特地抢热能斧，甚至攻击面积都不如光束刀，除非她对斧子真的是那种无视性能的喜欢
+
