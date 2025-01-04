@@ -1816,3 +1816,23 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Mikumiku831  
+##### 184#       发表于 2025-1-4 17:43
+
+我都后悔给+1了
+
+多看了几次小祥洗碗 这甜糯的样子恨不得+10了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 185#       发表于 2025-1-4 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102165&amp;ptid=2236454" target="_blank">borrowface 发表于 2025-1-4 17:34</a>
+
+不一定，Mujica这么快能火，说不定本身就是丰川家调动资源捧起来的，更别说队里面除了祥子还有两出身显赫 ...</blockquote>
+一年的苦还是硬吃上的 问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
