@@ -1688,3 +1688,16 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 节奏啥的不提，内容全是不能细琢磨的东西，你都要把孙女拉过去当女儿了，是怎么又放任她跑去和自己看不 ...</blockquote>
 女要随爸这是一个外公能阻止的吗，逻辑稀碎
 
+
+*****
+
+####  s1百综字幕组  
+##### 173#       发表于 2025-1-4 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099216&amp;ptid=2236454" target="_blank">山ノ内花音 发表于 2025-1-4 00:41</a>
+
+这不是百综整活吗？怎么变成舅舅了？</blockquote>
+这图是我拍的啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+我也是听舅舅说的
+
