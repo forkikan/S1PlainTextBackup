@@ -2463,3 +2463,11 @@ ID有band大概率也是玩乐队的，后面1027大概率是生日。然后邦�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晓色暮云  
+##### 6144#       发表于 2025-1-4 18:07
+
+所以anon直接报名字的事情暴露了太多信息，直接把soyo的惊世智慧扼杀在腹中了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
