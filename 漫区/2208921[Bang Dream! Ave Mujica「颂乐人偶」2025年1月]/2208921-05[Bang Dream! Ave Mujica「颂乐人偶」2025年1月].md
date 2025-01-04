@@ -3481,3 +3481,16 @@ mygo初祥天台见面初华就说记得去年的live了，所以她肯定是看
 
 就不能单纯的是看ccc表演时初华眼里只有祥子所以压根没怎么注意其他人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 6240#       发表于 2025-1-5 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104481&amp;ptid=2208921" target="_blank">kauking 发表于 2025-1-5 00:04</a>
+
+第8集两人见面的时候她问祥子你组的那个乐队。。。。 祥子的回复是你能别提吗。。
+
+初华可能是想知道出什 ...</blockquote>
+嗯，c团也是很久不办了
+
