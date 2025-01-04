@@ -534,3 +534,13 @@ Steam商店本身也有Retroarch，简单的用这个也行，真没必要用Emu
 
 —— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kyonkoism二号机  
+##### 49#       发表于 2025-1-4 15:21
+
+G胖有说啥时候出SD2或者SD加强版么，仔细想了下，自己想在SD上打的游戏在NS上也基本没法玩，所以和NS2定位也不冲突
+
+问题是怕买了加强版就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
