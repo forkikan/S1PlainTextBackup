@@ -3777,7 +3777,7 @@
     "lastedit": 1735977180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 121777,
+    "totalreply": 121778,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1736031490,
+    "lastedit": 1736031728,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16668,10 +16668,10 @@
     "update": false
   },
   "2236454": {
-    "totalreply": 199,
+    "totalreply": 200,
     "title": "[BanG Dream! Ave Mujica 单集评分 第一集]",
     "newtitle": "[BanG Dream! Ave Mujica 单集评分 第一集]",
-    "lastedit": 1736015289,
+    "lastedit": 1736031849,
     "category": "漫区",
     "active": true,
     "update": false
