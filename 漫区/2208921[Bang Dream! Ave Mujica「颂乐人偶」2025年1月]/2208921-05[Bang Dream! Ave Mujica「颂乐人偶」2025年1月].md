@@ -3473,3 +3473,11 @@ mygo初祥天台见面初华就说记得去年的live了，所以她肯定是看
 
 没看过Mygo怎么办？—— 没看过Mygo那就去看Mygo啊！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 6239#       发表于 2025-1-5 00:52
+
+就不能单纯的是看ccc表演时初华眼里只有祥子所以压根没怎么注意其他人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1959,3 +1959,20 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 第一集 nico评分
 <img src="https://p.sda1.dev/21/f8ad82768236504772ae6c1053b0390e/~7D@V_MZW_689`_L69SWPIY.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 198#       发表于 2025-1-5 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101354&amp;ptid=2236454" target="_blank">蓮華 发表于 2025-1-4 14:44</a>
+
+当时这张海报里有列文虎克找出来的tgw物產应该就是とがわ豊川
+
+所以我觉得并不是切割了，想回去还是能随 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那毕竟小祥要脸
+
+你跟她说 好圣孙要出道 捧 上武道馆的钱我来出 那她肯定不干
+
+反过来你说我觉得这项目有搞头 我也投一笔赞助大家当商业伙伴 她就会同意了嘛
+
