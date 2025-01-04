@@ -2534,3 +2534,22 @@ ID有band大概率也是玩乐队的，后面1027大概率是生日。然后邦�
 
 那想必合格的粉丝必定能看穿祥子的假扮并大赞这是世界观和obmo的cp糖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 6152#       发表于 2025-1-4 18:49
+
+为何爽世非要和祥子重新组队不可？
+
+
+*****
+
+####  新HGCG  
+##### 6153#       发表于 2025-1-4 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102492&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-4 18:40</a>
+
+存过一个截图，仅供参考</blockquote>
+爱音就是素世命中注定的克星
+
