@@ -9590,3 +9590,39 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 欧 羡慕 不亏是狗萌新</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">图都挂了你羡慕啥（
 
+
+*****
+
+####  qixinno2  
+##### 15991#       发表于 2025-1-4 16:08
+
+<blockquote>alucardcz 发表于 2025-1-4 15:57
+图都挂了你羡慕啥（</blockquote>
+不用看图 狗萌新肯定出货了
+
+*****
+
+####  alucardcz  
+##### 15992#       发表于 2025-1-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101771&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-4 16:08</a>
+
+不用看图 狗萌新肯定出货了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">出个货而已 值得发图吗（
+
+*****
+
+####  qixinno2  
+##### 15993#       发表于 2025-1-4 16:27
+
+<blockquote>alucardcz 发表于 2025-1-4 16:09
+出个货而已 值得发图吗（</blockquote>
+这就是欧狗的自信么 羡慕了
+
+*****
+
+####  克苏鲁系青骑士  
+##### 15994#       发表于 2025-1-4 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">顺利在护符消耗完前开了美游图鉴！
+
