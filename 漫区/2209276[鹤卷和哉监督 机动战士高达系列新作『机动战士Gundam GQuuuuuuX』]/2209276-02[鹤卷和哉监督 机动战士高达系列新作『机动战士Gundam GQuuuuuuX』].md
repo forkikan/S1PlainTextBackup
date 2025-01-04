@@ -7249,3 +7249,41 @@ gq6ux头部的变化步骤不少
 
 2025-1-4 20:59 上传
 
+
+*****
+
+####  王留美  
+##### 2018#       发表于 2025-1-4 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102591&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-4 18:56</a>
+
+感觉是扎古追捕到了修司，然后女主跳出来说用地下黑拳的方式来决斗，扎古输了就放过修司的展开 ...</blockquote>
+你和警察讲道理？
+
+
+*****
+
+####  RE㐅ia  
+##### 2019#       发表于 2025-1-4 21:10
+
+<blockquote>王留美 发表于 2025-1-4 21:06
+你和警察讲道理？</blockquote>
+
+你和kbfz间谍讲道理？
+
+哦你真讲啊？
+
+哦她真听啊？行吧
+
+*****
+
+####  刺客ares  
+##### 2020#       发表于 2025-1-4 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103403&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-4 20:59</a>
+
+比较难蚌的是女主出击的时候是满配。光剑步枪该有的一个不少，结果打到后面除了毛过来的斧头啥都没有了。该 ...</blockquote>
+这里好歹还有热能斧和盾，和红高达打空战的时候直接两手全空<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上抢来的热能斧，全被打掉了，就一个裸机在天上机动躲浮游。
+
