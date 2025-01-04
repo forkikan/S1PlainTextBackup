@@ -7534,3 +7534,22 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 还有女主在殖民卫星内和扎古打完，那之后完全可以按**来抓，而且向上头报告查一下就知道gqx是升重高达改过来的，女主还可以被判个更严重的私用军用机密ms。但是看角色介绍后面还是能和红高达搭档打黑拳像没发生什么事一样。
 
+
+*****
+
+####  Gysumitka  
+##### 2040#       发表于 2025-1-4 22:52
+
+<img src="https://p.sda1.dev/21/4208b6c0ec7032c5fda981ba98b39ff9/image.jpg" referrerpolicy="no-referrer">
+主题曲是米津玄师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Grahamlinks  
+##### 2041#       发表于 2025-1-4 22:54
+
+<blockquote>RE㐅ia 发表于 2025-1-4 18:12
+创了个新作讨论群（其实是当年水魔讨论群改的），欢迎进来吹水。</blockquote>
+进去康康
+

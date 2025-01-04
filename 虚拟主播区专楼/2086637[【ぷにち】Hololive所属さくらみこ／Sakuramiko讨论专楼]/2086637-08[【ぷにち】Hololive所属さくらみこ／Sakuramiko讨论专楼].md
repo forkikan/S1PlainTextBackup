@@ -3785,3 +3785,30 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 2025-1-4 20:47 上传
 
+
+*****
+
+####  holoan  
+##### 10631#         楼主| 发表于 2025-1-4 22:38
+
+[https://x.com/tomo_momoda/status/1875547748059246900](https://x.com/tomo_momoda/status/1875547748059246900)
+
+隔空对话，你们俩干啥？
+
+*****
+
+####  holoan  
+##### 10632#         楼主| 发表于 2025-1-4 22:53
+
+刚才有人计算过了
+
+<img src="https://img.saraba1st.com/forum/202501/04/225244u4z2c72z7m9mruzu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 22:52 上传
+
+播了60小时，相当于5天内有一半以上的时间在直播
+
