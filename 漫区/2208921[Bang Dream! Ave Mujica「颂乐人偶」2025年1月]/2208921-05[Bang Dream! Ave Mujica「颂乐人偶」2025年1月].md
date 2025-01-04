@@ -2611,3 +2611,14 @@ c团已经永远地死了，不知道官漫里面还有多少c团戏份
 
 话说喵梦的方言是熊本弁吗，我看有人说她是熊本人
 
+
+*****
+
+####  一心而用  
+##### 6159#       发表于 2025-1-4 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102847&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-4 19:33</a>
+话说喵梦的方言是熊本弁吗，我看有人说她是熊本人</blockquote>
+是的，熊本方言。
+也就是喵梦和隔壁gbc的仁菜是同龄老乡。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

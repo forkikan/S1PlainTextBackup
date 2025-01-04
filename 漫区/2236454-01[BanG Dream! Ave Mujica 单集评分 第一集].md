@@ -1836,3 +1836,22 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 不一定，Mujica这么快能火，说不定本身就是丰川家调动资源捧起来的，更别说队里面除了祥子还有两出身显赫 ...</blockquote>
 一年的苦还是硬吃上的 问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gammatau  
+##### 186#       发表于 2025-1-4 19:38
+
+喵梦不知道内情，她视角就是：一个大小姐，跟家里闹别扭来玩乐队，有后路的。两个大小姐亲友，来给她心里治疗的。一个毫无感情的打工人，就自己一个要抓住机会阶级跃升，必须考虑这是不是此生仅有的机会，我不炒作谁炒！
+
+*****
+
+####  子夜微雪  
+##### 187#       发表于 2025-1-4 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102878&amp;ptid=2236454" target="_blank">gammatau 发表于 2025-1-4 19:38</a>
+喵梦不知道内情，她视角就是：一个大小姐，跟家里闹别扭来玩乐队，有后路的。两个大小姐亲友，来给她心里治 ...</blockquote>
+目前来看，这几个说法也没啥问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
