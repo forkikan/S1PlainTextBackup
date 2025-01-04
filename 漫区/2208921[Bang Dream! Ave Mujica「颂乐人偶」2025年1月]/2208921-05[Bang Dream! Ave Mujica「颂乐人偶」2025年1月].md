@@ -3494,3 +3494,14 @@ mygo初祥天台见面初华就说记得去年的live了，所以她肯定是看
 初华可能是想知道出什 ...</blockquote>
 嗯，c团也是很久不办了
 
+
+*****
+
+####  sdeplee  
+##### 6241#       发表于 2025-1-5 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104412&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-1-4 23:49</a>
+
+第一话 nico评分</blockquote>
+泥潭都有刚入坑的直接看母鸡卡看不懂呢 分低点正常
+
