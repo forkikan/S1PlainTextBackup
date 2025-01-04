@@ -9507,3 +9507,37 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 你月现在的问题是没卡想抽，利好白嫖了</blockquote>
 全从者复刻，你的钱包准备好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 15983#       发表于 2025-1-4 01:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">lxs现在都给你准备好为爱氪金的全年轮替池了，爱他就给它氪满宝120全被动，这次可没有啥突然复刻所以准备时间不够的借口了不是
+
+*****
+
+####  森兰丸  
+##### 15984#       发表于 2025-1-4 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099013&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-3 23:58</a>
+
+怎么没有定力呢 一个个说好的不抽福袋才几天就坚持不住了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人表示什么是福袋
+
+*****
+
+####  khxooo  
+##### 15985#       发表于 2025-1-4 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099204&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2025-1-4 00:38</a>
+你月现在的问题是没卡想抽，利好白嫖了</blockquote>
+全从者复刻，你的钱包准备好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 15986#       发表于 2025-1-4 08:23
+
+从来没有觉得抽福袋开心过
+
