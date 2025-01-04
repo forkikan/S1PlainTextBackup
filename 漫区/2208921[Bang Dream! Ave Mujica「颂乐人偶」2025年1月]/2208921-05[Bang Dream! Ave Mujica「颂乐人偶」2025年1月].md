@@ -3541,3 +3541,12 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 只听过一次而且还没有流媒的乐队，记不得脸完全正常啊
 
+
+*****
+
+####  一心而用  
+##### 6246#       发表于 2025-1-5 06:51
+
+已知是初华负责作词，如果初华把两个团的词搞混。
+<img src="https://p.sda1.dev/21/63f7fa1e43a30b6d31bbe6ed422583bb/image.jpg" referrerpolicy="no-referrer">
+
