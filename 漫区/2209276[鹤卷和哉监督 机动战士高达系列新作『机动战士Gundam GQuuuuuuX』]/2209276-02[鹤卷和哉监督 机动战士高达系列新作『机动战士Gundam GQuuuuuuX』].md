@@ -7450,3 +7450,51 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 在UC就没啥含义了，但 ...</blockquote>
 所以我不懂为什么还要特地抢热能斧，甚至攻击面积都不如光束刀，除非她对斧子真的是那种无视性能的喜欢
 
+
+*****
+
+####  Gysumitka  
+##### 2031#       发表于 2025-1-4 22:16
+
+名字都叫ジークアクス，专职斧也没啥问题，应该是真喜欢
+
+*****
+
+####  RedNetErp  
+##### 2032#       发表于 2025-1-4 22:18
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部）
+
+
+*****
+
+####  王留美  
+##### 2033#       发表于 2025-1-4 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103935&amp;ptid=2209276" target="_blank">RedNetErp 发表于 2025-1-4 22:18</a>
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部） ...</blockquote>
+啥都不用看
+
+*****
+
+####  wasssf  
+##### 2034#       发表于 2025-1-4 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103935&amp;ptid=2209276" target="_blank">RedNetErp 发表于 2025-1-4 22:18</a>
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部） ...</blockquote>
+由于是if线uc所以其实硬相关的没有，可能需要看的就是uc系或者全部高达甚至非高达的这些staff可能致敬的了
+
+*****
+
+####  刺客ares  
+##### 2035#       发表于 2025-1-4 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103935&amp;ptid=2209276" target="_blank">RedNetErp 发表于 2025-1-4 22:18</a>
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部） ...</blockquote>
+能看进去的话看一遍0079和Z就行
+
+直接看也可以，但估计有些彩蛋会看不出来
+

@@ -3054,3 +3054,46 @@ syl，三次元的话鸡狗对邦早就有了
 纸片人的话就别指望 ...</blockquote>
 Sumimi有个新人啊，美绪，不知道是什么乐器的，作词疑似，应该会从sumimi解散进新团吧（
 
+
+*****
+
+####  Mikumiku831  
+##### 6200#       发表于 2025-1-4 22:22
+
+纯路人（不对我很喜欢soyo<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">） 
+
+我也觉得soyo就是喜欢pua木头人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  08df1258c5ed098  
+##### 6201#       发表于 2025-1-4 22:23
+
+第一集这个做法似乎压根没考虑过观众要是没看过mygo怎么办。如果保持这种前后关系，大概也许是可以期待狗团和鸡团的个人对个人的剧情，而不是每次出场都是狗团全员打包混个镜头吧
+好吧我就是还惦记着灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  PDQ4  
+##### 6202#       发表于 2025-1-4 22:25
+
+管人团不是已经剧中看鸡动画了吗，破坏邦邦世界观了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+手游感觉进不了，但是进pico好像有莫大的优势，管人来了全盒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 6203#       发表于 2025-1-4 22:25
+
+<blockquote>Mikumiku831 发表于 2025-1-4 22:22
+纯路人（不对我很喜欢soyo） 
+
+我也觉得soyo就是喜欢pua木头人</blockquote>
+好吧…是我错了
+
+如果按照PUA的定义这下我从读书到现在上班几年没少被pua过（orz）
+
