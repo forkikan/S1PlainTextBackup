@@ -7739,3 +7739,27 @@ if线的话，其实补0079就够了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  刺客ares  
+##### 2060#       发表于 2025-1-4 23:38
+
+翻推看了，应该是有影院放了新的PV2，公布律师tie的主题曲，三个英文单词歌名，写在PV右下角
+
+<img src="https://img.saraba1st.com/forum/202501/04/233816akkjur67uu8kakg8.png" referrerpolicy="no-referrer">
+
+<strong>1736004970554.png</strong> (189.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/233824s1iwwzbaliw0gbml.png" referrerpolicy="no-referrer">
+
+<strong>1736005024821.png</strong> (174.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:38 上传
+
