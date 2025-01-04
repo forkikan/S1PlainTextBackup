@@ -6872,3 +6872,19 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 最害怕的可能性是PV的部分要演12集</blockquote>
 4集顶天了。 beginning的pv就那點東西
 
+
+*****
+
+####  RE㐅ia  
+##### 1987#       发表于 2025-1-4 18:12
+
+创了个新作讨论群（其实是当年水魔讨论群改的），欢迎进来吹水。
+
+<img src="https://img.saraba1st.com/forum/202501/04/181214cmds1paimzwmdurl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>78BBDFAF-D3F4-4AAE-AA87-DBF6795E6489.jpeg</strong> (275.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 18:12 上传
+

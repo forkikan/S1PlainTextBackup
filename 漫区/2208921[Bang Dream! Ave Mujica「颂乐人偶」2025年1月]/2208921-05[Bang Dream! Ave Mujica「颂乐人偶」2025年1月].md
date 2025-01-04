@@ -2471,3 +2471,21 @@ ID有band大概率也是玩乐队的，后面1027大概率是生日。然后邦�
 
 所以anon直接报名字的事情暴露了太多信息，直接把soyo的惊世智慧扼杀在腹中了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  remedios010000  
+##### 6145#       发表于 2025-1-4 18:09
+
+你们是组乐队还是打圣杯战争啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真名显现信息战都要藏的吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Yugao  
+##### 6146#       发表于 2025-1-4 18:16
+
+所以现在被哈基米真名看破了啊
+
