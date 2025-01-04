@@ -3369,3 +3369,22 @@ mygo刚开始的时候有自我介绍还带名字，第一次看前几集都不�
 之前你在楼里跟别人打滚偷换概念的时候没被人说爆点属于是感觉自己又行了？还是我web端试了半天都没法看 ...</blockquote>
 给坛友在论坛消息里发送了一些关于在网页端浏览信息的方法，希望坛友找得到怎么查看论坛消息。<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 6229#         楼主| 发表于 2025-1-4 23:49
+
+第一话 nico评分
+<img src="https://p.sda1.dev/21/f8ad82768236504772ae6c1053b0390e/~7D@V_MZW_689`_L69SWPIY.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6230#       发表于 2025-1-4 23:54
+
+<blockquote>AveMujica 发表于 2025-1-4 23:49
+第一话 nico评分</blockquote>
+意外的不高啊（主要中低评价挺多的）
+

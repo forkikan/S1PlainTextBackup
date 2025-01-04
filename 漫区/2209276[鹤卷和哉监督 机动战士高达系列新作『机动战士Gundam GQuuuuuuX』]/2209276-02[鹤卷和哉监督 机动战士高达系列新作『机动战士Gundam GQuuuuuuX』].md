@@ -7763,3 +7763,55 @@ if线的话，其实补0079就够了</blockquote>
 
 2025-1-4 23:38 上传
 
+
+*****
+
+####  刺客ares  
+##### 2061#       发表于 2025-1-4 23:48
+
+（三个英文单词？真不是隔壁舞冰的《BOW AND ARROW》吗？
+
+*****
+
+####  双菜  
+##### 2062#       发表于 2025-1-4 23:50
+
+三个英文单词
+sin gun dam<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  double8G  
+##### 2063#       发表于 2025-1-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103935&amp;ptid=2209276" target="_blank">RedNetErp 发表于 2025-1-4 22:18</a>
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部） ...</blockquote>
+我是觉得0079TV还是很值得一看的，再不济B站搜一下三三钢多拉，这位刚开始拉片讲解79的TV说的很实在，如果都因为道听途说就放弃TV版那真的太遗憾了，光头那些精心设计的行云流水的剧情演绎放到现在都很惊艳
+
+
+*****
+
+####  王留美  
+##### 2064#       发表于 2025-1-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104402&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-4 23:48</a>
+
+（三个英文单词？真不是隔壁舞冰的《BOW AND ARROW》吗？</blockquote>
+傾いた階段とコバルトブルーと椅子是敢达粉，肯定不可能搞错的
+
+*****
+
+####  中野梓  
+##### 2065#       发表于 2025-1-4 23:55
+
+<img src="https://img.saraba1st.com/forum/202501/04/235502ozaalixodex6mp1e.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20250104-235431.jpg</strong> (70.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:55 上传
+
+这就是新时代的UC高达吗？
+
