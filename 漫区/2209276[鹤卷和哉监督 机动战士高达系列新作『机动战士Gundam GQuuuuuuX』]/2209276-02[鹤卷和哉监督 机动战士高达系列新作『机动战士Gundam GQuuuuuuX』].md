@@ -7129,3 +7129,23 @@ gqx和扎古打不应该是在殖民卫星外，实际pv里前一个镜头是扎
 <img src="https://p.sda1.dev/21/46db63a95d4436b5db836786f0ceea69/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_195850.255.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/3c820f6fbb3b75205e1e9cc3c1c787cc/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_195805.260.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 2010#       发表于 2025-1-4 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103039&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-4 20:02</a>
+
+那看你怎么看待扎古开枪和下一段gq6ux举臂盾之间的关系了
+
+至少个人认为举臂盾和下一段拽钢缆旋转是连续 ...</blockquote>
+我认为扎古开枪和gqx举盾不是同一场战斗，只是通过剪辑让你觉得看起来像同一场战斗而已，不然从背景上怎么也无法解释
+
+*****
+
+####  0aleph37  
+##### 2011#       发表于 2025-1-4 20:17
+
+看了看PV所有出场角色的面相，麻球的眼睛起码是别人的两倍大
+

@@ -2968,3 +2968,13 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我记得东轨游戏里有本书提到过大东亚共荣圈
 
+
+*****
+
+####  Squall25  
+##### 7389#       发表于 2025-1-4 20:03
+
+就是日本人经典的yy二战自己没战败
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
