@@ -3097,3 +3097,53 @@ Sumimi有个新人啊，美绪，不知道是什么乐器的，作词疑似，�
 
 如果按照PUA的定义这下我从读书到现在上班几年没少被pua过（orz）
 
+
+*****
+
+####  Mikumiku831  
+##### 6204#       发表于 2025-1-4 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103982&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 22:25</a>
+
+好吧…是我错了
+
+如果按照PUA的定义这下我从读书到现在上班几年没少被pua过（orz） ...</blockquote>
+是这样的 也不用那么较真 细细回想人生就是读书被老师pua 上班被领导pua<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 6205#       发表于 2025-1-4 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103967&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-1-4 22:23</a>
+第一集这个做法似乎压根没考虑过观众要是没看过mygo怎么办。如果保持这种前后关系，大概也许是可以期待狗团 ...</blockquote>
+没看过mygo本来就没办法看avemujica啊，本来就相当于动画第二季。
+这动画即使隔了一季呼应也无处不在。
+比如第一次触碰新事物的祥子：
+<img src="https://p.sda1.dev/21/f3662caee698583de5f35fbf63a4aace/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4c022f587c1c067fbee4f0eab15121fa/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6206#       发表于 2025-1-4 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104020&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-4 22:31</a>
+没看过mygo本来就没办法看avemujica啊，本来就相当于动画第二季。
+这动画即使隔了一季呼应也无处不在。
+ ...</blockquote>
+接触虫子不害怕应该是呼应小时候和初华抓虫子的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 6207#       发表于 2025-1-4 22:34
+
+我确实应激上头扣帽子了，非常抱歉
+
+然后对于PUA问题的理解也是我的问题，给各位添笑了
+
+然后我不知道对方是不是串子，对不起
+
+然后可能我的好球区有重女系，非常抱歉
+
