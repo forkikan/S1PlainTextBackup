@@ -2507,3 +2507,30 @@ ID有band大概率也是玩乐队的，后面1027大概率是生日。然后邦�
 利用睦才是祥子不能原谅的(她自己逼不得已利用睦组mujica都很自责)，灯组mygo祥子一直是祝福态度 ...</blockquote>
 刚刚才发现祥的祝你幸福，是在经历了类似的境况后模仿她爹的
 
+
+*****
+
+####  ffam  
+##### 6149#       发表于 2025-1-4 18:35
+
+我突然想到一个事，喵梦不是有个睦的cos视频吗，那后面会不会有祥子扮成睦上去替睦接受采访的情节<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  结衣小比取  
+##### 6150#       发表于 2025-1-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102191&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-4 17:39</a>
+
+那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组 ...</blockquote>
+存过一个截图，仅供参考
+<img src="https://p.sda1.dev/21/5e795dc3bea47397a903a4ad3572af34/爱音帮Soyo在祥子面前扣分.jpg" referrerpolicy="no-referrer">            
+
+*****
+
+####  PDQ4  
+##### 6151#       发表于 2025-1-4 18:41
+
+那想必合格的粉丝必定能看穿祥子的假扮并大赞这是世界观和obmo的cp糖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -9626,3 +9626,16 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">顺利在护符消耗完前开了美游图鉴！
 
+
+*****
+
+####  qixinno2  
+##### 15995#       发表于 2025-1-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102349&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-4 18:09</a>
+
+图好了图好了（
+
+话说有珠几号啊(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗屎运 10号开始
+
