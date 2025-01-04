@@ -2042,3 +2042,12 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 現實一天大概是大少女樂團世界的12天
 
+
+*****
+
+####  一心而用  
+##### 6105#       发表于 2025-1-4 11:21
+
+二创祥子越来越木头了。
+<img src="https://p.sda1.dev/21/3cd949cc8a76694bdb11e61609cedf30/image.jpg" referrerpolicy="no-referrer">
+
