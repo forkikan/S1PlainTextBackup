@@ -2660,3 +2660,14 @@ c团已经永远地死了，不知道官漫里面还有多少c团戏份
 
 哎，生活破破烂烂，小祥缝缝补补。。。
 
+
+*****
+
+####  厄神之息  
+##### 6164#       发表于 2025-1-4 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102191&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-4 17:39</a>
+
+那么问题来了，如果深究的话，当时saki主动找anon搭话问组乐队的事情，是不是想打听灯呢？为什么爱音和灯组 ...</blockquote>
+因为这soyo这神人一直高强度骚扰c团成员，还pua教唆木子米已经不是一天两天了。在go的时候，连灯这么内向软弱喜欢自我归因的人都已经学会无视soyo的短信了，祥子更是早早把她拉黑了。你就知道她有多离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
