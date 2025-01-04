@@ -7621,3 +7621,121 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 因为ff16，我早和米津玄师和解了，望月放结尾我是越听越合适<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 2050#       发表于 2025-1-4 23:16
+
+找网红音乐人也没什么奇怪的吧
+
+*****
+
+####  Rhantolk  
+##### 2051#       发表于 2025-1-4 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103935&amp;ptid=2209276" target="_blank">RedNetErp 发表于 2025-1-4 22:18</a>
+
+借楼问一下想看GQuuuuuuX可能需要看哪些作品做些知识储备？（高达相关我只看过W、水星前半部） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要补那可就是UC全家桶安排上了
+
+*****
+
+####  刺客ares  
+##### 2052#       发表于 2025-1-4 23:17
+
+另外，不会是哪家日本影院草台班子把带op的PV2给放了吧，现在的预告都没写主题曲的
+
+*****
+
+####  Sliurus  
+##### 2053#       发表于 2025-1-4 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104252&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-1-4 23:16</a>
+
+真要补那可就是UC全家桶安排上了</blockquote>
+if线的话，其实补0079就够了，后面世界线变动更多
+
+*****
+
+####  Rhantolk  
+##### 2054#       发表于 2025-1-4 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104272&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-4 23:19</a>
+
+if线的话，其实补0079就够了</blockquote>
+单看0079其实没啥意思（
+
+
+*****
+
+####  Rhantolk  
+##### 2055#       发表于 2025-1-4 23:21
+
+<img src="https://img.saraba1st.com/forum/202501/04/232117mweimtj1ehq0s180.png" referrerpolicy="no-referrer">
+
+<strong>9A8F6DDE17DB5404E8814CFC00373FFD.png</strong> (539.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/232123l0k81oxdhh6uc22u.png" referrerpolicy="no-referrer">
+
+<strong>E57348CE895654DB15C5AC13F2EB50C8.png</strong> (523.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/232122wqyymkssospruzmi.png" referrerpolicy="no-referrer">
+
+<strong>8608A76430F4A7BD77D6D25B3EAF2BFF.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/232120oyybv1l5qbb6ul65.png" referrerpolicy="no-referrer">
+
+<strong>654ADA871BCAE4AB872DC4A2C81580B9.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 23:21 上传
+
+还挺可爱
+
+*****
+
+####  王留美  
+##### 2056#       发表于 2025-1-4 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104252&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-1-4 23:16</a>
+
+真要补那可就是UC全家桶安排上了</blockquote>
+不用全家桶，79+Z，最多再加上0080 0083 08th就够了
+
+*****
+
+####  创始’’’天翔  
+##### 2057#       发表于 2025-1-4 23:23
+
+鸡达不溜，你颤抖罢！
+
+*****
+
+####  0aleph37  
+##### 2058#       发表于 2025-1-4 23:23
+
+不知道这次世界观中科技树会不会有什么大的变化，吉翁胜利+所罗门第一次冲击应该会让nt/强化人方向的研究投入提升？
+
+*****
+
+####  PascalLefèvre  
+##### 2059#       发表于 2025-1-4 23:25
+
+至少代哥的棋子上不会有啥呗gw的三米大水口了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

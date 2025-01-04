@@ -3290,3 +3290,71 @@ mygo刚开始的时候有自我介绍还带名字，第一次看前几集都不�
 
 官方人士都说直接看没问题的话，那么Ave Mujica多半直接看也没关系，最多补一下那个动画播出前特别节目中的回顾部分，好像有40分24秒<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 6221#       发表于 2025-1-4 23:16
+
+<blockquote>金属化反射装甲 发表于 2025-1-4 23:13
+你看反了，他说的是祥对睦</blockquote>
+哦对..是我看错了，不好意思（
+
+*****
+
+####  [皆神孝介]  
+##### 6222#       发表于 2025-1-4 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104020&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-4 22:31</a>
+
+没看过mygo本来就没办法看avemujica啊，本来就相当于动画第二季。
+
+这动画即使隔了一季呼应也无处不在。
+
+ ...</blockquote>
+感觉有些牵强，下图对应的应该是第三话、第八话祥子不怕虫子
+
+*****
+
+####  Devola  
+##### 6223#       发表于 2025-1-4 23:18
+
+管人团挂着邦名头，有单独live，上过邦tv，给狗7th暖过场
+
+反正都有模型了，看有什么路数塞进动画
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  double8G  
+##### 6224#       发表于 2025-1-4 23:20
+
+差不多得了想怎么看动画不是个人自由吗，反过来说从中间看还能让人觉得好看的动画肯定是好动画，当然大部分动画其实没法全程满足一定量的水平就是了
+
+*****
+
+####  l159020  
+##### 6225#       发表于 2025-1-4 23:21
+
+开盒时的bgm也是导播搞的吧，除海玲以外其余4个都在揭面具的时候特意停顿一下来配合
+
+*****
+
+####  2287217595  
+##### 6226#       发表于 2025-1-4 23:23
+
+聊剧透就算了，路边舅舅消息还转，有病吧<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 6227#       发表于 2025-1-4 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104277&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-4 23:20</a>
+差不多得了想怎么看动画不是个人自由吗，反过来说从中间看还能让人觉得好看的动画肯定是好动画，当然大部分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是有中间安利比第一集安利更容易的《命运石之门》（从嘟嘟噜反复停表那集开始），不过ave mujica能否到这个水准还是要看能不能收好尾
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
