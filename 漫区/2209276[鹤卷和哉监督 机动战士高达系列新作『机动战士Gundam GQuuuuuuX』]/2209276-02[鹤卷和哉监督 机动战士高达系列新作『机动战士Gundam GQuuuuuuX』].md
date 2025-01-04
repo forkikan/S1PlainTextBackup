@@ -7149,3 +7149,15 @@ gqx和扎古打不应该是在殖民卫星外，实际pv里前一个镜头是扎
 
 看了看PV所有出场角色的面相，麻球的眼睛起码是别人的两倍大
 
+
+*****
+
+####  PascalLefèvre  
+##### 2012#       发表于 2025-1-4 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102591&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-4 18:56</a>
+感觉是扎古追捕到了修司，然后女主跳出来说用地下黑拳的方式来决斗，扎古输了就放过修司的展开 ...</blockquote>
+那uc青要犯ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
