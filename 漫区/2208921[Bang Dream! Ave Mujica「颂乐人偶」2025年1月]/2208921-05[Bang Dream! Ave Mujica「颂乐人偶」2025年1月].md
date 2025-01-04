@@ -2351,3 +2351,36 @@ https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172
 大祥那套私服从离开宅子穿到现在都穿出几层包浆了吧，难怪大猫第一次见了觉得着装欠妥（二次元你少管） ...</blockquote>
 saki的衣服就没拿几件吧，身上的行李除了一把电子琴就是一个装了人偶的箱子，人偶本身就要占很大一块地方了，就个人猜测可能私服就一到两套，然后校服是入学新买的两套就差不多了，甚至还没考虑冬季换厚的打底。霓虹jk可能冬天也穿夏装吧（不是）
 
+
+*****
+
+####  ytttsuuuba  
+##### 6132#       发表于 2025-1-4 15:47
+
+大家的衣服不都穿包浆了吗，这是3D建模的问题，不是祥子的问题，再怎么穷也不至于不换衣服<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 6133#       发表于 2025-1-4 15:47
+
+<img src="https://p.sda1.dev/21/6afa3068e30c0c0bede28bc3f07063dc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 6134#       发表于 2025-1-4 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101646&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2025-1-4 15:47</a>
+大家的衣服不都穿包浆了吗，这是3D建模的问题，不是祥子的问题，再怎么穷也不至于不换衣服 ...</blockquote>
+会不会衣柜门一拉，十套一模一样的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6135#       发表于 2025-1-4 15:50
+
+有一说一，从s2e1回头看soyo之前的处理，确实没有问题，saki本来就吃软不吃硬，如果只是soyo和saki接触，那天说不定还能问出点什么，坏就坏在立希看到灯犯难后直接突脸祥子，把本来就在矛盾中的祥子点炸了，睦那就不喜欢到底是真不喜欢还是给祥子台阶下其实意义都不是很大了，结果而言祥子说的重话直接把灯弄emo，灯不来这个乐队散伙是必然事件。
+
+所以soyo之后准备惊天智慧的时候第一时间就是把灯找回来，故而听到爱音的说法后马上转动自己磁场力量试图借尸还魂。本来事情两头推进肯定没问题，但是soyo没想到爱音还拿ccc的事试探过祥子，哦吼两头爆炸，祥子直接就对soyo产生了极高的警觉，从心理上就把soyo打向负面判定，导致最后的不要扯上关系事件，只能说信息站真的很重要。
+
