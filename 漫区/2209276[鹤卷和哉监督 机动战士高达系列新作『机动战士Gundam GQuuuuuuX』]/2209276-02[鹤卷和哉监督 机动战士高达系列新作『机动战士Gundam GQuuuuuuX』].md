@@ -7553,3 +7553,55 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 创了个新作讨论群（其实是当年水魔讨论群改的），欢迎进来吹水。</blockquote>
 进去康康
 
+
+*****
+
+####  Grahamlinks  
+##### 2042#       发表于 2025-1-4 22:56
+
+<blockquote>Gysumitka 发表于 2025-1-4 22:52
+主题曲是米津玄师</blockquote>
+米奇律师？真的假的？😨大咖来很正常但我感觉会是女歌手
+
+*****
+
+####  Gysumitka  
+##### 2043#       发表于 2025-1-4 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104161&amp;ptid=2209276" target="_blank">Grahamlinks 发表于 2025-1-4 22:56</a>
+米奇律师？真的假的？😨大咖来很正常但我感觉会是女歌手</blockquote>
+推上很多人都在影院预告片看到米津玄师名字了，这应该假不了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PascalLefèvre  
+##### 2044#       发表于 2025-1-4 23:00
+
+米奇律师也不算很意外吧，不知道ed会是谁<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刺客ares  
+##### 2045#       发表于 2025-1-4 23:01
+
+律师不是tie滑冰那个吗，看了一下是今天播，不会看错吗？
+
+当然是他也正常，tie过痞子的新奥，这回找来也不奇怪
+
+*****
+
+####  千恋万花  
+##### 2046#       发表于 2025-1-4 23:02
+
+推上搜了下好像就一两个人说在电影院的预告片上看到米津的名字，其他人都是听说了传言在询问真伪，也有说自己看过预告片没看到米津的，感觉这个消息可靠性暂时还不高
+
+*****
+
+####  Mitiru  
+##### 2047#       发表于 2025-1-4 23:04
+
+米津早已江郎才尽只会模板化康抽谁加威了…跟yoasobi也就半斤八两
+
