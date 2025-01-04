@@ -1765,3 +1765,14 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 大小姐的一次小小任性吃点苦而已，有兜底的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  aptx8285144  
+##### 179#       发表于 2025-1-4 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097873&amp;ptid=2236454" target="_blank">AveMujica 发表于 2025-1-3 20:15</a>
+
+补个图</blockquote>
+看到大女主三个字，还是忍不住想起22年的那个讽刺味道的夏天<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
