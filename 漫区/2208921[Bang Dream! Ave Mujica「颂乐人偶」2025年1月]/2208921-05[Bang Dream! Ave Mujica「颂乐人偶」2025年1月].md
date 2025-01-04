@@ -2059,3 +2059,13 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 第一集播放量已经202.5w了 不知道能不能一周内到300w
 
+
+*****
+
+####  莉缇娅  
+##### 6107#       发表于 2025-1-4 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我倒是觉得肯定会有祥子边哭边看mygo最后一集tmr给她写的歌词的画面
+
+光是想想都觉得无比美味
+
