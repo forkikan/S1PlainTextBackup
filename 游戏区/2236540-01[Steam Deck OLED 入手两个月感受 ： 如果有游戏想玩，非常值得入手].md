@@ -570,3 +570,20 @@ G胖有说啥时候出SD2或者SD加强版么，仔细想了下，自己想在SD
 oled就是lcd的全方位加强版
 二代短期内不用指望了
 
+
+*****
+
+####  busuji  
+##### 52#       发表于 2025-1-4 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67098045&amp;ptid=2236540" target="_blank">violettor 发表于 2025-1-3 20:50</a>
+
+丢一两次存档就铁吃灰了。
+
+只要你的游戏设备≥3，云存档就有极大概率丢失，我公司电脑，家里电脑，steam de ...</blockquote>
+可能是你的同步习惯不太好。
+
+每次关游戏，等云同步完再关机。
+
+每次开游戏，进游戏属性把steam云关一下再开一下，等同步完再开游戏。
+

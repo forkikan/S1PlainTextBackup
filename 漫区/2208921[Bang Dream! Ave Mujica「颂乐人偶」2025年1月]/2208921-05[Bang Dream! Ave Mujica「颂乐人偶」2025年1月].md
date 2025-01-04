@@ -2384,3 +2384,16 @@ saki的衣服就没拿几件吧，身上的行李除了一把电子琴就是一�
 
 所以soyo之后准备惊天智慧的时候第一时间就是把灯找回来，故而听到爱音的说法后马上转动自己磁场力量试图借尸还魂。本来事情两头推进肯定没问题，但是soyo没想到爱音还拿ccc的事试探过祥子，哦吼两头爆炸，祥子直接就对soyo产生了极高的警觉，从心理上就把soyo打向负面判定，导致最后的不要扯上关系事件，只能说信息站真的很重要。
 
+
+*****
+
+####  影伴光生  
+##### 6136#       发表于 2025-1-4 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101670&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-4 15:50</a>
+有一说一，从s2e1回头看soyo之前的处理，确实没有问题，saki本来就吃软不吃硬，如果只是soyo和saki接触，那 ...</blockquote>
+soyo不能在自己操作的时候妄想其他玩家本轮不操作
+都要怪anno刚上羽丘就直接进boss房
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
