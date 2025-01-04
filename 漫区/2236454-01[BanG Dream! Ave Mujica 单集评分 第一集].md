@@ -1701,3 +1701,13 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 我也是听舅舅说的
 
+
+*****
+
+####  卡卡布鲁根  
+##### 174#       发表于 2025-1-4 09:41
+
+不吃点苦怎么知道还是当大小姐爽呢
+
+—— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

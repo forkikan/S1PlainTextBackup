@@ -1958,3 +1958,17 @@ Have a little sin, so that I can recognize you among the angels.
 
 好歹找个女的，怎么说也是潘阳吧
 
+
+*****
+
+####  玖羽  
+##### 6098#       发表于 2025-1-4 09:37
+
+我突然想到一件事，东京高校换冬服是10月上旬，确切地说是10月初
+
+片中已经开始上学了，也就是暑假之后，还没有换冬服，也就是9月
+
+Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能不到两个月
+
+（时间线考据：[https://www.bilibili.com/read/cv39910363/](https://www.bilibili.com/read/cv39910363/)）
+
