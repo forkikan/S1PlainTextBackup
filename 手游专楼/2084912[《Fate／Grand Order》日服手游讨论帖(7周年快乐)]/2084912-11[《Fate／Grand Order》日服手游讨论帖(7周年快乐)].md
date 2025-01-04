@@ -9733,3 +9733,20 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 奏四春天就来了，该出棒棒糖龙娘了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 16005#       发表于 2025-1-5 04:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101994&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-4 16:59</a>
+
+非萌这不是难得双黄了 得发个图纪念下 可惜s1又拉了
+
+还剩20抽备战有珠了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1天没看贴狗萌新又豹跳了
+
+欧..羡...........
+
+算了这狗萌新还是拿来祭天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
