@@ -1289,3 +1289,11 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 那还挺奇怪的，一般来说升级安装不会导致技能确认开关状态变化吧……</blockquote>
 确实挺奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46938#       发表于 2025-1-4 12:12
+
+大号170了，终于不用卡那恶心的1COST了。
+

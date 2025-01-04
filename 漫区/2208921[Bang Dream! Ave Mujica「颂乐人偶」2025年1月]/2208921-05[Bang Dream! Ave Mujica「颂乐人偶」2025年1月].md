@@ -2069,3 +2069,31 @@ Ave Mujica初Live是7月25日，上武道馆满打满算两个月，甚至可能
 
 光是想想都觉得无比美味
 
+
+*****
+
+####  akiomn  
+##### 6108#       发表于 2025-1-4 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪天二创里来个木头祥子直接被初华和睦绑到地下室里一点也不奇怪
+
+*****
+
+####  Devola  
+##### 6109#       发表于 2025-1-4 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67100234&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-4 11:03</a>
+
+少女樂團的主要影響是為了保少女的質
+
+所有事件都需要飛速發生</blockquote>
+史上最狂的少女乐队番：
+
+柯南的时间流速
+
+棒球王子的战力
+
+再加上一点奇奇怪怪的八点档要素
+
+这乐趣就不会少啊
+
