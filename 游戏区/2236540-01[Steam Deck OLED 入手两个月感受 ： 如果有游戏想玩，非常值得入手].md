@@ -630,3 +630,24 @@ PDD3500多的DECK OLED 5212实在是太香了
 
 2024 SD玩得最爽的还是暗黑4，小丑牌，逸剑风云决
 
+
+*****
+
+####  慕容断月  
+##### 57#       发表于 2025-1-5 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101417&amp;ptid=2236540" target="_blank">你好s1 发表于 2025-1-4 15:01</a>
+Steam商店本身也有Retroarch，简单的用这个也行，真没必要用Emudeck
+
+—— 来自 vivo V2352A, Android 14 ...</blockquote>
+我现在人懒了，一步到位省事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  时空之旅  
+##### 58#       发表于 2025-1-5 00:29
+
+我更中意rog，sd性能不满意，买台机子就玩独立游戏我不是太能接受
+
