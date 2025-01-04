@@ -1711,3 +1711,17 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 —— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Mikumiku831  
+##### 175#       发表于 2025-1-4 09:58
+
+我是外公早笑嘻了
+
+之前想着祥子肯定几周就混不下去 到时接回来就行 让她吃吃苦也好
+
+没想到真的一年完全靠自己自力更生 这下继承人大门永远为祥子打开
+
+反正后面包饺子肯定回去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
