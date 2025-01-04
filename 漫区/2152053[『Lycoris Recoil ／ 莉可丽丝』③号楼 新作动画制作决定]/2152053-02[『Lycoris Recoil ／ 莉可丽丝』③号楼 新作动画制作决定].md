@@ -138,3 +138,19 @@
 
 起码稀有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 2049#         楼主| 发表于 2025-1-4 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67077414&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2025-1-1 10:17</a>
+
+｡*｡*🐍𝐻𝑎𝑝𝑝𝑦 𝑁𝑒𝑤 𝑌𝑒𝑎𝑟🌄｡*｡*
+
+初日の出を見たよ～！！✨</blockquote>
+[https://x.com/satoutubo6/status/1875476709568582004](https://x.com/satoutubo6/status/1875476709568582004)
+
+こちら原画描かせていただきました☀️何卒宜しくお願い致します🎍
+<img src="https://p.sda1.dev/21/01654351556fc3c6b3a65b0f708f9629/20250104_230631.jpg" referrerpolicy="no-referrer">
+

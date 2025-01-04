@@ -3270,3 +3270,23 @@ mygo刚开始的时候有自我介绍还带名字，第一次看前几集都不�
 
 祥初的女女关系性大变化的舅舅吗
 
+
+*****
+
+####  金属化反射装甲  
+##### 6219#       发表于 2025-1-4 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104154&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 22:55</a>
+
+那个说睦会对祥主动出击
+
+祥初的女女关系性大变化的舅舅吗</blockquote>
+你看反了，他说的是祥对睦
+
+*****
+
+####  [皆神孝介]  
+##### 6220#       发表于 2025-1-4 23:15
+
+官方人士都说直接看没问题的话，那么Ave Mujica多半直接看也没关系，最多补一下那个动画播出前特别节目中的回顾部分，好像有40分24秒<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
