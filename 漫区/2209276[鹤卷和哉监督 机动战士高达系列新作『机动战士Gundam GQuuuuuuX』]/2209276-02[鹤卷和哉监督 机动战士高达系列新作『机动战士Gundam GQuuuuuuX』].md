@@ -6782,3 +6782,35 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 性能虽然可能是最高但装备那么素观感应该不会像水魔浮游炮杀完了那般膈应。再怎么说也是要上去操作的。虽 ...</blockquote>
 但旧uc的主角真刚上手也都没几分钟就能点掉对面一台杂兵量产了，打黑拳赛这剧情安排又一场打一集才难看，对面得是什么究极老兵。能在剧场版内直接跳过这个黑拳，然后出真的主线才是最好的节奏。
 
+
+*****
+
+####  刺客ares  
+##### 1979#       发表于 2025-1-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101861&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-4 16:29</a>
+
+但旧uc的主角真刚上手也都没几分钟就能点掉对面一台杂兵量产了，打黑拳赛这剧情安排又一场打一集才难看， ...</blockquote>
+泄露版的剧情简介一个字都没提黑拳赛的事，前四集镇暴扎古从天而降到居民区开始拿实弹枪突突，不可能前脚打完正规军后脚回去像没事一样打黑拳吧？那可比水魔还难绷了，应该是打完扎古就立刻要想办法打包逃离side6了，然后放标题接op
+
+*****
+
+####  双菜  
+##### 1980#       发表于 2025-1-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101802&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-4 16:15</a>
+最好能在先导剧场版里把黑拳剧情给过完，gqx应该就是黑拳赛里性能最高的ms，这黑拳打越久就越难绷，其他人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">性能论不可取，水魔狸猫开着领先周围人几个世代的机体不还是打了那么久决斗
+
+
+*****
+
+####  0aleph37  
+##### 1981#       发表于 2025-1-4 17:06
+
+ 本帖最后由 0aleph37 于 2025-1-4 17:07 编辑 
+
+水魔决斗久不是靠场外招吗？
+
+我是觉得早早得结束军团战阶段比较好，最理想的就是剧场版里把PV内容都演完
+

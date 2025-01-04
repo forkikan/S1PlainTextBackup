@@ -1776,3 +1776,19 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 补个图</blockquote>
 看到大女主三个字，还是忍不住想起22年的那个讽刺味道的夏天<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十九号大侠  
+##### 180#       发表于 2025-1-4 16:57
+
+现在是什么版本，德不配位？
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 181#       发表于 2025-1-4 17:04
+
+前一阵mygo上的时候紫吧习惯性叛逆小伙儿们看不惯B站评分9.9都去刷1分了，这次mujica全宇宙slay，紫吧没动作的吗？
+
