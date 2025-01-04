@@ -7344,3 +7344,70 @@ GQX标配两把特殊光束刀，一把光束步枪，一面盾牌，再加上�
 
 2025-1-4 21:30 上传
 
+
+*****
+
+####  RE㐅ia  
+##### 2026#       发表于 2025-1-4 21:36
+
+<blockquote>王留美 发表于 2025-1-4 21:15
+你可以和警察讲道理，警察会听嘛？
+
+我是这个意思</blockquote>
+那个应该是在说水魔s2e1那个难蚌的决斗请求（
+
+
+*****
+
+####  纪寞  
+##### 2027#       发表于 2025-1-4 21:42
+
+女主这是真的喜欢玩斧子吗，如果热能斧真是从杂兵手上抢的那和原配的光束刀得差多少啊，后面还会给她直接定制专用的斧头吗？要不还是玩光束斧吧
+
+*****
+
+####  刺客ares  
+##### 2028#       发表于 2025-1-4 21:45
+
+<img src="https://img.saraba1st.com/forum/202501/04/214327uzxck2mm2d5d35m5.png" referrerpolicy="no-referrer">
+
+<strong>fa800350dbca6a305a515ad8901546d.png</strong> (152.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/214336lsgrv7js7x1vex71.png" referrerpolicy="no-referrer">
+
+<strong>0a2c79342ab614604ab44014ade64b4.png</strong> (147.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/214345ievvonler3ryrnli.png" referrerpolicy="no-referrer">
+
+<strong>55f803aefe03d00968d5707bdea3bc5.png</strong> (34.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/214357vb3f00233tr326b3.png" referrerpolicy="no-referrer">
+
+<strong>bffc6c96ac72df32a3db0480d483aeb.png</strong> (83.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/214406kz99sy9zezp9rzo0.png" referrerpolicy="no-referrer">
+
+<strong>5fb9280680fddfdc395b0f9247d7935.png</strong> (195.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:44 上传
+
+这段拉片才能看出牢修放了多大的水，以及GQX还是有盾牌的，虽然这面积的臂盾面对浮游炮没什么用
+

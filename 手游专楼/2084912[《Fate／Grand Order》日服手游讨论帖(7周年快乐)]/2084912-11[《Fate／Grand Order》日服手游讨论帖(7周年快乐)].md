@@ -9703,3 +9703,25 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png">新年五星礼装怎么起始50np都不给了
 
+
+*****
+
+####  alucardcz  
+##### 16002#       发表于 2025-1-4 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103256&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-4 20:36</a>
+
+反正不可能出货扔着玩的 毕竟狮心王对我来说毫无意义 青子我也2宝了更是毫无意义 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">什么 居然2宝 欧 不羡慕
+
+
+*****
+
+####  qixinno2  
+##### 16003#       发表于 2025-1-4 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103671&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-4 21:39</a>
+
+什么 居然2宝 欧 不羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这一个月都没需要抽的池子
+

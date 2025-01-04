@@ -2778,3 +2778,121 @@ c团已经永远地死了，不知道官漫里面还有多少c团戏份
 
 能不能把反田拉来当主唱 又有颜又有实力
 
+
+*****
+
+####  Aendst  
+##### 6176#       发表于 2025-1-4 21:36
+
+ 本帖最后由 Aendst 于 2025-1-4 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103624&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:32</a>
+
+懂了，有事打人脸就是监督说了，剧情崩了就又要说我早看透柿本广大早在亦叶亦花就江郎才尽了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先我还真没这么说过，你的推测能力有点太差了，这样只会打你自己的脸
+
+其次监督所说的东西就是制作组所想的东西，是官方设定，你可以觉得“访谈图一乐”，也不妨碍正常人觉得你是乐子
+
+监督会不会写剧本和官方设定了什么东西是完全无关的两回事
+
+偷换概念的人很多，但我还是第一次见你这么能爆典，逻辑稀烂还以为自己牛逼的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+上来就扣立场帽子人身攻击搞得好像会有人在乎你怎么骂街一样，别太脆弱别太容易碎了
+
+*****
+
+####  595505568  
+##### 6177#       发表于 2025-1-4 21:40
+
+<blockquote>Aendst 发表于 2025-1-4 21:36
+首先我还真没这么说过，你的推测能力有点太差了，这样只会打你自己的脸
+
+其次监督所说的东西就是制作组所 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/04/213950viisgiemzm288244.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6003.png</strong> (408.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/213950ghx7yl27hynphnll.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6004.png</strong> (658.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 21:39 上传
+
+所以哪里有pua
+
+
+*****
+
+####  allesdg  
+##### 6178#       发表于 2025-1-4 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103624&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:32</a>
+
+懂了，有事打人脸就是监督说了，剧情崩了就又要说我早看透柿本广大早在亦叶亦花就江郎才尽了。
+
+我只能说 ...</blockquote>
+我也觉得你的描述有问题你接受反驳吗，不也是屁股决定立场张口闭口离不开帽子，思维这么跳跃是访谈让你很破防吗
+
+*****
+
+####  PDQ4  
+##### 6179#       发表于 2025-1-4 21:42
+
+怎么锤烂的东西还有人反驳的
+
+爽姐心里明明觉得全是睦的错，认为睦是拆团罪人，结果开头在那说"不是睦的错”
+
+第八集还在说那次和这次都是你的错
+
+利用睦的负罪感道德绑架不是pua是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 6180#       发表于 2025-1-4 21:43
+
+<blockquote>Aendst 发表于 2025-1-4 21:36
+首先我还真没这么说过，你的推测能力有点太差了，这样只会打你自己的脸
+
+其次监督所说的东西就是制作组所想 ...</blockquote>
+之前你在楼里跟别人打滚偷换概念的时候没被人说爆点属于是感觉自己又行了？还是我web端试了半天都没法看到你们的历史发言这种手机端客观问题变成我个人的问题了？大半个月祥厨自己发言成趋势是别人遥控他们的吗
+
+您早来，您说的都对，扣帽子上攻击性和阴湿是您第一名，您老资格，我玩不起
+
+*****
+
+####  Aendst  
+##### 6181#       发表于 2025-1-4 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103672&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:40</a>
+
+所以哪里有pua</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">………………跟你说话有点浪费我时间了，不过谢谢你给看这楼的所有人提供乐子
+
+其实谈论这段访谈，有你更没办法接受但更接近监督愿意的说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+精神虐待和心理操控，煤气灯，霸凌，都是沾边的
+
+pua这个说法已经很温和了，早点接受比较好
+
+*****
+
+####  595505568  
+##### 6182#       发表于 2025-1-4 21:45
+
+<blockquote>Aendst 发表于 2025-1-4 21:44
+………………跟你说话有点浪费我时间了，不过谢谢你给看这楼的所有人提供乐子
+
+其实谈论这段访谈，有你更 ...</blockquote>
+谢谢，我确实是乐子
+
+也谢谢你高贵到不行的时间
+
+还有谢谢所有人看我表演当乐子
+
