@@ -3754,3 +3754,34 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 你今年准备输给外国人多少次
 
+
+*****
+
+####  holoan  
+##### 10629#         楼主| 发表于 2025-1-4 20:17
+
+<img src="https://img.saraba1st.com/forum/202501/04/201640cyaqr2m7my7yedz7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (192.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 20:16 上传
+
+草
+
+准备了奖杯，上面写着你是最弱王
+
+*****
+
+####  holoan  
+##### 10630#         楼主| 发表于 2025-1-4 20:47
+
+<img src="https://img.saraba1st.com/forum/202501/04/204755neumtdrzr11qor2l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 20:47 上传
+

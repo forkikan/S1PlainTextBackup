@@ -7194,3 +7194,32 @@ gqx和扎古打不应该是在殖民卫星外，实际pv里前一个镜头是扎
 2 卫星内 gq6ux ...</blockquote>
 由此可得只斧头是在宇宙里抢来的。就算女主没和扎古打两次扎古也分别在殖民卫星里外参与了两次战斗。
 
+
+*****
+
+####  纪寞  
+##### 2015#       发表于 2025-1-4 20:51
+
+红高达浮游和gqx周旋时，gqx没有武器可能是红高达把gqx的武器都打落了，此时是女主正在逃跑，红高达现在在想办法让gqx先安定下来
+
+*****
+
+####  0aleph37  
+##### 2016#       发表于 2025-1-4 20:51
+
+ 本帖最后由 0aleph37 于 2025-1-4 20:53 编辑 
+
+gq6ux头部的变化步骤不少
+
+初始状态
+<img src="https://p.sda1.dev/21/12a176831e36f8541c16b59bbf051f82/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_204803.591.jpg" referrerpolicy="no-referrer">
+
+第一步变化头顶变形
+<img src="https://p.sda1.dev/21/9bf41d354c165ca9553a6b8ed4866008/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_204810.751.jpg" referrerpolicy="no-referrer">
+
+第二步头顶不对称紫灯亮起
+<img src="https://p.sda1.dev/21/b731480618de5ab4f07ba0fc5c20e2b9/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_204822.217.jpg" referrerpolicy="no-referrer">
+
+第三步Y字上抬，Y字上类似螺栓结构插入
+<img src="https://p.sda1.dev/21/49b68c75d967988d35400a1075993e7b/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_204833.280.jpg" referrerpolicy="no-referrer">
+
