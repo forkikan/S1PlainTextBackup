@@ -1939,3 +1939,22 @@ Have a little sin, so that I can recognize you among the angels.
 又一个圣地巡礼
 <img src="https://p.sda1.dev/21/498a26bf29d5eedc9e8d44380f0374ca/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天邪鬼  
+##### 6096#       发表于 2025-1-4 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099731&amp;ptid=2208921" target="_blank">苓宁 发表于 2025-1-4 08:44</a>
+木头人设定是美女演员和搞笑艺人的孩子，套下三次元大概就是妈妈类似于苍井优那种演员？
+
+—— 来自 鹅球 v ...</blockquote>
+看人说，就类似蒙面歌王里面有个郭麒麟
+
+*****
+
+####  Yugao  
+##### 6097#       发表于 2025-1-4 09:25
+
+好歹找个女的，怎么说也是潘阳吧
+
