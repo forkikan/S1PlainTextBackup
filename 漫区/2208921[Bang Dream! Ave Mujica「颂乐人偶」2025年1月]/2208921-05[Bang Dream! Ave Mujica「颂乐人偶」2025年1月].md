@@ -2277,3 +2277,22 @@ ed其他人有代表物件而初华只有面具，是因为初华的面具下面
 舞台剧祥子让睦叫自己姐姐大人，可能纯粹是祥子恶趣味吧
 （睦：我劝你别多管闲事）
 
+
+*****
+
+####  raii  
+##### 6126#       发表于 2025-1-4 14:43
+
+[https://x.com/nShiTsuGaIKoTsu/st ... 1875014972536992172](https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172]https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172)]https://x.com/nShiTsuGaIKoTsu/status/1875014972536992172[/url]
+
+丰川祥子，出租屋没有浴室说
+
+GgVkLSYaAAEivI8.jpg
+(327.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-4 14:42 上传
+
+<img src="https://img.saraba1st.com/forum/202501/04/144238d0m9c9rd8nll8y3l.jpg" referrerpolicy="no-referrer">
+

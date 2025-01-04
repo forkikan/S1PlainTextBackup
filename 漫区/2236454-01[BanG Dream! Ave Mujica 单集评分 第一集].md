@@ -1743,3 +1743,25 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  蓮華  
+##### 178#       发表于 2025-1-4 14:44
+
+ 本帖最后由 蓮華 于 2025-1-4 14:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097769&amp;ptid=2236454" target="_blank">屑屑代沟尼亚 发表于 2025-1-3 19:57</a>
+
+对刚死了妈没多久的祥子说以后就当没有你爹了这种话已经够过分了
+
+估计走的时候就已经打算跟丰川家剪切线 ...</blockquote>
+
+<img src="https://ice.frostsky.com/2025/01/04/18768c193afa22f695914a317d483432.jpeg" referrerpolicy="no-referrer">
+<img src="https://ice.frostsky.com/2025/01/04/ff7876ed86bec372afdd4fa2bbf08c13.jpeg" referrerpolicy="no-referrer">
+
+当时这张海报里有列文虎克找出来的tgw物產应该就是とがわ豊川
+
+所以我觉得并不是切割了，想回去还是能随时回去的
+
+大小姐的一次小小任性吃点苦而已，有兜底的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 
+
