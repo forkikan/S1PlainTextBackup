@@ -6963,3 +6963,41 @@ TV版eva女一不是美里吗？<img src="https://static.saraba1st.com/image/smi
 
 还有一点就是黑拳后勤组那么多角色不是白设计的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要么展望以后上舰有分工，要么就是打黑拳打一整季最后唐突大决战
 
+
+*****
+
+####  0aleph37  
+##### 1996#       发表于 2025-1-4 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67102633&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-4 19:02</a>
+
+红高达和gqx打起来不可能是因为黑拳的，他们战斗的地方是在殖民卫星内部上空，这个地方打黑拳太过危险而 ...</blockquote>
+<img src="https://p.sda1.dev/21/d39294065dfb3f8c672e24c7ee5de4de/機動戦士Gundam GQuuuuuuX（ジークアクス） _@G_GQuuuuuuX_ - X.mp4_20250104_191223.036.jpg" referrerpolicy="no-referrer">
+
+起黄雾的时候麻球还站着没上机呢
+
+*****
+
+####  RE㐅ia  
+##### 1997#       发表于 2025-1-4 19:15
+
+<blockquote>纪寞 发表于 2025-1-4 19:02
+红高达和gqx打起来不可能是因为黑拳的，他们战斗的地方是在殖民卫星内部上空，这个地方打黑拳太过危险而 ...</blockquote>
+结合简介和pv来看我猜是这样的顺序：
+
+jk女主平凡生活
+
+遇上女二接触黑拳
+
+天天打黑拳
+
+男主和扎古在一次冲突中一路打进卫星内部，波及平民
+
+女主看不爽便上机前去阻止，此时因互不相识陷入混战
+
+过程中女主意识到红高并不是敌人，二人合力暂时击退扎古
+
+女主和牢修相识然后正式成为伙伴关系，并邀请他一起打黑拳
+
+扎古再次杀回来，二人在殖民卫星外头将其击破。
+
