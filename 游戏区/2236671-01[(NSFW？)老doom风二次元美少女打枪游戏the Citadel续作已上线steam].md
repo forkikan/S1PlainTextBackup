@@ -407,3 +407,32 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打了会，切弹手法有点难受，然后第一关强制近战没弹补……
 
+
+*****
+
+####  meari111  
+##### 43#       发表于 2025-1-5 22:02
+
+可以换gunplay的嘛，我记得有按一键换弹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">作者的个人兴趣罢了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 44#         楼主| 发表于 2025-1-5 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109602&amp;ptid=2236671" target="_blank">acropolis 发表于 2025-1-5 21:49</a>
+vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两个快捷键而且对战斗力只减不增，不如切枪来的实 ...</blockquote>
+换弹系统可能就是单纯作者性癖了，可以选择最简单的换弹模式能舒服些
+
+*****
+
+####  ParadiseMartyr  
+##### 45#         楼主| 发表于 2025-1-5 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109631&amp;ptid=2236671" target="_blank">荆棘花冠 发表于 2025-1-5 21:56</a>
+打了会，切弹手法有点难受，然后第一关强制近战没弹补……</blockquote>
+一代么，好像一代第一关确实限制近战，但是也没啥收集品，直接破关就好了。
+我记得就第一关比较卡关，后面熟悉了加上给了一堆枪之后就打起来很快了。
+
