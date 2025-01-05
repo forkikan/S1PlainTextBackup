@@ -727,3 +727,15 @@ ROG ALLY玩家路过
 
 下一代不知道能不能把待机时的下载和云存档上传/下载做好
 
+
+*****
+
+####  李小狼  
+##### 66#       发表于 2025-1-5 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67099290&amp;ptid=2236540" target="_blank">violettor 发表于 2025-1-4 01:09</a>
+我回忆了一下几次掉档的经历，突然觉得可能和游戏数量有关。我库里有3000+游戏，每次更新完deck登录都要 ...</blockquote>
+卧槽，大佬有家庭组么，我这有个3000多游戏的家庭组还缺个人，有兴趣吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
