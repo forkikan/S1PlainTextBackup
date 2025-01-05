@@ -4004,3 +4004,38 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 2025-1-5 14:05 上传
 
+
+*****
+
+####  新HGCG  
+##### 6286#       发表于 2025-1-5 15:06
+
+喵梦也算是开了一个头
+
+就是队里谁都可以利用“演奏前后演戏”的设定，用“即兴发挥”的名义塞私货表达不满甚至直接对线
+
+喵梦第一个这么做了，睦第二个这么做了
+
+这幕间戏，以前是卖点，现在成了对祥子而言的雷点
+
+谁都能利用这个机会向她发难而她又不得不圆场
+
+岂能长久
+
+*****
+
+####  akiomn  
+##### 6287#       发表于 2025-1-5 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个角度，以后初华和睦还能用舞台剧塞私货，直接来个强吻啥的
+反正最后都是祥子圆场，台下嗜血长颈鹿肯定不会在乎的！
+
+*****
+
+####  鲍里斯  
+##### 6288#       发表于 2025-1-5 15:09
+
+那大家都即兴省得祥子写剧本了，正好可以去解决队内问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
