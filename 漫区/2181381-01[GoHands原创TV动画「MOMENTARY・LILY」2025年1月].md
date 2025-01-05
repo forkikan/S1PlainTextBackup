@@ -278,3 +278,15 @@ op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么
 
 第一次看动画看出晕车的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tastySugar  
+##### 76#       发表于 2025-1-6 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108687&amp;ptid=2181381" target="_blank">真爱与热情 发表于 2025-1-5 19:17</a>
+我看到了sweetsub汉化（毒奶），有点怕了
+
+之前看的几个sweetsub的片子都烂完了（单纯调侃，没有黑的意思） ...</blockquote>
+SeeetSub 只是单纯爱做原创而已<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
