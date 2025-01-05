@@ -3777,7 +3777,7 @@
     "lastedit": 1736077860,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -16088,7 +16088,7 @@
     "newtitle": "[Reddit美籍小黄人：结婚偶遇俄乌捞女，拼尽全力无法战胜]",
     "lastedit": 1735851729,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2236346": {
@@ -16659,10 +16659,10 @@
     "update": false
   },
   "2178433": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[天久鹰央的推理病历表 TV动画化]",
     "newtitle": "[天久鹰央的推理病历表 TV动画化]",
-    "lastedit": 1736095573,
+    "lastedit": 1736111169,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17406,10 +17406,10 @@
     "update": false
   },
   "2203537": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[switch最佳第一方／第二方工作室投票]",
     "newtitle": "[switch最佳第一方／第二方工作室投票]",
-    "lastedit": 1736081664,
+    "lastedit": 1736111289,
     "category": "游戏区",
     "active": true,
     "update": false
