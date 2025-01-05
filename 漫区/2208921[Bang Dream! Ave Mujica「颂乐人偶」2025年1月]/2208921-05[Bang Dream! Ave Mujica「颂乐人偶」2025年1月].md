@@ -4615,3 +4615,14 @@ mr_frog716：
 
 如果是前者，那么初华就是拥有出色的察言观色能力并且心思缜密，就放出的几话也确实多次给初华面部微表情特写…
 
+
+*****
+
+####  HGCG+  
+##### 6340#       发表于 2025-1-6 05:19
+
+有人发过吗
+<img src="https://p.sda1.dev/21/101e1b7f5ced0dba47278825ba9ad2d7/7353e5eff3af7ea.jpg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
