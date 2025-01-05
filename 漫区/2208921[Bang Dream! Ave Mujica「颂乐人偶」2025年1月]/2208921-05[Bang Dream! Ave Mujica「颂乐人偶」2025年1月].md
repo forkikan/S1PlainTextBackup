@@ -4626,3 +4626,77 @@ mr_frog716：
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  鲍里斯  
+##### 6341#       发表于 2025-1-6 00:17
+
+整理一下我自己的胡思乱想，大家随便看看就好了
+
+祥子的世界观的主题是人偶，而祥子母亲遗留下来的、祥子从小抱着的都是人偶，因此我猜测祥子创造这个世界观可能是为了讲述自己的故事，也可能是为了缅怀母亲，还有可能是以此激励父亲
+
+另一方面，祥子是一个理想主义者，流量和金钱可能只是实现她目标的手段，她所谓的“最好的舞台”多半不是指的规模意义上的大舞台，而是能真正揭露世界观真相的舞台
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  一心而用  
+##### 6342#       发表于 2025-1-6 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110344&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-5 23:51</a></blockquote>
+<img src="https://p.sda1.dev/21/080dc51e5be52d6cea52e7493b23d934/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/07db39b6ec3be3c8017518e9933ffe95/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4bf575cfa16ddc84ecff960f0f45a08d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3150f04b8501752f5ffce8141cda6c3d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/da1ff51a53e65d4d63de90772836b726/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cdb4ed36e12fcc091f74cfd52778f32b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7ae09229630fc58f14fc5e5f693c5bc1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0046ab77867f7c82245c195a3e1a8557/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f32dc9fd4c9c6352be27099535ef95ab/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ba3cbfabfe5ffe77eff77a3338b8128c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fef36fa47de9b90bc097763717527234/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fde92eab75835d45ae99c52c55ef417d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 6343#       发表于 2025-1-6 01:53
+
+不知道邦邦以往的乐队企划是怎么处理个人曲的作词以及专辑在动画中的发行时间。
+
+就像Ave Mujica的世界观作为乐队表演的同时还是祥子内心的体现，歌词作为解谜道具的同时也是初华的创作，考虑到这种嵌套后舞台表演和歌词就变得更有趣了。
+
+比如，如果元素专写的确实是五个人的心声，是否可以认为初华对其他成员有精准的剖析呢？或者元素专在动画中诞生于乐队成员相互交融的“大和谐”之后？
+
+如果是前者，那么初华就是拥有出色的察言观色能力并且心思缜密，就放出的几话也确实多次给初华面部微表情特写…
+
+*****
+
+####  HGCG+  
+##### 6344#       发表于 2025-1-6 05:19
+
+有人发过吗
+<img src="https://p.sda1.dev/21/101e1b7f5ced0dba47278825ba9ad2d7/7353e5eff3af7ea.jpg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  玖羽  
+##### 6345#       发表于 2025-1-6 05:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67111002&amp;ptid=2208921" target="_blank">HGCG+ 发表于 2025-1-6 05:19</a>
+
+有人发过吗</blockquote>
+错误的假药
+
+借这个机会我说一下吧，这个假药最大的错误是<strong>倒果为因</strong>
+
+首先你必须确定人家能看到这条评论，搞不好这句话被直接刷过去了
+
+其次你必须很了解灯是什么人，才能知道这句话足以伤害到灯
+
+如果初华有这个本事，还唱什么歌，算命去好了
+
