@@ -3015,3 +3015,14 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 黎1打完了，感觉这相当好嘛。人数8个刚刚好不至于装备都买不回来。即时制虽然没啥用但是当成战外补CP手段还 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">勇士
 
+
+*****
+
+####  卢迪克  
+##### 7392#       发表于 2025-1-5 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104577&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2025-1-5 00:28</a>
+
+黎1打完了，感觉这相当好嘛。人数8个刚刚好不至于装备都买不回来。即时制虽然没啥用但是当成战外补CP手段还 ...</blockquote>
+二十年前共和国就在开赛车了
+
