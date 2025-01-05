@@ -4097,3 +4097,16 @@ gay doll play是这样的
 
 按照人偶取回人性（独立于操偶师）的剧情假想，祥子起码y要嬷到第十集以后了，还能逆转吗
 
+
+*****
+
+####  你妈的为什么  
+##### 6295#       发表于 2025-1-5 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107076&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-5 13:42</a>
+
+提一嘴，邦邦的推特官号，113的新春发表大会说第三集先行放映
+
+睦生日是114，而第三集正常播出该是在116，21 ...</blockquote>
+黑色生日是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
