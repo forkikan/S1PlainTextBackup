@@ -3777,7 +3777,7 @@
     "lastedit": 1736077860,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -5346,12 +5346,12 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 6817,
+    "totalreply": 6818,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1735380500,
+    "lastedit": 1736096772,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1865528": {
@@ -8024,7 +8024,7 @@
     "newtitle": "[狼与香辛料 完全新作动画制作决定 2024年4月]",
     "lastedit": 1735837461,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2175897": {
@@ -8231,7 +8231,7 @@
     "newtitle": "[『机动战士高达SEED FREEDOM』／ SEED FREEDOM 前传动画制作决定]",
     "lastedit": 1735837461,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2178883": {
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 122507,
+    "totalreply": 122510,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1736096176,
+    "lastedit": 1736096775,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8982,12 +8982,12 @@
     "update": false
   },
   "2082967": {
-    "totalreply": 572,
+    "totalreply": 573,
     "title": "[义妹生活 TV动画化 2024年7月]",
     "newtitle": "[义妹生活 TV动画化 2024年7月]",
-    "lastedit": 1732285338,
+    "lastedit": 1736096410,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2188730": {
@@ -13995,10 +13995,10 @@
     "update": false
   },
   "2088649": {
-    "totalreply": 610,
+    "totalreply": 611,
     "title": "[武侠游戏新作《燕云十六声》7月26日公测]",
     "newtitle": "[武侠游戏新作《燕云十六声》7月26日公测]",
-    "lastedit": 1736091137,
+    "lastedit": 1736096888,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17397,10 +17397,10 @@
     "update": false
   },
   "2236717": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[2024全年全国机场旅客吞吐量出炉！]",
     "newtitle": "[2024全年全国机场旅客吞吐量出炉！]",
-    "lastedit": 1736094851,
+    "lastedit": 1736096775,
     "category": "外野",
     "active": true,
     "update": false
@@ -17469,10 +17469,10 @@
     "update": false
   },
   "2236753": {
-    "totalreply": 58,
+    "totalreply": 60,
     "title": "[（nga警告）b站三十万粉“女菩萨”被质疑是男人]",
     "newtitle": "[（nga警告）b站三十万粉“女菩萨”被质疑是男人]",
-    "lastedit": 1736096176,
+    "lastedit": 1736096410,
     "category": "外野",
     "active": true,
     "update": false
@@ -17514,10 +17514,10 @@
     "update": false
   },
   "2236763": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[看到个“全国汉堡快餐店门店数量一览”]",
     "newtitle": "[看到个“全国汉堡快餐店门店数量一览”]",
-    "lastedit": 1736095810,
+    "lastedit": 1736096775,
     "category": "外野",
     "active": true,
     "update": false
