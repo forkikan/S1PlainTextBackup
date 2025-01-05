@@ -4491,3 +4491,11 @@ mr_frog716：
 什么太平天国，轮流天父上身向天王发难是吧</blockquote>
 233如果第四集开始真这么来就太有趣了
 
+
+*****
+
+####  贰臣  
+##### 6331#       发表于 2025-1-5 23:44
+
+其实我觉得这个真的很有可能，队内矛盾都会在舞台上爆发什么的真的很精彩，简直少歌精神续作<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
