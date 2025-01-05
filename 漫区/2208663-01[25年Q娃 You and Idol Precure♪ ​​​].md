@@ -1034,3 +1034,22 @@ BSS山陰放送：2025年2月9日（日）より毎週日曜日6:15～
 
 草，好快的皮套<img src="https://p.sda1.dev/21/1e8f54a70270507000757d72f4c10f44/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 225#       发表于 2025-1-5 12:07
+
+p是热带的村濑亚季
+看pv没有打戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽华角色歌
+
+
+*****
+
+####  紫雨こころ  
+##### 226#       发表于 2025-1-5 12:11
+
+<img src="https://p.sda1.dev/21/4cc61d1ba13c6834f7b579cb9aabc317/p_sign%20_2_.png" referrerpolicy="no-referrer">
+

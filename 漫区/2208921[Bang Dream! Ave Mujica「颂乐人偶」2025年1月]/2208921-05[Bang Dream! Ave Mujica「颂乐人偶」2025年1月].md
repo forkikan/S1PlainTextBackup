@@ -3832,3 +3832,50 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 有“联系”，不代表不看mygo就一定看不了mujica，看不了的叫mygo第二季，不叫mujica
 
+
+*****
+
+####  ytttsuuuba  
+##### 6269#       发表于 2025-1-5 12:09
+
+都有祥子视角总集篇了，相当于告诉你前因后果了，当然可以直接看mujica篇。只不过，看了mujica篇再去找go篇的彩蛋会更有意思而已。就跟马娘2能不能单独看差不多，mujica虽然和前作联系更紧但也有个总集篇补全了不会看不懂的。
+
+
+*****
+
+####  Reinhold  
+##### 6270#       发表于 2025-1-5 12:10
+
+ 本帖最后由 Reinhold 于 2025-1-5 12:12 编辑 
+
+🐶应激🐔也应激是吧，我寻思看个mygo是什么世纪难题吗，还需要引经据典论证关系性<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+第一话体验上，是个人都能感到看了mygo体验就是比不看强很多吧，哪怕是把第0话的导剪版看完呢<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山ノ内花音  
+##### 6271#       发表于 2025-1-5 12:13
+
+这个取决于你相不相信鸡动画的结尾是鸡狗对邦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+反正从第三集来看 这种可能性被**降低了 
+学校都快被扔了
+
+不过这种强度的思想钢印是难以互相说服的 
+所以真没必要讨论
+等看到第十三集 自然而然的就明白了
+
+*****
+
+####  Aendst  
+##### 6272#       发表于 2025-1-5 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是有人抓着“不能不看mygo，不看mygo就看不了mujica，不看mygo怎么看mujica”不放
+
+不都说了，不看go体验是不完整的最好都看了，但不能说没看go就看不了mujica
+
+还有人非要说不行不能那还能怎么办呢
+
+漏油说得很好，导剪都给你放出来了，意思就是推荐你先去看导剪再看正片
+
