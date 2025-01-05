@@ -3954,3 +3954,20 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  akiomn  
+##### 6281#       发表于 2025-1-5 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">提一嘴，邦邦的推特官号，113的新春发表大会说第三集先行放映
+睦生日是114，而第三集正常播出该是在116，214是祥子生日，恰好是第七集
+我只能说有人要遭大重了
+
+*****
+
+####  sobt3279  
+##### 6282#       发表于 2025-1-5 13:42
+
+有興趣，自然會往前補了
+

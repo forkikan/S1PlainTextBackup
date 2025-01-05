@@ -2060,3 +2060,15 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 同理，这话最大的毛病其实是叙事重心和剧情高潮的不平衡，绫乃在以一个更接近交差的态度，选择了“交代背景”和“推向高潮”两个“任务”来完成，而放弃了这24分钟剧本本身的结构和水准。我称之为“摆烂”。
 
+
+*****
+
+####  borrowface  
+##### 206#       发表于 2025-1-5 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105180&amp;ptid=2236454" target="_blank">swessia 发表于 2025-1-5 08:03</a>
+摘面具后发现大家都关注初华和睦的脸去了，没人关注母鸡卡的音乐性，又偶然听说丰川家的大手安排事务所之 ...</blockquote>
+后面Mujica更火了，丰川家操控事务所想把海铃和小祥这两没啥流量价值的给踹了。爷爷还当着祥子面说"别过家家了，Mujica现在不需要你了，快回来当我的乖乖女大小姐"
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
