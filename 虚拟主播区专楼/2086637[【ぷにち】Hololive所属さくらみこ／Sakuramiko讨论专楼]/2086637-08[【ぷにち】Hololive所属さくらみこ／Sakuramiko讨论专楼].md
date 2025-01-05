@@ -3879,3 +3879,44 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 这直播画面是真够混乱的 谁在玩 谁黑谁白 第一次看的真的分的清？
 
+
+*****
+
+####  holoan  
+##### 10639#         楼主| 发表于 2025-1-5 16:46
+
+？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？
+
+zata？？？？？？？？？？？？？？？？？？？？？？？？？？
+
+*****
+
+####  holoan  
+##### 10640#         楼主| 发表于 2025-1-5 20:19
+
+<img src="https://img.saraba1st.com/forum/202501/05/201911gtkatt2eh2htaufh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 20:19 上传
+
+防止赛程太长改了规则只有决赛BO3
+
+海星
+
+
+*****
+
+####  holoan  
+##### 10641#         楼主| 发表于 2025-1-5 20:20
+
+<img src="https://img.saraba1st.com/forum/202501/05/202031zurss7rp6xuzyow6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 20:20 上传
+
