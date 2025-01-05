@@ -3835,3 +3835,32 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 2025-1-5 12:34 上传
 
+
+*****
+
+####  holoan  
+##### 10635#         楼主| 发表于 2025-1-5 14:11
+
+<img src="https://img.saraba1st.com/forum/202501/05/141125ejf667v6qipfnjlq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 14:11 上传
+
+*****
+
+####  holoan  
+##### 10636#         楼主| 发表于 2025-1-5 14:13
+
+<img src="https://img.saraba1st.com/forum/202501/05/141319ibj4ozr4zj4to43m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 14:13 上传
+
+1万5千投票，昨天直播里的
+
