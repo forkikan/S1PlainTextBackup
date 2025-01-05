@@ -476,3 +476,11 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 开始的护甲没拿怎么办？现在到1-2了</blockquote>
 护甲？没什么印象了。应该没事，1-5boss前有人免费白给中级护甲，稍微苟着打再打两关。或者重开也行，我记得esc界面有back to sanctuary(回到庇护所)，相当于回到大本营，从那里再选关。
 
+
+*****
+
+####  ztl44  
+##### 50#       发表于 2025-1-6 02:46
+
+原来不是想象中的NSFW啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
