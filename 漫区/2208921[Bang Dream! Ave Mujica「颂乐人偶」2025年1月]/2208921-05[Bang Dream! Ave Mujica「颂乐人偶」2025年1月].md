@@ -4065,3 +4065,35 @@ gay doll play是这样的
 相比于纯路人，稍微了解一点邦邦但最近几年没关注的，突然看到如此不krkr却超dkdk的系列新作，冲击力应该更 ...</blockquote>
 非常killerkiller啊，都直接写OP标题上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 6292#       发表于 2025-1-5 15:39
+
+我觉得把舞台剧变成大家的而不只是祥子的个人中二设定就是mujica动画的主线之一<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+睦第一个“入戏”变成mortis。不过睦“带上面具”的主要动力是外部压力和精神内耗，并非个人意志。后面可能会讲睦要如何接纳平衡mortis
+
+其他成员也可能会随着故事发展挣脱操偶师祥子的丝线（剧本）而在舞台上获得生命。如果猜对了的话我认为最大看点会是祥子本人什么时候以何种方式解开套在自己身上的束缚<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ads147147  
+##### 6293#       发表于 2025-1-5 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107116&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-5 13:46</a>
+
+相比于纯路人，稍微了解一点邦邦但最近几年没关注的，突然看到如此不krkr却超dkdk的系列新作，冲击力应该更 ...</blockquote>
+看到少女们进行dkdk的勾心斗角，难道不会让人觉得krkr吗（键政的光辉（
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6294#       发表于 2025-1-5 15:41
+
+按照人偶取回人性（独立于操偶师）的剧情假想，祥子起码y要嬷到第十集以后了，还能逆转吗
+
