@@ -7919,3 +7919,16 @@ CCA都0096了关0085的GQX啥事
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">要大热希望来个Ado呀
 
+
+*****
+
+####  王留美  
+##### 2077#       发表于 2025-1-5 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107993&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-5 17:10</a>
+
+下周怎么也该有PV2了吧</blockquote>
+有PV2也不会有多少有用信息的，爆点是要藏到117的
+
+当然PV1的镜头换个主题曲做宣传倒不是不行
+

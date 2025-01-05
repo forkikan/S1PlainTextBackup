@@ -260,3 +260,13 @@ op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么
 
 这片脚本、系列构成得上黑名单了
 
+
+*****
+
+####  真爱与热情  
+##### 74#       发表于 2025-1-5 19:17
+
+我看到了sweetsub汉化（毒奶），有点怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前看的几个sweetsub的片子都烂完了（单纯调侃，没有黑的意思）
+
