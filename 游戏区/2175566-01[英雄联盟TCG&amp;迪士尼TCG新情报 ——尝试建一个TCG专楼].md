@@ -59,3 +59,14 @@ mtg没中文体感主要是拉新受到了影响，不过本地社区来了几�
 洛卡纳本土化最好的方法就是照着过去两年宝上海的方法来。虽然天天喷悲伤海森堡，但目前看来洛卡纳的简中运 ...</blockquote>
 苏州大师赛的时候官方摸过底，所以才敢在深圳搞万人参赛的吉尼斯噱头，结果没想到深圳对中国大部分地方来说太远了，北方玩家基本都放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 195#       发表于 2025-1-5 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108621&amp;ptid=2175566" target="_blank">夜幕降临之前 发表于 2025-1-5 19:05</a>
+
+苏州大师赛的时候官方摸过底，所以才敢在深圳搞万人参赛的吉尼斯噱头，结果没想到深圳对中国大部分地方来 ...</blockquote>
+在广东的好处是可以低成本参加两次大师赛，但如果真想参赛人数破规模，要么还是在大城市上海，要么在交通方便的武汉成都这种。
+

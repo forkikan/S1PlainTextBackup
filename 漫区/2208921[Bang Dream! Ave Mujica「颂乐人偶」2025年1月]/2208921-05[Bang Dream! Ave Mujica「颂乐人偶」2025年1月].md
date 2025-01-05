@@ -4480,3 +4480,14 @@ mr_frog716：
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  新HGCG  
+##### 6330#       发表于 2025-1-5 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109204&amp;ptid=2208921" target="_blank">Bandifishing 发表于 2025-1-5 20:39</a>
+
+什么太平天国，轮流天父上身向天王发难是吧</blockquote>
+233如果第四集开始真这么来就太有趣了
+
