@@ -4122,3 +4122,22 @@ gay doll play是这样的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一心而用  
+##### 6297#       发表于 2025-1-5 16:06
+
+应该是作画的问题，因为下一秒门框就复原了，不过可能会因此有祥子怪力的二创设定。
+<img src="https://p.sda1.dev/21/2e8b0b96eef33f1ecfd09ad14ba034cb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 6298#       发表于 2025-1-5 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107631&amp;ptid=2208921" target="_blank">你妈的为什么 发表于 2025-1-5 15:49</a>
+黑色生日是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能怀疑黑生日这歌也是给睦祥的。wsd特意把第三集先行放到113，结果都知道莫提斯在第三集跑出来了
+那214……祥子要遭大重，不过难说祥子如果也黑了会是什么样，说不定不是黑化，而是那张图里释怀麻木了的伪白祥笑容了
+
