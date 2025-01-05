@@ -1087,3 +1087,18 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 总不能一边唱歌一边战斗就是偶像吧
 
+
+*****
+
+####  待宵  
+##### 231#       发表于 2025-1-5 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108837&amp;ptid=2208663" target="_blank">zyw0 发表于 2025-1-5 19:42</a>
+
+偶q这个开头有点太传统了，不太能想象怎么添加偶像要素。
+
+总不能一边唱歌一边战斗就是偶像吧 ...</blockquote>
+怪物出现→各种手段把怪按椅子上→live启动唱歌净化？
+
+边战边唱那得是隔壁正统战姬续作，就等她们四月开播给偶Q一记闷棍了
+
