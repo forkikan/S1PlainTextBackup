@@ -3766,3 +3766,17 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 初华特意去找的灯明显的吧，自己经常去看星星怎么椅子都不会调</blockquote>
 我怎么记得访谈说过只是为了让她俩见一面才设计的这个桥段，纯粹巧合不是故意的
 
+
+*****
+
+####  影伴光生  
+##### 6265#       发表于 2025-1-5 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105676&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-5 10:05</a>
+到底哪来的没看go就看不了mujica这种说法，甚至还能应激的……
+
+根本雄贵话里意思很明显了，但可能海外网友 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通过大量宣传把没接触过系列作品的新观众骗进来直接看颠婆，鸡团进一步风评被害的可能增加了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
