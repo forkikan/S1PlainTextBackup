@@ -4110,3 +4110,15 @@ gay doll play是这样的
 睦生日是114，而第三集正常播出该是在116，21 ...</blockquote>
 黑色生日是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 6296#       发表于 2025-1-5 15:55
+
+祥子的适应能力很强的，第三集结尾看睦的表情也不像生气或被吓到。如果会有更多人偶在舞台上活过来，祥子未必会像面对喵梦一样。
+
+而且喵梦现在很明显不理解mujica的世界观，离入戏还差得远。如果每个角色都会有带上面具成为xx一串字母的情节，那喵梦的部分很明显还没到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
