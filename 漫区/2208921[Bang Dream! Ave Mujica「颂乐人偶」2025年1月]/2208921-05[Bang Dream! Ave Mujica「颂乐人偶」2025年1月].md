@@ -4149,3 +4149,32 @@ gay doll play是这样的
 
 黑生这种明显对整个团意义更重的歌也圈啊，磕cp一定要圈地吗
 
+
+*****
+
+####  Aendst  
+##### 6300#       发表于 2025-1-5 16:26
+
+黑生之外，双月，神笨，angles，水，都有一些往cp曲解读的观点，但我觉得其实都是团/整体＞角色＞cp关系的
+
+可能是塞了一些角色要素和关系性进去，但在官方明确说之前没办法定论就是cp曲的
+
+*****
+
+####  童贞阿龙  
+##### 6301#       发表于 2025-1-5 16:27
+
+感觉祥子是不会黑化的，因为已经是黑化状态了
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  一心而用  
+##### 6302#       发表于 2025-1-5 16:33
+
+<img src="https://p.sda1.dev/21/f7454ff98886e72408ff5cb8b4440e32/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ef3022d29039c07bb2c0a0b5ffa47ce3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/96d6f4826986bffdc9d1cbc3d005389d/image.jpg" referrerpolicy="no-referrer">
+
