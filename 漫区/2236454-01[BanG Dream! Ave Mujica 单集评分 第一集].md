@@ -2088,3 +2088,16 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 大祥老师的乐队引路人是天音妹妹，也太变态了
 
+
+*****
+
+####  aptx8285144  
+##### 209#       发表于 2025-1-5 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109086&amp;ptid=2236454" target="_blank">真爱与热情 发表于 2025-1-5 20:17</a>
+
+大祥老师的乐队引路人是天音妹妹，也太变态了。
+
++0，只能说如果不是我看过第一季，对这第一集肯定是不满意 ...</blockquote>
+这个速度很快，老爹那边有一定概率后面要包个饺子
+
