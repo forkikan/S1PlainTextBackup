@@ -4386,3 +4386,24 @@ https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpw
 
 不开盒就这样下去鸡团算不算是在走c团的老路，都是祥子一人主导的乐队，她不炸还好，一炸就救都难救
 
+
+*****
+
+####  adcdqre  
+##### 6321#       发表于 2025-1-5 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107834&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-5 16:36</a>
+
+祥子现在的状态，怎么说呢，说是黑化也不对，个人感觉目前的祥子完全是信念第一的天真的状态，装大人装的以 ...</blockquote>
+前三集喵梦和睦的锅还真全是祥子背的第四集继续吧
+
+
+*****
+
+####  66367749  
+##### 6322#       发表于 2025-1-5 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109523&amp;ptid=2208921" target="_blank">l159020 发表于 2025-1-5 21:36</a>
+不开盒就这样下去鸡团算不算是在走c团的老路，都是祥子一人主导的乐队，她不炸还好，一炸就救都难救 ...</blockquote>
+商业乐队和学生业余玩玩的不是一个概念
+
