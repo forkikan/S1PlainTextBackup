@@ -4458,3 +4458,25 @@ mr_frog716：
 
 [https://www.bilibili.com/video/BV1F34y1g7EN/](https://www.bilibili.com/video/BV1F34y1g7EN/) 才发现是去年前年的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6328#       发表于 2025-1-5 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109729&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-5 22:11</a>
+最喜欢这张一丘之貉，挺久以前的，作者不清楚</blockquote>
+我喜欢这张，也不记得作者了。
+<img src="https://p.sda1.dev/21/0579b1f841d00a985d3070409a6d07e9/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novalli  
+##### 6329#       发表于 2025-1-5 22:52
+
+重新看了一下B站的第一集，发现HDR改了一下，有些太暗的地方更接近4K了。比如刚开始有一个从月亮下移到舞台的镜头，原本暗的看不清是什么，现在幕布的暗红色和样子都能看清了。
+不过HDR还是时不时会卡一下，流媒体还是4K吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
