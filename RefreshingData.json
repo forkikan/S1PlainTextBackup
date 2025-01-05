@@ -3777,7 +3777,7 @@
     "lastedit": 1736077860,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -13212,12 +13212,12 @@
     "update": false
   },
   "2210280": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[有人玩MiSide米塔吗]",
     "newtitle": "[有人玩MiSide米塔吗]",
-    "lastedit": 1735736047,
+    "lastedit": 1736112849,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2152818": {
