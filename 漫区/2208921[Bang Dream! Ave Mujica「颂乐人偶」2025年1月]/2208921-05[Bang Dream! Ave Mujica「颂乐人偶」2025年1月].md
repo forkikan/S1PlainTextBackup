@@ -3780,3 +3780,18 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Aendst  
+##### 6266#       发表于 2025-1-5 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67106184&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-5 11:32</a>
+
+通过大量宣传把没接触过系列作品的新观众骗进来直接看颠婆，鸡团进一步风评被害的可能增加了
+
+—— 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是武士道自己干的事了
+
+虽然在这一年间已经经受了武士道的历练，觉得他们干什么都不奇怪了
+
