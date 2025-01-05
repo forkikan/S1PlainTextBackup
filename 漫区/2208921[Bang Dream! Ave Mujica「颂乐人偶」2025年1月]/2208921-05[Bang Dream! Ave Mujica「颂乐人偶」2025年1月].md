@@ -3585,3 +3585,13 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 其实感觉狗团对母鸡卡开盒的反应会成为压垮大祥老师的最后一根稻草<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yozoraxsx  
+##### 6251#       发表于 2025-1-5 09:27
+
+哦对了，为什么都说姥爷赶走了爹?第一集那剧情并不能排除爹亏了168亿jpy，自己破防自暴自弃离家出走颓废度日，姥爷一看没救了的可能性。毕竟大祥老师退c团也是自顾自破防就退了，两代人一个模子的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
