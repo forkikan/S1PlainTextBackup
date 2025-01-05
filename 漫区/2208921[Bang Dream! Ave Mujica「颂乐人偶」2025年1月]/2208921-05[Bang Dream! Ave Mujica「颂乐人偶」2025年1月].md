@@ -3729,3 +3729,40 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 <img src="https://p.sda1.dev/21/2559ee27cc31413ac05b22050ed01f03/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/faf85154f56694882993a88ca224cd43/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6262#       发表于 2025-1-5 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105686&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-5 10:09</a>
+别介，我理解你，我也不爱听把素世说的太坏的言论，不管是谁说的。
+
+诚然，素世在复辟c团的过程中利用过不 ...</blockquote>
+好的剧本就是这样，站在每个人的视角行动都比较合理但就是会自然而然地出现戏剧冲突。
+经常被说的“回旋镖”其实就是伏笔印证没有闲笔的表现，证明是精心打磨过的剧本经得起复盘。
+
+*****
+
+####  山ノ内花音  
+##### 6263#       发表于 2025-1-5 11:07
+
+<img src="https://img.saraba1st.com/forum/202501/05/110735r8sdfpiplffflvvc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1141.jpeg</strong> (170.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-5 11:07 上传
+
+*****
+
+####  光MIKAN  
+##### 6264#       发表于 2025-1-5 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105148&amp;ptid=2208921" target="_blank">swff 发表于 2025-1-5 07:48</a>
+
+初华特意去找的灯明显的吧，自己经常去看星星怎么椅子都不会调</blockquote>
+我怎么记得访谈说过只是为了让她俩见一面才设计的这个桥段，纯粹巧合不是故意的
+
