@@ -3935,3 +3935,11 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 感觉拉长是给三次元企划护航
 
+
+*****
+
+####  yone0000  
+##### 6279#       发表于 2025-1-5 13:20
+
+补mygo的机会也挺多的，去年有剧场版，放送前特番甚至还有10分钟看完mygo的浓缩剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
