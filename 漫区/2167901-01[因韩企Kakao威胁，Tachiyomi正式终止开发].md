@@ -3233,3 +3233,17 @@ e站能出作品列表，但真正点进章节时马上退出来说“没有图�
 
 有没有 新的插件酷，我这边不怎么的，显示插件都是已经安装的，未安装的显示不了。而且好久都没跳插件更新了。梯子是正常能用的
 
+
+*****
+
+####  pgain2004  
+##### 308#         楼主| 发表于 2025-1-5 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109518&amp;ptid=2167901" target="_blank">smiths146 发表于 2025-1-5 21:35</a>
+
+有没有 新的插件酷，我这边不怎么的，显示插件都是已经安装的，未安装的显示不了。而且好久都没跳插件更新 ...</blockquote>
+[https://raw.githubusercontent.co ... repo/index.min.json](https://raw.githubusercontent.com/stevenyomi/copymanga/repo/index.min.json)
+[https://raw.githubusercontent.co ... repo/index.min.json](https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json)
+
+然后确保你的Mihon有读取应用列表的权限
+
