@@ -3864,3 +3864,18 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 1万5千投票，昨天直播里的
 
+
+*****
+
+####  holoan  
+##### 10637#         楼主| 发表于 2025-1-5 14:14
+
+就为了洗白这些年被扣上的五子棋最弱称号特地办的这个比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  11512  
+##### 10638#       发表于 2025-1-5 14:18
+
+这直播画面是真够混乱的 谁在玩 谁黑谁白 第一次看的真的分的清？
+
