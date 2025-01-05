@@ -4267,3 +4267,13 @@ PS：现在的剧透真是防不胜防，从心底讨厌这种所谓的提前上
  ...</blockquote>
 一名普通高一女生把醉酒成年男性扛起来难道不是怪力吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 6312#       发表于 2025-1-5 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108554&amp;ptid=2208921" target="_blank">RPG-7 发表于 2025-1-5 18:53</a>
+一名普通高一女生把醉酒成年男性扛起来难道不是怪力吗</blockquote>
+画面一转在丰川道场练习格斗武术<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
