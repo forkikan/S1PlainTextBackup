@@ -930,3 +930,11 @@ BSS山陰放送：2025年2月9日（日）より毎週日曜日6:15～
 <img src="https://p.sda1.dev/21/cf1a0b84f3025c056afba729b6540e3e/p_sign.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/4cc61d1ba13c6834f7b579cb9aabc317/p_sign _2_.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 218#       发表于 2025-1-5 09:14
+
+粉主的声音好像古贺葵啊
+

@@ -3558,3 +3558,30 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 初华特意去找的灯明显的吧，自己经常去看星星怎么椅子都不会调
 
+
+*****
+
+####  KLHgg  
+##### 6248#       发表于 2025-1-5 09:14
+
+<blockquote>[皆神孝介] 发表于 2025-1-4 23:15
+官方人士都说直接看没问题的话，那么Ave Mujica多半直接看也没关系，最多补一下那个动画播出前特别节目中的 ...</blockquote>
+大概wsd会给没看mygo的新人发一遍祥子剪辑版go
+
+*****
+
+####  yozoraxsx  
+##### 6249#       发表于 2025-1-5 09:19
+
+全是回旋镖没看狗怎么看鸡?尤其是大祥老师，狗里的经典台词鸡第一集都回旋镖了大半。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  pokemon最爱  
+##### 6250#       发表于 2025-1-5 09:22
+
+其实感觉狗团对母鸡卡开盒的反应会成为压垮大祥老师的最后一根稻草<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
