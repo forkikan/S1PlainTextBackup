@@ -650,3 +650,11 @@ hrt连落地都特意拖到被兔子抢了名额。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">不知道多少人侠了兑换券
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18160#       发表于 2025-1-5 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会侠的要么不缺lm要么换啥都小提升一直在比对纠结
+
