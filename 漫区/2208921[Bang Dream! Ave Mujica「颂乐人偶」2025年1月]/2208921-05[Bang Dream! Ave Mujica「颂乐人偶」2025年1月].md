@@ -3795,3 +3795,40 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 虽然在这一年间已经经受了武士道的历练，觉得他们干什么都不奇怪了
 
+
+*****
+
+####  抽搐一下  
+##### 6267#       发表于 2025-1-5 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105676&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-5 10:05</a>
+
+到底哪来的没看go就看不了mujica这种说法，甚至还能应激的……
+
+根本雄贵话里意思很明显了，但可能海外网友 ...</blockquote>
+独角兽说是所有事情都跟前作有联系，虽然她现在沉默了有没改动不好说
+
+
+*****
+
+####  Aendst  
+##### 6268#       发表于 2025-1-5 12:03
+
+ 本帖最后由 Aendst 于 2025-1-5 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67106348&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-1-5 11:57</a>
+
+独角兽说是所有事情都跟前作有联系，虽然她现在沉默了有没改动不好说</blockquote>
+彩蛋也是联系，故事有时间线前后顺也是联系，官方帮你剪出来的祥子视角那确实也是mygo篇的内容，mygo篇确实有mujica的伏笔，mujica确实和这部分有联系
+
+如何定义绫奈说的“联系”具体是什么意思？
+
+而且你有没有考虑到绫奈这个访谈里说到这句话的时候，提问人问的是：作为面向mujica的提示，在回顾mygo时有什么需要注意的地方，会回顾mygo是绫奈做出这个回复的大前提（已经知道你要去回顾了我才会这么说）
+
+且，对于mygo篇来说，crychic指的可能是祥子和睦
+
+另外根本是总负责，他是最后敲定内容的人，他说的话比绫奈更官方
+
+我看绫奈推很久了，我只能说她对mujica的态度是相当特别的
+
+有“联系”，不代表不看mygo就一定看不了mujica，看不了的叫mygo第二季，不叫mujica
+
