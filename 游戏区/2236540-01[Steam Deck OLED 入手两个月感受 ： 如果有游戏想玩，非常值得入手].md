@@ -739,3 +739,14 @@ ROG ALLY玩家路过
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  子夜的黑暗  
+##### 67#       发表于 2025-1-5 21:20
+
+我刚入了个基础版deck，跟ns一笔怎么说呢，非常的粗糙或者是硬核
+也不知道能不能初始化掉
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
