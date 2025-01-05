@@ -3879,3 +3879,51 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 漏油说得很好，导剪都给你放出来了，意思就是推荐你先去看导剪再看正片
 
+
+*****
+
+####  adcdqre  
+##### 6273#       发表于 2025-1-5 12:24
+
+最近看完mujica好多人说去回顾mygo是不是意思是先看mujica再看mygo才能获得完整体验。
+
+*****
+
+####  抽搐一下  
+##### 6274#       发表于 2025-1-5 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67106401&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-5 12:03</a>
+彩蛋也是联系，故事有时间线前后顺也是联系，官方帮你剪出来的祥子视角那确实也是mygo篇的内容，mygo篇确 ...</blockquote>
+宣传话术考虑商业效应本来就会说能看，说不能得损失多少观众，观众能get到多少不是优先考虑的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Aendst  
+##### 6275#       发表于 2025-1-5 12:29
+
+我觉得这个要看观众需求，观众如果想要体验一种探索发现的快乐，应该先从mygo看起，然后去看mujica
+
+观众如果想要体验一种能找到彩蛋的快乐，应该先从mujica看起，然后再看mygo
+
+
+*****
+
+####  66367749  
+##### 6276#       发表于 2025-1-5 12:31
+
+这种续作/分割放送官方肯定都说不看也行的，真要单独看那确实也行，不过不管先看哪个体验来说都是不一样的。
+
+*****
+
+####  Aendst  
+##### 6277#       发表于 2025-1-5 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67106604&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-1-5 12:26</a>
+
+宣传话术考虑商业效应本来就会说能看，说不能得损失多少观众，观众能get到多少不是优先考虑的
+
+—— 来自 ...</blockquote>
+从中间隔了一年半横插两个纯净剧场版这个决策开始，你说他们考虑观众损失这本身就已经是一个笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3812,3 +3812,26 @@ fuwamoco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 播了60小时，相当于5天内有一半以上的时间在直播
 
+
+*****
+
+####  holoan  
+##### 10633#         楼主| 发表于 2025-1-4 23:13
+
+1.6万日元的长袖瞬间抢空，2万4的卫衣还有库存
+
+真就抢钱
+
+*****
+
+####  holoan  
+##### 10634#         楼主| 发表于 2025-1-5 12:34
+
+<img src="https://img.saraba1st.com/forum/202501/05/123420tbqjwdyxeiwnizjm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 12:34 上传
+
