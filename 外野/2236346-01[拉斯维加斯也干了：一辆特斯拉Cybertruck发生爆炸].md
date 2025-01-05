@@ -886,3 +886,18 @@ https://files.catbox.moe/1ynwhe.mp4</blockquote>
 
 失败主义谋士。
 
+
+*****
+
+####  blueskant  
+##### 88#       发表于 2025-1-5 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67101391&amp;ptid=2236346" target="_blank">迪米特里 发表于 2025-1-4 14:54</a>
+
+南海的浪涛：
+
+“美军特斯拉自爆特种兵利维尔斯伯格留给主播Sam Shoemate的遗书，内容匪夷所思。
+
+大意是中美 ...</blockquote>
+没有给川粉洗地的意思，但越刻板才越假不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
