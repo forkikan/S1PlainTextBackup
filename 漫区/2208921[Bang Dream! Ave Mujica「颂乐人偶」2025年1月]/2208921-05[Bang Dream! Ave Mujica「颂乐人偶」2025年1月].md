@@ -4513,3 +4513,58 @@ mr_frog716：
 
 2025-1-5 23:51 上传
 
+
+*****
+
+####  AnnieLeonhart  
+##### 6333#       发表于 2025-1-5 23:58
+
+群里朋友说小日向美香透情报soyo这季还有高光时刻，有这事吗
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 6334#       发表于 2025-1-6 00:00
+
+不是saki高光么
+
+*****
+
+####  哈曼的YY  
+##### 6335#       发表于 2025-1-6 00:01
+
+<img src="https://img.saraba1st.com/forum/202501/06/000023isq2d6g2n7mem2j7.jpg" referrerpolicy="no-referrer">
+
+<strong>GghqF-JbsAANpRx.jpg</strong> (469.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 00:00 上传
+
+[https://x.com/Slug10000/status/1875865926035480612](https://x.com/Slug10000/status/1875865926035480612)
+
+<img src="https://img.saraba1st.com/forum/202501/06/000120wvpwvwjsoxzdqods.jpg" referrerpolicy="no-referrer">
+
+<strong>GggFZ0BbgAAJQ4v.jpg</strong> (257.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 00:01 上传
+
+[https://x.com/clouble_/status/1875755198012137630](https://x.com/clouble_/status/1875755198012137630)
+
+*****
+
+####  akiomn  
+##### 6336#       发表于 2025-1-6 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110370&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-5 23:58</a>
+群里朋友说小日向美香透情报soyo这季还有高光时刻，有这事吗
+
+—— 来自 nubia NX721J, Android 14上的 S1N ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有，我记得蜜柑是说mujica有她喜欢的剧情还是说期待mujica剧情来着，反正没说过有soyo高光（应该是迷子集会提过mujica）
+而且这是mujica主场，给soyo高光纯属想多了，顶多打个助攻
+
