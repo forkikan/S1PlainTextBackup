@@ -1305,3 +1305,13 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 <img src="https://p.sda1.dev/21/a1a0f476d3bbc7c63cf088dbdffaaabd/CMP_20250104122605548.jpg" referrerpolicy="no-referrer">漏油2025快乐
 
+
+*****
+
+####  史艳文  
+##### 46940#       发表于 2025-1-5 11:48
+
+800石头丢进去，2个提妈，还行。下一个就是抽学姐了
+
+现在就剩下几十了
+
