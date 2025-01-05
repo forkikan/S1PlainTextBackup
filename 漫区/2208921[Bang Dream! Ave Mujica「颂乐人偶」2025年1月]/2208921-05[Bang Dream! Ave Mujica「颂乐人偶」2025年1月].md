@@ -4568,3 +4568,36 @@ mr_frog716：
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有，我记得蜜柑是说mujica有她喜欢的剧情还是说期待mujica剧情来着，反正没说过有soyo高光（应该是迷子集会提过mujica）
 而且这是mujica主场，给soyo高光纯属想多了，顶多打个助攻
 
+
+*****
+
+####  鲍里斯  
+##### 6337#       发表于 2025-1-6 00:17
+
+整理一下我自己的胡思乱想，大家随便看看就好了
+
+祥子的世界观的主题是人偶，而祥子母亲遗留下来的、祥子从小抱着的都是人偶，因此我猜测祥子创造这个世界观可能是为了讲述自己的故事，也可能是为了缅怀母亲，还有可能是以此激励父亲
+
+另一方面，祥子是一个理想主义者，流量和金钱可能只是实现她目标的手段，她所谓的“最好的舞台”多半不是指的规模意义上的大舞台，而是能真正揭露世界观真相的舞台
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  一心而用  
+##### 6338#       发表于 2025-1-6 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110344&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-5 23:51</a></blockquote>
+<img src="https://p.sda1.dev/21/080dc51e5be52d6cea52e7493b23d934/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/07db39b6ec3be3c8017518e9933ffe95/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4bf575cfa16ddc84ecff960f0f45a08d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3150f04b8501752f5ffce8141cda6c3d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/da1ff51a53e65d4d63de90772836b726/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cdb4ed36e12fcc091f74cfd52778f32b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7ae09229630fc58f14fc5e5f693c5bc1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0046ab77867f7c82245c195a3e1a8557/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f32dc9fd4c9c6352be27099535ef95ab/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ba3cbfabfe5ffe77eff77a3338b8128c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fef36fa47de9b90bc097763717527234/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fde92eab75835d45ae99c52c55ef417d/image.jpg" referrerpolicy="no-referrer">
+
