@@ -4231,3 +4231,26 @@ PS：现在的剧透真是防不胜防，从心底讨厌这种所谓的提前上
 
 感觉那个说鸡团的五人目前都处在“无自觉”状态，而睦第一个醒过来的解读还是比较有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无事忙  
+##### 6309#       发表于 2025-1-5 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67106942&amp;ptid=2208921" target="_blank">yone0000 发表于 2025-1-5 13:20</a>
+
+补mygo的机会也挺多的，去年有剧场版，放送前特番甚至还有10分钟看完mygo的浓缩剧情 ...</blockquote>
+可别，10分钟看完mygo怎么想都会变成闪光丸山彩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 6310#       发表于 2025-1-5 18:13
+
+<img src="https://p.sda1.dev/21/51458a33681ff78c15240987ec9763fb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c34d5db9a296fa63a881edd260c9db69/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/3a4576f6827f07b56f76e96ea6063c29/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1427635d26107c9f3e9906d76fe32817/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/68a0dbb77cd741b748b0a75aacef9b2d/image.jpg" referrerpolicy="no-referrer">
+
