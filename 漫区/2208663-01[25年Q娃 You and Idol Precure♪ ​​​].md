@@ -885,3 +885,38 @@ BSS山陰放送：2025年2月9日（日）より毎週日曜日6:15～
 
 蓝毛磕紫棕cp<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 215#       发表于 2025-1-5 08:48
+
+变身后的瞳色，Idol是蓝色，Wink是紫色，Kyunkyun是金黄色，正好对应队友的发色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+懂了，箭头是Idol→Wink→Kyunkyun→Idol这样来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 双菜| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  lawsherman  
+##### 216#       发表于 2025-1-5 08:50
+
+谷野美酒
+
+神鹰
+
+前川未来
+
+这3D舞台，是学马仕呀
+
