@@ -4047,3 +4047,21 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 有没有可能，真心话最伤人的部份全都会上舞台剧（戏剧性+舞台装置支持的演出更好看）
 
+
+*****
+
+####  杂灰  
+##### 6290#       发表于 2025-1-5 15:26
+
+gay doll play是这样的
+
+*****
+
+####  上条仁美  
+##### 6291#       发表于 2025-1-5 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107116&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-5 14:46</a>
+
+相比于纯路人，稍微了解一点邦邦但最近几年没关注的，突然看到如此不krkr却超dkdk的系列新作，冲击力应该更 ...</blockquote>
+非常killerkiller啊，都直接写OP标题上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
