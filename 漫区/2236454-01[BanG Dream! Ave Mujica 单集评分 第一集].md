@@ -2015,3 +2015,15 @@ C团的音乐水平和M团的能比吗，挖来能干啥<img src="https://static
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 202#       发表于 2025-1-5 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67105180&amp;ptid=2236454" target="_blank">swessia 发表于 2025-1-5 08:03</a>
+摘面具后发现大家都关注初华和睦的脸去了，没人关注母鸡卡的音乐性，又偶然听说丰川家的大手安排事务所之 ...</blockquote>
+那倒不至于，睦是观众在意的她爸妈，谁会在意她本人。被初华抢走那就更好了，她是主唱。如果主唱是大祥，那肯定是坏结果。主唱是最有流量的那个，只有好处没有坏处
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
