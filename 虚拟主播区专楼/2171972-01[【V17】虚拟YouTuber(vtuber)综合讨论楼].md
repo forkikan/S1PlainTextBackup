@@ -238,3 +238,11 @@ sky对やみえん的执念……连凸待都拉来参加
 
 主流VTB逐渐开始玩POE,  我怎么会做这种梦.
 
+
+*****
+
+####  Ketestrait  
+##### 994#       发表于 2025-1-6 03:56
+
+为什么不看看打开频道直播主页从上到下铺满通过宵12小时POE2的王霸山<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
