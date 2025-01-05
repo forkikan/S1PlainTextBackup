@@ -7501,3 +7501,33 @@ fsf能加的多了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">cy等更新
 
+
+*****
+
+####  亚历山大帝  
+##### 394#       发表于 2025-1-5 20:35
+
+ 本帖最后由 亚历山大帝 于 2025-1-5 20:36 编辑 
+
+经典场面再现，
+
+但是人物画的如此潦草，就没想到这场面一定会被拿来和19年前的动画比吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/05/203338kv1i8j1qivovqj8t.jpg" referrerpolicy="no-referrer">
+
+<strong>[ANi] Fate／strange Fake - 01 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_20250105_2.jpg</strong> (144.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 20:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/05/203348xj6ww50jb5wp622x.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (96.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 20:33 上传
+
