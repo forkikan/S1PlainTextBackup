@@ -703,3 +703,11 @@ ps3直接去官网下载Linux版就行了
 
 —— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  83913536  
+##### 63#       发表于 2025-1-5 12:51
+
+个人觉得SD OLED还是目前最适合串流的设备（包括PS5和STEAM串流），OLED，HDR，功耗低，加上足够丰富的按键和触控板自定义
+

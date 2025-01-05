@@ -3927,3 +3927,11 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 —— 来自 ...</blockquote>
 从中间隔了一年半横插两个纯净剧场版这个决策开始，你说他们考虑观众损失这本身就已经是一个笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yozoraxsx  
+##### 6278#       发表于 2025-1-5 12:50
+
+感觉拉长是给三次元企划护航
+
