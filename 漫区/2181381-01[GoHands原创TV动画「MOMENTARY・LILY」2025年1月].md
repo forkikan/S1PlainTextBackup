@@ -270,3 +270,11 @@ op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么
 
 之前看的几个sweetsub的片子都烂完了（单纯调侃，没有黑的意思）
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 75#       发表于 2025-1-5 22:35
+
+第一次看动画看出晕车的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
