@@ -4407,3 +4407,18 @@ https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpw
 不开盒就这样下去鸡团算不算是在走c团的老路，都是祥子一人主导的乐队，她不炸还好，一炸就救都难救 ...</blockquote>
 商业乐队和学生业余玩玩的不是一个概念
 
+
+*****
+
+####  一心而用  
+##### 6323#       发表于 2025-1-5 21:49
+
+ 本帖最后由 一心而用 于 2025-1-5 21:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109163&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-5 20:31</a>
+https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg</blockquote>
+mr_frog716：
+<img src="https://p.sda1.dev/21/ba741d53ef57bfcde036368b71ca0622/image.jpg" referrerpolicy="no-referrer">
+
+作者见水印
+<img src="https://p.sda1.dev/21/615a408a85fbcb4d13ef5c5c6174f42b/image.jpg" referrerpolicy="no-referrer">
+
