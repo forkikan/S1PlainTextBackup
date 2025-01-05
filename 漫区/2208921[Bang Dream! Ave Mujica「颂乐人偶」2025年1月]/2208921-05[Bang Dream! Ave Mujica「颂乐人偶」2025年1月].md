@@ -4378,3 +4378,11 @@ https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpw
 https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg</blockquote>
 猫好，人坏XD
 
+
+*****
+
+####  l159020  
+##### 6320#       发表于 2025-1-5 21:36
+
+不开盒就这样下去鸡团算不算是在走c团的老路，都是祥子一人主导的乐队，她不炸还好，一炸就救都难救
+
