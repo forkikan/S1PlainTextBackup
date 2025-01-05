@@ -4254,3 +4254,16 @@ PS：现在的剧透真是防不胜防，从心底讨厌这种所谓的提前上
 <img src="https://p.sda1.dev/21/1427635d26107c9f3e9906d76fe32817/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/68a0dbb77cd741b748b0a75aacef9b2d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RPG-7  
+##### 6311#       发表于 2025-1-5 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107714&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-5 16:06</a>
+
+应该是作画的问题，因为下一秒门框就复原了，不过可能会因此有祥子怪力的二创设定。
+
+ ...</blockquote>
+一名普通高一女生把醉酒成年男性扛起来难道不是怪力吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
