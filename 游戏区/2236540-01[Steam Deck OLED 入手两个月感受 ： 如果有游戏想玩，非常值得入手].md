@@ -691,3 +691,15 @@ retroarch就没有ps3模拟器，它最多支持到ps2和wii，但这俩依然�
 
 我的建议是你懒还是emudeck，不然逐个在discover下吧
 
+
+*****
+
+####  你好s1  
+##### 62#       发表于 2025-1-5 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104757&amp;ptid=2236540" target="_blank">月夜凝雪 发表于 2025-1-5 01:23</a>
+Retroarch里哪个是PS3模拟器？看得我一头雾水</blockquote>
+ps3直接去官网下载Linux版就行了
+
+—— 来自 vivo V2352A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
