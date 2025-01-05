@@ -666,3 +666,18 @@ hrt连落地都特意拖到被兔子抢了名额。
 
 方阵照片推荐朝鲜的顺序是什么？
 
+
+*****
+
+####  Sylpheed  
+##### 18162#       发表于 2025-1-6 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108963&amp;ptid=1158205" target="_blank">poor 发表于 2025-1-5 19:59</a>
+方阵照片推荐朝鲜的顺序是什么？</blockquote>
+默认该有的角色都有且不是老王的话，火最优先,双面下草日常上踢老7。
+其次风土，不管2.0还是3.0武器都比较吃加护。不过日常本用单面用得也挺多，特别是野蛮土方。
+然后水方光方单面用得尤其多，不过上jf这种高难还是得双面，这四个只能看你需求取舍。
+最后暗方摆盘实在太过于垃圾了，我没实战玩过看看别人评价吧，不过估计都差不多感受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
