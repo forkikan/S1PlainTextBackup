@@ -1061,3 +1061,11 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 这配置要是还能做烂掉东映就去死吧
 
+
+*****
+
+####  Parahure  
+##### 228#       发表于 2025-1-5 13:34
+
+没有期望就没有失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然这STAFF阵容看着不错
+

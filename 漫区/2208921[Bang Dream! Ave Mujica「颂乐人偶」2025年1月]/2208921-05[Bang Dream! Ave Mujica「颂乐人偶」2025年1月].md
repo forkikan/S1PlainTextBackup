@@ -3943,3 +3943,14 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 补mygo的机会也挺多的，去年有剧场版，放送前特番甚至还有10分钟看完mygo的浓缩剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  池袋西柚  
+##### 6280#       发表于 2025-1-5 13:34
+
+第一话的节奏和编排应该是有考虑到续作开篇的定位。至于后面的剧情，我感觉mygo的戏份会比我想象中的多，保证观看体验还是至少要把导剪版看了。
+不知道鸡这波能引多少人，能倒逼一些人去看狗也是好事。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
