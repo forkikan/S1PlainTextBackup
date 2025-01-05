@@ -792,3 +792,88 @@
 
 不过诺艾尔确实是个遗憾
 
+
+*****
+
+####  jaewoongh_  
+##### 210#       发表于 2025-1-5 08:20
+
+完全是偶活……3d舞台代替战斗？那似乎也行
+
+*****
+
+####  双菜  
+##### 211#       发表于 2025-1-5 08:22
+
+又是没战斗的一年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个设定肯定就是和敌团斗舞了
+
+
+*****
+
+####  双菜  
+##### 212#       发表于 2025-1-5 08:25
+
+故事&amp;角色
+主人公咲良さくらうた是一个非常喜欢唱歌的初二学生。
+有一天，她遇到了来寻找传说中的救世主偶像——プリキュア（Precure）的妖精プリルン！
+
+プリルン告诉她，自己的家乡——キラキランド（Kirakiland）被邪恶的チョッキリ团（Chokkiri）头目ダークイーネ（Darkine）弄成了漆黑一片。
+在这种情况下，街上的人们的“キラキラ”（闪耀的心情）也被チョッキリ团夺走了，陷入了巨大的危机！
+
+“我想让这里变得闪亮耀眼！用我的歌声！”
+うた（Uta）下定决心，变身成传说中的救世主《キュアアイドル》（Cure Idol）！
+
+唱歌、跳舞、与粉丝互动♡
+无论多么黑暗的世界，我都会让你变得闪亮耀眼！
+
+*****
+
+####  Piano-Forest  
+##### 213#         楼主| 发表于 2025-1-5 08:27
+
+新番組『キミとアイドルプリキュア♪』ABCテレビ・テレビ朝日系列にて2025年2月2日 日曜あさ8時30分～放送スタート！
+[https://youtu.be/JK8GE-6pU8U](https://youtu.be/JK8GE-6pU8U)
+
+放送情報
+
+ABCテレビ・テレビ朝日系列全国24局ネット：2025年2月2日（日）より毎週日曜日8:30～
+
+BSS山陰放送：2025年2月9日（日）より毎週日曜日6:15～
+
+スタッフ
+
+シリーズディレクター：今千秋
+
+シリーズ構成：加藤陽一
+
+キャラクターデザイン：杉本海帆
+
+美術デザイン：いいだりえ
+
+美術監督：陳烔年
+
+色彩設計：柳澤久美子
+
+音楽：深澤恵梨香 / 馬瀬みさき
+
+製作：ABCテレビ / ABCアニメーション / ADKエモーションズ / 東映アニメーション
+
+プロデューサー：西村舞音（ＡＢＣアニメーション）/村瀬亜季（東映アニメーション）
+
+キャスト
+
+キュアアイドル／咲良うた：松岡美里
+
+キュアウインク／蒼風なな：高橋ミナミ
+
+キュアキュンキュン／紫雨こころ：高森奈津美
+<img src="https://p.sda1.dev/21/652fdff3ef2e3f2221596615c60508e2/20250105_081012.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/17e4439cf71b6303c017cdcb3840776f/20250105_080544.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/555cb77a5616b0f501b7977651516f5e/0064O7Xmly1hx9kl5vg0gj315o1okkjl.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5186802d5f3a7ae9796f60cc000b9748/0064O7Xmly1hx9kl6srjtj315o1okhdt.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/888766e3df7fe61847f3b4ca2758f303/0064O7Xmly1hx9kl7ptjvj315o1oke81.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3609c013d8b6d6738079e3c51b1239bc/20250105_081024.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0a5a9ffe72fb5babc1ead63557e98d0a/20250105_081028.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b932bdc43d97249a3285de8b2e8609be/20250105_081034.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/212278daec17342780b028f151ad1537/20250105_081016.jpg" referrerpolicy="no-referrer">
+
