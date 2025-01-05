@@ -4367,3 +4367,14 @@ https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpw
 就是队里谁都可以利用“演奏前后演戏”的设定，用“即兴发挥”的名义塞私货表达不满 ...</blockquote>
 什么太平天国，轮流天父上身向天王发难是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 6319#       发表于 2025-1-5 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109163&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-5 20:31</a>
+
+https://x.com/jennyiq2008/status/1875863607130697881?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg</blockquote>
+猫好，人坏XD
+
