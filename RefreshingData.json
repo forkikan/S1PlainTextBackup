@@ -3777,7 +3777,7 @@
     "lastedit": 1735977180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 11162,
+    "totalreply": 11164,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1736060654,
+    "lastedit": 1736061974,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 122132,
+    "totalreply": 122136,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1736061017,
+    "lastedit": 1736061849,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9405,10 +9405,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 13320,
+    "totalreply": 13321,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1736060428,
+    "lastedit": 1736061614,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10395,10 +10395,10 @@
     "update": false
   },
   "2201083": {
-    "totalreply": 1134,
+    "totalreply": 1135,
     "title": "[宝可梦卡牌手游PTCG pocket（9.26新西兰服已提前上线]",
     "newtitle": "[宝可梦卡牌手游PTCG pocket（10.30已全球上线]",
-    "lastedit": 1736058133,
+    "lastedit": 1736061974,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10773,10 +10773,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 6288,
+    "totalreply": 6289,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月(前三集剧透注意)]",
-    "lastedit": 1736061017,
+    "lastedit": 1736061619,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11088,10 +11088,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 15718,
+    "totalreply": 15722,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1736061017,
+    "lastedit": 1736061972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15422,7 +15422,7 @@
     "newtitle": "[技术封锁真的有效吗？]",
     "lastedit": 1735802547,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2234897": {
@@ -15525,10 +15525,10 @@
     "update": false
   },
   "2236146": {
-    "totalreply": 322,
+    "totalreply": 323,
     "title": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
     "newtitle": "[【2024年赤石记录】以单机蝗虫形式蝗的各种三端手游锐评]",
-    "lastedit": 1736039659,
+    "lastedit": 1736061619,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16218,10 +16218,10 @@
     "update": false
   },
   "2236311": {
-    "totalreply": 242,
+    "totalreply": 243,
     "title": "[冯总亲自石锤了目前没有Xbox版黑猴原因]",
     "newtitle": "[冯总亲自石锤了目前没有Xbox版黑猴原因]",
-    "lastedit": 1736061013,
+    "lastedit": 1736061974,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16578,10 +16578,10 @@
     "update": false
   },
   "2236419": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[P3R少有把功力全用在结局上了，蛇头虎尾]",
     "newtitle": "[P3R少有把功力全用在结局上了，蛇头虎尾]",
-    "lastedit": 1736038461,
+    "lastedit": 1736061619,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17073,19 +17073,19 @@
     "update": false
   },
   "2236566": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[造车新势力 2024 年仅三家完成销量目标：小米、理想、零跑]",
     "newtitle": "[造车新势力 2024 年仅三家完成销量目标：小米、理想、零跑]",
-    "lastedit": 1736058616,
+    "lastedit": 1736061738,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2236562": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[刷到个关于苏联公投的视频，看完后有两个推论]",
     "newtitle": "[刷到个关于苏联公投的视频，看完后有两个推论]",
-    "lastedit": 1736054059,
+    "lastedit": 1736062090,
     "category": "外野",
     "active": true,
     "update": false
@@ -17361,10 +17361,10 @@
     "update": false
   },
   "2236651": {
-    "totalreply": 59,
+    "totalreply": 61,
     "title": "[昆明的怎么这么不正经啊]",
     "newtitle": "[昆明的怎么这么不正经啊]",
-    "lastedit": 1736057775,
+    "lastedit": 1736062093,
     "category": "外野",
     "active": true,
     "update": false
@@ -17424,10 +17424,10 @@
     "update": false
   },
   "2208684": {
-    "totalreply": 184,
+    "totalreply": 185,
     "title": "[亮亮丽君夫妇的最速超市倒闭传说]",
     "newtitle": "[亮亮丽君夫妇的最速超市倒闭传说]",
-    "lastedit": 1736061382,
+    "lastedit": 1736061738,
     "category": "外野",
     "active": true,
     "update": false
@@ -17451,10 +17451,10 @@
     "update": false
   },
   "2236691": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[雷军：中国汽车产业应少些歪门邪道，不要发黑稿、背后捅刀子]",
     "newtitle": "[雷军：中国汽车产业应少些歪门邪道，不要发黑稿、背后捅刀子]",
-    "lastedit": 1736061382,
+    "lastedit": 1736062093,
     "category": "外野",
     "active": true,
     "update": false
@@ -17487,19 +17487,19 @@
     "update": false
   },
   "2236702": {
-    "totalreply": 66,
+    "totalreply": 68,
     "title": "[看了几天勇哥说餐饮，有些人真是挣不到认知以外的钱]",
     "newtitle": "[看了几天勇哥说餐饮，有些人真是挣不到认知以外的钱]",
-    "lastedit": 1736061382,
+    "lastedit": 1736061738,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2236698": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[华人房东禁止留学生用摄氏度，用华氏度]",
     "newtitle": "[华人房东禁止留学生用摄氏度，用华氏度]",
-    "lastedit": 1736061382,
+    "lastedit": 1736061738,
     "category": "外野",
     "active": true,
     "update": false

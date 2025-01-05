@@ -4039,3 +4039,11 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 —— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  595505568  
+##### 6289#       发表于 2025-1-5 15:18
+
+有没有可能，真心话最伤人的部份全都会上舞台剧（戏剧性+舞台装置支持的演出更好看）
+
