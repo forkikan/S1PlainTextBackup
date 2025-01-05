@@ -93,3 +93,17 @@ ua强度已经提过一波。今天下午拿去年出第2弹的卡组去打今�
 
 现在有强度的卡组大家都有raid带人，可能万代觉得所有人都强也算一种平衡？不知道后面还会不会有禁限制表
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 198#       发表于 2025-1-6 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110394&amp;ptid=2175566" target="_blank">lagunablade 发表于 2025-1-6 00:03</a>
+同意楼上的总结，现在TCG就是存量市场。感觉国内新一批TCG玩家绝大多数都是先玩的PTCG，然后有部分会转到其 ...</blockquote>
+身边统计学简中PTCG最烂的环境是2023年深圳大师赛后的环境，一是4.5盒除了葱油饼对彩超算得上加强外，主流卡组和4.0完全没有区别，而那个环境的游戏周期还非常长，9月中旬4.5到11月才进入5.0的黑马环境。在深圳赛后到5.0发售天津赛前，玩家都被引流到其他卡牌了，包括但不限于OPCG甚至三国杀。
+而现在的9.0则将是第二烂的环境，原本属于朱紫新主流的沙奈朵不存在、密勒顿缺关键场地卡，剑盾GO卡阉割、9.0变成了一个老的去了新的不来的奇葩环境。从24年深圳大师赛结束到9.0结束可能将近两个月的垃圾时间，甚至还要推几乎没有实用卡的151扩圈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+只能说洛卡纳简中的发售真是挑了个好时候，而宝上海又真的是给机会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+P.S.洛卡纳很多妹妹想了解，总感觉过两弹就是集美心心念念爆款潮玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
