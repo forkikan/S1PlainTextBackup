@@ -1069,3 +1069,11 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 没有期望就没有失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然这STAFF阵容看着不错
 
+
+*****
+
+####  wly  
+##### 229#       发表于 2025-1-5 16:52
+
+热带的p，看着pv里拿着勺子当麦的镜头，感觉又是一部比较欢乐的q娃。搞点偶像部的欢乐日常风评低不了。
+
