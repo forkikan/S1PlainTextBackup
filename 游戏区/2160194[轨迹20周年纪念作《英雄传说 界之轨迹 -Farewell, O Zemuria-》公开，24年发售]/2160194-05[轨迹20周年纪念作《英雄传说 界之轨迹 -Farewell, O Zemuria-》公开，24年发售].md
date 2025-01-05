@@ -3036,3 +3036,17 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 黎1打完了，感觉这相当好嘛。人数8个刚刚好不至于装备都买不回来。即时制虽然没啥用但是当成战外补CP手段还 ...</blockquote>
 毕竟黎轨画师就换了，女性角色立绘直接增加年龄
 
+
+*****
+
+####  卢迪克  
+##### 7394#       发表于 2025-1-5 13:55
+
+<img src="https://img.saraba1st.com/forum/202501/05/135547qdiulszxyczz02ir.jpg" referrerpolicy="no-referrer">
+
+<strong>1735978100251118.jpg</strong> (134.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-5 13:55 上传
+

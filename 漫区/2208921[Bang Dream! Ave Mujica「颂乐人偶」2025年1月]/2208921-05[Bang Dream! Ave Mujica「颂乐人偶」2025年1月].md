@@ -3971,3 +3971,13 @@ sumimi没有解散，只是没人来了<img src="https://static.saraba1st.com/im
 
 有興趣，自然會往前補了
 
+
+*****
+
+####  影伴光生  
+##### 6283#       发表于 2025-1-5 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比于纯路人，稍微了解一点邦邦但最近几年没关注的，突然看到如此不krkr却超dkdk的系列新作，冲击力应该更大
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
