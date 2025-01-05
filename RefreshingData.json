@@ -3777,7 +3777,7 @@
     "lastedit": 1736077860,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 11243,
+    "totalreply": 11244,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1736100370,
+    "lastedit": 1736106728,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9405,10 +9405,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 13373,
+    "totalreply": 13374,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1736098448,
+    "lastedit": 1736106730,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -15782,7 +15782,7 @@
     "newtitle": "[日本，怎么就成了江浙沪打工人的后花园？]",
     "lastedit": 1735847411,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2202470": {
