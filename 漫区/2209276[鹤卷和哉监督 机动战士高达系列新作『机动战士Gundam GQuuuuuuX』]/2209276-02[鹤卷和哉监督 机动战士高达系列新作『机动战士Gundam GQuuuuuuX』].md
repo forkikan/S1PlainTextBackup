@@ -8103,3 +8103,36 @@ CCA都0096了关0085的GQX啥事
 而且少数群体中的特殊个体， ...</blockquote>
 考虑到吉翁获胜了，不排除这是nt大规模存在以至于能分门别类的世界线吧
 
+
+*****
+
+####  王留美  
+##### 2091#       发表于 2025-1-6 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67113099&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-6 12:37</a>
+ 应该是某些影院草台到放错文件了，提前放了PV2</blockquote>
+不好说是电影院的锅还是日升/卡哈的锅
+我看了那两个目击者发帖当天的推他们当天在的位置还差的挺远的，应该不是同一个电影院
+
+*****
+
+####  双菜  
+##### 2092#       发表于 2025-1-6 13:13
+
+上映这么多馆+khara，票房能有50亿吗
+
+
+*****
+
+####  王留美  
+##### 2093#       发表于 2025-1-6 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67113340&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-6 13:13</a>
+ 上映这么多馆+khara，票房能有50亿吗</blockquote>
+够呛
+真奥40亿
+真假23亿
+
+我觉得真敢达的保底应该在30亿左右
+40亿就要看运气了
+
