@@ -4765,3 +4765,29 @@ mr_frog716：
 
 总之还是**wsd提前三集的锅(
 
+
+*****
+
+####  DARK_HGCG  
+##### 6351#       发表于 2025-1-6 10:12
+
+啊我终于明白母鸡卡缺什么了
+
+卖狗每集结束都有爱音报天气
+
+母鸡卡没有
+
+*****
+
+####  一心而用  
+##### 6352#       发表于 2025-1-6 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67111786&amp;ptid=2208921" target="_blank">bbjajdd 发表于 2025-1-6 09:57</a>
+不行了
+
+越看go和🐔前三集的初华片段越不安
+
+在鸡狗其他角色的衬托下，初华给人一种毛骨悚然的感觉。</blockquote>
+正好看到这个
+<img src="https://p.sda1.dev/21/0651f0698397c0ffabd6e32dcdcb75ba/image.jpg" referrerpolicy="no-referrer">
+

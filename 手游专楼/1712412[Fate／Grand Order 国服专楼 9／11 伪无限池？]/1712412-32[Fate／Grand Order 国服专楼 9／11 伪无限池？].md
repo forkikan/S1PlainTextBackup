@@ -1335,3 +1335,11 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  史艳文  
+##### 46943#       发表于 2025-1-6 10:12
+
+怎么我记得贴吧看到说2024年日服总共是2000+石头的
+
