@@ -5166,3 +5166,37 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 
 大祥老师要是失败的话，会被逼着跳天台吗
 
+
+*****
+
+####  ads147147  
+##### 6386#       发表于 2025-1-6 14:56
+
+到了舞台上，得看谁有戏~
+
+说起来记得有人从op大喵老师跳芭蕾的姿态上分析大喵老师其实大概率从小就进行了舞台训练，说不定还是五人组里最会演的哪个，按她的做法来不一定会出问题，但是事实就是这个世界充满了意外不是。。
+
+*****
+
+####  akiomn  
+##### 6387#       发表于 2025-1-6 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67113988&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-6 14:56</a>
+到了舞台上，得看谁有戏~
+
+说起来记得有人从op大喵老师跳芭蕾的姿态上分析大喵老师其实大概率从小就进行了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵最可悲的是她对比普通人是很不错了，但她碰上了睦祥这俩天赋怪（甚至初华也可能是个六边形战士）
+
+
+*****
+
+####  ads147147  
+##### 6388#       发表于 2025-1-6 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114000&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-6 14:59</a>
+
+大喵最可悲的是她对比普通人是很不错了，但她碰上了睦祥这俩天赋怪（甚至初华也可能是个六边形战士） ...</blockquote>
+乡下来的天才偶遇落魄大小姐，拼尽全力无法战胜~
+
+不对，初华也是乡下来的，气死了。
+

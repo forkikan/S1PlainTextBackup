@@ -8308,3 +8308,25 @@ gqx装备太素了点，前期应该不行</blockquote>
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  RE㐅ia  
+##### 2111#       发表于 2025-1-6 15:00
+
+<blockquote>Toby_dak 发表于 2025-1-6 14:52
+剧场版怎么都不提ククルス岛，那才是硬核老粉专供啊
+
+</blockquote>
+老粉真的看得上吗（
+
+*****
+
+####  王留美  
+##### 2112#       发表于 2025-1-6 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67113964&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-6 14:52</a>
+
+剧场版怎么都不提ククルス岛，那才是硬核老粉专供啊</blockquote>
+太核了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
