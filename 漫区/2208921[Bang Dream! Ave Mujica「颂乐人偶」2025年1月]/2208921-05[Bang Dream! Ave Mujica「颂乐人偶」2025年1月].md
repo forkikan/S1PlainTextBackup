@@ -4700,3 +4700,16 @@ mr_frog716：
 
 如果初华有这个本事，还唱什么歌，算命去好了
 
+
+*****
+
+####  ads147147  
+##### 6346#       发表于 2025-1-6 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67109532&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-5 21:38</a>
+
+前三集喵梦和睦的锅还真全是祥子背的第四集继续吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">作为producer，这点抗压还是要的，此事在隔壁爱马仕亦有记载。
+
+只怕后面吼不住。
+
