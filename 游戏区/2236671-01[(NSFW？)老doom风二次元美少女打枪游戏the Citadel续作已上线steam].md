@@ -484,3 +484,13 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 
 原来不是想象中的NSFW啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 51#       发表于 2025-1-6 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107397&amp;ptid=2236671" target="_blank">Andariel 发表于 2025-1-5 14:52</a>
+操了，怎么今天才看到这个帖子，可惜冬促过了，不知道下次1代什么时候打折 ...</blockquote>
+1代就大促和fps游戏节才打折，下一次打折应该是三四月份的春促。
+
