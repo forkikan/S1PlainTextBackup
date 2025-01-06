@@ -9830,3 +9830,21 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">想组个拆尼子常规7骑结果没找到弓
 fgo有生之年有机会实装嘟嘟吗
 
+
+*****
+
+####  gpx234mqx  
+##### 16014#       发表于 2025-1-6 19:14
+
+太棒了这次叶子
+
+女武神大团圆
+
+<img src="https://img.saraba1st.com/forum/202501/06/191406bbgzhvg3bakgp8hg.png" referrerpolicy="no-referrer">
+
+<strong>C6077BBB-6091-4118-AF4B-FAB13161ADDC.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 19:14 上传
+
