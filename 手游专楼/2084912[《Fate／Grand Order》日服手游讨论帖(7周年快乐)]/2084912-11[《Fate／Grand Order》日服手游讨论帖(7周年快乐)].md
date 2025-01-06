@@ -9848,3 +9848,19 @@ fgo有生之年有机会实装嘟嘟吗
 
 2025-1-6 19:14 上传
 
+
+*****
+
+####  qixinno2  
+##### 16015#       发表于 2025-1-6 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘻嘻 终于抽到215了
+
+<img src="https://img.saraba1st.com/forum/202501/06/192704sbbazh3maknt6u6n.png" referrerpolicy="no-referrer">
+
+<strong>U]1C_@ZOC_9@VQE)%`2G1WF.png</strong> (376.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 19:27 上传
+
