@@ -9805,3 +9805,19 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 柱子战刷的石头小麻雀补宝失败，垃圾游戏毁我青春</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用修改器 或者让狗萌新帮你抽
 
+
+*****
+
+####  大十字紅朔  
+##### 16012#       发表于 2025-1-6 18:45
+
+选7个太少了，杀生院和迪昂都选不进去
+
+<img src="https://img.saraba1st.com/forum/202501/06/181752mlkd5jgedt2y0kkw.jpg" referrerpolicy="no-referrer">
+
+<strong>1736158097699.jpg</strong> (491.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 18:17 上传
+

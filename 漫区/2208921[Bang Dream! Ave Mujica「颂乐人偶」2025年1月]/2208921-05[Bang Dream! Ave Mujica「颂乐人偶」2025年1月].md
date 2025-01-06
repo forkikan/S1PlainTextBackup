@@ -5636,3 +5636,21 @@ ps:其实“为了睦去和爸妈对峙”算是很古早的猜测了，最早�
 
 2025-1-6 18:28 上传
 
+
+*****
+
+####  uhiuk  
+##### 6423#       发表于 2025-1-6 18:45
+
+为了睦和睦家人对峙，那我觉得这写法的水平甚至不如gbc仁菜对昴要不要当演员的前后态度变化那段
+
+*****
+
+####  Qing_Qi_2.0  
+##### 6424#       发表于 2025-1-6 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114861&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-6 16:47</a>
+
+我提议将HHW引入MyGO-Mujica世界观，由弦卷财团的全自动水饺生产线解决问题，诸位觉得如何 ...</blockquote>
+写不出来，机械降饺
+

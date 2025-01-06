@@ -2161,3 +2161,16 @@ s1邦群并非邦群
 国服联动小豆泥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来是ksm彩彩ykn和msr拿出来联动
 <img src="https://p.sda1.dev/21/7c1c87d713fce8874c8b73cd84222912/e1048aa4-c008-460f-98e0-295a587855e2.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26803#       发表于 2025-1-6 18:45
+
+邦邦企划10周年RAISE A SUILEN服装主视觉图公开
+<img src="https://p.sda1.dev/21/d3fe07ef269114bb23f0b69d8027adab/Image_631893919899586.jpg" referrerpolicy="no-referrer">
+
+十周年展倒计时图（梦团和mujica）
+<img src="https://p.sda1.dev/21/0e3441ae8842414fa83d8a27b0e5b248/IMG_20250106_184334.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/975588f5aba8fa46d9d5a0e772db1a1c/IMG_20250106_184348.jpg" referrerpolicy="no-referrer">
+
