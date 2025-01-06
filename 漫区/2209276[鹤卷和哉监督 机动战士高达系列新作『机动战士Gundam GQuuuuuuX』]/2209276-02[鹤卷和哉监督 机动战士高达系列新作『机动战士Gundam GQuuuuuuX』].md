@@ -8350,3 +8350,11 @@ gqx装备太素了点，前期应该不行</blockquote>
 
 看看明天倒计时10天开始有没有新活吧，目前就一个pv我觉得宣传还是少了
 
+
+*****
+
+####  Gysumitka  
+##### 2115#       发表于 2025-1-6 16:41
+
+倒计时还有两张大头照没发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 能有活吗
+
