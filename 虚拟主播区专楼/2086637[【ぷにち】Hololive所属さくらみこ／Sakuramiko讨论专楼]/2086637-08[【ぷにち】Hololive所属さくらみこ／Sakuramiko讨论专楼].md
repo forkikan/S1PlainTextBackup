@@ -3993,3 +3993,36 @@ miko你给我乖乖去跟rui重温+补完鲁鲁修一二部加剧场版
 
 带新人了，这下
 
+
+*****
+
+####  karastar  
+##### 10648#       发表于 2025-1-6 19:38
+
+兔皇樱皇都在立储了
+
+*****
+
+####  holoan  
+##### 10649#         楼主| 发表于 2025-1-6 21:44
+
+<img src="https://img.saraba1st.com/forum/202501/06/214413hgyylsmgzay4zy04.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 21:44 上传
+
+*****
+
+####  holoan  
+##### 10650#         楼主| 发表于 2025-1-6 21:48
+
+前任 蓝发
+
+现任 蓝发
+
+缠着的新人 蓝发
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
