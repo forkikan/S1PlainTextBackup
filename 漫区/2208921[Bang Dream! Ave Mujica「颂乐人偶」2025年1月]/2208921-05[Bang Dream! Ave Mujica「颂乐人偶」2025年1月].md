@@ -4903,3 +4903,36 @@ mr_frog716：
 作者签名见右下
 <img src="https://p.sda1.dev/21/a8e9396f8468f37526ccadfc5dbca58c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银酒监武  
+##### 6363#       发表于 2025-1-6 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67111010&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-6 05:35</a>
+错误的假药
+
+借这个机会我说一下吧，这个假药最大的错误是倒果为因</blockquote>
+yysy，这个也能解释成一时情绪上头而非什么阴谋论
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  66367749  
+##### 6364#       发表于 2025-1-6 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112825&amp;ptid=2208921" target="_blank">look900822 发表于 2025-1-6 11:57</a>
+不是新说法是大喵自盒的时候有和事务所通过气的么，站住来之后直接特写打脸上了 ...</blockquote>
+看现场导播，舞台有即兴演出也不稀奇，导播水平好的话会给特写的
+
+
+*****
+
+####  skylah  
+##### 6365#       发表于 2025-1-6 12:25
+
+以初华的性格就不可能整个帽子头像当小号，自己天天戴着帽子出门，谁会把自己的日常状态整成小号头像
+
+若是情绪上头发的消息，这段解释放进正片我都觉得浪费时间，塑造不了初华一点还不如留白
+

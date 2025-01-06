@@ -8034,3 +8034,22 @@ CCA都0096了关0085的GQX啥事
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  王留美  
+##### 2084#       发表于 2025-1-6 12:25
+
+一天过去了没有新的目击情报，如果不是前面的目击者同时出现了幻觉的话，那就是又又又草台了导致第二版预告被提前放出了
+
+*****
+
+####  王留美  
+##### 2085#       发表于 2025-1-6 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67111429&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-6 09:08</a>
+ 我觉得这条if线，0079第一集说不好阿宝就已经被干掉了。 只想了解背景的话，补GTO就足够。  </blockquote>
+我觉得GTO是不够的，GTO骡子说的太少
+本质上这GQX还是another zeta，一点骡子不提反而奇怪
+当然如果你说的是漫画而不是OVA那就没问题了
+

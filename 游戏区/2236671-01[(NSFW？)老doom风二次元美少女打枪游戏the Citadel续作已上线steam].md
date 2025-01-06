@@ -518,3 +518,25 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我3070+i12800hx没这个问题…
 
+
+*****
+
+####  raragon  
+##### 54#       发表于 2025-1-6 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104847&amp;ptid=2236671" target="_blank">古代人皮克 发表于 2025-1-5 02:10</a>
+
+哦对了，这游戏其实是棒鸡出道作品马拉松的致敬游戏而不是doom</blockquote>
+但marathon本来不就是棒鸡用Doom引擎做的doomlike。。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 55#       发表于 2025-1-6 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112966&amp;ptid=2236671" target="_blank">raragon 发表于 2025-1-6 12:17</a>
+但marathon本来不就是棒鸡用Doom引擎做的doomlike。。。</blockquote>
+马拉松是bungie自家的引擎吧
+之前还开发了pathway into the darkness的
+
