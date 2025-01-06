@@ -5940,3 +5940,15 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 虽然大概率只是为了给她们安排一个地点。
 
+
+*****
+
+####  IWS2000  
+##### 6451#       发表于 2025-1-7 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117744&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-7 00:55</a>
+先叠加，不拉踩任何CP，无端发散。看到有补mygo的repo楼说 初华和灯在天文台?相遇看星星。
+
+发散天文台的星 ...</blockquote>
+太发散了，灯初两人出来灯还指着天空说星星呢<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

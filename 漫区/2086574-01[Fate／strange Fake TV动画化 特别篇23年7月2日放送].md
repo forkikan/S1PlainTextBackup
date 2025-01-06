@@ -7539,3 +7539,16 @@ fsf能加的多了
 
 <img src="https://p.sda1.dev/21/85ce7b0f4ae2b97fc33d349a2e587f85/20250107_005604.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 396#       发表于 2025-1-7 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67076288&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2025-1-1 00:45</a>
+
+就剩一卷了，应该是憋得出来
+
+也不能说他摸，身体真不行了</blockquote>
+之後看TV版能否做完全部卷內容
+
