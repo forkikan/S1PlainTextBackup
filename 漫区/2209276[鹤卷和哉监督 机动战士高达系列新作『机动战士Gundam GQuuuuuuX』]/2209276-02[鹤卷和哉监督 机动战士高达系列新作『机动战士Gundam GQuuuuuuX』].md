@@ -8178,3 +8178,14 @@ Khara+国民IP改编+东宝+律师，直接当正经剧场版新·刚大木对�
 
 真正的先行试映得是隔壁Mujica那种，好像总计才16馆？就完全没指望靠院线爆米
 
+
+*****
+
+####  王留美  
+##### 2099#       发表于 2025-1-6 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67113629&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-6 14:02</a>
+ Khara+国民IP改编+东宝+律师，直接当正经剧场版新·刚大木对标新·奥特曼就行了，票房能有新奥一半就行 真 ...</blockquote>
+新奥一半是新假
+我觉得敢达的IP力还是比来打强一点的，应该会比来打好
+

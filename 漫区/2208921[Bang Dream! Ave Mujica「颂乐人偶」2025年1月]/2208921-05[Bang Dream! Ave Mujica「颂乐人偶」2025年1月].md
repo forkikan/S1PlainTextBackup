@@ -5084,3 +5084,13 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 牛郎织女与天津四
 <img src="https://p.sda1.dev/21/fd1ec761ded20088b5c0081da1c29a2f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 6379#       发表于 2025-1-6 14:04
+
+<blockquote>IWS2000 发表于 2025-1-6 13:37
+牛郎织女与天津四</blockquote>
+天津四在日本是什么概念？
+
