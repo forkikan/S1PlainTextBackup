@@ -629,3 +629,13 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 
 一代简单难度真的乱杀 好玩不坐牢
 
+
+*****
+
+####  ParadiseMartyr  
+##### 64#         楼主| 发表于 2025-1-6 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67116158&amp;ptid=2236671" target="_blank">DawnGuardian 发表于 2025-1-6 19:47</a>
+正式版有汉化补丁吗？</blockquote>
+目前貌似没有，这代还是有点文本的，不过也不是啥比较难的内容。
+
