@@ -4824,3 +4824,22 @@ mr_frog716：
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112174&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-6 10:45</a></blockquote>
 祥老师和三角女士生了一窝是吧
 
+
+*****
+
+####  星星狐  
+##### 6356#       发表于 2025-1-6 11:07
+
+第一集看完了，请问一下这样以后小祥是不是没法打工了？
+
+
+*****
+
+####  刑部姬真可爱  
+##### 6357#       发表于 2025-1-6 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112389&amp;ptid=2208921" target="_blank">星星狐 发表于 2025-1-6 11:07</a>
+
+第一集看完了，请问一下这样以后小祥是不是没法打工了？</blockquote>
+打工本身就是为了赚钱，现在搞乐队有热度还忙自然不需要打工了
+
