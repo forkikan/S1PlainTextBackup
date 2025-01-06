@@ -551,3 +551,11 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 不是，马拉松是麦金塔游戏，而且第一个能调整上下高度的fps，哪里是doom引擎
 这系列在当时搞了不少试验元素，比如用终端机来呈现剧情，这在当时是独一无二的
 
+
+*****
+
+####  raragon  
+##### 57#       发表于 2025-1-6 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">确实，忘记marathon是mac平台了
+
