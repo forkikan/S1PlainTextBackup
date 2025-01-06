@@ -5104,3 +5104,21 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 如果摘面具是大猫计划好的，那最终目的应该是篡权或至少把运营权抢到手，凭她自己肯定是不成事的，需要拉拢 ...</blockquote>
 坐实夺权那喵梦的风评就相当难洗了，除非有过硬的理由证明祥子的运营有大漏洞或者甩锅给事务所之类的外部力量
 
+
+*****
+
+####  吹楼伞人  
+##### 6381#       发表于 2025-1-6 14:26
+
+<img src="https://p.sda1.dev/21/5280956c6cd8679ab9c81ae9c9c26ab3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b4f0f56d5e85d9b2e3507c46e3b56830/image.jpg" referrerpolicy="no-referrer">
+[oakm071](https://x.com/oakm071/status/1876109059964993657)
+
+*****
+
+####  青龙圣者  
+##### 6382#       发表于 2025-1-6 14:26
+
+假药，双子互换，初华的青梅可能是睦：
+[https://www.bilibili.com/video/BV1Zkr3YME8D/](https://www.bilibili.com/video/BV1Zkr3YME8D/)
+
