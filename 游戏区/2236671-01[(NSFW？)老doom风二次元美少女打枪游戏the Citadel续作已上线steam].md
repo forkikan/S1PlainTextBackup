@@ -588,3 +588,24 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 戰鬥方面的難度高嗎?</blockquote>
 我没开内置修改器前在某关卡了几个小时，后期关卡设计非常老学校
 
+
+*****
+
+####  nohope  
+##### 60#       发表于 2025-1-6 18:46
+
+就steam直接买？没有任何需要的额外补丁吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 61#         楼主| 发表于 2025-1-6 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67115840&amp;ptid=2236671" target="_blank">nohope 发表于 2025-1-6 18:46</a>
+就steam直接买？没有任何需要的额外补丁吗？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+不需要
+
