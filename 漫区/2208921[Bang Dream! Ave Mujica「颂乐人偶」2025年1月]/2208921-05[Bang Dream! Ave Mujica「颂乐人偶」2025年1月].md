@@ -4936,3 +4936,39 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 
 若是情绪上头发的消息，这段解释放进正片我都觉得浪费时间，塑造不了初华一点还不如留白
 
+
+*****
+
+####  一心而用  
+##### 6366#       发表于 2025-1-6 12:28
+
+贴吧圣地巡礼
+[https://tieba.baidu.com/p/9382660865?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.76.1.1&amp;st=1736137395&amp;is_video=false&amp;unique=52CAFABBEA4625CF45DBE3C5E5DDBAE0](https://tieba.baidu.com/p/9382660865?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.76.1.1&amp;st=1736137395&amp;is_video=false&amp;unique=52CAFABBEA4625CF45DBE3C5E5DDBAE0)
+<img src="https://p.sda1.dev/21/29821fa61f60c8b430c610854d95111c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6367#       发表于 2025-1-6 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67111181&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-1-6 08:17</a>
+这个假药主要是头像是制作组画的，观众席上就一个主要人物，头像画法千千万，正好抽到让人怀疑的画法本来 ...</blockquote>
+有现成的亲密关系不去表现嫉妒
+用一条一年前无人在意的破评论表示嫉妒是吧 什么时空警察<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 6368#       发表于 2025-1-6 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112174&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-6 10:45</a></blockquote>
+怎么初祥生四个睦祥生一个<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  吹楼伞人  
+##### 6369#       发表于 2025-1-6 12:33
+
+<img src="https://p.sda1.dev/21/2a435f58d9e09a82a8dd5d0414d05d82/image.jpg" referrerpolicy="no-referrer">
+[AntiTankHiyoko](https://x.com/AntiTankHiyoko/status/1875960213716762634)
+
