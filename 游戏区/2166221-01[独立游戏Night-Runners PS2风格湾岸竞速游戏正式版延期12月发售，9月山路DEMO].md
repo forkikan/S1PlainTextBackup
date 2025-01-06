@@ -1203,3 +1203,18 @@ Mitsubishi：EVO7<strong>\</strong>EVO9
 at和mt买车的时候就要选好，后期好像是没法改的。
 开at街头服务区约战还概率会被npc嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  霖岚_  
+##### 68#       发表于 2025-1-6 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114618&amp;ptid=2166221" target="_blank">macshi 发表于 2025-1-6 16:21</a>
+
+at和mt买车的时候就要选好，后期好像是没法改的。
+
+开at街头服务区约战还概率会被npc嘲讽。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草原来是这样吗，没注意
+
+但它切档那音效听着真的好爽，但又感觉好像以前在那部游戏里也听过类似的，记不起来了
+
