@@ -8358,3 +8358,14 @@ gqx装备太素了点，前期应该不行</blockquote>
 
 倒计时还有两张大头照没发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 能有活吗
 
+
+*****
+
+####  岸波白野  
+##### 2116#       发表于 2025-1-6 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114010&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-6 15:00</a>
+
+老粉真的看得上吗（</blockquote>
+那富野79和安彦GTO 79的确亦有不同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
