@@ -8330,3 +8330,15 @@ gqx装备太素了点，前期应该不行</blockquote>
 剧场版怎么都不提ククルス岛，那才是硬核老粉专供啊</blockquote>
 太核了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2113#       发表于 2025-1-6 15:08
+
+那希望能在保住UC老盘的同时搞新引流吧
+
+前期阵势这么大，别到时候UC老害不认你这IF，引流进来的一看是UC又都吓跑了
+
+现在也不清楚搞剧场版商法这套是前期捞一笔回血就润还是内部真看好
+

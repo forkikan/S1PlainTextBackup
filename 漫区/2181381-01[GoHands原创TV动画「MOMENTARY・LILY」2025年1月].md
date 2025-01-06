@@ -290,3 +290,12 @@ op的画面全是正片剪的吧。不太想去思考剧情，先不投入这么
 之前看的几个sweetsub的片子都烂完了（单纯调侃，没有黑的意思） ...</blockquote>
 SeeetSub 只是单纯爱做原创而已<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stevenzero  
+##### 77#       发表于 2025-1-6 15:09
+
+观感好差。美少女挥舞巨大的武器然后一点力量感都没有的感觉瞬间把特效廉价化了。
+最后敌人来袭，主角在掏出武器之前我还奇怪，居然不是活下来的默认有武器的？这扮猪吃老虎完全不成功嘛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
