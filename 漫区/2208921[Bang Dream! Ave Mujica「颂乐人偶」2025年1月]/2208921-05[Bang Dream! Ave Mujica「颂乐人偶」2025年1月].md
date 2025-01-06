@@ -5122,3 +5122,37 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 假药，双子互换，初华的青梅可能是睦：
 [https://www.bilibili.com/video/BV1Zkr3YME8D/](https://www.bilibili.com/video/BV1Zkr3YME8D/)
 
+
+*****
+
+####  skylah  
+##### 6383#       发表于 2025-1-6 14:40
+
+借鉴魅音诗音那里好大胆<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 6384#       发表于 2025-1-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108945&amp;ptid=2208921" target="_blank">居尔一拳 发表于 2025-1-5 19:56</a>
+
+刚看完mygo，有什么圣经之类的需要补吗</blockquote>
+我是建议看一些填词二创。
+
+最强的冰【⚡俺是东京嘞 东京打工妹⚡】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1qm421s7MR/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+爱素圣经【【填词/MyGO】素颜】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1GK421v7zv/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+爱音视角【【填词】音Distance -“英国的字我 认不得几个”】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1Bc411X7fg/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+祥子视角【【填词】祥Distance -“我兼职客服机构 把青春年华出售”】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV18C4y1E712/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+祥子视角【【填词/MyGO】十万客服 - “大梦一场的祥子大小姐”】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1Ry421i7jL/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+灯的生日礼物【【填词/MyGO】群星 - 高松灯 生贺作】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1Wu4y1c7ey/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+素世生日礼物【【填词/MyGO】家有そよ】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1hs421G7ex/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
+立希视角【【填词/MyGO】下雨天】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV13ttye6EgF/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+
