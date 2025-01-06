@@ -5952,3 +5952,18 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 发散天文台的星 ...</blockquote>
 太发散了，灯初两人出来灯还指着天空说星星呢<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  试制甲炮  
+##### 6452#       发表于 2025-1-7 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117090&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-6 22:21</a>
+
+我觉得与其说夺权不如说自保。
+
+大祥老师用流量和两个明星钓的大喵老师。
+
+流量和摘面具挂钩，大喵老师已经 ...</blockquote>
+喵梦本身这个思路不能说问题很大，但她的行为客观上来说成为了炸掉睦和整个母鸡卡的导火索，喵梦也没法独善其身，我想这恐怕是喵梦当时始料未及的吧。
+
