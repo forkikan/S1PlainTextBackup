@@ -1192,3 +1192,14 @@ Mitsubishi：EVO7<strong>\</strong>EVO9
 
 还是挺期待这作正式版的，价格合适就首发入了吧（本来想参加赞助的，但10刀一个月感觉贵了点就没参加……）
 
+
+*****
+
+####  macshi  
+##### 67#       发表于 2025-1-6 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114416&amp;ptid=2166221" target="_blank">霖岚_ 发表于 2025-1-6 15:56</a>
+前段时间才自己上手玩了楼主发的赞助者版demo，没想到这游戏手柄震动居然做得挺好的，除了没扳机震动外几乎 ...</blockquote>
+at和mt买车的时候就要选好，后期好像是没法改的。
+开at街头服务区约战还概率会被npc嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
