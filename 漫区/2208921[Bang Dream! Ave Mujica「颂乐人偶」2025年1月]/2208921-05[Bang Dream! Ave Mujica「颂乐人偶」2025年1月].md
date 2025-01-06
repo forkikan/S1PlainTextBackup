@@ -5917,3 +5917,12 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 能不能跳过去看包饺子 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Libartas  
+##### 6449#       发表于 2025-1-7 00:13
+
+<img src="https://p.sda1.dev/21/2d5b86b80b920e7c22cc19e900d27e2e/image.jpg" referrerpolicy="no-referrer">
+所以睦头的原形参考过我们小胡子哈马哥吗？虽然他玩的是贝斯
+

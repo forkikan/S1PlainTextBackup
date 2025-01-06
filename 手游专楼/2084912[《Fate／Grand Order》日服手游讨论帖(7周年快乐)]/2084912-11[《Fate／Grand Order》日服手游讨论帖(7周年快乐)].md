@@ -9886,3 +9886,11 @@ fgo有生之年有机会实装嘟嘟吗
 这就是欧皇吗？ 羡慕了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新十连二宝
 
+
+*****
+
+####  khxooo  
+##### 16018#       发表于 2025-1-7 00:12
+
+150石头武藏到手，水弗兰刚好5宝<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
