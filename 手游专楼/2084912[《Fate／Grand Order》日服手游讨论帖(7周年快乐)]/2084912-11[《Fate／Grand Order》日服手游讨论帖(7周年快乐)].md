@@ -9786,3 +9786,22 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  希望之花  
+##### 16010#       发表于 2025-1-6 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">柱子战刷的石头小麻雀补宝失败，垃圾游戏毁我青春
+
+
+*****
+
+####  qixinno2  
+##### 16011#       发表于 2025-1-6 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67115676&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-1-6 18:28</a>
+
+柱子战刷的石头小麻雀补宝失败，垃圾游戏毁我青春</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用修改器 或者让狗萌新帮你抽
+

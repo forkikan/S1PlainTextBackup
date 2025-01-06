@@ -557,3 +557,16 @@ Screenshot_20250103_185119.jpg
 由手机上传
 2025-1-6 18:07 上传
 
+
+*****
+
+####  salic428  
+##### 1048#       发表于 2025-1-6 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">预言失败
+嘛不过这俩都是伪限定，反正都要抽，如果一个常驻另一个限定捆绑在一起倒是可以多骂骂
+至少倒是把七发子弹的效果按照图书馆那会儿还原了，连麻痹易损这些最近的人格很少施加的负面效果也做了
+第七发子弹确定紫砂好评……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
