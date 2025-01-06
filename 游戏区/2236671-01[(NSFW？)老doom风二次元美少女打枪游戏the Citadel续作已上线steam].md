@@ -609,3 +609,23 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 不需要
 
+
+*****
+
+####  DawnGuardian  
+##### 62#       发表于 2025-1-6 19:47
+
+正式版有汉化补丁吗？
+
+*****
+
+####  zzy516232108  
+##### 63#       发表于 2025-1-6 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67115128&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-6 17:16</a>
+
+一代通了，真的是天才之作，爽快的击杀反馈和适宜的关卡长度让人一直想要玩下去，每一关不同的构造地形也** ...</blockquote>
+二代的蜘蛛有点恐怖的
+
+一代简单难度真的乱杀 好玩不坐牢
+

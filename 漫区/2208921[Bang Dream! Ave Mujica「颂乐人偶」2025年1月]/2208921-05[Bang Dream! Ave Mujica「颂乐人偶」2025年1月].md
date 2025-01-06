@@ -5728,3 +5728,22 @@ mggm的专栏
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最土的剧情就是父母双双跑路，想要流量让不知道在哪的父母看到自己
 
+
+*****
+
+####  木板春香  
+##### 6433#       发表于 2025-1-6 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114880&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-6 16:49</a>
+
+只看过mygo
+
+前面的作品需要补吗？
+
+怎么补？</blockquote>
+邦邦的小剧场可以去看看
+
+【BanG Dream! 少女乐团派对☆PICO：第1话 Live House「CiRCLE」】 [https://www.bilibili.com/bangumi ... are_source=copy_web](https://www.bilibili.com/bangumi/play/ep249942/?share_source=copy_web)
+
+觉得有兴趣再去了解其他
+
