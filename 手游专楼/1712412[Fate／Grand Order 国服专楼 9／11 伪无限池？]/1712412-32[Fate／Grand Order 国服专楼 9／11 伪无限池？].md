@@ -1369,3 +1369,13 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  doublehit  
+##### 46947#       发表于 2025-1-6 19:02
+
+新号打ort真的有点折磨了，狗粮材料棋子都跟不上了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

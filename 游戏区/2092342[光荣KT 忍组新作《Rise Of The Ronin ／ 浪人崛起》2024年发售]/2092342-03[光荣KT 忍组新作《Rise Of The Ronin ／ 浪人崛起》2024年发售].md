@@ -223,3 +223,13 @@ KT确实是历史策略动作这边全员爱猴
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  忧郁  
+##### 3309#       发表于 2025-1-6 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103825&amp;ptid=2092342" target="_blank">名字已被吃 发表于 2025-1-4 22:01</a>
+晚上主线通关之后就差5、6个杯就白金了，稍微打完二周目黑船的青鬼就剩下飞翔和找猫杯了，没想到一直留到最 ...</blockquote>
+我当初是留在点技能这个杯的，这样可以找一个你喜欢的场景，点完技能甚至来得及摆一个你喜欢的动作和开照片模式
+
