@@ -681,3 +681,16 @@ hrt连落地都特意拖到被兔子抢了名额。
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  poor  
+##### 18163#       发表于 2025-1-6 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110489&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2025-1-6 00:28</a>
+
+默认该有的角色都有且不是老王的话，火最优先,双面下草日常上踢老7。
+
+其次风土，不管2.0还是3.0武器都比 ...</blockquote>
+谢谢，了解<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
