@@ -4026,3 +4026,29 @@ miko你给我乖乖去跟rui重温+补完鲁鲁修一二部加剧场版
 缠着的新人 蓝发
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 10651#       发表于 2025-1-6 22:02
+
+宛宛类卿
+
+*****
+
+####  holoan  
+##### 10652#         楼主| 发表于 2025-1-6 23:19
+
+<blockquote>115 名無しさん@転載禁止 (ﾜｯﾁｮｲW f865-HwSO)  2025/01/07(火) 00:15:29.75 ID:LgogSYtm
+
+Fanknificant→The 2b2t Museumの中心メンバー
+[https://2b2t.miraheze.org/wiki/Franknificant](https://2b2t.miraheze.org/wiki/Franknificant)
+
+The 2b2t Museumの建造物
+[https://2b2t.miraheze.org/wiki/The_2b2t_Museum](https://2b2t.miraheze.org/wiki/The_2b2t_Museum)
+
+Book 509 Usada Pekora Sky Logo
+
+野兎中国人で確定</blockquote>
+马上被找到本人了
+
