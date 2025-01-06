@@ -5900,3 +5900,20 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Mikumiku831  
+##### 6447#       发表于 2025-1-6 22:59
+
+刷到群讨论还是忍不住去看了 但是看了开头一部分又关掉了 太压抑了 始终不能完整看完（前几天已经跳着看了一部分）<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 6448#       发表于 2025-1-6 23:02
+
+比go更沉重
+
+能不能跳过去看包饺子 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
