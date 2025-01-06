@@ -4879,3 +4879,27 @@ mr_frog716：
 目前看下来最草台的应该是事务所，live纯靠现场瞎掰控场，自爆开盒之后节目通告与offer还是交给团员自己规 ...</blockquote>
 不是新说法是大喵自盒的时候有和事务所通过气的么，站住来之后直接特写打脸上了
 
+
+*****
+
+####  阿兹尔  
+##### 6361#       发表于 2025-1-6 12:11
+
+又看了一遍第一集，灯玩贴纸那里真是太可爱了
+
+<img src="https://img.saraba1st.com/forum/202501/06/121116xyo7wmp980ea0r9x.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_982166562402830.jpg</strong> (66.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 12:11 上传
+
+*****
+
+####  一心而用  
+##### 6362#       发表于 2025-1-6 12:11
+
+作者签名见右下
+<img src="https://p.sda1.dev/21/a8e9396f8468f37526ccadfc5dbca58c/image.jpg" referrerpolicy="no-referrer">
+

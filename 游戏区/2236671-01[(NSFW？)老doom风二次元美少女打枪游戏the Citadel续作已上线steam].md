@@ -510,3 +510,11 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ParadiseMartyr  
+##### 53#         楼主| 发表于 2025-1-6 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我3070+i12800hx没这个问题…
+
