@@ -5880,3 +5880,23 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 至于摘假面的流量大头被初睦恰了，自己这波没恰上，相对于坐稳在鸡团的位置、引爆已经塞满炸药的火药桶制造和初睦互动的机会和获得对大祥老师讨价还价的主动权，是无关紧要的事情。
 
+
+*****
+
+####  moras2694  
+##### 6445#       发表于 2025-1-6 22:45
+
+批判性观看后想忍住等正片再多刷的，唉，还是没忍住<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 6446#       发表于 2025-1-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117211&amp;ptid=2208921" target="_blank">moras2694 发表于 2025-1-6 22:45</a>
+批判性观看后想忍住等正片再多刷的，唉，还是没忍住</blockquote>
+是wsd的错，非要弄差别化的先行上映吊胃口
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
