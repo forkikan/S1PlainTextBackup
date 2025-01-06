@@ -8369,3 +8369,11 @@ gqx装备太素了点，前期应该不行</blockquote>
 老粉真的看得上吗（</blockquote>
 那富野79和安彦GTO 79的确亦有不同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  番茄牛奶  
+##### 2117#       发表于 2025-1-6 20:15
+
+认不认没事，胶买就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
