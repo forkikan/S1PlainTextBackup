@@ -4868,3 +4868,14 @@ mr_frog716：
 
 今天是快闪店开业
 
+
+*****
+
+####  look900822  
+##### 6360#       发表于 2025-1-6 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112581&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-6 11:25</a>
+
+目前看下来最草台的应该是事务所，live纯靠现场瞎掰控场，自爆开盒之后节目通告与offer还是交给团员自己规 ...</blockquote>
+不是新说法是大喵自盒的时候有和事务所通过气的么，站住来之后直接特写打脸上了
+
