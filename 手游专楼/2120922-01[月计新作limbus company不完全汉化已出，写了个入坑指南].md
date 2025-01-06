@@ -491,3 +491,69 @@ Screenshot_20250103_185119.jpg
 
 今年可以快进到解放战了
 
+
+*****
+
+####  Jamaisvu  
+##### 1047#       发表于 2025-1-6 18:07
+
+新人格技能前瞻：
+
+句点二人组都是呼吸体系，小夫入场时获得特殊子弹强化一次三技能，进入混乱或子弹用光后退场进入后方支援模式，句点宝在句点夫后方支援状态下强化二三技能：
+
+<img src="https://img.saraba1st.com/forum/202501/06/180621z3fdidrbkfs48is9.jpg" referrerpolicy="no-referrer">
+
+<strong>B77648688DEDB97B757101B0EC887382.jpg</strong> (474.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/06/180621m5rjmr8mxwfxfmjn.jpg" referrerpolicy="no-referrer">
+
+<strong>6718622AD9AE4AFFB4F995056BC53768.jpg</strong> (364.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/06/180621myg00oktiu003ryj.jpg" referrerpolicy="no-referrer">
+
+<strong>F759469FBAAEC229D043747C1418FEA3.jpg</strong> (466.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/06/180622zhmw8wiwn4xv4zx8.jpg" referrerpolicy="no-referrer">
+
+<strong>CAD7643CEDFFC6C2D8F04AB63ED783FD.jpg</strong> (380.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:06 上传
+
+魔弹很遗憾不是同化效果，纯粹魔弹射手售后。根据魔弹EGO人格当前魔弹数量有七种不同效果：
+
+<img src="https://img.saraba1st.com/forum/202501/06/180724hd3aep3paezaz3xs.jpg" referrerpolicy="no-referrer">
+
+<strong>91EA37B3F3B30AAF98C8E016B0A86EB7.jpg</strong> (300.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/06/180729hjpcccjjc2jj66kw.jpg" referrerpolicy="no-referrer">
+
+<strong>86DC51E5987FCEE335A7E86DC7C39D5E.jpg</strong> (331.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-6 18:07 上传
+
