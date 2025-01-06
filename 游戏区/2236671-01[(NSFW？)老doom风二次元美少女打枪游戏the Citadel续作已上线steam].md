@@ -540,3 +540,14 @@ vsync没做有点晕，而且不是很get的到换弹系统的作用。多占两
 马拉松是bungie自家的引擎吧
 之前还开发了pathway into the darkness的
 
+
+*****
+
+####  真实之影  
+##### 56#       发表于 2025-1-6 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112966&amp;ptid=2236671" target="_blank">raragon 发表于 2025-1-6 12:17</a>
+但marathon本来不就是棒鸡用Doom引擎做的doomlike。。。</blockquote>
+不是，马拉松是麦金塔游戏，而且第一个能调整上下高度的fps，哪里是doom引擎
+这系列在当时搞了不少试验元素，比如用终端机来呈现剧情，这在当时是独一无二的
+
