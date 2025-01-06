@@ -4747,3 +4747,21 @@ mr_frog716：
 <img src="https://p.sda1.dev/21/e8036bb918b6c83236bbbf40057c8e85/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/d061295f9ec9cf45d860a68a90e4d6fd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bbjajdd  
+##### 6350#       发表于 2025-1-6 09:57
+
+不行了
+
+越看go和🐔前三集的初华片段越不安
+
+在鸡狗其他角色的衬托下，初华给人一种毛骨悚然的感觉。
+
+尤其是现在鸡团为数不多让人能放松的片段就是初祥的剧情，就给人一种一直觉得安全的庇护所似乎随时要出问题的恐慌感。
+
+而且sumimi那边也一直给人一种要出问题的感觉
+
+总之还是**wsd提前三集的锅(
+

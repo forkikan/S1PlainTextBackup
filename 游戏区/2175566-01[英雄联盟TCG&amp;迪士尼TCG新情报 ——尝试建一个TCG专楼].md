@@ -107,3 +107,12 @@ ua强度已经提过一波。今天下午拿去年出第2弹的卡组去打今�
 
 P.S.洛卡纳很多妹妹想了解，总感觉过两弹就是集美心心念念爆款潮玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  齿轮轴君  
+##### 199#       发表于 2025-1-6 09:55
+
+ptcg玩了小半年，确实看不懂9.0这几个大包搞了个整体降速加电友的环境是什么意思，感觉离环境同步又慢了一步，只能说我永远支持悲伤海森堡战队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+之前看到dtcg马上环境同步的消息，也是入坑玩起来，但是好像听说国际服现在是自闭卡组强度大于交互卡组？
+
