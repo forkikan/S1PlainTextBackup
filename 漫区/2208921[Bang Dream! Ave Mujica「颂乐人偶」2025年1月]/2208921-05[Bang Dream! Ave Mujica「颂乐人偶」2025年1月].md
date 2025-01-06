@@ -5075,3 +5075,12 @@ yysy，这个也能解释成一时情绪上头而非什么阴谋论
 <img src="https://p.sda1.dev/21/db6c920935910baf28813cbc8dee5fb8/09fa513d269759ee5fb1949ba2fb43166c22dff9.jpg" referrerpolicy="no-referrer">
 <img src="https://pic1.imgdb.cn/item/6777166fd0e0a243d4ee037d.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 6378#       发表于 2025-1-6 13:37
+
+牛郎织女与天津四
+<img src="https://p.sda1.dev/21/fd1ec761ded20088b5c0081da1c29a2f/image.jpg" referrerpolicy="no-referrer">
+
