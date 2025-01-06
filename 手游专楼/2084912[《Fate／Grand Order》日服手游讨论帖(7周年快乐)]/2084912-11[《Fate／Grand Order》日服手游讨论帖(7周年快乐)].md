@@ -9821,3 +9821,12 @@ Fami通于2025年1月2号对9周年采访的更新，其中和10周年相关的�
 
 2025-1-6 18:17 上传
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16013#       发表于 2025-1-6 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">想组个拆尼子常规7骑结果没找到弓
+fgo有生之年有机会实装嘟嘟吗
+
