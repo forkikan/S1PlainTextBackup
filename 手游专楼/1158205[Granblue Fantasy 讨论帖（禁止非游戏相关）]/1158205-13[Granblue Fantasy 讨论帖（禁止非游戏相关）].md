@@ -702,3 +702,21 @@ hrt连落地都特意拖到被兔子抢了名额。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">因为侠客太多 运营把兑换券延期
 
+
+*****
+
+####  Aureth  
+##### 18165#       发表于 2025-1-6 20:01
+
+ 本帖最后由 Aureth 于 2025-1-6 20:02 编辑 
+
+其实我也很犹豫金月券怎么选，大致上是火方天和光天羽二选一，但是。
+
+对火方天：猎金且没有猪枪，但是后面还会尝试获取猪枪，主要觉得2+1都能有170w了还不用手点人偶3，我觉得尽量2+1比较好不想继续4+1了。
+
+对光天羽：没有与力十手和圣诞zoe，且打solo热情一般，共斗反正现在的盘子也能打了。
+
+然后周年超很可能就是圣诞zoe和猪枪二选一了。然后这里的问题是换光天羽肯定就想要zoe，而没方天就会更想要猪枪……
+
+为什么我去年放着这俩备选不拿耍帅拿了土掉宝短啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

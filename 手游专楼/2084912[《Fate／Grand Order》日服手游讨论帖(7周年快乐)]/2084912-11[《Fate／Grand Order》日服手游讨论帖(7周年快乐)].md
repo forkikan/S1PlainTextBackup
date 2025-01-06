@@ -9864,3 +9864,25 @@ fgo有生之年有机会实装嘟嘟吗
 
 2025-1-6 19:27 上传
 
+
+*****
+
+####  alucardcz  
+##### 16016#       发表于 2025-1-6 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67116057&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-6 19:27</a>
+
+嘻嘻 终于抽到215了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是欧皇吗？ 羡慕了
+
+
+*****
+
+####  qixinno2  
+##### 16017#       发表于 2025-1-6 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67116225&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-6 19:58</a>
+
+这就是欧皇吗？ 羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新十连二宝
+

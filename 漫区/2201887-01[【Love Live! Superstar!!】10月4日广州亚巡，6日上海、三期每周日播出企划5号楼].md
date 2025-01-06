@@ -14184,3 +14184,14 @@ Febri拍摄的水平是真的好
 
 bd1卖的还行，希望后面加油
 
+
+*****
+
+####  csolfans  
+##### 1384#       发表于 2025-1-6 20:02
+
+<img src="https://p.sda1.dev/21/56111f4549aad8e4d8de724184bb8d12/image.jpg" referrerpolicy="no-referrer">
+比一开始预测的数据高了不少
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
