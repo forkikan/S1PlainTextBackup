@@ -4737,3 +4737,13 @@ mr_frog716：
 
 [https://x.com/freedoro/status/1875888816722268444](https://x.com/freedoro/status/1875888816722268444)
 
+
+*****
+
+####  一心而用  
+##### 6349#       发表于 2025-1-6 09:24
+
+祥爹太让人来气了才会有这样的二创。
+<img src="https://p.sda1.dev/21/e8036bb918b6c83236bbbf40057c8e85/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d061295f9ec9cf45d860a68a90e4d6fd/image.jpg" referrerpolicy="no-referrer">
+
