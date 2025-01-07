@@ -634,3 +634,15 @@ ins：yeonwootherealone</blockquote>
 这套资源应该是比较全
 [https://mypikpak.com/s/VOF1-kyZj ... zB0KGRyaOVbywFBgwo1](https://mypikpak.com/s/VOF1-kyZjJK7gRFONcCfOhPTo1/VOF0qxazB0KGRyaOVbywFBgwo1)
 
+
+*****
+
+####  寒蝉  
+##### 60#       发表于 2025-1-7 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123071&amp;ptid=2236860" target="_blank">qdxhs 发表于 2025-1-7 17:36</a>
+https://x-idol.net/?s=YeonWoo+%28%EC%97%B0%EC%9A%B0%29
+
+这里可以下载一些，不过比较麻烦 ...</blockquote>
+好人一生平安<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

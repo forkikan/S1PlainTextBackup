@@ -7773,3 +7773,51 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  rushsong  
+##### 6615#       发表于 2025-1-7 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103496&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:14</a>
+我发现你们祥厨给别人的推扣帽子扣得水平是真的高；灯是你saki嘴到自闭的你不提；睦跟着soyo和pua有什么 ...</blockquote>
+灯自闭？我们看的是一个mygo吗？灯只是在自责觉得是自己没唱好，什么时候到了自闭了？好好看清楚人物的性格特点，不要为了某种目的严重化角色的言行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  rushsong  
+##### 6616#       发表于 2025-1-7 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122530&amp;ptid=2208921" target="_blank">不应 发表于 2025-1-7 16:37</a>
+说起来小祥和爹闹翻了那为什么不回家，她和外公又没闹翻，感觉随时都能回家当大小姐 ...</blockquote>
+祥子已经单方面的和丰川家断绝关系了 没看到她对着钢琴说sayonara吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ffam  
+##### 6617#       发表于 2025-1-7 18:37
+
+如果睦妈和祥妈真是亲姐妹，那以后睦妈喊祥子是不是要叫妹妹了，睦喊祥子是不是要叫姨妈或小姨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野獸先輩  
+##### 6618#       发表于 2025-1-7 18:37
+
+大号在漫区的中心呼唤爱被封了90天<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+借朋友的小号给自己做的素祥MAD引个流~
+[https://www.bilibili.com/video/BV1BHrGYrEcv/](https://www.bilibili.com/video/BV1BHrGYrEcv/)
+
+<img src="https://img.saraba1st.com/forum/202501/07/183532a9as070mt1mt8hto.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1736243491536.jpeg</strong> (223.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 18:35 上传
+
