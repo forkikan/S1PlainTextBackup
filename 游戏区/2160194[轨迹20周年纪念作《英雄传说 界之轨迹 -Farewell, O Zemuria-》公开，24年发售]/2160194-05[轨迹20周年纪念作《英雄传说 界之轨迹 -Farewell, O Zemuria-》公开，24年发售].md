@@ -3082,3 +3082,25 @@ YSX重新上架就是298加上首发10%优惠</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107159&amp;ptid=2160194" target="_blank">卢迪克 发表于 2025-1-5 13:55</a></blockquote>
 这是恋活做的吗？
 
+
+*****
+
+####  Markorca  
+##### 7398#       发表于 2025-1-7 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119728&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2025-1-7 11:13</a>
+
+结社女员工没那么少吧</blockquote>
+女员工x
+
+女领导✔
+
+*****
+
+####  cscbzcbz  
+##### 7399#       发表于 2025-1-7 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67104577&amp;ptid=2160194" target="_blank">最终兵器狂战 发表于 2025-1-5 00:28</a>
+黎1打完了，感觉这相当好嘛。人数8个刚刚好不至于装备都买不回来。即时制虽然没啥用但是当成战外补CP手段还 ...</blockquote>
+建议当黎2不存在，直接界轨
+

@@ -6591,3 +6591,108 @@ mygo修正了三个人
 
 夺权、自保都来了。
 
+
+*****
+
+####  相坂君  
+##### 6505#       发表于 2025-1-7 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想过比惨，祥子自己都不想告诉别人自身情况，有些人就很想让狗的元c人知道。有没有想过大家心地善良，退个队都这样了，知道后难免会更自闭自责
+
+编剧也避免让观众觉得祥子太惨，处理这块已经很果断了，把狗篇铺垫的东西一口气抛干净，赶紧进入下个阶段，没有在身世和惨这块多下笔墨，卖惨卖个好几话，就是不想让“惨”影响mujica剧情注意力
+
+*****
+
+####  银酒监武  
+##### 6506#       发表于 2025-1-7 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120184&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 11:56</a>
+主流修正方式包括不限于修正拳和卖狗对邦创碎母鸡卡</blockquote>
+真别鸡狗对立，连两边动画都要划清界限的言论都看到了……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 6507#       发表于 2025-1-7 12:01
+
+只能说第一集还没到血压最高的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+后面来个如月千早同款无良媒体把她的经历添油加醋满世界传播（都史上最狂了 狂过本家也很正常吧
+找到新的让她背锅的角度就不太容易了
+
+
+*****
+
+####  哈曼的YY  
+##### 6508#       发表于 2025-1-7 12:04
+
+ 本帖最后由 哈曼的YY 于 2025-1-7 12:06 编辑 
+
+不是我想对立 很多人想着狗和基拉一样来暴打母鸡卡真飞鸟呢
+
+看看爽女士是怎么被修正的 虽然你用阴谋诡计 但是我们还是需要你想和你一辈子
+
+换到祥老师不就是得让他意识到你不是只有母鸡卡你还有我们 安抚她的精神不要一直气鼓鼓的？
+
+目前外面没几个这么想的 背锅解绑就完事了
+
+*****
+
+####  yozoraxsx  
+##### 6509#       发表于 2025-1-7 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119523&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-7 10:53</a>
+
+你的逻辑能力有点令人感动了
+
+祥子本来就是丰川家继承人啊，反倒是有些不喜欢祥子的人不愿意承认这一点， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道你楼祥厨群团建了。只能说一个人，说话像祥厨，做事像祥厨，那就是祥厨。之前的那位楼友冤啊。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|没兴趣占楼参与厨黑打架谢谢|
+
+查看全部评分
+
+*****
+
+####  魔法使夜子  
+##### 6510#       发表于 2025-1-7 12:05
+
+原来mygo里祥子定位是反派吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 6511#       发表于 2025-1-7 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67103496&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-4 21:14</a>
+
+我发现你们祥厨给别人的推扣帽子扣得水平是真的高；灯是你saki嘴到自闭的你不提；睦跟着soyo和pua有什么 ...</blockquote>
+只能说老哥眼力好。
+
+*****
+
+####  Aendst  
+##### 6512#       发表于 2025-1-7 12:07
+
+涉及剧透和爱马仕本家相关
+睦的情况其实就已经挺有既视感的，精神内耗话又少，把自己压坏了在演出时出问题，甚至负罪感/愧疚感也有点那味
+然后真实情绪被当成演技，希望对方才能开花也有点……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那么制作人会不会出事进医院呢
+
+*****
+
+####  哈曼的YY  
+##### 6513#       发表于 2025-1-7 12:07
+
+不反派吗 13集出来前那不是一个纯纯反派
+
