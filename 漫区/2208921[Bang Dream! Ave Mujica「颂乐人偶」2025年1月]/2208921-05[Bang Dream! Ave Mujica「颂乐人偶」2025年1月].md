@@ -6311,3 +6311,42 @@ CGディレクター：小川 浩太朗
 由手机上传
 2025-1-7 11:17 上传
 
+
+*****
+
+####  山ノ内花音  
+##### 6479#       发表于 2025-1-7 11:21
+
+官方怎么把喵梦的行为直接定义成背后捅刀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 6480#       发表于 2025-1-7 11:24
+
+<img src="https://p.sda1.dev/21/f91f7406a08ba85d94bf44e48bbd0351/4508e79bgy1hxbv5hluwgj216o1kw4bd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  试制甲炮  
+##### 6481#       发表于 2025-1-7 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119545&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-7 10:55</a>
+
+摘面具的时候为啥海铃不反抗</blockquote>
+祥子、初华都没采取激烈行动呢，海玲反抗那么激烈干嘛，而且在舞台上先得干好舞台上的事，SOYO看祥子哭着跑出去不都是先弹完贝斯下台才发作的。
+
+*****
+
+####  试制甲炮  
+##### 6482#       发表于 2025-1-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118861&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 09:44</a>
+
+楼友对于祥子的实际团队掌控力怎么发散那么多
+
+剧集多次强调把余生交给我，姑且可以认为祥子会担负主要事务 ...</blockquote>
+笑死，虽然喵梦不知道，但是上次祥子可说过“我们现在是命运共同体”这种话，结果怎么样了呢。
+
