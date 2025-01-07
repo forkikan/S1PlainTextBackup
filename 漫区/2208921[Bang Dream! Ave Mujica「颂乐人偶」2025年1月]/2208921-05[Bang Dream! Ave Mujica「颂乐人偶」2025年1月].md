@@ -6155,3 +6155,38 @@ https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubr
 为什么喵梦非要揭面呢 
 肯定是祥子有问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yozoraxsx  
+##### 6469#       发表于 2025-1-7 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119324&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-7 10:33</a>
+
+…………官网介绍不都写了発起人・祥子の采配により、Ave Mujicaの人気や評判は上々。了吗，都采配了
+
+哪来 ...</blockquote>
+官方的角色介绍还直球丰川继承人呢，不还是一地坚持大祥老师不是没苦硬吃的？
+
+
+*****
+
+####  Aendst  
+##### 6470#       发表于 2025-1-7 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119482&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 10:49</a>
+
+官方的角色介绍还直球丰川继承人呢，不还是一地坚持大祥老师不是没苦硬吃的？ ...</blockquote>
+你的逻辑能力有点令人感动了
+
+祥子本来就是丰川家继承人啊，反倒是有些不喜欢祥子的人不愿意承认这一点，不愿意承认继承人的观点说辞跟你一模一样的都是没苦硬吃，要不你们先打一架吧
+
+不能放着爹去世是一种基本伦理道德，和是不是继承人有因果逻辑关联吗
+
+*****
+
+####  达达葱2  
+##### 6471#       发表于 2025-1-7 10:55
+
+摘面具的时候为啥海铃不反抗
+
