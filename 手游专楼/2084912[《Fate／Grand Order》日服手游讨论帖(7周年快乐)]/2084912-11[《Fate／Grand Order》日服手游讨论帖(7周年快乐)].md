@@ -9945,3 +9945,38 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 欧 羡慕 为什么你们都那么狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 为什么你们都那么欧
 
+
+*****
+
+####  khxooo  
+##### 16024#       发表于 2025-1-7 16:57
+
+10连花嫁来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16025#       发表于 2025-1-7 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122700&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-1-7 16:57</a>
+
+10连花嫁来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 为什么你们都那么狗
+
+*****
+
+####  alucardcz  
+##### 16026#       发表于 2025-1-7 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123021&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-7 17:30</a>
+
+欧 羡慕 为什么你们都那么狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 为什么你们都那么欧
+
+*****
+
+####  希望之花  
+##### 16027#       发表于 2025-1-8 06:14
+
+终于给小麻雀补了一宝，妈蛋出剑刷的时候抽卡在那里读取半天，出五星的时候没跑狗
+
