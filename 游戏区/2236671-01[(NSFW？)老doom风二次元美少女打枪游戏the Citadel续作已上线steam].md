@@ -659,3 +659,18 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 一代通了，真的是天才之作，爽快的击杀反馈和适宜的关卡长度让人一直想要玩下去，每一关不同的构造地形也** ...</blockquote>
 我就说我怎么玩一代的体验无论如何跟爽也没关系<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">普通难度对我来说也是太高了点
 
+
+*****
+
+####  zzy516232108  
+##### 67#       发表于 2025-1-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118514&amp;ptid=2236671" target="_blank">white1dance 发表于 2025-1-7 09:10</a>
+
+我就说我怎么玩一代的体验无论如何跟爽也没关系普通难度对我来说也是太高了点 ...</blockquote>
+一代玩简单难度就能当DOOM乱杀了，好玩不坐牢
+
+普通以上就要狠狠地打战术枪，而且开局武器少的时候也不好偷鸡，至少要1-3拿到喷子以后才能爽，ar还是一般了点
+
+1-2能偷鸡拿到大狙，提前点掉怪物的话会舒服很多
+

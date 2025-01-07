@@ -9894,3 +9894,11 @@ fgo有生之年有机会实装嘟嘟吗
 
 150石头武藏到手，水弗兰刚好5宝<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zechins  
+##### 16019#       发表于 2025-1-7 09:54
+
+还是没抽到嫁王<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

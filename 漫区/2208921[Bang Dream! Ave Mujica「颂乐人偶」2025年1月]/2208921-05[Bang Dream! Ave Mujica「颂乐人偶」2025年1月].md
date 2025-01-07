@@ -6107,3 +6107,15 @@ https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubr
 
 剧集多次强调把余生交给我，姑且可以认为祥子会担负主要事务，不摘面具也不会随意换人吧
 
+
+*****
+
+####  66367749  
+##### 6465#       发表于 2025-1-7 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118414&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 08:53</a>
+没有初睦大喵老师进都不进。
+
+另外很可能是大喵老师的合同和初华的事务所签的，五个人地位是平等的，大祥 ...</blockquote>
+舞台上的一切行为都是得负责的，这是商业演出。因为不满一位队友所以在舞台上真实曝光另外几位队友，问过她们意见没有？搁现实怕不是队友要里垢拐弯骂人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
