@@ -8528,3 +8528,18 @@ wsd：幼驯染属性我干嘛要放着不卖呢？
 
 按日程的话排除李茜月三个了，13号她们要去wsd发表会，一天不到就从美国飞回日本上生放难度高了点
 
+
+*****
+
+####  look900822  
+##### 6690#       发表于 2025-1-8 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67114734&amp;ptid=2208921" target="_blank">童贞阿龙 发表于 2025-1-6 16:35</a>
+
+很怕后面编剧尝试只用喵梦自身的努力和实力来缓解喵梦追求流量的行为</blockquote>
+喜欢数字追求流量难道不是网红的基本素养吗？
+
+为啥一定要给喜欢数字找一个理由<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+像祥子那样疯狂打工，赚不到多少钱又累死累活需要理由。但是如果把网红当工作看，喵梦追求数字只是很正常的做好自己本职工作呀
+
