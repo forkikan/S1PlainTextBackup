@@ -7875,3 +7875,23 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 也不算沒關係</blockquote>
 无敌了 我想半天才明白什么意思 想到黄瓜那边去了
 
+
+*****
+
+####  银酒监武  
+##### 6624#       发表于 2025-1-7 19:03
+
+<img src="https://p.sda1.dev/21/0835fb36a23868f172bb849cf408e420/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  试制甲炮  
+##### 6625#       发表于 2025-1-7 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123661&amp;ptid=2208921" target="_blank">ffam 发表于 2025-1-7 18:51</a>
+
+我是说老登把祥子当养女的情况下</blockquote>
+老登这个收养应该只是法律层面上的收养，亲戚之间大概率还是该怎么叫怎么叫。
+
