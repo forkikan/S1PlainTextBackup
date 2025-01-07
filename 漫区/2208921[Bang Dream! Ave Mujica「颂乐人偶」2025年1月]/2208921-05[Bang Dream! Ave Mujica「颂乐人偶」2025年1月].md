@@ -6070,3 +6070,30 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 <img src="https://p.sda1.dev/21/a7e1af42aac6125be9bd59f81368eac7/QQ图片20250107085340.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 6462#       发表于 2025-1-7 09:19
+
+<img src="https://img.saraba1st.com/forum/202501/07/091953skozdfevohb25cic.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1204.jpeg</strong> (485.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-7 09:19 上传
+
+https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  花菱花奏  
+##### 6463#       发表于 2025-1-7 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118310&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-7 08:35</a>
+
+为什么这么说</blockquote>
+纤细，敏感，极端到让一些人觉得是精神病的感情，如舞台剧般戏剧性的发展，无常的命运，纠葛的人物关系，还有存在感拉满的人偶。当然这也只是我随口一说的。
+
