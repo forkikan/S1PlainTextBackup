@@ -639,3 +639,23 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 正式版有汉化补丁吗？</blockquote>
 目前貌似没有，这代还是有点文本的，不过也不是啥比较难的内容。
 
+
+*****
+
+####  寻狐  
+##### 65#       发表于 2025-1-7 09:08
+
+按楼主推荐玩了1代
+
+确实不错，而且手动换枪非常有操作感，真的感觉自己是拿着一把枪。
+
+*****
+
+####  white1dance  
+##### 66#       发表于 2025-1-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67115128&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-6 17:16</a>
+
+一代通了，真的是天才之作，爽快的击杀反馈和适宜的关卡长度让人一直想要玩下去，每一关不同的构造地形也** ...</blockquote>
+我就说我怎么玩一代的体验无论如何跟爽也没关系<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">普通难度对我来说也是太高了点
+
