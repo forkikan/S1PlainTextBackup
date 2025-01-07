@@ -7982,3 +7982,97 @@ Twitter @xxxhackerxxxxx
 首先第一集拿来光速回收卖狗留下的祥子伏笔， ...</blockquote>
 mygo到第七集才有完整live啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 6635#       发表于 2025-1-7 20:08
+
+ 本帖最后由 Aendst 于 2025-1-7 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124037&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-7 19:53</a>
+
+剧透楼那我就不反白了？忍不住看了三集，稍微分享一下观后感
+
+首先第一集拿来光速回收卖狗留下的祥子伏笔， ...</blockquote>
+很有意思的角度，虽然有点话太糙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+睦这种情况放在现实里确实是建议去咨询一下医生的，这个内耗状态不能定论说是她的不对，但确实是需要成长或者修正的问题
+
+她说话确实……也是有问题的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过实际上有一些东西还是不够清楚的，mortis出来之后怎么展开也不好说，而且她的精神压力是实打实的，不是自己调整就能调整得了的
+
+我个人观感来说是还有东西没有放出来的（为什么本来好端端的就突然做不到了，明明早就是公众人物了但为什么现在对露脸这么大反应，以及为什么会在听到喵梦问地下室时特意给两个表情特写，地下室的开裂的座椅又是想表达什么意思）
+
+最后其实这个楼还是需要避免一下剧透的最好还是反白一下
+
+*****
+
+####  10th_Mystery  
+##### 6636#       发表于 2025-1-7 20:12
+
+<img src="https://img.saraba1st.com/forum/202501/07/195915k8ln4yvgo6onya06.jpg" referrerpolicy="no-referrer">
+
+<strong>011.jpg</strong> (183.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/07/195932bkm7fjxyh79ywxyw.jpg" referrerpolicy="no-referrer">
+
+<strong>039.jpg</strong> (169.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/07/195934asiremiqczi1izg3.jpg" referrerpolicy="no-referrer">
+
+<strong>040.jpg</strong> (188.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 19:59 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 6637#       发表于 2025-1-7 20:14
+
+啊？還能這樣賣？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6638#       发表于 2025-1-7 20:14
+
+官方睦一
+
+*****
+
+####  桜庭千景  
+##### 6639#       发表于 2025-1-7 20:14
+
+卧槽，卖恁大
+
+*****
+
+####  山ノ内花音  
+##### 6640#       发表于 2025-1-7 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124171&amp;ptid=2208921" target="_blank">10th_Mystery 发表于 2025-1-7 20:12</a></blockquote>
+这是我能看的吗
+
