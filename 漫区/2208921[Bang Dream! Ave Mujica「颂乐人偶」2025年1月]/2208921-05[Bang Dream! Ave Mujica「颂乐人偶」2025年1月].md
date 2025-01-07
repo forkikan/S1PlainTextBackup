@@ -7221,3 +7221,34 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 </blockquote>
 这句是什么意思
 
+
+*****
+
+####  御幸一也  
+##### 6561#       发表于 2025-1-7 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121227&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 14:01</a>
+
+这句是什么意思</blockquote>
+這個短語直譯就是“趁人睡覺時砍了對方的頭”，一般就是用來形容“趁人不備加以陷害”這種意思
+
+*****
+
+####  山ノ内花音  
+##### 6562#       发表于 2025-1-7 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121227&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 14:01</a>
+这句是什么意思</blockquote>
+被暗算 被背刺
+
+*****
+
+####  DARK_HGCG  
+##### 6563#       发表于 2025-1-7 14:10
+
+<blockquote>KLHgg 发表于 2025-1-7 14:01
+这句是什么意思</blockquote>
+字面意思就是"趁睡觉时砍头"
+
+引申义就是"偷袭""背后捅刀子"
+
