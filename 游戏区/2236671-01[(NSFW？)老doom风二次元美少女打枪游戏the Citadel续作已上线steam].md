@@ -917,3 +917,14 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这第二关的唐突坦克大战真的劝退啊，作者不会觉得这逼坦克第一人称很好开吧
 
+
+*****
+
+####  ParadiseMartyr  
+##### 91#         楼主| 发表于 2025-1-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125353&amp;ptid=2236671" target="_blank">DawnGuardian 发表于 2025-1-7 23:10</a>
+这第二关的唐突坦克大战真的劝退啊，作者不会觉得这逼坦克第一人称很好开吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实还好了，血包很充足，打小人随便打，半途还会给一台新机子。
+这个坦克操作确实屎。
+

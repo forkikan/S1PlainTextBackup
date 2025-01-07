@@ -1102,3 +1102,18 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 边战边唱那得是隔壁正统战姬续作，就等她们四月开播给偶Q一记闷棍了
 
+
+*****
+
+####  Piano-Forest  
+##### 232#         楼主| 发表于 2025-1-7 23:30
+
+[https://x.com/09___xyz/status/1876152894808100913](https://x.com/09___xyz/status/1876152894808100913)
+<img src="https://p.sda1.dev/21/137e2de6cca02426af1e112772463e4c/20250107_232536.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/bibimaru_1101/status/1876211234477142471](https://x.com/bibimaru_1101/status/1876211234477142471)
+<img src="https://p.sda1.dev/21/3eaa3b393e89953a7d5b52131576974e/20250107_232541.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kisumirei41/status/1875934977139130396](https://x.com/kisumirei41/status/1875934977139130396)
+<img src="https://p.sda1.dev/21/d4b32c20306df71cab8813242daa8cb1/20250107_232555.jpg" referrerpolicy="no-referrer">
+
