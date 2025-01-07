@@ -7843,3 +7843,35 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 如果睦妈和祥妈真是亲姐妹，那以后睦妈喊祥子是不是要叫妹妹了，睦喊祥子是不是要叫姨妈或小姨了 ...</blockquote>
 你在说什么东西？这样睦祥不就是标准表姐妹
 
+
+*****
+
+####  ffam  
+##### 6621#       发表于 2025-1-7 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123631&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-7 18:46</a>
+你在说什么东西？这样睦祥不就是标准表姐妹</blockquote>
+我是说老登把祥子当养女的情况下
+
+
+*****
+
+####  akiomn  
+##### 6622#       发表于 2025-1-7 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123611&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 18:43</a>
+如果鸡的结尾要写黑暗的走向，比如留下音乐暂时解决不了的问题，那么只能假定wsd后续手游剧情已经写好了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是不可能，wsd这帮懒狗连go箱活都能停一年呢
+高尾和李子钦定结局是he包饺子了，所以黑暗结局是不可能了
+
+*****
+
+####  哈曼的YY  
+##### 6623#       发表于 2025-1-7 18:55
+
+<blockquote>南宮凝香 发表于 2025-1-7 18:19
+那爹就是姐夫嘍
+
+也不算沒關係</blockquote>
+无敌了 我想半天才明白什么意思 想到黄瓜那边去了
+
