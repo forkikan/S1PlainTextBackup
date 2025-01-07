@@ -886,3 +886,13 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 试了下demo，挺喜欢这个味道，两部都入了
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 88#       发表于 2025-1-7 20:43
+
+感觉这游戏有种很恶心的爽感
+
+有点精神污染，但是打得又很爽。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
