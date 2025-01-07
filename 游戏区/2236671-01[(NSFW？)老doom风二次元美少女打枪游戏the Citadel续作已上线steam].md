@@ -758,3 +758,21 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 最大的问题是吞指令，特指开火，经常需要停按鼠标一两秒才能继续。一开始还以为 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是的，你说的这些问题都来自于本作不完全是个纯粹的纸片设计，而是用UE4仿造出来的纸片设计带来的。
 
+
+*****
+
+####  evilpanda  
+##### 76#       发表于 2025-1-7 15:06
+
+话说谁知道弹匣怎么保存啊，空弹匣扔地上的按F可以捡起来，但是一不小心走过去就没了？
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 77#       发表于 2025-1-7 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121770&amp;ptid=2236671" target="_blank">evilpanda 发表于 2025-1-7 15:06</a>
+话说谁知道弹匣怎么保存啊，空弹匣扔地上的按F可以捡起来，但是一不小心走过去就没了？ ...</blockquote>
+先按x退弹匣再按r上弹匣，退下来的会进你背包里并且有无形的大手帮你压子弹
+
