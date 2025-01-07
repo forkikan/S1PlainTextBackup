@@ -745,3 +745,16 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人</blockquote>
 致敬光环豺狼人盾兵罢了，那个东西也是圆盾漏个手
 
+
+*****
+
+####  古代人皮克  
+##### 75#       发表于 2025-1-7 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67112882&amp;ptid=2236671" target="_blank">Hinacle 发表于 2025-1-6 12:05</a>
+
+通了，并不推荐玩当前版本
+
+最大的问题是吞指令，特指开火，经常需要停按鼠标一两秒才能继续。一开始还以为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是的，你说的这些问题都来自于本作不完全是个纯粹的纸片设计，而是用UE4仿造出来的纸片设计带来的。
+

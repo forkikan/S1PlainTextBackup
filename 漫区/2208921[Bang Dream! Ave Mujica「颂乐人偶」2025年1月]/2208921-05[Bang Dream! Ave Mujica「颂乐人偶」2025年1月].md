@@ -7299,3 +7299,11 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星天观测  
+##### 6568#       发表于 2025-1-7 14:47
+
+很在意被扣鹅的话可以试着召唤一下本楼的回血护盾啊，我记得有不少正义小卫士爱蹦出来帮助他人的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
