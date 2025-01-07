@@ -6131,3 +6131,27 @@ https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubr
 
 哪来的地位平等狐假虎威，哦可能是不看官方介绍导致的，那没事了，角色剧情理解这么诡异不奇怪
 
+
+*****
+
+####  公若不弃  
+##### 6467#       发表于 2025-1-7 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118861&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 09:44</a>
+楼友对于祥子的实际团队掌控力怎么发散那么多
+
+剧集多次强调把余生交给我，姑且可以认为祥子会担负主要事务 ...</blockquote>
+只以工作看待的话这不就跟领导喊的口号一样从大脑皮层划过自动过滤的吗？大喵老师和大祥老师也没熟到这份上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  山ノ内花音  
+##### 6468#       发表于 2025-1-7 10:44
+
+一个巴掌拍不响 
+为什么喵梦非要揭面呢 
+肯定是祥子有问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
