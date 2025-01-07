@@ -6060,3 +6060,13 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 另外很可能是大喵老师的合同和初华的事务所签的，五个人地位是平等的，大祥老师只是一个小组长，没有人事权。大祥老师这种狐假虎威空手套白狼的组团方式掌控力低不奇怪。
 
+
+*****
+
+####  半年  
+##### 6461#       发表于 2025-1-7 08:54
+
+<img src="https://p.sda1.dev/21/81d32b5fac409ff980e7a720545738fb/QQ图片20250107085332.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/a7e1af42aac6125be9bd59f81368eac7/QQ图片20250107085340.jpg" referrerpolicy="no-referrer">
+
