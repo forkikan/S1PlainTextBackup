@@ -7086,3 +7086,47 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 能说吗，祥子每一次跌倒站起后所谓狼狈的姿态在我看来也很优雅美丽和富有魅力，坏了我是不是也有点虐主倾向
 
+
+*****
+
+####  HGCG+  
+##### 6550#       发表于 2025-1-7 13:00
+
+我觉得“人偶”会是一个重要的主题
+祥子离家出走是为了不做长辈的提线木偶
+喵梦背后捅刀是为了不做祥子的提线木偶
+第三集木头人发疯，她到底是不是不想做父母的提线木偶？
+然后海铃又有什么诉求？
+而祥子身上就有一个巨大的矛盾，一方面她不想做别的的木偶，一方面又想掌控乐队让别人做她的木偶
+我想支配欲之间的冲突，也就是“谁做主”，会成为一条主线
+发展下去的话就是提线木偶个个有了自己的心思，然后所有人都需要在这个矛盾中找到解决的方法
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  玖羽  
+##### 6551#       发表于 2025-1-7 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120663&amp;ptid=2208921" target="_blank">银酒监武 发表于 2025-1-7 12:48</a>
+
+然而每一次跌倒站起之后，她的姿态也更加狼狈了，内心的……可以说是偏执也重了一分，进一步引起了周边人 ...</blockquote>
+最终版本：
+
+<img src="https://img.saraba1st.com/forum/202501/07/130107b5i25fpkveepppv1.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (187.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 13:01 上传
+
+*****
+
+####  结衣小比取  
+##### 6552#       发表于 2025-1-7 13:03
+
+祥子在MyGO动画里怎么就成反派了？MyGO动画主要讲的是MyGO!!!!!乐队成立的故事，那么阻挠这个进程就是反派，而这个反派位是Soyo占据的啊，实际上收服她以后MyGO动画故事就收尾了。
+
+祥子在MyGO动画不就是个戏份多的路人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
