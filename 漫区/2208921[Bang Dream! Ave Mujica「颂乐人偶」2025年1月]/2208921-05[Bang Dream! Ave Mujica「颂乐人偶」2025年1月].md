@@ -6455,3 +6455,139 @@ Mujica的速度确实就像吹气球概念的独角兽企业一样，有点爆�
 
 大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅
 
+
+*****
+
+####  山ノ内花音  
+##### 6493#       发表于 2025-1-7 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120084&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 11:47</a>
+大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅</blockquote>
+对待反派要像严冬一样残酷无情 没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 6494#       发表于 2025-1-7 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120084&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 11:47</a>
+
+大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅</blockquote>
+世界对优秀很严苛，世界对有能很严苛。
+
+世界对清白很严苛，世界对聪敏很严苛。
+
+西尾维新说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 6495#       发表于 2025-1-7 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120084&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 11:47</a>
+大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅</blockquote>
+不讨论分锅，yysy她这个状态只有不破不立修正回来才是HE吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  御幸一也  
+##### 6496#       发表于 2025-1-7 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119871&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-7 11:28</a>
+
+笑死，虽然喵梦不知道，但是上次祥子可说过“我们现在是命运共同体”这种话，结果怎么样了呢。 ...</blockquote>
+白祥也是個傻白甜不懂這種話的份量，經歷過才知道不能隨意承諾，
+
+知道這種話的份量後，依然要說出的祥子，這次才是真的要背負人生了捏。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6497#       发表于 2025-1-7 11:52
+
+卖狗都当完反派了 母鸡卡祥老师可是主角啊!😠
+
+*****
+
+####  御幸一也  
+##### 6498#       发表于 2025-1-7 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120053&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-7 11:45</a>
+
+祥子不搞Crychic确实是客观原因导致的，这不怪她，主要是善后搞得实在太烂了，黑刀之夜被立希冲了一下就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">輪迴幾百次的話題還要來？
+
+退團說得很清楚是自己的原因，而原因無法公開也是她角色性格導致。
+
+起碼祥子退團的時候有打一聲招呼而不是無緣無故消失吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 6499#       发表于 2025-1-7 11:54
+
+有一点很好笑的就是祥子在她条件下已经是操作的最好了，而其他人操作的余地明明哪哪比祥子大。但不管，为了完美结局“修正″祥子才是最好的方法了
+
+*****
+
+####  山ノ内花音  
+##### 6500#       发表于 2025-1-7 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120136&amp;ptid=2208921" target="_blank">银酒监武 发表于 2025-1-7 11:52</a>
+不讨论分锅，yysy她这个状态只有不破不立修正回来才是HE吧
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+肯定啊 这片里所有人都是需要修正的
+mygo修正了三个人
+感觉mujica这5个人全都要修正一遍 海铃存疑
+
+*****
+
+####  御幸一也  
+##### 6501#       发表于 2025-1-7 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120084&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 11:47</a>
+
+大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅</blockquote>
+沒想到都開播了，還是有些人沒把腦子轉過來，avemujica和祥子可不是反派，是主角呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6502#       发表于 2025-1-7 11:56
+
+<blockquote>银酒监武 发表于 2025-1-7 11:52
+不讨论分锅，yysy她这个状态只有不破不立修正回来才是HE吧
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+主流修正方式包括不限于修正拳和卖狗对邦创碎母鸡卡
+
+*****
+
+####  银酒监武  
+##### 6503#       发表于 2025-1-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120165&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 11:54</a>
+肯定啊 这片里所有人都是需要修正的
+mygo修正了三个人
+感觉mujica这5个人全都要修正一遍 海铃存疑 ...</blockquote>
+确实如此，这几个人有了彼此背负人生的觉悟才是正道啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  御景  
+##### 6504#       发表于 2025-1-7 11:57
+
+舞台摘面具本来就是喵梦背刺。
+
+还有祥子也有想过给喵梦解释，喵梦直接打断不听，然后还独走了。
+
+能不能别脑补和断章取义了。
+
+夺权、自保都来了。
+
