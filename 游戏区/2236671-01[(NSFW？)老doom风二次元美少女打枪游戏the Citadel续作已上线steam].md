@@ -832,3 +832,26 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 普通以上就要狠狠地打战术枪，而且开局武器少的时候也不好 ...</blockquote>
 我当时玩1就是选了普通以上难度然后被揍的都没出第一关于是卸载了游戏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 83#       发表于 2025-1-7 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121800&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-7 15:10</a>
+
+先按x退弹匣再按r上弹匣，退下来的会进你背包里并且有无形的大手帮你压子弹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来不是按R啊，按R是不是就直接丢掉了，按x再按R那就是战术换弹，保留弹夹的
+
+*****
+
+####  zzy516232108  
+##### 84#       发表于 2025-1-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122631&amp;ptid=2236671" target="_blank">white1dance 发表于 2025-1-7 16:48</a>
+
+我当时玩1就是选了普通以上难度然后被揍的都没出第一关于是卸载了游戏</blockquote>
+第一关还行吧，主要初代这个左轮要狂撸R键上弹有点不习惯就是……
+
+其实手快的话这游戏半自动比全自动好用……
+
