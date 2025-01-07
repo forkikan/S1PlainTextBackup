@@ -612,3 +612,16 @@ ins：yeonwootherealone</blockquote>
 
 我就奇了怪了，韩国娘们每个人鼻子上都要有痣吗？
 
+
+*****
+
+####  qdxhs  
+##### 58#       发表于 2025-1-7 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121400&amp;ptid=2236860" target="_blank">寒蝉 发表于 2025-1-7 14:21</a>
+
+大哥指个路啊怎么都找不到正确的朋友很急</blockquote>
+[https://x-idol.net/?s=YeonWoo+%28%EC%97%B0%EC%9A%B0%29](https://x-idol.net/?s=YeonWoo+%28%EC%97%B0%EC%9A%B0%29)
+
+这里可以下载一些，不过比较麻烦
+

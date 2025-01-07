@@ -7673,3 +7673,24 @@ https://x.com/_a_jak_/status/1876552671311917121?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 但是祥子自尊心肯定不允许 还是继续吃苦当小哭包吧 就爱这口软糯<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 6605#       发表于 2025-1-7 17:37
+
+回去就是当外公女儿 那他爹算啥 真断绝关系了啊
+
+而且想回去就回去就变成网友说的没苦硬吃闹麻了
+
+*****
+
+####  银酒监武  
+##### 6606#       发表于 2025-1-7 17:38
+
+ 本帖最后由 银酒监武 于 2025-1-7 17:39 编辑 
+
+那个睦家初华隐身的假药又有新发现：第二集睦妈亲口对Mujica众人说过睦祥从幼稚舍就认识，第三集里初华竟然像没听过睦祥很早以前就认识一样，对祥子说的这句话有点惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
