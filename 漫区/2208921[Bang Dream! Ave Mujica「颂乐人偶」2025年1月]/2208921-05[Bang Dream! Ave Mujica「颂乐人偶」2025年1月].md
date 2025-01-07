@@ -7643,3 +7643,23 @@ https://x.com/_a_jak_/status/1876552671311917121?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 吃这么多可以多做一个微胖版模型吗
 
+
+*****
+
+####  银酒监武  
+##### 6602#       发表于 2025-1-7 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122891&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 17:15</a>
+吃这么多可以多做一个微胖版模型吗</blockquote>
+已经是小圆脸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 6603#       发表于 2025-1-7 17:21
+
+<img src="https://p.sda1.dev/21/95d3cd108b994142ce8d35be427029db/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8ac9abcfa66f88c387a473e1e87ac73f/image.jpg" referrerpolicy="no-referrer">
+
