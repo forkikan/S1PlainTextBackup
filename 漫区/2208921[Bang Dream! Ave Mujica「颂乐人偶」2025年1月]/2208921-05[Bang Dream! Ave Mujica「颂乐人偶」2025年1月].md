@@ -8432,3 +8432,40 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 
 毕竟现在睦头剧里话都没几句，初华直接超重力发言
 
+
+*****
+
+####  Tienx  
+##### 6679#       发表于 2025-1-8 00:06
+
+狠狠do<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 6680#       发表于 2025-1-8 00:08
+
+海希算是这两团里最纯爱的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 6681#       发表于 2025-1-8 00:09
+
+别看医生了，能音乐解决的事情就别吃药了。不要等到第五集看到睦头拿出一罐白色药片<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 6682#       发表于 2025-1-8 00:10
+
+純愛指的是參加三十個樂團？
+
+*****
+
+####  qjw114514  
+##### 6683#       发表于 2025-1-8 00:11
+
+前两天那个同人现在可以当表情包用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/e5d0d36d266896023463c6111f4291ad/image.jpg" referrerpolicy="no-referrer">
+
