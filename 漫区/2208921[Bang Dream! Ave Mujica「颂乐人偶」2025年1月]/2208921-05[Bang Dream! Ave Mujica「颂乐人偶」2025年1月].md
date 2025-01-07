@@ -7821,3 +7821,25 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 
 2025-1-7 18:35 上传
 
+
+*****
+
+####  KLHgg  
+##### 6619#       发表于 2025-1-7 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122165&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-7 15:55</a>
+
+百分百包饺子，因为要进手游也不能弄的太黑，声优还说结局像以太呢
+
+说到底这是个二偶企业，又不可能真的 ...</blockquote>
+如果鸡的结尾要写黑暗的走向，比如留下音乐暂时解决不了的问题，那么只能假定wsd后续手游剧情已经写好了不少，而且水准能承接动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 6620#       发表于 2025-1-7 18:46
+
+<blockquote>ffam 发表于 2025-1-7 18:37
+如果睦妈和祥妈真是亲姐妹，那以后睦妈喊祥子是不是要叫妹妹了，睦喊祥子是不是要叫姨妈或小姨了 ...</blockquote>
+你在说什么东西？这样睦祥不就是标准表姐妹
+
