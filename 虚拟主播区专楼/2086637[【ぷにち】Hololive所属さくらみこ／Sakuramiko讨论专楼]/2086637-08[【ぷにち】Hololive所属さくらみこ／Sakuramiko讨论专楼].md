@@ -4075,3 +4075,26 @@ Book 509 Usada Pekora Sky Logo
 
 这一辈子都不会想到。箱的元V4天王之一的siro嘴里能蹦出nyahallo这句问候语，这是什么世界线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 10655#         楼主| 发表于 2025-1-7 21:14
+
+<img src="https://img.saraba1st.com/forum/202501/07/211409nonq8cnoct6ir414.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 21:14 上传
+
+笑死了2个图标一个前一个后什么牌面
+
+*****
+
+####  holoan  
+##### 10656#         楼主| 发表于 2025-1-7 21:16
+
+4年前雪地人狼，我都全忘了你们怎么细节还记得这么清楚的
+

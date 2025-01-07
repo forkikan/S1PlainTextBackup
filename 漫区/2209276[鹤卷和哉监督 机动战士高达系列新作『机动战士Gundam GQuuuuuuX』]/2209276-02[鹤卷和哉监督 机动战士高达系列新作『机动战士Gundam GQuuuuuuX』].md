@@ -8385,3 +8385,13 @@ gqx装备太素了点，前期应该不行</blockquote>
 
 还有十天就播了嘛 时间过得还蛮快的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 2119#       发表于 2025-1-7 21:17
+
+今天也是毫无动静的一天，真就打算拖到17号吗？
+
+起码来个7天倒计时吧
+
