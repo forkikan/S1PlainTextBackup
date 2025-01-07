@@ -809,3 +809,26 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小怪的话，找掩体qe探头苟着打就行，根据就交战距离和敌人换不同的武器最好，比如近战上喷子，重甲直接上榴弹。
 boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包硬顶过去
 
+
+*****
+
+####  evilpanda  
+##### 81#       发表于 2025-1-7 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122022&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-7 15:39</a>
+
+这个是游戏故意的，升级里专门有一项就是减小空弹匣直接扔地上时损坏的概率 ...</blockquote>
+好好好，牛比<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  white1dance  
+##### 82#       发表于 2025-1-7 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118926&amp;ptid=2236671" target="_blank">zzy516232108 发表于 2025-1-7 09:52</a>
+
+一代玩简单难度就能当DOOM乱杀了，好玩不坐牢
+
+普通以上就要狠狠地打战术枪，而且开局武器少的时候也不好 ...</blockquote>
+我当时玩1就是选了普通以上难度然后被揍的都没出第一关于是卸载了游戏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
