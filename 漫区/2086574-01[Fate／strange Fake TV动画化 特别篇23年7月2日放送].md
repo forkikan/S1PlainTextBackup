@@ -7571,3 +7571,15 @@ fsf能加的多了
 经典场面这个画面我倒是挺喜欢的，很久没在TV动画里看到这么厚重感的线条了 ...</blockquote>
 这是故意向美漫靠拢？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无证madam  
+##### 399#       发表于 2025-1-7 16:15
+
+最大限度地保留了原作那股味儿 可惜原作就那样
+
+感觉bgm有点破坏气氛 有些镜头只保留环境音效果都更好
+
+这个播完藤田带着眉毛兄弟回fgo继续整短片吧 大伙出来搞fsf这四五年 fgo除了无念哥的大活以外都没什么像样的pv 想你了牢眉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
