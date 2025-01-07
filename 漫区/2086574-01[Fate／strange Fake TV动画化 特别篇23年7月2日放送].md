@@ -7597,3 +7597,17 @@ fsf能加的多了
 主要还是做得太好了  这种头发乱飞的画面也这么整齐
 <img src="https://pic1.imgdb.cn/item/677ce6d2d0e0a243d4f12c24.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂懵懂人  
+##### 401#       发表于 2025-1-7 16:53
+
+<img src="https://pic1.imgdb.cn/item/677ce068d0e0a243d4f12477.jpg" referrerpolicy="no-referrer">
+
+不过光照上稍微有点差别的，一开始只有狮心王在亮光面
+
+再下一卡警察直升机来了沙条才在亮光面里
+
+<img src="https://pic1.imgdb.cn/item/677ce067d0e0a243d4f12476.jpg" referrerpolicy="no-referrer">
+

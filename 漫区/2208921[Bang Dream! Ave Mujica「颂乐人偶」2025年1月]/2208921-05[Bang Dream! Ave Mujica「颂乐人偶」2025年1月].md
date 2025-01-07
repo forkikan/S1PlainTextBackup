@@ -7512,3 +7512,65 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 和爹吵个架而已 真回外公家就是彻底断绝关系了啊
 
+
+*****
+
+####  银酒监武  
+##### 6590#       发表于 2025-1-7 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122361&amp;ptid=2208921" target="_blank">Zendless 发表于 2025-1-7 16:15</a>
+我想看大祥老师继续坚强和成长，最后坦然接受现在，她奔溃没什么意思，或者说她早就蚌埠住了。
+
+大喵老师现 ...</blockquote>
+我倒觉得小祥的崩溃会有完全不一样的表现
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  达达葱2  
+##### 6591#       发表于 2025-1-7 16:49
+
+<blockquote>银酒监武 发表于 2025-1-7 16:47
+我倒觉得小祥的崩溃会有完全不一样的表现
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+会不会和她爸一样颓废
+
+*****
+
+####  ml1642879  
+##### 6592#       发表于 2025-1-7 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122279&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-7 16:06</a>
+严格来说，别说金属摇滚了，真考虑赚钱的话连音乐这条路都不会选，这条路上能赚的盆满钵满的一般只有经纪 ...</blockquote>
+日本音乐市场男大物赚的比女大物多，要是男人邦就解决了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  remedios010000  
+##### 6593#       发表于 2025-1-7 16:52
+
+mggm：独角兽的货，太纯了！<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.41)
+
+*****
+
+####  山ノ内花音  
+##### 6594#       发表于 2025-1-7 16:52
+
+可以穿着运动服躺在阁楼上吃蛋白棒嗯造碳酸饮料吗
+
+*****
+
+####  影伴光生  
+##### 6595#       发表于 2025-1-7 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122670&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 16:52</a>
+可以穿着运动服躺在阁楼上吃蛋白棒嗯造碳酸饮料吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子吃wsd的蛋白棒开出一堆邦邦大头照（含自己）是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
