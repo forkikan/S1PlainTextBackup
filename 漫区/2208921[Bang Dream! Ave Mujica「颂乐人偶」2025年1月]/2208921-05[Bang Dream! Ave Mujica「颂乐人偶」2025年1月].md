@@ -7929,3 +7929,28 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 
 真是高高在上呢（指辈分
 
+
+*****
+
+####  double8G  
+##### 6630#       发表于 2025-1-7 19:53
+
+剧透楼那我就不反白了？忍不住看了三集，稍微分享一下观后感
+
+首先第一集拿来光速回收卖狗留下的祥子伏笔，目前看来就为了能快速推进他人的剧情，而到第三集以及肉眼可见的第四集为止主轴都是睦头人，其他角色的剧情几乎停滞了没有太过值得拿出来说的推进（最好笑的还是键帽，这可是由你自己开启的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+那就说说睦头人，我第一季看完就和群友分享过，说搞不懂她在想啥目的是啥，然后母鸡卡就用两集把我的疑问解释清楚了，最后留了个疑似双重人格的大坑……对于这个角色，我和几个群友评价都是，自己做的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只从她的所作所为来看实在找不出比“又好气又好笑”更适合的形容词了，特别是母鸡卡第一集还有人从祥子视角解读出睦头人说出那话是给祥子解围，实际上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外3集了，完整的live就第一集一首（还是OP），这真的是少女乐队番吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 6631#       发表于 2025-1-7 19:57
+
+go动画第三集才只有半首春日影，第七集才有1.5首新歌
+
+第一集给了一首完整op已经很快了
+
