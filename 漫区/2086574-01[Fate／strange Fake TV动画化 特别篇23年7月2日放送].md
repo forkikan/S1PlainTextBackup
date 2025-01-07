@@ -7560,3 +7560,14 @@ fsf能加的多了
 
 经典场面这个画面我倒是挺喜欢的，很久没在TV动画里看到这么厚重的线条感了
 
+
+*****
+
+####  Lawliet.L  
+##### 398#       发表于 2025-1-7 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117883&amp;ptid=2086574" target="_blank">天堂懵懂人 发表于 2025-1-7 01:51</a>
+
+经典场面这个画面我倒是挺喜欢的，很久没在TV动画里看到这么厚重感的线条了 ...</blockquote>
+这是故意向美漫靠拢？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
