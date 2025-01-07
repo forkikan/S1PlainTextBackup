@@ -7954,3 +7954,31 @@ go动画第三集才只有半首春日影，第七集才有1.5首新歌
 
 第一集给了一首完整op已经很快了
 
+
+*****
+
+####  IWS2000  
+##### 6632#       发表于 2025-1-7 19:59
+
+Twitter @xxxhackerxxxxx
+<img src="https://p.sda1.dev/21/87ac2429621a5dc57856147f8a59f13b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 6633#       发表于 2025-1-7 20:03
+
+感觉又要音乐性不足了
+
+*****
+
+####  山ノ内花音  
+##### 6634#       发表于 2025-1-7 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124037&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-7 19:53</a>
+剧透楼那我就不反白了？忍不住看了三集，稍微分享一下观后感
+
+首先第一集拿来光速回收卖狗留下的祥子伏笔， ...</blockquote>
+mygo到第七集才有完整live啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
