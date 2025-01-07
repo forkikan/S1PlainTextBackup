@@ -7407,3 +7407,31 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 你们没看那个一个多小时的开播前特辑么，好几个声优都说了这番是和之前邦邦企划完全不同的故事风格，还有很 ...</blockquote>
 她真的很爱音乐~
 
+
+*****
+
+####  yozoraxsx  
+##### 6579#       发表于 2025-1-7 15:46
+
+行吧，预告这个睡觉斩首，对线的时候没细看新的预告。但是大喵老师铺垫是做足的，这个定性感觉过分了。对线上头没注意新的官方消息是我的问题。不过说我对大祥老师有恶意我是不承认的，那样的话楼里对soyo也有差不多的恶意。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  御幸一也  
+##### 6580#       发表于 2025-1-7 15:51
+
+惡意在哪，說爽姐pua嗎，但那是官方訪談的內容耶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 6581#       发表于 2025-1-7 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122014&amp;ptid=2208921" target="_blank">意大利面 发表于 2025-1-7 15:38</a>
+你们没看那个一个多小时的开播前特辑么，好几个声优都说了这番是和之前邦邦企划完全不同的故事风格，还有很 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百分百包饺子，因为要进手游也不能弄的太黑，声优还说结局像以太呢
+说到底这是个二偶企业，又不可能真的弄成黑深残
+
