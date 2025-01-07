@@ -6696,3 +6696,120 @@ mygo修正了三个人
 
 不反派吗 13集出来前那不是一个纯纯反派
 
+
+*****
+
+####  山ノ内花音  
+##### 6514#       发表于 2025-1-7 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120265&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2025-1-7 12:05</a>
+原来mygo里祥子定位是反派吗？</blockquote>
+在大多数网友的视角下
+导致主角团成员下跪的角色
+肯定是反派啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法使夜子  
+##### 6515#       发表于 2025-1-7 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">又在祥厨，隔壁泥潭品鉴够多了，快端下去吧。丰川祥子剧里背锅，祥厨在外面也有锅背是吧
+
+*****
+
+####  山ノ内花音  
+##### 6516#       发表于 2025-1-7 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120264&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 12:05</a>
+知道你楼祥厨群团建了。只能说一个人，说话像祥厨，做事像祥厨，那就是祥厨。之前的那位楼友冤啊。 ...</blockquote>
+漏油：不能放着爹去世是一种基本伦理道德，和是不是继承人有因果逻辑关联吗
+层主：祥厨团建
+
+典中典之别人一讲道理就不知道回什么了直接扣帽子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 6517#       发表于 2025-1-7 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119744&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 11:15</a>
+先不谈有和初华的事务所沟通过的可能性，商量肯定是3:1，但是大喵老师一动手，外强中干的软糯小纸老虎暴 ...</blockquote>
+看不懂你这逻辑，你不如说先把可能反对的打进医院开个人舞台吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 6518#       发表于 2025-1-7 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120259&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 12:04</a>
+不是我想对立 很多人想着狗和基拉一样来暴打母鸡卡真飞鸟呢
+
+看看爽女士是怎么被修正的 虽然你用阴谋诡计 但 ...</blockquote>
+问题是小祥这个状态能吃得下安抚吗？队友有哪个像有心思安抚或者能打到点子上的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  相坂君  
+##### 6519#       发表于 2025-1-7 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回祥厨和祥子是命运共同体了
+
+*****
+
+####  ml1642879  
+##### 6520#       发表于 2025-1-7 12:15
+
+要黑祥子还不如黑她为什么要搞金属乐，搞金属你几辈子能还清168亿
+
+
+*****
+
+####  狂热飞鸟  
+##### 6521#       发表于 2025-1-7 12:17
+
+话说我当初是把go当杂鱼番没注意乐队主角是谁直接开看的，第一集当时还以为祥子是主角之一。开场是祥子，爱音组乐队第一个邀请的也是祥子，第2集关注了下op才发现祥子不是这季主角，但也导致了我从没把祥子当反派过。
+
+*****
+
+####  哈曼的YY  
+##### 6522#       发表于 2025-1-7 12:17
+
+<blockquote>银酒监武 发表于 2025-1-7 12:12
+问题是小祥这个状态能吃得下安抚吗？队友有哪个像有心思安抚或者能打到点子上的？眼看着银河战舰一路疾驰 ...</blockquote>
+只要战胜死亡一切都会好起来的(在面对最终boss初华前暂时)
+
+*****
+
+####  山ノ内花音  
+##### 6523#       发表于 2025-1-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120352&amp;ptid=2208921" target="_blank">银酒监武 发表于 2025-1-7 12:12</a>
+问题是小祥这个状态能吃得下安抚吗？队友有哪个像有心思安抚或者能打到点子上的？眼看着银河战舰一路疾驰 ...</blockquote>
+初华不知道收集信息还要收集到什么时候
+不过也不一定是安抚吧
+像mortis一样和她爆了 让她认识到问题所在 自我修正不也是一种解
+
+*****
+
+####  Mikumiku831  
+##### 6524#       发表于 2025-1-7 12:17
+
+现在安抚也只是在给祥子增压罢了
+
+“就你也配教我做事？/之前怎么不见你这样说/还不是你们不够努力我才会这样”
+
+还得情绪崩溃后被霸王硬上x才行<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 6525#       发表于 2025-1-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120342&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-7 12:11</a>
+
+看不懂你这逻辑，你不如说先把可能反对的打进医院开个人舞台吧</blockquote>
+大喵老师整活之后 其他人想法变了 睦初都有自己的想法了
+
