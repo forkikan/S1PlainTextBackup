@@ -6393,3 +6393,65 @@ Mujica的速度确实就像吹气球概念的独角兽企业一样，有点爆�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有些人挺喜欢用小红薯常用术语忽略逻辑人物性格，过程无用功的结果论。按照这个标准，那其他人青春味不就是无病呻吟，“上个班就知道错了”
 
+
+*****
+
+####  Aendst  
+##### 6487#       发表于 2025-1-7 11:39
+
+ 本帖最后由 Aendst 于 2025-1-7 11:41 编辑 
+
+又要来了吗，你只是失去了母亲爹酗酒进警察局不得已退出，而我可是失去了命运共同体啊，全都是你的错你不负责任.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以这个命运共同体是希望祥子把自己担负的命运共享给crychic成员吗
+
+*****
+
+####  银酒监武  
+##### 6488#       发表于 2025-1-7 11:42
+
+真不建议比惨……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  狂热飞鸟  
+##### 6489#       发表于 2025-1-7 11:42
+
+祥子的性格应该是属于那太过负责，言行不自觉揽责的吧
+
+*****
+
+####  试制甲炮  
+##### 6490#       发表于 2025-1-7 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119895&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 11:31</a>
+
+她如果是有主观恶意的不去实现这个目标
+
+那喵梦确实应该警惕了
+
+如果是因为外界原因导致的没法实现</blockquote>
+祥子不搞Crychic确实是客观原因导致的，这不怪她，主要是善后搞得实在太烂了，黑刀之夜被立希冲了一下就不好好说话，后来升学了碰上小灯连花个十五分钟事后解释一下都不肯。祥子这个人说实在的还是很以自我为中心，很有点我对你好，与你无关。
+
+*****
+
+####  新HGCG  
+##### 6491#       发表于 2025-1-7 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119871&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-7 11:28</a>
+
+笑死，虽然喵梦不知道，但是上次祥子可说过“我们现在是命运共同体”这种话，结果怎么样了呢。 ...</blockquote>
+最低野郎 ​​​
+
+<img src="https://p.sda1.dev/21/5ea10d35710845cc20cba39ecec5d876/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6492#       发表于 2025-1-7 11:47
+
+大部分网友从来不关心祥老师的精神状态 只想着修正她和背锅
+
