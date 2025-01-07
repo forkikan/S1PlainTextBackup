@@ -8139,3 +8139,37 @@ mygo到第七集才有完整live啊<img src="https://static.saraba1st.com/image/
 
 你邦以前有這樣的雙人圖上過雜誌的嗎 太賣了吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  double8G  
+##### 6647#       发表于 2025-1-7 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124276&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-7 20:23</a>
+
+真的吗，我的观感是比起mygo来说终于有点现实人类味了
+
+这三话的压抑表现得非常到位，不过可能是因为我在 ...</blockquote>
+我第二集看到一半是这样和群友说的，气压越低，我嘴角越高<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就氛围营造来说确实是一等一的
+
+*****
+
+####  IWS2000  
+##### 6648#       发表于 2025-1-7 20:28
+
+二人的居所我理解成睦祥以后会同居，看了楼里才知道是指初祥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6649#       发表于 2025-1-7 20:31
+
+非常好姐妹贴贴
+
+*****
+
+####  uhiuk  
+##### 6650#       发表于 2025-1-7 20:31
+
+爽吃睦祥
+
