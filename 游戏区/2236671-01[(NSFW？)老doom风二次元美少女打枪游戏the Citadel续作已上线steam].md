@@ -683,3 +683,16 @@ BOSS战发现好几个可以偷鸡的，比如第一关，一开始死活打不�
 woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那种敌人就会变强，怪不得后面关卡这么难打
 楼上还有个改敌人增援强度的开关，增援是啥，意义不明
 
+
+*****
+
+####  shyso  
+##### 69#       发表于 2025-1-7 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67107505&amp;ptid=2236671" target="_blank">zzy516232108 发表于 2025-1-5 15:18</a>
+
+这代有吗？等个链接
+
+看到马拉松那么多text有点呕了</blockquote>
+2代汉化只有demo版的，说是正式版的在赶工了
+
