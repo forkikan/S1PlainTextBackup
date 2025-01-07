@@ -7289,3 +7289,13 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 张飞是吧
 
+
+*****
+
+####  看穿一切的鱼  
+##### 6567#       发表于 2025-1-7 14:43
+
+其实大祥老师不爆也行吧，反正到目前为止不都是受挫-＞哭哭发泄一下-＞生活还要继续。打不倒我的只会让我更强。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
