@@ -776,3 +776,36 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 话说谁知道弹匣怎么保存啊，空弹匣扔地上的按F可以捡起来，但是一不小心走过去就没了？ ...</blockquote>
 先按x退弹匣再按r上弹匣，退下来的会进你背包里并且有无形的大手帮你压子弹
 
+
+*****
+
+####  evilpanda  
+##### 78#       发表于 2025-1-7 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121800&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-7 15:10</a>
+
+先按x退弹匣再按r上弹匣，退下来的会进你背包里并且有无形的大手帮你压子弹 ...</blockquote>
+我知道空弹匣怎么装弹，就是没有第一时间捡起来的弹匣，踩过去就消失了
+
+*****
+
+####  爱护动物抓根宝  
+##### 79#       发表于 2025-1-7 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121994&amp;ptid=2236671" target="_blank">evilpanda 发表于 2025-1-7 15:35</a>
+我知道空弹匣怎么装弹，就是没有第一时间捡起来的弹匣，踩过去就消失了 ...</blockquote>
+这个是游戏故意的，升级里专门有一项就是减小空弹匣直接扔地上时损坏的概率
+
+
+*****
+
+####  ParadiseMartyr  
+##### 80#         楼主| 发表于 2025-1-7 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120937&amp;ptid=2236671" target="_blank">eno_emos 发表于 2025-1-7 13:22</a>
+慕名玩了1，开全easy，好难狂死
+
+这游戏非常不适合fps弱鸡和老年枪法玩家</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小怪的话，找掩体qe探头苟着打就行，根据就交战距离和敌人换不同的武器最好，比如近战上喷子，重甲直接上榴弹。
+boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包硬顶过去
+

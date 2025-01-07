@@ -7328,3 +7328,82 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  魔法使夜子  
+##### 6571#       发表于 2025-1-7 15:36
+
+草，楼友发的那个同人漫画也太变态了，小祥是这样的人设吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  意大利面  
+##### 6572#       发表于 2025-1-7 15:38
+
+你们没看那个一个多小时的开播前特辑么，好几个声优都说了这番是和之前邦邦企划完全不同的故事风格，还有很多爆点，所以银河战舰的矛盾必定是更黑暗的走向，至于最后包不包饺子另说
+
+只有大象老师的声优说请大家关注live，live的动画制作特别精彩……
+
+*****
+
+####  山ノ内花音  
+##### 6573#       发表于 2025-1-7 15:38
+
+小祥幻想中的自己 运筹帷幄 顶级坏女人 将一个又一个少女的人生操纵 吃干抹净
+
+*****
+
+####  IWS2000  
+##### 6574#       发表于 2025-1-7 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121129&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-7 13:49</a>
+？好搞笑，不用回老家了，你在这留下来挺好玩的
+
+“睦头人行为”也很好笑，睦做错了什么了吗要被直接这样拿 ...</blockquote>
+怎么会没想到呢？之前的扣鹅大战确实一堆老楼友在说开小号加鹅扣鹅。
+仅反驳你说的没想到还能开小号加鹅扣鹅这句话。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 6575#       发表于 2025-1-7 15:40
+
+<blockquote>akiomn 发表于 2025-1-7 14:20
+#2 Exitus acta probat.
+
+にゃむの策略によって、舞台上で仮面を外されたAve Mujicaメンバー。
+
+素顔を晒した ...</blockquote>
+这段预告必须用银河万丈的声音念起来才有味道
+
+*****
+
+####  Aendst  
+##### 6576#       发表于 2025-1-7 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122027&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-7 15:39</a>
+
+怎么会没想到呢？之前的扣鹅大战确实一堆老楼友在说开小号加鹅扣鹅。
+
+仅反驳你说的没想到还能开小号加鹅 ...</blockquote>
+我不记得了，可能因为我觉得这不是什么值得记住的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 6577#       发表于 2025-1-7 15:43
+
+开小号加鹅不应该首先联想到百综那帮人吗。
+
+*****
+
+####  六道明  
+##### 6578#       发表于 2025-1-7 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122014&amp;ptid=2208921" target="_blank">意大利面 发表于 2025-1-7 15:38</a>
+
+你们没看那个一个多小时的开播前特辑么，好几个声优都说了这番是和之前邦邦企划完全不同的故事风格，还有很 ...</blockquote>
+她真的很爱音乐~
+
