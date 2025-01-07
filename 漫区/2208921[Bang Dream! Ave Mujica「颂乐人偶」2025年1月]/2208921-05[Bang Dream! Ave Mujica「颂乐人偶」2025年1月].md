@@ -6889,3 +6889,51 @@ mygo修正了三个人
 强拆之后里面的人会找别的屋住是吧，太好了能住新房子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 正经的商业演出搞这出真别洗，她可以有自己别的理由，但因为所谓的个人对运营理解就自己强行破坏计划？她的主播生涯也只是平台期的普通网红而已吧。
 
+
+*****
+
+####  595505568  
+##### 6533#       发表于 2025-1-7 12:28
+
+<blockquote>哈曼的YY 发表于 2025-1-7 12:26
+主要看op和舅舅队友一个个都是要爆的 卖狗还少爆一个野猫 自己会回来
+
+真得先让祥老师调理好了去解决其他人 ...</blockquote>
+MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场版前篇），其实她已经自己补完了，所以没有TV里爆出来
+
+*****
+
+####  yozoraxsx  
+##### 6534#       发表于 2025-1-7 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120338&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 12:10</a>
+
+漏油：不能放着爹去世是一种基本伦理道德，和是不是继承人有因果逻辑关联吗
+
+层主：祥厨团建</blockquote>
+你是漏了点细节 他扣我鹅的话我原封不动扣鹅回去他就爆炸了 开小号把鹅加回去然后团建追着扣了16鹅
+
+*****
+
+####  yozoraxsx  
+##### 6535#       发表于 2025-1-7 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120476&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-7 12:27</a>
+
+强拆之后里面的人会找别的屋住是吧，太好了能住新房子了
+
+正经的商业演出搞这出真别洗，这不是整活而是严 ...</blockquote>
+老板画了半天饼 项目已经收工了 不开饷咋办
+
+*****
+
+####  山ノ内花音  
+##### 6536#       发表于 2025-1-7 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120507&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 12:30</a>
+你是漏了点细节 他扣我鹅的话我原封不动扣鹅回去他就爆炸了 开小号把鹅加回去然后团建追着扣了16鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又开始扣不扣鹅了
+那s1既然有这个功能 你还能让别人不用吗
+那怎么别人不被扣鹅呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+总刷一些违反常识的观点 被扣鹅难道不是正常
+
