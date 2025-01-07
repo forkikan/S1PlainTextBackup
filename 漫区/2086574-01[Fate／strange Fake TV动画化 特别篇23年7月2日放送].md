@@ -7583,3 +7583,17 @@ fsf能加的多了
 
 这个播完藤田带着眉毛兄弟回fgo继续整短片吧 大伙出来搞fsf这四五年 fgo除了无念哥的大活以外都没什么像样的pv 想你了牢眉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂懵懂人  
+##### 400#       发表于 2025-1-7 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118166&amp;ptid=2086574" target="_blank">Lawliet.L 发表于 2025-1-7 07:59</a>
+
+这是故意向美漫靠拢？</blockquote>
+应该有些关系吧
+
+主要还是做得太好了  这种头发乱飞的画面也这么整齐
+<img src="https://pic1.imgdb.cn/item/677ce6d2d0e0a243d4f12c24.gif" referrerpolicy="no-referrer">
+
