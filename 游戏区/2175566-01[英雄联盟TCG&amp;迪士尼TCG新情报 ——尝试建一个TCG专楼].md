@@ -128,3 +128,14 @@ ua确实是动画ip大乱斗吧，见过一些因为喜欢某个ip选择入坑�
 ua强度已经提过 ...</blockquote>
 禁卡表的话估计可以参考下dtcg吧。
 
+
+*****
+
+####  kytos  
+##### 201#       发表于 2025-1-7 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67110663&amp;ptid=2175566" target="_blank">蚊仔蚊仔蚊仔 发表于 2025-1-6 01:22</a>
+
+身边统计学简中PTCG最烂的环境是2023年深圳大师赛后的环境，一是4.5盒除了葱油饼对彩超算得上加强外，主 ...</blockquote>
+昨天就在酷乐潮玩看到有卖洛卡纳了
+

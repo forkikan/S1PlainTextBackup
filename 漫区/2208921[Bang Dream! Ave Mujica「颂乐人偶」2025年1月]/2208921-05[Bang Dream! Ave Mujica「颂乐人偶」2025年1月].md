@@ -7307,3 +7307,24 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 很在意被扣鹅的话可以试着召唤一下本楼的回血护盾啊，我记得有不少正义小卫士爱蹦出来帮助他人的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 6569#       发表于 2025-1-7 15:28
+
+为什么会有人看完mygo觉得里面有角色是反派，真想看看脑回路是怎么长的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  银酒监武  
+##### 6570#       发表于 2025-1-7 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121568&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-7 14:43</a>
+其实大祥老师不爆也行吧，反正到目前为止不都是受挫-＞哭哭发泄一下-＞生活还要继续。打不倒我的只会让我更 ...</blockquote>
+问题是越来越像刺猬乃至豪猪了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
