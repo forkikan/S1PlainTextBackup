@@ -6199,3 +6199,115 @@ https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubr
 <img src="https://p.sda1.dev/21/c1a1fbaaff1425a9d6305911235e4204/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/de249c3f2c4bd7d352bdd86f567f68aa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 6473#       发表于 2025-1-7 11:11
+
+不回去继承人不就是个空名头
+
+我感觉最后也不会回去 让老爹振作起来父女外面过了
+
+*****
+
+####  一心而用  
+##### 6474#       发表于 2025-1-7 11:11
+
+漫画『BanG Dream! Ave Mujica -manuscriptus-』单行本第一卷 封面 ​​​
+<img src="https://p.sda1.dev/21/f019c7de8d3d9cc74268b1d463ad41e4/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 6475#       发表于 2025-1-7 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118861&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-7 09:44</a>
+
+楼友对于祥子的实际团队掌控力怎么发散那么多
+
+剧集多次强调把余生交给我，姑且可以认为祥子会担负主要事务 ...</blockquote>
+喵梦有一个特殊之处，全队只有她是被祥子明说因为“脸和数字”拉进来的
+
+但是进来之后，祥子连饼都不给画，张口音乐闭口世界观，（在第一话的时候）又不是真的有那种把余生交给你祥子的信赖感
+
+然后就是我在前面分析过，从初Live到武道馆满打满算两个月
+
+可能恰恰是因为最速武道馆，反倒把喵梦吓着了，在别的地方有一个评论我觉得说得不错
+ <blockquote>因为上升太快了，反而让mujica有点像个随时会爆雷的理财产品……说不定给喵梦的就是这种印象</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/07/111305zlsxv7982vysisee.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (105.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 11:13 上传
+
+*****
+
+####  一心而用  
+##### 6476#       发表于 2025-1-7 11:14
+
+<img src="https://p.sda1.dev/21/eabcd570eebb4406fde1f29f1d27f32e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1c7b626d36ae16338f23786bd4616c6e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 6477#       发表于 2025-1-7 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118909&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-7 09:49</a>
+
+舞台上的一切行为都是得负责的，这是商业演出。因为不满一位队友所以在舞台上真实曝光另外几位队友，问过 ...</blockquote>
+先不谈有和初华的事务所沟通过的可能性，商量肯定是3:1，但是大喵老师一动手，外强中干的软糯小纸老虎暴露无遗，要是再商量大祥老师想弄出3:1票型要费很大功夫了。
+
+*****
+
+####  山ノ内花音  
+##### 6478#       发表于 2025-1-7 11:17
+
+にゃむの策略によって、舞台上で仮面を外されたAve Mujicaメンバー。
+
+素顔を晒した彼女たちは、世間の耳目を集める。
+
+寝首を掻かれた祥子、嘲笑うにゃむ、憔悴する睦。
+
+仮面を失った人形たちが迎える初のマスカレードは……
+
+脚本：和場 明子
+
+絵コンテ：梅津 朋美(エディッツ)
+
+演出：鈴木 大介
+
+CGディレクター：小川 浩太朗
+
+<img src="https://img.saraba1st.com/forum/202501/07/111751glmmjklk5mhlckjf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1211.jpeg</strong> (121.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-7 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/07/111751mt1bfpc1fufcemsj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1212.jpeg</strong> (88.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-7 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/07/111751lrhnfyk5kk6o3aa5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1213.jpeg</strong> (59.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-7 11:17 上传
+

@@ -516,3 +516,22 @@ holly shit
 一看就是假的，这么纤细的身材，支撑不住这么大的车灯，不过韩国人均人造人，看多了也没意思 ...</blockquote>
 应该是真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了视频很明显的一大一小
 
+
+*****
+
+####  凯尔薇斯  
+##### 48#       发表于 2025-1-7 11:11
+
+某麦香鸡已经是坦克贴爆反了吧，树大根深怎么也不算细枝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+很难说直接加东西和吃胖抽东西哪个更人工，还是找新生代吧，符离集巅峰一过基本就要转打拳，好在永远有新的符离集在巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jumbleh  
+##### 49#       发表于 2025-1-7 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67118306&amp;ptid=2236860" target="_blank">烛堡巡礼者 发表于 2025-1-7 08:35</a>
+
+X和ins上都没有搜到看似正确的Yeonwoo Lee账号，有指路老哥么</blockquote>
+reddit上挺多的
+
