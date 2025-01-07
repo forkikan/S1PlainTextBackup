@@ -8350,3 +8350,11 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 
 傻了以为今天更新，年夜饭下半场推了赶回来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 6670#       发表于 2025-1-7 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，这killkiss的op前摇足足四十多秒
+
