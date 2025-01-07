@@ -7702,3 +7702,26 @@ https://x.com/_a_jak_/status/1876552671311917121?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">外公家还赞助了演唱会呢
 
+
+*****
+
+####  哈曼的YY  
+##### 6608#       发表于 2025-1-7 18:02
+
+希望tgw物产和卖水一样是“其实不是那样”吧
+
+*****
+
+####  火受姛人  
+##### 6609#       发表于 2025-1-7 18:03
+
+[@Xiao_HuaJii](https://x.com/Xiao_HuaJii/status/1875452598037385472)
+
+<img src="https://img.saraba1st.com/forum/202501/07/180307p7ljemexmuxffkua.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250107_180259.jpg</strong> (122.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 18:03 上传
+
