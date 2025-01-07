@@ -723,3 +723,14 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 二代有种拿盾牌的敌人怎么打啊，跑得快一枪又打不死，只能扔雷解决吗</blockquote>
 躲掩体后面瞄手或者喷子直接打
 
+
+*****
+
+####  量子大蛇  
+##### 73#       发表于 2025-1-7 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121175&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-7 13:54</a>
+
+躲掩体后面瞄手或者喷子直接打</blockquote>
+感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人
+

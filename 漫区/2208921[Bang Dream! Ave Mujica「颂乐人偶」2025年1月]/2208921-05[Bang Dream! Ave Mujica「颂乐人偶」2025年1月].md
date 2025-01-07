@@ -7208,3 +7208,16 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 你是漏了点细节 他扣我鹅的话我原封不动扣鹅回去他就爆炸了 开小号把鹅加回去然后团建追着扣了16鹅 ...</blockquote>
 ？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好搞笑，不用回老家了，你在这留下来挺好玩的
 
+
+*****
+
+####  KLHgg  
+##### 6560#       发表于 2025-1-7 14:01
+
+<blockquote>HGCG+ 发表于 2025-1-7 12:40
+寝首を掻かれた
+
+这是美少女乐团冻鳗该有的措辞吗
+</blockquote>
+这句是什么意思
+
