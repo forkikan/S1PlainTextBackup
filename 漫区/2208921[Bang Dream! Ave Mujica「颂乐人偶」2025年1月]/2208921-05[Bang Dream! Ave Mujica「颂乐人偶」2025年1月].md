@@ -8323,3 +8323,15 @@ mygo到第七集才有完整live啊<img src="https://static.saraba1st.com/image/
 
 卖太大了😯
 
+
+*****
+
+####  迷路的石头  
+##### 6667#       发表于 2025-1-7 22:05
+
+【如果Mujica的语言也是金属乐#1-哔哩哔哩】 https://b23.tv/U10D4q5
+
+soyo的master把我笑到了，不过感觉还是mygo的更贴切
+
+【【MyGO】如果我们的语言是金属乐-哔哩哔哩】 https://b23.tv/b59mRL1
+
