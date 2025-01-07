@@ -8358,3 +8358,32 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，这killkiss的op前摇足足四十多秒
 
+
+*****
+
+####  一心而用  
+##### 6671#       发表于 2025-1-7 23:39
+
+这么看睦头人是真的有点惨，明明官方是睦祥配，结果二创里到处都是初华独占祥子。
+刚刚看到
+<img src="https://p.sda1.dev/21/676b4f8a1572b5519b3731ae6784c513/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a8c36614e34baf6ba5939554b5fa312a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/138d3af485654eb2dd1c0aaf2e835f44/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/20ed55c87b442ab91addb6a5359eb5b9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 6672#       发表于 2025-1-7 23:41
+
+等第三集出来就好了，还有第四集（<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6673#       发表于 2025-1-7 23:43
+
+官方明显是都卖吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么时候卖卖初睦看看实力
+明明卖狗13集里初华还会给睦递矿泉水<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
