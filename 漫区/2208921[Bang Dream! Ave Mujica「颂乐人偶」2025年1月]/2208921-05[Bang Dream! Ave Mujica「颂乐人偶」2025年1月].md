@@ -7895,3 +7895,13 @@ md爹就是姐夫真把我逗笑了，那我懂了真要这么写确实史上最
 我是说老登把祥子当养女的情况下</blockquote>
 老登这个收养应该只是法律层面上的收养，亲戚之间大概率还是该怎么叫怎么叫。
 
+
+*****
+
+####  ffam  
+##### 6626#       发表于 2025-1-7 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123747&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-7 19:06</a>
+老登这个收养应该只是法律层面上的收养，亲戚之间大概率还是该怎么叫怎么叫。 ...</blockquote>
+我知道，我只是在想这些事情成立的话，从辈分上来看睦祥就从姐妹文学变成阿姨文学了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

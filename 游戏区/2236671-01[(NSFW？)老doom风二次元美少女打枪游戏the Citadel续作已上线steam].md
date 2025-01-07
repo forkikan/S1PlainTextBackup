@@ -855,3 +855,14 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 其实手快的话这游戏半自动比全自动好用……
 
+
+*****
+
+####  DawnGuardian  
+##### 85#       发表于 2025-1-7 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122022&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-7 15:39</a>
+
+这个是游戏故意的，升级里专门有一项就是减小空弹匣直接扔地上时损坏的概率 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">它这个人参果弹匣真的难绷，子弹没打光的时候我还记按x，子弹打光后老是下意识按r然后看见弹匣-1
+
