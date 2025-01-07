@@ -6937,3 +6937,118 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 那怎么别人不被扣鹅呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 总刷一些违反常识的观点 被扣鹅难道不是正常
 
+
+*****
+
+####  御景  
+##### 6537#       发表于 2025-1-7 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120507&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 12:30</a>
+
+你是漏了点细节 他扣我鹅的话我原封不动扣鹅回去他就爆炸了 开小号把鹅加回去然后团建追着扣了16鹅 ...</blockquote>
+我扣你鹅，是因为你脑补太多，尤其是用脑补的事情当论据。
+
+还有断章取义，祥子有想过和喵梦解释，是喵梦直接打断了。
+
+画的饼也实现了，初华、睦，最速出道。
+
+祥子要优化喵梦这点，更是癔症犯了
+
+*****
+
+####  桜庭千景  
+##### 6538#       发表于 2025-1-7 12:38
+
+看了一下历史记录，在nga原来发过同款逆天言论啊，这就不奇怪了.jpg
+
+*****
+
+####  银酒监武  
+##### 6539#       发表于 2025-1-7 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120467&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 12:26</a>
+主要看op和舅舅队友一个个都是要爆的 卖狗还少爆一个野猫 自己会回来
+
+真得先让祥老师调理好了去解决其他人 ...</blockquote>
+人人都被拯救的话，显得四个队友过于挂件了，我想应该不会这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  御幸一也  
+##### 6540#       发表于 2025-1-7 12:39
+
+啊？御景樓友成別人小號了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 6541#       发表于 2025-1-7 12:39
+
+<img src="https://p.sda1.dev/21/3adb72926ddf767d75ee453ec7c0ea45/GgnoAWUaEAA4YKz.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3af254bdef1e990dadd237ac42c10e34/GgnoAWUbsAEsA4N.jpg" referrerpolicy="no-referrer">
+[https://x.com/Slug10000/status/1876285952471273541/photo/2](https://x.com/Slug10000/status/1876285952471273541/photo/2)
+
+*****
+
+####  HGCG+  
+##### 6542#       发表于 2025-1-7 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119761&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 11:17</a>
+にゃむの策略によって、舞台上で仮面を外されたAve Mujicaメンバー。
+
+素顔を晒した彼女たちは、世間の耳目 ...</blockquote>
+寝首を掻かれた
+这是美少女乐团冻鳗该有的措辞吗
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  玖羽  
+##### 6543#       发表于 2025-1-7 12:41
+
+ 本帖最后由 玖羽 于 2025-1-7 12:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120467&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-7 12:26</a>
+
+主要看op和舅舅队友一个个都是要爆的 卖狗还少爆一个野猫 自己会回来
+
+真得先让祥老师调理好了去解决其他人问题吧 睦这个问题就当自我调理和解决一起进行了 半身嘛</blockquote>
+其实乐奈“无趣的女孩子”也算是爆了，只不过造成的影响不大
+
+对于祥子，现在可供分析的情报太少了，或者说正好卡在一个很难分析的点上
+
+例如，丰川家的黑暗面到底黑暗到什么程度，光这一点就是很大的变量
+
+我还是猜高潮会和MyGO一拖四相反，Ave Mujica四拖一，只是不知道会怎么实现
+
+*****
+
+####  66367749  
+##### 6544#       发表于 2025-1-7 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120526&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 12:33</a>
+老板画了半天饼 项目已经收工了 不开饷咋办</blockquote>
+是没上武道馆还是没出名还是拖欠工资？急着流量变现摘自己面具就可以吧？她要追求自己流量，那和团队其他人关系是？摘别人面具是？
+
+*****
+
+####  桜庭千景  
+##### 6545#       发表于 2025-1-7 12:43
+
+祥子这个角色真要卖惨，那早在c团解散的时候安排一个精神崩溃后生活不能自理就行了
+
+可惜的是制作组给她的人设是坚强的小哭包，虽然爱哭但是摔倒后总是马上擦干眼泪果断又决绝的站起来
+
+搞得她明明承受的打击最多给人的观感却是“不够惨”没苦硬吃”“软糯”，毕竟你血条这么厚，吃这么多伤害是应该的
+
+
+*****
+
+####  山ノ内花音  
+##### 6546#       发表于 2025-1-7 12:44
+
+从写作角度来看 也得让她一步一步落入深渊啊 
+这才第一集 当然要让她还有挣扎的余力
+
