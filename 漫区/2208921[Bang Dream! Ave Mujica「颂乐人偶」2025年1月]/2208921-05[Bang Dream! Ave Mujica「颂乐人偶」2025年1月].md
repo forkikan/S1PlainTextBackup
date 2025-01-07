@@ -7694,3 +7694,11 @@ https://x.com/_a_jak_/status/1876552671311917121?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  厉飞雨  
+##### 6607#       发表于 2025-1-7 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">外公家还赞助了演唱会呢
+
