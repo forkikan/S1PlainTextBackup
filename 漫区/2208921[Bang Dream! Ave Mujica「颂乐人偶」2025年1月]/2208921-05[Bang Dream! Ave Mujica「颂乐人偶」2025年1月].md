@@ -6024,3 +6024,39 @@ https://x.com/_a_jak_/status/1876265692124885348?s=46&amp;t=IZGx0N13SOtHALpwG0Ub
 怀疑mujica这片受了青兰圆舞曲不少的影响</blockquote>
 为什么这么说
 
+
+*****
+
+####  哈曼的YY  
+##### 6458#       发表于 2025-1-7 08:45
+
+祥老师这个要到最高的舞台真的算闪烁其词吗 
+
+明显是大喵怕过气才急了吧
+
+*****
+
+####  yozoraxsx  
+##### 6459#       发表于 2025-1-7 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117890&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-7 01:56</a>
+喵梦本身这个思路不能说问题很大，但她的行为客观上来说成为了炸掉睦和整个母鸡卡的导火索，喵梦也没法独 ...</blockquote>
+鸡团不似能长久的样子，团内潜在的爆炸势能那么大，除非大祥老师突然想开了，炸团是早几个月晚几个月的问题。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  yozoraxsx  
+##### 6460#       发表于 2025-1-7 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117938&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-7 02:40</a>
+
+喵梦就……复盘下二三集，说是用网红思维都算高看喵梦了
+
+祥子给喵梦的承诺做到了吗？起码做到了一半，就问 ...</blockquote>
+没有初睦大喵老师进都不进。
+
+另外很可能是大喵老师的合同和初华的事务所签的，五个人地位是平等的，大祥老师只是一个小组长，没有人事权。大祥老师这种狐假虎威空手套白狼的组团方式掌控力低不奇怪。
+
