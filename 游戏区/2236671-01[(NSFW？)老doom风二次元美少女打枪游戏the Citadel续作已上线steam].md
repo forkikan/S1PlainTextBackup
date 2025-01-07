@@ -928,3 +928,15 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实还好了，血包很充足，打小人随便打，半途还会给一台新机子。
 这个坦克操作确实屎。
 
+
+*****
+
+####  amazarashi  
+##### 92#       发表于 2025-1-8 01:27
+
+还挺好玩的，把纸片人撕碎，再战怪物BOSS
+
+  
+
+黑屏问题有点儿严重，还以为屏幕断电了，时不时黑一下
+
