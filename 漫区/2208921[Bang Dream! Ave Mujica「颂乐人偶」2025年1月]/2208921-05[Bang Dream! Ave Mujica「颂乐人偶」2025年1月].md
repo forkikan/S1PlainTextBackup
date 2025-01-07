@@ -7189,3 +7189,22 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 <img src="https://p.sda1.dev/21/0eafee7fff80c449a6c473d778554698/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/6fb325eaa533920927ed5b006cfae2a7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 6558#       发表于 2025-1-7 13:44
+
+【【猫岛】 運命ドールを積み上げて-哔哩哔哩】 [https://b23.tv/GfJ9Hhv](https://b23.tv/GfJ9Hhv)
+初睦祥这本汉化出了
+
+*****
+
+####  Aendst  
+##### 6559#       发表于 2025-1-7 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120507&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-1-7 12:30</a>
+
+你是漏了点细节 他扣我鹅的话我原封不动扣鹅回去他就爆炸了 开小号把鹅加回去然后团建追着扣了16鹅 ...</blockquote>
+？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好搞笑，不用回老家了，你在这留下来挺好玩的
+

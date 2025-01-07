@@ -706,3 +706,20 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏非常不适合fps弱鸡和老年枪法玩家
 
+
+*****
+
+####  量子大蛇  
+##### 71#       发表于 2025-1-7 13:50
+
+二代有种拿盾牌的敌人怎么打啊，跑得快一枪又打不死，只能扔雷解决吗
+
+*****
+
+####  爱护动物抓根宝  
+##### 72#       发表于 2025-1-7 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121138&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-7 13:50</a>
+二代有种拿盾牌的敌人怎么打啊，跑得快一枪又打不死，只能扔雷解决吗</blockquote>
+躲掩体后面瞄手或者喷子直接打
+
