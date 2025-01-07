@@ -8469,3 +8469,12 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 
 前两天那个同人现在可以当表情包用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/e5d0d36d266896023463c6111f4291ad/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 6684#       发表于 2025-1-8 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实官方都卖的，不管是睦祥还是初祥，之前信泽和永山俩张贺图不是说明了官方的态度了吗
+wsd：幼驯染属性我干嘛要放着不卖呢？
+
