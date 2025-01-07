@@ -734,3 +734,14 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 躲掩体后面瞄手或者喷子直接打</blockquote>
 感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人
 
+
+*****
+
+####  zzy516232108  
+##### 74#       发表于 2025-1-7 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121186&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-7 13:56</a>
+
+感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人</blockquote>
+致敬光环豺狼人盾兵罢了，那个东西也是圆盾漏个手
+

@@ -7252,3 +7252,32 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 引申义就是"偷袭""背后捅刀子"
 
+
+*****
+
+####  sauron.j  
+##### 6564#       发表于 2025-1-7 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120317&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-7 12:09</a>
+
+在大多数网友的视角下
+
+导致主角团成员下跪的角色
+
+肯定是反派啊</blockquote>
+第8话那个节点的大众感想难道不是 反派终于下跪了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 6565#       发表于 2025-1-7 14:20
+
+#2 Exitus acta probat.
+にゃむの策略によって、舞台上で仮面を外されたAve Mujicaメンバー。
+素顔を晒した彼女たちは、世間の耳目を集める。
+寝首を掻かれた祥子、嘲笑うにゃむ、憔悴する睦。
+仮面を失った人形たちが迎える初のマスカレードは……
+
+官方都直接用寝首を掻这个词了，后面两集喵梦还在作
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得官方很清楚喵梦在干什么，后面不让喵梦吃个大憋真的说不过去
+
