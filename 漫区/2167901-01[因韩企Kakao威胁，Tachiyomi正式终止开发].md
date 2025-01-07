@@ -3274,3 +3274,13 @@ Mihon-更多-设置-浏览-插件仓库-添加 逐个粘贴上面的链接后确
 
 论坛附件最近都不太行，可以试试这个图床：[https://imgbb.com/](https://imgbb.com/)
 
+
+*****
+
+####  欧尼胖次  
+##### 311#       发表于 2025-1-7 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117240&amp;ptid=2167901" target="_blank">pgain2004 发表于 2025-1-6 22:50</a>
+Mihon-更多-设置-浏览-插件仓库-添加 逐个粘贴上面的链接后确认（记得是完整的，不要粘贴过长而被省略的文 ...</blockquote>
+文本太长被省略，谢谢解决了
+
