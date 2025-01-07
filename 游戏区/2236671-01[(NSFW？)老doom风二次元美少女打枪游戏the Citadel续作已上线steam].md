@@ -896,3 +896,16 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 有点精神污染，但是打得又很爽。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 89#       发表于 2025-1-7 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124437&amp;ptid=2236671" target="_blank">哈迪斯兜帽 发表于 2025-1-7 20:43</a>
+
+感觉这游戏有种很恶心的爽感
+
+有点精神污染，但是打得又很爽。</blockquote>
+画面不提，这游戏所有音频都没有触发间隔的，非常容易人力鬼畜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
