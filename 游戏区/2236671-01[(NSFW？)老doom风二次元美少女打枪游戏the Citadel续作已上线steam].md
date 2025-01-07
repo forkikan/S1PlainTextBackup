@@ -940,3 +940,17 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 黑屏问题有点儿严重，还以为屏幕断电了，时不时黑一下
 
+
+*****
+
+####  ParadiseMartyr  
+##### 93#         楼主| 发表于 2025-1-8 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125925&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-8 01:27</a>
+还挺好玩的，把纸片人撕碎，再战怪物BOSS
+
+  
+
+黑屏问题有点儿严重，还以为屏幕断电了，时不时黑一下 ...</blockquote>
+你这bug真奇怪，我没遇到过
+
