@@ -14321,3 +14321,14 @@ bd1卖的还行，希望后面加油
 
 你们三把日子过好比什么都重要！就爱这口姐姐带妹妹们
 
+
+*****
+
+####  csolfans  
+##### 1398#       发表于 2025-1-7 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67123940&amp;ptid=2201887" target="_blank">Laofeipi 发表于 2025-1-7 19:40</a>
+
+打算抽六巡爱知场…但是想求问一下关于eplus账号的问题，我用同一个在日友人的电话号码可以验证两到三个账 ...</blockquote>
+一个电话号码注册一个账号
+

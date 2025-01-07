@@ -909,3 +909,11 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 有点精神污染，但是打得又很爽。</blockquote>
 画面不提，这游戏所有音频都没有触发间隔的，非常容易人力鬼畜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DawnGuardian  
+##### 90#       发表于 2025-1-7 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这第二关的唐突坦克大战真的劝退啊，作者不会觉得这逼坦克第一人称很好开吧
+
