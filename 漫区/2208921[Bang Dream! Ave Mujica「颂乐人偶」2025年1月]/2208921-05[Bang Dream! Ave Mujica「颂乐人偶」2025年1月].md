@@ -7574,3 +7574,54 @@ mggm：独角兽的货，太纯了！<img src="https://static.saraba1st.com/imag
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 6596#       发表于 2025-1-7 16:58
+
+<img src="https://img.saraba1st.com/forum/202501/07/165816jxvznll99zxlz9ni.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1216.jpeg</strong> (370.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-7 16:58 上传
+
+https://x.com/_a_jak_/status/1876552671311917121?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  NODY  
+##### 6597#       发表于 2025-1-7 16:59
+
+男人邦那边确实有个亲爹比祥爹还渣，导致儿子商业出道玩摇滚还变暴君压力怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 6598#       发表于 2025-1-7 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122530&amp;ptid=2208921" target="_blank">不应 发表于 2025-1-7 16:37</a>
+
+说起来小祥和爹闹翻了那为什么不回家，她和外公又没闹翻，感觉随时都能回家当大小姐 ...</blockquote>
+因为人物性格就是这样，祥子就是很骄傲的人
+
+所以她只会告诉soyo她们因为自己的原因要退出c团，不会说自己家出了什么事（因为我爸被家里赶出来了现在还酗酒进橘子我得照顾他这种理由真的说得出口吗）
+
+喵梦约在高档酒店见面还点套餐也会硬着头皮去
+
+父亲让她消失的时候也直接拿好东西就走不会去多和父亲谈谈（即使失去自己目前唯一的住所）
+
+所以拒绝了祖父的收养跑去跟着父亲，再因为父亲受刺激要求自己消失而跑回祖父家这种剧情会破坏人物性格的塑造
+
+（至于为什么出现回到大房子的镜头等后续剧情解释再说）
+
+*****
+
+####  一心而用  
+##### 6599#       发表于 2025-1-7 17:00
+
+<img src="https://p.sda1.dev/21/dd0f36e1f20be4d44a374d25325cb520/image.jpg" referrerpolicy="no-referrer">
+
