@@ -8387,3 +8387,40 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 什么时候卖卖初睦看看实力
 明明卖狗13集里初华还会给睦递矿泉水<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone0000  
+##### 6674#       发表于 2025-1-7 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125507&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-7 23:39</a>
+
+这么看睦头人是真的有点惨，明明官方是睦祥配，结果二创里到处都是初华独占祥子。
+
+刚刚看到</blockquote>
+等第四集黑睦发力了，一切都会好的
+
+
+*****
+
+####  Mikumiku831  
+##### 6675#       发表于 2025-1-7 23:51
+
+卖这么大<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 6676#       发表于 2025-1-7 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像mygo先卖爱灯再卖爱素，ave mujica有万能搭子也不会只卖一趟的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  pokemon最爱  
+##### 6677#       发表于 2025-1-7 23:56
+
+鸡狗两团不都是银帕团吗，哪儿来的官推CP<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
