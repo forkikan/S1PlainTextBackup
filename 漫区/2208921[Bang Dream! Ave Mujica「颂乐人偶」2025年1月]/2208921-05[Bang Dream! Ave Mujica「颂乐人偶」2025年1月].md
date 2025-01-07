@@ -7130,3 +7130,52 @@ MyGO的猫是最早爆掉的，也是最早搞清楚自己要什么的（剧场�
 
 祥子在MyGO动画不就是个戏份多的路人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂热飞鸟  
+##### 6553#       发表于 2025-1-7 13:07
+
+祥子准确来说应该叫暗线主角，有自己的一条母鸡卡成立线。话说老看到有人说母鸡卡第一季武道场是半开，有证据吗，我看正片没看出来，还是单纯三次元wsd的半开行为玩梗
+
+*****
+
+####  yozoraxsx  
+##### 6554#       发表于 2025-1-7 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120560&amp;ptid=2208921" target="_blank">御景 发表于 2025-1-7 12:37</a>
+
+我扣你鹅，是因为你脑补太多，尤其是用脑补的事情当论据。
+
+还有断章取义，祥子有想过和喵梦解释，是喵梦直 ...</blockquote>
+有不同意见直接说出来不就好了，追着扣鹅一言不发难道不是一种睦头人行为？
+
+对于跟大喵老师画的饼并没有实现，因为出道=摘面具。
+
+对于解释，大祥老师自己有考虑过什么时候摘面具吗？那么她又如何给一个在反复追问确切摘面具时间点的大喵老师答复？
+
+至于被优化可能，到睦的一句不能长久才算完全断掉。
+
+另外关于脑补，有确切的祥父是被祥外祖父赶出家门的证据吗？
+
+*****
+
+####  KLHgg  
+##### 6555#       发表于 2025-1-7 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119385&amp;ptid=2208921" target="_blank">公若不弃 发表于 2025-1-7 10:39</a>
+
+只以工作看待的话这不就跟领导喊的口号一样从大脑皮层划过自动过滤的吗？大喵老师和大祥老师也没熟到这份 ...</blockquote>
+大喵老师看待工作太独到了，她的大脑可是把其他同事的意见全过滤了，直接给领导在舞台上整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 6556#       发表于 2025-1-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120808&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-7 13:07</a>
+祥子准确来说应该叫暗线主角，有自己的一条母鸡卡成立线。话说老看到有人说母鸡卡第一季武道场是半开，有证 ...</blockquote>
+全开舞台剧没法表演吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
