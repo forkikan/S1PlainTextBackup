@@ -1577,3 +1577,13 @@ macross delta马三角的要姐（AXIA）。
 
 直接翻唱阿姨洗铁路当op有点呃呃了 菅野洋子人呢
 
+
+*****
+
+####  ArthurDent  
+##### 168#       发表于 2025-1-7 19:26
+
+老板一集没看过但洗铁路听过好多遍，这翻的有点难听<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

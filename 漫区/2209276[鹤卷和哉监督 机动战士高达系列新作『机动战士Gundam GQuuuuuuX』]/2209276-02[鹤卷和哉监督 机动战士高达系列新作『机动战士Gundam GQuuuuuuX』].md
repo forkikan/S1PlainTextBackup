@@ -8377,3 +8377,11 @@ gqx装备太素了点，前期应该不行</blockquote>
 
 认不认没事，胶买就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 2118#       发表于 2025-1-7 19:30
+
+还有十天就播了嘛 时间过得还蛮快的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
