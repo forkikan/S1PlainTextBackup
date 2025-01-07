@@ -696,3 +696,13 @@ woc，基地外面的酒馆里还能改敌人等级，你打的敌人越多那�
 看到马拉松那么多text有点呕了</blockquote>
 2代汉化只有demo版的，说是正式版的在赶工了
 
+
+*****
+
+####  eno_emos  
+##### 70#       发表于 2025-1-7 13:22
+
+慕名玩了1，开全easy，好难狂死
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏非常不适合fps弱鸡和老年枪法玩家
+

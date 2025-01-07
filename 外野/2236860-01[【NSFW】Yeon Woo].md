@@ -545,3 +545,16 @@ reddit上挺多的
 
 ins：yeonwootherealone
 
+
+*****
+
+####  yly88528  
+##### 51#       发表于 2025-1-7 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67120780&amp;ptid=2236860" target="_blank">烛堡巡礼者 发表于 2025-1-7 13:03</a>
+
+正主找到了
+
+ins：yeonwootherealone</blockquote>
+意思是个霓虹人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
