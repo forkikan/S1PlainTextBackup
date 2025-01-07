@@ -9902,3 +9902,16 @@ fgo有生之年有机会实装嘟嘟吗
 
 还是没抽到嫁王<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 16020#       发表于 2025-1-7 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67115946&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2025-1-6 19:06</a>
+
+想组个拆尼子常规7骑结果没找到弓
+
+fgo有生之年有机会实装嘟嘟吗</blockquote>
+直接出后羿
+
