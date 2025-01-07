@@ -8076,3 +8076,66 @@ mygo到第七集才有完整live啊<img src="https://static.saraba1st.com/image/
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124171&amp;ptid=2208921" target="_blank">10th_Mystery 发表于 2025-1-7 20:12</a></blockquote>
 这是我能看的吗
 
+
+*****
+
+####  skylah  
+##### 6641#       发表于 2025-1-7 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124171&amp;ptid=2208921" target="_blank">10th_Mystery 发表于 2025-1-7 20:12</a></blockquote>
+神秘的木箱力量<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  double8G  
+##### 6642#       发表于 2025-1-7 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124140&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-7 20:08</a>
+
+很有意思的角度，虽然有点话太糙
+
+睦这种情况放在现实里确实是建议去咨询一下医生的，这个内耗状态不能定论 ...</blockquote>
+我懂你的意思，但是一路走来大家都看得出来这角色的所作所为所造成的破坏力有多大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有东西没揭露是肯定的，祥子也说在抱怨以前的那个乐观开朗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">的睦哪儿去了，不过祥子自己的责任肯定跑不掉，一边对现在的睦不满，但是哭来西裤那时候也没见你对睦头人有啥意见啊（pua另说）
+
+三集现在这样看完，颇有种“把大家叫出来，就为了这点事啊”的感慨（主要是和卖狗比）<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6643#       发表于 2025-1-7 20:22
+
+不过这个二人の居場所指的应该是初华家吧
+
+*****
+
+####  Aendst  
+##### 6644#       发表于 2025-1-7 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67124244&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-7 20:21</a>
+
+我懂你的意思，但是一路走来大家都看得出来这角色的所作所为所造成的破坏力有多大
+
+还有东西没揭露是肯定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的吗，我的观感是比起mygo来说终于有点现实人类味了
+
+这三话的压抑表现得非常到位，不过可能是因为我在电影院看的有音效和大屏影响观感
+
+*****
+
+####  PDQ4  
+##### 6645#       发表于 2025-1-7 20:24
+
+这么卖？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 6646#       发表于 2025-1-7 20:25
+
+你邦以前有這樣的雙人圖上過雜誌的嗎 太賣了吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
