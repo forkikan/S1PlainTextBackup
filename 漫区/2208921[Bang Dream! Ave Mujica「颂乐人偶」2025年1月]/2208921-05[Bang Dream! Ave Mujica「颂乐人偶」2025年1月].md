@@ -8478,3 +8478,11 @@ soyo的master把我笑到了，不过感觉还是mygo的更贴切
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实官方都卖的，不管是睦祥还是初祥，之前信泽和永山俩张贺图不是说明了官方的态度了吗
 wsd：幼驯染属性我干嘛要放着不卖呢？
 
+
+*****
+
+####  thisisaspider  
+##### 6685#       发表于 2025-1-8 00:27
+
+有人存了那张图吗，睦被曝光晚上必须抱着玩偶睡觉，初华被曝光真心喜欢上了青梅竹马，然后祥子木头反应的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
