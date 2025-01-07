@@ -506,3 +506,13 @@ holly shit
 
 这人针不戳，因为脸很像一个同事。。
 
+
+*****
+
+####  32767  
+##### 47#       发表于 2025-1-7 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67117674&amp;ptid=2236860" target="_blank">yly88528 发表于 2025-1-7 00:31</a>
+一看就是假的，这么纤细的身材，支撑不住这么大的车灯，不过韩国人均人造人，看多了也没意思 ...</blockquote>
+应该是真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了视频很明显的一大一小
+

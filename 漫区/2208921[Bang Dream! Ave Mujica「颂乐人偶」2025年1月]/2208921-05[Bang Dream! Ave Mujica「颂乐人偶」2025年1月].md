@@ -6119,3 +6119,15 @@ https://x.com/vul3fu/status/1876260596175564931?s=46&amp;t=IZGx0N13SOtHALpwG0Ubr
 另外很可能是大喵老师的合同和初华的事务所签的，五个人地位是平等的，大祥 ...</blockquote>
 舞台上的一切行为都是得负责的，这是商业演出。因为不满一位队友所以在舞台上真实曝光另外几位队友，问过她们意见没有？搁现实怕不是队友要里垢拐弯骂人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 6466#       发表于 2025-1-7 10:33
+
+ 本帖最后由 Aendst 于 2025-1-7 10:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…………官网介绍不都写了発起人・祥子の采配により、Ave Mujicaの人気や評判は上々。了吗，都采配了
+
+哪来的地位平等狐假虎威，哦可能是不看官方介绍导致的，那没事了，角色剧情理解这么诡异不奇怪
+
