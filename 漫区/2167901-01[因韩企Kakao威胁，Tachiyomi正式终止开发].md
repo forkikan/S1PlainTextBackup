@@ -3344,3 +3344,14 @@ Mihon-更多-设置-浏览-插件仓库-添加 逐个粘贴上面的链接后确
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pgain2004  
+##### 317#         楼主| 发表于 2025-1-8 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67130892&amp;ptid=2167901" target="_blank">dhl97 发表于 2025-1-8 17:23</a>
+
+今天折腾的时候发现软件(mihon)下载插件是走的系统的下载应用。我手机是红米，系统自带的下载有个迅雷加 ...</blockquote>
+我之前J2K也是红米手机系统MIUI 14出的问题，后面更新到HyperOS就没事了，当然再后来换成了Mihon。
+
