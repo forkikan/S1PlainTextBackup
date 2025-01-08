@@ -979,3 +979,11 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 用它打了下小怪发现那个惨叫真的很精神污染<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 96#       发表于 2025-1-8 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">都买了才发现原来不支持手柄啊 键盘鼠标玩太累了
+
