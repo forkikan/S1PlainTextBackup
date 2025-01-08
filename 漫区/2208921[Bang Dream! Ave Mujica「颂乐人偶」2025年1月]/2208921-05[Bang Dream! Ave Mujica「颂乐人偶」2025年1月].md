@@ -9659,3 +9659,12 @@ lisa、hmr、layer：为了和幼驯染组乐队专门学的贝斯
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种东西肯定是经过官方审过的，甚至制作组也得知道吧，不然任由声优乱说还会有剧透风险
 嘛反正接着看就行，现在真是官方追着喂饭到嘴里了
 
+
+*****
+
+####  PDQ4  
+##### 6781#       发表于 2025-1-9 01:55
+
+已经被中之人带你嗑睦祥吓昏了
+头一次被这么追着喂，生怕嗑不到是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

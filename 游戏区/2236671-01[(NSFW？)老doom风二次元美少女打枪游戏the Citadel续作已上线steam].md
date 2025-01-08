@@ -1106,3 +1106,16 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 武器的数量和花样都挺多，同类武器同键切换、 ...</blockquote>
 一代没有收藏品和多结局，二代有，也就几个插图。前期的都没啥，第三章开始都是福利图。不过作者画工残念…所以其实也就图一乐
 
+
+*****
+
+####  Launce  
+##### 107#       发表于 2025-1-9 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133432&amp;ptid=2236671" target="_blank">ParadiseMartyr 发表于 2025-1-9 01:14</a>
+
+他说的好像是一代吧？一代没有收藏品也没有多结局。
+
+二代好像是没法卖子弹的… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">一代难度高吗，二代摸完想玩下前作了
+
