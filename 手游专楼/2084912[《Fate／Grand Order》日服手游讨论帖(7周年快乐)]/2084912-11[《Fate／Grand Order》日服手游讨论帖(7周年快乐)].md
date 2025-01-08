@@ -9980,3 +9980,13 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 终于给小麻雀补了一宝，妈蛋出剑刷的时候抽卡在那里读取半天，出五星的时候没跑狗
 
+
+*****
+
+####  jackyhuang  
+##### 16028#       发表于 2025-1-8 13:35
+
+原来这次福袋本来不是保底有一个四星的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

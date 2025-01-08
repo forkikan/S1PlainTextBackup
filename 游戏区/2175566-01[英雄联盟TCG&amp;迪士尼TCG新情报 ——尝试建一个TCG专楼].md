@@ -173,3 +173,12 @@ ua强度已经提过 ...</blockquote>
 高达TCG先发售部分卡池，7月再发售补充包是我见过的最脑瘫的运营策略。尤其万代并不是什么TCG新手，看上去 ...</blockquote>
 万代系真的所有规则都是一个模子刻出来的，但从游戏性角度真的没法吸引到人。
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 206#       发表于 2025-1-8 13:36
+
+洛卡纳只是不好看吗，我甚至都觉得丑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+再加上简中这垃圾工艺，又丑又烂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
