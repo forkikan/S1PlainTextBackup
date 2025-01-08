@@ -7880,7 +7880,7 @@
     "newtitle": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
     "lastedit": 1736107332,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2136302": {
@@ -16506,10 +16506,10 @@
     "update": false
   },
   "2236857": {
-    "totalreply": 115,
+    "totalreply": 116,
     "title": "[乾隆作为一个王朝中期的皇帝，为何会莫名其妙拥有“知兵”这项技能？]",
     "newtitle": "[乾隆作为一个王朝中期的皇帝，为何会莫名其妙拥有“知兵”这项技能？]",
-    "lastedit": 1736300182,
+    "lastedit": 1736366412,
     "category": "外野",
     "active": true,
     "update": false
@@ -17235,19 +17235,19 @@
     "update": false
   },
   "2237098": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[联合早报：中国团队首次通过天宫空间站制造出工业级铌合金]",
     "newtitle": "[联合早报：中国团队首次通过天宫空间站制造出工业级铌合金]",
-    "lastedit": 1736363767,
+    "lastedit": 1736366410,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2237094": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[强风暴引发山火迫使3万人撤离，洛杉矶宣布紧急状态]",
     "newtitle": "[强风暴引发山火迫使3万人撤离，洛杉矶宣布紧急状态]",
-    "lastedit": 1736365568,
+    "lastedit": 1736366767,
     "category": "外野",
     "active": true,
     "update": false
@@ -17339,6 +17339,15 @@
     "newtitle": "[拔作岛／ぬきたし 动画化！]",
     "lastedit": 1736361851,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2237116": {
+    "totalreply": 41,
+    "title": "[r／AskCanada：如果美国入侵加拿大，你会为加拿大而战吗？]",
+    "newtitle": "[r／AskCanada：如果美国入侵加拿大，你会为加拿大而战吗？]",
+    "lastedit": 1736366413,
+    "category": "外野",
     "active": true,
     "update": false
   }
