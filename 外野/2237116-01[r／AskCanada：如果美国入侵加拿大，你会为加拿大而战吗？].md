@@ -480,3 +480,15 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 懂王这波碰瓷主要目的估计也是要强卖武器，没一个是他能说了算的
 
+
+*****
+
+####  狐步  
+##### 42#       发表于 2025-1-9 04:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132919&amp;ptid=2237116" target="_blank">天地一机成化育 发表于 2025-1-8 10:57</a>
+加拿大不会真准备抵抗吧</blockquote>
+历史上有一个国家烧了白宫
+
+— from samsung SM-S721W, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
