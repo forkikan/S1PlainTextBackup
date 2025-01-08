@@ -73,3 +73,18 @@
 
 不过现在这个缇娜夏的眼神太过温柔了,看得让人觉得比上一季还急<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  X(iaolw)S  
+##### 190#       发表于 2025-1-9 07:37
+
+<blockquote>引用第188楼镜hinata于2025-01-09 01:07发表的  :
+
+第一季奥卡斯有多缠缇娜夏,这集那句初次见面就有多重击啊不过现在这个缇娜夏的眼神太过温柔了,看得让人觉......</blockquote>
+@镜hinata
+
+别被她的眼神骗了，这个缇娜夏可心狠手辣得多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.41)
+

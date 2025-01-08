@@ -518,3 +518,22 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 上一次丑国入侵加拿大，最后结果是火烧白宫；上一次阿川当丑国总统，最后结果也是火烧白宫。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  big9999  
+##### 46#       发表于 2025-1-9 07:42
+
+这两边打起来到时别是“中国人不打中国人”
+
+*****
+
+####  约翰里德  
+##### 47#       发表于 2025-1-9 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133562&amp;ptid=2237116" target="_blank">HIDER 发表于 2025-1-9 02:48</a>
+加拿大作为独立国家的意义在哪里？为了国际上多一票吗？
+加拿大人的国家认同是基于什么基础？为什么不能和 ...</blockquote>
+国家认同是保皇党。
+南边都是反贼。
+
