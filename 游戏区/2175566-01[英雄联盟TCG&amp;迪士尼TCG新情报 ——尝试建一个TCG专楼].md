@@ -182,3 +182,11 @@ ua强度已经提过 ...</blockquote>
 洛卡纳只是不好看吗，我甚至都觉得丑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 再加上简中这垃圾工艺，又丑又烂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴酒  
+##### 207#       发表于 2025-1-8 13:55
+
+真要玩高达的还是等黑茶紫出来再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
