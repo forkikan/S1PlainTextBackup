@@ -987,3 +987,23 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">都买了才发现原来不支持手柄啊 键盘鼠标玩太累了
 
+
+*****
+
+####  moyuzhijia  
+##### 97#       发表于 2025-1-8 08:37
+
+这美少女也太丑了
+
+*****
+
+####  white1dance  
+##### 98#       发表于 2025-1-8 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67122822&amp;ptid=2236671" target="_blank">zzy516232108 发表于 2025-1-7 17:09</a>
+
+第一关还行吧，主要初代这个左轮要狂撸R键上弹有点不习惯就是……
+
+其实手快的话这游戏半自动比全自动好用 ...</blockquote>
+他那个上子弹真难崩 每次我都下意识只按一下r<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

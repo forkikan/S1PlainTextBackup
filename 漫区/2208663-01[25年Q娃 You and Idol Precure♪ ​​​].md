@@ -1117,3 +1117,11 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 [https://x.com/kisumirei41/status/1875934977139130396](https://x.com/kisumirei41/status/1875934977139130396)
 <img src="https://p.sda1.dev/21/d4b32c20306df71cab8813242daa8cb1/20250107_232555.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 233#       发表于 2025-1-8 08:36
+
+<img src="https://p.sda1.dev/21/86e35fcea994e8ef6b930c4e900d2668/p_sign%20_1_.png" referrerpolicy="no-referrer">
+
