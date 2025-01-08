@@ -9408,3 +9408,46 @@ non：我这边也这么想，是最能依赖的对象吧，或者说是互相�
 
 たった一人で深い悲しみに耐える小さな君、その強さ、【気高さ】を、どうか大人になっても失わないで。 
 
+
+*****
+
+####  Tienx  
+##### 6759#       发表于 2025-1-8 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131121&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-8 17:53</a>
+
+'Mujica背后的黑幕？丰川祥子的“双面人生”引发争议！'
+
+近日，以神秘面具和独特世界观吸引无数粉丝的 ...</blockquote>
+消息灵通人士太多了
+
+
+*****
+
+####  山ノ内花音  
+##### 6760#       发表于 2025-1-8 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131982&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-8 20:14</a>
+
+图发不上来所以直接说了
+
+non：mygo第三集不是有一个场景是卡拉OK里saki有句台词是“睦当然会笑的啦”，这 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/08/215226avcurv0p2pld8mmz.jpg" referrerpolicy="no-referrer">
+
+<strong>038da3fb513d2697d0042b7513fbb2fb4216d8a2 (2).jpg</strong> (135.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 21:52 上传
+
+
+*****
+
+####  影伴光生  
+##### 6761#       发表于 2025-1-8 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道是不是我的错觉，祥子的小白袜画面给的挺多的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
