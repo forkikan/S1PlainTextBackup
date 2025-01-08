@@ -8632,3 +8632,11 @@ https://x.com/ng_suzuki3/status/1873684723203215369?t=JOfR_GHFsR9h2N0YFNusSQ&amp
 按日程的话排除李茜月三个了，13号她们要去wsd发表会，一天不到就从美国飞回日本上生放难度高了点 ...</blockquote>
 英推草台了，1/10號才對不是12
 
+
+*****
+
+####  kivz  
+##### 6698#       发表于 2025-1-8 09:39
+
+能有机会听到更Doloris声线的歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
