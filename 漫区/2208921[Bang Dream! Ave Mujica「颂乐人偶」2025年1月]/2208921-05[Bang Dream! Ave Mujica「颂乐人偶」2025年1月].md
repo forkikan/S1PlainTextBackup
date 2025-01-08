@@ -9498,3 +9498,22 @@ non：mygo第三集不是有一个场景是卡拉OK里saki有句台词是“睦�
 
 初祥什么时候站起来<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thisisaspider  
+##### 6767#       发表于 2025-1-8 23:09
+
+请教一下，邦多利担当贝斯或者鼓的角色是什么契机开始练习的呢
+
+现实玩乐队的这两个乐器一般都不会单独练吧。要不是加入乐队后分配的，要不是在乐队里需要转型的。像喵梦这种看起来已经练了很久并且有实力的，但又没加入乐队会存在吗。
+
+还是说这个只是我的错误印象<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6768#       发表于 2025-1-8 23:12
+
+别说小白袜 卖狗里鞋子特写也很多 怀疑有昆汀学徒参与
+
