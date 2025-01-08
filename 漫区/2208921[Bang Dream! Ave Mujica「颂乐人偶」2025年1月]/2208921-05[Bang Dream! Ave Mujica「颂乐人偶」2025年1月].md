@@ -8702,3 +8702,37 @@ https://x.com/rangatarou/status/1876481372048728252
 
 昨天还是前天楼里提过的争议翻译啊b居然修正了，是有楼u混进了b站了吗
 
+
+*****
+
+####  御幸一也  
+##### 6704#       发表于 2025-1-8 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127596&amp;ptid=2208921" target="_blank">l159020 发表于 2025-1-8 10:53</a>
+
+昨天还是前天楼里提过的争议翻译啊b居然修正了，是有楼u混进了b站了吗</blockquote>
+什麼爭議翻譯<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6705#       发表于 2025-1-8 11:13
+
+<img src="https://img.saraba1st.com/forum/202501/08/111316muom0efvzfj01fmm.jpg" referrerpolicy="no-referrer">
+
+<strong>125850431_p0-1.jpg</strong> (346.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202501/08/111327dbm4bhdhm8yszhyy.jpg" referrerpolicy="no-referrer">
+
+<strong>125850431_p1-1.jpg</strong> (257.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 11:13 上传
+
+[https://www.pixiv.net/artworks/125850431](https://www.pixiv.net/artworks/125850431)
+
