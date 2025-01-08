@@ -1410,3 +1410,11 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 硬吃梅林保底<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 46951#       发表于 2025-1-8 10:34
+
+我靠，打ort从低星开始送，三星都没送几个就结束了，早知道直接上四五星爽爽了
+

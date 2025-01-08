@@ -1166,3 +1166,13 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 我想回家</blockquote>
 跟这些女人在一起真无聊，该回家找我的茉优了
 
+
+*****
+
+####  Blackson  
+##### 238#       发表于 2025-1-8 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127295&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-1-8 10:19</a>
+我想回家</blockquote>
+没把治愈的知优也算上，可能是（作者觉得）知优没啥特点吧
+
