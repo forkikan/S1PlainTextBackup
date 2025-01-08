@@ -533,3 +533,28 @@ update 2025-01-08
 
 在用户管理中，可以看到最新版本与当前版本号。
 
+
+*****
+
+####  chachi  
+##### 48#         楼主| 发表于 2025-1-8 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67130432&amp;ptid=2236678" target="_blank">黑上シグマ 发表于 2025-1-8 16:31</a>
+
+另外还有个不知道是不是只有我有的bug，如果当前页面有人发了有部分缩略了的网址的话，整页的文字都会变成 ...</blockquote>
+已经定位到问题并修复了，下个版本发布会更新。
+
+*****
+
+####  chachi  
+##### 49#         楼主| 发表于 2025-1-8 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67129471&amp;ptid=2236678" target="_blank">约瑟夫海顿 发表于 2025-1-8 14:39</a>
+
+改成一页40楼了，稍稍有点不习惯
+
+----发送自 STAGE1 App for Android.</blockquote>
+改为40楼一页主要是为了和论坛同步
+
+方便点击某些链接时，直接跳转到所需的页面和楼层
+
