@@ -492,3 +492,11 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 — from samsung SM-S721W, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
+
+*****
+
+####  24k纯帅  
+##### 43#       发表于 2025-1-9 05:49
+
+好好好, 加拿大说完了, 现在我们听听印拿大的意见
+
