@@ -9324,3 +9324,24 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 又开始官方嬷了，我服了姐姐</blockquote>
 虽然看不到图，但我知道是哪一张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 6751#         楼主| 发表于 2025-1-8 19:33
+
+将于1/23(周四)发售的
+
+『#TVガイドAStars vol.06』
+
+封底插图公开🌙
+[https://www.bilibili.com/opus/1020043568070262816](https://www.bilibili.com/opus/1020043568070262816)
+<img src="https://p.sda1.dev/21/379caab224ea32752aeb8bdf7a23178a/b94b100520b6e939f651afef92b391ee1459104794.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kyogngn  
+##### 6752#       发表于 2025-1-8 19:33
+
+太美味了祥子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
