@@ -8442,3 +8442,26 @@ CCA是一部看上去很“冷”的作品，正如地球寒冷化作战。但�
 上学时的周末下午，看一部剧场版就过去了，CCA、F91、0079 ...</blockquote>
 不过一角驴这种靠神迹推进的方法光头在吉姆王圣站士脑白金麟光之翼没少用
 
+
+*****
+
+####  wasssf  
+##### 2124#       发表于 2025-1-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125195&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-7 22:41</a>
+
+相逢宇宙篇确实拍得不错，以前没电脑时常常看。
+
+上学时的周末下午，看一部剧场版就过去了，CCA、F91、0079 ...</blockquote>
+不过一角驴这种靠神迹推进的方法光头在吉姆王圣站士脑白金麟光之翼没少用
+
+*****
+
+####  Steel.Haze  
+##### 2125#       发表于 2025-1-8 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125062&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-7 22:18</a>
+
+宇宙世纪好像光头自己导演的最高票房就是元祖剧场版3了，不过富野粉给我的感觉富野明明没有像斯皮尔伯格/詹 ...</blockquote>
+这个算法不完全。作为一个玩具影视IP品牌。要算上制作人旗下周边市场带动能力。你这样看，富野的“世界观系”产品风格下的市场框架就很大了。
+
