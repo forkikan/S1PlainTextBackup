@@ -244,3 +244,11 @@ ua强度已经提过 ...</blockquote>
 万代系真的所有规则都是一个模子刻出来的，但从游戏性角度真的没法吸引到人。 ...</blockquote>
 我之前专门想过这个问题，然后发它们的规则还是有一些区分度的，主要是大框架变化不大，导致玩起来的感觉很类似。万代在规则上确实很保守。这一套实在是出太多了，大家也厌倦了。
 
+
+*****
+
+####  chaosliu  
+##### 213#       发表于 2025-1-9 00:24
+
+其实没搞懂ua，ua和ws算不算是直接竞争关系了，都是ip大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
