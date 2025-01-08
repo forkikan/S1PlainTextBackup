@@ -10075,3 +10075,11 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 （奶一下卡面：初始金发神父，一破短发死徒，三破旧设长发）
 
+
+*****
+
+####  qixinno2  
+##### 16037#       发表于 2025-1-8 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接缝个四季在里面 然后二期直接空降鬼畜眼镜
+
