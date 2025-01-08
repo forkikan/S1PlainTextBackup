@@ -9291,3 +9291,18 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来祥子还要哭多少回（第一集嗷嗷哭，第二集没哭，第三集在没人看到的地方肯定哭了）
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 6747#       发表于 2025-1-8 18:55
+
+这祥子真是魅魔啊，完全和初华共情了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 6748#       发表于 2025-1-8 18:57
+
+这居然是官图 还以为什么复古画风同人
+
