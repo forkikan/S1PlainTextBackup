@@ -9517,3 +9517,57 @@ non：mygo第三集不是有一个场景是卡拉OK里saki有句台词是“睦�
 
 别说小白袜 卖狗里鞋子特写也很多 怀疑有昆汀学徒参与
 
+
+*****
+
+####  御幸一也  
+##### 6769#       发表于 2025-1-8 23:21
+
+雜誌圖
+
+animedia
+
+<img src="https://img.saraba1st.com/forum/202501/08/232030xssdaa5r3fss5h3a.jpg" referrerpolicy="no-referrer">
+
+<strong>mutsumi.jpg</strong> (549.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 23:20 上传
+
+animage
+
+<img src="https://img.saraba1st.com/forum/202501/08/232054q19al849mrrz1mfc.jpg" referrerpolicy="no-referrer">
+
+<strong>mutsusaki.jpg</strong> (666.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 23:20 上传
+
+*****
+
+####  NODY  
+##### 6770#       发表于 2025-1-8 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132998&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-8 23:09</a>
+
+请教一下，邦多利担当贝斯或者鼓的角色是什么契机开始练习的呢
+
+现实玩乐队的这两个乐器一般都不会单独练吧 ...</blockquote>
+贝斯：
+
+lisa、hmr、layer：为了和幼驯染组乐队专门学的贝斯
+
+千圣、hgm、七深、爽世：先入队，发现队伍里没贝斯后现学的
+
+李美丽是因为姐姐，海铃未知
+
+鼓
+
+沙绫、亚子、maya、花音、masking：基本上都是小学或者初中开始练的童子功
+
+巴、土笔：有其他打击乐的经历，组乐队后转练架子鼓
+
+立希喵梦未知
+
