@@ -8640,3 +8640,11 @@ https://x.com/ng_suzuki3/status/1873684723203215369?t=JOfR_GHFsR9h2N0YFNusSQ&amp
 
 能有机会听到更Doloris声线的歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 6699#       发表于 2025-1-8 10:03
+
+mygo的时候还以为是彻底家道中落了没想到其实也就老爹失足，爷爷还是大把钱，感觉后面大几率会写老爹洗心革面
+
