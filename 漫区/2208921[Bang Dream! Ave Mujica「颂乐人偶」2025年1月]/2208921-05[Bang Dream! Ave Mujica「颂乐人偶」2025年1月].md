@@ -9579,3 +9579,19 @@ lisa、hmr、layer：为了和幼驯染组乐队专门学的贝斯
 
 爽世原来就是拉古典贝斯的
 
+
+*****
+
+####  ml1642879  
+##### 6772#       发表于 2025-1-9 00:05
+
+泥潭附件又爆了？啥也没看见
+
+
+*****
+
+####  kivz  
+##### 6773#       发表于 2025-1-9 00:11
+
+先上图床吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
