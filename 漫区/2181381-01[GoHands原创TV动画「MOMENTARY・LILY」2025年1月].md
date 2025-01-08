@@ -333,3 +333,11 @@ SeeetSub 只是单纯爱做原创而已<img src="https://static.saraba1st.com/im
 
 gohands现在在邪教动画公司的路上越走越远了，但凡在突出人物的背景处做些虚化，左/右上角跟水印似的光晕特效去掉，也不至于这样杂乱无章，顺便这头发我感觉是想做出来顺滑飘逸的观感的，但这一缕缕的跟脏辫里塞了弹簧一样，真不觉得有美感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星降る森  
+##### 82#       发表于 2025-1-8 21:25
+
+土鸡莉莉精神续作，巧了，你也叫莉莉
+
