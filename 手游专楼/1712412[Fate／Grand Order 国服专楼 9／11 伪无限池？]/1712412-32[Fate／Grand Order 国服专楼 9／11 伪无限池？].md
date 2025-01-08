@@ -1402,3 +1402,11 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 白纸 ...</blockquote>
 前排带低星充能，借好友高宝兽尼之类的克制单体，xjbd就可以后排带高星了
 
+
+*****
+
+####  Urakawa  
+##### 46950#       发表于 2025-1-8 10:28
+
+硬吃梅林保底<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

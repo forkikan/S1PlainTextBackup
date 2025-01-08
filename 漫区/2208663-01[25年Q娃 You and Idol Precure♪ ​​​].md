@@ -1148,3 +1148,21 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 <img src="https://p.sda1.dev/21/cf1a0b84f3025c056afba729b6540e3e/p_sign.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 236#       发表于 2025-1-8 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令和的蓝色前辈中问题儿童的比例确实有点高
+
+*****
+
+####  猫屋敷ゆき  
+##### 237#       发表于 2025-1-8 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127295&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-1-8 10:19</a>
+
+我想回家</blockquote>
+跟这些女人在一起真无聊，该回家找我的茉优了
+
