@@ -9614,3 +9614,16 @@ lisa、hmr、layer：为了和幼驯染组乐队专门学的贝斯
 
 印象中黄瓜是送给mygo全员，这个设定好像就是声优先说出来，后来访谈实锤的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 6776#       发表于 2025-1-9 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133399&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-9 01:02</a>
+
+印象中黄瓜是送给mygo全员，这个设定好像就是声优先说出来，后来访谈实锤的 ...</blockquote>
+是的，最开始是若叶睦的声优，渡濑结月说的，还被萌战吧的人喷了。
+
+后来监督访谈实锤了。
+

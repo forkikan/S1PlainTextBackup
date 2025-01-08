@@ -63,3 +63,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  镜hinata  
+##### 189#       发表于 2025-1-9 01:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">第一季奥卡斯有多缠缇娜夏,这集那句初次见面就有多重击啊
+
+不过现在这个缇娜夏的眼神太过温柔了,看得让人觉得比上一季还急<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

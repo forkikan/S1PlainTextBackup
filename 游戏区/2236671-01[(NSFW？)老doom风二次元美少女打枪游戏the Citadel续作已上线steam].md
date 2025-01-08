@@ -1074,3 +1074,21 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 武器的数量和花样都挺多，同类武器同键切换、 ...</blockquote>
 有隐藏收集品，可以重新回章节打
 
+
+*****
+
+####  ParadiseMartyr  
+##### 104#         楼主| 发表于 2025-1-9 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133383&amp;ptid=2236671" target="_blank">Launce 发表于 2025-1-9 00:54</a>
+有隐藏收集品，可以重新回章节打</blockquote>
+他说的好像是一代吧？一代没有收藏品也没有多结局。
+二代好像是没法卖子弹的…
+
+*****
+
+####  ParadiseMartyr  
+##### 105#         楼主| 发表于 2025-1-9 01:15
+
+我现在的bug是分辨率和屏幕不匹配，导致一部分内容显示在屏幕外…不过大部分情况不影响，只影响商店和每章节标题。
+
