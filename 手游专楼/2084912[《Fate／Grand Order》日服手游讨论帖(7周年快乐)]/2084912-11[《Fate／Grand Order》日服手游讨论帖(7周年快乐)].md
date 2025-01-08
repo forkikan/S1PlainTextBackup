@@ -10049,3 +10049,11 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接空降罗亚让你们继续见识见识月姬的机制与数值
 
+
+*****
+
+####  khxooo  
+##### 16035#       发表于 2025-1-8 20:33
+
+不是蛇就是龙，罗亚落地也不是不可能
+
