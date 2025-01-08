@@ -9595,3 +9595,22 @@ lisa、hmr、layer：为了和幼驯染组乐队专门学的贝斯
 
 先上图床吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 6774#       发表于 2025-1-9 00:59
+
+目前来说确实不能说是公式基础设定，但也不能说是不对的，有问题官方会修改的
+
+用心的声优对自己角色的理解基本不会有偏差的，毕竟要演绎角色，而且又看完全话脚本了，内容大方向上是可以参考的
+
+部分内容大概率会放制作组访谈里再说一遍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 6775#       发表于 2025-1-9 01:02
+
+印象中黄瓜是送给mygo全员，这个设定好像就是声优先说出来，后来访谈实锤的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
