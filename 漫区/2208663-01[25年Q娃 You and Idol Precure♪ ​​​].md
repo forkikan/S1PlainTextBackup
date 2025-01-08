@@ -1190,3 +1190,13 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  蒼風なな  
+##### 240#       发表于 2025-1-8 11:00
+
+偶像就不能开巨大机器人吗，真正的偶像什么都能干
+
+<img src="https://tse3-mm.cn.bing.net/th/id/OIP-C.ChmJ6jPUR48ycwTSq3VPiwHaJ4?rs=1&amp;pid=ImgDetMain" id="aimg_wgBPi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

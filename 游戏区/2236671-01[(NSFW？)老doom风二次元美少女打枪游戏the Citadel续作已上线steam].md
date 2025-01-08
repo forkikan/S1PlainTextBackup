@@ -1030,3 +1030,13 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 玩一两次挺有意思的，一直按来按去就很难绷
 
+
+*****
+
+####  ParadiseMartyr  
+##### 101#         楼主| 发表于 2025-1-8 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67126433&amp;ptid=2236671" target="_blank">moyuzhijia 发表于 2025-1-8 08:37</a>
+这美少女也太丑了</blockquote>
+画风不是很完美，但是也减少了guro的不适感
+
