@@ -1176,3 +1176,17 @@ op是MONACA的广川惠一来作曲了 不容易上次MONACA来写歌还是丽�
 我想回家</blockquote>
 没把治愈的知优也算上，可能是（作者觉得）知优没啥特点吧
 
+
+*****
+
+####  月夜凝雪  
+##### 239#       发表于 2025-1-8 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67108837&amp;ptid=2208663" target="_blank">zyw0 发表于 2025-1-5 19:42</a>
+偶q这个开头有点太传统了，不太能想象怎么添加偶像要素。
+
+总不能一边唱歌一边战斗就是偶像吧 ...</blockquote>
+人鱼的旋律
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
