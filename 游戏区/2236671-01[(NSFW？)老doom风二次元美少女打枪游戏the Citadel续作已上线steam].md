@@ -1119,3 +1119,13 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 二代好像是没法卖子弹的… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">一代难度高吗，二代摸完想玩下前作了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 108#         楼主| 发表于 2025-1-9 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133500&amp;ptid=2236671" target="_blank">Launce 发表于 2025-1-9 01:49</a>
+一代难度高吗，二代摸完想玩下前作了</blockquote>
+只比二简单，不会比二难。我在一楼也说了。二代是一代全面威力加强版，包括枪战方面也是全面细化(更难)。
+
