@@ -466,3 +466,25 @@ update 2025-01-07
 
 老设备也能用了，不像其他球
 
+
+*****
+
+####  黑上シグマ  
+##### 43#       发表于 2025-1-8 16:31
+
+另外还有个不知道是不是只有我有的bug，如果当前页面有人发了有部分缩略了的网址的话，整页的文字都会变成乱码
+https://bbs.saraba1st.com/2b/thread-2237071-1-1.html
+比如这个帖子，7楼贴了个网址有部分缩略掉了，于是整页帖子都是乱码了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.42)
+
+*****
+
+####  chachi  
+##### 44#         楼主| 发表于 2025-1-8 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67130432&amp;ptid=2236678" target="_blank">黑上シグマ 发表于 2025-1-8 16:31</a>
+
+另外还有个不知道是不是只有我有的bug，如果当前页面有人发了有部分缩略了的网址的话，整页的文字都会变成 ...</blockquote>
+感谢回报，后面会定位下问题修复。
+
