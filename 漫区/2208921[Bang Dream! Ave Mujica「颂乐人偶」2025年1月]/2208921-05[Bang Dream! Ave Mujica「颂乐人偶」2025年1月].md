@@ -8736,3 +8736,37 @@ https://x.com/rangatarou/status/1876481372048728252
 
 [https://www.pixiv.net/artworks/125850431](https://www.pixiv.net/artworks/125850431)
 
+
+*****
+
+####  sdeplee  
+##### 6706#       发表于 2025-1-8 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127761&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-8 11:13</a>
+
+https://www.pixiv.net/artworks/125850431</blockquote>
+协议三：不要走！
+
+*****
+
+####  ads147147  
+##### 6707#       发表于 2025-1-8 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127761&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-8 11:13</a>
+
+https://www.pixiv.net/artworks/125850431</blockquote>
+第一眼把soyo看成sony
+
+
+*****
+
+####  新HGCG  
+##### 6708#       发表于 2025-1-8 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67127200&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-8 10:11</a>
+
+https://weibo.com/6112635986/P8AXpbQm7
+
+https://x.com/rangatarou/status/1876481372048728252</blockquote>
+最低野郎
+
