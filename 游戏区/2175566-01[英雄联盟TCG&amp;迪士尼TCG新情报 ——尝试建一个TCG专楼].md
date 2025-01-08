@@ -212,3 +212,16 @@ ua强度已经提过 ...</blockquote>
 帖子里你每个月贴的销量是国内的还是哪里的？</blockquote>
 日本的数据吧
 
+
+*****
+
+####  记忆消失  
+##### 210#         楼主| 发表于 2025-1-8 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67129209&amp;ptid=2175566" target="_blank">mindclicer 发表于 2025-1-8 14:08</a>
+
+帖子里你每个月贴的销量是国内的还是哪里的？</blockquote>
+日本的数据，仅供参考。
+
+国内集换社也会公布排行榜，但是只有前5名。
+
