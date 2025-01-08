@@ -10025,3 +10025,11 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 该把果子龙放出来了吧
 
+
+*****
+
+####  保罗赫伯特  
+##### 16032#       发表于 2025-1-8 18:40
+
+果子龙都快被遗忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

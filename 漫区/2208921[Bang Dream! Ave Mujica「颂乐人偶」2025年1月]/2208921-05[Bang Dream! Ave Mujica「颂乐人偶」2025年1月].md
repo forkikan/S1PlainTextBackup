@@ -9272,3 +9272,22 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 祥公说话<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  坐看风起云涌  
+##### 6745#       发表于 2025-1-8 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131296&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-8 18:17</a>
+又开始官方嬷了，我服了姐姐</blockquote>
+全员祥嬷的制作组是战胜不了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 6746#       发表于 2025-1-8 18:40
+
+ 本帖最后由 狮子咕 于 2025-1-8 18:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来祥子还要哭多少回（第一集嗷嗷哭，第二集没哭，第三集在没人看到的地方肯定哭了）
+
