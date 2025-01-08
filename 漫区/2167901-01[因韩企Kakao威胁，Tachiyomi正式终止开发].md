@@ -3302,3 +3302,14 @@ Mihon-更多-设置-浏览-插件仓库-添加 逐个粘贴上面的链接后确
 
 禁漫的插件更新了 但是安装上去 网页可以进去了 但是全白
 
+
+*****
+
+####  pgain2004  
+##### 314#         楼主| 发表于 2025-1-8 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125986&amp;ptid=2167901" target="_blank">dhl97 发表于 2025-1-8 01:54</a>
+有没有keiyoushi以外的源仓库，keiyoushi我这边现在没法更新和安装插件，已经排除是网络问题，应该要么是系 ...</blockquote>
+源应该没问题，Tachiyomi时期我遇过类似情况，J2K版突然就没办法安装插件（但能识别更新，只是下载那一步会失败），重装什么的都没用，权限也是一致的。后来另外下了个官方的，官方APP发现下载安装都没问题。
+至今不知道原因。
+
