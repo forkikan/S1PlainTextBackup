@@ -9314,3 +9314,13 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微博上有关于访谈的翻译了，感兴趣的自己去找找，和剧情是压根没透露，卖卖睦祥关系就差不多没了
 
+
+*****
+
+####  一心而用  
+##### 6750#       发表于 2025-1-8 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131296&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-8 18:17</a>
+又开始官方嬷了，我服了姐姐</blockquote>
+虽然看不到图，但我知道是哪一张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

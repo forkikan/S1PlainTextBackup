@@ -8579,3 +8579,18 @@ PV2肯定是有的，其余的怕不是要等17号官方爆料世界观之后再
 
 换个免费图床吧 https://p.sda1.dev/
 
+
+*****
+
+####  RE㐅ia  
+##### 2136#       发表于 2025-1-8 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131621&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-8 19:13</a>
+
+图床坏了什么都看不见
+
+换个免费图床吧 https://p.sda1.dev/</blockquote>
+【【中日字幕】2025年新高达声优首次会谈 收录已全部完成 神秘的迷人角色是？【高达GQuuuuuuX】】 [https://www.bilibili.com/video/B ... 8ea77843db65840ad21](https://www.bilibili.com/video/BV1icraYoE7W/?share_source=copy_web&amp;vd_source=0255bed28a0ac8ea77843db65840ad21)
+
+5分钟开始
+
