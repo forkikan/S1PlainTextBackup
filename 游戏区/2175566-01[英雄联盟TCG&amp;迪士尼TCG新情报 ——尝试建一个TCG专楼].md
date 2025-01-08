@@ -201,3 +201,14 @@ ua强度已经提过 ...</blockquote>
 高达TCG先发售部分卡池，7月再发售补充包是我见过的最脑瘫的运营策略。尤其万代并不是什么TCG新手，看上去 ...</blockquote>
 帖子里你每个月贴的销量是国内的还是哪里的？
 
+
+*****
+
+####  琴酒  
+##### 209#       发表于 2025-1-8 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67129209&amp;ptid=2175566" target="_blank">mindclicer 发表于 2025-1-8 14:08</a>
+
+帖子里你每个月贴的销量是国内的还是哪里的？</blockquote>
+日本的数据吧
+

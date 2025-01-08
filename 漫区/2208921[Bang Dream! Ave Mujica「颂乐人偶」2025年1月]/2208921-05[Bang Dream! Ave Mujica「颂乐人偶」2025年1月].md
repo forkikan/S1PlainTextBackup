@@ -8856,3 +8856,33 @@ mujica我觉得不会到这个程度的，角色一定会变，其实已经在�
 首页看到以为是母鸡卡
 <img src="https://p.sda1.dev/21/e5ab8396017633fc28eceb8d89340bda/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 6717#       发表于 2025-1-8 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67128396&amp;ptid=2208921" target="_blank">l159020 发表于 2025-1-8 12:24</a>
+
+潭里搜索mujica即可，有个单独的帖子说的</blockquote>
+挺有意思的日文翻譯討論<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 6718#       发表于 2025-1-8 14:18
+
+所以最后要把人剁成馅来包饺子吗
+
+
+*****
+
+####  NODY  
+##### 6719#       发表于 2025-1-8 14:25
+
+[https://hibiki-radio.jp/description/ske48/detail](https://hibiki-radio.jp/description/ske48/detail)
+
+SKE48广播的嘉宾回更新
+
+高尾想当声优想玩乐队都是因为kon
+
