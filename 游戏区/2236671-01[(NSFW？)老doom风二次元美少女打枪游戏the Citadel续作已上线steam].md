@@ -1092,3 +1092,17 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 我现在的bug是分辨率和屏幕不匹配，导致一部分内容显示在屏幕外…不过大部分情况不影响，只影响商店和每章节标题。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 106#         楼主| 发表于 2025-1-9 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133290&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-9 00:23</a>
+不知道为啥不黑屏了，但开始UE4报错，约莫一个章节报错1次
+
+  
+
+武器的数量和花样都挺多，同类武器同键切换、 ...</blockquote>
+一代没有收藏品和多结局，二代有，也就几个插图。前期的都没啥，第三章开始都是福利图。不过作者画工残念…所以其实也就图一乐
+
