@@ -8611,3 +8611,24 @@ https://x.com/2015chaosgroup/status/1875178074935005415?s=46
 前两天那个同人现在可以当表情包用了</blockquote>
 这个有全图吗，我记得还有个海初卖bl的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qjw114514  
+##### 6696#       发表于 2025-1-8 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67126414&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-8 08:33</a>
+这个有全图吗，我记得还有个海初卖bl的</blockquote>
+https://x.com/ng_suzuki3/status/1873684723203215369?t=JOfR_GHFsR9h2N0YFNusSQ&amp;s=19原图发在x上面
+<img src="https://p.sda1.dev/21/9a896184039a5cbca7811e619da3181d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 6697#       发表于 2025-1-8 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125974&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-8 01:50</a>
+
+按日程的话排除李茜月三个了，13号她们要去wsd发表会，一天不到就从美国飞回日本上生放难度高了点 ...</blockquote>
+英推草台了，1/10號才對不是12
+

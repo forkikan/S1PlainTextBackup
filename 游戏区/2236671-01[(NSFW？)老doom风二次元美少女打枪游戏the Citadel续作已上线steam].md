@@ -1017,3 +1017,16 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 都买了才发现原来不支持手柄啊 键盘鼠标玩太累了</blockquote>
 支持啊，二代支持，有game pad设置
 
+
+*****
+
+####  zzy516232108  
+##### 100#       发表于 2025-1-8 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67126439&amp;ptid=2236671" target="_blank">white1dance 发表于 2025-1-8 08:38</a>
+
+他那个上子弹真难崩 每次我都下意识只按一下r</blockquote>
+按键拟真，作者的一点小癖好（
+
+玩一两次挺有意思的，一直按来按去就很难绷
+
