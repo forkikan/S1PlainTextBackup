@@ -8847,3 +8847,12 @@ mujica我觉得不会到这个程度的，角色一定会变，其实已经在�
 什麼爭議翻譯</blockquote>
 潭里搜索mujica即可，有个单独的帖子说的
 
+
+*****
+
+####  IWS2000  
+##### 6716#       发表于 2025-1-8 12:41
+
+首页看到以为是母鸡卡
+<img src="https://p.sda1.dev/21/e5ab8396017633fc28eceb8d89340bda/image.jpg" referrerpolicy="no-referrer">
+
