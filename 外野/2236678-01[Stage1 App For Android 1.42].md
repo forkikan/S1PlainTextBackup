@@ -514,3 +514,22 @@ update 2025-01-08
 
 ----发送自 [vivo V2218A,Android 14](http://stage1.5j4m.com/?1.43)
 
+
+*****
+
+####  chachi  
+##### 47#         楼主| 发表于 2025-1-8 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132269&amp;ptid=2236678" target="_blank">zfz4869 发表于 2025-1-8 21:02</a>
+
+版本检查怎么实现的？自动检测？没看到相关按钮
+
+----发送自 vivo V2218A,Android 14 ...</blockquote>
+自动检测，每次重新启动app会查询。
+
+如果版本是最新或者设置跳过当前版本，就不会弹窗，否则会弹窗提示。
+
+可以设置不再提醒，或点击打开浏览器，或取消当前提示。
+
+在用户管理中，可以看到最新版本与当前版本号。
+
