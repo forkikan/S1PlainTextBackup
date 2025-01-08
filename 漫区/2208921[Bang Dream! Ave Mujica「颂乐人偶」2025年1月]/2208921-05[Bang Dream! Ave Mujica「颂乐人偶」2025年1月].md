@@ -9061,3 +9061,28 @@ MyGO对这一点做得非常好，五个人直到 ...</blockquote>
 
 身体已经无法拒绝，手指还是保留着当1的梦想，这就是ob小姐的気高く
 
+
+*****
+
+####  玖羽  
+##### 6732#       发表于 2025-1-8 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67130049&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-8 15:53</a>
+
+感觉被舅舅的初华最后爆限制了思维 如果一拖四拉祥老师 那她才应该是最后的 总
+
+不能拉完初华又爆吧 ...</blockquote>
+不知道，就像MyGO第9话最后爱音才爆，但是下一话就能给拉回来
+
+我选择相信独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KLHgg  
+##### 6733#       发表于 2025-1-8 17:20
+
+其他三人拉祥子，初华爆了后由最终版本的祥子解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是op后面祥子消失和初华表情不好猜是表现什么情节
+
