@@ -8520,3 +8520,42 @@ PV2肯定是有的，其余的怕不是要等17号官方爆料世界观之后再
 
 每次进楼就是车轱辘uc车轱辘水魔车轱辘厨豚，什么时候能吃点新东西<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 2132#       发表于 2025-1-8 18:12
+
+摸摸鱼一个星期就过去啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 2133#       发表于 2025-1-8 18:12
+
+根据配音改剧情红豆泥大丈夫？上个这么干的好像是冈妈和咖喱…
+
+<img src="https://img.saraba1st.com/forum/202501/08/181244avy2ioh2hqdeqvoo.png" referrerpolicy="no-referrer">
+
+<strong>D67148F7-7A04-4F24-A44C-05095E4528E2.png</strong> (433.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 18:12 上传
+
+<img src="https://img.saraba1st.com/forum/202501/08/181245shziizxdt7ubhebl.png" referrerpolicy="no-referrer">
+
+<strong>151F2614-2730-4506-8CE4-02DBC1CC120E.png</strong> (446.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 18:12 上传
+
+<img src="https://img.saraba1st.com/forum/202501/08/181245eutj1dk1lqeivfik.png" referrerpolicy="no-referrer">
+
+<strong>5511D7AC-63B4-45ED-9A3D-5BAF66FC28C1.png</strong> (392.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-8 18:12 上传
+

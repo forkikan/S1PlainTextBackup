@@ -9189,3 +9189,45 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 不管怎么说这个词的反义肯定不是指祥子穷，「気高い」是一个非常正面的词，如果取反义，那会是非常恶劣的
 
+
+*****
+
+####  哈曼的YY  
+##### 6737#       发表于 2025-1-8 18:05
+
+<blockquote>山ノ内花音 发表于 2025-1-8 17:53
+'Mujica背后的黑幕？丰川祥子的“双面人生”引发争议！'
+
+近日，以神秘面具和独特世界观吸引无数粉丝的 ...</blockquote>
+什么娱乐版头条 太变态了
+
+*****
+
+####  reekilynn  
+##### 6738#       发表于 2025-1-8 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131176&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-8 17:59</a>
+「気高い」严格的意思是一种高洁而高尚的高贵感，中文里没有能完全对应的词，硬要说的话应该是“(完全褒义 ...</blockquote>
+反义词估计得是『泥腿子』这种级别的了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 6739#       发表于 2025-1-8 18:09
+
+显微镜看动画
+<img src="https://p.sda1.dev/21/7d20d493ec1dd6f33ef3edd0eff5f4f1/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 6740#       发表于 2025-1-8 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131249&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-8 18:09</a>
+
+显微镜看动画</blockquote>
+这个万字解析说过，一开始爱音没有经验，靠在自己的椅背上很容易把吉他弄倒，那么很显然现在有经验了
+
