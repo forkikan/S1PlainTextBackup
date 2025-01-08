@@ -8612,3 +8612,16 @@ PV2肯定是有的，其余的怕不是要等17号官方爆料世界观之后再
 
 看完感觉还好，没有那么不安desu
 
+
+*****
+
+####  wasssf  
+##### 2139#       发表于 2025-1-8 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131771&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-8 19:42</a>
+
+是卡哈作品了
+
+和庵野一脉相承</blockquote>
+富野也干了
+
