@@ -190,3 +190,14 @@ ua强度已经提过 ...</blockquote>
 
 真要玩高达的还是等黑茶紫出来再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mindclicer  
+##### 208#       发表于 2025-1-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125641&amp;ptid=2175566" target="_blank">记忆消失 发表于 2025-1-8 00:04</a>
+
+高达TCG先发售部分卡池，7月再发售补充包是我见过的最脑瘫的运营策略。尤其万代并不是什么TCG新手，看上去 ...</blockquote>
+帖子里你每个月贴的销量是国内的还是哪里的？
+
