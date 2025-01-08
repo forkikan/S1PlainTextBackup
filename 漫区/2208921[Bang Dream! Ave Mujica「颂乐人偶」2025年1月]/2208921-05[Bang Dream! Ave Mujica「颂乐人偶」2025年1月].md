@@ -8786,3 +8786,33 @@ https://x.com/rangatarou/status/1876481372048728252</blockquote>
 
 明天就有了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 6711#       发表于 2025-1-8 11:56
+
+明天既能看睦祥访谈 就能看mujica第二集 简直完美
+
+睦祥访谈会泄露下童年么
+
+*****
+
+####  Aendst  
+##### 6712#       发表于 2025-1-8 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67126063&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-8 02:57</a>
+
+我重复一遍，不应该把角色身上的负面特质视为一种应当被切除的缺陷
+
+MyGO对这一点做得非常好，五个人直到 ...</blockquote>
+我觉得mujica的角色个人问题有两个可能的路线
+
+1.通过自我释放和欲望/本性暴露解除压抑，这个路线不需要切除负面性，也就是在舞台上成为“一丘之貉的共犯”来达成内部调和
+
+2.需要角色改变和成长（也就是修正），会让角色问题稳定下来但不一定彻底解决，也就是角色个人对理念所纠结部分的释怀和自我和解
+
+或者也可能是集两个方向为一体
+
+喵梦的问题大抵会对她个人会招来负面的后果，台下什么都可能发生，但舞台上和动画内路人观众眼里的mujica或许还是官网那句“今宵も完璧な箱庭に降り立つ”
+
