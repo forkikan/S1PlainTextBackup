@@ -9306,3 +9306,11 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 这居然是官图 还以为什么复古画风同人
 
+
+*****
+
+####  akiomn  
+##### 6749#       发表于 2025-1-8 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微博上有关于访谈的翻译了，感兴趣的自己去找找，和剧情是压根没透露，卖卖睦祥关系就差不多没了
+
