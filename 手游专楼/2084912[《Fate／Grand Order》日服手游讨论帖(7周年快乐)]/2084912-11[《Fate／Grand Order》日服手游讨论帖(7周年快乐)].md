@@ -9990,3 +9990,22 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 16029#       发表于 2025-1-8 17:39
+
+新活动从者除了尼基、红叶、齐格和一众龙娘外都与蛇相关，可能蛇年想搞个应景的活动吧：
+
+<img src="https://img.saraba1st.com/forum/202501/08/173803e2vkk4cksahkluc1.png" referrerpolicy="no-referrer">
+
+<strong>1736328956684.png</strong> (269.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-8 17:38 上传
+
+不过伊丽莎白含量太高了，有种给她补过万圣节的错觉...
+
