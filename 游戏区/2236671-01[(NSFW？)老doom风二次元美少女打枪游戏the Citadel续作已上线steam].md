@@ -1058,3 +1058,19 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 关卡内的岔路不影响结局或道具获取吧？回头想想挺不舒服的，跳下去就回不去了
 
+
+*****
+
+####  Launce  
+##### 103#       发表于 2025-1-9 00:54
+
+ 本帖最后由 Launce 于 2025-1-9 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133290&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-9 00:23</a>
+
+不知道为啥不黑屏了，但开始UE4报错，约莫一个章节报错1次
+
+  
+
+武器的数量和花样都挺多，同类武器同键切换、 ...</blockquote>
+有隐藏收集品，可以重新回章节打
+
