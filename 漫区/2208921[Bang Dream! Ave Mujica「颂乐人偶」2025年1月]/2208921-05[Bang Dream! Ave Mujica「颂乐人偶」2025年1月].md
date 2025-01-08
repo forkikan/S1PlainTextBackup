@@ -9345,3 +9345,20 @@ Crychic的失败是否真的是偶然？Mujica的崛起又隐藏了多少不为�
 
 太美味了祥子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 6753#       发表于 2025-1-8 19:43
+
+欸降魔国宴
+
+*****
+
+####  看穿一切的鱼  
+##### 6754#       发表于 2025-1-8 19:43
+
+你就哭吧，整个炸梦加起来没你一个人能哭<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

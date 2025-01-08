@@ -8594,3 +8594,21 @@ PV2肯定是有的，其余的怕不是要等17号官方爆料世界观之后再
 
 5分钟开始
 
+
+*****
+
+####  王留美  
+##### 2137#       发表于 2025-1-8 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67131274&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-8 18:12</a>
+ 根据配音改剧情红豆泥大丈夫？上个这么干的好像是冈妈和咖喱…</blockquote>
+是卡哈作品了
+和庵野一脉相承
+
+*****
+
+####  0aleph37  
+##### 2138#       发表于 2025-1-8 19:44
+
+看完感觉还好，没有那么不安desu
+
