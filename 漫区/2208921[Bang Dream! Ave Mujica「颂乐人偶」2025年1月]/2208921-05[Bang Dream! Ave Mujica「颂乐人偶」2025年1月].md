@@ -9474,3 +9474,19 @@ non：mygo第三集不是有一个场景是卡拉OK里saki有句台词是“睦�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.43)
 
+
+*****
+
+####  LeonsCat  
+##### 6764#       发表于 2025-1-8 22:45
+
+这图有16位色黄油的那种味了都……
+
+*****
+
+####  akiomn  
+##### 6765#       发表于 2025-1-8 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天看看杂志的完整翻译吧，目前已知的部分没任何剧透
+官方真的是追着粉丝把饭喂到嘴里了，睦祥这对就差直接说全股all in不会亏甚至大赚
+
