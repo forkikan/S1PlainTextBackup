@@ -8497,3 +8497,16 @@ PV2肯定是有的，其余的怕不是要等17号官方爆料世界观之后再
 
 先剑指周五吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 2130#       发表于 2025-1-8 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67128288&amp;ptid=2209276" target="_blank">sliver1997 发表于 2025-1-8 12:12</a>
+
+真就毫无动静吗，好奇怪啊这宣发
+
+—— 来自 S1Fun</blockquote>
+这周一才长假完上班，还没走出假期的倦怠期，咋宣发
+
