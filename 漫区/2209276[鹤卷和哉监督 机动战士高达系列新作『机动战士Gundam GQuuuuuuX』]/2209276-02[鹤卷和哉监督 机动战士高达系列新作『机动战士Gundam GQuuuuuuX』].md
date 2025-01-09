@@ -8743,3 +8743,34 @@ Plasma，这要翻译成血浆还是等离子体，还是一语双关<img src="h
 
 演唱会公布的吗，官博还没动静<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 2149#       发表于 2025-1-9 20:35
+
+那这op名字在这里是意味着什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+比较科幻的话应该就是等离子体了
+
+*****
+
+####  刺客ares  
+##### 2150#       发表于 2025-1-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139958&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-9 20:28</a>
+
+演唱会公布的吗，官推还没动静</blockquote>
+上次地球仪也是演唱会公布的吧
+
+看推上律师演唱会相关推文下基本锤了
+
+应该这次也是提前一周在演唱会上公布了
+
+*****
+
+####  Gysumitka  
+##### 2151#       发表于 2025-1-9 20:36
+
+3月还有上海巡回场次，歌迷有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
