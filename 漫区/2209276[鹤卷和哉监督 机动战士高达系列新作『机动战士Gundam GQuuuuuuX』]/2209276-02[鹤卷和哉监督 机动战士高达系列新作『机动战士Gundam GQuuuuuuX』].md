@@ -10372,3 +10372,14 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 新pv最后大喊大叫的是女主吗？好吵啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2315#       发表于 2025-1-10 03:17
+
+<blockquote>RE㐅ia 发表于 2025-1-10 02:50
+好像也没有植入记忆。就是单纯的处处模仿本体的成长环境罢了</blockquote>
+
+卡斯帕的生活环境和记忆植入也没啥区别了，一切都是为了一比一去复刻乔布斯，不直接塞记忆进去纯纯是因为那个时候的技术力做不到
+
