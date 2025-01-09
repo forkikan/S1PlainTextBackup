@@ -10595,3 +10595,13 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 那个情人节壁纸是AI图啊</blockquote>
 不是官方的吧？
 
+
+*****
+
+####  一心而用  
+##### 6855#       发表于 2025-1-9 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139225&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-9 18:35</a>
+不是官方的吧？</blockquote>
+不是官方的，所以我删掉了
+

@@ -580,3 +580,11 @@ Screenshot_20250103_185119.jpg
 
 顺便这新牢体验下来关感觉用别的120打困牢感觉还不如血魔队60星光直接p体验好，失败设计了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钟于123  
+##### 1050#       发表于 2025-1-9 18:54
+
+经典保底，200拿完人格+ego
+
