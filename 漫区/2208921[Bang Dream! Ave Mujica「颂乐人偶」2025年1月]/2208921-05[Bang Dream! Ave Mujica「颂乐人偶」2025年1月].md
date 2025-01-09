@@ -10521,3 +10521,13 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 ハルタスク_Harutask   ​​​
 <img src="https://p.sda1.dev/21/7b52c230d904af1d03d186e0afaa9b06/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 6847#       发表于 2025-1-9 17:41
+
+李子说钥匙意味深
+
+看op海铃背景的鸟笼算是个有锁的东西
+

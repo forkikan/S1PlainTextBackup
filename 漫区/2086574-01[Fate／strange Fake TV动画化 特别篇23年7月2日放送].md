@@ -7611,3 +7611,12 @@ fsf能加的多了
 
 <img src="https://pic1.imgdb.cn/item/677ce067d0e0a243d4f12476.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sokukei  
+##### 402#       发表于 2025-1-9 17:35
+
+找到专楼了留个脚印，newtype2月号有新绘柄<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">虽然只是监督访谈但还是买了
+期待定档吧
+
