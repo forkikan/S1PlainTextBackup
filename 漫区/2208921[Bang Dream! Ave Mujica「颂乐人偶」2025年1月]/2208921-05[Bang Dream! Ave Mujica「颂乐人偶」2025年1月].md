@@ -10987,3 +10987,28 @@ mana不会真是下一个乐队的吧
 
 啊？真奈真的有重要戏份？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jobtownb  
+##### 6894#       发表于 2025-1-9 22:08
+
+阿B官方字幕这么牛逼阿，哪个组做的？
+
+
+*****
+
+####  凉良  
+##### 6895#       发表于 2025-1-9 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140681&amp;ptid=2208921" target="_blank">Jobtownb 发表于 2025-1-9 22:08</a>
+阿B官方字幕这么牛逼阿，哪个组做的？</blockquote>
+官方组 魔法部译制司
+
+*****
+
+####  魔天使  
+##### 6896#       发表于 2025-1-9 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">好在没提前看，一话一话追爽
+

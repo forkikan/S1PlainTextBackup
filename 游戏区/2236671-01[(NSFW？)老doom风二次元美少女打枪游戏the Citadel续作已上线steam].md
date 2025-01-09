@@ -1145,3 +1145,18 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各位玩二代建议打完每章就去对应的ex关，给天赋，我攒到最后一章前才打发现给了好多天赋
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 111#       发表于 2025-1-9 22:06
+
+ 本帖最后由 哈迪斯兜帽 于 2025-1-9 22:07 编辑 
+
+感觉二代地图辨识度变低了（
+迷路转了半天愣是没看出来窗户外面是阳台<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+二代一上来就玩普通难度，感觉强度是大了好多，前期子弹还缺，打得不够爽。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
