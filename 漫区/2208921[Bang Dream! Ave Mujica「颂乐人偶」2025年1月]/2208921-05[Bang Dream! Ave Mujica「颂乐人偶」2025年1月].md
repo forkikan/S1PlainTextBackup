@@ -10511,3 +10511,13 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 
 不要再迫害mana了，也许她只是个像ksm妹妹一样补充人设的有建模配角<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6846#       发表于 2025-1-9 17:22
+
+第二话放送应援绘 三角初华 
+ハルタスク_Harutask   ​​​
+<img src="https://p.sda1.dev/21/7b52c230d904af1d03d186e0afaa9b06/image.jpg" referrerpolicy="no-referrer">
+
