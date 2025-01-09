@@ -1064,3 +1064,13 @@ maga声望啊
 如果是前者，那整个加 ...</blockquote>
 物理上很难做到那么大面积就一个省.毕竟行政区划分是实操上面的人管人的合理配比.
 
+
+*****
+
+####  wgoenitz  
+##### 99#       发表于 2025-1-9 15:08
+
+ 本帖最后由 wgoenitz 于 2025-1-9 15:09 编辑 
+
+有种德奥合并的美<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
