@@ -557,3 +557,26 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 这是参战协助加拿大尽快加入美国吗？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymm1030  
+##### 50#       发表于 2025-1-9 08:28
+
+阿三：你看这些白人，好像一条狗啊，说的好像这是他们的国家一样<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  殤之夜  
+##### 51#       发表于 2025-1-9 08:31
+
+大家那人普通百姓日子还是比牢美日子好过一点的吧
+
+*****
+
+####  E12  
+##### 52#       发表于 2025-1-9 08:33
+
+润了加拿大的是不是要高举五肢资瓷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
