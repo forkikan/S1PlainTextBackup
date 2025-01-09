@@ -1121,3 +1121,14 @@ Apex英雄在23赛季下半分赛（1月8日）的更新，把（所有）身法
 说起bug衍生动作，早期apex还有个冲刺继承人物舞蹈的，那个又帅又好按，结果被光速删除了 ...</blockquote>
 《身法》<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  obiy  
+##### 111#       发表于 2025-1-9 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133759&amp;ptid=2023880" target="_blank">FanKiE 发表于 2025-1-9 07:46</a>
+又改回来了，光速滑跪
+这个东西虽然是bug，但是经过这么多年的发展已经是游戏特色feature了，真不好乱改 ...</blockquote>
+跑跑卡丁车的拖漂一开始也是bug<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

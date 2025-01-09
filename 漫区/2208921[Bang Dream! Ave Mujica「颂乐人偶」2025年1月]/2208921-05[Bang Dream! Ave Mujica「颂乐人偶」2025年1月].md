@@ -9867,3 +9867,23 @@ ED後的C part也不容錯過！</strong>
 高尾　這很重要！希望大家別錯過C part。因為有很多串聯到下一話的重要場面……。
 渡瀨　ED曲非常的棒，敬請大家欣賞。
 
+
+*****
+
+####  山ノ内花音  
+##### 6788#       发表于 2025-1-9 09:21
+
+看来之后的每一集都会像前三集 看完了感觉大脑被创飞啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 6789#       发表于 2025-1-9 09:25
+
+ 本帖最后由 swessia 于 2025-1-9 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133554&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-1-9 02:37</a>
+
+正常人都知道这礼物是送给全员的，睦对灯也有一定的关心，将含有自己心意的黄瓜送给她们，祝福他们有一个新 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif">说句不好听的，如果最后睦的小黄瓜没退（灯希不会退），睦和go的关系就不会这么僵，睦也不会像现在这样孤立无援
+
