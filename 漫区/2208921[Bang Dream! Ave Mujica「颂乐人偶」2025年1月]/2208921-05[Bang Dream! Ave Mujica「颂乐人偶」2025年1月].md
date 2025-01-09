@@ -9887,3 +9887,16 @@ ED後的C part也不容錯過！</strong>
 正常人都知道这礼物是送给全员的，睦对灯也有一定的关心，将含有自己心意的黄瓜送给她们，祝福他们有一个新 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif">说句不好听的，如果最后睦的小黄瓜没退（灯希不会退），睦和go的关系就不会这么僵，睦也不会像现在这样孤立无援
 
+
+*****
+
+####  结衣小比取  
+##### 6790#       发表于 2025-1-9 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133452&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-9 01:23</a>
+
+光一句小细节就配了20遍才配出来，这种严格和细致程度的配音要求下声优的理解怎么可能有问题，更别说是两个 ...</blockquote>
+好像在去年年初，MyGO有个采访，羊宫说了不太合适的话，也有人感叹武士道居然没人审稿吗
+
+具体记不清了，不过本楼的其他坛友应该有记得的
+
