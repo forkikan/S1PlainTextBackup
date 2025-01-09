@@ -13484,3 +13484,43 @@ ttps://x.com/ZOC64833191/status/1877334363286753589
 
 ttps://x.com/FightingDodo95/status/1876297787958255719
 
+
+*****
+
+####  堆雪若叶  
+##### 7139#       发表于 2025-1-10 07:07
+
+<img src="https://p.sda1.dev/21/5f1be08b52b5ce7bda8438e33d608040/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000731.010.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d1e18de67b6b87305cf1d863dde46ff3/_ANi_ BanG Dream! Ave Mujica - 02 _1080P__Baha__WEB-DL__AAC AVC__CHT_.mp4_002029.217.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b7b563a18b4fe9445196821ec2bdc5c5/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000346.075.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fca67ba5c075de86b33a5038330c4258/_ANi_ BanG Dream! Ave Mujica - 02 _1080P__Baha__WEB-DL__AAC AVC__CHT_.mp4_002145.502.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a2582ea978caa4499dc39abedb4e31fd/_ANi_ BanG Dream! Ave Mujica - 02 _1080P__Baha__WEB-DL__AAC AVC__CHT_.mp4_002147.424.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wszweill  
+##### 7140#       发表于 2025-1-10 07:13
+
+ 本帖最后由 wszweill 于 2025-1-9 18:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142951&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-9 17:59</a>
+
+睦头人那么个高压环境，终归要爆个大的，两次加入祥子的乐队被各种压力，从结果上来说就是文火改爆炒
+
+— ...</blockquote>
+就目前的剧情来说，90%都是木头自己压力自己。
+
+rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆点说白了也就是很多人以名艺人女儿的身份采访木头导致她爆了。这个和rikki的姐姐ptsd不是一码事 ，毕竟姐妹是同位的竞争关系。但是母女通常不是。比如rikki对姐姐有 劣等感很 正常，但是木头作为一个16岁jk对父母有劣等感也 太怪了，一般青年剧的逻辑是木头作为名演员的女儿，受到了同龄人80，或者是前辈以及父母的严格要求 所以爆了。但是演出上感觉就是不知道 为啥 ，就内向小人突然嗷一声冯特了（
+
+只能说通过优秀 的演出，合理化了木头的母亲ptsd。但是实际上除了母女俩其实不熟外加母亲有点表演型人格之外，没有 特别的诱因<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 7141#       发表于 2025-1-10 07:14
+
+讲道理，如果抛开bangdream企划、肯定会成的乐队、美少女动画等等外在限制，只看这两集的剧情，最后真走到全员恶人、分崩离析也不奇怪吧。
+只能说强调冲突的剧本在连载这种形式下肯定会遇到角色被误解的情况，角色被骂基本是无法避免的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

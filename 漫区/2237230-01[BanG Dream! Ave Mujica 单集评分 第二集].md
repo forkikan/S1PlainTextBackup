@@ -742,3 +742,40 @@ md睡前美美睡一觉就哦过程变成压力测试了wtf
 
 小丑的问题是他觉得所有人都欠他的，而不是他的痛苦是假的
 
+
+*****
+
+####  AkaiSuisei  
+##### 79#       发表于 2025-1-10 07:06
+
+0
+
+还不如第一话
+
+哪有诊断书只写症状的，没有心理侧写，没有前因后果，就把一个上一话结尾就众人皆知的睦头要爆这点儿事儿啰嗦一整集，还顺便把大喵矮化成傻子
+
+你最好把睦崩溃的理由搞复杂一点，要是单纯的家庭背景导致的身份认同问题值得你折腾三话，那我就有利由相信当初的不和传闻是真事儿了
+
+*****
+
+####  hahass_  
+##### 80#       发表于 2025-1-10 07:09
+
++1
+
+太快了太快了，明显不够流畅
+
+
+*****
+
+####  Wondering  
+##### 81#       发表于 2025-1-10 07:11
+
+ 本帖最后由 Wondering 于 2025-1-10 07:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142212&amp;ptid=2237230" target="_blank">BlueDriver-mk2 发表于 2025-1-10 00:22</a>
+
+这片目前感觉有一个和《小丑》比较类似的问题，ave mujica里面除了祥子天崩开局以外，这艘银河战舰里面的人 ...</blockquote>
+所以小丑2直接撕碎了真相啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是真这么拍反而现实里观众也不乐意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
