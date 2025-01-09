@@ -8956,3 +8956,41 @@ Plasma是演唱会最后一首
 
 pv2能来个红高达的影子差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2169#       发表于 2025-1-9 21:08
+
+另外到这份上了，ED不可能是小卡拉米
+
+索系再来个大物唱ED吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 2170#       发表于 2025-1-9 21:09
+
+原来是律师拯救了没活的你楼，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 2171#       发表于 2025-1-9 21:09
+
+这次是先行剧场版主题曲，不知道tv是沿用还是换一套
+
+*****
+
+####  RE㐅ia  
+##### 2172#       发表于 2025-1-9 21:10
+
+都把律师请来了感觉没必要换吧
+
+*****
+
+####  古怪山庄士大夫  
+##### 2173#       发表于 2025-1-9 21:11
+
+电影主题曲就一首吧，米津可以看看是用作tv的op还是ed
+

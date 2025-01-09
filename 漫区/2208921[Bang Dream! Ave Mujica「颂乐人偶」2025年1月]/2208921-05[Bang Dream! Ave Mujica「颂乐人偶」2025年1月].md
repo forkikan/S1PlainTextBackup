@@ -10737,3 +10737,36 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 
 基本不会真确认关系的片怎么搞得你死我活的，有互动的自然有人磕，不管正面负面。
 
+
+*****
+
+####  6030sylar  
+##### 6871#       发表于 2025-1-9 21:12
+
+<img src="https://img.saraba1st.com/forum/202501/09/211207pgid3gx6xc26pcbl.png" referrerpolicy="no-referrer">
+
+<strong>KFE88(9E__{7NKQ}_G4{P.png</strong> (41.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/211212ih9189mtr31b7m18.png" referrerpolicy="no-referrer">
+
+<strong>%3SR{}010WK@3~4]PU7%VPC.png</strong> (20.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 21:12 上传
+
+弄弄不张口就挺好
+
+*****
+
+####  黑猫桑  
+##### 6872#       发表于 2025-1-9 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140129&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-9 20:55</a>
+有一部分人喜欢cp与角色无关也与作品无关，单纯是借壳来进行一种自我表达和投射来获得满足感罢了 ...</blockquote>
+这种典型的一个群体，腐女
+
