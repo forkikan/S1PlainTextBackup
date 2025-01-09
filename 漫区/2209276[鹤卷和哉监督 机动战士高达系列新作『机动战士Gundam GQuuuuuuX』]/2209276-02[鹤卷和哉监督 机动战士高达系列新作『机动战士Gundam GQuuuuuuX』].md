@@ -10353,3 +10353,14 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 这么说确实，盖亚齿轮的假鸭确实更像卡斯帕
 
+
+*****
+
+####  RE㐅ia  
+##### 2313#       发表于 2025-1-10 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142751&amp;ptid=2209276" target="_blank">patema 发表于 2025-1-10 02:13</a>
+
+不过我还是觉得卡斯帕那种纯纯记忆植入加模拟家庭还是太吓人了点。至少让玛秋过虚假生活的人的本意是为了 ...</blockquote>
+好像也没有植入记忆。就是单纯的处处模仿本体的成长环境罢了
+

@@ -13294,3 +13294,34 @@ soyo保持了执念，展现了自mygo第九集以来的怨念，她在第十三
 睦在家叫自己妈要直呼名字，这是一件看似一笔带过实则非常影响孩子心理的行为，关键还是妈要她这样叫的，这 ...</blockquote>
 所以睦头人某种程度上亲近SOYO是很正常的，在Crychic期间SOYO扮演了一个维护人际关系的“妈妈”角色，某种层度上弥补了睦的需求。然而SOYO本质上是极端讨好型人格，比起圣母那种太阳，更接近月亮甚至说是小卫星，再加上因为Crychic带来的一系列纠纷，导致睦最后反被伤害的厉害。期待黑睦和SOYO能有怎样的互动。
 
+
+*****
+
+####  Суслов  
+##### 7123#       发表于 2025-1-10 02:48
+
+看乐了，母鸡卡现在是名副其实的貌合神离<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反观mygo，在大喵事变之后分工明确，爱音负责盯守灯皇（虽然刚开始就没守住），rikki和soyo分头打探信息，只有小猫查无此人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Tienx  
+##### 7124#       发表于 2025-1-10 02:48
+
+灯那句有“我之前居然没发现祥子还有这样的心情”的感觉，也算是电波传递到了吧
+
+
+*****
+
+####  rzy  
+##### 7125#       发表于 2025-1-10 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141089&amp;ptid=2208921" target="_blank">威爾第晚禱 发表于 2025-1-9 22:39</a>
+
+不是小睦的错……
+
+说起来为什么木头会叫她妈妈本名，这里有什么深意吗（ ...</blockquote>
+我看到这第一时间想到 “阿瑟，请坐”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
