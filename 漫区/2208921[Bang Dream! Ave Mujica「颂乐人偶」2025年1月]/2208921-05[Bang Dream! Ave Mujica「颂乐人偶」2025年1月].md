@@ -10417,3 +10417,14 @@ mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能�
 
 结果手游的狗团剧情补上了，24才能参加
 
+
+*****
+
+####  斑驳的阴影  
+##### 6836#       发表于 2025-1-9 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133454&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-9 01:24</a>
+
+那时候战吧还很磕素睦 所以那时候吵特别厉害</blockquote>
+虽然我也很喜欢素睦但是那个黄瓜摆明就是给全员的嘛，只是soyo一眼知道是谁送的才会追出去退还
+
