@@ -380,3 +380,15 @@ gohands现在在邪教动画公司的路上越走越远了，但凡在突出人�
 <img src="https://p.sda1.dev/21/e1a3aec343d20d30e80c5d11998362ee/Gg3IT8YbYAAKov_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/54ef1061501338b8fe5ab1aab8fc25e7/Gg1cLOkaMAALvuE.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Wondering  
+##### 86#       发表于 2025-1-9 23:37
+
+ 本帖最后由 Wondering 于 2025-1-9 23:39 编辑 
+
+弹丸同款光速换主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话根本没掌握爆点的精髓，就应该最后几秒光速死亡，且死状越猎奇越好，不等人反应时间，像这种还响着bgm说遗言的算是个锤子爆点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

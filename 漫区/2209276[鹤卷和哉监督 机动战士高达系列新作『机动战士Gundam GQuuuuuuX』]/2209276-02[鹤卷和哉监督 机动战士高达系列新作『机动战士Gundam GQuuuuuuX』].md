@@ -9550,3 +9550,89 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 
 怎么又是米奇律师
 
+
+*****
+
+####  王留美  
+##### 2233#       发表于 2025-1-9 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141799&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-9 23:33</a>
+ 那基西莉娅是不是也活下来了</blockquote>
+大概率兄妹老爹都没死
+
+*****
+
+####  王留美  
+##### 2234#       发表于 2025-1-9 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141831&amp;ptid=2209276" target="_blank">hkguty 发表于 2025-1-9 23:36</a>
+ 怎么又是米奇律师</blockquote>
+问庵野
+
+*****
+
+####  刺客ares  
+##### 2235#       发表于 2025-1-9 23:37
+
+德金，基连，基西莉娅，卡尔玛这四个大概率都活下来了
+
+大猩猩倒是有可能会被爆炸波及死掉
+
+*****
+
+####  刺客ares  
+##### 2236#       发表于 2025-1-9 23:39
+
+如果白色木马都被俘了，那骡子一路上击败的吉翁ace们都可以暂时确认为存活
+
+
+*****
+
+####  纪寞  
+##### 2237#       发表于 2025-1-9 23:42
+
+如果主角团这次还是联邦方的话，某个金发墨镜男还在吗
+
+*****
+
+####  Toby_dak  
+##### 2238#       发表于 2025-1-9 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141780&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-10 00:32</a>
+
+为什么要走私这个东西，这不是只有副作用吗？（恼）</blockquote>
+机战30
+
+移動力+2、運動性・照準値+5、マップ兵器及び射程1以外の武器の射程+1
+
+*****
+
+####  刺客ares  
+##### 2239#       发表于 2025-1-9 23:45
+
+<img src="https://img.saraba1st.com/forum/202501/09/234433stti1urzeuz1puhp.png" referrerpolicy="no-referrer">
+
+<strong>1736437402102.png</strong> (96.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/234554rkj7eakrrtrdkptd.png" referrerpolicy="no-referrer">
+
+<strong>1736437487371.png</strong> (54.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:45 上传
+
+*****
+
+####  中野梓  
+##### 2240#       发表于 2025-1-9 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141903&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-9 23:42</a>
+
+如果主角团这次还是联邦方的话，某个金发墨镜男还在吗</blockquote>
+和红高达合二为一了吧
+

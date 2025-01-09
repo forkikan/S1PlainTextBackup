@@ -12094,3 +12094,155 @@ mana：真的动不动就有人在传要解散或者感情不和呢，害得我�
 
 所以这个Georgette Me是啥意思，怎么问了下GPT也没个出典。
 
+
+*****
+
+####  Yugao  
+##### 7006#       发表于 2025-1-9 23:36
+
+我现在想看初华发现小时候遇到的其实是睦之后是什么表情了
+
+*****
+
+####  鷇音子  
+##### 7007#       发表于 2025-1-9 23:37
+
+一点浅见，两集看下来AM几个人的问题
+
+祥子：大祥老师是真的有在背负队友的人生，行动能力极强但对细节的把控堪忧，她认为“这样做对对方好”她就会做，CRYCHIC退团、第一集忽视大喵的心情、第二集忽略睦头人的心情都在贯穿着这个思路，祥爹逼祥离开也是觉得女儿离开自己更好而无视女儿自己的想法，某种程度来说确实是亲父女，祥子真正的成长也会从其中展开
+
+​睦：睦头人的家庭一定有问题，几次提到睦爹都被生硬的转过话题，睦妈的状态也很奇怪，睦头手机里给睦妈的备注是米奈米酱（みなみちゃん），要知道睦头对祥子的备注也只是祥子（さきこ），而她和母亲的互动远远没有备注上写的那么亲密，以睦头表现出来的性格有极大概率陸妈不是她自己备注的，往下想就发现很可能是睦妈自己备注的，结合睦头“提线木偶”的人设，可以导出一个沉重的结论——睦头很可能被睦妈深度PUA着
+
+​初华：我一开始拜倒在圣初华之下，但是渐渐感觉初华重得令人发寒，她真正关心的人好像只有祥子一个人，对于其他人，包括甜甜圈女士和睦头在内的四个现队友，她在温柔的表象下是极致的冷漠，Mygo!!!!!中她轻易看出灯的心事并开导，却没有发现大喵和睦头的异样，有没有可能是她故意没有发现呢？如果后面揭晓她故意纵容大喵和睦头的失控，只为了让祥子更依赖甚至只能依赖她三角初华，那我也丝毫不会意外
+
+​海铃：乌米铃在第一季说过羡慕狸希有自己的乐队，可是到目前为止并没看出来她对于融入集体有做什么努力，她能接住大喵开玩笑，但坚持对所有人使用敬语，甚至还同时在不止一个乐队串场，也许她想要的不是可以交心的伙伴，只是可以跟上自己速必得的队友？现在看来乌米铃换了几十个乐队仍然找不到自己的归宿，她自己的问题也是很大的，是目前最捉摸不透的角色
+
+​若麦：大喵就很好懂，基本上PV就把就把她的内驱力爆完了，大喵应该会在团队破碎后重新捏合的过程中起到重要作用，一来她的问题最简单，转变起来最容易，动机也够充足，二来她是最不守规矩的人，可以成为破局的关键，三来她目前的人设基本已经在谷底了，后续必须要给足够的高光剧情，大胆预测大喵是解决睦头家庭问题的MVP
+
+*****
+
+####  PDQ4  
+##### 7008#       发表于 2025-1-9 23:37
+
+这公式约稿，wsd是真的过分吧
+
+看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+[https://x.com/kurehalxxx/status/1877365978817798461](https://x.com/kurehalxxx/status/1877365978817798461)
+
+<img src="https://img.saraba1st.com/forum/202501/09/233637fletht032nk2n0k1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (486.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:36 上传
+
+*****
+
+####  三尖酸努努  
+##### 7009#       发表于 2025-1-9 23:38
+
+这集几乎全在铺雷啊，mygo、sumimi还有最主要的睦，雷多还不杂乱，脚本挺厉害的，就是不敢想后面会怎么爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对睦家庭的呈现很不错，看着是真觉得诡异，低气压方面的演出也是相当直观氛围拉满了。就是关于睦爆雷的原因并没交代完，几乎全程都是用演出撑的观感，看后面怎么讲吧
+
+*****
+
+####  结衣小比取  
+##### 7010#       发表于 2025-1-9 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140648&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-9 22:07</a>
+
+话说op里很多旋转的东西，旋转木马摩天轮之类的，是代表什么意象吗</blockquote>
+推荐看一下这两个视频：
+[https://www.bilibili.com/video/BV1H6kHY5EMC](https://www.bilibili.com/video/BV1H6kHY5EMC)
+[https://www.bilibili.com/video/BV1gqk8YEE1n](https://www.bilibili.com/video/BV1gqk8YEE1n)
+
+*****
+
+####  Mikumiku831  
+##### 7011#       发表于 2025-1-9 23:40
+
+别伤害我的木头人了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 7012#       发表于 2025-1-9 23:40
+
+<img src="https://img.saraba1st.com/forum/202501/09/234042jtwfw12twq93q9tq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1284.jpeg</strong> (215.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-9 23:40 上传
+
+这么瑟情
+
+
+*****
+
+####  MASKA-1  
+##### 7013#       发表于 2025-1-9 23:42
+
+无处可逃
+
+*****
+
+####  bird-lay  
+##### 7014#       发表于 2025-1-9 23:43
+
+睦在采访的时候说的“不会长久”是什么意思，不会真的是妈妈在家里念她吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吹楼伞人  
+##### 7015#       发表于 2025-1-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141913&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:43</a>
+睦在采访的时候说的“不会长久”是什么意思，不会真的是妈妈在家里念她吧 ...</blockquote>
+那句是之前祥说的mujica现在这个工作量饱和把所有人累半死的状态不会长久
+她念这个可能是给自己鼓劲，忍忍就过了 没想到念出声了
+
+*****
+
+####  影伴光生  
+##### 7016#       发表于 2025-1-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141913&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:43</a>
+睦在采访的时候说的“不会长久”是什么意思，不会真的是妈妈在家里念她吧 ...</blockquote>
+是复读祥子之前说过的话
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  whzfjd  
+##### 7017#       发表于 2025-1-9 23:45
+
+ED 看起来像是五个人的信物，那初华是 mujica 面具就太哈人了
+
+*****
+
+####  akiomn  
+##### 7018#       发表于 2025-1-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141913&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:43</a>
+睦在采访的时候说的“不会长久”是什么意思，不会真的是妈妈在家里念她吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看前面剧情祥子的话，你会发现有相同的
+睦只是单纯有祥有祥而已
+
+*****
+
+####  novalli  
+##### 7019#       发表于 2025-1-9 23:45
+
+中间mygo部分的对话有点微妙的错位：
+立希是知道睦不喜欢别人关注的
+她们似乎没有意识到摘面具是意外事件，以为是安排好的剧本
+结合soyo说的乐队的组建和剧本都是祥子负责的，也就可能认为是祥子要求的要让睦摘面具、被人关注
+
+如果以上成立，那么祥子在立希、soyo和爱音那里大概率评价会降低。灯的关注点在于音乐中呈现的“不同的祥子”，可能没太在意舞台剧的部分。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
