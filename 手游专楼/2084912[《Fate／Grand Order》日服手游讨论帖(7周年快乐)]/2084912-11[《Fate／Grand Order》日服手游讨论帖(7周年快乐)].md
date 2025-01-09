@@ -10123,3 +10123,14 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 欧 羡慕 狗萌新又有什么2宝的了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如你狗  说的当然是学姐 我考虑是开ex 爆伤 减cd还是120+2ex
 
+
+*****
+
+####  qixinno2  
+##### 16042#       发表于 2025-1-9 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136653&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-9 13:42</a>
+
+不如你狗  说的当然是学姐 我考虑是开ex 爆伤 减cd还是120+2ex</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗个毛线 学姐就1宝 马上14绊了 补不补宝都快下岗了
+
