@@ -794,3 +794,11 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  f.w.  
+##### 74#       发表于 2025-1-9 10:08
+
+加拿大的防空归北美防空司令部管吧，连制空权都没有的国家抵抗啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

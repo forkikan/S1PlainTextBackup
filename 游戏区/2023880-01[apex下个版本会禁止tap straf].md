@@ -1132,3 +1132,11 @@ Apex英雄在23赛季下半分赛（1月8日）的更新，把（所有）身法
 这个东西虽然是bug，但是经过这么多年的发展已经是游戏特色feature了，真不好乱改 ...</blockquote>
 跑跑卡丁车的拖漂一开始也是bug<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 112#       发表于 2025-1-9 10:04
+
+早几把该删了，日本人转换器一键身法真没意思啊
+
