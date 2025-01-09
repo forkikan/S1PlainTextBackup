@@ -13344,3 +13344,27 @@ soyo保持了执念，展现了自mygo第九集以来的怨念，她在第十三
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说满脑子都是自己的别急，第三集就懂祥子怎么想的了
 也许对睦来说，祥子满脑子都是自己可能真的会比现在的情况要好点
 
+
+*****
+
+####  wszweill  
+##### 7128#       发表于 2025-1-10 03:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141645&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-9 10:23</a>
+
+祥子活太多（半夜还要努力写新的小剧场来处理被大喵破坏的世界观）已经无暇顾及他人了，休息室里闭目养神 ...</blockquote>
+那都节骨眼了，木头爆解散宣言的时候就该注意到状态不对劲 了。事实上木头爆了之后祥子只会上 压力<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
+
+对比初华就很明显了，初华是明显感到祥子压力大的。等木头摇摇晃晃上台那都啥时候了（
+
+我觉得就是编剧为了爆点，强行A团情商调低了。同样是爆典，祥子拷打大猫的话都比和木头人话多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  helloo23  
+##### 7129#       发表于 2025-1-10 03:13
+
+海铃估计是真不知道crychic有祥子，立希没说，mujica这几位不像会聊天的。
+
+一群冷淡的打工人.jpg
+

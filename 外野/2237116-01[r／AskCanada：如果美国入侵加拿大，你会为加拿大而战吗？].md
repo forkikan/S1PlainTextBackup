@@ -1159,3 +1159,13 @@ Reddit很多大版块都是bot和各种水军
 
 [https://www.reddit.com/r/EhBuddyHoser/s/9uOjTwNc7V](https://www.reddit.com/r/EhBuddyHoser/s/9uOjTwNc7V)
 
+
+*****
+
+####  zodiac137  
+##### 105#       发表于 2025-1-10 03:11
+
+<blockquote>黑羽零 发表于 2025-1-8 23:39
+两边白皮都有毛病是吧，每次都想为了不存在的纷争，不存在的利益打仗，没头没脑的去杀人，又没头没脑的死， ...</blockquote>
+怎么还认真上了，本来又不可能真打，就是打打嘴炮而已。我和蛙蛙吵也经常说等到时候杀你全家，不都是说说而已，对这个认真显得有点太好笑了吧…
+
