@@ -10099,3 +10099,16 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 2宝多少羁绊能点3被动？
 
+
+*****
+
+####  qixinno2  
+##### 16040#       发表于 2025-1-9 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136342&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-9 13:03</a>
+
+2宝多少羁绊能点3被动？
+
+没事了 差了下要11羁绊  2被动120要14羁绊。。那不点第3被动了 还是120提升大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新又有什么2宝的了
+
