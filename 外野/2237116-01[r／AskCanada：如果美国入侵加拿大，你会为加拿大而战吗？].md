@@ -700,3 +700,48 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 <img src="https://p.sda1.dev/21/113578680e5f2ff73c6d7b156e9ee583/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNICORN00  
+##### 65#       发表于 2025-1-9 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133843&amp;ptid=2237116" target="_blank">auraria 发表于 2025-1-9 08:19</a>
+指望东大卖军火不如找CIA更实际些
+
+—— 来自 鹅球 v3.3.96</blockquote>
+“我们要从美国进口武器”
+“for what？”
+“保卫加拿大不被美国入侵”
+
+“为了保卫加拿大”
+“不，是让人民相信加拿大受到保卫”
+“让美国人？”
+“不，让加拿大人。美国人知道没有”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lindsayllx  
+##### 66#       发表于 2025-1-9 09:46
+
+修改协议 允许合并<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  last_regret  
+##### 67#       发表于 2025-1-9 09:47
+
+我觉得从军事和统治上都不会遇到什么像样的抵抗，美国对付加拿大不会比对付印第安人更麻烦
+
+—— 来自 Xiaomi M2103K19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  sagajytc  
+##### 68#       发表于 2025-1-9 09:50
+
+加拿大带路党肯定是不少的
+
