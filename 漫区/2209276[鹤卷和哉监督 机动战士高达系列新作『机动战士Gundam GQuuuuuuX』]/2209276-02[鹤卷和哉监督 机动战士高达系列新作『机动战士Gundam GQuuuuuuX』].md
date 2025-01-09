@@ -9781,3 +9781,27 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 换磁气覆膜就可以了（</blockquote>
 别磁气覆膜了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">，哪怕是nt1在0085也好吧。别告诉我这世界别人都用高达尼姆合金γ了，红高达还是月神钛
 
+
+*****
+
+####  Gysumitka  
+##### 2258#       发表于 2025-1-10 00:27
+
+<img src="https://p.sda1.dev/21/41d620bd2ed0c65205e36d9be79162bf/image.jpg" referrerpolicy="no-referrer">
+@muu excelsior
+
+*****
+
+####  Sliurus  
+##### 2259#       发表于 2025-1-10 00:27
+
+突然有点好奇会不会复刻黑色三连星的名场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 2260#       发表于 2025-1-10 00:33
+
+明早起来准时观察霓虹厨豚reaction（
+
