@@ -1002,3 +1002,45 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 马斯克是南非白人移民，要想选总统还得吞南非。
 
+
+*****
+
+####  ysys  
+##### 93#       发表于 2025-1-9 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132934&amp;ptid=2237116" target="_blank">lionheart 发表于 2025-1-8 22:59</a>
+
+但美国不是事实上已经用宗主国的形式统治了加拿大么，合并后还会多承担原先不用管的一些义务，
+
+除了名义上 ...</blockquote>
+maga声望啊
+
+川帝可不就喜欢这调调
+
+*****
+
+####  darkking1200  
+##### 94#       发表于 2025-1-9 14:46
+
+辐射世界观里美国就吞并了加拿大。然后辐射1/2里没怎么说，到了辐射战略版里各种相关事件一大堆。没想到有朝一日还能现实复刻……
+
+
+*****
+
+####  风夏  
+##### 95#       发表于 2025-1-9 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136981&amp;ptid=2237116" target="_blank">猪突猛进R 发表于 2025-1-9 14:18</a>
+
+马斯克是南非白人移民，要想选总统还得吞南非。</blockquote>
+改宪法不就得了....
+
+美国本土出生的国民和世界首富可以竞选总统
+
+*****
+
+####  哌啶  
+##### 96#       发表于 2025-1-9 14:55
+
+统一北美之后美国能不能跟着加拿大用公制单位啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
