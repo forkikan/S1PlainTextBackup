@@ -8994,3 +8994,18 @@ pv2能来个红高达的影子差不多了<img src="https://static.saraba1st.com
 
 电影主题曲就一首吧，米津可以看看是用作tv的op还是ed
 
+
+*****
+
+####  中野梓  
+##### 2174#       发表于 2025-1-9 21:20
+
+所以确定是季番了吗？还是分割播放？
+
+*****
+
+####  灵魂收割机  
+##### 2175#       发表于 2025-1-9 21:23
+
+法师OP，光姨ED<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
