@@ -1129,3 +1129,11 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 一代难度高吗，二代摸完想玩下前作了</blockquote>
 只比二简单，不会比二难。我在一楼也说了。二代是一代全面威力加强版，包括枪战方面也是全面细化(更难)。
 
+
+*****
+
+####  manyin1  
+##### 109#       发表于 2025-1-9 15:16
+
+还是想看下2代的世界观的，先学习版有中文再补上车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -10368,3 +10368,40 @@ mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能�
 <img src="https://p.sda1.dev/21/1a8eab0c0a0e8a9d993a7df0b2a27628/73c3d039gy1hxebvyd1uej215k0t2ajg.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/6120761be3b4277f250b29e774b8d830/73c3d039gy1hxebvynxcgj215k0t246s.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 6831#       发表于 2025-1-9 15:21
+
+我怎么记得挺好萌入围条件里必须有<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">这个表情，现在也是变成xjb玩了吗
+
+*****
+
+####  akiomn  
+##### 6832#       发表于 2025-1-9 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好萌现在已经变成人气投票了
+祥子挺吗？压根不挺，灯又不是祥子真的白月光，而且祥子身边还有睦和初华
+睦挺吗？满脑子都是祥子，而且最后百分百能届到
+
+*****
+
+####  qjw114514  
+##### 6833#       发表于 2025-1-9 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133554&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-1-9 02:37</a>
+正常人都知道这礼物是送给全员的，睦对灯也有一定的关心，将含有自己心意的黄瓜送给她们，祝福他们有一个新 ...</blockquote>
+某些人当初先是不承认声优访谈，典中典“声优懂什么剧情”，然后被访谈打脸，立刻撒泼打滚“动画里表现就是跟访谈不一样”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这两步都不管用那就改口谁给谁的都不重要，重要的是睦<strong>送给mygo全员</strong>的礼物被素退掉了，这让睦很受伤，说明素在睦心里太重要啦!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 6834#       发表于 2025-1-9 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67137468&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-9 15:21</a>
+
+我怎么记得挺好萌入围条件里必须有这个表情，现在也是变成xjb玩了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码这个表情还是要有的（虽然睦入围用的是哪个想不起来了）
+
