@@ -9297,3 +9297,111 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 
 就是还行，没有其他的感想<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2208#       发表于 2025-1-9 23:17
+
+<img src="https://img.saraba1st.com/forum/202501/09/231632bxck3oila33d6r6f.png" referrerpolicy="no-referrer">
+
+<strong>1736435715700.png</strong> (75.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:16 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/231635klojkeo90lfxem4k.png" referrerpolicy="no-referrer">
+
+<strong>1736435721050.png</strong> (62.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:16 上传
+
+白色木马都被吉翁俘虏了...
+
+*****
+
+####  Gysumitka  
+##### 2209#       发表于 2025-1-9 23:18
+
+后面能开着跑吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 2210#       发表于 2025-1-9 23:19
+
+ 本帖最后由 纪寞 于 2025-1-9 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141530&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-9 23:15</a>
+
+......这人不会是那谁吧</blockquote>
+估计是了。那之前一些想法也要改了。可能TV开始才是红高达的第一次出现，吉翁还在忌惮红高达引发的爆炸，夏利尔的部队是为了确认红高达才过来这边的，升重估计是以红高达为假想敌设计出来的，之前应该没交过手。
+
+*****
+
+####  patema  
+##### 2211#       发表于 2025-1-9 23:19
+
+感觉就是开着跑路吧，联邦残党？
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 2212#       发表于 2025-1-9 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141530&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-9 23:15</a>
+
+......这人不会是那谁吧</blockquote>
+别说你还真别说，该有的特征都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wasssf  
+##### 2213#       发表于 2025-1-9 23:22
+
+先质疑了
+
+*****
+
+####  巴尔干炮  
+##### 2214#       发表于 2025-1-9 23:22
+
+多活了几年反而比原版更年轻的夏利尔。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 2215#       发表于 2025-1-9 23:24
+
+现在怀疑在side6不止藏了修司一个人，甚至直接藏了一船人<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2216#       发表于 2025-1-9 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过上好日子的夏利尔
+
+*****
+
+####  刺客ares  
+##### 2217#       发表于 2025-1-9 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141586&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-9 23:19</a>
+
+估计是了。那之前一些想法也要改了。可能TV开始才是红高达的第一次出现，吉翁还在忌惮红高达引发的爆炸， ...</blockquote>
+之前还想过高达都被鸭子夺走，停在一旁的白色木马难道会直接击毁吗
+
+现在一看PV里的舰首应该也是被打包带走了？这样有德和骡子应该也都被俘虏了吧？
+
+*****
+
+####  没取名啊  
+##### 2218#       发表于 2025-1-9 23:24
+
+米奇律师就应该再找个人唱他的歌
+比如，初音未来
+

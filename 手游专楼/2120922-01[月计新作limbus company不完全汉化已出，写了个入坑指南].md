@@ -628,3 +628,23 @@ Screenshot_20250103_185119.jpg
 
 2025-1-9 22:52 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 1054#       发表于 2025-1-9 23:16
+
+ 本帖最后由 Jamaisvu 于 2025-1-9 23:19 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/09/231535wz76xd8pdwx6hfpc.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_684.jpg</strong> (347.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:15 上传
+
+我用魔弹奥带魔弹ego单通的活动关，看到脑残哥突然蹦出来，差点幻视成魔弹奥跳反 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（假如出色彩人格的话，希斯克利夫肯定和漆黑缄默相性好。如果把奥姨的佩涅洛佩设定成妹妹，那我推荐她当苍蓝残响<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
+

@@ -10154,3 +10154,14 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 萌新光速寄 为什么不能和漏油一样欧 抽啥出啥 为什么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新你那顶多一发十连的石头还想什么呢 青子双黄后你也太膨胀了
 
+
+*****
+
+####  alucardcz  
+##### 16045#       发表于 2025-1-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141526&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-9 23:14</a>
+
+狗萌新你那顶多一发十连的石头还想什么呢 青子双黄后你也太膨胀了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">尬黑呢  还有20涨护符 整整30抽！
+

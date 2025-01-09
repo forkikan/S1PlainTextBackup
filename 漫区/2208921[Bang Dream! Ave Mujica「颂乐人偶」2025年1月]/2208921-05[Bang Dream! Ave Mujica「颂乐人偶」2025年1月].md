@@ -11856,3 +11856,134 @@ mana：真的动不动就有人在传要解散或者感情不和呢，害得我�
 
 在祥子望向阁楼的时候初华是不是后悔没在十秒里把楼梯拆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  试制甲炮  
+##### 6983#       发表于 2025-1-9 23:16
+
+另外喵梦这设计的摘面具虽然自己没吸到太多流量（不过也有万把点赞了），但是确实是没法轻易被优化了，祥子只能指责两句然后在台词里头阴阳一下。
+
+*****
+
+####  AveMujica  
+##### 6984#         楼主| 发表于 2025-1-9 23:16
+
+[Georgette Me, Georgette You ](https://www.bilibili.com/bangumi/play/ep1365126)
+
+<img src="https://img.saraba1st.com/forum/202501/09/231652os8n8iks2glo1x31.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:16 上传
+
+*****
+
+####  CCCTHUN  
+##### 6985#       发表于 2025-1-9 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141082&amp;ptid=2208921" target="_blank">stormist 发表于 2025-1-9 22:38</a>
+
+一个感觉不一定对，这集祥子返校手上捏着个便签。
+
+不会是高松灯每天往祥子鞋柜里塞小纸条吧？ ...</blockquote>
+你说祝我幸福。那我问你，那我问你，你幸福吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 6986#       发表于 2025-1-9 23:18
+
+灯担心睦头，立希为睦头说话，而作为幼驯染的大祥对睦头一点关心都没有，完全说不过去
+
+*****
+
+####  鱼丈人  
+##### 6987#       发表于 2025-1-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141470&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-9 23:11</a>
+祥老师压力也爆了啊。后面过劳倒下/乐队出矛盾停摆，人类桥上飞人，感觉至少会有一个
+
+—— 来自 S1Fun ...</blockquote>
+我来预测后续剧情
+
+*****
+
+####  鱼丈人  
+##### 6988#       发表于 2025-1-9 23:19
+
+我来预测后面谁爆怎么爆，
+海玲兼职太多，过劳患上不治之症/在赶场子打工的路上发生车祸，在病床上躺完后十集，最后大家围在床边哦没得多，目送海玲音容宛在；
+喵梦在自己账号上搞软涩情打擦边球不小心露点越界被封号，不但失去自己账号收入还因为舆论压力被暂停乐队活动，无法维持生计遂只能联系上我这种优质粉丝大叔，相约在小巷后面她上了奔驰车……
+
+*****
+
+####  sauron.j  
+##### 6989#       发表于 2025-1-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141445&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:09</a>
+
+睦家里很不对劲啊，女儿抱着吉他坐了一晚没睡觉父母都没发现吗，而且应该不是第一次了，还是说房子太大了注 ...</blockquote>
+睦头天天在下面练习，把椅子都坐烂了，母亲却说平时没人用。可想而知对自己孩子做什么、喜欢什么无关心
+
+*****
+
+####  吹楼伞人  
+##### 6990#       发表于 2025-1-9 23:20
+
+<img src="https://p.sda1.dev/21/c17f9a41ee66b092ecb1903a46c33c31/image.png" referrerpolicy="no-referrer">
+
+一个细节，祥进门以后初华说睡哪里好，祥子瞄了眼沙发，肯定一开始是考虑要不直接睡沙发也能接受，结果看到阁楼的梯子了
+
+而初华提这个说不定是想睡一起<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  试制甲炮  
+##### 6991#       发表于 2025-1-9 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141558&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-9 23:17</a>
+
+你说祝我幸福。那我问你，那我问你，你幸福吗？</blockquote>
+我姓丰川（即答）。
+
+*****
+
+####  鱼丈人  
+##### 6992#       发表于 2025-1-9 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141545&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:15</a>
+以及初祥第二集就同居了后面会怎样简直不敢想
+
+在祥子望向阁楼的时候初华是不是后悔没在十秒里把楼梯拆了 ...</blockquote>
+改剧本的时候明显已经事后了，你别想骗我<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 6993#       发表于 2025-1-9 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141570&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-9 23:18</a>
+灯担心睦头，立希为睦头说话，而作为幼驯染的大祥对睦头一点关心都没有，完全说不过去 ...</blockquote>
+祥子活太多（半夜还要努力写新的小剧场来处理被大喵破坏的世界观）已经无暇顾及他人了，休息室里闭目养神完全没看到睦的状态
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  莉缇娅  
+##### 6994#       发表于 2025-1-9 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我突然有点害怕看tmr给skk写，“你幸福吗？”
+
+*****
+
+####  akiomn  
+##### 6995#       发表于 2025-1-9 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子现在……丧母＋c团解散＋春日影＋亲爹颓废切割＋事务所压力＋超负荷工作＋和喵梦对线＋第四集大概率还要和某人继续对线收拾（可能还要收拾烂摊子）
+精神状态实际比睦也好不到哪去的，就是锁血嗯撑着，只差再来个大事件就能把祥子击沉了
+
