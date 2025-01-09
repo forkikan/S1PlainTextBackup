@@ -13536,3 +13536,16 @@ rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 7143#       发表于 2025-1-10 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142975&amp;ptid=2208921" target="_blank">wszweill 发表于 2025-1-10 07:13</a>
+
+就目前的剧情来说，90%都是木头自己压力自己。
+
+rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆 ...</blockquote>
+没那么简单，下一话会讲，这里不剧透
+
