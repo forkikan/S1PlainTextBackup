@@ -10613,3 +10613,21 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不小心推算出那一堆演技书高概率是初华的，我怕了
 
+
+*****
+
+####  Raven314  
+##### 6857#       发表于 2025-1-9 20:03
+
+是喵梦的吧，她一直向祥子强调自己演技出众
+
+*****
+
+####  狮子咕  
+##### 6858#       发表于 2025-1-9 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139809&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-9 20:03</a>
+
+是喵梦的吧，她一直向祥子强调自己演技出众</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三集给了她的书架一个镜头，完全不一样
+

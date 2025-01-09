@@ -1137,3 +1137,11 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 还是想看下2代的世界观的，先学习版有中文再补上车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 110#         楼主| 发表于 2025-1-9 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各位玩二代建议打完每章就去对应的ex关，给天赋，我攒到最后一章前才打发现给了好多天赋
+
