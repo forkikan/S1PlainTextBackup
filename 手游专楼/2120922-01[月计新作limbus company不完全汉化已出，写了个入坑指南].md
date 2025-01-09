@@ -599,3 +599,16 @@ Screenshot_20250103_185119.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  salic428  
+##### 1052#       发表于 2025-1-9 19:27
+
+ 本帖最后由 salic428 于 2025-1-9 19:29 编辑 
+
+小夫四破之后普通技能只看白字都个个触目惊心
+新一代牢内判定王（上一个还是开服的剑辛和大宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或许还有个魔弹奥）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -10605,3 +10605,11 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 不是官方的吧？</blockquote>
 不是官方的，所以我删掉了
 
+
+*****
+
+####  狮子咕  
+##### 6856#       发表于 2025-1-9 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不小心推算出那一堆演技书高概率是初华的，我怕了
+
