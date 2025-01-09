@@ -22,3 +22,15 @@
 
 永恒太劲了，为了扩大受众肯定要弄的淡一点，然后内部玩起来又变成觉得太淡了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰色的狐狸  
+##### 176#       发表于 2025-1-10 01:07
+
+打完永恒回去打16打得想睡觉。。
+
+倒是高难度的64不错
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

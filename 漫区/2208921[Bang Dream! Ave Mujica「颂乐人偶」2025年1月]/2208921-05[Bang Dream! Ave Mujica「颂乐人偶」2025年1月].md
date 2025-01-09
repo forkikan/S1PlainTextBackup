@@ -12921,3 +12921,77 @@ Georgette这个应该是一种高级丝织物的名字吧
 
 我还说初华啥都看见了都当作没发生<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 7087#       发表于 2025-1-10 01:07
+
+这集居然有你祥的“哈？”
+越想越好笑
+喵梦真是个有趣的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 7088#       发表于 2025-1-10 01:07
+
+我是睦头人我觉得给压力最大的还是父母
+
+若无其事的就把人带进自己的避风港<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 7089#       发表于 2025-1-10 01:09
+
+喵梦这角色的动作和表情下了很多功夫。已经到有意为之的程度了。
+
+
+*****
+
+####  jyhldlagen  
+##### 7090#       发表于 2025-1-10 01:11
+
+ 本帖最后由 jyhldlagen 于 2025-1-10 01:13 编辑 
+
+soyo的条目已经上了villains wiki了，是“恶棍”了
+
+<img src="https://img.saraba1st.com/forum/202501/10/011053x04ow3o9f03hit53.png" referrerpolicy="no-referrer">
+
+<strong>2025-1-10 1-7-28.png</strong> (492.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 01:10 上传
+
+*****
+
+####  Aendst  
+##### 7091#       发表于 2025-1-10 01:11
+
+有很多表情特写看起来采用了2D手绘，制作上很用心了
+
+*****
+
+####  厨厨  
+##### 7092#       发表于 2025-1-10 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142427&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-10 00:55</a>
+
+刚接触的时候说观众都嗜血长颈鹿也是骗到我了 现在外面完全变成角色厨互车
+
+我感觉这集大家行动都很符合自 ...</blockquote>
+这是个好事儿啊
+
+热度拉满是本意如此，饭圈化是爆金币正道
+
+*****
+
+####  一个陆仁贾  
+##### 7093#       发表于 2025-1-10 01:16
+
+母鸡卡两集就把压抑的气氛推到比当初mygo八九集还高的境界了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
