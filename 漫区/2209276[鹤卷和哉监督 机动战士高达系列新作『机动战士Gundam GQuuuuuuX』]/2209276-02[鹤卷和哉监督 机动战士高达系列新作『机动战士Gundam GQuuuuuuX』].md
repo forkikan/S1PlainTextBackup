@@ -8813,3 +8813,31 @@ Plasma是演唱会最后一首
 
 明天快发pv2吧
 
+
+*****
+
+####  oi99o  
+##### 2156#       发表于 2025-1-9 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139999&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-9 20:35</a>
+
+上次地球仪也是演唱会公布的吧
+
+看推上律师演唱会相关推文下基本锤了
+
+应该这次也是提前一周在演唱会上公布 ...</blockquote>
+地球仪当时是提前半个月的演唱会唱了，只说了是新歌。电影上映当天才公布的tie
+
+
+*****
+
+####  刺客ares  
+##### 2157#       发表于 2025-1-9 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140081&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-9 20:48</a>
+
+地球仪当时是提前半个月的演唱会唱了，只说了是新歌。电影上映当天才公布的tie ...</blockquote>
+那次是宫老说不宣传嘛
+
+这次肯定砸资源狠狠炒热度了，已经看到有姨姥开始咋舌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

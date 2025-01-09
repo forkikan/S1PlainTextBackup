@@ -10693,3 +10693,14 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 
 终于开了。byd上个礼拜初祥不给开美颜这次就给开是吧
 
+
+*****
+
+####  Aendst  
+##### 6866#       发表于 2025-1-9 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139922&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-1-9 20:22</a>
+
+我最反感的就是她们那种透露出来的龌龊想法，睦被她们塑造成一心一意对着素世好，围绕她打转，然 ...</blockquote>
+有一部分人喜欢cp与角色无关也与作品无关，单纯是借壳来进行一种自我表达和投射来获得满足感罢了
+
