@@ -9770,3 +9770,14 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
  我倒不希望这样，这搞得换机都换不利索了，红高达都多老的东西了</blockquote>
 换磁气覆膜就可以了（
 
+
+*****
+
+####  纪寞  
+##### 2257#       发表于 2025-1-10 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142148&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-10 00:13</a>
+
+换磁气覆膜就可以了（</blockquote>
+别磁气覆膜了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">，哪怕是nt1在0085也好吧。别告诉我这世界别人都用高达尼姆合金γ了，红高达还是月神钛
+
