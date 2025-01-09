@@ -1147,3 +1147,15 @@ Numquam Concedere--永不放弃！
 最麻幻想</blockquote>
 这是比利时人拱火么，哈哈哈
 
+
+*****
+
+####  Illidan  
+##### 104#       发表于 2025-1-10 01:23
+
+Reddit很多大版块都是bot和各种水军
+
+你看看一些reddit小众板块，加拿大本地人，那都是臭茅坑的顽石，让他们做美国人不如杀了他
+
+[https://www.reddit.com/r/EhBuddyHoser/s/9uOjTwNc7V](https://www.reddit.com/r/EhBuddyHoser/s/9uOjTwNc7V)
+

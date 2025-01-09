@@ -9998,3 +9998,91 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 因为这俩人不是第一次见面，很可能之前就已经在side6合作走私过几次，是同一个阵线的关系
 
+
+*****
+
+####  虛無迴廊  
+##### 2279#       发表于 2025-1-10 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142424&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-10 00:54</a>
+本来就没有一丝一毫的这种可能性吧？</blockquote>
+之前持这种看法的人还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 2280#       发表于 2025-1-10 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142195&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-10 00:18</a>
+ 别磁气覆膜了，哪怕是nt1在0085也好吧。别告诉我这世界别人都用高达尼姆合金γ了，红高达还是月神钛 ...</blockquote>
+你不知道这个世界线的科技树会怎么发展
+
+主世界阿纳海姆是在整合了联邦MS技术的前提下还吸收了大量鸡瘟系的技术
+反过来说在GQX世界线上吉翁系公司有没有吸收联邦的MS技术还是未知数（抛开逆向782不提）
+
+嘛，我认为在GQX世界线是没有定位和GP计划类似的MS机体群的
+对于精神力(塞可缪）技术的开发方向因为所罗门冲击也有可能和主世界不太一样
+
+
+*****
+
+####  Toby_dak  
+##### 2281#       发表于 2025-1-10 01:20
+
+<img src="https://img.saraba1st.com/forum/202501/10/022014hseei2ckik4wkn2r.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (26.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 01:20 上传
+
+1月10日
+
+1月17日
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 2282#       发表于 2025-1-10 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142557&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-10 01:18</a>
+ 之前持这种看法的人还挺多的</blockquote>
+如果不是为了讽刺水魔而是真心这么认为的话我只能说他们毫无动画阅历了
+
+*****
+
+####  纪寞  
+##### 2283#       发表于 2025-1-10 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142559&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-10 01:18</a>
+
+你不知道这个世界线的科技树会怎么发展
+
+主世界阿纳海姆是在整合了联邦MS技术的前提下还吸收了大量鸡瘟系 ...</blockquote>
+但高达尼姆合金γ我记得本来就是吉翁方发明的技术吧，之后被鸭子带到联邦那边了，这世界ace机都是高达尼姆合金γ也不奇怪。
+
+*****
+
+####  novyDC  
+##### 2284#       发表于 2025-1-10 01:25
+
+真是uc 期待了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  王留美  
+##### 2285#       发表于 2025-1-10 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142564&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-10 01:20</a>
+ 1月10日 1月17日</blockquote>
+对的
+女主哈曼
+男主卡缪
+女二……哎哈哈哈……雷比尔孙女好了（
+反正女二藏着姓氏怕不是哪个名门之后哦
+

@@ -644,3 +644,13 @@ go团戏份那么多，应该要当中后期破局的钥匙了
 
 别急，有一个角色两集没出现了，猫猫在下大棋
 
+
+*****
+
+####  abc16677  
+##### 70#       发表于 2025-1-10 01:24
+
+刚看完万字解析，越来越对味了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

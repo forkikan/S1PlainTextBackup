@@ -12995,3 +12995,18 @@ soyo的条目已经上了villains wiki了，是“恶棍”了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 7094#       发表于 2025-1-10 01:17
+
+灵魂宝石已经黑的透透了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gzfantasy  
+##### 7095#       发表于 2025-1-10 01:18
+
+萌新问一下，OP那里的judy judu juda是什么语言，什么意思？
+
