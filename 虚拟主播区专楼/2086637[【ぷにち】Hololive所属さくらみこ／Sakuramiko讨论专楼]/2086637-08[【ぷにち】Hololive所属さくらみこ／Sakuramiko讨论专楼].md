@@ -4210,3 +4210,22 @@ GODinGOD
 
 还有这等事，白嫖了一个余
 
+
+*****
+
+####  holoan  
+##### 10665#         楼主| 发表于 2025-1-9 13:08
+
+反过来说miko身体好得令人可怕，不休息做直播不仅没有生病感冒甚至嗓子都几乎无伤
+
+以及新年9天播掉了别人1年的直播量<blockquote>すいせいの1年間vsみこの9日間
+<img src="https://i.imgur.com/wQB5hJE.jpeg" referrerpolicy="no-referrer"> 
+<img src="https://i.imgur.com/9WVndCV.jpeg" referrerpolicy="no-referrer"> </blockquote>
+
+*****
+
+####  holoan  
+##### 10666#         楼主| 发表于 2025-1-9 19:06
+
+这BGM草，，，
+

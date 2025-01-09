@@ -588,3 +588,14 @@ Screenshot_20250103_185119.jpg
 
 经典保底，200拿完人格+ego
 
+
+*****
+
+####  丢人居士  
+##### 1051#       发表于 2025-1-9 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">强大，太强大了，这就是宝子的金钱之力
+1+1＞4，5202年开头就出这么数数又值值的东西真的没问题吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
