@@ -11182,3 +11182,227 @@ mana空降新团，将鸡狗世界观从双子团拉成大三角<img src="https:
 官方组 魔法部译制司</blockquote>
 牛逼      
 
+
+*****
+
+####  于干  
+##### 6915#       发表于 2025-1-9 22:36
+
+全程压力木头人，卧槽，我坐在电脑前面看都要爆了
+
+*****
+
+####  厉飞雨  
+##### 6916#       发表于 2025-1-9 22:36
+
+可恶的长崎素世又在压力睦头
+
+*****
+
+####  狼王卢比奥  
+##### 6917#       发表于 2025-1-9 22:37
+
+喵梦以后怎么救，这两集纯纯恶役啊
+
+*****
+
+####  rollingusagi  
+##### 6918#       发表于 2025-1-9 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我发现了，这队里一个能救人的都没有，你邦以往的乐队都有能救人的，哪怕是mygo也有爱音，而且一般都是能活跃气氛的，然而这队里活跃气氛的大喵老师却是最能搞事的那个，这睦头人要怎么救？难道还指望祥子吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  stormist  
+##### 6919#       发表于 2025-1-9 22:38
+
+一个感觉不一定对，这集祥子返校手上捏着个便签。
+
+不会是高松灯每天往祥子鞋柜里塞小纸条吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帕林马哲理  
+##### 6920#       发表于 2025-1-9 22:38
+
+悬疑片质感拉满，木头人这紧张感真实无比，感觉都不像是在看动画了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">。不适合睡前观看。
+
+
+*****
+
+####  坐看风起云涌  
+##### 6921#       发表于 2025-1-9 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子的风评从这周开始不会好过了
+
+*****
+
+####  威爾第晚禱  
+##### 6922#       发表于 2025-1-9 22:39
+
+不是小睦的错……
+
+说起来为什么木头会叫她妈妈本名，这里有什么深意吗（
+
+*****
+
+####  玖羽  
+##### 6923#       发表于 2025-1-9 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140977&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-1-9 22:30</a>
+
+知道自己犯大事的大猫</blockquote>
+这个表情不是吓到，是震惊，喵梦以为是演技
+
+<img src="https://img.saraba1st.com/forum/202501/09/224007zkf9f4rrpb4h92su.jpg" referrerpolicy="no-referrer">
+
+<strong>nsk.jpg</strong> (56.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:40 上传
+
+*****
+
+####  新HGCG  
+##### 6924#       发表于 2025-1-9 22:39
+
+<img src="https://img.saraba1st.com/forum/202501/09/223926h14vqz7f754mjpf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:39 上传
+
+喵梦呸喽呸喽
+
+<img src="https://img.saraba1st.com/forum/202501/09/223947nv05042iii5ltiu5.gif" referrerpolicy="no-referrer">
+
+<strong>图片20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:39 上传
+
+*****
+
+####  cayon  
+##### 6925#       发表于 2025-1-9 22:40
+
+op的特效字幕好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄昏现白骨  
+##### 6926#       发表于 2025-1-9 22:41
+
+睦头人看着好压抑<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">，都是坏比
+
+*****
+
+####  Devola  
+##### 6927#       发表于 2025-1-9 22:41
+
+反田上邦tv的话，等wsd的下一个信号？
+
+*****
+
+####  ARS_Iapetos  
+##### 6928#       发表于 2025-1-9 22:41
+
+心疼木子米，这心理状况后面怎么圆回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  童贞阿龙  
+##### 6929#       发表于 2025-1-9 22:41
+
+可能在别人看来睦有种生活在表演之中的感觉，不管做什么都是演技爆表
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  刑部姬真可爱  
+##### 6930#       发表于 2025-1-9 22:41
+
+喵梦搞事，祥子增压，海铃逃跑，小睦抑郁，初华只在乎祥子，最没团魂的一队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 6931#       发表于 2025-1-9 22:42
+
+睦头妈也太变态了吧
+
+这比国内综艺里表演恩爱还哈人
+
+在家里还继续演
+
+这种不让叫妈，十有八九是觉得叫自己妈会显的自己老了，过气了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+跟键帽各种互动，也是觉得女儿的乐队天天上热搜TOP1，自己也可以蹭一下 保持人气
+
+双向奔赴了属于是
+
+
+*****
+
+####  刑部姬真可爱  
+##### 6932#       发表于 2025-1-9 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141089&amp;ptid=2208921" target="_blank">威爾第晚禱 发表于 2025-1-9 22:39</a>
+
+不是小睦的错……
+
+说起来为什么木头会叫她妈妈本名，这里有什么深意吗（ ...</blockquote>
+她妈大概在演一个好妈妈角色，其实对睦漠不关心
+
+*****
+
+####  6030sylar  
+##### 6933#       发表于 2025-1-9 22:43
+
+大喵不算什么问题，大祥这师承chu2  ykn的压力怪才是炸团的关键
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  鲍里斯  
+##### 6934#       发表于 2025-1-9 22:44
+
+睦睦累成女鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  akiomn  
+##### 6935#       发表于 2025-1-9 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141073&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-1-9 22:37</a>
+我发现了，这队里一个能救人的都没有，你邦以往的乐队都有能救人的，哪怕是mygo也有爱音，而且一般都是能活 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要救睦还真指望祥子了，其他人对睦的情报加起来还没祥子一个人多
+
+*****
+
+####  猫执事  
+##### 6936#       发表于 2025-1-9 22:45
+
+这集后半 一边是初祥同居 温馨感人，这要是放在别的片场算是不错的发糖戏。 一边是木头人抱着吉他过夜 孤独凄惨。这对比太强烈了
+
+*****
+
+####  rushsong  
+##### 6937#       发表于 2025-1-9 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141086&amp;ptid=2208921" target="_blank">坐看风起云涌 发表于 2025-1-9 22:39</a>
+祥子的风评从这周开始不会好过了</blockquote>
+她风评一直都没好过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，估计结局后可能会回升一点
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

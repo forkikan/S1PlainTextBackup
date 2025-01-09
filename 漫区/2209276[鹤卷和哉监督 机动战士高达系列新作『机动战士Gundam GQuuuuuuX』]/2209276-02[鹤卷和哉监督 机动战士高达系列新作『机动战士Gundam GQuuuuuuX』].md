@@ -9042,3 +9042,27 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 又回顾了一遍武斗传，日升能不能再整个蒙子哥这样的主角，虽然和阿姆罗、卡缪那样凑不出一家，但是不会扯着 ...</blockquote>
 福皇？
 
+
+*****
+
+####  线程召唤使  
+##### 2179#       发表于 2025-1-9 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140871&amp;ptid=2209276" target="_blank">史蒂符 发表于 2025-1-9 22:22</a>
+
+又回顾了一遍武斗传，日升能不能再整个蒙子哥这样的主角，虽然和阿姆罗、卡缪那样凑不出一家，但是不会扯着 ...</blockquote>
+你看三明，能动手不BB，然后变成笑话了。
+
+
+*****
+
+####  史蒂符  
+##### 2180#       发表于 2025-1-9 22:42
+
+ 本帖最后由 史蒂符 于 2025-1-9 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141058&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2025-1-9 22:36</a>
+你看三明，能动手不BB，然后变成笑话了。</blockquote>
+多蒙塑造的还是比三明更有自我更加主动性一些，蒙子哥这性格放在高达主角身上真是打不死的小强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
