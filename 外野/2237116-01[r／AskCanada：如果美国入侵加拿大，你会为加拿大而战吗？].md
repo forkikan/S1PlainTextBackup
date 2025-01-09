@@ -688,3 +688,15 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 真的吞并了的话，我提议瑞安雷诺兹当州长
 
+
+*****
+
+####  tsoulgain  
+##### 64#       发表于 2025-1-9 09:42
+
+ 本帖最后由 tsoulgain 于 2025-1-9 09:43 编辑 
+
+再补一条奇观。愿意为印麻大血战到死的红迪迪友倡导和中国用日元进行贸易结算。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/113578680e5f2ff73c6d7b156e9ee583/image.jpg" referrerpolicy="no-referrer">
+

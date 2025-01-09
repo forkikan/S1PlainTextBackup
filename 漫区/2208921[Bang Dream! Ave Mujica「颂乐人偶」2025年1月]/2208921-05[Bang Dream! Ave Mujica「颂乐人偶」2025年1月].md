@@ -9900,3 +9900,41 @@ ED後的C part也不容錯過！</strong>
 
 具体记不清了，不过本楼的其他坛友应该有记得的
 
+
+*****
+
+####  狮子咕  
+##### 6791#       发表于 2025-1-9 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67134302&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-9 09:28</a>
+
+好像在去年年初，MyGO有个采访，羊宫说了不太合适的话，也有人感叹武士道居然没人审稿吗
+
+具体记不清了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">“ 希望明年还能认识很多角色”
+
+*****
+
+####  山ノ内花音  
+##### 6792#       发表于 2025-1-9 09:39
+
+这么看杂志封底的哭哭大概率是被小莫爆杀导致的
+
+
+*****
+
+####  御幸一也  
+##### 6793#       发表于 2025-1-9 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67134302&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-9 09:28</a>
+
+好像在去年年初，MyGO有个采访，羊宫说了不太合适的话，也有人感叹武士道居然没人审稿吗
+
+具体记不清了， ...</blockquote>
+武士道肯定審稿的
+
+如果官方覺得不合適，就算雜誌已經發售了，都會發公告特此更正。
+
+例子就是上個月的animage：[https://animageplus.jp/news/detail/96](https://animageplus.jp/news/detail/96)
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
