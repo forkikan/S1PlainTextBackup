@@ -604,3 +604,29 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 南边都是反贼。</blockquote>
 如今查理三世不得人望，现在还能自称忠诚派也没多少了吧，跟澳大利亚一样一大帮共和分子，而且被移民潮也稀释得差不多了
 
+
+*****
+
+####  直钩  
+##### 55#       发表于 2025-1-9 08:53
+
+加拿大人大概会喜迎王师吧
+
+*****
+
+####  膛线  
+##### 56#       发表于 2025-1-9 08:53
+
+霉菌：一个好消息和一个坏消息，好消息是我们只想要加拿大的地不想要加拿大的人
+
+坏消息是教堂后面已经没地方了
+
+*****
+
+####  pagedown  
+##### 57#       发表于 2025-1-9 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132963&amp;ptid=2237116" target="_blank">Duc_d'_Muka 发表于 2025-1-8 23:03</a>
+能给国内的票蛆们提供情绪价值大于天</blockquote>
+然后给民主党加一**大块票仓吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
