@@ -10145,3 +10145,26 @@ ED後的C part也不容錯過！</strong>
 
 睦祥互相离不开，素姐还没完全走出来，taki必须跟着灯，现在看来老C团最自由的是灯啊，有乐队玩就好了，crychic还是mygo都可以。
 
+
+*****
+
+####  qjw114514  
+##### 6808#       发表于 2025-1-9 13:15
+
+https://x.com/emo863063/status/1877211264159564162?s=19
+<img src="https://p.sda1.dev/21/bf972b2f93ce03cebbc3e62c2c1e03b0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  意大利面  
+##### 6809#       发表于 2025-1-9 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136001&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-9 12:20</a>
+
+去年祥子是季军
+
+挺好萌历届成绩</blockquote>
+居然包揽四强么
+
+LPL：这简直就是我！（想要的样子）
+

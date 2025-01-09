@@ -1453,3 +1453,13 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 武尊池子最后一天早上起来突然想捞个满破五星礼装，把呼符清零了一下没想到出了武尊，中间还歪了个布妹
 
+
+*****
+
+####  小妻水亚美  
+##### 46955#       发表于 2025-1-9 13:13
+
+冲刺福袋 四缺三都可以不new 这还是上头小号也抽四缺三福袋的情况，连着两个四缺三不new 你游真不是读box游戏吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
