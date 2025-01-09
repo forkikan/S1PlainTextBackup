@@ -13399,3 +13399,14 @@ chrome商店安装不了了<img src="https://static.saraba1st.com/image/smiley/f
 
 摘了后全集火睦了 这边刚世界观堵嘴那边又跟上了 托管的人机睦能说出啥好话
 
+
+*****
+
+####  helloo23  
+##### 7133#       发表于 2025-1-10 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142839&amp;ptid=2208921" target="_blank">jonarryn 发表于 2025-1-9 20:22</a>
+
+chrome商店安装不了了</blockquote>
+刚重装试了下可以啊，谷歌搜第一个就是。ufunr.net 评分4.7的
+
