@@ -10263,3 +10263,35 @@ LPL：这简直就是我！（想要的样子）</blockquote>
 
 sumimi究竟会怎么样呢？
 
+
+*****
+
+####  kivz  
+##### 6819#       发表于 2025-1-9 14:09
+
+sumimi应该还存在，只是没有活动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  likeny  
+##### 6820#       发表于 2025-1-9 14:12
+
+sumimi就像喵梦的美妆博主设定一样是帮助塑造人物，还能当支线写，肯定不会丢掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 6821#       发表于 2025-1-9 14:12
+
+mana包在手游里经常出场的
+
+
+*****
+
+####  Akari  
+##### 6822#       发表于 2025-1-9 14:16
+
+连带出sumimi应该问题不大，后续逐渐单飞嘛
+
+mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能在她身上学习到不少东西）。
+
