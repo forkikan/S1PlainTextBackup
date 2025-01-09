@@ -10933,3 +10933,57 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 
 mana的剧情地位更难以揣摩了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 6888#       发表于 2025-1-9 21:59
+
+<img src="https://img.saraba1st.com/forum/202501/09/215904j2oxdxsdidc744d9.png" referrerpolicy="no-referrer">
+
+<strong>5)YB3MBCB8[5L)]321IA]U5.png</strong> (40.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 21:59 上传
+
+卖很大
+
+*****
+
+####  新HGCG  
+##### 6889#       发表于 2025-1-9 21:59
+
+母鸡卡待机（虽然这集看过了）
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6890#       发表于 2025-1-9 22:01
+
+mana不会真是下一个乐队的吧
+
+
+*****
+
+####  影伴光生  
+##### 6891#       发表于 2025-1-9 22:04
+
+这特效字幕OP，梦回十年前在阿b上追UBW
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Libartas  
+##### 6892#       发表于 2025-1-9 22:07
+
+话说op里很多旋转的东西，旋转木马摩天轮之类的，是代表什么意象吗
+
+*****
+
+####  KLHgg  
+##### 6893#       发表于 2025-1-9 22:08
+
+啊？真奈真的有重要戏份？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
