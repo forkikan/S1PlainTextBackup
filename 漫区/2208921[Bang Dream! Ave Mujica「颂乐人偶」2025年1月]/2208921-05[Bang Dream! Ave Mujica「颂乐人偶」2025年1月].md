@@ -10475,3 +10475,20 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员<img 
 mana的人设太素了，不然光看CV都要奶她是下个新团的成员还有整容可能吗</blockquote>
 染个头发就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 6842#       发表于 2025-1-9 16:27
+
+花修罗开头那个电视里的朗读女还有戏份吗？看开头还以为会是女主会去追逐她的脚步最后在一起这种展开，结果就在op里出现了一帧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 6843#       发表于 2025-1-9 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67138090&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-9 16:25</a>
+染个头发就行了</blockquote>
+染成黄毛，离开事务所，自己翻唱、写歌发到网上，天天在公寓吃泡面是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

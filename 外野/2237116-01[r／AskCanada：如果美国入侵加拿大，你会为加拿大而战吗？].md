@@ -1136,3 +1136,14 @@ Numquam Concedere--永不放弃！
 
 制造话题转移之前对俄乌停战、加关税、H1B移民等问题的公众注意力罢了，下个月就没这事了
 
+
+*****
+
+####  jumbleh  
+##### 103#       发表于 2025-1-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133203&amp;ptid=2237116" target="_blank">变老的大二 发表于 2025-1-8 23:56</a>
+
+最麻幻想</blockquote>
+这是比利时人拱火么，哈哈哈
+
