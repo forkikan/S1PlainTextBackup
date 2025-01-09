@@ -10137,3 +10137,11 @@ ED後的C part也不容錯過！</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可奈何？注定绑死！
 反正这话出来基本未来睦祥关系稳的要死，看后面祥子怎么操作回来了
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6807#       发表于 2025-1-9 12:55
+
+睦祥互相离不开，素姐还没完全走出来，taki必须跟着灯，现在看来老C团最自由的是灯啊，有乐队玩就好了，crychic还是mygo都可以。
+
