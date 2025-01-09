@@ -10126,3 +10126,14 @@ ED後的C part也不容錯過！</strong>
 
 「いる場所」 的使用确实更强调客观的归属或存在的地方，表明睦的身体和心灵都只能停留在祥子身边。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">有种命中注定的无可奈何的绑定感
 
+
+*****
+
+####  akiomn  
+##### 6806#       发表于 2025-1-9 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136044&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-9 12:25</a>
+「いる場所」 的使用确实更强调客观的归属或存在的地方，表明睦的身体和心灵都只能停留在祥子身边。有种命 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可奈何？注定绑死！
+反正这话出来基本未来睦祥关系稳的要死，看后面祥子怎么操作回来了
+

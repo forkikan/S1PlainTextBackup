@@ -955,3 +955,15 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 等等，美国是想再一次被加拿大烧白宫嘛。
 
+
+*****
+
+####  zhenlune  
+##### 89#       发表于 2025-1-9 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67132934&amp;ptid=2237116" target="_blank">lionheart 发表于 2025-1-8 22:59</a>
+但美国不是事实上已经用宗主国的形式统治了加拿大么，合并后还会多承担原先不用管的一些义务，
+
+除了名义上 ...</blockquote>
+红脖子会得到情绪价值
+
