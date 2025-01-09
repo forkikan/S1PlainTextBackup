@@ -13325,3 +13325,22 @@ soyo保持了执念，展现了自mygo第九集以来的怨念，她在第十三
 说起来为什么木头会叫她妈妈本名，这里有什么深意吗（ ...</blockquote>
 我看到这第一时间想到 “阿瑟，请坐”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wszweill  
+##### 7126#       发表于 2025-1-10 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141281&amp;ptid=2208921" target="_blank">Asukalangley33 发表于 2025-1-9 09:56</a>
+
+祥子现在算不算已经吃到“你这人满脑子都只想着自己呢”的回旋镖了？</blockquote>
+祥子从元和二年解散之夜开始算一直都是只想着自己吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 主要还是 家庭变故+二次元美少女让大家比较宽容
+
+*****
+
+####  akiomn  
+##### 7127#       发表于 2025-1-10 03:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说满脑子都是自己的别急，第三集就懂祥子怎么想的了
+也许对睦来说，祥子满脑子都是自己可能真的会比现在的情况要好点
+
