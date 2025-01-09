@@ -10226,3 +10226,40 @@ LPL：这简直就是我！（想要的样子）</blockquote>
 
 我记得这两届挺好萌祥子都不是靠自己上去的，一届是要把她投上去让爽世杀，一届是她多半要禁赛了冲一次，反正。。和挺力人气都没啥关系就是了。
 
+
+*****
+
+####  595505568  
+##### 6815#       发表于 2025-1-9 14:01
+
+<blockquote>Adyeshach 发表于 2025-1-9 13:31
+我记得这两届挺好萌祥子都不是靠自己上去的，一届是要把她投上去让爽世杀，一届是她多半要禁赛了冲一次，反 ...</blockquote>
+我怎么感觉C团除了灯以外..四个人都得一等禁赛了…甚至有个登神完了（什么挺王冠军车队，挺神 挺王 一等禁赛全齐了）
+
+*****
+
+####  IWS2000  
+##### 6816#       发表于 2025-1-9 14:04
+
+【【中字】乐队人全力解说史上最狂乐队番Ave Mujica【第1集】-哔哩哔哩】 https://b23.tv/mpHULEU
+<img src="https://p.sda1.dev/21/38ff4a17ac423b637de227c2b1718304/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a5d555cefdb3068cdfe99e5e1e3c49fa/image.jpg" referrerpolicy="no-referrer">
+笑死
+
+
+*****
+
+####  PDQ4  
+##### 6817#       发表于 2025-1-9 14:05
+
+爽姐感觉已经是鸡狗的罐头笑声担当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bbjajdd  
+##### 6818#       发表于 2025-1-9 14:08
+
+鸡团动画结束后
+
+sumimi究竟会怎么样呢？
+
