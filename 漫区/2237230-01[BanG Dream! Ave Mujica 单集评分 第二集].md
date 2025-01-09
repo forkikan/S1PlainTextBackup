@@ -412,3 +412,15 @@ mujika作为商业化乐队，用了2集半几乎走完一个乐队的大半生�
 
 三角初华人真好<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 45#       发表于 2025-1-9 23:34
+
+ 本帖最后由 aptx8285144 于 2025-1-9 23:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141691&amp;ptid=2237230" target="_blank">何でやねん 发表于 2025-1-9 23:26</a>
+
+三角初华人真好</blockquote>
+初华这周的作用大概是提醒我这大概，也许，可能还是少女们乐队番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这奇特的氛围让我经常怀疑是不是看错片类型了（
+

@@ -361,3 +361,22 @@ gohands现在在邪教动画公司的路上越走越远了，但凡在突出人�
 
 这片子居然如此不忌讳地描写女孩的丑态，不过这镜头安排难说是不是RYONA瘾发作，还有这结尾是致敬弹丸V3吗
 
+
+*****
+
+####  堆雪若叶  
+##### 85#       发表于 2025-1-9 23:34
+
+ 本帖最后由 堆雪若叶 于 2025-1-9 23:35 编辑 
+
+[https://x.com/MML_animePR/status/1877376785995673713](https://x.com/MML_animePR/status/1877376785995673713)
+
+みんながいれば、いてくれれば大丈夫！
+<img src="https://p.sda1.dev/21/a8571af722552d5fc22fcf0ae4ba4222/Gg3INGWbkAAFnWh.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/MML_animePR/status/1877377037285089669](https://x.com/MML_animePR/status/1877377037285089669)
+
+私たちの日常は、どこだって楽しかった。
+<img src="https://p.sda1.dev/21/e1a3aec343d20d30e80c5d11998362ee/Gg3IT8YbYAAKov_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/54ef1061501338b8fe5ab1aab8fc25e7/Gg1cLOkaMAALvuE.jpg" referrerpolicy="no-referrer">
+

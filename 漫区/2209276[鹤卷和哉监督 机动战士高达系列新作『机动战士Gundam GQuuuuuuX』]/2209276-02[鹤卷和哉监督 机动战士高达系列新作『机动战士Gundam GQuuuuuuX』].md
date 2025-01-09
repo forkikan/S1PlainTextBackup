@@ -9405,3 +9405,148 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 米奇律师就应该再找个人唱他的歌
 比如，初音未来
 
+
+*****
+
+####  王留美  
+##### 2219#       发表于 2025-1-9 23:26
+
+提姆雷！
+
+<img src="https://img.saraba1st.com/forum/202501/09/232557y5cookgclnvxkvtl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6594.jpeg</strong> (136.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:25 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/232557o5db57e7ez5mbk25.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6595.webp</strong> (54.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:25 上传
+
+*****
+
+####  0aleph37  
+##### 2220#       发表于 2025-1-9 23:26
+
+<img src="https://p.sda1.dev/21/d3346fd7b88b5ec8a037c4b6d4b0a1ed/屏幕截图 2025-01-09 232541.png" referrerpolicy="no-referrer">
+
+霓虹网友猜想
+
+*****
+
+####  Gysumitka  
+##### 2221#       发表于 2025-1-9 23:27
+
+万代速速把警用扎古发售时间端上来吧，太香了
+
+*****
+
+####  刺客ares  
+##### 2222#       发表于 2025-1-9 23:28
+
+骡爸给骡子的加强高达用零件
+
+妮娅安原来是要走私这个东西吗，给修司？
+
+然后到了玛秋手里，在上个PV里被她扔飞了...
+
+*****
+
+####  纪寞  
+##### 2223#       发表于 2025-1-9 23:28
+
+ 本帖最后由 纪寞 于 2025-1-9 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141664&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-9 23:24</a>
+
+之前还想过高达都被鸭子夺走，停在一旁的白色木马难道会直接击毁吗
+
+现在一看PV里的舰首应该也是被打包带 ...</blockquote>
+可能不是，如果骡子还在的话没理由让修司来开红高达。
+
+也可能直接就是联邦势力了，其实我私心不想还是联邦来当主角团背后势力，我更想看宇宙居民自己争夺未来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+而且看样子这side不止修司在，还有一船人都在
+
+*****
+
+####  刺客ares  
+##### 2224#       发表于 2025-1-9 23:29
+
+我现在知道土屋弟说的考据党狂喜是什么意思了
+
+处处是0079要素好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 2225#       发表于 2025-1-9 23:29
+
+<img src="https://p.sda1.dev/21/f6bdafeb04ea752bef7e1f94890a4461/image.jpg" referrerpolicy="no-referrer">
+426馆，阵势好猛
+
+*****
+
+####  RE㐅ia  
+##### 2226#       发表于 2025-1-9 23:30
+
+<blockquote>刺客ares 发表于 2025-1-9 23:28
+骡爸给骡子的加强高达用零件
+
+妮娅安原来是要走私这个东西吗，给修司？
+
+然后到了玛秋手里，在上个PV里被她扔 ...</blockquote>
+牢修：我谢谢你啊
+
+*****
+
+####  王留美  
+##### 2227#       发表于 2025-1-9 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141343&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2025-1-9 23:02</a>
+ 新PV信息量不多，某艘只露个头的战舰倒是挺像木马的。</blockquote>
+信息量简直多到爆炸了
+除了没有直球UC0085之外简直是把宇宙世纪四个大字甩到你脸上了
+硬核粉丝都在狂欢了
+
+*****
+
+####  0aleph37  
+##### 2228#       发表于 2025-1-9 23:32
+
+<img src="https://p.sda1.dev/21/a58200c4d5585d66bb39058651b0c506/Gg3IcoIaMAA-CVF.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 2229#       发表于 2025-1-9 23:32
+
+为什么要走私这个东西，这不是只有副作用吗？（恼）
+
+
+*****
+
+####  赤黑的假面  
+##### 2230#       发表于 2025-1-9 23:33
+
+那基西莉娅是不是也活下来了
+
+*****
+
+####  RE㐅ia  
+##### 2231#       发表于 2025-1-9 23:35
+
+嗜血女主i了
+
+*****
+
+####  hkguty  
+##### 2232#       发表于 2025-1-9 23:36
+
+怎么又是米奇律师
+

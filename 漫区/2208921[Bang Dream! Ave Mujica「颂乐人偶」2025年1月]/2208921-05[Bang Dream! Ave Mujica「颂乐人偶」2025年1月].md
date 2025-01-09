@@ -11987,3 +11987,110 @@ mana：真的动不动就有人在传要解散或者感情不和呢，害得我�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子现在……丧母＋c团解散＋春日影＋亲爹颓废切割＋事务所压力＋超负荷工作＋和喵梦对线＋第四集大概率还要和某人继续对线收拾（可能还要收拾烂摊子）
 精神状态实际比睦也好不到哪去的，就是锁血嗯撑着，只差再来个大事件就能把祥子击沉了
 
+
+*****
+
+####  用户名1  
+##### 6996#       发表于 2025-1-9 23:27
+
+很精巧的一集，能够想象这集应该属于是预设了主题后往回填充的内容。虽然精致，但由于指向过于明确稍显僵硬
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  看穿一切的鱼  
+##### 6997#       发表于 2025-1-9 23:27
+
+ 本帖最后由 看穿一切的鱼 于 2025-1-9 23:29 编辑 
+
+初华我真不好说了，她明摆着发现睦的异常但是不报告。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+祥老师看见解散谣言汗都流下来了，后面要是有什么演出中止的环节，就要变成酗酒小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  L-JoeW  
+##### 6998#       发表于 2025-1-9 23:29
+
+海玲的cv感觉好几个地方声线都快绷不住了，尤其前半段
+
+*****
+
+####  试制甲炮  
+##### 6999#       发表于 2025-1-9 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141721&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-9 23:27</a>
+
+初华我真不好说了，她明摆着发现睦的异常但是不报告。
+
+祥老师看见解散谣言汗都流下来了，后面要是有什么演 ...</blockquote>
+不至于，未成年人一律不许喝酒...
+
+*****
+
+####  影伴光生  
+##### 7000#       发表于 2025-1-9 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141721&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-9 23:27</a>
+初华我真不好说了，她明摆着发现睦的异常但是不报告。
+祥老师看见解散谣言汗都流下来了，后面要是有什么演 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本未成年人不允许买酒吧，总不能回去抢老登的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  OPCI_0125  
+##### 7001#       发表于 2025-1-9 23:33
+
+睦甚至没有自己的居家鞋，睦妈就不说了，连家里的帮佣都有……
+
+这下真的“什么都不是自己的”了，如果说祥是在事务所乃至初华家借住，睦就是在森美奈美家“借住”了……
+
+也就是睦祥都没有字面意义的居所，还同样不被父母关心，同样处于破防临界态，睦的箭头又全给了祥，这下最后二人的居所肯定就是彼此了TT
+<img src="https://p.sda1.dev/21/34081d04f56ad684a634d25ddd2c541f/屏幕截图 2025-01-09 230951.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2581c04a6f091566fa8d1b8ce4b0d53e/屏幕截图 2025-01-09 231644.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7002#       发表于 2025-1-9 23:33
+
+关于睦妈的部分，现在大概有几个想法
+
+冷漠的家庭关系，睦妈忙于事业忽视子女，甚至因为工作很少回家，我觉得是这个
+
+更冷漠的家庭关系，睦妈完全不关心睦（母亲失职）
+
+无所谓的家庭关系，睦妈其实不重要，但谢谢泽城美雪
+
+有陷阱，其实睦妈的一切都是演的，根本无法推测
+
+*****
+
+####  看穿一切的鱼  
+##### 7003#       发表于 2025-1-9 23:34
+
+动画里肯定不让喝酒了，那只能是初华回到阁楼，发现了缩在被子里的小祥和满地的百事可乐易拉罐。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aendst  
+##### 7004#       发表于 2025-1-9 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141719&amp;ptid=2208921" target="_blank">用户名1 发表于 2025-1-9 23:27</a>
+
+很精巧的一集，能够想象这集应该属于是预设了主题后往回填充的内容。虽然精致，但由于指向过于明确稍显僵硬 ...</blockquote>
+预设了主题具体是指什么呢？非常好奇
+
+*****
+
+####  Diong  
+##### 7005#       发表于 2025-1-9 23:34
+
+所以这个Georgette Me是啥意思，怎么问了下GPT也没个出典。
+
