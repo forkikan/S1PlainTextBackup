@@ -674,3 +674,11 @@ md睡前美美睡一觉就哦过程变成压力测试了wtf
 
 虐睦小剧场，看的牙痒痒，怎么睦的周围全是一群狼心狗肺
 
+
+*****
+
+####  car123  
+##### 73#       发表于 2025-1-10 02:43
+
+没看剧透，现在非常担心下集睦头就真变op那样了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，另外这两季bangdream真的适合反复品鉴，细节和伏笔太多了
+
