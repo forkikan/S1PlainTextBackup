@@ -1169,3 +1169,18 @@ Reddit很多大版块都是bot和各种水军
 两边白皮都有毛病是吧，每次都想为了不存在的纷争，不存在的利益打仗，没头没脑的去杀人，又没头没脑的死， ...</blockquote>
 怎么还认真上了，本来又不可能真打，就是打打嘴炮而已。我和蛙蛙吵也经常说等到时候杀你全家，不都是说说而已，对这个认真显得有点太好笑了吧…
 
+
+*****
+
+####  wszweill  
+##### 106#       发表于 2025-1-10 03:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133382&amp;ptid=2237116" target="_blank">snailium 发表于 2025-1-8 11:54</a>
+
+不会的，加拿大不想变成古巴。
+
+加拿大对亚洲海运航线，只有西边两个港口，上面是阿拉斯加，下面是美国本 ...</blockquote>
+纯YY的话，在加拿大 口岸给东大海军整个基地，直接从 第一岛链突破到美洲西海岸 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过东大又不是sb（
+
