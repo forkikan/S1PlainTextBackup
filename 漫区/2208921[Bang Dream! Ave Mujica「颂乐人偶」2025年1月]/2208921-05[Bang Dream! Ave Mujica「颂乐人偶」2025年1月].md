@@ -11012,3 +11012,99 @@ mana不会真是下一个乐队的吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">好在没提前看，一话一话追爽
 
+
+*****
+
+####  天之叢云  
+##### 6897#       发表于 2025-1-9 22:19
+
+有种网红的美
+
+*****
+
+####  Libartas  
+##### 6898#       发表于 2025-1-9 22:20
+
+突然感觉睦家原形好像是秋刀鱼和大竹忍啊，这俩最后可是离了，而且大竹忍也不是啥省油的灯
+
+*****
+
+####  光MIKAN  
+##### 6899#       发表于 2025-1-9 22:23
+
+mana空降新团，将鸡狗世界观从双子团拉成大三角<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+初华最后爆不会是为了sumimi吧
+
+
+*****
+
+####  影伴光生  
+##### 6900#       发表于 2025-1-9 22:24
+
+好看，但是感觉以后回看只敢拉条看片段的程度，部分画面压迫感表现有点太猛了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yone0000  
+##### 6901#       发表于 2025-1-9 22:24
+
+爱音这先追素世，没追上然后第一时间给立希发消息，然后被一句话不要告诉灯就挂了，第二天上学先把沉迷石头的灯薅去教室，还要瞒着祥子的事，最后没瞒过去还被立希踹了一脚
+
+太伟大了，我看狗团没有爱音得散<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SorakadoAo  
+##### 6902#       发表于 2025-1-9 22:25
+
+中间那段窒息感太强了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6903#       发表于 2025-1-9 22:25
+
+令人窒息 木头人别似<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+不开弹幕缓解完全看不下去 看动漫第一次有这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 6904#       发表于 2025-1-9 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说真的，中间开始多少有点不忍心看下去。
+
+话说木头这表达能力也太。。。。
+
+祥子被说的简直就是万恶之源了
+
+*****
+
+####  影伴光生  
+##### 6905#       发表于 2025-1-9 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140900&amp;ptid=2208921" target="_blank">yone0000 发表于 2025-1-9 22:24</a>
+爱音这先追素世，没追上然后第一时间给立希发消息，然后被一句话不要告诉灯就挂了，第二天上学先把沉迷石头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说这anon啊，就该旁观等这帮点子王自己想办法，这事情是外人敢掺和的吗（看向失踪两集的小白猫）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  轮太  
+##### 6906#       发表于 2025-1-9 22:27
+
+反正我当时在日本看的时候，第一感觉就是残酷版孤独摇滚
+
+波奇如果被社会暴打了感觉也会晚上抱着吉他
+
+*****
+
+####  刑部姬真可爱  
+##### 6907#       发表于 2025-1-9 22:28
+
+猫是懂上压，祥是懂增压的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

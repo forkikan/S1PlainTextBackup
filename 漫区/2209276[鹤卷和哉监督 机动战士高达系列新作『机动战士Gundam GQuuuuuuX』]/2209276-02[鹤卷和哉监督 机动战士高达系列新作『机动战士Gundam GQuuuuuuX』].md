@@ -9019,3 +9019,26 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 
 来点池田秀一和苍月升，来点红高达，来点宇宙世纪0085
 
+
+*****
+
+####  史蒂符  
+##### 2177#       发表于 2025-1-9 22:22
+
+ 本帖最后由 史蒂符 于 2025-1-9 22:23 编辑 
+
+又回顾了一遍武斗传，日升能不能再整个蒙子哥这样的主角，虽然和阿姆罗、卡缪那样凑不出一家，但是不会扯着床单哭也没有恋母情结，能动手就不跟你bb<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  王留美  
+##### 2178#       发表于 2025-1-9 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140871&amp;ptid=2209276" target="_blank">史蒂符 发表于 2025-1-9 22:22</a>
+
+又回顾了一遍武斗传，日升能不能再整个蒙子哥这样的主角，虽然和阿姆罗、卡缪那样凑不出一家，但是不会扯着 ...</blockquote>
+福皇？
+
