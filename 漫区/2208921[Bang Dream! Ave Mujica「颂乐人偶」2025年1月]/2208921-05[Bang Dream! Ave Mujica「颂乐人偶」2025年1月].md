@@ -12446,3 +12446,104 @@ ano tokyo最多有点爱慕虚荣，小心思罢了。
 母鸡卡日推热搜第一
 睦第七
 
+
+*****
+
+####  NOSbeam  
+##### 7041#       发表于 2025-1-10 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142002&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-9 23:54</a>
+不绷着有啥办法 自己组的队 自己喊解散不成</blockquote>
+大祥老师不是已经干过一次解散了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oldgoat  
+##### 7042#       发表于 2025-1-10 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140648&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-9 22:07</a>
+
+话说op里很多旋转的东西，旋转木马摩天轮之类的，是代表什么意象吗</blockquote>
+旋转木马应该有“宛如迷宫的人生万花筒”的意思，特别是结合初华在里面四处张望找祥，以及双面的睦给转出来的画面更给我这个感觉。
+
+开头那里不是旋转木马，而是旋转的椅子，应该是有那种“人人的角色都在轮转，多副面孔不断地上台下台”的意思。
+
+*****
+
+####  看穿一切的鱼  
+##### 7043#       发表于 2025-1-10 00:10
+
+远坂睦，间桐祥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  影伴光生  
+##### 7044#       发表于 2025-1-10 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142109&amp;ptid=2208921" target="_blank">NOSbeam 发表于 2025-1-10 00:08</a>
+大祥老师不是已经干过一次解散了吗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica也解散，祥子不就全方位复刻老登了——连负债也是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bird-lay  
+##### 7045#       发表于 2025-1-10 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141521&amp;ptid=2208921" target="_blank">ARS_Iapetos 发表于 2025-1-9 23:14</a>
+
+这集mana和初华聊天的这一段
+
+mana：真的动不动就有人在传要解散或者感情不和呢，害得我差点忍不住大喊“sum ...</blockquote>
+不要忘了边上那本封面是dorolis
+
+沉迷cp对卡无法自拔
+
+*****
+
+####  rushsong  
+##### 7046#       发表于 2025-1-10 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142109&amp;ptid=2208921" target="_blank">NOSbeam 发表于 2025-1-10 00:08</a>
+大祥老师不是已经干过一次解散了吗
+
+—— 来自 S1Fun</blockquote>
+那时候还有她爹，现在脱离爹就只剩下mujica了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  Mikumiku831  
+##### 7047#       发表于 2025-1-10 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142109&amp;ptid=2208921" target="_blank">NOSbeam 发表于 2025-1-10 00:08</a>
+
+大祥老师不是已经干过一次解散了吗
+
+—— 来自 S1Fun</blockquote>
+忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 7048#       发表于 2025-1-10 00:13
+
+忍不住多看了几遍 感觉祥子对初华距离感好重啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 7049#       发表于 2025-1-10 00:14
+
+<img src="https://p.sda1.dev/21/f71bc08ed3ceaf6731185a667e10f444/image.jpg" referrerpolicy="no-referrer">
+刚才搜了下才知道，原来幼稚舎现在已经是特指庆应的小学部了，合着月之森相当于keio吗？
+

@@ -75,3 +75,13 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 各位佬，问个问题，百万手游现在有汉化插件吗，之前角色基本都是云的，这不玩了一段时间学马仕后想换个口味 ...</blockquote>
 没有。而且虽然有点答非所问，百万手游剧情的无聊程度（整体）跟学马最水的活动剧情差不多（比如圣诞打工那期），还不如去看门司雪的百万漫画。
 
+
+*****
+
+####  冰风血羽  
+##### 6823#       发表于 2025-1-10 00:12
+
+【一口气带你速通闪耀色彩所有小偶像的卑女·plove水平排名！来学学友商教科书级的刻画吧】 [https://www.bilibili.com/video/BV1hSrXYyEY2](https://www.bilibili.com/video/BV1hSrXYyEY2)
+
+2小时38分的巨作啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

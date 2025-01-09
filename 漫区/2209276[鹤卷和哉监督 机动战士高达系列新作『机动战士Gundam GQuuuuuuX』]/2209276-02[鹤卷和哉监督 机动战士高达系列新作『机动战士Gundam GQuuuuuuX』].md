@@ -9745,3 +9745,28 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 新PV也太难绷了，开幕机油ptsd，然后米奇律师这首歌也是低于平均水平，之后神人剪辑画面和歌各演各的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2254#       发表于 2025-1-10 00:07
+
+剪得像是今晚律师现场唱了主题曲后本部惊慌失措连忙打电话加班赶工弄好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  线程召唤使  
+##### 2255#       发表于 2025-1-10 00:08
+
+这pv有那味了，uc版银河美少年
+
+
+*****
+
+####  王留美  
+##### 2256#       发表于 2025-1-10 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141976&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-9 23:50</a>
+ 我倒不希望这样，这搞得换机都换不利索了，红高达都多老的东西了</blockquote>
+换磁气覆膜就可以了（
+
