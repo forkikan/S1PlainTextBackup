@@ -10651,3 +10651,45 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 b站go博士的pv分析上是很像的，甚至打光都一样
 <img src="https://p.sda1.dev/21/46db2c62840003593b2f33008e671092/IMG_CMP_65673668.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6861#       发表于 2025-1-9 20:38
+
+准备迟到到几点啊
+
+*****
+
+####  狮子咕  
+##### 6862#       发表于 2025-1-9 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139935&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-9 20:25</a>
+
+b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
+第三集学习版有喵梦家明确镜头……
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6863#       发表于 2025-1-9 20:41
+
+运营大叔上错号了？
+
+*****
+
+####  66367749  
+##### 6864#       发表于 2025-1-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139922&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-1-9 20:22</a>
+我最反感的就是她们那种透露出来的龌龊想法，睦被她们塑造成一心一意对着素世好，围绕她打转，然 ...</blockquote>
+磕cp的最重要的方式就是编故事，而编的故事可以和实际情况无关或者相悖。对创作的角色这么做叫ooc，对真人则是叫造谣。
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 6865#       发表于 2025-1-9 20:45
+
+终于开了。byd上个礼拜初祥不给开美颜这次就给开是吧
+

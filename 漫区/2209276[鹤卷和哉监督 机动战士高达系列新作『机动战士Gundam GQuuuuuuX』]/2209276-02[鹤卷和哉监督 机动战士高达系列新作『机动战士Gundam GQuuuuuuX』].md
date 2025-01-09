@@ -8774,3 +8774,42 @@ Plasma，这要翻译成血浆还是等离子体，还是一语双关<img src="h
 
 3月还有上海巡回场次，歌迷有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二阶堂真琉  
+##### 2152#       发表于 2025-1-9 20:42
+
+哟西！居然会对正经选曲有所期待的我散会！
+
+*****
+
+####  wolf1997  
+##### 2153#       发表于 2025-1-9 20:43
+
+米奇律师上班！
+
+*****
+
+####  刺客ares  
+##### 2154#       发表于 2025-1-9 20:46
+
+推上歌迷现场晒票，锤了
+
+Plasma是演唱会最后一首
+
+<img src="https://img.saraba1st.com/forum/202501/09/204611lr18r1tqpbi5pzsj.png" referrerpolicy="no-referrer">
+
+<strong>1736426702600.png</strong> (149.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 20:46 上传
+
+*****
+
+####  oi99o  
+##### 2155#       发表于 2025-1-9 20:46
+
+明天快发pv2吧
+
