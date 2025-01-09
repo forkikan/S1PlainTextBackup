@@ -989,3 +989,16 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  猪突猛进R  
+##### 92#       发表于 2025-1-9 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136521&amp;ptid=2237116" target="_blank">Guadalcanal 发表于 2025-1-9 13:25</a>
+
+吞并加拿大了是不是马斯克就能选美国总统了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+马斯克是南非白人移民，要想选总统还得吞南非。
+
