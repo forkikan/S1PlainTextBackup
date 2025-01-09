@@ -881,3 +881,21 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 合并对美国来说有啥好处，本来投票算两票的，合并就只剩一票了</blockquote>
 苏联可以自带三票美国为什么不行
 
+
+*****
+
+####  嵐色羽空  
+##### 83#       发表于 2025-1-9 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">加麻大和墨西哥都是美国的经济殖民地
+
+
+*****
+
+####  yuialon  
+##### 84#       发表于 2025-1-9 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+加麻大人梦想不都是润美工作么，这下直接并入美国，不用润了
+
