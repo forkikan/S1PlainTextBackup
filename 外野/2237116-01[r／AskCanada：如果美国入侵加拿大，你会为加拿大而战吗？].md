@@ -537,3 +537,23 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 国家认同是保皇党。
 南边都是反贼。
 
+
+*****
+
+####  auraria  
+##### 48#       发表于 2025-1-9 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133203&amp;ptid=2237116" target="_blank">变老的大二 发表于 2025-1-8 23:56</a>
+最麻幻想</blockquote>
+指望东大卖军火不如找CIA更实际些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  3Psm  
+##### 49#       发表于 2025-1-9 08:24
+
+这是参战协助加拿大尽快加入美国吗？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
