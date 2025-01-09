@@ -10785,3 +10785,42 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这反应跟看恐怖片一样
 
+
+*****
+
+####  山ノ内花音  
+##### 6875#       发表于 2025-1-9 21:28
+
+瞄祥关系性
+
+*****
+
+####  相坂君  
+##### 6876#       发表于 2025-1-9 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">像是女子宿舍一样，好吵啊你们
+
+*****
+
+####  AnnieLeonhart  
+##### 6877#       发表于 2025-1-9 21:32
+
+毕竟是写作组乐队读作谈恋爱
+
+*****
+
+####  影伴光生  
+##### 6878#       发表于 2025-1-9 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚在展示特典卡片的时候，五个人里初华那一张一不小心掉了，多少有点恰好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  SakuraのOrigami  
+##### 6879#       发表于 2025-1-9 21:36
+
+漫画CM还挺好看
+
