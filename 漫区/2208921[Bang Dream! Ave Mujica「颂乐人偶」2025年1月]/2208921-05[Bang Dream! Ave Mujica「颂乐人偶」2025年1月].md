@@ -10428,3 +10428,50 @@ mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能�
 那时候战吧还很磕素睦 所以那时候吵特别厉害</blockquote>
 虽然我也很喜欢素睦但是那个黄瓜摆明就是给全员的嘛，只是soyo一眼知道是谁送的才会追出去退还
 
+
+*****
+
+####  dgugvff  
+##### 6837#       发表于 2025-1-9 16:19
+
+完了😱我感觉wsd越烂炒越有问题
+
+*****
+
+####  斑驳的阴影  
+##### 6838#       发表于 2025-1-9 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125906&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-8 01:19</a>
+
+看誰飛LA參展</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这下又LA山火。。。还能正常成行吗，上次也是结月要去南朝鲜遇上尹虫豸发电
+
+*****
+
+####  光MIKAN  
+##### 6839#       发表于 2025-1-9 16:23
+
+mana的人设太素了，不然光看CV都要奶她是下个新团的成员<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">还有整容可能吗
+
+*****
+
+####  sauron.j  
+##### 6840#       发表于 2025-1-9 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136001&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-9 12:20</a>
+
+去年祥子是季军
+
+挺好萌历届成绩</blockquote>
+为什么灯会有挺啊，难道不是大祥不敢面对灯么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 6841#       发表于 2025-1-9 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67138069&amp;ptid=2208921" target="_blank">光MIKAN 发表于 2025-1-9 16:23</a>
+mana的人设太素了，不然光看CV都要奶她是下个新团的成员还有整容可能吗</blockquote>
+染个头发就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

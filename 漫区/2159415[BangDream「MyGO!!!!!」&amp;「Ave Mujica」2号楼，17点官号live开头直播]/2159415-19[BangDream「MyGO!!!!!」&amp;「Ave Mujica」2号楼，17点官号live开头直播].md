@@ -2271,3 +2271,17 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我土逼啥时候能有5星。。。
 
+
+*****
+
+####  月島まりな  
+##### 26811#       发表于 2025-1-9 16:17
+
+ 本帖最后由 月島まりな 于 2025-1-9 16:19 编辑 
+
+这里的表述像是呼应了mggm的新年专栏。果然还是邦太子吧
+<img src="https://p.sda1.dev/21/18c57402f27177cc3c84e082873639f7/FE938431-72E1-47DE-91C1-F8AC7057F5DD.png" referrerpolicy="no-referrer">
+
+10周年展的msr和layer
+<img src="https://p.sda1.dev/21/ee761bbeca513d1485ddd90a34a16aed/image.png" referrerpolicy="no-referrer">
+
