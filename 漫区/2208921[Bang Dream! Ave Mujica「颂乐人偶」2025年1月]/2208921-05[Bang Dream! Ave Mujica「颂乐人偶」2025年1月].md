@@ -10310,3 +10310,20 @@ mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能�
 
 只看mygo祥和睦哪里挺了，在第七集的二创里吗
 
+
+*****
+
+####  狮子咕  
+##### 6825#       发表于 2025-1-9 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质作品人气嘛，不如来猜猜今年的冠军到底是初华还是真奈
+
+*****
+
+####  ads147147  
+##### 6826#       发表于 2025-1-9 14:31
+
+挺好萌本质上是人气投票。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
