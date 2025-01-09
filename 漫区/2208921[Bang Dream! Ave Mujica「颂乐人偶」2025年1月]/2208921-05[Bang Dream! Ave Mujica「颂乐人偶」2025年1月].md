@@ -11108,3 +11108,77 @@ mana空降新团，将鸡狗世界观从双子团拉成大三角<img src="https:
 
 猫是懂上压，祥是懂增压的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SorakadoAo  
+##### 6908#       发表于 2025-1-9 22:29
+
+卧槽这个ed<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 6909#       发表于 2025-1-9 22:29
+
+演出营造的气氛很不错，果然没看枪版是正确的
+
+*****
+
+####  人又如何  
+##### 6910#       发表于 2025-1-9 22:29
+
+睦的镜头看得我大气都不敢出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 6911#       发表于 2025-1-9 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">难道只能黑化了吗
+
+*****
+
+####  6030sylar  
+##### 6912#       发表于 2025-1-9 22:30
+
+<img src="https://img.saraba1st.com/forum/202501/09/222922to330psm0hb3omps.png" referrerpolicy="no-referrer">
+
+<strong>FT6Z4`J(2}H4C{@ZEQ$]Y`4.png</strong> (104.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:29 上传
+
+第二集最速解散传说（
+
+<img src="https://img.saraba1st.com/forum/202501/09/222954w5gbs7g8a1beonsk.png" referrerpolicy="no-referrer">
+
+<strong>ZGPFQNURLDD9N)W8CRI895J.png</strong> (54.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:29 上传
+
+知道自己犯大事的大猫
+
+*****
+
+####  onlv星骸  
+##### 6913#       发表于 2025-1-9 22:31
+
+太哈人了， 前面看的压力好大都不敢全屏看了。  
+
+看完一身冷汗。
+
+
+*****
+
+####  Jobtownb  
+##### 6914#       发表于 2025-1-9 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140769&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-9 22:15</a>
+
+官方组 魔法部译制司</blockquote>
+牛逼      
+
