@@ -630,3 +630,26 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 能给国内的票蛆们提供情绪价值大于天</blockquote>
 然后给民主党加一**大块票仓吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  劲霸男  
+##### 58#       发表于 2025-1-9 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133530&amp;ptid=2237116" target="_blank">冰寒之月 发表于 2025-1-9 02:12</a>
+
+就加拿大的主流意识 妥妥全支持驴党
+
+吞进去了之后象党就没法翻身了</blockquote>
+加拿大不能人滚地留吗？不能打包送回带英去吗？
+
+
+*****
+
+####  mengsu  
+##### 59#       发表于 2025-1-9 09:01
+
+加拿大人被养了几十年的猪了那可能有什么武装反抗的力量。
+
+倒是美国自己稳定度本来就堪忧再吃这么一大块地方就不怕过扩惩罚吗。
+
