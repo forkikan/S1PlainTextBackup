@@ -12703,3 +12703,62 @@ Georgette是以设计师命名的一种轻纱布料，至于附加意义，不�
 
 黄瓜枯萎是没时间照料的暗示吗
 
+
+*****
+
+####  thisisaspider  
+##### 7065#       发表于 2025-1-10 00:45
+
+看了一下其他社区的讨论，本以为嗜血长颈鹿会多点的，结果车角色的真不少。第二集祥子还没直接和睦对爆，就已经这样了。到了第三集是真的不敢想。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+只想说祥子在剧内陷入危机，祥厨也要在剧外抗压了。甚至可能出现弃坑回踩的。
+
+血条没祥子这么厚的祥厨还是先关闭社区吧。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  驴子方舟  
+##### 7066#       发表于 2025-1-10 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">不知道这季圣爱音要修多少人，有加班费吗
+
+*****
+
+####  Aendst  
+##### 7067#       发表于 2025-1-10 00:46
+
+ 本帖最后由 Aendst 于 2025-1-10 00:49 编辑 
+
+挡采访然后被队友埋怨双标，可以说祥子做得不够到位也有忽视，但直接扣锅在一个角色身上黑就有点搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他人没任何一个做得比这好的
+
+或者默认睦只跟祥子一个人关系称得上密切？好像也有道理，那只能说世界对有能确实很严苛吧
+
+*****
+
+####  qjw114514  
+##### 7068#       发表于 2025-1-10 00:46
+
+唉，小睦<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7069#       发表于 2025-1-10 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142356&amp;ptid=2208921" target="_blank">驴子方舟 发表于 2025-1-10 00:45</a>
+不知道这季圣爱音要修多少人，有加班费吗</blockquote>
+估计爱音在母鸡卡这种一天八十个采访的环境呆三天，就要回伦敦了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 7070#       发表于 2025-1-10 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142251&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 00:30</a>
+看有人说nga讨论度很高，去看了一眼，一帮给大祥硬洗的贱种，饭圈臭都溢出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子这集也没做错啥吧，顶多是压力了睦，然后因为编剧的大手刻意导致的没注意到快坏掉的睦
+哪怕是压力睦那段，祥子也是先揽大锅说自己管理不当再去压力的
+
