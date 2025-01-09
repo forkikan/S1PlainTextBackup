@@ -11569,3 +11569,107 @@ pr打哟pr，账号运营吧大概
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Asukalangley33  
+##### 6953#       发表于 2025-1-9 22:56
+
+祥子现在算不算已经吃到“你这人满脑子都只想着自己呢”的回旋镖了？
+
+*****
+
+####  Aendst  
+##### 6954#       发表于 2025-1-9 22:56
+
+有时候知道后面的发展再看当期讨论，就会有一种奇妙的观感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 6955#       发表于 2025-1-9 22:57
+
+很奇怪的一个是
+
+睦瘫坐后，其他团员都是第一时间给了特写
+
+唯独喵梦是分开的
+
+所以我倾向于“喵梦看到睦瘫坐的时候是另一种感情”
+
+*****
+
+####  akiomn  
+##### 6956#       发表于 2025-1-9 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141281&amp;ptid=2208921" target="_blank">Asukalangley33 发表于 2025-1-9 22:56</a>
+祥子现在算不算已经吃到“你这人满脑子都只想着自己呢”的回旋镖了？</blockquote>
+等到第三集你就知道祥子满脑子想的是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 6957#       发表于 2025-1-9 22:58
+
+ 本帖最后由 帆前 于 2025-1-9 23:00 编辑 
+
+这一集线索纷而不乱，气氛渲染驾轻就熟。对戏剧性和角色矛盾的把握，已非任何同人所能企及；美术与角色悲剧的呼应，竟亦非任何手书二创能够逾越。ed响起的一刻，已知近三年来最会拿捏戏剧性和追番心理的原创番，不做第二位想
+
+*****
+
+####  凉良  
+##### 6958#       发表于 2025-1-9 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141286&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-9 22:57</a>
+很奇怪的一个是
+
+睦瘫坐后，其他团员都是第一时间给了特写
+
+唯独喵梦是分开的</blockquote>
+某种意义没错
+
+*****
+
+####  PDQ4  
+##### 6959#       发表于 2025-1-9 22:59
+
+ 本帖最后由 PDQ4 于 2025-1-9 23:00 编辑 
+
+喵梦看到睦的震惊确实和其他人不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉看过第三集后就很不适合参与现在的讨论，再忍一周就好了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼丈人  
+##### 6960#       发表于 2025-1-9 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141256&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-9 22:54</a>
+已知祥子是作曲+写台本，初华是作词然后还有sumimi的商业活动，海玲是行程安排和对接，睦是承担了初华的对 ...</blockquote>
+没作用，开了吧
+
+
+*****
+
+####  xxxcc  
+##### 6961#       发表于 2025-1-9 23:00
+
+好心疼睦头人😭
+
+
+*****
+
+####  oneoutsider  
+##### 6962#       发表于 2025-1-9 23:04
+
+看完真的压力山大，甚至感觉用力过猛了，这就是背负他人人生的重压吗
+
+第一季my go剧情虽然被调侃几个学生闹麻了，但我觉得正因为这种仅仅发生在几个女孩之间的纠葛，压力缓慢释放的剧情才会让观众慢慢接受和喜欢，如果第一季上来就是ave mujica的剧情我不认为还有那么多观众可以接受
+
+*****
+
+####  Yugao  
+##### 6963#       发表于 2025-1-9 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你邦不管哪个乐队，里面的哈基米都是最能整活的
+

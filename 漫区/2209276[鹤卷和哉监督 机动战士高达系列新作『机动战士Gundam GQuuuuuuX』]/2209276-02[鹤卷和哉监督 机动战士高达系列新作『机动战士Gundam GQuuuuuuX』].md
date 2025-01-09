@@ -9066,3 +9066,99 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  saturnus  
+##### 2181#       发表于 2025-1-9 22:57
+
+律师来不是等于埋了一半么，想想之前的惨剧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 2182#       发表于 2025-1-9 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140192&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-9 22:03</a>
+
+能把0085解密出来吗？我看不能
+
+估计是新加一点点的暗示和更大的烟雾弹</blockquote>
+没有解密。
+
+
+*****
+
+####  猫兔同笼  
+##### 2183#       发表于 2025-1-9 23:02
+
+律师的新曲子先不说，感觉pv没多少新东西啊，不是做完了吗一点东西都不想透啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 2184#       发表于 2025-1-9 23:02
+
+新PV信息量不多，某艘只露个头的战舰倒是挺像木马的。
+
+*****
+
+####  oi99o  
+##### 2185#       发表于 2025-1-9 23:03
+
+似李，福皇
+
+<img src="https://img.saraba1st.com/forum/202501/09/230259gbdfbbndvdmn7pdd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:02 上传
+
+*****
+
+####  Sokukei  
+##### 2186#       发表于 2025-1-9 23:03
+
+信息量为0的30s<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 2187#         楼主| 发表于 2025-1-9 23:03
+
+正式PV：[https://youtu.be/PvWIy8ABEOs](https://youtu.be/PvWIy8ABEOs)
+
+*****
+
+####  PascalLefèvre  
+##### 2188#       发表于 2025-1-9 23:04
+
+女二戏份完全不足啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gundammarkⅡ  
+##### 2189#       发表于 2025-1-9 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">是我不会欣赏这曲子吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Toby_dak  
+##### 2190#       发表于 2025-1-9 23:05
+
+17号上映前估计不会再有新信息公布了。
+
+*****
+
+####  molemole  
+##### 2191#       发表于 2025-1-9 23:05
+
+这个扎古，怎么那么像多鲁基斯
+
