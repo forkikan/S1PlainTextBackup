@@ -1110,3 +1110,14 @@ Apex英雄在23赛季下半分赛（1月8日）的更新，把（所有）身法
 
 说起bug衍生动作，早期apex还有个冲刺继承人物舞蹈的，那个又帅又好按，结果被光速删除了
 
+
+*****
+
+####  德德德德德古拉  
+##### 110#       发表于 2025-1-9 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67134037&amp;ptid=2023880" target="_blank">奇拉奇拉 发表于 2025-1-9 08:55</a>
+
+说起bug衍生动作，早期apex还有个冲刺继承人物舞蹈的，那个又帅又好按，结果被光速删除了 ...</blockquote>
+《身法》<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
