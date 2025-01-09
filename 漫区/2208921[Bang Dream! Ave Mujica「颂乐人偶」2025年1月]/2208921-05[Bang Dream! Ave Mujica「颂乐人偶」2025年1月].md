@@ -13250,3 +13250,37 @@ soyo保持了执念，展现了自mygo第九集以来的怨念，她在第十三
 隐瞒就意味着误会，初华在这里有一个经典的被丧母故事蒙蔽了的情节，两个人在小阁楼上的气氛已经不似少女乐队番的欢乐平安，有一种风雨飘摇中小舟同济的感觉（终要翻船的）
 <img src="https://p.sda1.dev/21/6b6398e178142b6f7e3dcde66fa18727/Screenshot_20250109_222832_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 7119#       发表于 2025-1-10 02:19
+
+最后一段从祥子闭眼没看通宵的小睦就发话开始，情节的紧张好像箭在弦上，由小睦的疲惫表情过渡到舞台剧的虚实变幻，高昂的剧中剧台词和故事走向交相呼喊，我是很惊喜mujica作为一个少女乐队企划居然利用好了剧中剧对高潮的作用的。
+<img src="https://p.sda1.dev/21/4fcdc51c8ef0676d62f252db10fefe2e/Screenshot_20250109_223624_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+我一向认为剧中剧的妙处不在于讲得多么明白完备，象征系统多么巧妙精密，剧中剧只需要用吉光片羽的台词在恰当的时机呼应本篇的情绪和角色位置就可以了，mujica这里就做出来了，气势相当好，音乐和音效抓紧了人心，有种徐徐捧上高处重重摔落的美             
+<img src="https://p.sda1.dev/21/5585003776e33f585a86a278efbe5f22/Screenshot_20250109_223824_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 7120#       发表于 2025-1-10 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142735&amp;ptid=2208921" target="_blank">K·os 发表于 2025-1-10 02:08</a>
+
+我觉得坛友觉得低气压只会持续到第七话大概是小看了武士道和独角兽了，这项目从一开始就是独角兽放心飞，出 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说说而已，因为要考虑手游和二偶企划，wsd真敢把睦写成双重人格吗？真敢搞鸡团的真百cp吗？有个底的，因为这是商业作品，真敢让独角兽放飞自我不管不顾那wsd还赚不赚钱啦？
+
+
+*****
+
+####  帆前  
+##### 7121#       发表于 2025-1-10 02:24
+
+<img src="https://p.sda1.dev/21/e99ffd9c1e26ef84972153a117952cbd/Screenshot_20250110_022311.jpg" referrerpolicy="no-referrer">
+
+这集对复杂的群像行为展现了精彩的发挥，可以说是爆得很好看。mygo mujica动画通过人物互动的细节拿捏观众追番的心理，通过角色的负面情绪和信息错位控制观众情绪焦点，我觉得真是太懂了。目前近在咫尺的小睦家庭线和远远的祥子隐瞒债务线会是mujica动画的重点，mygo团五人的行动还没到入场阶段，大喵也才刚碰到要了解自己碰上的是什么人什么事的边缘，海铃和立希、初华和爱灯，必然顾此失彼驾驭不住局面的祥子与可能会有戏份的mana女士，还有心怀执念的soyo，期待后面的多元互动密集超展开。
+<img src="https://p.sda1.dev/21/79cc24a6a5f7e32a42cf837973f17d2a/IMG_20250109_223303.jpg" referrerpolicy="no-referrer">
+
