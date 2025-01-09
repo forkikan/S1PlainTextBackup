@@ -8703,3 +8703,43 @@ GQX官宣PV1已成功突破620W播放，击败水魔乐团和 ...</blockquote>
 
 万代啥时候给gquuuuuux一个官方翻译，不会要等到动画开播的时候吧
 
+
+*****
+
+####  RE㐅ia  
+##### 2146#       发表于 2025-1-9 20:18
+
+<img src="https://img.saraba1st.com/forum/202501/09/201848gqawxfpvapvvacna.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F60DC97C-DFBF-4A8E-8A1E-B3DB023D8A4D.jpeg</strong> (40.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/201850e9pzxi11i0q41yn9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74B97A62-E4A5-495C-8824-E773986E439E.jpeg</strong> (133.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 20:18 上传
+
+
+*****
+
+####  刺客ares  
+##### 2147#       发表于 2025-1-9 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139903&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-9 20:18</a></blockquote>
+还真是律师啊，不是说三个英文单词吗
+
+Plasma，这要翻译成血浆还是等离子体，还是一语双关<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 2148#       发表于 2025-1-9 20:28
+
+演唱会公布的吗，官博还没动静<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
