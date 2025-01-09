@@ -10168,3 +10168,42 @@ https://x.com/emo863063/status/1877211264159564162?s=19
 
 LPL：这简直就是我！（想要的样子）
 
+
+*****
+
+####  PDQ4  
+##### 6810#       发表于 2025-1-9 13:18
+
+「いる場所」这个让我想到第三集了，含剧透反白下
+结尾睦祥吵架那里，祥子最后拉着行李箱离开我一直觉得很有意思，结合这个访谈就更意味深了
+
+之前睦还只是不知道怎么帮助祥子，但是在这个地方物理精神双重意义上，自己从祥子身边离开了
+
+为什么睦陷入了沉睡，因为睦能待的地方不存在了
+
+现在放这个访谈是不是其心可诛了，渡濑这个理解让第三集更刀子了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+感觉睦这个好像更符合“没有祥子的话，哇达西”<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 6811#       发表于 2025-1-9 13:22
+
+战吧早就沉溺于假药里无法自拔了，人气萌图一乐都是挽尊，有多少人把睦祥败犬当既定事实的我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 6812#       发表于 2025-1-9 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136441&amp;ptid=2208921" target="_blank">意大利面 发表于 2025-1-9 13:16</a>
+
+居然包揽四强么
+
+LPL：这简直就是我！（想要的样子）</blockquote>
+而且因为soyo是第七届挺王所以这一届禁赛了。
+
+这就是CRYCHIC的挺力！
+

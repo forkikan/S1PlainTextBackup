@@ -979,3 +979,13 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Guadalcanal  
+##### 91#       发表于 2025-1-9 13:25
+
+吞并加拿大了是不是马斯克就能选美国总统了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
