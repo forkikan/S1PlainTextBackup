@@ -580,3 +580,27 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 润了加拿大的是不是要高举五肢资瓷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adw667  
+##### 53#       发表于 2025-1-9 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133732&amp;ptid=2237116" target="_blank">谷歌街景 发表于 2025-1-9 07:28</a>
+
+上一次丑国入侵加拿大，最后结果是火烧白宫；上一次阿川当丑国总统，最后结果也是火烧白宫。 ...</blockquote>
+现在又起火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HIDER  
+##### 54#       发表于 2025-1-9 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133756&amp;ptid=2237116" target="_blank">约翰里德 发表于 2025-1-9 07:45</a>
+
+国家认同是保皇党。
+
+南边都是反贼。</blockquote>
+如今查理三世不得人望，现在还能自称忠诚派也没多少了吧，跟澳大利亚一样一大帮共和分子，而且被移民潮也稀释得差不多了
+
