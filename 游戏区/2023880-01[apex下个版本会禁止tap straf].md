@@ -1190,3 +1190,11 @@ warframe子弹跳一开始也是游戏特性吧，最后因为玩家喜欢变成
 
 不会用，我觉得挺好。
 
+
+*****
+
+####  jpiajwopdm  
+##### 117#         楼主| 发表于 2025-1-9 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重生又开始瞎逼闹腾了么？没事反正我两年没玩了。basic bitchs不用不练还支持你们加油呗，反正都是pro哥和大师以上段位玩家的意见毁了这个游戏。手柄哥转换器哥dma哥是没事的，mnk就是原罪。
+

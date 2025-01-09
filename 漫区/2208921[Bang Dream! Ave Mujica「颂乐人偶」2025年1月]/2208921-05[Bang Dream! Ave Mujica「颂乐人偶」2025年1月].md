@@ -12246,3 +12246,124 @@ ED 看起来像是五个人的信物，那初华是 mujica 面具就太哈人了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  千本blur  
+##### 7020#       发表于 2025-1-9 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141518&amp;ptid=2208921" target="_blank">scorbian 发表于 2025-1-9 23:14</a>
+这集看下来喵梦最多是不会读空气，毕竟跟其他人都不熟，满脑子想着能站在聚光灯下（这一点上跟爱音还挺像的 ...</blockquote>
+ano tokyo最多有点爱慕虚荣，小心思罢了。
+大猫老师道德水平明显更低
+
+*****
+
+####  聊nsy专用号  
+##### 7021#       发表于 2025-1-9 23:46
+
+突然想到下次鸡live带一包木头面具去前排发应该很有趣
+
+*****
+
+####  adcdqre  
+##### 7022#       发表于 2025-1-9 23:48
+
+本集笑点<img src="https://p.sda1.dev/21/6cb1b87b36a6b4cfe170db40bd4b405e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Ashice  
+##### 7023#       发表于 2025-1-9 23:48
+
+大猫老师的动作成功地做到了扮可爱扮到让人感觉恶心的程度<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+很少在动画里体会到这种感觉
+
+*****
+
+####  bird-lay  
+##### 7024#       发表于 2025-1-9 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141927&amp;ptid=2208921" target="_blank">吹楼伞人 发表于 2025-1-9 23:45</a>
+
+那句是之前祥说的mujica现在这个工作量饱和把所有人累半死的状态不会长久
+
+她念这个可能是给自己鼓劲，忍 ...</blockquote>
+居然是那么久之前的，她是在心里念了多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+感觉压力更大了
+
+*****
+
+####  thisisaspider  
+##### 7025#       发表于 2025-1-9 23:49
+
+祥子就是血条太厚了，编剧才能这么折磨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  结衣小比取  
+##### 7026#       发表于 2025-1-9 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141913&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-9 23:43</a>
+
+睦在采访的时候说的“不会长久”是什么意思，不会真的是妈妈在家里念她吧 ...</blockquote>
+复读，祥子前面说过，其实第一话睦那个“移动”可能也是复读老师的话
+
+*****
+
+####  厉飞雨  
+##### 7027#       发表于 2025-1-9 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大猫老师人气颜值不如海玲是因为大猫老师当网红的时候滤镜拉太大见光死吗
+
+*****
+
+####  影伴光生  
+##### 7028#       发表于 2025-1-9 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141958&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-9 23:48</a>
+本集笑点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且是直播没到三分钟的掉凳，跟今天官号b限直播有一拼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 7029#       发表于 2025-1-9 23:53
+
+这对话是不是有点奇怪啊 又好像没有 因为从小和睦在一起所以我也认识这样
+
+<img src="https://img.saraba1st.com/forum/202501/09/235330b8uqzsx2luqso1sk.png" referrerpolicy="no-referrer">
+
+<strong>]YMANBNXMR3W}(Y1R(~1[U4.png</strong> (16.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/235336b6y4fakydsqdhts8.png" referrerpolicy="no-referrer">
+
+<strong>Z_SYRTSB[_M[5B01[ZNOOGY.png</strong> (20.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:53 上传
+
+*****
+
+####  Mikumiku831  
+##### 7030#       发表于 2025-1-9 23:54
+
+不绷着有啥办法 自己组的队 自己喊解散不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  金钱与民主  
+##### 7031#       发表于 2025-1-9 23:55
+
+得说啊，之前楼u们在森美奈美身上贷了多少款啊？有曾想到会是这种局面吗？虽然此时也不是啥下结论的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -1160,3 +1160,16 @@ boss的话只需要左右二段横跳就能躲掉大部分子弹了，用血包�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ParadiseMartyr  
+##### 112#         楼主| 发表于 2025-1-9 23:49
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-9 23:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140632&amp;ptid=2236671" target="_blank">哈迪斯兜帽 发表于 2025-1-9 22:06</a>
+感觉二代地图辨识度变低了（
+迷路转了半天愣是没看出来窗户外面是阳台</blockquote>
+前期是得稳扎稳打，到后面就起飞了，乱杀
+穿个重甲还健步如飞。和猎枪机枪一列的那个最后解锁的步枪有勾爪，位移能力超强，配合二段跳和空中冲刺，乱飞(这玩意站在墙下面往上射可以一直把你拉到房顶…极其变态)
+

@@ -9636,3 +9636,88 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 如果主角团这次还是联邦方的话，某个金发墨镜男还在吗</blockquote>
 和红高达合二为一了吧
 
+
+*****
+
+####  check  
+##### 2241#       发表于 2025-1-9 23:48
+
+服了 这pv剪得一坨
+
+*****
+
+####  lickey  
+##### 2242#       发表于 2025-1-9 23:48
+
+感觉这个pv对我纯纯是负面宣传，主要是歌太烂了，画面表现也没达到预期，算了，开播前拉低点预期也不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 2243#       发表于 2025-1-9 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141941&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-9 23:46</a>
+
+和红高达合二为一了吧</blockquote>
+我倒不希望这样，这搞得换机都换不利索了，红高达都多老的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2244#       发表于 2025-1-9 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有没有可能修斯头上扒的那个机械猎头蟹才是总帅
+
+
+*****
+
+####  Gysumitka  
+##### 2245#       发表于 2025-1-9 23:52
+
+<img src="https://p.sda1.dev/21/d1a70aa7a2ab292b59d7ce34dadf9358/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 2246#       发表于 2025-1-9 23:52
+
+ 本帖最后由 ナルバレック 于 2025-1-9 23:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140871&amp;ptid=2209276" target="_blank">史蒂符 发表于 2025-1-9 22:22</a>
+
+又回顾了一遍武斗传，日升能不能再整个蒙子哥这样的主角，虽然和阿姆罗、卡缪那样凑不出一家，但是不会扯着 ...</blockquote>
+真正不BB的不就是五小强里最离谱的那三个嘛，要么不说话，一说就言语比较极端，经常沙了再说
+
+*****
+
+####  0aleph37  
+##### 2247#       发表于 2025-1-9 23:52
+
+<blockquote>纪寞 发表于 2025-1-9 23:50
+我倒不希望这样，这搞得换机都换不利索了，红高达都多老的东西了</blockquote>
+只要经过现代化改造就可以了
+
+*****
+
+####  ナルバレック  
+##### 2248#       发表于 2025-1-9 23:54
+
+426馆比种零都多很多，逆鸭闪哈那种松竹馆数下超好表现得20亿票房都能算褒姒了
+
+*****
+
+####  刺客ares  
+##### 2249#       发表于 2025-1-9 23:55
+
+IMAX52馆，合计到达426馆，怕不是得日本一半以上了
+
+看坐席数吧，这回真下本了
+
+*****
+
+####  ArthurDent  
+##### 2250#       发表于 2025-1-9 23:55
+
+家人们，我金属口红PTSD翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
