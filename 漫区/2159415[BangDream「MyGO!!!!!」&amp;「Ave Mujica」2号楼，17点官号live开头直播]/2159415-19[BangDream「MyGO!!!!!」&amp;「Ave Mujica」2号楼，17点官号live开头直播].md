@@ -2301,3 +2301,23 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 下周嘉宾，反田真上桌了
 <img src="https://p.sda1.dev/21/75df9765e6a59fc8070f8f954a18e26a/Image_819722418723166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26813#       发表于 2025-1-9 23:10
+
+剧情机翻（之后编辑）
+
+[【【音频】Steer to Utopia - Morfonica-哔哩哔哩】](https://b23.tv/bkacgkA)
+卡面
+五⭐
+<img src="https://p.sda1.dev/21/aa49a8cd90aa1db783248e4cef797cdd/IMG_20250109_225709.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/93e5f7525c8173b7b11f954b7e3407bd/IMG_20250109_225719.jpg" referrerpolicy="no-referrer">
+四⭐
+<img src="https://p.sda1.dev/21/8cddc509bef3545dcad1e71d0f15d9f3/IMG_20250109_225728.jpg" referrerpolicy="no-referrer">
+三⭐
+<img src="https://p.sda1.dev/21/c8ad4be2ed5f2c2060eb1de7baa1f231/IMG_20250109_225737.jpg" referrerpolicy="no-referrer">
+二⭐
+<img src="https://p.sda1.dev/21/106853d7319c3670edd669f94b708ee0/Image_823395530348924.png" referrerpolicy="no-referrer">
+

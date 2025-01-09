@@ -9162,3 +9162,138 @@ PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face
 
 这个扎古，怎么那么像多鲁基斯
 
+
+*****
+
+####  Gysumitka  
+##### 2192#       发表于 2025-1-9 23:06
+
+歌感觉不够劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 2193#       发表于 2025-1-9 23:06
+
+还在藏红高达，kuso<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ku2154513  
+##### 2194#       发表于 2025-1-9 23:07
+
+这歌不怎么来劲啊
+
+*****
+
+####  古怪山庄士大夫  
+##### 2195#       发表于 2025-1-9 23:07
+
+我日了万代，就30秒看啥子哦
+
+*****
+
+####  纪寞  
+##### 2196#       发表于 2025-1-9 23:09
+
+有没有n1的翻译一下歌词都唱的什么<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 2197#       发表于 2025-1-9 23:10
+
+好多自由
+
+不安desu
+
+*****
+
+####  natmk  
+##### 2198#       发表于 2025-1-9 23:10
+
+歌好一般
+
+*****
+
+####  中野梓  
+##### 2199#       发表于 2025-1-9 23:11
+
+只有木马和福皇有看点
+
+
+*****
+
+####  patema  
+##### 2200#       发表于 2025-1-9 23:12
+
+和山下和解了，镇暴扎古够帅<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kisstv22  
+##### 2201#       发表于 2025-1-9 23:12
+
+歌差点意思
+
+*****
+
+####  没取名啊  
+##### 2202#       发表于 2025-1-9 23:13
+
+我要自由PTSD了
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 2203#       发表于 2025-1-9 23:13
+
+ 本帖最后由 蓝色有脚⑨倍速 于 2025-1-9 23:15 编辑 
+
+福皇领子上是吉翁标 这个世界线的吉翁军服说不定是西服式<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/09/231154ypalvlevj2jh62nh.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-09 231114.png</strong> (2.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:11 上传
+
+*****
+
+####  岸浪白野  
+##### 2204#       发表于 2025-1-9 23:14
+
+对这歌的评价就是歌词好多自由，没了
+
+*****
+
+####  Gysumitka  
+##### 2205#       发表于 2025-1-9 23:14
+
+要金属口红PTSD了（）
+
+*****
+
+####  刺客ares  
+##### 2206#       发表于 2025-1-9 23:15
+
+......这人不会是那谁吧
+
+<img src="https://img.saraba1st.com/forum/202501/09/231413tjkrokoi0y3osj2i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 23:14 上传
+
+*****
+
+####  kisstv22  
+##### 2207#       发表于 2025-1-9 23:15
+
+就是还行，没有其他的感想<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

@@ -10142,3 +10142,15 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">萌新光速寄 为什么不能和漏油一样欧 抽啥出啥 为什么
 
+
+*****
+
+####  qixinno2  
+##### 16044#       发表于 2025-1-9 23:14
+
+ 本帖最后由 qixinno2 于 2025-1-9 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141335&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-9 23:02</a>
+
+萌新光速寄 为什么不能和漏油一样欧 抽啥出啥 为什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新你那顶多一发十连的石头还想什么呢 青子双黄后你也太膨胀了
+
