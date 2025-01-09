@@ -392,3 +392,18 @@ gohands现在在邪教动画公司的路上越走越远了，但凡在突出人�
 
 说实话根本没掌握爆点的精髓，就应该最后几秒光速死亡，且死状越猎奇越好，不等人反应时间，像这种还响着bgm说遗言的算是个锤子爆点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mc凉月奏酱  
+##### 87#       发表于 2025-1-10 01:25
+
+姐姐破防那段很有感觉 下一秒就把旗拔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 88#       发表于 2025-1-10 01:28
+
+太他妈震撼了，我第一次有看出工伤的感觉，看看你们这台词写的什么JB<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

@@ -10086,3 +10086,74 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 女二……哎哈哈哈……雷比尔孙女好了（
 反正女二藏着姓氏怕不是哪个名门之后哦
 
+
+*****
+
+####  王留美  
+##### 2286#       发表于 2025-1-10 01:29
+
+……说起来GQX有没有可能是吉翁版的独角兽？
+用来针对红敢达制造的NTD？
+
+*****
+
+####  刺客ares  
+##### 2287#       发表于 2025-1-10 01:30
+
+<img src="https://img.saraba1st.com/forum/202501/10/012926tciyna9iar9i39ri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9797.jpeg</strong> (207.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 01:29 上传
+
+你说生日我就想起来了
+
+为什么12.4公开企划
+
+为了鹤卷gg永远忘不了的女孩是吧
+
+*****
+
+####  RE㐅ia  
+##### 2288#       发表于 2025-1-10 01:31
+
+<img src="https://img.saraba1st.com/forum/202501/10/013059a6777eqswoqma7qf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8C59613D-F709-4A4E-9013-8071D3A6D10C.jpeg</strong> (121.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-10 01:30 上传
+
+*****
+
+####  纪寞  
+##### 2289#       发表于 2025-1-10 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142518&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 01:10</a>
+
+可能是在side6等待和妮娅安接头准备拿提姆雷零件，没想到零件被女主扔了，行迹还暴露给吉翁军方，击退扎 ...</blockquote>
+不能吧，如果飞马就是友方，那他自己留下还能把全船人都留下多少有点不负责了吧。我本来以为他第一次没跑是因为船没来暂时走不了，如果有船的话就不好说了
+
+*****
+
+####  Gysumitka  
+##### 2290#       发表于 2025-1-10 01:33
+
+<img src="https://p.sda1.dev/21/9ba237a1568513fb2253ad4c3aa47263/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 2291#       发表于 2025-1-10 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142603&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-10 01:29</a>
+
+……说起来GQX有没有可能是吉翁版的独角兽？
+
+用来针对红敢达制造的NTD？</blockquote>
+我之前也是这么猜的，pv都强调那个红高达引发的爆炸，升重应该就是预防这种可能做出来的新机体。想起来这个项目就是从独角兽的ep7开始牵线的
+

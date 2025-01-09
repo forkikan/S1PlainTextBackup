@@ -34,3 +34,11 @@
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Limpidity  
+##### 177#       发表于 2025-1-10 01:28
+
+永恒是分化吧，见到的玩2016不喜欢永恒的理由基本都集中在要么太难太累，要么不喜欢“被教玩游戏”
+

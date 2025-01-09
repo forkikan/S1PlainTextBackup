@@ -13010,3 +13010,68 @@ soyo的条目已经上了villains wiki了，是“恶棍”了
 
 萌新问一下，OP那里的judy judu juda是什么语言，什么意思？
 
+
+*****
+
+####  鱼丈人  
+##### 7096#       发表于 2025-1-10 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142520&amp;ptid=2208921" target="_blank">jyhldlagen 发表于 2025-1-10 01:11</a>
+soyo的条目已经上了villains wiki了，是“恶棍”了</blockquote>
+左上角莫里亚蒂？什么时候有莫蒂斯
+
+*****
+
+####  Diong  
+##### 7097#       发表于 2025-1-10 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142556&amp;ptid=2208921" target="_blank">gzfantasy 发表于 2025-1-10 01:18</a>
+萌新问一下，OP那里的judy judu juda是什么语言，什么意思？</blockquote>
+juda就是犹大，犹大之吻是背叛的意思。
+
+
+*****
+
+####  庸necro  
+##### 7098#       发表于 2025-1-10 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142147&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-10 00:13</a>
+忍不住多看了几遍 感觉祥子对初华距离感好重啊</blockquote>
+有点类似于被动防御吧，祥子长期隐藏自己困境，已经习惯性对人保持距离了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Devola  
+##### 7099#       发表于 2025-1-10 01:32
+
+追原创八点档河豚番，不就应该享受嘴臭角色厨的极致互殴吗
+
+嗜血观众在你楼没多少可聊的，只会默默反复鉴赏第一集拼好饭被偷和第三集mortis递伞片段，期待下一次女人扯头发打群架
+
+这两个片段演出和音乐是真的过瘾啊
+
+*****
+
+####  Tienx  
+##### 7100#       发表于 2025-1-10 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种压力得持续到第四集
+
+*****
+
+####  刑部姬真可爱  
+##### 7101#       发表于 2025-1-10 01:34
+
+旁边chuchu大香蕉祥子笑死
+
+----发送自 [realme RMX1991,Android 11](http://stage1.5j4m.com/?1.42)
+
+*****
+
+####  kivz  
+##### 7102#       发表于 2025-1-10 01:34
+
+mujica还有机会全体换装吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
