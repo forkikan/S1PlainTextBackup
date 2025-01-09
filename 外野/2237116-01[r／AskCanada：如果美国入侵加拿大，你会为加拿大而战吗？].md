@@ -745,3 +745,52 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 加拿大带路党肯定是不少的
 
+
+*****
+
+####  变老的大二  
+##### 69#       发表于 2025-1-9 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67134484&amp;ptid=2237116" target="_blank">sagajytc 发表于 2025-1-9 09:50</a>
+
+加拿大带路党肯定是不少的</blockquote>
+一堆加拿大移民当时本来就是奔着移民美国去的，真要公投的话，结果不会好看的。<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  LilithMardin  
+##### 70#       发表于 2025-1-9 09:58
+
+主要加拿大从地图上看真的很好拿下，人口超级集中，大部分土地上都没人。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  变老的大二  
+##### 71#       发表于 2025-1-9 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67134342&amp;ptid=2237116" target="_blank">URAGoodMan 发表于 2025-1-9 09:35</a>
+
+真的吞并了的话，我提议瑞安雷诺兹当州长</blockquote>
+老马的母亲是加拿大出生的，老马天生就有加拿大国籍<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+加拿大统领让老马来当最好不过了，真羡慕加拿大人可以看到赛博朋克。
+
+
+*****
+
+####  AstraZeneca  
+##### 72#       发表于 2025-1-9 10:04
+
+ 还是有那么几个明白人在认真讨论如何破坏美国货运铁路网和电网的
+
+*****
+
+####  normalli  
+##### 73#       发表于 2025-1-9 10:05
+
+美国真要打加拿大还真不好打
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
