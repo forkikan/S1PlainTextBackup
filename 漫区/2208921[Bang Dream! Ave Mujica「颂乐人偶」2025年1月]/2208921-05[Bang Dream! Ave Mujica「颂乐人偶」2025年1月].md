@@ -9970,3 +9970,25 @@ ED後的C part也不容錯過！</strong>
 
 这就不得不提说到本质迫害的时候都在拿人气投票图一乐糊弄过去，结果出来了就开始拿挺王各种说事的两面派了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 6798#       发表于 2025-1-9 11:46
+
+网友瞎起哄的产物是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 6799#       发表于 2025-1-9 11:48
+
+感觉睦就是因为假药“被挺王”了，原教旨的挺王还得是taki<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 6800#       发表于 2025-1-9 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年好像祥子干到亚军？她一样也没什么挺的吧。
+
