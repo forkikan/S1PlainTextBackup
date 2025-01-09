@@ -12762,3 +12762,162 @@ Georgette是以设计师命名的一种轻纱布料，至于附加意义，不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子这集也没做错啥吧，顶多是压力了睦，然后因为编剧的大手刻意导致的没注意到快坏掉的睦
 哪怕是压力睦那段，祥子也是先揽大锅说自己管理不当再去压力的
 
+
+*****
+
+####  鱼丈人  
+##### 7071#       发表于 2025-1-10 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142329&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-10 00:41</a>
+注意力全在soyo身上 现在才发现有黄瓜枯萎的画面 哇 我的木头人</blockquote>
+种瓜黄台下，瓜熟子离离。
+一摘使瓜好，再摘使瓜稀。
+三摘犹自可，摘绝抱蔓归。
+
+*****
+
+####  哈曼的YY  
+##### 7072#       发表于 2025-1-10 00:55
+
+刚接触的时候说观众都嗜血长颈鹿也是骗到我了 现在外面完全变成角色厨互车
+
+我感觉这集大家行动都很符合自己的逻辑而已 压力大的 痴女的 打工态度的 不解愤怒的 谁也没犯什么大错
+
+至于下集姐妹俩早爆早好 后面麻烦还多着呢
+
+*****
+
+####  山ノ内花音  
+##### 7073#       发表于 2025-1-10 00:57
+
+第三集大爆 第四集被小莫狠狠拷打
+第五集能稍微缓解就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7074#       发表于 2025-1-10 00:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等不及想看mortis正论暴击祥子了
+
+*****
+
+####  turtlejk  
+##### 7075#       发表于 2025-1-10 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141810&amp;ptid=2208921" target="_blank">Diong 发表于 2025-1-9 23:34</a>
+
+所以这个Georgette Me是啥意思，怎么问了下GPT也没个出典。</blockquote>
+b站评论偷的
+
+Georgette Spelvin 是一个在戏剧界广泛使用的虚构名字，主要用于在节目单或演职员表中隐藏女性演员的真实身份，尤其是当演员在一部剧中扮演多个角色时。这个名称是 George Spelvin 的女性版本，用于表示女性角色。
+
+用途
+
+隐藏双重角色：当一个女演员在一部剧中扮演两个或多个角色时，使用 Georgette Spelvin 这个名字可以避免观众注意到这一点。
+
+表示非人类角色：有时用于表示尸体、动物或其他非人类角色。
+
+*****
+
+####  swff  
+##### 7076#       发表于 2025-1-10 00:59
+
+现在观众真的太浮躁了，不理解角色理解剧情，角色不能犯错不能有缺点，加上饭圈化，就这样了
+
+*****
+
+####  哈曼的YY  
+##### 7077#       发表于 2025-1-10 00:59
+
+现在外面对祥老师态度是欺软怕硬 只会对关心自己的人发火 管不住大喵 总之就是无能 和有能一点关系没有
+
+什么运行乐队的能力？描写太少了 当作没有
+
+
+*****
+
+####  akiomn  
+##### 7078#       发表于 2025-1-10 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单方面吊打没意思了，肯定得互相伤害啊，无非是一个瞬发伤害另一个是延迟刀暴击到白睦上，虽然就祥子对幼驯染的心软样大概也打不出什么暴击只会躺下挨草吧？
+
+*****
+
+####  鱼丈人  
+##### 7079#       发表于 2025-1-10 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142127&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-10 00:10</a>
+远坂睦，间桐祥
+
+—— 来自 S1Fun</blockquote>
+不是远坂祥，间桐睦？
+
+*****
+
+####  屑屑代沟尼亚  
+##### 7080#       发表于 2025-1-10 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摘面具这波睦祥压力都不小
+
+祥子没爆只不过是抗压习惯了顶住了
+
+然后这两互相触发被动给了对方一下
+
+第一集给人偶的回旋镖肯定要打回来的 
+
+大喵并不慈爱 睦头也快不顺从了 
+
+那我们善良的Doloris什么时候不演了啊
+
+
+*****
+
+####  鱼丈人  
+##### 7081#       发表于 2025-1-10 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142147&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-10 00:13</a>
+忍不住多看了几遍 感觉祥子对初华距离感好重啊</blockquote>
+你想像一下你好兄弟想上你你也会保持距离的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宝儿  
+##### 7082#       发表于 2025-1-10 01:02
+
+雅蠛蝶 不要在压力睦了   好恐怖啊 shit
+
+*****
+
+####  Mikumiku831  
+##### 7083#       发表于 2025-1-10 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142464&amp;ptid=2208921" target="_blank">鱼丈人 发表于 2025-1-10 01:01</a>
+
+你想像一下你好兄弟想上你你也会保持距离的</blockquote>
+真好兄弟我会开玩笑的说快上床<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7084#       发表于 2025-1-10 01:04
+
+Georgette这个应该是一种高级丝织物的名字吧
+有种翻译ed标题是丝线缠绕你和我
+
+*****
+
+####  NODY  
+##### 7085#       发表于 2025-1-10 01:04
+
+不是分析过了初华那个善良在日语里面的反义词不是邪恶而是无情吗，顶多说初华外热内冷而已
+
+*****
+
+####  Mikumiku831  
+##### 7086#       发表于 2025-1-10 01:06
+
+车总能找到角度
+
+我还说初华啥都看见了都当作没发生<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

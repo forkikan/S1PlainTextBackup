@@ -9911,3 +9911,55 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 第二批包含战舰的夏利亚部队来了，打不了一点，抱团跑路
 
+
+*****
+
+####  王留美  
+##### 2271#       发表于 2025-1-10 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142354&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-10 00:45</a>
+ 飞马级战舰和夏利亚（暂定）出来了总算能排除军团战从头打到尾的可能性了吧 ...</blockquote>
+本来就没有一丝一毫的这种可能性吧？
+
+*****
+
+####  王留美  
+##### 2272#       发表于 2025-1-10 00:57
+
+考虑到和红敢达的关系，修司怕不是卡缪哟
+
+*****
+
+####  Sokukei  
+##### 2273#       发表于 2025-1-10 00:59
+
+才刚放出30s PV几个小时啊就快进到牢修了吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纪寞  
+##### 2274#       发表于 2025-1-10 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142415&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 00:53</a>
+
+应该是分两批来的吧？
+
+击退第一批，不打不相识，组队打军团赛，过几天平静日子
+
+第二批包含战舰的夏利亚部队 ...</blockquote>
+所以说他第一次打完为什么不赶紧跑，还留下多少有点心太大了。
+
+女主和扎古出来那个洞估计是修司平时开红高达出入殖民卫星内外用的了。
+
+而且这side6内鬼估计不少啊，飞马都能藏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 2275#       发表于 2025-1-10 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142460&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-10 01:00</a>
+ 所以说他第一次打完为什么不赶紧跑，还留下多少有点心太大了。 女主和扎古出来那个洞估计是修司平时开红 ...</blockquote>
+飞马大概率是夏利亚部队的，甚至是旗舰也不出奇
+
