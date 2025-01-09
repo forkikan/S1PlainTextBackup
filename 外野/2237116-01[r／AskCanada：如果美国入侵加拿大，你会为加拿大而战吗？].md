@@ -1044,3 +1044,23 @@ maga声望啊
 
 统一北美之后美国能不能跟着加拿大用公制单位啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 97#       发表于 2025-1-9 15:01
+
+这个贴里还有加拿大人幻想和老美打游击战 我只能笑笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 98#       发表于 2025-1-9 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136291&amp;ptid=2237116" target="_blank">reekilynn 发表于 2025-1-9 12:56</a>
+
+那么问题来了，如果真吞了加拿大，是把加拿大作为一个整体，还是按原本的省级划分来
+
+如果是前者，那整个加 ...</blockquote>
+物理上很难做到那么大面积就一个省.毕竟行政区划分是实操上面的人管人的合理配比.
+

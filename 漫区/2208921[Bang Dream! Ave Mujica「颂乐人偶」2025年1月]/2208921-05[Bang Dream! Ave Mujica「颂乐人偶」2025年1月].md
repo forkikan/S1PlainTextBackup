@@ -10350,3 +10350,21 @@ mana现在看起来是个好孩子，应该会有助攻部分（感觉初华能�
 由手机上传
 2025-1-9 14:45 上传
 
+
+*****
+
+####  狮子咕  
+##### 6829#       发表于 2025-1-9 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来官方这个哭哭祥是和动画相关还是漫画相关，会出现在正片里吗（祥子你居然有钱换衣服了）
+
+
+*****
+
+####  一心而用  
+##### 6830#       发表于 2025-1-9 15:07
+
+<img src="https://p.sda1.dev/21/ed9be4107eef8b7fb9e057bc0e6182c7/73c3d039gy1hxebvy1m1ej20t215kwnr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1a8eab0c0a0e8a9d993a7df0b2a27628/73c3d039gy1hxebvyd1uej215k0t2ajg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6120761be3b4277f250b29e774b8d830/73c3d039gy1hxebvynxcgj215k0t246s.jpg" referrerpolicy="no-referrer">
+
