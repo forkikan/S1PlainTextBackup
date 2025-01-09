@@ -862,3 +862,22 @@ ykw难道是为了做慈善才吞加麻大么？“我看你这社会福利支�
 
 ？真吞并可不是请进来当大爷的
 
+
+*****
+
+####  aeolus039  
+##### 81#       发表于 2025-1-9 10:59
+
+顶楼这人说法是没错的。加麻大作为白人英语国家，没有fbi建成的钓鱼密探体系，真有一两千决心抵抗到死的死士足以把美国搞的鸡犬不宁——唯一的问题是有没有一两个死士都难说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yukine_Chris  
+##### 82#       发表于 2025-1-9 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133047&amp;ptid=2237116" target="_blank">valand 发表于 2025-1-8 23:18</a>
+
+合并对美国来说有啥好处，本来投票算两票的，合并就只剩一票了</blockquote>
+苏联可以自带三票美国为什么不行
+

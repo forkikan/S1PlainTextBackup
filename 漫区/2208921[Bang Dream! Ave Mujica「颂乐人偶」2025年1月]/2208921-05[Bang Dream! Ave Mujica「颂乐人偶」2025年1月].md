@@ -9938,3 +9938,11 @@ ED後的C part也不容錯過！</strong>
 例子就是上個月的animage：[https://animageplus.jp/news/detail/96](https://animageplus.jp/news/detail/96)
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 6794#       发表于 2025-1-9 11:07
+
+到第六集大伙都沉默了 看来是持续低气压
+
