@@ -11406,3 +11406,166 @@ op的特效字幕好耶<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  新HGCG  
+##### 6938#       发表于 2025-1-9 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141100&amp;ptid=2208921" target="_blank">cayon 发表于 2025-1-9 22:40</a>
+
+op的特效字幕好耶</blockquote>
+人在日本被限制IP看不了B站官方，请问是怎样的？
+
+*****
+
+####  Asukalangley33  
+##### 6939#       发表于 2025-1-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141146&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-1-9 22:43</a>
+
+大喵不算什么问题，大祥这师承chu2  ykn的压力怪才是炸团的关键
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+如果祥子是睦头妈的女儿
+
+那真是chuchu复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fmban  
+##### 6940#       发表于 2025-1-9 22:48
+
+她们演出前才看台本的吗
+
+*****
+
+####  新HGCG  
+##### 6941#       发表于 2025-1-9 22:49
+
+哦这NICONICO的TAG
+<img src="https://p.sda1.dev/21/edf8de3528198357fdd20a6a15add855/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔天使  
+##### 6942#       发表于 2025-1-9 22:49
+
+隔壁nga二次元区满屏幕mujica，<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 6943#       发表于 2025-1-9 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141199&amp;ptid=2208921" target="_blank">fmban 发表于 2025-1-9 22:48</a>
+
+她们演出前才看台本的吗</blockquote>
+喵梦摘面具导致祥子要重新写剧情，时间不够没办法
+
+*****
+
+####  rrrimo  
+##### 6944#       发表于 2025-1-9 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140977&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-1-9 22:30</a>
+
+第二集最速解散传说（
+
+知道自己犯大事的大猫</blockquote>
+大喵被老戏骨震惊
+
+Snipaste_2025-01-09_22-48-38.png
+(322.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/224842yv7zsnh5n0vhiybh.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼丈人  
+##### 6945#       发表于 2025-1-9 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141061&amp;ptid=2208921" target="_blank">狼王卢比奥 发表于 2025-1-9 22:37</a>
+喵梦以后怎么救，这两集纯纯恶役啊</blockquote>
+贱猫怎么办，只有天知道，
+贱猫乖猫 能爱的就是好猫
+
+*****
+
+####  鱼丈人  
+##### 6946#       发表于 2025-1-9 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141082&amp;ptid=2208921" target="_blank">stormist 发表于 2025-1-9 22:38</a>
+一个感觉不一定对，这集祥子返校手上捏着个便签。
+
+不会是高松灯每天往祥子鞋柜里塞小纸条吧？ ...</blockquote>
+只有小纸条？
+
+*****
+
+####  onlv星骸  
+##### 6947#       发表于 2025-1-9 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141073&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-1-9 22:37</a>
+
+我发现了，这队里一个能救人的都没有，你邦以往的乐队都有能救人的，哪怕是mygo也有爱音，而且一般都是能活 ...</blockquote>
+整集唯一的温情时刻靠的是外队的甜甜圈，真的是喘了口大气。
+
+这队问题靠内部解决基本不可能了。
+
+
+*****
+
+####  新HGCG  
+##### 6948#       发表于 2025-1-9 22:53
+
+第二集我最喜欢的场面
+
+1 “只有你找到我”
+
+2 长崎素世
+
+3 祥子数数
+
+*****
+
+####  FeteFete  
+##### 6949#       发表于 2025-1-9 22:53
+
+<blockquote>onlv星骸 发表于 2025-1-9 22:51
+整集唯一的温情时刻靠的是外队的甜甜圈，真的是喘了口大气。
+
+这队问题靠内部解决基本不可能了。 ...</blockquote>
+当然是c团的老队友介入了
+
+*****
+
+####  柴突猛进  
+##### 6950#       发表于 2025-1-9 22:54
+
+已知祥子是作曲+写台本，初华是作词然后还有sumimi的商业活动，海玲是行程安排和对接，睦是承担了初华的对外接受采访，那喵梦在母鸡卡里面的工作是啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adcdqre  
+##### 6951#       发表于 2025-1-9 22:54
+
+情节安排的还算可以没觉得什么可分锅的
+
+*****
+
+####  h33  
+##### 6952#       发表于 2025-1-9 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141256&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-9 22:54</a>
+已知祥子是作曲+写台本，初华是作词然后还有sumimi的商业活动，海玲是行程安排和对接，睦是承担了初华的对 ...</blockquote>
+pr打哟pr，账号运营吧大概
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

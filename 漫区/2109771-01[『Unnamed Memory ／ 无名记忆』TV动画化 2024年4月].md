@@ -98,3 +98,13 @@
 
 —— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  ArthurDent  
+##### 192#       发表于 2025-1-9 22:47
+
+这片没版权字幕？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

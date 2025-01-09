@@ -612,3 +612,19 @@ Screenshot_20250103_185119.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 1053#       发表于 2025-1-9 22:52
+
+第一发十连就冒绿光，局势大好啊......怎么歪了？？！！安吉拉，你算计我！！！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/09/225223iv7475p1b7zszb77.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_664.jpg</strong> (558.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 22:52 上传
+
