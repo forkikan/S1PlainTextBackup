@@ -9009,3 +9009,13 @@ pv2能来个红高达的影子差不多了<img src="https://static.saraba1st.com
 
 法师OP，光姨ED<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2176#       发表于 2025-1-9 21:38
+
+PV2多来点信息量吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+来点池田秀一和苍月升，来点红高达，来点宇宙世纪0085
+
