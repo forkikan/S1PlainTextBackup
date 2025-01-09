@@ -13075,3 +13075,41 @@ juda就是犹大，犹大之吻是背叛的意思。
 
 mujica还有机会全体换装吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 7103#       发表于 2025-1-10 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142458&amp;ptid=2208921" target="_blank">鱼丈人 发表于 2025-1-10 01:00</a>
+不是远坂祥，间桐睦？</blockquote>
+感觉祥妹才是被送出去的那个<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Reinhold  
+##### 7104#       发表于 2025-1-10 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142520&amp;ptid=2208921" target="_blank">jyhldlagen 发表于 2025-1-10 01:11</a>
+
+soyo的条目已经上了villains wiki了，是“恶棍”了</blockquote>
+soyo第一季本来就是传统意义上的恶役
+
+*****
+
+####  Boliva  
+##### 7105#       发表于 2025-1-10 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 7106#       发表于 2025-1-10 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142620&amp;ptid=2208921" target="_blank">Tienx 发表于 2025-1-10 01:33</a>
+这种压力得持续到第四集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四集？第六集都可能，甚至第七集如果制作组想搞事也可以
+
