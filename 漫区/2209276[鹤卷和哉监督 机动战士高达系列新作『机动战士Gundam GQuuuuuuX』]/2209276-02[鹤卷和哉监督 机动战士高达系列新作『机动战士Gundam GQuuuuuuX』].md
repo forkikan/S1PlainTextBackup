@@ -9721,3 +9721,27 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  史蒂符  
+##### 2251#       发表于 2025-1-9 23:56
+
+宇多田是不是还没参与过高达，有没有可能请到她来唱一首<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oi99o  
+##### 2252#       发表于 2025-1-9 23:59
+
+不懂，日本imax馆和普通馆是完全分开的吗？怎么馆数就这样直接加上去了
+
+*****
+
+####  双菜  
+##### 2253#       发表于 2025-1-10 00:01
+
+新PV也太难绷了，开幕机油ptsd，然后米奇律师这首歌也是低于平均水平，之后神人剪辑画面和歌各演各的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

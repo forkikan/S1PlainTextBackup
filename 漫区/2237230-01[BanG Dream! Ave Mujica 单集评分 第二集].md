@@ -458,3 +458,33 @@ mujika作为商业化乐队，用了2集半几乎走完一个乐队的大半生�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  阿酷怕苦  
+##### 50#       发表于 2025-1-9 23:59
+
+睦从mygo开始，其实就是没人在乎的，素世为了找祥子，直接放狠话根本不在乎睦自己的想法。祥子等人对睦的精神状态的忽视几乎是必然的，因为睦自己其实是讨好型人格，只想为自己在意的人做些事情，刻意压抑了自己的想法，而且配合睦这张嘴，一开口就把事情搞砸，总之就是总有一天她和别人都会爆发的。目前来看，我觉得只有海铃能救一救睦了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赛文欧德  
+##### 51#       发表于 2025-1-9 23:59
+
+这集够劲爆了，后面还有大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 52#       发表于 2025-1-10 00:01
+
+演出真的是耍疯了，虽然以前橘子社和破例杠这样的三渲二大厂的作品已经看的不少了，但能这样不从动作戏的角度把3d动画的优势发挥出来的真不多
+
+
+*****
+
+####  你妈的为什么  
+##### 53#       发表于 2025-1-10 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">初华现在越善解人意，想到她最后一个要爆就越吓人
+

@@ -12367,3 +12367,82 @@ ano tokyo最多有点爱慕虚荣，小心思罢了。
 
 得说啊，之前楼u们在森美奈美身上贷了多少款啊？有曾想到会是这种局面吗？虽然此时也不是啥下结论的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 7032#       发表于 2025-1-9 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦得感谢祥子血条够厚还能撑着，不然被捅了那么多刀，下一个黑化的就是祥子了，到时候黑化睦祥混合双打有喵梦好受的
+
+*****
+
+####  lucasxp  
+##### 7033#       发表于 2025-1-9 23:56
+
+我就好奇大家就这么放心让睦一个人接受那么多采访，然后以睦的实力居然真的就只爆了一句雷
+
+憋的很辛苦吧睦头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uhiuk  
+##### 7034#       发表于 2025-1-9 23:57
+
+<blockquote>哈曼的YY 发表于 2025-1-9 23:53
+这对话是不是有点奇怪啊 又好像没有 因为从小和睦在一起所以我也认识这样
+
+</blockquote>
+可能是因为知道睦祥是幼驯染的人不会问出这样的问题吧
+
+*****
+
+####  oldgoat  
+##### 7035#       发表于 2025-1-9 23:57
+
+枪版高糊没看得很清楚，但这次看清楚了，睦妈就是高度的表演型人格，跟睦相处也就是一套一套的表演。
+
+*****
+
+####  木板春香  
+##### 7036#       发表于 2025-1-9 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141998&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-9 23:53</a>
+
+这对话是不是有点奇怪啊 又好像没有 因为从小和睦在一起所以我也认识这样</blockquote>
+ 这个逻辑链是：木头和祥子从小就认识，我是木头的妈，认识很合理吧！
+
+*****
+
+####  victorws  
+##### 7037#       发表于 2025-1-9 23:59
+
+看了一半实在不忍继续了，太窒息了，留到明天看吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  08df1258c5ed098  
+##### 7038#       发表于 2025-1-9 23:59
+
+从幼儿园就在一起是否宣告姐妹论彻底破产
+
+*****
+
+####  Mikumiku831  
+##### 7039#       发表于 2025-1-9 23:59
+
+事务所指名要求的 逃不了啊 就爆了一句算好的了
+
+
+*****
+
+####  吹楼伞人  
+##### 7040#       发表于 2025-1-10 00:02
+
+<img src="https://p.sda1.dev/21/f5414367a8a1f004e45bda443b461db1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/75c4ef8d44753b592acf17f500f4b3a7/image.jpg" referrerpolicy="no-referrer">
+母鸡卡日推热搜第一
+睦第七
+

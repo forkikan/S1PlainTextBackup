@@ -1659,3 +1659,13 @@ Myth of Emotions想星的大天使
 
 为何3d建模整个种族都是黑皮<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 172#       发表于 2025-1-10 00:01
+
+第一集没有前世画面，但是ed完全没有藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情来说应该是会一路王道到底吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

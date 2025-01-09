@@ -10176,3 +10176,14 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 尬黑呢  还有20涨护符 整整30抽！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接开蓝绿修改器吧
 
+
+*****
+
+####  alucardcz  
+##### 16047#       发表于 2025-1-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141940&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-9 23:46</a>
+
+直接开蓝绿修改器吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">“无课” 萌新 从不氪金 
+
