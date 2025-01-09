@@ -10112,3 +10112,14 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 没事了 差了下要11羁绊  2被动120要14羁绊。。那不点第3被动了 还是120提升大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 狗萌新又有什么2宝的了
 
+
+*****
+
+####  alucardcz  
+##### 16041#       发表于 2025-1-9 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136496&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-9 13:23</a>
+
+欧 羡慕 狗萌新又有什么2宝的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如你狗  说的当然是学姐 我考虑是开ex 爆伤 减cd还是120+2ex
+
