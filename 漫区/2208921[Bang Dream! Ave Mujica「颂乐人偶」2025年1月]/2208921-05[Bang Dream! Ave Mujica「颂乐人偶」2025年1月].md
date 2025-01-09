@@ -10704,3 +10704,36 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 我最反感的就是她们那种透露出来的龌龊想法，睦被她们塑造成一心一意对着素世好，围绕她打转，然 ...</blockquote>
 有一部分人喜欢cp与角色无关也与作品无关，单纯是借壳来进行一种自我表达和投射来获得满足感罢了
 
+
+*****
+
+####  SakuraのOrigami  
+##### 6867#       发表于 2025-1-9 21:01
+
+奏音这身好看啊
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 6868#       发表于 2025-1-9 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67138122&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-9 16:28</a>
+
+染成黄毛，离开事务所，自己翻唱、写歌发到网上，天天在公寓吃泡面是吧 ...</blockquote>
+每一年都要有一个黄毛轻浮女是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 6869#       发表于 2025-1-9 21:07
+
+偶然间发现了一个恶搞网站“大祥移动”[https://saki.mobi/](https://saki.mobi/)<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 6870#       发表于 2025-1-9 21:07
+
+基本不会真确认关系的片怎么搞得你死我活的，有互动的自然有人磕，不管正面负面。
+

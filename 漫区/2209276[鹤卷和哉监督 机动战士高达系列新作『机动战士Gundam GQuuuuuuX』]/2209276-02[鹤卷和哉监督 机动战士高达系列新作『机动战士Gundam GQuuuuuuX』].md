@@ -8841,3 +8841,118 @@ Plasma是演唱会最后一首
 
 这次肯定砸资源狠狠炒热度了，已经看到有姨姥开始咋舌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 2158#         楼主| 发表于 2025-1-9 20:58
+
+巡演现场公布 米津玄師2025TOUR_JUNK
+
+「機動戦士ガンダムGQuuuuuuX｣
+
+主題歌：米津玄师「Plasma」
+
+*****
+
+####  纪寞  
+##### 2159#       发表于 2025-1-9 20:59
+
+能不能再狠点，ed就熊光<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2160#       发表于 2025-1-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139997&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-9 20:35</a>
+
+那这op名字在这里是意味着什么呢
+
+比较科幻的话应该就是等离子体了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">答案是宇宙世纪的电脑都是linux，桌面环境都是KDE Plasma
+
+
+*****
+
+####  oi99o  
+##### 2161#       发表于 2025-1-9 21:00
+
+要来了
+
+<img src="https://img.saraba1st.com/forum/202501/09/210039yoqcgtt2x2doctmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 21:00 上传
+
+*****
+
+####  Piano-Forest  
+##### 2162#         楼主| 发表于 2025-1-9 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140147&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-9 20:58</a>
+
+巡演现场公布 米津玄師2025TOUR_JUNK
+
+「機動戦士ガンダムGQuuuuuuX｣</blockquote>
+今晚11点 正式PV公开
+
+◤24:00解禁◢
+
+このあと24:00より《本予告》を解禁！
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』の主題歌が流れる新規PVとなっています。
+
+ぜひご期待ください！
+
+*****
+
+####  RE㐅ia  
+##### 2163#       发表于 2025-1-9 21:02
+
+泪目了zsbd
+
+*****
+
+####  Gysumitka  
+##### 2164#       发表于 2025-1-9 21:02
+
+宣传机器就直接开了，好好好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 2165#       发表于 2025-1-9 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140173&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-9 21:01</a>
+ 今晚11点 正式PV公开  ◤24:00解禁◢ </blockquote>
+能把0085解密出来吗？我看不能
+估计是新加一点点的暗示和更大的烟雾弹
+
+*****
+
+####  刺客ares  
+##### 2166#       发表于 2025-1-9 21:05
+
+原来是在等律师演唱会首发吗
+
+律师一炮打响宣传机器了属于是
+
+*****
+
+####  中野梓  
+##### 2167#       发表于 2025-1-9 21:05
+
+我来了，坐等11点
+
+*****
+
+####  纪寞  
+##### 2168#       发表于 2025-1-9 21:07
+
+pv2能来个红高达的影子差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
