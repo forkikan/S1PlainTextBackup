@@ -9805,3 +9805,69 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 明早起来准时观察霓虹厨豚reaction（
 
+
+*****
+
+####  王留美  
+##### 2261#       发表于 2025-1-10 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142268&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 00:33</a>
+ 明早起来准时观察霓虹厨豚reaction（</blockquote>
+反正X上现在就两种人
+八爷！啊啊啊啊啊啊啊太好了（不是敢达粉）
+！？是宇宙世纪吧？（敢达粉）
+
+*****
+
+####  王留美  
+##### 2262#       发表于 2025-1-10 00:36
+
+大胆预测，女主其实是哈曼
+
+*****
+
+####  RE㐅ia  
+##### 2263#       发表于 2025-1-10 00:36
+
+ 本帖最后由 RE㐅ia 于 2025-1-10 00:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142268&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 00:33</a>
+
+明早起来准时观察霓虹厨豚reaction（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+断头饭罢了 已经预定渚薰位活不过剧场版了（
+
+*****
+
+####  PascalLefèvre  
+##### 2264#       发表于 2025-1-10 00:36
+
+上这么多馆，宣发还扣扣嗖嗖藏着掖着，搞不懂你代
+
+*****
+
+####  刺客ares  
+##### 2265#       发表于 2025-1-10 00:39
+
+<blockquote>王留美 发表于 2025-1-10 00:34
+反正X上现在就两种人
+
+八爷！啊啊啊啊啊啊啊太好了（不是敢达粉）
+
+！？是宇宙世纪吧？（敢达粉） ...</blockquote>
+律师粉不看动画得到了新曲和大tie，姨姥忽略律师公式曲得到了UC新作，大家各吃各的（
+
+
+*****
+
+####  刺客ares  
+##### 2266#       发表于 2025-1-10 00:41
+
+<blockquote>RE㐅ia 发表于 2025-1-10 00:36
+断头饭罢了 已经预定渚薰位活不过剧场版了（</blockquote>
+他对女主说话那语气真的太卡沃鲁了
+
+感觉随时会蹦出一句和你相遇诞生于世
+
+能比牢四多活两集就是赢（
+

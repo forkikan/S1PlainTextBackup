@@ -12631,3 +12631,75 @@ mana：真的动不动就有人在传要解散或者感情不和呢，害得我�
 祥老师看见解散谣言汗都流下来了，后面要是有什么演 ...</blockquote>
 祥子变身同人本有在画了吗
 
+
+*****
+
+####  sauron.j  
+##### 7057#       发表于 2025-1-10 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141719&amp;ptid=2208921" target="_blank">用户名1 发表于 2025-1-9 23:27</a>
+
+很精巧的一集，能够想象这集应该属于是预设了主题后往回填充的内容。虽然精致，但由于指向过于明确稍显僵硬 ...</blockquote>
+因为这才是一个正常番剧的叙事表达明确度，相比之下go的暗流藏得太深门槛较高，不太适合这个系列大火后的基调
+
+*****
+
+####  山ノ内花音  
+##### 7058#       发表于 2025-1-10 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142251&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 00:30</a>
+看有人说nga讨论度很高，去看了一眼，一帮给大祥硬洗的贱种，饭圈臭都溢出来了 ...</blockquote>
+这集她也没什么黑点吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+毕竟是唯一帮睦挡采访的人
+没有任何人做到这一点
+
+*****
+
+####  鱼丈人  
+##### 7059#       发表于 2025-1-10 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141810&amp;ptid=2208921" target="_blank">Diong 发表于 2025-1-9 23:34</a>
+所以这个Georgette Me是啥意思，怎么问了下GPT也没个出典。</blockquote>
+Georgette是以设计师命名的一种轻纱布料，至于附加意义，不要试图揣度日本人对外语解读和魔改的思路
+
+*****
+
+####  九陌狂游  
+##### 7060#       发表于 2025-1-10 00:38
+
+不是，你楼不是著名孝祥楼吗，倒垃圾走错地方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Mikumiku831  
+##### 7061#       发表于 2025-1-10 00:41
+
+注意力全在soyo身上 现在才发现有黄瓜枯萎的画面 哇 我的木头人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7062#       发表于 2025-1-10 00:42
+
+黄瓜确实是已经烂完了
+
+*****
+
+####  helloo23  
+##### 7063#       发表于 2025-1-10 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141178&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-9 15:46</a>
+
+人在日本被限制IP看不了B站官方，请问是怎样的？</blockquote>
+海外可以用chrome插件 “哔哩助手”
+
+*****
+
+####  哈曼的YY  
+##### 7064#       发表于 2025-1-10 00:43
+
+黄瓜枯萎是没时间照料的暗示吗
+
