@@ -13524,3 +13524,15 @@ rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Reinhold  
+##### 7142#       发表于 2025-1-10 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142767&amp;ptid=2208921" target="_blank">帆前 发表于 2025-1-10 02:24</a>
+这集对复杂的群像行为展现了精彩的发挥，可以说是爆得很好看。mygo mujica动画通过人物互动的细节拿捏观众 ...</blockquote>
+祥子没有债务。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
