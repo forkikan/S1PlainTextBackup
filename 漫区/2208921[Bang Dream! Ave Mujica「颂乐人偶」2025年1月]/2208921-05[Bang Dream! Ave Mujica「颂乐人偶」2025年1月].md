@@ -10492,3 +10492,14 @@ mana的人设太素了，不然光看CV都要奶她是下个新团的成员还�
 染个头发就行了</blockquote>
 染成黄毛，离开事务所，自己翻唱、写歌发到网上，天天在公寓吃泡面是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 6844#       发表于 2025-1-9 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67138089&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-9 16:25</a>
+
+为什么灯会有挺啊，难道不是大祥不敢面对灯么</blockquote>
+人气投票而已。
+
