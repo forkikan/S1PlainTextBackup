@@ -10882,3 +10882,54 @@ b站go博士的pv分析上是很像的，甚至打光都一样</blockquote>
 一起D4DJ</blockquote>
 甚至喵梦和祥子玩偶的面具互换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 6883#       发表于 2025-1-9 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67139045&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-9 18:13</a>
+
+怪力祥</blockquote>
+这几天搬家，刚看了个高科技搬三角钢琴的演示，是门肥差
+
+*****
+
+####  山ノ内花音  
+##### 6884#       发表于 2025-1-9 21:50
+
+祥子确实经常使用鸟相关的词呢
+
+
+*****
+
+####  SakuraのOrigami  
+##### 6885#       发表于 2025-1-9 21:55
+
+真奈来了
+
+<img src="https://img.saraba1st.com/forum/202501/09/215536ygx9wxrbm4mwbxze.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250109215355.png</strong> (438.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 21:55 上传
+
+*****
+
+####  山ノ内花音  
+##### 6886#       发表于 2025-1-9 21:56
+
+反子来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  PDQ4  
+##### 6887#       发表于 2025-1-9 21:57
+
+反田妖女上邦tv了？？
+以前三森上过吗
+
+mana的剧情地位更难以揣摩了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

@@ -2285,3 +2285,19 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 10周年展的msr和layer
 <img src="https://p.sda1.dev/21/ee761bbeca513d1485ddd90a34a16aed/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26812#       发表于 2025-1-9 21:57
+
+新的坐偶，mygo校服
+<img src="https://p.sda1.dev/21/46e61eecf42df6347eec37f69f2aea5d/Image_819551503668079.jpg" referrerpolicy="no-referrer">
+
+十周年倒计时图（mygo）
+选图标准越来越奇怪了
+<img src="https://p.sda1.dev/21/51dfb327152362813a9ff0dd479e1f49/IMG_20250109_213510.jpg" referrerpolicy="no-referrer">
+
+下周嘉宾，反田真上桌了
+<img src="https://p.sda1.dev/21/75df9765e6a59fc8070f8f954a18e26a/Image_819722418723166.png" referrerpolicy="no-referrer">
+
