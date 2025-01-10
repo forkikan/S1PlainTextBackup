@@ -1200,3 +1200,28 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 
 两个月速通武道馆+全国巡演+满大街广告+各种上节目，那投入资金应该也挺高的，没准公司答应让一个女高中生当P的条件，就是在赚回宣发成本之前不给P的分成，只给乐队部分的工资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人外娘恋  
+##### 7507#       发表于 2025-1-10 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150403&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-10 23:24</a>
+
+两个月速通武道馆+全国巡演+满大街广告+各种上节目，那投入资金应该也挺高的，没准公司答应让一个女高中生 ...</blockquote>
+突然想起隔壁小孩姐，未成年租公寓好像要监护人同意，完了，非常合理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gandalf  
+##### 7508#       发表于 2025-1-10 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150286&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-10 23:07</a>
+
+這是樂隊番
+
+沒有什麼是三個樂團11人對邦解決不了的</blockquote>
+《轻音之后最强乐队神作，五对CP齐撒狗粮》
+
+明白了，是蝈蝈的冤魂<img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">
+

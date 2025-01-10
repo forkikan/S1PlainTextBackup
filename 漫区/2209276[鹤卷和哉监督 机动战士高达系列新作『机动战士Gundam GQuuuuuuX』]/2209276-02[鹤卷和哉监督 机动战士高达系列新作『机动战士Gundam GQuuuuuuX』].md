@@ -12200,3 +12200,13 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 可以对我使用修正拳<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 2486#       发表于 2025-1-10 23:28
+
+可是在鸡瘟胜利的世界线，哈曼成为了新联邦的领袖，不觉得这样的设定很炫酷吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
