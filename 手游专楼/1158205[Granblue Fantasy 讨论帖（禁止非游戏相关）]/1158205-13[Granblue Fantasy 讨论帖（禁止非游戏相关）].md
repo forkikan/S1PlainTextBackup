@@ -55,3 +55,13 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 新制作人完美继承了hrt的衣钵，小甜甜传说到第10年了还在继续
 
+
+*****
+
+####  Sylpheed  
+##### 18171#       发表于 2025-1-10 16:38
+
+修得动底层对数盾了，感觉没什么好修的，又不是000那种没加盖，这次只是把盖操翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

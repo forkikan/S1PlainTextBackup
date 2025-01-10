@@ -195,3 +195,18 @@
 
 初华是在收ob小姐的周边啦
 
+
+*****
+
+####  Akari  
+##### 7422#       发表于 2025-1-10 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146497&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-10 14:42</a>
+
+睦现在缺一个肯定她的吉他的人，所以一直在不开心的乐队内耗，无法通过弹吉他开live回血
+
+等有人（或者说应 ...</blockquote>
+也不是没人肯定过，初华在mygo13话的时候称赞过。
+
+睦可能把那个当成了大家的奉承了。
+
