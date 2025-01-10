@@ -13890,3 +13890,72 @@ https://x.com/kurehalxxx/status/1877365978817798461
 对了我看没什么人提祥子鞋柜撕的便签纸？
 按理说这个时间节点应该不是灯写的，所以是开盒后同学的骚扰？那为什么要用便签纸这个让观众误解的道具，不太懂这里编剧想表达什么
 
+
+*****
+
+####  玖羽  
+##### 7177#       发表于 2025-1-10 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143644&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-1-10 09:25</a>
+
+对了我看没什么人提祥子鞋柜撕的便签纸？
+
+按理说这个时间节点应该不是灯写的，所以是开盒后同学的骚扰？那 ...</blockquote>
+不是便签，纸太大了，我猜可能是情书粉丝信
+
+<img src="https://img.saraba1st.com/forum/202501/10/092825bzzlhiio29bi5bb0.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (62.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:28 上传
+
+*****
+
+####  Mikumiku831  
+##### 7178#       发表于 2025-1-10 09:31
+
+印象中也没有灯在便签写字的场景吧
+
+而且便签也没那么大
+
+但是后面肯定会有灯拿便签给祥子的场景的
+
+*****
+
+####  ml1642879  
+##### 7179#       发表于 2025-1-10 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143562&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-10 09:16</a>
+第一个很好回答啊，丰川家的千金，若叶家的千金，小有名气的高水平贝斯手，技术不错的小网红，再加上当红 ...</blockquote>
+那按这样说的话事务所是已经决定了没人气就开盒的炒作路线？所以说不能细想
+至于第二点涉及剧透，但喵梦是确实看到了睦的表情
+
+
+*****
+
+####  skives  
+##### 7180#       发表于 2025-1-10 09:34
+
+<img src="https://img.saraba1st.com/forum/202501/10/093319ovpv3xzspxgfc62p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1288.jpeg</strong> (199.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-10 09:33 上传
+
+下一秒就要被拉到天台/医务室/体育教室 这样那样了
+
+*****
+
+####  结衣小比取  
+##### 7181#       发表于 2025-1-10 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142767&amp;ptid=2208921" target="_blank">帆前 发表于 2025-1-10 02:24</a>
+
+这集对复杂的群像行为展现了精彩的发挥，可以说是爆得很好看。mygo mujica动画通过人物互动的细节拿捏观众 ...</blockquote>
+祥子并没有债务，至少那个168亿既不是清告也不是祥子的债务
+

@@ -1669,3 +1669,11 @@ Myth of Emotions想星的大天使
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  七七見奈波  
+##### 173#       发表于 2025-1-10 09:30
+
+ED全曲好听，除了中间那段尾音一股菅野味儿的青藏高原part（误）有点怪，结尾收得也有点怪
+
