@@ -13596,3 +13596,70 @@ rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆 
 
 该等待第三集了 好奇16号的节目会不会爆料下
 
+
+*****
+
+####  一心而用  
+##### 7150#       发表于 2025-1-10 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143140&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-10 08:18</a>
+突然想到一个梗，手机码来不及反白了各位将就看——独角兽老师是不是在致敬咚兄弟……也可能有坛友没看过那 ...</blockquote>
+我看过但是没有联想到你说的是哪个梗。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wszweill  
+##### 7151#       发表于 2025-1-10 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143173&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-9 19:24</a>
+
+邀请的时候问了啊 结果这俩全把对话跳了直接同意 甚至都没听到人生托付</blockquote>
+对方不说 不等于不想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 比如rikki都知道木头的雷区是被 当成艺人的女儿（？），一般路人也知道肯定对初华有影响。剧里剧外都知道这俩肯定是看着祥子人情去的 ，但是大祥老师直到现在的表现是按 商业伙伴的利益交换模式，这个和大猫与海玲是合适的，但是与初华 和木头是不合适 的。只能说，这一点上突出一个祥爹亲生<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+当然了，不排除后面大祥老师被黑化初华和木头2v1，狠狠的报复回来<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 7152#       发表于 2025-1-10 08:31
+
+最新车祥老师角度是
+
+你说得对，我们就是在确苛责，但是
+
+“你不过是个学生，能承担得起别人的人生吗”
+
+“做不到的事就不要轻易说出口”
+
+“把你们的人生交给我”
+
+感觉就像主角前期遇到困难还没解决就狂喷主角一样 太变态了
+
+
+*****
+
+####  山ノ内花音  
+##### 7153#       发表于 2025-1-10 08:33
+
+毕竟已经被电竞圈腌入味了 
+经典五局比赛第一局还没打完
+就开始急着清算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 7154#       发表于 2025-1-10 08:34
+
+动画把木头人表现得太自闭了吧，现实真有什么话都不怎么说的人接一堆通告的吗
+
+*****
+
+####  哈曼的YY  
+##### 7155#       发表于 2025-1-10 08:37
+
+<blockquote>wszweill 发表于 2025-1-10 08:31
+对方不说 不等于不想 比如rikki都知道木头的雷区是被 当成艺人的女儿（？），一般路人也知道肯定对初华有 ...</blockquote>
+之前雷区被面具挡下了啊 带着面具祥老师还能推托掉很多东西 估计后面要解决这个心理问题的
+
+初华自己在smm就有点不自在 也说来母鸡卡能转换心情了
+
