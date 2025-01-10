@@ -949,3 +949,107 @@ mujica：娱乐圈题材都市情感剧</blockquote>
 贴吧社区讨论环境不可避免的滑向了“谁尽力，谁犯罪，谁的打法不团队，谁又没有人情味”的走向。猫粉疯狂攻 ...</blockquote>
 因为大伙都默认最后一定是团队包饺子，如果mujica是结局完全不可预测的原创，现在应该讨论睦会带走几条人命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 7485#       发表于 2025-1-10 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149966&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-10 22:22</a>
+
+話說，
+
+大立老師是打算要愛音不讓燈得到消息？
+
+燒了學校嗎？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立希对母鸡卡完全不了解不感兴趣的，应该是对鸡有多火爆没什么数的。而且她应该也不知道祥子就在灯隔壁班，还被人围观动物园了这种具体细节的。
+
+*****
+
+####  PDQ4  
+##### 7486#       发表于 2025-1-10 22:27
+
+真八点档的话祥子早就和初睦都滚过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 7487#       发表于 2025-1-10 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148184&amp;ptid=2208921" target="_blank">醋栗 发表于 2025-1-10 18:01</a>
+
+从这一集睦的崩坏台词“已经无处可逃”来看，mujica的人偶剧与乐队众人的现实处境也许会有一定的关联，我猜 ...</blockquote>
+Oblivionis说的别管脸了把一切献给avemujiva，很明显就是祥要再敲打敲打喵梦专心搞乐队嘛。喵梦除了流量外一直有反客为主变成实质leader的潜在风险，祥得一直压着她。
+
+将来暗示……总不能狗血到喵梦遇到事故伤了脸什么的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7488#       发表于 2025-1-10 22:29
+
+祥子初中应该就和睦做过了
+和初华做 毫无疑问是mygo第七集最后那个晚上
+
+*****
+
+####  gammatau  
+##### 7489#       发表于 2025-1-10 22:30
+
+10秒钟肯定是把床整理一下嘛，初华想象中肯定是马上就要用床了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 7490#       发表于 2025-1-10 22:31
+
+真有像MyGO或是Mujica的电视剧么？推荐几个看看:D
+
+*****
+
+####  若有所思  
+##### 7491#       发表于 2025-1-10 22:31
+
+剧情很喜欢
+
+但是网红这一直在别人雷区的蹦迪有点<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 7492#       发表于 2025-1-10 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我觉得首先社区讨论要摒弃“骂a的一定是a的对家”这种思维
+
+想洗白大祥也很简单，大祥爆炸只是个时间问题，无非是第四集就爆还是再多铺垫几集的问题，大家都爆一爆把话说开了就好，大伙都要进手游，没必要非得加戏
+
+
+*****
+
+####  厄神之息  
+##### 7493#       发表于 2025-1-10 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149989&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-10 22:25</a>
+
+因为大伙都默认最后一定是团队包饺子，如果mujica是结局完全不可预测的原创，现在应该讨论睦会带走几条人 ...</blockquote>
+只是觉得角色粉丝之间在这争谁首锅这种讨论很搞笑。好像在看什么电竞分锅大会一样。
+
+*****
+
+####  akiomn  
+##### 7494#       发表于 2025-1-10 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">111真的八点档吗？我要看祥子和初睦滚床单
+
+*****
+
+####  qwased  
+##### 7495#       发表于 2025-1-10 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150020&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-1-10 22:29</a>
+
+Oblivionis说的别管脸了把一切献给avemujiva，很明显就是祥要再敲打敲打喵梦专心搞乐队嘛。喵梦除了流量 ...</blockquote>
+我猜就是炸团之后喵梦重新单飞结果人气暴跌（也就是“脸”不行了）
+
+但是最后怎么包饺子确实不好猜，要么大俗要么大雅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

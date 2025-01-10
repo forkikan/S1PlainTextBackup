@@ -11928,3 +11928,70 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 
 哈曼这次可以成为总帅的母亲吗
 
+
+*****
+
+####  OrianaThomson  
+##### 2466#       发表于 2025-1-10 22:31
+
+马上想到每周又可以开始造哈曼假药很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 2467#       发表于 2025-1-10 22:34
+
+<img src="https://img.saraba1st.com/forum/202501/10/222254cy7v3y5335gqggyv.png" referrerpolicy="no-referrer">
+
+<strong>捕dd获.PNG</strong> (14.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:22 上传
+
+重温了一遍哈曼的人物经历，来造点假药
+
+如果玛秋真是平行哈曼，那么GQX世界线与主世界线分歧点在她十岁进入NT研究所那段时间
+
+<img src="https://img.saraba1st.com/forum/202501/10/222620rqdmkeqgzgzcjj7e.png" referrerpolicy="no-referrer">
+
+<strong>dd获.PNG</strong> (38.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:26 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/222612umkcs5sg52s63888.png" referrerpolicy="no-referrer">
+
+<strong>ddad获.PNG</strong> (73.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:26 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/222633pql9x5590l9wl55f.png" referrerpolicy="no-referrer">
+
+<strong>捕d**获.PNG</strong> (43.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:26 上传
+
+主世界线是因为看到NT活跃和被鸭子的事迹激励，才决定坚持下去
+
+GQX世界线鸭子在所罗门爆了，NT相关都要被牵连
+
+她忍不下去了就从研究所逃走，由于忌惮紫婆抓人又不敢回家，只能更名改姓躲去中立的side6
+
+<img src="https://img.saraba1st.com/forum/202501/10/223319eb3vj1b8hzaag628.png" referrerpolicy="no-referrer">
+
+<strong>捕11111获.PNG</strong> (69.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:33 上传
+
+甚至可能逃走的时候就是失忆状态？不然怎么会感觉生活很虚假呢
+
+因为之前是卡恩家千金啊，现在浑浑噩噩过着平民JK生活，当然觉得浑身不自在<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
