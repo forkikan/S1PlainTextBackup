@@ -1295,3 +1295,44 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 
 所以鸡团光速武道馆导致不光是kkr不能客串，楚平方和ykn估计也不能出现了吧，不然这俩牙都要咬碎了。
 
+
+*****
+
+####  哈曼的YY  
+##### 7516#       发表于 2025-1-11 00:14
+
+<img src="https://img.saraba1st.com/forum/202501/11/001404zdd0q7rzm5imp0lb.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg70fhdawAAevAd.jpg</strong> (276.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 00:14 上传
+
+[https://x.com/AzJames34/status/1877706924256604540](https://x.com/AzJames34/status/1877706924256604540)
+
+*****
+
+####  NODY  
+##### 7517#       发表于 2025-1-11 00:16
+
+ 本帖最后由 NODY 于 2025-1-11 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150610&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-11 00:12</a>
+
+所以鸡团光速武道馆导致不光是kkr不能客串，楚平方和ykn估计也不能出现了吧，不然这俩牙都要咬碎了。 ...</blockquote>
+不会
+
+楚平方被大公司找过，人家自己不肯去的，剧情说过ras就是要证明不赚钱的音乐也有价值，而且剧情里面楚平方已经被layer提到了，后面客串概率不小
+
+至于萝，目前看来可能比mujica要火，因为喵梦蹭萝的视频播放是十万二十万，开盒后蹭睦就八万
+
+*****
+
+####  哈曼的YY  
+##### 7518#       发表于 2025-1-11 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150357&amp;ptid=2208921" target="_blank">人外娘恋 发表于 2025-1-10 23:19</a>
+
+当前最热门的乐队，速通武道馆，马上全国巡演，通告采访接到爆，满大街的广告，在这种情况下牢祥都没钱去租 ...</blockquote>
+正是因为一无所有只剩下母鸡卡所以才把全身心都投进去了
+
