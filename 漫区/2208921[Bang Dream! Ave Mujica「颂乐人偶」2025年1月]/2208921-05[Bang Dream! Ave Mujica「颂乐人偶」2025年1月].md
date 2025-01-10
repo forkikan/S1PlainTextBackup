@@ -16249,3 +16249,48 @@ ep3 把睦玩没了</blockquote>
 但是祥子不是日菜，反正舅舅说了后面祥子对睦 ...</blockquote>
 祥子自己还顶得住吗？现在有初华给回了口血，恢复的精力也拿来应付媒体和大猫了，再去睦那边吃一套伤害别把自己搭进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厉飞雨  
+##### 7383#       发表于 2025-1-10 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">何不安排一般路过白猫闪现地下室跟木子美酣畅淋漓对弹一天，然后挥挥衣袖留下一句有趣女人
+
+*****
+
+####  ggxx001  
+##### 7384#       发表于 2025-1-10 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145680&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-10 12:53</a>
+如果招募睦是自私的话，是不是代表祥子对她不带的那个人很好这种事要看本来关系的亲疏远近的 ...</blockquote>
+要看目的性 如果祥劝诱睦参加乐队是给睦治病当然没话说 但这只是组建mujica的必要性 我的理解是没有睦就组不成mujica 所以即使祥了解睦的情况 也只能苦一苦睦了 至于睦心甘情愿那是睦的事 不是祥的理由
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  玖羽  
+##### 7385#       发表于 2025-1-10 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146515&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 14:44</a>
+
+睦家的情况，我的猜测是みなみちゃん和たっくん是父母作为艺能界大物的昵称，比如超级变变变主持人萩本欽一 ...</blockquote>
+没有，迄今为止所有角色对这两人的称呼都是森美奈美和若叶，喵梦听到たっくん还反应了一下是谁
+
+*****
+
+####  哈曼的YY  
+##### 7386#       发表于 2025-1-10 14:50
+
+这样吧 这个企划打回去重练 不招募黄瓜了 给爱音地狱特训一年上来弹 给她这机会她肯定想出风头
+
+*****
+
+####  山ノ内花音  
+##### 7387#       发表于 2025-1-10 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146517&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-10 14:44</a>
+祥子自己还顶得住吗？现在有初华给回了口血，恢复的精力也拿来应付媒体和大猫了，再去睦那边吃一套伤害别 ...</blockquote>
+祥不入地狱 谁入地狱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
