@@ -10966,3 +10966,72 @@ nt也不是生死关头觉醒的吧</blockquote>
 
 哈曼和希洛克，那女二是谁呢
 
+
+*****
+
+####  0aleph37  
+##### 2370#       发表于 2025-1-10 14:36
+
+女二在2个PV里存在感好低，就算有什么伏笔可能也不会在剧场版爆出来
+
+*****
+
+####  猪突猛进R  
+##### 2371#       发表于 2025-1-10 14:37
+
+<img src="https://img.saraba1st.com/forum/202501/10/143718ln9uqnldb3slw0no.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (63.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/143720bgfagzlef9lg3lbb.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (19.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:37 上传
+
+*****
+
+####  刺客ares  
+##### 2372#       发表于 2025-1-10 14:41
+
+<img src="https://img.saraba1st.com/forum/202501/10/144122jm6zxxl7o6mxtomi.png" referrerpolicy="no-referrer">
+
+<strong>1736490321539.png</strong> (48.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:41 上传
+
+驾驶服与卡碧尼
+
+<img src="https://img.saraba1st.com/forum/202501/10/144126ft8et8ztsaaravkr.png" referrerpolicy="no-referrer">
+
+<strong>1736490344100.png</strong> (25.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:41 上传
+
+玛秋的头发渐变与哈曼发色完全一致
+
+
+*****
+
+####  Gysumitka  
+##### 2373#       发表于 2025-1-10 14:43
+
+尼娅安这脚够大的
+
+*****
+
+####  patema  
+##### 2374#       发表于 2025-1-10 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真哈曼了。好期待马球彻底变成哈曼阿姨的那一刻
+

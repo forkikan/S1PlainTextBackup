@@ -16193,3 +16193,59 @@ ep3 把睦玩没了</blockquote>
 祥子自己爆了，初睦追妻火葬场？</blockquote>
 祥子的情感债太多了，只管贷款的那种。
 
+
+*****
+
+####  akiomn  
+##### 7378#       发表于 2025-1-10 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146440&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-10 14:35</a>
+睦那个吉他唱不出歌的理由直接参考冰川双子这段就知道了，大概就是觉得自己光有技巧没有感情，不能享受音乐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个我早提过了，对于睦的问题，日菜的答案就是完美的答卷
+但是祥子不是日菜，反正舅舅说了后面祥子对睦有很主动的行动，看祥子怎么交出答卷就行
+
+*****
+
+####  Augusty  
+##### 7379#       发表于 2025-1-10 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146397&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 14:28</a>
+
+我觉得其实和灯是一样的，自己以为自己太菜了，拖了大家的后腿
+
+如果后面没有新的解释，我觉得第三话的意 ...</blockquote>
+无端联想（感觉可以P一个木头人的版本<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/9a92f5cc039663ce6d6c868726b21b7a/image.jpg" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  NODY  
+##### 7380#       发表于 2025-1-10 14:42
+
+睦现在缺一个肯定她的吉他的人，所以一直在不开心的乐队内耗，无法通过弹吉他开live回血
+
+等有人（或者说应该是祥子）告诉她“睦的吉他是被人喜欢的”的时候就能破局了
+
+*****
+
+####  ml1642879  
+##### 7381#       发表于 2025-1-10 14:44
+
+ 本帖最后由 ml1642879 于 2025-1-10 14:46 编辑 
+
+睦家的情况，我的猜测是みなみちゃん和たっくん是父母作为艺能界大物的昵称，比如超级变变变主持人萩本欽一被全国喊欽ちゃん，这种艺能身份带回生活里的情况也是有的，当然也有可能是睦妈是个电波从小教睦这样喊的。
+
+如果gakki的娃把妈妈也喊gakki，好像也不是很奇怪
+
+*****
+
+####  qjw114514  
+##### 7382#       发表于 2025-1-10 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146461&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 14:37</a>
+这个我早提过了，对于睦的问题，日菜的答案就是完美的答卷
+但是祥子不是日菜，反正舅舅说了后面祥子对睦 ...</blockquote>
+祥子自己还顶得住吗？现在有初华给回了口血，恢复的精力也拿来应付媒体和大猫了，再去睦那边吃一套伤害别把自己搭进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
