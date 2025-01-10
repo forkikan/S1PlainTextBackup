@@ -715,3 +715,28 @@ B站角色热度排行
 
 祥子和小睦都在，这认不出爹白当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高妹控  
+##### 7463#       发表于 2025-1-10 20:58
+
+爱音啥时候有了“粉色奶龙”的绰号，弹幕都在刷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 7464#       发表于 2025-1-10 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149400&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-1-10 20:58</a>
+爱音啥时候有了“粉色奶龙”的绰号，弹幕都在刷</blockquote>
+记得是有表情包
+
+
+*****
+
+####  ylssb10438  
+##### 7465#       发表于 2025-1-10 21:03
+
+是奶龙这梗泛化了，先是学偶，然后quin那边又是什么灰色奶龙，反正只要唐起来全都可能被叫奶龙（爱音是因为第一集mygo那段看起来唐唐的就被叫奶龙了）
+
