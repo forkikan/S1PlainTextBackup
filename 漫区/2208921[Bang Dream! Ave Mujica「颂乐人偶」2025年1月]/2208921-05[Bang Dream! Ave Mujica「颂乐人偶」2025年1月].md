@@ -15508,3 +15508,137 @@ mana会握着拳头对祥祥喊“请不要再给初华增加负担了！”吗
 
 有些人为了想方设法拉踩已经完全不要脸了
 
+
+*****
+
+####  Aendst  
+##### 7318#       发表于 2025-1-10 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145500&amp;ptid=2208921" target="_blank">狮子咕 发表于 2025-1-10 12:32</a>
+
+你这个嗑点倒是……挺新鲜的，反正漫画动画都会演到那个场景，漫画先给了这个画面，等到漫画同步到第三话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫画祥爹人感觉都长得不一样了，也不妨碍吧，没什么好青蒜的
+
+*****
+
+####  rubinliu  
+##### 7319#       发表于 2025-1-10 12:35
+
+To: 大祥老师
+
+“做不到就不要说出口”
+
+“一辈子就是这么沉重的话”
+
+“你这人，满脑子都是你自己呢”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 7320#       发表于 2025-1-10 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145507&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 12:33</a>
+原作者@MOONRISE7</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦妈整个人都不对劲笑死
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  IWS2000  
+##### 7321#       发表于 2025-1-10 12:35
+
+ 本帖最后由 IWS2000 于 2025-1-10 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145445&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 12:25</a>
+动画第一话可没有给这个镜头漫画这可是第一话就告诉你“其他人都没追出来，睦追出来了” ...</blockquote>
+就是观感比没追出来更糟了
+打伞看着祥淋雨痛哭无动于衷不觉得ooc吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7322#       发表于 2025-1-10 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145528&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-10 12:35</a>
+
+就是观感比没追出来更糟了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗，没觉得，漏油太敏感了吧
+
+*****
+
+####  ggxx001  
+##### 7323#       发表于 2025-1-10 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145224&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-10 11:58</a>
+祥子是知道睦讨厌什么的，采访时也给睦打过圆场，这两集的黑点其实就和一季的立希一样涡轮增压，给自己增 ...</blockquote>
+真要说黑点 应该是祥在理解睦的情况下 自私的将睦拖入商业乐队 睦想要的生存环境跟祥招募喵梦时候的脸和数字完全背道而驰 这个矛盾点无法解释 说到底 睦根本不适合商业乐队 就算没有摘面具后续还是会出问题 摘面具只是加速了这个过程
+
+*****
+
+####  狮子咕  
+##### 7324#       发表于 2025-1-10 12:37
+
+<blockquote>rubinliu 发表于 2025-1-10 12:35
+To: 大祥老师
+
+“做不到就不要说出口”
+</blockquote>
+To祥子：你不能只在猫好的时候承担她的人生
+
+*****
+
+####  南宮凝香  
+##### 7325#       发表于 2025-1-10 12:38
+
+在新飛鳥山之戰前
+
+所有的理由都可以用完美三連來論破
+
+就我個人而言， 誰的鍋都好
+
+我只想看到有人跪下哭哭
+
+*****
+
+####  KLHgg  
+##### 7326#       发表于 2025-1-10 12:39
+
+现在有推荐的外挂字幕吗
+
+
+*****
+
+####  无事忙  
+##### 7327#       发表于 2025-1-10 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不想买阿b的会员，求助一下各位。
+
+我想了一下，又快又含字幕的应该是巴哈姆特动画疯的源。但是各bt站上放的快的看起来都是raw，raw应该没有字幕吧，而字幕组版本又要等太久。
+
+有什么办法下载到嘛？
+
+*****
+
+####  玖羽  
+##### 7328#       发表于 2025-1-10 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145534&amp;ptid=2208921" target="_blank">ggxx001 发表于 2025-1-10 12:36</a>
+
+真要说黑点 应该是祥在理解睦的情况下 自私的将睦拖入商业乐队 睦想要的生存环境跟祥招募喵梦时候的脸和 ...</blockquote>
+问题是……祥子组建乐队的时候睦是空手套白狼的重要一环，喵梦也是被睦套进来的，这个乐队不能没有睦
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+喵梦：为什么找我
+
+祥子：因为脸和数字
+
+-----------武道馆-----------
+
+祥子：为什么摘面具
+
+喵梦：你就说有没有脸和数字吧
+

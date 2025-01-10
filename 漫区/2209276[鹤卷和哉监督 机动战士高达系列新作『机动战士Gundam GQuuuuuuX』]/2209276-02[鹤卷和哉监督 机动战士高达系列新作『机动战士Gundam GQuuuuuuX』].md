@@ -10744,3 +10744,40 @@ DELI 感觉更可能是 Delivery（デリバリー）？</blockquote>
 为什么MS黑拳赛这 ...</blockquote>
 所以说如果研究所要是真能挑到人，也不用跑黑拳赛搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  纪寞  
+##### 2349#       发表于 2025-1-10 12:37
+
+玛秋的背景也确实有点奇怪的地方，目前pv里都看不出她身边是有父母的样子。要不和捷度一样是父母在其他side工作，只寄钱回来，要不就有其他更深的背景了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 2350#       发表于 2025-1-10 12:38
+
+女主怎么成了平行世界的哈曼了 马士文:我不承认这是哈曼sama 
+
+*****
+
+####  中野梓  
+##### 2351#       发表于 2025-1-10 12:40
+
+<blockquote>刺客ares 发表于 2025-1-10 12:28
+12/4明日香生日公开企划
+
+1/10哈曼生日正式PV
+
+1.17哈曼忌日剧场版上映
+</blockquote>
+有理有据
+
+
+*****
+
+####  0aleph37  
+##### 2352#       发表于 2025-1-10 12:41
+
+哈曼没麻球这么矮吧
+
