@@ -1261,3 +1261,11 @@ Steam上有人整理了背景设定。
 
 地图上是有个大的白点，但是我一直踩在这个白点上，绕来绕去找不到门<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红坦克  
+##### 119#       发表于 2025-1-10 16:19
+
+这玩意只有guro没有H吧？
+
