@@ -16418,3 +16418,11 @@ ep3 把睦玩没了</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146708&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 15:09</a></blockquote>
 这个地下室动画要是真有也用到了，比起不可能有的囚禁假药，感觉更有可能是睦也搬进来在防音地下室玩吉他吧
 
+
+*****
+
+####  星天观测  
+##### 7400#       发表于 2025-1-10 15:30
+
+初华那个房型在4或者5楼，地下室在1楼，想搞那些乱七八糟的难道没考虑过物理距离麻不麻烦吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
