@@ -479,3 +479,13 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 
 日常喝茶美食的部分得按快进看。感觉后面恶趣味有点多了
 
+
+*****
+
+####  moras2694  
+##### 98#       发表于 2025-1-10 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146084&amp;ptid=2181381" target="_blank">moras2694 发表于 2025-1-10 13:51</a>
+ 怎么说呢，虽然是一转严肃了，但之前狠凹人设的塑造方式（大姐姐人设没绷住，所以会有反转吗）和瞎眼的制作 ...</blockquote>
+想了想为什么会有不适感。这段剧情用文字来说就是“一个姐姐妈妈类角色在临死之时透露出脆弱自我一面”，问题是之前的形象是用魔性台词一集多硬凹出来的，并不是跟观众建立了链接，让观众感悟到的。角色魅力还不够我去在意，临死之时的丑态我甚至感受到了之前的虚伪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。还有就是确实画的挺丑的。
+
