@@ -12015,3 +12015,39 @@ GQX世界线鸭子在所罗门爆了，NT相关都要被牵连
 
 紫婆你简直不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OrianaThomson  
+##### 2470#       发表于 2025-1-10 22:53
+
+假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+-9lddQ0-2k54ZbT3cSni-zk.jpg
+(110.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/225309x33krkbybkfvttrz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 2471#       发表于 2025-1-10 22:53
+
+<img src="https://img.saraba1st.com/forum/202501/10/225039os4ma4mfc4dc76md.png" referrerpolicy="no-referrer">
+
+<strong>捕获FF.PNG</strong> (50.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:50 上传
+
+先行剧场版首映定在忌日是这个意思吗
+
+死亡那天起，属于哈曼的旧世界故事就结束了，但新世界哈曼的故事也随之开始？
+
+要真是这寓意，Khara主创得有哈曼厨吧这么玩，严查鹤卷痞子
+
