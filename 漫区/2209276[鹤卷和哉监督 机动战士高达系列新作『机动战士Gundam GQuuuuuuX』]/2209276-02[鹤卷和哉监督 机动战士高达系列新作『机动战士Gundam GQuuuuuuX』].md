@@ -11234,3 +11234,61 @@ UC死忠姨姥专用硬核考据讨论楼
 
 感觉问题不是信不信，而是最终能不能给出好像现在很多人期待的就像外边贴需要讨论几页鸡瘟如何翻盘进入IF线那种，相对正统UC味的叙事和世界观调性？
 
+
+*****
+
+####  LuciferMustDie  
+##### 2395#       发表于 2025-1-10 18:05
+
+既然是类marvel那样的what if multiverse了
+
+那这个世界就叫124吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 2396#       发表于 2025-1-10 18:06
+
+说起来意大利官网还没恢复，是不打算恢复了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  刺客ares  
+##### 2397#       发表于 2025-1-10 18:07
+
+ 本帖最后由 刺客ares 于 2025-1-10 18:08 编辑 
+
+希望鹤卷gg和姨姥们把握好度，万一做成不看0079和其他uc作品就看不懂的动画可就完蛋了
+
+现在已经有点像新奥那个老登会心一笑，路人满头问号的气氛了
+
+*****
+
+####  王留美  
+##### 2398#       发表于 2025-1-10 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148185&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-1-10 18:02</a>
+ 感觉问题不是信不信，而是最终能不能给出好像现在很多人期待的就像外边贴需要讨论几页鸡瘟如何翻盘进入IF线 ...</blockquote>
+这种事情就算有设定（为了推导世界观应该是会有的）也不会在片子里具体详细的展示出来，因为对于0085的剧情来说根本就是背景板
+
+就好像当初Z首播的时候也没有一开始就说0080到0087这六年是怎么回事
+
+*****
+
+####  oi99o  
+##### 2399#       发表于 2025-1-10 18:12
+
+倒计时连图都不整一张吗，你拿pv截图再p个数字我都当你努力过了
+
+<img src="https://img.saraba1st.com/forum/202501/10/181127msnzdmbblbmiinzf.png" referrerpolicy="no-referrer">
+
+<strong>img_4895.png</strong> (884.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 18:11 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
