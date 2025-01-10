@@ -748,3 +748,13 @@ B站角色热度排行
 
 为啥还是看不到图片啊
 
+
+*****
+
+####  看穿一切的鱼  
+##### 7467#       发表于 2025-1-10 21:39
+
+咋还在研究面具的事啊。二次元粘个小胡子，换个发型不就没人能认出来了吗，用面具都算小题大做了。<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

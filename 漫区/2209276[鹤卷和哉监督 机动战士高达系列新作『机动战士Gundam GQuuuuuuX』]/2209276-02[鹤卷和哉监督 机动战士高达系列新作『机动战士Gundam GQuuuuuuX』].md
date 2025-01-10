@@ -11799,3 +11799,45 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 卡哈钢弹只要别像水魔那样拿着富野样板戏的元素结果全玩砸了就行</blockquote>
 别带钢弹x和g复国节奏啊<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星胖冒险者  
+##### 2455#       发表于 2025-1-10 21:37
+
+<img src="https://img.saraba1st.com/forum/202501/10/213742l1rhr3a55hrtzhqr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000380704.jpg</strong> (750.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 21:37 上传
+
+日本网友的速度真是快………
+
+*****
+
+####  刺客ares  
+##### 2456#       发表于 2025-1-10 21:41
+
+一想到是哈曼大人，这种不像JK的坐姿也不奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/10/214012yegluvztwujjvmi5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 21:40 上传
+
+
+*****
+
+####  RE㐅ia  
+##### 2457#       发表于 2025-1-10 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149685&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 21:41</a>
+
+一想到是哈曼大人，这种不像JK的坐姿也不奇怪了</blockquote>
+那个灰模有全图吗
+

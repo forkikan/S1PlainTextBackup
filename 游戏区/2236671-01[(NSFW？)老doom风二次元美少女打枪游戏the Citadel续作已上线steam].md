@@ -1295,3 +1295,17 @@ Steam上有人整理了背景设定。
 
 中等难度试手，敌人的AI高了一大截，初见盾牌兵堆喝了一壶，思路没换、连跳喷子的策略竟然给我冲死了
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 121#       发表于 2025-1-10 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149658&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-10 21:36</a>
+应该是只有guro没有H
+
+    
+
+1代通关了，2代打了个开头、把商店NPC见了一遍</blockquote>
+二代敌人杀多了还会增强，打到后期关卡同一种小兵火力会更猛甚至还会走位拉枪线<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
