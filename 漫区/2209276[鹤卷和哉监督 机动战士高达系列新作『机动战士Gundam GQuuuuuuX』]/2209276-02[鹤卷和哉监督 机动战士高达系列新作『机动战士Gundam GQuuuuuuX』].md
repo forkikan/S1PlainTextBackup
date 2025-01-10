@@ -11438,3 +11438,24 @@ UC死忠姨姥专用硬核考据讨论楼
 
 太有活了鹤卷gg，连人带机一起克了是吧
 
+
+*****
+
+####  中野梓  
+##### 2412#       发表于 2025-1-10 19:40
+
+稳了，可以安心当马士文了
+
+
+*****
+
+####  OrianaThomson  
+##### 2413#       发表于 2025-1-10 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148844&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 19:30</a>
+
+细一想真的难绷，针对鸭子的红高达开发出的机体，最后驾驶员是量产型哈曼（？
+
+太有活了鹤卷gg，连人带机一 ...</blockquote>
+假药吃到饱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -520,3 +520,55 @@
 
 而大音老师则明察秋毫（）
 
+
+*****
+
+####  PDQ4  
+##### 7448#       发表于 2025-1-10 19:36
+
+这漫画看着是不是问题有点多，细节处理不光不细，和动画甚至都有冲突，连带着补充东西都要怀疑是不是作者自己理解
+
+特别是第一话睦的相关内容，和动画刻画的形象差距挺大的，低配还带BUG，可能还是得以动画为准
+
+等一下第二话，不然只能图一乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 7449#       发表于 2025-1-10 19:42
+
+邦宇宙摘个眼镜就认不出人了 面具完全安全<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 7450#       发表于 2025-1-10 19:43
+
+狗团碰头那里，SOYO的表情的微妙变化说明什么呢
+
+<img src="https://img.saraba1st.com/forum/202501/10/194256ob63ckqtqhghhyay.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 19:42 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/194325teddxydmtxdtwfzx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 19:43 上传
+
+*****
+
+####  山ノ内花音  
+##### 7451#       发表于 2025-1-10 19:45
+
+<img src="https://pbs.twimg.com/media/Gg7Y7RBaQAAZanw?format=jpg&amp;name=large" id="aimg_FI33b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+https://x.com/snowcat_1015/status/1877676611635745166
+

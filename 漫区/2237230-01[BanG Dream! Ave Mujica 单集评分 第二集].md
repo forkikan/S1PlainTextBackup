@@ -1133,3 +1133,11 @@ mygo10集就是睦给灯传递了信息，再是11集灯告诉soyo睦在担心�
 话说既然灯皇是阿斯伯格综合征，绿毛这半截身子进精神 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">下一集你就知道了
 
+
+*****
+
+####  Yugao  
+##### 118#       发表于 2025-1-10 19:39
+
++2，初华就是托马老师的转世，用塞壬之书操控睦，一切都是为了监禁大祥老师
+
