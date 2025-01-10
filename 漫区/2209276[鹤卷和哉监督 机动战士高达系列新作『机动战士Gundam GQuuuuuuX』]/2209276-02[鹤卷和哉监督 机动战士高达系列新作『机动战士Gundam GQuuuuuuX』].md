@@ -11515,3 +11515,33 @@ UC死忠姨姥专用硬核考据讨论楼
 
 越来越离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 2419#       发表于 2025-1-10 20:16
+
+草证据越找越多<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 2420#       发表于 2025-1-10 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雨翼free  
+##### 2421#       发表于 2025-1-10 20:24
+
+坏了，真是哈曼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月神话伊阿宋  
+##### 2422#       发表于 2025-1-10 20:26
+
+很好，这下真是哈曼了
+
