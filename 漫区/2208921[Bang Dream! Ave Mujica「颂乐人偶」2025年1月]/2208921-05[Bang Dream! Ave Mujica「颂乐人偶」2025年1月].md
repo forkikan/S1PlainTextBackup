@@ -14137,3 +14137,157 @@ sumimi号ccc一样，没有解散，只是（
 
 立希和海铃的互动哪里 最后的“你认识丰川同学”也特别怪 就像自己想了解一件东西 而碰巧来了个懂这个的人一样
 
+
+*****
+
+####  66367749  
+##### 7199#       发表于 2025-1-10 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143922&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:53</a>
+那就是艺能界素人祥子说一句“我们会在最高的舞台摘下面具”，一个大手事务所就会被感动到同意了？所以我 ...</blockquote>
+没看懂你说的是什么意思，用蕾丝面罩打一开始企划阶段就是有揭示的打算的，不会真以为随口说说企划书就能过的吧？事实来说没摘面罩也迅速大火了。
+
+*****
+
+####  哈曼的YY  
+##### 7200#       发表于 2025-1-10 09:58
+
+可能是这么写
+
+当某天祥老师又习以为常的准备撕掉贴在鞋柜上的骚扰信时 发现这次不同以往
+
+仔细一看是祥酱你幸福吗 哭哭了
+
+
+*****
+
+####  失之，我命  
+##### 7201#       发表于 2025-1-10 09:58
+
+说起来好奇问下邦邦这边之前有没有群众喜闻乐见的女生打架场景(mygo最激烈也就揪衣领，没打起来……总感觉好像差点啥)
+
+*****
+
+####  玖羽  
+##### 7202#       发表于 2025-1-10 09:58
+
+<strong>睦：</strong>
+
+<img src="https://img.saraba1st.com/forum/202501/10/095245xvrvzjiwuzjwoowp.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (127 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:52 上传
+
+<strong>祥子：睦！（完辣！舞台事故！）</strong>
+
+<img src="https://img.saraba1st.com/forum/202501/10/095245myarr0paa6gcps4y.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (112.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:52 上传
+
+<strong>海铃：舞台事故啊……</strong>
+
+<img src="https://img.saraba1st.com/forum/202501/10/095245tewknq1esz15wkhr.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (113.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:52 上传
+
+<strong>初华：舞台事故？</strong>
+
+<img src="https://img.saraba1st.com/forum/202501/10/095246vdddnziohidi0ltn.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (137.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:52 上传
+
+<strong>喵梦：这什么演技！天才！</strong>
+
+<img src="https://img.saraba1st.com/forum/202501/10/095246xkszo9uy84u18k93.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (128.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:52 上传
+
+*****
+
+####  哈曼的YY  
+##### 7203#       发表于 2025-1-10 09:59
+
+<blockquote>jaewoongh_ 发表于 2025-1-10 09:52
+邦这个企划基本不带爹妈玩，如果一边聊虚拟另一边聊现实那也没啥可聊的 ...</blockquote>
+祥老师变这样第一责任人是不是他爹？
+
+*****
+
+####  帆前  
+##### 7204#       发表于 2025-1-10 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142990&amp;ptid=2208921" target="_blank">Reinhold 发表于 2025-1-10 07:20</a>
+
+祥子没有债务。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我措辞不当，祥子没有债务，她是遇到了单身父亲因为债务而被驱逐且颓废的事件。应该说“祥子隐瞒家事线”
+
+*****
+
+####  帆前  
+##### 7205#       发表于 2025-1-10 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143715&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-10 09:34</a>
+
+祥子并没有债务，至少那个168亿既不是清告也不是祥子的债务</blockquote>
+我措辞不当，祥子没有债务，她是遇到了单身父亲因为债务而被驱逐且颓废的事件。应该说“祥子隐瞒家事线”
+
+*****
+
+####  蜇灵  
+##### 7206#       发表于 2025-1-10 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143785&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 09:40</a>
+</blockquote>
+mana：我还没输<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 7207#       发表于 2025-1-10 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144002&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-10 09:59</a>
+祥老师变这样第一责任人是不是他爹？</blockquote>
+祥爹至少有99%的责任
+
+*****
+
+####  6030sylar  
+##### 7208#       发表于 2025-1-10 10:05
+
+<img src="https://p.sda1.dev/21/ecf970127e3d06c4193aa0d79586809f/image.jpg" referrerpolicy="no-referrer">立希老爹
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ml1642879  
+##### 7209#       发表于 2025-1-10 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143978&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-10 09:58</a>
+没看懂你说的是什么意思，用蕾丝面罩打一开始企划阶段就是有揭示的打算的，不会真以为随口说说企划书就能 ...</blockquote>
+我是以BanG Dream的BanG部分来想象的，我感觉像初华给事务所担保了N年sumimi长约换母鸡卡自主制作不受控出道。
+
+按Dream的那部分想象的话就是很经典的全队给上面的大人表演了乐队同名曲被问到“尽力了吗？”之后同意出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10400,3 +10400,13 @@ IMG_2721.jpeg
 
 <img src="https://img.saraba1st.com/forum/202501/10/090126v4g5kfkn9wkq0ier.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 2317#       发表于 2025-1-10 09:57
+
+那现在回看pv1，其实是有3场战斗，估计那个没带热能斧的宇宙环境出击是单独的，应该是玛秋第一次开gqx打黑拳的画面？
+
+而且这次从通道出来就直接拿着热能斧了，那热能斧应该是在殖民卫星和扎古打后的战利品
+
