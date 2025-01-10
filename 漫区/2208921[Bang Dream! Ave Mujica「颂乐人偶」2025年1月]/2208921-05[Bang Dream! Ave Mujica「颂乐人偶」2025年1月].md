@@ -15764,3 +15764,58 @@ pt站会发baha和crunchyroll的源
 這連帶責任是跑不了的</blockquote>
 我算看出来了，回旋镖是人类社会的一环，不可不尝啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  allesdg  
+##### 7339#       发表于 2025-1-10 13:05
+
+感觉漫画这个地方画的确实不行，剧透都没剧透对的感觉，明明是角色心病的一个核心场景和重要物品，绝望淋雨抱着没打开的没送出去的伞变成了无表情自己撑伞味道变得太多了，而且动画这里不仅是追出来了背后还背着琴包，或许是我被人总是吹毛求疵地从各种奇怪的地方滑坡祥睦关系搞得太敏感了，总之不满意这里的处理
+
+*****
+
+####  山ノ内花音  
+##### 7340#       发表于 2025-1-10 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145768&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-10 13:05</a>
+感觉漫画这个地方画的确实不行，剧透都没剧透对的感觉，明明是角色心病的一个核心场景和重要物品，绝望淋雨 ...</blockquote>
+这么一搞 也不知道这第三集同场景怎么画了
+
+*****
+
+####  厉飞雨  
+##### 7341#       发表于 2025-1-10 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡作为商业乐队除了三角老师力荐，肯定得加上木子美这个背景加流量保证，老板才肯投资啊
+
+*****
+
+####  玖羽  
+##### 7342#       发表于 2025-1-10 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145528&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-10 12:35</a>
+
+就是观感比没追出来更糟了
+
+打伞看着祥淋雨痛哭无动于衷不觉得ooc吗</blockquote>
+我同意，这里睦淋雨和不淋雨观感差异非常大
+
+这个作者肯定是看过动画的，有些镜头一模一样，善意地推测，也许是画第一话的时候还没看到第三话，如果是他自己改的，那只能说改糟了
+
+
+*****
+
+####  adcdqre  
+##### 7343#       发表于 2025-1-10 13:10
+
+又编造出睦不想进队了<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">睦明确说不想进的队是？不愧是回旋镖大师扔的就是快
+
+*****
+
+####  Ty_cc  
+##### 7344#       发表于 2025-1-10 13:11
+
+睦妈简直像把“我很有问题”的牌子顶在头上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

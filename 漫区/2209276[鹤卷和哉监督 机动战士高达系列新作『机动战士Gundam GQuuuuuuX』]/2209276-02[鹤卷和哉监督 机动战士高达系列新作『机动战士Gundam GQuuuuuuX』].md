@@ -10824,3 +10824,14 @@ nt也不是生死关头觉醒的吧
 
 要来了吗，疑似夏亚继承人和疑似哈曼克隆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2356#       发表于 2025-1-10 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145714&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-1-10 12:58</a>
+
+nt也不是生死关头觉醒的吧</blockquote>
+不是，应该说是发现，女主在PV里也是脑门过电后才能确认是NT的
+
