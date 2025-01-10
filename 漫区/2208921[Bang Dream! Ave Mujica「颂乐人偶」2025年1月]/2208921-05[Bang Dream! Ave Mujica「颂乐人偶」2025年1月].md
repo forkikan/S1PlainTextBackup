@@ -14051,3 +14051,89 @@ sumimi号ccc一样，没有解散，只是（
 我就觉得很奇怪，既然在摘面具后睦头爆炸这件事 ...</blockquote>
 睦作为父母双全的未成年人，父母当然是第一责任人，不然难道祥子是第一责任人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 7191#       发表于 2025-1-10 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143851&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 09:45</a>
+如果让我去发散那我只能说大祥老师事业心太强专业性太强
+我就觉得很奇怪，既然在摘面具后睦头爆炸这件事 ...</blockquote>
+仔细想想
+锅最大的肯定是日本这个变态的绞肉机娱乐圈
+其次是牢妈对她的关心 心理问题的无视
+然后是直接原因 喵梦揭面具
+祥子对睦的关心程度 和睦对祥子的巨大感情不够平衡 也注定被睦爆杀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最后是睦自己 这也算是成长必经之痛了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  jaewoongh_  
+##### 7192#       发表于 2025-1-10 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143871&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 09:48</a>
+睦作为父母双全的未成年人，父母当然是第一责任人，不然难不成祥子是第一责任人 ...</blockquote>
+邦这个企划基本不带爹妈玩，如果一边聊虚拟另一边聊现实那也没啥可聊的
+
+*****
+
+####  ml1642879  
+##### 7193#       发表于 2025-1-10 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143830&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-10 09:44</a>
+本身就有以后公开的打算的</blockquote>
+那就是艺能界素人祥子说一句“我们会在最高的舞台摘下面具”，一个大手事务所就会被感动到同意了？所以我不敢想的是初华以sumimi的身份到底给事务所担保了什么条件
+
+*****
+
+####  KLHgg  
+##### 7194#       发表于 2025-1-10 09:54
+
+前三集鸡的事务总共有几秒的戏份？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 7195#       发表于 2025-1-10 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143895&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-10 09:51</a>
+仔细想想
+锅最大的肯定是日本这个变态的绞肉机娱乐圈
+其次是牢妈对她的关心 心理问题的无视</blockquote>
+要说的话祥子绝对不是在睦头爆炸这件事上责任最大的一个，但她是最后点火的那一个，加上理论上leader应该和稀泥但她没做，所以观感不好罢了
+
+*****
+
+####  看穿一切的鱼  
+##### 7196#       发表于 2025-1-10 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143851&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 09:45</a>
+如果让我去发散那我只能说大祥老师事业心太强专业性太强
+我就觉得很奇怪，既然在摘面具后睦头爆炸这件事 ...</blockquote>
+就是大猫错了啊，为什么一定要把大喵扣出去找第二个人呢。你可以说大祥老师没人情味，但二集为止她打的没问题吧，都是队友整活她擦屁股。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山ノ内花音  
+##### 7197#       发表于 2025-1-10 09:56
+
+反正我同意睦爆打祥子
+最好是无视所有人 只追着祥子打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 7198#       发表于 2025-1-10 09:58
+
+本集的海铃:
+
+睦第一次说错话让祥子三人非常吃惊 只有海铃一人非常平静 第二次因为弹错了崩溃 也只有海铃特别平淡的“嗯”了一声 搞得好像提前知道了一样
+
+海铃提醒睦采访时间到了 睦叹气一声后 居然给了海铃吃惊和询问的镜头 又显得海铃很关心睦
+
+立希和海铃的互动哪里 最后的“你认识丰川同学”也特别怪 就像自己想了解一件东西 而碰巧来了个懂这个的人一样
+
