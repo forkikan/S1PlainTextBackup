@@ -14897,3 +14897,93 @@ https://comic-growl.com/episode/2550912964974264765
 
 这官漫感觉不如 坏心思的神明一根
 
+
+*****
+
+####  用户名1  
+##### 7265#       发表于 2025-1-10 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142281&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-10 00:34</a>
+
+因为这才是一个正常番剧的叙事表达明确度，相比之下go的暗流藏得太深门槛较高，不太适合这个系列大火后的 ...</blockquote>
+只是觉得相较第一集，缺少了点意外性，其他还好
+
+*****
+
+####  IWS2000  
+##### 7266#       发表于 2025-1-10 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144875&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 11:26</a>
+所以动画把你吓死了是吗，没关系我这人心善，你晕过去我帮你叫救护车</blockquote>
+<img src="https://p.sda1.dev/21/5847a3f1ae8374a5f8e97913abaf2244/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7267#       发表于 2025-1-10 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144914&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-10 11:28</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看第三话的时候你可别嗷的一声昏死过去了
+
+*****
+
+####  IWS2000  
+##### 7268#       发表于 2025-1-10 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144935&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 11:30</a>
+我看了啊，我还看了第三话和访谈呢，你不会觉得比动画晚一周，基于动画制作的漫画比动画更原作吧
+
+看第三话 ...</blockquote>
+不知道你想表达什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我是被漫画气到你脑补一堆什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 7269#       发表于 2025-1-10 11:34
+
+没有为黄瓜推掉那么多采访拍摄已经是最大车祥点了
+
+*****
+
+####  Aendst  
+##### 7270#       发表于 2025-1-10 11:35
+
+ 本帖最后由 Aendst 于 2025-1-10 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144956&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-10 11:31</a>
+
+不知道你想表达什么
+
+我是被漫画气到你脑补一堆什么东西</blockquote>
+我说了啊，你不会觉得比动画晚一周，基于动画制作的漫画比动画更原作吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+这有什么好气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看第三话的时候记得昏死过去，毕竟比漫画表现力强一百倍呢，漫画就这你都能气到，漏油想必是情绪比较激烈的类型，动画应该能爽嗑到昏迷吧
+
+*****
+
+####  江口夕  
+##### 7271#       发表于 2025-1-10 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/10/113649cfv9rwge79kwwr9q.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250110-113423.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/113656fyoiyo6nii12o91u.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250110-113520.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 11:36 上传
+
