@@ -11373,3 +11373,33 @@ UC死忠姨姥专用硬核考据讨论楼
 
 好嘛……一段时间没来看情报，变成哈曼和希洛克LOVELOVE的故事了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 2406#       发表于 2025-1-10 19:09
+
+雷霆宙域也就第二部开始过于放飞自我了，第一部当时想强行圆进0079也不是不行。
+
+网上不就是这样么，比如GTO当时差不多被人说成颠覆0079了，实际上顶多20~30度夹角的不同，不冲突的地方甚至能成为0079的有益补充。
+
+雷霆宙域即使再“乱编”，至少没让吉翁获胜不是。
+
+
+*****
+
+####  刺客ares  
+##### 2407#       发表于 2025-1-10 19:13
+
+再来假药，推上有人翻出设定集
+
+找到了安彦版幼年哈曼
+
+<img src="https://img.saraba1st.com/forum/202501/10/191222oucbtt0lkuukbtxe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9805.jpeg</strong> (365.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 19:12 上传
+
