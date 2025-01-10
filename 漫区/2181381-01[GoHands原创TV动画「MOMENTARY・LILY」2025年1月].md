@@ -497,3 +497,14 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 
 还是监督太神人了，虐妹确实可以当一个爆点，但是问题是虐妹之前多少要让观众被这个角色吸引以及塑造出这个角色的魅力，光污染显然是没这个能力，那这一集的虐妹戏份就多少有点路边一条带动不了观众的情绪
 
+
+*****
+
+####  modedd  
+##### 100#       发表于 2025-1-10 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147556&amp;ptid=2181381" target="_blank">moras2694 发表于 2025-1-10 16:53</a>
+
+想了想为什么会有不适感。这段剧情用文字来说就是“一个姐姐妈妈类角色在临死之时透露出脆弱自我一面”， ...</blockquote>
+不用甚至，这里就是整个人设都崩了，加上抱怨队友为什么不来救自己完全是凹人设的感觉，作为一个角色而言，这个姐姐死的可比金毛还要彻底多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
