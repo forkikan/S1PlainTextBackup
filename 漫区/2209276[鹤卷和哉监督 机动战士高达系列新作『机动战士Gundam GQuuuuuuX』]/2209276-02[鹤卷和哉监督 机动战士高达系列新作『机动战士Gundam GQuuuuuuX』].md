@@ -12074,3 +12074,65 @@ byd假药怎么越说越真了<img src="https://static.saraba1st.com/image/smile
 
 假药看个乐子，别入脑就行
 
+
+*****
+
+####  刺客ares  
+##### 2475#       发表于 2025-1-10 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150217&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-10 22:57</a>
+
+byd假药怎么越说越真了</blockquote>
+水魔开播前也一堆假药，最后中了的还是少数（
+
+*****
+
+####  PascalLefèvre  
+##### 2476#       发表于 2025-1-10 23:09
+
+但是最重量级的浮游炮藏人的中了不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  0aleph37  
+##### 2477#       发表于 2025-1-10 23:12
+
+浮游炮藏人也不算是埋的很深吧，从狸猫叫大家就有这个方向的猜测了
+
+
+*****
+
+####  刺客ares  
+##### 2478#       发表于 2025-1-10 23:14
+
+ 本帖最后由 刺客ares 于 2025-1-10 23:15 编辑 
+
+接着上面编，如果玛秋是平行哈曼，主角三人组原型就非常明显了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/10/231325x8l78gxtg54usk14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 23:13 上传
+
+妮娅安就是娜塔莉，那个让并肩作战的哈曼与夏亚分崩离析的女人
+
+这个剧情甚至可以对应前面说的I can Friday by day!彩蛋
+
+彩蛋短片的内容就是女主喜欢的男生被好闺蜜女二抢了先手，结果女主气的被感性冲破理性把女二当街打爆，又把男主撞到河里，彻底决裂
+
+这不就是哈曼因为嫉恨于是对怀了夏亚孩子的挚友娜塔莉见死不救，导致娜塔莉死亡，夏亚与她决裂的剧情吗
+
+*****
+
+####  0aleph37  
+##### 2479#       发表于 2025-1-10 23:15
+
+抛开剧情的高举轻放外，水魔讨论环境的过早劣化和情报哥谜语带来假药以及假药破产是脱不开关系的。
+
+希望这次gquuuuuux的讨论环境能够好一些
+
