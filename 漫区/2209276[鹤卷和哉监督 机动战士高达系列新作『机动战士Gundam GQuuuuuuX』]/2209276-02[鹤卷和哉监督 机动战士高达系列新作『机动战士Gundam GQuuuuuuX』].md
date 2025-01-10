@@ -10865,3 +10865,33 @@ nt也不是生死关头觉醒的吧</blockquote>
 要来了吗，疑似夏亚继承人和疑似哈曼克隆人</blockquote>
 说是哈曼的那个人不是认为蓝毛男主是西罗克嘛
 
+
+*****
+
+####  patema  
+##### 2360#       发表于 2025-1-10 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最终决战马球开泰坦尼亚是吧
+
+
+*****
+
+####  刺客ares  
+##### 2361#       发表于 2025-1-10 13:50
+
+ 本帖最后由 刺客ares 于 2025-1-10 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145991&amp;ptid=2209276" target="_blank">ナルバレック 发表于 2025-1-10 13:40</a>
+
+说是哈曼的那个人不是认为蓝毛男主是西罗克嘛</blockquote>
+推文原话是说牢修大概是原创角色，但觉得他有种奶奶头的气质
+
+下面跟帖说机器螃蟹是铁奥www
+
+<img src="https://img.saraba1st.com/forum/202501/10/135152so8dbtfrtngddldo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 13:51 上传
+
