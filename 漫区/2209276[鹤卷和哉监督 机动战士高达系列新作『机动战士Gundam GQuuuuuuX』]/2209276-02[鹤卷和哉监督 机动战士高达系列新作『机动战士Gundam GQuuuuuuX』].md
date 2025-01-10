@@ -10716,3 +10716,31 @@ DELI 感觉更可能是 Delivery（デリバリー）？</blockquote>
 
 为什么MS黑拳赛这种危险的东西能在殖民卫星举行，肯定是因为有军方支持啊
 
+
+*****
+
+####  刺客ares  
+##### 2347#       发表于 2025-1-10 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145210&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-10 11:56</a>
+
+不是，女主到底是普鲁还是哈曼</blockquote>
+12/4明日香生日公开企划
+
+1/10哈曼生日正式PV
+
+1.17哈曼忌日剧场版上映
+
+所以是明日香+哈曼
+
+*****
+
+####  Gysumitka  
+##### 2348#       发表于 2025-1-10 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145430&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 12:23</a>
+在没有战争的局势下想筛选能在生死关头觉醒NT的驾驶员，不就得往MS生死局的地方去找了
+
+为什么MS黑拳赛这 ...</blockquote>
+所以说如果研究所要是真能挑到人，也不用跑黑拳赛搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+

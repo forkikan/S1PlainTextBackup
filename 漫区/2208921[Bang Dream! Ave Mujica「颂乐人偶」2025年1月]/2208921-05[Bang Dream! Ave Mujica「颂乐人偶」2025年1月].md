@@ -15407,3 +15407,104 @@ kpi就是这么订的嘛，对不对</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  狮子咕  
+##### 7308#       发表于 2025-1-10 12:24
+
+<blockquote>Aendst 发表于 2025-1-10 11:35
+我说了啊，你不会觉得比动画晚一周，基于动画制作的漫画比动画更原作吧
+
+这有什么好气的
+
+看第三话的时候记 ...</blockquote>
+动画不是陪着淋雨吗，漫画改了个撑伞简直绝了…你是不是想歪了
+
+*****
+
+####  Aendst  
+##### 7309#       发表于 2025-1-10 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145437&amp;ptid=2208921" target="_blank">狮子咕 发表于 2025-1-10 12:24</a>
+
+动画不是陪着淋雨吗，漫画改了个撑伞简直绝了…你是不是想歪了</blockquote>
+动画第一话可没有给这个镜头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫画这可是第一话就告诉你“其他人都没追出来，睦追出来了”
+
+*****
+
+####  一心而用  
+##### 7310#       发表于 2025-1-10 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145078&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-10 11:43</a>
+右下是将要打地铺的小祥</blockquote>
+下一秒初华进来祥子缩了缩jio。
+
+*****
+
+####  阿兹尔  
+##### 7311#       发表于 2025-1-10 12:27
+
+要是工作中遇到睦这样的人我得急死，不过睦这种性格过不了面试，还好是温柔的少女乐队世界观
+
+*****
+
+####  NameLess2501  
+##### 7312#       发表于 2025-1-10 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144858&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-10 11:25</a>
+
+说起来之前睦说组乐队不开心，现在更不开心甚至要彻底疯狂了，还蛮搞的</blockquote>
+睦是个实诚人
+
+
+*****
+
+####  山ノ内花音  
+##### 7313#       发表于 2025-1-10 12:30
+
+mana会握着拳头对祥祥喊“请不要再给初华增加负担了！”吗
+快点给<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">更多的精神拷问吧
+
+*****
+
+####  DARK_HGCG  
+##### 7314#       发表于 2025-1-10 12:31
+
+<img src="https://img.saraba1st.com/forum/202501/10/123106ljso4vs2g9xv94ra.jpg" referrerpolicy="no-referrer">
+
+<strong>_20250110_132225.JPG</strong> (108.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:31 上传
+
+*****
+
+####  狮子咕  
+##### 7315#       发表于 2025-1-10 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145445&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 12:25</a>
+
+动画第一话可没有给这个镜头漫画这可是第一话就告诉你“其他人都没追出来，睦追出来了” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 7316#       发表于 2025-1-10 12:33
+
+原作者@MOONRISE7
+<img src="https://p.sda1.dev/21/e09c09538f6527c0a059e0de1c6d29b5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 7317#       发表于 2025-1-10 12:33
+
+祥子确实不够懂睦，她最不懂是睦的所有行动逻辑不管是做的好还是做的不好，都是为了守护祥子不让她坏掉，就算自己讨厌在公众面前露脸也要做，自己才是真的快坏了也绝对不说我不干了你们玩吧
+
+请问说立希最懂睦的，她懂这个吗？她知道为什么睦要站在聚光灯下吗？
+
+有些人为了想方设法拉踩已经完全不要脸了
+

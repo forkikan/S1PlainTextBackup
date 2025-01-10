@@ -431,3 +431,11 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 
 神人台词
 
+
+*****
+
+####  只会双持开拓者  
+##### 92#       发表于 2025-1-10 12:26
+
+果然第二集死人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
