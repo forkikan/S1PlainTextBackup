@@ -95,3 +95,22 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Niu  
+##### 18175#       发表于 2025-1-11 02:04
+
+有屬性變化的水跟土感覺更吃香。
+
+不過確定是否會慘遭修正前別輕舉妄動。
+
+*****
+
+####  Sylpheed  
+##### 18176#       发表于 2025-1-11 02:05
+
+要舒服倒是跟转属没关系了，全自动得泳bb<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
