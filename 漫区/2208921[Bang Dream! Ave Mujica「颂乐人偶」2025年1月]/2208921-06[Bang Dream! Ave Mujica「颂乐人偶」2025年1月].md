@@ -1053,3 +1053,49 @@ Oblivionis说的别管脸了把一切献给avemujiva，很明显就是祥要再�
 
 但是最后怎么包饺子确实不好猜，要么大俗要么大雅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 7496#       发表于 2025-1-10 22:41
+
+鸡包饺子看ed和op怕不是真的要毁灭一切后重组鸡了
+
+不知道这场大火要怎么烧起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7497#       发表于 2025-1-10 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149966&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-10 22:22</a>
+
+話說，
+
+大立老師是打算要愛音不讓燈得到消息？
+
+燒了學校嗎？</blockquote>
+其实剧情里面没人告诉过她祥子在羽丘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且她自己就是消息不灵通的，完全不知道mujica是啥，自然没有多火的概念
+
+*****
+
+####  山ノ内花音  
+##### 7498#       发表于 2025-1-10 22:43
+
+估计这流量至上的打法会迎来一场大炎上
+锅当然要给负责路线制定的制作人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+会有什么罪名呢 已经开始期待了
+
+*****
+
+####  akiomn  
+##### 7499#       发表于 2025-1-10 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150134&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-10 22:43</a>
+估计这流量至上的打法会迎来一场大炎上
+锅当然要给负责路线制定的制作人
+会有什么罪名呢 已经开始期待了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子揽锅离开，然后喵梦面对炎上终于知道之前有祥子在前面遮风挡雨帮她收拾烂摊子有多好了是吧？
+

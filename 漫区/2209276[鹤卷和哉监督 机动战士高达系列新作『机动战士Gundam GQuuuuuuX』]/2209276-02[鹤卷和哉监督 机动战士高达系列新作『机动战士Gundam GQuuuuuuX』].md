@@ -11995,3 +11995,23 @@ GQX世界线鸭子在所罗门爆了，NT相关都要被牵连
 
 因为之前是卡恩家千金啊，现在浑浑噩噩过着平民JK生活，当然觉得浑身不自在<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2468#       发表于 2025-1-10 22:38
+
+有没有可能是疯了失忆了然后她爹安排下让她去过普通人生活远离鸡瘟zz<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 2469#       发表于 2025-1-10 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150092&amp;ptid=2209276" target="_blank">patema 发表于 2025-1-10 22:38</a>
+
+有没有可能是疯了失忆了然后她爹安排下让她去过普通人生活远离鸡瘟zz</blockquote>
+把自告奋勇参加NT测试的十岁小女孩直接虐疯虐失忆是吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+紫婆你简直不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
