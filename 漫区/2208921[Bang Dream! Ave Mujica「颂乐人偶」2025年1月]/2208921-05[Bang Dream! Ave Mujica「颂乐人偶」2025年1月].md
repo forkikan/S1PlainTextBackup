@@ -13874,3 +13874,19 @@ https://x.com/kurehalxxx/status/1877365978817798461
 
 我错了，各位上仙还是把蕾丝内裤戴上吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 7175#       发表于 2025-1-10 09:21
+
+我看初华很快也要有“我是16岁JK明星，不是变态痴女监禁犯”的梗图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lucasxp  
+##### 7176#       发表于 2025-1-10 09:25
+
+对了我看没什么人提祥子鞋柜撕的便签纸？
+按理说这个时间节点应该不是灯写的，所以是开盒后同学的骚扰？那为什么要用便签纸这个让观众误解的道具，不太懂这里编剧想表达什么
+

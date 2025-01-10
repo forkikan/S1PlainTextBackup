@@ -937,3 +937,17 @@ mygo的戏份比预想的多得多，开心。我想看大象跪在soyo面前，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我一辈子都不进砖楼了
 
+
+*****
+
+####  吴怀在  
+##### 99#       发表于 2025-1-10 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143432&amp;ptid=2237230" target="_blank">ads147147 发表于 2025-1-10 09:01</a>
+专楼里会有人不自觉剧透，我已经被恶心到好几次了。。干脆不看。。
+
+哦不对，也不能叫不自觉具体，专楼里 ...</blockquote>
+有野生的情报哥出没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只把情报哥拉黑也没用，因为其他人会讨论。
+
