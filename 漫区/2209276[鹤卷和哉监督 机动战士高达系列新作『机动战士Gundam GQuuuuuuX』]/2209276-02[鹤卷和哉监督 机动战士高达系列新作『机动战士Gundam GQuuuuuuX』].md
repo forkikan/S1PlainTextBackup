@@ -11477,3 +11477,41 @@ UC死忠姨姥专用硬核考据讨论楼
 量产型哈曼会碰到平行世界的捷多吗</blockquote>
 呀咩咯，这时候的捷多只有11岁呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sokukei  
+##### 2416#       发表于 2025-1-10 20:07
+
+怎么哈曼假药越来越真了，我还是希望麻球是个普通的NT jk
+
+*****
+
+####  RE㐅ia  
+##### 2417#       发表于 2025-1-10 20:10
+
+有点太像了
+
+<img src="https://img.saraba1st.com/forum/202501/10/201000q4z24sff1zb3yj20.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5E1311FE-C799-4DDD-88B5-6848183AC21C.jpeg</strong> (48.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/201001akkw8wqcm4mmztc4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>98A47A18-A761-45E5-9E4D-EFDED179E132.jpeg</strong> (105.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 20:10 上传
+
+*****
+
+####  Gysumitka  
+##### 2418#       发表于 2025-1-10 20:11
+
+越来越离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

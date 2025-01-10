@@ -612,3 +612,15 @@ ttps://x.com/Lyytoaoitori/status/1877682270418661726
 
 2025-1-10 20:05 上传
 
+
+*****
+
+####  Суслов  
+##### 7453#       发表于 2025-1-10 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148937&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-10 19:43</a>
+狗团碰头那里，SOYO的表情的微妙变化说明什么呢</blockquote>
+那个时候灯皇正在忆往昔和祥子在苦来兮苦的峥嵘岁月，但在拷问完小睦后的soyo视角来看，不管是当初苦来兮苦炸团还是现在的母鸡卡都是祥子的险恶阴谋，不可能有好脸子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
