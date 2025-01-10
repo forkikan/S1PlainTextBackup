@@ -1703,3 +1703,11 @@ ED全曲好听，除了中间那段尾音一股菅野味儿的青藏高原part�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜月紫耀  
+##### 177#       发表于 2025-1-10 22:14
+
+蜜柑的资源居然没有中文
+

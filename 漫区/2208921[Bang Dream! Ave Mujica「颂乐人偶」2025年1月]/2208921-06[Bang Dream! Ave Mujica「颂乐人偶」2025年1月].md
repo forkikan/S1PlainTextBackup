@@ -810,3 +810,53 @@ mujica：娱乐圈题材都市情感剧
 
 看了下讨论，感觉现在环境不比mygo时期，多浪费了一半的时间，看一点点就够了，避免上头
 
+
+*****
+
+####  魔法使夜子  
+##### 7474#       发表于 2025-1-10 22:10
+
+现在都是分锅大会和厨黑大战，隔壁泥潭走廊战况激烈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 7475#       发表于 2025-1-10 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">受不了，还官方倒计时
+都那么急了，直接在13号把第三集端上来得了，提前让睦过个黑色生日
+
+*****
+
+####  厄神之息  
+##### 7476#       发表于 2025-1-10 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧社区讨论环境不可避免的滑向了“谁尽力，谁犯罪，谁的打法不团队，谁又没有人情味”的走向。猫粉疯狂攻击祥子不说人话能力不足，要背锅。祥粉疯狂问候键帽，说键帽炸团该死，她才要背锅。就练木子米都要被拉出来娘复，找哪里打的有问题。电竞粉的臭味止都止不住。
+
+*****
+
+####  鲍里斯  
+##### 7477#       发表于 2025-1-10 22:13
+
+前三集看完真的心疼睦，我其实对祥子意见不小的，看了一圈nga和贴吧，只能又溺爱祥子了
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  qwased  
+##### 7478#       发表于 2025-1-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149807&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-1-10 21:57</a>
+
+那也得这个电视剧的脚本有话题性，能吸引人人去看才行啊，又不是随便套个二刺螈的皮就能变成啊宅们追捧的 ...</blockquote>
+初华见甜甜圈女士到捡祥子回家那段真的，电视剧味太浓了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">经典蒙在鼓里的苦主、难以自控的出轨人+惹人怜爱的小三
+
+*****
+
+####  山ノ内花音  
+##### 7479#       发表于 2025-1-10 22:14
+
+美艳小三<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+会有对线情节吗
+
