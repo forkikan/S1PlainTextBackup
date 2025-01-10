@@ -632,3 +632,48 @@ ttps://x.com/Lyytoaoitori/status/1877682270418661726
 
 mujica里人物动作很丰富，是喵梦太能跳了吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  废都刽子手  
+##### 7455#       发表于 2025-1-10 20:29
+
+那个裂纹的凳子是什么意思
+
+
+*****
+
+####  一心而用  
+##### 7456#       发表于 2025-1-10 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149223&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-1-10 20:29</a>
+那个裂纹的凳子是什么意思</blockquote>
+睦坐过很多很多次把凳子都坐破了，美奈美却根本不知道，以为这边儿没人来，暗示这个妈根本不了解女儿。
+
+*****
+
+####  ads147147  
+##### 7457#       发表于 2025-1-10 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149223&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-1-10 20:29</a>
+那个裂纹的凳子是什么意思</blockquote>
+睦妈：钢琴室没人用。
+
+睦都把钢琴室的椅子坐烂了还没人用，睦妈根本不关心睦到底在做什么。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cccpprc  
+##### 7458#       发表于 2025-1-10 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147754&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 17:12</a>
+
+值得一提的是，整个前三集，鸡团五人都是0高光。初华藏着，海玲看得清又不入局，喵梦和祥子风评在第三集还 ...</blockquote>
+这就不对了啊
+
+你说第三集的睦祥戏里祥自我牺牲的色彩浓厚
+
+那祥的风评不该因此下降吧
+
