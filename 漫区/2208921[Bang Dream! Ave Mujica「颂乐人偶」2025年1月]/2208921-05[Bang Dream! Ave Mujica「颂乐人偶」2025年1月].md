@@ -14529,3 +14529,90 @@ CV本人在访谈中表示她认为第一句话是在理解祥子家所有的状
 祥睦互为半身的设定体现的不够强，从mygo开始能看到的是睦一直是陪在祥子身边，做情绪树洞也好，帮忙隐瞒信 ...</blockquote>
 好家伙活动又成祥子给接的了
 
+
+*****
+
+####  海洋队手下mayo  
+##### 7231#       发表于 2025-1-10 10:38
+
+感觉睦总会说出祥子潜意识里面曾一闪而过的 又不想承认/害怕面对的那句话<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AnnieLeonhart  
+##### 7232#       发表于 2025-1-10 10:39
+
+把初华家阁楼栏杆拍的像监狱是故意的吧
+
+*****
+
+####  Суслов  
+##### 7233#       发表于 2025-1-10 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144316&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-10 10:31</a>
+除了第一句都不算说错吧。其他的表达内容和真实想法没差多少</blockquote>
+对睦头来说，说错话就是在错误的场合错误的时间说正确的话。如果站在破soyo和祥子防的角度，那场合和时间也变得正确无比了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  CCMkIII  
+##### 7234#       发表于 2025-1-10 10:40
+
+我怎么觉得mana这集比第一季好看那么多，mana酱love
+
+*****
+
+####  结衣小比取  
+##### 7235#       发表于 2025-1-10 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144007&amp;ptid=2208921" target="_blank">帆前 发表于 2025-1-10 10:00</a>
+
+我措辞不当，祥子没有债务，她是遇到了单身父亲因为债务而被驱逐且颓废的事件。应该说“祥子隐瞒家事线” ...</blockquote>
+还在用“债务”，还是没转过来，是公司的亏损不是个人的债务
+
+*****
+
+####  adcdqre  
+##### 7236#       发表于 2025-1-10 10:42
+
+ 本帖最后由 adcdqre 于 2025-1-10 10:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144129&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-10 10:13</a>
+
+要不然人家真靠你一嘴音乐性就下那么大本吗？</blockquote>
+反正没爆身份最速武道馆了公司有眼光的，不得不说设定还是比网友严谨
+
+*****
+
+####  ads147147  
+##### 7237#       发表于 2025-1-10 10:43
+
+睦说的话肯定是事实，问题是有些真话不能随便说出口，这才是最伤人的地方，睦把握不了什么时候说什么话的度。
+
+某种意义上灯和睦的交流反而很高效，灯完全听懂了睦对soyo的说法，而且灯需要的是真心话反而不太在乎场合。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 7238#       发表于 2025-1-10 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144204&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-1-10 10:21</a>
+“佚名我 佚名你”这个歌名和前半段的编曲风格都让我想到寒蝉的ed2《对象a》 ...</blockquote>
+ed标题georgette是乔琪纱
+歌词里有很多丝线缠绕的意象
+所以标题被翻译成了 轻纱牵起你我旋转
+
+
+*****
+
+####  adcdqre  
+##### 7239#       发表于 2025-1-10 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144393&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-10 10:39</a>
+
+对睦头来说，说错话就是在错误的场合错误的时间说正确的话。如果站在破soyo和祥子防的角度，那场合和时间 ...</blockquote>
+那你这角度很怪而且祥子也没怪睦
+
