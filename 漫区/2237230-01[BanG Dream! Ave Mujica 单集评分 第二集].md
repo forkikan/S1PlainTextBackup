@@ -961,3 +961,25 @@ mygo的戏份比预想的多得多，开心。我想看大象跪在soyo面前，
 4-6集也有点映吗</blockquote>
 没有，就怕wsd有病，炒作瘾犯了
 
+
+*****
+
+####  ads147147  
+##### 101#       发表于 2025-1-10 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143641&amp;ptid=2237230" target="_blank">吴怀在 发表于 2025-1-10 09:25</a>
+有野生的情报哥出没
+
+只把情报哥拉黑也没用，因为其他人会讨论。</blockquote>
+还是分集楼看看就好了，你邦国内真的火爆了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  伊迪潘宫森  
+##### 102#       发表于 2025-1-10 09:45
+
+剧透4000+
+

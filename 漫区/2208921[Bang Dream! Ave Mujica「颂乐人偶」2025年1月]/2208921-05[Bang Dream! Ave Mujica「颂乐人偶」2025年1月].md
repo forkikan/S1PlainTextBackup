@@ -13959,3 +13959,95 @@ https://x.com/kurehalxxx/status/1877365978817798461
 这集对复杂的群像行为展现了精彩的发挥，可以说是爆得很好看。mygo mujica动画通过人物互动的细节拿捏观众 ...</blockquote>
 祥子并没有债务，至少那个168亿既不是清告也不是祥子的债务
 
+
+*****
+
+####  lucasxp  
+##### 7182#       发表于 2025-1-10 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143672&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 09:29</a>
+
+不是便签，纸太大了，我猜可能是粉丝信
+
+情书（</blockquote>
+就觉得为了表现同学骚扰这个信息后面的镜头已经给足了，这里又专门给个特写就会觉得有啥深意
+
+*****
+
+####  一心而用  
+##### 7183#       发表于 2025-1-10 09:40
+
+<img src="https://p.sda1.dev/21/966d5ee2425f1be180d6353ea84597b5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7184#       发表于 2025-1-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143785&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 09:40</a></blockquote>
+sumimi号ccc一样，没有解散，只是（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  宝儿  
+##### 7185#       发表于 2025-1-10 09:42
+
+你就让大祥好好挣点钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer"> 哎呦卧槽日本怎么这么坏啊
+
+*****
+
+####  厉飞雨  
+##### 7186#       发表于 2025-1-10 09:43
+
+偷摸零用的纸应该是有形状的
+那张祥子你幸福吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">应该才是她写的
+
+*****
+
+####  66367749  
+##### 7187#       发表于 2025-1-10 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143701&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:32</a>
+那按这样说的话事务所是已经决定了没人气就开盒的炒作路线？所以说不能细想
+至于第二点涉及剧透，但喵梦 ...</blockquote>
+本身就有以后公开的打算的
+
+*****
+
+####  jaewoongh_  
+##### 7188#       发表于 2025-1-10 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142305&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-10 00:37</a>
+这集她也没什么黑点吧
+毕竟是唯一帮睦挡采访的人
+没有任何人做到这一点</blockquote>
+如果让我去发散那我只能说大祥老师事业心太强专业性太强<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+我就觉得很奇怪，既然在摘面具后睦头爆炸这件事上（除了键帽）谁都没做错，那到底谁错了，睦头自己？mygo演完春日影后的时候车soyo和taki的言论也不少吧，怎么到了现在大祥就依然软糯依然美强惨说不得了？
+
+*****
+
+####  ads147147  
+##### 7189#       发表于 2025-1-10 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143851&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 09:45</a>
+如果让我去发散那我只能说大祥老师事业心太强专业性太强
+我就觉得很奇怪，既然在摘面具后睦头爆炸这件事 ...</blockquote>
+时间线故意卡的很死，让一些操作发酵出来的，如果时间稍微拉长点，不少事情完全可以自主消化掉。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 7190#       发表于 2025-1-10 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143851&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-10 09:45</a>
+
+如果让我去发散那我只能说大祥老师事业心太强专业性太强
+
+我就觉得很奇怪，既然在摘面具后睦头爆炸这件事 ...</blockquote>
+睦作为父母双全的未成年人，父母当然是第一责任人，不然难道祥子是第一责任人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

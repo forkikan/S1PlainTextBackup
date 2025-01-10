@@ -10187,3 +10187,41 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 直接开蓝绿修改器吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">“无课” 萌新 从不氪金 
 
+
+*****
+
+####  alucardcz  
+##### 16048#       发表于 2025-1-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141526&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-9 23:14</a>
+
+狗萌新你那顶多一发十连的石头还想什么呢 青子双黄后你也太膨胀了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">尬黑呢  还有20涨护符 整整30抽！
+
+*****
+
+####  qixinno2  
+##### 16049#       发表于 2025-1-9 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141583&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-9 23:19</a>
+
+尬黑呢  还有20涨护符 整整30抽！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接开蓝绿修改器吧
+
+*****
+
+####  alucardcz  
+##### 16050#       发表于 2025-1-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141940&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-9 23:46</a>
+
+直接开蓝绿修改器吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">“无课” 萌新 从不氪金 
+
+*****
+
+####  khxooo  
+##### 16051#       发表于 2025-1-10 09:43
+
+10连友珠到手，欧得我都有点怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
