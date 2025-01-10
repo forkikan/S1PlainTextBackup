@@ -13823,3 +13823,54 @@ https://x.com/kurehalxxx/status/1877365978817798461
 
 <img src="https://p.sda1.dev/21/febe24ba668452d6b885d2844e00369c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 7170#       发表于 2025-1-10 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143364&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-10 08:55</a>
+这阁楼像个牢笼似的，对吧，牢初</blockquote>
+作者见水印
+<img src="https://p.sda1.dev/21/f3ad5a2b93a3553bdb66ff54bf3a510d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 7171#       发表于 2025-1-10 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67140769&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-9 22:15</a>
+官方组 魔法部译制司</blockquote>
+啊？魔法部？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARK_HGCG  
+##### 7172#       发表于 2025-1-10 09:15
+
+母鸡卡虽然是这个状况，但唯一有动机搞掉其他队友的只有初华吧
+
+祥子只有一个但是吉他已经有两把
+
+*****
+
+####  刑部姬真可爱  
+##### 7173#       发表于 2025-1-10 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143438&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:01</a>
+
+别细想清单：
+
+1、初华到底担保了什么样的条件让事务所同意来推手营销一个五人蒙面高中生还自己当producer的 ...</blockquote>
+第一个很好回答啊，丰川家的千金，若叶家的千金，小有名气的高水平贝斯手，技术不错的小网红，再加上当红女星初华，这阵容光看表面很难不说坚如磐石吧，要名气有名气，要颜值有颜值，要技术有技术
+
+第二个舞台上每个人都有椅子，除了喵梦自己肯定要坐一把之外，海铃旁边一把，初华后面有背靠背的两把，睦身后有一把。喵梦也不是看到睦的脸，而是她们已经开始表演的情况下睦突然瘫了这种情况，让喵梦震惊了
+
+*****
+
+####  sheshiro  
+##### 7174#       发表于 2025-1-10 09:17
+
+我错了，各位上仙还是把蕾丝内裤戴上吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

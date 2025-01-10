@@ -908,3 +908,32 @@ mygo的戏份比预想的多得多，开心。我想看大象跪在soyo面前，
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  零壹贰叁  
+##### 96#       发表于 2025-1-10 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，真有人信4-6点映啊
+
+*****
+
+####  帝下室の年糕  
+##### 97#       发表于 2025-1-10 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143398&amp;ptid=2237230" target="_blank">吴怀在 发表于 2025-1-10 08:58</a>
+啊？别他妈搞点映了。
+我还想着3集一过，先开个贴问问砖楼里有没有情报哥，没情报哥就能放心进砖楼讨论了。 ...</blockquote>
+情报哥偶尔会冒出来，而且有两个情报哥
+
+
+*****
+
+####  吴怀在  
+##### 98#       发表于 2025-1-10 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143490&amp;ptid=2237230" target="_blank">帝下室の年糕 发表于 2025-1-10 09:08</a>
+情报哥偶尔会冒出来，而且有两个情报哥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我一辈子都不进砖楼了
+
