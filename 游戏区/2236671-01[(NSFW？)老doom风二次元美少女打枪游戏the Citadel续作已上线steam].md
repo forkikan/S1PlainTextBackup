@@ -1309,3 +1309,31 @@ Steam上有人整理了背景设定。
 1代通关了，2代打了个开头、把商店NPC见了一遍</blockquote>
 二代敌人杀多了还会增强，打到后期关卡同一种小兵火力会更猛甚至还会走位拉枪线<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 122#       发表于 2025-1-10 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149658&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-10 21:36</a>
+
+应该是只有guro没有H
+
+    
+
+1代通关了，2代打了个开头、把商店NPC见了一遍</blockquote>
+我直接把炸弹扔了自己也跳下去了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+二代应该是炸死的世界线
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 123#       发表于 2025-1-10 21:53
+
+更新了个补丁
+
+好像修复了买枪的bug还有显示bug
+
+之前全屏显示有问题
+

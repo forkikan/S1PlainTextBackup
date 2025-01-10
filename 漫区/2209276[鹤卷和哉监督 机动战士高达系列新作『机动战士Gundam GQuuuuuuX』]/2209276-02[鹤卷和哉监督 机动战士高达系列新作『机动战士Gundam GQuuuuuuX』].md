@@ -11841,3 +11841,34 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 一想到是哈曼大人，这种不像JK的坐姿也不奇怪了</blockquote>
 那个灰模有全图吗
 
+
+*****
+
+####  刺客ares  
+##### 2458#       发表于 2025-1-10 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149708&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-10 21:43</a>
+
+那个灰模有全图吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/10/214746t4piimuilek4wz95.png" referrerpolicy="no-referrer">
+
+<strong>捕69获.PNG</strong> (332.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 21:47 上传
+
+之前周边列表里的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">对比一下坐姿
+
+
+*****
+
+####  RE㐅ia  
+##### 2459#       发表于 2025-1-10 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149742&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 21:48</a>
+
+之前周边列表里的对比一下坐姿</blockquote>
+真的好小只（
+

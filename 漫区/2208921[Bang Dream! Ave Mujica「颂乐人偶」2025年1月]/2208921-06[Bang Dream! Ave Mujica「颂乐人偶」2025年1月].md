@@ -758,3 +758,19 @@ B站角色热度排行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 7468#       发表于 2025-1-10 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话感觉这mujica的观感比mygo还更偏向八点档电视剧了……这算新赛道吗，把电视剧的脚本改的更二次元就可以爆火
+
+*****
+
+####  山ノ内花音  
+##### 7469#       发表于 2025-1-10 21:48
+
+mygo：校园题材都市情感剧
+mujica：娱乐圈题材都市情感剧
+
