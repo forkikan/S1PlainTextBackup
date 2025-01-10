@@ -13727,3 +13727,33 @@ rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆 
 
 2025-1-10 08:46 上传
 
+
+*****
+
+####  一心而用  
+##### 7161#       发表于 2025-1-10 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143292&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-10 08:46</a>
+
+有人说易拉罐像海铃以前喝过的咖啡</blockquote>
+那个牛奶，海铃本来喝的是蜜柑口味的，自从喝了一口立希的巧克力口味就再也回不去了。
+
+*****
+
+####  厉飞雨  
+##### 7162#       发表于 2025-1-10 08:55
+
+<img src="https://p.sda1.dev/21/14bb6e42bf76d17f942f178c1353d816/image.jpg" referrerpolicy="no-referrer">
+这阁楼像个牢笼似的，对吧，牢初<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 7163#       发表于 2025-1-10 08:57
+
+说起来邦邦乐队里的贝斯手基本都是妈妈或者团队润滑剂角色，海铃现在还没太表现出来这两点啊，从mygo里海铃和睦画面较多的情况来看，或许就是因为睦这次爆了之后海铃才下定决心把鸡团当自己的归属？
+
+而且她作为30支乐队的雇佣兵，勉强也算是小有名气的贝斯手，居然会因为不想被同学逮住问东问西而直接躲起来，或许是因为鸡团对她她对鸡团有着不同于对其他乐队的“感情”从而不愿意去过多的“纠缠”？
+
+说起来不知道能不能看到ras有出场啊，讲道理鸡团这最速武道馆的宣传chuchu能忍住不嘴两句吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

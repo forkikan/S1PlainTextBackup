@@ -830,3 +830,39 @@ mygo的戏份比预想的多得多，开心。我想看大象跪在soyo面前，
 
 +2  窒息感拉满的一集
 
+
+*****
+
+####  silversor  
+##### 88#       发表于 2025-1-10 08:51
+
+少女乐队动画的矛盾，开一场音趴就能解决了，解决不了再开一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过鸡团目前看来五个都是刺头，找不到一个能展开领域的人。 
+要不，巡回演出结束后退出事务所，几个月后ring节目表多了个带假面的神秘新乐团<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 89#       发表于 2025-1-10 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143099&amp;ptid=2237230" target="_blank">ads147147 发表于 2025-1-10 08:08</a>
+初华可以说什么都看到了，但是她不想管，或者说更可怕的，她故意不想管。不愧是看着就像是捕食者设计。当然 ...</blockquote>
+最可怕的是wsd不以为耻反以为荣，继续搞4-6点映<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 90#       发表于 2025-1-10 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143345&amp;ptid=2237230" target="_blank">蜇灵 发表于 2025-1-10 08:52</a>
+
+最可怕的是wsd不以为耻反以为荣，继续搞4-6点映</blockquote>
+4-6集也有点映吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小雪空  
+##### 91#       发表于 2025-1-10 08:55
+
+4-6点映不是你们滑的内容吗，真的存在于现实吗×
+
