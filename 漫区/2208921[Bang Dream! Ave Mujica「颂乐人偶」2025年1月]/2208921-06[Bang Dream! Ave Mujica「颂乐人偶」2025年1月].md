@@ -245,3 +245,26 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以在对睦问题上，我倾向于祥子即使被黑睦伤害了也不会马上爆掉，因为祥子这个自我牺牲要素，祥子哪怕是再惨也会先把睦拉回来
 但是之后嘛，就不好说了，因为祥子是自我牺牲的殉道者，迟早也会有绷不住倒下的一天
 
+
+*****
+
+####  KokutouMikiya  
+##### 7426#       发表于 2025-1-10 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147344&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-10 16:28</a>
+也不至于微妙距离感吧，不想让自己的“心上人”看见自己家里乱糟糟的样子不是很正常吗 ...</blockquote>
+就是因为是心上人才会有“距离感”啊，只想给对方看自己最好的一面<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 7427#       发表于 2025-1-10 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147249&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-1-10 16:16</a>
+
+单纯是卧室乱收拾一下吧，不然给人印象不好这点其实能看出初华和祥的微妙距离感 ...</blockquote>
+我个人是觉得就10秒钟收拾屋子时间远远不够的，至少一分钟吧，但如果是藏东西就很合适。
+
+这个动画信息密度极高不会有闲笔的。
+
