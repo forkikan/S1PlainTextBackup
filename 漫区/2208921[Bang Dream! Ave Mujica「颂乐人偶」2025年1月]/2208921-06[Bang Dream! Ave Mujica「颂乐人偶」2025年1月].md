@@ -1138,3 +1138,65 @@ Oblivionis说的别管脸了把一切献给avemujiva，很明显就是祥要再�
 
 包餃子！
 
+
+*****
+
+####  wszweill  
+##### 7502#       发表于 2025-1-10 23:18
+
+ 本帖最后由 wszweill 于 2025-1-10 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149966&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-10 09:22</a>
+
+話說，
+
+大立老師是打算要愛音怎樣不讓燈得到消息？
+
+燒了學校嗎？</blockquote>
+rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉来T soyo<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+哦对了，根据隔壁的一种分析，实际上哪怕到了第二集，rikki都不一定知道大祥老师在隔壁，甚至不一定知道是同校<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 因为第一季没跟rikki说过（存疑？），本集anno的原话是大家都在讨论，没提到大祥在 隔壁。不过我觉得这种信息不对称 也太抽象了（
+
+*****
+
+####  人外娘恋  
+##### 7503#       发表于 2025-1-10 23:19
+
+当前最热门的乐队，速通武道馆，马上全国巡演，通告采访接到爆，满大街的广告，在这种情况下牢祥都没钱去租个小公寓住……
+
+已经不太理解祥子搞这乐队的初衷了，捞快钱给父亲的话，目前都接近绝交的状态了，那么还这么急的要把乐队炒热干啥，按照节奏慢慢来就行。
+
+祥子应该知道睦的性格，电视采访时也迅速反应帮睦挡话题，结果采访通告之类排那么多活塞给睦，因为对方指名就让睦自己去应付各路记者，前后太矛盾了。
+
+*****
+
+####  AnnieLeonhart  
+##### 7504#       发表于 2025-1-10 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150357&amp;ptid=2208921" target="_blank">人外娘恋 发表于 2025-1-10 23:19</a>
+当前最热门的乐队，速通武道馆，马上全国巡演，通告采访接到爆，满大街的广告，在这种情况下牢祥都没钱去租 ...</blockquote>
+我觉得还是想自我成就吧，回大宅门实在不想
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  wszweill  
+##### 7505#       发表于 2025-1-10 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150357&amp;ptid=2208921" target="_blank">人外娘恋 发表于 2025-1-10 10:19</a>
+
+当前最热门的乐队，速通武道馆，马上全国巡演，通告采访接到爆，满大街的广告，在这种情况下牢祥都没钱去租 ...</blockquote>
+祥子爹没有欠钱，姥爷已经把账平了，他是因为无能被T的。
+
+所以我也搞不懂祥子想干啥，毕竟祥子再NB也和她爹 是个 废物不矛盾。
+
+只能说通过证明自己是好圣孙，让姥爷把爹废品回收吧。但是第一集都决裂了，也不知道大祥着啥急
+
+*****
+
+####  NODY  
+##### 7506#       发表于 2025-1-10 23:24
+
+两个月速通武道馆+全国巡演+满大街广告+各种上节目，那投入资金应该也挺高的，没准公司答应让一个女高中生当P的条件，就是在赚回宣发成本之前不给P的分成，只给乐队部分的工资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

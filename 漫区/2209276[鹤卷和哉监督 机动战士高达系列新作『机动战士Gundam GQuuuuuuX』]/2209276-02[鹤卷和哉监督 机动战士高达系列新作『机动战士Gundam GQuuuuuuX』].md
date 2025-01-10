@@ -12136,3 +12136,67 @@ byd假药怎么越说越真了</blockquote>
 
 希望这次gquuuuuux的讨论环境能够好一些
 
+
+*****
+
+####  刺客ares  
+##### 2480#       发表于 2025-1-10 23:17
+
+MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RE㐅ia  
+##### 2481#       发表于 2025-1-10 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150277&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 23:06</a>
+
+水魔开播前也一堆假药，最后中了的还是少数（</blockquote>
+但是最大的那个还是中了。刚开始那个每个浮游炮都是个人的假药我是真不信的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 2482#       发表于 2025-1-10 23:20
+
+<blockquote>刺客ares 发表于 2025-1-10 23:14
+接着上面编，如果玛秋是平行哈曼，主角三人组原型就非常明显了
+
+妮娅安就是娜塔莉，那个让并肩作战的哈曼与 ...</blockquote>
+你对短片的解读方向太偏颇了吧
+
+*****
+
+####  刺客ares  
+##### 2483#       发表于 2025-1-10 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150361&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-10 23:19</a>
+
+但是最大的那个还是中了。刚开始那个每个浮游炮都是个人的假药我是真不信的 ...</blockquote>
+当时我就想，如果每个浮游炮里都有人，那风灵从头到尾的机战戏都不能掉件，怎么可能啊，那机战戏得多难看
+
+事实证明
+
+
+*****
+
+####  PascalLefèvre  
+##### 2484#       发表于 2025-1-10 23:22
+
+我还记得那个每个浮游炮上都有个狸猫头的弔图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刺客ares  
+##### 2485#       发表于 2025-1-10 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150368&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-10 23:20</a>
+
+你对短片的解读方向太偏颇了吧，而且和夏亚哈曼等之间的关系有些牵强附会了 ...</blockquote>
+今天看到推上有人说才把这段捡起来的，之前忘了不少
+
+可以对我使用修正拳<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
