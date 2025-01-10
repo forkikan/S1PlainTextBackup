@@ -12244,3 +12244,19 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 [https://x.com/Kakuriyo_Rei/status/1877572894424989704](https://x.com/Kakuriyo_Rei/status/1877572894424989704)
 <img src="https://p.sda1.dev/21/2e6325d5263514ed420e17fb40fe9ca1/20250110_234459.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 2490#         楼主| 发表于 2025-1-10 23:46
+
+[https://x.com/Kakuriyo_Rei/status/1877572894424989704](https://x.com/Kakuriyo_Rei/status/1877572894424989704)
+<img src="https://p.sda1.dev/21/2e6325d5263514ed420e17fb40fe9ca1/20250110_234459.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 2491#       发表于 2025-1-11 06:34
+
+什么，可是我已经没有情报哥就菠萝菠萝哒了
+
