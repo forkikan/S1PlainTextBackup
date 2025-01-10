@@ -14846,3 +14846,54 @@ ed标题georgette是乔琪纱
 
 观众：你是？
 
+
+*****
+
+####  bird-lay  
+##### 7260#       发表于 2025-1-10 11:19
+
+ 本帖最后由 bird-lay 于 2025-1-10 11:23 编辑 
+
+话说ed图里剩下四个人的物品都是具体存在的（初华的面具应该也算？）
+
+只有睦是mortis的娃娃？
+
+以及别人的都是象征比较私人的物品，只有初华在这个场合还是面具，再联想到op结束面具落地…初华，好可怕的女人
+
+*****
+
+####  IWS2000  
+##### 7261#       发表于 2025-1-10 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144751&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 11:15</a>
+https://comic-growl.com/episode/2550912964974264765
+
+官漫第一话</blockquote>
+官漫的睦打着伞看着祥子淋雨痛哭，无关心<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 7262#       发表于 2025-1-10 11:25
+
+说起来之前睦说组乐队不开心，现在更不开心甚至要彻底疯狂了，还蛮搞的
+
+*****
+
+####  Aendst  
+##### 7263#       发表于 2025-1-10 11:26
+
+ 本帖最后由 Aendst 于 2025-1-10 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144835&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-10 11:23</a>
+
+官漫的睦打着伞看着祥子淋雨痛哭，无关心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以动画把你吓死了是吗，没关系我这人心善，你晕过去我帮你叫救护车
+
+*****
+
+####  山ノ内花音  
+##### 7264#       发表于 2025-1-10 11:27
+
+这官漫感觉不如 坏心思的神明一根
+

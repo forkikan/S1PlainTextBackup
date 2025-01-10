@@ -85,3 +85,13 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 2小时38分的巨作啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳄鱼头  
+##### 6824#       发表于 2025-1-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67119820&amp;ptid=2130897" target="_blank">幻月天伤 发表于 2025-1-7 11:24</a>
+没有。而且虽然有点答非所问，百万手游剧情的无聊程度（整体）跟学马最水的活动剧情差不多（比如圣诞打工 ...</blockquote>
+行了别秀了，知道你很久不看剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就最新的那单专辑，剧情几乎每场都有爆点
+
