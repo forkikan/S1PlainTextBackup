@@ -10383,3 +10383,20 @@ IMAX52馆，合计到达426馆，怕不是得日本一半以上了
 
 卡斯帕的生活环境和记忆植入也没啥区别了，一切都是为了一比一去复刻乔布斯，不直接塞记忆进去纯纯是因为那个时候的技术力做不到
 
+
+*****
+
+####  岸波白野扎比子  
+##### 2316#       发表于 2025-1-10 09:03
+
+X怎么复制不了作者
+
+IMG_2721.jpeg
+(163.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/090126v4g5kfkn9wkq0ier.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

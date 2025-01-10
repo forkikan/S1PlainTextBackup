@@ -866,3 +866,45 @@ mygo的戏份比预想的多得多，开心。我想看大象跪在soyo面前，
 
 4-6点映不是你们滑的内容吗，真的存在于现实吗×
 
+
+*****
+
+####  吴怀在  
+##### 92#       发表于 2025-1-10 08:58
+
+啊？别他妈搞点映了。
+我还想着3集一过，先开个贴问问砖楼里有没有情报哥，没情报哥就能放心进砖楼讨论了。
+
+*****
+
+####  看穿一切的鱼  
+##### 93#       发表于 2025-1-10 09:01
+
+跟点映和解了，要不别挤牙膏13集点映全搬上来吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 94#       发表于 2025-1-10 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143398&amp;ptid=2237230" target="_blank">吴怀在 发表于 2025-1-10 08:58</a>
+啊？别他妈搞点映了。
+我还想着3集一过，先开个贴问问砖楼里有没有情报哥，没情报哥就能放心进砖楼讨论了。 ...</blockquote>
+专楼里会有人不自觉剧透，我已经被恶心到好几次了。。干脆不看
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ads147147  
+##### 95#       发表于 2025-1-10 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143345&amp;ptid=2237230" target="_blank">蜇灵 发表于 2025-1-10 08:52</a>
+最可怕的是wsd不以为耻反以为荣，继续搞4-6点映</blockquote>
+还搞这种点映那我只能来一句武士道好似。。。也难怪拉拉那边老早就把武士道踢开一边去（虽然拉拉现在半死不活）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

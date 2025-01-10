@@ -13757,3 +13757,69 @@ rikki提到木头不喜欢 被当做是演员 的女儿，而整个剧情的爆 
 
 说起来不知道能不能看到ras有出场啊，讲道理鸡团这最速武道馆的宣传chuchu能忍住不嘴两句吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  double8G  
+##### 7164#       发表于 2025-1-10 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143192&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 08:28</a>
+
+我看过但是没有联想到你说的是哪个梗。</blockquote>
+次郎的龙虎兄弟啊……结合第三集祥说的以前的睦是阳光开朗，不好说莫提斯和睦头人哪个先有……
+
+这俩角色一个外向一个内向看似不同，但是偶尔让人不舒服这一点上倒是高度一致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 7165#       发表于 2025-1-10 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143410&amp;ptid=2208921" target="_blank">double8G 发表于 2025-1-10 08:59</a>
+
+次郎的龙虎兄弟啊……结合第三集祥说的以前的睦是阳光开朗，不好说莫提斯和睦头人哪个先有……
+
+这俩角色 ...</blockquote>
+这个啊，感觉不太像，睦头人很明显是先来的。
+
+*****
+
+####  蜇灵  
+##### 7166#       发表于 2025-1-10 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67141856&amp;ptid=2208921" target="_blank">PDQ4 发表于 2025-1-9 23:37</a>
+这公式约稿，wsd是真的过分吧
+
+看不下去了
+
+https://x.com/kurehalxxx/status/1877365978817798461
+</blockquote>
+怎么场内场外都迫害我们睦头<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 7167#       发表于 2025-1-10 09:01
+
+别细想清单：
+1、初华到底担保了什么样的条件让事务所同意来推手营销一个五人蒙面高中生还自己当producer的乐队出道
+2、演奏时间睦的身后为什么还能有把椅子，喵梦作为鼓手在最后排又是怎么看到睦的脸
+
+
+*****
+
+####  弃疗废宅  
+##### 7168#       发表于 2025-1-10 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143364&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-10 08:55</a>
+
+这阁楼像个牢笼似的，对吧，牢初</blockquote>
+初华这个攻略进度是不是有点不对
+
+*****
+
+####  一心而用  
+##### 7169#       发表于 2025-1-10 09:04
+
+<img src="https://p.sda1.dev/21/febe24ba668452d6b885d2844e00369c/image.jpg" referrerpolicy="no-referrer">
+
