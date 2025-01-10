@@ -14748,3 +14748,101 @@ ed标题georgette是乔琪纱
 
 这第二话完全是心理恐怖题材了，有种美国精神病人的感觉
 
+
+*****
+
+####  山ノ内花音  
+##### 7251#       发表于 2025-1-10 11:09
+
+娱乐圈 心理恐怖 悬疑 要素太多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  吹楼伞人  
+##### 7252#       发表于 2025-1-10 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144640&amp;ptid=2208921" target="_blank">三尖酸努努 发表于 2025-1-10 11:04</a>
+
+草</blockquote>
+推测，立希喝咖啡是在mygo疑似解散的阶段，所以咖啡可能是代表乐队解散的苦涩，和撕掉的合照一个含义
+
+*****
+
+####  一心而用  
+##### 7253#       发表于 2025-1-10 11:10
+
+<img src="https://p.sda1.dev/21/988e9c1bed2178e65795bf6e3c1e8775/QQ图片20250110092326.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/1e75766b0046b7e6ad230d2a70e416a3/QQ图片20250110092331.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  199april  
+##### 7254#       发表于 2025-1-10 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144655&amp;ptid=2208921" target="_blank">梅斯之围 发表于 2025-1-10 11:05</a>
+
+这里的饮料早就喝完了吧，不然不可能不用手叼起来。一个饮料空盒子吮半天，估计也是心事重重的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我也喜欢没事啜半天，把纸盒吹起来再吸回去感觉特解压
+
+*****
+
+####  KLHgg  
+##### 7255#       发表于 2025-1-10 11:14
+
+<blockquote>失之，我命 发表于 2025-1-10 09:58
+说起来好奇问下邦邦这边之前有没有群众喜闻乐见的女生打架场景(mygo最激烈也就揪衣领，没打起来……总感觉 ...</blockquote>
+没有。邦老团闹矛盾如果有一方性格好，那就不会往激烈的方向走，如果有一方是乐队核心位，最坏的写法无非是离队
+
+素世复活c团的操作太抽象了，祥子的处境不是一般jk能遇到的
+
+
+*****
+
+####  Aendst  
+##### 7256#       发表于 2025-1-10 11:15
+
+[https://comic-growl.com/episode/2550912964974264765](https://comic-growl.com/episode/2550912964974264765)
+
+官漫第一话
+
+*****
+
+####  六道明  
+##### 7257#       发表于 2025-1-10 11:15
+
+<img src="https://img.saraba1st.com/forum/202501/10/111524q5rvxyto2t3xob99.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (145.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 11:15 上传
+
+奇怪的组合增加了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 7258#       发表于 2025-1-10 11:15
+
+有一说一第二集最后上台前给祥子的几个特写分镜很难不认为带了点刻意，一股大魔王反派的味
+
+*****
+
+####  黑猫桑  
+##### 7259#       发表于 2025-1-10 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144178&amp;ptid=2208921" target="_blank">陶矢 发表于 2025-1-10 10:17</a>
+
+为什么其他视角压力都描写的够多，soyo睦对线就一闪而过啊，尖锐问题一个没问，我要看soyo全方位拷打睦
+
+— ...</blockquote>
+拷打还行
+
+素世拉人组c团，睦祥不去
+
+祥子组团不拉素世，难道自己没有点b数吗
+
+观众：你是？
+
