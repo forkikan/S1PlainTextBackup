@@ -85,3 +85,13 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个游戏数值又崩了，还是那个女人引起的
 
+
+*****
+
+####  milky658  
+##### 18174#       发表于 2025-1-10 18:38
+
+暗老王还了这么久债又贷上款了吗？你们都是杀人凶手<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
