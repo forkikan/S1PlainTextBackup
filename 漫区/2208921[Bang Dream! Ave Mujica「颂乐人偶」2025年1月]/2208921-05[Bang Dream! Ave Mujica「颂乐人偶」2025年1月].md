@@ -14616,3 +14616,100 @@ ed标题georgette是乔琪纱
 对睦头来说，说错话就是在错误的场合错误的时间说正确的话。如果站在破soyo和祥子防的角度，那场合和时间 ...</blockquote>
 那你这角度很怪而且祥子也没怪睦
 
+
+*****
+
+####  哈曼的YY  
+##### 7240#       发表于 2025-1-10 10:48
+
+甜甜圈模型是不是有细化过 还是光影问题
+
+
+*****
+
+####  玖羽  
+##### 7241#       发表于 2025-1-10 10:49
+
+ 本帖最后由 玖羽 于 2025-1-10 10:50 编辑 
+
+刚发现，海铃也够狠的，给睦排满了
+
+<img src="https://img.saraba1st.com/forum/202501/10/104222n9w9222dznznkllm.jpg" referrerpolicy="no-referrer">
+
+<strong>0001.jpg</strong> (30.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 10:42 上传
+
+所有人同色的那一行应该就是接下来睦失言的采访
+
+除了这次采访之外，两边的喵梦和海铃只有一两项工作，睦排得满满当当
+
+还有一点，这个日程表上居然是＜今日＞，这个时候已经是晚上了，接下来去若叶家吃饭，看了一部电影，后面还有这么多事，你们睡不睡觉
+
+<img src="https://img.saraba1st.com/forum/202501/10/104222fyh4rhlcrhahccrg.jpg" referrerpolicy="no-referrer">
+
+<strong>0002.jpg</strong> (31.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 10:42 上传
+
+*****
+
+####  结衣小比取  
+##### 7242#       发表于 2025-1-10 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144283&amp;ptid=2208921" target="_blank">dc5281 发表于 2025-1-10 10:28</a>
+
+祥睦互为半身的设定体现的不够强，从mygo开始能看到的是睦一直是陪在祥子身边，做情绪树洞也好，帮忙隐瞒信 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/10/105003apg97sz60pvm9gkp.jpg" referrerpolicy="no-referrer">
+
+<strong>睦的工作.jpg</strong> (93.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 10:50 上传
+
+*****
+
+####  dc5281  
+##### 7243#       发表于 2025-1-10 10:52
+
+ 本帖最后由 dc5281 于 2025-1-10 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144490&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-10 10:50</a></blockquote>
+我知道是对方指定的
+
+前面有人说不一定是祥子安排的采访，这倒是有可能
+
+但是睦自己估计做不出推掉的事，所以我用的是“不该接”这么多采访
+
+
+*****
+
+####  Aendst  
+##### 7244#       发表于 2025-1-10 10:55
+
+商业项目，一个刚起步的未成年乐队没有余力和那么多权能去拒绝和推掉工作的
+
+*****
+
+####  刑部姬真可爱  
+##### 7245#       发表于 2025-1-10 10:56
+
+我觉得她俩的对话模式应该是soyo简单提问，睦简单回答，soyo问为什么组乐队，睦回答祥子，soyo再问全部都是祥子计划的吗，睦回答嗯，然后soyo就气冲冲的走了
+
+----发送自 [realme RMX1991,Android 11](http://stage1.5j4m.com/?1.42)
+
+*****
+
+####  ddy2811  
+##### 7246#       发表于 2025-1-10 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144415&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-10 10:42</a>
+
+反正没爆身份最速武道馆了公司有眼光的，不得不说设定还是比网友严谨</blockquote>
+最好的预期也是要建立在最坏的打算上的
+
