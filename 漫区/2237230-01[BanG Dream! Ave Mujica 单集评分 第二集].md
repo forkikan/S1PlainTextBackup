@@ -1223,3 +1223,15 @@ op其实她们拿出乐器前完全更像公主代理人的op，ed甚至比有�
 
 尬黑了，除了车祥子还有拉郎配，刷烂梗
 
+
+*****
+
+####  cc37  
+##### 128#       发表于 2025-1-11 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145385&amp;ptid=2237230" target="_blank">xiaosayang 发表于 2025-1-10 12:18</a>
+各种桥段功利性太强，虽然此事在mygo已有记载：牺牲某些角色简单地工具化(乐奈立希)、只想造剧情片段性的奇 ...</blockquote>
+如何理解立希的工具化？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
