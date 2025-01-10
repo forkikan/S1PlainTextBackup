@@ -451,3 +451,56 @@
 
 尤其是初华，那张伟大的大脸一天到晚在大街小巷播放，不知多少人听过她的歌，硬是所有人都没看出来、听出来，除非面具本身就有认知篡改效果
 
+
+*****
+
+####  最终兵器狂战  
+##### 7442#       发表于 2025-1-10 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148371&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 18:23</a>
+真按现实说，那半个面具根本不可能藏住
+
+尤其是初华，那张伟大的大脸一天到晚在大街小巷播放，不知多少人 ...</blockquote>
+官方不认证那就是粉丝瞎猜，自会有id叫做sakiko的十年老粉不请自来表示“请不要破坏ave mujica的世界观”的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三尖酸努努  
+##### 7443#       发表于 2025-1-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148371&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 18:23</a>
+真按现实说，那半个面具根本不可能藏住
+
+尤其是初华，那张伟大的大脸一天到晚在大街小巷播放，不知多少人 ...</blockquote>
+戴面具相当于变身，有认知阻碍魔法保护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 7444#       发表于 2025-1-10 18:57
+
+ 本帖最后由 SakuraのOrigami 于 2025-1-10 19:01 编辑 
+
+对，对吗
+
+素世的6弦贝斯
+
+然后拾音器还是美芬CS的（）
+
+<img src="https://img.saraba1st.com/forum/202501/10/185741zpgysgudjrhsrus4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250110185733.png</strong> (748.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 18:57 上传
+
+
+*****
+
+####  akiomn  
+##### 7445#       发表于 2025-1-10 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二刺螈那个面具别想太多，就当成和超人眼镜一样自带认知屏蔽功能就完了
+换成三刺猿分分钟盒完
+

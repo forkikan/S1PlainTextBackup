@@ -11365,3 +11365,11 @@ UC死忠姨姥专用硬核考据讨论楼
 
 看X及知道了，在这点上反而不用太担心，受众早就被这些年这么多个平行世界作品给调教好了
 
+
+*****
+
+####  xwz  
+##### 2405#       发表于 2025-1-10 18:58
+
+好嘛……一段时间没来看情报，变成哈曼和希洛克LOVELOVE的故事了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
