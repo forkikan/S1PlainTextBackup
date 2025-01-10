@@ -179,3 +179,19 @@
 
 单纯是卧室乱收拾一下吧，不然给人印象不好<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这点其实能看出初华和祥的微妙距离感
 
+
+*****
+
+####  刑部姬真可爱  
+##### 7420#       发表于 2025-1-10 16:28
+
+也不至于微妙距离感吧，不想让自己的“心上人”看见自己家里乱糟糟的样子不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古明地雷  
+##### 7421#       发表于 2025-1-10 16:32
+
+初华是在收ob小姐的周边啦
+
