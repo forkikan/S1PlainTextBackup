@@ -648,3 +648,11 @@ Screenshot_20250103_185119.jpg
 
 （假如出色彩人格的话，希斯克利夫肯定和漆黑缄默相性好。如果把奥姨的佩涅洛佩设定成妹妹，那我推荐她当苍蓝残响<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  Yuzutea  
+##### 1055#       发表于 2025-1-10 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太强了吧二人组
+

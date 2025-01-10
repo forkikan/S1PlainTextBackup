@@ -11292,3 +11292,63 @@ UC死忠姨姥专用硬核考据讨论楼
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  otaku21126  
+##### 2400#       发表于 2025-1-10 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148185&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-1-10 18:02</a>
+感觉问题不是信不信，而是最终能不能给出好像现在很多人期待的就像外边贴需要讨论几页鸡瘟如何翻盘进入IF线 ...</blockquote>
+按照美漫多元宇宙的说法，G6QX世界观并不是是UC主宇宙的“分歧点”平行宇宙，而是“切线”宇宙。
+从很多年前G6QX世界就和无印世界出现了不同的发展，只是在0078～0079年发生了几乎与无印完全相同的事，之后有开始出现很多很多不同的发展。
+所以G6QX世界里吉翁赢和无印世界吉翁赢的难度完全不同。
+
+
+*****
+
+####  刺客ares  
+##### 2401#       发表于 2025-1-10 18:17
+
+<img src="https://img.saraba1st.com/forum/202501/10/181843r3buyryyjrf9uvbn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9804.jpeg</strong> (301.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 18:18 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/181632c111aoo50l4lgoeo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9803.jpeg</strong> (656.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 18:16 上传
+
+其实有staff发图了
+
+负责设计玛秋驾驶服和白哈啰和总帅配色螃蟹的网老师发的，官推就不发了（
+
+
+*****
+
+####  虛無迴廊  
+##### 2402#       发表于 2025-1-10 18:23
+
+可能麻球最后也不会成为军人，到了地球看了大海就回家继续当jk，就是中间曲折了亿点而已，这样也是个青春故事
+
+*****
+
+####  岸波白野  
+##### 2403#       发表于 2025-1-10 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148237&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-10 18:08</a>
+
+这种事情就算有设定（为了推导世界观应该是会有的）也不会在片子里具体详细的展示出来，因为对于0085的剧 ...</blockquote>
+现在完全不知道实际的剧情展开，其次世界观的来源也只有那条官网偷跑，PV信息说实在的也还非常有限，我觉得预测片子本身的实际展开和具体的世界观要素处理还意义不大
+
+现在能谈的也只有受众的反应和staff的意图，我还是非常好奇这些staff佬登对于本作的UC元素运用到底是个什么态度，其实我觉得鹤卷榎户反倒应该不太热衷于“符合自己调性的UC叙事”这点，如果剩下的那个家伙这次不太越界感觉大方向上最终正统UC味一定是很淡的（当然khara主力或者说至少痞子都是毫无疑问的first高达世代，真要往这个方向做不是说没有能做好的可能，当然对于这一点我是完全不期待的）
+
+但如果这个大方向预测是对的，纯从受众层看，可能又会变成“欲用UC，必承其重”的状态，而且从现在这片要用的料看，最坏的情况，和安魂曲（乱编UC）和这楼不太愿提的前作相似的反馈会同时出现
+

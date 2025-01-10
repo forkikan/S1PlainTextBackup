@@ -411,3 +411,43 @@
 
 希望之后能有一些部分能强化一下舞台剧part的戏剧性啊
 
+
+*****
+
+####  KokutouMikiya  
+##### 7439#       发表于 2025-1-10 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147864&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 17:23</a>
+我个人是觉得就10秒钟收拾屋子时间远远不够的，至少一分钟吧，但如果是藏东西就很合适。
+
+这个动画信息密 ...</blockquote>
+又仔细看了下，那里其实是在收拾客厅，玄关到客厅是有一道门的。客厅这种地方应该不太好藏东西，我倾向于还是简单收拾了下。如果真要藏东西那藏啥都挺变态的，能有啥见不得人的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/31e0e892c51a9efe7efd9e86f3045eab/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e3fa7611f2ccce3c8a949143a3bdcbd5/image.jpg" referrerpolicy="no-referrer">
+另外顺着盒去查了一下，按格局来对应的话初华住的应该是501室，至于什么隔音地下室是一层才有的东西。
+<img src="https://p.sda1.dev/21/97805599f3403222c4edf3eb5e4c5a53/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 7440#       发表于 2025-1-10 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148193&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-10 18:02</a>
+
+转发一下评论区看到的：祥子是知道睦不喜欢作为星二代被公众讨论的。立希都知道,祥子没理由不知道。所以最 ...</blockquote>
+是啊，追求精神上的满足，然后用流量和数字招揽喵梦入队，祥子这惊世操作的水准跟拆C团时真是如出一辙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 7441#       发表于 2025-1-10 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148298&amp;ptid=2208921" target="_blank">sephal 发表于 2025-1-10 18:15</a>
+
+没有大喵也有跟踪狂歌迷和无良狗仔队，尤其这帮人下班根本就不做隐藏的，以母鸡卡的热度木头能撑到武道馆才 ...</blockquote>
+真按现实说，那半个面具根本不可能藏住<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+尤其是初华，那张伟大的大脸一天到晚在大街小巷播放，不知多少人听过她的歌，硬是所有人都没看出来、听出来，除非面具本身就有认知篡改效果
+
