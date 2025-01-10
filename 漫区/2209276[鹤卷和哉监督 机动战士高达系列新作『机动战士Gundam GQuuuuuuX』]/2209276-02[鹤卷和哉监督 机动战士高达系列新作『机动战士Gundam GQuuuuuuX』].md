@@ -11105,3 +11105,25 @@ SD高达DS里基连总帅诈死后，用倒A里的月球技术养了一大堆NT�
 
 什么？我是哈曼？我怎么不知道
 
+
+*****
+
+####  Steel.Haze  
+##### 2382#       发表于 2025-1-10 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146739&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-10 15:13</a>
+
+关键是UC是真搞过克隆人的，水魔只不过也干了。
+
+UC里最著名的是普露系列。</blockquote>
+不过克隆技术是UC里面最稳定的NT量产技术了。
+
+克隆NT然后一点强化诱导就可以产生水平很高的强化人（实际上就是NT），不过诱导和成长过程非常规可能带来不稳定。且其实际生产中，还普遍加了身体强化（普璐系列人均肉体超人）。这种水平的强化，后面只有伪鸭和铁面具这样的个体再现过。
+
+*****
+
+####  OrianaThomson  
+##### 2383#       发表于 2025-1-10 15:23
+
+哈曼假药时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

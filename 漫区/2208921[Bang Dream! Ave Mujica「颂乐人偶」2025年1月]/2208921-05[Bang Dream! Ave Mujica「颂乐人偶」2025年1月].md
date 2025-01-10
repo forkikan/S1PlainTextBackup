@@ -16409,3 +16409,12 @@ ep3 把睦玩没了</blockquote>
 
 初华家在中目黑下车 多半是把房型给移过去了
 
+
+*****
+
+####  ffam  
+##### 7399#       发表于 2025-1-10 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146708&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 15:09</a></blockquote>
+这个地下室动画要是真有也用到了，比起不可能有的囚禁假药，感觉更有可能是睦也搬进来在防音地下室玩吉他吧
+
