@@ -1239,3 +1239,26 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 
 现阶段就当为了住初华家编的吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wszweill  
+##### 7510#       发表于 2025-1-10 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150403&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-10 10:24</a>
+
+两个月速通武道馆+全国巡演+满大街广告+各种上节目，那投入资金应该也挺高的，没准公司答应让一个女高中生 ...</blockquote>
+还不如说就是姥爷的大手，A团失败就要回家继承万亿家产力（
+
+*****
+
+####  wszweill  
+##### 7511#       发表于 2025-1-10 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150432&amp;ptid=2208921" target="_blank">人外娘恋 发表于 2025-1-10 10:31</a>
+
+突然想起隔壁小孩姐，未成年租公寓好像要监护人同意，完了，非常合理</blockquote>
+邦邦 就别想 太多了，真带入现实未成年怎么当P。A团5个人只有大喵可以当法定代表人签协议<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+大祥和其他4人到底有多少民事责任都不好说（
+

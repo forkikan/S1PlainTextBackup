@@ -12218,3 +12218,29 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 我就说是12集可能性大，24集卡哈做不来的
 
+
+*****
+
+####  Piano-Forest  
+##### 2488#         楼主| 发表于 2025-1-10 23:44
+
+網
+
+负责了玛秋的驾驶服、哈罗以及修司的四脚小机器人的设计原案
+[https://x.com/amiamic/status/1877550901608493168](https://x.com/amiamic/status/1877550901608493168)
+
+『機動戦士Gundam GQuuuuuuX』にて　マチュパイロットスーツ、ハロ、コンチのデザイン原案などやりました
+
+ちょこちょことお手伝いさせていただいております～
+
+映画もテレビ放送もどうぞお見逃しなく！
+<img src="https://p.sda1.dev/21/902935967c67d31693a9727c024e5601/20250110_234329.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 2489#         楼主| 发表于 2025-1-10 23:46
+
+[https://x.com/Kakuriyo_Rei/status/1877572894424989704](https://x.com/Kakuriyo_Rei/status/1877572894424989704)
+<img src="https://p.sda1.dev/21/2e6325d5263514ed420e17fb40fe9ca1/20250110_234459.jpg" referrerpolicy="no-referrer">
+
