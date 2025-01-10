@@ -1391,3 +1391,11 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 
 如果真的狂的必须死个人的话，我看祥父不错……剧情上死了比活着有用
 
+
+*****
+
+####  car123  
+##### 7524#       发表于 2025-1-11 03:42
+
+看完动画被b站评论区疯狂剧透，迫不得已把枪版第三集看了，终于可以看楼里在聊些什么了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
