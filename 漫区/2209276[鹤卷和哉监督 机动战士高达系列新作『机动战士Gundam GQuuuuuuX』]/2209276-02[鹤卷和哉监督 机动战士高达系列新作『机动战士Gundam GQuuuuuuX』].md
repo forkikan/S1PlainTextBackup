@@ -10565,3 +10565,60 @@ gqx不是明面属于黑拳组织的吗，夏利亚带过来的吧</blockquote>
 
 不是，女主到底是普鲁还是哈曼
 
+
+*****
+
+####  纪寞  
+##### 2334#       发表于 2025-1-10 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144866&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-10 11:25</a>
+
+夏利亚听到适配人选已找到的消息，带着武装送上门了吧()这种概率大点</blockquote>
+夏利亚他自己是吉翁军方，直接去新人类研究所找不就行了吗，还特地把升重的头换了改成gqx是为什么？
+
+而且我想不到战斗中还能从夏利亚那边拿到全套武装的画面
+
+夏利亚记得在光头小说里还是夏亚派的，这次特地来个平行世界的夏利亚，可能这个夏利亚自己就是最大的吉翁内鬼（
+
+*****
+
+####  猪突猛进R  
+##### 2335#       发表于 2025-1-10 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145210&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-10 11:56</a>
+
+不是，女主到底是普鲁还是哈曼</blockquote>
+来我们综合一下：这条世界线里“普露”是哈曼的克隆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 2336#       发表于 2025-1-10 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145227&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-10 11:59</a>
+夏利亚他自己是吉翁军方，直接去新人类研究所找不就行了吗，还特地把升重的头换了改成gqx是为什么？
+
+而且 ...</blockquote>
+主要这机体设定太机密了，直冲红高达而去，想不到怎么流落到黑拳赛。除非就是想大海捞针筛人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 2337#       发表于 2025-1-10 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145270&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-10 12:04</a>
+来我们综合一下：这条世界线里“普露”是哈曼的克隆人
+
+已知：</blockquote>
+然后有两万个麻球组成nt网络帮助在有米粒的情况下实现大军团信息化作战，听起来好合理
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ティグル  
+##### 2338#       发表于 2025-1-10 12:08
+
+哈曼复制人跟男鬼夏亚神交的剧情就有点太潮了
+
