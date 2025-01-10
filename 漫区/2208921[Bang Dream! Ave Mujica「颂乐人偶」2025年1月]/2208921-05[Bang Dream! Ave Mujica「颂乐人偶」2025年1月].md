@@ -15724,3 +15724,43 @@ pt站会发baha和crunchyroll的源
 
 如果招募睦是自私的话，是不是代表祥子对她不带的那个人很好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 7336#       发表于 2025-1-10 13:00
+
+招募一個不想上的人
+
+不招募一個想上的人
+
+‘你這個人…..‘
+
+*****
+
+####  gammatau  
+##### 7337#       发表于 2025-1-10 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145602&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-10 12:44</a>
+
+暴论一下，说实话我感觉喵梦在鸡团实际上是个正常人担当了然而鸡团其他人一个比一个颠 ...</blockquote>
+喵梦的诉求无论是出名还是钱，都处在常理的范围内，冲突只源于喵梦太急（笨猫！）和祥子还有点端着（音乐性的差异.jpg）
+
+初华和睦的诉求……已经超越一个正常人带团队时敢想的范围了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+最后，期待看到祥对睦的上压力、忽视、引爆等一切行为回馈到祥自己身上，不然半身这俩字不是白叫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盗号找不回  
+##### 7338#       发表于 2025-1-10 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145271&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-10 12:04</a>
+
+大祥老師把炸彈帶上街，
+
+就算點火的是別人，
+
+這連帶責任是跑不了的</blockquote>
+我算看出来了，回旋镖是人类社会的一环，不可不尝啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

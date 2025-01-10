@@ -10781,3 +10781,46 @@ DELI 感觉更可能是 Delivery（デリバリー）？</blockquote>
 
 哈曼没麻球这么矮吧
 
+
+*****
+
+####  Steel.Haze  
+##### 2353#       发表于 2025-1-10 12:58
+
+另外，说到普璐还是哈曼的问题，其实有个设定是；普璐父系基因是吉连，母系基因就是来自哈曼家系（容易出NT），部分作品设定瑟娜·米娅也是这一家系。总之，原则上，广义上，普璐是和汤小美和哈曼都是表姐妹关系，且普璐系列就是扎比吉恩的正统血缘继承人的一支。所以普璐其实有个吉恩公主的隐藏属性。AOZRE里面火星吉恩直接拿普璐系列克隆人冒名扎比家后人当领导人了。
+
+*****
+
+####  西洛克  
+##### 2354#       发表于 2025-1-10 12:58
+
+<blockquote>刺客ares 发表于 2025-1-10 12:23
+在没有战争的局势下想筛选能在生死关头觉醒NT的驾驶员，不就得往MS生死局的地方去找了
+
+为什么MS黑拳赛这 ...</blockquote>
+nt也不是生死关头觉醒的吧
+
+
+*****
+
+####  刺客ares  
+##### 2355#       发表于 2025-1-10 13:03
+
+<img src="https://img.saraba1st.com/forum/202501/10/125938ezirre9mm3mqs8zy.png" referrerpolicy="no-referrer">
+
+<strong>1736484084191.png</strong> (18.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/125954x7lz3mpmp3ws357s.png" referrerpolicy="no-referrer">
+
+<strong>1736484260017.png</strong> (17.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:59 上传
+
+要来了吗，疑似夏亚继承人和疑似哈曼克隆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
