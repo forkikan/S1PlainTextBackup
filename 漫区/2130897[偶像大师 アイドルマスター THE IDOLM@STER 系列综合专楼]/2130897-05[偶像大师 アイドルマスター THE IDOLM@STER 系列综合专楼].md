@@ -109,3 +109,17 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 2025-1-10 22:16 上传
 
+
+*****
+
+####  幻月天伤  
+##### 6826#       发表于 2025-1-11 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144796&amp;ptid=2130897" target="_blank">鳄鱼头 发表于 2025-1-10 11:19</a>
+
+行了别秀了，知道你很久不看剧情了就最新的那单专辑，剧情几乎每场都有爆点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">百万手游早就弃坑几年了。
+
+当然既然你说了我还是看了一眼，无非就是以前dramaCD里那堆剧中剧罢了，我还在玩的时候也不是没有看到写得好的，比如誰ソ彼の淵的dramaCD。但采用剧中剧说白了就是省事罢了，不然为何百万的剧中剧数量远比SC这种稍微注重剧本后企划多这么多。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然我早已弃坑，回复那层主的原因也在于先让他看看门司雪漫画不至于被百万手游那白开水一样的对话劝退，你要是自认高手那你应该去艾特那位层主进行推荐和引导。
+

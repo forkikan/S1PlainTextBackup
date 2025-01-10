@@ -593,3 +593,13 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 
 好歹唱个Gatrandis babel ziggurat endenal Emustrolonzen finne enfarmati<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Wondering  
+##### 108#       发表于 2025-1-11 01:16
+
+ 本帖最后由 Wondering 于 2025-1-11 01:20 编辑 
+
+说实话这种没任何台词功底的一眼烂片看多了，我还真想让疯人院影业那批卧龙凤雏编剧来日本动画业界做全女版鲨卷风，起码爆点还算有点乐子，这不比秋叶原冥徒战争之流要好
+
