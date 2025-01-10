@@ -15642,3 +15642,85 @@ To祥子：你不能只在猫好的时候承担她的人生
 
 喵梦：你就说有没有脸和数字吧
 
+
+*****
+
+####  pokemon最爱  
+##### 7329#       发表于 2025-1-10 12:44
+
+暴论一下，说实话我感觉喵梦在鸡团实际上是个正常人担当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 阿兹尔| + 1|认同|
+
+查看全部评分
+
+*****
+
+####  ggxx001  
+##### 7330#       发表于 2025-1-10 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145586&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 12:42</a>
+问题是……祥子组建乐队的时候睦是空手套白狼的重要一环，喵梦也是被睦套进来的，这个乐队不能没有睦</blockquote>
+所以是互相矛盾无法解释的黑点 
+
+*****
+
+####  Aendst  
+##### 7331#       发表于 2025-1-10 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145534&amp;ptid=2208921" target="_blank">ggxx001 发表于 2025-1-10 12:36</a>
+
+真要说黑点 应该是祥在理解睦的情况下 自私的将睦拖入商业乐队 睦想要的生存环境跟祥招募喵梦时候的脸和 ...</blockquote>
+这就会产生一个问题
+
+如果祥子不拉睦就组不了mujica，如果没有乐队祥子遇到爹扔啤酒罐可能就要碎了（现在至少还能说一句我只有mujica了）
+
+睦看到祥子碎了自己也要碎了，同样还是会诱发她自己的问题
+
+故事还在发展中，很多时候是会有不破不立的情况的，睦这个问题不是不露脸就能一直压住的
+
+*****
+
+####  柴突猛进  
+##### 7332#       发表于 2025-1-10 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145575&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-10 12:40</a>
+
+不想买阿b的会员，求助一下各位。
+
+我想了一下，又快又含字幕的应该是巴哈姆特动画疯的源。但是各bt站上放的 ...</blockquote>
+pt站会发baha和crunchyroll的源
+
+*****
+
+####  半年  
+##### 7333#       发表于 2025-1-10 12:46
+
+<img src="https://p.sda1.dev/21/ccd92409eb90aff9e4c5fb8865690e61/Gg4BGubXEAAhKJe.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/xenoee_/status/1877439857057788115/photo/1](https://x.com/xenoee_/status/1877439857057788115/photo/1)
+
+*****
+
+####  山ノ内花音  
+##### 7334#       发表于 2025-1-10 12:48
+
+睦的心理问题是一直都有的
+加入mujica 反而有了解决心理问题的契机
+
+
+*****
+
+####  adcdqre  
+##### 7335#       发表于 2025-1-10 12:53
+
+如果招募睦是自私的话，是不是代表祥子对她不带的那个人很好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
