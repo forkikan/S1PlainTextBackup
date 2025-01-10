@@ -1070,3 +1070,21 @@ mana挺王之姿+2
 
 <img src="https://p.sda1.dev/21/da9e65abf3e05c51eccd74835eb6dda8/QQ图片20250110132136.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜火雷纹  
+##### 112#       发表于 2025-1-10 13:34
+
+独角兽的剧本总感觉有一股大河内的味道，戏剧性拉满，意外和爆点推动剧情发展，不惜伤害观众对角色的好感也要引爆故事凶凶向前。
+
+所以什么时候有血染的睦子米<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星星狐  
+##### 113#       发表于 2025-1-10 13:42
+
+感觉睦最后要soyo来救。
+

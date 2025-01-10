@@ -10854,3 +10854,14 @@ nt也不是生死关头觉醒的吧</blockquote>
 
 这个平行世界夏亚成功捕获木马和高达，那就没有下降地球，算计不到卡尔马也遇不到拉拉，这种状态变男鬼封红高达里怕不是要不停诱导驾驶员对扎比家复仇
 
+
+*****
+
+####  ナルバレック  
+##### 2359#       发表于 2025-1-10 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145745&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 13:03</a>
+
+要来了吗，疑似夏亚继承人和疑似哈曼克隆人</blockquote>
+说是哈曼的那个人不是认为蓝毛男主是西罗克嘛
+
