@@ -314,3 +314,27 @@
 
 我猜测，如果要治本，还是要让睦体会一次玩乐队的快乐，睦具体的自我怀疑是“不能让自己的吉他唱歌”，吉他当然不能在物理上唱歌，我认为这就是不认同自己演奏的文艺表达，一次成功的音趴可以有效解决这个问题，当然我也不认为会再来一次诗超绊，我相信独角兽能够准备一个与全片相称的高潮
 
+
+*****
+
+####  plazum  
+##### 7430#       发表于 2025-1-10 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147754&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 17:12</a>
+
+值得一提的是，整个前三集，鸡团五人都是0高光。初华藏着，海玲看得清又不入局，喵梦和祥子风评在第三集还 ...</blockquote>
+好有趣的观察角度
+
+
+*****
+
+####  sauron.j  
+##### 7431#       发表于 2025-1-10 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143922&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:53</a>
+
+那就是艺能界素人祥子说一句“我们会在最高的舞台摘下面具”，一个大手事务所就会被感动到同意了？所以我 ...</blockquote>
+“事成之后，甲方的钱如数奉还，粉丝的米三七分账”
+
+“…至于丰川家大小姐，就是我的所有物了”<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

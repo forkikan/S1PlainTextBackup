@@ -11151,3 +11151,26 @@ UC里最著名的是普露系列。</blockquote>
 
 怎么新PV我还是没戏份
 
+
+*****
+
+####  ykyin09  
+##### 2387#       发表于 2025-1-10 17:39
+
+有没有前情提要，为什么一夜之间就在讨论是0079的平行世界啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  虛無迴廊  
+##### 2388#       发表于 2025-1-10 17:41
+
+ 本帖最后由 虛無迴廊 于 2025-1-10 17:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148011&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-1-10 17:39</a>
+有没有前情提要，为什么一夜之间就在讨论是0079的平行世界啊
+
+论坛助手,iPhone ...</blockquote>
+意大利官网搞错把世界观简介提前放出来了，本作是吉翁胜利的uc0085，新pv出现了更多佐证
+
