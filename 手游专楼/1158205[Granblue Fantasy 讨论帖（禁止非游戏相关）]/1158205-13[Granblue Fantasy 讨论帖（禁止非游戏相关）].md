@@ -65,3 +65,23 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  phoenixxj  
+##### 18172#       发表于 2025-1-10 17:06
+
+换一个属性的石油
+
+直接速通这个属性的古战场。（1键牛  1t 200  再250组个奥义 混一下  上限打英雄 下限混1档 美滋滋）
+
+完全不亏。（猎金就算了，现在能阻碍你猎金的只有你的惰性）
+
+
+*****
+
+####  kenqqex  
+##### 18173#       发表于 2025-1-10 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个游戏数值又崩了，还是那个女人引起的
+
