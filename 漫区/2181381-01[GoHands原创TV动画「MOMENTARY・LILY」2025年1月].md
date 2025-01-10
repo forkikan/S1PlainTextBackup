@@ -577,3 +577,11 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 
 这动画应该会追完，就像去年追金属口红一样。
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 106#       发表于 2025-1-10 21:14
+
+太恶趣味了，怎么死的是你<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -11688,3 +11688,47 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 
 现在不可能像00那样先来十几集白开水了
 
+
+*****
+
+####  刺客ares  
+##### 2441#       发表于 2025-1-10 21:06
+
+12+12分割吧，前期投入这么大结果只给季番？NTV现在还放季番吗，都半年连播吧
+
+*****
+
+####  创始’’’天翔  
+##### 2442#       发表于 2025-1-10 21:08
+
+当成三部剧场版，就看起来很多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 2443#       发表于 2025-1-10 21:11
+
+别搁这地宇矛盾了，能把故事讲好就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kisstv22  
+##### 2444#       发表于 2025-1-10 21:13
+
+这年头结局平稳落地已经很好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 2445#       发表于 2025-1-10 21:15
+
+这点篇幅能讲什么矛盾，顺利看到海不错了
+
+*****
+
+####  电波系腑海林  
+##### 2446#       发表于 2025-1-10 21:15
+
+真是哈曼的话有点带感啊
+
