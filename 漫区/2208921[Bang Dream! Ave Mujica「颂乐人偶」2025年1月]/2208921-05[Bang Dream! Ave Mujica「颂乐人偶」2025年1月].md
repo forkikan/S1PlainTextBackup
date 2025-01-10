@@ -16116,3 +16116,80 @@ nga这哺乳哥好像发了好多好多帖子了。。。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  玖羽  
+##### 7373#       发表于 2025-1-10 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146250&amp;ptid=2208921" target="_blank">bbjajdd 发表于 2025-1-10 14:10</a>
+
+其实现在睦头除了被上压力外还有一个极其严重的问题。
+
+那就是她当初说“从来没觉得在乐队开心过”的原因。</blockquote>
+我觉得其实和灯是一样的，自己以为自己太菜了，拖了大家的后腿
+
+如果后面没有新的解释，我觉得第三话的意思是（剧透）睦练吉他遇到瓶颈，由于没有指导（家里只给安排芭蕾课这种高雅艺术），越来越钻牛角尖，觉得是自己菜
+
+*****
+
+####  akiomn  
+##### 7374#       发表于 2025-1-10 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146231&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-10 14:08</a>
+母鸡卡剧情流程
+
+ep1 ep2 对睦撒娇
+
+ep3 把睦玩没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我ep6，7呢
+祥子自己爆了，初睦追妻火葬场？
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 7375#       发表于 2025-1-10 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146400&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 14:29</a>
+
+我ep6，7呢
+
+祥子自己爆了，初睦追妻火葬场？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">6 7分给大喵海玲啊 主唱当然放后面爆个大的嘛
+
+*****
+
+####  NODY  
+##### 7376#       发表于 2025-1-10 14:35
+
+睦那个吉他唱不出歌的理由直接参考冰川双子这段就知道了，大概就是觉得自己光有技巧没有感情，是无聊的音乐
+
+<img src="https://img.saraba1st.com/forum/202501/10/143422mcdzpl5jlaaj3rza.png" referrerpolicy="no-referrer">
+
+<strong>67d27a9c-dfe0-476f-9831-f0a36fc6b713.png</strong> (32.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:34 上传
+
+破局方法也可以参照冰川双子，妹妹（祥子）去对姐姐说我从不觉得你的音乐无聊，我喜欢你的吉他，如果你会痛苦，那就讨厌我，不要讨厌吉他
+
+<img src="https://img.saraba1st.com/forum/202501/10/143522y77ffv7x6rz7e7eo.png" referrerpolicy="no-referrer">
+
+<strong>e2b1f082-89f4-42ed-8b3d-7f69add66425.png</strong> (51.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:35 上传
+
+*****
+
+####  jyhldlagen  
+##### 7377#       发表于 2025-1-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146400&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 14:29</a>
+我ep6，7呢
+祥子自己爆了，初睦追妻火葬场？</blockquote>
+祥子的情感债太多了，只管贷款的那种。
+

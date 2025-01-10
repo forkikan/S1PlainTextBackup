@@ -10951,3 +10951,18 @@ nt也不是生死关头觉醒的吧</blockquote>
 
 85年23岁，牢修看模样顶天不到20吧
 
+
+*****
+
+####  岸浪白野  
+##### 2368#       发表于 2025-1-10 14:30
+
+猜测是哈曼还是有点吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBGI  
+##### 2369#       发表于 2025-1-10 14:32
+
+哈曼和希洛克，那女二是谁呢
+
