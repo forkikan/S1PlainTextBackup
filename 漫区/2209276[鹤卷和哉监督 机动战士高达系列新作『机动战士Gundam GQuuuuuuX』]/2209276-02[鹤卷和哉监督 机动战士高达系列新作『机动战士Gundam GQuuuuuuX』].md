@@ -10500,3 +10500,68 @@ gqx不是明面属于黑拳组织的吗，夏利亚带过来的吧</blockquote>
 
 然后首映剧场版的主要敌人可能就是那台镇暴扎古了，红高达估计出场打打友谊赛训练下女主。那扎古的机设看上去还不错。
 
+
+*****
+
+####  猪突猛进R  
+##### 2328#       发表于 2025-1-10 11:48
+
+啥，一觉醒来女主变成哈曼了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 2329#       发表于 2025-1-10 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144709&amp;ptid=2209276" target="_blank">LuciferMustDie 发表于 2025-1-10 11:10</a>
+
+一个思路，不一定对
+
+鸡瘟赢了，它本身不就是联邦了吗？</blockquote>
+能被联邦反推到所罗门，还得靠神棍力爆炸才能赢，只能算惨胜吧。
+
+估计宇宙归吉翁，地球上的联邦残党提坦斯化。
+
+*****
+
+####  dafangwoo  
+##### 2330#       发表于 2025-1-10 11:51
+
+一早上就看到UC狂欢
+
+*****
+
+####  刺客ares  
+##### 2331#       发表于 2025-1-10 11:53
+
+<img src="https://img.saraba1st.com/forum/202501/10/115333zygpmfafggff0afk.png" referrerpolicy="no-referrer">
+
+<strong>1736480216258.png</strong> (15.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 11:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/115338emmz378o787cobat.png" referrerpolicy="no-referrer">
+
+<strong>1736480259304.png</strong> (12.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 11:53 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 2332#       发表于 2025-1-10 11:55
+
+关于夏利亚这人，请随便想象，前面也说过这人很复杂，是基连安插到紫婆的NT部队的，而在野望系列又对真名鸭效忠，所以各种IF都有可能、都是合理的，看动画怎么编。
+
+*****
+
+####  ティグル  
+##### 2333#       发表于 2025-1-10 11:56
+
+不是，女主到底是普鲁还是哈曼
+

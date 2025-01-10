@@ -15120,3 +15120,59 @@ https://comic-growl.com/episode/2550912964974264765
 预设了主题具体是指什么呢？非常好奇</blockquote>
 情节设计上应该是睦从负向更负的坠落，围绕其周边编排的桥段都在有意识的填充这点
 
+
+*****
+
+####  山ノ内花音  
+##### 7283#       发表于 2025-1-10 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145091&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-10 11:45</a>
+这漫画的最大用处是用来推时间节点，1.10~2.7连载，2.7一卷发售，一共五话
+
+按照第一话的进度来看，就是直接 ...</blockquote>
+那真的还好 
+至少第五集能有点问题解决的感觉（？）
+
+*****
+
+####  IWS2000  
+##### 7284#       发表于 2025-1-10 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145117&amp;ptid=2208921" target="_blank">不应 发表于 2025-1-10 11:47</a>
+睦在世界观里还挺出名的怎么在月之森没什么表现，小祥曝光后都被同学堵门了，睦还是波奇一个人反而被素食堵 ...</blockquote>
+月之森都是见过世面的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AnnieLeonhart  
+##### 7285#       发表于 2025-1-10 11:51
+
+大象最大的黑点是其实根本不懂黄瓜吧，居然只有立希知道黄瓜最讨厌啥，就。。。
+
+
+*****
+
+####  用户名1  
+##### 7286#       发表于 2025-1-10 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142281&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-10 00:34</a>
+
+因为这才是一个正常番剧的叙事表达明确度，相比之下go的暗流藏得太深门槛较高，不太适合这个系列大火后的 ...</blockquote>
+其实就是觉得缺少了点意外性而已
+
+*****
+
+####  桜庭千景  
+##### 7287#       发表于 2025-1-10 11:57
+
+典中典之立希评价了一句就比祥子懂睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 7288#       发表于 2025-1-10 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145117&amp;ptid=2208921" target="_blank">不应 发表于 2025-1-10 11:47</a>
+睦在世界观里还挺出名的怎么在月之森没什么表现，小祥曝光后都被同学堵门了，睦还是波奇一个人反而被素食堵 ...</blockquote>
+祥那应该算鹤立鸡群了(<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
