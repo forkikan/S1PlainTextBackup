@@ -11732,3 +11732,21 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 
 真是哈曼的话有点带感啊
 
+
+*****
+
+####  RE㐅ia  
+##### 2447#       发表于 2025-1-10 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149451&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-10 21:06</a>
+
+12+12分割吧，前期投入这么大结果只给季番？NTV现在还放季番吗，都半年连播吧 ...</blockquote>
+反正目前说是只有季
+
+*****
+
+####  番茄牛奶  
+##### 2448#       发表于 2025-1-10 21:19
+
+能看到海就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
