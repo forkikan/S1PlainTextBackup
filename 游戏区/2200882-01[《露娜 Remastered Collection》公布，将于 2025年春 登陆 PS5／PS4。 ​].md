@@ -407,3 +407,13 @@ c从之前的视频看应该是1，2代。
 看來被黑歷史了</blockquote>
 Lunar学院么，我也搞不清楚这个和原作的关系，虽然我当时也通关了。但是没搞清楚这个和原版的关系。希望有老哥科普。
 
+
+*****
+
+####  牧月萌  
+##### 42#       发表于 2025-1-11 06:48
+
+啊，有中文，赞美<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
