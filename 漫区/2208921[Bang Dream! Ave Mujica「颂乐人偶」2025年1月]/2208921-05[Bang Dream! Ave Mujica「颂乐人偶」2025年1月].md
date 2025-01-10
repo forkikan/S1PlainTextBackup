@@ -14291,3 +14291,102 @@ mana：我还没输<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 按Dream的那部分想象的话就是很经典的全队给上面的大人表演了乐队同名曲被问到“尽力了吗？”之后同意出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 7210#       发表于 2025-1-10 10:09
+
+睦的表达能力真是。。。
+
+*****
+
+####  玖羽  
+##### 7211#       发表于 2025-1-10 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143922&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:53</a>
+
+那就是艺能界素人祥子说一句“我们会在最高的舞台摘下面具”，一个大手事务所就会被感动到同意了？所以我 ...</blockquote>
+没那么复杂，即使不说TGW物产的假药，祥子的表面身份还是丰川家继承人（这一话媒体也这样报道），单是这个身份就够事务所高看一眼了，更不用说还能拉来睦
+
+*****
+
+####  turtlejk  
+##### 7212#       发表于 2025-1-10 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142930&amp;ptid=2208921" target="_blank">鱼丈人 发表于 2025-1-10 06:27</a>
+
+那应该翻译成《路人你，路人我》？</blockquote>
+差不多 或者是佚名我 佚名你
+
+**里特意说了 这个假名的用法是常见在戏剧表演的演员中的
+
+当然结合昨晚官方发布的那个官方Fanart 也可能指的是睦头人和她在剧中的Mortis身份变成了我和你两个不同的人
+
+*****
+
+####  帆前  
+##### 7213#       发表于 2025-1-10 10:11
+
+这串sumimi的温柔（？）时刻后面紧跟着初华捡祥子回家，不愧是最懂战吧的制作组
+
+初华对mana女士只有工作上的歉意，对祥子却有生活上的关心
+
+[img]https://p.sda1.dev/21/8d015bff79d9fcadc96e07c9b3297671/Screenshot_20250109_222240_tv.danmaku.bili.jpg[https://p.sda1.dev/21/330c99c0b1 ... tv.danmaku.bili.jpg](https://p.sda1.dev/21/330c99c0b1825fe103590653fad8c621/Screenshot_20250109_222250_tv.danmaku.bili.jpg)[/img]
+
+mana女士元气满满地说“sumimi当然会好好的啦”，换来的是初华的走神
+
+[img]https://p.sda1.dev/21/9cf3a9a761d70ba8ab6abcbfec88302c/Screenshot_20250109_222305_tv.danmaku.bili.jpg[https://p.sda1.dev/21/63d4c34c83 ... tv.danmaku.bili.jpg](https://p.sda1.dev/21/63d4c34c832b037ae1cb5779e4294c48/Screenshot_20250109_222341_tv.danmaku.bili.jpg)[/img]
+
+祥子却能频繁得到初华满口热切的“一直陪你”承诺
+<img src="https://p.sda1.dev/21/e772db33b4e18edf0a7c521a41be376d/Screenshot_20250109_223036_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+对比鲜明
+
+mana女士──<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 7214#       发表于 2025-1-10 10:12
+
+在三角初华家，一处任何探测器也找不到的阁楼里，就是丰川祥子被监禁的地方<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7215#       发表于 2025-1-10 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143701&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 09:32</a>
+
+那按这样说的话事务所是已经决定了没人气就开盒的炒作路线？所以说不能细想
+
+至于第二点涉及剧透，但喵梦 ...</blockquote>
+要不然人家真靠你一嘴音乐性就下那么大本吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达葱2  
+##### 7216#       发表于 2025-1-10 10:17
+
+我看有人说说错话是睦头人的老-毛病，她还说错过啥
+
+*****
+
+####  66367749  
+##### 7217#       发表于 2025-1-10 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144067&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-10 10:07</a>
+我是以BanG Dream的BanG部分来想象的，我感觉像初华给事务所担保了N年sumimi长约换母鸡卡自主制作不受控 ...</blockquote>
+按目前的动画来说并没有这类内容，这是基于一个虚拟的假设之上延伸出的猜想。就杂志访谈等内容来看，这个企划祥子基本就是负责人。在一个动画世界讨论女高能不能负责商业项目，那一开始就没那么多邦邦超人存在了。
+
+*****
+
+####  陶矢  
+##### 7218#       发表于 2025-1-10 10:17
+
+为什么其他视角压力都描写的够多，soyo睦对线就一闪而过啊，尖锐问题一个没问，我要看soyo全方位拷打睦<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
