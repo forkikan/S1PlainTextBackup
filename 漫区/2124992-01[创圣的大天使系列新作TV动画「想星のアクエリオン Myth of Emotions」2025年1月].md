@@ -1677,3 +1677,21 @@ Myth of Emotions想星的大天使
 
 ED全曲好听，除了中间那段尾音一股菅野味儿的青藏高原part（误）有点怪，结尾收得也有点怪
 
+
+*****
+
+####  bypal  
+##### 174#       发表于 2025-1-10 20:39
+
+这番这么惨，连字幕都没人做
+
+
+*****
+
+####  查理_芒格  
+##### 175#       发表于 2025-1-10 20:43
+
+这是抄袭圣洁传说的设定了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -677,3 +677,33 @@ mujica里人物动作很丰富，是喵梦太能跳了吗<img src="https://stati
 
 那祥的风评不该因此下降吧
 
+
+*****
+
+####  ads147147  
+##### 7459#       发表于 2025-1-10 20:36
+
+有一说一，三次元鸡团又黑又是斗篷，脸上还遮一个南蚌的面具都能给你盒出来，何况就是个蕾丝面具。。
+
+那玩意就是个说法，就和二次元人人头发都是五颜六色，实际上是给观众看的，实际上都是黑色（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 7460#       发表于 2025-1-10 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149063&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-10 20:05</a>
+ttps://x.com/Lyytoaoitori/status/1877682270418661726</blockquote>
+露音癖
+赤壁之战
+
+*****
+
+####  一心而用  
+##### 7461#       发表于 2025-1-10 20:39
+
+B站角色热度排行
+<img src="https://p.sda1.dev/21/5bf681372e581d320b41d84695ccd2e8/image.jpg" referrerpolicy="no-referrer">
+
