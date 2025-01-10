@@ -1760,3 +1760,13 @@ ED好听，第一集除了稍微有点谜语人感觉做得很棒了
 为何3d建模整个种族都是黑皮</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能想表明人类是从非洲出来的，一万两千年前大家都是黑人
 
+
+*****
+
+####  剑布衣  
+##### 184#       发表于 2025-1-11 02:49
+
+第一集观感比前作好不少，迷之剧情也能抓住（部分）人，不过这人设和不出彩的制作要爆火是很难了。
+
+反而我比较奇怪....大天使这系列印象里也就是第二作挺火，第一作梗多算是萝卜粉喜闻乐见，但是logos就挺烂的...这还能出第四作，这跟法芙娜一样是森棍的爱好所以都卖他面子不断出吗...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
