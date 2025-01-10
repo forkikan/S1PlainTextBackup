@@ -1248,3 +1248,16 @@ Steam上有人整理了背景设定。
 5-3这地图，本来就超级大，还有分层，打半天发现杀穿地图没用，还得找四个开关才能开门 ...</blockquote>
 二代吗？按m看着地图跑路就行，可以边开地图边跑
 
+
+*****
+
+####  量子大蛇  
+##### 118#       发表于 2025-1-10 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145861&amp;ptid=2236671" target="_blank">ParadiseMartyr 发表于 2025-1-10 13:19</a>
+
+二代吗？按m看着地图跑路就行，可以边开地图边跑。二段跳加二段冲，跑得飞起 ...</blockquote>
+嗯，找到了，我以为是长方形的房间，实际上是个凹字形，开关就在凹字的右上角那个位置藏着，导致我每次从门口经过都没发现。
+
+地图上是有个大的白点，但是我一直踩在这个白点上，绕来绕去找不到门<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

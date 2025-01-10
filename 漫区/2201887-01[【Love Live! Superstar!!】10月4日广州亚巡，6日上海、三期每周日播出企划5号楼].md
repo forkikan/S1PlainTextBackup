@@ -14399,3 +14399,15 @@ bd1卖的还行，希望后面加油
 
 这麦克风不便宜啊，一万多
 
+
+*****
+
+####  csolfans  
+##### 1406#       发表于 2025-1-10 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145307&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-1-10 12:08</a>
+这麦克风不便宜啊，一万多</blockquote>
+刚刚好2万
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

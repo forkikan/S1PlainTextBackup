@@ -16342,3 +16342,70 @@ ep3 把睦玩没了</blockquote>
 想到mygo中有人问灯有没有看过若叶家演的剧，灯说觉得恐怖。</blockquote>
 可能在她的脑中感受到的东西就和我们平常说的“伪人”或者“恐怖谷效应”导致她觉得恐怖，而灯又经常能看到某些事务的本质，所以<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 7393#       发表于 2025-1-10 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146563&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-10 14:50</a>
+这样吧 这个企划打回去重练 不招募黄瓜了 给爱音地狱特训一年上来弹 给她这机会她肯定想出风头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥p不要小雷，爱音这邦邦系列倒数的护甲数值不太行吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 7394#       发表于 2025-1-10 15:08
+
+[https://x.com/bang_dream_info/st ... x0N13SOtHALpwG0Ubrg](https://x.com/bang_dream_info/status/1877612590052016411?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg)
+角色pv来了
+
+*****
+
+####  yone0000  
+##### 7395#       发表于 2025-1-10 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146461&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-10 14:37</a>
+
+这个我早提过了，对于睦的问题，日菜的答案就是完美的答卷
+
+但是祥子不是日菜，反正舅舅说了后面祥子对睦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">解决方法：
+
+祥子：我喜欢木子米的吉他
+
+*****
+
+####  一心而用  
+##### 7396#       发表于 2025-1-10 15:09
+
+<img src="https://p.sda1.dev/21/671c8eb558a5ef9bd5bb2139ac153f8b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b4a8aa6fae94ca3f182f48fda681e3ea/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/51c5cfa954c9eb60aad7a1a4c01d4424/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/250d0492bbec3f5d8382c91bce1e3fec/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/93a95d17a56ade55f56e7849746f2826/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f13870ecb7d1d13ceceee85ace6fb062/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/aabe04a473e757f152c920f80fbb2043/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 7397#       发表于 2025-1-10 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146601&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 14:56</a>
+
+想到mygo中有人问灯有没有看过若叶家演的剧，灯说觉得恐怖。</blockquote>
+这个问题不是早就说烂了吗
+
+灯的同学说电视剧很好哭，灯觉得恐怖，然后同学说若叶很好笑，应该是另一个话题，并没有说若叶参演了这部电视剧
+
+
+*****
+
+####  山ノ内花音  
+##### 7398#       发表于 2025-1-10 15:13
+
+初华家在中目黑下车 多半是把房型给移过去了
+
