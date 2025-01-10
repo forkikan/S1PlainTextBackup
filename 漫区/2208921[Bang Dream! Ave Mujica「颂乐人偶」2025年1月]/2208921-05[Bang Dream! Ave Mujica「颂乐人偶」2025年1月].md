@@ -15875,3 +15875,25 @@ Mygo完结时候访谈是说睦进mujica契机是决裂后，不过看新访谈�
 
 祥子居然真能睡办公室 实在是神人
 
+
+*****
+
+####  无事忙  
+##### 7351#       发表于 2025-1-10 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145616&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-10 12:46</a>
+
+pt站会发baha和crunchyroll的源</blockquote>
+pt站不像普通的站点，应该比较难进吧？从前有朋友给过我u2的邀请码但我没能长期登陆，结果号没了……
+
+请问有对外人也开放的站嘛
+
+
+*****
+
+####  厉飞雨  
+##### 7352#       发表于 2025-1-10 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看来，ccc都知道木子美跟大祥老师的关系密切的前提下
+木子美说玩乐队不开心，在她们看来确实是大祥老师退团的充分必要理由
+
