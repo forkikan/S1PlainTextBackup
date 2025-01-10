@@ -15320,3 +15320,90 @@ kpi就是这么订的嘛，对不对
 
 简单来说就是你为什么没有第一集就把饺子包上？
 
+
+*****
+
+####  江口夕  
+##### 7301#       发表于 2025-1-10 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">楼下那工作室是睦她爸想要的，后面睦妈说乐队可以来，睦马上变脸色，下个镜头就是皮都开裂的凳子。这么大的房子还有庸人，怎么会留个破凳子
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  山ノ内花音  
+##### 7302#       发表于 2025-1-10 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145327&amp;ptid=2208921" target="_blank">rinku 发表于 2025-1-10 12:11</a>
+感觉祥子确实不懂现在的睦
+祥子视角的睦是想做什么就做什么，不想做就不做的。
+但是睦因为mujica坏调祥坏掉 ...</blockquote>
+简而言之
+祥子不懂的是睦究竟有多爱她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7303#       发表于 2025-1-10 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145269&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-10 12:04</a>
+
+你们是不是搞错了睦爆的点，睦小时候也露过脸，要爆小时候就爆了。摘面具这事件只是契机而已。和大祥喵梦没 ...</blockquote>
+是，这个是疑点
+
+为什么摘面具这么大反应，其实是很奇怪的
+
+喵梦是一个台词里有很多客观提示的角色，她都说了“你小时候就已经开始上电视了，不是应该很习惯接受采访了吗”
+
+睦的回答是“她一说话就会搞砸”
+
+说明单纯的露脸本身并不是诱发问题的核心
+
+对于露脸睦是有负面情绪的，但不是她压力这么大的最大原因
+
+*****
+
+####  SakuraのOrigami  
+##### 7304#       发表于 2025-1-10 12:17
+
+[https://x.com/yayam_j/status/1877415116091666518](https://x.com/yayam_j/status/1877415116091666518)
+
+Gg3rC6hbsAAriFH.jpg
+(432.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/121754a3uitrvivhbhetnk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  居尔一拳  
+##### 7305#       发表于 2025-1-10 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145339&amp;ptid=2208921" target="_blank">skill 发表于 2025-1-10 12:12</a>
+
+当时招聘的时候就说了看重的是脸和数字。现在是脸不高级了还是数字小了
+
+kpi就是这么订的嘛，对不对</blockquote>
+那不成肖战青春版了？
+
+
+*****
+
+####  刑部姬真可爱  
+##### 7306#       发表于 2025-1-10 12:22
+
+说白了就是睦对祥子很了解，而祥子对睦不是很了解吧，毕竟祥子认为自己是在偏袒，而睦则再次给自己加了压
+
+*****
+
+####  江口夕  
+##### 7307#       发表于 2025-1-10 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">纯猜测，小时候露脸说真话把她父母搞了一下。后面就跟着大祥混了，而且睦和祥妈应该有不少联系，祥妈说诚实是美德，说的不就是睦么。睦才是对祥子妈的话贯彻的最彻底的角色
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

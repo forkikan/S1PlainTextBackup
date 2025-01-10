@@ -10650,3 +10650,69 @@ DELI明显是Delicious的缩写，所以她平时走私的伪装身份是外卖�
 
 2025-1-10 12:06 上传
 
+
+*****
+
+####  刺客ares  
+##### 2340#       发表于 2025-1-10 12:15
+
+吉翁势力入场一定是有个牢修和红高达行迹暴露的引子
+
+目前明确和牢修接触的只有两个人，玛秋和妮娅安
+
+玛秋一般路过JK，那最有可能泄露红高达行踪给吉翁官方的，就是妮娅安了
+
+*****
+
+####  千恋万花  
+##### 2341#       发表于 2025-1-10 12:16
+
+DELI 感觉更可能是 Delivery（デリバリー）？
+
+*****
+
+####  patema  
+##### 2342#       发表于 2025-1-10 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主哈曼说也没那么难圆，分歧点是有没有真的被丢去佛勒纳冈机构就行了（
+
+*****
+
+####  刺客ares  
+##### 2343#       发表于 2025-1-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145365&amp;ptid=2209276" target="_blank">千恋万花 发表于 2025-1-10 12:16</a>
+
+DELI 感觉更可能是 Delivery（デリバリー）？</blockquote>
+也是，我往餐饮店名那边想了，不是店名的话Delivery正确的可能性更大<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  21wwwb  
+##### 2344#       发表于 2025-1-10 12:20
+
+听着像ayase写的歌
+
+*****
+
+####  王留美  
+##### 2345#       发表于 2025-1-10 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145210&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-10 11:56</a>
+
+不是，女主到底是普鲁还是哈曼</blockquote>
+把提姆雷回路扔掉了，所以是阿姆罗
+
+*****
+
+####  刺客ares  
+##### 2346#       发表于 2025-1-10 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145294&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-10 12:06</a>
+
+主要这机体设定太机密了，直冲红高达而去，想不到怎么流落到黑拳赛。除非就是想大海捞针筛人 ...</blockquote>
+在没有战争的局势下想筛选能在生死关头觉醒NT的驾驶员，不就得往MS生死局的地方去找了
+
+为什么MS黑拳赛这种危险的东西能在殖民卫星举行，肯定是因为有军方支持啊
+
