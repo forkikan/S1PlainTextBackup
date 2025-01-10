@@ -1749,3 +1749,14 @@ ED全曲好听，除了中间那段尾音一股菅野味儿的青藏高原part�
 
 ED好听，第一集除了稍微有点谜语人感觉做得很棒了
 
+
+*****
+
+####  pzk  
+##### 183#       发表于 2025-1-11 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67130530&amp;ptid=2124992" target="_blank">八坂真寻 发表于 2025-1-8 16:42</a>
+
+为何3d建模整个种族都是黑皮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能想表明人类是从非洲出来的，一万两千年前大家都是黑人
+

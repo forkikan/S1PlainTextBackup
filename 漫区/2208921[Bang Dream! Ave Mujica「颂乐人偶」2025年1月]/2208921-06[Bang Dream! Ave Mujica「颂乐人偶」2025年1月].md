@@ -1270,3 +1270,28 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 
 隔壁也有家未成年人队长当producer的商业团，不过人家自己就有栋大楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 7513#       发表于 2025-1-11 00:04
+
+说了很多次了ras不是商业团，人家纯独立乐队没有公司推的，全靠自己跑场子自费出mv音乐赚钱，且目前都没怎么赚大钱，基本上是楚平方在倒贴其他人的工资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贰臣  
+##### 7514#       发表于 2025-1-11 00:08
+
+母鸡卡剧本目前就这一点最让人发慌，又要用邦邦世界观本来就不怎么讲现实打补丁，又要把剧情搞得好像很现实的样子，观众一旦出戏开始思考这里不对劲那就全完了。
+
+目前出戏的观众已经不少了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 7515#       发表于 2025-1-11 00:12
+
+所以鸡团光速武道馆导致不光是kkr不能客串，楚平方和ykn估计也不能出现了吧，不然这俩牙都要咬碎了。
+
