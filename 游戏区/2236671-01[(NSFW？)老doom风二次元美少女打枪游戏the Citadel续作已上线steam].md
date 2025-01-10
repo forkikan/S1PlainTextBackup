@@ -1236,3 +1236,15 @@ Steam上有人整理了背景设定。
 
 5-3这地图，本来就超级大，还有分层，打半天发现杀穿地图没用，还得找四个开关才能开门，最后一个开关怎么都找不到
 
+
+*****
+
+####  ParadiseMartyr  
+##### 117#         楼主| 发表于 2025-1-10 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145244&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-10 12:01</a>
+找开关给我找破防了
+
+5-3这地图，本来就超级大，还有分层，打半天发现杀穿地图没用，还得找四个开关才能开门 ...</blockquote>
+二代吗？按m看着地图跑路就行，可以边开地图边跑
+
