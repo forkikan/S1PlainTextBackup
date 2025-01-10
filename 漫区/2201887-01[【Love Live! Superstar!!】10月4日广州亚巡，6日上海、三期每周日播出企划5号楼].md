@@ -14379,3 +14379,15 @@ bd1卖的还行，希望后面加油
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  csolfans  
+##### 1404#       发表于 2025-1-10 08:40
+
+<img src="https://p.sda1.dev/21/87e656ecfeb8e82a291ce08075b01341/image.jpg" referrerpolicy="no-referrer">
+粉丝送的麦克风
+型号森海塞尔ewd/kk205
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
