@@ -1120,3 +1120,16 @@ mygo10集就是睦给灯传递了信息，再是11集灯告诉soyo睦在担心�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  z2150966  
+##### 117#       发表于 2025-1-10 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146914&amp;ptid=2237230" target="_blank">Prairial 发表于 2025-1-10 15:35</a>
+
++1给绿毛没那么面瘫了，+1给大猫全程make big news
+
+话说既然灯皇是阿斯伯格综合征，绿毛这半截身子进精神 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">下一集你就知道了
+

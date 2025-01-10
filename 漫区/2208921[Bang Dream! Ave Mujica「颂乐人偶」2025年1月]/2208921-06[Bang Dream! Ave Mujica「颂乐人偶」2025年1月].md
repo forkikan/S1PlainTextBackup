@@ -338,3 +338,16 @@
 
 “…至于丰川家大小姐，就是我的所有物了”<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 7432#       发表于 2025-1-10 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147932&amp;ptid=2208921" target="_blank">醋栗 发表于 2025-1-10 17:30</a>
+
+目前mujika五人的状态
+
+  睦：已崩坏，不用多说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵老师那几个镜头是看出来了吧，她看到睦飘进来的时候表情第一个大特写
+

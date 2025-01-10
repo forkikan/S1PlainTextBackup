@@ -508,3 +508,18 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 想了想为什么会有不适感。这段剧情用文字来说就是“一个姐姐妈妈类角色在临死之时透露出脆弱自我一面”， ...</blockquote>
 不用甚至，这里就是整个人设都崩了，加上抱怨队友为什么不来救自己完全是凹人设的感觉，作为一个角色而言，这个姐姐死的可比金毛还要彻底多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真爱与热情  
+##### 101#       发表于 2025-1-10 17:46
+
+这是人类能想得出来的剧情啊，才第二集，变态程度堪比辽史了
+
+*****
+
+####  真爱与热情  
+##### 102#       发表于 2025-1-10 17:48
+
+这片子真不如极速星舞吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
