@@ -1172,3 +1172,14 @@ mygo10集就是睦给灯传递了信息，再是11集灯告诉soyo睦在担心�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">剧透的自觉点，这里实质就是非剧透讨论楼
 
+
+*****
+
+####  aptx8285144  
+##### 122#       发表于 2025-1-10 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67145953&amp;ptid=2237230" target="_blank">夜火雷纹 发表于 2025-1-10 13:34</a>
+
+独角兽的剧本总感觉有一股大河内的味道，戏剧性拉满，意外和爆点推动剧情发展，不惜伤害观众对角色的好感也 ...</blockquote>
+op其实她们拿出乐器前完全更像公主代理人的op，ed甚至比有些萝卜片或sf片还洋溢着与命运战斗的悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

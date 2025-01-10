@@ -11560,3 +11560,84 @@ UC死忠姨姥专用硬核考据讨论楼
 
 越来越期待了，等老登们带着哈曼大人的滤镜去看电影找新证据了
 
+
+*****
+
+####  ティグル  
+##### 2425#       发表于 2025-1-10 20:46
+
+不是，为啥后来的这些作品都这么爱嘬ZZ呢
+
+*****
+
+####  patema  
+##### 2426#       发表于 2025-1-10 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">好了，接下来是不是该战是本体还是克隆人
+
+*****
+
+####  Toby_dak  
+##### 2427#       发表于 2025-1-10 20:48
+
+<img src="https://p.sda1.dev/21/bf21e3425a288943055df7f208cf4fa9/1000077599.jpg" referrerpolicy="no-referrer">
+
+院线宣传开始了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  创始’’’天翔  
+##### 2428#       发表于 2025-1-10 20:50
+
+还好我是ZZ厨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。之前被踩头黑历史有多憋屈，现在就有多扬眉吐气
+
+
+*****
+
+####  创始’’’天翔  
+##### 2429#       发表于 2025-1-10 20:53
+
+在这里能看到捷多和哈曼修成正果吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 2430#       发表于 2025-1-10 20:53
+
+ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲特别多大事件，不像79和z一堆战场打来打去的，zz很多支线单元故事
+
+不过哈曼这本人先是看上夏亚后是觊觎朱总的复制人还搭上个修司真是桃花不断呐（
+
+*****
+
+####  猫兔同笼  
+##### 2431#       发表于 2025-1-10 20:53
+
+因为zz的乱七八糟废案太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 2432#       发表于 2025-1-10 20:53
+
+现在知道总篇幅是多少了吗，我看叔叔家的三个声优聊天说录音已经结束了（总感觉年番不用指望了，半年番都很悬）
+
+*****
+
+####  natmk  
+##### 2433#       发表于 2025-1-10 20:55
+
+会有平行世界的朱总和露露卡吗
+
+*****
+
+####  RE㐅ia  
+##### 2434#       发表于 2025-1-10 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149366&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-1-10 20:53</a>
+
+现在知道总篇幅是多少了吗，我看叔叔家的三个声优聊天说录音已经结束了（总感觉年番不用指望了，半年番都很 ...</blockquote>
+群里透露说是季番来着
+
