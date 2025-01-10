@@ -99,3 +99,75 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  三尖酸努努  
+##### 7411#       发表于 2025-1-10 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146708&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 15:09</a></blockquote>
+【【Ave Mujica】初华家内部光速巡礼-哔哩哔哩】 https://www.bilibili.com/video/av113799604477297
+
+*****
+
+####  oyss  
+##### 7412#       发表于 2025-1-10 16:05
+
+豊川集团是不是对应丰田
+
+*****
+
+####  一心而用  
+##### 7413#       发表于 2025-1-10 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147016&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-10 15:46</a>
+
+10s把口ball和手铐收起来了是吧
+
+—— 来自 S1Fun</blockquote>
+我个人觉得可能是祥子的照片啥的。
+
+*****
+
+####  jyhldlagen  
+##### 7414#       发表于 2025-1-10 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147163&amp;ptid=2208921" target="_blank">oyss 发表于 2025-1-10 16:05</a>
+豊川集团是不是对应丰田</blockquote>
+丰田总部在名古屋
+
+*****
+
+####  一心而用  
+##### 7415#       发表于 2025-1-10 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147163&amp;ptid=2208921" target="_blank">oyss 发表于 2025-1-10 16:05</a>
+
+豊川集团是不是对应丰田</blockquote>
+武士道取名喜欢用地名而已。 <blockquote>姓氏“丰川”疑似来自于爱知县丰川市（不过二者读音不同，丰川市读toyokawa，丰川祥子则读togawa）。亦有考证认为来自原高田丰川町（现东京都丰岛区高田本町一丁目一带），值得一提的是丰岛区的高田地区存在过名为“高田若叶”的旧地名，与青梅竹马若叶睦的姓氏相合。</blockquote>
+
+
+*****
+
+####  pokemon最爱  
+##### 7416#       发表于 2025-1-10 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146989&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-10 15:43</a>
+
+大猫不就是正常人么，发现乐队不对应该会收拾的作为社会人，应该（），哪怕睦爆了，大猫指责的时候还叫的睦 ...</blockquote>
+前提是队友不是一群该去精神病院住院治疗的病人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 7417#       发表于 2025-1-10 16:11
+
+所以初祥睦的PV不放出来是因为里面有第三集以后的东西吗？
+
+*****
+
+####  akiomn  
+##### 7418#       发表于 2025-1-10 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd海玲喵梦pv画面全是前三集的
+
