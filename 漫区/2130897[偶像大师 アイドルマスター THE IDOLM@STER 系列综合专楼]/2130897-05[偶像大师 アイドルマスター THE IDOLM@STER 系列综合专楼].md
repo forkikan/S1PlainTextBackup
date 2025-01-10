@@ -95,3 +95,17 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 没有。而且虽然有点答非所问，百万手游剧情的无聊程度（整体）跟学马最水的活动剧情差不多（比如圣诞打工 ...</blockquote>
 行了别秀了，知道你很久不看剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就最新的那单专辑，剧情几乎每场都有爆点
 
+
+*****
+
+####  oznark  
+##### 6825#       发表于 2025-1-10 22:16
+
+<img src="https://img.saraba1st.com/forum/202501/10/071642n63834f68e82f742.png" referrerpolicy="no-referrer">
+
+<strong>f3cb7fbe9764ade71fb9f2852af8baa9.png</strong> (143.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 22:16 上传
+

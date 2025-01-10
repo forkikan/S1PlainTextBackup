@@ -860,3 +860,92 @@ mujica：娱乐圈题材都市情感剧
 美艳小三<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 会有对线情节吗
 
+
+*****
+
+####  杂灰  
+##### 7480#       发表于 2025-1-10 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149739&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-10 21:48</a>
+mygo：校园题材都市情感剧
+mujica：娱乐圈题材都市情感剧</blockquote>
+大赤铁粉太变态了
+
+
+*****
+
+####  南宮凝香  
+##### 7481#       发表于 2025-1-10 22:22
+
+話說，
+
+大立老師是打算要愛音不讓燈得到消息？
+
+燒了學校嗎？
+
+不然隔壁班有人上了武道館這有可能不知道的嗎……
+
+*****
+
+####  Devola  
+##### 7482#       发表于 2025-1-10 22:22
+
+比起八点档狗血要素还是少了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有那种让人会心一笑的桥段
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7483#       发表于 2025-1-10 22:24
+
+没啥用也可能不准的mygo初祥每集出场时间自用：
+
+祥子
+
+第一集：00.06；09.55；
+
+第二集：14.56；18.36；
+
+第三集：04.20；
+
+第四集：04.44；05.50；
+
+第六集：05.07；10.28；13.23；13.57
+
+第七集：11.10 ；17.23；22.25
+
+第八集：03.25；08.01；08.50；16.21
+
+第九集：03.04；10.25
+
+第十一集：19.40
+
+第十三集：00.00
+
+初华
+
+第一集：18.31
+
+第四集：22.29
+
+第五集：10.10
+
+第六集：09.43
+
+第七集：23.03
+
+第八集：08.50
+
+第十集：02.50
+
+第十一集：04.08
+
+*****
+
+####  KLHgg  
+##### 7484#       发表于 2025-1-10 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149903&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-10 22:12</a>
+
+贴吧社区讨论环境不可避免的滑向了“谁尽力，谁犯罪，谁的打法不团队，谁又没有人情味”的走向。猫粉疯狂攻 ...</blockquote>
+因为大伙都默认最后一定是团队包饺子，如果mujica是结局完全不可预测的原创，现在应该讨论睦会带走几条人命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
