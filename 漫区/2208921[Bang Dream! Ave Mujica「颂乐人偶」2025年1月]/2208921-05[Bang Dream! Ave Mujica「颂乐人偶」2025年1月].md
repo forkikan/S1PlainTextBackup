@@ -16294,3 +16294,51 @@ ep3 把睦玩没了</blockquote>
 祥子自己还顶得住吗？现在有初华给回了口血，恢复的精力也拿来应付媒体和大猫了，再去睦那边吃一套伤害别 ...</blockquote>
 祥不入地狱 谁入地狱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 7388#       发表于 2025-1-10 14:56
+
+想到mygo中有人问灯有没有看过若叶家演的剧，灯说觉得恐怖。
+
+*****
+
+####  山ノ内花音  
+##### 7389#       发表于 2025-1-10 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146563&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-10 14:50</a>
+这样吧 这个企划打回去重练 不招募黄瓜了 给爱音地狱特训一年上来弹 给她这机会她肯定想出风头 ...</blockquote>
+爱音：东京太变态了 我要回伦敦
+
+
+*****
+
+####  看穿一切的鱼  
+##### 7390#       发表于 2025-1-10 15:03
+
+话说第三集是不是要提前放啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈曼的YY  
+##### 7391#       发表于 2025-1-10 15:03
+
+<blockquote>ggxx001 发表于 2025-1-10 12:36
+真要说黑点 应该是祥在理解睦的情况下 自私的将睦拖入商业乐队 睦想要的生存环境跟祥招募喵梦时候的脸和 ...</blockquote>
+摘面具之前演出也没问题啊 采访也可以靠祥老师打圆场 可以拖到能露脸了再说
+
+当然这时候又可以说画饼不实现管不好队员了 最后都是祥老师来背负
+
+*****
+
+####  刑部姬真可爱  
+##### 7392#       发表于 2025-1-10 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146601&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 14:56</a>
+
+想到mygo中有人问灯有没有看过若叶家演的剧，灯说觉得恐怖。</blockquote>
+可能在她的脑中感受到的东西就和我们平常说的“伪人”或者“恐怖谷效应”导致她觉得恐怖，而灯又经常能看到某些事务的本质，所以<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

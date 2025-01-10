@@ -11035,3 +11035,48 @@ nt也不是生死关头觉醒的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真哈曼了。好期待马球彻底变成哈曼阿姨的那一刻
 
+
+*****
+
+####  猪突猛进R  
+##### 2375#       发表于 2025-1-10 14:58
+
+不一定是哈曼本尊啊，也可能是克隆人。
+
+*****
+
+####  jojonathan  
+##### 2376#       发表于 2025-1-10 15:00
+
+原来是量产型哈曼 什么时候给夏亚上强度x<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 2377#       发表于 2025-1-10 15:00
+
+怎么可能真是哈曼呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+你们一个个说的好像真的一样
+
+
+*****
+
+####  patema  
+##### 2378#       发表于 2025-1-10 15:03
+
+哪怕克隆哈曼最后肯定也是要和本尊有关系的，梗在这了不用白不用
+
+*****
+
+####  刺客ares  
+##### 2379#       发表于 2025-1-10 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146635&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-1-10 15:00</a>
+
+怎么可能真是哈曼呢
+
+你们一个个说的好像真的一样</blockquote>
+现在是假药时间，用心感受就行了(X
+
+但我觉得玛秋肯定是有藏身份的，不可能是什么一般路过JK
+
