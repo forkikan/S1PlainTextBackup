@@ -10895,3 +10895,32 @@ nt也不是生死关头觉醒的吧</blockquote>
 
 2025-1-10 13:51 上传
 
+
+*****
+
+####  Toby_dak  
+##### 2362#       发表于 2025-1-10 14:00
+
+说斯洛哥的快笑死我了。这几天在手游片场被打成五等分的铁奥，这么快就重开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/74f43a59352eb5687912d2f20e827c56/1000077466.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ナルバレック  
+##### 2363#       发表于 2025-1-10 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146147&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-10 14:00</a>
+
+说斯洛哥的快笑死我了。这几天在手游片场被打成五等分的铁奥，这么快就重开啊</blockquote>
+前几年还有个西罗克复制人的外传漫画呢，所有西罗克衍生里UCE这个布罗利附体是最离谱的
+
+*****
+
+####  猪突猛进R  
+##### 2364#       发表于 2025-1-10 14:05
+
+哈曼和西罗克谈恋爱，什么二创校园动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

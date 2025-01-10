@@ -1088,3 +1088,14 @@ mana挺王之姿+2
 
 感觉睦最后要soyo来救。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 114#       发表于 2025-1-10 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146012&amp;ptid=2237230" target="_blank">星星狐 发表于 2025-1-10 13:42</a>
+
+感觉睦最后要soyo来救。</blockquote>
+mygo10集就是睦给灯传递了信息，再是11集灯告诉soyo睦在担心她，mujica的话有可能是soyo得知了睦的状态后找到祥子去劝慰睦，这样我觉得也能比较好的处理素睦祥三人的关系
+
