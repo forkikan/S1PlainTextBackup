@@ -14713,3 +14713,38 @@ ed标题georgette是乔琪纱
 反正没爆身份最速武道馆了公司有眼光的，不得不说设定还是比网友严谨</blockquote>
 最好的预期也是要建立在最坏的打算上的
 
+
+*****
+
+####  山ノ内花音  
+##### 7247#       发表于 2025-1-10 10:59
+
+在事务所的大手下保护成员 就是我们祥p未来的成长方向吧
+
+
+*****
+
+####  三尖酸努努  
+##### 7248#       发表于 2025-1-10 11:04
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e6ab9bd62f78a3f36dc9ea2e9b3ea934/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 7249#       发表于 2025-1-10 11:05
+
+这里的饮料早就喝完了吧，不然不可能不用手叼起来。一个饮料空盒子吮半天，估计也是心事重重的
+
+<img src="https://p.sda1.dev/21/0c897dc7c16982a5697d8c5e88908b14/2.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/c48cbc5837c48083093de408f3835dcb/3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  199april  
+##### 7250#       发表于 2025-1-10 11:07
+
+这第二话完全是心理恐怖题材了，有种美国精神病人的感觉
+
