@@ -14398,3 +14398,134 @@ mana女士──<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 “佚名我 佚名你”这个歌名和前半段的编曲风格都让我想到寒蝉的ed2《对象a》
 
+
+*****
+
+####  一心而用  
+##### 7220#       发表于 2025-1-10 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144164&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-10 10:17</a>
+
+我看有人说说错话是睦头人的老-毛病，她还说错过啥</blockquote>
+mygo第一话开头，“我从没觉得玩乐队开心过”直接拆了C团。
+
+*****
+
+####  dc5281  
+##### 7221#       发表于 2025-1-10 10:28
+
+祥睦互为半身的设定体现的不够强，从mygo开始能看到的是睦一直是陪在祥子身边，做情绪树洞也好，帮忙隐瞒信息也罢，祥子也有行为上对睦的关心（不要做传声筒、挡采访等）
+
+但是祥子对睦的性格、心理状态了解把握也太不足了，第二集前半段，就睦头人这表达能力给接那么多采访，对宣传鸡团能有多大帮助？更何况睦这状态祥子应该知道快五年了吧（初中起算），就算后续剧情睦其实以前话不少只是被爸妈搞ptsd了，也不会时间很短。
+
+按理说都互为半身了，对方是个什么样的人能忽视到这种程度吗
+
+鸡狗两团我觉得最好品的就是月之森三人组了，希望后续能搞好
+
+*****
+
+####  Суслов  
+##### 7222#       发表于 2025-1-10 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144164&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-10 10:17</a>
+我看有人说说错话是睦头人的老-毛病，她还说错过啥</blockquote>
+“我从来没有觉得玩乐队开心过”
+“不属于crychic的春日影”
+“我并没有这个打算”
+“太好了呢”
+“祥，武道馆，大丈夫”
+这么一看睦头的输出全打在soyo和祥子身上了，属实是离得越近伤害越深了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NaAgfykp  
+##### 7223#       发表于 2025-1-10 10:30
+
+因为访谈原文并不是互为半身…
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adcdqre  
+##### 7224#       发表于 2025-1-10 10:31
+
+ 本帖最后由 adcdqre 于 2025-1-10 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144286&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-10 10:28</a>
+
+“我从来没有觉得玩乐队开心过”
+
+“不属于crychic的春日影”
+
+“我并没有这个打算”</blockquote>
+除了第一句都不算说错吧。其他的表达内容和真实想法没差多少
+
+*****
+
+####  都是好事  
+##### 7225#       发表于 2025-1-10 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67143785&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-10 09:40</a></blockquote>
+就像甜甜圈两人一体，啪，分了甜甜圈
+
+*****
+
+####  喜闻乐见  
+##### 7226#       发表于 2025-1-10 10:33
+
+<img src="https://img.saraba1st.com/forum/202501/10/103317fr1g3ngejhhkrhz8.png" referrerpolicy="no-referrer">
+
+<strong>LJ$V[Q(I)K]JC7483X`L_]P.png</strong> (7.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 10:33 上传
+
+
+*****
+
+####  ml1642879  
+##### 7227#       发表于 2025-1-10 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144316&amp;ptid=2208921" target="_blank">adcdqre 发表于 2025-1-10 10:31</a>
+除了第一句都不算说错吧。其他的表达内容和真实想法没差多少</blockquote>
+CV本人在访谈中表示她认为第一句话是在理解祥子家所有的状况下，睦读空气配合祥子说的
+
+*****
+
+####  Aendst  
+##### 7228#       发表于 2025-1-10 10:35
+
+ 本帖最后由 Aendst 于 2025-1-10 10:36 编辑 
+<blockquote>陶矢 发表于 2025-1-10 10:17
+为什么其他视角压力都描写的够多，soyo睦对线就一闪而过啊，尖锐问题一个没问，我要看soyo全方位拷打睦
+
+— ...</blockquote>
+因为睦完全不在乎爽世
+这一点在第三话里表现非常明显，爽世只是和其他外界压力一样的万千压力的一环，不具备特殊性
+
+*****
+
+####  达达葱2  
+##### 7229#       发表于 2025-1-10 10:36
+
+<blockquote>Суслов 发表于 2025-1-10 10:28
+“我从来没有觉得玩乐队开心过”
+
+“不属于crychic的春日影”
+
+“我并没有这个打算”</blockquote>
+哦哦这样的啊
+
+*****
+
+####  adcdqre  
+##### 7230#       发表于 2025-1-10 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67144283&amp;ptid=2208921" target="_blank">dc5281 发表于 2025-1-10 10:28</a>
+
+祥睦互为半身的设定体现的不够强，从mygo开始能看到的是睦一直是陪在祥子身边，做情绪树洞也好，帮忙隐瞒信 ...</blockquote>
+好家伙活动又成祥子给接的了
+
