@@ -11459,3 +11459,21 @@ UC死忠姨姥专用硬核考据讨论楼
 太有活了鹤卷gg，连人带机一 ...</blockquote>
 假药吃到饱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 2414#       发表于 2025-1-10 19:50
+
+量产型哈曼会碰到平行世界的捷多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虛無迴廊  
+##### 2415#       发表于 2025-1-10 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67148974&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-10 19:50</a>
+量产型哈曼会碰到平行世界的捷多吗</blockquote>
+呀咩咯，这时候的捷多只有11岁呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

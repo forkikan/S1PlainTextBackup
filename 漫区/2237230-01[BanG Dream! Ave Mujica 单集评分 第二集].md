@@ -1141,3 +1141,26 @@ mygo10集就是睦给灯传递了信息，再是11集灯告诉soyo睦在担心�
 
 +2，初华就是托马老师的转世，用塞壬之书操控睦，一切都是为了监禁大祥老师
 
+
+*****
+
+####  外骨骼  
+##### 119#       发表于 2025-1-10 19:47
+
+不要再迫害623啦，虽然前期海报那时候623的表情真的狂。
+
+（多来点多来点啊最狂乐队番）
+
+*****
+
+####  EverNight  
+##### 120#       发表于 2025-1-10 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146914&amp;ptid=2237230" target="_blank">Prairial 发表于 2025-1-10 15:35</a>
++1给绿毛没那么面瘫了，+1给大猫全程make big news
+
+话说既然灯皇是阿斯伯格综合征，绿毛这半截身子进精神 ...</blockquote>
+就是抑郁症躯体化，物理意义上在生病，需要吃药
+
+—— 来自 OPPO PHY110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
