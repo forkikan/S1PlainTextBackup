@@ -1251,3 +1251,13 @@ op其实她们拿出乐器前完全更像公主代理人的op，ed甚至比有�
 
 我看这片子最后怕不是要写成“啊卧槽大人怎么这么坏”，一个正常的成年人都没有。一想到这个故事最后还会包饺子，我就有种需要勇斗邪恶成年人的预感，某种意义上这也挺摇滚的。
 
+
+*****
+
+####  PascalLefèvre  
+##### 131#       发表于 2025-1-11 02:15
+
+唯一和大河内相似的点可能是这片子某种意义上已经是一辆油门踩到底的泥头车了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
