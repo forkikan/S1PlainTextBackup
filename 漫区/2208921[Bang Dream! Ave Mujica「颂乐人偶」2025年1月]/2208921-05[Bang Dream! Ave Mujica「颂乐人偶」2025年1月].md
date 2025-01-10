@@ -14390,3 +14390,11 @@ mana女士──<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  lucasxp  
+##### 7219#       发表于 2025-1-10 10:21
+
+“佚名我 佚名你”这个歌名和前半段的编曲风格都让我想到寒蝉的ed2《对象a》
+
