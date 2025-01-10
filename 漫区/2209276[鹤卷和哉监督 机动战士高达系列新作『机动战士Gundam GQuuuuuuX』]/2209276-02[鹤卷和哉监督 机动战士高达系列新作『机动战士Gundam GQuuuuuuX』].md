@@ -11750,3 +11750,52 @@ ZZ tv版普及度没那么高吧，补完空间也大，毕竟tv版其实没讲�
 
 能看到海就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 2449#       发表于 2025-1-10 21:28
+
+卡哈钢弹只要别像水魔那样拿着富野样板戏的元素结果全玩砸了就行
+
+*****
+
+####  patema  
+##### 2450#       发表于 2025-1-10 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太保守了，不能结局直接打遥远外太阳系来的倒x？
+
+*****
+
+####  番茄牛奶  
+##### 2451#       发表于 2025-1-10 21:31
+
+不过按18年到现在就做12集动画，是否有点？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huanzhi  
+##### 2452#       发表于 2025-1-10 21:33
+
+想看看哈曼夏亚爱情故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  0aleph37  
+##### 2453#       发表于 2025-1-10 21:33
+
+飞跃巅峰6集就从地球到银河系级别，季番足够了
+
+*****
+
+####  wasssf  
+##### 2454#       发表于 2025-1-10 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149601&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-10 21:28</a>
+
+卡哈钢弹只要别像水魔那样拿着富野样板戏的元素结果全玩砸了就行</blockquote>
+别带钢弹x和g复国节奏啊<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
