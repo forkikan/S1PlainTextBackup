@@ -10243,3 +10243,21 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 4星5星是不是标反了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16054#       发表于 2025-1-11 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154328&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-11 17:56</a>
+
+4星5星是不是标反了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前狗萌新欧羡慕
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16055#       发表于 2025-1-11 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">看到黑姬差点吓到跳起来，一看不像社长画的又是日本人还是四星，躺回去了
+
