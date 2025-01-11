@@ -1817,3 +1817,28 @@ by池袋二刷感想
 <img src="https://p.sda1.dev/21/43ba63c9228ff94cb5c1e6c451fa17fc/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/c28328349f4ff9dea4ee4356d66114c2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 7558#       发表于 2025-1-11 13:48
+
+希望初华最后能拥有对祥子的执念以外的东西，要不人物形象还是太单薄了
+
+
+*****
+
+####  玖羽  
+##### 7559#       发表于 2025-1-11 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152714&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-11 12:42</a>
+
+祥爹切割祥子到武道馆揭面是一个一天之内发生的连续事件
+
+揭面后团队关系才彻底闹僵，之前都是正常运行
+
+后 ...</blockquote>
+没有，我在尝试拉时间线，Ave Mujica的特点是同一段剧情的时间很短，剧情和剧情之间的时间则不一定，可能会很长
+
+比如第一话祥子在破屋里说“到武道馆还有四首，考虑到初华的作词时间，周末至少要完成两首”，这个场景结束就是武道馆当天，中间至少隔了1～2周
+
