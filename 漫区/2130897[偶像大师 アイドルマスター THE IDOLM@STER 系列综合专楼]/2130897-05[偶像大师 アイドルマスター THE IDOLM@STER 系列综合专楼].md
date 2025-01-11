@@ -345,3 +345,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 =====
 [「283 Production LIVE Performance [liminal;marginal;eternal]」上海公演问卷调研](https://www.wjx.cn/vm/QAWm4VG.aspx)
 
+
+*****
+
+####  Porsche  
+##### 6845#       发表于 2025-1-11 19:19
+
+太有演出了，合着除了中途断一下少一人之后还是该干嘛干嘛是吧
+

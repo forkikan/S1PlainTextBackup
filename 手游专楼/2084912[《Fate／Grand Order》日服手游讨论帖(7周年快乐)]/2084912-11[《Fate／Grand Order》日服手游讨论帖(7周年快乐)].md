@@ -10361,3 +10361,24 @@ F1阿尔法罗密欧车队知道吧
 
 5星那龙看着像从小林家来的，然后这宝具演出里的3d模型拉中拉，根本没眼看
 
+
+*****
+
+####  保罗赫伯特  
+##### 16065#       发表于 2025-1-11 19:18
+
+还以为是那个黑姬，一看四星就明白是怎么回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  坂本健一  
+##### 16066#       发表于 2025-1-11 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154484&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2025-1-11 18:30</a>
+
+除了球迷赛车迷还有长野县民
+
+不会认识这个的</blockquote>
+这不会是长野县塞钱给做的吉祥物从者吧
+
