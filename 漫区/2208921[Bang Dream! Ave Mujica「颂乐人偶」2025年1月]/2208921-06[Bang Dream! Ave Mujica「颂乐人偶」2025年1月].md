@@ -1842,3 +1842,13 @@ by池袋二刷感想
 
 比如第一话祥子在破屋里说“到武道馆还有四首，考虑到初华的作词时间，周末至少要完成两首”，这个场景结束就是武道馆当天，中间至少隔了1～2周
 
+
+*****
+
+####  半年  
+##### 7560#       发表于 2025-1-11 14:00
+
+<img src="https://p.sda1.dev/21/01a5b2c52212722a35f6525017ff8067/Gg-CmrFboAEotZ1.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Oox3O/status/1877863175175213319/photo/1](https://x.com/Oox3O/status/1877863175175213319/photo/1)
+
