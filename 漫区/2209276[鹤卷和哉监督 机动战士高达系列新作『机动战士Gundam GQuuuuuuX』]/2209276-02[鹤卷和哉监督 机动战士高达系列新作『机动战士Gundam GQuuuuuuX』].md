@@ -12342,3 +12342,39 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  uponutopia  
+##### 2501#       发表于 2025-1-11 13:07
+
+真的尊重吗？PV2除了硬蹭UC致敬外视听各方面都很下头，这作画精度和粗劣贫瘠的3D背景难看的人设不和别的比甚至看上去比PV1还退步了。虽然不期待能有闪哈和EVA剧场版的制作水准但你一个18年开始的企划和大概率只有季番的长度，作为K社第一部真正意义上的TV作品闷头做了几年就这种程度？
+
+*****
+
+####  猪突猛进R  
+##### 2502#       发表于 2025-1-11 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152793&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-1-11 12:59</a>
+
+可以奶一口联邦领袖是夏亚吗
+
+论坛助手,iPhone</blockquote>
+你已经被封印在红高达里了，别幻想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 2503#       发表于 2025-1-11 13:10
+
+只求故事讲完整，尊不尊重无所谓，PPT动画也行，要求就是这么低。现在一部原创动画会讲故事已经是奢求。
+
+*****
+
+####  PascalLefèvre  
+##### 2504#       发表于 2025-1-11 13:11
+
+人设比pv1退步可还行，指的是年轻版夏利亚的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
