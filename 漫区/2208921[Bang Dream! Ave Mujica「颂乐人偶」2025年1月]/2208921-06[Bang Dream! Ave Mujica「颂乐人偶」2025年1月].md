@@ -2757,3 +2757,15 @@ Animage 2025年2月号
 
 母鸡卡要是真的大火特火，以后的木柜子组乐队动画会成为什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 7640#       发表于 2025-1-12 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67156581&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-11 23:41</a></blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然对二偶动画来说80左右算不错成绩
+
+不过还是想嘲笑老登之前吹mujica是季度霸权，哈哈第二集80左右的评分
+
