@@ -2488,3 +2488,11 @@ pv画面都剧透了 祥子和睦疯狂互动  
 
 <img src="https://p.sda1.dev/21/5b68e4de3df006c74535936789dca445/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 7614#       发表于 2025-1-11 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实也没那么难解吧，虽然表现形式很吓人，但归根结底也只是因为好心帮人却被人伤害所以化身古明地木，封闭内心来自我保护了而已。后面搞个祥子大彻大悟去道歉，睦狠狠的歇斯底里一把，把情绪发泄一番。最后接个在祥子身边痛哭流涕，祥子说点帅气台词，这事也就算过去了。真要说最容易讲烂的还是初华和大猫这两条线吧。
+

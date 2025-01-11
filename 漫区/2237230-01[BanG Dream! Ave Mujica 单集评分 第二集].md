@@ -1461,3 +1461,25 @@ mygo的戏份目前看来更多是作为母鸡卡影响力的一个波及和高�
 睦头丢书是不是就在下一集了</blockquote>
 不是，但比丢书劲还大，是个老片名场面复刻
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 151#       发表于 2025-1-11 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151819&amp;ptid=2237230" target="_blank">aptx8285144 发表于 2025-1-11 10:17</a>
+首先舔狗这个词是你先提的，其次论“搞笑”，爽女士做死了那么多最后的抵抗是你们要干什么的名言梗难道不 ...</blockquote>
+你俩讨论的都不是一回事了，楼上说的是角色塑造的立体程度，素世前期各种心机痕迹，后面自暴自弃粉转黑撕破面具，而立希的塑造就想战斗番里的大块头一样粗暴，就是一根筋，转变也不大
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 152#       发表于 2025-1-11 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155338&amp;ptid=2237230" target="_blank">伊丽虾皇VI 发表于 2025-1-11 20:32</a>
+
+你俩讨论的都不是一回事了，楼上说的是角色塑造的立体程度，素世前期各种心机痕迹，后面自暴自弃粉转黑撕 ...</blockquote>
+在这个心事重重的乐队里面活得简单一些不挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，立希我一直把她看成隔壁的小智那种类型
+
