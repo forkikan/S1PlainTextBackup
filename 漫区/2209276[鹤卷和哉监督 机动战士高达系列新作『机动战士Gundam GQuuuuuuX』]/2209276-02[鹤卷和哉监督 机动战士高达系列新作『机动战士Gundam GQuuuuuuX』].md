@@ -12798,3 +12798,28 @@ PV2还出现了把他们都干掉这种台词
 
 怕不是跟停不下来同理
 
+
+*****
+
+####  patema  
+##### 2542#       发表于 2025-1-11 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154615&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-11 18:54</a>
+
+国内外对这一假药反论点集中在外形和地位上
+
+瞳色不一致，哈曼是蓝瞳，玛秋是绿瞳
+
+身高不一致，玛秋身高明显 ...</blockquote>
+苦哇脱落大尉---鸭子---卡斯巴尔
+
+鸭子也有二重假名<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫兔同笼  
+##### 2543#       发表于 2025-1-11 20:16
+
+算上gto里鸭子的假名一堆的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

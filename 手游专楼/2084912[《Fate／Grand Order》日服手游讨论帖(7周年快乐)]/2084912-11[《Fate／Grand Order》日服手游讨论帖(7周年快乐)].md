@@ -10398,3 +10398,22 @@ F1阿尔法罗密欧车队知道吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">为什么新给的10石没有灵魂呢 不是应该3石有珠3石鹤女士 最后4石在来个1宝新年up
 
+
+*****
+
+####  qixinno2  
+##### 16069#       发表于 2025-1-11 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155038&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-11 19:52</a>
+
+为什么新给的10石没有灵魂呢 不是应该3石有珠3石鹤女士 最后4石在来个1宝新年up ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉还不如攒石头等之后的术阶大复刻
+
+
+*****
+
+####  森兰丸  
+##### 16070#       发表于 2025-1-11 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了这次新出的活动池礼装才发现怎么活动加成角色不带妖兰玩
+
