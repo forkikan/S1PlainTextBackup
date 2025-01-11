@@ -2126,3 +2126,13 @@ Ave Mujica的世界观也会被一起燃烧殆尽的！
 海铃的生日4月7日看到有分析，4音读是shi，7训读是nana，而shiina就是椎名，所以一开始就是绑定了的。
 <img src="https://p.sda1.dev/21/7b15dc19a01b40687f25b7114a6c6a04/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 7580#       发表于 2025-1-11 17:09
+
+sumimi大火街头到处是广告的时候灯在卡拉ok就完全不知道sumimi是什么，看了卡拉ok视频也不记得初华是谁，甚至后面见过一面都记不住，那mujica大火但灯完全不关注也没什么奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+暴露了也是因为几个同学跑爱灯面前不停的说祥子才让灯意识到的，要不是祥子就在隔壁，要瞒住还真不难
+
