@@ -12506,3 +12506,13 @@ Gg7Jj75bIAEQoy6.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/11/162034v3pzanlp3oulellb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 2517#       发表于 2025-1-11 16:41
+
+<blockquote>啤酒炸鸡 发表于 2025-1-11 16:21
+驾驶服的整体配色风可能是来自永野护的哈曼</blockquote>
+针织帽原来是致敬这个吗（
+

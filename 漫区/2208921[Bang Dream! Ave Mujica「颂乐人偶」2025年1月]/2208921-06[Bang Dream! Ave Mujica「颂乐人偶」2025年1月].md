@@ -2095,3 +2095,14 @@ Ave Mujica的世界观也会被一起燃烧殆尽的！
 <img src="https://p.sda1.dev/21/94ec52d81d856f7a7044d1ce68f5402b/image.jpg" referrerpolicy="no-referrer">
 有一腿
 
+
+*****
+
+####  car123  
+##### 7577#       发表于 2025-1-11 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153637&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-11 15:37</a>
+
+为了不让情绪流中断，2、3集场景都切得很快，只讲有用的东西</blockquote>
+第2集我觉得蛮合理的，节奏恰到好处，第3集大喵老师变化太快了
+

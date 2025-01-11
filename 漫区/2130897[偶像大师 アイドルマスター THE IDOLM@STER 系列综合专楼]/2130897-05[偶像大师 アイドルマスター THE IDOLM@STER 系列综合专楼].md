@@ -185,3 +185,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 波多野 和 和歌子 好像都来上海了。
 
+
+*****
+
+####  何处可分  
+##### 6832#       发表于 2025-1-11 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">羡慕能去的
+
