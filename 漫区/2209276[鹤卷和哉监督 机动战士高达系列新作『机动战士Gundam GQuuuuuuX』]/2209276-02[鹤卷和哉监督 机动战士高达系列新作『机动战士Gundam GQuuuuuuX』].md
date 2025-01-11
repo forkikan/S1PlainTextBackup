@@ -12275,3 +12275,21 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 把讨论环境劣化怪到情报哥是不是有点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 2494#       发表于 2025-1-11 11:49
+
+ 本帖最后由 patema 于 2025-1-11 11:50 编辑 
+
+这次尊重了吗。鹤卷哥哥我相信你<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PascalLefèvre  
+##### 2495#       发表于 2025-1-11 11:52
+
+这种老登阵容包尊重的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

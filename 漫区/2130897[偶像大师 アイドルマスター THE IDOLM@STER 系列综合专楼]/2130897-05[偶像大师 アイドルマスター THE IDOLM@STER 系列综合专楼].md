@@ -152,3 +152,28 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 当然这完全是属于个人偏好的问题了。所以要有争议也差不多了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳄鱼头  
+##### 6829#       发表于 2025-1-11 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152253&amp;ptid=2130897" target="_blank">幻月天伤 发表于 2025-1-11 11:27</a>
+真要说个人看法的话，我当初弃坑的一大原因就在于剧场的海螺小姐时空，因为我个人还是更喜欢角色在经历了 ...</blockquote>
+然而不管是静香还是志保，她们家庭产生的问题主线剧情里都已经解决了，你这不就是第二轮主线都没看就乱盖章么？而且现在不少剧情里会明确提到之前剧情发生的事，说明时间是有在推进她们也是在不断成长的。
+当然我知道你想表达什么。
+百无非是没有学那样有一个nia和hif的明确目标，让人觉得她们永远静止在一个时间轴上呗。
+
+
+*****
+
+####  幻月天伤  
+##### 6830#       发表于 2025-1-11 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152376&amp;ptid=2130897" target="_blank">鳄鱼头 发表于 2025-1-11 11:48</a>
+
+然而不管是静香还是志保，她们家庭产生的问题主线剧情里都已经解决了，你这不就是第二轮主线都没看就乱盖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">catch my dream我还是看了的，但时间太久忘了。
+
+所以也不用聊了，因为我确实很久没看了。
+
