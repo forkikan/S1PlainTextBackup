@@ -12293,3 +12293,26 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 这种老登阵容包尊重的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 2496#       发表于 2025-1-11 12:06
+
+<blockquote>创始’’’天翔 发表于 2025-1-11 11:20
+把讨论环境劣化怪到情报哥是不是有点，情报哥不过是把缺的下集预告这一块给补上了。环境劣化不就是之前放送 ...</blockquote>
+但是这次确实是被情报泄露破坏观影体验了，虽然主责在日升（意大利语官网
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  刺客ares  
+##### 2497#       发表于 2025-1-11 12:11
+
+这次staff平均年龄都近60岁了包尊重的
+
+看这帮遗老怎么厨力放出就完事了
+
+甚至尊重哥本人都说这次很看好（
+

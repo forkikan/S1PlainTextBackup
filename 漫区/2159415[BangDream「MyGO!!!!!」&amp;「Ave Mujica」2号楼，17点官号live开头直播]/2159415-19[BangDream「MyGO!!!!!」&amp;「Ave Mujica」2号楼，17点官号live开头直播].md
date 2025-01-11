@@ -2397,3 +2397,21 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 
 这除了手臂动都不动也太怪了
 
+
+*****
+
+####  CyDiablo  
+##### 26819#       发表于 2025-1-11 12:09
+
+完啦，联动是五星限定卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这新年刚开始国服就来骗钱了
+<img src="https://p.sda1.dev/21/fe5a3e651227632110913a71363417a6/1736568435850.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 26820#       发表于 2025-1-11 12:13
+
+这就是我们武士道的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cc3f044b969e90622ded680072eb3de4/Screenshot_20250111_121207.jpg" referrerpolicy="no-referrer">
+
