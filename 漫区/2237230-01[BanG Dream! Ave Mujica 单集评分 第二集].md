@@ -1291,3 +1291,16 @@ op其实她们拿出乐器前完全更像公主代理人的op，ed甚至比有�
 立希 ...</blockquote>
 真要这么论的话，爽女士的舔狗程度可是十倍之多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaosayang  
+##### 134#       发表于 2025-1-11 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151471&amp;ptid=2237230" target="_blank">aptx8285144 发表于 2025-1-11 08:59</a>
+
+真要这么论的话，爽女士的舔狗程度可是十倍之多，而且一边舔到土下座给祥子程度（哪怕换个说法她是舔已经 ...</blockquote>
+编剧在素世上的用心程度和立希明显不是一个等级，素世符合人物逻辑的行为和立希这个反复强调只为招笑的标签，无法理解你是怎么把他们相提并论的
+
+自我说服“大家都有病”，正是给不合逻辑的工具人开脱的借口，她都有病了，有什么细究的意义呢
+
