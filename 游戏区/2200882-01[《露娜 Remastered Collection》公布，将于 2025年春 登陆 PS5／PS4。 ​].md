@@ -417,3 +417,16 @@ Lunar学院么，我也搞不清楚这个和原作的关系，虽然我当时也
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Dreammask  
+##### 43#       发表于 2025-1-11 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67149987&amp;ptid=2200882" target="_blank">ds2324ds2 发表于 2025-1-10 22:24</a>
+
+1代应该算是移植了相当多平台，我依稀记得是有PC版的。另外PSP版新增了一小段游戏前传。如果对没玩过的玩 ...</blockquote>
+2000年后的移植应该只有GBA和PSP版了，GBA自不用说，PSP版我确实不太喜欢那个有点像格兰蒂亚1的视觉风格
+
+而且OP升了一调，简直是不可理喻<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
