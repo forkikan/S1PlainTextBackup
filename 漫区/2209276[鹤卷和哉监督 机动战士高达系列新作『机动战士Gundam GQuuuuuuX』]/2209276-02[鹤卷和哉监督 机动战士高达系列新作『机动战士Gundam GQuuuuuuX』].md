@@ -12378,3 +12378,18 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  0aleph37  
+##### 2505#       发表于 2025-1-11 13:20
+
+夏利亚人设比黑拳团队那几位复杂度精度高多了吧
+
+*****
+
+####  patema  
+##### 2506#       发表于 2025-1-11 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏利亚其实pv2才是应该的样子吧，我记得夏利亚其实也就奔3。79的人设看的像奔6
+

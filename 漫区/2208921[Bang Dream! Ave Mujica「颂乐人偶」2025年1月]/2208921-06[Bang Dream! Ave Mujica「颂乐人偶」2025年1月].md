@@ -1761,3 +1761,35 @@ by池袋二刷感想
 日语熟悉的坛友能不能说说哪个翻译更贴切？ ...</blockquote>
 这话直译就是厚颜无耻，我觉得翻译成要点脸没啥问题，挺符合中文口语的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 7553#       发表于 2025-1-11 13:18
+
+<img src="https://p.sda1.dev/21/c5e6e35576bc66b2085adb8b3e36a74a/Gg_GGH3boAA3GF9.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/peso727/status/1877937381946372266/photo/1](https://x.com/peso727/status/1877937381946372266/photo/1)
+
+*****
+
+####  kuroro  
+##### 7554#       发表于 2025-1-11 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152728&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-11 12:44</a>
+
+第一位受害者，现在好起来了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在没事了，主要我身上有类似的事情，小时候留守儿童，村小有恶霸霸凌一个瘦小的男孩，我出头，结果被霸凌的人在老师问的时候默不作声，我成坏人了，还被那个恶霸嘲讽多管闲事，老师骂我，里外不是人，抑郁到想跳楼，最后是过年前我爸妈来了，发现情况不对，找了学校麻烦，第二学期转学才处理好。但对我来说确实是个创伤，第三集那个场面对我来说简直阴影再现，当时就吐的喘不过气，一个电话打给救护车了
+
+
+*****
+
+####  上条仁美  
+##### 7555#       发表于 2025-1-11 13:23
+
+ 本帖最后由 上条仁美 于 2025-1-11 14:26 编辑 
+<blockquote>linekm 发表于 2025-1-11 14:00
+这话直译就是厚颜无耻，我觉得翻译成要点脸没啥问题，挺符合中文口语的 ...</blockquote>
+
+如果换个角色比如海玲或者喵梦这种没毛病甚至更贴地气，但祥子日常说ですわ这种お嬢様言葉的确实不适合口语化翻译
+
