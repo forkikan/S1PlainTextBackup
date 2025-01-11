@@ -1871,3 +1871,13 @@ by池袋二刷感想
 <img src="https://p.sda1.dev/21/940e09c35423a978ca6065ed7052ba14/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/5a82a2d37582f935e4c4dc218ccfaa32/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帕林马哲理  
+##### 7563#       发表于 2025-1-11 14:29
+
+看了前面三季跟PICO三季，感觉正片前三季水平真的不怎么样，剧情不差，但导演，分镜，编剧的台词跟声优表现真的不太好。PICO三季倒是我看过的这类Q版小人动画里数一数二的好。
+
+Mygo跟AveMujica请三次元做的3D动画也立大功。
+
