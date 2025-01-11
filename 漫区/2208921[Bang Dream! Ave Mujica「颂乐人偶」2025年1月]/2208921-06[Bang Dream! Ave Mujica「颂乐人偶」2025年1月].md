@@ -2783,3 +2783,15 @@ Animage 2025年2月号
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  akiomn  
+##### 7642#       发表于 2025-1-12 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157326&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-1-12 02:41</a>
+本身mujica和go在日本就不火啊
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我知道，我只是想嘲笑老登吹季度霸权而已。吃蛋白棒吃的脑子不清醒了
+
