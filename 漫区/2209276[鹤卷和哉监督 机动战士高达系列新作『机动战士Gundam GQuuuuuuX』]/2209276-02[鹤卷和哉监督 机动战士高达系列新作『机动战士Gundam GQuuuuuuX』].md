@@ -12435,3 +12435,11 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 人设的话，眼睛普遍都太大了，特别是主角，跟脸盆似的，看着难受。</blockquote>
 平常还好，主要是pv很多画面都是看见了什么感兴趣的东西把眼睛瞪得老大
 
+
+*****
+
+####  JimmyJoker  
+##### 2512#       发表于 2025-1-11 15:41
+
+一个月没关注怎么主角要成哈曼代餐了？还有升重高达的译名是怎们来的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
