@@ -12481,3 +12481,28 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 夏利亚其实pv2才是应该的样子吧，我记得夏利亚其实也就奔3。79的人设看的像奔6 ...</blockquote>
 元祖的人设普遍比设定年龄老上个10～20岁，吉翁的角色更是重灾区
 
+
+*****
+
+####  啤酒炸鸡  
+##### 2516#       发表于 2025-1-11 16:21
+
+驾驶服的整体配色风可能是来自永野护的哈曼
+
+<img src="https://img.saraba1st.com/forum/202501/11/162028wlllyjzqplxnqlox.png" referrerpolicy="no-referrer">
+
+<strong>{466C6524-832B-4d14-992E-71651C291BA0}.png</strong> (38.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 16:20 上传
+
+Gg7Jj75bIAEQoy6.jpg
+(226.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 16:20 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/162034v3pzanlp3oulellb.jpg" referrerpolicy="no-referrer">
+
