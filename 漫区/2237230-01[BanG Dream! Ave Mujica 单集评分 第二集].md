@@ -1378,3 +1378,14 @@ op全是mujica哪来的立希啊<img src="https://static.saraba1st.com/image/smi
 
 根据新获得的信息调整自己的观点是那么困难的事吗
 
+
+*****
+
+####  aptx8285144  
+##### 143#       发表于 2025-1-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151844&amp;ptid=2237230" target="_blank">PascalLefèvre 发表于 2025-1-11 10:22</a>
+
+素世什么时候又变成小丑搞笑角色了</blockquote>
+讲道理，第10话我是来结束乐队的还不够搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，至于小丑与否，我是觉得她作了那么多，然而最后的逼格被灯皇拿走了大半，团队复合的功劳基本上是爱音和灯的，复辟的梦想也基本破灭，反正我觉得是有些小丑
+
