@@ -2839,3 +2839,16 @@ Animage 2025年2月号
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一心而用  
+##### 7647#       发表于 2025-1-12 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157863&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-1-12 04:03</a>
+你说邦老登还是go老登？邦老登对🐔🐶可没啥好感
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+老登＝木谷高明
+<img src="https://p.sda1.dev/21/d8423b1025ea86d5b1a10b38461611c4/image.jpg" referrerpolicy="no-referrer">
+
