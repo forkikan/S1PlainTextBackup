@@ -2716,3 +2716,32 @@ pv画面都剧透了 祥子和睦疯狂互动  
 以海铃的贝斯盒里的相片等来看，我觉得她也未必出身于什么正常家庭。要我来写脚本的话，就写成她是孤儿出 ...</blockquote>
 这个展开不错 但是和op的银荡脸有点难接上...
 
+
+*****
+
+####  结衣小比取  
+##### 7637#       发表于 2025-1-11 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155973&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-11 22:08</a>
+
+第六话看完集体自闭是哪个访谈里的？求一个</blockquote>
+没自闭，只是看完前六话午休吃韩国菜的时候保持了沉默
+Animage 2025年2月号
+
+高尾和渡濑的声优访谈
+
+
+*****
+
+####  新HGCG  
+##### 7638#       发表于 2025-1-12 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67156653&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-11 23:59</a>
+
+没自闭，只是看完前六话午休吃韩国菜的时候保持了沉默
+
+Animage 2025年2月号
+
+高尾和渡濑的声优访谈</blockquote>
+韩国菜难吃得让人说不出话吧？
+

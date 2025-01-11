@@ -116,3 +116,11 @@
 
 有陈睿版相当于没有字幕，翻一下楼就知道上季第一集就给你剪了
 
+
+*****
+
+####  qtnzp  
+##### 194#       发表于 2025-1-12 00:01
+
+好气CR版9国语言无中文<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
