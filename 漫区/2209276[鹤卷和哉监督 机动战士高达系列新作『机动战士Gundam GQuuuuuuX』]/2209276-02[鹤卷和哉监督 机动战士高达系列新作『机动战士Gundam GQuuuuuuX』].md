@@ -12443,3 +12443,41 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 一个月没关注怎么主角要成哈曼代餐了？还有升重高达的译名是怎们来的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 2513#       发表于 2025-1-11 15:49
+
+<blockquote>JimmyJoker 发表于 2025-1-11 15:41
+一个月没关注怎么主角要成哈曼代餐了？还有升重高达的译名是怎们来的啊？ ...</blockquote>
+
+就是字面翻译的
+
+<img src="https://img.saraba1st.com/forum/202501/11/154835l1ra1ttnaln1r1un.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>47DB2C29-AFDE-4712-A6BD-4380EDCFD3A2.jpeg</strong> (115.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 15:48 上传
+
+*****
+
+####  虛無迴廊  
+##### 2514#       发表于 2025-1-11 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153194&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2025-1-11 14:14</a>
+人设的话，眼睛普遍都太大了，特别是主角，跟脸盆似的，看着难受。</blockquote>
+眼睛其实跟乱马之类的大小差不多吧，要说有什么问题就是玛秋的下眼线经常只画前半段，又因为没有下睫毛，容易幻视眼袋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xunit  
+##### 2515#       发表于 2025-1-11 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152909&amp;ptid=2209276" target="_blank">patema 发表于 2025-1-11 13:20</a>
+夏利亚其实pv2才是应该的样子吧，我记得夏利亚其实也就奔3。79的人设看的像奔6 ...</blockquote>
+元祖的人设普遍比设定年龄老上个10～20岁，吉翁的角色更是重灾区
+

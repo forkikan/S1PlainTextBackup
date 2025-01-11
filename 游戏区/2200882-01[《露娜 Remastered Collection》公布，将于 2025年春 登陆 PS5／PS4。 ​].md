@@ -454,3 +454,14 @@ SS的魔法学院是GG的散步学院的重制。背景是初代300年前
 NDS上还有个龙歌，背景是初代1000年前 ...</blockquote>
 NDS上哪个据说跑步会掉血，非常离谱。
 
+
+*****
+
+####  弥勒  
+##### 46#       发表于 2025-1-11 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153509&amp;ptid=2200882" target="_blank">ds2324ds2 发表于 2025-1-11 15:13</a>
+
+NDS上哪个据说跑步会掉血，非常离谱。魔法学院我在ss上通关过，但是也没搞明白是在说什么。 ...</blockquote>
+还有战斗模式要经验和道具二选一，非常奇葩
+
