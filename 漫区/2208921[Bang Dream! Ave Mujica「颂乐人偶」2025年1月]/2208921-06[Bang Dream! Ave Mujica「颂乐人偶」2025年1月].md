@@ -1995,3 +1995,55 @@ Ave Mujica的世界观也会被一起燃烧殆尽的！
 
 2025-1-11 15:14 上传
 
+
+*****
+
+####  玖羽  
+##### 7570#       发表于 2025-1-11 15:32
+
+ 本帖最后由 玖羽 于 2025-1-11 15:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153462&amp;ptid=2208921" target="_blank">car123 发表于 2025-1-11 15:04</a>
+
+不过第三集感觉节奏太快了，有很多发展想想很清楚但动画里没给足够的时间展现，特别是结尾来个大的，第四集咋演哦</blockquote>
+第三集：结尾来个大的，第四集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 
+
+第四集：结尾来个大的，第五集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer"> 
+
+第五集：结尾来个大的，第六集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer"> 
+
+第六集：结尾来个大的，第七集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 
+
+第七集：结尾来个大的，第八集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer"> 
+
+第八集：结尾来个大的，第九集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> 
+
+第九集：结尾来个大的，第十集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 
+
+第十集：结尾来个大的，第十一集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer"> 
+
+第十一集：结尾来个大的，第十二集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer"> 
+
+第十二集：结尾来个大的，第十三集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 
+
+第十三集：包 <img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  一心而用  
+##### 7571#       发表于 2025-1-11 15:36
+
+作者见水印
+<img src="https://p.sda1.dev/21/c885fa7ead3b922a238ac23fe89421bf/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 7572#       发表于 2025-1-11 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153462&amp;ptid=2208921" target="_blank">car123 发表于 2025-1-11 15:04</a>
+
+少女乐队番的受害者都出现了，心理承受能力低的看第三集要慎重啊
+
+不过第三集感觉节奏太快了，有很多发展想 ...</blockquote>
+为了不让情绪流中断，2、3集场景都切得很快，只讲有用的东西
+
