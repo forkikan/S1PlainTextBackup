@@ -1448,3 +1448,49 @@ rikki决策一直都很直接呀。第一季soyo润了之后直接把海玲拉�
 阿B把“要点脸吧”改成了别太厚颜无耻了。
 <img src="https://p.sda1.dev/21/f7ed0ac8429d438005c33ad6f7cae9ea/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无事忙  
+##### 7531#       发表于 2025-1-11 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151670&amp;ptid=2208921" target="_blank">世界如此可爱 发表于 2025-1-11 09:48</a>
+
+直接上动画疯啊，非会员也可以看720P的</blockquote>
+这个……你是说去动画疯那儿在线看吧，也不是不行……就是港澳台的魔法上网有一点点麻烦……
+
+还有就是下载到本地有一些别的妙用。
+
+不过，已经好了，找到资源了。
+
+*****
+
+####  无事忙  
+##### 7532#       发表于 2025-1-11 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151938&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-11 10:37</a>
+
+阿B把“要点脸吧”改成了“别太厚颜无耻”了。</blockquote>
+笑死，挺喜欢要点脸吧这个翻译的。
+
+日语熟悉的坛友能不能说说哪个翻译更贴切？
+
+*****
+
+####  fsfs_freeze  
+##### 7533#       发表于 2025-1-11 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097421&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-3 19:06</a>
+初华总不能发现成hsl里的砂糖，祥子就是她眼中的盐吧，要是这么来我要打差评了 ...</blockquote>
+看了🍩女士发觉这不会成真的了吧，🍩女士就是被砂糖铜丝的翔子<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高妹控  
+##### 7534#       发表于 2025-1-11 11:24
+
+B站的4K不知道是不是原生4K，还是用软件升频的，总之观感不错，也让大会员值回点票价
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
