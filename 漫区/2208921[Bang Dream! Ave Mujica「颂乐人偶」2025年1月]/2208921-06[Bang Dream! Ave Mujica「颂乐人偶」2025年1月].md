@@ -2405,3 +2405,14 @@ pv画面都剧透了 祥子和睦疯狂互动  
 那个黄瓜田要废了肯定有回收的啊，估计就是soyo知道了但是无法再次面对睦了吧，睦恢复正常后再次去黄瓜田， ...</blockquote>
 这样确实不错，嘴臭但还是有关心。虽然我感觉没有的可能更高
 
+
+*****
+
+####  KLHgg  
+##### 7606#       发表于 2025-1-11 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150610&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-11 00:12</a>
+
+所以鸡团光速武道馆导致不光是kkr不能客串，楚平方和ykn估计也不能出现了吧，不然这俩牙都要咬碎了。 ...</blockquote>
+你邦现阶段有谁的人设是看不得新团发光发亮的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 楚平方只剩傲娇了
+
