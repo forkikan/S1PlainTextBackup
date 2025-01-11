@@ -201,3 +201,13 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 <blockquote>不过，就咱对小高指导的几次LIVE看下来的刻板印象而言，后面三场的曲单应该真的会有极高的重复度...</blockquote>看来咱对小高的刻板印象还是维持住了。等下可以安心吃晚饭去了。
 
+
+*****
+
+####  Alicest  
+##### 6834#       发表于 2025-1-11 18:21
+
+今日现地(沪)
+<img src="https://p.sda1.dev/21/cc81cd13c4a9031898a9914fed208d42/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0631230291209076d1602d2535fc097c/image.jpg" referrerpolicy="no-referrer">
+
