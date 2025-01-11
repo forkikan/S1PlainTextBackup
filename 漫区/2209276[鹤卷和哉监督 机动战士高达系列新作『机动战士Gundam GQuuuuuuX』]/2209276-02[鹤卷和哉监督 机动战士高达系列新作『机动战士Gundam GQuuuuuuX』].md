@@ -12561,3 +12561,29 @@ Gg7Jj75bIAEQoy6.jpg
 驾驶服的整体配色风可能是来自永野护的哈曼</blockquote>
 讲道理比起暗搓搓整这些，不如真让永野护回来做机设，日升真欠夜壶一个高达。虽然不是光头可能叫不动他了。
 
+
+*****
+
+####  啤酒炸鸡  
+##### 2520#       发表于 2025-1-11 17:30
+
+<img src="https://img.saraba1st.com/forum/202501/11/172951bbd3c2540j5jha1q.png" referrerpolicy="no-referrer">
+
+<strong>{79992D75-4C9D-42eb-B378-69C3EAC08235}.png</strong> (23.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/172951o4o1od0ddh5h2llj.png" referrerpolicy="no-referrer">
+
+<strong>{6B914AF6-0E52-473b-A712-5A9BB44417E8}.png</strong> (53.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 17:29 上传
+
+女主的名字アマテ可能取自アマテラス，天照神
+
+对应卡碧尼的名字的来源Kybele库伯勒，地母神
+

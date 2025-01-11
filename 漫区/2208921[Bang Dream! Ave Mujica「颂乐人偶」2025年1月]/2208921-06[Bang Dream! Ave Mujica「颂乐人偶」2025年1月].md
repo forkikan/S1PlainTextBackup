@@ -2161,3 +2161,57 @@ sumimi大火街头到处是广告的时候灯在卡拉ok就完全不知道sumimi
 为什么到哪里都能看到素世来救睦的话，祥子自顾不暇所以一定是素世来救到底是什么逻辑呀。 ...</blockquote>
 因为找不到破局的人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">其他人和睦又不熟，这不只剩下素世了吗？
 
+
+*****
+
+####  fsfs_freeze  
+##### 7584#       发表于 2025-1-11 17:29
+
+soyo在ep2的那个态度反而像是彻底和睦祥切割了，感觉都只剩下怨恨了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allesdg  
+##### 7585#       发表于 2025-1-11 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154125&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-11 17:22</a>
+
+为什么到哪里都能看到素世来救睦的话，祥子自顾不暇所以一定是素世来救到底是什么逻辑呀。 ...</blockquote>
+贴吧看到相当多的理解是爽姐压力睦时责问的是睦不是说不喜欢乐队xx，这里责问的是睦本人的想法而不是祥子相关证明这里爽姐关心睦本人，所以也别说原剧怎么演的访谈怎么说的了，想象力，很神奇吧（
+
+*****
+
+####  Ararat  
+##### 7586#       发表于 2025-1-11 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150931&amp;ptid=2208921" target="_blank">dicktt 发表于 2025-1-11 01:36</a>
+
+如果真的狂的必须死个人的话，我看祥父不错……剧情上死了比活着有用</blockquote>
+给一条祥子不是他亲生的更有用，处理剧情比直接死了或者直接无视都好一点，死人还是太极端了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 7587#       发表于 2025-1-11 17:33
+
+自己想看什么和剧情分析是两会事，放在一起说只会让两方人都沟通的很痛苦。鸡团目前其他人都不熟，难道爱音在一开始和灯希素就很熟吗，也没人让鸡团人去拉狗团人呀，剧情走下去自然就熟了呀。
+
+
+*****
+
+####  阿兹尔  
+##### 7588#       发表于 2025-1-11 17:34
+
+最有好感的还是大猫立希海铃这种人，直来直去真是太爽了，不过都是这种人故事也演不下去了
+
+*****
+
+####  山ノ内花音  
+##### 7589#       发表于 2025-1-11 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154144&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-11 17:26</a>
+因为找不到破局的人了其他人和睦又不熟，这不只剩下素世了吗？</blockquote>
+祥子自己不就是破局的人吗
+pv画面都剧透了 祥子和睦疯狂互动  
+自己搞出来的场面 自己收拾很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
