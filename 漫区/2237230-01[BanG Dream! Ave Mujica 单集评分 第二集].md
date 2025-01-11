@@ -1330,3 +1330,31 @@ op全是mujica哪来的立希啊<img src="https://static.saraba1st.com/image/smi
 
 瞎了，原来是海铃
 
+
+*****
+
+####  aptx8285144  
+##### 138#       发表于 2025-1-11 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151639&amp;ptid=2237230" target="_blank">xiaosayang 发表于 2025-1-11 09:41</a>
+
+编剧在素世上的用心程度和立希明显不是一个等级，素世符合人物逻辑的行为和立希这个反复强调只为招笑的标 ...</blockquote>
+首先舔狗这个词是你先提的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，你觉得爽女士符合逻辑，在我看来人物确实没必要一定要讨喜，但是土下座这个程度本来就很极端要指望所有观众都共情是不可能的，更不用说爽女士做死了那么多最后的抵抗竟然是名言梗，这不是女士役（不管是祥子的女士还是旧团的女士）变成小丑的搞笑吗？
+
+最后说团队病人程度，这简直是不用多解释了，就像EVA一样，灯的心理自卑，素世也不用解释了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来就需要团队包容，祥子当然没有一些路人观众说得那么严重但不是一个自我给压力或一直不愿意坦诚相待的人也不至于如此
+
+
+*****
+
+####  PascalLefèvre  
+##### 139#       发表于 2025-1-11 10:22
+
+素世什么时候又变成小丑搞笑角色了
+
+*****
+
+####  aptx8285144  
+##### 140#       发表于 2025-1-11 10:24
+
+不是，GO团除了爱音可能好一些，其他人物多少有点心理病或性格问题难道不是共识，你们不会以为GO团是什么性格好，人好的五好学生团吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
