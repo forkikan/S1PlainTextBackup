@@ -2370,3 +2370,30 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 
 2025-1-11 10:50 上传
 
+
+*****
+
+####  arachnid  
+##### 26817#       发表于 2025-1-11 11:07
+
+“你的意思是说，在一个高中女生既可以通过打audition实现愿望又可以通过打命运大战实现愿望的世界里
+
+大祥老师选择了组中二乐队?”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过怎么说呢，虽然看到爱音客串挺开心的，但是这客串镜头感觉有点怪啊？爱音一个人望着右边一边说话一边走，像是一个在跟空气朋友在说话的人……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/11/105901cbptsp0i0zt2ipjq.gif" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250111105451.gif</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 10:59 上传
+
+*****
+
+####  fsfs_freeze  
+##### 26818#       发表于 2025-1-11 11:11
+
+这除了手臂动都不动也太怪了
+
