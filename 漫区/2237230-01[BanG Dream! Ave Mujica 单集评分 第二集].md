@@ -1278,3 +1278,16 @@ op其实她们拿出乐器前完全更像公主代理人的op，ed甚至比有�
 
 由此观，立希在mygo故事里属于是需要爆和冲突的时候直接拿来用一下，其余时间遵循标签复读“哈？”和舔狗
 
+
+*****
+
+####  aptx8285144  
+##### 133#       发表于 2025-1-11 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151013&amp;ptid=2237230" target="_blank">xiaosayang 发表于 2025-1-11 02:38</a>
+
+这里的工具化是指角色没有一个基本的交流能力和合理的行为逻辑，只是为了服务于情节的推动和激化的
+
+立希 ...</blockquote>
+真要这么论的话，爽女士的舔狗程度可是十倍之多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
