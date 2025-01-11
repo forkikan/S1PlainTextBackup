@@ -2136,3 +2136,28 @@ sumimi大火街头到处是广告的时候灯在卡拉ok就完全不知道sumimi
 
 暴露了也是因为几个同学跑爱灯面前不停的说祥子才让灯意识到的，要不是祥子就在隔壁，要瞒住还真不难
 
+
+*****
+
+####  狂热飞鸟  
+##### 7581#       发表于 2025-1-11 17:22
+
+为什么到哪里都能看到素世来救睦的话，祥子自顾不暇所以一定是素世来救到底是什么逻辑呀。
+
+*****
+
+####  山ノ内花音  
+##### 7582#       发表于 2025-1-11 17:24
+
+每个人都有期待自己想看的剧情的权利
+我期待结局是初睦祥三人行<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 7583#       发表于 2025-1-11 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154125&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-11 17:22</a>
+为什么到哪里都能看到素世来救睦的话，祥子自顾不暇所以一定是素世来救到底是什么逻辑呀。 ...</blockquote>
+因为找不到破局的人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">其他人和睦又不熟，这不只剩下素世了吗？
+

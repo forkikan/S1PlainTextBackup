@@ -12550,3 +12550,14 @@ Gg7Jj75bIAEQoy6.jpg
 
 2025-1-11 16:51 上传
 
+
+*****
+
+####  hsyg  
+##### 2519#       发表于 2025-1-11 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153847&amp;ptid=2209276" target="_blank">啤酒炸鸡 发表于 2025-1-11 16:21</a>
+
+驾驶服的整体配色风可能是来自永野护的哈曼</blockquote>
+讲道理比起暗搓搓整这些，不如真让永野护回来做机设，日升真欠夜壶一个高达。虽然不是光头可能叫不动他了。
+

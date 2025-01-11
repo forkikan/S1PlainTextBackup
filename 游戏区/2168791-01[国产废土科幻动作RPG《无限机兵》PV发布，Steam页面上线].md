@@ -1125,3 +1125,11 @@ RPG和ACT的区别~~
 国产废土能不能出个老辐射那样的rpg？国内背景的，那种我还挺想玩的</blockquote>
 辐射红色彼岸就从来没一撇，原子RPG引擎的辐射上海也是虚空项目
 
+
+*****
+
+####  荆棘花冠  
+##### 119#       发表于 2025-1-11 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新的部分特效看着跟噬血代码样的
+
