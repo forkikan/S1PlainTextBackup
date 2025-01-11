@@ -1494,3 +1494,13 @@ B站的4K不知道是不是原生4K，还是用软件升频的，总之观感不
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  HGCG+  
+##### 7535#       发表于 2025-1-11 11:32
+
+<img src="https://p.sda1.dev/21/a3e9f3abb2828c83dc9ee0f54f3cc91d/IMG_CMP_99593712.jpeg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
