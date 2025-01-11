@@ -12516,3 +12516,37 @@ Gg7Jj75bIAEQoy6.jpg
 驾驶服的整体配色风可能是来自永野护的哈曼</blockquote>
 针织帽原来是致敬这个吗（
 
+
+*****
+
+####  夜雨秋水  
+##### 2518#       发表于 2025-1-11 16:51
+
+<blockquote>cih 发表于 2025-1-11 15:10
+因为这人设朱紫我都玩不下去，觉得多少沾点正确朱紫才出这个画师</blockquote>
+有没有可能，画师从日月开始就为pm设计角色了（日月以太基金会、剑盾所有的馆主、传阿刚石朱贝男女主），有没有可能，朱紫本体他只负责了四天王和冠军，有没有可能，人家不是只有一种画风，gf自己选的怪谁？
+
+<img src="https://img.saraba1st.com/forum/202501/11/165103cbhgh8tfhtkg2kfl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-11-16-50-18-233_com.miui.gallery.jpg</strong> (303.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/165111fhzn7xz33sxfhhjh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-11-16-49-57-621_com.miui.gallery.jpg</strong> (287.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/165136rgl5lbgsslme5kle.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-11-16-51-27-393_com.miui.gallery.jpg</strong> (216.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 16:51 上传
+
