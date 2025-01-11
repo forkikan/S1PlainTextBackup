@@ -1708,3 +1708,56 @@ ttps://x.com/zhanzhangzlw/status/1877785646171124114
 
 by池袋二刷感想
 
+
+*****
+
+####  结衣小比取  
+##### 7550#       发表于 2025-1-11 12:59
+
+有些动画正式开播后才进楼坛友可能没看过，发一下链接
+[animage 2025年1月号的Ave Mujica监督访谈](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66885410)
+
+*****
+
+####  结衣小比取  
+##### 7551#       发表于 2025-1-11 13:00
+
+坛友分析剧情居然上了AI判断人物视线方向
+
+<img src="https://img.saraba1st.com/forum/202501/11/125944xw8t7vqwqwp8sv5y.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-11_12-53-00.jpg</strong> (357.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/125943hz7yino67z6weyko.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-11_12-53-17.jpg</strong> (330.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/125943n3zmkxx5yxi3x1dg.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-11_12-53-45.jpg</strong> (272.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 12:59 上传
+
+[https://www.bilibili.com/video/BV1F5cpedEeK](https://www.bilibili.com/video/BV1F5cpedEeK)
+
+*****
+
+####  linekm  
+##### 7552#       发表于 2025-1-11 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152186&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-11 11:17</a>
+笑死，挺喜欢要点脸吧这个翻译的。
+
+日语熟悉的坛友能不能说说哪个翻译更贴切？ ...</blockquote>
+这话直译就是厚颜无耻，我觉得翻译成要点脸没啥问题，挺符合中文口语的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
