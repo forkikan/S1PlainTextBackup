@@ -396,3 +396,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">小高整的什么烂活，是想看这些吗
 
+
+*****
+
+####  はらみー  
+##### 6851#       发表于 2025-1-11 21:53
+
+妈的第二场还是好不容易抽到的第一排
+
