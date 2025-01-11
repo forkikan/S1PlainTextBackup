@@ -10225,3 +10225,21 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 10连友珠到手，欧得我都有点怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 16052#       发表于 2025-1-11 17:47
+
+<blockquote>希望之花 发表于 2025-1-11 17:46
+神tm绿色奶龙</blockquote>
+你不如说双足飞龙再临了233
+
+
+*****
+
+####  alucardcz  
+##### 16053#       发表于 2025-1-11 17:56
+
+4星5星是不是标反了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

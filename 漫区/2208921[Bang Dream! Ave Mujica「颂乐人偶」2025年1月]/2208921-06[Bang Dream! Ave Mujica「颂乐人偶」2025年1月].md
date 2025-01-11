@@ -2257,3 +2257,56 @@ pv画面都剧透了 祥子和睦疯狂互动  
  ...</blockquote>
 这种帮睦的人选祥子以下就一定是素世的态度也很让人无语，喵海都等着塑造戏份呢好吗
 
+
+*****
+
+####  ads147147  
+##### 7593#       发表于 2025-1-11 17:49
+
+真要说能读懂睦在说什么的也就是灯了，不过感觉灯还是祥子那条线的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 7594#       发表于 2025-1-11 17:54
+
+睦现在已经不说话了所以才是最难分析的 
+谁来都也不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能自己先能说话了
+别人才能辅助
+
+
+*****
+
+####  新HGCG  
+##### 7595#       发表于 2025-1-11 17:56
+
+对了
+
+现在主要角色里是不是只有睦知道祥子穷了
+
+*****
+
+####  阿兹尔  
+##### 7596#       发表于 2025-1-11 17:58
+
+睦需要的:
+
+<img src="https://img.saraba1st.com/forum/202501/11/175806uto5yt0na56otr50.png" referrerpolicy="no-referrer">
+
+<strong>Image_1318018516814451.png</strong> (22.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/175748ey6rckmqa6m0su95.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-11-17-53-29-85_090d9ae461b065ca11c329abb9cd0d70.jpg</strong> (345.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 17:57 上传
+

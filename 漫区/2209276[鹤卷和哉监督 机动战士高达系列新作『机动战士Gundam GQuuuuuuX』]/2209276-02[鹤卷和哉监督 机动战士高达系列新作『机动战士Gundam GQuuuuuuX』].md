@@ -12595,3 +12595,13 @@ Gg7Jj75bIAEQoy6.jpg
 
 住手啊，不要再挖了，越看越真<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cih  
+##### 2522#       发表于 2025-1-11 17:50
+
+<blockquote>夜雨秋水 发表于 2025-1-11 16:51
+有没有可能，画师从日月开始就为pm设计角色了（日月以太基金会、剑盾所有的馆主、传阿刚石朱贝男女主）， ...</blockquote>
+好吧 不说这画风朱紫能和剑盾一个人那真不知道。
+
