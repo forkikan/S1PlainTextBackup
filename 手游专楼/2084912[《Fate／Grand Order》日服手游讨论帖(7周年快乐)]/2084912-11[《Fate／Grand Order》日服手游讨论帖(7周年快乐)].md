@@ -10417,3 +10417,16 @@ F1阿尔法罗密欧车队知道吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了这次新出的活动池礼装才发现怎么活动加成角色不带妖兰玩
 
+
+*****
+
+####  大十字紅朔  
+##### 16071#       发表于 2025-1-11 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154246&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-1-11 17:43</a>
+
+这眼镜黑长直谁啊，又是没人认识的日本从者吗OTZ
+
+五星更是重量级，你画的这谁啊 ...</blockquote>
+喰霊零里面来客串的吧
+
