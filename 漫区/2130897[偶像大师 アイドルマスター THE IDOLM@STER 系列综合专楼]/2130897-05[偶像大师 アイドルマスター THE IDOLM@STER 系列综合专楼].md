@@ -361,3 +361,20 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 我在歌单里没看到那首1/3的时候就猜到小高肯定要整活，以他的尿性肯定要搞点神奇演出让儿力自己出来唱这首歌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lunaticfool  
+##### 6847#       发表于 2025-1-11 20:02
+
+幽默小高，还好我去看的第一场<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 6848#       发表于 2025-1-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154444&amp;ptid=2130897" target="_blank">Alicest 发表于 2025-1-11 18:21</a>
+今日现地(沪)</blockquote>
+羽娜的立牌卖的断层的快，震惊
+
