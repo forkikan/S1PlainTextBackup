@@ -300,3 +300,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 小女孩「那边的大叔们是不是从600号逃出来的啊？」
 
+
+*****
+
+####  冰寒之月  
+##### 6843#       发表于 2025-1-11 19:04
+
+儿力emo了 算是关心美琴怪味糖吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

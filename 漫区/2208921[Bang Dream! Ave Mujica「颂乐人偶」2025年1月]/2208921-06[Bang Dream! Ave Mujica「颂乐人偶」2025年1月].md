@@ -2416,3 +2416,34 @@ pv画面都剧透了 祥子和睦疯狂互动  
 所以鸡团光速武道馆导致不光是kkr不能客串，楚平方和ykn估计也不能出现了吧，不然这俩牙都要咬碎了。 ...</blockquote>
 你邦现阶段有谁的人设是看不得新团发光发亮的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 楚平方只剩傲娇了
 
+
+*****
+
+####  yone0000  
+##### 7607#       发表于 2025-1-11 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154434&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-11 18:20</a>
+
+【在舞台上魔女化的小睦-哔哩哔哩】 https://b23.tv/9IH6u7m</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下个礼拜就被玩偶吃了
+
+*****
+
+####  hqtkkb  
+##### 7608#       发表于 2025-1-11 19:02
+
+看完第二集了，木头人是真的惨啊，鸡团的其他人有事时大概都能找到倾诉的对象（喵梦或许没有？不过成年人抗压怎么都强点），独独这位甚至还得被soyo补刀。
+
+看的时候就一直想吐槽了：真就没一个人去找睦头说说话聊聊天啊，到最后只能抱着个吉他求安心，也难怪最后要崩。。。
+
+不过可能是和睦头人是个面瘫存在感低有关吧——大祥你居然一点都没看出来，作为半身的纯度太低了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 7609#       发表于 2025-1-11 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154661&amp;ptid=2208921" target="_blank">yone0000 发表于 2025-1-11 19:01</a>
+下个礼拜就被玩偶吃了</blockquote>
+真·魔女化了。
+
