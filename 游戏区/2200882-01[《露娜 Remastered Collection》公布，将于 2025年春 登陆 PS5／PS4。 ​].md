@@ -487,3 +487,14 @@ NDS上哪个据说跑步会掉血，非常离谱。魔法学院我在ss上通关
 
 还挺怀念的
 
+
+*****
+
+####  ds2324ds2  
+##### 49#         楼主| 发表于 2025-1-11 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153824&amp;ptid=2200882" target="_blank">eilot 发表于 2025-1-11 16:16</a>
+
+魔法學園最神奇的地方是，雖然移動的話MP是會超慢恢復(GAMEGEAR版則是站著不動短時間才開始慢慢恢復)，但 ...</blockquote>
+SS遇敌率高的吓人，我一开始不知道防御能回复mp所以完全打不动。只能尽量在boss面前升级（加满hpmp）。另外我很喜欢魔法学院的OP，就可惜找不到高质量的版本。
+

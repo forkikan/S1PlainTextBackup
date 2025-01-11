@@ -308,3 +308,40 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 儿力emo了 算是关心美琴怪味糖吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6844#       发表于 2025-1-11 19:09
+
+ 本帖最后由 wfhtony 于 2025-1-11 19:14 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/11/191406o217t71427iitua7.jpg" referrerpolicy="no-referrer">
+
+<strong>283 Production LIVE Performance [liminal;marginal;eternal] [odd;2]（生放送）.ts_.jpg</strong> (47.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/191406ntn8nl8lllkskk9s.jpg" referrerpolicy="no-referrer">
+
+<strong>283 Production LIVE Performance [liminal;marginal;eternal] [odd;2]（生放送）.ts_.jpg</strong> (156.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/191407zql88n5v3v8bh8pq.jpg" referrerpolicy="no-referrer">
+
+<strong>283 Production LIVE Performance [liminal;marginal;eternal] [odd;2]（生放送）.ts_.jpg</strong> (110.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 19:14 上传
+
+ルカ无言退场。
+
+=====
+[「283 Production LIVE Performance [liminal;marginal;eternal]」上海公演问卷调研](https://www.wjx.cn/vm/QAWm4VG.aspx)
+
