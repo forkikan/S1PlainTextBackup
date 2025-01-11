@@ -1387,3 +1387,13 @@ Steam上有人整理了背景设定。
 
 问个剧情相关的问题，前几关的boss战不去跟天使对话直接打剧情会有影响吗
 
+
+*****
+
+####  ParadiseMartyr  
+##### 129#         楼主| 发表于 2025-1-11 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154704&amp;ptid=2236671" target="_blank">DawnGuardian 发表于 2025-1-11 19:08</a>
+问个剧情相关的问题，前几关的boss战不去跟天使对话直接打剧情会有影响吗</blockquote>
+没有影响，大概就是说什么我们想要献身救人类之类的话，不要犹豫，直接使用我们吧
+
