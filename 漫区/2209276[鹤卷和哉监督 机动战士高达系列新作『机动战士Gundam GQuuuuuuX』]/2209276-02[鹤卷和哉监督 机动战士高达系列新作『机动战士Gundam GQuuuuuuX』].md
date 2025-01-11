@@ -12883,3 +12883,14 @@ PV2还出现了把他们都干掉这种台词
 驾驶服的整体配色风可能是来自永野护的哈曼</blockquote>
 这不是天照女儿么
 
+
+*****
+
+####  wasssf  
+##### 2549#       发表于 2025-1-12 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154106&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-1-11 17:19</a>
+
+讲道理比起暗搓搓整这些，不如真让永野护回来做机设，日升真欠夜壶一个高达。虽然不是光头可能叫不动他了 ...</blockquote>
+光头倒a找他也叫不动，但是brainpowerd就答应了，人只是高达ptsd了，毕竟几次光头找他做高达机设然后被日升万代否
+
