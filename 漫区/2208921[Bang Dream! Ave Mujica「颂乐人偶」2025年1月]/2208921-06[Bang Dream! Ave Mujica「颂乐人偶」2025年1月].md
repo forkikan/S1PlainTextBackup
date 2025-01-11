@@ -2816,3 +2816,14 @@ Animage 2025年2月号
 鸡团5个人四个实质没原生家庭支持的，为一个应该家庭生活正常的海玲却最渴望归属感，也正因为此还在刻意保 ...</blockquote>
 像刺猬一样保持着距离抱团取暖<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 7645#       发表于 2025-1-12 03:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了提一嘴，ed画面里有俩个画面已经解明是在neta啥了，海玲玻璃罩拿着花的画面应该是neta小王子。睦独自在广场上像跳舞的那个画面，也许是neta音乐之声（这个还不确定）
+音乐之声这电影恰好有提线木偶和家庭纠纷要素
+
+这里我个人做个小推测，睦线重点还是会主要讲睦对自己吉他技术自信起来，其次是不再自卑。毕竟音乐之声和邦邦的主旨都是音乐。而接受自己天生的演技才能反而是次要的，毕竟母鸡卡是乐队而不是表演剧团
+
