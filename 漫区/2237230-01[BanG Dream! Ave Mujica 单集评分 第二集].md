@@ -1435,3 +1435,18 @@ mygo的戏份目前看来更多是作为母鸡卡影响力的一个波及和高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">睦头丢书是不是就在下一集了
 
+
+*****
+
+####  sauron.j  
+##### 149#       发表于 2025-1-11 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151877&amp;ptid=2237230" target="_blank">fsfs_freeze 发表于 2025-1-11 10:26</a>
+
++2
+
+不出人意料式的舆论爆炸了，wsd这也是你所期望的吗。
+
+看了下说不太好的多是因为节奏太快了，也确实，包 ...</blockquote>
+正确的心态将其看做gojica第15话，是一个半年番的后期叙事节奏，就有准备了
+

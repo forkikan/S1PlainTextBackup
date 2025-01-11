@@ -2215,3 +2215,45 @@ soyo在ep2的那个态度反而像是彻底和睦祥切割了，感觉都只剩�
 pv画面都剧透了 祥子和睦疯狂互动  
 自己搞出来的场面 自己收拾很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 7590#       发表于 2025-1-11 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154199&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-11 17:36</a>
+祥子自己不就是破局的人吗
+pv画面都剧透了 祥子和睦疯狂互动  
+自己搞出来的场面 自己收拾很正常 ...</blockquote>
+也是，mygo第10话之前很难想到灯可以一话破局。
+
+*****
+
+####  uhiuk  
+##### 7591#       发表于 2025-1-11 17:42
+
+<blockquote>狂热飞鸟 发表于 2025-1-11 17:22
+为什么到哪里都能看到素世来救睦的话，祥子自顾不暇所以一定是素世来救到底是什么逻辑呀。 ...</blockquote>
+虽然后半句话楼里翻译的访谈可以说是明示了吧，祥子后面肯定会有虽然自顾不暇但是仍然去捞人的情节的
+
+<img src="https://img.saraba1st.com/forum/202501/11/174222uqomezwoamdlar6o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250111_174040.jpg</strong> (90.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 17:42 上传
+
+
+*****
+
+####  狂热飞鸟  
+##### 7592#       发表于 2025-1-11 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154235&amp;ptid=2208921" target="_blank">uhiuk 发表于 2025-1-11 17:42</a>
+
+虽然后半句话楼里翻译的访谈可以说是明示了吧，祥子后面肯定会有虽然自顾不暇但是仍然去捞人的情节的
+
+ ...</blockquote>
+这种帮睦的人选祥子以下就一定是素世的态度也很让人无语，喵海都等着塑造戏份呢好吗
+
