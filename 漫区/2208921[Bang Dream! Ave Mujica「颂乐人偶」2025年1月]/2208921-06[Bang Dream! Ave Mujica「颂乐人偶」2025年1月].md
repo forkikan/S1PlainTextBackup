@@ -2514,3 +2514,43 @@ pv画面都剧透了 祥子和睦疯狂互动  
 
 大喵老师又是哪个学校出的高手了
 
+
+*****
+
+####  一心而用  
+##### 7617#       发表于 2025-1-11 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155433&amp;ptid=2208921" target="_blank">lunaticfool 发表于 2025-1-11 20:46</a>
+大喵老师又是哪个学校出的高手了</blockquote>
+和LAYER前辈一个学校。
+
+*****
+
+####  一心而用  
+##### 7618#       发表于 2025-1-11 20:51
+
+真有人会看错吗？
+<img src="https://p.sda1.dev/21/d09928f123ca18617cfe6bb51a07fcb8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/df7eafca227af56d83aa03193f7a2dea/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/048eb89b359ae0fa10e0aaabeb078dbe/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IWS2000| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  AnnieLeonhart  
+##### 7619#       发表于 2025-1-11 20:57
+
+前面说这些年的少女乐队片是写作组乐队读作谈恋爱，没想到母鸡卡到了写作组乐队读作魔法少女的境界<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
