@@ -1463,3 +1463,14 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  khxooo  
+##### 46956#       发表于 2025-1-12 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67136414&amp;ptid=1712412" target="_blank">小妻水亚美 发表于 2025-1-9 13:13</a>
+
+冲刺福袋 四缺三都可以不new 这还是上头小号也抽四缺三福袋的情况，连着两个四缺三不new 你游真不是读box游 ...</blockquote>
+太正常了，我3分2都能不NEW的，绝对是读BOX的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
