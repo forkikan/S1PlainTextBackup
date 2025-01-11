@@ -961,3 +961,13 @@ Warhammer 40,000:Space Marine 2</blockquote>
 
 堵嘴最好用的还是霍格沃兹之遗，全价两千万，提名都没有，哭哭惹
 
+
+*****
+
+####  BRAVADO  
+##### 87#         楼主| 发表于 2025-1-11 22:54
+
+<blockquote>ultraseven 发表于 2025-1-11 10:31
+DICE的技术奖提名出来了</blockquote>
+这game direction和goty提名完全不一样也是神奇
+
