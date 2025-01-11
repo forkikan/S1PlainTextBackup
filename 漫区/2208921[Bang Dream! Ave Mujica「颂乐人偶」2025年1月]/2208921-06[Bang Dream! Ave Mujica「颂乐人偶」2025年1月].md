@@ -2640,3 +2640,35 @@ pv画面都剧透了 祥子和睦疯狂互动  
 
 [https://x.com/Raito_Taisha/status/1878059377204007082/photo/2](https://x.com/Raito_Taisha/status/1878059377204007082/photo/2)
 
+
+*****
+
+####  半年  
+##### 7630#       发表于 2025-1-11 23:06
+
+<img src="https://p.sda1.dev/21/d9d4df79670986a9f6a7f98437a0bfc2/Gg4CaOlaYAA__VP.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Gemini_mujou/status/1877440750192931181/photo/1](https://x.com/Gemini_mujou/status/1877440750192931181/photo/1)
+
+*****
+
+####  oldgoat  
+##### 7631#       发表于 2025-1-11 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67156106&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-11 22:30</a>
+
+鸡团5个人四个实质没原生家庭支持的，为一个应该家庭生活正常的海玲却最渴望归属感，也正因为此还在刻意保 ...</blockquote>
+以海铃的贝斯盒里的相片等来看，我觉得她也未必出身于什么正常家庭。要我来写脚本的话，就写成她是孤儿出身，被一队乐队收养长大，后来那乐队散架就相当于家没了，所以四处当雇佣兵寻找家的感觉。
+
+不过五条独狼互相舔伤口这个方向我倒很赞同，其实这个在mygo13话祥子说她们是“一丘之貉”时已经提示了。
+
+
+*****
+
+####  半年  
+##### 7632#       发表于 2025-1-11 23:13
+
+<img src="https://p.sda1.dev/21/05b02f13cb5e0da3874931c46ff8205d/GhAXm9tasAAPoEB.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/GoodsmileP/status/1878027034515112113/photo/1](https://x.com/GoodsmileP/status/1878027034515112113/photo/1)
+
