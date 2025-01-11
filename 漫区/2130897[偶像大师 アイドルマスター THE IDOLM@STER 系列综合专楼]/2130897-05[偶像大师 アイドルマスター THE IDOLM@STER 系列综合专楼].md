@@ -238,3 +238,65 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 14. フェアリー・ガール // 七草にちか</blockquote>
 美琴退场是剧情设计，不过歌单不是还是没改么...
 
+
+*****
+
+####  magicc  
+##### 6837#       发表于 2025-1-11 18:38
+
+高山的活还是太密了
+
+*****
+
+####  Alicest  
+##### 6838#       发表于 2025-1-11 18:43
+
+到底播片不播片啊
+<img src="https://p.sda1.dev/21/1eec2004450db6299c3c657cc75d9af7/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰寒之月  
+##### 6839#       发表于 2025-1-11 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154558&amp;ptid=2130897" target="_blank">Alicest 发表于 2025-1-11 18:43</a>
+
+到底播片不播片啊</blockquote>
+是每场有个单独的播片剧本吧
+
+*****
+
+####  Alicest  
+##### 6840#       发表于 2025-1-11 18:45
+
+附带紫月reaction
+<img src="https://p.sda1.dev/21/65e434affd83ec91c7b7b82f98d02b19/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hentai君  
+##### 6841#       发表于 2025-1-11 18:45
+
+整活，肯定是播片。
+
+*****
+
+####  wfhtony  
+##### 6842#       发表于 2025-1-11 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154444&amp;ptid=2130897" target="_blank">Alicest 发表于 2025-1-11 18:21</a>
+
+今日现地(沪)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/11/184348vggxgp636fptzp33.png" referrerpolicy="no-referrer">
+
+<strong>偶像大师_アイドルマスター_THE_IDOLM@STER_系列综合专楼_-_第171页_-_动漫论坛_2025-.png</strong> (57.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 18:43 上传
+
+小女孩「那边的大叔们是不是从600号逃出来的啊？」
+
