@@ -353,3 +353,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 太有演出了，合着除了中途断一下少一人之后还是该干嘛干嘛是吧
 
+
+*****
+
+####  Alleyht  
+##### 6846#       发表于 2025-1-11 19:38
+
+我在歌单里没看到那首1/3的时候就猜到小高肯定要整活，以他的尿性肯定要搞点神奇演出让儿力自己出来唱这首歌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
