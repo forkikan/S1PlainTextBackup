@@ -1417,3 +1417,18 @@ Steam上有人整理了背景设定。
 
 我看地图终点还有个对话npc，但往前走就被吸进洞里进入下一章了，这里有不被吸走的分支吗？
 
+
+*****
+
+####  ParadiseMartyr  
+##### 131#         楼主| 发表于 2025-1-12 00:46
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-12 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67156638&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-11 23:55</a>
+打完第四章了，竟然还有火车关卡
+
+3-?有段地图的布局是照搬一代的
+
+2代的属性点好强，减少护甲损失点满、满甲 ...</blockquote>
+没有的吧，我也是被吸走了。那个NPC是主角弟弟(就前面在每章结尾出来的襁褓里的NPC)，那个NPC大概心意是希望姐姐自由幸福活下去别再为没能保护好他而自责而被拘束
+
