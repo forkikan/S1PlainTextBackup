@@ -1504,3 +1504,79 @@ B站的4K不知道是不是原生4K，还是用软件升频的，总之观感不
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  南宮凝香  
+##### 7536#       发表于 2025-1-11 11:39
+
+<blockquote>dicktt 发表于 2025-1-11 01:36
+如果真的狂的必须死个人的话，我看祥父不错……剧情上死了比活着有用</blockquote>
+真要死人當然是死老登
+
+中登死了祥子就只剩下心結，沒有障礙了
+
+心結這種東西十個人圍著她邦三天三夜就解決了
+
+老登死了那是真心靈跟物理上都被迫到背後就是莫斯科
+
+*****
+
+####  玖羽  
+##### 7537#       发表于 2025-1-11 11:40
+
+ 本帖最后由 玖羽 于 2025-1-11 11:41 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/11/113857qgiznnwzz5wk45ss.jpg" referrerpolicy="no-referrer">
+
+<strong>GghA20KawAA_osb_orig.jpg</strong> (219.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:38 上传
+
+ttps://x.com/doran7280/status/1875820566801973607
+
+<img src="https://img.saraba1st.com/forum/202501/11/113856wzpq6rus9cksu9gd.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg8D28-a8AA_Ysa_orig.jpg</strong> (439.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:38 上传
+
+ttps://x.com/wvwvvwvvwv1/status/1877723820989067377
+
+<img src="https://img.saraba1st.com/forum/202501/11/113857fhlaeiehuq7m9xee.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg87XzubYAAZeaT_orig.jpg</strong> (524.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:38 上传
+
+ttps://x.com/zhanzhangzlw/status/1877785646171124114
+
+<img src="https://img.saraba1st.com/forum/202501/11/113856s7uqx7uuhqt9zd4u.jpg" referrerpolicy="no-referrer">
+
+<strong>dd.jpg</strong> (132.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:38 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/114025hcct79c0crfc9cid.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (35.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:40 上传
+
+*****
+
+####  ml1642879  
+##### 7538#       发表于 2025-1-11 11:41
+
+図々しい本意是厚颜无耻，原句是陈述句，要点脸偏口语化，祥子说话都是比较有家教且文绉绉的，改动后比较符合人设，硬要挑刺的话就是把直球你太厚颜无耻了改成了劝诫别太厚颜无耻
+
