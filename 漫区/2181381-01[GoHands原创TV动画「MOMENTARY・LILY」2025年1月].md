@@ -613,3 +613,11 @@ gohands 这展开倒是不意外，之前的 Praeter之伤也是如此
 感觉前两集说的那些乱七八糟的东西全成了废话
 突然有兴趣看下去了
 
+
+*****
+
+####  cat1230  
+##### 110#       发表于 2025-1-11 23:01
+
+两集死一个，最终话全部挂了，大呼过瘾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

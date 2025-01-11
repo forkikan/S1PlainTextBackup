@@ -404,3 +404,21 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 妈的第二场还是好不容易抽到的第一排
 
+
+*****
+
+####  wfhtony  
+##### 6852#       发表于 2025-1-11 22:56
+
+第二场间奏后台下的一些「演出」细节：
+
+<img src="https://img.saraba1st.com/forum/202501/11/225612m9wb9sehbm9s8od9.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1303 - Twitter 上的 m.png</strong> (441.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 22:56 上传
+
+via [Twitter](https://x.com/divine_mutton/status/1878049470883193275)
+

@@ -2620,3 +2620,23 @@ pv画面都剧透了 祥子和睦疯狂互动  
 
 不知道喵梦这次能不能逃脱鼓手底边魔咒，好像场外已经有趋势了吧
 
+
+*****
+
+####  半年  
+##### 7628#       发表于 2025-1-11 22:59
+
+<img src="https://p.sda1.dev/21/1b49df79e1eae8ef16e4dabc4ad2bb54/Gg_gFkqbkAAjOSz.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/threetententen/status/1878079420142895434/photo/1](https://x.com/threetententen/status/1878079420142895434/photo/1)
+
+*****
+
+####  半年  
+##### 7629#       发表于 2025-1-11 22:59
+
+<img src="https://p.sda1.dev/21/8668b9baa70884deb5e83288568a9b5c/GhA0_DyX0AAhUSN.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1ef9cb29be3f4a5dc35affa39ab3ee3f/GhA0_CtXAAAPsiz.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Raito_Taisha/status/1878059377204007082/photo/2](https://x.com/Raito_Taisha/status/1878059377204007082/photo/2)
+
