@@ -430,3 +430,14 @@ Lunar学院么，我也搞不清楚这个和原作的关系，虽然我当时也
 
 而且OP升了一调，简直是不可理喻<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  弥勒  
+##### 44#       发表于 2025-1-11 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150133&amp;ptid=2200882" target="_blank">ds2324ds2 发表于 2025-1-10 22:43</a>
+Lunar学院么，我也搞不清楚这个和原作的关系，虽然我当时也通关了。但是没搞清楚这个和原版的关系。希望 ...</blockquote>
+SS的魔法学院是GG的散步学院的重制。背景是初代300年前
+NDS上还有个龙歌，背景是初代1000年前
+
