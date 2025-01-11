@@ -2106,3 +2106,23 @@ Ave Mujica的世界观也会被一起燃烧殆尽的！
 为了不让情绪流中断，2、3集场景都切得很快，只讲有用的东西</blockquote>
 第2集我觉得蛮合理的，节奏恰到好处，第3集大喵老师变化太快了
 
+
+*****
+
+####  一心而用  
+##### 7578#       发表于 2025-1-11 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153811&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-11 16:14</a>
+有一腿</blockquote>
+立希可能是觉得灯这种一直低着头做自己事情的确实没有情报来源很多事都不会知道。
+只是立希没有料到祥子就在羽丘，而且这个信息一直没人告诉她。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 7579#       发表于 2025-1-11 17:03
+
+海铃的生日4月7日看到有分析，4音读是shi，7训读是nana，而shiina就是椎名，所以一开始就是绑定了的。
+<img src="https://p.sda1.dev/21/7b15dc19a01b40687f25b7114a6c6a04/image.jpg" referrerpolicy="no-referrer">
+
