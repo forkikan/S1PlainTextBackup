@@ -12831,3 +12831,18 @@ PV2还出现了把他们都干掉这种台词
 
 裤袜脱落大尉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARILBALDE  
+##### 2545#       发表于 2025-1-11 20:42
+
+重生之我在side6打黑拳
+重生之我与希洛克不得不说的事
+重生之我的白月光（？）变成了高达
+重生之我的小奶狗（？）去哪儿了
+
+自从哈曼说出现，整部剧的画风好像都不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
