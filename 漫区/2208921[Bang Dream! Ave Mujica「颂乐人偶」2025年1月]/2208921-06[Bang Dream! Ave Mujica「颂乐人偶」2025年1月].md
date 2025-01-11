@@ -2827,3 +2827,15 @@ Animage 2025年2月号
 
 这里我个人做个小推测，睦线重点还是会主要讲睦对自己吉他技术自信起来，其次是不再自卑。毕竟音乐之声和邦邦的主旨都是音乐。而接受自己天生的演技才能反而是次要的，毕竟母鸡卡是乐队而不是表演剧团
 
+
+*****
+
+####  rushsong  
+##### 7646#       发表于 2025-1-12 04:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157343&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-12 02:50</a>
+我知道，我只是想嘲笑老登吹季度霸权而已。吃蛋白棒吃的脑子不清醒了</blockquote>
+你说邦老登还是go老登？邦老登对🐔🐶可没啥好感<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
