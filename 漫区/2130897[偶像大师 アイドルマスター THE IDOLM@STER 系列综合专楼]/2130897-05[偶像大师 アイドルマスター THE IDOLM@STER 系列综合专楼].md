@@ -193,3 +193,11 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">羡慕能去的
 
+
+*****
+
+####  wfhtony  
+##### 6833#       发表于 2025-1-11 18:10
+
+<blockquote>不过，就咱对小高指导的几次LIVE看下来的刻板印象而言，后面三场的曲单应该真的会有极高的重复度...</blockquote>看来咱对小高的刻板印象还是维持住了。等下可以安心吃晚饭去了。
+

@@ -10261,3 +10261,13 @@ fgo有生之年有机会实装嘟嘟吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">看到黑姬差点吓到跳起来，一看不像社长画的又是日本人还是四星，躺回去了
 
+
+*****
+
+####  jackyhuang  
+##### 16056#       发表于 2025-1-11 18:07
+
+一下来两个让人问是谁的新从者，厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
