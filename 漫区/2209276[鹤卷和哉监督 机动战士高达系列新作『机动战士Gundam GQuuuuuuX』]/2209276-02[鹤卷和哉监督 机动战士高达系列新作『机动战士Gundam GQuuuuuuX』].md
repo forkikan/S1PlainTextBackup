@@ -12854,3 +12854,22 @@ PV2还出现了把他们都干掉这种台词
 
 煌大和带着阿斯兰，狸猫带着米奥，四个人来探班新作的后辈女主人公，结果却被staff拦住告知对方其实是上世纪八十年代就出道的大前辈这件事（
 
+
+*****
+
+####  gundammarkⅡ  
+##### 2547#       发表于 2025-1-11 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155172&amp;ptid=2209276" target="_blank">patema 发表于 2025-1-11 20:10</a>
+苦哇脱落大尉---鸭子---卡斯巴尔
+
+鸭子也有二重假名</blockquote>
+其实到裤袜脱落大尉已经是第四个名字了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+卡斯巴尔·雷姆·戴肯（原名）
+爱德华·玛斯
+夏亚·阿兹纳布尔
+科瓦特罗·巴吉纳
+夏亚·戴肯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
