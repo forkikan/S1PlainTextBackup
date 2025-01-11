@@ -2769,3 +2769,17 @@ Animage 2025年2月号
 
 不过还是想嘲笑老登之前吹mujica是季度霸权，哈哈第二集80左右的评分
 
+
+*****
+
+####  rushsong  
+##### 7641#       发表于 2025-1-12 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157161&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-12 01:40</a>
+虽然对二偶动画来说80左右算不错成绩
+
+不过还是想嘲笑老登之前吹mujica是季度霸权，哈哈第二集80左右的评 ...</blockquote>
+本身mujica和go在日本就不火啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
