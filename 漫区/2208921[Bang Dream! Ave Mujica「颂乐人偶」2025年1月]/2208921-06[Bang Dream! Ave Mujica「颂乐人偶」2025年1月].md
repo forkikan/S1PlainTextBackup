@@ -1793,3 +1793,27 @@ by池袋二刷感想
 
 如果换个角色比如海玲或者喵梦这种没毛病甚至更贴地气，但祥子日常说ですわ这种お嬢様言葉的确实不适合口语化翻译
 
+
+*****
+
+####  199april  
+##### 7556#       发表于 2025-1-11 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">比起mujica，我觉得mana更有趣。
+
+那种拼尽全力企图挽回感情但对方心里早就没有你的败犬感太美味了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+同样都是mana，对比某个粉毛学生会长真是同名不同命啊
+
+
+*****
+
+####  IWS2000  
+##### 7557#       发表于 2025-1-11 13:45
+
+ 本帖最后由 IWS2000 于 2025-1-11 13:47 编辑 
+
+虽然心疼，但是这个状态的睦真美味<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/43ba63c9228ff94cb5c1e6c451fa17fc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c28328349f4ff9dea4ee4356d66114c2/image.jpg" referrerpolicy="no-referrer">
+
