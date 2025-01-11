@@ -114,3 +114,13 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Geyorkias  
+##### 18177#       发表于 2025-1-11 07:56
+
+水土主要是盘子便宜吧，不需要老金月背水。
+
+不过我估计也就玩两天，这玩意大概率得砍。
+
