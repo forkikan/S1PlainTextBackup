@@ -1632,3 +1632,26 @@ ttps://x.com/zhanzhangzlw/status/1877785646171124114
 
 难道就是因为大祥老师魔了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 7544#       发表于 2025-1-11 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152586&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-11 12:23</a>
+
+大祥老师在和老爹分家之后还这么push的原因是啥，
+
+首先应该不会是钱，都到武道馆了总不会没点能过上小康生 ...</blockquote>
+祥子不是都说了吗，“我只有母鸡卡了”，母鸡卡(抽象意义的这个乐队)就是现在祥子唯一的家人
+
+所以我认为祥子在结尾会获得四个新的家人
+
+
+*****
+
+####  阿兹尔  
+##### 7545#       发表于 2025-1-11 12:32
+
+说起来祥爹真就没人管了吗，不会真要似吧
+
