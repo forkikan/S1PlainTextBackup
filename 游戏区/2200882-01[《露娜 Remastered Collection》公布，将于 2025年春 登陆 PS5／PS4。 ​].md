@@ -441,3 +441,16 @@ Lunar学院么，我也搞不清楚这个和原作的关系，虽然我当时也
 SS的魔法学院是GG的散步学院的重制。背景是初代300年前
 NDS上还有个龙歌，背景是初代1000年前
 
+
+*****
+
+####  ds2324ds2  
+##### 45#         楼主| 发表于 2025-1-11 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151439&amp;ptid=2200882" target="_blank">弥勒 发表于 2025-1-11 08:50</a>
+
+SS的魔法学院是GG的散步学院的重制。背景是初代300年前
+
+NDS上还有个龙歌，背景是初代1000年前 ...</blockquote>
+NDS上哪个据说跑步会掉血，非常离谱。
+

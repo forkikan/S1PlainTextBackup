@@ -1939,3 +1939,59 @@ Mygo跟AveMujica请三次元做的3D动画也立大功。
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了不算第二人格别的都挺好
 
+
+*****
+
+####  玖羽  
+##### 7569#       发表于 2025-1-11 15:14
+
+<blockquote>你真的是睦吗？
+
+不对，我才没有放着睦一个人！我有让女仆每天做三餐给你，会话也……
+
+没有这回事！我是爱着你的呀……
+
+不对……不对！你才不是睦！
+
+不是的！我不记得我有一个在舞台上发癫的孩子！
+
+不可以！不要再上舞台了！
+
+你要是真的是我的孩子，就考虑一下我建立起来的地位吧！
+
+不要再引发更大的骚动了！你要去的话，我就开枪了！
+
+你是个人偶啊！（开枪）由身为母亲的我来杀掉的话……</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/11/151429nmkp35dsfk1m0ff1.jpg" referrerpolicy="no-referrer">
+
+<strong>_.jpg</strong> (105.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 15:14 上传
+
+ <blockquote>不要啊！如果在舞台上失去意识的话，
+
+Ave Mujica的世界观也会被一起燃烧殆尽的！
+
+拜托了，千万不要死啊，睦子米！
+
+你要是在这里倒下了的话，
+
+你和祥子的约定要怎么办啊？
+
+你还留有生命，要是能撑过这一回的话，
+
+就一定能够战胜死亡的！
+
+下一回，「若叶睦之死」！Duel stand by!</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/11/151429zo9hr3xemgetoxt0.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (86.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 15:14 上传
+
