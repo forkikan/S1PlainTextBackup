@@ -10446,3 +10446,11 @@ F1阿尔法罗密欧车队知道吧
 
 希望弗莉多这次能强化3技能吧，意义不明的1回合宝具增伤<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 16074#       发表于 2025-1-11 22:37
+
+枪龙马的阿龙桑不也是大蛇吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
