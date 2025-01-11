@@ -12324,3 +12324,11 @@ MD写完感觉有点扯了，鹤卷gg搞不出这种烂活吧？<img src="https:
 
 我觉得尊重哥这种人就该自己扛着摄像机拍一部钢弹同人剧告诉告诉大伙他理解的尊重他的钢弹剧到底是什么样子
 
+
+*****
+
+####  aptx8285144  
+##### 2499#       发表于 2025-1-11 12:39
+
+日升不要再搞出鲁路修和革命机时候剧情大泄露或者说被偷走就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
