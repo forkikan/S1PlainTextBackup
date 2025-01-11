@@ -211,3 +211,30 @@ asobiticket一般会有不止一轮抽选，第一轮一般是アソビストア
 <img src="https://p.sda1.dev/21/cc81cd13c4a9031898a9914fed208d42/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/0631230291209076d1602d2535fc097c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Porsche  
+##### 6835#       发表于 2025-1-11 18:36
+
+让你们再说播片
+这下全日花一个人顶上了 闻所未闻
+
+*****
+
+####  wfhtony  
+##### 6836#       发表于 2025-1-11 18:37
+
+<blockquote>--Interval--
+
+11. Fly and Fly（＊伴奏）
+
+--救場MC（＊劇情設計）--
+
+12. Bouncy Girl // 七草にちか
+
+13. White Story // 七草にちか
+
+14. フェアリー・ガール // 七草にちか</blockquote>
+美琴退场是剧情设计，不过歌单不是还是没改么...
+

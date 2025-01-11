@@ -2360,3 +2360,48 @@ pv画面都剧透了 祥子和睦疯狂互动  
 所以素世也会登场吗！</blockquote>
 只是类似彩弹的串场吧，不太可能每个人都出来溜一圈
 
+
+*****
+
+####  玖羽  
+##### 7602#       发表于 2025-1-11 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154460&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-11 18:25</a>
+
+只是类似彩弹的串场吧，不太可能每个人都出来溜一圈</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/11/182959mgdn610wsjg6nh40.jpg" referrerpolicy="no-referrer">
+
+<strong>f4.jpg</strong> (178.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 18:29 上传
+
+*****
+
+####  狂热飞鸟  
+##### 7603#       发表于 2025-1-11 18:31
+
+ 本帖最后由 狂热飞鸟 于 2025-1-11 18:33 编辑 
+
+话说祥子对睦做错事的态度和开头对喵梦做错事的态度(睦祥青梅竹马关系已经在鸡团解开了)相对比会不会影响海玲对母鸡卡的态度，也就是主PV海玲发问的信任度问题的开端，
+
+
+*****
+
+####  嵇翱u  
+##### 7604#       发表于 2025-1-11 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154479&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-11 18:30</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">绝了
+
+*****
+
+####  66367749  
+##### 7605#       发表于 2025-1-11 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67154427&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-11 18:19</a>
+那个黄瓜田要废了肯定有回收的啊，估计就是soyo知道了但是无法再次面对睦了吧，睦恢复正常后再次去黄瓜田， ...</blockquote>
+这样确实不错，嘴臭但还是有关心。虽然我感觉没有的可能更高
+
