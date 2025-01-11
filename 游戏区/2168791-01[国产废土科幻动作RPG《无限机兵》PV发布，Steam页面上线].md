@@ -1114,3 +1114,14 @@ RPG和ACT的区别~~
 
 难度上次削弱以后感觉还可以吧，但是各种小怪0帧起手一刀把我送回家还是有点难绷
 
+
+*****
+
+####  鱼雷鲨  
+##### 118#       发表于 2025-1-11 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649489&amp;ptid=2168791" target="_blank">Yeelolo 发表于 2024-4-19 13:50</a>
+
+国产废土能不能出个老辐射那样的rpg？国内背景的，那种我还挺想玩的</blockquote>
+辐射红色彼岸就从来没一撇，原子RPG引擎的辐射上海也是虚空项目
+
