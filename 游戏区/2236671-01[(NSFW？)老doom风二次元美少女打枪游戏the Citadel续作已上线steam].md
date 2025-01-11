@@ -1358,3 +1358,16 @@ Steam上有人整理了背景设定。
 首先要有激光子弹，然后按鼠标滚轮开火
 不过初始手枪后面我都换马格南了，次要开火是射榴弹也比激光更好使
 
+
+*****
+
+####  DawnGuardian  
+##### 126#       发表于 2025-1-11 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151655&amp;ptid=2236671" target="_blank">爱护动物抓根宝 发表于 2025-1-11 09:45</a>
+
+首先要有激光子弹，然后按鼠标滚轮开火
+
+不过初始手枪后面我都换马格南了，次要开火是射榴弹也比激光更好 ...</blockquote>
+为啥我按副开火键就只有抡斧子？明明激光弹药是够的
+
