@@ -2795,3 +2795,13 @@ Animage 2025年2月号
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我知道，我只是想嘲笑老登吹季度霸权而已。吃蛋白棒吃的脑子不清醒了
 
+
+*****
+
+####  KLHgg  
+##### 7643#       发表于 2025-1-12 03:04
+
+回看go最后两集祥子以睦是成员之一的筹码拉大喵入队，实际上在大喵之后她才得到睦同意入队的答复，现在看来这个情节安排没意义啊，祥子没有理由不等睦先套大喵，万一睦没答应大喵又不乐意了
+
+不会是制作组觉得go12集后半时间充足就把大喵的戏份正好补上去吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

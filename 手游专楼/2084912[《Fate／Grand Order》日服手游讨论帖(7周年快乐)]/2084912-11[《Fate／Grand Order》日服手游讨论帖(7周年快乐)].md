@@ -10454,3 +10454,23 @@ F1阿尔法罗密欧车队知道吧
 
 枪龙马的阿龙桑不也是大蛇吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 16075#       发表于 2025-1-12 02:57
+
+ 本帖最后由 岸浪白野 于 2025-1-12 02:59 编辑 
+
+快4点钟就为了发这一条
+
+之前跟大家说3破宝具动画有变化是错的，正确是3破改宝具名字宝具动画没有太大变化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/12/025555u7tppcdg4czc7pg5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 02:55 上传
+
