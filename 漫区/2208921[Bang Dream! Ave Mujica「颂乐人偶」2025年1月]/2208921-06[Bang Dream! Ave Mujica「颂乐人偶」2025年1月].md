@@ -1881,3 +1881,61 @@ by池袋二刷感想
 
 Mygo跟AveMujica请三次元做的3D动画也立大功。
 
+
+*****
+
+####  达达葱2  
+##### 7564#       发表于 2025-1-11 14:56
+
+<blockquote>kuroro 发表于 2025-1-11 11:50
+看了枪版第三集，结果把我自己ptsd看犯了，大晚上喘不上气叫了救护车去医院 ...</blockquote>
+真的吗？天啊
+
+祝健康平安
+
+*****
+
+####  一心而用  
+##### 7565#       发表于 2025-1-11 15:01
+
+人偶坏掉了
+<img src="https://p.sda1.dev/21/4142fa6270262aee2f203e0087b1268a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cf63335946facd95651d807e1934a8cc/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  car123  
+##### 7566#       发表于 2025-1-11 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">少女乐队番的受害者都出现了，心理承受能力低的看第三集要慎重啊
+
+不过第三集感觉节奏太快了，有很多发展想想很清楚但动画里没给足够的时间展现，特别是结尾来个大的，第四集咋演哦<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+另外acg作品里写的好的双重人格有哪些？玩完hbr后就记得可怜怜了
+
+*****
+
+####  ads147147  
+##### 7567#       发表于 2025-1-11 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153462&amp;ptid=2208921" target="_blank">car123 发表于 2025-1-11 15:04</a>
+少女乐队番的受害者都出现了，心理承受能力低的看第三集要慎重啊
+
+不过第三集感觉节奏太快了，有很多发展想 ...</blockquote>
+游戏王（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  car123  
+##### 7568#       发表于 2025-1-11 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67153466&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-11 15:04</a>
+
+游戏王（）
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了不算第二人格别的都挺好
+
