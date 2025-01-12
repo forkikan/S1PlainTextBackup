@@ -3752,3 +3752,19 @@ crychic大和解</blockquote>
 https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</blockquote>
 ？？？？有必要把初华的问题往禁闭岛那方向靠吗，都说了睦是最严重的那个，非往禁闭岛那方向走，那初华问题可比睦的封心锁爱严重一百八十倍了。。。
 
+
+*****
+
+####  akiomn  
+##### 7717#       发表于 2025-1-12 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放过初华吧，再假药下去真要成三角初华坏事合订本了，这些假药可比睦要重量级太多了
+
+
+*****
+
+####  山ノ内花音  
+##### 7718#       发表于 2025-1-12 20:22
+
+说不定初华就是小时候被祥子要求交出人生了 结果祥子给忘了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
