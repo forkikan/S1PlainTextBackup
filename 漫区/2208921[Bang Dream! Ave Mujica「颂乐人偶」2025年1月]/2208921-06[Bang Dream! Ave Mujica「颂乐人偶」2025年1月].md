@@ -3410,3 +3410,48 @@ mygo时候就有人说了 这是二次元音乐动画片 不是小时代
 </blockquote>
 图片看不见
 
+
+*****
+
+####  sauron.j  
+##### 7688#       发表于 2025-1-12 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159445&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-12 12:35</a>
+
+他自己分析剧情越分析就越觉得是剧情大手强行推进了 现在对wsd怨气满满到有偏见了 你就顺从他吧 ...</blockquote>
+至少剧情推进的逻辑安排上是合理的，而观感因人而异
+
+武道馆是首次登上大舞台，之后又是全国巡演连轴转，本身就已经是十分忙碌的上升期
+
+剧本特地挑选这个节骨眼引爆，进一步增加工作量，有意用外力撵着乐队往前跑，让成员们进入顾此失彼的境地
+
+相比mygo可以自由选择live时间，饺子没包完可以等等再集结，鸡团是今晚就要采访/演出，你包没包都得给我上场
+
+*****
+
+####  新HGCG  
+##### 7689#       发表于 2025-1-12 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160027&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 14:18</a>
+
+梦以的腰，杀人的刀。</blockquote>
+黑丝肚皮呸喽呸喽
+
+<img src="https://img.saraba1st.com/forum/202501/12/144019z4xyald4y3d0f4nn.gif" referrerpolicy="no-referrer">
+
+<strong>图片20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 14:40 上传
+
+
+*****
+
+####  一心而用  
+##### 7690#       发表于 2025-1-12 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160150&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-12 14:40</a>
+黑丝肚皮呸喽呸喽</blockquote>
+你发了什么图？我看不到。
+
