@@ -68,3 +68,24 @@
 
 要过年了，我成田良美请大家吃饺子，保证新鲜<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡卡布鲁根  
+##### 2705#       发表于 2025-1-12 10:29
+
+还好，我看到成田良美
+不管大人q娃还是这部都没看
+笑嘻了
+
+—— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  粉儿alice  
+##### 2706#       发表于 2025-1-12 11:38
+
+看了魔法2的打戏 宠物组可以直接切腹自杀吧
+
+成田大妈连饺子都懒得包了 直接把皮端出来吃<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
