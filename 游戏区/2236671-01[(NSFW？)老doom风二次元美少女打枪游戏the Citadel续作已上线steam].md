@@ -1531,3 +1531,30 @@ Esqa的本体在地球轨道上的战舰U.N.S. Edelweiss里。最初的一批战
 
 另外Esaq疑似是上一代殉道者的崽。殉道者像绫波丽一样被克隆了一大堆。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 138#         楼主| 发表于 2025-1-12 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160834&amp;ptid=2236671" target="_blank">半分宅 发表于 2025-1-12 16:57</a>
+酒馆老板娘说一共有12座城市、每座12000人（144000是启示录中得救的人数）。
+
+Esqa的本体在地球轨道上的 ...</blockquote>
+不是一代那个商人的孩子么？
+
+
+*****
+
+####  DawnGuardian  
+##### 139#       发表于 2025-1-12 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160687&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-12 16:28</a>
+
+二代通关了。
+
+这代真的是量大管饱，看了一下1代通关用了8.6小时，2代用了30多个小时。
+
+流程上感受也很明显 ...</blockquote>
+没玩过1，二代的新武器都有哪些？大狙瞄准镜带密位和测距，熟悉弹道之后200m内对狙基本还是不虚的。白色的石头应该是什么磨刀石，看描述是强化近战武器的（真有人会在这游戏里玩近战吗）
+
