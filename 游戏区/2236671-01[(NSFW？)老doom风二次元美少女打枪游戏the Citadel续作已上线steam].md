@@ -1614,3 +1614,18 @@ Esqa的本体在地球轨道上的 ...</blockquote>
 不是一代那个商人的孩子么？</blockquote>
 对，殉道者和商人doi出来的崽。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 145#         楼主| 发表于 2025-1-13 01:42
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-13 01:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163759&amp;ptid=2236671" target="_blank">半分宅 发表于 2025-1-13 01:30</a>
+对，殉道者和商人doi出来的崽。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我没记错的话，他说的是，“我妈死了，我在我妈遗体肚子里，被飞船的人发现救了下来，但是半死不活没有身子，现在和主角交流用的是模拟成长后的模样的投影”。能灭神的炸药(那玩意记得看着不小来的)，在极近距离下，不应该直接给主角都湮灭了吗…哪儿能留下来遗体啊…
+这么说，一代的时候主角跟一个小男孩do爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么时候do的，tmd一代完全没提啊，俩人之间的对话也不像是有那方面的苗头啊…
+我了个小孩开大车啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的假的啊…
+
