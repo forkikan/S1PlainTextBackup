@@ -3161,3 +3161,45 @@ Ave Mujica：我炸了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">结局总是包饺子大家一起进手游pico的，别搞这么多奇奇怪怪的假药啊
 
+
+*****
+
+####  玖羽  
+##### 7669#       发表于 2025-1-12 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159168&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 11:44</a>
+
+贴吧刚刚考据出来一个更吓人的假药。
+[https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp;see](https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp;see) ...</blockquote>
+我觉得不太可能，首先这毕竟是一个13集的乐队番
+
+其次它有一个大前提“真奈并不把跟祥子的幼驯染关系当回事，现在完全忘了，反倒是当时没关系的初华特别当回事，以至于改变了人生，同时祥子对此完全没有察觉”，这个非常牵强，明显是先射箭再画靶
+
+进一步说，如果三人真的是这个关系，一个完全不当回事已经忘了，另一个特别当回事把自己完全代入进去，而祥子完全没有察觉，那么真正的幼驯染就是初华和祥子
+
+说穿了，这还是党争常用套路：几岁小孩就认定白月光，十年之后主角连当年对方是谁都忘了，党争对象ABCDE谁赢纯粹看谁是当年那个白月光，主角想起是A，那A就赢，后来又说主角记错了其实是B，那B就赢，我特别讨厌这种情节
+
+*****
+
+####  一心而用  
+##### 7670#       发表于 2025-1-12 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159242&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-12 11:56</a>
+我觉得不太可能，首先这毕竟是一个13集的乐队番
+
+其次它有一个大前提“真奈并不把跟祥子的幼驯染关系当回 ...</blockquote>
+反正就是转一下，算是点乐子，我这边也打住吧，不发散了。<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 7671#       发表于 2025-1-12 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159193&amp;ptid=2208921" target="_blank">linekm 发表于 2025-1-12 11:47</a>
+
+睦的现在这幻听加幻觉的症状已经典型精神分裂的症状了，真得住院吃药那种了，不知道后续咋写了 ...</blockquote>
+你是不是搞错了什么，二次元的精神问题什么时候是靠医生解决的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+喵梦和睦这么早爆是好事，这属于利空出尽，她们以后不太可能再获得什么重大的负面特质，反倒是初华和海铃正好相反
+
