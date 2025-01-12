@@ -3505,3 +3505,22 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 我针对你那一楼的最后一张照片发了这场图
 <img src="https://p.sda1.dev/21/e1cc9cf980a276007d5093e44c0d48b4/图片20240925080826.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 7695#       发表于 2025-1-12 16:23
+
+有人有设定集里初华页的扫描版嘛，在做doloris的3d模型（非blender）发现很多细节看不清楚
+
+*****
+
+####  IWS2000  
+##### 7696#       发表于 2025-1-12 16:24
+
+希睦
+<img src="https://p.sda1.dev/21/5ef976f9ec71fdbfcbd469c68b1fa8a6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5e113957c9601542d5a67a8a917f2e31/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c6ab85e96eb7929bedc327578675f4d2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1780a2d600839cbf602de7665aee379c/image.jpg" referrerpolicy="no-referrer">
+
