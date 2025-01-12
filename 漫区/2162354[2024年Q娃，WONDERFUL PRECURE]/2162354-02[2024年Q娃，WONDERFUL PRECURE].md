@@ -150,3 +150,13 @@ Screenshot_20250112-153402.png
 
 妮可平时都在摸鱼 真打起来就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 2713#       发表于 2025-1-12 22:36
+
+好么这集直接放弃思考了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+好不容易有不错的作画结果配这么个放弃思考的剧情……
+

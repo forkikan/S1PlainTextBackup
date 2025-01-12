@@ -13160,3 +13160,39 @@ GQX世界线元祖在构图最左边，中间是机体头部和胸部的大特�
 
 以此类推，GQuuuuuuX其实是从最左边那台纯白色的翅膀机改修而来的，中间同样是机体头部特写，还放了人体参照，最终变成图片最右边的升重高达
 
+
+*****
+
+####  刺客ares  
+##### 2572#       发表于 2025-1-12 22:28
+
+ 本帖最后由 刺客ares 于 2025-1-12 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162451&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-12 21:50</a>
+
+我现在想起这玩意机设为什么眼熟了。这台异色机其实结构上对应的是MS09R4白雪公主。包括作为主角机时，面甲 ...</blockquote>
+如果真是这种对应关系的话，那GQuuuuuuX就不是玛秋的最终机了，一定有换机桥段
+
+因为哈曼最负盛名的MS不是力克迪亚兹，而是AMX-004卡碧尼（Qubeley）
+
+或者说GQuuuuuuX缩写为GQuX的真实含义就是G(undam)Qu(beley)X？
+
+但GQX也没漏斗浮游炮啊，外观上和卡碧尼差距也是天壤之别<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 2573#       发表于 2025-1-12 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162668&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-12 22:28</a>
+
+如果真是这种对应关系的话，那GQuuuuuuX就不是玛秋的最终机了，一定有换机桥段
+
+因为哈曼最负盛名的MS不是 ...</blockquote>
+是的，不过可以一直在这个素体基础上换。
+
+等于大魔R4--&gt;力克迪亚兹--&gt;卡碧尼
+
+这样一个进化关系，素体都是那一台，换不同的外装。估计后面主角机有一个独特的大背包（必经这算传统换装了）
+
+然后最后机体的代号可能就是地母高达，也就是GQuuuuuuX的五个U和G的缩写替换成Gundam Qubeley X（也是最终机体编号）
+
