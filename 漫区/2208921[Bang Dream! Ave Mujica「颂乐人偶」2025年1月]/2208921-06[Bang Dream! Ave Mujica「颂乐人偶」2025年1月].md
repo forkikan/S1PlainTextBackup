@@ -3322,3 +3322,16 @@ mygo时候就有人说了 这是二次元音乐动画片 不是小时代
 
 下周四个广播节目
 
+
+*****
+
+####  LeonsCat  
+##### 7683#       发表于 2025-1-12 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159502&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-12 12:43</a>
+
+跟GBC對邦是今天吧
+
+有人會忘詞然後跟睦頭一樣攤在台上嗎</blockquote>
+还不如问问如果还是有代打，会不会对面冒出一个长崎祥子出来。
+
