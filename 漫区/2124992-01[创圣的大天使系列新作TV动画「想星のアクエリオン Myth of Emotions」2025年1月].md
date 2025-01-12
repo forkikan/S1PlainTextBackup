@@ -1808,3 +1808,16 @@ EVOL我看的真没觉得怎么不好，logos是真的史
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  七七見奈波  
+##### 188#       发表于 2025-1-12 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67152176&amp;ptid=2124992" target="_blank">鵝 发表于 2025-1-11 11:16</a>
+
+棍森就是从大天使系列开始变神棍的吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不是，最晚也得是从地球少女阿周那开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

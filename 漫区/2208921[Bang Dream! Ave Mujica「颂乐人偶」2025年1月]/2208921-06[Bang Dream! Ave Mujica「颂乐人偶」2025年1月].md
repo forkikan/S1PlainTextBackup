@@ -3005,3 +3005,73 @@ ttps://x.com/doran7280/status/1875820566801973607</blockquote>
 只是觉得角色粉丝之间在这争谁首锅这种讨论很搞笑。好像在看什么电竞分锅大会一样。 ...</blockquote>
 车祥子的视频在b站热门看到了，开头一句“可以理解但不正确”，一股电竞味太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 7659#       发表于 2025-1-12 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67158518&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 09:19</a>
+
+初华的假药能开个药店了。</blockquote>
+我倒是觉得这些假药都太单调了，无非都是在重复一件事“初华是病娇”
+
+根据我总结的原则<strong>空对空地推测</strong>，现在初华给出的明确信息只有“初华是祥子单推”，如果发展为“初华是病娇”，还是在同一条延长线上，甚至延伸得不是很多，颠覆性不太够
+
+如果要颠覆的话，“初华是祥子单推”的反面是什么，“初华对祥子失去感情”，但是这还不够极端，而且很难描写，特别是考虑到最后必须包饺子
+
+所以最炸裂的可能性是“初华从一开始就对祥子没有感情”（不管是出于主观还是客观原因），现在这样是为了某种目的装出来的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+祥子：我只有Ave Mujica了
+
+Ave Mujica：我炸了
+
+祥子：幸好还有初华对我好，我只有初华了
+
+初华：不好意思我是装的
+
+祥子：
+
+<img src="https://img.saraba1st.com/forum/202501/12/101843cno0z2ykn1lnofyg.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (187.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 10:18 上传
+
+ <blockquote><strong>1、颠覆性原则。</strong>
+
+只限主角团，一个角色一开始看起来越是没有问题，后面的问题就越大，我从上一个楼就一直在说，初华、海铃、睦只要爆就是大爆；
+
+相反，如果一个角色一开始就表现出一些小问题，比如爱音的虚荣心、立希的态度恶劣，那么后面的问题反而不会很大。
+
+反过来也一样，比如灯在1～9话的绝大部分戏份里都是非常内向和被动的，所以第10话才能正向大爆，重点是完全颠覆原有形象。
+
+<strong>2、炸裂性原则。</strong>
+
+举例来说，如果一个剧情的炸裂程度有可能是：A)100；B)200；C)500，那么不用怀疑，编剧一定会选择：D)1000
+
+在预测剧情的时候，一定不要有任何幻想，编剧一定是你能想象到的（甚至超越你想象的）怎么炸裂怎么来。
+
+<strong>3、回旋镖原则。</strong>
+
+简单地说，就是有呼必有应，MyGO对这一点非常严格，已经有很多人解析过了，我在重看的时候也发现了很多解析文没有提过的小地方。
+
+如果Ave Mujica在这一点上没有变化，那么目前出现的呼肯定在后文有一个应，否则那些剧情就没有必要存在。
+
+而且我认为，在回应的时候一定会遵循前两条原则，如果你能想象到某种回应可以产生最大化炸裂的效果，那么编剧一定会这么干，除非编剧的想象力超过了你。</blockquote>
+
+
+*****
+
+####  borrowface  
+##### 7660#       发表于 2025-1-12 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67155280&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-11 20:25</a></blockquote>
+这张太草了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
