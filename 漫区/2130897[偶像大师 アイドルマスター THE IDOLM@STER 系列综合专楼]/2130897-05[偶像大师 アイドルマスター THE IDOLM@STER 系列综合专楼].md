@@ -470,3 +470,19 @@ via [Twitter](https://x.com/divine_mutton/status/1878049470883193275)
 
 演出后半（间奏后）美琴会上台，ルカ倒是没缺席么...
 
+
+*****
+
+####  joshua1990  
+##### 6858#       发表于 2025-1-12 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这两组都挺喜欢的，可惜这次没加迷光进来
+
+
+*****
+
+####  冰寒之月  
+##### 6859#       发表于 2025-1-12 14:04
+
+日花一个人还得单飞一会儿
+
