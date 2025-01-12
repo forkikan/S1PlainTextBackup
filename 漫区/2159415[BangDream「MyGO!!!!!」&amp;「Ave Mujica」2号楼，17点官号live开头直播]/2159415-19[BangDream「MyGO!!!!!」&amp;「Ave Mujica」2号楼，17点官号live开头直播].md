@@ -2529,3 +2529,11 @@ MyGO!!!!! 部分:
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  CyDiablo  
+##### 26830#       发表于 2025-1-12 17:47
+
+新歌什么时候能上live啊，下场对邦感觉也没什么指望<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">想听过惰幻，夜风和明弦音了
+
