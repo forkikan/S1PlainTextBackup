@@ -971,3 +971,11 @@ Warhammer 40,000:Space Marine 2</blockquote>
 DICE的技术奖提名出来了</blockquote>
 这game direction和goty提名完全不一样也是神奇
 
+
+*****
+
+####  GuardHei  
+##### 88#       发表于 2025-1-12 12:36
+
+这种东西图一乐就好，真辩哪个技术高低没意思。就这种超大型游戏包含角度太多了，毫无意义。
+
