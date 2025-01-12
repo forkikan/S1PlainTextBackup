@@ -4038,3 +4038,15 @@ mortis成为舞台限定模式 作为真正的舞台少女挺好的
 那就更变态了
 还是被赶出门前断了经济来源合理一点
 
+
+*****
+
+####  Mikumiku831  
+##### 7738#       发表于 2025-1-12 23:27
+
+自己有存款也不想用呗 反正每天喝点酒过日子也爽啊
+
+最开始发短信的时候也让祥子别管自己
+
+祥子硬过去而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
