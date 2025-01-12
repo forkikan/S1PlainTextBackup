@@ -1650,3 +1650,44 @@ A divine object, in other words, your colleague.
 
 我的理解是1代拿来灭神的祝福核弹“无常之果”造成的不是简单的物理伤害，而是针对所有“有原罪”的东西产生灵魂伤害。Esqa刚怀上的状态卡了判定bug，被算成是独立于殉道者的个体，但时间太早、不算是个人，所以没原罪
 
+
+*****
+
+####  zzf111  
+##### 147#       发表于 2025-1-13 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163821&amp;ptid=2236671" target="_blank">ParadiseMartyr 发表于 2025-1-13 01:42</a>
+
+啊？
+
+我没记错的话，他说的是，“我妈死了，我在我妈遗体肚子里，被飞船的人发现救了下来，但是半死不活 ...</blockquote>
+[https://boards.4chan.org/v/thread/699574465/a-citadel-question#p699580520](https://boards.4chan.org/v/thread/699574465/a-citadel-question#p699580520)
+
+作者亲自强推的cp还画了不少黄图，这贴有人整了个官图和同人混在一起的图包（catbox那个）
+
+差不多4ch每个相关讨论贴都要侃一顿这事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/13/065834y93d39fd6oq3ngz3.jpg" referrerpolicy="no-referrer">
+
+<strong>1713796175774431.jpg</strong> (532.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 06:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/070051ip5a8aa5labnv6vo.png" referrerpolicy="no-referrer">
+
+<strong>1736300488259513.png</strong> (234.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 07:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/065838b27s87bq9wi729cc.png" referrerpolicy="no-referrer">
+
+<strong>1231564.png</strong> (61.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 06:58 上传
+
