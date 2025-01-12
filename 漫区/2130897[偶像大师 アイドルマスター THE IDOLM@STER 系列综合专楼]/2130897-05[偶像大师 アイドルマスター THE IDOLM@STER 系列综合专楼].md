@@ -682,3 +682,14 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 令人感慨，小高这个fw连整活的内容都被我早早猜透了，感觉你闪已经没法给我带来惊喜了 ...</blockquote>
 说不定事后看因两天内看了连续四场公式化排曲而破防的观众就是这场演出最大的惊喜（
 
+
+*****
+
+####  Alleyht  
+##### 6868#       发表于 2025-1-12 20:47
+
+ 本帖最后由 Alleyht 于 2025-1-12 20:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161729&amp;ptid=2130897" target="_blank">wfhtony 发表于 2025-1-12 19:51</a>
+说不定事后看因两天内看了连续四场公式化排曲而破防的观众就是这场演出最大的惊喜（ ...</blockquote>
+那还得是好不容易挤出时间看一场结果刚好碰上NT小高整活的美琴P更惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
