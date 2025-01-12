@@ -1821,3 +1821,11 @@ EVOL我看的真没觉得怎么不好，logos是真的史
 —— 来自 鹅球 v3.3.96</blockquote>
 不是，最晚也得是从地球少女阿周那开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eyeego  
+##### 189#       发表于 2025-1-12 10:47
+
+evol最大的问题还是唐突抛出狗的设定把一堆人彻底变成了小丑 以及阿波罗尼亚斯真的是屑中屑的烂人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
