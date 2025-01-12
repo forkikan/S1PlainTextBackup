@@ -3624,3 +3624,21 @@ crychic大和解</blockquote>
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  IWS2000  
+##### 7707#       发表于 2025-1-12 18:43
+
+<img src="https://p.sda1.dev/21/01c5ee9d0a7f3cf432283f1724e0f959/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 7708#       发表于 2025-1-12 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161231&amp;ptid=2208921" target="_blank">良臣没有重谢 发表于 2025-1-12 18:15</a>
+
+祥子送报路上这坡是真的陡。赤羽这一块感觉高低差都挺大的送报的工作量完全是超级加倍啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我走过soyo追祥子那个坡，从底走到顶给我喘的
+
