@@ -13010,3 +13010,14 @@ pixivid:2179362
 
 还没活，不会指望设定假药把人骗进电影院吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBGI  
+##### 2562#       发表于 2025-1-12 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161996&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-12 20:34</a>
+
+还没活，不会指望设定假药把人骗进电影院吧</blockquote>
+这可是高达，这可是痞子，这可是宝可梦，这可是潮流，有不去电影院看的理由吗？<img src="https://static.saraba1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
