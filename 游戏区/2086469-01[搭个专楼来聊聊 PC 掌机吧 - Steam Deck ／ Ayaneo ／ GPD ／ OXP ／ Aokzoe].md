@@ -19,3 +19,13 @@
 喜欢我 ACER 的掌机吗</blockquote>
 不仅大，做工一眼差...
 
+
+*****
+
+####  crosz1985  
+##### 1336#       发表于 2025-1-12 23:13
+
+看着怎么和腾讯那个11寸的一个模具？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

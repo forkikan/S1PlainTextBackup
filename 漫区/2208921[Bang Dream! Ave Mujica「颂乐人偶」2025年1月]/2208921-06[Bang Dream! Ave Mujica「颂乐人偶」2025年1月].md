@@ -3973,3 +3973,13 @@ https://x.com/shortofsugar/status/1878369080396145112?t=ndEz2pz9cbpuOm0jPym43w&a
 
 或者说祥子明明都管钱了却做不到只给她爹送一日三餐不给其他支出零花，可能就是因为她爹自己还有积蓄，祥子管不到这部分
 
+
+*****
+
+####  伞木希美  
+##### 7732#       发表于 2025-1-12 23:11
+
+祥爹但凡有点积蓄都能在喝完存款之前把自己喝死吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我觉得就是编剧没想那么多
+
