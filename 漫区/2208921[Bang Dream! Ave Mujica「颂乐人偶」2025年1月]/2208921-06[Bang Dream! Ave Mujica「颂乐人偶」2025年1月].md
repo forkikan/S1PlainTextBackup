@@ -3792,3 +3792,82 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假药都初华女鬼说，在那演灵异第六感了，官方还能比这大了？怎么着，日后登录游戏让人从kirakiradokidoki的邦多利抽赛博女鬼是吧？
 
+
+*****
+
+####  玖羽  
+##### 7722#       发表于 2025-1-12 21:59
+
+<img src="https://img.saraba1st.com/forum/202501/12/215935fh91b29j1dq2uzm2.jpg" referrerpolicy="no-referrer">
+
+<strong>GhF08awbkAA9aR3_orig.jpg</strong> (290.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215934z38fcqrlfjffjfk2.jpg" referrerpolicy="no-referrer">
+
+<strong>GhF3tSkbIAA_fmr_orig.jpg</strong> (312.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215934xyps890g33s3b4ps.jpg" referrerpolicy="no-referrer">
+
+<strong>GhF3uUVbEAA03W1_orig.jpg</strong> (152.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215935ztpp8z7zl7pgl6hz.jpg" referrerpolicy="no-referrer">
+
+<strong>orig1.jpg</strong> (483.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215935dxjxnpmkk7sajjp2.jpg" referrerpolicy="no-referrer">
+
+<strong>orig2.jpg</strong> (474.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215936r2lfq2wyzfrfk2ir.jpg" referrerpolicy="no-referrer">
+
+<strong>orig3.jpg</strong> (503.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:59 上传
+
+*****
+
+####  IWS2000  
+##### 7723#       发表于 2025-1-12 22:00
+
+https://x.com/shortofsugar/status/1878369080396145112?t=ndEz2pz9cbpuOm0jPym43w&amp;s=19
+<img src="https://p.sda1.dev/21/f607372d6a0df9a66ce5bf2b632fc05d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 7724#       发表于 2025-1-12 22:05
+
+初华直接复刻pareo就是了，鼓手开摩托带祥子去哄回来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  吹楼伞人  
+##### 7725#       发表于 2025-1-12 22:08
+
+<img src="https://p.sda1.dev/21/e8ab5b0de62e46cf57824fe37a8c621b/image.jpg" referrerpolicy="no-referrer">
+
