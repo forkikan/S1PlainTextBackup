@@ -13021,3 +13021,32 @@ pixivid:2179362
 还没活，不会指望设定假药把人骗进电影院吧</blockquote>
 这可是高达，这可是痞子，这可是宝可梦，这可是潮流，有不去电影院看的理由吗？<img src="https://static.saraba1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 2563#       发表于 2025-1-12 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162221&amp;ptid=2209276" target="_blank">NBGI 发表于 2025-1-12 21:11</a>
+这可是高达，这可是痞子，这可是宝可梦，这可是潮流，有不去电影院看的理由吗？ ...</blockquote>
+这几个tag似乎没有一个和潮流勾得上的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刺客ares  
+##### 2564#       发表于 2025-1-12 21:26
+
+<blockquote>NBGI 发表于 2025-1-12 21:11
+这可是高达，这可是痞子，这可是宝可梦，这可是潮流，有不去电影院看的理由吗？ ...</blockquote>
+再加一个律师大tie，律师粉这不去支持一下？（
+
+
+*****
+
+####  0aleph37  
+##### 2565#       发表于 2025-1-12 21:34
+
+一个UC就能抵消掉几个潮流buff了（笑
+
