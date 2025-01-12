@@ -13002,3 +13002,11 @@ pixivid:2179362
 不出所料，估计上映前不会有新图。
 要真是12集，感觉多少埋一半。能讲一下麻球自己实现梦想抓住自由之类的感觉就行了。
 
+
+*****
+
+####  Gysumitka  
+##### 2561#       发表于 2025-1-12 20:34
+
+还没活，不会指望设定假药把人骗进电影院吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
