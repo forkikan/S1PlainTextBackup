@@ -3262,3 +3262,19 @@ mygo时候就有人说了 这是二次元音乐动画片 不是小时代
 
 有人會忘詞然後跟睦頭一樣攤在台上嗎
 
+
+*****
+
+####  玖羽  
+##### 7678#       发表于 2025-1-12 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159443&amp;ptid=2208921" target="_blank">66367749 发表于 2025-1-12 12:34</a>
+
+最后还是要回归到音乐性上的
+
+话说一朝决策失误背锅被开除突然想到任天堂的横井军平 ...</blockquote>
+横井不是
+ <blockquote>元々、「50歳を過ぎたら好きな事をする」と語っており、自主退社だったが、「バーチャルボーイの不振の損失の責任を取るために辞任」という報道があったため、横井は反論として『文藝春秋』1996年11月号で『私はなぜ任天堂を辞めたか』を執筆した。
+
+[https://ja.wikipedia.org/wiki/%E ... 5%E8%BB%8D%E5%B9%B3](https://ja.wikipedia.org/wiki/%E6%A8%AA%E4%BA%95%E8%BB%8D%E5%B9%B3)</blockquote>
+
