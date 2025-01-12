@@ -13337,3 +13337,11 @@ CA高达这么有象征性的肯定不还，况且还有艾尔美斯的浮游炮
 
 没想到对应了ZZ的这个经典变装桥段吗
 
+
+*****
+
+####  星胖冒险者  
+##### 2583#       发表于 2025-1-13 04:13
+
+https://x.com/Yototeitoku/status/1878454545077985288?t=0TIk3cobQ8lpHHQjtv4dHg&amp;s=19<img src="https://p.sda1.dev/21/ced7270f98c0814fb25ab42f8bd971a9/image.jpg" referrerpolicy="no-referrer">
+
