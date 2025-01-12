@@ -13071,3 +13071,52 @@ pixivid:2179362
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 那什么是现在的“潮流”，是百合还是乐队动画？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FF0000  
+##### 2568#       发表于 2025-1-12 21:49
+
+虽然UC背景和卡拉的staff都是姨姥
+
+但是
+
+米奇不潮吗
+
+竹不潮吗
+
+JK开大机器人不潮吗
+
+女女关系性不潮吗
+
+*****
+
+####  Steel.Haze  
+##### 2569#       发表于 2025-1-12 21:50
+
+我现在想起这玩意机设为什么眼熟了。这台异色机其实结构上对应的是MS09R4白雪公主。包括作为主角机时，面甲上的红色特征。
+
+<img src="https://img.saraba1st.com/forum/202501/12/214925rd38srpzdsqrfqgv.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (80.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/214956nyq9s0a9t40tn4a1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (96.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/215013s5ybbukbq32bhq2h.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (82.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 21:50 上传
+

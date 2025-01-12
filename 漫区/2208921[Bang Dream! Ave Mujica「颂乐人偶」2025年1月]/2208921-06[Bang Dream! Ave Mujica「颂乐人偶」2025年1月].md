@@ -3776,3 +3776,19 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在初华的离谱假药也太多了，一水的惊悚悬疑向。太搞了，准备画个吊图去笑。
 
+
+*****
+
+####  Mikumiku831  
+##### 7720#       发表于 2025-1-12 21:48
+
+官方比你想的大多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄神之息  
+##### 7721#       发表于 2025-1-12 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假药都初华女鬼说，在那演灵异第六感了，官方还能比这大了？怎么着，日后登录游戏让人从kirakiradokidoki的邦多利抽赛博女鬼是吧？
+
