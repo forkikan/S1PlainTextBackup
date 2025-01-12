@@ -3566,3 +3566,32 @@ crychic大和解<img src="https://static.saraba1st.com/image/smiley/face2017/139
 <img src="https://p.sda1.dev/21/32c4ba5f5a9885ca6c8afb8a897aa5f7/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/cfe38584c6194152ee9ef987bb289b10/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 7702#       发表于 2025-1-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160664&amp;ptid=2208921" target="_blank">星天观测 发表于 2025-1-12 16:23</a>
+
+有人有设定集里初华页的扫描版嘛，在做doloris的3d模型（非blender）发现很多细节看不清楚 ...</blockquote>
+这张吗？
+
+<img src="https://img.saraba1st.com/forum/202501/12/170051cruymusy3su3zd5t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>095.jpeg</strong> (321.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 17:00 上传
+
+*****
+
+####  山ノ内花音  
+##### 7703#       发表于 2025-1-12 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160823&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-12 16:55</a>
+crychic大和解</blockquote>
+看来韩国人的精神
+也终究是撑不住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
