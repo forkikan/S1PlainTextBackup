@@ -2537,3 +2537,19 @@ MyGO!!!!! 部分:
 
 新歌什么时候能上live啊，下场对邦感觉也没什么指望<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">想听过惰幻，夜风和明弦音了
 
+
+*****
+
+####  Cavaliar  
+##### 26831#       发表于 2025-1-12 22:54
+
+<img src="https://img.saraba1st.com/forum/202501/12/225356oze6b4e5f8beykue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 22:53 上传
+
+懂了s1和前两个论坛并列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

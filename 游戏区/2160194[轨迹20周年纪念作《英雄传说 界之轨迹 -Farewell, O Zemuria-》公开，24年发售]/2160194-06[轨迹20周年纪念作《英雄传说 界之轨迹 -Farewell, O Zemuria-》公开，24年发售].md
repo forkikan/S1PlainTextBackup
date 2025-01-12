@@ -26,3 +26,13 @@
 
 界快了 估计就25号公布发售首日<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜漫群星  
+##### 7404#       发表于 2025-1-12 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当时黎1完结之后我是怎么也没想到能把这样的黎2端上来的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
