@@ -2563,3 +2563,31 @@ MyGO!!!!! 部分:
 懂了s1和前两个论坛并列</blockquote>
 战吧不配有姓名
 
+
+*****
+
+####  杂灰  
+##### 26833#       发表于 2025-1-13 01:27
+
+中日mygo粉都对没食用过go的新观众的大脑有非常强烈的追求呢，刷到个对花田ptsd到有二世气质的前花田拉拉铁粉管主只看了一话就下暴论，结果评论区全都温柔的很，更新完第三话观后感后终于对评论区的不怀好意反应过来了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帝下室の年糕  
+##### 26834#       发表于 2025-1-13 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163751&amp;ptid=2159415" target="_blank">杂灰 发表于 2025-1-13 01:27</a>
+中日mygo粉都对没食用过go的新观众的大脑有非常强烈的追求呢，刷到个对花田ptsd到有二世气质的前花田拉拉铁 ...</blockquote>
+是哪位，发个链接看看
+
+*****
+
+####  杂灰  
+##### 26835#       发表于 2025-1-13 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163768&amp;ptid=2159415" target="_blank">帝下室の年糕 发表于 2025-1-13 01:31</a>
+
+是哪位，发个链接看看</blockquote>
+[https://www.youtube.com/@yurienberg](https://www.youtube.com/@yurienberg)
+

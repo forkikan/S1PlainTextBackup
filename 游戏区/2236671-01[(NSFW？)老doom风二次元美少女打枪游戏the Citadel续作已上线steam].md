@@ -1603,3 +1603,14 @@ Esqa的本体在地球轨道上的 ...</blockquote>
 
 但其他的比较一般，谈不上**
 
+
+*****
+
+####  半分宅  
+##### 144#       发表于 2025-1-13 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160977&amp;ptid=2236671" target="_blank">ParadiseMartyr 发表于 2025-1-12 05:27</a>
+
+不是一代那个商人的孩子么？</blockquote>
+对，殉道者和商人doi出来的崽。
+
