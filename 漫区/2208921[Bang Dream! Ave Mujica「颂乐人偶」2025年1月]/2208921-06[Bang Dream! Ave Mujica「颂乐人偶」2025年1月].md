@@ -3882,3 +3882,11 @@ https://x.com/shortofsugar/status/1878369080396145112?t=ndEz2pz9cbpuOm0jPym43w&a
 <img src="https://p.sda1.dev/21/72175f406837f3926e58cc5aafee3ffc/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/acfdee8d414eeb967727f27169620657/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 7727#       发表于 2025-1-12 22:25
+
+各种假药不断制造角色分身，武道馆已经站不下mujica的十几位队员了
+
