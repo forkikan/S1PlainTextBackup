@@ -2479,3 +2479,43 @@ MyGO!!!!!×TOGENASHI TOGEARI「Avoid Note」
 <img src="https://p.sda1.dev/21/4756223296fb02fb31d831f94757f5ea/1736655836675.jpg" referrerpolicy="no-referrer">
 有人说是拿来平替holo那几张卡，感觉不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爱信等第二弹或者下一个联动
 
+
+*****
+
+####  linekm  
+##### 26827#       发表于 2025-1-12 16:26
+
+MyGO!!!!! 部分:
+迷星叫
+歌いましょう鳴らしましょう
+砂寸奏
+処救生
+影色舞
+無路矢
+潜在表明
+孤壊牢
+音一会
+
+トゲナシトゲアリ部分:
+雑踏、僕らの街
+空白とカタルシス
+誰にもなれない私だから
+視界の隅朽ちる音
+傷つき傷つけ痛くて辛い
+サヨナラサヨナラサヨナラ
+名もなき何もかも
+爆ぜて咲く
+运命の華
+
+雑踏、僕らの街 - トゲナシトゲアリ x 灯
+壱雫空 - MyGO!!!!! x 仁菜
+
+互换主唱来唱op，羊姐别断气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 26828#       发表于 2025-1-12 16:28
+
+还是老歌啊
+

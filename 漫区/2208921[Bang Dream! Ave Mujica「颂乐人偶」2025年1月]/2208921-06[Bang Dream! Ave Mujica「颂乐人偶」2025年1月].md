@@ -3524,3 +3524,18 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 <img src="https://p.sda1.dev/21/c6ab85e96eb7929bedc327578675f4d2/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/1780a2d600839cbf602de7665aee379c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 7697#       发表于 2025-1-12 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看现在这些假药，想起当初少歌播的时候S1还造过华恋其实早在东京塔摔死了的假药
+
+*****
+
+####  山ノ内花音  
+##### 7698#       发表于 2025-1-12 16:31
+
+以及典中典神乐光是爱城华恋的空气朋友
+
