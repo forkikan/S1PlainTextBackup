@@ -3493,3 +3493,15 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 灯第五话二话不说直接拉爱音跑出窘境，第九话无视一般常识直接冲进月之森找人（参考第六话爱音还知道要在 ...</blockquote>
 我都说了“绝大部分戏份”，这种分散的一两个情节不会影响已经建立的整体印象，所以不能算
 
+
+*****
+
+####  新HGCG  
+##### 7694#       发表于 2025-1-12 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160167&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 14:43</a>
+
+你发了什么图？我看不到。</blockquote>
+我针对你那一楼的最后一张照片发了这场图
+<img src="https://p.sda1.dev/21/e1cc9cf980a276007d5093e44c0d48b4/图片20240925080826.gif" referrerpolicy="no-referrer">
+

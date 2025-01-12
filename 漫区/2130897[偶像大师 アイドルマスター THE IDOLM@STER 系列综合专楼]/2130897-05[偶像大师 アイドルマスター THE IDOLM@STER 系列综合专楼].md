@@ -511,3 +511,67 @@ via [Twitter](https://x.com/divine_mutton/status/1878049470883193275)
 
 fashionable来了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6863#       发表于 2025-1-12 15:07
+
+［or;3］ Setlist:  <blockquote>01. 夢模様キャンバス // 郁田はるき
+
+--MC--
+
+02. くだらないや // コメティック
+
+[**免費部分結束]
+
+03. 平行線の美学 // コメティック
+
+04. ハナムケのハナタバ // コメティック
+
+05. 無垢 // 鈴木羽那
+
+--MC--
+
+06. フェアリー・ガール // 七草にちか
+
+07. Fly and Fly // 七草にちか
+
+08. Bouncy Girl // 七草にちか
+
+09. White Story // 七草にちか
+
+--Interval--
+
+10. Shiny Stories // 斑鳩ルカ、七草にちか
+
+--MC--  
+
+11. 神様は死んだ、って // 斑鳩ルカ  
+
+12. 泥濘鳴鳴 // コメティック
+
+13. 無自覚アプリオリ // コメティック
+
+14. Heads or Tails？ // コメティック
+
+--終場前MC--  
+
+15. 星の声 // 全員  
+
+--安可--  
+
+16. Fashionable // シーズ
+
+17. OH MY GOD // シーズ
+
+--安可MC--
+
+18. Happier // シーズ
+
+19. Look up to the sky // 緋田美琴  
+
+--安可MC--
+
+20. 愛なView // 全員</blockquote>
+
