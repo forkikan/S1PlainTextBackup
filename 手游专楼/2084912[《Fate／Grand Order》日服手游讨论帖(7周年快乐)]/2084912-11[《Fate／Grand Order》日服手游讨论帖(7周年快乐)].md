@@ -10539,3 +10539,14 @@ F1阿尔法罗密欧车队知道吧
 欧 完全不羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">萌新为什么不能和你一样欧！
 
+
+*****
+
+####  qixinno2  
+##### 16083#       发表于 2025-1-12 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160493&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-12 15:47</a>
+
+萌新为什么不能和你一样欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">去年19个NEW的狗萌新说什么呢
+
