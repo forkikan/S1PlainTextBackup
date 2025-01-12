@@ -1784,3 +1784,17 @@ ED好听，第一集除了稍微有点谜语人感觉做得很棒了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  穿越护城河  
+##### 186#       发表于 2025-1-12 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151035&amp;ptid=2124992" target="_blank">剑布衣 发表于 2025-1-11 02:49</a>
+第一集观感比前作好不少，迷之剧情也能抓住（部分）人，不过这人设和不出彩的制作要爆火是很难了。
+
+反而我 ...</blockquote>
+就是第二作直接整烂活导致第一季也风评被害
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
