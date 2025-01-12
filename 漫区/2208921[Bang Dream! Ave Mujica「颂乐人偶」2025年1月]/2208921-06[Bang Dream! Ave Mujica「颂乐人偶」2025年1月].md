@@ -2904,3 +2904,12 @@ B站二创：一个叫八幡海铃的贝斯手决定去死
 “这支乐队又要多久才会解散呢？”
 [https://tieba.baidu.com/p/9402922557](https://tieba.baidu.com/p/9402922557)</blockquote>
 
+
+*****
+
+####  一心而用  
+##### 7649#       发表于 2025-1-12 09:19
+
+初华的假药能开个药店了。
+<img src="https://p.sda1.dev/21/e9723c3a782bfd094950dc245a2ac995/image.jpg" referrerpolicy="no-referrer">
+
