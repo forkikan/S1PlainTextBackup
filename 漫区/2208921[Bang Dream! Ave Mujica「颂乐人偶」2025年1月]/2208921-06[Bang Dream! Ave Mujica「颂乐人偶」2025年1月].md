@@ -3455,3 +3455,41 @@ mygo时候就有人说了 这是二次元音乐动画片 不是小时代
 黑丝肚皮呸喽呸喽</blockquote>
 你发了什么图？我看不到。
 
+
+*****
+
+####  结衣小比取  
+##### 7691#       发表于 2025-1-12 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159168&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 11:44</a>
+
+贴吧刚刚考据出来一个更吓人的假药。
+
+https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</blockquote>
+这前半段前年就有坛友指出过。
+
+*****
+
+####  结衣小比取  
+##### 7692#       发表于 2025-1-12 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67158754&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-12 10:19</a>
+
+我倒是觉得这些假药都太单调了，无非都是在重复一件事“初华是病娇”
+
+根据我总结的原则空对空地推测，现 ...</blockquote>
+灯第五话二话不说直接拉爱音跑出窘境，第九话无视一般常识直接冲进月之森找人（参考第六话爱音还知道要在门口等）
+
+灯的一些特质前面就有体现，不能说完全颠覆
+
+
+*****
+
+####  玖羽  
+##### 7693#       发表于 2025-1-12 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160210&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-12 14:51</a>
+
+灯第五话二话不说直接拉爱音跑出窘境，第九话无视一般常识直接冲进月之森找人（参考第六话爱音还知道要在 ...</blockquote>
+我都说了“绝大部分戏份”，这种分散的一两个情节不会影响已经建立的整体印象，所以不能算
+
