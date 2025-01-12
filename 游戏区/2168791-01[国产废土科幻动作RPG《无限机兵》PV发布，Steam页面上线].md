@@ -1158,3 +1158,14 @@ RPG和ACT的区别~~
 我看PS5上怎么好意思卖268，飘了吗</blockquote>
 你看到的是豪华版吧
 
+
+*****
+
+####  社友者  
+##### 123#       发表于 2025-1-12 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161574&amp;ptid=2168791" target="_blank">saitochiho 发表于 2025-1-12 19:23</a>
+
+我看PS5上怎么好意思卖268，飘了吗</blockquote>
+<img src="https://p.sda1.dev/21/5743f88c6b9849b742f9aef8ae7a9e7e/QQ_ZtTqb6kBHr.png" referrerpolicy="no-referrer">
+

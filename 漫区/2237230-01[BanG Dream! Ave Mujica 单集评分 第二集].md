@@ -1596,3 +1596,11 @@ nico第二集评分</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">睦真是被当作一个垃圾桶或者说是沙包……第一季见证了大多数然后承受了soyo和小象两边压力，最后想给soyo表示点什么送小黄瓜还给退了；为了小象组了鸡团理由也是感觉小象要崩溃了（还被嘴了一句高高在上）；第二季又是无预期第一个被揭面具；在学校还得面对soyo压力输出；因为同名人定位的初华有事所以大多数采访行程都甩她身上；回到家后又是父母的情绪输出人偶。这样一整个下来身边一个能搀扶着一起前行的都没也太可怜了……大喵老师来点作用啊！
 
+
+*****
+
+####  天才我心  
+##### 164#       发表于 2025-1-12 19:38
+
++2，爽太爽<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
