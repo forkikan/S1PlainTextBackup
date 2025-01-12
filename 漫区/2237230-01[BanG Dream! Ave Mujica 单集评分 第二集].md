@@ -1534,3 +1534,15 @@ nico第二集评分
 
 能做到这种程度的氛围塑造，这片肯定崩不了
 
+
+*****
+
+####  一心而用  
+##### 158#       发表于 2025-1-12 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67156661&amp;ptid=2237230" target="_blank">AveMujica 发表于 2025-1-12 00:01</a>
+nico第二集评分</blockquote>
+对比 
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+
