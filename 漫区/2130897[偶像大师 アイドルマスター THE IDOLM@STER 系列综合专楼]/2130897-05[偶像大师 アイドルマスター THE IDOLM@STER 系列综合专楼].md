@@ -671,3 +671,14 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 我在歌单里没看到那首1/3的时候就猜到小高肯定要整活，以他的尿性肯定要搞点神奇演出让儿力自己出来唱这首 ...</blockquote>
 令人感慨，小高这个fw连整活的内容都被我早早猜透了，感觉你闪已经没法给我带来惊喜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6867#       发表于 2025-1-12 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161687&amp;ptid=2130897" target="_blank">Alleyht 发表于 2025-1-12 19:43</a>
+
+令人感慨，小高这个fw连整活的内容都被我早早猜透了，感觉你闪已经没法给我带来惊喜了 ...</blockquote>
+说不定事后看因两天内看了连续四场公式化排曲而破防的观众就是这场演出最大的惊喜（
+
