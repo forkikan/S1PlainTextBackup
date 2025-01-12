@@ -18,3 +18,11 @@
 
 不过这一年从闪1到黎2的轨迹半马总算是跑到了阶段性的终点。谁也好快点把pc界轨端上来罢，我已经等不及了（轨迹韭菜特有戒断）<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7403#       发表于 2025-1-12 21:21
+
+界快了 估计就25号公布发售首日<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

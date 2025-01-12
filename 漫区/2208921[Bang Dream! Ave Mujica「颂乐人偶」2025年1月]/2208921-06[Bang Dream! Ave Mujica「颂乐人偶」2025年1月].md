@@ -3768,3 +3768,11 @@ https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</block
 
 说不定初华就是小时候被祥子要求交出人生了 结果祥子给忘了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 7719#       发表于 2025-1-12 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在初华的离谱假药也太多了，一水的惊悚悬疑向。太搞了，准备画个吊图去笑。
+

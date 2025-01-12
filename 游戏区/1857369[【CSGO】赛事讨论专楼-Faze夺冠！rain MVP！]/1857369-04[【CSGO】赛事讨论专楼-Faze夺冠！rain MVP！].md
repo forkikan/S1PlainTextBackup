@@ -30,3 +30,11 @@ hltv真干了
 
 逆天，减肥不彻底就要被欺负吗
 
+
+*****
+
+####  dev2ce  
+##### 4675#       发表于 2025-1-12 21:17
+
+hltv又不是第一回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本身就没一个统一标准，哪天valve嫌它烦不就似了
+
