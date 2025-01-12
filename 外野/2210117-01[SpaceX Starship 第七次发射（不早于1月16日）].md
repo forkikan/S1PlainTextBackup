@@ -1,0 +1,651 @@
+﻿
+*****
+
+####  commcody  
+##### 1#       楼主       发表于 2024-12-11 12:07
+
+ 本帖最后由 commcody 于 2025-1-12 15:37 编辑 
+
+第七发组合体是S33+B14。
+
+目前看点是V2（Block 2）型Starship首飞。而Super Heavy B14依然是V1版。根据目前观察到的制造分段，至少到B16依然还是V1版Super Heavy。
+
+B14已于当地时间12月9日完成了静点，并在第二天运回了Mega Bay 1。S33将于近日启程从Mega Bay 2出发，前往梅西测试场开展静点测试。
+
+第七发里程碑
+
+S33 静点：12月15日（6发）、12月16日（单发）
+
+B14 静点：12月9日
+
+S33 + B14 合体：1月9日
+
+S33 + B14 湿彩排：1月10日
+
+自毁系统炸药安装完成：1月3日（B14）
+
+FAA许可证发布：12月17日
+
+发射日期：不早于北京时间1月16日
+
+<img src="https://img.saraba1st.com/forum/202412/11/120506uapl5qmg6nqpobdg.jpg" referrerpolicy="no-referrer">
+
+<strong>GeYXlICb0AADNsA.jpg</strong> (534.42 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-11 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/120506h11g1l3q1xls91dl.jpg" referrerpolicy="no-referrer">
+
+<strong>GeYXmxnawAA6Q1w.jpg</strong> (478.25 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-11 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202412/11/120506wyzbj6gbj9g6zdga.jpg" referrerpolicy="no-referrer">
+
+<strong>GeYXnm9bUAAJDtZ.jpg</strong> (306.84 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-11 12:05 上传
+
+*****
+
+####  commcody  
+##### 2#         楼主| 发表于 2024-12-11 20:52
+
+S33从Mega Bay 2现身。从迎风面已几乎看不见前翼。
+
+<img src="https://img.saraba1st.com/forum/202412/11/205202docxllygchh0lvlr.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (292.43 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-11 20:52 上传
+
+*****
+
+####  commcody  
+##### 3#         楼主| 发表于 2024-12-12 23:30
+
+S33于昨日抵达梅西测试场准备静点测试
+
+<img src="https://img.saraba1st.com/forum/202412/12/232917snx4d3936sz4wnv0.jpg" referrerpolicy="no-referrer">
+
+<strong>GekWTrlaEAYDWZi.jpg</strong> (442.27 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-12 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/232940cvp33dnnvronv4rj.jpg" referrerpolicy="no-referrer">
+
+<strong>GekWUyLaEAAkS0C.jpg</strong> (451.72 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-12 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/232921qxaar8cxioar85a0.jpg" referrerpolicy="no-referrer">
+
+<strong>GekWXH_aEAUW8FK.jpg</strong> (524.35 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-12 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202412/12/232921qzoy4e989ol6yyl8.jpg" referrerpolicy="no-referrer">
+
+<strong>GekWYRabkAAdUnb.jpg</strong> (491.5 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-12 23:29 上传
+
+*****
+
+####  commcody  
+##### 4#         楼主| 发表于 2024-12-17 16:59
+
+12月15日，S33在梅西测试场完成了6发静点。
+
+16日，S33在梅西测试场完成了单发静点。
+
+<img src="https://img.saraba1st.com/forum/202412/17/165825h3tmvteze11kt1tm.jpg" referrerpolicy="no-referrer">
+
+<strong>Ge4ERVoagAAttyR.jpg</strong> (270.77 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-17 16:58 上传
+
+<img src="https://img.saraba1st.com/forum/202412/17/165854s5fq4df89q70c4s4.jpg" referrerpolicy="no-referrer">
+
+<strong>image (1).jpg</strong> (38.29 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-17 16:58 上传
+
+*****
+
+####  commcody  
+##### 5#         楼主| 发表于 2024-12-18 20:03
+
+FAA最近发文很快。第七飞的许可证已经发布。
+
+目前看，任务轨迹和第六飞相同。
+
+<img src="https://img.saraba1st.com/forum/202412/18/200220igw1e70e0kkf172e.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (119.19 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-18 20:02 上传
+
+*****
+
+####  commcody  
+##### 6#         楼主| 发表于 2024-12-27 22:14
+
+计划第九飞的S35鼻锥-载荷舱组合体被运入Mega Bay 2开始总装。在它的前翼下部舰身多出了一个矩形加强框，有可能是用于返塔着陆的支撑点安装位置。
+
+<img src="https://img.saraba1st.com/forum/202412/27/221217rj7mjalan2jfhvac.jpg" referrerpolicy="no-referrer">
+
+<strong>Gfw-AnFWsAA42Vk.jpg</strong> (398.03 KB, 下载次数: 15)
+
+下载附件
+
+2024-12-27 22:12 上传
+
+*****
+
+####  commcody  
+##### 7#         楼主| 发表于 2024-12-27 22:14
+
+根据CADENA OIS显示，第七飞时间北京时间2025年1月11日早6点。
+[https://www.cadenaois.org/vpublic_anspdetail.jsp?view=15](https://www.cadenaois.org/vpublic_anspdetail.jsp?view=15)
+
+*****
+
+####  larry1  
+##### 8#       发表于 2024-12-28 10:09
+
+就是说1级是新的，但是上面级还是老的。？
+
+*****
+
+####  commcody  
+##### 9#         楼主| 发表于 2024-12-28 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048167&amp;ptid=2210117" target="_blank">larry1 发表于 2024-12-28 10:09</a>
+
+就是说1级是新的，但是上面级还是老的。？</blockquote>
+1级是老款V1，2级是新款V2
+
+*****
+
+####  madbird023  
+##### 10#       发表于 2024-12-28 12:02
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  stevenzero  
+##### 11#       发表于 2024-12-28 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67037801&amp;ptid=2210117" target="_blank">commcody 发表于 2024-12-27 22:14</a>
+根据CADENA OIS显示，第七飞时间北京时间2025年1月11日早6点。
+
+https://www.cadenaois.org/vpublic_anspdet ...</blockquote>
+好像新格伦也是差不多这个时间。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+*****
+
+####  commcody  
+##### 12#         楼主| 发表于 2024-12-28 12:53
+
+鸽子1月6日下午14点开始
+
+*****
+
+####  依然荏苒  
+##### 13#       发表于 2024-12-28 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67048905&amp;ptid=2210117" target="_blank">stevenzero 发表于 2024-12-28 12:19</a>
+好像新格伦也是差不多这个时间。
+
+—— 来自 鹅球 v3.1.88.1-alpha</blockquote>
+6号
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  commcody  
+##### 14#         楼主| 发表于 2024-12-30 21:59
+
+HLS气闸舱现身星舰工厂。
+
+用于第八飞的B15完成了低温测试，返回了Mega Bay 1。B14即将前往发射场开展发射前准备。
+<img src="https://uchat.cn-bj.ufileos.com/rw_bbba52e4-52bd-4924-905a-79016e25ca39_Gf-jd2UXAAAiHUt.jpg" referrerpolicy="no-referrer">
+
+<img src="https://uchat.cn-bj.ufileos.com/rw_96959cba-212c-4db8-9fd1-c74cdc57f356_Gf-jf5hXEAELmAV.jpg" referrerpolicy="no-referrer">
+
+<img src="https://uchat.cn-bj.ufileos.com/rw_92580a22-2f0e-4a14-be9c-499b9abbe1d6_Gf_EQ8EX0AALV_g.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Hatsune_miku  
+##### 15#       发表于 2024-12-30 22:38
+
+星舰的所有技术难点(一级回收、二级回收、主体再入大气层没被烧毁)在前几次的任务中，应该都已经攻克了吧？还不准备发射完全版吗？
+
+*****
+
+####  commcody  
+##### 16#         楼主| 发表于 2024-12-30 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67065596&amp;ptid=2210117" target="_blank">Hatsune_miku 发表于 2024-12-30 22:38</a>
+
+星舰的所有技术难点(一级回收、二级回收、主体再入大气层没被烧毁)在前几次的任务中，应该都已经攻克了吧？ ...</blockquote>
+星舰还在设计迭代，如果是像F9那样设计定型的“完全版”，我估计至少得V3版星舰之后。如果只是单纯入轨发射载荷，我认为明年上半年就能实施了。
+
+现在也只是刚刚证明了能上去也能下来，但一级复用和二级筷子回收都还没实现。离解决星舰系统的真正核心问题也还很远，也就是一级、二级的快速复用和在轨加注。
+
+*****
+
+####  madbird023  
+##### 17#       发表于 2024-12-30 23:46
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  commcody  
+##### 18#         楼主| 发表于 2024-12-31 10:57
+
+B14推出前往发射台。B14在外部舰体中部增加了一圈桁条。
+
+<img src="https://uchat.cn-bj.ufileos.com/rw_e40059e8-0863-4d18-87f9-923163ab81b0_GgFnVgpWsAARzMn.jpg" referrerpolicy="no-referrer">
+
+<img src="https://uchat.cn-bj.ufileos.com/rw_53ab64dd-c2d3-4af4-87f3-eb095313f306_GgFUEtpWcAAcRb8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 19#       发表于 2024-12-31 11:14
+
+怎么听说新格伦静点都有问题就要发
+
+*****
+
+####  amzonme  
+##### 20#       发表于 2024-12-31 11:23
+
+这算不算大侄子们唯一能吹的东西了？
+
+*****
+
+####  commcody  
+##### 21#         楼主| 发表于 2024-12-31 23:35
+
+序号4的猛禽3发动机现身McGregor的水平试车台
+<img src="https://uchat.cn-bj.ufileos.com/rw_b48be6c1-ccf7-4f2b-8567-399ce4eaf1d1_GgIgzwuWcAAtDz-.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  瓦格雷  
+##### 22#       发表于 2025-1-1 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67069364&amp;ptid=2210117" target="_blank">2017.05.04 发表于 2024-12-31 11:14</a>
+
+怎么听说新格伦静点都有问题就要发</blockquote>
+好事 说不定有大烟花可以看
+
+*****
+
+####  commcody  
+##### 23#         楼主| 发表于 2025-1-3 19:20
+
+B14的自毁装药已安装。
+
+老马确认B14将复用一台来自B12的发动机。
+
+NASA的湾流观测机已抵达夏威夷。根据先前批文透露的计划，NASA的湾流观测机将负责观察S33的再入过程。
+<img src="https://uchat.cn-bj.ufileos.com/rw_5c0a6b28-6d0a-4e82-984f-a7c804806a7a_GgWrTojXcAAkcCa.jpg" referrerpolicy="no-referrer">
+
+<img src="https://uchat.cn-bj.ufileos.com/rw_c48ffd1b-c07a-4ff6-bc0c-252b8c320a3d_03c81f4715352fcba538a3e0d915e7d5277908429.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  依然荏苒  
+##### 24#       发表于 2025-1-3 19:46
+
+夏威夷转场去澳洲么？
+
+*****
+
+####  commcody  
+##### 25#         楼主| 发表于 2025-1-3 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67097684&amp;ptid=2210117" target="_blank">依然荏苒 发表于 2025-1-3 19:46</a>
+
+夏威夷转场去澳洲么？</blockquote>
+是的。下一站布里斯班。
+[https://www.flightaware.com/live ... 103/2230Z/PHNL/YBBN](https://www.flightaware.com/live/flight/NASA5/history/20250103/2230Z/PHNL/YBBN)
+
+*****
+
+####  commcody  
+##### 26#         楼主| 发表于 2025-1-4 11:12
+
+SpaceX公布了第七次发射的任务预览
+
+中文翻译；
+
+[https://www.bilibili.com/opus/1018333060823777281](https://www.bilibili.com/opus/1018333060823777281) <blockquote>星舰第七次飞行测试正准备进行发射。
+
+这次飞行测试将使用经过重大升级的新一代星舰，星舰将首次尝试有效载荷部署测试，在再入过程中，进行多种面向未来捕获回收的实验，同时也包括超重助推器的发射和回收。
+
+此次飞行测试中将首次亮相的星舰上级，已进行了的一系列的设计升级，将**提高其可靠性和性能。飞船的前翼尺寸已减小，并向星舰前端移动，远离隔热罩，**减少了它们在再入时的受热，同时前翼的隔热瓦和底部机械结构也进行了简化。星舰推进系统经过重新设计，携带推进剂体积增加了25%，推进管线采用真空绝热套管，星舰的猛禽真空引擎采用了新的燃料供给管线系统，且推进系统航空电子模块也进行了改进，以更好控制星舰的阀门，读取传感器数据，所有这些改进，都增加了星舰的性能以及长时间飞行的能力。星舰的隔热罩也将使用最新一代隔热瓦，并带有备用隔热层，以应对隔热瓦的脱落或损坏。
+
+新版星舰的航空电子设备经过了彻底的重新设计，增加了额外的功能和冗余，以应对日益复杂的任务：例如推进剂传输和星舰返场回收。航空电子设备的升级包括：更强大的飞行计算机，集成化天线（将 Starlink、GNSS 和备用 无限电通信功能整合到每个单元中），重新设计的惯性导航和星跟踪传感器，集成了智能电池和电源装置，可以为全星舰上的21个高压执行器进行2.7兆瓦的电力和数据分配，舰载摄像头增加到30多个，让工程师能够洞悉飞行过程中整个飞行器的硬件性能。借助Starlink，星舰能够在飞行的各个阶段，以120 Mbps以上的带宽，传输实时高清视频和遥测数据，为所有系统的快速迭代提供宝贵的工程数据。
+
+在太空中，星舰将部署10个Starlink卫星模拟器，其大小和重量与下一代Starlink卫星类似，这是星舰进行卫星部署任务的首次演习。Starlink模拟器将与星舰处于相同的亚轨道上，溅落目的地为印度洋。在这次测试中也计划在太空中，进行单台猛禽引擎的重点火测试。
+
+飞行测试中还将包括几项实验，侧重为星舰的返场和捕获回收做准备。在星舰上级，将拆除大量隔热瓦，以对整个载具的脆弱区域进行压力测试。星舰安装了多种金属隔热瓦，其中包括主动冷却技术隔热瓦，以尝试替代性材料对星舰再入过程实施保护。在载具侧面，安装了非结构版的星舰捕获回收部件，以测试该部件的热学性能，同时安装了平滑和锥形边缘的隔热瓦列，以解决星舰在第六次试飞再入过程中，观察到的发热点问题。星舰的再入剖面经过特意的设计，将在再入期间的最大空气动力压力点时，测试机翼的结构极限。最后，还将在发射塔的筷子上增加若干个雷达传感器进行测试，目的是提高在捕获回收过程中，更精确的测量筷子和返回载具之间的距离。
+
+超重助推器将首次使用经过飞行验证的部件，复用在第五飞助推器12上使用过的猛禽引擎。发射/回收塔进行了硬件升级，将提高助推器回收的可靠性，包括发射塔筷子上的传感器进行额外保护，这些传感器在上次试飞中星舰升空时遭到了破坏，最终导致助推器只能转向在海中溅落。
+
+超重助推器返回和回收之前，必须满足各项的载具及发射台安全标准，要求助推器和发射塔上的系统，均处于良好状态，并且任务飞行主管必须手动发出最终指令。如果在助推器返回点火完成前，未发出此指令，或者自动健康检查显示，超重助推器或发射塔的状况不可接受，助推器将默认选择海中着陆航迹，实施着陆点火后在墨西哥湾中溅落。在确保公众和团队安全方面，我们绝不妥协，只有在条件合适时才会执行返场回收。
+
+返回的助推器会从超音速减速，导致着陆区周围地区出现可听见的音爆。一般来说，音爆对周围区域的影响只是短暂的雷鸣般的噪音，天气以及距离返回点的远近等因素，决定了观察者感受到的音爆强度。
+
+新的一年对于星舰来说，将是具有变革意义的一年，我们的目标是实现全系统复用的上线运行，并开始执行越来越雄心勃勃的发射任务，逐步实现将人类和货物送入地球轨道，月球以及火星的目标。</blockquote>
+
+*****
+
+####  commcody  
+##### 27#         楼主| 发表于 2025-1-6 17:33
+
+星链模拟载荷被发现
+
+<img src="https://img.saraba1st.com/forum/202501/06/173305ldjbjk9uu5zzyduk.jpg" referrerpolicy="no-referrer">
+
+<strong>Ggle5XSX0AEHvNc.jpg</strong> (459.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-6 17:33 上传
+
+*****
+
+####  2017.05.04  
+##### 28#       发表于 2025-1-6 17:42
+
+隔壁贝光头新鸽伦又鸽到1.10
+
+我看大鱿鱼飞之前他那个是飞不起来了
+
+*****
+
+####  commcody  
+##### 29#         楼主| 发表于 2025-1-7 20:39
+
+S33已开始装载星链模拟载荷
+
+<img src="https://img.saraba1st.com/forum/202501/07/203924s33ggj4szmmf9ssj.jpg" referrerpolicy="no-referrer">
+
+<strong>watermarked.jpg</strong> (169.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-7 20:39 上传
+
+*****
+
+####  soongone  
+##### 30#       发表于 2025-1-7 22:39
+
+这一次仍然不采用筷子夹回收星舰吗？
+
+*****
+
+####  commcody  
+##### 31#         楼主| 发表于 2025-1-7 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67125182&amp;ptid=2210117" target="_blank">soongone 发表于 2025-1-7 22:39</a>
+
+这一次仍然不采用筷子夹回收星舰吗？</blockquote>
+这次还是印度洋回收，但是会试验用于捕获回收部件的热学性能。如果本次发射没有问题，下一次发射就可能执行星舰筷子回收。
+
+*****
+
+####  瓦格雷  
+##### 32#       发表于 2025-1-8 05:44
+
+<blockquote>soongone 发表于 2025-1-7 22:39
+这一次仍然不采用筷子夹回收星舰吗？</blockquote>
+V2星舰首发  肯定要保安全  模拟着陆
+
+*****
+
+####  commcody  
+##### 33#         楼主| 发表于 2025-1-9 20:36
+
+SpaceX正式宣布最早将在1月13日（北京时间1月14日）执行第七次发射。但目前各航空预警的开始日期都是1月14日（北京时间1月15日），因此具体发射日期仍不确定。
+
+S33终于完成了发射前整备，在风雨中从Mega Bay 2出发前往发射场。
+
+在前机身可以看到新增加的被隔热瓦覆盖的筷子支撑机构。本次只测试其热防护性能。如果S33在印度洋成功着陆，第八次发射很可能将首次尝试返场着陆。
+
+<img src="https://img.saraba1st.com/forum/202501/09/203131t88buuuv6b5ux5zx.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg2WfQUW0AA3Yx7.jpg</strong> (281.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202501/09/203135g0jmbjbi7tfbfmcf.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg0ub1rXgAA48ai.jpg</strong> (207.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-9 20:31 上传
+
+*****
+
+####  mega111  
+##### 34#       发表于 2025-1-9 20:49
+
+别的也就算了，为什么摄影这么JB强。。。
+
+*****
+
+####  commcody  
+##### 35#         楼主| 发表于 2025-1-10 12:07
+
+当地时间1月9日，S33与B14合体。
+
+S33也刷上了机械哥斯拉夹筷子的LOGO。
+
+老马发布了4张S33推出时的无人机视角。
+
+<img src="https://img.saraba1st.com/forum/202501/10/120611sjirzfgzccdijgt8.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg5T6EiWUAAiKsW.jpg</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120610qnp2pnqdp8hprxna.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg5cDPHXwAAPeJb.jpg</strong> (280.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120610p8x5jj4p6v47j4e5.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg35jJCWcAAfAUo.jpg</strong> (566.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120611g118s1qqd6cbjtcs.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg3aDXFaMAAysU5.jpg</strong> (534.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120612uqrkzvkk6zpn9evv.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg3aDXDagAA_nZD.jpg</strong> (230.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120611vhtif2qilouqwini.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg3aDXIa4AAzPzs.jpg</strong> (510.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/120611e8z8oybxts8ym00v.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg3aDXEa8AAocKP.jpg</strong> (386.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 12:06 上传
+
+*****
+
+####  瓦格雷  
+##### 36#       发表于 2025-1-10 13:57
+
+仰卧起坐是几号发射?
+
+*****
+
+####  机吉斯卡  
+##### 37#       发表于 2025-1-10 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67146121&amp;ptid=2210117" target="_blank">瓦格雷 发表于 2025-1-10 13:57</a>
+仰卧起坐是几号发射?</blockquote>
+中门对狙
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+<img src="https://img.saraba1st.com/forum/202501/10/142414fq99yr498ty2fryf.jpg" referrerpolicy="no-referrer">
+
+<strong>3578E33D-A9A5-4756-BB49-5D666DC5ADB0.jpg</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:24 上传
+
+*****
+
+####  机吉斯卡  
+##### 38#       发表于 2025-1-10 14:30
+
+<img src="https://img.saraba1st.com/forum/202501/10/142953stwj0zdtr522fiw5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_9217.JPG</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/142957aeu6re7xn3k9unj7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_9216.JPG</strong> (931.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/10/142954f909zly0cybx7xml.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_9215.JPG</strong> (204.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-10 14:29 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  瓦格雷  
+##### 39#       发表于 2025-1-10 15:21
+
+实锤"筷子"了啊 ^_^
+
+*****
+
+####  commcody  
+##### 40#         楼主| 发表于 2025-1-11 11:34
+
+1月10日，SpaceX完成了S33+B14组合体的湿彩排。彩排过程中加注了接近了1100万磅推进剂。
+
+<img src="https://img.saraba1st.com/forum/202501/11/113255hi4p4rpruwlu99li.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg-0gECboAAIUiF.jpg</strong> (257.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/113256ksh2qvh1v94jf1v4.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg-0fp7bcAAEzIn.jpg</strong> (680.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/11/113256lizm9v6i9b6a3vhk.jpg" referrerpolicy="no-referrer">
+
+<strong>Gg-0e0dbwAAnVGH.jpg</strong> (175.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-11 11:32 上传
+
+
+*****
+
+####  commcody  
+##### 41#         楼主| 发表于 2025-1-12 15:38
+
+完成湿彩排后S33被拆下。B14和S33开始进行最终发射前准备。SpaceX宣布最新的发射日期是不早于当地时间1月15日（北京时间1月16日早6点）。
+
+<img src="https://img.saraba1st.com/forum/202501/12/153800g655ruzzpcujisqk.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202501/12/153800g655ruzzpcujisqk.jpg">
+
+<strong>GhE2-gNXsAAXu9a.jpg</strong> (261.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 15:38 上传
+
