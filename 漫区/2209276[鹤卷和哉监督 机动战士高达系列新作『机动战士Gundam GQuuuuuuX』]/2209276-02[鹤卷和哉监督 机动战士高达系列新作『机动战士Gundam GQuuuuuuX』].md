@@ -13246,3 +13246,33 @@ PV中空战时天线就是收拢的，看中间的小绿点，那个才是它的
 
 是要满足什么条件才会展开V字天线变成双眼，也就是变成“高达”
 
+
+*****
+
+####  Steel.Haze  
+##### 2577#       发表于 2025-1-12 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162759&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-12 22:43</a>
+
+我觉得八九不离十了，现在看GQX头部天线收拢状态，并不是表示休眠，而是强调这是台常态独眼机
+
+PV中空战 ...</blockquote>
+是的，这个红面甲也很有象征意义。而且正好等于有个独眼形态。独眼还是高达化后额头主摄像机位置。确实是这样。
+
+*****
+
+####  刺客ares  
+##### 2578#       发表于 2025-1-12 22:50
+
+<img src="https://img.saraba1st.com/forum/202501/12/224717l2kadu9drwddd2mm.png" referrerpolicy="no-referrer">
+
+<strong>捕dd获.PNG</strong> (348.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 22:47 上传
+
+再看高达形态的GQX，上方紫色辅助摄像头展开，双眼摄像头露出，之前独眼形态摄像头上抬到额头
+
+等于在使用独眼摄像头的基础上再加入高达的双眼摄像头，形成了吉翁+高达的印象，也就是高达版力克迪亚兹<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

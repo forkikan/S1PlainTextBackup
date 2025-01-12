@@ -693,3 +693,13 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 说不定事后看因两天内看了连续四场公式化排曲而破防的观众就是这场演出最大的惊喜（ ...</blockquote>
 那还得是好不容易挤出时间看一场结果刚好碰上NT小高整活的美琴P更惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acacaclove  
+##### 6869#       发表于 2025-1-12 22:48
+
+这两天波多野在live结束之后挨个给出场的人见送鞠躬ありがとう真得很有情绪价值<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还到了波公公和鸽子妈的名片感觉这280确实赚了
+
