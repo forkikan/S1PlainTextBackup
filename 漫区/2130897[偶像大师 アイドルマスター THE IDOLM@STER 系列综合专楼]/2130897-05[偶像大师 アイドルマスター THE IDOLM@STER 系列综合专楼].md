@@ -462,3 +462,11 @@ via [Twitter](https://x.com/divine_mutton/status/1878049470883193275)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wfhtony  
+##### 6857#       发表于 2025-1-12 13:39
+
+演出后半（间奏后）美琴会上台，ルカ倒是没缺席么...
+
