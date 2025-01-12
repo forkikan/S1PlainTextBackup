@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 11710,
+    "totalreply": 11712,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1736648912,
+    "lastedit": 1736649499,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 53576,
+    "totalreply": 53577,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1736646249,
+    "lastedit": 1736649499,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 69333,
+    "totalreply": 69334,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1736648659,
+    "lastedit": 1736649260,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2185149": {
-    "totalreply": 484,
+    "totalreply": 485,
     "title": "[2025年的Q娃其一：魔法使光之美少女2]",
     "newtitle": "[2025年的Q娃其一：魔法使光之美少女2]",
-    "lastedit": 1736648901,
+    "lastedit": 1736649254,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10899,10 +10899,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 21423,
+    "totalreply": 21430,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1736648654,
+    "lastedit": 1736649494,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11511,10 +11511,10 @@
     "update": false
   },
   "2088649": {
-    "totalreply": 779,
+    "totalreply": 781,
     "title": "[武侠游戏新作《燕云十六声》7月26日公测]",
     "newtitle": "[武侠游戏新作《燕云十六声》7月26日公测]",
-    "lastedit": 1736643751,
+    "lastedit": 1736649129,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13050,10 +13050,10 @@
     "update": false
   },
   "2236222": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "[【年经贴】你心目中2024年排名前五的动画作品是哪些？]",
     "newtitle": "[【年经贴】你心目中2024年排名前五的动画作品是哪些？]",
-    "lastedit": 1736644698,
+    "lastedit": 1736649498,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13748,7 +13748,7 @@
     "newtitle": "[《剑与远征：启程》赢得谷歌商店2024年度最佳游戏奖，TGA提名]",
     "lastedit": 1736390063,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2236445": {
@@ -16497,10 +16497,10 @@
     "update": false
   },
   "2237234": {
-    "totalreply": 131,
+    "totalreply": 132,
     "title": "[已知是我玩过最无聊的机甲科幻ADV群像剧游戏----十三机兵防卫圈]",
     "newtitle": "[已知是我玩过最无聊的机甲科幻ADV群像剧游戏----十三机兵防卫圈]",
-    "lastedit": 1736648543,
+    "lastedit": 1736649499,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17064,10 +17064,10 @@
     "update": false
   },
   "2237407": {
-    "totalreply": 100,
+    "totalreply": 101,
     "title": "[印度开始反思了？]",
     "newtitle": "[印度开始反思了？]",
-    "lastedit": 1736648912,
+    "lastedit": 1736649260,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17127,10 @@
     "update": false
   },
   "2237438": {
-    "totalreply": 153,
+    "totalreply": 154,
     "title": "[感觉荒唐的事情要发生在自己身上了]",
     "newtitle": "[感觉荒唐的事情要发生在自己身上了]",
-    "lastedit": 1736648912,
+    "lastedit": 1736649260,
     "category": "外野",
     "active": true,
     "update": false
@@ -17159,6 +17159,15 @@
     "newtitle": "[《明末：渊虚之羽》2025年发售]",
     "lastedit": 1736648921,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2237440": {
+    "totalreply": 41,
+    "title": "[中国消费规格最高的超市是哪个]",
+    "newtitle": "[中国消费规格最高的超市是哪个]",
+    "lastedit": 1736649260,
+    "category": "外野",
     "active": true,
     "update": false
   }
