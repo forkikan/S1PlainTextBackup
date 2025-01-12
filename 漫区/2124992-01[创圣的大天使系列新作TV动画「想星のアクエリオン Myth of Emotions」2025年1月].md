@@ -1829,3 +1829,11 @@ EVOL我看的真没觉得怎么不好，logos是真的史
 
 evol最大的问题还是唐突抛出狗的设定把一堆人彻底变成了小丑 以及阿波罗尼亚斯真的是屑中屑的烂人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  forgetit  
+##### 190#       发表于 2025-1-12 10:49
+
+这片是不是没有字幕
+
