@@ -1442,3 +1442,15 @@ Steam上有人整理了背景设定。
 
 那我打boss前不和NPC对话对方能不能活下来？
 
+
+*****
+
+####  ParadiseMartyr  
+##### 133#         楼主| 发表于 2025-1-12 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157379&amp;ptid=2236671" target="_blank">thermite 发表于 2025-1-12 03:05</a>
+哎等会，打boss的特殊武器是要烧一条NPC的命的？
+
+那我打boss前不和NPC对话对方能不能活下来？ ...</blockquote>
+应该是没办法留一命的，没做这种剧情分支
+
