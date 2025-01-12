@@ -3335,3 +3335,68 @@ mygo时候就有人说了 这是二次元音乐动画片 不是小时代
 有人會忘詞然後跟睦頭一樣攤在台上嗎</blockquote>
 还不如问问如果还是有代打，会不会对面冒出一个长崎祥子出来。
 
+
+*****
+
+####  一心而用  
+##### 7684#       发表于 2025-1-12 14:18
+
+<img src="https://p.sda1.dev/21/c1d2ad58a32b9ba88d1305c3b00b71a6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/68652dc8e895859497dcccd088e150e3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3d75f5fbebcec46505430e1597463055/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c56aaadc6171510ef9978c589a8e1353/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f5263fe5fd817fde659dc33652008ef5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/93370e34f79540a368c556f04ed1cb5c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9ac8b8e70ba763d1d26b72c9631fcde8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d8196c81452eb24bb08d6a38347690ae/image.jpg" referrerpolicy="no-referrer">
+梦以的腰，杀人的刀。
+
+
+*****
+
+####  玖羽  
+##### 7685#       发表于 2025-1-12 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159683&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-12 13:11</a>
+
+因为动漫区up说了初华假药 然后一堆人借题发挥表示初华有**滴问题</blockquote><blockquote>一夜之间各种假药喷涌而出，包括但不限于：
+
+初华不可信叙述者说
+
+初华双胞胎说
+
+初华人格分裂说
+
+初华失忆说
+
+初华认知障碍说
+
+初华女鬼说
+
+初华不存在说
+
+初华人偶说
+
+纯田初华说
+
+…………
+
+……
+
+看来你吧假药学已经到了一个新的高度</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/12/142035j9jviipii99fbbt2.jpg" referrerpolicy="no-referrer">
+
+<strong>0000.jpg</strong> (89.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 14:20 上传
+
+*****
+
+####  山ノ内花音  
+##### 7686#       发表于 2025-1-12 14:26
+
+双胞胎比较靠谱 纯田初华没什么这么写的必要
+
