@@ -3611,3 +3611,16 @@ crychic大和解</blockquote>
 
 <img src="https://p.sda1.dev/21/416612dfc067f7c55ed0c7d51319d2ba/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  良臣没有重谢  
+##### 7706#       发表于 2025-1-12 18:15
+
+祥子送报路上这坡是真的陡。赤羽这一块感觉高低差都挺大的送报的工作量完全是超级加倍啊。
+<img src="https://p.sda1.dev/21/90c5a4d87b30d7e7045cd2db7deb8996/IMG_CMP_213738254.jpeg" referrerpolicy="no-referrer">
+
+凌晨五六点根本没睡好的大祥老师从床上爬起来，穿上运动服先爬坡上坎送两个小时报纸回到家发现根本没浴室洗澡，只能换身校服赶去羽丘。整整一天，因为爬这超长超陡的圣人惠都不敢在顶上站着摆pose的上坡而流的一身汗积在皮鞋里慢慢发酵越来越浓郁的香味到底能有多好闻我都不敢想啊。😤
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
