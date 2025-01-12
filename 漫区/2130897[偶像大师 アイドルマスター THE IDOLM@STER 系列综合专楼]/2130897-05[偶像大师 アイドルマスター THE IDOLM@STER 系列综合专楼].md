@@ -703,3 +703,13 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 
 还到了波公公和鸽子妈的名片感觉这280确实赚了
 
+
+*****
+
+####  sliver1997  
+##### 6870#       发表于 2025-1-13 02:14
+
+小高太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
