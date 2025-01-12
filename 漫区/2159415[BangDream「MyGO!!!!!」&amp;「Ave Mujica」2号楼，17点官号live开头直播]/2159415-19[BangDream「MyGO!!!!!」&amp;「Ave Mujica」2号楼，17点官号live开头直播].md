@@ -2519,3 +2519,13 @@ MyGO!!!!! 部分:
 
 还是老歌啊
 
+
+*****
+
+####  小妻水亚美  
+##### 26829#       发表于 2025-1-12 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来上海 广州今天都有线下观影会
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
