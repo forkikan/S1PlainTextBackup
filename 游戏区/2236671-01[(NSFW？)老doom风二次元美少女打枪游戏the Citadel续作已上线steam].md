@@ -1558,3 +1558,13 @@ Esqa的本体在地球轨道上的 ...</blockquote>
 流程上感受也很明显 ...</blockquote>
 没玩过1，二代的新武器都有哪些？大狙瞄准镜带密位和测距，熟悉弹道之后200m内对狙基本还是不虚的。白色的石头应该是什么磨刀石，看描述是强化近战武器的（真有人会在这游戏里玩近战吗）
 
+
+*****
+
+####  ParadiseMartyr  
+##### 140#         楼主| 发表于 2025-1-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67160998&amp;ptid=2236671" target="_blank">DawnGuardian 发表于 2025-1-12 17:32</a>
+没玩过1，二代的新武器都有哪些？大狙瞄准镜带密位和测距，熟悉弹道之后200m内对狙基本还是不虚的。白色 ...</blockquote>
+后期重甲移速拉满还是能近战打得。就是刺剑非常尴尬。斧头占个可以打磨，双爪子匕首占一个攻速快(不虚那堆黑色史莱姆)，它是啥都不沾
+
