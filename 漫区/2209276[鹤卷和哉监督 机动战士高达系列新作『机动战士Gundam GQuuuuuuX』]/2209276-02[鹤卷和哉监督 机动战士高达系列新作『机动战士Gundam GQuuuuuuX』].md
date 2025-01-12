@@ -13276,3 +13276,21 @@ PV中空战 ...</blockquote>
 
 等于在使用独眼摄像头的基础上再加入高达的双眼摄像头，形成了吉翁+高达的印象，也就是高达版力克迪亚兹<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2579#       发表于 2025-1-12 23:16
+
+但按这么推理的话，牢修恐怕换不了机了，因为红高达原型是卡斯巴尔专用高达RX-78/C.A
+
+<img src="https://img.saraba1st.com/forum/202501/12/231622objqr4l1jl04osuj.png" referrerpolicy="no-referrer">
+
+<strong>捕ad获.PNG</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 23:16 上传
+
+后面难道要换平行版沙扎比吗，这才0085啊，还是因为鸭子融进机体里，就靠这台79年机打到最后？
+
