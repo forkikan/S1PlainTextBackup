@@ -3739,3 +3739,16 @@ go是鼓子和羊没去签名
 crychic大和解</blockquote>
 泪目，还得是c团
 
+
+*****
+
+####  厄神之息  
+##### 7716#       发表于 2025-1-12 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67159168&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-12 11:44</a>
+
+贴吧刚刚考据出来一个更吓人的假药。
+
+https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp; ...</blockquote>
+？？？？有必要把初华的问题往禁闭岛那方向靠吗，都说了睦是最严重的那个，非往禁闭岛那方向走，那初华问题可比睦的封心锁爱严重一百八十倍了。。。
+
