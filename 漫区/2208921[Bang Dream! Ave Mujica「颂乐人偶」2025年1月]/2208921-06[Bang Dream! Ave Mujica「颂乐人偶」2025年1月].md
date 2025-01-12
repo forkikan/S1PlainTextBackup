@@ -2913,3 +2913,61 @@ B站二创：一个叫八幡海铃的贝斯手决定去死
 初华的假药能开个药店了。
 <img src="https://p.sda1.dev/21/e9723c3a782bfd094950dc245a2ac995/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7650#       发表于 2025-1-12 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67157161&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-12 01:40</a>
+
+虽然对二偶动画来说80左右算不错成绩
+
+不过还是想嘲笑老登之前吹mujica是季度霸权，哈哈第二集80左右的评 ...</blockquote>
+星3想要80%还没这门路呢。。。
+
+说到底这红海市场，你总得赢一个地方吧，从好评角度来说开篇有80%很不错了。当然某人嘴上跑火车也不是一次两次了。。。
+
+*****
+
+####  嵇翱u  
+##### 7651#       发表于 2025-1-12 09:29
+
+比起mygo片场主动去帮助灯的初华，现在的初华似乎什么都没做，但是事情却一直向着初祥的方向发展，不知道是命运的大手还是另有隐情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  66367749  
+##### 7652#       发表于 2025-1-12 09:34
+
+前几集这压抑内容想高也高不起来吧
+
+*****
+
+####  半年  
+##### 7653#       发表于 2025-1-12 09:36
+
+<img src="https://p.sda1.dev/21/a3b55a8eceac5d5a43b40d521c3d660d/GhBc3VLaEAAeaxD.png" referrerpolicy="no-referrer">
+
+[https://x.com/lysine_slmr/status/1878103313847316956/photo/1](https://x.com/lysine_slmr/status/1878103313847316956/photo/1)
+
+*****
+
+####  半年  
+##### 7654#       发表于 2025-1-12 09:37
+
+<img src="https://p.sda1.dev/21/7e871ea19ca1f61afe265c688156a576/GhAWDwKaQAA1SWl.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kimino107/status/1878025306092843118/photo/1](https://x.com/kimino107/status/1878025306092843118/photo/1)
+
+*****
+
+####  一心而用  
+##### 7655#       发表于 2025-1-12 09:37
+
+只是惦记着黄瓜而已。
+<img src="https://p.sda1.dev/21/84b9372b079fb2e362048e3d20cdcf61/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c9cace5019caa6c8de212de740cf4003/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cd611032d7c80b286cc8b66054e8e311/image.jpg" referrerpolicy="no-referrer">
+
