@@ -4339,3 +4339,28 @@ GODinGOD
 
 反而真正的holoanti楼没有人讨论这个事
 
+
+*****
+
+####  holoan  
+##### 10675#         楼主| 发表于 2025-1-11 21:08
+
+长时间坐姿直播，背部先出现疲劳了
+
+确实该好好休息了，大会什么的管他去吧命比较重要
+
+*****
+
+####  holoan  
+##### 10676#         楼主| 发表于 2025-1-12 17:46
+
+<img src="https://img.saraba1st.com/forum/202501/12/174612c6tck3f6vbwjf3mx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 17:46 上传
+
+ 还没开播已经在练了
+
