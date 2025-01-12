@@ -13196,3 +13196,53 @@ GQX世界线元祖在构图最左边，中间是机体头部和胸部的大特�
 
 然后最后机体的代号可能就是地母高达，也就是GQuuuuuuX的五个U和G的缩写替换成Gundam Qubeley X（也是最终机体编号）
 
+
+*****
+
+####  Steel.Haze  
+##### 2574#       发表于 2025-1-12 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162630&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-12 22:21</a>
+
+现在回看初期爆料的两台机体，其实在设定图上的位置也有对应关系啊
+
+山下给这两台机体做设定的时候，采用 ...</blockquote>
+是的，而且原则上，女主的原始机体=吉翁俘获了高达后，按照高达更高的技术标准再开发的"大魔/勇士"这种次代MS，所以扎古还是扎古风格，再后面的就被高达的设计影响了。
+
+*****
+
+####  lickey  
+##### 2575#       发表于 2025-1-12 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162695&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-12 22:33</a>
+
+是的，不过可以一直在这个素体基础上换。
+
+等于大魔R4--&gt;力克迪亚兹--&gt;卡碧尼</blockquote>
+坏了，巧合不可能有这么多，感觉这下真是不得不信了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 2576#       发表于 2025-1-12 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162695&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-12 22:33</a>
+
+是的，不过可以一直在这个素体基础上换。
+
+等于大魔R4--&gt;力克迪亚兹--&gt;卡碧尼</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/12/223854t4z6574rjrz52478.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 22:38 上传
+
+我觉得八九不离十了，现在看GQX头部天线收拢状态，并不是表示休眠，而是强调这是台常态独眼机
+
+PV中空战时天线就是收拢的，看中间的小绿点，那个才是它的常态主摄像头，这台机原型是独眼机
+
+是要满足什么条件才会展开V字天线变成双眼，也就是变成“高达”
+
