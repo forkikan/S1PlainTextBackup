@@ -1454,3 +1454,23 @@ Steam上有人整理了背景设定。
 那我打boss前不和NPC对话对方能不能活下来？ ...</blockquote>
 应该是没办法留一命的，没做这种剧情分支
 
+
+*****
+
+####  Tnsbilws  
+##### 134#       发表于 2025-1-12 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121186&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-7 13:56</a>
+
+感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人</blockquote>
+你要是用狙或者突击步枪可以顶着盾强杀
+
+*****
+
+####  ParadiseMartyr  
+##### 135#         楼主| 发表于 2025-1-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67121186&amp;ptid=2236671" target="_blank">量子大蛇 发表于 2025-1-7 13:56</a>
+感谢，原来真是得瞄手啊，感觉对枪速度完全比不上敌人</blockquote>
+可以直接冲上去踢两脚，连盾带人直接踢死，得有空中冲刺的速度，只是走上去的话没法踢死
+

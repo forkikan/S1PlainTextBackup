@@ -2994,3 +2994,14 @@ ttps://x.com/doran7280/status/1875820566801973607</blockquote>
 图4翻译
 <img src="https://p.sda1.dev/21/a0ba84af77a9f4423a57b9afa80a978f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KLHgg  
+##### 7658#       发表于 2025-1-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67150049&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-10 22:33</a>
+
+只是觉得角色粉丝之间在这争谁首锅这种讨论很搞笑。好像在看什么电竞分锅大会一样。 ...</blockquote>
+车祥子的视频在b站热门看到了，开头一句“可以理解但不正确”，一股电竞味太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
