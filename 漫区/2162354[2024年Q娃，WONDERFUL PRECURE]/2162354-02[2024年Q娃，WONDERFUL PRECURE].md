@@ -29,3 +29,25 @@
 <img src="https://files.catbox.moe/dql8t1.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/548kkt.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 2700#       发表于 2025-1-12 08:06
+
+第 48 集的 TVer 源（含日字）：magnet:?xt=urn:btih:1179eaa920aa0679273388beef87b206086bf18a
+
+*****
+
+####  jaewoongh_  
+##### 2701#       发表于 2025-1-12 08:07
+
+有没有谁能帮我解说一下这集的剧情，能讲清楚的话我支付宝扫给你100块钱
+
+*****
+
+####  renkan119  
+##### 2702#       发表于 2025-1-12 08:07
+
+灭族之仇就这么莫名其妙的化解掉了 所以为啥要选这个当主线…
+
