@@ -13050,3 +13050,24 @@ pixivid:2179362
 
 一个UC就能抵消掉几个潮流buff了（笑
 
+
+*****
+
+####  创始’’’天翔  
+##### 2566#       发表于 2025-1-12 21:39
+
+所以才把UC背景藏起来(可惜太草台了)
+
+
+*****
+
+####  aptx8285144  
+##### 2567#       发表于 2025-1-12 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67162306&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-1-12 21:26</a>
+
+这几个tag似乎没有一个和潮流勾得上的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+那什么是现在的“潮流”，是百合还是乐队动画？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
