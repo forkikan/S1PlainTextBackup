@@ -448,3 +448,17 @@ via [Twitter](https://x.com/divine_mutton/status/1878049470883193275)
 
 看推上那些夸夸的我就懂了，这就是提纯啊
 
+
+*****
+
+####  Laie  
+##### 6856#       发表于 2025-1-12 11:49
+
+ 本帖最后由 Laie 于 2025-1-12 11:51 编辑 
+
+推上趋势一点进去前排清一色全肯定repo
+拉下去就变成一串お気持ち表明
+欣欣向荣万物竞发<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

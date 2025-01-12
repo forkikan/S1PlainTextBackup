@@ -3110,3 +3110,54 @@ Ave Mujica：我炸了
 
 试图通过算计达成目的的人设，已经在go的素世品鉴过了，独角兽没必要在鸡的后半再刻画一个深度隐藏版的素世
 
+
+*****
+
+####  一心而用  
+##### 7665#       发表于 2025-1-12 11:44
+
+ 本帖最后由 一心而用 于 2025-1-12 11:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67158754&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-12 10:19</a>
+
+我倒是觉得这些假药都太单调了，无非都是在重复一件事“初华是病娇”
+
+根据我总结的原则空对空地推测，现 ...</blockquote>
+贴吧刚刚考据出来一个更吓人的假药。
+[https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.76.1.1&amp;st=1736652222&amp;is_video=false&amp;unique=3C135CAA7C9FCB3A2545EB631809EE51](https://tieba.baidu.com/p/9407526575?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.76.1.1&amp;st=1736652222&amp;is_video=false&amp;unique=3C135CAA7C9FCB3A2545EB631809EE51)
+
+初华和祥子小时候偶遇的那个岛疑似就是鹿儿岛县的奄美群岛，这个岛的特殊地形第6话时正好在花咲川的地理课上讲了，然后下一秒初华请假出去了
+<img src="https://p.sda1.dev/21/380951cf55a412ccdbe9e52228415a83/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2f2f084c1af877a4238da765d0d76939/image.jpg" referrerpolicy="no-referrer">
+
+这个岛是罕见姓氏“纯田”的起源地，因此初华和真奈有可能都是住在这个岛上的幼驯染，这个岛疑似也是“丰川”姓氏的部分起源，所以祥子会在岛上有房产也不足为奇。
+<img src="https://p.sda1.dev/21/5938d5cd45c800e44975cf4ffe728e8b/image.jpg" referrerpolicy="no-referrer">
+
+接下来的假药部分就是：其实祥子在岛上真正的青梅竹马其实是真奈，初华故意取代了真奈的位置，篡改了幼时的记忆（祥子一条短信能看一年的初华却对祥子一直抱着的人偶毫无印象，因为这其实不是她的经历），只为成为祥子身边的唯一。
+<img src="https://p.sda1.dev/21/cc3cbb5e5905d97eab51ec874ccd8dfc/image.jpg" referrerpolicy="no-referrer">
+
+这张官图，重要的部分是目前还没登场的、初华手里的钥匙🗝，这一点还是被李子自己点出来的，而被锁住的就是真相。
+<img src="https://p.sda1.dev/21/dddeebae06576ae2406df84a5e53a9b4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e862a397904bd78436c8294095c82b23/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  linekm  
+##### 7666#       发表于 2025-1-12 11:47
+
+睦的现在这幻听加幻觉的症状已经典型精神分裂的症状了，真得住院吃药那种了，不知道后续咋写了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kivz  
+##### 7667#       发表于 2025-1-12 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太烂了，端下去吧
+
+*****
+
+####  ykyin09  
+##### 7668#       发表于 2025-1-12 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">结局总是包饺子大家一起进手游pico的，别搞这么多奇奇怪怪的假药啊
+
