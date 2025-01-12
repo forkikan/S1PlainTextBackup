@@ -3102,3 +3102,11 @@ Ave Mujica：我炸了
 
 <img src="https://p.sda1.dev/21/2fcf3675addad879bcdf918e287e8c23/IS_AR2E__H__2Y6_AA_1A~P.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KLHgg  
+##### 7664#       发表于 2025-1-12 11:10
+
+试图通过算计达成目的的人设，已经在go的素世品鉴过了，独角兽没必要在鸡的后半再刻画一个深度隐藏版的素世
+
