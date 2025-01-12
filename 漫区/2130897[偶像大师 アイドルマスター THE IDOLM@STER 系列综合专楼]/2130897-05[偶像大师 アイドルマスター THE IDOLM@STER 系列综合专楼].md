@@ -575,3 +575,53 @@ fashionable来了<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 20. 愛なView // 全員</blockquote>
 
+
+*****
+
+####  wfhtony  
+##### 6864#       发表于 2025-1-12 19:17
+
+<img src="https://img.saraba1st.com/forum/202501/12/191516y5zwvntfzucfrcxw.jpg" referrerpolicy="no-referrer">
+
+<strong>live_20m_20250112T085011.m3u8_20250112_191133.782.jpg</strong> (55.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/191517e4ihozoh1wm3hrwo.jpg" referrerpolicy="no-referrer">
+
+<strong>live_20m_20250112T085011.m3u8_20250112_191146.777.jpg</strong> (56.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/191517mmjvb3vktg00gdsz.jpg" referrerpolicy="no-referrer">
+
+<strong>live_20m_20250112T085011.m3u8_20250112_191150.439.jpg</strong> (52.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202501/12/191518b3cfxuh6cs63j3x3.jpg" referrerpolicy="no-referrer">
+
+<strong>live_20m_20250112T085011.m3u8_20250112_191156.833.jpg</strong> (54.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 19:15 上传
+
+后面还要搞一次MR...
+
+<img src="https://img.saraba1st.com/forum/202501/12/191510v0azpdzgmpe7wa1n.jpg" referrerpolicy="no-referrer">
+
+<strong>live_20m_20250112T085011.m3u8_20250112_191321.712.jpg</strong> (83.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 19:15 上传
+
+1/3作为惊喜曲目（Hidden Track）登场，没有其他演出衬托，和组合SOLO专的登场形式一样。
+

@@ -1141,3 +1141,20 @@ RPG和ACT的区别~~
 
 上来就定这么高的价嘛
 
+
+*****
+
+####  saitochiho  
+##### 121#       发表于 2025-1-12 19:23
+
+我看PS5上怎么好意思卖268，飘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 122#       发表于 2025-1-12 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161574&amp;ptid=2168791" target="_blank">saitochiho 发表于 2025-1-12 19:23</a>
+我看PS5上怎么好意思卖268，飘了吗</blockquote>
+你看到的是豪华版吧
+
