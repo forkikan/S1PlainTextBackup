@@ -3642,3 +3642,39 @@ crychic大和解</blockquote>
 祥子送报路上这坡是真的陡。赤羽这一块感觉高低差都挺大的送报的工作量完全是超级加倍啊。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我走过soyo追祥子那个坡，从底走到顶给我喘的
 
+
+*****
+
+####  良臣没有重谢  
+##### 7709#       发表于 2025-1-12 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161381&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-1-12 18:45</a>
+我走过soyo追祥子那个坡，从底走到顶给我喘的</blockquote>
+那个坡太典了，路人女主物语天气之子一大堆动画在那取景过。评价是不如赤羽这坡狠。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  上条仁美  
+##### 7710#       发表于 2025-1-12 18:55
+
+ 本帖最后由 上条仁美 于 2025-1-12 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67161231&amp;ptid=2208921" target="_blank">良臣没有重谢 发表于 2025-1-12 19:15</a>
+
+祥子送报路上这坡是真的陡。赤羽这一块感觉高低差都挺大的送报的工作量完全是超级加倍啊。</blockquote>
+日本送报纸是凌晨3点半左右就开始了，5，6点都已经快派完了，我上学那会儿家旁边就是报社分派点，经常熬完夜3点多出门去附近711买点夜宵，就发现送报的意见开始在忙了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 良臣没有重谢| + 2|这么夸张吗 三点半我有时候都还没睡觉呢。.|
+
+查看全部评分
+
