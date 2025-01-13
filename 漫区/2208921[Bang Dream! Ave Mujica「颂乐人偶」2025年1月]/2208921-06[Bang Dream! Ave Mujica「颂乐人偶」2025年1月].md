@@ -5509,3 +5509,35 @@ go第8集台词 あなたと空を見上げるのは 夏でしたわね
 [水仙<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/eb8297449d9d70a3359253d1a7730e4e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 7859#       发表于 2025-1-13 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170035&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-13 19:43</a>
+
+go第8集台词 あなたと空を見上げるのは 夏でしたわね
+
+表明初祥童年相见过很多次了 ...</blockquote>
+重点不是童年相见过多少次，而是<strong>从什么时候开始不见的？</strong>
+
+这么说的话，一开始的短信也很奇怪，已知初华看过Crychic的Live并且和祥子打招呼，合理推测是祥子告诉初华的；
+
+但是一年后初华看短信的时候，开头写的是“好久不联系”（ひさしぶり），那么Crychic的Live是在短信前还是短信后，
+
+如果是在短信前，祥子和初华必然联系过看Live的事，怎么会用到“ひさしぶり”？
+
+如果是在短信后，为什么之后没有祥子和初华联系的内容？
+
+如果祥子和初华同时还在用SNS联系，为什么只有出道用短信联系？
+
+
+*****
+
+####  纯田まな  
+##### 7860#       发表于 2025-1-13 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d73a91c029a1db106db427a5241be0e9/IMG_5186.jpeg" referrerpolicy="no-referrer">
+
