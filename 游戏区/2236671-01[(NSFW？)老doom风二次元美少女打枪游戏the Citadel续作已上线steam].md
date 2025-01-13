@@ -1764,3 +1764,18 @@ It is a ...</blockquote>
 
 没想到最后还有坦克关，这代的坦克属实有些粪、移动和开火都过于笨拙，好在可以把坦克当做碰碰车来开，一路创过去还挺解压的
 
+
+*****
+
+####  DawnGuardian  
+##### 153#       发表于 2025-1-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170677&amp;ptid=2236671" target="_blank">amazarashi 发表于 2025-1-13 22:04</a>
+
+2代打了26.5小时结束，属性拿完了，剩几张CG没拿
+
+达成率0.1%成就的解锁方式是啥？
+
+    </blockquote>
+那把大口径步枪感觉还不如同栏位的初始武器卡宾枪好用，至少人家打杂兵真能一枪头，还有4倍镜
+
