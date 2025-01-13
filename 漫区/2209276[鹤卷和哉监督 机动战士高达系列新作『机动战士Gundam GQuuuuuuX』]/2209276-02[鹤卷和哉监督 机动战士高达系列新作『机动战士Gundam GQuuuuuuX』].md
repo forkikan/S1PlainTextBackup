@@ -13769,3 +13769,12 @@ nt难道是什么都能塞的东西，发功感应到平行世界，是否有点
 
 这就是平行世界的魅力啊（
 
+
+*****
+
+####  虛無迴廊  
+##### 2628#       发表于 2025-1-13 21:35
+
+之前在b吧也有猜牢修能看别的世界线，因为声优说修司的谜语对他自己来说都是真事<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/be52e0e994c130c599083c5d07b0de23/CMP_20250113212602798.jpg" referrerpolicy="no-referrer">
+
