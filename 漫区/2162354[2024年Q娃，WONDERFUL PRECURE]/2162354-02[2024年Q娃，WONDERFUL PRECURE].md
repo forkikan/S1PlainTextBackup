@@ -223,3 +223,23 @@ Screenshot_20250112-153402.png
 
 这集动物借力用的跟法Q黄宝石形态一样花了
 
+
+*****
+
+####  天风绯炎  
+##### 2719#       发表于 2025-1-13 22:26
+
+嘎嗷是昴这点果然被预言中了，继承遗愿，无法发泄的愤怒……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这集确实比法q2有钱一点，法q2全靠芳山优C了，没有芳山优实在无法想象那战斗能端上来一盘啥，这集至少有q娃主动画原画组这个基本盘在。
+
+彩叶转变那里逻辑感觉非常之口胡，非常之王德发，从前昴和狼是朋友，于是推导出了人类和狼是朋友这个结论，昴个人的行为不能代表整个人类。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+然后垫了一句恭维昴的话，昴的愤怒来着怀念狼族，他是亚撒西的，而我们的动物镇也很美好。石榴后面也替昴找补了一句，他也肯定知道破坏这个城镇是于事无补。
+
+所以我们不能重蹈覆辙，狼族灭绝的过去，我们无力阻止，现在嘎嗷嘎嗷要破坏动物镇，我们会尽全力阻止。
+
+那请问最后谁背锅？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">狼神社让昴获得了力量全责。
+
+昴他也不想的，他只是获得了力量要泄愤<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">。
+

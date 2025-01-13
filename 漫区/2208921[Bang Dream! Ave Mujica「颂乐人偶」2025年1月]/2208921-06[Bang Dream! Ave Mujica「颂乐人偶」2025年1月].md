@@ -5719,3 +5719,13 @@ ep08 那段对话是有比较奇怪的地方的
 
 《部分主唱极富职业道德》
 
+
+*****
+
+####  半年  
+##### 7875#       发表于 2025-1-13 22:20
+
+<img src="https://p.sda1.dev/21/9b4e40ee4f4e3150cd3795acc1cdd2a3/GhKztPEWwAAioY0.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Raito_Taisha/status/1878761615094665353/photo/1](https://x.com/Raito_Taisha/status/1878761615094665353/photo/1)
+
