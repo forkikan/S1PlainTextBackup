@@ -737,3 +737,14 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 6872#       发表于 2025-1-13 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169760&amp;ptid=2130897" target="_blank">lovekoishi 发表于 2025-1-13 18:53</a></blockquote>
+笑死，这下有新的地狱笑话了：往爱马仕现场放火，哪家的P死的最多？
+
+答案是闪彩，因为闪P会觉得火灾是高山的演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

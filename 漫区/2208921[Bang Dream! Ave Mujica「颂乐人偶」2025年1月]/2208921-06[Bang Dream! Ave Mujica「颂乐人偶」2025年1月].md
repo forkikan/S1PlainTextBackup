@@ -5682,3 +5682,15 @@ ep08 那段对话是有比较奇怪的地方的
 
 试探方向是，害怕自己弄错什么东西/把握空气/其他，目前的信息难以推测具体是哪一种所以都有可能
 
+
+*****
+
+####  Alicest  
+##### 7871#       发表于 2025-1-13 21:10
+
+<img src="https://p.sda1.dev/21/0baac6a457457849c4a8824193d0cf9c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/df363c9beda0d96195e74a7e146e3cfe/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ded90e39c6f16fff8ab55394302280c7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1704a6c1f82594d8f5ec1148674422fd/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fb2a731ad73657e2feec0de6f1070270/image.jpg" referrerpolicy="no-referrer">
+
