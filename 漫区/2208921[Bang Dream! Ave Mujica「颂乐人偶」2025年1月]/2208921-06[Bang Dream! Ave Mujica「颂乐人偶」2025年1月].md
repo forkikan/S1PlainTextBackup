@@ -5822,3 +5822,25 @@ ep08 那段对话是有比较奇怪的地方的
 
 2025-1-13 23:46 上传
 
+
+*****
+
+####  akiomn  
+##### 7882#       发表于 2025-1-13 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171216&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-13 23:43</a>
+第四集大概就是大爆特爆的开始吧，看到B站前四集都是限免，第五集开始大会员专享 ...</blockquote>
+那个没啥关系，b站上其他动画也这样，都是前四集免费看第五集要会员
+
+
+*****
+
+####  嵇翱u  
+##### 7883#       发表于 2025-1-14 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171296&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-13 23:56</a>
+那个没啥关系，b站上其他动画也这样，都是前四集免费看第五集要会员</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">还真没怎么注意过
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
