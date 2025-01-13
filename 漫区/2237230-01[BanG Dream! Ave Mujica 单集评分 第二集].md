@@ -1612,3 +1612,16 @@ nico第二集评分</blockquote>
 
 是病，得治<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plazum  
+##### 166#       发表于 2025-1-13 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67142948&amp;ptid=2237230" target="_blank">玖羽 发表于 2025-1-10 06:57</a>
+
+话不是这么说的，你这个逻辑是：富人和名人一定非常幸福，如果他们觉得痛苦，一定是无病呻吟
+
+说得再直白 ...</blockquote>
+好评加鹅（手动）
+
