@@ -664,3 +664,13 @@ Screenshot_20250103_185119.jpg
 
 爽了几天句点二人组，感觉大脑都变光滑了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 1057#       发表于 2025-1-13 11:29
+
+话说大伙都是怎么做瓦夜的一击消灭80%血大杂兵的任务的？SUPERBIA单通的话好像总是放完EGO还剩一点血……是用句点二人组正常打就可以了吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
