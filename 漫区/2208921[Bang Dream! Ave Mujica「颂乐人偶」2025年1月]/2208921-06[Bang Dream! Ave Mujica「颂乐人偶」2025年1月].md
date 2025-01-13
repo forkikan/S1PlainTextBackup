@@ -5549,3 +5549,72 @@ go第8集台词 あなたと空を見上げるのは 夏でしたわね
 
 大后天就有第三集看了
 
+
+*****
+
+####  蜇灵  
+##### 7862#       发表于 2025-1-13 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170174&amp;ptid=2208921" target="_blank">纯田まな 发表于 2025-1-13 20:13</a>
+</blockquote>
+mana赢最大的一天<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 7863#       发表于 2025-1-13 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169689&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 18:43</a>
+
+关于初华，我看这个帖子（https://tieba.baidu.com/p/9408551147）的时候突然想到一个问题，不是假药
+
+从春 ...</blockquote>
+MyGO第七话可以是祥子在电话里接着主动提出过几天见面的请求。毕竟她可能还要想想怎么拉拢初华，上一话可以看出MyGO第八话初华一下子答应是她的意料之外的，准备的说词没用上
+
+<img src="https://img.saraba1st.com/forum/202501/13/203033n8mhcepeqqh35s5w.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-13_20-29-45.jpg</strong> (188.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 20:30 上传
+
+*****
+
+####  OPCI_0125  
+##### 7864#       发表于 2025-1-13 20:31
+
+ 本帖最后由 OPCI_0125 于 2025-1-13 20:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170134&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 20:06</a>
+
+重点不是童年相见过多少次，而是从什么时候开始不见的？
+
+这么说的话，一开始的短信也很奇怪，已知初华看 ...</blockquote>
+想了想，初祥童年后的分离确实十分重要。
+
+初华在sumimi时期一直看短信乃至去天文馆（或许是追忆与祥度过的童年），但就是没怎么主动联系过祥。两人能够确定的互动只有两次：一次是初华主动发消息告知出道，一次是祥主动邀请初华到CCC初次live。即使是线下见面的第二次，也被舞台区隔开。
+
+但加入mujica后就一直目不转睛地盯着祥，努力把祥拉进自己的生活（MyGO E13 live结束后希望和祥一起回家、E2反复邀请祥同居，E3……），伴随着肉眼可见的的强烈欲望。
+
+究竟是什么原因导致初华的行为发生变化？
+
+或许对初华来说，祥就是无法触及的星星，是ed中远处山顶城堡中的公主——<strong>那亲密的童年过后，是两人持续多年的若即若离。</strong>
+
+​初华告白说自己的愿望是和祥一直在一起，这个愿望的性质或许更接近“向流星许下的愿望”或者“生日愿望”，而不是能通过努力实现的目标，即伴随着意外、虚幻和心知肚明的自我欺骗。
+
+如果祥不来找她，初华会大概会一直暗恋下去，看一辈子星星。
+
+但是，说是命运也不为过，祥家庭的变故让初华得以与她站在同一个舞台之上。当凝望已久的星星坠落到自己手中，初华自然要将她紧紧的攥在手边。
+
+这样理解的话，出道通知之所以用的短信，是因为Ave Mujica之前，就像去天文馆一样，<strong>初华需要一个凝望对象来承载自己的对“星星”的爱</strong>。而CCC初live没有记录也很好理解，因为那是祥主动联络的，而动画中祥联络初华唯一用过的手段就是电话。
+
+
+*****
+
+####  Суслов  
+##### 7865#       发表于 2025-1-13 20:34
+
+我已经准备好和sumimi重回巅峰了，here the world常听常新<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
