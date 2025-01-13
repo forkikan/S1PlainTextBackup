@@ -5310,3 +5310,19 @@ mana也是主唱。
 太变态了
 akane不小心说出了之后还有很多悲しい的展开
 
+
+*****
+
+####  星天观测  
+##### 7845#       发表于 2025-1-13 18:29
+
+还有很多悲しい的展开不是理所当然的么，感觉已经脱敏了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 7846#       发表于 2025-1-13 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都无所谓了，睦都被整那么惨了，后面还有初华祥子两个重量级的，再算上海玲喵梦，悲伤展开肯定很多
+
