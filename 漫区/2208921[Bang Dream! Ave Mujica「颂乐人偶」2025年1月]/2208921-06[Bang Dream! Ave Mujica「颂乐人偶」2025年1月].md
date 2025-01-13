@@ -4444,3 +4444,19 @@ Akane谷子卖不出去躲在被窝掉小珍珠说
 
 2025-1-13 10:50 上传
 
+
+*****
+
+####  IWS2000  
+##### 7764#       发表于 2025-1-13 10:57
+
+[Twitter @reibouQ](https://twitter.com/reibouQ/status/1878242166511968571)
+<img src="https://p.sda1.dev/21/ccd2cc93ae26e2108f6a4cd8b4db9cbd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 7765#       发表于 2025-1-13 11:01
+
+母鸡卡现在这么不稳定就是祥子太0了，等哪天祥子当1了一切都会好起来的。
+
