@@ -5485,3 +5485,18 @@ sumimi这一部分内容可能相当重要
 
 经典抢面具
 
+
+*****
+
+####  KLHgg  
+##### 7857#       发表于 2025-1-13 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169689&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 18:43</a>
+
+关于初华，我看这个帖子（https://tieba.baidu.com/p/9408551147）的时候突然想到一个问题，不是假药
+
+从春 ...</blockquote>
+go第8集台词 あなたと空を見上げるのは 夏でしたわね
+
+表明初祥童年相见过很多次了
+
