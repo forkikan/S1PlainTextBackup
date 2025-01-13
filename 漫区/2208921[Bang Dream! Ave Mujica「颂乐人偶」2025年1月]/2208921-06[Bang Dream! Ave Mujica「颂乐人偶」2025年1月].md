@@ -4739,3 +4739,13 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 
 新曲好听
 
+
+*****
+
+####  达达葱2  
+##### 7785#       发表于 2025-1-13 14:35
+
+<blockquote>NODY 发表于 2025-1-13 14:28
+武士道新游戏的主题歌是mujica的新歌</blockquote>
+什么平台的
+
