@@ -4849,3 +4849,21 @@ GO第13话里所有人的琴上就都贴上鸡logo了
 
 考哥.jpg
 
+
+*****
+
+####  玖羽  
+##### 7795#       发表于 2025-1-13 15:59
+
+ん？
+
+官号发的Prelude
+[https://www.bilibili.com/video/BV15W4y1F7dK/](https://www.bilibili.com/video/BV15W4y1F7dK/)
+ <blockquote>故事是这样的：
+
+金发的女孩Rika在平凡而无趣的日常中，无意间在手机上刷到了AveMujica的歌曲，并被其引诱，进入了AveMujica的世界，消失不见。
+
+Rika在前往「假面舞会」前曾经邀请自己的青梅竹马，蓝发的女孩Runa一同前去，但是Runa拒绝了。直到Rika失踪，Runa才感到了不安，在各处打探消息，甚至在游戏里和sns上求助，花费了一年时间，终于打探到了「假面舞会」的消息。
+
+而当Runa终于找到Rika，却发现Rika已经带上了假面，彻底被AveMujica所同化。而Rika也递给Runa一个假面，最后成功让Runa也成为了假面舞会的一员。</blockquote>
+
