@@ -4716,3 +4716,26 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 
 祥子在打工
 
+
+*****
+
+####  NODY  
+##### 7783#       发表于 2025-1-13 14:28
+
+武士道新游戏的主题歌是mujica的新歌
+
+<img src="https://img.saraba1st.com/forum/202501/13/142852a2cko26k6f2oqaql.png" referrerpolicy="no-referrer">
+
+<strong>A5D8A7CC8D1E30F88CAFC9B1B38A7D1F.png</strong> (231.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 14:28 上传
+
+*****
+
+####  月島まりな  
+##### 7784#       发表于 2025-1-13 14:29
+
+新曲好听
+
