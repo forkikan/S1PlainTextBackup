@@ -13631,3 +13631,14 @@ GQ6UX不是粉丝向的那种UC外传漫画，也不是“真·”系列那种�
 
 剧场版后最快什么时候接tv，是白天还是阴间档？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 2613#       发表于 2025-1-13 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170068&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-13 19:52</a>
+ 剧场版后最快什么时候接tv，是白天还是阴间档？</blockquote>
+不知道
+最快7月
+
