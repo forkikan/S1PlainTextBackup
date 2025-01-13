@@ -22,3 +22,11 @@
 
 至今为止熊老板最阔绰的一把
 
+
+*****
+
+####  墨染白泉  
+##### 5614#       发表于 2025-1-13 10:16
+
+鬼福除了最终祭典，其他特殊祭典全胜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
