@@ -10679,3 +10679,15 @@ F1阿尔法罗密欧车队知道吧
 看到了吗！ 太公二宝无敌了呀（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">呸 NB来波强化给个全队30充我就当他真无敌
 
+
+*****
+
+####  eilot  
+##### 16095#       发表于 2025-1-13 23:25
+
+10張符
+
+1隻伊吹童子(NEW)、1隻泳裝巴(NEW)
+
+結束這回合
+
