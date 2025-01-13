@@ -13607,3 +13607,19 @@ GQ6UX不是粉丝向的那种UC外传漫画，也不是“真·”系列那种�
 
 如果就13集，能讲完故事就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 2610#       发表于 2025-1-13 19:28
+
+要是原创世界观季番是绝对不够的，弄个UC if压力还小点，老登们做得也开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ティグル  
+##### 2611#       发表于 2025-1-13 19:31
+
+票房得看在米奇律师的号召力影响下口碑能不能发酵了，纯正一波流
+
