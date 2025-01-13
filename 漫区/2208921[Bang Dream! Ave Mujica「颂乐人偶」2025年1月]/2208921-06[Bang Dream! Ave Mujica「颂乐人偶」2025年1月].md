@@ -4810,3 +4810,13 @@ GO第13话里所有人的琴上就都贴上鸡logo了
 
 简直就是元素专Fire 2.0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 7791#       发表于 2025-1-13 15:44
+
+【Ave Mujica新歌《DIVINE》-Bushiroad新游戏PROJESS ORDERS op《DIVINE》由Ave Mujica演唱】 [https://www.bilibili.com/video/B ... are_source=copy_web](https://www.bilibili.com/video/BV1rhcyeWEsD/?share_source=copy_web)
+
+有人传了（）
+
