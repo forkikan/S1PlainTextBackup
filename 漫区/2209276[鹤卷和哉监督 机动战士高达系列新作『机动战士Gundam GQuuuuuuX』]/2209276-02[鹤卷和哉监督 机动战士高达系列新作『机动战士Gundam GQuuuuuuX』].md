@@ -13786,3 +13786,61 @@ nt难道是什么都能塞的东西，发功感应到平行世界，是否有点
 
 歌不太行
 
+
+*****
+
+####  FF0000  
+##### 2630#       发表于 2025-1-13 21:58
+
+修司说“你也能看到另一边吗”是在一个类似桥洞的地方
+
+这个地方很像玛秋看到街头涂鸦的墙面
+
+这个涂鸦应该是修司画的，顶部还有一个红色的棱状体，搞不好“另一边”指的是这个涂鸦
+
+<img src="https://img.saraba1st.com/forum/202501/13/215500wqg07kllmqt1apmq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/215533jpuwwhsqrtfaknke.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 21:55 上传
+
+*****
+
+####  Aaa炒面面包批发  
+##### 2631#       发表于 2025-1-13 22:02
+
+可以回帖了吗，麻球这个昵称真的很可爱，这个发音就让人感觉圆圆的
+
+*****
+
+####  FF0000  
+##### 2632#       发表于 2025-1-13 22:03
+
+也有可能是音画欺诈，因为修司的歪头杀在PV1里是自我介绍，紧接着玛秋和尼娅安都做了自我介绍，这里也有可能三人组的第一次齐聚
+
+<img src="https://img.saraba1st.com/forum/202501/13/220010q9kgash9aqoqz6gk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/220157tosb27mum1sjbbf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 22:01 上传
+
