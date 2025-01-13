@@ -5201,3 +5201,60 @@ mana女士不会继承初华在狗的世外高人定位吧<img src="https://stat
 
 真奈当不了挺王了，恭喜甜甜圈（没有女士）！
 
+
+*****
+
+####  星天观测  
+##### 7832#       发表于 2025-1-13 18:08
+
+幸好我一直都嗑初真啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7833#       发表于 2025-1-13 18:10
+
+主唱包分配还包括不同队伍都有分配啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 7834#       发表于 2025-1-13 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169410&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-13 18:03</a>
+真奈当不了挺王了，恭喜甜甜圈（没有女士）！</blockquote>
+不慌，步梦不也是稳稳的还是拿挺王，只要给出名场景就行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  IWS2000  
+##### 7835#       发表于 2025-1-13 18:14
+
+<img src="https://p.sda1.dev/21/98b6b0b529bb9dc403290c708cf3ece1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 7836#       发表于 2025-1-13 18:15
+
+按照主唱是星星的传统，初华要负责解救母鸡卡
+与此同时苏米米还不会解散
+莫非初华真的是超人？
+
+*****
+
+####  IWS2000  
+##### 7837#       发表于 2025-1-13 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169497&amp;ptid=2208921" target="_blank">sephal 发表于 2025-1-13 18:15</a>
+按照主唱是星星的传统，初华要负责解救母鸡卡
+与此同时苏米米还不会解散
+莫非初华真的是超人？ ...</blockquote>
+mana也是主唱。
+可以mana解救初华，初华在解救乐队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
