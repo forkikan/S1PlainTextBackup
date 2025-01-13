@@ -692,3 +692,19 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 四联推<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  commcody  
+##### 47#         楼主| 发表于 2025-1-13 15:08
+
+感觉现场熬夜看发射的小孩子都要困了
+
+
+*****
+
+####  2017.05.04  
+##### 48#       发表于 2025-1-13 15:16
+
+又又又又又推了，3点47分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
