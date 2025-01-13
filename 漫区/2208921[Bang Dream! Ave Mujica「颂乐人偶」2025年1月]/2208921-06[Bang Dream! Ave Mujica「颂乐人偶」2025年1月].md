@@ -4634,3 +4634,16 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 
 我是说如果有平成那是不是优莱卡
 
+
+*****
+
+####  玖羽  
+##### 7775#       发表于 2025-1-13 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67166167&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-13 12:01</a>
+
+我怎么可能不知道银河漂流
+
+我是说如果有平成那是不是优莱卡</blockquote>
+不行，不够惨
+

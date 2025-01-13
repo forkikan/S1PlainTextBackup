@@ -4364,3 +4364,27 @@ GODinGOD
 
  还没开播已经在练了
 
+
+*****
+
+####  holoan  
+##### 10677#         楼主| 发表于 2025-1-13 11:17
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  艾特娜  
+##### 10678#       发表于 2025-1-13 12:17
+
+亏了，黄图还没看到就被封了
+
+*****
+
+####  rs5621  
+##### 10679#       发表于 2025-1-13 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，阿泡你怎么死了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -13409,3 +13409,14 @@ GhAmH3Ba0AAT-9W.jpg
 
 远程攻击为0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2590#       发表于 2025-1-13 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67166275&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-13 12:12</a>
+
+远程攻击为0</blockquote>
+之前就说了这个武装配置一眼近战特化（
+
