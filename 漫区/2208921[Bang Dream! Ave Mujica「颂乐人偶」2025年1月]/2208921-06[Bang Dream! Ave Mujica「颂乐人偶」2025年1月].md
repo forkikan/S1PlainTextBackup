@@ -4882,3 +4882,16 @@ Rika在前往「假面舞会」前曾经邀请自己的青梅竹马，蓝发的�
 
 好像开始有个假药说是初华失忆什么的（）
 
+
+*****
+
+####  试制甲炮  
+##### 7797#       发表于 2025-1-13 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67168271&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 15:59</a>
+
+ん？
+
+官号发的Prelude</blockquote>
+绷不住了，这是祥子深夜回来喝了老爹的酒写出来的剧情吗？
+
