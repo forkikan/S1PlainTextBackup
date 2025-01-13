@@ -36,3 +36,13 @@
 看到主角幻觉里阿努利斯和凯聊天还嫌弃主角还以为会有这个路线呢，结果没有 ...</blockquote>
 这游戏不是N次反转嘛……阿努利丝刚出场时候感觉是天降，后来以为是绿茶，最后……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Betalo  
+##### 4112#       发表于 2025-1-13 13:35
+
+周末两天肝到在终章前刷刷刷，真是沉迷啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
