@@ -13599,3 +13599,11 @@ GQ6UX不是粉丝向的那种UC外传漫画，也不是“真·”系列那种�
 
 万代给Khara的创作自由度很高，为什么鹤卷gg不开新世界线，还整个平行uc，不就是想自由的写老角色的新故事吗
 
+
+*****
+
+####  番茄牛奶  
+##### 2609#       发表于 2025-1-13 19:04
+
+如果就13集，能讲完故事就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
