@@ -522,3 +522,29 @@ SS遇敌率高的吓人，我一开始不知道防御能回复mp所以完全打�
 
 刚刚去steam看了下，没写支持中文？
 
+
+*****
+
+####  hamartia  
+##### 53#       发表于 2025-1-14 00:47
+
+<blockquote>弥勒 发表于 2025-1-11 15:47
+还有战斗模式要经验和道具二选一，非常奇葩</blockquote>
+要经验值还是药草，然后在此之上战斗不给钱，钱是要主角送快递(设定上主角是快递员)。除此之外武器居然还有耐久值，战斗过多会坏掉
+
+它硬是把传统RPG“努力就能变强”的基础概念拆成三份，并课以重税。以此来硬把不长的游戏内容拖得很长来延续游戏周期，一开始练功+挣钱+捡药草不抻个四小时左右，你都出不了新手村，是NDS初期就神不知鬼不觉参上的垃圾RPG
+
+
+*****
+
+####  隔壁老黄  
+##### 54#       发表于 2025-1-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66306317&amp;ptid=2200882" target="_blank">hamartia 发表于 2024-9-26 00:21</a>
+我会双入NS与PS4的
+
+作为老派RPG，它确实有需要练级这传统一面。通常来说，一次把当前迷宫里的敌人全清干净 ...</blockquote>
+把背心的最后大招练出来就没难度了，问题是不刷经验怪打到最终boss也很可能没学到最终招，结果只能靠白龙的守护硬扛boss的秒杀攻击打消耗战<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
