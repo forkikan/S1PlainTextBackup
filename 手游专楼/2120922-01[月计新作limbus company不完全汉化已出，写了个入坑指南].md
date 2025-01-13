@@ -674,3 +674,14 @@ Screenshot_20250103_185119.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  神剑烧鸡  
+##### 1058#       发表于 2025-1-13 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67165874&amp;ptid=2120922" target="_blank">salic428 发表于 2025-1-13 11:29</a>
+话说大伙都是怎么做瓦夜的一击消灭80%血大杂兵的任务的？SUPERBIA单通的话好像总是放完EGO还剩一点血……是 ...</blockquote>
+怪越出越肉，前面刚出来的大杂兵共鸣够多的话ego能秒吧
+我借的船玛盲目过的
+
