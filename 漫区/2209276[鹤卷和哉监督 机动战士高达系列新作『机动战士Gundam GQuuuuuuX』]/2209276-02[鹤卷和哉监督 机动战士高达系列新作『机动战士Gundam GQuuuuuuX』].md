@@ -13428,3 +13428,14 @@ GhAmH3Ba0AAT-9W.jpg
 
 就13集的胶撑的起你高今年的通贩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 2592#       发表于 2025-1-13 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67166368&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-13 12:23</a>
+
+就13集的胶撑的起你高今年的通贩吗</blockquote>
+今年是GWX 30周年里商业最成功的W的30周年，没准会有白雪姬、魔法师拼装之类的，W系一直是高达卖胶前五的存在
+

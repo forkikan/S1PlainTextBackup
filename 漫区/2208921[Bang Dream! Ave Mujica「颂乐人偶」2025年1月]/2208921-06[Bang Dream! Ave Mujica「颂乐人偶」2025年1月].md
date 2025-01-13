@@ -4647,3 +4647,13 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 我是说如果有平成那是不是优莱卡</blockquote>
 不行，不够惨
 
+
+*****
+
+####  半年  
+##### 7776#       发表于 2025-1-13 12:38
+
+<img src="https://p.sda1.dev/21/3983f9c88726f9c41db5a8e43562088a/GhGgxVCakAAD6u7.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KMikahel/status/1878459291721683145/photo/1](https://x.com/KMikahel/status/1878459291721683145/photo/1)
+
