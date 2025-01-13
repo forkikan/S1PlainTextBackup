@@ -4798,3 +4798,15 @@ Air的作编曲，可以狠狠期待了()
 琴把上是Ave Mujica的Logo…logo早于乐队出现？</blockquote>
 GO第13话里所有人的琴上就都贴上鸡logo了
 
+
+*****
+
+####  SakuraのOrigami  
+##### 7790#       发表于 2025-1-13 15:22
+
+试听听完了
+
+只能说
+
+简直就是元素专Fire 2.0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
