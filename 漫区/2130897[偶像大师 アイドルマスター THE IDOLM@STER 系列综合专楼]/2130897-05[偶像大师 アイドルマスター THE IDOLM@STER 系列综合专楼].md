@@ -713,3 +713,27 @@ D1完整场→D1意外场（半场人员不完整）→D2意外场（半场人�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lovekoishi  
+##### 6871#       发表于 2025-1-13 18:53
+
+<img src="https://img.saraba1st.com/forum/202501/13/185307i9cf06t9fo2f29b2.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250113185236.jpg</strong> (100.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/185318t1xy736vkbsb37f0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250113185249.jpg</strong> (78.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 18:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
