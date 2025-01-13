@@ -4273,3 +4273,49 @@ Akane谷子卖不出去躲在被窝掉小珍珠说
 
 破产丧妻以外再怎么打击一个男人？失独，血缘上就行，效果一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">私生子还匹配阿祥需要的高贵的反面
 
+
+*****
+
+####  compass01  
+##### 7756#       发表于 2025-1-13 10:38
+
+鸡狗十一人有十人已出场，是否有人被排挤了
+
+*****
+
+####  IWS2000  
+##### 7757#       发表于 2025-1-13 10:40
+
+下集就出场11人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 7758#       发表于 2025-1-13 10:43
+
+可爱
+<img src="https://p.sda1.dev/21/8b2937301588d2b956b3a6a2438da41a/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 7759#       发表于 2025-1-13 10:44
+
+人偶对于祥子是妈妈的象征，那按假药来推的话应该是初华当年把祥子妈妈视为人偶比把睦视为人偶更合理一些？也满足祥子说初华见过自己妈妈而初华直接发散到忘记一切这个点上吧
+
+*****
+
+####  厉飞雨  
+##### 7760#       发表于 2025-1-13 10:45
+
+白猫是不是在备战高考<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 7761#       发表于 2025-1-13 10:45
+
+初华听到祥子说你见过母亲吧的反应也很奇怪
+

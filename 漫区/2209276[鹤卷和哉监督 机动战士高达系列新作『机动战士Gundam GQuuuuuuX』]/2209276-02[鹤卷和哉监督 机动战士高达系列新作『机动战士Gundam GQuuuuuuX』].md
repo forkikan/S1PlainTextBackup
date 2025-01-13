@@ -13345,3 +13345,20 @@ CA高达这么有象征性的肯定不还，况且还有艾尔美斯的浮游炮
 
 https://x.com/Yototeitoku/status/1878454545077985288?t=0TIk3cobQ8lpHHQjtv4dHg&amp;s=19<img src="https://p.sda1.dev/21/ced7270f98c0814fb25ab42f8bd971a9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 2584#       发表于 2025-1-13 10:41
+
+[https://x.com/SaB6U/status/1878042972303863846](https://x.com/SaB6U/status/1878042972303863846)
+
+GhAmH3Ba0AAT-9W.jpg
+(166.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202501/13/104050wvm59ihhyu8bmrmu.jpg" referrerpolicy="no-referrer">
+
