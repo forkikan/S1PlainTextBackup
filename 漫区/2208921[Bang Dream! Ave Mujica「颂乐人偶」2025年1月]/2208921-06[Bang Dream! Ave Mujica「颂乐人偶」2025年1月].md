@@ -4692,3 +4692,19 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ads147147  
+##### 7781#       发表于 2025-1-13 13:57
+
+<img src="https://img.saraba1st.com/forum/202501/13/135359km0rcc3gauukd0zd.png" referrerpolicy="no-referrer">
+
+<strong>fd261bc635f256b50b59b9fde4f0a567.png</strong> (46.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 13:53 上传
+
+打牌第二集客串是soyorin，大概率会一个个都登场吧，好奇大祥老师会什么表情。。。
+
