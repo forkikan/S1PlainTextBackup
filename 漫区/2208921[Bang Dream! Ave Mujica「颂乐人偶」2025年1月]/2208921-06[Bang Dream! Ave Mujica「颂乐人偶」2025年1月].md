@@ -4682,3 +4682,13 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 完整版ed什么时候来呢</blockquote>
 15号出单曲cd，op ed一起
 
+
+*****
+
+####  ykyin09  
+##### 7780#       发表于 2025-1-13 13:48
+
+声破天有全曲op了，ed还没有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

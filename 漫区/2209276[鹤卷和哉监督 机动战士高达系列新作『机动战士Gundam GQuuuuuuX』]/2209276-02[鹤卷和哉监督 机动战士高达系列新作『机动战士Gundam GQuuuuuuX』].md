@@ -13458,3 +13458,14 @@ GhAmH3Ba0AAT-9W.jpg
 
 远程0也太搞了，真正的远程0不得是艾比安这样的吗（
 
+
+*****
+
+####  Sliurus  
+##### 2595#       发表于 2025-1-13 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67166922&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-13 13:32</a>
+
+远程0也太搞了，真正的远程0不得是艾比安这样的吗（</blockquote>
+癌变有零式系统，GQX塞个人进去也很合理吧
+
