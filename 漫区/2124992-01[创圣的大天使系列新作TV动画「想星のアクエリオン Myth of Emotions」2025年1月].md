@@ -1865,3 +1865,17 @@ evol最大的问题还是唐突抛出狗的设定把一堆人彻底变成了小�
 
 看完第一集，太赶了 巴不得一次性把所有设定都丢出来。OP唱的跟炫酷风的画面是一点不搭
 
+
+*****
+
+####  ulir  
+##### 194#       发表于 2025-1-13 08:08
+
+还以为OP咋了结果是和福山芳树合唱，还行吧，不知道是不是音量的关系还是PV里那段比较燃，飞狗发的那个带歌词演出MAD风的也比现在这个OP好，B站有人搬了
+
+ 【「想星のアクエリオン Myth of Emotions」Opening Lyric Video】 [https://www.bilibili.com/video/B ... 3433ea09c73942fe001](https://www.bilibili.com/video/BV1WyrkYMECj/?share_source=copy_web&amp;vd_source=48798b19c8ac63433ea09c73942fe001)
+
+EVOL翻车之后应该就只是个卖玩具的Ip了，不过单纯当作衍生作萝卜片来看好像风格比logos好，一些谜语人发言显然有平行或者虚构世界的味道
+
+顺便翻了下官网和pv之后感想是能不能别再刀女二（这次是男二？）了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
