@@ -1717,3 +1717,13 @@ It is a ...</blockquote>
 作者还画了不少黄图，这贴有人整了个官图和同人混在一起的图包（ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我了个正太猎人啊。
 
+
+*****
+
+####  evilpanda  
+##### 150#       发表于 2025-1-13 14:08
+
+话说这个游戏没有云存档？？？
+
+家里打到第二章了，办公室电脑还是序章？？？
+
