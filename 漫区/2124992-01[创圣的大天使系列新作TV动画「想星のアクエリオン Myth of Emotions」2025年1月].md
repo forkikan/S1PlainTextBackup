@@ -1879,3 +1879,16 @@ EVOL翻车之后应该就只是个卖玩具的Ip了，不过单纯当作衍生�
 
 顺便翻了下官网和pv之后感想是能不能别再刀女二（这次是男二？）了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ulir  
+##### 195#       发表于 2025-1-13 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67151035&amp;ptid=2124992" target="_blank">剑布衣 发表于 2025-1-11 02:49</a>
+
+第一集观感比前作好不少，迷之剧情也能抓住（部分）人，不过这人设和不出彩的制作要爆火是很难了。
+
+反而我 ...</blockquote>
+其实是因为创圣（无印）和双星（EVOL）之间夹着剧情评价最高的创星，结果EVOL一个反转全部变小丑了，所以粉丝暴怒得特别严重
+
