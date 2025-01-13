@@ -2591,3 +2591,148 @@ MyGO!!!!! 部分:
 是哪位，发个链接看看</blockquote>
 [https://www.youtube.com/@yurienberg](https://www.youtube.com/@yurienberg)
 
+
+*****
+
+####  迷路的石头  
+##### 26836#       发表于 2025-1-12 08:19
+
+刺团还是三个人吗？那今天代打的键盘手岂不是还是那个女人？
+
+*****
+
+####  66367749  
+##### 26837#       发表于 2025-1-12 09:01
+
+男打牌女乐队，非常合理
+
+*****
+
+####  CyDiablo  
+##### 26838#       发表于 2025-1-12 12:26
+
+小豆泥联动五星——ykn
+<img src="https://p.sda1.dev/21/4756223296fb02fb31d831f94757f5ea/1736655836675.jpg" referrerpolicy="no-referrer">
+有人说是拿来平替holo那几张卡，感觉不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爱信等第二弹或者下一个联动
+
+*****
+
+####  linekm  
+##### 26839#       发表于 2025-1-12 16:26
+
+MyGO!!!!! 部分:
+迷星叫
+歌いましょう鳴らしましょう
+砂寸奏
+処救生
+影色舞
+無路矢
+潜在表明
+孤壊牢
+音一会
+
+トゲナシトゲアリ部分:
+雑踏、僕らの街
+空白とカタルシス
+誰にもなれない私だから
+視界の隅朽ちる音
+傷つき傷つけ痛くて辛い
+サヨナラサヨナラサヨナラ
+名もなき何もかも
+爆ぜて咲く
+运命の華
+
+雑踏、僕らの街 - トゲナシトゲアリ x 灯
+壱雫空 - MyGO!!!!! x 仁菜
+
+互换主唱来唱op，羊姐别断气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月島まりな  
+##### 26840#       发表于 2025-1-12 16:28
+
+还是老歌啊
+
+
+*****
+
+####  小妻水亚美  
+##### 26841#       发表于 2025-1-12 16:45
+
+ 本帖最后由 小妻水亚美 于 2025-1-12 16:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来上海 广州今天都有线下观影会
+<img src="https://p.sda1.dev/21/446c0548799a33892b6906e2763c443e/IMG_CMP_259865457.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  CyDiablo  
+##### 26842#       发表于 2025-1-12 17:47
+
+新歌什么时候能上live啊，下场对邦感觉也没什么指望<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">想听过惰幻，夜风和明弦音了
+
+*****
+
+####  Cavaliar  
+##### 26843#       发表于 2025-1-12 22:54
+
+<img src="https://img.saraba1st.com/forum/202501/12/225356oze6b4e5f8beykue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-12 22:53 上传
+
+懂了s1和前两个论坛并列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 26844#         楼主| 发表于 2025-1-13 00:15
+
+<blockquote>Cavaliar 发表于 2025-1-12 22:54
+懂了s1和前两个论坛并列</blockquote>
+战吧不配有姓名
+
+*****
+
+####  杂灰  
+##### 26845#       发表于 2025-1-13 01:27
+
+ 本帖最后由 杂灰 于 2025-1-13 01:35 编辑 
+
+中日mygo粉都对没食用过go的新观众的大脑有非常强烈的追求呢，刷到个对花田ptsd到有二世气质的前花田拉拉铁粉（变成前的原因很明显是星2）管主只看了一话就下暴论，结果评论区全都温柔的很，更新完第三话观后感后终于对评论区的不怀好意反应过来了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 26846#       发表于 2025-1-13 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163751&amp;ptid=2159415" target="_blank">杂灰 发表于 2025-1-13 01:27</a>
+中日mygo粉都对没食用过go的新观众的大脑有非常强烈的追求呢，刷到个对花田ptsd到有二世气质的前花田拉拉铁 ...</blockquote>
+是哪位，发个链接看看
+
+*****
+
+####  杂灰  
+##### 26847#       发表于 2025-1-13 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67163768&amp;ptid=2159415" target="_blank">帝下室の年糕 发表于 2025-1-13 01:31</a>
+
+是哪位，发个链接看看</blockquote>
+[https://www.youtube.com/@yurienberg](https://www.youtube.com/@yurienberg)
+
+*****
+
+####  CyDiablo  
+##### 26848#       发表于 2025-1-13 07:54
+
+Happy birthday レイヤ！  
+
+信澤 収 @canvas2929
+<img src="https://p.sda1.dev/21/4203fe9d6e63175faa80a14f4ef40d03/1736726022654.jpg" referrerpolicy="no-referrer">
+
