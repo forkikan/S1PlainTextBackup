@@ -1727,3 +1727,16 @@ It is a ...</blockquote>
 
 家里打到第二章了，办公室电脑还是序章？？？
 
+
+*****
+
+####  acropolis  
+##### 151#       发表于 2025-1-13 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67167252&amp;ptid=2236671" target="_blank">evilpanda 发表于 2025-1-12 23:08</a>
+
+话说这个游戏没有云存档？？？
+
+家里打到第二章了，办公室电脑还是序章？？？ ...</blockquote>
+没有，但是说实话你用办公室电脑打这个游戏问题比较大
+

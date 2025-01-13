@@ -4820,3 +4820,32 @@ GO第13话里所有人的琴上就都贴上鸡logo了
 
 有人传了（）
 
+
+*****
+
+####  一心而用  
+##### 7792#       发表于 2025-1-13 15:47
+
+难绷的滤镜。
+<img src="https://p.sda1.dev/21/127de35caffc698280c99f156dd670ef/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fc4c9d01eb4403566ae3598b82119d5b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 7793#       发表于 2025-1-13 15:52
+
+很符合一般乐队写商业曲的定位，写行活赚快钱。符合鸡团除了🐘建队理想之外的所有人设。
+
+*****
+
+####  DARK_HGCG  
+##### 7794#       发表于 2025-1-13 15:55
+
+<blockquote>NODY 发表于 2025-1-13 14:45
+应该是主机</blockquote>
+看到灯和立希了
+
+考哥.jpg
+

@@ -46,3 +46,15 @@
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Yidam  
+##### 4113#       发表于 2025-1-13 15:49
+
+贴吧看见两张湿热臭脚同人图[https://tieba.baidu.com/p/9409446800](https://tieba.baidu.com/p/9409446800)
+
+希望以后能看到坐脸上放屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=1c6e695bbdf2b211e42e8546fa806511/5cc65710b912c8fccf98f9e5ba039245d688217f.jpg?tbpicau=2025-01-24-05_5d69acc5cc27f957c998757ede415f01" id="aimg_Y4077" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=e0060f32805c1038247ececa8211931c/ff4daaa1cd11728b4e46830a8efcc3cec3fd2c7f.jpg?tbpicau=2025-01-24-05_ea51d401142283337b628dc085b592d9" id="aimg_tzrE9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
