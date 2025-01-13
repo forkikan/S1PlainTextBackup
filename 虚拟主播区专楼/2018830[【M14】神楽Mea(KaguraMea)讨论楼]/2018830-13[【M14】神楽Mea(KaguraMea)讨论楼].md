@@ -395,3 +395,13 @@ syl，气不过就开播耍小性子可爱捏
 今天成人礼，难怪昨天唱了很久没唱的振袖和服，这歌没听她唱过几次就</blockquote>
 今天成人礼？这是个节日吗，她不是早成人了？
 
+
+*****
+
+####  sino__unnko3  
+##### 17815#       发表于 2025-1-13 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67168951&amp;ptid=2018830" target="_blank">往世雷书 发表于 2025-1-13 17:12</a>
+今天成人礼？这是个节日吗，她不是早成人了？</blockquote>
+是的，搜了下说是每年1月的第二个周一
+
