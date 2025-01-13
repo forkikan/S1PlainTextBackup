@@ -1779,3 +1779,13 @@ It is a ...</blockquote>
     </blockquote>
 那把大口径步枪感觉还不如同栏位的初始武器卡宾枪好用，至少人家打杂兵真能一枪头，还有4倍镜
 
+
+*****
+
+####  ParadiseMartyr  
+##### 154#         楼主| 发表于 2025-1-13 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170969&amp;ptid=2236671" target="_blank">DawnGuardian 发表于 2025-1-13 22:57</a>
+那把大口径步枪感觉还不如同栏位的初始武器卡宾枪好用，至少人家打杂兵真能一枪头，还有4倍镜 ...</blockquote>
+这个白色枪主要是勾抓位移非常强大，可以直直爬墙爬到顶
+

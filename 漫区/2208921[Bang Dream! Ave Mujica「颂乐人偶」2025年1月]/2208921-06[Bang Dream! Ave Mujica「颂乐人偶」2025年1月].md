@@ -5796,3 +5796,29 @@ ep08 那段对话是有比较奇怪的地方的
 
 第四集大概就是大爆特爆的开始吧，看到B站前四集都是限免，第五集开始大会员专享<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 7881#       发表于 2025-1-13 23:44
+
+ 本帖最后由 玖羽 于 2025-1-13 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171140&amp;ptid=2208921" target="_blank">oldgoat 发表于 2025-1-13 23:29</a>
+
+其实你说的那个“暗桩说倒果为因”的问题的最大问题（套娃了）就是mygo和mujica的根子：为什么祥子非要大 ...</blockquote>
+祥母的暗桩归根结底是要帮祥子的，祥子离家出走一年初华都不来帮忙，这本身就说明初华不是暗桩，如果祥子十年不找她，她就十年不找祥子？
+
+否则就必须解释为祥母预知到祥子会在离家出走一年后找初华，这就是我说的倒果为因
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+说到贴吧，我还看到一个发现：祥子从外公那得知父亲的事之后，一言不发摔门而去，<strong>外公立即知道祥子是要离家出走</strong>（而不是，比如说，赌气回房），如果不是BUG，这里又是一个有意思的点
+
+<img src="https://img.saraba1st.com/forum/202501/13/234625qvjzv6p6lnj6ixvi.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (157.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 23:46 上传
+
