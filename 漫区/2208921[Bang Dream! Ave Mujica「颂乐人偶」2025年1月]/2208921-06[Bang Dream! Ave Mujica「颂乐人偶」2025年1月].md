@@ -4749,3 +4749,52 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 武士道新游戏的主题歌是mujica的新歌</blockquote>
 什么平台的
 
+
+*****
+
+####  595505568  
+##### 7786#       发表于 2025-1-13 14:44
+
+<blockquote>新HGCG 发表于 2025-1-13 10:43
+可爱</blockquote>
+琴把上是Ave Mujica的Logo…logo早于乐队出现？
+
+*****
+
+####  NODY  
+##### 7787#       发表于 2025-1-13 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67167491&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-13 14:35</a>
+
+什么平台的</blockquote>
+应该是主机
+
+<img src="https://img.saraba1st.com/forum/202501/13/144519aknt99c23lubksqb.png" referrerpolicy="no-referrer">
+
+<strong>8846d1ad-9f79-4f41-9da3-40809a8e8020.png</strong> (238.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 14:45 上传
+
+
+*****
+
+####  SakuraのOrigami  
+##### 7788#       发表于 2025-1-13 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67167416&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-13 14:28</a>
+
+武士道新游戏的主题歌是mujica的新歌</blockquote>
+Air的作编曲，可以狠狠期待了()
+
+*****
+
+####  SakuraのOrigami  
+##### 7789#       发表于 2025-1-13 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67167571&amp;ptid=2208921" target="_blank">595505568 发表于 2025-1-13 14:44</a>
+
+琴把上是Ave Mujica的Logo…logo早于乐队出现？</blockquote>
+GO第13话里所有人的琴上就都贴上鸡logo了
+
