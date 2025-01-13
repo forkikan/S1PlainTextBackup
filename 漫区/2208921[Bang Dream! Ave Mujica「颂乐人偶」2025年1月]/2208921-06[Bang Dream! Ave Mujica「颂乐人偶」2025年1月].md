@@ -4621,3 +4621,16 @@ wsd做手办是真不行<img src="https://static.saraba1st.com/image/smiley/face
 
 2025-1-13 11:49 上传
 
+
+*****
+
+####  新HGCG  
+##### 7774#       发表于 2025-1-13 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67165811&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 11:24</a>
+
+昭和 银河漂流拜法姆</blockquote>
+我怎么可能不知道银河漂流
+
+我是说如果有平成那是不是优莱卡
+
