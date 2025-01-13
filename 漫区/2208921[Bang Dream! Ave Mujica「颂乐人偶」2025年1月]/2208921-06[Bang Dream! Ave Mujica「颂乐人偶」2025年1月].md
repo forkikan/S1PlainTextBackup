@@ -4930,3 +4930,26 @@ mujica最早的宣传是一个arg，包括线上线下解密活动，很有意�
 
 可以参考这篇blog
 
+
+*****
+
+####  桜庭千景  
+##### 7801#       发表于 2025-1-13 16:48
+
+原来真有不少人不知道你鸡企划最初的解谜活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7802#       发表于 2025-1-13 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不也挺好，刚好趁这个机会真正认识一下mujica到底是个什么风格的企划
+
+
+*****
+
+####  hello0607  
+##### 7803#       发表于 2025-1-13 16:55
+
+虹之咲戴雅是吧 黑初华
+
