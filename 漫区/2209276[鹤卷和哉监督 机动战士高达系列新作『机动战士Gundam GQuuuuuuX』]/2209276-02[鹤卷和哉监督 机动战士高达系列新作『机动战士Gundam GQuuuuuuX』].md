@@ -13385,3 +13385,19 @@ GhAmH3Ba0AAT-9W.jpg
 
 虽然但是，代便这腐朽的宣传机器终于发特典和场贩了（）
 
+
+*****
+
+####  刺客ares  
+##### 2588#       发表于 2025-1-13 11:51
+
+特典街机卡有剧透还行，和机体对应应该是玛秋的卡，为什么上映后才能解封啊
+
+<img src="https://img.saraba1st.com/forum/202501/13/115033zme4oxxkod4mgy6d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9808.jpeg</strong> (592.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-13 11:50 上传
+
