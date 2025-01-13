@@ -5258,3 +5258,55 @@ mana女士不会继承初华在狗的世外高人定位吧<img src="https://stat
 mana也是主唱。
 可以mana解救初华，初华在解救乐队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 7838#       发表于 2025-1-13 18:18
+
+有没有可能到时候动画剧情里来个真奈加入新乐队的剧情，sumimi两个人都跑双团
+
+*****
+
+####  akiomn  
+##### 7839#       发表于 2025-1-13 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sumimi不会解散！
+
+*****
+
+####  kivz  
+##### 7840#       发表于 2025-1-13 18:21
+
+也可能是最后一餐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 7841#       发表于 2025-1-13 18:22
+
+这下不得不期待一下甜甜圈女士在后面的剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 7842#       发表于 2025-1-13 18:25
+
+其实主唱是星星这个说法的起源的layer手游剧情里也在干兼职，而且兼职乐队是帮忙开导她的知心姐姐位
+
+*****
+
+####  KLHgg  
+##### 7843#       发表于 2025-1-13 18:26
+
+我一直是铁血初真党哇<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7844#       发表于 2025-1-13 18:26
+
+太变态了
+akane不小心说出了之后还有很多悲しい的展开
+
