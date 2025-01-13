@@ -1705,3 +1705,15 @@ The Fruit of the Ephemeral is not just a weapon of mass destruction.
 It is a ...</blockquote>
 老板娘这段话有印象。原来是这么个意思…
 
+
+*****
+
+####  ParadiseMartyr  
+##### 149#         楼主| 发表于 2025-1-13 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67164109&amp;ptid=2236671" target="_blank">zzf111 发表于 2025-1-13 07:01</a>
+/v/ - Video Games » Thread #699377131
+
+作者还画了不少黄图，这贴有人整了个官图和同人混在一起的图包（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我了个正太猎人啊。
+
