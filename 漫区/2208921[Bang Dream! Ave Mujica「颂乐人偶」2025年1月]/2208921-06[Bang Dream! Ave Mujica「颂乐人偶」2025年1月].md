@@ -4895,3 +4895,38 @@ Rika在前往「假面舞会」前曾经邀请自己的青梅竹马，蓝发的�
 官号发的Prelude</blockquote>
 绷不住了，这是祥子深夜回来喝了老爹的酒写出来的剧情吗？
 
+
+*****
+
+####  友情的结晶  
+##### 7798#       发表于 2025-1-13 16:36
+
+这不就是mujica之前那个小剧场和解密小视频的剧情吗，老早了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  影伴光生  
+##### 7799#       发表于 2025-1-13 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67168271&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 15:59</a>
+ん？
+
+官号发的Prelude</blockquote>
+什么模因污染
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Aendst  
+##### 7800#       发表于 2025-1-13 16:41
+
+这个小剧场是mujica最早的内容
+
+mujica最早的宣传是一个arg，包括线上线下解密活动，很有意思
+[https://thzaq.hatenablog.com/entry/2023/08/12/092851](https://thzaq.hatenablog.com/entry/2023/08/12/092851#KeyOrg%E3%82%AA%E3%83%96%E3%83%AA%E3%83%93%E3%82%AA%E3%83%8B%E3%82%B9)
+
+可以参考这篇blog
+
