@@ -13532,3 +13532,14 @@ GQ6UX不是粉丝向的那种UC外传漫画，也不是“真·”系列那种�
 
 换到这边也一样，新人只需要知道女主是宇宙德三某高层将军的女儿，并不是路边JK，就行了
 
+
+*****
+
+####  中野梓  
+##### 2602#       发表于 2025-1-13 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67168911&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-13 17:08</a>
+
+所以哈曼克隆人说更靠谱啊，随便给几个类似EVA绫波丽培养槽的镜头，自有遗老为你辩经。 ...</blockquote>
+快进到哈曼是玛秋的克隆人
+

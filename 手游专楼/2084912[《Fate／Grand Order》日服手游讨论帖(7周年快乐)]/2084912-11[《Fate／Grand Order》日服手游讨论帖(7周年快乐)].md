@@ -10648,3 +10648,34 @@ F1阿尔法罗密欧车队知道吧
 
 太公二宝无敌了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16092#       发表于 2025-1-13 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169228&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-13 17:44</a>
+
+肯定是狗萌新诅咒我了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到了吗！ 太公二宝无敌了呀（
+
+*****
+
+####  qixinno2  
+##### 16093#       发表于 2025-1-13 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169234&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-1-13 17:44</a>
+
+太公二宝无敌了呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无敌毛线 要歪也歪个娄希啊
+
+*****
+
+####  qixinno2  
+##### 16094#       发表于 2025-1-13 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169260&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-13 17:46</a>
+
+看到了吗！ 太公二宝无敌了呀（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">呸 NB来波强化给个全队30充我就当他真无敌
+

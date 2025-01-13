@@ -124,3 +124,11 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 不过我估计也就玩两天，这玩意大概率得砍。
 
+
+*****
+
+####  洛克萨斯  
+##### 18178#       发表于 2025-1-13 17:50
+
+雷锤和时龙还没想到办法修？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
