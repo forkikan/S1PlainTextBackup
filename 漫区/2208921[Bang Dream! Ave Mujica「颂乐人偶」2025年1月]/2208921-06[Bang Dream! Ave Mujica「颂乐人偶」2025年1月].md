@@ -4867,3 +4867,18 @@ Rika在前往「假面舞会」前曾经邀请自己的青梅竹马，蓝发的�
 
 而当Runa终于找到Rika，却发现Rika已经带上了假面，彻底被AveMujica所同化。而Rika也递给Runa一个假面，最后成功让Runa也成为了假面舞会的一员。</blockquote>
 
+
+*****
+
+####  SakuraのOrigami  
+##### 7796#       发表于 2025-1-13 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67168271&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-13 15:59</a>
+
+ん？
+
+官号发的Prelude</blockquote>
+越来越诡异了（）
+
+好像开始有个假药说是初华失忆什么的（）
+
