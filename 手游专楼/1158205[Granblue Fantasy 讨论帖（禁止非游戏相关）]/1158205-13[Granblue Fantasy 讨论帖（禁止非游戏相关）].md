@@ -177,3 +177,11 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 游戏里的公告提了要追加伤害减衰设定了
 
+
+*****
+
+####  Sylpheed  
+##### 18184#       发表于 2025-1-14 18:27
+
+对数盾也要动，好歹不是头痛只医脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

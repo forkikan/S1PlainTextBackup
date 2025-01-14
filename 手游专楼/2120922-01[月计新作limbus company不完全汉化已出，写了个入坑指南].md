@@ -685,3 +685,20 @@ Screenshot_20250103_185119.jpg
 怪越出越肉，前面刚出来的大杂兵共鸣够多的话ego能秒吧
 我借的船玛盲目过的
 
+
+*****
+
+####  Jamaisvu  
+##### 1059#       发表于 2025-1-14 18:29
+
+<img src="https://img.saraba1st.com/forum/202501/14/182740il0cnvf0xmqomfcw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250114_182228.jpg</strong> (307.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-14 18:27 上传
+
+新人格预告，LCE浮士德，来自边狱公司的新部门。看颜色好像是烧伤系，六协浮该不会真是背景板吧...
+
