@@ -14787,3 +14787,33 @@ pv3啥时候来呢
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FF0000  
+##### 2710#       发表于 2025-1-14 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178483&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-14 15:02</a>
+
+是尼雅安说麻球这个名字可爱的吧？</blockquote>
+好吧，我是看上下文的，尼娅安（喵）看起来是更可爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 2711#       发表于 2025-1-14 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180839&amp;ptid=2209276" target="_blank">FF0000 发表于 2025-1-14 20:13</a>
+竹也参与宣发了，还是亲妈好，和只会截PV旧图的某官方比，高下立判</blockquote>
+倒计时啊，是不是明天发喵安后天发麻球？<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FF0000  
+##### 2712#       发表于 2025-1-14 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180876&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-14 20:20</a>
+
+倒计时啊，是不是明天发喵安后天发麻球？</blockquote>
+麻球的做过了，应该还会发一张尼娅安的，但如果是为了凑倒计时，说不定会做一张三人团魂图
+
