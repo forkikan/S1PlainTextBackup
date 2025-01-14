@@ -133,37 +133,37 @@ if __name__ == '__main__':
         if 板块 != "手游战斗":
             回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
             回帖字符串 = f"{回帖字符串}===========\n\n"
-    print(回帖字符串)
-    # with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
-    #     cookie_str1 = f.read()
-    # cookie_str = repr(cookie_str1)[1:-1]
-    # cookies = {}
-    # for line in cookie_str.split(';'):
-    #     key, value = line.split('=', 1)
-    #     cookies[key] = value
-    # headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
-    # ''' 获取formhash'''
-    # RURL = 'https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
-    # s1 = requests.get(RURL, headers=headers,  cookies=cookies)
-    # content = s1.content
-    # while True:
-    #     rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
-    #     if len(rows)!=0:
-    #         formhash = rows[0]
-    #         print('formhash is: ' + formhash)
-    #         subject = u''
-    #         # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
-    #         # s = requests.get(Aurl)
-    #         # threadid = s.content.decode('utf-8')
-    #         '''回帖ID，手动修改'''
-    #         threadid = 2143473
-    #         '''回帖ID，手动修改'''
-    #         replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
-    #         #url为要回帖的地址
-    #         Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-    #         req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
-    #         print(req)
-    #         break
-    #     else:
-    #         print('none formhash!')
-    #         continue
+    #print(回帖字符串)
+    with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
+        cookie_str1 = f.read()
+    cookie_str = repr(cookie_str1)[1:-1]
+    cookies = {}
+    for line in cookie_str.split(';'):
+        key, value = line.split('=', 1)
+        cookies[key] = value
+    headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
+    ''' 获取formhash'''
+    RURL = 'https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
+    s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+    content = s1.content
+    while True:
+        rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
+        if len(rows)!=0:
+            formhash = rows[0]
+            print('formhash is: ' + formhash)
+            subject = u''
+            # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
+            # s = requests.get(Aurl)
+            # threadid = s.content.decode('utf-8')
+            '''回帖ID，手动修改'''
+            threadid = 2143473
+            '''回帖ID，手动修改'''
+            replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
+            #url为要回帖的地址
+            Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+            req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
+            print(req)
+            break
+        else:
+            print('none formhash!')
+            continue
