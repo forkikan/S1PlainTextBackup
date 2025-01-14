@@ -6155,3 +6155,44 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 你得先定义哪些人算广大网友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 7910#       发表于 2025-1-14 12:16
+
+第三话预告的喵梦露出了一副 妈妈担心你 的表情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  暮星弥空  
+##### 7911#       发表于 2025-1-14 12:18
+
+角色PV里有喵梦对睦喊早上好的画面，很期待后期这俩的互动
+
+*****
+
+####  哈曼的YY  
+##### 7912#       发表于 2025-1-14 12:18
+
+<blockquote>蜇灵 发表于 2025-1-14 12:13
+你得先定义哪些人算广大网友</blockquote>
+推特和逼站都有见到这么说的 贴吧nga听说都是撕逼基本没看过
+
+*****
+
+####  蜇灵  
+##### 7913#       发表于 2025-1-14 12:18
+
+大喵第三集风评能不能上升一点
+
+
+*****
+
+####  qjw114514  
+##### 7914#       发表于 2025-1-14 12:20
+
+抛开被观众吵架当枪使的场外因素，立希这段我还是挺喜欢的，mygo里睦就表现出了对这些相处不久的朋友们的关心，现在看得出来立希她们也对睦有关心，很健康的朋友关系不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
