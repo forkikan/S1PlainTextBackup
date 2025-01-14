@@ -13989,3 +13989,26 @@ nt本来就无所不能啊，雷霆宙域漫画的nt可以把别人中的毒转�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  AraTurambar  
+##### 2644#       发表于 2025-1-14 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67175808&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-14 09:26</a>
+
+夏利尔原本是木星船团的，一年战争后期才被派去NT部队的。按照正常情况，应该是WB和RX-78在地球大杀四方后 ...</blockquote>
+那红高达？
+
+*****
+
+####  王留美  
+##### 2645#       发表于 2025-1-14 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67175808&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-14 09:26</a>
+
+夏利尔原本是木星船团的，一年战争后期才被派去NT部队的。按照正常情况，应该是WB和RX-78在地球大杀四方后 ...</blockquote>
+有一个大前提是78在鸭子手里
+
+如果骡子在side7还是敢达立于大地，那么鸭子是在什么时候把78抢到手的呢
+

@@ -5927,3 +5927,25 @@ twi: lelioz1598 ​​​
 <img src="https://p.sda1.dev/21/244fb384505b461968ae55ea92d28b36/008DeF4Zgy1hxjjsovwvdj30rs0rsabr.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/e68a513d98ad03116bc7d93093614a14/008DeF4Zgy1hv5ngtql2jj308c078gmg.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 7890#       发表于 2025-1-14 10:23
+
+<blockquote>祥子：一个人负责作曲、写剧本、运营……喵梦摘个面具剧本还得重写，今天就只睡4个小时吧。
+
+喵梦：两个贵族大小姐搁这玩乐队过家家，创业失败就回家继承亿万家产，能有什么压力。
+
+海铃：加入30个乐队，解散20个，司空见惯，这次没人进监狱就是成功。
+
+初华：睦也是祥子幼驯染，情敌！偷腥猫！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/14/102257ljjj2uhmjpu67jmq.jpg" referrerpolicy="no-referrer">
+
+<strong>_3.jpg</strong> (119.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 10:22 上传
+
