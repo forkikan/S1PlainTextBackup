@@ -659,3 +659,14 @@ alt+enter，取消全屏也是。
 
 升级了血字提示后发现提示老是在boss背后出现（或者是我跑图路线反了），早知道全部扔给商店升级了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 60#       发表于 2025-1-14 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178976&amp;ptid=2238139" target="_blank">sosgame67 发表于 2025-1-14 15:57</a>
+
+升级了血字提示后发现提示老是在boss背后出现（或者是我跑图路线反了），早知道全部扔给商店升级了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">理论上可以0战斗跑完全图可是这游戏的特色，不得不尝啊
+

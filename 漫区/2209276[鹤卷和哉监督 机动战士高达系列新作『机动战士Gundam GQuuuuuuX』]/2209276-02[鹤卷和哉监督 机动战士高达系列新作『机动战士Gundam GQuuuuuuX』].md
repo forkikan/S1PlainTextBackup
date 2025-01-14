@@ -14578,3 +14578,26 @@ FLCL续作(
 现在有确切消息说是季番了吗？应该也只是猜的吧？</blockquote>
 提前看过企划书的说是目前只有季番
 
+
+*****
+
+####  0aleph37  
+##### 2690#       发表于 2025-1-14 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179118&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-14 16:10</a>
+
+提前看过企划书的说是目前只有季番</blockquote>
+没有企划书流出图吗？
+
+
+*****
+
+####  RE㐅ia  
+##### 2691#       发表于 2025-1-14 16:25
+
+ 本帖最后由 RE㐅ia 于 2025-1-14 16:27 编辑 
+<blockquote>0aleph37 发表于 2025-1-14 16:17
+没有企划书流出图吗？</blockquote>
+
+目前没有，应该就是愚人节那会流出给小部分人看过。
+
