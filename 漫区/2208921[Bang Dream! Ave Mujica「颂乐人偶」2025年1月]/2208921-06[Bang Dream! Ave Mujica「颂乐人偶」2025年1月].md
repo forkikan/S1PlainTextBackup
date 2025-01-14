@@ -7348,3 +7348,30 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  akiomn  
+##### 8018#       发表于 2025-1-14 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180819&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-14 20:09</a>
+
+会不会真有一集题目是et tu Uika</blockquote>
+
+现在起码三集标题都是有典故的
+
+第一集秘密，第二集用结果说话，第三集我该怎么办，第四集戏已剧终
+
+124三集都是出自古罗马时期的，第三话标题我忘了出自哪里的
+
+*****
+
+####  一心而用  
+##### 8019#       发表于 2025-1-14 20:40
+
+<img src="https://p.sda1.dev/21/b3ee3a094bb571a6c1b14f74d3b75782/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ddc5f1dc1a28be581bc58cb7eb49a8ff/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/636ecef4c4ca71576198387034ea6bb1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5fed8b003cd9fe54de303faa3339accc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/dce58f5aecf6058665972934e2c11e32/image.jpg" referrerpolicy="no-referrer">
+

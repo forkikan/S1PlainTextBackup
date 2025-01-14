@@ -708,3 +708,13 @@ alt+enter，取消全屏也是。
 
 无限迷路我草
 
+
+*****
+
+####  alleriawr9  
+##### 65#       发表于 2025-1-14 20:41
+
+而且为了支持不打怪通关，boss数值也给的比较低，多用道具是能比较顺利玩下去的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
