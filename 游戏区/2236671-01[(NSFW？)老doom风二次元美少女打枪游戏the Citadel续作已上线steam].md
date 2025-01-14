@@ -1817,3 +1817,22 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  feijitouge  
+##### 157#       发表于 2025-1-14 12:56
+
+ 本帖最后由 feijitouge 于 2025-1-14 12:57 编辑 
+
+                  重复
+
+*****
+
+####  feijitouge  
+##### 158#       发表于 2025-1-14 12:56
+
+[https://www.bilibili.com/video/B ... 6fbe5484131b236f064](https://www.bilibili.com/video/BV1n3cCeEE4u/?spm_id_from=333.1387.list.card_archive.click&amp;vd_source=238e5777445506fbe5484131b236f064)
+
+汉化出了
+
