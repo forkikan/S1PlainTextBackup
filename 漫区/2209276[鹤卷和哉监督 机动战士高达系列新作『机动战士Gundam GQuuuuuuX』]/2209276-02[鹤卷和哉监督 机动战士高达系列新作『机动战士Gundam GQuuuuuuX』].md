@@ -14457,3 +14457,40 @@ GQX被红高达在不开火的情况下制服
 
 但是东宝这次馆数真的给的太多了，是以前高达巅峰闪哈逆鸭的三四倍，比种自都多一百多馆，这么多的院线，票房如果还不如闪哈逆鸭说不过去，院线成本都不一样
 
+
+*****
+
+####  jojonathan  
+##### 2678#       发表于 2025-1-14 14:48
+
+新高达受众究竟是什么生物<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">有没有啥忽悠人入坑话术推荐。 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 2679#       发表于 2025-1-14 14:51
+
+我还是觉得会是银河美少年或者flcl那样稍微胡逼一点的展开<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">至少12集不要想着去碰地宇的大话题吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  复活赛3比0  
+##### 2680#       发表于 2025-1-14 14:55
+
+没什么诱人特典和盘外招拉客吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PascalLefèvre  
+##### 2681#       发表于 2025-1-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178379&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-14 14:48</a>
+新高达受众究竟是什么生物有没有啥忽悠人入坑话术推荐。</blockquote>
+ibo是腐女，水魔是河豚（笑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
