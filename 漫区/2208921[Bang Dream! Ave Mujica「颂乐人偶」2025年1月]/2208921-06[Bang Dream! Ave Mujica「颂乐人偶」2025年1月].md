@@ -6890,3 +6890,38 @@ animage1月号"BanG Dream！ Ave Mujica"特集
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AnnieLeonhart  
+##### 7981#       发表于 2025-1-14 16:27
+
+et tu 初华 还是et tu 木头这下还是两个都有
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  千绿99  
+##### 7982#       发表于 2025-1-14 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178636&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-14 15:19</a>
+
+至于喵梦，我觉得十三集喵梦那句台词“火刑”很有意思了，喵梦大概率要在后面吃波大憋。想想看前面拆队的素 ...</blockquote>
+火刑=炎上的话最简单的办法就是直播中当着睦的面呛睦妈，被冲到退网
+
+
+*****
+
+####  玖羽  
+##### 7983#       发表于 2025-1-14 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179283&amp;ptid=2208921" target="_blank">千绿99 发表于 2025-1-14 16:28</a>
+
+火刑=炎上的话最简单的办法就是直播中当着睦的面呛睦妈，被冲到退网</blockquote>
+我在前面解释过，只要让喵梦撞见睦和森美奈美发生矛盾（换句话说就是森美奈美虐待睦），喵梦就可以立即明白“睦是有问题的”，由于Ave Mujica成员可以随便进若叶家，这样的机会是不缺的
+
+然后只要喵梦当场坚决保护睦，跟森美奈美翻脸，她的形象就会瞬间扭转，如果加上炎上的话，就是喵梦确实被炎上了，但是是为了保护睦，主动抛弃自己的前途被炎上，完美的人物弧光简直唾手可得
+
+这部动画的剧本是精于玩这一手的，比如第二话营造的氛围是睦的精神状态会让舞台演出出问题，在第三话就告诉你舞台演出不仅没出问题，反而效果更好了，但是这不仅不意味着睦变好，反而意味着双倍恶化
+

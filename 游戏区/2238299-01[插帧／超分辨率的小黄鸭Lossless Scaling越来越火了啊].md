@@ -481,3 +481,43 @@ PC游戏我试了格兰蒂亚2HD、仙乐传说还有变形金刚赛博坦之战
 —— 来自 鹅球 v3.3.96</blockquote>
 以二维图像为主的那一般是Anime4K效果最好
 
+
+*****
+
+####  慕容断月  
+##### 43#       发表于 2025-1-14 16:29
+
+ 本帖最后由 慕容断月 于 2025-1-14 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179079&amp;ptid=2238299" target="_blank">游蜓 发表于 2025-1-14 16:07</a>
+
+借楼问下如果给gal超分能用什么呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+唯一指定magpie，用galgame吧分享的那套方案，比较通用吧，因为是现成的别人配置好的方案，完全不需要折腾（但转移json代码你最好能看懂，不能的话就只能自己的配置文件备份一下再替换了）
+
+<img src="https://img.saraba1st.com/forum/202501/14/162953xn5eyv39b9bo5nvt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 16:29 上传
+
+背景和角色服装简单的游戏效果等同官方remaster版甚至更好，如果是9nine那种就比较微妙了
+
+目前我试过的里面，窗社的游戏是效果最好的，基本等于官方4K高清重制版
+
+*****
+
+####  herryk159  
+##### 44#       发表于 2025-1-14 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179079&amp;ptid=2238299" target="_blank">游蜓 发表于 2025-1-14 16:07</a>
+
+借楼问下如果给gal超分能用什么呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
+
+不想折腾就用小黄鸭的Anime4K 
+

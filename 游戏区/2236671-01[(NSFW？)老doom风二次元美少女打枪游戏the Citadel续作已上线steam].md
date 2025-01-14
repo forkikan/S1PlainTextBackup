@@ -1836,3 +1836,11 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 
 汉化出了
 
+
+*****
+
+####  manyin1  
+##### 159#       发表于 2025-1-14 16:29
+
+卧槽这汉化就出了？！<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
