@@ -6062,3 +6062,21 @@ CGディレクター：山之口 創
 几十块还能理解，但睦祥这就奔着两百去了，太离谱了，一般刚发售的时候应该先价格比较正常，然后第一波过 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不敢想最后会变成多少……事已至此只能再追加几张killkiss了
 
+
+*****
+
+####  一心而用  
+##### 7901#       发表于 2025-1-14 11:28
+
+邦邦捧场王海铃[https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1nscQerEQj/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+<img src="https://p.sda1.dev/21/6f34192c7b69a87a1aec4907ec510568/QQ图片20250114112511.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 7902#       发表于 2025-1-14 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176789&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-14 11:25</a>
+不敢想最后会变成多少……事已至此只能再追加几张killkiss了</blockquote>
+wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一百多一张了吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
