@@ -7338,3 +7338,13 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 初华厨继续蛰伏<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AnnieLeonhart  
+##### 8017#       发表于 2025-1-14 20:09
+
+会不会真有一集题目是et tu Uika
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

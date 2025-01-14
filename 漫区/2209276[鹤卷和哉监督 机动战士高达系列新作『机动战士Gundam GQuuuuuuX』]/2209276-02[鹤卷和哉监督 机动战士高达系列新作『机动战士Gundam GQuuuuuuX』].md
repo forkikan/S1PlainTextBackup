@@ -14755,3 +14755,35 @@ pv3啥时候来呢
 
 就差21馆，而且最后要看坐席的，馆多不代表坐席真多
 
+
+*****
+
+####  灵魂收割机  
+##### 2707#       发表于 2025-1-14 20:12
+
+超15亿就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  FF0000  
+##### 2708#       发表于 2025-1-14 20:13
+
+竹也参与宣发了，还是亲妈好，和只会截PV旧图的某官方比，高下立判
+
+<img src="https://img.saraba1st.com/forum/202501/14/201242jgvr5lrttrqgp4tq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (238.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 20:12 上传
+
+*****
+
+####  Aaa炒面面包批发  
+##### 2709#       发表于 2025-1-14 20:16
+
+蓝紫渐变好看，麻球的头发尾巴也是紫色的，是那种偏红的紫
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

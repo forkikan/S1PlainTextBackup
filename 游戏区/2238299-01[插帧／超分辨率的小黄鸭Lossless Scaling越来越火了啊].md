@@ -628,3 +628,11 @@ magpie用着玩那些文字adv还是很舒服的但是感觉玩别的游戏延�
 
 ……鲁卡8级3万HP<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MinamiTsukasa  
+##### 53#       发表于 2025-1-14 20:12
+
+晚上试试，5700XT已经中年危机了
+
