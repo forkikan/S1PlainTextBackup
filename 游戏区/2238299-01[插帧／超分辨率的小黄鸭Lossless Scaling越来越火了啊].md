@@ -613,3 +613,18 @@ magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
 
 magpie用着玩那些文字adv还是很舒服的但是感觉玩别的游戏延迟还是有些明显的，不知道小黄鸭对比magpie有什么区别
 
+
+*****
+
+####  Viteeee  
+##### 52#       发表于 2025-1-14 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179950&amp;ptid=2238299" target="_blank">tatara 发表于 2025-1-14 17:50</a>
+
+正好这两天弃了旧档，在重新开荒来着
+
+图床好像挂了图出不来，换成S1附件试试</blockquote>
+赞，这个就够用了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+……鲁卡8级3万HP<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+

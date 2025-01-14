@@ -14708,3 +14708,14 @@ pv3啥时候来呢
 
 起码得上映之后了
 
+
+*****
+
+####  Toby_dak  
+##### 2703#       发表于 2025-1-14 19:20
+
+我低调点，有同一天上画的初音未来剧场版一半票房就算可以。
+你一个TV版好意思跟剧场版比吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
