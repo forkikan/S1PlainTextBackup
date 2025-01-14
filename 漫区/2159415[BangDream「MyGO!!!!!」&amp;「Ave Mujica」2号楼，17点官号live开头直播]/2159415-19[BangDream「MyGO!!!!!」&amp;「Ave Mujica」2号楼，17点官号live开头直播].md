@@ -2736,3 +2736,13 @@ Happy birthday レイヤ！  
 信澤 収 @canvas2929
 <img src="https://p.sda1.dev/21/4203fe9d6e63175faa80a14f4ef40d03/1736726022654.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26849#       发表于 2025-1-14 12:35
+
+小豆泥联动赠送二星——ksm
+五五四二，还不如四张五星卡，这样还能少讨点骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cd875a318bd4c3866b91d9b883596e92/Image_17583034001970.jpg" referrerpolicy="no-referrer">
+
