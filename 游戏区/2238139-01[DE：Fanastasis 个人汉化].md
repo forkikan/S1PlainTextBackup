@@ -670,3 +670,11 @@ alt+enter，取消全屏也是。
 升级了血字提示后发现提示老是在boss背后出现（或者是我跑图路线反了），早知道全部扔给商店升级了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">理论上可以0战斗跑完全图可是这游戏的特色，不得不尝啊
 
+
+*****
+
+####  dreamskyy  
+##### 61#       发表于 2025-1-14 18:50
+
+这游戏有同伴吗，进去转了几张图路上挡路的杂兵都打不过，好像也没补给点
+

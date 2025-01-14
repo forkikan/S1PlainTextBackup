@@ -592,3 +592,16 @@ magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
 
 以前玩的时候记得还是1.34，刷到泳装线日语啃的太累就没继续了
 
+
+*****
+
+####  江戸前ルナ  
+##### 50#       发表于 2025-1-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180297&amp;ptid=2238299" target="_blank">dreamskyy 发表于 2025-1-14 18:43</a>
+
+这个zakuzaku啥时候有汉化版了，记得里面的boss战设计的挺有特色的，能分享下吗，
+
+以前玩的时候记得还是1 ...</blockquote>
+没，要等我翻完<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
