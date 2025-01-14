@@ -6206,3 +6206,39 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 大喵第三集风评能不能上升一点</blockquote>
 不能，不过祥子会更吸引一部分火力
 
+
+*****
+
+####  哈曼的YY  
+##### 7916#       发表于 2025-1-14 12:44
+
+哦还有 第二集上场前祥老师的讲话广大网友都认为是在压力小黄瓜 这个也很奇怪 明明是对所有人讲的还让小黄瓜更衣室听就行了
+
+*****
+
+####  IWS2000  
+##### 7917#       发表于 2025-1-14 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177263&amp;ptid=2208921" target="_blank">蜇灵 发表于 2025-1-14 12:18</a>
+大喵第三集风评能不能上升一点</blockquote>
+看贴吧看到一堆人说喵梦是母鸡卡里唯一关心睦头人的，想带她一起离开的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 7918#       发表于 2025-1-14 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177442&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-14 12:45</a>
+看贴吧看到一堆人说喵梦是母鸡卡里唯一关心睦头人的，想带她一起离开的 ...</blockquote>
+那看来下集大喵风评有救了
+
+就是俺们小祥还得再熬一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7919#       发表于 2025-1-14 12:55
+
+苦一苦小祥 把队友的人气都抬起来 到时候就是一个强大的团队了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
