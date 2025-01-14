@@ -718,3 +718,15 @@ alt+enter，取消全屏也是。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  alleriawr9  
+##### 66#       发表于 2025-1-14 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180925&amp;ptid=2238139" target="_blank">突发性哮喘病患 发表于 2025-1-14 20:30</a>
+无限迷路我草，能不能建个讨论群，根本没攻略</blockquote>
+9L有群号啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
