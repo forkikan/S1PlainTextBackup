@@ -777,3 +777,29 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 光头今天下午两点还要装出发射的样子
 
+
+*****
+
+####  commcody  
+##### 56#         楼主| 发表于 2025-1-14 12:13
+
+当地时间1月12日中午，S33重新与B14合体。目前官方发射时间仍然是北京时间1月16日早6点。但当地天气情况可能不是很理想，很可能会延后一天。
+
+<img src="https://img.saraba1st.com/forum/202501/14/121219bw2n2wpnccw7wdes.jpg" referrerpolicy="no-referrer">
+
+<strong>GhOGilRXcAAaFhc.jpg</strong> (300.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 12:12 上传
+
+*****
+
+####  commcody  
+##### 57#         楼主| 发表于 2025-1-14 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67175687&amp;ptid=2210117" target="_blank">2017.05.04 发表于 2025-1-14 09:08</a>
+
+光头今天下午两点还要装出发射的样子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">才硬了没多久又缩了，也直接延后到16号。
+

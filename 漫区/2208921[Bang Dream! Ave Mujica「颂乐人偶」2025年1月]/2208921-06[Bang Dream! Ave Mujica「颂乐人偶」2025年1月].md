@@ -6124,3 +6124,34 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 祥老师挡采访编故事说人偶没父母这么难以理解吗 真都以为是中二发作了？
 
+
+*****
+
+####  Aendst  
+##### 7907#       发表于 2025-1-14 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没关系，当广大网友发现睦其实也不是很在乎立希的时候就会连睦一起骂了
+
+*****
+
+####  66367749  
+##### 7908#       发表于 2025-1-14 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177107&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-14 12:02</a>
+看了一圈广大网友已经把立希当成唯一理解黄瓜不想被提父母的人了
+
+祥老师挡采访编故事说人偶没父母这么难以 ...</blockquote>
+感觉只是把立希当块板砖<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 7909#       发表于 2025-1-14 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177107&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-14 12:02</a>
+看了一圈广大网友已经把立希当成唯一理解黄瓜不想被提父母的人了
+
+祥老师挡采访编故事说人偶没父母这么难以 ...</blockquote>
+
+你得先定义哪些人算广大网友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
