@@ -646,3 +646,14 @@ magpie用着玩那些文字adv还是很舒服的但是感觉玩别的游戏延�
 
 试了一下视频插帧，效果挺好的，也不需要像svp一样调很多参数。现在的问题是现在整个窗口都插帧，连字幕弹幕都插帧了，怎么用mpv调用只插视频画面？
 
+
+*****
+
+####  慕容断月  
+##### 55#       发表于 2025-1-15 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180465&amp;ptid=2238299" target="_blank">Rebirth_DAN 发表于 2025-1-14 19:09</a>
+
+magpie用着玩那些文字adv还是很舒服的但是感觉玩别的游戏延迟还是有些明显的，不知道小黄鸭对比magpie有什 ...</blockquote>
+magpie泛用，小黄鸭专攻3d游戏
+

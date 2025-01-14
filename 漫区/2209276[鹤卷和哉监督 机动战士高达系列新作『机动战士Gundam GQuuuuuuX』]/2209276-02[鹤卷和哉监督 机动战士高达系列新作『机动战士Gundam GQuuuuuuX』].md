@@ -15065,3 +15065,21 @@ pv3啥时候来呢
 [https://x.com/_take_oekaki/status/1879131899354038511](https://x.com/_take_oekaki/status/1879131899354038511)
 <img src="https://p.sda1.dev/21/c3bd9f3cc2cbe1be6e870848b2d5bf97/20250115_002609.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 2738#       发表于 2025-1-15 00:47
+
+<img src="https://img.saraba1st.com/forum/202501/15/014604wr66jyr1rykhd6pk.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (178.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 00:46 上传
+
+川崎チネチッタ，17号早上第一场9点到10点半的。
+
+所以哪来自信50甚至100亿的。
+
