@@ -602,3 +602,11 @@ alt+enter，取消全屏也是。
  有没有湿地地图的躲鱼人路线攻略啊。这个潜行解密9个开关，横跨3张大地图，2个传送点，太他妈复杂了 ...</blockquote>
 我记得不算很难，开开关后先传送到右上的点开三个，然后传回起点一路不踩花向下潜行就行了，中间存档也保留进度。
 
+
+*****
+
+####  PigMourne  
+##### 54#       发表于 2025-1-14 14:14
+
+哇浪，楼主功德无量<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

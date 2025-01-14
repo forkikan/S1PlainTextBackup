@@ -14402,3 +14402,32 @@ GQX被红高达在不开火的情况下制服
 
 怎没没人奶100e？eva原班人马+高达ipbuff还打不过一个eva终了？
 
+
+*****
+
+####  PascalLefèvre  
+##### 2672#       发表于 2025-1-14 14:09
+
+真能100e了万代立刻让福田有多远滚多远然后全力投入UC好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 2673#       发表于 2025-1-14 14:10
+
+一百亿可以让鹤卷坐稳霓虹第一机器人动画导演的宝座，问题是可能吗。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  PascalLefèvre  
+##### 2674#       发表于 2025-1-14 14:14
+
+唉 可怜的高达姨姥在专楼里联机做梦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
