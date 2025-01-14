@@ -14988,3 +14988,21 @@ pv3啥时候来呢
 
 赚多少另说，赔本不会怎么赔吧，毕竟三四集TV动画成本也比正常剧场版低多了
 
+
+*****
+
+####  Sliurus  
+##### 2729#       发表于 2025-1-14 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67181319&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-14 21:29</a>
+
+现在就看，等宇宙世纪那批遗老不再是消费主力之后，哪个群体更能扛你钢的大旗 ...</blockquote>
+又不是完全没新人，别以为UC真的只有老毕登买账
+
+*****
+
+####  复活赛3比0  
+##### 2730#       发表于 2025-1-14 22:24
+
+票房先不说，胶能大卖不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
