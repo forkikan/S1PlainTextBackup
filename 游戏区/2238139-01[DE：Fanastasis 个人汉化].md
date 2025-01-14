@@ -629,3 +629,14 @@ alt+enter，取消全屏也是。
 
 理智宝石有没有优先的升级建议？看选项那么多，又觉得没有什么特别重要的
 
+
+*****
+
+####  abbccc200  
+##### 57#       发表于 2025-1-14 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178403&amp;ptid=2238139" target="_blank">blueelf 发表于 2025-1-14 14:51</a>
+
+理智宝石有没有优先的升级建议？看选项那么多，又觉得没有什么特别重要的 ...</blockquote>
+舔图够细的话随便加无所谓，比较有用的也就逃跑几率和语言学，留些点数学魔法和吸魂术收菜
+
