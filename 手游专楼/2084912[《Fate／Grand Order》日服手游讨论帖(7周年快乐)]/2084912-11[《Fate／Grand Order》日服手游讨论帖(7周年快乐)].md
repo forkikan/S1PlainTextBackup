@@ -10734,3 +10734,13 @@ F1阿尔法罗密欧车队知道吧
 
 沒石了
 
+
+*****
+
+####  壳壳牛  
+##### 16100#       发表于 2025-1-14 21:49
+
+剩余石头抽武尊全沉了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
