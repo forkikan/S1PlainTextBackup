@@ -5915,3 +5915,15 @@ weibo: @四分之三怪人re / twi: sigangsan ​​​
 搞不懂藏的那么严实干嘛，非得等正式播出才放。只能怀疑预 ...</blockquote>
 就两天了也要藏？人物pv也在藏，看来是大爆特爆以至于剪不出不爆的预告来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 7889#       发表于 2025-1-14 09:46
+
+Illustrator: Lelioz
+
+twi: lelioz1598 ​​​
+<img src="https://p.sda1.dev/21/244fb384505b461968ae55ea92d28b36/008DeF4Zgy1hxjjsovwvdj30rs0rsabr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e68a513d98ad03116bc7d93093614a14/008DeF4Zgy1hv5ngtql2jj308c078gmg.jpg" referrerpolicy="no-referrer">
+
