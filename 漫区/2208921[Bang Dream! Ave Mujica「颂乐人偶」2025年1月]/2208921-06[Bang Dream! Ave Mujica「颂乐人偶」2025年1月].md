@@ -5978,3 +5978,23 @@ twi：zhanzhangzlw
 我听人科普说作曲管不了鼓手</blockquote>
 对，我也看了，鼓手自由度比较高，但也不能完全任意发挥。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 7894#       发表于 2025-1-14 10:59
+
+【Ave Mujica New Single 「KiLLKiSS」全曲】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1vyc9eiEG8/?p=2&amp;share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
+
+ED完整版出了
+
+*****
+
+####  SakuraのOrigami  
+##### 7895#       发表于 2025-1-14 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176534&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-14 10:55</a>
+
+对，我也看了，鼓手自由度比较高，但也不能完全任意发挥。</blockquote>
+基本上乐手都是有一定的自由度，毕竟演奏习惯（也就是手癖）这种不是编曲者本身能决定的
+
