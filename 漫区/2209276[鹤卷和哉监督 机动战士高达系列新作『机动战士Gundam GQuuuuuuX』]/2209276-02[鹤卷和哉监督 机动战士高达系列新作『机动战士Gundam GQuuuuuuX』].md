@@ -14719,3 +14719,11 @@ pv3啥时候来呢
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  复活赛3比0  
+##### 2704#       发表于 2025-1-14 19:25
+
+你高现在还想看年番？还有铁血的新动画怎么感觉进阴间去了，怎么没点消息<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+
