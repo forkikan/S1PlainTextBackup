@@ -14934,3 +14934,18 @@ pv3啥时候来呢
 闪哈这种顶着口罩硬上的也不好拿来作比较吧</blockquote>
 现在复盘闪哈的debuff挺多的，口罩，二线馆数，BD同步，非原创，UC劝退路人，这能砍下二十多亿已经是姨姥出大力了
 
+
+*****
+
+####  王留美  
+##### 2724#       发表于 2025-1-14 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67181208&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-14 21:12</a>
+
+现在复盘闪哈的debuff挺多的，口罩，二线馆数，BD同步，非原创，UC劝退路人，这能砍下二十多亿已经是姨姥 ...</blockquote>
+最主要是劝退路人
+
+独角兽时期那种拉新效应在闪哈上完全没体现，神秘
+
+当然GTO也差不多就是了
+
