@@ -6020,3 +6020,45 @@ ED完整版出了
 
 CGディレクター：山之口 創
 
+
+*****
+
+####  qjw114514  
+##### 7897#       发表于 2025-1-14 11:18
+
+这次特典的卡片价格怎么这么夸张，刚刚在煤炉看看都一百多一张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 7898#       发表于 2025-1-14 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176720&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-14 11:18</a>
+
+这次特典的卡片价格怎么这么夸张，刚刚在煤炉看看都一百多一张</blockquote>
+品质非常高，所以一定会被炒起来的
+
+而且初期生产限定，下一批新货里不好说还会不会塞这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 7899#       发表于 2025-1-14 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176736&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-14 11:20</a>
+品质非常高，所以一定会被炒起来的
+
+而且初期生产限定，下一批新货里不好说还会不会塞这个 ...</blockquote>
+几十块还能理解，但睦祥这就奔着两百去了，太离谱了，一般刚发售的时候应该先价格比较正常，然后第一波过去再涨上去吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 7900#       发表于 2025-1-14 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176752&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-14 11:22</a>
+
+几十块还能理解，但睦祥这就奔着两百去了，太离谱了，一般刚发售的时候应该先价格比较正常，然后第一波过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不敢想最后会变成多少……事已至此只能再追加几张killkiss了
+
