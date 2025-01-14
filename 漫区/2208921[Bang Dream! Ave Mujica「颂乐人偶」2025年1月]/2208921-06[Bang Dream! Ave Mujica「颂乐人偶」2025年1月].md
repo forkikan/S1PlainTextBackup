@@ -6405,3 +6405,48 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 这到底是来看动画的还是来挑选受害者下手乱车的，冥冥之中还有一种抱怨自己老板的ego味香飘十里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 7938#       发表于 2025-1-14 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177930&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-14 13:54</a>
+
+这个真的是真的，喵梦对睦说的话虽然有利己的成分，但都是正论，Mortis也承认喵梦说得对 ...</blockquote>
+正论和关心是两回事
+
+喵梦对睦的说法都是正论，是一种她眼里的共赢，但没有对个人的关心在，她不在乎睦本人到底怎么想
+
+更谈不上“唯一关心”的人了
+
+*****
+
+####  相坂君  
+##### 7939#       发表于 2025-1-14 13:57
+
+正常的片也没断怎么久不播，她现在呼吸都能被找到错误，谁家原创片还没播初始仇恨值就能垒到这么高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 7940#       发表于 2025-1-14 14:03
+
+ 本帖最后由 玖羽 于 2025-1-14 14:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177951&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-14 13:57</a>
+
+正论和关心是两回事
+
+喵梦对睦的说法都是正论，是一种她眼里的共赢，但没有对个人的关心在，她不在乎睦本人到底怎么想</blockquote>
+睦本人为了祥子已经恶化成这个样子了，她的想法已经危害到自己的生命
+
+Mortis对睦说的“讨厌祥子”、“喵梦说得对，继续对祥子言听计从，你会死”可以认为是睦内心的理性在起作用，所以Mortis要上号
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 7941#       发表于 2025-1-14 14:05
+
+那之后是不是睦祥和喵mortis（简称MM）一起出现了
+
