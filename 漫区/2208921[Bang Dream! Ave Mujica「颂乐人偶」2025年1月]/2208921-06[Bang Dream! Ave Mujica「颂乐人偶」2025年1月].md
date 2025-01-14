@@ -7488,3 +7488,46 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 大概指的是鸡团 ...</blockquote>
 这样吗，我还以为这个时机在访谈里有或者是我漏看了，可惜
 
+
+*****
+
+####  66367749  
+##### 8029#       发表于 2025-1-14 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67181240&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-14 21:17</a>
+这样吗，我还以为这个时机在访谈里有或者是我漏看了，可惜</blockquote>
+yysy到上武道馆也就两个月左右的时间，搁一般才刚开始运营而已。可能u2ber的生命周期和节奏比传统要快很多？不然很难解释喵梦为什么这么急。
+
+
+*****
+
+####  嵇翱u  
+##### 8030#       发表于 2025-1-14 21:30
+
+大喵可能单纯觉得武道馆还不算大舞台吗，就动手了。毕竟祥子也只是画饼没有实际目标<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 8031#       发表于 2025-1-14 21:31
+
+节约：祥子用脸和数字招募了喵梦，但喵梦觉得蒙面浪费了，所以祥子回答说“要在最好的舞台和时机”，喵梦就一直思考“什么才是最好的舞台和时机呢？”然后到了武道馆，她想着“不就是现在这里吗？”于是就擅自即兴摘掉了所有人的面具
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是喵梦对祥子的发言理解有误，声优其实已经不止一次帮喵梦找补了
+虽然喵梦擅自摘队友假面的行为还是很逆天
+
+*****
+
+####  新HGCG  
+##### 8032#       发表于 2025-1-14 21:33
+
+求问是啥梗
+
+<img src="https://img.saraba1st.com/forum/202501/14/213320p5l5emmx5ryll1e7.jpg" referrerpolicy="no-referrer">
+
+<strong>2WA~N0JAYEXANKLNVI9%D[6.jpg</strong> (50.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 21:33 上传
+
