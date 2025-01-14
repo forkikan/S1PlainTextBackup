@@ -1,124 +1,139 @@
 # -*- coding: UTF-8 -*-
 
-rootdir="./"
-
 import re
 import json
 from pathlib import Path
-import datetime
-import requests,os,time
-
-
-
+from datetime import datetime,timedelta
+import requests,os,time,sys
+from collections import Counter
+# from cutword import Cutter
+# from snownlp import SnowNLP
+# import jieba
+import hanlp
 
 def getdate(beforeOfDay):
-        today = datetime.datetime.today()
+        system_type = sys.platform
+        today = datetime.today()
         # 计算偏移量
-        offset = datetime.timedelta(days=-beforeOfDay)
+        offset = timedelta(days=-beforeOfDay)
         # 获取想要的日期的时间
-        re_date = (today + offset).strftime('%Y-%-m-%-d')
+        if system_type == "win32":
+            re_date = (today + offset).strftime("%Y-%#m-%#d")
+        else:
+            re_date = (today + offset).strftime("%Y-%-m-%-d")
         return re_date
 
+def getdate2(beforeOfDay):
+        system_type = sys.platform
+        today = datetime.today()
+        # 计算偏移量
+        offset = timedelta(days=-beforeOfDay)
+        # 获取想要的日期的时间
+        if system_type == "win32":
+            re_date = (today + offset).strftime("%Y年%#m月%#d日")
+        else:
+            re_date = (today + offset).strftime("%Y年%-m月%-d日")
+        return re_date
+
+def 提取回帖(text):
+    # 正则表达式匹配 <blockquote> 中的引用内容
+    blockquote_pattern = re.compile(r"<blockquote>.*?发表于.*?</blockquote>", re.DOTALL)
+
+    # 删除 <blockquote> 中的引用内容（如果存在）
+    cleaned_text = blockquote_pattern.sub("", text)
+    tail_pattern = re.compile(
+    r"—— 来自 \[鹅球\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|"  # 中文小尾巴
+    r"— from \[S1 Next Goose\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|" # 英文小尾巴（无 alpha）
+    r"https://s1fun\.koalcat\.com",  
+    re.DOTALL
+    )
+    cleaned_text = tail_pattern.sub("", cleaned_text)   
+    # 提取回帖内容
+    # 如果存在 <blockquote>，则提取其后的内容；否则，提取整个内容
+    if "<blockquote>" in cleaned_text:
+        # 提取 <blockquote> 之后的内容
+        reply_pattern = re.compile(r"<blockquote>.*?</blockquote>(.*?)$", re.DOTALL)
+        reply_match = reply_pattern.search(cleaned_text)
+        if reply_match:
+            reply_content = reply_match.group(1).strip()
+        else:
+            reply_content = cleaned_text.strip()
+    else:
+        # 如果没有 <blockquote>，直接提取整个内容
+        reply_content = cleaned_text.strip()
+    reply_content = re.sub(r"<.*?>", "", reply_content)
+    reply_content = re.sub(r"\d{4}-\d{1,2}-\d{1,2}", "",reply_content)
+    # 过滤掉以 #### 开头的行
+    filtered_lines = [line for line in reply_content.splitlines() if not line.startswith("####")]
+
+    # # 将过滤后的行重新组合成字符串
+    # final_reply_content = "\n".join(filtered_lines).strip()
+    # final_reply_content = re.sub(r"\s+", "", final_reply_content)
+    # final_reply_content = re.sub(r"<.*?>", "", final_reply_content)
+    return filtered_lines
+
 if __name__ == '__main__':
-    p = Path(rootdir)
-    # replydict = {
-    #     '外野':{},
-    #     '漫区':{},
-    #     '游戏区':{},
-    #     '手游区':{},
-    #     '管人区':{},
-    # }
-    replydict = {
+    根路径="./"
+
+    回复字典 = {
         '外野':{},
         '游戏区':{},
         '漫区':{},
-        '手游战斗区':{}
+        '手游战斗':{}
     }
-    for file in p.rglob('*.md'):
-        if(('虚拟主播区专楼' not in str(file)) and ('手游专楼' not in str(file))):
+    回帖字符串 = '[b]统计日期：[/b]'
+    今日日期 = str(getdate(1))
+    停用词表 = set(['不能','开始','最后','自己','---','次数','一个','不是','2025','来自','就是','这个','没有','还是','什么','可以','这种','因为','但是','所以','也不','知道','觉得','怎么','可能','还有','如果','然后','确实','直接','时候','出来','不会','而且','应该','已经','很多','其实','不过','那么','这么','这样','只是','需要','只有','那个','的话','当然','几个','完全','或者','一样','地方','比较','虽然','其他','感觉','一直','有点','楼主','时间','一下','还能','主要','一点','只能','以后','一般','代表','多少','结果','东西','根本','肯定','人家','现在','本来','甚至','为了','所谓','说法','认为','有人','评分','里面','本身','毕竟','那些','非常','战斗力','各种','不如','情况','起来','来说','基本','没啥','一种','看到','://','com','https','](','www','——','pgyer','v3.3','96','GcUxKd4w','xfPejhuq','alpha','……','下载次数','下载','附件','上传','KB','jpg','10','编辑','status','真的','="','image','png','saraba1st','S1Fun','S1Fun','s1fun','koalcat','|+'])
+    回帖字符串 = f"{回帖字符串}{getdate2(1)}\n[url=https://github.com/TomoeMami/S1PlainTextBackup/]数据来源[/url]\n\n"
+    # cutter = Cutter(want_long_word=True)
+    tok = hanlp.load(hanlp.pretrained.tok.FINE_ELECTRA_SMALL_ZH)
+    for 板块 in 回复字典.keys():
+        板块字典 = {}
+        词云数据 = []
+        p = Path(f"{根路径}{板块}/")
+        for file in p.rglob('*.md'):
             print(str(file))
             with open (file, 'r',encoding='utf-8-sig') as f:
-                lines = f.readlines()
-                a = ''
-                for line in lines:
-                    a += line.strip()
-                    # a += line
-                b = a.split("*****")
-                res = []
-                for post in b:
-                    post1 = post
-                    post2 = post
-                    data={}
-                    data['id'] = ''.join(re.findall(r"^[\*]{0,2}####\s\s([^#]+)#", post))
-                    # data['level'] = str(filepath)+''.join(re.findall(r"#####\s(\d+)#", post1))
-                    data['time'] = ''.join(re.findall(r"^.*?发表于\s(\d{4}-\d{1,2}-\d{1,2}) \d{2}:\d{2}", post2))
-                    if(data['id']):
-                        res.append(data)
-                threadid = re.findall(r"\d{5,9}", str(file))[0]
-                temptimedict = {}
-                for i in res:
-                    if i['time'] in temptimedict.keys():
-                        temptimedict[i['time']]['num'] = temptimedict[i['time']]['num'] + 1
-                    else:
-                        temptimedict[i['time']] = {}
-                        temptimedict[i['time']]['num'] = 1
-                    if i['id'] in temptimedict[i['time']].keys():
-                        temptimedict[i['time']][i['id']] = temptimedict[i['time']][i['id']] + 1
-                    else:
-                        temptimedict[i['time']][i['id']] = 1
-                today = str(getdate(1))
-                if('外野' in str(file)):
-                    board = '外野'
-                elif('漫区' in str(file)):
-                    board = '漫区'
-                elif('游戏区' in str(file)):
-                    board = '游戏区'
-                # elif('虚拟主播区专楼' in str(file)):
-                #     board = 'VTB区'
-                elif('手游战斗' in str(file)):
-                    board = '手游战斗区'
-                if today in temptimedict.keys():
-                    if today not in replydict[board].keys():
-                        replydict[board][today] = {}
-                    for k in temptimedict[today].keys():
-                        if k not in replydict[board][today].keys():
-                            replydict[board][today][k] = {}
-                            replydict[board][today][k]['num'] = 0
-                        if threadid not in replydict[board][today][k].keys():
-                            replydict[board][today][k][threadid] = 0
-                        replydict[board][today][k]['num'] = replydict[board][today][k]['num'] + temptimedict[today][k]
-                        replydict[board][today][k][threadid] = replydict[board][today][k][threadid] + temptimedict[today][k]
-
-
-    rstr = '[b]统计日期：[/b]'
-    rstr = rstr + (datetime.datetime.today()+datetime.timedelta(days=-1)).strftime('%Y年%-m月%-d日')+'\n[url=https://github.com/TomoeMami/S1PlainTextBackup/]数据来源[/url]\n\n'
-    for k in replydict.keys():
-        rstr = rstr + '[b]' + k + '（+'+str(replydict[k][today]['num']['num'])+'）[/b]\n'
-        thdict = replydict[k][today]['num']
-        thdict.pop('num')
-        threadorder=sorted(thdict.items(),key=lambda x:x[1],reverse=True)
-        threadnum = min(len(threadorder),20)
-        rstr = rstr + '[b]回帖数量前'+str(threadnum)+'的帖子：[/b]\n'
-        namedict = {}
-        replydict1 = replydict
-        replydict1[k][today].pop('num')
-        for i in replydict1[k][today].keys():
-            namedict[i] = replydict1[k][today][i]['num']
-        # namedict.pop('num')
-        nameorder = sorted(namedict.items(),key=lambda x:x[1],reverse=True)
-        with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
-            thdata=json.load(f)
-        for i in range(threadnum):
-            rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
-        # rstr = rstr + '\n' + '[b]回帖数量前'+str(threadnum)+'的用户：[/b]\n'
-        # for i in range(threadnum):
-        #     nameth = replydict1[k][today][nameorder[i][0]]
-        #     nameth.pop('num')
-        #     norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
-        #     rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
-        rstr = rstr + '===========\n\n'
-    #rstr = rstr + '[url=https://tomoemami.gitee.io/tomoemami.github.io/]历史日回帖统计在线图表[/url]\n'
-    # print(rstr)
+                content = f.read()
+                lines = content.splitlines()
+                a = "\n".join(line for line in lines if line.strip())
+                if 今日日期 in a:
+                    b = a.split("*****")
+                    res = []
+                    for post in b:
+                        if 今日日期 in post:
+                            post1 = post
+                            post2 = post
+                            data={}
+                            data['id'] = re.findall(r"####\s\s([^#]+)\n#", post)[0]
+                            # data['level'] = str(filepath)+''.join(re.findall(r"#####\s(\d+)#", post1))
+                            data['time'] = re.findall(r"发表于\s(\d{4}-\d{1,2}-\d{1,2}) \d{2}:\d{2}", post2)[0]
+                            if data['id'] and data['time'] == 今日日期:
+                                res.append(data['time'])
+                                if 板块 != "手游战斗":
+                                    for 分词结果 in tok(提取回帖(post1)):
+                                        if 分词结果 :
+                                            for 分词 in 分词结果:
+                                                if len(分词) >1 and 分词 not in 停用词表:
+                                                    词云数据.append(分词)
+                    threadid = re.findall(r"\d{5,9}", str(file))[0]
+                    if Counter(res).get(今日日期, 0) > 0:
+                        if threadid in 板块字典.keys():
+                            板块字典[threadid] = 板块字典[threadid] + Counter(res).get(今日日期, 0)
+                        else:
+                            板块字典[threadid] = Counter(res).get(今日日期, 0)
+        词云排序 = sorted(Counter(词云数据).items(),key=lambda x:x[1],reverse=True)
+        回帖字符串 = f"{回帖字符串}[b]{板块}（{sum(板块字典.values())}）[/b]\n"
+        回帖排序 = sorted(板块字典.items(),key=lambda x:x[1],reverse=True)
+        回帖序号 = min(len(回帖排序),20)
+        with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
+            帖子数据=json.load(f)
+        for i in range(回帖序号):
+            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]{回帖排序[i][1]}[/b]）\n"
+        if 板块 != "手游战斗":
+            回帖字符串 = f"{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"
+            回帖字符串 = f"{回帖字符串}===========\n\n"
+    # print(回帖字符串)
     with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
         cookie_str1 = f.read()
     cookie_str = repr(cookie_str1)[1:-1]
@@ -145,7 +160,7 @@ if __name__ == '__main__':
             '''回帖ID，手动修改'''
             replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
             #url为要回帖的地址
-            Data = {'formhash': formhash,'message': rstr,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+            Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
             req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
             print(req)
             break

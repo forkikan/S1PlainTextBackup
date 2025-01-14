@@ -14740,3 +14740,18 @@ pv3啥时候来呢
  ...</blockquote>
 你要注意，原创动画的半年番现在还有多少<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱情半月餐  
+##### 2706#       发表于 2025-1-14 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178347&amp;ptid=2209276" target="_blank">ナルバレック 发表于 2025-1-14 14:44</a>
+
+但是东宝这次馆数真的给的太多了，是以前高达巅峰闪哈逆鸭的三四倍，比种自都多一百多馆，这么多的院线，票 ...</blockquote>
+機動戦士ガンダムSEED FREEDOM(352館)
+
+機動戦士Gundam GQuuuuuuX -Beginning-(373館)
+
+就差21馆，而且最后要看坐席的，馆多不代表坐席真多
+

@@ -14539,3 +14539,14 @@ tripleS&amp;Liyuu 这联动跳舞有点惊到我了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  csolfans  
+##### 1418#       发表于 2025-1-14 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180455&amp;ptid=2201887" target="_blank">starring 发表于 2025-1-14 19:07</a>
+
+投票开始了，选两人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">老实说想看熊花
+
