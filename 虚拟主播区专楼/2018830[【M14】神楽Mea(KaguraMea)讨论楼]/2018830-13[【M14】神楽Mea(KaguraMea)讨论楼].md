@@ -477,3 +477,47 @@ syl，气不过就开播耍小性子可爱捏
 生气的推文和录播都删完了
 (但是有俩回复还在)
 
+
+*****
+
+####  Dualist彩  
+##### 17825#       发表于 2025-1-13 22:18
+
+神人主播，世界第一玉玉vtb
+
+*****
+
+####  受菊  
+##### 17826#       发表于 2025-1-13 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">新推文真的有点帅，就爱主播这一面
+
+*****
+
+####  Dualist彩  
+##### 17827#       发表于 2025-1-13 22:37
+
+是和白波らむね的联动又给太君整破防了？每次你麻和打枪社小女友玩都有太君要嘴两句
+
+*****
+
+####  sino__unnko3  
+##### 17828#       发表于 2025-1-13 22:41
+
+ 本帖最后由 sino__unnko3 于 2025-1-14 16:00 编辑 
+
+生气的推文和录播都删完了
+(但是有俩回复还在)
+回复刚刚已删除
+
+草，grok里面还有推文记录被拿来训练了<img src="https://p.sda1.dev/21/12fee1a162126806f5ae0da844db44a2/image.jpg" referrerpolicy="no-referrer">
+
+btw，她最近是看了哪里的负面评价？
+
+*****
+
+####  sino__unnko3  
+##### 17829#       发表于 2025-1-14 17:29
+
+<img src="https://p.sda1.dev/21/f839e6d2d542fa35de773f4e27f634d9/image.jpg" referrerpolicy="no-referrer">
+

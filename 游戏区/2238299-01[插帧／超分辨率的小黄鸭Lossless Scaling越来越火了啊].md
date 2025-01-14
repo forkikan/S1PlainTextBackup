@@ -521,3 +521,24 @@ magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
 
 不想折腾就用小黄鸭的Anime4K 
 
+
+*****
+
+####  Viteeee  
+##### 45#       发表于 2025-1-14 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171562&amp;ptid=2238299" target="_blank">江戸前ルナ 发表于 2025-1-14 00:53</a>
+
+非常感谢，搞定了，效果很好！（就是放大过程中不要拖动窗口，容易卡住）还有我在蒸汽买的怎么是旧版啊 ...</blockquote>
+能展示下效果么？
+
+魔物娘RPG那个鬼窗口锁死640x480不能放大，各种方法都试了完全不行，这个要是好用就买个试试。
+
+
+*****
+
+####  Edward0901  
+##### 46#       发表于 2025-1-14 17:34
+
+能不能把百来帧的游戏插到几百帧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
