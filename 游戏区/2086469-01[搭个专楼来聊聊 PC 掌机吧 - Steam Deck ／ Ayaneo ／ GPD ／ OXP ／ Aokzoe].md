@@ -29,3 +29,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  crosz1985  
+##### 1337#       发表于 2025-1-14 09:03
+
+微星一代哪款u5的pdd直接蹦到2699了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

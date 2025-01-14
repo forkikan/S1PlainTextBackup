@@ -5844,3 +5844,18 @@ ep08 那段对话是有比较奇怪的地方的
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑猫桑  
+##### 7884#       发表于 2025-1-14 08:58
+
+<img src="https://p.sda1.dev/21/ddcbe71cf6f79c87188ec49cb4cdcf20/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃苑軒風  
+##### 7885#       发表于 2025-1-14 08:59
+
+看到meme图来的，需要先看完mygo再看这一部么？
+
