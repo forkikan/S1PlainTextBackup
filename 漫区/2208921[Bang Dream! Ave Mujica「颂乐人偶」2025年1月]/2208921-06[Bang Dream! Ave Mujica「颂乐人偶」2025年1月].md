@@ -6080,3 +6080,13 @@ CGディレクター：山之口 創
 不敢想最后会变成多少……事已至此只能再追加几张killkiss了</blockquote>
 wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一百多一张了吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 7903#       发表于 2025-1-14 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176752&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-1-14 11:22</a>
+几十块还能理解，但睦祥这就奔着两百去了，太离谱了，一般刚发售的时候应该先价格比较正常，然后第一波过 ...</blockquote>
+忘记在哪儿看到的了，说是一个祥吧唧有人花几万买，不知道是炒作还是啥，总之就很离谱
+

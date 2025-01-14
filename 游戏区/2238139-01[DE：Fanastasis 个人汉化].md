@@ -510,3 +510,14 @@ steam版汉化后云存档就不能正常使用了，多台机器玩的朋友需
 
 怎么设置全屏啊
 
+
+*****
+
+####  blueelf  
+##### 44#       发表于 2025-1-14 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176406&amp;ptid=2238139" target="_blank">妄想中毒 发表于 2025-1-14 10:40</a>
+
+哥布林山洞你都傻等你打到海底隧道怕不是要吐血</blockquote>
+打完异种族村落之后就去了海底隧道，4000血的小怪完全打不了，只能躲怪收集装备了
+
