@@ -6362,3 +6362,46 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 小圆还好吧，前面存在感不强，感觉没啥车的。s1的真爱是蓝毛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 7934#       发表于 2025-1-14 13:49
+
+情况肯定不一样啊
+
+小圆是纯原创 吃瘪到第十集正常观众肯定也坐不住了
+
+你祥属于是很多人等着报仇呢<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+做出每个动作都会被以负面的角度来解读
+
+正常的片哪有第三集就开始车的 太变态了
+
+
+*****
+
+####  狂热飞鸟  
+##### 7935#       发表于 2025-1-14 13:53
+
+主要原创番的乐趣一半就是讨论分析剧情和猜测接下来的剧情，魔法少女小圆至少还是会死人的战斗番，现在是一部连扇巴掌(应该)都不会有结局一定包饺子的少女乐队番，结果还审判的这么激烈<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 7936#       发表于 2025-1-14 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177442&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-14 12:45</a>
+
+看贴吧看到一堆人说喵梦是母鸡卡里唯一关心睦头人的，想带她一起离开的 ...</blockquote>
+这个真的是真的，喵梦对睦说的话虽然有利己的成分，但都是正论，Mortis也承认喵梦说得对
+
+*****
+
+####  Aendst  
+##### 7937#       发表于 2025-1-14 13:54
+
+一种要求小智必须在第三集就拿到神兽的美
+
+这到底是来看动画的还是来挑选受害者下手乱车的，冥冥之中还有一种抱怨自己老板的ego味香飘十里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
