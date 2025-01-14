@@ -1484,3 +1484,16 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  khxooo  
+##### 46958#       发表于 2025-1-14 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178968&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-1-14 15:57</a>
+
+抽丑御前还是三条内裤？主要抽雪老师
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+武藏吧，起码有宝具本可以拿点石头，丑御前用起来非常卡手，虽然武藏也卡手就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

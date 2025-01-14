@@ -14632,3 +14632,22 @@ FLCL续作(
 
 18年到现在6年做12/13集能保证通篇剧场版的质量吗？
 
+
+*****
+
+####  食物虾  
+##### 2695#       发表于 2025-1-14 17:40
+
+感觉就不太可能是季番吧 现在这么多番都开始半年起步而且gq这也算得上大投入就算不是年番也得半年番起步吧<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 2696#       发表于 2025-1-14 17:43
+
+18年开始企划怎么被传得跟18年开始制作一样，你们自己想想可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+实际开始制作我猜比水魔放送完都晚，因为概念设计团队里有好几个人都是水魔刚开始（在高达ip）崭露头角的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

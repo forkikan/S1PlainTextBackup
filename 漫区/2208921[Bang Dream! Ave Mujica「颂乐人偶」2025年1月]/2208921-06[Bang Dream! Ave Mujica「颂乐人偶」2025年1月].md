@@ -7125,3 +7125,65 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 ？看了一圈怎么第一份第四集剧透是在梦想紫看到的</blockquote>
 他都说了，其他贴吧全部问了一遍，全部不让发，其实我希望他发我们lovelive吧的，就是差点距离。
 
+
+*****
+
+####  AnnieLeonhart  
+##### 7999#       发表于 2025-1-14 17:38
+
+同名贴吧第一个贴就是
+
+据说楼主是其他动画证明过的舅舅党
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  一心而用  
+##### 8000#       发表于 2025-1-14 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179880&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-14 17:38</a>
+同名贴吧第一个贴就是
+
+据说楼主是其他动画证明过的舅舅党</blockquote>
+那个楼主发过很久的星团三期动画剧透，我QQ上加了他的。
+
+
+*****
+
+####  akiomn  
+##### 8001#       发表于 2025-1-14 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179513&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-14 16:53</a>
+虽然我不知道你是否能理解，但还是勉为其难地再解释一下。
+
+森美奈美这个角色已经表现出十分甚至九分的不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我告诉你，这片核心主角是祥子。不说睦和初华，哪怕是海玲和喵梦这俩都绕不开祥子。
+你说的睦妈和喵梦，提了那么多次就是不把祥子放进眼里啊，当你提出睦妈喵梦时候，有没有想过祥子参与的可能？我觉得你压根没想过，只想着让喵梦为了睦和睦妈爆了这个结果
+
+*****
+
+####  一心而用  
+##### 8002#       发表于 2025-1-14 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179779&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-14 17:24</a>
+梦想紫是什么
+
+透了什么求反白</blockquote>
+紫吧是个系列，各个企划的各种黑屁龌龊内容都可以发，好听点是百无禁忌，难听点就是粪海狂蛆。
+
+
+*****
+
+####  uhiuk  
+##### 8003#       发表于 2025-1-14 17:46
+
+<blockquote>akiomn 发表于 2025-1-14 17:41
+那我告诉你，这片核心主角是祥子。不说睦和初华，哪怕是海玲和喵梦这俩都绕不开祥子。
+
+你说的睦妈和喵梦 ...</blockquote>
+
+差点忘了，让喵参与这个不仅让睦当垫子祥子也得跟着垫
+
+“你跟睦这么多年半身发现不了问题还得大喵慧眼识人替睦出头是吧”
+
