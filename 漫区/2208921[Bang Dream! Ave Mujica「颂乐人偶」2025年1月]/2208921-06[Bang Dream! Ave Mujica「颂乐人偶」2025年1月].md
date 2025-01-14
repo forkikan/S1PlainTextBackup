@@ -6763,3 +6763,36 @@ animage1月号"BanG Dream！ Ave Mujica"特集
 
 那就得问23年go刚出来的时候有祥厨存在吗？车了一年多车出路径依赖了
 
+
+*****
+
+####  akiomn  
+##### 7969#       发表于 2025-1-14 15:19
+
+至于喵梦，我觉得十三集喵梦那句台词“火刑”很有意思了，喵梦大概率要在后面吃波大憋。想想看前面拆队的素世归队前是什么惨样？第八集名场面飞鸟山，先被祥子打一波暴击，再在第十集被爱音和灯速刷又一波名场面。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以我觉得制作组很清楚自己在干什么，角色做恶事肯定要付出相应的代价的
+
+另外第十三集的台词现在看很可能会对应上
+睦：不被人所爱（黑化。另外指出个点，ed里睦伸手镜框那个画面，镜子另一边的手是扭曲的，完全不是正常的伸手或者握手样）
+祥子：忘却
+喵梦：火刑
+初华：被人抛弃
+
+*****
+
+####  qjw114514  
+##### 7970#       发表于 2025-1-14 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178475&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-14 15:01</a>
+又来贷款喵睦了？
+
+那我说说睦厨的感受</blockquote>
+喵第一集的嘲弄，第二集的咄咄逼人，睦推看了直接血压上升，没有后续悔过的剧情这真是磕不了半点<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 7971#       发表于 2025-1-14 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子那一堆设定要是真全打到5人脸上，我觉得她不应该叫十五年未有大女主，应该叫十五年未有的神婆
+
