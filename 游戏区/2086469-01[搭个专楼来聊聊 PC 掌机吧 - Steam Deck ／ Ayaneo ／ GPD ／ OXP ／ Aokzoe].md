@@ -39,3 +39,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  亦饮阑珊  
+##### 1338#       发表于 2025-1-14 10:23
+
+有没有买过微星掌机的帮忙排排雷。
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
