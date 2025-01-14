@@ -14727,3 +14727,16 @@ pv3啥时候来呢
 
 你高现在还想看年番？还有铁血的新动画怎么感觉进阴间去了，怎么没点消息<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 2705#       发表于 2025-1-14 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179892&amp;ptid=2209276" target="_blank">食物虾 发表于 2025-1-14 17:40</a>
+
+感觉就不太可能是季番吧 现在这么多番都开始半年起步而且gq这也算得上大投入就算不是年番也得半年番起步吧
+
+ ...</blockquote>
+你要注意，原创动画的半年番现在还有多少<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
