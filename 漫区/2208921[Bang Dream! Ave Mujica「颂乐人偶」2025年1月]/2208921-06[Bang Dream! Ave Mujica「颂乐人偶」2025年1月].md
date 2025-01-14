@@ -7578,3 +7578,22 @@ ed版能重复听，反而全曲多听几次就感觉精神疲惫
 求问是啥梗</blockquote>
 [https://www.bilibili.com/video/BV1sP4y167xx](https://www.bilibili.com/video/BV1sP4y167xx)
 
+
+*****
+
+####  kivz  
+##### 8038#       发表于 2025-1-15 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67181100&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-14 20:55</a>
+我能说我现在看到满脑子只有自己这句话，就有点红温吗，鸡的剧情讨论是离不开这句话了吗。
+
+这是少女乐队番 ...</blockquote>
+都等一年了，烂吵该无视就无视好好享受吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 8039#       发表于 2025-1-15 00:21
+
+野生小画家好多美图，为什么wsd偏偏总是约神奇的那些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
