@@ -557,3 +557,14 @@ steam版汉化后云存档就不能正常使用了，多台机器玩的朋友需
 
 steam看了下这游戏打完折卖80多，真有这么好吗
 
+
+*****
+
+####  abbccc200  
+##### 49#       发表于 2025-1-14 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177221&amp;ptid=2238139" target="_blank">yangkaim4 发表于 2025-1-14 12:15</a>
+
+steam看了下这游戏打完折卖80多，真有这么好吗</blockquote>
+能接受RPGmaker引擎（还是特别古老的VXAce）和通用素材，又喜欢探索地图的话绝对是神作，舔图真的会上瘾。战斗系统倒是一般
+
