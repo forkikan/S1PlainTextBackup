@@ -678,3 +678,14 @@ alt+enter，取消全屏也是。
 
 这游戏有同伴吗，进去转了几张图路上挡路的杂兵都打不过，好像也没补给点
 
+
+*****
+
+####  妄想中毒  
+##### 62#       发表于 2025-1-14 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180339&amp;ptid=2238139" target="_blank">dreamskyy 发表于 2025-1-14 18:50</a>
+
+这游戏有同伴吗，进去转了几张图路上挡路的杂兵都打不过，好像也没补给点 ...</blockquote>
+有啊，第一张图往上走到海盗船就有同伴的尸体可以捡，捡了就能当队友。补给无所谓这游戏遍地回血道具，也就回蓝道具非常稀有一般只能靠元素瓶回
+
