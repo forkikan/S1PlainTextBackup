@@ -6242,3 +6242,38 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 苦一苦小祥 把队友的人气都抬起来 到时候就是一个强大的团队了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 7920#       发表于 2025-1-14 13:08
+
+同样是看一圈我感觉大喵风评超好 现在是努力打工人大喵vs画饼不兑现不沟通谜语人上司祥老师 广大网友似乎是纷纷代入了
+
+
+*****
+
+####  狂热飞鸟  
+##### 7921#       发表于 2025-1-14 13:10
+
+我评价是多上几天班就知道哪种人遇到才最让人痛苦了
+
+*****
+
+####  KLHgg  
+##### 7922#       发表于 2025-1-14 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177494&amp;ptid=2208921" target="_blank">蜇灵 发表于 2025-1-14 12:53</a>
+
+那看来下集大喵风评有救了
+
+就是俺们小祥还得再熬一集</blockquote>
+只会熬一集吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 7923#       发表于 2025-1-14 13:15
+
+只能说第4集祥子都没正向作为，我真的要跑路等完结风评了
+

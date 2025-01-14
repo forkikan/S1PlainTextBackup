@@ -10691,3 +10691,13 @@ F1阿尔法罗密欧车队知道吧
 
 結束這回合
 
+
+*****
+
+####  都谷捻柏  
+##### 16096#       发表于 2025-1-14 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67169195&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-13 17:39</a>
+妈的 钓鱼佬变二宝了 我吐了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你歪的好歹是钓鱼佬，我歪的还是骑士王。
+

@@ -14344,3 +14344,27 @@ GQX被红高达在不开火的情况下制服
 
 其他都好说，30亿是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 2665#       发表于 2025-1-14 13:01
+
+要多少票房能回本<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 2666#       发表于 2025-1-14 13:08
+
+这阵仗真的有打算靠电影回本吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  番茄牛奶  
+##### 2667#       发表于 2025-1-14 13:08
+
+别奶了，还有三天，吹死婊活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
