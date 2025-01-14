@@ -5967,3 +5967,14 @@ twi：zhanzhangzlw
 </blockquote>
 我听人科普说作曲管不了鼓手
 
+
+*****
+
+####  一心而用  
+##### 7893#       发表于 2025-1-14 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176473&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-14 10:47</a>
+
+我听人科普说作曲管不了鼓手</blockquote>
+对，我也看了，鼓手自由度比较高，但也不能完全任意发挥。
+
