@@ -605,3 +605,11 @@ magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
 以前玩的时候记得还是1 ...</blockquote>
 没，要等我翻完<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rebirth_DAN  
+##### 51#       发表于 2025-1-14 19:09
+
+magpie用着玩那些文字adv还是很舒服的但是感觉玩别的游戏延迟还是有些明显的，不知道小黄鸭对比magpie有什么区别
+

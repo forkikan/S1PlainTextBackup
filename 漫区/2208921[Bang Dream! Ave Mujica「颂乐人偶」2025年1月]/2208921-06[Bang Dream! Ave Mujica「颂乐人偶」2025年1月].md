@@ -7310,3 +7310,16 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KLHgg  
+##### 8014#       发表于 2025-1-14 19:05
+
+ 本帖最后由 KLHgg 于 2025-1-14 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180258&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-14 18:39</a>
+
+都不用忽视了 大喵的一切行为辩到最后都会变成祥老师没管好 因为是她用小黄瓜把大喵钓进来的 大喵这样做 ...</blockquote>
+
+汴京是开上帝视角的不能忽视后果，我说的是代入党，代入大喵视角的最佳时机是第二集播出前，那时还有大喵和初华提前勾结摘面具的假药，还是少数，可是现在第二集已经播了，制作组对大喵的行为定性明确，你很难想象现在才大量下场的代入党到底在代入什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

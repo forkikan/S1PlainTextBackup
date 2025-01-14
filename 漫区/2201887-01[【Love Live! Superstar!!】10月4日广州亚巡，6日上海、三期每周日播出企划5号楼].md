@@ -14528,3 +14528,14 @@ tripleS&amp;Liyuu 这联动跳舞有点惊到我了。
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉不太好看 不搭
 
+
+*****
+
+####  starring  
+##### 1417#       发表于 2025-1-14 19:07
+
+投票开始了，选两人
+<img src="https://p.sda1.dev/21/b13ff86e50eb07a7eebee1c9a729e448/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
