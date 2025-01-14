@@ -132,3 +132,21 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 雷锤和时龙还没想到办法修？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aureth  
+##### 18179#       发表于 2025-1-14 16:34
+
+昨天还是日本假期。今天都要下班了还没公告，真坐得住啊。
+不多说了，该去黑卡时龙了，还好金月券纠结了半天还没换<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玛基  
+##### 18180#       发表于 2025-1-14 16:40
+
+龙锤都开始触摸不可以触摸的跨属滑梯了，到底修不修还没个公告准信，新p是会给自己找炎上的(
+

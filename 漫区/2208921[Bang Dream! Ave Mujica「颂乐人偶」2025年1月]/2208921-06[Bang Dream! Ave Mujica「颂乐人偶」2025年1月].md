@@ -6925,3 +6925,24 @@ et tu 初华 还是et tu 木头这下还是两个都有
 
 这部动画的剧本是精于玩这一手的，比如第二话营造的氛围是睦的精神状态会让舞台演出出问题，在第三话就告诉你舞台演出不仅没出问题，反而效果更好了，但是这不仅不意味着睦变好，反而意味着双倍恶化
 
+
+*****
+
+####  akiomn  
+##### 7984#       发表于 2025-1-14 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上我真是懒得吐槽，还在睦妈还在睦妈
+要说多少次，核心主角是祥子，人偶，mujica世界观这些东西可能都和祥妈有关，唯一有资格多写点家长辈只有祥妈甚至祥子家族，哪怕再把祥爹拿出来的可能性都比睦妈要高
+非执着喵梦和睦妈是真没啥可说的
+
+
+*****
+
+####  AnnieLeonhart  
+##### 7985#       发表于 2025-1-14 16:42
+
+奥古斯都的话
+会不会是键帽/木头还我乐队<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
