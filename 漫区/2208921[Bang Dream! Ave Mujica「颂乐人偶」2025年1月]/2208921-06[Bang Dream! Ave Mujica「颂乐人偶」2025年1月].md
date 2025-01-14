@@ -7203,3 +7203,28 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 <img src="https://p.sda1.dev/21/1c207049982f9d334947ab0e2136b10e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/def62443873e19e0709a02d0fa1d87ec/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 8006#       发表于 2025-1-14 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179933&amp;ptid=2208921" target="_blank">uhiuk 发表于 2025-1-14 17:46</a>
+差点忘了，让喵参与这个不仅让睦当垫子祥子也得跟着垫
+
+“你跟睦这么多年半身发现不了问题还得大喵慧眼识 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这个道理。这种东西放到手游里卖卖喵睦还可能，放到动画里简直是做梦
+只有睦，喵梦，睦妈三人，却把核心主角祥子忽视了，祥子要是知道睦妈虐待睦这种事，就祥子护犊子的性格，怕是第一个和睦妈爆了再带着睦直接跑路
+
+*****
+
+####  哈曼的YY  
+##### 8007#       发表于 2025-1-14 18:03
+
+<blockquote>IWS2000 发表于 2025-1-14 17:53
+</blockquote>
+
+怎么样都无法把气鼓鼓的祥老师推出深渊 太痛了
+
+有作者吗
+

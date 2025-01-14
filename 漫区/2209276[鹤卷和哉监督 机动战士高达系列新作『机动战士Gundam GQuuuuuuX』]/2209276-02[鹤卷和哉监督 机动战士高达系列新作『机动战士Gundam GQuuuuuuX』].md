@@ -14651,3 +14651,13 @@ FLCL续作(
 
 实际开始制作我猜比水魔放送完都晚，因为概念设计团队里有好几个人都是水魔刚开始（在高达ip）崭露头角的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  创始’’’天翔  
+##### 2697#       发表于 2025-1-14 18:02
+
+<blockquote>UNINSTALL42 发表于 2025-1-14 14:58
+FLCL续作(</blockquote>
+建议还没开播还是别蹭其他作品宣传了，水星花园还在前头呢(
+
