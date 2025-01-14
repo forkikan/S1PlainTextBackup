@@ -6796,3 +6796,36 @@ animage1月号"BanG Dream！ Ave Mujica"特集
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子那一堆设定要是真全打到5人脸上，我觉得她不应该叫十五年未有大女主，应该叫十五年未有的神婆
 
+
+*****
+
+####  IWS2000  
+##### 7972#       发表于 2025-1-14 15:28
+
+百合楼有4集图透了，不想看的不要点进去<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 7973#       发表于 2025-1-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178535&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-14 15:08</a>
+
+喵梦当前最大问题之一是她不关心队友，这个是事实
+
+她不在意队友会不会有困扰，不会去考虑队友本人意愿如何 ...</blockquote>
+角色配置其实也隐含了一点阶级矛盾在里面，“你们两个何不食肉糜的大小姐，能懂我一个乡下来打工的苦吗”
+
+当然肯定不会往这种尖锐的话题去发展，但不知道会不会提一嘴
+
+
+*****
+
+####  adcdqre  
+##### 7974#       发表于 2025-1-14 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178153&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2025-1-14 14:22</a>
+
+现在骂祥子不都说是祥厨太恶心了吗？不然骂一个纸片人有什么意义，她也不能反馈你然后跳出来打你一下 ...</blockquote>
+这不是黑另一个大X老师用的盾吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
