@@ -5869,3 +5869,49 @@ ep08 那段对话是有比较奇怪的地方的
 看到meme图来的，需要先看完mygo再看这一部么？</blockquote>
 我觉得需要的因为这实质是mygo续集
 
+
+*****
+
+####  一心而用  
+##### 7887#       发表于 2025-1-14 09:40
+
+ 本帖最后由 一心而用 于 2025-1-14 09:44 编辑 
+
+Illustrator: hs
+
+weibo: @兄弟你真的要这样画吗 ​​​
+<img src="https://p.sda1.dev/21/a5ae170065a8bf99e5df2d114f75f5f9/008DeF4Zgy1hxjj9v9qkqj30u012k43r.jpg" referrerpolicy="no-referrer">
+
+Illustrator: Bai
+
+weibo: @白水兑米 / twi: baiyuBYY 
+<img src="https://p.sda1.dev/21/4f60ceb1bd435c5a450061b56c57bb21/008DeF4Zgy1hxjjbxcohqj30u016lafp.jpg" referrerpolicy="no-referrer">
+
+Illustrator: 4/3
+
+weibo: @四分之三怪人re / twi: sigangsan ​​​
+<img src="https://p.sda1.dev/21/efb17b3d39a62bab3794411c533fa73a/008DeF4Zgy1hxjjr9c7jnj30u011iwo4.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KLHgg| + 1||
+
+查看全部评分
+
+*****
+
+####  蜇灵  
+##### 7888#       发表于 2025-1-14 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171190&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-13 23:38</a>
+现场限定的第三集放完后好像第四集预告还是没有
+
+搞不懂藏的那么严实干嘛，非得等正式播出才放。只能怀疑预 ...</blockquote>
+就两天了也要藏？人物pv也在藏，看来是大爆特爆以至于剪不出不爆的预告来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
