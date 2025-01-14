@@ -7252,3 +7252,34 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 不过祥子会多一个乐队话题，还跟喵会讨论鸡团的问题
 
+
+*****
+
+####  KLHgg  
+##### 8010#       发表于 2025-1-14 18:19
+
+ 本帖最后由 KLHgg 于 2025-1-14 18:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177594&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-14 13:08</a>
+
+同样是看一圈我感觉大喵风评超好 现在是努力打工人大喵vs画饼不兑现不沟通谜语人上司祥老师 广大网友似乎是 ...</blockquote>
+第一集刚播完评论区都在刷键帽，没看见几个代入党跳出来护着大喵
+
+第二集喵祥的矛盾暂时搁置，这时冒出大量代入党，忽视大喵的行为直接导致睦的恶化且其他同事工作量增加，是因为第二集证明了大喵反对祥子的自作主张不完全错误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+默默在打工的海铃不共情，试想如果同事睦初华都站出来指责喵梦，键帽还要再刷一周<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 8011#       发表于 2025-1-14 18:20
+
+第四季度的草加233
+
+<img src="https://img.saraba1st.com/forum/202501/14/182018cyd6nt6u10y0t1yt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (249.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 18:20 上传
+
