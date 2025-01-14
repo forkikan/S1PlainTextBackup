@@ -651,3 +651,11 @@ alt+enter，取消全屏也是。
 有没有湿地地图的躲鱼人路线攻略啊。这个潜行解密9个开关，横跨3张大地图，2个传送点，太他妈复杂了 ...</blockquote>
 不踩地上尖刺就行了
 
+
+*****
+
+####  sosgame67  
+##### 59#       发表于 2025-1-14 15:57
+
+升级了血字提示后发现提示老是在boss背后出现（或者是我跑图路线反了），早知道全部扔给商店升级了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

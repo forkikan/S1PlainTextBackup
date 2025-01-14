@@ -1474,3 +1474,13 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 冲刺福袋 四缺三都可以不new 这还是上头小号也抽四缺三福袋的情况，连着两个四缺三不new 你游真不是读box游 ...</blockquote>
 太正常了，我3分2都能不NEW的，绝对是读BOX的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 46957#       发表于 2025-1-14 15:57
+
+抽丑御前还是三条内裤？主要抽雪老师
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

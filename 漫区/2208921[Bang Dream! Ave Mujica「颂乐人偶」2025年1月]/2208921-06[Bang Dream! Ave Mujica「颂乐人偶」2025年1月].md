@@ -6866,3 +6866,27 @@ animage1月号"BanG Dream！ Ave Mujica"特集
 
 直译：“戏已经演完了”，据说是奥古斯都的遗言
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 7978#       发表于 2025-1-14 15:59
+
+我缺的 plaudite 这块谁给我补啊
+
+*****
+
+####  哈曼的YY  
+##### 7979#       发表于 2025-1-14 15:59
+
+？被速通了？
+
+*****
+
+####  友情的结晶  
+##### 7980#       发表于 2025-1-14 16:01
+
+第一批祥厨应该mygo第三集就诞生了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
