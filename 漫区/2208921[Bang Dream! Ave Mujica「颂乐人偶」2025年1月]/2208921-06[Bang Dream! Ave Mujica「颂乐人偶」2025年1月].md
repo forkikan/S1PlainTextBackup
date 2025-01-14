@@ -7597,3 +7597,20 @@ ed版能重复听，反而全曲多听几次就感觉精神疲惫
 
 野生小画家好多美图，为什么wsd偏偏总是约神奇的那些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 8040#       发表于 2025-1-15 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微博上这个睦生贺接力，绝大部分都是睦祥啊
+爽吃了
+
+
+*****
+
+####  bird-lay  
+##### 8041#       发表于 2025-1-15 00:43
+
+想问一下cd带的live抽选中的概率大概多少
+
