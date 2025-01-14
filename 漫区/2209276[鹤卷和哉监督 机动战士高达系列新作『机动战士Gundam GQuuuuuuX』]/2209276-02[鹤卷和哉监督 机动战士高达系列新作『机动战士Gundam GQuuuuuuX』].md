@@ -14624,3 +14624,11 @@ FLCL续作(
 
 季番做怎么多年是不是有点幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 2694#       发表于 2025-1-14 17:18
+
+18年到现在6年做12/13集能保证通篇剧场版的质量吗？
+
