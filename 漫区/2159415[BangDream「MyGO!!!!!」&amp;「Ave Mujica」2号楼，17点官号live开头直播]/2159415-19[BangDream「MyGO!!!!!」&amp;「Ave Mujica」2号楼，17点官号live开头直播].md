@@ -2746,3 +2746,16 @@ Happy birthday レイヤ！  
 五五四二，还不如四张五星卡，这样还能少讨点骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/cd875a318bd4c3866b91d9b883596e92/Image_17583034001970.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26850#       发表于 2025-1-14 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177373&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-14 12:35</a>
+
+小豆泥联动赠送二星——ksm
+
+五五四二，还不如四张五星卡，这样还能少讨点骂</blockquote>
+好难看啊这图（）
+

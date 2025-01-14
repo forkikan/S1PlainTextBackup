@@ -610,3 +610,14 @@ alt+enter，取消全屏也是。
 
 哇浪，楼主功德无量<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 55#       发表于 2025-1-14 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177402&amp;ptid=2238139" target="_blank">前田利家 发表于 2025-1-14 12:39</a>
+
+全屏后被横向拉伸了，如果能多几个自设分辨率就好了，用携带设备玩真的费眼。 ...</blockquote>
+用magpie之类的第三方缩放就好了
+

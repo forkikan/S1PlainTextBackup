@@ -6619,3 +6619,36 @@ go里面都表明了小祥要坏掉了，不过她太坚强和强硬了，虽然
 
 不是在讨论内容，不是在看动画，只是站在固有立场上推卸责任和情感宣泄而已
 
+
+*****
+
+####  琉璃苑軒風  
+##### 7958#       发表于 2025-1-14 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">感谢回复贴条的各位，那我周末去补下mygo先
+
+*****
+
+####  达达葱2  
+##### 7959#       发表于 2025-1-14 14:38
+
+这是第三集截图吧
+
+略惊悚 怕剧透的不要打开
+
+https://p.sda1.dev/21/020ee788ce1990d5fa31e2af8ab8ecef/img-248e017d87b2613009e57db04b5e7eb1.jpg
+
+*****
+
+####  Aendst  
+##### 7960#       发表于 2025-1-14 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178292&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-14 14:38</a>
+
+这是第三集截图吧
+
+略惊悚 怕剧透的不要打开
+
+https://p.sda1.dev/21/020ee788ce1990d5fa31e2af8ab8ecef/img- ...</blockquote>
+是，第三话Bpart接近最后的部分
+
