@@ -201,3 +201,41 @@ Q3%@S@]W3LKG5TK29F[8VUL_tmb.jpg
 
 给爆好像也有问题，能不能再送一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 18187#       发表于 2025-1-14 20:45
+
+针对雷锤和时龙等关联导致伤害过于溢出现象作出调整
+
+1.雷神锤调整：暴击伤害700%仅限普通攻击触发
+
+2.1月17日维护后，全体玩家赠送一张100金月武器兑换券，使用时间：1月22日3:59为止
+
+3.近期维护时，会增加伤害衰减机制
+
+4.针对1月17日维护前在商店中兑换雷锤的玩家，会在后续追加返还机制
+
+具体返还规则：没有上限解放 100金月
+
+上限解放1次 100金月+1黑钢
+
+上限解放2次 100金月+2黑钢
+
+上限解放3次 100金月+3黑钢
+
+4次以及以上会返还所有交换材料
+
+1月17日维护后在商店中兑换雷锤的不在交换范围内，使用金月武器券交换的同样不在范围内
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+6LLJECLT153{@$T$~EUHJGX_tmb.jpg
+(58.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-14 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/14/204450nl71zrh81700o8xh.jpg" referrerpolicy="no-referrer">
+
