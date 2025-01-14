@@ -14187,3 +14187,43 @@ R ...</blockquote>
 
 放弃所有宇宙殖民地和月球，退守地球，直到0085年，应该是这样
 
+
+*****
+
+####  UNINSTALL42  
+##### 2658#       发表于 2025-1-14 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171706&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-14 01:50</a>
+
+画完才发现少写两个u，这下水印了
+
+麻球可爱捏
+
+竹老师人设太可爱色彩太靓了如果真是12集只能做法平稳落地了</blockquote>
+季番的话某种意义上可能更能放心些，毕竟鹤卷就没导过超过六集的片（
+
+而且鹤卷的叙事效率是够强的，FLCL给我感觉像是看了六部剧场版一样
+
+*****
+
+####  UNINSTALL42  
+##### 2659#       发表于 2025-1-14 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176991&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-14 11:47</a>
+
+终战是在所罗门打的，联邦还是成功打上宇宙了
+
+但是在所罗门联邦部队遭受重创，不得已和吉翁停战并签了不 ...</blockquote>
+幻视人狼世界观了（
+
+*****
+
+####  刺客ares  
+##### 2660#       发表于 2025-1-14 11:56
+
+提姆雷回路是玛秋前一个镜头刚从妮娅安手里夺走的
+
+后面妮娅安脸上有伤，可能是因为弄丢这个东西所以被委托人打了
+
+怎么想也不可能就是个手机壳吧
+

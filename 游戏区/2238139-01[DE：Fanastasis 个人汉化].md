@@ -539,3 +539,13 @@ steam版汉化后云存档就不能正常使用了，多台机器玩的朋友需
 
 我才反应过来日版wiki很多地图是旧版的，一些地图还只有文字的简略描述<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  abbccc200  
+##### 47#       发表于 2025-1-14 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177015&amp;ptid=2238139" target="_blank">sosgame67 发表于 2025-1-14 11:51</a>
+ 我才反应过来日版wiki很多地图是旧版的，一些地图还只有文字的简略描述</blockquote>
+那wiki大概也就新版四成内容，有些前期地图都对不上
+
