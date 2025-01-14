@@ -6829,3 +6829,26 @@ animage1月号"BanG Dream！ Ave Mujica"特集
 现在骂祥子不都说是祥厨太恶心了吗？不然骂一个纸片人有什么意义，她也不能反馈你然后跳出来打你一下 ...</blockquote>
 这不是黑另一个大X老师用的盾吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 7975#       发表于 2025-1-14 15:36
+
+ 本帖最后由 桜庭千景 于 2025-1-14 15:38 编辑 
+
+祥厨被霸凌了一年半了还在被人捂嘴先干了，令人感慨
+
+
+*****
+
+####  Aendst  
+##### 7976#       发表于 2025-1-14 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178741&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-14 15:30</a>
+
+角色配置其实也隐含了一点阶级矛盾在里面，“你们两个何不食肉糜的大小姐，能懂我一个乡下来打工的苦吗” ...</blockquote>
+角色设定和矛盾设置都很有意思，台词说不定真的会提一下这个
+
+不过深入肯定是没办法深入了
+

@@ -640,3 +640,14 @@ alt+enter，取消全屏也是。
 理智宝石有没有优先的升级建议？看选项那么多，又觉得没有什么特别重要的 ...</blockquote>
 舔图够细的话随便加无所谓，比较有用的也就逃跑几率和语言学，留些点数学魔法和吸魂术收菜
 
+
+*****
+
+####  lly778  
+##### 58#       发表于 2025-1-14 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177406&amp;ptid=2238139" target="_blank">三度音 发表于 2025-1-14 12:40</a>
+
+有没有湿地地图的躲鱼人路线攻略啊。这个潜行解密9个开关，横跨3张大地图，2个传送点，太他妈复杂了 ...</blockquote>
+不踩地上尖刺就行了
+
