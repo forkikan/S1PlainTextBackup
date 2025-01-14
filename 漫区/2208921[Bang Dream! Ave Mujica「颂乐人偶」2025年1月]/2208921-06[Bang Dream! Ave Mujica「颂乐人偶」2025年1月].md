@@ -7283,3 +7283,30 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 2025-1-14 18:20 上传
 
+
+*****
+
+####  哈曼的YY  
+##### 8012#       发表于 2025-1-14 18:39
+
+<blockquote>KLHgg 发表于 2025-1-14 18:19
+第一集刚播完评论区都在刷键帽，没看见几个代入党跳出来护着大喵
+
+第二集喵祥的矛盾暂时搁置，这时冒出大量 ...</blockquote>
+都不用忽视了 大喵的一切行为辩到最后都会变成祥老师没管好 因为是她用小黄瓜把大喵钓进来的 大喵这样做是让她兑现承诺而已
+
+还有不说清楚摘面具理由和时机什么的 我寻思每次讲大喵也都不当回事
+
+感觉汴京这个真得出个ave mujica入伙合同设定给他们抠了 动画这么急哪会描写这个 只能苦一苦祥老师继续背负队友人生了
+
+*****
+
+####  影伴光生  
+##### 8013#       发表于 2025-1-14 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180145&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-14 18:20</a>
+第四季度的草加233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四季度的草加可就只剩下沙滩守护者了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
