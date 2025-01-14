@@ -7557,3 +7557,24 @@ yysy到上武道馆也就两个月左右的时间，搁一般才刚开始运营�
 
 ed版能重复听，反而全曲多听几次就感觉精神疲惫
 
+
+*****
+
+####  AnnieLeonhart  
+##### 8036#       发表于 2025-1-15 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67182086&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-14 23:46</a>
+
+台词怎么个可怕法？</blockquote>
+有点红楼梦十二金钗判词似的
+
+*****
+
+####  Onelooker  
+##### 8037#       发表于 2025-1-15 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67181340&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-14 21:33</a>
+
+求问是啥梗</blockquote>
+[https://www.bilibili.com/video/BV1sP4y167xx](https://www.bilibili.com/video/BV1sP4y167xx)
+
