@@ -564,3 +564,18 @@ magpie那边有引入新算法Cunny, 和Anime4K各有优劣，
 
 截图截不出放大了的效果。照个相凑合看看吧（
 
+
+*****
+
+####  tatara  
+##### 48#       发表于 2025-1-14 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67179810&amp;ptid=2238299" target="_blank">Viteeee 发表于 2025-1-14 17:28</a>
+
+能展示下效果么？
+
+魔物娘RPG那个鬼窗口锁死640x480不能放大，各种方法都试了完全不行，这个要是好用就买 ...</blockquote>
+<img src="https://s2.loli.net/2025/01/14/HZ623Rpk9KNCyYa.jpg" referrerpolicy="no-referrer">
+
+正好这两天弃了旧档，在重新开荒来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
