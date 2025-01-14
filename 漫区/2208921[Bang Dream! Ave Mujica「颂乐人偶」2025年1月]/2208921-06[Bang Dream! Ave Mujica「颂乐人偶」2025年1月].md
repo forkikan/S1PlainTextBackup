@@ -6315,3 +6315,42 @@ wsd这些卡片立绘也确实漂亮，之前蛋白棒的小睦也被炒到一�
 
 看目前的假药，怎么感觉母鸡卡变荒野大镖客救赎了
 
+
+*****
+
+####  KLHgg  
+##### 7929#       发表于 2025-1-14 13:26
+
+如果祥子第四第五集还吃瘪，应该可以像soyo一样中途被二创转化成搞笑角色，这样就不用熬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 7930#       发表于 2025-1-14 13:28
+
+往好处想 
+再有两集就可以决定要不要等完结再看了 
+痛苦不会长久<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 7931#       发表于 2025-1-14 13:29
+
+祥子不能在0下去了，给我1起来
+
+
+*****
+
+####  Aendst  
+##### 7932#       发表于 2025-1-14 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177708&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-14 13:23</a>
+
+那个海港对决好像是睦内心世界的场景，再吃瘪下去我扛不住这讨论环境了，当初小圆我是一口气看完的没有实时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年更新到第十话之前很多人会直接让圆去死
+
+但即使如此，当时讨论环境也比现在强
+
+其实不看讨论社群就可以了，本来看动画就该以动画内容为主，现在这个环境不适合讨论内容
+
