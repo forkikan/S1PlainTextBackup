@@ -7622,3 +7622,40 @@ ed版能重复听，反而全曲多听几次就感觉精神疲惫
 
 killkiss好像卖挺好
 
+
+*****
+
+####  遠い炎群  
+##### 8043#       发表于 2025-1-15 01:47
+
+朋友说店头有人抱箱买了三百多张......
+
+*****
+
+####  IWS2000  
+##### 8044#       发表于 2025-1-15 01:51
+
+祥睦也别有一番风味
+以下内容需要积分高于 5000 才可浏览
+<img src="https://p.sda1.dev/21/bbebb94954c76c0ddd3f24760b1ba249/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d145ce366e76d91220172b97d26b80b7/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  收纳袋  
+##### 8045#       发表于 2025-1-15 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67182567&amp;ptid=2208921" target="_blank">遠い炎群 发表于 2025-1-15 01:47</a>
+朋友说店头有人抱箱买了三百多张......</blockquote>
+就是这个吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  收纳袋  
+##### 8046#       发表于 2025-1-15 01:56
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
