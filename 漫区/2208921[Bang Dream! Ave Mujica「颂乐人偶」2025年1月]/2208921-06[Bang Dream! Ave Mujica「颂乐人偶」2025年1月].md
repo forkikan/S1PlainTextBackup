@@ -7323,3 +7323,18 @@ ed无论是歌词还是唱法 都已经无敌了<img src="https://static.saraba1
 
 汴京是开上帝视角的不能忽视后果，我说的是代入党，代入大喵视角的最佳时机是第二集播出前，那时还有大喵和初华提前勾结摘面具的假药，还是少数，可是现在第二集已经播了，制作组对大喵的行为定性明确，你很难想象现在才大量下场的代入党到底在代入什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 8015#       发表于 2025-1-14 19:56
+
+后天就有第三集看了
+
+*****
+
+####  灼眼的夏娜酱  
+##### 8016#       发表于 2025-1-14 20:00
+
+初华厨继续蛰伏<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
