@@ -10701,3 +10701,14 @@ F1阿尔法罗密欧车队知道吧
 妈的 钓鱼佬变二宝了 我吐了啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你歪的好歹是钓鱼佬，我歪的还是骑士王。
 
+
+*****
+
+####  qixinno2  
+##### 16097#       发表于 2025-1-14 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177605&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-1-14 13:10</a>
+
+你歪的好歹是钓鱼佬，我歪的还是骑士王。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你以为我没歪过么 我棉被王已经4宝了
+

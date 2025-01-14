@@ -14368,3 +14368,29 @@ GQX被红高达在不开火的情况下制服
 
 别奶了，还有三天，吹死婊活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 2668#       发表于 2025-1-14 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177471&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-14 12:49</a>
+ 猜测的剧场版各场景顺序： 玛秋邂逅走私中的妮娅安，双方因什么原因起了争执 ↓ </blockquote>
+30亿保守了，50亿吧（
+
+*****
+
+####  王留美  
+##### 2669#       发表于 2025-1-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67177281&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-14 12:21</a>
+ 如果不是木马一行干掉大批ACE证明了NT的作战能力，夏利尔就不会从后勤的木星运输船团调到实战NT部队。  V作 ...</blockquote>
+拿到了78的夏亚自己就是NT作战能力的最好证明啊
+
+*****
+
+####  UNINSTALL42  
+##### 2670#       发表于 2025-1-14 13:23
+
+只是TV动画前三四集几集剪一起而已，成本应该比一般动画电影低不少，回本压力没那么大吧
+
