@@ -15443,3 +15443,11 @@ pv3啥时候来呢
 大胆点，426馆直接被隔壁Mujica16馆创死，东宝连夜跑路，后续TV取消，鹤卷gg引咎辞职 ...</blockquote>
 那太难了，母鸡卡只有不到两千万的票房，新高达只有撤档才有可能比母鸡卡低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双菜  
+##### 2778#       发表于 2025-1-15 12:42
+
+新假面骑士都有20亿，新高达再差也不会比新假面骑士差，20亿算底线了
+
