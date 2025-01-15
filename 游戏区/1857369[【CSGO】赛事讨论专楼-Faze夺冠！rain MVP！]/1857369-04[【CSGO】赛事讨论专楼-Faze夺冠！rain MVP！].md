@@ -48,3 +48,11 @@ v➗啥时候能把 hltv 干死啊，一野榜装最懂的，还给森➗扣了�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  TiiTiiLL  
+##### 4677#       发表于 2025-1-15 22:17
+
+之前hltv干都是低位干大的，虽然大，但没人关注，像之前卡神偷托子的top，但这次直接在前三上嘴脸了
+

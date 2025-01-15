@@ -16583,3 +16583,24 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 
 牢鸭：走走走
 
+
+*****
+
+####  ykyin09  
+##### 2894#       发表于 2025-1-15 22:16
+
+机器人里的总帅，想起之前池田秀一也在明日方舟里配了个小车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  DARILBALDE  
+##### 2895#       发表于 2025-1-15 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67189380&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-15 21:27</a>
+
+底下的虫子基本上死了，真正的本体是背上的蘑菇。如果蘑菇掉下来，它就不会动了。 ...</blockquote>
+还真是，牢修头上的小机器人真有些派拉斯特的神韵
+<img src="https://media.52poke.com/wiki/8/80/047Parasect.png" referrerpolicy="no-referrer">
+
