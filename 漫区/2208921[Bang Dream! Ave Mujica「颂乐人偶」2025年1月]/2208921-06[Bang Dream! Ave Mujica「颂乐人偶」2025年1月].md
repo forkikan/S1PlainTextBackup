@@ -7990,3 +7990,25 @@ mortis的行为模式还看不太清吧，不好说会对乐队日常有多少�
 
 初华: 此世即吾世,如月满无缺<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 8081#       发表于 2025-1-15 13:46
+
+也许原来的睦就这样被抛弃了，只有mortis了
+祥子说以前的睦爱说话爱笑，说不定她也更认可mortis
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Aendst  
+##### 8082#       发表于 2025-1-15 13:49
+
+mortis是应该会被速刷的，她是睦的一部分，不是一个独立角色
+
+所以大概率睦的问题解决的差不多，mortis就会平缓（不确定怎么解决）
+
+一般来说不会搞什么一个乐队看起来五个人其实有n个人其中俩还能看成同一个人这种设定的，设定太繁杂了
+
