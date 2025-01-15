@@ -15476,3 +15476,27 @@ pv3啥时候来呢
 
 宣发完全不及格，给这么多院线是在闹着玩吗？
 
+
+*****
+
+####  刺客ares  
+##### 2782#       发表于 2025-1-15 12:57
+
+作为参考，Shin Japan Heroes Universe系列票房：
+
+新·新世纪福音战士终102.2亿
+
+新·哥斯拉82.5亿
+
+新·奥特曼44.4亿
+
+新·假面骑士23.2亿
+
+
+*****
+
+####  uponutopia  
+##### 2783#       发表于 2025-1-15 13:05
+
+这么看还挺规律的，基本都是对半砍<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
