@@ -7735,3 +7735,28 @@ killkiss好像卖挺好
 
 看了战吧的初华蜘蛛说感觉有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 8055#       发表于 2025-1-15 08:56
+
+<blockquote>thisisaspider 发表于 2025-1-15 08:23
+看了战吧的初华蜘蛛说感觉有点意思</blockquote>
+什么是蜘蛛说
+
+*****
+
+####  阿兹尔  
+##### 8056#       发表于 2025-1-15 08:57
+
+<img src="https://img.saraba1st.com/forum/202501/15/085521b1sq4mgpp28g98og.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-15-08-55-10-78_149003a2d400f6adb210d7e357a3a646.jpg</strong> (147.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 08:55 上传
+
+以海铃目前的态度来看，mygo12集这里说的只是在复读？这个时候海铃应该没觉得母鸡卡很特殊吧
+
