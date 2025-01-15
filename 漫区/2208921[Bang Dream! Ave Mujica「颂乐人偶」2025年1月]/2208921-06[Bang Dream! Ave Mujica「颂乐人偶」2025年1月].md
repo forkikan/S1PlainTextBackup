@@ -9144,3 +9144,18 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怕难了，不管喵梦随便搞事，鸡团也别说音乐了，到时候喵梦联合黑睦一块把鸡团变成表演团，都不需要到最后几集，只要两三集就够了
 所以不可能的，这种触犯邦邦底层逻辑的行为，哪怕祥子什么都不做，编剧也要让喵梦黑睦这俩吃瘪，但是编剧又不能让祥子什么都不做，所以祥子还得起来救火
 
+
+*****
+
+####  玖羽  
+##### 8171#       发表于 2025-1-16 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190257&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-15 23:56</a>
+
+我觉得也，即使它叫邦邦，然而过程中已经出现了小圆第三话名场面，熊本邢同伟，精神疾病躯体化，这种程度负面的东西已经存在了</blockquote>
+我还是那句话，二次元的心理问题什么时候是靠医生解决的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+睦的精神分裂就跟灯的阿斯伯格一样，症状几乎是照着写的，但是并不会给你盖章确认，要用的时候就有，用完了就没有
+
+黑睦白睦最后必然融合，已经有过很多先例，除非编剧有什么我们想不到的脑洞
+
