@@ -117,3 +117,17 @@ pc1.23
 
 他们根本不在乎日本pc市场，空轨重制虽然是自己做了pc版，结果日版扔给代理商发行。
 
+
+*****
+
+####  卢迪克  
+##### 7413#       发表于 2025-1-15 20:22
+
+ 本帖最后由 卢迪克 于 2025-1-15 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187215&amp;ptid=2160194" target="_blank">Squall25 发表于 2025-1-15 16:17</a>
+
+临时工泄露
+
+—— 来自 鹅球 v3.3.96</blockquote>
+在贴吧看到界轨ns版了，云豹这保密工作不行啊<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

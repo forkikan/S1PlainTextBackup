@@ -8588,3 +8588,12 @@ mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会�
 
 绫奈独角兽去DC闪电侠演回旋镖队长算了
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 8138#       发表于 2025-1-15 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188765&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-15 19:52</a></blockquote>
+我在想如果后续剧情鸡团救赎真的要狗团出大力的话，几个讨论社区会不会诟病喧宾夺主。
+

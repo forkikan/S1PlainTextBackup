@@ -10882,3 +10882,11 @@ F1阿尔法罗密欧车队知道吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没石头 四星常驻等歪了
 
+
+*****
+
+####  angelooo  
+##### 16114#       发表于 2025-1-15 20:15
+
+剧情里某几位龙/蛇因为太强而惨遭ban加成笑死我了
+
