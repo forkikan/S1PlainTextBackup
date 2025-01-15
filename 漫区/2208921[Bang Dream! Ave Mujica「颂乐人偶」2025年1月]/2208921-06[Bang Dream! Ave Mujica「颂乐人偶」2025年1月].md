@@ -8988,3 +8988,28 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 
 特别是“天台半集刷掉爱音”，其实只有两分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零壹贰叁  
+##### 8159#       发表于 2025-1-15 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190109&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-15 23:27</a>
+这不是魔法少女小圆，真的全部拉爆到第十集你指望祥子突然觉醒nt让这四个突然开窍然后归队还是祥子变成圆 ...</blockquote>
+我不太觉得黑化这事那么容易解决，anon本身其实就是比较积极的，因为性格原因灯拆anon的雷比祥子拆睦的雷要简单太多。
+而且第三集莫提斯出来其实是缓和了鸡团状况解决了鸡团困境的，莫老师出来演了一段才使得观众外部给鸡团的压力减轻了，后续在内部矛盾没解决的情况下还是需要莫提斯出来撑场的。
+而且看pv有白睦向镜子扔玩偶的画面，可以看出来其实还是会有人格切换戏码的。
+按鸡团风格我总觉得鸡团“诗超绊”定位的曲子是大家一起堕落的那个类型，不需要事情往好转只要大家认可了彼此的音乐就行了。
+
+*****
+
+####  akiomn  
+##### 8160#       发表于 2025-1-15 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190169&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-15 23:38</a>
+我觉得解决问题不意味着人格要矫正回来
+
+而且如果疯癫的状态是她们的本真，为何要刻意纠正呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点恐怖了，5个本真全是疯癫，到时候和前辈团混活装乖乖仔，一到鸡的箱活变成群魔乱舞
+这是健全的邦邦世界观，不是隔壁的月计片场啊
+
