@@ -16199,3 +16199,13 @@ nga已经有人发过了（
 
 我是觉得gqx配色太乱了，其它都还行，把红蓝色面积再缩小一半应该会好一些
 
+
+*****
+
+####  虛無迴廊  
+##### 2857#       发表于 2025-1-15 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187639&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-15 17:11</a>
+https://x.com/_take_oekaki/status/1879453865822896418</blockquote>
+这样看除了黑皮之外喵安真是经典黑长直美少女系人设
+
