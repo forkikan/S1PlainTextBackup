@@ -16394,3 +16394,40 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 
 <img src="https://p.sda1.dev/21/c73132d1e77a289efb458f70dce3cb42/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2878#       发表于 2025-1-15 19:48
+
+这么一想不对啊，gqx不会是pv2里那个穿着黄色驾驶服的男的开的吧，后续才被玛秋给抢了？那个黄色驾驶服还很像79nt研究所驾驶服的升级版，那个镜头还有全周天驾驶舱……
+
+*****
+
+####  Gysumitka  
+##### 2879#       发表于 2025-1-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188745&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-15 19:48</a>
+这么一想不对啊，gqx不会是pv2里那个穿着黄色驾驶服的男的开的吧，后续才被玛秋给抢了？那个黄色驾驶服还很 ...</blockquote>
+座椅不一样
+
+*****
+
+####  刺客ares  
+##### 2880#       发表于 2025-1-15 19:52
+
+ 本帖最后由 刺客ares 于 2025-1-15 19:54 编辑 
+<blockquote>Gysumitka 发表于 2025-1-15 19:50
+座椅不一样</blockquote>
+有没有可能玛秋驾驶服镜头的座椅不是gqx的
+
+不然很难想象最新锐ms连全周天都没有（
+
+
+*****
+
+####  卑弥呼yamato  
+##### 2881#       发表于 2025-1-15 19:53
+
+经典抢夺机体
+
