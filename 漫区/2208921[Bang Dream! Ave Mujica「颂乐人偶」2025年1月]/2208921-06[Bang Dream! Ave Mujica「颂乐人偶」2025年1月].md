@@ -8789,3 +8789,29 @@ https://www.zhihu.com/question/9664526622/answer/79995458253</blockquote>
 </blockquote>
 回到犯罪现场的凶手.jpg
 
+
+*****
+
+####  御幸一也  
+##### 8146#       发表于 2025-1-15 21:58
+
+發售日池袋的animate gamers 塔店全部売り切れ買不到，網店也在斷貨，真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
+只能默默去煤爐收小卡片了
+
+<img src="https://img.saraba1st.com/forum/202501/15/215630f7bhzbohl8018zo9.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1951 - Amazon - KiLLKiSS【通常盤】 - Ave Mujica - アニメ - ミュ.jpg</strong> (285.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/215646jat1ysa2acyy86y6.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1952 - Ave Mujica 2nd Single「KiLLKiSS」【通常盤】 - bushiroad-.jpg</strong> (180.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 21:56 上传
+
