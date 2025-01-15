@@ -8937,3 +8937,29 @@ How quickly the tide turns
 而且白睦也不是啥正常状态，包融合的。
 甚至大胆奶一点黑白睦到结尾会共存<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 8155#       发表于 2025-1-15 23:24
+
+意想不到，指被仓田真白以贩养夕
+
+*****
+
+####  akiomn  
+##### 8156#       发表于 2025-1-15 23:27
+
+ 本帖最后由 akiomn 于 2025-1-15 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190071&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-1-15 23:20</a>
+
+我倒觉得莫提斯会存在很长一段时间
+
+本身看前作mygo也不是一阶段一阶段解决问题的，而是全部拉爆了之后再一 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是魔法少女小圆，真的全部拉爆到第十集你指望祥子突然觉醒nt让这四个突然开窍然后归队还是祥子变成圆环之理牺牲自己重建mujica？
+
+前作mygo也是一个个解决过去的啊，第五集先在水族馆把爱音的雷拆一部分，春日影后立希先归队，再是天台半集刷掉爱音，爱音和灯再一起刷素世（而且素世之前被祥子先暴击打了一波）
+
+mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人，猫猫更是神秘想走就走想回来就回来
+
