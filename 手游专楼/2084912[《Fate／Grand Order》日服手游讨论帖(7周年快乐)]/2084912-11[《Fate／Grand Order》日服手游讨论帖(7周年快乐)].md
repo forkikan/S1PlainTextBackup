@@ -10784,3 +10784,27 @@ F1阿尔法罗密欧车队知道吧
 
 看了卡面和技能解包，这4星和5星怎么想都是标反了
 
+
+*****
+
+####  Jamaisvu  
+##### 16105#       发表于 2025-1-15 18:32
+
+这位NPC御姐挺好看的，可能是什么白蛇类的从者？希望有二池：
+
+<img src="https://img.saraba1st.com/forum/202501/15/183239nkm8k22wbm2vt0m9.jpg" referrerpolicy="no-referrer">
+
+<strong>54F745E766B8E41D649BDC10AFE25BE2.jpg</strong> (147.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-15 18:32 上传
+
+*****
+
+####  qixinno2  
+##### 16106#       发表于 2025-1-15 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便 反正没石头
+

@@ -8476,3 +8476,21 @@ mujica写成大祥传都难，何况大睦传<img src="https://static.saraba1st.
 
 mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会共存的，最好结局是融合，差结局可能就直接成睦成长都养分了。
 
+
+*****
+
+####  嵇翱u  
+##### 8126#       发表于 2025-1-15 18:30
+
+说到底速刷和不速刷都行，主要看给的理由充分不充分，退场能不能令人信服。
+
+
+*****
+
+####  半年  
+##### 8127#       发表于 2025-1-15 18:33
+
+<img src="https://p.sda1.dev/21/1c38da7f2b6fde617a7dd74949edd427/GhUefIrbYAAObr3.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sigangsan/status/1879441949482193131/photo/1](https://x.com/sigangsan/status/1879441949482193131/photo/1)
+
