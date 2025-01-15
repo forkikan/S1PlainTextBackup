@@ -607,3 +607,14 @@ http://t.cn/A6uTjbEE
 
 好似还没有确定有实体中文版
 
+
+*****
+
+####  ds2324ds2  
+##### 59#         楼主| 发表于 2025-1-15 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186705&amp;ptid=2200882" target="_blank">bill910 发表于 2025-1-15 15:18</a>
+
+【跨越30载的期待，经典再现[送花花]】云豹娱乐今日正式宣布，诞生于1992年的奇幻RPG经典《LUNAR Silver St ...</blockquote>
+横山智佐那个时候的声音很好听
+

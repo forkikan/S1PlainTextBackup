@@ -15650,3 +15650,76 @@ pv3啥时候来呢
 
 高达的末日又又又要奖励了！<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 2800#       发表于 2025-1-15 15:26
+
+姨姥一蹶不振，高达彻底沦为底边的时代要到来惹<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Wondering  
+##### 2801#       发表于 2025-1-15 15:26
+
+庵野在新奥后已经把他的号召力彻底败光了吧，真以为还有啥号召力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 2802#       发表于 2025-1-15 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186707&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-15 15:19</a>
+
+庵野+UC 的招牌也不行了吗？还以为痞子这次能自假面之后，重振雄风呢</blockquote>
+这次是鹤卷占主导地位的片子，庵野秀明占比没那么大吧
+
+
+*****
+
+####  PascalLefèvre  
+##### 2803#       发表于 2025-1-15 15:31
+
+庵野gg藏的这么深就是怕你们这些姨姥拐新系列然后开始滑坡，结果还是没作用<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王留美  
+##### 2804#       发表于 2025-1-15 15:31
+
+这次我觉得可以参考新奥，樋口/鹤卷主导的
+
+*****
+
+####  刺客ares  
+##### 2805#       发表于 2025-1-15 15:31
+
+庵野已经变成减分项了，这不山下特意出来把庵野往外摘呢
+
+这次搞完估计Khara和鹤卷也要变减分项了，被福田对位处刑
+
+*****
+
+####  UNINSTALL42  
+##### 2806#       发表于 2025-1-15 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186640&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-1-15 15:10</a>
+
+做个参考吧，新假面骑士制作成本20亿，票房20亿，票房目标60亿，期望100亿，直接亏到姥姥家里去了</blockquote>
+相比正经动画电影应该够少了吧，毕竟从公布到上映才都一个月多一点儿
+
+*****
+
+####  Aaa炒面面包批发  
+##### 2807#       发表于 2025-1-15 15:35
+
+这个宣发什么都不肯透，本体世界观都没多少，吸引眼球的都是UC彩蛋要素然而这些彩蛋都还没得到确认，不安发作<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
