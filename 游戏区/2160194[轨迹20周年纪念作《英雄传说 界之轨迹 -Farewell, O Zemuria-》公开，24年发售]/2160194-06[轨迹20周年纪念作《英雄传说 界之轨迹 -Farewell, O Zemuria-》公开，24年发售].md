@@ -131,3 +131,13 @@ pc1.23
 —— 来自 鹅球 v3.3.96</blockquote>
 在贴吧看到界轨ns版了，云豹这保密工作不行啊<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7414#       发表于 2025-1-15 20:38
+
+ 本帖最后由 卢迪克 于 2025-1-15 20:39 编辑 
+
+这样就是法社今年 树海ns 界轨ns 伊苏皇家版  空轨重制。ns作品共四作 ps5作品两作 pc作品一作<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+

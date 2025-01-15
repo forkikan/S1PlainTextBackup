@@ -8607,3 +8607,21 @@ mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会�
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  IWS2000  
+##### 8140#       发表于 2025-1-15 20:40
+
+<img src="https://p.sda1.dev/21/b0cb8c0689b78a731d797c284a8f6e50/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭千景  
+##### 8141#       发表于 2025-1-15 20:45
+
+当初华粉丝们想尽办法辟谣初华不是幕后黑手时
+
+李子belike：
+
