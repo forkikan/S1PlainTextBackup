@@ -834,3 +834,43 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 再有问题也是星的问题怪不到马一龙
 
+
+*****
+
+####  commcody  
+##### 61#         楼主| 发表于 2025-1-15 15:59
+
+尽管发射时间天气可能不是很理想，但SpaceX目前仍然确定在北京时间1月16日早6点发射。
+
+<img src="https://img.saraba1st.com/forum/202501/15/155819vm2l8iyau1lql2ov.jpg" referrerpolicy="no-referrer">
+
+<strong>GhSTqlQakAAq6G8.jpg</strong> (418.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/155819ivva2x9bvp2v3leb.jpg" referrerpolicy="no-referrer">
+
+<strong>GhSTpkXa0AAOTCX.jpg</strong> (328.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/155819mxlisz4iwfka44yh.jpg" referrerpolicy="no-referrer">
+
+<strong>GhSTpkXakAAi_yX.jpg</strong> (391.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/155819gpb2wmq5bvbj7pb0.jpg" referrerpolicy="no-referrer">
+
+<strong>GhSToJLbcAAzJvd.jpg</strong> (493.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 15:58 上传
+
