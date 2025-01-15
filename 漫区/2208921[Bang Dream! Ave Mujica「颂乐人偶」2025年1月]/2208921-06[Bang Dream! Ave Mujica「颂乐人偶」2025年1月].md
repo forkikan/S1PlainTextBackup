@@ -8771,3 +8771,21 @@ mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会�
 https://www.zhihu.com/question/9664526622/answer/79995458253</blockquote>
 战帅，何时来的？
 
+
+*****
+
+####  ytttsuuuba  
+##### 8144#       发表于 2025-1-15 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188765&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-15 19:52</a></blockquote>
+但凡把祥母那张的截全就露馅了，日语用的词完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 8145#       发表于 2025-1-15 21:45
+
+<blockquote>IWS2000 发表于 2025-1-15 20:40
+</blockquote>
+回到犯罪现场的凶手.jpg
+

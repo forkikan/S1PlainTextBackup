@@ -16571,3 +16571,15 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 底下的虫子基本上死了，真正的本体是背上的蘑菇。如果蘑菇掉下来，它就不会动了。 ...</blockquote>
 冬修夏鸭<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2893#       发表于 2025-1-15 21:44
+
+<blockquote>虛無迴廊 发表于 2025-1-15 21:19
+会有鸭子夺舍牢修行动的情节吗，nt之力，很神奇吧</blockquote>
+鸭子看到nt小女孩指使牢修上前搭讪，走近发现对方竟是哈曼
+
+牢鸭：走走走
+
