@@ -821,3 +821,16 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 月球探测器发射是成功还是失败?
 
+
+*****
+
+####  2017.05.04  
+##### 60#       发表于 2025-1-15 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186835&amp;ptid=2210117" target="_blank">瓦格雷 发表于 2025-1-15 15:33</a>
+
+月球探测器发射是成功还是失败?</blockquote>
+星箭分离了，发射成功
+
+再有问题也是星的问题怪不到马一龙
+

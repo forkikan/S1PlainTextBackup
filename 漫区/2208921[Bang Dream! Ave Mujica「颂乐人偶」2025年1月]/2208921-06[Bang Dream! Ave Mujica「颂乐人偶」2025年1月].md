@@ -8235,3 +8235,11 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2238307
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  杂灰  
+##### 8102#       发表于 2025-1-15 15:51
+
+莫提斯这个形象出来后已经不可能彻底下线了，已经是睦人设和卖点的一部分了，而且本身就是过往所有因结出来的果，融合不太可能，以某种形式被接受以后可以在某些场合允许出场的概率更大。有莫提斯这一面睦和其他人互动也有更多花样
+

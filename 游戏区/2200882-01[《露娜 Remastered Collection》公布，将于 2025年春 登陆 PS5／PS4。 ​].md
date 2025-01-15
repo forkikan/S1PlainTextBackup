@@ -626,3 +626,22 @@ http://t.cn/A6uTjbEE
 
 这下不得不给当年盗版还债了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ds2324ds2  
+##### 61#         楼主| 发表于 2025-1-15 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186705&amp;ptid=2200882" target="_blank">bill910 发表于 2025-1-15 15:18</a>
+
+【跨越30载的期待，经典再现[送花花]】云豹娱乐今日正式宣布，诞生于1992年的奇幻RPG经典《LUNAR Silver St ...</blockquote>
+看着描述感觉也不是模拟器加壳，希望能弄得顺手点。
+
+
+*****
+
+####  北一硝子  
+##### 62#       发表于 2025-1-15 15:52
+
+还是微波炉加热时的复刻啊，不过还是会买就是了，读书时代的白月光。我的第一个GBA游戏就是露娜
+
