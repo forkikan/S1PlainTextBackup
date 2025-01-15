@@ -15606,3 +15606,32 @@ pv3啥时候来呢
 
 还有院线成本，宣发成本，周边成本
 
+
+*****
+
+####  UNINSTALL42  
+##### 2795#       发表于 2025-1-15 15:04
+
+那些也不至于比制作贵罢，而且刚才不都在吐槽没啥宣发（
+
+*****
+
+####  Wondering  
+##### 2796#       发表于 2025-1-15 15:04
+
+ 本帖最后由 Wondering 于 2025-1-15 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186535&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-1-15 14:57</a>
+
+不过说回来啊，这三四集TV的成本有五亿的十分之一吗</blockquote>
+哪有只看制作成本的，普通的好莱坞高成本电影宣发和制作成本比例都是2比1了，这还是制作成本已经极高的情况下，这种动画先行在馆数多和放映周期比较长的情况下再加上特典或周边商法，比例达到5比1以上都很正常
+
+*****
+
+####  Wondering  
+##### 2797#       发表于 2025-1-15 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186598&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-1-15 15:04</a>
+
+那些也不至于比制作贵罢，而且刚才不都在吐槽没啥宣发（</blockquote>
+做个参考吧，新假面骑士制作成本20亿，票房20亿，票房目标60亿，直接亏到姥姥家里去了
+
