@@ -8597,3 +8597,13 @@ mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188765&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-15 19:52</a></blockquote>
 我在想如果后续剧情鸡团救赎真的要狗团出大力的话，几个讨论社区会不会诟病喧宾夺主。
 
+
+*****
+
+####  NaAgfykp  
+##### 8139#       发表于 2025-1-15 20:31
+
+感觉会直接喷烂而不会说喧宾夺主
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
