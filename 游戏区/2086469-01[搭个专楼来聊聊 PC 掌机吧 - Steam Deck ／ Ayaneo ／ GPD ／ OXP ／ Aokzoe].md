@@ -62,3 +62,21 @@
 论坛助手,iPhone</blockquote>
 这才几天又狂跌 300 了  <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sue  
+##### 1340#       发表于 2025-1-15 10:14
+
+纠结了半个月入手了winmini2024，32+2T，结果刚买了不到一个星期370版就来了
+
+不过有一说一，winmini实机真的很惊喜，小巧得来性能也完全符合我的需求，可以理解为啥有人说他是赛博文玩了，每天就算不打游戏也要拿出来盘一盘
+
+<img src="https://img.saraba1st.com/forum/202501/15/101358pecntebvbhzz2oeb.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250115093450.jpg</strong> (167.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 10:13 上传
+
