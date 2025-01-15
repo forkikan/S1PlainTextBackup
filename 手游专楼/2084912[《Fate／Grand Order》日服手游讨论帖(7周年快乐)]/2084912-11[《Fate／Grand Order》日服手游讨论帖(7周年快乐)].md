@@ -10808,3 +10808,49 @@ F1阿尔法罗密欧车队知道吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便 反正没石头
 
+
+*****
+
+####  quanlix  
+##### 16107#       发表于 2025-1-15 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188264&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-1-15 18:32</a>
+
+这位NPC御姐挺好看的，可能是什么白蛇类的从者？希望有二池：</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/15/185115vbododi0md0ol0im.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250115185024.jpg</strong> (72.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 18:51 上传
+
+看着像事件簿里这位，无支祁
+
+*****
+
+####  シャル  
+##### 16108#       发表于 2025-1-15 18:53
+
+30连一个黑姬+2个四星
+
+礼装全了，五星礼装不错
+
+
+*****
+
+####  Jamaisvu  
+##### 16109#       发表于 2025-1-15 18:55
+
+<blockquote>quanlix 发表于 2025-1-15 18:52
+看着像事件簿里这位，无支祁</blockquote>
+耳环和左额的刘海不太像，而且我怀疑坂本能不能画这么好233
+
+*****
+
+####  qixinno2  
+##### 16110#       发表于 2025-1-15 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用了下剧情助战的 这五星太幽默了 还是个单体
+
