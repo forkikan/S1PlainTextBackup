@@ -10931,3 +10931,21 @@ F1阿尔法罗密欧车队知道吧
 
 弄了个掉落按宝具色加成，然后仔细一看有活动加成的角色绿宝具的除了毕修内就一个r姐
 
+
+*****
+
+####  khxooo  
+##### 16119#       发表于 2025-1-16 01:04
+
+10连武尊来了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16120#       发表于 2025-1-16 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190518&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-1-16 01:04</a>
+
+10连武尊来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来今年你最狗了 已经三个NEW了
+
