@@ -70,3 +70,20 @@ pc1.23
 
 这不是比25号发布会还早了？
 
+
+*****
+
+####  Squall25  
+##### 7408#       发表于 2025-1-15 16:17
+
+临时工泄露<img src="https://p.sda1.dev/21/5951258ada4155372ace822f15b41ba3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 7409#       发表于 2025-1-15 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">希望是真的  rb再见了
+
