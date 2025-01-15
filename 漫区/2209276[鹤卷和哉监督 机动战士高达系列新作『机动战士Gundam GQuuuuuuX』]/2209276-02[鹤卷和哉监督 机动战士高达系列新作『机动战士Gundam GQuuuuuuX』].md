@@ -16232,3 +16232,41 @@ https://x.com/_take_oekaki/status/1879453865822896418</blockquote>
 
 黑长直标签其实有个隐藏标准是白（黄）皮，在东亚文化圈这是个不需要强调的默认模板，从角色设计来说黑皮很少配深色头发，如果要配深色头发衣服一般也会设定成白色或者浅色，比如露璃娜。夸克斯这女二从视觉设计上就很路人，黑皮黑发还要配深色衣服，土到爆
 
+
+*****
+
+####  YU_JI  
+##### 2861#       发表于 2025-1-15 19:00
+
+说起来黑拳胜负条件是爆头的话，总觉得GQX面甲下面藏着什么东西，设计看上去太像想遮住什么东西了，和升重高达设计稿的头部结构主要区别也在那个面罩上，虽然不觉得会搞出高达咧嘴这种操作，但是总感觉还是会做文章的，我猜正片肯定有爆面甲战损的桥段（
+
+*****
+
+####  岸波白野  
+##### 2862#       发表于 2025-1-15 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187978&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-15 17:53</a>
+
+我反正总觉得榎户洋司才是这张staff表里最不稳定的变量（）</blockquote>
+除了鹤卷那俩都挺神鬼二象性拉满的，榎户上一部原创系构还是地球队长儿吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 2863#       发表于 2025-1-15 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188136&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-15 18:09</a>
+这么说来是不是流行起了黑（蓝）粉（红）配？ 女警和蔚并感
+（因为好像在干危险的工作总有种微微的反骨感 ...</blockquote>
+难民身份和走私商两条线路的运用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 2864#       发表于 2025-1-15 19:06
+
+<blockquote>岸波白野 发表于 2025-1-15 19:03
+除了鹤卷那俩都挺神鬼二象性拉满的，榎户上一部原创系构还是地球队长儿吧 ...</blockquote>
+痞子这次台上台下都单独给他摘出去了，也就一部分天天盯着庵野秀明薅的人在那叫痞子高达，反而让人安心一点，反倒是榎户洋司这头实在是没法让人放心
+

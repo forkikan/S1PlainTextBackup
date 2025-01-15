@@ -87,3 +87,11 @@ pc1.23
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">希望是真的  rb再见了
 
+
+*****
+
+####  aimujie  
+##### 7410#       发表于 2025-1-15 19:02
+
+看法老控推特发sbeam版的李鬼2日文版2月15日发售还以为我穿越了，查了下现在的版本还真没日语
+

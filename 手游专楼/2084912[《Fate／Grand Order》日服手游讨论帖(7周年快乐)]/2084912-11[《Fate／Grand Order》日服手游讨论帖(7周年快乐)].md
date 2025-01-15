@@ -10854,3 +10854,23 @@ F1阿尔法罗密欧车队知道吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用了下剧情助战的 这五星太幽默了 还是个单体
 
+
+*****
+
+####  シャル  
+##### 16111#       发表于 2025-1-15 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188403&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-1-15 18:55</a>
+
+耳环和左额的刘海不太像，而且我怀疑坂本能不能画这么好233</blockquote>
+那位是猴子
+
+坑定不是
+
+*****
+
+####  シャル  
+##### 16112#       发表于 2025-1-15 19:01
+
+黑姬的黑长直眼镜水手服日本刀属性真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
