@@ -15309,3 +15309,67 @@ pv3啥时候来呢
 
 盲猜一个第二周开始限定胶
 
+
+*****
+
+####  番茄牛奶  
+##### 2763#       发表于 2025-1-15 11:46
+
+通贩先多几个，再整什么限定吧，这塑料小垃圾真有什么吸引力吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 2764#       发表于 2025-1-15 11:47
+
+ 本帖最后由 RE㐅ia 于 2025-1-15 11:51 编辑 
+
+什么情况？这就褒姒了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 有没有同一天的miku发来康康做下对比
+
+*****
+
+####  王留美  
+##### 2765#       发表于 2025-1-15 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67184747&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-15 11:46</a>
+
+通贩先多几个，再整什么限定吧，这塑料小垃圾真有什么吸引力吗</blockquote>
+谁知道呢
+
+就像谁知道事前看来毫无诚意的彩透版HGCE命运SP2怎么就突然火了一样
+
+*****
+
+####  刺客ares  
+##### 2766#       发表于 2025-1-15 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67184757&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-15 11:47</a>
+
+什么情况？这就褒姒了吗？Orz</blockquote>
+目前来看能过多安岛的11亿就是胜利
+
+
+*****
+
+####  PascalLefèvre  
+##### 2767#       发表于 2025-1-15 11:53
+
+昨天不是还剑指100e吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 2768#       发表于 2025-1-15 11:53
+
+仔细看了下，这些限定周边不是直接买，而是需要通过一款靠app控制的抓娃娃机来获得，抓到之后再送到家庭地址
+
+*****
+
+####  RE㐅ia  
+##### 2769#       发表于 2025-1-15 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67184826&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-15 11:53</a>
+
+昨天不是还剑指100e吗</blockquote>
+抹个零头无伤大雅
+
