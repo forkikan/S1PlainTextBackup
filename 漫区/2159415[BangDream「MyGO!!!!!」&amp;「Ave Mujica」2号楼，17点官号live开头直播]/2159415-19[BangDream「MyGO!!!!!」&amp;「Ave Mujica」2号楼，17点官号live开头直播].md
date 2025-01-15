@@ -2767,3 +2767,13 @@ Happy birthday レイヤ！  
 
 花冠这期的分数线会是老团最高的一期吗
 
+
+*****
+
+####  CyDiablo  
+##### 26852#       发表于 2025-1-15 19:12
+
+十周年展倒计时——ras
+唉不仲，希望周末live顺利<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b6b90bd9a2e0aad0e81adb24627c035a/IMG_20250115_191101.jpg" referrerpolicy="no-referrer">
+

@@ -16270,3 +16270,21 @@ https://x.com/_take_oekaki/status/1879453865822896418</blockquote>
 除了鹤卷那俩都挺神鬼二象性拉满的，榎户上一部原创系构还是地球队长儿吧 ...</blockquote>
 痞子这次台上台下都单独给他摘出去了，也就一部分天天盯着庵野秀明薅的人在那叫痞子高达，反而让人安心一点，反倒是榎户洋司这头实在是没法让人放心
 
+
+*****
+
+####  刺客ares  
+##### 2865#       发表于 2025-1-15 19:09
+
+<img src="https://img.saraba1st.com/forum/202501/15/190720ivv608kf0rrf6vod.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9571.jpeg</strong> (348.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 19:07 上传
+
+妮娅安剧中第二套衣服也是深色的（
+
+好像只有在桥下跟牢修说话的时候把外套脱掉了，其余时候都是一身黑衣
+

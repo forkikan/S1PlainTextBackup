@@ -8531,3 +8531,13 @@ mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会�
 
 参考mygo的路线，mujica后面大概也不会彻底修正角色缺陷，成为真正的共犯吧
 
+
+*****
+
+####  pokemon最爱  
+##### 8131#       发表于 2025-1-15 19:08
+
+没有情趣内衣面具的母鸡卡是没有灵魂的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以我觉得也许不一定要包饺子，全员被逼疯后选择再次带上面具短暂的取回自我也是一种结局方式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
