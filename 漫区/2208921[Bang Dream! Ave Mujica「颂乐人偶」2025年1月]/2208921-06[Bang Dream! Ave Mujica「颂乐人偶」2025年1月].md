@@ -8902,3 +8902,38 @@ How quickly the tide turns
 
 2025-1-15 23:02 上传
 
+
+*****
+
+####  akiomn  
+##### 8152#       发表于 2025-1-15 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天先看第四集预告
+广播里说第四集最后是意想不到的结尾，第五集开头是更多的麻烦
+想了下意想不到也许是退队，但退队太俗了，不知道是什么活
+
+*****
+
+####  新HGCG  
+##### 8153#       发表于 2025-1-15 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190063&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-15 23:18</a>
+
+明天先看第四集预告
+
+广播里说第四集最后是意想不到的结尾，第五集开头是更多的麻烦
+
+想了下意想不到也许是退 ...</blockquote>
+会不会是睦疯子不服祥子管教把祥子和她爹的事捅给媒体了
+
+*****
+
+####  零壹贰叁  
+##### 8154#       发表于 2025-1-15 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒觉得莫提斯会存在很长一段时间
+本身看前作mygo也不是一阶段一阶段解决问题的，而是全部拉爆了之后再一起解决
+而且黑化酝酿铺垫了两集，黑化人格就存在几集那也太浪费了
+而且白睦也不是啥正常状态，包融合的。
+甚至大胆奶一点黑白睦到结尾会共存<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

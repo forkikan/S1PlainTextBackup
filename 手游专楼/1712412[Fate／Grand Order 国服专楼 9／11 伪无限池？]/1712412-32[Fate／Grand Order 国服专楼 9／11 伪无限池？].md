@@ -1517,3 +1517,16 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 丑鱼钱这卡面也实在太丑了
 
+
+*****
+
+####  marxel  
+##### 46961#       发表于 2025-1-15 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180086&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-1-14 18:10</a>
+
+日服由井正雪和谁一起复刻来着？现在这俩都毒
+
+考虑到四星无保底，立刻上班得开被动2最好2宝，最好还是暂时 ...</blockquote>
+目前没复刻吧
+
