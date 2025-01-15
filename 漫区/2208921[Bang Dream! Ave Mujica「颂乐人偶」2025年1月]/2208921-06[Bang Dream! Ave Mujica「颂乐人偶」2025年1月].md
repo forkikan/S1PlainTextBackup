@@ -8823,3 +8823,82 @@ https://www.zhihu.com/question/9664526622/answer/79995458253</blockquote>
 
 武士道网店的限定盘挺早就卖完了吧，一单、翻唱和元素的限定倒是还有得卖
 
+
+*****
+
+####  玖羽  
+##### 8148#       发表于 2025-1-15 22:54
+
+【ave mujica X 暗黑地牢】我们的乐队没落了
+[https://www.bilibili.com/video/BV12RcbeQEFz/](https://www.bilibili.com/video/BV12RcbeQEFz/)
+
+<img src="https://img.saraba1st.com/forum/202501/15/225344e3xqpc3mcp0cqkp7.jpg" referrerpolicy="no-referrer">
+
+<strong>57883fd5b32237307c99c940e08760963101133.jpg</strong> (111.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/225345jvo02mlfma63ah84.jpg" referrerpolicy="no-referrer">
+
+<strong>a01861269567d30713f1ae0d323e05f73101133.jpg</strong> (122.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/225345nxo79j30olg3jhwh.jpg" referrerpolicy="no-referrer">
+
+<strong>f87c94d075c31fc8e9fdb3e218f6f26c3101133.jpg</strong> (97.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/225345az7oszi7l4xez4ex.jpg" referrerpolicy="no-referrer">
+
+<strong>535277f8cc95d2c18220403f7bac30953101133.jpg</strong> (96.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/15/225345v7ppgeakkc16386z.jpg" referrerpolicy="no-referrer">
+
+<strong>d1bc41bbaf0f7c9e9e0db15c1e0e06663101133.jpg</strong> (102.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 22:53 上传
+
+*****
+
+####  阿卵真是牛逼  
+##### 8149#       发表于 2025-1-15 22:58
+
+How quickly the tide turns
+
+
+*****
+
+####  凉良  
+##### 8150#       发表于 2025-1-15 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">明天这时候估计已经是祥/满天飞了  不知道下周能逆转不
+
+*****
+
+####  新HGCG  
+##### 8151#       发表于 2025-1-15 23:02
+
+星期四到了，今晚就有母鸡卡第三集看了，小朋友们开心不开心啊
+
+<img src="https://img.saraba1st.com/forum/202501/15/230227mdgclrzgno9tseob.gif" referrerpolicy="no-referrer">
+
+<strong>猫猫12345.GIF</strong> (1.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 23:02 上传
+
