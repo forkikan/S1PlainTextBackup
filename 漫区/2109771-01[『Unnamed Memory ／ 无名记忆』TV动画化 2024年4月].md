@@ -174,3 +174,36 @@ GhKNmV0bYAAHCL5.jpg
 
 华哥可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 200#       发表于 2025-1-15 17:46
+
+这番战斗部分还是那么难绷，简陋得跟演戏似的，这些反派就好像无头无尾一茬一茬定期刷新似的，看得人内心毫无波动
+
+还得看我们恋爱笨蛋缇娜夏的女追男之旅
+
+委屈可爱捏
+<img src="https://p.sda1.dev/21/371331b7d8076db92fc1616eb2c6e2dd/Screenshot_20250115_170144_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+冒失女可爱捏
+<img src="https://p.sda1.dev/21/c79b0c2b80fb7265fce09717d0eef869/Screenshot_20250115_170449_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ca7ea769e5d72b7b325d676327075297/Screenshot_20250115_170913_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+生气可爱捏
+<img src="https://p.sda1.dev/21/312a8d436ec491a794cd27709f770920/Screenshot_20250115_172147_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+重女可爱捏
+<img src="https://p.sda1.dev/21/c7654f57b6f08f983276070e1b398de4/Screenshot_20250115_172547_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+傲娇可爱捏
+<img src="https://p.sda1.dev/21/7760636581720948ad3bcc2687228da6/Screenshot_20250115_172606_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+吐舌头可爱捏
+<img src="https://p.sda1.dev/21/11e73f21bd782f5409c7fa770dc4fc69/Screenshot_20250115_172758_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+太可爱了呀
+
+这谁顶得住口牙
+

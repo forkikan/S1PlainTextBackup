@@ -16149,3 +16149,29 @@ UC世界观看门槛基础也高，能想到的爆火元素就是用竹的人设
 不是麻球吗？还是麻球的已经发过了？</blockquote>
 12/4 发过一张麻球单人
 
+
+*****
+
+####  RE㐅ia  
+##### 2853#       发表于 2025-1-15 17:50
+
+<blockquote>刺客ares 发表于 2025-1-15 17:26
+快进到《机动战士Gundam GQuuuuuuX不可能翻车，我要吹爆榎户洋司》环节</blockquote>
+nga已经有人发过了（
+
+<img src="https://img.saraba1st.com/forum/202501/15/175026qmeshjesflcsjfl3.png" referrerpolicy="no-referrer">
+
+<strong>B07E9BFF-79E8-4620-B51B-FA6C2E0AEAF7.png</strong> (557.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 17:50 上传
+
+
+*****
+
+####  YU_JI  
+##### 2854#       发表于 2025-1-15 17:53
+
+我反正总觉得榎户洋司才是这张staff表里最不稳定的变量（）
+
