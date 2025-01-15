@@ -9013,3 +9013,66 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点恐怖了，5个本真全是疯癫，到时候和前辈团混活装乖乖仔，一到鸡的箱活变成群魔乱舞
 这是健全的邦邦世界观，不是隔壁的月计片场啊
 
+
+*****
+
+####  akiomn  
+##### 8161#       发表于 2025-1-15 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，先认清一点吧，莫提斯常驻共存，睦就成第一个官方盖章的双重人格了，到时候鸡团真是6人团了
+然后5个全保持op里那种疯癫状态吧，到底要进健全的邦邦手游的，还得和前辈团互动呢。真的5个全是走堕落路线，事情也不好转解决，这动画片就是往be路线走到底了。直面心魔？变成心魔！
+虽然我也想看黑祥黑海玲黑初华，但真的五个人一路走到底全变成黑化状态这mujica动画还能被声优钦定是he包饺子吗？
+
+*****
+
+####  hitori酱  
+##### 8162#       发表于 2025-1-15 23:55
+
+<img src="https://img.saraba1st.com/forum/202501/15/235352b33rbj277vppw2oe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0043.jpeg</strong> (354.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 23:53 上传
+
+独角兽切割之前最后一张关系图，今天想起来鸡团很明显连起来是月亮，意难平啊，失去了好多推理的乐趣。现在的假药好多令人难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/15/235352rrhk0wett2ee1218.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0043.jpeg</strong> (342.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 23:53 上传
+
+*****
+
+####  AnnieLeonhart  
+##### 8163#       发表于 2025-1-15 23:56
+
+我觉得也，即使它叫邦邦，然而过程中已经出现了小圆第三话名场面，熊本邢同伟，精神疾病躯体化，这种程度负面的东西已经存在了
+
+那最后无论如何包寿司也不可能是以前那种寿司了
+
+
+*****
+
+####  零壹贰叁  
+##### 8164#       发表于 2025-1-16 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190251&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-15 23:55</a>
+
+不是，先认清一点吧，莫提斯常驻共存，睦就成第一个官方盖章的双重人格了，到时候鸡团真是6人团了
+
+然后5个 ...</blockquote>
+就算是双重人格肯定也是节约宝一人二役啊
+
+怎么可能现实中变成6人团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且说不定大家一起颠完就变爽朗了呢，发癫也不会朝真见血去啊，怎么会担心进手游不好互动
+
+开播前大家看木子咪OP颜艺以为会咋样呢，结果大莫老师一出来不是还是帮着演戏
+
+颠也是往女女关系性去颠啊
+
