@@ -15952,3 +15952,54 @@ mygo总集篇 80馆 不到8000万
 
 还是不够潮，日本抖音上都看不到几个相关视频
 
+
+*****
+
+####  番茄牛奶  
+##### 2834#       发表于 2025-1-15 16:56
+
+别潮了，你高特有老人臭，接受不了那么潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 2835#       发表于 2025-1-15 16:59
+
+有一说一，感觉你钢历史包袱比星战星际迷航还重，一对比下，假面骑士正剧和超英能轻松现代化改造简直是一个天一个地
+
+
+*****
+
+####  刺客ares  
+##### 2836#       发表于 2025-1-15 17:03
+
+5ch在疑惑妮娅安是个什么作用
+
+目前来看她是主角团信息最少的，连是不是nt都不知道
+
+身份够不上大小姐役，虽然有些许驾驶能力但没MS，感情箭头也不明
+
+“牢修是那种比较危险的位置，妮娅安现在是不上不下的位置”
+
+<img src="https://img.saraba1st.com/forum/202501/15/165632ngg8mwpqpn2g1rnk.jpg" referrerpolicy="no-referrer">
+
+<strong>a7e2ce8290fc5b0e8527e526bd73c45.jpg</strong> (374.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 16:56 上传
+
+*****
+
+####  刺客ares  
+##### 2837#       发表于 2025-1-15 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187475&amp;ptid=2209276" target="_blank">plok201 发表于 2025-1-15 16:51</a>
+
+新奥、新假、EVAQ终，特别是每个都有纪录片看，分锅都找不到其他人
+
+现在这高达是做好了不关你事，出问题了 ...</blockquote>
+痞子不是说要给鹤卷报恩吗
+
+参与的时候就做好给鹤卷挡舆论子弹的准备了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
