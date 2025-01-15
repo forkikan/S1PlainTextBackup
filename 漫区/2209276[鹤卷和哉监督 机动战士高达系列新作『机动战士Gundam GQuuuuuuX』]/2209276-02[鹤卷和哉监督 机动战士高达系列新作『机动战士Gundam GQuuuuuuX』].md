@@ -15508,3 +15508,39 @@ pv3啥时候来呢
 
 坏了这下只有10亿了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 2785#       发表于 2025-1-15 13:20
+
+ 本帖最后由 Toby_dak 于 2025-1-15 14:21 编辑 
+
+<img src="https://p.sda1.dev/21/d291279052cd8a6e0a2bda586f028a9b/1000078603.jpg" referrerpolicy="no-referrer">
+高达周五晚上9点场。
+
+<img src="https://p.sda1.dev/21/15aaab729edfccea36ab29158a278f22/1000078604.jpg" referrerpolicy="no-referrer">
+初音剧场版，同样周五晚上，8点半的。
+
+这两个都是late show，票价比普通全票便宜。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  RE㐅ia  
+##### 2786#       发表于 2025-1-15 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67185367&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-1-15 12:51</a>
+
+你这也是川崎チネチッタ吗？</blockquote>
+是，网址在这里[https://cinecitta.co.jp/](https://cinecitta.co.jp/)
+
+
+*****
+
+####  Lawliet.L  
+##### 2787#       发表于 2025-1-15 13:24
+
+保底15亿<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

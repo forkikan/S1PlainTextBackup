@@ -7980,3 +7980,13 @@ mortis的行为模式还看不太清吧，不好说会对乐队日常有多少�
 
 其实我一直觉得祥子其实第3集打的比第2集要好些的，第3集的"负面塑造”都比第2集编剧大手给我的观感好多了。
 
+
+*****
+
+####  lucasxp  
+##### 8080#       发表于 2025-1-15 13:24
+
+说起来OP顶着残月唱着“completeness”也是带点幽默的
+
+初华: 此世即吾世,如月满无缺<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
