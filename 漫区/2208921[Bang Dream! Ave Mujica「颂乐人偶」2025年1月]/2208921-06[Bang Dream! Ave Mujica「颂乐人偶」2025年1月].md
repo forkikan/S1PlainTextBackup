@@ -8468,3 +8468,11 @@ mujica写成大祥传都难，何况大睦传<img src="https://static.saraba1st.
 <img src="https://p.sda1.dev/21/45a3de598434a94b5e2988bce853e4bc/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/b7d99476842489db73e7a65a0ec85b3b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adyeshach  
+##### 8125#       发表于 2025-1-15 18:09
+
+mortis和睦最后那个演出的塑造有点偏负面了，不像是以后会共存的，最好结局是融合，差结局可能就直接成睦成长都养分了。
+

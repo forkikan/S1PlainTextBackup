@@ -664,3 +664,14 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这代当年也只在gba上玩过初代，玩得是挺开心的，但是 ...</blockquote>
 主要一代的剧情也相对简单，另外GBA版没有主机版的动画，只有动画截图，感染力确实要差一些。
 
+
+*****
+
+####  ds2324ds2  
+##### 65#         楼主| 发表于 2025-1-15 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187457&amp;ptid=2200882" target="_blank">月光乱舞 发表于 2025-1-15 16:50</a>
+
+nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这代当年也只在gba上玩过初代，玩得是挺开心的，但是 ...</blockquote>
+一代OP和坐船里面的2首歌挺不错的。
+
