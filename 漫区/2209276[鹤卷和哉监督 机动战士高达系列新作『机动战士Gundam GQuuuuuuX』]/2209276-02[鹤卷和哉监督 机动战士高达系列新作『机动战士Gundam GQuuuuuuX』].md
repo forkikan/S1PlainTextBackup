@@ -16003,3 +16003,85 @@ mygo总集篇 80馆 不到8000万
 
 参与的时候就做好给鹤卷挡舆论子弹的准备了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 2838#       发表于 2025-1-15 17:06
+
+怎么这么滑了，剧场三集先行，虽然馆数多但宣发一般，能先捞多少是多少了，验证一下高达在这个模式下的生命力，等到时tv播出，我直接赌一手赢在未来好吗，当季霸权，碟片上万，一胶难求
+
+*****
+
+####  PascalLefèvre  
+##### 2839#       发表于 2025-1-15 17:08
+
+泥楼沉迷滑坡都没人搬新倒计时了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wasssf  
+##### 2840#       发表于 2025-1-15 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187541&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-15 16:59</a>
+
+有一说一，感觉你钢历史包袱比星战星际迷航还重，一对比下，假面骑士正剧和超英能轻松现代化改造简直是一个 ...</blockquote>
+假面骑士本来也没继承啥东西，说是新金属英雄系列还是新假面骑士系列都行
+
+
+*****
+
+####  刺客ares  
+##### 2841#       发表于 2025-1-15 17:10
+
+<img src="https://img.saraba1st.com/forum/202501/15/171009hr4xtxzeclyw3ttz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9813.jpeg</strong> (441.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-15 17:10 上传
+
+*****
+
+####  刺客ares  
+##### 2842#       发表于 2025-1-15 17:11
+
+胸口的领结很像推特图标啊
+
+以后在二创里不会变成推特娘吧
+
+*****
+
+####  Piano-Forest  
+##### 2843#         楼主| 发表于 2025-1-15 17:11
+
+[https://x.com/_take_oekaki/status/1879453865822896418](https://x.com/_take_oekaki/status/1879453865822896418)
+<img src="https://p.sda1.dev/21/92b449272a4fc91eaa4e5018a6e23a81/20250115_171112.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双菜  
+##### 2844#       发表于 2025-1-15 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过动画火不火是玄学，但是胶真的很难大麦吧
+
+*****
+
+####  Gysumitka  
+##### 2845#       发表于 2025-1-15 17:13
+
+妮娅安感觉是另外两人变成战狂负责把她们拉回线
+或者是她中途跳反后又回归这种类型的角色（）
+
+*****
+
+####  YU_JI  
+##### 2846#       发表于 2025-1-15 17:14
+
+说起来榎户洋司这几年的水准真的信得过吗？感觉这些年榎户洋司完全在文豪野犬养老，有点摸不清楚水平了
+
