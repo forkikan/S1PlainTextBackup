@@ -16085,3 +16085,24 @@ mygo总集篇 80馆 不到8000万
 
 说起来榎户洋司这几年的水准真的信得过吗？感觉这些年榎户洋司完全在文豪野犬养老，有点摸不清楚水平了
 
+
+*****
+
+####  线程召唤使  
+##### 2847#       发表于 2025-1-15 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187661&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-15 17:14</a>
+
+说起来榎户洋司这几年的水准真的信得过吗？感觉这些年榎户洋司完全在文豪野犬养老，有点摸不清楚水平了 ...</blockquote>
+我反正是特别喜欢银河美少年，虽然我觉得高达不该玩成美少年那种。
+
+*****
+
+####  刺客ares  
+##### 2848#       发表于 2025-1-15 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187661&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-15 17:14</a>
+
+说起来榎户洋司这几年的水准真的信得过吗？感觉这些年榎户洋司完全在文豪野犬养老，有点摸不清楚水平了 ...</blockquote>
+快进到《机动战士Gundam GQuuuuuuX不可能翻车，我要吹爆榎户洋司》环节<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
