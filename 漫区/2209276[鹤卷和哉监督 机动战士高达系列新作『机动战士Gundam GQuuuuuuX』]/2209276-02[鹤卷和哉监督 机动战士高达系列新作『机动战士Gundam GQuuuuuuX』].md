@@ -15211,3 +15211,21 @@ pv3啥时候来呢
 
 我军败了！我军败了！<img src="https://static.saraba1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2753#       发表于 2025-1-15 10:46
+
+一个想法，不一定对，新版“提姆雷回路”为什么不能是“阿姆罗雷回路”呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外种系人气热度那么高，建议财团B搞一个UC和CE合并世界观的if让鸡骡一起开着高达保护木马和大天使逃亡地球的故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 2754#       发表于 2025-1-15 10:46
+
+线下宣传还可以吧，池袋的大屏广告，国际展示场站的条幅，还有张贴的海报之类，还是能刷到不少。
+不过线上宣传确实有点nt，从公布大爆一波后就没多大动静了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
