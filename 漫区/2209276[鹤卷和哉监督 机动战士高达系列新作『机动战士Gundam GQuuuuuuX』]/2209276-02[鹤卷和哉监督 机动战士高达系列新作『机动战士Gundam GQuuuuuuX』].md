@@ -15229,3 +15229,23 @@ pv3啥时候来呢
 线下宣传还可以吧，池袋的大屏广告，国际展示场站的条幅，还有张贴的海报之类，还是能刷到不少。
 不过线上宣传确实有点nt，从公布大爆一波后就没多大动静了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqjsss  
+##### 2755#       发表于 2025-1-15 11:07
+
+ 本帖最后由 dqjsss 于 2025-1-15 11:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67184060&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-15 10:26</a>
+
+从推上看的话确实是有点没宣发，而且惯例的线下动屏展示也没看到，是代哥对khara+高达的号召力太自信还是真 ...</blockquote>
+40年前代哥就被宅社的阿宅们骗过一次，不妨碍再被骗一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 2756#       发表于 2025-1-15 11:12
+
+东宝明显是有期待的，TV本身的流量和商品收益东宝又吃不到，人没有点预期凭啥亏本陪你万代khara日TV玩
+
