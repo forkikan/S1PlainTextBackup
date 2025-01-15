@@ -10767,3 +10767,20 @@ F1阿尔法罗密欧车队知道吧
 
 30充绿单体枪是2025年的卡？
 
+
+*****
+
+####  jackyhuang  
+##### 16103#       发表于 2025-1-15 17:34
+
+绿卡30充<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  quanlix  
+##### 16104#       发表于 2025-1-15 17:34
+
+看了卡面和技能解包，这4星和5星怎么想都是标反了
+

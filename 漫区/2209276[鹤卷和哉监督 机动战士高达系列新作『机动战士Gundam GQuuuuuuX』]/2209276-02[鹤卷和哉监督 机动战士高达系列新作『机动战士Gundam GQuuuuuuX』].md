@@ -16106,3 +16106,24 @@ mygo总集篇 80馆 不到8000万
 说起来榎户洋司这几年的水准真的信得过吗？感觉这些年榎户洋司完全在文豪野犬养老，有点摸不清楚水平了 ...</blockquote>
 快进到《机动战士Gundam GQuuuuuuX不可能翻车，我要吹爆榎户洋司》环节<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 2849#       发表于 2025-1-15 17:31
+
+预感明天会是全家福或者高达<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzf111  
+##### 2850#       发表于 2025-1-15 17:33
+
+我是真不喜欢gqx这机设，到处是多边形切割设计但是配了个极其不协调的镂空小腿,水管斧头和椭圆白板盾
+
+水魔基础风灵比这顺眼100倍，眼缘就不好怎么拉新
+
+UC世界观看门槛基础也高，能想到的爆火元素就是用竹的人设另辟蹊径搞角色关系性整大活了
+
