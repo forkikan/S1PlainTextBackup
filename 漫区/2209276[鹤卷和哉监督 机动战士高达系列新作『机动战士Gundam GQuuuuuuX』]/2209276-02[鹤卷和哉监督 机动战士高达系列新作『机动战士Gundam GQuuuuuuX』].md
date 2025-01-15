@@ -15404,3 +15404,32 @@ pv3啥时候来呢
 
 经典速胜转速败，楼友都是獭利班么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 2773#       发表于 2025-1-15 12:16
+
+大胆点，426馆直接被隔壁Mujica16馆创死，东宝连夜跑路，后续TV取消，鹤卷gg引咎辞职
+
+*****
+
+####  PascalLefèvre  
+##### 2774#       发表于 2025-1-15 12:19
+
+庵野gg看到心爱的ip就此一蹶不振，决心亲自接手后续企划，这就是名震四方，至今仍被新老二次元赞不绝口的 新·高达 的故事
+
+*****
+
+####  RE㐅ia  
+##### 2775#       发表于 2025-1-15 12:20
+
+票房5亿褒姒然后鹤卷高达沦为笑柄什么的，那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 2776#       发表于 2025-1-15 12:20
+
+经典上映倒计时开始疯狂滑坡
+
