@@ -8963,3 +8963,28 @@ How quickly the tide turns
 
 mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人，猫猫更是神秘想走就走想回来就回来
 
+
+*****
+
+####  新HGCG  
+##### 8157#       发表于 2025-1-15 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190109&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-15 23:27</a>
+
+这不是魔法少女小圆，真的全部拉爆到第十集你指望祥子突然觉醒nt让这四个突然开窍然后归队还是祥子变成圆 ...</blockquote>
+我觉得解决问题不意味着人格要矫正回来
+
+而且如果疯癫的状态是她们的本真，为何要刻意纠正呢
+
+*****
+
+####  huxiaopao163  
+##### 8158#       发表于 2025-1-15 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190109&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-15 23:27</a>
+
+这不是魔法少女小圆，真的全部拉爆到第十集你指望祥子突然觉醒nt让这四个突然开窍然后归队还是祥子变成圆 ...</blockquote>
+立希先归队+天台刷掉爱音+爱音和灯再一起刷素世，全部发生在半集里的
+
+特别是“天台半集刷掉爱音”，其实只有两分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16627,3 +16627,14 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 
 池田秀一在梦幻模拟战手游里也配了个角色，天赋是死亡后能夺舍一名友军变成自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 2898#       发表于 2025-1-15 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67189380&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-15 21:27</a>
+
+底下的虫子基本上死了，真正的本体是背上的蘑菇。如果蘑菇掉下来，它就不会动了。 ...</blockquote>
+就为了这个梗把宝可梦老姐拉来人设的？
+

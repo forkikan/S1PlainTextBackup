@@ -10923,3 +10923,11 @@ F1阿尔法罗密欧车队知道吧
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 只是显示BUG，进场是啥色就算啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 16118#       发表于 2025-1-15 23:42
+
+弄了个掉落按宝具色加成，然后仔细一看有活动加成的角色绿宝具的除了毕修内就一个r姐
+
