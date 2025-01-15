@@ -9118,3 +9118,16 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  零壹贰叁  
+##### 8169#       发表于 2025-1-16 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190300&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-16 00:07</a>
+祥子不救火了，就让这火越烧越大，随便喵梦搞事，跟着大伙一起开癫，这剧本直接烂了你信不信？wsd要被骂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照目前的祥子确实奈何不了喵吧
+第三集吵架我都觉得不占上风的
+按祥子现在这个状态火是必然越烧越大的
+至于包饺子，你只要保证最后几集能吃到就行，前面怎么就不能一起癫了
+
