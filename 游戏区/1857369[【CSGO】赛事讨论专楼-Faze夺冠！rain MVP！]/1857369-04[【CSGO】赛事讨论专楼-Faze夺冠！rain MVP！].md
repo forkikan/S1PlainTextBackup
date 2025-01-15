@@ -38,3 +38,13 @@ hltv真干了
 
 hltv又不是第一回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本身就没一个统一标准，哪天valve嫌它烦不就似了
 
+
+*****
+
+####  有鱼  
+##### 4676#       发表于 2025-1-15 20:03
+
+v➗啥时候能把 hltv 干死啊，一野榜装最懂的，还给森➗扣了个 goat 的帽子到处出征
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

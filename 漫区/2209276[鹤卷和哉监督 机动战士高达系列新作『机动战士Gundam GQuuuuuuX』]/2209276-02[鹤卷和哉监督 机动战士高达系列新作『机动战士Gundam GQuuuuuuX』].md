@@ -16431,3 +16431,16 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 
 经典抢夺机体
 
+
+*****
+
+####  Gysumitka  
+##### 2882#       发表于 2025-1-15 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188771&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-15 19:52</a>
+有没有可能玛秋驾驶服镜头的座椅不是gqx的
+
+不然很难想象最新锐ms连全周天都没有（ ...</blockquote>
+感觉麻球那边配置好点，是不是gqx就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2dde10f633388b9e3eb1dc09f2bed0d4/image.jpg" referrerpolicy="no-referrer">
+
