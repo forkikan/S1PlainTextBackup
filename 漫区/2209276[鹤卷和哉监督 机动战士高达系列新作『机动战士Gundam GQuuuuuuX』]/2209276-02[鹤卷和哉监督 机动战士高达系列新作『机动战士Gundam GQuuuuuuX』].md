@@ -15433,3 +15433,13 @@ pv3啥时候来呢
 
 经典上映倒计时开始疯狂滑坡
 
+
+*****
+
+####  双菜  
+##### 2777#       发表于 2025-1-15 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67185027&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-15 12:16</a>
+大胆点，426馆直接被隔壁Mujica16馆创死，东宝连夜跑路，后续TV取消，鹤卷gg引咎辞职 ...</blockquote>
+那太难了，母鸡卡只有不到两千万的票房，新高达只有撤档才有可能比母鸡卡低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
