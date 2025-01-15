@@ -9076,3 +9076,35 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 
 颠也是往女女关系性去颠啊
 
+
+*****
+
+####  NODY  
+##### 8165#       发表于 2025-1-16 00:04
+
+最多也就是暗黑米歇尔罢了，台上换人格，台下继续快快乐乐一般女高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 8166#       发表于 2025-1-16 00:07
+
+<img src="https://p.sda1.dev/21/597623a37456ed289a90d1b79510c7c1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 8167#       发表于 2025-1-16 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190278&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-1-16 00:03</a>
+
+就算是双重人格肯定也是节约宝一人二役啊
+
+怎么可能现实中变成6人团
+
+而且说不定大家一起颠完就变爽朗了呢， ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子不救火了，就让这火越烧越大，随便喵梦搞事，跟着大伙一起开癫，这剧本直接烂了你信不信？wsd要被骂惨了，mygo让祥子当暗线主角，mujica直接变成明线主角，结果前三集被抽陀螺，第四集开摆了最后一起开癫，整个13集就是看这五个人怎么变癫的
+
+我只能说你的想法很美好，但有脑子的编剧不会这么写
+
