@@ -95,3 +95,14 @@ pc1.23
 
 看法老控推特发sbeam版的李鬼2日文版2月15日发售还以为我穿越了，查了下现在的版本还真没日语
 
+
+*****
+
+####  alucardcz  
+##### 7411#       发表于 2025-1-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188445&amp;ptid=2160194" target="_blank">aimujie 发表于 2025-1-15 19:02</a>
+
+看法老控推特发sbeam版的李鬼2日文版2月15日发售还以为我穿越了，查了下现在的版本还真没日语 ...</blockquote>
+日文都是国际版才有的 包括ys都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

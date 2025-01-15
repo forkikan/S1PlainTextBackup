@@ -16288,3 +16288,22 @@ https://x.com/_take_oekaki/status/1879453865822896418</blockquote>
 
 好像只有在桥下跟牢修说话的时候把外套脱掉了，其余时候都是一身黑衣
 
+
+*****
+
+####  王留美  
+##### 2866#       发表于 2025-1-15 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188384&amp;ptid=2209276" target="_blank">cayon 发表于 2025-1-15 18:51</a>
+ 这下知道为什么gq和x之间隔了四个u了</blockquote>
+6个U，谢谢
+
+*****
+
+####  王留美  
+##### 2867#       发表于 2025-1-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188469&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-15 19:06</a>
+ 痞子这次台上台下都单独给他摘出去了，也就一部分天天盯着庵野秀明薅的人在那叫痞子高达，反而让人安心一 ...</blockquote>
+没用，要真是纯新作也就罢了，就这个another z的背景拿出来哪个敢说这个不是真敢达的
+
