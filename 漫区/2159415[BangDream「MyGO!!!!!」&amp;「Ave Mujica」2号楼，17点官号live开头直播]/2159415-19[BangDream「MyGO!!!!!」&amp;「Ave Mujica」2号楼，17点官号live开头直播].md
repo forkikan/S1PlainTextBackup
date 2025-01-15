@@ -2777,3 +2777,28 @@ Happy birthday レイヤ！  
 唉不仲，希望周末live顺利<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/b6b90bd9a2e0aad0e81adb24627c035a/IMG_20250115_191101.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  织部琴音  
+##### 26853#       发表于 2025-1-15 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188507&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-15 19:12</a>
+
+十周年展倒计时——ras
+
+唉不仲，希望周末live顺利</blockquote>
+ras也有不仲？
+
+
+*****
+
+####  CyDiablo  
+##### 26854#       发表于 2025-1-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188605&amp;ptid=2159415" target="_blank">织部琴音 发表于 2025-1-15 19:29</a>
+ras也有不仲？</blockquote>
+一直有传，然后大姐头生日惊喜四缺一，昨晚🌰疑似直接爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/00ccb8063ce32f9ec313bb5e7d6fedad/E5E48F78E69E8D28B8010F7D3DDD4B6D.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1c284a6fa6731b1221cc2a9f7dc1dc94/04D91332635A5009B8E7574875656346.jpg" referrerpolicy="no-referrer">
+

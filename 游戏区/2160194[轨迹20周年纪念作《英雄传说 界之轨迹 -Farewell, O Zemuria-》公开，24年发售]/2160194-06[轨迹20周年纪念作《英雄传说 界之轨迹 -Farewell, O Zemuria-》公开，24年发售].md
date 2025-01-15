@@ -106,3 +106,14 @@ pc1.23
 看法老控推特发sbeam版的李鬼2日文版2月15日发售还以为我穿越了，查了下现在的版本还真没日语 ...</blockquote>
 日文都是国际版才有的 包括ys都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7412#       发表于 2025-1-15 19:29
+
+<blockquote>alucardcz 发表于 2025-1-15 19:19
+日文都是国际版才有的 包括ys都是这样</blockquote>
+
+他们根本不在乎日本pc市场，空轨重制虽然是自己做了pc版，结果日版扔给代理商发行。
+

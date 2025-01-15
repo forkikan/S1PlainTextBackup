@@ -16307,3 +16307,44 @@ https://x.com/_take_oekaki/status/1879453865822896418</blockquote>
  痞子这次台上台下都单独给他摘出去了，也就一部分天天盯着庵野秀明薅的人在那叫痞子高达，反而让人安心一 ...</blockquote>
 没用，要真是纯新作也就罢了，就这个another z的背景拿出来哪个敢说这个不是真敢达的
 
+
+*****
+
+####  UNINSTALL42  
+##### 2868#       发表于 2025-1-15 19:28
+
+怎么还担心上榎户洋司了，剧本家这种东西监督不出毛病大概率也不会出问题的。而且哪怕是地球队长不也比水魔铁血好出十倍甚至九倍了（
+
+*****
+
+####  Gysumitka  
+##### 2869#       发表于 2025-1-15 19:31
+
+说起来“波美拉尼亚”有沿海国家的意思，还是博美犬种的来源<img src="https://p.sda1.dev/21/deb1049bada984ddee606b9614c6e053/image.jpg" referrerpolicy="no-referrer">
+pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
+
+*****
+
+####  UNINSTALL42  
+##### 2870#       发表于 2025-1-15 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67188601&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-1-15 19:28</a>
+
+怎么还担心上榎户洋司了，剧本家这种东西监督不出毛病大概率也不会出问题的。而且哪怕是地球队长不也比水魔 ...</blockquote>
+当然像某木村畅之类拉到一定地步的除外（
+
+*****
+
+####  RE㐅ia  
+##### 2871#       发表于 2025-1-15 19:33
+
+贴纸里有吉翁标志
+
+<img src="https://img.saraba1st.com/forum/202501/15/193255g06ykeemskh4oryz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>025E04DF-6EF8-48AF-B3A4-5BBB506CADC8.jpeg</strong> (161.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 19:32 上传
+
