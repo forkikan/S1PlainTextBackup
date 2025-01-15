@@ -548,3 +548,16 @@ SS遇敌率高的吓人，我一开始不知道防御能回复mp所以完全打�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  qiyu1234  
+##### 55#       发表于 2025-1-15 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67170441&amp;ptid=2200882" target="_blank">ds2324ds2 发表于 2025-1-13 21:12</a>
+
+刚刚去steam看了下，没写支持中文？</blockquote>
+更新支持了
+
+这次亚洲版代理好像是云豹
+

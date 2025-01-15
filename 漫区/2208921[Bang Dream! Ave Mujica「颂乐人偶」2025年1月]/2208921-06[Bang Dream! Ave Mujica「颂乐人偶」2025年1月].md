@@ -8119,3 +8119,21 @@ twi: lelioz1598
 卖狗和母鸡卡全伙在此！</blockquote>
 高尾这角色怎么叫mana……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 8090#       发表于 2025-1-15 14:32
+
+公玊星
+<img src="https://p.sda1.dev/21/cd019c685ff36599299e28dc115ccf7f/007kXGpkly1hxlcz2q1sgj329y3ei7wh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 8091#       发表于 2025-1-15 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186039&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-15 14:04</a>
+卖狗和母鸡卡全伙在此！</blockquote>
+绿色的头发发出灯的声音
+
