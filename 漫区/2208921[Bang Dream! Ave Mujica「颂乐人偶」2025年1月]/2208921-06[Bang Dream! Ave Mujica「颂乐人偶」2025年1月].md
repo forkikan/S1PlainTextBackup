@@ -9205,3 +9205,21 @@ mujica的归mujica
 
 星月？坏了我们邦多利变成邦多利斯坦了
 
+
+*****
+
+####  huxiaopao163  
+##### 8177#       发表于 2025-1-16 04:09
+
+其实吧，mortis又不是第二集那种因为压力太大精神崩溃才跑出来的人格，需要大家一起帮她治好
+
+第三集的核心矛盾是祥子和喵梦的路线之争，到底是专注音乐性还是服务观众搞表演，吵来吵去睦担心队伍会像C团一样吵散了，所以才让mortis出来了
+
+如今mortis/睦选择往表演的方向走，还把吉他放下了，等于是力挺了喵梦，背刺了祥子
+
+祥子：等等，睦肯定是出了问题，让我们用两集来治好她，然后大家还听我的，继续专注音乐性好不好<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+喵梦：？？当我不存在是吧，我觉得现在的睦很好非常好，睦本人都拍板了，队伍之后肯定是要注重表演啊，祥子你就靠边站吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这么一想，与其关心睦的问题什么时候解决，还是关心一下祥子是不是要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
