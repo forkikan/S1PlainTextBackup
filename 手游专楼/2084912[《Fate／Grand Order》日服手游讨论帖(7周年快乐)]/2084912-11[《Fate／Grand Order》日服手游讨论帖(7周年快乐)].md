@@ -10973,3 +10973,14 @@ F1阿尔法罗密欧车队知道吧
 是四个，剑武藏、花嫁、有珠和武尊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 太狗了
 
+
+*****
+
+####  khxooo  
+##### 16123#       发表于 2025-1-16 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190533&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-16 01:11</a>
+
+TMD 太狗了</blockquote>
+放心吧，会还债的，我国服双黄武尊，然后莉莉丝池300多石头没金卡<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
