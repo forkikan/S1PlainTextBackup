@@ -158,3 +158,11 @@ GhKNmV0bYAAHCL5.jpg
 摆个pose挡核弹的ppt过于生草。也太省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 华哥真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kongxian  
+##### 198#       发表于 2025-1-15 09:52
+
+这季身高各种镜头也故意体现的太矮了吧。印象上看着比第一季最后幼女形态都显小了
+
