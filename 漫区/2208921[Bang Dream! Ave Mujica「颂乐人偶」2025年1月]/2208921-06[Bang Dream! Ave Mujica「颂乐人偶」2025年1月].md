@@ -8224,3 +8224,14 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2238307
 莫酱之后就是队友了好吧 估计偶尔上线</blockquote>
 偶尔上线也不太可能，解决以后估计是完全体睦了，偶尔上线的话鸡团又得凭空多出一人了
 
+
+*****
+
+####  huxiaopao163  
+##### 8101#       发表于 2025-1-15 15:22
+
+完全体的睦还算是睦吗，到底怎么区分什么是睦，什么是mortis。。。
+不过mortis也才刚出场，她到底是什么样的人也不清楚
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
