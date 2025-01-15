@@ -16604,3 +16604,26 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 还真是，牢修头上的小机器人真有些派拉斯特的神韵
 <img src="https://media.52poke.com/wiki/8/80/047Parasect.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 2896#       发表于 2025-1-15 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67189410&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-15 21:32</a>
+いよいよ今週金曜17日から
+
+#鶴巻和哉 監督
+
+劇場先行版</blockquote>
+这位剪辑的小姐姐好像还是eva终纪录片里的那位。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  猪突猛进R  
+##### 2897#       发表于 2025-1-15 22:26
+
+池田秀一在梦幻模拟战手游里也配了个角色，天赋是死亡后能夺舍一名友军变成自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

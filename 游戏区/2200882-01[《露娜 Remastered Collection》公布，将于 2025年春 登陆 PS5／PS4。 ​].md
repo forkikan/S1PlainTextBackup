@@ -686,3 +686,15 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这代当年也只在gba上玩过初代，玩得是挺开心的，但是 ...</blockquote>
 这游戏我觉得也是那种需要一定的音画水平的，NDS和GBA显然都不具备这种机能。不过如果把系统改改的话搞不好我也还是会补的。
 
+
+*****
+
+####  隔壁老黄  
+##### 67#       发表于 2025-1-15 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186527&amp;ptid=2200882" target="_blank">ds2324ds2 发表于 2025-1-15 14:57</a>
+这个我也有印象，进了最终地图就不能出去补给了。我当时也死活打不过boss还不能出去买药。最后只能守女神 ...</blockquote>
+没错，这boss战我印象很深刻，实在太难了，反而后日谈那个星龙很菜，单挑也能轻松搞定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
