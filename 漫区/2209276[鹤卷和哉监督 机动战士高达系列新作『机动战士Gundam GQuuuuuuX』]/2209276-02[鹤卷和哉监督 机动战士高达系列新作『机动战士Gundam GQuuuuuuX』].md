@@ -15874,3 +15874,56 @@ mygo总集篇 80馆 不到8000万
 
 最近还有EVA地缚灵入场天天刷公式，gqx这讨论环境算是有了
 
+
+*****
+
+####  赤黑的假面  
+##### 2825#       发表于 2025-1-15 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187219&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-15 16:18</a>
+
+额，我只是想拐痞子而已。到时候作品出了问题，就推锅给痞子，毕竟他才是khara老大不是 ...</blockquote>
+然后庵野秀明变成本泽马那样的专用背锅位是吧，遇事不决都怪本泽马
+
+
+*****
+
+####  plok201  
+##### 2826#       发表于 2025-1-15 16:40
+
+信心这东西可能就单纯看到哈萨维和种自的成绩，感觉400馆起码哈萨维2倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+毕竟东宝抽象信心作品真没少
+
+*****
+
+####  PascalLefèvre  
+##### 2827#       发表于 2025-1-15 16:43
+
+本来新奥新假那种结果庵野也难辞其咎，只能说活该了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FF0000  
+##### 2828#       发表于 2025-1-15 16:45
+
+已经滑坡成这样了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 2829#       发表于 2025-1-15 16:45
+
+泳装回那不得结尾才能安排上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空彦秋  
+##### 2830#       发表于 2025-1-15 16:45
+
+<blockquote>赤黑的假面 发表于 2025-1-15 16:38
+然后庵野秀明变成本泽马那样的专用背锅位是吧，遇事不决都怪本泽马</blockquote>
+此事在攻壳gig亦有记载，当年gig政治氛围那么浓，都市传说鸭颈兽才是主导来着...
+
