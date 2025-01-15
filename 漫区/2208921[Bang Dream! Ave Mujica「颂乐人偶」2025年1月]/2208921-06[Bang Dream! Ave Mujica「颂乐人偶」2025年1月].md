@@ -7891,3 +7891,11 @@ killkiss好像卖挺好
 
 一个人爆2话再包饺子都不知道13话够不够 故事完整就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桜庭千景  
+##### 8070#       发表于 2025-1-15 11:32
+
+我觉得真得打个预防针，以鸡的进展速度，mortis被速刷了可能性不低的
+
