@@ -8095,3 +8095,27 @@ twi: lelioz1598
 
 <img src="https://img.saraba1st.com/forum/202501/15/140721sl4t5d56pphftzjr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 8088#       发表于 2025-1-15 14:14
+
+ 本帖最后由 Aendst 于 2025-1-15 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186037&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-15 14:04</a>
+
+可不可能mortis才是真我，现在的睦是违背内心的假的自己</blockquote>
+可能性不大，看三话结尾睦的表情就能看出来
+
+而且ed里mortis被烧掉了
+
+*****
+
+####  Aendst  
+##### 8089#       发表于 2025-1-15 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186039&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-15 14:04</a>
+
+卖狗和母鸡卡全伙在此！</blockquote>
+高尾这角色怎么叫mana……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

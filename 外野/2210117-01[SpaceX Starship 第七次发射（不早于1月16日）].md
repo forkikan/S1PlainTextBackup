@@ -803,3 +803,13 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 光头今天下午两点还要装出发射的样子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">才硬了没多久又缩了，也直接延后到16号。
 
+
+*****
+
+####  2017.05.04  
+##### 58#       发表于 2025-1-15 14:22
+
+这下确定新格伦比SS7晚了
+
+唉贝光头
+
