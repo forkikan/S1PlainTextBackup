@@ -561,3 +561,14 @@ SS遇敌率高的吓人，我一开始不知道防御能回复mp所以完全打�
 
 这次亚洲版代理好像是云豹
 
+
+*****
+
+####  ds2324ds2  
+##### 56#         楼主| 发表于 2025-1-15 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171556&amp;ptid=2200882" target="_blank">隔壁老黄 发表于 2025-1-14 00:52</a>
+
+把背心的最后大招练出来就没难度了，问题是不刷经验怪打到最终boss也很可能没学到最终招，结果只能靠白龙 ...</blockquote>
+这个我也有印象，进了最终地图就不能出去补给了。我当时也死活打不过boss还不能出去买药。最后只能守女神像练级。
+
