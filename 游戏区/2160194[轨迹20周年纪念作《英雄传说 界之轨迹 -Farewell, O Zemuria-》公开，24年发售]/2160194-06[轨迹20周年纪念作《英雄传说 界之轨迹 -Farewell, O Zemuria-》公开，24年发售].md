@@ -45,3 +45,28 @@
 黎2不会最烂，伊斯卡联盟设定，同盟と言っても小競り合いばっかりで
 私たちにはいい飯の種なんだけど。横竖还能弄出一作东部内战篇来水剧情，就看需不需要
 
+
+*****
+
+####  仲可怀  
+##### 7406#       发表于 2025-1-15 16:06
+
+pc1.23
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.40)
+
+
+*****
+
+####  alucardcz  
+##### 7407#       发表于 2025-1-15 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187109&amp;ptid=2160194" target="_blank">仲可怀 发表于 2025-1-15 16:06</a>
+
+pc1.23
+
+----发送自 STAGE1 App for Android.</blockquote>
+？
+
+这不是比25号发布会还早了？
+
