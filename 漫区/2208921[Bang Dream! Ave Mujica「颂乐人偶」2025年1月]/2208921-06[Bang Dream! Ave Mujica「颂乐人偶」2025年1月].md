@@ -9131,3 +9131,16 @@ mygo还是舍弃了立希和猫猫两个塑造的，立希变成了灯单推人�
 按祥子现在这个状态火是必然越烧越大的
 至于包饺子，你只要保证最后几集能吃到就行，前面怎么就不能一起癫了
 
+
+*****
+
+####  akiomn  
+##### 8170#       发表于 2025-1-16 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190378&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-1-16 00:28</a>
+按照目前的祥子确实奈何不了喵吧
+第三集吵架我都觉得不占上风的
+按祥子现在这个状态火是必然越烧越大的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怕难了，不管喵梦随便搞事，鸡团也别说音乐了，到时候喵梦联合黑睦一块把鸡团变成表演团，都不需要到最后几集，只要两三集就够了
+所以不可能的，这种触犯邦邦底层逻辑的行为，哪怕祥子什么都不做，编剧也要让喵梦黑睦这俩吃瘪，但是编剧又不能让祥子什么都不做，所以祥子还得起来救火
+
