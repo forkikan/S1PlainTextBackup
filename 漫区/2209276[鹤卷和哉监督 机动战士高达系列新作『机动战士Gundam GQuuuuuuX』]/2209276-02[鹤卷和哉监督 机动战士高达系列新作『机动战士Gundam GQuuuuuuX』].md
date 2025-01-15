@@ -16127,3 +16127,25 @@ mygo总集篇 80馆 不到8000万
 
 UC世界观看门槛基础也高，能想到的爆火元素就是用竹的人设另辟蹊径搞角色关系性整大活了
 
+
+*****
+
+####  YU_JI  
+##### 2851#       发表于 2025-1-15 17:40
+
+<blockquote>Aaa炒面面包批发 发表于 2025-1-15 17:31
+预感明天会是全家福或者高达
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不是麻球吗？还是麻球的已经发过了？
+
+
+*****
+
+####  Gysumitka  
+##### 2852#       发表于 2025-1-15 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67187874&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-15 17:40</a>
+不是麻球吗？还是麻球的已经发过了？</blockquote>
+12/4 发过一张麻球单人
+
