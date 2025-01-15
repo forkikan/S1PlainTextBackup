@@ -16561,3 +16561,13 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 ⚫︎去年の音響作業最終日
 <img src="https://p.sda1.dev/21/7c0c4933ccdf6d1c86dd91ef3bf10ef3/20250115_213116.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 2892#       发表于 2025-1-15 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67189380&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-15 21:27</a>
+底下的虫子基本上死了，真正的本体是背上的蘑菇。如果蘑菇掉下来，它就不会动了。 ...</blockquote>
+冬修夏鸭<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
