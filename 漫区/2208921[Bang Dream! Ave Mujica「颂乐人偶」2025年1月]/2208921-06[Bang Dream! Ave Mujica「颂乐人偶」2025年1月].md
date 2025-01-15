@@ -7770,3 +7770,14 @@ killkiss好像卖挺好
 
 比如第三集 为什么睦没跟海铃走 海铃一脸悲伤的样子
 
+
+*****
+
+####  结衣小比取  
+##### 8058#       发表于 2025-1-15 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67183414&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-15 08:57</a>
+
+以海铃目前的态度来看，mygo12集这里说的只是在复读？这个时候海铃应该没觉得母鸡卡很特殊吧 ...</blockquote>
+那个当时就有人说这话不是海玲的风格，可能是近期内受过其他人的影响
+
