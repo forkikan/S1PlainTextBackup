@@ -15373,3 +15373,34 @@ pv3啥时候来呢
 昨天不是还剑指100e吗</blockquote>
 抹个零头无伤大雅
 
+
+*****
+
+####  RE㐅ia  
+##### 2770#       发表于 2025-1-15 12:09
+
+好像和同一天的pjsk比没差太多。
+
+<img src="https://img.saraba1st.com/forum/202501/15/120909kdcyaaydt7gbzngu.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2025-01-15 at 12.04.16 PM.png</strong> (323.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 12:09 上传
+
+*****
+
+####  卑弥呼yamato  
+##### 2771#       发表于 2025-1-15 12:11
+
+到时候不到5亿就搞笑了
+
+
+*****
+
+####  猪突猛进R  
+##### 2772#       发表于 2025-1-15 12:14
+
+经典速胜转速败，楼友都是獭利班么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
