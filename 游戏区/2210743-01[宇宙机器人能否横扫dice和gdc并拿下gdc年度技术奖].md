@@ -979,3 +979,14 @@ DICE的技术奖提名出来了</blockquote>
 
 这种东西图一乐就好，真辩哪个技术高低没意思。就这种超大型游戏包含角度太多了，毫无意义。
 
+
+*****
+
+####  石好赤爱赤石  
+##### 89#       发表于 2025-1-15 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66941132&amp;ptid=2210743" target="_blank">qty 发表于 2024-12-16 20:27</a>
+
+能在不到半年时间全价卖到两千万以上这个数字的大制作游戏，无论哪个层面，能学的绝对都很多，你觉得不多 ...</blockquote>
+有没有可能，这个销量主要归功于第一款国产单机的buff以及卖力的宣发，跟游戏开发真没太大关系。
+
