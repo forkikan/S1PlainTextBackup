@@ -7727,3 +7727,11 @@ killkiss好像卖挺好
 鸡团能不能翻一首voodoo kingdom啊，孩子好急好急的</blockquote>
 太为难初华了，不如唱一曲magia吧，正好李子真的唱过
 
+
+*****
+
+####  thisisaspider  
+##### 8054#       发表于 2025-1-15 08:23
+
+看了战吧的初华蜘蛛说感觉有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
