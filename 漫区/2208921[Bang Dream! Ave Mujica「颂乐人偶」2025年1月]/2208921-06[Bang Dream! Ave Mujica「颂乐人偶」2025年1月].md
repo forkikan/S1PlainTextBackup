@@ -9223,3 +9223,13 @@ mujica的归mujica
 
 这么一想，与其关心睦的问题什么时候解决，还是关心一下祥子是不是要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 8178#       发表于 2025-1-16 06:53
+
+讨论mortis会被祥子速刷的和会被睦头保留（融合）的楼友，就像动画里马上要发生的路线争执一样，一边像初华，支持祥子推进剧情，一边像喵梦，支持睦头主持大局，比例2对2的情况下就要引入新的变量来打破局势。
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
