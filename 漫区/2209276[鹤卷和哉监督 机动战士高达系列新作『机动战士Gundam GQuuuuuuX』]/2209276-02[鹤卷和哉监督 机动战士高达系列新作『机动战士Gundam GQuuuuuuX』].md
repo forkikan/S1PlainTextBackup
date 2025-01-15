@@ -15267,3 +15267,45 @@ pv3啥时候来呢
 
 不知道的还以为是小片场点映呢。。。鹤卷，快去抽打痞子让他到处下跪求资源啊。
 
+
+*****
+
+####  0aleph37  
+##### 2759#       发表于 2025-1-15 11:36
+
+ 本帖最后由 0aleph37 于 2025-1-15 11:40 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/15/113623rt11gp4ehqfa1hzz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-15 11:36 上传
+
+限定景品商法来了
+
+还有电影票根换明信片
+
+*****
+
+####  Gysumitka  
+##### 2760#       发表于 2025-1-15 11:39
+
+影院限定胶不来点吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 2761#       发表于 2025-1-15 11:40
+
+来点剧场版限定彩透红高达
+
+*****
+
+####  0aleph37  
+##### 2762#       发表于 2025-1-15 11:41
+
+盲猜一个第二周开始限定胶
+
