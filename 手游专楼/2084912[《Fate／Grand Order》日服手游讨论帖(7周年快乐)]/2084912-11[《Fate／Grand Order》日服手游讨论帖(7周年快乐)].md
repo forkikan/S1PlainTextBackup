@@ -10910,3 +10910,16 @@ F1阿尔法罗密欧车队知道吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  DARKGRAY  
+##### 16117#       发表于 2025-1-15 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67189387&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-1-15 21:28</a>
+
+托勒密和妖兰都是两种点数加成，凭什么宇宙凛就只有一种啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+只是显示BUG，进场是啥色就算啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
