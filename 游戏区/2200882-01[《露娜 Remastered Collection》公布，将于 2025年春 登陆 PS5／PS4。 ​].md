@@ -618,3 +618,11 @@ http://t.cn/A6uTjbEE
 【跨越30载的期待，经典再现[送花花]】云豹娱乐今日正式宣布，诞生于1992年的奇幻RPG经典《LUNAR Silver St ...</blockquote>
 横山智佐那个时候的声音很好听
 
+
+*****
+
+####  kamiruding  
+##### 60#       发表于 2025-1-15 15:42
+
+这下不得不给当年盗版还债了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
