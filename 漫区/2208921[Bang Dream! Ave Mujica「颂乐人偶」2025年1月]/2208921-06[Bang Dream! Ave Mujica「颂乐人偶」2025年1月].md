@@ -12855,3 +12855,232 @@ aff356688009c9b36010ac297f8745a1.jpg
 
 尬黑了，漫画里爽世没遇到祥子前就是同班同学依靠的妈妈系社交人设了，这也要学祥子？学在哪？
 
+
+*****
+
+####  ads147147  
+##### 8524#       发表于 2025-1-17 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199553&amp;ptid=2208921" target="_blank">PDQ4 发表于 2025-1-17 00:04</a>
+睦学爽姐有点搞笑了，是不是忘了爽姐是学祥子的</blockquote>
+草，我看到爽姐第一反应是圆的爽，我还说确实挺像的该魔女化了，后面一个爽姐学祥的给我踢回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  rollingusagi  
+##### 8525#       发表于 2025-1-17 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赖喵梦？那还不是祥子自己找的人，你想好好搞乐队那没事找啥网红，网红肯定目标是快速变现流量啊，哦不对你大祥老师最开始就是想一炮走红才找的她，那没事了
+
+*****
+
+####  Mikumiku831  
+##### 8526#       发表于 2025-1-17 00:07
+
+<img src="https://img.saraba1st.com/forum/202501/17/000455hosz1ycx50ez1svv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250117000133.png</strong> (9.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 00:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/000507p11cqbqzsv4fysic.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250117000141.png</strong> (55.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 00:05 上传
+
+木头人上集结尾用的还是水滴拨片 
+
+因为掉下来了 这集 换成了更好抓的大三角 同时可以演奏更狂野的乐曲了
+
+不知道说啥 我的木头人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RogerYan  
+##### 8527#       发表于 2025-1-17 00:07
+
+楼里怎么有神人演起来了 怎么第四集还有一周<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 8528#       发表于 2025-1-17 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199562&amp;ptid=2208921" target="_blank">亚尔特留斯 发表于 2025-1-17 00:05</a>
+大喵这种发疯似的想要红想要出名  有点像日本娱乐圈的某种缩影  内卷到了极致 每个人都在拼命多维发展想要 ...</blockquote>
+喵梦想红的深层原因，没准被黑睦攻略以后就引出来了
+
+*****
+
+####  帆前  
+##### 8529#       发表于 2025-1-17 00:07
+
+里人格小睦：表人格小睦把我的心里话断章取义了，我不是那个意思
+
+表人格小睦：“……我……断……义了，我……是那个意思。”
+
+*****
+
+####  厉飞雨  
+##### 8530#       发表于 2025-1-17 00:08
+
+这群神人真该看看心理医生，一个个苦大仇深的又偏要当谜语人
+
+*****
+
+####  玖羽  
+##### 8531#       发表于 2025-1-17 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199531&amp;ptid=2208921" target="_blank">PDQ4 发表于 2025-1-17 00:02</a>
+
+睦真的没有实力吗，我觉得她只是对自己不自信，自我评价过低
+
+找回了本来属于自己的力量而已
+
+睦这个人设一看 ...</blockquote>
+睦是有天赋，但是架不住从小听到的都是“不愧是若叶和森美奈美的女儿”
+
+我认为睦的吉他不是不好，反而是太好了，正好到一个瓶颈，技术上完美了，但没法更进一步，由于没有老师指点，自己越来越钻牛角尖
+
+*****
+
+####  ads147147  
+##### 8532#       发表于 2025-1-17 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199580&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-17 00:07</a>
+木头人上集结尾用的还是水滴拨片 
+
+因为掉下来了 这集 换成了更好抓的大三角 同时可以演奏更狂野的乐曲了
+
+ ...</blockquote>
+原来是真的哭出来了，还以为只是眼角有泪没流下来。
+
+看来是真的三秒就能哭出来的顶级天赋演员，喵梦估计羡慕疯了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  柴突猛进  
+##### 8533#       发表于 2025-1-17 00:09
+
+海玲说的没错啊，祥子就是不关注其他成员所以才导致如今这个局面啊，一开始招大喵的时候给别人画饼画的好好的，结果演出一个月了，连饼都不给大喵画了，大喵问她什么时候准备摘面具，祥子说我自有安排，但凡说个预期吊一吊喵梦也不会变成舞台上被喵梦摘面具搞的下不来台吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fsfs_freeze  
+##### 8534#       发表于 2025-1-17 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199566&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-17 00:05</a>
+祥子这集就明确说了，母鸡卡是她的世界，是她仅剩的避难所，以及对睦说的是你该是站在我这边的。
+
+所以实 ...</blockquote>
+我看这睦鸡卡下一步把祥子宫走也不意外了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 8535#       发表于 2025-1-17 00:10
+
+<blockquote>看穿一切的鱼 发表于 2025-1-16 23:45
+越想越不对劲，大莫老师你父母压力睦你不出来，媒体压力睦你不出来，大喵压力睦你不出来，大祥老师跟你吵一 ...</blockquote>
+這很正常吧
+
+父母壓力死頂著
+
+上班老板壓力也死頂著
+
+同事壓力也死頂著
+
+回家老婆還給上壓力， 這怎可能不爆
+
+*****
+
+####  玖羽  
+##### 8536#       发表于 2025-1-17 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199583&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-17 00:07</a>
+
+喵梦想红的深层原因，没准被黑睦攻略以后就引出来了</blockquote>
+我还是认为，由于喵梦有家人侠的一面，只要说喵梦的卷是为了家人，然后让她把队友视为家人就行
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 8537#       发表于 2025-1-17 00:12
+
+有点搞笑了soyo学祥子都来了
+
+*****
+
+####  黑夜落叶秋天  
+##### 8538#       发表于 2025-1-17 00:12
+
+接下来就是等待第四集了
+
+*****
+
+####  thisisaspider  
+##### 8539#       发表于 2025-1-17 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199303&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-16 23:43</a>
+
+大祥一切压力的根源就是她自己，我真的很好奇她有什么东西是不能跟队友说的？狗团两个人想复辟、一个人爱慕 ...</blockquote>
+不止大祥，压力根源来源自己这种思路，实际上爆过的全都能套上。
+
+本质是鸡狗编剧写剧本的底层逻辑。
+
+*****
+
+####  杂灰  
+##### 8540#       发表于 2025-1-17 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199604&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 00:09</a>
+睦是有天赋，但是架不住从小听到的都是“不愧是若叶和森美奈美的女儿”
+
+我认为睦的吉他不是不好，反而是 ...</blockquote>
+很明显说的是睦的吉他没法表达自我，技术没问题
+
+*****
+
+####  Bieaeml  
+##### 8541#       发表于 2025-1-17 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199447&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-16 23:56</a>
+
+哈基梦：为什么你能演这么好？</blockquote>
+睦：我是没有兴趣，而你是没有才能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 8542#       发表于 2025-1-17 00:16
+
+才一个月就急着摘面具是什么拔苗助长行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Sabbah  
+##### 8543#       发表于 2025-1-17 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199580&amp;ptid=2208921" target="_blank">Mikumiku831 发表于 2025-1-17 00:07</a>
+
+木头人上集结尾用的还是水滴拨片 
+
+因为掉下来了 这集 换成了更好抓的大三角 同时可以演奏更狂野的乐曲了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这话ED不放睦头solo我不服口牙牙
+

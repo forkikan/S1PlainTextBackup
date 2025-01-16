@@ -1130,3 +1130,25 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 假如6月份发售，第一年就少了俩仨月，能卖2000万台？</blockquote>
 可以预购啊
 
+
+*****
+
+####  mimighost  
+##### 134#       发表于 2025-1-17 00:11
+
+我觉得10年就端出这一个机器
+
+简直不可接受
+
+虽然你任的确保守，这是不是有点儿无能了
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 135#       发表于 2025-1-17 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不行了，你任无能都来了，这才爆了个外形呢，等性能挖出来我估计又是一番腥风血雨
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
