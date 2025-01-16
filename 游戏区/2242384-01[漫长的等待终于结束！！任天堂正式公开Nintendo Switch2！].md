@@ -1160,3 +1160,20 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 观望了，硬件没创新，阵容也还不明朗。等有了3D马或者塞尔达再买
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 137#       发表于 2025-1-17 00:35
+
+骂归骂，首发能拿下还是得拿下的，我倒要看看朱紫在新硬件下运行是个什么吊样子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 138#       发表于 2025-1-17 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199820&amp;ptid=2242384" target="_blank">黒鈴ミヲ 发表于 2025-1-17 00:35</a>
+骂归骂，首发能拿下还是得拿下的，我倒要看看朱紫在新硬件下运行是个什么吊样子 ...</blockquote>
+感觉朱紫已经不是性能提升能救得了的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
