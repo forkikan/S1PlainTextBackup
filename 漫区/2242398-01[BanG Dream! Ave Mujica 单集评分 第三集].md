@@ -678,3 +678,49 @@ b站为什么直接翻译的“弹不好”？搞得像是睦水平不够一样
 
 mygo3话祥子夸睦弹吉他靠得住，睦就是因此而摇头否认的吧
 
+
+*****
+
+####  Renes  
+##### 73#       发表于 2025-1-16 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199160&amp;ptid=2242398" target="_blank">dutage 发表于 2025-1-16 23:32</a>
+
+有个问题，这种级别的商业乐队，没有保密条款吗？如果合同里白纸黑字说了，不许摘面具，摘了就交违约金，喵 ...</blockquote>
+邦邦世界观下是高魔世界，没有这么多大人的恶臭，乐队本身有很高的自主性
+
+*****
+
+####  fsfs_freeze  
+##### 74#       发表于 2025-1-16 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199144&amp;ptid=2242398" target="_blank">utotqe 发表于 2025-1-16 23:30</a>
+我的理解是这里是一个互文，黑屏后的演出就是本集结尾mortis上号的独角戏 ...</blockquote>
+不对吧，结尾不是还在吵架吗
+
+*****
+
+####  swessia  
+##### 75#       发表于 2025-1-16 23:39
+
++2，前两集剩下的+2都放在这集了
+
+这集大爆总算对得起前两集的快节奏
+
+*****
+
+####  黒鈴ミヲ  
+##### 76#       发表于 2025-1-16 23:40
+
+精神病还有治愈的可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我倒要看看最后这个饺子怎么包
+
+*****
+
+####  赛文欧德  
+##### 77#       发表于 2025-1-16 23:41
+
++2
+
+爆就完事了
+

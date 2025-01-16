@@ -1119,3 +1119,14 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 就是黑色的？ns当初为了耐脏买了黑色的现在有点后悔想ns2弥补一下红蓝遗憾，咋只有黑色的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 而且这尺寸掌机模式也不好拿吧
 
+
+*****
+
+####  风过留声  
+##### 133#       发表于 2025-1-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198113&amp;ptid=2242384" target="_blank">ptnsdk 发表于 2025-1-16 22:20</a>
+
+假如6月份发售，第一年就少了俩仨月，能卖2000万台？</blockquote>
+可以预购啊
+

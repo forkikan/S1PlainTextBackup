@@ -1181,3 +1181,27 @@ NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.co
 其实按20年前的标准这发是很完美了，但现在的吃瓜群众要求，已经不是以前了，不整点活很难满足。 ...</blockquote>
 是它自己说可回收的  那就要按可回收来啊  
 
+
+*****
+
+####  commcody  
+##### 89#         楼主| 发表于 2025-1-16 23:38
+
+Highway 4已开始封路。助推器运输平台已在制造厂区待机，准备在成功捕获B14后运回厂区。
+
+<img src="https://img.saraba1st.com/forum/202501/16/233705sshphefsf615f16h.jpg" referrerpolicy="no-referrer">
+
+<strong>LabPadre_Space_-_Starbase_Live_Sentinel_Cam_-_SpaceX_Starship_Launch_and_Product.jpg</strong> (103.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:37 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/233644ts0zsf0h0sdfrsv1.jpg" referrerpolicy="no-referrer">
+
+<strong>GhbJstKXAAA1pyV.jpg</strong> (644.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:36 上传
+

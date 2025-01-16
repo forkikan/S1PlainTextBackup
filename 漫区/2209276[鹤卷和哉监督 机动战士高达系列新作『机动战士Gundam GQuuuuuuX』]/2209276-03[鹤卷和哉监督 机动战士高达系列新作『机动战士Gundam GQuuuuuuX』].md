@@ -1271,3 +1271,39 @@ hachi越画越好了
 牢修当公主位谁来带货呢，机体属于强绑定了</blockquote>
 水魔后期大家也在给铁骑找驾驶员（
 
+
+*****
+
+####  Gysumitka  
+##### 3087#       发表于 2025-1-16 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199183&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-16 23:33</a>
+水魔后期大家也在给铁骑找驾驶员（</blockquote>
+这帮老登不至于像小林宽那样安排不过来剧情，而且季番都不出场有点变态了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜夜夜  
+##### 3088#       发表于 2025-1-16 23:40
+
+米津玄师还会画画啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3089#       发表于 2025-1-16 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199267&amp;ptid=2209276" target="_blank">黑夜夜夜 发表于 2025-1-16 23:40</a>
+米津玄师还会画画啊</blockquote>
+一直都会，在他还是vocaloid p主时就会了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  金翅碌柒鸟  
+##### 3090#       发表于 2025-1-16 23:43
+
+有没有看了首映的说一下感想和剧情
+

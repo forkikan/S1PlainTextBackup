@@ -12163,3 +12163,263 @@ AB1DA42903BF2E405524F6F2A53439D2.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方放睦祥图，18号高尾节约广播，明摆着都知道低气压过分了点，要找补的。相信就完了，现在不过是最低点，等祥子后面操作回来吧
 
+
+*****
+
+####  himfsz  
+##### 8451#       发表于 2025-1-16 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198957&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 23:19</a>
+
+如果祥子给队友写的判词都中了可以直接出道当占卜师吧</blockquote>
+祥子贾宝玉说
+
+*****
+
+####  pokemon最爱  
+##### 8452#       发表于 2025-1-16 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199139&amp;ptid=2208921" target="_blank">猫执事 发表于 2025-1-16 23:30</a>
+
+不懂BANG的世界观 演出翻车怎么会被当做神演技糊弄过去的，难道要解释说睦太好看于是能成立么
+
+ ...</blockquote>
+结合上集里最后的中二小剧场台词啊，睦失误然后当场死机这个表演实际上与中二小剧场的台词设定吻合上了，所以不知情的人会认为是神演技。
+
+*****
+
+####  yanghuangu  
+##### 8453#       发表于 2025-1-16 23:36
+
+后面还有PV里木头人摔书的情节要回收的，代打不了几集的
+
+*****
+
+####  雨淋铃  
+##### 8454#       发表于 2025-1-16 23:36
+
+大象已经越来越搞笑角色了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ichihatsu  
+##### 8455#       发表于 2025-1-16 23:37
+
+睦头爹妈DNA发力了是吧（反观某40+岁男童星
+
+*****
+
+####  Renes  
+##### 8456#       发表于 2025-1-16 23:37
+
+别的不说，就这个意境还是可以的。
+
+那一天睦杀死了软弱的自己。看预告感觉开朗睦会逐渐夺走祥子的母鸡卡了祥子要逐渐被夺走容身之处了。
+
+另外这集也能看出来祥子确实是为了逃避现实才几头画饼给自己建造了名为母鸡卡的避难所，结果这个世界快要不属于她了。
+
+但有一说一，大祥老师她情弱的毛病，也是造成一切现状的直接原因，因为她一样是那个全是为了自己的人。唉，回旋镖
+
+*****
+
+####  凉良  
+##### 8457#       发表于 2025-1-16 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199169&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-16 23:32</a>
+
+越想越想不明白祥子还能怎么逆转，要不样子也疯一下好了</blockquote>
+只要mortis带队出问题 祥子救场就行了
+
+*****
+
+####  泥潭办证先锋  
+##### 8458#       发表于 2025-1-16 23:38
+
+等到最后包饺子的时候，我希望邦邦还能出pico。
+
+于是我就可以看到，海铃有事找Mortis，同时祥子有事找睦头人，黄瓜妹人格切来切去不堪重负，再次复刻Mujica第二集宕机。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 8459#       发表于 2025-1-16 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 8460#       发表于 2025-1-16 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198767&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-1-16 23:07</a>
+
+没毛病，并不是所有观众都是冲着音乐性去的。要满足观众还是追求艺术，这点还挺现实的。
+
+就好比岳云鹏的 ...</blockquote>
+剧中人物各有各的考虑完全没问题啊。问题是场外的观众不能一边嫌弃岳云鹏相声说的狗屁不是只会参加综艺养饭圈，一边又支持喵梦，说她这样的才是为观众着想的好演员啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱小路三礼  
+##### 8461#       发表于 2025-1-16 23:39
+
+比起mygo，母鸡卡的故事显然超过了我的阈
+值。看第一集的时候，知道了祥子的过去，那个时候我就狠狠的共情了祥子。导致我对她有种偏爱，认为这是一个自尊心高的坚强女孩。这导致二三集的时候，有些很明显是祥子拧巴的态度导致的问题，我感性上都不愿意去苛责她。到了第二集，我又狠狠共情了睦，我觉得睦比祥子认为的要关心祥子的多的多。睦是真的把祥子当成了自己的半身，她愿意为祥子做不愿意的事。明明她们两个应该是关系最近的战友，但是两个人的性格缺点导致这两个人的互动每一次都让我揪心。其实祥子在c团炸了之后最后一次给睦好脸色是在转学前，想想这都多久了。她俩的关系不应该是这样的，今天第三集让我彻底破防了Q。祥子可能目前也只能在睦面前说出自己的心声了，第一集一次，第三集一次。睦明明也想帮祥子，但是她也知道自己的性格有缺陷，她又在试图改善，既然我说话总是会造成糟糕的结果，那么我就少说话。睦把压力都埋在心底，祥子又无法察觉睦的状况，祥子的性格总是伤害她最紧密的人。唉，我彻底共情了这两人导致我完全无法以所谓客观的角度去评价谁对谁错，我既不希望祥子再被压力，也不希望睦继续受伤。可能真的不组乐队才是正确的吧。她俩这种关心之后那怕母鸡卡真的拥有了团魂这种关系可能也不会再有了。
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  风道北来  
+##### 8462#       发表于 2025-1-16 23:40
+
+大祥老师这种人在现实中其实挺难相处的。单是压力下情绪控制能力急速下降这点就很招人讨厌了。
+
+还有从她对C团和鸡团几个人的态度来看，她是能潜意识里区分“可以得罪的人”和“不要轻易得罪的人”的，对越是亲近的人越恣意。这人和她爹简直是一个模子里刻出来的。
+
+同样是外表光鲜内里一团糟的soyo遇到了圣爱音真是太幸运了呜呜呜。
+
+*****
+
+####  PDQ4  
+##### 8463#       发表于 2025-1-16 23:41
+
+刚刚把邦TV过了一下，怎么下期还有双子，是不是要前辈鉴赏吵架场景送经验了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+睦不会说话，日菜太会说话，睦没送出的那把伞最后会复刻双子送伞剧情吗
+
+<img src="https://img.saraba1st.com/forum/202501/16/234023mn1wa0njwdb99w0n.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (44.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:40 上传
+
+虽然mortis顶号让一切都变幻莫测了起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽蓝飘郁  
+##### 8464#       发表于 2025-1-16 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">压力太大了 我看得好紧张
+
+*****
+
+####  fsfs_freeze  
+##### 8465#       发表于 2025-1-16 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199233&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-16 23:37</a>
+只要mortis带队出问题 祥子救场就行了</blockquote>
+那可能比mortis登场还突兀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 8466#       发表于 2025-1-16 23:41
+
+另外睦的吉他水平其实是这次第一次被直接提及吧，看剧中人的反应应该就是很精准水平挺高的
+
+但睦因为自卑，认为自己的演奏莫得感情，只是单纯的精准不出错，而且真的没人夸过她的吉他，太惨了
+
+
+*****
+
+####  fsfs_freeze  
+##### 8467#       发表于 2025-1-16 23:42
+
+初华是不是夸过她的吉他
+
+*****
+
+####  PDQ4  
+##### 8468#       发表于 2025-1-16 23:43
+
+祥子和初华都夸过
+
+睦觉得自己吉他不行大概率还有更深的原因，期待就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 8469#       发表于 2025-1-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199265&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-16 23:40</a>
+
+大祥老师这种人在现实中其实挺难相处的。单是压力下情绪控制能力急速下降这点就很招人讨厌了。
+
+还有从她对C ...</blockquote>
+祥子的问题是，由于脸皮薄，一说就急（激化矛盾），一急就跑（拒绝沟通），这导致每次都是她点爆火药桶之后跑了，给对方留下成吨的心理伤害
+
+*****
+
+####  jaewoongh_  
+##### 8470#       发表于 2025-1-16 23:43
+
+大祥一切压力的根源就是她自己，我真的很好奇她有什么东西是不能跟队友说的？狗团两个人想复辟、一个人爱慕虚荣，前面互相隐瞒还说得过去，鸡团这里的处理我是真的完全无法理解，连最亲近的初华和睦都要压力，只能说大祥对爽姐的回旋镖实在够大
+
+*****
+
+####  山ノ内花音  
+##### 8471#       发表于 2025-1-16 23:43
+
+该狠狠追妻火葬场了
+
+*****
+
+####  小博禹  
+##### 8472#       发表于 2025-1-16 23:44
+
+很神奇吧，少女乐队
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猫执事  
+##### 8473#       发表于 2025-1-16 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199217&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-16 23:36</a>
+
+结合上集里最后的中二小剧场台词啊，睦失误然后当场死机这个表演实际上与中二小剧场的台词设定吻合上了， ...</blockquote>
+可能我没分清 旁白是动画旁白还是舞台上的台词
+
+*****
+
+####  玖羽  
+##### 8474#       发表于 2025-1-16 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199285&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-16 23:41</a>
+
+另外睦的吉他水平其实是这次第一次被直接提及吧，看剧中人的反应应该就是很精准水平挺高的
+
+但睦因为自卑， ...</blockquote>
+从MyGO一开始，都是直接默认睦的吉他是顶级水平，睦对自己的吉他自卑这件事确实是盲点
+
+*****
+
+####  看穿一切的鱼  
+##### 8475#       发表于 2025-1-16 23:45
+
+越想越不对劲，大莫老师你父母压力睦你不出来，媒体压力睦你不出来，大喵压力睦你不出来，大祥老师跟你吵一架你就顶号了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山ノ内花音  
+##### 8476#       发表于 2025-1-16 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199320&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-16 23:45</a>
+越想越不对劲，大莫老师你父母压力睦你不出来，媒体压力睦你不出来，大喵压力睦你不出来，大祥老师跟你吵一 ...</blockquote>
+说明这个才是最让睦破防的事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 8477#       发表于 2025-1-16 23:45
+
+<img src="https://p.sda1.dev/21/997a3f1395c4e2c3687aa6f257b55dbb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b3fce94dfc1062447ef03b1339c8149e/image.jpg" referrerpolicy="no-referrer">
+
