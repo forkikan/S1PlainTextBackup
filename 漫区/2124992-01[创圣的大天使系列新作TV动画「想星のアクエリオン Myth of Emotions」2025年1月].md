@@ -1926,3 +1926,11 @@ EVOL后面的LOGOS才是评价下滑
 
 EVOL是把狗变成两只的那部吗？然后末影还跟阿波罗尼亚斯那屑人和解（还是合体）了？印象中好像看过头翅有个怀孕又流产的暗示画面，是哪部的？
 
+
+*****
+
+####  八坂真寻  
+##### 200#       发表于 2025-1-16 16:01
+
+evol不算前世人狗之类的槽点还算良作，logos撑死算个庸作<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -9700,3 +9700,48 @@ hhw在鸡狗片场直接被ban掉了，不能一概而论</blockquote>
 
 AM的解散:观众都预计AM之后会解散，但原因基本都是负面消极的，如果仍然按MYGO的路数来首“诗超绊”肯定没人买账。但是如果是由于事务所理论解散AM，那么这就是积极正面的行为，因为这是对现实对肮脏手段的反抗。之后AM重组也会变得顺理成章，睦和祥子洗净天真、初华和海铃摆脱控制、喵梦以救世主形态出击，组成真正纯粹的AVE MUJICA。
 
+
+*****
+
+####  桜庭千景  
+##### 8220#       发表于 2025-1-16 16:01
+
+作为二创写的很好
+
+可惜mujica和mygo都不是一个勇者集合打倒boss的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 8221#       发表于 2025-1-16 16:01
+
+◎Billboard JAPANシングル・セールス集計速報
+
+1位『地平線を見ているか？』STU48（143,615枚）
+
+2位『KiLLKiSS』Ave Mujica（29,449枚）
+
+3位『消費期限』SEVENTEEN（12,164枚）
+
+4位『YOU GOTTA RUN』L'Arc～en～Ciel（9,504枚）
+
+5位『FUNKEYS』Da-iCE feat. 和田アキ子（7,412枚）
+
+B榜的數字居然卡9 差不多3萬<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+等今天O榜的日榜了
+
+*****
+
+####  kuroro  
+##### 8222#       发表于 2025-1-16 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194550&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-16 16:01</a>
+
+◎Billboard JAPANシングル・セールス集計速報
+
+1位『地平線を見ているか？』STU48（143,615枚）
+
+2位『KiLLK ...</blockquote>
+这是什么水平啊，我没啥概念
+
