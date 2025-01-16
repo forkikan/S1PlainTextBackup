@@ -14548,3 +14548,66 @@ https://ngabbs.com/read.php?tid=43042768
 
 我猜就是因为大祥老师说她只有母鸡卡了，然后队内这么吵下去母鸡卡真的不会长久了，为了保住大祥老师的母鸡卡，木子美决定换号给母鸡卡续命
 
+
+*****
+
+####  牢大别肘我了  
+##### 8675#       发表于 2025-1-17 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200135&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-1-17 01:39</a>
+我真不明白了，b站贴吧之类的大众社区玩那一套角色厨黑大战就算了，符合一般观众的认知逻辑，你s1怎么也这 ...</blockquote>
+你不也在攻击坛友吗，坛友攻击虚拟角色是傻逼，你攻击真实的人是什么东西。
+
+*****
+
+####  CCCTHUN  
+##### 8676#       发表于 2025-1-17 01:49
+
+我倾向于初华是在串的。
+
+mygo里对灯已经表现过她的察言观色水平了。
+
+结果这三集明明有很多暗中观察的特写，发言却纯得跟丁真一样，甚至有“退出=解散”“大家可以坐下来慢慢谈”这种“千万不要火并”级别的拱火。
+
+*****
+
+####  arnold_layne  
+##### 8677#       发表于 2025-1-17 01:49
+
+一首 拝啓ドッペルゲンガー 送给小睦 [https://www.bilibili.com/video/B ... 396846f0cce2dd03d41](https://www.bilibili.com/video/BV1hx411e7fG/?spm_id_from=333.337.search-card.all.click&amp;vd_source=b872ef76ffc30396846f0cce2dd03d41)
+
+
+*****
+
+####  江口夕  
+##### 8678#       发表于 2025-1-17 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坛友把初华当神仙了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  杂灰  
+##### 8679#       发表于 2025-1-17 01:55
+
+搞不好莫提斯会随口就把祥子情况全爆给队友或者狗团人
+
+*****
+
+####  阿兹尔  
+##### 8680#       发表于 2025-1-17 01:55
+
+感觉初华确实越来越像李子说的“黑洞”了，吞噬外来信息一点光都不漏
+
+
+*****
+
+####  江口夕  
+##### 8681#       发表于 2025-1-17 01:55
+
+现实里两头跑工作忙不过来的话，别说察言观色，甚至会降智到被诈骗电话骗。更何况，初华根本不了解睦，帮睦更是无从谈起。
+我倒觉得初华目前的剧情设计的挺合理。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
