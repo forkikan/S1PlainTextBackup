@@ -259,3 +259,26 @@ STEAM版吗
 
 二十周年设定本也没有，虽然伊苏35周年也没有<img src="https://static.saraba1st.com/image/smiley/carton2017/392.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 7425#       发表于 2025-1-16 16:42
+
+<img src="https://img.saraba1st.com/forum/202501/16/164221famrwr0mr0x78xga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:42 上传
+
+设定集昨天就有了，你法没转
+
+*****
+
+####  卢迪克  
+##### 7426#       发表于 2025-1-16 16:46
+
+好晚
+
