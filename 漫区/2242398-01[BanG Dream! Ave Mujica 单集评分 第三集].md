@@ -1086,3 +1086,21 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 +1吧
 
+
+*****
+
+####  PigMourne  
+##### 116#       发表于 2025-1-17 04:36
+
+ 本帖最后由 PigMourne 于 2025-1-17 04:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200253&amp;ptid=2242398" target="_blank">闪光的肥耗子 发表于 2025-1-17 02:25</a>
+
+-2
+
+为爆而爆毫无逻辑的情绪流脚本
+
+睦瘫痪演出中断-&gt;队友跑路下台-&gt;观众觉得睦的演技棒极了-&gt;希望睦再来一次 ...</blockquote>
+我理解的巡回第一场应该是跑路下台之后让睦调整完再正常演出吧，只不过因为主视角睦精神恍惚外加不太重要就全部跳过了。对观众来说就是开场的话剧部分稍微长了点，还算是在买票的预期范围内
+
+要真是让睦在那里嗯坐几个小时也太奇葩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
