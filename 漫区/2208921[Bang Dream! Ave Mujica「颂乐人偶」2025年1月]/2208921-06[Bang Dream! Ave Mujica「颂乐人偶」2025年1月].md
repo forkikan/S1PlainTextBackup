@@ -9493,3 +9493,35 @@ happy hello world，欢乐路线的团，和banddream其他团也不像一个世
 主唱心是不知什么巨型势力的大小姐 ...</blockquote>
 DJ就是不负责任何乐器？
 
+
+*****
+
+####  mono  
+##### 8202#       发表于 2025-1-16 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192845&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-16 12:01</a>
+
+DJ就是不负责任何乐器？</blockquote>
+我也不知道DJ台算不算乐器
+
+演奏时可以加效果啥的
+
+
+*****
+
+####  ykyin09  
+##### 8203#       发表于 2025-1-16 12:25
+
+灵能系乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  友情的结晶  
+##### 8204#       发表于 2025-1-16 12:27
+
+不如问米歇尔那个人偶服是怎么打碟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
