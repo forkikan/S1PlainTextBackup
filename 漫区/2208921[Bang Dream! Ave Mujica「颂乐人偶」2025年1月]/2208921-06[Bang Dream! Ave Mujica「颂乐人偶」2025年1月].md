@@ -10991,3 +10991,306 @@ mortis的肉体水平怎么样？我怕之后打架的时候吃亏<img src="http
 
 这真是正常人会有的想法吗
 
+
+*****
+
+####  aptx8285144  
+##### 8341#       发表于 2025-1-16 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196327&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-16 19:45</a>
+
+再强调一遍这是乐队番，能让主角找回自我的方式基本在音乐道路实现，这是故事基础规则之一。
+
+接受演技对睦 ...</blockquote>
+最近三话对音乐已经没什么印象了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yone0000  
+##### 8342#       发表于 2025-1-16 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下集预告，SOYO真的要被黑睦拷打了吗
+
+*****
+
+####  jaewoongh_  
+##### 8343#       发表于 2025-1-16 22:57
+
+mujica如果想破镜重圆，要么大祥老师放下身段别那么拧巴，要么靠灯、美玲之类的外力去把大祥掰回来，总之大祥怎么都是要白的，就看怎么写了
+
+*****
+
+####  jaewoongh_  
+##### 8344#       发表于 2025-1-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198601&amp;ptid=2208921" target="_blank">borrowface 发表于 2025-1-16 22:55</a>
+
+确实，go团这张照看着人各有志但大家都知道这是最有团魂的时候，鸡团这照一出来怕不是各位最后一次笑 ...</blockquote>
+一眼营业笑容
+
+*****
+
+####  akiomn  
+##### 8345#       发表于 2025-1-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198604&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 22:55</a>
+喵梦这...
+
+上集结尾的表情我还以为她是意识到自己闯祸了，没想到竟然是觉得睦演太好了
+
+这真是正常人会有的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她前面要是正常人，第一集摘面后就不该继续跟祥子作对了
+反正喵梦估计在炸团吃瘪前还是这鸟样
+
+*****
+
+####  wqan1007  
+##### 8346#       发表于 2025-1-16 22:58
+
+睦老师挺能跟啊
+
+<img src="https://img.saraba1st.com/forum/202501/16/225803ckwtey5wy3w43lw1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000104548.jpg</strong> (294.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:58 上传
+
+*****
+
+####  新HGCG  
+##### 8347#       发表于 2025-1-16 22:58
+
+<img src="https://img.saraba1st.com/forum/202501/16/225818tf2iu5jxupfxiupz.png" referrerpolicy="no-referrer">
+
+<strong>3S5J}W6U8ZM2C~62~3R}891.png</strong> (8.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:58 上传
+
+想看第四集
+
+*****
+
+####  cauchua3  
+##### 8348#       发表于 2025-1-16 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198604&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 22:55</a>
+
+喵梦这...
+
+上集结尾的表情我还以为她是意识到自己闯祸了，没想到竟然是觉得睦演太好了
+
+这真是正常人会有的 ...</blockquote>
+以结果说话，不管有没有闯祸，舆论的反应是大成功，那不就是睦太老戏骨了吗
+
+*****
+
+####  ghostpia  
+##### 8349#       发表于 2025-1-16 22:58
+
+海铃生人勿近的气场越来越浓了
+
+在mujica确确实实就是个打卡上班的社畜模样
+
+第一季看了太多在有狸希在场时的高光表现，第二季貌似才是她本来性格
+
+*****
+
+####  清江望月  
+##### 8350#       发表于 2025-1-16 22:59
+
+大祥老师吵架起手式：“菜就多练”，真的让人绷不住。
+
+*****
+
+####  AP0rt_  
+##### 8351#       发表于 2025-1-16 23:00
+
+Mujica这几个怎么越看越像五个ad打排位啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 8352#       发表于 2025-1-16 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198604&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 22:55</a>
+喵梦这...
+
+上集结尾的表情我还以为她是意识到自己闯祸了，没想到竟然是觉得睦演太好了
+
+这真是正常人会有的 ...</blockquote>
+木头要是晕倒都还说，直挺挺坐那了正常都是当演技吧。谁能想到明星艺人之家出身受过精英教育从小上电视的美少女在重要舞台上直接就摆了。
+
+*****
+
+####  aptx8285144  
+##### 8353#       发表于 2025-1-16 23:00
+
+祥子和睦先姑且不论，<strong>能在音乐番的主角团</strong>里面看到瞄梦这样阴阳怪气的语气进行讽刺也算是开阔眼界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 8354#       发表于 2025-1-16 23:00
+
+喵梦对着睦头人的失误在背后那么打心底里佩服就让人觉得很怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 8355#       发表于 2025-1-16 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">无语啊，弹幕全在那刷喵梦对观众来说是究极好猫，喵梦理论是对的之类的狗屁。那照这理论蔡徐坤肖战就是对的，对观众来说肖战就是究极好艺人啊。说这种话都不过脑子想想的吗。每音乐的乐队和不致力于搞笑的相声有什么区别啊？
+
+
+*****
+
+####  BebopEin  
+##### 8356#       发表于 2025-1-16 23:02
+
+坏了，这三话无论戏里的观众还是戏外的我们能记住的都只是你们的表演，五人乐队来点音乐行不行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 8357#       发表于 2025-1-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198643&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-1-16 22:59</a>
+
+大祥老师吵架起手式：“菜就多练”，真的让人绷不住。</blockquote>
+从小精英教育的富姐是这样的，遇到冲突下意识认为是能力问题
+
+*****
+
+####  oldgoat  
+##### 8358#       发表于 2025-1-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198320&amp;ptid=2208921" target="_blank">鲍里斯 发表于 2025-1-16 22:32</a>
+
+其实祥子比上集好多了吧，这集挺多为睦出头的，就是吵架吵不过就操作变形了
+
+—— 来自 vivo V2172A, Andro ...</blockquote>
+祥子不把自己组mujica的原因和心态真正整理清楚并向队友们公布争取大家支持的话，这架永远都吵不赢的。
+
+*****
+
+####  刑部姬真可爱  
+##### 8359#       发表于 2025-1-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198617&amp;ptid=2208921" target="_blank">yone0000 发表于 2025-1-16 22:57</a>
+
+看了下集预告，SOYO真的要被黑睦拷打了吗</blockquote>
+太期待了，一想到后面可能会有soyo在黑睦面前委曲求全的剧情就忍不住轻哼起来
+
+*****
+
+####  山ノ内花音  
+##### 8360#       发表于 2025-1-16 23:03
+
+感觉下集喵梦反而会照顾低谷中的祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  utotqe  
+##### 8361#       发表于 2025-1-16 23:04
+
+ 本帖最后由 utotqe 于 2025-1-16 23:06 编辑 
+
+终于敢进这楼了，存点感想。之前看到剧透cv表还以为全剧都是舞台剧呢，还好还好
+
+喵老师确实不是所谓的离小睦最近的人，甚至可以说剧情上喵睦的互动只是为塑造她自己服务的。喵老师不知道小祥想要什么，因为小祥不说，也不知道小睦想要什么，因为小祥不说。从这方面来说，喵老师就是离队友最远的人（海初好歹有注意到睦走错路），甚至她离观众也不能说近，因为提前两个月买票来看巡演的观众当然不会只是为了上次演出睦头的即兴而来的。对于舞台剧，她只是看到睦有实现自己梦想的才能，于是推着睦向自己的梦想的方向走。与其说是流量厨不如说是像千圣那样为了个人的职业规划不择手段，但是又耐不住性子，或者缺乏千圣那样的经验带来的，对舞台和观众的期望的理解。现在的阶段比千圣恶劣，但是应该也比千圣容易修正。
+
+相比起来小祥到现在仍然是最了解睦的（，应该到最后也会是）。她知道小睦不是在演是在自爆，也知道她不能继续这样自爆下去。她甚至知道她想弹吉他，喵老师问为什么一定要是乐队，其中一个原因肯定是为了睦的吉他能有一个远离父母的世界。但是小祥不说，不知道为什么。她这种谜之沉默也部分导致了她在和喵老师对线时总是落于下风。不知道剧本有没有打算解释，不解释就当作是笨祥人设，也能接受毕竟第一集就很笨
+
+其实抛去性格和精神状态，小睦的内心深处仍然是邦邦里有过的父母阴影（正好这集把layer拉出来了，贷喵老师救睦可以从搭线chuchu贷）和访谈里说过的睦“自己的东西”，音乐，小祥，小黄瓜。连小祥都不知道现在的睦为何而行动或不行动。她做现在的一切的原因是小祥快要坏掉了，什么都不说的原因是小祥亲手把ccc毁掉了。（顺便一说从这集来看失言PTSD应该只上溯到ccc为止，不会再有小时候上综艺说错话之类的了）之后不知道会不会有祥睦过去篇，然后祥睦狂涨！劲涨！
+
+总之比起上一集的压抑，这集更像解明篇，非常舒适。在意的新谜团是爱笑睦头是哪个阶段才能刷出来，为什么会给小祥留下这么深的印象，以及和高尾配二十多次睦也会笑有没有关系。另一个问题是，为什么睦头会觉得自己吉他菜。这个听起来不像是技术上的菜，从和ccc众对比来看应该是缺乏自己的表达之类的。顺便一说第一集和第三集仗着观众熟悉，把解散scene简直玩出了花，好评以及Mortis的声线有点像另一只吉他怪兽（指otae）
+
+image.png
+(258.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/230348yxx33eqy8taoyat1.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 8362#       发表于 2025-1-16 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198668&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-16 23:00</a>
+
+无语啊，弹幕全在那刷喵梦对观众来说是究极好猫，喵梦理论是对的之类的狗屁。那照这理论蔡徐坤肖战就是对的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集之前大伙可能都没认识到原来大祥老师想搞的是本格派乐队
+
+*****
+
+####  PDQ4  
+##### 8363#       发表于 2025-1-16 23:05
+
+随便发散点东西，可能cp脑，图一乐
+
+先说结论，睦关于吉他唱歌部分的回忆，可能隐去了祥子的身影
+
+首先是这张图，能看到吉他和祥子有些重合，其他人都没有这个情况，祥子这里刻意切了镜头
+
+<img src="https://img.saraba1st.com/forum/202501/16/225246ukbyjbutxzalia62.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (732.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:52 上传
+
+然后是这段剧情，睦每天都谈吉他，一直在一起，谈吉他这件事在mortis嘴里被形容成一起唱歌
+
+这里可以回忆3rd的剧情，睦小时候有一个朋友，每天一起唱歌，一起跳舞
+
+如果是单纯指吉他，唱歌可以解释的通，那跳舞呢
+
+有意思的是，截止目前剧情为止，除了主场之外的角色，只有睦祥两个人有唱出声的场景（见狗动画第三集）
+
+联想到第一集，祥子和睦一起给自己母亲准备生日礼物，是和钢琴（音乐）相关的礼物，那睦祥每天一起唱歌弹钢琴和吉他的可能性？
+
+结合mortis讨厌祥子来想，她作为睦回忆的讲述人，她也有故意隐去祥子的动机
+
+以及一些可能有关的想法
+
+睦弹吉他出现问题（吉他唱不出来），可以通过校服变化确定在初中-ccc前，因为ccc的时候已经不开心了
+
+吉他应该是某人送的礼物（蝴蝶结），这个蝴蝶结在弹奏不和谐音的途中掉落了
+
+而恰巧，祥妈去世也是发生在这个时间段内（虽然时间跨度很大）
+
+恰巧，祥妈的遗物人偶和睦具有相当多的关联性（最大的证据是分镜）
+
+虽然可能全都是巧合我想多了，发出来供漏油一乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 8364#       发表于 2025-1-16 23:06
+
+就这个mo箱 太劲了
+
+<img src="https://img.saraba1st.com/forum/202501/16/230604g67ov8o58vp8b8ri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>95e6d9ed61f3f12e0220730443ef91f0.jpeg</strong> (634.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-16 23:06 上传
+
+https://x.com/ng_suzuki3/status/1879900016598471105?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
