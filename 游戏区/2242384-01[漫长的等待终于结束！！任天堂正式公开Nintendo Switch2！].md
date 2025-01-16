@@ -855,3 +855,121 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 只是开始的结束而已，按你任这个挤牙膏的速度怕是下半年才能上市，不想和黄牛搏斗到手估计要26年了
 
+
+*****
+
+####  你号又双叒没了  
+##### 100#       发表于 2025-1-16 22:07
+
+既然手柄能当鼠标用，那么马造3D制造关卡就很好操控了吧。赶紧端上来罢。
+
+*****
+
+####  铅笔  
+##### 101#       发表于 2025-1-16 22:07
+
+<blockquote>Linkwjj 发表于 2025-1-16 21:08
+4/2直面会，看来暑假发售了</blockquote>
+够呛，搞不好一年宣发期，明年三月发售。
+
+*****
+
+####  Linkwjj  
+##### 102#       发表于 2025-1-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197249&amp;ptid=2242384" target="_blank">downnote 发表于 2025-1-16 21:20</a>
+
+这我还真不太记得了，switch公布时候有留这么久的预告吗</blockquote>
+10月的视频，1月的发布会，3月发售
+
+现在1月的视频，4月的发布会，那么自然5月底6月初发售
+
+*****
+
+####  acejoe  
+##### 103#       发表于 2025-1-16 22:07
+
+没玩具感了
+
+*****
+
+####  Khellendros  
+##### 104#       发表于 2025-1-16 22:09
+
+没啥新活算是意料之中，之前既要性能又要整活那几代第一方产能全炸了，还是先提升性能积累开发经验比较稳妥
+
+*****
+
+####  nage560  
+##### 105#       发表于 2025-1-16 22:09
+
+这的确普通，造型上几乎没有任何创新啊，就是机能加强版，而且还不知道机能提升多少，听说只有3.1tf。另外建议说泥潭是任潭的索索进来看看这贴。
+
+*****
+
+####  ヨッタ  
+##### 106#       发表于 2025-1-16 22:10
+
+没啥能说的可以闭嘴的，没必要硬憋句标新立异的垃圾话彰显自己的智能
+
+*****
+
+####  drfarsight  
+##### 107#       发表于 2025-1-16 22:11
+
+明明等待才刚刚开始，什么时候发售还是没说
+
+*****
+
+####  Linkwjj  
+##### 108#       发表于 2025-1-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197913&amp;ptid=2242384" target="_blank">铅笔 发表于 2025-1-16 22:07</a>
+
+够呛，搞不好一年宣发期，明年三月发售。</blockquote>
+游戏界现在短平快宣发就是古川带起来的，你还想他开倒车啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lbj5454  
+##### 109#       发表于 2025-1-16 22:11
+
+终于结束了 历时72天
+
+<img src="https://img.saraba1st.com/forum/202501/16/221147cbjge51ixgqxeri2.jpg" referrerpolicy="no-referrer">
+
+<strong>NS2倒计时-06.jpg</strong> (351.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:11 上传
+
+
+*****
+
+####  88ace88  
+##### 110#       发表于 2025-1-16 22:12
+
+主要也是这个pv能说的东西确实不多，硬要讨论就只能是这画风了
+
+*****
+
+####  Midnight.Coup  
+##### 111#       发表于 2025-1-16 22:12
+
+二合一手柄设计也是没办法再优化了吧，底座模式还得买 Switch Pro 手柄
+
+*****
+
+####  yamato gun  
+##### 112#       发表于 2025-1-16 22:12
+
+所以到底是不是全贴合屏，好急<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  leommoo  
+##### 113#       发表于 2025-1-16 22:13
+
+真的微妙，但换也是要换的，毕竟老古董坚持了那么多年了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
