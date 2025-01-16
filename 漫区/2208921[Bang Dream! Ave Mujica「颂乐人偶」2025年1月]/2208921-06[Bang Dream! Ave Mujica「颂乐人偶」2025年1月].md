@@ -10265,3 +10265,115 @@ https://bbs.saraba1st.com/2b/thread-2066984-1-1.html第10集的话就从101页�
 
 2025-1-16 21:51 上传
 
+
+*****
+
+####  御幸一也  
+##### 8268#       发表于 2025-1-16 21:59
+
+下期怎麼雙子<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/16/215857wuuav3obibs58xvc.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2025 #247 1-7-48 screenshot.jpg</strong> (387.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:58 上传
+
+*****
+
+####  NODY  
+##### 8269#       发表于 2025-1-16 22:00
+
+mujica双子要素太多了
+
+*****
+
+####  新HGCG  
+##### 8270#       发表于 2025-1-16 22:01
+
+开始了哦
+
+*****
+
+####  鲍里斯  
+##### 8271#       发表于 2025-1-16 22:01
+
+下期预告看来祥p真被mo夺权了吗
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  玖羽  
+##### 8272#       发表于 2025-1-16 22:02
+
+第4话预告
+
+Soyo果然当场发现Mortis不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+Mortis貌似想搞好和另外三人的关系，祥子貌似很抵触<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  akiomn  
+##### 8273#       发表于 2025-1-16 22:02
+
+卧槽，soyo和祥子都发现睦不对劲了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子下集不会要被夺权了吧？又要被抽陀螺一集了
+
+*****
+
+####  新HGCG  
+##### 8274#       发表于 2025-1-16 22:03
+
+你们怎么能看到预告的，我这里刚放完OP啊
+
+
+*****
+
+####  borrowface  
+##### 8275#       发表于 2025-1-16 22:05
+
+这开头太残酷了，睦的精神问题被当成演技，都已经失去意识了却被人称赞，那对睦而言岂不是就是在证明自己的人格有没有根本就不重要
+
+*****
+
+####  akiomn  
+##### 8276#       发表于 2025-1-16 22:05
+
+不对，预告里她们还是夏季校服
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">pv里海玲是秋季校服，这不会盗号盗了好几个月吧？
+
+*****
+
+####  玖羽  
+##### 8277#       发表于 2025-1-16 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197875&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-16 22:05</a>
+
+不对，预告里她们还是夏季校服
+
+pv里海玲是秋季校服，这不会盗号盗了好几个月吧？ ...</blockquote>
+东京10月1日换冬服，迄今为止的几集都发生在9月
+
+这就好像MyGO第10话换夏服貌似过了很久，实际上爱音破防之后第二天就换夏服
+
+*****
+
+####  阿卡拉兰斯  
+##### 8278#       发表于 2025-1-16 22:06
+
+终于有高清的新内容了
+
+*****
+
+####  玖羽  
+##### 8279#       发表于 2025-1-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197874&amp;ptid=2208921" target="_blank">borrowface 发表于 2025-1-16 22:05</a>
+
+这开头太残酷了，睦的精神问题被当成演技，都已经失去意识了却被人称赞，那对睦而言岂不是就是在证明自己的 ...</blockquote>
+这部动画的剧本是精于玩这一手的，第二话营造的氛围是睦的精神状态会让舞台演出出问题，在第三话就告诉你舞台演出不仅没出问题，反而效果更好了，但是这不仅不意味着睦变好，反而意味着双倍恶化
+
