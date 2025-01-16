@@ -9315,3 +9315,11 @@ mujica的归mujica
 后面小祥也要变ob一串</blockquote>
 你这么搞角色还没精分，观众要精分了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 8185#       发表于 2025-1-16 10:07
+
+真这么安排剧情，我建议直接改成女神异闻录6
+
