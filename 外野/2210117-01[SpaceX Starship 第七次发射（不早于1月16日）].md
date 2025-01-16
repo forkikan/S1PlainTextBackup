@@ -1119,3 +1119,14 @@ NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.co
 
 鸽王终于。。。。一个公司成立25年终于有半个合格产品了  可喜可贺
 
+
+*****
+
+####  stevenzero  
+##### 83#       发表于 2025-1-16 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194537&amp;ptid=2210117" target="_blank">瓦格雷 发表于 2025-1-16 15:59</a>
+鸽王终于。。。。一个公司成立25年终于有半个合格产品了  可喜可贺</blockquote>
+新谢泼德这东西也算合格了吧。
+虽然直上直下的回收经验现在来看在轨道级发射上真是派不上用场。
+

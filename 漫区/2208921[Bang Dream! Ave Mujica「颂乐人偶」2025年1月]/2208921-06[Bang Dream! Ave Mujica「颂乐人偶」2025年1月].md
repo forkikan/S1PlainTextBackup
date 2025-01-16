@@ -9745,3 +9745,79 @@ B榜的數字居然卡9 差不多3萬<img src="https://static.saraba1st.com/imag
 2位『KiLLK ...</blockquote>
 这是什么水平啊，我没啥概念
 
+
+*****
+
+####  山ノ内花音  
+##### 8223#       发表于 2025-1-16 16:07
+
+这小卡还是得多塞
+
+*****
+
+####  杂灰  
+##### 8224#       发表于 2025-1-16 16:08
+
+wsd：该拿这些钱去做bg单机主机大作了
+
+*****
+
+####  NODY  
+##### 8225#       发表于 2025-1-16 16:10
+
+看贴吧那边的销量楼分析，这单wsd塞了亲签商法+免费live，就是冲着刷一波好看的销量开门红炒热度去的，首页也是看到说三百张五百张抱箱买的富哥都有不少
+
+*****
+
+####  御幸一也  
+##### 8226#       发表于 2025-1-16 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194593&amp;ptid=2208921" target="_blank">kuroro 发表于 2025-1-16 16:06</a>
+
+这是什么水平啊，我没啥概念</blockquote>
+看你和誰比，二偶裡nbcs級，你邦裡的話爆的這成績不錯了，和自己比的話，我覺得是大勝利
+
+因為這次我本來期待值就是2萬左右，真能初動這麼多簡直是開香檳<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 8227#       发表于 2025-1-16 16:12
+
+能不能做操作卖狗母鸡卡成员砍怪的游戏
+
+*****
+
+####  kuroro  
+##### 8228#       发表于 2025-1-16 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194643&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-16 16:11</a>
+
+看你和誰比，二偶裡nbcs級，你邦裡的話爆的這成績不錯了，和自己比的話，我覺得是大勝利
+
+因為這次我本來 ...</blockquote>
+噢噢，那还不错嘛
+
+*****
+
+####  零壹贰叁  
+##### 8229#       发表于 2025-1-16 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194328&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-16 15:37</a>
+这个海铃分析我觉得不错，内容基本都是我赞成的
+
+https://tieba.baidu.com/p/9417028806 ...</blockquote>
+挺有道理的
+不过按这个分析来看其实海铃也不会有多黑
+难不成颜艺真的是因为玩乐队很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bird-lay  
+##### 8230#       发表于 2025-1-16 16:14
+
+买晚了，日亚现在都还没发货
+
+而且写的是初回特典，不会发货晚的没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
