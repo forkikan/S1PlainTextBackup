@@ -1355,3 +1355,74 @@ hachi越画越好了
 
 说不定是歌也在藏，好听都在PV外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 3096#       发表于 2025-1-16 23:56
+
+把红高达连驾驶员带机一起俘了不正好规避老爷机的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+然后下一次出场就是引发二冲
+
+*****
+
+####  刺客ares  
+##### 3097#       发表于 2025-1-16 23:56
+
+GQuuuuuuX改名GQ藏藏藏藏藏藏X吧
+
+世界观藏，宣发藏，机体藏，周边藏，爆点藏，OP藏，鹤卷来了全藏了（
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3098#       发表于 2025-1-16 23:58
+
+最后发现藏的闹麻了其实什么大的都没有，只是普通高中生开着不知道从哪个世界毛来的MS打黑拳的热血故事，你楼，完结！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  吃果冻吧你  
+##### 3099#       发表于 2025-1-16 23:58
+
+感觉牢修的戏份基本全在先行版了
+
+牢修，保重，嗯
+
+*****
+
+####  Gysumitka  
+##### 3100#       发表于 2025-1-16 23:59
+
+等明天一看发现藏的是GQX弯腰红豆泥斯密马赛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sliver1997  
+##### 3101#       发表于 2025-1-17 00:04
+
+触发我的ff16 ptsd了，小吉藏了，小吉藏了大的，小吉什么都没藏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RE㐅ia  
+##### 3102#       发表于 2025-1-17 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199408&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-16 23:52</a>
+
+明天按照这张开始画圈，看这一个月的预测到底能命中多少</blockquote>
+其实是群里搞的宾果活动，正式版没有重复的。这张就当是S1专属，BINGO了就找几个眼熟的人加鹅好了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/17/000338dpazuxvyxgsshhvy.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2025-01-17 at 12.01.54 AM.png</strong> (298.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 00:03 上传
+

@@ -12615,3 +12615,243 @@ aff356688009c9b36010ac297f8745a1.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/16/235542ad07jq772n32h02j.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 8499#       发表于 2025-1-16 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199115&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-16 23:29</a>
+
+说到底中二小剧场是祥子要加的，现在中二小剧场因为睦的失误爆火，然后你祥子反而说不搞这个了，对于没有上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">祥子有说要丢掉演剧的噱头吗？她只是在坚守乐队不能没音乐的底线吧？是喵梦说没音乐也无所吊谓，大家应该服务粉丝流量恰个爽。结尾那个联动就是，那个音乐空间要跟她们联动但又不想让她们演奏，只想让睦复刻舞台事故打断演奏直接退场。
+
+真要说还有比大家都是来组乐队的，突然钻个人出来说组勾八乐队，转行专门演小品多赚钱啊！更莫名其妙的吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 8500#       发表于 2025-1-16 23:57
+
+喵梦太在意观众了 三流的主播才迎合观众呢
+
+*****
+
+####  厚乳果珍爽  
+##### 8501#       发表于 2025-1-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199337&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-16 23:47</a>
+
+睦头不是觉得吉他弹得不行吧？是痛恨自己没法当吉他主唱。</blockquote>
+“唱”是指吉他唱歌，实际上就是说的弹吉他
+
+*****
+
+####  rollingusagi  
+##### 8502#       发表于 2025-1-16 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这集看完感觉对母鸡卡团里的角色定位产生了奇怪的偏移，之前一直以为祥子是c位，现在越来越觉得是soyo那种偏幕后经常扮黑脸的一本正经的搞笑角色，相反搞不好小睦头才是c位，小睦头无论能力还是背景都是一顶一的强，就是精神状况不太好，但是这一换号解决了精神问题那不就是完美的center了？而且直接解决了鸡团相比起前辈团缺少拧绳人的问题
+
+*****
+
+####  pzk  
+##### 8503#       发表于 2025-1-16 23:58
+
+说实话还是不太喜欢在世界观比较现实的作品里出现“疯掉后反而实力变强”的桥段的……
+
+*****
+
+####  MASKA-1  
+##### 8504#       发表于 2025-1-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199466&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-16 23:57</a>
+
+喵梦太在意观众了 三流的主播才迎合观众呢</blockquote>
+隔壁不迎合的已经103打工赔钱了（
+
+*****
+
+####  玖羽  
+##### 8505#       发表于 2025-1-16 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199453&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-16 23:56</a>
+
+祥子有说要丢掉演剧的噱头吗？她只是在坚守乐队不能没音乐的底线吧？是喵梦说没音乐也无所吊谓，大家应该 ...</blockquote>
+重看了一下MyGO第12话，发现祥子也没尊重过喵梦的音乐
+
+见面的时候喵梦问为什么找我，祥子说的是：1）脸和数字；2）你是双利手；3）你的打法很特殊；4）但是还要多练
+
+回过头来想，这也太不会说话了，双利手是天生的，打法是她选择的风格，这根本算不上称赞，后面马上跟一句还要多练，更是显得前面的称赞很敷衍
+
+这一话特意展现了喵梦练鼓多努力，就连Masking都能认可，水平肯定是有的，祥子那句话绝对让喵梦在心里很不爽
+
+喵梦肯定觉得，祥子根本看不上她为打鼓付出的努力，找她纯粹是为了脸和数字
+
+所以喵梦接下来马上开始谈利益：对我有什么好处，祥子拿出了若叶睦
+
+喵梦：OK，你要脸和数字，那我就给你脸和数字
+
+*****
+
+####  梅斯之围  
+##### 8506#       发表于 2025-1-17 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199466&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-16 23:57</a>
+喵梦太在意观众了 三流的主播才迎合观众呢</blockquote>
+她对音乐应该是有追求的，不然不会那么用功练鼓，做美妆视频也不用敲鼓来着
+
+*****
+
+####  Renes  
+##### 8507#       发表于 2025-1-17 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199478&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-1-16 23:58</a>
+
+这集看完感觉对母鸡卡团里的角色定位产生了奇怪的偏移，之前一直以为祥子是c位，现在越来越觉得是soyo那种 ...</blockquote>
+但母鸡卡是祥子的母鸡卡，既然你睦头人拧绳这么厉害，那以后母鸡卡是姓祥还是姓睦啊，要改叫睦鸡卡了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+母鸡卡是祥子逃避糟糕现实，各种画饼忽悠搞出的避难所，自己的世界，但现在祥子越来越控制不住局势了
+
+*****
+
+####  Libartas  
+##### 8508#       发表于 2025-1-17 00:01
+
+睦头在学校搞积极社交其实也是在模仿以前的soyo吧
+
+*****
+
+####  阿兹尔  
+##### 8509#       发表于 2025-1-17 00:01
+
+这样一说好像也是，祥子说为了大猫的脸和数字，这集又看不出大猫在音乐上的努力，确实太沉浸在自己的世界里了
+
+*****
+
+####  Renes  
+##### 8510#       发表于 2025-1-17 00:01
+
+睦毕竟有演员天赋，估计就是把自己见过的人表现好的地方都复刻到自己身上了
+
+*****
+
+####  siansian  
+##### 8511#       发表于 2025-1-17 00:02
+
+楼里辱骂大祥的至少收敛点吧，两个月后迟早要吃回旋镖
+
+
+*****
+
+####  fsfs_freeze  
+##### 8512#       发表于 2025-1-17 00:02
+
+想到一个问题，祥子不想彻底搞戏剧的直接原因是睦不想(她同时也认为睦是喜欢演奏而非演戏的)，那现在mortis点头了那祥子还能怎么圆呢？可能就要“抱着自己的理想溺死”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 8513#       发表于 2025-1-17 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199491&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-16 23:59</a>
+
+重看了一下MyGO第12话，发现祥子也没尊重过喵梦的音乐
+
+见面的时候喵梦问为什么找我，祥子说的是：1）脸 ...</blockquote>
+感觉想法有点偏黑暗，就目前来看，无论是祥子看低喵梦，还是喵梦认为祥子贬低她都没有类似的暗示。
+
+*****
+
+####  PDQ4  
+##### 8514#       发表于 2025-1-17 00:02
+
+睦真的没有实力吗，我觉得她只是对自己不自信，自我评价过低
+
+找回了本来属于自己的力量而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+睦这个人设一看就是天才吉他手+演员
+
+脑内小剧场里睦妈是真的夸睦有天赋的，不过外界认为那是睦妈带来的忽视她而已
+
+*****
+
+####  厚乳果珍爽  
+##### 8515#       发表于 2025-1-17 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，整个团里就一个刺头喵梦，初华跟睦会听祥子的，海玲完美打工人不在乎这个，就喵梦这个刺头不听指挥，一切的一切都是他在武道馆上脱面具引起的。
+
+按祥子的想法，面具肯定会脱，但是不是现在，喵梦来的这一手把一切计划都打乱了。
+
+*****
+
+####  ads147147  
+##### 8516#       发表于 2025-1-17 00:04
+
+睦家的架子鼓鼓槌都给敲烂了，大概率是喵梦自用的吧，又或者是暗示她够努力了，所以祥子口不择言说大喵不努力就和她喷灯不够努力一样，过于高高在上了。也难怪二打一喵梦没输，海玲也看的很清楚，只是她的立场太中立了。
+
+比较搞的是初华才是那个没空来合练的，难道真的要拿sumimi开刀。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Yugao  
+##### 8517#       发表于 2025-1-17 00:04
+
+黑睦的状态：太喜欢这个乐队了，全都是无症状精神病
+
+*****
+
+####  PDQ4  
+##### 8518#       发表于 2025-1-17 00:04
+
+睦学爽姐有点搞笑了，是不是忘了爽姐是学祥子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 8519#       发表于 2025-1-17 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199530&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-17 00:02</a>
+感觉想法有点偏黑暗，就目前来看，无论是祥子看低喵梦，还是喵梦认为祥子贬低她都没有类似的暗示。 ...</blockquote>
+如果这是为了展现现在的祥子自尊心太高确实是有可能的，“不需要太强的个人色彩只要听我指挥就行了”
+
+*****
+
+####  厄神之息  
+##### 8520#       发表于 2025-1-17 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199303&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-16 23:43</a>
+
+大祥一切压力的根源就是她自己，我真的很好奇她有什么东西是不能跟队友说的？狗团两个人想复辟、一个人爱慕 ...</blockquote>
+脸皮薄啊，高贵的ob小姐不能认错也不能示弱的，示弱认错就不高贵了。
+
+
+*****
+
+####  亚尔特留斯  
+##### 8521#       发表于 2025-1-17 00:05
+
+大喵这种发疯似的想要红想要出名  有点像日本娱乐圈的某种缩影  内卷到了极致 每个人都在拼命多维发展想要找到流量密码
+
+*****
+
+####  Renes  
+##### 8522#       发表于 2025-1-17 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199528&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-17 00:02</a>
+
+想到一个问题，祥子不想彻底搞戏剧的直接原因是睦不想(她同时也认为睦是喜欢演奏而非演戏的)，那现在mortis ...</blockquote>
+祥子这集就明确说了，母鸡卡是她的世界，是她仅剩的避难所，以及对睦说的是你该是站在我这边的。
+
+所以实际上睦怎么想的不重要，重要的是压制住喵梦的反骨，帮助她把住母鸡卡的方向盘。这也是为什么睦破防，祥子这时候眼里根本没有她的想法。
+
+所以你看下集合影祥子都不站C位了，这母鸡卡要改姓睦鸡卡了，母鸡卡能够续存，但是不是祥子期望中的母鸡卡可不好说，而且祥子现在也下不了车。
+
+*****
+
+####  阿兹尔  
+##### 8523#       发表于 2025-1-17 00:05
+
+尬黑了，漫画里爽世没遇到祥子前就是同班同学依靠的妈妈系社交人设了，这也要学祥子？学在哪？
+

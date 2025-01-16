@@ -810,3 +810,77 @@ Soyo：姐们你谁啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  敏感词好多  
+##### 87#       发表于 2025-1-16 23:56
+
+睦：孩子们，这不是我
+
+*****
+
+####  Yinacona  
+##### 88#       发表于 2025-1-16 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">连踩3集油门，总觉得差了些什么，大概是没想到都第三集了好像也没看出哪里能有个小太阳照一照的迹象，木头就顺着下坡滚啊滚好不容易看到个平缓点的地方结果是悬崖边然后她就这样掉下去了？
+
+这后面咋救啊
+
+很担心，先+0
+
+*****
+
+####  杂灰  
+##### 89#       发表于 2025-1-16 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198544&amp;ptid=2242398" target="_blank">rp1993 发表于 2025-1-16 22:50</a>
+
+完全的-2
+
+纯粹为了爆典而爆典，然后为了继续演又把上一集的爆典悄悄掠过，耍了两遍观众很有意思吧，人物已 ...</blockquote>
+对比她对其他人的评价不就能看出来她说自己弹得不好是指她的演奏表达不了自己，在c团这个大家都能发自真心去演奏的地方感觉压力，动画师对她弹吉他的姿势都是往非常标准的方向去k的，跟猫猫完全不一样，对演奏这事她一直是害怕失误的态度，这就跟她上集失误直接断线连上了
+
+*****
+
+####  TiiTiiLL  
+##### 90#       发表于 2025-1-16 23:57
+
+睦: 我的真情流露居然被当做天赋
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Augusty  
+##### 91#       发表于 2025-1-16 23:58
+
+为muzimi酱这么多美味的表情选择了+2😋
+
+*****
+
+####  fsfs_freeze  
+##### 92#       发表于 2025-1-16 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199407&amp;ptid=2242398" target="_blank">Victorino 发表于 2025-1-16 23:52</a>
+ave mujica在这里应该是整个live的最后一首歌，直接退场大幕落下结束了吧，最后一首就不唱了 ...</blockquote>
+那睦就精神恍惚地弹到了最后一曲还没有任何感知吗。我觉得更不可能
+
+*****
+
+####  Keiji  
+##### 93#       发表于 2025-1-17 00:01
+
++2
+
+玩摇滚的本来就自卑...可是我的自卑胜过了...<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 94#       发表于 2025-1-17 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199475&amp;ptid=2242398" target="_blank">fsfs_freeze 发表于 2025-1-16 23:58</a>
+那睦就精神恍惚地弹到了最后一曲还没有任何感知吗。我觉得更不可能</blockquote>
+那里应该表达的是莫提斯这时候就能上号了
+
