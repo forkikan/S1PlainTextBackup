@@ -1186,3 +1186,13 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 着重描写睦头个人心理的一集，情绪流却有明显中断。前后使用了大量的幻想场景，中间却多次一转平实的叙事口吻做演出，全集情绪流呈不尽人意的三角波模式，最终ep3的效果就是每个片段单看起来都挺不错，连起来却有明显割裂感。
 
+
+*****
+
+####  yozoraxsx  
+##### 123#       发表于 2025-1-17 07:30
+
++2
+
+给负的请反思自己潜意识里是不是祥厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

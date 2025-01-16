@@ -1519,3 +1519,65 @@ GQuuuuuuX改名GQ藏藏藏藏藏藏X吧
 由手机上传
 2025-1-17 07:23 上传
 
+
+*****
+
+####  咖啡配黑鸡  
+##### 3112#       发表于 2025-1-17 07:24
+
+gMS - a
+
+RED GUNDAM 红高达
+
+在UC0085中出现，神出鬼没的红色MS。其真面目被推测为一年战争时期联邦军开发的、最终测试时被吉翁夺取的「RX-78-02 高达」。吉翁夺取后进行了改装，并作为夏亚的座机重新涂成红色，随后吉翁新追加「阿尔法型赛克缪」和赛克缪连动型无线感应终端「BIT」。在一年战争末期的「第二次所罗门会战」中发生了名为Zexovia的现象，机体和夏亚一起下落不明。之后行踪不明，但作为修二驾驶的机体出现在SIDE6。
+
+高18.0米
+
+重44.4吨
+
+武装（UC0085时）：光束军刀×2、头部火神×2、BIT×2、盾牌、高达流星锤。
+
+<img src="https://img.saraba1st.com/forum/202501/17/072416li0rnnn5mksiwz5k.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1737068868743.jpg</strong> (366.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 07:24 上传
+
+*****
+
+####  岸波白野扎比子  
+##### 3113#       发表于 2025-1-17 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200673&amp;ptid=2209276" target="_blank">molemole 发表于 2025-1-17 07:22</a></blockquote>
+这是啥
+
+天呐，凑个字数
+
+*****
+
+####  molemole  
+##### 3114#       发表于 2025-1-17 07:25
+
+怎么还有流星锤的
+
+*****
+
+####  PascalLefèvre  
+##### 3115#       发表于 2025-1-17 07:26
+
+正式的还挺帅，硬朗了不少
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DARILBALDE  
+##### 3116#       发表于 2025-1-17 07:28
+
+什么？这画面，鸭子还活着吗？<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
