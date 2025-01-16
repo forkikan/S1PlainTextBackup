@@ -9943,3 +9943,14 @@ hmv還有，想補的直接hmv網店買，我也是這裡補的
 
 除非去比較鄉下的地方店頭買<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  djdenini  
+##### 8237#       发表于 2025-1-16 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194593&amp;ptid=2208921" target="_blank">kuroro 发表于 2025-1-16 16:06</a>
+
+这是什么水平啊，我没啥概念</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">  秒杀第三名棒子超级男团的水平 
+
