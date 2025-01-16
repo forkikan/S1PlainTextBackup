@@ -15105,3 +15105,13 @@ mujica下一集</strong>
 
 新观众，对MYGO的故事和角色只是了解个零碎没完整看过，母鸡卡开播后跟风来追，然而现在在观看每一集时都无限期盼狗团众人能多少露脸个几分钟来调节一下气氛，这鸡团实在是太压抑了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 8717#       发表于 2025-1-17 04:19
+
+建议是先补一遍mygo，这两部剧情是一直连在一起的，看看精讲也行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
