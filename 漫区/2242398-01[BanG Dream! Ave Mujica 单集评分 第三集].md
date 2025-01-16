@@ -1046,3 +1046,23 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 不能细想，情绪流演出使我大脑旋转尖叫，看这集时体会到睦黑化时的感觉了
 
+
+*****
+
+####  酒巻真希菜  
+##### 112#       发表于 2025-1-17 02:43
+
++1玄色部分我都不爱看，巴麻美部分还可以，但为了精神病演出不讲逻辑了所以不能+2
+
+*****
+
+####  酒巻真希菜  
+##### 113#       发表于 2025-1-17 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199371&amp;ptid=2242398" target="_blank">loneyuki 发表于 2025-1-16 23:49</a>
+
+-2，别的都很好，但我完全无法理解观众追着要求表演坐凳子，我需要慢慢消化一下 ...</blockquote>
+别讲道理了，正常的逻辑是退票，演出**失败
+
+但考虑到这个世界观下还有人买票看个JK念莫名其妙的诗乐此不疲，当乐子看就好
+
