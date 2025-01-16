@@ -9620,3 +9620,33 @@ hhw在鸡狗片场直接被ban掉了，不能一概而论</blockquote>
 
 小莫就是睦的一部分，之后睦肯定会一直有小莫，最多是不喧宾夺主了，难不成睦一直无口不表达自己继续内耗吗。睦手握两个团最多信息，肯定要去微操的啊。
 
+
+*****
+
+####  玖羽  
+##### 8216#       发表于 2025-1-16 15:37
+
+这个海铃分析我觉得不错，内容基本都是我赞成的
+
+[https://tieba.baidu.com/p/9417028806](https://tieba.baidu.com/p/9417028806)
+
+*****
+
+####  魔法使夜子  
+##### 8217#       发表于 2025-1-16 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194183&amp;ptid=2208921" target="_blank">kuroro 发表于 2025-1-16 15:18</a>
+
+这周是不是大力车祥子周</blockquote>
+是的，前面祥p都没直接做什么豆蒸都这么激烈，不敢想象今晚到下集会怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OPCI_0125  
+##### 8218#       发表于 2025-1-16 15:42
+
+ 本帖最后由 OPCI_0125 于 2025-1-16 15:45 编辑 
+
+编辑，发错楼
+
