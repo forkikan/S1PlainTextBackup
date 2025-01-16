@@ -993,3 +993,11 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 唏，真我是谁
 [https://www.bilibili.com/video/B ... 607d891afcffe248cf7](https://www.bilibili.com/video/BV17XC8YwEH2/?share_source=copy_web&amp;vd_source=aab594423e900607d891afcffe248cf7)
 
+
+*****
+
+####  佳奈助  
+##### 107#       发表于 2025-1-17 01:11
+
+像是演的好好的真实系半路变超级系了，不喜欢这突兀变艺人圣体的安排
+
