@@ -17163,3 +17163,24 @@ UC包是超级debuff的<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王留美  
+##### 2954#       发表于 2025-1-16 14:31
+
+来先分锅吧，万一明天#机动战士高达gquuuuuux# 票房爆死了，谁是首锅？
+A.庵野的臭名昭著
+B.竹的宝可梦人设
+C.山下不属于这个时代的机设
+D.水星魔女对老保群体的暴击溅射
+E.万代藏东藏西的神秘宣发策略
+F.大机器人就是没人看啦
+
+*****
+
+####  番茄牛奶  
+##### 2955#       发表于 2025-1-16 14:33
+
+会赢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别再奶了，只要胶大卖，一切都会好起来的
+
