@@ -789,3 +789,42 @@ TV之后拍三部剧场版吗
 
 高达ip最高保密级别<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 3042#       发表于 2025-1-16 19:21
+
+<blockquote>YU_JI 发表于 2025-1-16 19:15
+这真的只是在藏uc世设吗？怎么感觉藏了个大的）意大利临时工的含金量还在上升 ...</blockquote>
+要是没临时工，连现在的热度都没有
+
+*****
+
+####  双菜  
+##### 3043#       发表于 2025-1-16 19:22
+
+按照这种保密性，到时候真褒姒了也不知道是谁的锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 3044#       发表于 2025-1-16 19:24
+
+所以剧情肯定很重量级吧，不然至于搞中统级的那啥吗
+
+*****
+
+####  灵魂收割机  
+##### 3045#       发表于 2025-1-16 19:25
+
+只是在亡羊补牢吧，应该没大的了。
+
+*****
+
+####  Gysumitka  
+##### 3046#       发表于 2025-1-16 19:28
+
+<img src="https://p.sda1.dev/21/c583ca1b5e9a30f7d7b3c2f8488b5e16/image.jpg" referrerpolicy="no-referrer">
+泰国这就安排上了吗，有没有懂泰语的
+
