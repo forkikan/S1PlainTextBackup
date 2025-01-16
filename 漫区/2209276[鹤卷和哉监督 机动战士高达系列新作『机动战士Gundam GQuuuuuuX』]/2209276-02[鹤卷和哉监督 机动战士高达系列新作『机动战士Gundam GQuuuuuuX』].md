@@ -16693,3 +16693,43 @@ gqx能建这么多楼得多亏uc假药吧（）
 就为了这个梗把宝可梦老姐拉来人设的？</blockquote>
 这个大概率是鹤卷的性癖而已
 
+
+*****
+
+####  Toby_dak  
+##### 2905#       发表于 2025-1-16 09:36
+
+UC背景本身就比原创更多谈资啊。
+别的不说，光头的OYW原教旨主义和安彦的GTO修正主义就能大战一场<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  ads147147  
+##### 2906#       发表于 2025-1-16 10:26
+
+ 本帖最后由 ads147147 于 2025-1-16 10:28 编辑 
+
+才意识到17号，暴风雨前的宁静。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  番茄牛奶  
+##### 2907#       发表于 2025-1-16 10:27
+
+今天16号，哪里来的未来战士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2908#       发表于 2025-1-16 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67191959&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-16 10:27</a>
+今天16号，哪里来的未来战士</blockquote>
+日子一下子记岔了，今天先关注母鸡卡那边（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
