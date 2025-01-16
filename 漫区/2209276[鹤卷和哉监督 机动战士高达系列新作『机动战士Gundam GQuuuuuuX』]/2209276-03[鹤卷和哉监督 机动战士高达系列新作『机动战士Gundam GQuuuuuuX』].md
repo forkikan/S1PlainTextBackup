@@ -532,3 +532,37 @@ _()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
 
 要是红高达像原设图才容易破防 gq只是不怎么大众 原设红高达就有种不堪入目了 （s1手机端怎么还回复不了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 3015#       发表于 2025-1-16 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195080&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-16 17:01</a></blockquote>
+海豹造型。
+
+*****
+
+####  YU_JI  
+##### 3016#       发表于 2025-1-16 17:49
+
+到处都是uc假药的讨论环境下，黑拳设定貌似基本都被抛到脑后了（）虽然黑拳像是给uc设定打的烟雾弹，但是感觉正片不可能真就拿两集黑拳开个头就抛开不管，打黑拳多少也会是明线主线
+
+*****
+
+####  PascalLefèvre  
+##### 3017#       发表于 2025-1-16 17:50
+
+要不行大文豪故事，打黑拳引发奇迹之光吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3018#       发表于 2025-1-16 17:51
+
+麻球麻球<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

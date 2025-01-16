@@ -2854,3 +2854,17 @@ ras也有不仲？</blockquote>
 原文链接 https://x.com/BS ...</blockquote>
 还有个 [@AveMujica](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=569289) 18年10月的
 
+
+*****
+
+####  月島まりな  
+##### 26858#       发表于 2025-1-16 17:48
+
+[https://bang-dream-10th-exhibition.com/goods/](https://bang-dream-10th-exhibition.com/goods/)
+
+10周年的周边
+<img src="https://p.sda1.dev/21/5d053ffe9abde80b5b1d498de6f0588f/IMG_5210.jpeg" referrerpolicy="no-referrer">
+
+列祖列宗身上穿
+<img src="https://p.sda1.dev/21/c40f5e1848ba9b6bb007b8a42598d79c/IMG_5209.jpeg" referrerpolicy="no-referrer">
+
