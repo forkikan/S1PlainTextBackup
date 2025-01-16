@@ -1064,3 +1064,41 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 大佬们对英制的批判</blockquote>
 NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，纯封建遗留
 
+
+*****
+
+####  2017.05.04  
+##### 78#       发表于 2025-1-16 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194202&amp;ptid=2210117" target="_blank">lactone 发表于 2025-1-16 15:21</a>
+
+这次入轨算什么级别，可以咩鳖吗
+
+—— 来自 S1Fun</blockquote>
+可以咩，新格伦1500T起飞质量，还一级回收
+
+目前国内最大的长五是850T（
+
+
+*****
+
+####  stevenzero  
+##### 79#       发表于 2025-1-16 15:32
+
+可以了，新格伦毕竟还是新火箭，首射就成功入轨。回收慢慢积累经验吧。
+
+*****
+
+####  2017.05.04  
+##### 80#       发表于 2025-1-16 15:33
+
+<img src="https://img.saraba1st.com/forum/202501/16/153311kmcx60zbmna6fz7r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

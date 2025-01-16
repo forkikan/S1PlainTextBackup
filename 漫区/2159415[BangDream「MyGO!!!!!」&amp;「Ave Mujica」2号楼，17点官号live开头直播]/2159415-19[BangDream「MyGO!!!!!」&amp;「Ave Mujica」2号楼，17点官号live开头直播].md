@@ -2813,3 +2813,31 @@ ras也有不仲？</blockquote>
 ras也有不仲？</blockquote>
 很明显的，多看合照和活动看得出来
 
+
+*****
+
+####  chih12  
+##### 26856#       发表于 2025-1-16 15:31
+
+刚好刷到一条关于鸡团的推文，如果真是 2018 年开始准备的话，鸡团来的也太迟了
+
+原文链接 [https://x.com/BSiyyxN3w5olndT/status/1879450783323971678](https://x.com/BSiyyxN3w5olndT/status/1879450783323971678)
+
+<img src="https://img.saraba1st.com/forum/202501/16/152934nc5zfchuqhf92kec.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:29 上传
+
+疑似鸡团账号@Mujina_Carnival
+
+<img src="https://img.saraba1st.com/forum/202501/16/153137gibik6j01jk00m6n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:31 上传
+
