@@ -724,3 +724,89 @@ mygo3话祥子夸睦弹吉他靠得住，睦就是因此而摇头否认的吧
 
 爆就完事了
 
+
+*****
+
+####  何でやねん  
+##### 78#       发表于 2025-1-16 23:48
+
+本来我还有点期待演出中间扯头花的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 79#       发表于 2025-1-16 23:49
+
+-2，别的都很好，但我完全无法理解观众追着要求表演坐凳子，我需要慢慢消化一下
+
+*****
+
+####  绕树三匝  
+##### 80#       发表于 2025-1-16 23:50
+
+本来只是觉得演出紧凑很震撼，结果soyo在预告里玩手指彻底给我整爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帕林马哲理  
+##### 81#       发表于 2025-1-16 23:52
+
+跟mygo的第三集一样，都是相当卓越的一集。mortis吞噬的场面再吓人一点还会更好。
+
+*****
+
+####  shinoverse  
+##### 82#       发表于 2025-1-16 23:52
+
+上集有人说音监问题
+
+这集看出来了
+
+mortis豹变成人之脓把主人格吃掉的时候，BGM是不是应该戛然而止比较好？音乐不变就这么放完了我是没想到的
+
+
+*****
+
+####  Victorino  
+##### 83#       发表于 2025-1-16 23:52
+
+<blockquote>fsfs_freeze 发表于 2025-1-16 23:26
+那演出呢？不演了还是休息之后再重演？
+
+主要问题是，观众也能看出来后续也就那几项展开，但具体是哪一项 ...</blockquote>
+ave mujica在这里应该是整个live的最后一首歌，直接退场大幕落下结束了吧，最后一首就不唱了
+
+*****
+
+####  Mikumiku831  
+##### 84#       发表于 2025-1-16 23:52
+
+我也觉得有问题 在睦头人家里大猫跟祥子对线的时候 bgm意外的欢快 很怪
+
+*****
+
+####  takitaki  
+##### 85#       发表于 2025-1-16 23:53
+
+不赖，一想到现在到处都在塔塔开青蒜回旋镖，到最后还得吃卷寿司就轻哼了。
+
+木头是真的情报木头啊，合着祥子嗷嗷哭喝雨水的时候你也在旁边，整一年每天被soyo疯狂压力都扛住了所有秘密，伟大，无需多言。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+大喵也是眉笔，作为唯一节奏发动机，已经带头爆了一次，这套“讨好观众最重要”的理论还要爆一次并且被打脸。不过和木头的互动挺多，喵睦将大量繁殖。
+
+预告画面更搞：
+
+Soyo：姐们你谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+🐘：姐们你谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十壹  
+##### 86#       发表于 2025-1-16 23:56
+
+真是公公又式式啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

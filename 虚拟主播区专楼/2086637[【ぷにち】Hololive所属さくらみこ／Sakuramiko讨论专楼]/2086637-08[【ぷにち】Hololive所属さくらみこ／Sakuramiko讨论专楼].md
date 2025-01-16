@@ -28,3 +28,40 @@
 
 2025-1-16 14:05 上传
 
+
+*****
+
+####  holofan  
+##### 10682#       发表于 2025-1-16 19:31
+
+ 本帖最后由 holofan 于 2025-1-16 20:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/16/193055ys1ibs7oyozy9oo7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (253.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 19:30 上传
+
+who？
+
+ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本不冒泡 冒泡就说在忙，怕不是过劳死
+
+果然不是只有我一个人觉得怪
+
+<img src="https://img.saraba1st.com/forum/202501/16/204902oya7ga7c7zutr5l2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 20:49 上传
+
+*****
+
+####  rs5621  
+##### 10683#       发表于 2025-1-16 23:50
+
+这立绘大图看着还可以
+

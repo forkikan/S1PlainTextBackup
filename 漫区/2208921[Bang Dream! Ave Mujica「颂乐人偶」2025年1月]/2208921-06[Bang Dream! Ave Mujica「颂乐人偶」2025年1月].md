@@ -12423,3 +12423,195 @@ AB1DA42903BF2E405524F6F2A53439D2.jpg
 <img src="https://p.sda1.dev/21/997a3f1395c4e2c3687aa6f257b55dbb/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/b3fce94dfc1062447ef03b1339c8149e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 8478#       发表于 2025-1-16 23:46
+
+这集好爽啊，就应该这样
+
+*****
+
+####  CCCTHUN  
+##### 8479#       发表于 2025-1-16 23:47
+
+睦头不是觉得吉他弹得不行吧？是痛恨自己没法当吉他主唱。
+
+*****
+
+####  wolf1997  
+##### 8480#       发表于 2025-1-16 23:47
+
+Also sprach Zarathustra
+
+Acta est Fabula
+
+Amantes amentes
+
+
+*****
+
+####  Bieaeml  
+##### 8481#       发表于 2025-1-16 23:47
+
+睦：现在的我，只规定自己是一个容器。我这个容器，是用来承载已逝的C团，以及继承乐队再也不分离的宏愿。祥子如果这样希望，我就会成为墨提斯。而这场演出（指第三集末尾），就是为此而存在的。
+
+*****
+
+####  NODY  
+##### 8482#       发表于 2025-1-16 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199320&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-16 23:45</a>
+
+越想越不对劲，大莫老师你父母压力睦你不出来，媒体压力睦你不出来，大喵压力睦你不出来，大祥老师跟你吵一 ...</blockquote>
+因为祥子打的伤害最高啊，睦被其他人压顶多就是习惯了，祥子那句“你不能当我的伙伴”才是最痛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 8483#       发表于 2025-1-16 23:47
+
+当时看了ep1就觉得祥子欠人格修正了，不过到现在还是不知道要怎么人格修正<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8484#       发表于 2025-1-16 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉立希和喵梦这俩鼓手有点相似性的，都是卷王类型。一个熬夜作曲，压力自己又压力队友。另一个晚上掐秒表上传视频还要兼顾练鼓，敲鼓水平也是前辈masking都认可的程度，白天又还得上课表演课，看到睦演技炸裂又见贤思齐起来了，真是无情的事业批
+
+*****
+
+####  杂灰  
+##### 8485#       发表于 2025-1-16 23:48
+
+三角初华太坏了 甜甜圈全都是切开一半的
+
+*****
+
+####  试制甲炮  
+##### 8486#       发表于 2025-1-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199320&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-16 23:45</a>
+
+越想越不对劲，大莫老师你父母压力睦你不出来，媒体压力睦你不出来，大喵压力睦你不出来，大祥老师跟你吵一 ...</blockquote>
+毕竟是互为半身，睦最在意的确实就是祥子。
+
+*****
+
+####  柴突猛进  
+##### 8487#       发表于 2025-1-16 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199337&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-16 23:47</a>
+
+睦头不是觉得吉他弹得不行吧？是痛恨自己没法当吉他主唱。</blockquote>
+睦说的是自己的吉他不会“唱歌”，意思是觉得自己吉他弹的不好
+
+*****
+
+####  Mikumiku831  
+##### 8488#       发表于 2025-1-16 23:48
+
+睦头人不是怼了大猫一句怎么老是说坏话
+
+纯纯路边一条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OPCI_0125  
+##### 8489#       发表于 2025-1-16 23:50
+
+祥爹寥寥几个镜头就能立体到和祥“一个模子里刻出来”…bio渲染器实际强大
+
+*****
+
+####  试制甲炮  
+##### 8490#       发表于 2025-1-16 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199360&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-16 23:48</a>
+
+睦说的是自己的吉他不会“唱歌”，意思是觉得自己吉他弹的不好</blockquote>
+与其说觉得弹得不好，倒不如说是莫得感情，机械。所以才很羡慕灯能够把自己的感受唱出来。
+
+*****
+
+####  pokemon最爱  
+##### 8491#       发表于 2025-1-16 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199352&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-16 23:48</a>
+
+三角初华太坏了 甜甜圈全都是切开一半的</blockquote>
+本集的迫害甜甜圈女士时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 8492#       发表于 2025-1-16 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199337&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-16 23:47</a>
+
+睦头不是觉得吉他弹得不行吧？是痛恨自己没法当吉他主唱。</blockquote>
+不是主唱的问题，睦学吉他的回忆里都是基本功练习，应该是觉得自己的演奏太机械，不是“内心的呐喊”？
+
+
+*****
+
+####  thisisaspider  
+##### 8493#       发表于 2025-1-16 23:52
+
+ 本帖最后由 thisisaspider 于 2025-1-16 23:54 编辑 
+
+祥子的命运感就很强，她一直做当下正确的选择，然后一直被打脸。只能说编剧爱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+祥子也评价过，睦的演奏不会出错，也隐含了睦的演奏特别机械化吧。所以睦才喜欢看mygo即兴表演吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 8494#       发表于 2025-1-16 23:52
+
+这里直接对比祥子对灯：灯的歌声，就是内心的呐喊
+睦也苦于自己弹不出内心的声音(直接意象就是那把吉他)
+
+*****
+
+####  阿兹尔  
+##### 8495#       发表于 2025-1-16 23:53
+
+ 本帖最后由 阿兹尔 于 2025-1-16 23:56 编辑 
+
+祥子只会“你练习不够”这句也太搞了，什么反甲
+
+真是能让人开心笑出来的动画，感谢动画制作组
+
+*****
+
+####  山ノ内花音  
+##### 8496#       发表于 2025-1-16 23:54
+
+十五年未有之笨女主是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚尔特留斯  
+##### 8497#       发表于 2025-1-16 23:55
+
+没想到sakiko那句经典名言"满脑子都是自己" 最终会以这种方式打回自己
+
+*****
+
+####  沙坪坝沙耶香  
+##### 8498#       发表于 2025-1-16 23:56
+
+哈基梦：为什么你能演这么好？
+
+aff356688009c9b36010ac297f8745a1.jpg
+(46.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/235542ad07jq772n32h02j.jpg" referrerpolicy="no-referrer">
+

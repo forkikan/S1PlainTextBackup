@@ -1307,3 +1307,51 @@ hachi越画越好了
 
 有没有看了首映的说一下感想和剧情
 
+
+*****
+
+####  黑夜夜夜  
+##### 3091#       发表于 2025-1-16 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">等楼u的消息了，一觉醒来能有剧透吗
+
+*****
+
+####  古怪山庄士大夫  
+##### 3092#       发表于 2025-1-16 23:48
+
+<blockquote>金翅碌柒鸟 发表于 2025-1-16 23:43
+有没有看了首映的说一下感想和剧情</blockquote>
+明天才有，10点半左右吧
+
+*****
+
+####  uponutopia  
+##### 3093#       发表于 2025-1-16 23:51
+
+律师还特意画了张同人？那为什么PV2听上去像是敷衍的公式歌
+
+
+*****
+
+####  刺客ares  
+##### 3094#       发表于 2025-1-16 23:52
+
+<img src="https://img.saraba1st.com/forum/202501/16/235155kpd1i3qqphztazhv.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9817.webp</strong> (125.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-16 23:51 上传
+
+明天按照这张开始画圈，看这一个月的预测到底能命中多少
+
+*****
+
+####  双菜  
+##### 3095#       发表于 2025-1-16 23:53
+
+说不定是歌也在藏，好听都在PV外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
