@@ -973,3 +973,94 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  2017.05.04  
+##### 71#       发表于 2025-1-16 15:15
+
+<img src="https://img.saraba1st.com/forum/202501/16/151441q6keg86kg83bvjvl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:14 上传
+
+一级回收失败，数据中断
+
+也许是二次点火之后姿态发散
+
+*****
+
+####  waelaZed  
+##### 72#       发表于 2025-1-16 15:15
+
+回收失败?
+
+*****
+
+####  lactone  
+##### 73#       发表于 2025-1-16 15:17
+
+到底啥情况，怎么听说鼓掌了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2017.05.04  
+##### 74#       发表于 2025-1-16 15:18
+
+<img src="https://img.saraba1st.com/forum/202501/16/151709pwqliax6avaaaala.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:17 上传
+
+二级关机，入轨了
+
+恭喜贝光的蓝色起源成立25年来终于入轨
+
+*****
+
+####  commcody  
+##### 75#         楼主| 发表于 2025-1-16 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194180&amp;ptid=2210117" target="_blank">2017.05.04 发表于 2025-1-16 15:18</a>
+
+二级关机，入轨了
+
+恭喜贝光的蓝色起源成立25年来终于入轨</blockquote>
+大佬们对英制的批判<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/16/151931foq7oqhoohjqqwoc.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250116151912.png</strong> (611.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:19 上传
+
+
+*****
+
+####  lactone  
+##### 76#       发表于 2025-1-16 15:21
+
+这次入轨算什么级别，可以咩鳖吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2017.05.04  
+##### 77#       发表于 2025-1-16 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194189&amp;ptid=2210117" target="_blank">commcody 发表于 2025-1-16 15:19</a>
+
+大佬们对英制的批判</blockquote>
+NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，纯封建遗留
+

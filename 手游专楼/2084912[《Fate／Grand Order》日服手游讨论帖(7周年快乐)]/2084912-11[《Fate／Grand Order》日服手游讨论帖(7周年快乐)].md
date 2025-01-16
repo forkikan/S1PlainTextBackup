@@ -11028,3 +11028,35 @@ TMD 太狗了</blockquote>
 放心吧，会还债的，我国服双黄武尊，然后莉莉丝池300多石头没金卡</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸 才300石头而已
 
+
+*****
+
+####  quanlix  
+##### 16128#       发表于 2025-1-16 09:09
+
+客户端更新之后经常卡死，不知道lxs又动什么东西了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  洛克萨斯  
+##### 16129#       发表于 2025-1-16 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">黑姬立绘是最近最舒服最好看的了，fgo难得的精致角色
+
+*****
+
+####  姬萩九郎  
+##### 16130#       发表于 2025-1-16 10:31
+
+<img src="https://p.sda1.dev/21/af934dbf7e8501c1b8f31ece66d65901/image.jpg" referrerpolicy="no-referrer">
+奶龙！
+
+*****
+
+####  岸浪白野  
+##### 16131#       发表于 2025-1-16 15:16
+
+读心了，这池子只想抽5星礼装和黑姬然后出了绿色奶龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

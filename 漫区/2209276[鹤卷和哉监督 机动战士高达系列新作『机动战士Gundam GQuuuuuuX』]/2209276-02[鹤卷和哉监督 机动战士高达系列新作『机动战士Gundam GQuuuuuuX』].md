@@ -17222,3 +17222,34 @@ B.竹的宝可梦人设 ...</blockquote>
 
 赢了就是鹤卷gg给力，切割及时
 
+
+*****
+
+####  Toby_dak  
+##### 2958#       发表于 2025-1-16 15:20
+
+<img src="https://p.sda1.dev/21/342da0074facf7dc11a5268b909fb6df/1000078873.jpg" referrerpolicy="no-referrer">
+
+这真不是临时工整的？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  双菜  
+##### 2959#       发表于 2025-1-16 15:22
+
+意思是正片没红高达了？
+
+*****
+
+####  王留美  
+##### 2960#       发表于 2025-1-16 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194196&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-16 15:20</a>
+
+这真不是临时工整的？
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+一看就是windows画笔涂色啊
+
