@@ -1217,3 +1217,18 @@ d231672a679d2ca34b871cbf76586f05.jpg
 
 牢修要是开红高达还能当公主位，我都不敢想场外什么盛况了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蕾洁之风  
+##### 3082#       发表于 2025-1-16 23:17
+
+看一些人模型都拼完了，看来说明书没啥剧透啊
+
+*****
+
+####  Gysumitka  
+##### 3083#       发表于 2025-1-16 23:21
+
+牢修当公主位谁来带货呢，机体属于强绑定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

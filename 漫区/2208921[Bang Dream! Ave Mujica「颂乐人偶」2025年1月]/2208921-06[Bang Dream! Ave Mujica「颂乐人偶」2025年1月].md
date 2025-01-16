@@ -11584,3 +11584,308 @@ b站人偶吞睦头人那一幕是打码还是就这样？
 我不骂她，她真是寂寞啊。原来不是你一个人退出了曾经的“那些女孩”，而是那些女孩退出了你啊。 ...</blockquote>
 我留下是因为一些自私的原因，因为我爱一些人。
 
+
+*****
+
+####  梅斯之围  
+##### 8397#       发表于 2025-1-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198802&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-16 23:10</a>
+祥子的设定是“顺从的mortis”，但是mortis现在看来是第一个跳出来忤逆祥子对mujica风格安排的。
+
+那么按这 ...</blockquote>
+这种flag式的台词一眼就能看出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  若叶睦  
+##### 8398#       发表于 2025-1-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198908&amp;ptid=2208921" target="_blank">長崎そよ 发表于 2025-1-16 23:16</a>
+
+我留下是因为一些自私的原因，因为我爱一些人。</blockquote>
+少他妈的酸贫，我不喜欢水性杨花的江南情调。
+
+*****
+
+####  shokuji  
+##### 8399#       发表于 2025-1-16 23:16
+
+鸡在公开场合不仲那么多次真不会被小报报道吗...
+
+不过鸡的中之人们反过来关系挺好经常团建，这种反差还是挺有意思的
+
+*****
+
+####  黄昏现白骨  
+##### 8400#       发表于 2025-1-16 23:16
+
+mortis吞睦那段好爽<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  豊川祥子  
+##### 8401#       发表于 2025-1-16 23:17
+
+昨天做一恶梦，觉得一辈子都毁了。醒来发现还好，阳光还静静照在身上。
+
+*****
+
+####  aptx8285144  
+##### 8402#       发表于 2025-1-16 23:18
+
+路人看多了祥子各种女王甚至政治寓言里的超级地位的同人片段，现在看这几集就有一种无比讽刺的味道<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻仓月轩  
+##### 8403#       发表于 2025-1-16 23:18
+
+前两集都想说 这还演奏啥
+结果都是 这都能混过去
+现在已经变成 
+为什么还要拿着乐器 我只想看戏
+
+*****
+
+####  6030sylar  
+##### 8404#       发表于 2025-1-16 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198748&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-16 23:06</a>
+
+就这个mo箱 太劲了
+
+https://x.com/ng_suzuki3/status/1879900016598471105?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/16/231829wwhwvvws3vssusii.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250116231823.png</strong> (268.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:18 上传
+
+*****
+
+####  bird-lay  
+##### 8405#       发表于 2025-1-16 23:19
+
+如果祥子给队友写的判词都中了可以直接出道当占卜师吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  borrowface  
+##### 8406#       发表于 2025-1-16 23:19
+
+不是，楼里面还演起来了
+
+*****
+
+####  不应  
+##### 8407#       发表于 2025-1-16 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在就好奇动画要怎么把祥子塑造拉回来了，总不能吃瘪一路最后包饺子吧。拍成4个人给巨婴做心理治疗不是烂完了
+
+*****
+
+####  jaewoongh_  
+##### 8408#       发表于 2025-1-16 23:20
+
+6分钟左右睦练吉他的回忆，爬格子和音阶练习，说明不是技术不好而是演奏不出自己喜欢的音乐
+
+*****
+
+####  邪恶大番茄  
+##### 8409#       发表于 2025-1-16 23:20
+
+看完ep3产生了奇怪的幻视紧急摸了下鱼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+AB1DA42903BF2E405524F6F2A53439D2.jpg
+(119.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/231954ywh5uwitwuil39zq.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 8410#       发表于 2025-1-16 23:21
+
+不管怎麼想這次也不會是小祥救木頭呀
+
+這次再是靠祥拉
+
+那睦這輩子就只能是下位半身了
+
+狗是燈一拉四
+
+對稱來說雞應該是四拉一
+
+四個人自願帶上面具演劇拉大祥老師上台
+
+考慮到篇幅
+
+甚至連海子跟喵子也不一定夠時間爆炸
+
+（13集，一集收尾，一集跟狗包餃子後對邦，一集半包餃子， 那也只剩下6集左右的時間了， 只爆初華跟祥子也就差不多了）
+
+*****
+
+####  风道北来  
+##### 8411#       发表于 2025-1-16 23:21
+
+总感觉剧情有既视感，琢磨一阵子反应过来了，这不是制造业公司日常开会互掐吗
+
+一方是做题家理工男工程师，技术过硬，爱卷，但自我中心，情商低，不能附众，逆风局脾气差一点就着，好面子，嘴硬
+
+另一方是大专黄毛销售，行动力强，擅长社交，好钻营，身段软，非常有主见，但轻视专业知识，好跟风，想赚快钱，不在意长期口碑
+
+没想到在音乐番里也能看到产品与技术的路线之争......意识到这点后有点看不下去了......
+
+*****
+
+####  borrowface  
+##### 8412#       发表于 2025-1-16 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198911&amp;ptid=2208921" target="_blank">若叶睦 发表于 2025-1-16 23:16</a>
+
+少他妈的酸贫，我不喜欢水性杨花的江南情调。</blockquote>
+跟谁学的脏话，那个什么喵姆鸡吗
+
+
+*****
+
+####  Diong  
+##### 8413#       发表于 2025-1-16 23:23
+
+祥子凶睦头那段做的真是好啊，虽然很多人都觉得这个地方是祥子压力睦头，但是我感觉这似乎更像是亲人吵架啊，祥睦的亲密关系居然在这种地方能得到如此体现，实在是太妙了。
+
+*****
+
+####  半年  
+##### 8414#       发表于 2025-1-16 23:24
+
+<img src="https://p.sda1.dev/21/5f3e3f181f7d5c5ffeaac3436c783758/Gha_A1sacAErg4V.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ng_suzuki3/status/1879900016598471105/photo/1](https://x.com/ng_suzuki3/status/1879900016598471105/photo/1)
+
+*****
+
+####  Libartas  
+##### 8415#       发表于 2025-1-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198981&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-16 23:21</a>
+总感觉剧情有既视感，琢磨一阵子反应过来了，这不是制造业公司日常开会互掐吗
+
+一方是做题家理工男工程师， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准就是把系构编剧组和监督还有公司大人物蛐蛐的日常写进去了
+
+*****
+
+####  Porsche  
+##### 8416#       发表于 2025-1-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198346&amp;ptid=2208921" target="_blank">天色影子 发表于 2025-1-16 22:34</a>
+你不是真正的快乐,你的笑只是你穿的保护色</blockquote>
+大喵老师这个表情，给人感觉她真的以为睦头变开朗了事件解决了然后开心地搂着两位合影
+
+*****
+
+####  jaewoongh_  
+##### 8417#       发表于 2025-1-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199022&amp;ptid=2208921" target="_blank">Diong 发表于 2025-1-16 23:23</a>
+
+祥子凶睦头那段做的真是好啊，虽然很多人都觉得这个地方是祥子压力睦头，但是我感觉这似乎更像是亲人吵架啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">确实，睦这都没跟祥子爆真是纯纯的亲妈，只是默默地承受
+
+*****
+
+####  Mikumiku831  
+##### 8418#       发表于 2025-1-16 23:25
+
+我也觉得 明明是那么撒娇的语气  把我只有母鸡卡改成我只有你了 就是定终生的场景了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  试制甲炮  
+##### 8419#       发表于 2025-1-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198976&amp;ptid=2208921" target="_blank">邪恶大番茄 发表于 2025-1-16 23:20</a>
+
+看完ep3产生了奇怪的幻视紧急摸了下鱼</blockquote>
+黑睦这个动作其实就是长期素食女士的立绘动作<img src="https://ts1.cn.mm.bing.net/th/id/R-C.cf995f4e4a3c5c90374b4c4541310de6?rik=IlnVCi44SCrHig&amp;riu=http%3a%2f%2fimg.dmrenwu.com%2fimg%2f2024%2fRoleImage%2f20240218%2f614e2056914044f6ab1493a33918778b.webp&amp;ehk=Ij2oLKV%2fvS9h%2fgf7uEfIXw68Y6UIZ%2bR0TLzvYiO2XgU%3d&amp;risl=&amp;pid=ImgRaw&amp;r=0" id="aimg_zMAZA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)。黑睦很可能是在模仿她理想中的人物，也就是长期素食女士。
+
+*****
+
+####  木板春香  
+##### 8420#       发表于 2025-1-16 23:25
+
+<img src="https://img.saraba1st.com/forum/202501/16/232422uaqrlxzlykje3mon.png" referrerpolicy="no-referrer">
+
+<strong>TS]LZG~JBF`NV5@(]264LEH.png</strong> (217.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:24 上传
+
+ 喵梦车站1打4 谁说话挠谁 太好玩了
+
+<img src="https://img.saraba1st.com/forum/202501/16/232236j9manet542voga4o.png" referrerpolicy="no-referrer">
+
+<strong>0N(BKSG}PLZ_LX04~`JYMPF.png</strong> (405.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/232237wuyvyoj0qo6dgc5g.png" referrerpolicy="no-referrer">
+
+<strong>PBXAUAM%MNO_%20T2RFC.png</strong> (348.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:22 上传
+
+我疯起来帮我说话的人都打！
+
+<img src="https://img.saraba1st.com/forum/202501/16/232542sord44oi7i71nigt.gif" referrerpolicy="no-referrer">
+
+<strong>`WUY57OV_6P_ECMU[D(Y8@F.gif</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:25 上传
+
+同样是1打4 某些人啊 
+
+<img src="https://img.saraba1st.com/forum/202501/16/232510hnl0yymwqykdrmzc.png" referrerpolicy="no-referrer">
+
+<strong>TI)W]J4~76LN0)1I`UG5QX9.png</strong> (549.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:25 上传
+
+*****
+
+####  邪恶大番茄  
+##### 8421#       发表于 2025-1-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199022&amp;ptid=2208921" target="_blank">Diong 发表于 2025-1-16 23:23</a>
+
+祥子凶睦头那段做的真是好啊，虽然很多人都觉得这个地方是祥子压力睦头，但是我感觉这似乎更像是亲人吵架啊 ...</blockquote>
+这不楼座和真理亚吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 8422#       发表于 2025-1-16 23:25
+
+做为祥厨看这集的表情
+<img src="https://p.sda1.dev/21/4855748239f4cc0ef322a2e7f2d1e42f/image.jpg" referrerpolicy="no-referrer">
+

@@ -1110,3 +1110,12 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 真比switch还大一圈啊，switch已经够大了，这再大一圈别是要超越steam deck吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KENN  
+##### 132#       发表于 2025-1-16 23:22
+
+就是黑色的？ns当初为了耐脏买了黑色的现在有点后悔想ns2弥补一下红蓝遗憾，咋只有黑色的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且这尺寸掌机模式也不好拿吧
+
