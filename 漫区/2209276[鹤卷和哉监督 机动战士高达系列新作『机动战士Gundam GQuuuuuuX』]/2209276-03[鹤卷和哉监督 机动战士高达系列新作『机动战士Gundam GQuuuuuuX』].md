@@ -892,3 +892,37 @@ GQuuuuuuX -序-</blockquote>
 GQuuuuuuX -序-</blockquote>
 是序破Q，终要看观众爆不爆金币再出。
 
+
+*****
+
+####  kykawaiii  
+##### 3051#       发表于 2025-1-16 20:47
+
+终也是"再见了，所有的高达"吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3052#       发表于 2025-1-16 20:48
+
+<img src="https://img.saraba1st.com/forum/202501/16/204746kiot1511z2abbjqi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9815.jpeg</strong> (272.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-16 20:47 上传
+
+怎么是你俩
+
+听语音这互动的感觉让我想起两个人
+
+
+*****
+
+####  番茄牛奶  
+##### 3053#       发表于 2025-1-16 20:54
+
+狗代怎么感觉真有点梭哈呀，叫人来买周边都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
