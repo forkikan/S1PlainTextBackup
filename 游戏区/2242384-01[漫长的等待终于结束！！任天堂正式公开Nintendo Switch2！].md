@@ -1,0 +1,536 @@
+﻿
+*****
+
+####  天堂大法  
+##### 1#       楼主       发表于 2025-1-16 21:03
+
+ 本帖最后由 天堂大法 于 2025-1-16 21:09 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/16/210917edleuisbuiqiiidb.jpg" referrerpolicy="no-referrer">
+
+<strong>GhaqdeYWQAABE71.jpg</strong> (238.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/210917j95lvovvhlifsz65.jpg" referrerpolicy="no-referrer">
+
+<strong>Ghaqyp3WcAARxUb.jpg</strong> (65.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/210917ksykycayioky0kz6.jpg" referrerpolicy="no-referrer">
+
+<strong>GhaqiV7XMAAW1oy.jpg</strong> (116.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:09 上传
+
+任天堂正式发表NS2，4月2日将通过直面会详细介绍
+
+*****
+
+####  Awanano  
+##### 2#       发表于 2025-1-16 21:07
+
+全黑然后摇杆才带红蓝，也不是不好看，就没有现在这样这么色彩鲜明一看就是ns
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Linkwjj  
+##### 3#       发表于 2025-1-16 21:08
+
+4/2直面会，看来暑假发售了
+
+*****
+
+####  wjbdasd  
+##### 4#       发表于 2025-1-16 21:10
+
+狗头手柄也是磁吸，这下方便不少
+
+*****
+
+####  P-link  
+##### 5#       发表于 2025-1-16 21:11
+
+我内心好像有那么一丝波澜
+
+*****
+
+####  发呆的龙虾  
+##### 6#       发表于 2025-1-16 21:11
+
+漫长的等待结束x
+开始新的漫长等待o
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lilisipis  
+##### 7#       发表于 2025-1-16 21:11
+
+详细信息呢，就一个外观图？
+
+*****
+
+####  RUKALUKA  
+##### 8#       发表于 2025-1-16 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟预期一样啊，都拖到这会儿了，正式发布肯定往4月后了。
+
+*****
+
+####  落雪无痕  
+##### 9#       发表于 2025-1-16 21:11
+
+终于来了
+
+*****
+
+####  Vacuolar  
+##### 10#       发表于 2025-1-16 21:12
+
+希望直面会以后早点发布，我已经等不及要玩稳定帧数的贝姐3了
+
+*****
+
+####  Linkwjj  
+##### 11#       发表于 2025-1-16 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197128&amp;ptid=2242384" target="_blank">lilisipis 发表于 2025-1-16 21:11</a>
+
+详细信息呢，就一个外观图？</blockquote>
+细节等直面会呗
+
+*****
+
+####  黄泉川此方  
+##### 12#       发表于 2025-1-16 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4月直面会
+
+还憋呢古川，任天堂早点倒闭得了
+
+*****
+
+####  LRSzwei  
+##### 13#       发表于 2025-1-16 21:14
+
+开始等lite<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  D-JoeII  
+##### 14#       发表于 2025-1-16 21:14
+
+4月才開直面會介紹的話,是打算下半年發售?
+
+*****
+
+####  希远闹  
+##### 15#       发表于 2025-1-16 21:15
+
+马车9 吗
+
+*****
+
+####  性兽阿怪  
+##### 16#       发表于 2025-1-16 21:15
+
+硬件参数不晓得啥时候能放出来，不会真要等到4.2吧
+
+*****
+
+####  downnote  
+##### 17#       发表于 2025-1-16 21:15
+
+没想到也搞预告的预告这种，是被逼无奈吧
+
+*****
+
+####  外挂  
+##### 18#       发表于 2025-1-16 21:16
+
+任天堂消息真不灵通啊，我俩星期前就知道了
+
+*****
+
+####  姐霓姐霓  
+##### 19#       发表于 2025-1-16 21:16
+
+公布：爆料是真的
+
+*****
+
+####  drx66  
+##### 20#       发表于 2025-1-16 21:17
+
+这下更漫长了
+
+*****
+
+####  脚本水平  
+##### 21#       发表于 2025-1-16 21:17
+
+剑指2025圣诞商战
+
+*****
+
+####  Link213  
+##### 22#       发表于 2025-1-16 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197183&amp;ptid=2242384" target="_blank">downnote 发表于 2025-1-16 21:15</a>
+
+没想到也搞预告的预告这种，是被逼无奈吧</blockquote>
+初代NS不就这样吗
+
+*****
+
+####  电波系腑海林  
+##### 23#       发表于 2025-1-16 21:19
+
+还几把憋，古川你真坐得住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冰寒之月  
+##### 24#       发表于 2025-1-16 21:19
+
+等等看有啥游戏再冲
+
+*****
+
+####  黒鈴ミヲ  
+##### 25#       发表于 2025-1-16 21:20
+
+真给他憋到下半年了啊，真行啊，那我三月不玩xbx了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  downnote  
+##### 26#       发表于 2025-1-16 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197220&amp;ptid=2242384" target="_blank">Link213 发表于 2025-1-16 21:17</a>
+
+初代NS不就这样吗</blockquote>
+这我还真不太记得了，switch公布时候有留这么久的预告吗
+
+*****
+
+####  盐甜葱  
+##### 27#       发表于 2025-1-16 21:21
+
+尼玛的 本来以为明天直面会三月发售，搞半天直面会4月2号，那发售还要好久。
+
+*****
+
+####  Midnight.Coup  
+##### 28#       发表于 2025-1-16 21:22
+
+向下兼容 NS 卡带
+
+*****
+
+####  Philpho  
+##### 29#       发表于 2025-1-16 21:22
+
+用什么内存卡？
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 30#       发表于 2025-1-16 21:23
+
+底座还是接近全覆盖的，我敢说对ns寿命的头号杀手就是这个散热很烂的底座了。
+
+*****
+
+####  我在干什么啊  
+##### 31#       发表于 2025-1-16 21:23
+
+任天堂不上道啊，展示游戏不用3d塞3d马用新马车
+
+*****
+
+####  RUKALUKA  
+##### 32#       发表于 2025-1-16 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197261&amp;ptid=2242384" target="_blank">盐甜葱 发表于 2025-1-16 21:21</a>
+
+尼玛的 本来以为明天直面会三月发售，搞半天直面会4月2号，那发售还要好久。 ...</blockquote>
+看了下官网，亚太地区试玩到5月底，发售估计跑到6、7月了。
+
+*****
+
+####  moekyo  
+##### 33#       发表于 2025-1-16 21:23
+
+艹，这边框是真的绷不住。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/16/212321kkty8pqqyvr8xtkp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:23 上传
+
+*****
+
+####  血狂毘沙门  
+##### 34#       发表于 2025-1-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197292&amp;ptid=2242384" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-1-16 21:23</a>
+
+底座还是接近全覆盖的，我敢说对ns寿命的头号杀手就是这个散热很烂的底座了。 ...</blockquote>
+所以这次带风扇了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Dedalus  
+##### 35#       发表于 2025-1-16 21:24
+
+这片一股饭制味，有这么长时间准备也不拍点好的
+
+而且没展示pro手柄，不会不更新吧
+
+*****
+
+####  中野梓  
+##### 36#       发表于 2025-1-16 21:25
+
+这边框把我看瞎了，以为自己眼睛出了问题
+
+*****
+
+####  obiy  
+##### 37#       发表于 2025-1-16 21:26
+
+九折<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 38#       发表于 2025-1-16 21:26
+
+<img src="https://img.saraba1st.com/forum/202501/16/212627uozaee44ayie9jye.jpg" referrerpolicy="no-referrer">
+
+<strong>(IJ49OWMB85TA)SX3J[MFSP.jpg</strong> (38.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 21:26 上传
+
+*****
+
+####  Tring  
+##### 39#       发表于 2025-1-16 21:26
+
+LOGO直接写个2
+
+坛友的设计都不敢寨味这么足
+
+*****
+
+####  hiro123  
+##### 40#       发表于 2025-1-16 21:26
+
+直接直面会连发布会都不开了？
+
+
+*****
+
+####  葵  
+##### 41#       发表于 2025-1-16 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197304&amp;ptid=2242384" target="_blank">moekyo 发表于 2025-1-16 21:23</a>
+
+艹，这边框是真的绷不住。。。</blockquote>
+怎么感觉左右两边比我OLED的还宽，真是越活越回去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无连斩  
+##### 42#       发表于 2025-1-16 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197249&amp;ptid=2242384" target="_blank">downnote 发表于 2025-1-16 21:20</a>
+
+这我还真不太记得了，switch公布时候有留这么久的预告吗</blockquote>
+10月公布，1月发布会……其实时间倒是差不多
+
+但是这个PV比起switch第一个PV差远了
+
+*****
+
+####  sxfox  
+##### 43#       发表于 2025-1-16 21:28
+
+信息量也太少了，你说这是nspro我也信呀，有没有人来个ns第一次亮相视频的对比
+
+*****
+
+####  Mephisto  
+##### 44#       发表于 2025-1-16 21:28
+
+这屏真有8寸加上跑马框得多大
+
+*****
+
+####  天堂大法  
+##### 45#         楼主| 发表于 2025-1-16 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197292&amp;ptid=2242384" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-1-16 21:23</a>
+
+底座还是接近全覆盖的，我敢说对ns寿命的头号杀手就是这个散热很烂的底座了。 ...</blockquote>
+所以这次底座直接加了个大风扇
+
+*****
+
+####  downnote  
+##### 46#       发表于 2025-1-16 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197345&amp;ptid=2242384" target="_blank">虚无连斩 发表于 2025-1-16 21:27</a>
+
+10月公布，1月发布会……其实时间倒是差不多</blockquote>
+哦可能是这样，因为switch最开始的pv给的内容量还行所以体感上我不觉得发布会等了很久
+
+*****
+
+####  高妹控  
+##### 47#       发表于 2025-1-16 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197304&amp;ptid=2242384" target="_blank">moekyo 发表于 2025-1-16 21:23</a>
+
+艹，这边框是真的绷不住。。。</blockquote>
+比NS无印小点，还行啊
+
+*****
+
+####  u2deack  
+##### 48#       发表于 2025-1-16 21:30
+
+这片子真的普通到毫无亮点
+
+
+*****
+
+####  Edward0901  
+##### 49#       发表于 2025-1-16 21:31
+
+可恶的任地狱抄袭我们索尼大法的纯黑配色
+
+*****
+
+####  Link213  
+##### 50#       发表于 2025-1-16 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197249&amp;ptid=2242384" target="_blank">downnote 发表于 2025-1-16 21:20</a>
+
+这我还真不太记得了，switch公布时候有留这么久的预告吗</blockquote>
+我记得NS1是2016年10月20日公开的宣传视频，发布会是17年1月13日举办的
+
+*****
+
+####  你好s1  
+##### 51#       发表于 2025-1-16 21:31
+
+    不知道多久能正常价买到，特别是这次国行还没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackll7  
+##### 52#       发表于 2025-1-16 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然真有吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Asukalangley33  
+##### 53#       发表于 2025-1-16 21:32
+
+这回护航作是3D马和马车9的话
+
+感觉很麻啊
+
+小红帽，新开放世界塞救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moekyo  
+##### 54#       发表于 2025-1-16 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197368&amp;ptid=2242384" target="_blank">高妹控 发表于 2025-1-16 21:29</a>
+
+比NS无印小点，还行啊</blockquote>
+因为屏幕一开始没亮起的时候，整个机身设计就暗示边框很窄啊，结果一亮屏。2025年了，上个窄边框真的很难吗
+
+*****
+
+####  moekyo  
+##### 55#       发表于 2025-1-16 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197343&amp;ptid=2242384" target="_blank">葵 发表于 2025-1-16 21:27</a>
+
+怎么感觉左右两边比我OLED的还宽，真是越活越回去了</blockquote>
+貌似还是led的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 56#       发表于 2025-1-16 21:33
+
+ns1的pv要介绍“switch”这个概念，2代是继承这个理念的那自然没啥特别大的信息量了
+
+*****
+
+####  气温而人  
+##### 57#       发表于 2025-1-16 21:34
+
+NS1当时我看得挺激动的，便携屏幕、joycon、多人游玩，而且老滚5、野炊、奥德赛也亮相了。
+
+NS2这片子说是NS加强版也不出奇，希望护航阵容大一点吧。
+
+*****
+
+####  whzfjd  
+##### 58#       发表于 2025-1-16 21:35
+
+两边宽但是上下基本是现代水平了，y700也没做到四周等宽
+
+*****
+
+####  保科智子  
+##### 59#       发表于 2025-1-16 21:35
+
+老任第一次数到2？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电波系腑海林  
+##### 60#       发表于 2025-1-16 21:36
+
+今年确定没有GEN10了吗，说好的3年一代呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伊郑z  
+##### 61#       发表于 2025-1-16 21:36
+
+这种没预告直接发的宣传片没那么大期待感，ns第一个宣传片是值得早上发预告，现在这片就是告诉玩家ns2是啥样，具体情况就等4.2发布会了
+
