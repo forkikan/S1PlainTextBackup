@@ -10685,3 +10685,166 @@ pv里海玲是秋季校服，这不会盗号盗了好几个月吧？ ...</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">真有人觉得mujica炸团会怎么样吗，除了大祥以外哪个是没了mujica就不行的，更别提队内完全没有精神领袖
 
+
+*****
+
+####  山ノ内花音  
+##### 8311#       发表于 2025-1-16 22:37
+
+感觉这张合照在真正分崩离析的时候
+
+反而会成为一个情感的证明
+
+*****
+
+####  onlv星骸  
+##### 8312#       发表于 2025-1-16 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">好心碎啊这集
+
+*****
+
+####  木板春香  
+##### 8313#       发表于 2025-1-16 22:38
+
+ 本帖最后由 木板春香 于 2025-1-16 22:41 编辑 
+
+母鸡卡炸了，当然是看祥子的道心再碎啊，而且满身回旋镖，再重生，想想都觉得美味
+
+<img src="https://img.saraba1st.com/forum/202501/16/224041zwfcchhjwdfhhhdh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:40 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/224128n2p6wccb2ii4bznb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:41 上传
+
+*****
+
+####  刑部姬真可爱  
+##### 8314#       发表于 2025-1-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198359&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-16 22:35</a>
+
+真有人觉得mujica炸团会怎么样吗，除了大祥以外哪个是没了mujica就不行的，更别提队内完全没有精神领袖 ...</blockquote>
+除了海铃之外其他都还是比较需要mujica的，初华要找理由和祥子在一起，睦担心祥状况，喵梦要狂蹭流量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨德飞过去  
+##### 8315#       发表于 2025-1-16 22:39
+
+原来最难受的是下一个星期四
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+还得抽多久陀螺啊，孩子顶不住了
+
+*****
+
+####  CCMkIII  
+##### 8316#       发表于 2025-1-16 22:40
+
+哭哭睦好可怜啊
+
+但看到下集预告里她笑起来又觉得“这不对”
+
+*****
+
+####  刑部姬真可爱  
+##### 8317#       发表于 2025-1-16 22:41
+
+鸡团的合照可以和狗团的合照一起看，很对应的
+
+<img src="https://img.saraba1st.com/forum/202501/16/224113fr8c77ra788r8lbf.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>src=http___img.nga.178.com_attachments_mon_202309_23_-9lddQ18w-j9maZmT3cS1hc-u0..webp</strong> (53.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:41 上传
+
+
+*****
+
+####  sauron.j  
+##### 8318#       发表于 2025-1-16 22:42
+
+下集预告soyo的眼神：卧槽有画皮！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 8319#       发表于 2025-1-16 22:42
+
+预告太好玩了
+
+mortis看起来应该是天才演员社交达人
+
+祥子追妻火葬场预定，不够关心幼驯染结果被mortis架空了，报复心真重啊，爱看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有开场的爽姐不安太搞笑了，不会要上演惯性pua结果被记仇mortis青蒜吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道能持续几集，上号这么彻底总有种活不久的感觉
+
+*****
+
+####  KLHgg  
+##### 8320#       发表于 2025-1-16 22:42
+
+mujica先毁灭再重生的情节是有可能的
+
+
+*****
+
+####  玖羽  
+##### 8321#       发表于 2025-1-16 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198195&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-16 22:25</a>
+
+目测大祥老师至少还要被拷打两集</blockquote>
+两集？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+第四话：标题戏剧落幕，工作人员说很不妙
+
+第五话：据说吵得很厉害
+
+第六话：声优看完之后默默吃饭
+
+第七话：肉眼可见的要大爆炸
+
+*****
+
+####  新HGCG  
+##### 8322#       发表于 2025-1-16 22:45
+
+啊这左边眼角的泪光
+
+<img src="https://img.saraba1st.com/forum/202501/16/224536rxwffhm0cvfxyf0y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:45 上传
+
+*****
+
+####  バーチャルS1er  
+##### 8323#       发表于 2025-1-16 22:45
+
+mortis的肉体水平怎么样？我怕之后打架的时候吃亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 8324#       发表于 2025-1-16 22:45
+
+祥厨继续龟缩<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
