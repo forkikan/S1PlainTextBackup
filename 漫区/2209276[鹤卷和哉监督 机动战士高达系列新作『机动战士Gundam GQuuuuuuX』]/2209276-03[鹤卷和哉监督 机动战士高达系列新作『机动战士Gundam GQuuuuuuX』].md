@@ -394,3 +394,53 @@ _()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 3000#       发表于 2025-1-16 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195080&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-16 17:01</a></blockquote>
+这什么鬼姿势<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 3001#       发表于 2025-1-16 17:07
+
+<blockquote>0aleph37 发表于 2025-1-16 17:01
+</blockquote>
+一想到这俩机器人可能是鸭和骡就很难蚌的住
+
+*****
+
+####  古怪山庄士大夫  
+##### 3002#       发表于 2025-1-16 17:07
+
+还在eva，还在eva，鹤卷终的纪录片人都要吐了
+
+*****
+
+####  FF0000  
+##### 3003#       发表于 2025-1-16 17:08
+
+能破防说明整了大活，一个原创动画，不怕它整烂活，就怕它一眼望到头的平庸
+
+*****
+
+####  0aleph37  
+##### 3004#       发表于 2025-1-16 17:09
+
+<blockquote>oi99o 发表于 2025-1-16 17:06
+这什么鬼姿势</blockquote>
+瑜伽 鸽式的低配版吧
+
+*****
+
+####  Piano-Forest  
+##### 3005#         楼主| 发表于 2025-1-16 17:10
+
+[https://x.com/_take_oekaki/status/1879815860690321654](https://x.com/_take_oekaki/status/1879815860690321654)
+<img src="https://p.sda1.dev/21/c7ef816635714c7c2d86294f43c27613/20250116_170844.jpg" referrerpolicy="no-referrer">
+
