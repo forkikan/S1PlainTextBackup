@@ -910,3 +910,66 @@ S33也刷上了机械哥斯拉夹筷子的LOGO。
 
 小道消息哥判断今天新格伦大概率不鸽
 
+
+*****
+
+####  2017.05.04  
+##### 66#       发表于 2025-1-16 15:06
+
+<img src="https://img.saraba1st.com/forum/202501/16/150602gyuqg9g6v6kqcugv.png" referrerpolicy="no-referrer">
+
+<strong>d789681360ef6e50a394f249d3f44c75.png</strong> (77.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:06 上传
+
+发射了，已达到MaxQ
+
+*****
+
+####  2017.05.04  
+##### 67#       发表于 2025-1-16 15:09
+
+二级分离
+
+<img src="https://img.saraba1st.com/forum/202501/16/150908z9629wt9tx001000.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:09 上传
+
+
+*****
+
+####  2017.05.04  
+##### 68#       发表于 2025-1-16 15:11
+
+<img src="https://img.saraba1st.com/forum/202501/16/151119c22u545and7475po.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 15:11 上传
+
+一级二次点火成功
+
+*****
+
+####  タマネギ  
+##### 69#       发表于 2025-1-16 15:12
+
+射了？意然不鸽？
+
+*****
+
+####  lactone  
+##### 70#       发表于 2025-1-16 15:12
+
+新格伦没啥人关注啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

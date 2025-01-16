@@ -193,3 +193,44 @@ pc1.23
 
 早期购买特典包括黎恩教官服、亚尔缇娜4代旅行装、静名服装“白银凶手”、卢法斯&amp;拉碧丝服装“黑色面具＆罗赞贝尔克礼服”，以及道具包“MK野外求生套组”。 http://t.cn/A6uelfKU
 
+
+*****
+
+####  KevinGraham  
+##### 7420#       发表于 2025-1-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67193939&amp;ptid=2160194" target="_blank">医生狼多 发表于 2025-1-16 14:45</a>
+《英雄传说 界之轨迹 -告别塞姆利亚-》Steam版将于 1月23日 发售，追加简体中文，与原版相比有更高的画质和 ...</blockquote>
+价格出了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 7421#       发表于 2025-1-16 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194111&amp;ptid=2160194" target="_blank">KevinGraham 发表于 2025-1-16 15:09</a>
+
+价格出了吗</blockquote>
+STEAM版吗
+
+普440左右 豪989左右 冤种版1450左右 
+
+转自falbgm
+
+
+*****
+
+####  KevinGraham  
+##### 7422#       发表于 2025-1-16 15:12
+
+ 本帖最后由 KevinGraham 于 2025-1-16 15:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194127&amp;ptid=2160194" target="_blank">无动于衷 发表于 2025-1-16 15:11</a>
+
+STEAM版吗
+
+普440左右 豪989左右 冤种版1450左右 </blockquote>
+
+还是云豹一贯的价格<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+哦看了下falbgm动态，发的港区价格468hkd，国区不知道，不过我猜便宜不了多少
+

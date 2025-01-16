@@ -17203,3 +17203,22 @@ B.竹的宝可梦人设 ...</blockquote>
 
 实在不行学水魔搞UC百合婚吧，顺便发上次没发完的EVA特典
 
+
+*****
+
+####  FF0000  
+##### 2957#       发表于 2025-1-16 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67193821&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-16 14:31</a>
+
+来先分锅吧，万一明天#机动战士高达gquuuuuux# 票房爆死了，谁是首锅？
+
+A.庵野的臭名昭著
+
+B.竹的宝可梦人设 ...</blockquote>
+全部给A<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+输了就是痞子无能，社长失格
+
+赢了就是鹤卷gg给力，切割及时
+
