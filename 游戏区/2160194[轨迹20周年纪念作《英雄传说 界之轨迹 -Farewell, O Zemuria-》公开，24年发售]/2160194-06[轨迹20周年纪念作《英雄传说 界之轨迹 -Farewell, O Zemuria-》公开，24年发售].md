@@ -181,3 +181,15 @@ pc1.23
 
 <img src="https://p2.bahamut.com.tw/B/2KU/18/1b5f4f11c14fd62a66e105cfa91st1e5.WEBP" id="aimg_V79P6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  医生狼多  
+##### 7419#         楼主| 发表于 2025-1-16 14:45
+
+《英雄传说 界之轨迹 -告别塞姆利亚-》Steam版将于 1月23日 发售，追加简体中文，与原版相比有更高的画质和帧率，支持4K分辨率、21:9超宽屏和Steam Deck。
+
+豪华版可获得发售后在Steam上架的所有服装与装饰道具，终极版额外附加“塞姆利亚背景音乐精选集”、亚妮艾丝服装“粉红兔女郎”、所有消耗道具DLC。
+
+早期购买特典包括黎恩教官服、亚尔缇娜4代旅行装、静名服装“白银凶手”、卢法斯&amp;拉碧丝服装“黑色面具＆罗赞贝尔克礼服”，以及道具包“MK野外求生套组”。 http://t.cn/A6uelfKU
+
