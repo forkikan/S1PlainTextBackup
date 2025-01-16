@@ -162,3 +162,14 @@ pc1.23
 私たちにはいい飯の種なんだけど。又要 ...</blockquote>
 设计几个小城市跑一跑旅游逛街顺便解决一下事件，一个城市收一个新队友，然后最终章跳个危机解决
 
+
+*****
+
+####  卢迪克  
+##### 7417#       发表于 2025-1-16 11:09
+
+ 本帖最后由 卢迪克 于 2025-1-16 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192335&amp;ptid=2160194" target="_blank">盒饭鬼魅清蒸鱼 发表于 2025-1-16 11:04</a>
+
+设计几个小城市跑一跑旅游逛街顺便解决一下事件，一个城市收一个新队友，然后最终章跳个危机解决 ...</blockquote>差不多，师姐说共和国伊迪斯是能和伊斯卡首都匹敌的大小，另外我还没去帝国的首都。基本黎轨模式<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
