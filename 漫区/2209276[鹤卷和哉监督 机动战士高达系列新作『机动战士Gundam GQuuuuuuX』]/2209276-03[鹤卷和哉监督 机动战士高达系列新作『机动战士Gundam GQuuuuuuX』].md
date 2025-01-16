@@ -1104,3 +1104,67 @@ d231672a679d2ca34b871cbf76586f05.jpg
 
 如果要牢修不挂掉又要以麻球喵安戏份为主的话，该不会是牢修剧场版被抓走了，女主女二救他踏上旅程的马里奥展开吧
 
+
+*****
+
+####  Gysumitka  
+##### 3071#       发表于 2025-1-16 22:28
+
+还是律师画的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺厉害
+
+*****
+
+####  RE㐅ia  
+##### 3072#       发表于 2025-1-16 22:30
+
+吉翁标志就是被博美犬盖住了
+
+<img src="https://img.saraba1st.com/forum/202501/16/222920f1t6484z4tm6j819.png" referrerpolicy="no-referrer">
+
+<strong>64572e18c2a933197035ce642227e1f1.png</strong> (6.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/222945yjfh94zhy7jnnb4n.jpg" referrerpolicy="no-referrer">
+
+<strong>e84fd45dcbdcb5b5be279879abbaed31.jpg</strong> (248.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:29 上传
+
+*****
+
+####  刺客ares  
+##### 3073#       发表于 2025-1-16 22:31
+
+我只能说高达oped画面一般不骗人
+
+当有角色剧中画面突然变多，但oped却只有一帧或没有时，就该想想这人会怎么死了（
+
+
+*****
+
+####  Gysumitka  
+##### 3074#       发表于 2025-1-16 22:32
+
+开红高达不至于电影都熬不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  番茄牛奶  
+##### 3075#       发表于 2025-1-16 22:33
+
+行了，铁血之后还想死主角团的人，现在就三人组还能给你写死？<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 3076#       发表于 2025-1-16 22:33
+
+<blockquote>Gysumitka 发表于 2025-1-16 22:28
+还是律师画的 挺厉害</blockquote>
+越画越好了，米津以前是鼠绘糕手，拿着鼠标画专辑封面（
+

@@ -10567,3 +10567,121 @@ pv里海玲是秋季校服，这不会盗号盗了好几个月吧？ ...</blockq
 除了你别人都没错，全是你的锅
 谢罪！谢罪！谢罪！
 
+
+*****
+
+####  skylah  
+##### 8301#       发表于 2025-1-16 22:29
+
+初华哪里忍心让祥子吃过夜的甜甜圈<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h33  
+##### 8302#       发表于 2025-1-16 22:30
+
+啊骇死我力骇死我力
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  KLHgg  
+##### 8303#       发表于 2025-1-16 22:32
+
+<img src="https://img.saraba1st.com/forum/202501/16/223225lxxpux6xrphuxhq6.jpg" referrerpolicy="no-referrer">
+
+<strong>tieba.baidu.com_0fbea3003af33a87202a5532805c10385243b5df.jpg</strong> (44.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:32 上传
+
+*****
+
+####  鲍里斯  
+##### 8304#       发表于 2025-1-16 22:32
+
+其实祥子比上集好多了吧，这集挺多为睦出头的，就是吵架吵不过就操作变形了
+
+—— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  爱莉希雅  
+##### 8305#       发表于 2025-1-16 22:33
+
+灵魂互换，但是爱音和睦
+
+*****
+
+####  刑部姬真可爱  
+##### 8306#       发表于 2025-1-16 22:33
+
+祥子这季真是狠狠的回旋镖啊，这才三集回旋镖都插满了
+
+下集预告一看到soyo的画面就想笑，真的很期待素睦祥三人再次的“对手戏”啊
+
+喵梦这纯纯事业逼啊，而且以一敌“四”见谁都得怼一句，初华难得被怼得说不出话，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 8307#       发表于 2025-1-16 22:34
+
+<img src="https://img.saraba1st.com/forum/202501/16/223201otrff1f1v8ifr8vv.png" referrerpolicy="no-referrer">
+
+<strong>{2RKUXCRAH~VS87U2${OC$D.png</strong> (30.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/223330oh768gm8668qq636.png" referrerpolicy="no-referrer">
+
+<strong>AOAVIT2R2YJ4NG$W6ZN@J.png</strong> (5.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/223343wk6aykqo1d1o7ffc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">某人立了什么flag啊
+
+*****
+
+####  猫执事  
+##### 8308#       发表于 2025-1-16 22:34
+
+这莫提斯是想报复祥子么
+
+*****
+
+####  天色影子  
+##### 8309#       发表于 2025-1-16 22:34
+
+你不是真正的快乐,你的笑只是你穿的保护色
+
+<img src="https://img.saraba1st.com/forum/202501/16/223414uhzq999h9c50a9u2.png" referrerpolicy="no-referrer">
+
+<strong>D`@4VY`%M7IG$V`E~@8(TKU.png</strong> (409.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 22:34 上传
+
+*****
+
+####  jaewoongh_  
+##### 8310#       发表于 2025-1-16 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">真有人觉得mujica炸团会怎么样吗，除了大祥以外哪个是没了mujica就不行的，更别提队内完全没有精神领袖
+
