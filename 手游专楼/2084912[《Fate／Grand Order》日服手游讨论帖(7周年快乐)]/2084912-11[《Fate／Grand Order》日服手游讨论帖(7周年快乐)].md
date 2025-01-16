@@ -10984,3 +10984,47 @@ F1阿尔法罗密欧车队知道吧
 TMD 太狗了</blockquote>
 放心吧，会还债的，我国服双黄武尊，然后莉莉丝池300多石头没金卡<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 16124#       发表于 2025-1-16 01:09
+
+ 本帖最后由 khxooo 于 2025-1-16 01:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190519&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-16 01:06</a>
+
+看来今年你最狗了 已经三个NEW了</blockquote>
+是四个，剑武藏、花嫁、有珠和武尊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+不过抽山南用了150多个石头，石头已经没多少了。以后估计也没机会狗了。
+
+*****
+
+####  qixinno2  
+##### 16125#       发表于 2025-1-16 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190527&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-1-16 01:09</a>
+
+是四个，剑武藏、花嫁、有珠和武尊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 太狗了
+
+*****
+
+####  khxooo  
+##### 16126#       发表于 2025-1-16 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190533&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-16 01:11</a>
+
+TMD 太狗了</blockquote>
+放心吧，会还债的，我国服双黄武尊，然后莉莉丝池300多石头没金卡<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16127#       发表于 2025-1-16 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190546&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-1-16 01:16</a>
+
+放心吧，会还债的，我国服双黄武尊，然后莉莉丝池300多石头没金卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸 才300石头而已
+

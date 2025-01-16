@@ -16673,3 +16673,23 @@ pv麻球和尼娅安去找黑拳组织这段正好有个“犬”字
 
 当然也有可能是两年后你们高达粉丝更能水了
 
+
+*****
+
+####  YU_JI  
+##### 2903#       发表于 2025-1-16 08:01
+
+<blockquote>PascalLefèvre 发表于 2025-1-16 07:14
+看了下水魔楼，水魔作为真正意义上时隔七年的原创高达续作，从公布到ep0在泥潭只建了三十多楼，gqux只一个 ...</blockquote>
+gqx能建这么多楼得多亏uc假药吧（）
+
+*****
+
+####  UNINSTALL42  
+##### 2904#       发表于 2025-1-16 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67190153&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-1-15 23:36</a>
+
+就为了这个梗把宝可梦老姐拉来人设的？</blockquote>
+这个大概率是鹤卷的性癖而已
+
