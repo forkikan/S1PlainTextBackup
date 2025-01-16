@@ -188,3 +188,50 @@
 
 怎么进化成麻球哈曼明日香三位一体了
 
+
+*****
+
+####  oi99o  
+##### 2980#       发表于 2025-1-16 16:16
+
+我觉得代便单纯指的是uc世界观的剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 2981#       发表于 2025-1-16 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194493&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-16 15:55</a>
+
+有必要吗。。</blockquote>
+常规操作了，再起时候就有了
+
+水魔好像也有一两次
+
+*****
+
+####  PascalLefèvre  
+##### 2982#       发表于 2025-1-16 16:19
+
+其实真的就只藏了UC世界观，对于路人观众可能算惊喜吧，可能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王留美  
+##### 2983#       发表于 2025-1-16 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194592&amp;ptid=2209276" target="_blank">koodooliz 发表于 2025-1-16 16:05</a>
+
+代孙还指望着线下大爆呢？现在都5202年了，sns不好好经营的话年轻人谁在乎。 ...</blockquote>
+ガンダム×ZIP!イチから分かる!国民的アニメ 45年愛される魅力教えますSP[字]
+
+1月18日（土）昼 2:30～3:00
+
+大ヒット上映中「ジークアクス」鶴巻和哉監督&amp;主題歌・米津玄師、話題の2人に独占インタビュー最新作への思いとは…▼本郷奏多&amp;松井玲奈(秘)推し活▼初心者も見るべき新作
+
+上电视台专题节目了
+
+已经预言大ヒット上映中了
+

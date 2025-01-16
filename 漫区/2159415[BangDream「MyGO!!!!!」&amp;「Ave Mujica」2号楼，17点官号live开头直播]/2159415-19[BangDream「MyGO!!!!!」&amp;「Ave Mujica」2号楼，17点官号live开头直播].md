@@ -2841,3 +2841,16 @@ ras也有不仲？</blockquote>
 
 2025-1-16 15:31 上传
 
+
+*****
+
+####  q0we123456  
+##### 26857#       发表于 2025-1-16 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194279&amp;ptid=2159415" target="_blank">chih12 发表于 2025-1-16 15:31</a>
+
+刚好刷到一条关于鸡团的推文，如果真是 2018 年开始准备的话，鸡团来的也太迟了
+
+原文链接 https://x.com/BS ...</blockquote>
+还有个 [@AveMujica](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=569289) 18年10月的
+

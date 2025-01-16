@@ -9821,3 +9821,125 @@ https://tieba.baidu.com/p/9417028806 ...</blockquote>
 
 而且写的是初回特典，不会发货晚的没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 8231#       发表于 2025-1-16 16:19
+
+新的小垃圾.jpg
+
+[https://bushiroad-store.com/pages/avemujica_anime_memorial](https://bushiroad-store.com/pages/avemujica_anime_memorial)
+
+<img src="https://img.saraba1st.com/forum/202501/16/161908ez7nc4znxwwx42jn.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AM_memorial_2renak_set_ari.webp</strong> (116.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/161909udhhltgo1l1hygyo.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AveMujica_Memorial_AKboar_set_ari.webp</strong> (129.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/161912r7z75vxnx5driq1e.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AveMujica_Memorial_kan_ED_ari.webp</strong> (142.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/161915qsfeekjxrbq5jkxs.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BDP_AveMujica_acst_ari_set.webp</strong> (125.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/161917s9owvwuuk856h02s.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BDP_AveMujica_shikakuican_ari_set.webp</strong> (139.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/161945ou53x5xad6impumg.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AM_memorial_can_ari.webp</strong> (122.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:19 上传
+
+*****
+
+####  椎名真希  
+##### 8232#       发表于 2025-1-16 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194670&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 16:14</a>
+
+买晚了，日亚现在都还没发货
+
+而且写的是初回特典，不会发货晚的没有吧</blockquote>
+那是初回生产版，应该是有的
+
+
+*****
+
+####  桜庭千景  
+##### 8233#       发表于 2025-1-16 16:22
+
+初回生产的时间蛮久的吧，我记得在别的ip晚几个月下定都还是发的初回版，可能很久以后再版才是别的特典
+
+*****
+
+####  哈曼的YY  
+##### 8234#       发表于 2025-1-16 16:24
+
+莫姐那张微笑特写什么时候拿来卖
+
+*****
+
+####  darkXcross  
+##### 8235#       发表于 2025-1-16 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194546&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-16 16:01</a>
+
+作为二创写的很好
+
+可惜mujica和mygo都不是一个勇者集合打倒boss的故事</blockquote>
+感谢品读。
+
+我的理解 邦邦 的故事都还挺王道的，
+
+归纳起来是：少女们组成乐队排除艰难险阻最终在舞台上闪耀用音乐带给观众DOKIDOKI的故事。
+
+MYGO是去除心魔重新上路。
+
+MUJICA 如果这样写，主题就是挣脱现实、利益驱动的丝线，人偶们重获自由演奏独属于人偶们自己的音乐。
+
+*****
+
+####  御幸一也  
+##### 8236#       发表于 2025-1-16 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194670&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 16:14</a>
+
+买晚了，日亚现在都还没发货
+
+而且写的是初回特典，不会发货晚的没有吧</blockquote>
+hmv還有，想補的直接hmv網店買，我也是這裡補的
+[https://www.hmv.co.jp/artist_Ave ... m_KiLLKiSS_15384382](https://www.hmv.co.jp/artist_Ave-Mujica_000000000935446/item_KiLLKiSS_15384382)
+
+其他地方是到處都沒有別想了（
+
+除非去比較鄉下的地方店頭買<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
