@@ -1944,3 +1944,14 @@ evol不算前世人狗之类的槽点还算良作，logos撑死算个庸作<img 
 
 LOGOS至少还有个有趣的文字拼凑脑洞设定，隔了这么多年出的这部玩画风反差反而有点平庸，这系列不知道为啥这么被看重能出这么多续篇
 
+
+*****
+
+####  Toby_dak  
+##### 202#       发表于 2025-1-16 17:26
+
+EVOL追着看感觉还行，虽然最终阿波罗是条狗的吃<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">十足，但至少什么平身低头霸、寡妇镇魂曲都挺有乐子。
+Logos……抱歉，坚持不下去三集弃了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

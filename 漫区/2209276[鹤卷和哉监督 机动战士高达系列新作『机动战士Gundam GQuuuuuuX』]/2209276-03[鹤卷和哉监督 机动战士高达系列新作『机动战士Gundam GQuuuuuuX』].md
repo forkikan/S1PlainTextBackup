@@ -491,3 +491,20 @@ _()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
 
 <img src="https://p.sda1.dev/21/36d09bcf217b22f75a29af4fbc3d92de/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 3010#       发表于 2025-1-16 17:29
+
+可能破防的点在哪？
+
+要是真和EVA联通我才会破防，其它已经免疫了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasssf  
+##### 3011#       发表于 2025-1-16 17:31
+
+光是这个放出版本的故事介绍本遗老已经破防了
+
