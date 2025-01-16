@@ -17022,3 +17022,33 @@ UC背景本身就比原创更多谈资啊。
 
 感觉明天扑街了应该会有这么问的
 
+
+*****
+
+####  王留美  
+##### 2938#       发表于 2025-1-16 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67193212&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-16 12:55</a>
+
+如果一开始就不藏信息，光明正大作为UCif全面铺开宣发呢
+
+感觉明天扑街了应该会有这么问的 ...</blockquote>
+不藏那就是闪哈和GTO咯
+
+*****
+
+####  oi99o  
+##### 2939#       发表于 2025-1-16 13:02
+
+宣传UCif肯定会劝退新人的，不过最晚明天也会解禁了，不知道对后面tv版宣发的影响万代是怎么考虑的
+
+
+*****
+
+####  PascalLefèvre  
+##### 2940#       发表于 2025-1-16 13:05
+
+UC包是超级debuff的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
