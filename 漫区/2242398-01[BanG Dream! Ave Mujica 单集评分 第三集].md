@@ -1112,3 +1112,42 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 少女乐队的事情不需要你们搞得那么明白<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  矢吹奈子  
+##### 118#       发表于 2025-1-17 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199160&amp;ptid=2242398" target="_blank">dutage 发表于 2025-1-16 23:32</a>
+有个问题，这种级别的商业乐队，没有保密条款吗？如果合同里白纸黑字说了，不许摘面具，摘了就交违约金，喵 ...</blockquote>
+大少女乐队时代背景是这样的，比起这个我觉得都上MusicStation直播了在cm中间吵架更离谱，地上波直播肯定都彩排过了，正式演出了你改流程，那不就是上春山事件了，得罪电视台以后谁还请你上节目
+
+
+*****
+
+####  Huiiii  
+##### 119#       发表于 2025-1-17 05:01
+
+-1
+
+这集感觉不行。
+
+“台上刚开始演奏就断线”与“大明星在公共地铁站吵架”这两部分剧情，即便用“大乐队时代”的魔法催眠自己，都无法兜住出戏。
+
+这其实在剧本上很好圆回来。但如坛友所言，是剧情太急太赶导致主线人物以外的叙事完全略过带来的剧本空洞。
+
+（但想来只要它后面轻轻解释几句，我的全肯定人格肯定还是会接受的）
+
+睦的内心剧场外化很有惊喜，人偶们组建的小剧场、回忆投影在墙面上的自我挣扎、说话的吉他、现实与倒影在眼眸里的回忆都很有意思，但实现的演出却缺乏惊喜。有一股明明气都到嗓子眼了却依旧没达到预期的泄气感。
+
+配乐不知道是不是mygo里听的太多的缘故，总觉得在a队片场用的几段都很串戏。用点新的呀！音监！
+
+*****
+
+####  Seeley  
+##### 120#       发表于 2025-1-17 05:03
+
+先+2吧，感觉有点微妙，单睦的剧情现在展开到第三集看着还没完，就算初华祥子一块算剧情也想不明白怎么收<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+脑内小剧场感觉很好评，而且睦怎么什么都快祥子一步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
