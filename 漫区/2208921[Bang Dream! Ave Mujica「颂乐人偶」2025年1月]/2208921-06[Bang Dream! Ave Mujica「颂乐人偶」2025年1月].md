@@ -14231,3 +14231,150 @@ https://ngabbs.com/read.php?tid=43042768
 
 我现在都是看lolihouse的CR源，本来以为批站版会是低码率省服务器成本的高压版，但刚才看了下码率有4m多而且还带HDR，意外的还挺高的，难不成看批站源会更好<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scorbian  
+##### 8647#       发表于 2025-1-17 01:16
+
+为了追求纯粹的音乐那一开始为什么要搞舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GhostR1  
+##### 8648#       发表于 2025-1-17 01:17
+
+最速武道馆全国巡演了还要把表演当主菜吗，bang世界不搞乐队搞话剧有点舍本逐末了把
+
+*****
+
+####  qjw114514  
+##### 8649#       发表于 2025-1-17 01:17
+
+小祥这妹妹感都快溢出屏幕了吧，在睦面前撒娇任性发脾气，小剧场还想把自己设定成姐姐。啧啧啧，软糯小妹妹只能老老实实被宠溺姐姐压着这辈子别想翻身喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 8650#       发表于 2025-1-17 01:18
+
+因为母鸡卡世界观的灵感是纪念祥子妈妈吧，但对队友说不出口，只能用音乐性来掩盖自己的真心
+
+*****
+
+####  阿兹尔  
+##### 8651#       发表于 2025-1-17 01:20
+
+楚平方那是知遇之恩，一眼看穿pareo。祥子用浮夸的话套人，那别人应对也不会包含真心啊
+
+*****
+
+####  海洋队手下mayo  
+##### 8652#       发表于 2025-1-17 01:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">吵不过喵梦大概不是因为喵梦会吵 而是祥子初华（睦）都还藏着心思 没说实话，导致只能扯别的
+
+喵梦开吵不也是认为他们给的理由没有说服力，看之前剧情 喵多半是会服理的
+
+
+*****
+
+####  玖羽  
+##### 8653#       发表于 2025-1-17 01:22
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>不过让我印象最深的还是下集预告里soyo的眼神，类似的眼神在高达Z的TV版里也见过。那是在最后几集里，卡缪谈及如果说他这样的NT能做什么，也只有杀人，之后露出了“爽朗”的笑容。这时候夏亚看卡缪的就是这种眼神。就是分明知道这孩子有哪里已经不对劲了，但又说不出具体哪里不对劲，也不知道能做些什么的眼神。
+
+[https://www.zhihu.com/question/9777944571/answer/80909028274](https://www.zhihu.com/question/9777944571/answer/80909028274)</blockquote>
+
+*****
+
+####  Qing_Qi_2.0  
+##### 8654#       发表于 2025-1-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198721&amp;ptid=2208921" target="_blank">utotqe 发表于 2025-1-16 23:04</a>
+
+终于敢进这楼了，存点感想。之前看到剧透cv表还以为全剧都是舞台剧呢，还好还好
+
+喵老师确实不是所谓的离小 ...</blockquote>
+睦觉得自己吉他菜是缺乏自己的表达的思路有意思。
+
+之后的发展可能会是：黑睦在与其他人的相处的过程当中找到了想要通过吉他表现的东西。
+
+最终小睦的吉他破茧而出真的能够放声歌唱，一转搞乐队真TM开心这样的
+
+有一种谜之黑格尔辩证法正反合螺旋发展的感觉
+
+但黑睦形态本身就是为了自我保护做出来的假面。主打一个顺着大家讲片汤话
+
+台上摘了台下倒是带上了
+
+睦自己的力量从内部打破鸡蛋壳不太可能
+
+最后破局还是要看队友和soyo吧
+
+木头人想要表达什么呢？
+
+音乐是自己存在的证明，或者是对他人没法用语言说出来的关心？
+
+好想看第四集啊啊啊
+
+*****
+
+####  北条早苗  
+##### 8655#       发表于 2025-1-17 01:23
+
+这就是大祥回旋镖吃满的地方了，让鸡团把人生交给自己，自己又不给团员交底，一句母鸡卡的世界观除了动机不纯的初华和尊敬的半身睦头又能说得动谁
+
+*****
+
+####  KLHgg  
+##### 8656#       发表于 2025-1-17 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200034&amp;ptid=2208921" target="_blank">屑屑代沟尼亚 发表于 2025-1-17 01:15</a>
+
+祥子每次跟喵梦吵两个幼驯染都不跟团啊
+
+上次说摘面具影响sumimi初华蹦了句我没意见
+
+这次睦直接哑火  这怎么 ...</blockquote>
+车站那会初华可以跟团的：喵梦你指责我忙得几乎没来练习，那么是谁的行为导致我那么忙呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话，初华作为主唱+作曲者是很有资格在mujica的音乐性上帮祥子站台的，她为什么被削弱到不如go10集比较奇怪
+
+*****
+
+####  leader01234  
+##### 8657#       发表于 2025-1-17 01:24
+
+初华小姐解散sumimi的flag再多点，又是被怼不够上心又是掰断的甜甜圈。一想到他将付出一切还是介不到大祥老师的心嘴角就抑制不住的上扬啊
+
+*****
+
+####  Diong  
+##### 8658#       发表于 2025-1-17 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199977&amp;ptid=2208921" target="_blank">liekong 发表于 2025-1-17 01:00</a>
+
+啊，你这么一说我觉得还挺有可能的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/17/012335s36v665e6ttwjdtt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (438.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 01:23 上传
+
+   
+
+<img src="https://img.saraba1st.com/forum/202501/17/012434zjnc6amala54zgii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 01:24 上传
+
+用今天motis跟睦头最后对话的那个画面的嘴接了一下，感觉差不多。
+
