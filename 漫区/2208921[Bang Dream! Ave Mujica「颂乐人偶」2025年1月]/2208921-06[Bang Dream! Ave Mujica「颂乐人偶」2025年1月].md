@@ -15039,3 +15039,40 @@ mvp大喵老师，现在母鸡卡里唯一一个真正知道自己想要什么�
 所以我怀疑祥子心目里的睦到底是几岁 ...</blockquote>
 祥子的时间已经停止了（<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 8712#       发表于 2025-1-17 03:19
+
+小睦本集演出效果更加让人窒息，除了人偶独白之外，mujica团的争吵和crychic的争吵重叠这段也非常有感觉，我本来就喜欢台词闪回的做法。
+<img src="https://p.sda1.dev/21/e69044bd6f4faa2e3ce182baa65af552/Screenshot_20250116_224402_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小睦确实是做到了在少女乐队番里整宛如奇幻故事角色黑化的效果，她实在已经走入死角，逼迫自己面对自己原本厌恶的演艺，在扮演角色中逃避，逃避就是面对，面对就是逃避。这种逼角色面对原本逃避的东西的情节，本身就是种残酷的设计
+
+这实在是太有魔圆“魔女化”即视惑了，制作组一顿饭吃几个戏剧性剧本啊，太惨烈了，太悽怆了
+<img src="https://p.sda1.dev/21/c97900cdf48aede8ba227f6fe124bf6c/Screenshot_20250117_014548_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+本集的“节目要求重现表演”也有点大河内，用尽一切力量去逼迫角色走入困境死局，主角团内的手段用了，就用外界压力的手段，然后，角色在死局中黑化。
+<img src="https://p.sda1.dev/21/93d33718f7bb97a548634516f69da78d/Screenshot_20250116_225245_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+看来mujica的商业戏就是用来写戏剧冲突的工具了，真是无法预测的命运之舞台，看下集预告这笑容灿烂的五人合影，真是想不到她们接下来会走向何方
+<img src="https://p.sda1.dev/21/2cde80368ade70995c630942035181e9/Screenshot_20250116_225533_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+下集预告还有soyo注意小睦，小睦这突然开始和同学说笑的样子也是让人毛骨悚然，小睦的故事做得太虐了
+
+果然要到mygo内容就让人更期待了，在soyo的视角小睦越发奇怪了，soyo究竟能不能发现原因，又会不会接着全都怪到祥子身上，会不会是拯救小睦的开始，官方真是太会钓了。
+<img src="https://p.sda1.dev/21/d8ae4ddd382cc8311f0bc4c285510ce2/Screenshot_20250116_225451_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<strong>我好想看
+
+mujica下一集</strong>
+
+*****
+
+####  天空塔书记官  
+##### 8713#       发表于 2025-1-17 03:21
+
+祥子最大的性格缺点就是“高高在上”和“心里只有自己”，她以为她有能力和觉悟来担负别人的“一辈子”，但却忽视了这个担负是双向的，“哭泣呐喊后的优雅”来自于人与人的情感链接和守望相助，而不是神明的引领牺牲和信徒的奉献追随，她从来没有把自己放在和队友同样的高度，名为人偶，实际上却是扮成人偶的神明，迷子是一起迷路的孩子，虽然有迷茫和冲突，但五个人还是一直手拉着手向前，而祥子呢，只有她自己，山巅上的神明，神明被拉下神坛的过程免不了丑陋和滑稽，但这也正是剧情张力之所在，所以并不存在所谓抹黑和洗白，祥子也只是个故作坚强的十几岁的孩子而已，软糯的小祥为什么就是不被允许存在的呢，现实中的缺憾就由创作去补足，这才是童话存在的意义
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
