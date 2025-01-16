@@ -17184,3 +17184,22 @@ F.大机器人就是没人看啦
 
 会赢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别再奶了，只要胶大卖，一切都会好起来的
 
+
+*****
+
+####  刺客ares  
+##### 2956#       发表于 2025-1-16 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67193821&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-16 14:31</a>
+
+来先分锅吧，万一明天#机动战士高达gquuuuuux# 票房爆死了，谁是首锅？
+
+A.庵野的臭名昭著
+
+B.竹的宝可梦人设 ...</blockquote>
+机设首锅，人设二锅，痞子三锅，水魔四锅<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+人家种自说去年我刚砍下53亿，凭什么说机器人没人看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实在不行学水魔搞UC百合婚吧，顺便发上次没发完的EVA特典
+
