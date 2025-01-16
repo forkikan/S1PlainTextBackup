@@ -1232,3 +1232,42 @@ d231672a679d2ca34b871cbf76586f05.jpg
 
 牢修当公主位谁来带货呢，机体属于强绑定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3084#       发表于 2025-1-16 23:29
+
+hachi越画越好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3085#       发表于 2025-1-16 23:32
+
+ 本帖最后由 Aaa炒面面包批发 于 2025-1-16 23:35 编辑 
+
+刚画完一刷新就看到hachi新图
+哎有时候虽然也会喷喷什么不如以前啦旋律公式啦但出歌还是该听听该买买的
+突然开始让人期待起来了
+我也随一张
+（修司，橙色小机器人会代替你活下去的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+顺便尼娅安的下睫毛和麻球右边耳朵的月亮耳钉应该是锚点
+<img src="https://p.sda1.dev/21/70f29440b6735b1e481bafbd83b60ab2/image.jpg" referrerpolicy="no-referrer">
+
+（今天两位女角色的双人图突然多起来了呢）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刺客ares  
+##### 3086#       发表于 2025-1-16 23:33
+
+<blockquote>Gysumitka 发表于 2025-1-16 23:21
+牢修当公主位谁来带货呢，机体属于强绑定了</blockquote>
+水魔后期大家也在给铁骑找驾驶员（
+

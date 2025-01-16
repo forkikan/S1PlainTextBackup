@@ -11889,3 +11889,277 @@ AB1DA42903BF2E405524F6F2A53439D2.jpg
 做为祥厨看这集的表情
 <img src="https://p.sda1.dev/21/4855748239f4cc0ef322a2e7f2d1e42f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OPCI_0125  
+##### 8423#       发表于 2025-1-16 23:26
+
+“睦也是会笑的”、“你以前明明很爱笑，无所不谈”，或许对祥来说开朗的睦才是曾经的常态。所谓“白”睦才是因为种种原因而诞生的“黑”睦，或者说其实根本无所谓什么黑白——只是睦在自我、祥与镜头之间矛盾地徘徊着，微笑着流出半滴眼泪。
+
+*****
+
+####  凉良  
+##### 8424#       发表于 2025-1-16 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198802&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-16 23:10</a>
+
+祥子的设定是“顺从的mortis”，但是mortis现在看来是第一个跳出来忤逆祥子对mujica风格安排的。
+
+那么按这 ...</blockquote>
+一开始就有全是反的推论了吧
+
+*****
+
+####  试制甲炮  
+##### 8425#       发表于 2025-1-16 23:27
+
+所以黑睦这个人格应该不是木头的原本人格，完全是应激产生出来的东西。
+
+*****
+
+####  杂灰  
+##### 8426#       发表于 2025-1-16 23:27
+
+素世看着现在的睦头，大概满眼都是过去的自己
+
+*****
+
+####  AnnieLeonhart  
+##### 8427#       发表于 2025-1-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67180819&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-14 20:09</a>
+
+会不会真有一集题目是et tu Uika</blockquote>
+<img src="https://p.sda1.dev/21/b362aee63ebe8d8c54d33aa78c0ac71f/12.jpg" referrerpolicy="no-referrer">
+
+初华怎么连你也跑他们那边去了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8428#       发表于 2025-1-16 23:28
+
+不知道祥子说睦以前更健谈更常露出笑容有没有什么深意
+
+一个猜测是睦小时候就有多重人格了。展露出笑容是因为和祥一起很开心吗？但是这集里会笑的那个人格却忤逆了祥子
+
+另一个猜测可能睦祥小时候的生活都是无忧无虑的那种，所以也都比较开朗。睦是后来感受到了来自父母的压力才转向内向的，里人格则恐怕是更晚才被逼出来。
+
+不管怎么样，看上去祥子也不知道睦为什么就变内向了，估计两人后来分开过几年。
+
+*****
+
+####  skylah  
+##### 8429#       发表于 2025-1-16 23:28
+
+说着4对1实则海初都是中立，初华偏小祥那边，海铃旁观
+就看mortis如何发挥了
+
+*****
+
+####  厄神之息  
+##### 8430#       发表于 2025-1-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198723&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-1-16 23:04</a>
+
+这集之前大伙可能都没认识到原来大祥老师想搞的是本格派乐队</blockquote>
+不一直是有噱头的乐队吗？还在理解范围之内吧，喵梦想要没音乐的乐队才是我觉得想不通的地方啊，扪心自问，没睦这颗大树，谁有兴趣看高中生写的中二小剧本尬演啊？乐队和纯剧团，哪个散架更快这还想不明白吗？更别提原来搞噱头乐队的时候喵梦还可以靠成为里面跳最会尬演的成员成为乐队最引人注意的那个，这下纯演剧团，你不只能被睦按着揍？若叶睦光环的强光能遮的你一点都透不出来。
+
+不过这都是剧里人物的问题，随着剧情发展肯定会想明白的，所以这个无所谓的。但是场外观众可没有被人写好人生剧本啊，在那一边觉得流量明星综艺明星恶心挤占资源不出活是毒瘤，毁了文娱界，一边在动画里说“哎呀，大猫是对的，这才是为观众想的好艺人”我是真觉得难顶啊。
+
+*****
+
+####  pokemon最爱  
+##### 8431#       发表于 2025-1-16 23:29
+
+说到底中二小剧场是祥子要加的，现在中二小剧场因为睦的失误爆火，然后你祥子反而说不搞这个了，对于没有上帝视角当事人也什么都不说导致什么内情都不知道的喵梦来说完全是莫名其妙好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而祥子注意到了睦精神状态不对却也只注意到了这件事，完全没有注意到根源是什么。
+
+祸端说到底是祥子以人气和流量为由把喵梦拉进来时埋下的，各方都是皇帝用金锄头种地的对对方不了解。
+
+但说实话，祥子坚持音乐而非表演这个观点本身是正确的——以这集的描写看，真走表演路线在睦炸了后下一个被逼疯炸掉的就是提出转路线的喵梦自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉达  
+##### 8432#       发表于 2025-1-16 23:29
+
+理解了什么叫史上最狂的乐队番
+
+*****
+
+####  玖羽  
+##### 8433#       发表于 2025-1-16 23:29
+
+重看了一下MyGO第12话，发现祥子也没尊重过喵梦的音乐
+
+见面的时候喵梦问为什么找我，祥子说的是：1）脸和数字；2）你是双利手；3）你的打法很特殊；4）但是还要多练
+
+回过头来想，这也太不会说话了，双利手是天生的，打法是她选择的风格，这根本算不上称赞，后面马上跟一句还要多练，更是显得前面的称赞很敷衍
+
+这一话特意展现了喵梦练鼓多努力，就连Masking都能认可，水平肯定是有的，祥子那句话绝对让喵梦在心里很不爽
+
+喵梦肯定觉得，祥子根本看不上她为打鼓付出的努力，找她纯粹是为了脸和数字
+
+所以喵梦接下来马上开始谈利益：对我有什么好处，祥子拿出了若叶睦
+
+喵梦：OK，你要脸和数字，那我就给你脸和数字
+
+*****
+
+####  sakatta  
+##### 8434#       发表于 2025-1-16 23:29
+
+已经逐渐忘记这是乐队番了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 8435#       发表于 2025-1-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199022&amp;ptid=2208921" target="_blank">Diong 发表于 2025-1-16 23:23</a>
+祥子凶睦头那段做的真是好啊，虽然很多人都觉得这个地方是祥子压力睦头，但是我感觉这似乎更像是亲人吵架啊 ...</blockquote>
+这个确实，祥子的发言还能感到亲昵和对于现状的绝望，唯一不满的是祥子怎么扭头又跑了，那个分镜简直和春日影破防跑路一模一样，这下变成祥子也在逃避喽
+
+*****
+
+####  snhz1029  
+##### 8436#       发表于 2025-1-16 23:30
+
+楼里还演上了 草
+
+*****
+
+####  猫执事  
+##### 8437#       发表于 2025-1-16 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198604&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-16 22:55</a>
+
+喵梦这...
+
+上集结尾的表情我还以为她是意识到自己闯祸了，没想到竟然是觉得睦演太好了
+
+这真是正常人会有的 ...</blockquote>
+不懂BANG的世界观 演出翻车怎么会被当做神演技糊弄过去的，难道要解释说睦太好看于是能成立么
+
+*****
+
+####  陶矢  
+##### 8438#       发表于 2025-1-16 23:31
+
+卧槽了我是soyo我憋屈死了，拆队姐妹离了我乐队火了性格都开朗了，这季又是母鸡卡主场注定打不了反击翻不了身了对我伤害好大我艹看的我胃好疼
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  siansian  
+##### 8439#       发表于 2025-1-16 23:32
+
+非常有趣的一点是，我们观众从上帝视角来看鸡团处于解散危机之中，但是在剧中观众的视角来看，鸡团的事业反而显然是在蒸蒸日上。祥子的痛苦之点在于，尽管她自认为对鸡团近乎付出一切，但却无可奈何地见证ave mujica这架银河战舰逐步走向失控
+
+
+*****
+
+####  玖羽  
+##### 8440#       发表于 2025-1-16 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199069&amp;ptid=2208921" target="_blank">OPCI_0125 发表于 2025-1-16 23:26</a>
+
+“睦也是会笑的”、“你以前明明很爱笑，无所不谈”，或许对祥来说开朗的睦才是曾经的常态。所谓“白”睦才 ...</blockquote>
+但是睦的小剧场里说睦一直都不太会说话，不由得让人怀疑祥子心目中的睦是几岁的睦
+
+
+*****
+
+####  一个陆仁贾  
+##### 8441#       发表于 2025-1-16 23:32
+
+祥子对睦说的那些话如果是对着初华哭诉，感觉初华能马上爆气杀穿鸡团其他人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fsfs_freeze  
+##### 8442#       发表于 2025-1-16 23:32
+
+越想越想不明白祥子还能怎么逆转，要不样子也疯一下好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 8443#       发表于 2025-1-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198698&amp;ptid=2208921" target="_blank">BebopEin 发表于 2025-1-16 23:02</a>
+
+坏了，这三话无论戏里的观众还是戏外的我们能记住的都只是你们的表演，五人乐队来点音乐行不行
+
+—— 来自  ...</blockquote>
+按MYGO的节奏，下次再听到乐队表演估计要7集以后了
+
+*****
+
+####  MASKA-1  
+##### 8444#       发表于 2025-1-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199072&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-16 23:26</a>
+
+一开始就有全是反的推论了吧</blockquote>
+没怎么去看这些
+
+*****
+
+####  屑屑代沟尼亚  
+##### 8445#       发表于 2025-1-16 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥根本不知道到睦对拆团有PTSD吧
+
+她觉得自己把锅背完了  
+
+没意识到睦的压力有一部分来自当初拆C团的罪恶感
+
+情报不全导致压力没控好把睦头压死了
+
+*****
+
+####  莉缇娅  
+##### 8446#       发表于 2025-1-16 23:34
+
+祥子这人设越来越像马希洛了。
+
+*****
+
+####  jaewoongh_  
+##### 8447#       发表于 2025-1-16 23:34
+
+我觉得祥睦暂时圆不下去了，大祥跟她爹果然是一脉相承，上班受气下班对家人撒气，这就是家人感
+
+*****
+
+####  铃森冬  
+##### 8448#       发表于 2025-1-16 23:35
+
+小睦太痛了，听天音妹妹唱 unravel 导致的
+
+*****
+
+####  厄神之息  
+##### 8449#       发表于 2025-1-16 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198798&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-16 23:09</a>
+
+这话说别人可以，但喵梦就是你丰川祥子本人用“脸和数字”拉进来的
+
+祥子：为什么摘面具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大象确实是天天觉得自己算无遗策然后天天吃瘪。心比天高，命比纸薄。一吵架小笨嘴就只会“你才该练！”但是这和电脑前的观众一边嫌弃流量明星，一边觉得大猫才是为观众好完全矛盾没关系啊。
+
+*****
+
+####  akiomn  
+##### 8450#       发表于 2025-1-16 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方放睦祥图，18号高尾节约广播，明摆着都知道低气压过分了点，要找补的。相信就完了，现在不过是最低点，等祥子后面操作回来吧
+

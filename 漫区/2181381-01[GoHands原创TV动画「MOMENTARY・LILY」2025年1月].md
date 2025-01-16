@@ -24,3 +24,19 @@
 
 然后这集完全没有战斗了
 
+
+*****
+
+####  gammatau  
+##### 115#       发表于 2025-1-16 23:28
+
+这公司画画这么有特色就不能找个靠谱的剧本吗...
+
+
+*****
+
+####  Delicatus545  
+##### 116#       发表于 2025-1-16 23:33
+
+比起剧本还是先把光污染和精细的头发调整到正常人能接受的水平比较重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
