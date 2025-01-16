@@ -9437,3 +9437,47 @@ mortis顶多就是lock 脱眼镜castoff
 hhw求科普</blockquote>
 日常教学楼三楼跳下去的主唱，跳伞邮轮开演唱会，动力机甲米歇尔
 
+
+*****
+
+####  一心而用  
+##### 8197#       发表于 2025-1-16 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192615&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-16 11:34</a></blockquote>
+<img src="https://p.sda1.dev/21/1c485a12b0318f3c24ae28836a9ec1f9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ARS_Iapetos  
+##### 8198#       发表于 2025-1-16 11:50
+
+<blockquote>山ノ内花音 发表于 2025-1-16 11:34
+</blockquote>
+好好好 
+
+
+*****
+
+####  达达葱2  
+##### 8199#       发表于 2025-1-16 11:54
+
+怎么天还不黑，急死了
+
+*****
+
+####  mono  
+##### 8200#       发表于 2025-1-16 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192138&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-16 10:43</a>
+
+hhw求科普</blockquote>
+happy hello world，欢乐路线的团，和banddream其他团也不像一个世界
+
+主唱心是不知什么巨型势力的大小姐，有自己的巨型邮轮，可以从三楼跳下无伤
+
+DJ米歇尔 那个外壳其实是钢铁侠，可以飞
+
+具体可以看s02e04
+
+另外五个人三个是傻的 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

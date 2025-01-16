@@ -16887,3 +16887,25 @@ UC背景本身就比原创更多谈资啊。
 
 水魔也是纸媒拉满<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 2924#       发表于 2025-1-16 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192388&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-16 11:10</a>
+
+这年头都是老头才买报纸啦。
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+老龄化社会日本，只有老头子啦（
+
+*****
+
+####  刺客ares  
+##### 2925#       发表于 2025-1-16 11:54
+
+坐席数出来了，48万，大幅超越种自和鬼灭先行，同期影片坐席在这个数字面前全变路边一条了
+
+本来以为排30万左右就不错了，东宝直接给顶上48万，这次真不能翻车啊鹤卷gg，翻车你要成为计量单位了
+
