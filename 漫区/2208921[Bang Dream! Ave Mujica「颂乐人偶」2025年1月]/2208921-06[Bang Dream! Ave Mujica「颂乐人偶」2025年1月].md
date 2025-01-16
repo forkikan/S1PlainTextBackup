@@ -9541,3 +9541,15 @@ DJ就是不负责任何乐器？</blockquote>
 
 hhw对mujica最有用的论证点是真的出现过面具人格和本体对话的剧情，就是dj的那位，后期有一个她脱皮套后本体上台的剧情，上台前出现了本体和皮套人格的对话
 
+
+*****
+
+####  fsfs_freeze  
+##### 8207#       发表于 2025-1-16 13:22
+
+ 本帖最后由 fsfs_freeze 于 2025-1-16 13:24 编辑 
+
+hhw的超级系和mujica没什么关联吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+至于msk的伪装和mujica人偶还会有什么关系吗
+
