@@ -9533,3 +9533,11 @@ DJ就是不负责任何乐器？</blockquote>
 
 问就是动力装甲<img src="https://static.saraba1st.com/image/smiley/carton2017/299.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 8206#       发表于 2025-1-16 12:50
+
+hhw对mujica最有用的论证点是真的出现过面具人格和本体对话的剧情，就是dj的那位，后期有一个她脱皮套后本体上台的剧情，上台前出现了本体和皮套人格的对话
+
