@@ -1481,3 +1481,41 @@ GQuuuuuuX改名GQ藏藏藏藏藏藏X吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gamedreamer  
+##### 3109#       发表于 2025-1-17 07:22
+
+有一说一如果排除宣发内鬼的可能，这先行剧场版的内容量是有多大才值得这么长啊。
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  molemole  
+##### 3110#       发表于 2025-1-17 07:22
+
+<img src="https://img.saraba1st.com/forum/202501/17/072309i8fdfx2q26puaaqr.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_6102940770850005.jpg</strong> (120.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 07:23 上传
+
+*****
+
+####  molemole  
+##### 3111#       发表于 2025-1-17 07:23
+
+<img src="https://img.saraba1st.com/forum/202501/17/072352g6yvoaand35de86y.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_6103057217545299.jpg</strong> (366.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 07:23 上传
+
