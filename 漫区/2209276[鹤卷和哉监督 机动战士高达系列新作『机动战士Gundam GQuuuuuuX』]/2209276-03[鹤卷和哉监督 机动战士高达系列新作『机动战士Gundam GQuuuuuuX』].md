@@ -717,3 +717,24 @@ https://x.com/_take_oekaki/status/1879815860690321654</blockquote>
 喵的CV说看了剧场版能更好的理解TV剧情
 这个怎么理解呢？
 
+
+*****
+
+####  jojonathan  
+##### 3034#       发表于 2025-1-16 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195969&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-16 18:56</a>
+喵的CV说看了剧场版能更好的理解TV剧情
+这个怎么理解呢？</blockquote>
+答案是有新画面 和富野重新剪的g复国一样
+
+
+*****
+
+####  RE㐅ia  
+##### 3035#       发表于 2025-1-16 19:04
+
+<blockquote>YU_JI 发表于 2025-1-16 18:54
+那可惜了，总觉得24集做不出来，12集又太短</blockquote>
+可以期待the end剧场版
+
