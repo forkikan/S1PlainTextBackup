@@ -9287,3 +9287,31 @@ mujica的归mujica
 
 而不直面自己就解決不了雞團的假面問題
 
+
+*****
+
+####  wqan1007  
+##### 8183#       发表于 2025-1-16 09:45
+
+有没有可能睦变莫迪丝只是个开始
+
+后面小祥也要变ob一串
+
+初华也要变朵啰里失
+
+海玲也要变帖木里失
+
+直接十人团
+
+
+*****
+
+####  一心而用  
+##### 8184#       发表于 2025-1-16 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67191558&amp;ptid=2208921" target="_blank">wqan1007 发表于 2025-1-16 09:45</a>
+有没有可能睦变莫迪丝只是个开始
+
+后面小祥也要变ob一串</blockquote>
+你这么搞角色还没精分，观众要精分了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
