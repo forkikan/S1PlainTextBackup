@@ -877,3 +877,18 @@ GQuuuuuuX -序-</blockquote>
 1月17日公開！ぜひぜひ
 <img src="https://p.sda1.dev/21/f11422ea3fffa80f2505214e803299bf/20250116_191324.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 3050#       发表于 2025-1-16 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196603&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-16 20:18</a>
+
+可靠情报说是季番
+
+那12集完全是有可能剪成三部剧场版供后续上映的
+
+GQuuuuuuX -序-</blockquote>
+是序破Q，终要看观众爆不爆金币再出。
+
