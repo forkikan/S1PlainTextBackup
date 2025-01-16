@@ -298,3 +298,99 @@ PV2都把木马画上去了还藏个屁的世界观，藏一下IF路线和机体
 
 这样吧，麻球是哈曼明日香三位一体，结局就是，麻球驾驶二号机（高达Ver）杀回原UC的世界线，最后来一个终极牺牲，救了原UC的阿曼，地球也化为了LCL之海
 
+
+*****
+
+####  UNINSTALL42  
+##### 2991#       发表于 2025-1-16 16:56
+
+那我还说麻球是直太，修司是晴子，妮娅安是真见美呢
+
+_()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
+(169.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 16:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/165646gzz3meavb5bz7zer.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 2992#       发表于 2025-1-16 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194956&amp;ptid=2209276" target="_blank">FF0000 发表于 2025-1-16 16:47</a>
+
+已知麻球是明日香，修司是渚薰，
+
+那尼娅安是不是真嗣呢
+
+（尼娅安PV里的性格真的有点像性转真嗣，不怎么说 ...</blockquote>
+甚至和真嗣一样喜欢戴耳机，那会被从天而降的妈妈辈眼镜大姐姐拐走吗<img src="https://static.saraba1st.com/image/smiley/carton2017/349.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 2993#       发表于 2025-1-16 16:57
+
+不要太爱真希波了
+
+*****
+
+####  PascalLefèvre  
+##### 2994#       发表于 2025-1-16 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195033&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-16 16:55</a>
+怎么开始嗯套Eva了，真觉得鹤卷做eva还没做够吗（）</blockquote>
+看痞子在几部皮套人电影里的表现他已经走不出eva了，就让鹤卷gg陪他做一辈子eva吧<img src="https://static.saraba1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jojonathan  
+##### 2995#       发表于 2025-1-16 17:00
+
+不知道明天要有多少楼友破防 好期待<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 2996#       发表于 2025-1-16 17:01
+
+<img src="https://img.saraba1st.com/forum/202501/16/170139fzezqu4481je56c7.jpg" referrerpolicy="no-referrer">
+
+<strong>1000061612.jpg</strong> (170.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 17:01 上传
+
+
+*****
+
+####  刺客ares  
+##### 2997#       发表于 2025-1-16 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195077&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-16 17:00</a>
+
+不知道明天要有多少楼友破防 好期待</blockquote>
+只有主角团真开始规规矩矩打黑拳打12集才会破防我<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 2998#       发表于 2025-1-16 17:03
+
+好可爱的麻球，真想看到她杀人的样子
+
+*****
+
+####  PascalLefèvre  
+##### 2999#       发表于 2025-1-16 17:05
+
+每次在高达里面看到萝莉角色就深刻感受到总帅是对的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
