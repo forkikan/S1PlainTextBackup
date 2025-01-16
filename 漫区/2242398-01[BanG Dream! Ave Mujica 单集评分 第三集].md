@@ -1009,3 +1009,18 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 阳光开朗睦头人
 
+
+*****
+
+####  玖羽  
+##### 109#       发表于 2025-1-17 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199063&amp;ptid=2242398" target="_blank">fsfs_freeze 发表于 2025-1-16 23:26</a>
+
+那演出呢？不演了还是休息之后再重演？
+
+主要问题是，观众也能看出来后续也就那几项展开，但具体是哪一项没说。我的意思就是这种留白好像只有独角兽用得比较多(包括邦邦前几作)。不过我也不好说这是好是坏，目前只能归结于个人特点。</blockquote>
+这是本片信息密度高的一个特征（或者说副作用），哪怕稍微不重要的剧情都直接砍
+
+马斯克说过：极简就是砍到你觉得后悔为止
+
