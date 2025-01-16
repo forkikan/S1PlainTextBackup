@@ -751,3 +751,11 @@ alt+enter，取消全屏也是。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">创群最不好的一点就是楼容易塌了
 
+
+*****
+
+####  Whalouse  
+##### 69#       发表于 2025-1-17 05:24
+
+确实很上头啊这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">地图是真的大，就算看不明白剧情瞎逛街舔图都很有意思，还是明雷完全可以规避战斗，甚至都不要你刷级，花点素材就能把冷板凳队友等级拉满，太舒服了
+
