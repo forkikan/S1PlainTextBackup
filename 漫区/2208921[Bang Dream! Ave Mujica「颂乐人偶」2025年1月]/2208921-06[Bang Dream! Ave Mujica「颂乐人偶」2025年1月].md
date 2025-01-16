@@ -10174,3 +10174,16 @@ Mortis：难过的时候就对我说吧。我也很担心睦酱。
 
 而且现在为什么祥子说不过喵梦 因为剧情里没能表明喵梦提前炒热度是错误的。 感觉第五集大概就要喵梦和黑睦一起吃瘪了。 音乐番终究还是要回到音乐上来。
 
+
+*****
+
+####  收纳袋  
+##### 8261#       发表于 2025-1-16 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196063&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-16 19:13</a>
+
+我入坑比较晚，mygo的时候没参加讨论，第10集前后s1大概是什么讨论基调和评价
+
+现在哪里能看那时候的楼 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2066984-1-1.html](https://bbs.saraba1st.com/2b/thread-2066984-1-1.html)第10集的话就从101页开始看。一开始评价还比较两极分化后来逐渐是好评居多，如果有说错的地方希望楼友指正
+
