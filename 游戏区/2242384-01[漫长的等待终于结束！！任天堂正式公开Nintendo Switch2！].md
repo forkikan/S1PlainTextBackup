@@ -1152,3 +1152,11 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Mires  
+##### 136#       发表于 2025-1-17 00:20
+
+观望了，硬件没创新，阵容也还不明朗。等有了3D马或者塞尔达再买
+
