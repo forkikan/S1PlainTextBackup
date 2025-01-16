@@ -234,3 +234,16 @@ STEAM版吗
 
 哦看了下falbgm动态，发的港区价格468hkd，国区不知道，不过我猜便宜不了多少
 
+
+*****
+
+####  ravend233  
+##### 7423#       发表于 2025-1-16 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194130&amp;ptid=2160194" target="_blank">KevinGraham 发表于 2025-1-16 15:12</a>
+
+还是云豹一贯的价格
+
+哦看了下falbgm动态，发的港区价格468hkd，国区不知道，不过我猜便宜不了多少 ...</blockquote>
+国区定价还没出，看能不能和YS10一样给国区特供定价，YS10就是港区468HKD，国区298
+
