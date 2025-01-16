@@ -1436,3 +1436,15 @@ GQuuuuuuX改名GQ藏藏藏藏藏藏X吧
 律师还特意画了张同人？那为什么PV2听上去像是敷衍的公式歌</blockquote>
 自己手绘封面是他的老惯例了，从v家时代就坚持下来的，以前都是词曲绘mv一人全包，也只有地球仪这种少部分曲子是直接用的原画
 
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 3104#       发表于 2025-1-17 00:40
+
+説明書にほとんど記載がなく、武装類の名称など現時点での詳細は不明です。
+
+说明书也藏，闹麻了真的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+虽然我是山下孝子该买的胶都会买，但这藏逼宣发只能说最后褒姒也是活该<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

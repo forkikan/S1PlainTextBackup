@@ -1177,3 +1177,26 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 骂归骂，首发能拿下还是得拿下的，我倒要看看朱紫在新硬件下运行是个什么吊样子 ...</blockquote>
 感觉朱紫已经不是性能提升能救得了的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 139#       发表于 2025-1-17 00:40
+
+健身环2，急
+
+*****
+
+####  努斯万克  
+##### 140#       发表于 2025-1-17 00:43
+
+漫长的等待之后迎来的是更漫长的等待
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 141#       发表于 2025-1-17 00:46
+
+先别着急喷，等ZA发售等宝批来迎接这波攻势吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
