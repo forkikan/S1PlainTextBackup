@@ -9331,3 +9331,22 @@ mujica的归mujica
 
 都已经有hhw这种超级系乐队了，mujica在别的路线上夸张点其实也没什么吧
 
+
+*****
+
+####  达达葱2  
+##### 8187#       发表于 2025-1-16 10:43
+
+<blockquote>杂灰 发表于 2025-1-16 10:33
+都已经有hhw这种超级系乐队了，mujica在别的路线上夸张点其实也没什么吧</blockquote>
+hhw求科普
+
+*****
+
+####  杂灰  
+##### 8188#       发表于 2025-1-16 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192138&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-16 10:43</a>
+hhw求科普</blockquote>
+有字面意义上的钢铁侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能在天上飞的那种
+

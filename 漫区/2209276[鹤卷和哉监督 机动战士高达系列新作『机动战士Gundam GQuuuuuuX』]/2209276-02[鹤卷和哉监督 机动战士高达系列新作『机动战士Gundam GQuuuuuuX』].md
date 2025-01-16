@@ -16733,3 +16733,37 @@ UC背景本身就比原创更多谈资啊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  PascalLefèvre  
+##### 2909#       发表于 2025-1-16 10:33
+
+高达痴的思念已经扭曲时空了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bird-lay  
+##### 2910#       发表于 2025-1-16 10:37
+
+一直觉得小机器人趴头上很像这个电电虫
+
+<img src="https://img.saraba1st.com/forum/202501/16/103736bvahwgoxi7vnux4i.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1600px-扬加.png.webp</strong> (49.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 10:37 上传
+
+*****
+
+####  PascalLefèvre  
+##### 2911#       发表于 2025-1-16 10:38
+
+想了想头上顶个扫地机器人的重量，修司说不定其实是隐藏肌肉男
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
