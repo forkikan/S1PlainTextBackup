@@ -828,3 +828,34 @@ TV之后拍三部剧场版吗
 <img src="https://p.sda1.dev/21/c583ca1b5e9a30f7d7b3c2f8488b5e16/image.jpg" referrerpolicy="no-referrer">
 泰国这就安排上了吗，有没有懂泰语的
 
+
+*****
+
+####  咖啡配黑鸡  
+##### 3047#       发表于 2025-1-16 20:18
+
+可靠情报说是季番
+
+那12集完全是有可能剪成三部剧场版供后续上映的
+
+GQuuuuuuX -序-
+
+GQuuuuuuX -破-
+
+GQuuuuuuX -终-
+
+
+*****
+
+####  ナルバレック  
+##### 3048#       发表于 2025-1-16 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196603&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-16 20:18</a>
+
+可靠情报说是季番
+
+那12集完全是有可能剪成三部剧场版供后续上映的
+
+GQuuuuuuX -序-</blockquote>
+季番高达那故事要非常跃进才会让人感觉到刺激了
+

@@ -2876,3 +2876,13 @@ ras也有不仲？</blockquote>
 
 18年就开始准备mujica，那么想必pico4已经做完了吧<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  织部琴音  
+##### 26860#       发表于 2025-1-16 20:23
+
+<blockquote>CyDiablo 发表于 2025-1-15 19:37
+一直有传，昨晚🌰疑似直接爆了</blockquote>
+🌰是觉得自己被孤立了吗，不过只要能维持同事关系应该也就行了
+
