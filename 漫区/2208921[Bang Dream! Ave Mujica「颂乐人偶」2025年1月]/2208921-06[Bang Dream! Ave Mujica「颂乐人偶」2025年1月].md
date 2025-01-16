@@ -11294,3 +11294,293 @@ image.png
 
 https://x.com/ng_suzuki3/status/1879900016598471105?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  试制甲炮  
+##### 8365#       发表于 2025-1-16 23:06
+
+这一话一出，睦在黑刀之夜说的那句话是为了给祥子吸引火力的说法直接破产，木头人真的是叕一次说出了真心但很能伤人的话。
+
+*****
+
+####  NODY  
+##### 8366#       发表于 2025-1-16 23:07
+
+第一集立希说演舞台剧不是乐队的时候还被一堆人嘲讽，结果现在观众真的要只演舞台剧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 8367#       发表于 2025-1-16 23:07
+
+ 本帖最后由 有钱多买小人 于 2025-1-16 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198668&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-16 23:00</a>
+无语啊，弹幕全在那刷喵梦对观众来说是究极好猫，喵梦理论是对的之类的狗屁。那照这理论蔡徐坤肖战就是对的 ...</blockquote>
+没毛病，并不是所有观众都是冲着音乐性去的。要满足观众还是追求艺术，这点还挺现实的。
+就好比岳云鹏的相声。大部分粉丝都是看他表演卖萌的，追求相声水平怕不是只有岳自己。他认真学唱搞不好笑的人不如卖萌的多。他有一段时间就为了追求笑果以卖萌为主了，票当然也卖的好。
+不过正如岳最后找回相声本心，这季最后大概也会回归到乐队的音乐性上。
+
+蔡徐那不是资本强推出来的吗？跟本心没有关系。
+
+*****
+
+####  oldgoat  
+##### 8368#       发表于 2025-1-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198609&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-16 22:56</a>
+
+最近三话对音乐已经没什么印象了</blockquote>
+符合情节啊，不是从喵梦到观众到各路甲方和staff都希望鸡团转向演剧吗。
+
+*****
+
+####  山ノ内花音  
+##### 8369#       发表于 2025-1-16 23:08
+
+<img src="https://img.saraba1st.com/forum/202501/16/230757fiv815jhmjh9111i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1420.jpeg</strong> (468.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-16 23:07 上传
+
+还得是官方约的图啊
+
+*****
+
+####  轮太  
+##### 8370#       发表于 2025-1-16 23:08
+
+现在就看独角兽老师会不会继承大河内恩师的螺旋上天然后华丽坠机了
+
+*****
+
+####  dentioner  
+##### 8371#       发表于 2025-1-16 23:09
+
+终于能进这楼了，憋死我了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 8372#       发表于 2025-1-16 23:09
+
+  动画内观众甚至喵梦老师的视角就是有钱人家大小姐出来搞乐子的，既然要流量观众服务向更有搞头啊，和喵梦一个播放不过万的网红主播的想法很相称啊。
+
+  祥子还好这次只说了共犯，没有说命运共同体了，不然还会被独角兽花式回旋镖拷打。
+
+*****
+
+####  Milarvoz  
+##### 8373#       发表于 2025-1-16 23:09
+
+好爽，好美味的关系性，终于可以不怕剧透了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 8374#       发表于 2025-1-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198668&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-16 23:00</a>
+
+无语啊，弹幕全在那刷喵梦对观众来说是究极好猫，喵梦理论是对的之类的狗屁。那照这理论蔡徐坤肖战就是对的 ...</blockquote>
+这话说别人可以，但喵梦就是你丰川祥子本人用“脸和数字”拉进来的
+
+祥子：为什么摘面具
+
+喵梦：你就说有没有脸和数字吧
+
+祥子：为什么要睦演出
+
+喵梦：你就说有没有脸和数字吧
+
+*****
+
+####  MASKA-1  
+##### 8375#       发表于 2025-1-16 23:10
+
+祥子的设定是“顺从的mortis”，但是mortis现在看来是第一个跳出来忤逆祥子对mujica风格安排的。
+
+那么按这个意思，“聪明的timoris”“慈爱的amoris”“温柔的doloris”“高贵的oblivionis”后续都会事与愿违？
+
+*****
+
+####  ml1642879  
+##### 8376#       发表于 2025-1-16 23:10
+
+此事在独角兽的其他百合作品中亦有记载
+
+<img src="https://img.saraba1st.com/forum/202501/16/230939nv6vd5vpzuv66v6s.png" referrerpolicy="no-referrer">
+
+<strong>MAO.png</strong> (49.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 23:09 上传
+
+*****
+
+####  PDQ4  
+##### 8377#       发表于 2025-1-16 23:10
+
+官方这约的睦祥背靠背偷偷拉小手太对味了
+
+*****
+
+####  豊川祥子  
+##### 8378#       发表于 2025-1-16 23:10
+
+我說睦，睦自己是不敢说话的。
+
+*****
+
+####  rrrimo  
+##### 8379#       发表于 2025-1-16 23:10
+
+这一集我觉得最好笑的一句话还是当属那句“喵梦，为什么你讲话这么难听”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  若叶睦  
+##### 8380#       发表于 2025-1-16 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198809&amp;ptid=2208921" target="_blank">豊川祥子 发表于 2025-1-16 23:10</a>
+
+我說睦，睦自己是不敢说话的。</blockquote>
+谁不敢说话啊？我在呢，大姐。
+
+*****
+
+####  若叶睦  
+##### 8381#       发表于 2025-1-16 23:10
+
+是了，我就是这么强势。我就是欺辱你，我仰天大笑，因为我高高在上。
+
+*****
+
+####  fsfs_freeze  
+##### 8382#       发表于 2025-1-16 23:11
+
+祥子的队内地位疑似哈哈了，这么发展下去她哪天被mortis宫了我都不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  九陌狂游  
+##### 8383#       发表于 2025-1-16 23:12
+
+哦牛逼，还能这样演五黑框
+
+*****
+
+####  長崎そよ  
+##### 8384#       发表于 2025-1-16 23:12
+
+我决定现在就躲进被子，闭上眼睛，呼呼大睡，也许明天醒来，一切都又回来了。也许我会接到睦的电话，说她突然想回来组乐队，问我要不要参与，我会告诉她：“你所拔的电话已关机。”然后拔掉电话线，继续我那不切实际的幻想和不靠谱的人生。
+
+*****
+
+####  夜火雷纹  
+##### 8385#       发表于 2025-1-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198817&amp;ptid=2208921" target="_blank">若叶睦 发表于 2025-1-16 23:10</a>
+
+是了，我就是这么强势。我就是欺辱你，我仰天大笑，因为我高高在上。</blockquote>
+墨提斯上线了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  若叶睦  
+##### 8386#       发表于 2025-1-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198840&amp;ptid=2208921" target="_blank">長崎そよ 发表于 2025-1-16 23:12</a>
+
+我决定现在就躲进被子，闭上眼睛，呼呼大睡，也许明天醒来，一切都又回来了。也许我会接到睦的电话，说她突 ...</blockquote>
+昨天做一恶梦，觉得一辈子都毁了。醒来发现还好，阳光还静静照在身上。
+
+*****
+
+####  yiyiyiyi123  
+##### 8387#       发表于 2025-1-16 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也有五黑框看的哦
+
+*****
+
+####  豊川祥子  
+##### 8388#       发表于 2025-1-16 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198853&amp;ptid=2208921" target="_blank">若叶睦 发表于 2025-1-16 23:13</a>
+
+昨天做一恶梦，觉得一辈子都毁了。醒来发现还好，阳光还静静照在身上。 ...</blockquote>
+你真的恨我，我早该明白！
+
+*****
+
+####  神圣计划  
+##### 8389#       发表于 2025-1-16 23:14
+
+无法预测的命运之舞台，爽！
+
+*****
+
+####  若叶睦  
+##### 8390#       发表于 2025-1-16 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198863&amp;ptid=2208921" target="_blank">豊川祥子 发表于 2025-1-16 23:14</a>
+
+你真的恨我，我早该明白！</blockquote>
+明明是你先恨我的！
+
+*****
+
+####  一个陆仁贾  
+##### 8391#       发表于 2025-1-16 23:14
+
+b站人偶吞睦头人那一幕是打码还是就这样？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  若叶睦  
+##### 8392#       发表于 2025-1-16 23:14
+
+您还以为我真怕您啊？哎哟喂，你就这么高大威武啊。
+
+*****
+
+####  拉达  
+##### 8393#       发表于 2025-1-16 23:15
+
+好爽！mortis可以参赛挺好萌么
+
+*****
+
+####  若叶睦  
+##### 8394#       发表于 2025-1-16 23:15
+
+我不骂她，她真是寂寞啊。原来不是你一个人退出了曾经的“那些女孩”，而是那些女孩退出了你啊。
+
+*****
+
+####  三尖酸努努  
+##### 8395#       发表于 2025-1-16 23:15
+
+这集演出太强了，睦头内心剧场部分演出几乎都超帮。虽然交代睦头心路历程比较意识流，不过场外观众梳理得还是很清楚的，也算是交代完了。整体算是小神回了。话说场外纠结祥子真没必要吧，就这么个重力神人乐队有啥好分锅的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  長崎そよ  
+##### 8396#       发表于 2025-1-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198897&amp;ptid=2208921" target="_blank">若叶睦 发表于 2025-1-16 23:15</a>
+
+我不骂她，她真是寂寞啊。原来不是你一个人退出了曾经的“那些女孩”，而是那些女孩退出了你啊。 ...</blockquote>
+我留下是因为一些自私的原因，因为我爱一些人。
+

@@ -1095,3 +1095,18 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 看看下个月za要是公布发售日的话会不会有限定ns2，如果首发游戏就一个马车的话那我可以考虑等个限定机再买
 
+
+*****
+
+####  kingrowing  
+##### 130#       发表于 2025-1-16 23:13
+
+拖的太久了，毫无波澜了
+
+*****
+
+####  siriii  
+##### 131#       发表于 2025-1-16 23:13
+
+真比switch还大一圈啊，switch已经够大了，这再大一圈别是要超越steam deck吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
