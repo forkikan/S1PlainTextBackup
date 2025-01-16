@@ -1556,3 +1556,19 @@ fga的，刚试了下把战斗菜单里技能确认关了就行了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  GuDaZi  
+##### 46965#       发表于 2025-1-16 20:55
+
+new了狂大公<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sandro  
+##### 46966#       发表于 2025-1-16 21:01
+
+32抽正雪，溜了溜了
+

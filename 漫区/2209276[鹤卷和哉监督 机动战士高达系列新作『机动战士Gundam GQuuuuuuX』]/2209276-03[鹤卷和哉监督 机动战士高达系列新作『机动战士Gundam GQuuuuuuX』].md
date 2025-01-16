@@ -926,3 +926,15 @@ GQuuuuuuX -序-</blockquote>
 
 狗代怎么感觉真有点梭哈呀，叫人来买周边都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 3054#       发表于 2025-1-16 21:02
+
+<blockquote>刺客ares 发表于 2025-1-16 20:48
+怎么是你俩
+
+听语音这互动的感觉让我想起两个人</blockquote>
+麻球和牢修的互动疑似有点太多了，三人组有人被孤立了我不说是谁（
+
