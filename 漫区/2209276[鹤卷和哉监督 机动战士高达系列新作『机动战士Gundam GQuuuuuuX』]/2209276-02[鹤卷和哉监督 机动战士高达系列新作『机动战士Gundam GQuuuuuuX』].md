@@ -16767,3 +16767,37 @@ UC背景本身就比原创更多谈资啊。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Gysumitka  
+##### 2912#       发表于 2025-1-16 10:43
+
+今天总该搞点大的吧，能不能让金世俊画张gqx <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 2913#       发表于 2025-1-16 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67192130&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-16 10:43</a>
+今天总该搞点大的吧，能不能让金世俊画张gqx</blockquote>
+最新的主视觉图不就是他画的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oi99o  
+##### 2914#       发表于 2025-1-16 10:51
+
+<img src="https://img.saraba1st.com/forum/202501/16/105143kob5hzo5hb5xx1hm.png" referrerpolicy="no-referrer">
+
+<strong>img_4943.png</strong> (440.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 10:51 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

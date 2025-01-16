@@ -141,3 +141,11 @@ pc1.23
 
 这样就是法社今年 树海ns 界轨ns 伊苏皇家版  空轨重制。ns作品共四作 ps5作品两作 pc作品一作<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ouyang菌  
+##### 7415#       发表于 2025-1-16 10:48
+
+官宣了，确实是1.23
+
