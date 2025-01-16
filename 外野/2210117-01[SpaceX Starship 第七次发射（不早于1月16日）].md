@@ -1148,3 +1148,16 @@ NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.co
 问一下第七次有筷子抓么？我什么也不懂，就看个热闹。</blockquote>
 只要判断条件符合，以后每次发射都会尝试筷子夹一级。二级还不会尝试。
 
+
+*****
+
+####  瓦格雷  
+##### 86#       发表于 2025-1-16 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67194624&amp;ptid=2210117" target="_blank">stevenzero 发表于 2025-1-16 16:09</a>
+
+新谢泼德这东西也算合格了吧。
+
+虽然直上直下的回收经验现在来看在轨道级发射上真是派不上用场。 ...</blockquote>
+那种入不了鬼的玩具就算了吧  
+
