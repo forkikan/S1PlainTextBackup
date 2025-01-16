@@ -1032,3 +1032,17 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 场内场外都是：战斗，爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闪光的肥耗子  
+##### 111#       发表于 2025-1-17 02:25
+
+-2
+
+为爆而爆毫无逻辑的情绪流脚本
+
+睦瘫痪演出中断-&gt;队友跑路下台-&gt;观众觉得睦的演技棒极了-&gt;希望睦再来一次瘫在座椅上的表演（原来观众都是来看舞台剧不是来听live的）
+
+不能细想，情绪流演出使我大脑旋转尖叫，看这集时体会到睦黑化时的感觉了
+
