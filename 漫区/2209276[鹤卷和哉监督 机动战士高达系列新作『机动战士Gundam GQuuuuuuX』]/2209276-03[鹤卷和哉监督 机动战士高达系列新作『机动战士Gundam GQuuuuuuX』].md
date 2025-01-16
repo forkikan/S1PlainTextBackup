@@ -738,3 +738,54 @@ https://x.com/_take_oekaki/status/1879815860690321654</blockquote>
 那可惜了，总觉得24集做不出来，12集又太短</blockquote>
 可以期待the end剧场版
 
+
+*****
+
+####  卑弥呼yamato  
+##### 3036#       发表于 2025-1-16 19:09
+
+TV之后拍三部剧场版吗
+
+*****
+
+####  oi99o  
+##### 3037#       发表于 2025-1-16 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195969&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-16 18:56</a>
+喵的CV说看了剧场版能更好的理解TV剧情
+这个怎么理解呢？</blockquote>
+同样的剧情看两遍更好理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Gysumitka  
+##### 3038#       发表于 2025-1-16 19:11
+
+<img src="https://p.sda1.dev/21/5f3ce88d58ba46dd8f269b725ff24d96/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/63842751b490a76afb66a74b39198bd7/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 3039#       发表于 2025-1-16 19:14
+
+妈呀，staff发sns还要经过许可的？
+
+*****
+
+####  YU_JI  
+##### 3040#       发表于 2025-1-16 19:15
+
+这真的只是在藏uc世设吗？怎么感觉藏了个大的）意大利临时工的含金量还在上升
+
+
+*****
+
+####  Gysumitka  
+##### 3041#       发表于 2025-1-16 19:17
+
+高达ip最高保密级别<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
