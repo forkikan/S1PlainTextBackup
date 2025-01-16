@@ -963,3 +963,67 @@ GQuuuuuuX -序-</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  灵魂收割机  
+##### 3057#       发表于 2025-1-16 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196603&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-16 20:18</a>
+
+可靠情报说是季番
+
+那12集完全是有可能剪成三部剧场版供后续上映的
+
+GQuuuuuuX -序-</blockquote>
+哪有TV动画全集提前卖票收钱这种吃相的<img src="https://static.saraba1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3058#       发表于 2025-1-16 21:17
+
+没事，牢修在海报上也被孤立了
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3059#       发表于 2025-1-16 21:18
+
+这个niyan感觉会是动画里会出现的梗……发音真的太像了
+喵安这个昵称也挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">现在对尼娅安的初印象就是攻击性略强的黑猫……危险走私人员，虽然是黑长直但是刘海刺刺的
+好了现在只有修司没有昵称了<img src="https://p.sda1.dev/21/48f79f8480af24514789bb363a2e1520/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  RE㐅ia  
+##### 3060#       发表于 2025-1-16 21:20
+
+<blockquote>Aaa炒面面包批发 发表于 2025-1-16 21:18
+这个niyan感觉会是动画里会出现的梗……发音真的太像了
+
+喵安这个昵称也挺可爱的现在对尼娅安的初印象就是攻 ...</blockquote>
+完结确认存活前会一直被叫牢修的，死在剧场版里就更不用说了
+
+*****
+
+####  王留美  
+##### 3061#       发表于 2025-1-16 21:21
+
+「ガンダムが言っている」構文流行らせコラ
+…ってガンダムが言っている
+
+新定型文出现了
+
+
+*****
+
+####  王留美  
+##### 3062#       发表于 2025-1-16 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197226&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-16 21:18</a>
+ 这个niyan感觉会是动画里会出现的梗……发音真的太像了 喵安这个昵称也挺可爱的现在对尼娅安的初印象就是攻 ...</blockquote>
+敢达这样说的人
+
