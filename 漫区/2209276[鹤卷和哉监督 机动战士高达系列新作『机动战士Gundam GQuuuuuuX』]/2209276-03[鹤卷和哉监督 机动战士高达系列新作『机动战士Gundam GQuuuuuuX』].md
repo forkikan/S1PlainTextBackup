@@ -444,3 +444,50 @@ _()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
 [https://x.com/_take_oekaki/status/1879815860690321654](https://x.com/_take_oekaki/status/1879815860690321654)
 <img src="https://p.sda1.dev/21/c7ef816635714c7c2d86294f43c27613/20250116_170844.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 3006#       发表于 2025-1-16 17:17
+
+还在eva<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3007#       发表于 2025-1-16 17:18
+
+ 本帖最后由 刺客ares 于 2025-1-16 17:20 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/16/171155sncys6y5ytfsf7ty.png" referrerpolicy="no-referrer">
+
+<strong>1737017710286.png</strong> (11.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 17:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/171600pnk6abfzn9ab9i9m.png" referrerpolicy="no-referrer">
+
+<strong>1737018030843.png</strong> (31.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 17:16 上传
+
+还特意把这俩画在一排绿色感叹号上xswl
+
+*****
+
+####  jojonathan  
+##### 3008#       发表于 2025-1-16 17:19
+
+想了想要是全程没有夏亚出场我就要破防了<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3009#       发表于 2025-1-16 17:20
+
+<img src="https://p.sda1.dev/21/36d09bcf217b22f75a29af4fbc3d92de/image.jpg" referrerpolicy="no-referrer">
+

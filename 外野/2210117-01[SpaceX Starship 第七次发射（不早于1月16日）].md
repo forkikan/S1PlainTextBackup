@@ -1138,3 +1138,13 @@ NASA很多温度计算都用朗肯温标呢<img src="https://static.saraba1st.co
 
 问一下第七次有筷子抓么？我什么也不懂，就看个热闹。
 
+
+*****
+
+####  stevenzero  
+##### 85#       发表于 2025-1-16 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195056&amp;ptid=2210117" target="_blank">非洲黑猩猩 发表于 2025-1-16 16:58</a>
+问一下第七次有筷子抓么？我什么也不懂，就看个热闹。</blockquote>
+只要判断条件符合，以后每次发射都会尝试筷子夹一级。二级还不会尝试。
+
