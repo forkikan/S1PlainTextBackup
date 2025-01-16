@@ -10848,3 +10848,146 @@ mortis的肉体水平怎么样？我怕之后打架的时候吃亏<img src="http
 
 祥厨继续龟缩<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 8325#       发表于 2025-1-16 22:46
+
+ 本帖最后由 看穿一切的鱼 于 2025-1-16 22:49 编辑 
+
+下集不是已经新生了吗，走演艺路线，大莫老师都站c位了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+祥厨无所畏惧好吧，你不能只在顺风局的时候厨她。这局祥老师已经两次发现了自己的错误，我觉得打的还行啊，就是有点管不住自己的嘴，一急什么都往出蹦。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Leon377  
+##### 8326#       发表于 2025-1-16 22:46
+
+为啥黑睦这么强?!表演又好，社交又好
+感觉又要炸团，祥子道心破碎。白月光灯出现，唱歌话疗祥子。
+然后祥子拯救睦。
+喵梦就该狠狠被抨击(虽然她很努力，为达自己目的)
+
+*****
+
+####  TAQ  
+##### 8327#       发表于 2025-1-16 22:48
+
+大喵跟睦组合甚至能对标sumimi，就叫nyamumu？
+
+*****
+
+####  刑部姬真可爱  
+##### 8328#       发表于 2025-1-16 22:48
+
+最后喵梦又在震惊老戏骨表演真的是太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 8329#       发表于 2025-1-16 22:49
+
+黑睦应该是睦想象中的“完美的睦”，不是“真实的睦”，把原本的自己放弃了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑睦现在对祥子伤害越深，后面白睦回来越要崩溃
+祥子太惨了，下集被黑睦抽陀螺，可能还要被灯的便签破防，鸡团运营路线估计要歪了，等之后祥子还要想办法把崩溃的白睦拉回来
+
+*****
+
+####  萌二  
+##### 8330#       发表于 2025-1-16 22:49
+
+有多少人跑回去看了壱雫空的伞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ghostpia  
+##### 8331#       发表于 2025-1-16 22:50
+
+这集太满足了
+
+*****
+
+####  刑部姬真可爱  
+##### 8332#       发表于 2025-1-16 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198538&amp;ptid=2208921" target="_blank">萌二 发表于 2025-1-16 22:49</a>
+
+有多少人跑回去看了壱雫空的伞</blockquote>
+诶哟迷途之子！！！！！怎么这么坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redimercia  
+##### 8333#       发表于 2025-1-16 22:51
+
+为什么这集我越看情绪越乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我难道也病了吗
+这演出发展，下一集🦒来了我都不奇怪了
+
+
+*****
+
+####  L-JoeW  
+##### 8334#       发表于 2025-1-16 22:52
+
+ 本帖最后由 L-JoeW 于 2025-1-16 22:54 编辑 
+
+喵姆这视频都没几个过万播放量的啊，这点流量能被提前发现估计在自己视频里与其说是暗示估计都该差点直球写脸上了吧
+
+车站那段什么混战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海铃帮喵姆了一句还被喵姆怼了
+
+*****
+
+####  Returns  
+##### 8335#       发表于 2025-1-16 22:52
+
+我现在就要看母鸡卡第四话<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 8336#       发表于 2025-1-16 22:53
+
+这集播完大猫的形象正常了不少，原来你们是真不熟
+
+*****
+
+####  Mr.Giraffe  
+##### 8337#       发表于 2025-1-16 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198495&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-16 22:45</a>
+啊这左边眼角的泪光</blockquote>
+太细节了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  954914225  
+##### 8338#       发表于 2025-1-16 22:55
+
+素世：几天不见这还是睦吗？<img src="https://p.sda1.dev/21/5044d1b0adf34c34079fdcefb4e019a4/CMP_20250116225335882.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  borrowface  
+##### 8339#       发表于 2025-1-16 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198436&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-16 22:41</a>
+
+鸡团的合照可以和狗团的合照一起看，很对应的</blockquote>
+确实，go团这张照看着人各有志但大家都知道这是最有团魂的时候，鸡团这照一出来怕不是各位最后一次笑
+
+*****
+
+####  bird-lay  
+##### 8340#       发表于 2025-1-16 22:55
+
+喵梦这...
+
+上集结尾的表情我还以为她是意识到自己闯祸了，没想到竟然是觉得睦演太好了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这真是正常人会有的想法吗
+
