@@ -600,3 +600,65 @@ _()D~}$~VSEZ0A8@GYZ}M$N_tmb.jpg
 https://x.com/_take_oekaki/status/1879815860690321654</blockquote>
 好看         
 
+
+*****
+
+####  mad55555  
+##### 3022#       发表于 2025-1-16 18:26
+
+如果只是单纯的总集篇用不着这么大投入吧
+
+反正都EVA了
+
+干脆剧场版走BE团灭结局，TV保留记忆进二周目TE
+
+这种走向有可能吗
+
+
+*****
+
+####  刺客ares  
+##### 3023#       发表于 2025-1-16 18:32
+
+<blockquote>mad55555 发表于 2025-1-16 18:26
+如果只是单纯的总集篇用不着这么大投入吧
+
+反正都EVA了
+
+干脆剧场版走BE团灭结局，TV保留记忆进二周目TE
+</blockquote>
+如果标题不是beginning而是真心为你那倒是有可能（
+
+*****
+
+####  YU_JI  
+##### 3024#       发表于 2025-1-16 18:33
+
+话说有没有可能剧场版不是总集篇，beginning+tv12集才是完整篇幅
+
+*****
+
+####  王留美  
+##### 3025#       发表于 2025-1-16 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195764&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-16 18:26</a>
+ 如果只是单纯的总集篇用不着这么大投入吧 反正都EVA了 干脆剧场版走BE团灭结局，TV保留记忆进二周目TE </blockquote>
+独角兽的时间溯行提前11年出现还是范围扩大版？
+
+*****
+
+####  王留美  
+##### 3026#       发表于 2025-1-16 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195811&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-16 18:32</a>
+ 如果标题不是beginning而是真心为你那倒是有可能（</blockquote>
+如果是时间溯行那确实是the beginning
+
+*****
+
+####  Sokukei  
+##### 3027#       发表于 2025-1-16 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195574&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-16 18:01</a></blockquote>
+尼娅安flag有点多啊这张图
+

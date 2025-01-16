@@ -10003,3 +10003,55 @@ hmv還有，想補的直接hmv網店買，我也是這裡補的
 
 <img src="https://p.sda1.dev/21/a90e293f78e7bae2f510d8cb66e21f52/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 8243#       发表于 2025-1-16 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195676&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-16 18:15</a></blockquote>
+戴着演出服的耳环，背景又是晴天+雨伞的go团印象，难道mortis也溜大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 8244#       发表于 2025-1-16 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67186135&amp;ptid=2208921" target="_blank">Aendst 发表于 2025-1-15 14:15</a>
+
+高尾这角色怎么叫mana……</blockquote>
+这样没有甜甜圈女士也OK了
+
+
+*****
+
+####  凉良  
+##### 8245#       发表于 2025-1-16 18:34
+
+其实我感觉黑睦并不一定会走在正确的道路上 可能登场刷了一波时髦就要吃憋
+
+*****
+
+####  IWS2000  
+##### 8246#       发表于 2025-1-16 18:34
+
+<img src="https://p.sda1.dev/21/83eb56ad6b097d0b9d62baa27e2739fb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 8247#       发表于 2025-1-16 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195824&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-16 18:34</a>
+其实我感觉黑睦并不一定会走在正确的道路上 可能登场刷了一波时髦就要吃憋 ...</blockquote>
+Mortis：我，讨厌祥子酱！
+Mortis：因为，就像是喵梦酱说的那样。对祥子言听计从只会让你感到痛苦。
+(一只挂在火上熏烤着的倒吊火鸡玩偶也发出夸张的声音)：对健康也不好！
+睦：我只是，不想再去破坏了。
+Mortis：乐队，你不想破坏对吧。但是，这样下去的话，睦就要先坏掉了。
+Mortis：难过的时候就对我说吧。我也很担心睦酱。
+睦：啊…
+
+结合pv和第四话预览图已经明示了，还有第三集里喵梦说的观众想看什么就给他们看什么这句直接触犯邦邦大忌的话（这话要是让海玲听到也要炸掉，让前期的ykn楚平方听见怕是要直接把喵梦踢了）睦成团队焦点了，但mujica肯定要变成喵梦黑睦主导的表演为主路线，这条路百分百是错误的，而且会加速团队崩溃＋睦自身进一步崩溃
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子甚至都不需要做什么，编剧的大手百分百让黑睦喵梦这条路线吃瘪，但编剧不可能让祥子什么都不做
+
