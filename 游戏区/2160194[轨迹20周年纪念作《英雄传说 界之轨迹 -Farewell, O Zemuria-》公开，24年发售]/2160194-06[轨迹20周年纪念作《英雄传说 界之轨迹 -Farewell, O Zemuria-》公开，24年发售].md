@@ -173,3 +173,11 @@ pc1.23
 
 设计几个小城市跑一跑旅游逛街顺便解决一下事件，一个城市收一个新队友，然后最终章跳个危机解决 ...</blockquote>差不多，师姐说共和国伊迪斯是能和伊斯卡首都匹敌的大小，另外我还没去帝国的首都。基本黎轨模式<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7418#       发表于 2025-1-16 14:16
+
+<img src="https://p2.bahamut.com.tw/B/2KU/18/1b5f4f11c14fd62a66e105cfa91st1e5.WEBP" id="aimg_V79P6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
