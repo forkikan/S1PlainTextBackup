@@ -16850,3 +16850,23 @@ UC背景本身就比原创更多谈资啊。
 
 纸媒宣传符合对这群老登的刻板印象（bushi）
 
+
+*****
+
+####  jojonathan  
+##### 2920#       发表于 2025-1-16 11:14
+
+跟不上时代的老东西太多了<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 2921#       发表于 2025-1-16 11:24
+
+<img src="https://p.sda1.dev/21/dfdae59c5bed665a69c277d0d7e0519b/1000078820.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/d1202c9e5ff90ca613936738291c0bcb/1000078821.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
