@@ -1232,3 +1232,22 @@ Highway 4已开始封路。助推器运输平台已在制造厂区待机，准�
 由手机上传
 2025-1-17 06:28 上传
 
+
+*****
+
+####  susan28  
+##### 92#       发表于 2025-1-17 06:37
+
+10秒！！
+
+
+*****
+
+####  RaKboW  
+##### 93#       发表于 2025-1-17 06:41
+
+这一次发射我竟然是在老鼠台游戏主播那看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+播着塔科夫，一把结束后就切到空X我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
