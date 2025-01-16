@@ -938,3 +938,28 @@ GQuuuuuuX -序-</blockquote>
 听语音这互动的感觉让我想起两个人</blockquote>
 麻球和牢修的互动疑似有点太多了，三人组有人被孤立了我不说是谁（
 
+
+*****
+
+####  刺客ares  
+##### 3055#       发表于 2025-1-16 21:10
+
+<blockquote>YU_JI 发表于 2025-1-16 21:02
+麻球和牢修的互动疑似有点太多了，三人组有人被孤立了我不说是谁（</blockquote>
+街机卡封面早就干了（
+
+我听完感觉牢修危险了，努力活过剧场版吧（
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3056#       发表于 2025-1-16 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67196868&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-16 20:48</a>
+怎么是你俩
+
+听语音这互动的感觉让我想起两个人</blockquote>
+哪有互动，修司一个人念了至少20s口播（毫无感情波动），就最后和麻球那一两句<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
