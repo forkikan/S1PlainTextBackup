@@ -9481,3 +9481,15 @@ DJ米歇尔 那个外壳其实是钢铁侠，可以飞
 
 另外五个人三个是傻的 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 8201#       发表于 2025-1-16 12:01
+
+<blockquote>mono 发表于 2025-1-16 11:55
+happy hello world，欢乐路线的团，和banddream其他团也不像一个世界
+
+主唱心是不知什么巨型势力的大小姐 ...</blockquote>
+DJ就是不负责任何乐器？
+
