@@ -17137,3 +17137,29 @@ UC包是超级debuff的<img src="https://static.saraba1st.com/image/smiley/face2
 
 看舆论这个机设至少劝退了一半以上的人
 
+
+*****
+
+####  PascalLefèvre  
+##### 2951#       发表于 2025-1-16 13:28
+
+姨姥不要骗自己了，谁来做机设都没差别的，劝退新人的是大机器人和高达的名字而已<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  molemole  
+##### 2952#       发表于 2025-1-16 13:28
+
+山下必秒jnthed！
+
+*****
+
+####  sliver1997  
+##### 2953#       发表于 2025-1-16 13:33
+
+一种强烈的扑街预感袭来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
