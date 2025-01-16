@@ -662,3 +662,30 @@ https://x.com/_take_oekaki/status/1879815860690321654</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195574&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-16 18:01</a></blockquote>
 尼娅安flag有点多啊这张图
 
+
+*****
+
+####  oi99o  
+##### 3028#       发表于 2025-1-16 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67195815&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-16 18:33</a>
+话说有没有可能剧场版不是总集篇，beginning+tv12集才是完整篇幅</blockquote>
+官方口径一直说的都是tv版部分剧集重新剪辑而成的beginning剧场版
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  DARILBALDE  
+##### 3029#       发表于 2025-1-16 18:42
+
+是老害的逆袭，亦或是闪光的老害，在此一举了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 3030#       发表于 2025-1-16 18:45
+
+折衷一下 预测有7.5亿票房
+
