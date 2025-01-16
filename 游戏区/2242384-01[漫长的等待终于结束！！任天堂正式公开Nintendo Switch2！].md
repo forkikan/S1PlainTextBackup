@@ -1200,3 +1200,16 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 先别着急喷，等ZA发售等宝批来迎接这波攻势吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimighost  
+##### 142#       发表于 2025-1-17 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199820&amp;ptid=2242384" target="_blank">黒鈴ミヲ 发表于 2025-1-17 00:35</a>
+
+骂归骂，首发能拿下还是得拿下的，我倒要看看朱紫在新硬件下运行是个什么吊样子 ...</blockquote>
+首发当然要抢，否则下一次买到这个机器就是一年后了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+买了如果不喜欢两个月出了说不定还能赚点儿
+

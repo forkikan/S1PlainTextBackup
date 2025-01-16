@@ -941,3 +941,46 @@ ave mujica在这里应该是整个live的最后一首歌，直接退场大幕落
 那睦就精神恍惚地弹到了最后一曲还没有任何感知吗。我觉得更不可能</blockquote>
 soyo弹不属于crychic的春日影也坚持到了最后一秒，都是肌肉记忆吧
 
+
+*****
+
+####  稀勢のささ  
+##### 101#       发表于 2025-1-17 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">演出很喜欢 先+2
+
+*****
+
+####  良臣没有重谢  
+##### 102#       发表于 2025-1-17 00:47
+
+motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  skmdfong  
+##### 103#       发表于 2025-1-17 00:50
+
+真就梦回2011了，刷了一晚上，太上头了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑猫桑  
+##### 104#       发表于 2025-1-17 00:51
+
+        目前两次冲突都是因为睦而起的，喵梦是发起人祥子是维护的一方，两次是摘面具跟睦演戏，不是为了睦怎么会跟喵梦去吵，喵梦两次都是对的，那个时机就是最棒的时机，这么多观众跟投资方都要求睦演戏她不演戏怎么行
+
+      现在这个结果是祥子一心想着自己？明明就是顾虑太多，喵梦是对的，又要照顾睦的想法，那解决办法只有一个，解决睦的精神问题
+
+       睦的精神问题可别又来说是祥子压力的，mygo第三集祥子在卡拉ok说，睦，也是会笑的，在mygo的时候睦就已经出现了精神问题，因为小时候的睦会说话也爱笑
+
+*****
+
+####  Reinhold  
+##### 105#       发表于 2025-1-17 00:51
+
+感觉是故意的，这两集表面上看都是睦相关的内容在主导，其实信息量一点儿都不小
+
