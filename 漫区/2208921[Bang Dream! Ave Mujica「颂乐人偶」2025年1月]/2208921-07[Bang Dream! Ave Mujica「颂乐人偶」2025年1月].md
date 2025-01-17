@@ -3469,3 +3469,61 @@ b站的     
 
 2025-1-17 22:06 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 9193#       发表于 2025-1-17 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209240&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-17 21:41</a>
+
+那么努力结果却说母鸡卡不搞乐队也没问题</blockquote>
+我觉得不难理解吧，喵梦是YouTuber，YouTuber首先得有人气和热度活下去才能谈其他的，而母鸡卡又是个商业团，喵梦是来工作的不是来玩乐的，所以有些事就算跟吃屎一样恶心也得硬着头皮忍着，所以即便努力练鼓也会因为观众和赞助方的期待而认为应该不搞乐队，即便本人对睦的演技是震惊是羡慕是嫉妒是厌恶充满了负面感情她也要提出要睦以演戏为主去回应期待。
+
+所以其实最想让母鸡卡长期运营下去的不是别人正是喵梦（而不是一些人理解的急于流量变现），毕竟喵梦才是5人里没有退路的那个。
+
+*****
+
+####  木板春香  
+##### 9194#       发表于 2025-1-17 22:16
+
+<img src="https://img.saraba1st.com/forum/202501/17/221601c48tp7defgtktepo.jpg" referrerpolicy="no-referrer">
+
+<strong>0X1U5G37H`I5I{I@{)P12YT_tmb.jpg</strong> (171.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/221602hhz1tk1f0tggerz0.jpg" referrerpolicy="no-referrer">
+
+<strong></strong> (166.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:16 上传
+
+
+*****
+
+####  天空塔书记官  
+##### 9195#       发表于 2025-1-17 22:22
+
+大喵在木头家把鼓棒都敲呲花了，祥子还在缺乏练习，确实过于傲慢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 9196#       发表于 2025-1-17 22:23
+
+看到个说为什么睦是左眼有泪 因为左眼是唯一没被面具遮住的。
+
+*****
+
+####  依然荏苒  
+##### 9197#       发表于 2025-1-17 22:24
+
+对于祥子来说，睦，初华都是自己出人头地可以利用的而已，虽然可以理解她的处境，但是的确是自私。和为了赚钱成为头牌鼓动女客人去下海拍片的牛郎也没什么区别。
+

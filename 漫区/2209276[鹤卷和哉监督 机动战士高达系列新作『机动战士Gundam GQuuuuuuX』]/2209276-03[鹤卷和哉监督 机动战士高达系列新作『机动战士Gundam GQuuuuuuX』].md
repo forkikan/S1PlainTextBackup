@@ -8865,3 +8865,89 @@ side 6不是全是中文
 
 飒爽的夏亚终于 tm 的 鸭子在飒爽了！
 
+
+*****
+
+####  oi99o  
+##### 3843#       发表于 2025-1-17 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209471&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 22:11</a>
+
+我说真的，这个数据纯粹是高达这个IP正常水平，哪怕是400馆的前提下</blockquote>
+你觉得东宝和万代是冲着这个“正常水平”来排片的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyhman  
+##### 3844#       发表于 2025-1-17 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209503&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-17 22:16</a>
+
+你觉得东宝和万代是冲着这个“正常水平”来排片的吗</blockquote>
+可能种自的情况让他们盲目乐观了吧 <img src="https://static.saraba1st.com/image/smiley/goose2017/007.png" referrerpolicy="no-referrer">
+
+毕竟还有周末呢，不急 ，再看看
+
+*****
+
+####  dgugvff  
+##### 3845#       发表于 2025-1-17 22:19
+
+我看有在日本的中国人晚上去电影院里看是座无虚席的
+
+*****
+
+####  刺客ares  
+##### 3846#       发表于 2025-1-17 22:19
+
+目前推上印象
+
+玛秋=可爱型活泼小动物，行动力很强，隐藏巨乳
+
+妮娅安=看着是酷姐，实际是个可爱型反差角色
+
+修司=一定会流行的男人，属于我们高达的渚薰
+
+豚豚在庆祝自己搞到了令和神无月
+
+厨厨说这回Khara整了个异性薰嗣
+
+还有唐突出现的夏利亚梦女和夏亚X夏利亚腐女，还有人在她们下面发夏利亚0079原版的模样
+
+*****
+
+####  dgugvff  
+##### 3847#       发表于 2025-1-17 22:19
+
+估计双休日就高起来了
+
+
+*****
+
+####  ティグル  
+##### 3848#       发表于 2025-1-17 22:21
+
+真总集篇定位的排片是G reco那样的，现在这票房肯定没办法给东宝交代
+
+*****
+
+####  番茄牛奶  
+##### 3849#       发表于 2025-1-17 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209529&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 22:19</a>
+目前推上印象
+
+玛秋=可爱型活泼小动物，行动力很强，隐藏巨乳
+
+妮娅安=看着是酷姐，实际是个可爱型反差角色</blockquote>
+阿斯兰，我不要面子的？<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萨尤克  
+##### 3850#       发表于 2025-1-17 22:23
+
+这新夏亚配的…可以理解这个机会很合适换CV但是至少找好点的吧，这配了个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
