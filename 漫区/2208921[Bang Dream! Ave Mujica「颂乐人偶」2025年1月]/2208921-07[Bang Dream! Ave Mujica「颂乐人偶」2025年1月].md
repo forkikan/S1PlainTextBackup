@@ -2919,3 +2919,15 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 
 但毕竟是主人公的一部分，所以可以时不时可以出来耍一下帅，最后和大boss决战也要靠另一个人格的智慧和能力。
 
+
+*****
+
+####  有钱多买小人  
+##### 9142#       发表于 2025-1-17 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207288&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-1-17 17:54</a>
+可不要忘记初华在go的结尾是了解到了库来西库及mygo的，而且她对祥子的这段过往并不了解且抱有一定（极强） ...</blockquote>
+等一个初华看到灯给祥子的纸条。
+
+搞不好会看到初华怒斥祥子为什么要演奏春日影<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -7894,3 +7894,58 @@ side6欲望摆脱吉翁
 
 所以麻球最后也会死吗，不要啊
 
+
+*****
+
+####  卑弥呼yamato  
+##### 3752#       发表于 2025-1-17 18:06
+
+麻球最终在激烈的战斗中找到了生存的意义成为了兵王，谁输谁赢她不在乎，阴差阳错推动了历史的进程（
+
+*****
+
+####  良臣没有重谢  
+##### 3753#       发表于 2025-1-17 18:10
+
+唉 就连高达正作也得在背景里写上乐队募集，这也是大少女乐队时代的一个侧面。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  良臣没有重谢  
+##### 3754#       发表于 2025-1-17 18:10
+
+唉 就连高达正作也得在背景里写上乐队募集，这也是大少女乐队时代的一个侧面。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  Toby_dak  
+##### 3755#       发表于 2025-1-17 18:13
+
+艹，下班路上看到山手线的小电视也开始卖广告了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  ティグル  
+##### 3756#       发表于 2025-1-17 18:14
+
+真要开宣发还不如找大物youtuber或者皮套人来场直播吧，唱插曲也太抽象了
+
+*****
+
+####  JustW  
+##### 3757#       发表于 2025-1-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207419&amp;ptid=2209276" target="_blank">良臣没有重谢 发表于 2025-1-17 18:10</a>
+
+唉 就连高达正作也得在背景里写上乐队募集，这也是大少女乐队时代的一个侧面。
+
+—— 来自 HUAWEI CET-AL00 ...</blockquote>
+而且还是简体中文
+
