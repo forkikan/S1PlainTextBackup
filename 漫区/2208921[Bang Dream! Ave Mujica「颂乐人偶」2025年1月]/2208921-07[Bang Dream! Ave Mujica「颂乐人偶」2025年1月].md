@@ -3188,3 +3188,23 @@ mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不�
 如果黑睦会弹吉他，第四集开始很适合新歌live，但我觉得wsd这群懒狗不太可能啊，第一集拿op做了live，过个两集又端上个live，然后第七集想搞祥子生日整大活的话继续端上live……
 呃，我觉得懒狗wsd不太可能那么勤快
 
+
+*****
+
+####  borrowface  
+##### 9166#       发表于 2025-1-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205326&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-17 14:46</a>
+
+所以说是三个菜逼把小睦劣等感打出来的吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+睦可能追求的就是那种能表达内心的音乐，但她是个情弱，自觉得弹不出那种感觉，就跟space老板一样，看中的不是技术
+
+*****
+
+####  rollingusagi  
+##### 9167#       发表于 2025-1-17 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">第二集最后live睦头断片的时候不就是莫女士代打弹的吉他吗，怎么还真把莫女士当成另一个人了？人就是若叶睦啊
+

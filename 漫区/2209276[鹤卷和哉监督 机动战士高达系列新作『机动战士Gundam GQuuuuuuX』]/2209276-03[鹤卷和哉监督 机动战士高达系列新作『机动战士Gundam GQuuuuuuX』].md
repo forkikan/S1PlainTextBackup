@@ -8196,3 +8196,25 @@ side6欲望摆脱吉翁
 
 说实话机体设计总体看起来不怎么样，但是拉进镜头一些机械结构很有美感
 
+
+*****
+
+####  良臣没有重谢  
+##### 3779#       发表于 2025-1-17 19:50
+
+机设确实丑的不行，红高达只有加上几个浮游炮才算得上好看
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  猪突猛进R  
+##### 3780#       发表于 2025-1-17 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207460&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-1-17 18:17</a>
+
+话说就算有骡子出场cv也不一定是古谷彻了吧？
+
+论坛助手,iPhone</blockquote>
+看隔壁楼：古谷彻→草尾毅
+
