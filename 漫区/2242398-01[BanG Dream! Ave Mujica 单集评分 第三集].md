@@ -1762,3 +1762,13 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 +2
 睦头人才是母鸡卡的真女主啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 181#       发表于 2025-1-18 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206528&amp;ptid=2242398" target="_blank">stevenzero 发表于 2025-1-17 16:33</a>
+车站大战时完全没避讳现场有普通人，在演出上场前后台直接吵架也是，大祥老师你有没有管理观念的？ ...</blockquote>
+这个热度的乐队在公共场合吵架居然没人拍下来发ytb<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

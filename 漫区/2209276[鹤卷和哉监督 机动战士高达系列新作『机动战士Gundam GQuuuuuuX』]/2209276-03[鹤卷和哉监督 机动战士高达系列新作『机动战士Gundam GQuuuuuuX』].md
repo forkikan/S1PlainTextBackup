@@ -10081,3 +10081,14 @@ NOMELON NOLEMON那首插曲好啊，这不是挺会选（
 
 看了下盗摄的开头那段，熟悉的一幕幕场景+熟悉的老UC面孔+旧版BGM+旧版机械音效+奇怪的新机设+完全反着来的故事发展，看完脑子嗡嗡的，观感可与那个潮牌拉拉在天台热舞同时阿姆罗夏亚在超市里追逐打闹的新感觉短片匹敌...
 
+
+*****
+
+####  wasssf  
+##### 3964#       发表于 2025-1-18 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210615&amp;ptid=2209276" target="_blank">terminator1990 发表于 2025-1-18 01:02</a>
+
+看了下盗摄的开头那段，熟悉的一幕幕场景+熟悉的老UC面孔+旧版BGM+旧版机械音效+奇怪的新机设+完全反着来的 ...</blockquote>
+当年看z的也不习惯一个被称为阿姆罗二世的人帮夏亚抢高达打联邦吧
+
