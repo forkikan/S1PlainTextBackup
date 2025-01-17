@@ -9115,3 +9115,179 @@ side 6不是全是中文
 
 —— 来自 Xiaomi 24040RA98R, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  dgugvff  
+##### 3867#       发表于 2025-1-17 22:44
+
+跟水魔正好相反
+
+*****
+
+####  dgugvff  
+##### 3868#       发表于 2025-1-17 22:45
+
+<blockquote>yxydd88 发表于 2025-1-17 22:41
+进场前看了下场贩的立牌，只剩下女主角的，男人的都卖完了
+
+—— 来自 Xiaomi 24040RA98R, Android 14上的  ...</blockquote>
+为什么？
+
+*****
+
+####  kongxian  
+##### 3869#       发表于 2025-1-17 22:46
+
+男人的都是谁买的，总不会去看的那么多女观众吧
+
+*****
+
+####  0aleph37  
+##### 3870#       发表于 2025-1-17 22:47
+
+也有可能是备货数目不同
+
+*****
+
+####  nnis  
+##### 3871#       发表于 2025-1-17 22:48
+
+我这里是女主卖完了，男人剩的最多。女主没买成，哎
+
+*****
+
+####  刺客ares  
+##### 3872#       发表于 2025-1-17 22:49
+
+<img src="https://img.saraba1st.com/forum/202501/17/224856s8dh666j1qq1xd9t.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (578 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224856ip2eees648eeezqs.png" referrerpolicy="no-referrer">
+
+<strong>2.PNG</strong> (311.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224857nxjme58x757jkkj7.png" referrerpolicy="no-referrer">
+
+<strong>3.PNG</strong> (420.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224857ufj7cjjqf7zz762z.png" referrerpolicy="no-referrer">
+
+<strong>4.PNG</strong> (494.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224858n3p9b7bc483u686x.png" referrerpolicy="no-referrer">
+
+<strong>5.PNG</strong> (623.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224858svsbsk96p6szspfs.png" referrerpolicy="no-referrer">
+
+<strong>6.PNG</strong> (643.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224859wyyskffkszqlr22p.png" referrerpolicy="no-referrer">
+
+<strong>67.PNG</strong> (552.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224859ni4dwxgx6n6iipyk.png" referrerpolicy="no-referrer">
+
+<strong>88.PNG</strong> (337.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/224900weejbzqzfnyxbj1x.png" referrerpolicy="no-referrer">
+
+<strong>6745.PNG</strong> (539.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:49 上传
+
+*****
+
+####  古怪山庄士大夫  
+##### 3873#       发表于 2025-1-17 22:49
+
+修司是那种渚薰气质的，比较讨人喜欢？
+
+
+*****
+
+####  刺客ares  
+##### 3874#       发表于 2025-1-17 22:51
+
+ 本帖最后由 刺客ares 于 2025-1-17 22:53 编辑 
+
+0079的夏利亚画的确实帅
+
+鸭子最后的遗言是夏利亚在通讯里听到的
+
+红高达满装是6个浮游炮，0085版已经全部掉光了
+
+所罗门这块甚至有经典的“前方高能”旁白
+
+紫婆判断所罗门的冲击是由“シャロンのバラ”引起的
+
+*****
+
+####  0aleph37  
+##### 3875#       发表于 2025-1-17 22:52
+
+nga的repo说麻球喵安初遇是女铜滤镜
+
+结合泥楼repo滤镜也太多了吧笑
+
+*****
+
+####  岸波白野扎比子  
+##### 3876#       发表于 2025-1-17 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209529&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 22:19</a>
+
+目前推上印象
+
+玛秋=可爱型活泼小动物，行动力很强，隐藏巨乳
+
+妮娅安=看着是酷姐，实际是个可爱型反差角色</blockquote>
+你们看了正片就知道了，夏利亚对鸭子死心塌地的，想得不得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，莫名其妙啊
+
+*****
+
+####  RE㐅ia  
+##### 3877#       发表于 2025-1-17 22:53
+
+<blockquote>0aleph37 发表于 2025-1-17 22:52
+nga的repo说麻球喵安初遇是女铜滤镜
+
+结合泥楼repo滤镜也太多了吧笑</blockquote>
+两头吃不耽搁（
+

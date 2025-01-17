@@ -3564,3 +3564,29 @@ b站的     
 
 2025-1-17 22:34 上传
 
+
+*****
+
+####  aptx8285144  
+##### 9201#       发表于 2025-1-17 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209563&amp;ptid=2208921" target="_blank">依然荏苒 发表于 2025-1-17 22:24</a>
+
+对于祥子来说，睦，初华都是自己出人头地可以利用的而已，虽然可以理解她的处境，但是的确是自私。和为了赚 ...</blockquote>
+我到是对她们没啥滤镜，但是你说的事情更像同人片段里如同冷酷女王的祥子，现在这个拙劣得快要被架空完名叫祥子女人肯定没那种狠决，反过来讲，别被猫梦认为卖给其他乐队就可以快速让自己乐队爆红到是可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 9202#       发表于 2025-1-17 22:48
+
+前三集全给的+2，真是有病，我就是喜欢有病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 9203#       发表于 2025-1-17 22:51
+
+利用倒不至于，喵梦第二集直言祥子双标了，祥子对初华和睦不是单纯的利用，对于两个青梅，祥子是很护犊子的
+
