@@ -386,3 +386,116 @@ layer说需要chu许可那段吗
 恰恰相反，音乐和世界观都不是假话，母鸡卡成立就是为了忘了c团，明明是为了遗忘却又选择了乐队是因为她 ...</blockquote>
 这两点的根本原因又回到了祥子作为leader却完全没和队员有过良好沟通的锅上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 8914#       发表于 2025-1-17 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203554&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 11:56</a>
+
+你要明白，不带上帝视角，在喵梦看来，逻辑是这样的：
+
+你祥子自己要搞小剧场，现在睦用天才的即兴演出让 ...</blockquote>
+其实还是吵不赢，会被大喵呛回去为什么你要当嘴替，应该要睦自己说
+
+只有睦本人来说“我不喜欢演戏”才对佩服睦实力的大喵有说服力，但这一张嘴1000%会让搞小剧场的祥子瞬间爆炸，睦哪怕嘴不笨也开不了这个口
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">独角兽精心设计的炸弹，到这一步已经没法拆了
+
+*****
+
+####  江口夕  
+##### 8915#       发表于 2025-1-17 12:38
+
+所以后面的看点还是祥子自己蜕变，拯救自己也拯救睦。果然大女主还是要大女主，靠大猫雇佣兵什么的，还是太甜了。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">本祥厨已经迫不及待了。
+这集街头吵架那段，大祥发现自己说过头那段实在美味
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  huxiaopao163  
+##### 8916#       发表于 2025-1-17 12:38
+
+当大伙开始讨论祥子怎么不关心小睦，工作分配得有问题的时候，祥子已经被质疑带得乐队的方向性是不是有问题
+当大伙又开始讨论乐队的方向性问题，音乐还是表演的时候，祥子已经被边缘化，不是乐队的老大了
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  帆前  
+##### 8917#       发表于 2025-1-17 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203597&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-17 11:59</a>
+
+睦是独角兽最精心设计的角色，独角兽给睦设置了一重又一重的现实困境让这个角色失去能够挽回错误的机会
+
+整 ...</blockquote>
+没逝，小睦发动模仿技能拷贝了soyo的人情世故功夫（）
+<img src="https://p.sda1.dev/21/cf4407d956bc81834309da63a8fcf173/img-9d273ddaaad47ed7367ba72a0c072a16.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 8918#       发表于 2025-1-17 12:39
+
+<blockquote>哈曼的YY 发表于 2025-1-17 11:52
+难道小黄瓜喜欢再重演那个掉线状态吗</blockquote>
+我觉得第3话结尾已经给出答案了啊
+
+火中倒立鸡那个场景就是睦自己的想法，不是被脑控了
+
+
+*****
+
+####  哈曼的YY  
+##### 8919#       发表于 2025-1-17 12:40
+
+24年我刚入坑的时候也以为大伙喜欢看美味 结果发现美味被分锅无情碾碎
+
+*****
+
+####  狂热飞鸟  
+##### 8920#       发表于 2025-1-17 12:40
+
+睦学的明显是白祥呀，那个姿势白祥在mygo第3集也做过的
+
+
+*****
+
+####  魔法使夜子  
+##### 8921#       发表于 2025-1-17 12:43
+
+就不能是月之森标准礼仪吗？非要说学这个学那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 8922#       发表于 2025-1-17 12:43
+
+现在没法讨论睦或者mortis，得等她找到真我才行
+
+*****
+
+####  jaewoongh_  
+##### 8923#       发表于 2025-1-17 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204026&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-17 12:40</a>
+24年我刚入坑的时候也以为大伙喜欢看美味 结果发现美味被分锅无情碾碎</blockquote>
+你等播完再说吧，邦里车冰川双子（和好前）的也不少
+
+*****
+
+####  蜇灵  
+##### 8924#       发表于 2025-1-17 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203070&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-17 11:19</a>
+因为mujica就是五个人都不熟的团 
+
+祥子认识初华和睦。不认识喵梦和海铃
+
+海铃在mujica最上心睦 其他都不认识 ...</blockquote>
+你等下，初华和海希一个班的怎么可能不认识
+

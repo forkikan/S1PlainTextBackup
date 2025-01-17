@@ -403,3 +403,23 @@ STEAM版吗
 
 我最近觉得吧，把尴尬剧情脑补成2D时代三头身小人在演绎的话，轨迹系列其实还是一直保持着相当好的RPG水准的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 7435#       发表于 2025-1-17 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201974&amp;ptid=2160194" target="_blank">ravend233 发表于 2025-1-17 09:54</a>
+
+设定集相关
+
+封面</blockquote>
+连塑料黄金都不舍得找个人画吗
+
+*****
+
+####  whzfjd  
+##### 7436#       发表于 2025-1-17 12:39
+
+DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
+
