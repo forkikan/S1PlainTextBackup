@@ -10013,3 +10013,27 @@ https://x.com/jagaimo_sumi
 
 我都做好出来狠狠骂的准备了，没想到what if和0085旅途都好看
 
+
+*****
+
+####  岸波白野扎比子  
+##### 3956#       发表于 2025-1-18 00:36
+
+反正我看日本人满意的很<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，除了宣传拉胯。
+
+*****
+
+####  molemole  
+##### 3957#       发表于 2025-1-18 00:38
+
+先唱衰再说
+
+*****
+
+####  刺客ares  
+##### 3958#       发表于 2025-1-18 00:39
+
+NOMELON NOLEMON《ミッドナイト・リフレクション》
+
+插曲能听了，感觉像是那种都市青春剧在夜晚无人的马路上日剧跑桥段才会插入的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
