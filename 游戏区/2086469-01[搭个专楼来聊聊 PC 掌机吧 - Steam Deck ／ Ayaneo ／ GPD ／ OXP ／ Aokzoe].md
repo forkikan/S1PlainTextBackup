@@ -169,3 +169,20 @@ lnl 258V
 7和8好像就电池不同</blockquote>
 屏幕不同啊
 
+
+*****
+
+####  bypass  
+##### 1350#         楼主| 发表于 2025-1-17 12:53
+
+昨天看到一个价格还可以的 GPD Win 4 7840U，讨价成功之后还是入了，之前用 3 感觉小屏体验不佳，但就是有点喜欢小巧的设备。
+
+*****
+
+####  医生狼多  
+##### 1351#       发表于 2025-1-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204160&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-17 12:53</a>
+昨天看到一个价格还可以的 GPD Win 4 7840U，讨价成功之后还是入了，之前用 3 感觉小屏体验不佳，但就是有 ...</blockquote>
+手柄手感稀烂，玩玩gal和回合制还行
+

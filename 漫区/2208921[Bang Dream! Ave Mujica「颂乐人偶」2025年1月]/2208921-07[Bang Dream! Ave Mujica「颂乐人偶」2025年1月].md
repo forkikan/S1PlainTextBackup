@@ -620,3 +620,69 @@ pico里，楚平方没加入前老5团开联合live各个团的负责人集合�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  山ノ内花音  
+##### 8935#       发表于 2025-1-17 12:57
+
+结局会是黑袍蒙面乐队的诞生吗
+
+*****
+
+####  魔灵高达  
+##### 8936#       发表于 2025-1-17 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204145&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-17 12:52</a>
+
+搞不好大祥后面要为了把mortis整回睦要再拆一次乐队，因为现在的mortis目的就是mujica自身的完整性。
+
+最后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很难想象怎么重头开始，这几个人都是自带脸和数字的啊
+
+*****
+
+####  江口夕  
+##### 8937#       发表于 2025-1-17 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">脱离事务所就行了，sumimi那边还有炸弹。其实本来剧情上祥子也没负债，只是要维持住生活而已，帮他老爸重新站起来就行了，并不一定急着大红大紫
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 8938#       发表于 2025-1-17 13:02
+
+破碎的假面无法复原 这是终结的开始
+
+官方很贯彻这句话了
+
+*****
+
+####  江口夕  
+##### 8939#       发表于 2025-1-17 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上这个答案挺好，就是明面上mujica解散，实际回去穿黑袍搞会员制。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 8940#       发表于 2025-1-17 13:03
+
+祥子忽视了乐团成员在音乐层面上的表达与追求，也就否定了乐团存在的意义，“用心歌唱”是bang世界的底层逻辑，A团现在是既没有心，更不知道为什么歌唱，所以崩坏是肯定的，而动画描绘的就是如何学会“用心歌唱”的过程，所以，一切否定这一逻辑基点的发散和争吵都是在否定少女乐团本身，建议是先把之前的动画补一遍再说
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  jaewoongh_  
+##### 8941#       发表于 2025-1-17 13:04
+
+我现在只希望到时候炸团时别让大祥像crychic一样第一个润
+
