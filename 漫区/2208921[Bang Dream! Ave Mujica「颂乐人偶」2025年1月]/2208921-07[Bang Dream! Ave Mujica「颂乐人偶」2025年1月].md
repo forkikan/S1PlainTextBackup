@@ -2064,3 +2064,64 @@ Mortis最壞心眼的地方在於，她的誕生，會讓Ave Mujica開始往好�
 但最后很有可能在初华那里1起来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大金毛还没把假面摘下呢，现在只是让着祥子当1，等摘下假面祥子就知错了
 
+
+*****
+
+####  NODY  
+##### 9069#       发表于 2025-1-17 15:48
+
+冰川双子那边日菜是用牺牲自己最重要的东西（和姐姐的关系）来拉回姐姐的，也就是“虽然我最重视和姐姐的关系，但只要姐姐能继续弹吉他，永远讨厌我也没关系”
+
+不知道祥子能不能做到牺牲自己眼中最重要的东西去拉回睦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9070#       发表于 2025-1-17 15:49
+
+所以只能等剧情，但如果这词剧情里还是初华写的，那估计就真要爆个大的了，我是这样觉的，初华藏的太深了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  阿兹尔  
+##### 9071#       发表于 2025-1-17 15:51
+
+初华真的得好好塑造，现在真的有点像挂件，爱信等了
+
+*****
+
+####  fopinecone  
+##### 9072#       发表于 2025-1-17 15:51
+
+怎么没有路人把五人车站前吵架的画面录视频传到网上的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 9073#       发表于 2025-1-17 15:52
+
+ 本帖最后由 akiomn 于 2025-1-17 15:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的评价是呢想磕素睦就磕，别把声优钦定的睦祥关系曲给初祥，别人初祥也不会想要睦祥的曲子，就如睦祥也不会想要Angles这首明摆着的初祥曲
+
+人家三次元声优已经钦定了愚神是睦祥关系曲，剧内初华写词又怎样？曲子还是祥子做的呢，而初华设定是能写出别人想要的歌词
+
+*****
+
+####  osore  
+##### 9074#       发表于 2025-1-17 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真传了也是炒作一波
+
+*****
+
+####  NODY  
+##### 9075#       发表于 2025-1-17 15:53
+
+海铃的只有你能找到我是字面意思，可不是油腻调情
+
+现在所有人里面有在看着海铃这个人的还真就立希一个
+
