@@ -4399,3 +4399,93 @@ b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
 
 意思就是企划分两坨，剧场版前传部分是痞子的XING钢弹 后面正篇是贾户的青春版潮钢弹，鹤卷负责点头拍板
 
+
+*****
+
+####  猪突猛进R  
+##### 3408#       发表于 2025-1-17 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203281&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-17 11:34</a>
+
+这个宇宙的布劳·布罗改名“基克罗格”了，又是老害在显摆自己懂UC吗</blockquote>
+显然的，看到假名感觉眼熟，你一提确定了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Libartas  
+##### 3409#       发表于 2025-1-17 11:42
+
+话说鸭妹的声优是谁，没看到啊
+
+*****
+
+####  UNINSTALL42  
+##### 3410#       发表于 2025-1-17 11:42
+
+<img src="https://img.saraba1st.com/forum/202501/17/114158niw3rmblsr5qrrs5.png" referrerpolicy="no-referrer">
+
+<strong></strong> (13.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:41 上传
+
+麻球渴望刺激，尼亚安渴望爱
+
+*****
+
+####  novyDC  
+##### 3411#       发表于 2025-1-17 11:44
+
+这个宇宙是没有勇士和强人了么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  g救世主高达  
+##### 3412#       发表于 2025-1-17 11:44
+
+拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死阿（惨）
+
+*****
+
+####  猪突猛进R  
+##### 3413#       发表于 2025-1-17 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203394&amp;ptid=2209276" target="_blank">novyDC 发表于 2025-1-17 11:44</a>
+
+这个宇宙是没有勇士和强人了么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+没了，吉翁全力山寨高达了。
+
+*****
+
+####  没取名啊  
+##### 3414#       发表于 2025-1-17 11:46
+
+我总觉得北宋壶这人就算没有开发计划也会想办法开小灶给自己弄一台骑士型的机体开着玩
+
+*****
+
+####  猪突猛进R  
+##### 3415#       发表于 2025-1-17 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203397&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-17 11:44</a>
+
+拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死 ...</blockquote>
+看剧透里有“宇宙玫瑰”，怀疑是拉拉。
+
+估计还是被NT机关发掘了。
+
+*****
+
+####  虛無迴廊  
+##### 3416#       发表于 2025-1-17 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203397&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-17 11:44</a>
+拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死 ...</blockquote>
+这种没讲就随意想象了，幻想一下拉拉有其它奇遇过上正常生活也行
+
