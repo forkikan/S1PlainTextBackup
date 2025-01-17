@@ -5839,3 +5839,142 @@ GQX世界线应该是不存在这人了</blockquote>
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 男主希洛克，夏亚是他头上那只小螃蟹，脑控。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 3554#       发表于 2025-1-17 14:07
+
+既然所罗门还是打了那史列加还是可能死在那了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  JustW  
+##### 3555#       发表于 2025-1-17 14:07
+
+<blockquote>Toby_dak 发表于 2025-1-17 13:27
+0085
+
+这部分由于是原创，有不少未清楚的部分，加了个人的理解。
+</blockquote>
+麻球不是被空战迷到而是警用机边搜查边破坏所以气不过打算干一炮吧
+
+*****
+
+####  RE㐅ia  
+##### 3556#       发表于 2025-1-17 14:07
+
+<blockquote>Toby_dak 发表于 2025-1-17 13:27
+0085
+
+这部分由于是原创，有不少未清楚的部分，加了个人的理解。
+</blockquote>
+pv里有一段女主在ms手臂上奔跑，那个是怎么回事啊
+
+*****
+
+####  JustW  
+##### 3557#       发表于 2025-1-17 14:10
+
+<blockquote>RE㐅ia 发表于 2025-1-17 14:07
+pv里有一段女主在ms手臂上奔跑，那个是怎么回事啊</blockquote>
+在扎古里看到旁边空着一架GQuuuuuuX就出去跑酷跑过去抢了（
+
+*****
+
+####  RE㐅ia  
+##### 3558#       发表于 2025-1-17 14:11
+
+<blockquote>oi99o 发表于 2025-1-17 13:41
+tomoyo说本作看点是“欲望、混沌和留白”</blockquote>
+Q. 请谈谈对本作《机动战士 Gundam GuuuuuuX》的印象。
+
+温故知新，制作现场通透地感受到青春的热烈。另外对于无法理解的、混乱中不可解的品质，也可以理解为是理性不适用的作品。
+
+Q. 请谈谈你自己在演出中的印象和演绎上与主题的关系。
+
+マニッシュ和コケティッシュ的少女”是我在试镜时收到的资料。经过查阅，发现“マニッシュ”指的是女性穿上男性化的衣服(有男子气概的)，而“コケティッシュ”则是指以诱人的方式吸引男性的样子。她是一个非常多面的少女，最后直到录制结束，我都没能完全用语言表达出来，但现在回想起来，也许正是那种凌乱的状态才是真正的“青春期”。
+
+Q. 请告诉我们这部作品的看点。
+
+欲望与混乱，以及留白。在各种欲望的漩涡中，混乱所特有的质感诞生了，而故事中则有一些留白，希望大家能尽情享受这种绝妙的平衡感。(庵野也提到了鹤卷的平衡感)
+
+*****
+
+####  ティグル  
+##### 3559#       发表于 2025-1-17 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204609&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 13:40</a>
+
+月神二号一直都是在联邦手里吧，联邦反攻回宇宙前唯一的宇宙据点。这次北宋之壶还特地来了堆大扎姆去打。
+
+ ...</blockquote>
+我意思就是鸡瘟拿下了LUNA2啊
+
+EFF在宇宙最后的支点都没了鸡瘟不是随便玩，结果还是只闹了个独立
+
+
+*****
+
+####  PascalLefèvre  
+##### 3560#       发表于 2025-1-17 14:12
+
+平衡感<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  岸波白野扎比子  
+##### 3561#       发表于 2025-1-17 14:14
+
+看完了，我单方面宣布香槟可以开起来了
+
+*****
+
+####  中野梓  
+##### 3562#       发表于 2025-1-17 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204978&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 14:14</a>
+
+看完了，我单方面宣布香槟可以开起来了</blockquote>
+说说0085的部分吧
+
+*****
+
+####  王留美  
+##### 3563#       发表于 2025-1-17 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204946&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-17 14:11</a>
+ 我意思就是鸡瘟拿下了LUNA2啊 EFF在宇宙最后的支点都没了鸡瘟不是随便玩，结果还是只闹了个独立 ...</blockquote>
+鸡瘟的部队也损失很大吧……大概
+
+*****
+
+####  岸波白野扎比子  
+##### 3564#       发表于 2025-1-17 14:15
+
+而且鸭妹应该还活着，把鸭子头上的石头打爆了，把鸭子埋了，然后应该是逃了，我没看错的话。
+
+*****
+
+####  刺客ares  
+##### 3565#       发表于 2025-1-17 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204978&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 14:14</a>
+
+看完了，我单方面宣布香槟可以开起来了</blockquote>
+讲讲机战画面，现在最关心这个了
+
+*****
+
+####  王留美  
+##### 3566#       发表于 2025-1-17 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204978&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 14:14</a>
+ 看完了，我单方面宣布香槟可以开起来了</blockquote>
+现场的观众感觉如何？
+
