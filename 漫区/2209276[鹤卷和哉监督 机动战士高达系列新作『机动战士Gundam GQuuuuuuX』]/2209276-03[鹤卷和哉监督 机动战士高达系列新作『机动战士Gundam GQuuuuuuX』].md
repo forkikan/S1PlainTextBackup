@@ -3864,3 +3864,228 @@ woc太劲了太劲了，急急急
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  57042711  
+##### 3362#       发表于 2025-1-17 11:08
+
+基连居然没死，真的不会和紫色老太婆打成一团吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bindata  
+##### 3363#       发表于 2025-1-17 11:08
+
+<img src="https://img.saraba1st.com/forum/202501/17/110831ygn9qf13g1uwzuze.jpg" referrerpolicy="no-referrer">
+
+<strong>image00002.jpg</strong> (787.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/110832rf0cfsm6gc1qw0s0.jpg" referrerpolicy="no-referrer">
+
+<strong>image00003.jpg</strong> (823.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/110833d83ty7m3tyl9xhvv.jpg" referrerpolicy="no-referrer">
+
+<strong>image00005.jpg</strong> (773.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/110834ma77j7ajkjat8k7k.jpg" referrerpolicy="no-referrer">
+
+<strong>image00006.jpg</strong> (662.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:08 上传
+
+没设备扫，发个痞子访谈
+
+*****
+
+####  抹茶瓜  
+##### 3364#       发表于 2025-1-17 11:09
+
+他改变了一年战争.jpg   
+金恩不乱来就能改变历史这种老害段子你们还真玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 3365#       发表于 2025-1-17 11:09
+
+真就是新·高达啊，我就说这79if痞子味儿这么重怎么是鹤卷拍的
+
+*****
+
+####  AraTurambar  
+##### 3366#       发表于 2025-1-17 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202908&amp;ptid=2209276" target="_blank">57042711 发表于 2025-1-17 11:08</a>
+
+基连居然没死，真的不会和紫色老太婆打成一团吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这不说了打成一团所以殖民地一团糟么。
+
+*****
+
+####  Toby_dak  
+##### 3367#       发表于 2025-1-17 11:10
+
+吃午饭，完了再继续0085部分。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  萨尤克  
+##### 3368#       发表于 2025-1-17 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初怒喷庵野小鬼的闹麻了
+
+
+*****
+
+####  oi99o  
+##### 3369#       发表于 2025-1-17 11:13
+
+所以说0085之后庵野就不参与了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PascalLefèvre  
+##### 3370#       发表于 2025-1-17 11:13
+
+不参与是好事啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 3371#       发表于 2025-1-17 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202600&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 10:43</a>
+
+不对，咋没人说感情线呢？豚豚厨厨有能开香槟的嘛（</blockquote>
+接下来我要说一部第三集求婚的动画<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电波系腑海林  
+##### 3372#       发表于 2025-1-17 11:14
+
+感觉不错，痞子做的0079这部分还挺不赖的，而且及时收手0085部分丢给鹤卷他们。
+
+*****
+
+####  型月神话伊阿宋  
+##### 3373#       发表于 2025-1-17 11:14
+
+痞子不参与0085？那可太好了！
+
+*****
+
+####  bindata  
+##### 3374#       发表于 2025-1-17 11:14
+
+根据访谈0085之后就是榎户写的
+
+*****
+
+####  huanzhi  
+##### 3375#       发表于 2025-1-17 11:15
+
+别的先不管，反正把锅扔出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  创始’’’天翔  
+##### 3376#       发表于 2025-1-17 11:16
+
+庵野深入参与这么多啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 3377#       发表于 2025-1-17 11:16
+
+笑死，鹤卷:nm的庵野还在追我
+
+*****
+
+####  Piano-Forest  
+##### 3378#         楼主| 发表于 2025-1-17 11:17
+
+插入歌
+
+星街すいせい「もうどうなってもいいや」
+
+NOMELON NOLEMON「ミッドナイト・リフレクション」1月18日配信
+
+[https://www.ntv.co.jp/program/detail/?programid=20251CE0](https://www.ntv.co.jp/program/detail/?programid=20251CE0)
+[https://thetv.jp/program/0001057261/1/](https://thetv.jp/program/0001057261/1/)
+
+あす1月18日(土)午後2時30分〜
+
+『最新作公開記念✨
+
+機動戦士ガンダム×ZIP!
+
+国民的アニメ 45年愛される魅力教えますSP🚀🪐』
+
+📺アニメファン
+
+本郷奏多・松井玲奈が魅力を熱弁
+
+🎼米津玄師が語るガンダム愛＆
+
+主題歌 #Plazma 制作秘話
+
+🎬鶴巻和哉監督SPインタビュー
+<img src="https://p.sda1.dev/21/0ba5afac373597a9788acb2028b28cdc/20250117_111553.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dowagers/status/1880078143979155642](https://x.com/dowagers/status/1880078143979155642)
+
+キャラ作監で参加しております
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』
+
+本日より公開です！
+
+是非劇場でご覧ください〜
+
+(SNS投稿許可済)
+<img src="https://p.sda1.dev/21/e74cae378804b2247f26e5e9b19cc3b8/20250117_111619.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 3379#       发表于 2025-1-17 11:17
+
+所以现在殖民地是什么状态，因为吉翁战后还在内斗甚至内战，殖民地基本是无人管理的状态吗，看起来殖民地自己还有独立暴力机关，吉翁不是直接统治
+
+*****
+
+####  AraTurambar  
+##### 3380#       发表于 2025-1-17 11:17
+
+实话说0079这部分挺离谱的，正反两种意义上的离谱。
+
+等看过的人多了，估计痞子青黑要大战了。
+

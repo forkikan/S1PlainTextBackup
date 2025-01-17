@@ -1393,3 +1393,29 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 初华：作为和事佬反而被大喵两句怼回去，一遇到祥子相关的事情双商似乎同时降低，两头兼顾只会越来越无法兼顾。在睦的雷炸了之后就属你看着容易爆，至于mana，祝她好运。
 
+
+*****
+
+####  plazum  
+##### 142#       发表于 2025-1-17 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198677&amp;ptid=2242398" target="_blank">Prairial 发表于 2025-1-16 23:01</a>
+
++1给绿毛话终于多了，+1给🐘老师把人变成鬼
+
+不过看完个人感觉整个mygo+am还是偏本格推理多一些，睦这一话 ...</blockquote>
+本格推理和新本格推理，真当推理番看了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 143#       发表于 2025-1-17 11:08
+
+ 本帖最后由 老贝 于 2025-1-17 11:11 编辑 
+
++2，和MyGO第三话算是两个不同方向上的优秀表现。
+
+站台那段吵架台词设计得太刻意了。
+
+以及这种既要又要还啥都说不出口的性格在动画里尚且能说可爱，现实里一起共事还是饶了我吧。
+
