@@ -1305,3 +1305,26 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ztl44  
+##### 135#       发表于 2025-1-17 09:43
+
+出乎意料的走向+1
+
+睦的说话之道+1
+
+闹哪样的BGM-1
+
+都合的表演天赋-1
+
++0吧 总感觉烂尾指数增加了
+
+*****
+
+####  月光润色  
+##### 136#       发表于 2025-1-17 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 本来以为大祥老师组母鸡卡是为了偿还巨额债务，结果就为了找个逃避的地方。木头人以为是原生家庭大问题，结果是自卑心作祟，只看得到别人的优点。     越来越觉得闹麻了
+

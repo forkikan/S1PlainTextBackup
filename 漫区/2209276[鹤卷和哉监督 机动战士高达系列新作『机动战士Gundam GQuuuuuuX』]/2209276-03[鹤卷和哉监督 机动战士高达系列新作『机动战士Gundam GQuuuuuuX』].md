@@ -2689,3 +2689,123 @@ GTO算个屁的修正主义<img src="https://static.saraba1st.com/image/smiley/f
 </blockquote>
 这个鸭子也是竹做的人设吗？还以为会统一按照竹那种设计风格走来着
 
+
+*****
+
+####  kenqqex  
+##### 3238#       发表于 2025-1-17 09:36
+
+我日 炸裂了
+
+*****
+
+####  Gysumitka  
+##### 3239#       发表于 2025-1-17 09:36
+
+<img src="https://p.sda1.dev/21/a4163cd01b855acc4220136bef3b7a9c/image.jpg" referrerpolicy="no-referrer">
+大佬拍的
+
+*****
+
+####  1096beam  
+##### 3240#       发表于 2025-1-17 09:36
+
+请问有没有泥潭验证的X分钟补完UC史，我发现我细节基本忘光了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNINSTALL42  
+##### 3241#       发表于 2025-1-17 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201728&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-17 09:35</a>
+
+这个鸭子也是竹做的人设吗？还以为会统一按照竹那种设计风格走来着</blockquote>
+竹应该只负责原创角色的人物原案吧
+
+*****
+
+####  王留美  
+##### 3242#       发表于 2025-1-17 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201685&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-17 09:30</a>
+</blockquote>
+骡子开轻加农了吧
+
+*****
+
+####  Gysumitka  
+##### 3243#       发表于 2025-1-17 09:37
+
+<img src="https://p.sda1.dev/21/4aaddd8417ff95d7698196bce2a1333a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 3244#       发表于 2025-1-17 09:37
+
+管人痴能发力帮忙冲点票房吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Gysumitka  
+##### 3245#       发表于 2025-1-17 09:37
+
+律师粉能帮帮老害吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3246#       发表于 2025-1-17 09:38
+
+卧槽场刊好可爱啊三个人都好可爱 竹老师伟大
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  RE㐅ia  
+##### 3247#       发表于 2025-1-17 09:38
+
+我承认看不到GQuuuuuuX我现在真的很急
+
+*****
+
+####  AkaiSuisei  
+##### 3248#       发表于 2025-1-17 09:39
+
+这么写的话可以确信所谓的UCIF是既满足Khara这几个老头私心，又能自由发挥写新剧情不用被既定事实掣肘的两全方案，那我大胆预测一下正片里面前面这两话的内容都是纯纯的背景板，不会有什么深邃的剧情关联。
+
+*****
+
+####  刺客ares  
+##### 3249#       发表于 2025-1-17 09:39
+
+一年战争的战争推演完全不一样了？
+
+以及牢修这是成为夹在二人中间的男人了？
+
+*****
+
+####  古怪山庄士大夫  
+##### 3250#       发表于 2025-1-17 09:42
+
+老害得自己救自己吧，多爆爆金币
+
+
+*****
+
+####  molemole  
+##### 3251#       发表于 2025-1-17 09:42
+
+主角机还有觉醒的，迫真eva啊
+
+*****
+
+####  虛無迴廊  
+##### 3252#       发表于 2025-1-17 09:44
+
+所以Zexovia是把人类的画风都冲得变形了吗？
+

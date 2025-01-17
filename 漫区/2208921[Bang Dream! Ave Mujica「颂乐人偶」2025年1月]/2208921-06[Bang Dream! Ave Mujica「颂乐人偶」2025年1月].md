@@ -15614,3 +15614,105 @@ mana女士──
 
 对于现在的睦来说 表演和弹吉他都不舒服 不说话才最舒服 所以急着让她表达 是肯定不会有好结果的 确实不如替她做出选择 但这样就毫无成长了
 
+
+*****
+
+####  DD-963  
+##### 8763#       发表于 2025-1-17 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201184&amp;ptid=2208921" target="_blank">好much橘 发表于 2025-1-17 08:47</a>
+
+感觉到时候会反倒是祥子会撑不住选择离开，“不在意音乐的Mujica，不是我想要的Mujica”
+
+可她现在又何去何 ...</blockquote>
+回公司去电话销售水晶
+
+*****
+
+####  看穿一切的鱼  
+##### 8764#       发表于 2025-1-17 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201687&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 09:31</a>
+对于现在的睦来说 表演和弹吉他都不舒服 不说话才最舒服 所以急着让她表达 是肯定不会有好结果的 确实不如 ...</blockquote>
+不替睦做选择:上压力逼迫，睦自己说不了话。
+替睦做选择:只想着自己，不关心睦的想法。
+大祥老师有没有第三个选择。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈曼的YY  
+##### 8765#       发表于 2025-1-17 09:41
+
+<blockquote>Renes 发表于 2025-1-17 09:14
+说句你的行为已经给睦造成了很大精神压力，睦也是想靠音乐而不是父母很难吗？哪里揭伤疤了？揭伤疤有直接 ...</blockquote>
+在很多人看来黑刀之夜说我爸颓废了没法兼顾乐队和平解散也不难啊 祥老师不一直就是这样的人
+
+我理解的现状是这样:祥老师知道小黄瓜喜欢吉他不喜欢表演 和她重音乐性的方向也是一致的 所以一直推掉为难小黄瓜的表演要求 但是大喵持续的不满吵架导致小黄瓜担心乐队再次解散 但是弹吉他又怕再出错 这时莫提斯向她伸出了手 为了保住母鸡卡小黄瓜接受了莫提斯 不管用什么手段先续上再说
+
+*****
+
+####  刑部姬真可爱  
+##### 8766#       发表于 2025-1-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200013&amp;ptid=2208921" target="_blank">于干 发表于 2025-1-17 01:11</a>
+
+这个合照和go的合照真是好对比。mujica拍摄精致大家都在笑，看起来关系好的不行。go唯一在笑的糊了，全员各 ...</blockquote>
+素祥，当时的素世和此时的祥子都被迫对团队的现状接受，但是笑不出来
+
+爱喵，大概就是此时团队内真正最开心的人
+
+睦猫，本人都属于状况外，和团队若即若离
+
+初灯，翅膀组
+
+海希，团队基石
+
+
+*****
+
+####  山ノ内花音  
+##### 8767#       发表于 2025-1-17 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201780&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-17 09:40</a>
+不替睦做选择:上压力逼迫，睦自己说不了话。
+替睦做选择:只想着自己，不关心睦的想法。
+大祥老师有没有第 ...</blockquote>
+她俩的问题本质上是可以在床上解决的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+可惜制作组不给机会就是了
+
+*****
+
+####  杂灰  
+##### 8768#       发表于 2025-1-17 09:43
+
+任性一直都是祥子这个人的底色啊，只不过教育得好会自己去扛起一部分任性的后果，但一旦超出她能力，底下任性的部分就还是会暴露出来
+
+*****
+
+####  osore  
+##### 8769#       发表于 2025-1-17 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201804&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 09:42</a>
+
+她俩的问题本质上是可以在床上解决的
+
+可惜制作组不给机会就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大祥老师可以选择不和喵梦瞎BB
+
+对着脸上就是一拳
+
+*****
+
+####  看穿一切的鱼  
+##### 8770#       发表于 2025-1-17 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201799&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-17 09:41</a>
+素祥，当时的素世和此时的祥子都被迫对团队的现状接受，但是笑不出来
+
+爱喵，大概就是此时团队内真正最开 ...</blockquote>
+三集为止看不到海玲一点团队的地方啊，纯人机，也就是ai比睦强一点。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
