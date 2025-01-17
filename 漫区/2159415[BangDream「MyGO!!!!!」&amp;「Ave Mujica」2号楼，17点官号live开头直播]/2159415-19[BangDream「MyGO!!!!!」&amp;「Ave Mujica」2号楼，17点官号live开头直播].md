@@ -2895,3 +2895,14 @@ ras也有不仲？</blockquote>
 定制冠军来咯<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/2c1c630c77a76a55f67774bd47439d8b/Image_209284609430319.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26862#         楼主| 发表于 2025-1-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207439&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-17 18:12</a>
+
+定制冠军来咯</blockquote>
+才意识到暑假的投票到现在都没出图.....
+

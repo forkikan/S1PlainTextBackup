@@ -3252,3 +3252,23 @@ mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不�
 
 突然想起来，她们都出道了，没有请经纪人？一堆琐事甚至大事都是自己处理？？
 
+
+*****
+
+####  一心而用  
+##### 9172#       发表于 2025-1-17 20:34
+
+“睦，我有话要…”
+“soyo！” ​​​
+<img src="https://p.sda1.dev/21/2d7bc0730ea3f2b923f7b8f7508ae574/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3b9f0627cf33422cf26a40e10698b686/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/52429fd46307d74d1db275fc8d735f66/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e1899863aac8945cca085dc0ecb7c4c5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  TAQ  
+##### 9173#       发表于 2025-1-17 20:34
+
+睦的情况就是直接解离出一个莫女士，肯定是共享技能点的，问题就是莫女士本质就是在睦濒临崩溃时顶号上来，避免睦的内心受到创伤，但是，她又保存了太多睦的创伤回忆，而且二者在第三集开始了交流，莫女士开始分享记忆了，这对睦的精神会有更大的破坏
+
