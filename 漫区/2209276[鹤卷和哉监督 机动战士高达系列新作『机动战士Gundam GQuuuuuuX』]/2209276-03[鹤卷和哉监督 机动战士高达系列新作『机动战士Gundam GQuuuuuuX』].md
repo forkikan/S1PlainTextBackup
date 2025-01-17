@@ -6704,3 +6704,131 @@ https://youtu.be/qN59SBiIJ8g?si=-d8YbfrE3xd03FY2
 
 黑色三连星不好说，联邦能反攻到宇宙，如果按旧0079发展的话多半无了。不过这是新宇宙一切皆有可能。
 
+
+*****
+
+####  zzf111  
+##### 3636#       发表于 2025-1-17 15:18
+
+能不能剪个第0话上线流媒体<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 3637#       发表于 2025-1-17 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">走私犯也上学？
+
+*****
+
+####  刺客ares  
+##### 3638#       发表于 2025-1-17 15:21
+
+妮娅安不是出场就被警察追吗，这还能上学？
+
+剧场版这都四集了，还能再演三四集学校？
+
+*****
+
+####  双菜  
+##### 3639#       发表于 2025-1-17 15:22
+
+不是，你正片有多少篇幅，还能演几集上学剧情，把遗老骗进来杀是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PascalLefèvre  
+##### 3640#       发表于 2025-1-17 15:22
+
+看来不是打一辈子黑拳，是上一辈子学了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 3641#       发表于 2025-1-17 15:22
+
+众所周知二刺螈的学校入学不需要任何身份手续，随便哪来的天降神秘人第二天都能以转校生身份出现（
+
+*****
+
+####  JustW  
+##### 3642#       发表于 2025-1-17 15:23
+
+ 本帖最后由 JustW 于 2025-1-17 15:25 编辑 
+<blockquote>卑弥呼yamato 发表于 2025-1-17 14:32
+听你们描述，感觉麻球挺癫的啊，又是一个不稳定的NT</blockquote>
+
+麻球的背景还要展开解释一下吧，否则目前来看行动力有点太强了，只是想自由地体验真实的天空和大海，就和疑似恐怖组织一起回基地、抢扎古抢高达对警察出重拳、纠结了一晚上就邀请初次见面的电波男一起打黑拳挣钱、团战打一半才意识到自己在玩命，肯定不是普通单身母亲拉扯大的每天还要上辅导班的普通校园jk这么简单吧
+
+*****
+
+####  猪突猛进R  
+##### 3643#       发表于 2025-1-17 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205693&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-17 15:22</a>
+
+不是，你正片有多少篇幅，还能演几集上学剧情，把遗老骗进来杀是吧</blockquote>
+剧场版宣传校园剧，然后让新人看40分钟0079；
+
+动画版以为要讲UC的IF剧情，然后让遗老看校园剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3644#       发表于 2025-1-17 15:24
+
+所以你到底是不是季番啊kora
+
+*****
+
+####  PascalLefèvre  
+##### 3645#       发表于 2025-1-17 15:25
+
+钢巴斯塔那种校园也是校园<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Toby_dak  
+##### 3646#       发表于 2025-1-17 15:25
+
+ 本帖最后由 Toby_dak 于 2025-1-17 16:26 编辑 
+
+敖德萨是靠61海+飞盘海，所以就算没了木马联邦还是能赢的。黑色三连星没碰到杀星，大概苟住了。
+但是马沙被调走，水产没他指挥所以没拿下查布罗？
+
+还有，既然SIDE独立，那就不需要新的水产了（悲
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  UNINSTALL42  
+##### 3647#       发表于 2025-1-17 15:25
+
+都说了是企划初期啊……既然都能说出来了现在肯定不是这个安排啊……
+
+*****
+
+####  刺客ares  
+##### 3648#       发表于 2025-1-17 15:27
+
+企划初期就是按top3做的吧
+
+结果后期加了个开高达的男主？感觉有点像老G社和日升两边一块出人组了个主角团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 3649#       发表于 2025-1-17 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205741&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 15:25</a>
+ 敖德萨是靠61海+飞盘海，所以就算没了木马联邦还是能赢的。黑色三连星没碰到杀星，大概苟住了。 但是马沙被 ...</blockquote>
+side7的一号机是鸭妹开的还是未确认？
+最终站鸭妹是开三原色轻加农吗？
+
