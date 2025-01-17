@@ -1472,3 +1472,37 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 本格推理和新本格推理，真当推理番看了啊</blockquote>
 毕竟mygo/am的一大看点就是更贴近现实的人际关系的变化和推演，从这个角度讲，分裂出一个开朗睦虽然很二次元，但确实有些超现实
 
+
+*****
+
+####  JustW  
+##### 149#       发表于 2025-1-17 11:59
+
+动画本身做得还是不错的，但太想搞个大的噱头了，毕竟到处都在宣传自己是史上最狂少女乐队片，很怀疑后面能不能收回来
+
+*****
+
+####  ads147147  
+##### 150#       发表于 2025-1-17 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203595&amp;ptid=2242398" target="_blank">JustW 发表于 2025-1-17 11:59</a>
+动画本身做得还是不错的，但太想搞个大的噱头了，毕竟到处都在宣传自己是史上最狂少女乐队片，很怀疑后面能 ...</blockquote>
+日本没有广告法，是个人都会吹什么史上xx，他们那个环境里其实这样吹才是常态。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  JustW  
+##### 151#       发表于 2025-1-17 12:03
+
+以及虽然还是要看编剧本人，但邦邦前面爆个大的最后差点没收住也不是一两次了，前有勉强收住了的动画RAS，后有游戏里一泻千里的AG
+
+
+*****
+
+####  一心而用  
+##### 152#       发表于 2025-1-17 12:05
+
+<img src="https://p.sda1.dev/21/cf43aa80c9f35a44f8da0c116c576259/image.jpg" referrerpolicy="no-referrer">
+

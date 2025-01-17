@@ -4607,3 +4607,169 @@ b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
 
 就是为了给痞子爽特意剪个剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 3428#       发表于 2025-1-17 11:59
+
+痞子爽了，万代和东宝还不知道能不能爽<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灵魂收割机  
+##### 3429#       发表于 2025-1-17 12:00
+
+我肏庵野秀明怎么这么坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 3430#       发表于 2025-1-17 12:01
+
+企划定的那么早，而且机设早就偷跑了，单纯给痞子自嗨不太可能，几年前的痞子还没有新奥新假二连扑，大概率是当正经剧场版企划的，至于后来嘛...
+
+*****
+
+####  电波系腑海林  
+##### 3431#       发表于 2025-1-17 12:01
+
+庵野秀明来背负<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 3432#       发表于 2025-1-17 12:02
+
+<img src="https://p.sda1.dev/21/a225aedbf3433b97c5ed25985056e509/1000079083.jpg" referrerpolicy="no-referrer">
+
+推特广告来了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  电波系腑海林  
+##### 3433#       发表于 2025-1-17 12:03
+
+剧情差不多了什么时候开始轮票房
+
+*****
+
+####  刺客ares  
+##### 3434#       发表于 2025-1-17 12:03
+
+<img src="https://img.saraba1st.com/forum/202501/17/120258qpgzxj5j4zc475lb.png" referrerpolicy="no-referrer">
+
+<strong>1737085584773.png</strong> (24.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/120304ni5ij9mk859jk88u.png" referrerpolicy="no-referrer">
+
+<strong>1737085604864.png</strong> (11.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/120308i60z20m0sm6k3ou3.png" referrerpolicy="no-referrer">
+
+<strong>1737085610484.png</strong> (17.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/120314umzhxtmxamymzhia.png" referrerpolicy="no-referrer">
+
+<strong>1737085652586.png</strong> (144.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 12:03 上传
+
+*****
+
+####  七七見奈波  
+##### 3435#       发表于 2025-1-17 12:03
+
+题外话，当初种命里毁灭冒出来的时候就觉得这玩意怎么这么像大扎姆（尤其是几话后毁灭就量产了），后来我看到了雷霆宙域<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 3436#       发表于 2025-1-17 12:03
+
+现在的目标是剑指100e还是5e不算输
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古怪山庄士大夫  
+##### 3437#       发表于 2025-1-17 12:04
+
+万代肯定爽，怎么都不亏，还有后续内容没出呢，至于东宝嘛，套好关系展望未来好吧
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3438#       发表于 2025-1-17 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203373&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-1-17 11:42</a>
+麻球渴望刺激，尼亚安渴望爱</blockquote>
+感觉现在流行“嗜血”型主角
+一直在吸收周围的能量不知满足的类型作为主人公来说故事驱动力不是一般的强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看隔壁的舞冰感觉小祈气场都快压过小光了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  57042711  
+##### 3439#       发表于 2025-1-17 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203569&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-17 11:56</a>
+答案是</blockquote>
+笑歪了，所以说吉翁哪里来的这么多资源又搞山寨又量产大扎姆的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+果然还是星辰大海挖矿了吗…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蕾洁之风  
+##### 3440#       发表于 2025-1-17 12:07
+
+先把机设的锅甩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/c25eea819252d3a76522a36083a84969/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RE㐅ia  
+##### 3441#       发表于 2025-1-17 12:07
+
+<img src="https://img.saraba1st.com/forum/202501/17/120734dz9tbt0alrn66na2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>51AC1973-4CA1-4478-9A57-BA9983070BC6.jpeg</strong> (212.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 12:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/120734wokf5ffsf4m2fs27.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DF527F18-6EC2-44A5-8602-A82BC50CA138.jpeg</strong> (265.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 12:07 上传
+

@@ -1598,3 +1598,14 @@ za是啥？24年一整年没当任任跟不上黑话了<img src="https://static.
 za是啥？24年一整年没当任任跟不上黑话了</blockquote>
 宝可梦
 
+
+*****
+
+####  jimclack  
+##### 180#       发表于 2025-1-17 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203500&amp;ptid=2242384" target="_blank">卢迪克 发表于 2025-1-17 11:51</a>
+
+宝可梦</blockquote>
+那路或多，宝可梦虽然每代都玩但不会去关注还没发售的
+
