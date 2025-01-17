@@ -1487,3 +1487,14 @@ Horizon Forbidden West (Guerrilla Games) - TBA
 
 我直接开蹲半代升级，正好那个时候游戏也出的差不多了
 
+
+*****
+
+####  夜留歌  
+##### 169#       发表于 2025-1-17 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67198480&amp;ptid=2242384" target="_blank">黑上シグマ 发表于 2025-1-16 22:44</a>
+
+NS2正式公布了，而我公司年会的奖品听说有国行NS，我现在就这表情</blockquote>
+我司以前一直是国行ns，今年换成PS5了
+

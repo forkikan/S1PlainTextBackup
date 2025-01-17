@@ -3273,3 +3273,70 @@ tv不会不放吧，起码搞个超长版第一集之类的
 
 这种都够剪个第0集的，就不要幻想是剧场版专属内容了....
 
+
+*****
+
+####  PascalLefèvre  
+##### 3304#       发表于 2025-1-17 10:20
+
+要是能延续哈萨维的好传统就好了，实在不行快点搬上流媒体也好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 3305#       发表于 2025-1-17 10:20
+
+这整个重置一年战争一定要拉片仔细看一下了，这人物关系全部重置了，姨姥狂喜
+
+*****
+
+####  Sliurus  
+##### 3306#       发表于 2025-1-17 10:21
+
+不用追杀白色木马的话，夏亚可能没机会算计卡尔玛就让他跑路了，好像还挺合理的
+
+电影有说夏亚为什么这么卖力帮扎比家吗
+
+
+*****
+
+####  厚乳果珍爽  
+##### 3307#       发表于 2025-1-17 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故事就是吉翁打印一年战争的if线吗？
+
+吉翁怎么做才能打赢一年战争？
+[https://www.saraba1st.com/2b/thread-2236628-1-1.html](https://www.saraba1st.com/2b/thread-2236628-1-1.html)
+
+(出处: Stage1st)
+
+*****
+
+####  王留美  
+##### 3308#       发表于 2025-1-17 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202323&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-17 10:21</a>
+
+不用追杀白色木马的话，夏亚可能没机会算计卡尔玛就让他跑路了，好像还挺合理的
+
+电影有说夏亚为什么这么卖 ...</blockquote>
+准备事成之后杀全家吧
+
+金平岛砸格兰纳达的时候也是打算动手脚的(估计是要干基利西亚)，结果还没动完就第一次冲击了
+
+*****
+
+####  PascalLefèvre  
+##### 3309#       发表于 2025-1-17 10:25
+
+麻球有妈妈，哈曼说濒临破产<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+cv还是钉宫 草
+
+*****
+
+####  卑弥呼yamato  
+##### 3310#       发表于 2025-1-17 10:27
+
+可能真的有哈曼，但哈曼可能不是麻球（
+
