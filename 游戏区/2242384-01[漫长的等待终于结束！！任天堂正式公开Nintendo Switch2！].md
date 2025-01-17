@@ -1739,3 +1739,46 @@ NS发布，苹果发布股价都应声而跌，正常利好出尽变利空
 
 又是预告的预告，没劲
 
+
+*****
+
+####  mggr  
+##### 196#       发表于 2025-1-17 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204363&amp;ptid=2242384" target="_blank">ryanghj 发表于 2025-1-17 13:14</a>
+ 跌是正常的，利好出尽是利空，但是大跌说明市场反应不佳。首要问题就像昨天日推热搜是new3ds一样，ns2外观 ...</blockquote>
+ns2命名还导致觉得是半代升级？
+
+*****
+
+####  heseran  
+##### 197#       发表于 2025-1-17 13:28
+
+疫情是ns成功的buff都来了吗？其他两家怎么没蹭到这个buff，是不想吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 198#       发表于 2025-1-17 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204489&amp;ptid=2242384" target="_blank">heseran 发表于 2025-1-17 13:28</a>
+疫情是ns成功的buff都来了吗？其他两家怎么没蹭到这个buff，是不想吗？</blockquote>
+xbox不提本身费拉不堪，但是pc玩家是实打实大增
+
+ps5则是发布正好碰上疫情，产能不足，实际现在销量也不差。而ps4疫情前存量已经很多了
+
+说多没用，等过两年就知道结果了，也许老任真能做到新游全都不兼容ns呢
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nancygreenlife  
+##### 199#       发表于 2025-1-17 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204489&amp;ptid=2242384" target="_blank">heseran 发表于 2025-1-17 13:28</a>
+
+疫情是ns成功的buff都来了吗？其他两家怎么没蹭到这个buff，是不想吗？</blockquote>
+可惜，星鸣特工如果能在疫情期间推出，哪轮得到动森吃红利<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

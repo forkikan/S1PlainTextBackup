@@ -858,3 +858,75 @@ pico里，楚平方没加入前老5团开联合live各个团的负责人集合�
 看漫画才发现灯给祥子递纸条是通过鞋箱。太典了</blockquote>
 动画有，只是比较隐晦。我也是看万字解析才知道的。
 
+
+*****
+
+####  sauron.j  
+##### 8960#       发表于 2025-1-17 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202052&amp;ptid=2208921" target="_blank">lunaticfool 发表于 2025-1-17 10:01</a>
+
+祥嬷在二创里都是被喵梦狂暴雷普的形象吧百分百被反杀</blockquote>
+大猫身高164，还穿高跟，到170了。站在大祥面前跟双开门一样
+
+
+*****
+
+####  Porsche  
+##### 8961#       发表于 2025-1-17 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204461&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 13:25</a>
+其实我有一个假药的猜想，无口睦就是木头本来的样子，黑睦是曾经为了祥子而表演出来的，这涉及到姐妹俩的过 ...</blockquote>
+睦头说过，自己一开口就出事
+目前观众视角里大概只有从c团算起
+c团前多半也有好几次，可能也和家庭相关
+
+*****
+
+####  夜游宫  
+##### 8962#       发表于 2025-1-17 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204420&amp;ptid=2208921" target="_blank">kuroro 发表于 2025-1-17 13:21</a>
+
+我还是很在意之前祥子说睦原来能说能笑，那么莫提斯才是真正的睦，现在的无口睦反而是后来的？ ...</blockquote>
+祥子说的原来的睦，也可能只是她片面的看法。也许睦以前在她面前确实是能说能笑，但在别人目光下就会沉默寡言。
+
+而祥子遭遇大变后，和她异体同心的睦和她一起时也变得郁郁寡欢。
+
+祥子要么沉浸在哀伤中，要么为了生活压力奔走，反而没发现睦之所以变化是因为自己。
+
+*****
+
+####  天空塔书记官  
+##### 8963#       发表于 2025-1-17 13:28
+
+初华对于祥子的感情，应该就是神明与信徒的关系，这段关系中，初华的地位已经低到了泥土里，和祥子对木头高高在上自以为是的关心完全不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Porsche  
+##### 8964#       发表于 2025-1-17 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204479&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-17 13:27</a>
+大猫身高164，还穿高跟，到170了。站在大祥面前跟双开门一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">然后还是比镜头特写穿着平底鞋的大姐头低一块
+
+*****
+
+####  天空塔书记官  
+##### 8965#       发表于 2025-1-17 13:31
+
+毕竟LAYER可是你邦最高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 8966#       发表于 2025-1-17 13:33
+
+第四集开始进入新篇章了 好奇剧情啊
+
