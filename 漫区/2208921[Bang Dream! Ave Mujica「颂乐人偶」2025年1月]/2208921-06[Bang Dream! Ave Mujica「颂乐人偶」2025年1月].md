@@ -15716,3 +15716,164 @@ mana女士──
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 8771#       发表于 2025-1-17 09:46
+
+大祥老师整个一性转慕容复
+
+不如整个结局是一堆子人配着大祥老师过家家？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 8772#       发表于 2025-1-17 09:47
+
+海铃:这个逼乐队事情多就算了，怎么还各怀鬼胎的
+
+*****
+
+####  樱小路三礼  
+##### 8773#       发表于 2025-1-17 09:47
+
+我已经见到祥子破防回家找外公的画面了
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  晓色暮云  
+##### 8774#       发表于 2025-1-17 09:47
+
+很明显saki就是精神在不断崩坏啊，退出c团不只是现实中有困境而且也是祥精神上承受不住的结果，只不过大家都以为狗里面快要坏了是最低谷了，但是很显然独角兽觉得saki还可以被狠狠地抽，你们都觉得saki做的不够好所以导致木子米的精神问题，但我觉得这是两个精神病互相折磨，这才是真半身<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 8775#       发表于 2025-1-17 09:48
+
+母鸡卡的时间跨度感觉三集就已经超了c+go职业生涯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 8776#       发表于 2025-1-17 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201832&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-17 09:45</a>
+大祥老师可以选择不和喵梦瞎BB
+
+对着脸上就是一拳</blockquote>
+不可能 毕竟她也想背负喵梦的人生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 8777#       发表于 2025-1-17 09:50
+
+目前为止祥子面对的压力还是太小了 现在根本不算什么大危机 后面还有一堆事件排队呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ochre  
+##### 8778#       发表于 2025-1-17 09:51
+
+mujica在大祥起步攒团的时候商业性质就很明显吧？mygo好像一直还属于livehouse，学校社团级别，大家玩得开心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+mujica在起步找人，特别是对海铃和喵姆，就是很明显的商业企划，leader大祥老师在mygo末尾和mujica开头一直在说钱相关的剧情
+
+大祥老师疑似当成运营一辈子的精神寄托了，还通过私人关系拉来了初和睦，那乐队有分歧很正常啊
+
+*****
+
+####  古明地雷  
+##### 8779#       发表于 2025-1-17 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201669&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-17 09:29</a>
+还看不出来吗？睦实际想不想演戏不重要，祥子认为睦是一定不想的，因为她默认睦天然站在她这边，更进一步 ...</blockquote>
+什么叫睦想不想演不重要，睦真要说想演，祥子绝对是能商量的。冲突的时候喵梦说睦也没说不愿意，祥子没有说不可能而是询问睦。何况睦也实际不想演。祥子真就怎么都错怎么都自私是吧
+母鸡卡确实是祥子最后的精神避风港，也是她维护的最大目标，但不要因此忽视了她对睦的维护，即使是在有限范围的维护。
+正如访谈所说，两个人都在走钢丝却又想拉对方，这才是一起坠落的原因
+
+
+*****
+
+####  晓色暮云  
+##### 8780#       发表于 2025-1-17 09:52
+
+有分歧很正常，不过喵虽然嘴上不饶人但实际没啥权力，还是看祥p安排，只有mo总帅是能真正夺权之人，所以以后祥的处境还有很大下降空间啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 8781#       发表于 2025-1-17 09:53
+
+黑刀之夜那怕牢祥當個狗咩媽塞複讀機，
+
+其他什麼也不說也比現在好多了
+
+她不， 
+
+我們大女子就是要撒氣在別人身上
+
+Like Father Like Daughter
+
+*****
+
+####  Renes  
+##### 8782#       发表于 2025-1-17 09:53
+
+<blockquote>哈曼的YY 发表于 2025-1-17 09:41
+在很多人看来黑刀之夜说我爸颓废了没法兼顾乐队和平解散也不难啊 祥老师不一直就是这样的人
+
+我理解的现 ...</blockquote>
+现状就是基于两人性格和当下的想法的一个无解的问题，祥子的性格摆在这。
+
+所以睦最后为了守护母鸡卡而去杀死自己开始表演，但睦选择表演这个事必定是和祥子心中的母鸡卡背道而驰的。下集预告能看到的结果就是母鸡卡拍照C位变成睦，开会祥子单独一边对其他人围着睦，母鸡卡要被夺舍改叫睦鸡卡了。
+
+为了守护和续存母鸡卡，睦杀死了自己。但不会管这是不是祥子想要的母鸡卡了。祥子驾驭不了银河战舰，母鸡卡逐渐脱离她的掌控也是一种必然，她不想也没用。
+
+*****
+
+####  山ノ内花音  
+##### 8783#       发表于 2025-1-17 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201934&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-17 09:52</a>
+什么叫睦想不想演不重要，睦真要说想演，祥子绝对是能商量的。冲突的时候喵梦说睦也没说不愿意，祥子没有 ...</blockquote>
+睦现在是不想说话 你非让人家说话 那肯定是你的锅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ochre  
+##### 8784#       发表于 2025-1-17 09:54
+
+ 本帖最后由 ochre 于 2025-1-17 09:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201925&amp;ptid=2208921" target="_blank">ochre 发表于 2025-1-17 09:51</a>
+
+mujica在大祥起步攒团的时候商业性质就很明显吧？mygo好像一直还属于livehouse，学校社团级别，大家玩得开 ...</blockquote>
+mujica到底是什么样的乐队？怎样建设mujica这个乐队？完全不确定呢
+
+感觉处于混乱期，我现在只想看到mujica自己的黑刀之夜
+
+话说按照这个节奏后面真来得及包饺子吗？
+
+*****
+
+####  南宮凝香  
+##### 8785#       发表于 2025-1-17 09:55
+
+ 本帖最后由 南宮凝香 于 2025-1-17 09:57 编辑 
+<blockquote>osore 发表于 2025-1-17 09:45
+大祥老师可以选择不和喵梦瞎BB
+
+对着脸上就是一拳</blockquote>
+
+鍵盤手打鼓手
+
+155 打 164 
+
+我不想說得太失禮…….
+
+P.S 忘了還有雙利手
+

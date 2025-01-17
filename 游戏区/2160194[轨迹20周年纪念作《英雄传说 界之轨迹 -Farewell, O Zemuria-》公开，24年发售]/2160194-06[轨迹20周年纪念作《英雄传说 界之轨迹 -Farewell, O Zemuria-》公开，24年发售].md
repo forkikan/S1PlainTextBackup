@@ -282,3 +282,55 @@ STEAM版吗
 
 好晚
 
+
+*****
+
+####  ravend233  
+##### 7427#       发表于 2025-1-17 09:54
+
+设定集相关
+
+封面
+
+<img src="https://img.saraba1st.com/forum/202501/17/095347p4aocm4jqokjzaok.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/095354re8qqxqwzecw5wet.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:53 上传
+
+电击屋豪华版特典
+
+<img src="https://img.saraba1st.com/forum/202501/17/095409b9v3wmz3ikz3nurr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/095440a06kq056h6m66did.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/095449knyu8y33lwnuufu3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:54 上传
+

@@ -1328,3 +1328,15 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 本来以为大祥老师组母鸡卡是为了偿还巨额债务，结果就为了找个逃避的地方。木头人以为是原生家庭大问题，结果是自卑心作祟，只看得到别人的优点。     越来越觉得闹麻了
 
+
+*****
+
+####  一心而用  
+##### 137#       发表于 2025-1-17 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200830&amp;ptid=2242398" target="_blank">純田まな 发表于 2025-1-17 08:00</a>
+演出感觉可以更加有冲击性一点，走情绪流但是情绪不完全缺一口气
+
+你说得对，但这是个大家都以为睦在演 ...</blockquote>
+这一话你分给初华的一半甜甜圈🍩全部被拿去献给祥子了。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

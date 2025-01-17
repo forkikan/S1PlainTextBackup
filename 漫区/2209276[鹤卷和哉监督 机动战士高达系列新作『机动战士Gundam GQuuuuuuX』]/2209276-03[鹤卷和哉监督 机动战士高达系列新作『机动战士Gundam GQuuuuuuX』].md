@@ -2809,3 +2809,196 @@ GTO算个屁的修正主义<img src="https://static.saraba1st.com/image/smiley/f
 
 所以Zexovia是把人类的画风都冲得变形了吗？
 
+
+*****
+
+####  0aleph37  
+##### 3253#       发表于 2025-1-17 09:46
+
+修司嬷想必会大量增殖吧
+
+*****
+
+####  王留美  
+##### 3254#       发表于 2025-1-17 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201777&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-1-17 09:39</a>
+ 这么写的话可以确信所谓的UCIF是既满足Khara这几个老头私心，又能自由发挥写新剧情不用被既定事实掣肘的两 ...</blockquote>
+怎么可能没关系
+CV都说了剧场版说TV的前置作业
+
+*****
+
+####  novyDC  
+##### 3255#       发表于 2025-1-17 09:47
+
+会见到阿姆罗吗<img src="https://static.saraba1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  童话与星空  
+##### 3256#       发表于 2025-1-17 09:47
+
+ 本帖最后由 童话与星空 于 2025-1-17 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201829&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-17 09:44</a>
+
+所以Zexovia是把人类的画风都冲得变形了吗？</blockquote>
+也可能新画风是麻球眼中的世界，她因某种原因（比如被做nt实验）出现了认知障碍
+
+*****
+
+####  王留美  
+##### 3257#       发表于 2025-1-17 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201869&amp;ptid=2209276" target="_blank">novyDC 发表于 2025-1-17 09:47</a>
+ 会见到阿姆罗吗  —— 来自 鹅球 v3.3.96</blockquote>
+剧场版没有，TV可能有
+大概率是开三原色轻加农的
+
+*****
+
+####  PascalLefèvre  
+##### 3258#       发表于 2025-1-17 09:47
+
+“男主有点懒懒散散的，能力可以，看到人就上去闻味道，见到红毛和蓝毛就上去闻头发”
+
+兄弟，你没洗头
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Gysumitka  
+##### 3259#       发表于 2025-1-17 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201884&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-17 09:47</a>
+“男主有点懒懒散散的，能力可以，看到人就上去闻味道，见到红毛和蓝毛就上去闻头发”
+
+兄弟，你没洗头</blockquote>
+什么变态人设，哥们属狗的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 3260#       发表于 2025-1-17 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主有评价俩女主气味的区别吗
+
+*****
+
+####  香雨香香  
+##### 3261#       发表于 2025-1-17 09:49
+
+啊？鸭妹？啥时候来的？鸭妹都有这实力了？那骡子还是鸭妹初恋男友吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YU_JI  
+##### 3262#       发表于 2025-1-17 09:49
+
+电波系男主啊
+
+*****
+
+####  gundammarkⅡ  
+##### 3263#       发表于 2025-1-17 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">既然夏亚没有遇到拉拉，会不会是阿姆罗先遇到拉拉，达成了正确的相遇
+
+*****
+
+####  空彦秋  
+##### 3264#       发表于 2025-1-17 09:51
+
+啊？闻气味？那不是真希波的招儿吗
+
+*****
+
+####  虛無迴廊  
+##### 3265#       发表于 2025-1-17 09:52
+
+那喵安是为啥脸红？因为被男生闻了头发？
+
+
+*****
+
+####  kenqqex  
+##### 3266#       发表于 2025-1-17 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是创圣大天使的狗男主?
+
+*****
+
+####  王留美  
+##### 3267#       发表于 2025-1-17 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201924&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-1-17 09:51</a>
+ 既然夏亚没有遇到拉拉，会不会是阿姆罗先遇到拉拉，达成了正确的相遇</blockquote>
+肯定是骡塞啊
+然后鸭子把鸭妹带走了，轮到骡子困在塞拉里6年
+
+*****
+
+####  koodooliz  
+##### 3268#       发表于 2025-1-17 09:53
+
+马克杯没死啊
+
+*****
+
+####  kenqqex  
+##### 3269#       发表于 2025-1-17 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从第一集开始if的 阿姆罗不就是路边一条?
+
+*****
+
+####  刺客ares  
+##### 3270#       发表于 2025-1-17 09:55
+
+牢修在桥下画的涂鸦就是夏亚在所罗门消失时看到的“时间之光”
+
+*****
+
+####  Sliurus  
+##### 3271#       发表于 2025-1-17 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201881&amp;ptid=2209276" target="_blank">童话与星空 发表于 2025-1-17 09:47</a>
+ 也可能新画风是麻球眼中的世界，她因某种原因（比如被做nt实验）出现了认知障碍 ...</blockquote>
+奇巧计程车是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+难道连ms也是认知障碍吗？我还是不太能接受高达用这种脸，太诡异了
+
+*****
+
+####  RE㐅ia  
+##### 3272#       发表于 2025-1-17 09:55
+
+<img src="https://img.saraba1st.com/forum/202501/17/095550qggolsfl2g3halpp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>35CFE6DC-64B4-4CC1-A012-D657B5ACCA6B.jpeg</strong> (304.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 09:55 上传
+
+*****
+
+####  Gysumitka  
+##### 3273#       发表于 2025-1-17 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201990&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 09:55</a></blockquote>
+草，经典剧情来了
+
+*****
+
+####  oi99o  
+##### 3274#       发表于 2025-1-17 09:56
+
+我是真没想到老害还要拿两集来讲一年战争的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
