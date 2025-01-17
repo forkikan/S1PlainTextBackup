@@ -686,3 +686,85 @@ pico里，楚平方没加入前老5团开联合live各个团的负责人集合�
 
 我现在只希望到时候炸团时别让大祥像crychic一样第一个润
 
+
+*****
+
+####  jaewoongh_  
+##### 8942#       发表于 2025-1-17 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204252&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 13:03</a>
+祥子忽视了乐团成员在音乐层面上的表达与追求，也就否定了乐团存在的意义，“用心歌唱”是bang世界的底层逻 ...</blockquote>
+现在这种大祥老师一个人大包大揽的情况一点也不dokidoki，希望后面能写一首属于mujica五个人的音乐而不是符合mujica世界观的音乐
+
+*****
+
+####  Libartas  
+##### 8943#       发表于 2025-1-17 13:07
+
+【【AI喵梦】猫中毒-哔哩哔哩】 https://b23.tv/PT8jTVz
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 8944#       发表于 2025-1-17 13:09
+
+就目前对邦公演的宣发来看，初华和真奈这对组合还真散不了，毕竟bang世界串团打工可是常态，致敬传奇贝斯雇佣兵主唱
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计瑞依和海玲应该也是认识的，总感觉RAS和A团的联系肯定不止这么一点，仅以RAS推的身份表示期待，看后边的剧情发展吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 8945#       发表于 2025-1-17 13:09
+
+我感觉这几个对音乐都还挺上心，哪怕喵梦玩了命的练只是为了向上爬，后面只要觉醒了音乐是自己心中的呐喊就行了，初华就有点，藏得太深了完全看不出来她要干啥
+
+*****
+
+####  天风绯炎  
+##### 8946#       发表于 2025-1-17 13:10
+
+大祥破防不是第一跑路就对不起她这三集的塑造了，应该只有等她放下内心拧巴的“高贵”才会有所改变了
+
+*****
+
+####  一心而用  
+##### 8947#       发表于 2025-1-17 13:10
+
+<img src="https://p.sda1.dev/21/24995f60d61b868698ca1c3791c0b489/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a73a0d9bcb45f2ac40ec4a4486ffb8db/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5ada8ad53e21d727554a3c5042e01901/3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Reinhold  
+##### 8948#       发表于 2025-1-17 13:11
+
+什么，竟然是楚平方历史地位最高的一天<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 8949#       发表于 2025-1-17 13:12
+
+万一祥子真抗住了呢
+
+毕竟小章鱼的血条很多的
+
+*****
+
+####  江口夕  
+##### 8950#       发表于 2025-1-17 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子这次不会跑了，再跑还怎么继续演
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
