@@ -1439,3 +1439,13 @@ Horizon Forbidden West (Guerrilla Games) - TBA
 
 希望近几个月把软体阵容也先正式公布一下
 
+
+*****
+
+####  棺材叔叔  
+##### 163#       发表于 2025-1-17 09:08
+
+大概率奔着暑假发售了
+
+再给初代续半年命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2290,3 +2290,191 @@ tv版里估计0079的戏份都是闪回了，剧场版就是给大家看 新 高
 
 什么时候有麻球戏份，好急
 
+
+*****
+
+####  虛無迴廊  
+##### 3189#       发表于 2025-1-17 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201368&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 09:04</a>
+联邦输了宇宙战，摆大烂向月面扔所罗门
+
+鸭子去阻止了
+
+在所罗门内遇到了开白色机的塞拉</blockquote>
+那塞拉挂了吗？我以为冲击的契机是拉拉的死，原来是莎妹造成的？
+
+*****
+
+####  猫兔同笼  
+##### 3190#       发表于 2025-1-17 09:07
+
+这些老嗨就是想搞0079重置，结果上面不同意所以只能搞IF线了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 3191#       发表于 2025-1-17 09:08
+
+这不比重置嗨一百倍。
+
+*****
+
+####  YU_JI  
+##### 3192#       发表于 2025-1-17 09:08
+
+联邦朝月球扔所罗门？这么有乐子啊？
+
+*****
+
+####  岸波白野扎比子  
+##### 3193#       发表于 2025-1-17 09:08
+
+鸭——妹——
+
+*****
+
+####  Gysumitka  
+##### 3194#       发表于 2025-1-17 09:09
+
+老登们是真敢整
+
+*****
+
+####  Veronica0096  
+##### 3195#       发表于 2025-1-17 09:10
+
+哈哈哈，好想看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  猎人D  
+##### 3196#       发表于 2025-1-17 09:10
+
+这下扔石头联邦也干了
+
+*****
+
+####  cxasuka  
+##### 3197#       发表于 2025-1-17 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201211&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 08:49</a>
+我没看错吧
+
+鸭子和夏利亚二人合力无双联邦军？
+
+最后和鸭子在所罗门决战的是塞拉？</blockquote>
+GTO算个屁的修正主义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3198#       发表于 2025-1-17 09:11
+
+扎比家的部分
+
+多兹鲁被塞拉驾驶高达杀死
+
+卡尔玛没有出现
+
+基连和基西莉亚确认存活
+
+*****
+
+####  空彦秋  
+##### 3199#       发表于 2025-1-17 09:11
+
+看来这开头真藏了个大的，要是后面真能稳住，那这群老害就真的重振雄风了
+
+*****
+
+####  AraTurambar  
+##### 3200#       发表于 2025-1-17 09:12
+
+<blockquote>刺客ares 发表于 2025-1-17 09:11
+扎比家的部分
+
+多兹鲁被塞拉驾驶高达杀死
+
+卡尔玛没有出现
+</blockquote>
+到这里麻球哈曼说99成了。
+
+
+*****
+
+####  刺客ares  
+##### 3201#       发表于 2025-1-17 09:12
+
+夏亚尝试杀死基西莉亚，但是好像失败了
+
+*****
+
+####  PascalLefèvre  
+##### 3202#       发表于 2025-1-17 09:13
+
+多兹鲁一死，哈曼就有理由是平凡jk了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刺客ares  
+##### 3203#       发表于 2025-1-17 09:13
+
+卡尔玛疑似和伊塞莉娜私奔
+
+*****
+
+####  YU_JI  
+##### 3204#       发表于 2025-1-17 09:14
+
+卡尔玛如果没被算计夏亚就碰不到拉拉了，这个世界多半也就没拉拉了
+
+*****
+
+####  Veronica0096  
+##### 3205#       发表于 2025-1-17 09:14
+
+这太TM的劲爆了吧，怪不得要死命藏
+如果之前不是泄露了信息，劲爆指数还要再上一个档次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ads147147  
+##### 3206#       发表于 2025-1-17 09:14
+
+太乐了。。某种意义上都是老登门想做的内容，不管痞子有没锅也是他们那代人想搞的。。。
+
+*****
+
+####  Gysumitka  
+##### 3207#       发表于 2025-1-17 09:14
+
+速速引进gqx行不行<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 3208#       发表于 2025-1-17 09:15
+
+汤小美出生了吗
+
+*****
+
+####  萨尤克  
+##### 3209#       发表于 2025-1-17 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩这么大，被潮潮PV骗进电影院的新人顶得住这开场40分钟的遗老洗礼吗
+
+*****
+
+####  YU_JI  
+##### 3210#       发表于 2025-1-17 09:16
+
+和解了彻底和解了，这群老登搞的东西也许会烂，单绝对不可能无聊
+
