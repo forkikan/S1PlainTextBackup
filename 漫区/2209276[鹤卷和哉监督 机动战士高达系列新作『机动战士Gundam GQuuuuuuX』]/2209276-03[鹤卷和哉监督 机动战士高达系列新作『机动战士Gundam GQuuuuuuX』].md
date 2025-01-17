@@ -9437,3 +9437,55 @@ nga的repo说麻球喵安初遇是女铜滤镜
 
 霓虹的姨姥现在知道了会去看吗
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3894#       发表于 2025-1-17 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209846&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 23:01</a>
+怎么感觉闹麻了到最后都是友情
+
+就这篇幅还被痞子的0079占走两集，能把主线讲清楚就不错了，不会硬上全套 ...</blockquote>
+感觉……不带滤镜就这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又没上来就求婚结婚表白kiss 而且你高不是一向NT特有的电波感情
+总之我是三人小队派的，你楼涛的这个欠债永动机关系我个人就挺喜欢的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Sliurus  
+##### 3895#       发表于 2025-1-17 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209846&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 23:01</a>
+
+怎么感觉闹麻了到最后都是友情
+
+就这篇幅还被痞子的0079占走两集，能把主线讲清楚就不错了，不会硬上全套 ...</blockquote>
+0079if线应该不会放在TV，剪个3分钟前情提要差不多
+
+关系性嘛，大概率不会说破，看个乐。两头卖杜绝高纯度豚豚入场，挺好的
+
+*****
+
+####  ナルバレック  
+##### 3896#       发表于 2025-1-17 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209795&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 22:56</a>
+
+看来日本人真的很讨厌这种呢，我看国内是越高深越好（</blockquote>
+也不止中国国内啊，军迷路人潮哥路人不都是一直不喜欢校园剧和萌系脸这两个要素，高达以前玩的风格和日本年轻一代完全相冲，显得老人味尤其浓烈罢了，其实高达W那种每集角色有惊人言行，人比高达有时候还猛的剧集没准会在这个时代混的还能更好，可以看看4月的30周年庆典有啥动作
+
+*****
+
+####  ナルバレック  
+##### 3897#       发表于 2025-1-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209856&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 23:02</a>
+
+国内的讨论度大多是前半的（
+
+只能说国内姨姥的硬核程度已经暴杀霓虹潮哥了 ...</blockquote>
+高达迷铁杆硬核程度其实也是日本最高的，但是第一时间在网上评论的肯定不会是这批人，不是很多日企驻华五六十老登都是硬核高达粉吗，有些甚至是只热衷于元祖的那类emm
+
