@@ -1288,3 +1288,20 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 下一集木头人成为众人焦点 祥这下失焦得心理不平衡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 133#       发表于 2025-1-17 09:28
+
+喵梦在go里蹭ako的流量和第三集想蹭layer的流量，rinrin提到了经济人，layer提到了制片人，都有对成员的形象管理。但是从目前来看祥子对鸡团的自主权很高，所以应该就是祥子自己失误钓猫钓成虎了
+
+*****
+
+####  TiiTiiLL  
+##### 134#       发表于 2025-1-17 09:28
+
+大象老师最崩溃的难道不是每次企划写好就有人不按剧本走，写到一半又要重写
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
