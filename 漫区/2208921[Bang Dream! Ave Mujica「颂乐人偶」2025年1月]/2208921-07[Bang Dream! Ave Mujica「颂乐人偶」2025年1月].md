@@ -2125,3 +2125,122 @@ Mortis最壞心眼的地方在於，她的誕生，會讓Ave Mujica開始往好�
 
 现在所有人里面有在看着海铃这个人的还真就立希一个
 
+
+*****
+
+####  天空塔书记官  
+##### 9076#       发表于 2025-1-17 15:55
+
+初华是最后boss的概率很大，就像迷子里的素世一样，最终战的开局是看似团圆后“春日影”，木头的剧情重心应该只到中前期<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 9077#       发表于 2025-1-17 15:55
+
+海铃是孤独的
+估计mujica这张毫无团魂的合照 也会被她好好保存起来 成为后期的泪点
+
+*****
+
+####  凉良  
+##### 9078#       发表于 2025-1-17 15:57
+
+要做boss现在总得铺垫起来了吧  现在所谓分析细节怎么看怎么是假药啊。
+
+*****
+
+####  osore  
+##### 9079#       发表于 2025-1-17 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥关系性要是大爆了初华肯定会不甘心啊
+
+那我不是白同居了
+
+*****
+
+####  Hchan  
+##### 9080#       发表于 2025-1-17 15:57
+
+结尾祥子和睦那段比起撒娇更像亲密关系之间的埋怨。先不管谁对谁错，你不帮着我说话这件事本身就算胳膊肘往外拐了你怎么这样阿。像极了小时候我妈和邻居吵架然后我爸不知所措，回到家被狠狠数落的样子，老实说事后回想我妈的确也没多占理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 9081#       发表于 2025-1-17 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都播3話了mujica的動畫有和go很相似嗎，還在找對應角色的這是在
+
+而且初華可是主唱，是樂團的門面，然後你告訴我主唱其實是最想拆團的那個？呃
+
+*****
+
+####  天空塔书记官  
+##### 9082#       发表于 2025-1-17 15:58
+
+我又不是真在乎磕CP，我只是不知道而已，是我自己听歌这么觉的，毕竟又不是真的情强，错就错了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 9083#       发表于 2025-1-17 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206113&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-17 15:57</a>
+要做boss现在总得铺垫起来了吧  现在所谓分析细节怎么看怎么是假药啊。</blockquote>
+昨晚李子节约有个广播，睦祥吵架那段李子说了初华在观察
+现在初华藏的比mygo前期的素世还深，可能要等第一次情绪爆发后（mygo的春日影，mujica不知道是第几集什么歌了）才会露出马脚
+
+*****
+
+####  IWS2000  
+##### 9084#       发表于 2025-1-17 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206114&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-17 15:57</a>
+睦祥关系性要是大爆了初华肯定会不甘心啊
+
+那我不是白同居了</blockquote>
+不会长久的。（指同居）
+
+*****
+
+####  黑夜落叶秋天  
+##### 9085#       发表于 2025-1-17 15:59
+
+我还是那句话 mujica大概率会把在go时期建立的mujica团员刻板印象都毁了
+
+
+*****
+
+####  山ノ内花音  
+##### 9086#       发表于 2025-1-17 16:01
+
+初华的本质肯定是好的
+但确实不知道她背负着什么沉重的秘密<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9087#       发表于 2025-1-17 16:01
+
+那我来说个更假药的，我从迷子开始就觉的海玲是个拆队狂魔，无根据，纯臆测
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 9088#       发表于 2025-1-17 16:03
+
+A团的剧情更是加剧了我的这一预感
+
+当然还是臆测<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

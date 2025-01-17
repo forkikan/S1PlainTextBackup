@@ -7093,3 +7093,97 @@ FCLC做的太爽的反冲力吗（
 
 榎户话语权应该没痞子那么大吧，怼一怼还是没问题的
 
+
+*****
+
+####  RE㐅ia  
+##### 3674#       发表于 2025-1-17 15:54
+
+<blockquote>岸波白野扎比子 发表于 2025-1-17 15:52
+有鸭妹的轮廓
+
+话说感受到姐妹情的校园生活是个啥啊，别让我白开香槟啊</blockquote>
+eva式校园生活（
+
+*****
+
+####  Steel.Haze  
+##### 3675#       发表于 2025-1-17 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206026&amp;ptid=2209276" target="_blank">童话与星空 发表于 2025-1-17 15:50</a>
+
+话说UC正史中哈曼的母亲是什么情况来着？</blockquote>
+好像已经去世，哈曼是单亲，父亲管理拉克西斯，不过如果女主是哈曼，那么肯定是被送出新人类研究机关的，那么她必然有全套假身份和照顾其的人。
+
+*****
+
+####  ナルバレック  
+##### 3676#       发表于 2025-1-17 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205255&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-17 14:38</a>
+
+水魔从战争戏改成校园戏，观众无不哀叹制作组不做人
+
+现在新高达制作组又受水魔影响坚定了普通女子高中生 ...</blockquote>
+对女子高生元素反感最大的还是偏向军迷那类，基本是看到萌系画风+校园就会心理扣100分的那类，其实海外路人里这类型也确实有一些占比就是了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 3677#       发表于 2025-1-17 15:56
+
+银河美少年的话，那真要打一季的拳了，然后结尾大战最后来到地球，三人望海进ed，真是太青春啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zoomegg  
+##### 3678#       发表于 2025-1-17 15:57
+
+给鹤卷封个retake仙人吧
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gamedreamer  
+##### 3679#       发表于 2025-1-17 15:57
+
+他还说了三个人的关系性呢
+只能说期待了
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卑弥呼yamato  
+##### 3680#       发表于 2025-1-17 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206018&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 15:49</a>
+
+一年战争部分的分镜是庵野先生和前田真宏先生共同绘制的吧。
+
+【庵野】</blockquote>
+鹤卷GG我哭死
+
+
+*****
+
+####  猪突猛进R  
+##### 3681#       发表于 2025-1-17 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206026&amp;ptid=2209276" target="_blank">童话与星空 发表于 2025-1-17 15:50</a>
+
+话说UC正史中哈曼的母亲是什么情况来着？</blockquote>
+她在哈曼6岁时病死了。
+
+*****
+
+####  YU_JI  
+##### 3682#       发表于 2025-1-17 16:03
+
+<blockquote>刺客ares 发表于 2025-1-17 15:49
+——庵野先生这次的脚本中，有参考小说版的地方吗？
+
+庵野：没有，小说只在发售时读过一次，我一直在看动画 ...</blockquote>
+庵野：大光头是谁？不熟。
+
