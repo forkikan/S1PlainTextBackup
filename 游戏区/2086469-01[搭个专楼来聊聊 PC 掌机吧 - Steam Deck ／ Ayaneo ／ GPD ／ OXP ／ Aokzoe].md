@@ -225,3 +225,13 @@ pdd claw7+8+上了  6199 6999
 
 个人是希望LNL出个600g左右的机器，功耗的优点可以不用70以上的电池，不过够呛，单独开模具成本太高了。另外驱动还是不如AMD吧？
 
+
+*****
+
+####  亦饮阑珊  
+##### 1356#       发表于 2025-1-17 20:14
+
+9折券生效claw直接6599了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
