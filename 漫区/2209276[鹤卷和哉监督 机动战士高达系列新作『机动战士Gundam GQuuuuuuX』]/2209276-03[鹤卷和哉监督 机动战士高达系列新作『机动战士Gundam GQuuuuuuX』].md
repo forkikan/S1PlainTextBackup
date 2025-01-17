@@ -10285,3 +10285,13 @@ tv里面的ace活着就是没建树，打钢加农打不过，死了更惨被钢
 
 庵野成为大文豪有力竞争者
 
+
+*****
+
+####  novyDC  
+##### 3980#       发表于 2025-1-18 02:09
+
+看了红高达发功片段 感觉会看见正史<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

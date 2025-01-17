@@ -4383,3 +4383,36 @@ BLG无畏契约分部
 
 如果说， 观众在“断线之眠”里用演技的指派拒绝了睦对舞台的拒绝，在后续即将用对mortis魅力的承认接纳睦对自身的忘却，这算是一重残忍，另一重又会是什么？彻底的僭越，入侵？
 
+
+*****
+
+####  新HGCG  
+##### 9270#       发表于 2025-1-18 02:06
+
+啊
+
+睦疯子的洋娃娃吞噬木头人的时候
+
+说的是“もう大丈夫だよ”对吧
+
+*****
+
+####  utotqe  
+##### 9271#       发表于 2025-1-18 02:06
+
+翻出来一张图，23年go播完存的，现在看小祥连主犯地位都保不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<[img src="https://s21.ax1x.com/2025/01/18/pEkPIUK.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 9272#       发表于 2025-1-18 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210817&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-18 02:06</a>
+啊
+
+睦疯子的洋娃娃吞噬木头人的时候
+
+说的是“もう大丈夫だよ”对吧</blockquote>
+是的，而且睦被吞噬前有声很明显的“唉？”的声音，表情也是偏向困惑
+
