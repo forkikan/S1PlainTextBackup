@@ -4089,3 +4089,164 @@ NOMELON NOLEMON「ミッドナイト・リフレクション」1月18日配信
 
 等看过的人多了，估计痞子青黑要大战了。
 
+
+*****
+
+####  Piano-Forest  
+##### 3381#         楼主| 发表于 2025-1-17 11:19
+
+[https://x.com/KSUWABE/status/1880089132397199805](https://x.com/KSUWABE/status/1880089132397199805)
+<img src="https://p.sda1.dev/21/897595c11252fb02487e749e7708be83/20250117_111809.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Gysumitka| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  JustW  
+##### 3382#       发表于 2025-1-17 11:19
+
+没绷住，这给我干哪里来了吗？看得一脸问号，感觉都不是一个画风的
+
+*****
+
+####  猪突猛进R  
+##### 3383#       发表于 2025-1-17 11:20
+
+0079我倒没什么意外。
+
+因为之前剧透全中，意大利泄露的根本不是临时工，100%故意的。
+
+要不然你让新人体会老UC？所以目标说到底还是老登群体。
+
+楼友的剧情推演也是准确的，没高达联邦一样反攻，甚至不是打到所罗门而是攻下所罗门。
+
+包括战败也只是丢完宇宙跑回地球而已。
+
+最后夏亚纯小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有人还在为IF剧情夺了高达而狂喜乱舞，实际上落到鸭子个人头上纯纯悲剧啊。
+
+为仇人打工，事后还不需要麻烦卸磨杀驴，甚至临走前还帮仇人解除了月面危机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 3384#       发表于 2025-1-17 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202938&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-1-17 11:10</a>
+这不说了打成一团所以殖民地一团糟么。</blockquote>
+这背景还挺有趣的，所以说最后吉翁还是因为内乱要输的吧。世界线收束！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bindata  
+##### 3385#       发表于 2025-1-17 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202600&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 10:43</a>
+
+不对，咋没人说感情线呢？豚豚厨厨有能开香槟的嘛（</blockquote>
+百合和bg的情景都有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议谨慎入市
+
+*****
+
+####  PascalLefèvre  
+##### 3386#       发表于 2025-1-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203079&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-17 11:20</a>
+
+0079我倒没什么意外。
+
+因为之前剧透全中，意大利泄露的根本不是临时工，100%故意的。</blockquote>
+悲剧吗，我觉得死在0093比死（存疑）在0079悲剧多了
+
+*****
+
+####  Libartas  
+##### 3387#       发表于 2025-1-17 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">n妈d杏人能不能滚啊
+
+
+*****
+
+####  AraTurambar  
+##### 3388#       发表于 2025-1-17 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203079&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-17 11:20</a>
+
+0079我倒没什么意外。
+
+因为之前剧透全中，意大利泄露的根本不是临时工，100%故意的。</blockquote>
+小丑完了。
+
+帮仇人夺取宇宙，原来仇人输了，其一。
+
+一个人头都没收到，原来收了两个，其二。
+
+搭上自家人，本来自家人没事，其三。
+
+夏亚大笑自己幸运的时候可曾想过命运给高达标了价格？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DARILBALDE| + 1|欢乐多|
+| 猪突猛进R| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  JustW  
+##### 3389#       发表于 2025-1-17 11:25
+
+两女一男这感情线意图太明显我都笑了
+
+*****
+
+####  AraTurambar  
+##### 3390#       发表于 2025-1-17 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203141&amp;ptid=2209276" target="_blank">JustW 发表于 2025-1-17 11:25</a>
+
+两女一男这感情线意图太明显我都笑了</blockquote>
+不是中村悠一，还不一定。
+
+*****
+
+####  JustW  
+##### 3391#       发表于 2025-1-17 11:28
+
+<blockquote>AraTurambar 发表于 2025-1-17 11:25
+不是中村悠一，还不一定。</blockquote>
+分镜太嗯了，基本就是“注意看，我们这里有一条感情线！”
+
+*****
+
+####  刺客ares  
+##### 3392#       发表于 2025-1-17 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202600&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 10:43</a>
+
+不对，咋没人说感情线呢？豚豚厨厨有能开香槟的嘛（</blockquote>
+爬了下国外论坛，感觉两边都没什么声音啊，都在讨论0079大药然后晒周边晒票
+
+零星有几个写的，感觉是妮娅安→玛秋→修司→红高达？
+

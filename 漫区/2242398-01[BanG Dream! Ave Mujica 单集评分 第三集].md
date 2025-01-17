@@ -1419,3 +1419,23 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 以及这种既要又要还啥都说不出口的性格在动画里尚且能说可爱，现实里一起共事还是饶了我吧。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 144#       发表于 2025-1-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202219&amp;ptid=2242398" target="_blank">海底铁锚 发表于 2025-1-17 10:14</a>
+
+所以黑刀之夜，祥子离开C团的原因，单纯就是压力大的情况下屡次说错话，也不想改不想道歉于是一条路走到黑 ...</blockquote>
+喵梦本来就和其他人不熟，祥子拉她的时候也是用脸和数字拉的她，要让她去体谅理解明星二代的“苦”有点难为她了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qzfjnv  
+##### 145#       发表于 2025-1-17 11:21
+
+本来给的+2的后来想想还是+1吧
+
+扣一分给前一话的结尾结果这话一开头就很弱智的解决了，观众居然还能接受，换我肯定接受不了，虚假的人偶：台上5个内裤套头成员，真正的人偶：台下的观众
+
