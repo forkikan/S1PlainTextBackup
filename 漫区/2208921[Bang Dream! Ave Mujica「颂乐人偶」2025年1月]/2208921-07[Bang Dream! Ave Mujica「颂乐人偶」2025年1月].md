@@ -4169,3 +4169,64 @@ Ave Mujica的剧情<strong>只能</strong>在这样的世界观下展开，如�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  哈曼的YY  
+##### 9254#       发表于 2025-1-18 01:26
+
+主页推给我一个老精神病人分析若叶睦病情得视频 不过我没点进去看 好像10w播放
+
+然后在看其他视频的时候发现有这的人说是祥老师把小黄瓜逼成精神病的 我代入接受不了／突破我底线
+
+不知道有没关系
+
+想起来漏油以前讨论灯阿斯伯格 是真不能拿现实具体病症往里代啊
+
+*****
+
+####  玖羽  
+##### 9255#       发表于 2025-1-18 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210696&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-18 01:26</a>
+
+主页推给我一个老精神病人分析若叶睦病情得视频 不过我没点进去看 好像10w播放
+
+然后在看其他视频的时候发现 ...</blockquote>
+我还是那句话，二次元的心理问题什么时候是靠医生解决的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+睦的精神分裂就跟灯的阿斯伯格一样，症状几乎是照着写的，但是并不会给你盖章确认，要用的时候就有，用完了就没有
+
+
+*****
+
+####  Devola  
+##### 9256#       发表于 2025-1-18 01:33
+
+你邦一直走的就是魔幻现实主义，至于什么时候魔幻一点什么时候现实一点，是相当灵活的
+
+这个是前提
+
+*****
+
+####  天空塔书记官  
+##### 9257#       发表于 2025-1-18 01:33
+
+嘛，都人均超能力了，就相信音乐能解决一切呗，相信不需要理由<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 9258#       发表于 2025-1-18 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210248&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-17 23:53</a>
+话说第二集最后的旁白“断了线的人偶会收获自由吗？”
+
+看第二集那个时间点，看到断线人偶联想到的肯定是断 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">言听计从指的是大祥远离soyo，但还是把soyo带过来哥祥子见面等等么。
+睦不言听计从的情况起码占了一半。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
