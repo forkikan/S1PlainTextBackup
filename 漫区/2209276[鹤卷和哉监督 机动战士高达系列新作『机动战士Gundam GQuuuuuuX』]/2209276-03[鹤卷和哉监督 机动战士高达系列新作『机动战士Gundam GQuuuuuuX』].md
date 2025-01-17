@@ -10202,3 +10202,31 @@ tv里面的ace活着就是没建树，打钢加农打不过，死了更惨被钢
 
 还专门给你斩断了后续机体路线，兰巴拉尔开着吉翁高达被钢加农射爆听着就是大河田秀树的剧本。
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3973#       发表于 2025-1-18 01:36
+
+你楼真的是专心致志心无旁骛在涛正剧相关内容，果然是最认可痞子哥哥的高达遗老社区吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  double8G  
+##### 3974#       发表于 2025-1-18 01:37
+
+所以为啥高达的驾驶舱是开着的？这个后面都是怎么打补丁的？
+
+
+*****
+
+####  wasssf  
+##### 3975#       发表于 2025-1-18 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210736&amp;ptid=2209276" target="_blank">double8G 发表于 2025-1-18 01:37</a>
+
+所以为啥高达的驾驶舱是开着的？这个后面都是怎么打补丁的？</blockquote>
+本来的设定应该是为了方便维护根本没有锁这种东西，后面改了就圆起来困难了
+

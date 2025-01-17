@@ -4230,3 +4230,82 @@ Ave Mujica的剧情<strong>只能</strong>在这样的世界观下展开，如�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  天空塔书记官  
+##### 9259#       发表于 2025-1-18 01:37
+
+但霓虹金凡是想要把摊子稍微搞大点，就大概免不了翻车就是了，迷子这种同好会还算在老邦邦的舒适区，但好歹还有前四季的制作经验积累不是，接着看吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Hchan  
+##### 9260#       发表于 2025-1-18 01:40
+
+邦邦这种高武世界观下，小睦不自信也挺正常的。看看这个世界T0的吉他手都是什么怪物，全能天才日菜，绝对音感otae，狂战士六花，还有摩卡不止一次描写什么记忆力超群看过就能记住，随便学学就能极快上手的超现实设定
+
+绝对的性能差距面前，哪怕邦一团的吉他手纱夜前期都是处于蚌埠住的状态，什么自卑劣等感全拉满
+
+*****
+
+####  akiomn  
+##### 9261#       发表于 2025-1-18 01:40
+
+大概确认主推cp是初祥睦祥了吧，前期睦祥后期初祥（虽然这是废话，开播前就看得出）如果是像mygo那样，以第七集作为分界线，第八集开始就得铺垫初华跳狼了，中间穿插海玲喵梦两个，可能还有祥子线也要穿插下。睦的问题拖不了太久，拖到七八集的话剧情架构就得出大问题了。
+
+睦用了整整两集引出黑睦，如果给初华同等待遇起码也要2集作铺垫（之后解决可能就一集或者两集，毕竟13集是包饺子）
+
+17F39364-E17B-4DE8-ACFC-0237860460DB.jpeg
+(209.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/014014m8080pssmm0vhh08.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 9262#       发表于 2025-1-18 01:45
+
+然后就是TV结束，看反响补个加新画面的总集篇，这套流程已经相当成熟了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 9263#       发表于 2025-1-18 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206660&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-17 16:46</a>
+
+仙台巡演完了赶回东京要多久，祥子半夜吵架扰民说</blockquote>
+开始吵架的时候是18:30（火车站大钟）
+
+坐的班次很明确，18:57发的はやぶさ40或こまち40，都是20:32到东京
+
+祥子和初华是从丸之内换乘口走的，大约21:00前后到中目黑
+
+出站之后不久祥子开始跟睦吼（具体位置要等有人圣地巡礼）
+
+<img src="https://img.saraba1st.com/forum/202501/18/013628ec76kxic76op30th.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (11.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 01:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/014227oebk34eqez4lqbze.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (47.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 01:42 上传
+
