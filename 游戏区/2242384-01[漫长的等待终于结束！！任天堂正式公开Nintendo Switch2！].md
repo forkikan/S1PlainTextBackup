@@ -1864,3 +1864,29 @@ OLED 都能卖成销量增量第一，说明市场只买最好的，不会考虑
 
 那每次跨世代都长得差不多的手机有没有人看了名字还会以为是半代升级。
 
+
+*****
+
+####  Amami_Haruka_  
+##### 209#       发表于 2025-1-17 15:28
+
+怎么疫情红利都来了
+
+<img src="https://img.saraba1st.com/forum/202501/17/152754ui5qvbhq245ata5t.jpg" referrerpolicy="no-referrer">
+
+<strong>1000038839.jpg</strong> (188.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:27 上传
+
+
+*****
+
+####  强尼高达  
+##### 210#       发表于 2025-1-17 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204363&amp;ptid=2242384" target="_blank">ryanghj 发表于 2025-1-17 13:14</a>
+跌是正常的，利好出尽是利空，但是大跌说明市场反应不佳。首要问题就像昨天日推热搜是new3ds一样，ns2外观 ...</blockquote>
+PS2缓缓地打出一个问号
+

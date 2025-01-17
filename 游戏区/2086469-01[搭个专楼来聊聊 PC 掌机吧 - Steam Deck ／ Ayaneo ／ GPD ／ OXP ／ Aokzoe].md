@@ -209,3 +209,11 @@ pdd claw7+8+上了  6199 6999
 
 —— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  你不会没有吧  
+##### 1354#       发表于 2025-1-17 15:33
+
+定了台claw8 ai+，看看续航是不是真的强
+

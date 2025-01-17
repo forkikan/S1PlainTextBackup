@@ -6832,3 +6832,98 @@ https://youtu.be/qN59SBiIJ8g?si=-d8YbfrE3xd03FY2
 side7的一号机是鸭妹开的还是未确认？
 最终站鸭妹是开三原色轻加农吗？
 
+
+*****
+
+####  nnis  
+##### 3650#       发表于 2025-1-17 15:29
+
+这是竹的访谈，说对故事的印象。说是企画阶段固定下的剧情，应该是要用的吧（。
+
+
+*****
+
+####  Gysumitka  
+##### 3651#       发表于 2025-1-17 15:32
+
+<img src="https://p.sda1.dev/21/3498596635ab8e3780ac24035d585d46/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 3652#       发表于 2025-1-17 15:33
+
+麻球不是单亲家庭，父亲在另一个殖民卫星，母亲是side 6监察局的职员，上的学校是大小姐学校
+
+<img src="https://img.saraba1st.com/forum/202501/17/153304mrnnrhqc0csrgu9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/153153ffe5efufpzn1wblu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/153233zvnd2d0vdc90qdn0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:32 上传
+
+*****
+
+####  199april  
+##### 3653#       发表于 2025-1-17 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">被你们吹得我都想看了，所以tv版定档了吗？
+
+*****
+
+####  巴尔干炮  
+##### 3654#       发表于 2025-1-17 15:34
+
+骡子要是登场的话感觉会朝Z企划书里那种大腹便便的油腻大叔形象发展，不好的预感。
+
+*****
+
+####  刺客ares  
+##### 3655#       发表于 2025-1-17 15:34
+
+——0085的故事从三位主角的关系性展开。
+
+【榎户】
+
+我觉得三人关系如果没有新鲜感是不行的，在此基础上加入各自的特征，最麻烦的还是不怎么说话的修司，但不说话的角色光是这样就容易成为新人类的存在。
+
+宇宙世纪应该是同时多发性地出现新人类，所以碰到没见过的新人类的情节在高达世界里也是理所当然的事情。
+
+什么天选NT啊牢修，榎户对NT的理解就是无口电波系吗
+
+*****
+
+####  duo_wolf  
+##### 3656#       发表于 2025-1-17 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205711&amp;ptid=2209276" target="_blank">JustW 发表于 2025-1-17 15:23</a>
+
+麻球的背景还要展开解释一下吧，否则目前来看行动力有点太强了，只是想自由地体验真实的天空和大海，就和 ...</blockquote>
+为什么不能？动画里有这样行动力的女主还少吗？不如说没有这样的行动力配做巨大机器人动画的女主吗？就因为加了个熟悉的世界观设定就一定要是原世界观相关的人物吗？就不能有全新的主角，全新的英雄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 3657#       发表于 2025-1-17 15:36
+
+麻球哈曼说彻底破产
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

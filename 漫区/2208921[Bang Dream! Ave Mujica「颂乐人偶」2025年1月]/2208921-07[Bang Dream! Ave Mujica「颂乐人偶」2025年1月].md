@@ -1800,3 +1800,97 @@ hhw甚至有两个主推在团外且对象是同一个人的
 
 不如担心海希会不会像睦祥那样追妻火葬场吧 
 
+
+*****
+
+####  山ノ内花音  
+##### 9042#       发表于 2025-1-17 15:28
+
+海希关系的底色就很健康清爽 
+感觉不会有太多波折<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 9043#       发表于 2025-1-17 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205473&amp;ptid=2208921" target="_blank">oldgoat 发表于 2025-1-17 14:59</a>
+再看一眼祥睦吵架，品出一点这样的味道来：祥其实是在向睦撒娇，而撒娇的点则是“你明明以前很能说的，为什 ...</blockquote>
+我看木箱吵架那段完全就是“老公你说句话啊”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9044#       发表于 2025-1-17 15:30
+
+好像確實
+
+<img src="https://img.saraba1st.com/forum/202501/17/152928oxh3yklqubjhay7y.jpg" referrerpolicy="no-referrer">
+
+<strong>31c498d0-0e6c-4275-8b0d-73920a42f28b.jpg</strong> (34.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:29 上传
+
+Mortis最壞心眼的地方在於，她的誕生，會讓Ave Mujica開始往好的的方向運轉，因為她就是「身邊的人所期望的若葉睦應有的狀態」。
+
+而能否定Mortis把睦拿回來的人只有祥子，但這其實就是需要祥子做出覺悟，去放棄實質上的mujica的成功。
+
+*****
+
+####  天空塔书记官  
+##### 9045#       发表于 2025-1-17 15:31
+
+驯服是双向的，小王子和狐狸的故事不是单向的，立希脖子上是锁链，而海玲则是项圈，就能说明这点，至于要讲她们的关系性应该还是要追溯到她们是怎么认识的，这一块一直都是缺失的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  GBLMikuHatsune  
+##### 9046#       发表于 2025-1-17 15:31
+
+海玲妥妥会被鸡团扯下场的
+
+有可能是因为鸡团的一些事，导致其他打工的乐队和海玲切割，直接当不成雇佣兵。这时候立希出来让海玲开始正视自己和鸡团的关系
+
+
+*****
+
+####  NODY  
+##### 9047#       发表于 2025-1-17 15:32
+
+ 本帖最后由 NODY 于 2025-1-17 15:33 编辑 
+
+答案是海铃和立希两个被动画组半放置的边缘人并没有那么多篇幅给她们搞追妻火葬场这种cp塑造大戏
+
+看第三季的楚pa和现在的睦祥就知道了，这种戏份都是给主要角色的，所以有时候戏份少也有好处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 9048#       发表于 2025-1-17 15:34
+
+睦祥都这样了
+
+海希不来个大的我感觉独角兽会在意一辈子吧
+
+*****
+
+####  天空塔书记官  
+##### 9049#       发表于 2025-1-17 15:35
+
+我站素睦，初华才是和祥子对位的那个吧，愚神之歌的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  NODY  
+##### 9050#       发表于 2025-1-17 15:37
+
+独角兽明确说过她脑子里有海希初遇和海希春天的故事但剧本写不下，说明这俩边缘人的戏份是真的删了一堆
+
+现在保留下来的估计也就只剩立希开导海铃的小王子狐狸的部分了，剩下的估计给手游补完了，立希大部分故事都是手游补的
+
