@@ -5032,3 +5032,73 @@ LUNA2失守鸡瘟都无法控制地月系是什么爆笑剧情，已经跟赞斯
 
 别急，才第一天呢。等X爆了分分钟剑指10e
 
+
+*****
+
+####  Wondering  
+##### 3469#       发表于 2025-1-17 12:47
+
+400馆起码也要剑指百亿吧，好歹也是鬼灭线吧，鬼灭也是400馆
+
+鬼灭300亿票房，三分之一变成百亿没问题吧
+
+*****
+
+####  真飞鸟i  
+##### 3470#       发表于 2025-1-17 12:48
+
+坐席比种自多了很多，换了东宝这个大物辅助的情况下，目前数据只有种自同期的四分之一。
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  番茄牛奶  
+##### 3471#       发表于 2025-1-17 12:49
+
+别剑指这些了，还是看看胶一周后怎样吧，会大卖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野梓  
+##### 3472#       发表于 2025-1-17 12:50
+
+<img src="https://img.saraba1st.com/forum/202501/17/124909peissum2vmmmmmuu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0915.jpeg</strong> (43.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 12:49 上传
+
+光头：我说这么搞你万代打死不肯，怎么庵野来了就能搞呢？
+
+
+*****
+
+####  Ichihatsu  
+##### 3473#       发表于 2025-1-17 12:50
+
+正常焦段下高达脸除了天线短了点还算能接受，感觉机设身形普遍更像现实各家在搞的人形机器人
+
+*****
+
+####  铁蛋28  
+##### 3474#       发表于 2025-1-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202511&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-16 18:35</a>
+
+场刊
+
+https://www.alipan.com/s/hHx4qjVpvzd
+
+提取码: 0b20</blockquote>
+有好人能传个百度吗？感谢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 3475#       发表于 2025-1-17 12:54
+
+说以说TV还什么时候上啊？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

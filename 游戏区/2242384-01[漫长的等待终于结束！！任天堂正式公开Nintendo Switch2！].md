@@ -1683,3 +1683,30 @@ za是啥？24年一整年没当任任跟不上黑话了</blockquote>
 那老任超级碗准备放啥 总不能这么个破片重播一遍吧</blockquote>
 做个新PV放点新游戏，更多马车画面呗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  出轨的三头龙  
+##### 190#       发表于 2025-1-17 12:47
+
+不做游戏都能赚钱那还做游戏干嘛
+
+
+*****
+
+####  alecwong  
+##### 191#       发表于 2025-1-17 12:50
+
+老任股价应声而降，不知道能不能让古川改变下宣发策略，在直面会前放点给力的消息出来，别一手好牌打的稀碎（好牌已经快拖没了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  karastar  
+##### 192#       发表于 2025-1-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204120&amp;ptid=2242384" target="_blank">alecwong 发表于 2025-1-17 12:50</a>
+
+老任股价应声而降，不知道能不能让古川改变下宣发策略，在直面会前放点给力的消息出来，别一手好牌打的稀碎 ...</blockquote>
+NS发布，苹果发布股价都应声而跌，正常利好出尽变利空
+

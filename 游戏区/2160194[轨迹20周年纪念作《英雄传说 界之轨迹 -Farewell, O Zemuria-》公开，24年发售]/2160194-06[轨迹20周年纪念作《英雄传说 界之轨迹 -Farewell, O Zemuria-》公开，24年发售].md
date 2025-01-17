@@ -423,3 +423,14 @@ STEAM版吗
 
 DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
 
+
+*****
+
+####  ravend233  
+##### 7437#       发表于 2025-1-17 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203992&amp;ptid=2160194" target="_blank">whzfjd 发表于 2025-1-17 12:38</a>
+
+连塑料黄金都不舍得找个人画吗</blockquote>
+找E大师新画了个封面图，不错辣（）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
