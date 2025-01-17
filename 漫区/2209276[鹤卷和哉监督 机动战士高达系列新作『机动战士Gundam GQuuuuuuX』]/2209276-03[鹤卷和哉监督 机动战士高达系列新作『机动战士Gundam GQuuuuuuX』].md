@@ -1820,3 +1820,93 @@ WHITE GUNDAM 白高达
 
 歴史変換点はジーンが体調不良で待機
 
+
+*****
+
+####  猫兔同笼  
+##### 3137#       发表于 2025-1-17 08:26
+
+声优变了啊，虽然池田和古谷现在配20多岁的骡子鸭子有点勉强
+
+*****
+
+####  岸波白野扎比子  
+##### 3138#       发表于 2025-1-17 08:26
+
+这谁
+
+我以为起码会用大关，小西克幸呢，查了一下94年的
+
+*****
+
+####  Toby_dak  
+##### 3139#       发表于 2025-1-17 08:28
+
+<img src="https://p.sda1.dev/21/fc5af053f3b9ae1b39c47a4088ab685c/1000079049.jpg" referrerpolicy="no-referrer">
+
+进场。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  猫兔同笼  
+##### 3140#       发表于 2025-1-17 08:29
+
+配过东万男主，那个vr动画银灰的幻影主角也是他配的
+
+*****
+
+####  咖啡配黑鸡  
+##### 3141#       发表于 2025-1-17 08:29
+
+一年战争版阿克西斯冲击被称为泽克诺瓦
+
+为的是阻止所罗门进入格拉纳达
+
+历史转折点是元祖第一集那个想出头的吉翁士兵因身体不适而待机
+
+
+*****
+
+####  PascalLefèvre  
+##### 3142#       发表于 2025-1-17 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201012&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-17 08:29</a>
+一年战争版阿克西斯冲击被称为泽克诺瓦
+
+为的是阻止所罗门进入格拉纳达
+
+历史转折点是元祖第一集那个想出头的 ...</blockquote>
+要不是杂兵中路养爹，总帅早夺冠了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gamedreamer  
+##### 3143#       发表于 2025-1-17 08:32
+
+总帅最具有含金量的一集
+此时一台拿着超级火箭筒的rx-78-01路过.jpg
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PascalLefèvre  
+##### 3144#       发表于 2025-1-17 08:34
+
+新夏亚cv是哈萨维劫机南瓜头啊
+
+我要立刻看到二创<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zakufa782  
+##### 3145#       发表于 2025-1-17 08:35
+
+0079第一话的杂兵好像还是第一个出现/说话的角色吧，历史转折点是这人没上场也确实太会玩了
+

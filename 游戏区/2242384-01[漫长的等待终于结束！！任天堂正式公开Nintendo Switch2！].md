@@ -1308,3 +1308,29 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 发布后紧接着直面会感觉节奏会更好，中间空了好几个月了现在
 
+
+*****
+
+####  HazukiShion  
+##### 154#       发表于 2025-1-17 08:33
+
+如果按照 NS 10月公布 - 1月发布会 - 3月发售的间隔，那应该是 6 月发售？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  plusfive  
+##### 155#       发表于 2025-1-17 08:34
+
+遛狗是吧，早点倒闭吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 156#       发表于 2025-1-17 08:36
+
+看了白皮那边的反应，基本都是觉得你任实在是被催的受不了了所以剪了个ns2宣布视频应付一下，加上直面会间隔时间太长，其他倒没什么感觉
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
