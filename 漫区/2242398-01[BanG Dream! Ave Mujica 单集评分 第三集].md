@@ -1260,3 +1260,23 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 绝对的+2,演出风格突破了少女乐队的框架，充满了黑童话的诡异感，已成艺术。若叶睦在和Mortis的搏斗中“死”了。这一切都是为了维持和祥子的情谊，何等悲情，祥子只有avemujica了，小睦又何尝不是只有祥子了呢。最心疼睦头人的一集
 
+
+*****
+
+####  蓬莱妹红  
+##### 130#       发表于 2025-1-17 08:58
+
++2，伟大，无需多言
+
+木头人只要走出来，还是能发现自己除了吉他和祥子，还能交到其他朋友的，比如说出现在下集预告里的soyo，是吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 131#       发表于 2025-1-17 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199160&amp;ptid=2242398" target="_blank">dutage 发表于 2025-1-16 23:32</a>
+
+有个问题，这种级别的商业乐队，没有保密条款吗？如果合同里白纸黑字说了，不许摘面具，摘了就交违约金，喵 ...</blockquote>
+所以有个假药是大喵是在经纪公司授意下摘面具的
+
