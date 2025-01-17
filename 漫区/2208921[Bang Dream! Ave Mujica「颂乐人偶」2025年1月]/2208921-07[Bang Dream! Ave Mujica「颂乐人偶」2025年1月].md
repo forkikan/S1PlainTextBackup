@@ -2780,3 +2780,35 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 
 2025-1-17 17:07 上传
 
+
+*****
+
+####  玖羽  
+##### 9129#       发表于 2025-1-17 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206864&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-17 17:08</a>
+
+第三季第一集换秋季校服的第一天就看到了大赛的宣传海报，上面写了比赛开始时间是10.3，剧情里面还没开始报 ...</blockquote>
+东京高校确定在10月1日换冬服，而且10月是调整时间，可以穿夏服也可以穿冬服，11月1日才必须穿冬服
+
+（Ave Mujica前三话没有见到穿冬服的，所以不是10月）
+
+
+*****
+
+####  一心而用  
+##### 9130#       发表于 2025-1-17 17:23
+
+日式冷笑话
+<img src="https://p.sda1.dev/21/7722aa6a305ec4ea142329e0b306d9a9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 9131#       发表于 2025-1-17 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206504&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-17 16:30</a>
+
+马上要体现出半身的含金量了，祥子要做到这点就相当于把自己身上的高贵全部打碎，重新塑造以祥睦姐妹为中 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问题就是怎么才能让Mortis回头，低低在下的小祥能破Mortis的防吗
+
