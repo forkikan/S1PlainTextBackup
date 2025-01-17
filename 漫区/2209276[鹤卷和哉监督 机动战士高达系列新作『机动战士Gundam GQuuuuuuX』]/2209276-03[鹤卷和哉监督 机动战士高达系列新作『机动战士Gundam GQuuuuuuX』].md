@@ -5709,3 +5709,133 @@ tomoyo说本作看点是“欲望、混沌和留白”<img src="https://static.s
 
 GQX世界线应该是不存在这人了
 
+
+*****
+
+####  猪突猛进R  
+##### 3541#       发表于 2025-1-17 13:57
+
+哈萨维也不一定不存在，米莱的娃叫哈萨维有何不可，NT素质也是继承自母亲。
+
+只不过长相、血统可能都不一样了。
+
+*****
+
+####  废都刽子手  
+##### 3542#       发表于 2025-1-17 13:57
+
+所以除了鸭子妹，老白色木马成员的还有戏份吗
+
+*****
+
+####  王留美  
+##### 3543#       发表于 2025-1-17 13:57
+
+日本人还都挺好的
+没啥人在感想tag下剧透
+
+*****
+
+####  wyhman  
+##### 3544#       发表于 2025-1-17 13:58
+
+<blockquote>刺客ares 发表于 2025-1-17 13:55
+哈萨维是有德和米莱战后生的，81年生人
+
+GQX世界线应该是不存在这人了</blockquote>
+我靠 我的记忆完全混乱了
+
+*****
+
+####  RinC  
+##### 3545#       发表于 2025-1-17 13:58
+
+个人还是不太看好票房，以前上闪哈seed的时候家附近的唯一的东宝平日满座率都相当高的，虽然今天周五但刚刚12点的场去了发现才坐了一半，而且大部分都是大叔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 3546#       发表于 2025-1-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204798&amp;ptid=2209276" target="_blank">RinC 发表于 2025-1-17 13:58</a>
+
+个人还是不太看好票房，以前上闪哈seed的时候家附近的唯一的东宝平日满座率都相当高的，虽然今天周五但刚刚 ...</blockquote>
+所以这波还是看遗老给不给力。
+
+*****
+
+####  王留美  
+##### 3547#       发表于 2025-1-17 13:59
+
+ガノタが喜ぶ映画だけど、ガンダム知らない人見てもオモロだと思う。私はガンダム歴浅い中途半端なオタクなので、一番損をした可能性がある。でもオモロ。 #ジークアクス感想戦
+
+我觉得大概没问题了？
+
+还有人评价麻球比和卡缪一样疯
+
+*****
+
+####  番茄牛奶  
+##### 3548#       发表于 2025-1-17 13:59
+
+都是大叔，符合你高的老人臭<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 3549#       发表于 2025-1-17 14:00
+
+麻球是挺疯的，放着好好的jk日常不过，跑去打黑拳
+
+*****
+
+####  中野梓  
+##### 3550#       发表于 2025-1-17 14:00
+
+没用的，我疯狂刷了一早上推，总结下来普通路人根本看不懂，钢弹对他们来说还是水魔和SF
+
+*****
+
+####  oi99o  
+##### 3551#       发表于 2025-1-17 14:01
+
+79年的夏利亚和85年的夏利亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/17/140052v6kbaymmkak6kxss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/140116dbty55o8322q52yq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:01 上传
+
+
+*****
+
+####  香雨香香  
+##### 3552#       发表于 2025-1-17 14:03
+
+女一哈曼，女二拉拉，那男主为什么不能是夏亚穿越重生只不过失去了记忆呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猪突猛进R  
+##### 3553#       发表于 2025-1-17 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204863&amp;ptid=2209276" target="_blank">香雨香香 发表于 2025-1-17 14:03</a>
+
+女一哈曼，女二拉拉，那男主为什么不能是夏亚穿越重生只不过失去了记忆呢
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+男主希洛克，夏亚是他头上那只小螃蟹，脑控。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -1811,3 +1811,13 @@ ns2命名还导致觉得是半代升级？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204570&amp;ptid=2242384" target="_blank"> 泰坦失足 发表于 2025-1-17 13:36</a> mggr 发表于 2025-1-17 13:24 ns2命名还导致觉得是半代升级？ 这样想的用户在评论区里还不少。我看就差改名Nintendo Switch 2 Much Powerful than PO4了 </blockquote>
 2不是2代是什么？是幻觉吗难道来自: iPhone客户端
 
+
+*****
+
+####  Nonasenet  
+##### 203#       发表于 2025-1-17 13:58
+
+ 本帖最后由 Nonasenet 于 2025-1-17 14:03 编辑 
+
+连首发游戏的饼都不给画，只能说股价跌得不冤
+
