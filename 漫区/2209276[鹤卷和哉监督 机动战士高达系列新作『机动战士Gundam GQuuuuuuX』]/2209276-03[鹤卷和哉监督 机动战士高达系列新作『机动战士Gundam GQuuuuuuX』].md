@@ -9291,3 +9291,149 @@ nga的repo说麻球喵安初遇是女铜滤镜
 结合泥楼repo滤镜也太多了吧笑</blockquote>
 两头吃不耽搁（
 
+
+*****
+
+####  Gysumitka  
+##### 3878#       发表于 2025-1-17 22:54
+
+<img src="https://p.sda1.dev/21/cfd6745046f5148ae00b0b34cc372253/image.jpg" referrerpolicy="no-referrer">
+filmarks上评分还可以，翻到一个评价较中肯的差评。痞子你出来背锅罢
+
+*****
+
+####  kongxian  
+##### 3879#       发表于 2025-1-17 22:55
+
+这看来0079内容信息那么重分量，到时候怎么安排，已经很有喧宾夺主的担忧了。包袱还是太重了
+
+*****
+
+####  岸波白野扎比子  
+##### 3880#       发表于 2025-1-17 22:56
+
+看来日本人真的很讨厌这种呢，我看国内是越高深越好（
+
+
+*****
+
+####  卑弥呼yamato  
+##### 3881#       发表于 2025-1-17 22:57
+
+新观众萌萌看多的哪里受得了这种
+
+*****
+
+####  猪突猛进R  
+##### 3882#       发表于 2025-1-17 22:57
+
+现在看来，夏亚发功貌似不是主动的。
+
+结合0079里鸭子NT能力并不怎么高，我怀疑红高达上的Alpha系统其实类似于UC原宇宙的EXAM系统，需要献祭一个NT。
+
+那个XX玫瑰就是拉拉，是用拉拉的能力引导Bit浮游炮的，毕竟79鸭原宇宙只用过有线炮。
+
+最后的冲击也是拉拉引发的，鸭子被拉拉算计了。
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3883#       发表于 2025-1-17 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209755&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-17 22:52</a>
+nga的repo说麻球喵安初遇是女铜滤镜
+
+结合泥楼repo滤镜也太多了吧笑</blockquote>
+同好的repo是说了都有卖。twi的很多repo也是全都有提，基本都是这个感受：麻球和喵安的相遇有插曲，很像命运的相遇。同时麻球也对修司脸红了。修司把两个人都闻了一下认NT。总之都有。上twi看好几条都是在说关系性都很有趣都很喜欢的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Gysumitka  
+##### 3884#       发表于 2025-1-17 22:58
+
+差评大多都是前半，没接触过高达然后看不懂各种名词一脸懵的观众，后半还好
+
+*****
+
+####  0aleph37  
+##### 3885#       发表于 2025-1-17 22:59
+
+对霓虹人而言高达的老人臭太重了，年轻人看高达就像jk去一般拉面店一样不安desu
+
+*****
+
+####  线程召唤使  
+##### 3886#       发表于 2025-1-17 23:00
+
+<blockquote>oi99o 发表于 2025-1-17 22:16
+你觉得东宝和万代是冲着这个“正常水平”来排片的吗</blockquote>
+种自300馆一开始不也是说的预期就10亿，可能就是，300馆也好400馆也好，这玩意的成本比大家想的低很多，可能就这么回事。
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3887#       发表于 2025-1-17 23:00
+
+好想画画，但是明早起早的动车。对我来说票房10e还是100e都没有tv什么时候定档重要<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  0aleph37  
+##### 3888#       发表于 2025-1-17 23:00
+
+<blockquote>岸波白野扎比子 发表于 2025-1-17 22:56
+看来日本人真的很讨厌这种呢，我看国内是越高深越好（</blockquote>
+国内这不是婆罗门的态度吗笑的
+
+*****
+
+####  刺客ares  
+##### 3889#       发表于 2025-1-17 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209813&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-17 22:58</a>
+
+同好的repo是说了都有卖。twi的很多repo也是全都有提，基本都是这个感受：麻球和喵安的相遇有插曲，很像 ...</blockquote>
+怎么感觉闹麻了到最后都是友情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这篇幅还被痞子的0079占走两集，能把主线讲清楚就不错了，不会硬上全套感情戏吧
+
+*****
+
+####  番茄牛奶  
+##### 3890#       发表于 2025-1-17 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209837&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2025-1-17 23:00</a>
+种自300馆一开始不也是说的预期就10亿，可能就是，300馆也好400馆也好，这玩意的成本比大家想的低很多， ...</blockquote>
+这种就是真10e了，就不乐意了，狗代事后的客套话吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3891#       发表于 2025-1-17 23:02
+
+痞子的老害味太重了，不清算不行()
+
+*****
+
+####  刺客ares  
+##### 3892#       发表于 2025-1-17 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209843&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-17 23:00</a>
+
+国内这不是婆罗门的态度吗笑的</blockquote>
+国内的讨论度大多是前半的（
+
+只能说国内姨姥的硬核程度已经暴杀霓虹潮哥了
+
+*****
+
+####  卑弥呼yamato  
+##### 3893#       发表于 2025-1-17 23:03
+
+霓虹的姨姥现在知道了会去看吗
+

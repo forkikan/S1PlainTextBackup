@@ -14645,3 +14645,25 @@ bd3
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  言可  
+##### 1427#       发表于 2025-1-17 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208328&amp;ptid=2201887" target="_blank">starring 发表于 2025-1-17 20:12</a>
+拼图游戏</blockquote>
+抽象代便，这是2025年能想出来的游戏啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  csolfans  
+##### 1428#       发表于 2025-1-17 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208347&amp;ptid=2201887" target="_blank">离心 发表于 2025-1-17 20:13</a>
+
+活过一年就是胜利</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这玩意还是买断；真是难为声优吹这个了
+
