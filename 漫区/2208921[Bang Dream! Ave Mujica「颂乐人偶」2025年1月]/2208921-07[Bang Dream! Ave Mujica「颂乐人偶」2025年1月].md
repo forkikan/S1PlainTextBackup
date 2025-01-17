@@ -4528,3 +4528,14 @@ mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回�
 
 但把真结局放剧场版不太可能的，从独角兽那个自信满满的态度就能看出来，鸡狗动画肯定是个完整的剧本
 
+
+*****
+
+####  御幸一也  
+##### 9282#       发表于 2025-1-18 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209617&amp;ptid=2208921" target="_blank">DanceofEternity 发表于 2025-1-17 22:33</a>
+
+反正我是不觉得🦄会写一个只为出人头地利用别人的祥子。虽然明白漏油现在挺不爽，不过这番其实很多东西都 ...</blockquote>
+有什麼迴旋不迴旋的，這人又不是來討論的，特地來你樓拉屎而已<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
