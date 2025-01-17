@@ -3442,3 +3442,14 @@ b站的     
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  结衣小比取  
+##### 9191#       发表于 2025-1-17 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209145&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-17 21:30</a>
+
+他们自己翻译的</blockquote>
+从名字来看，视频源是B站的吧？B站的视频居然不是内嵌字幕的吗？
+

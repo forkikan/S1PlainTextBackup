@@ -8760,3 +8760,50 @@ side 6不是全是中文
 
 而是<strong>难民区</strong>多是中文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 3833#       发表于 2025-1-17 21:58
+
+<blockquote>wyhman 发表于 2025-1-17 21:46
+这个成绩不错了，为啥说褒姒</blockquote>
+因为馆数排的很多啊，更多的馆数，更少的票房，可不就是褒姒了（
+
+*****
+
+####  wyhman  
+##### 3834#       发表于 2025-1-17 21:59
+
+「劇場版プロジェクトセカイ 壊れたセカイと歌えないミク」は初日興収8500万円で初登場2位スタート。「初音ミク」などバーチャルシンガーが登場する人気スマホゲーム初の劇場版作品。 148館とやや小規模な公開ではありますが、ファンの支持は根強く10億円台に届く可能性も十分にありそうです！
+
+原来还有初音电影
+
+
+*****
+
+####  0aleph37  
+##### 3835#       发表于 2025-1-17 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209379&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-17 21:58</a>
+
+因为馆数排的很多啊，更多的馆数，更少的票房，可不就是褒姒了（</blockquote>
+毕竟是总集篇性质，不是真的剧场版
+
+*****
+
+####  番茄牛奶  
+##### 3836#       发表于 2025-1-17 22:01
+
+感觉狗代会nbcs？胶卖的怎样，才是它最关心的，你高今年的新台柱了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 3837#       发表于 2025-1-17 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209382&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 21:59</a>
+
+「劇場版プロジェクトセカイ 壊れたセカイと歌えないミク」は初日興収8500万円で初登場2位スタート。「初音 ...</blockquote>
+那个是烤/pjsk，和初音只是沾点边
+
