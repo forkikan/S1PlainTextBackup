@@ -1607,3 +1607,33 @@ mujica可能比想象中的更自由，这一集祥子甚至说能拒绝事务�
 
 mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个爽
 
+
+*****
+
+####  kuroro  
+##### 164#       发表于 2025-1-17 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200696&amp;ptid=2242398" target="_blank">yozoraxsx 发表于 2025-1-17 07:30</a>
+
++2
+
+给负的请反思自己潜意识里是不是祥厨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我是祥厨也给了+2，请继续大力拷打大祥老师，大祥老师真的被拷打少了（指交友人际关系方面）
+
+*****
+
+####  一心而用  
+##### 165#       发表于 2025-1-17 16:24
+
+<img src="https://p.sda1.dev/21/57261724b88f889860067489fd23fb88/006ffQwAgy1hxnrn40qbpj30k00qo77u.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 166#       发表于 2025-1-17 16:24
+
+<blockquote>dutage 发表于 2025-1-16 23:32
+有个问题，这种级别的商业乐队，没有保密条款吗？如果合同里白纸黑字说了，不许摘面具，摘了就交违约金，喵 ...</blockquote>
+
+丰川集团送孙女的玩票乐队罢了，金主孙女的乐队经纪公司插啥手，她咋做都对
+

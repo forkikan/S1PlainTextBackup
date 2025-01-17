@@ -505,3 +505,13 @@ DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
 没写新規描き下ろしイラスト ，3.19前就会被其他作品使用</blockquote>
 提前卖谷吧可能，但是只有草稿那都没画完啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 7445#       发表于 2025-1-17 16:23
+
+ 本帖最后由 Aeons 于 2025-1-17 16:25 编辑 
+
+160页和黎二一样吗，谁买谁亏我只能说，内容真不行。
+

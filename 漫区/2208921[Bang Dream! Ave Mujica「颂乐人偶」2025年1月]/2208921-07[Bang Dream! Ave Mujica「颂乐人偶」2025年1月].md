@@ -2367,3 +2367,114 @@ A团的剧情更是加剧了我的这一预感
 海玲其实挺明确的，她想要个归宿，和猫猫一样，而且海玲很重视音乐（问题是现在出了问题海玲第一个跑，教室里直接丢下初华一个人跑路了）
 我觉得关于海玲的篇幅不会讲太多，最多讲下海玲的过去
 
+
+*****
+
+####  樱小路三礼  
+##### 9099#       发表于 2025-1-17 16:14
+
+后面可能会出现把母鸡卡和睦放在天平上抉择的场面吧，母鸡卡必须炸一次团睦才能回来，不然会为了母鸡卡的存续，睦会一直这样的。
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一心而用  
+##### 9100#       发表于 2025-1-17 16:15
+
+Mortis cos的是吉米·亨德里克斯
+<img src="https://p.sda1.dev/21/92f5e5db1f3b02b346cf2d37e6ef27aa/006ffQwAgy1hxnpo9gthyj31uo0u0gtk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/701fcbdad18902aafb516ea540481e4a/006ffQwAgy1hxnq1fyvfkj30ty0se0xx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e79e576c40f2faafb529a5c2ff777a56/006ffQwAgy1hxnq1gdt2kj315o0v0gpd.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 9101#       发表于 2025-1-17 16:15
+
+<img src="https://img.saraba1st.com/forum/202501/17/161554w68r98xoxu5r75r9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1443.jpeg</strong> (48.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 16:15 上传
+
+*****
+
+####  山ノ内花音  
+##### 9102#       发表于 2025-1-17 16:18
+
+<img src="https://img.saraba1st.com/forum/202501/17/161850m6jhb6x6t3b6l64b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1445.jpeg</strong> (155.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 16:18 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/161850e9gktzzffbx1gx51.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1444.jpeg</strong> (392.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 16:18 上传
+
+https://x.com/muum_kmk/status/1880166027457380488?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+
+*****
+
+####  kivz  
+##### 9103#       发表于 2025-1-17 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206122&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 15:57</a>
+都播3話了mujica的動畫有和go很相似嗎，還在找對應角色的這是在
+
+而且初華可是主唱，是樂團的門面，然後你告 ...</blockquote>
+天天说小姑娘咋样咋样，很多场外观众才是真的闹麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正mujica都做完了，好好享受呗
+
+*****
+
+####  御幸一也  
+##### 9104#       发表于 2025-1-17 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206220&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-17 16:05</a>
+
+那也就是说，mortis的出现又把mujica推上了新的高峰，但成员中只有祥子知道这对睦本人不是好事（虽然可能 ...</blockquote>
+Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
+
+能完美完成所有的表演回應所有人的期待，這沒有不讓mujica更好的道理，觀眾想看的就是這樣的Mortis。
+
+而這個二選一，我覺得祥子是會去選擇睦的。
+
+雖然是基於聲優的理解
+
+animage 2025年2月號的聲優訪談就有說到
+『祥子現在肯定是處於走鋼絲的狀態。而且走的還是非常細的鋼絲，感覺稍有差錯就會墜下。然而她不僅會去照看別人，甚至還想要伸出援手。』
+
+她不可能對這樣的睦毫無作為。就算這會讓她的處境更危險。
+
+*****
+
+####  一心而用  
+##### 9105#       发表于 2025-1-17 16:24
+
+<img src="https://p.sda1.dev/21/77b1459a77c4e22a93b0d58caeed0900/006ffQwAgy1hxnrl85j2ij30ks0f2q40.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 9106#       发表于 2025-1-17 16:25
+
+SoYo： 所以你在C 團時為什麼不開心？
+
+睦： 我覺得自己是個跟不上你們三個高手的菜逼
+
+陰陽怪氣的職業吉他手
+
