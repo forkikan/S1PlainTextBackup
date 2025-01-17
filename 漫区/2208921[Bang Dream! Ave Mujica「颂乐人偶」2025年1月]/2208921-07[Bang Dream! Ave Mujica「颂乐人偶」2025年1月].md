@@ -1188,3 +1188,52 @@ C团去KTV时候小睦也笑了吧，小祥那时候就说“睦当然会笑了�
 有个疑点就是C团时祥子为什么不搞这套世界观？</blockquote>
 我一直觉得后面组鸡团不找C团的人就是大祥嫌他们太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 8990#       发表于 2025-1-17 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205110&amp;ptid=2208921" target="_blank">scorbian 发表于 2025-1-17 14:25</a>
+
+我一直觉得后面组鸡团不找C团的人就是大祥嫌他们太菜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦头被开除C籍了吗
+
+
+*****
+
+####  天空塔书记官  
+##### 8991#       发表于 2025-1-17 14:33
+
+现在就下菜的结论未免太早了吧，如果之后迷子和A团对邦赢了，怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  GBLMikuHatsune  
+##### 8992#       发表于 2025-1-17 14:33
+
+都忘了第一季祥子为什么要组乐队了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大祥过的贫苦但是并不需要还债，打零工看起来也勉强能够让自己和臭爹不死。
+
+看go团演出，最开始还是精神感应给灯打气，直到听完一首春日影，震撼流泪破防跑路拉初华一气呵成。手游里睦在听到春日影的时候还多嘴了一句“不属于库来西库的春日影”，算是挑明祥子起爆破防的原因了——有没有钱不重要，她想要一个自己的乐队。
+
+现在鸡团动画也表明了最开始拉库来西库也是因为看到前辈团在舞台上闪闪发光，结果本来应该是自己也站在台上，却只能做个旁观者。
+
+在我看来大祥的目的很朴素也很明确：我要上春晚！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+成立鸡团和音乐性不音乐性就没太大关系，演戏不演戏其实也无所谓。她就是看见本属于自己的位置却无法触及所导致的妒忌和不吃馒头争口气的心态让她要最速鸡团武道馆。从这个意义上来说喵梦反而算是她的前辈，她还在纠结“不要破坏世界观”的时候喵梦已经在想流量变现和烂炒的事了。这也侧面说明她只思考到了成团，成团后怎么做、什么时候摘面具她都没仔细想过，“最重要的时候摘面具”就像是一个对未来不清不楚的诺言。
+
+这也侧面反映出作为一个前大小姐做事不过脑子且急功近利的方面，从祥爸被赶出来时候大祥二话不说直接麻溜的提桶跑路就能看出来，她目前是属于想一出是一出的那种人。
+
+不过一个高中生做到这样已经够厉害的了，要怪只能怪祥爹铁fw不努力了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 8993#       发表于 2025-1-17 14:33
+
+和go的三个人都撕破脸不欢而散了哪可能还回头找人家，再说要搞商业赚钱这几个人又没有营销点
+

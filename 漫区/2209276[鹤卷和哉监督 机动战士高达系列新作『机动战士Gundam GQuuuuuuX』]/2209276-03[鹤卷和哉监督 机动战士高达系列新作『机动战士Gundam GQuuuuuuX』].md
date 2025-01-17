@@ -6088,3 +6088,98 @@ side6是对此默许吗？
 好几次牢修说话前都是头上的小机器人先说话，我怀疑是人形高达</blockquote>
 小螃蟹话那么多的吗？都讲了啥
 
+
+*****
+
+####  岸波白野扎比子  
+##### 3579#       发表于 2025-1-17 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205111&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-17 14:25</a>
+
+小螃蟹话那么多的吗？都讲了啥</blockquote>
+机械音，机械音响完牢修说人语
+
+*****
+
+####  0aleph37  
+##### 3580#       发表于 2025-1-17 14:27
+
+<img src="https://img.saraba1st.com/forum/202501/17/142704bu8t7tt8t7y31z0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:27 上传
+
+水魔的影响
+
+*****
+
+####  DARILBALDE  
+##### 3581#       发表于 2025-1-17 14:29
+
+其实牢修已经死了，头上的机器人才是本体是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸波白野扎比子  
+##### 3582#       发表于 2025-1-17 14:29
+
+夏亚是该干的没干完，莫名其妙在所罗门被迫引发奇迹的
+
+*****
+
+####  虛無迴廊  
+##### 3583#       发表于 2025-1-17 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205120&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 14:27</a>
+机械音，机械音响完牢修说人语</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">果然是脑控吗
+
+*****
+
+####  JustW  
+##### 3584#       发表于 2025-1-17 14:29
+
+秀吉看上去要么是人形高达要么被高达脑控了，说话起手势：高达是这么说的
+
+*****
+
+####  岸波白野扎比子  
+##### 3585#       发表于 2025-1-17 14:30
+
+我觉得鸭妹后续会登场<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卑弥呼yamato  
+##### 3586#       发表于 2025-1-17 14:32
+
+听你们描述，感觉麻球挺癫的啊，又是一个不稳定的NT
+
+*****
+
+####  岸波白野扎比子  
+##### 3587#       发表于 2025-1-17 14:33
+
+夏亚新声优说话太平淡了，还没旁边配小兵的斋藤壮马配的有感情
+
+*****
+
+####  0aleph37  
+##### 3588#       发表于 2025-1-17 14:34
+
+修司 像高达的妖精一样的人
+
+<img src="https://img.saraba1st.com/forum/202501/17/143457rgxyif7ixkfviigi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:34 上传
+

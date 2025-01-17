@@ -58,3 +58,11 @@
 
 现在这七宗罪全解锁了，到底是新分支还是新衣服？
 
+
+*****
+
+####  madcow  
+##### 1346#       发表于 2025-1-17 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">如果是新周年服的话感觉有几个除了颜色好像细节也不一样
+
