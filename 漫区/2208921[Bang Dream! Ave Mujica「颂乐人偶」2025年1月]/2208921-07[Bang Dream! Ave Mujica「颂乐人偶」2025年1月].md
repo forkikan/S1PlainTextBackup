@@ -2858,3 +2858,33 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 
 四集以后的莫小姐，是带上面具的交际花呢，还是表面和善内心癫狂的黑木头
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 9137#       发表于 2025-1-17 17:46
+
+这人要活得舒坦啊就得自信
+
+<img src="https://img.saraba1st.com/forum/202501/17/174558r5fd8ud8oldnpdjp.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_XHS_17371068210351040g2sg31co9g22o0udg5o8fgvt098drap39im8.jpg</strong> (70.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 17:45 上传
+
+
+*****
+
+####  GBLMikuHatsune  
+##### 9138#       发表于 2025-1-17 17:54
+
+可不要忘记初华在go的结尾是了解到了库来西库及mygo的，而且她对祥子的这段过往并不了解且抱有一定（极强）的探知欲。
+
+目前鸡团仅木箱两人和库来西库有直接牵连，海玲和初华一个是明面能通过立希了解，一个是只能暗地里调查。并且初华多半能猜到同为主唱的库来西库的灯一定和大祥发生过什么。
+
+这样一来从初华的视角看，她能调查出什么、调查出来又会怎么做，我真不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+指不定就好心办坏事因为这点把大祥给爆了
+
