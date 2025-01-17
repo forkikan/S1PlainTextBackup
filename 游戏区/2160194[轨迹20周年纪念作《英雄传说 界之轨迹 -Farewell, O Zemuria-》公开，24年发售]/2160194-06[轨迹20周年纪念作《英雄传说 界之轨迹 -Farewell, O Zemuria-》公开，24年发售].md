@@ -476,3 +476,21 @@ DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  卢迪克  
+##### 7442#       发表于 2025-1-17 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204587&amp;ptid=2160194" target="_blank">一步成诗 发表于 2025-1-17 13:38</a>
+
+有一说一这个封面图可以直接拿去当界2立绘，又省一笔</blockquote>
+没写新規描き下ろしイラスト ，3.19前就会被其他作品使用 <img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 7443#       发表于 2025-1-17 14:38
+
+没料？没想好怎么编<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

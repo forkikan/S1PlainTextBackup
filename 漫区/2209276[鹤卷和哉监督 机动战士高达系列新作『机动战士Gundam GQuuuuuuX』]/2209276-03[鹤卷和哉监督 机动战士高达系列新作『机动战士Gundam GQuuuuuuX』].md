@@ -6183,3 +6183,176 @@ side6是对此默许吗？
 
 2025-1-17 14:34 上传
 
+
+*****
+
+####  艾特娜  
+##### 3589#       发表于 2025-1-17 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">种还一直有重播吧，不然种自哪有小年轻看得懂
+
+*****
+
+####  刺客ares  
+##### 3590#       发表于 2025-1-17 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205206&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-17 14:34</a>
+
+修司 像高达的妖精一样的人</blockquote>
+我感觉他根本不是人，是从所罗门时间之光里跑出来的异世界生物
+
+*****
+
+####  0aleph37  
+##### 3591#       发表于 2025-1-17 14:37
+
+side6 经济大于 吉翁
+
+<img src="https://img.saraba1st.com/forum/202501/17/143615vzinhttzitzztesh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:36 上传
+
+*****
+
+####  刺客ares  
+##### 3592#       发表于 2025-1-17 14:38
+
+另外外面各大论坛爬了一圈，口碑应该是没问题了，水魔新人UC老人都是大多好评，机战部分据说也不错，满意了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 3593#       发表于 2025-1-17 14:38
+
+修司本体应该是头上的机器人？人体是战场上随便捡的小兵
+
+*****
+
+####  双菜  
+##### 3594#       发表于 2025-1-17 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205125&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-17 14:27</a>
+水魔的影响</blockquote>
+水魔从战争戏改成校园戏，观众无不哀叹制作组不做人
+现在新高达制作组又受水魔影响把军人主角改成普通女子高中生主角<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 3595#       发表于 2025-1-17 14:38
+
+<blockquote>引用第3568楼岸波白野扎比子于2025-01-17 15:19发表的  :
+
+里面有个扎古胸口有个福字</blockquote>
+倒福。
+
+这次中文元素挺多的，招募乐队、有限公司（不是会社）、倒福字。
+
+负责外语的是Khara+的老熟人兼光ダニエル真，还每周一义务翻译比村乳业。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  岸波白野扎比子  
+##### 3596#       发表于 2025-1-17 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205049&amp;ptid=2209276" target="_blank">moeful 发表于 2025-1-17 14:20</a>
+
+看了下头像，为啥头像是种的都在吹</blockquote>
+我只是单纯喜欢飞鸟而已
+
+我想要麻球也会是我喜欢的类型<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卑弥呼yamato  
+##### 3597#       发表于 2025-1-17 14:41
+
+这么说的话，虽然联邦退守地球了，但是吉翁也邦联化了，殖民地自治权利相当高，side 6尤其高，感觉后面是吉翁军阀混战吧，也可能已经在军阀混战了，看起来小**一直有。
+
+
+*****
+
+####  RE㐅ia  
+##### 3598#       发表于 2025-1-17 14:42
+
+警惕机翻访谈…
+
+-U.C.0085部分的故事中心是三位角色：玛秋、尼安和修司。他们是如何诞生的呢？
+
+鹤卷：玛秋最初是一个更加尖锐的角色。那时，我认为在非战时的情况下，女性驾驶高达是一件相当高难度的事情。后来，《机动战士高达 水星的魔女》发布后，我的心情轻松了很多。最终，我认为这个故事变成了一个普遍的故事，讲述了一名普通女高中生在日常生活中遇到高达并参与战斗的经历。
+
+<img src="https://img.saraba1st.com/forum/202501/17/144249oez7i7gy746nteei.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>285AC700-51CB-4C2A-80F7-CDAB67AA6333.jpeg</strong> (56.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:42 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/144249ofetl1zolez6th0h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>38DDA98A-7BD1-4FEC-A217-9E431673931A.jpeg</strong> (178.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:42 上传
+
+*****
+
+####  nnis  
+##### 3599#       发表于 2025-1-17 14:43
+
+特典里说原本是子供向玩具，被他魔改了
+
+<img src="https://img.saraba1st.com/forum/202501/17/144315mpgopffebybwabp4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1962.jpeg</strong> (39.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:43 上传
+
+*****
+
+####  kongxian  
+##### 3600#       发表于 2025-1-17 14:44
+
+年轻人进场被糊一脸0079，那接下来部分怎么收场。完全切割？前面完全沦为背景板各拍各的？开香槟到底是谁开香槟
+
+
+*****
+
+####  Toby_dak  
+##### 3601#       发表于 2025-1-17 14:44
+
+基连的野望从SS玩到PSP，前40分钟看到各位熟悉的自护角色，的确很乐。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  鬼谷ask  
+##### 3602#       发表于 2025-1-17 14:44
+
+大好评状态吗，期待了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 3603#       发表于 2025-1-17 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205255&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-17 14:38</a>
+
+水魔从战争戏改成校园戏，观众无不哀叹制作组不做人
+
+现在新高达制作组又受水魔影响把军人主角改成普通女 ...</blockquote>
+这个倒不见得是水魔的锅，UC就是“少年遇见了高达”，骡、猫、猪、西布克、伍索，甚至巴上帝都是这样，原本就不是军人。
+
+至于新时代把少年改成了少女，更多是现实里观众口味的影响。
+

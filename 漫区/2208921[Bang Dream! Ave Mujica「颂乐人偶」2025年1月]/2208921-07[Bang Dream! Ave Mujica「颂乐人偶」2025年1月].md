@@ -1237,3 +1237,119 @@ C团去KTV时候小睦也笑了吧，小祥那时候就说“睦当然会笑了�
 
 和go的三个人都撕破脸不欢而散了哪可能还回头找人家，再说要搞商业赚钱这几个人又没有营销点
 
+
+*****
+
+####  Libartas  
+##### 8994#       发表于 2025-1-17 14:38
+
+其实喵梦还有个熊本老倔头的属性没发动，看独角兽怎么安排了
+
+*****
+
+####  Renes  
+##### 8995#       发表于 2025-1-17 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205109&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-1-17 14:25</a>
+
+您能不能不要那脑补了，演奏过程中加演戏哪里来的，边演奏边演戏？如果你要说整个live中，她们本来就这样 ...</blockquote>
+自己不好好看动画说别人脑补是吧？
+
+睦第一次瘫在椅子上是不是演奏过程中？音乐前奏响，睦开始演奏然后突然停止瘫坐在椅子上？
+
+<img src="https://img.saraba1st.com/forum/202501/17/142842izvv1ukns2jbk1t1.png" referrerpolicy="no-referrer">
+
+<strong>XEO`PH6:`48WDOKI9DO.png</strong> (186.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:28 上传
+
+你来告诉我什么叫重现巡演首日的表演？
+
+<img src="https://img.saraba1st.com/forum/202501/17/142927vfczb1azh5oq5rq6.png" referrerpolicy="no-referrer">
+
+<strong>[FNADE%JX@G%MX(~}`ZOF%J.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:29 上传
+
+你来给我解释一下什么叫故意中断演奏
+
+<img src="https://img.saraba1st.com/forum/202501/17/143543scgqsk1c07bx09z8.png" referrerpolicy="no-referrer">
+
+<strong>@QW8@Y%BP8N~$%NL]6C`[Y0.png</strong> (158.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:35 上传
+
+你来告诉我不需要母鸡卡的音乐是什么意思？为什么海铃要说这句话
+
+<img src="https://img.saraba1st.com/forum/202501/17/143639r3bgw33adtfjf3f7.png" referrerpolicy="no-referrer">
+
+<strong>$%HG4%IN6UM`GMXFL_DRML2.png</strong> (115.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:36 上传
+
+你来告诉我后面去看巡演的观众说的这句会不会有mortis的表演指的是什么表演？你不会以为是演奏前普通的念台词吧？
+
+求求你好好看看动画再来说别人脑补吧
+
+还有你说的这些，这不是办公室政治，这些站位的镜头语言，并不是剧中角色有意而为之故意去疏远祥子的，是无意识造就的趋势或者说事物的流向，只有你在那脑补办公室政治，第三集最后的死亡睦，肯定在下一集会成为各种媒体还有观众的焦点，自然而然的焦点聚集于睦身上而不是母鸡卡这个乐队和他们的音乐身上身上，自然而然的会让祥子产生疏离感。这是事物的流动和趋势的表现，不是是什么办公室政治，我觉得这是常识，望周知。
+
+*****
+
+####  RPG-7  
+##### 8996#       发表于 2025-1-17 14:39
+
+看考证说大喵的学校也算是高中，又薄纱隔壁鼓手的中专了不是
+
+*****
+
+####  披头破落户  
+##### 8997#       发表于 2025-1-17 14:40
+
+楼里这加鹅扣鹅什么情况
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 8998#       发表于 2025-1-17 14:41
+
+大象執著的雞團是什麼？
+
+音樂性&amp;世界觀
+
+那雞團的這兩樣東西整個邦邦世界有人在意嗎？
+
+沒有吧，
+
+至少隊中五個人至少有三個半對音樂風格跟這勞什子世界觀無可無不可 （海鈴來打工，喵夢只要米， 睦頭純為兄弟兩肋插刀）
+
+那一定要堅持這音樂性跟世界觀，又說不出理由，
+
+當然是高高在上， 滿腦子……
+
+
+*****
+
+####  osore  
+##### 8999#       发表于 2025-1-17 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本有高中&gt;中专的鄙视链吗
+
+*****
+
+####  天空塔书记官  
+##### 9000#       发表于 2025-1-17 14:44
+
+大喵和瑞依是一个学校的前后辈，艺高当然是高中，这也是算是开了新地图了，剩下的就是楚平方的国际学校和狂犬的白雪了，应该还会有新的大学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

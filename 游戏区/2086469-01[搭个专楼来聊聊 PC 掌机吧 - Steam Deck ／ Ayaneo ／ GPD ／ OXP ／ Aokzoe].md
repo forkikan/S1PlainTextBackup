@@ -199,3 +199,13 @@ GPD Win 3、4 上推屏幕出键盘的设计，是我最希望能在未来完善
 
 同样，GPD WIN MINI的散热要不是那么垃，我早就无脑入了
 
+
+*****
+
+####  亦饮阑珊  
+##### 1353#       发表于 2025-1-17 14:41
+
+pdd claw7+8+上了  6199 6999
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
