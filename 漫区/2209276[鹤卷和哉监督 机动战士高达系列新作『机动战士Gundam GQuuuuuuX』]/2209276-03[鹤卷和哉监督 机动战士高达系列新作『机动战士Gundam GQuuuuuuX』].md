@@ -4250,3 +4250,152 @@ NOMELON NOLEMON「ミッドナイト・リフレクション」1月18日配信
 
 零星有几个写的，感觉是妮娅安→玛秋→修司→红高达？
 
+
+*****
+
+####  DARILBALDE  
+##### 3393#       发表于 2025-1-17 11:29
+
+那问题来了，最后鸭子生死未卜疑似被塞进小机器人/高达，那鸭妹就确定战死了吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+还有全程神隐的骡子，既然他神隐了那白色哈罗会跟骡子无关吗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bindata  
+##### 3394#       发表于 2025-1-17 11:29
+
+妮娅安玛秋扑一起了
+
+修司闻两个女主头发
+
+修司玛秋是打黑拳拍档，分别驾驶红高达和GQX
+
+*****
+
+####  岸波白野扎比子  
+##### 3395#       发表于 2025-1-17 11:30
+
+什么，妮娅安对麻球有剪头吗？那有的打了，万代计划通
+
+*****
+
+####  双菜  
+##### 3396#       发表于 2025-1-17 11:30
+
+这访谈+企划原名新高达，一种痞子因为新假褒姒而被夺权的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 3397#       发表于 2025-1-17 11:31
+
+X上有豚豚去看了说像令和神无月
+
+
+*****
+
+####  cayon  
+##### 3398#       发表于 2025-1-17 11:32
+
+搞这个UCif的背景把原本UC一堆人搞失踪了，填坑填的回来吗
+
+*****
+
+####  bindata  
+##### 3399#       发表于 2025-1-17 11:32
+
+哦 还有马球裸飘中，看到修司
+
+*****
+
+####  koodooliz  
+##### 3400#       发表于 2025-1-17 11:33
+
+说白了只是个先行版而已。
+
+
+*****
+
+####  虛無迴廊  
+##### 3401#       发表于 2025-1-17 11:34
+
+修司这么没距离感常识太渚薰味了，加上这诡异的红眼睛不如猜他是红高达成精<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 3402#       发表于 2025-1-17 11:34
+
+这个宇宙的布劳·布罗改名“基克罗格”了，又是老害在显摆自己懂UC吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 3403#       发表于 2025-1-17 11:35
+
+<img src="https://img.saraba1st.com/forum/202501/17/113514r03asfrilozf04q3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250117_112557.jpg</strong> (246.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:35 上传
+
+正史骡子也没法逆转吧
+
+*****
+
+####  刺客ares  
+##### 3404#       发表于 2025-1-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203278&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-17 11:34</a>
+
+修司这么没距离感常识太渚薰味了，加上这诡异的红眼睛不如猜他是红高达成精 ...</blockquote>
+确实，看到有几个这么说的
+
+天然无常识平静男，身上没有人味，令和渚薰
+
+*****
+
+####  岸波白野扎比子  
+##### 3405#       发表于 2025-1-17 11:37
+
+正史不一堆莫名其妙没送到的高达吗
+
+*****
+
+####  g救世主高达  
+##### 3406#       发表于 2025-1-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203296&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-17 11:35</a>
+
+正史骡子也没法逆转吧</blockquote>
+阿纳海姆（雷霆宙域漫画）也干了，这不会太田和庵野勾搭好的吧，咋平行uc都喜欢玩量产大扎姆这套<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+7107b6003af33a8775bced3b805c10385243b5f9.jpg
+(204.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/113759zzobs6bcpbg9bbbx.jpg" referrerpolicy="no-referrer">
+
+b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
+(160.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:38 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/113801i2sswzuhwwj6s2xs.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  uponutopia  
+##### 3407#       发表于 2025-1-17 11:38
+
+意思就是企划分两坨，剧场版前传部分是痞子的XING钢弹 后面正篇是贾户的青春版潮钢弹，鹤卷负责点头拍板
+

@@ -156,3 +156,16 @@ lnl 258V
 
 最后还是5700小黄鱼买了架成色很好的ALLY X，打算把SD OLED给出了
 
+
+*****
+
+####  zid99825  
+##### 1349#       发表于 2025-1-17 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202604&amp;ptid=2086469" target="_blank">医生狼多 发表于 2025-1-17 10:44</a>
+
+看到了，我还以为有不同区别
+
+7和8好像就电池不同</blockquote>
+屏幕不同啊
+

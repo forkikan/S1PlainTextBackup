@@ -16795,3 +16795,183 @@ ave mujica的预想还是挺好的，面具不摘也上武道馆了，小祥是�
 
 今天回想，发现前三集的观感有点像富野的Z高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，每个人的片段都不长，要从前后的联系来推断中间的过程。
 
+
+*****
+
+####  darkXcross  
+##### 8864#       发表于 2025-1-17 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202737&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-17 10:54</a>
+
+武士道找这位搞工商也是有点过于惊世智慧了
+
+说起来我记得之前就说好要工商但是一直推脱到一月才看，gigg ...</blockquote>
+WSD选GIGGUK应该是深思熟虑过的
+
+GIGGUK不是一直在视频里吐槽异世界和厕纸泛滥轻浮吗，不是摆出一副婆罗门的架势看不起少女乐队番吗。
+
+那我给你一个剧情深沉的少女乐队番你又如何应对？
+
+你不支持：那我剧情角色人物关系是打磨过的，你的理由不充分就会婆罗门神坛跌落。
+
+你支持：那好，打开了一条西方ACG圈子的口子。
+
+WSD毕竟是上市商业公司，是有点歹毒的商业手段在里面的。
+
+*****
+
+####  刑部姬真可爱  
+##### 8865#       发表于 2025-1-17 11:28
+
+说起来要是后面包寿司后，不知道睦是会让morits消失还是和mortis一起成为新睦？其实我倒是挺想看到睦和mortis共存的剧情，虽然这会有点精神分裂，但这在乐队少女番里不也是到达了某种高度？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 8866#       发表于 2025-1-17 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202726&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-17 10:53</a>
+前面睦断线，祥子认为是自己错了，没有关注睦，所以后来和大猫吵明显就是维护睦，但是睦不开口，大祥才急了 ...</blockquote>
+是，木箱就是纯纯的想捞对方但精力/能力有限
+
+*****
+
+####  utotqe  
+##### 8867#       发表于 2025-1-17 11:29
+
+说起来有谁正面夸过睦的吉他吗？说不定就是缺少交流，找点人来把孩子夸一顿就不觉得菜了
+像爱音这种以前肯定天天小姐妹变着法的互吹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bourier  
+##### 8868#       发表于 2025-1-17 11:30
+
+<blockquote>一心而用 发表于 2025-1-17 11:26
+睦，你要自信啊！</blockquote>
+早点认识爱音，什么事都没有了
+
+*****
+
+####  osore  
+##### 8869#       发表于 2025-1-17 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203091&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-17 11:21</a>
+
+說到音樂性：
+
+初子&amp;海子： 我們母雞卡是注重音樂性的樂隊</blockquote>
+立希是酸葡萄心理罢了
+
+*****
+
+####  屑屑代沟尼亚  
+##### 8870#       发表于 2025-1-17 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203012&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 11:15</a>
+
+刚发完就看到有人说立希眼里的黑刀之夜是什么情况 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希 祥：不都说了是大祥全责吗 怎么一个个都往自己身上揽锅给自己上强度啊？
+
+
+*****
+
+####  玖羽  
+##### 8871#       发表于 2025-1-17 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203160&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-17 11:26</a>
+
+睦，你要自信啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/17/113210ps740xy1sd5xe5zd.jpg" referrerpolicy="no-referrer">
+
+<strong>b.jpg</strong> (88.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:32 上传
+
+*****
+
+####  江口夕  
+##### 8872#       发表于 2025-1-17 11:32
+
+祥子认为睦会说不想演，结果什么都没说，祥子肯定是会有脾气的。
+你为别人好别人不领情，如果是正常情况下，心里不爽但不会表达出来。
+祥子这种紧绷的情况，忍不住说出来也很正常。符合人性
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 8873#       发表于 2025-1-17 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203187&amp;ptid=2208921" target="_blank">帕林马哲理 发表于 2025-1-17 11:28</a>
+
+今天回想，发现前三集的观感有点像富野的Z高达，每个人的片段都不长，要从前后的联系来推断中间的过程。 ...</blockquote>
+这是本片信息密度高的一个特征（或者说副作用），哪怕稍微不重要的剧情都直接砍
+
+马斯克说过：极简就是砍到你觉得后悔为止
+
+*****
+
+####  新HGCG  
+##### 8874#       发表于 2025-1-17 11:33
+
+猫奶！
+
+<img src="https://img.saraba1st.com/forum/202501/17/113345yp4ttvhtg1pa06a6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:33 上传
+
+*****
+
+####  天空塔书记官  
+##### 8875#       发表于 2025-1-17 11:34
+
+A团路线之争的核心是音乐对于乐团的意义，对于众人的意义，为什么是音乐，为什么必须是音乐，为什么选择音乐作为表达的载体，而不是绘画，不是雕塑，不是单纯的演剧，祥子给不出答案，所以她是必败的，但这也是乐团得以存在的根本，没有这一条，乐团也就没有了存在的意义，所以还不如看大家演戏就好了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 8876#       发表于 2025-1-17 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203219&amp;ptid=2208921" target="_blank">bourier 发表于 2025-1-17 11:30</a>
+
+早点认识爱音，什么事都没有了</blockquote>
+爱音和睦离结婚就差认识了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 8877#       发表于 2025-1-17 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203270&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-17 11:33</a>
+
+猫奶！</blockquote>
+逆输入啦，喵梦本来打算设定成孩子气的萝莉型，结果中之人选定后就变成这样了。
+<img src="https://p.sda1.dev/21/f615511ea3575a56d4eef8997e93b85f/4508e79bgy1hxlq80dx28j223n2sw4qp.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9db1b1f9a0c650c390dba2ed6c2436fc/4508e79bgy1hxlvmmfqfsj20u00mntax.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  魔灵高达  
+##### 8878#       发表于 2025-1-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202925&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 11:09</a>
+
+这里海铃说的话很有意思，现在海铃应该是队里除了两个当事人之外第三个知道黑刀之夜的人（第二话跟立希对账 ...</blockquote>
+海玲这句话甚至才是造成后面祥子冲着睦情绪爆发的最后一根稻草吧，从小祥的视角来看她这一系列决策的一大原因都是因为关心睦，这里却被直球说你不关心其他成员，甚至她自己也很难反驳，因为她讲喵梦缺乏练习确实是乱讲的，并且前一集确实因为缺少关心睦导致她在舞台上断线，更往前推甚至喵梦之所以会擅自摘面具，也是因为祥子作为leader和制作人不够关注她的想法。
+
+甚至因为小睦一直不说话不表态，祥子说不定还会因此继续产生自我怀疑
+
