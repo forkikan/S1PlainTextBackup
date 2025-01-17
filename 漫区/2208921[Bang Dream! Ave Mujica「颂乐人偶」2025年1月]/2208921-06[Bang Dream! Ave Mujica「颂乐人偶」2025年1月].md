@@ -15257,3 +15257,38 @@ mujica下一集</strong>
 初华太异质了
 这两集里无论是那句睦没有恶意还是mujica不会解散，都有一种ai触发关键词自动回复的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skill  
+##### 8731#       发表于 2025-1-17 07:51
+
+所以鸡团音乐到底啥水平啊？是岳云鹏的相声还是战鹰的围棋？这可是关系到该不该转剧团的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 8732#       发表于 2025-1-17 07:54
+
+看似同床异梦的合照大概率是后期的泪点
+
+<img src="https://img.saraba1st.com/forum/202501/17/075452qfe95erbjjop5ob2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1423.jpeg</strong> (250.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 07:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/075452iru4d0x0kax7zkkw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1424.jpeg</strong> (114.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 07:54 上传
+

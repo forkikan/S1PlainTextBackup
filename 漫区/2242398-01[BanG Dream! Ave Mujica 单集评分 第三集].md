@@ -1196,3 +1196,13 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 给负的请反思自己潜意识里是不是祥厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cao1rui2  
+##### 124#       发表于 2025-1-17 07:47
+
+精神病患者视角还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
