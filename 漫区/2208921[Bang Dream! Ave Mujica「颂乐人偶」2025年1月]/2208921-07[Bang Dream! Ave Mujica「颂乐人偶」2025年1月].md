@@ -3699,3 +3699,20 @@ ras还真没职业化，人楚平方就是因为坚持音乐性不肯职业化�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  NODY  
+##### 9215#       发表于 2025-1-17 23:26
+
+看你的职业是什么标准了，楚平方是真的不签约出道，纯自费发工资买宣传打比赛参加音乐节，剧情里面还因为不肯商业化被音乐节卡名额不准出场，甚至搞直播会被看ras不爽的音乐公司直接把直播掐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9216#       发表于 2025-1-17 23:29
+
+职业化和商业化并不是一个概念，大概某些地方有所混淆吧，但RAS应该是最像职业“战队”音乐人的了，给人的感觉就是真的可以以音乐为生的那种<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
