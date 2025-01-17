@@ -454,3 +454,25 @@ DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
 
 日本ファルコムの近藤季洋社長が語る、本作のネタバレ＆次回作インタビューも必見！
 
+
+*****
+
+####  卢迪克  
+##### 7440#       发表于 2025-1-17 14:14
+
+这次没有次回作注目啦，虾饺没料啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+日本ファルコムの近藤季洋社長インタビューを収録！　本書カバーのアニエスとヴァンのビジュアルはエナミカツミ氏による描き下ろしです！
+
+
+*****
+
+####  古畑任三郎2015  
+##### 7441#       发表于 2025-1-17 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202528&amp;ptid=2160194" target="_blank">88is88 发表于 2025-1-17 10:36</a>
+界轨什么水平，玩了二十年轨迹，黎轨2后感觉是真的玩不动了</blockquote>
+你都李鬼2了，想想沉没成本，还是咬咬牙继续上吧
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

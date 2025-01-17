@@ -1120,3 +1120,71 @@ C团去KTV时候小睦也笑了吧，小祥那时候就说“睦当然会笑了�
 
 睦的压力是察觉团里逐渐分崩离析，自己自卑认为自己说话只会把事情搞糟，不敢说话又怕母鸡卡散了祥子坏掉，同时对自己的感情表达有障碍感到苦恼，单纯讨论想演不想演是所有人都被大喵老师带沟里了
 
+
+*****
+
+####  江口夕  
+##### 8983#       发表于 2025-1-17 14:18
+
+ 本帖最后由 江口夕 于 2025-1-17 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204958&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-17 14:12</a>
+
+有个疑点就是C团时祥子为什么不搞这套世界观？</blockquote>
+因为灯皇太强了，别人比自己出色当然是让天才发挥。实际上灯皇也是自己带的队，没看错人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">本来大祥方向估计还是真白团那套。中途就变成灯皇量身定制了
+
+*****
+
+####  刑部姬真可爱  
+##### 8984#       发表于 2025-1-17 14:19
+
+漫画粗略看了一下好像也没补充什么细节之类的吧，不知道漫画意义是啥
+
+*****
+
+####  一心而用  
+##### 8985#       发表于 2025-1-17 14:20
+
+<img src="https://p.sda1.dev/21/23b16073634e77a2326923047292c0c3/QQ图片20250117141846.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  199april  
+##### 8986#       发表于 2025-1-17 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这集看来真的挺爆炸。每一分钟都有切片，没有大会员我都在b站看了一遍了
+
+*****
+
+####  天空塔书记官  
+##### 8987#       发表于 2025-1-17 14:25
+
+三集效应是这样的，可以说是成功致敬了一波魔法少女小圆，只可惜先行放送了，结果还是不够炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  黑猫桑  
+##### 8988#       发表于 2025-1-17 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204723&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-17 13:50</a>
+这个乐队本来就要演戏所以加点没问题？你问过祥子吗就加点没问题？祥子的底线是演奏过程中不能加入演戏， ...</blockquote>
+您能不能不要那脑补了，演奏过程中加演戏哪里来的，边演奏边演戏？如果你要说整个live中，她们本来就这样
+
+这个问题我不想跟你说了
+
+你从c位，站位最外侧，睦要演戏就会导致祥子在队里失去地位等等这种办公室政治分析我没兴趣听，这些你可以跟有兴趣的人讨论
+
+我跟你讨论的祥子是不是一心只想着自己这里没共识就不用讨论了
+
+*****
+
+####  scorbian  
+##### 8989#       发表于 2025-1-17 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204958&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-17 14:12</a>
+
+有个疑点就是C团时祥子为什么不搞这套世界观？</blockquote>
+我一直觉得后面组鸡团不找C团的人就是大祥嫌他们太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
