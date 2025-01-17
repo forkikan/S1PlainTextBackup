@@ -1455,3 +1455,30 @@ Highway 4已开始封路。助推器运输平台已在制造厂区待机，准�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 烧  ^_^  全烧完了
 
+
+*****
+
+####  commcody  
+##### 117#         楼主| 发表于 2025-1-17 10:03
+
+ 本帖最后由 commcody 于 2025-1-17 10:05 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/17/100540boawsb0kjbyjgo1r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9517.jpeg</strong> (212.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 10:05 上传
+
+老马指出火灾发生在发动机防火墙上部。正好是直播中后襟翼铰链开口处看到的火焰。
+
+IMG_9517.jpeg
+(136.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/100226gm9efe2e3sz3s4ze.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

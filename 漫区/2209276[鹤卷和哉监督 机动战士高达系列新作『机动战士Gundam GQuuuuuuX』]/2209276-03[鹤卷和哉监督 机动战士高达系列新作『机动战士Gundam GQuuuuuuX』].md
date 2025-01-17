@@ -3002,3 +3002,160 @@ CV都说了剧场版说TV的前置作业
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  楠城旧篱  
+##### 3275#       发表于 2025-1-17 09:58
+
+<blockquote>oi99o 发表于 2025-1-17 09:56
+我是真没想到老害还要拿两集来讲一年战争的
+
+论坛助手,iPhone</blockquote>
+应该有“第零集”吧
+
+*****
+
+####  Toby_dak  
+##### 3276#       发表于 2025-1-17 09:59
+
+看完，快给我第4集！
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  PascalLefèvre  
+##### 3277#       发表于 2025-1-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202036&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 09:59</a>
+看完，快给我第4集！
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+蹲个repo
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kenqqex  
+##### 3278#       发表于 2025-1-17 10:00
+
+如果0079开始if 后面的主角团都npc了
+
+是不是 阿姆罗还在家玩机械  卡缪还在翘课 朱德还在捡垃圾 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 3279#       发表于 2025-1-17 10:00
+
+女主打不过直接抢高达也太勇了
+
+*****
+
+####  hahah  
+##### 3280#       发表于 2025-1-17 10:01
+
+<blockquote>Toby_dak 发表于 2025-1-17 09:59
+看完，快给我第4集！
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+第五集吧
+
+
+*****
+
+####  Toby_dak  
+##### 3281#       发表于 2025-1-17 10:02
+
+貌似紫色老太婆说了句什么宇宙的玫瑰，推测塞克缪暴走的原因就是宇宙女鬼。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  型月神话伊阿宋  
+##### 3282#       发表于 2025-1-17 10:03
+
+麻球这抢高达，只能说味道很正
+
+*****
+
+####  刺客ares  
+##### 3283#       发表于 2025-1-17 10:03
+
+看剧透好像有NT裸飘聊天室环节
+
+以及米莱未婚夫眼镜哥登场，与夏利亚很熟络
+
+夏利亚一直在寻找夏亚
+
+联邦战败，从宇宙完全撤军，退守地球了
+
+*****
+
+####  Toby_dak  
+##### 3284#       发表于 2025-1-17 10:04
+
+<blockquote>引用第3174楼刺客ares于2025-01-17 09:59发表的  :
+
+基西莉亚新CV疑似名冢佳织</blockquote>
+紫色老太婆是名冢
+北宋之壶是杉田
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  王留美  
+##### 3285#       发表于 2025-1-17 10:05
+
+0079这段不会上TV的，最多给几帧闪回，那就是40分钟，差不多两集
+
+按照剧情走向安排的话剧场版结束的展开差不多也就是演到第二集
+
+*****
+
+####  hahah  
+##### 3286#       发表于 2025-1-17 10:06
+
+<blockquote>王留美 发表于 2025-1-17 10:05
+0079这段不会上TV的，最多给几帧闪回，那就是40分钟，差不多两集
+
+按照剧情走向安排的话剧场版结束的展开差 ...</blockquote>
+可能跟水魔一样出个第0集
+
+*****
+
+####  双菜  
+##### 3287#       发表于 2025-1-17 10:06
+
+难怪声优说看了剧场版才能理解TV剧情，感情前面有好长一段TV不放
+
+*****
+
+####  Gysumitka  
+##### 3288#       发表于 2025-1-17 10:07
+
+<img src="https://p.sda1.dev/21/74a0869949620c0bce26ea55fff8c0db/image.jpg" referrerpolicy="no-referrer">
+还有学校画面
+
+*****
+
+####  KuraSa苦  
+##### 3289#       发表于 2025-1-17 10:07
+
+修司居然坐两位妹子中间啊……
+
+IMG_2153.png
+(1.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 10:06 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/100620kzmrpac1jzjzmzfa.png" referrerpolicy="no-referrer">
+

@@ -1340,3 +1340,13 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 你说得对，但这是个大家都以为睦在演 ...</blockquote>
 这一话你分给初华的一半甜甜圈🍩全部被拿去献给祥子了。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 138#       发表于 2025-1-17 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201852&amp;ptid=2242398" target="_blank">月光润色 发表于 2025-1-17 09:46</a>
+本来以为大祥老师组母鸡卡是为了偿还巨额债务，结果就为了找个逃避的地方。木头人以为是原生家庭大问题， ...</blockquote>
+原生家庭问题也挺大吧
+
