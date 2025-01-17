@@ -372,3 +372,24 @@ STEAM版吗
 界轨什么水平，玩了二十年轨迹，黎轨2后感觉是真的玩不动了</blockquote>
 咚了，节奏特别拖沓，但是收尾又爆了一堆大的，比黎2强不少，但是咚了
 
+
+*****
+
+####  88is88  
+##### 7432#       发表于 2025-1-17 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202627&amp;ptid=2160194" target="_blank">ravend233 发表于 2025-1-17 10:46</a>
+
+咚了，节奏特别拖沓，但是收尾又爆了一堆大的，比黎2强不少，但是咚了</blockquote>
+懂了，等界2再一起玩
+
+*****
+
+####  ravend233  
+##### 7433#       发表于 2025-1-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202656&amp;ptid=2160194" target="_blank">88is88 发表于 2025-1-17 10:48</a>
+
+懂了，等界2再一起玩</blockquote>
+不急就等界2吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

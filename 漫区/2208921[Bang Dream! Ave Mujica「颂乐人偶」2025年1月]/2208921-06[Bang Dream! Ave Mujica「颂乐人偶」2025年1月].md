@@ -16434,3 +16434,69 @@ Gigguk将在北京时间1月19日10点直播看MyGO
 
 大象老师的“正论”其实一点都站不住脚，所谓的“要追求音乐性”无非就是说辞，掩盖她开始掌握不了mujica的事实
 
+
+*****
+
+####  帆前  
+##### 8834#       发表于 2025-1-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202191&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-17 10:11</a>
+
+掰开的甜甜圈🍩是个双关，既迫害了真奈（，整体又像一条锁链。</blockquote>
+mana女士──<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 8835#       发表于 2025-1-17 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">前面睦断线，祥子认为是自己错了，没有关注睦，所以后来和大猫吵明显就是维护睦，但是睦不开口，大祥才急了。
+我为你好，你不领情，什么意思。所以祥子说现在已经看不懂睦了。
+而睦不开口是怕乐队坏掉。
+这么简单的逻辑，你们却在为睦声讨大祥。两个人本意都是好的却造成坏的结果，仅此而已。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 8836#       发表于 2025-1-17 10:54
+
+ 本帖最后由 ads147147 于 2025-1-17 10:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202351&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 10:23</a>
+Gigguk将在北京时间1月19日10点直播看MyGO</blockquote>
+武士道找这位搞工商也是有点过于惊世智慧了
+
+说起来我记得之前就说好要工商但是一直推脱到一月才看，gigguk不怎么喜欢少女乐队本来就是摆在脸上的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 8837#       发表于 2025-1-17 10:55
+
+武士道一直都是惊世智慧啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  晓色暮云  
+##### 8838#       发表于 2025-1-17 10:56
+
+祥在乐队路线上的正论真的有错吗，难道我看的不是少女乐队动画而是少女歌剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 祥的问题就在于人际关系而不是什么乐队路线
+
+*****
+
+####  江口夕  
+##### 8839#       发表于 2025-1-17 10:57
+
+大祥不管是音乐性的正论也好，维护睦也好。这两者都是一致的，所以不会退让。
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一些人口口声声为睦着想，却想让睦去演出。你们比大猫还不如。起码人大猫不会**立牌坊
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

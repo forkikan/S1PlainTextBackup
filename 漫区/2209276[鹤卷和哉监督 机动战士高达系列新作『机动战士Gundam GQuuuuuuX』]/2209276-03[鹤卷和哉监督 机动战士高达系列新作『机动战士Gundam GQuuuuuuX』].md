@@ -3561,3 +3561,134 @@ edit，看错了，不是敖德萨是贾布罗
 
 这条世界线里吉翁方面管事的是德金还是基连？
 
+
+*****
+
+####  灵魂收割机  
+##### 3329#       发表于 2025-1-17 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202511&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-17 10:35</a>
+
+场刊扫图 https://musetransfer.com/m/s/7zjpoixwr ｜ 密码：9623  有效期至1月24日</blockquote>
+“已超过下载次数限制”
+
+*****
+
+####  Toby_dak  
+##### 3330#       发表于 2025-1-17 10:49
+
+0079
+开始就是0079经典扔殖民卫星片头，所以悉尼又没了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+马沙只有3机渣古潜入，钢坦克和钢加农直接一锅端。阿宝爸露了下脸。
+马沙抢了RX-78-2，用光剑捅了一架钢加农的驾驶舱。还捅了木马的舰桥，老舰长没了，有德没登场。
+押送木马撤离时候，遇上黑色的RX-78-1。马沙用光枪连续点掉巴祖卡的火箭弹。机器人的头终于能180度旋转，火神炮能扫背后了。干掉RX-78-1 后，马沙说了经典台词：这就是联邦的新型MS吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+跟着直接跳到所罗门战后，大猩猩战死，北宋之壶带着一堆大扎姆在打月神二号，紫色老太婆镇守月面都市，卡尔玛离开军队。自护尼克工业停了之前的开发计划，全力山寨高达系列。
+联邦认为打不赢，鱼死网破想把所罗门扔月面都市。马沙就带着木马、加了塞克缪和BIT的红高，还有夏利尔突击，打算爆破所罗门（参考0093）。
+马沙暗中使坏不想爆破成功，从而干掉紫色老太婆。这时候出现一台红白蓝钢加农（存疑，记得只看见单肩炮，倒是像FA-78）。战斗中感觉到驾驶员是妹，所以犹豫被落石困住。
+到了爆破时间，塞克缪被外来力量启动，类似阿克西斯之光。紫色老太婆说NT研究所的什么宇宙玫瑰标本不见，是不是因此引起的。感觉是宇宙女鬼？
+红高和马沙消失后，所罗门也远离了月面。联邦见翻盘无望，只好停战。一年战争部分完。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Sliurus  
+##### 3331#       发表于 2025-1-17 10:49
+
+鸭妹和凯爷我记得后期都挺强的，表现仅次于骡子，感觉都有ace水平。而且鸭妹也开过高达，不知道是不是在玩这个梗
+
+*****
+
+####  ナルバレック  
+##### 3332#       发表于 2025-1-17 10:51
+
+鸭子妹击杀大猩猩可还行
+
+*****
+
+####  咖啡配黑鸡  
+##### 3333#       发表于 2025-1-17 10:51
+
+<blockquote>Gysumitka 发表于 2025-1-17 10:35
+场刊扫图 https://musetransfer.com/m/s/7zjpoixwr ｜ 密码：9623  有效期至1月24日</blockquote>
+标准扫图来源：贴吧 玉米田809（色佬） 分享
+
+*****
+
+####  Gysumitka  
+##### 3334#       发表于 2025-1-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202660&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-17 10:48</a>
+“已超过下载次数限制”</blockquote>
+换网盘了
+
+
+*****
+
+####  岸波白野扎比子  
+##### 3335#       发表于 2025-1-17 10:52
+
+都怪那个小兵耽误了一年战争·夏亚大男主传
+
+*****
+
+####  盖尔杰特克  
+##### 3336#       发表于 2025-1-17 10:53
+
+这么说来这个平行uc没勇士和吉翁号了？也没见剧透和设定图有提到这两
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3337#       发表于 2025-1-17 10:54
+
+ 本帖最后由 Aaa炒面面包批发 于 2025-1-17 10:56 编辑 
+
+人不在霓虹 看到有原价出场刊的先买了 胶之后再说
+<img src="https://p.sda1.dev/21/e6c33d0952bd1bd0f076d03bc883cf3e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3338#       发表于 2025-1-17 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202696&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-17 10:51</a>
+标准扫图来源：贴吧 玉米田809（色佬） 分享</blockquote>
+来源标注了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Sokukei  
+##### 3339#       发表于 2025-1-17 10:55
+
+<img src="https://p.sda1.dev/21/81236cabc13050513547e23bc6a20567/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  闽明  
+##### 3340#       发表于 2025-1-17 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202728&amp;ptid=2209276" target="_blank">盖尔杰特克 发表于 2025-1-17 10:53</a>
+
+这么说来这个平行uc没勇士和吉翁号了？也没见剧透和设定图有提到这两</blockquote>
+勇士的话，3243L的简易年表有提，吉恩尼克社全力生产高达量产型去了，MS14就被束之高阁了
+
+*****
+
+####  Toby_dak  
+##### 3341#       发表于 2025-1-17 10:56
+
+<blockquote>引用第3335楼盖尔杰特克于2025-01-17 11:53发表的  :
+
+这么说来这个平行uc没勇士和吉翁号了？也没见剧透和设定图有提到这两</blockquote>
+都没有了。至少到MS-09。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  卑弥呼yamato  
+##### 3342#       发表于 2025-1-17 10:58
+
+感觉人物关系人物性格决策全都变了，还叫这个名字但是和原来完全不是一个人，全部重置，你是新人其实更好理解（
+
