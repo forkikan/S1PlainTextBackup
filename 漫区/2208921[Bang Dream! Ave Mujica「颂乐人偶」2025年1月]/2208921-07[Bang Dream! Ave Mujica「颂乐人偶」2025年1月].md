@@ -3430,3 +3430,15 @@ b站的     
 肯定省钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 小祥这种人以后还得偷偷塞钱给老爹（
 
+
+*****
+
+####  ads147147  
+##### 9190#       发表于 2025-1-17 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209240&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-17 21:41</a>
+那么努力结果却说母鸡卡不搞乐队也没问题</blockquote>
+就看后面怎么圆这个追求多栖艺人背后的动机了，很明显大喵目前是往很努力但是条件和天赋制约了她的上限的角色，就这样还能跟上母鸡卡这个强度已经很夸张了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
