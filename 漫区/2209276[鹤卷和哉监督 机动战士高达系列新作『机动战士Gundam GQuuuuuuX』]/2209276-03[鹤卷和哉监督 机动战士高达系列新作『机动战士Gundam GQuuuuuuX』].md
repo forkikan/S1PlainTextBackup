@@ -7433,3 +7433,84 @@ Xekunova、红高达的那个疑似夏亚之声这些线索在校园百合打黑
 
 转推，牢修已经被一抢而空
 
+
+*****
+
+####  Toby_dak  
+##### 3707#       发表于 2025-1-17 16:36
+
+<blockquote>Steel.Haze 发表于 2025-1-17 17:17
+不用太担心黑拳，因为高达俘获原因干涉，所以其实是吉翁的科技树**压缩了。没有大魔、勇士、强人、估计只 ...</blockquote>
+马沙和夏利尔突击所罗门时候，木马搭载的MS部队有MS-09R。
+
+*****
+
+####  Sliurus  
+##### 3708#       发表于 2025-1-17 16:36
+
+ 本帖最后由 Sliurus 于 2025-1-17 16:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206404&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-17 16:20</a>
+
+决定了 就按这张图来
+
+然后结局VS某个紫色神秘面具男（）</blockquote>
+可惜有一个发色对不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+银河美少年最后的关系挺不清不楚的，剧场版三（四）个巫女也插进来了，可能这就是青春吧
+
+*****
+
+####  卑弥呼yamato  
+##### 3709#       发表于 2025-1-17 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206551&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 16:35</a>
+
+转推，牢修已经被一抢而空</blockquote>
+大家都喜欢神秘电波无语男
+
+*****
+
+####  Toby_dak  
+##### 3710#       发表于 2025-1-17 16:39
+
+<blockquote>oi99o 发表于 2025-1-17 16:49
+没有给鸭妹正脸是吧，只有鸭子叫名字？
+
+论坛助手,iPhone</blockquote>
+当时联邦驾驶员的头盔作画反光处理，看不到脸也没说话。只有马沙的感应。
+
+
+*****
+
+####  ナルバレック  
+##### 3711#       发表于 2025-1-17 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206277&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 16:09</a>
+
+看到人说0085篇信息密度相比0079篇有一些注水感？
+
+后面如果还接着搞校园剧情不提格局的话，季番篇幅要翻车 ...</blockquote>
+之前几个舅舅的说法都是季番吧，如果校园篇幅大，实话讲确实可能又出现剧情收不好的情况，毕竟校园+战争题材，确实翻车的数量远多于拍好的，但是现在纯UC战争也确实很难吸引到新生代。
+
+*****
+
+####  Steel.Haze  
+##### 3712#       发表于 2025-1-17 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206563&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 16:36</a>
+
+马沙和夏利尔突击所罗门时候，木马搭载的MS部队有MS-09R。</blockquote>
+那我对这版大魔的造形还是很有兴趣的
+
+*****
+
+####  xwr  
+##### 3713#       发表于 2025-1-17 16:43
+
+ 本帖最后由 xwr 于 2025-1-17 16:45 编辑 
+
+看到一个仔细讲先行剧情细节的，还对着先行上映小册子讲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*剧透警告！剧透警告！最速！（指自己）评测！！高达剧场版GQuuuuuux剧情粗讲！神鬼二象性，痞子写给大光头的情书？
+[https://www.bilibili.com/video/BV1kiwnedEk7](https://www.bilibili.com/video/BV1kiwnedEk7)
+

@@ -2562,3 +2562,54 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 
 母鸡卡观众会更喜欢Mortis么
 
+
+*****
+
+####  江口夕  
+##### 9115#       发表于 2025-1-17 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我猜讨厌大祥的会喜欢mortis
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 9116#       发表于 2025-1-17 16:37
+
+其实，要塑造关系性未必一定要大篇幅，能抓住重点就行了，而且A团的信息流速要比迷子快很多，这就是不可预测的命运之舞台啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 9117#       发表于 2025-1-17 16:38
+
+初华的形象现在比mygo初期的立希还抽象
+
+*****
+
+####  御幸一也  
+##### 9118#       发表于 2025-1-17 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">完全在藏是這樣的，都開播還在藏
+
+
+*****
+
+####  刑部姬真可爱  
+##### 9119#       发表于 2025-1-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206526&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-17 16:33</a></blockquote>
+同窗不过同学，各有各邀约<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 9120#       发表于 2025-1-17 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206605&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-17 16:40</a>
+同窗不过同学，各有各邀约</blockquote>
+一颗心脏两面受伤再热也要变凉。
+
