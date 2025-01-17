@@ -5560,3 +5560,152 @@ tomoyo说本作看点是“欲望、混沌和留白”<img src="https://static.s
 </blockquote>
 米莱未婚夫应该没有结婚，刚扫了下场刊好像说的婚约破裂
 
+
+*****
+
+####  PascalLefèvre  
+##### 3525#       发表于 2025-1-17 13:47
+
+确实，种自四分之一对于目标5e的先行放送老人臭机器人片已经很多了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猪突猛进R  
+##### 3526#       发表于 2025-1-17 13:48
+
+票房好不好要看之后有没有遗老去捧场，指望靠0079拉新人，难。
+
+*****
+
+####  刺客ares  
+##### 3527#       发表于 2025-1-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204671&amp;ptid=2209276" target="_blank">bindata 发表于 2025-1-17 13:45</a>
+
+米莱未婚夫应该没有结婚，刚扫了下场刊好像说的婚约破裂</blockquote>
+哈萨维别放弃，你还有诞生于世的机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sokukei  
+##### 3528#       发表于 2025-1-17 13:48
+
+ 本帖最后由 Sokukei 于 2025-1-17 13:49 编辑 
+
+作者见图 喜欢请多多点赞转贴
+<img src="https://p.sda1.dev/21/df1191db65b7fd1911f8de099baeae37/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 3529#       发表于 2025-1-17 13:49
+
+“我以为是来看敢达的剧场版的，结果看了敢达的剧场版”
+翻了一圈X上留下印象最深的感想
+
+*****
+
+####  Sliurus  
+##### 3530#       发表于 2025-1-17 13:49
+
+米莱好像不怎么喜欢这个未婚夫吧，有德没机会的话，可能是史列加活下来了？
+
+*****
+
+####  王留美  
+##### 3531#       发表于 2025-1-17 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204698&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-17 13:48</a>
+ 票房好不好要看之后有没有遗老去捧场，指望靠0079拉新人，难。</blockquote>
+遗老我看准了，保底有闪哈的20亿
+
+*****
+
+####  UNINSTALL42  
+##### 3532#       发表于 2025-1-17 13:50
+
+<blockquote>刺客ares 发表于 2025-1-17 13:42
+寄了，这三个人里最来历不明的还是牢修</blockquote>
+因为有个妈吧，不过其实也可能是养母什么的（
+
+*****
+
+####  kykawaiii  
+##### 3533#       发表于 2025-1-17 13:51
+
+史列加活下来了，哈萨维还是没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  创始’’’天翔  
+##### 3534#       发表于 2025-1-17 13:52
+
+布莱德直呼有牛
+
+*****
+
+####  wyhman  
+##### 3535#       发表于 2025-1-17 13:53
+
+<blockquote>刺客ares 发表于 2025-1-17 13:48
+哈萨维别放弃，你还有诞生于世的机会</blockquote>
+你在说啥？？哈萨维我没记错的话上木马的时候已经是小孩子了，有德后来收养的啊，诞生于世什么鬼
+
+*****
+
+####  刺客ares  
+##### 3536#       发表于 2025-1-17 13:53
+
+南瓜头正史被哈萨维击败，结果穿越到异世界打断哈萨维父母见面
+
+从根源上消灭哈萨维是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 3537#       发表于 2025-1-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204743&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 13:53</a>
+ 你在说啥？？哈萨维我没记错的话上木马的时候已经是小孩子了，有德后来收养的啊，诞生于世什么鬼 ...</blockquote>
+记错了
+木马那三个是小林隼人和芙劳的
+
+*****
+
+####  猪突猛进R  
+##### 3538#       发表于 2025-1-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204743&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 13:53</a>
+
+你在说啥？？哈萨维我没记错的话上木马的时候已经是小孩子了，有德后来收养的啊，诞生于世什么鬼 ...</blockquote>
+木马号上小林隼人收养的是三个小鬼，其中加兹还在Z时代挂了。
+
+哈撒韦是有德亲生的。
+
+*****
+
+####  Sliurus  
+##### 3539#       发表于 2025-1-17 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204743&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 13:53</a>
+
+你在说啥？？哈萨维我没记错的话上木马的时候已经是小孩子了，有德后来收养的啊，诞生于世什么鬼 ...</blockquote>
+哈撒韦是有德和米莱的孩子，木马上三个是被小林和苦劳波收养
+
+*****
+
+####  刺客ares  
+##### 3540#       发表于 2025-1-17 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204743&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 13:53</a>
+
+你在说啥？？哈萨维我没记错的话上木马的时候已经是小孩子了，有德后来收养的啊，诞生于世什么鬼 ...</blockquote>
+哈萨维是有德和米莱战后生的，81年生人
+
+GQX世界线应该是不存在这人了
+

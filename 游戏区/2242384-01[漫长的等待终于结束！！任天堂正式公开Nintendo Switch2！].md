@@ -1793,3 +1793,21 @@ ps5则是发布正好碰上疫情，产能不足，实际现在销量也不差�
 ns2命名还导致觉得是半代升级？</blockquote>
 这样想的用户在评论区里还不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。我看就差改名Nintendo Switch 2 Much Powerful than PO4了
 
+
+*****
+
+####  HazukiShion  
+##### 201#       发表于 2025-1-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204570&amp;ptid=2242384" target="_blank">泰坦失足 发表于 2025-1-17 13:36</a>
+这样想的用户在评论区里还不少。我看就差改名Nintendo Switch 2 Much Powerful than PO4了 ...</blockquote>
+至少比 WiiU 强，比起命名还不如说外观像升级版。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  漆黑_残月  
+##### 202#       发表于 2025-1-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204570&amp;ptid=2242384" target="_blank"> 泰坦失足 发表于 2025-1-17 13:36</a> mggr 发表于 2025-1-17 13:24 ns2命名还导致觉得是半代升级？ 这样想的用户在评论区里还不少。我看就差改名Nintendo Switch 2 Much Powerful than PO4了 </blockquote>
+2不是2代是什么？是幻觉吗难道来自: iPhone客户端
+
