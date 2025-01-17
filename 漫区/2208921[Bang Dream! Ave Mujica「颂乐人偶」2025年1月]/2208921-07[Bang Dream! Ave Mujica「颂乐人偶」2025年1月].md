@@ -2995,3 +2995,48 @@ ED歌詞很重要哦<img src="https://static.saraba1st.com/image/smiley/face2017
 
 リスアニ的新聲優訪談，有一些有趣的地方可以看看
 
+
+*****
+
+####  看穿一切的鱼  
+##### 9149#       发表于 2025-1-17 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205293&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-17 14:42</a>
+日本有高中&gt;中专的鄙视链吗</blockquote>
+我觉得有，隔壁gbc手岛的官方二创里都有学历攻击的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杂灰  
+##### 9150#       发表于 2025-1-17 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207677&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-17 18:44</a>
+不知道有没有人提到过
+
+这里喵梦说的是“莫子”不是“睦子”</blockquote>
+就是睦子，字幕标的就是ム
+
+
+*****
+
+####  lolisk  
+##### 9151#       发表于 2025-1-17 18:52
+
+mo现在这状态距离op里的癫狂睦感觉至少还差一次变身，演技上加强了但是关键的吉他水平不变那还是治标不治本
+
+但就目前剧情方面鸡是奔着流量乐团这一路线一去不复返，那要追本溯源追求音乐性我仔细琢磨了下，感觉Mygo里乐奈可能被拉来和mo女士pvp然后刺激二次觉醒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 9152#       发表于 2025-1-17 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207727&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-17 18:50</a>
+
+就是睦子，字幕标的就是ム</blockquote>
+我听是モー
+
+NICONICO弹幕也有听成“猛虎的”
+

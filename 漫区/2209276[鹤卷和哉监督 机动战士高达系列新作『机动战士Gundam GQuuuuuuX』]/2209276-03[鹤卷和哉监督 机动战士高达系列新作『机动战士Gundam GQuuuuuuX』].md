@@ -8099,3 +8099,53 @@ side6欲望摆脱吉翁
 ----发送自 Sony XQ-CT44,Android 14</blockquote>
 看错了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 当我没说
 
+
+*****
+
+####  PascalLefèvre  
+##### 3772#       发表于 2025-1-17 18:51
+
+肚脐是好文明
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3773#       发表于 2025-1-17 18:51
+
+目前对三个人的印象都和预测没什么差别
+麻球是红松鼠 虽然很小只但是很灵活（上机抢高达那叫一个快）
+喵安是野猫（走私犯的余裕）
+修司是流浪狗（住下水道）
+以及这个是什么……
+<img src="https://p.sda1.dev/21/1ff71aeb22b1ab8e0822b6fe5e911789/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Gysumitka  
+##### 3774#       发表于 2025-1-17 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207735&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-17 18:51</a>
+目前对三个人的印象都和预测没什么差别
+麻球是红松鼠 虽然很小只但是很灵活（上机抢高达那叫一个快）
+喵安 ...</blockquote>
+【【熟肉】日本动画人展览会 第19话I can friend ……【HCN字幕组】-哔哩哔哩】 https://b23.tv/Q3Ch0K9
+小短片
+
+*****
+
+####  wpcc  
+##### 3775#       发表于 2025-1-17 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207735&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-17 18:51</a>
+
+目前对三个人的印象都和预测没什么差别
+
+麻球是红松鼠 虽然很小只但是很灵活（上机抢高达那叫一个快）
+
+喵安 ...</blockquote>
+高达驾驶员 确信
+
