@@ -186,3 +186,16 @@ lnl 258V
 昨天看到一个价格还可以的 GPD Win 4 7840U，讨价成功之后还是入了，之前用 3 感觉小屏体验不佳，但就是有 ...</blockquote>
 手柄手感稀烂，玩玩gal和回合制还行
 
+
+*****
+
+####  cc-2  
+##### 1352#       发表于 2025-1-17 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204160&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-17 12:53</a>
+
+昨天看到一个价格还可以的 GPD Win 4 7840U，讨价成功之后还是入了，之前用 3 感觉小屏体验不佳，但就是有 ...</blockquote>
+GPD Win 3、4 上推屏幕出键盘的设计，是我最希望能在未来完善的WIN掌机设计思路
+
+同样，GPD WIN MINI的散热要不是那么垃，我早就无脑入了
+

@@ -768,3 +768,93 @@ pico里，楚平方没加入前老5团开联合live各个团的负责人集合�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  山ノ内花音  
+##### 8951#       发表于 2025-1-17 13:16
+
+已经无路可逃了
+除非直接失忆送医院
+要不然还是那句陀螺抽得越狠 转得越快越稳定
+
+*****
+
+####  有钱多买小人  
+##### 8952#       发表于 2025-1-17 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204323&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-17 13:10</a></blockquote>
+看漫画才发现灯给祥子递纸条是通过鞋箱。太典了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫桑  
+##### 8953#       发表于 2025-1-17 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202386&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-17 10:26</a>
+祥子不同意睦演戏和不同意母鸡卡摘面具是一样的啊，破坏了她理想的音乐性追求，观众看的是表演不是音乐了 ...</blockquote>
+为什么还能拿音乐性来说问题的，她们这个乐队本来就要演戏，加一点戏份而已，拿音乐性来说是给喵梦一个理由，这点漏油有不少相关讨论
+
+当真的在为对方好的时候，这不叫只为了自己，睦的意见有问但是她不说，扯了这么多让睦不演戏是不是为她好，而睦黑化去演戏是为了祥子好，她们两人互相关心的行为造成的结果刚好反了，这能叫脑子里只想着自己？
+
+又要拿站位说事，祥子在最外侧本来就正常，你的办公室政治差不多得了
+
+我的想法不用你揣测，是人都知道这事件远没有结束
+
+*****
+
+####  mono  
+##### 8954#       发表于 2025-1-17 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202419&amp;ptid=2208921" target="_blank">Prairial 发表于 2025-1-17 10:28</a>
+
+这集看得太乐了，正所谓大祥老师只要考虑商演、词曲和剧本就行了，其他成员要考虑的事情就多了。貌似大祥老 ...</blockquote>
+邦世界姐妹头发同色不同色的都有 ，主要角色里ako和她姐头发就不同色，不算强证据
+
+*****
+
+####  kuroro  
+##### 8955#       发表于 2025-1-17 13:21
+
+我还是很在意之前祥子说睦原来能说能笑，那么莫提斯才是真正的睦，现在的无口睦反而是后来的？
+
+*****
+
+####  天空塔书记官  
+##### 8956#       发表于 2025-1-17 13:21
+
+初华需要的是把音乐作为与祥子链接的契约，进而过渡到与乐团的羁绊，因为只有她是只在乎祥子的，而且据目前的情报来推断，初华的崩坏才是第二季真正的高潮，木头和大喵只是前期boss而已，海玲和初华才是真正的重量级
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  Libartas  
+##### 8957#       发表于 2025-1-17 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204422&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 13:21</a>
+初华需要的是把音乐作为与祥子链接的契约，进而过渡到与乐团的羁绊，因为只有她是只在乎祥子的，而且据目前 ...</blockquote>
+真在乎吗，大概率跟祥子嘴里的在乎睦头没啥区别
+
+*****
+
+####  天空塔书记官  
+##### 8958#       发表于 2025-1-17 13:25
+
+其实我有一个假药的猜想，无口睦就是木头本来的样子，黑睦是曾经为了祥子而表演出来的，这涉及到姐妹俩的过去故事，在没有进入个人回之前，没法解密<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 8959#       发表于 2025-1-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204391&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-1-17 13:18</a>
+
+看漫画才发现灯给祥子递纸条是通过鞋箱。太典了</blockquote>
+动画有，只是比较隐晦。我也是看万字解析才知道的。
+

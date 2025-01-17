@@ -5288,3 +5288,77 @@ gqux拿个潮流pv骗年轻人去看了40分钟0079
 
 喵安是越南裔，可能东南亚元素从这里来
 
+
+*****
+
+####  金翅碌柒鸟  
+##### 3499#       发表于 2025-1-17 13:16
+
+<blockquote>Sliurus 发表于 2025-1-17 13:06
+可以等等，藏这么大还在周五放映估计是在等舆论发酵周末冲一下</blockquote>
+舆论发酵那就是80分钟有40分钟是老东西0079…新人更不愿意看了
+
+*****
+
+####  金翅碌柒鸟  
+##### 3500#       发表于 2025-1-17 13:18
+
+<blockquote>Gysumitka 发表于 2025-1-17 12:34
+这周总计能有10吗</blockquote>
+首周10亿是种子水平…期待一下最终10亿吧
+
+*****
+
+####  bindata  
+##### 3501#       发表于 2025-1-17 13:18
+
+主要我是不明白为啥明确有TV动画的剧场先行版能开那么多馆，还不是恶魔的破坏那种剧场先放完才给你TV放送，人家没那么感兴趣的话都可以等到TV再看吧。
+
+*****
+
+####  Gysumitka  
+##### 3502#       发表于 2025-1-17 13:19
+
+<img src="https://p.sda1.dev/21/8bea296e99685f6eac1cbf04f345539d/image.jpg" referrerpolicy="no-referrer">
+驾驶舱挺有意思
+
+*****
+
+####  番茄牛奶  
+##### 3503#       发表于 2025-1-17 13:19
+
+做了40分钟if不想浪费了？缝缝补补做个剧场版？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3504#       发表于 2025-1-17 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204390&amp;ptid=2209276" target="_blank">金翅碌柒鸟 发表于 2025-1-17 13:18</a>
+首周10亿是种子水平…期待一下最终10亿吧</blockquote>
+唉，和种比是真弄不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双菜  
+##### 3505#       发表于 2025-1-17 13:23
+
+400馆10亿真的要成计量单位了，还是khara+高达，尤其是前面种自已经证明了院线不是大机器人不看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 3506#       发表于 2025-1-17 13:23
+
+大河内也看完了，日常推荐去看
+
+*****
+
+####  没取名啊  
+##### 3507#       发表于 2025-1-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204395&amp;ptid=2209276" target="_blank">bindata 发表于 2025-1-17 13:18</a>
+主要我是不明白为啥明确有TV动画的剧场先行版能开那么多馆，还不是恶魔的破坏那种剧场先放完才给你TV放送， ...</blockquote>
+dddd没有TV放送，日本人在电视上看不到这个片
+
