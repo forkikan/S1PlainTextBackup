@@ -1482,3 +1482,45 @@ IMG_9517.jpeg
 
 <img src="https://img.saraba1st.com/forum/202501/17/100226gm9efe2e3sz3s4ze.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 118#       发表于 2025-1-17 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是给懂王上任放个大烟花吗
+
+
+*****
+
+####  zycilcy  
+##### 119#       发表于 2025-1-17 10:11
+
+烟花出乎意料的好看
+
+*****
+
+####  轩辕海洛  
+##### 120#       发表于 2025-1-17 10:12
+
+最羡慕的就是马斯克作为民企可以随便炸火箭，而且炸了还有一大堆人给洗地，成功的话更不用说全网狂欢遥遥领先了
+
+猎鹰9号回收、星舰炸了无数次才成功，这种放国内是完全不敢想象的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  x.cat  
+##### 121#       发表于 2025-1-17 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是中国准备过农历新年了嘛，马老板放个大烟花提前给您拜～年～啦～
+
+*****
+
+####  圣雷科诺  
+##### 122#       发表于 2025-1-17 10:13
+
+FAA已确认有碎片飞到安全区之外，老马这次真有点飘了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
