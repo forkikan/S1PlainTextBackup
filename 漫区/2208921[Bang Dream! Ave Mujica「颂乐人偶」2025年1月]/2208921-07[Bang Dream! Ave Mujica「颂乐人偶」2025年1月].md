@@ -4461,3 +4461,38 @@ BLG无畏契约分部
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  rushsong  
+##### 9277#       发表于 2025-1-18 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208300&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-17 20:09</a>
+这个想法好，这么编剧情还有个好处，就是可以拉平mujica和邦邦其他团的战力水平。 ...</blockquote>
+双R粉可不会觉得mujica战力比她们高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  akiomn  
+##### 9278#       发表于 2025-1-18 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210864&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-18 02:29</a>
+也许真正的大结局会是动画结束后的mygo和mujica的对邦
+
+然后再把剧情做成动画剧场版再卖一次 ...</blockquote>
+没必要，mujica也许是独角兽当系构的最后一部了，wsd想再出剧场版顶多像mygo猫猫剧场版那样，加点新画面新内容，主要剧情不会变
+而且把真正的mujica大结局放剧场版，得被骂死了，这样动画剧情都不完整了
+
+*****
+
+####  huxiaopao163  
+##### 9279#       发表于 2025-1-18 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210899&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 02:53</a>
+
+没必要，mujica也许是独角兽当系构的最后一部了，wsd想再出剧场版顶多像mygo猫猫剧场版那样，加点新画面 ...</blockquote>
+mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回事了。而且这不是很早之前就确定的东西了吗，也许剧本也早就写好了。
+
