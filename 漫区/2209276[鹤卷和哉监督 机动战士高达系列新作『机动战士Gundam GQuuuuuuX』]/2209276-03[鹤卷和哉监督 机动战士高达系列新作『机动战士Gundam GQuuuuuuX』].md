@@ -7538,3 +7538,53 @@ ZIMMAD没参与高达山寨的话，那大魔系能保留下来也不奇怪。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  UnrealApartheid  
+##### 3716#       发表于 2025-1-17 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199549&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 00:04</a>
+其实是群里搞的宾果活动，正式版没有重复的。这张就当是S1专属，BINGO了就找几个眼熟的人加鹅好了
+
+ ...</blockquote>
+这个群的群号能分享一下吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 3717#       发表于 2025-1-17 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205711&amp;ptid=2209276" target="_blank">JustW 发表于 2025-1-17 15:23</a>
+
+麻球的背景还要展开解释一下吧，否则目前来看行动力有点太强了，只是想自由地体验真实的天空和大海，就和 ...</blockquote>
+新人类的事情不要那么清楚
+
+*****
+
+####  RE㐅ia  
+##### 3718#       发表于 2025-1-17 17:05
+
+<blockquote>UnrealApartheid 发表于 2025-1-17 17:01
+这个群的群号能分享一下吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+769240605
+
+<img src="https://img.saraba1st.com/forum/202501/17/170520hurfwpx22z8p24of.png" referrerpolicy="no-referrer">
+
+<strong>84384A97-4CD8-4639-B4A5-21856097B2DA.png</strong> (500.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 17:05 上传
+
+*****
+
+####  YU_JI  
+##### 3719#       发表于 2025-1-17 17:06
+
+鸭子说出来“我看到了时间”这种话，会不会这作的高堡奇人位其实是鸭子，鸭子看到平行世界了，然后成了魂环机器人脑控牢修导致牢修也神经兮兮的
+
