@@ -3545,3 +3545,22 @@ b站的     
 对于祥子来说，睦，初华都是自己出人头地可以利用的而已，虽然可以理解她的处境，但是的确是自私。和为了赚 ...</blockquote>
 反正我是不觉得🦄会写一个只为出人头地利用别人的祥子。虽然明白漏油现在挺不爽，不过这番其实很多东西都是定好的。建议不要过于过多解读，免得以后回旋镖。
 
+
+*****
+
+####  梅杜莎  
+##### 9200#       发表于 2025-1-17 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209493&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-17 22:14</a>
+
+我觉得不难理解吧，喵梦是YouTuber，YouTuber首先得有人气和热度活下去才能谈其他的，而母鸡卡又是个商业 ...</blockquote>
+没吧，她这不是更想拆队让睦单独带飞自己恰流量嘛，无非是暂时做不到而已，可能还想着继续试试<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/17/223421tgn666dyfggjfnun.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-17_22-31-16.jpg</strong> (150.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:34 上传
+

@@ -9025,3 +9025,93 @@ side 6不是全是中文
 小西接班蛮好的，不知道为什么会像现在这么处理</blockquote>
 可能是强调这是平行宇宙的“异物感”，cv这不是全换了个遍吗？
 
+
+*****
+
+####  uponutopia  
+##### 3858#       发表于 2025-1-17 22:34
+
+痞子整出新假这种烂活，小日子还能继续框框给他砸资源，这片上映前一个月才公布有这么个东西，前期宣发啥都捂着不说给我的感觉就是吆喝一声我们做了这么个东西你们来看吧。我觉得没必要替小日子担心票房的问题，或许大人们真的不在乎，就算票房真的暴死无非是网上和人PVP时被压一头罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  番茄牛奶  
+##### 3859#       发表于 2025-1-17 22:35
+
+剑指周末逆跌是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱喵喵  
+##### 3860#       发表于 2025-1-17 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了点盗摄片段，很难不笑出声
+
+*****
+
+####  RE㐅ia  
+##### 3861#       发表于 2025-1-17 22:37
+
+根据群友repo麻球第一次见修斯有少女漫滤镜和音效，心里还嘀咕着觉得他很帅。之后看见修安交流还挡在喵安前头说什么是我先找他说话的（
+
+*****
+
+####  蕾洁之风  
+##### 3862#       发表于 2025-1-17 22:38
+
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/38f1bc98fa253aa8878fd5efab4a00e3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3863#       发表于 2025-1-17 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209559&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-17 22:23</a>
+
+阿斯兰，我不要面子的？</blockquote>
+我也觉得不如直接上石田彰得了，气质这么像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面如果有致敬名台词希望能用石头的语气来读
+
+*****
+
+####  咖啡配黑鸡  
+##### 3864#       发表于 2025-1-17 22:39
+
+红高达精神力暴走的前因后果
+
+<img src="https://img.saraba1st.com/forum/202501/17/223905zqvhuwhqchklh1zz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-17-22-32-19-95_c96c96ff334dcd5fab6dc23a80723511.jpg</strong> (103.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/223912mnsj46qn6sf4ifcv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-17-22-35-17-08_c96c96ff334dcd5fab6dc23a80723511.jpg</strong> (74.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 22:39 上传
+
+
+*****
+
+####  创始’’’天翔  
+##### 3865#       发表于 2025-1-17 22:41
+
+在这些公司因为eva赚的数钱手抽筋时，殊不知命运早在暗中标注好了价格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yxydd88  
+##### 3866#       发表于 2025-1-17 22:41
+
+进场前看了下场贩的立牌，只剩下女主角的，男人的都卖完了
+
+—— 来自 Xiaomi 24040RA98R, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
