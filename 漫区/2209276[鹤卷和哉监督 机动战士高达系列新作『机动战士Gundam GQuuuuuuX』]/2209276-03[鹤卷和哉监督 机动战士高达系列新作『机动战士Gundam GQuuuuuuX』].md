@@ -10400,3 +10400,16 @@ pv里的那首bgm完整版能搜到吗
 
 但正如部分人自嘲的那样，胶佬模型厨就算没有动画也会买胶，那自然动画会更倾向于吸引本不会买胶的受众群体了
 
+
+*****
+
+####  6x6z6w  
+##### 3990#       发表于 2025-1-18 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210963&amp;ptid=2209276" target="_blank">marlun 发表于 2025-1-18 04:01</a>
+
+pv里的那首bgm完整版能搜到吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+等OST吧，现在网上只有从pv里扒下来的有噪音版和粉丝自制版
+
