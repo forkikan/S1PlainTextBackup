@@ -3130,3 +3130,47 @@ op肯定是乐队的完全体，go片里最后一集才演到刚成团但op一�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  嵇翱u  
+##### 9161#       发表于 2025-1-17 19:30
+
+黑色生日真是第七集放的话，感觉喵梦想要热度流量的问题，睦头和莫提斯这个心理的问题，还要加个海玲尚不可知的问题，在第七集之前都不会有实质性的改变。
+
+一个队里爆了三个，这个生日才足够黑色。
+
+然后这集估计祥子也是终于到极限，爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 9162#       发表于 2025-1-17 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207951&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-17 19:21</a>
+我比较好奇mortis吉他谈的怎么样，毕竟这玩意太真实，能反应一个人当时的状态。
+吉他是属于本体睦的。morti ...</blockquote>
+总不会比爱音还差吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KLHgg  
+##### 9163#       发表于 2025-1-17 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207951&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-17 19:21</a>
+
+我比较好奇mortis吉他谈的怎么样，毕竟这玩意太真实，能反应一个人当时的状态。
+
+吉他是属于本体睦的。morti ...</blockquote>
+万一莫女士代替睦表态专心演戏不想谈吉他就太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 9164#       发表于 2025-1-17 19:37
+
+mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不可能那么多集一场live没有。
+
+弹吉他 那可以期待继续大抽陀螺爆个大的了
+
