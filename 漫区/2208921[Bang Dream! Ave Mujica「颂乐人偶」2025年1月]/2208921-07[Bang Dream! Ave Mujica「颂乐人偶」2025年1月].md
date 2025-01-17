@@ -4309,3 +4309,25 @@ Ave Mujica的剧情<strong>只能</strong>在这样的世界观下展开，如�
 
 2025-1-18 01:42 上传
 
+
+*****
+
+####  江口夕  
+##### 9264#       发表于 2025-1-18 01:48
+
+ 本帖最后由 江口夕 于 2025-1-18 01:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210749&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-1-18 01:40</a>
+邦邦这种高武世界观下，小睦不自信也挺正常的。看看这个世界T0的吉他手都是什么怪物，全能天才日菜，绝对音 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">邦里几个精神力高的看不懂的人都被ban了，这些手艺活其实都是小意思。比如risa，kkr这些人一出场就没啥事了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 9265#       发表于 2025-1-18 01:50
+
+但还是希望wsd能出老团也有戏份的TV动画啊，PICO也行，可惜就D5J暴死的情况来看，应该是不可能了，现在就有三个团要推，没那么多钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

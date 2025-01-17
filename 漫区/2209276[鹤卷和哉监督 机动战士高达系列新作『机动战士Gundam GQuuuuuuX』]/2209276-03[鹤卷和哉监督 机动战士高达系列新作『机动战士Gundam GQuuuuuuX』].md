@@ -10230,3 +10230,58 @@ tv里面的ace活着就是没建树，打钢加农打不过，死了更惨被钢
 所以为啥高达的驾驶舱是开着的？这个后面都是怎么打补丁的？</blockquote>
 本来的设定应该是为了方便维护根本没有锁这种东西，后面改了就圆起来困难了
 
+
+*****
+
+####  刺客ares  
+##### 3976#       发表于 2025-1-18 01:49
+
+拼接了一下，感受痞子对这段分镜的还原<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/18/014924jz155uu51geggb53.png" referrerpolicy="no-referrer">
+
+<strong>WPS拼图0.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 01:49 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wasssf| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  没取名啊  
+##### 3977#       发表于 2025-1-18 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210770&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 01:49</a>
+拼接了一下，感受痞子对这段分镜的还原</blockquote>
+真就一比一还原。这分镜稿我看都不用动笔画，从79动画里直接截图就完事了
+
+
+*****
+
+####  刺客ares  
+##### 3978#       发表于 2025-1-18 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210778&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-1-18 01:52</a>
+
+真就一比一还原。这分镜稿我看都不用动笔画，从79动画里直接截图就完事了 ...</blockquote>
+怪不得做的时候说是光头附体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasssf  
+##### 3979#       发表于 2025-1-18 01:55
+
+庵野成为大文豪有力竞争者
+
