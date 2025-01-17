@@ -8807,3 +8807,61 @@ side 6不是全是中文
 「劇場版プロジェクトセカイ 壊れたセカイと歌えないミク」は初日興収8500万円で初登場2位スタート。「初音 ...</blockquote>
 那个是烤/pjsk，和初音只是沾点边
 
+
+*****
+
+####  wyhman  
+##### 3838#       发表于 2025-1-17 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209379&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-17 21:58</a>
+
+因为馆数排的很多啊，更多的馆数，更少的票房，可不就是褒姒了（</blockquote>
+更多的馆数只是想保一下下限，下限能保住就OK了，票房不宜期望过高，至少不应该要求一定要比闪哈高
+
+卖胶才是正事
+
+*****
+
+####  剑布衣  
+##### 3839#       发表于 2025-1-17 22:07
+
+这还褒姒？这就是tv剪出来的，纯赚钱换我我都笑嘻了。yysy，挺好看。比那年g富国同样的先行上映好看多了
+
+*****
+
+####  Toby_dak  
+##### 3840#       发表于 2025-1-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209287&amp;ptid=2209276" target="_blank">wyhman 发表于 2025-1-17 22:46</a>
+
+这个成绩不错了，为啥说褒姒</blockquote>
+你说真的？
+
+不孝子200多馆，0085快400馆，按照首日票房看对比下上座率？更不要说不孝子还是新冠期间，外出的人本身就少。
+
+
+*****
+
+####  wyhman  
+##### 3841#       发表于 2025-1-17 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209459&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 22:09</a>
+
+你说真的？
+
+不孝子200多馆，0085快400馆，按照首日票房看对比下上座率？更不要说不孝子还是新冠期间，外出 ...</blockquote>
+我说真的，这个数据纯粹是高达这个IP正常水平，哪怕是400馆的前提下
+
+*****
+
+####  Earendil_C  
+##### 3842#       发表于 2025-1-17 22:13
+
+我嘞个，看了些片段，乐爆了
+
+鸭子开着元祖爆名人名言还飞踢
+
+一比一复刻的超丑卡哈元祖站立在大地之上
+
+飒爽的夏亚终于 tm 的 鸭子在飒爽了！
+

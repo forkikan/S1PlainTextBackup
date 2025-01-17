@@ -3453,3 +3453,19 @@ b站的     
 他们自己翻译的</blockquote>
 从名字来看，视频源是B站的吧？B站的视频居然不是内嵌字幕的吗？
 
+
+*****
+
+####  NODY  
+##### 9192#       发表于 2025-1-17 22:07
+
+冷知识：邦邦世界真的有鼓手当演员的，喵梦没准就是参考的这个路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/17/220659ae13x3y13xees1nt.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (16.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 22:06 上传
+
