@@ -4496,3 +4496,23 @@ BLG无畏契约分部
 没必要，mujica也许是独角兽当系构的最后一部了，wsd想再出剧场版顶多像mygo猫猫剧场版那样，加点新画面 ...</blockquote>
 mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回事了。而且这不是很早之前就确定的东西了吗，也许剧本也早就写好了。
 
+
+*****
+
+####  akiomn  
+##### 9280#       发表于 2025-1-18 03:03
+
+ 本帖最后由 akiomn 于 2025-1-18 03:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210903&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-18 02:56</a>
+
+mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回事了。而且这不是很早之前就确定的东西 ...</blockquote>
+
+你当剧场版想搞就搞啊？
+
+剧场版你看看时间要多久，起码3集的量要有，60分钟起步
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这想法真的太离谱了，wsd先行上映1-3集的操作已经够离谱了，你还来个把结局阉割了放到剧场版，wsd真是脑子抽了这么玩……
+
+独角兽就写了mygo和mujica两部，都是统一的十三集
+
+打个比方，独角兽自己都说了，海希剧情想写更多但是篇幅不够了塞不下就删了，你以为是不想写更多剧情吗？是真的塞不下了
+
