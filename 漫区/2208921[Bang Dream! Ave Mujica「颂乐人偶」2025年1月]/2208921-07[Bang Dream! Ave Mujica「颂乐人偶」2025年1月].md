@@ -337,3 +337,52 @@ layer说需要chu许可那段吗
 
 太扭曲了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Суслов  
+##### 8910#       发表于 2025-1-17 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203327&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-17 11:38</a>
+老实说，如果是mujica成员，那大祥全责完全没有问题，谁叫她是核心，是leader。
+就好像公牛输球了，队内乔 ...</blockquote>
+不许说是核心的问题，懂了，🐘是我摊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  古明地雷  
+##### 8911#       发表于 2025-1-17 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203352&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 11:40</a>
+祥子所说的音乐性和世界观实际上是搪塞，是假话，这才是没有说服力的原因
+
+祥子搞Ave Mujica本身就不是完 ...</blockquote>
+恰恰相反，音乐和世界观都不是假话，母鸡卡成立就是为了忘了c团，明明是为了遗忘却又选择了乐队是因为她想在同样的领域取得优势⬅️这是柿本说的，乐队的优势在祥子看来就是音乐性，世界观则是母亲留给她的精神遗产，她说不过是因为一除了她自己根本没人在乎这两点、二就是嘴笨
+
+
+*****
+
+####  刑部姬真可爱  
+##### 8912#       发表于 2025-1-17 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203708&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 12:10</a>
+
+有人提到喵梦邀请layer出镜
+
+layer说需要chu许可那段吗
+
+这也是成熟的乐队和现在风雨飘摇的mujica之间的对比 ...</blockquote>
+这大概也是祥子自尊的某种展现，乐队自主性高，导致一旦有她疏忽的地方，就要开始爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 8913#       发表于 2025-1-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203891&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-17 12:29</a>
+
+恰恰相反，音乐和世界观都不是假话，母鸡卡成立就是为了忘了c团，明明是为了遗忘却又选择了乐队是因为她 ...</blockquote>
+这两点的根本原因又回到了祥子作为leader却完全没和队员有过良好沟通的锅上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

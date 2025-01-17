@@ -4845,3 +4845,159 @@ b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
  夏亚一刀捅穿木马的舰桥不会顺带把有德捅了吧  论坛助手,iPhone</blockquote>
 有德等级没那么高
 
+
+*****
+
+####  ティグル  
+##### 3448#       发表于 2025-1-17 12:26
+
+LUNA2失守鸡瘟都无法控制地月系是什么爆笑剧情，已经跟赞斯卡尔坐一桌了
+
+*****
+
+####  cxasuka  
+##### 3449#       发表于 2025-1-17 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203318&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-17 11:37</a>
+阿纳海姆（雷霆宙域漫画）也干了，这不会太田和庵野勾搭好的吧，咋平行uc都喜欢玩量产大扎姆这套
+
+ ...</blockquote>
+多兹鲁的野望也是野望！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3450#       发表于 2025-1-17 12:28
+
+看完访谈，痞子这回当着大光头的面把0079站起来蹬是不是爽翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+蹬完扔给鹤卷收拾，自己拍拍屁股画分镜去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 3451#       发表于 2025-1-17 12:29
+
+急急急，现在看不到正片真的急的不得了
+
+
+*****
+
+####  kykawaiii  
+##### 3452#       发表于 2025-1-17 12:30
+
+泥漏怎么没人撕票房<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  猫兔同笼  
+##### 3453#       发表于 2025-1-17 12:30
+
+光头：高达？不关心……什么那家伙骂我剪辑水平很差，混蛋庵野！
+
+*****
+
+####  AraTurambar  
+##### 3454#       发表于 2025-1-17 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203904&amp;ptid=2209276" target="_blank">kykawaiii 发表于 2025-1-17 12:30</a>
+
+泥漏怎么没人撕票房
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+在日本的已经买票去看了。
+
+在中国的在研究怎么订机票。
+
+在美国的没有办法，只能盼万代东宝爸爸开恩下个月上美国院线。
+
+痞子这么大药，谁战票房啊。
+
+*****
+
+####  YU_JI  
+##### 3455#       发表于 2025-1-17 12:31
+
+目前看过的评价都挺高的吧，制作有保障，剧情有乐子，加上这个馆数感觉不太可能票房太差
+
+*****
+
+####  ads147147  
+##### 3456#       发表于 2025-1-17 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203555&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 11:56</a>
+笑出声来
+
+“庵野干的”</blockquote>
+好，痞子的锅，票房不过10e就是他背<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  gamedreamer  
+##### 3457#       发表于 2025-1-17 12:32
+
+光头:庵野这个混蛋.jpg
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3458#       发表于 2025-1-17 12:32
+
+开播搞这么大谁关心票房<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+连涛角色关系性的都没有。全是在对着UC IF 叽叽喳喳的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸波白野扎比子  
+##### 3459#       发表于 2025-1-17 12:32
+
+因为彻底用3D了，所以鸡舍才这么碎吗？
+
+*****
+
+####  刺客ares  
+##### 3460#       发表于 2025-1-17 12:33
+
+票房趋势等口碑发酵一下，到周末双休再看吧
+
+*****
+
+####  AraTurambar  
+##### 3461#       发表于 2025-1-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203865&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-17 12:26</a>
+
+LUNA2失守鸡瘟都无法控制地月系是什么爆笑剧情，已经跟赞斯卡尔坐一桌了</blockquote>
+忙着内斗分赃，地球什么的谁去管啊。
+
+*****
+
+####  卡博雷z  
+##### 3462#       发表于 2025-1-17 12:34
+
+等口碑，这个鸡舍实在提不起去看的兴趣，要是质量不错就去看<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3463#       发表于 2025-1-17 12:34
+
+这周总计能有10吗<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3464#       发表于 2025-1-17 12:35
+
+另外林有德本次没有出场，他的角色定位可能是被夏利亚毛走了
+
+现在夏亚+夏利亚的关系基本可以概括为吉翁版骡子+有德
+

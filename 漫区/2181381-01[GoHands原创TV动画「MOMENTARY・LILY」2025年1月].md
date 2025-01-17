@@ -75,3 +75,34 @@ ep3的回忆杀是不是说明后面女主还会复活<img src="https://static.s
 
 风怒
 
+
+*****
+
+####  帆前  
+##### 121#       发表于 2025-1-17 12:32
+
+看a part的时候还在想观感越来越好了，虽然很多角色还是样板的，但是这个大金毛由莉酱在回忆中还是变得鲜明了起来，演出也收敛了些
+<img src="https://p.sda1.dev/21/d1e90dc349aa4fb172c955a9a41eafe4/Screenshot_20250117_114106_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+然后b part的料理时间就给我一口水喷了出来，你们坟头料理……？这什么精神状态
+<img src="https://p.sda1.dev/21/b459a5bc287aef2bb19ff937d4c2385b/Screenshot_20250117_115029_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+这料理是非做不可吗？？
+
+太自由了go汉子，你的意思是，原创番就是要做自己想做的✊，是吧？
+
+不过这悲伤气氛（被搞得地狱了的杯桑气氛）还是有助于让人适应这个故事的，总算对主角团这些城市废土上的神奇妹子有点了解了。
+
+我从第一集就开始喜欢这个金毛由莉了！可萌可帅！非常可爱！
+<img src="https://p.sda1.dev/21/04601ed6b4ddf005579aea07afdbf728/Screenshot_20250117_114018_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+同志们，现在开始跟我一起厨我们超卡哇伊的牢莉，更可臻享牺牲者人物弧光品鉴套餐哦~（
+
+女主这个融合武器的剧本，满满的恶意啊，一看就是要走队友一个个似掉给女主加buff的路线了。加上这集黑毛当上队长，哼哼，枪打出头鸟，下集，黑毛之死！. jpg（
+<img src="https://p.sda1.dev/21/e2a5d560751fd20657b71d131c432113/Screenshot_20250117_115723_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+女主果然是跟由莉见过的，上集的即视感不是错觉，不是失忆就是时间轮回，我反正押时间轮回了，一定要回到过去拯救那个天真的牢莉啊. jpg✊（
+<img src="https://p.sda1.dev/21/ccde92710bcdc53f8608ce9d9b2eefad/IMG_20250117_120045.jpg" referrerpolicy="no-referrer">
+
+现在已适应这番废土和二次元卖萌合体的鬼畜电波了，只要后面剧情不无聊就能乐，拜托剧情一定不要太典啊
+
