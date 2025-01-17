@@ -1431,3 +1431,11 @@ Horizon Forbidden West (Guerrilla Games) - TBA
 看了白皮那边的反应，基本都是觉得你任实在是被催的受不了了所以剪了个ns2宣布视频应付一下，加上直面会间 ...</blockquote>
 傻逼粉丝天天给自己吃假药吃傻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhangu2  
+##### 162#       发表于 2025-1-17 08:50
+
+希望近几个月把软体阵容也先正式公布一下
+

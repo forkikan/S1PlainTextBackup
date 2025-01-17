@@ -15390,3 +15390,81 @@ mujica下一集</strong>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预告里大祥怎么看起来最后也选择合群的微微笑了，不是我眼花吧
 
+
+*****
+
+####  阿兹尔  
+##### 8744#       发表于 2025-1-17 08:46
+
+最大的问题是不是邦邦必须组5人乐队，要是祥子初华睦三人开黑不用拉路人，这样是不是就完美不会爆了，而且还去掉了两个人气底边
+
+*****
+
+####  MASKA-1  
+##### 8745#       发表于 2025-1-17 08:46
+
+祥子已经没有其他选择了，只能mujica一条路走到黑，所以不能接受也要接受。
+
+*****
+
+####  DARK_HGCG  
+##### 8746#       发表于 2025-1-17 08:47
+
+睦手里有一张针对祥子的牌是别人没有的
+
+她是唯一一个知道祥子真实家境的人
+
+清告的事也算丑闻
+
+我想看睦用这个去威胁祥子然后祥子露出遭受背叛的表情
+
+*****
+
+####  好much橘  
+##### 8747#       发表于 2025-1-17 08:47
+
+感觉到时候会反倒是祥子会撑不住选择离开，“不在意音乐的Mujica，不是我想要的Mujica”
+
+可她现在又何去何从呢。
+
+*****
+
+####  看穿一切的鱼  
+##### 8748#       发表于 2025-1-17 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199966&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-1-17 00:57</a>
+这集是不是还给灯翻案了
+
+🐘每次急眼了就只会那几句公式，已经是抛开事实不谈了
+
+所谓的灯缺少练习大概只是灯 ...</blockquote>
+灯就是需要练习吧，go7集大祥老师的魔法头锤前她还唱不出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Devola  
+##### 8749#       发表于 2025-1-17 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200069&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 01:22</a>
+
+草</blockquote>
+soyo：几天不见疯成这样，她的黄瓜冰什么时候创的铁奥？
+
+*****
+
+####  黑猫桑  
+##### 8750#       发表于 2025-1-17 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199925&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-17 00:49</a>
+这就是祥子只想着自己的地方啊，她是在以自己的方便角度去为了睦考虑，在意睦是维持母鸡卡所必须做的，而 ...</blockquote>
+你没看后面祥子指责睦不表态吗？
+
+祥子跟喵梦吵的是睦要不要增加戏份，睦什么都不说，全让祥子来说，那让祥子怎么办，睦的真实想法不是不想演戏但为了团队需要演戏吗，祥子让她不演戏但睦怕团队崩溃开不了口
+
+问题就在睦她要表态，她明确不演，团队方针确定好喵梦不得不从，她要演那就演加一点戏份而已，她不表态怎么办
+
+解决睦的精神问题一切都好说
+
