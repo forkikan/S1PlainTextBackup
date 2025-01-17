@@ -3830,3 +3830,92 @@ am自己打的商业乐队旗号怎么能怪观众按现实商业逻辑去思考
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  lumennaturale  
+##### 9226#       发表于 2025-1-17 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210108&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-17 23:34</a>
+
+人偶们取回了人的面貌
+
+这究竟是幸福还是毁灭？
+
+命运的齿轮不会停转</blockquote>
+但是如果最终结局是大伙变成人的话，那么她们也要面对人世的迷茫苦楚，也要容忍外物在自己身上刻画。倘若是这样的话，似乎avemujica也只是给出了另一种迷茫的进路，而不是不同于人世的另一重堕落天国
+
+*****
+
+####  刑部姬真可爱  
+##### 9227#       发表于 2025-1-17 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210249&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 23:54</a>
+
+最奇怪的是，木头家那边居然没什么反应，对孩子玩乐队的表态，和给孩子出道铺厂面的表示都没有，这才是最奇 ...</blockquote>
+睦？无关心。
+
+自己家女儿天天呆的小房间在妈妈眼里是基本没人去的闲置房，论不上邪恶但肯定也和开明不沾边
+
+*****
+
+####  dqtql  
+##### 9228#       发表于 2025-1-17 23:59
+
+<img src="https://img.saraba1st.com/forum/202501/17/235812lav2tnva21jzmum1.png" referrerpolicy="no-referrer">
+
+<strong>第四集结尾.png</strong> (74.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 23:58 上传
+
+当初看pv对这个画面挺在意的，感觉很可能就是第四集的结尾
+
+*****
+
+####  huxiaopao163  
+##### 9229#       发表于 2025-1-17 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210249&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 23:54</a>
+
+最奇怪的是，木头家那边居然没什么反应，对孩子玩乐队的表态，和给孩子出道铺厂面的表示都没有，这才是最奇 ...</blockquote>
+喵梦好像提到了第三集最后的电视直播节目，就是睦妈介绍的资源吧
+
+
+*****
+
+####  NameLess2501  
+##### 9230#       发表于 2025-1-18 00:03
+
+黑睦上线时，初华一开始在舞台前面，然后一直后退，退到了海玲身边。
+
+*****
+
+####  嵇翱u  
+##### 9231#       发表于 2025-1-18 00:03
+
+母鸡卡既要写的打破往常邦邦乐队的“梦幻”风格，加入大量的真实性，但是又因为要进游戏加入大家庭而不得不在成年人的内容上进行妥协，剧情上的割裂也就变得不可避免。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天空塔书记官  
+##### 9232#       发表于 2025-1-18 00:04
+
+只能等第四集了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 9233#       发表于 2025-1-18 00:05
+
+唉…鹅球为什么编辑不了，是手机的问题吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
