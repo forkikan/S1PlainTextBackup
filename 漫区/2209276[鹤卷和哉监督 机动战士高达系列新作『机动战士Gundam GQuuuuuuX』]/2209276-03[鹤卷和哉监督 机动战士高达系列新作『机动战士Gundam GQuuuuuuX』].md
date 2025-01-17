@@ -10350,3 +10350,18 @@ pv里的那首bgm完整版能搜到吗
 
 北美2月28日上映
 
+
+*****
+
+####  nekkihs2  
+##### 3986#       发表于 2025-1-18 04:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210897&amp;ptid=2209276" target="_blank">Shih0_Matsuri 发表于 2025-1-17 14:52</a>
+
+所以庵野秀明戏份只有0079开头部分吗？后面正片就不关他事纯挂名了吗？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+如果正片整体好评就是庵野社长指导有功
+
+如果整片褒姒差评就是鶴卷和榎户洋司没领会精神
+
