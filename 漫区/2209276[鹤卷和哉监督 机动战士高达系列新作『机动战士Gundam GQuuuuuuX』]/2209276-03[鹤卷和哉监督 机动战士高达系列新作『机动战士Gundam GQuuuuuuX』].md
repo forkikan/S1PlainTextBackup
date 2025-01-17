@@ -9609,3 +9609,63 @@ w那种中二和都合感被鲁路修00继承了不是也卖挺好，不能总�
 看来日本人真的很讨厌这种呢，我看国内是越高深越好（</blockquote>
 国内观众应该还是期待高达至少是个讲正剧的故事，而不是什么夏日清凉玻璃汽水一样的清新动画片，电影里0085部分是这种感觉
 
+
+*****
+
+####  线程召唤使  
+##### 3913#       发表于 2025-1-17 23:37
+
+<blockquote>创始’’’天翔 发表于 2025-1-17 23:31
+别叠了这么多buff，最后整部剧给的评价就只有起码比水魔铁血age强</blockquote>
+要是还不如可怎么办。
+
+不过应该不至于，至少这次有钱画面上不会像那些一眼寒酸。
+
+*****
+
+####  RE㐅ia  
+##### 3914#       发表于 2025-1-17 23:37
+
+<blockquote>jojonathan 发表于 2025-1-17 23:26
+不得不说没见到什么人破防还是蛮失望的</blockquote>
+这不就来了（
+
+
+*****
+
+####  岸波白野扎比子  
+##### 3915#       发表于 2025-1-17 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210115&amp;ptid=2209276" target="_blank">8HIT 发表于 2025-1-17 23:35</a>
+
+国内观众应该还是期待高达至少是个讲正剧的故事，而不是什么夏日清凉玻璃汽水一样的清新动画片，电影里00 ...</blockquote>
+但是日本人明显只爱看图一乐的东西，不是我说的，这观察下来很明显
+
+*****
+
+####  岸波白野扎比子  
+##### 3916#       发表于 2025-1-17 23:43
+
+我也爱看漂流教室那种级别的深度，但是最好别指望现在的日本商业动画了
+
+*****
+
+####  jojonathan  
+##### 3917#       发表于 2025-1-17 23:44
+
+说实话我也不想看正剧就鹤野老右人了到时候肯定又一堆节奏<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我已经不相信高达ip的正剧能好看了 还不如清淡明快一点的故事
+
+*****
+
+####  创始’’’天翔  
+##### 3918#       发表于 2025-1-17 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210127&amp;ptid=2209276" target="_blank">线程召唤使 发表于 2025-1-17 23:37</a>
+
+要是还不如可怎么办。
+
+不过应该不至于，至少这次有钱画面上不会像那些一眼寒酸。 ...</blockquote>
+痞子厨会出手的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+反正我评价标准蛮低的，只要有劲霸强的机战戏和逻辑通顺的剧情就能比这三高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
