@@ -8951,3 +8951,77 @@ side 6不是全是中文
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ads147147  
+##### 3851#       发表于 2025-1-17 22:24
+
+无所谓了，新假都那个样子了，东宝也没吃了痞子啊。。。硬要说东大妈手底下亏的玩意多了去了。。。。
+
+反正干得好是鹤卷nb，干的烂是痞子该死。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  虛無迴廊  
+##### 3852#       发表于 2025-1-17 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209529&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 22:19</a>
+目前推上印象
+
+玛秋=可爱型活泼小动物，行动力很强，隐藏巨乳
+
+妮娅安=看着是酷姐，实际是个可爱型反差角色</blockquote>
+鸭子在哪个世界线都逃脱不了跟NT男给里给气是吧
+刚好夏利亚在79也说过鸭子心胸狭隘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 3853#       发表于 2025-1-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209562&amp;ptid=2209276" target="_blank">萨尤克 发表于 2025-1-17 22:23</a>
+
+这新夏亚配的…可以理解这个机会很合适换CV但是至少找好点的吧，这配了个啥啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+小西接班蛮好的，不知道为什么会像现在这么处理
+
+*****
+
+####  浅川雏羽  
+##### 3854#       发表于 2025-1-17 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209566&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-1-17 22:24</a>
+
+无所谓了，新假都那个样子了，东宝也没吃了痞子啊。。。硬要说东大妈手底下亏的玩意多了去了。。。。
+
+反正 ...</blockquote>
+新假面骑士东宝没掺和吧，东映自己发行的
+
+*****
+
+####  0aleph37  
+##### 3855#       发表于 2025-1-17 22:28
+
+3月的anime Japan有高达舞台现在内容待定，会是宣布4月上映TV吗？
+
+*****
+
+####  Gysumitka  
+##### 3856#       发表于 2025-1-17 22:28
+
+这才第一天，等周末完了再看吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 3857#       发表于 2025-1-17 22:31
+
+<blockquote>ティグル 发表于 2025-1-17 22:25
+小西接班蛮好的，不知道为什么会像现在这么处理</blockquote>
+可能是强调这是平行宇宙的“异物感”，cv这不是全换了个遍吗？
+
