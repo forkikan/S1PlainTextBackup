@@ -3388,3 +3388,45 @@ b站的     
 [S1百综字幕组]BanG Dream! Ave Mujica [03] ...</blockquote>
 他们自己翻译的
 
+
+*****
+
+####  HGCG+  
+##### 9186#       发表于 2025-1-17 21:35
+
+这居然是武士道官方广告？
+<img src="https://p.sda1.dev/21/7b9b7d3b3f633b14b8cc32d7ddab0800/IMG_CMP_12401486.jpeg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ads147147  
+##### 9187#       发表于 2025-1-17 21:39
+
+看到nga考据喵梦的电子鼓就是2k块便宜货，不仅配置很烂而且还有部分鼓根本没插线所以打下去是完全没有声音反馈，练鼓如同坐牢还能一口气练到大晚上（比喻成鼠标没有左键用键盘的a来取代左键来练习走a，太夸张），肃然起敬了，大祥老师有多高高在上啊在这个角度上喷大猫练习不够，这是练习不够的问题吗？
+
+所以喵梦应该很喜欢来睦这边练习，好歹是敲得真鼓。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  IWS2000  
+##### 9188#       发表于 2025-1-17 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209227&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-17 21:39</a>
+看到nga考据喵梦的电子鼓就是2k块便宜货，不仅配置很烂而且还有部分鼓根本没插线所以打下去是完全没有声音 ...</blockquote>
+那么努力结果却说母鸡卡不搞乐队也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 9189#       发表于 2025-1-17 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208625&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-17 20:42</a>
+海铃现在就是干的经纪人的活（人物介绍说的日程调整和后台事务协调），也不知道是祥子为了能自己掌控全场不 ...</blockquote>
+肯定省钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小祥这种人以后还得偷偷塞钱给老爹（
+
