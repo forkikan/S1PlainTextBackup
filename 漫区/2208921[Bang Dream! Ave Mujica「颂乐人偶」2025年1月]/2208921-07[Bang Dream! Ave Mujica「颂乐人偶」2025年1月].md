@@ -4539,3 +4539,68 @@ mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回�
 反正我是不觉得🦄会写一个只为出人头地利用别人的祥子。虽然明白漏油现在挺不爽，不过这番其实很多东西都 ...</blockquote>
 有什麼迴旋不迴旋的，這人又不是來討論的，特地來你樓拉屎而已<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 9283#       发表于 2025-1-18 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210899&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 02:53</a>
+
+没必要，mujica也许是独角兽当系构的最后一部了，wsd想再出剧场版顶多像mygo猫猫剧场版那样，加点新画面 ...</blockquote>
+mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回事了。而且这不是很早之前就确定的东西了吗，也许剧本也早就写好了。
+
+*****
+
+####  akiomn  
+##### 9284#       发表于 2025-1-18 03:03
+
+ 本帖最后由 akiomn 于 2025-1-18 03:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210903&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-18 02:56</a>
+
+mygo是mygo，mujica是mujica，但是mygo和mujica的关系性又是另一回事了。而且这不是很早之前就确定的东西 ...</blockquote>
+
+你当剧场版想搞就搞啊？
+
+剧场版你看看时间要多久，起码3集的量要有，60分钟起步
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这想法真的太离谱了，wsd先行上映1-3集的操作已经够离谱了，你还来个把结局阉割了放到剧场版，wsd真是脑子抽了这么玩……
+
+独角兽就写了mygo和mujica两部，都是统一的十三集
+
+打个比方，独角兽自己都说了，海希剧情想写更多但是篇幅不够了塞不下就删了，你以为是不想写更多剧情吗？是真的塞不下了
+
+mujica完结后，两团之间的进一步剧情发展只能是手游了
+
+*****
+
+####  NODY  
+##### 9285#       发表于 2025-1-18 03:10
+
+出个鸡狗原创剧场版有可能，搞个两三年后才兑现的新建文件夹，剧情随便写个鸡狗去海外live什么的
+
+就和关岛之旅那样，那个剧场版其实就是用来推蝶和ras的（所以剧情里面把其他老团全ban了就留个ppp主角团带两个后辈），鸡狗现在这个热度，来一个也不奇怪
+
+但把真结局放剧场版不太可能的，从独角兽那个自信满满的态度就能看出来，鸡狗动画肯定是个完整的剧本
+
+*****
+
+####  御幸一也  
+##### 9286#       发表于 2025-1-18 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209617&amp;ptid=2208921" target="_blank">DanceofEternity 发表于 2025-1-17 22:33</a>
+
+反正我是不觉得🦄会写一个只为出人头地利用别人的祥子。虽然明白漏油现在挺不爽，不过这番其实很多东西都 ...</blockquote>
+有什麼迴旋不迴旋的，這人又不是來討論的，特地來你樓拉屎而已<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lumennaturale  
+##### 9287#       发表于 2025-1-18 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210809&amp;ptid=2208921" target="_blank">四顾 发表于 2025-1-18 02:01</a>
+
+首先，可借舞台的隐喻谈一组三位结构：剧目-表演（演员）-演出（场面）。在一般的演出观赏中，观众所体会 ...</blockquote>
+我想，我们争执的核心就在于强度的问题，也就是无限如何通过舞台/中介将自己释放出来，或者实地化地说，睦的演出是否是一种生成-精神病。这里可以考察的有两个问题，其一，舞台的机制到底怎样的，舞台是一种决断（统觉）-剩余的结构么（应当不是）？那么反传统的叙事在此就可先舍弃，即问题不在于那根本没有的和谐。那么我们就要问，力量是回应于舞台进程这一无限者的无限构成而表现的么，也就是力量究竟如何运作在内在平面（阁楼之月，或者说avemujica）之上？这也就进展到下一个问题，舞台的运作是否有一个“漩涡”、一个引力点运作在其中，按照其中的某种“物理法则”，无限的强度如何分配无限的速率，以至于我们的理智面对着“无限之无限”这一界限概念。
+
+这两个问题，仅就概念层面的论证来说，毫无疑问是在此不可穷尽的。我仅就我的阅读和对动画的理解来谈我的意见：名为mortis的生成-mortis与生成-观众之间的关系（类比于黄蜂与兰花）尽管是一个潜在的精神病结构，但并不成为实定层面的精神病，因为演员和观众通过身体性的定位在舞台装置中找到某个速率零点，从而避免卷入其中，也就是“曲终人散”——至少，故事进展到目前的阶段尚且是这样的。这一点，同样可以看作现实原则的应验：观众不是某种“原父”，观众的自恋完全基于一种无能，这种无能催生他们捕获舞台（完全基于欺骗，而非基于真实），也逼迫他们放弃舞台；正也因此，演员也必须在迎着观众的同时去否定观众，因为她绝非舞台的牲人，打开通向地狱之门的，不是真正的疯狂（Jesus），而是“好像疯狂”（宗教大法官），是为圣愚。
+
