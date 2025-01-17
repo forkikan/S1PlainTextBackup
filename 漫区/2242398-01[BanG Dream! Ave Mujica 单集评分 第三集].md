@@ -1453,3 +1453,22 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 当然，才第三集，先观后效。
 
+
+*****
+
+####  束意行气  
+##### 147#       发表于 2025-1-17 11:47
+
+我是祥厨也给的+2，这集看爽了，而且到目前为止没有任何我非常讨厌的角色，祥子这个塑造我觉得很真实，就应该这样
+
+
+*****
+
+####  Prairial  
+##### 148#       发表于 2025-1-17 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202886&amp;ptid=2242398" target="_blank">plazum 发表于 2025-1-17 11:07</a>
+
+本格推理和新本格推理，真当推理番看了啊</blockquote>
+毕竟mygo/am的一大看点就是更贴近现实的人际关系的变化和推演，从这个角度讲，分裂出一个开朗睦虽然很二次元，但确实有些超现实
+

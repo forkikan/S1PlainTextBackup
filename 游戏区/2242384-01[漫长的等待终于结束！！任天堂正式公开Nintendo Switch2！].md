@@ -1574,3 +1574,27 @@ ns还能用，等ns2续航测试出来再看看是过年奖励自己还是等续
 够呛，搞不好一年宣发期，明年三月发售。</blockquote>
 你这多少有点扯了，宣传片那么大个2025
 
+
+*****
+
+####  jimclack  
+##### 178#       发表于 2025-1-17 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202810&amp;ptid=2242384" target="_blank">卢迪克 发表于 2025-1-17 11:00</a>
+
+没什么阵容把，黑客泄露za原定24年发售，延期了。 估计叫gf整个NS+NS2双版本坐镇年末商战了。
+
+真豪华就也 ...</blockquote>
+za是啥？24年一整年没当任任跟不上黑话了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 179#       发表于 2025-1-17 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203385&amp;ptid=2242384" target="_blank">jimclack 发表于 2025-1-17 11:43</a>
+
+za是啥？24年一整年没当任任跟不上黑话了</blockquote>
+宝可梦
+

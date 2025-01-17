@@ -393,3 +393,13 @@ STEAM版吗
 懂了，等界2再一起玩</blockquote>
 不急就等界2吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  matsuzaka  
+##### 7434#       发表于 2025-1-17 11:51
+
+最近才补完黎2，没有剧情这个缺点排除的话，黎的战斗系统真的是打磨的非常好玩其乐无穷啊（限定一周目噩梦难度）<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+我最近觉得吧，把尴尬剧情脑补成2D时代三头身小人在演绎的话，轨迹系列其实还是一直保持着相当好的RPG水准的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

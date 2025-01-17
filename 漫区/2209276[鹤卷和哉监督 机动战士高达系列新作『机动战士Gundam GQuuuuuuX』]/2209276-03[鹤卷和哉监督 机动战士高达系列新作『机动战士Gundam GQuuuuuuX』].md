@@ -4489,3 +4489,121 @@ b1f036d3d539b600a01fe296af50352ac75cb7f9.jpg
 拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死 ...</blockquote>
 这种没讲就随意想象了，幻想一下拉拉有其它奇遇过上正常生活也行
 
+
+*****
+
+####  番茄牛奶  
+##### 3417#       发表于 2025-1-17 11:51
+
+所以后面的通贩该端上来了吧，总不能几个月就一台吧<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  转子引擎  
+##### 3418#       发表于 2025-1-17 11:51
+
+<blockquote>g救世主高达 发表于 2025-1-17 11:44
+拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死 ...</blockquote>
+这次还有塞可缪精神现象，女鬼没准还是他，没夏亚探花可以有其他人，世界线收缩了属于是
+
+*****
+
+####  Steel.Haze  
+##### 3419#       发表于 2025-1-17 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203394&amp;ptid=2209276" target="_blank">novyDC 发表于 2025-1-17 11:44</a>
+
+这个宇宙是没有勇士和强人了么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+吉翁后续机都是高达框架衍生了，不过其实融入了吉翁风格，比如主角机其实可能就是高达+大魔的产物。
+
+*****
+
+####  Toby_dak  
+##### 3420#       发表于 2025-1-17 11:52
+
+<blockquote>引用第3408楼Libartas于2025-01-17 12:42发表的  :
+
+话说鸭妹的声优是谁，没看到啊</blockquote>
+没发声，马沙只是隔空感觉到。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Steel.Haze  
+##### 3421#       发表于 2025-1-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203397&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-17 11:44</a>
+
+拉拉这个世界观怕不是当一辈子印度鸡了？夏亚和人组团探花才给捞出来的，没夏亚怕不是在印度小巷子里干到死 ...</blockquote>
+不，这个时间线，因为吉翁的新人类技术开发突出和红高达（精神力型）表现亮眼，联邦可能加速新人类发掘计划，满世界找新人类适应者，拉拉可能被选入联邦军，但是没机会参与0079战斗（所以女二是拉拉可能也是存在的）
+
+
+*****
+
+####  刺客ares  
+##### 3422#       发表于 2025-1-17 11:55
+
+推上好像有说这次几首歌里星街那首最好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3423#       发表于 2025-1-17 11:56
+
+笑出声来
+
+“庵野干的”
+
+“啊 没错就是我”
+
+<img src="https://img.saraba1st.com/forum/202501/17/115603bpllsts8zg6t4prt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2A8E2726-85FE-4046-A278-B5C67317910C.jpeg</strong> (106.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:56 上传
+
+*****
+
+####  PascalLefèvre  
+##### 3424#       发表于 2025-1-17 11:56
+
+是正常人的评价还是管人吃的评价<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 3425#       发表于 2025-1-17 11:56
+
+我觉得尼亚安是拉拉可能变大了。
+
+*****
+
+####  创始’’’天翔  
+##### 3426#       发表于 2025-1-17 11:56
+
+<blockquote>g救世主高达 发表于 2025-1-17 11:37
+阿纳海姆（雷霆宙域漫画）也干了，这不会太田和庵野勾搭好的吧，咋平行uc都喜欢玩量产大扎姆这套
+
+ ...</blockquote>
+答案是
+
+<img src="https://img.saraba1st.com/forum/202501/17/115653ibaiaik6gzkyzy0n.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_112895240692973.jpg</strong> (58.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 11:56 上传
+
+*****
+
+####  Sliurus  
+##### 3427#       发表于 2025-1-17 11:57
+
+就是为了给痞子爽特意剪个剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

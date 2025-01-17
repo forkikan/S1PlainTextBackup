@@ -1582,3 +1582,13 @@ nasa竟然没有把全部经费投入到运载火箭的研发，一定是美国�
 
 有点独立日1结尾外星人飞船放的那出烟花赶脚了。
 
+
+*****
+
+####  cnwind042  
+##### 129#       发表于 2025-1-17 11:47
+
+炸的还真有点好看<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">一般烟花达不到的效果
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
