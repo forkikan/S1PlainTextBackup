@@ -2478,3 +2478,87 @@ SoYo： 所以你在C 團時為什麼不開心？
 
 陰陽怪氣的職業吉他手
 
+
+*****
+
+####  fsfs_freeze  
+##### 9107#       发表于 2025-1-17 16:28
+
+关于海希之后的发展，我还是倾向于写得太多没法全塞进动画了，大部分应该会放到手游里，不然实在演不完了。
+
+不过也说不定wsd发癫再整俩剧场版
+
+*****
+
+####  黑夜落叶秋天  
+##### 9108#       发表于 2025-1-17 16:29
+
+访谈“面具下的我 是这个样子的 你会接受这样的我么”
+
+mujica的关系性访谈都说了啊
+
+
+*****
+
+####  fsfs_freeze  
+##### 9109#       发表于 2025-1-17 16:30
+
+ 本帖最后由 fsfs_freeze 于 2025-1-17 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206421&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 16:21</a>
+
+Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
+
+能完美完成所有的表演回應所有人的期待，這沒有 ...</blockquote>
+马上要体现出半身的含金量了，祥子要做到这点就相当于把自己身上的高贵全部打碎，重新塑造以祥睦姐妹为中心的mujica<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+不过估计要到56集才行。
+
+这估计也会是初华篇的导火索，56集之后初华就该发力了
+
+*****
+
+####  osore  
+##### 9110#       发表于 2025-1-17 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">天无二日
+
+*****
+
+####  一心而用  
+##### 9111#       发表于 2025-1-17 16:33
+
+<img src="https://p.sda1.dev/21/57261724b88f889860067489fd23fb88/006ffQwAgy1hxnrn40qbpj30k00qo77u.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9112#       发表于 2025-1-17 16:33
+
+假面虽是伪装，但真相却也未必相反
+
+要看真正藏起的部分是什么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 9113#       发表于 2025-1-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206504&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-17 16:30</a>
+
+马上要体现出半身的含金量了，祥子要做到这点就相当于把自己身上的高贵全部打碎，重新塑造以祥睦姐妹为中 ...</blockquote>
+
+舅舅说初华是在快结尾时候爆的。那一定是大后期了，所以被拉回来也很快
+
+现在还不清楚初华是怎么爆的，但最多露点马脚吧大概率不会像素世那样春日影刚放完立马就跳狼爆了
+
+*****
+
+####  半年  
+##### 9114#       发表于 2025-1-17 16:34
+
+母鸡卡观众会更喜欢Mortis么
+

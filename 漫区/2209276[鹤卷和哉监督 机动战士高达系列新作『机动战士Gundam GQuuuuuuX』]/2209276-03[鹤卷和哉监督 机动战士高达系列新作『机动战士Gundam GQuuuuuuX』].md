@@ -7379,3 +7379,57 @@ Xekunova、红高达的那个疑似夏亚之声这些线索在校园百合打黑
 
 话说pv都是剧场版的内容吗
 
+
+*****
+
+####  猪突猛进R  
+##### 3703#       发表于 2025-1-17 16:27
+
+建议放平心态。
+
+电影骗新人进来，然后让新人看0079；
+
+动画骗遗老进来，然后让遗老看校园剧。
+
+说不定干得出来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 3704#       发表于 2025-1-17 16:29
+
+<blockquote>猪突猛进R 发表于 2025-1-17 16:27
+建议放平心态。
+
+电影骗新人进来，然后让新人看0079；
+</blockquote>
+难道不是电影骗姨姥进来看tv校园，tv校园再把新人骗来看0079吗（
+
+
+*****
+
+####  Toby_dak  
+##### 3705#       发表于 2025-1-17 16:33
+
+<blockquote>引用第3693楼线程召唤使于2025-01-17 17:14发表的  :
+
+等下，0079那段，好像没有提到不列颠作战？？直接没发生过吗？</blockquote>
+开场30秒不到悉尼就没了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  刺客ares  
+##### 3706#       发表于 2025-1-17 16:35
+
+<img src="https://img.saraba1st.com/forum/202501/17/163257no7nantmw3inzaac.png" referrerpolicy="no-referrer">
+
+<strong>1737101851289.png</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 16:32 上传
+
+转推，牢修已经被一抢而空
+

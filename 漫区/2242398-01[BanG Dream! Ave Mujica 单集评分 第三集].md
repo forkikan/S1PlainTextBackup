@@ -1637,3 +1637,22 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 
 丰川集团送孙女的玩票乐队罢了，金主孙女的乐队经纪公司插啥手，她咋做都对
 
+
+*****
+
+####  stevenzero  
+##### 167#       发表于 2025-1-17 16:33
+
+车站大战时完全没避讳现场有普通人，在演出上场前后台直接吵架也是，大祥老师你有没有管理观念的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 168#       发表于 2025-1-17 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206528&amp;ptid=2242398" target="_blank">stevenzero 发表于 2025-1-17 16:33</a>
+
+车站大战时完全没避讳现场有普通人，在演出上场前后台直接吵架也是，大祥老师你有没有管理观念的？ ...</blockquote>
+祥子：要有名人/pro的自觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
