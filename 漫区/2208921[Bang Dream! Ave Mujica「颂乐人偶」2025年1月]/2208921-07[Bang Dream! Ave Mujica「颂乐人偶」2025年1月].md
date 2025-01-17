@@ -4099,3 +4099,47 @@ mujica这样极高的成就（最速武道馆+巡演）配合毫无存在感的�
 
 只不过那时候睦已经恶化得非常厉害，就连那种套话都能变成很大压力
 
+
+*****
+
+####  huxiaopao163  
+##### 9249#       发表于 2025-1-18 00:56
+
+ 本帖最后由 huxiaopao163 于 2025-1-18 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210486&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-18 00:32</a>
+
+問題是祥子沒錢
+
+可以極速武道館，</blockquote>
+不是有典中典的丰川家老爷子在资助，但是约定了如果失败了要回家接受安排（把你剩余的人生交给老夫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），所以乱搞老爷子也无所谓
+
+
+*****
+
+####  樱小路三礼  
+##### 9250#       发表于 2025-1-18 01:01
+
+睦可是直言说讨厌喵梦的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我都不敢想祥子失去睦会怎么样，我也无法想象睦在失去了祥子会怎样。
+如果有if世界线，可能就真的会变成出现重大事件。
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玖羽  
+##### 9251#       发表于 2025-1-18 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210614&amp;ptid=2208921" target="_blank">樱小路三礼 发表于 2025-1-18 01:01</a>
+
+睦可是直言说讨厌喵梦的
+
+我都不敢想祥子失去睦会怎么样，我也无法想象睦在失去了祥子会怎样。
+
+如果有if世界 ...</blockquote>
+睦那句话不是讨厌喵梦
+
+喵梦说这样下去你和祥子会一起完蛋，睦说你为什么要说这么讨厌的话
+
+有些话总是要有人说的，Mortis也认同喵梦是对的
+
