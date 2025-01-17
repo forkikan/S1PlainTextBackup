@@ -4430,3 +4430,22 @@ BLG无畏契约分部
 
 睦这个同理，在邦邦世界也不会被当精神病的
 
+
+*****
+
+####  huxiaopao163  
+##### 9274#       发表于 2025-1-18 02:29
+
+也许真正的大结局会是动画结束后的mygo和mujica的对邦
+
+然后再把剧情做成动画剧场版再卖一次
+
+*****
+
+####  天空塔书记官  
+##### 9275#       发表于 2025-1-18 02:31
+
+可能性不小，wsd应该没少为了延长热度期动脑子<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
