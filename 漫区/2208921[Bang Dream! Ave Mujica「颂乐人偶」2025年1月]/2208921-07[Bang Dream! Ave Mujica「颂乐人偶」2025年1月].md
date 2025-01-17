@@ -2931,3 +2931,16 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 
 搞不好会看到初华怒斥祥子为什么要演奏春日影<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Onelooker  
+##### 9143#       发表于 2025-1-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205453&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-1-17 14:57</a>
+
+灯可是单人诗朗诵都能一场比一场观众多的神人，要说天才谁是真天才啊（后仰） ...</blockquote>
+还有人听诗朗诵都能听哭呢
+
+你邦世界观神人太多了
+

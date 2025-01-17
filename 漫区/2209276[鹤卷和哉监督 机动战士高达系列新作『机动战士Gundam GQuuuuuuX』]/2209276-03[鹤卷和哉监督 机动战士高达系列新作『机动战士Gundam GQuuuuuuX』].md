@@ -7949,3 +7949,63 @@ side6欲望摆脱吉翁
 —— 来自 HUAWEI CET-AL00 ...</blockquote>
 而且还是简体中文
 
+
+*****
+
+####  ykyin09  
+##### 3758#       发表于 2025-1-17 18:17
+
+话说就算有骡子出场cv也不一定是古谷彻了吧？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  电波系腑海林  
+##### 3759#       发表于 2025-1-17 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207460&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-1-17 18:17</a>
+
+话说就算有骡子出场cv也不一定是古谷彻了吧？
+
+论坛助手,iPhone</blockquote>
+肯定不是了啊，池田都换了
+
+*****
+
+####  卑弥呼yamato  
+##### 3760#       发表于 2025-1-17 18:18
+
+所以什么时候上新PV
+
+
+*****
+
+####  王留美  
+##### 3761#       发表于 2025-1-17 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207470&amp;ptid=2209276" target="_blank">卑弥呼yamato 发表于 2025-1-17 18:18</a>
+ 所以什么时候上新PV</blockquote>
+至少过了周末吧，可能要下周末（10天）
+所有人的感想都是不要被剧透所以赶快去看
+总不能官方自己剧透吧
+
+
+*****
+
+####  Toby_dak  
+##### 3762#       发表于 2025-1-17 18:23
+
+说起麻球人设，不知道其他地方有没有提到过。她在学校泳池跳台倒立跳水时候，没穿泳衣而是普通校服，所以可以确认穿的是运动内衣。高达史上第一个开场就杀比死漏胖次的女主角？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，不知道是不是运动内衣缘故，平时校服时候挺平的，穿驾驶服后就显得大了（什么关注点<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  0aleph37  
+##### 3763#       发表于 2025-1-17 18:24
+
+看nga的repo麻球在裸飘的时候穿四角内裤
+
