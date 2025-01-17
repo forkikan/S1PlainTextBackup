@@ -1782,3 +1782,14 @@ ps5则是发布正好碰上疫情，产能不足，实际现在销量也不差�
 疫情是ns成功的buff都来了吗？其他两家怎么没蹭到这个buff，是不想吗？</blockquote>
 可惜，星鸣特工如果能在疫情期间推出，哪轮得到动森吃红利<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 200#       发表于 2025-1-17 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204451&amp;ptid=2242384" target="_blank">mggr 发表于 2025-1-17 13:24</a>
+
+ns2命名还导致觉得是半代升级？</blockquote>
+这样想的用户在评论区里还不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。我看就差改名Nintendo Switch 2 Much Powerful than PO4了
+

@@ -5448,3 +5448,115 @@ dddd没有TV放送，日本人在电视上看不到这个片</blockquote>
 先行上映，总集编，完全新作，这三票房从来就不在一个世界线上，而且现在动画票房特别吃商法，写作票房，读作粉丝反复爆金币，这部前面完全无吹风，也没商法可用，都不知道哪个群体是目标观众就直接上，也不知道发行方是怎么想的
 不过该复读还是会继续复读，这个新高达果然就是逊啦果然那谁还是强啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 3514#       发表于 2025-1-17 13:39
+
+女主什么散财童子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金翅碌柒鸟  
+##### 3515#       发表于 2025-1-17 13:39
+
+<blockquote>创始’’’天翔 发表于 2025-1-17 12:45
+别急，才第一天呢。等X爆了分分钟剑指10e</blockquote>
+80分钟有40分钟是0079if,对于推上潮哥潮姐来说只会觉得莫名其妙…你说的爆该不会是贬义吧?
+
+*****
+
+####  Toby_dak  
+##### 3516#       发表于 2025-1-17 13:40
+
+<blockquote>引用第3447楼ティグル于2025-01-17 13:26发表的  :
+
+LUNA2失守鸡瘟都无法控制地月系是什么爆笑剧情，已经跟赞斯卡尔坐一桌了</blockquote>
+月神二号一直都是在联邦手里吧，联邦反攻回宇宙前唯一的宇宙据点。这次北宋之壶还特地来了堆大扎姆去打。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  王留美  
+##### 3517#       发表于 2025-1-17 13:41
+
+X上看了下评价，一律大好评
+也有不懂UC的纯新人表示很容易理解
+
+我觉得可以等等风评发酵的结果了
+
+*****
+
+####  YU_JI  
+##### 3518#       发表于 2025-1-17 13:41
+
+麻球哈曼论是不是要宣告破产了，正片好像没什么线索
+
+*****
+
+####  oi99o  
+##### 3519#       发表于 2025-1-17 13:41
+
+tomoyo说本作看点是“欲望、混沌和留白”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/17/134110tekf134qhysc3e4s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 13:41 上传
+
+
+*****
+
+####  wyhman  
+##### 3520#       发表于 2025-1-17 13:42
+
+别开玩笑了，票房能有种自同期的四分之一，不得不说也是一种很大的成功了
+
+能有这个成绩就偷着乐吧，难道还真想碰瓷种自？真的有过这种念想？
+
+
+*****
+
+####  刺客ares  
+##### 3521#       发表于 2025-1-17 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204616&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-17 13:41</a>
+
+麻球哈曼论是不是要宣告破产了，正片好像没什么线索</blockquote>
+寄了，这三个人里最来历不明的还是牢修
+
+*****
+
+####  wyhman  
+##### 3522#       发表于 2025-1-17 13:44
+
+<blockquote>小姨子 发表于 2025-1-17 13:33
+鬼灭本灭的先行去年也就22.7亿，推子1.2亿，迷宫饭0.6亿，这三还都有原作基础
+
+先行上映，总集编，完全新作 ...</blockquote>
+原来高达没有原作基础  乐
+
+*****
+
+####  Gysumitka  
+##### 3523#       发表于 2025-1-17 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 3524#       发表于 2025-1-17 13:45
+
+<blockquote>Toby_dak 发表于 2025-1-17 13:27
+0085
+
+这部分由于是原创，有不少未清楚的部分，加了个人的理解。
+</blockquote>
+米莱未婚夫应该没有结婚，刚扫了下场刊好像说的婚约破裂
+

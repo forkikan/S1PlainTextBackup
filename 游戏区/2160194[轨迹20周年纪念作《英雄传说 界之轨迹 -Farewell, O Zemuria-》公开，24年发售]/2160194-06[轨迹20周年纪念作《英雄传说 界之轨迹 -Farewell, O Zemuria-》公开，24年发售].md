@@ -434,3 +434,11 @@ DLSS 能不能救一下新引擎满墙狗牙的抗锯齿缺位问题
 连塑料黄金都不舍得找个人画吗</blockquote>
 找E大师新画了个封面图，不错辣（）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 7438#       发表于 2025-1-17 13:38
+
+有一说一这个封面图可以直接拿去当界2立绘，又省一笔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
