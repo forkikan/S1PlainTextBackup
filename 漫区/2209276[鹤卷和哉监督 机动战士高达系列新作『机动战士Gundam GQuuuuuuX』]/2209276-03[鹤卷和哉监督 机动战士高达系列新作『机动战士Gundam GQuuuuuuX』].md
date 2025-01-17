@@ -3692,3 +3692,175 @@ edit，看错了，不是敖德萨是贾布罗
 
 感觉人物关系人物性格决策全都变了，还叫这个名字但是和原来完全不是一个人，全部重置，你是新人其实更好理解（
 
+
+*****
+
+####  没取名啊  
+##### 3343#       发表于 2025-1-17 10:58
+
+对了，拉拉呢？
+
+*****
+
+####  盖尔杰特克  
+##### 3344#       发表于 2025-1-17 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202782&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-1-17 10:58</a>
+
+对了，拉拉呢？</blockquote>
+估计查无此人了，老鸭下地球去印度探花才认识的拉拉，这个平行世界夏亚一路顺风得水还去个dei的地球
+
+*****
+
+####  RE㐅ia  
+##### 3345#       发表于 2025-1-17 11:01
+
+— 在这个过程中，是否也有您想要好好描绘一年战争和夏亚的想法呢？
+
+庵野：是的。不过，我并没有特别去顾虑（作为原作者和《机动战士高达》的导演）富野（由悠季）先生（笑）。最初的企划其实是想描绘“夏亚驾驶红色高达战斗”的故事，因此我写了作为前史的一年战争部分。另外，他们还要求我“把所罗门坠落的部分也写进去”，所以我也额外加上了这一段。
+
+鹤卷：原本我只计划负责剧情大纲，但结果一上来几乎就是完整的剧本（笑）。而且显然仅这一部分就已经足够做成一部电影的量了。
+
+庵野：确实，我的构想是将一年战争的部分完全重新制作。
+
+榎户：就单靠这一部分就要做成一部电影吗？
+
+庵野：嗯，因为那是我想要做的内容。从剧情大纲改成剧本后，光这一部分就有40分钟左右。接下来的调整就交给鹤卷导演的平衡感来处理了（笑）。
+
+*****
+
+####  DARILBALDE  
+##### 3346#       发表于 2025-1-17 11:02
+
+woc太劲了太劲了，急急急
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  RE㐅ia  
+##### 3347#       发表于 2025-1-17 11:02
+
+想做的部分自己做，做完直接溜。痞子你无敌了
+
+*****
+
+####  猎人D  
+##### 3348#       发表于 2025-1-17 11:03
+
+鸭妹论起NT力比她哥还强吧
+
+*****
+
+####  Sliurus  
+##### 3349#       发表于 2025-1-17 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202823&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 11:01</a>
+
+— 在这个过程中，是否也有您想要好好描绘一年战争和夏亚的想法呢？
+
+庵野：是的。不过，我并没有特别去顾虑 ...</blockquote>
+果然是痞子的私货啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3350#       发表于 2025-1-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202823&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 11:01</a>
+— 在这个过程中，是否也有您想要好好描绘一年战争和夏亚的想法呢？
+
+庵野：是的。不过，我并没有特别去顾虑 ...</blockquote>
+这下让痞子爽到了 
+
+*****
+
+####  AraTurambar  
+##### 3351#       发表于 2025-1-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202823&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-17 11:01</a>
+
+— 在这个过程中，是否也有您想要好好描绘一年战争和夏亚的想法呢？
+
+庵野：是的。不过，我并没有特别去顾虑 ...</blockquote>
+所以其实痞子掌控了开篇的大药，决不是可有可无的挂名。
+
+*****
+
+####  刺客ares  
+##### 3352#       发表于 2025-1-17 11:04
+
+果然是痞子做的一年战争部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 3353#       发表于 2025-1-17 11:04
+
+庵野:乐<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  koodooliz  
+##### 3354#       发表于 2025-1-17 11:04
+
+痞子自己就想写新•高达啊，爽完走人了这下，丢下40分钟时长的剧本要鹤卷去焦头烂额了（笑
+
+*****
+
+####  57042711  
+##### 3355#       发表于 2025-1-17 11:04
+
+这劲也太大了，充满了基连野望if线怪味的剧情笑死…
+白色木马前期主力除了骡子就是开加强版核心战机的塞拉了吧，没想到真开高达了<img src="https://static.saraba1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rp1993  
+##### 3356#       发表于 2025-1-17 11:05
+
+鹤卷：痛苦面具再临<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 3357#       发表于 2025-1-17 11:05
+
+痞子自己爽完不管了是吧
+
+*****
+
+####  中野梓  
+##### 3358#       发表于 2025-1-17 11:06
+
+帰ってきたシャア
+
+*****
+
+####  三尖酸努努  
+##### 3359#       发表于 2025-1-17 11:06
+
+痞子写爽自己想写的部分然后扔给鹤卷了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 3360#       发表于 2025-1-17 11:07
+
+痞子做完爽快放给鹤卷是好事啊
+
+
+*****
+
+####  novyDC  
+##### 3361#       发表于 2025-1-17 11:07
+
+爽完0079就溜了是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
