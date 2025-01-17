@@ -1931,3 +1931,11 @@ PS2缓缓地打出一个问号
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 Nintendo Switch Forever 简称NSWF
 
+
+*****
+
+####  Tackstone  
+##### 215#       发表于 2025-1-17 17:39
+
+硬件上没什么创新意料之中，性能能让老ns的游戏都按1080p60的规格运行就心满意足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
