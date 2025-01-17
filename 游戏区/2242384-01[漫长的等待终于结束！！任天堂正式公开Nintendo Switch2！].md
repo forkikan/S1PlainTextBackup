@@ -1821,3 +1821,31 @@ ns2命名还导致觉得是半代升级？</blockquote>
 
 连首发游戏的饼都不给画，只能说股价跌得不冤
 
+
+*****
+
+####  whzfjd  
+##### 204#       发表于 2025-1-17 14:56
+
+OLED 都能卖成销量增量第一，说明市场只买最好的，不会考虑升级幅度的事情
+
+
+*****
+
+####  karastar  
+##### 205#       发表于 2025-1-17 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204674&amp;ptid=2242384" target="_blank">漆黑_残月 发表于 2025-1-17 13:46</a>
+
+2不是2代是什么？是幻觉吗难道</blockquote>
+弱智觉得是Switch Pro<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FortuneAura  
+##### 206#       发表于 2025-1-17 15:07
+
+应该是看外观都差不多导致的吧，这么一看，索索这个圆润风格和棱角风格交替使用就很聪明的解决了这个问题？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
