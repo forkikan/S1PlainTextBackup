@@ -8524,3 +8524,96 @@ side6全是简中真日本吗</blockquote>
 
 夏利亚的戏份少不了是肯定的，他这作纯纯吉翁林有德定位，甚至手下那个驾驶员都像是吉翁版雷恩
 
+
+*****
+
+####  岸波白野扎比子  
+##### 3810#       发表于 2025-1-17 20:57
+
+我看好GQX引进，指TV
+
+*****
+
+####  YU_JI  
+##### 3811#       发表于 2025-1-17 20:58
+
+<blockquote>jojonathan 发表于 2025-1-17 20:53
+我觉得下集就要被夏利亚连人带机绑走了 黑拳全是扎古打我觉得不会播第二次了 而且绿色木马都准备好了肯定 ...</blockquote>
+GQX已经落对面手上了，夏利亚手底下的人光是红高达就应付成这样，现在GQX还和红高达一起了，有没有绑走麻球的能力，我觉得真得打个问号（）
+
+*****
+
+####  赤黑的假面  
+##### 3812#       发表于 2025-1-17 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208789&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-17 20:57</a>
+
+我看好GQX引进，指TV</blockquote>
+这个后面看巴哈买不买卡哈钢弹的TV吧
+
+*****
+
+####  蛇头  
+##### 3813#       发表于 2025-1-17 20:58
+
+简中要素多吗？
+
+事实上简中出现的地方只有那个有限公司和所在的难民区，甚至警察的态度还是反正都是难民违建，战斗时拆了也不要紧。
+
+感觉更多就是意思这个打擂台的勾当是难民拆腻子私下在违法搞而已（符合日本人刻板印象），side6内的地铁都是日语，后面那个试作驾驶员的入国文件都是日语的。
+
+*****
+
+####  jojonathan  
+##### 3814#       发表于 2025-1-17 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208795&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-17 20:58</a>
+GQX已经落对面手上了，夏利亚手底下的人光是红高达就应付成这样，现在GQX还和红高达一起了，有没有绑走麻 ...</blockquote>
+答案是开盒然后蹲学校<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 3815#       发表于 2025-1-17 20:59
+
+又要开始魂斗罗了，看个动画片也不嫌累
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸波白野扎比子  
+##### 3816#       发表于 2025-1-17 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208802&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-1-17 20:58</a>
+
+这个后面看巴哈买不买卡哈钢弹的TV吧</blockquote>
+我不太懂，什么程序
+
+*****
+
+####  中野梓  
+##### 3817#       发表于 2025-1-17 21:00
+
+看了盗摄，真帅啊，痞子早就憋着做这个了吧
+
+*****
+
+####  jojonathan  
+##### 3818#       发表于 2025-1-17 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208825&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-17 21:00</a>
+看了盗摄，真帅啊，痞子早就憋着做这个了吧</blockquote>
+有完整的盗摄了吗
+
+
+*****
+
+####  中野梓  
+##### 3819#       发表于 2025-1-17 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208850&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-17 21:01</a>
+
+有完整的盗摄了吗</blockquote>
+0079的一部分
+
