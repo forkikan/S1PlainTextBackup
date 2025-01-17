@@ -4004,3 +4004,66 @@ mujica这样极高的成就（最速武道馆+巡演）配合毫无存在感的�
 
 把祥理解为在走钢丝的chu2不就行了，都有先例了也别管先例本身是不是特例了，何况现实中自作主张甚至还能取得成功的创业团队还少吗
 
+
+*****
+
+####  mono  
+##### 9242#       发表于 2025-1-18 00:29
+
+喵梦住的地方也不高级，直播练鼓生活可能都在一个房间
+
+隔音差导致被投诉赶出去都不奇怪
+
+我看隔壁gbc签了事务所一月就有20万jpy了，喵梦不会收到工资都寄给老家了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凉良  
+##### 9243#       发表于 2025-1-18 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210400&amp;ptid=2208921" target="_blank">樱小路三礼 发表于 2025-1-18 00:20</a>
+最有团魂指极速试图挖墙脚
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 S1Next-鵝版 v2.5.4 ...</blockquote>
+已经洗成激励睦离开祥子的束缚了
+
+*****
+
+####  南宮凝香  
+##### 9244#       发表于 2025-1-18 00:32
+
+問題是祥子沒錢
+
+可以極速武道館，
+
+除非她開槓桿借錢
+
+不然背後一定是有金主的
+
+有金主還能讓她們這樣亂搞就很奇幻了
+
+解決方法只有錢是從吃多了蘑菇腦子產生幻覺的月之森學生身上眾籌的一途
+
+*****
+
+####  dqtql  
+##### 9245#       发表于 2025-1-18 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210458&amp;ptid=2208921" target="_blank">mono 发表于 2025-1-18 00:29</a>
+
+喵梦住的地方也不高级，直播练鼓生活可能都在一个房间
+
+隔音差导致被投诉赶出去都不奇怪</blockquote>
+东京米贵，居大不易。喵梦可能连学费都是自己出的，经济上不宽裕很正常吧
+
+*****
+
+####  NaAgfykp  
+##### 9246#       发表于 2025-1-18 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210369&amp;ptid=2208921" target="_blank">11A511 发表于 2025-1-18 00:12</a>
+
+呃看过第三集祥怎么决断的都不能说出这种话吧，这都不算观众印象了</blockquote>
+但是喵梦都觉得她偏袒幼驯染了吧
+
