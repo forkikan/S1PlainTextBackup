@@ -1353,3 +1353,195 @@ C团去KTV时候小睦也笑了吧，小祥那时候就说“睦当然会笑了�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Суслов  
+##### 9001#       发表于 2025-1-17 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205110&amp;ptid=2208921" target="_blank">scorbian 发表于 2025-1-17 14:25</a>
+我一直觉得后面组鸡团不找C团的人就是大祥嫌他们太菜了</blockquote>
+所以说是三个菜逼把小睦劣等感打出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.Giraffe| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  DD-963  
+##### 9002#       发表于 2025-1-17 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67204958&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-17 14:12</a>
+
+有个疑点就是C团时祥子为什么不搞这套世界观？</blockquote>
+这时候不要替父还债 老爹被赶出去是第一次（最后一次）演出的事情 。
+
+*****
+
+####  darkXcross  
+##### 9003#       发表于 2025-1-17 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205110&amp;ptid=2208921" target="_blank">scorbian 发表于 2025-1-17 14:25</a>
+
+我一直觉得后面组鸡团不找C团的人就是大祥嫌他们太菜了</blockquote>
+我觉得在这个飞满回旋镖的番里，祥子不找C团老人的原因，爱音一语成谶：
+<img src="https://p.sda1.dev/21/efd4746532a536d333b0a8e012b3f08d/2025-01-17 14 31 50.png" referrerpolicy="no-referrer">
+
+就是现在祥子和其他人中间已经隔了一层可悲的厚障壁了，灯再也唱不出祥子的心声了。
+
+*****
+
+####  御幸一也  
+##### 9004#       发表于 2025-1-17 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67203352&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-17 11:40</a>
+
+祥子所说的音乐性和世界观实际上是搪塞，是假话，这才是没有说服力的原因
+
+祥子搞Ave Mujica本身就不是完 ...</blockquote>
+首先就不太會是復權和爭一口氣，訪談關於這點特地糾正過。
+[https://animageplus.jp/news/detail/96](https://animageplus.jp/news/detail/96)
+
+雜誌版本會讓人誤會祥子想要復權/爭一口氣，糾正過的版本則不會。而是更純粹的東西。
+
+至於是什麼，還不知道。
+
+而賺錢，因為祥子現在想要玩音樂，沒有錢是沒法玩的，
+
+所以賺錢我覺得是為了她的主要目的的一種必要手段而已。
+
+她組avemujica怎麼可能就是為了賺錢。
+
+*****
+
+####  Reinhold  
+##### 9005#       发表于 2025-1-17 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205326&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-17 14:46</a>
+
+所以说是三个菜逼把小睦劣等感打出来的吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+睦所谓的劣等感是她不会表达感情，用乐器也表达不出，没有dkdkkrkr的感觉（所以玩金属
+
+*****
+
+####  pokemon最爱  
+##### 9006#       发表于 2025-1-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205326&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-17 14:46</a>
+
+所以说是三个菜逼把小睦劣等感打出来的吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+毕竟在祥子看起来菜但在睦眼里能好好唱出自己心声的灯比只会精准演奏吉他无法通过吉他的演奏表达自己内心的自己来说强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 9007#       发表于 2025-1-17 14:51
+
+<img src="https://p.sda1.dev/21/d94330558a32ea49658085de00907e28/GhccZm-acAEG4nT.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ya_mika_/status/1880002598679506944/photo/1](https://x.com/ya_mika_/status/1880002598679506944/photo/1)
+
+*****
+
+####  天空塔书记官  
+##### 9008#       发表于 2025-1-17 14:51
+
+迷子的三人真没那么菜吧，只是不适合打职业而已，邦可是音乐天才遍地走的世界，不要小看野生仙人啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 9009#       发表于 2025-1-17 14:52
+
+大氵包氵包：
+
+<img src="https://p.sda1.dev/21/0d2ef0efd4f33834ad9bcf09beb916f7/537ee990445ad1b84059d1d8c33964365356542.jpg@1052w_!web-dynamic.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半年  
+##### 9010#       发表于 2025-1-17 14:53
+
+<img src="https://p.sda1.dev/21/72e4007bb736ead1bc7ab5c393e24324/GhbIWcSb0AAL-Dz.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/BFirekeeper/status/1879910185206235136/photo/1](https://x.com/BFirekeeper/status/1879910185206235136/photo/1)
+
+*****
+
+####  杂灰  
+##### 9011#       发表于 2025-1-17 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205338&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-17 14:47</a>
+我觉得在这个飞满回旋镖的番里，祥子不找C团老人的原因，爱音一语成谶：
+
+就是现在祥子和其他人中间已经 ...</blockquote>
+我觉得不是灯唱不出，而是祥子不敢听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 9012#       发表于 2025-1-17 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出也是音乐的一环啊，帮助理解音乐的含义啊。（虽然我没听过mujica的音乐）
+
+现实里，soundhorizon这种有大量旁白的，还有音乐剧的。
+
+喵梦这情况就是感觉跟revo说，你别唱歌了，就直接当舞台剧演吧，比搞音乐局火！
+
+*****
+
+####  天空塔书记官  
+##### 9013#       发表于 2025-1-17 14:55
+
+路人队车翻银河战舰现实又不是没发生过，更何况是在邦这个唯心的世界里
+
+但真要让三人打职业，先不提灯的的电波，光风格就和祥子的世界观对不上
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  御幸一也  
+##### 9014#       发表于 2025-1-17 14:57
+
+所以這是不是你邦第一次濃度這麼高的官方應援圖<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer"> 
+
+這小手牽的
+
+<img src="https://img.saraba1st.com/forum/202501/17/145719j41lhbeyb431j9aw.jpg" referrerpolicy="no-referrer">
+
+<strong>GhLqWe0aEAAikJR.jpg</strong> (340.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 14:57 上传
+
+[https://x.com/krgrmo/status/1879902680216211552](https://x.com/krgrmo/status/1879902680216211552)
+
+*****
+
+####  盐盐盐盐盐  
+##### 9015#       发表于 2025-1-17 14:57
+
+灯可是单人诗朗诵都能一场比一场观众多的神人，要说天才谁是真天才啊（后仰）
+

@@ -6356,3 +6356,117 @@ side6 经济大于 吉翁
 
 至于新时代把少年改成了少女，更多是现实里观众口味的影响。
 
+
+*****
+
+####  蕾洁之风  
+##### 3604#       发表于 2025-1-17 14:46
+
+ 本帖最后由 蕾洁之风 于 2025-1-17 14:50 编辑 
+
+M.A.V.战术是夏亚和夏利亚一起想出来的还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/87a85b8057314e00f842f11cd1a63203/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  UNINSTALL42  
+##### 3605#       发表于 2025-1-17 14:46
+
+<blockquote>kongxian 发表于 2025-1-17 14:44
+年轻人进场被糊一脸0079，那接下来部分怎么收场。完全切割？前面完全沦为背景板各拍各的？开香槟到底是谁开 ...</blockquote>
+为啥直接默认之后不会和0079扯上关系了……
+
+*****
+
+####  王留美  
+##### 3606#       发表于 2025-1-17 14:49
+
+扎比家兄妹79年不死等着在85年被干掉吧
+
+鸭妹和骡子还有很大概率会出来
+
+至于鸭子，八成就在主角团里面
+
+*****
+
+####  王留美  
+##### 3607#       发表于 2025-1-17 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205251&amp;ptid=2209276" target="_blank">艾特娜 发表于 2025-1-17 14:38</a>
+ 修司本体应该是头上的机器人？人体是战场上随便捡的小兵</blockquote>
+小机器人是红敢达的本体吧，怕不是鸭子哦
+
+
+*****
+
+####  艾特娜  
+##### 3608#       发表于 2025-1-17 14:55
+
+ 本帖最后由 艾特娜 于 2025-1-17 14:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205255&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-17 14:38</a>
+
+水魔从战争戏改成校园戏，观众无不哀叹制作组不做人
+
+现在新高达制作组又受水魔影响把军人主角改成普通女 ...</blockquote>
+开玩笑吧，高达里开场就是正经军人的主角反而是少数
+
+*****
+
+####  cowgp01  
+##### 3609#       发表于 2025-1-17 14:55
+
+老太婆和大基还有少爷应该还是会有戏份
+
+*****
+
+####  没取名啊  
+##### 3610#       发表于 2025-1-17 14:55
+
+德金老头呢？还活着吗？
+
+*****
+
+####  虛無迴廊  
+##### 3611#       发表于 2025-1-17 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205206&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-17 14:34</a>
+修司 像高达的妖精一样的人</blockquote>
+真就高达成精啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3612#       发表于 2025-1-17 14:56
+
+塞拉肯定还会登场吧
+
+骡子就不好说了，他作为驾驶员的位置差不多被塞拉取代了
+
+但提姆雷出场，带他的研究员儿子走个过场也不是不可能
+
+甚至有可能儿子还带个印度女朋友
+
+本次剧场版看X的repo，最大赢家是夏利亚<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+原版只是设定厉害的龙套角色，在新剧场版成为了又强又讨喜的帅大叔
+
+*****
+
+####  王留美  
+##### 3613#       发表于 2025-1-17 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205419&amp;ptid=2209276" target="_blank">艾特娜 发表于 2025-1-17 14:55</a>
+ 开玩笑吧，高达里开场就是正经军人的主角反而是极少数</blockquote>
+这里说的水魔的影响我觉得是观众对于女性敢达主角的接受度大幅提高了
+
+*****
+
+####  Toby_dak  
+##### 3614#       发表于 2025-1-17 14:56
+
+<blockquote>ティグル 发表于 2025-1-17 15:11
+我意思就是鸡瘟拿下了LUNA2啊
+
+EFF在宇宙最后的支点都没了鸡瘟不是随便玩，结果还是只闹了个独立 ...</blockquote>
+自护也没足够人力和物力维持占领地球啊。签个确保各SIDE独立的和约，把联邦限制在大气层内属于很理智的决策了。
+

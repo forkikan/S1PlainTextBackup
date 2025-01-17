@@ -1579,3 +1579,15 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 感觉她不会大爆 说不定还是包饺子主理 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rushsong  
+##### 161#       发表于 2025-1-17 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199160&amp;ptid=2242398" target="_blank">dutage 发表于 2025-1-16 23:32</a>
+有个问题，这种级别的商业乐队，没有保密条款吗？如果合同里白纸黑字说了，不许摘面具，摘了就交违约金，喵 ...</blockquote>
+mujica可能比想象中的更自由，这一集祥子甚至说能拒绝事务所的要求（让睦表演）。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
