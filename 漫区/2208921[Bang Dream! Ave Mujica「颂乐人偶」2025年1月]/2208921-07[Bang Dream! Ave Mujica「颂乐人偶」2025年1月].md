@@ -3272,3 +3272,38 @@ mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不�
 
 睦的情况就是直接解离出一个莫女士，肯定是共享技能点的，问题就是莫女士本质就是在睦濒临崩溃时顶号上来，避免睦的内心受到创伤，但是，她又保存了太多睦的创伤回忆，而且二者在第三集开始了交流，莫女士开始分享记忆了，这对睦的精神会有更大的破坏
 
+
+*****
+
+####  一心而用  
+##### 9174#       发表于 2025-1-17 20:39
+
+<img src="https://p.sda1.dev/21/d5bce1ebe6ccdacc139bab2d139f03a8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1ca4f38bb2947d3c553f61586cfb7304/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 9175#       发表于 2025-1-17 20:41
+
+一般来说不会共享技能的，只要弹吉他就要让出睦原本的人格。
+或者说哪怕mortis弹吉他，肯定弹的与原本的人格相差甚远
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  NODY  
+##### 9176#       发表于 2025-1-17 20:42
+
+海铃现在就是干的经纪人的活（人物介绍说的日程调整和后台事务协调），也不知道是祥子为了能自己掌控全场不请经纪人还是单纯的省经纪人的工资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  borrowface  
+##### 9177#       发表于 2025-1-17 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208604&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-17 20:39</a></blockquote>
+这是哪的榜
+
