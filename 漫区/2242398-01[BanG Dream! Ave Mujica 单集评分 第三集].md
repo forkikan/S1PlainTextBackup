@@ -1239,3 +1239,16 @@ motis超我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 给个+1，你邦一开始就是异世界，对运作规律跟现实不一样的地方不能太过苛刻
 
+
+*****
+
+####  Victorino  
+##### 128#       发表于 2025-1-17 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200613&amp;ptid=2242398" target="_blank">AkaiSuisei 发表于 2025-1-17 06:47</a>
+
+不打分了，摘几句台词吧
+
+“降低写作水平的作家 有存在的意义吗”</blockquote>
+「弃祥子而去」不等于「恶人」吧，二偶每个角色都有厨，而且母鸡卡是商业团队不是afterglow那种亲密好友课外消遣，并不是团结就一定对、分歧就一定错
+

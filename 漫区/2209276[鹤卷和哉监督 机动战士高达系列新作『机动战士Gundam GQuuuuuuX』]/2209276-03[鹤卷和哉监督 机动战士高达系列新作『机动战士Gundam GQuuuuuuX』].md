@@ -1910,3 +1910,81 @@ WHITE GUNDAM 白高达
 
 0079第一话的杂兵好像还是第一个出现/说话的角色吧，历史转折点是这人没上场也确实太会玩了
 
+
+*****
+
+####  X(iaolw)S  
+##### 3146#       发表于 2025-1-17 08:38
+
+<blockquote>引用第3125楼YU_JI于2025-01-17 08:06发表的  :
+
+所以说这个世界骡子还是上机了？但是上的一号机，鸭骡一人一台？</blockquote>
+@YU_JI
+
+鸭是二号机，这个世界应该没骡子事了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.41)
+
+*****
+
+####  萨尤克  
+##### 3147#       发表于 2025-1-17 08:40
+
+历史变动点看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸭子CV这履历看着好微妙啊，实际究竟行不行<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  X(iaolw)S  
+##### 3148#       发表于 2025-1-17 08:41
+
+核心战机看起来是G高达的形式，只有飞机头插进身体 ，主体当背包
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.41)
+
+
+*****
+
+####  咖啡配黑鸡  
+##### 3149#       发表于 2025-1-17 08:42
+
+<img src="https://img.saraba1st.com/forum/202501/17/084249oqqqnqdgrvyta3y7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-17-08-41-42-49_9d26c6446fd7bb8e41d99b6262b17def.jpg</strong> (87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 08:42 上传
+
+*****
+
+####  molemole  
+##### 3150#       发表于 2025-1-17 08:44
+
+竟然是夏亚和鸭妹打架
+
+*****
+
+####  AraTurambar  
+##### 3151#       发表于 2025-1-17 08:44
+
+笑死了，难怪这么藏。
+
+*****
+
+####  岸波白野扎比子  
+##### 3152#       发表于 2025-1-17 08:44
+
+这下明日香了
+
+*****
+
+####  PascalLefèvre  
+##### 3153#       发表于 2025-1-17 08:44
+
+你们要看的高清重制79来了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

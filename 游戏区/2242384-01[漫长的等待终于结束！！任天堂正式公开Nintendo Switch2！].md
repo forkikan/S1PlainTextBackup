@@ -1334,3 +1334,100 @@ b0e0fc4a93e4c29f8ea6b9a6f1e9c2a3.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dongle2001  
+##### 157#       发表于 2025-1-17 08:38
+
+看来老任这次铁了心要生产出足够多的库存在开卖，不过万一凉了卖不出去这么多不是瞎了。看不出来有什么吸引轻度玩家换机的理由？
+
+*****
+
+####  oniwarud  
+##### 158#       发表于 2025-1-17 08:39
+
+ns从公布到第一次发布会也是隔了几个月的，ns2在这期间肯定会有参加各种节目露脸刷存在感的
+
+
+*****
+
+####  泰坦失足  
+##### 159#       发表于 2025-1-17 08:43
+
+看到有人说和PS5那个宣传视频有点像。但是PS5 那个预告片是 PS5 Reveal Event Live | Summer of Gaming 2020 的一部分.[https://www.youtube.com/live/Ns54vfxCYPA?si=M3FRLWH1YdC0AZ4S](https://www.youtube.com/live/Ns54vfxCYPA?si=M3FRLWH1YdC0AZ4S)
+
+当然现在来看好像就GT7 GTA次时代版 瑞奇与叮当 地平线2 还行。剩下要么是雷，要么是多平台游戏。但毕竟各个游戏都有实机（别管是啥渲染的，至少画面有个底）
+
+Grand Theft Auto 5/GTA Online ("expanded and enhanced" - Rockstar Games/2K) - 2021
+
+Marvel's Spider-Man Miles Morales (Insomniac Games) - Holiday 2020
+
+Gran Turismo 7 (Polyphony Digital) - TBA
+
+Ratchet &amp; Clank: Rift Apart (Insomniac Games) - TBA
+
+Project Athia (Luminous Productions/Square Enix) - TBA
+
+Stray (Bluetwelve/Annapurna Interactive) - 2021
+
+Returnal (Housemarque/XDEV) - TBA
+
+Sackboy A Big Adventure (Sumo Digital/XDEV) - TBA
+
+Destruction All Stars (Lucid/XDEV) - TBA
+
+Kena: Bridge of Spirits (Ember Lab) - TBA
+
+Goodbye Volcano High (KO-OP Mode) - 2021
+
+Oddworld Soulstorm (Oddworld Inhabitants) - TBA
+
+Ghostwire: Tokyo (Tango Gameworks/Bethesda Softworks) - 2021
+
+Jett: The Far Shore (Superbrothers &amp; Pine Scented) - Holiday 2020
+
+Godfall (Counterplay Games/Gearbox Publishing) - Holiday 2020
+
+Solar Ash (Heart Machine/Annapurna Interactive) - 2021
+
+Hitman 3 (IO Interactive) - January 2021
+
+Astro's Playroom (Japan Studio/Team Asobi) - TBA 
+
+Little Devil Inside (Neostream Interactive) - TBA
+
+NBA 2K21 (2K/Visual Concepts) - Fall 2020
+
+Bugsnax (Young Horses) - Holiday 2020
+
+Demon's Souls Remake (Bluepoint Games/Japan Studio) - TBA
+
+Deathloop (Arkane Lyon/Bethesda Softworks) - TBA
+
+Resident Evil Village (Capcom) - 2021
+
+Pragmata (Capcom) - 2022
+
+Horizon Forbidden West (Guerrilla Games) - TBA
+
+*****
+
+####  林檎  
+##### 160#       发表于 2025-1-17 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67199993&amp;ptid=2242384" target="_blank">88ace88 发表于 2025-1-17 01:06</a>
+
+有些谭油是真没见过一点泄露的信息呢还是装没见过？</blockquote>
+见过，但是真的没想到和泄露的还真就是完全一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  karastar  
+##### 161#       发表于 2025-1-17 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201067&amp;ptid=2242384" target="_blank">Kiyohara_Yasuke 发表于 2025-1-17 08:36</a>
+看了白皮那边的反应，基本都是觉得你任实在是被催的受不了了所以剪了个ns2宣布视频应付一下，加上直面会间 ...</blockquote>
+傻逼粉丝天天给自己吃假药吃傻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

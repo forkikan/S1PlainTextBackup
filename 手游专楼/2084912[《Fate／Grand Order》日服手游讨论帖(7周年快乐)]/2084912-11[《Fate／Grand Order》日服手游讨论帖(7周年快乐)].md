@@ -11060,3 +11060,87 @@ TMD 太狗了</blockquote>
 
 读心了，这池子只想抽5星礼装和黑姬然后出了绿色奶龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 16132#       发表于 2025-1-16 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">圣诞以来一个五星没抽到，新年不顺啊
+
+*****
+
+####  eilot  
+##### 16133#       发表于 2025-1-16 20:14
+
+再儲多30石來多次迦摩池
+
+還是只給多1隻蘭陵王...
+
+*****
+
+####  Jamaisvu  
+##### 16134#       发表于 2025-1-17 00:15
+
+ 本帖最后由 Jamaisvu 于 2025-1-17 00:18 编辑 
+
+比修内的画师伊右群老师画了2025年贺图，蛇年出蛇女很应景：
+
+<img src="https://img.saraba1st.com/forum/202501/17/001324nyf0xxi73py4iwqk.jpg" referrerpolicy="no-referrer">
+
+<strong>1737043882853.jpg</strong> (513.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 00:13 上传
+
+结果有个意想不到的人转帖了——小岛秀夫：
+
+<img src="https://img.saraba1st.com/forum/202501/17/001352jf66pg22fwfd6uiz.png" referrerpolicy="no-referrer">
+
+<strong>1737043874951.png</strong> (211.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 00:13 上传
+
+岛哥哥是莉可丽丝的真爱粉，光痛衫都有三件，这次可能是爱屋及乌吧：
+
+<img src="https://img.saraba1st.com/forum/202501/17/001757p4zgicc6i62xiivg.jpg" referrerpolicy="no-referrer">
+
+<strong>70e2b286ly1hsyq5hc10oj214y1kwqmh.jpg</strong> (239.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/001757uzqfvsv0tsyo7o27.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1737044235882a146febe38fc80c8172f89c756d8684f288398523f063e7f454523bfa0f9ced0.jpg</strong> (132.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/001757a124qlc8unmc4zcl.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1737044233696da2448a8ff460b940f79d86be71856e7e1348d9732ff079946feb5ccf8262d34.jpg</strong> (145.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-17 00:17 上传
+
+*****
+
+####  壳壳牛  
+##### 16135#       发表于 2025-1-17 08:41
+
+艹开年就被读心
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

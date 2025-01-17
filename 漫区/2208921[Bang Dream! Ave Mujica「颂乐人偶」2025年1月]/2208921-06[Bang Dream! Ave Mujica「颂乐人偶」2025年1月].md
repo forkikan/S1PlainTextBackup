@@ -15359,3 +15359,34 @@ mujica下一集</strong>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  阿兹尔  
+##### 8740#       发表于 2025-1-17 08:39
+
+喵梦一直念叨的庆功宴不会到最后一集才能吃上吧
+
+*****
+
+####  废都刽子手  
+##### 8741#       发表于 2025-1-17 08:40
+
+木子米和soyo是一个班的，没法想象木子米上学的时候受了多少拷打
+
+*****
+
+####  山ノ内花音  
+##### 8742#       发表于 2025-1-17 08:41
+
+说不定庆功宴马上就要来了
+但却是剧情意义上的 最后的晚餐<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 8743#       发表于 2025-1-17 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预告里大祥怎么看起来最后也选择合群的微微笑了，不是我眼花吧
+
