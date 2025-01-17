@@ -245,3 +245,15 @@ pdd claw7+8+上了  6199 6999
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 的确是又重又沉手感一般，感觉我应该不久之后又会挂咸鱼了。
 
+
+*****
+
+####  nozomitech  
+##### 1358#       发表于 2025-1-18 06:04
+
+还是那句话，claw7寸电池太小续航打不过改进版rog，8寸太重了，总之很尴尬。
+
+后面的Z2E价钱不说，3Zen5+5Zen C的组合我很怀疑多核性能能不能跑过8核Zen4
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
