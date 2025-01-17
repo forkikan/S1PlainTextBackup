@@ -10305,3 +10305,18 @@ tv里面的ace活着就是没建树，打钢加农打不过，死了更惨被钢
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 3982#         楼主| 发表于 2025-1-18 03:13
+
+[https://x.com/keinosuke_ami30/status/1880163143210659976](https://x.com/keinosuke_ami30/status/1880163143210659976)
+
+本日から放映の機動戦士ガンダム GQuuuuuuX に原画で参加いたしました
+
+最高の映画でした！
+
+アマテ・ユズリハ（マチュ）
+<img src="https://p.sda1.dev/21/95d31110d236b13a88da770d7ec47e2c/20250118_031214.jpg" referrerpolicy="no-referrer">
+
