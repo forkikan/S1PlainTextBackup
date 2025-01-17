@@ -4067,3 +4067,35 @@ mujica这样极高的成就（最速武道馆+巡演）配合毫无存在感的�
 呃看过第三集祥怎么决断的都不能说出这种话吧，这都不算观众印象了</blockquote>
 但是喵梦都觉得她偏袒幼驯染了吧
 
+
+*****
+
+####  akiomn  
+##### 9247#       发表于 2025-1-18 00:45
+
+内心小剧场细节挺多的，隔壁泥潭专楼已经逮到个蓝绿苹果，正好对上睦祥的颜色
+
+还有个是摔死三个玩偶的细节，xhs上先指出来的
+
+668AD568-A71F-4B13-854C-316262AAFC5E.jpeg
+(53.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 00:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/004509jnv06ih3x0wbibbx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 9248#       发表于 2025-1-18 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210500&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-1-18 00:35</a>
+
+但是喵梦都觉得她偏袒幼驯染了吧</blockquote>
+实际上就是偏袒幼驯染，第二话看到解散疑惑报道的时候祥子都说不出话了，下一秒硬是给咽下去了，开始对睦说一些不痛不痒的套话（我有领导责任，你要注意），我都觉得佩服
+
+只不过那时候睦已经恶化得非常厉害，就连那种套话都能变成很大压力
+

@@ -10037,3 +10037,29 @@ NOMELON NOLEMON《ミッドナイト・リフレクション》
 
 插曲能听了，感觉像是那种都市青春剧在夜晚无人的马路上日剧跑桥段才会插入的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 3959#       发表于 2025-1-18 00:46
+
+插曲好现充<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 只喜欢前奏
+
+
+*****
+
+####  二阶堂真琉  
+##### 3960#       发表于 2025-1-18 00:54
+
+NOMELON NOLEMON那首插曲好啊，这不是挺会选（
+
+
+*****
+
+####  没取名啊  
+##### 3961#       发表于 2025-1-18 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210463&amp;ptid=2209276" target="_blank">z692689995 发表于 2025-1-18 00:29</a>
+水魔最后一集时推特热搜是“最好的结局”</blockquote>
+“最高の最终回”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
