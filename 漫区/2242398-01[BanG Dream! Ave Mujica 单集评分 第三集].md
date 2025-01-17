@@ -1705,3 +1705,11 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 
 关于要不要细究：分清楚大少女乐队时代的设定和属于角色自身的行为逻辑，前者不能细究后者必须细究
 
+
+*****
+
+####  美亚羽  
+##### 174#       发表于 2025-1-17 20:49
+
+淋雨的小睦也好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

@@ -8439,3 +8439,88 @@ side6全是简中真日本吗</blockquote>
 
 他觉得side6是日本的话，是怎么做到塞一堆简中要素进去的）
 
+
+*****
+
+####  YU_JI  
+##### 3800#       发表于 2025-1-17 20:47
+
+<blockquote>型月神话伊阿宋 发表于 2025-1-17 20:44
+——从0079开始，SIDE6就被描绘成中立的殖民地，这次也着墨了军警这种独立的治安维持组织。
+
+[鹤卷]
+
+我认 ...</blockquote>
+我怎么觉得这访谈看上去不是很妙（）
+
+
+*****
+
+####  Sliurus  
+##### 3801#       发表于 2025-1-17 20:48
+
+老东西要开始键政了吗，希望只是个背景设定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 3802#       发表于 2025-1-17 20:50
+
+怎么感觉还是泡沫经济的余灰…
+
+*****
+
+####  supermangunv4  
+##### 3803#       发表于 2025-1-17 20:50
+
+鹤卷和哉上一作是让人ptsd的龙之牙医，傻逼右翼味太大了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzf111  
+##### 3804#       发表于 2025-1-17 20:51
+
+麻球一个殖民地jk抢了军队用MS还能混的下去吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3805#       发表于 2025-1-17 20:52
+
+别建政了整点三角恋吧，再建政引进不了了
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 3806#       发表于 2025-1-17 20:52
+
+本来也引进不了吧
+
+*****
+
+####  YU_JI  
+##### 3807#       发表于 2025-1-17 20:52
+
+<blockquote>zzf111 发表于 2025-1-17 20:51
+麻球一个殖民地jk抢了军队用MS还能混的下去吗</blockquote>
+夏利尔多半要留着她观察的，暂时不急着去把MS拿回来吧
+
+*****
+
+####  jojonathan  
+##### 3808#       发表于 2025-1-17 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208702&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-1-17 20:51</a>
+麻球一个殖民地jk抢了军队用MS还能混的下去吗</blockquote>
+我觉得下集就要被夏利亚连人带机绑走了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">而且绿色木马都准备好了肯定要出殖民卫星啦
+
+*****
+
+####  刺客ares  
+##### 3809#       发表于 2025-1-17 20:56
+
+夏利亚的戏份少不了是肯定的，他这作纯纯吉翁林有德定位，甚至手下那个驾驶员都像是吉翁版雷恩
+

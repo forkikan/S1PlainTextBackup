@@ -65,3 +65,34 @@ ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本�
 
 这立绘大图看着还可以
 
+
+*****
+
+####  holofan  
+##### 10684#       发表于 2025-1-17 18:35
+
+<img src="https://img.saraba1st.com/forum/202501/17/183521hdf7p5pefpfkf7tt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/183534okr0iz10z5aizail.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 18:35 上传
+
+*****
+
+####  holofan  
+##### 10685#       发表于 2025-1-17 20:52
+
+今天打工店员全员兽耳
+
+你个店长不意思一下
+
