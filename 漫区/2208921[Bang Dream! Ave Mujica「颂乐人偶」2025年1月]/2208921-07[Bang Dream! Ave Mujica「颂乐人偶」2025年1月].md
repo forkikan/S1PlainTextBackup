@@ -4449,3 +4449,15 @@ BLG无畏契约分部
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  rushsong  
+##### 9276#       发表于 2025-1-18 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209814&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-17 22:58</a>
+还是那句话，如果你想着纯搞音乐，就别商业化，至少别主流出道——如果说经纪公司如果是个底边公司还能得罪 ...</blockquote>
+商业乐队和音乐性不冲突，现在的问题是经纪公司让睦表演为主，你见过哪个商业乐队是以成员的演技为卖点的？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
