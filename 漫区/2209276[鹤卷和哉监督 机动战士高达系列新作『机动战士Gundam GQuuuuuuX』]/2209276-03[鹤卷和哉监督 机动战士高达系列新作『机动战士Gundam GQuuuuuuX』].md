@@ -6602,3 +6602,105 @@ EFF在宇宙最后的支点都没了鸡瘟不是随便玩，结果还是只闹�
 
 六个未知机体什么EVA量产机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3627#       发表于 2025-1-17 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205469&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-1-17 14:59</a>
+
+宇宙独立后是不是有可能发展成水魔那个世界观了，宇宙人占有资源是大爷，地球人水深火热是下等人 ...</blockquote>
+70年代认知当中认为摧毁北美地球的农业生产就崩盘了，现在看来肯定不是这样
+
+看怎么设定吧
+
+*****
+
+####  双菜  
+##### 3628#       发表于 2025-1-17 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205419&amp;ptid=2209276" target="_blank">艾特娜 发表于 2025-1-17 14:55</a>
+开玩笑吧，高达里开场就是军事组织成员的主角反而是少数</blockquote>
+我这句话也是在开玩笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 3629#       发表于 2025-1-17 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205320&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-17 14:45</a>
+
+这个倒不见得是水魔的锅，UC就是“少年遇见了高达”，骡、猫、猪、西布克、伍索，甚至巴上帝都是这样，原 ...</blockquote>
+说难听点胡索就是LM培养的生物兵器，是能划入少年兵范畴的
+
+*****
+
+####  王留美  
+##### 3630#       发表于 2025-1-17 15:10
+
+https://youtu.be/qN59SBiIJ8g?si=-d8YbfrE3xd03FY2
+官方剧透讨论帖
+
+
+*****
+
+####  nnis  
+##### 3631#       发表于 2025-1-17 15:14
+
+企画段階では固まっていたプロットは、アニメにするとほんの数話分の、宇宙における学校生活を中心としたシスターフードを予感させるストーリーでした。
+
+在企划阶段确定下来的剧情里，如果是动画的话有几集的篇幅，是以在宇宙中的学校生活为中心，能让人感到姐妹情谊的故事。
+
+<img src="https://img.saraba1st.com/forum/202501/17/151340rz0y1skhh0a0eguu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1963.jpeg</strong> (51.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 15:13 上传
+
+*****
+
+####  moeful  
+##### 3632#       发表于 2025-1-17 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205308&amp;ptid=2209276" target="_blank">kongxian 发表于 2025-1-17 14:44</a>
+
+年轻人进场被糊一脸0079，那接下来部分怎么收场。完全切割？前面完全沦为背景板各拍各的？开香槟到底是谁开 ...</blockquote>
+管人开香槟
+
+*****
+
+####  虛無迴廊  
+##### 3633#       发表于 2025-1-17 15:16
+
+校园姐妹情一演好几话？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 3634#       发表于 2025-1-17 15:17
+
+姐妹情？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 好几话
+
+*****
+
+####  猪突猛进R  
+##### 3635#       发表于 2025-1-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205515&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 15:04</a>
+
+吉翁侧的角色，基连基西莉亚正片肯定会再登场，他俩应该就是本作最终boss担当了
+
+卡尔玛不好说，私奔的话还 ...</blockquote>
+汤小美原作是扎比家唯一的血脉，所以才宝贵。
+
+而现在大基和紫婆都活着，她一点都不重要，动画有没有画面都难说。
+
+拉拉上面有人说过“宇宙玫瑰”，说不定还是被弗兰纳罕机关发掘了。
+
+卡尔玛幸存，兰巴不会去打复仇战多半活着，出不出场看制作组心情。
+
+黑色三连星不好说，联邦能反攻到宇宙，如果按旧0079发展的话多半无了。不过这是新宇宙一切皆有可能。
+

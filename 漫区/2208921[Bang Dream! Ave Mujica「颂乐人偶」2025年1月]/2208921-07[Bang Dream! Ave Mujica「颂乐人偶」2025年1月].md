@@ -1624,3 +1624,72 @@ C团去KTV时候小睦也笑了吧，小祥那时候就说“睦当然会笑了�
 
 初华和祥子出角色pv了
 
+
+*****
+
+####  天空塔书记官  
+##### 9025#       发表于 2025-1-17 15:10
+
+卖CP的靠的就是那口关系性，现在官方就是一直在强调两人存在关系性，就目前立希在A团的戏份，不可能无目的的虚空卖，那不就是在暗示立希还有戏份的吗
+
+而且海玲的人物形象应该很大部分来自小王子的故事，爱音给而立希起的昵称又是“狸希”，联想一下小王子和狐狸的故事，得出两人强绑定的结论应该不难<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  御幸一也  
+##### 9026#       发表于 2025-1-17 15:13
+
+CM睦祥和初祥含量極高<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+祥子
+[https://www.youtube.com/watch?v=Zcx5VnNy4CU](https://www.youtube.com/watch?v=Zcx5VnNy4CU)
+
+初華
+[https://www.youtube.com/watch?v=8P0QzAsWM1g](https://www.youtube.com/watch?v=8P0QzAsWM1g)
+
+睦
+[https://www.youtube.com/watch?v=N7hGFcHQd6U](https://www.youtube.com/watch?v=N7hGFcHQd6U)
+
+*****
+
+####  Renes  
+##### 9027#       发表于 2025-1-17 15:14
+
+剧中剧外观众对音乐性包容度都是高的，但祥子自己不认，那没办法。她就是个钻牛角尖的性格，她觉得这不是自己想要的，那就不是。
+
+*****
+
+####  山ノ内花音  
+##### 9028#       发表于 2025-1-17 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205451&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 14:57</a>
+所以這是不是你邦第一次濃度這麼高的官方應援圖 
+
+這小手牽的</blockquote>
+目前出过双人应援图的
+爱灯x2
+sumimi
+海希
+木箱
+
+*****
+
+####  天空塔书记官  
+##### 9029#       发表于 2025-1-17 15:15
+
+麻蛋，要是真按小王子和狐狸那样写，这俩就真要变女同了，而且和花的意向也能联系起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  NODY  
+##### 9030#       发表于 2025-1-17 15:16
+
+海铃cp在团外没什么奇怪的，邦邦团内cp绑得死紧的时候，总会有那么一两个被发配到和团外组cp的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+hhw甚至有两个主推在团外且对象是同一个人的
+
