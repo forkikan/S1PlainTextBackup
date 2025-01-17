@@ -6927,3 +6927,76 @@ side7的一号机是鸭妹开的还是未确认？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3658#       发表于 2025-1-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205851&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-17 15:34</a>
+——0085的故事从三位主角的关系性展开。
+
+【榎户】
+
+我觉得三人关系如果没有新鲜感是不行的，在此基础上加入 ...</blockquote>
+木夏户拿出你做银河美少年的那股劲来啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Toby_dak  
+##### 3659#       发表于 2025-1-17 15:40
+
+ 本帖最后由 Toby_dak 于 2025-1-17 16:41 编辑 
+<blockquote>王留美 发表于 2025-1-17 16:28
+side7的一号机是鸭妹开的还是未确认？
+
+最终站鸭妹是开三原色轻加农吗？</blockquote>
+0079开场鸭妹还是护士吧，肯定不是RX-78-1驾驶员。RX-78-1还被马沙用光剑干爆，驾驶员无了。
+
+所罗门里，马沙都喊出アルテイシア，那还能是谁。
+
+*****
+
+####  YU_JI  
+##### 3660#       发表于 2025-1-17 15:41
+
+痞子负责0079，榎户负责0085，最后成片质量感觉还是得看鹤卷怎么在中间端这碗水了，真不能两个部分各玩各的吧
+
+*****
+
+####  PascalLefèvre  
+##### 3661#       发表于 2025-1-17 15:41
+
+鹤卷gg，你好可怜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  刺客ares  
+##### 3662#       发表于 2025-1-17 15:43
+
+鹤卷gg一手扛着痞子一手拖着榎户，仍旧屹立于大地之上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 3663#       发表于 2025-1-17 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205911&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-17 15:40</a>
+
+0079开场鸭妹还是护士吧，肯定不是RX-78-1驾驶员。RX-78-1还被马沙用光剑干爆，驾驶员无了。
+
+所罗门里，马 ...</blockquote>
+RX-78-1如果按PSP新基连野望的IF剧本，驾驶员是骡爸。
+
+*****
+
+####  卑弥呼yamato  
+##### 3664#       发表于 2025-1-17 15:45
+
+为什么鹤卷gg一直是抗压位，因为真的爱吗
+

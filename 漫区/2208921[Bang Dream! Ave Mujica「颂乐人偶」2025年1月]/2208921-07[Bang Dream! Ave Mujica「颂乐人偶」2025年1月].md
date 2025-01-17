@@ -1894,3 +1894,173 @@ Mortis最壞心眼的地方在於，她的誕生，會讓Ave Mujica開始往好�
 
 现在保留下来的估计也就只剩立希开导海铃的小王子狐狸的部分了，剩下的估计给手游补完了，立希大部分故事都是手游补的
 
+
+*****
+
+####  天空塔书记官  
+##### 9051#       发表于 2025-1-17 15:39
+
+但给个闪回还是够的，起码能一窥一二
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 9052#       发表于 2025-1-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205859&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 15:35</a>
+我站素睦，初华才是和祥子对位的那个吧，愚神之歌的含金量
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+愚神不是睦祥的关系曲吗？
+
+*****
+
+####  狂热飞鸟  
+##### 9053#       发表于 2025-1-17 15:39
+
+我觉得睦线的作用之一就是要让祥子知道自己不是只有母鸡卡了，有人会一直站在她这边。
+
+而当祥子意识到自己还有睦的时候就会放下对母鸡卡这个抽象的概念的执著。
+
+我猜可能会有祥子真要在母鸡卡和白睦之间选一次的剧情出现来拉回白睦。
+
+*****
+
+####  天空塔书记官  
+##### 9054#       发表于 2025-1-17 15:41
+
+真正把祥子当做神明的只有初华，其他人都不是，只有初华才是信徒<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  上条仁美  
+##### 9055#       发表于 2025-1-17 15:41
+
+<blockquote>山ノ内花音 发表于 2025-1-17 16:28
+海希关系的底色就很健康清爽 
+
+感觉不会有太多波折</blockquote>
+海希完全就是傲娇和油腻男
+
+*****
+
+####  akiomn  
+##### 9056#       发表于 2025-1-17 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205919&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 15:41</a>
+真正把祥子当做神明的只有初华，其他人都不是，只有初华才是信徒
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+愚神是高尾钦定的睦祥关系曲，和初华没关系，初祥的关系曲我记得是双月和Angles
+
+
+*****
+
+####  天空塔书记官  
+##### 9057#       发表于 2025-1-17 15:42
+
+一直在向祥子表达感情，但一直没有得到回应也只有初华，木头和祥子是半身和姐妹，而不是神明和信徒<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ml1642879  
+##### 9058#       发表于 2025-1-17 15:43
+
+海铃这种说话直的一批的到底怎么沾上油腻这二创人设的
+
+*****
+
+####  天空塔书记官  
+##### 9059#       发表于 2025-1-17 15:43
+
+以上仅代表个人观点，看之后初华怎么爆吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 9060#       发表于 2025-1-17 15:44
+
+ 本帖最后由 厚乳果珍爽 于 2025-1-17 15:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205799&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 15:30</a>
+
+好像確實</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真我真怀疑mujica的ture ending就是所有人带上假面，变成他们歌中的人偶，原来的人格全没了。
+
+*****
+
+####  御幸一也  
+##### 9061#       发表于 2025-1-17 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">沒關係，聲優的反應告訴我初華一定有得到回應，愛信等
+
+*****
+
+####  akiomn  
+##### 9062#       发表于 2025-1-17 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素睦我先不说，但初祥把愚神这个睦祥关系曲盗走是真的过分了，高尾钦定过的睦祥关系曲，还说看完剧情再来听这歌会有感触的
+
+*****
+
+####  黑夜落叶秋天  
+##### 9063#       发表于 2025-1-17 15:45
+
+观众:海铃 喵梦 初华 睦 祥子 有了我不知道的另一面
+
+*****
+
+####  阿兹尔  
+##### 9064#       发表于 2025-1-17 15:46
+
+睦祥的关系性太深了，还好邦多利是一个cp乱炖企划，要不初华就难顶了
+
+*****
+
+####  上条仁美  
+##### 9065#       发表于 2025-1-17 15:46
+
+<blockquote>ml1642879 发表于 2025-1-17 16:43
+海铃这种说话直的一批的到底怎么沾上油腻这二创人设的</blockquote>
+
+第二话那个只有你能找到我还不油腻吗，都幻视お嬢様is time to go bed了
+
+*****
+
+####  山ノ内花音  
+##### 9066#       发表于 2025-1-17 15:46
+
+祥子虽然在睦面前已经不得不0了
+但最后很有可能在初华那里1起来
+
+*****
+
+####  IWS2000  
+##### 9067#       发表于 2025-1-17 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205977&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 15:46</a>
+祥子虽然在睦面前已经不得不0了
+但最后很有可能在初华那里1起来</blockquote>
+可以串联起来
+
+*****
+
+####  akiomn  
+##### 9068#       发表于 2025-1-17 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205977&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 15:46</a>
+祥子虽然在睦面前已经不得不0了
+但最后很有可能在初华那里1起来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大金毛还没把假面摘下呢，现在只是让着祥子当1，等摘下假面祥子就知错了
+
