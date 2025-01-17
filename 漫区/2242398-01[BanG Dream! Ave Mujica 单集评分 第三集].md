@@ -1772,3 +1772,14 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 车站大战时完全没避讳现场有普通人，在演出上场前后台直接吵架也是，大祥老师你有没有管理观念的？ ...</blockquote>
 这个热度的乐队在公共场合吵架居然没人拍下来发ytb<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 182#       发表于 2025-1-18 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台长之前对mygo的描述是不起眼的载具突然飞起来又解体还能平稳落地;
+那ave mujica就是在坐着的那半截落地之后，突然又冒出来推进器和钻头，开始直冲云霄直达宇宙，不知道这一次是什么结局的狂气，个人现在继续给+2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

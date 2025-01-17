@@ -10092,3 +10092,59 @@ NOMELON NOLEMON那首插曲好啊，这不是挺会选（
 看了下盗摄的开头那段，熟悉的一幕幕场景+熟悉的老UC面孔+旧版BGM+旧版机械音效+奇怪的新机设+完全反着来的 ...</blockquote>
 当年看z的也不习惯一个被称为阿姆罗二世的人帮夏亚抢高达打联邦吧
 
+
+*****
+
+####  刺客ares  
+##### 3965#       发表于 2025-1-18 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210615&amp;ptid=2209276" target="_blank">terminator1990 发表于 2025-1-18 01:02</a>
+
+看了下盗摄的开头那段，熟悉的一幕幕场景+熟悉的老UC面孔+旧版BGM+旧版机械音效+奇怪的新机设+完全反着来的 ...</blockquote>
+刚才看了个对比视频
+
+鸭子启动高达的动作流程和骡子是完全一样的
+
+他甚至在复述骡子的台词
+
+后续分镜也完全一样，只有光剑捅驾驶舱的画面是和原版镜像
+
+难以想象姨姥在影院看到这个是什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 3966#       发表于 2025-1-18 01:20
+
+这一天下来给我的感觉是把前后两段分开给各自的受众看都能得到一定的好评，但是把这两拨重合度不高的观众凑在一起让他们看这部缝合怪的话风评就一言难尽了，这在商业上不是个很好的决定。
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3967#       发表于 2025-1-18 01:21
+
+看了盗摄的画面感觉就是0079 remake野史版
+史不史不知道总之挺野的
+不管观众们觉得这是好活还是烂活，总之感觉大家都讨论得挺热火朝天的
+挺有得聊
+就是不知道这些料能坚持多久了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实真的算挺大挺爆的了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  pu  
+##### 3968#       发表于 2025-1-18 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210655&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 01:15</a>
+
+刚才看了个对比视频
+
+鸭子启动高达的动作流程和骡子是完全一样的
+
+他甚至在复述骡子的台词</blockquote>
+我前面的回帖里就说了丫 233 
+
+夏亚说着各种其他人的名台词 包括“時が見える~”
+
