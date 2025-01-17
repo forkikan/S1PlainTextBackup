@@ -3117,3 +3117,16 @@ op肯定是乐队的完全体，go片里最后一集才演到刚成团但op一�
 吃瘪到13集那还是拍剧场版逆袭的祥子吧</blockquote>
 仔细一想夏亚还真是一直在吃瘪
 
+
+*****
+
+####  江口夕  
+##### 9160#       发表于 2025-1-17 19:21
+
+ 本帖最后由 江口夕 于 2025-1-17 19:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比较好奇mortis吉他谈的怎么样，毕竟这玩意太真实，能反应一个人当时的状态。
+吉他是属于本体睦的。mortis根本是弹不出的。我猜测后面出新歌谈吉他的时候就是反向夺舍的时候
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
