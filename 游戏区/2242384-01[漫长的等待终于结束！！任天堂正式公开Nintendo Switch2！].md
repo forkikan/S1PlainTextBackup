@@ -1918,3 +1918,16 @@ PS2缓缓地打出一个问号
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  泰坦失足  
+##### 214#       发表于 2025-1-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206825&amp;ptid=2242384" target="_blank">大暴死 发表于 2025-1-17 17:04</a>
+
+所以按这思路应该直接叫nsw3是吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+Nintendo Switch Forever 简称NSWF
+

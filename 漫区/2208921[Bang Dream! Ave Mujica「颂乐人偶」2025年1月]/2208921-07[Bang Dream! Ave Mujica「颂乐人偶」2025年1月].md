@@ -2812,3 +2812,22 @@ Mortis的出現會讓Ave Mujica更上一層，這應該是肯定的。
 马上要体现出半身的含金量了，祥子要做到这点就相当于把自己身上的高贵全部打碎，重新塑造以祥睦姐妹为中 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问题就是怎么才能让Mortis回头，低低在下的小祥能破Mortis的防吗
 
+
+*****
+
+####  凉良  
+##### 9132#       发表于 2025-1-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207000&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-17 17:24</a>
+问题就是怎么才能让Mortis回头，低低在下的小祥能破Mortis的防吗</blockquote>
+只要mortis出现的目标达不成自己就把自己破防了吧
+
+
+*****
+
+####  akiomn  
+##### 9133#       发表于 2025-1-17 17:34
+
+广播有说第四集结尾是意想不到的展开，第五集是更多的麻烦
+黑睦这个形象出来就是要搞事的，不然那么负面的演出就白设计了，如果连目标都达不到就不会出现pv里遍地玩偶和砸书那俩画面了
+
