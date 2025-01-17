@@ -3174,3 +3174,17 @@ mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不�
 
 弹吉他 那可以期待继续大抽陀螺爆个大的了
 
+
+*****
+
+####  akiomn  
+##### 9165#       发表于 2025-1-17 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208048&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-17 19:37</a>
+mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不可能那么多集一场live没有。
+
+弹吉他 那可以期待 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">严格意义上说，第一集killkiss算live。
+如果黑睦会弹吉他，第四集开始很适合新歌live，但我觉得wsd这群懒狗不太可能啊，第一集拿op做了live，过个两集又端上个live，然后第七集想搞祥子生日整大活的话继续端上live……
+呃，我觉得懒狗wsd不太可能那么勤快
+

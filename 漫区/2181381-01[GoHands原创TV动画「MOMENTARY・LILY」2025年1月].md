@@ -122,3 +122,11 @@ ep3的回忆杀是不是说明后面女主还会复活<img src="https://static.s
 
 以百合为中心，为了纪念她而成立的队伍，核心成员是莲华，那你们队伍就叫“一莲队”吧，英文名也想好了，就叫Razgriz怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梅斯之围  
+##### 124#       发表于 2025-1-17 19:39
+
+金发是辛梅尔，开局就死了，后续只活在回忆里，然后一群人重走长征路
+
