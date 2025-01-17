@@ -1498,3 +1498,13 @@ Horizon Forbidden West (Guerrilla Games) - TBA
 NS2正式公布了，而我公司年会的奖品听说有国行NS，我现在就这表情</blockquote>
 我司以前一直是国行ns，今年换成PS5了
 
+
+*****
+
+####  撸一记  
+##### 170#       发表于 2025-1-17 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67197913&amp;ptid=2242384" target="_blank">铅笔 发表于 2025-1-16 22:07</a>
+够呛，搞不好一年宣发期，明年三月发售。</blockquote>
+那西瓜头还是自裁吧
+

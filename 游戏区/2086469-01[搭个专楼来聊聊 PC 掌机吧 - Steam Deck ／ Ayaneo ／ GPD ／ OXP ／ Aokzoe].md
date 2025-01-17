@@ -108,3 +108,14 @@ winmini要出2025版了，但看评测所谓的散热升级还是没什么意义
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zid99825  
+##### 1344#       发表于 2025-1-17 10:31
+
+微星 CLAW 7 AI+ 以及 CLAW 8 AI+ 掌机公布国行售价6999/7999
+1月23发售
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
