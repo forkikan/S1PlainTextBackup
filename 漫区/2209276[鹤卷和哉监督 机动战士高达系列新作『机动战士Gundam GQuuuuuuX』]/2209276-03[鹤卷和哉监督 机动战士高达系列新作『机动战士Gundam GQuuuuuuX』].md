@@ -3462,3 +3462,102 @@ cv还是钉宫 草
 
 悬着的心终于放下了
 
+
+*****
+
+####  卑弥呼yamato  
+##### 3319#       发表于 2025-1-17 10:42
+
+笑话1: 你都量产大扎姆了，地球的战役居然都失败了
+笑话2: 月神二号都陷落了，居然同意联邦谈判
+
+新世界线人物性格也都全变了吧！
+
+*****
+
+####  bindata  
+##### 3320#       发表于 2025-1-17 10:43
+
+看完，味道太怪了只能+0，不过出场了好多79角色所以感觉可以期待下
+
+
+*****
+
+####  RE㐅ia  
+##### 3321#       发表于 2025-1-17 10:43
+
+不对，咋没人说感情线呢？豚豚厨厨有能开香槟的嘛（
+
+*****
+
+####  王留美  
+##### 3322#       发表于 2025-1-17 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202511&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-17 10:35</a>
+
+场刊扫图 https://musetransfer.com/m/s/7zjpoixwr ｜ 密码：9623  有效期至1月24日</blockquote>
+超过下载次数限制了
+
+*****
+
+####  PascalLefèvre  
+##### 3323#       发表于 2025-1-17 10:45
+
+不是说男主没啥戏分，俩女主关系很好吗
+
+但是同时男女主又裸漂了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 3324#       发表于 2025-1-17 10:45
+
+地球战役是失败还是不想打自己撤退的？
+
+敖德萨看起来根本就没打起来？
+
+*****
+
+####  RE㐅ia  
+##### 3325#       发表于 2025-1-17 10:46
+
+<blockquote>王留美 发表于 2025-1-17 10:44
+超过下载次数限制了</blockquote>
+群里有，加精了
+
+*****
+
+####  盖尔杰特克  
+##### 3326#       发表于 2025-1-17 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67201902&amp;ptid=2209276" target="_blank">香雨香香 发表于 2025-1-17 09:49</a>
+
+啊？鸭妹？啥时候来的？鸭妹都有这实力了？那骡子还是鸭妹初恋男友吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+鸭妹也是nt阿，开挂起来不也很正常，你高nt就是比正常人高级的存在
+
+*****
+
+####  王留美  
+##### 3327#       发表于 2025-1-17 10:46
+
+ 本帖最后由 王留美 于 2025-1-17 10:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202615&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-1-17 10:45</a>
+
+地球战役是失败还是不想打自己撤退的？
+
+敖德萨看起来根本就没打起来？</blockquote>
+失败的
+
+敖德萨打了，但是没降下就败了
+
+edit，看错了，不是敖德萨是贾布罗
+
+*****
+
+####  没取名啊  
+##### 3328#       发表于 2025-1-17 10:47
+
+这条世界线里吉翁方面管事的是德金还是基连？
+

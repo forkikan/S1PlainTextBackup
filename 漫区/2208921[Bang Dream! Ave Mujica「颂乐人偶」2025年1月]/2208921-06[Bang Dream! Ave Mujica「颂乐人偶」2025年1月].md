@@ -16329,3 +16329,108 @@ Gigguk将在北京时间1月19日10点直播看MyGO
 同理，吵架的时候 ...</blockquote>
 就连渣男也不是见到个女的就上去骚撩的
 
+
+*****
+
+####  天空塔书记官  
+##### 8824#       发表于 2025-1-17 10:38
+
+祥子在构建ave世界观的时候没有考虑其他人，创作时从来不与乐团成员发生意见和情感上的交流，所以除了她以外，没有人对这个世界观投入感情，正如立希评价，这根本不是乐队，不是一个情感链接的共同体，到目前为止，其实只有“神明”在唱独角戏，其他的成员只是陪伴她这个任性的小女孩在过家家的人偶而已，但人注定不是人偶，没法抛弃自我意志来无底线地顺从于她，黑睦的出现虽然仍然算是顺应祥子的期待，但事实上已经开始动摇“神明”在世界观中的主导地位，下一集无疑就是着重体现这一点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  bourier  
+##### 8825#       发表于 2025-1-17 10:39
+
+祥子应该很清楚摘了面具，必然被流量裹挟，核心肯定会往睦以及初那边移动
+
+而她又是准备靠这个吃饭的
+
+现在差不多等于祥子跑去找睦：借我点钱，下辈子还
+
+虽说只要开口，睦和初华应该真会借，但真开不了这口
+
+*****
+
+####  玖羽  
+##### 8826#       发表于 2025-1-17 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202536&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-17 10:37</a>
+
+就连渣男也不是见到个女的就上去骚撩的</blockquote>
+都是用视频挖掘，chu2挖掘pareo的时候pareo视频播放量是个位数，chu2就能看出音乐是pareo内心的呐喊，所以pareo死心塌地
+
+*****
+
+####  帆前  
+##### 8827#       发表于 2025-1-17 10:39
+
+<img src="https://p.sda1.dev/21/50014582cc5fa2a1aedf836ae6e5680a/Screenshot_20250117_103715.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 8828#       发表于 2025-1-17 10:41
+
+<blockquote>古明地雷 发表于 2025-1-17 10:32
+你的看法的问题是，睦就是不想演，祥子替她说出来，你非要解读这个行为是为了母鸡卡，而不是帮睦拒绝。有 ...</blockquote>
+不冲突，是都需要拒绝，但确实是有优先度，就是祥子为了母鸡卡而拒绝也同时是帮了睦，但是在问题继续发生的时候，具体是哪个更优先，影响了后续故事走向。
+
+祥子转头对睦帮助自己的时候，此时当下肯定是满脑子只有母鸡卡的，在睦的角度里则是祥子已经快坏掉了，自己没有办法依靠现在的祥子，而是要做点什么。
+
+祥子的状态也是随着情况的不同在随时变化的，如果当时没有在车站吵架，祥子可能就会先手关心睦了。
+
+*****
+
+####  金属化反射装甲  
+##### 8829#       发表于 2025-1-17 10:41
+
+已经看到之前被op吸引过来看的人开始受不了高压剧情氛围了，一想到还得持续好几集。。场外也在抗压呢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 8830#       发表于 2025-1-17 10:41
+
+我现在只想看第四集，偶内盖
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  darkXcross  
+##### 8831#       发表于 2025-1-17 10:42
+
+车站吵架这一段现在想想还挺有想法的，通过复刻黑刀之夜，让喵梦成为观众嘴替把当年祥子说的话一句句怒怼回去，也算是给憋了一年多气的观众一个发泄的出口。
+
+
+*****
+
+####  御幸一也  
+##### 8832#       发表于 2025-1-17 10:46
+
+新的小垃圾.jpg
+
+[https://bushiroad-store.com/products/2000206776899](https://bushiroad-store.com/products/2000206776899)
+
+<img src="https://bushiroad-global-online-store.com/cdn/shop/files/am_petatto_Can_ari.jpg" referrerpolicy="no-referrer">
+
+[https://bushiroad-store.com/coll ... ducts/2000206776745](https://bushiroad-store.com/collections/all/products/2000206776745)
+
+<img src="https://bushiroad-global-online-store.com/cdn/shop/files/am_petatto_diorama_stand_ari_set.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  199april  
+##### 8833#       发表于 2025-1-17 10:46
+
+我觉得海玲已经有点生气了，这应该是好兆头，证明海玲开始对mujica上心了。
+
+大象老师的“正论”其实一点都站不住脚，所谓的“要追求音乐性”无非就是说辞，掩盖她开始掌握不了mujica的事实
+

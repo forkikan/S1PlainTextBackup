@@ -119,3 +119,32 @@ winmini要出2025版了，但看评测所谓的散热升级还是没什么意义
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  医生狼多  
+##### 1345#       发表于 2025-1-17 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67202456&amp;ptid=2086469" target="_blank">zid99825 发表于 2025-1-17 10:31</a>
+微星 CLAW 7 AI+ 以及 CLAW 8 AI+ 掌机公布国行售价6999/7999
+1月23发售</blockquote>
+7和8用的啥芯片
+
+*****
+
+####  zid99825  
+##### 1346#       发表于 2025-1-17 10:43
+
+lnl 258V
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  医生狼多  
+##### 1347#       发表于 2025-1-17 10:44
+
+看到了，我还以为有不同区别
+7和8好像就电池不同
+
