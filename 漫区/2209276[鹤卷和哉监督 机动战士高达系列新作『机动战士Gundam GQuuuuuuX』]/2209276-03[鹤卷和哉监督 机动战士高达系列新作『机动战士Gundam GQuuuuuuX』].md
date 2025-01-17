@@ -8649,3 +8649,53 @@ GQX已经落对面手上了，夏利亚手底下的人光是红高达就应付�
 
 痞子负责的这前半TV开播还会有吗？风格和正片完全是两部作品，割裂感也太大了。
 
+
+*****
+
+####  刺客ares  
+##### 3824#       发表于 2025-1-17 21:26
+
+拍摄的人在憋笑
+
+
+*****
+
+####  创始’’’天翔  
+##### 3825#       发表于 2025-1-17 21:32
+
+ 本帖最后由 创始’’’天翔 于 2025-1-17 21:33 编辑 
+
+首日没超闪哈，比多安岛多点
+
+<img src="https://img.saraba1st.com/forum/202501/17/213316bwpplphh729hu7xh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_145536883383334.jpg</strong> (160.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/213203rgu7w2ncflgogyeg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_145422072357596.jpg</strong> (258.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/213208ljo8i7igeusp9w8u.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_145420047406243.jpg</strong> (235.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/213212flxpeqaw9qkay3af.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_145418086588535.jpg</strong> (299.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 21:32 上传
+

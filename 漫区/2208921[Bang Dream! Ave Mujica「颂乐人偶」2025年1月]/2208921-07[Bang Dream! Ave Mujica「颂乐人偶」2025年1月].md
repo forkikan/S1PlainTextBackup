@@ -3363,3 +3363,28 @@ b站的     
 这个
 <img src="https://p.sda1.dev/21/00e55352ed1720865d44f67555e7cdc3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 9184#       发表于 2025-1-17 21:28
+
+有没有坛友知道[S1百综字幕组]发的那个是什么东西？纯搬运吗？
+
+[S1百综字幕组]BanG Dream! Ave Mujica [03][2160p][Bilibili][Web-DL][HDR][HEVC_AAC][简日双语]
+
+[S1百综字幕组]BanG Dream! Ave Mujica [02][2160p][Bilibili][Web-DL][HDR][HEVC_AAC][简日双语]
+
+[S1百综字幕组]BanG Dream! Ave Mujica [01][2160p][Bilibili][Web-DL][HDR][HEVC_AAC][简日双语]
+
+*****
+
+####  IWS2000  
+##### 9185#       发表于 2025-1-17 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209130&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-17 21:28</a>
+有没有坛友知道[S1百综字幕组]发的那个是什么东西？纯搬运吗？
+
+[S1百综字幕组]BanG Dream! Ave Mujica [03] ...</blockquote>
+他们自己翻译的
+
