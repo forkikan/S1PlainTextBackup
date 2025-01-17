@@ -15292,3 +15292,15 @@ mujica下一集</strong>
 由手机上传
 2025-1-17 07:54 上传
 
+
+*****
+
+####  Porsche  
+##### 8733#       发表于 2025-1-17 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67200802&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-17 07:54</a>
+看似同床异梦的合照大概率是后期的泪点</blockquote>
+如果贴的照片就是这张合影，意味着这是海铃第一个把这里当成家的地方，不再是雇佣兵了
+她才是最重视团队的那个
+凡是有拆团倾向的时候海铃一定会出来反驳，但目前初华先当盾了，说自己不会让乐队解散，所以说海铃有可能是在初华爆了之后全队最后才爆的那个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
