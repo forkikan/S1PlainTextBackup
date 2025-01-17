@@ -2244,3 +2244,126 @@ A团的剧情更是加剧了我的这一预感
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  fsfs_freeze  
+##### 9089#       发表于 2025-1-17 16:05
+
+ 本帖最后由 fsfs_freeze 于 2025-1-17 16:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205799&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 15:30</a>
+
+好像確實</blockquote>
+那也就是说，mortis的出现又把mujica推上了新的高峰，但成员中只有祥子知道这对睦本人不是好事（虽然可能是祥子的一厢情愿，但祥睦吵架和祥子最后一声睦，以及mortis吞噬睦的情景都证明了这是客观事实）。祥子想让睦回来，同时也是为了半身，那就必须抛下自己的“高贵”，以睦为自己的本心再次重塑mujica。
+
+这里还有另外一个问题，就是目前的mujica中祥子明显已经边缘化了，如果祥子挽回睦的动机还停留在让自己重新掌控mujica的话，那就算睦真的复归了的话，祥子就会仍然困在自己的“高贵”中，如此来祥子无论是剧中的人物塑造还是戏外风评都算不上差强人意，如此祥子为了拯救睦就不能展现出这种动机，这也会是她抛弃高贵的重要体现。
+
+再提一句，救回睦应该也会是初华篇章的开端。
+
+*****
+
+####  星天观测  
+##### 9090#       发表于 2025-1-17 16:05
+
+虽然那个角色pv给我看无语了但是，“不会让mujica解散”确实是初华说的
+
+至于小鬼喜欢怎么曲解，我只能说，常与同好争高下，不共xx论短长
+
+*****
+
+####  ykyin09  
+##### 9091#       发表于 2025-1-17 16:06
+
+想了一天 这不就是少歌第七话的感觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  osore  
+##### 9092#       发表于 2025-1-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206140&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-17 15:59</a>
+
+不会长久的。（指同居）</blockquote>
+你这睦头人怎么这么坏啊
+
+初华该联合素世里应外合收拾睦了
+
+*****
+
+####  太二EricGuo  
+##### 9093#       发表于 2025-1-17 16:09
+
+<img src="https://img.saraba1st.com/forum/202501/17/160918ib64l6stsws4k9n1.jpg" referrerpolicy="no-referrer">
+
+<strong>睦头皇族.jpg</strong> (325.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 16:09 上传
+
+做了个
+
+*****
+
+####  天空塔书记官  
+##### 9094#       发表于 2025-1-17 16:10
+
+对于初华来说，A团的存续是唯一可能与祥子维系联系的方法，所以初华的重应该不会是破坏乐团，但冲突的爆发又不是只有拆队一种，别忘了，A团的词作可是初华，这才是最大伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  御幸一也  
+##### 9095#       发表于 2025-1-17 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206170&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-17 16:01</a>
+
+那我来说个更假药的，我从迷子开始就觉的海玲是个拆队狂魔，无根据，纯臆测</blockquote>
+那不如說現階段其實每個人都是拆團狂魔，每個人要的東西都不一樣。
+
+初華要的是和祥子在一起，睦要的是祥子不壞掉，喵夢要數字，海鈴……不知道，但肯定也不是快樂玩樂團。
+
+就連祥子的目的，也沒公開，組mujica她最深層的目的也一直在藏。
+
+現階段讓她們聚集在一起的本來就是一紙商業合同。
+
+這本來就是ave mujica要講的故事，如何讓一丘之貉成為真正的一個團體。
+
+這和go的差別已經很大了吧，go由始至終只有一個人想要復辟CCC，其他人好像都是有好好的在go。
+
+所以你為什麼會期待mujica有一個特定的boss，感覺好怪哦，那我要感覺大家都是boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 9096#       发表于 2025-1-17 16:13
+
+初华作词怎么了吗，不会又是那套“哇这个词好糟糕总有一天会被（祥子）察觉到的到时候就完了”吧
+
+*****
+
+####  天空塔书记官  
+##### 9097#       发表于 2025-1-17 16:13
+
+如果迷子的矛盾体现是彻底地四分五裂，那A团可能就是表面的似是而非，貌合神离
+
+但最终肯定还是要拧在一起的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 9098#       发表于 2025-1-17 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206288&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-17 16:10</a>
+那不如說現階段其實每個人都是拆團狂魔，每個人要的東西都不一樣。
+
+初華要的是和祥子在一起，睦要的是祥 ...</blockquote>
+海玲其实挺明确的，她想要个归宿，和猫猫一样，而且海玲很重视音乐（问题是现在出了问题海玲第一个跑，教室里直接丢下初华一个人跑路了）
+我觉得关于海玲的篇幅不会讲太多，最多讲下海玲的过去
+

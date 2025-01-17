@@ -7187,3 +7187,107 @@ eva式校园生活（
 庵野：没有，小说只在发售时读过一次，我一直在看动画 ...</blockquote>
 庵野：大光头是谁？不熟。
 
+
+*****
+
+####  JustW  
+##### 3683#       发表于 2025-1-17 16:04
+
+<blockquote>duo_wolf 发表于 2025-1-17 15:36
+为什么不能？动画里有这样行动力的女主还少吗？不如说没有这样的行动力配做巨大机器人动画的女主吗？就因 ...</blockquote>
+非要说行不行也不是不行，但看得时候和前半仿佛不是一部动画我都笑了
+
+*****
+
+####  DARILBALDE  
+##### 3684#       发表于 2025-1-17 16:05
+
+也就是说，到目前为止除了夏利亚、木马和红高达，0079和0085之间还没有产生太多可证实的联系吧
+单靠一个红高达要怎么让基连和紫婆这些人再次出场呢，加入这个世界线的提坦斯？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  王留美  
+##### 3685#       发表于 2025-1-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206223&amp;ptid=2209276" target="_blank">DARILBALDE 发表于 2025-1-17 16:05</a>
+ 也就是说，到目前为止除了夏利亚、木马和红高达，0079和0085之间还没有产生太多可证实的联系吧 单靠一个红 ...</blockquote>
+一个红高达还不够吗？
+
+*****
+
+####  kongxian  
+##### 3686#       发表于 2025-1-17 16:09
+
+产生联系最简答粗暴方法不就是主角众身世。但这样新不起来，年轻人不爱看
+
+*****
+
+####  刺客ares  
+##### 3687#       发表于 2025-1-17 16:09
+
+看到人说0085篇信息密度相比0079篇有一些注水感？
+
+后面如果还接着搞校园剧情不提格局的话，季番篇幅要翻车了吧
+
+榎戸难道会败给庵野吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  线程召唤使  
+##### 3688#       发表于 2025-1-17 16:10
+
+emmmmm........
+
+*****
+
+####  gamedreamer  
+##### 3689#       发表于 2025-1-17 16:11
+
+为了保持神秘感吧，不然tv上了咱看啥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wyf上卿大人  
+##### 3690#       发表于 2025-1-17 16:11
+
+0079if是痞子自己爽一把  然后0085就是全新故事了 大部分老人物估计就是背景 
+
+*****
+
+####  Gysumitka  
+##### 3691#       发表于 2025-1-17 16:12
+
+校园黑拳剧情也容不下这两座大神，机体一个比一个唬人，无敌手。希望快速带过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 3692#       发表于 2025-1-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206223&amp;ptid=2209276" target="_blank">DARILBALDE 发表于 2025-1-17 16:05</a>
+
+也就是说，到目前为止除了夏利亚、木马和红高达，0079和0085之间还没有产生太多可证实的联系吧
+
+单靠一个红 ...</blockquote>
+夏利亚0085看到再出现的红高达相当于林有德0096看到再出现的牛高达
+
+吉翁这边不努力查清楚是不可能的，都画了那么多吉翁部队人设了
+
+*****
+
+####  DARILBALDE  
+##### 3693#       发表于 2025-1-17 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206251&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-17 16:08</a>
+一个红高达还不够吗？</blockquote>
+也不能只靠一台红高达吧，靠打黑拳一路打赢这个吉翁？就现在的仨小孩俩高达连基连和紫婆的边都摸不到吧
+还是说要像吉姆王一样被追着杀一路（这个倒挺合理的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
