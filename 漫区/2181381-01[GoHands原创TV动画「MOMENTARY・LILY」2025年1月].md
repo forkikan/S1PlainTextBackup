@@ -130,3 +130,13 @@ ep3的回忆杀是不是说明后面女主还会复活<img src="https://static.s
 
 金发是辛梅尔，开局就死了，后续只活在回忆里，然后一群人重走长征路
 
+
+*****
+
+####  双菜  
+##### 125#       发表于 2025-1-17 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208061&amp;ptid=2181381" target="_blank">梅斯之围 发表于 2025-1-17 19:39</a>
+金发是辛梅尔，开局就死了，后续只活在回忆里，然后一群人重走长征路</blockquote>
+CV表第一的辛美尔是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
