@@ -10320,3 +10320,15 @@ tv里面的ace活着就是没建树，打钢加农打不过，死了更惨被钢
 アマテ・ユズリハ（マチュ）
 <img src="https://p.sda1.dev/21/95d31110d236b13a88da770d7ec47e2c/20250118_031214.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 3983#       发表于 2025-1-18 03:53
+
+<blockquote>Shih0_Matsuri 发表于 2025-1-18 02:52
+所以庵野秀明戏份只有0079开头部分吗？后面正片就不关他事纯挂名了吗？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+设计和概念美术也有他名字。
+
