@@ -3224,3 +3224,23 @@ mortis有两种可能 不弹吉他 那么问题就要快速解决了 因为不�
 
 只靠人際關係那她還是能抱著姐有能，無奈隊友太神經的思想溺死
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 9169#       发表于 2025-1-17 20:09
+
+这个想法好，这么编剧情还有个好处，就是可以拉平mujica和邦邦其他团的战力水平。
+
+
+*****
+
+####  江口夕  
+##### 9170#       发表于 2025-1-17 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67208129&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-1-17 19:49</a>
+第二集最后live睦头断片的时候不就是莫女士代打弹的吉他吗，怎么还真把莫女士当成另一个人了？人就是若叶睦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">拨片都掉了，中途就没在弹了。为什么没发现，因为初华是主吉他
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -8248,3 +8248,40 @@ side6欲望摆脱吉翁
 
 GQX的机设我还是很喜欢的，已经预了，该买还得买
 
+
+*****
+
+####  YU_JI  
+##### 3785#       发表于 2025-1-17 20:08
+
+<blockquote>Sliurus 发表于 2025-1-17 20:00
+还是能看出高达脸，就是口罩上那四个像眼睛一样的结构不知道是什么，一眼看去像六眼怪物，显得很恶心 ...</blockquote>
+确实，红色+六眼，我第一次看脸想到隔壁漫威的阿里瑟姆了
+
+<img src="https://img.saraba1st.com/forum/202501/17/200806cmzv1rkk9d59dc5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3631.jpeg</strong> (115.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 20:08 上传
+
+（）
+
+
+*****
+
+####  最强惠酱  
+##### 3786#       发表于 2025-1-17 20:10
+
+朋友说故事很零碎，会在无关的场景插入曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kongxian  
+##### 3787#       发表于 2025-1-17 20:13
+
+机体镜头拉近看才有美感，那出hg胶很难有优势了
+
