@@ -10365,3 +10365,16 @@ pv里的那首bgm完整版能搜到吗
 
 如果整片褒姒差评就是鶴卷和榎户洋司没领会精神
 
+
+*****
+
+####  Ollie  
+##### 3987#       发表于 2025-1-18 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210963&amp;ptid=2209276" target="_blank">marlun 发表于 2025-1-18 04:01</a>
+
+pv里的那首bgm完整版能搜到吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我也很喜欢那首，不知道什么时候有ost
+
