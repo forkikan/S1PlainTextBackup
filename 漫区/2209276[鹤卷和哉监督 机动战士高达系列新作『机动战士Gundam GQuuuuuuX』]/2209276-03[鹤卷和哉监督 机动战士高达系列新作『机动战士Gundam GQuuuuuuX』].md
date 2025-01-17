@@ -7514,3 +7514,27 @@ Xekunova、红高达的那个疑似夏亚之声这些线索在校园百合打黑
 *剧透警告！剧透警告！最速！（指自己）评测！！高达剧场版GQuuuuuux剧情粗讲！神鬼二象性，痞子写给大光头的情书？
 [https://www.bilibili.com/video/BV1kiwnedEk7](https://www.bilibili.com/video/BV1kiwnedEk7)
 
+
+*****
+
+####  猪突猛进R  
+##### 3714#       发表于 2025-1-17 16:50
+
+<img src="https://img.saraba1st.com/forum/202501/17/164949r10uj335io06n4du.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-17 164932.png</strong> (9.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 16:49 上传
+
+*****
+
+####  Toby_dak  
+##### 3715#       发表于 2025-1-17 16:52
+
+GQuuuuuuX的操作界面写着ZEONIC。
+ZIMMAD没参与高达山寨的话，那大魔系能保留下来也不奇怪。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
