@@ -3961,3 +3961,46 @@ mujica这样极高的成就（最速武道馆+巡演）配合毫无存在感的�
 
 简而言之睦的家庭问题应该非常老套，就是父母太忙只能在物质上满足子女但是在精神上忽视子女。这种情况也非常好解决，睦成长到能表达自己感受的时候和父母说明就可以，在动画里不会花太多时长，进游戏也容易写剧情。
 
+
+*****
+
+####  哈曼的YY  
+##### 9238#       发表于 2025-1-18 00:18
+
+太靠近现实网友就开始抠合同了 真得设定个合同让他们抠个爽
+
+
+*****
+
+####  樱小路三礼  
+##### 9239#       发表于 2025-1-18 00:20
+
+最有团魂指极速试图挖墙脚<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玖羽  
+##### 9240#       发表于 2025-1-18 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67209227&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-17 21:39</a>
+
+看到nga考据喵梦的电子鼓就是2k块便宜货，不仅配置很烂而且还有部分鼓根本没插线所以打下去是完全没有声音 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/18/002231m9yzupx9p91yqygq.jpg" referrerpolicy="no-referrer">
+
+<strong>9fbede42602f775b14eaf521730d2597.jpg</strong> (808.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 00:22 上传
+
+
+*****
+
+####  11A511  
+##### 9241#       发表于 2025-1-18 00:25
+
+把祥理解为在走钢丝的chu2不就行了，都有先例了也别管先例本身是不是特例了，何况现实中自作主张甚至还能取得成功的创业团队还少吗
+
