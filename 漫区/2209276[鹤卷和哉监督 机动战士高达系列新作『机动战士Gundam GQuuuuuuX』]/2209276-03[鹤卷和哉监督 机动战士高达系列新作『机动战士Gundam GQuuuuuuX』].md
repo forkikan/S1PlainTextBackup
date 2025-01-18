@@ -10847,3 +10847,33 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 换出来之后就在红高达附近，所以红高达才在他手里
 
+
+*****
+
+####  jojonathan  
+##### 4031#       发表于 2025-1-18 11:46
+
+呱 那麻球哈曼说还有戏？<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AraTurambar  
+##### 4032#       发表于 2025-1-18 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212156&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 11:43</a>
+
+好像搞懂了，如果基西莉亚口中的“沙仑玫瑰”是个人的话，那就是指玛秋
+
+红色花冠对应红发，黑色花根对应后 ...</blockquote>
+修司该不会是观众吧，或者从倒A剧组来的。
+
+看过所有高达作品的老登。
+
+*****
+
+####  古怪山庄士大夫  
+##### 4033#       发表于 2025-1-18 11:53
+
+嗯？哈曼说重新上台了？
+

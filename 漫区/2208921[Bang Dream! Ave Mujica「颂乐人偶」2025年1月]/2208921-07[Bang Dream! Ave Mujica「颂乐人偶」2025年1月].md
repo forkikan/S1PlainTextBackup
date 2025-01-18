@@ -4891,3 +4891,39 @@ https://tieba.baidu.com/p/9423609083</blockquote>
 
 那她也就維持不了世界觀了
 
+
+*****
+
+####  kuroro  
+##### 9310#       发表于 2025-1-18 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212120&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-18 11:37</a>
+
+悲劇是影響不了高貴的人的
+
+祥爹再怎麼爆，也只能給大象的高貴增加悲劇屬性</blockquote>
+她当年退出哭团很大一部分原因不就是力不从心，不想让前团员知道自己惨兮兮吗，索性闹大，全世界都知道了。成就掺水我在上面也说了，全世界都知道是丰川家给鸡团投资了，祥子的能力被质疑，她自己也怀疑，这点给高光其实也简单，被其他人鼓励/包饺子后再写出大爆曲，一己之力让鸡团重回巅峰。高贵没了，但高光也有了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海洋队手下mayo  
+##### 9311#       发表于 2025-1-18 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211612&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 10:07</a>
+https://tieba.baidu.com/p/9423609083</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">本应该负责后事的海铃小姐可能是等待奇迹，破碎的乐队终将迎来涅槃重生的奇迹。只要还被她记住，乐队就没有被“下葬”，
+或福或祸，这个美好的小期望让本该死去的乐队如同活死人一般存在着
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">但得说，得区分兼任和常规成员，按我对乐队的浅薄知识 兼任乐手说这句话其实很正常，对于以前的乐队海铃或许就是默默接受他们停止活动了，毕竟只是サポート非核心成员 也没有资格干涉别人“家事”
+soyo两个乐队都算常规乐手  “两只乐队的常规贝斯手，只有一支在活动” 她确实是有资格参与决定乐队生死的 所以她对旧乐队的惦记可能还是更有份量
+
+海铃的重力可能还是在为什么唯独决定成为a团的常规成员
+
+
+*****
+
+####  木板春香  
+##### 9312#       发表于 2025-1-18 11:52
+
+  终于下定决心对鸡团投入感情，忽然有了再次解散的风险，海玲将理智弃置于地，陷入彻底疯狂！
+
