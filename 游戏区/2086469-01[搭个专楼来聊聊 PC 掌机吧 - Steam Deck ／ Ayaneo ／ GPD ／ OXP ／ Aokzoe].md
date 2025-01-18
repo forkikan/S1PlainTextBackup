@@ -277,3 +277,14 @@ pdd claw7+8+上了  6199 6999
 
 微星这个和ally比咋样？我看pdd才3199，ally还要3600
 
+
+*****
+
+####  bypass  
+##### 1361#         楼主| 发表于 2025-1-18 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215030&amp;ptid=2086469" target="_blank">requiem116 发表于 2025-1-18 19:10</a>
+
+微星这个和ally比咋样？我看pdd才3199，ally还要3600</blockquote>
+微星 Ultra 5 版本前几天到过 2699，3199 贵了。
+

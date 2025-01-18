@@ -829,3 +829,15 @@ alt+enter，取消全屏也是。
 收集完记忆合体之后没地方去了，wiki看了半天说要去魔界大洞打王国摄政，关键是这魔界大洞在哪我都不知道， ...</blockquote>
 放魔之塔
 
+
+*****
+
+####  Apkallone  
+##### 77#       发表于 2025-1-18 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213682&amp;ptid=2238139" target="_blank">mj240608414 发表于 2025-1-18 16:10</a>
+话说游戏玩着玩着有时候会非常卡，这是什么原因？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+可能是开小地图开太久了，alt开关一下试试
+
