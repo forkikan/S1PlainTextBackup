@@ -6570,3 +6570,58 @@ BGM：假面舞会
 
 假药：当初喷灯的推文是睦疯子开小号发的
 
+
+*****
+
+####  玖羽  
+##### 9455#       发表于 2025-1-18 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213609&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-18 15:57</a>
+
+专门给了数字那基本上就先默认为真了，除非后面专门给你打个“萝其实是糊逼”的补丁，但鉴于萝三次元的人 ...</blockquote>
+你是不是不看别人的回复<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[https://bbs.saraba1st.com/2b/for ... age=189#pid67151228](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2208921&amp;page=189#pid67151228)
+
+前面都说了，首先一个是真人，一个是仿妆，没有可比性；
+
+其次喵梦说十万二十万是总播放量，仿妆是4天6.8万（不是8.6万），也没有可比性
+
+
+*****
+
+####  天空塔书记官  
+##### 9456#       发表于 2025-1-18 21:45
+
+至于祥子为什么知道大喵会打鼓，应该是因为喵梦和PAREO一样上传过演奏视频，但播放惨淡，后来又尝试了很多其他类型的视频，转战美妆才遇到风口，成为了小网红，而现在又遇到了视频主瓶颈期
+
+之前喵梦大概率被网暴过，所以才这么重视观众的需求，人设回撤的一部分要点应该就是在这了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 9457#       发表于 2025-1-18 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216437&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-18 21:34</a>
+
+大喵的粉丝数不少，但美妆频道的播放却不高，大概率是瓶颈期了，所以才想搞波大的提提热度，可惜效果不太行 ...</blockquote>
+祥子初见喵梦的时候直说网红做不久，喵梦也默认了
+
+另外我看有人说美妆博主的播放量本身就波动很大，整个大活就很高，平时只有一些老粉看就很低
+
+*****
+
+####  哈曼的YY  
+##### 9458#       发表于 2025-1-18 21:45
+
+放过那条推文吧
+
+*****
+
+####  哈曼的YY  
+##### 9459#       发表于 2025-1-18 21:47
+
+我看有人推测祥老师知道大喵是因为没钱所以搜便宜化妆品视频 意外发现这个油 管主会打鼓
+
