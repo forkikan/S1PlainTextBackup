@@ -13460,3 +13460,36 @@ b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发�
 
 管人那首也赶紧配信吧，也很好听等不及了
 
+
+*****
+
+####  RE㐅ia  
+##### 4297#       发表于 2025-1-19 02:46
+
+kksk
+
+<img src="https://img.saraba1st.com/forum/202501/19/024601gajkjdjjl3duzemn.png" referrerpolicy="no-referrer">
+
+<strong>1A4A3AF4-2452-42B9-865D-B014847DD269.png</strong> (200.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 02:46 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/024601nicpnchmhzn2c4xh.png" referrerpolicy="no-referrer">
+
+<strong>5BCB2D44-0C1B-4A37-8F80-AEF9B2B610D3.png</strong> (218.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 02:46 上传
+
+*****
+
+####  acguy  
+##### 4298#       发表于 2025-1-19 02:48
+
+<blockquote>王留美 发表于 2025-1-18 17:33
+G-4计划的前提是G3啊</blockquote>
+G4原本是让陆海空宇分别开发第二批次高达，成果是皮克西，水高，GT FOUR 和NT1, 即使没有回收G3也会有开发
+
