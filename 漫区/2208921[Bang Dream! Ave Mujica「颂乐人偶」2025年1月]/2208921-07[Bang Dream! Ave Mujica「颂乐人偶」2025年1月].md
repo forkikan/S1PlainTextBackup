@@ -8717,3 +8717,70 @@ MyGO在这方面可以说非常大胆，它用了13话里的10话去铺垫一场
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  哈曼的YY  
+##### 9630#       发表于 2025-1-19 01:24
+
+ 本帖最后由 哈曼的YY 于 2025-1-19 01:25 编辑 
+
+武士道懂邦邦 但不懂中国社区
+
+说起来我看卖狗的时候根本没感觉立希有怎么样 因为其他神人神操作太多了
+
+*****
+
+####  木板春香  
+##### 9631#       发表于 2025-1-19 01:24
+
+看个Pico就好
+
+*****
+
+####  天空塔书记官  
+##### 9632#       发表于 2025-1-19 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218214&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-19 01:24</a>
+看个Pico就好</blockquote>
+那太欢乐向了，还是适当接触点黑暗的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  友情的结晶  
+##### 9633#       发表于 2025-1-19 01:26
+
+我一直认为soyo前期对爱音猫猫和乐队的关系的态度是在不在都行。如果素世真把祥子和睦拉回来了，那她大概率不会抵触crychic 5+2变成7人乐队一起玩，而不是说非得把爱音和猫踢走
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  loneyuki  
+##### 9634#       发表于 2025-1-19 01:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">今天晚上想了半晚上,mortis真的讨厌祥子吗？“白睦”不讨厌祥子吗？“白睦”是不是真的在撒娇？
+
+*****
+
+####  阿兹尔  
+##### 9635#       发表于 2025-1-19 01:29
+
+题外话，wsd做手办非得自己做吗，这质量实在下不去手啊
+
+
+*****
+
+####  天空塔书记官  
+##### 9636#       发表于 2025-1-19 01:33
+
+但七人乐队真可行吗，坐冷板凳当替补吗
+
+那还不如转职佣兵算了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
