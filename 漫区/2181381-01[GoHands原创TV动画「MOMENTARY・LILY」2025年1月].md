@@ -148,3 +148,11 @@ CV表第一的辛美尔是吧<img src="https://static.saraba1st.com/image/smiley
 
 这片子的台词设计稍微有趣一点，都不至于看的这么煎熬。感觉是这季度最漫长的24分钟了
 
+
+*****
+
+####  Delicatus545  
+##### 127#       发表于 2025-1-18 20:06
+
+哪有24分钟，我每周都是5分钟过完的，等着看还有什么好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
