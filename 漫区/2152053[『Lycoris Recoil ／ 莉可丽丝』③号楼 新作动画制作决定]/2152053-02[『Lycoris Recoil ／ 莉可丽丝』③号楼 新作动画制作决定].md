@@ -22,3 +22,38 @@
 
 2025-1-15 21:38 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 2055#         楼主| 发表于 2025-1-18 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678510&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2024-7-23 23:28</a>
+
+两周年新情报
+
+1.今年10月将与墨田水族馆展开合作
+
+2.千束和泷奈的日常短篇动画制作决定，由不同人负责每话分 ...</blockquote>
+／
+
+ 🎬オリジナルショートムービー
+
+　   タイトル＆キービジュアル解禁🎉
+
+＼
+
+リコリス・リコイル
+
+　Friends are thieves of time.
+
+喫茶リコリコを舞台に
+
+千束やたきな達の日常を6本お届けします☕
+
+▼HPはこちら
+[https://lycoris-recoil.com/shortmovie/](https://lycoris-recoil.com/shortmovie/)
+
+<img src="https://p.sda1.dev/21/cb593b9e29379c790a171038df02f6ff/20250118_154516.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4883718bb5aa230afd57dfd11828a6d1/20250118_154530.jpg" referrerpolicy="no-referrer">
+
