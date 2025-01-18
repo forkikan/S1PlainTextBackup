@@ -57,3 +57,21 @@
 <img src="https://p.sda1.dev/21/cb593b9e29379c790a171038df02f6ff/20250118_154516.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/4883718bb5aa230afd57dfd11828a6d1/20250118_154530.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2056#       发表于 2025-1-18 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新建文件夹了
+
+
+*****
+
+####  Saber琪  
+##### 2057#       发表于 2025-1-18 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213666&amp;ptid=2152053" target="_blank">osore 发表于 2025-1-18 16:08</a>
+新建文件夹了</blockquote>
+这个做了一半了，第二季相关还是饼，上回说过在讨论剧本，不知道明天漏不漏
+
