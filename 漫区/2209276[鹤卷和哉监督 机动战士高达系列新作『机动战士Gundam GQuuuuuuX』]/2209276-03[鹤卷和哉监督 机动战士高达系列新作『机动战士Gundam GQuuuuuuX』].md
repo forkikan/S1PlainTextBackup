@@ -10648,3 +10648,63 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 <img src="https://p.sda1.dev/21/7d6d671af4437217d312d2ef13cdb6b0/image.jpg" referrerpolicy="no-referrer">这描述好像更像麻球
 
+
+*****
+
+####  王留美  
+##### 4013#       发表于 2025-1-18 10:42
+
+【速报】岛本和彦自从1月16号以后就没发过X了（ 
+
+*****
+
+####  RE㐅ia  
+##### 4014#       发表于 2025-1-18 10:42
+
+0085这首第一遍听还觉得好潮好不适应，但真是越听越来劲。
+
+*****
+
+####  jojonathan  
+##### 4015#       发表于 2025-1-18 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211471&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-18 09:37</a>
+霓虹金对麻球的普遍共识在狂犬和巨r上</blockquote>
+怎么还有蓝眼麻丘的 哈曼可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4016#       发表于 2025-1-18 10:44
+
+唐突加入神学要素，真像Khara做的事
+
+以及鸭子失踪，“沙仑玫瑰”也不见了，那现在gqx世界线明面上最强的NT不会是夏利亚吧？
+
+还起了个灰色幽灵这种对标拉拉的称号
+
+
+*****
+
+####  灵魂收割机  
+##### 4017#       发表于 2025-1-18 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211664&amp;ptid=2209276" target="_blank">十万年魂环 发表于 2025-1-18 10:18</a>
+
+所以现在是真的在爆了，还是老登自嗨中？</blockquote>
+老登自嗨，新观众看完脑子都是糊的。
+
+*****
+
+####  jojonathan  
+##### 4018#       发表于 2025-1-18 10:46
+
+看讲夏利亚的蓝色大长腿副官还不相信ntpower<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4019#       发表于 2025-1-18 10:47
+
+话说，斧子在正片里是GQX的原装武装吗？还是黑拳抢的？
+
