@@ -2050,3 +2050,13 @@ Logos……抱歉，坚持不下去三集弃了。
 这个系列哪部最好看啊？看完两集想补之前的</blockquote>
 第一部偏严肃好看，第二部偏向失智好看，要补我建议补严肃点的
 
+
+*****
+
+####  没取名啊  
+##### 214#       发表于 2025-1-18 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217331&amp;ptid=2124992" target="_blank">wer4f 发表于 2025-1-18 23:16</a>
+这个系列哪部最好看啊？看完两集想补之前的</blockquote>
+第一部别看，或者说河森所有神棍要素多于SF要素的片子都不推荐看。又土又没逻辑没逼格没信息量，估计只有他自己觉得很酷
+
