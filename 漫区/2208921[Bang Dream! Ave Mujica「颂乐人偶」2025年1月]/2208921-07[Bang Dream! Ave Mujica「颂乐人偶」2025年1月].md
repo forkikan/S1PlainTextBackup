@@ -6929,3 +6929,126 @@ BGM：假面舞会
 睦这个共犯是不是罪恶感有点太强了，东京站ptsd发作得仿佛所有的锅都是自己的，祥子这个主犯反而一直理直气 ...</blockquote>
 睦的自卑问题跟灯是差不多的，灯也是觉得自己太菜，被说了一句就一直觉得是自己唱得不好的错
 
+
+*****
+
+####  天空塔书记官  
+##### 9483#       发表于 2025-1-18 22:40
+
+那肯定不止RAS啊，光“诗超绊”都有三次了，但有如此多的RAS要素还是蛮有趣的，这大概就是银河战舰的传承吧
+
+快进到翻沟里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 9484#       发表于 2025-1-18 22:40
+
+突然理解了动画看完之后要从0th重看一遍这个说法了
+
+<img src="https://img.saraba1st.com/forum/202501/18/224029rsjx4kjsjntjnbhn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4168.jpeg</strong> (68.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:40 上传
+
+*****
+
+####  aptx8285144  
+##### 9485#       发表于 2025-1-18 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216988&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:36</a>
+
+怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
+我最近也是这么认为的，可没办法祥子是主角，这就是主角的宿命jpg
+
+*****
+
+####  JustW  
+##### 9486#       发表于 2025-1-18 22:42
+
+<blockquote>玖羽 发表于 2025-1-18 22:37
+睦的自卑问题跟灯是差不多的，灯也是觉得自己太菜，被说了一句就一直觉得是自己唱得不好的错 ...</blockquote>
+
+灯更是不知道任何信息，只知道祥子直接退团还说自己还需要练习，不用特别自卑也会觉得自己仿佛有锅。但睦知道所有前因后果，自己非要背锅。
+
+
+*****
+
+####  JustW  
+##### 9487#       发表于 2025-1-18 22:44
+
+<blockquote>厚乳果珍爽 发表于 2025-1-18 22:36
+怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
+
+大伙看完第一集只想着把喵梦这个罪魁祸首踢出乐队，哪怕不踢出去也得赔钱道歉吧，结果本以为能做到这件事的祥子做不到，拖到第三集反而吵架都吵不赢了。
+
+这也是故意制造的冲突罢了，毕竟合同不合同的完全不能细想。
+
+*****
+
+####  wolf1997  
+##### 9488#       发表于 2025-1-18 22:44
+
+这集最后墨提斯登场的时候，祥的表情显出的不是惊恐，而是一种亲切（带有一声上扬的呼唤），回收了pv里的软糯小祥。结合前面祥子说睦以前更爱笑的，是不是祥子一直以来认识的睦就是墨提斯？
+
+*****
+
+####  厚乳果珍爽  
+##### 9489#       发表于 2025-1-18 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216996&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 22:37</a>
+
+睦的自卑问题跟灯是差不多的，灯也是觉得自己太菜，被说了一句就一直觉得是自己唱得不好的错 ...</blockquote>
+睦的自卑根本原因是他是明星的孩子，从小就活在父母的阴影下，无论做得多好都会被拿来跟父母比较。好像这些都是理所当然的。
+
+*****
+
+####  山ノ内花音  
+##### 9490#       发表于 2025-1-18 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216988&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:36</a>
+怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
+这也是一种背负人生
+
+*****
+
+####  阿兹尔  
+##### 9491#       发表于 2025-1-18 22:46
+
+只能说爱音真是太重要了，没有她灯估计说不出组一辈子乐队，再也唱不出来，再也走不出来了，而且爱音性格也好，除了菜了点品味也差就没啥缺点了
+
+*****
+
+####  天空塔书记官  
+##### 9492#       发表于 2025-1-18 22:46
+
+“你不能只在乐队成员是正面形象的时候担负人生”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 9493#       发表于 2025-1-18 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217055&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:44</a>
+
+睦的自卑根本原因是他是明星的孩子，从小就活在父母的阴影下，无论做得多好都会被拿来跟父母比较。好像这 ...</blockquote>
+睦的父母给她的不是自卑，是空洞，睦觉得自己什么都没有，别人称赞她的都是她父母的（不愧是若叶和森美奈美的孩子）
+
+睦开始弹吉他之后第一次获得了只属于自己的东西，但是遇到瓶颈，这才开始自卑，觉得自己太菜了
+
+*****
+
+####  aptx8285144  
+##### 9494#       发表于 2025-1-18 22:47
+
+灯那边起码还有一个爱音好说话的，进攻几下就拿下了，若叶这边就只剩下....要和初华争宠或者试图打动海铃吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

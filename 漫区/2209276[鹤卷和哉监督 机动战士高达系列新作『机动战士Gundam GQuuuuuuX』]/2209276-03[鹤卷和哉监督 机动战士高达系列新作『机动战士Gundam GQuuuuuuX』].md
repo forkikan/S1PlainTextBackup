@@ -12990,3 +12990,34 @@ https://m.weibo.cn/status/5124249748505041</blockquote>
 
 再起不就是标准的异世界。或者参考beyond短片（
 
+
+*****
+
+####  刺客ares  
+##### 4252#       发表于 2025-1-18 22:38
+
+鸭子死透怎么“宇宙世纪进入新时代”啊
+
+后面肯定还会出来的，而且会和夏利亚组队去推翻扎比家吧
+
+他在消失前就已经在和夏利亚谋划这事了
+
+真让玛秋开着ms把基连基西莉亚都打爆感觉也有点怪
+
+*****
+
+####  yevvet  
+##### 4253#       发表于 2025-1-18 22:39
+
+到最后放tv版肯定会有人车米津玄师。因为虽然歌不错，但是女主抢高达时突然响起了这歌具违和
+
+*****
+
+####  刺客ares  
+##### 4254#       发表于 2025-1-18 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217007&amp;ptid=2209276" target="_blank">yevvet 发表于 2025-1-18 22:39</a>
+
+到最后放tv版肯定会有人车米津玄师。因为虽然歌不错，但是女主抢高达时突然响起了这歌具违和 ...</blockquote>
+可以概况为在该放Unicorn的时机你八唐突开腔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
