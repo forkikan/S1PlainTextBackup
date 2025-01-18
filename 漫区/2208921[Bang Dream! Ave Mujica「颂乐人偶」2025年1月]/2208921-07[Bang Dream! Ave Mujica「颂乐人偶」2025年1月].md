@@ -4826,3 +4826,18 @@ https://tieba.baidu.com/p/9423609083</blockquote>
 
 豐川祥子， 還真是個高高在上的女人呢
 
+
+*****
+
+####  玖羽  
+##### 9306#       发表于 2025-1-18 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211890&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-18 10:58</a>
+
+大象會感到劣等感的時候就是她跟人切割的時候
+
+她對Soyo 最狠是因為Soyo 是理論上最能/會上對下施捨她的外 ...</blockquote>
+我还是那句话，祥子是真正的高贵之人，在正面意义和负面意义上都是
+
+祥子对下位者能真正做到Noblesse Oblige（这个词的本意），但是贯彻Noblesse Oblige的隐含意义就是不把对方当人（至少是和自己对等的人）
+
