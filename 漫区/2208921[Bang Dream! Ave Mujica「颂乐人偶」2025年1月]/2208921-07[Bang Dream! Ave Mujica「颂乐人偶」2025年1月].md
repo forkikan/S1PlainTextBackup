@@ -5046,3 +5046,13 @@ c团除了睦和soyo 对立希和灯不都是不主动接触+冷漠回应么
 一个差劲的规划vs没有规划——大喵大祥的路线之争
 [https://www.zhihu.com/question/9777944571/answer/81544727009](https://www.zhihu.com/question/9777944571/answer/81544727009)
 
+
+*****
+
+####  天空塔书记官  
+##### 9322#       发表于 2025-1-18 13:28
+
+而且现在那几个上了大学的，感觉和初高中也没什么区别，嘛，毕竟超人世界观，人均幸福指数高的爆表，原设和A团另说，看什么时候把HHW放出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

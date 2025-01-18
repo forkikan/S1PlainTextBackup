@@ -11223,3 +11223,67 @@ tv版有说什么时候正式上线吗
 
 节目要开始了
 
+
+*****
+
+####  JimmyJoker  
+##### 4070#       发表于 2025-1-18 13:26
+
+哪里有直播吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yxydd88  
+##### 4071#       发表于 2025-1-18 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212415&amp;ptid=2209276" target="_blank">yevvet 发表于 2025-1-18 12:25</a>
+
+gquuuux的读音是zick 阿克斯 。有什么含义吗</blockquote>
+吉克我感觉应该是吉翁尼克社的产品命名前缀，估计后续出来的其他机体可能都要叫zick xxx
+
+*****
+
+####  0aleph37  
+##### 4072#       发表于 2025-1-18 13:29
+
+https://youtube.com/@-zip-?si=ane5iqr3qxjdCpkN
+
+
+*****
+
+####  pokemon最爱  
+##### 4073#       发表于 2025-1-18 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212418&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 12:25</a>
+
+因为喵安人物经历在官网写的太清晰了（</blockquote>
+写得清晰也可以是障眼法就是了，比如换了名字和身份之类的，鸭子不就不止一次的干过这事吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现实世界中间谍行动时套用虚假的身份经历也是常见操作。
+
+*****
+
+####  operatbig  
+##### 4074#       发表于 2025-1-18 13:34
+
+<blockquote>刺客ares 发表于 2025-1-18 12:17
+神豚随便赢，纯度豚右转Mujica</blockquote>
+也就是很小？唉……
+
+*****
+
+####  Sliurus  
+##### 4075#       发表于 2025-1-18 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212431&amp;ptid=2209276" target="_blank">青空独 发表于 2025-1-18 12:27</a>
+
+UC不是真实系吗，怎么越来越神棍了</blockquote>
+什么叫神棍，这叫浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 4076#       发表于 2025-1-18 13:35
+
+[https://mov3.co/ntv/](https://mov3.co/ntv/) 这里能凑活看
+
