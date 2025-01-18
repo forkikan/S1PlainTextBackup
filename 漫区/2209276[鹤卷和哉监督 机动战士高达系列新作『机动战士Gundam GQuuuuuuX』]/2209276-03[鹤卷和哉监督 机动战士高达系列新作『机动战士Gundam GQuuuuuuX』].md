@@ -13096,3 +13096,31 @@ https://m.weibo.cn/status/5124249748505041</blockquote>
 観てください！
 <img src="https://p.sda1.dev/21/797657887983029f97738e601b4e5a77/20250118_230557.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasssf  
+##### 4262#       发表于 2025-1-18 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217201&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-18 23:01</a>
+
+水魔和铁血也过不了创战啊
+
+不过创战是十二年前了，确实稍微有点不严谨，这么看这十年最好的高达TV是铁血 ...</blockquote>
+明显是水魔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jojonathan  
+##### 4263#       发表于 2025-1-18 23:14
+
+说起来今天票房多少
+
+*****
+
+####  wyhman  
+##### 4264#       发表于 2025-1-18 23:17
+
+水魔这坨狗屎...
+
