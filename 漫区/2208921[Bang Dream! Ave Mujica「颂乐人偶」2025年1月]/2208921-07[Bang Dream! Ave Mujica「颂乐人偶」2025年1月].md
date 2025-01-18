@@ -6852,3 +6852,80 @@ BGM：假面舞会
 
 拿掉强度厨的滤镜，不要带着“mujica成就轻轻松松吊打老团”的眼光去看，而是默认邦邦世界观出道乐队能拿到的资源本身就很强，能解释你眼中不少的bug
 
+
+*****
+
+####  thisisaspider  
+##### 9476#       发表于 2025-1-18 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216443&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-18 21:35</a>
+
+假药：当初喷灯的推文是睦疯子开小号发的</blockquote>
+是因为睦获得了坐标之力吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9477#       发表于 2025-1-18 22:32
+
+天才大小姐制作人，佣兵贝斯手(CP还是在团外），进京追梦的乡下土妹，久别重逢的青梅竹马，发掘小透明(?），神明与信徒/造物
+
+破案了，A团就是RAS.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  玖羽  
+##### 9478#       发表于 2025-1-18 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216915&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-18 22:27</a>
+
+我印象里你之前说过类似于“老团要蹭鸡狗热度”的发言被骂了吧
+
+拿掉强度厨的滤镜，不要带着“mujica成就 ...</blockquote>
+明明就是一个真人和仿妆的视频热度区别（实际上很难说有区别），能让你联想这么多也是难得
+
+特意宣传最速武道馆，就是说这个世界观里最速武道馆还是值得宣传的，如果照你说的，出道乐队本身就有这样的资源，其他乐队是看不上啊还是不想
+
+*****
+
+####  天空塔书记官  
+##### 9479#       发表于 2025-1-18 22:34
+
+哦，青梅还是在别团，搞不好就要被拆了
+
+快进到初华因为A团练习赶不上sumimi的演唱会(
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  JustW  
+##### 9480#       发表于 2025-1-18 22:35
+
+<blockquote>天空塔书记官 发表于 2025-1-18 22:23
+草，A团不会是把RAS的剧本揉碎了搞出来的异类版吧
+
+虽然应该不止RAS就是了</blockquote>
+最新两个团都是站在多年企划的肩膀上的，不是一个两个角色的设定有参考老角色，而是几乎都多少有参考，团内矛盾也能看到一些影子
+
+
+*****
+
+####  厚乳果珍爽  
+##### 9481#       发表于 2025-1-18 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？
+
+*****
+
+####  玖羽  
+##### 9482#       发表于 2025-1-18 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216383&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 21:29</a>
+
+睦这个共犯是不是罪恶感有点太强了，东京站ptsd发作得仿佛所有的锅都是自己的，祥子这个主犯反而一直理直气 ...</blockquote>
+睦的自卑问题跟灯是差不多的，灯也是觉得自己太菜，被说了一句就一直觉得是自己唱得不好的错
+

@@ -12908,3 +12908,85 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 全曲意外不错，好评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 4243#       发表于 2025-1-18 22:28
+
+高达没搞过异世界吧，就聊异世界替换这么high了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 4244#         楼主| 发表于 2025-1-18 22:28
+
+【【米津玄师/首发】高达GQuuuuuuX 主题曲『Plazma』全曲试听！】 
+[https://b23.tv/pEVa1BG](https://b23.tv/pEVa1BG)
+
+【『機動戦士高达 GQuuuuuuX -Beginning-』剧场版 插入曲「ミッドナイト・リフレクション」by NOMELON NOLEMON】 
+[https://b23.tv/y25EcRH](https://b23.tv/y25EcRH)
+
+*****
+
+####  虛無迴廊  
+##### 4245#       发表于 2025-1-18 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216886&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-18 22:24</a>
+【【米津玄师/首发】高达GQuuuuuuX 主题曲『Plazma』全曲试听！-哔哩哔哩】 https://b23.tv/5rMv8E7
+可以品 ...</blockquote>
+好耶<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4246#       发表于 2025-1-18 22:32
+
+我也觉得置换到异世界太邪乎了，按照uc基调应该是变成宇宙男鬼什么的，夏亚肉身什么的感觉不太可能回归了
+
+*****
+
+####  jojonathan  
+##### 4247#       发表于 2025-1-18 22:33
+
+夏亚要是变死人了那太恶毒了吧 staff们没怎么恨夏亚吧 要让他表演一个巅峰期唐突被不知道啥玩意坑死<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 4248#       发表于 2025-1-18 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216343&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-18 21:24</a>
+
+【鹤卷和哉×榎户洋司×庵野秀明】访谈翻译（含剧透）
+
+https://m.weibo.cn/status/5124249748505041</blockquote>
+真的是明着暗着舔光头，痞子也不用光头附体了，光头又没死，请他来骂你们两句肯定更有灵感
+
+*****
+
+####  YU_JI  
+##### 4249#       发表于 2025-1-18 22:36
+
+<blockquote>jojonathan 发表于 2025-1-18 22:33
+夏亚要是变死人了那太恶毒了吧 staff们没怎么恨夏亚吧 要让他表演一个巅峰期唐突被不知道啥玩意坑死 ...</blockquote>
+很难想象夏亚肉身回来又是怎样一场腥风血雨（）
+
+*****
+
+####  sliver1997  
+##### 4250#       发表于 2025-1-18 22:36
+
+受不了，好想拼 GQuuuuuuX，怎么国内代理还没有到货的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4251#       发表于 2025-1-18 22:37
+
+<blockquote>猪突猛进R 发表于 2025-1-18 22:28
+高达没搞过异世界吧，就聊异世界替换这么high了</blockquote>
+
+再起不就是标准的异世界。或者参考beyond短片（
+
