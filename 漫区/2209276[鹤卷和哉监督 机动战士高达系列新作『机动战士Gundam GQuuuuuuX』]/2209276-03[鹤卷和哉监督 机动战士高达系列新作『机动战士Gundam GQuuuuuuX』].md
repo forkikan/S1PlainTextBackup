@@ -12830,3 +12830,81 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 牢修就是上一次被鸭子从那边换过来的
 
+
+*****
+
+####  虛無迴廊  
+##### 4235#       发表于 2025-1-18 22:18
+
+真说牢修是异世界人也挺奇怪的，他的问题不是缺少人味吗？是哪个异世界把孩子养得这么电波
+
+*****
+
+####  jojonathan  
+##### 4236#       发表于 2025-1-18 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216829&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-18 22:18</a>
+真说牢修是异世界人也挺奇怪的，他的问题不是缺少人味吗？是哪个异世界把孩子养得这么电波 ...</blockquote>
+异世界说不定全是nt孩子掉到全是ot的世界不适应了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4237#       发表于 2025-1-18 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216795&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-18 22:14</a>
+
+说起来这玩意的表现形式也挺怪的，看起来也不像是单纯的阿克西斯奇迹复刻，不知道打算怎么解释 ...</blockquote>和阿克西斯表现形式完全不一样的，奇迹之光是绿夹彩的光波奔流
+
+泽克诺瓦是以红高达为中心产生含有巨大能量的大粉色光球，
+
+光球消散后包含在范围内的一切东西都会消失
+
+表现差这么多，实际作用应该也完全不一样，不然以痞子的德行肯定会给你搞个1:1复刻
+
+*****
+
+####  gpx234mqx  
+##### 4238#       发表于 2025-1-18 22:19
+
+<blockquote>PascalLefèvre 发表于 2025-1-18 22:10
+泽克诺瓦又不一定要爆炸，把nt当成人体炸蛋了吗你们这些人！</blockquote>
+与其说是爆炸不如说是转移？
+
+试作型精神力高达引发时空门转移那样？
+
+*****
+
+####  Gysumitka  
+##### 4239#       发表于 2025-1-18 22:24
+
+【【米津玄师/首发】高达GQuuuuuuX 主题曲『Plazma』全曲试听！-哔哩哔哩】 https://b23.tv/5rMv8E7
+可以品鉴了，各位
+
+
+*****
+
+####  YU_JI  
+##### 4240#       发表于 2025-1-18 22:25
+
+触发关键应该不在红元祖上，应该在赛克缪系统上，换句话说，gqx应该也是有触发这东西的潜质的，正片也强调过gqx那个特别的识别系统，多少应该是有联系的
+
+
+*****
+
+####  YU_JI  
+##### 4241#       发表于 2025-1-18 22:25
+
+<blockquote>Gysumitka 发表于 2025-1-18 22:24
+【【米津玄师/首发】高达GQuuuuuuX 主题曲『Plazma』全曲试听！-哔哩哔哩】 https://b23.tv/5rMv8E7
+
+可以品 ...</blockquote>
+好耶，还以为要等到20号
+
+*****
+
+####  Gysumitka  
+##### 4242#       发表于 2025-1-18 22:28
+
+全曲意外不错，好评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

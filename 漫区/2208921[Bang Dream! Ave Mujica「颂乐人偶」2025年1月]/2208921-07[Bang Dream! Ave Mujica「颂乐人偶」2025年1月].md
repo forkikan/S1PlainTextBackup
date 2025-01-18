@@ -6762,3 +6762,93 @@ BGM：假面舞会
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  JustW  
+##### 9468#       发表于 2025-1-18 22:19
+
+<blockquote>结衣小比取 发表于 2025-1-18 22:13
+是啊，Soyo还真是这么想的
+
+出自【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访 ...</blockquote>
+但そよ什么信息也没有，这么想也正常，但祥睦什么信息都有，总不至于觉得睦那一句话能左右什么，虽然睦自己就是这么想的。这也可以说是性格使然，但目前想从里面找出主动当共犯的意思还是有点难找。
+
+*****
+
+####  NODY  
+##### 9469#       发表于 2025-1-18 22:20
+
+ 本帖最后由 NODY 于 2025-1-18 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216499&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 21:41</a>
+
+你是不是不看别人的回复
+
+[https://bbs.saraba1st.com/2b/for](https://bbs.saraba1st.com/2b/for) ... age=189#pid67151228</blockquote>
+原话只说了“十万二十万跑不掉了”，没有说是单次还是全部，和你之前发的那个祥子电信诈骗一样属于单纯的猜测
+
+我还是那个想法
+
+如果提前预设“mujica的成就是老团八辈子赶不上的级别”，那自然会觉得成就和她们的草台操作不匹配
+
+但如果以“邦邦自带音乐高武，出道乐队就是能给一堆好资源”为前提，那自然就不会觉得动画的剧情很bug了，毕竟连pp这种四个素人还出道假唱的乐队都能拿到不少好资源
+
+*****
+
+####  天空塔书记官  
+##### 9470#       发表于 2025-1-18 22:20
+
+再加上喵梦还有一个乡下妹进京追梦的设定，就更…
+
+毕竟互联网就是这样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 9471#       发表于 2025-1-18 22:23
+
+说起来邦邦的鼓手人气都不咋样啊，喵梦选个鼓估计也难顶了
+
+*****
+
+####  天空塔书记官  
+##### 9472#       发表于 2025-1-18 22:23
+
+草，A团不会是把RAS的剧本揉碎了搞出来的异类版吧
+
+虽然应该不止RAS就是了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  玖羽  
+##### 9473#       发表于 2025-1-18 22:25
+
+/
+
+*****
+
+####  玖羽  
+##### 9474#       发表于 2025-1-18 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216850&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-18 22:20</a>
+
+原话只说了“十万二十万跑不掉了”，没有说是单次还是全部，和你之前发的那个祥子电信诈骗一样属于单纯的 ...</blockquote>
+4天6.8万一两个月差不多也10万了，还有重点是真人和仿妆完全不一样你倒是不提
+
+*****
+
+####  NODY  
+##### 9475#       发表于 2025-1-18 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216894&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 22:25</a>
+
+4天6.8万一两个月差不多也10万了，还有重点是真人和仿妆完全不一样你倒是不提 ...</blockquote>
+我印象里你之前说过类似于“老团要蹭鸡狗热度”的发言被骂了吧
+
+拿掉强度厨的滤镜，不要带着“mujica成就轻轻松松吊打老团”的眼光去看，而是默认邦邦世界观出道乐队能拿到的资源本身就很强，能解释你眼中不少的bug
+
