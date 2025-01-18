@@ -5121,3 +5121,13 @@ pp的公司公认的操作愚蠢，结果能把除了千圣外全员素人的偶
 
 而且我说搞个live剧场版也只是顺带的，也不是必须要出，看真人的表演脑补也没问题
 
+
+*****
+
+####  天空塔书记官  
+##### 9328#       发表于 2025-1-18 13:49
+
+动画刚结束就对邦，肯定不是单纯表演那么简单的，刚好这两团就都有尬演小剧场，会藏东西是合理推测<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
