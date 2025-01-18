@@ -11653,3 +11653,13 @@ PV接着出现的警用渣古、仿佛RX-78/CA的红高类似物、爱美号专�
 
 可能爆完鸭子就回来了也说不定
 
+
+*****
+
+####  王留美  
+##### 4112#       发表于 2025-1-18 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213338&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-18 15:10</a>
+ 打黑拳打12集  应该不至于，6台复制品和幻之高达不就对应ORIGINAL7，高达版的枪×剑。 ...</blockquote>
+企划时期的古早设定就别提了吧，没有参考意义
+
