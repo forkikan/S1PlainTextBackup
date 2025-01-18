@@ -10770,3 +10770,44 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 为什么打炮的钢加农要跳起来和高达近战呢，你连个近战武器都没有。
 
+
+*****
+
+####  创始’’’天翔  
+##### 4027#       发表于 2025-1-18 11:23
+
+谁说没近战武器就不能近战了(
+
+<img src="https://img.saraba1st.com/forum/202501/18/112242nz2u5l677plgag5q.png" referrerpolicy="no-referrer">
+
+<strong>98157117371705222.png</strong> (138.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/112247ru1zrzuukbeqvrgk.png" referrerpolicy="no-referrer">
+
+<strong>99800317371705382.png</strong> (103.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 11:22 上传
+
+*****
+
+####  Sliurus  
+##### 4028#       发表于 2025-1-18 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212033&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-18 11:23</a>
+
+谁说没近战武器就不能近战了(</blockquote>
+不是谁都叫阿姆罗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yxydd88  
+##### 4029#       发表于 2025-1-18 11:30
+
+昨晚看完感觉片子里这个世界观由于鸭子莫名其妙的失踪，实际上战后对NT的研究应该是相对冷藏状态的。鸡翁的NT驾驶员也不像是接受过强化人训练或者手术的状态。倒是把上映前少年少女开高达打黑拳筛选NT的可能性给干没了。女主初战的对手应该也是正规军退役的驾驶员
+
