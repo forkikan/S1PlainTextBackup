@@ -12218,3 +12218,74 @@ G-4计划的前提是G3啊
 休斯天天敢达在说敢达在说，那个敢达是谁啊
 总不至于真是红敢达成精了吧
 
+
+*****
+
+####  jojonathan  
+##### 4173#       发表于 2025-1-18 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214547&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-18 18:11</a>
+休斯天天敢达在说敢达在说，那个敢达是谁啊
+总不至于真是红敢达成精了吧 ...</blockquote>
+万一他是那种“我就是刚大木！”的类型呢<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4174#       发表于 2025-1-18 18:18
+
+<blockquote>王留美 发表于 2025-1-18 18:11
+休斯天天敢达在说敢达在说，那个敢达是谁啊
+
+总不至于真是红敢达成精了吧 ...</blockquote>
+
+不是说修司每次开口都是头顶机器人先说话吗？夏亚机器人假药感觉是目前可能性最大的假药了，土屋的宣发也专门给了小机器人画面。修司可能根本就不认识夏亚，夏亚跟他讲话，他误以为是敢达在和他说话（）
+
+*****
+
+####  0aleph37  
+##### 4175#       发表于 2025-1-18 18:19
+
+ 本帖最后由 0aleph37 于 2025-1-18 18:21 编辑 
+
+联邦是不是反派得看遇到的是不是魔怔人吧
+
+虽然说现在这种被吉翁打平的状态下应该会催生出一大批魔怔人。参考一战后的欧洲
+
+虽然从剧本的角度又反联邦魔怔人又反吉翁扎比家难度会非常大
+
+*****
+
+####  jojonathan  
+##### 4176#       发表于 2025-1-18 18:20
+
+一想到夏亚总帅可能趴在休斯头上发表正义演讲我就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 4177#       发表于 2025-1-18 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214607&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-18 18:19</a>
+联邦是不是反派得看遇到的是不是魔怔人吧
+
+虽然说现在这种被吉翁打平的状态下应该会催生出一大批魔怔人 ...</blockquote>
+看日本佬讲联邦彻底失去宇宙以后会缺关键资源的样子可能再也站不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卑弥呼yamato  
+##### 4178#       发表于 2025-1-18 18:23
+
+那很有可能一边打吉翁高层派来的灭口杀手部队，一边打类似新TTS的武装（
+
+*****
+
+####  王留美  
+##### 4179#       发表于 2025-1-18 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214625&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 18:21</a>
+ 看日本佬讲联邦彻底失去宇宙以后会缺关键资源的样子可能再也站不起来了 ...</blockquote>
+都能输出地球农场品了，基本的交流贸易管道应该是还在的
+
