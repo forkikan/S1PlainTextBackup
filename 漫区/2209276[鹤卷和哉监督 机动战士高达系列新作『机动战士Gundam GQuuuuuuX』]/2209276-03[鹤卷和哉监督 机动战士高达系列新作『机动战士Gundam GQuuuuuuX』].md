@@ -10946,3 +10946,39 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 百合胜算大吗？
 
+
+*****
+
+####  AraTurambar  
+##### 4040#       发表于 2025-1-18 12:04
+
+胶佬说越看越像真的，我看到了时间也在似乎暗示这个。
+
+该不会最后鸭子坐在电影院吃着热狗喝着蜜瓜汽水看总集片的时候被抓回了UC。
+
+
+*****
+
+####  gundammarkⅡ  
+##### 4041#       发表于 2025-1-18 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211898&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-1-18 10:59</a>
+为什么打炮的钢加农要跳起来和高达近战呢，你连个近战武器都没有。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">不是说带了个流星锤？
+然后那个流星锤被红高达顺了，直到修司时也有装备
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4042#       发表于 2025-1-18 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212292&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-1-18 12:04</a>
+胶佬说越看越像真的，我看到了时间也在似乎暗示这个。
+
+该不会最后鸭子坐在电影院吃着热狗喝着蜜瓜汽水看总 ...</blockquote>
+敢情是天堂电影院啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
