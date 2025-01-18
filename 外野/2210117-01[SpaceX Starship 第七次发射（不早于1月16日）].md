@@ -1624,3 +1624,33 @@ B7、S25到现在S33，都是泄漏起火造成的事故。之前都是通过加
 
 个人感觉V2版可能计划原配的是猛禽3，所以没有参考之前的经验。SpaceX可能需要大力推进猛禽3才能彻底解决这个问题。
 
+
+*****
+
+####  commcody  
+##### 133#         楼主| 发表于 2025-1-18 11:38
+
+ 本帖最后由 commcody 于 2025-1-18 11:41 编辑 
+
+B14已经从发射台拆下，即将返厂。有传闻称这将会是第一枚复用的助推器。
+
+同时S34在梅西测试场进行了低温加注和结构测试。
+
+抛开事故调查因素，下一发的B15还没完成静点，S34甚至发动机都还没装。个人认为第八次发射最早也要三月初。
+
+<img src="https://img.saraba1st.com/forum/202501/18/113732k1b1gjysirjm22ky.jpg" referrerpolicy="no-referrer">
+
+<strong>GhiqWcwW4AAye6h.jpg</strong> (490.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/113732hou9pmipmapi69zp.jpg" referrerpolicy="no-referrer">
+
+<strong>Ghh_H6LXAAEt156.jpg</strong> (405.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 11:37 上传
+
