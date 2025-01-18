@@ -11105,3 +11105,67 @@ UC不是真实系吗，怎么越来越神棍了<img src="https://static.saraba1s
 UC不是真实系吗，怎么越来越神棍了</blockquote>
 这算啥，巴纳吉和丽塔也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 4056#       发表于 2025-1-18 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212459&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-18 12:33</a>
+
+啊？喵安是软妹性格吗？我还以为浑身带刺的那种</blockquote>
+推上有人说像是好好梳头的月村手毬，感受一下
+
+*****
+
+####  赤黑的假面  
+##### 4057#       发表于 2025-1-18 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212431&amp;ptid=2209276" target="_blank">青空独 发表于 2025-1-18 12:27</a>
+
+UC不是真实系吗，怎么越来越神棍了</blockquote>
+喜欢我卡缪灵能发功吗
+
+*****
+
+####  YU_JI  
+##### 4058#       发表于 2025-1-18 12:39
+
+uc的nt不是所有高达神棍的祖宗吗？（
+
+
+*****
+
+####  YU_JI  
+##### 4059#       发表于 2025-1-18 12:40
+
+<blockquote>yevvet 发表于 2025-1-18 12:25
+gquuuux的读音是zick 阿克斯 。有什么含义吗</blockquote>
+好蹩脚的读音，我读g夸克斯都习惯了
+
+*****
+
+####  永恒之风  
+##### 4060#       发表于 2025-1-18 12:44
+
+国内圈子不喜欢高达往神棍方向发散，看到了时间可是0079原作就有的台词，但我反而觉得不搞神棍NT没高达味儿<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yevvet  
+##### 4061#       发表于 2025-1-18 12:44
+
+<blockquote>RE㐅ia 发表于 2025-1-18 12:33
+啊？喵安是软妹性格吗？我还以为浑身带刺的那种</blockquote>
+居软，唯唯诺诺的性格。女主反而超级1
+
+*****
+
+####  虛無迴廊  
+##### 4062#       发表于 2025-1-18 12:45
+
+麻球人造人，修司部诗人
+喵安就只是喵安，ただの喵安<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
