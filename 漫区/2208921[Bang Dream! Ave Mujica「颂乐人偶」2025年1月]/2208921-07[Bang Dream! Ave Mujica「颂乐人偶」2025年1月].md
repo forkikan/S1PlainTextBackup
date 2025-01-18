@@ -4705,3 +4705,33 @@ mujica完结后，两团之间的进一步剧情发展只能是手游了
 
 哪怕它们已经死掉了，并且是20支！所以她自我介绍时会带上，因为很可能只有她记得它们了，她到底背着啥？</blockquote>
 
+
+*****
+
+####  指南アキラ  
+##### 9296#       发表于 2025-1-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211586&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-18 10:01</a>
+
+祥子和别人彻底切割的情况
+
+1 强迫祥子做强烈不情愿的事情 比如祥爷 soyo
+
+2 直接要求祥子从自己身边离开的  ...</blockquote>
+不信，如果现在警察局来打电话让祥子去捞人，祥子肯定还去
+
+乐观的想，可能是清告现在不酗酒了
+
+*****
+
+####  darkXcross  
+##### 9297#       发表于 2025-1-18 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211586&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-18 10:01</a>
+祥子和别人彻底切割的情况
+
+1 强迫祥子做强烈不情愿的事情 比如祥爷 soyo
+
+2 直接要求祥子从自己身边离开的  ...</blockquote>
+那灯呢？
+
