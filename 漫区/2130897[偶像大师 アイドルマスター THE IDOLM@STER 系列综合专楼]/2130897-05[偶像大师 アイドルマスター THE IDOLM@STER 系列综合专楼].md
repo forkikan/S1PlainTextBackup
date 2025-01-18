@@ -18,3 +18,15 @@ SACD到了，但是没有SACD机…
 
 2-3万有啥推荐吗？SA-10怎么样，糊吗？
 
+
+*****
+
+####  王九的哥哥  
+##### 6876#       发表于 2025-1-18 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213646&amp;ptid=2130897" target="_blank">acacaclove 发表于 2025-1-18 16:04</a>
+火锅2没中前区，只中了两场全席，不想去了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不要给我吧，刚好落了……
+

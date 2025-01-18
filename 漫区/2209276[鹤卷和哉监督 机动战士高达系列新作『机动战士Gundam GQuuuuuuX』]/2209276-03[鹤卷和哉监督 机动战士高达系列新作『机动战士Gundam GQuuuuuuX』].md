@@ -12621,3 +12621,30 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 幽默匿名版
 
+
+*****
+
+####  Gysumitka  
+##### 4213#       发表于 2025-1-18 21:08
+
+草，送扎比家。不会的想用黄金砸死基西莉亚吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蕾洁之风  
+##### 4214#       发表于 2025-1-18 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215817&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 20:29</a>
+看了下霓虹匿名版
+
+那边也认为牢修是从别的世界来到这边的人，还希望鸭子穿越到别的世界之后能被当地人好好 ...</blockquote>
+没有登上eva的真嗣不就是终的结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 4215#       发表于 2025-1-18 21:15
+
+前几年井上雄彦用TFSD给大家表演了一个场内场外的篮球抢七大战还赢了，不知道卡拉会不会也在场内场外给大伙表演一个钢弹屹立在大地之上，然后还赢了
+

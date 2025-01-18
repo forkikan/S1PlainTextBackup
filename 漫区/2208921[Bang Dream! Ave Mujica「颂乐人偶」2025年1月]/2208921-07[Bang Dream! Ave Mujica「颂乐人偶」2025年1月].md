@@ -6472,3 +6472,17 @@ KK园区是指中国人横扫KillKiss专辑的店吗
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  友情的结晶  
+##### 9447#       发表于 2025-1-18 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216109&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-18 20:59</a>
+我想论证的是：
+
+明褒-承认祥子的善良品质，暗贬-否定祥子的处事逻辑。事实-祥子上来一撞什么意义都没有， ...</blockquote>
+祥子受伤也就擦破点皮，并且一转进入灯用创可贴交友的环节。能从这里解读出对制作组暗含的贬义我觉得属于过度解读<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
