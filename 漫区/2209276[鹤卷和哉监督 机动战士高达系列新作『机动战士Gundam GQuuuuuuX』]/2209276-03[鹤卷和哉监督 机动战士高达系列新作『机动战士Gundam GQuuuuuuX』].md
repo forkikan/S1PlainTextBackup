@@ -12661,3 +12661,21 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 <img src="https://p.sda1.dev/21/acb5e9fb30d745b68c42b37732290be8/005B2wbqgy1hxp502lnrjj32n01x6e82.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/9b2db41883849c8211bca72d2fa8cf32/005B2wbqgy1hxp505wsjkj32n01x6x6p.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 4217#       发表于 2025-1-18 21:33
+
+<img src="https://img.saraba1st.com/forum/202501/18/213226w86mttr89ahzwi69.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (52.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 21:32 上传
+
+这段看笑了，鹤卷当年看的时候是不是一脸懵啊
+
+遗言只说了纳尼就被干掉了什么的
+
