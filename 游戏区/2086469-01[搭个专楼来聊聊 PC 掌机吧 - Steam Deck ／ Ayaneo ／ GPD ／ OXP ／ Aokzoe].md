@@ -257,3 +257,15 @@ pdd claw7+8+上了  6199 6999
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mmmrm  
+##### 1359#       发表于 2025-1-18 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211026&amp;ptid=2086469" target="_blank">nozomitech 发表于 2025-1-18 06:04</a>
+还是那句话，claw7寸电池太小续航打不过改进版rog，8寸太重了，总之很尴尬。
+
+后面的Z2E价钱不说，3Zen5+5Z ...</blockquote>
+掌机跑个60帧都勉强，4C8T都够用了，除非你拿来外接显示器压片什么的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
