@@ -10413,3 +10413,15 @@ pv里的那首bgm完整版能搜到吗
 —— 来自 鹅球 v3.3.96</blockquote>
 等OST吧，现在网上只有从pv里扒下来的有噪音版和粉丝自制版
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 3991#       发表于 2025-1-18 07:59
+
+把插曲听了
+这是积木p写的？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我们高达gqux是什么p主大世界吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
