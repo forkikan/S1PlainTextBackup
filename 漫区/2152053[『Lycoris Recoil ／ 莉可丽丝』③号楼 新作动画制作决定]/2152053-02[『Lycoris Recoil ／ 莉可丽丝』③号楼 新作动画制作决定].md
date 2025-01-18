@@ -115,3 +115,21 @@
 这小动画有说啥时候播吗</blockquote>
 没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2026年见
 
+
+*****
+
+####  HANDAIYV  
+##### 2063#       发表于 2025-1-18 17:25
+
+不见了最好，小动画不见第二季也别见，再也不见就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 2064#       发表于 2025-1-18 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214182&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-1-18 17:20</a>
+
+没有2026年见</blockquote>
+六集的泡面番要做一年吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
