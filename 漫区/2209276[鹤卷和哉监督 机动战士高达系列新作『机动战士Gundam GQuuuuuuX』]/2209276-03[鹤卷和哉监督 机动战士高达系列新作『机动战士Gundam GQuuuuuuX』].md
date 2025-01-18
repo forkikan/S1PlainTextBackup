@@ -11530,3 +11530,26 @@ PV接着出现的警用渣古、仿佛RX-78/CA的红高类似物、爱美号专�
 
 雖然外表也只是紅色
 
+
+*****
+
+####  赤黑的假面  
+##### 4100#       发表于 2025-1-18 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213114&amp;ptid=2209276" target="_blank">uponutopia 发表于 2025-1-18 14:23</a>
+
+正儿八经种开始看的都奔四奔五了还够不上姨姥吗  感觉童厕那些严厉的姨姥应该没有种青老 ...</blockquote>
+感觉牢中宇宙世纪遗老不如变形金刚G1遗老年纪上遗老，从啊B上来看，你钢宇宙世纪真就是新生代的机器人动画时尚单品，只要跟风吹一下就能显摆你看我多懂机器人动画，我牛逼吧的那啥。
+
+*****
+
+####  猪突猛进R  
+##### 4101#       发表于 2025-1-18 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213128&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-18 14:27</a>
+
+霓虹金的假药思路和国内偏差有点远啊
+
+什么阿姆罗被联邦拉去搞强化人，阿姆罗在修司头顶机器人里，拉拉辛魂 ...</blockquote>
+那么鸭子去哪儿了？
+
