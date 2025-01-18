@@ -12179,3 +12179,24 @@ G-4计划的前提是G3啊
 联邦不会是主要反派
 有鸭子在基连和基西莉亚的反派位就逃不掉的
 
+
+*****
+
+####  卑弥呼yamato  
+##### 4169#       发表于 2025-1-18 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214390&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 17:54</a>
+联邦残党是吧</blockquote>
+地球好好的，和正史直接吧吉翁打解体了可不一样，不过理论上讲殖民地存在亲联邦的武装。
+
+
+*****
+
+####  jojonathan  
+##### 4170#       发表于 2025-1-18 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214424&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-18 17:57</a>
+联邦不会是主要反派
+有鸭子在基连和基西莉亚的反派位就逃不掉的</blockquote>
+鸭子不是不在了嘛<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">按楼友的假药已经被发送到天堂电影院了
+
