@@ -8020,3 +8020,111 @@ Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人�
 
 2025-1-19 00:03 上传
 
+
+*****
+
+####  dqtql  
+##### 9574#       发表于 2025-1-19 00:04
+
+现在的主流猜测不都在说初华在下一盘大棋嘛
+
+*****
+
+####  天空塔书记官  
+##### 9575#       发表于 2025-1-19 00:05
+
+然后往往亚撒西型的角色黑化起来也是最可怕的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  skylah  
+##### 9576#       发表于 2025-1-19 00:05
+
+小祥留下一张字条搬出初华家算不算大的刺激
+
+要猜初华破防的原因还得从过往找，信息太少了
+
+*****
+
+####  花スープ  
+##### 9577#       发表于 2025-1-19 00:06
+
+Go 团初期爱音和素世根本就不是真心想组乐团的，立希戳穿他俩对后续 Go 团不破不立是起到关键作用的，初华现在就是纯纯和稀泥
+
+*****
+
+####  十九号大侠  
+##### 9578#       发表于 2025-1-19 00:06
+
+喵梦是美妆博主，那么想要流量，如果是现实的话，早当FLJ了
+
+*****
+
+####  thisisaspider  
+##### 9579#       发表于 2025-1-19 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217763&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-19 00:04</a>
+
+访问量爆之前1w不到，确实蛮底边的</blockquote>
+不清楚wsd对视频主数据的理解是什么水平。我更倾向于侧面描写的直观感受。
+
+*****
+
+####  木板春香  
+##### 9580#       发表于 2025-1-19 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217763&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-19 00:04</a>
+
+访问量爆之前1w不到，确实蛮底边的</blockquote>
+这个是最近一个月的视频播放量
+
+*****
+
+####  天空塔书记官  
+##### 9581#       发表于 2025-1-19 00:08
+
+FLJ剧情在邦肯定是不行的，放隔壁D5J就很合理了，毕竟R18<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 9582#       发表于 2025-1-19 00:08
+
+初华大棋肯定是在下的，但是现在大家讨论角色，其他人大多是场内表现，到初华这里只剩下假药和神秘操作被1打2反杀了，没播出之前还好，播出之后只有假药的话人气和讨论度已经比不上其他人了，希望后面能让初华好起来吧
+
+
+*****
+
+####  天空塔书记官  
+##### 9583#       发表于 2025-1-19 00:10
+
+ 本帖最后由 天空塔书记官 于 2025-1-19 00:12 编辑 
+
+视频播放量这东西很玄学的，大UP低播放量视频一抓一大把，更何况是喵梦这样蹭热度的美妆网红了
+
+即使有不错的粉丝基数，也不可能保证每个视频都是爆款<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 9584#       发表于 2025-1-19 00:12
+
+只能假药一个祥子"抛弃过"初华，让初华爱恨交织。对立，关系性有了，伏笔不会太难，爆点也好解决，想写大的再加点重力就行。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 9585#       发表于 2025-1-19 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217636&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-18 23:49</a>
+初华为什么会吵不赢喵梦啊？现在这么忙，到底是谁造成的 啊</blockquote>
+是sumimi🍩
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
