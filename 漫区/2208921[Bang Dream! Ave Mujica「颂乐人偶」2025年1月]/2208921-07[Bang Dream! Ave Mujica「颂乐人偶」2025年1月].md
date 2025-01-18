@@ -5298,3 +5298,28 @@ mujica完结之后看mujica前三集感觉又不一样了，观众眼中的“�
 3、对睦破防-推动了睦勇于表达自我，演技进化的进度。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thisisaspider  
+##### 9345#       发表于 2025-1-18 16:55
+
+你就说小灯喜不喜欢小祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 就喜欢霸道小祥
+
+*****
+
+####  kuroro  
+##### 9346#       发表于 2025-1-18 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214004&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-18 16:55</a>
+
+你就说小灯喜不喜欢小祥吧 就喜欢霸道小祥</blockquote>
+看看爱音看看祥，感觉小灯就好这一口
+
+*****
+
+####  ml1642879  
+##### 9347#       发表于 2025-1-18 16:59
+
+为什么都把sumimi的事务所也是ave mujica的事务所这一设定忘了，我第二集就在猜初华是不是签了卖身契级别的合约才让事务所的上层同意狂推ave mujica出道最速武道馆，如果是祥外公派黑衣人打探祥子消息然后施展大手感觉有点绕远了
+

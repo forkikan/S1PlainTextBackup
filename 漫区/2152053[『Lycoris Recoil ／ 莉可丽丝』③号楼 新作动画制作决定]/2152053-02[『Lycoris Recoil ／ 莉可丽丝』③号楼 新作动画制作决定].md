@@ -83,3 +83,18 @@
 
 山本健都来写脚本了，想到第一季还有鹿间贵裕的脚本，看来这系列是要贯彻“动画人友好”这个方向了，原画师在这里可以挑战其他职位，作监修正力度也不大，美其名曰保留个人风格。
 
+
+*****
+
+####  夜游宫  
+##### 2059#       发表于 2025-1-18 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这脚本怎么不见神林啊
+
+*****
+
+####  osore  
+##### 2060#       发表于 2025-1-18 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周处除三害
+
