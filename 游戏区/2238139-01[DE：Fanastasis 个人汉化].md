@@ -759,3 +759,20 @@ alt+enter，取消全屏也是。
 
 确实很上头啊这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">地图是真的大，就算看不明白剧情瞎逛街舔图都很有意思，还是明雷完全可以规避战斗，甚至都不要你刷级，花点素材就能把冷板凳队友等级拉满，太舒服了
 
+
+*****
+
+####  妄想中毒  
+##### 70#       发表于 2025-1-18 16:04
+
+收集完记忆合体之后没地方去了，wiki看了半天说要去魔界大洞打王国摄政，关键是这魔界大洞在哪我都不知道，魔界门就一条路被挡住了过不去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgkqjsd  
+##### 71#         楼主| 发表于 2025-1-18 16:05
+
+<blockquote>妄想中毒 发表于 2025-1-18 16:04
+收集完记忆合体之后没地方去了，wiki看了半天说要去魔界大洞打王国摄政，关键是这魔界大洞在哪我都不知道， ...</blockquote>
+放魔之塔塔顶
+

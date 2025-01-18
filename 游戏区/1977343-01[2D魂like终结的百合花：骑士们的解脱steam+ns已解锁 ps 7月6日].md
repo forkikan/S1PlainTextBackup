@@ -54,3 +54,14 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 
 莉莉虽然手感梆硬，但我觉得还是比亵渎空洞这些好上手的，怎么泥潭评价这么低
 
+
+*****
+
+####  blackll7  
+##### 672#       发表于 2025-1-18 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213596&amp;ptid=1977343" target="_blank">净水计划 发表于 2025-1-18 15:56</a>
+
+莉莉虽然手感梆硬，但我觉得还是比亵渎空洞这些好上手的，怎么泥潭评价这么低 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是因为除了美术其他都稀疏吗.............
+
