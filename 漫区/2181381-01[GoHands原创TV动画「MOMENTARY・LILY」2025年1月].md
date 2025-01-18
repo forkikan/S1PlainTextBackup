@@ -140,3 +140,11 @@ ep3的回忆杀是不是说明后面女主还会复活<img src="https://static.s
 金发是辛梅尔，开局就死了，后续只活在回忆里，然后一群人重走长征路</blockquote>
 CV表第一的辛美尔是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真爱与热情  
+##### 126#       发表于 2025-1-18 19:50
+
+这片子的台词设计稍微有趣一点，都不至于看的这么煎熬。感觉是这季度最漫长的24分钟了
+

@@ -12461,3 +12461,20 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Gysumitka  
+##### 4198#       发表于 2025-1-18 19:55
+
+麻球形象怎么越来越怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gundammarkⅡ  
+##### 4199#       发表于 2025-1-18 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然想到，退回地球6年的联邦能不能再次开发出高达级别或者接近高达级别的MS呢？然后以此为座机的联邦势力（小队规模偷渡上宇宙）在TV中插上一脚这样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
