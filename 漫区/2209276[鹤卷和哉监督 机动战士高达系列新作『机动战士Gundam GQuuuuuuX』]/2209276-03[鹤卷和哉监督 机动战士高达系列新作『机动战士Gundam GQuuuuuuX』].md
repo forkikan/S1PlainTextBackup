@@ -10477,3 +10477,22 @@ pv里的那首bgm完整版能搜到吗
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  虛無迴廊  
+##### 3997#       发表于 2025-1-18 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211339&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-1-18 09:03</a>
+我怎么感觉麻球看修司和喵安都有奇怪的滤镜
+
+—— 来自 OPPO PDNM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+好动又好色的青春期少女<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 3998#       发表于 2025-1-18 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特都看到不少差评的话那是大暴死才会有的情况，那可是推特啊
+
