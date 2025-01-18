@@ -13061,3 +13061,38 @@ https://m.weibo.cn/status/5124249748505041</blockquote>
 
 两人一组战斗+神秘的天降系少年(岭司)+吉翁出身看起来很可靠的大叔(拉里)<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">懂了，gqx其实是创战者精神续作，各个site排代表打黑拳打12集啦
 
+
+*****
+
+####  RE㐅ia  
+##### 4259#       发表于 2025-1-18 22:58
+
+<blockquote>PascalLefèvre 发表于 2025-1-18 22:51
+我不想说近十年来最好的高达tv都是钢普拉，但这是事实</blockquote>
+再起是网络配送吧
+
+*****
+
+####  PascalLefèvre  
+##### 4260#       发表于 2025-1-18 23:01
+
+ 本帖最后由 PascalLefèvre 于 2025-1-18 23:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217175&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-18 22:58</a>
+再起是网络配送吧</blockquote>
+水魔和铁血也过不了创战啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+不过创战是十一年前了，确实稍微有点不严谨，这么看这十年最好的高达TV是铁血，好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 4261#         楼主| 发表于 2025-1-18 23:07
+
+[https://x.com/lilya_litvak/status/1880195916898136172](https://x.com/lilya_litvak/status/1880195916898136172)
+
+本日より公開の『機動戦士Gundam GQuuuuuuX -Beginning-』に原画で参加させて頂きました。
+
+観てください！
+<img src="https://p.sda1.dev/21/797657887983029f97738e601b4e5a77/20250118_230557.jpg" referrerpolicy="no-referrer">
+

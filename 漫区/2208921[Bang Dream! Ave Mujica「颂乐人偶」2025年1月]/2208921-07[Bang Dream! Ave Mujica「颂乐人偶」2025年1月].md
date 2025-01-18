@@ -7181,3 +7181,68 @@ Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人�
 
 当你一穷二白时所有梦想都是笑话，当你功成名就时所有过错都是垫脚石。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厚乳果珍爽  
+##### 9504#       发表于 2025-1-18 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217140&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-18 22:55</a>
+
+母鸡卡这么多问题难道不是祥子一开始埋下的吗，点燃引线的喵梦有责任但谁把周围搞成雷场的啊
+
+非要说“罪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，祥子目前还兼制作人的活，喵梦这么砸场子，放其他地方，第二天就有解约报告了。
+
+*****
+
+####  阿兹尔  
+##### 9505#       发表于 2025-1-18 23:00
+
+ 本帖最后由 阿兹尔 于 2025-1-18 23:02 编辑 
+
+目前来看踢了喵梦，不好找人替啊，虽然是大少女乐队时代，但是从老团的经验来看，厉害而且符合风格的鼓手是真挺难找的，更别说鸡团还要演尬剧
+
+踢了再找人，然后新人还要练习融入，估计起码都得两三个月啊
+
+*****
+
+####  山ノ内花音  
+##### 9506#       发表于 2025-1-18 23:00
+
+讨论环境已经电竞化了
+现在喵梦搞事——全是祥子没有识人之能的锅
+将来喵梦表现好 那必然是祥子有识人之才  比总想着把喵梦踢掉的网友强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 9507#       发表于 2025-1-18 23:03
+
+感觉你楼又车轱辘第一话了，怎么没有一点进展<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 9508#       发表于 2025-1-18 23:03
+
+大概率是soyo助攻祥子追回睦
+灯助攻祥子追回初华
+
+
+*****
+
+####  aptx8285144  
+##### 9509#       发表于 2025-1-18 23:06
+
+祥子都知道瞄梦在”教唆离间“了，却连修正拳都没有，那岂不还是只有感化洗白这条路了，好吧，是的，是有些软弱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 9510#       发表于 2025-1-18 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217114&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:51</a>
+我觉得，鸡团的人说不定要靠狗团来解开心结。</blockquote>
+起码灯那个没送出的笔记本就是把随时等待发射的契科夫之枪
+
