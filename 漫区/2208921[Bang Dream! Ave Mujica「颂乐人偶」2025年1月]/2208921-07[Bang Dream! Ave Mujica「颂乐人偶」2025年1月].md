@@ -5770,3 +5770,86 @@ MYGO第三集和MUJICA第三集对着看更有意思了。分别是灯和睦的�
 
 go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候看起来一条线要想干大的去，大女主说辞是因为场外我见过的同人片段或转述很多都在说祥子是杀伐果决的存在，甚至经常已经到了夸大事实的程度了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkXcross  
+##### 9389#       发表于 2025-1-18 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213898&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-18 16:41</a>
+
+横行霸道丰川祥  忍辱偷生高松灯
+
+怕别人自杀这个角度不好说成自以为是吧</blockquote>
+正常人看到疑似寻短见的处理过程：卧槽要跳？真的吗？观察观察。要不我劝劝？
+
+祥子：要跳！生命是很珍贵的！不惜一切手段！我撞！
+
+之后祥子所有的重大决策都是这种行为模式，就是从来没有自我怀疑和权衡利弊过。
+
+*****
+
+####  阿兹尔  
+##### 9390#       发表于 2025-1-18 19:10
+
+<blockquote>yaneis 发表于 2025-1-18 18:55
+第三集看完感觉初华操作段位是不是有点低啊，对线喵梦都处于下风，跟现在场外假药走向完全不一样（ ...</blockquote>
+说实话初华目前的表现要不是因为假药、访谈、一些小细节，早就被大规模嘲讽舔狗挂件了，现在还是相信初华的后期好些
+
+*****
+
+####  wsuFish  
+##### 9391#       发表于 2025-1-18 19:10
+
+睦是为了当祥子的共犯而出言这一说法最严重的问题是：祥子当时并不想解散c团。
+
+观众以上帝视角看，祥子退出会导致c团的解散，祥子后来也和素世承认了，但在当时祥子只是想退出的，不然也不会说“没有我你们也可以练习”了。
+
+如果睦是为了分担“罪责”而故意出言解散，那真是越俎代庖，而且有点过于惊世智慧了。祥子退出乐队-乐队会解散-祥子事后会很内疚-我得分担-我说出“不高兴”乐队就解散了。只有观众的上帝视角才能得出这一大串逻辑，不然月之森点子王这一名号该让位给睦了
+
+访谈的说法也可以解释，那就是从剧本安排的角度出发，而不是从角色如何做的角度出发
+
+*****
+
+####  JustW  
+##### 9392#       发表于 2025-1-18 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214977&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-18 19:04</a>
+
+我理解里就是被mygo刺激到了，自己抛弃c团换来的也只有依旧苦涩的现实，而被抛弃老队友已经有新的归属， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先这样的话多少有点小丑了，以及现在还在乐队干这么拼、对乐队发展方向有这么大执着就说不通了，最速武道馆了还仿佛只是万里长征第一小步
+
+
+*****
+
+####  天空塔书记官  
+##### 9393#       发表于 2025-1-18 19:14
+
+大喵的炒作小视频终于又更新了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  十九号大侠  
+##### 9394#       发表于 2025-1-18 19:15
+
+上红白摘面具                    
+
+*****
+
+####  JustW  
+##### 9395#       发表于 2025-1-18 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215000&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-18 19:06</a>
+
+go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候看起来一条线要想干大的去，大女主说辞是因为场外 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在来看杀伐果决一点都不沾吧，可以说是完全相反了
+
+*****
+
+####  IWS2000  
+##### 9396#       发表于 2025-1-18 19:18
+
+大喵是高一
+

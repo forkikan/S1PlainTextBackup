@@ -269,3 +269,11 @@ pdd claw7+8+上了  6199 6999
 后面的Z2E价钱不说，3Zen5+5Z ...</blockquote>
 掌机跑个60帧都勉强，4C8T都够用了，除非你拿来外接显示器压片什么的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  requiem116  
+##### 1360#       发表于 2025-1-18 19:10
+
+微星这个和ally比咋样？我看pdd才3199，ally还要3600
+
