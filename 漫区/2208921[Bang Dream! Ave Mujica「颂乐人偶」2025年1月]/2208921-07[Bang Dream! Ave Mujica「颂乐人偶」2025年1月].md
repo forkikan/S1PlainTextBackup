@@ -4735,3 +4735,54 @@ mujica完结后，两团之间的进一步剧情发展只能是手游了
 2 直接要求祥子从自己身边离开的  ...</blockquote>
 那灯呢？
 
+
+*****
+
+####  哈曼的YY  
+##### 9298#       发表于 2025-1-18 10:29
+
+<blockquote>玖羽 发表于 2025-1-18 10:07
+https://tieba.baidu.com/p/9423609083</blockquote>
+这帖子刚刚被删了 凌晨还在的
+
+*****
+
+####  刑部姬真可爱  
+##### 9299#       发表于 2025-1-18 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211612&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 10:07</a>
+
+https://tieba.baidu.com/p/9423609083</blockquote>
+确实，看完这个之后才注意到ed海铃的包里除了咖啡罐全是撕裂的相片，她才是只要队里没人说解散她就不会认为乐队已经解散了的人啊，从这点来说这重力比soyo还重<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 9300#       发表于 2025-1-18 10:33
+
+刚刚有个打鼓网友说nga大喵打鼓科普贴夸大其词了 打起来并不难受 有没有打鼓漏油对账的
+
+*****
+
+####  Akari  
+##### 9301#       发表于 2025-1-18 10:34
+
+从目前TV版结束，直接1个月接横K鸡狗对邦，结合武士道在mujica4TH搞的这一系列操作看下来他们应该还会挺喜欢这套的。
+
+即，TV动画可能最多到事情告一段落，13话留尾巴（遗憾），交棒到现实世界和游戏。
+
+站在一个运营的角度考量，也是个挺不错的营运方式。
+
+至于短期出2期和全新剧场版，应该不太会，周期成本摆着呢，不如搞META营业。
+
+
+*****
+
+####  指南アキラ  
+##### 9302#       发表于 2025-1-18 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211702&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-1-18 10:27</a>
+
+那灯呢？</blockquote>
+她不是因为看到灯被爱音拽着跑出学校，在第四话叫住正在下楼的爱音，想要问问情况吗，可能没想做什么，还是有一点点关心
+
