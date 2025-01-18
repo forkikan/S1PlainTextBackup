@@ -12200,3 +12200,21 @@ G-4计划的前提是G3啊
 有鸭子在基连和基西莉亚的反派位就逃不掉的</blockquote>
 鸭子不是不在了嘛<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">按楼友的假药已经被发送到天堂电影院了
 
+
+*****
+
+####  线程召唤使  
+##### 4171#       发表于 2025-1-18 18:09
+
+雷比尔还活着吧？提安姆是不是死了？
+
+*****
+
+####  王留美  
+##### 4172#       发表于 2025-1-18 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214473&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 18:03</a>
+ 鸭子不是不在了嘛按楼友的假药已经被发送到天堂电影院了</blockquote>
+休斯天天敢达在说敢达在说，那个敢达是谁啊
+总不至于真是红敢达成精了吧
+
