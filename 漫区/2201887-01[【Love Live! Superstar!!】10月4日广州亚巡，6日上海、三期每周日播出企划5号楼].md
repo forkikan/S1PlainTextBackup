@@ -14677,3 +14677,17 @@ BD封面早有预料了，结局都那样安排了。
 
 不过加个香音也没什么的吧。毕竟这卷的故事主力就这三个呀。
 
+
+*****
+
+####  starring  
+##### 1430#       发表于 2025-1-18 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211580&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-1-18 09:59</a>
+BD封面早有预料了，结局都那样安排了。
+
+不过加个香音也没什么的吧。毕竟这卷的故事主力就这三个呀。 ...</blockquote>
+第一卷的封面已经有香音了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

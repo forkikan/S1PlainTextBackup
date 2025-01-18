@@ -10708,3 +10708,48 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 话说，斧子在正片里是GQX的原装武装吗？还是黑拳抢的？
 
+
+*****
+
+####  中野梓  
+##### 4020#       发表于 2025-1-18 10:49
+
+<blockquote>十万年魂环 发表于 2025-1-18 10:18
+所以现在是真的在爆了，还是老登自嗨中？</blockquote>
+哪里看到爆了？
+
+*****
+
+####  十万年魂环  
+##### 4021#       发表于 2025-1-18 10:49
+
+这部后期会有神功大成画面吗，感觉会不输神必马格南人<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jojonathan  
+##### 4022#       发表于 2025-1-18 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211822&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-18 10:47</a>
+话说，斧子在正片里是GQX的原装武装吗？还是黑拳抢的？</blockquote>
+说是捡的扎古的
+
+*****
+
+####  王留美  
+##### 4023#       发表于 2025-1-18 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211822&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-18 10:47</a>
+ 话说，斧子在正片里是GQX的原装武装吗？还是黑拳抢的？</blockquote>
+抢的
+
+*****
+
+####  王留美  
+##### 4024#       发表于 2025-1-18 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211643&amp;ptid=2209276" target="_blank">ricardogg72 发表于 2025-1-18 10:15</a>
+ 为什么都默认最后蓝白红标准配色钢加农里面坐着塞拉？有可能是和塞拉配对（搞不好还带着有塞拉**护身符）的 ...</blockquote>
+庵野说过他就看了一次小说版，所以应该不会是这样
+
