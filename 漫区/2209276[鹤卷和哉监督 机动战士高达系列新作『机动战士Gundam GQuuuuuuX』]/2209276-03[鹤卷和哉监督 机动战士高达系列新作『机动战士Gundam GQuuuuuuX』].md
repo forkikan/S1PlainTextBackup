@@ -11007,3 +11007,101 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 喵安？怎么没人假药我
 
+
+*****
+
+####  yevvet  
+##### 4045#       发表于 2025-1-18 12:25
+
+gquuuux的读音是zick 阿克斯 。有什么含义吗
+
+*****
+
+####  刺客ares  
+##### 4046#       发表于 2025-1-18 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212397&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-1-18 12:21</a>
+
+所以现在
+
+麻球=玫瑰？哈曼？
+
+牢修=玫瑰？渚薰？高达人间体？异次元夏亚？胶佬？</blockquote>
+因为喵安人物经历在官网写的太清晰了（
+
+*****
+
+####  Gysumitka  
+##### 4047#       发表于 2025-1-18 12:26
+
+尼娅安主要相较于另外两人略平常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 4048#       发表于 2025-1-18 12:26
+
+有没有吐槽bgm阿。插入的时间太怪了吧。突然开始意义不明的唱歌。
+
+*****
+
+####  0aleph37  
+##### 4049#       发表于 2025-1-18 12:27
+
+霓虹金也在吐槽喵安的角色性太单薄了
+
+*****
+
+####  青空独  
+##### 4050#       发表于 2025-1-18 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212245&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 11:57</a>
+
+再来点假药，那0085部分的主线也清晰了
+
+不是小格局就打打黑拳也不是盲目大格局搞推翻吉翁公国
+
+而是一边躲避 ...</blockquote>
+UC不是真实系吗，怎么越来越神棍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yevvet  
+##### 4051#       发表于 2025-1-18 12:30
+
+黑长直这角色看完了没啥感觉，存在感很薄性格也很无聊，人设那么帅居然是软妹性格。跟女主虽然卖了百合但也没啥cp感。牢修和俩女角色互动感倒是很强。修司和女主cp感我感觉是爆棚了
+
+*****
+
+####  Gysumitka  
+##### 4052#       发表于 2025-1-18 12:32
+
+走私贩设计成人精比较好，软妹没劲
+
+*****
+
+####  王留美  
+##### 4053#       发表于 2025-1-18 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212431&amp;ptid=2209276" target="_blank">青空独 发表于 2025-1-18 12:27</a>
+ UC不是真实系吗，怎么越来越神棍了</blockquote>
+一开始就是神棍系啊
+
+*****
+
+####  RE㐅ia  
+##### 4054#       发表于 2025-1-18 12:33
+
+啊？喵安是软妹性格吗？我还以为浑身带刺的那种
+
+*****
+
+####  刺客ares  
+##### 4055#       发表于 2025-1-18 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212431&amp;ptid=2209276" target="_blank">青空独 发表于 2025-1-18 12:27</a>
+
+UC不是真实系吗，怎么越来越神棍了</blockquote>
+这算啥，巴纳吉和丽塔也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
