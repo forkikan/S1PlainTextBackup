@@ -13250,3 +13250,48 @@ EVA终的观影讨论楼就是我盖的，当时我就说过好好看完片子�
 
 竹的人设是平面设计先行的，更多考虑图形和色彩构成
 
+
+*****
+
+####  鱼雷鲨  
+##### 4276#       发表于 2025-1-19 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217159&amp;ptid=2209276" target="_blank">winda 发表于 2025-1-18 22:56</a>
+
+两人一组战斗+神秘的天降系少年(岭司)+吉翁出身看起来很可靠的大叔(拉里)懂了，gqx其实是创战者精神续作， ...</blockquote>
+也不是不行，比水魔的学校决斗打得好看就可以
+
+*****
+
+####  nnis  
+##### 4277#       发表于 2025-1-19 00:15
+
+米津这首“如果我在检票口前脚步不停继续前进的话就能连你的脸都不认识得以继续幸福地活着吗”，麻球和喵安就是在检票口初次相遇。然后现在出的这两首都有说什么过数千光年之类的…我懂了，是飞跃巅峰2（bushi
+
+*****
+
+####  鱼雷鲨  
+##### 4278#       发表于 2025-1-19 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217201&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-18 23:01</a>
+
+水魔和铁血也过不了创战啊
+
+不过创战是十二年前了，确实稍微有点不严谨，这么看这十年最好的高达TV是铁血 ...</blockquote>
+铁血的剧本甚至是在OO同期写的，肠镜要是没去做超炮那就是紧接着Age出，也等不到冈妈改个寡妇结局
+
+*****
+
+####  pu  
+##### 4279#       发表于 2025-1-19 00:16
+
+<img src="https://img.saraba1st.com/forum/202501/19/001547pmp3xm9fmpuusmkm.png" referrerpolicy="no-referrer">
+
+<strong>`I4KL8FXLC_ZRA~P5{DFHF1.png</strong> (79.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 00:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
