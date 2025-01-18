@@ -11330,3 +11330,91 @@ UC不是真实系吗，怎么越来越神棍了</blockquote>
 
 终于到鹤卷了，但这个节目就30分钟吧
 
+
+*****
+
+####  Gysumitka  
+##### 4082#       发表于 2025-1-18 13:59
+
+鹤卷这没讲两句就完，其中一句还是问庵野<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4083#       发表于 2025-1-18 14:00
+
+太早了，防剧透啥都不能说的时候不就只能有这点内容了
+
+
+*****
+
+####  Gysumitka  
+##### 4084#       发表于 2025-1-18 14:02
+
+毫无信息量，一半是回顾旧作品，米津鹤卷说两句就完了。米津看的第一部鹤卷作品还是flcl
+
+*****
+
+####  王留美  
+##### 4085#       发表于 2025-1-18 14:02
+
+说起来防剧透，我在X上看到好几个人之前是嘲笑说TV先行版而已有什么好藏的，看完后立马改口说果然是要藏的，不藏不行，所以这策略到底算成功还是失败的？
+
+*****
+
+####  虛無迴廊  
+##### 4086#       发表于 2025-1-18 14:03
+
+怎么插曲完整版都出来了，那什么时候能放出米奇律师的主题曲？
+
+*****
+
+####  Gysumitka  
+##### 4087#       发表于 2025-1-18 14:03
+
+这样藏肯定对票房不利<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咖啡配黑鸡  
+##### 4088#       发表于 2025-1-18 14:04
+
+鹤卷和哉：希望UC遗老跟种遗老都能来评价下GQuuuuuuX（
+
+<img src="https://img.saraba1st.com/forum/202501/18/140346aykzorxu872wn4u0.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250118_135713.jpg</strong> (129.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-18 14:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/140354lpx7zcrqh0p026ur.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250118_135724.jpg</strong> (118.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-18 14:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/140401ma5mrum5321ri5xc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250118_135736.jpg</strong> (134.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-18 14:04 上传
+
+*****
+
+####  0aleph37  
+##### 4089#       发表于 2025-1-18 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213002&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-18 14:03</a>
+
+怎么插曲完整版都出来了，那什么时候能放出米奇律师的主题曲？</blockquote>
+20号
+
