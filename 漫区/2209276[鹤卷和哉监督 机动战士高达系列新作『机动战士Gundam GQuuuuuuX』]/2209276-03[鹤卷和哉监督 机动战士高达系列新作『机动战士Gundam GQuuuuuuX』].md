@@ -11764,3 +11764,54 @@ TV开播时前面这40分钟根本不会有吧？人设就不同，如果TV观�
  如果真把if的40分钟放tv，不就是开局就少两集的tv？，如果真是季番，是不是有点雪上加霜了 ...</blockquote>
 40分钟不会放的，最多开播前搞个特番
 
+
+*****
+
+####  RE㐅ia  
+##### 4124#       发表于 2025-1-18 16:27
+
+可以学推子搞个超长第一话
+
+*****
+
+####  jojonathan  
+##### 4125#       发表于 2025-1-18 16:28
+
+朋友讲麻球在电影里的运动性能很高<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 4126#       发表于 2025-1-18 16:28
+
+第一集搞1小时吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十万年魂环  
+##### 4127#       发表于 2025-1-18 16:31
+
+谁能想到一开始只是想看下大海呢，不是到海边就算成功？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜雨秋水  
+##### 4128#       发表于 2025-1-18 16:32
+
+参照芙莉莲就行了，四集连播，和高达一个电视台
+
+*****
+
+####  jojonathan  
+##### 4129#       发表于 2025-1-18 16:32
+
+想起来老早以前看的短篇高达动画 男主最后是坠机到了海上实现了看海梦想<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜雨秋水  
+##### 4130#       发表于 2025-1-18 16:33
+
+一般来说，看到大海下一步就是海的那边了（
+

@@ -65,3 +65,14 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 莉莉虽然手感梆硬，但我觉得还是比亵渎空洞这些好上手的，怎么泥潭评价这么低 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是因为除了美术其他都稀疏吗.............
 
+
+*****
+
+####  ATRO  
+##### 673#       发表于 2025-1-18 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213538&amp;ptid=1977343" target="_blank">shangfire 发表于 2025-1-18 15:47</a>
+
+不是三月份吗？提前了？而且怎么价格比前作还降了？</blockquote>
+提前了，全平台1.23
+
