@@ -12740,3 +12740,52 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 不可能一直打2V2的，都是各种换色扎古不卖胶吗，肯定有补齐装备2V多的桥段
 
+
+*****
+
+####  YU_JI  
+##### 4225#       发表于 2025-1-18 21:58
+
+我奶一口之后夏利亚会想办法借黑拳这个渠道刺激GQX或红高达再触发一次泽克诺瓦，通过这种办法寻找夏亚下落什么的，这么看的话，麻球就是沙仑的玫瑰可能性确实变大了
+
+*****
+
+####  0aleph37  
+##### 4226#       发表于 2025-1-18 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216652&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-18 21:58</a>
+
+我奶一口之后夏利亚会想办法借黑拳这个渠道刺激GQX或红高达再触发一次泽克诺瓦，通过这种办法寻找夏亚下落 ...</blockquote>
+再触发一次泽克诺瓦把side6一半都闪没了吗？夏利亚找夏亚的线索明明是红高达和修司吧
+
+
+*****
+
+####  YU_JI  
+##### 4227#       发表于 2025-1-18 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216666&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-18 22:00</a>
+
+再触发一次泽克诺瓦把side6一半都闪没了吗？夏利亚找夏亚的线索明明是红高达和修司吧 ...</blockquote>
+反正正片这玩意横竖都得再炸一次的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4228#       发表于 2025-1-18 22:07
+
+泽克诺瓦的触发条件是机密吧？基西莉亚是知道这个现象和沙仑玫瑰有关
+
+但她也不一定会把这件事告诉夏利亚？夏利亚来side6就只是单纯冲着红高达来的，一开始他还以为红高达里是鸭子，脑门过电后才知道不是
+
+如果后面剧中想再来一次泽克诺瓦，红高达和沙伦玫瑰这两样东西是少不了的
+
+既然红高达已经有了，那么沙伦玫瑰肯定也会出现在side6
+
+*****
+
+####  十万年魂环  
+##### 4229#       发表于 2025-1-18 22:08
+
+真当side6是练功房了？练到神功大成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

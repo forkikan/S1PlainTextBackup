@@ -42,7 +42,7 @@ def 提取回帖(text):
     # 删除 <blockquote> 中的引用内容（如果存在）
     cleaned_text = blockquote_pattern.sub("", text)
     tail_pattern = re.compile(
-    r"—— 来自 \[鹅球\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|"  # 中文小尾巴
+    r"—— [来來]自 [.\s]+|"
     r"— from \[S1 Next Goose\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|" # 英文小尾巴（无 alpha）
     r"https://s1fun\.koalcat\.com",  
     re.DOTALL
