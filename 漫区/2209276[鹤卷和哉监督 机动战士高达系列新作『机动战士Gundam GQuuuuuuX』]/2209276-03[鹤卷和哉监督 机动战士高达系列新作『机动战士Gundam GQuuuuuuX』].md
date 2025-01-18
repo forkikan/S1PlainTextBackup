@@ -10467,3 +10467,13 @@ pv里的那首bgm完整版能搜到吗
 
 唉，夏亚的新cv还是太出戏了，之前小西和大关配的都可以的
 
+
+*****
+
+####  gamedreamer  
+##### 3996#       发表于 2025-1-18 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
