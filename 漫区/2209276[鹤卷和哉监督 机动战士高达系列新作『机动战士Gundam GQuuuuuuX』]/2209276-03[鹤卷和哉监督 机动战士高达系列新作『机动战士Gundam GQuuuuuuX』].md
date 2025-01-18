@@ -11853,3 +11853,47 @@ TV开播时前面这40分钟根本不会有吧？人设就不同，如果TV观�
 https://www.bilibili.com/video/BV1KW411B7cQ?vd_source=536aedbb6 ...</blockquote>
 好像不是貌似是开的蓝魔蟹挂在大型光束发射器套件上 然后任务是从太空降下截击联邦发射的火箭
 
+
+*****
+
+####  王留美  
+##### 4135#       发表于 2025-1-18 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213903&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 16:42</a>
+ 好像不是貌似是开的蓝魔蟹挂在大型光束发射器套件上 然后任务是从太空降下截击联邦发射的火箭 ...</blockquote>
+機動戦士ガンダム MSイグルー 黙示録0079 1 ジャブロー上空に海原を見た
+
+*****
+
+####  猪突猛进R  
+##### 4136#       发表于 2025-1-18 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213903&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 16:42</a>
+
+好像不是貌似是开的蓝魔蟹挂在大型光束发射器套件上 然后任务是从太空降下截击联邦发射的火箭 ...</blockquote>
+那不就是MS IGLOO的这一集：
+[https://www.bilibili.com/video/B ... b234f500dab&amp;p=4](https://www.bilibili.com/video/BV1Gx411A7jj?spm_id_from=333.788.videopod.episodes&amp;vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=4)
+
+
+*****
+
+####  RE㐅ia  
+##### 4137#       发表于 2025-1-18 16:51
+
+<blockquote>Toby_dak 发表于 2025-1-18 14:12
+官方一开始就完全没藏住啊。
+
+12月4号的特报PV，第一句台词就是「直径6.4キロメートルスペース・コロニー ...</blockquote>
+uc姨姥能看出来不重要，重要的是不让小白看出来
+
+*****
+
+####  jojonathan  
+##### 4138#       发表于 2025-1-18 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213951&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-18 16:48</a>
+那不就是MS IGLOO的这一集：
+
+https://www.bilibili.com/video/BV1Gx411A7jj?spm_id_from=333.788.videopo ...</blockquote>
+想起来了 这部是不是还有角色吐槽西玛的海兵队根本没有海<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
