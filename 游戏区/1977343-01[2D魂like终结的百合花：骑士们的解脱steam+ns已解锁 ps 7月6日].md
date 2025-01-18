@@ -114,3 +114,11 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 
 23放出刚好工作忙，只能年后再玩儿了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银色天空  
+##### 678#       发表于 2025-1-18 19:29
+
+之前买了，还好没玩，正式版不能继承EA存档
+
