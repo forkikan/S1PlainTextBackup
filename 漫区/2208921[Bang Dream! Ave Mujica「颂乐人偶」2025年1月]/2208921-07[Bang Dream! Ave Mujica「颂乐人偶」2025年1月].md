@@ -6333,3 +6333,32 @@ go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候
 论坛助手,iPhone ...</blockquote>
 单论这点还真可能，只要公司咬死是职务侵占然后告上法院，别说赔偿损失了直接送进去吧。就看背景够不够黑暗了
 
+
+*****
+
+####  天空塔书记官  
+##### 9434#       发表于 2025-1-18 20:38
+
+瑠唯和瑞依那股反差感完全没法让人往成年人上去靠，气质上最成年的应该就是素世了，毕竟离异富婆(
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  mono  
+##### 9435#       发表于 2025-1-18 20:43
+
+喵梦是不是上的演艺学校  gbc里不给高中文凭那种 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9436#       发表于 2025-1-18 20:43
+
+其实海玲要是一直也保持职业装扮不换校服的话，也挺成人感的，奈何音高就是没有校服的设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
