@@ -11897,3 +11897,52 @@ uc姨姥能看出来不重要，重要的是不让小白看出来
 https://www.bilibili.com/video/BV1Gx411A7jj?spm_id_from=333.788.videopo ...</blockquote>
 想起来了 这部是不是还有角色吐槽西玛的海兵队根本没有海<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穿越护城河  
+##### 4139#       发表于 2025-1-18 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213903&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 16:42</a>
+
+好像不是貌似是开的蓝魔蟹挂在大型光束发射器套件上 然后任务是从太空降下截击联邦发射的火箭 ...</blockquote>
+毕竟卖胶动画
+
+所以被当时推出的新品在海上击毙了
+
+*****
+
+####  シャル  
+##### 4140#       发表于 2025-1-18 17:07
+
+ 本帖最后由 シャル 于 2025-1-18 17:08 编辑 
+
+联邦就算没有RX78，不是还有高达GT-4
+
+这台和高达RX78的科技树完全没关系啊
+
+是空军独立造出来的，完全可变高达
+
+量产这台不比轻钢加农可靠多了
+
+<img src="https://patchwiki.biligame.com/images/gundam/thumb/f/f3/0yfr6aide3qer4cge2ddelg5zxs2808.jpg/250px-RX-78E%E9%AB%98%E8%BE%BEGT-FOUR.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jojonathan  
+##### 4141#       发表于 2025-1-18 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214090&amp;ptid=2209276" target="_blank">シャル 发表于 2025-1-18 17:07</a>
+联邦就算没有RX78，不是还有高达GT-4
+
+这台和高达RX78的科技树完全没关系啊</blockquote>
+轻加农看着性能不也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野梓  
+##### 4142#       发表于 2025-1-18 17:13
+
+打12集黑拳太牛逼了
+
