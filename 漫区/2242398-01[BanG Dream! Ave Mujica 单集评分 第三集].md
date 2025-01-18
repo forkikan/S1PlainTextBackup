@@ -1966,3 +1966,14 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 
 有一说一，你们有没有发现银河战舰里真冲着出名来的只有喵梦，我已经在想她归顺Mujica的理由了（
 
+
+*****
+
+####  aptx8285144  
+##### 199#       发表于 2025-1-18 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214921&amp;ptid=2242398" target="_blank">海底铁锚 发表于 2025-1-18 18:58</a>
+
+其实如果真的要挽回喵梦目前道德崩溃的现状，最好的办法不是洗白，而是对这木头和大象来一个真诚的土下座 ...</blockquote>
+第一时间踢出去感觉太激进了一些，但是适当口头警告和威胁踢出去是可以的，现在感觉和各种同人片段和传说中冷静果决不同，大祥老师急的反而显得六神无主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
