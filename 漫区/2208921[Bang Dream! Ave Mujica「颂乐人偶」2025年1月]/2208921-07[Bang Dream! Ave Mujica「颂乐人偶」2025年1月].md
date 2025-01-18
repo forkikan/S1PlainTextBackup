@@ -6362,3 +6362,35 @@ go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  MASKA-1  
+##### 9437#       发表于 2025-1-18 20:48
+
+日本读高中有年龄限制吗
+
+*****
+
+####  thisisaspider  
+##### 9438#       发表于 2025-1-18 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215137&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-18 19:23</a>
+
+睦在那个时间点说那句话的目的 
+
+我看也不可能是为了达到解散这个事实 
+
+仅仅是为了给祥子解围罢了</blockquote>
+祥子走得太急，没有月之森托孤
+
+祥：我走后这个小C团靠你了啊，小灯能上就尽量扶持，不能就让mortis来吧。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 9439#       发表于 2025-1-18 20:51
+
+KK园区是指中国人横扫KillKiss专辑的店吗
+
