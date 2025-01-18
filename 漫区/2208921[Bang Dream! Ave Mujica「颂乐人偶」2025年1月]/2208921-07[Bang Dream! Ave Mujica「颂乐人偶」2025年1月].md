@@ -7052,3 +7052,132 @@ BGM：假面舞会
 
 灯那边起码还有一个爱音好说话的，进攻几下就拿下了，若叶这边就只剩下....要和初华争宠或者试图打动海铃吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 9495#       发表于 2025-1-18 22:50
+
+麻了，问下楼友，想要编辑自己的楼层和回复其他人时报错和提示实名认证是怎么回事?
+
+是鹅球的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/59381c8c7e6089f8c32678ae47a08127/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  takerest  
+##### 9496#       发表于 2025-1-18 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216988&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:36</a>
+
+怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
+主要还是大祥老师第三集了居然连这么拙劣的键帽都治不了，再加上部分祥厨播出前天天给大祥老师抬轿子，什么xx年未有之大女主都出来了，还骑脸别的角色厨，说白了更多还是场外因素，给很多观众整叛逆了。而且你把键帽贬低得一无是处，那这么杂鱼的键帽都对付不了的大祥老师又算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 9497#       发表于 2025-1-18 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215504&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-18 20:00</a>
+
+真高在上、满脑子自己这些回旋镖本来也不是说祥子主观上真这样的人啊，就和soyo主观上也是为了挽回命运共同体帮助祥子而付出一片真心一样，说是回旋镖纯粹是因为祥子说这句话根本是正确的废话，这话放可以随便放在任何你不想领情的时候那个主动付出的一方身上。
+
+包括mygo在内这部作品的优秀之一就是每个人都有其明显的缺点，因为这些个人的缺点导致她们的想法、行为、对别人的看法和对方的实际认知都是错位的。
+
+就好像祥子本质她主观上肯定是为了睦，但和睦的需求是错位的，她也没法做到去了解。睦也是为了祥子，但和祥子想要的肯定也不一样，否则这集就不会这么展开了。
+
+所以祥子的主观意愿、睦的主观意愿、所有人的主观意愿都不是在一条线上的，所有人都有自己缺点，所以才会有矛盾，银河战舰才会爆炸。
+
+在客观视角，旁观者视角分析，必然就是要一定程度来分锅，分锅不是审判不是指责，主要是对角色行为进行立体的分析，因为母鸡卡是有这个价值的作品，也是以这种要素作为重点去写的作品。</blockquote>
+我最近在油/管看一个前拉拉人做MyGO的分集感想视频，现在做到第5话
+
+在第5话爱音破防之前他都觉得爱音很讨厌，从这里我意识到，以传统少女偶像番的标准来说，MyGO前4话半的爱音已经够得上讨厌了，也就是MyGO前几话讨论热度不高，没人在意
+
+但是如果看完MyGO，爱音会升格为圣爱音
+
+我非常欣赏MyGO的一点是，不惮于表现角色的缺点，也不会以必须改正缺点为接纳角色的前提（我在前面说过，不应该把角色身上的负面特质视为一种应当被切除的缺陷）
+
+MyGO用灯的“一起迷路”解决了这个问题：我们不要追究谁有责任，我们都迷路了，都有缺陷，我们要包容彼此的缺陷
+
+Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人，也就是可以托付余生的人，重点还是会落到：我们都有缺陷，我们要包容彼此的缺陷
+
+*****
+
+####  厚乳果珍爽  
+##### 9498#       发表于 2025-1-18 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217073&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-18 22:47</a>
+
+灯那边起码还有一个爱音好说话的，进攻几下就拿下了，若叶这边就只剩下....要和初华争宠或者试图打动海铃吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得，鸡团的人说不定要靠狗团来解开心结。
+
+
+*****
+
+####  aptx8285144  
+##### 9499#       发表于 2025-1-18 22:55
+
+ 本帖最后由 aptx8285144 于 2025-1-18 22:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217114&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:51</a>
+
+我觉得，鸡团的人说不定要靠狗团来解开心结。</blockquote>
+这个结论我也得出来过，虽然还要解决一个大问题，祥子作为这个篇幅女主的存在意义是什么，还有救赎靠go团，那你自己一手建立的c团总要成为对等的存在吧，等等，现在他们已经过于不真实地上了武士道，这对于go团而言才是高不可攀的存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 9500#       发表于 2025-1-18 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216988&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:36</a>
+
+怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
+母鸡卡这么多问题难道不是祥子一开始埋下的吗，点燃引线的喵梦有责任但谁把周围搞成雷场的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+非要说“罪魁祸首”反而是祥子更对得上吧。
+
+*****
+
+####  玖羽  
+##### 9501#       发表于 2025-1-18 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217114&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:51</a>
+
+我觉得，鸡团的人说不定要靠狗团来解开心结。</blockquote>
+以现在MyGO每集必出场几分钟的戏份来看，MyGO肯定会助攻，但是最关键的坎必须要靠Ave Mujica自己越过去，不然五个人当场变小丑
+
+（助攻不会是这个对应关系吧）
+
+<img src="https://img.saraba1st.com/forum/202501/18/225450ogwblbgb99hbxk9r.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (60.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:54 上传
+
+*****
+
+####  Суслов  
+##### 9502#       发表于 2025-1-18 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217110&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-18 22:50</a>
+主要还是大祥老师第三集了居然连这么拙劣的键帽都治不了，再加上部分祥厨播出前天天给大祥老师抬轿子，什 ...</blockquote>
+大喵老师的一切黑点最后都会转化为祥子管理不力导致的，毕竟当初是祥子主动招人进来的，属实给卡这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 9503#       发表于 2025-1-18 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217049&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 22:44</a>
+
+大伙看完第一集只想着把喵梦这个罪魁祸首踢出乐队，哪怕不踢出去也得赔钱道歉吧，结果本以为能做到这件事 ...</blockquote>
+也可以理解为祥就是想背负人生，所以硬抗。但是现在祥太菜了只会被人笑话，所以现在先不展示。等成长起来了再揭露为什么一定要mujica和这5个人。
+
+当你一穷二白时所有梦想都是笑话，当你功成名就时所有过错都是垫脚石。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -13021,3 +13021,43 @@ https://m.weibo.cn/status/5124249748505041</blockquote>
 到最后放tv版肯定会有人车米津玄师。因为虽然歌不错，但是女主抢高达时突然响起了这歌具违和 ...</blockquote>
 可以概况为在该放Unicorn的时机你八唐突开腔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼雷鲨  
+##### 4255#       发表于 2025-1-18 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216926&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-18 22:28</a>
+
+高达没搞过异世界吧，就聊异世界替换这么high了</blockquote>
+有啊，模型系列前面有从疑似后UC时代来的红毛，后面有去兽人星球的
+
+*****
+
+####  猪突猛进R  
+##### 4256#       发表于 2025-1-18 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217087&amp;ptid=2209276" target="_blank">鱼雷鲨 发表于 2025-1-18 22:47</a>
+
+有啊，模型系列前面有从疑似后UC时代来的红毛，后面有去兽人星球的</blockquote>
+你也说了模型系列，钢普拉和高达是两回事。
+
+*****
+
+####  PascalLefèvre  
+##### 4257#       发表于 2025-1-18 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217097&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-18 22:48</a>
+你也说了模型系列，钢普拉和高达是两回事。</blockquote>
+我不想说近十年来最好的高达tv是钢普拉，但这是事实
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  winda  
+##### 4258#       发表于 2025-1-18 22:56
+
+两人一组战斗+神秘的天降系少年(岭司)+吉翁出身看起来很可靠的大叔(拉里)<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">懂了，gqx其实是创战者精神续作，各个site排代表打黑拳打12集啦
+

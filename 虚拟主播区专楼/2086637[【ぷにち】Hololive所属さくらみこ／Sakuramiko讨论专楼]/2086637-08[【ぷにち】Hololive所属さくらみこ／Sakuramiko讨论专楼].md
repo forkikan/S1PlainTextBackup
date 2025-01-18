@@ -111,3 +111,37 @@ ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">35讲解这么久，大头一句不懂结束战斗
 
+
+*****
+
+####  holofan  
+##### 10688#       发表于 2025-1-18 17:57
+
+更加衬托了刚铁嗓子
+
+*****
+
+####  holofan  
+##### 10689#       发表于 2025-1-18 22:47
+
+<img src="https://img.saraba1st.com/forum/202501/18/224721bicp6wkxpx5kd0i7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:47 上传
+
+*****
+
+####  holofan  
+##### 10690#       发表于 2025-1-18 22:48
+
+<img src="https://img.saraba1st.com/forum/202501/18/224832oqbzb1omkwim6xel.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:48 上传
+
