@@ -1874,3 +1874,22 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 
 有些部分剧伴比ep2还突兀 不知道柿本不画分镜之后脑子里都装的是什么
 
+
+*****
+
+####  JustW  
+##### 191#       发表于 2025-1-18 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213500&amp;ptid=2242398" target="_blank">aptx8285144 发表于 2025-1-18 15:41</a>
+
+我不知道其他观众怎么想，反正我是觉得瞄梦是没有资格指责祥子错了（现在团队气氛和eva一样最大点火者不就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从第一集喵梦的神操作没有直接受到惩罚，问题的性质就发生变化了。毕竟喵梦问题越大，把喵梦拉进队伍里还控不住她的祥子问题也越大。而且喵梦这个模板的角色如何洗白已经有很多经典案例了，反而祥子我暂时不知道制作组打算怎么处理。
+
+
+*****
+
+####  yaneis  
+##### 192#       发表于 2025-1-18 18:36
+
+看完感觉不只有24分钟
+

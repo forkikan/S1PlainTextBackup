@@ -95,3 +95,14 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 
 前作就挺喜欢的，那个战旗其实也挺喜欢的，美术氛围和音乐都很棒，就是玩法太简单拖了后退，照这楼里说的是全面进化版，价格还低，那必须尝了
 
+
+*****
+
+####  rainsheep  
+##### 676#       发表于 2025-1-18 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213538&amp;ptid=1977343" target="_blank">shangfire 发表于 2025-1-18 15:47</a>
+
+不是三月份吗？提前了？而且怎么价格比前作还降了？</blockquote>
+你仔细看steam那个3月是24年的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是ea版的时间
+
