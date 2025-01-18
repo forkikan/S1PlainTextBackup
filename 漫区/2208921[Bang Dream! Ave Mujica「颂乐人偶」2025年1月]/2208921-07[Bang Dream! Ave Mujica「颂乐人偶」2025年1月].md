@@ -7703,3 +7703,139 @@ Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人�
 怎么到处都有“虽然喵梦是罪魁祸首，但是你祥子就没一点错吗”的人啊？</blockquote>
 所以说在任何团队里大包大揽最后倒霉的确实都是自己，出事就是背不完的锅，加上自己也不可能永远做对的事
 
+
+*****
+
+####  哈曼的YY  
+##### 9544#       发表于 2025-1-18 23:45
+
+<img src="https://img.saraba1st.com/forum/202501/18/232747fnens5iyw4eisiwg.jpg" referrerpolicy="no-referrer">
+
+<strong>SQSP3X)V9ZWI`[G_GK6%]UR.jpg</strong> (137.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:27 上传
+
+*****
+
+####  aptx8285144  
+##### 9545#       发表于 2025-1-18 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217561&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 23:41</a>
+
+上个鬼节目…虽然没有在武道馆演出作妖的，但大 大小小艺人因为不按企划要求来甚至说错一句话而被踢出去 ...</blockquote>
+虽然这个乐队上了武道馆，但是看起来感觉很”脆弱“，总感觉一阵风吹来就会倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 9546#       发表于 2025-1-18 23:47
+
+鸡和狗的剧本应该是同期写好大纲，后期略有修正删改而已吧，算是一个系列把，毕竟鸡狗同源，万恶之源是CCC。
+
+*****
+
+####  哈曼的YY  
+##### 9547#       发表于 2025-1-18 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217110&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-18 22:50</a>
+
+主要还是大祥老师第三集了居然连这么拙劣的键帽都治不了，再加上部分祥厨播出前天天给大祥老师抬轿子，什 ...</blockquote>
+那个15年未有之大女主的横幅 好像是坛友在一次线下点映活动拉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 9548#       发表于 2025-1-18 23:49
+
+初华为什么会吵不赢喵梦啊？现在这么忙，到底是谁造成的 啊
+
+*****
+
+####  玖羽  
+##### 9549#       发表于 2025-1-18 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217561&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 23:41</a>
+
+上个鬼节目…虽然没有在武道馆演出作妖的，但大 大小小艺人因为不按企划要求来甚至说错一句话而被踢出去 ...</blockquote>
+你自己第一句就说明白了“虽然没有在武道馆演出作妖的”
+
+日本传统艺能下克上的重点就是，虽然干的事按规矩是绝对不能被允许的，但是干这件事的时机抓得非常准，领导只能捏着鼻子认，不然我死了你也别想好（当然，这里面有赌的成分）
+
+艺人说错一句话可能被踢出去，但是如果真的在武道馆搞这么大，反而可能不会被踢出去，喵梦赌的就是这个，至于未来的职业发展规划，那就是真没想那么多
+
+
+*****
+
+####  山ノ内花音  
+##### 9550#       发表于 2025-1-18 23:50
+
+初华只会读空气不会吵架or故意的
+
+*****
+
+####  NODY  
+##### 9551#       发表于 2025-1-18 23:50
+
+之前就看人分析说go动画的立希和现在鸡动画的祥子是一个生态位了
+
+大致意思就是，虽然她确实管了乐队的所有职务还整天熬夜，但大部分是她的私心，其他人没有这些打算，所以她破防或者挨骂也是自找的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 9552#       发表于 2025-1-18 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217267&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 23:09</a>
+
+正好相反，喵梦急着摘面具的一个重要原因就是让自己不被踢出去
+
+全队五人只有她没背景，都戴着面具没人知 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁说没背景的？丰川集团大小姐不算是背景吗？
+
+不揭面具的真正理由是大家都有背景，这么下去，观众只会关注你人，而不是音乐了。
+
+而现实确实如此，第二集开始上电视，主持就不断的提睦父母的事情。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ClariS虽然说不公布主唱身份是为了保护他们，但是他们脱面具是出道10年后的事情了。
+
+*****
+
+####  aptx8285144  
+##### 9553#       发表于 2025-1-18 23:52
+
+没有靠谱的大人而上了武士馆心又还不够齐是这样的，小鬼当家的结果80年代，90年代里有一堆不是上战场就是宇宙漂流，现在闹成这样都已经是题材温柔罢了
+
+*****
+
+####  凉良  
+##### 9554#       发表于 2025-1-18 23:52
+
+有句说句 吵不赢喵梦真的只能是编剧逼的。初华这发言都什么鬼玩意。
+
+*****
+
+####  厚乳果珍爽  
+##### 9555#       发表于 2025-1-18 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217416&amp;ptid=2208921" target="_blank">花スープ 发表于 2025-1-18 23:26</a>
+
+不是很懂邦邦企划，新团动画要给前作团大量镜头算是好事吗？我觉得不然。
+
+加上怎么看都觉得 Ave Mujica  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同一个邦宇宙其实没什么大不了的，都互相借人气的事情而已。
+
+隔壁偶像大师串场不也很常见？
+
+*****
+
+####  玖羽  
+##### 9556#       发表于 2025-1-18 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217653&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 23:51</a>
+
+谁说没背景的？丰川集团大小姐不算是背景吗？
+
+不揭面具的真正理由是大家都有背景，这么下去，观众只会关 ...</blockquote>
+你在说什么，我是说喵梦没背景
+
