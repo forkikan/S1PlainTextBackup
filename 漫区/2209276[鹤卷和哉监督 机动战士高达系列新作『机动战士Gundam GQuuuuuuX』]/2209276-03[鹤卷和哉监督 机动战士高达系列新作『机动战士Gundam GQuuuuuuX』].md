@@ -10982,3 +10982,28 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刺客ares  
+##### 4043#       发表于 2025-1-18 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212259&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-1-18 12:00</a>
+
+百合胜算大吗？</blockquote>
+神豚随便赢，纯度豚右转Mujica
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 4044#       发表于 2025-1-18 12:21
+
+所以现在
+
+麻球=玫瑰？哈曼？
+
+牢修=玫瑰？渚薰？高达人间体？异次元夏亚？胶佬？
+
+喵安？怎么没人假药我
+
