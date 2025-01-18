@@ -5561,3 +5561,71 @@ MYGO第三集和MUJICA第三集对着看更有意思了。分别是灯和睦的�
 
 大家都清清白白，只有祥子自私至极。
 
+
+*****
+
+####  thisisaspider  
+##### 9368#       发表于 2025-1-18 18:39
+
+ 本帖最后由 thisisaspider 于 2025-1-18 18:40 编辑 
+
+大家都是第一次看母鸡卡，别吵了。唯一能相信的只有已经播出了的东西。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然，如果你对剧情有异于常人的理解，可以直接摆出依据。
+
+*****
+
+####  狂热飞鸟  
+##### 9369#       发表于 2025-1-18 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214751&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 18:36</a>
+
+不过当不当圣旨看厨什么角色吧
+
+独角兽和柿本喜欢迫害立希，但鼓子真的爱立希，看你信鼓子还是信独角兽和柿 ...</blockquote>
+有一说一，独角兽和柿本虽然喜欢迫害立希，但对立希的角色理解是没什么问题,就是不爱写立希的塑造剧情
+
+
+*****
+
+####  JustW  
+##### 9370#       发表于 2025-1-18 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214733&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 18:34</a>
+
+两种说法可以兼容的
+
+睦想帮祥子但玩乐队不开心是真心话，所以帮着祥子炸团当共犯同时把真心话说出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没法兼容吧，睦在第三集明显因为自己一句话成为炸团导火索而自责都要爆表了，当共犯也不至于还要对主犯自责吧
+
+*****
+
+####  山ノ内花音  
+##### 9371#       发表于 2025-1-18 18:46
+
+已知睦说的这句话本身是实话
+现在好奇的点就是她为什么要在那个时机开口
+原因A：别人问什么我就说什么 什么都没想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+原因B：参考访谈说法
+
+*****
+
+####  JustW  
+##### 9372#       发表于 2025-1-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214722&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-18 18:32</a>
+
+我要争一口气
+
+不是想证明我了不起
+
+我是要告诉人家我失去的东西我一定要拿回来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以到底要拿回什么失去的东西？父母家人？朋友？自尊？总不能是音乐吧。现在感觉唯一马上能拿回来的就是以前的富裕生活了。
+
+*****
+
+####  南宮凝香  
+##### 9373#       发表于 2025-1-18 18:47
+
+原來在羽丘碰上，對面想打招呼時，扭頭就走的那個是燈嗎？
+

@@ -1893,3 +1893,14 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 
 看完感觉不只有24分钟
 
+
+*****
+
+####  海底铁锚  
+##### 193#       发表于 2025-1-18 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214697&amp;ptid=2242398" target="_blank">JustW 发表于 2025-1-18 18:30</a>
+从第一集喵梦的神操作没有直接受到惩罚，问题的性质就发生变化了。毕竟喵梦问题越大，把喵梦拉进队伍里还 ...</blockquote>
+喵梦这个角色洗白说实话是有点反胃的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+做坏事不可怕，可怕的是做坏事不自知，是天生孬种。
+
