@@ -798,3 +798,16 @@ alt+enter，取消全屏也是。
 
 还是比较习惯zakuzaku那种，或者魔物娘rpg
 
+
+*****
+
+####  sosgame67  
+##### 74#       发表于 2025-1-18 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213682&amp;ptid=2238139" target="_blank">mj240608414 发表于 2025-1-18 16:10</a>
+
+话说游戏玩着玩着有时候会非常卡，这是什么原因？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+单纯游戏引擎太老了..我记得龙头是98年左右的引擎？场景可动要素一多必定卡
+

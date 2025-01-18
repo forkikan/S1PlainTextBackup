@@ -11946,3 +11946,46 @@ https://www.bilibili.com/video/BV1Gx411A7jj?spm_id_from=333.788.videopo ...</blo
 
 打12集黑拳太牛逼了
 
+
+*****
+
+####  卑弥呼yamato  
+##### 4143#       发表于 2025-1-18 17:15
+
+没准下一集就直接上了夏利亚的舰
+
+*****
+
+####  0aleph37  
+##### 4144#       发表于 2025-1-18 17:16
+
+<img src="https://img.saraba1st.com/forum/202501/18/171551jc919zxa9ag9gczr.jpg" referrerpolicy="no-referrer">
+
+<strong>20250118_171455.jpg</strong> (262.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 17:15 上传
+
+*****
+
+####  Gysumitka  
+##### 4145#       发表于 2025-1-18 17:17
+
+屎黄色论坛对着跟79原版设计差不多的喷gqx<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 乐子太多了
+
+
+*****
+
+####  jojonathan  
+##### 4146#       发表于 2025-1-18 17:20
+
+快进到三人组被夏利亚打包绑走<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">用大人的手段
+
+*****
+
+####  YU_JI  
+##### 4147#       发表于 2025-1-18 17:23
+
+想看看这部之后要怎么引进新机体，总不能除了GQX剩下的全是山下版uc翻新（
+
