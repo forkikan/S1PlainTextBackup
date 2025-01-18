@@ -6171,3 +6171,74 @@ go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候
 没播都是猜测，mujica播第三集前全网有谁能猜到睦觉得自己吉他弹得差</blockquote>
 木头这里应该是指没法用音乐来表达自己，而不是特指水平
 
+
+*****
+
+####  NODY  
+##### 9420#       发表于 2025-1-18 20:13
+
+能不能先把访谈看完了再来批判人家矛盾不矛盾，独角兽访谈说的本来就是“虽然还没有解释睦玩乐队不开心的理由”，说明睦确实玩乐队不开心而不是说谎，并且mujica动画会解释（第三集）
+
+而平时她知道这话不能乱说，选择在解散的时候说出那句话则是为了帮祥子分担，这个有什么矛盾的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+独角兽和柿本的访谈从来没和声优矛盾过，即使是他们最懒得写的立希
+
+<img src="https://img.saraba1st.com/forum/202501/18/201304va9pmajax9joxaoo.png" referrerpolicy="no-referrer">
+
+<strong>c6a90de8-e516-474e-8c38-12c025c8f518.png</strong> (51.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 20:13 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 最终之物| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Porsche  
+##### 9421#       发表于 2025-1-18 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215123&amp;ptid=2208921" target="_blank">stevenzero 发表于 2025-1-18 19:21</a>
+啊？你才高一？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上高一又没说年龄
+
+不如想想为什么问她岁数不直接答反而要提个高一
+中途休过学？
+
+*****
+
+####  梅杜莎  
+##### 9422#       发表于 2025-1-18 20:15
+
+昨天看到一个说法，睦脑中称赞其他C团成员，到了祥子重复名字两次没继续是因为祥子的弹奏没感情让她夸不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 9423#       发表于 2025-1-18 20:15
+
+<blockquote>Porsche 发表于 2025-1-18 20:13
+上高一又没说年龄
+
+不如想想为什么问她岁数不直接答反而要提个高一</blockquote>
+因為登場角色都已經是18歲？
+
+*****
+
+####  NaAgfykp  
+##### 9424#       发表于 2025-1-18 20:18
+
+睦也没感情，祥子也没感情，是睦祥糖
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
