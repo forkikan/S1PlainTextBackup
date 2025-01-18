@@ -14699,3 +14699,15 @@ BD封面早有预料了，结局都那样安排了。
 
 尴尬的应该是小千，不是塞在姐妹组就是塞在会长组了
 
+
+*****
+
+####  奥柏伦亲王  
+##### 1432#       发表于 2025-1-18 18:59
+
+ 本帖最后由 奥柏伦亲王 于 2025-1-18 19:00 编辑 
+
+才发现鱼的北京场是2月15日周六，而且还挺远的......看了下名单中了个观礼，感觉以我现在的生活节奏要去看确实有点困难<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">有没有想去的鲤友，只有观礼资格，免费送
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

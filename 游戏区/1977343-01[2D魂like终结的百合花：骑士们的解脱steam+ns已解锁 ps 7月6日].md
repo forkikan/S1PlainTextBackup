@@ -106,3 +106,11 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 不是三月份吗？提前了？而且怎么价格比前作还降了？</blockquote>
 你仔细看steam那个3月是24年的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是ea版的时间
 
+
+*****
+
+####  落花微塵  
+##### 677#       发表于 2025-1-18 18:57
+
+23放出刚好工作忙，只能年后再玩儿了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

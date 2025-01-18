@@ -819,3 +819,13 @@ alt+enter，取消全屏也是。
 
 赞美，马上去试试<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gxy  
+##### 76#       发表于 2025-1-18 19:02
+
+<blockquote>妄想中毒 发表于 2025-1-18 16:04
+收集完记忆合体之后没地方去了，wiki看了半天说要去魔界大洞打王国摄政，关键是这魔界大洞在哪我都不知道， ...</blockquote>
+放魔之塔
+

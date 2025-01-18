@@ -12330,3 +12330,67 @@ G-4计划的前提是G3啊
 
 霓虹金似乎在上开始散布虚假情报了，グラハムが都出来了
 
+
+*****
+
+####  王留美  
+##### 4184#       发表于 2025-1-18 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214855&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-18 18:50</a>
+ 霓虹金似乎在上开始散布虚假情报了，グラハムが都出来了</blockquote>
+16号就有了
+还有一条是gqx在岩浆里树中指
+
+*****
+
+####  刺客ares  
+##### 4185#       发表于 2025-1-18 18:58
+
+<blockquote>0aleph37 发表于 2025-1-18 18:44
+怎么还有霓虹金在X上直接评价麻球是痴女…
+
+不安desu</blockquote>
+不是直接穿裙子倒立了吗
+
+反正我印象里之前高达里没有这么干的（
+
+*****
+
+####  Sliurus  
+##### 4186#       发表于 2025-1-18 19:00
+
+ 本帖最后由 Sliurus 于 2025-1-18 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214919&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 18:58</a>
+
+不是直接穿裙子倒立了吗
+
+反正我印象里之前高达里没有这么干的（</blockquote>
+高达前几部都是直接裸的，印象里0079到v都有洗澡情节，zz里还有普露洗完不穿衣服到处跑
+
+*****
+
+####  王留美  
+##### 4187#       发表于 2025-1-18 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214801&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-18 18:43</a>
+ 【【中日字幕】米津玄师 鹤卷和哉讲述高达GQuuuuuuX幕后 本乡奏多 松井玲奈介绍高达系列魅力【ZIP！2025高 ...</blockquote>
+艹
+系列代表作品是初代种水魔和G，意外
+
+*****
+
+####  刺客ares  
+##### 4188#       发表于 2025-1-18 19:03
+
+<blockquote>Sliurus 发表于 2025-1-18 19:00
+高达前几部都是直接裸的，印象里0079到v都有洗澡情节，zz里还有普露洗完不穿衣服到处跑 ...</blockquote>
+四十年前的动画尺度普遍都比现在大吧（
+
+
+*****
+
+####  岸浪白野  
+##### 4189#       发表于 2025-1-18 19:06
+
+今天票房起码是比昨天好点了，还好周末<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
