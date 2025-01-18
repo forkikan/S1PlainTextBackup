@@ -13333,3 +13333,29 @@ b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发�
 
 “20年代的想象力”是什么样的啊
 
+
+*****
+
+####  RE㐅ia  
+##### 4284#       发表于 2025-1-19 00:51
+
+经历水魔后已经不太想根据oped啥的去推剧情了（
+
+*****
+
+####  没取名啊  
+##### 4285#       发表于 2025-1-19 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218022&amp;ptid=2209276" target="_blank">kongxian 发表于 2025-1-19 00:42</a>
+“20年代的想象力”是什么样的啊</blockquote>
+少女乐队吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  marlun  
+##### 4286#       发表于 2025-1-19 00:52
+
+好像看TV版，赶紧端上来吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
