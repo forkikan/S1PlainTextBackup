@@ -12059,3 +12059,44 @@ https://www.bilibili.com/video/BV1Gx411A7jj?spm_id_from=333.788.videopo ...</blo
  联邦就算没有RX78，不是还有高达GT-4  这台和高达RX78的科技树完全没关系啊 </blockquote>
 G-4计划的前提是G3啊
 
+
+*****
+
+####  jojonathan  
+##### 4156#       发表于 2025-1-18 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214232&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-18 17:30</a>
+绑麻球和牢修可以理解，绑喵安是图啥呢）</blockquote>
+就用怎么多年积攒的各种意外上舰桥段<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野扎比子  
+##### 4157#       发表于 2025-1-18 17:39
+
+ジークアクス、我查了一下，查出了Sieg Axe的单词，胜利之斧的意思
+
+*****
+
+####  Gysumitka  
+##### 4158#       发表于 2025-1-18 17:41
+
+不知道后面要打哪派人，应该不归警察管了吧
+
+
+*****
+
+####  岸波白野扎比子  
+##### 4159#       发表于 2025-1-18 17:42
+
+夏利亚那个船，怎么看都是主角团的配置啊，最后就是三人组跟夏利亚一起上船，然后公路片，夏利亚成有德位
+
+*****
+
+####  王留美  
+##### 4160#       发表于 2025-1-18 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214296&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-18 17:41</a>
+ 不知道后面要打哪派人，应该不归警察管了吧</blockquote>
+还在side6的话肯定和警察会有关系，但是如果离开side6那就和警察没关系了
+
