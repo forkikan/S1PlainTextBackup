@@ -11710,3 +11710,57 @@ TV开播时前面这40分钟根本不会有吧？人设就不同，如果TV观�
 
 但是这世界线兰巴和黑三是被钢加农打死或者回宇宙的废物。这拍出来大家都只能满脸黑线。
 
+
+*****
+
+####  灵魂收割机  
+##### 4118#       发表于 2025-1-18 16:16
+
+[https://x.com/Ballardiae1007/status/1880317170040885570](https://x.com/Ballardiae1007/status/1880317170040885570)
+
+<img src="https://p.sda1.dev/21/c8a12727d6008ec1b003f57b631e9451/Ghg6cWQbgAAzviV.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 4119#       发表于 2025-1-18 16:16
+
+可如果麻球真是那个玫瑰的话，结局至少得跟紫婆打才算有头有尾不是吗
+
+*****
+
+####  UNINSTALL42  
+##### 4120#       发表于 2025-1-18 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213693&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-1-18 16:12</a>
+
+这格局没法写大的，夏利亚还有个问题是他应该和同样铁杆戴肯派的兰巴很熟。
+
+但是这世界线兰巴和黑三是被钢 ...</blockquote>
+写被数量堆死不就好了
+
+
+*****
+
+####  刺客ares  
+##### 4121#       发表于 2025-1-18 16:18
+
+痞子原版九十分钟长度的剧本里肯定有更多老人能露脸吧，结果砍了一半多，很多角色就嘴上提了一下就过了
+
+*****
+
+####  番茄牛奶  
+##### 4122#       发表于 2025-1-18 16:19
+
+如果真把if的40分钟放tv，不就是开局就少两集的tv？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 4123#       发表于 2025-1-18 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213739&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-18 16:19</a>
+ 如果真把if的40分钟放tv，不就是开局就少两集的tv？，如果真是季番，是不是有点雪上加霜了 ...</blockquote>
+40分钟不会放的，最多开播前搞个特番
+
