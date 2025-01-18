@@ -13132,3 +13132,42 @@ https://m.weibo.cn/status/5124249748505041</blockquote>
 
 说起来国内差不多是环s1差评了<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">虽然国内总共也没多少人去看了
 
+
+*****
+
+####  RE㐅ia  
+##### 4266#       发表于 2025-1-18 23:29
+
+半年有望？制作这是还没完成？
+
+<img src="https://img.saraba1st.com/forum/202501/18/232946y37tm3d21npnpm7m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>85DE0253-8DD3-4679-9FA0-C8D9C484CF79.jpeg</strong> (106.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/18/232952zs8js7tasulb8tsl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0B7DFA0B-C80C-4704-BE75-6DC656011FF4.jpeg</strong> (89.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:29 上传
+
+
+*****
+
+####  刺客ares  
+##### 4267#       发表于 2025-1-18 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217450&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-18 23:29</a>
+
+半年有望？制作这是还没完成？</blockquote>
+目前官方口径是只说了配音完成
+
+全篇制作完毕是民间内鬼透的，那就是还没做完？
+
+也不可能现在再修改画面什么的吧
+

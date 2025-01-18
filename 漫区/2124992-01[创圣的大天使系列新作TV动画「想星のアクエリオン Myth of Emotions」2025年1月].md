@@ -2039,3 +2039,14 @@ Logos……抱歉，坚持不下去三集弃了。
 
 这个系列哪部最好看啊？看完两集想补之前的
 
+
+*****
+
+####  马桶3  
+##### 213#       发表于 2025-1-18 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217331&amp;ptid=2124992" target="_blank">wer4f 发表于 2025-1-18 23:16</a>
+
+这个系列哪部最好看啊？看完两集想补之前的</blockquote>
+第一部偏严肃好看，第二部偏向失智好看，要补我建议补严肃点的
+
