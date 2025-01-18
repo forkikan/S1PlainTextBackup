@@ -6719,3 +6719,46 @@ BGM：假面舞会
 
 加上站台吵架，祥子也忽略了喵梦的进步，这件事肯定是个结，后面大概率要给剧情解决的。</blockquote>
 
+
+*****
+
+####  结衣小比取  
+##### 9465#       发表于 2025-1-18 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216383&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 21:29</a>
+
+睦这个共犯是不是罪恶感有点太强了，东京站ptsd发作得仿佛所有的锅都是自己的，祥子这个主犯反而一直理直气 ...</blockquote>
+是啊，Soyo还真是这么想的
+
+<img src="https://img.saraba1st.com/forum/202501/18/221228odp3tzhrprtzzumh.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-18_22-10-29.jpg</strong> (174.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:12 上传
+
+出自[【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈·前篇](https://www.bilibili.com/opus/862031452782460945)
+
+*****
+
+####  盐盐盐盐盐  
+##### 9466#       发表于 2025-1-18 22:13
+
+喵梦作为一个嘴上说自己为了做艺人什么都能拼的人会选择练鼓本身就是一种反差，毕竟爱音都知道吉他主唱最受欢迎（）鼓这种练起来又累又在舞台上不受关注的位置她学这个就给人感觉是真的喜欢而不是作为一个ytber卖点随便搞的
+
+*****
+
+####  天空塔书记官  
+##### 9467#       发表于 2025-1-18 22:15
+
+在视频网站上传了许多年弹钢琴的视频，因为不露脸穿着普通被评论骂“土气”，突然有一天决定尝试露脸并且换上紧身上衣短裙吊带袜结果爆红，之后干脆直接变成瑟琴主播
+
+大喵的情况应该和这差不多
+
+那她到底是想要他人来认可她的技艺和对音乐的热爱呢，还是脸和身材呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

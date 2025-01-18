@@ -317,3 +317,17 @@ pdd claw7+8+上了  6199 6999
 
 b站有人测试，调教好看起来和6800差不多，顶多差点。性能比sd强很多，就是功耗也高很多。
 
+
+*****
+
+####  bypass  
+##### 1365#         楼主| 发表于 2025-1-18 22:09
+
+ 本帖最后由 bypass 于 2025-1-18 22:12 编辑 
+
+给 GPD Win 4 刷了 Bazzite。目前遇到两个问题，安装的时候删除磁盘分区报错 Device is active，需要自行进终端用比如 fdisk 来手工操作；Wi-Fi 速度最高只能跑到 40MB/s，大多数时候都是 25 左右，看 Reddit 应该是普遍问题。
+
+不过总体体验还是比 Windows 要好的，尤其是 GPD 这种没有自家前端的。尝试 P3R 12w TDP 1080p 锁 45 帧，还算稳，续航大概两小时，凑合。休眠唤醒目前正常，待我测试一下耗电情况。
+
+<img src="https://imgur.ihainan.me/w2xJIWN.jpeg" referrerpolicy="no-referrer">
+
