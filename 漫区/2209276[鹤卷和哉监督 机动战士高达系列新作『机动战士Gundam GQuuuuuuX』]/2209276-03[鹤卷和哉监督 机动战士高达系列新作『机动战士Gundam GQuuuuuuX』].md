@@ -11169,3 +11169,11 @@ gquuuux的读音是zick 阿克斯 。有什么含义吗</blockquote>
 麻球人造人，修司部诗人
 喵安就只是喵安，ただの喵安<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yevvet  
+##### 4063#       发表于 2025-1-18 12:46
+
+牢修这角色真的太石田彰了。
+
