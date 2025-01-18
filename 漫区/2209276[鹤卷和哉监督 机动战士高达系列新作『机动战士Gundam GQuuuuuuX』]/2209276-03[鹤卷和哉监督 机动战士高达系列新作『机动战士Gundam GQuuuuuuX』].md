@@ -11287,3 +11287,30 @@ UC不是真实系吗，怎么越来越神棍了</blockquote>
 
 [https://mov3.co/ntv/](https://mov3.co/ntv/) 这里能凑活看
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 4077#       发表于 2025-1-18 13:38
+
+等等好心大神总结
+
+
+*****
+
+####  楠城旧篱  
+##### 4078#       发表于 2025-1-18 13:41
+
+<blockquote>operatbig 发表于 2025-1-18 13:34
+也就是很小？唉……</blockquote>
+嗨呀，反正有隔壁看，这边等完结也不妨碍
+
+*****
+
+####  gamedreamer  
+##### 4079#       发表于 2025-1-18 13:45
+
+有什么新东西吗？记得放出来呀。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

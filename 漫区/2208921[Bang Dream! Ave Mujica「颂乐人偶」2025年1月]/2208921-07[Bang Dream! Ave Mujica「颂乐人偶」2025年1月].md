@@ -5056,3 +5056,68 @@ c团除了睦和soyo 对立希和灯不都是不主动接触+冷漠回应么
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  NODY  
+##### 9323#       发表于 2025-1-18 13:34
+
+ 本帖最后由 NODY 于 2025-1-18 13:37 编辑 
+
+其实有可能单纯就是邦邦世界音乐高武+脚填数值罢了
+
+pp的公司公认的操作愚蠢，结果能把除了千圣外全员素人的偶像组合出道送上万人场，萝出道后喵梦蹭个视频就有十万二十万（现在mujica大红大紫她蹭了最火的睦都只有8.6w呢）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和ras对垒的那家音乐公司甚至能随随便便掐其他人的直播
+
+只要意识到邦邦出道乐队背后的音乐公司这么牛逼是常规操作，就不会纠结怎么上武道馆的问题了
+
+*****
+
+####  KLHgg  
+##### 9324#       发表于 2025-1-18 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hhw是把规划抬到更高的层次，那更不能细想了
+
+*****
+
+####  thisisaspider  
+##### 9325#       发表于 2025-1-18 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212728&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 13:22</a>
+
+我觉得这个问题的关键是，动画没有描写Ave Mujica是怎么上武道馆的。
+
+进一步说，甚至也没有描写Ave Mujica ...</blockquote>
+就算不包括喵梦，你一个队伍直接拉出4个职业级的选手，还要去看排位定级赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+她们的背景就已经说明了为什么能最速武道馆了。随便拉个正常的事务所宣传营运，观众吸引来，假面舞会炒作一下，武道馆不就成了。缺排练还能直接组起来倒是正常开挂范围。
+
+*****
+
+####  天空塔书记官  
+##### 9326#       发表于 2025-1-18 13:38
+
+邦世界的日常和音乐活动完全是两回事，完全背景化的设定就当是舞台装置吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  huxiaopao163  
+##### 9327#       发表于 2025-1-18 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67210911&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 03:03</a>
+
+你当剧场版想搞就搞啊？
+
+剧场版你看看时间要多久，起码3集的量要有，60分钟起步
+
+你这想法真的太离谱了，w ...</blockquote>
+呃，重点不是mujica动画完结后的对邦吗，加点剧情完成两个团的大和解。
+
+而且我说搞个live剧场版也只是顺带的，也不是必须要出，看真人的表演脑补也没问题
+
