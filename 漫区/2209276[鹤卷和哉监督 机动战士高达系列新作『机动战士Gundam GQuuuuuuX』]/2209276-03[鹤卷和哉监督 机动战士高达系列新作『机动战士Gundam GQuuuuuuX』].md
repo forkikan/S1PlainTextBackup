@@ -11815,3 +11815,41 @@ TV开播时前面这40分钟根本不会有吧？人设就不同，如果TV观�
 
 一般来说，看到大海下一步就是海的那边了（
 
+
+*****
+
+####  Gysumitka  
+##### 4131#       发表于 2025-1-18 16:34
+
+希望看海三人组能成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 4132#       发表于 2025-1-18 16:35
+
+说起来隔壁讲剧里其实有大魔出场 在爆破所罗门的时候搬运扎古的就是 但是迷彩和场景融合的太好了根本看不清<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 4133#       发表于 2025-1-18 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213841&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 16:32</a>
+
+想起来老早以前看的短篇高达动画 男主最后是坠机到了海上实现了看海梦想</blockquote>
+我怀疑你说的是EVOLVE里马拉塞这集：
+[https://www.bilibili.com/video/B ... 8.videopod.episodes](https://www.bilibili.com/video/BV1KW411B7cQ?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=13&amp;spm_id_from=333.788.videopod.episodes)
+
+
+*****
+
+####  jojonathan  
+##### 4134#       发表于 2025-1-18 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213882&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-18 16:38</a>
+我怀疑你说的是EVOLVE里马拉塞这集：
+
+https://www.bilibili.com/video/BV1KW411B7cQ?vd_source=536aedbb6 ...</blockquote>
+好像不是貌似是开的蓝魔蟹挂在大型光束发射器套件上 然后任务是从太空降下截击联邦发射的火箭
+

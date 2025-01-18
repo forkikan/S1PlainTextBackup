@@ -76,3 +76,14 @@ steam有试玩，前作能玩进去的话，这作除了主角人设其他方面
 不是三月份吗？提前了？而且怎么价格比前作还降了？</blockquote>
 提前了，全平台1.23
 
+
+*****
+
+####  Sopp  
+##### 674#       发表于 2025-1-18 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213409&amp;ptid=1977343" target="_blank">ATRO 发表于 2025-1-18 15:23</a>
+
+无人问津的角落，终焉的木兰花要发售了</blockquote>
+就等着她呢……
+
