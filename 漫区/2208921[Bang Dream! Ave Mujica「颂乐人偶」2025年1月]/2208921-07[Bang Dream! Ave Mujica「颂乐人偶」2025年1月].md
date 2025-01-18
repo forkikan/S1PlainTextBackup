@@ -7839,3 +7839,184 @@ Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人�
 不揭面具的真正理由是大家都有背景，这么下去，观众只会关 ...</blockquote>
 你在说什么，我是说喵梦没背景
 
+
+*****
+
+####  阿兹尔  
+##### 9557#       发表于 2025-1-18 23:54
+
+初华现在被编剧上了debuff，输出没有存在感也没有
+
+*****
+
+####  天空塔书记官  
+##### 9558#       发表于 2025-1-18 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217527&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-18 23:37</a>
+你这个号如果没认证过会需要你重新认证一次，鹅球只是可以让没认证过的号通过缓存机制回帖，但编辑的时候 ...</blockquote>
+测试 (
+
+好了，十分感谢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 9559#       发表于 2025-1-18 23:56
+
+初华后期得发挥成什么样 才能人气爆发啊
+看来至少会安排给初华一个终极回忆揭秘神回了
+
+*****
+
+####  厚乳果珍爽  
+##### 9560#       发表于 2025-1-18 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217615&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-18 23:46</a>
+
+虽然这个乐队上了武道馆，但是看起来感觉很”脆弱“，总感觉一阵风吹来就会倒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连队员忽然下克上都能掩盖，几个月上武道馆也不是不可能是吧？
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 9561#       发表于 2025-1-18 23:57
+
+再这么下去初华人气要成底边了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 9562#       发表于 2025-1-18 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217416&amp;ptid=2208921" target="_blank">花スープ 发表于 2025-1-18 23:26</a>
+
+不是很懂邦邦企划，新团动画要给前作团大量镜头算是好事吗？我觉得不然。
+
+加上怎么看都觉得 Ave Mujica  ...</blockquote>
+虽然我也觉得不会有太多go救场的戏份
+
+但谈音乐性这个就没意思了，三次元都是一批人写的歌，哪有业余不配和音乐性高的组合坐一桌的说法，邦邦同期团一起推本来就是正常操作（ppp萝，ras蝶，鸡狗）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 9563#       发表于 2025-1-18 23:59
+
+看ED顺序是最后一个，会爆的
+
+*****
+
+####  梅杜莎  
+##### 9564#       发表于 2025-1-18 23:59
+
+前三话初华在乐队内对祥子的支持不是比海铃还少？主要都在场外吧<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 9565#       发表于 2025-1-19 00:00
+
+没关系，还有sumimi呢
+
+🍩 🍩 🍩
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 9566#       发表于 2025-1-19 00:00
+
+<img src="https://img.saraba1st.com/forum/202501/18/235929i984n4dstpd0pjel.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:59 上传
+
+其他地方看到的，手游有对喵梦的名气有侧面描写，虽然手游编剧水平不怎么，但是设定应该看过了。很难说是真底边。
+
+*****
+
+####  JustW  
+##### 9567#       发表于 2025-1-19 00:01
+
+<blockquote>玖羽 发表于 2025-1-18 23:49
+你自己第一句就说明白了“虽然没有在武道馆演出作妖的”
+
+日本传统艺能下克上的重点就是，虽然干的事按规 ...</blockquote>
+一件事没有别人做，不一定意味着这是个前无古人后无来者的绝妙点子，而更多意味着别人都知道这件事做了必死无疑。而且我不太懂为什么要反复强调下克上这个词，日本有这个词但不代表日本存在一种别的地方都没有的世界规则叫下克上，人情运行逻辑都是一样的好吧。你想下克上成功不是只要你是下他是上，然后就游戏自动触发下克上了。比如春日望事件是春日望完全在理、企划方纯纯逆天，仍然花了大量时间才让舆论发酵到倒向她，拼到最后也只能说是个双输的局面，谈不上什么下克上。喵梦这纯纯自己犯病，就算把自己引爆了也只能让企划受个把月些许影响，甚至于把母鸡卡整个扔了还能再去培养公鸡卡，喵梦却连网红也当不了了，这种伤敌五自损一千的操作现实里当然没人干了。
+
+*****
+
+####  天空塔书记官  
+##### 9568#       发表于 2025-1-19 00:02
+
+在霓虹30万粉应该还算有点知名度吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NODY  
+##### 9569#       发表于 2025-1-19 00:02
+
+初华的问题其实看她的幕间独白就知道了
+
+独白强调过初华的行事作风就是看气氛，也就是当和事佬+给人捧场+顺着周围人说话，让她明确站立场拉架她做不到的，她要真是当个铁血祥卫兵那状况可能都比现在强
+
+*****
+
+####  天空塔书记官  
+##### 9570#       发表于 2025-1-19 00:03
+
+“善良” “亚撒西”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 9571#       发表于 2025-1-19 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217110&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-18 22:50</a>
+
+主要还是大祥老师第三集了居然连这么拙劣的键帽都治不了，再加上部分祥厨播出前天天给大祥老师抬轿子，什 ...</blockquote>
+十五年未有之大女主这个梗的出处：
+
+[https://bbs.saraba1st.com/2b/for ... 54&amp;pid=67099661](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2236454&amp;pid=67099661)
+
+[https://bbs.saraba1st.com/2b/for ... ;page=4#pid67097873](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2236454&amp;page=4#pid67097873)
+
+*****
+
+####  山ノ内花音  
+##### 9572#       发表于 2025-1-19 00:03
+
+看来初华需要足够大的刺激
+
+*****
+
+####  厚乳果珍爽  
+##### 9573#       发表于 2025-1-19 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217733&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-19 00:00</a>
+
+其他地方看到的，手游有对喵梦的名气有侧面描写，虽然手游编剧水平不怎么，但是设定应该看过了。很难说是 ...</blockquote>
+访问量爆之前1w不到，确实蛮底边的
+
+<img src="https://img.saraba1st.com/forum/202501/19/000333jqqhmuaaemu8z9q3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250119000314.png</strong> (1.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 00:03 上传
+

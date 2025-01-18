@@ -145,3 +145,34 @@ ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本�
 
 2025-1-18 22:48 上传
 
+
+*****
+
+####  holofan  
+##### 10691#       发表于 2025-1-18 23:17
+
+<img src="https://img.saraba1st.com/forum/202501/18/230508rw1lto1qi1751qm0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:05 上传
+
+说实话换衣服的OP跟其他holomem的撞了
+
+但是要是不换的话现在的版本最好，简洁又有中毒性
+
+*****
+
+####  holofan  
+##### 10692#       发表于 2025-1-19 00:00
+
+<img src="https://img.saraba1st.com/forum/202501/19/000015hc0fxvc00vvp09ov.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 00:00 上传
+
