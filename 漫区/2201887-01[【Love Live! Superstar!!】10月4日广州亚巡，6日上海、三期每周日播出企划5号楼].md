@@ -14667,3 +14667,13 @@ bd3
 活过一年就是胜利</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这玩意还是买断；真是难为声优吹这个了
 
+
+*****
+
+####  ViyViy  
+##### 1429#       发表于 2025-1-18 09:59
+
+BD封面早有预料了，结局都那样安排了。
+
+不过加个香音也没什么的吧。毕竟这卷的故事主力就这三个呀。
+
