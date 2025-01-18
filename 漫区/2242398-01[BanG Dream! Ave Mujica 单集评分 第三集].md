@@ -1904,3 +1904,16 @@ mygo我最喜欢的场景之一就是木头人卡拉ok段落，这集看了个�
 喵梦这个角色洗白说实话是有点反胃的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 做坏事不可怕，可怕的是做坏事不自知，是天生孬种。
 
+
+*****
+
+####  JustW  
+##### 194#       发表于 2025-1-18 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214790&amp;ptid=2242398" target="_blank">海底铁锚 发表于 2025-1-18 18:42</a>
+
+喵梦这个角色洗白说实话是有点反胃的
+
+做坏事不可怕，可怕的是做坏事不自知，是天生孬种。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">洗白肯定是要洗白的，而且已经能看出未来洗白的方向了。比如渲染一下家境贫困、儿时梦想、偷偷努力，然后在她最想追求的东西——流量和演戏梦上吃几个大瘪，幡然醒悟，就完了。
+

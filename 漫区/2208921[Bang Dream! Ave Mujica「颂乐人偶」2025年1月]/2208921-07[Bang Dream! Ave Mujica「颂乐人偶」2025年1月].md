@@ -5629,3 +5629,101 @@ MYGO第三集和MUJICA第三集对着看更有意思了。分别是灯和睦的�
 
 原來在羽丘碰上，對面想打招呼時，扭頭就走的那個是燈嗎？
 
+
+*****
+
+####  狂热飞鸟  
+##### 9374#       发表于 2025-1-18 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214827&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-18 18:46</a>
+
+所以到底要拿回什么失去的东西？父母家人？朋友？自尊？总不能是音乐吧。现在感觉唯一马上能拿回来的就是 ...</blockquote>
+其实目前答案就是还不知道母鸡卡对祥子的真正意义，之后应该会在剧情解释的
+
+*****
+
+####  木板春香  
+##### 9375#       发表于 2025-1-18 18:51
+
+十五年大女主这个说法也是中国河豚自嗨的，不要当官方说辞啊
+
+*****
+
+####  necroia  
+##### 9376#       发表于 2025-1-18 18:51
+
+<blockquote>南宮凝香 发表于 2025-1-18 18:47
+原來在羽丘碰上，對面想打招呼時，扭頭就走的那個是燈嗎？
+
+大家當然都不是清白
+</blockquote>
+这么说那就没意思了，要不您来展示展示大女主在哪里体现了呢？
+
+*****
+
+####  友情的结晶  
+##### 9377#       发表于 2025-1-18 18:52
+
+什么年代了还在债务问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。公司亏损必须由执行责任人全额背负是什么现实公司的运行逻辑吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  星天观测  
+##### 9378#       发表于 2025-1-18 18:55
+
+没上过班好像就是这样的，只能说有点…搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 9379#       发表于 2025-1-18 18:55
+
+第三集看完感觉初华操作段位是不是有点低啊，对线喵梦都处于下风，跟现在场外假药走向完全不一样（
+
+*****
+
+####  JustW  
+##### 9380#       发表于 2025-1-18 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天真的见过114514个说祥子搞商业乐队是为了给自己爹还168亿的债。
+
+*****
+
+####  狂热飞鸟  
+##### 9381#       发表于 2025-1-18 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214834&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-18 18:47</a>
+
+原來在羽丘碰上，對面想打招呼時，扭頭就走的那個是燈嗎？
+
+大家當然都不是清白</blockquote>
+哦，所以呢，灯在解散的哪一年有找祥子吗，素发消息灯没无视吗
+
+另外你来翻一下，这几页里哪一个说了祥子大女主，不都是在分析剧情和骂祥子的吗
+
+再看看你自己的言论，可不就是其他人清清白白吗。
+
+"沒辦法對人見死不救的孩子無視了隔壁班的自閉朋友，再把另一個自閉朋友當情緒垃圾桶”
+
+*****
+
+####  aptx8285144  
+##### 9382#       发表于 2025-1-18 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214751&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-18 18:36</a>
+
+不过当不当圣旨看厨什么角色吧
+
+独角兽和柿本喜欢迫害立希，但鼓子真的爱立希，看你信鼓子还是信独角兽和柿 ...</blockquote>
+独角兽难道迫害最惨的难道不是素世吗（虽然锁定大局的那话是后藤执笔），立希做女士程度可能还没有当年少女歌剧的露女士高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭千景  
+##### 9383#       发表于 2025-1-18 18:58
+
+是我熟悉的“访谈哪有我懂”环节，梦回一号楼了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

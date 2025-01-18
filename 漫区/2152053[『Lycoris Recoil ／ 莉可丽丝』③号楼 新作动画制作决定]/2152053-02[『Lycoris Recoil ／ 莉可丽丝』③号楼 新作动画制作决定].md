@@ -143,3 +143,11 @@
 六集的泡面番要做一年吗</blockquote>
 算作去年7月24号才动不久，到现在才做一半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你觉得呢
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2066#       发表于 2025-1-18 18:54
+
+不知道是3分钟的泡面还是7分钟的泡面<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">总不能是12分钟的泡面。
+
