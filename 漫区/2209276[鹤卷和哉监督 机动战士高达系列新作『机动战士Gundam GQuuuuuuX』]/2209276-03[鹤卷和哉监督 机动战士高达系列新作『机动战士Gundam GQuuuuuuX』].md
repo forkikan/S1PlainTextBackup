@@ -10877,3 +10877,72 @@ UC0079那种带有强烈政治底色的片子，和青春感这种元素一结�
 
 嗯？哈曼说重新上台了？
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4034#       发表于 2025-1-18 11:55
+
+没想到第一张画完的是喵安
+我会坚持野良猫塑<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8b79fc44de45aad65623cea74aa8d3c3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Gysumitka  
+##### 4035#       发表于 2025-1-18 11:56
+
+等会那个zip节目有人转播吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 不知道蓝原播不播
+
+*****
+
+####  0aleph37  
+##### 4036#       发表于 2025-1-18 11:56
+
+哈曼说年龄对不上吧，麻球85年是17岁，哈曼应该18岁
+
+*****
+
+####  刺客ares  
+##### 4037#       发表于 2025-1-18 11:57
+
+再来点假药，那0085部分的主线也清晰了
+
+不是小格局就打打黑拳也不是盲目大格局搞推翻吉翁公国
+
+而是一边躲避吉翁追捕一边想办法把牢修送回“另一边”，把鸭子再换出来
+
+牢修在各大殖民地涂鸦，其实也是在找当年把他拉到这边来的“沙仑玫瑰”
+
+后续玛秋发功把牢修送回“另一边”，79夏亚又被换回来，
+
+反扎比家解放宇宙的事就交给他和夏利亚，玛秋和妮娅安就继续回去当路边JK
+
+然后再看蒙太奇到0085的插曲《午夜反射》，歌词为什么是这种画风的
+
+<img src="https://img.saraba1st.com/forum/202501/18/115444wzu1qpuey2qpaqu2.png" referrerpolicy="no-referrer">
+
+<strong>13.png</strong> (174.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 11:54 上传
+
+这不就是恋人视角在唱离别吗
+
+*****
+
+####  灵魂收割机  
+##### 4038#       发表于 2025-1-18 11:57
+
+懂了，修司是被NT发功抓到异世界的可怜胶佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 4039#       发表于 2025-1-18 12:00
+
+百合胜算大吗？
+
