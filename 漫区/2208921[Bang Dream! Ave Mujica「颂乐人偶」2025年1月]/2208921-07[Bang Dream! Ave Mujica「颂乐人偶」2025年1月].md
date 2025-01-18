@@ -5181,3 +5181,13 @@ weibo：梅比乌斯TUTAI想玩XBX
 
 从中你可以看出被mygo时期影响有多深 明明第一集都跟你说了祥子家境 结果还是有一堆人说家道中落
 
+
+*****
+
+####  天空塔书记官  
+##### 9334#       发表于 2025-1-18 15:29
+
+祥子算不完全的净身出户吧，想回去随时都能回去<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

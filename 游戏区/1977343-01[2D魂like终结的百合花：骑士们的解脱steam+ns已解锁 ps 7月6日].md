@@ -27,3 +27,14 @@
 
 2025-1-18 15:22 上传
 
+
+*****
+
+####  ATRO  
+##### 669#       发表于 2025-1-18 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213446&amp;ptid=1977343" target="_blank">ParadiseMartyr 发表于 2025-1-18 15:31</a>
+
+好玩吗</blockquote>
+steam有试玩，前作能玩进去的话，这作除了主角人设其他方面都是进化
+
