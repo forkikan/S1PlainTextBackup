@@ -12100,3 +12100,82 @@ G-4计划的前提是G3啊
  不知道后面要打哪派人，应该不归警察管了吧</blockquote>
 还在side6的话肯定和警察会有关系，但是如果离开side6那就和警察没关系了
 
+
+*****
+
+####  YU_JI  
+##### 4161#       发表于 2025-1-18 17:48
+
+12集的篇幅果然怎么看都还是嫌少，这个背景能讲的东西太多了
+
+*****
+
+####  tomzach  
+##### 4162#       发表于 2025-1-18 17:48
+
+话说回来，side6不是“口袋”吗？把故事的舞台设置在这里会有什么特别含义吗？
+
+
+*****
+
+####  刺客ares  
+##### 4163#       发表于 2025-1-18 17:52
+
+话说回来，0085时间线的面具反派呢
+
+鸭子在0079就消失了，0085没有面具敌役了，会让某个老熟人戴上面具出来追杀主角团吗
+
+*****
+
+####  猪突猛进R  
+##### 4164#       发表于 2025-1-18 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214377&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 17:52</a>
+
+话说回来，0085时间线的面具反派呢
+
+鸭子在0079就消失了，0085没有面具敌役了，会让某个老熟人戴上面具出来 ...</blockquote>
+紫婆一直就是啊。
+
+*****
+
+####  jojonathan  
+##### 4165#       发表于 2025-1-18 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214377&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 17:52</a>
+话说回来，0085时间线的面具反派呢
+
+鸭子在0079就消失了，0085没有面具敌役了，会让某个老熟人戴上面具出来 ...</blockquote>
+联邦残党是吧
+
+*****
+
+####  猪突猛进R  
+##### 4166#       发表于 2025-1-18 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214344&amp;ptid=2209276" target="_blank">tomzach 发表于 2025-1-18 17:48</a>
+
+话说回来，side6不是“口袋”吗？把故事的舞台设置在这里会有什么特别含义吗？ ...</blockquote>
+访谈里说了他们觉得SIDE6就像日本，“中立”。
+
+*****
+
+####  卑弥呼yamato  
+##### 4167#       发表于 2025-1-18 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214377&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-18 17:52</a>
+话说回来，0085时间线的面具反派呢
+
+鸭子在0079就消失了，0085没有面具敌役了，会让某个老熟人戴上面具出来 ...</blockquote>
+基连或者紫色老太婆，或者他们手下的某个Ace
+
+*****
+
+####  王留美  
+##### 4168#       发表于 2025-1-18 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214390&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-18 17:54</a>
+ 联邦残党是吧</blockquote>
+联邦不会是主要反派
+有鸭子在基连和基西莉亚的反派位就逃不掉的
+

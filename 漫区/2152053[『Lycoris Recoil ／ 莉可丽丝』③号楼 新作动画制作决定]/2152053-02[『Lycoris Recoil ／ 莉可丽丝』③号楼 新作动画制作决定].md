@@ -133,3 +133,13 @@
 没有2026年见</blockquote>
 六集的泡面番要做一年吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 2065#       发表于 2025-1-18 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214221&amp;ptid=2152053" target="_blank">qz66618 发表于 2025-1-18 17:28</a>
+六集的泡面番要做一年吗</blockquote>
+算作去年7月24号才动不久，到现在才做一半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你觉得呢
+
