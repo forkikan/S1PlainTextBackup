@@ -1664,3 +1664,16 @@ B14已经从发射台拆下，即将返厂。有传闻称这将会是第一枚�
 
 闹出这么大动静，FAA不会轻易放他过关。
 
+
+*****
+
+####  andychen  
+##### 135#       发表于 2025-1-18 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212249&amp;ptid=2210117" target="_blank">AraTurambar 发表于 2025-1-18 11:57</a>
+
+马斯克一口咬定下个月，根本不可能。
+
+闹出这么大动静，FAA不会轻易放他过关。 ...</blockquote>
+美国那边leader马上换了，加上Artemis的任务时间压力，后面会怎样我觉得不好说
+

@@ -6257,3 +6257,79 @@ go团时候那些片段塑造起来的期待值来的吧，毕竟确实那时候
 
 喵梦才高一啊，这发育也太好了
 
+
+*****
+
+####  天空塔书记官  
+##### 9427#       发表于 2025-1-18 20:30
+
+目前bang还没有成年人乐队吧，除了作为背景板的猫猫外婆还有益木他爹那几个
+
+喵梦也没啥理由真伪造年龄…
+
+要说的话，素世感觉更像成年人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  阿兹尔  
+##### 9428#       发表于 2025-1-18 20:34
+
+<blockquote>天空塔书记官 发表于 2025-1-18 20:30
+目前bang还没有成年人乐队吧，除了作为背景板的猫猫外婆还有益木他爹那几个
+
+喵梦也没啥理由真伪造年龄…</blockquote>
+最像成年人的应该是刘伟和大姐头吧
+
+*****
+
+####  山ノ内花音  
+##### 9429#       发表于 2025-1-18 20:35
+
+20岁的高一<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  borrowface  
+##### 9430#       发表于 2025-1-18 20:36
+
+喵睦是缅因猫🥵
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 9431#       发表于 2025-1-18 20:36
+
+单论身高，RAS键盘手鳰原令王那初中三年级身高就有160＋，如果按现实的话，未来应该有望冲击邦邦最高的
+
+虽然你邦这世界观时间流速也正常不了就是了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 9432#       发表于 2025-1-18 20:38
+
+瞄梦这几话宛如半个幕后黑手的画风，如果是高一的话，在学校莫非是个不良团体的头子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 9433#       发表于 2025-1-18 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67214872&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-1-18 18:52</a>
+
+什么年代了还在债务问题。公司亏损必须由执行责任人全额背负是什么现实公司的运行逻辑吗
+
+论坛助手,iPhone ...</blockquote>
+单论这点还真可能，只要公司咬死是职务侵占然后告上法院，别说赔偿损失了直接送进去吧。就看背景够不够黑暗了
+
