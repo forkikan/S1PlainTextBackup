@@ -6486,3 +6486,56 @@ KK园区是指中国人横扫KillKiss专辑的店吗
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿兹尔  
+##### 9448#       发表于 2025-1-18 21:19
+
+目前是立希喜欢ag，祥子喜欢蝶团，大猫喜欢ras这样吧，就是手游里小白总是惦记爽世有点搞，吃菌子一样的剧情都有爽世
+
+*****
+
+####  哈曼的YY  
+##### 9449#       发表于 2025-1-18 21:22
+
+我要看的就是这个
+
+BGM：假面舞会
+
+<img src="https://img.saraba1st.com/forum/202501/18/212159f2btu2pwfol3nkwk.jpg" referrerpolicy="no-referrer">
+
+<strong>Ghj96uWaUAA-XOx-2.jpg</strong> (670.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 21:21 上传
+
+[https://x.com/22694BZ/status/1880532044071203285](https://x.com/22694BZ/status/1880532044071203285)
+
+
+*****
+
+####  天空塔书记官  
+##### 9450#       发表于 2025-1-18 21:22
+
+“容易认妈”是这样的，毕竟蝶团就是四带一
+
+素世现在应该是月之森最有妈味的了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  NODY  
+##### 9451#       发表于 2025-1-18 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216294&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-18 21:19</a>
+
+目前是立希喜欢ag，祥子喜欢蝶团，大猫喜欢ras这样吧，就是手游里小白总是惦记爽世有点搞，吃菌子一样的剧 ...</blockquote>
+因为马希洛是小屁孩想要装成熟，希望自己被后辈尊敬
+
+爽世就是她后辈里面看起来最成熟的，所以一直幻想自己被爽世尊敬
+

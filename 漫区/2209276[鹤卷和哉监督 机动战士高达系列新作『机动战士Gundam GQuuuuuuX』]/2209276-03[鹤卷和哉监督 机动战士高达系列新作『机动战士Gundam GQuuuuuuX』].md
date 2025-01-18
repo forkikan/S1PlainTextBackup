@@ -12648,3 +12648,16 @@ GQX目前的舆论环境颇有一种看过的都夸好，没看过的都在骂�
 
 前几年井上雄彦用TFSD给大家表演了一个场内场外的篮球抢七大战还赢了，不知道卡拉会不会也在场内场外给大伙表演一个钢弹屹立在大地之上，然后还赢了
 
+
+*****
+
+####  Piano-Forest  
+##### 4216#         楼主| 发表于 2025-1-18 21:24
+
+【鹤卷和哉×榎户洋司×庵野秀明】访谈翻译（含剧透）
+[https://m.weibo.cn/status/5124249748505041](https://m.weibo.cn/status/5124249748505041)
+<img src="https://p.sda1.dev/21/58bfabaa66c774da3bb2575820616527/005B2wbqgy1hxp4zsl3esj32n01x6x6p.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ac760384cde46fadc7487d2df2480bdb/005B2wbqgy1hxp4zvwvxgj32n01x6x6p.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/acb5e9fb30d745b68c42b37732290be8/005B2wbqgy1hxp502lnrjj32n01x6e82.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9b2db41883849c8211bca72d2fa8cf32/005B2wbqgy1hxp505wsjkj32n01x6x6p.jpg" referrerpolicy="no-referrer">
+
