@@ -11418,3 +11418,58 @@ UC不是真实系吗，怎么越来越神棍了</blockquote>
 怎么插曲完整版都出来了，那什么时候能放出米奇律师的主题曲？</blockquote>
 20号
 
+
+*****
+
+####  cxasuka  
+##### 4090#       发表于 2025-1-18 14:10
+
+ 本帖最后由 cxasuka 于 2025-1-18 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212248&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-18 11:57</a>
+
+懂了，修司是被NT发功抓到异世界的可怜胶佬</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个有ucif路线，有校园要素，有穿越，还一直打拳的是：GUNDAM BUILD FIGHTERS
+
+*****
+
+####  Toby_dak  
+##### 4091#       发表于 2025-1-18 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67212695&amp;ptid=2209276" target="_blank">yevvet 发表于 2025-1-18 14:16</a>
+
+一开始意大利官网的泄露到底是故意的还是真的是失误。如果没有那个泄漏看这部电影的震惊度还得高好多。 ...</blockquote>
+官方一开始就完全没藏住啊。
+
+12月4号的特报PV，第一句台词就是「直径6.4キロメートルスペース・コロニーには」，熟悉UC世界设定肯定知道这是UC背景。
+
+<img src="https://img.saraba1st.com/forum/202501/18/150901wpk3jz887ph3ybzr.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (55.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 14:09 上传
+
+PV接着出现的警用渣古、仿佛RX-78/CA的红高类似物、爱美号专用的浮游炮BIT，如果光靠这些东西都不能推导出一年战争IF线的话，只能说你太小看UC粉的考究能力了。
+
+*****
+
+####  王留美  
+##### 4092#       发表于 2025-1-18 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213009&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-18 14:04</a>
+ 鹤卷和哉：希望UC遗老跟种遗老都能来评价下GQuuuuuuX（</blockquote>
+不是种遗老，是种开始的新人
+
+*****
+
+####  王留美  
+##### 4093#       发表于 2025-1-18 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67213059&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-18 14:12</a>
+ 官方一开始就完全没藏住啊。 12月4号的特报PV，第一句台词就是「直径6.4キロメートルスペース・コロニー ...</blockquote>
+红高达没全身图吧
+
+核心点还是爱斯梅拉的线控炮
+
