@@ -7359,3 +7359,194 @@ Ave Mujica的关键词“把余生交给我”可能会是五个人成为家人�
 
 而且喵梦的行为基本没什么争议空间，本身粉丝也不多，一直骂也是拳头砸在棉花上罢了
 
+
+*****
+
+####  NODY  
+##### 9517#       发表于 2025-1-18 23:17
+
+事实上初华第三集已经说了让大家好好谈谈了，其他人根本不听而已
+
+让爱音来也是这个结果，go第四集爱音能让其他人把话说开是因为灯爽希三个人本来就没有矛盾比较好说话，甚至立希自带一个灯厨底层逻辑可以迅速入队省略攻略过程，不然你以为爱音为什么不把祥子拉过来
+
+<img src="https://img.saraba1st.com/forum/202501/18/231701p5i5c81laoza8n82.png" referrerpolicy="no-referrer">
+
+<strong>a5c4899a-b02c-4521-ad5b-a1c19353d8de.png</strong> (16.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:17 上传
+
+*****
+
+####  山ノ内花音  
+##### 9518#       发表于 2025-1-18 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217343&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-18 23:17</a>
+事实上初华第三集已经说了让大家好好谈谈了，其他人根本不听而已
+
+让爱音来也是这个结果，go第四集爱音能让 ...</blockquote>
+确实 爱音真来母鸡卡这种恶劣环境 
+估计直接伦敦ptsd犯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 9519#       发表于 2025-1-18 23:19
+
+没看外面，大喵现在已经变成没啥争议空间了吗，还是说这就是背负人生无限责任制的力量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 9520#       发表于 2025-1-18 23:20
+
+ 本帖最后由 Renes 于 2025-1-18 23:23 编辑 
+<blockquote>NODY 发表于 2025-1-18 23:17
+事实上初华第三集已经说了让大家好好谈谈了，其他人根本不听而已
+
+让爱音来也是这个结果，go第四集爱音能让 ...</blockquote>
+
+爱音有一个天赋是，会去察觉和寻找对方内心的矛盾，以此接近和开解对方，就是这个主动性和洞察力，才会被封圣。
+
+因为不管什么团队，尤其这两个团队，有一个主动想办法解决问题，而且会解决问题的人太重要了。爱音可不是只会说好好谈的人，她是为了你能去当跟踪狂掘地三尺按住你用她推测出的答案和你谈的人。
+
+初华嘴上说着好好谈，实际上她只在乎祥子，又怕祥子讨厌她所以怂着不知道怎么上。
+
+
+*****
+
+####  thisisaspider  
+##### 9521#       发表于 2025-1-18 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217366&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-18 23:19</a>
+
+没看外面，大喵现在已经变成没啥争议空间了吗，还是说这就是背负人生无限责任制的力量 ...</blockquote>
+大家都定性了吧，不想车罢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 9522#       发表于 2025-1-18 23:21
+
+ 本帖最后由 JustW 于 2025-1-18 23:24 编辑 
+<blockquote>玖羽 发表于 2025-1-18 23:09
+正好相反，喵梦急着摘面具的一个重要原因就是让自己不被踢出去
+
+全队五人只有她没背景，都戴着面具没人知 ...</blockquote>
+
+虽然但是现实里丑不丑闻的肯定也是要换的，编个理由也要明里暗里把你踢了，大不了全说开也是你单方面破坏企划决定，公关操作一下企划方很轻松获得大众同情，换人也没那么困难。而且就算短期内会收到负面影响，也必须把埋着的地雷排了，否则等以后乐队做更大了再炸一次吗？而且娱乐圈总共就这么点大，哪怕明面上不公布，私下里喵梦这德性早就传遍业界了，哪怕能继续在乐队苟一段时间，别的工作机会是别想了，更别说喵梦还想跳跳板去搞什么演戏，别人更不敢收这个祖宗。
+
+*****
+
+####  玖羽  
+##### 9523#       发表于 2025-1-18 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217215&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-18 23:03</a>
+
+大概率是soyo助攻祥子追回睦
+
+灯助攻祥子追回初华</blockquote>
+按照合照的对应总结之前出现的关系性：
+
+爱喵——粉和博主
+
+华灯——被鼓励过，同去天文馆
+
+海希——不用说
+
+爽祥——不用说（你们摸着嗜血的良心想一想，你们不想看吗）
+
+睦猫——神人和神经病人(?)
+
+*****
+
+####  山ノ内花音  
+##### 9524#       发表于 2025-1-18 23:23
+
+从下集看感觉开朗睦才是真正的概念神
+但还不算完全体
+
+*****
+
+####  aptx8285144  
+##### 9525#       发表于 2025-1-18 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217387&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-18 23:22</a>
+
+按照合照的对应总结之前出现的关系性：
+
+爱喵——粉和博主</blockquote>
+爱瞄，说实话我觉得实在太便宜瞄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 9526#       发表于 2025-1-18 23:24
+
+猫猫是可以自由地用音乐表达自己，作事遵循天性
+
+而木头是不能用音乐表达自己，完全抑制自己的天性
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 9527#       发表于 2025-1-18 23:24
+
+我都怀疑乐奈被ykn抓走了(什么pico再现)，第四集能有一句台词不
+
+*****
+
+####  花スープ  
+##### 9528#       发表于 2025-1-18 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217114&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-18 22:51</a>
+
+我觉得，鸡团的人说不定要靠狗团来解开心结。</blockquote>
+不是很懂邦邦企划，新团动画要给前作团大量镜头算是好事吗？我觉得不然。
+
+加上怎么看都觉得 Ave Mujica 是邦邦未来音乐性方面主推的乐队，要和一个业余配置的乐队绑定多少有点滑稽。
+
+*****
+
+####  结衣小比取  
+##### 9529#       发表于 2025-1-18 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217261&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-18 23:09</a>
+
+第四集的anon已经展现出了远超其他人的作用了，有事她真能拉着拽着所有人把话说开，春日影事变后面对soyo ...</blockquote>
+爱音也是有自己的小心思，没把人全叫齐
+
+<img src="https://img.saraba1st.com/forum/202501/18/232448yspqsskxqdzhlod6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-18_23-20-53.jpg</strong> (243.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:24 上传
+
+[【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈·前篇](https://www.bilibili.com/opus/862031452782460945)
+
+*****
+
+####  天空塔书记官  
+##### 9530#       发表于 2025-1-18 23:26
+
+不是备战中考去了吗(
+
+哦，猫猫学力意外地好像不低，而且直升花中专也不需要考试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 9531#       发表于 2025-1-18 23:28
+
+我对可能的mygo成员救场抱有悲观看法，主要是这个度不好把握。太简单了:类似初灯，演个5次没意思。太复杂了，现在的剧情节奏又抗不住。作为彩蛋的话感觉还行。为了卖跨团CP的话也够了。
+
