@@ -9383,3 +9383,24 @@ ob小姐在介绍人偶的时候 用上了诸如顺从 高贵 温柔 聪慧等�
 
 CHATGPT还是缺点灵魂。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 9682#       发表于 2025-1-19 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67215166&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-18 19:26</a>
+
+我觉得两次访谈一次编剧一次声优把这件事说的很明白逻辑很清晰了，比起质疑创作者和声优的理解，好像有人连 ...</blockquote>
+畢竟懂哥，人家比創作劇本的綾奈、監督，配音配完了13話的角色聲優都懂，大家讓一下
+
+
+*****
+
+####  Tienx  
+##### 9683#       发表于 2025-1-19 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219127&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-19 09:29</a>
+场景：一个周末的午后，真奈拎着一盒甜甜圈，兴冲冲地来到初华的家门口，准备给她一个惊喜。门铃响起后，开 ...</blockquote>
+把括号里的去掉，让各路懂哥万字解析
+

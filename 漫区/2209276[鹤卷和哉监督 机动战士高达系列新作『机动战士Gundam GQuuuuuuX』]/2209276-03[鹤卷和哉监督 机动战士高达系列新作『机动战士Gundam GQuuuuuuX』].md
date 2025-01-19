@@ -13619,3 +13619,50 @@ https://m.weibo.cn/status/5124249748505041
 
 隔壁说主角机是夏利亚偷偷造的<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">要是被吉翁发现了会快进到军事法庭 不知道真的假的 如果是真的倒是能解释很多东西
 
+
+*****
+
+####  补天士  
+##### 4310#       发表于 2025-1-19 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217919&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-19 00:25</a>
+
+b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发指（）</blockquote>
+多少人把我当成神经病的？
+
+*****
+
+####  0aleph37  
+##### 4311#       发表于 2025-1-19 09:35
+
+霓虹现在对gquuuuuux的解释很多倾向于是G-quuuuuux，qux是计算机编程常用的无意义占位符，每多一个u是多一个实体，所以gq6ux应该是该系列第六台。这与企划初期那个6台复制高达+1台幻之机体关联度很高
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4312#       发表于 2025-1-19 09:38
+
+昨天看了poto中巡又回去重温了一遍一粒沙
+个人期待上希望修司是偏向意象/象征的符合高达的妖精的符号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就像死神只是茜茜靠近死亡的一个诱惑她赴死的想象（以最经典的2001 essen版为参照的话，tod应该具有相对模糊的性别特征与冷漠的故事旁观者性质）
+（太空歌剧搞起来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">）
+嗯……但要是单纯作为故事的主人公之一也可以吧
+（以及喵安和麻球这么命运感的一跃，上分的肯定还在后面，两个人还有常服<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">估计就是访谈说的校园青春的部分
+毕竟就算是NT和走私犯也是实际美少女<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  0aleph37  
+##### 4313#       发表于 2025-1-19 09:38
+
+<img src="https://img.saraba1st.com/forum/202501/19/093730q60z66tztyu3t0b3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 09:37 上传
+
+能带动年轻人去看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
