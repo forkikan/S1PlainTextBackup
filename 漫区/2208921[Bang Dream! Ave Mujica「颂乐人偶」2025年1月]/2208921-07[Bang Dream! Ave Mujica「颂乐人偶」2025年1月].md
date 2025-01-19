@@ -9524,3 +9524,97 @@ https://m.twitch.tv/gigguk
 
 沒看到桌上的過期甜甜圈不服
 
+
+*****
+
+####  樱小路三礼  
+##### 9694#       发表于 2025-1-19 10:27
+
+不觉得欧美人能喜欢上🐔🐶，文化环境差别是确实存在的
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  thisisaspider  
+##### 9695#       发表于 2025-1-19 10:31
+
+文化差异<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/19/103133fss6v2q1svui2s2v.png" referrerpolicy="no-referrer">
+
+<strong>50cadfd441c3a534e701a92b680896c.png</strong> (64.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 10:31 上传
+
+*****
+
+####  御幸一也  
+##### 9696#       发表于 2025-1-19 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219360&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-19 10:18</a>
+
+然而没看过mygo的应该搞不懂爽世看到睦头人组新乐队便跑过来兴师问罪的理由吧……说到底宣发也不可能说母 ...</blockquote>
+這些部分看不懂就看不懂了，難道你覺得mujica動畫裡會大篇幅聊為什麼爽世不爽然後給她解開心結嗎，
+
+這種情況的話確實需要補mygo了解一下為何只有她想復辟CCC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 9697#       发表于 2025-1-19 10:33
+
+狗團本來就有東西留到這季解決，
+
+素燈祥睦這四人本來就要在這季就包餃子
+
+至少也要別見面連話也說不了
+
+不然你還打算留到在手遊給你解決嗎？
+
+*****
+
+####  remedios010000  
+##### 9698#       发表于 2025-1-19 10:34
+
+放过小底边吧，毕竟隔壁团一晚上也才103<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  刑部姬真可爱  
+##### 9699#       发表于 2025-1-19 10:34
+
+欧美会不会认为屁大点事闹麻了，感觉那边对“女女关系性”没那么热衷吧，
+
+----发送自 [realme RMX1991,Android 11](http://stage1.5j4m.com/?1.42)
+
+*****
+
+####  takerest  
+##### 9700#       发表于 2025-1-19 10:34
+
+<blockquote>御幸一也 发表于 2025-1-19 10:32
+這些部分看不懂就看不懂了，難道你覺得mujica動畫裡會大篇幅聊為什麼爽世不爽然後給她解開心結嗎，
+
+這種 ...</blockquote>
+可别立flag啊，等过个几集来个祥灯碰头（
+
+*****
+
+####  刑部姬真可爱  
+##### 9701#       发表于 2025-1-19 10:35
+
+<blockquote>引用第9693楼thisisaspider于2025-01-19 10:31发表的  :
+
+文化差异</blockquote>
+@thisisaspider
+
+美国笑话h
+
+----发送自 [realme RMX1991,Android 11](http://stage1.5j4m.com/?1.42)
+
