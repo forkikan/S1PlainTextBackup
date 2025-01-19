@@ -10519,3 +10519,41 @@ Soyo的惊世智慧很单纯，她以为祥子离开是因为她们做错了什�
 Soyo的惊世智慧很单纯，她以为祥子离开是因为她们做错了什么事得罪了祥子，只要跟祥子好好道歉，把自己放 ...</blockquote>
 拉拉队长只是我用的委婉说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 9781#       发表于 2025-1-19 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220661&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-19 13:12</a>
+还有mortis那些诱导的话也有很多错位，明明第一季做了很多睦主观想做的但是祥子不想的事。
+确实睦是为祥子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫提斯就是装好人再吞噬的经典反派那套
+如果制作组要刻画莫提斯是好的，最后就不是吞噬了，而是撑起伞保护睦
+最后的演出除了致敬魔法少女小圆还有点致敬HF里黑泥樱
+byd这俩里面的圣杯和qb还都是扭曲愿望，绝了
+
+*****
+
+####  友情的结晶  
+##### 9782#       发表于 2025-1-19 13:21
+
+爱音台上卡壳的时候soyo还在帮忙圆场。在我看有她想赶走爱音猫猫的想法最多停留在口头上，连犯罪未遂都有点勉强。关键是5集之后的灯即使祥子回来了也肯定想是和爱音祥子一起玩，那soyo很难有什么动机和行动力去赶爱音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。至于猫更是没人管得了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  狂热飞鸟  
+##### 9783#       发表于 2025-1-19 13:23
+
+祥子没给喵画饼，数字和脸是祥子找喵的原因不是许诺的条件，祥子只许诺了最快出道和团队有初华和睦。
+
+*****
+
+####  哈曼的YY  
+##### 9784#       发表于 2025-1-19 13:24
+
+小黄瓜向黑圣杯许愿保住母鸡卡 黑圣杯给了她莫姐
+
