@@ -9676,3 +9676,107 @@ am动画的go团哪怕只是保持go动画的am人量级的戏份都可以说很
 
 是初華 睦 海鈴 喵夢 祥子 這5個角色要成為一個真正的團體，不是要10人組一個雞狗樂團哦。
 
+
+*****
+
+####  御幸一也  
+##### 9708#       发表于 2025-1-19 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219501&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-19 10:40</a>
+
+又在说不看mygo也能看mujica，这样说的人恰恰都是看过mygo的，通过mygo喜欢上鸡团的，对没看过的人就不要说 ...</blockquote>
+你說的對，但監督也這樣說。
+
+[https://myanimelist.net/featured/2398](https://myanimelist.net/featured/2398)
+
+For those who haven’t yet joined the Masquerade, can you describe Ave Mujica in your own words? What’s in store for viewers?
+
+Kakimoto: This anime serves as a sequel to the TV anime BanG Dream! It’s MyGO!!!!! which aired in 2023, but <strong>is designed to be enjoyed independently as well.</strong>
+
+*****
+
+####  黑夜落叶秋天  
+##### 9709#       发表于 2025-1-19 11:00
+
+<img src="https://img.saraba1st.com/forum/202501/19/105122h41plhmzhlxmxmwl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-19-10-50-47-59_149003a2d400f6adb210d7e357a3a646.jpg</strong> (79.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 10:51 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/105123nfyc8o4id2778fqf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-19-10-50-52-01_149003a2d400f6adb210d7e357a3a646.jpg</strong> (114.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 10:51 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/105123a8xni5gw0bs8x8i5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-19-10-50-56-32_149003a2d400f6adb210d7e357a3a646.jpg</strong> (82.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 10:51 上传
+
+你让没看过mygo的人看soyo兴师问罪这一段 那他的感想是“棕毛因为绿毛组乐队不爽 跑去压力她 而且绿毛不想跟棕毛组乐队”
+
+看过mygo的话这一段则是“睦为了不让祥子坏掉 选择和祥子组乐队 而不知实情的soyo不理解睦的做法 所以跑去压力睦”
+
+诚然看过mygo能理解更外信息 但你真的没看过mygo 对核心剧情的理解也不有太大偏差 
+
+请不要随便质疑访谈 除非你自认为比制作组懂
+
+
+*****
+
+####  一心而用  
+##### 9710#       发表于 2025-1-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219501&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-19 10:40</a>
+又在说不看mygo也能看mujica，这样说的人恰恰都是看过mygo的，通过mygo喜欢上鸡团的，对没看过的人就不要说 ...</blockquote>
+没看过mygo的应该会这么问才对。
+<img src="https://p.sda1.dev/21/c7ef7a4f030cd1506589407262be5d5b/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 灼眼的夏娜酱| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  南宮凝香  
+##### 9711#       发表于 2025-1-19 11:04
+
+<blockquote>御幸一也 发表于 2025-1-19 10:51
+狗團？CCC吧，而且這又是經典的CCC排擠立希</blockquote>
+立希一向是無所謂的
+
+*****
+
+####  黑夜落叶秋天  
+##### 9712#       发表于 2025-1-19 11:04
+
+指不定后面mujica剧情展现出角色的另一面后 一堆人用脑补出来的角色形象喷官方形象不合理
+
+简单来说就是二创＞一创 了
+
+*****
+
+####  天空塔书记官  
+##### 9713#       发表于 2025-1-19 11:04
+
+无论怎样迷子和A团就是无法被切割的，讲A团就必然会讲到迷子，迷子也是同理，因为她们的人生是重叠在一起的，双胞胎即使差异再大相隔再远，两者之间的血缘联系也无法被否认和抹消的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

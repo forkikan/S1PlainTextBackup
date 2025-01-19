@@ -2190,3 +2190,19 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 第3话 83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
 <img src="https://p.sda1.dev/21/823dc179a2c5db66a9adc1393a8e1176/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 213#       发表于 2025-1-19 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219505&amp;ptid=2242398" target="_blank">一心而用 发表于 2025-1-19 10:41</a>
+前三话好评率对比
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人</blockquote>
+事实证明还是嗜血长颈鹿比较多。
+
+就看看后面能不能把钢丝走好了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
