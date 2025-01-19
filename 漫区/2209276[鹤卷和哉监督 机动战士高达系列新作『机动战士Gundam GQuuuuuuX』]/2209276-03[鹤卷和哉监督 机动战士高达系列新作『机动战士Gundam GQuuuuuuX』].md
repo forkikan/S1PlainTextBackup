@@ -14403,3 +14403,28 @@ pjsk商法很逆天的，要想领全奖励得看26遍电影/买26张票
 
 顺便我的观感也没别的遗老那样开香槟，毕竟原创动画还得看后续发展，单拎0085部分出来我可能还真没兴趣追下去。
 
+
+*****
+
+####  十万年魂环  
+##### 4393#       发表于 2025-1-19 14:59
+
+不行，就再请福田再运神功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  井下敏树  
+##### 4394#       发表于 2025-1-19 15:04
+
+pjsk这么牛逼吗<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  Gysumitka  
+##### 4395#       发表于 2025-1-19 15:05
+
+pjsk有特典和游戏内限定，年轻人是拉住了
+
