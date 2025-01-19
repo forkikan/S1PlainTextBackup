@@ -12327,3 +12327,14 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 
 重看了一下，藏手机短信有点真，后续是祥子愣了一下然后露出惊讶的表情，感觉不像是因为soyo那条消息。
 
+
+*****
+
+####  新HGCG  
+##### 9933#       发表于 2025-1-19 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224580&amp;ptid=2208921" target="_blank">CCCTHUN 发表于 2025-1-19 22:15</a>
+
+重看了一下，藏手机短信有点真，后续是祥子愣了一下然后露出惊讶的表情，感觉不像是因为soyo那条消息。 ...</blockquote>
+哪个藏手机短信？
+

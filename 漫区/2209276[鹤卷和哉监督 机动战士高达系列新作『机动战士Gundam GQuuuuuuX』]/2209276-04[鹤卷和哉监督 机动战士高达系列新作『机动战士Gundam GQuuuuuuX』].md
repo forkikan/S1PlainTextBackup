@@ -494,3 +494,13 @@ OP完全不行，比舞冰那首差远了
 
 律师这曲子副歌还挺不错的，当时PV听的只感觉乱七八糟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 4491#       发表于 2025-1-19 22:20
+
+话说回来如果后面要写校园生活的话，牢修这个进不去女校的不会要在下水道睡两集啊(顺带一提牢修的背心我看剧透可太激进了)<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
