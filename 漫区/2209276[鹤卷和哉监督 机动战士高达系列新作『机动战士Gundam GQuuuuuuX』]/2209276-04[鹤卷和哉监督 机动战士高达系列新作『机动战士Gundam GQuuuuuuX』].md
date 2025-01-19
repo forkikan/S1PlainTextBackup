@@ -247,3 +247,45 @@ https://x.com/Ballardiae1007/status/1880317170040885570?s=19
 
 怎么没有经典的在5ch探风评环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 4465#       发表于 2025-1-19 20:19
+
+5ch来回就那几个话题
+
+*****
+
+####  kongxian  
+##### 4466#       发表于 2025-1-19 20:19
+
+0085部分现在有什么信息吗，怎么在讨论胸部
+
+*****
+
+####  cxasuka  
+##### 4467#       发表于 2025-1-19 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223555&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-19 20:06</a>
+https://x.com/Ballardiae1007/status/1880317170040885570?s=19</blockquote>
+年下，巨乳，哈罗，阿姆罗，确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AEnemy  
+##### 4468#       发表于 2025-1-19 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223435&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-19 19:54</a>
+
+看着像抱憾终身文学 你这砸的球是不是实心带火药的（</blockquote>
+OP和插曲的歌词看下来好像都是喵安→麻球<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4469#       发表于 2025-1-19 20:28
+
+感觉最后不会是he
+

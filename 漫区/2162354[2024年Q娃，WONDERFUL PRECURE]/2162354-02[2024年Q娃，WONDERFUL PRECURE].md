@@ -241,3 +241,21 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 看下来汪Q类似热带，注重单集趣味性。主线命题太大，无解的问题给了个童话般的收尾，还是典型的日式洗白。天空中后期主要是和艾尔酱的过家家剧情太多，反派打卡式出场，造成记忆点不足。
 
+
+*****
+
+####  codezwei  
+##### 2739#       发表于 2025-1-19 20:20
+
+不是很懂那些追着作品黑的，能黑一年这怨念是有多大啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+没看过Q娃系列的 这部我第一次看，虽然剧情是有些缺点，但可圈可点的也不少啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 2740#       发表于 2025-1-19 20:25
+
+也差不多该盖棺定论了，我认为汪q的单元剧水平不低，但不能连起来看，一连起来就出事，真的很难理解为什么在日曜枠干了这么多年的成田直到现在都做不好年番系构，宠物的点子很好，但全被这个自以为是的不许打架给毁了，好在高桥p明年终于不再祸祸这边了，总体而言是优点和缺点都非常明显的一年
+
