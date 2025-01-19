@@ -208,3 +208,42 @@ https://x.com/byte0713/status/1880904820112138523
 
 https://x.com/Ballardiae1007/status/1880317170040885570?s=19
 
+
+*****
+
+####  Toby_dak  
+##### 4460#       发表于 2025-1-19 20:12
+
+3762楼我就说了，麻球穿校服时候是运动内衣，大概是没塑形效果没挤起来。而驾驶服由于要贴身所以显大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  tomzach  
+##### 4461#       发表于 2025-1-19 20:13
+
+有意思，昨天晚上听的时候还觉得这次的op有点太吵了差点意思，今天在金拱门里听的时候一下子感觉好多了，有点申必
+
+*****
+
+####  马桶3  
+##### 4462#       发表于 2025-1-19 20:13
+
+这个预告剧场版给我的感觉，有点像水魔第0话，上来就牛逼晚了，告诉你大的要来了，然后正片全程过家家无病呻吟
+
+*****
+
+####  岸浪白野  
+##### 4463#       发表于 2025-1-19 20:16
+
+上上落落
+<img src="https://p.sda1.dev/21/0a36c3a1ad9547938a555df87131c61b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 4464#       发表于 2025-1-19 20:18
+
+怎么没有经典的在5ch探风评环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

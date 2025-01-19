@@ -11916,3 +11916,41 @@ Plateau人
 说来有点缺德，我一想到初华蹲完草丛后还要淋着雨比赛跑赶在大祥之前回到家就好笑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大祥老师不得就近找个厕所补个妆再回家？
 
+
+*****
+
+####  akiomn  
+##### 9897#       发表于 2025-1-19 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧有人挖出来第一集还有藏的东西了
+第一集14：45和15：05
+注意听手机震动声，然后对比下两处手机上短信画面，有东西还在藏着
+
+
+*****
+
+####  江口夕  
+##### 9898#       发表于 2025-1-19 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223443&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-19 19:55</a>
+莫提斯曾经以某种“姐姐”的形象出现过，甚至祥子的行为举止可能都是模仿着木头学来的，木头选择接受自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想的是不是太多了。mortis就是单纯的身体保护机制。所谓的讨厌祥子就是此时不这么做就崩溃了。精神紧绷的时候就会无意识去伤害最亲近的人。
+就像你去帮别人，也可以说是自我满足，可以说反而是自私。这时候你自己怎么想才是最重要的。再举个例子，你去吃炸鸡便秘了，所以不吃远离最好。不代表炸鸡不好吃，你不喜欢。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 9899#       发表于 2025-1-19 20:16
+
+ 本帖最后由 天空塔书记官 于 2025-1-19 20:18 编辑 
+
+莫提斯本质是塑造一个虚假的自我来消除木头使用天赋演技时所带来的自我厌恶和心理负担，是一种心理缓冲和自我保护的催眠机制
+
+莫提斯只是一层可以随时穿戴的盔甲，而不是另一个睦的人格，睦从始至终只有一个
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
