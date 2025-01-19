@@ -14655,3 +14655,24 @@ ps 主题 ...</blockquote>
 
 说起来pv喵安那段脸红到底是红给谁看的
 
+
+*****
+
+####  gamedreamer  
+##### 4421#       发表于 2025-1-19 17:28
+
+话说回来，目前透露的信息来看，老太婆认为所罗门的精神感应框架暴走可能是沙仑的玫瑰引起的。
+目前来看沙仑的玫瑰指向的可能是玛秋。
+而修斯照目前的假药猜测可能是所罗门事故中以某种方式被甩到这个宇宙的
+这算不算也是一种我是因为你的原因才诞生在这个世界上.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RE㐅ia  
+##### 4422#       发表于 2025-1-19 17:36
+
+原来是巨乳（
+
