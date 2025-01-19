@@ -2087,3 +2087,16 @@ MyGO连Soyo这样严重的负面特质都包容了，能包容到这个地步，
 
 —— 来自 OnePlus PJD110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Victorino  
+##### 204#       发表于 2025-1-19 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218904&amp;ptid=2242398" target="_blank">岬开斗 发表于 2025-1-19 08:08</a>
+
+现在风向已经是洗喵了，完全忘了摘面具才是导致木子米爆炸的根源。
+
+你说“网红为什么要懂明星子女的苦衷” ...</blockquote>
+你这个逻辑很像是「因为可能有小孩摔倒，所以学校永远不能拖地」
+
