@@ -11291,3 +11291,28 @@ https://ngabbs.com/read.php?tid=43062204
 因为不止s1百综的啊，虽然人家确实抽象，但是也不都是s1百综的锅吧，有个汇总确实好些 ...</blockquote>
 [https://bbs.saraba1st.com/2b/for ... ;page=5#pid67099661](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2236454&amp;page=5#pid67099661)
 
+
+*****
+
+####  Renes  
+##### 9842#       发表于 2025-1-19 15:28
+
+ 本帖最后由 Renes 于 2025-1-19 15:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221674&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-19 15:23</a>
+
+我大概理解你的思路方向了，喵自己眼中是自取大饼我没问题的。
+
+你这就像是在质疑一个出身贫寒的人为什么 ...</blockquote>
+比方只是个比方，但私交和公众关系确实差别很大，私交的情况下，喵梦这个人是没有价值的，她的价值全在母鸡卡这个面具上，大家私下玩是一回事，当平台上节目是另一回事。当然你说喵梦菜也行，那她就是菜了，所以才指望提现也符合逻辑。但这个说法就和祥子不是高情商人际大师，所以鸡团炸了一样属于没什么讨论空间的东西。
+
+另外祥子那个话术我觉得说是画饼没毛病，那些话不是一句我什么都没许诺过啊就打哈哈过去的，那就真是诈骗了，现实很多诈骗案都是类似话术。
+
+*****
+
+####  阿兹尔  
+##### 9843#       发表于 2025-1-19 15:28
+
+<blockquote>木板春香 发表于 2025-1-19 15:27
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2236454&amp;page=5#pid67099661</blockquote>
+里面还有小红书的，有些人真的是这样想的，不能怪祥子，有些粉丝上头了而已
+
