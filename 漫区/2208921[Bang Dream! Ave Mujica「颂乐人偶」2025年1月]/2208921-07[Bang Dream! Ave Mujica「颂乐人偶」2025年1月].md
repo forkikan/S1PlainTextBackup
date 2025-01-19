@@ -11781,3 +11781,55 @@ mygo播出之后的第一张mujica视觉图里祥子确实很大，毕竟她一�
 
 实际上，母鸡卡之于祥子就是地下练习室之于木头，最后的安全屋，最后的心理防线
 
+
+*****
+
+####  IWS2000  
+##### 9888#       发表于 2025-1-19 19:08
+
+<img src="https://p.sda1.dev/21/419eabdfaf73b20e5e94c930074a4bbb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/96e075172c3739719e805b43a1ebb86d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 9889#       发表于 2025-1-19 19:12
+
+Gigguk 看 MyGO - 第八集惊世一跪
+[https://www.bilibili.com/video/BV1Abwze5EgJ/](https://www.bilibili.com/video/BV1Abwze5EgJ/)
+ <blockquote>星之欠片
+
+ 前线战报 已经看完13话在发表获奖感言了
+
+饕餮yUMA
+
+ 他评价如何？
+
+星之欠片
+
+ 回复 @饕餮yUMA :很高，第10集看得他魂都飞了，还感谢了武士道让他知道这部番。下周会看mujica，貌似后续还打算看看邦邦的其他系列
+
+passerbyB
+
+ 回复 @貓貓喵喵喵喵 :但是和之前的估计一样，扭曲向女高drama在他这里的确不加分，能和gbc一战靠的还是第十话的live调度
+
+Plateau人
+
+ 在看，gigguk果然对第十集反映很好，说是他看过的乐队演出前5（动画里的吧，应该）。他目前是立希厨w
+
+Plateau人
+
+ 刚看完13话，他故事的有些细节没有get到，但总体还是挺喜欢的，尤其是第十集。他对音乐演出都赞不绝口。他主要很喜欢狗的音乐风格（诗朗诵转唱），鸡最后的演出也很喜欢（特别是茜的鼓）。
+
+传奇键盘手智
+
+ 最后总结：gbc的3d更好，但是他更喜欢go的情节和表演
+
+传奇键盘手智
+
+ 不过也在一直端水，说mygo和gbc是不分伯仲的优秀
+
+鲁鲁修Vi布尼塔尼亚
+
+ 弹幕还有问gigguk和孤独摇滚比如何，他说孤独摇滚更偏喜剧风格，跟mygo和gbc不是一个类型</blockquote>
+

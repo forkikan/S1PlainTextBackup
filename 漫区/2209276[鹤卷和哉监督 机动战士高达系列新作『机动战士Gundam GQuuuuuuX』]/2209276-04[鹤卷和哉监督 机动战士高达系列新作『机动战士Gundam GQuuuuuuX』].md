@@ -75,3 +75,45 @@
 
 好神秘的女人<img src="https://static.saraba1st.com/image/smiley/carton2017/396.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  gamedreamer  
+##### 4448#       发表于 2025-1-19 19:08
+
+所以麻球的衣服是有多宽松才能把这巨乳藏起来呀<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  王留美  
+##### 4449#       发表于 2025-1-19 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221910&amp;ptid=2209276" target="_blank">drrrrrrrr 发表于 2025-1-19 16:00</a>
+ 去看完了，比预期好很多。不敢想要是一点剧透都没看，看完得多震惊  — from S1 Next Goose v3.3.96 ...</blockquote>
+所以你看这个藏的策略怎么算
+
+我前面也说过很多人上映前在嘲有什么好藏的
+结果看完片就说藏是有道理的，就该藏，不能不藏
+
+那到底是要藏还是不要藏？
+
+*****
+
+####  桜庭ななみ  
+##### 4450#       发表于 2025-1-19 19:10
+
+拉拉是能成为鸭子母亲的女人，所以红高达里有拉拉的S2机关，关键时刻触发了奇迹，你们说这样河狸不河狸
+
+*****
+
+####  gamedreamer  
+##### 4451#       发表于 2025-1-19 19:12
+
+藏肯定还是要藏的，但你宣发不能这么宣发
+现在gq这个宣发就突出一个，我这么写了，你们来不来看吧？
+只能说现在这个票房是他应得的。<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
