@@ -667,3 +667,77 @@ https://bbs.nga.cn/read.php?tid=43067396 nga佬写的观后感 蛮有意思的�
 冈田今天配信里锐评了
 <img src="https://p.sda1.dev/21/e33fd8878d856f287fc10b88b8717ba4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 4509#       发表于 2025-1-19 23:29
+
+岛本和彦的观后感来了
+
+<img src="https://img.saraba1st.com/forum/202501/19/232923l35ovo583xnuwu32.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 23:29 上传
+
+真的遗老都是很喜欢的，唧唧歪歪的我看是姨姥吧
+
+*****
+
+####  蕾洁之风  
+##### 4510#       发表于 2025-1-19 23:30
+
+不过riseheavy是什么情况，是初期稿还是后续机
+
+*****
+
+####  王留美  
+##### 4511#       发表于 2025-1-19 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225137&amp;ptid=2209276" target="_blank">Libartas 发表于 2025-1-19 23:19</a>
+
+冈田今天配信里锐评了</blockquote>
+大好评不是吗？
+
+*****
+
+####  刺客ares  
+##### 4512#       发表于 2025-1-19 23:32
+
+<blockquote>蕾洁之风 发表于 2025-1-19 23:30
+不过riseheavy是什么情况，是初期稿还是后续机</blockquote>
+应该是初期企划时候定的六台高达中的二号吧
+
+那个设定现在应该已经废弃了
+
+*****
+
+####  duck_feather  
+##### 4513#       发表于 2025-1-19 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224425&amp;ptid=2209276" target="_blank">plok201 发表于 2025-1-19 21:54</a>
+
+感觉和马娘剧场版差不多，你说差吗，那比他差的大亏电影可太多了，要说好吗，那开那么多馆的时候，心理预期 ...</blockquote>
+毕竟是东宝配给了馆数少不到哪去，而且这还是纯TV先行拿来当剧场版卖而且卖的和正经剧场版也差不多，说实话已经够赚的了。最关键是宣发及其紧凑，解禁到上映总共一个半月，线下宣发只有三礼拜，估计没花多少钱。pjsk才是痛失票房冠军，半年之前就知道要上剧场版了，这期间光预热上映搞了三轮，特典也是给六个还是碟片，真的是下足功夫
+
+*****
+
+####  RE㐅ia  
+##### 4514#       发表于 2025-1-19 23:34
+
+“
+
+<img src="https://img.saraba1st.com/forum/202501/19/233446q5ffv5vcrhojfbeb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>59A47B24-105B-4BCD-BAA0-FF82FF774A86.jpeg</strong> (215.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-19 23:34 上传
+
+色诱男生”
+
