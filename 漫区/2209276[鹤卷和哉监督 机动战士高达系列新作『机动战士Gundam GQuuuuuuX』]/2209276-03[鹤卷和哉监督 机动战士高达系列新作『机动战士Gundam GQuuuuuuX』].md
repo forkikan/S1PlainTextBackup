@@ -14056,3 +14056,42 @@ pjsk商法很逆天的，要想领全奖励得看26遍电影/买26张票
 
 你高票房到结束，能做个梯形就不会给清算了，当然可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 4356#       发表于 2025-1-19 13:40
+
+赶紧上限定胶吧，代孙
+
+*****
+
+####  古怪山庄士大夫  
+##### 4357#       发表于 2025-1-19 13:42
+
+3月再版都取消了，后面几个月像rg闪光都延期了，新工厂还没投入使用，代没有产能做限定胶了
+
+
+*****
+
+####  saico  
+##### 4358#       发表于 2025-1-19 13:42
+
+所以什么时候出BD，想看
+
+*****
+
+####  Gysumitka  
+##### 4359#       发表于 2025-1-19 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220928&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-1-19 13:42</a>
+3月再版都取消了，后面几个月像rg闪光都延期了，新工厂还没投入使用，代没有产能做限定胶了 ...</blockquote>
+这电影靠塑料片能引什么观众<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 4360#       发表于 2025-1-19 13:47
+
+要么就做点剧透内容，放前十分钟
+

@@ -10621,3 +10621,18 @@ byd这俩里面的圣杯和qb还都是扭曲愿望，绝了
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  江口夕  
+##### 9791#       发表于 2025-1-19 13:42
+
+ 本帖最后由 江口夕 于 2025-1-19 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220868&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-19 13:35</a>
+天都晴了还撑什么伞
+伞不是应该用来保护祥子的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mortis不是伞也扔了，吉他也丢了。
+哪怕从2.5企划来讲其实已经剧透了，mortis就是要舍弃的东西，是反派。所以不存在什么融合。睦最后也应该还是木头，顶多再开朗一点
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
