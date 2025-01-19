@@ -2275,3 +2275,11 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 后面反应过来，这原来就是和隔壁安一样有伟大性格的圣爱音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinoverse  
+##### 219#       发表于 2025-1-19 14:25
+
+因为本质是第14话而不是第1话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

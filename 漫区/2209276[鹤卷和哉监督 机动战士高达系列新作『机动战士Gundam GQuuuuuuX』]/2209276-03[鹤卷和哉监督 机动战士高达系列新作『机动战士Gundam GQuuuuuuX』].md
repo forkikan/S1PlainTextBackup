@@ -14183,3 +14183,111 @@ pjsk商法很逆天的，要想领全奖励得看26遍电影/买26张票
 不懂为啥说遗老不喜欢 至少这个电影是喜欢的</blockquote>
 遗老多半喜欢，但这个宣传手法实在不敢苟同。
 
+
+*****
+
+####  猪突猛进R  
+##### 4370#       发表于 2025-1-19 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221181&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-19 14:16</a>
+
+历史经验就是不要帮万代担心他赚不到钱
+
+—— 来自 S1Fun</blockquote>
+其实万代赚钱赔钱没人在乎的，大家更在乎的是日后的谈资：
+
+2021年 哈萨维 210馆，周五，1亿9
+
+2024年 种自 353馆，周五，4亿
+
+2025年 GQuuuuuuX，426馆，周五，1亿8
+
+对比一看，喜欢新高达的，是不是天生矮人家一头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸波白野扎比子  
+##### 4371#       发表于 2025-1-19 14:22
+
+不是不重要，作为先导片这票房不低了，推子票房多少来着
+
+*****
+
+####  岸波白野扎比子  
+##### 4372#       发表于 2025-1-19 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221202&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-19 14:20</a>
+
+其实万代赚钱赔钱没人在乎的，大家更在乎的是日后的谈资：
+
+2021年 哈萨维 210馆，周五，1亿9</blockquote>
+还有多安的岛呢
+
+*****
+
+####  PascalLefèvre  
+##### 4373#       发表于 2025-1-19 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221202&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-19 14:20</a>
+其实万代赚钱赔钱没人在乎的，大家更在乎的是日后的谈资：
+
+2021年 哈萨维 210馆，周五，1亿9</blockquote>
+真有人拿这个东西和人家汴京吗，greco三千万也不妨碍富野真爱粉拿着到处吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 4374#       发表于 2025-1-19 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221217&amp;ptid=2209276" target="_blank">岸波白野扎比子 发表于 2025-1-19 14:23</a>
+
+还有多安的岛呢</blockquote>
+那个有点太“硬”了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+说实话不好看，硬把TV的一集注水成那样。
+
+*****
+
+####  岸波白野扎比子  
+##### 4375#       发表于 2025-1-19 14:25
+
+话说推子能火也是因为他是日本年轻人爱看的正剧吗？
+
+*****
+
+####  0aleph37  
+##### 4376#       发表于 2025-1-19 14:25
+
+又没有控制变量摆两个数据就能比对吗，也就拉踩的时候有用
+
+*****
+
+####  gamedreamer  
+##### 4377#       发表于 2025-1-19 14:25
+
+那你的最后还得去清算代➗的宣传流程
+闪哈和种子怎么宣传流程gq什么宣传流程……开服前发个物料都恨不得把重要东西藏裤兜里的离谱宣发，你这让大家怎么给你冲票房<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pu  
+##### 4378#       发表于 2025-1-19 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221185&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-19 14:17</a>
+
+遗老多半喜欢，但这个宣传手法实在不敢苟同。</blockquote>
+都喜欢疯了（身边统计学 都是40上下的遗老）天天在那敲碗 没得看要死了 
+
+宣传其实对遗老来说不是很所谓 本来都是看到TV人设就兴趣不大 TV看下不好就pass了  电影版画面一出来哪有不湿的  全老音效老配乐的夏亚开着高达站立在大地上！
+
+事实证明
+
+庵野秀明才是纯洁心灵：逐梦演艺圈  
+
+他小时候喜欢的他每个都要拍一遍
+
+喜欢哪个女人就叫过来拍或者配音
+

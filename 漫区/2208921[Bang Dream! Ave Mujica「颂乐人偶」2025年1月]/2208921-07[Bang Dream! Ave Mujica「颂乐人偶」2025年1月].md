@@ -10836,3 +10836,70 @@ WSD真TM铁菜逼啊 花钱请人看动画资源能少给一集的啊
 
 所以跟父母的职业沾一点边都不行
 
+
+*****
+
+####  akiomn  
+##### 9809#       发表于 2025-1-19 14:18
+
+ 本帖最后由 akiomn 于 2025-1-19 14:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221164&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-19 14:14</a>
+
+突然好奇睦头为什么不喜欢表演，演技这东西又不能遗传，你表演的好也是你自己实力的一部分，但是就很抗拒。 ...</blockquote>
+
+有天赋不等于本人喜欢去做。比如说别人觉得我有跑步天赋，但我不喜欢去做，我嫌弃太累了
+
+睦的情况更复杂，因为还和父母职业沾边了
+
+*****
+
+####  IWS2000  
+##### 9810#       发表于 2025-1-19 14:19
+
+<img src="https://p.sda1.dev/21/eeca5cf43d124c876e1de7c71fcb7ccc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 9811#       发表于 2025-1-19 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221164&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-19 14:14</a>
+
+突然好奇睦头为什么不喜欢表演，演技这东西又不能遗传，你表演的好也是你自己实力的一部分，但是就很抗拒。 ...</blockquote>
+有一说一目前没有说睦不喜欢表演，睦戴面具时表演很正常的，睦现在这么抗拒的原因就是如立希说的不想作为星二代的身份被说三道四
+
+
+*****
+
+####  御幸一也  
+##### 9812#       发表于 2025-1-19 14:25
+
+有天賦還不喜歡，裡面的人就有一個例子，高尾就是有天賦但是不喜歡彈古典鋼琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 9813#       发表于 2025-1-19 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221170&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-19 14:15</a>
+
+祥子和喵梦那段对话说的很隐晦的你不能只看字面意思，祥子直接说我带你挣人气和赚大钱就俗了，反而显得她 ...</blockquote>
+是的，这是祥子的商业谈判技巧使用
+
+但祥子的确没有许诺给喵流量和把睦卖给喵不是吗，只许诺了最快出道和初华与睦在队伍了
+
+所谓画饼还是要给许诺也就是饼的，只是不打算真给而已所以只是画，没有许诺的存在就不叫画饼
+
+*****
+
+####  天空塔书记官  
+##### 9814#       发表于 2025-1-19 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221178&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-19 14:16</a>
+如果睦和祥子是创作者，为什么是祥子母亲的遗物？
+
+如果睦、祥子、瑞穗都是创作者，合着是三个中二病？ ...</blockquote>
+因为童话就是大人讲给孩子的故事
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
