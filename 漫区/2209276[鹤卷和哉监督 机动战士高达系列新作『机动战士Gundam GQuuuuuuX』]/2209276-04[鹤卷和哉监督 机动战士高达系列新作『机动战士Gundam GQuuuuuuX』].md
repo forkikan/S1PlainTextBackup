@@ -289,3 +289,29 @@ OP和插曲的歌词看下来好像都是喵安→麻球<img src="https://static
 
 感觉最后不会是he
 
+
+*****
+
+####  jojonathan  
+##### 4470#       发表于 2025-1-19 20:28
+
+结局是第二次冲击把麻球也送走了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yevvet  
+##### 4471#       发表于 2025-1-19 20:33
+
+名冢太太的基西莉亚和组长的马克贝其实配的方向和味道都挺对的。但新佑树的夏亚感觉不对味啊，不是说声线有问题，而是演技方面是不是配的太冷静了，没有一点算计味。跟他这种同类型的声音的声优比如松风雅也，就是可以配出算计味的。去搜新佑树的声线全是都是热血笨蛋类型和南瓜头那种疯子小混混类型的
+
+*****
+
+####  yxydd88  
+##### 4472#       发表于 2025-1-19 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222664&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-19 17:44</a>
+
+环s1小红书差评（</blockquote>
+大魔有出现的，在红高达第一次出击去所罗门大开杀戒的时候作为红高达的僚机出场
+

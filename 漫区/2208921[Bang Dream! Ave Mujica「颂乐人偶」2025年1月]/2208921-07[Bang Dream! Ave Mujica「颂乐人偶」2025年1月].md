@@ -11954,3 +11954,29 @@ Plateau人
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  MagicGiraffe  
+##### 9900#       发表于 2025-1-19 20:29
+
+总不能真搞叙诡吧，野心也太大了点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  迷路的石头  
+##### 9901#       发表于 2025-1-19 20:29
+
+<blockquote>玖羽 发表于 2025-1-19 19:12
+Gigguk 看 MyGO - 第八集惊世一跪
+
+https://www.bilibili.com/video/BV1Abwze5EgJ/</blockquote>
+没人问go和mother f**king tea的比较吗？
+
+*****
+
+####  thisisaspider  
+##### 9902#       发表于 2025-1-19 20:31
+
+所以全员人偶第二人格的假药可以在楼里聊吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -2303,3 +2303,25 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 越细想越不对，喵和祥子之间的矛盾不是纯纯嗯造吗。为了撕逼而撕逼是一个极其危险的信号。
 
+
+*****
+
+####  YF31  
+##### 222#       发表于 2025-1-19 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219225&amp;ptid=2242398" target="_blank">PascalLefèvre 发表于 2025-1-19 09:53</a>
+
+你们在邦邦里套现实商业逻辑车角色，讨论谁的路线更优 和车祥子没苦硬吃大小姐闹麻了有什么区别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不是既能用商业逻辑车祥嗨最速武道馆全是赞助商大手，又蠢又糯开不掉大喵老师，一边又能车大小姐没苦硬吃闹麻了？
+
+*****
+
+####  PascalLefèvre  
+##### 223#       发表于 2025-1-19 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223796&amp;ptid=2242398" target="_blank">YF31 发表于 2025-1-19 20:34</a>
+不是既能用商业逻辑车祥嗨最速武道馆全是赞助商大手，又蠢又糯开不掉大喵老师，一边又能车大小姐没苦硬吃 ...</blockquote>
+所以没区别不是吗，没懂你想说什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
