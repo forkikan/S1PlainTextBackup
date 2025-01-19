@@ -1939,3 +1939,13 @@ Nintendo Switch Forever 简称NSWF
 
 硬件上没什么创新意料之中，性能能让老ns的游戏都按1080p60的规格运行就心满意足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 216#       发表于 2025-1-20 01:27
+
+ 本帖最后由 ddwhzh 于 2025-1-20 01:28 编辑 
+
+所以可能存在ns2和ns2Pro一起发售可能吗，目前这个变的更大的升级以及更多插拔接口怎么看都是负面的，除非说性能提升巨大或者三防有提升，要不不纯粹更重更容易进灰坏吗。
+
