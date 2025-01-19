@@ -545,3 +545,80 @@ OP完全不行，比舞冰那首差远了
 
 现在剖析这个还是有点早吧，等TV再看看
 
+
+*****
+
+####  卑弥呼yamato  
+##### 4496#       发表于 2025-1-19 22:55
+
+已经确定TV是校园剧了吗
+
+*****
+
+####  uponutopia  
+##### 4497#       发表于 2025-1-19 22:56
+
+这帮老登现在还写得了少年心境吗，不过好像也不用写，时代变了，贴上网红哥哥和管人比那些文绉绉的玩意儿有效率多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 4498#       发表于 2025-1-19 22:57
+
+说到管人，另外两个插曲都解禁了管人曲还没有吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸浪白野  
+##### 4499#       发表于 2025-1-19 22:58
+
+[X 上的 貧弱眼鏡：“ジークアクス見て衝動的に描いたマチュ [url]https://t.co/MPJzJWbyP6](https://x.com/omegaglass/status/1880935054475747497)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/19/225750san4535jlppff2k3.gif" referrerpolicy="no-referrer">
+
+<strong>_9MiP3EdkSiOELuP 00_00_00-00_00_30.gif</strong> (3.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 22:57 上传
+
+*****
+
+####  Gysumitka  
+##### 4500#       发表于 2025-1-19 22:59
+
+Z世代主角设计好了，对z时代观众好像吸引力有限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 4501#       发表于 2025-1-19 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224812&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-19 23:42</a>
+
+https://bbs.nga.cn/read.php?tid=43067396 nga佬写的观后感 蛮有意思的。“所以在我看来，卡缪反映了经历 ...</blockquote>
+才40分钟连主线都不清楚的时候就写下长篇大论，跟以前靠丁点东西写八股文的一样。
+
+看着吧，只要以后剧情发展没有按他所谓解读走的话，首先出来清算的肯定是他。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4502#       发表于 2025-1-19 23:02
+
+我怎么觉得现在国内在批斗庵野的人有一个很大的盲点，至少在现在这个时间点，庵野那40分钟对于票房的影响可以说微乎其微的，当然你可以说把潮哥辣妹骗进去看40分钟0079高清重制版一脸懵逼是庵野全责，但是能被骗到的人首先要能够进去看，117之前谁知道这片子开头放了40分钟0079高清重制版？甚至哪怕是到了119的今天网络上也还是没有解禁剧透的状态，反而大部分观众的风评是好评和推荐，对于潮哥辣妹这种看片看个爽的人群来说在他们进电影院之前这40分钟0079高清重制版等于不存在，那么低票房的问题在哪里？我只能认为是敢达的IP力不足了，或者大机器人片没人看了。
+
+不要说种自，种自和闪哈一样是自带核心客户群的，拿来和新作做比较不是很公平
+
+*****
+
+####  岸浪白野  
+##### 4503#       发表于 2025-1-19 23:02
+
+管人的歌没提过什么时候出的消息
+

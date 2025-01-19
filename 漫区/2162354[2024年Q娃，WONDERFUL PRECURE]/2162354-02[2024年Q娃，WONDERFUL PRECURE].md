@@ -275,3 +275,15 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 展望你q吧，高桥麻树终于滚蛋了，以后别来了。
 
+
+*****
+
+####  starring  
+##### 2742#       发表于 2025-1-19 22:55
+
+又是那样主线冲突高举轻放，后面想把矛盾转到斯巴鲁身上也不是不行，但是说得太迟斯巴鲁跟Q娃们没啥互动就被一通嘴炮说服自我和解，观感实在不太行。
+
+汪Q的日常回比去年好看太多，而且跟同学和路人的互动也多不像去年被局限在一栋房子里只有那几个角色互动。主线的发展跟去年比都是半斤八两，但至少汪Q的展示的三观还是正向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年最好看的还是猫组，人设优秀，剧情互动也有趣
+
