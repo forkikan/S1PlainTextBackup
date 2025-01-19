@@ -10426,3 +10426,96 @@ Soyo的心理基础是缺爱小女孩，对Soyo来说Crychic是缺失家庭的�
 重点是Soyo，如果对剧情有心理准备，知道要细看，只要有一定阅片量，很容易发现Soyo在前几集有一些不对劲 ...</blockquote>
 是的，起码会注意到素世的那双手一直不安的姿势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 9772#       发表于 2025-1-19 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220582&amp;ptid=2208921" target="_blank">loneyuki 发表于 2025-1-19 13:03</a>
+我到现在都搞不懂嬷和公都是什么东西，怎么这个现在满大街都是了</blockquote>
+嬷就是0，公是1
+
+*****
+
+####  小小雪空  
+##### 9773#       发表于 2025-1-19 13:06
+
+<blockquote>loneyuki 发表于 2025-1-19 13:03
+我到现在都搞不懂嬷和公都是什么东西，怎么这个现在满大街都是了</blockquote>
+XX嬷=认为XX为受的粉丝团体
+
+XX公=认为XX为攻的粉丝团体
+
+個人理解，可能不對
+
+*****
+
+####  純田まな  
+##### 9774#       发表于 2025-1-19 13:08
+
+最潮最in的测美铜仁女话术，你就学吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 9775#       发表于 2025-1-19 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">感谢解答， CP脑，令人畏惧
+
+*****
+
+####  玖羽  
+##### 9776#       发表于 2025-1-19 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220573&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-19 13:02</a>
+
+但是一开始核心人员要走人，后来来了爱音和猫猫，真玩复辟，到时候肯定要谁去当拉拉队队长 ...</blockquote>
+Soyo的惊世智慧很单纯，她以为祥子离开是因为她们做错了什么事得罪了祥子，只要跟祥子好好道歉，把自己放得很低，不管什么事都是我的错，祥子就能回来，睦自然也能回来
+
+爱音则是只要搞砸一次Live，就能顺理成章地赶走爱音，乐奈不用说，让她觉得无趣她就会自己走
+
+我不明白什么是拉拉队队长
+
+*****
+
+####  江口夕  
+##### 9777#       发表于 2025-1-19 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有mortis那些诱导的话也有很多错位，明明第一季做了很多睦主观想做的但是祥子不想的事。
+确实睦是为祥子着想是没错，但是和言听计从相去甚远。但是到mortis这里就变成“处处听祥子对方不领情”，去激睦。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  KLHgg  
+##### 9778#       发表于 2025-1-19 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220386&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-19 12:42</a>
+
+其实我觉得把鸡狗连贯起来看，是更可以理解祥子现在吃瘪的境地的。
+
+从go开局到soyo下跪，祥子不说人气是垫 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电竞里的冠军强度粉九成是转黑预备役吧
+
+
+*****
+
+####  08df1258c5ed098  
+##### 9779#       发表于 2025-1-19 13:13
+
+说到这，要是一个人没看过狗，不知道祥子给大喵画的大饼，那用恶贯满盈来形容都不为过。
+
+独立塑造团魂的第一步就是踢人才是
+
+*****
+
+####  aptx8285144  
+##### 9780#       发表于 2025-1-19 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220638&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-19 13:09</a>
+
+Soyo的惊世智慧很单纯，她以为祥子离开是因为她们做错了什么事得罪了祥子，只要跟祥子好好道歉，把自己放 ...</blockquote>
+拉拉队长只是我用的委婉说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2260,3 +2260,18 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 但是如果在MyGO之前的传统少女偶像番里放一个这种角色，观众多半是要骂的，加搞笑的心理活动也于事无补
 
+
+*****
+
+####  aptx8285144  
+##### 218#       发表于 2025-1-19 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220597&amp;ptid=2242398" target="_blank">玖羽 发表于 2025-1-19 13:04</a>
+
+你要看建立在什么基础上，都看完MyGO了自然会觉得爱音这点事不算什么
+
+但是如果在MyGO之前的传统少女偶像 ...</blockquote>
+我是来<strong>看什么是波涛汹涌的原创番</strong>的心态，结果发觉主视角比较多的那位竟然还挺人畜无害的（
+
+后面反应过来，这原来就是和隔壁安一样有伟大性格的圣爱音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
