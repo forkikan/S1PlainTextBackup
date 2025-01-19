@@ -14428,3 +14428,20 @@ pjsk这么牛逼吗<img src="https://static.saraba1st.com/image/smiley/carton201
 
 pjsk有特典和游戏内限定，年轻人是拉住了
 
+
+*****
+
+####  jojonathan  
+##### 4396#       发表于 2025-1-19 15:15
+
+高达的末日又要降临了吗<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 4397#       发表于 2025-1-19 15:16
+
+高达的末日不是每天都在降临吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
