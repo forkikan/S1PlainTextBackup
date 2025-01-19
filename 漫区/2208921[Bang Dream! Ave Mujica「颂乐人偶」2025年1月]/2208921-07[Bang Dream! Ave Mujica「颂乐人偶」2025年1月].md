@@ -10104,3 +10104,42 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 但是她能给的方式到头来也是路径依赖
 
+
+*****
+
+####  一心而用  
+##### 9742#       发表于 2025-1-19 12:16
+
+<img src="https://p.sda1.dev/21/c7a3b87ca35779fe367bbc88b9aa370a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/41439c29e6c6f909174e81bea1b96767/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/770a10923a757a4ac89972873f48edca/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 9743#       发表于 2025-1-19 12:17
+
+王国之泪是不是塞尔达，旷野之息是不是塞尔达，没玩过旷野之息能玩王国之泪吗，可以，但王国之泪能与旷野之息切割吗，不能
+
+类似的例子比比皆是，否定过去就是在否定现在，你以后想去火星，不代表你现在就不是一个地球人，这到底有什么好吵的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 9744#       发表于 2025-1-19 12:19
+
+解谜不是很多，睦怎么认识大祥的，小时候具体怎么样，现在还是模棱两可。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  灼眼的夏娜酱  
+##### 9745#       发表于 2025-1-19 12:20
+
+我是对mygo五人完全没感觉的一派，二刷都只看祥子出场片段的，但是没看mygo也不会喜欢上祥子，连基本的背景信息前因后果的都了解不全，不知道有什么可切的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
