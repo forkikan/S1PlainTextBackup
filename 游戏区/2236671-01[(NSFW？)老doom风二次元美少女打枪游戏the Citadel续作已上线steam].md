@@ -1879,3 +1879,22 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 挺好玩的 熬夜通关了顺便问一下有人知道画廊的第40号怎么收集吗？就差这一张，我看接在结局后面，本来以为 ...</blockquote>
 这游戏有第二结局吗，怎么触发?
 
+
+*****
+
+####  ParadiseMartyr  
+##### 164#         楼主| 发表于 2025-1-19 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218705&amp;ptid=2236671" target="_blank">Ivent 发表于 2025-1-19 05:12</a>
+挺好玩的 熬夜通关了顺便问一下有人知道画廊的第40号怎么收集吗？就差这一张，我看接在结局后面，本来以为 ...</blockquote>
+四十号是看credit表(名字就叫credit)。我倒是没有56号图，你咋解锁的，是打了结局二(人类合一复活神明)吗？
+
+*****
+
+####  ParadiseMartyr  
+##### 165#         楼主| 发表于 2025-1-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224467&amp;ptid=2236671" target="_blank">WillGoodman 发表于 2025-1-19 22:00</a>
+这游戏有第二结局吗，怎么触发?</blockquote>
+最后结尾可以选择炸了神明复活装置或者启动装置
+

@@ -12338,3 +12338,28 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 重看了一下，藏手机短信有点真，后续是祥子愣了一下然后露出惊讶的表情，感觉不像是因为soyo那条消息。 ...</blockquote>
 哪个藏手机短信？
 
+
+*****
+
+####  海底铁锚  
+##### 9934#       发表于 2025-1-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224300&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-19 21:35</a>
+前三集这几个神人相互坦白了能咋好啊。
+
+祥嗨：我要音乐性，组蒙面乐队积攒实绩。
+
+大喵老师：我管你这的那 ...</blockquote>
+大喵老师坦白了，这第一轮不公投出去真的神人了。留着过年吗？
+
+*****
+
+####  CCCTHUN  
+##### 9935#       发表于 2025-1-19 22:29
+
+ 本帖最后由 CCCTHUN 于 2025-1-19 22:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224639&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-19 22:22</a>
+
+哪个藏手机短信？</blockquote>
+楼上坛友说的那个，第一集15：05，祥子从警局接完牢爹出来那里，打开后看到的是soyo的旧消息。我还特地对比了一下和初华天台见面那里的闹钟铃声，声音是不一样的，所以也不是C团练习的定时闹钟。
+

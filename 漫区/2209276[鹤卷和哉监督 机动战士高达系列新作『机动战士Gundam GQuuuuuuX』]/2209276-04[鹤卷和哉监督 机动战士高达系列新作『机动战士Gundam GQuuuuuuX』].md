@@ -504,3 +504,19 @@ OP完全不行，比舞冰那首差远了
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  岸浪白野  
+##### 4492#       发表于 2025-1-19 22:30
+
+[X 上的 みかみ：“5倍のエネルギーゲインだった [url]https://t.co/kc7CtWxWcy](https://x.com/nemu_mohu/status/1880896507643359508)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/19/223002xx2dzgc17o3i2ngx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 22:30 上传
+
