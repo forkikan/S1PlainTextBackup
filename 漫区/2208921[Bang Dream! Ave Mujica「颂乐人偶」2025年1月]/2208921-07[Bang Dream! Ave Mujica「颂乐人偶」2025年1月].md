@@ -11414,3 +11414,37 @@ wsd网店发的而不是邦邦官推发的，说明应该是单纯的新周边�
 
 <strong>迄今为止的争论几乎都混淆了这两件事，可以说是鸡同鸭讲，所以争论不休。</strong>
 
+
+*****
+
+####  NODY  
+##### 9852#       发表于 2025-1-19 16:24
+
+单纯的新主题周边系列罢了，go之前卖过一堆，类似这些这样的
+
+<img src="https://img.saraba1st.com/forum/202501/19/162400spkcc94t2l59ll4j.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (221.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 16:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/162400dossgl4zzquioctk.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (90.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 16:24 上传
+
+*****
+
+####  江口夕  
+##### 9853#       发表于 2025-1-19 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说这么多，观众要的并不是大祥口头答应的，大祥答应大猫的就是商业乐队，但是大祥商业方针上有自己的追求就是这玩意一定要是乐队，大猫自己答应来当鼓手而不是什么事业伙伴，大猫全责是没毛病的。
+大猫想要更多。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
