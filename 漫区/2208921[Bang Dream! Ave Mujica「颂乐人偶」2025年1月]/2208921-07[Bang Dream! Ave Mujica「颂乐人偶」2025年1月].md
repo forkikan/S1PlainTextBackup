@@ -12373,3 +12373,14 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 
 iPhone13是侧面电源键指纹解锁的吧
 
+
+*****
+
+####  ddy2811  
+##### 9937#       发表于 2025-1-20 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224692&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-1-19 22:27</a>
+
+大喵老师坦白了，这第一轮不公投出去真的神人了。留着过年吗？</blockquote>
+但你得票得出去才是啊，第四集预告看着这帮人把祥子票出去的可能性都大点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

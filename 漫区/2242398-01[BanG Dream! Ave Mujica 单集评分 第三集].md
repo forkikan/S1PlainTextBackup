@@ -2403,3 +2403,15 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 喵梦的行为非常越界，并且并没有给心理活动(就算给了，也不太能让人信服)，同时也直接干碎了睦。
 
+
+*****
+
+####  Yinacona  
+##### 230#       发表于 2025-1-20 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225460&amp;ptid=2242398" target="_blank">ParadiseMartyr 发表于 2025-1-20 00:03</a>
+爱音的缺点，因为是第一人视角(展现了心理活动)，可以减轻一部分厌恶感。其次，她的缺点也都是无关紧要的 ...</blockquote>
+是这样的，第三集我很不满意的一点是第二集最后休息室时她注意到木头状态很差，最后木头崩溃坐下时惊讶特写，到第三集的解释竟然是发觉姐妹表演天赋是天生的，而不是去关心队友，感觉有些强行
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
