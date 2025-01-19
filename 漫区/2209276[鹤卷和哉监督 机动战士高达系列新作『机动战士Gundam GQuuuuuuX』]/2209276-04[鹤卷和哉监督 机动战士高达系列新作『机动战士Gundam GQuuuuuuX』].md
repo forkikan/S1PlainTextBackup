@@ -658,3 +658,12 @@ https://bbs.nga.cn/read.php?tid=43067396 nga佬写的观后感 蛮有意思的�
 
 左趣发癫真的是张嘴就是那股味，太伟大了DQN
 
+
+*****
+
+####  Libartas  
+##### 4508#       发表于 2025-1-19 23:19
+
+冈田今天配信里锐评了
+<img src="https://p.sda1.dev/21/e33fd8878d856f287fc10b88b8717ba4/image.jpg" referrerpolicy="no-referrer">
+

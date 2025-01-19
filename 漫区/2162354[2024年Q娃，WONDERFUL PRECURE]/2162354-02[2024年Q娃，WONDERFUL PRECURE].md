@@ -287,3 +287,21 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 今年最好看的还是猫组，人设优秀，剧情互动也有趣
 
+
+*****
+
+####  jaewoongh_  
+##### 2743#       发表于 2025-1-19 23:14
+
+<img src="https://img.saraba1st.com/forum/202501/19/231335misq2uu62b626cbq.png" referrerpolicy="no-referrer">
+
+<strong>61B9198B517D301F8A399107497200D0.png</strong> (30.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 23:13 上传
+
+高桥麻树：我个人一直为后半部分的剧情苦恼不已，总之满心都是不安，找了很多人商量。每次最艰难的时候都给予我帮助的上野ケン先生对我说 “因为你想表达的东西都传达出来了，所以没问题的”，真的救了我。
+
+我在会议室里独自放声大哭。第 49 集，真的非常感谢。
+
