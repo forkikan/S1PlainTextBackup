@@ -10357,3 +10357,72 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 邦邦世界那么温柔，问题不大，像那个赵露思，除了粉丝力挺，其他人的评价全是炒作闹麻了，她要是在邦邦世界那骂声几乎没有啊
 
+
+*****
+
+####  aptx8285144  
+##### 9765#       发表于 2025-1-19 12:57
+
+ 本帖最后由 aptx8285144 于 2025-1-19 13:00 编辑 
+
+其实关于go团的剧情，如果是追的人不好说，但是补的人对于go团剧情是变幻莫测是有心理准备情况下，是很容易第一个判断爱音是这群人里面相对人畜无害的那一个（除非心理展示和搞笑演出都是故意欺诈），而c团就很难讲了，大祥虽然很菜但真得可能是个好人（破音），在往下最值得寄托似乎是海林这个自由球员<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 9766#       发表于 2025-1-19 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219845&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-19 11:28</a>
+
+爽世想要的是复辟吧，至于谁是弃子，她还没想好(反正不是她自己和祥子），所以我一直觉得go团剧情一定程 ...</blockquote>
+Soyo的心理基础是缺爱小女孩，对Soyo来说Crychic是缺失家庭的替代品，所以多一个少一个都不行
+
+*****
+
+####  天空塔书记官  
+##### 9767#       发表于 2025-1-19 13:00
+
+套进现实的话，就像是家里老人给自己和小时候的玩伴做了几件玩具，那时候玩具上满是童年欢乐的记忆，后来长大了，就被搁置在一旁，再后来老人去世，这几件玩具又被翻出来就变成了寄托对长辈思念的遗物，而承载童年欢乐记忆的那部分就被遗忘了，这就是“死亡”
+
+唉，终究不是什么愉快的话题<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 9768#       发表于 2025-1-19 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220524&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-19 12:57</a>
+
+其实关于go团的剧情，如果是追的人不好说，但是补的人对于go团剧情是变幻莫测是有心理准备情况下，是很容易 ...</blockquote>
+重点是Soyo，如果对剧情有心理准备，知道要细看，只要有一定阅片量，很容易发现Soyo在前几集有一些不对劲的地方（一些表现方式是一般用于反派的）
+
+
+*****
+
+####  aptx8285144  
+##### 9769#       发表于 2025-1-19 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220535&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-19 12:58</a>
+
+Soyo的心理基础是缺爱小女孩，对Soyo来说Crychic是缺失家庭的替代品，所以多一个少一个都不行 ...</blockquote>
+但是一开始核心人员要走人，后来来了爱音和猫猫，真玩复辟，到时候肯定要谁去当拉拉队队长<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 9770#       发表于 2025-1-19 13:03
+
+我到现在都搞不懂嬷和公都是什么东西，怎么这个现在满大街都是了
+
+*****
+
+####  aptx8285144  
+##### 9771#       发表于 2025-1-19 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220565&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-19 13:01</a>
+
+重点是Soyo，如果对剧情有心理准备，知道要细看，只要有一定阅片量，很容易发现Soyo在前几集有一些不对劲 ...</blockquote>
+是的，起码会注意到素世的那双手一直不安的姿势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13889,3 +13889,37 @@ NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https:/
 
 GQX周末战报如何
 
+
+*****
+
+####  RE㐅ia  
+##### 4337#       发表于 2025-1-19 13:00
+
+<blockquote>虛無迴廊 发表于 2025-1-19 11:27
+说起来牢修的钱只是被肘河里了，比起打黑拳是不是当时直接下河捞快点</blockquote>
+一枚钢镚捞上来有啥用？递给喵安让人家原地崩溃吗（
+
+
+*****
+
+####  RE㐅ia  
+##### 4338#       发表于 2025-1-19 13:02
+
+车个题外话。双城第一季vi他们小时候偷来那么大一袋货东西丢河里也是找不到了。可能二次元值钱的东西都是遇水即溶的吧（
+
+*****
+
+####  双菜  
+##### 4339#       发表于 2025-1-19 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220456&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-19 12:48</a>
+GQX周末战报如何</blockquote>
+打不过初音了，昨天晚上只是回光返照
+
+*****
+
+####  双菜  
+##### 4340#       发表于 2025-1-19 13:05
+
+烤是一天比一天高，而且增幅比新高达大很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痞子真要被初音腐乳了吧
+
