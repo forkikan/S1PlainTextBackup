@@ -13602,3 +13602,20 @@ https://m.weibo.cn/status/5124249748505041
 
 鹤卷作为监督没这个作者性的
 
+
+*****
+
+####  CSWQ  
+##### 4308#       发表于 2025-1-19 09:22
+
+海这个意像就挺微妙的。相较初钢TV，我记得《相逢在宇宙》是把拉拉“我看见了时间”那一幕演出重做了，“海”则是其中居于核心的画面构成
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jojonathan  
+##### 4309#       发表于 2025-1-19 09:26
+
+隔壁说主角机是夏利亚偷偷造的<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">要是被吉翁发现了会快进到军事法庭 不知道真的假的 如果是真的倒是能解释很多东西
+
