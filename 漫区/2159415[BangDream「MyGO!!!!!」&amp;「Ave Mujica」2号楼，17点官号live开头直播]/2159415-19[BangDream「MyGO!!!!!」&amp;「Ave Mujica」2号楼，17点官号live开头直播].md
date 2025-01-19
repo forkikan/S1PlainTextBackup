@@ -2923,3 +2923,41 @@ ras也有不仲？</blockquote>
 薛定谔的不仲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/4581b7fd03a359b9572aad3a17e94398/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26865#       发表于 2025-1-19 18:57
+
+大姐头今天状态很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+1. HELL! or HELL?
+2. UNSTOPPABLE
+3. EXIST
+4. Takin' my Heart
+5. Beautiful Birthday
+6. Life on the Lotus
+7. CORUSCATE -DNA-
+8. DRIVE US CRAZY
+9. Bad Kids All Bet
+10. JUST THE WAY I AM
+11. V.I.P Monster
+12. 灼熱 Bonfire!
+13. EXPOSE 'Burn out!!!'
+14. Light a fire
+15. WELCOME TO PANDEMONIUM
+
+encore.
+1.TWIN TALE 
+2.!NVADE SHOW!
+
+东京场夢限大みゅーたいぷ开场部分：
+1. コミュ着火Fire!
+2. コハク
+3. 夢現妄想世界
+
+新情报
+6.14 RAS单独 有明arena<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+十周年展倒计时——蝶
+<img src="https://p.sda1.dev/21/748a6f3c6003d3d41804988ab762232d/IMG_20250119_185246.jpg" referrerpolicy="no-referrer">
+
