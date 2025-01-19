@@ -11504,3 +11504,38 @@ mygo播出之后的第一张mujica视觉图里祥子确实很大，毕竟她一�
 
 不知道从开盒到今天过了多久没接过警局捞人电话了，牢爹是不是也在一个人默默努力。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 9860#       发表于 2025-1-19 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是把警局电话拉黑了吗
+
+*****
+
+####  友情的结晶  
+##### 9861#       发表于 2025-1-19 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222173&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-19 16:35</a>
+大女主和女主的意思是不一样的 祥子是女主我觉得没啥问题。</blockquote>
+我只是说wsd场外炒作里祥子的主角位比其他团的主角位更特别一点。而且“大女主”的大在哪每个人的理解也不一样
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  阿兹尔  
+##### 9862#       发表于 2025-1-19 16:46
+
+要给祥爹配上抖音经典bgm了吗，我们都在用力的活着~
+
+*****
+
+####  山ノ内花音  
+##### 9863#       发表于 2025-1-19 16:47
+
+主要还是体型大 指第一张视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在已经是初华的头最大了
+

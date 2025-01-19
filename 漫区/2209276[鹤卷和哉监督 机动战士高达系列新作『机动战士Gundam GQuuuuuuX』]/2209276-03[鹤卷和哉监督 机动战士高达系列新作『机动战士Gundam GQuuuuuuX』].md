@@ -14613,3 +14613,16 @@ ps 主题曲八爷这些的微妙的特别术 可能这就是二次元吧
 
 不是啊，不是有一个模型销售排行榜一周的吗看那个就行了。
 
+
+*****
+
+####  JustW  
+##### 4417#       发表于 2025-1-19 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221910&amp;ptid=2209276" target="_blank">drrrrrrrr 发表于 2025-1-19 16:00</a>
+
+去看完了，比预期好很多。不敢想要是一点剧透都没看，看完得多震惊
+
+— from S1 Next Goose v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我从第一个画面开始就一直在震惊，本来就打算随便看看高中生过家家打发一下时间的
+
