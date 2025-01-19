@@ -10701,3 +10701,36 @@ byd这俩里面的圣杯和qb还都是扭曲愿望，绝了
 
 这么好用的人设为啥要丢，扔手游里还能来回发病成长好几年
 
+
+*****
+
+####  NODY  
+##### 9798#       发表于 2025-1-19 14:04
+
+mo姐能活到手游就有机会出这样的水仙卡面了
+
+<img src="https://img.saraba1st.com/forum/202501/19/140428fsyr86yb7n8us8zf.png" referrerpolicy="no-referrer">
+
+<strong>card_normal.png</strong> (263.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 14:04 上传
+
+*****
+
+####  刑部姬真可爱  
+##### 9799#       发表于 2025-1-19 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221048&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-19 13:56</a>
+
+这么好用的人设为啥要丢，扔手游里还能来回发病成长好几年</blockquote>
+确实，编剧没活了就把mortis拉出来车一遍，再怎么说也比花道兰合理一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 9800#       发表于 2025-1-19 14:07
+
+每次看这种动画的英肉都感觉翻译的都太浅了 ai上ai行
+

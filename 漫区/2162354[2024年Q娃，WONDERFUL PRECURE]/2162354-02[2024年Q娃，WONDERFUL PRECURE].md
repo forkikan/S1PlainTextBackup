@@ -142,3 +142,21 @@
 
 噗，这都5202年了怎么还有人在论坛上干出特地换小号出来放地图炮这种事来的？
 
+
+*****
+
+####  装饰混乱切断  
+##### 2730#       发表于 2025-1-19 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221036&amp;ptid=2162354" target="_blank">風駿 发表于 2025-1-19 13:55</a>
+
+噗，这都5202年了怎么还有人在论坛上干出特地换小号出来放地图炮这种事来的？ ...</blockquote>
+因为你们人多<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2731#       发表于 2025-1-19 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上那俩小号谁不知道是豚楼串子外溢，之前懒得搭理你们现在跑出来借题发挥了
+
