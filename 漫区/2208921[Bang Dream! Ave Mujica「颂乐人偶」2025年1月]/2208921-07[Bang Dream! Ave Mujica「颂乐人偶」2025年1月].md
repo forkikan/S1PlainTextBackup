@@ -12121,3 +12121,63 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 
 喵梦如果真不喜欢音乐为了流量选择打鼓，那编剧大手也太明显了，打鼓是什么很有流量的东西吗
 
+
+*****
+
+####  NODY  
+##### 9915#       发表于 2025-1-19 21:30
+
+谁知道呢，毕竟邦邦世界观真的有鼓手当演员的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/19/213005plq22o3lospop2ls.png" referrerpolicy="no-referrer">
+
+<strong>02a222ca-8a27-4d98-917a-0dab72dec2d2.png</strong> (16.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 21:30 上传
+
+*****
+
+####  凉良  
+##### 9916#       发表于 2025-1-19 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223585&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-19 20:10</a>
+
+贴吧有人挖出来第一集还有藏的东西了
+
+第一集14：45和15：05
+
+注意听手机震动声，然后对比下两处手机上短信画 ...</blockquote>
+没看出来 来个地址
+
+
+*****
+
+####  Raven314  
+##### 9917#       发表于 2025-1-19 21:35
+
+大喵架子鼓的天赋是有人夸的，但是演技的天赋只有自夸
+
+*****
+
+####  YF31  
+##### 9918#       发表于 2025-1-19 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224201&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-19 21:20</a>
+
+母鸡卡这几个要真能像新川崎(仮)互相泼水然后互相坦白点东西倒还好了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前三集这几个神人相互坦白了能咋好啊。
+
+祥嗨：我要音乐性，组蒙面乐队积攒实绩。
+
+大喵老师：我管你这的那的，我开蹭若叶家走多栖艺人路线咯，乐队不乐队的重要吗？
+
+睦头人:不想表演，不想弹吉他，不想采访，我从来没觉得玩乐队开心过。
+
+海玲：我只是无情的贝斯雇佣兵。
+
+初华......这个坦白了估计是地下室结局。
+
+鸡团之间的矛盾坦白了有啥用，要么相互骂的更狠，要么不骂了大家各过各的。
+
