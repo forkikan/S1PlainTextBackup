@@ -14772,3 +14772,65 @@ ps 主题 ...</blockquote>
 
 一说闻头发我想起来了，除了玛丽闻真嗣，是不是新奥里也设计了闻气味桥段来着
 
+
+*****
+
+####  刺客ares  
+##### 4431#       发表于 2025-1-19 17:59
+
+<img src="https://img.saraba1st.com/forum/202501/19/175842q7n7gbgz0v53tmg5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9827.jpeg</strong> (140.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/175842tn9oa6tno9bitnhe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9826.jpeg</strong> (234.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/175842vn26r7q2sm6mk0ps.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9828.jpeg</strong> (195.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 17:58 上传
+
+真希波是鹤卷的角色，但新奥里这段绝对是痞子设计的吧，你们Khara都喜欢用这个突出非人感吗（
+
+*****
+
+####  猪突猛进R  
+##### 4432#       发表于 2025-1-19 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222550&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-1-19 17:28</a>
+
+话说回来，目前透露的信息来看，老太婆认为所罗门的精神感应框架暴走可能是沙仑的玫瑰引起的。
+
+目前来看沙 ...</blockquote>
+0079哪来的精神力骨架，是最原始的塞克谬。
+
+沙仑玫瑰，明明最有可能的拉拉不考虑（合着鸭子最后那句“我看见了时间”白说），非要猜第2部的女1或男1……
+
+至于穿越，先不说高达，就连EVA和飞跃巅峰也没有搞过，哪来那么大信心。
+
+不过，假如沙仑玫瑰=女1=哈曼或克隆，把0079和0085连起来，这个假药我吃。
+
+对马士文来说，哈曼确实是他的玫瑰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虛無迴廊  
+##### 4433#       发表于 2025-1-19 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222743&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-19 17:59</a>
+真希波是鹤卷的角色，但新奥里这段绝对是痞子设计的吧，你们Khara都喜欢用这个突出非人感吗（ ...</blockquote>
+原来这里小螃蟹也伸出手了，萌
+
