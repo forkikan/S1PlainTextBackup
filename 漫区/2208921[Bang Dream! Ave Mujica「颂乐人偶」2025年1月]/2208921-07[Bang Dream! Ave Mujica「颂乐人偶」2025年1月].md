@@ -9441,3 +9441,33 @@ ave就是mygo的第二季啊，迷子和A团是双子团，故事的基点和根
 
 劇本裡有一件事高尾知道了之後會影響她的發揮，所以下了封口令。
 
+
+*****
+
+####  bbjajdd  
+##### 9687#       发表于 2025-1-19 09:54
+
+-
+
+https://m.twitch.tv/gigguk
+
+某西海岸动漫皇帝的直播间
+
+接了武士道的挑战(单)
+
+北京时间12:30开始播Mygo全集和Mujica前三集
+
+锁了东亚三国的版权所以得挂**
+
+*****
+
+####  KLHgg  
+##### 9688#       发表于 2025-1-19 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218430&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-19 02:03</a>
+
+楼友对仙台之战的胜负是什么看法呢？平局？猫胜？单纯不算场外观众风评扭转的话
+
+感觉猫虽然底气足，有逻辑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不要太在乎大部分mmr的大喵吵架“完胜”论，mmr的已经把分锅大会当作mujica的底层逻辑
+
