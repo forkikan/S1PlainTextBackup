@@ -9780,3 +9780,37 @@ Kakimoto: This anime serves as a sequel to the TV anime BanG Dream! It’s MyGO!
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 9714#       发表于 2025-1-19 11:08
+
+现在下结论都为时尚早
+因为你没法知道访谈内容是不是100%真心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是为了把观众骗进来杀
+
+到了第十集差不多就能看出来了
+到底写的是双胞胎乐队 
+还是人与人之间的连接和断绝
+以及合同live标题的真正含义
+
+比较搞笑的是 很多人看到sumimi的宣传海报上有这个合同live标题
+第一反应是 sumimi要解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 9715#       发表于 2025-1-19 11:13
+
+在这个楼里讨论不看狗依然可以看鸡这件事挺搞笑的，这楼有几个没看过狗就来看鸡的？有千分之一吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说白了mygo不也就13集动画，四个小时多一点的总时长，哪怕去看泛式杂谈录播一天看一两集最多两周就把本篇看完了，我是不太理解就非得那么想切割是什么意思，要不鸡团唯粉先把当初看mygo的自己切割了？
+
+*****
+
+####  盐盐盐盐盐  
+##### 9716#       发表于 2025-1-19 11:14
+
+除非是mana主动要求解散或者事务所压力不得不散，不然sumimi不可能解散的，初华要是把sumimi散了去搞am形象会直跌谷底，反正兼任也没啥问题mana也没意见
+

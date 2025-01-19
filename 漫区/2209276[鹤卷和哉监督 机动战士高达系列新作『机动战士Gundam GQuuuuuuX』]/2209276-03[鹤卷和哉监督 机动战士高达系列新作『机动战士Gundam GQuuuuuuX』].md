@@ -13709,3 +13709,40 @@ b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发�
 多少人把我当成神经病的？</blockquote>
 没多少吧，多数人只是不认同你的观点和论证而已。
 
+
+*****
+
+####  jojonathan  
+##### 4319#       发表于 2025-1-19 10:57
+
+所以牢修该不会刚被传送过来没多久<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4320#       发表于 2025-1-19 11:05
+
+<blockquote>jojonathan 发表于 2025-1-19 10:57
+所以牢修该不会刚被传送过来没多久武器配置还是当年夏亚凉凉的时候的 而且看牢修也不像w五人组一样反侦察拉 ...</blockquote>
+希望麻球能十万个为什么式的把他底子给问出来（
+
+
+*****
+
+####  YU_JI  
+##### 4321#       发表于 2025-1-19 11:07
+
+<blockquote>jojonathan 发表于 2025-1-19 10:57
+所以牢修该不会刚被传送过来没多久武器配置还是当年夏亚凉凉的时候的 而且看牢修也不像w五人组一样反侦察拉 ...</blockquote>
+可能反侦查的部分全让小机器人干了，小机器人只需要脑控牢修就好了，牢修要考虑的可就多了（）
+
+*****
+
+####  Sliurus  
+##### 4322#       发表于 2025-1-19 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219625&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-19 10:57</a>
+
+所以牢修该不会刚被传送过来没多久武器配置还是当年夏亚凉凉的时候的 而且看牢修也不像w五人组一样反侦察拉 ...</blockquote>
+NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
