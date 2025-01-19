@@ -13831,3 +13831,14 @@ NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https:/
 💪何卒
 <img src="https://p.sda1.dev/21/230da9531c2e17d9dcdf4d7d35def41d/20250119_115015.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 4330#       发表于 2025-1-19 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219832&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-19 11:26</a>
+
+说是能把民用ms的系统调整回军用系统，但是红高达理论上不存在这个问题啊？不知道买这个干啥 ...</blockquote>
+可能所有ms默认都是民用系统，只有装了回路才能军用
+

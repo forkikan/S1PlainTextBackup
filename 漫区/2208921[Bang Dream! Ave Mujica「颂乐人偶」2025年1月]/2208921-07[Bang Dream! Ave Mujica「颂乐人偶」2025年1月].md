@@ -9980,3 +9980,86 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 2025-1-19 11:53 上传
 
+
+*****
+
+####  山ノ内花音  
+##### 9731#       发表于 2025-1-19 11:58
+
+太沉重了 下集大家一起80小祥 会是难得的轻松搞笑情节吗
+
+*****
+
+####  御幸一也  
+##### 9732#       发表于 2025-1-19 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219979&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-19 11:49</a>
+
+监督说什么就是什么，所以你为什么不先在本楼表态和过去看过mygo的自己切割呢？
+
+就人家监督说这话可以理 ...</blockquote>
+可能動畫播完了就能知道監督說的對不對咯<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 9733#       发表于 2025-1-19 12:00
+
+我也感觉第四集可能意外的会是放松回
+
+直到最后吵个大的
+
+
+*****
+
+####  山ノ内花音  
+##### 9734#       发表于 2025-1-19 12:02
+
+不得不说大家一起分马卡龙那个场景太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 9735#       发表于 2025-1-19 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219640&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-19 11:00</a>
+
+你让没看过mygo的人看soyo兴师问罪这一段 那他的感想是“棕毛因为绿毛组乐队不爽 跑去压力她 而且绿毛不 ...</blockquote>
+正确的，MYGO和C团在本季度都只是时间线上关系背景。这样是最好的，不然太难写了。
+
+个人理解
+
+姐妹企划做成前传性质就不好写了。更不用说有些角色形象和关系细究起来其实是倒退的。有问题不如花篇幅在手游解决。
+
+*****
+
+####  天空塔书记官  
+##### 9736#       发表于 2025-1-19 12:04
+
+用理论导出的结果去反驳理论成立的基础，这不是自相矛盾吗
+
+我完全无法理解有什么必要去争论切不切割的问题，因为这问题根本就不存在
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 9737#       发表于 2025-1-19 12:04
+
+這就跟MCU 每部 也能單獨看，
+
+問題是能切割這是系列作嗎？
+
+就算是訪談也說了這是跟狗同一個系列，
+
+只是會讓觀眾單獨看也能看
+
+標準商業台詞
+
+前面說得好，就4小時的前作，
+
+有什麼必要堅決切割？
+
