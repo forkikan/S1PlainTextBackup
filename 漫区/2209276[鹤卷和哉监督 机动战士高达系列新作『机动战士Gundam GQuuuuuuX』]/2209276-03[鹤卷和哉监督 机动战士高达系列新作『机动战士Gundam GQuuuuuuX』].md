@@ -13528,3 +13528,31 @@ G4原本是让陆海空宇分别开发第二批次高达，成果是皮克西，
 
 好多人都画了麻球这个…三白眼的表情，是有什么特写吗
 
+
+*****
+
+####  穿越护城河  
+##### 4302#       发表于 2025-1-19 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217953&amp;ptid=2209276" target="_blank">nnis 发表于 2025-1-19 00:29</a>
+“如果我在那个检票口前脚步不停继续前进的话，你就不会存在于任何地方，而我也不会出现在这里”
+
+天哪这歌 ...</blockquote>
+这个人甚至名字都只是搞出一种感觉
+
+毕竟按那个拼写Nhãan是找不到对应的汉越字人名的
+
+但是如果找相似的，她那个名字单字更像眼(Nhãn，比如龙眼)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gamedreamer  
+##### 4303#       发表于 2025-1-19 07:47
+
+不是大家都已经默认牢修是会先行上分，然后后续翻车的形象了吗？
+会赢吗，牢修.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
