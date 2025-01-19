@@ -741,3 +741,53 @@ https://bbs.nga.cn/read.php?tid=43067396 nga佬写的观后感 蛮有意思的�
 
 色诱男生”
 
+
+*****
+
+####  yevvet  
+##### 4515#       发表于 2025-1-19 23:37
+
+星街那首没有百合曲好听，但是星街那首是最后打黑拳的高潮部分放了一整首。就是那种很流行的日系潮歌。NOMELON NOLEMON那首更好听，就是放的位置很奇怪，就女主和黑长直莫名其妙贴在一起时，突然从副歌开始放这首。贴在一起时还有kirakira的特效。但更怪的还得是米津玄师的抢高达之歌。星街这首倒是没什么违和，整个决战加上女主裸漂、男女主神交都是这首歌作为bgm
+
+
+*****
+
+####  uponutopia  
+##### 4516#       发表于 2025-1-19 23:40
+
+这不就是传说中的“女兄弟”么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 4517#       发表于 2025-1-19 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225236&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-19 23:34</a>
+“
+
+色诱男生”</blockquote>
+麻球果然还是有假小子成分
+
+*****
+
+####  Libartas  
+##### 4518#       发表于 2025-1-19 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225207&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-19 23:30</a>
+大好评不是吗？</blockquote>
+感觉是暗踩了一脚鹤卷，他说后半就是现代anime了
+
+*****
+
+####  王留美  
+##### 4519#       发表于 2025-1-19 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225296&amp;ptid=2209276" target="_blank">Libartas 发表于 2025-1-19 23:41</a>
+
+感觉是暗踩了一脚鹤卷，他说后半就是现代anime了</blockquote>
+但是不管怎么说那40分钟是好评的
+
+尤其是以他一贯瞧不上庵野的立场来说
+
+所以这个还是回到那个问题，不喜欢那40分钟的YILAO究竟是遗老还是姨姥
+
