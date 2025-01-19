@@ -10235,3 +10235,76 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 只能说现在喵梦这角色塑造比祥子还更加走钢丝
 
+
+*****
+
+####  刑部姬真可爱  
+##### 9753#       发表于 2025-1-19 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220281&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-19 12:26</a>
+
+目前可以看出来的是人偶用来代替睦，但正片目前看不出来</blockquote>
+人偶基本明示是祥子对母亲思念的寄托了，而不是代替睦
+
+*****
+
+####  天空塔书记官  
+##### 9754#       发表于 2025-1-19 12:40
+
+但祥子抱着人偶可不是从母亲离世才开始的，小时候在岛上遇到初华的时候也是人偶不离身的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 9755#       发表于 2025-1-19 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220335&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-19 12:33</a>
+
+大祥只有一点是不知道的，就是睦说玩乐队不开心时候大祥不在场，大祥根本不知道睦会内疚。所以在大祥的视角 ...</blockquote>
+睦说的时候祥子在的啊，soyo劝立希的时候转头问睦的意见，那会祥子还在呢
+
+*****
+
+####  嵇翱u  
+##### 9756#       发表于 2025-1-19 12:42
+
+其实我觉得把鸡狗连贯起来看，是更可以理解祥子现在吃瘪的境地的。
+
+从go开局到soyo下跪，祥子不说人气是垫底吧，也是负面评价居多。也就是最后银河战舰开起来了，同时也揭露了一部分祥子离开C团的原因，这个时间段祥子的人气开始回升，甚至在完结后超过了mygo的五人组。结合当时引流的一堆电竞梗，很难说是没有冠军强度粉吧。
+
+然后祥子形象在一年时间内配合各种二传漫长发酵。以至于很多观众在鸡团开篇觉得祥子应该不可能犯这么多的错误，这和他们想象中无所不能，随手拉起银河战舰的祥子完全不一样。
+
+到现在已经不仅是剧中人把祥子当做神明，观众也是这么看的。导致鸡开篇后，对祥子风评又跌落了回去。
+
+
+*****
+
+####  osore  
+##### 9757#       发表于 2025-1-19 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子风评下跌不是天下苦祥嬷久矣吗
+
+*****
+
+####  刑部姬真可爱  
+##### 9758#       发表于 2025-1-19 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220375&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-19 12:40</a>
+
+但祥子抱着人偶可不是从母亲离世才开始的，小时候在岛上遇到初华的时候也是人偶不离身的
+
+—— 来自 鹅球 v ...</blockquote>
+初华用人偶和祥子聊天的时候祥子说是母亲的遗物，用来代替睦的话也不是不行，但是会感觉有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 9759#       发表于 2025-1-19 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大猫那是叫睦剥离依存关系，跟大猫走就会好么，能不能好只看睦自身，况且，睦其实不需要他人救，想开了就能自救，只要有人骂醒睦什么事都往自己身上拦是糟糕的性格就好了。
+关于这点是有痕迹的，睦被mortis吞噬的时候，唉的一声，这里就有很大想象空间。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -2221,3 +2221,16 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 对于鸡团未来怎么样，自己能不能留下，喵梦是有合理的担忧理由的，如果花个一话来铺垫观感应该会好很多。但估计编剧设定了鸡团5个人的爆都要从揭面具开始引发，实在不能等了。
 
+
+*****
+
+####  aptx8285144  
+##### 215#       发表于 2025-1-19 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219319&amp;ptid=2242398" target="_blank">swessia 发表于 2025-1-19 10:10</a>
+
+虽然一直被说喵睦像爱素
+
+但是两者还是有本质的区别，爱素里爱是被害者，是是爱音伟大的性格和素世谐星化让 ...</blockquote>
+复议，这种说法太荒谬了，爱音的性格是和隔壁gbc的安对比的伟大，瞄梦前三话有看出这种伟大的半点影子吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
