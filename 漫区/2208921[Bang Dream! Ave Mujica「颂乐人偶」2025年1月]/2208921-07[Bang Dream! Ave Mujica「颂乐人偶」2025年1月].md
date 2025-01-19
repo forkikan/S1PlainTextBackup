@@ -10308,3 +10308,52 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  江口夕  
+##### 9760#       发表于 2025-1-19 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220377&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-19 12:40</a>
+睦说的时候祥子在的啊，soyo劝立希的时候转头问睦的意见，那会祥子还在呢 ...</blockquote>
+那是我记错了，时间太久远。当然了，木头祥子也根本不会往那方面想罢了。就跟立希不知道灯也在内疚一样
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  akiomn  
+##### 9761#       发表于 2025-1-19 12:50
+
+喵梦那句观众想看什么就给观众看什么的话，其实很糟糕的，放到现实里也是。第一天观众想看表演，那表演给他们看。第二天观众想看睦坐在椅子上，睦坐椅子上了。第三天观众想看初华和海玲kiss了，那么舞台剧演不演？
+一味满足观众，热度越来越高，但是付出的代价也会越来越大，不管是现实还是剧内，观众都是嗜血的
+
+*****
+
+####  天空塔书记官  
+##### 9762#       发表于 2025-1-19 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220419&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-19 12:45</a>
+初华用人偶和祥子聊天的时候祥子说是母亲的遗物，用来代替睦的话也不是不行，但是会感觉有点怪 ...</blockquote>
+这就是初华认知障碍假说出现的原因啊，母亲离世前后人偶对于祥子的意义可能存在根本上的区别，有可能是因为母亲的离世或者之前其他的某种缘故，作为木头替身的人偶被遗弃，后来因为母亲的离世才作为亲人的遗物重生了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 9763#       发表于 2025-1-19 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底还是缺爱音这种两手一摊，都坐下把话说清楚
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  阿兹尔  
+##### 9764#       发表于 2025-1-19 12:52
+
+邦邦世界那么温柔，问题不大，像那个赵露思，除了粉丝力挺，其他人的评价全是炒作闹麻了，她要是在邦邦世界那骂声几乎没有啊
+

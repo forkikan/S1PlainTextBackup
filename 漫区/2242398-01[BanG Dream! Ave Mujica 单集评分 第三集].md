@@ -2234,3 +2234,16 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 但是两者还是有本质的区别，爱素里爱是被害者，是是爱音伟大的性格和素世谐星化让 ...</blockquote>
 复议，这种说法太荒谬了，爱音的性格是和隔壁gbc的安对比的伟大，瞄梦前三话有看出这种伟大的半点影子吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 216#       发表于 2025-1-19 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218635&amp;ptid=2242398" target="_blank">玖羽 发表于 2025-1-19 03:54</a>
+
+我把我在专楼发的复制一遍
+
+以少女乐队的底层逻辑来说，Soyo干的事比喵梦严重多了，Soyo会给爱音推荐香氛 ...</blockquote>
+但是爱音在观众视线里有一个很多角色没有的优势，前一个篇幅前面很多搞笑的心理活动都是直接展示出来这反而降低了观众们对她可能的反感，就连过去是留学生文化水土不服而逃回甚至都很难算什么大的黑历史
+
