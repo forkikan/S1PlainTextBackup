@@ -12029,3 +12029,23 @@ https://www.bilibili.com/video/BV1Abwze5EgJ/</blockquote>
 
 CHATGPT还是差点意思。
 
+
+*****
+
+####  dgugvff  
+##### 9905#       发表于 2025-1-19 20:55
+
+现在祥子的谷子怎么样跟以往比下降了吗，还是烫的。
+
+*****
+
+####  一心而用  
+##### 9906#       发表于 2025-1-19 20:56
+
+乐队吵架要泼酒（这个作者真的喜欢甲斗）
+<img src="https://p.sda1.dev/21/21581780be50f6154046165e0b6331be/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4209922a4f88d827cc0a2c0889ee1883/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/43cd7e5b3c7feba49fbcaee4961d0ea8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6031f6de810aa6805aa2f08ce8e82ede/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/bc97e3a8fba06f0e8cb9072fc8e3eebe/image.jpg" referrerpolicy="no-referrer">
+

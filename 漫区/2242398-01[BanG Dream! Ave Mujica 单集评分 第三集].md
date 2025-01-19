@@ -2325,3 +2325,18 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  YF31  
+##### 224#       发表于 2025-1-19 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223813&amp;ptid=2242398" target="_blank">PascalLefèvre 发表于 2025-1-19 20:36</a>
+
+所以没区别不是吗，没懂你想说什么
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">表达一种自适应的车祥逻辑，旨在展示现在社区的战争如何进行。
+
+我理解你表达想说“不能用现实逻辑车任何一个角色”，性质跟车牢祥没苦硬吃一样扯淡，试图降低冲突氛围，但是社区内早就打出狗脑子了，可不管你说的这些。
+
