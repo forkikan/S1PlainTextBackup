@@ -1868,3 +1868,14 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 
 挺好玩的 熬夜通关了<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">顺便问一下有人知道画廊的第40号怎么收集吗？就差这一张，我看接在结局后面，本来以为是第二结局解锁，但是两个结局都打了一遍还是没有。
 
+
+*****
+
+####  WillGoodman  
+##### 163#       发表于 2025-1-19 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218705&amp;ptid=2236671" target="_blank">Ivent 发表于 2025-1-19 05:12</a>
+
+挺好玩的 熬夜通关了顺便问一下有人知道画廊的第40号怎么收集吗？就差这一张，我看接在结局后面，本来以为 ...</blockquote>
+这游戏有第二结局吗，怎么触发?
+
