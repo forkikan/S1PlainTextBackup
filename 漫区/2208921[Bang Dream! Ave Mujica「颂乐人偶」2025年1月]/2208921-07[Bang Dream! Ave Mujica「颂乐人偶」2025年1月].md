@@ -12417,3 +12417,15 @@ iPhone13是侧面电源键指纹解锁的吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  第贰个十年  
+##### 9941#       发表于 2025-1-20 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224438&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-19 21:56</a>
+贴吧发现调低对比度会出现裂纹</blockquote>
+这mujica乐队啊，我看是完蛋了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
