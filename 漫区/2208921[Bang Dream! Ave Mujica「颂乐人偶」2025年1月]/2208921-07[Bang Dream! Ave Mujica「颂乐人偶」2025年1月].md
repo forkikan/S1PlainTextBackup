@@ -11833,3 +11833,25 @@ Plateau人
 
  弹幕还有问gigguk和孤独摇滚比如何，他说孤独摇滚更偏喜剧风格，跟mygo和gbc不是一个类型</blockquote>
 
+
+*****
+
+####  sauron.j  
+##### 9890#       发表于 2025-1-19 19:24
+
+说来有点缺德，我一想到初华蹲完草丛后还要淋着雨比赛跑赶在大祥之前回到家就好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remedios010000  
+##### 9891#       发表于 2025-1-19 19:27
+
+<blockquote>引用第9575楼skylah于2025-01-19 00:05发表的  :
+
+小祥留下一张字条搬出初华家算不算大的刺激要猜初华破防的原因还得从过往找，信息太少了</blockquote>
+@skylah
+
+真搬出去了第二天排练室不还是能见到么，低头不见抬头见的，真破防至少得失踪吧，电话打不通，睦头人…啊不已经是mortis了也不知道，“祥子？”(无关心)，直接在沈阳大街上一边哭一边跑“我祥子呐～～啊～祥子～！”
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
