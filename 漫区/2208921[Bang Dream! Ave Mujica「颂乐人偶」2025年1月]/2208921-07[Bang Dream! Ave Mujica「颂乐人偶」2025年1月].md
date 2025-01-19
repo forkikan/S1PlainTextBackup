@@ -12285,3 +12285,45 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 <img src="https://p.sda1.dev/21/b32a8d402b3655365d2ee4bf9b2b4139/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/57690618f3625e0838fa2d044c4ee5dd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 9928#       发表于 2025-1-19 22:08
+
+暗示A团要裂啦，第二季加四人，第三季再加两人，组成11人超级银河战舰(bushi)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小小雪空  
+##### 9929#       发表于 2025-1-19 22:09
+
+有一种镜头碎了的感觉，叙诡假药越来越真……
+
+*****
+
+####  ParadiseMartyr  
+##### 9930#       发表于 2025-1-19 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224428&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-19 21:55</a>
+那如果换个牢祥把睦头人抱到怀里的结局，也没解决睦头人的问题啊，我看弄成隔壁水母金毛主唱对夜老师的操 ...</blockquote>
+没说要这么搞，只是俩人都给对方憋不出一句有用的情报，祥子说的话除了压力睦完全没有其他作用。
+不扯了，我之前那话只是看图感叹罢了。
+
+*****
+
+####  哈曼的YY  
+##### 9931#       发表于 2025-1-19 22:12
+
+裂纹很微妙的没有穿过标题附近都在边上
+
+
+*****
+
+####  CCCTHUN  
+##### 9932#       发表于 2025-1-19 22:15
+
+重看了一下，藏手机短信有点真，后续是祥子愣了一下然后露出惊讶的表情，感觉不像是因为soyo那条消息。
+

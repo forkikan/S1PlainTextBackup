@@ -48,3 +48,14 @@ SACD到了，但是没有SACD机…
 
 三牛老师最后的赤石<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kos_mos  
+##### 6879#       发表于 2025-1-19 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67216949&amp;ptid=2130897" target="_blank">はらみー 发表于 2025-1-18 22:31</a>
+
+火锅D1多不少，有人要吗</blockquote>
+发消息了
+
