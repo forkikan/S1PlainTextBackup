@@ -9843,3 +9843,61 @@ Kakimoto: This anime serves as a sequel to the TV anime BanG Dream! It’s MyGO!
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  好想看Mujica啊  
+##### 9720#       发表于 2025-1-19 11:28
+
+是的，被母鸡卡吸引过来的萌新看完动画就可以滚蛋了，不需要看mygo，当然也不需要看邦邦前几部动画，也不需要接触手游，也不需要听歌，看演唱会当然也无从谈起
+
+
+*****
+
+####  aptx8285144  
+##### 9721#       发表于 2025-1-19 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217839&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-19 00:15</a>
+
+没那么简单
+
+爱音：只要有灯别人是谁无所谓（为了虚荣）</blockquote>
+爽世想要的是复辟吧，至于谁是弃子，她还没想好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">(反正不是她自己和祥子），所以我一直觉得go团剧情一定程度就是建立在爽世当矛盾的小丑意义上
+
+*****
+
+####  御幸一也  
+##### 9722#       发表于 2025-1-19 11:31
+
+完了呀那這下監督也是切割派了畢竟他說的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 9723#       发表于 2025-1-19 11:34
+
+ 本帖最后由 天空塔书记官 于 2025-1-19 11:35 编辑 
+
+所以其实黑刀之夜是祥子和木头在演人格分裂舞台剧是吗，原来这才是真正的颠佬啊
+
+那还对邦个屁，A团自己去全球巡演吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 9724#       发表于 2025-1-19 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218094&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-19 00:55</a>
+
+你这么说，喵梦女士真有可能成为鸡团爱音。
+
+两者核心差不多，要么是爱慕虚荣，要么是想出名。
+
+两者都是前 ...</blockquote>
+瞄梦有个劣势，主视角有很多在爱音这边，某种意义来说第一个篇章说灯是男主，爱音是女主（<strong>非cp意义上</strong>）并无大的不妥，爱音甚至有很多搞笑的心理活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，观众们大体知道爱音是没有什么坏心思（否则也不会经常把爱音和隔壁的安做对比说比较像了，圣爱音这个说法也时不时流行），而go团这边，除了祥子的角色似乎高一些，其他人目前是差不多的，现在是若叶的主场所以看上去倾斜她，但是迟早一个个轮流过去
+
