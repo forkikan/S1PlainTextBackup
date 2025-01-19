@@ -14335,3 +14335,71 @@ pjsk商法很逆天的，要想领全奖励得看26遍电影/买26张票
 
 高达什么时候变成debuff了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 4385#       发表于 2025-1-19 14:49
+
+不早就是debuff了吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bindata  
+##### 4386#       发表于 2025-1-19 14:50
+
+说白了还是路人凭什么花钱来电影院看一个原创（？）TV动画先行版
+
+*****
+
+####  创始’’’天翔  
+##### 4387#       发表于 2025-1-19 14:51
+
+唉水魔大热时说高达是不可或缺的buff，shin高吃瘪了立马就成了debuff。所以高达到底是buff还是debuff呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 4388#       发表于 2025-1-19 14:52
+
+水魔的时候的口径难道不是yuri make gundam great again吗，我记性不好你别骗我<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  uponutopia  
+##### 4389#       发表于 2025-1-19 14:53
+
+真没必要替人操心票房，难道会有人担心代便或痞子赚不到钱？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片八百年前立项大概率早就做完了也没有腰斩的风险，票房对网友来说无非是汴京的谈资。更何况除了目前曝出来的内容本体到底如何还是未知数，虽然现在已知的内容我比较满意但这片又不是没有变成下一个水魔的可能，代便早说了现在阔绰得很，每年都有新高达，这部不行大不了除籍展望下作，建议放平心态
+
+*****
+
+####  nnis  
+##### 4390#       发表于 2025-1-19 14:53
+
+然后把人骗进去坐牢40分钟吗
+
+我看有些日本人就算有相反看法也不会在x发。有些人进去看了觉得前半懵逼的，看完估计私下跟朋友吐槽
+
+
+*****
+
+####  岸波白野扎比子  
+##### 4391#       发表于 2025-1-19 14:55
+
+ 本帖最后由 岸波白野扎比子 于 2025-1-19 14:56 编辑 
+
+这话不对，GQX没吃瘪，只是达不到万代事业粉的预期嘛，提一提宣发建议
+
+看看推子的爆火就该知道咋宣传了
+
+*****
+
+####  bindata  
+##### 4392#       发表于 2025-1-19 14:57
+
+顺便我的观感也没别的遗老那样开香槟，毕竟原创动画还得看后续发展，单拎0085部分出来我可能还真没兴趣追下去。
+

@@ -10989,3 +10989,40 @@ mygo里也是因为rikki问她soyo家在哪，她是理解了rikki问她什么�
 
 采访时说“不会长久”应该是压力太大，复读祥子之前的话安慰自己，不小心说出口了
 
+
+*****
+
+####  狂热飞鸟  
+##### 9822#       发表于 2025-1-19 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221343&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-19 14:37</a>
+
+但这里涉及到一个问题就是，不摘面具动画话，当初画饼时给她看的初华和睦的身份就是没用的，最速出道和最 ...</blockquote>
+我强调一遍祥子不叫画饼，她并没有许诺，也就是饼就没给出来过，更不存在画
+
+不摘面具的话初华和睦的身份当然是有用的，能和初华和睦有交流的平台就是人脉呀，建立进演艺圈的人脉和大众知不知道有关系吗
+
+失去对喵的压制和掌控固然有祥子不交流的原因在，但本质是喵自己人心不足蛇吞象，太想进步了。
+
+从出道到武道馆总共才2个月，这其中祥子该给喵并没有少给过，喵在频道暗示祥子有管过吗，母鸡卡没让喵蹭流量吗，是喵贪心想要睦和初华流量。
+
+
+*****
+
+####  aptx8285144  
+##### 9823#       发表于 2025-1-19 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221372&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-19 14:41</a>
+
+立希难道不是中日一致的go团垫底</blockquote>
+我虽然谈不上特别喜欢立希但是比起各个精神问题严重 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 9824#       发表于 2025-1-19 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大猫马上就要成为小时候的睦了，观众：你就是和睦组队的那个鼓手？到时候没人认可猫的努力，怕不是只有海玲认可
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

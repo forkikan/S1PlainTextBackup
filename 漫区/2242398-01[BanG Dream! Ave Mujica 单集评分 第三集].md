@@ -2283,3 +2283,15 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 因为本质是第14话而不是第1话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 220#       发表于 2025-1-19 14:55
+
+<blockquote>岬开斗 发表于 2025-1-19 09:55
+什么时候不尊重队友当众开队友盒成了“学校拖地”了？
+
+一天不拖地就会脏，你喵梦就是一年不摘面具能怎么 ...</blockquote>
+祝你遇到公主病同事的时候也能这么大度
+
