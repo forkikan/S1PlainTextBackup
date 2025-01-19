@@ -12246,3 +12246,42 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">单就祥睦就把人急死了
 小祥到最后还在嘴臭死撑，睦都明显不对劲了
 
+
+*****
+
+####  木板春香  
+##### 9925#       发表于 2025-1-19 21:52
+
+还有个更简单的解释，那就是乐队需要一个打鼓的，其他乐器分完了，网红猫只能打鼓了           你到这 还能是独角兽的思路。   
+
+然后倒推回去，喵梦确实不喜欢音乐，但是确实选了鼓     这还能怎么倒，做网红难道不是应该吉他弹唱短视频么？  快而且易传播。
+
+你真要按逻辑倒推也是：喵梦之前看到别人的演出所以喜欢上了打鼓-然后开始像吉他英雄那样上传自己打鼓的视频，结果一直没人发掘出她的才能，所以她高中选择去念艺术专门学校，朝着自己的目标-多栖艺人去努力。 在成名之前先去当美妆博主给自己的频道吸引基础人气，以后再曲线救国。  然后祥子自己发掘或者是朋友介绍（喜欢爱祥的可以说是爱音经常给朋友分享喵梦的视频，然后消息传到了大祥耳里，可以用这个思路造假药）向喵梦递出了橄榄枝，喵梦不想放过这个加速自己进程的机会，选择把面具在武道会后摘了，立刻兑现流量。
+
+不能倒果为因说为了流量才去学打鼓啊。
+
+
+*****
+
+####  YF31  
+##### 9926#       发表于 2025-1-19 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224350&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-19 21:42</a>
+
+单就祥睦就把人急死了
+
+小祥到最后还在嘴臭死撑，睦都明显不对劲了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那如果换个牢祥把睦头人抱到怀里的结局，也没解决睦头人的问题啊，我看弄成隔壁水母金毛主唱对夜老师的操作倒是大概率。
+
+觉得自己弹得烂不想玩乐队，不想表演，不想采访被说父母，最多第一个是能靠女女关系性解决的，后两个就算祥嗨同意，大喵就不会跟她爆了吗？爆完了这鸡还是得散。
+
+*****
+
+####  一心而用  
+##### 9927#       发表于 2025-1-19 21:56
+
+贴吧发现调低对比度会出现裂纹
+<img src="https://p.sda1.dev/21/4dbe86e66e2d6b0dfe214de71b88de7b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b32a8d402b3655365d2ee4bf9b2b4139/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/57690618f3625e0838fa2d044c4ee5dd/image.jpg" referrerpolicy="no-referrer">
+
