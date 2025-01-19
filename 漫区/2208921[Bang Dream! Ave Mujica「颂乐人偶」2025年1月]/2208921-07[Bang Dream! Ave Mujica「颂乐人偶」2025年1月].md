@@ -9651,3 +9651,28 @@ https://m.twitch.tv/gigguk
 
 am动画的go团哪怕只是保持go动画的am人量级的戏份都可以说很多了，不可能分得开的
 
+
+*****
+
+####  御幸一也  
+##### 9706#       发表于 2025-1-19 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219449&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-19 10:33</a>
+
+狗團本來就有東西留到這季解決，
+
+素燈祥睦這四人本來就要在這季就包餃子</blockquote>
+狗團？CCC吧，而且這又是經典的CCC排擠立希<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 9707#       发表于 2025-1-19 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219459&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-19 10:34</a>
+
+可别立flag啊，等过个几集来个祥灯碰头（</blockquote>
+碰頭就碰頭了，很重要嗎，劇情的重點肯定是團內5人的故事。
+
+是初華 睦 海鈴 喵夢 祥子 這5個角色要成為一個真正的團體，不是要10人組一個雞狗樂團哦。
+
