@@ -999,3 +999,24 @@ NT是个筐，什么神棍都能往里装，这次看表现真搞出世界穿越
 当然和“那一侧”连在一起倒是大有文章，应该 ...</blockquote>
 大文豪的骡子看TA创世也说的是看到了时间，老登们觉得拉拉这句话逼格高疯了
 
+
+*****
+
+####  中野梓  
+##### 4541#       发表于 2025-1-20 03:39
+
+<blockquote>猪突猛进R 发表于 2025-1-20 00:31
+“看到了时间”台词本身不用过于深入，原作拉拉的遗言而已。
+
+当然和“那一侧”连在一起倒是大有文章，应该 ...</blockquote>
+大文豪的骡子看TA创世也说的是看到了时间，老登们觉得拉拉这句话逼格高疯了
+
+*****
+
+####  gamedreamer  
+##### 4542#       发表于 2025-1-20 07:06
+
+不知道今天会不会发些新的宣传片<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
