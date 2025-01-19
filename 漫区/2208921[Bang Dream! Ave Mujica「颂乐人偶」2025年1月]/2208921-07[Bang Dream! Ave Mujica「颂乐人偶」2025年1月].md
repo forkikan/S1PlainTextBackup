@@ -12049,3 +12049,30 @@ CHATGPT还是差点意思。
 <img src="https://p.sda1.dev/21/6031f6de810aa6805aa2f08ce8e82ede/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/bc97e3a8fba06f0e8cb9072fc8e3eebe/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 9907#       发表于 2025-1-19 20:58
+
+只加载出第一张的时候还以为发错楼了。
+
+*****
+
+####  IWS2000  
+##### 9908#       发表于 2025-1-19 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223993&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-19 20:55</a>
+现在祥子的谷子怎么样跟以往比下降了吗，还是烫的。</blockquote>
+最好成为鸡团最低价，现在买不起
+
+
+*****
+
+####  天空塔书记官  
+##### 9909#       发表于 2025-1-19 21:05
+
+再打个比方，木头和莫提斯的关系就如同奥泽美咲和米歇尔，只不过比起人偶服，莫提斯更像小孩子恶作剧之前戴上的鬼假面，是一种自我认知的分离和暗示，米歇尔里面是美咲，莫提斯里面则是木头，本质还是角色扮演，为什么第三集的结尾木头只有一只眼睛流泪，就是因为另一只眼睛已经被名为莫提斯的假面所覆盖，但别忘了，戴了面具的木头也还是木头并不会成为其他人<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

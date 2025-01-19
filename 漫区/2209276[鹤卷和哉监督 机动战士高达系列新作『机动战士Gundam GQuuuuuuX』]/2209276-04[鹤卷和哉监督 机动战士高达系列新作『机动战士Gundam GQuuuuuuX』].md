@@ -333,3 +333,13 @@ Plazma越听越好听
 上上落落</blockquote>
 还真给鹤卷他们搞对了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 4475#       发表于 2025-1-19 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">对了，既然这次CV有组长，吉翁又获得了高达，那么组长版马克贝能开上高达吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
