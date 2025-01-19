@@ -324,3 +324,13 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 宠物前期一直提到两大问题 第一是小麦的狗主角如何塑造 第二是把动物灭绝来当主线怎么写
 结果到完结时 这帮菜鸡士大夫表示这题我不会 就不写了 这样硬糊弄过去了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谁的无聊中  
+##### 2746#       发表于 2025-1-20 01:39
+
+<blockquote>jaewoongh_ 发表于 2025-1-19 23:14
+高桥麻树：我个人一直为后半部分的剧情苦恼不已，总之满心都是不安，找了很多人商量。每次最艰难的时候都 ...</blockquote>
+经典自我感动呢，只能说不愧是日本人，我算求你高桥麻树还是滚蛋一边，以后别来了
+
