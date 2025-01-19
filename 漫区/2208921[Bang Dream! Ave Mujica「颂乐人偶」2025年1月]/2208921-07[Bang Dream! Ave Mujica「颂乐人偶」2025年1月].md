@@ -12181,3 +12181,68 @@ https://x.com/oda_ya_ka/status/1880930757746762150
 
 鸡团之间的矛盾坦白了有啥用，要么相互骂的更狠，要么不骂了大家各过各的。
 
+
+*****
+
+####  aptx8285144  
+##### 9919#       发表于 2025-1-19 21:38
+
+我印象当中音乐番的主角团好像没有瞄梦这样会阴阳怪气嘲讽的角色<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 9920#       发表于 2025-1-19 21:39
+
+ 本帖最后由 阿兹尔 于 2025-1-19 21:41 编辑 
+
+架子鼓这种乐器占地方还扰民，一个美妆博主特地买个鼓，然后才被发现这人打鼓有天赋。要是只是为了流量，买个吉他搞弹唱不更合理
+
+还有个更简单的解释，那就是乐队需要一个打鼓的，其他乐器分完了，网红猫只能打鼓了，然后倒推回去，喵梦确实不喜欢音乐，但是确实选了鼓
+
+
+*****
+
+####  天空塔书记官  
+##### 9921#       发表于 2025-1-19 21:41
+
+当主唱只需要敢吼就行了，练乐器都没啥必要的其实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NODY  
+##### 9922#       发表于 2025-1-19 21:41
+
+<blockquote>aptx8285144 发表于 2025-1-19 21:38
+我印象当中音乐番的主角团好像没有瞄梦这样会阴阳怪气嘲讽的角色，而体育番应该是有的 ...</blockquote>
+你觉得少歌算不算音乐番，里面多得是
+
+*****
+
+####  akiomn  
+##### 9923#       发表于 2025-1-19 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224285&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-19 21:32</a>
+没看出来 来个地址</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你自己去看下第一集就行，挺明显的
+祥子刚回家收到素世，14：45左右，声音调大，有手机震动声，画面里是素世的消息
+15：05，祥子接牢爹出来，手机震动声又来了，但是看画面，还是14：45左右的素世消息，但素世根本没发新消息，那是谁发的消息？
+
+如果这是个伏笔的话，祥子退c团的理由可能又要更新了
+
+*****
+
+####  ParadiseMartyr  
+##### 9924#       发表于 2025-1-19 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224300&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-19 21:35</a>
+前三集这几个神人相互坦白了能咋好啊。
+
+祥嗨：我要音乐性，组蒙面乐队积攒实绩。
+
+大喵老师：我管你这的那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">单就祥睦就把人急死了
+小祥到最后还在嘴臭死撑，睦都明显不对劲了
+
