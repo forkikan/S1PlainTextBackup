@@ -166,3 +166,24 @@ b站有剧情翻译视频
 
 关服前在开拓局跳舞还蛮热闹的
 
+
+*****
+
+####  Vastoo  
+##### 958#       发表于 2025-1-19 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218028&amp;ptid=2103199" target="_blank">cnmyster1ous 发表于 2025-1-19 00:43</a>
+打了会别的游戏 还是想感叹一下
+
+虽然我6、7章的剧情都是看视频云的
+
+但是菲斯特的人物塑造相当讨喜 可以说是 ...</blockquote>
+给雌小鬼当下仆我个人感觉还是挺新鲜的设定，到关服前我的头衔还是下僕の先輩<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+B站上看有个人说的挺好的，菲斯特是那种“伴侣型角色”，仔细一想其实整个主线她都没掉线陪主角一起冒险。
+双面之谜支线，做了公王的硬币亭主也是在最后单独叫住，来了句菲斯特是特别怕寂寞的人，颇有种老父亲托付女儿的感觉。
+没想到最后的未来约束支线菲斯特还来了个callback，说实话心还是挺酸的。
+
+万代南梦宫，你是杀人凶手。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
