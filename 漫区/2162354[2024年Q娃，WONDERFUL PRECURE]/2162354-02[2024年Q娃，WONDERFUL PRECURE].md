@@ -305,3 +305,22 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 我在会议室里独自放声大哭。第 49 集，真的非常感谢。
 
+
+*****
+
+####  pokemon最爱  
+##### 2744#       发表于 2025-1-19 23:57
+
+其实如果暴论一点的话，汪Q最大的问题来源可能反而是它是一部Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为是Q娃所以一定要有战斗，一定要有一个敌人，如果汪Q改成不是Q娃作品删去整个主线的话可能反而表现会更好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 2745#       发表于 2025-1-20 00:00
+
+宠物前期一直提到两大问题 第一是小麦的狗主角如何塑造 第二是把动物灭绝来当主线怎么写
+结果到完结时 这帮菜鸡士大夫表示这题我不会 就不写了 这样硬糊弄过去了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

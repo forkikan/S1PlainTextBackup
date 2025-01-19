@@ -897,3 +897,14 @@ https://wwqs.lanzoue.com/i2DAH2laishc</blockquote>
 话说这游戏怎么调分辨率，我2k显示器，打开游戏只有巴掌大一个小框，游戏里也没有调分辨率的选项。 ...</blockquote>
 [https://github.com/imkuang/WindowResizer](https://github.com/imkuang/WindowResizer)  我用的这个，游戏内只有全屏和巴掌大窗口，用这个能缩放窗口
 
+
+*****
+
+####  ziyuan327  
+##### 83#       发表于 2025-1-19 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225329&amp;ptid=2238139" target="_blank">Whalouse 发表于 2025-1-19 23:46</a>
+
+https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全屏和巴掌大窗口，用这个能缩放窗口 ...</blockquote>
+感谢，我自己摸索，用一个叫Magpie的东西搞定了，也试下你这个效果是否更好。
+
