@@ -879,3 +879,21 @@ https://wwqs.lanzoue.com/i2DAH2laishc</blockquote>
 
 话说这游戏怎么调分辨率，我2k显示器，打开游戏只有巴掌大一个小框，游戏里也没有调分辨率的选项。
 
+
+*****
+
+####  Whalouse  
+##### 81#       发表于 2025-1-19 23:44
+
+塞拉升到34级会有闪退bug，我的无敌平a大哥用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Whalouse  
+##### 82#       发表于 2025-1-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67225200&amp;ptid=2238139" target="_blank">ziyuan327 发表于 2025-1-19 23:29</a>
+
+话说这游戏怎么调分辨率，我2k显示器，打开游戏只有巴掌大一个小框，游戏里也没有调分辨率的选项。 ...</blockquote>
+[https://github.com/imkuang/WindowResizer](https://github.com/imkuang/WindowResizer)  我用的这个，游戏内只有全屏和巴掌大窗口，用这个能缩放窗口
+
