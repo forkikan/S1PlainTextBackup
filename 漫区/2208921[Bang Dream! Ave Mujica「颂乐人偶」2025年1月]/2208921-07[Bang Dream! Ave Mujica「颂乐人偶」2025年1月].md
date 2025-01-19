@@ -11362,3 +11362,55 @@ mortis不是伞也扔了，吉他也丢了。
 
 和風也太爽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 9847#       发表于 2025-1-19 16:08
+
+这啥？？？？
+
+*****
+
+####  AveMujica  
+##### 9848#         楼主| 发表于 2025-1-19 16:11
+
+倾倒世界说是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+24号是周五，第四集播出后有东西要宣？
+
+*****
+
+####  NODY  
+##### 9849#       发表于 2025-1-19 16:13
+
+wsd网店发的而不是邦邦官推发的，说明应该是单纯的新周边系列，不是cd或者其他的什么
+
+*****
+
+####  [皆神孝介]  
+##### 9850#       发表于 2025-1-19 16:13
+
+是要换一套团服吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 9851#       发表于 2025-1-19 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221611&amp;ptid=2208921" target="_blank">狂热飞鸟 发表于 2025-1-19 15:15</a>
+
+观众期望看到的不是一个商业乐队，是有团魂的一辈子乐队。
+
+这点我理解，从感情方面祥子绝对是理亏的，
+
+但 ...</blockquote>
+我刚才想明白了，问题的关键就在这里。
+
+<strong>Ave Mujica的本质到底是商业乐队，还是一辈子乐队。</strong>
+
+站在商业乐队的逻辑上，那无疑是喵梦全责，祥子顶多只有名义上的领导责任；
+
+但是站在一辈子乐队的逻辑上，是祥子先不以真心待喵梦，所以祥子的责任更大。
+
+<strong>迄今为止的争论几乎都混淆了这两件事，可以说是鸡同鸭讲，所以争论不休。</strong>
+

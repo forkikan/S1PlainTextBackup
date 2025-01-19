@@ -865,3 +865,54 @@ owo就是那种非常mean的男的，稍微看过一点就懂了，完全符合�
 
 主播也太真实了⑧，看的越久真人的存在感越强
 
+
+*****
+
+####  TiHaru  
+##### 17870#       发表于 2025-1-19 14:50
+
+基本上就是那个外景视频的带货直播啊，可我买的线上票又没有外景视频看，去哪补呢
+
+*****
+
+####  sino__unnko3  
+##### 17871#       发表于 2025-1-19 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220055&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-1-19 11:59</a>
+你麻bs期间谈的应该是另一个枪男主播，你麻因为要当v出道，就分手了。</blockquote>
+小道消息有来源吗，这么多年一点风声没听到的说(bs期间还在谈这点从时间点上来说无法排除，但是不符合地偶常规逻辑？但之前没有收集到相关的信息)
+主播的说法之前的四位都是因为之前说的不可饶恕的错误，上了death note并分手，就不知道实际是啥情况了，18年圣诞还跟男人出去的说
+
+*****
+
+####  sino__unnko3  
+##### 17872#       发表于 2025-1-19 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221027&amp;ptid=2018830" target="_blank">往世雷书 发表于 2025-1-19 13:54</a>
+主播也太真实了⑧，看的越久真人的存在感越强</blockquote>
+这也是主播昨天的一部分预判<img src="https://p.sda1.dev/21/3a1e18409519d4274854084bcf6f81a3/image.jpg" referrerpolicy="no-referrer">
+不要纠结于所讲述故事的99.9%有没有构建出一个完整的主播
+
+*****
+
+####  shmilyhua  
+##### 17873#       发表于 2025-1-19 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221433&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-1-19 14:50</a>
+基本上就是那个外景视频的带货直播啊，可我买的线上票又没有外景视频看，去哪补呢 ...</blockquote>
+之后会卖DVD，6600yen。
+线下观众里升级票好像有DVD特典，但是到场发放，不过好像提前有个10分钟的线上视频（DVD中不含）可以看。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  往世雷书  
+##### 17874#       发表于 2025-1-19 16:08
+
+<blockquote>sino__unnko3 发表于 2025-1-19 15:24
+这也是主播昨天的一部分预判
+
+不要纠结于所讲述故事的99.9%有没有构建出一个完整的主播 ...</blockquote>
+可惜现在没多少人做切片了，她的这些发言真的非常有价值，浏览下来有触及到她的感觉
+

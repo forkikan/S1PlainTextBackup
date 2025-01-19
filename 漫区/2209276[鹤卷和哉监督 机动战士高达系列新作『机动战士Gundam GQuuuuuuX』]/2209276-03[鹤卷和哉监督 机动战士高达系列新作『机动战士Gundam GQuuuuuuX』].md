@@ -14549,3 +14549,32 @@ ps 主题曲八爷这些的微妙的特别术 可能这就是二次元吧
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  dgugvff  
+##### 4410#       发表于 2025-1-19 16:10
+
+<blockquote>岸波白野扎比子 发表于 2025-1-19 13:20
+高吧不是已经青蒜了吗</blockquote>
+有高吧没清算过的片子吗
+
+
+*****
+
+####  双菜  
+##### 4411#       发表于 2025-1-19 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达吧风向都是阶段性的，种自上映前是种黑上风，种自上映后是种青上风
+
+*****
+
+####  PascalLefèvre  
+##### 4412#       发表于 2025-1-19 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221986&amp;ptid=2209276" target="_blank">dgugvff 发表于 2025-1-19 16:10</a>
+有高吧没清算过的片子吗</blockquote>
+闪哈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
