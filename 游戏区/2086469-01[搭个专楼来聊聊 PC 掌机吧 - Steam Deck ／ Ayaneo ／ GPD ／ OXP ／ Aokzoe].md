@@ -347,3 +347,13 @@ b站有人测试，调教好看起来和6800差不多，顶多差点。性能比
 
 笑死
 
+
+*****
+
+####  requiem116  
+##### 1367#       发表于 2025-1-19 17:23
+
+下单了微星，但是看说很拉跨不如ally
+
+要不要退单呢还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
