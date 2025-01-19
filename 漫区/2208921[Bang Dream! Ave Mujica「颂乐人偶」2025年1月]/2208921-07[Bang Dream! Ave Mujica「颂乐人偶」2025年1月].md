@@ -10557,3 +10557,67 @@ byd这俩里面的圣杯和qb还都是扭曲愿望，绝了
 
 小黄瓜向黑圣杯许愿保住母鸡卡 黑圣杯给了她莫姐
 
+
+*****
+
+####  阿兹尔  
+##### 9785#       发表于 2025-1-19 13:26
+
+说起来组过乐队的人看mygo最喜欢的好像都是立希啊，确实乐队大爹
+
+*****
+
+####  江口夕  
+##### 9786#       发表于 2025-1-19 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于大猫，大祥已经给了不少了，大猫不知足罢了，大猫说自己不会退团这里就能看出来，大猫对之前还是满足的，但是还是很贪心
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 9787#       发表于 2025-1-19 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220758&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-1-19 13:21</a>
+
+爱音台上卡壳的时候soyo还在帮忙圆场。在我看有她想赶走爱音猫猫的想法最多停留在口头上，连犯罪未遂都有点 ...</blockquote>
+不是这样的，夹子形态Soyo是重度讨好型人格，尽可能迎合对方几乎是底层逻辑，连灯都能给她拉上台，下跪求人就是她的极限了，所以Soyo自己绝不动手，而是撺掇/PUA别人帮自己达到目的
+
+对Soyo来说，用惊世智慧编织计谋针对对方，和在对方面前继续维持温柔妈妈形象并不矛盾
+
+
+*****
+
+####  takerest  
+##### 9788#       发表于 2025-1-19 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219596&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-19 10:54</a>
+
+碰頭就碰頭了，很重要嗎，劇情的重點肯定是團內5人的故事。
+
+是初華 睦 海鈴 喵夢 祥子 這5個角色要成為一 ...</blockquote>
+动画没出完前话别说太死<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 9789#       发表于 2025-1-19 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220749&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-19 13:20</a>
+莫提斯就是装好人再吞噬的经典反派那套
+如果制作组要刻画莫提斯是好的，最后就不是吞噬了，而是撑起伞保 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天都晴了还撑什么伞
+伞不是应该用来保护祥子的吗
+
+*****
+
+####  江口夕  
+##### 9790#       发表于 2025-1-19 13:36
+
+然后这集mortis给睦雨中送伞其实就是，睦给大祥送伞那一幕，伞也是一样的。这里能说道的也很多。
+这里同样也是mortis帮睦但是其实是想吞噬睦。可以说是mortis自身的自我满足。
+如果后面睦能意识到这点估计能完成自我拯救
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
