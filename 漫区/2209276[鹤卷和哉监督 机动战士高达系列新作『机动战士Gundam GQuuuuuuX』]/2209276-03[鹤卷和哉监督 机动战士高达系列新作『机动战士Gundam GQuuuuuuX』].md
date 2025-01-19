@@ -13842,3 +13842,11 @@ NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https:/
 说是能把民用ms的系统调整回军用系统，但是红高达理论上不存在这个问题啊？不知道买这个干啥 ...</blockquote>
 可能所有ms默认都是民用系统，只有装了回路才能军用
 
+
+*****
+
+####  创始’’’天翔  
+##### 4331#       发表于 2025-1-19 12:14
+
+讨论环境差？只要等到《高达正在尊重我》视频发布，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
