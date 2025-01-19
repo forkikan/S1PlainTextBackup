@@ -9901,3 +9901,82 @@ Kakimoto: This anime serves as a sequel to the TV anime BanG Dream! It’s MyGO!
 两者都是前 ...</blockquote>
 瞄梦有个劣势，主视角有很多在爱音这边，某种意义来说第一个篇章说灯是男主，爱音是女主（<strong>非cp意义上</strong>）并无大的不妥，爱音甚至有很多搞笑的心理活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，观众们大体知道爱音是没有什么坏心思（否则也不会经常把爱音和隔壁的安做对比说比较像了，圣爱音这个说法也时不时流行），而go团这边，除了祥子的角色似乎高一些，其他人目前是差不多的，现在是若叶的主场所以看上去倾斜她，但是迟早一个个轮流过去
 
+
+*****
+
+####  IWS2000  
+##### 9725#       发表于 2025-1-19 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219894&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-19 11:35</a>
+瞄梦有个劣势，主视角有很多在爱音这边，某种意义来说第一个篇章说灯是男主，爱音是女主（非cp意义上）并 ...</blockquote>
+难说，立希和乐奈就没多倾斜，要多讲喵梦只能牺牲海玲了
+
+*****
+
+####  DARK_HGCG  
+##### 9726#       发表于 2025-1-19 11:46
+
+<blockquote>aptx8285144 发表于 2025-1-19 11:35
+瞄梦有个劣势，主视角有很多在爱音这边，某种意义来说第一个篇章说灯是男主，爱音是女主（非cp意义上）并 ...</blockquote>
+我倒觉得爱音是男主
+
+*****
+
+####  北条早苗  
+##### 9727#       发表于 2025-1-19 11:47
+
+监督那不就是普通**径，总不能说不看完13集卖狗不配看母鸡卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这片如果不是gojica第16集，只是mujica第3集那不就是闹麻了
+
+*****
+
+####  刑部姬真可爱  
+##### 9728#       发表于 2025-1-19 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219867&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-19 11:31</a>
+
+完了呀那這下監督也是切割派了畢竟他說的</blockquote>
+监督说什么就是什么，所以你为什么不先在本楼表态和过去看过mygo的自己切割呢？
+
+就人家监督说这话可以理解为希望新观众不要有“没看过mygo能不能看mujica”的心理负担，给mujica涨涨热度关注度，作为鸡团粉丝就非得理解为我们mujica和mygo无关不看mygo也无所谓？
+
+那我想请问了，假如有新人想知道ras是怎么组建起来的，你会推荐只看bangdream动画第三季然后告诉他看不看第二季也无所谓吗？
+
+mygo无论如何都只是四个小时多长度的动画，又不是说什么制作的很烂，鸡团的成员也是有很多出场，我是不能理解为什么要把mujica当作非常独立的动画来看待的
+
+*****
+
+####  aptx8285144  
+##### 9729#       发表于 2025-1-19 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219945&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-19 11:45</a>
+
+难说，立希和乐奈就没多倾斜，要多讲喵梦只能牺牲海玲了</blockquote>
+猫猫确实没有太多笔墨，立希一定程度上成了灯和爱音各自视角背后的男人（大雾），我们被人（爽女士）欺负了，打电话叫人jpg
+
+
+*****
+
+####  哈曼的YY  
+##### 9730#       发表于 2025-1-19 11:53
+
+卖狗前期还有些搞笑的心理活动和黑线流汗之类的夸张搞笑表现手法 后面全没了
+
+母鸡卡从一开始就没有吧
+
+<img src="https://img.saraba1st.com/forum/202501/19/115214ytttmyfpa3tp7iiv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-19-11-50-00-37_149003a2d400f6adb210d7e357a3a646.jpg</strong> (251.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/115316rbzxbs3v3uzvxiyu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-19-11-53-03-67_149003a2d400f6adb210d7e357a3a646.jpg</strong> (237.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 11:53 上传
+

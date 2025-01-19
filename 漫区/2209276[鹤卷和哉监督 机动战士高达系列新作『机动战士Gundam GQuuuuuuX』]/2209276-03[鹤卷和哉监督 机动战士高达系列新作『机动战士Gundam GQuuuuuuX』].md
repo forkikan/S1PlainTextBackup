@@ -13812,3 +13812,22 @@ NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https:/
 说是能把民用ms的系统调整回军用系统，但是红高达理论上不存在这个问题啊？不知道买这个干啥 ...</blockquote>
 操作系统被炸坏了换成民用系统，再调整回军用系统吧
 
+
+*****
+
+####  Piano-Forest  
+##### 4329#         楼主| 发表于 2025-1-19 11:51
+
+[https://x.com/egocoroking/status/1880784958597582864](https://x.com/egocoroking/status/1880784958597582864)
+
+劇場先行版
+
+機動戦士Gundam GQuuuuuuX-Beginning-
+
+全国劇場にて公開中！
+
+完全に紙から離れ、慣れないデジタルを修行しながら作画しております
+
+💪何卒
+<img src="https://p.sda1.dev/21/230da9531c2e17d9dcdf4d7d35def41d/20250119_115015.jpg" referrerpolicy="no-referrer">
+
