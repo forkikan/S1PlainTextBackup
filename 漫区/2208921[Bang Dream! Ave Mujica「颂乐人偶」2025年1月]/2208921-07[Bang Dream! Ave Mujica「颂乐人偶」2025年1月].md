@@ -9471,3 +9471,22 @@ https://m.twitch.tv/gigguk
 感觉猫虽然底气足，有逻辑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不要太在乎大部分mmr的大喵吵架“完胜”论，mmr的已经把分锅大会当作mujica的底层逻辑
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 9689#       发表于 2025-1-19 10:06
+
+认为喵梦完胜不就是因为祥子吃瘪了吗
+
+然而喵梦的诉求“演观众想看的”这点根本没实现 属于气势上赢了罢了
+
+*****
+
+####  黑夜落叶秋天  
+##### 9690#       发表于 2025-1-19 10:09
+
+然而访谈的时候还说过没看过mygo的也能直接看mujica 
+
+官方并没有真把mujica当做mygo的续作来处理
+
