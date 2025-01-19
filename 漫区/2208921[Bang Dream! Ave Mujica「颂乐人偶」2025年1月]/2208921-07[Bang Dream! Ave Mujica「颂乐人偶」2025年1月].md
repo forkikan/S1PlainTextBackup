@@ -11243,3 +11243,51 @@ https://ngabbs.com/read.php?tid=43062204
 
 顺便，私交在好也比不上公众关系的绑定有用，当你们的关系是暴露在大众视野下的时候，有些东西才变得唾手可得，之前那个状态喵梦再努力再有能力也没办法真跨过那个坎，你这就像是在质疑阶级固化的社会一个出身贫寒的人为什么不努力。
 
+
+*****
+
+####  狂热飞鸟  
+##### 9838#       发表于 2025-1-19 15:23
+
+ 本帖最后由 狂热飞鸟 于 2025-1-19 15:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221622&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-19 15:16</a>
+
+就你看事情要分角度看好吧，在喵梦的角度，她是自取大饼，在祥子的角度，她是背叛祥子，站在上帝视角，她 ...</blockquote>
+我大概理解你的思路方向了，喵自己眼中是自取大饼我没问题的。但我认为上帝视角祥子行为不是画饼。
+
+你这就像是在质疑一个出身贫寒的人为什么不努力，这点我要解释下
+
+能见到面却没搭线真的是能力问题，能否见到面是出身会限制的，但能见面就是给了平台，搭线就是能力的体现了
+
+*****
+
+####  loneyuki  
+##### 9839#       发表于 2025-1-19 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221600&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-19 15:13</a>
+
+大家活太多了
+
+大女主这点，我去隔壁nga看了看，有人线下拉横幅，小红书，还提到了s1百综楼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不是纵排的挂轴吗 怎么能叫横幅 那帖子里倒是还真有一个拉横着的红条幅的
+
+*****
+
+####  阿兹尔  
+##### 9840#       发表于 2025-1-19 15:25
+
+<blockquote>木板春香 发表于 2025-1-19 15:16
+你这如蜜传如蜜啊，S1百综的人拉的横幅你要去NGA看 确实搞笑的</blockquote>
+因为不止s1百综的啊，虽然人家确实抽象，但是也不都是s1百综的锅吧，有个汇总确实好些
+
+
+*****
+
+####  木板春香  
+##### 9841#       发表于 2025-1-19 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221694&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-19 15:25</a>
+
+因为不止s1百综的啊，虽然人家确实抽象，但是也不都是s1百综的锅吧，有个汇总确实好些 ...</blockquote>
+[https://bbs.saraba1st.com/2b/for ... ;page=5#pid67099661](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2236454&amp;page=5#pid67099661)
+
