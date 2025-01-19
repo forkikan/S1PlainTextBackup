@@ -11448,3 +11448,59 @@ wsd网店发的而不是邦邦官推发的，说明应该是单纯的新周边�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  玖羽  
+##### 9854#       发表于 2025-1-19 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222096&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-19 16:25</a>
+
+说这么多，观众要的并不是大祥口头答应的，大祥答应大猫的就是商业乐队，但是大祥商业方针上有自己的追求就 ...</blockquote>
+你说得对，但还是那句话，这不是打官司，跟祥子能不能打赢官司没有关系
+
+就算是你，也不可能纯粹以商业乐队的逻辑看Ave Mujica，恕我直言，要是真拿商业乐队的逻辑去看，问题就不止是这么一点了
+
+说白了就是，你不能只在对自己有利的时候使用商业乐队的逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 9855#       发表于 2025-1-19 16:33
+
+[https://img.nga.178.com/attachme ... 7ry7KrT1kS9f-7k.jpg](https://img.nga.178.com/attachments/mon_202501/19/-9lddQ1a0-7ry7KrT1kS9f-7k.jpg)
+
+
+*****
+
+####  友情的结晶  
+##### 9856#       发表于 2025-1-19 16:34
+
+mygo播出之后的第一张mujica视觉图里祥子确实很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，毕竟她一个人怀里抱着四个人偶。而且比如op、开播前的鬼图炒作等各路场外内容里祥子确实比其他团的c位显得更特别
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  凉良  
+##### 9857#       发表于 2025-1-19 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222168&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-1-19 16:34</a>
+
+mygo播出之后的第一张mujica视觉图里祥子确实很大，毕竟她一个人怀里抱着四个人偶。而且比如op、开播前的鬼 ...</blockquote>
+大女主和女主的意思是不一样的 祥子是女主我觉得没啥问题。
+
+*****
+
+####  山ノ内花音  
+##### 9858#       发表于 2025-1-19 16:35
+
+不会是沟槽的国风丸子头吧
+
+*****
+
+####  08df1258c5ed098  
+##### 9859#       发表于 2025-1-19 16:37
+
+不知道从开盒到今天过了多久没接过警局捞人电话了，牢爹是不是也在一个人默默努力。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

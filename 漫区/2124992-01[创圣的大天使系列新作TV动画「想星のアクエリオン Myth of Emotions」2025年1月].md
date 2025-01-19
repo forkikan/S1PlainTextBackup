@@ -2095,3 +2095,11 @@ EVOL人设女的好看，男的美型。剧情又乐，如果找找乐子我推�
 
 我就是因为这个图看创圣的. 连机战都没让我产生看的冲动.
 
+
+*****
+
+####  创始’’’天翔  
+##### 218#       发表于 2025-1-19 16:34
+
+evol看着是比无印乐的，创圣除了机设就不是啥正经片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

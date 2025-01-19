@@ -187,3 +187,13 @@ B站上看有个人说的挺好的，菲斯特是那种“伴侣型角色”，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  苇原雪道  
+##### 959#       发表于 2025-1-19 16:30
+
+路人，第一次看到消息就是关服<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，随便看了一下，建模画风真的不错啊，正统二刺螈。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

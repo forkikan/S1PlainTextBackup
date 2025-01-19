@@ -14594,3 +14594,22 @@ ps 主题曲八爷这些的微妙的特别术 可能这就是二次元吧
 
 等年中你代财报吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 4415#       发表于 2025-1-19 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222037&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-19 16:16</a>
+闪哈
+
+—— 来自 S1Fun</blockquote>
+上映前和刚上映的时候还是青蒜过的<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dgugvff  
+##### 4416#       发表于 2025-1-19 16:37
+
+不是啊，不是有一个模型销售排行榜一周的吗看那个就行了。
+
