@@ -10143,3 +10143,95 @@ mygo无论如何都只是四个小时多长度的动画，又不是说什么制�
 
 我是对mygo五人完全没感觉的一派，二刷都只看祥子出场片段的，但是没看mygo也不会喜欢上祥子，连基本的背景信息前因后果的都了解不全，不知道有什么可切的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 9746#       发表于 2025-1-19 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220213&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-19 12:19</a>
+解谜不是很多，睦怎么认识大祥的，小时候具体怎么样，现在还是模棱两可。
+
+—— 来自 Xiaomi 23113RKC6C, A ...</blockquote>
+目前可以看出来的是人偶用来代替睦，但正片目前看不出来
+<img src="https://p.sda1.dev/21/0772c8494430fa3da233e71e5bbc233b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f7585f914af5c5e451ea01374e39f2a6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Nana7ue  
+##### 9747#       发表于 2025-1-19 12:27
+
+<blockquote>江口夕 发表于 2025-1-19 12:19
+解谜不是很多，睦怎么认识大祥的，小时候具体怎么样，现在还是模棱两可。
+
+—— 来自 Xiaomi 23113RKC6C, A ...</blockquote>
+对啊！她俩互相眼里的对方很关键，很想看
+
+*****
+
+####  御幸一也  
+##### 9748#       发表于 2025-1-19 12:27
+
+說白了，mygo動畫本身的主線是mygo這個團的成團故事，劇場版都能把avemujica的所有登場剪走大量弄純淨版mygo動畫了。
+
+那麼回到看ave mujica動畫前是否必須看mygo動畫，這確實現在沒法有個結論。
+
+畢竟誰也不知道mujica動畫的主線會怎麼走，說不定有大量CCC的內容呢，或者mygo的成員高強度參與，
+
+那確實必須要看mygo了解一下什麼情況。
+
+但如果mujica動畫的主線和mygo動畫一樣，是5個成員如何真正走到一起的故事，
+
+那好像確實不是必須要先看mygo動畫才能看mujica動畫吧。
+
+當然咯，看了mygo體驗會更好，只是<strong>不是必須</strong>而已。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 9749#       发表于 2025-1-19 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220281&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-19 12:26</a>
+目前可以看出来的是人偶用来代替睦，但正片目前看不出来</blockquote>
+和人偶没关系，小时候能说会笑跟人偶哪来的关系。在大祥眼里睦也不是人偶，只是不想演戏后沉默寡言
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  江口夕  
+##### 9750#       发表于 2025-1-19 12:33
+
+大祥只有一点是不知道的，就是睦说玩乐队不开心时候大祥不在场，大祥根本不知道睦会内疚。所以在大祥的视角，睦是不会有ptsd的，所以争吵那段大祥说过头了，不能以睦的状态来倒推祥子的责任，并且祥子察觉自己说过了也后悔了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 9751#       发表于 2025-1-19 12:34
+
+考虑到木头和祥子互为半身的关系，再结合神明与造物的意象，有没有可能说明这种塑造的关系从一开始就是双向的，愚神不单指祥子也是指木头，毕竟ED里的木头才是上帝位<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 9752#       发表于 2025-1-19 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220139&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-19 12:09</a>
+
+个人觉得
+
+喵梦看得出睦头人的困境
+
+也愿意给她解决方法</blockquote>
+能看，但只看到了一部分
+
+解决办法倒是没看出来她有
+
+只能说现在喵梦这角色塑造比祥子还更加走钢丝
+
