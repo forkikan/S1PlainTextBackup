@@ -12076,3 +12076,24 @@ CHATGPT还是差点意思。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 9910#       发表于 2025-1-19 21:14
+
+<img src="https://pbs.twimg.com/media/GhpoaOYbEAAdLhp?format=jpg&amp;name=large" id="aimg_UVj4Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+https://x.com/oda_ya_ka/status/1880930757746762150
+
+*****
+
+####  ntrntr1  
+##### 9911#       发表于 2025-1-19 21:15
+
+<blockquote>mono 发表于 2025-1-19 17:32
+喵梦搞乐队不为音乐 不为女人 也不为乐队 算一种纯粹的人了</blockquote>
+不过我觉得喵梦说不定是喜欢音乐的
+
+毕竟一个手头拮据的人选择打鼓多半就是因为喜欢吧，这玩意又不便宜，又占位置，又费体力，只想出风头买个吉他不就好了，虽然其他位置喵梦肯定在母鸡卡排不上号，但祥子这么有音乐追求的人，会选上喵梦肯定不会就只因为她是个网红吧，肯定之前就练过了
+
