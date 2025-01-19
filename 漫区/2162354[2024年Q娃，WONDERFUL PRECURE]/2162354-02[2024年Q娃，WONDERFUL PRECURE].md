@@ -20,3 +20,40 @@
 <img src="https://p.sda1.dev/21/d72c29499541a8ffb1c84e33bb7376d8/1000008329.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/eb4ba50fc4568a04bd9cab86a5434532/1000008330.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 2721#       发表于 2025-1-18 22:02
+
+第49話　あなたの声
+
+脚本：成田良美
+
+演出：畑野森生
+
+作画監督：玖遠らぎ
+
+美術：徐柱星
+
+スバルによって、かつてのような深い森に包まれたアニマルタウン。スバルはダイヤモンドユニコーンと鏡石の力を使ってガオウをよみがえらせようとするが、鏡石は反応しない。遠吠えを聞いてこむぎ（CV.長縄まりあ）たちとスバルのもとにやってきたニコは、「一度終えた命をよみがえらせることはできない」とスバルに語りかけるが、スバルは怒りのあまり鏡石を打ち砕き、ニコダイヤを取り込んで巨大なオオカミへと変身する。こむぎたちもプリキュアに変身し、攻撃をかわしながらスバルを説得しようとするが、フレンディ（CV.種﨑敦美）をかばい、ワンダフルが直撃を受けてしまう。変身が解け、犬の姿で苦しむこむぎにかつてのガオウを重ねあわせ、動揺するスバル。暴走するスバルの力が森を破壊していく中、フレンディは必死にこむぎへ呼びかける。
+<img src="https://p.sda1.dev/21/8692a0bd5a1a52fd8a27f943bb1c8be3/1000008327.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/02ba6109e619dfc13fc84ec28cfc4a60/1000008328.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d72c29499541a8ffb1c84e33bb7376d8/1000008329.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/eb4ba50fc4568a04bd9cab86a5434532/1000008330.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2722#       发表于 2025-1-19 08:18
+
+ 本帖最后由 jaewoongh_ 于 2025-1-19 08:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">为什么反派的压迫感来自于疯狂的自残，虽然这剧情完全经不起细究但气势上已经输了啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">主角团也相当幽默，小麦被打得再起不能，然后反派破防了，有你们这样的吗，你们对得起前辈吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">大福果然还是变了，至少没有cure字段，也不错
+
+这集好不容易有了点人狗关系性，OP塞了那么多你总得体现一下吧，然后成田表示彩叶&amp;小麦对标噶嗷&amp;斯巴鲁，好low
+
