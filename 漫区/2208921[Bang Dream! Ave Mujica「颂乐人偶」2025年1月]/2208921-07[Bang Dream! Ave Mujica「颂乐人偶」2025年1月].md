@@ -11316,3 +11316,49 @@ https://ngabbs.com/read.php?tid=43062204
 https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2236454&amp;page=5#pid67099661</blockquote>
 里面还有小红书的，有些人真的是这样想的，不能怪祥子，有些粉丝上头了而已
 
+
+*****
+
+####  sauron.j  
+##### 9844#       发表于 2025-1-19 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67220932&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-19 13:42</a>
+
+mortis不是伞也扔了，吉他也丢了。
+
+哪怕从2.5企划来讲其实已经剧透了，mortis就是要舍弃的东西，是反派。 ...</blockquote>
+如果也是按照mygo的路径走，五个人最后还是本性难移，只是找到了团魂可以凑合着一起过日子
+
+
+*****
+
+####  御幸一也  
+##### 9845#       发表于 2025-1-19 16:06
+
+什麼東西<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 
+
+[https://x.com/BushiM_info/status/1880887925895745742](https://x.com/BushiM_info/status/1880887925895745742)
+
+<img src="https://img.saraba1st.com/forum/202501/19/160558pu62zr8biyph7k8s.jpg" referrerpolicy="no-referrer">
+
+<strong>bfc51def-1a0a-415f-93d0-9f250af85ccb.jpg</strong> (10.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202501/19/160559rk4004rqib3k73fk.jpg" referrerpolicy="no-referrer">
+
+<strong>GhZE0JJbgAEdnyL.jpg</strong> (192.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 16:05 上传
+
+*****
+
+####  御幸一也  
+##### 9846#       发表于 2025-1-19 16:07
+
+和風也太爽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

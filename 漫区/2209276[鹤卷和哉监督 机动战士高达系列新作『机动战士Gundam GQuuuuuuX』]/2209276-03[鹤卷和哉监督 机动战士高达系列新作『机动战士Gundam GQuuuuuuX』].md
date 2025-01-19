@@ -14539,3 +14539,13 @@ ps 主题曲八爷这些的微妙的特别术 可能这就是二次元吧
 
 这次其实挺抓眼的，结果开局先来一闷棍
 
+
+*****
+
+####  drrrrrrrr  
+##### 4409#       发表于 2025-1-19 16:00
+
+去看完了，比预期好很多。不敢想要是一点剧透都没看，看完得多震惊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
