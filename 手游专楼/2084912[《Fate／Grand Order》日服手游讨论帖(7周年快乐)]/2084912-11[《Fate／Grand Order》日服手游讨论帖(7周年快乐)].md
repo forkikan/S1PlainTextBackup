@@ -11144,3 +11144,26 @@ TMD 太狗了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 16136#       发表于 2025-1-19 18:22
+
+<blockquote>シャル 发表于 2025-1-15 21:07
+噢，本子猜おみぃさん真名了，三井寺の蛇女房
+
+白蛇，独眼，低神格
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/19/182041bot305ac5mc0m5am.png" referrerpolicy="no-referrer">
+
+<strong>1737281932277.png</strong> (252.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-19 18:20 上传
+
+果然是蛇女房，这帮考据大神太牛了，真名看破EX。
+

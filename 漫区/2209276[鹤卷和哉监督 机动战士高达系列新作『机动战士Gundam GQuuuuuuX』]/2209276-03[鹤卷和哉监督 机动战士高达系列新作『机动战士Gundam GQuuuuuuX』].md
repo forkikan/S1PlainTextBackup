@@ -14867,3 +14867,48 @@ ps 主题 ...</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202501/19/181408s2pka23zsqqbpp7a.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  线程召唤使  
+##### 4437#       发表于 2025-1-19 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222824&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-19 18:14</a>
+
+按这个访谈，看来这个平行宇宙至少还有五台高达了</blockquote>
+通通加入黑拳竞赛嘿嘿
+
+*****
+
+####  YU_JI  
+##### 4438#       发表于 2025-1-19 18:20
+
+<img src="https://img.saraba1st.com/forum/202501/19/182003r198z8vstsuuevg1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3656.png</strong> (207.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 18:20 上传
+
+按照周边信息，小螃蟹好像叫戈奇？
+
+*****
+
+####  YU_JI  
+##### 4439#       发表于 2025-1-19 18:21
+
+<blockquote>g救世主高达 发表于 2025-1-19 18:14
+按这个访谈，看来这个平行宇宙至少还有五台高达了</blockquote>
+这个应该废案了吧，不然访谈不会这么**方方说出来的
+
+*****
+
+####  刺客ares  
+##### 4440#       发表于 2025-1-19 18:21
+
+ 本帖最后由 刺客ares 于 2025-1-19 18:22 编辑 
+<blockquote>g救世主高达 发表于 2025-1-19 18:14
+按这个访谈，看来这个平行宇宙至少还有五台高达了</blockquote>
+会在访谈说出来感觉就不会用这个设定了吧，不然不是直接剧透了吗，初版的企划书还叫真·高达呢
+
