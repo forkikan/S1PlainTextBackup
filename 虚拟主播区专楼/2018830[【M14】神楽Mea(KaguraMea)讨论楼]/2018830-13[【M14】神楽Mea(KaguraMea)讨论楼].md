@@ -916,3 +916,58 @@ owo就是那种非常mean的男的，稍微看过一点就懂了，完全符合�
 不要纠结于所讲述故事的99.9%有没有构建出一个完整的主播 ...</blockquote>
 可惜现在没多少人做切片了，她的这些发言真的非常有价值，浏览下来有触及到她的感觉
 
+
+*****
+
+####  秋游刃  
+##### 17875#       发表于 2025-1-19 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221471&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-1-19 14:55</a>
+
+小道消息有来源吗，这么多年一点风声没听到的说(bs期间还在谈这点从时间点上来说无法排除，但是不符合地 ...</blockquote>
+你麻有个加的全是游戏好友的推特小号，现已注销。但那男的回复还是能看见的，回复的内容大都挺轻佻的。然后你麻出道前，那男的回复是：让人知道你有男朋友的话就太吓人了，再见。
+
+大概就是这么推测的。
+
+*****
+
+####  sino__unnko3  
+##### 17876#       发表于 2025-1-19 19:33
+
+ 本帖最后由 sino__unnko3 于 2025-1-19 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223223&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-1-19 19:27</a>
+你麻有个加的全是游戏好友的推特小号，现已注销。但那男的回复还是能看见的，回复的内容大都挺轻佻的。然 ...</blockquote>
+来个链接/id，之前完全没溯源到
+(这人几个小号啊，7年了还没挖完，我之前还挖偏了)
+
+*****
+
+####  秋游刃  
+##### 17877#       发表于 2025-1-19 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223267&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-1-19 19:33</a>
+
+来个链接/id，之前完全没溯源到
+
+(这人几个小号啊，7年了还没挖完，我之前还挖偏了) ...</blockquote>
+推特改版后搜索越来越难用，好多都搜不到了
+
+*****
+
+####  秋游刃  
+##### 17878#       发表于 2025-1-19 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223267&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-1-19 19:33</a>
+
+来个链接/id，之前完全没溯源到
+
+(这人几个小号啊，7年了还没挖完，我之前还挖偏了) ...</blockquote>
+数了一下，大概13个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 17879#       发表于 2025-1-19 20:41
+
+混ぜ郎确实不是个东西啊，修出电了都
+
