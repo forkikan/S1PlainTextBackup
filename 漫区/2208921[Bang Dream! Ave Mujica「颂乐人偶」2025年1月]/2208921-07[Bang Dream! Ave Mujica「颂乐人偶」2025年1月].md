@@ -9814,3 +9814,32 @@ Kakimoto: This anime serves as a sequel to the TV anime BanG Dream! It’s MyGO!
 
 除非是mana主动要求解散或者事务所压力不得不散，不然sumimi不可能解散的，初华要是把sumimi散了去搞am形象会直跌谷底，反正兼任也没啥问题mana也没意见
 
+
+*****
+
+####  杂灰  
+##### 9717#       发表于 2025-1-19 11:19
+
+欧美对go的评价压根就不差，单纯是没什么人看而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半年  
+##### 9718#       发表于 2025-1-19 11:24
+
+<img src="https://p.sda1.dev/21/a5b43608f6c869ce73e639c9fda0f6a3/GhoAPIDWIAARF2O.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Raito_Taisha/status/1880816057692414106/photo/1](https://x.com/Raito_Taisha/status/1880816057692414106/photo/1)
+
+*****
+
+####  天空塔书记官  
+##### 9719#       发表于 2025-1-19 11:25
+
+现在讲迷子和A团切割，无疑于在第二三季切割PPP和RAS，更何况mygo和ave从一开始就是绑定在一起的，所以这切割还有什么意义，ave是要脱离邦世界自己出游戏吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

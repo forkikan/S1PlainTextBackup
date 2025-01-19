@@ -13746,3 +13746,24 @@ b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发�
 所以牢修该不会刚被传送过来没多久武器配置还是当年夏亚凉凉的时候的 而且看牢修也不像w五人组一样反侦察拉 ...</blockquote>
 NT自带反侦察，而且W五小强藏高达就是盖一块布<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 4323#       发表于 2025-1-19 11:15
+
+对了，有一点没搞清楚，牢修为什么要找喵安买那块回路？红元祖需要那个东西吗？
+
+*****
+
+####  Sliurus  
+##### 4324#       发表于 2025-1-19 11:23
+
+ 本帖最后由 Sliurus 于 2025-1-19 11:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219753&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-19 11:15</a>
+
+对了，有一点没搞清楚，牢修为什么要找喵安买那块回路？红元祖需要那个东西吗？ ...</blockquote>
+被美少女卖茶叶了（确信）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可能这个世界线的提姆雷回路是个正常的强化装置
+
