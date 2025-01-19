@@ -219,3 +219,17 @@ q娃粉丝里最不能交流的就是法q厨子，吹的永远就是49话最感�
 
 只要大福人形以及和剧场版悟同学变身形态能在正片出现 炒热度 终战整什么样就无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2737#       发表于 2025-1-19 18:32
+
+War, war never change<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+汪Q我只能说主线剧情一言难尽真的有些微妙（这属于选题问题，先天无解的），绝对算不上多优秀，但单元回的质量还是很能打的，主角团的形象塑造和关系变化算得上优秀。
+
+比起去年天空中后期的折磨来说汪宠可有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+法Q1的剧情以49话为基础倒推回去的话不存在水剧情的问题。Staff对作品的爱是对续作类作品的质量的下限保证，核心Staff对作品没爱看看隔壁DM的Tri-Lek-02TB三连做了个什么出来，看看前年鹫尾P搞事的希望之力搞出了一坨什么就明白了。
+
