@@ -14138,3 +14138,48 @@ pjsk商法很逆天的，要想领全奖励得看26遍电影/买26张票
 
 不管萌新，还是遗老你总得选一样吧。两头都悬在空中
 
+
+*****
+
+####  猪突猛进R  
+##### 4365#       发表于 2025-1-19 14:14
+
+看到个笑话：
+
+原作基连给卡尔玛办过国葬，新高达夏亚立了这么大功，不会也办个国葬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyhman  
+##### 4366#       发表于 2025-1-19 14:14
+
+所以周六到底卖了多少票，周日呢？ 还是指望0085部分能够精彩，让TVA部分有个好口碑吧
+
+另外想问问，400馆成本很高吗？为啥我看有人说这些只是宣传的一部分，票房根本不重要
+
+*****
+
+####  pu  
+##### 4367#       发表于 2025-1-19 14:15
+
+不懂为啥说遗老不喜欢 至少这个电影是喜欢的 
+
+*****
+
+####  PascalLefèvre  
+##### 4368#       发表于 2025-1-19 14:16
+
+历史经验就是不要帮万代担心他赚不到钱<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猪突猛进R  
+##### 4369#       发表于 2025-1-19 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67221166&amp;ptid=2209276" target="_blank">pu 发表于 2025-1-19 14:15</a>
+
+不懂为啥说遗老不喜欢 至少这个电影是喜欢的</blockquote>
+遗老多半喜欢，但这个宣传手法实在不敢苟同。
+

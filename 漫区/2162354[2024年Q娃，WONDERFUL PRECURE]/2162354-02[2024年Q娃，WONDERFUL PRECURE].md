@@ -160,3 +160,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上那俩小号谁不知道是豚楼串子外溢，之前懒得搭理你们现在跑出来借题发挥了
 
+
+*****
+
+####  jaewoongh_  
+##### 2732#       发表于 2025-1-19 14:10
+
+另外楼上比厨力的也是个逆天，你可以说高桥和成田糊弄，但你也不能一杆子打死其他人啊，总不能有续作就天生高人一等吧
+
