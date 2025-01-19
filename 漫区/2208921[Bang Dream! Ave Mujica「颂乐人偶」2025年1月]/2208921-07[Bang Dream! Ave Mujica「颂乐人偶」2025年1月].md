@@ -9404,3 +9404,40 @@ CHATGPT还是缺点灵魂。<img src="https://static.saraba1st.com/image/smiley/
 场景：一个周末的午后，真奈拎着一盒甜甜圈，兴冲冲地来到初华的家门口，准备给她一个惊喜。门铃响起后，开 ...</blockquote>
 把括号里的去掉，让各路懂哥万字解析
 
+
+*****
+
+####  御幸一也  
+##### 9684#       发表于 2025-1-19 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217510&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-18 23:36</a>
+
+一对一谈心连续演五次这种走法只会让剧本看起来很蠢
+
+就像go第十集灯实际上只拉了爱爽两个人，另外两个是自 ...</blockquote>
+可能夢裡的mygo第二季會有這種戲碼嗎，可惜這是『BanG Dream! Ave Mujica』呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 9685#       发表于 2025-1-19 09:53
+
+ave就是mygo的第二季啊，迷子和A团是双子团，故事的基点和根源都在CCC<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  御幸一也  
+##### 9686#       发表于 2025-1-19 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67218715&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-19 05:27</a>
+
+找了一下原文好像是这样
+
+“有些角色在今后的剧情发展中有一些难以演绎的部分，所以我不得不提前透露一些 ...</blockquote>
+你這個理解是錯的，原文就是“僅對高尾保密”的意思。
+
+劇本裡有一件事高尾知道了之後會影響她的發揮，所以下了封口令。
+

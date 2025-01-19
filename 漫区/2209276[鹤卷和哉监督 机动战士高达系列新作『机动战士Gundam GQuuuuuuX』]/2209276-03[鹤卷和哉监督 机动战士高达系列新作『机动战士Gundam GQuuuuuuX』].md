@@ -13666,3 +13666,28 @@ b吧都逛了一圈，这部目前的国内讨论环境简直是烂到令人发�
 
 能带动年轻人去看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 4314#       发表于 2025-1-19 09:40
+
+律师这首曲子其实不怎么好听<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4315#       发表于 2025-1-19 09:45
+
+作为一个十年……哦不对十年前居然是2015年 十几年前就开始听hachi的听众
+他开始tie动画以来我最喜欢的依然是三狮的orion。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  0aleph37  
+##### 4316#       发表于 2025-1-19 09:48
+
+编曲不错，唱的一般
+
