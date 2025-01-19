@@ -11872,3 +11872,14 @@ Plateau人
 
 <img src="https://img.saraba1st.com/forum/202501/19/193337w7ka0ysq7e96hq7y.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 9893#       发表于 2025-1-19 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67223276&amp;ptid=2208921" target="_blank">NOYURINOLIFE 发表于 2025-1-19 19:34</a>
+看到个挺有趣的评论</blockquote>
+这假药没啥意义，现在更可能是mujica世界观是祥子和睦甚至包括祥妈一起搞出来的，ob一串字母和莫提斯是祥子和睦搞的自己的角色
+这个幻想朋友更恐怖了，直接说睦从小就带点病，然而睦童年还有祥子呢
+
