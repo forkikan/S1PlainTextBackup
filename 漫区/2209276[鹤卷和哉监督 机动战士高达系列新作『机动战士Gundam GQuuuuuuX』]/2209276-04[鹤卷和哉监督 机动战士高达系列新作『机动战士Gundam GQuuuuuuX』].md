@@ -622,3 +622,39 @@ https://bbs.nga.cn/read.php?tid=43067396 nga佬写的观后感 蛮有意思的�
 
 管人的歌没提过什么时候出的消息
 
+
+*****
+
+####  jojonathan  
+##### 4504#       发表于 2025-1-19 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224967&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-19 23:01</a>
+才40分钟连主线都不清楚的时候就写下长篇大论，跟以前靠丁点东西写八股文的一样。
+
+看着吧，只要以后剧情 ...</blockquote>
+没人青蒜没意思<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 4505#       发表于 2025-1-19 23:10
+
+不是说菲律宾人是剧场版最好听的吗
+
+但好像是首映当天推上管人痴的评价来着，参考不了一点，看了下歌名叫「もうどうなってもいいや」，还强调疾走感，管人tie高达确实挺有疾走感的
+
+*****
+
+####  岸浪白野  
+##### 4506#       发表于 2025-1-19 23:11
+
+那星咏者当然会说大明星唱的是最好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 4507#       发表于 2025-1-19 23:16
+
+左趣发癫真的是张嘴就是那股味，太伟大了DQN
+
