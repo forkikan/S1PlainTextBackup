@@ -1412,3 +1412,24 @@ Obey or Die, bro <img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 ----发送自 [HUAWEI ABR-LX9,Android 12](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Dreamophobia  
+##### 160#       发表于 2025-1-21 01:10
+
+ 本帖最后由 Dreamophobia 于 2025-1-21 01:12 编辑 
+
+Spent ￥10 to join another shitpost forum<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+Anyway still more valuable than 4chan pass<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  takami  
+##### 161#       发表于 2025-1-21 01:11
+
+那么他能帮忙做英语作业吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
