@@ -610,3 +610,92 @@ welcome to the troll forum S1<img src="https://static.saraba1st.com/image/smiley
 
 2025-1-20 21:55 上传
 
+
+*****
+
+####  linhaolin1  
+##### 69#       发表于 2025-1-20 21:57
+
+等等 泥潭的恶臭和劳保要走向世界了?
+
+*****
+
+####  约翰里德  
+##### 70#       发表于 2025-1-20 21:58
+
+An American join saraba1st?
+U must be mad.
+
+
+*****
+
+####  chuchoselph  
+##### 71#       发表于 2025-1-20 22:00
+
+I saw they deleted all your works on rednote, hope the mods here are not as obnoxious lol, welcome.
+
+*****
+
+####  clamp1010  
+##### 72#       发表于 2025-1-20 22:01
+
+泥潭也是走向国际化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyth06  
+##### 73#       发表于 2025-1-20 22:01
+
+世界终于变得不认识又很熟悉了
+
+*****
+
+####  基本农田  
+##### 74#       发表于 2025-1-20 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233505&amp;ptid=2243601" target="_blank">姚纳 发表于 2025-1-20 21:51</a>
+让他用翻译插件刷中东楼吧，最有效了解泥潭倾向的方法</blockquote>
+然后“我觉得你们有点太极端了”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tansapple  
+##### 75#       发表于 2025-1-20 22:01
+
+卧槽，哪位老哥真的把人家拉来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 76#       发表于 2025-1-20 22:02
+
+In china, we often call jews squid because 鱿(squid) and 犹(jews) have the same pronunciation in chinese.
+
+*****
+
+####  佐敦·库勒  
+##### 77#       发表于 2025-1-20 22:02
+
+nihao，这里是右翼论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mobdom  
+##### 78#       发表于 2025-1-20 22:03
+
+Hello Mark, welcome to the forum that identify as a Hamas supporter by the Zionist<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿酷怕苦  
+##### 79#       发表于 2025-1-20 22:03
+
+以后泥潭就是全世界的巨魔对喷的地方了！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nonononono  
+##### 80#       发表于 2025-1-20 22:05
+
+Snoopy rules this truf where is your doge tax!<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
