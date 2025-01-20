@@ -1589,3 +1589,23 @@ Hope you have a grand time here!
 
 啥玩意，do you speak chinese
 
+
+*****
+
+####  ymm1030  
+##### 179#       发表于 2025-1-21 07:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">离谱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  直刺苍穹的光  
+##### 180#       发表于 2025-1-21 07:35
+
+每个郁可唯任期，S1都得有一个外国人是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
