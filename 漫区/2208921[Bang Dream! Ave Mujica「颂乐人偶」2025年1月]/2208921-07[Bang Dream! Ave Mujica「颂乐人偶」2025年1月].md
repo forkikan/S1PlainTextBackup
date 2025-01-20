@@ -12585,3 +12585,49 @@ iPhone13是侧面电源键指纹解锁的吧
 soyo助攻的可能性还是很大的 
 毕竟mygo动画里睦也助攻过素祥 这次该轮到soyo助攻睦祥了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 9952#       发表于 2025-1-20 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吓死我了，看第一行还以为去纠缠soyo
+
+*****
+
+####  厚乳果珍爽  
+##### 9953#       发表于 2025-1-20 10:18
+
+<blockquote>第贰个十年 发表于 2025-1-20 03:32
+沟槽的这还是少女乐队企划吗？怎么跟悬疑番一样？喵梦还能说出“不用拘泥于乐队形式”这种违背大少女乐队时 ...</blockquote>
+
+空气系乐队现实中也有，金爆。
+
+一边听bgm一边看鸡团撕逼有没有搞头？
+
+*****
+
+####  GBLMikuHatsune  
+##### 9954#       发表于 2025-1-20 10:19
+
+哇怎么这也能叫典的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+这么想让鸡团切割那你让武士道现在把mygo13集后半删了呀，搞得跟真的一样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+本来就是女女关系性的乐队动画，两个团互相帮一手怎么了，有意见可以现在出门左拐给武士道和独角兽写邮件，让他们把第四集预告里素世看睦的镜头删了换成别的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 9955#       发表于 2025-1-20 10:19
+
+<img src="https://p.sda1.dev/21/d2d136f9e82273c1c124d4279173888f/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  osore  
+##### 9956#       发表于 2025-1-20 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽不是被抢班夺权了，给独角兽写信有什么用
+
