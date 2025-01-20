@@ -1555,3 +1555,22 @@ AGE的完成体应该是后续的百万吨级武藏
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王留美  
+##### 4600#       发表于 2025-1-20 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230583&amp;ptid=2209276" target="_blank">卑弥呼yamato 发表于 2025-1-20 15:37</a>
+
+预期甚至是5亿，已经好起来了（</blockquote>
+5亿不是瞎JB喊得嘛（
+
+
+*****
+
+####  jojonathan  
+##### 4601#       发表于 2025-1-20 15:53
+
+高达的活粉还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

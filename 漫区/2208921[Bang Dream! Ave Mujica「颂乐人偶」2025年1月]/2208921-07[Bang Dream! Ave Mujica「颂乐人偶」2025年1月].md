@@ -14030,3 +14030,34 @@ mortis出问题得第七话了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 10085#       发表于 2025-1-20 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230604&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-20 15:41</a>
+喵梦只说是高一，又没说是多少岁去读的高一吧
+
+她读这个演艺学校也未必是全日制 ...</blockquote>
+是全日制，与瑞依对话的时候说自己去参加了周日的自由课程，这学校的原型应该是东京艺术大学音乐学部附属音乐高，不是杂牌技校<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 10086#       发表于 2025-1-20 15:48
+
+楼友就是想证明喵梦其实是个大龄留级少女逃避直面年龄问题的心机girl
+
+
+*****
+
+####  天空塔书记官  
+##### 10087#       发表于 2025-1-20 15:52
+
+学校有大学部，就是为了给RAS的升学剧情用的，瑞依直接直升，益木的白雪是一直到大学的一贯制，楚平方则是国际学校，这几个马上可就是大学生了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

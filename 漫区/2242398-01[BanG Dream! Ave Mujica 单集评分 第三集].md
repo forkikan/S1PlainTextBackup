@@ -2543,3 +2543,17 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 有一说一，目前最大导火索的大喵老师有任何所谓基本的职场素养可言吗</blockquote>
 大喵老师业务能力放那里呢 至少打鼓水平没问题 她就像是公司里的销冠 平时吃喝嫖赌上班天天迟到 但年终业绩占公司一半 你是老板也得捏着鼻子给她签年终奖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 242#       发表于 2025-1-20 15:50
+
+ 本帖最后由 Lyzers 于 2025-1-20 15:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230418&amp;ptid=2242398" target="_blank">sdeplee 发表于 2025-1-20 15:18</a>
+
+大喵老师业务能力放那里呢 至少打鼓水平没问题 她就像是公司里的销冠 平时吃喝嫖赌上班天天迟到 但年终业 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三话不知道离大祥老师组团总共过了多久，但鸡这边怎么说有个资深雇佣兵，反复强调的公认强者初华和木头，大祥老师不知道具体什么战斗力设定，但应该是个六边形战士。大喵老师虽然这集被夸了一下，但按理说是团里起点最菜的，也没这么快就能当上团队唯一销冠吧
+
+战力设定不明确的现在，只能从整活方面来做扣分制，那么目前来讲整活整的最大最烂的可不就是大喵老师了吗
+
