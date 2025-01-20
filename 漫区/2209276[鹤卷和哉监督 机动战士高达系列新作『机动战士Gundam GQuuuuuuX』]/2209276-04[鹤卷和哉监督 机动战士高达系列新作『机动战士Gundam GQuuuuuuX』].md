@@ -1642,3 +1642,21 @@ AGE的完成体应该是后续的百万吨级武藏
 
 楼里讨论的这么激烈，剧场版都看过了？
 
+
+*****
+
+####  hibike!  
+##### 4609#       发表于 2025-1-20 16:22
+
+乱入：只看过水魔能去看这个吗？
+
+*****
+
+####  猪突猛进R  
+##### 4610#       发表于 2025-1-20 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230983&amp;ptid=2209276" target="_blank">hibike! 发表于 2025-1-20 16:22</a>
+
+乱入：只看过水魔能去看这个吗？</blockquote>
+最好把0079的老剧场版3部曲看了，这样前40分钟会很乐。
+
