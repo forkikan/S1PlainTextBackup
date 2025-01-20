@@ -14154,3 +14154,14 @@ layer刚出场的时候我一看wc邦邦乐队居然有这么成熟的女性主�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 10098#       发表于 2025-1-20 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231173&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-20 16:41</a>
+
+只要是沾了C团的人，这辈子都逃不过春日影</blockquote>
+什么可怕的轮回诅咒，不过如果海玲真看完春日影回去在祥子耳边来上几句怕不是祥子直接气笑然后想通了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
