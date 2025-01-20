@@ -13929,3 +13929,53 @@ mygo和A团不是成年人的办公室政治斗争，只是几个初高中的小
 
 就是想不起来是出自哪里了。
 
+
+*****
+
+####  江口夕  
+##### 10075#       发表于 2025-1-20 15:27
+
+ 本帖最后由 江口夕 于 2025-1-20 15:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大祥和大猫这化学反应还是可以的。最后睦变身前那段，节目监督本来想cm之后接表演的，大祥跑去改成演奏。然后睦变身又变成表演。
+表演这个问题就是其他人都是菜鸟，根本跟不上睦的演技，五个人肯定是没有未来的。不会有人真觉得表演的路子行得通吧。我是制作人直接让睦单飞了，其他菜鸟踹了，换会演的来当配角。毕竟乐器不会可以学，表演那是真的要天赋，哪怕努力也不是能速成的，何况旁边有个大师高下立判。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  山ノ内花音  
+##### 10076#       发表于 2025-1-20 15:29
+
+关键是喵梦真能跟上睦的演技吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 10077#       发表于 2025-1-20 15:31
+
+ 本帖最后由 江口夕 于 2025-1-20 15:32 编辑 
+
+大猫很快就会滑跪的，三集以内必出问题。爱音个节奏吉他被旁边猫猫主吉他带着所以屁事没有。
+你一个演技差的，在大师面前就是丢人现眼了。
+上次大猫摘面具，就她一个人在那还没问题，现在可以再试试<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  凉良  
+##### 10078#       发表于 2025-1-20 15:33
+
+喵萌我觉得不一定有啥事 出问题的还得是mortis
+
+*****
+
+####  江口夕  
+##### 10079#       发表于 2025-1-20 15:34
+
+mortis出问题得第七话了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
