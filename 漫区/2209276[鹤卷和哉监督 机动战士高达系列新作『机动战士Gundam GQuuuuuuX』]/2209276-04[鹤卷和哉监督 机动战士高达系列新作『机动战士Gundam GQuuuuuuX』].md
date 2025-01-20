@@ -1660,3 +1660,103 @@ AGE的完成体应该是后续的百万吨级武藏
 乱入：只看过水魔能去看这个吗？</blockquote>
 最好把0079的老剧场版3部曲看了，这样前40分钟会很乐。
 
+
+*****
+
+####  duck_feather  
+##### 4611#       发表于 2025-1-20 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230840&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-20 16:07</a>
+
+有个说法是你傍上了东宝大爹就是保底300馆，顶多次周开始砍坐席。或者说300馆是松竹的上限，但只是东宝的下 ...</blockquote>
+那确实，光东宝自己的电影院比松竹的都要多三倍,
+
+*****
+
+####  RE㐅ia  
+##### 4612#       发表于 2025-1-20 16:27
+
+发现很多画师都喜欢画麻球看垃圾的那个眼神。是哪里出现过了让人印象这么深刻
+
+<img src="https://img.saraba1st.com/forum/202501/20/162742pmtotm9nzco9wwcn.png" referrerpolicy="no-referrer">
+
+<strong>4381CBC9-C380-44C6-8D15-103C9720F450.png</strong> (116.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/162742grxhbx0hubbneukf.png" referrerpolicy="no-referrer">
+
+<strong>F5DE200A-64CE-4F79-A297-45F4ABCF9BDE.png</strong> (149.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/162742fu5kq0jgu9g0w9j5.png" referrerpolicy="no-referrer">
+
+<strong>435E0F3E-2611-42B5-BBA5-EA6CD974543B.png</strong> (135.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/162743o9b9zwtbdxdbyxdx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F3B7B3BE-8ABE-4BE3-B83B-20B34B5D500D.jpeg</strong> (192.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 16:27 上传
+
+*****
+
+####  Toby_dak  
+##### 4613#       发表于 2025-1-20 16:32
+
+麻球ジト的镜头可太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  王留美  
+##### 4614#       发表于 2025-1-20 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230788&amp;ptid=2209276" target="_blank">番茄牛奶 发表于 2025-1-20 16:01</a>
+ 老登的底力</blockquote>
+我觉得老登应该是可以动员起来，拿到闪哈的20亿问题不到，能不能到20亿就看怎么骗潮哥辣妹进电影院了
+
+*****
+
+####  Steel.Haze  
+##### 4615#       发表于 2025-1-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230828&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-20 16:06</a>
+
+张嘴就来哦，同样级别的馆数，同样级别的坐席，同样的tv先行鬼灭最后是40亿
+
+去年同样级别的馆数，坐席少一 ...</blockquote>
+无限列车可不是TV先行，而是正经剧场版，非常成功后有TV上映；而且鬼灭经过长期的市场积累了（漫画、TV动画的连续火爆）这部新高达毫无市场根基，连79if部分都被隐藏了。你看看纯原创类300、400馆只有千万级别票房的那些，就反而要感慨高达这个IP的号召力了。
+
+*****
+
+####  王留美  
+##### 4616#       发表于 2025-1-20 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230983&amp;ptid=2209276" target="_blank">hibike! 发表于 2025-1-20 16:22</a>
+ 乱入：只看过水魔能去看这个吗？</blockquote>
+可以直接进去看，问题不大
+但如果先看过0079的三个剧场版（或者至少把第一个看了）那会更容易get到有趣的地方
+
+*****
+
+####  jojonathan  
+##### 4617#       发表于 2025-1-20 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231025&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-20 16:27</a>
+发现很多画师都喜欢画麻球看垃圾的那个眼神。是哪里出现过了让人印象这么深刻</blockquote>
+pv里就有吧 她举着电子板的时候<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

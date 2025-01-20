@@ -14111,3 +14111,27 @@ mortis出问题得第七话了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刑部姬真可爱  
+##### 10093#       发表于 2025-1-20 16:31
+
+layer刚出场的时候我一看wc邦邦乐队居然有这么成熟的女性主角乐队成员吗，结果没想到和otae青梅竹马同龄，rui也是，喵梦虽然看着也很成熟但感觉还是不如layer和rui
+
+*****
+
+####  RPG-7  
+##### 10094#       发表于 2025-1-20 16:33
+
+中间那张，第二集立希给海铃看了C团春日影顺便对了下情报的可能性很高啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 10095#       发表于 2025-1-20 16:35
+
+原来不是立希在借笔记或作业给海铃拍照吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
