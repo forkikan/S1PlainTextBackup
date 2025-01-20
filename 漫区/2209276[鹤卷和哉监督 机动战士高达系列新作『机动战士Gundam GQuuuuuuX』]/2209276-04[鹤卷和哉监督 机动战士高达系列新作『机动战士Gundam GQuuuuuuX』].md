@@ -4167,3 +4167,27 @@ pv有好多卡喵安，真的好酷
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  猪突猛进R  
+##### 4827#       发表于 2025-1-21 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234335&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 00:31</a>
+
+推上甚至已经出现梦女关联词条了
+
+靠谱强大忧郁成年男军官，这下人气算是翻身了，明明原作只是被骡子几分 ...</blockquote>
+原作也是有些影响力的，GUNDAM EVOLVE专门出过一集，他算半个主角（另半个是骡子）：
+[MAN-03 布劳·布罗_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1Hs411R7D7/?spm_id_from=333.788.videopod.episodes&amp;vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=15)
+
+顺便，原来基情当年就有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/21/012730rqadcffu7j7qm3fd.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-21 012710.png</strong> (174.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 01:27 上传
+

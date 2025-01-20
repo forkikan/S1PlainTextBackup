@@ -1443,3 +1443,11 @@ Anyway still more valuable than 4chan pass<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  致幻之勾  
+##### 163#       发表于 2025-1-21 01:34
+
+之前明明还在嘲讽XHS看到洋人就说英语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
