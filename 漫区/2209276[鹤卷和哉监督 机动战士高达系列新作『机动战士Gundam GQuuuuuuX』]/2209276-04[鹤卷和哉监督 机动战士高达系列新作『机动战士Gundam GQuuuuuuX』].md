@@ -2150,3 +2150,130 @@ bd成绩能超过水魔吗<img src="https://static.saraba1st.com/image/smiley/fa
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 我也刚想说这个。新78造形貌似刻意就是要定位的有点惊悚感。
 
+
+*****
+
+####  YU_JI  
+##### 4652#       发表于 2025-1-20 17:27
+
+<img src="https://img.saraba1st.com/forum/202501/20/172717xze9uz525sd4x5od.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3677.jpeg</strong> (58.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:27 上传
+
+妹宝可爱捏
+
+*****
+
+####  adios85  
+##### 4653#       发表于 2025-1-20 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231469&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 17:09</a>
+
+总会有电影院有上映，和大多数电影院都在上映的宣传效果是不一样的。我提了，周边玩具的长期销量是高达IP ...</blockquote>
+你打了一大堆第一个就错了。（总会有电影院有上映，和大多数电影院都在上映的宣传效果是不一样的。）300馆就算和500馆比都可以说不存在你说的这种覆盖率的问题，但是200馆和300馆就可以有你说的这种问题
+
+搞不懂的话，只要知道300多馆就代表全日本一起上映，后面imax4DX那一些影响不到覆盖率完事
+
+新高达是坐席非常多而已，也就是在电影院排片非常多
+
+*****
+
+####  Steel.Haze  
+##### 4654#       发表于 2025-1-20 17:31
+
+<img src="https://img.saraba1st.com/forum/202501/20/172535i6jnj1t5etj5i9yt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (149.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/172638a4uunqiy913ir9a4.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (166.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/172724vu6qoaqmx8mtuwci.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (108.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/172816yl0v4luxvlk4haqg.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (127.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/172848wlwogd9cd2wvjpel.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (138.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:28 上传
+
+红78大部分镜头都是大张力的冲击频，其面部都是作为冲击频的C位被放大和突出并作为最后一针，而且突出有类似GP02和精神力高达MK2这类邪面颊的设定风格。
+
+新RX78的"骇风格"应该是刻意为之。
+
+
+*****
+
+####  刺客ares  
+##### 4655#       发表于 2025-1-20 17:33
+
+推上说牢修宙域初战强如鬼神是真的，从扎古身边掠过一剑断头
+
+截图都要放慢一倍才能截到他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/20/173210kf1ditxmtgzt4xkt.jpg" referrerpolicy="no-referrer">
+
+<strong>f288ca40e34869deac31827db44481a.jpg</strong> (41.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/173217pl4qnpj4dy04ny5o.jpg" referrerpolicy="no-referrer">
+
+<strong>097b14f350a96c79720b6b526fb642a.jpg</strong> (34.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:32 上传
+
+后面和玛秋组队就弱了50%以上，可能是机体状态不行了吧）
+
+*****
+
+####  猪突猛进R  
+##### 4656#       发表于 2025-1-20 17:33
+
+0079吉翁小兵看到白色恶魔就是这感受（不过这回换成联邦小兵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外这高达给我一种随时能张嘴的感觉。
+
+*****
+
+####  dgugvff  
+##### 4657#       发表于 2025-1-20 17:33
+
+<blockquote>ads147147 发表于 2025-1-20 17:20
+bd成绩能超过水魔吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不要再说了好嘛(；一_一)
+
