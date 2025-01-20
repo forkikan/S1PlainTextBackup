@@ -2259,13 +2259,13 @@
     "update": false
   },
   "1047361": {
-    "totalreply": 1195,
+    "totalreply": 1196,
     "title": "[【专楼】Helck／勇者赫鲁库（动画化）--异剑战记Völundio]",
     "newtitle": "[【专楼】Helck／勇者赫鲁库（动画化）--异剑战记Völundio]",
-    "lastedit": 1736642280,
+    "lastedit": 1737399960,
     "category": "漫区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 128074,
+    "totalreply": 128075,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1737399371,
+    "lastedit": 1737400568,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15197,7 +15197,7 @@
     "newtitle": "[聊聊武侠游戏和仙侠游戏的区别]",
     "lastedit": 1737140898,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2054818": {
@@ -16169,7 +16169,7 @@
     "newtitle": "[卧槽，这话说得好霸气啊]",
     "lastedit": 1737141249,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2174621": {
@@ -17370,10 +17370,10 @@
     "update": false
   },
   "2144768": {
-    "totalreply": 289,
+    "totalreply": 290,
     "title": "[鵺の阴阳师 这部意外的有人气？]",
     "newtitle": "[鵺の阴阳师 这部意外的有人气？]",
-    "lastedit": 1737378512,
+    "lastedit": 1737400328,
     "category": "漫区",
     "active": true,
     "update": false
