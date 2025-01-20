@@ -13432,3 +13432,26 @@ A团和Sumimi是一个事务所的，不给初华添麻烦就是不给事务所�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 10028#       发表于 2025-1-20 12:43
+
+ave的动画可是早就做完了的，只是因为要拉长热度期，所以现在才放送
+
+mggm表示说自己看了之后很感动，总不可能是因为大家来给他浮木送葬而感动的吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 10029#       发表于 2025-1-20 12:45
+
+【海希特有的护犊子-哔哩哔哩】 [https://b23.tv/](https://b23.tv/)**d6n5
+<img src="https://p.sda1.dev/21/68eb45ad81d319e32b5ac76c48e58ed4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6969e665aa73bd65f4bd376d34514aba/image.jpg" referrerpolicy="no-referrer">
+

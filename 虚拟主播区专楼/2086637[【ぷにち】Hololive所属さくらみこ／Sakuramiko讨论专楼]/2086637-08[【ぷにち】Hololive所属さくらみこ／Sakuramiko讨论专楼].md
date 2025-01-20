@@ -256,3 +256,26 @@ ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉祥物店长
 
+
+*****
+
+####  holofan  
+##### 10700#       发表于 2025-1-19 22:55
+
+看饿了真的
+
+*****
+
+####  holofan  
+##### 10701#       发表于 2025-1-20 12:39
+
+<img src="https://img.saraba1st.com/forum/202501/20/123539sq5mwkke0nq5kcsa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 12:35 上传
+
+真 FAMS（いろはにほへっと あやふぶみこ）
+
