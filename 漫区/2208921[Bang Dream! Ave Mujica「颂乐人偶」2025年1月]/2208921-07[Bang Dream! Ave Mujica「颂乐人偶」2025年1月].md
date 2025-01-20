@@ -14592,3 +14592,25 @@ am团的贝斯鼓穿得完全和另外三个小女孩不是一个段位，海铃
 
 说来这次让她发了是不是会没那么快把全队都开盒
 
+
+*****
+
+####  玖羽  
+##### 10124#       发表于 2025-1-20 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233149&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-20 20:54</a>
+
+想起来个问题 卖狗13最后 祥老师到化妆室得知大喵在舞台后 很警觉的过去看了一下 发现大喵果然在拍自爆视频 ...</blockquote>
+那段剧情有一句话我一直很在意，喵梦说不拍下来以后会后悔，我怀疑是不是回旋镖
+
+*****
+
+####  影伴光生  
+##### 10125#       发表于 2025-1-20 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233149&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-20 20:54</a>
+想起来个问题 卖狗13最后 祥老师到化妆室得知大喵在舞台后 很警觉的过去看了一下 发现大喵果然在拍自爆视频 ...</blockquote>
+祥子单防可以，团战不行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
