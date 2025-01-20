@@ -2516,3 +2516,179 @@ bit挂载在身上可以助推，所以比只有背后推进器的状态机动�
  ...</blockquote>
 砸浮游炮的是夏利亚那边的机师吧，不过修斯也把对面的武器都给卸了，搞的后面女主来开只能用斧头
 
+
+*****
+
+####  刺客ares  
+##### 4678#       发表于 2025-1-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231794&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 17:50</a>
+
+这两个浮游炮好像在PV里面还让女主给砸了，不能补充的话，红78以后就是素机作战了。
+
+ ...</blockquote>
+街机卡标的远程机，但有一段时间都是空挂状态了
+
+毕竟2个bit都随便切扎古，全装满状态红高在军团战纯炸鱼
+
+GQX其实掉件也严重，光刀和步枪都掉了，应该会有一个时间点两台一起补件
+
+*****
+
+####  adios85  
+##### 4679#       发表于 2025-1-20 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231735&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 17:42</a>
+
+你这是虚空造了个馆数上限吗？然后给你自己观点虚空造论据。日本有1,467馆的电影院覆盖，说实话，怎么区区 ...</blockquote>
+....再给你一个机会啊，你再说说日本大概有多少家电影院
+
+我提醒你一下啊，日本很多时候会把馆和银屏数混在一起
+
+或者再提醒你一下，为什么鬼灭，你名那些上映也就是300多馆，要上400或者500都是加上什么imax4dx一类的，和通常馆分开算的，动脑子想一下好吗
+
+*****
+
+####  YU_JI  
+##### 4680#       发表于 2025-1-20 17:57
+
+<blockquote>刺客ares 发表于 2025-1-20 17:45
+榎戸gg的创新三人关系性来了</blockquote>
+真就排列组合是吧
+
+
+*****
+
+####  Steel.Haze  
+##### 4681#       发表于 2025-1-20 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231830&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 17:53</a>
+
+最后两个BIT不是麻球砸的，而是GQUUUUUUX原本驾驶员伏击红高时候砸的。红高打团战时候，拿了轻钢加农的流 ...</blockquote>
+我看了一下，还真是，此时机体在“未开脸”状态。
+
+*****
+
+####  Steel.Haze  
+##### 4682#       发表于 2025-1-20 17:57
+
+<img src="https://img.saraba1st.com/forum/202501/20/175751xdo5ptpf474pl5dt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (225.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:57 上传
+
+*****
+
+####  刺客ares  
+##### 4683#       发表于 2025-1-20 17:59
+
+<img src="https://img.saraba1st.com/forum/202501/20/175835yul4t79sl0svl9c3.png" referrerpolicy="no-referrer">
+
+<strong>1737366139335.png</strong> (12.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/175838hwzh4xwfhogx03up.png" referrerpolicy="no-referrer">
+
+<strong>1737366189226.png</strong> (11.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 4684#       发表于 2025-1-20 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231867&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 17:56</a>
+
+街机卡标的远程机，但有一段时间都是空挂状态了
+
+毕竟2个bit都随便切扎古，全装满状态红高在军团战纯炸鱼
+
+ ...</blockquote>
+了解了，看来要给二机一段时间的缺乏武器状态，然后再和木马合流后得到整备。
+
+*****
+
+####  Toby_dak  
+##### 4685#       发表于 2025-1-20 17:59
+
+所以你们不是担心会打一季团战吗？
+不上木马怎么补给装备，不满装备刷时髦值怎么卖胶啊？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4686#       发表于 2025-1-20 18:01
+
+一打开就听见tomoyo说kirakira<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真的是这个词
+我的特急者paro是否可以搞起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Steel.Haze  
+##### 4687#       发表于 2025-1-20 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231885&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-20 17:57</a>
+
+....再给你一个机会啊，你再说说日本大概有多少家电影院
+
+我提醒你一下啊，日本很多时候会把馆和银屏数混 ...</blockquote>
+哈，还给机会，你以为自己是什么人物吗？你就嘴硬吧。你对日本的影视市场是一点都不了解，不断加自己爆论加限制条件，虚空造牌。你自己玩吧。你也就知道个鬼灭了。
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4688#       发表于 2025-1-20 18:02
+
+早放这个pv效果也不会差啊，最后才给夏亚一点镜头还能营造出一种卧槽居然有0079彩蛋的感觉，实际走进电影院前40分钟都是0079野史，赢！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸浪白野  
+##### 4689#       发表于 2025-1-20 18:03
+
+还真的是kirakira特效啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/20/180245ymw97n42nn79j948.jpg" referrerpolicy="no-referrer">
+
+<strong>NDNHCQAZG%X]~2RM{78HJUD_tmb.jpg</strong> (60.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 18:02 上传
+
+*****
+
+####  刺客ares  
+##### 4690#       发表于 2025-1-20 18:05
+
+红高那个瞪眼镜头，再加上牢修的高达如此说
+
+让我感觉鹤卷gg想把红高当本作的初号机搞，反正不是纯机械了
+
+GQX也是强调有牙齿，所以最后还是初号机VS十三号机的展开吧？
+
+*****
+
+####  Gysumitka  
+##### 4691#       发表于 2025-1-20 18:05
+
+总算发这pv了，这才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
