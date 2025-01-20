@@ -2265,7 +2265,7 @@
     "lastedit": 1737399960,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -7466,7 +7466,7 @@
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
     "lastedit": 1737152650,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2052383": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 128076,
+    "totalreply": 128077,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1737410409,
+    "lastedit": 1737411849,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10845,10 +10845,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 1008,
+    "totalreply": 1009,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1737392290,
+    "lastedit": 1737412087,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15008,7 +15008,7 @@
     "newtitle": "[宅男文娱的悲哀。《燕云十六声》官方明示不搞女性擦边，游戏受众是女玩家]",
     "lastedit": 1737152049,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2237197": {
