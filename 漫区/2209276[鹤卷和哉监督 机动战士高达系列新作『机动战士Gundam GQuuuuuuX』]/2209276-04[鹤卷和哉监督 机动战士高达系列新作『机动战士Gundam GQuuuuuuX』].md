@@ -3846,3 +3846,43 @@ Z「君は刻の涙を見る」
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  创始’’’天翔  
+##### 4802#       发表于 2025-1-20 23:33
+
+<img src="https://img.saraba1st.com/forum/202501/20/233341ikfhngx3lokffklc.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250120_233331.png</strong> (136.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:33 上传
+
+一台不够所以一口气九台是吧
+
+*****
+
+####  刺客ares  
+##### 4803#       发表于 2025-1-20 23:34
+
+<blockquote>Aaa炒面面包批发 发表于 2025-1-20 23:23
+修司这个衣服真的非常的
+
+呃 海藻头背心工地打工男，还是童工做起吃不饱饭的那种，头上可以挂个矿灯
+
+大概跑 ...</blockquote>
+这瘦的，感觉是那种放着不管的话会三天吃一顿饭并且睡在水泥管里的存在
+
+肉搏不一定打得过喵安（
+
+*****
+
+####  王留美  
+##### 4804#       发表于 2025-1-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234105&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-20 23:33</a>
+ 一台不够所以一口气九台是吧</blockquote>
+真是G9的话肯定是捏他正式有8台RX-78
+
