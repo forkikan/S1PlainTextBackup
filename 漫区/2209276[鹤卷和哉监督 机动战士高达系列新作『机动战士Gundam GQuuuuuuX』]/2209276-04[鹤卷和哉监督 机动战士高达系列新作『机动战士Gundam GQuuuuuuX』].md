@@ -2692,3 +2692,91 @@ GQX也是强调有牙齿，所以最后还是初号机VS十三号机的展开吧
 
 总算发这pv了，这才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Steel.Haze  
+##### 4692#       发表于 2025-1-20 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231946&amp;ptid=2209276" target="_blank">Aaa炒面面包批发 发表于 2025-1-20 18:02</a>
+
+早放这个pv效果也不会差啊，最后才给夏亚一点镜头还能营造出一种卧槽居然有0079彩蛋的感觉，实际走进电影院 ...</blockquote>
+是的，深感这个PV应该当第一个，当时的一个太欺诈了，而且第一个PV的台词，通篇都在念叨“军团战”，无法联想到是现在这个样子的作品。这帮老制作人太喜欢藏爆点了，但是现在这个传播力时代不兴这么玩了。
+
+*****
+
+####  adios85  
+##### 4693#       发表于 2025-1-20 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231940&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 18:01</a>
+
+哈，还给机会，你以为自己是什么人物吗？你就嘴硬吧。你对日本的影视市场是一点都不了解，不断加自己爆论 ...</blockquote>
+我是觉得接下来有点偏题啦，原来你是真的不知道啊？
+[https://arthousepress.jp/articles/theaters_2023/](https://arthousepress.jp/articles/theaters_2023/)
+[https://www.homemate-research-cinema.com/list/](https://www.homemate-research-cinema.com/list/)
+
+点进去看看呗，大概就知道了
+
+*****
+
+####  岸浪白野  
+##### 4694#       发表于 2025-1-20 18:09
+
+还算来的及吧，这策略就是第二个星期开始才发更详细的PV
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4695#       发表于 2025-1-20 18:10
+
+卧槽新的特典是原案设定集
+刚买完豪华版场刊和入场特典还想说等一下胶的代理结果这不是又没钱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  王留美  
+##### 4696#       发表于 2025-1-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231990&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 18:07</a>
+ 是的，深感这个PV应该当第一个，当时的一个太欺诈了，而且第一个PV的台词，通篇都在念叨“军团战”，无法 ...</blockquote>
+不不不
+直接把鸭子弄出来还是太破梗了
+这个PV在这个时间点放出来没问题
+
+但是前面的不对
+应该把本PV放到设计PV的位置上
+然后把现在这个PV最后两个镜头换一下扔本PV的时间点，过于爆梗的台词（比如Newtype）什么的也可处理下
+
+这样可以把片子基本的素质展示出来，也不影响他们藏0079
+
+
+*****
+
+####  卑弥呼yamato  
+##### 4697#       发表于 2025-1-20 18:12
+
+制作规格还是在线的，机战不用担心了，剧情再看
+
+*****
+
+####  Steel.Haze  
+##### 4698#       发表于 2025-1-20 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232023&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-20 18:11</a>
+
+不不不
+
+直接把鸭子弄出来还是太破梗了
+
+这个PV在这个时间点放出来没问题</blockquote>
+是的，我觉得应该是去掉鸭子和79（舰队战）以外的部分。作为首映PV可能比较合适。
+
+*****
+
+####  Steel.Haze  
+##### 4699#       发表于 2025-1-20 18:14
+
+另外那个NT现象空间的特效是不是有点像丹拜因穿越时的特效？
+

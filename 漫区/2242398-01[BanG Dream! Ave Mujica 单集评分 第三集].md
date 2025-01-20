@@ -2601,3 +2601,46 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  tsoulgain  
+##### 248#       发表于 2025-1-20 18:09
+
+销冠，指摘了面具搞了个大活引流结果不说被祥木初三人流量爆锤，连海玲都比不过。不摘面具也进了武道馆，摘了面具目前有啥好处暂时看不出。是多了一堆采访工作没错，问题工作都去初华和木头人那了。大喵老师机关算尽目前捞到多少好处仍未可知，要不是个krkrdkdk的企划你跟我说结尾大喵老师落得个误了卿卿性命我都信的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  玖羽  
+##### 249#       发表于 2025-1-20 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228466&amp;ptid=2242398" target="_blank">丹德里恩 发表于 2025-1-20 11:44</a>
+
+海铃和初华信了，观众被祥子灵机一动整信了，事务所那边被蒙混过关也信了</blockquote>
+这里的对话是这样的
+
+睦：吉他弹错了
+
+喵梦：(大惊)那不是剧本也不是即兴？
+
+海铃：所以你没有试图掩饰，僵住了是吗
+
+祥子：睦根本不会掩饰
+
+初华：这样啊，小祥能马上反应过来也很厉害
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 
+
+睦这个回答压根不算回答，有效信息基本等于零
+
+“睦弹错之后当场僵住了”是海铃个人的猜测
+
+祥子算是支持海铃的猜测（其实很不合理，睦这样的高手为什么弹错一个音就会在舞台上僵住）
+
+初华根本不关心原因
+
+喵梦之后在出租屋里：<strong>僵住了都能演成这样，不是天才是什么</strong>
+
