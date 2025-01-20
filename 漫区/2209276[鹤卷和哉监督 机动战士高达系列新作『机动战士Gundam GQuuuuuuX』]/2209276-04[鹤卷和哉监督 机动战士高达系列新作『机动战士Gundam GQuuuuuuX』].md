@@ -2780,3 +2780,66 @@ GQX也是强调有牙齿，所以最后还是初号机VS十三号机的展开吧
 
 另外那个NT现象空间的特效是不是有点像丹拜因穿越时的特效？
 
+
+*****
+
+####  adios85  
+##### 4700#       发表于 2025-1-20 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231940&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 18:01</a>
+
+哈，还给机会，你以为自己是什么人物吗？你就嘴硬吧。你对日本的影视市场是一点都不了解，不断加自己爆论 ...</blockquote>
+怎么样，现在愿意动脑子想一想为什么鬼灭，蜗壳，你名，宫崎骏，这些馆数也就300多了吗，上400的为什么全是加imax了吗
+
+*****
+
+####  operatbig  
+##### 4701#       发表于 2025-1-20 18:18
+
+<blockquote>岸浪白野 发表于 2025-1-20 18:03
+还真的是kirakira特效啊</blockquote>
+百合赢了？
+
+*****
+
+####  刺客ares  
+##### 4702#       发表于 2025-1-20 18:20
+
+基本明示了吧
+
+光形成道路，从布满NT特效的门口走出
+
+<img src="https://img.saraba1st.com/forum/202501/20/181911hkuesdwak0uzzwwz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9831.jpeg</strong> (235.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 18:19 上传
+
+异世界穿越胶佬牢修
+
+*****
+
+####  卑弥呼yamato  
+##### 4703#       发表于 2025-1-20 18:21
+
+明白了，其实这部是给光头丹拜因的情书！（不是
+
+
+*****
+
+####  岸浪白野  
+##### 4704#       发表于 2025-1-20 18:22
+
+高堡奇人，来透露下另一个世界是联邦打赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4705#       发表于 2025-1-20 18:25
+
+<blockquote>operatbig 发表于 2025-1-20 18:18
+百合赢了？</blockquote>
+看周边明显是打算两头吃，甚至喵安和牢修都有（ ）
+
