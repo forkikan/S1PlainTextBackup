@@ -14317,3 +14317,13 @@ layer刚出场的时候我一看wc邦邦乐队居然有这么成熟的女性主�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵是访谈钦定引起多个关键事件的角色，现在才三集，我觉得不会让喵梦就这样以后不整活的，起码得中期
 
+
+*****
+
+####  江口夕  
+##### 10111#       发表于 2025-1-20 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">猫只有被打时候老实
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
