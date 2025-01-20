@@ -1506,3 +1506,12 @@ Anyway still more valuable than 4chan pass<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ccared  
+##### 170#       发表于 2025-1-21 03:41
+
+1.以下四个选项哪个不是s1论坛代指新任大总统的黑话
+1.ykw 2.懂王 3.建国 4.观海
+
