@@ -13455,3 +13455,30 @@ mggm表示说自己看了之后很感动，总不可能是因为大家来给他�
 <img src="https://p.sda1.dev/21/68eb45ad81d319e32b5ac76c48e58ed4/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/6969e665aa73bd65f4bd376d34514aba/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 10030#       发表于 2025-1-20 12:48
+
+  就算对个别角色有负面情绪，但还是会好奇剧情具体怎么推进，看编剧会怎么推进这个故事，未知的舞台。
+
+
+*****
+
+####  天空塔书记官  
+##### 10031#       发表于 2025-1-20 12:55
+
+也就是因为二三季动画放的早，还在企划早期，各团的剧情篇幅短，还没热度，就RAS的剧情要是搁现在搞13集，wsd早就本部爆破了，A团的内部矛盾不过屁大点事
+
+到底有什么好急眼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 10032#       发表于 2025-1-20 12:55
+
+难道不是恨比爱更长久吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1318,3 +1318,14 @@ Midnight Reflection真挺好听的，循环了好久了
 
 可以被复现的奇迹就不再是奇迹，而是被滥用的舞台装置
 
+
+*****
+
+####  Toby_dak  
+##### 4576#       发表于 2025-1-20 12:51
+
+暴论一下<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+玩过基连的野望肯定喜欢看0079新高达。毕竟玩自护时候，V作战事件链还搭上一大堆ACE，越早解决损失越小。感觉这是庵野用动画形式，写了一部基连的野望的同人。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
