@@ -1143,3 +1143,17 @@ pjsk的原因吧
 
 组长最适合的角色应该是基连，他模仿银河万丈比模仿池田秀一都像（
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4558#       发表于 2025-1-20 11:18
+
+在骑士:今年总不至于比XX差了吧
+在奥棚：今年总不至于比XX差了吧
+在高达_今年总不至于比XX差了吧
+结果只有Z＋再起＋sbaer那一年是赢的
+所以放平心态<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

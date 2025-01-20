@@ -2448,3 +2448,16 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 喜欢/讨厌某个角色没什么错，但由于自己的好恶就把角色的所有行为都一边倒地认同/批判，只会显得你嘴里的这个角色很扁平，而拿这样的角色去社区pvp太过空虚
 
+
+*****
+
+####  ParadiseMartyr  
+##### 234#       发表于 2025-1-20 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228037&amp;ptid=2242398" target="_blank">丹德里恩 发表于 2025-1-20 11:03</a>
+大喵行为越界、想抱大腿拍视频蹭流量、带节奏操作水平不行，拿这些点去抨击倒是没什么问题
+
+但说人血馒头 ...</blockquote>
+用词极端了点罢了，人血馒头这点是在观众视角下看的，本身睦就不对劲了再来刺激刺激
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">剧中人喵梦当成是睦的演技那是真的nb。祥子废物根本没法安抚睦，其他俩无关心。那睦那是只能爆炸了
+
