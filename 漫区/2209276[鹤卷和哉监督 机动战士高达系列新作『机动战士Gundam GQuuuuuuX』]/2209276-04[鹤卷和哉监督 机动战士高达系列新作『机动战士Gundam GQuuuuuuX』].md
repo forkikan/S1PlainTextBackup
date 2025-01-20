@@ -3886,3 +3886,38 @@ Z「君は刻の涙を見る」
  一台不够所以一口气九台是吧</blockquote>
 真是G9的话肯定是捏他正式有8台RX-78
 
+
+*****
+
+####  Ichihatsu  
+##### 4805#       发表于 2025-1-20 23:44
+
+<img src="https://img.saraba1st.com/forum/202501/20/233625tsz9mrgpymgfrqcw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3641(20250120-231147).JPG</strong> (525.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:36 上传
+
+尝试往传统模板上套GQX元素，最大感想是分色太多了，MG怕是能上天。
+
+现在机设倒越看越顺眼，只是有种束手束脚的感觉，可能真的要等暴走后第二形态才是完全体
+
+*****
+
+####  王留美  
+##### 4806#       发表于 2025-1-20 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234027&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 23:17</a>
+ 红高的α塞克缪象精神感应框架那样装在驾驶舱四周。  另外GQuuuuuuuX的是Ω塞克缪。 ...</blockquote>
+GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認してみたところ、やはりわからなかった
+↓
+マチュ「ねえこの先に何があんの？」
+ニャアン「ニャアン・・・」
+マチュ「ニャアン？意外とかわいい名前」
+
+この流れがわからない🤔
+
+这是原片的台词吗？是的话……感觉也在致敬？
+

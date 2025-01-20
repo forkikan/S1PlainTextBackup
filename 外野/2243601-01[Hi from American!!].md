@@ -1182,3 +1182,19 @@ Welcome to the S1 Forum,the trolls' lair.
 对于洋人而言 能把s1当成轻度版4ch吗？</blockquote>
 别的不说，信伪史论信心医的太少，没那味。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jiklp87  
+##### 134#       发表于 2025-1-20 23:34
+
+就为这事花10块钱，不至于
+
+
+*****
+
+####  憧憬鲨  
+##### 135#       发表于 2025-1-20 23:43
+
+we need Chinese
+
