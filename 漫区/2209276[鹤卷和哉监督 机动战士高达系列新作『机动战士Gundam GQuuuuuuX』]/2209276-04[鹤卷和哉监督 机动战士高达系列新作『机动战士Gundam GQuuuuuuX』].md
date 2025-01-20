@@ -1233,3 +1233,13 @@ G复国剧场版不错，但有几个人看，遗老不看新人不看
 
 遗老不看G复国还敢自称遗老？
 
+
+*****
+
+####  jojonathan  
+##### 4567#       发表于 2025-1-20 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228533&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-1-20 11:52</a>
+遗老不看G复国还敢自称遗老？</blockquote>
+贴吧一堆说g复国机设烂所以不看的“遗老”的<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

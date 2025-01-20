@@ -13208,3 +13208,99 @@ go里灯迷茫的时候初华和睦就来跟她说过话啊，同样的睦和祥
 论坛助手,iPhone</blockquote>
 我的理解是喵梦本身是在假设“睦不在乎退团”，但是初华的发言直接跳跃到了“我不会让乐队解散”，相当于喵梦发言给一条直线掰了30°角，而初华这句硬生生造了一条平行线，然后顺着这条平行线下来祥子想把这条线掰180°打回喵梦，但海铃接话后则是又开了一条平行线去批评祥子
 
+
+*****
+
+####  刑部姬真可爱  
+##### 10006#       发表于 2025-1-20 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228479&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-20 11:46</a>
+
+说到底大喵后面不还是向祥子让步了，直播节目休息的时候也只是和祥子商量要不要让睦表演，祥子不让大喵最后 ...</blockquote>
+与其说让步不如说这才是祥子作为一个团队领导做了该做的事，这些问题可以在更衣室剧烈讨论，但是在其他地方尤其现场就该是祥子说一不二
+
+*****
+
+####  ads147147  
+##### 10007#       发表于 2025-1-20 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228559&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-20 11:56</a>
+
+与其说让步不如说这才是祥子作为一个团队领导做了该做的事，这些问题可以在更衣室剧烈讨论，但是在其他地 ...</blockquote>
+这事比较让我奇怪的是居然不是在后台更衣室吵架而是光明正大的站在站台上吵，太神秘了，吵架戏要不是很过分到要一拍两散肯定都是选择在室内吵架。
+
+*****
+
+####  天空塔书记官  
+##### 10008#       发表于 2025-1-20 11:58
+
+ 本帖最后由 天空塔书记官 于 2025-1-20 11:59 编辑 
+
+祥子硬套吵架公式就是在胡言乱语，喵梦明明是团队里对练习最上心，最刻苦的，结果还是只有一句“需要练习”，明明是陆地，硬是要开船，旱地行舟真就土耳其奥斯曼呗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 10009#       发表于 2025-1-20 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228508&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-20 11:49</a>
+
+喵梦的逻辑是初华没怎么来练习所以初华对mujica不负责 
+
+那么祥子用喵梦也没怎么来练习所以喵梦对mujica也不 ...</blockquote>
+不是哥们，就她们去睦家练习那段，初华不在，而镜头给了一个鼓棒都快被敲裂的镜头，你是怎么得出“祥子用喵梦也没怎么来练习”这点不是胡言乱语的？
+
+
+*****
+
+####  嵇翱u  
+##### 10010#       发表于 2025-1-20 12:00
+
+其实看完第三集初华偷听那部分，我开始觉得诡计叙事的那个假药不太站得住。
+
+如果鸡团到目前的故事都是初华在讲述，那她会特意说出自己在偷听祥睦讲话这种事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 10011#       发表于 2025-1-20 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228577&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-20 11:57</a>
+
+这事比较让我奇怪的是居然不是在后台更衣室吵架而是光明正大的站在站台上吵，太神秘了，吵架戏要不是很过 ...</blockquote>
+这点我认为就是喵梦在故技重施，也算是搞公式打法了，欺负祥子脸皮薄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 10012#       发表于 2025-1-20 12:02
+
+<blockquote>ads147147 发表于 2025-1-20 11:57
+这事比较让我奇怪的是居然不是在后台更衣室吵架而是光明正大的站在站台上吵，太神秘了，吵架戏要不是很过 ...</blockquote>
+而且还专门给了如舞台staff的第三方视角，按理说母鸡卡不仲丑闻已经大爆特爆了，喵梦和祥子两个把专业性挂嘴上的搞这个事真的难绷，相比之下睦说错那句话算个什么
+
+*****
+
+####  天空塔书记官  
+##### 10013#       发表于 2025-1-20 12:04
+
+祥子看似在组乐队，实际上就是在过家家，说是对乐队上心，实际上就是在用世界观去逃避现实<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  三尖酸努努  
+##### 10014#       发表于 2025-1-20 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228508&amp;ptid=2208921" target="_blank">黑夜落叶秋天 发表于 2025-1-20 11:49</a>
+喵梦的逻辑是初华没怎么来练习所以初华对mujica不负责 
+
+那么祥子用喵梦也没怎么来练习所以喵梦对mujica也不 ...</blockquote>
+喵梦鼓棒都要断了还缺练习？
+这句话还给你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>是看番看到狗身上去了还是只会提取关键词不会联系前后文</blockquote>
+
