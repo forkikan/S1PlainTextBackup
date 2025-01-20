@@ -13593,3 +13593,63 @@ mggm表示说自己看了之后很感动，总不可能是因为大家来给他�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 10042#       发表于 2025-1-20 13:30
+
+mygo和A团不是成年人的办公室政治斗争，只是几个初高中的小姑娘在闹别扭而已，这是个8＋的企划，而不是18＋，对角色宽容一点，也对自己宽容一点，现实中需要劳累的事情已经够多了，没必要在可以放松的童话世界里继续斤斤计较<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岬开斗  
+##### 10043#       发表于 2025-1-20 13:30
+
+<blockquote>十九号大侠 发表于 2025-1-20 10:57
+软弱的祥子到底死没死啊，这不经常撒娇吗</blockquote>
+软弱的小祥已经死了，现在是更软弱的小祥。
+
+她但凡有一点不软弱，喵梦摘面具下来就该开批斗大会深入揭批喵梦，灵魂深处闹革命了。
+
+不要急，等祥子压力爆了真黑化了变成铁血独裁者，把喵梦狠狠日服了，这团也就好起来了。
+
+最后全员黑化但是祥大帝高压统治，又何尝不是一种happy ending呢？
+
+*****
+
+####  SakuraのOrigami  
+##### 10044#       发表于 2025-1-20 13:31
+
+游戏图透的第4话
+
+<img src="https://img.saraba1st.com/forum/202501/20/133126z0w0kmaaak425i1v.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250120133052.png</strong> (266.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 13:31 上传
+
+
+*****
+
+####  qjw114514  
+##### 10045#       发表于 2025-1-20 13:32
+
+ 本帖最后由 qjw114514 于 2025-1-20 13:37 编辑 
+
+大喵这是什么怪表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好像拿着手机，要回收跟家里通话的设定了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10046#       发表于 2025-1-20 13:36
+
+真让人脸扁.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
