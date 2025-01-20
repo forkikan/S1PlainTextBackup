@@ -2415,3 +2415,19 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Lyzers  
+##### 231#       发表于 2025-1-20 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，目前最大导火索的大喵老师有任何所谓基本的职场素养可言吗
+
+
+*****
+
+####  十壹  
+##### 232#       发表于 2025-1-20 10:52
+
+领导无能配上作比下属，很难说谁更
+

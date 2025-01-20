@@ -12693,3 +12693,29 @@ soyo助攻的可能性还是很大的
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NaAgfykp  
+##### 9963#       发表于 2025-1-20 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227330&amp;ptid=2208921" target="_blank">HGCG+ 发表于 2025-1-20 09:48</a>
+要不这样：
+母鸡卡越来越乱越来越疯最后发生重大违约事件，钱赔光乐队解散
+海铃、喵梦、初华回到老本行，睦 ...</blockquote>
+首先牢爹看女儿过的好不开心，看女儿过的差才开心就已经很恶劣了。
+其次祥喵以外的队员回到mujica的动机不明，睦初还是像一开始一样只是为了祥子，那不是团队上完全没成长？
+再者soyo是不是真的能放下ccc还是两说吧，而且ccc的告别演出是没有mtm的是不是过于抽象？
+第四现在mujica已经有乐曲是乐器从少到多的了，但是很可惜不是键盘鼓而是主唱吉他键盘。
+我很好奇你的猜测是考虑了很多东西还是只是自己一拍大脑想出来的？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IWS2000  
+##### 9964#       发表于 2025-1-20 10:51
+
+没看过mygo直接看mujica原来是有
+【闲聊一会儿颂乐人偶的前三集-哔哩哔哩】 [https://b23.tv/fctnxJ1](https://b23.tv/fctnxJ1)
+
