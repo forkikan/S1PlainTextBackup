@@ -1192,3 +1192,21 @@ pjsk的原因吧
 
 g-reco已经不配被想起了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 4562#       发表于 2025-1-20 11:36
+
+g复国又不差，只是第一遍看可能没那么好理解
+
+
+*****
+
+####  yevvet  
+##### 4563#       发表于 2025-1-20 11:44
+
+<blockquote>kirakira~ 发表于 2025-1-20 11:24
+看x看到一个说完全没看过高达但觉得很好的...观感这玩意还是挺玄学的</blockquote>
+很正常。几年前高达nt上映，我就带完全没看过的高达的朋友去看。他觉得观感很好很好看。电影主要是视觉听觉冲击，不了解反而看的更爽
+

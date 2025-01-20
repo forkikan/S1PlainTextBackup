@@ -346,3 +346,13 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 主题高拿轻放一开始很多人都料到了，只是没料到会这么轻。日常回颇有出彩，主线没法细想，大概就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sheshiro  
+##### 2748#       发表于 2025-1-20 11:42
+
+戴着脚镣跳舞跳了一整年也真不容易，辛苦了小麦彩羽小雪麻油
+
+希望你们别化成镜石就好，求求
+
