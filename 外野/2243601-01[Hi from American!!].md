@@ -1292,3 +1292,11 @@ WTF…真的假的…
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  致幻之勾  
+##### 146#       发表于 2025-1-21 00:16
+
+有一个想法，那么这个贴会变成KP（ keyborad politics）特区吗？
+
