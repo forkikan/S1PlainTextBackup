@@ -4123,3 +4123,26 @@ IMG_0011.jpeg
 
 这是麻球卡缪说，外观和配色上和其他假药没有区别，但由于漏油彻底的进行了现代化改装，该假药的性能可以媲美麻球哈曼说
 
+
+*****
+
+####  王留美  
+##### 4823#       发表于 2025-1-21 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234406&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-21 00:52</a>
+ 这是麻球卡缪说，外观和配色上和其他假药没有区别，但由于漏油彻底的进行了现代化改装，该假药的性能可以媲 ...</blockquote>
+考虑到这其实的another z，卡缪说是最合理的
+唯一的问题是性别，这也是哈曼说稍为优势一点的地方
+
+*****
+
+####  PascalLefèvre  
+##### 4824#       发表于 2025-1-21 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234422&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-21 00:59</a>
+考虑到这其实的another z，卡缪说是最合理的
+唯一的问题是性别，这也是哈曼说稍为优势一点的地方 ...</blockquote>
+令和卡蜜尔是真女人也很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

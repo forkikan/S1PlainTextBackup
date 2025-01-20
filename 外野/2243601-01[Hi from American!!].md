@@ -1381,3 +1381,34 @@ WTF…真的假的…
 
 10刀乐！10刀乐！
 
+
+*****
+
+####  yxch  
+##### 156#       发表于 2025-1-21 01:00
+
+聊天机器人翻译成英语就能骗到鹅<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  guoe  
+##### 157#       发表于 2025-1-21 01:01
+
+Obey or Die, bro <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞天茅台  
+##### 158#       发表于 2025-1-21 01:01
+
+说好的拉coser呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  kuleimin  
+##### 159#       发表于 2025-1-21 01:03
+
+如同羊入狼群..... 
+
+----发送自 [HUAWEI ABR-LX9,Android 12](http://stage1.5j4m.com/?1.44)
+
