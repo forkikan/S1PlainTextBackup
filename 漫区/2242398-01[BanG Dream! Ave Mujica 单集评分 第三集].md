@@ -2532,3 +2532,14 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 大祥是那种给公司赚取了高销售额，但是不会管理团队的领导。大喵是斤斤计较鼠目寸光的同事，你问我烦谁，当然是后者，至少前者有本事赚销售额，后者有什么？搅屎棍吗？
 
+
+*****
+
+####  sdeplee  
+##### 241#       发表于 2025-1-20 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227882&amp;ptid=2242398" target="_blank">Lyzers 发表于 2025-1-20 10:48</a>
+
+有一说一，目前最大导火索的大喵老师有任何所谓基本的职场素养可言吗</blockquote>
+大喵老师业务能力放那里呢 至少打鼓水平没问题 她就像是公司里的销冠 平时吃喝嫖赌上班天天迟到 但年终业绩占公司一半 你是老板也得捏着鼻子给她签年终奖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
