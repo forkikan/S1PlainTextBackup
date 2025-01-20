@@ -74,3 +74,16 @@
 
 衣服还行，我喜欢这个调调。
 
+
+*****
+
+####  Picavian  
+##### 1348#       发表于 2025-1-20 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67205180&amp;ptid=2104259" target="_blank">madcow 发表于 2025-1-17 14:32</a>
+
+如果是新周年服的话感觉有几个除了颜色好像细节也不一样</blockquote>
+把以前穿脱外套（后来进化到袜子差分）的系统和变色系统整合起来了。
+
+就不知道这个颜色和配件的组合是固定的，还是可以自己组合。
+
