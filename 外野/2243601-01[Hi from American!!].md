@@ -1549,3 +1549,15 @@ Anyway still more valuable than 4chan pass<img src="https://static.saraba1st.com
 
 碉堡，泥潭国际化愈发广泛
 
+
+*****
+
+####  yangxu  
+##### 175#       发表于 2025-1-21 05:24
+
+Welcome to the internet sewage of China. It's a little better than 4chan, but not by much <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Expect mockery, personal insults and other shitty executions from regular forum users and administrators alike.
+
+Hope you have a grand time here!
+
