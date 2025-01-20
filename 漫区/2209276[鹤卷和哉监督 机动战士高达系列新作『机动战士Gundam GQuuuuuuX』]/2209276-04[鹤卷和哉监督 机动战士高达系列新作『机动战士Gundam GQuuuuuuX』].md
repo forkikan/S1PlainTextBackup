@@ -3018,3 +3018,62 @@ gquuuuuux都有mr魂，红高达没啥问题吧，毕竟怎么也有元祖加成
 
 要是后续上大比例观感会好很多
 
+
+*****
+
+####  Steel.Haze  
+##### 4724#       发表于 2025-1-20 19:09
+
+ 本帖最后由 Steel.Haze 于 2025-1-20 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232460&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 19:07</a>
+
+这套机设其实不太适合hg的，很多件都太小太碎了，山下设计的时候也说了没考虑模型化的事
+
+要是后续上大比 ...</blockquote>
+主角机的HG只能靠换件表现最特色的头部变化这个本身其实就在产品角度展示了HG不满足这个机设了。而且第二特色就是主角机那个足部，也没法表现。虽然山下说没有考虑，但是这个产品化过程中，万代应该是有确定的方案才实施了这个IP计划。
+
+不过HG其实卖的很不错，我觉得官方会加速新产品线推的计划吧。水魔的产品线顺序和上市速度都有明显问题。这部希望产品节奏块一些。
+
+
+*****
+
+####  Sliurus  
+##### 4725#       发表于 2025-1-20 19:13
+
+早点发这个预告，感觉票房能高不少吧，藏波大的在这个时代不合适
+
+*****
+
+####  YU_JI  
+##### 4726#       发表于 2025-1-20 19:14
+
+<blockquote>刺客ares 发表于 2025-1-20 19:07
+这套机设其实不太适合hg的，很多件都太小太碎了，山下设计的时候也说了没考虑模型化的事
+
+要是后续上大比 ...</blockquote>
+但是手腕那个t字连接真的玩具味蛮重的（
+
+<img src="https://img.saraba1st.com/forum/202501/20/191411x3fr77ff8drk0rr3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3220.jpeg</strong> (5.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 19:14 上传
+
+）
+
+*****
+
+####  复活赛3比0  
+##### 4727#       发表于 2025-1-20 19:15
+
+你代产能感觉有点进虚空了，看3月后怎样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 4728#       发表于 2025-1-20 19:16
+
+hg不能完全表现机设特色的不要太多，元祖的核心战机啊z高达的变形啊不都是（）
+
