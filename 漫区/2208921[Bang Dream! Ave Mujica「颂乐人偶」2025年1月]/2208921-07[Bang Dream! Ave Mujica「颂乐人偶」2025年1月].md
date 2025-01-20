@@ -13979,3 +13979,54 @@ mortis出问题得第七话了
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Ferrari  
+##### 10080#       发表于 2025-1-20 15:36
+
+感觉下一集就会揭露大喵老师问年龄答高一的真相了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 10081#       发表于 2025-1-20 15:37
+
+所以高一有啥真相，不就是年龄小吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  osore  
+##### 10082#       发表于 2025-1-20 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230582&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-20 15:37</a>
+
+所以高一有啥真相，不就是年龄小吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家里有事休学什么的实际成年了也不是不可能
+
+
+*****
+
+####  AnnieLeonhart  
+##### 10083#       发表于 2025-1-20 15:41
+
+喵梦只说是高一，又没说是多少岁去读的高一吧
+
+她读这个演艺学校也未必是全日制
+
+*****
+
+####  天空塔书记官  
+##### 10084#       发表于 2025-1-20 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230595&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-20 15:39</a>
+家里有事休学什么的实际成年了也不是不可能</blockquote>
+喵梦说过麻烦的事丢给成年人就好了，就说明她是未成年，这有什么悬疑的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
