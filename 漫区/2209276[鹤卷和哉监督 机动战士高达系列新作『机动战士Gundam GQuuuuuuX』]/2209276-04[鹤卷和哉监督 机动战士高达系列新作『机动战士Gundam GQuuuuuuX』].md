@@ -3429,3 +3429,50 @@ kirakira的应该是高清重制版NT聊天室
 
 2025-1-20 20:36 上传
 
+
+*****
+
+####  刺客ares  
+##### 4763#       发表于 2025-1-20 20:38
+
+<blockquote>nnis 发表于 2025-1-20 20:31
+其实我无所谓是不是bg，就算麻球修司是双箭头那种，喵安麻球之间的羁绊写的好的话照样能吃。主要是现在喵安 ...</blockquote>
+玛秋牢修两个NT
+
+那喵安可能会成为OT的代表吧
+
+*****
+
+####  0aleph37  
+##### 4764#       发表于 2025-1-20 20:39
+
+X上说有段夏利亚和夏亚喝酒像是事后……
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4765#       发表于 2025-1-20 20:41
+
+好了现在bg gl bl要素都齐全了让我们开始乱炖吧
+（越说越银河美少年了）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  winda  
+##### 4766#       发表于 2025-1-20 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233016&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-20 20:32</a>
+
+能靠腐女拉一把票房吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高达一直有稳定的腐女群体啊，UC系占比还不少
+
+*****
+
+####  夜雨秋水  
+##### 4767#       发表于 2025-1-20 20:45
+
+虽然带了面具，但是据我观察目测，夏亚的人设应该是更新到了0085版本的
+
