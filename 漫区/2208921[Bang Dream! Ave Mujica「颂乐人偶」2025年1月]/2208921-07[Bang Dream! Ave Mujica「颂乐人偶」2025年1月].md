@@ -12631,3 +12631,43 @@ soyo助攻的可能性还是很大的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽不是被抢班夺权了，给独角兽写信有什么用
 
+
+*****
+
+####  Aendst  
+##### 9957#       发表于 2025-1-20 10:24
+
+爽世本来就很铁血木箱姐，为什么一直pua睦去找祥子，当然是默认睦祥关系密切连体
+
+复活crychic自己cp也活了，不然不喜欢睦为什么还要找睦回去呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+前两话对睦祥态度基本一致，之后很可能会越来越把睦祥当连体人看
+
+*****
+
+####  GBLMikuHatsune  
+##### 9958#       发表于 2025-1-20 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227637&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-20 10:22</a>
+
+独角兽不是被抢班夺权了，给独角兽写信有什么用</blockquote>
+确实，都给忘了独角兽被宫了
+
+要不给木谷高明写也行吧，大概<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 9959#       发表于 2025-1-20 10:27
+
+怎么想祥子去月之森堵睦都是好活
+又有可能碰上soyo
+还能对上当初那句 要来月之森吗 我怎么可能去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 9960#       发表于 2025-1-20 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大力支持月之森追逐战开演
+

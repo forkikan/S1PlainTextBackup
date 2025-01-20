@@ -1898,3 +1898,16 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 这游戏有第二结局吗，怎么触发?</blockquote>
 最后结尾可以选择炸了神明复活装置或者启动装置
 
+
+*****
+
+####  Ivent  
+##### 166#       发表于 2025-1-20 10:28
+
+ 本帖最后由 Ivent 于 2025-1-20 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67224684&amp;ptid=2236671" target="_blank">ParadiseMartyr 发表于 2025-1-19 22:26</a>
+
+四十号是看credit表(名字就叫credit)。我倒是没有56号图，你咋解锁的，是打了结局二(人类合一复活神明)吗 ...</blockquote>
+
+原来是credit表，我直接跑去拿作弊模式开关解锁了，看图名字是制作人还以为就是靠作弊模式拿的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">56号确实应该是复活神明拿的 是张弟弟的图
+
