@@ -1020,3 +1020,20 @@ NT是个筐，什么神棍都能往里装，这次看表现真搞出世界穿越
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  dgugvff  
+##### 4543#       发表于 2025-1-20 08:35
+
+<blockquote>operatbig 发表于 2025-1-20 00:02
+周末票房一般般啊。</blockquote>
+pjsk的原因吧
+
+*****
+
+####  dgugvff  
+##### 4544#       发表于 2025-1-20 08:38
+
+应该还行我主要看模型和谷子的销量，不知道现在有没有统计。
+
