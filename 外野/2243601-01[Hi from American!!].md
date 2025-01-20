@@ -1198,3 +1198,24 @@ Welcome to the S1 Forum,the trolls' lair.
 
 we need Chinese
 
+
+*****
+
+####  proted2401  
+##### 136#       发表于 2025-1-20 23:49
+
+wow 谁拉来的？
+
+welcome！
+
+
+*****
+
+####  proted2401  
+##### 137#       发表于 2025-1-20 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234042&amp;ptid=2243601" target="_blank">windtrack_qh 发表于 2025-1-20 23:20</a>
+
+不能键政，but could keyborad politics?</blockquote>
+但能键政美国啊
+

@@ -14696,3 +14696,17 @@ lyy老师：
 
 官方有公开过A团动漫的LIVE是哪几首吗，都是已经出了的吗，还是有新的。
 
+
+*****
+
+####  rushsong  
+##### 10135#       发表于 2025-1-20 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228384&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-20 11:37</a>
+顺着说话?
+
+也就是喵梦不想让别人注意自己的努力，要是真急眼来一句“老娘都快把鼓锤烂了，结果你还在需要 ...</blockquote>
+不过喵梦也不关心其他成员啊，这话她肯定不会说
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

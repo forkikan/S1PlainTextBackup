@@ -3921,3 +3921,49 @@ GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認して�
 
 这是原片的台词吗？是的话……感觉也在致敬？
 
+
+*****
+
+####  jojog  
+##### 4807#       发表于 2025-1-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234165&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-20 23:45</a>
+
+GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認してみたところ、やはりわからなかった
+
+↓
+
+マチュ ...</blockquote>
+ダジャレ
+
+なにがあんの
+
+にゃあん
+
+*****
+
+####  adios85  
+##### 4808#       发表于 2025-1-20 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234027&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 23:17</a>
+
+红高的α塞克缪象精神感应框架那样装在驾驶舱四周。
+
+另外GQuuuuuuuX的是Ω塞克缪。 ...</blockquote>
+α和Ω这个，说起来之前泄漏的机设图里面，是不是主角机有个代号叫α杀手来着
+
+*****
+
+####  YU_JI  
+##### 4809#       发表于 2025-1-20 23:58
+
+龟龟，认真的啊，真要开始高达咧嘴吗？
+
+<img src="https://img.saraba1st.com/forum/202501/20/235800aozmc8wkkwpk8hpp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3692.jpeg</strong> (23.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:58 上传
+
