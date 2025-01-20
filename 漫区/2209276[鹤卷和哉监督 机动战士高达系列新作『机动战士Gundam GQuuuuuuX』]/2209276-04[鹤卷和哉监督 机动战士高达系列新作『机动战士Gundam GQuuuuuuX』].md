@@ -2362,3 +2362,157 @@ bd成绩能超过水魔吗
 截图都要放慢一倍才能截到他</blockquote>
 这一频不仔细看，会以为扎古是被射击打掉头的，确实可怕。
 
+
+*****
+
+####  刺客ares  
+##### 4664#       发表于 2025-1-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231757&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 17:45</a>
+
+这一频不仔细看，会以为扎古是被射击打掉头的，确实可怕。</blockquote>
+bit挂载在身上可以助推，所以比只有背后推进器的状态机动更强
+
+6个bit应该是79年的满载状态，后续在85年军团战开始的时候已经全部掉光了
+
+也不知道还会不会补件
+
+*****
+
+####  王留美  
+##### 4665#       发表于 2025-1-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231748&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-20 17:44</a>
+ 不过这些带6个bit的应该是79年的镜头吧</blockquote>
+是
+这次还在搞预告欺诈
+
+*****
+
+####  岸浪白野  
+##### 4666#       发表于 2025-1-20 17:49
+
+这PV剪的给没看过的人感觉整部电影都是这内容，然后最后一卡出现个夏亚吓一下人
+
+*****
+
+####  Toby_dak  
+##### 4667#       发表于 2025-1-20 17:50
+
+<blockquote>引用第4658楼星光回路遮断器于2025-01-20 18:40发表的  :
+
+鹤卷把side6当战后日本来写怕不是要搞个日本主旋律动画吧。</blockquote>
+0085的SIDE6确实一股日本味道，车站是跟现在日本一模一样的闸机、线路提示版和月台，马路上标识和交通灯。连军警的帽徽直接照搬警视厅的，搞的警用渣古一股刚从特车二课片场过来的感觉。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Steel.Haze  
+##### 4668#       发表于 2025-1-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231772&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 17:47</a>
+
+bit挂载在身上可以助推，所以比只有背后推进器的状态机动更强
+
+6个bit应该是79年的满载状态，后续在85年军 ...</blockquote>
+这两个浮游炮好像在PV里面还让女主给砸了，不能补充的话，红78以后就是素机作战了。
+
+*****
+
+####  猫兔同笼  
+##### 4669#       发表于 2025-1-20 17:51
+
+这是在丢东西骗锁定？
+
+<img src="https://img.saraba1st.com/forum/202501/20/175059vlljvlbsspr2pll2.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016205.jpg</strong> (94.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:50 上传
+
+*****
+
+####  Steel.Haze  
+##### 4670#       发表于 2025-1-20 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231792&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 17:50</a>
+
+0085的SIDE6确实一股日本味道，车站是跟现在日本一模一样的闸机、线路提示版和月台，马路上标识和交通灯。 ...</blockquote>
+这个其实是鹤卷及老G社的，日风世界观延伸风，在TOP里面常见，老日系科幻的一个元素。简言之，就是日式元素渗透。
+
+
+*****
+
+####  刺客ares  
+##### 4671#       发表于 2025-1-20 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231800&amp;ptid=2209276" target="_blank">猫兔同笼 发表于 2025-1-20 17:51</a>
+
+这是在丢东西骗锁定？</blockquote>
+不是，就是被打坏了
+
+好像是GQX的光束刀和光束步枪都掉件了，后续女主才会拿热能斧作战
+
+*****
+
+####  cckuku  
+##### 4672#       发表于 2025-1-20 17:53
+
+这作的鸡舍绝对是新人入坑的最大阻碍。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ティグル  
+##### 4673#       发表于 2025-1-20 17:53
+
+我呃呃，那不是直接被G-1秒烂
+
+*****
+
+####  Toby_dak  
+##### 4674#       发表于 2025-1-20 17:53
+
+ 本帖最后由 Toby_dak 于 2025-1-20 18:55 编辑 
+<blockquote>Steel.Haze 发表于 2025-1-20 18:50
+这两个浮游炮好像在PV里面还让女主给砸了，不能补充的话，红78以后就是素机作战了。
+
+ ...</blockquote>
+最后两个BIT不是麻球砸的，而是GQUUUUUUX原本驾驶员伏击红高时候砸的。红高打团战时候，拿了轻钢加农的流星锤。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  王留美  
+##### 4675#       发表于 2025-1-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231821&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 17:52</a>
+ 不是，就是被打坏了 好像是GQX的光束刀和光束步枪都掉件了，后续女主才会拿热能斧作战  ...</blockquote>
+其实如果后面上木马的话其实问题不大
+甚至红高达都能有维护
+
+*****
+
+####  oi99o  
+##### 4676#       发表于 2025-1-20 17:55
+
+还有战舰爆炸那几个镜头应该也是79，而且似乎有联邦也有吉翁的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  UNINSTALL42  
+##### 4677#       发表于 2025-1-20 17:55
+
+<blockquote>Steel.Haze 发表于 2025-1-20 17:50
+这两个浮游炮好像在PV里面还让女主给砸了，不能补充的话，红78以后就是素机作战了。
+
+ ...</blockquote>
+砸浮游炮的是夏利亚那边的机师吧，不过修斯也把对面的武器都给卸了，搞的后面女主来开只能用斧头
+
