@@ -4203,3 +4203,19 @@ pv有好多卡喵安，真的好酷
 
 说喜欢这句话之前夏亚还问在他身上感受到什么
 
+
+*****
+
+####  WallHrolf  
+##### 4829#       发表于 2025-1-21 02:02
+
+<img src="https://img.saraba1st.com/forum/202501/21/020048teysstoe9te44oz8.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250121-015825.png</strong> (42.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 02:00 上传
+
+说起来这段的原文有人对过吗，感觉这种说法已经确定前半内容要上TV了？
+
