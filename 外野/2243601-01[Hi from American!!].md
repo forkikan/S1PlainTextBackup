@@ -867,3 +867,70 @@ Obey or Die
 
 这下国际性论坛了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mildsalt  
+##### 99#       发表于 2025-1-20 22:39
+
+让我想起特师
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  外挂全家脚气  
+##### 100#       发表于 2025-1-20 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233545&amp;ptid=2243601" target="_blank">linhaolin1 发表于 2025-1-20 21:57</a>
+
+等等 泥潭的恶臭和劳保要走向世界了?</blockquote>
+这你就见外了，就红迪和4CH什么之类应该是能把S1打趴下的
+
+
+*****
+
+####  挖土豆  
+##### 101#       发表于 2025-1-20 22:44
+
+泥潭光谱应该是随路线一起摇摆吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashunicorn  
+##### 102#       发表于 2025-1-20 22:44
+
+Seriously bro? Talking about politics here, a forum bans a lot of trolls like /pol and Reddit?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  从不黑妹子  
+##### 103#       发表于 2025-1-20 22:44
+
+不是，你们没有自己的论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想騎士  
+##### 104#       发表于 2025-1-20 22:45
+
+这下连泥潭都来了，不出三月被巨魔喷走
+
+*****
+
+####  7do  
+##### 105#       发表于 2025-1-20 22:45
+
+perma banned soon
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  千秋难诉  
+##### 106#       发表于 2025-1-20 22:47
+
+噢，神圣的屎，非常好的工作，爱来自瓷器
+

@@ -2142,3 +2142,11 @@ evol看着是比无印乐的，创圣除了机设就不是啥正经片<img src="
 
 不看无印和ova体会不到前作全毁的颠覆感和evol冈妈的恶趣味<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 223#       发表于 2025-1-20 22:38
+
+不要看无印了，画面旧人设土也就歌好听，刨掉直接看EVOL，只有好人设优秀音乐包装下的乐子没有什么冈妈冲击
+
