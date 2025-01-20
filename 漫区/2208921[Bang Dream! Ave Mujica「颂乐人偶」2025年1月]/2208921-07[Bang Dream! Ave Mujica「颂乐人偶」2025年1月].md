@@ -12539,3 +12539,39 @@ iPhone13是侧面电源键指纹解锁的吧
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  嵇翱u  
+##### 9948#       发表于 2025-1-20 10:01
+
+对邦会在动画里提到吗？如果没有，那四月的三次元对邦对动画来说没有影响吧。
+
+如果会提到，就之前那个苦大仇深的宣传图，更感觉像是要给过去做个了断的样子。然后对邦中插点小剧场，对C团彻底放下。
+
+但是这么安排，爱音另说，她已经对C团的麻烦事习惯了。鸡团那边还有三个人也要插足C团往事？感觉不太可能。
+
+*****
+
+####  斯维西娅  
+##### 9949#       发表于 2025-1-20 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227223&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-1-20 09:35</a>
+
+肯定不能指望鸡团这5个人自己吵着吵着就把事情解决了，mygo那边5个人难道全都吃素干看着啊
+
+第一季的时候睦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我没意见，就看鸡粉接不接受了
+
+*****
+
+####  御幸一也  
+##### 9950#       发表于 2025-1-20 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227223&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-1-20 09:35</a>
+
+肯定不能指望鸡团这5个人自己吵着吵着就把事情解决了，mygo那边5个人难道全都吃素干看着啊
+
+第一季的时候睦 ...</blockquote>
+2025年了還能有這麼典的不容易，加油夢
+
