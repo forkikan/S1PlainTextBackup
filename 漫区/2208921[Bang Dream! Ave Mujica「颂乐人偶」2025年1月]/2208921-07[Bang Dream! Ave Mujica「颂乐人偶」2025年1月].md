@@ -12719,3 +12719,115 @@ soyo助攻的可能性还是很大的
 没看过mygo直接看mujica原来是有
 【闲聊一会儿颂乐人偶的前三集-哔哩哔哩】 [https://b23.tv/fctnxJ1](https://b23.tv/fctnxJ1)
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 9965#       发表于 2025-1-20 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227837&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-1-20 10:43</a>
+
+首先看你定义的帮助到什么程度了，帮助当然没问题，狗救鸡怎么可能
+
+—— 来自 vivo V2301A, Android 14 ...</blockquote>
+肯定不会说是狗团出大力然后力挽狂澜救鸡团于水火这种戏码，这好歹是mujica的动画，孰轻孰重还是有的。要真写成这样我也骂武士道是さび。
+
+现状就是鸡团除了祥睦，其他三人都不了解c团发生了什么，墨提丝上线了多半也指望不上，祥子也不像能自己开口说这些事的样子。
+
+但是只要狗团给点信息，就像第一季初华提醒灯一样，让鸡团其他人比如初华和海玲知道这些事，那她们就有正当的行动理由和目的了。现在对于她们来说没有情报没有信息，完全就是一抹黑，这怎么操作？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 9966#       发表于 2025-1-20 10:56
+
+见识太短了 什么时候剪头发
+
+*****
+
+####  十九号大侠  
+##### 9967#       发表于 2025-1-20 10:57
+
+软弱的祥子到底死没死啊，这不经常撒娇吗
+
+*****
+
+####  ads147147  
+##### 9968#       发表于 2025-1-20 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227959&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-20 10:57</a>
+软弱的祥子到底死没死啊，这不经常撒娇吗</blockquote>
+大祥只要情绪不好就会开始说胡话，软弱，练习之类的都是经典卡组了。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 9969#       发表于 2025-1-20 11:01
+
+其实很多人都没有提到一个点
+就是至今为止 灯还没有当面表达过她对祥子把自己带上音乐道路这件事的感谢
+之后大概率是会向本人传达的
+
+如果是土味一点的发展
+很可能是初华爆了之后 
+祥子自闭阶段表示自己从来没有给身边的人带来什么好事
+然后灯表示并不是这样 你当初改变了我的命运
+然后祥子受到鼓励之后去海岛追妻什么的
+
+正好也和mygo第十集初华助攻灯对上了
+真是工工又整整
+
+*****
+
+####  黑夜落叶秋天  
+##### 9970#       发表于 2025-1-20 11:01
+
+<img src="https://img.saraba1st.com/forum/202501/20/110050b4n4g6hs936nfff7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-20-11-00-27-06_5b19eeae754b18421d48054e4a8744e7.jpg</strong> (150.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 11:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/110050m79q7brnxghb49gr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-20-11-00-35-23_5b19eeae754b18421d48054e4a8744e7.jpg</strong> (186.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 11:00 上传
+
+是看番看到狗身上去了还是只会提取关键词不会联系前后文
+
+*****
+
+####  osore  
+##### 9971#       发表于 2025-1-20 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中二发言，需要观众自带翻译器
+
+*****
+
+####  ddy2811  
+##### 9972#       发表于 2025-1-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227959&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-20 10:57</a>
+
+软弱的祥子到底死没死啊，这不经常撒娇吗</blockquote>
+她自己觉得死了，可实际上她现在可能比以前还软弱了，所有心思都系于Mujica之上，而自己的根基并不够深，结果就是独裁无胆民主无量，做起事来束手束脚，表现得强硬纯粹是为了掩盖自己实情的装腔作势，实际上连自己权力的来源都没搞懂，到头来埋头干得越多越看不懂局面
+
+*****
+
+####  黑夜落叶秋天  
+##### 9973#       发表于 2025-1-20 11:06
+
+继不把监督访谈当回事之后
+
+还能看到不需要上下文只需要提取关键词的新思路
+
+那nb
+
