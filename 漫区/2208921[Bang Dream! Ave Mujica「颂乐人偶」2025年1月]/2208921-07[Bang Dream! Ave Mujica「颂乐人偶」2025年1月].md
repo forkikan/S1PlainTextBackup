@@ -14733,3 +14733,89 @@ https://pan.baidu.com/s/1KKGFlZbILKCxbPyalqY9Pg?pwd=6qe9
 
 有兴趣的可以尝试听译一下
 
+
+*****
+
+####  玖羽  
+##### 10138#       发表于 2025-1-21 06:05
+
+<img src="https://img.saraba1st.com/forum/202501/21/060421g251utnn44j4pr4n.jpg" referrerpolicy="no-referrer">
+
+<strong>ぢゃっきー_20250117.jpg</strong> (512.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060420dbn1h5wbnz2dnw6m.jpg" referrerpolicy="no-referrer">
+
+<strong>Ghu_izQaoAAOAc1_orig.jpg</strong> (234.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060419oxw1yrol1wb3pp3a.jpg" referrerpolicy="no-referrer">
+
+<strong>Ghr0fDqW4AAfbP7_orig.jpg</strong> (342.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060420da98ihaxrhmmzakm.jpg" referrerpolicy="no-referrer">
+
+<strong>GhvFW9RaQAAbZPL_orig.jpg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060418vmkbxhe4xs4dym4d.jpg" referrerpolicy="no-referrer">
+
+<strong>GhqxpF_aoAAGW2L_orig.jpg</strong> (192.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060418hdv8f73z188eoozv.jpg" referrerpolicy="no-referrer">
+
+<strong>GhqQRjlbcAA5t7f_orig.jpg</strong> (350.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060418okc15mvt9n9n2tct.jpg" referrerpolicy="no-referrer">
+
+<strong>GhjCqAQacAAae_I_orig.jpg</strong> (374.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060420fdicn5didx5dlgn7.jpg" referrerpolicy="no-referrer">
+
+<strong>GhsnOi_bMAAkXqN_orig.jpg</strong> (661.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060420pcrrg6bbibgb3bei.jpg" referrerpolicy="no-referrer">
+
+<strong>GhsnOkSbQAAuAix_orig.jpg</strong> (454.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/060419o5sh6fhncssswiwh.jpg" referrerpolicy="no-referrer">
+
+<strong>GhrUgtUX0AAImkk_orig.jpg</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 06:04 上传
+
