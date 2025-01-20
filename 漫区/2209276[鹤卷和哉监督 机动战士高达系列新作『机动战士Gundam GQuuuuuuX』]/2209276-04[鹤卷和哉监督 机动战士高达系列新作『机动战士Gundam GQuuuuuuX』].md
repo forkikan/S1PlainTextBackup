@@ -1329,3 +1329,18 @@ Midnight Reflection真挺好听的，循环了好久了
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  法拉  
+##### 4577#       发表于 2025-1-20 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67229089&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 12:51</a>
+
+暴论一下
+
+玩过基连的野望肯定喜欢看0079新高达。毕竟玩自护时候，V作战事件链还搭上一大堆ACE，越早解决损 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">真媚基野粉吗，不从降下作战开始写很难服众啊
+
+这下必须尝尝咸淡了
+

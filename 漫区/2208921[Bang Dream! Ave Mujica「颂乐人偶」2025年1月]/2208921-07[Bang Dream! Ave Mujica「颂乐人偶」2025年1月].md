@@ -13505,3 +13505,47 @@ mggm表示说自己看了之后很感动，总不可能是因为大家来给他�
 
 查看全部评分
 
+
+*****
+
+####  桜庭千景  
+##### 10034#       发表于 2025-1-20 13:09
+
+还在恶人
+
+还在自私鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这都是什么潮流二次元标签吗？
+
+
+*****
+
+####  天空塔书记官  
+##### 10035#       发表于 2025-1-20 13:13
+
+邦和其他原创动画并不一样，是有企划的底层逻辑兜底的，如果没有做好接受这个心理预期的准备，建议是尽早弃番的好，免得到最后因为没看到大爆特爆而撒泼打滚
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yicihanshu  
+##### 10036#       发表于 2025-1-20 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67229134&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-20 12:55</a>
+也就是因为二三季动画放的早，还在企划早期，各团的剧情篇幅短，还没热度，就RAS的剧情要是搁现在搞13集，w ...</blockquote>
+当年各个群和贴吧车chuchu比例少不了一点，情况有区别么，除了chuchu真没粉丝能帮着说话以外。
+当时第二季没赶上演出，粉丝开分锅大会的热情一点也不低啊，恨不得从国服开服分到第三季结束还在分锅，ksm跑出去迎都得被扣个主责之一，ykn路过只是知道两边的事都得被点个名。
+只能说圈子只是变大了，本质还是没变的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  哈曼的YY  
+##### 10037#       发表于 2025-1-20 13:15
+
+官方透了三张新剧照好像
+
