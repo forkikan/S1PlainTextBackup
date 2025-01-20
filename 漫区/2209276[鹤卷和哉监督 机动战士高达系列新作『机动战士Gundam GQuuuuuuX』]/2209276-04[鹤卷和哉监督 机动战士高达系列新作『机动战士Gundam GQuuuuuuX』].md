@@ -3983,3 +3983,22 @@ GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認して�
 
 是什么明显的对照关系吗
 
+
+*****
+
+####  YU_JI  
+##### 4811#       发表于 2025-1-21 00:17
+
+<blockquote>gundammarkⅡ 发表于 2025-1-20 22:59
+红高达的六个浮游炮是怎么挂在身上的，两肩的挂载点各挂一个后，剩余的4个浮游炮像牛高达的浮游飞翔炮那样 ...</blockquote>
+
+好像是三个一组，左右肩各挂一组，腿部再挂两个，共计八个
+
+<img src="https://img.saraba1st.com/forum/202501/21/001741a6ssysnsgcri657t.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3693.png</strong> (294.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 00:17 上传
+
