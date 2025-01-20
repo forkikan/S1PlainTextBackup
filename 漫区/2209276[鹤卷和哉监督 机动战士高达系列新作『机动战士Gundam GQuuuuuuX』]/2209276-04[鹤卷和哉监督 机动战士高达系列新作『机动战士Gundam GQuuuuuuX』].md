@@ -2277,3 +2277,88 @@ bd成绩能超过水魔吗
 —— 来自 鹅球 v3.3.96</blockquote>
 不要再说了好嘛(；一_一)
 
+
+*****
+
+####  oi99o  
+##### 4658#       发表于 2025-1-20 17:36
+
+是大家最喜欢的线下大广告
+
+<img src="https://img.saraba1st.com/forum/202501/20/173612kb8tvjtbid6ibb8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:36 上传
+
+*****
+
+####  星光回路遮断器  
+##### 4659#       发表于 2025-1-20 17:40
+
+鹤卷把side6当战后日本来写怕不是要搞个日本主旋律动画吧。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 4660#       发表于 2025-1-20 17:42
+
+ 本帖最后由 Steel.Haze 于 2025-1-20 17:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231638&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-20 17:30</a>
+
+你打了一大堆第一个就错了。（总会有电影院有上映，和大多数电影院都在上映的宣传效果是不一样的。）300 ...</blockquote>
+你这是虚空造了个馆数上限吗？然后给你自己观点虚空造论据。日本有1,467馆的电影院覆盖，说实话，怎么区区300馆就“全地域覆盖，再多就溢出了”，你的认知中，好像日本就几百馆，你是不是不知道日本的影视实体市场规模，就只是通过一些动画的上映馆数对比自己评估了一个所谓“上限”；我为了新作宣传效果，热点地区多砸上映馆数怎么就不行了？仅仅东京就有320多馆呢。而且鬼灭有长期市场预先运作这种电影的，和高达对应的作品对比那也是去比SEED剧场版，你非要比个TV首映的新IP,然后说什么“馆数太多了，300馆就是日本全领域覆盖的上限了”这种非常不专业的观点。我觉得你太误导其它读者了，纠正一下。我觉得GQX这就是一个投入更高本钱的商业策略。不是你非要强行解读成的“不知好歹，要对标鬼灭，300馆就是日本覆盖上限云云的自以为是的观点”；顺带一说对于强周边IP而言，GQX的首映20亿+的话结合HG售罄的利润，并不比鬼灭赚得少，这种新IP运用砸更多场次宣传新作的方式不足为奇。
+
+*****
+
+####  oi99o  
+##### 4661#       发表于 2025-1-20 17:44
+
+不过这些带6个bit的应该是79年的镜头吧
+
+<img src="https://img.saraba1st.com/forum/202501/20/174432e5zxig48gs55js54.png" referrerpolicy="no-referrer">
+
+<strong>【ネタバレ注意】『機動戦士Gundam GQuuuuuuX（ジークアクス）-Beginning-』Promotion.png</strong> (165.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/174432iwdivqv43v2a37vi.png" referrerpolicy="no-referrer">
+
+<strong>【ネタバレ注意】『機動戦士Gundam GQuuuuuuX（ジークアクス）-Beginning-』Promotion.png</strong> (171.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:44 上传
+
+*****
+
+####  刺客ares  
+##### 4662#       发表于 2025-1-20 17:45
+
+<img src="https://img.saraba1st.com/forum/202501/20/174329h62utm6tvctmuvt0.png" referrerpolicy="no-referrer">
+
+<strong>1737365282405.png</strong> (26.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:43 上传
+
+榎戸gg的创新三人关系性来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 4663#       发表于 2025-1-20 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231669&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 17:33</a>
+
+推上说牢修宙域初战强如鬼神是真的，从扎古身边掠过一剑断头
+
+截图都要放慢一倍才能截到他</blockquote>
+这一频不仔细看，会以为扎古是被射击打掉头的，确实可怕。
+

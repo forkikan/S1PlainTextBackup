@@ -2584,3 +2584,20 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 她现在唯一拿得出手的就是摘了祥子的“桃子”得到的些许话语权
 
+
+*****
+
+####  贰臣  
+##### 246#       发表于 2025-1-20 17:36
+
+人是祥子不惜坑蒙拐骗才拉进来的，团是祥子和海铃运营上武道馆的，流量是都去了初华和睦那里的，喵……喵摘了个面具就成销冠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Reinhold  
+##### 247#       发表于 2025-1-20 17:39
+
+数字和脸都被队友吊打，天赋和背景更不用谈，喵后期的劣等感搞不好比立希严重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
