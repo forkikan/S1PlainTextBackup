@@ -1465,3 +1465,20 @@ AGE的完成体应该是后续的百万吨级武藏
 
 不过果然是职业习惯啊，马上就想到crossover不好写了
 
+
+*****
+
+####  失落之翼  
+##### 4590#       发表于 2025-1-20 15:02
+
+说实话高达头弄得那么繁复无效设计，真不如扎古简洁直观
+
+*****
+
+####  nekkihs2  
+##### 4591#       发表于 2025-1-20 15:05
+
+<img src="https://p.sda1.dev/21/1d2f74d916f41acc89cbd7558c6935c1/1737310770358104.jpg" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
