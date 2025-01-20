@@ -1957,3 +1957,16 @@ Nintendo Switch Forever 简称NSWF
 
 感觉2代joycon大了一号，有氧拳击会握持不好，希望可以继续支持无线连接一代joycon，玩个健身环啥的
 
+
+*****
+
+####  makiRicardo  
+##### 218#       发表于 2025-1-20 13:56
+
+变的更大的升级是负面的
+
+那你不是应该期待ns2和ns2lite吗？
+ns2都变大了，假如有ns2pro，还能变小不成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
