@@ -2978,3 +2978,43 @@ mg难等啊，不如出mr安排上 <img src="https://static.saraba1st.com/image/
 
 gquuuuuux都有mr魂，红高达没啥问题吧，毕竟怎么也有元祖加成
 
+
+*****
+
+####  Steel.Haze  
+##### 4720#       发表于 2025-1-20 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232357&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 18:52</a>
+
+红高达出mg吧，机战戏一出越看越喜欢了</blockquote>
+说到这个，主角机分色复杂，新机设线条逻辑体系也很独特，以及都有独特的结构。但是内构在这个体型下不再明显和重要（太瘦了），所以我觉得可能这代IP会推一个类似FM的1/100比例产品，重视完美分色、外装和外部可动（比如主角机脚部喷口应该是矢量可动的，叶片似乎也该是独立的）（RX78有个穿过身体驾驶舱的且含背包核心战机），但是没有内构造。
+
+
+*****
+
+####  novyDC  
+##### 4721#       发表于 2025-1-20 19:01
+
+突然感觉红高达不难看（）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Gysumitka  
+##### 4722#       发表于 2025-1-20 19:02
+
+新pv起势比前两个快多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4723#       发表于 2025-1-20 19:07
+
+<blockquote>Steel.Haze 发表于 2025-1-20 19:00
+说到这个，主角机分色复杂，新机设线条逻辑体系也很独特，以及都有独特的结构。但是内构在这个体型下不再 ...</blockquote>
+这套机设其实不太适合hg的，很多件都太小太碎了，山下设计的时候也说了没考虑模型化的事
+
+要是后续上大比例观感会好很多
+
