@@ -3123,3 +3123,60 @@ hg不能完全表现机设特色的不要太多，元祖的核心战机啊z高�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  oi99o  
+##### 4734#       发表于 2025-1-20 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232249&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-20 18:36</a>
+
+草，很好奇漏油到底怎么错才能搞出1467馆出来，找了半天，回过头才发现原来是问的百度ai，有点过分了吧这 ...</blockquote>
+查了下，1467馆的说法是来自于厚生劳动省的资料（1467是20年底的数量，最新的数据是23年底的1482），但是这里包括了所有面向社会的电影上映场所，不管是不是商业营业的（比如公司、学校内部的放映厅）都要受相关法律管辖。而我们一般讨论票房的电影院就是各家商业电影院，根据相关产业联盟的统计截至23年底是有592家，其中还包括100多家主要上映旧片和独立电影的小影院。所以新片上映规模达到300多家确实可以说是是基本覆盖完全国了。
+
+*****
+
+####  灵魂收割机  
+##### 4735#       发表于 2025-1-20 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232249&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-20 18:36</a>
+
+草，很好奇漏油到底怎么错才能搞出1467馆出来，找了半天，回过头才发现原来是问的百度ai，有点过分了吧这 ...</blockquote>
+他都不回话了，别寻根究底了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 4736#       发表于 2025-1-20 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232342&amp;ptid=2209276" target="_blank">超级韭菜人 发表于 2025-1-20 18:50</a>
+
+想什么呢？
+
+真有百合的打算，就会跟水魔一样，a遇到了b故事展开，水魔是狸遇到米，而新作都明写了女主遇 ...</blockquote>
+说不定是为了把bg党骗进来杀。
+
+*****
+
+####  蕾洁之风  
+##### 4737#       发表于 2025-1-20 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232575&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-20 19:21</a>
+下巴那块棱角再锐一点会顺眼很多，模型那块件做的太圆润了一点，稍微磨一下应该好很多 ...</blockquote>
+还真是<img src="https://p.sda1.dev/21/4bcc42a7e1e91ccbcc7cb5a6af288c9e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  冰懔  
+##### 4738#       发表于 2025-1-20 20:07
+
+给你搞个能天使面罩附送一张翘边贴纸红高达面部细节琐碎的问题不就解决了吗
+
+*****
+
+####  nnis  
+##### 4739#       发表于 2025-1-20 20:08
+
+其实目前比较像把豚骗进来杀（给你一点贴贴就得了）
+

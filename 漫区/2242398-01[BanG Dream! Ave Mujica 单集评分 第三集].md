@@ -2644,3 +2644,18 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 喵梦之后在出租屋里：<strong>僵住了都能演成这样，不是天才是什么</strong>
 
+
+*****
+
+####  丹德里恩  
+##### 250#       发表于 2025-1-20 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232056&amp;ptid=2242398" target="_blank">玖羽 发表于 2025-1-20 18:15</a>
+
+这里的对话是这样的
+
+睦：吉他弹错了</blockquote>
+祥子我只能猜，她并没有自以为那么了解睦，一直以来是她“高高在上”而睦跟在边上，现在她心里最重要的有且只有母鸡卡根本没把包括睦在内的所有人放心上，心力全用在内耗上了。睦随口一句，她只想赶快掐断这个话题，压根就没细想<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+等周四看mortis对祥子、对母鸡卡的态度就能给这两人长久以来互相之间的错位关心加点间接证据了
+

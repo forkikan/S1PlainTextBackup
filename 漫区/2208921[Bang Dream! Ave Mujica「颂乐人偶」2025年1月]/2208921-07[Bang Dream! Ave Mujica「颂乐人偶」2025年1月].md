@@ -14476,3 +14476,69 @@ layer刚出场的时候我一看wc邦邦乐队居然有这么成熟的女性主�
 
 「ごめんね。」
 
+
+*****
+
+####  玖羽  
+##### 10115#       发表于 2025-1-20 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232708&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-20 19:44</a>
+
+再胡诌一个结局
+
+母鸡卡越来越乱越来越疯最后发生重大违约事件，钱赔光乐队解散</blockquote>
+这是krkrdkdk的少女乐队动画（虽然现在只有dkdk），不是中年文艺电影
+
+照我说，不如
+
+“打鼓半桶水的家伙没资格留在这个乐队！”
+
+（喵梦跑了）
+
+“母鸡卡不需要其乐融融也不需要黄瓜！”
+
+（睦跑了）
+
+“你敢违抗身为P的我吗？”
+
+（海铃跑了）
+
+初华：小祥，即使只有我一个人，我也会在小祥身边的
+
+“闭嘴！只有你一个人有什么用！”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  KozueAkimoto  
+##### 10116#       发表于 2025-1-20 20:01
+
+插个题外话，自从这个照片出来之后爬了一下楼。怎么没人说喵梦衣服烧啊，都透得能看见里面那个衣服了。也没人说一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+IMG_6990.jpeg
+(167.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 19:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/195810ka0uazqmmi74vsv0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IWS2000  
+##### 10117#       发表于 2025-1-20 20:03
+
+<img src="https://p.sda1.dev/21/f31121c33a27b0e891a7dc4555654298/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 10118#       发表于 2025-1-20 20:07
+
+喵梦光是红色丝袜+吊袜带就已经很烧了，要不是穿这么成熟也不会有这么多人猜她是成年人（）
+
+am团的贝斯鼓穿得完全和另外三个小女孩不是一个段位，海铃那紧身裤也烧的很离谱
+
