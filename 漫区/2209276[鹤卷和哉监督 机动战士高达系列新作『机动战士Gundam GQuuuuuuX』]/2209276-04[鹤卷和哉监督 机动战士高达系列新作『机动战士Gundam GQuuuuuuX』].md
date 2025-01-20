@@ -3579,3 +3579,24 @@ X上说有段夏利亚和夏亚喝酒像是事后……</blockquote>
 牢修头顶写的啥？</blockquote>
 爱媛蜜柑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 4778#       发表于 2025-1-20 21:19
+
+场刊里就有这幕
+<img src="https://p.sda1.dev/21/96ab71122f3d7ce4d239f86edcc9d910/IMG_20250118_215034.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4779#       发表于 2025-1-20 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233276&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-20 21:19</a>
+场刊里就有这幕</blockquote>
+只看到模糊的还在想这个是箱子吧没想到真的是啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
