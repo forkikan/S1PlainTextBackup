@@ -3771,3 +3771,53 @@ gqx是被加密后的名字
 除了现代化爆改的，会有原创新机吗</blockquote>
 现代化吗？其实风格有点像刚自己的月球和金星风格吧，不过月球杂兵机连HG都没出，反倒是机战出过
 
+
+*****
+
+####  吃果冻吧你  
+##### 4796#       发表于 2025-1-20 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233952&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-20 23:01</a>
+
+草，检票口是吧</blockquote>
+所以不是plasma而是plazma是吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 4797#       发表于 2025-1-20 23:14
+
+Z「君は刻の涙を見る」
+
+新高达马沙「刻を見える」
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4798#       发表于 2025-1-20 23:16
+
+<img src="https://img.saraba1st.com/forum/202501/20/231628e8x2xvnkxbwx72xb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6647.png</strong> (465.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:16 上传
+
+嗯？所以是G-9，敢达9号机？
+
+*****
+
+####  Toby_dak  
+##### 4799#       发表于 2025-1-20 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233932&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-1-20 23:59</a>
+
+红高达的六个浮游炮是怎么挂在身上的，两肩的挂载点各挂一个后，剩余的4个浮游炮像牛高达的浮游飞翔炮那样 ...</blockquote>
+红高的α塞克缪象精神感应框架那样装在驾驶舱四周。
+
+另外GQuuuuuuuX的是Ω塞克缪。
+
