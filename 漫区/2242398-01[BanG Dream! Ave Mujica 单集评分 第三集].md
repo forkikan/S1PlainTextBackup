@@ -2494,3 +2494,20 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 最后总要包饺子的，不管实际包得怎么样，现在别太上头
 
+
+*****
+
+####  13街的居住民  
+##### 238#       发表于 2025-1-20 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">键帽最恶心的一点是自己很普但是自己却没谱
+能容忍一个人的普，容忍不了做的一切没谱的事
+像键帽这种人真的很少吗，都在说键帽评价要转风向？说出来的那些话像能被淡化一样，在冲浪被清算的时候都要被掘地三尺，那些无理ky的话就能过去了？
+现在感觉每集键帽做的动作都能让人血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+从祥子和睦头的对峙，+2
+键帽贩剑-2
+结尾转向+1
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">很难理解车祥子的动机
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
