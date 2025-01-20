@@ -13315,3 +13315,101 @@ go里灯迷茫的时候初华和睦就来跟她说过话啊，同样的睦和祥
 说到底大喵后面不还是向祥子让步了，直播节目休息的时候也只是和祥子商量要不要让睦表演，祥子不让大喵最后 ...</blockquote>
 那是祥子发现自己的话需要睦背书，但是睦始终不肯表态，所以选择不商量强行推进，若麦只是没时间去阻止，但她还是毫不犹豫的直接闹起来
 
+
+*****
+
+####  古明地雷  
+##### 10016#       发表于 2025-1-20 12:15
+
+显然祥子是为了护初华才这么说的
+
+*****
+
+####  huxiaopao163  
+##### 10017#       发表于 2025-1-20 12:15
+
+ 本帖最后由 huxiaopao163 于 2025-1-20 12:16 编辑 
+
+祥子也不一定是吵架能力不行，可能只是缺少情报，真的不知道喵梦练习很勤奋，导致给对面送刀子了，毕竟她不太关注队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10018#       发表于 2025-1-20 12:16
+
+ 本帖最后由 天空塔书记官 于 2025-1-20 12:19 编辑 
+
+“满脑子只有自己”
+
+“真是高高在上”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+别说现实里遇到喵梦，像祥子这样的领导就能被人接受了 ? 也就是立希自我加压和喵梦隐藏努力才能接受她吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 10019#       发表于 2025-1-20 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这有啥可吵的，难道大家不是来看小祥吃瘪哭哭的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 10020#       发表于 2025-1-20 12:20
+
+问个问题 第一集祥老师说尽量不给初华添加负担算不算关注队友
+
+
+*****
+
+####  木板春香  
+##### 10021#       发表于 2025-1-20 12:22
+
+  可以说是本身习惯性品行高尚，但并没有真的关心过具体行为，只是嘴巴先逞强了
+
+*****
+
+####  山ノ内花音  
+##### 10022#       发表于 2025-1-20 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228794&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-20 12:20</a>
+问个问题 第一集祥老师说尽量不给初华添加负担算不算关注队友</blockquote>
+那句不是警告初华不要拖mujica后腿的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10023#       发表于 2025-1-20 12:24
+
+A团和Sumimi是一个事务所的，不给初华添麻烦就是不给事务所添麻烦，不会影响Sumimi的正常活动和资源配给
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 10024#       发表于 2025-1-20 12:25
+
+<blockquote>山ノ内花音 发表于 2025-1-20 12:23
+那句不是警告初华不要拖mujica后腿的意思吗</blockquote>
+这是哪里看到的角度 太牛逼了
+
+*****
+
+####  天邪鬼  
+##### 10025#       发表于 2025-1-20 12:25
+
+别急着分锅了，依我看这剧情发展就是五个自私鬼打了一季后终于找到了个利益共同点然后一起搞mujica。
+
+第四集mortis大概率要干点啥给之后被打爆做铺垫，顺便让睦正视自己的本心。忘记什么守护祥子之类的屁话吧，你站在舞台上就只有一个目的，就是最大程度的表现自我。然后睦就重拾吉他，彻底癫掉了。对应祥子的一丘之貉
+
+现在这写法挺像那种反派洗白的节奏，祥子前面做四个反派的靶子，最后跳出来说她要做恶人的救世主，真正背负起她人的人生。这样就不用考虑饺子怎么包了
+
