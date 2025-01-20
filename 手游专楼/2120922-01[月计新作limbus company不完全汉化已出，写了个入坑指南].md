@@ -88,3 +88,48 @@
 
 （这个侵蚀态乍一看好像在做XD表情...）
 
+
+*****
+
+####  Jamaisvu  
+##### 1061#       发表于 2025-1-20 18:32
+
+新卡技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202501/20/182755ggtwgvk5wu5vxxh5.jpg" referrerpolicy="no-referrer">
+
+<strong>img-173736874512482e760abc02fbb848d9969054d4bbcd7b0418c6fe764d664a89dd17481070160.jpg</strong> (283.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-20 18:27 上传
+
+红炎杀浮士德可以通过技能给自身叠加烧伤，到一定层数时三技能会变成自爆卡车，给予敌人AOE重创然后死亡。
+
+（力量的代价）
+
+<img src="https://img.saraba1st.com/forum/202501/20/182852xlxxujucc9at2al4.jpg" referrerpolicy="no-referrer">
+
+<strong>83AAF3C5C5D6FA10D081F7CC0F76E0E8.jpg</strong> (425.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-20 18:28 上传
+
+提灯箱设计思路不错，一二技能拼点失败加最终威力但是红币，还有嘲讽亡语的效果。
+
+（可以把破裂队的W箱放回充能队了）
+
+<img src="https://img.saraba1st.com/forum/202501/20/183012xcrmpldm0uzz229m.jpg" referrerpolicy="no-referrer">
+
+<strong>6BBA719824DB264C83FC2BD98F2FB224.jpg</strong> (278.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-20 18:30 上传
+
+胸痛使用后可以增加暴击伤害并让良秀更快叠呼吸层数，斩击伤害更是适配女仆良。
+

@@ -2843,3 +2843,78 @@ GQX也是强调有牙齿，所以最后还是初号机VS十三号机的展开吧
 百合赢了？</blockquote>
 看周边明显是打算两头吃，甚至喵安和牢修都有（ ）
 
+
+*****
+
+####  卑弥呼yamato  
+##### 4706#       发表于 2025-1-20 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232153&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-20 18:25</a>
+
+看周边明显是打算两头吃，甚至喵安和牢修都有（ ）</blockquote>
+三人稳定关系吧，但是牢修怎么看怎么不是这个世界的（
+
+*****
+
+####  刺客ares  
+##### 4707#       发表于 2025-1-20 18:29
+
+喵安和牢修都能画一个上已经不是一般的端水谷了
+
+感觉要团魂结局（
+
+*****
+
+####  Steel.Haze  
+##### 4708#       发表于 2025-1-20 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232125&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-20 18:22</a>
+
+高堡奇人，来透露下另一个世界是联邦打赢了</blockquote>
+没准真设定修或者其中的哪个是从另一个时间线过来的。
+
+*****
+
+####  Gysumitka  
+##### 4709#       发表于 2025-1-20 18:30
+
+不会是翅膀结局吧，周边配对太变态了
+
+
+*****
+
+####  双菜  
+##### 4710#       发表于 2025-1-20 18:32
+
+都三人物语了，注定要两头恰到底
+
+*****
+
+####  Steel.Haze  
+##### 4711#       发表于 2025-1-20 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232099&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-20 18:20</a>
+
+基本明示了吧
+
+光形成道路，从布满NT特效的门口走出</blockquote>
+这个按时做的很到位，然后目前没有动画中壁画的完整镜头和设定图，应该藏了很多信息。
+
+*****
+
+####  adios85  
+##### 4712#       发表于 2025-1-20 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231735&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 17:42</a>
+
+你这是虚空造了个馆数上限吗？然后给你自己观点虚空造论据。日本有1,467馆的电影院覆盖，说实话，怎么区区 ...</blockquote>
+草，很好奇漏油到底怎么错才能搞出1467馆出来，找了半天，回过头才发现原来是问的百度ai，有点过分了吧这
+
+<img src="https://img.saraba1st.com/forum/202501/20/183224cqns2ip7inqzz2xi.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250120183201.jpg</strong> (82.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 18:32 上传
+
