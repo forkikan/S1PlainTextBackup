@@ -13862,3 +13862,44 @@ mygo和A团不是成年人的办公室政治斗争，只是几个初高中的小
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  凉良  
+##### 10069#       发表于 2025-1-20 15:09
+
+不会第四集真的祥子吃瘪加喵梦卖惨吧 这陀螺也抽的太狠了
+
+
+*****
+
+####  necroia  
+##### 10070#       发表于 2025-1-20 15:11
+
+<blockquote>凉良 发表于 2025-1-20 15:09
+不会第四集真的祥子吃瘪加喵梦卖惨吧 这陀螺也抽的太狠了</blockquote>
+为什么不能呢，祥子要背负其他四个人的人生啊，为了队友背背骂名又如何
+
+*****
+
+####  天空塔书记官  
+##### 10071#       发表于 2025-1-20 15:13
+
+看预告抽陀螺的主力是木头，祥子要和木头比惨吗，那大概只能说是自找的了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 10072#       发表于 2025-1-20 15:15
+
+第四集曾经漏过的信息
+
+祥子对睦像纠缠前女友一样
+半泽直树般的观感
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小祥不遭重很难啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

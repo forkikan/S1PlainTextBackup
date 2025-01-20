@@ -2129,3 +2129,16 @@ evol看着是比无印乐的，创圣除了机设就不是啥正经片<img src="
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这集也太赶了吧……
 
+
+*****
+
+####  花礫  
+##### 222#       发表于 2025-1-20 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217331&amp;ptid=2124992" target="_blank">wer4f 发表于 2025-1-18 23:16</a>
+
+这个系列哪部最好看啊？看完两集想补之前的</blockquote>
+无印→ova→evol
+
+不看无印和ova体会不到前作全毁的颠覆感和evol冈妈的恶趣味<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
