@@ -2511,3 +2511,16 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zzhh0131  
+##### 239#       发表于 2025-1-20 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67219068&amp;ptid=2242398" target="_blank">rp1993 发表于 2025-1-19 09:10</a>
+
+满屏讨论角色行为优劣已经是剧情劣化的表现
+
+sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因为大 ...</blockquote>
+你的结论是有点道理的，但你的例子举的不对。soyo的事放在mujica现在这个讨论氛围里和现在的情况不会差多少的。当然我是默认你打错字了，如果你说的是冰川纱夜当我没说（虽然也能套上）。
+

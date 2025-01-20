@@ -13653,3 +13653,68 @@ mygo和A团不是成年人的办公室政治斗争，只是几个初高中的小
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  北条早苗  
+##### 10047#       发表于 2025-1-20 13:38
+
+邦邦的世界观本来就是舞台装置，不然大祥作为最速武道馆的职业乐队主创，跑地方开完live回来车站和成员大吵特吵，第二天早就头条全是母鸡卡解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 10048#       发表于 2025-1-20 13:38
+
+边喝咖啡边哭着接电话？
+
+*****
+
+####  岬开斗  
+##### 10049#       发表于 2025-1-20 13:38
+
+<blockquote>qjw114514 发表于 2025-1-20 13:32
+大喵这是什么怪表情</blockquote>
+喝饮料的时候接到电话妈妈病情恶化现在就要做手术了但是没筹够钱，瞬间解释急功近利摘面具蹭热度的理由。
+
+*****
+
+####  osore  
+##### 10050#       发表于 2025-1-20 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喝高了
+
+*****
+
+####  天空塔书记官  
+##### 10051#       发表于 2025-1-20 13:39
+
+ 本帖最后由 天空塔书记官 于 2025-1-20 13:41 编辑 
+
+喵梦这更像是受委屈的样子，表情多少有点滑稽的感觉，可能是在撒娇和诉苦
+
+波浪嘴基本不会出现在太过严肃的剧情里
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 10052#       发表于 2025-1-20 13:44
+
+下一集又有海玲和立希了啊，这才是我想看的，所以迷子该怎么和A团切割呢<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 10053#       发表于 2025-1-20 13:47
+
+如果没猜错的话，喵梦第四集就会暴露自己土妹的一面，大秀家乡话了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
