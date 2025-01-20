@@ -1112,3 +1112,73 @@ Well If you anti-zion you are good bro
 
 Welcome to the deepest shithole in China internet, think before you talk otherwise you will be banned.
 
+
+*****
+
+####  onemoment  
+##### 126#       发表于 2025-1-20 23:14
+
+Welcome to the S1 Forum,the trolls' lair.
+
+*****
+
+####  中国科学院  
+##### 127#       发表于 2025-1-20 23:16
+
+不是，泥潭之前不是还奚落xhs一中国平台一见老外就跩洋文吗?为何前踞而后躬邪？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 128#       发表于 2025-1-20 23:17
+
+赚美元花美元，狗叔该把CN以外的注册费收到ten 刀乐了
+
+*****
+
+####  蔵女  
+##### 129#       发表于 2025-1-20 23:18
+
+入谭费是多少，10刀么…
+
+
+*****
+
+####  pp1349  
+##### 130#       发表于 2025-1-20 23:20
+
+泥潭也是走向国际化大舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  windtrack_qh  
+##### 131#       发表于 2025-1-20 23:20
+
+不能键政，but could keyborad politics?
+
+*****
+
+####  致幻之勾  
+##### 132#       发表于 2025-1-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234021&amp;ptid=2243601" target="_blank">中国科学院 发表于 2025-1-20 23:16</a>
+
+不是，泥潭之前不是还奚落xhs一中国平台一见老外就跩洋文吗?为何前踞而后躬邪？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+哈哈，说得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  321zmbhy  
+##### 133#       发表于 2025-1-20 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233655&amp;ptid=2243601" target="_blank">ff2077 发表于 2025-1-20 22:15</a>
+
+对于洋人而言 能把s1当成轻度版4ch吗？</blockquote>
+别的不说，信伪史论信心医的太少，没那味。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
