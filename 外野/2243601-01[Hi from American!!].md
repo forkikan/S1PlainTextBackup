@@ -934,3 +934,79 @@ perma banned soon
 
 噢，神圣的屎，非常好的工作，爱来自瓷器
 
+
+*****
+
+####  致幻之勾  
+##### 107#       发表于 2025-1-20 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233695&amp;ptid=2243601" target="_blank">tk553521 发表于 2025-1-20 22:22</a>
+
+全网最尊重鱿鱼论坛
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+这人光谱是反犹
+
+*****
+
+####  吴怀在  
+##### 108#       发表于 2025-1-20 22:50
+
+只谈风月
+
+
+*****
+
+####  吾辈猫  
+##### 109#       发表于 2025-1-20 22:53
+
+Welcome, you will find a lot of trolls here and polarized opinions, but definitely a good place to practice critical thinking and human observations
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  买码！注册！  
+##### 110#       发表于 2025-1-20 22:53
+
+不对吧，洋大人就可以键政了？说好的只谈风月呢？
+
+建议先关三天小黑屋洗洗尘
+
+*****
+
+####  f1iceman  
+##### 111#       发表于 2025-1-20 22:54
+
+一想到入会费，耳边就响起：秃刀了，秃刀了。秃刀了，秃刀了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bore-yan  
+##### 112#       发表于 2025-1-20 22:54
+
+wait a second，i said you want to talk politics in this place，thats a bad ideal ，you account maybe ban again and again
+
+*****
+
+####  qratosones1337  
+##### 113#       发表于 2025-1-20 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233366&amp;ptid=2243601" target="_blank">lilisipis 发表于 2025-1-20 21:32</a>
+
+你先说清楚这个左翼是支持社会主义降低贫富差距控制资本还是支持LGBT种族多元化的左翼。如果是后者我估计 ...</blockquote>
+其实也还好，能黑鱿鱼就有共同语言
+
+*****
+
+####  remedios010000  
+##### 114#       发表于 2025-1-20 22:57
+
+   Z
+N十N
+   Z
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
