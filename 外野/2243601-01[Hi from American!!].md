@@ -699,3 +699,106 @@ Hello Mark, welcome to the forum that identify as a Hamas supporter by the Zioni
 
 Snoopy rules this truf where is your doge tax!<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  321zmbhy  
+##### 81#       发表于 2025-1-20 22:06
+
+泥潭怕不是国内最不适合外国人上的论坛第一名，华语第一！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 82#       发表于 2025-1-20 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233389&amp;ptid=2243601" target="_blank">金属化反射装甲 发表于 2025-1-20 21:34</a>
+
+说好的小红书能黑鱿鱼呢</blockquote>
+你可以黑鱿鱼，鱿鱼也可以举报嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该给他科普B站的梗了：有补档的才是狠活<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tansapple  
+##### 83#       发表于 2025-1-20 22:07
+
+泥潭各种自创的键政黑话太多了，引路的老哥记得做好解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UmarIbnLaAhad  
+##### 84#       发表于 2025-1-20 22:08
+
+小红书现在进来不少鱿鱼，在巴勒斯坦人发的帖子下面疯狂阴阳怪气，玩什么战争从10月7号开始，巴勒斯坦人图了多少妇女儿童云云的屁话<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 85#       发表于 2025-1-20 22:08
+
+Anyway, I'm John Reed from the U.S. I suggest u reading some of my work to learn more about the great labour class in America.
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贪秽| + 1|戏服合格|
+
+查看全部评分
+
+*****
+
+####  蜇灵  
+##### 86#       发表于 2025-1-20 22:09
+
+这下泥潭哈马斯论坛的帽子实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sandro  
+##### 87#       发表于 2025-1-20 22:10
+
+这就是全网最爱鱿论坛吗
+
+*****
+
+####  Acla  
+##### 88#       发表于 2025-1-20 22:10
+
+哈哈，这也能拉来呀<img src="https://static.saraba1st.com/image/smiley/face2017/208.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MRhythm  
+##### 89#       发表于 2025-1-20 22:10
+
+金の亡者
+
+对味儿了
+
+
+*****
+
+####  ff2077  
+##### 90#       发表于 2025-1-20 22:15
+
+对于洋人而言 能把s1当成轻度版4ch吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚果大爷  
+##### 91#       发表于 2025-1-20 22:16
+
+<blockquote>金属化反射装甲 发表于 2025-1-20 21:34
+说好的小红书能黑鱿鱼呢</blockquote>
+被组团集中举报就会被ai爆破
+
