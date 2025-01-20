@@ -4219,3 +4219,23 @@ pv有好多卡喵安，真的好酷
 
 说起来这段的原文有人对过吗，感觉这种说法已经确定前半内容要上TV了？
 
+
+*****
+
+####  UNINSTALL42  
+##### 4830#       发表于 2025-1-21 02:24
+
+<blockquote>猪突猛进R 发表于 2025-1-21 01:27
+原作也是有些影响力的，GUNDAM EVOLVE专门出过一集，他算半个主角（另半个是骡子）：
+
+MAN-03 布劳·布罗_ ...</blockquote>
+这句话0079就有啊
+
+<img src="https://img.saraba1st.com/forum/202501/21/022422wxjajjja5xox1guj.jpg" referrerpolicy="no-referrer">
+
+<strong>1000021744.jpg</strong> (64.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 02:24 上传
+
