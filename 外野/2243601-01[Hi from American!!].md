@@ -1515,3 +1515,13 @@ Anyway still more valuable than 4chan pass<img src="https://static.saraba1st.com
 1.以下四个选项哪个不是s1论坛代指新任大总统的黑话
 1.ykw 2.懂王 3.建国 4.观海
 
+
+*****
+
+####  基本农田  
+##### 171#       发表于 2025-1-21 04:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234426&amp;ptid=2243601" target="_blank">yxch 发表于 2025-1-21 01:00</a>
+聊天机器人翻译成英语就能骗到鹅</blockquote>
+以前可是翻译都不用的，算是有进步了
+
