@@ -1353,3 +1353,31 @@ WTF…真的假的…
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  星十影  
+##### 153#       发表于 2025-1-21 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233378&amp;ptid=2243601" target="_blank">GASEOUSSNAKE 发表于 2025-1-20 21:33</a>
+不是后者</blockquote>
+还得问一句：是不是前者
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  acejoe  
+##### 154#       发表于 2025-1-21 00:44
+
+希望把麻将脸带到国际上
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Vzero  
+##### 155#       发表于 2025-1-21 00:44
+
+10刀乐！10刀乐！
+
