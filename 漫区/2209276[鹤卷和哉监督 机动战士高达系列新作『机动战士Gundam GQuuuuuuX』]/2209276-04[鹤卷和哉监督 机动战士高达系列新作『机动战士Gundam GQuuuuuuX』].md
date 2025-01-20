@@ -1157,3 +1157,38 @@ pjsk的原因吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kirakira~  
+##### 4559#       发表于 2025-1-20 11:24
+
+看x看到一个说完全没看过高达但觉得很好的...观感这玩意还是挺玄学的
+
+
+*****
+
+####  猪突猛进R  
+##### 4560#       发表于 2025-1-20 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67227660&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-20 10:25</a>
+
+看铁血：再差差不过age
+
+看水魔：再差差不过铁血
+
+看gqx：</blockquote>
+个人认为铁血还是比AGE强的（虽然有限）。
+
+水魔比铁血好（虽然其实是另一种烂）。
+
+所以其实AGE是谷底，高达实际在缓慢回升？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jojonathan  
+##### 4561#       发表于 2025-1-20 11:33
+
+g-reco已经不配被想起了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
