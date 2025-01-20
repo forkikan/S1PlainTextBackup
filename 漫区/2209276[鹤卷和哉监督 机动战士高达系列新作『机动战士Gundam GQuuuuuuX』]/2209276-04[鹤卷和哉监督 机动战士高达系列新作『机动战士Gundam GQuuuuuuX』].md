@@ -3651,3 +3651,45 @@ X上说有段夏利亚和夏亚喝酒像是事后……</blockquote>
 
 鸡夸克斯脸变扭的原因难道不就是因为他硬要把吉翁系的头和高达融在一起的关系吗（
 
+
+*****
+
+####  复活赛3比0  
+##### 4784#       发表于 2025-1-20 22:28
+
+除了现代化爆改的，会有原创新机吗<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4785#       发表于 2025-1-20 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233652&amp;ptid=2209276" target="_blank">kirakira~ 发表于 2025-1-20 22:15</a>
+ 鸡夸克斯脸变扭的原因难道不就是因为他硬要把吉翁系的头和高达融在一起的关系吗（ ...</blockquote>
+不止头，还有熟悉的大腿动力管（
+
+
+*****
+
+####  YU_JI  
+##### 4786#       发表于 2025-1-20 22:36
+
+<blockquote>复活赛3比0 发表于 2025-1-20 22:28
+除了现代化爆改的，会有原创新机吗</blockquote>
+我也想问这个
+
+*****
+
+####  pu  
+##### 4787#       发表于 2025-1-20 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67229817&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-20 14:13</a></blockquote>
+你TM倒是做个新作啊 
+
+*****
+
+####  王留美  
+##### 4788#       发表于 2025-1-20 22:36
+
+艹gquuuuuux不是本名啊
+
