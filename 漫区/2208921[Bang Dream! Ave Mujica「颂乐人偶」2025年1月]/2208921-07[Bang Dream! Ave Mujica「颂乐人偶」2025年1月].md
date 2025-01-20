@@ -13482,3 +13482,26 @@ mggm表示说自己看了之后很感动，总不可能是因为大家来给他�
 
 难道不是恨比爱更长久吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 10033#       发表于 2025-1-20 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一方面最需要练习非常万用，不管你是天才还是初学者都缺练，哪有完美的人，另一方面是大猫先说的初华练习不足。
+最后有没有可能最需要练习是因为大猫和灯长得像。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|代餐PTSD患者恨不得来扣你鹅管制你的言论了.|
+
+查看全部评分
+
