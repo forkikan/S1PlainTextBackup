@@ -12503,3 +12503,17 @@ iPhone13是侧面电源键指纹解锁的吧
 
 靠丰川清告破局的可能性都更大点
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 9946#       发表于 2025-1-20 09:35
+
+肯定不能指望鸡团这5个人自己吵着吵着就把事情解决了，mygo那边5个人难道全都吃素干看着啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+第一季的时候睦就拉过go团一把，海玲也算是参和了一脚，初华也和灯搭上线了，后续多半素睦、华灯、祥灯、希海都有对手戏的。
+
+从现在soyo拷问完睦就直接回RING汇报来看，go团简直就是一块铁板，除了猫猫以外每个人都能收集信息然后交换情报，共同出谋划策。
+
+到时候拼团魂go团怕不是把鸡团吊起来抽<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
