@@ -11223,3 +11223,39 @@ TMD 太狗了</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jackyhuang  
+##### 16142#       发表于 2025-1-20 18:00
+
+<img src="https://p.sda1.dev/21/f95c3cc2062de57d6f31db76e0b5bed0/image.jpg" referrerpolicy="no-referrer">
+真的看得出在C2吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  quanlix  
+##### 16143#       发表于 2025-1-20 18:25
+
+玩的时候没看出来瞎猜的，感觉要么a2要么c2，现在看截图仔细看是有个轮廓
+
+*****
+
+####  溯夜  
+##### 16144#       发表于 2025-1-21 01:11
+
+才发现24年一个新史实日本人都么有，你月终于发现日本人卖不出去的现实了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jackyhuang  
+##### 16145#       发表于 2025-1-21 07:09
+
+废狗要日本人不就只能靠经验值，去年没地方放咕哒咕哒那当然没有啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
