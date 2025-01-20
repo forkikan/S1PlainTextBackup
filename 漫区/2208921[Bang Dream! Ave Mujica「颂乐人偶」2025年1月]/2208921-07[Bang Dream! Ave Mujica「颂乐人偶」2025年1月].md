@@ -14196,3 +14196,42 @@ layer刚出场的时候我一看wc邦邦乐队居然有这么成熟的女性主�
 
 <img src="https://img.saraba1st.com/forum/202501/20/164154bysutofof6upggva.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10100#       发表于 2025-1-20 17:06
+
+2025年01月23日，TVガイドA Stars 次号：vol.06
+
+高尾+柿本访谈
+
+<img src="https://img.saraba1st.com/forum/202501/20/170528pda7u70mzzyriogz.png" referrerpolicy="no-referrer">
+
+<strong>无标题00.png</strong> (84.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:05 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/170532v6j4xx4hlhgw44p8.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (42.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 17:05 上传
+
+*****
+
+####  天空塔书记官  
+##### 10101#       发表于 2025-1-20 17:07
+
+电视节目就是想让A团复刻“名场面”，所以一定会打断演奏的，观众是真想看这个
+
+就像看生放送期待声优事故整活一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
