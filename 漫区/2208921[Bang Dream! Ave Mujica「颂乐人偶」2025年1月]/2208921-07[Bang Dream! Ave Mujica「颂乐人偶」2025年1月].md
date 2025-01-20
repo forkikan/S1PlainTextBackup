@@ -13549,3 +13549,47 @@ mggm表示说自己看了之后很感动，总不可能是因为大家来给他�
 
 官方透了三张新剧照好像
 
+
+*****
+
+####  达达葱2  
+##### 10038#       发表于 2025-1-20 13:19
+
+<blockquote>哈曼的YY 发表于 2025-1-20 13:15
+官方透了三张新剧照好像</blockquote>
+在哪里呢
+
+*****
+
+####  江口夕  
+##### 10039#       发表于 2025-1-20 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica不就是祥子用来代餐c团的，本来就是错误的开始。
+虽然但是这团就是祥子开的。至于他是商业好过家家也罢，最终就是个私人乐团罢了，控股的都是祥子家的，搞不好初华事务所也就是个打工的。
+本质上来说爱咋玩咋玩。
+事业厨在这讨论个优胜劣汰没用。大祥真的想飞黄腾达么，她爹如果振作的话，我估计大祥也无所谓mujica能不能飞黄腾达。各位真没必要这么上心
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 10040#       发表于 2025-1-20 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67229292&amp;ptid=2208921" target="_blank">yicihanshu 发表于 2025-1-20 13:15</a>
+当年各个群和贴吧车chuchu比例少不了一点，情况有区别么，除了chuchu真没粉丝能帮着说话以外。
+当时第二 ...</blockquote>
+圈子是这样没错，但一百个人闹事和一千人闹事性质完全不一样，mygo可是年轻人的第一部乐队番啊，破圈引流的太多了，规模不可同日而语<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 10041#       发表于 2025-1-20 13:23
+
+希望大家讨论剧情的时候，能以可以包饺子为前提，不是说最后一定能包成，但需要建立有一定倾向的心理预期，否则只是鸡同鸭讲，最后除了吵架没有任何意义<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
