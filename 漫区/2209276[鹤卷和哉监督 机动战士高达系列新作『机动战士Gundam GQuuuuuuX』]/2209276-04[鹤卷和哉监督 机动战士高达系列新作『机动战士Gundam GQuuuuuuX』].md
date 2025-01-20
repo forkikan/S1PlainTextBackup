@@ -1760,3 +1760,100 @@ AGE的完成体应该是后续的百万吨级武藏
 发现很多画师都喜欢画麻球看垃圾的那个眼神。是哪里出现过了让人印象这么深刻</blockquote>
 pv里就有吧 她举着电子板的时候<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 4618#       发表于 2025-1-20 16:36
+
+<blockquote>猪突猛进R 发表于 2025-1-20 17:23
+最好把0079的老剧场版3部曲看了，这样前40分钟会很乐。</blockquote>
+难道不是GTO OVA？无缝链接啊。鲁姆会战接SIDE7。
+
+*****
+
+####  marlun  
+##### 4619#       发表于 2025-1-20 16:36
+
+s1有关于新高达的交流群吗
+
+*****
+
+####  Toby_dak  
+##### 4620#       发表于 2025-1-20 16:38
+
+<blockquote>岸波白野扎比子 发表于 2025-1-20 17:09
+泥潭的EVA专楼是哪个呀</blockquote>
+可以点我的头像看我发的帖子，最高的那个就是。
+
+*****
+
+####  没取名啊  
+##### 4621#       发表于 2025-1-20 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231111&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 16:36</a>
+难道不是GTO OVA？无缝链接啊。鲁姆会战接SIDE7。</blockquote>
+痞子这次寄情书的对象是富野，让人看安彦就歪了
+
+*****
+
+####  Steel.Haze  
+##### 4622#       发表于 2025-1-20 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231111&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-20 16:36</a>
+
+难道不是GTO OVA？无缝链接啊。鲁姆会战接SIDE7。</blockquote>
+不行，这个是对标TV79，而GTO剧情，夏亚在鲁姆之前就已经见过和收养拉拉了。而TV/剧场79中，夏亚要卡尔玛死后停职时才找到拉拉，所以这部维持了夏亚在鲁姆和去S7前没找到拉拉的设定。是完全比对老79。
+
+*****
+
+####  RE㐅ia  
+##### 4623#       发表于 2025-1-20 16:39
+
+<blockquote>marlun 发表于 2025-1-20 16:36
+s1有关于新高达的交流群吗</blockquote>
+769240605
+
+C090B1D2-F928-4119-A619-FC28FA67B649.png
+(507.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 16:39 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/163910ic1mvmsic64h1c4q.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adios85  
+##### 4624#       发表于 2025-1-20 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231093&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-20 16:34</a>
+
+无限列车可不是TV先行，而是正经剧场版，非常成功后有TV上映；而且鬼灭经过长期的市场积累了（漫画、TV动 ...</blockquote>
+？？？？？？？谁tm和你说无限列车了，你是来搞笑的吗
+
+鬼灭从锻刀村开始就是把上一部的最后一集或两集+最新的tv第一集合一起，做个tv特别篇先行上映电影院了，已经搞了两次了，锻刀村和柱训练都是这样
+
+
+*****
+
+####  RE㐅ia  
+##### 4625#       发表于 2025-1-20 16:43
+
+<blockquote>adios85 发表于 2025-1-20 16:40
+？？？？？？？谁tm和你说无限列车了，你是来搞笑的吗
+
+鬼灭从锻刀村开始就是把上一部的最后一集或两集+最 ...</blockquote>
+我当时没关注咨询还以为锻刀村和列车一样都是剧场版。看附近影院有就直接买票了，看完直呼上当（
+
+*****
+
+####  岸浪白野  
+##### 4626#       发表于 2025-1-20 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230983&amp;ptid=2209276" target="_blank">hibike! 发表于 2025-1-20 16:22</a>
+
+乱入：只看过水魔能去看这个吗？</blockquote>
+可以直接看，楼层推荐先补了动画也是好心，不过感觉没时间的先了解下世界观的背景设定就行
+
