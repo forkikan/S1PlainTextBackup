@@ -2072,3 +2072,81 @@ C090B1D2-F928-4119-A619-FC28FA67B649.png
 
 而对于东宝来说是需要票房来创造收入，目前偏低的上座率对其并非好事。如果不是其决策失误的话，就说明其愿意让利给万代以维系合作关系
 
+
+*****
+
+####  kykawaiii  
+##### 4644#       发表于 2025-1-20 17:16
+
+律师的歌配上去效果还挺好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Piano-Forest  
+##### 4645#         楼主| 发表于 2025-1-20 17:17
+
+[https://x.com/matatabeat/status/1880918799547027575](https://x.com/matatabeat/status/1880918799547027575)
+
+1/17より公開の劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』にてLO、原画でお手伝いさせていただいております！
+
+ぜひ劇場へ足を運んでいただけると幸いです。
+<img src="https://p.sda1.dev/21/243b000fc263abbcc10a3a20433e0553/20250120_171634.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古怪山庄士大夫  
+##### 4646#       发表于 2025-1-20 17:18
+
+这个成绩中规中矩，真没啥好吵的，还不如展望后面tv播放，就算你觉得就是亏了，那也没啥，这两家又不是缺钱的主
+
+*****
+
+####  ads147147  
+##### 4647#       发表于 2025-1-20 17:19
+
+战舰爆炸镜头还是挺痞子的。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刺客ares  
+##### 4648#       发表于 2025-1-20 17:19
+
+看了下85部分的机战戏画面，做的不错
+
+*****
+
+####  ads147147  
+##### 4649#       发表于 2025-1-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231550&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-1-20 17:18</a>
+这个成绩中规中矩，真没啥好吵的，还不如展望后面tv播放，就算你觉得就是亏了，那也没啥，这两家又不是缺钱 ...</blockquote>
+bd成绩能超过水魔吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  kykawaiii  
+##### 4650#       发表于 2025-1-20 17:22
+
+啊啊骸死我力<img src="https://p.sda1.dev/21/522b91ba3f475c63802a6c9459a46eee/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Steel.Haze  
+##### 4651#       发表于 2025-1-20 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67231584&amp;ptid=2209276" target="_blank">kykawaiii 发表于 2025-1-20 17:22</a>
+
+啊啊骸死我力
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+我也刚想说这个。新78造形貌似刻意就是要定位的有点惊悚感。
+
