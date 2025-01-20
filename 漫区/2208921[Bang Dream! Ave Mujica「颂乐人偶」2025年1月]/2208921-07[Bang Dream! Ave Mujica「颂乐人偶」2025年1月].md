@@ -13304,3 +13304,14 @@ go里灯迷茫的时候初华和睦就来跟她说过话啊，同样的睦和祥
 喵梦鼓棒都要断了还缺练习？
 这句话还给你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>是看番看到狗身上去了还是只会提取关键词不会联系前后文</blockquote>
 
+
+*****
+
+####  梅杜莎  
+##### 10015#       发表于 2025-1-20 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67228479&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-20 11:46</a>
+
+说到底大喵后面不还是向祥子让步了，直播节目休息的时候也只是和祥子商量要不要让睦表演，祥子不让大喵最后 ...</blockquote>
+那是祥子发现自己的话需要睦背书，但是睦始终不肯表态，所以选择不商量强行推进，若麦只是没时间去阻止，但她还是毫不犹豫的直接闹起来
+
