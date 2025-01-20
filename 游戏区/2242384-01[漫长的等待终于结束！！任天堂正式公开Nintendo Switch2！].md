@@ -1970,3 +1970,15 @@ ns2都变大了，假如有ns2pro，还能变小不成<img src="https://static.s
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  强尼高达  
+##### 219#       发表于 2025-1-20 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67229671&amp;ptid=2242384" target="_blank">makiRicardo 发表于 2025-1-20 13:56</a>
+变的更大的升级是负面的
+
+那你不是应该期待ns2和ns2lite吗？</blockquote>
+你任历史上也就出过GBC和新3DS两次半代升级，GBC那次算不算新主机还有争议但是体积变小了，新3DS第三方根本不买账
+
