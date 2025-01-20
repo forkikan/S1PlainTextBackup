@@ -1574,3 +1574,32 @@ AGE的完成体应该是后续的百万吨级武藏
 
 高达的活粉还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 4602#       发表于 2025-1-20 15:56
+
+ 本帖最后由 Steel.Haze 于 2025-1-20 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230569&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-20 15:35</a>
+
+最大问题还是东宝脑子在想什么排了400馆</blockquote>
+东宝认为这样一部TV头三集剪辑剧场版，'无根无源'的新高达，至少要400馆才能挑战5～10亿？为了拉动新题材，院校成本上就多砸一些？
+
+这个馆数，其实30亿比较理想，不过目前看也就20亿，还可以啦。
+
+
+*****
+
+####  番茄牛奶  
+##### 4603#       发表于 2025-1-20 16:01
+
+老登的底力<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双菜  
+##### 4604#       发表于 2025-1-20 16:05
+
+基本是处于一个能黑但也能还嘴的成绩吧
+
