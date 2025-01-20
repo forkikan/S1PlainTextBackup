@@ -3727,3 +3727,47 @@ gqx是被加密后的名字
 麻球和修司感觉很像老动画的毛头小子和电波女主的性转版</blockquote>
 骡拉性转版，正好也是相遇在side6（
 
+
+*****
+
+####  gundammarkⅡ  
+##### 4793#       发表于 2025-1-20 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">红高达的六个浮游炮是怎么挂在身上的，两肩的挂载点各挂一个后，剩余的4个浮游炮像牛高达的浮游飞翔炮那样各自连接到这两个浮游炮上？
+另外小腿也有类似挂载点的灰色凸出结构，那应该也能像原稿图那样挂8个吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  oi99o  
+##### 4794#       发表于 2025-1-20 23:01
+
+草，检票口是吧
+
+<img src="https://img.saraba1st.com/forum/202501/20/230131r3d3z7nrr004m98n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4955.JPEG</strong> (92.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/230131lk43ubb9ni9b3ccw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4954.JPEG</strong> (524.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 23:01 上传
+
+*****
+
+####  ナルバレック  
+##### 4795#       发表于 2025-1-20 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233732&amp;ptid=2209276" target="_blank">复活赛3比0 发表于 2025-1-20 22:28</a>
+
+除了现代化爆改的，会有原创新机吗</blockquote>
+现代化吗？其实风格有点像刚自己的月球和金星风格吧，不过月球杂兵机连HG都没出，反倒是机战出过
+
