@@ -530,3 +530,83 @@ welcome to the troll forum S1<img src="https://static.saraba1st.com/image/smiley
 
 泥潭应该马上引入LLM在线翻译<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hydro  
+##### 60#       发表于 2025-1-20 21:49
+
+泥潭的主要生态不是赢赢人测颅先生和前现代礼教劳保吗<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+你看这哪有左啊，不都是赢赢人吗
+
+*****
+
+####  致幻之勾  
+##### 61#       发表于 2025-1-20 21:49
+
+讲道理，就马一龙那所作所为，来泥潭不是属于要被攻击的类型吗？
+
+*****
+
+####  姚纳  
+##### 62#       发表于 2025-1-20 21:51
+
+让他用翻译插件刷中东楼吧，最有效了解泥潭倾向的方法
+
+
+*****
+
+####  GASEOUSSNAKE  
+##### 63#       发表于 2025-1-20 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233490&amp;ptid=2243601" target="_blank">致幻之勾 发表于 2025-1-20 21:49</a>
+
+讲道理，就马一龙那所作所为，来泥潭不是属于要被攻击的类型吗？</blockquote>
+他可是两边都骂了一遍
+
+*****
+
+####  poppin  
+##### 64#       发表于 2025-1-20 21:53
+
+狗叔来说说真的假的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KDConan  
+##### 65#       发表于 2025-1-20 21:54
+
+我每句话都能看懂，我的英语还有救<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  基本农田  
+##### 66#       发表于 2025-1-20 21:54
+
+根据陈平不等式，注册费起码也得15刀。还有这手机验证是怎么通过的？
+
+*****
+
+####  solmyrli  
+##### 67#       发表于 2025-1-20 21:55
+
+有……有被笑到，谁啊，让不让人过消停日子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GASEOUSSNAKE  
+##### 68#       发表于 2025-1-20 21:55
+
+<img src="https://img.saraba1st.com/forum/202501/20/215524xdd2imid4hbdvune.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250120215512.jpg</strong> (223.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 21:55 上传
+
