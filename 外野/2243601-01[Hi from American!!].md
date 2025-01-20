@@ -1300,3 +1300,56 @@ WTF…真的假的…
 
 有一个想法，那么这个贴会变成KP（ keyborad politics）特区吗？
 
+
+*****
+
+####  绝地潜兵  
+##### 147#       发表于 2025-1-21 00:26
+
+我们是华语第一哈马斯论坛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  疼子  
+##### 148#       发表于 2025-1-21 00:27
+
+欢迎来到哈马斯论坛
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Kylaier  
+##### 149#       发表于 2025-1-21 00:27
+
+这下哈马斯论坛的罪证加一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  地方就是咖啡好  
+##### 150#       发表于 2025-1-21 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/274.png" referrerpolicy="no-referrer">
+
+欢迎欢迎。
+
+*****
+
+####  贪秽  
+##### 151#       发表于 2025-1-21 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234269&amp;ptid=2243601" target="_blank">致幻之勾 发表于 2025-1-21 00:16</a>
+
+有一个想法，那么这个贴会变成KP（ keyborad politics）特区吗？</blockquote>
+那就变成小黑屋钓鱼站了
+
+
+*****
+
+####  IMUN  
+##### 152#       发表于 2025-1-21 00:33
+
+上来就跟泥潭巨魔对话，现在翻译软件能理解这些吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

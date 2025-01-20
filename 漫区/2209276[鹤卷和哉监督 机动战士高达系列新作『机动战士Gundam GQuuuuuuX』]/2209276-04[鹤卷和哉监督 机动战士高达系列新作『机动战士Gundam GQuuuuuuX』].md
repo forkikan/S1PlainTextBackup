@@ -4010,3 +4010,31 @@ GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認して�
 
 哇刷到了夏利亚的cos了，而且快5000心了，人气角色确定
 
+
+*****
+
+####  刺客ares  
+##### 4813#       发表于 2025-1-21 00:31
+
+<blockquote>虛無迴廊 发表于 2025-1-21 00:24
+哇刷到了夏利亚的cos了，而且快5000心了，人气角色确定</blockquote>
+推上甚至已经出现梦女关联词条了
+
+靠谱强大忧郁成年男军官，这下人气算是翻身了，明明原作只是被骡子几分钟就干掉的存在（
+
+
+*****
+
+####  二阶堂真琉  
+##### 4814#       发表于 2025-1-21 00:36
+
+<img src="https://img.saraba1st.com/forum/202501/21/003527e13genv1sjs9gg99.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250121003144.png</strong> (136.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 00:35 上传
+
+好久没有这种“哇！好丑！”“又有点喜欢…”的感觉了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
