@@ -3180,3 +3180,49 @@ hg不能完全表现机设特色的不要太多，元祖的核心战机啊z高�
 
 其实目前比较像把豚骗进来杀（给你一点贴贴就得了）
 
+
+*****
+
+####  YU_JI  
+##### 4740#       发表于 2025-1-20 20:11
+
+天手让叶有可能明白了，但是天手让叶明白了不太可能
+
+<img src="https://img.saraba1st.com/forum/202501/20/201125t60hv77d77qd75oh.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3685.png</strong> (244.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/201126p7qxionxbinxz1bl.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3686.png</strong> (306.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:11 上传
+
+*****
+
+####  nnis  
+##### 4741#       发表于 2025-1-20 20:12
+
+喵安以后会有上机的机会吗，我还想看她和麻球共斗呢
+
+
+*****
+
+####  吃果冻吧你  
+##### 4742#       发表于 2025-1-20 20:15
+
+访谈说nt间的故事也是比较重点刻画的（好像是吧？），所以我总觉得喵安会通电的
+
+*****
+
+####  岸浪白野  
+##### 4743#       发表于 2025-1-20 20:16
+
+首先修司是不是一副渚薰的命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
