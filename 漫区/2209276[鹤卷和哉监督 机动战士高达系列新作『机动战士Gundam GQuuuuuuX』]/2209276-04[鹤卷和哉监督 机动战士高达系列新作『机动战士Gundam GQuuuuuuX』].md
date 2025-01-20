@@ -1363,3 +1363,13 @@ Midnight Reflection真挺好听的，循环了好久了
 
 更贴近flcl的青春感？反正不是现实系的青春感
 
+
+*****
+
+####  199april  
+##### 4580#       发表于 2025-1-20 13:50
+
+[https://www.bilibili.com/video/B ... dfc220eed79c5abd3d8](https://www.bilibili.com/video/BV1PEwAeLEcs/?vd_source=faf10ca28fd2fdfc220eed79c5abd3d8)
+
+这个gq一串字母看上去还是可以的，身子挺帅，就是头和背包太丑了，头直接用旧设计雪铁龙不好吗？
+

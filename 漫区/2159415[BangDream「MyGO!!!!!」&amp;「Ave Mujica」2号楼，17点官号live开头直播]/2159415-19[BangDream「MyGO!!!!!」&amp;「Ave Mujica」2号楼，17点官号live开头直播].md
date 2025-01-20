@@ -2961,3 +2961,25 @@ encore.
 十周年展倒计时——蝶
 <img src="https://p.sda1.dev/21/748a6f3c6003d3d41804988ab762232d/IMG_20250119_185246.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26866#       发表于 2025-1-20 13:49
+
+HHW团活
+<img src="https://p.sda1.dev/21/f1a12581b718b6a7cc534d957c027892/1737344151233.jpg" referrerpolicy="no-referrer">
+
+[️"遠き君へのカーテンコール"活动剧情文本/机翻：](https://bbs.nga.cn/read.php?tid=43072161)
+[【【音频】れっつ・スマイル・すとり〜みんぐっ♪ - Hello，Happy World！-哔哩哔哩】](https://b23.tv/DVGynAv)
+
+五⭐
+<img src="https://p.sda1.dev/21/da24142f222fad412bef7fca9cb7066b/IMG_20250120_134528.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c0966c11eea3df51d9a0bd6f622b673b/IMG_20250120_134539.jpg" referrerpolicy="no-referrer">
+四⭐
+<img src="https://p.sda1.dev/21/5d5b1f6942e255b0a44128ba6eaa5360/IMG_20250120_134546.jpg" referrerpolicy="no-referrer">
+三⭐
+<img src="https://p.sda1.dev/21/3c61dee9346a8c104e244b3888803f65/IMG_20250120_134557.jpg" referrerpolicy="no-referrer">
+二⭐
+<img src="https://p.sda1.dev/21/4b3f8fc826800ec827df3aaba4819e07/1737351031925.png" referrerpolicy="no-referrer">
+
