@@ -3262,3 +3262,170 @@ hg不能完全表现机设特色的不要太多，元祖的核心战机啊z高�
 
 修司不该是第二次冲击送回去把夏亚换回来吗？
 
+
+*****
+
+####  TRIScRE  
+##### 4748#       发表于 2025-1-20 20:28
+
+kirakira的应该是高清重制版NT聊天室
+
+2.jpg
+(56.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/202737voaq8nii394zj99h.jpg" referrerpolicy="no-referrer">
+
+1.jpg
+(111.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/20/202736lfggzgoyggjvhsfg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4749#       发表于 2025-1-20 20:29
+
+0079野史的画风感觉和GQUX都不是一个次元的。他们该不会看这段也像在看电影吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iuiuk2  
+##### 4750#       发表于 2025-1-20 20:30
+
+这抽象平行世界还是挺乐的，希望痞子别又翻了
+
+就是主角机像是捏人的时候点随机生成整出来的，实在是欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4751#       发表于 2025-1-20 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67232890&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-20 20:11</a>
+ 天手让叶有可能明白了，但是天手让叶明白了不太可能</blockquote>
+这话我听起来超耳熟的，好像第一天观后感好多都是类似的用法，这些人不会再偷摸摸的剧透吧（
+
+*****
+
+####  winda  
+##### 4752#       发表于 2025-1-20 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新pv解禁让腐女群体开始推重男人夏利尔和夏亚的cp了啊
+
+*****
+
+####  nnis  
+##### 4753#       发表于 2025-1-20 20:31
+
+其实我无所谓是不是bg，就算麻球修司是双箭头那种，喵安麻球之间的羁绊写的好的话照样能吃。主要是现在喵安很迷，在二番位但现在不怎么看得出她要干嘛，能想出来的感觉还没修司那边重要有分量
+
+*****
+
+####  YU_JI  
+##### 4754#       发表于 2025-1-20 20:31
+
+<blockquote>王留美 发表于 2025-1-20 20:30
+这话我听起来超耳熟的，好像第一天观后感好多都是类似的用法，这些人不会再偷摸摸的剧透吧（ ...</blockquote>
+这不是常熟阿诺的诺言诺语吗（）
+
+*****
+
+####  jojonathan  
+##### 4755#       发表于 2025-1-20 20:32
+
+我也吃夏亚x夏利亚<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 4756#       发表于 2025-1-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233002&amp;ptid=2209276" target="_blank">winda 发表于 2025-1-20 20:31</a>
+新pv解禁让腐女群体开始推重男人夏利尔和夏亚的cp了啊</blockquote>
+能靠腐女拉一把票房吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4757#       发表于 2025-1-20 20:32
+
+<blockquote>winda 发表于 2025-1-20 20:31
+新pv解禁让腐女群体开始推重男人夏利尔和夏亚的cp了啊</blockquote>
+正片貌似更gay（）
+
+*****
+
+####  王留美  
+##### 4758#       发表于 2025-1-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233004&amp;ptid=2209276" target="_blank">nnis 发表于 2025-1-20 20:31</a>
+ 其实我无所谓是不是bg，就算麻球修司是双箭头那种，喵安麻球之间的羁绊写的好的话照样能吃。主要是现在喵安 ...</blockquote>
+明确是another z的情况下看看z里有没有参照物吧
+
+*****
+
+####  王留美  
+##### 4759#       发表于 2025-1-20 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233009&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-20 20:31</a>
+ 这不是常熟阿诺的诺言诺语吗（）</blockquote>
+不，我说的是日文版听起来好耳熟（
+
+*****
+
+####  Toby_dak  
+##### 4760#       发表于 2025-1-20 20:33
+
+日本有不少电影院不是正常的商业运作的。
+
+比如池袋北口这间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/20/212709q0lwha0xjlopjhmp.jpg" referrerpolicy="no-referrer">
+
+<strong>1080px-SHINEROMAN_IKEBUKURO_IMG_0087.jpg</strong> (171.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:27 上传
+
+再比如小裤裤魔女OVA第一集「サン・トロンの雷鳴」，我就记得全日本就只有角川旗下的十几间电影院能看。
+
+其实300馆还是400馆，对日本大多数人口密集地区的地方没啥分别。真的想看的，3站电车还是10站电车有分别吗？最多就是多点纯路人和山旮旯的，馆数越多边际效应越明显、
+
+
+*****
+
+####  刺客ares  
+##### 4761#       发表于 2025-1-20 20:35
+
+<blockquote>winda 发表于 2025-1-20 20:31
+新pv解禁让腐女群体开始推重男人夏利尔和夏亚的cp了啊</blockquote>
+难道鸭子需要的不是萝莉妈妈而是能托付后背的战友吗，细一想正史里这样的人都离他而去了（
+
+推上第一天就有人说夏利亚像鸭子的鳏夫了
+
+*****
+
+####  Toby_dak  
+##### 4762#       发表于 2025-1-20 20:36
+
+这镜头多播几秒就能看麻球的运动胖次了啊。
+
+<img src="https://img.saraba1st.com/forum/202501/20/213646hgzg5bmyg8s458s8.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (70.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 20:36 上传
+
