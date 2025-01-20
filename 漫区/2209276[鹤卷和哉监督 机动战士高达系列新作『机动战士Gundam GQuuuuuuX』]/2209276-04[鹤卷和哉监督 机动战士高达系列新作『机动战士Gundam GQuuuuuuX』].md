@@ -3226,3 +3226,39 @@ hg不能完全表现机设特色的不要太多，元祖的核心战机啊z高�
 
 首先修司是不是一副渚薰的命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 4744#       发表于 2025-1-20 20:19
+
+三人组三个机师感觉还是有点挤，喵安可能通电但是应该不会上机吧
+
+*****
+
+####  gamedreamer  
+##### 4745#       发表于 2025-1-20 20:23
+
+渚薰那真的不会变成永远的白月光吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  刺客ares  
+##### 4746#       发表于 2025-1-20 20:24
+
+<blockquote>YU_JI 发表于 2025-1-20 20:19
+三人组三个机师感觉还是有点挤，喵安可能通电但是应该不会上机吧</blockquote>
+机体合照是跟玛秋一起照的，应该是不会上机了
+
+牢修不和gqx一块，应该会和红高达照
+
+*****
+
+####  0aleph37  
+##### 4747#       发表于 2025-1-20 20:24
+
+修司不该是第二次冲击送回去把夏亚换回来吗？
+
