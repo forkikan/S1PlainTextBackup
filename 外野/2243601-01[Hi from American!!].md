@@ -1795,3 +1795,41 @@ Jesus, glad to see some new blood in the Chinese 4chan alternative, maybe it's t
 
 Great，welcome to S1
 
+
+*****
+
+####  Arsaces  
+##### 199#       发表于 2025-1-21 08:49
+
+唉，泥潭<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nobady  
+##### 200#       发表于 2025-1-21 08:51
+
+泥潭建政不是会被封号么，你把他拉进来，不是转瞬即逝<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dongzi81  
+##### 201#       发表于 2025-1-21 08:51
+
+黑话就够他学半年的…
+
+*****
+
+####  出轨的三头龙  
+##### 202#       发表于 2025-1-21 08:51
+
+U have better to know that stage1st bbs is very close to the meaning of chinese 4ch<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 203#       发表于 2025-1-21 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">经典身份政治是吧，谁稀罕啊
+
