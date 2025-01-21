@@ -3035,3 +3035,11 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  紫吹兰  
+##### 26870#         楼主| 发表于 2025-1-21 23:49
+
+内场后排是不如台阶前排吗
+
