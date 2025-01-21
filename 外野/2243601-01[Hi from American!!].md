@@ -1965,3 +1965,20 @@ NO，dollar，美国人用的钱。Dollar！You know？<img src="https://static.
 
 低音吉他是个啥子玩意，我在舞台上从来没听它响过
 
+
+*****
+
+####  上将郝萌  
+##### 219#       发表于 2025-1-21 10:30
+
+泥潭就不用交猫税吗！<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  鱼王  
+##### 220#       发表于 2025-1-21 10:33
+
+画勒真好呀 厉害厉害<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
