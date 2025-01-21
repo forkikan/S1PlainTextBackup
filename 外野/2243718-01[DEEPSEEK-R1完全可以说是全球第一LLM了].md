@@ -480,3 +480,50 @@ R1这种推理模型在某些领域是不如普通模型的，擅长的是复杂
 
 说实测的这玩意是国内的模型啊……
 
+
+*****
+
+####  sellboy  
+##### 42#       发表于 2025-1-21 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239758&amp;ptid=2243718" target="_blank">chronicle 发表于 2025-1-21 17:29</a>
+
+实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
+那排分数就是实测呀，又没本事透题。
+
+*****
+
+####  自闭傻吊小号  
+##### 43#       发表于 2025-1-21 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238112&amp;ptid=2243718" target="_blank">小野賢章 发表于 2025-1-21 14:10</a>
+
+GitHub的copilot用的是什么模型，我还有十个多月的会员</blockquote>
+默认的代码 inline 补全你看 log 能看到是 gpt3.5turbo
+
+聊天和最近新上的 copilot edit 可以用 4o 之类的
+
+
+*****
+
+####  Khellendros  
+##### 44#       发表于 2025-1-21 17:43
+
+最近用deepseek辅助编程，确实好用，便宜速度快，可靠性也不错，几乎没有需要我手动改的地方，很多简单但是繁琐的定制需求开发时间直接指数级的下降
+
+哪来当搜索引擎也不错，我感觉数据准确性比kimi高一些（虽然都是联网搜索）
+
+写作差一点，比如我让他根据某某游戏的世界观背景写一篇同人文，设定和原作有出入，我纠正了好几遍他都是原样输出，这个可能是因为token命中了缓存的关系
+
+总的来说前景很好，主要是成本这方面优势是在太大了，性能也完全够用
+
+*****
+
+####  Khellendros  
+##### 45#       发表于 2025-1-21 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239758&amp;ptid=2243718" target="_blank">chronicle 发表于 2025-1-21 17:29</a>
+
+实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
+你自己去试试不就知道了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

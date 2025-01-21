@@ -4747,3 +4747,19 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
 
 今天票房怎么样？夏亚pv有作用了吗（）
 
+
+*****
+
+####  0aleph37  
+##### 4876#       发表于 2025-1-21 17:37
+
+<img src="https://img.saraba1st.com/forum/202501/21/173659u488z3i8m4iato83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 17:36 上传
+
+比昨日低2k吧，可能是在等周六特典第二弹
+
