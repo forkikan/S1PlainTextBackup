@@ -640,3 +640,15 @@ reasoning模型
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 是的，用continue插件
 
+
+*****
+
+####  Sacross  
+##### 57#       发表于 2025-1-21 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240529&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-21 19:16</a>
+没问题，今天用了</blockquote>
+啥？是擦边还是nsfw风格？看意思这个应该是用的在线版不是本地部署nsfw特化模型的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
