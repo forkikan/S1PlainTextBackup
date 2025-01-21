@@ -5280,3 +5280,23 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 修司不会中途死了然后成为女主背后灵吧
 
+
+*****
+
+####  gamedreamer  
+##### 4920#       发表于 2025-1-21 22:00
+
+看来大家都不觉得牢修能以正常人的形态存活在该番剧的下半部分<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  王留美  
+##### 4921#       发表于 2025-1-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241511&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 21:49</a>
+ 我看说GQX的Ω塞克谬启动的时候驾驶舱还会伸出手来？泥楼看过的有印象吗？ ...</blockquote>
+辅助操作杆吧
+
