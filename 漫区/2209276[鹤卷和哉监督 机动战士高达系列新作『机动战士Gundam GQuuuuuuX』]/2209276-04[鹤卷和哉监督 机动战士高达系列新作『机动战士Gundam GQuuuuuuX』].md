@@ -5475,3 +5475,101 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 难道不应该是看到NT聊天室面对面和互喊名字就高呼bg厨要自信吗？
 
+
+*****
+
+####  YU_JI  
+##### 4939#       发表于 2025-1-21 22:37
+
+<blockquote>0aleph37 发表于 2025-1-21 22:35
+难道不应该是看到NT聊天室面对面和互喊名字就高呼bg厨要自信吗？</blockquote>
+就怕是几集把一季的互动量都互动完了（）
+
+*****
+
+####  王留美  
+##### 4940#       发表于 2025-1-21 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241770&amp;ptid=2209276" target="_blank">yevvet 发表于 2025-1-21 22:24</a>
+ 目前两首歌的歌词基本讲的内容都差不多。首先米津玄师这首从开头检票口这里就能看出是讲玛秋和喵安。另一首 ...</blockquote>
+什么？米津那歌居然不是说卡缪和捷利特？
+
+*****
+
+####  Gysumitka  
+##### 4941#       发表于 2025-1-21 22:39
+
+其实歌词两个人都写了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 检票口碰见尼娅安，翻后门碰见红高达   豚豚厨厨都该跑了（
+
+
+*****
+
+####  RE㐅ia  
+##### 4942#       发表于 2025-1-21 22:40
+
+我反正先给滑跪了。各种视觉图不带牢修玩，主题曲讲女女，访谈说一开始就设定好喵安麻球凹凸组合然后谈到牢修就说什么妖精。最可怕的是整个人渚薰即视感溢出屏幕，等边三角结局已经是厨厨能想到的最好的结果了（
+
+*****
+
+####  YU_JI  
+##### 4943#       发表于 2025-1-21 22:41
+
+只要我啥都吃，卖啥就影响不到我，谁顺风我站谁（）
+
+*****
+
+####  刺客ares  
+##### 4944#       发表于 2025-1-21 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241831&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-21 22:33</a>
+
+有的人杀心太重了，我倒觉得修司不会死这么快，要死应该也是快结局的时候，不然谁来开红高达 ...</blockquote>
+喵安不是人物介绍说有驾驶小型MS的经历吗
+
+人无了机留下，正好换个弱点的驾驶员也能防止抢女主风头<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makar0601  
+##### 4945#       发表于 2025-1-21 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241511&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 21:49</a>
+
+我看说GQX的Ω塞克谬启动的时候驾驶舱还会伸出手来？泥楼看过的有印象吗？ ...</blockquote>
+平时在座位两边传统把手，塞克谬开了就是作为上方伸出两只手一样的新面板，原来的把手收进去
+
+*****
+
+####  YU_JI  
+##### 4946#       发表于 2025-1-21 22:45
+
+<blockquote>刺客ares 发表于 2025-1-21 22:43
+喵安不是人物介绍说有驾驶小型MS的经历吗
+
+人无了机留下，正好换个弱点的驾驶员也能防止抢女主风头 ...</blockquote>
+有吗？我都没看过这段
+
+*****
+
+####  adios85  
+##### 4947#       发表于 2025-1-21 22:45
+
+米津玄师难道会根据剧情写歌吗，之前给宫佬的，ff的,他写的主题曲也没有怎么暗示剧情吧
+
+*****
+
+####  灵魂收割机  
+##### 4948#       发表于 2025-1-21 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241680&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-21 22:11</a>
+
+坏了 怎么感觉有湿件的气息</blockquote>
+傀儡系统嘛，路径依赖<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 4949#       发表于 2025-1-21 22:45
+
+真是这样的话真就是牢修进来走个过场然后一转TOP3了
+
