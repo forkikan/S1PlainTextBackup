@@ -14948,3 +14948,59 @@ CGディレクター：遠藤 求
 
 2025-1-21 11:19 上传
 
+
+*****
+
+####  哈曼的YY  
+##### 10149#       发表于 2025-1-21 11:26
+
+第四集标题啥意思？
+
+*****
+
+####  玖羽  
+##### 10150#       发表于 2025-1-21 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236581&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-21 11:26</a>
+
+第四集标题啥意思？</blockquote>
+第4话标题：Acta est fabula.
+
+意为：“戏剧落幕了”
+
+直译：“戏已经演完了”，据说是奥古斯都的遗言
+
+*****
+
+####  GBLMikuHatsune  
+##### 10151#       发表于 2025-1-21 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236581&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-21 11:26</a>
+
+第四集标题啥意思？</blockquote>
+“戏剧已终”
+
+*****
+
+####  御幸一也  
+##### 10152#       发表于 2025-1-21 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236581&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-21 11:26</a>
+
+第四集标题啥意思？</blockquote>
+Acta est fabula.
+
+「芝居が行われた」というのが直訳ですが、「ひとつの芝居が演じられてもう終わった」という意味です。「芝居は終わりだ」とも訳せます。
+
+“戲劇已結束”
+
+
+*****
+
+####  嵇翱u  
+##### 10153#       发表于 2025-1-21 11:33
+
+这么想，睦为了保护母鸡卡的世界观而和祥子之间有了间隙，算不算一种祥子的“被遗忘”。
+
+喵梦想要被爱而流量并不青睐于她，睦变身成莫提斯算是经历了“死亡”，这次是祥子被人记住的只有世界观，而她本人开始被成员无视，也算一种“遗忘”？
+
