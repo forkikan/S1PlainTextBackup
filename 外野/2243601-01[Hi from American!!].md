@@ -1982,3 +1982,11 @@ NO，dollar，美国人用的钱。Dollar！You know？<img src="https://static.
 
 画勒真好呀 厉害厉害<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Moltres.lv70  
+##### 221#       发表于 2025-1-21 10:48
+
+Will we got a ban if we talk about politics in English or other language
+
