@@ -11371,3 +11371,13 @@ TMD 太狗了</blockquote>
 
 有锁的必要吗，最多语音锁一下就可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 16157#       发表于 2025-1-22 03:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">才刚看完昨天更新的剧情....这蛇王放水的也太傻逼了吧
+
+变成了完全体后就这么放任咕嗒一行在眼前这么蹦跶....只会让小怪上...也不知道自己亲手上去补刀的
+
