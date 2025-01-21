@@ -617,3 +617,26 @@ reasoning模型
 
 鲸鱼哥有多模态的计划么，感觉再完善一下就能停掉给closeAI上供的钱
 
+
+*****
+
+####  overflowal  
+##### 55#       发表于 2025-1-21 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240607&amp;ptid=2243718" target="_blank">有鱼 发表于 2025-1-21 19:29</a>
+鲸鱼哥有多模态的计划么，感觉再完善一下就能停掉给closeAI上供的钱</blockquote>
+等后面的vl模型，不过vl2刚放出来没多久，，我估计要段时间
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Khellendros  
+##### 56#       发表于 2025-1-21 19:38
+
+<blockquote>netcat 发表于 2025-1-21 18:51
+是挂到vscode写代码吗？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+是的，用continue插件
+
