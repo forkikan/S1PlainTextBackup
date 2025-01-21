@@ -5573,3 +5573,141 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 真是这样的话真就是牢修进来走个过场然后一转TOP3了
 
+
+*****
+
+####  0aleph37  
+##### 4950#       发表于 2025-1-21 22:46
+
+渴望爱的是喵安，渴望刺激的是麻球，修司是电波男，所以我觉得应该没有恋爱的基础
+
+*****
+
+####  Sliurus  
+##### 4951#       发表于 2025-1-21 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241893&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 22:43</a>
+
+喵安不是人物介绍说有驾驶小型MS的经历吗
+
+人无了机留下，正好换个弱点的驾驶员也能防止抢女主风头 ...</blockquote>
+高达的女驾驶员性格基本都比较要强，而且目前来看也不是nt，开红高达相当于废掉了浮游炮
+
+两个nt一个ot也算是比较合理的配置，兼顾nt之间的电波和ot的一般人视角
+
+*****
+
+####  0aleph37  
+##### 4952#       发表于 2025-1-21 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241913&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-21 22:45</a>
+
+有吗？我都没看过这段</blockquote>
+有，人物简介里
+
+驾驶小型ms逃难
+
+*****
+
+####  刺客ares  
+##### 4953#       发表于 2025-1-21 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241913&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-21 22:45</a>
+
+有吗？我都没看过这段</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/21/224809p6jktkjrai87tzzz.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (32.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 22:48 上传
+
+特意这么写就是确认有驾驶能力
+
+但现在却没有她的机，一个有驾驶能力的二番没有专用机，很奇怪吧？
+
+
+*****
+
+####  Gysumitka  
+##### 4954#       发表于 2025-1-21 22:51
+
+不发机，说明不想和麻球搞重叠，只能期待她过去经历了
+
+*****
+
+####  jojonathan  
+##### 4955#       发表于 2025-1-21 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241937&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 22:49</a>
+特意这么写就是确认有驾驶能力
+
+但现在却没有她的机，一个有驾驶能力的二番没有专用机，很奇怪吧？
+
+ ...</blockquote>
+等上了绿色木马开量产高达<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4956#       发表于 2025-1-21 22:52
+
+<blockquote>刺客ares 发表于 2025-1-21 22:49
+特意这么写就是确认有驾驶能力
+
+但现在却没有她的机，一个有驾驶能力的二番没有专用机，很奇怪吧？
+
+ ...</blockquote>
+米米不也是有驾驶能力。到头来还是没开上啥
+
+*****
+
+####  双菜  
+##### 4957#       发表于 2025-1-21 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241914&amp;ptid=2209276" target="_blank">adios85 发表于 2025-1-21 22:45</a>
+米津玄师难道会根据剧情写歌吗，之前给宫佬的，ff的,他写的主题曲也没有怎么暗示剧情吧 ...</blockquote>
+之前那个tv节目律师说了制作组给他透了底，然后他根据这个底来写歌词的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 4958#       发表于 2025-1-21 22:53
+
+上了舰再发机吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 4959#       发表于 2025-1-21 22:53
+
+真正的遗老要敢于下判断
+我决定就是麻球鸭子了！一笔写不出两个马字！
+而且不管麻球是性转卡缪还是JK哈曼，和鸭子CP都非常合理！
+
+*****
+
+####  番茄牛奶  
+##### 4960#       发表于 2025-1-21 22:53
+
+别最后真正神功大成的是喵安了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 4961#       发表于 2025-1-21 22:54
+
+身世假药没方向，有驾驶能力却没专用机，不是舰长役，社会地位低，大概率也不是NT，性格也不强硬
+
+这配置只能说剧情越发展她越影薄，想把她提二番，要么是假难民真公主，要么把红高达给她<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4962#       发表于 2025-1-21 22:55
+
+不过说起来也是，鹤卷的几个作品好像就没有he的。到最后主配对的都是分开了
+
