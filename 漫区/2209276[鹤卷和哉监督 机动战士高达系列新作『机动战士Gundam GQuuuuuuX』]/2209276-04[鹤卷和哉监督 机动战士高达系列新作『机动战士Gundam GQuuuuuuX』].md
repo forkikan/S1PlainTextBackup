@@ -4719,3 +4719,13 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
 
 [@nadeshiko0328](https://x.com/nadeshiko0328/status/1881610420596916715)
 
+
+*****
+
+####  王留美  
+##### 4873#       发表于 2025-1-21 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239382&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-21 16:49</a>
+ 观后感短漫  </blockquote>
+少了一张图
+
