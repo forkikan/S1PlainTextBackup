@@ -4323,3 +4323,13 @@ gqx造出来的第一个梗是格拉汉姆终结者化沉进铁炉也太抽象�
 gqx造出来的第一个梗是格拉汉姆终结者化沉进铁炉也太抽象了</blockquote>
 怎么扯到武士道了？没太看懂，有无笑点解析？
 
+
+*****
+
+####  winda  
+##### 4837#       发表于 2025-1-21 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67235125&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-21 09:02</a>
+怎么扯到武士道了？没太看懂，有无笑点解析？</blockquote>
+第一张图就是让x自带的ai grok总结gqx的剧情，结果被乱七八糟的东西喂成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

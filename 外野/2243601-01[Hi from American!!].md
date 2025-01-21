@@ -1879,3 +1879,13 @@ Let's guess when you will be banned because of the keyboard politics.<img src="h
 
 记得当年你坛也有这么一号人物，打造的形象是懂王幕后竞选团队的工作人员的人设的，好像消失很久了？
 
+
+*****
+
+####  clamp1010  
+##### 210#       发表于 2025-1-21 09:09
+
+纯度还是太低了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
