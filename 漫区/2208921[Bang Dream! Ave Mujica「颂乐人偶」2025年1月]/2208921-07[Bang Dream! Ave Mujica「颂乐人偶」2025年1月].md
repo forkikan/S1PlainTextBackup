@@ -16095,3 +16095,15 @@ b站有对应视频的，挺有意思
 
 先画靶后射箭也麻烦用点脑子。
 
+
+*****
+
+####  huxiaopao163  
+##### 10251#       发表于 2025-1-22 02:19
+
+话说下集预告里桌子上的马卡龙，应该是mortis从家里带来和大家吃的吧，就像之前给mygo送黄瓜
+
+海玲应该是本来坐在祥子旁边的，只是过去吃马卡龙了
+
+所以祥子一脸不高兴，是想学soyo退货吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

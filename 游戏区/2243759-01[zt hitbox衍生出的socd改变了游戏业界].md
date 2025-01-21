@@ -497,3 +497,14 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  nype  
+##### 43#       发表于 2025-1-22 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241360&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:21</a>
+
+正常代码写下来，如果没有考虑过2个对向同时按的情况，大概率是在你2个对向同时按的时候，响应其中某一个 ...</blockquote>
+本来打了很多字想解释cs机制之类的，现在看你大概率没有用键盘玩过游戏，下载几个用wasd走路的3D游戏试试看，总不能那么多游戏移动代码都有bug吧
+
