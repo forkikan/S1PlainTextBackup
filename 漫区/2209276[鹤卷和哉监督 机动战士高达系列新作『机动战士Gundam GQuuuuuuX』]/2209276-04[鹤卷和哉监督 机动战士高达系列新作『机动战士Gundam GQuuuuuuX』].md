@@ -6295,3 +6295,70 @@ mv好抽象
 
 怎么厨厨那么不自信，目前都这样了
 
+
+*****
+
+####  FF0000  
+##### 5023#       发表于 2025-1-22 00:48
+
+开盘了吗，先入一手螃蟹X哈罗
+
+*****
+
+####  吃果冻吧你  
+##### 5024#       发表于 2025-1-22 00:49
+
+<blockquote>虛無迴廊 发表于 2025-1-22 00:38
+未被选择的选项，指平行世界吗？</blockquote>
+那倒不是吧，感觉意思就是歌词里面那些“如果”的，就像gqx历史是因为一个小兵开始扭转，主角组因为某个细节不再相遇就不发生故事了，律师应该是按照这个思路写了词
+
+*****
+
+####  虛無迴廊  
+##### 5025#       发表于 2025-1-22 00:50
+
+想要觉醒的灵魂们给我听出一种以前看宝石之国的心境了，加上主角都是tomoyo<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 5026#       发表于 2025-1-22 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241511&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 22:49</a>
+
+我看说GQX的Ω塞克谬启动的时候驾驶舱还会伸出手来？泥楼看过的有印象吗？ ...</blockquote>
+我在前面剧情小结说过，类似EVA的DUMMY SYSTEM。
+
+
+*****
+
+####  刺客ares  
+##### 5027#       发表于 2025-1-22 00:54
+
+又去看了下歌词，律师gg这首明显分为三个段落，应该是从三个人各自的视角写的
+
+玛秋的部分应该是这段
+
+<img src="https://img.saraba1st.com/forum/202501/22/005452kblvxsdrlrr55vri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9837.jpeg</strong> (425.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 00:54 上传
+
+*****
+
+####  刺客ares  
+##### 5028#       发表于 2025-1-22 00:55
+
+妮娅安的看用词应该是这段
+
+<img src="https://img.saraba1st.com/forum/202501/22/005525ke2o6072esspo6ro.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9835.jpeg</strong> (283.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 00:55 上传
+

@@ -759,3 +759,29 @@ deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是
 
 这算是deepseek不擅长的方向吗 chatgpt现在怎么着也认得出是日麻 甚至读得出东一局 读手牌也有个一半准确率了 
 
+
+*****
+
+####  qratosones1337  
+##### 68#       发表于 2025-1-22 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242534&amp;ptid=2243718" target="_blank">蒂芙尼的早餐 发表于 2025-1-22 00:37</a>
+丢了张雀魂的截图让他看图说话直接读成了一堆乱码 
+这算是deepseek不擅长的方向吗 chatgpt现在怎 ...</blockquote>
+DSV3没有原生多模态能力
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 69#       发表于 2025-1-22 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240355&amp;ptid=2243718" target="_blank">netcat 发表于 2025-1-21 18:51</a>
+是挂到vscode写代码吗？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+用cline插件
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
