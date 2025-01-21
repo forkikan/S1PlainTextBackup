@@ -2728,3 +2728,14 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cauchua3  
+##### 257#       发表于 2025-1-21 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67230418&amp;ptid=2242398" target="_blank">sdeplee 发表于 2025-1-20 15:18</a>
+
+大喵老师业务能力放那里呢 至少打鼓水平没问题 她就像是公司里的销冠 平时吃喝嫖赌上班天天迟到 但年终业 ...</blockquote>
+打鼓水平没拖后腿=公司销管？喵姆本人怕不是都没你那么自信。
+
