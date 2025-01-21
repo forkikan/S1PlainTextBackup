@@ -1934,3 +1934,34 @@ NO，dollar，美国人用的钱。Dollar！You know？<img src="https://static.
 
 欢迎加入S1
 
+
+*****
+
+####  直刺苍穹的光  
+##### 216#       发表于 2025-1-21 10:16
+
+笑死，光速跑路
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ercai1  
+##### 217#       发表于 2025-1-21 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67235007&amp;ptid=2243601" target="_blank">GASEOUSSNAKE 发表于 2025-1-21 08:44</a>
+
+成功被你坛吓跑
+
+—— 来自 vivo V2405A, Android 15上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">麻烦置顶一下，这也是对账结果的一部分
+
+
+*****
+
+####  Niko_83c  
+##### 218#       发表于 2025-1-21 10:25
+
+低音吉他是个啥子玩意，我在舞台上从来没听它响过
+
