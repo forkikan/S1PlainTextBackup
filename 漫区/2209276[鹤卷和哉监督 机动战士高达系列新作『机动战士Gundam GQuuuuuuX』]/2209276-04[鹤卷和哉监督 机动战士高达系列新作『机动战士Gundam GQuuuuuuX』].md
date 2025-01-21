@@ -4333,3 +4333,41 @@ gqx造出来的第一个梗是格拉汉姆终结者化沉进铁炉也太抽象�
 怎么扯到武士道了？没太看懂，有无笑点解析？</blockquote>
 第一张图就是让x自带的ai grok总结gqx的剧情，结果被乱七八糟的东西喂成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 4838#       发表于 2025-1-21 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234828&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-21 08:03</a>
+昨天マフィア梶田的节目，看到一堆民用警用渣古的日本风SIDE6时候，也跟我一样感觉是机动警察
+
+他说之前参 ...</blockquote>
+<img src="https://p.sda1.dev/21/961ffd57b05df11253522a2b46d62751/image.jpg" referrerpolicy="no-referrer">
+左肩警2-17，右肩09.21
+<img src="https://p.sda1.dev/21/8d6bd41cefbe3a832979ad499cc90de9/image.jpg" referrerpolicy="no-referrer">
+还是有neta的
+
+*****
+
+####  Toby_dak  
+##### 4839#       发表于 2025-1-21 09:38
+
+<img src="https://p.sda1.dev/21/d6782a2cfad82a244e844551ebb1474a/1000079850.png" referrerpolicy="no-referrer">
+
+贺东也看了。感觉老一辈搞过萝卜的基本都去看了，毕竟自护胜利IF线的YY、SSS文、讨论之类老早就有。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4840#       发表于 2025-1-21 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67235116&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-21 09:01</a>
+为什么一厢情愿地认定新高达0079不会上TV？官网写得明明白白，TV若干话编辑而成的先行播放，不怕被人告虚假 ...</blockquote>
+我也觉得，都说了是编集后的，猜测正片应该就是类似闪回一样的，做成剧场版时被重新剪辑在一起了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
