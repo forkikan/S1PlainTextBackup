@@ -714,3 +714,17 @@ deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是
 
 是数独对ai来说还太难吗，试了好几个题还是会做错
 
+
+*****
+
+####  sellboy  
+##### 64#       发表于 2025-1-21 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241773&amp;ptid=2243718" target="_blank">chaosliu 发表于 2025-1-21 22:25</a>
+
+这一家还有能本地部署的模型吗？性能需求大概怎么样的</blockquote>
+几百GB内存的服务器吧。
+
+那6个用R1蒸馏的模型还是可以本地部署的。
+[https://api-docs.deepseek.com/zh-cn/news/news250120](https://api-docs.deepseek.com/zh-cn/news/news250120)
+

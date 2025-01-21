@@ -5711,3 +5711,113 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 不过说起来也是，鹤卷的几个作品好像就没有he的。到最后主配对的都是分开了
 
+
+*****
+
+####  adios85  
+##### 4963#       发表于 2025-1-21 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241971&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-21 22:52</a>
+
+之前那个tv节目律师说了制作组给他透了底，然后他根据这个底来写歌词的</blockquote>
+没吧，米津就说了之前给他很详细的说明了设定，但是没说歌词是不是跟着这个写的
+
+说到底之前宫佬和ff的时候，米津也是说的宫佬和吉田给他把剧情设定说光了啊，也没看见他多按照剧情写歌
+
+*****
+
+####  RE㐅ia  
+##### 4964#       发表于 2025-1-21 22:59
+
+<blockquote>刺客ares 发表于 2025-1-21 22:54
+身世假药没方向，有驾驶能力却没专用机，不是舰长役，社会地位低，大概率也不是NT，性格也不强硬
+
+这配置只 ...</blockquote>
+人不给活就算了，高达都要抢走。太过分了吧kora！
+
+
+*****
+
+####  0aleph37  
+##### 4965#       发表于 2025-1-21 23:00
+
+那喵安和修司二人一体？
+
+*****
+
+####  十万年魂环  
+##### 4966#       发表于 2025-1-21 23:00
+
+铁血后真会写死主角团的人吗，人人有🥟吃不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 4967#       发表于 2025-1-21 23:01
+
+现在主要是喵安和修斯之间没啥互动。等这俩的关系/相处模式确认了才能形成真正的三角形。如果这俩不是单纯的义务队友而是有更深一层的联系的话我觉得会增加牢修的存活几率
+
+*****
+
+####  岸浪白野  
+##### 4968#       发表于 2025-1-21 23:01
+
+都变男鬼了让人安心走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4969#       发表于 2025-1-21 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242022&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 23:00</a>
+
+那喵安和修司二人一体？</blockquote>
+你别说，我真怀疑这俩人是原本一个人设里拆出来的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 4970#       发表于 2025-1-21 23:03
+
+[https://youtu.be/nCipV7F-Siw](https://youtu.be/nCipV7F-Siw)
+
+<img src="https://img.saraba1st.com/forum/202501/21/230345x3d93xpd0h8pfpd3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (599.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 23:03 上传
+
+音乐不错
+
+*****
+
+####  Gysumitka  
+##### 4971#       发表于 2025-1-21 23:06
+
+配乐真不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 4972#       发表于 2025-1-21 23:06
+
+要是半退场的话，总有一个能奶中吧
+
+修司+方块机器人
+
+修司+哈罗
+
+修司+红高达
+
+修司+GQX
+
+修司+喵安
+
+修司+麻球
+
+修司+夏利亚
+
+修司+白(绿)色木马
+
