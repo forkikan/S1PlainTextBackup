@@ -15928,3 +15928,24 @@ A团现在就是在无节制地刷信用卡，现在的繁盛只是小女孩的�
 我觉得mortis会和睦合二为一</blockquote>
 我从一开始就说结局是融合
 
+
+*****
+
+####  huxiaopao163  
+##### 10236#       发表于 2025-1-21 19:57
+
+mujica其实也就出道了两三个月，mortis创造的蒸蒸日上的局面应该持续一集就要爆了。
+从非常长远的角度分析mujica其实没啥意义，因为马上就会被下个状态替换，等她们固定为某个长期稳定的状态时，故事应该就要结束了
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IVANLIAO  
+##### 10237#       发表于 2025-1-21 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240588&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-21 19:26</a>
+
+睦疯子的能力会不会是模仿睦头人以外的C团全员：学长崎素世装温柔、学立希威吓、学灯捡石头，最后学祥子当 ...</blockquote>
+谁家小学人精<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
