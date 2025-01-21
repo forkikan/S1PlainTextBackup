@@ -14828,3 +14828,27 @@ https://pan.baidu.com/s/1KKGFlZbILKCxbPyalqY9Pg?pwd=6qe9
 [https://twitter.com/hanasaki_maimai/status/1880997142661419284](https://twitter.com/hanasaki_maimai/status/1880997142661419284)
 <img src="https://p.sda1.dev/21/fdf148b0f7f24719afe87d756086b2b4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 10140#       发表于 2025-1-21 09:31
+
+<strong>Wallpaper壁纸推荐-颂乐人偶</strong>
+
+链接：[https://www.bilibili.com/video/BV1dwwjeYEYX](https://www.bilibili.com/video/BV1dwwjeYEYX) <blockquote>这期壁纸Up用编辑器自己加了点萤火虫啥的，水平有限，有需要的可以下图片文件自己搞哈
+
+&lt;夸克网盘·无需提取码&gt;
+
+链接：[https://pan.quark.cn/s/db1cf3a29ee8](https://pan.quark.cn/s/db1cf3a29ee8)
+
+&lt;百度网盘·提取码1234&gt;
+
+链接: [https://pan.baidu.com/s/1DiyD3cpKdFBrFrD-agJHdA](https://pan.baidu.com/s/1DiyD3cpKdFBrFrD-agJHdA) 提取码: 1234
+
+网盘包含手机/Pad静态图片、壁纸视频、手机/电脑动态壁纸等，上述失效时请私信我修改链接。
+
+有其他想要的可以私信Up或者在评论区留言
+
+没有Wallpaper还想用动态壁纸怎么办——大部分壁纸软件都支持导入视频。</blockquote>
+
