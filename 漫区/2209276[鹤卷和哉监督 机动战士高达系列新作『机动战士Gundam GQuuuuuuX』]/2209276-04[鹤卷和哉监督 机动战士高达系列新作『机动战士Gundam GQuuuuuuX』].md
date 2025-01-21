@@ -5156,3 +5156,50 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 我看哪里的评论还有说GQX是夏利亚他们私下研发的，不知道是真是假
 
+
+*****
+
+####  21wwwb  
+##### 4910#       发表于 2025-1-21 21:08
+
+感觉人物出现的画面和只有MS出现的画面感觉像两个作品的233 联系不到一起
+
+*****
+
+####  刺客ares  
+##### 4911#       发表于 2025-1-21 21:09
+
+紫婆看到剩下半拉的所罗门从自己头上飘过去都吓死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+当然不可能继续开发这些神棍东西
+
+不过正史基西莉亚看到所罗门往自己这砸，第一反应应该是备船跑路啊，
+
+这里居然留下来选择相信夏亚？怎么敢的，你不是知道鸭子的底细吗
+
+
+*****
+
+####  jojonathan  
+##### 4912#       发表于 2025-1-21 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241285&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 21:09</a>
+紫婆看到剩下半拉的所罗门从自己头上飘过去都吓死了吧
+
+当然不可能继续开发这些神棍东西
+
+不过正史基西莉亚看 ...</blockquote>
+说明紫婆暗恋鸭子❤️
+
+*****
+
+####  猪突猛进R  
+##### 4913#       发表于 2025-1-21 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240983&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 20:25</a>
+
+应该是本作2000次男定位，平时负责吃瘪，关键时刻给主角团助攻的，好像夏利亚旁边那个小姐姐副官还喜欢他 ...</blockquote>
+都平行世界Z时代了，为啥还要00的2000次男代餐呢？
+
+杰利特不正好吗，也被卡缪抢了机体。
+

@@ -652,3 +652,16 @@ reasoning模型
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hargen2000  
+##### 58#       发表于 2025-1-21 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241223&amp;ptid=2243718" target="_blank">Sacross 发表于 2025-1-21 20:57</a>
+
+啥？是擦边还是nsfw风格？看意思这个应该是用的在线版不是本地部署nsfw特化模型的吧
+
+—— 来自 鹅球 v3. ...</blockquote>
+R1的prompt following能力特别强，你让他天马行空他能写出你难以想象的内容，你跟他玩ERP可以玩很大
+
