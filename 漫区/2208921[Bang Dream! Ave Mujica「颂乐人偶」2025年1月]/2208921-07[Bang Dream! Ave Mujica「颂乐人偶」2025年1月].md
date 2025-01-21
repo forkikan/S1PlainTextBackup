@@ -15402,3 +15402,11 @@ jz是邦邦不得不品的一环<img src="https://static.saraba1st.com/image/smi
 
 这很真实，两个早就在娱乐圈有知名度且一个吉他一个主唱高人气门面受追捧，制作人？大多数观众并不关心谁写歌（
 
+
+*****
+
+####  AnnieLeonhart  
+##### 10183#       发表于 2025-1-21 14:07
+
+<img src="https://wx2.sinaimg.cn/large/7c136a67gy1hxscfz6y3fj211o0teq80.jpg" referrerpolicy="no-referrer">
+
