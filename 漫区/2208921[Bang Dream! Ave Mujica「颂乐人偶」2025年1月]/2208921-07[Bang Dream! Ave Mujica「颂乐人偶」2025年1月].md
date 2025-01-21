@@ -15004,3 +15004,34 @@ Acta est fabula.
 
 喵梦想要被爱而流量并不青睐于她，睦变身成莫提斯算是经历了“死亡”，这次是祥子被人记住的只有世界观，而她本人开始被成员无视，也算一种“遗忘”？
 
+
+*****
+
+####  哈曼的YY  
+##### 10154#       发表于 2025-1-21 11:35
+
+主导戏剧的莫姐难道这集就落幕了？还是别有所指
+
+*****
+
+####  mono  
+##### 10155#       发表于 2025-1-21 11:36
+
+mortis: 软弱的我已经死了
+
+祥: 要怎样做才能回来 哦捏改 我什么都会做的
+
+mortis: 祝你幸福
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GBLMikuHatsune  
+##### 10156#       发表于 2025-1-21 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236698&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-21 11:35</a>
+
+主导戏剧的莫姐难道这集就落幕了？还是别有所指</blockquote>
+有点怀疑是指大祥自己的戏剧落幕了，可能这集结束开始mujica的发展就不在她的预想内、她对整个团队失去控制力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11259,3 +11259,16 @@ TMD 太狗了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  芭德薇  
+##### 16146#       发表于 2025-1-21 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234457&amp;ptid=2084912" target="_blank">溯夜 发表于 2025-1-21 01:11</a>
+
+才发现24年一个新史实日本人都么有，你月终于发现日本人卖不出去的现实了
+
+论坛助手,iPhone ...</blockquote>
+24年第一个活动不就实装了两个史实日本人？
+

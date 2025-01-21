@@ -2071,3 +2071,36 @@ sieg heil<img src="https://static.saraba1st.com/image/smiley/bundam2017/017.png"
 
 welcome to troll of abyss
 
+
+*****
+
+####  nominication47  
+##### 232#       发表于 2025-1-21 11:42
+
+This place could be darker than 4Chan sometimes. 
+
+You think you can enter my domain? You are not prepared.
+
+*****
+
+####  tk553521  
+##### 233#       发表于 2025-1-21 11:43
+
+这种真白左来泥潭就得光速跑路<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  tansapple  
+##### 234#       发表于 2025-1-21 11:45
+
+泥潭对标的光谱是4ch那批，能不把人吓跑吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nanachi  
+##### 235#       发表于 2025-1-21 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不是钓鱼账号吗，1主题0回帖
+
