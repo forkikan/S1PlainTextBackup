@@ -5203,3 +5203,35 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 杰利特不正好吗，也被卡缪抢了机体。
 
+
+*****
+
+####  0aleph37  
+##### 4914#       发表于 2025-1-21 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241298&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-21 21:11</a>
+
+都平行世界Z时代了，为啥还要00的2000次男代餐呢？
+
+杰利特不正好吗，也被卡缪抢了机体。 ...</blockquote>
+吃牢饭已经丢人过了，真要一个23岁军官把17岁小姑娘当仇敌吗？
+
+而且夏利亚和他的手下跟麻球成为友方的可能性很大吧，难道还得让这位跳槽/叛逃？仔细一想也不是没可能，甚至可能有段打破女军官恋心滤镜的戏份但这也太狗血了吧……
+
+
+*****
+
+####  刺客ares  
+##### 4915#       发表于 2025-1-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241298&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-21 21:11</a>
+
+都平行世界Z时代了，为啥还要00的2000次男代餐呢？
+
+杰利特不正好吗，也被卡缪抢了机体。 ...</blockquote>
+因为这小哥不太像反派吧，后面还在跟夏利亚一起看2V2
+
+如果一转咬牙切齿真情实感恨上女主那感觉有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面主角团上木马应该会变成友军的
+
