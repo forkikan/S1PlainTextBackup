@@ -4807,3 +4807,19 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
 
 假药吃这么狂野的，不怕到时候心理落差大吗
 
+
+*****
+
+####  岸浪白野  
+##### 4880#       发表于 2025-1-21 18:41
+
+不说什么，猜修司是高堡奇人还是有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/21/183945nmq1duqn212h1nrm.png" referrerpolicy="no-referrer">
+
+<strong>3P95ABVB32P1YI(4E@B2G6N.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 18:39 上传
+
