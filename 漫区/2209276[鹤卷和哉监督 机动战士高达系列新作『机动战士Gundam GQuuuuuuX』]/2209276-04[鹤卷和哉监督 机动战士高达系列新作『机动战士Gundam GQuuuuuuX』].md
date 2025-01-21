@@ -6362,3 +6362,89 @@ mv好抽象
 
 2025-1-22 00:55 上传
 
+
+*****
+
+####  刺客ares  
+##### 5029#       发表于 2025-1-22 00:57
+
+最变态的来了，如果真有牢修视角
+
+那就是妮娅安那段的间奏之后的这一段
+
+<img src="https://img.saraba1st.com/forum/202501/22/005647f71porz7b1c1jzq8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9836.jpeg</strong> (159.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 00:56 上传
+
+对你没看错，这段可能是牢修的视角
+
+*****
+
+####  FF0000  
+##### 5030#       发表于 2025-1-22 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242449&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-22 00:16</a>
+
+主题曲假药没太关注，有任何修斯的切入点吗？给厨厨留点幻想的空间吧</blockquote>
+歌词里强调了很多kilakila，一眼NT人的交流，还有相隔数光年和宇宙彼方，对应了修司穿越假药，最大的还是律师新出的MV，很像麻球和修司双人线，幻想空间很多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FF0000  
+##### 5031#       发表于 2025-1-22 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242615&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-22 00:57</a>
+
+最变态的来了，如果真有牢修视角
+
+那就是妮娅安那段的间奏之后的这一段</blockquote>
+这段也有可能是喵安，喵安追求爱
+
+当然修司这个无口电波最后懂得了什么是爱也合理
+
+
+*****
+
+####  RE㐅ia  
+##### 5032#       发表于 2025-1-22 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242573&amp;ptid=2209276" target="_blank">nnis 发表于 2025-1-22 00:44</a>
+
+怎么厨厨那么不自信，目前都这样了</blockquote>
+主视觉图和主题曲cover都没上镜是这样的
+
+*****
+
+####  刺客ares  
+##### 5033#       发表于 2025-1-22 01:03
+
+<blockquote>FF0000 发表于 2025-1-22 01:02
+这段也有可能是喵安，喵安追求爱
+
+当然修司这个无口电波最后懂得了什么是爱也合理 ...</blockquote>
+追求爱的肯定知道什么是爱
+
+而不是不懂爱，才有“让我明白了爱为何物”
+
+*****
+
+####  虛無迴廊  
+##### 5034#       发表于 2025-1-22 01:04
+
+按惯例渚薰绫波类的角色明白了爱就差不多是死期了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 5035#       发表于 2025-1-22 01:05
+
+还有这个扔球砸头
+
+其实是扔哈啰打断他nt发功吧？
+
+牢修被哈啰砸翻在地，怎么这么有画面感
+

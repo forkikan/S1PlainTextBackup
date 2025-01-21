@@ -16062,3 +16062,16 @@ mujica其实也就出道了两三个月，mortis创造的蒸蒸日上的局面�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说怎么会觉得素世能上去帮忙的，素世能打个助攻拿点情报告诉go全员就不错了
 之前有张图挺不错的，还好不是在美国，不然看到睦突然变得开朗了，素世连夜逃出月之森
 
+
+*****
+
+####  iaoyanghaitao  
+##### 10249#       发表于 2025-1-22 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240601&amp;ptid=2208921" target="_blank">丹德里恩 发表于 2025-1-21 19:28</a>
+
+奥本海睦是谁起的外号，我笑死了</blockquote>
+【“如今我成了Mortis，乐队的毁灭者”】 [https://www.bilibili.com/video/B ... 576e4cb5036bd3110e7](https://www.bilibili.com/video/BV1CK6BY9Exs/?share_source=copy_web&amp;vd_source=9c39b6c5983c3576e4cb5036bd3110e7)
+
+b站有对应视频的，挺有意思
+
