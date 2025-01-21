@@ -4264,3 +4264,19 @@ GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認して�
 マチュ ...</blockquote>
 这段对白出现在麻球问修司要不要一起打团战，和尼亚安正在前往红高藏身地方路上。大概是4702楼的图之前一个镜头。
 
+
+*****
+
+####  Toby_dak  
+##### 4833#       发表于 2025-1-21 08:03
+
+<img src="https://img.saraba1st.com/forum/202501/21/085958wntbccwl1cw6qq8g.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (214.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 07:59 上传
+
+昨天マフィア梶田的节目，看到一堆民用警用渣古的日本风SIDE6时候，也跟我一样感觉是机动警察<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
