@@ -5889,3 +5889,44 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 现代化改造后的夏利亚人气也太高了吧
 
+
+*****
+
+####  岸浪白野  
+##### 4980#       发表于 2025-1-21 23:17
+
+[『機動戦士Gundam GQuuuuuuX -Beginning-』オリジナルサウンドトラック](https://lnk.to/gquuuuuux_OST)
+
+刚才打不开，现在可以在流媒体听这4首了
+
+*****
+
+####  刺客ares  
+##### 4981#       发表于 2025-1-21 23:19
+
+PV1啦啦啦那首的歌名
+
+“宇宙殖民地中的她”
+
+
+*****
+
+####  虛無迴廊  
+##### 4982#       发表于 2025-1-21 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242136&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 23:19</a>
+PV1啦啦啦那首的歌名
+
+“宇宙殖民地中的她”</blockquote>
+简单易懂的名字，是麻球印象曲？
+
+*****
+
+####  刺客ares  
+##### 4983#       发表于 2025-1-21 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242167&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-21 23:23</a>
+
+简单易懂的名字，是麻球印象曲？</blockquote>
+要按考据哥的说法，这首是拉拉角色曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

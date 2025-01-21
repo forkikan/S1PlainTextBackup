@@ -924,3 +924,15 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 恶魔街这地图有点厉害，看似就一张很的小地图实际上遍地暗门和隐藏房间，光是去魔女村就有3种方法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 86#       发表于 2025-1-21 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240204&amp;ptid=2238139" target="_blank">妄想中毒 发表于 2025-1-21 18:26</a>
+恶魔街这地图有点厉害，看似就一张很的小地图实际上遍地暗门和隐藏房间，光是去魔女村就有3种方法 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一周目的话看不出那么多路，等到多周目能从后面往前走看到没有视觉提示的隐藏路线（隐藏双向路）以后才感觉这游戏非常的银河战士。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
