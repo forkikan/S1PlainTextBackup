@@ -15318,3 +15318,32 @@ CGディレクター：遠藤 求
 
 一想到立希要被夹心饼干就忍不住要轻哼起来<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 10174#       发表于 2025-1-21 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 10175#       发表于 2025-1-21 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237239&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-21 12:23</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+“我们允许乐队充分地往演剧路线发展，但是始终是以音乐演奏为主体。我们组乐队的目的就是要追求音乐性，不是让表演喧宾夺主。如果我们的路线导致音乐被当成舞台效果，我们就失败了；如果彻底丢弃了音乐，那我们就真是走了邪路了。”
+
+*****
+
+####  GBLMikuHatsune  
+##### 10176#       发表于 2025-1-21 12:57
+
+你们不要害我看不了少女乐队！
+
+希！海！<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
