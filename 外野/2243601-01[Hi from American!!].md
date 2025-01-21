@@ -1990,3 +1990,44 @@ NO，dollar，美国人用的钱。Dollar！You know？<img src="https://static.
 
 Will we got a ban if we talk about politics in English or other language
 
+
+*****
+
+####  变老的大二  
+##### 222#       发表于 2025-1-21 10:54
+
+<blockquote>Moltres.lv70 发表于 2025-1-21 10:48
+Will we got a ban if we talk about politics in English or other language</blockquote>
+假洋鬼子，**的坏
+
+*****
+
+####  sdeplee  
+##### 223#       发表于 2025-1-21 10:56
+
+nobody cares gtfo<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宇白顺  
+##### 224#       发表于 2025-1-21 10:57
+
+二狗：你这是给我找了个什么过来<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mandown  
+##### 225#       发表于 2025-1-21 10:59
+
+welcome to saraba1st,mark!
+
+sieg heil<img src="https://static.saraba1st.com/image/smiley/bundam2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黒鈴ミヲ  
+##### 226#       发表于 2025-1-21 11:04
+
+喷了，怎么提了一嘴races and sexuality就跑了，老美还是太爱人了
+
