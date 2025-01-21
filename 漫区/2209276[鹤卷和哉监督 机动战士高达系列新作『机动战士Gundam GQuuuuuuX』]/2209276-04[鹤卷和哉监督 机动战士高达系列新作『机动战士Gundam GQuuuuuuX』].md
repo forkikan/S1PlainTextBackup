@@ -4646,3 +4646,11 @@ hg封绘吗</blockquote>
 <img src="https://p.sda1.dev/21/ad44e83e9786efadd49d1625dccc983c/image.jpg" referrerpolicy="no-referrer">
 [@chakichakichaki](https://x.com/chakichakichaki/status/1881494393359859964?t=osgBX4Z_i5fZZmrZqqWRDA&amp;s=19)
 
+
+*****
+
+####  蕾洁之风  
+##### 4868#       发表于 2025-1-21 15:20
+
+与其说是初号机不如说是最终号机
+
