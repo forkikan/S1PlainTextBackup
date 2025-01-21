@@ -4280,3 +4280,27 @@ GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認して�
 
 昨天マフィア梶田的节目，看到一堆民用警用渣古的日本风SIDE6时候，也跟我一样感觉是机动警察<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 4834#       发表于 2025-1-21 08:45
+
+gqx造出来的第一个梗是格拉汉姆终结者化沉进铁炉也太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/21/084456t5zywiw88iqunxw4.jpg" referrerpolicy="no-referrer">
+
+<strong>20250121_084044.jpg</strong> (22.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 08:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/084510q5ahmcipwzscek2j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250121_084337.jpg</strong> (166.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 08:45 上传
+

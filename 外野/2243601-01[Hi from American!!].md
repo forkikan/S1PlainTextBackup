@@ -1739,3 +1739,59 @@ F**K Zion!
 
 S1居然吃到了溢出流量<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大暴死  
+##### 193#       发表于 2025-1-21 08:38
+
+Jesus, glad to see some new blood in the Chinese 4chan alternative, maybe it's time to do the sacrifice and summon our all-mighty lord<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是二大爷  
+##### 194#       发表于 2025-1-21 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233324&amp;ptid=2243601" target="_blank">spieler 发表于 2025-1-20 21:27</a>
+10块钱还是10刀乐</blockquote>
+秃刀乐禿刀乐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  wbzdwsmnmsl  
+##### 195#       发表于 2025-1-21 08:42
+
+<blockquote>致幻之勾 发表于 2025-1-21 01:34
+之前明明还在嘲讽XHS看到洋人就说英语</blockquote>
+这就是传说中的傲娇吗
+
+*****
+
+####  GASEOUSSNAKE  
+##### 196#       发表于 2025-1-21 08:44
+
+成功被你坛吓跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/4408b437e15401c2d0b70d3dfb1db67d/CMP_20250121084338963.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JMFluorece  
+##### 197#       发表于 2025-1-21 08:44
+
+是时候引入llm模型翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isis520  
+##### 198#       发表于 2025-1-21 08:44
+
+因为常年画讽刺犹鱼的漫画和支持巴勒斯坦获得了被西方全社交平台封杀的成就
+
+Great，welcome to S1
+
