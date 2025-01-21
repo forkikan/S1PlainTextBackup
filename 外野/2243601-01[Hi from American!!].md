@@ -2173,3 +2173,13 @@ You think you can enter my domain? You are not prepared.
 
 他能够爱他的那些同性恋屁精，不能爱我们这些粪海狂蛆，包容度还是太低了。
 
+
+*****
+
+####  Vergilno1  
+##### 244#       发表于 2025-1-21 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">白左🏠喵
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
