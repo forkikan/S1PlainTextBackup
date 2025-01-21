@@ -15608,3 +15608,21 @@ ayase，拿不拿，藤原聪，常田大希：真的吗？<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">话说泥潭舅舅呢，咋一点都没透啊
 
+
+*****
+
+####  akiomn  
+##### 10203#       发表于 2025-1-21 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239312&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-21 16:39</a>
+话说泥潭舅舅呢，咋一点都没透啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天晚上隔壁专楼有人说第四集会回收砸书，b站的Na2He说的，不知道可不可信
+我看了下之前他有过re0的剧透
+
+*****
+
+####  osore  
+##### 10204#       发表于 2025-1-21 16:51
+
+RE0有原作小说的还要剧透的吗
+

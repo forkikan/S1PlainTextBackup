@@ -4705,3 +4705,17 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Gysumitka  
+##### 4872#       发表于 2025-1-21 16:49
+
+观后感短漫
+<img src="https://p.sda1.dev/21/c20d5f9cc1e90c02821d04eb362deaf5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/870e0b3d9719cf0dafa2612900fa5fd3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/394ac174bae0abd20724998e9dc195af/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/67c4e43a9cd9d4bac78d695344c4f371/image.jpg" referrerpolicy="no-referrer">
+
+[@nadeshiko0328](https://x.com/nadeshiko0328/status/1881610420596916715)
+
