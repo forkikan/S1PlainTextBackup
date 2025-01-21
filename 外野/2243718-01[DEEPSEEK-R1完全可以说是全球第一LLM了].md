@@ -728,3 +728,14 @@ deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是
 那6个用R1蒸馏的模型还是可以本地部署的。
 [https://api-docs.deepseek.com/zh-cn/news/news250120](https://api-docs.deepseek.com/zh-cn/news/news250120)
 
+
+*****
+
+####  草台培训班  
+##### 65#       发表于 2025-1-21 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239170&amp;ptid=2243718" target="_blank">Azcarlo 发表于 2025-1-21 16:24</a>
+
+— from S1 Next Goose v3.3.96</blockquote>
+这是什么意思？
+

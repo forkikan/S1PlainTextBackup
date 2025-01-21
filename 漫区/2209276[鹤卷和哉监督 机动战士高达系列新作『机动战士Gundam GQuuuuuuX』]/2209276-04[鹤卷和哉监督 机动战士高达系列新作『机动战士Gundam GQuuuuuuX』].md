@@ -6100,3 +6100,18 @@ PV1啦啦啦那首的歌名
 
 别看现在温温柔柔人畜无害的模样，实际上会说出：“只要能让我回到另一边，就算引起泽克诺瓦，把side6的人全都杀死也无所谓！你如果不把我送到那边的世界，我现在就用高达杀了你！”这种话？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FF0000  
+##### 5003#       发表于 2025-1-22 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242313&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-21 23:48</a>
+
+回到牢修是个装对小姑娘好其实只在意自己目的的坏男人说
+
+偶尔的眼神很冷淡不是吗
+
+ ...</blockquote>
+我一开始也以为他是个蛊惑JK大杀特杀的教唆犯，但看剧情版大家的评价，似乎更像是个无常识电波男
+
