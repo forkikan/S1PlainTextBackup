@@ -11323,3 +11323,13 @@ TMD 太狗了</blockquote>
 
 合着能变三破全靠队友给力，这5星属于是卡面没亮点，强度没亮点，剧情也没亮点了
 
+
+*****
+
+####  里村紅葉  
+##### 16152#       发表于 2025-1-21 18:47
+
+一二破土的冒泡，三破至少有特点了指像君主蛇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

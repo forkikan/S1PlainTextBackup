@@ -579,3 +579,15 @@ reasoning模型
 
 写八股文章和O1哪个更好？
 
+
+*****
+
+####  netcat  
+##### 51#       发表于 2025-1-21 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239876&amp;ptid=2243718" target="_blank">Khellendros 发表于 2025-1-21 17:43</a>
+最近用deepseek辅助编程，确实好用，便宜速度快，可靠性也不错，几乎没有需要我手动改的地方，很多简单但是 ...</blockquote>
+是挂到vscode写代码吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
