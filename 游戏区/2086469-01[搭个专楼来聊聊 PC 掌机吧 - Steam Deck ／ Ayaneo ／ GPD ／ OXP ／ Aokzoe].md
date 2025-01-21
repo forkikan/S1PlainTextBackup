@@ -367,3 +367,14 @@ b站有人测试，调教好看起来和6800差不多，顶多差点。性能比
 
         主要是windows不支持hdr，但是玩盗版gal有onedirve自动云存档。只能双系统了。
 
+
+*****
+
+####  泰坦失足  
+##### 1369#       发表于 2025-1-21 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67235524&amp;ptid=2086469" target="_blank">完美的消费品 发表于 2025-1-21 09:47</a>
+
+deck 在tf卡装windows。使用不同的tf卡，体验有区别吗？现在手头有的是n多年前给ns买的200g闪迪红 ...</blockquote>
+我在质量不行的SD卡上，TF上的Windows系统体验非常差。可以试试 [https://github.com/Azure-Agst/decky-syncthing](https://github.com/Azure-Agst/decky-syncthing) 吧.
+

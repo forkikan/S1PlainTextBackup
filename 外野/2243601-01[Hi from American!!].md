@@ -1905,3 +1905,32 @@ Let's guess when you will be banned because of the keyboard politics.<img src="h
 
 here's 泥潭，you keyboard politics, you get 抹布'd。
 
+
+*****
+
+####  大智若愚琪露诺  
+##### 213#       发表于 2025-1-21 09:59
+
+我们鹅城有两大家族，都是把人卖到卓明谷，筑京观，挣的都是dollar。
+还说刀的事。
+NO，dollar，美国人用的钱。Dollar！You know？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大智若愚琪露诺  
+##### 214#       发表于 2025-1-21 09:59
+
+我去，最速退坛传说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  寂寞的星空  
+##### 215#       发表于 2025-1-21 10:01
+
+欢迎加入S1
+
