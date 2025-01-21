@@ -686,3 +686,11 @@ closeai好死
 
 deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是国内那批大模型创业公司之一
 
+
+*****
+
+####  chaosliu  
+##### 61#       发表于 2025-1-21 22:25
+
+这一家还有能本地部署的模型吗？性能需求大概怎么样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

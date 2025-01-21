@@ -5421,3 +5421,57 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 
 但两首歌都直白的说了这是“爱”。
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 4933#       发表于 2025-1-21 22:26
+
+两首歌看歌词应该都是喵安的
+虽然水魔告诉我们歌词考据都是放屁
+总之先小赢一点在起跑线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然我更想看等边三角
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刺客ares  
+##### 4934#       发表于 2025-1-21 22:28
+
+厨厨看到主视图、少革编剧和女一二番已经跑路了，看到主题曲插曲更是打了个车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  番茄牛奶  
+##### 4935#       发表于 2025-1-21 22:33
+
+两边都跑了，到底是谁进场了，老登吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 4936#       发表于 2025-1-21 22:33
+
+有的人杀心太重了，我倒觉得修司不会死这么快，要死应该也是快结局的时候，不然谁来开红高达
+
+*****
+
+####  Sliurus  
+##### 4937#       发表于 2025-1-21 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241796&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 22:28</a>
+
+厨厨看到主视图、少革编剧和女一二番已经跑路了，看到主题曲插曲更是打了个车
+
+我是感觉这作纯钓厨厨的，高 ...</blockquote>
+现在也还没op画面啊<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 4938#       发表于 2025-1-21 22:35
+
+难道不应该是看到NT聊天室面对面和互喊名字就高呼bg厨要自信吗？
+

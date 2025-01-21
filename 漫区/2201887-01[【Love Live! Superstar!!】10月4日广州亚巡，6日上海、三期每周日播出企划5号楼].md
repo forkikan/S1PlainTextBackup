@@ -14727,3 +14727,13 @@ BD封面早有预料了，结局都那样安排了。
 
 bd封面会是谁和谁好像哪家特典就剧透了，接下来的4是姐妹＋千，5是恋＋樱，6应该是全员
 
+
+*****
+
+####  csolfans  
+##### 1435#       发表于 2025-1-21 22:25
+
+<img src="https://p.sda1.dev/21/1dc60e6336b8d34c09a585460e596b4e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
