@@ -2039,3 +2039,35 @@ sieg heil<img src="https://static.saraba1st.com/image/smiley/bundam2017/017.png"
 
 非常好平台第一,爱来自瓷器
 
+
+*****
+
+####  卷饼大侠  
+##### 228#       发表于 2025-1-21 11:17
+
+翻译机能翻译泥潭黑话吗，不然学习成本太高了喂，错了，我应该用S1论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Viteeee  
+##### 229#       发表于 2025-1-21 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">泥潭新成就：“因为太右吓跑了真正的国际左翼朋友”
+
+
+*****
+
+####  lucifer123  
+##### 230#       发表于 2025-1-21 11:25
+
+我擦，SHE要超神。
+
+泥潭都开始国际接轨了。
+
+*****
+
+####  nibugishi  
+##### 231#       发表于 2025-1-21 11:25
+
+welcome to troll of abyss
+
