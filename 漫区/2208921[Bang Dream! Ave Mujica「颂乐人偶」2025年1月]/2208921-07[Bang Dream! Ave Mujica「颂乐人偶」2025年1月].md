@@ -15365,3 +15365,13 @@ CGディレクター：遠藤 求
 
 jz是邦邦不得不品的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 10179#       发表于 2025-1-21 13:20
+
+也是继承邦邦传统了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
