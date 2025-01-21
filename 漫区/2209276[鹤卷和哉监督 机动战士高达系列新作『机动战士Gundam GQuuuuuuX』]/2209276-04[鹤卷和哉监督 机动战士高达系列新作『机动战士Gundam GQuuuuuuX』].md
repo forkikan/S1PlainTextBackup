@@ -4249,3 +4249,18 @@ MAN-03 布劳·布罗_ ...</blockquote>
 说起来这段的原文有人对过吗，感觉这种说法已经确定前半内容要上TV了？</blockquote>
 不会开播后还要连看两周79if才能进正片吧（
 
+
+*****
+
+####  Toby_dak  
+##### 4832#       发表于 2025-1-21 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234165&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-21 00:45</a>
+
+GQuuuuuuX1回目の時セリフの流れがわからなくて今回確認してみたところ、やはりわからなかった
+
+↓
+
+マチュ ...</blockquote>
+这段对白出现在麻球问修司要不要一起打团战，和尼亚安正在前往红高藏身地方路上。大概是4702楼的图之前一个镜头。
+
