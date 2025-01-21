@@ -396,3 +396,14 @@ GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真�
 GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是884 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还是很重的，而且手柄按着很难受
 
+
+*****
+
+####  Jigsaw1999  
+##### 1372#       发表于 2025-1-21 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237294&amp;ptid=2086469" target="_blank">医生狼多 发表于 2025-1-21 12:30</a>
+
+其实还是很重的，而且手柄按着很难受</blockquote>
+看了一中午的评测，已经祛魅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

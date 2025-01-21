@@ -42,3 +42,14 @@
 
 本来说用来处理视频会稍微好点，但是对比下来还是不如mpv+RIFE
 
+
+*****
+
+####  慕容断月  
+##### 61#       发表于 2025-1-21 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67211988&amp;ptid=2238299" target="_blank">泰坦失足 发表于 2025-1-18 11:16</a>
+
+更新：怎么对于CNC3这种画面默认全屏的老游戏也有用。我记得之前说的不是只有窗口化的进程才能捕获的吗. 试 ...</blockquote>
+fsr是只有窗口化，插帧的话只要不是全屏，无边框和满屏窗口都可以
+
