@@ -386,3 +386,13 @@ deck 在tf卡装windows。使用不同的tf卡，体验有区别吗？现在手�
 
 GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是8840u版本只有16g，ai365和hx370版本都7k往上这个搭配真的无语<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，但是这个尺寸真的适合把玩啊，感觉手里的飞行家f1不香了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 1371#       发表于 2025-1-21 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236950&amp;ptid=2086469" target="_blank">Jigsaw1999 发表于 2025-1-21 11:56</a>
+GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是884 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还是很重的，而且手柄按着很难受
+
