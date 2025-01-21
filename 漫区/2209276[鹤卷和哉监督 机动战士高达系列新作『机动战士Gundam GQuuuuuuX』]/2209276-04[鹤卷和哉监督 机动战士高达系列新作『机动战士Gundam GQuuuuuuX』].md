@@ -4729,3 +4729,13 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
  观后感短漫  </blockquote>
 少了一张图
 
+
+*****
+
+####  Gysumitka  
+##### 4874#       发表于 2025-1-21 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239591&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-21 17:11</a>
+少了一张图</blockquote>
+楼中楼没看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 补上了
+

@@ -15634,3 +15634,25 @@ RE0有原作小说的还要剧透的吗
 
 舅舅说的大女主还在被抽陀螺呢 端下去吧
 
+
+*****
+
+####  huxiaopao163  
+##### 10206#       发表于 2025-1-21 17:15
+
+ 本帖最后由 huxiaopao163 于 2025-1-21 17:17 编辑 
+
+反正按访谈说的这集最后要爆，还有第四集的标题演出落幕，大莫盛世这集肯定是要被终结，就是不知道是mortis或者睦本身的问题，还是其他人爆了强行终结
+
+*****
+
+####  [皆神孝介]  
+##### 10207#       发表于 2025-1-21 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239357&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-21 16:47</a>
+
+昨天晚上隔壁专楼有人说第四集会回收砸书，b站的Na2He说的，不知道可不可信
+
+我看了下之前他有过re0的剧透 ...</blockquote>
+说说哪儿有剧透就行了，别描述细节<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
