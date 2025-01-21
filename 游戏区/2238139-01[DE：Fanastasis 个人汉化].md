@@ -916,3 +916,11 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 昨晚试了下，此前一直听说是rpg的魂游，亲自上手体验了一下的确如此，味儿都溢出屏幕了，很对胃口，感谢楼主，过年就指着这个和那个终嫣莉莉丝2了
 
+
+*****
+
+####  妄想中毒  
+##### 85#       发表于 2025-1-21 18:26
+
+恶魔街这地图有点厉害，看似就一张很的小地图实际上遍地暗门和隐藏房间，光是去魔女村就有3种方法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

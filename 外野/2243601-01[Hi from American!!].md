@@ -2221,3 +2221,12 @@ really?
 
 WTF
 
+
+*****
+
+####  带头大哥威尔士  
+##### 249#       发表于 2025-1-21 18:25
+
+就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没学过屠龙术的白左确实不行。
+

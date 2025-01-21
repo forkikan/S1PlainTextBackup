@@ -15748,3 +15748,25 @@ OP那个表情狰狞的才是黑白同归于尽后出现的真正放飞自我的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一心而用  
+##### 10218#       发表于 2025-1-21 18:32
+
+青木阳菜：去了动画「BanG Dream! Ave Mujica」第三话中的仙台站（吵架的）场景圣地巡礼。 ​​​
+<img src="https://p.sda1.dev/21/515e692be6f547a3b166251a9321633c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a396a24e4d2bdc0f5d1280b6e339e16c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d3d33cf7cad0554e98f7e854edaa5f16/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  remediosOlOOOO  
+##### 10219#       发表于 2025-1-21 18:37
+
+祥子听到海玲在哼从立希那里学会的春日影时be like：
+
+<img src="https://p.sda1.dev/21/babcfa6ec85e24f102667cc98ec07cb4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
