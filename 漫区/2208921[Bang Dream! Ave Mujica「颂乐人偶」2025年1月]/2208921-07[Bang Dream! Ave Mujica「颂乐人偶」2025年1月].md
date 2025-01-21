@@ -15152,3 +15152,115 @@ CGディレクター：遠藤 求
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">开朗睦也好
 
+
+*****
+
+####  御幸一也  
+##### 10163#       发表于 2025-1-21 11:57
+
+真的嗎，那看來爽姐家臨時把電視牆的木板厚度削了好大一塊呢
+
+<img src="https://img.saraba1st.com/forum/202501/21/115709bnc00k7na89ucgn4.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (525.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:57 上传
+
+*****
+
+####  玖羽  
+##### 10164#       发表于 2025-1-21 11:57
+
+ 本帖最后由 玖羽 于 2025-1-21 11:58 编辑 
+
+草，这个排序<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+之前无论摘不摘面具，采访座次排序都是：1祥子＞2睦初华＞3海铃喵梦，祥子主导发言
+
+现在Mortis替代了祥子，祥子给踢到跟海铃喵梦一起去了
+
+<img src="https://img.saraba1st.com/forum/202501/21/115458nv429cyz4fz5wq1h.jpg" referrerpolicy="no-referrer">
+
+<strong>0sz.jpg</strong> (119.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:54 上传
+
+第1话
+
+<img src="https://img.saraba1st.com/forum/202501/21/115458rnjedaal0z0ux04q.jpg" referrerpolicy="no-referrer">
+
+<strong>054.jpg</strong> (271.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:54 上传
+
+第2话
+
+<img src="https://img.saraba1st.com/forum/202501/21/115458bba8431qb324d3ac.jpg" referrerpolicy="no-referrer">
+
+<strong>495.jpg</strong> (215.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:54 上传
+
+*****
+
+####  结衣小比取  
+##### 10165#       发表于 2025-1-21 11:58
+
+<img src="https://img.saraba1st.com/forum/202501/21/115850c21a393x2wpz48g8.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-21_11-58-20.png</strong> (2.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:58 上传
+
+
+*****
+
+####  DARK_HGCG  
+##### 10166#       发表于 2025-1-21 12:00
+
+不再演戏的会不会是海铃
+
+比如她以前的乐队发生不愉快而解散了
+
+受到刺激的海铃就装作中立的雇佣兵在多个乐队混，然后挑选她们最春风得意的时候暗地里捅刀子取乐，就这样坑了20个乐队都没被发现
+
+但这次在搞事的时候意外被发现了，于是当场坦白说我不演了
+
+*****
+
+####  Acatv  
+##### 10167#       发表于 2025-1-21 12:01
+
+没问题啊我们母鸡卡的吉他双C<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  remedios010000  
+##### 10168#       发表于 2025-1-21 12:02
+
+素世女士还在输出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥老师翻脸不认人，睦头疯球，泉水爆了还在操作，我有一计可使苦来兮苦幽而复明，我感觉我来看母鸡卡就是为了看素世还能有什么惊世智慧的，哪怕拍成大素传我也是愿意的真拍了你又不高兴
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  RPG-7  
+##### 10169#       发表于 2025-1-21 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236416&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-21 11:13</a>
+
+太变态了 不敢想会有多少鉴证梗</blockquote>
+初华！连你都不肯支持祥子阁下，还有谁来？和这些虫豕在一起，怎么可以搞好母鸡卡呢？<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

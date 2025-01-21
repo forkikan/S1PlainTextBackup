@@ -2114,3 +2114,16 @@ You think you can enter my domain? You are not prepared.
 
 菜园子 网左ver是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 哦，甚至网左都不算
 
+
+*****
+
+####  素盏鸣尊  
+##### 237#       发表于 2025-1-21 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236817&amp;ptid=2243601" target="_blank">tansapple 发表于 2025-1-21 11:45</a>
+
+泥潭对标的光谱是4ch那批，能不把人吓跑吗？</blockquote>
+差太多了。马桶区的incel才对标4ch下水道。能同情珠海杀人犯的逆天。
+
+泥潭虽自比粪海狂蛆。真正的光谱却是建制。
+

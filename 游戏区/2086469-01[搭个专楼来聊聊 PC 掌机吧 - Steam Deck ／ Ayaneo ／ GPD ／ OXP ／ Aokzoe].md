@@ -378,3 +378,11 @@ b站有人测试，调教好看起来和6800差不多，顶多差点。性能比
 deck 在tf卡装windows。使用不同的tf卡，体验有区别吗？现在手头有的是n多年前给ns买的200g闪迪红 ...</blockquote>
 我在质量不行的SD卡上，TF上的Windows系统体验非常差。可以试试 [https://github.com/Azure-Agst/decky-syncthing](https://github.com/Azure-Agst/decky-syncthing) 吧.
 
+
+*****
+
+####  Jigsaw1999  
+##### 1370#       发表于 2025-1-21 11:56
+
+GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是8840u版本只有16g，ai365和hx370版本都7k往上这个搭配真的无语<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，但是这个尺寸真的适合把玩啊，感觉手里的飞行家f1不香了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
