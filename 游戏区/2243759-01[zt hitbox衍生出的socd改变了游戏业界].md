@@ -1,0 +1,489 @@
+﻿
+*****
+
+####  obiy  
+##### 1#       楼主       发表于 2025-1-21 19:32
+
+[【【游戏众生相】革命or作弊：这个游戏控制器如何改变了世界？-哔哩哔哩】 https://b23.tv/58VdEgI](https://b23.tv/58VdEgI)
+
+socd指的是当相反的方向被输入，例如同时按上下，同时按左右，游戏该如何处理的问题。传统街机摇杆只有四方向（和游戏机的类比摇杆不同），不存在相反方向被同时输入的问题。hitbox的出世让socd开始凸显并衍生出了不同的处理方式，格斗游戏玩家开发出了各种优于摇杆的操作。
+
+之后socd被键盘厂商发现了，射击游戏玩家的天塌了。随后视频里提到v社在cs2里禁了socd😄
+
+*****
+
+####  BRAVADO  
+##### 2#       发表于 2025-1-21 19:39
+
+ 本帖最后由 BRAVADO 于 2025-1-21 19:43 编辑 
+
+把关键输入绑定在侧键上是否属于作弊行为？毕竟最传统的鼠标是三键的。
+
+再比如滚轮跳是否也是作弊的一种呢？比如quake世界冠军rapha就认为把跳跃绑定在滚轮上（对他自己）是作弊行为，所以他不这么干。
+
+*****
+
+####  makece  
+##### 3#       发表于 2025-1-21 19:39
+
+怎么还和射击游戏有关系
+
+*****
+
+####  大暴死  
+##### 4#       发表于 2025-1-21 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  oyss  
+##### 5#       发表于 2025-1-21 20:07
+
+用键盘的fps不是天然支持这个么?
+
+*****
+
+####  Tring  
+##### 6#       发表于 2025-1-21 20:11
+
+关射击玩家和键盘厂商什么破事？
+
+现在键盘还有不是全键无冲的？
+
+*****
+
+####  古代人皮克  
+##### 7#       发表于 2025-1-21 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240762&amp;ptid=2243759" target="_blank">大暴死 发表于 2025-1-21 19:51</a>
+当年tf2，soldier的火箭跳号称鼠标绑快捷键能几乎做到必触发，但我用下来也就比自己按成功率高一点
+
+——  ...</blockquote>
+火箭跳要控制方向和力度的，绑个宏不是当活靶子吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  obiy  
+##### 8#         楼主| 发表于 2025-1-21 21:00
+
+<blockquote>Tring 发表于 2025-1-21 20:11
+关射击玩家和键盘厂商什么破事？
+
+现在键盘还有不是全键无冲的？</blockquote>
+有了socd可以更快急停，雷蛇和wooting有这个功能，socd的另一个名字是snaptap（键盘厂商推出的功能）
+
+*****
+
+####  obiy  
+##### 9#         楼主| 发表于 2025-1-21 21:06
+
+ 本帖最后由 obiy 于 2025-1-21 21:19 编辑 
+<blockquote>BRAVADO 发表于 2025-1-21 19:39
+把关键输入绑定在侧键上是否属于作弊行为？毕竟最传统的鼠标是三键的。
+
+再比如滚轮跳是否也是作弊的一种呢 ...</blockquote>
+
+我觉得官方支持就不算，apex英雄直接能在键位设置里把跳绑在滚轮上（支持一个操作绑两个按键，例如把跳跃设置成空格和滚轮向下滚动）
+
+当然apex英雄前期都在吵手柄辅瞄不公平，现在估计都在杀滋崩狗的妈😂
+
+*****
+
+####  Wondering  
+##### 10#       发表于 2025-1-21 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240899&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 20:11</a>
+
+关射击玩家和键盘厂商什么破事？
+
+现在键盘还有不是全键无冲的？</blockquote>
+snaptap啊，全键无冲某种程度上反而是坏事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在某种程度上，对于特别是cs或者瓦罗兰这种需要急停的游戏来说，无冲急停意味着你要松下方向键快速按反方向键，但是有冲的话不需要松下方向键就能完成急停，成功率高了不少，也就是去年引起非常大争议的磁轴键盘snaptap功能，很多人定义这个是外挂的
+
+*****
+
+####  Tring  
+##### 11#       发表于 2025-1-21 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241241&amp;ptid=2243759" target="_blank">obiy 发表于 2025-1-21 21:00</a>
+
+有了socd可以更快急停，雷蛇和wooting有这个功能，socd的另一个名字是snaptap（键盘厂商推出的功能） ...</blockquote>
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键，怎么反应是游戏自己决定的，完全可以实现让你按住2个键的时候也按某种逻辑优先级当做其中一个键。
+
+而如果真有游戏没有做这种支持，反而支持了按住2个键就当没按键这种怪B功能，那你键盘不在驱动层传篡改过的键码，游戏也不可能按照他说的反应。
+
+而如果键盘是在驱动以下改的键码，那游戏又怎么可能封得掉？
+
+*****
+
+####  Wondering  
+##### 12#       发表于 2025-1-21 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241289&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:09</a>
+
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键 ...</blockquote>
+不也就cs2封了，瓦罗兰根本没动过，而且cs2是根据操作封号和软件硬件有毛钱关系，你自己快速ad键过快碰狗运都有可能封号
+
+*****
+
+####  Wondering  
+##### 13#       发表于 2025-1-21 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241289&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:09</a>
+
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键 ...</blockquote>
+况且根本不是封号，线上踢出去一局罢了，线下才扣整局分
+
+*****
+
+####  Tring  
+##### 14#       发表于 2025-1-21 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241302&amp;ptid=2243759" target="_blank">Wondering 发表于 2025-1-21 21:11</a>
+
+不也就cs2封了，瓦罗兰根本没动过，而且cs2是根据操作封号和软件硬件有毛钱关系，你自己快速ad键过快碰狗 ...</blockquote>
+去做这个封号检测，还不如直接把这功能做到游戏内，让键盘厂商没牛可吹。
+
+*****
+
+####  Wondering  
+##### 15#       发表于 2025-1-21 21:15
+
+ 本帖最后由 Wondering 于 2025-1-21 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241316&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:14</a>
+
+去做这个封号检测，还不如直接把这功能做到游戏内，让键盘厂商没牛可吹。 ...</blockquote>
+莫名其妙，你玩过cs或者瓦吗？没玩过那就滚一边别参与相关讨论，有种路人指点一键跳投那味道了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">急停作为这种短ttk射击游戏区分玩家上限的手段之一和子弹随机散步都是游戏本身之法不可变，是不是外挂的问题可以不说，做进游戏那为啥要设计急停？
+
+*****
+
+####  Tring  
+##### 16#       发表于 2025-1-21 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241322&amp;ptid=2243759" target="_blank">Wondering 发表于 2025-1-21 21:15</a>
+
+莫名其妙，你玩过cs或者瓦吗？没玩过那就滚一边别参与相关讨论，有种路人指点一键跳投那味道了 ...</blockquote>
+你才是莫名其妙。
+
+双键同时按的时候响应后键，这功能又不难实现，游戏里一个补丁的事。
+
+既然都封号了，就是官方认为这个逻辑优势更大，那为啥不给所有玩家都实装这功能？
+
+*****
+
+####  AEmpire  
+##### 17#       发表于 2025-1-21 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241289&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:09</a>
+
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是没办法处理。至于为什么游戏要做这种怪B设定，主要是因为格斗游戏最初是基于街机厅摇杆设计的，游戏根本就没考虑过相反的方向会同时输入这种情况
+
+所以像hitbox，键盘这种可以同时输入相反方向的设备，完全就是在挑战格斗游戏底层搓招逻辑，不管采用哪种socd策略都是对用摇杆玩家的降维打击
+
+*****
+
+####  Wondering  
+##### 18#       发表于 2025-1-21 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241335&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:18</a>
+
+你才是莫名其妙。
+
+双键同时按的时候响应后键，这功能又不难实现，游戏里一个补丁的事。
+
+既然都封号了，就 ...</blockquote>
+因为就不该进行实装啊，你是傻逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">要是你去当cs设计师是不是直接要把子弹散步直接去掉？毕竟官方想做有任何问题，场外也有一键压枪宏作为外挂使用，你就是彩虹六号设计师？
+
+*****
+
+####  Tring  
+##### 19#       发表于 2025-1-21 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241346&amp;ptid=2243759" target="_blank">AEmpire 发表于 2025-1-21 21:20</a>
+
+就是没办法处理。至于为什么游戏要做这种怪B设定，主要是因为格斗游戏最初是基于街机厅摇杆设计的，游戏 ...</blockquote>
+正常代码写下来，如果没有考虑过2个对向同时按的情况，大概率是在你2个对向同时按的时候，响应其中某一个判定更优先的方向。
+
+会在2个方向同时按的时候，当做没有按方向的情况，那就是代码里考虑到了这种情况还故意这么设计的。
+
+*****
+
+####  Wondering  
+##### 20#       发表于 2025-1-21 21:22
+
+ 本帖最后由 Wondering 于 2025-1-21 21:26 编辑 
+
+实在是气的说不出话来，没玩过某游戏的能不能不要睿评某游戏的核心机制？去掉这个核心机制还叫某游戏吗？干脆所有枪都设计为激光枪去掉随机弹道，道具和瓦一样都是地图直接选点投放算了，是真的脑子有毛病，作为电竞游戏急停就是这游戏拔高操作上限的手段，直接和瞄准射击相挂钩的，操作上限不要了那不就是街霸6直接删掉经典模式只留下现代模式，你就说老玩家满不满意吧
+
+*****
+
+####  Tring  
+##### 21#       发表于 2025-1-21 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241368&amp;ptid=2243759" target="_blank">Wondering 发表于 2025-1-21 21:22</a>
+
+实在是气的说不出话来，没玩过某游戏的能不能不要睿评某游戏的核心机制？去掉这个核心机制还叫某游戏吗？干 ...</blockquote>
+硬是要把BUG说成机制，也是高贵的游戏领域大神了。
+
+*****
+
+####  Wondering  
+##### 22#       发表于 2025-1-21 21:28
+
+ 本帖最后由 Wondering 于 2025-1-21 21:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241387&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:26</a>
+
+硬是要把BUG说成机制，也是高贵的游戏领域大神了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然对于脑子有病的还是得先屏蔽了（没有说我脑子没有病的意思，倒不如说我比你有病多了，居然因为被这种屁事气到了）
+
+*****
+
+####  电磁炮233  
+##### 23#       发表于 2025-1-21 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241289&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:09</a>
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键 ...</blockquote>
+这种其实很好检测，因为输入逻辑和正常操作差别太大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AEmpire  
+##### 24#       发表于 2025-1-21 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241360&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:21</a>
+
+正常代码写下来，如果没有考虑过2个对向同时按的情况，大概率是在你2个对向同时按的时候，响应其中某一个 ...</blockquote>
+我觉得你理解歪了，这不是代码考没考虑过的问题，现在的问题是不管格斗游戏的代码写的是采用响应某个优先方向还是当做没按方向，无论哪种方案都能做出用摇杆永远搓不出来的离谱操作，属于是那么改怎么错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tring  
+##### 25#       发表于 2025-1-21 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241488&amp;ptid=2243759" target="_blank">AEmpire 发表于 2025-1-21 21:45</a>
+
+我觉得你理解歪了，这不是代码考没考虑过的问题，现在的问题是不管格斗游戏的代码写的是采用响应某个优先 ...</blockquote>
+用HITBOX的情况和键盘的那个SNAPTAP，应该还不一样。
+
+HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常逻辑以外的操作；
+
+而键盘那个SNAPTAP，则是反过来的，是把玩家同时按到2个方向的情况，在硬件层面模拟成只按了1个键输入给游戏。
+
+*****
+
+####  TheOccuria  
+##### 26#       发表于 2025-1-21 21:55
+
+ 本帖最后由 TheOccuria 于 2025-1-21 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241335&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:18</a>
+
+你才是莫名其妙。
+
+双键同时按的时候响应后键，这功能又不难实现，游戏里一个补丁的事。
+
+既然都封号了，就 ...</blockquote>
+这功能是可以直接做在设备上的
+
+不实装是因为这是违反游戏一个技巧设计的操作
+
+*****
+
+####  电磁炮233  
+##### 27#       发表于 2025-1-21 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241513&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:49</a>
+用HITBOX的情况和键盘的那个SNAPTAP，应该还不一样。
+
+HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</blockquote>
+本质都一样，就是把一个需要快速组合输入的指令简化成了长按+单点的简易指令，物理层面简化了操作实现了最低延迟并且消除了失误
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Wondering  
+##### 28#       发表于 2025-1-21 21:58
+
+真服你们能和一个既没有玩过cs又没有玩过街霸只凭自己yy和刻板印象说出各种暴论的人讨论半天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 4k@60hz|-1|这也加？|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  黄泉川此方  
+##### 29#       发表于 2025-1-21 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241564&amp;ptid=2243759" target="_blank">Wondering 发表于 2025-1-21 21:58</a>
+
+真服你们能和一个既没有玩过cs又没有玩过街霸只凭自己yy和刻板印象说出各种暴论的人讨论半天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他连楼主发的视频也没看
+
+*****
+
+####  Tring  
+##### 30#       发表于 2025-1-21 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241560&amp;ptid=2243759" target="_blank">电磁炮233 发表于 2025-1-21 21:57</a>
+
+本质都一样，就是把一个需要快速组合输入的指令简化成了长按+单点的简易指令，物理层面简化了操作实现了 ...</blockquote>
+这个问题最奇妙的地方就在于，“物理层面简化了操作实现了最低延迟并且消除了失误”为什么变成了一件坏事。
+
+放在格斗游戏的场景下，还很容易理解，因为摇杆是无论如何都实现不了的，所以这种简化注定是条件上不平等的。
+
+但是放在键盘上就很奇怪了，明明是可以做到平等的简化的。
+
+*****
+
+####  Wondering  
+##### 31#       发表于 2025-1-21 22:16
+
+ 本帖最后由 Wondering 于 2025-1-21 22:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241616&amp;ptid=2243759" target="_blank">黄泉川此方 发表于 2025-1-21 22:05</a>
+
+他连楼主发的视频也没看</blockquote>
+大概某些人真的不明白，就因为急停的存在所以再强的高手的急停率也不可能是百分之百这才让实力比较低的人对赢高手有了可乘之机，跑打也有了生存机会，真删除了急停你看你每把会不会被枪枪头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">r6弹道改进的前车之鉴居然还有人不懂属实想不到
+
+*****
+
+####  Tring  
+##### 32#       发表于 2025-1-21 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241711&amp;ptid=2243759" target="_blank">Wondering 发表于 2025-1-21 22:16</a>
+
+大概某些人真的不明白，就因为急停的存在所以再强的高手的急停率也不可能是百分之百这才让实力比较低的人 ...</blockquote>
+有些人确实想不明白，为什么一个PVP游戏要设计一个机制，让实力再强的高手也没办法100%干碎实力比较低的人，而这个机制还是通过某种类似BUG的方式来维持的。
+
+*****
+
+####  TheOccuria  
+##### 33#       发表于 2025-1-21 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241645&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 22:08</a>
+
+这个问题最奇妙的地方就在于，“物理层面简化了操作实现了最低延迟并且消除了失误”为什么变成了一件坏事 ...</blockquote>
+急停是cs的一个核心技巧操作，如果大家都平等的能随便用，那这游戏就少了一个玩点
+
+如果官方觉得这个玩点不必要，那直接改弹道就行了
+
+打个不恰当的比方，鼠标宏也能减少压枪“失误”，那是不是官方该给每个玩家发个鼠标宏？或者直接全部激光枪？
+
+*****
+
+####  AEmpire  
+##### 34#       发表于 2025-1-21 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241513&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:49</a>
+
+用HITBOX的情况和键盘的那个SNAPTAP，应该还不一样。
+
+HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</blockquote>
+确实不一样，不过你理解的还是有问题，首先hitbox现在也是硬件socd了，也就是只输出一个键码给游戏
+
+然后snaptop的这个后覆盖功能跟hitbox的后覆盖确实有区别。举个例子，我用hitbox按住D后按下A，这时候hitbox会从输出D变成输出A，这时候我再松开A的话，还会重新输出D
+
+而这个snaptop在按下A后，你按住D这个操作就完全失效了，也就是说你抬起A之后，也不会再重新输出D，除非再按一次。也就是个给CS2的急停技巧特化的键盘宏
+
+*****
+
+####  ouyang菌  
+##### 35#       发表于 2025-1-21 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241513&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:49</a>
+
+用HITBOX的情况和键盘的那个SNAPTAP，应该还不一样。
+
+HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</blockquote>
+可以看得出来你甚至都没看这视频了，因为视频里专门说了有些socd就是你所说的两个键覆盖成一个（后覆盖/上覆盖），而正是这种设置导致了问题的出现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tring  
+##### 36#       发表于 2025-1-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241758&amp;ptid=2243759" target="_blank">TheOccuria 发表于 2025-1-21 22:23</a>
+
+急停是cs的一个核心技巧操作，如果大家都平等的能随便用，那这游戏就少了一个玩点
+
+如果官方觉得这个玩点 ...</blockquote>
+如果说是玩点，那就可以理解了。
+
+也就是说，玩家享受的是克服这个缺陷的过程，缺陷本身提供了乐趣。
+
+*****
+
+####  Wondering  
+##### 37#       发表于 2025-1-21 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241758&amp;ptid=2243759" target="_blank">TheOccuria 发表于 2025-1-21 22:23</a>
+
+急停是cs的一个核心技巧操作，如果大家都平等的能随便用，那这游戏就少了一个玩点
+
+如果官方觉得这个玩点 ...</blockquote>
+感觉那还不如直接透视锁头，反正消除失误嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cosx  
+##### 38#       发表于 2025-1-21 22:36
+
+蓄力角色用后覆盖怎么了
+
+*****
+
+####  TheOccuria  
+##### 39#       发表于 2025-1-21 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241859&amp;ptid=2243759" target="_blank">cosx 发表于 2025-1-21 22:36</a>
+
+蓄力角色用后覆盖怎么了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相当于没回中，出手会快
+
+*****
+
+####  雪菜碧池  
+##### 40#       发表于 2025-1-21 23:17
+
+<blockquote>Tring 发表于 2025-1-21 21:09
+我搜了下那个snaptap，描述的根本就是错误的。
+
+正常键盘在左右一起按的时候，游戏也知道你同时按了2个键 ...</blockquote>
+这么跟你说吧，socd的妙处就在于它的逻辑在硬件芯片上，逻辑高于游戏内，只要玩家想用，游戏里改是没用的
+
+
+*****
+
+####  yvev  
+##### 41#       发表于 2025-1-22 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241316&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-21 21:14</a>
+去做这个封号检测，还不如直接把这功能做到游戏内，让键盘厂商没牛可吹。 ...</blockquote>
+看得出来是真不懂fps游戏
+
