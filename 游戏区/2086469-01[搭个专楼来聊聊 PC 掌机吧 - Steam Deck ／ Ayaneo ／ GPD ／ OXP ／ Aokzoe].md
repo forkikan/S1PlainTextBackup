@@ -357,3 +357,13 @@ b站有人测试，调教好看起来和6800差不多，顶多差点。性能比
 
 要不要退单呢还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  完美的消费品  
+##### 1368#       发表于 2025-1-21 09:47
+
+        deck 在tf卡装windows。使用不同的tf卡，体验有区别吗？现在手头有的是n多年前给ns买的200g闪迪红卡，考虑要不要先升级tf卡。
+
+        主要是windows不支持hdr，但是玩盗版gal有onedirve自动云存档。只能双系统了。
+

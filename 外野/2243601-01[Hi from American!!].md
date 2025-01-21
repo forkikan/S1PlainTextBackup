@@ -1897,3 +1897,11 @@ Let's guess when you will be banned because of the keyboard politics.<img src="h
 
 牛b啊这，welcome to the world of troll
 
+
+*****
+
+####  dclara1  
+##### 212#       发表于 2025-1-21 09:52
+
+here's 泥潭，you keyboard politics, you get 抹布'd。
+
