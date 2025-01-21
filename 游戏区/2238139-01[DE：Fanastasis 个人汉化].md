@@ -908,3 +908,11 @@ https://wwqs.lanzoue.com/i2DAH2laishc</blockquote>
 https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全屏和巴掌大窗口，用这个能缩放窗口 ...</blockquote>
 感谢，我自己摸索，用一个叫Magpie的东西搞定了，也试下你这个效果是否更好。
 
+
+*****
+
+####  shangfire  
+##### 84#       发表于 2025-1-21 10:43
+
+昨晚试了下，此前一直听说是rpg的魂游，亲自上手体验了一下的确如此，味儿都溢出屏幕了，很对胃口，感谢楼主，过年就指着这个和那个终嫣莉莉丝2了
+
