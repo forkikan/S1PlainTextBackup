@@ -15438,3 +15438,46 @@ jz是邦邦不得不品的一环<img src="https://static.saraba1st.com/image/smi
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237239&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-21 12:23</a></blockquote>
 木头这个表情，好像是隔壁高达片场的哪个表情。。。
 
+
+*****
+
+####  cayon  
+##### 10187#       发表于 2025-1-21 14:44
+
+只要live开起来，就能证明祥子总帅的路线才是正确的，不过现在这样子怎么开live是个问题
+
+*****
+
+####  真空球镜  
+##### 10188#       发表于 2025-1-21 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238216&amp;ptid=2208921" target="_blank">Ferrari 发表于 2025-1-21 14:28</a>
+
+虽然但是
+
+预告里那个木板怎么看都太薄了，根本没法挂电视
+
+还是画错了吧（ ...</blockquote>
+视角问题
+
+*****
+
+####  单脚着地  
+##### 10189#       发表于 2025-1-21 14:50
+
+大象老师这看着像退队流龙王归来剧本<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 10190#       发表于 2025-1-21 14:53
+
+错误的，现在归来的是木头，祥子是总裁位
+
+马上要追妻火葬场了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
