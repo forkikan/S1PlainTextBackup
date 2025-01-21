@@ -6596,3 +6596,21 @@ kick back的mv和电锯人有什么联系吗
 
 说实话习惯律师的MV很抽象了，我觉得没有剧情参考意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 5049#       发表于 2025-1-22 03:08
+
+说实话习惯律师的MV很抽象了，我觉得没有剧情参考意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 5050#       发表于 2025-1-22 06:06
+
+不是你要结合歌词分析的话，那懂了爱的不应该是修司吗，喵安是渴望爱的那一个呀
+照歌词分析的话，那应该分析一下为什么这首歌的宣传画是麻球和喵安<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
