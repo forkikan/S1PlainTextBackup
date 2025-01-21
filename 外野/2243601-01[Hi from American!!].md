@@ -1627,3 +1627,56 @@ Hope you have a grand time here!
 
 权重很高的国际化论坛迫真
 
+
+*****
+
+####  GASEOUSSNAKE  
+##### 183#       发表于 2025-1-21 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234630&amp;ptid=2243601" target="_blank">y433wu 发表于 2025-1-21 04:27</a>
+假的不行
+
+---
+
+update, 在电脑上才看到被我屏蔽的引流坛友的解释。怪不得这英语一股假洋鬼子感。</blockquote>
+我帮他注册的
+
+—— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  何然  
+##### 184#       发表于 2025-1-21 08:19
+
+mate nihao
+
+tamen shuo zhongwen he shuo yingwen de dou buhao
+
+wo jueding zhezhong yixia
+
+
+*****
+
+####  URAGoodMan  
+##### 185#       发表于 2025-1-21 08:24
+
+在S1学中文怕不是学得一身阴阳怪气的毛病
+
+*****
+
+####  崩崩小圆帽  
+##### 186#       发表于 2025-1-21 08:25
+
+原来是你小子把鬼子引到这儿的？！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X910, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Sevenzerofive  
+##### 187#       发表于 2025-1-21 08:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
