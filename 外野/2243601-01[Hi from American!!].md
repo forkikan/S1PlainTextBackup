@@ -2135,3 +2135,33 @@ You think you can enter my domain? You are not prepared.
 
 本地论坛就是本地论坛，我觉得洋人还是不适合泥潭的
 
+
+*****
+
+####  烦死了  
+##### 239#       发表于 2025-1-21 12:16
+
+我没看懂他意思，2个东西不矛盾吧
+
+*****
+
+####  fenix1611  
+##### 240#       发表于 2025-1-21 12:16
+
+真的假的  还是说要启动很久停办的强者大赛了?
+
+
+*****
+
+####  祆天发育不良  
+##### 241#       发表于 2025-1-21 12:17
+
+给我干哪来了？这还是哈马斯论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/274.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 242#       发表于 2025-1-21 12:19
+
+怎么光速跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

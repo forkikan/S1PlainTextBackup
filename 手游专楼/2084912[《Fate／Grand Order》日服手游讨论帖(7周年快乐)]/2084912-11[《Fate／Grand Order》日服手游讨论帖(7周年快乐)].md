@@ -11284,3 +11284,16 @@ TMD 太狗了</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  芭德薇  
+##### 16148#       发表于 2025-1-21 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237107&amp;ptid=2084912" target="_blank">溯夜 发表于 2025-1-21 12:10</a>
+
+这俩算联动吧我的意思是你go原创
+
+论坛助手,iPhone</blockquote>
+去年去掉联动一共就五个新角色，为什么还要在意国籍……
+

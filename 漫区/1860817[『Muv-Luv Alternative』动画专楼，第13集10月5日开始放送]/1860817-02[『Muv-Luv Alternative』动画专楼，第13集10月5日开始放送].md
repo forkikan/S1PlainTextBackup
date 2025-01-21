@@ -58,3 +58,37 @@
 
 认清现实，放弃对这批老右棍的幻想
 
+
+*****
+
+####  牙狼GARO  
+##### 2326#       发表于 2025-1-21 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67234255&amp;ptid=1860817" target="_blank">jojog 发表于 2025-1-21 00:11</a>
+其实看muvluv这样说实话总有一个想法
+
+如果当年吉冈宗纪大笔一挥把中国相关的设定给改了，然后与时俱进直接 ...</blockquote>
+他如果能正确认识老钟的话，beta就不敢选青藏做一号登录点了，还没来及点出光线级就得被摁死
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  创始’’’天翔  
+##### 2327#       发表于 2025-1-21 09:22
+
+<blockquote>jojog 发表于 2025-1-21 00:11
+其实看muvluv这样说实话总有一个想法
+
+如果当年吉冈宗纪大笔一挥把中国相关的设定给改了，然后与时俱进直接 ...</blockquote>
+不阴湿那还是鸡枞吗
+
+*****
+
+####  妄想中毒  
+##### 2328#       发表于 2025-1-21 12:22
+
+ 本帖最后由 妄想中毒 于 2025-1-21 12:23 编辑 
+
+muv第一部可是03年的游戏，当年谁也不会想到20年后东大已经发展到能和西大五五开的地步吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
