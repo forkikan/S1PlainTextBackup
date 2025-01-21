@@ -15429,3 +15429,12 @@ jz是邦邦不得不品的一环<img src="https://static.saraba1st.com/image/smi
 
 卡牌的角色排位可是初睦海喵祥，团队地位不言而喻<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 10186#       发表于 2025-1-21 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237239&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-21 12:23</a></blockquote>
+木头这个表情，好像是隔壁高达片场的哪个表情。。。
+
