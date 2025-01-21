@@ -77,3 +77,29 @@ fsr是只有窗口化，插帧的话只要不是全屏，无边框和满屏窗�
 
 可能是你之前没注意看
 
+
+*****
+
+####  寻找无双  
+##### 64#       发表于 2025-1-21 15:08
+
+最近一两年感觉有点看不清屏幕了，悲
+
+请问玩老gal（腐姬、鬼畜王兰斯）看老番（犬夜叉、黑暗圣经）最好的方案是什么？
+
+
+*****
+
+####  慕容断月  
+##### 65#       发表于 2025-1-21 15:16
+
+ 本帖最后由 慕容断月 于 2025-1-21 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238505&amp;ptid=2238299" target="_blank">寻找无双 发表于 2025-1-21 15:08</a>
+
+最近一两年感觉有点看不清屏幕了，悲
+
+请问玩老gal（腐姬、鬼畜王兰斯）看老番（犬夜叉、黑暗圣经）最好的方 ...</blockquote>
+窗口化（属性里调dpi缩放为“应用程序”），然后magpie用galgame吧那个现成调教好的版本，至少vgneo效果很不错（分辨率640*480），别的没测，差不多同时期的baldr force exe我用其他的方案
+
+可以看这里：[https://github.com/Blinue/Magpie/discussions/250](https://github.com/Blinue/Magpie/discussions/250)
+

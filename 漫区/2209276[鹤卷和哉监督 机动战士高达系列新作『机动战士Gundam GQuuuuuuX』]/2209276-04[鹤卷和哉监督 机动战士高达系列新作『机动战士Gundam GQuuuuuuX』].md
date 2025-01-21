@@ -4630,3 +4630,19 @@ hg封绘吗<img src="https://p.sda1.dev/21/b12810460fee981bf6348c86616a2ccb/imag
 hg封绘吗</blockquote>
 电影的入场特典卡牌
 
+
+*****
+
+####  猪突猛进R  
+##### 4866#       发表于 2025-1-21 15:06
+
+红高达越看越像初号机。
+
+*****
+
+####  Gysumitka  
+##### 4867#       发表于 2025-1-21 15:08
+
+<img src="https://p.sda1.dev/21/ad44e83e9786efadd49d1625dccc983c/image.jpg" referrerpolicy="no-referrer">
+[@chakichakichaki](https://x.com/chakichakichaki/status/1881494393359859964?t=osgBX4Z_i5fZZmrZqqWRDA&amp;s=19)
+
