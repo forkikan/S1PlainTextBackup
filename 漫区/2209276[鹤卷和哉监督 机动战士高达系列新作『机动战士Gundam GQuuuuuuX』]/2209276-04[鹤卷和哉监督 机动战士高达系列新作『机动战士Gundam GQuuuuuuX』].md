@@ -6579,3 +6579,12 @@ kirakira的正体是光头</blockquote>
 歌词和原剧关不关联尚且有待商榷，但是MV……按照我听了六七年老八的歌的经验，九成九和剧情半点关系没有 ...</blockquote>
 翻了下评论区，歌迷都开始担心他精神状态了（
 
+
+*****
+
+####  Sokukei  
+##### 5047#       发表于 2025-1-22 02:01
+
+歌词有点联系多少有可能，但mv就……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+kick back的mv和电锯人有什么联系吗
+
