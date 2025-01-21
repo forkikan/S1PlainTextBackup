@@ -6588,3 +6588,11 @@ kirakira的正体是光头</blockquote>
 歌词有点联系多少有可能，但mv就……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 kick back的mv和电锯人有什么联系吗
 
+
+*****
+
+####  岸浪白野  
+##### 5048#       发表于 2025-1-22 03:08
+
+说实话习惯律师的MV很抽象了，我觉得没有剧情参考意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
