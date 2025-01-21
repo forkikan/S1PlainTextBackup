@@ -15979,3 +15979,26 @@ mujica其实也就出道了两三个月，mortis创造的蒸蒸日上的局面�
 
 而且如果以后睦只是别人的观点就永远尘封自己的才能就太可怜了。他人认为睦做xx做得好是因为像父母or得益于父母，睦就永远不做xx，那睦就只能一直活在这种观点的笼罩下，努力把和父母相关的东西（无论好坏）从人生中切除出去。
 
+
+*****
+
+####  玖羽  
+##### 10241#       发表于 2025-1-21 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240428&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-21 19:02</a>
+
+我觉得会②为主，①为辅，③是到时候的表象，喵梦那句“昨天还很喜欢，今天就厌烦了”是肯定要回收的 ...</blockquote>
+我认为Ave Mujica后面肯定要经历这个阶段。
+
+下面这位女主角走出低谷之后，贡献了全系列我第二喜欢的歌。
+
+<img src="https://img.saraba1st.com/forum/202501/21/193458hr4vq8a64ejre9es.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (300.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 19:34 上传
+
+（还都是被人当成人偶制造出来的偶像）
+
