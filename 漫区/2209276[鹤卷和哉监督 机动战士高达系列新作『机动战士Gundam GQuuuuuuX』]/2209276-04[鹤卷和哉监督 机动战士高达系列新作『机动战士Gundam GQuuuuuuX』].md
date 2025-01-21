@@ -4859,3 +4859,33 @@ pv那卡从布满nt花纹的地方走出来的镜头别说真的挺有那感觉�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  刺客ares  
+##### 4885#       发表于 2025-1-21 19:17
+
+修司真是主UC人或者高维度人的话，他逮人闻头发这个动作也好解释了，把玛秋的头想象成一朵玫瑰花，他的动作就是从花朵上方闻玫瑰花的香味
+
+他这么干就是在找“沙仑玫瑰”，找他回去的机票
+
+*****
+
+####  gamedreamer  
+##### 4886#       发表于 2025-1-21 19:17
+
+你说找人我可以理解，找回去的机票多少有点极端了
+我觉得在明确三人关系性这个情况下，前面一人要回去多少有点不自然<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Gysumitka  
+##### 4887#       发表于 2025-1-21 19:21
+
+ 本帖最后由 Gysumitka 于 2025-1-21 19:22 编辑 
+
+油/管 [Plazma mv链接](https://youtu.be/fp3F6TqBsAU)
+
