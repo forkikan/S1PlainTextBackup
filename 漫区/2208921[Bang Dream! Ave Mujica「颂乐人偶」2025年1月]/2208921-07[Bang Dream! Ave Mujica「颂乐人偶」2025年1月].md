@@ -15035,3 +15035,120 @@ mortis: 祝你幸福
 主导戏剧的莫姐难道这集就落幕了？还是别有所指</blockquote>
 有点怀疑是指大祥自己的戏剧落幕了，可能这集结束开始mujica的发展就不在她的预想内、她对整个团队失去控制力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 10157#       发表于 2025-1-21 11:48
+
+想起祥子说睦“以前会笑”
+
+有没有可能睦疯子才是主人格，睦头人是她后来戴上的假面具，她现在不用演睦头人了，所以才说“戏已经演完了”？
+
+*****
+
+####  AveMujica  
+##### 10158#         楼主| 发表于 2025-1-21 11:48
+
+#4 Acta est fabula.
+
+<img src="https://img.saraba1st.com/forum/202501/21/114559xug6uokkozllvu2t.png" referrerpolicy="no-referrer">
+
+<strong>BDAVE_ep04_Haishin_Harding_ARI_241025_00001-1024x576.png</strong> (644.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/114558yj5a54fjjzjkk27p.png" referrerpolicy="no-referrer">
+
+<strong>BDAVE_ep04_Haishin_Harding_ARI_241025.mp4.10_08_23_09.静止画030-1024x576.png</strong> (672.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/114559tqwzlii9vswwk0sz.png" referrerpolicy="no-referrer">
+
+<strong>BDAVE_ep04_Haishin_Harding_ARI_241025_00000-1024x576.png</strong> (863.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/114650wbaageai4z9e1wbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:46 上传
+
+表に裏にと活躍する睦のおかげで、高まるAve Mujicaの話題性。
+
+以前の不和は見る影もなく、和気藹々のメンバー。
+
+新たな魅力を放つAve Mujicaに、祥子は――。
+
+凭借睦在台前幕后积极活跃的表现，Ave Mujica的话题度不断提升。
+
+曾经的不和早已不复存在，成员们其乐融融。
+
+展现出全新魅力的Ave Mujica，而祥子则——。
+
+脚本：後藤 みどり
+
+絵コンテ：森田 紘吏
+
+演出：森田 紘吏
+
+CGディレクター：遠藤 求
+
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://www.bilibili.com/opus/1024743995292516436](https://www.bilibili.com/opus/1024743995292516436)
+
+第四张睦是哔哩哔哩特供
+
+*****
+
+####  新HGCG  
+##### 10159#       发表于 2025-1-21 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236854&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-1-21 11:48</a>
+
+#4 Acta est fabula.</blockquote>
+居然有B站特供预告图，日本都看不到
+
+<img src="https://img.saraba1st.com/forum/202501/21/114933pjofuoohhcwj0fiu.jpg" referrerpolicy="no-referrer">
+
+<strong>TIM图片20190606201734.jpg</strong> (33.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:49 上传
+
+
+*****
+
+####  嵇翱u  
+##### 10160#       发表于 2025-1-21 11:50
+
+第四张图，素世化身狂热粉在家看一晚上睦节目，想看出怎么变成开朗睦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 10161#       发表于 2025-1-21 11:52
+
+看下面有福尔摩斯<img src="https://p.sda1.dev/21/df7df9e91c5e338f58bba076a3ff1ca4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Tienx  
+##### 10162#       发表于 2025-1-21 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">开朗睦也好
+
