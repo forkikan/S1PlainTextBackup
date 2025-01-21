@@ -4654,3 +4654,19 @@ hg封绘吗</blockquote>
 
 与其说是初号机不如说是最终号机
 
+
+*****
+
+####  岸浪白野  
+##### 4869#       发表于 2025-1-21 15:49
+
+[X 上的 れぷりろ＠夏コミお疲れ様でした：“わかった！ [url]https://t.co/79uBrRIuMS](https://x.com/reprilo_channel/status/1881297194428542994)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/21/154911iix7rg69c61rwiw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 15:49 上传
+
