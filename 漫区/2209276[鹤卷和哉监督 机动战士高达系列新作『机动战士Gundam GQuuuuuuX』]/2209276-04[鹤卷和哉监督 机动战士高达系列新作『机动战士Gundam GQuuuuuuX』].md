@@ -4993,3 +4993,65 @@ F.奇迹无法复现，牢修从一开始就不可能回去
 
 看设定也是个学院的首席天才
 
+
+*****
+
+####  YU_JI  
+##### 4896#       发表于 2025-1-21 20:19
+
+啥都不缺就缺了nt一激灵的年轻人吧，side6宙域偶遇红色敢达，nt能力强如怪物，拼尽全力无法战胜（）
+
+*****
+
+####  jojonathan  
+##### 4897#       发表于 2025-1-21 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240904&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 20:13</a>
+夏利亚手下gq6ux的前驾驶员会是个什么定位呢？
+
+看设定也是个学院的首席天才 ...</blockquote>
+肯定是负责吃瘪的<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gundammarkⅡ  
+##### 4898#       发表于 2025-1-21 20:22
+
+ 本帖最后由 gundammarkⅡ 于 2025-1-21 20:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240729&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-21 19:46</a>
+也不是没有，高达之前有个漫画高达exa就是穿越各个高达世界，之前在高达吧看过生肉
+
+ ...</blockquote>
+严格来说这部EXA不是不同世界之间的穿越，因为在EXA和续作EXA VS世界观中，主世界以外的高达世界都是主世界的卫星数据库（即里面说的GA数据）里的数据演算出来的世界，登场的角色甚至只有两个是真正的人类，其余都是数据模拟人
+
+本身EXA两部漫画是高达VS游戏系列的中 Extreme Vs. Maxi Boost
+<img src="https://p.sda1.dev/21/d935994e56502dd9c1f3585571e973d5/image.jpg" referrerpolicy="no-referrer">
+和 Extreme Vs. Maxi Boost 
+<img src="https://p.sda1.dev/21/d0c1b3dc715104ef9652759fd6665089/image.jpg" referrerpolicy="no-referrer">
+的联动作品（但EXA VS的人设是鸨田自己搞的，个人觉得没游戏人设好看）
+
+EXA全33话都有熟肉https://www.manhuaren.com/manhua-gaoda-exa/
+EXA VS就暂时找不到了
+
+PS：现在的手游engage也有类似的数据库设定才有了集体打天使之轮的原创共演剧情
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YU_JI  
+##### 4899#       发表于 2025-1-21 20:23
+
+【【MV】 机动战士高达主题曲米津玄师《Plazma》-哔哩哔哩】 https://b23.tv/rxqiPKb
+
+*****
+
+####  刺客ares  
+##### 4900#       发表于 2025-1-21 20:25
+
+<blockquote>0aleph37 发表于 2025-1-21 20:13
+夏利亚手下gq6ux的前驾驶员会是个什么定位呢？
+
+看设定也是个学院的首席天才 ...</blockquote>
+应该是本作2000次男定位，平时负责吃瘪，关键时刻给主角团助攻的，好像夏利亚旁边那个小姐姐副官还喜欢他
+
