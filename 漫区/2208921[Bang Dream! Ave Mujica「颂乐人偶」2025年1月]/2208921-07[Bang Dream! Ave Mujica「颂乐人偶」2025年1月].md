@@ -15410,3 +15410,22 @@ jz是邦邦不得不品的一环<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://wx2.sinaimg.cn/large/7c136a67gy1hxscfz6y3fj211o0teq80.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ferrari  
+##### 10184#       发表于 2025-1-21 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236959&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-21 11:57</a>
+真的嗎，那看來爽姐家臨時把電視牆的木板厚度削了好大一塊呢</blockquote>
+虽然但是
+预告里那个木板怎么看都太薄了，根本没法挂电视
+还是画错了吧（
+
+*****
+
+####  悲伤颂偶  
+##### 10185#       发表于 2025-1-21 14:29
+
+卡牌的角色排位可是初睦海喵祥，团队地位不言而喻<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
