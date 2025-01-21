@@ -15698,3 +15698,27 @@ RE0有原作小说的还要剧透的吗
 
 都同归于尽了，那肯定是死啊，都说无畏死亡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然不太可能
 
+
+*****
+
+####  天空塔书记官  
+##### 10213#       发表于 2025-1-21 18:00
+
+不是，还不太可能呢，东京偶像是传奇是吧，那演唱会的吉他谁来弹啊，鬼魂吗
+
+能不能尊重一下邦邦的世界观啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  达达葱2  
+##### 10214#       发表于 2025-1-21 18:05
+
+我知道了
+
+OP那个表情狰狞的才是黑白同归于尽后出现的真正放飞自我的第三人格！
+
