@@ -15656,3 +15656,20 @@ RE0有原作小说的还要剧透的吗
 我看了下之前他有过re0的剧透 ...</blockquote>
 说说哪儿有剧透就行了，别描述细节<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ein·Dalton  
+##### 10208#       发表于 2025-1-21 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238085&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-1-21 14:07</a></blockquote>
+长崎素食应该用惊世智慧头衔<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">
+两个美用的飞物，单环双环打不过大莫老师强歼大队一点。
+
+*****
+
+####  whzfjd  
+##### 10209#       发表于 2025-1-21 17:28
+
+我觉得大的就是木头跟老莫同归于尽，祥子崩了
+

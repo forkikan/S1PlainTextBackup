@@ -4739,3 +4739,11 @@ GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
 少了一张图</blockquote>
 楼中楼没看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 补上了
 
+
+*****
+
+####  YU_JI  
+##### 4875#       发表于 2025-1-21 17:28
+
+今天票房怎么样？夏亚pv有作用了吗（）
+
