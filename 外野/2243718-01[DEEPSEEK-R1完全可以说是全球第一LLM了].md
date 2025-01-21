@@ -793,3 +793,30 @@ DSV3没有原生多模态能力
 
 之前v1的时候用它帮我写代码就感觉已经比我之前用gpt要好用了
 
+
+*****
+
+####  Reinhold  
+##### 71#       发表于 2025-1-22 01:15
+
+体感还是chatgpt对小白友好点儿。日常用ai也就查文献和写八股，偶尔写点代码。kimi在这一块做得倒是不错，不过看着推广力度也挺大，到处都是广告<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  RookieTnT  
+##### 72#       发表于 2025-1-22 01:15
+
+写代码不如去白嫖 字节的 Trae. 免费标配Claude 3.5sonnet 和 GPT-4o. 同时还有对标Cursor 的Agent 功能. 搓点小项目太爽了
+
+
+*****
+
+####  RookieTnT  
+##### 73#       发表于 2025-1-22 01:22
+
+不过 DeepSeek 真的狠. 用R1蒸馏其他款开源模型. 即便是 1.5B 参数的 Qwen ，都可以在多项测试中把 GPT-4o 按在地上摩擦.
+
+[https://huggingface.co/deepseek-ai](https://huggingface.co/deepseek-ai)
+
