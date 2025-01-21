@@ -16075,3 +16075,23 @@ mujica其实也就出道了两三个月，mortis创造的蒸蒸日上的局面�
 
 b站有对应视频的，挺有意思
 
+
+*****
+
+####  御景  
+##### 10250#       发表于 2025-1-22 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240277&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-1-21 18:40</a>
+
+动画是不是从来没暗示过🐘的长相，那估计是一般了
+
+整个鸡团应该是睦&gt;初华&gt;海玲≥键帽&gt;🐘
+
+没流量没脸蛋确实 ...</blockquote><blockquote>陶矢 发表于 2025-1-21 19:09
+
+第一集刚摘下面具的时候不就知道谁是底边了吗? 直接让观众排名就是这个样子的呀
+
+怪不得祥子死活不让摘面具 ...</blockquote>第二集明确说过喵梦流量最低，都能闭着眼睛瞎说了。
+
+先画靶后射箭也麻烦用点脑子。
+
