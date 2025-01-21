@@ -4938,3 +4938,40 @@ F.奇迹无法复现，牢修从一开始就不可能回去
 
 如果是飞跃颠峰路线就是男的死了，女的驾驶机器人合体
 
+
+*****
+
+####  g救世主高达  
+##### 4892#       发表于 2025-1-21 19:46
+
+<blockquote>猪突猛进R 发表于 2025-1-21 18:52
+前半截多窗框，后半截多个窗户，有点形似而已。
+
+反正挂“高达”名的目前还没有穿越的，当然不排除本作吃螃 ...</blockquote>
+也不是没有，高达之前有个漫画高达exa就是穿越各个高达世界，之前在高达吧看过生肉
+
+<img src="https://img.saraba1st.com/forum/202501/21/194632ck0hzlqww575l952.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250121_194436_com_hihonor_baidu_browser_SwanAppActivity.jpg</strong> (255.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202501/21/194632j44snya2oewasvj2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250121_194442_com_hihonor_baidu_browser_SwanAppActivity.jpg</strong> (235.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 19:46 上传
+
+*****
+
+####  whzfjd  
+##### 4893#       发表于 2025-1-21 19:47
+
+<blockquote>jojonathan 发表于 2025-1-21 18:21
+看到了非常狂野的假药（内有剧透）【【中日字幕】我解开了高达GQuuuuuuX所有谜团(迫真) 新PV中的证据/拉拉 ...</blockquote>
+🌿啊这不是水魔时的老熟人吗
+
