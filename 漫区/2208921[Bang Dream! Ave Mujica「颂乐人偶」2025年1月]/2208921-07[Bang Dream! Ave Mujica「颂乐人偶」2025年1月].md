@@ -15864,3 +15864,67 @@ A团现在就是在无节制地刷信用卡，现在的繁盛只是小女孩的�
 
 <img src="https://p.sda1.dev/21/d2f7f3d36cdda7e835b35aadd2d98a54/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KLHgg  
+##### 10228#       发表于 2025-1-21 19:24
+
+莫提斯的诞生花了两集铺垫，一集就被带走不太可能
+
+*****
+
+####  poiqwe  
+##### 10229#       发表于 2025-1-21 19:26
+
+下集这是要一转综艺了吗，致敬偶像大师无印第四集
+
+*****
+
+####  DARK_HGCG  
+##### 10230#       发表于 2025-1-21 19:26
+
+睦疯子的能力会不会是模仿睦头人以外的C团全员：学长崎素世装温柔、学立希威吓、学灯捡石头，最后学祥子当着祥子本人的面"你脑子里只有你自己呢"。然后OP里那个可怕笑容的才是什么都不学的时候的状态
+
+*****
+
+####  丹德里恩  
+##### 10231#       发表于 2025-1-21 19:28
+
+奥本海睦是谁起的外号，我笑死了
+
+*****
+
+####  akiomn  
+##### 10232#       发表于 2025-1-21 19:29
+
+莫提斯起码要2集甚至只是暂时下线带中后期才彻底解决掉，不然过于丢人了
+
+
+*****
+
+####  厚乳果珍爽  
+##### 10233#       发表于 2025-1-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240408&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-21 18:59</a>
+
+虽然但是母鸡卡摘面具之前也不太像纯搞音乐的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我问你，soundhorizon是讲故事的还是搞音乐的？
+
+*****
+
+####  太二EricGuo  
+##### 10234#       发表于 2025-1-21 19:32
+
+我觉得mortis会和睦合二为一
+
+*****
+
+####  玖羽  
+##### 10235#       发表于 2025-1-21 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240637&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-1-21 19:32</a>
+
+我觉得mortis会和睦合二为一</blockquote>
+我从一开始就说结局是融合
+

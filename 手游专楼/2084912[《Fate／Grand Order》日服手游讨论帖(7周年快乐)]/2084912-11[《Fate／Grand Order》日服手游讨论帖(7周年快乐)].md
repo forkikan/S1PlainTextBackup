@@ -11333,3 +11333,13 @@ TMD 太狗了</blockquote>
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  angelooo  
+##### 16153#       发表于 2025-1-21 19:31
+
+鸡爪手是真的会传染笑喷了
+
+以及我觉得君主蛇比她sao多了
+
