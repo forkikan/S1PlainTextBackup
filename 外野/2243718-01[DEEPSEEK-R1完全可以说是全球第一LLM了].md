@@ -665,3 +665,14 @@ reasoning模型
 —— 来自 鹅球 v3. ...</blockquote>
 R1的prompt following能力特别强，你让他天马行空他能写出你难以想象的内容，你跟他玩ERP可以玩很大
 
+
+*****
+
+####  windfree81  
+##### 59#       发表于 2025-1-21 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239808&amp;ptid=2243718" target="_blank">弗兰肯斯坦 发表于 2025-1-21 17:34</a>
+
+说实测的这玩意是国内的模型啊……</blockquote>
+就是国内的
+
