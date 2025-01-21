@@ -5055,3 +5055,25 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
 看设定也是个学院的首席天才 ...</blockquote>
 应该是本作2000次男定位，平时负责吃瘪，关键时刻给主角团助攻的，好像夏利亚旁边那个小姐姐副官还喜欢他
 
+
+*****
+
+####  0aleph37  
+##### 4901#       发表于 2025-1-21 20:30
+
+ 本帖最后由 0aleph37 于 2025-1-21 20:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240983&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-21 20:25</a>
+
+应该是本作2000次男定位，平时负责吃瘪，关键时刻给主角团助攻的，好像夏利亚旁边那个小姐姐副官还喜欢他 ...</blockquote>
+这位？
+
+<img src="https://img.saraba1st.com/forum/202501/21/202954z17rf76856xzri73.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (717.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 20:29 上传
+
+感觉不相信NT也是未来会展开讲的点
+

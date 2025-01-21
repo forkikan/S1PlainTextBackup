@@ -3017,3 +3017,21 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 ※本次演出现场不设周边贩售，公演主题物贩将以快闪店形式展开，相关细则详情与观演指南将会另行公开，请持续留意官方最新资讯。
 
+
+*****
+
+####  ReginaldMorgan  
+##### 26868#       发表于 2025-1-21 20:24
+
+1680的后区微妙不爽<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Milarvoz  
+##### 26869#       发表于 2025-1-21 20:30
+
+1380大家都嫌弃啊，那我就蹲1380了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
