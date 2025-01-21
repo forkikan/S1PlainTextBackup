@@ -2127,3 +2127,11 @@ You think you can enter my domain? You are not prepared.
 
 泥潭虽自比粪海狂蛆。真正的光谱却是建制。
 
+
+*****
+
+####  crystalspire  
+##### 238#       发表于 2025-1-21 12:09
+
+本地论坛就是本地论坛，我觉得洋人还是不适合泥潭的
+

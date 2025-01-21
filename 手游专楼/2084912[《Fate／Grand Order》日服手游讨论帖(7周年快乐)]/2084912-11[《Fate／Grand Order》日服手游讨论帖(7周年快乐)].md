@@ -11272,3 +11272,15 @@ TMD 太狗了</blockquote>
 论坛助手,iPhone ...</blockquote>
 24年第一个活动不就实装了两个史实日本人？
 
+
+*****
+
+####  溯夜  
+##### 16147#       发表于 2025-1-21 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236789&amp;ptid=2084912" target="_blank">芭德薇 发表于 2025-1-21 11:43</a>
+24年第一个活动不就实装了两个史实日本人？</blockquote>
+这俩算联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的意思是你go原创
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
