@@ -2714,3 +2714,17 @@ sayo做恶角的时候可没有这么多撕逼，反而越恶人气越高，因�
 
 而且很多人代入的是勤奋打工人vs画大饼谜语人上司
 
+
+*****
+
+####  影伴光生  
+##### 256#       发表于 2025-1-21 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239199&amp;ptid=2242398" target="_blank">old.just 发表于 2025-1-21 16:26</a>
+楼里不少用是否能包好饺子作为好坏标准有点奇怪，是把"包饺子"理解成好词了么？~~
+
+当然因为我是纯动画党， ...</blockquote>
+因为有现实中的乐队企划，就算是不可预测的原创番，结局也得包饺子，但现在的剧情又有点太猛了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

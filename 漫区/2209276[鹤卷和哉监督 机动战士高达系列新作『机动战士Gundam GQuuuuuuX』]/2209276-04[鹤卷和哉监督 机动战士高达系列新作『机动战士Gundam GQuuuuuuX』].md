@@ -4686,3 +4686,22 @@ hg封绘吗</blockquote>
 
 2025-1-21 15:58 上传
 
+
+*****
+
+####  gundammarkⅡ  
+##### 4871#       发表于 2025-1-21 16:43
+
+ 本帖最后由 gundammarkⅡ 于 2025-1-21 16:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67237795&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-21 13:33</a>
+78是七台还是八台？编号只到7吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实从最早的MSV就规划了8款RX-78
+<img src="https://p.sda1.dev/21/36bd31ac93b89b9bcdc721b9b5a14520/image.jpg" referrerpolicy="no-referrer">
+之所以说款而不是台，是因为这个X“号机”的名称同时又会指规格，像MSZ-006-3的Z Zeta高达3号机就有3台，白色独角兽是3号机，红蛇黄狼是3号机修改型
+回到RX-78，RX-78-1规格一开始做了2台（后来的设定集又有说是1台），然后新造RX-78-2并把已有RX-78-1改造成RX-78-2，到夏亚袭击前3台RX-78都是RX-78-2规格，再到后来查布罗回收白色基地上的备件，重新组装+磁化+低可视化后才是RX-78-3规格（MA设定集里还把卡版78造型定义为78-3，而阿姆罗的2号机+磁化后也是78-3规格但资料仍保留78-2名称，通过这样就把三旗色卡版78造型纳进去）
+再加上FA系的素体，先完成78-5规格在此基础上改进散热而成78-4等等这些设定，存心有意搞混乱好方便往后出一年战争期间新高达（问就是战时资料丢失混乱）
+
+GTO和这次庵野新高达，对78规格的设定上都与与原0079不同
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
