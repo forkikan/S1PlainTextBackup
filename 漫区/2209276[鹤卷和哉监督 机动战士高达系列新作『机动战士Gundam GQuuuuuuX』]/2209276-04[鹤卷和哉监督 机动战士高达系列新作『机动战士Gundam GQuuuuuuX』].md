@@ -5930,3 +5930,91 @@ PV1啦啦啦那首的歌名
 简单易懂的名字，是麻球印象曲？</blockquote>
 要按考据哥的说法，这首是拉拉角色曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FF0000  
+##### 4984#       发表于 2025-1-21 23:29
+
+喵安想开红高达也不是不可能，比如她和夏亚有着更深的关系？正好她的身份也完全是一团谜
+
+*****
+
+####  Gysumitka  
+##### 4985#       发表于 2025-1-21 23:29
+
+拉拉又不是殖民地长大的
+
+*****
+
+####  童话与星空  
+##### 4986#       发表于 2025-1-21 23:29
+
+要是牢修真是别的宇宙穿越来的，那可以在中期让塞可谬再炸一次把牢修送走（但把红高留下），然后主角团战力不足喵安顶上，夏利亚以第二次穿越为契机研究塞可谬穿越机制，最后决战时把牢修和夏亚拉回来一起作战
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜雨秋水  
+##### 4987#       发表于 2025-1-21 23:30
+
+你们这么喜欢cp，cp到时候叫啥？女主组我提一个喵球
+
+
+*****
+
+####  Piano-Forest  
+##### 4988#         楼主| 发表于 2025-1-21 23:30
+
+【剧场版「机动战士高达 GQuuuuuuX」原声集专辑 (先行版)】 
+[https://b23.tv/rlz2CGi](https://b23.tv/rlz2CGi)
+
+*****
+
+####  双菜  
+##### 4989#       发表于 2025-1-21 23:31
+
+真要上机不一定非得红高达啊，当初不是有八台老爷机吗，越古越强
+
+*****
+
+####  Gysumitka  
+##### 4990#       发表于 2025-1-21 23:31
+
+这么穿越岂不是很容易烂，季番别折腾了
+
+*****
+
+####  jojonathan  
+##### 4991#       发表于 2025-1-21 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242212&amp;ptid=2209276" target="_blank">夜雨秋水 发表于 2025-1-21 23:30</a>
+你们这么喜欢cp，cp到时候叫啥？女主组我提一个喵球</blockquote>
+马修和喵修<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 4992#       发表于 2025-1-21 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242203&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-21 23:29</a>
+
+拉拉又不是殖民地长大的</blockquote>
+但是拉拉初次出场是在宇宙殖民地
+
+而且就是这次剧中的side6
+
+不过我觉得就是在唱拟声词，不太可能真是唱啦啦就指代拉拉了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+真有拉拉的话，她一出来新入坑的都得问一句这谁啊
+
+*****
+
+####  FF0000  
+##### 4993#       发表于 2025-1-21 23:34
+
+修司中期便当的概率不大，声优、周边和访谈里明牌三人组，也得到后期才会死（不排除中期被夺舍或黑化的可能）
+
+他的结局按照目前最流行的穿越说，大概率是像flcl里的晴子，乱入到麻球的生活中，把别人的日常搅得翻天覆地，最后又独自离开
+
