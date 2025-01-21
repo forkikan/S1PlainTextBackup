@@ -5300,3 +5300,75 @@ PS：现在的手游engage也有类似的数据库设定才有了集体打天使
  我看说GQX的Ω塞克谬启动的时候驾驶舱还会伸出手来？泥楼看过的有印象吗？ ...</blockquote>
 辅助操作杆吧
 
+
+*****
+
+####  YU_JI  
+##### 4922#       发表于 2025-1-21 22:07
+
+<blockquote>gamedreamer 发表于 2025-1-21 22:00
+看来大家都不觉得牢修能以正常人的形态存活在该番剧的下半部分
+
+—— 来自 OPPO PDNM00, Android 12上的 S1 ...</blockquote>
+主视觉图都没有牢修这事确实很难让人安心
+
+<img src="https://img.saraba1st.com/forum/202501/21/220645vh7o5e8pngb8oppb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3206.jpeg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 22:06 上传
+
+*****
+
+####  oi99o  
+##### 4923#       发表于 2025-1-21 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241511&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 21:49</a>
+
+我看说GQX的Ω塞克谬启动的时候驾驶舱还会伸出手来？泥楼看过的有印象吗？ ...</blockquote>
+
+这样的吧，左边两个是启动前后的驾驶舱对比，可以看出来是右边的手型操纵杆伸了进去
+
+<img src="https://img.saraba1st.com/forum/202501/21/220613azla39zg3crwfq2c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 22:06 上传
+
+
+*****
+
+####  yevvet  
+##### 4924#       发表于 2025-1-21 22:10
+
+排在二番的喵安现在跟个路人似的。修司这么重要的定位却在三番，而且渚薰味太重了。不能小看刚开播就被冠上“牢”字辈的含金量。修司变成宇宙男鬼，红高达给喵安，很怕这种剧情
+
+*****
+
+####  jojonathan  
+##### 4925#       发表于 2025-1-21 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241637&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-21 22:07</a>
+这样的吧，左边两个是启动前后的驾驶舱对比，可以看出来是右边的手型操纵杆伸了进去
+
+ ...</blockquote>
+坏了 怎么感觉有湿件的气息<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 4926#       发表于 2025-1-21 22:14
+
+尼娅安大概率是不上机定位，红高和牢修各种神秘行为也绑得很死
+
+*****
+
+####  yevvet  
+##### 4927#       发表于 2025-1-21 22:14
+
+最关键的是主题曲还有插曲全是讲女女关系性的，我看到那歌词就害怕
+
