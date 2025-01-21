@@ -820,3 +820,13 @@ DSV3没有原生多模态能力
 
 [https://huggingface.co/deepseek-ai](https://huggingface.co/deepseek-ai)
 
+
+*****
+
+####  coldhot3  
+##### 74#       发表于 2025-1-22 07:43
+
+<blockquote>chronicle 发表于 2025-1-21 17:29
+实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
+太他妈的恐怖了，有一种不配活着的感觉
+
