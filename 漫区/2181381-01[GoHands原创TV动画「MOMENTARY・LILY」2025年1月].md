@@ -180,3 +180,11 @@ op里的战斗画面是不是正片里都有，资源有点不足
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好吵，眼睛好疼，弃坑了
 
+
+*****
+
+####  Zendless  
+##### 131#       发表于 2025-1-21 08:58
+
+她们分头开怪之前的台词让我以为金毛女主有残机，结果只是游戏脑的台词罢了。
+

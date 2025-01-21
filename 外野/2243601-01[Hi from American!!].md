@@ -1833,3 +1833,49 @@ U have better to know that stage1st bbs is very close to the meaning of chinese 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">经典身份政治是吧，谁稀罕啊
 
+
+*****
+
+####  儛進  
+##### 204#       发表于 2025-1-21 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别老是给自己上标签，拿出作品来让大家瞧瞧，你左翼右翼的反鱿挺鱿谁在乎啊？
+
+*****
+
+####  素盏鸣尊  
+##### 205#       发表于 2025-1-21 08:58
+
+只有某一个共同厌恶对象是做不成朋友的。
+
+*****
+
+####  Indolencoma  
+##### 206#       发表于 2025-1-21 09:00
+
+Let's guess when you will be banned because of the keyboard politics.<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kgb007  
+##### 207#       发表于 2025-1-21 09:02
+
+吓跑了，散了吧
+
+
+*****
+
+####  島唄  
+##### 208#       发表于 2025-1-21 09:02
+
+兔刀乐兔刀乐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  藤林　杏  
+##### 209#       发表于 2025-1-21 09:04
+
+记得当年你坛也有这么一号人物，打造的形象是懂王幕后竞选团队的工作人员的人设的，好像消失很久了？
+
