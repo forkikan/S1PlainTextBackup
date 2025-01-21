@@ -4612,3 +4612,21 @@ gqx造出来的第一个梗是格拉汉姆终结者化沉进铁炉也太抽象�
 
 等周六的新特典了
 
+
+*****
+
+####  蕾洁之风  
+##### 4864#       发表于 2025-1-21 15:01
+
+hg封绘吗<img src="https://p.sda1.dev/21/b12810460fee981bf6348c86616a2ccb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adios85  
+##### 4865#       发表于 2025-1-21 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238446&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-1-21 15:01</a>
+
+hg封绘吗</blockquote>
+电影的入场特典卡牌
+
