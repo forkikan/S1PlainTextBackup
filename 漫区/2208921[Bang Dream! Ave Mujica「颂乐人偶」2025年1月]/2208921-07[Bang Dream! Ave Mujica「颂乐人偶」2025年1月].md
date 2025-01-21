@@ -15681,3 +15681,20 @@ RE0有原作小说的还要剧透的吗
 
 人格之间怎么同归于尽？
 
+
+*****
+
+####  天空塔书记官  
+##### 10211#       发表于 2025-1-21 17:53
+
+痴呆或者失忆 ? 这也太恨了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 10212#       发表于 2025-1-21 17:57
+
+都同归于尽了，那肯定是死啊，都说无畏死亡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然不太可能
+

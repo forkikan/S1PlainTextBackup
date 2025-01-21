@@ -527,3 +527,39 @@ GitHub的copilot用的是什么模型，我还有十个多月的会员</blockquo
 实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
 你自己去试试不就知道了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhanglei1943  
+##### 46#       发表于 2025-1-21 17:47
+
+甚至改MIT License了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈乔恩  
+##### 47#       发表于 2025-1-21 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238482&amp;ptid=2243718" target="_blank">斡旋专家 发表于 2025-1-21 15:06</a>
+
+卧槽，这个太牛逼了
+
+这玩意稍微调教一下可以直接做流体仿真，Claude3.5s是打死都学不会的</blockquote>
+请问这玩意有教程吗？我也很感兴趣，没玩过AI
+
+*****
+
+####  mimighost  
+##### 48#       发表于 2025-1-21 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239758&amp;ptid=2243718" target="_blank">chronicle 发表于 2025-1-21 17:29</a>
+
+实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
+reasoning模型
+
+刷分很屌，用处不咋行
+
+我还有o1 pro呢
+
+这种模型做数学题顶呱呱，但是思考时间过长，不爱用
+
