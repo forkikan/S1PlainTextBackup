@@ -458,3 +458,26 @@ TC的核心成员就3个人吧
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 微软不是索尼吧
 
+
+*****
+
+####  另外四分之三  
+##### 53#       发表于 2025-1-22 15:26
+
+一直都挺放心的，但现在觉得比得过盐2就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  thez  
+##### 54#       发表于 2025-1-22 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246014&amp;ptid=2243615" target="_blank">一个陆仁贾 发表于 2025-1-22 13:27</a>
+
+不是说索尼投资了吗，投资那么久了也不要回报，索尼真乃大善人
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+谣言
+

@@ -1104,3 +1104,16 @@ api实在是太便宜了，让我一点本地化部署的想法的都没有
 只想知道代码能力咋样，用了一圈感觉都不如gpt4，这个咋样了</blockquote>
 用很久了，和4o差不多的水平，远不如claude。
 
+
+*****
+
+####  stanzgy  
+##### 91#       发表于 2025-1-22 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246840&amp;ptid=2243718" target="_blank">faithlifer 发表于 2025-1-22 14:52</a>
+
+求问有什么方便易于新手使用的，浏览器接入deepseek的api方法吗刚部署好python，求一个链接谢谢
+
+—— 来 ...</blockquote>
+没看懂你想表达什么，如果你只是想在浏览器上和ai对话，可以直接 [https://chat.deepseek.com/](https://chat.deepseek.com/) 注册使用
+
