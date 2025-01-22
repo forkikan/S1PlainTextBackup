@@ -960,3 +960,15 @@ https://b23.tv/k9LyzXw
 她哪里知道喵梦打鼓厉害</blockquote>
 b站的鼓手说有眼力的看个几秒十几秒就够了的
 
+
+*****
+
+####  ads147147  
+##### 10455#       发表于 2025-1-23 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251289&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-23 01:41</a>
+所以现实里要去武道馆开演唱会需要什么条件呢，有钱有档期就行吗？</blockquote>
+这些地方当然是钱够就行，主要是如果你观众动员数如果坐不满场馆，开这个场子不就是自打脸么，除非有特定纪念意义。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
