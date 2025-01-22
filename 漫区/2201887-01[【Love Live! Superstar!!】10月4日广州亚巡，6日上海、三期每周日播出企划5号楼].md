@@ -14826,3 +14826,15 @@ Liyuu出道5周年！今年5周年 live还有直播<img src="https://static.sara
 
 希望能换个摄影师和出版社,1st写真集youngjump拍得真不行
 
+
+*****
+
+####  csolfans  
+##### 1443#       发表于 2025-1-22 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249991&amp;ptid=2201887" target="_blank">cybernetics31 发表于 2025-1-22 21:11</a>
+大新闻也太少了………………好歹宣个上海加场</blockquote>
+可能是因为星6快来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

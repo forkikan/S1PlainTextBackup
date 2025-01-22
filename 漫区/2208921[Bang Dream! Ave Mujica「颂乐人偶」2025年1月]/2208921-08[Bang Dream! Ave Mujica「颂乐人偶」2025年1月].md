@@ -730,3 +730,15 @@ https://b23.tv/k9LyzXw
 <img src="https://p.sda1.dev/21/f2bf42cd0d1f4e7edfffeec442ff9e19/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/1534add9a7972ef1380b411166af2619/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rushsong  
+##### 10433#       发表于 2025-1-22 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248591&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 18:03</a>
+初华词曲全能问题不大，但没了祥子，就是没了世界观，缺少了大纲，A团也就没有了存在的根基和意义，所以真 ...</blockquote>
+初华只会写偶像曲，不会写重金属的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

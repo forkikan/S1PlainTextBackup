@@ -8738,3 +8738,43 @@ f91的比eva早啊
 https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
 是这种内裤没错……
 
+
+*****
+
+####  青空独  
+##### 5234#       发表于 2025-1-22 21:47
+
+说起来看人设图的时候我对女二的人设没什么兴趣，但是看了pv以后就觉得女二挺可爱的，女主也不错，鹤卷你加了什么料<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 5235#       发表于 2025-1-22 21:51
+
+<img src="https://img.saraba1st.com/forum/202501/22/225037yigiy9zqes51xzvy.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (61.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 21:50 上传
+
+这不是墨镜吗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 5236#       发表于 2025-1-22 21:53
+
+<blockquote>Toby_dak 发表于 2025-1-22 21:51
+这不是墨镜吗</blockquote>
+很酷，不说话.jpg
+
+*****
+
+####  YU_JI  
+##### 5237#       发表于 2025-1-22 21:53
+
+完全想不到这个造型的喵安居然是个软妹
+
