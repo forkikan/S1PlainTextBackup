@@ -8778,3 +8778,19 @@ https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk
 
 完全想不到这个造型的喵安居然是个软妹
 
+
+*****
+
+####  岸浪白野  
+##### 5238#       发表于 2025-1-22 22:02
+
+[X 上的 タケウチ　リョースケ：“ジークアクスやっと観に行けました！ めっっっちゃ面白かったです！早く続き観たい✨ [url]https://t.co/yiGvjoCGx0](https://x.com/ryosuketarou/status/1882061948935877092)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/22/220207rveyzelewpm5ge35.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh5tXaya0AAKSLc.jpg</strong> (569.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 22:02 上传
+

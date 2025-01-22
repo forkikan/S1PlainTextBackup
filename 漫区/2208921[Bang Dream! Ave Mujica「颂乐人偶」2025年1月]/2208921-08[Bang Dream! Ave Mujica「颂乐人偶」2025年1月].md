@@ -742,3 +742,23 @@ https://b23.tv/k9LyzXw
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  akiomn  
+##### 10434#       发表于 2025-1-22 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250244&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-1-22 21:54</a>
+初华只会写偶像曲，不会写重金属的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+初华负责鸡团的作词，曲是祥子负责的，在sumimi是词曲都负责
+设定上初华是可以写出他人要求的词
+
+*****
+
+####  狮子咕  
+##### 10435#       发表于 2025-1-22 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华上面那个台词也没说吧？
+
