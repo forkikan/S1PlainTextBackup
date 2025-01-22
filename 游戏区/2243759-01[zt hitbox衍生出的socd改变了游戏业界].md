@@ -643,3 +643,24 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 况且这种技术原理分析跟技术力有毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扣分是真的难看
 
+
+*****
+
+####  瓦格雷  
+##### 57#       发表于 2025-1-22 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240681&amp;ptid=2243759" target="_blank">BRAVADO 发表于 2025-1-21 19:39</a>
+
+把关键输入绑定在侧键上是否属于作弊行为？毕竟最传统的鼠标是三键的。
+
+再比如滚轮跳是否也是作弊的一种呢 ...</blockquote>
+不知道他怎么认为把跳跃绑定到空格键上这种事
+
+
+*****
+
+####  jxzeroga0  
+##### 58#       发表于 2025-1-22 16:42
+
+以上没有任何一台设备赞助本视频笑死，科普做得挺不错的
+
