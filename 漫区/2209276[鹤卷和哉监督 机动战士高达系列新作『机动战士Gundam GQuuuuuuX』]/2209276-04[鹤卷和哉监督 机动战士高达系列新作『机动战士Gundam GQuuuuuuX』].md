@@ -6818,3 +6818,79 @@ kick back的mv和电锯人有什么联系吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  灵魂收割机  
+##### 5073#       发表于 2025-1-22 10:39
+
+喵安开啥红高达啊，有台梅塔斯定位的机子开都不错了。
+
+*****
+
+####  双菜  
+##### 5074#       发表于 2025-1-22 10:39
+
+百合和bg估计都有，谁能赢就不好说了，毕竟两边都认为对方有优势，我军败了
+
+*****
+
+####  Toby_dak  
+##### 5075#       发表于 2025-1-22 10:39
+
+<blockquote>Sliurus 发表于 2025-1-22 11:24
+贝尔利老妈作死都死不了，就看鹤卷和榎户是黑富野派还是白富野派</blockquote>
+GAINAX那帮人搞GUNBASTER时候都有致敬伊迪安桥段，你说呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KAFAKs  
+##### 5076#       发表于 2025-1-22 10:39
+
+看吉姆王长大也太恐怖了
+
+*****
+
+####  王留美  
+##### 5077#       发表于 2025-1-22 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244255&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-22 10:39</a>
+
+百合和bg估计都有，谁能赢就不好说了，毕竟两边都认为对方有优势，我军败了 ...</blockquote>
+那不是挺好，想赢才会去争先后，确定赢了才回去嘲讽对家，
+
+都自认失败了那不是乖乖闭嘴被动净化讨论环境了？
+
+反正我是双马派（
+
+*****
+
+####  空无阿冰  
+##### 5078#       发表于 2025-1-22 10:44
+
+<blockquote>双菜 发表于 2025-1-22 10:39
+百合和bg估计都有，谁能赢就不好说了，毕竟两边都认为对方有优势，我军败了 ...</blockquote>
+不都是串的？说了不俗套的三人关系性大概率全员cb了呗，不可能给你搞个把剩下一个人晾着的，也不太像搞三角恋的
+
+*****
+
+####  Sliurus  
+##### 5079#       发表于 2025-1-22 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244258&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-22 10:39</a>
+
+GAINAX那帮人搞GUNBASTER时候都有致敬伊迪安桥段，你说呢</blockquote>
+做飞跃巅峰的时候还没有白富野，说，说不定呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 5080#       发表于 2025-1-22 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244301&amp;ptid=2209276" target="_blank">空无阿冰 发表于 2025-1-22 10:44</a>
+
+不都是串的？说了不俗套的三人关系性大概率全员cb了呗，不可能给你搞个把剩下一个人晾着的，也不太像搞三 ...</blockquote>
+场外信息来看明显百合赢面大<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 虽然个人希望全员cb
+
+还是希望鹤卷GG好好讲故事吧，其他都次要
+
