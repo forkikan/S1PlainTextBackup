@@ -8919,3 +8919,11 @@ zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第�
 
 话说tv到底会是哪个档期呢，现在宣4月的可能性大吗？
 
+
+*****
+
+####  jojonathan  
+##### 5253#       发表于 2025-1-22 23:53
+
+不是四月的话那感觉万代有点神经<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">剧场版当广告的热度不要是吧等大家都忘记了再开播
+
