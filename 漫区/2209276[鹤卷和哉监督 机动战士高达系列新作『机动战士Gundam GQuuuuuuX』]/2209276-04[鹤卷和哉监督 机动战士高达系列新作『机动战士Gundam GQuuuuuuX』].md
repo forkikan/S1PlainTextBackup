@@ -8973,3 +8973,34 @@ zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第�
 
 Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ口播直接说了敢达新作，排面比当年祝福大多了啊
 
+
+*****
+
+####  王留美  
+##### 5259#       发表于 2025-1-23 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251075&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-1-23 00:27</a>
+ 谜语👀</blockquote>
+等官宣了吧
+
+*****
+
+####  刺客ares  
+##### 5260#       发表于 2025-1-23 01:25
+
+<img src="https://img.saraba1st.com/forum/202501/23/011155rdcbajdu7h9hf7cc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 01:11 上传
+
+睡前听歌，昨晚说这段是牢修视角好像是真的啊
+
+全曲歌词就这段用了俩第一人称，玛秋和妮娅安应该都是用わたし（私）的吧？
+
+只有牢修在PV1上来自我介绍就用了ボク（僕）。
+
+所以他是被球砸头倒在地上，然后知晓何为爱的那个
+
