@@ -6751,3 +6751,22 @@ kick back的mv和电锯人有什么联系吗
 —— 来自 OPPO PDNM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 修司不接地气，只听高达的话，是机械的机械<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 5066#       发表于 2025-1-22 10:03
+
+这剧场版质量这么高真的让我开始慌了，毕竟有水魔高开低走前车之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Toby_dak  
+##### 5067#       发表于 2025-1-22 10:04
+
+麻球的老妈是SIDE6监察官卡姆兰的秘书，算是体制内高层人物。但UC系主角的父母都是高危行业。特别还有强力NT等级的，基本上都要献祭父母。所以釘宮这老妈的便当<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
