@@ -1071,3 +1071,17 @@ deepseek国内最强大得模型，用的是v3（r1我觉得不太适合用来�
 
 但目前所有模型翻译出来的东西都不能直接用，至少得人工润色和审核两遍工序
 
+
+*****
+
+####  faithlifer  
+##### 88#       发表于 2025-1-22 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245944&amp;ptid=2243718" target="_blank">stanzgy 发表于 2025-1-22 13:20</a>
+api实在是太便宜了，让我一点本地化部署的想法的都没有
+
+论坛助手,iPhone</blockquote>
+求问有什么方便易于新手使用的，浏览器接入deepseek的api方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
