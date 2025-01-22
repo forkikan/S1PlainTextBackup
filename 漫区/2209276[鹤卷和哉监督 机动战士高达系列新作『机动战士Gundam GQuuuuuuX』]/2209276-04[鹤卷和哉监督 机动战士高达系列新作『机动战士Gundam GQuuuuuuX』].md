@@ -9093,3 +9093,14 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  xwz  
+##### 5269#       发表于 2025-1-23 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240343&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-21 18:49</a>
+
+修司平行世界人，异世界人，上层叙事人这些假药5ch都提过了</blockquote>
+宇宙人（宇宙殖民地出身）+异世界未来人+NT（超能力者）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
