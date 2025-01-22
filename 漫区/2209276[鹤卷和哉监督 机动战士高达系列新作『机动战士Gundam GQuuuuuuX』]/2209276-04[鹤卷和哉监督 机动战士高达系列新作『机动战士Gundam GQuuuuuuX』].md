@@ -8658,3 +8658,24 @@ f91的比eva早啊
 这个[沙伦的玫瑰]算是2次neta吧，关系有点远了</blockquote>
 图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要网上圣经相关内容太多了，难以筛选。看看别人的分析
 
+
+*****
+
+####  赤黑的假面  
+##### 5227#       发表于 2025-1-22 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249645&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-22 20:19</a>
+
+翻到一篇日本人的分析
+
+「沙仑的玫瑰」是什么意思？</blockquote>
+卡拉是真喜欢拿圣经当创作素材啊
+
+
+*****
+
+####  0aleph37  
+##### 5228#       发表于 2025-1-22 20:50
+
+吉翁本身不就有犹太要素吗……
+
