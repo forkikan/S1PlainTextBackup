@@ -1093,3 +1093,14 @@ api实在是太便宜了，让我一点本地化部署的想法的都没有
 
 推上随便看了下，英文大部分是技术性讨论，偶尔看到几个不懂技术的拿DEEPSEEK无法回答某些国内法规限制的问题截图来证明这个AI不行，日本人则是复读中华AI会泄露啥的。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  右代宫嘉音  
+##### 90#       发表于 2025-1-22 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238340&amp;ptid=2243718" target="_blank">小ghoul 发表于 2025-1-21 14:47</a>
+
+只想知道代码能力咋样，用了一圈感觉都不如gpt4，这个咋样了</blockquote>
+用很久了，和4o差不多的水平，远不如claude。
+

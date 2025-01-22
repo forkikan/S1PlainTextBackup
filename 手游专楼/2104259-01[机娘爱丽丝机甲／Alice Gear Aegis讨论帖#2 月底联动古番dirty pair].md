@@ -126,3 +126,11 @@
 英国组圣诞和新年活动都出现了，吊足了胃口最后居然只出了个模型组FA</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前年是搞了单机vs和动画吧
 
+
+*****
+
+####  江戸前ルナ  
+##### 1352#         楼主| 发表于 2025-1-22 15:10
+
+这周年服的大袖子谁设计的，太傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
