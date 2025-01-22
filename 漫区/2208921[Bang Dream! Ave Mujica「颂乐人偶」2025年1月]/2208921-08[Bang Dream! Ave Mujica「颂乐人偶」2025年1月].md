@@ -829,3 +829,22 @@ https://b23.tv/k9LyzXw
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 10443#       发表于 2025-1-22 23:25
+
+那也挺强了
+
+*****
+
+####  Reinhold  
+##### 10444#       发表于 2025-1-22 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250690&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-22 23:15</a>
+你邦歌曲B榜历史最好记录是多少？杀吻第一周空降二十几名在你邦算什么水平？ ...</blockquote>
+打不过老团的，毕竟邦邦祖上真阔过<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

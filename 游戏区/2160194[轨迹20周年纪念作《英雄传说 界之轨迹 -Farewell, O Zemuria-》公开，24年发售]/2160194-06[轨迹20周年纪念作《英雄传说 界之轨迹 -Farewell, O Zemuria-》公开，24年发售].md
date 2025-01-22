@@ -24,3 +24,11 @@ ost好像是今天出，不知道什么时间有资源
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kenqqex  
+##### 7450#       发表于 2025-1-22 23:29
+
+喷了 视频设置.exe 去哪了
+
