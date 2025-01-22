@@ -972,3 +972,14 @@ b站的鼓手说有眼力的看个几秒十几秒就够了的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  osore  
+##### 10456#       发表于 2025-1-23 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251084&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-23 00:31</a>
+其实一个个人观点的暴论，恰恰是速通武道馆这个即便是作为少女乐队番世界观也前大概无古人后可能很难有来者 ...</blockquote>
+少女乐队Ave Mujica——史上最速武道馆
+那么，代价是什么呢
+
