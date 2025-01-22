@@ -671,3 +671,35 @@ jk网红只在jk内部比较流行吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子的Oblivionis（忘记），我也想到理由了，乐队是她以她母亲为灵感来的寄托，初心就是她母亲喜欢的钢琴，灵感是她母亲的遗物人偶，如果继续表演下去，甚至连钢琴与人偶都没了，就等于忘了初心。
 
+
+*****
+
+####  thisisaspider  
+##### 10426#       发表于 2025-1-22 21:14
+
+我觉得拿图喵梦数据图没什么用，你不知道编剧和wsd对管人数据有没有清楚的认知。倒是侧面描写更符合编剧要表达的。喵梦没这么底边。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 10427#       发表于 2025-1-22 21:17
+
+人偶的意象比起哪些乱七八糟的名字和形容词。被抛弃、人偶的死亡以及借由月光短暂复活才是更重要的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月亮上的珊瑚  
+##### 10428#       发表于 2025-1-22 21:22
+
+过年回家准备开始看这个，请问楼友，阿B的版本有删减或者修正吗，没有的话我就直接看阿B的了
+
+*****
+
+####  帝下室の年糕  
+##### 10429#       发表于 2025-1-22 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250043&amp;ptid=2208921" target="_blank">月亮上的珊瑚 发表于 2025-1-22 21:22</a>
+过年回家准备开始看这个，请问楼友，阿B的版本有删减或者修正吗，没有的话我就直接看阿B的了 ...</blockquote>
+没删减，据说全片都是一刀未剪
+
