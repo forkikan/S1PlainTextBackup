@@ -17174,3 +17174,85 @@ Mortis对祥子的态度可以说是顺从的反面，但是Mortis让Mujica更�
 
 syl谢谢
 
+
+*****
+
+####  YF31  
+##### 10347#       发表于 2025-1-22 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247600&amp;ptid=2208921" target="_blank">丹德里恩 发表于 2025-1-22 16:22</a>
+
+喵梦就前3集表现出来的行为模式，很多人表达过看法了，诸如我楼上的“冒犯、戏弄”说、再往前还有“夹着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/22/164203pjnqfoi3egi7tfto.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250122164147.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:42 上传
+
+你们一厢情愿地替喵老师找补团魂真的挺搞笑的，喵老师自己知道自己是来做A团好心眼的神明的吗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IWS2000| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  akiomn  
+##### 10348#       发表于 2025-1-22 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦前三集没啥可洗的啊，哪怕她摘面后老老实实听祥子话都算有团魂了，结果还不停搞事
+
+*****
+
+####  YF31  
+##### 10349#       发表于 2025-1-22 16:45
+
+ 本帖最后由 YF31 于 2025-1-22 16:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247605&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 16:23</a>
+
+那大家有没有考虑过这个问题，其他人都有退路，喵梦没有，但她是有后台的，这个后台就是A团，所以她才会想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">因为编剧只是想传递给你大喵老师就是一个今天蹭到明天被开也是赢的短视蠢蛋，替喵老师找补之前有没有想过她确实是蠢的可能呢？
+
+*****
+
+####  天空塔书记官  
+##### 10350#       发表于 2025-1-22 16:46
+
+那就随便喽，接着看番吧
+
+明天就是星期四了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  IWS2000  
+##### 10351#       发表于 2025-1-22 16:52
+
+就不能等喵梦立功了再洗吗？现在一些恨不得把喵梦洗成鸡团最关心睦的简直可笑。
+同理也别急着洗祥子，虽然她本意不是这样，但她确实是造成睦崩溃的最大因素。
+
+*****
+
+####  桜庭千景  
+##### 10352#       发表于 2025-1-22 16:57
+
+当前的社区环境里
+
+只有祥子不享受“卖惨”“初衷是好的”“她没有上帝视角”的纸片人权利，其他任何角色都可以用这三板斧
+

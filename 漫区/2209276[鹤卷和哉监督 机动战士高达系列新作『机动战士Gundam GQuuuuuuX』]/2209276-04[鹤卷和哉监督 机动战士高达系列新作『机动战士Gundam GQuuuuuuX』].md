@@ -8349,3 +8349,23 @@ Gh4b27CbAAARAbn.jpg
 <strong>沙仑的玫瑰花在原典中是对</strong><strong>书拉密女的形容词</strong><strong>所以剧中指代的东西很可能不是精神力骨架，而是一个人
 </strong>
 
+
+*****
+
+####  gamedreamer  
+##### 5198#       发表于 2025-1-22 16:50
+
+感觉可以拿这个嗑点cp假药?<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wyhman  
+##### 5199#       发表于 2025-1-22 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246768&amp;ptid=2209276" target="_blank">日野下花帆 发表于 2025-1-22 14:45</a>
+
+看战队的人在国内人数比起骑士少太多了，讨论环境好一点高达因为门槛高一点加上不是年年有新作其实看上去 ...</blockquote>
+从AGE到水魔，这十几年新入坑的高达观众确实没吃过好的，遇到新作PTSD贷款吃食我倒是觉得可以理解
+

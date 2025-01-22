@@ -664,3 +664,13 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 以上没有任何一台设备赞助本视频笑死，科普做得挺不错的
 
+
+*****
+
+####  Wondering  
+##### 59#       发表于 2025-1-22 16:47
+
+ 本帖最后由 Wondering 于 2025-1-22 16:48 编辑 
+
+顺便cod端游是没有急停的，毕竟用身法（见人就趴或者跑打滑铲泼水）部分代替了急停的作用，且枪的随机弹道也没有cs/瓦那么严重，但是codm是有急停的，看起来还是做codm的腾讯技术力太低下了才导致出现急停机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
