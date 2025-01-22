@@ -383,3 +383,26 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 2025-1-22 14:20 上传
 
+
+*****
+
+####  holofan  
+##### 10711#       发表于 2025-1-22 18:42
+
+<img src="https://img.saraba1st.com/forum/202501/22/184152sqkh6rhqhd6pvpzm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 18:41 上传
+
+真实商战篇
+
+*****
+
+####  holofan  
+##### 10712#       发表于 2025-1-22 20:14
+
+看了一下day2的creator stage确实有cali和fuwamoco，看看把
+
