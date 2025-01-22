@@ -8094,3 +8094,95 @@ GQX世界线的拉拉本人当活体零件
 
 2025-1-22 15:52 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 5183#       发表于 2025-1-22 15:59
+
+所以说女主还不是哈曼？一般路过JK能有这NT能力？
+
+*****
+
+####  Steel.Haze  
+##### 5184#       发表于 2025-1-22 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247358&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-22 15:52</a>
+
+这么看的话女主的nt能力也太变态了</blockquote>
+确实，而且正史中佛拉纳冈的战后首席应该是哈曼；不过正史情况是这样，因为哈曼贵族子弟和基西莉亚一脉的关系，虽然她在试验中，但是并不是战士序列，没有上战场的安排，流亡阿克西斯后，佛拉纳冈才变成围绕哈曼构建了一系列研究体系。整体上说，这个少尉作为佛拉纳冈出身首席太菜了....女主作为闲云野鹤又好像太强了，哈曼说可能性上升了。
+
+
+*****
+
+####  TRIScRE  
+##### 5185#       发表于 2025-1-22 16:04
+
+@ikuchan_kaoru
+
+Gh4b27CbAAARAbn.jpg
+(97.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/160413xn1sa38nsna220nu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 5186#       发表于 2025-1-22 16:06
+
+夏亚找妈妈笑话（1/1）
+
+<img src="https://img.saraba1st.com/forum/202501/22/160558jchr8xtx3t1yc57x.png" referrerpolicy="no-referrer">
+
+<strong>D87CAF53-7159-4574-8655-13AEE52C5036.png</strong> (522.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/160623k3zn116k6ii11ikh.png" referrerpolicy="no-referrer">
+
+<strong>92D75233-86F3-425A-ABF7-A712A38E2290.png</strong> (572.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/160633r1rib2ijhsztsbup.png" referrerpolicy="no-referrer">
+
+<strong>2EA8BA49-701C-4552-A801-099B4629DF17.png</strong> (546.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/160646pxh97cbrxr3qqx8x.png" referrerpolicy="no-referrer">
+
+<strong>6BD903ED-8589-42CE-993F-BE4EC2397025.png</strong> (499.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/160657nq8r3f5irlbi6wyl.png" referrerpolicy="no-referrer">
+
+<strong>DC54C30F-E319-4126-977B-815DCF71E023.png</strong> (574.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:06 上传
+
+*****
+
+####  Sliurus  
+##### 5187#       发表于 2025-1-22 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247408&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-22 15:59</a>
+
+所以说女主还不是哈曼？一般路过JK能有这NT能力？</blockquote>
+野生nt是强的，捷多一个捡破烂的还不是能震慑哈曼
+

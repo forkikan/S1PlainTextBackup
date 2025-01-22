@@ -17063,3 +17063,33 @@ Mortis对祥子的态度可以说是顺从的反面，但是Mortis让Mujica更�
 
 所以mortis给祥子带来了大红大紫的mujica，但是祥子觉得这已经不是自己心中的mujica了，于是愤然离队选择临时加入mygo，和旧日的伙伴们一起积累羁绊的力量，在一次决定生死存亡的对邦中，tomori用灵魂的呐喊唤醒了mortis心中的小睦，于是在内外夹击中打败了mortis，祥子也回到了原来的队伍。mujica和mygo的历史问题也一并化解了，可喜可贺。
 
+
+*****
+
+####  bbjajdd  
+##### 10339#       发表于 2025-1-22 16:01
+
+<blockquote>丹德里恩 发表于 2025-1-22 15:55
+喵梦压力睦是让她别老顾及祥子，天赋那么好就得利用上、主动要求多表演。如果真拆团了睦自己单飞就完了， ...</blockquote>
+“那干脆退出Mujica，我们两个一起。”
+
+*****
+
+####  YF31  
+##### 10340#       发表于 2025-1-22 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247373&amp;ptid=2208921" target="_blank">丹德里恩 发表于 2025-1-22 15:55</a>
+
+喵梦压力睦是让她别老顾及祥子，天赋那么好就得利用上、主动要求多表演。如果真拆团了睦自己单飞就完了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">因为大喵老师就是前倨后恭，要软饭硬吃吸血姐妹啊。
+
+不然她给睦头人说退出mujica两人一起干嘛？大喵老师自己知道自己上压力是为了让睦利用自己的天赋吗？
+
+<img src="https://img.saraba1st.com/forum/202501/22/160203oi33ybrsj32zihiz.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250122160146.png</strong> (153 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:02 上传
+
