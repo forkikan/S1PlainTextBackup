@@ -8820,3 +8820,49 @@ https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk
 
 今天看到有人差评理由是觉得这部的鸭子太憋屈的（）刚准备复仇扎比家，人就消失了
 
+
+*****
+
+####  0aleph37  
+##### 5242#       发表于 2025-1-22 22:16
+
+也有因为阿姆罗没出场而不满的
+
+*****
+
+####  十万年魂环  
+##### 5243#       发表于 2025-1-22 22:19
+
+真出场了，又怕喧宾夺主<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 5244#       发表于 2025-1-22 22:20
+
+估计跟雷霆宙域一样背景板罢了，真出场了绝对喧哗夺主
+
+
+*****
+
+####  PascalLefèvre  
+##### 5245#       发表于 2025-1-22 22:20
+
+还是乖乖当背景板吧，真出来了你们又要叫ooc又要骂<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸浪白野  
+##### 5246#       发表于 2025-1-22 22:23
+
+怎么都不讨好，还不如做擦边球彩蛋
+
+*****
+
+####  psycho_Gadfly  
+##### 5247#       发表于 2025-1-22 22:24
+
+想看平行卡密尔<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+

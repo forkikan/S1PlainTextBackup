@@ -762,3 +762,20 @@ https://b23.tv/k9LyzXw
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华上面那个台词也没说吧？
 
+
+*****
+
+####  sauron.j  
+##### 10436#       发表于 2025-1-22 22:20
+
+根据这片不讲废话的思路，祥小时候要给母亲的惊喜可能是灵感来自人偶设计的小剧场，和睦一起表演。但因为母亲去世未能如愿
+
+*****
+
+####  IWS2000  
+##### 10437#       发表于 2025-1-22 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250407&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-22 22:20</a>
+根据这片不讲废话的思路，祥小时候要给母亲的惊喜可能是灵感来自人偶设计的小剧场，和睦一起表演。但因为母 ...</blockquote>
+母亲没那么快去世，差不多初三那会才走的
+
