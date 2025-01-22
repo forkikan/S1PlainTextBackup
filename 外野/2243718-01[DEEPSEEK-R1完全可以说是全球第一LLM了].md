@@ -983,3 +983,17 @@ seriously?
 他们老板很有魄力和眼界，一早就囤积了很多计算资源。公司内部的结构也很有意思，谁都可以调用大量资源来 ...</blockquote>
 其实是当时quant似乎搞出奇迹来了all in，结果卡买了发现那个模型其实没那么好，被笑话了好久，结果禁令一下，囤那么多卡就成了高瞻远瞩……
 
+
+*****
+
+####  moekyo  
+##### 81#       发表于 2025-1-22 11:09
+
+<img src="https://img.saraba1st.com/forum/202501/22/110911aesc5drptvtvcc7t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 11:09 上传
+

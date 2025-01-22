@@ -6933,3 +6933,90 @@ GAINAX那帮人搞GUNBASTER时候都有致敬伊迪安桥段，你说呢</blockq
 
 2025-1-22 11:02 上传
 
+
+*****
+
+####  PascalLefèvre  
+##### 5084#       发表于 2025-1-22 11:05
+
+只有其他方面都究极无聊的作品才会一直战cp
+
+*****
+
+####  Wondering  
+##### 5085#       发表于 2025-1-22 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244524&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-22 11:05</a>
+
+只有其他方面都究极无聊的作品才会一直战cp</blockquote>
+wa2和犬夜叉粉丝饼干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 5086#       发表于 2025-1-22 11:07
+
+今天票房趋势不错，看着比昨天乃至周一强
+
+*****
+
+####  gamedreamer  
+##### 5087#       发表于 2025-1-22 11:08
+
+犬夜叉表示你在说啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  王留美  
+##### 5088#       发表于 2025-1-22 11:09
+
+二次元国家地理有些人总活在“遗老都觉得GQuuuuuuX太垃圾了，庵野是傻逼”的幻想里面，怎么才能打醒他们？
+
+
+*****
+
+####  Wondering  
+##### 5089#       发表于 2025-1-22 11:10
+
+ 本帖最后由 Wondering 于 2025-1-22 11:12 编辑 
+
+话说隔壁游戏区ff7re时候，ca和ct可是战的昏天黑地，好似回归十几年前核心危机混战期了，但是ff7rb这个mc94分大作出了后无论ca还是ct两边都直接没声音了，到现在没搞明白到底是何意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 5090#       发表于 2025-1-22 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244537&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 11:07</a>
+
+今天票房趋势不错，看着比昨天乃至周一强</blockquote>
+两天最终怎样？周一我记得还行？
+
+*****
+
+####  gamedreamer  
+##### 5091#       发表于 2025-1-22 11:11
+
+你为什么要去打醒他们，不能互相理解.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jojonathan  
+##### 5092#       发表于 2025-1-22 11:13
+
+nga的迫真遗老又不看动画 无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 5093#       发表于 2025-1-22 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244529&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-1-22 11:06</a>
+
+wa2和犬夜叉粉丝饼干</blockquote>
+wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp展开的，所以严格意义上来讲也没有其他方面<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

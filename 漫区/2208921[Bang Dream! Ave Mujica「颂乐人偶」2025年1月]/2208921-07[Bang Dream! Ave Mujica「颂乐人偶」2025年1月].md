@@ -16347,3 +16347,39 @@ petisはpetō,-ere（求める）の直説法・能動態・現在、2人称単�
 
 オウィディウスの表現です（Ov.Her.7.15）。
 
+
+*****
+
+####  天空塔书记官  
+##### 10276#       发表于 2025-1-22 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  osore  
+##### 10277#       发表于 2025-1-22 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么还有up直播剧透的
+
+*****
+
+####  黑夜落叶秋天  
+##### 10278#       发表于 2025-1-22 11:06
+
+<blockquote>御幸一也 发表于 2025-1-22 11:04
+facta fugis facienda petis.
+
+「ファクタ・フギス・ファキエンダ・ペティス」と読みます。
+</blockquote>
+第五集的标题啊
+
+*****
+
+####  AveMujica  
+##### 10279#         楼主| 发表于 2025-1-22 11:07
+
+非预告的带图剧透我会直接删楼
+
