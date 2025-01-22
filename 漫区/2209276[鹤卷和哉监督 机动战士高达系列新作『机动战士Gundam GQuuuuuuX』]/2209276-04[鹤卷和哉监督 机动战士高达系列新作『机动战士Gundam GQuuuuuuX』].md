@@ -7402,3 +7402,49 @@ NT上映的时候大文豪不是说过吗，巴纳吉见过那边的世界，是
 
 高达的妖精就是非人，那就是从另一个世界的大门里出来的东西呗
 
+
+*****
+
+####  oi99o  
+##### 5129#       发表于 2025-1-22 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245065&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-22 11:55</a>
+
+主要吧，她父母看上去还可能不是实父母（发色样貌都不太一样），母亲声优兼顾配音哈罗....确实危险。
+
+ ...</blockquote>
+哈罗声优真的没啥，大部分都是兼任的，初代还是鸭妹声优兼的呢
+
+*****
+
+####  0aleph37  
+##### 5130#       发表于 2025-1-22 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245430&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-22 12:29</a>
+
+应该不止一处，竹说“黑狗在宇宙背景里很难找”啥的。</blockquote>
+？？？这个意思是那只博美犬还会作为彩蛋飘在太空中？
+
+*****
+
+####  gamedreamer  
+##### 5131#       发表于 2025-1-22 12:37
+
+那问题是鹤卷gg 真的会用这个设定吗
+说不定这里的高达的妖精另有别指或者说只是单纯的说牢修的技术好呢<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  YU_JI  
+##### 5132#       发表于 2025-1-22 12:44
+
+<blockquote>gamedreamer 发表于 2025-1-22 12:37
+那问题是鹤卷gg 真的会用这个设定吗
+
+说不定这里的高达的妖精另有别指或者说只是单纯的说牢修的技术好呢
+</blockquote>
+就牢修一口一个“高达说”的情况，可以排除掉单纯指技术好的可能了，继人体高达傻子那之后，我们又迎来了高达的好宝宝修司（）
+
