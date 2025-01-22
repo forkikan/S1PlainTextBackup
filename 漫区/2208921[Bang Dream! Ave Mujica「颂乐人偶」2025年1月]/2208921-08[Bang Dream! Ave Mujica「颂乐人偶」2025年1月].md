@@ -377,3 +377,28 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说爱喵梦爱得深沉，就喵梦前三集干的这些破事我都不知道有什么好洗的，声优出来都只能说喵梦是好孩子后面会让观众喜欢上的
 要不是祥子人气最高，黑子也最多，就喵梦前三集干的那些破事，被车的最多就是她了
 
+
+*****
+
+####  天空塔书记官  
+##### 10402#       发表于 2025-1-22 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248970&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-22 18:51</a>
+只能说爱喵梦爱得深沉，就喵梦前三集干的这些破事我都不知道有什么好洗的，声优出来都只能说喵梦是好孩子后 ...</blockquote>
+那要是我说对了怎么办
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 10403#       发表于 2025-1-22 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248916&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-22 18:43</a>
+拼回来之后就轮到初华抽陀螺了吧
+感觉会比莫酱还狠</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">完整祥回来就轮到初华被抽了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

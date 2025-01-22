@@ -8538,3 +8538,59 @@ Gh4b27CbAAARAbn.jpg
 
 讲真，不太像鹤卷的风格，除非鹤卷这次又是心甘情愿被痞子牧羊（）
 
+
+*****
+
+####  jojonathan  
+##### 5216#       发表于 2025-1-22 18:55
+
+庵野和鹤卷 还蛮色的<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 5217#       发表于 2025-1-22 18:59
+
+这么看最初的假药还怪真的，女1=哈曼，女2=拉拉，就是男1不像希洛克也不像鸭子，来历不明。
+
+鸭子大概变成了红高达里的机魂，此事在EVA和高达NT里亦有记载。
+
+*****
+
+####  wasssf  
+##### 5218#       发表于 2025-1-22 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246191&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-1-22 13:43</a>
+
+印象里“NT不比OT”高等这点富野从没有说过，他反而在Greco访谈里说过因为有了孙子辈后因为想到孙子辈在 ...</blockquote>
+我记得裤袜脱落说过nt不是esper，光头作品确实没有nt和ot能力平等而是人人都可以nt
+
+
+*****
+
+####  AvenueIII  
+##### 5219#       发表于 2025-1-22 19:00
+
+痞子风格被khara内化了呗，像eva的明朝体这次不也自然而然被鹤卷拿来用了，变成公司名片了
+
+（不过也不好说，明朝体自eva来太火了）
+
+*****
+
+####  wasssf  
+##### 5220#       发表于 2025-1-22 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249041&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-1-22 19:00</a>
+
+痞子风格被khara内化了呗，像eva的明朝体这次不也自然而然被鹤卷拿来用了，变成公司名片了
+
+（不过也不好说 ...</blockquote>
+f91的比eva早啊
+
+*****
+
+####  岸浪白野  
+##### 5221#       发表于 2025-1-22 19:03
+
+真要这样的风格那鹤卷肯定被牧羊了
+
