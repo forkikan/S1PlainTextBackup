@@ -8927,3 +8927,15 @@ zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第�
 
 不是四月的话那感觉万代有点神经<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">剧场版当广告的热度不要是吧等大家都忘记了再开播
 
+
+*****
+
+####  g救世主高达  
+##### 5254#       发表于 2025-1-23 00:03
+
+<blockquote>PascalLefèvre 发表于 2025-1-22 22:20
+还是乖乖当背景板吧，真出来了你们又要叫ooc又要骂
+
+—— 来自 S1Fun</blockquote>
+都平行世界了为啥会骂ooc，难道有人骂过安贞在gto给夏亚画成冷酷无情的怪胎巨婴吗🤓
+
