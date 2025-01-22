@@ -563,3 +563,16 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 如果是大厂的，拳霸一类的，找客服要老固件吧
 
+
+*****
+
+####  iqbsh38  
+##### 50#       发表于 2025-1-22 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241859&amp;ptid=2243759" target="_blank">cosx 发表于 2025-1-21 22:36</a>
+
+蓄力角色用后覆盖怎么了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">古列甚至都能发秀婷一边往前走
+
+还有就是蓄力系招式因为操作上的难度是有一定程度上的向上补正的 像古列和拳皇的阿什无论是波还是半月脚性能都要好不少（个人体感）
+

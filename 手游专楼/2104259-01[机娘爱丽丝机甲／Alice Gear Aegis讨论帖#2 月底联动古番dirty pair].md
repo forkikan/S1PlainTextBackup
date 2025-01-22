@@ -115,3 +115,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Andariel  
+##### 1351#       发表于 2025-1-22 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67233063&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-1-20 20:39</a>
+
+英国组圣诞和新年活动都出现了，吊足了胃口最后居然只出了个模型组FA</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前年是搞了单机vs和动画吧
+
