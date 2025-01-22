@@ -8640,3 +8640,11 @@ f91的比eva早啊
 
 节选，后面的拉拉从正史穿越论我就不搬了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5225#       发表于 2025-1-22 20:33
+
+这个[沙伦的玫瑰]算是2次neta吧，关系有点远了
+
