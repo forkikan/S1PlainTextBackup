@@ -947,3 +947,16 @@ https://b23.tv/k9LyzXw
 祥退队的话初华睦也会退，那这个乐队也就没了</blockquote>
 那敢情好啊，大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 10454#       发表于 2025-1-23 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249264&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-22 19:27</a>
+
+祥子当初为啥是找喵梦打鼓
+
+她哪里知道喵梦打鼓厉害</blockquote>
+b站的鼓手说有眼力的看个几秒十几秒就够了的
+
