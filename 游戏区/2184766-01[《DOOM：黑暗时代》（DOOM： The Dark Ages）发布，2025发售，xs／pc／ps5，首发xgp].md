@@ -86,3 +86,19 @@
 
 一個是首發兩天伺服器爆了的模擬飛行
 
+
+*****
+
+####  电磁炮233  
+##### 187#       发表于 2025-1-22 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246002&amp;ptid=2184766" target="_blank">D-JoeII 发表于 2025-1-22 13:26</a>
+那Steam評價絕大部份都80往上的,包括第3方的潛行者2
+
+低評價那倆一個是T社不做事的BO6
+
+一個是首發兩天伺服 ...</blockquote>
+steam评价不到90跟好评扯不上边
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

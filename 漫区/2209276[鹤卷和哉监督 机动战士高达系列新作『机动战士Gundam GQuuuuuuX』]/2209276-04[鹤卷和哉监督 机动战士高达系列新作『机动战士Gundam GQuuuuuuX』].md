@@ -7502,3 +7502,35 @@ NT力量都来自于高维度的根源
 <img src="https://p.sda1.dev/21/addfdc8d4d5e3673f2ec14dd3dcd1d2c/1000139538.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/2a489f495b59e438a0e03576a14b8799/1000139541.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 5136#       发表于 2025-1-22 13:31
+
+<img src="https://img.saraba1st.com/forum/202501/22/133057yn039754c4l3bbin.jpg" referrerpolicy="no-referrer">
+
+<strong>d3b76d6d590ff12d76acca6b1dad021.jpg</strong> (215.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 13:30 上传
+
+蘑菇和武内去了GQX1.16的内部试映会，有人要到了签名
+
+*****
+
+####  猪突猛进R  
+##### 5137#       发表于 2025-1-22 13:33
+
+以前老UC一再强调UCNT与高达X里NT的不同，UC的NT是“适应宇宙环境进化了的人类”，并不是超能力者。
+
+现在看来也没啥区别，别狡辩了，就是超能力者<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空彦秋  
+##### 5138#       发表于 2025-1-22 13:35
+
+TM这两位冒出来我是没想到的，不知道是冲着kahara还是gundam去的
+

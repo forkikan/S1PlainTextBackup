@@ -16764,3 +16764,23 @@ kkr:你怎么不笑啊
 怨妇质问事业批是吧</blockquote>
 也可以这么说，狄多写完之后自焚而死，也能对应睦头的“死亡”。
 
+
+*****
+
+####  swessia  
+##### 10316#       发表于 2025-1-22 13:31
+
+ 本帖最后由 swessia 于 2025-1-22 13:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">意料之内的展开啊
+
+祥追睦
+
+睦嘴硬还是心里还是疼祥
+
+鸡团分崩离析
+
+狗团还在蓄力
+
+该等鸡超绊那集了
+
