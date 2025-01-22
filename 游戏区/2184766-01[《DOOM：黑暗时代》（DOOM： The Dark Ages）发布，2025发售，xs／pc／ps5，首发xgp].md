@@ -42,3 +42,32 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  D-JoeII  
+##### 183#       发表于 2025-1-22 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244110&amp;ptid=2184766" target="_blank">wthall 发表于 2025-1-22 10:20</a>
+
+确实有点。今年唯一打破这个魔咒的只有夺宝奇兵。其他感觉都有一种应付了事的敷衍感。 ...</blockquote>
+去年XGP高分不是挺多的嗎,套寶奇兵甚至都不是最高分的那個
+
+
+*****
+
+####  wthall  
+##### 184#       发表于 2025-1-22 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245795&amp;ptid=2184766" target="_blank">D-JoeII 发表于 2025-1-22 13:07</a>
+
+去年XGP高分不是挺多的嗎,套寶奇兵甚至都不是最高分的那個</blockquote>
+现在谁玩游戏看媒体评分啊，不都是自己玩的才作数么
+
+*****
+
+####  nancygreenlife  
+##### 185#       发表于 2025-1-22 13:16
+
+无双化设计才更靠拢DOOM应该有的实力
+

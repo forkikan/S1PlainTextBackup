@@ -7490,3 +7490,15 @@ NT力量都来自于高维度的根源
 
 对战开始前介绍双方的时候看比赛的所有人都在吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 5135#         楼主| 发表于 2025-1-22 13:08
+
+「GQuuuuuuX -Beginning-」2025年1月22日
+[https://takeoekaki.fanbox.cc/posts/9228935](https://takeoekaki.fanbox.cc/posts/9228935)
+
+<img src="https://p.sda1.dev/21/addfdc8d4d5e3673f2ec14dd3dcd1d2c/1000139538.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2a489f495b59e438a0e03576a14b8799/1000139541.jpg" referrerpolicy="no-referrer">
+
