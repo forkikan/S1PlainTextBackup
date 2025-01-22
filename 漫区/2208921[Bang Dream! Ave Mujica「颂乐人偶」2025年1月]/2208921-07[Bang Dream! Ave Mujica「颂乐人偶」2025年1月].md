@@ -16803,3 +16803,18 @@ kkr:你怎么不笑啊
 
 毕竟在大喵老师看来鸡团其他四人都有退路
 
+
+*****
+
+####  YF31  
+##### 10319#       发表于 2025-1-22 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245883&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 13:15</a>
+
+喵梦心思细腻，有很强的自律性，目标明确且坚定，她善于用夸张的表演隐藏自己真实的目的，而且作事虽然看起 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这或许是我近期看到最难绷的发言之一了。第二集这不是输出睦头人不破防，急了直接开始咬队长祥子护犊子？
+
+我实在不懂直接公开宣布拆团的人讲究计划分寸在哪里？倒是顺杆往上爬蹭脸给着跳的工夫不错。
+
+我们真的看的是一部动画吗？
+

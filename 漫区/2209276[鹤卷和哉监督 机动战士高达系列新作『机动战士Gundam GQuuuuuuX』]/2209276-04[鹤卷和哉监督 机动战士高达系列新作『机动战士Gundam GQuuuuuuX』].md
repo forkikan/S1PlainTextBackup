@@ -7626,3 +7626,78 @@ UC里是有正经超能力者的，天使之轮里都能搜刮到上万个呢
 <img src="https://p.sda1.dev/21/7c5b92eb469046cd6fe81ab301bee7bb/image.jpg" referrerpolicy="no-referrer">
 [@tsubo_jiro](https://x.com/tsubo_jiro/status/1881897459255013761)
 
+
+*****
+
+####  0aleph37  
+##### 5148#       发表于 2025-1-22 13:47
+
+<img src="https://img.saraba1st.com/forum/202501/22/134742chh7kxbs4bj4q445.jpg" referrerpolicy="no-referrer">
+
+<strong>20250122_132927.jpg</strong> (149.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-22 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/134742jmwo9mqk9x00hak9.jpg" referrerpolicy="no-referrer">
+
+<strong>20250122_132816.jpg</strong> (314.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-22 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/134742frz96rznmwt9jne2.jpg" referrerpolicy="no-referrer">
+
+<strong>20250121_182300.jpg</strong> (236.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-22 13:47 上传
+
+女官颜值好高
+
+*****
+
+####  mad55555  
+##### 5149#       发表于 2025-1-22 13:49
+
+如果沙伦玫瑰是从正史传送过来平行世界79年的精神骨架的话
+
+那不是应该还有个93年的夏亚(池田秀一版本)一起穿过来吗
+
+只要知道未来历史走向提前干涉促成吉翁胜利就用不着地球寒冷化作战了吧
+
+*****
+
+####  0aleph37  
+##### 5150#       发表于 2025-1-22 13:51
+
+现在是猜测方向多是把沙伦的玫瑰看作某位nt
+
+
+*****
+
+####  岸浪白野  
+##### 5151#       发表于 2025-1-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246050&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-22 13:31</a>
+蘑菇和武内去了GQX1.16的内部试映会，有人要到了签名</blockquote>
+早看到了没往楼里发，这位你哪用遮住名字啊。。。。本来就是画漫画的
+
+*****
+
+####  刺客ares  
+##### 5152#       发表于 2025-1-22 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246268&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-22 13:52</a>
+
+早看到了没往楼里发，这位你哪用遮住名字啊。。。。本来就是画漫画的</blockquote>
+我搬非官推基本都会遮的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+刚才看评论区好像订正了，好像是武内和经验值去的，看电影居然没带蘑菇
+
