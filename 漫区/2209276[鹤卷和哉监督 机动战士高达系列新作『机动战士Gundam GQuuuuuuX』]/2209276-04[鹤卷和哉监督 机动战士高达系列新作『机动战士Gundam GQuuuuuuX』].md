@@ -6632,3 +6632,13 @@ kick back的mv和电锯人有什么联系吗
 
 这OST，电子浓度爆棚了，尤其喜欢军团战那首
 
+
+*****
+
+####  psycho_Gadfly  
+##### 5053#       发表于 2025-1-22 09:15
+
+当年追泥水楼还是挺有乐子的，虽然泥水看了几集就弃了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+但不希望新高达沦为豚厨战场。。。毕竟冲着前面40分钟和背景设定，还是希望多点正经讨论（姨姥们赶紧圈地）
+
