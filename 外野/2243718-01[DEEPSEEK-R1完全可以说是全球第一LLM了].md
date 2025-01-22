@@ -997,3 +997,25 @@ seriously?
 
 2025-1-22 11:09 上传
 
+
+*****
+
+####  qratosones1337  
+##### 82#       发表于 2025-1-22 11:14
+
+ 本帖最后由 qratosones1337 于 2025-1-22 11:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244061&amp;ptid=2243718" target="_blank">lyt777 发表于 2025-1-22 10:15</a>
+
+seriously?</blockquote>
+我觉得有必要第114514次强调，推理模型跟Chat模型不是同一个路线的产品，不涉及推理的问题问了之后没有意义。
+
+类似地情况还有，向o1-preview提问“Linux下如何安装CUDA12.2”，然后o1思考了两个小时，最后回答“我不知道”，当然现在似乎是修好了（可能检测到类似情况会直接转发给4o）
+
+
+*****
+
+####  drodchang  
+##### 83#       发表于 2025-1-22 11:26
+
+用了一下，确实可以，但没有没有多模读不了图还是有点遗憾。
+

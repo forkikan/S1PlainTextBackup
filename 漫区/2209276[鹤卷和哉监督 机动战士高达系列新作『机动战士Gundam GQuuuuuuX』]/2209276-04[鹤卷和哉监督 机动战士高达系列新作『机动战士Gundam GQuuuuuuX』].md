@@ -7020,3 +7020,87 @@ nga的迫真遗老又不看动画 无所谓的<img src="https://static.saraba1st
 wa2和犬夜叉粉丝饼干</blockquote>
 wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp展开的，所以严格意义上来讲也没有其他方面<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双菜  
+##### 5094#       发表于 2025-1-22 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244590&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-22 11:11</a>
+两天最终怎样？周一我记得还行？</blockquote>
+首周三天平均2亿，这周前两天数据比首周前三天一半还低，不超过一亿，现在累积估计7亿接近8亿，这周争取发10亿通告吧
+
+*****
+
+####  Sliurus  
+##### 5095#       发表于 2025-1-22 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244617&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-22 11:13</a>
+
+wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp展开的，所以严格意义上来讲也没有其他方面 ...</blockquote>
+这种作品争的不是cp，是角色地位啊。谁更受作者宠爱，谁是真女主等等才是这类作品讨论氛围的醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 5096#       发表于 2025-1-22 11:17
+
+nga“遗老”都能生造出日本大量差评，没必要和他们多聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 5097#       发表于 2025-1-22 11:17
+
+<blockquote>王留美 发表于 2025-1-22 11:09
+二次元国家地理有些人总活在“遗老都觉得GQuuuuuuX太垃圾了，庵野是傻逼”的幻想里面，怎么才能打醒他们？ ...</blockquote>
+这部分往往是片没看多少，声音比谁都大的那种，管他们干嘛，预设立场都树立好了，用不着去互相理解了
+
+*****
+
+####  Piano-Forest  
+##### 5098#         楼主| 发表于 2025-1-22 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242215&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-21 23:30</a>
+
+【剧场版「机动战士高达 GQuuuuuuX」原声集专辑 (先行版)】 
+
+https://b23.tv/rlz2CGi ...</blockquote>
+照井順政/蓮尾理之的专辑《『機動戦士Gundam GQuuuuuuX -Beginning-』オリジナルサウンドトラック》: 
+[http://music.163.com/album/259131697/](http://music.163.com/album/259131697/)
+
+*****
+
+####  创始’’’天翔  
+##### 5099#       发表于 2025-1-22 11:18
+
+别急，现在的打压只不过是垂死挣扎罢了。等GQX拿下年榜时便是反攻倒算的时机，要自信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空彦秋  
+##### 5100#       发表于 2025-1-22 11:21
+
+两女一男这种配置，很难不让人想往cp那边想，尤其这还是ACG
+
+*****
+
+####  Wondering  
+##### 5101#       发表于 2025-1-22 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244617&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-22 11:13</a>
+
+wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp展开的，所以严格意义上来讲也没有其他方面 ...</blockquote>
+“本身就是围绕吵cp展开的”，eva算吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 5102#       发表于 2025-1-22 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244665&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-1-22 11:18</a>
+
+别急，现在的打压只不过是垂死挣扎罢了。等GQX拿下年榜时便是反攻倒算的时机，要自信 ...</blockquote>
+打脸要现世报才爽啊，拖拖拉拉的不就和if鸭一样成小丑了<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
