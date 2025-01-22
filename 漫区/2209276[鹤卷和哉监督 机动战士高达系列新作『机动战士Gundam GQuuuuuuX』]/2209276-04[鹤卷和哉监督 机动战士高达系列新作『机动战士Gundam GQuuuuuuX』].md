@@ -9004,3 +9004,35 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 所以他是被球砸头倒在地上，然后知晓何为爱的那个
 
+
+*****
+
+####  Gysumitka  
+##### 5261#       发表于 2025-1-23 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251075&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-1-23 00:27</a>
+谜语👀</blockquote>
+希望这次都能管住嘴<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Grahamlinks  
+##### 5262#       发表于 2025-1-23 01:30
+
+<blockquote>tomzach 发表于 2025-1-22 23:43
+话说tv到底会是哪个档期呢，现在宣4月的可能性大吗？</blockquote>
+不知道啊🙃可以宣四月，但四月的话就要NTV拿一个新档期出来
+
+
+*****
+
+####  oi99o  
+##### 5263#       发表于 2025-1-23 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251247&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-23 01:25</a>
+
+睡前听歌，昨晚说这段是牢修视角好像是真的啊
+
+全曲歌词就这段用了俩第一人称，玛秋和妮娅安应该都是用わた ...</blockquote>
+日语歌词第一人称大部分都是用boku，不论男女视角
+
