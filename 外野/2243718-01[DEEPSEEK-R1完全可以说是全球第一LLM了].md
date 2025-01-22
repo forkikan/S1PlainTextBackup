@@ -863,3 +863,19 @@ deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是
 
 这样发展下去，早晚得禁，直接把github都删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyt777  
+##### 78#       发表于 2025-1-22 10:15
+
+<img src="https://img.saraba1st.com/forum/202501/22/101508w40i0i0m4iuukk9v.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250122-101445.png</strong> (71.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 10:15 上传
+
+seriously?
+
