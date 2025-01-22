@@ -8450,3 +8450,20 @@ Gh4b27CbAAARAbn.jpg
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gamedreamer  
+##### 5209#       发表于 2025-1-22 17:17
+
+有一说一冷静下来分析应该是找麻球(疑似莎伦的玫瑰)对应的人吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AvenueIII  
+##### 5210#       发表于 2025-1-22 17:19
+
+所罗门化身牧人-&gt;夏亚变成小螃蟹放牧修司羊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
