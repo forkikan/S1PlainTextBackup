@@ -16200,3 +16200,16 @@ weibo：陌麓stranger：
 <img src="https://p.sda1.dev/21/37eae67985d50a141b881fbd30a29195/006raim1gy1hxsp9euxtuj329r1rwwxa.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/94fe03912e073fad5a6c843816e1706b/006raim1gy1hxsp3zies1j30ts0isgni.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cavaliar  
+##### 10262#       发表于 2025-1-22 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242795&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-22 02:19</a>
+
+话说下集预告里桌子上的马卡龙，应该是mortis从家里带来送给大家吃的吧，就像之前给mygo送黄瓜
+
+海玲应该是 ...</blockquote>
+之前也想过是pareo送的，可以和ras搭上线
+

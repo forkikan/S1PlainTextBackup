@@ -6799,3 +6799,22 @@ kick back的mv和电锯人有什么联系吗
 
 影像用文字传达，那得丢失多少细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 5071#       发表于 2025-1-22 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243973&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-22 10:04</a>
+ 麻球的老妈是SIDE6监察官卡姆兰的秘书，算是体制内高层人物。但UC系主角的父母都是高危行业。特别还有强力N ...</blockquote>
+贝尔利老妈作死都死不了，就看鹤卷和榎户是黑富野派还是白富野派<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 5072#       发表于 2025-1-22 10:26
+
+既然是看伊迪安长大的那肯定是坚定的黑富野派吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
