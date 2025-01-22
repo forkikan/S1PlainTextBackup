@@ -594,3 +594,52 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 至于Amoris（爱）大概就是他为什么打鼓的理由，什么小时候不被关注，发现弄出声音能被大家注意，后来被家人建议去打鼓，才开始打鼓的。
 
+
+*****
+
+####  新HGCG  
+##### 10420#       发表于 2025-1-22 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245038&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 11:52</a>
+
+这要小白怎么救，
+
+她自己不出问题就谢天谢地了</blockquote>
+你看都在喊仓田
+
+<img src="https://img.saraba1st.com/forum/202501/22/201857u8px1dey4erbb5n1.png" referrerpolicy="no-referrer">
+
+<strong>111111111111111111111111111111111111.png</strong> (1016.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 20:18 上传
+
+*****
+
+####  NODY  
+##### 10421#       发表于 2025-1-22 20:19
+
+来个典中典的双向误会走向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子落魄的时候刷到了喵梦的廉价攻略一直很感激，然后发现这人能打鼓技术还不错后本着报恩的心态想着让她进队伍，结果发现喵梦性格和自己想象的不一样
+
+喵梦本来很高兴有伯乐能看上自己打鼓，结果入队发现和自己想象的不一样
+
+
+*****
+
+####  huxiaopao163  
+##### 10422#       发表于 2025-1-22 20:21
+
+jk网红只在jk内部比较流行吧
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  盐盐盐盐盐  
+##### 10423#       发表于 2025-1-22 20:26
+
+祥子要是真的又跑路一次那怕不是真的被初华那句成员退出就是解散（再次）给狠扎一刀，必不会跑路的，只能呆在团里看着am变成她不喜欢又无力改变的样子才有趣呐，上次就第一个跑路，这次总得做那个最负责的人了吧，am要散也应该是外部原因比如事务所看睦单飞更有价值给直接拆了，再由祥子之手重新拼回去
+

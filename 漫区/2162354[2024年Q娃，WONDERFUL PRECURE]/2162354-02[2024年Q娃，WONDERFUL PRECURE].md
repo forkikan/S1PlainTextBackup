@@ -364,3 +364,13 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 多么高高在上啊。。。经典加害者原谅受害者的奇妙思路
 
+
+*****
+
+####  用户名1  
+##### 2750#       发表于 2025-1-22 20:24
+
+说教味太浓了
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
