@@ -7534,3 +7534,95 @@ NT力量都来自于高维度的根源
 
 TM这两位冒出来我是没想到的，不知道是冲着kahara还是gundam去的
 
+
+*****
+
+####  刺客ares  
+##### 5139#       发表于 2025-1-22 13:37
+
+ 本帖最后由 刺客ares 于 2025-1-22 13:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246082&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-22 13:35</a>
+
+TM这两位冒出来我是没想到的，不知道是冲着kahara还是gundam去的</blockquote>
+推上说经验值也去了，可能是Khara要问TM这帮人参考异闻带的设定吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这下真·高达0085异闻带了
+
+*****
+
+####  0aleph37  
+##### 5140#       发表于 2025-1-22 13:37
+
+按票房预测趋势，今天大概能到昨天的1.5倍
+
+*****
+
+####  0aleph37  
+##### 5141#       发表于 2025-1-22 13:39
+
+螺旋社那些人本来就是机器人爱好者，明明建模能力很菜还要往宝具里塞巨大机器人
+
+*****
+
+####  空彦秋  
+##### 5142#       发表于 2025-1-22 13:39
+
+<blockquote>刺客ares 发表于 2025-1-22 13:37
+推上说经验值也去了，可能是要问TM这帮人参考异闻带的设定吧</blockquote>
+要是顺便把魔法使相簿一并打包参考了岂不美哉
+
+
+*****
+
+####  刺客ares  
+##### 5143#       发表于 2025-1-22 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246135&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-22 13:39</a>
+
+要是顺便把魔法使相簿一并打包参考了岂不美哉</blockquote>
+真别说，榎戸gg照着青子有珠草十郎抄吧，
+
+这仨的关系性才真能搞出那种等边三角配平杯垫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 5144#       发表于 2025-1-22 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246062&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-22 13:33</a>
+
+以前老UC一再强调UCNT与高达X里NT的不同，UC的NT是“适应宇宙环境进化了的人类”，并不是超能力者。
+
+现在看 ...</blockquote>
+卡缪和捷多40米大长刀，哈曼卡碧尼硬抗脑浆炮，赞斯卡尔女王隔空治病，本来就很唯心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 5145#       发表于 2025-1-22 13:43
+
+UC里是有正经超能力者的，天使之轮里都能搜刮到上万个呢
+
+*****
+
+####  otaku21126  
+##### 5146#       发表于 2025-1-22 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246062&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-22 13:33</a>
+以前老UC一再强调UCNT与高达X里NT的不同，UC的NT是“适应宇宙环境进化了的人类”，并不是超能力者。
+
+现在看 ...</blockquote>
+印象里“NT不比OT”高等这点富野从没有说过，他反而在Greco访谈里说过因为有了孙子辈后因为想到孙子辈在宇宙世纪世界观如果不是NT会很可怜，所以后悔把NT那么设定了。
+宇宙世纪的NT是高版本的人类，就是比OT强，既适应宇宙又适应地球；OT只适应地球，不适应宇宙。NT本来就是某种超能力者。
+
+说宇宙世纪的NT和OT只是适应环境不同，那只是长谷川的想法。
+
+*****
+
+####  Gysumitka  
+##### 5147#       发表于 2025-1-22 13:45
+
+原驾驶员与现驾驶员
+<img src="https://p.sda1.dev/21/7c5b92eb469046cd6fe81ab301bee7bb/image.jpg" referrerpolicy="no-referrer">
+[@tsubo_jiro](https://x.com/tsubo_jiro/status/1881897459255013761)
+

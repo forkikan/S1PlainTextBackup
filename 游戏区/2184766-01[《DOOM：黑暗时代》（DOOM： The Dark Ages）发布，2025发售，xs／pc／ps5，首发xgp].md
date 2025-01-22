@@ -102,3 +102,26 @@ steam评价不到90跟好评扯不上边
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  D-JoeII  
+##### 188#       发表于 2025-1-22 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246066&amp;ptid=2184766" target="_blank">电磁炮233 发表于 2025-1-22 13:33</a>
+
+steam评价不到90跟好评扯不上边
+
+—— 来自 S1Fun</blockquote>
+?帕魯AOM奪寶奇兵P3R這票都是90+啊,甚至地獄之刃2是全球87限中文92(真多錢花<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wthall  
+##### 189#       发表于 2025-1-22 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246133&amp;ptid=2184766" target="_blank">D-JoeII 发表于 2025-1-22 13:39</a>
+
+?帕魯AOM奪寶奇兵P3R這票都是90+啊,甚至地獄之刃2是全球87限中文92(真多錢花) ...</blockquote>
+就你说的这几个，帕鲁我没玩因为xbx上面字太小，P3R顶天7分，潜行者2我晕3D。去年其他想玩的，但是实际首发并不怎么样的冰气时代2，天际线2等，都有各种各样的问题。真就是夺宝奇兵首发几乎没啥问题，然后游戏体验非常好。
+
