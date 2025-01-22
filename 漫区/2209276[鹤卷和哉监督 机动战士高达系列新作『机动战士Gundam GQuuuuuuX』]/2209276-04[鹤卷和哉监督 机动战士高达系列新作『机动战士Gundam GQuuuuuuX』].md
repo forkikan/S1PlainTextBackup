@@ -6693,3 +6693,39 @@ kick back的mv和电锯人有什么联系吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然漏油都已经在假药编排角色要死了，我就反过来赌一个三主角都不会死好了
 
+
+*****
+
+####  虛無迴廊  
+##### 5060#       发表于 2025-1-22 09:40
+
+不过麻球家境富裕nt，喵安流离失所ot的对照组应该不会那么轻易打破让喵安也觉醒nt的，毕竟宇宙间绝大部分人是ot啊
+
+*****
+
+####  双菜  
+##### 5061#       发表于 2025-1-22 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243563&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-22 09:21</a>
+泥楼盖楼速度还可以了，TV档都没定已经盖了5000了（）</blockquote>
+按照TV篇幅算是已经播了四集，比起水魔还是差不少，水魔还有个高达TV复活的buff
+
+
+*****
+
+####  gamedreamer  
+##### 5062#       发表于 2025-1-22 09:44
+
+那修司难道是无家可归的nt的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  UNINSTALL42  
+##### 5063#       发表于 2025-1-22 09:47
+
+<blockquote>双菜 发表于 2025-1-22 09:43
+按照TV篇幅算是已经播了四集，比起水魔还是差不少，水魔还有个高达TV复活的buff ...</blockquote>
+这哪是一回事儿，gqx这儿绝大多数人可都看不到啊
+
