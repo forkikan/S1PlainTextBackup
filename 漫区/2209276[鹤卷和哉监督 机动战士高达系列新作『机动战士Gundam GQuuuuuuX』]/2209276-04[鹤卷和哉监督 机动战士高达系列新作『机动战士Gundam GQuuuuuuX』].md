@@ -7354,3 +7354,21 @@ top3是六台复制机那版本的初期企划案，现在会在访谈里说那�
 
 还不如完全推倒重来
 
+
+*****
+
+####  otaku21126  
+##### 5125#       发表于 2025-1-22 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244587&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-1-22 11:10</a>
+话说隔壁游戏区ff7re时候，ca和ct可是战的昏天黑地，好似回归十几年前核心危机混战期了，但是ff7rb这个mc94 ...</blockquote>
+因为CA被野村gank了，RB里各种内容都明着要拉ZACK出来，总不可能ZACK出来了结局里他拉单帮吧，所以CA见形势不妙，冷处理了
+RE当时战的昏天黑地，CA里十个人有八个人就是最坚定的ZACK黑子，信誓旦旦地强调后续章节ZACK没戏份，有戏份也是回忆，可惜天不遂人愿
+
+*****
+
+####  卑弥呼yamato  
+##### 5126#       发表于 2025-1-22 12:18
+
+高达妖精究竟是什么呢
+

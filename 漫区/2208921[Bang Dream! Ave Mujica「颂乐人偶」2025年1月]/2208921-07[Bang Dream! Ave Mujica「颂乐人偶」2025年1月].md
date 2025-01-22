@@ -16604,3 +16604,34 @@ NICONICO弹幕最后都在说要仓田负责要爱音拯救
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 10302#       发表于 2025-1-22 12:17
+
+让KSM来就直接九团联合live了
+
+kkr:你怎么不笑啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ddy2811  
+##### 10303#       发表于 2025-1-22 12:21
+
+所以第5集这标题……是在说这集要给“没苦硬吃”一个解释吗？
+
+*****
+
+####  swessia  
+##### 10304#       发表于 2025-1-22 12:23
+
+第三集在mygo第七集进度，那鸡四五集在散团下坡路上加速也很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个第七集鸡超绊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
