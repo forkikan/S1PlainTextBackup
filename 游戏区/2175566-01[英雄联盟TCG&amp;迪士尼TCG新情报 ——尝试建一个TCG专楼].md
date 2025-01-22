@@ -63,3 +63,17 @@ P.S. 集换社有一个叫集换电波的电台，里面的内容还算有趣，
 
 opcg简中第十弹盒子上市就6折破发了，简中运营烂中烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰烬刺猬  
+##### 220#       发表于 2025-1-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249709&amp;ptid=2175566" target="_blank">记忆消失 发表于 2025-1-22 20:27</a>
+12月日本新品数据：
+
+1. PTCG</blockquote>
+mtg这边牌手很少在烂价社交易
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

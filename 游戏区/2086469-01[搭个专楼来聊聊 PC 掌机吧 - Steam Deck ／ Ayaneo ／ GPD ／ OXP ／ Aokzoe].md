@@ -442,3 +442,22 @@ INTEL的显卡驱动发挥不出性能，
 
 你的退了吗？还是继续拿来用？想知道一般使用的感想
 
+
+*****
+
+####  requiem116  
+##### 1375#       发表于 2025-1-22 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250509&amp;ptid=2086469" target="_blank">月夜凝雪 发表于 2025-1-22 22:38</a>
+
+https://www.bilibili.com/video/BV1kvqaYfE3v
+
+看这个评测貌似现在性能差不多，</blockquote>
+最后还是退了，2699和3199差500但是只体现在512g存储上
+
+这个的确还是觉得有点亏
+
+今天昙花一现又有2699的那款一会就卖光了只剩3199了
+
+思来想去还是觉得既然不是刚需就还是再观望一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
