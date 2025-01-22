@@ -8794,3 +8794,29 @@ https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk
 
 2025-1-22 22:02 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 5239#       发表于 2025-1-22 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249994&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 21:11</a>
+
+突然联想到，现在这个失踪的夏亚是不是比原本世界线更符合弥赛亚的定位，终将降临的救主 ...</blockquote>
+组织上已经研究决定了，万一最后讲不完故事，由你来机械降神。
+
+*****
+
+####  jojonathan  
+##### 5240#       发表于 2025-1-22 22:07
+
+这下逆袭的夏亚了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 5241#       发表于 2025-1-22 22:12
+
+今天看到有人差评理由是觉得这部的鸭子太憋屈的（）刚准备复仇扎比家，人就消失了
+
