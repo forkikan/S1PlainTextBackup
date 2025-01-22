@@ -7213,3 +7213,51 @@ wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp
 
 [https://takeoekaki.fanbox.cc/posts/9228935](https://takeoekaki.fanbox.cc/posts/9228935)
 
+
+*****
+
+####  Steel.Haze  
+##### 5112#       发表于 2025-1-22 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243973&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-22 10:04</a>
+
+麻球的老妈是SIDE6监察官卡姆兰的秘书，算是体制内高层人物。但UC系主角的父母都是高危行业。特别还有强力N ...</blockquote>
+主要吧，她父母看上去还可能不是实父母（发色样貌都不太一样），母亲声优兼顾配音哈罗....确实危险。
+
+*****
+
+####  虛無迴廊  
+##### 5113#       发表于 2025-1-22 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244473&amp;ptid=2209276" target="_blank">nnis 发表于 2025-1-22 11:01</a>
+不懂什么赢不赢，修司这定位，片里精神场与麻球的镜头，个人都觉得很浪漫的。我还想喵和修定位反转呢，想看 ...</blockquote>
+修司跟喵安在以麻球为中心的三角里想要平衡一些的话，性别是不能换的，喵安是女生回避了“又是穷小子泡富家女”的恶观感，修司是人外感高达精灵又去掉了这个年纪的男生面对美少女容易像只发秦的猴的问题
+反正反过来肯定更腥风血雨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空彦秋  
+##### 5114#       发表于 2025-1-22 11:58
+
+<blockquote>0aleph37 发表于 2025-1-22 11:25
+一男两女才容易往CP方面想吧，或者2号位就可以说是主人公麻球和男主人公修司了，GQX这男一是cast三号位已 ...</blockquote>
+一开始他们说top3的时候，我也怀疑修司和之前山田尚子那个片里的男角色一样，是资方硬塞的，那就确实不用考虑cp了。但看了这两段PV和漏油的剧透，估计鹤卷和榎户还是重视这个角色的...
+
+
+*****
+
+####  YU_JI  
+##### 5115#       发表于 2025-1-22 12:02
+
+<blockquote>Gysumitka 发表于 2025-1-22 11:33
+@tsubo_jiro</blockquote>
+不知当讲不当讲，我总觉得麻球有一股女儿力……天手让叶，是能成为我女儿的女人.jpg
+
+<img src="https://img.saraba1st.com/forum/202501/22/120218j6ca4hsry5a84oe4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3708.jpeg</strong> (131.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 12:02 上传
+
