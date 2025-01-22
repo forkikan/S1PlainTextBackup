@@ -6642,3 +6642,32 @@ kick back的mv和电锯人有什么联系吗
 
 但不希望新高达沦为豚厨战场。。。毕竟冲着前面40分钟和背景设定，还是希望多点正经讨论（姨姥们赶紧圈地）
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5054#       发表于 2025-1-22 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243512&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-1-22 09:15</a>
+当年追泥水楼还是挺有乐子的，虽然泥水看了几集就弃了
+
+但不希望新高达沦为豚厨战场。。。毕竟冲着前面40分 ...</blockquote>
+已经聊了很多了，倒不如说现在居然还没开始豚厨互串挺让我意外的，上映那天到现在聊了一大堆0079野史
+就看能撑多久了，毕竟这里是公共论坛专楼注定了要吃大锅饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YU_JI  
+##### 5055#       发表于 2025-1-22 09:21
+
+泥楼盖楼速度还可以了，TV档都没定已经盖了5000了（）
+
+*****
+
+####  jojonathan  
+##### 5056#       发表于 2025-1-22 09:23
+
+厨豚大战要再开了吗
+

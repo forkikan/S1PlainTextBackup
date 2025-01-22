@@ -16107,3 +16107,24 @@ b站有对应视频的，挺有意思
 
 所以祥子一脸不高兴，是想学soyo退货吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JustW  
+##### 10252#       发表于 2025-1-22 09:22
+
+现在看母鸡卡的是不是大部分都只看过MyGO，这几天看到n次“母鸡卡动画没有经纪人没有合同是为了符合邦多利的世界观”
+
+
+*****
+
+####  刑部姬真可爱  
+##### 10253#       发表于 2025-1-22 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67242795&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-22 02:19</a>
+
+话说下集预告里桌子上的马卡龙，应该是mortis从家里带来送给大家吃的吧，就像之前给mygo送黄瓜
+
+海玲应该是 ...</blockquote>
+这还挺roselia前期和ras前期的，我们是正经乐队，不是来喝茶聊天嘻嘻哈哈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
