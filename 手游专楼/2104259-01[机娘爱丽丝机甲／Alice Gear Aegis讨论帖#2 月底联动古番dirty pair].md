@@ -134,3 +134,23 @@
 
 这周年服的大袖子谁设计的，太傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1353#       发表于 2025-1-22 15:18
+
+ 本帖最后由 冰风血羽 于 2025-1-22 15:20 编辑 
+
+还好色、欲跟傲慢俩露的多的袖子稍微正常点
+
+
+*****
+
+####  江戸前ルナ  
+##### 1354#         楼主| 发表于 2025-1-22 15:23
+
+大袖子设计简直老鼠屎
+
+话说那个头环把7个小圈圈去掉，分明就是BA了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

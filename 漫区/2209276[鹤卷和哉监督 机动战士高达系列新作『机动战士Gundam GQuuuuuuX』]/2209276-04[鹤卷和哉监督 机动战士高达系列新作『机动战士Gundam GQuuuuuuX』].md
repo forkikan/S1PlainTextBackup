@@ -7986,3 +7986,31 @@ GQX世界线的拉拉本人当活体零件
 
 说实话文豪的设定拿来参考是很有价值的，只要不认定真敢达世界线就是一模一样就没事了
 
+
+*****
+
+####  王留美  
+##### 5178#       发表于 2025-1-22 15:22
+
+我仔细想了一下
+试映会应该是专门找了遗老（各种业界）和新人（管人），拿来看效果的
+
+*****
+
+####  王九的哥哥  
+##### 5179#       发表于 2025-1-22 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247090&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-22 15:22</a>
+我仔细想了一下
+试映会应该是专门找了遗老（各种业界）和新人（管人），拿来看效果的 ...</blockquote>
+也不全是这个理由吧，毕竟管人还唱了首歌……
+
+*****
+
+####  57042711  
+##### 5180#       发表于 2025-1-22 15:26
+
+要是UC93的技术那就真梅比乌斯环了，想尽办法无法逃脱的命运<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
