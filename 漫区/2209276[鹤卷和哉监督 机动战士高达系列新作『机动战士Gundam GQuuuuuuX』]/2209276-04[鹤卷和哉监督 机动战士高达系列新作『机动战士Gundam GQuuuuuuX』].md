@@ -6671,3 +6671,25 @@ kick back的mv和电锯人有什么联系吗
 
 厨豚大战要再开了吗
 
+
+*****
+
+####  shipship  
+##### 5057#       发表于 2025-1-22 09:30
+
+这讨论氛围和水魔播出前简直如出一辙，不过上次赢的是豚豚，我看这作倒可能是bg赢到最后
+
+*****
+
+####  虛無迴廊  
+##### 5058#       发表于 2025-1-22 09:30
+
+比起谁更有磕点，互战需要的是谁更有黑点啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没播叫人怎么黑
+
+*****
+
+####  hagiwara  
+##### 5059#       发表于 2025-1-22 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然漏油都已经在假药编排角色要死了，我就反过来赌一个三主角都不会死好了
+

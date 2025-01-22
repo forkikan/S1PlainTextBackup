@@ -375,3 +375,13 @@ TC的核心成员就3个人吧
 
 不期待了，连当个梗都不想在厂商发布会上刷，即使未来真出了也不会首发买，现在已经接受不了还要捡尸和地体这种基本功能也要靠BUILD的银河城了
 
+
+*****
+
+####  圣雷科诺  
+##### 46#       发表于 2025-1-22 09:30
+
+这标题听着像是种怪谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

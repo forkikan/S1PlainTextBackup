@@ -16128,3 +16128,34 @@ b站有对应视频的，挺有意思
 海玲应该是 ...</blockquote>
 这还挺roselia前期和ras前期的，我们是正经乐队，不是来喝茶聊天嘻嘻哈哈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 10254#       发表于 2025-1-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243572&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-22 09:22</a>
+现在看母鸡卡的是不是大部分都只看过MyGO，这几天看到n次“母鸡卡动画没有经纪人没有合同是为了符合邦多利 ...</blockquote>
+扩圈出去就后确实不少没看过邦邦的来看了。。让人去补老作品也不是什么人都会去看。
+
+感觉是他们把拉拉的经验带过去了。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 10255#       发表于 2025-1-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243572&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-22 09:22</a>
+
+现在看母鸡卡的是不是大部分都只看过MyGO，这几天看到n次“母鸡卡动画没有经纪人没有合同是为了符合邦多利 ...</blockquote>
+哪怕只看mygo也应该知道存在经纪人的，喵梦蹭ako流量那集后面rinrin就说了要先和晴海同学说一下，然后一般翻译会有注释此时roselia已经出道，晴海是她们的经纪人
+
+*****
+
+####  ml1642879  
+##### 10256#       发表于 2025-1-22 09:33
+
+请脑补台长嗓音阅读这段话：虽然不像隔壁某个乐队那个包容成员们一切任性与音乐性的异世界来客，但邦多利里面还是有经纪人的
+
