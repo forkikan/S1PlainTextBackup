@@ -8393,3 +8393,60 @@ Gh4b27CbAAARAbn.jpg
 
 所罗门王-夏亚？
 
+
+*****
+
+####  刺客ares  
+##### 5203#       发表于 2025-1-22 17:08
+
+书拉密女原著是个深色皮肤温柔牧羊女，
+
+沙仑玫瑰其实也不是大家印象里大红大艳的那种花朵，
+
+而是一种沙丘地衣类植物，在雅歌中是书拉密女自谦平凡的比喻。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+所罗门王就不知道指代谁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 5204#       发表于 2025-1-22 17:09
+
+这么看感觉沙伦玫瑰是拉拉，鸭子死前“看到了时间”可能是爆炸和拉拉连接上了，这个时间线两人虽素未谋面但依然能产生共鸣
+
+*****
+
+####  Gysumitka  
+##### 5205#       发表于 2025-1-22 17:09
+
+夏亚的书拉密女只能是拉拉了，总不能是尼娅安吧（
+
+*****
+
+####  0aleph37  
+##### 5206#       发表于 2025-1-22 17:10
+
+并，并非不可能？
+
+喵安渴爱这点要是展开的话…
+
+*****
+
+####  Gysumitka  
+##### 5207#       发表于 2025-1-22 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248032&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 17:10</a>
+并，并非不可能？
+
+喵安渴爱这点要是展开的话…</blockquote>
+鸭子又要出来拐小女孩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 5208#       发表于 2025-1-22 17:12
+
+鸭子又要开始了吗<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
