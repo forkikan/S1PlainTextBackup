@@ -891,3 +891,20 @@ https://b23.tv/k9LyzXw
 
 说到底祸根是母鸡卡成立时埋下的，祥子要是换个姿势拉喵梦入队恐怕不至于喵梦这么造反<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 10449#       发表于 2025-1-23 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251084&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-23 00:31</a>
+
+其实一个个人观点的暴论，恰恰是速通武道馆这个即便是作为少女乐队番世界观也前大概无古人后可能很难有来者 ...</blockquote>
+我在前面就说，一个很关键的问题是到底怎么速通武道馆的，但是这个问题被动画彻底回避了
+
+究竟是丰川家之力，还是在这个世界这种风格有如催眠APP，还是其他什么原因，这个过程是完全没有解释也无法解释的
+
+结果楼里的很多人纷纷表示“邦世界说能就能”“是个少女乐队就能速通武道馆”
+
+行吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
