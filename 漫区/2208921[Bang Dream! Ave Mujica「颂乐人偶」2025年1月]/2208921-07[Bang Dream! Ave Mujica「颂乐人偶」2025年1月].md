@@ -17256,3 +17256,37 @@ syl谢谢
 
 只有祥子不享受“卖惨”“初衷是好的”“她没有上帝视角”的纸片人权利，其他任何角色都可以用这三板斧
 
+
+*****
+
+####  hol_effect  
+##### 10353#       发表于 2025-1-22 17:00
+
+蚌埠住了，牢猫这么瞎搞没出事的原因，是有人熬夜改剧本台上临时救场，有人被逼出第二人格在这托底，能不能有点贡献之后再来邀功，利益绑定不等于有团魂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 10354#       发表于 2025-1-22 17:00
+
+你们都给喵梦补了多少设定了，现有的剧情不看，还脑补了一堆有的没的，很难说是不是先有结论再找的细节。
+
+*****
+
+####  天空塔书记官  
+##### 10355#       发表于 2025-1-22 17:01
+
+ 本帖最后由 天空塔书记官 于 2025-1-22 17:02 编辑 
+
+那建议去翻翻我楼上对睦祥关系性和莫提斯本质的暴论，看看我有黑过祥子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  osore  
+##### 10356#       发表于 2025-1-22 17:04
+
+欲戴15大必承其重<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
