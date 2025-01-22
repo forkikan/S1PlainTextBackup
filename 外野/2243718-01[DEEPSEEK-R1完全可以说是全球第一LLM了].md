@@ -846,3 +846,12 @@ deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  不让用大写  
+##### 76#       发表于 2025-1-22 09:54
+
+试了一下我想要的某种效果，思考的过程挺有意思的可以学习，但结果是无效的，
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">可能确实做不出来，其他几家也是说一大堆实测无效
+

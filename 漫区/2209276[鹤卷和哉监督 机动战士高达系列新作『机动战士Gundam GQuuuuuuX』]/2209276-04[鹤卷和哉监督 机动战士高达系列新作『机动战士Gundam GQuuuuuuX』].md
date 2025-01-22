@@ -6729,3 +6729,25 @@ kick back的mv和电锯人有什么联系吗
 按照TV篇幅算是已经播了四集，比起水魔还是差不少，水魔还有个高达TV复活的buff ...</blockquote>
 这哪是一回事儿，gqx这儿绝大多数人可都看不到啊
 
+
+*****
+
+####  双菜  
+##### 5064#       发表于 2025-1-22 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243821&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-1-22 09:47</a>
+这哪是一回事儿，gqx这儿绝大多数人可都看不到啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看不到正片不代表看不到剧透，现在讨论的不也都是两集后的发展
+
+
+*****
+
+####  虛無迴廊  
+##### 5065#       发表于 2025-1-22 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243786&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-1-22 09:44</a>
+那修司难道是无家可归的nt的人设吗
+
+—— 来自 OPPO PDNM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+修司不接地气，只听高达的话，是机械的机械<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
