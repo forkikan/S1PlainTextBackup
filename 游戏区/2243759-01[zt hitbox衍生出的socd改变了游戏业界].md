@@ -532,3 +532,34 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 我也觉得改下代码就解决的问题, 把按键玩家拉低到摇杆玩家同一水平就行 float X_Axis = 0.0f;  void Update()  {     // Convert key press to axis     const float MaxChange = 0.5f;          if (Pressed(Left))     {         X_Axis -= MaxChange;     }          if (Pressed(Right))     {         X_Axis += MaxChange;     }          X_Axis = Mathf.Clamp(X_Axis, -1.0f, 1.0f);          // Game Logic     if (X_Axis &lt; -1.0f)     {         // Do Left Actions     }     else if (X_Axis &gt; 1.0f)     {         // Do Right Actions     } }复制代码
 
+
+*****
+
+####  无动于衷  
+##### 47#       发表于 2025-1-22 14:21
+
+昨天我试了试自己的hitbox 不仅46=0 28也等于0 甚至按住2点按8都只有回中效果 这是彻底断了我的作弊念想了是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cosx  
+##### 48#       发表于 2025-1-22 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246526&amp;ptid=2243759" target="_blank">无动于衷 发表于 2025-1-22 14:21</a>
+昨天我试了试自己的hitbox 不仅46=0 28也等于0 甚至按住2点按8都只有回中效果 这是彻底断了我的作弊念想了 ...</blockquote>
+设置里一般都有socd开关
+
+
+*****
+
+####  TheOccuria  
+##### 49#       发表于 2025-1-22 14:24
+
+ 本帖最后由 TheOccuria 于 2025-1-22 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246526&amp;ptid=2243759" target="_blank">无动于衷 发表于 2025-1-22 14:21</a>
+
+昨天我试了试自己的hitbox 不仅46=0 28也等于0 甚至按住2点按8都只有回中效果 这是彻底断了我的作弊念想了 ...</blockquote>
+如果是小厂/个人自制的话，应该可以调的，找一下买的时候给的说明书看看
+
+如果是大厂的，拳霸一类的，找客服要老固件吧
+

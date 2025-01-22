@@ -180,3 +180,11 @@ steam评价不到90跟好评扯不上边
 —— 来自 S1Fun</blockquote>
 你这不到90一竿子打翻的人有点多啊，看了下Doom永恒中文好评率88%，全语言刚刚91%<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断恶之剑  
+##### 194#       发表于 2025-1-22 14:23
+
+2016 我是一口气通关的 永恒那是玩玩停停 还是喜欢2016 希望这部能让我杀个爽
+

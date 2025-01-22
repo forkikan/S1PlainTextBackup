@@ -356,3 +356,30 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 还有EN也开始玩了
 
+
+*****
+
+####  holofan  
+##### 10709#       发表于 2025-1-21 23:22
+
+<img src="https://img.saraba1st.com/forum/202501/21/232252a7vy8dnqkbknkkkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 23:22 上传
+
+*****
+
+####  holofan  
+##### 10710#       发表于 2025-1-22 14:20
+
+<img src="https://img.saraba1st.com/forum/202501/22/142046st9j5x99itfwdxdd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 14:20 上传
+
