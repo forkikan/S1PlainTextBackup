@@ -71,3 +71,18 @@
 
 无双化设计才更靠拢DOOM应该有的实力
 
+
+*****
+
+####  D-JoeII  
+##### 186#       发表于 2025-1-22 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245869&amp;ptid=2184766" target="_blank">wthall 发表于 2025-1-22 13:13</a>
+
+现在谁玩游戏看媒体评分啊，不都是自己玩的才作数么</blockquote>
+那Steam評價絕大部份都80往上的,包括第3方的潛行者2
+
+低評價那倆一個是T社不做事的BO6
+
+一個是首發兩天伺服器爆了的模擬飛行
+

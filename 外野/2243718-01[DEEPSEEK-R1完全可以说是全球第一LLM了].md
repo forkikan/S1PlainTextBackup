@@ -1043,3 +1043,13 @@ nb，感觉已经可以独立写小论文了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  stanzgy  
+##### 86#       发表于 2025-1-22 13:20
+
+api实在是太便宜了，让我一点本地化部署的想法的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
