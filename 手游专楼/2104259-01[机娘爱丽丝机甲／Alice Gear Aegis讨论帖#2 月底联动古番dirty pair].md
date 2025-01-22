@@ -162,3 +162,17 @@
 
 大袖子跟身上不搭啊，又不是可脱的外套。
 
+
+*****
+
+####  冰风血羽  
+##### 1356#       发表于 2025-1-22 18:13
+
+ 本帖最后由 冰风血羽 于 2025-1-22 18:15 编辑 
+
+战女高跟小裤裤都遥遥无期，石头用完了又后悔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有这次华哥的战斗语音听着声线不太对吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

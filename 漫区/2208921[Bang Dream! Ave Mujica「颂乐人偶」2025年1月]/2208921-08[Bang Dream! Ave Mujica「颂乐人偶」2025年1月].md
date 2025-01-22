@@ -155,3 +155,47 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  基神的强袭自由  
+##### 10377#       发表于 2025-1-22 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248262&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-22 17:33</a>
+
+祥子这种带点理想主义者的人设，我是很期待不向莫提斯低头，主动离开母鸡卡的，变质了的mujica确实没待下去 ...</blockquote>
+张祥子一个人回山里了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 10378#       发表于 2025-1-22 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248262&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-22 17:33</a>
+
+祥子这种带点理想主义者的人设，我是很期待不向莫提斯低头，主动离开母鸡卡的，变质了的mujica确实没待下去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别吧，牢祥前脚说只剩mujica了，后脚退队有点太离谱了。
+
+况且这么一搞那真成万恶之源了。
+
+*****
+
+####  山ノ内花音  
+##### 10379#       发表于 2025-1-22 18:13
+
+mujica可能会倒闭 但绝不会变质.jpg
+
+*****
+
+####  osore  
+##### 10380#       发表于 2025-1-22 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">大祥老师说话哪次不吃书的，教教我
+
+*****
+
+####  KLHgg  
+##### 10381#       发表于 2025-1-22 18:14
+
+全国巡演结束前祥子敢退吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
