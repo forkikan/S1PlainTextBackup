@@ -7480,3 +7480,13 @@ NT力量都来自于高维度的根源
 
 2025-1-22 12:52 上传
 
+
+*****
+
+####  王九的哥哥  
+##### 5134#       发表于 2025-1-22 13:00
+
+那毕竟他们那个clan名就是博美……
+
+对战开始前介绍双方的时候看比赛的所有人都在吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
