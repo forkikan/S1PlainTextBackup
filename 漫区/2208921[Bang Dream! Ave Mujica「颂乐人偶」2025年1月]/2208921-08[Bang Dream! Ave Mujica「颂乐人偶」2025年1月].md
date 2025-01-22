@@ -858,3 +858,22 @@ https://b23.tv/k9LyzXw
 母亲没那么快去世，差不多初三那会才走的</blockquote>
 那真相就是拖延症唄
 
+
+*****
+
+####  星天观测  
+##### 10446#       发表于 2025-1-23 00:19
+
+杀吻初动在你邦单曲初动里排第八，前五是萝，第六是ppp，第七是ras，第九是ppp，第十好像是萝
+
+不过现在能卖这个数字也是很不错的了
+
+*****
+
+####  HGCG+  
+##### 10447#       发表于 2025-1-23 00:19
+
+今天就有第四集看了，小伙伴们开不开心啊<img src="https://p.sda1.dev/21/c5023badb431780d4b9992ae0d88a462/-68a3875ae280a93f.gif" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
