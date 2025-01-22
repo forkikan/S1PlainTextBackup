@@ -194,3 +194,18 @@
 
 是的就是肉色（或半透明）的布，明显有缝合线。所以小学生组也没有规制。不过高叉是真高叉小学生组居然没事
 
+
+*****
+
+####  冰风血羽  
+##### 1359#       发表于 2025-1-23 04:07
+
+ 本帖最后由 冰风血羽 于 2025-1-23 04:09 编辑 
+
+<img src="https://p.sda1.dev/21/5ebe6f7722868e2fff5fb26503b55d93/image.jpg" referrerpolicy="no-referrer">
+加藤大师画的寡妇就是好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这次的周年衣服肉色伪造裸露、肥大袖套or编织绑带、独眼眼罩，个个都是容易褒贬不一可说是小众的设计。光环倒还可以，结果还不是每一种配一个，3光环+4眼罩……设计师很大胆啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
