@@ -343,3 +343,37 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  osore  
+##### 10398#       发表于 2025-1-22 18:44
+
+大祥老师血条厚，包准撑到13集，请组织放心<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 10399#       发表于 2025-1-22 18:46
+
+原来把祥子作为漩涡中心就等于恶意贬损喵梦吗 
+柿本广大可能没有这么清奇的脑回路吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10400#       发表于 2025-1-22 18:49
+
+真是气笑了，那我之前发的那些文字又哪点贬损大祥老师了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  akiomn  
+##### 10401#       发表于 2025-1-22 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说爱喵梦爱得深沉，就喵梦前三集干的这些破事我都不知道有什么好洗的，声优出来都只能说喵梦是好孩子后面会让观众喜欢上的
+要不是祥子人气最高，黑子也最多，就喵梦前三集干的那些破事，被车的最多就是她了
+

@@ -1139,3 +1139,16 @@ api实在是太便宜了，让我一点本地化部署的想法的都没有
 推上随便看了下，英文大部分是技术性讨论，偶尔看到几个不懂技术的拿DEEPSEEK无法回答某些国内法规限制的问 ...</blockquote>
 我觉得日本人是最弱智的，明明自己屁制裁没受，但是在AI方面完全没有作为，other中的other，却满是优越感的指点，活像个太监讨论怎么生小孩一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断片集  
+##### 94#       发表于 2025-1-22 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239740&amp;ptid=2243718" target="_blank">sellboy 发表于 2025-1-21 17:27</a>
+
+联网搜索的模型是V3</blockquote>
+r1可以联网搜索，两个可以一起开了
+
+你两个都点上是同时有网络资料和cot输出的
+
