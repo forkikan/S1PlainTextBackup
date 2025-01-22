@@ -7701,3 +7701,24 @@ UC里是有正经超能力者的，天使之轮里都能搜刮到上万个呢
 
 刚才看评论区好像订正了，好像是武内和经验值去的，看电影居然没带蘑菇
 
+
+*****
+
+####  王留美  
+##### 5153#       发表于 2025-1-22 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246082&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-22 13:35</a>
+ TM这两位冒出来我是没想到的，不知道是冲着khara还是gundam去的</blockquote>
+请了很多人
+wotafa也去了
+还有一堆管人
+
+*****
+
+####  psycho_Gadfly  
+##### 5154#       发表于 2025-1-22 13:57
+
+<blockquote>0aleph37 发表于 2025-1-22 13:47
+女官颜值好高</blockquote>
+Suki 希望戏份多点
+
