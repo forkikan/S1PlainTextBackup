@@ -7777,3 +7777,70 @@ wotafa也去了
 
 那你楼确实讨论纯度已经是最高的了比隔壁黄色论坛强百倍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 5160#       发表于 2025-1-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246533&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-22 14:22</a>
+
+那你楼确实讨论纯度已经是最高的了比隔壁黄色论坛强百倍了</blockquote>
+我实在没搞懂隔壁是什么狗屎讨论习惯
+
+屁点事都要单独发一个帖子，甚至同一个人发两条新闻都要开两个帖子，然后十几楼甚至几楼就沉了
+
+再加上现在特殊时期七天有五天半被洗版，完全没有去那边讨论敢达的动力了
+
+
+*****
+
+####  NBGI  
+##### 5161#       发表于 2025-1-22 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246468&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-22 14:14</a>
+
+前两天B站搬运的解禁PV下面有评论，说这次是bg还是百合时候，我很想直球开喷的。UC背景下的新高达TV动画， ...</blockquote>
+B站算了吧，都是跟着瞎起哄的小鬼，看了也生气
+
+*****
+
+####  Steel.Haze  
+##### 5162#       发表于 2025-1-22 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246244&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-22 13:49</a>
+
+如果沙伦玫瑰是从正史传送过来平行世界79年的精神骨架的话
+
+那不是应该还有个93年的夏亚(池田秀一版本)一起 ...</blockquote>
+沙伦玫瑰如果来自正史的话，大概率93年两台机体残骸的一部分。这也解释了为什么吉翁精神力装置小型化速度加快了。
+
+*****
+
+####  0aleph37  
+##### 5163#       发表于 2025-1-22 14:28
+
+尼姑庵现在还没有GQX的专楼
+
+虽然有专楼也很容易溢出……
+
+*****
+
+####  王留美  
+##### 5164#       发表于 2025-1-22 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246603&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-22 14:28</a>
+
+沙伦玫瑰如果来自正史的话，大概率93年两台机体残骸的一部分。这也解释了为什么吉翁精神力装置小型化速度 ...</blockquote>
+看设定红敢达的阿尔法塞克谬是直接加在驾驶舱周围了
+
+怕不是直接拆牛的来用哦
+
+
+*****
+
+####  kirakira~  
+##### 5165#       发表于 2025-1-22 14:33
+
+比起cp，我现在更好奇修司的欲望到底是什么。喵安是爱，麻球是刺激，这些都很好理解也很青春期，但修司...你不会跟我说是高达吧。本作说是欲望漩涡的故事，感觉搞清楚修司的欲望还挺重要的
+
