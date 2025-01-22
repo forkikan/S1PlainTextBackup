@@ -643,3 +643,23 @@ jk网红只在jk内部比较流行吧
 
 祥子要是真的又跑路一次那怕不是真的被初华那句成员退出就是解散（再次）给狠扎一刀，必不会跑路的，只能呆在团里看着am变成她不喜欢又无力改变的样子才有趣呐，上次就第一个跑路，这次总得做那个最负责的人了吧，am要散也应该是外部原因比如事务所看睦单飞更有价值给直接拆了，再由祥子之手重新拼回去
 
+
+*****
+
+####  玖羽  
+##### 10424#       发表于 2025-1-22 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249658&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-22 20:21</a>
+
+jk网红只在jk内部比较流行吧
+
+而且月之森大小姐都认可，还是有点含金量的吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/22/204132fnbfrib1bw88srb0.jpg" referrerpolicy="no-referrer">
+
+<strong>063.jpg</strong> (123.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 20:41 上传
+

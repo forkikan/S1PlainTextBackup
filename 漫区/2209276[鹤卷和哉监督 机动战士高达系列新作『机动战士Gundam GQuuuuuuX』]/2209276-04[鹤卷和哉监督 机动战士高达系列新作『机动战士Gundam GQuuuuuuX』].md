@@ -8648,3 +8648,13 @@ f91的比eva早啊
 
 这个[沙伦的玫瑰]算是2次neta吧，关系有点远了
 
+
+*****
+
+####  Gysumitka  
+##### 5226#       发表于 2025-1-22 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249751&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 20:33</a>
+这个[沙伦的玫瑰]算是2次neta吧，关系有点远了</blockquote>
+图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要网上圣经相关内容太多了，难以筛选。看看别人的分析
+
