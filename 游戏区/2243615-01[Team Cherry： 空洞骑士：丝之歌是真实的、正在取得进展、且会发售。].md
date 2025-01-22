@@ -445,3 +445,16 @@ TC的核心成员就3个人吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Antidote丶  
+##### 52#       发表于 2025-1-22 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246014&amp;ptid=2243615" target="_blank">一个陆仁贾 发表于 2025-1-22 13:27</a>
+
+不是说索尼投资了吗，投资那么久了也不要回报，索尼真乃大善人
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+微软不是索尼吧
+
