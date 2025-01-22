@@ -7171,3 +7171,21 @@ wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp
 <img src="https://p.sda1.dev/21/bfe78008edf15562ff162eb77ba0235a/image.jpg" referrerpolicy="no-referrer">
 [@tsubo_jiro](https://x.com/tsubo_jiro/status/1881873299246088617)
 
+
+*****
+
+####  Toby_dak  
+##### 5110#       发表于 2025-1-22 11:42
+
+<blockquote>引用第5052楼psycho_Gadfly于2025-01-22 10:15发表的  :
+
+当年追泥水楼还是挺有乐子的，虽然泥水看了几集就弃了但不希望新高达沦为豚厨战场。。。毕竟冲着前面40分......</blockquote>
+鉴于国内大多数还是云的阶段……
+
+如果懂日语和能翻墙的话，可以看看前天マフィア梶田的节目。他和那天的嘉宾フクダーダ都二刷了，厨力大放出的讨论。 他还注意到0085SIDE6里某间土木建筑公司，是在EVA新剧场版出现过。
+[https://www.youtube.com/live/JKYe5TC6VRE?si=rvDlAArEpVXe2yLK](https://www.youtube.com/live/JKYe5TC6VRE?si=rvDlAArEpVXe2yLK)
+
+期待一下他和中村下期わしゃがなTV会不会聊。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

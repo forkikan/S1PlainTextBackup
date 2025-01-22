@@ -16438,3 +16438,70 @@ facta fugis facienda petis.
 咋莫小姐一点都不清算喵梦啊</blockquote>
 都是支持舞台表演的，显然是一边的。
 
+
+*****
+
+####  新HGCG  
+##### 10286#       发表于 2025-1-22 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244714&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-22 11:21</a>
+
+咋莫小姐一点都不清算喵梦啊</blockquote>
+睦疯子自己都说“喵梦说得对”了
+
+*****
+
+####  huxiaopao163  
+##### 10287#       发表于 2025-1-22 11:34
+
+所以第五话不还是在正常演出嘛，而且似乎还是欣欣向荣的感觉啊。我还以为第四话炸了个大的要暂时歇业程度的呢。
+也许第四集大的就是莫老师库跌塔成功，小祥下台的内容？
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  swessia  
+##### 10288#       发表于 2025-1-22 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">行吧粉随正主，莫小姐都这么说我也不清算喵梦了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">祝你幸福
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  哈曼的YY  
+##### 10289#       发表于 2025-1-22 11:41
+
+感觉莫姐和大喵 可能就像科隆尊和滨面吧
+
+*****
+
+####  只会双持开拓者  
+##### 10290#       发表于 2025-1-22 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244480&amp;ptid=2208921" target="_blank">Liza 发表于 2025-1-22 11:02</a>
+日本乐队搞小剧场的还是挺多的，特别是视觉系那边。还有前面有人提到的sound horizon。
+
+曾经有个乐队叫m ...</blockquote>
+首先是gackt，其次gackt离团是与公司管理层有冲突，乐队其余的人宣布离开公司自己搞了独立乐队，不存在解散
+
+*****
+
+####  septer  
+##### 10291#       发表于 2025-1-22 11:42
+
+情报哥是热门动画不得不品的一环
+
+*****
+
+####  哈曼的YY  
+##### 10292#       发表于 2025-1-22 11:43
+
+标题全句是
+
+你逃离已成，追逐未成；你所求之地
+
+需穿越世界，此地却在你手里。 
+
