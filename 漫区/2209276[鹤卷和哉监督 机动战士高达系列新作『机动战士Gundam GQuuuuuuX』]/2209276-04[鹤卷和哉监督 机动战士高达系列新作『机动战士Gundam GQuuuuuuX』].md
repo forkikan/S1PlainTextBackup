@@ -6614,3 +6614,21 @@ kick back的mv和电锯人有什么联系吗
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gamedreamer  
+##### 5051#       发表于 2025-1-22 07:39
+
+楼里的豚豚疑似有点极端了.jpg
+想别的就不说了，想着把牢修送走然后让喵安开红高达真的有任何合理性吗，结合歌词翻译的话，感觉这歌更像是在唱修司和麻球还有喵安他们三个人的相遇<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  YU_JI  
+##### 5052#       发表于 2025-1-22 07:51
+
+这OST，电子浓度爆棚了，尤其喜欢军团战那首
+
