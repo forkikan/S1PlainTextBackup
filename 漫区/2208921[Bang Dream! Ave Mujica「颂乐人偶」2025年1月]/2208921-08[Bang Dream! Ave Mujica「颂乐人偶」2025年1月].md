@@ -877,3 +877,17 @@ https://b23.tv/k9LyzXw
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  pokemon最爱  
+##### 10448#       发表于 2025-1-23 00:31
+
+其实一个个人观点的暴论，恰恰是速通武道馆这个即便是作为少女乐队番世界观也前大概无古人后可能很难有来者的成就才是母鸡卡走音乐性路线的最大障碍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+因为这实际上意味着母鸡卡自身的根基并不牢靠，成立时间尚短，是观众视角下不明原因（比如说事务所和赞助商看在初华和睦的话题性上强推，比如喵梦暗示身份将自身的J**们对乐队进行引流）爆火的产物。而不是积累了一段时间有了牢固的基本盘（稳定的死忠粉群体）后一炮走红获得人气的。
+
+在这种情况下坚持理想主义的音乐性的祥子无法说服本来就是被祥子用商业价值拉进队伍的喵梦太正常了。
+
+说到底祸根是母鸡卡成立时埋下的，祥子要是换个姿势拉喵梦入队恐怕不至于喵梦这么造反<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
