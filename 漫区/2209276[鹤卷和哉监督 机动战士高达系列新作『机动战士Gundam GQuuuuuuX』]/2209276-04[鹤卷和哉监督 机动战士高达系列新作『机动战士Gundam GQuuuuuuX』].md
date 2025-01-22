@@ -8467,3 +8467,22 @@ Gh4b27CbAAARAbn.jpg
 
 所罗门化身牧人-&gt;夏亚变成小螃蟹放牧修司羊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 5211#       发表于 2025-1-22 17:28
+
+ 本帖最后由 刺客ares 于 2025-1-22 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248111&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-1-22 17:17</a>
+
+有一说一冷静下来分析应该是找麻球(疑似莎伦的玫瑰)对应的人吧
+
+—— 来自 OPPO PDNM00, Android 12上的 S1 ...</blockquote>按照原典的外观描述那沙仑的玫瑰就不是玛秋了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过观众看到玫瑰这个字眼第一反应肯定还是玛秋那头红发吧？
+
+不知道榎戸gg这块是怎么设置的
+
+但是按照特异且强大的NT能力，觉得日常生活虚假的人设，和玫瑰描述非常相似的发型，确实有忽略肤色将玛秋设置为沙仑玫瑰的可能性
+
