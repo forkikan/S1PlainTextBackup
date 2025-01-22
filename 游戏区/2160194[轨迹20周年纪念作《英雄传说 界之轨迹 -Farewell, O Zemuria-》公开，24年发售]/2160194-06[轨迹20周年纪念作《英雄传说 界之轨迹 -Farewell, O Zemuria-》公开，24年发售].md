@@ -32,3 +32,15 @@ ost好像是今天出，不知道什么时间有资源
 
 喷了 视频设置.exe 去哪了
 
+
+*****
+
+####  ravend233  
+##### 7451#       发表于 2025-1-22 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250105&amp;ptid=2160194" target="_blank">aimujie 发表于 2025-1-22 21:32</a>
+ost好像是今天出，不知道什么时间有资源</blockquote>
+天使动漫今天早上就有hires了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
