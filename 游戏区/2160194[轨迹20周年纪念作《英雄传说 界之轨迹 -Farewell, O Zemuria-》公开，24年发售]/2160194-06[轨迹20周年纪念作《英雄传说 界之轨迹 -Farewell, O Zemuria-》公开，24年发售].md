@@ -79,3 +79,21 @@ ost好像是今天出，不知道什么时间有资源</blockquote>
 
 直接就出吗
 
+
+*****
+
+####  KevinGraham  
+##### 7456#       发表于 2025-1-23 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250956&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-23 00:03</a>
+2k全高 120帧左右 4070ti</blockquote>
+哦确实可以开更高帧数直接看能跑多少的，算了不重要（
+
+
+*****
+
+####  吴怀在  
+##### 7457#       发表于 2025-1-23 00:13
+
+话说1660ti能跑多少帧？老家电脑是g4560配1660ti，过年期间只能用这台玩
+
