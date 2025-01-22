@@ -151,3 +151,17 @@ rog ally玩博得3，1080p30帧，插帧到90。
 
 但是这个对非常吃CPU的PS3模拟器好像没有用，我战神升天开三倍插帧依然还是20多帧，没法玩。
 
+
+*****
+
+####  naclken.  
+##### 71#       发表于 2025-1-23 00:46
+
+ 本帖最后由 naclken. 于 2025-1-23 00:49 编辑 
+
+好像不支持RPG大师VX啊，kirikiri2也不行？
+
+只要同时运行，软件直接崩溃
+
+还把我鼠标给干没了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

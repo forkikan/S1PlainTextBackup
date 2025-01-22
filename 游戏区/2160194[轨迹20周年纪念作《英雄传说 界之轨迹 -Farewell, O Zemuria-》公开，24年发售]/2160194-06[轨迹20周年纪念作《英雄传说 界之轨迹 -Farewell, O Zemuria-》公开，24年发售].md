@@ -97,3 +97,21 @@ ost好像是今天出，不知道什么时间有资源</blockquote>
 
 话说1660ti能跑多少帧？老家电脑是g4560配1660ti，过年期间只能用这台玩
 
+
+*****
+
+####  kenqqex  
+##### 7458#       发表于 2025-1-23 00:46
+
+<img src="https://img.saraba1st.com/forum/202501/23/004605acq6jd1bdkujtpcz.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (458.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 00:46 上传
+
+一本满足
+
+睡觉
+

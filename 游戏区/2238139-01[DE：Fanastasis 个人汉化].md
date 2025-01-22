@@ -936,3 +936,27 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ziyuan327  
+##### 87#       发表于 2025-1-23 00:47
+
+ 本帖最后由 ziyuan327 于 2025-1-23 00:49 编辑 
+
+谁能告诉我，大圣堂里，那个第一圣堂中央彩绘玻璃，太阳的放向有秘密，到底在哪里。我快把那个破圣堂全踩一遍都没找到。
+
+ 好吧，找到了，那个拨号盘的数字是多少，这是某种彩蛋吗？
+
+
+*****
+
+####  alleriawr9  
+##### 88#       发表于 2025-1-23 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251139&amp;ptid=2238139" target="_blank">ziyuan327 发表于 2025-1-23 00:47</a>
+谁能告诉我，大圣堂里，那个第一圣堂中央彩绘玻璃，太阳的放向有秘密，到底在哪里。我快把那个破圣堂全踩一 ...</blockquote>
+流程到了会给的，游戏里这种密码盘很多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
