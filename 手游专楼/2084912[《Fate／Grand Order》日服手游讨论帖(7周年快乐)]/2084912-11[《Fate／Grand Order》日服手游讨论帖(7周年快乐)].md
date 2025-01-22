@@ -11389,3 +11389,14 @@ TMD 太狗了</blockquote>
 
 奥伯龙上次复刻抽出来后天天带着打白纸本....竟然这就绊10了...也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16159#       发表于 2025-1-22 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247613&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-1-22 16:24</a>
+
+奥伯龙上次复刻抽出来后天天带着打白纸本....竟然这就绊10了...也太快了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奥博龙用起来羁绊涨的飞快 
+

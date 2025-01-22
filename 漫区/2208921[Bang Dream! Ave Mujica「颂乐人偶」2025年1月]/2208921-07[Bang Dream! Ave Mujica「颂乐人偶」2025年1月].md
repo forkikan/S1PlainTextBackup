@@ -17130,3 +17130,47 @@ Mortis对祥子的态度可以说是顺从的反面，但是Mortis让Mujica更�
 
 看了一圈NGA，海港之战又是什么高手了，PV没看出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 10344#       发表于 2025-1-22 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247636&amp;ptid=2208921" target="_blank">基神的强袭自由 发表于 2025-1-22 16:28</a>
+看了一圈NGA，海港之战又是什么高手了，PV没看出来啊</blockquote>
+看起来是个海港，穿着队服又有舞台打光
+
+*****
+
+####  GBLMikuHatsune  
+##### 10345#       发表于 2025-1-22 16:30
+
+<img src="https://img.saraba1st.com/forum/202501/22/163046sjd793xtzj5fjf3b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:30 上传
+
+*****
+
+####  基神的强袭自由  
+##### 10346#       发表于 2025-1-22 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247650&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-22 16:29</a>
+
+看起来是个海港，穿着队服又有舞台打光</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/22/163029n7uxxaizx1eizzje.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:30 上传
+
+就是这个地方吧，不细品真品不出来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+syl谢谢
+
