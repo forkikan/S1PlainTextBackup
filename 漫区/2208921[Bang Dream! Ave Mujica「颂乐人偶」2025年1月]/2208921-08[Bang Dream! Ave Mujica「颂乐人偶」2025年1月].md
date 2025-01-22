@@ -918,3 +918,11 @@ https://b23.tv/k9LyzXw
 
 萝为什么不吹出道最速武道馆，因为她们可以直接吹“还没出道的时候就上过武道馆”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 10451#       发表于 2025-1-23 01:41
+
+所以现实里要去武道馆开演唱会需要什么条件呢，有钱有档期就行吗？
+
