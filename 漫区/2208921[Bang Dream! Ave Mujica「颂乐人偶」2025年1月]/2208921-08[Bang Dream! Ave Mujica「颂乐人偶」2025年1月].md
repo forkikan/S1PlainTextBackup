@@ -936,3 +936,14 @@ https://b23.tv/k9LyzXw
 所以现实里要去武道馆开演唱会需要什么条件呢，有钱有档期就行吗？</blockquote>
 差不多，钱够就行
 
+
+*****
+
+####  ddy2811  
+##### 10453#       发表于 2025-1-23 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248612&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-22 18:06</a>
+
+祥退队的话初华睦也会退，那这个乐队也就没了</blockquote>
+那敢情好啊，大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
