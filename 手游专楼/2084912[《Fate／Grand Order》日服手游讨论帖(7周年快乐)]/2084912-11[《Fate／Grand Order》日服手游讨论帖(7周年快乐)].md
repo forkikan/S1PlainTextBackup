@@ -11589,3 +11589,14 @@ TMD 太狗了</blockquote>
 ----发送自 STAGE1 App for Android. ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月姬角色才是最猛的数值怪
 
+
+*****
+
+####  alucardcz  
+##### 16177#       发表于 2025-1-22 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249641&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-22 20:19</a>
+
+月姬角色才是最猛的数值怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你都有 欧 我少一个 太非了！
+

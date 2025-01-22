@@ -8883,3 +8883,14 @@ zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第�
 <img src="https://p.sda1.dev/21/a537c20e531bb943a3d901f1fb359e0f/image.jpg" referrerpolicy="no-referrer">
 [@inusyuei](https://x.com/inusyuei/status/1881832738128543838)
 
+
+*****
+
+####  中野梓  
+##### 5250#       发表于 2025-1-22 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250643&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-22 23:08</a>
+
+@inusyuei</blockquote>
+这俩是一个人的概率有多少？
+

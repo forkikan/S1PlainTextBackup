@@ -475,3 +475,14 @@ https://www.bilibili.com/video/BV1kvqaYfE3v
 今天昙花一现又有2699的 ...</blockquote>
 z2 extreme不是公布了么，是不是等z2比较好。尽管一点硬件配套消息都没有。
 
+
+*****
+
+####  月夜凝雪  
+##### 1377#       发表于 2025-1-22 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250686&amp;ptid=2086469" target="_blank">铅笔 发表于 2025-1-22 23:15</a>
+
+z2 extreme不是公布了么，是不是等z2比较好。尽管一点硬件配套消息都没有。 ...</blockquote>
+怕不是价格到2028年都还超过6000
+

@@ -799,3 +799,33 @@ https://b23.tv/k9LyzXw
 看了一圈NGA，海港之战又是什么高手了，PV没看出来啊</blockquote>
 现在应该可以搜几个PV解析随便看了
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 10440#       发表于 2025-1-22 23:15
+
+你邦歌曲B榜历史最好记录是多少？杀吻第一周空降二十几名在你邦算什么水平？
+
+
+*****
+
+####  卡卡布鲁根  
+##### 10441#       发表于 2025-1-22 23:18
+
+蚌埠住了
+喵梦到现在不就纯纯为了流量的炒作up嘛
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rushsong  
+##### 10442#       发表于 2025-1-22 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250690&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-22 23:15</a>
+你邦歌曲B榜历史最好记录是多少？杀吻第一周空降二十几名在你邦算什么水平？ ...</blockquote>
+不如萝ras和ppp的水平
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
