@@ -506,3 +506,40 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 喵梦的账号里还有早期的自己打鼓视频？
 
+
+*****
+
+####  厚乳果珍爽  
+##### 10413#       发表于 2025-1-22 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249264&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-22 19:27</a>
+
+祥子当初为啥是找喵梦打鼓
+
+她哪里知道喵梦打鼓厉害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双利手吧？毕竟大翔老师自己也是两把琴
+
+
+*****
+
+####  丹德里恩  
+##### 10414#       发表于 2025-1-22 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247776&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-22 16:42</a>
+
+哦真是谢天谢地了，拿逻辑去盘之前，能不能先把狂喷睦头人转头舔睦妈这个逻辑盘清楚了？大喵老师对人孩子 ...</blockquote>
+你这么会截图怎么不正面回答问题，光会反问了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">我在这楼打那么多字就没出现过<strong>团魂</strong>，也从没说过她<strong>好心眼</strong>，别急着拿词给我乱扣个什么非要洗喵梦的帽子
+
+在编剧说她真的又蠢又坏前后脚行为互相矛盾之前，我只能当她是对如何对自己更有利有一定认知的、较为自私且行为逻辑能自圆其说的角色去盘逻辑
+
+你要不想聊，只想往死里踩那真可以不聊，我省下打字的时间，你省下截图的时间，对大家都好
+
+*****
+
+####  厉飞雨  
+##### 10415#       发表于 2025-1-22 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是偷听爱音聊天的，以为大喵老师很有流量
+
