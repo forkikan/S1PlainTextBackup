@@ -830,3 +830,19 @@ DSV3没有原生多模态能力
 实测到底怎么样，网上营销号实在太多了，真真假假</blockquote>
 太他妈的恐怖了，有一种不配活着的感觉
 
+
+*****
+
+####  overflowal  
+##### 75#       发表于 2025-1-22 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67241516&amp;ptid=2243718" target="_blank">tiro_finale 发表于 2025-1-21 21:49</a>
+closeai好死
+
+deepseek这种半路出家的团队玩这么好有点意思啊，甚至都不是国内那批大模型创业公司之一 ...</blockquote>
+他们老板很有魄力和眼界，一早就囤积了很多计算资源。公司内部的结构也很有意思，谁都可以调用大量资源来验证自己的想法，每个人都没有固定的位置，这样招揽了很多能人。AI圈的人都觉得他们的研究有good tastes
+
+归根结底还是要厉害的人啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
