@@ -8866,3 +8866,11 @@ https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk
 
 想看平行卡密尔<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 5248#       发表于 2025-1-22 22:50
+
+zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第二教元素吧
+

@@ -788,3 +788,14 @@ https://b23.tv/k9LyzXw
 [http://tieba.baidu.com/p/9435898 ... e=12_16_sharecard_a](http://tieba.baidu.com/p/9435898401?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=E4F36E3FAB28DCF79C31C53D7B68888F&amp;st=1737556783&amp;client_type=1&amp;client_version=12.34.7.0&amp;sfc=copy&amp;share_from=post&amp;source=12_16_sharecard_a)
 这篇分析挺好的
 
+
+*****
+
+####  结衣小比取  
+##### 10439#       发表于 2025-1-22 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247636&amp;ptid=2208921" target="_blank">基神的强袭自由 发表于 2025-1-22 16:28</a>
+
+看了一圈NGA，海港之战又是什么高手了，PV没看出来啊</blockquote>
+现在应该可以搜几个PV解析随便看了
+
