@@ -8695,3 +8695,21 @@ f91的比eva早啊
 
 突然联想到，现在这个失踪的夏亚是不是比原本世界线更符合<strong>弥赛亚</strong>的定位，终将降临的救主
 
+
+*****
+
+####  Sliurus  
+##### 5231#       发表于 2025-1-22 21:29
+
+<img src="https://img.saraba1st.com/forum/202501/22/212905aecwosk8wzssza4o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7108.JPG</strong> (385.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 21:29 上传
+
+[https://x.com/latte_daruta2/stat ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+是这种运动短裤吗？
+
