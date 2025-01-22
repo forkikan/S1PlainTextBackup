@@ -631,3 +631,15 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 想起来00年上学的时候寝室里打拳皇我就感觉键盘比手柄好出招，如果那时候就意识到可以按这个逻辑开发手柄，我现在是不是就已经财务自由了？
 
+
+*****
+
+####  Wondering  
+##### 56#       发表于 2025-1-22 16:18
+
+ 本帖最后由 Wondering 于 2025-1-22 16:21 编辑 
+
+搞不懂楼上扣分的某人是试图证明拳头没有技术力还是试图证明维尔福没有技术力，亦或是认为这两个公司都没有技术力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两个一直以来的死对头公司同时被喷没有技术力还是挺罕见的
+
+况且这种技术原理分析跟技术力有毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扣分是真的难看
+

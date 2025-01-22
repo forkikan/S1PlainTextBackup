@@ -8233,3 +8233,57 @@ Gh4b27CbAAARAbn.jpg
 
 2025-1-22 16:16 上传
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5192#       发表于 2025-1-22 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247539&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-22 16:14</a>
+麻球最下端的头发是黑色的吧</blockquote>
+是紫红色 饱和度很高的那种 因为在发尾，打光看肯定基本在暗部显黑，总之是深色的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mad55555  
+##### 5193#       发表于 2025-1-22 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247410&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-22 15:59</a>
+
+确实，而且正史中佛拉纳冈的战后首席应该是哈曼；不过正史情况是这样，因为哈曼贵族子弟和基西莉亚一脉的 ...</blockquote>
+会有这样的可能性吗
+
+正史的夏亚在阿克西斯冲击之后没有跟阿姆罗拉拉一起升维去另一边
+
+而是穿到了时间线更早的平行UC，所以在GQX存在两个夏亚(池田秀一版和新佑树版)
+
+93夏亚阻止了这个世界线的自己杀死卡尔玛，保护拉拉不让她上战场
+
+让阿姆罗去当个工程师卖哈啰，给卡缪一个幸福的家庭，哈曼成为远离政治的普通JK
+
+并最终促成吉翁战胜联邦，以避免宇宙居民走向他所熟知的未来
+
+*****
+
+####  岸浪白野  
+##### 5194#       发表于 2025-1-22 16:22
+
+鸭神伟大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 5195#       发表于 2025-1-22 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247588&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-22 16:20</a>
+
+会有这样的可能性吗
+
+正史的夏亚在阿克西斯冲击之后没有跟阿姆罗拉拉一起升维去另一边
+
+而是穿到了时间线更 ...</blockquote>
+目前有人猜测理解是这样的，不同位面的人的灵魂在高维度是统一的，NT幽魂是高纬度的统一灵魂电离体。阿姆罗和拉拉都在79和93后完整的进入了更高维度。但是夏亚对这个世界的执拗太多了，碎片化了，拉拉在引导这些夏亚的碎片进入高纬度统一起来。不过GQX里面的引导没有成功，这个夏亚的灵魂碎片被高达的精神力装置俘获困住了。
+

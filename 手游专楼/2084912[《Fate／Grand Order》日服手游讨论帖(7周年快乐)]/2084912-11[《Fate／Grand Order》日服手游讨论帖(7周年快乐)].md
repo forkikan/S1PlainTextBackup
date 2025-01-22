@@ -11381,3 +11381,11 @@ TMD 太狗了</blockquote>
 
 变成了完全体后就这么放任咕嗒一行在眼前这么蹦跶....只会让小怪上...也不知道自己亲手上去补刀的
 
+
+*****
+
+####  森兰丸  
+##### 16158#       发表于 2025-1-22 16:24
+
+奥伯龙上次复刻抽出来后天天带着打白纸本....竟然这就绊10了...也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
