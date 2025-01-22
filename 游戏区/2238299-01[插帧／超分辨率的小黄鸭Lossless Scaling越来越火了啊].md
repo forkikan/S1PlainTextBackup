@@ -165,3 +165,26 @@ rog ally玩博得3，1080p30帧，插帧到90。
 
 还把我鼠标给干没了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  轩辕无  
+##### 72#       发表于 2025-1-23 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67178947&amp;ptid=2238299" target="_blank">Ik4ruga 发表于 2025-1-14 15:54</a>
+
+有那么好用吗 我用来玩暗黑2原版和远行星号
+
+感觉就那样(</blockquote>
+暗黑2原版有自动补帧都到你显示器最大帧的辅助插件不用这个
+
+*****
+
+####  tatara  
+##### 73#       发表于 2025-1-23 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251133&amp;ptid=2238299" target="_blank">naclken. 发表于 2025-1-23 00:46</a>
+
+为啥这些缩放工具都强制全屏啊</blockquote>
+magpie不熟，但小黄鸭有窗口化功能。而且这种工具大部分使用人群追求的就是全屏高清，窗口化放大反而是小众需求了
+
