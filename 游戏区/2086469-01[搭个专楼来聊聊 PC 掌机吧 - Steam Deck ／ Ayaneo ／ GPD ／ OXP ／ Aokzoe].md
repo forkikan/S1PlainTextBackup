@@ -417,3 +417,28 @@ GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真�
 
 退出游戏再进也无法恢复，必须得重启系统再开游戏才正常，这个有没有解决的办法呢。
 
+
+*****
+
+####  月夜凝雪  
+##### 1374#       发表于 2025-1-22 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67222525&amp;ptid=2086469" target="_blank">requiem116 发表于 2025-1-19 17:23</a>
+
+下单了微星，但是看说很拉跨不如ally
+
+要不要退单呢还没发货</blockquote>
+[https://www.bilibili.com/video/BV1kvqaYfE3v](https://www.bilibili.com/video/BV1kvqaYfE3v)
+
+看这个评测貌似现在性能差不多，
+
+我最近也在烦恼这两台，
+
+INTEL的显卡驱动发挥不出性能，
+
+而ally一代存在烧卡槽风险就算不用TF卡也感觉有点膈应，
+
+昨天发奖金今天貌似已经不发货了我只能等年后，
+
+你的退了吗？还是继续拿来用？想知道一般使用的感想
+

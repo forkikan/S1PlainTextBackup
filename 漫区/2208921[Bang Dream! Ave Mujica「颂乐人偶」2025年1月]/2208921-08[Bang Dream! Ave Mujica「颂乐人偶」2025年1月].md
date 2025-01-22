@@ -779,3 +779,12 @@ https://b23.tv/k9LyzXw
 根据这片不讲废话的思路，祥小时候要给母亲的惊喜可能是灵感来自人偶设计的小剧场，和睦一起表演。但因为母 ...</blockquote>
 母亲没那么快去世，差不多初三那会才走的
 
+
+*****
+
+####  山ノ内花音  
+##### 10438#       发表于 2025-1-22 22:40
+
+[http://tieba.baidu.com/p/9435898 ... e=12_16_sharecard_a](http://tieba.baidu.com/p/9435898401?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=E4F36E3FAB28DCF79C31C53D7B68888F&amp;st=1737556783&amp;client_type=1&amp;client_version=12.34.7.0&amp;sfc=copy&amp;share_from=post&amp;source=12_16_sharecard_a)
+这篇分析挺好的
+
