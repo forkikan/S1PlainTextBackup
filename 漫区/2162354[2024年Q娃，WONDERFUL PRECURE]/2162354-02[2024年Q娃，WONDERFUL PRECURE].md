@@ -374,3 +374,26 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  用户名1  
+##### 2751#       发表于 2025-1-22 20:24
+
+说教味太浓了
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hisousihou  
+##### 2752#       发表于 2025-1-23 07:02
+
+其实我从前几话开始就不报期待
+要不是突然发现猫猫狗狗特别可爱我还压根不会看<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+不过目的达成了，猫狗确实好。
+其他内容也确实完全没有满足我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+评分区只能给个0
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
