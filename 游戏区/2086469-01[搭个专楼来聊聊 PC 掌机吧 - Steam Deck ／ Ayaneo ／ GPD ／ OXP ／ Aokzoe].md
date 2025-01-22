@@ -461,3 +461,17 @@ https://www.bilibili.com/video/BV1kvqaYfE3v
 
 思来想去还是觉得既然不是刚需就还是再观望一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  铅笔  
+##### 1376#       发表于 2025-1-22 23:15
+
+<blockquote>requiem116 发表于 2025-1-22 23:06
+最后还是退了，2699和3199差500但是只体现在512g存储上
+
+这个的确还是觉得有点亏
+
+今天昙花一现又有2699的 ...</blockquote>
+z2 extreme不是公布了么，是不是等z2比较好。尽管一点硬件配套消息都没有。
+

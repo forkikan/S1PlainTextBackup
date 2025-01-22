@@ -8874,3 +8874,12 @@ https://x.com/latte_daruta2/status/1882016845156491640?s=46&amp;t=XH91CbxXPkTOlk
 
 zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第二教元素吧
 
+
+*****
+
+####  Gysumitka  
+##### 5249#       发表于 2025-1-22 23:08
+
+<img src="https://p.sda1.dev/21/a537c20e531bb943a3d901f1fb359e0f/image.jpg" referrerpolicy="no-referrer">
+[@inusyuei](https://x.com/inusyuei/status/1881832738128543838)
+
