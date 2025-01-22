@@ -199,3 +199,42 @@ mujica可能会倒闭 但绝不会变质.jpg
 
 全国巡演结束前祥子敢退吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 10382#       发表于 2025-1-22 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248660&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-22 18:10</a>
+别吧，牢祥前脚说只剩mujica了，后脚退队有点太离谱了。
+
+况且这么一搞那真成万恶之源了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子之前还说命运共同体呢，后脚就退c团了
+
+*****
+
+####  达达葱2  
+##### 10383#       发表于 2025-1-22 18:19
+
+<blockquote>YF31 发表于 2025-1-22 18:10
+别吧，牢祥前脚说只剩mujica了，后脚退队有点太离谱了。
+
+况且这么一搞那真成万恶之源了。 ...</blockquote>
+失去一切再从绝望的深渊爬出来才更有看头啊
+
+*****
+
+####  ml1642879  
+##### 10384#       发表于 2025-1-22 18:22
+
+Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给aniplex企划唱anisong，电视台（非富士台）放冠名带番組，真火啊。不然就只能一辈子给BanG Drean企划唱点oped，搞搞半开武道馆了
+
+*****
+
+####  天空塔书记官  
+##### 10385#       发表于 2025-1-22 18:24
+
+那我请问了，这番是叫《大祥传》还是《BanG Dream! Ave Mujica》，如果是《大祥传》的话，那就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

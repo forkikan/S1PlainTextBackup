@@ -1117,3 +1117,14 @@ api实在是太便宜了，让我一点本地化部署的想法的都没有
 —— 来 ...</blockquote>
 没看懂你想表达什么，如果你只是想在浏览器上和ai对话，可以直接 [https://chat.deepseek.com/](https://chat.deepseek.com/) 注册使用
 
+
+*****
+
+####  小野賢章  
+##### 92#       发表于 2025-1-22 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239740&amp;ptid=2243718" target="_blank">sellboy 发表于 2025-1-21 17:27</a>
+
+联网搜索的模型是V3</blockquote>
+现在深度思考和联网搜索可以一起勾选了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
