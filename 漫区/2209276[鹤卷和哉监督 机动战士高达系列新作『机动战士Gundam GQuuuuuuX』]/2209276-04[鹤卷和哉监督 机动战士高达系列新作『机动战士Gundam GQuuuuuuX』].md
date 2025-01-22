@@ -8186,3 +8186,50 @@ Gh4b27CbAAARAbn.jpg
 所以说女主还不是哈曼？一般路过JK能有这NT能力？</blockquote>
 野生nt是强的，捷多一个捡破烂的还不是能震慑哈曼
 
+
+*****
+
+####  刺客ares  
+##### 5188#       发表于 2025-1-22 16:09
+
+一个路边JK随便开欧米茄塞克缪怎么想都很奇怪吧
+
+发色和母亲又完全没有相似之处，玛秋妈是黑发啊
+
+*****
+
+####  Sliurus  
+##### 5189#       发表于 2025-1-22 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247456&amp;ptid=2209276" target="_blank">TRIScRE 发表于 2025-1-22 16:04</a>
+
+@ikuchan_kaoru</blockquote>
+这副官人设越看越带劲，希望正片戏份能多点<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虛無迴廊  
+##### 5190#       发表于 2025-1-22 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67247498&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-22 16:09</a>
+一个路边JK随便开欧米茄塞克缪怎么想都很奇怪吧
+
+发色和母亲又完全没有相似之处，玛秋妈是黑发啊 ...</blockquote>
+麻球最下端的头发是黑色的吧
+
+*****
+
+####  岸浪白野  
+##### 5191#       发表于 2025-1-22 16:16
+
+[X 上的 にわリズム：“[url]https://t.co/xS9DutQFyi](https://x.com/NiwaRhythm/status/1881950883690459591)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/22/161627tucqhztzdd3235hk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 16:16 上传
+
