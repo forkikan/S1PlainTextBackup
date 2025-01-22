@@ -16557,3 +16557,50 @@ NICONICO弹幕最后都在说要仓田负责要爱音拯救
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ddy2811  
+##### 10298#       发表于 2025-1-22 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243572&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-22 09:22</a>
+
+现在看母鸡卡的是不是大部分都只看过MyGO，这几天看到n次“母鸡卡动画没有经纪人没有合同是为了符合邦多利 ...</blockquote>
+还有觉得layer和masking水平不够或者在客套的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 10299#       发表于 2025-1-22 12:09
+
+都要小白负责了，怎么不追根溯源让ksm负责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  osore  
+##### 10300#       发表于 2025-1-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244893&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-22 11:39</a>
+
+行吧粉随正主，莫小姐都这么说我也不清算喵梦了祝你幸福
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那睦人格和莫人格打起来你听谁的啊
+
+谁赢听谁的是吧
+
+*****
+
+####  swessia  
+##### 10301#       发表于 2025-1-22 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245212&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-22 12:10</a>
+那睦人格和莫人格打起来你听谁的啊
+
+谁赢听谁的是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">坚信没有双人格，都是睦的演技
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -7261,3 +7261,96 @@ wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp
 
 2025-1-22 12:02 上传
 
+
+*****
+
+####  RE㐅ia  
+##### 5116#       发表于 2025-1-22 12:08
+
+<blockquote>空彦秋 发表于 2025-1-22 11:58
+一开始他们说top3的时候，我也怀疑修司和之前山田尚子那个片里的男角色一样，是资方硬塞的，那就确实不用 ...</blockquote>
+哪有把剧情最大疑点和关键道具给资方硬塞的角色的道理
+
+
+*****
+
+####  灵魂收割机  
+##### 5117#       发表于 2025-1-22 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245020&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 11:50</a>
+
+https://takeoekaki.fanbox.cc/posts/9228935</blockquote>
+竹说这条博美在剧中出现了，希望大家去找<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 5118#       发表于 2025-1-22 12:11
+
+麻球看着不符合年龄设定的17岁吧，感觉也就是JC？
+
+*****
+
+####  空彦秋  
+##### 5119#       发表于 2025-1-22 12:12
+
+<blockquote>RE㐅ia 发表于 2025-1-22 12:08
+哪有把剧情最大疑点和关键道具给资方硬塞的角色的道理</blockquote>
+具体出处我忘了，之前诚哥拍的那个铃芽，男主是塞进去的，然后剧本改了
+
+*****
+
+####  刺客ares  
+##### 5120#       发表于 2025-1-22 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245098&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-22 11:58</a>
+
+一开始他们说top3的时候，我也怀疑修司和之前山田尚子那个片里的男角色一样，是资方硬塞的，那就确实不用 ...</blockquote>
+top3是六台复制机那版本的初期企划案，现在会在访谈里说那就是已经废弃了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+牢修是榎户gg专门提到的角色，0085部分也写了是“以三人故事为中心”
+
+甚至谈0085设计的部分，“修司是个像高达的妖精一样的人”是作为场刊的段落大标题写在上面的
+
+真正资方硬塞角色的待遇参考倩恩
+
+
+*****
+
+####  灵魂收割机  
+##### 5121#       发表于 2025-1-22 12:15
+
+[https://x.com/lolisystem/status/1881697254450626632](https://x.com/lolisystem/status/1881697254450626632)
+<img src="https://i.miji.bid/2025/01/22/98f2b43299560079fd32eb38eeeccf6e.jpeg" referrerpolicy="no-referrer">
+
+加码！
+
+*****
+
+####  0aleph37  
+##### 5122#       发表于 2025-1-22 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245210&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-1-22 12:10</a>
+
+竹说这条博美在剧中出现了，希望大家去找</blockquote>
+第一个PV里眼镜男不就抱着吗？
+
+*****
+
+####  AvenueIII  
+##### 5123#       发表于 2025-1-22 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245073&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-22 11:56</a>
+
+修司跟喵安在以麻球为中心的三角里想要平衡一些的话，性别是不能换的，喵安是女生回避了“又是穷小子泡富 ...</blockquote>
+庵野鹤卷这帮人不是最会写青春期男孩的懵懂和性骚动的吗。FLCL的角度也好，真嗣的角度也好，我太想看这个了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  prattwhitney  
+##### 5124#       发表于 2025-1-22 12:16
+
+说实话我觉得GQuuuuX的主角机设计我很喜欢但是这个reimagined rx78就很莫名其妙了……这个比例，脑袋和腿，很多细节除了“要保持原本的rx78特征但是得变一下”这个理由之外找不出原因为啥要这么搞
+
+还不如完全推倒重来
+
