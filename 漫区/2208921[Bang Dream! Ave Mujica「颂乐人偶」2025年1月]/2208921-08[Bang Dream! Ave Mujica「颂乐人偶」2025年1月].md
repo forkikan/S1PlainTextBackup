@@ -61,3 +61,29 @@
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  厚乳果珍爽  
+##### 10367#       发表于 2025-1-22 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种商业团队，不会发展到退队解散程度的，最多是活动中止。
+
+*****
+
+####  天空塔书记官  
+##### 10368#       发表于 2025-1-22 17:51
+
+似是而非、貌合神离，A团真散的话就走了迷子的老路，没有新意就落了下乘<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 10369#       发表于 2025-1-22 17:54
+
+祥子退队有个最直接的问题，初华怎么办
+
+其次是接下来谁写歌，初华？见上一条
+
