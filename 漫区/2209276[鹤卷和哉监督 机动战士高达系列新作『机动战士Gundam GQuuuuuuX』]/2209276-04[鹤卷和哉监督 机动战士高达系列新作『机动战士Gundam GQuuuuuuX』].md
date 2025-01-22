@@ -8520,3 +8520,13 @@ Gh4b27CbAAARAbn.jpg
 
 所以GQuuuuuuX和塞了神学要素的EVA一样，本质又是一个圣经故事用机甲番的形式重新进行演绎？
 
+
+*****
+
+####  JimmyJoker  
+##### 5214#       发表于 2025-1-22 18:31
+
+...押井守什么时候夺舍了khara了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

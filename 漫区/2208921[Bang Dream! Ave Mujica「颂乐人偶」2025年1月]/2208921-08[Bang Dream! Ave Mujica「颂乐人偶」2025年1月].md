@@ -238,3 +238,61 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 10386#       发表于 2025-1-22 18:26
+
+大x传的特点是主人公对其他角色狂暴鸿儒价值观，一路爽到结局。
+泥鸡从第一集就开始吃瘪，抽陀螺抽到第五集都算乐观，早就断绝了大x传的可能性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HGCG+  
+##### 10387#       发表于 2025-1-22 18:26
+
+任何人吃瘪我都会觉得精彩，这就是这部动画的好处
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  osore  
+##### 10388#       发表于 2025-1-22 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大女主和龙傲天是不一样的
+
+*****
+
+####  桜庭千景  
+##### 10389#       发表于 2025-1-22 18:28
+
+大女主已经被当陀螺抽了三集了，接下来肉眼可见还要被抽到第五集
+
+那我缺的霸总大女主操偶师祥子这块谁给我补啊
+
+*****
+
+####  长空雁叫霜晨月  
+##### 10390#       发表于 2025-1-22 18:28
+
+说得好，这部应该叫大喵传，无脑洗无脑吹
+
+*****
+
+####  天空塔书记官  
+##### 10391#       发表于 2025-1-22 18:28
+
+但和玛丽苏文学是一致的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 10392#       发表于 2025-1-22 18:31
+
+初华快动一动啊 别打野了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
