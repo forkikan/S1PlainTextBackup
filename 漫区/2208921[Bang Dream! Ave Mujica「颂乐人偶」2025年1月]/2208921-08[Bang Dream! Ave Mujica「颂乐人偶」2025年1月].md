@@ -296,3 +296,50 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 初华快动一动啊 别打野了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 10393#       发表于 2025-1-22 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息，访谈钦定祥子是mujica故事核心，祥子做的事还真能影响其他四个，不过是直接或是间接而已
+
+
+*****
+
+####  哈曼的YY  
+##### 10394#       发表于 2025-1-22 18:41
+
+当初还以为是祥老师借宿公路片 几集换一家
+
+结果是大陀螺公路片 几集换一个人抽 还能一起抽
+
+*****
+
+####  swessia  
+##### 10395#       发表于 2025-1-22 18:42
+
+当年go十三集睦真言“祥子要坏掉了”
+鸡里等祥子发力怎么也得等把坏掉的祥子拼回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 10396#       发表于 2025-1-22 18:43
+
+拼回来之后就轮到初华抽陀螺了吧
+感觉会比莫酱还狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10397#       发表于 2025-1-22 18:43
+
+那你这话套邦邦哪个乐队都成立，ppp是ksm,R是ykn，RAS是楚平方，但企划是要卖角色的，不可能为了塑造一个角色就恶意贬损另一个角色，虽然着墨轻重有别，但都是群像剧而不是独角戏
+
+喵梦和祥子是队友而不是仇人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

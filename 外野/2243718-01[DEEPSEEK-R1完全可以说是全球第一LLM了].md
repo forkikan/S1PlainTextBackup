@@ -1128,3 +1128,14 @@ api实在是太便宜了，让我一点本地化部署的想法的都没有
 联网搜索的模型是V3</blockquote>
 现在深度思考和联网搜索可以一起勾选了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 93#       发表于 2025-1-22 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246916&amp;ptid=2243718" target="_blank">遗尿 发表于 2025-1-22 15:03</a>
+
+推上随便看了下，英文大部分是技术性讨论，偶尔看到几个不懂技术的拿DEEPSEEK无法回答某些国内法规限制的问 ...</blockquote>
+我觉得日本人是最弱智的，明明自己屁制裁没受，但是在AI方面完全没有作为，other中的other，却满是优越感的指点，活像个太监讨论怎么生小孩一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
