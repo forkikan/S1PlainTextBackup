@@ -16286,3 +16286,64 @@ weibo：陌麓stranger：
 
 大喵参加综艺节目了，跟着莫姐果然有饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 10272#       发表于 2025-1-22 10:54
+
+ 本帖最后由 ml1642879 于 2025-1-22 10:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244392&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-22 10:53</a>
+又不是全世界男人就死剩祥爹了</blockquote>
+邦多利能出现个雄性可是大新闻，你说不是祥爹那我就要说这是诈尸lisa弟了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 10273#       发表于 2025-1-22 11:01
+
+这个说的是不是母鸡卡经纪人啊
+
+<img src="https://img.saraba1st.com/forum/202501/22/110135goiu85c0ogvr088v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-22-11-00-18-25_149003a2d400f6adb210d7e357a3a646.jpg</strong> (259.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 11:01 上传
+
+*****
+
+####  Liza  
+##### 10274#       发表于 2025-1-22 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67240478&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-21 19:10</a>
+
+所以说小剧场的必要性还要等一个解释，现在争论表演还是音乐本身就是祥子自己两头都要抓搞出来的。
+
+如果只 ...</blockquote>
+日本乐队搞小剧场的还是挺多的，特别是视觉系那边。还有前面有人提到的sound horizon。
+
+曾经有个乐队叫malice mizer，音乐和舞台服装风格都和ave mujica有点像。这个乐队的最后一任主唱也是成名主唱是Gacket，乐队解散原因据说是因为Gacket欠债然后其他团队不愿意借他钱。我总觉得和ave mujica很像，可以了解一下。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10275#       发表于 2025-1-22 11:04
+
+facta fugis facienda petis.
+
+「ファクタ・フギス・ファキエンダ・ペティス」と読みます。
+
+factaはfactum,-ī n.（事実）の複数・対格です。factaはfaciō,-ere（行う、なす）の完了分詞、中性・複数・対格ともとれます。その場合、「あなたによってなされたこと」という含みがあります。日本語らしく訳すと、「あなたのしたこと」です。
+
+fugisはfugiō,-gere（逃げる）の直説法・能動態・現在、2人称単数です。factaを目的語に取ります。
+
+faciendaはfaciō,-ere（行う、なす）の動形容詞、中性・複数・対格です。「なされるべきことを」と訳せます。
+
+petisはpetō,-ere（求める）の直説法・能動態・現在、2人称単数です。faciendaを目的語に取ります。
+「あなたは自分のしたことから逃れ、すべきことを追い求めている」と訳せます。
+
+オウィディウスの表現です（Ov.Her.7.15）。
+

@@ -6894,3 +6894,42 @@ GAINAX那帮人搞GUNBASTER时候都有致敬伊迪安桥段，你说呢</blockq
 
 还是希望鹤卷GG好好讲故事吧，其他都次要
 
+
+*****
+
+####  jojonathan  
+##### 5081#       发表于 2025-1-22 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244301&amp;ptid=2209276" target="_blank">空无阿冰 发表于 2025-1-22 10:44</a>
+不都是串的？说了不俗套的三人关系性大概率全员cb了呗，不可能给你搞个把剩下一个人晾着的，也不太像搞三 ...</blockquote>
+要燃冬了吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nnis  
+##### 5082#       发表于 2025-1-22 11:01
+
+不懂什么赢不赢，修司这定位，片里精神场与麻球的镜头，个人都觉得很浪漫的。我还想喵和修定位反转呢，想看女人开红高达共斗，nt交流。只在意后面谁跟谁在一起有啥意思。按个人品味出发，现在bg党不该偷着乐吗
+
+*****
+
+####  0aleph37  
+##### 5083#       发表于 2025-1-22 11:03
+
+<img src="https://img.saraba1st.com/forum/202501/22/110258w6mamnvsmvu0767y.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-22 105854.png</strong> (82.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 11:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/110258xby3b8vrveel3vzv.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-22 110028.png</strong> (978.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 11:02 上传
+

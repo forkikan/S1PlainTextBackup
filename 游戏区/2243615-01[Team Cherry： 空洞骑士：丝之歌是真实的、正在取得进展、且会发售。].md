@@ -423,3 +423,15 @@ TC的核心成员就3个人吧
 
 快进到老本吃光，开始在红P分章节筹钱
 
+
+*****
+
+####  Slyvan  
+##### 50#       发表于 2025-1-22 10:58
+
+这就是长宣发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他说上XGP的那年续的XGP, 3年了, XGP都要到期了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搞了这么多年,  地图多少得进步一点吧...
+
