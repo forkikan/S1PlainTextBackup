@@ -399,3 +399,11 @@ TC的核心成员就3个人吧
 
 如果丝之歌确实存在，希望不是这种情况
 
+
+*****
+
+####  ycz0212  
+##### 48#       发表于 2025-1-22 10:20
+
+再鸽两年就有望挑战永远的毁灭公爵了<img src="https://static.saraba1st.com/image/smiley/carton2017/301.png" referrerpolicy="no-referrer">
+

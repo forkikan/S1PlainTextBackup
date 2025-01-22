@@ -6770,3 +6770,32 @@ kick back的mv和电锯人有什么联系吗
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  空无阿冰  
+##### 5068#       发表于 2025-1-22 10:16
+
+要是真有百合，漫区这么大一栋豚楼的人早都过来殖民了，不用等漫区又少一行（
+
+*****
+
+####  王留美  
+##### 5069#       发表于 2025-1-22 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67243861&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-22 09:51</a>
+
+看不到正片不代表看不到剧透，现在讨论的不也都是两集后的发展</blockquote>
+没办法直接看到还是有问题
+
+比如GQX是系统假名、GQX有牙齿之类的看过的人不一定会提，那其他人就不知道
+
+这样讨论效率肯定是**降低的
+
+*****
+
+####  Gysumitka  
+##### 5070#       发表于 2025-1-22 10:19
+
+影像用文字传达，那得丢失多少细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
