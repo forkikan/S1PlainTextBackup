@@ -908,3 +908,13 @@ https://b23.tv/k9LyzXw
 
 行吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 10450#       发表于 2025-1-23 01:11
+
+邦邦世界的武道馆是乐奈奶奶点个头就能组织一个业余乐队比赛让冠军上去唱个爽、masking和layer还没进ras时就靠自己上过的，作为圣地是有代表性，但不是真的高不可攀
+
+萝为什么不吹出道最速武道馆，因为她们可以直接吹“还没出道的时候就上过武道馆”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

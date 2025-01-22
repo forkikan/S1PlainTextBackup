@@ -8965,3 +8965,11 @@ zeon的OTL关联主要是第一教发明的选民意识，你痞更喜欢玩第�
 <img src="https://p.sda1.dev/21/d5ebde94947bf76b7f79c761e77e3fec/image.jpg" referrerpolicy="no-referrer">
 谜语👀
 
+
+*****
+
+####  王留美  
+##### 5258#       发表于 2025-1-23 01:10
+
+Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ口播直接说了敢达新作，排面比当年祝福大多了啊
+
