@@ -8014,3 +8014,83 @@ GQX世界线的拉拉本人当活体零件
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RE㐅ia  
+##### 5181#       发表于 2025-1-22 15:49
+
+这下名字来历知道了，还正好和之前的6台高达对上了。
+
+<img src="https://img.saraba1st.com/forum/202501/22/154904wnn15g9na9bnqgo4.png" referrerpolicy="no-referrer">
+
+<strong>3A745FD6-C705-4D47-A81C-CA53997C6FA9.png</strong> (485.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/154907xa1hioacp0se1akm.png" referrerpolicy="no-referrer">
+
+<strong>63926DC6-55D3-4059-8A15-1F43F5B84DD5.png</strong> (509.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/154914auuuf13fzy4u1mrm.png" referrerpolicy="no-referrer">
+
+<strong>5818EBEE-190B-46F7-A61F-6481C0810116.png</strong> (544.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/154917tlayabb9fwdiol0i.png" referrerpolicy="no-referrer">
+
+<strong>8DAD19F9-7FB1-4CD1-95E9-27105F13AC88.png</strong> (621.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:49 上传
+
+
+*****
+
+####  RE㐅ia  
+##### 5182#       发表于 2025-1-22 15:52
+
+这么看的话女主的nt能力也太变态了
+
+<img src="https://img.saraba1st.com/forum/202501/22/155207z3zmd77rp7d70x9d.png" referrerpolicy="no-referrer">
+
+<strong>91857C82-5AB3-4D58-917F-2B9D36E71289.png</strong> (534.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:52 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/155210qu4mzemk7yhmsm6d.png" referrerpolicy="no-referrer">
+
+<strong>8C9FCBA6-3F4F-4437-A009-0C2C79D383D8.png</strong> (583.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:52 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/155218r640j9pr4dnr6dpp.png" referrerpolicy="no-referrer">
+
+<strong>1B722C15-0847-4E40-8B01-86E42EC98F96.png</strong> (476.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:52 上传
+
+<img src="https://img.saraba1st.com/forum/202501/22/155218d97v5ugx3g57u6yq.png" referrerpolicy="no-referrer">
+
+<strong>2994123F-78DC-452C-AE05-AAAD655EE071.png</strong> (568.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 15:52 上传
+

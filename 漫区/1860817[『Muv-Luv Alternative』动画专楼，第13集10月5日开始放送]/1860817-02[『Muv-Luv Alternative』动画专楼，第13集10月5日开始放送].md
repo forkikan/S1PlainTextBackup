@@ -92,3 +92,29 @@
 
 muv第一部可是03年的游戏，当年谁也不会想到20年后东大已经发展到能和西大五五开的地步吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  创始’’’天翔  
+##### 2329#       发表于 2025-1-21 13:05
+
+所以现在鸡枞能把缺的J20J35J36给补上吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 2330#       发表于 2025-1-21 14:10
+
+当年可还是八爷枪挑爱 抚娘娘啊。现在的情势，不说美国日本了，连我们自己国人又有几个能想到？2010年12月前，有人跟你说中国会生产出22还多的4代机，你信吗？所以别刻舟求剑。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  魔法师lain  
+##### 2331#       发表于 2025-1-22 15:46
+
+想出j36除非出另外一个世界线，当年来袭加拿大的母巢抵抗失败，但新 疆的抵挡成功
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
