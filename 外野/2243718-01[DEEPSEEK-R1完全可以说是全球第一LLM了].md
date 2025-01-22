@@ -1169,3 +1169,13 @@ r1可以联网搜索，两个可以一起开了
 
 再一个对语料识别很强大，有些异体英文版“火星文”（比如$hort，A=4这种）都能正确转义成中文能理解的含义
 
+
+*****
+
+####  有鱼  
+##### 96#       发表于 2025-1-23 01:46
+
+有没有傻瓜方案，调用 v3 的 api 搞翻译啊，用 chat 界面很麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

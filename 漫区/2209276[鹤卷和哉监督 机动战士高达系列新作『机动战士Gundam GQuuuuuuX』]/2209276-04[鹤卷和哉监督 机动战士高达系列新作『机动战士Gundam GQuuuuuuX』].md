@@ -9036,3 +9036,43 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 全曲歌词就这段用了俩第一人称，玛秋和妮娅安应该都是用わた ...</blockquote>
 日语歌词第一人称大部分都是用boku，不论男女视角
 
+
+*****
+
+####  刺客ares  
+##### 5264#       发表于 2025-1-23 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251276&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-23 01:34</a>
+
+日语歌词第一人称大部分都是用boku，不论男女视角</blockquote>
+但是律师最火那首独唱不是用的わたし吗（
+
+不过仔细想想歌词只能信50%吧，水魔的歌词假药还历历在目
+
+这回鹤卷gg的评价也就是曲调有活力歌词有细腻感，也没像某人听祝福听哭搞得大家都以为有什么大药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蕾洁之风  
+##### 5265#       发表于 2025-1-23 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251239&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-23 01:21</a>
+等官宣了吧</blockquote>
+应该没那么快，我猜意思是有片商开始接触了
+
+*****
+
+####  oi99o  
+##### 5266#       发表于 2025-1-23 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251304&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-23 01:50</a>
+但是律师最火那首独唱不是用的わたし吗（
+
+不过仔细想想歌词只能信50%吧，水魔的歌词假药还历历在目
+
+这回 ...</blockquote>
+所以我说的是大部份，很多女歌手都是这么写词的，大概是因为双音节比三音节更好搭配旋律吧，总之不建议从歌词的人称里推断性别。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
