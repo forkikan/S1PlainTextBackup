@@ -402,3 +402,32 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  akiomn  
+##### 10404#       发表于 2025-1-22 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249013&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 18:57</a>
+那要是我说对了怎么办
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得喵梦前三集的行为还能洗是吧？那你无敌了，编剧都拿第二集标题明牌讽刺喵梦行为了，你还觉得喵梦是对的
+
+*****
+
+####  长空雁叫霜晨月  
+##### 10405#       发表于 2025-1-22 19:06
+
+壁画是真特么多
+
+
+*****
+
+####  天空塔书记官  
+##### 10406#       发表于 2025-1-22 19:12
+
+好，那我明白了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
