@@ -9076,3 +9076,20 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 5267#       发表于 2025-1-23 01:59
+
+看他昨天最新一条，应该只是片商接触的意思
+
+*****
+
+####  oi99o  
+##### 5268#       发表于 2025-1-23 02:01
+
+之前官X帮忙宣了港澳台由羚邦代理引进，但羚邦自己还没有任何宣传动静（反倒是pjsk已经定档4.3了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），所以官X提都没提的中国大陆肯定还在更早期的谈判阶段，还有得等。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
