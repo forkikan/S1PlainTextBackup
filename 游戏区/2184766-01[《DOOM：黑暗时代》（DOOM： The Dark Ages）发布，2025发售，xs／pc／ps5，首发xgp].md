@@ -138,3 +138,45 @@ steam评价不到90跟好评扯不上边
 
 老實說XGP和全價首發遊戲按理論上就應該公平對待,但就我所看有些人看XGP就是80分垃圾85分還行90分才值得玩,莫名其妙
 
+
+*****
+
+####  ultraseven  
+##### 191#       发表于 2025-1-22 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246334&amp;ptid=2184766" target="_blank">D-JoeII 发表于 2025-1-22 14:00</a>
+
+天際線2是23年的,冰氣2也不是應付了事而是用力方向錯了,玩家根本不期待那些議會大戲
+
+老實說XGP和全價首 ...</blockquote>
+DJ哥你也没必要在游戏专楼辩这些，一个游戏不管是70分80分90分，会玩的都会玩，不会玩的也不会玩，自己玩不玩、想在哪玩用钱投票就行了
+
+*****
+
+####  JOJO42  
+##### 192#       发表于 2025-1-22 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245755&amp;ptid=2184766" target="_blank">小绿瓜拉苟莱斯 发表于 2025-1-22 13:03</a>
+
+永恒比16好玩多了，玩完永恒再去16像个残疾，但我更喜欢16的美术风格，永恒太复古卡通了
+
+—— 来自 鹅球 v ...</blockquote>
+那个参与了TDA的工作人员也说这代微软给的钱也不多，我想再像永恒那样激进，难免对商业成绩产生影响吧
+
+所以放低门槛和节奏也能理解，就看ID会怎么调整了
+
+看泄露内容，这次美术画风应该是16加永恒——那种略显街机的道具放置还是存在，但整体稍微平衡了一点
+
+
+*****
+
+####  ultraseven  
+##### 193#       发表于 2025-1-22 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246066&amp;ptid=2184766" target="_blank">电磁炮233 发表于 2025-1-22 13:33</a>
+
+steam评价不到90跟好评扯不上边
+
+—— 来自 S1Fun</blockquote>
+你这不到90一竿子打翻的人有点多啊，看了下Doom永恒中文好评率88%，全语言刚刚91%<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -7722,3 +7722,41 @@ wotafa也去了
 女官颜值好高</blockquote>
 Suki 希望戏份多点
 
+
+*****
+
+####  jojonathan  
+##### 5155#       发表于 2025-1-22 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67246297&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-22 13:55</a>
+我搬非官推基本都会遮的
+
+刚才看评论区好像订正了，好像是武内和经验值去的，看电影居然没带蘑菇 ...</blockquote>
+说明蘑菇在干活 是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空彦秋  
+##### 5156#       发表于 2025-1-22 14:09
+
+<blockquote>王留美 发表于 2025-1-22 13:56
+请了很多人
+
+wotafa也去了
+
+还有一堆管人</blockquote>
+这样啊，请这么多人在，是为了让这帮人宣传？但这样影响面应该也不大吧
+
+
+*****
+
+####  Toby_dak  
+##### 5157#       发表于 2025-1-22 14:14
+
+<blockquote>引用第5083楼PascalLefèvre于2025-01-22 12:05发表的  :
+
+只有其他方面都究极无聊的作品才会一直战cp</blockquote>
+前两天B站搬运的解禁PV下面有评论，说这次是bg还是百合时候，我很想直球开喷的。UC背景下的新高达TV动画，能讨论的东西就只剩了那点东西？不过想想B站这种能把机器人喊成机甲的讨论环境，还是算了吧。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

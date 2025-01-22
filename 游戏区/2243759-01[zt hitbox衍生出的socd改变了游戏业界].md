@@ -524,3 +524,11 @@ HITBOX是刻意向游戏内同时输入2个方向，形成游戏正常 ...</bloc
 
 看标题就知道是这个云狗up
 
+
+*****
+
+####  yxz_00  
+##### 46#       发表于 2025-1-22 14:17
+
+我也觉得改下代码就解决的问题, 把按键玩家拉低到摇杆玩家同一水平就行 float X_Axis = 0.0f;  void Update()  {     // Convert key press to axis     const float MaxChange = 0.5f;          if (Pressed(Left))     {         X_Axis -= MaxChange;     }          if (Pressed(Right))     {         X_Axis += MaxChange;     }          X_Axis = Mathf.Clamp(X_Axis, -1.0f, 1.0f);          // Game Logic     if (X_Axis &lt; -1.0f)     {         // Do Left Actions     }     else if (X_Axis &gt; 1.0f)     {         // Do Right Actions     } }复制代码
+
