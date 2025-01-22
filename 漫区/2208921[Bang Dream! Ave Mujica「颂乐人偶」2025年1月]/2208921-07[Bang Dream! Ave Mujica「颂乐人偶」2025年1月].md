@@ -16635,3 +16635,60 @@ kkr:你怎么不笑啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  akiomn  
+##### 10305#       发表于 2025-1-22 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245333&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-22 12:21</a>
+所以第5集这标题……是在说这集要给“没苦硬吃”一个解释吗？</blockquote>
+和没苦硬吃别啥关系
+第五话标题是奥维德的女杰书简里面女王狄多对抛弃她的埃涅阿斯说的话
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猜猜看对应剧里的谁和谁就好
+
+
+*****
+
+####  天空塔书记官  
+##### 10306#       发表于 2025-1-22 12:30
+
+就是对应木头和祥子吧
+
+这下火葬场了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 10307#       发表于 2025-1-22 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245400&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-22 12:27</a>
+
+和没苦硬吃别啥关系
+
+第五话标题是奥维德的女杰书简里面女王狄多对抛弃她的埃涅阿斯说的话
+
+猜猜看对应剧里 ...</blockquote>
+我觉得这句的意思是“这里那么好，你为什么要离开这里，穿越世界去追寻那个远方？”
+
+所以我觉得可能是要讲祥子离开的更深层的原因吧
+
+*****
+
+####  wzm96816  
+##### 10308#       发表于 2025-1-22 12:34
+
+初华：纺织谎言
+
+喵梦：面具真相
+
+睦：隐藏面孔
+
+海铃：平静态度
+
+祥子：友好行为
+
+卡片上这翻译还能优化下。先不提名字，什么叫“武道馆，很棒吧”，这台词什么意思。如果wsd这卡牌不是玩梗或者只是把角色特质放大的话，很多东西差不多能锤了。
+

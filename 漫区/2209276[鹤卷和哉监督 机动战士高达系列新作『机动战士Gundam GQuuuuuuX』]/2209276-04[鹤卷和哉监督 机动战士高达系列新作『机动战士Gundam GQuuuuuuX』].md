@@ -7372,3 +7372,33 @@ RE当时战的昏天黑地，CA里十个人有八个人就是最坚定的ZACK黑
 
 高达妖精究竟是什么呢
 
+
+*****
+
+####  灵魂收割机  
+##### 5127#       发表于 2025-1-22 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67245279&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-22 12:15</a>
+
+第一个PV里眼镜男不就抱着吗？</blockquote>
+应该不止一处，竹说“黑狗在宇宙背景里很难找”啥的。
+
+*****
+
+####  刺客ares  
+##### 5128#       发表于 2025-1-22 12:29
+
+NT上映的时候大文豪不是说过吗，巴纳吉见过那边的世界，是站在另一个世界的大门前的人，
+
+但他没有选择进去，是为了表达自己对于以人类姿态生活下去所持的肯定态度
+
+<img src="https://img.saraba1st.com/forum/202501/22/122942n7z9u184yye4gelw.png" referrerpolicy="no-referrer">
+
+<strong>1737519251012.png</strong> (56.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 12:29 上传
+
+高达的妖精就是非人，那就是从另一个世界的大门里出来的东西呗
+
