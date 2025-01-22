@@ -7104,3 +7104,70 @@ wa2确实，不过硬要狡辩的话可以说这种作品本身就是围绕吵cp
 别急，现在的打压只不过是垂死挣扎罢了。等GQX拿下年榜时便是反攻倒算的时机，要自信 ...</blockquote>
 打脸要现世报才爽啊，拖拖拉拉的不就和if鸭一样成小丑了<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 5103#       发表于 2025-1-22 11:25
+
+ 本帖最后由 PascalLefèvre 于 2025-1-22 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244731&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-1-22 11:22</a>
+
+“本身就是围绕吵cp展开的”，eva算吗无论泥潭还是哪里，eva吵cp的声量绝对比吵其它的要多的多吧，当然ev ...</blockquote>
+对我个人而言，我确实觉得终除了情怀和cp没有其他能让我觉得有趣的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+而且也确实是终吵cp的声音最大，可能这也是一部分原因（？
+
+*****
+
+####  王留美  
+##### 5104#       发表于 2025-1-22 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244635&amp;ptid=2209276" target="_blank">双菜 发表于 2025-1-22 11:15</a>
+ 首周三天平均2亿，这周前两天数据比首周前三天一半还低，不超过一亿，现在累积估计7亿接近8亿，这周争取 ...</blockquote>
+肯定过10亿的，算上周末看看能不能冲15亿吧
+
+*****
+
+####  0aleph37  
+##### 5105#       发表于 2025-1-22 11:25
+
+ 本帖最后由 0aleph37 于 2025-1-22 11:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244719&amp;ptid=2209276" target="_blank">空彦秋 发表于 2025-1-22 11:21</a>
+
+两女一男这种配置，很难不让人想往cp那边想，尤其这还是ACG</blockquote>
+一男两女才容易往CP方面想吧，或者2号位就可以说是主人公麻球和男主人公修司了，GQX这男一是cast三号位已经颇为尴尬了。
+
+*****
+
+####  十万年魂环  
+##### 5106#       发表于 2025-1-22 11:25
+
+那种时期狗代的cp烂炒，不比现在更要流量不要马了，老熟练工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 5107#       发表于 2025-1-22 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67244473&amp;ptid=2209276" target="_blank">nnis 发表于 2025-1-22 11:01</a>
+
+不懂什么赢不赢，修司这定位，片里精神场与麻球的镜头，个人都觉得很浪漫的。我还想喵和修定位反转呢，想看 ...</blockquote>
+时刻警惕开局交大以博前期优势<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 5108#       发表于 2025-1-22 11:29
+
+突然觉得复习十几年前s1的wa2的cp论战贴挺有意思的，除了年代特有的说话口吻以外，其它的话术基本上都能在几年后的的路人女主cp论战贴和隔壁游戏区ca和ct对喷贴里见到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 5109#       发表于 2025-1-22 11:33
+
+<img src="https://p.sda1.dev/21/bfe78008edf15562ff162eb77ba0235a/image.jpg" referrerpolicy="no-referrer">
+[@tsubo_jiro](https://x.com/tsubo_jiro/status/1881873299246088617)
+

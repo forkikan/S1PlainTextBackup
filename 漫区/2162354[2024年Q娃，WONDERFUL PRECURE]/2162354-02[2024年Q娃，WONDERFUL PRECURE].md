@@ -356,3 +356,11 @@ War, war never change<img src="https://static.saraba1st.com/image/smiley/face201
 
 希望你们别化成镜石就好，求求
 
+
+*****
+
+####  舞野咲  
+##### 2749#       发表于 2025-1-22 11:28
+
+多么高高在上啊。。。经典加害者原谅受害者的奇妙思路
+
