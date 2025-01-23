@@ -1324,3 +1324,43 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 卧槽确实危险，东大哪个位置相当于当年珍珠港？！
 
+
+*****
+
+####  Wenber  
+##### 120#       发表于 2025-1-24 00:07
+
+不会 懂 特别怂 武力上的色厉内荏上个任期表现淋漓 而且一般来说冲突风险在驴党任上高 
+
+
+*****
+
+####  cyberalogo  
+##### 121#       发表于 2025-1-24 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260667&amp;ptid=2243911" target="_blank">lin2004 发表于 2025-1-24 00:02</a>
+工业生产力现在米帝是二战日本东大是当年米帝，连宣布原材料禁运封死工生产都一样然后由此发生的日军先去 ...</blockquote>
+额……应该是吉布提基地？
+
+*****
+
+####  木水风铃  
+##### 122#       发表于 2025-1-24 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255752&amp;ptid=2243911" target="_blank">seki_m 发表于 2025-1-23 16:22</a>
+
+有没有下载版的？正好在动车上看</blockquote>
+找到了个源，百度盘说文件禁止分享，我看看怎么个回事
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过可能群友已经下火车了
+
+
+*****
+
+####  initium  
+##### 123#       发表于 2025-1-24 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260667&amp;ptid=2243911" target="_blank">lin2004 发表于 2025-1-24 00:02</a>
+
+工业生产力现在米帝是二战日本东大是当年米帝，连宣布原材料禁运封死工生产都一样然后由此发生的日军先去 ...</blockquote>
+不存在的，海军没有重要的海外基地，丑国又不敢进第一岛链，顶多炸个钱凯港骗骗自己偷袭了老中。
+
