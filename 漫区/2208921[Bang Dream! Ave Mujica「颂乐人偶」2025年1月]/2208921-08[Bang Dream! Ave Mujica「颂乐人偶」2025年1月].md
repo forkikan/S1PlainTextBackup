@@ -12115,3 +12115,26 @@ pareo跑路那段我忘了，masking受伤可是直接让layer硬是wow了半天
 说不定其实祥爹也是演的，大祥老 ...</blockquote>
 最质朴的幸福很有可能是最巨大的不幸，如果说喵梦身为人的主要动力就是与家人之间的爱，那么就应当拆穿这份爱，告诉角色，这份爱是虚伪的，以此来诱使她的堕落
 
+
+*****
+
+####  lumennaturale  
+##### 11527#       发表于 2025-1-24 04:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262690&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-1-24 04:16</a>
+
+鸡演到现在，完全没有“代入视角”或“情感支点”（如名义主角的爱音和实际主角的灯），这四集都是纯纯的第 ...</blockquote>
+因为复仇是不可能的。mygo选择在痛苦迷茫中前进，avemujica就是在痛苦中陷入逃避与疯狂。这两者虽然内容上差异极大，但一致的内核在于，它们都承认自己的有限性，mygo不会说闪耀与歌唱可以解决一切，这些只能够唱出自己的心声，作为一个人的心声；而mujica则连这一点也否定掉，让角色、乃至于让观众都去面对一个不愿意面对的自己。
+
+
+*****
+
+####  天空塔书记官  
+##### 11528#       发表于 2025-1-24 04:34
+
+第五话可能还不是解散，估计就是个忙个的去了，名存实亡而已，真正攒这局的是成人的资本，不可能放任小孩子随意胡闹
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
