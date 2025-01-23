@@ -9330,3 +9330,31 @@ nt等级论，nt分类学要开始发展了吗？
 nt等级论，nt分类学要开始发展了吗？</blockquote>
 夏亚是脱出型是吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5290#       发表于 2025-1-23 14:17
+
+我记得好像是说首席哥时而能开Ω时而不能开，不稳定，麻球这种就是想开就开
+
+*****
+
+####  YU_JI  
+##### 5291#       发表于 2025-1-23 14:17
+
+本质还是nt能力的强弱吧，不一定指分类什么的，nt分类学这种东西感觉还不要搞为好
+
+*****
+
+####  Toby_dak  
+##### 5292#       发表于 2025-1-23 14:19
+
+0085的自护这卸磨杀驴做法太迷惑了。
+正规军MS驾驶员退役跑去打地下团战。
+NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

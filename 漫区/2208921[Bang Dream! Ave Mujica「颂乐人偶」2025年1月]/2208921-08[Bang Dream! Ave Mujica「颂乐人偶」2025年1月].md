@@ -1741,3 +1741,31 @@ live
 
 接著問高尾中盤以後的看點（後期看點），高尾才提了當然有LIVE，然後故事上的話是祥子和mygo的關係性，以及和avemujica的關係性也會變化，並且讓大家關注ED的歌詞 。
 
+
+*****
+
+####  akiomn  
+##### 10520#       发表于 2025-1-23 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254418&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 14:06</a>
+這錯的好像有點離譜。
+
+沒有說中盤看點有初華的秘密，那邊只有說，中盤睦是關鍵。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为初华也得到了成长
+先被睦抽陀螺，后期被初华抽陀螺，抽完就得到成长了是吧
+
+
+*****
+
+####  qjw114514  
+##### 10521#       发表于 2025-1-23 14:21
+
+可爱的海，听起来很有看点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 10522#       发表于 2025-1-23 14:24
+
+还蛮正常的，先在团内成长了，再用成长之后的状态去面对c团成员，就不会像黑刀之夜闹得那么难堪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
