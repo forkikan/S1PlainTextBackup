@@ -901,3 +901,21 @@ steam页面上了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  LRSzwei  
+##### 93#       发表于 2025-1-24 01:23
+
+给我看懵了，为何Double Pack比单买贵，标错了吗？
+
+<img src="https://img.saraba1st.com/forum/202501/24/012202ony87lzjtfu5nemn.jpg" referrerpolicy="no-referrer">
+
+<strong>f61c5f9f-75b7-48c6-8125-1a6d4720f711.jpg</strong> (176.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 01:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

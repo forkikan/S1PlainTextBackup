@@ -301,3 +301,11 @@ xbox手柄补丁，根目录覆盖
 
 这次云豹没有再闹出什么大笑话了吧？
 
+
+*****
+
+####  alucardcz  
+##### 7476#       发表于 2025-1-24 01:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">除了键位有点难受外目前还没有遇到什么问题
+
