@@ -9801,3 +9801,29 @@ PV1的画面是全部都出现在剧场版了吗
 
 麻球这样看起来不是什么哈曼，就是卡缪+朱总吧（
 
+
+*****
+
+####  Gysumitka  
+##### 5338#       发表于 2025-1-23 18:28
+
+那沙仑的玫瑰也是穿越者，不会真是拉拉吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 5339#       发表于 2025-1-23 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256868&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-23 18:28</a>
+
+那沙仑的玫瑰也是穿越者，不会真是拉拉吧</blockquote>
+说不定是哈曼，麻球是克隆人
+
+*****
+
+####  jojonathan  
+##### 5340#       发表于 2025-1-23 18:37
+
+其实联邦哪里技术水平好像也变高了 能在钢加农上装俩光束加农 还能同时开火 原本这会有出力怎么高的炉子吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
