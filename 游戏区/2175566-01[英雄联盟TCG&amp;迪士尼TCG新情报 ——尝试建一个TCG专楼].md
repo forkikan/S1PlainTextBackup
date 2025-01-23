@@ -97,3 +97,14 @@ mtg这边牌手很少在烂价社交易
 
 mtg牌手小黄鱼用的多罢
 
+
+*****
+
+####  灰烬刺猬  
+##### 223#       发表于 2025-1-23 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250978&amp;ptid=2175566" target="_blank">熊猫盼盼 发表于 2025-1-23 00:06</a>
+
+这并不影响mtg在国内是路边一条，尤其是取消了简中后</blockquote>
+虽然确实是路边一条，但是除了ygo和ptcg，其他的几家打牌的tcg在国内交易量真没多少能和这路边一条比
+

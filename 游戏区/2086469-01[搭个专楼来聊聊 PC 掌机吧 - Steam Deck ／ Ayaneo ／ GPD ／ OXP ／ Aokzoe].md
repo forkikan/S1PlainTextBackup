@@ -497,3 +497,16 @@ z2 extreme不是公布了么，是不是等z2比较好。尽管一点硬件配�
 GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是884 ...</blockquote>
 2024款有8840+32g的，而且说实话我云了半天都没感觉2025除了CPU有啥特别大的改进……
 
+
+*****
+
+####  cc-2  
+##### 1379#       发表于 2025-1-23 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252973&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2025-1-23 11:04</a>
+
+2024款有8840+32g的，而且说实话我云了半天都没感觉2025除了CPU有啥特别大的改进…… ...</blockquote>
+不是号称散热升级么
+
+虽然很喜欢MINI的造型，但是散热问题还是让我选择了ROG
+

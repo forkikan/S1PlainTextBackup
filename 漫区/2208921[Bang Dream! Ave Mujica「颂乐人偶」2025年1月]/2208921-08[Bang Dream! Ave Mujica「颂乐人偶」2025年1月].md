@@ -1434,3 +1434,18 @@ https://www.bilibili.com/bangumi/play/ss73081
 祥退队的话初华睦也会退，那这个乐队也就没了</blockquote>
 这季大概以鸡第一次炸团做结束吧
 
+
+*****
+
+####  qjw114514  
+##### 10497#       发表于 2025-1-23 11:24
+
+这访谈，祥爹更不是个东西了，女儿工作自己喝大酒，什么社会渣滓啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 10498#       发表于 2025-1-23 11:24
+
+没有绫奈老师评论看的话，哇达西<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
