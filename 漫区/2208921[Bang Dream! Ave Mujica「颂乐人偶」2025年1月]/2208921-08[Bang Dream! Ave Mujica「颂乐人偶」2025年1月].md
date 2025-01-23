@@ -10999,3 +10999,119 @@ Mortis和祥子说睦死了，结果赶紧补了一句其实只是接近死亡�
 节约宝的嗓子啊。</blockquote>
 肯高，指天文望远镜🔭
 
+
+*****
+
+####  creaiii  
+##### 11427#       发表于 2025-1-24 02:17
+
+唉，千言万语化成一句，沉默成本
+
+*****
+
+####  天空塔书记官  
+##### 11428#       发表于 2025-1-24 02:17
+
+装睡也是睡，毕竟装睡的人才不会被叫醒
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Min_FOrder  
+##### 11429#       发表于 2025-1-24 02:18
+
+我倒觉得，莫提斯这个角色，你说是睦头的第二人格，可以说是也可以说不是。睦头出生在演员家庭，又整天被她妈妈整得过日子像是演戏，多多少少还是耳濡目染得到了一些如何表现神经质效果的演技。第二第三集睦头遭遇祥子无节制地压榨，精神垮了，结果未必是暴露出一个成了型的里人格，而是完全没有自主性的、空虚的“演技”本身像坏掉的水龙头一样往外流淌，就像是第三集结尾在舞台上那样。其结果就是第四集大莫老师的呓语（如果接受白字全是复读设定的话就更方便了）。所谓复仇，以及cpart的尖叫，说不定也只不过是不受控制流淌的演技的一部分
+
+*****
+
+####  iiiiiiiiii  
+##### 11430#       发表于 2025-1-24 02:18
+
+<blockquote>帆前 发表于 2025-1-24 02:14
+这已经不是一般的少女乐队番了，既不音乐，也不团队，只有恐怖片一样的爆
+
+直到看到这集前，我都还只能思考 ...</blockquote>
+我觉得已经超出普通深夜番的范畴了，起码在我宅龄所看过的片子里面，也没见过这么诡异的番。这种诡异感只有gal那几款大作才有。
+
+*****
+
+####  江口夕  
+##### 11431#       发表于 2025-1-24 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262131&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-24 02:08</a>
+祥子一个自称只有母鸡卡了的乐团炸了只能被迫回家继承家族的人，喵梦一个背井离乡在大城市打拼靠乐队博流 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里面有两个阶段，你怎么能以各自的立场一概而论。
+而且下集预告的演出4个人都同意解散，就非常诡异。非常极其不符合逻辑。
+这同样严重违反了你说的大猫和大祥都没有退路的说辞。
+并且最重要的叙述诡计就是，4人宣告解散本身可以就可以是喜剧的一部分。这是最绝的。正常的解散应该是官方通告解散，而不是舞台剧里宣布
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  Min_FOrder  
+##### 11432#       发表于 2025-1-24 02:21
+
+<blockquote>江口夕 发表于 2025-1-24 02:19
+这里面有两个阶段，你怎么能以各自的立场一概而论。
+
+而且下集预告的演出4个人都同意解散，就非常诡异。非 ...</blockquote>
+你avemujica连当台摘面具都干了，当台宣布解散又咋了（
+
+*****
+
+####  哈曼的YY  
+##### 11433#       发表于 2025-1-24 02:21
+
+说是为了报复祥老师而炸团的话 莫姐就没有一点想法报复大喵？
+
+*****
+
+####  帆前  
+##### 11434#       发表于 2025-1-24 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262213&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 02:18</a>
+
+我觉得已经超出普通深夜番的范畴了，起码在我宅龄所看过的片子里面，也没见过这么诡异的番。这种诡异感只 ...</blockquote>
+不可能有龙骑士的脑洞，不过气氛上已经超过一般番剧了
+
+*****
+
+####  江口夕  
+##### 11435#       发表于 2025-1-24 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262224&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 02:21</a>
+你avemujica连当台摘面具都干了，当台宣布解散又咋了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摘面具可以是演戏，解散也同样可以是演戏。注意说辞，初华说的是完结，不是解散
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ml1642879  
+##### 11436#       发表于 2025-1-24 02:24
+
+睦头说的不会长久的原来是真的<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 11437#       发表于 2025-1-24 02:24
+
+如果木头对于祥子的“怨恨”是由于长时间的相处而产生的，那就能解释了，参考之前我对于愚神和睦祥关系性的推测<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wonner_2012  
+##### 11438#       发表于 2025-1-24 02:25
+
+看到战吧有人说，红光电视的观众似乎是可以确定的，注意下面图片的右上角<img src="https://p.sda1.dev/21/f70acb6b651947fcae84eb541054eb8e/image.jpg" referrerpolicy="no-referrer">
+
