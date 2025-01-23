@@ -1041,3 +1041,16 @@ asbm只是最后一根稻草
 
 西大16年动手，大概率比现在还惨。除非把中国打分裂掉，但16年西大做不到，96年才可以。16年就算中国损失惨重，只要本土产能无损，一年之内大概率可以恢复，西大的损失就很难补充。
 
+
+*****
+
+####  phorcys02  
+##### 95#       发表于 2025-1-23 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255554&amp;ptid=2243911" target="_blank">stmule 发表于 2025-1-23 16:01</a>
+
+为什么不赌国运呢，是太平洋舰队司令不敢么
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v ...</blockquote>
+司令当然想赌啊，不是被参联会和手下gank了，最后发配到韩国当大使去了么...<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

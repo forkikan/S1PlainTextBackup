@@ -3156,3 +3156,13 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 更麻烦的事被架住了，按照计划抢到了周日的yoasobi，但是周六的roselia没抢到，现在不想为了一个夜游专门飞一趟上海（还得周一请假）
 
+
+*****
+
+####  1702496495  
+##### 26882#       发表于 2025-1-23 17:36
+
+沪萝这票能抢到的都是神人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
