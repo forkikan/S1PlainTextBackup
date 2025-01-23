@@ -886,3 +886,26 @@ yysy,我之前看一些分析，到时候很大程度看日本人愿不愿意当
 现在流传说法是我们直接找到了他们航母的位置，这意味着一旦开打，起码他们的航母马上就折损一艘，而他 ...</blockquote>
 现在最影响我军颜值的装备应该就是轰六了
 
+
+*****
+
+####  cazedor  
+##### 82#       发表于 2025-1-23 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">按日本那帮贵族财阀的尿性，他们才不管日本屁民的死活，往北美一润，剩下的屁民当肉盾关他什么事
+
+*****
+
+####  stmule  
+##### 83#       发表于 2025-1-23 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251456&amp;ptid=2243911" target="_blank">phorcys02 发表于 2025-1-23 04:53</a>
+asbm只是最后一根稻草
+
+实际上位置已经被点亮
+
+一大波h6k都挂弹突进到发射阵位了</blockquote>
+为什么不赌国运呢，是太平洋舰队司令不敢么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
