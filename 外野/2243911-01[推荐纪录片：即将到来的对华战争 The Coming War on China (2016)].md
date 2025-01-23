@@ -467,3 +467,27 @@ asbm只是最后一根稻草
 等美利坚下一个政权修前朝国史的时候，会不会批注上“华盛顿在这一刻丧失了军事上击败东大的最后一个机会” ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">为什么不是获得了苟延残喘的机会
 
+
+*****
+
+####  剑鹰  
+##### 47#       发表于 2025-1-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252695&amp;ptid=2243911" target="_blank">憂鬱臺灣烏龜 发表于 2025-1-23 10:37</a>
+
+为啥你会觉得在国家利益面前一定要设定一个固定不变的朋友或者敌人？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">断句断句
+
+问题是，最近几十年，时间是谁的朋友呢
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 48#       发表于 2025-1-23 10:56
+
+<blockquote>剑鹰 发表于 2025-1-23 10:52
+断句断句
+
+问题是，最近几十年，时间是谁的朋友呢</blockquote>
+谁在走上坡路，时间就是谁的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

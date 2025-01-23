@@ -9145,3 +9145,26 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 “庵野与鹤卷在剧场版也使用了M.A.V战术，两位名监督一前一后出击，并相互掩护”
 
+
+*****
+
+####  Toby_dak  
+##### 5273#       发表于 2025-1-23 10:55
+
+<blockquote>王留美 发表于 2025-1-22 15:26
+我实在没搞懂隔壁是什么狗屎讨论习惯
+
+屁点事都要单独发一个帖子，甚至同一个人发两条新闻都要开两个帖子 ...</blockquote>
+这不就是把BBS论坛当作SNS来用？想到什么就发什么，只着眼于输出自己的观点，不考虑和别人的讨论和信息的汇总。
+
+瞥了下总部，那边的讨论也<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  pokemon最爱  
+##### 5274#       发表于 2025-1-23 10:55
+
+总之无责任毒奶一个GQX的设计者是骡子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
