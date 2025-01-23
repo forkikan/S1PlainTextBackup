@@ -811,3 +811,16 @@ cs大部分枪都没有机瞄，有机瞄的枪如狙或者aug开机瞄一般也
 
 但是33楼已经解惑了。轮不到扣帽子的来点草。
 
+
+*****
+
+####  Midnight.Coup  
+##### 71#       发表于 2025-1-23 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252939&amp;ptid=2243759" target="_blank">Tring 发表于 2025-1-23 11:02</a>
+
+扣帽子差不多得了。觉得争也了解不了新东西不出声，还什么帽子都扣上来了。
+
+视频没看是真的，因为一切这种 ...</blockquote>
+你但凡打开记事本按住a然后按d再松开d不松开a，对着输入结果也不会敲出上面这段话
+

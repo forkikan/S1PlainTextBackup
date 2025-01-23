@@ -1400,3 +1400,37 @@ https://www.bilibili.com/bangumi/play/ss73081
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  6030sylar  
+##### 10495#       发表于 2025-1-23 11:09
+
+<img src="https://img.saraba1st.com/forum/202501/23/110920bzhhtpoo8f0tthoe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>37cd4765a3750115d064785937b34521.jpeg</strong> (124 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 11:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/110925vppisnnna2zdqhfd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6ca40ee5c665f13252069761de08f9bd.jpeg</strong> (200.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 11:09 上传
+
+今晚我要看这个电锯木头人
+
+*****
+
+####  6030sylar  
+##### 10496#       发表于 2025-1-23 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248612&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-22 18:06</a>
+
+祥退队的话初华睦也会退，那这个乐队也就没了</blockquote>
+这季大概以鸡第一次炸团做结束吧
+

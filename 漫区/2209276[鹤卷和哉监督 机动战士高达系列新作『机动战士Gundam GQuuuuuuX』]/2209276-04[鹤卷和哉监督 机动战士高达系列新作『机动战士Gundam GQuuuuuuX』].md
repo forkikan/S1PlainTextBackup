@@ -9193,3 +9193,14 @@ MAV战的意义不持续向敌人暴露自己位置，这俩MAV的意义是让�
 
 但他们都无法彻底否定这部电影，这不是很成功吗MAV战术（
 
+
+*****
+
+####  Steel.Haze  
+##### 5277#       发表于 2025-1-23 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252867&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-1-23 10:55</a>
+
+总之无责任毒奶一个GQX的设计者是骡子</blockquote>
+这个倒是不至于，不过联邦后续机设计者可能真是骡子。
+
