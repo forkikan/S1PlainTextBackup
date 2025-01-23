@@ -2285,3 +2285,13 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 开始怀疑独角兽的剧本是不是受到了烂尾的诅咒<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 我裂开了
 
+
+*****
+
+####  新闻工作者  
+##### 254#       发表于 2025-1-24 04:43
+
+要上烂片榜了，已经可以想象吐槽烂片up主，用“泉斗部诗人”这样的弱智谐音梗做视频标题的场面
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
