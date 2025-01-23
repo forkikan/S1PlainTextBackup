@@ -2766,3 +2766,50 @@ Ave Mujica是祥子活下去的手段
 该说是不得不共鸣呢，还不如说我觉得她只有这条路可选。但作为我而言，想要告诉祥子的是：身边的人会（比你想的）更愿意帮助你这点。虽然这只是我个人的理解，祥子应该是想在CRYCHIC还是幸福的场所的时候将它终结的吧？因为那是自己非常珍视的美丽回忆，不希望现在的自己去践踏玷污了它……搞不好她也有过这种想法。因为祥子是如此珍惜（CRYCHIC），所以也说不出口父亲的变故，我是带着这种想法去演绎的。</blockquote>
 高尾这个解读是不是十分的日本人啊
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 10618#       发表于 2025-1-23 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257203&amp;ptid=2208921" target="_blank">客服少女小祥 发表于 2025-1-23 19:03</a>
+
+第四集生放送在哪看啊，是B站蓝原的那个直播间吗还是live2那里？有没有好心人给我指路一下，谢谢 ...</blockquote>
+生放是几点，比十点早么？
+
+*****
+
+####  厚乳果珍爽  
+##### 10619#       发表于 2025-1-23 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257637&amp;ptid=2208921" target="_blank">灼眼的夏娜酱 发表于 2025-1-23 20:10</a>
+
+生放是几点，比十点早么？</blockquote>
+生放就是10点到10点半
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 灼眼的夏娜酱| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Mr.Giraffe  
+##### 10620#       发表于 2025-1-23 20:12
+
+睦党可以离席了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 10621#       发表于 2025-1-23 20:12
+
+原来如此，那就直接看熟肉了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
