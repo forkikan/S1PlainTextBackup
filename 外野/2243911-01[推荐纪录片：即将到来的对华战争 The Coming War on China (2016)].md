@@ -971,3 +971,73 @@ asbm只是最后一根稻草
 
 [https://www.youtube.com/watch?v=t6ZgCgpkbEk](https://www.youtube.com/watch?v=t6ZgCgpkbEk) 下集地址。上集感觉内容没啥好看的
 
+
+*****
+
+####  poppin  
+##### 90#       发表于 2025-1-23 17:26
+
+有啥想不明白对面怂的啊，现在天兵连个胡赛都不敢打，你觉得他16年敢打东大？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  marxel  
+##### 91#       发表于 2025-1-23 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253299&amp;ptid=2243911" target="_blank">致幻之勾 发表于 2025-1-23 11:44</a>
+
+确实，16年为什么不打？现在网上说法里面，我觉得那个“因为我们已经提早发现他们航母的位置，本着发现就 ...</blockquote>
+如果西大当时知道这不是为了南海，而是为了扼杀将来可能要了自己性命的最大对手的话，或许就不会就觉得这个代价大了
+
+还好历史没有千里眼，西大也没有未来侠
+
+*****
+
+####  AstraZeneca  
+##### 92#       发表于 2025-1-23 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252592&amp;ptid=2243911" target="_blank">nightrap 发表于 2025-1-23 10:27</a>
+
+很多时候发动战争就有赌一把的意思，赌赢了能得利，赌输了就完蛋了。
+
+如果拿明朝来比对的话，现在的美国多 ...</blockquote>
+明军的采购预算案可没有年年公布
+
+但是天兵的采购预算案都是公开的
+
+看了天兵的采购预算案还能觉得天兵没烂完的，也算是神人了
+
+【美军9000亿美元都花哪了？为什么会不够花？：美军2025年装备采购分析（一）】 [https://www.bilibili.com/video/B ... 2905c799db681b80ce0](https://www.bilibili.com/video/BV15CqNYzErK/?share_source=copy_web&amp;vd_source=5d97f4dd7c44b2905c799db681b80ce0)
+
+*****
+
+####  AstraZeneca  
+##### 93#       发表于 2025-1-23 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252917&amp;ptid=2243911" target="_blank">nightrap 发表于 2025-1-23 11:00</a>
+
+放到96年那次似乎更合适一些，但当时两边表面上的关系还过得去，2016年那次美利用南海在国际上的宣传造势 ...</blockquote>
+[https://sgp.fas.org/crs/row/RL33153.pdf](https://sgp.fas.org/crs/row/RL33153.pdf)
+
+别吹了别吹了，
+
+国会老爷们2024年看到的报告都是这样子的：
+
+东大20年舰船+112，西大20年舰船-3，
+
+老爷当场就震怒了
+
+
+*****
+
+####  再孝敬泥潭十块  
+##### 94#       发表于 2025-1-23 17:31
+
+ 本帖最后由 再孝敬泥潭十块 于 2025-1-23 17:34 编辑 
+<blockquote>marxel 发表于 2025-1-23 17:26
+如果西大当时知道这不是为了南海，而是为了扼杀将来可能要了自己性命的最大对手的话，或许就不会就觉得这 ...</blockquote>
+
+西大16年动手，大概率比现在还惨。除非把中国打分裂掉，但16年西大做不到，96年才可以。16年就算中国损失惨重，只要本土产能无损，一年之内大概率可以恢复，西大的损失就很难补充。
+

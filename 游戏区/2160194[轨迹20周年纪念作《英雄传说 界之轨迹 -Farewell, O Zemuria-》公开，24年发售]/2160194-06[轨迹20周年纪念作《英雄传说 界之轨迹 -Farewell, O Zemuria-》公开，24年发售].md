@@ -190,3 +190,14 @@ a1b8e45c1038534329662709d513b07ecb808884.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/23/161621xyjytjp9wpm2jss0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴基  
+##### 7465#       发表于 2025-1-23 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250956&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-23 00:03</a>
+
+2k全高 120帧左右 4070ti</blockquote>
+你该是设置不对吧 我2K全最高170DLSS
+
