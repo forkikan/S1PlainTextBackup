@@ -836,3 +836,53 @@ yysy,我之前看一些分析，到时候很大程度看日本人愿不愿意当
 之前只听说过这个纪录片，今天看了主楼链接视频的下半段开始就是张维为真的没绷住 ...</blockquote>
 哈哈 张VV老师厉害的 很早就国际上舌战群儒了
 
+
+*****
+
+####  ceruleancard  
+##### 78#       发表于 2025-1-23 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255172&amp;ptid=2243911" target="_blank">FeteFete 发表于 2025-1-23 15:22</a>
+
+yysy,我之前看一些分析，到时候很大程度看日本人愿不愿意当桥头堡
+
+到时候把空军部署到日本的基地，日本 ...</blockquote>
+日本当桥头堡是最搞的，都不用送快递，火箭炮就给他扬了
+
+
+*****
+
+####  initium  
+##### 79#       发表于 2025-1-23 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255321&amp;ptid=2243911" target="_blank">ceruleancard 发表于 2025-1-23 15:38</a>
+日本当桥头堡是最搞的，都不用送快递，火箭炮就给他扬了</blockquote>
+虽然但是，日本离中国还是有个一千几百公里的，火箭弹能够到的那是台巴子……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  FeteFete  
+##### 80#       发表于 2025-1-23 15:44
+
+<blockquote>ceruleancard 发表于 2025-1-23 15:38
+日本当桥头堡是最搞的，都不用送快递，火箭炮就给他扬了</blockquote>
+你没搞清楚我的意思，用日本当桥头堡，用日本平民的生命当肉盾，赌的就是**高道德水平
+
+另外日本人更多，基建恢复速度肯定比关岛冲绳这类基地高多了
+
+面积更大更广，可用基地更多
+
+
+*****
+
+####  问道于盲  
+##### 81#       发表于 2025-1-23 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254411&amp;ptid=2243911" target="_blank">保真花生 发表于 2025-1-23 14:05</a>
+
+现在流传说法是我们直接找到了他们航母的位置，这意味着一旦开打，起码他们的航母马上就折损一艘，而他 ...</blockquote>
+现在最影响我军颜值的装备应该就是轰六了
+
