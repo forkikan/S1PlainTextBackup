@@ -10328,3 +10328,62 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 确实是啊 有人莫名其妙给麻球发短信 该不会喵安真是幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">软糯什么的只是演技罢了
 
+
+*****
+
+####  中野梓  
+##### 5391#       发表于 2025-1-23 23:07
+
+刚才小睡了一会儿，做了个梦，
+
+梦里修司其实是贝托蒂嘉肚子里的孩子，转移到这个世界线想通过赛克缪和爹能回到原本的世界去引发阿克西斯的奇迹，可被吉翁捕获后代号沙仑的玫瑰，NT能力很强一直在寻找父亲，但发现找不到
+
+在夏亚和鸭妹打时出发了NT聊天室，修司以为是找到爹了，瞬移过去发现其实是鸭子，只用鸭子和赛克缪的的结果是赛克缪暴走
+
+到了0085接着找这个世界线的父亲，阿克西斯奇迹的钥匙是骡+鸭+赛克缪，现在他手上有了鸭和赛克缪，就差骡了
+
+并且修司原本这条贝子线就是串联上剧场版闪哈的世界线
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 5392#       发表于 2025-1-23 23:08
+
+为什么会把欲望和牢修联系在一起？
+
+*****
+
+####  RE㐅ia  
+##### 5393#       发表于 2025-1-23 23:10
+
+现在回看官网这个剧情简介，这事件发生顺序完全就是错的啊？按照这上面写的，那麻球应该是先遇上喵安开启军团战生活，然后在某一场战斗中偶遇被追捕修斯。实际上根据repo麻球第一场军团战就是和修斯一起打的。大家对此有什么看法？
+
+<img src="https://img.saraba1st.com/forum/202501/23/230942g9kr92g5vivk4555.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0F9468CF-249B-4A22-B5EA-C1F17963EF57.jpeg</strong> (154.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 23:09 上传
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5394#       发表于 2025-1-23 23:14
+
+太有imagination了我们修司 有没有兴趣加入彩虹列车
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刺客ares  
+##### 5395#       发表于 2025-1-23 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259789&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-23 23:10</a>
+
+现在回看官网这个剧情简介，这事件发生顺序完全就是错的啊？按照这上面写的，那麻球应该是先遇上喵安开启军 ...</blockquote>
+这个简介只是障眼法，后面会换成0085开头的那个吧
+
