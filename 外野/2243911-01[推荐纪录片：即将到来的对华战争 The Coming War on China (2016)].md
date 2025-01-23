@@ -1150,3 +1150,26 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 以后还真不好说<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中二骚年  
+##### 105#       发表于 2025-1-23 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256614&amp;ptid=2243911" target="_blank">pu 发表于 2025-1-23 18:00</a>
+
+上篇的作者发布里可以找到下篇 我就没贴
+
+但是我觉得上篇还是可以的 至少我不知道美国后来在辐射还在的情 ...</blockquote>
+还有小罗斯福的外公是毒贩，藤校和牢美工业化从鸦片贸易获得资助
+
+*****
+
+####  pu  
+##### 106#         楼主| 发表于 2025-1-23 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257421&amp;ptid=2243911" target="_blank">中二骚年 发表于 2025-1-23 19:35</a>
+
+还有小罗斯福的外公是毒贩，藤校和牢美工业化从鸦片贸易获得资助</blockquote>
+对 马萨诸塞靠中国鸦片贸易资金发展这类 以前是不晓得的
+

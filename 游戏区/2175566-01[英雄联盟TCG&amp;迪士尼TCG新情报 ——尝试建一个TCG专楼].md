@@ -133,3 +133,33 @@ PTCG朱紫第一弹卡表完全公开，最具代表性的两个朱紫卡组一�
 
 （顺带一提，同内容的日版和英语版都是每种7张带？/7的编号卡）
 
+
+*****
+
+####  makece  
+##### 226#       发表于 2025-1-23 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257166&amp;ptid=2175566" target="_blank">kytos 发表于 2025-1-23 18:59</a>
+
+结果151完全卖爆</blockquote>
+存量还在首批货量又低，肯定是火爆的
+
+*****
+
+####  はちたや  
+##### 227#       发表于 2025-1-23 19:43
+
+其实我真觉得mtg 取消简中没什么影响，甚至不如环境恶化把人赶走的多。当然并没有给sbwsz洗地的意思，只能说mtg国内早就是路边了，这两年因为edh反而新人还多起来了
+
+*****
+
+####  琴酒  
+##### 228#       发表于 2025-1-23 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257414&amp;ptid=2175566" target="_blank">killbillwillil 发表于 2025-1-23 19:34</a>
+
+半年前开始，简中WX第一次实装了每弹只存在5种（每种只有一张）的顶罕。
+
+半年过去，第一弹的5张里面还是只 ...</blockquote>
+怎么搞的和球星卡一样 1/1
+
