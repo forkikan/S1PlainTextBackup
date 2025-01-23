@@ -1050,3 +1050,22 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 邦多利什么时候速通日产了再震惊吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 10464#       发表于 2025-1-23 09:55
+
+新訪談部分
+
+柿本：確實如你所說祥子和祖父一起住的話，就不用沒落。但她的理想是她媽媽那樣的強大又溫柔，還有包容性的女性，所以她無法允許自己那樣。雖然她遵循了自己的正義去跟隨自己的父親，但她也不知道這是否是正確答案，雖然她有後悔，但有外人的眼光她也無法回到家裡去，而父親則是一直不工作…她只能被這些現實吞沒。不斷的暴露出來一直以來的自己有多依賴豐川這個家而活。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 10465#       发表于 2025-1-23 10:00
+
+李子也有去燈這個角色的試鏡，但監督聽了羊宮的就感覺“燈來了”，然後聽了李子的“這下初華也來了”。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
