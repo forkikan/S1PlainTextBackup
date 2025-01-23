@@ -4846,3 +4846,370 @@ mygo动画最后不会真得切割Mujica吧<img src="https://static.saraba1st.co
 
 这集就看祥子吃回旋镖，看乐了，这就是娱乐产业吗
 
+
+*****
+
+####  yevvet  
+##### 10858#       发表于 2025-1-23 22:56
+
+还有一个点还没有人说，op里的莫提斯是会弹吉他的。究竟到底是谁在演？
+
+*****
+
+####  takerest  
+##### 10859#       发表于 2025-1-23 22:56
+
+也别说观众祥黑了，真正的祥黑都在制作组，整一集都给大祥老师糯完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过后面都最低谷了怎么走也该往上了吧？
+
+*****
+
+####  TAQ  
+##### 10860#       发表于 2025-1-23 22:56
+
+既然要解散了，还不如后面先来一集go团日常缓一下节奏
+
+*****
+
+####  yanghuangu  
+##### 10861#       发表于 2025-1-23 22:56
+
+只能信爱等了，卖卡游戏、卖CD、卖谷子的企划不可能整出什么惊天烂活的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdeplee  
+##### 10862#       发表于 2025-1-23 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259395&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-23 22:52</a>
+
+我第一次看动画看到浑身发麻。
+
+更有节目效果的是，我在某人的直播间看的，一万多观众一起……快到ED的时候 ...</blockquote>
+在现场哈哈
+
+*****
+
+####  狮子咕  
+##### 10863#       发表于 2025-1-23 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四集写的这么灾难，下集祥子回大豪斯的剧情不会写的更灾难了吧……哇战火纷飞啊
+
+*****
+
+####  阿兹尔  
+##### 10864#       发表于 2025-1-23 22:57
+
+感觉剩下的不如演《日本精神病人》
+
+*****
+
+####  小小雪空  
+##### 10865#       发表于 2025-1-23 22:58
+
+根据现实精神病人的自述，人格和人格互相交流是很正常的事
+
+*****
+
+####  基神的强袭自由  
+##### 10866#       发表于 2025-1-23 22:58
+
+这集除了祥子其他三个人看到神经病第一反应：哦 双重人格啊，然后就继续吵架了
+
+*****
+
+####  厚乳果珍爽  
+##### 10867#       发表于 2025-1-23 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经可以想象到大过年的坛友看第五集还要給自己添堵的画面了
+
+*****
+
+####  帕林马哲理  
+##### 10868#       发表于 2025-1-23 22:58
+
+其实我感觉mortis/睦的情况比较像魔伊里的小伊莉雅/小黑的情况。伊莉雅就是个十岁小女孩；而小黑是原版伊莉雅，有点小恶魔，心理年龄长成了少女。
+
+*****
+
+####  太太  
+##### 10869#       发表于 2025-1-23 22:58
+
+前半集还行soyo玩手指大象吃瘪乐子挺多的，后半知道个双重人格就直接炸团了，姐们几个是真齐心直接180度调头都不用过渡的
+
+*****
+
+####  天空塔书记官  
+##### 10870#       发表于 2025-1-23 22:58
+
+ 本帖最后由 天空塔书记官 于 2025-1-23 23:00 编辑 
+
+如果之后能圆好，那这集就是被献祭的
+
+如果圆不好从这集开始就可以和bang宇宙切割了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 10871#       发表于 2025-1-23 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我都怀疑是现有回旋镖大祥老师这个创意再往前编木子米是双重人格
+
+*****
+
+####  rrrimo  
+##### 10872#       发表于 2025-1-23 22:59
+
+隔壁粉色奶龙都能一周从按和弦速成吉他 你小莫难道做不到吗
+
+小莫速成个吉他感觉银河战舰继续轰鸣啊
+
+*****
+
+####  hol_effect  
+##### 10873#       发表于 2025-1-23 22:59
+
+当发现你熟悉的人有了精神障碍，最应该做的是通知亲人和送她去医院，要是真几个人商量好搁这电疗，我不好说是不是烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 10874#       发表于 2025-1-23 22:59
+
+唉，现在能不能安安心心完结一部番啊。我觉得最近日本欧美烂尾作品特别多。还是幸存者偏差问题
+
+*****
+
+####  cxj649  
+##### 10875#       发表于 2025-1-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259502&amp;ptid=2208921" target="_blank">yanghuangu 发表于 2025-1-23 22:56</a>
+
+只能信爱等了，卖卡游戏、卖CD、卖谷子的企划不可能整出什么惊天烂活的吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达铁血
+
+*****
+
+####  tiro_finale  
+##### 10876#       发表于 2025-1-23 23:00
+
+喵梦实在写得太糙了，mygo时期感觉还挺有潜力的一人，现在怎么成提线木偶了
+
+最后那段让她出来发难的操作，编剧的大手太过有形，实在很难当做看不到
+
+现在播的四话有点像是搓了几个爆点“这么写观众一定会很激动吧”，来作为每集的结局，然后自动生成剧情填进去
+
+*****
+
+####  聊nsy专用号  
+##### 10877#       发表于 2025-1-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259430&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-23 22:53</a>
+
+哎呦我草，真搞双重人格那套啊？那真俗烂了吧，这喵梦人设是彻底烂掉了，喵梦劈头盖脸一顿骂的原因在哪了？ ...</blockquote>
+双城2是因为把包袱都留到最后抖才烂完的，很明显鸡现在是在快速过峰，四集把制造的悬念爆完下一集回到乐队番正常的节奏上
+
+*****
+
+####  yevvet  
+##### 10878#       发表于 2025-1-23 23:00
+
+还有一个点，喵梦质疑双重人格这点。莫提斯她并没有承认啊？她只是哼了一声
+
+*****
+
+####  461757753  
+##### 10879#       发表于 2025-1-23 23:00
+
+剪切线含金量再创新高
+
+*****
+
+####  童贞阿龙  
+##### 10880#       发表于 2025-1-23 23:00
+
+不要慌，一定是技术性调整，大家一定都在装蠢演戏想把睦拉回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  6030sylar  
+##### 10881#       发表于 2025-1-23 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">是不是mygo给了你们不该有的期待，就不要对邦邦动画的剧情有什么期待，看看前三季那水的
+
+*****
+
+####  Asukalangley33  
+##### 10882#       发表于 2025-1-23 23:01
+
+不要把独角兽老师的剧本幻想的过于自由的
+
+肯定还是遵守那套范式
+
+现在母鸡卡5个人分别对go团的5个人有关联
+
+后面应该就是除了祥子以外的4个人被go团的羁绊角色点醒
+
+祥子作为主角，就是众人齐上阵+牢爹和解之后回归
+
+最后大家一起包寿司，老老实实进pico变猪鼻大头
+
+*****
+
+####  PDQ4  
+##### 10883#       发表于 2025-1-23 23:01
+
+人设倒退这个你往前推几集，水魔不就干过嘛
+
+古有狸猫结尾握拳下集继续上学，今有祥子结尾喊睦下集啥都不干<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然我觉得祥子这不是倒退，已经变成另一个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 10884#       发表于 2025-1-23 23:01
+
+接下来不会是:mygo众人出场少就成功吧
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 10885#       发表于 2025-1-23 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵梦这几天喷祥子喷出路径依赖了吗
+
+遇事不决先给牢祥压力一波
+
+*****
+
+####  iiiiiiiiii  
+##### 10886#       发表于 2025-1-23 23:03
+
+烧柱香希望平安落地吧
+
+*****
+
+####  萌二  
+##### 10887#       发表于 2025-1-23 23:03
+
+是不是有点像exaid集体变龙骑士猎人那集
+
+*****
+
+####  你妈的为什么  
+##### 10888#       发表于 2025-1-23 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太哈人了啊，比恐怖片还恐怖啊
+
+*****
+
+####  rs5621  
+##### 10889#       发表于 2025-1-23 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别慌，炸箱这剧情我在mygo看过。接下来是小睦用真心对真心，让其他人回心转意
+
+*****
+
+####  sephal  
+##### 10890#       发表于 2025-1-23 23:04
+
+这个小莫与其说是个人格，给我感觉更像个AI或者程序，针对目前情况自动选择记忆里某个人的台词动作表情然后模仿播放，假如记忆里没有可使用的素材就直接无能狂怒了
+
+本来还寻思小莫能替代祥子继续领导第二代银河战舰，最起码能撑一段日子，没想到直接解体了，太废了
+
+*****
+
+####  厄神之息  
+##### 10891#       发表于 2025-1-23 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259079&amp;ptid=2208921" target="_blank">CharlieZ- 发表于 2025-1-23 22:37</a>
+
+刚才在非官方直播间看了眼投票怎么这集才70%好评，什么情况</blockquote>
+？这为什么还有70%好评，角色厨还是太多了
+
+*****
+
+####  yevvet  
+##### 10892#       发表于 2025-1-23 23:04
+
+莫提斯并没有说自己是双重人格。而是大祥告诉其他人的。喵梦就问了莫提斯你真的是双重人格吗？莫提斯没有回答这个问题，只是笑着看着祥子
+
+*****
+
+####  十九号大侠  
+##### 10893#       发表于 2025-1-23 23:04
+
+其实又感觉初华还好，比起祥子，她更喜欢看氛围?
+
+*****
+
+####  影伴光生  
+##### 10894#       发表于 2025-1-23 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259437&amp;ptid=2208921" target="_blank">银酒监武 发表于 2025-1-23 22:53</a>
+mygo动画最后不会真得切割Mujica吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo最后一集给了mujica一半，这下真有晚节不保的风险了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 10895#       发表于 2025-1-23 23:04
+
+其实ed而言，炸团是迟早的事情，但是我没想到会搞得恶搞与沉重混合，然后双人格这点和最后炸团链接有点为炸而炸的味道，而且这话搞完不但祥子，连睦的里人格逼格跌停<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hol_effect  
+##### 10896#       发表于 2025-1-23 23:05
+
+还是说从红光那里就是转场景变成舞台了，玩这种简单的叙诡？但是节奏也太奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 10897#       发表于 2025-1-23 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259562&amp;ptid=2208921" target="_blank">rrrimo 发表于 2025-1-23 22:59</a>
+
+隔壁粉色奶龙都能一周从按和弦速成吉他 你小莫难道做不到吗
+
+小莫速成个吉他感觉银河战舰继续轰鸣啊 ...</blockquote>
+他是主音吉他，初华是和弦吉他，和弦工作量小可以做主唱。
+
+*****
+
+####  gaayas  
+##### 10898#       发表于 2025-1-23 23:05
+
+别一块带崩就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 10899#       发表于 2025-1-23 23:05
+
+感觉只能去问监督和独角兽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Hchan  
+##### 10900#       发表于 2025-1-23 23:06
+
+后面烂了也就证明mygo的成绩属于偶然，毕竟作为主创的柿本和绫乃过去履历都没有超过mygo水平的原创作品，拍完mygo后分别参与的《圣魔大战》和《亦叶亦花》也都是一坨
+
