@@ -9873,3 +9873,24 @@ PV1的画面是全部都出现在剧场版了吗
 
 2025-1-23 18:47 上传
 
+
+*****
+
+####  Gysumitka  
+##### 5345#       发表于 2025-1-23 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257029&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-23 18:45</a>
+我是这么想的，UC牛逼的NT死了应该多少有个女鬼状态，拉拉在主宇宙阴魂不散，魂穿的可能性不大，你看哈曼 ...</blockquote>
+<img src="https://p.sda1.dev/21/4dfcbb6a086e00863b60f109a0a9044d/image.jpg" referrerpolicy="no-referrer">
+确实有可能，把白卡一起传过去
+
+*****
+
+####  中野梓  
+##### 5346#       发表于 2025-1-23 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257100&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-23 18:53</a>
+
+确实有可能，把白卡一起传过去</blockquote>
+赛克缪技术不就有了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

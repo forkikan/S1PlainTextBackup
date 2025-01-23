@@ -2399,3 +2399,75 @@ mortis真就一集时髦值啊
 
 [https://x.com/MIIx777/status/1882087913116385621/photo/1](https://x.com/MIIx777/status/1882087913116385621/photo/1)
 
+
+*****
+
+####  1223122  
+##### 10587#       发表于 2025-1-23 18:50
+
+睦党做好充足心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 10588#       发表于 2025-1-23 18:50
+
+我超，情报
+
+*****
+
+####  本间日阳  
+##### 10589#       发表于 2025-1-23 18:52
+
+十八路舅舅齐聚本楼了。
+
+*****
+
+####  miomio123  
+##### 10590#       发表于 2025-1-23 18:53
+
+哈人，如果睦又出啥问题了的话，祥子又要被抽爆陀螺了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  帝下室の年糕  
+##### 10591#       发表于 2025-1-23 18:54
+
+我只想知道南瓜哥说年度第一原创是看了前三集的结论还是看完全片的结论<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  坐看风起云涌  
+##### 10592#       发表于 2025-1-23 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257102&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-1-23 18:54</a>
+我只想知道南瓜哥说年度第一原创是看了前三集的结论还是看完全片的结论</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 10593#         楼主| 发表于 2025-1-23 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257070&amp;ptid=2208921" target="_blank">1223122 发表于 2025-1-23 18:50</a>
+
+睦党做好充足心理准备</blockquote>
+情报哥剧透麻烦别带图<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">再说隐晦点
+
+*****
+
+####  KLHgg  
+##### 10594#       发表于 2025-1-23 18:57
+
+第四集今晚就播了，情报哥说的是第五集？
+
+*****
+
+####  阿姆罗二世  
+##### 10595#       发表于 2025-1-23 18:58
+
+南瓜哥基本只透一集吧，应该就是第四集
+
