@@ -3374,3 +3374,682 @@ m女士一急眼就复读了，真的是人偶啊
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  yanghuangu  
+##### 10688#       发表于 2025-1-23 22:26
+
+创业未半啊，中道崩阻啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10689#       发表于 2025-1-23 22:26
+
+感觉他们真在演舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novalli  
+##### 10690#       发表于 2025-1-23 22:26
+
+喵梦那一段真的只能说是剧本扎实。
+相信独角兽老师好吧，相信不需要理由！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  AP0rt_  
+##### 10691#       发表于 2025-1-23 22:26
+
+不知道祥黑能不能出来冒个头暴论一句
+大祥老师从始至终都是黑祥，不用考虑其他变量，从她接触钢琴的那一刻起她就没变过
+
+*****
+
+####  osore  
+##### 10692#       发表于 2025-1-23 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该分锅了
+
+*****
+
+####  pokemon最爱  
+##### 10693#       发表于 2025-1-23 22:26
+
+银河战舰空中解体！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+某种意义上说这确实是个好办法，在顶点的时候突然宣布解散给所有人留下一个问号，能在大部分人的心中长久地留下痕迹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snhz1029  
+##### 10694#       发表于 2025-1-23 22:26
+
+未竟之业。。。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10695#       发表于 2025-1-23 22:27
+
+ 本帖最后由 天空塔书记官 于 2025-1-23 22:29 编辑 
+
+话说这不会就是监督和编剧决裂的开端吧，感觉已经变成实验动画了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  卡拉德利姆  
+##### 10696#       发表于 2025-1-23 22:27
+
+小魔头光靠模仿，没有对人处事的经验，最速翻车也很合理
+
+*****
+
+####  凉良  
+##### 10697#       发表于 2025-1-23 22:27
+
+这集我要投-2了 什么鬼玩意
+
+*****
+
+####  无证madam  
+##### 10698#       发表于 2025-1-23 22:27
+
+心理恐怖片
+
+*****
+
+####  luocmlll  
+##### 10699#       发表于 2025-1-23 22:27
+
+不是，大喵这人设到底是个啥啊，你看重乐队摘面具干啥，又变成家人侠乐队侠不是两头堵，感觉除了为了对着祥子重拳出击前后逻辑说不通了。
+
+*****
+
+####  PDQ4  
+##### 10700#       发表于 2025-1-23 22:27
+
+ 本帖最后由 PDQ4 于 2025-1-23 22:29 编辑 
+
+mortis这有点太菜了，我还以为能把队友玩弄于股掌之间，结果彻底自己玩崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的从小和睦一起长大吗，怎么感觉实际年龄不超过幼儿园<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Diong  
+##### 10701#       发表于 2025-1-23 22:27
+
+这太糟糕了，演的什么啊？真就为爆而爆啊。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+-2
+
+*****
+
+####  影伴光生  
+##### 10702#       发表于 2025-1-23 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258833&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-1-23 22:26</a>
+银河战舰空中解体！
+
+某种意义上说这确实是个好办法，在顶点的时候突然宣布解散给所有人留下一个问号，能在 ...</blockquote>
+然后光速爆出成员丑闻是吧（行miku老师故事）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swff  
+##### 10703#       发表于 2025-1-23 22:27
+
+这集要不是演的或者叙诡真的烂透了吧
+
+*****
+
+####  Yinacona  
+##### 10704#       发表于 2025-1-23 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">怎么说，这集有点预想不到的烂，好烂的处理
+
+*****
+
+####  asion617  
+##### 10705#       发表于 2025-1-23 22:28
+
+mortis好菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sherrycat  
+##### 10706#       发表于 2025-1-23 22:28
+
+还以为大莫代打全杀了 
+
+结果涉及到睦的底线——保护小睦和母鸡卡不能解散 这个问题上拿不出方案啊
+
+最后大莫老师尖叫疑似是给eva的情书
+
+*****
+
+####  童话与星空  
+##### 10707#       发表于 2025-1-23 22:28
+
+还有9集，下面该怎么演呢？
+
+*****
+
+####  帕林马哲理  
+##### 10708#       发表于 2025-1-23 22:29
+
+我勒个去，门的那个镜头堪比《闪灵》里面的的那个，这集完全是恐怖片思路<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  天空塔书记官  
+##### 10709#       发表于 2025-1-23 22:29
+
+希望别最后搞个梦结局出来糊弄人就行
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  不知名工具人  
+##### 10710#       发表于 2025-1-23 22:29
+
+看得我一头雾水<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 10711#       发表于 2025-1-23 22:29
+
+至少母鸡卡比苦来兮苦长寿
+
+*****
+
+####  hol_effect  
+##### 10712#       发表于 2025-1-23 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这后面真的拉的回来吗
+
+*****
+
+####  本间日阳  
+##### 10713#       发表于 2025-1-23 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">反正我喜欢，不喜欢的人永别了。
+
+*****
+
+####  阿兹尔  
+##### 10714#       发表于 2025-1-23 22:30
+
+初华目前的表现像个弱智(直球)
+
+*****
+
+####  普通哈尼  
+##### 10715#       发表于 2025-1-23 22:30
+
+啊呀骇死我力
+
+*****
+
+####  稀勢のささ  
+##### 10716#       发表于 2025-1-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258849&amp;ptid=2208921" target="_blank">luocmlll 发表于 2025-1-23 22:27</a>
+
+不是，大喵这人设到底是个啥啊，你看重乐队摘面具干啥，又变成家人侠乐队侠不是两头堵，感觉除了为了对着祥 ...</blockquote>
+想要自己的流量--算了她那么牛逼我就搁乐队混一混也行--CNM的大小姐祥子这也不行那也不行我不玩了，还有你个傻O木头不去当演员玩你妈乐队呢
+
+*****
+
+####  新HGCG  
+##### 10717#       发表于 2025-1-23 22:30
+
+所以现在的睦应该还不是完全体
+
+*****
+
+####  看穿一切的鱼  
+##### 10718#       发表于 2025-1-23 22:30
+
+前半集还是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  flish  
+##### 10719#       发表于 2025-1-23 22:30
+
+黑刀之夜重现，这次谁的锅
+
+*****
+
+####  raii  
+##### 10720#       发表于 2025-1-23 22:30
+
+墨女士超强的演技之下居然一点自己的想法都没有，真就是百变怪复读机<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 10721#       发表于 2025-1-23 22:30
+
+牢墨也被爆了，还以为能拖到季末结果第五集就完蛋
+
+真搞成双重人格真不好收场
+
+*****
+
+####  ml1642879  
+##### 10722#       发表于 2025-1-23 22:30
+
+EP3的恐怖程度不如EP4百分之一，i83真的能看吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Sherrycat  
+##### 10723#       发表于 2025-1-23 22:30
+
+我们要尊重staff的心血啊 所以我要揭开面具 全爆了
+
+*****
+
+####  yevvet  
+##### 10724#       发表于 2025-1-23 22:30
+
+总感觉是为了让睦回来大家串通好去逼mortis
+
+*****
+
+####  cayon  
+##### 10725#       发表于 2025-1-23 22:30
+
+可怕吗，感觉有点搞笑
+
+*****
+
+####  newtroll  
+##### 10726#       发表于 2025-1-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258837&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-23 22:27</a>
+话说这不会就是监督和编剧决裂的开端吧，感觉已经变成实验动画了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+感觉三集完了直接换人做了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rrrimo  
+##### 10727#       发表于 2025-1-23 22:30
+
+原创动画不一定每次都能让你感叹牛逼 但至少总能让你笑出来
+
+*****
+
+####  hulaoda007  
+##### 10728#       发表于 2025-1-23 22:31
+
+很难看的一集，但我心里只有喵梦女士，所以我看的很开心。
+
+*****
+
+####  天空塔书记官  
+##### 10729#       发表于 2025-1-23 22:31
+
+空壳而已，你不能指望衣服能有自己的思想
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Litccc  
+##### 10730#       发表于 2025-1-23 22:31
+
+这弱智剧情有种一集时间把蝈蝈速刷了一遍的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdeplee  
+##### 10731#       发表于 2025-1-23 22:31
+
+邦多利转折中的若叶睦：C团炸团我在场，母鸡烟花我指挥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 10732#       发表于 2025-1-23 22:31
+
+  军事法庭开庭了吧，初华演的好降智啊
+
+  太土了 喵梦真的是就是家人侠啊
+
+*****
+
+####  pliee  
+##### 10733#       发表于 2025-1-23 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258829&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-23 22:26</a>
+
+喵梦那一段真的只能说是剧本扎实。
+
+相信独角兽老师好吧，相信不需要理由！</blockquote>
+扎实在哪，这是第一集故意摘面具的人该说的话码？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 10734#       发表于 2025-1-23 22:31
+
+我觉得喵梦摘面具是纯纯团队毒瘤操作。。。
+
+祥子也活出了程序员被叫去当领导的风采
+
+但是吧。。。。
+
+团队里真有货真价实的精神病，这谁也无法预料吧。。。
+
+*****
+
+####  Sherrycat  
+##### 10735#       发表于 2025-1-23 22:32
+
+初华怎么成了脑子里只有祥子的“傻白甜”…………难绷
+
+*****
+
+####  阿兹尔  
+##### 10736#       发表于 2025-1-23 22:32
+
+初华这表现后面得啥样才能救回来
+
+*****
+
+####  105gun  
+##### 10737#       发表于 2025-1-23 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kuso味儿爆了，从祥子和大莫老师对线开始我就狂笑不止
+
+怎么说呢，感觉就像是恋恋的心跳大冒险的恋恋平移到了莫莫头身上，演的还是花与太阳与雨
+
+
+*****
+
+####  狮子咕  
+##### 10738#       发表于 2025-1-23 22:32
+
+顺便这个小莫心智看起来不到10岁……
+
+*****
+
+####  yevvet  
+##### 10739#       发表于 2025-1-23 22:32
+
+初华装的啊。她上一集还在偷看呢
+
+*****
+
+####  hol_effect  
+##### 10740#       发表于 2025-1-23 22:32
+
+小莫的核心就是乐队不能解散和保护睦，其他的都是身边人的复制粘贴，但是自己不会弹吉他，属于是自己逼死了自己<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 10741#       发表于 2025-1-23 22:32
+
+这集的转折太快和生硬了，喵梦爆得很奇怪
+
+*****
+
+####  予地以花  
+##### 10742#       发表于 2025-1-23 22:32
+
+莫女士和睦子米竟是卧龙凤雏<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 10743#       发表于 2025-1-23 22:33
+
+真的没想到能在邦里看见有角色把“双重人格”这四个字说出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 10744#       发表于 2025-1-23 22:33
+
+趁着还没身败名裂光速跑路
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">某种意义上太写实了
+
+*****
+
+####  风道北来  
+##### 10745#       发表于 2025-1-23 22:33
+
+太烂了，感觉像三倍速过剧本。除非后面有神回不然这一季的上限已经被钉死了
+
+不过拷打大祥老师这点我还是挺喜欢的。大祥老师可以盖棺是轻度NPD，少女动画里出现这种人设可真是稀奇啊。
+
+*****
+
+####  卡卡布鲁根  
+##### 10746#       发表于 2025-1-23 22:33
+
+这集在努力洗喵梦了
+家人侠
+压力祥子
+就是跟前几集流量狗有点不搭
+不过商业动画不能要求太多了
+
+m老师辛苦了
+直接直球把每个人爆一遍
+这样可以剩下3-4集的剧本量吧
+就是这样写未免有点机械降神
+
+这样看下来
+4-7就是开炸
+8就是平稳过度
+9-13就是大祥老师开始发力重组
+
+还是很符合商业动画的
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Perfectfullmoon  
+##### 10747#       发表于 2025-1-23 22:33
+
+这下全员都在演戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 10748#       发表于 2025-1-23 22:33
+
+这两集看着好混乱，有点为爆而爆了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看莫老师前面架空大祥老师还以为是有操作的，结果被大伙儿一爆就全麻了，原来你跟睦头一个战斗力啊
+
+*****
+
+####  gammatau  
+##### 10749#       发表于 2025-1-23 22:33
+
+<blockquote>yevvet 发表于 2025-1-23 22:30
+总感觉是为了让睦回来大家串通好去逼mortis</blockquote>
+这四个人是上台前才想好压力mortis 还是在mortis进门时就决定了？要是后者那mortis可比这四个都拟人了
+
+*****
+
+####  黒鈴ミヲ  
+##### 10750#       发表于 2025-1-23 22:34
+
+确实没看懂内在的逻辑
+大喵老师奋斗这么久有个出人头地的机会说爆就爆了
+初华全程不知道在干什么，是想爆还是想接着干我暂且蒙古去
+睦头人铺垫三集切了号可惜是个单片机，接受到解散信号之后直接短路了
+海玲还算正常吧，看得出来在推动解决问题
+大祥老师呢——小祥不语，只是一味被回旋镖打
+
+太有剧情了你们avemujica，感觉要打-2了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 10751#       发表于 2025-1-23 22:34
+
+最不希望mygo有后续的一集
+
+*****
+
+####  萌二  
+##### 10752#       发表于 2025-1-23 22:34
+
+可以光速踢了莫提斯 拉爱音入伙<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 10753#       发表于 2025-1-23 22:34
+
+这下喷不了爱音是邦多利最菜吉他了
+
+因为莫提斯才是垫底啊
+
+*****
+
+####  Onelooker  
+##### 10754#       发表于 2025-1-23 22:34
+
+现实里的多重人格真的可能完全抛弃主人格逻辑清晰的和人对话吗
+
+一个人内存就那么大吧
+
+*****
+
+####  ntrntr1  
+##### 10755#       发表于 2025-1-23 22:34
+
+初华确实最迷
+
+祥子虽然确实不适合当领导，但我觉得最可怜的是居然这团没一个人是为了她的音乐过来的，明明这个速度说明别人是作曲天才，但是看上去最关心她的初华看上去也丝毫不care别人的作曲理念。。。 太惨了
+
+*****
+
+####  天空塔书记官  
+##### 10756#       发表于 2025-1-23 22:34
+
+讲个鬼故事，第二季第四集是HHW钢铁熊初登场的时候，这下致敬传奇超自然乐队了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Traero  
+##### 10757#       发表于 2025-1-23 22:34
+
+初花纯串子，等着变脸。大喵老师家人侠
+
+*****
+
+####  chih12  
+##### 10758#       发表于 2025-1-23 22:35
+
+进度也太快了，mortis 连祥子都能模仿，为啥不模仿木头人
+
+*****
+
+####  jaewoongh_  
+##### 10759#       发表于 2025-1-23 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长期来讲早点爆能早点包饺子，但我很好奇第七集能编出个啥
+
+*****
+
+####  PDQ4  
+##### 10760#       发表于 2025-1-23 22:35
+
+有种所有人智商下线的美感，不知所云，烂片雷达响了
+
+这下真的水魔了，脚本之间真的有交流吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子先是中途才发现睦变了，那第三集结尾你震惊什么？然后一直缩缩没有任何去做的，鸡解散也就这么认了
+
+拼命练习的喵和工作批睦对不练习完美没有意见，被小孩mortis完美牵着鼻子走
+
+初华更是mortis说什么听什么，然后祥子听了就信了，啊？
+
+当然更抽象的还是mortis，演的那么好，结果是屁孩本性，发现有人不听话就彻底崩了
+
+你鸡剧本要是后面还这样埋了吧，怪不得广播看了第四集不知道怎么发展，烂成这样还真不知道怎么发展
+
+
+*****
+
+####  惨剧王者  
+##### 10761#       发表于 2025-1-23 22:35
+
+四个人清君侧 盼睦归 不破不立 好理解
+
+*****
+
+####  yevvet  
+##### 10762#       发表于 2025-1-23 22:35
+
+祥子他们四个人躲着莫提斯说了很多，但是莫提斯一进来喵梦就开始发功。大家就开始压力莫提斯，感觉是故意的吧
+
+*****
+
+####  Gandalf  
+##### 10763#       发表于 2025-1-23 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258933&amp;ptid=2208921" target="_blank">Litccc 发表于 2025-1-23 22:31</a>
+
+这弱智剧情有种一集时间把蝈蝈速刷了一遍的感觉</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/23/223428xvvuv5ywbyd6lbn3.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250123-223401.png</strong> (194.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 22:34 上传
+
+当你看到声优和士大夫都在吹的时候，十有八九要寄<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 10764#       发表于 2025-1-23 22:36
+
+只能多看两遍我的软糯小祥<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拱猪  
+##### 10765#       发表于 2025-1-23 22:36
+
+mortis不过是个拷贝忍者，大象老师复读机罢了，她尽力了，不怪她。
+
+大猫老师的行为就很抽象了，如果是为了乐队延续商业化路线，应该跳出来做和事佬，也不会搞这出退团戏，是觉得自己离开母鸡卡单飞更好么，根本不知道这人的行动逻辑在哪里。
+
