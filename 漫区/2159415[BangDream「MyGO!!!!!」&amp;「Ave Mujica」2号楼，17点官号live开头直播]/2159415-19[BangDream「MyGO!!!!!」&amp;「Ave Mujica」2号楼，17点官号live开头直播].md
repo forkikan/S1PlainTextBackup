@@ -3166,3 +3166,40 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  月島まりな  
+##### 26883#       发表于 2025-1-23 17:56
+
+<img src="https://p.sda1.dev/21/eee5ce3b0820dc34f746663e4d5d2c0a/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a634500a9a77ee5aa06b4a48a86755e7/image.png" referrerpolicy="no-referrer">
+
+<strong>Morfonica 2nd Album「Polyphony」</strong>
+
+1.<strong>Polyphonyscape</strong>
+
+2.Wreath of Brave
+
+3.<strong>Merry Merry Thanks!!</strong>
+
+4.Sonorous
+
+5.両翼のBrilliance
+
+6.<strong>Steer to Utopia</strong>
+
+7.Fateful...
+
+8.<strong>ティリカモニカリラ</strong>
+
+9.Secret Dawn
+
+10.Angel's Ladder
+
+11.One step at a time
+
+12.Tempest
+
+[https://bang-dream.com/discographies/3889](https://bang-dream.com/discographies/3889)
+

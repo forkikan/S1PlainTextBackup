@@ -1085,3 +1085,16 @@ asbm只是最后一根稻草
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pu  
+##### 99#         楼主| 发表于 2025-1-23 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255863&amp;ptid=2243911" target="_blank">葛雷新 发表于 2025-1-23 16:38</a>
+
+https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没啥好看的</blockquote>
+上篇的作者发布里可以找到下篇 我就没贴
+
+但是我觉得上篇还是可以的 至少我不知道美国后来在辐射还在的情况下让土著迁回 然后观察和实验人被长期辐射
+
