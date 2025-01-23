@@ -9467,3 +9467,27 @@ NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
 
 痞子这次干劲十足啊
 
+
+*****
+
+####  虛無迴廊  
+##### 5305#       发表于 2025-1-23 15:15
+
+动起来感觉一切都那么顺眼
+
+*****
+
+####  doas9  
+##### 5306#       发表于 2025-1-23 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还做了类似于gundam evolve那种高米粒散布下的真是视角攻击图，确实挺刺激的。
+
+不过我不喜欢4眼。
+
+*****
+
+####  虛無迴廊  
+##### 5307#       发表于 2025-1-23 15:18
+
+0085的部分没找到在哪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">急急急
+
