@@ -2076,3 +2076,36 @@ QQ图片20250123145947.jpg
 换句话讲喵梦和祥子不是结构性矛盾？祥子在拿睦钓喵梦的时候就没有喵梦独走的预案吗？这么看祥子手下银河 ...</blockquote>
 祥子应该没有做任何其他人不听指挥或者她压不住人的预案，很可能觉得自己能力强又是总指挥所以别人听自己命令是件理所当然的事，一方面是人走出大宅子了意识还没有，另一方面也是犯了搞技术搞业务的人经常犯的错
 
+
+*****
+
+####  厉飞雨  
+##### 10554#       发表于 2025-1-23 17:09
+
+<img src="https://p.sda1.dev/21/6f4fe6a03b047a2752199767e89c7b08/image.jpg" referrerpolicy="no-referrer">
+大喵老师整活的动机如此纯朴
+
+
+*****
+
+####  blackeryuri2  
+##### 10555#       发表于 2025-1-23 17:13
+
+<blockquote>舆水沉浮 发表于 2025-1-23 17:00
+怕误会说下，这个是第五集的事情，第四集怎么说呢，mortis变成第二个soyo罢了
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+优越剧透狗
+
+*****
+
+####  swessia  
+##### 10556#       发表于 2025-1-23 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256136&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-23 17:09</a>
+
+大喵老师整活的动机如此纯朴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我比不了别的四个，那摘了面具就比过了？
+
+还是觉得迟早会被踢，不如早把好处收了
+
