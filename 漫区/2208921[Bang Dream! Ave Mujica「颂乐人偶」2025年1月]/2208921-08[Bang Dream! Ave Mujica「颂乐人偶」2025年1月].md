@@ -1115,3 +1115,69 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 而且背后混蛋老爹都骂出来了还在给酒钱，什么慈母多败儿，要是能给牢祥说几句好话那不得把牢祥pua到死啊。
 
+
+*****
+
+####  YF31  
+##### 10469#       发表于 2025-1-23 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252259&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 09:55</a>
+
+新訪談部分
+
+柿本：確實如你所說祥子和祖父一起住的話，就不用沒落。但她的理想是她媽媽那樣的強大又溫柔， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">外人的眼光基本上算是实锤了之前说的”丰川家黑暗“了吧，想想也很正常，要是这么大一个财阀你想来就来想走就走，牢登也不用把牢祥收成女儿确保继承权了。
+
+
+*****
+
+####  IVANLIAO  
+##### 10470#       发表于 2025-1-23 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248777&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-22 18:24</a>
+
+那我请问了，这番是叫《大祥传》还是《BanG Dream! Ave Mujica》，如果是《大祥传》的话，那就没事了
+
+—— ...</blockquote>
+这番不是叫《大喵喵升职记》？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 10471#       发表于 2025-1-23 10:23
+
+<blockquote>御幸一也 发表于 2025-1-23 10:00
+李子也有去燈這個角色的試鏡，但監督聽了羊宮的就感覺“燈來了”，然後聽了李子的“這下初華也來了”，就讓 ...</blockquote>
+李子配灯 
+
+总感觉很奇怪
+
+*****
+
+####  swessia  
+##### 10472#       发表于 2025-1-23 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252259&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 09:55</a>
+
+新訪談部分
+
+柿本：確實如你所說祥子和祖父一起住的話，就不用沒落。但她的理想是她媽媽那樣的強大又溫柔， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">没多大问题，认清现实才能前进
+
+*****
+
+####  哈曼的YY  
+##### 10473#       发表于 2025-1-23 10:23
+
+这段话把祥老师讲的像张五飞似的
+
+*****
+
+####  御幸一也  
+##### 10474#       发表于 2025-1-23 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252506&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-23 10:18</a>
+
+外人的眼光基本上算是实锤了之前说的”丰川家黑暗“了吧，想想也很正常，要是这么大一个财阀你想来就来想 ...</blockquote>
+這裡原文是「見栄えもあって家には戻れず」，我剛睡醒沒想好怎麼翻才是最好，見栄え直譯就是“外表、外觀”<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
