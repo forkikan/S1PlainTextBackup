@@ -165,3 +165,11 @@ pc和ps版有啥区别吗，是有简中了</blockquote>
 
 不知道Ps什么情况  pc4k120fps画质拉满很流畅
 
+
+*****
+
+####  克里斯蒂娜  
+##### 7463#       发表于 2025-1-23 15:50
+
+怎么我手柄不能用<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
