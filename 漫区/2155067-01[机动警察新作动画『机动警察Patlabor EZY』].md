@@ -901,3 +901,14 @@ CG制作：GAZEN
 
 感觉这题材在九十年代初还算时髦，但是现在各种科技发展背景下不够亮眼了
 
+
+*****
+
+####  Siran_China  
+##### 83#       发表于 2025-1-23 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253014&amp;ptid=2155067" target="_blank">失落之翼 发表于 2025-1-23 11:09</a>
+
+感觉这题材在九十年代初还算时髦，但是现在各种科技发展背景下不够亮眼了 ...</blockquote>
+机动条子历久弥新的特色从来都不是 Labor，实际上给人印象最深的几集往往都和 Labor 没啥关系（轻井泽，红色圆舞曲等等），顶多是作战工具（剧场版 2）。机动条子最吸引我的是在科幻背景下，一群无所事事的公务员在相对与世隔绝的工作场所中每日的柴米油盐鸡毛蒜皮，我觉得这样的 Workplace Drama 永远不会过时的。
+
