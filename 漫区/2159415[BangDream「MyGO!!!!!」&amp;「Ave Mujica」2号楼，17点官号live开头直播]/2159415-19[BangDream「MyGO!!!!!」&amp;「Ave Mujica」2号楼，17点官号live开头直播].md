@@ -3081,3 +3081,19 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 放那么多票，你卖谁了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26875#         楼主| 发表于 2025-1-23 13:06
+
+<img src="https://img.saraba1st.com/forum/202501/23/130622er12x7hrx32quk1x.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250123_130608.jpg</strong> (124.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:06 上传
+
+真的Kirakiradokidoki吗
+
