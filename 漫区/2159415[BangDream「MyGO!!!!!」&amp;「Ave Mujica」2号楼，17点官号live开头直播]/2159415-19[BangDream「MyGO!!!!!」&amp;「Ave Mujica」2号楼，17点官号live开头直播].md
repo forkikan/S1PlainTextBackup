@@ -3063,3 +3063,13 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 卧槽泥马的黄牛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">秒没的，假疯了
 
+
+*****
+
+####  DancingAndy  
+##### 26873#       发表于 2025-1-23 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次抢到了这次没抢到
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1462,3 +1462,27 @@ https://www.bilibili.com/bangumi/play/ss73081
 
 隔壁泥潭专楼的，访谈里的一段，算是实锤了之前的猜测（喵梦摘面更没得洗了）
 
+
+*****
+
+####  UNISONIA  
+##### 10500#       发表于 2025-1-23 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252400&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-23 10:10</a>
+
+有关第五话预告的那句拉丁文facta fugis, facienda petis，虽说是出自狄多对埃涅阿斯，但如果把埃涅阿斯套 ...</blockquote>
+单纯就女杰书简里的内容而言，结合语境上这句的成分补完以后应该是“你逃离已成[的迦太基]，追逐未成[的意大利]”
+
+现在鸡团里正在干对的上这句话的事情的好像既不是祥也不是睦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YF31  
+##### 10501#       发表于 2025-1-23 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253468&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-1-23 12:06</a>
+
+单纯就女杰书简里的内容而言，结合语境上这句的成分补完以后应该是“你逃离已成[的迦太基]，追逐未成[的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是大喵老师吧
+
