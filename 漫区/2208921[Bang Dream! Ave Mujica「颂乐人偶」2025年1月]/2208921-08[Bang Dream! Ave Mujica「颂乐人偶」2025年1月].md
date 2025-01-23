@@ -1496,3 +1496,26 @@ https://www.bilibili.com/bangumi/play/ss73081
 单纯就女杰书简里的内容而言，结合语境上这句的成分补完以后应该是“你逃离已成[的迦太基]，追逐未成[的 ...</blockquote>
 又在假药金毛
 
+
+*****
+
+####  qjw114514  
+##### 10503#       发表于 2025-1-23 12:26
+
+ 本帖最后由 qjw114514 于 2025-1-23 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253344&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-23 11:51</a>
+**背负“死亡”的天使** 
+是一个脱离尘世的角色。如果要比喻的话，就像天使一样，会让人怀疑她是否真正理解 ...</blockquote>
+小睦确实是有种不属于尘世的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+这下知道祥子为什么在喵梦面前这么菜了，合着她真偏心了呗，喵梦以为所谓“最好的舞台，最好的时机”重点在前半句，看这意思其实祥子在乎的是后半句嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聂宝楽楽  
+##### 10504#       发表于 2025-1-23 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250690&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-22 23:15</a>
+
+你邦歌曲B榜历史最好记录是多少？杀吻第一周空降二十几名在你邦算什么水平？ ...</blockquote>
+萝，ppp，ras，afterglow都有空降前十的歌，最高的应该是safe and sound空降第五，不过都是很久以前的事情了(悲
+
