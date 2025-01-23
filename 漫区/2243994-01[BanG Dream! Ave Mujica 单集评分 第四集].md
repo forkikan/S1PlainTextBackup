@@ -2275,3 +2275,13 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 
 这集里牢祥直接恢复出厂设置，连自己为什么要存在在乐队中都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kaildo  
+##### 253#       发表于 2025-1-24 04:16
+
+感受到了看Flip Flappers时的恐惧
+开始怀疑独角兽的剧本是不是受到了烂尾的诅咒<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+我裂开了
+

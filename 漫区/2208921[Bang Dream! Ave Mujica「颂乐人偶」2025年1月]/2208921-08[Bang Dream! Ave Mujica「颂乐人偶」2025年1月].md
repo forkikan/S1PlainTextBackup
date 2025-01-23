@@ -12077,3 +12077,41 @@ pareo跑路那段我忘了，masking受伤可是直接让layer硬是wow了半天
 
 鸡演到现在，完全没有“代入视角”或“情感支点”（如名义主角的爱音和实际主角的灯），这四集都是纯纯的第三人称视角，着墨最多的睦也是一个外部的声音在（为她）叙事，就算是心理描写，也用上了剧场、意识流等手法，几乎没有主观镜头，还缺乏大量的基础信息和行动目标（祥到底想借鸡团实现什么？），制作组没有选择以祥子的主视角来写一个大女主的复仇（？）故事这种最稳当的路径，而是在推动剧情的过程中刻意留下非常多的谜团，我不好说到底是什么用意。
 
+
+*****
+
+####  天空塔书记官  
+##### 11524#       发表于 2025-1-24 04:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262675&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 04:09</a>
+这一话其实还是留了一个扣子，Mortis对祥子说“就你这样，睦也许再也回不来了”（二度と戻ってこないかも ...</blockquote>
+搁置的话，参考爱音就可以了，第五话小爆然后看似解决，第九话再随着素世爆炸而大爆，先埋下伏笔，然后被真正的主要矛盾附带引爆<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 11525#       发表于 2025-1-24 04:22
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 04:25 编辑 
+
+我现在有点想看祥子拿到灯的便签了，因为那可能才是真正/真实的祥子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+迷子的部分应该就是作为现实稳定器而存在的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lumennaturale  
+##### 11526#       发表于 2025-1-24 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262654&amp;ptid=2208921" target="_blank">plok201 发表于 2025-1-24 04:01</a>
+
+大喵老师真的家庭美满么，会不会也是什么叙诡烟雾弹，按现在什么都不能信
+
+说不定其实祥爹也是演的，大祥老 ...</blockquote>
+最质朴的幸福很有可能是最巨大的不幸，如果说喵梦身为人的主要动力就是与家人之间的爱，那么就应当拆穿这份爱，告诉角色，这份爱是虚伪的，以此来诱使她的堕落
+
