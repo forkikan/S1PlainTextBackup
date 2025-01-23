@@ -4477,3 +4477,372 @@ b.激活语言的代价是只有语言，超越音乐的代价是忘却音乐，
 
 应该是演的，奇怪的配音，明显的不真实感割裂感，人物莫名奇妙的行为。不过就算是演的或者叙诡，这集难看的要死是洗不了的，这种水平拿出来就是不合格的
 
+
+*****
+
+####  cc37  
+##### 10816#       发表于 2025-1-23 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259044&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-23 22:35</a>
+祥子他们四个人躲着莫提斯说了很多，但是莫提斯一进来喵梦就开始发功。大家就开始压力莫提斯，感觉是故意的 ...</blockquote>
+墨提斯的人物是维持乐队，那是不是可以说乐队解散了墨提斯就消失了，感觉是四个人一起阴她
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  yevvet  
+##### 10817#       发表于 2025-1-23 22:46
+
+喵梦不是说了组合也好演唱会也好都是无数人的心血。按照她这个说法怎么可能说解散就解散，应该是串通好了的啊
+
+*****
+
+####  sauron.j  
+##### 10818#       发表于 2025-1-23 22:46
+
+本集的分镜演出是mygo第5集的森田，就明白违和感在哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 10819#       发表于 2025-1-23 22:47
+
+但是无论是不是演的，这集真的很难看
+
+*****
+
+####  椎名mahuyo  
+##### 10820#       发表于 2025-1-23 22:47
+
+怎么最后说散就散了，不是全国巡演么，你这么爆一下不巡演了后续屁股怎么擦
+
+*****
+
+####  MASKA-1  
+##### 10821#       发表于 2025-1-23 22:47
+
+mortis太菜了，导致这集观感神秘。会是开局歼星舰，结局自行车吗？
+
+*****
+
+####  PDQ4  
+##### 10822#       发表于 2025-1-23 22:47
+
+除非这一集你告诉看到的画面其实不可信，不然想不到任何不烂的理由
+
+但是这一集又没有主叙事人，可能真的像漏油说的藏东西了吧，不过没有分析的欲望了
+
+好消息是确实不用浪费时间等你鸡东西了，基本没期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd对这种东西下注？真要烂到极致也是传说吗
+
+加油打败闪彩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神圣计划  
+##### 10823#       发表于 2025-1-23 22:47
+
+最速解散传说
+
+*****
+
+####  莉缇娅  
+##### 10824#       发表于 2025-1-23 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">后半部分没看懂，解散有点太过刻意了
+
+我要观望几集
+
+*****
+
+####  cocoaghost  
+##### 10825#       发表于 2025-1-23 22:48
+
+这波就是该满仓的时机啊，后面怎么演都是可以<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 10826#       发表于 2025-1-23 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259262&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-23 22:45</a>
+
+这比喵梦，初华能不能塑造好啊，怎么完全不一样了，又</blockquote>
+没有空间来回收角色形象，至少若麦是这样的。
+
+中间给出了一段这类角色的定番家常戏也没对应使用的空间，有种无的放矢的味道。
+
+*****
+
+####  天空塔书记官  
+##### 10827#       发表于 2025-1-23 22:49
+
+已经在谷底，所以之后怎么都是向上了是吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黑酒杯  
+##### 10828#       发表于 2025-1-23 22:49
+
+另外确定一个人有精神病应该送去治，而不是加大力度刺激她
+
+*****
+
+####  dc5281  
+##### 10829#       发表于 2025-1-23 22:49
+
+节奏快到完全没觉得看了20分钟
+
+不过回旋镖部分做得挺直接的，好评
+
+*****
+
+####  gammatau  
+##### 10830#       发表于 2025-1-23 22:49
+
+ 本帖最后由 gammatau 于 2025-1-23 22:50 编辑 
+
+不是，团队一个人出了问题，其他人诡叙合伙演他，那我去看p5算了？
+
+这多少得是有点团魂时候，作品后半才能用的大招吧？
+
+*****
+
+####  MERCCCP  
+##### 10831#       发表于 2025-1-23 22:49
+
+电视还真是soyo在看，这下不用把木板切薄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yeo  
+##### 10832#       发表于 2025-1-23 22:50
+
+接下来能救的方法就是初华叙诡说了吧，就是目前的剧情展开几乎就是初华视野里的，节奏乱些还能理解...
+
+*****
+
+####  Bieaeml  
+##### 10833#       发表于 2025-1-23 22:50
+
+四个人提前交换消息，得出结论演一波墨提斯——既然墨提斯出来的核心是乐队不解散，所以直接拿解散去刺激她，看看能不能把睦刺激回来？
+
+不过乐队企划如果真什么东西有神奇功效，那也应该用音乐和live才能挽回吧
+
+*****
+
+####  yevvet  
+##### 10834#       发表于 2025-1-23 22:50
+
+这片的红色真实难道不是说旁白的初华才是真实的初华。初华超级怪的，她早就看出了睦有问题，但是一直沉默，还在莫提斯前装模作样的
+
+*****
+
+####  rs5621  
+##### 10835#       发表于 2025-1-23 22:50
+
+小睦啊，你怎么把箱玩炸了
+
+mjk.gif
+(2.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/225034mgk1gke3kg1fcauc.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xpisces  
+##### 10836#       发表于 2025-1-23 22:51
+
+节奏快的有点癫了，需要拷打下staff
+
+*****
+
+####  remedios010000  
+##### 10837#       发表于 2025-1-23 22:51
+
+睦头人真有表演天赋吗，吉他弹错一个音直接内爆掉线可不是演的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么大家都快默认睦头人就是表演天才了，要说有也就大莫老师学人精形态复读的时候有那么一丁点，还学不到神韵一股子异味
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  6030sylar  
+##### 10838#       发表于 2025-1-23 22:51
+
+喵梦那直接套saaya模板是吧，家里一帮兄弟姐妹
+
+*****
+
+####  天空塔书记官  
+##### 10839#       发表于 2025-1-23 22:51
+
+说句实话前三集确实挺好的，希望不是反向三集定律吧，还是得看看第五集怎么说
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 10840#       发表于 2025-1-23 22:51
+
+8岁小孩
+
+
+*****
+
+####  无事忙  
+##### 10841#       发表于 2025-1-23 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我第一次看动画看到浑身发麻。
+
+更有节目效果的是，我在某人的直播间看的，一万多观众一起……快到ED的时候超管来警告了。戏外也玩解散？等到大家看完，主播在复盘回味的时候直播被掐了。
+
+非常的让人睡不着，现在干什么都没滋味。
+
+*****
+
+####  猫执事  
+##### 10842#       发表于 2025-1-23 22:52
+
+看前三分之二的时候还行，我还想是睦为了报复祥子切入防御型人格。没想镜头到酒店房间开始剧情感觉崩了。
+
+*****
+
+####  童话与星空  
+##### 10843#       发表于 2025-1-23 22:52
+
+就是后面全烂也有9集可烂，就是抱着看怎么烂9集的心态我也要看完<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yeo  
+##### 10844#       发表于 2025-1-23 22:52
+
+大猫感觉就是纯工具猫，负责点火的
+
+mygo的小猫也是工具猫，好的一点是乐奈不说话，弹就行了
+
+*****
+
+####  Asukalangley33  
+##### 10845#       发表于 2025-1-23 22:53
+
+早点炸团挺好的
+
+继续这样拍双重人格宫斗戏码后面100%烂完
+
+现在炸了，后面老老实实塞5集个人回，2集团魂回就稳了
+
+*****
+
+####  sliencer  
+##### 10846#       发表于 2025-1-23 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就木头人这个复刻soyo性格来的第二人格，不靠soyo谁能救啊，我觉得大祥老师赶紧退位让贤是真的。你自己身边就是个雷你竟然没概念的？好死不死还带上一个上京妹vtb，人家是要着急变现的，结果玩砸了现在自己焦虑爆棚了，我都觉得最后一话是其他人都变好了就大祥老师自己疯了
+
+*****
+
+####  厄神之息  
+##### 10847#       发表于 2025-1-23 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">哎呦我草，真搞双重人格那套啊？那真俗烂了吧，这喵梦人设是彻底烂掉了，喵梦劈头盖脸一顿骂的原因在哪了？祥子说不搞乐队不行要挨他骂，莫提斯说不弹琴光尬演也要被她骂，你到底要几把干啥？海玲初华谜一样，我都搞不懂海玲主张开润的理由是什么了。这要不是后面揭秘说是4人商量好的联合给祥子上课真的很难解释收场啊。
+
+播前过度宣发，前三集延续第一季高水平，四五六开始一转儿女情长family，最后啥都没演到位，没法好好收场，我的双城2雷达在滴滴作响<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 10848#       发表于 2025-1-23 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259222&amp;ptid=2208921" target="_blank">杰西坦尼斯 发表于 2025-1-23 22:43</a>
+
+我猜后面应该是光速解散，然后五个人天各一方各自发展，丰川祥子陷入低谷，因为mygo还是啥其他原因重新振作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子是伊头臭作说
+
+*****
+
+####  Delicatus545  
+##### 10849#       发表于 2025-1-23 22:53
+
+不懂双重人格，双重人格会共享记忆吗？感觉有点科幻片了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+另外，生活里就算关系不是很亲近的人突然性情大变我多少也会过问一下，这几人是不是有点过于木头了（木头没有消失只会转移X
+
+*****
+
+####  银酒监武  
+##### 10850#       发表于 2025-1-23 22:53
+
+mygo动画最后不会真得切割Mujica吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  kivz  
+##### 10851#       发表于 2025-1-23 22:53
+
+比起爆炸的4集，还是缺少编剧锐评环节更让人急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10852#       发表于 2025-1-23 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259378&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-1-23 22:51</a>
+喵梦那直接套saaya模板是吧，家里一帮兄弟姐妹</blockquote>
+还是不一样的，喵梦家大概经济条件不太好，这下坐实农村土妹了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KLHgg  
+##### 10853#       发表于 2025-1-23 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你觉得mujica是个偏现实的乐队吗？
+
+柿本：我觉得我是
+
+*****
+
+####  Mika-S  
+##### 10854#       发表于 2025-1-23 22:54
+
+这下彻底石锤若叶睦是个精神病人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  爱莉希雅  
+##### 10855#       发表于 2025-1-23 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">肯定得包饺子的
+
+*****
+
+####  天空塔书记官  
+##### 10856#       发表于 2025-1-23 22:55
+
+还是放低期望吧，只要监督不变成神经病就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 10857#       发表于 2025-1-23 22:56
+
+这集就看祥子吃回旋镖，看乐了，这就是娱乐产业吗
+

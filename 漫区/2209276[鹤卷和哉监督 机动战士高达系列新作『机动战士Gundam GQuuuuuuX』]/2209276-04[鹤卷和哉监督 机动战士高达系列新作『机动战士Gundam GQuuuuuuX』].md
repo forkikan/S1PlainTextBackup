@@ -10320,3 +10320,11 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 快点出TV吧，再让大伙熬下去，排列组合早晚不够用
 
+
+*****
+
+####  jojonathan  
+##### 5390#       发表于 2025-1-23 22:48
+
+确实是啊 有人莫名其妙给麻球发短信 该不会喵安真是幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">软糯什么的只是演技罢了
+
