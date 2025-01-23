@@ -454,3 +454,61 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 被夺舍了
 
+
+*****
+
+####  holofan  
+##### 10717#       发表于 2025-1-23 12:58
+
+<img src="https://img.saraba1st.com/forum/202501/23/125813zansk1xsknganxl6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:58 上传
+
+*****
+
+####  holofan  
+##### 10718#       发表于 2025-1-23 13:02
+
+[https://cocorostore.jp.sharp/cp2501-sakuramiko](https://cocorostore.jp.sharp/cp2501-sakuramiko)
+
+<img src="https://img.saraba1st.com/forum/202501/23/130208inphytnbyso0v8zt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:02 上传
+
+*****
+
+####  holofan  
+##### 10719#       发表于 2025-1-23 13:04
+
+<img src="https://img.saraba1st.com/forum/202501/23/130301f1qkv50egoa4svce.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/130316f76z2u369uuh397u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/130400juf3qx7qzzxflkfq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:04 上传
+
