@@ -1417,3 +1417,19 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 所以说96年不危险，2026年更危险，衰落中的帝国更容易犯下不理智的错误。
 
+
+*****
+
+####  auraria  
+##### 129#       发表于 2025-1-24 06:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254578&amp;ptid=2243911" target="_blank">江风改二 发表于 2025-1-23 14:22</a>
+96年牢美如日中天，为了4V去打核战争？
+
+不管是南海、还是4V牢美都不可能下场的。
+
+之前我在哪里看到的一个 ...</blockquote>
+96年西大还有很多不开战的选项，其中复刻苏修颠覆路线肯定是“最佳”选项之一。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
