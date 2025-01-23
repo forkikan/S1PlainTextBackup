@@ -711,3 +711,70 @@ asbm只是最后一根稻草
 
 二战法国不愿为盟国流尽最后一滴血果断投了，英国不和德国谈和，亲身下场的下场不是很清楚了吗？老大和老二血拼没好下场的，离岸均衡不下场不是大问题，大问题是扶植不出一个老三来了。
 
+
+*****
+
+####  onion0201  
+##### 67#       发表于 2025-1-23 14:54
+
+ 本帖最后由 onion0201 于 2025-1-23 14:56 编辑 
+
+之前只听说过这个纪录片，今天看了主楼链接视频的下半段开始就是张维为真的没绷住
+
+*****
+
+####  FeteFete  
+##### 68#       发表于 2025-1-23 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254614&amp;ptid=2243911" target="_blank">有鱼 发表于 2025-1-23 14:25</a>
+
+军工组在直播里面的说法是是太舰司令端出来了一个击沉几艘中方小型军舰作为对中国的“惩戒”和对所谓“仲裁 ...</blockquote>
+军工组太丁真了
+
+这种事情美国人自己都没报出来
+
+他们扎知道的
+
+*****
+
+####  1303312165  
+##### 69#       发表于 2025-1-23 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251394&amp;ptid=2243911" target="_blank">Arance 发表于 2025-1-23 03:10</a>
+真有打的决心，且军队真能拉出来打仗的话，根本不会在意一两件类似asbm这种新式武器，就算打中了又能如何 ...</blockquote>
+本质上盎撒的海盗基因罢了：打得过就抢一把，打不过就变商人做生意<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天地一机成化育  
+##### 70#       发表于 2025-1-23 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254894&amp;ptid=2243911" target="_blank">onion0201 发表于 2025-1-23 14:54</a>
+
+之前只听说过这个纪录片，今天看了主楼链接视频的下半段开始就是张维为真的没绷住 ...</blockquote>
+国内玩梗玩傻了过于低看张维为的国际影响力
+
+*****
+
+####  有鱼  
+##### 71#       发表于 2025-1-23 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254906&amp;ptid=2243911" target="_blank">FeteFete 发表于 2025-1-23 14:55</a>
+
+军工组太丁真了
+
+这种事情美国人自己都没报出来</blockquote>
+不知道啊，当个乐子听呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+哈哈里斯确实是两年之后才退役去韩国的，处理完全不像是真的独走了。
+
+不过当时美国有战争盲动的倾向肯定是实锤了。
+
+*****
+
+####  机吉斯卡  
+##### 72#       发表于 2025-1-23 15:03
+
+美国人现在都往第三岛链跑路了，还封锁个P
+

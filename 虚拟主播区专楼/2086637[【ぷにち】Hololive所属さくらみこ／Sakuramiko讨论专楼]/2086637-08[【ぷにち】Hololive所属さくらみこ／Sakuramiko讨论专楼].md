@@ -512,3 +512,31 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 2025-1-23 13:04 上传
 
+
+*****
+
+####  holofan  
+##### 10720#       发表于 2025-1-23 13:08
+
+原产品KI-TX75卖价就达到了10W日元，也才多加了2万
+
+主要是不光加湿，还带了其他功能
+
+
+*****
+
+####  holofan  
+##### 10721#       发表于 2025-1-23 14:58
+
+<img src="https://img.saraba1st.com/forum/202501/23/145750d7qu6ma7ye6d7dd7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 14:57 上传
+
+特地强调了收录了上百条音声的非常吵的加湿器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+纯粉丝向了就是
+

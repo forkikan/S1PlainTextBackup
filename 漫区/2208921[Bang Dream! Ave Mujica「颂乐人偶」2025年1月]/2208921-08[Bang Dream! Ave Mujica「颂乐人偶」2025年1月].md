@@ -1846,3 +1846,15 @@ live
 开播前坏成年人的喵现在是高中生
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以开始期待祥子和初华了
 
+
+*****
+
+####  zhzij111  
+##### 10531#       发表于 2025-1-23 14:59
+
+<blockquote>ads147147 发表于 2025-1-23 10:11
+算是实锤了牢爹不上班，啊这，还真是祥子给爹赚酒钱啊？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+祥子放学打工那点钱哪够喝的，她爹的存款吧，168亿又不要她爹赔
+
