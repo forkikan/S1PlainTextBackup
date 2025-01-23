@@ -968,3 +968,13 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 已通关，TE没有给太多选择，可惜
 
+
+*****
+
+####  sgkqjsd  
+##### 90#         楼主| 发表于 2025-1-23 16:09
+
+<blockquote>Whalouse 发表于 2025-1-19 23:44
+塞拉升到34级会有闪退bug，我的无敌平a大哥用不了了</blockquote>
+怎么闪退，有报错吗
+
