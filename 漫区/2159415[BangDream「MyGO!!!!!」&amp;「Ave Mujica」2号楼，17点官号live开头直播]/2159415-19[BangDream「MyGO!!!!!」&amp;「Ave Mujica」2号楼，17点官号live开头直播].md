@@ -3055,3 +3055,11 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 内场因为大家肯定都是站起来的，有一个视野遮挡问题，后排的视野效果很难说跟无遮挡的远看台比谁好，尤其是你前面如果是个壮汉的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苏修  
+##### 26872#       发表于 2025-1-23 12:02
+
+卧槽泥马的黄牛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">秒没的，假疯了
+
