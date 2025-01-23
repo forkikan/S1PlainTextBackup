@@ -1,0 +1,449 @@
+﻿
+*****
+
+####  AveMujica  
+##### 1#       楼主       发表于 2025-1-23 22:30
+
+<input name="formhash" type="hidden" value="bbc93cef"/)
+
+<strong>单选投票</strong> , 投票后结果可见, 共有 214 人参与投票
+
+距结束还有:
+
+<strong>
+
+6 天23 小时44 分钟
+
+</strong>
+
+1.  +2
+
+2.  +1
+
+3.  +0
+
+4.  -1
+
+5.  -2
+
+ 
+提交
+
+(此为公开投票，其他人可看到您的投票项目)
+
+从现在开始，就是未知的舞台了
+
+[第一集投票楼](https://bbs.saraba1st.com/2b/thread-2236454-1-1.html)
+[第二集投票楼](https://bbs.saraba1st.com/2b/thread-2237230-1-1.html)
+[第三集投票楼](https://bbs.saraba1st.com/2b/thread-2242398-1-1.html)
+
+[mujica专楼](https://bbs.saraba1st.com/2b/thread-2208921-1-1.html)
+[邦多利企划楼](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2159415)
+
+*****
+
+####  jaewoongh_  
+##### 2#       发表于 2025-1-23 22:31
+
+爆！爆！爆！爆！爆！
+
+*****
+
+####  凉良  
+##### 3#       发表于 2025-1-23 22:32
+
+-2 真的感觉是为爆而爆了  刻意的过分了。 感觉人物都失去了自我。
+
+*****
+
+####  cybernetics31  
+##### 4#       发表于 2025-1-23 22:33
+
+怎么也是-1，太刻意，太劣质转变了，纯爆炸写法
+
+*****
+
+####  kykawaiii  
+##### 5#       发表于 2025-1-23 22:33
+
++1吧
+motis很可爱，后半段的迫害也很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/eaddbe5bcf95a085ebb3f3c62f2e296c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Alicest  
+##### 6#       发表于 2025-1-23 22:34
+
+就算是我也只能因为乐子给个+0
+
+*****
+
+####  Yinacona  
+##### 7#       发表于 2025-1-23 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上集剧情节奏就不咋地，这集再扣一分
+
+*****
+
+####  呱基  
+##### 8#       发表于 2025-1-23 22:34
+
+-2，这集节奏也太奇怪了我说实话了，应该大多数人看完都在想“怎么这就完了？”吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCCTHUN  
+##### 9#       发表于 2025-1-23 22:34
+
++0吧，这集很乐很爆，但是节奏也太快了，还断在这种地方。
+
+*****
+
+####  hysjmr  
+##### 10#       发表于 2025-1-23 22:34
+
+有点太超现实了
+
+*****
+
+####  Versedust  
+##### 11#       发表于 2025-1-23 22:35
+
+只有初华叙诡说能拯救一切了
+
+*****
+
+####  Litccc  
+##### 12#       发表于 2025-1-23 22:35
+
+刚开始：哇好酷这就是我想看的乐队动画😭
+
+到一半：什么情况怎么突然就爆了，恐怖片我怕😭
+
+结尾了：怎么剧情突然开始崩坏加速，前一集刚营造好的mortis人设变成了纯纯的🤡，初华疑似被木头人传染自闭症，我到底看了什么😭
+
+彩蛋：看笑了😅
+
+*****
+
+####  wo11liao  
+##### 13#       发表于 2025-1-23 22:35
+
+没办法好评，但感觉到不了坏评，0。剧情节奏暴走了，看后面怎么拯救吧
+
+*****
+
+####  takerest  
+##### 14#       发表于 2025-1-23 22:35
+
+虽然乐子很多但我完全不知道该怎么收尾了，为爆而爆看得我又激动又心慌<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chih12  
+##### 15#       发表于 2025-1-23 22:36
+
+看投票，果然不止我一人有类似的想法
+
+*****
+
+####  zpbzpb123123  
+##### 16#       发表于 2025-1-23 22:36
+
+微妙的一集
+
+*****
+
+####  矢吹奈子  
+##### 17#       发表于 2025-1-23 22:36
+
+看不懂了。
+
+*****
+
+####  阿兹尔  
+##### 18#       发表于 2025-1-23 22:37
+
+无法理解的一集，为了爆而爆
+
+*****
+
+####  sdeplee  
+##### 19#       发表于 2025-1-23 22:37
+
+邦多利转折中的若叶睦：C团炸团我在场，母鸡烟花我指挥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SOS團  
+##### 20#       发表于 2025-1-23 22:37
+
+<img src="https://img.saraba1st.com/forum/202501/23/223712s2q4jmq2ppjxizmp.jpg" referrerpolicy="no-referrer">
+
+<strong>[ANi] BanG Dream! Ave Mujica - 04 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snapsh.jpg</strong> (149.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 22:37 上传
+
+*****
+
+####  bindata  
+##### 21#       发表于 2025-1-23 22:37
+
+-2，这集真不行，观望下集我要下调预期了
+
+*****
+
+####  黒鈴ミヲ  
+##### 22#       发表于 2025-1-23 22:37
+
+「燃え尽きる前の線香花火みたいですね」
+海玲说的avemujica，我说的也是avemujica，先-2观望下一集吧
+
+*****
+
+####  刑部姬真可爱  
+##### 23#       发表于 2025-1-23 22:37
+
+0，乐是很乐，就是没看懂最后他们爆爆爆的原因是啥
+
+*****
+
+####  Onelooker  
+##### 24#       发表于 2025-1-23 22:38
+
+像是狼人杀钟点房快要到时间等不及开爆了
+
+*****
+
+####  kyogngn  
+##### 25#       发表于 2025-1-23 22:38
+
+好一个恐怖片
+
+*****
+
+####  浮幽樱  
+##### 26#       发表于 2025-1-23 22:39
+
++2 太抽象了看的全程都在笑
+
+*****
+
+####  姬茧墨  
+##### 27#       发表于 2025-1-23 22:39
+
+从剧本角度看-2，神人台词，莫名其妙的冲突，突飞猛进的剧情发展，看完只会让人想到网管和国家队
+
+从乐子角度看+2，看到第一句串子台词就开始笑，一直笑到下集预告，这片子这么演下去就是纯纯的巨魔搞笑片
+
+*****
+
+####  迷路的石头  
+##### 28#       发表于 2025-1-23 22:39
+
+虽然说不喜欢硬藏包袱是独角兽的优点。但这集也太刻意了，所有爆点感觉就是为了完成KPI一样公式化。
+
+*****
+
+####  jaewoongh_  
+##### 29#       发表于 2025-1-23 22:39
+
+如果拆成两集来写不会是这样，脚本又在犯低级错误
+
+*****
+
+####  太太  
+##### 30#       发表于 2025-1-23 22:40
+
+节奏混乱，祥子吵完之后其他几个转变太突兀了，墨提斯设定成双重人格也不讨喜，继承不了对木头的好感，再加上负分bgm<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 31#       发表于 2025-1-23 22:40
+
+事实证明，乐队可以没有钢琴，但不能没有吉他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超极巨鲨鲨  
+##### 32#       发表于 2025-1-23 22:40
+
+这集节奏太怪了，看在莫女士前几分钟还挺可爱的份上还是+0吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ajsh  
+##### 33#       发表于 2025-1-23 22:41
+
+-1  感觉太赶了
+
+*****
+
+####  小小雪空  
+##### 34#       发表于 2025-1-23 22:41
+
+就算后面真的有诡叙，这集观感也是不行的……
+
+*****
+
+####  oi99o  
+##### 35#       发表于 2025-1-23 22:41
+
+ 本帖最后由 oi99o 于 2025-1-23 22:43 编辑 
+
+爽，这才是真正的精神分裂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 36#       发表于 2025-1-23 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第三集还能说是大的在后头，现在这两集这样看来就只能说开始暴走了
+
+*****
+
+####  紫苑寺美琴  
+##### 37#       发表于 2025-1-23 22:41
+
+节约宝配的真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+为了开朗小睦+2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chenlh  
+##### 38#       发表于 2025-1-23 22:42
+
+独角兽不会写了个年番剧本吧，闹翻是因为被压成十三集了
+
+*****
+
+####  月光润色  
+##### 39#       发表于 2025-1-23 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有点烂，太流水账了，木头人还没开始塑造就萎了。不会是每个成员都要爆大的+最后包饺子把24集缩成12集吧。别最后烂成一坨了。
+
+*****
+
+####  pliee  
+##### 40#       发表于 2025-1-23 22:42
+
+0，希望后面能圆回来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  newtroll  
+##### 41#       发表于 2025-1-23 22:42
+
+-1，我很少用没活了形容一个动画，因为这说明它曾经很有活，遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Cavaliar  
+##### 42#       发表于 2025-1-23 22:42
+
+再弱弱给个+1，这样下去包两极分化了，要么超神要么超鬼
+
+*****
+
+####  依旧ing  
+##### 43#       发表于 2025-1-23 22:42
+
+起飞了吗？要坠毁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  木板春香  
+##### 44#       发表于 2025-1-23 22:43
+
+  剧情里留了线索，看后续怎么解密，大喵好玩，但莫提斯怼祥子太刻意了， -2+2=0
+
+*****
+
+####  十九号大侠  
+##### 45#       发表于 2025-1-23 22:43
+
+太快了吧，漏油还真猜中了，真不会弹吉他啊
+
+*****
+
+####  502307501  
+##### 46#       发表于 2025-1-23 22:43
+
+看懂了，祥子起手一套otk把自己炸死了，处处都是小连招<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SorakadoAo  
+##### 47#       发表于 2025-1-23 22:43
+
+-1，有点刻晴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 48#       发表于 2025-1-23 22:44
+
++0，下调预期，有点刻奇了
+
+*****
+
+####  l3r0nY@  
+##### 49#       发表于 2025-1-23 22:44
+
+-1，莫名其妙
+
+*****
+
+####  剪切线  
+##### 50#       发表于 2025-1-23 22:45
+
+-2 难怪独角兽切割了
+
+*****
+
+####  只会双持开拓者  
+##### 51#       发表于 2025-1-23 22:45
+
+-2闹麻了
+
+*****
+
+####  moras2694  
+##### 52#       发表于 2025-1-23 22:45
+
++0吧，这集的疑惑真的太多太多了，不知道目的是什么。看后续的剧情，这集可能是打负分的开始。但是追番的期待值还是挺高的。
+
+*****
+
+####  水映天  
+##### 53#       发表于 2025-1-23 22:45
+
+-1
+
+这不对，越来越看不出这剧情想表达什么了
+
+*****
+
+####  Sinoraly  
+##### 54#       发表于 2025-1-23 22:46
+
+0，我开播前还真猜到前半段就要炸团了，但后半段这剧本写得突然就绷不住了
+
+*****
+
+####  shlity  
+##### 55#       发表于 2025-1-23 22:46
+
++0 感觉用力过猛
+
