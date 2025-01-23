@@ -1195,3 +1195,22 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 另外日本人更多， ...</blockquote>
 鳖的道德水平高，但是棒子道德水平低啊
 
+
+*****
+
+####  FeteFete  
+##### 109#       发表于 2025-1-23 20:24
+
+视频看完了,没什么意思
+
+*****
+
+####  cyberalogo  
+##### 110#       发表于 2025-1-23 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256528&amp;ptid=2243911" target="_blank">orecheng 发表于 2025-1-23 17:50</a>
+比起ASBM这玩意能不能打中，我觉得DF-31 单价低于战斧更吓人
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+能打8000公里的战斧也太吓人了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
