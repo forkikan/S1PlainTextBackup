@@ -10204,3 +10204,21 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 什么你说送走了鸭子，玛秋和牢修怎么办，当然是失去肉体双双成为宇宙男女鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5379#       发表于 2025-1-23 21:49
+
+骡：“不要把我和夏亚看成是你的东西！”
+
+*****
+
+####  刺客ares  
+##### 5380#       发表于 2025-1-23 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258245&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-23 21:49</a>
+
+骡：“不要把我和夏亚看成是你的东西！”</blockquote>
+拉拉：“我要永远漂浮在你们中间！"
+
