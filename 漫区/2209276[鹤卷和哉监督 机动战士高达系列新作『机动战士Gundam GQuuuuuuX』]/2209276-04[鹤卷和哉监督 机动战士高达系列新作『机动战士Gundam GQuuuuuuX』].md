@@ -9306,3 +9306,27 @@ xswl
 
 哀战士配上这战斗画面，我流泪了
 
+
+*****
+
+####  jojonathan  
+##### 5287#       发表于 2025-1-23 14:09
+
+看了盗摄片段 原来首席哥确实是nt啊<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">那看来欧米茄塞可缪确实是只有特殊的nt才能用
+
+*****
+
+####  0aleph37  
+##### 5288#       发表于 2025-1-23 14:12
+
+nt等级论，nt分类学要开始发展了吗？
+
+*****
+
+####  jojonathan  
+##### 5289#       发表于 2025-1-23 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254489&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-23 14:12</a>
+nt等级论，nt分类学要开始发展了吗？</blockquote>
+夏亚是脱出型是吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

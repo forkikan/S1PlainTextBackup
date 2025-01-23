@@ -211,3 +211,16 @@ magpie不熟，但小黄鸭有窗口化功能。而且这种工具大部分使�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  naclken.  
+##### 76#       发表于 2025-1-23 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253751&amp;ptid=2238299" target="_blank">11-- 发表于 2025-1-23 12:45</a>
+
+这个我之前用来玩老游戏放大分辨率用，极卡，完全玩不了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+黄油看CG切换下一张的时候，它硬是给补帧变成动画，卡的一笔。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
