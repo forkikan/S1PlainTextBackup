@@ -617,3 +617,25 @@ asbm只是最后一根稻草
 
 对面的怂还不只是眨了下眼睛那种怂，是一口气跑了好远
 
+
+*****
+
+####  保真花生  
+##### 60#       发表于 2025-1-23 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254168&amp;ptid=2243911" target="_blank">naihs 发表于 2025-1-23 13:38</a>
+
+只能等几十年后看看有没有可能解密吧
+
+对面的怂还不只是眨了下眼睛那种怂，是一口气跑了好远 ...</blockquote>
+
+现在流传说法是我们直接找到了他们航母的位置，这意味着一旦开打，起码他们的航母马上就折损一艘，而他们本身就开战意愿不坚定于是马上就跑了
+
+<img src="https://img.saraba1st.com/forum/202501/23/140251jc4khzld06rrkd4w.png" referrerpolicy="no-referrer">
+
+<strong>PIC.png</strong> (826.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 14:02 上传
+

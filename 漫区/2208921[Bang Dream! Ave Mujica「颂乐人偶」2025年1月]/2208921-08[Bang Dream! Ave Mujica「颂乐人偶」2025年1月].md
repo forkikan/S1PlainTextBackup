@@ -1677,3 +1677,43 @@ live
 初华秘密可能要在中期揭晓了
 睦我不明白，是睦的问题要持续到中期吗？还是说中期进入祥子线时候睦是解决问题的关键
 
+
+*****
+
+####  椎名真希  
+##### 10515#       发表于 2025-1-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838576&amp;ptid=2208921" target="_blank">御幸一也 发表于 2024-12-4 09:53</a>
+
+祥子和睦是半身幼馴染，不僅睦熟知祥子的一切，祥子肯定也是知道睦不想在公眾面前露面。
+
+這麼想的話，mor ...</blockquote>
+是这里<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 10516#       发表于 2025-1-23 13:54
+
+之前莫提斯不会弹吉他这个猜测是对的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四集真有……
+
+*****
+
+####  椎名真希  
+##### 10517#       发表于 2025-1-23 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66838417&amp;ptid=2208921" target="_blank">椎名真希 发表于 2024-12-4 09:40</a>
+
+第一集的下集预告里面睦的镜头很多，第二集开始就该讲睦的路线了，考虑睦是摘下面具之后最慌的那个，说不定 ...</blockquote>
+我当初也猜对了
+
+
+*****
+
+####  swessia  
+##### 10518#       发表于 2025-1-23 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">莫小姐说啥就信啥啊，说不定故意气小祥呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
