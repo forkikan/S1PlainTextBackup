@@ -1383,3 +1383,24 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 **这次上台不就是做做梦给自己家族看看能不能阶层上升一把进铁帽子王，给自己搞虚拟币的人敢发动核战争？没那个能力好吧
 
+
+*****
+
+####  johnkamsar  
+##### 126#       发表于 2025-1-24 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255159&amp;ptid=2243911" target="_blank">FeteFete 发表于 2025-1-23 15:20</a>
+张教授都到znh给居委们上课了，他的地位真的高到一定程度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起他去hk办事，港首亲自接见他来着
+
+*****
+
+####  logiccat  
+##### 127#       发表于 2025-1-24 01:04
+
+首先，海洋国家挑战陆权国家，不会单上的，必须拉上陆上盟友，请问16年美国能拉上谁来一起干中国？英国？法国？还是俄罗斯？
+
+其次，两个有核国家凭什么开战？真的是地堡挖得够深了？
+
+最后，没有陆上盟友配合，赌中国的反舰弹道导弹技术不成熟，即使打赢了，全灭中国海军，然后呢？又不能登陆，跟中国全面对抗？韩国不要了？万一中国的反舰导弹真能用，那就是丢人现眼，全球军事霸权崩溃，赢了是平局，输了全完蛋，这笔账谁都会算。
+

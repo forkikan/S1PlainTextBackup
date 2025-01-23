@@ -9358,3 +9358,256 @@ mujica四集的音监一直很烂
 还有一个外部的电视操作者</blockquote>
 这个画面是在哪里出现的？
 
+
+*****
+
+####  北条早苗  
+##### 11275#       发表于 2025-1-24 00:56
+
+你不能只在被称赞的时候才说是剧本的功劳
+而且这一集不是很有绫奈偶像大河内那股暴走的味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 11276#       发表于 2025-1-24 00:57
+
+<img src="https://img.saraba1st.com/forum/202501/24/005700z7iegegg45ea2ee7.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh_Tq_laEAAa4HJ.jpg</strong> (172.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 00:57 上传
+
+[https://x.com/hayupipipipi/status/1882456095316410724/photo/1](https://x.com/hayupipipipi/status/1882456095316410724/photo/1)
+
+*****
+
+####  阿兹尔  
+##### 11277#       发表于 2025-1-24 00:57
+
+感觉目前还在支撑的只剩下假药引擎了，其他都熄火了
+
+*****
+
+####  鱼丈人  
+##### 11278#       发表于 2025-1-24 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260321&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-23 23:38</a>
+祥子这集这么被动，就是突出一个从摘面具开始局面就逐渐溢出她的掌控，这应该是到目前为止最紧张的矛盾，往 ...</blockquote>
+大概是因为这个事儿原点是大喵老师这块滚刀肉吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 11279#       发表于 2025-1-24 00:57
+
+<blockquote>花スープ 发表于 2025-1-24 00:08
+音乐番的事情音乐解决，都抽象成这样了，不演奏春日影怕是无法收场</blockquote>
+最抽象的是这团除了翔老师0人关心音乐
+
+*****
+
+####  Суслов  
+##### 11280#       发表于 2025-1-24 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261388&amp;ptid=2208921" target="_blank">Reinhold 发表于 2025-1-24 00:52</a>
+摆烂是一步一步滑向深渊的，从她喝大杯拿铁开始，她在乐队上的心气已经没了。她是流量追逐者，现在莫提斯 ...</blockquote>
+这样说大喵老师也有点小丑了，Mortis的诞生可以说她是出了大力的，现在反而要被Mortis挤走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  sslink  
+##### 11281#       发表于 2025-1-24 00:58
+
+电视那几个镜头感觉又是睦的脑内小剧场
+
+*****
+
+####  Mika-S  
+##### 11282#       发表于 2025-1-24 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261366&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 00:51</a>
+
+不知道为什么回复不了，我就直接发在下面了。
+
+再不熟也当了几个月同事了，不是几天几小时几分钟，几个月！ ...</blockquote>
+这话是最没有道理的，现实中几个月同事平时见面在公司都是公事公办基本不说话的人，私下里如果能接触到发现是个很能聊自己喜欢东西的宅男，这不是很常见的事情吗？起码我自己的体验来说就被人这样说过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工作上不交心时候跟真实状态像两个人是很正常的吧
+
+*****
+
+####  wonner_2012  
+##### 11283#       发表于 2025-1-24 00:58
+
+另外就是喵梦的矛盾台词，有没有可能是外部叙述者猜测喵祥初见的喵梦心理？<img src="https://p.sda1.dev/21/49faa3cf36f4999c295b99f833319d5e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 11284#       发表于 2025-1-24 00:58
+
+话说Roselia剧场版的第一部，柿本也担任了编剧，有没有看过的漏油给个评价
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sanae  
+##### 11285#       发表于 2025-1-24 00:58
+
+大喵说了一堆，大喵提出的不辜负观众的解决方案到底是啥，让睦不弹吉他光演戏吗。
+
+*****
+
+####  Renes  
+##### 11286#       发表于 2025-1-24 00:59
+
+大喵退团的理由倒是能理解，首先莫头人这块基本上在吃独食了，相比之下她已经蹭不出东西了，还不如搞个大烟花抬一波自己的价值。
+
+另外就是祥子太没用了，大喵本来以为大祥是个有决心有手腕想独立闯事业的二代，结果这人满脑子都是自己
+
+当然以上有莫头人穿针引线暗中扇呼的可能性也不为0
+
+还是得看下集怎么演，因为目前的展开其实是有点超出一个二偶企划的界限范围的，要么超神要么超鬼了
+
+
+*****
+
+####  四顾  
+##### 11287#       发表于 2025-1-24 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261123&amp;ptid=2208921" target="_blank">Abelfufu 发表于 2025-1-24 00:34</a>
+
+这给我一定的启发，说不定Mortis的各种表现，都是源于对身边人的模仿，人格的模仿造就了Mortis的诞生,也 ...</blockquote>
+可以这么说，因为人格发展过程中习得的情感都是“署名”、“具象”的，就像一个小孩对长辈的亲近、关切感到困惑烦躁，而父母在一边将这解释为“这是关心你啊”、“看看xx多亲你”、多爱你”，于是小孩也就似懂非懂学会了“关心”、“亲人”和“爱人”，并尝试融入到未来的情感表达中。
+
+因而我们可以说，每一种情感都对应着某种典型的“遭遇”和“姿态”，有的人否定自身情感能力，不是因为他们内心中没有激烈的起伏冲动，而是他们无法付诸于自己觉得理想的行动。最典型的就是“无言不出口的爱”是否算是爱、情感是否对情绪价值负责这些疑难，这即是源于文化冲突，也反映了现代文化中共有的情感伦理更替——示爱/表情是爱/情的一部分，是一种义务。
+
+所以莫提斯对各人的模仿不该只被看作是讽喻，她可能真的是在学习情感（这与模仿、挪用经典剧目的台词没有区别），只是睦这个具有历史身份的主体缺席，导致莫提斯的操演变得像拼贴艺术一样异常、不连贯，她没有个人的发展阶段，一出生就暴露在复杂的人际中，可以说她的性格源于内在的客体间性。因为对睦来说不可能的表达，对莫提斯用她的天赋戳手可得的戏仿，因为过于轻易，导致她的个性反而是在她被拒绝（同时也是她拒绝吉他）的时候形成暴露，也开始形成新的个人语言。
+
+*****
+
+####  dqtql  
+##### 11288#       发表于 2025-1-24 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261475&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 00:58</a>
+
+话说Roselia剧场版的第一部，柿本也担任了编剧，有没有看过的漏油给个评价</blockquote>
+听说是完全不行，bgm都是六分出头
+
+*****
+
+####  Min_FOrder  
+##### 11289#       发表于 2025-1-24 01:01
+
+<blockquote>Суслов 发表于 2025-1-24 00:55
+不放录音是因为没录音，一天时间准备还来不及吗？后面代打的建议更是直接跳过，我是不觉得当时的局面只有 ...</blockquote>
+说句实话，第三集吵成一团那样的局面，怕是不光是海玲一个人，而是所有人都已经做好炸团准备了，现在祥子和其他所有人都产生了方向性上的分歧，大莫老师还疯特了，正好顺水推舟。当然我觉得叙诡的可能性相当大，静观后续即可。
+
+这也是我为什么说对这片子感到失望实在是为时尚早了，后续能打的牌多着呢，泥潭这么着急就宣判死刑，反而搞得对动画本身细节的讨论开展不起来
+
+*****
+
+####  JustW  
+##### 11290#       发表于 2025-1-24 01:01
+
+<blockquote>天空塔书记官 发表于 2025-1-24 00:58
+话说Roselia剧场版的第一部，柿本也担任了编剧，有没有看过的漏油给个评价
+
+</blockquote>
+作为粉丝向不合格
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|了解了|
+
+查看全部评分
+
+*****
+
+####  Суслов  
+##### 11291#       发表于 2025-1-24 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261503&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 01:01</a>
+说句实话，第三集吵成一团那样的局面，怕是不光是海玲一个人，而是所有人都已经做好炸团准备了，现在祥子 ...</blockquote>
+也只能爱信等了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  帆前  
+##### 11292#       发表于 2025-1-24 01:02
+
+普通小女孩说约定，心机小女孩说命运
+<img src="https://p.sda1.dev/21/8b52692b35aa0e28bcb27dcfd1391bdf/Screenshot_20250123_221157_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小莫老师存心炸团的可能性有多少？
+
+我不知道，<strong>感觉真有点精神病人的想法无法理解的内味了</strong>
+
+小莫老师现在仍然还有点恐怖片角色的美，因为疯子具有无法理解的特性，无法理解即是恐怖的源头之一（）
+
+*****
+
+####  天空塔书记官  
+##### 11293#       发表于 2025-1-24 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261497&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-1-24 01:00</a>
+听说是完全不行，bgm都是六分出头</blockquote>
+这可不太妙，只能希望是独角兽暴走而不是监督越权了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 11294#       发表于 2025-1-24 01:04
+
+睦砸镜子是不是自己打破内心壁障啊
+
+*****
+
+####  zuckmydik  
+##### 11295#       发表于 2025-1-24 01:05
+
+<blockquote>sanae 发表于 2025-1-24 00:58
+大喵说了一堆，大喵提出的不辜负观众的解决方案到底是啥，让睦不弹吉他光演戏吗。 ...</blockquote>
+很简单啦 现造一个世界观把Mortis束之高阁，其他四个人演奏，最后四个人剧本把Mortis救下来一起表演就行
+
+难想肯定不难想 主要是为了音乐性
+
+*****
+
+####  JustW  
+##### 11296#       发表于 2025-1-24 01:05
+
+看了一下讨论，怎么不少人已经快进到进击的巨人阶段了，全是梦全是幻觉全是叙诡全是编剧设计。
+
+编剧肯定没有把所有东西都讲完，但觉得全是梦全是幻觉全是叙诡全是编剧设计的，到底是不敢调整自己期待值还是真心这么相信的。
+
+*****
+
+####  Reinhold  
+##### 11297#       发表于 2025-1-24 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261464&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-24 00:58</a>
+这样说大喵老师也有点小丑了，Mortis的诞生可以说她是出了大力的，现在反而要被Mortis挤走了
+
+—— 来自  ...</blockquote>
+本质上也是她发现睦本来就是她的高位替代的过程，有资源有流量有天赋，对于小镇做题家来说这种简直就是令人绝望的存在，想想她真想留下来才不合理<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
