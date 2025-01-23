@@ -9284,3 +9284,25 @@ n站，神秘面具男登场时的PV弹幕轰炸<img src="https://static.saraba1
 
 上面那个视频阿姆罗的声音很像，夏亚的一点都不像啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 5285#       发表于 2025-1-23 13:45
+
+骡子从高达被ntr开始汗流浃背
+
+鸭子从没干掉扎比家开始汗流浃背
+
+然后FLCL风的高达动画开始了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+xswl
+
+
+*****
+
+####  中野梓  
+##### 5286#       发表于 2025-1-23 13:52
+
+哀战士配上这战斗画面，我流泪了
+

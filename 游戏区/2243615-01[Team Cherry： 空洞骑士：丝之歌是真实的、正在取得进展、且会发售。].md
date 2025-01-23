@@ -501,3 +501,16 @@ TC的核心成员就3个人吧
 
 空洞和蔚蓝都是我非常喜欢的独立游戏，我真的不希望看到任何一个独立游戏的续作胎死腹中，我们失去太多好游戏了。
 
+
+*****
+
+####  pgain2004  
+##### 56#       发表于 2025-1-23 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252606&amp;ptid=2243615" target="_blank">Junakr 发表于 2025-1-23 10:29</a>
+https://bbs.saraba1st.com/2b/thread-1999948-1-1.html
+
+《蔚蓝》开发商新作《Earthblade》 取消开发。</blockquote>
+HK应该会稍微好一些，毕竟是沿用公式的续作
+但确实拖太久了
+
