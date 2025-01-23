@@ -9126,3 +9126,12 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 2025-1-23 09:24 上传
 
+
+*****
+
+####  ads147147  
+##### 5271#       发表于 2025-1-23 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252068&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-23 09:24</a></blockquote>
+我记得剧场版后自爆的武士道好像也是金属人来着？
+

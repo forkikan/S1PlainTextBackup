@@ -960,3 +960,11 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  突发性哮喘病患  
+##### 89#       发表于 2025-1-23 09:39
+
+已通关，TE没有给太多选择，可惜
+
