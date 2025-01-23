@@ -1294,3 +1294,11 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  prattwhitney  
+##### 117#       发表于 2025-1-23 23:50
+
+我早就说过海自的下场就是在港口里被东风雷击处分，原因是霞关会还没有开完，不能出港
+
