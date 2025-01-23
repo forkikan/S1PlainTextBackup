@@ -986,3 +986,14 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 <img src="https://p.sda1.dev/21/1465f4a849f295737fe47993662b593f/Screenshot 2025-01-23 164212.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Whalouse  
+##### 92#       发表于 2025-1-23 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255625&amp;ptid=2238139" target="_blank">sgkqjsd 发表于 2025-1-23 16:09</a>
+
+怎么闪退，有报错吗</blockquote>
+<img src="https://p.sda1.dev/21/fa215b51384f696a4efae136a2c8541a/Screenshot 2025-01-23 165222.png" referrerpolicy="no-referrer"> 测了一下塞拉装上这两个一升级就会报错，换掉就正常了
+

@@ -2022,3 +2022,57 @@ QQ图片20250123145947.jpg
 
 真的有存款么  第一集箱子不就拿着存折说钱不够了么
 
+
+*****
+
+####  NODY  
+##### 10549#       发表于 2025-1-23 16:59
+
+没存款很难解释祥子为什么还愿意给钱给她爹买酒，让她爹在家躺着当米虫总比没事还得去局子捞人强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舆水沉浮  
+##### 10550#       发表于 2025-1-23 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255675&amp;ptid=2208921" target="_blank">舆水沉浮 发表于 2025-1-23 16:15</a>
+要疯了</blockquote>
+怕误会说下，这个是第五集的事情，第四集怎么说呢，mortis变成第二个soyo罢了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  哈曼的YY  
+##### 10551#       发表于 2025-1-23 17:02
+
+<blockquote>舆水沉浮 发表于 2025-1-23 17:00
+怕误会说下，这个是第五集的事情，第四集怎么说呢，mortis变成第二个soyo罢了
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+？？？来专楼直球剧透？
+
+*****
+
+####  梅杜莎  
+##### 10552#       发表于 2025-1-23 17:03
+
+ 本帖最后由 梅杜莎 于 2025-1-23 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255967&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-23 16:52</a>
+
+真的有存款么  第一集箱子不就拿着存折说钱不够了么</blockquote>
+那存折是不是她自己的？
+
+而且说这台词的时候还没退出月之森呢，退了就宽裕了
+
+*****
+
+####  ddy2811  
+##### 10553#       发表于 2025-1-23 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254649&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-23 14:29</a>
+
+换句话讲喵梦和祥子不是结构性矛盾？祥子在拿睦钓喵梦的时候就没有喵梦独走的预案吗？这么看祥子手下银河 ...</blockquote>
+祥子应该没有做任何其他人不听指挥或者她压不住人的预案，很可能觉得自己能力强又是总指挥所以别人听自己命令是件理所当然的事，一方面是人走出大宅子了意识还没有，另一方面也是犯了搞技术搞业务的人经常犯的错
+
