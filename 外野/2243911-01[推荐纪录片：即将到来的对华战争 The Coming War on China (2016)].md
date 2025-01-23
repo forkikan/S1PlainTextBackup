@@ -1251,3 +1251,15 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 憋到现在老中科技经济工业都超过当年的苏联了，还打个毛线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cyberalogo  
+##### 113#       发表于 2025-1-23 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257975&amp;ptid=2243911" target="_blank">愿闻其翔 发表于 2025-1-23 21:07</a>
+要我说牢美的战略定力可太强了，哪有那么容易打的？
+
+一战二战都是拖到实在拖不下去才参战的，跟苏联争霸几 ...</blockquote>
+也难保西大啥时候选上来个不听劝的智障，非要跟东大正面刚一场。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
