@@ -1364,3 +1364,14 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 工业生产力现在米帝是二战日本东大是当年米帝，连宣布原材料禁运封死工生产都一样然后由此发生的日军先去 ...</blockquote>
 不存在的，海军没有重要的海外基地，丑国又不敢进第一岛链，顶多炸个钱凯港骗骗自己偷袭了老中。
 
+
+*****
+
+####  windrarara  
+##### 124#       发表于 2025-1-24 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260807&amp;ptid=2243911" target="_blank">initium 发表于 2025-1-24 00:11</a>
+
+不存在的，海军没有重要的海外基地，丑国又不敢进第一岛链，顶多炸个钱凯港骗骗自己偷袭了老中。 ...</blockquote>
+你别说，打兔本体是不敢的，但是让仆从国或者养殖势力破坏海外的重要节点和资产确实可行，一来你不好发作，二来离本土太远保护困难，这样一说，076不搞个十条八条的顶不住啊
+

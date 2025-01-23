@@ -1897,3 +1897,79 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 
 要不丰川祥子回去被迫继承亿万资产得了，哦牛批这是一个普通中二病犟驴大小姐能解决的问题？staff能圆的回来有鬼了
 
+
+*****
+
+####  披头破落户  
+##### 218#       发表于 2025-1-24 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260910&amp;ptid=2243994" target="_blank">Tienx 发表于 2025-1-24 00:19</a>
+我很想看潭友也回旋镖</blockquote>
+能回旋镖最好，这集观感太奇怪了，希望只是谷底接下来的剧集能登珠峰
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  z-hunter  
+##### 219#       发表于 2025-1-24 00:30
+
+ 本帖最后由 z-hunter 于 2025-1-24 00:32 编辑 
+
+其实到最后喵梦爆之前都还好，最后吵架闹解散逻辑就莫名其妙开始胡来了，下集说是4个人演阿墨的也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+双重人格嘛，这不是奇幻也不像朝仓可怜那样设定就是双重，现在为了爆剧情中途加入<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能看之后怎样处理和结局如何吧
+
+从上几集剧情发展就能猜到是小睦小时候过于压抑和环境压力太大造成，有人说是小睦演的。我觉得不是，毕竟阿墨真的说自己不会吉他
+
+祥子又变回了软弱无助的模样，还是这样比较适合她，美味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她带队能力确实太差了
+
+话说4集了鸡团太部分时间都在吵架闹矛盾拆团解散，真是“有团魂”，现在阿墨连吉他都不会了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+反正鸡楼我是不会进的，看不到泥潭一些人的反应有些可惜
+
+*****
+
+####  TI三冠王AME  
+##### 220#       发表于 2025-1-24 00:30
+
+唉，为什么Oblivions总能遇上cs队友,狼烟起,江山北望,队友们,四个畜,辜负O皇
+
+*****
+
+####  fsfs_freeze  
+##### 221#       发表于 2025-1-24 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261067&amp;ptid=2243994" target="_blank">TI三冠王AME 发表于 2025-1-24 00:30</a>
+唉，为什么Oblivions总能遇上cs队友,狼烟起,江山北望,队友们,四个畜,辜负O皇</blockquote>
+祥子的crychic是niko的波士顿吗
+
+*****
+
+####  tubarl_kumiko  
+##### 222#       发表于 2025-1-24 00:33
+
+战斗，爽
+
+*****
+
+####  北条早苗  
+##### 223#       发表于 2025-1-24 00:34
+
+0.25倍速分析O皇眼角有泪
+
+*****
+
+####  darkendless  
+##### 224#       发表于 2025-1-24 00:35
+
++0，虽然看得出来已经在尽可能铺垫大喵了，但提出解散的那段还是很奇怪；双重人格这个设定拿出来要处理好挺难的，看下一集吧
+
+*****
+
+####  dgugvff  
+##### 225#       发表于 2025-1-24 00:35
+
+好好珍惜打-2的观众吧
+
