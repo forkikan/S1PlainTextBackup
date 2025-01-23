@@ -1017,3 +1017,18 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 武道馆只是个象征意义比较大的万人规模场馆，鸡还是出道没多久就巡演比较体现热度
 
+
+*****
+
+####  plazum  
+##### 10461#       发表于 2025-1-23 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249235&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-22 19:23</a>
+
+第四话：标题戏剧落幕，工作人员说很不妙
+
+第五话：据说吵得很厉害
+
+第六话：声优看完之后默默吃饭</blockquote>
+我记得之前有一部动画在播到第二三集左右的时候，动画主创团队和声优在各种渠道放出消息说“第六集会有大的”，好像是《皿三昧》吧
+
