@@ -5923,3 +5923,397 @@ Mortis这个样子实在是太暗黑kkr了，不执着于乐队、说着天真�
 
 话说这四话下来，大祥老师也是离前半部分渲染的杀伐果决形象越来越远了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  庸necro  
+##### 10974#       发表于 2025-1-23 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259827&amp;ptid=2208921" target="_blank">The_Ether_ 发表于 2025-1-23 23:12</a>
+
+全程都在模仿soyo啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有些场景都没在现场也能模仿吗
+
+*****
+
+####  影伴光生  
+##### 10975#       发表于 2025-1-23 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果这一集作为第一集播出，然后再顺序播放1-3集的话，大家没准还沉浸在解谜当中，车角色的可能也少一点——毕竟会直接吓跑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 10976#       发表于 2025-1-23 23:24
+
+“所以我讨厌祥子”
+
+结果后面就在房间里大吼大叫 祥子你不是只剩下mujica了吗
+
+这不铁串子
+
+*****
+
+####  dgugvff  
+##### 10977#       发表于 2025-1-23 23:25
+
+完了，从一开始武士道炒作的时候就有预感了，完全没有mygo那样的角色刻画，mygo就是即使发展的慢也要将故事讲好，但是现在完全没有这种感觉
+
+*****
+
+####  柴突猛进  
+##### 10978#       发表于 2025-1-23 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260031&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-23 23:20</a>
+
+看了一下c part，舞台下没有观众，估计不是散团而是活动中止。</blockquote>
+那才是真的烂透了，大喵老师这集有句话说的很对，“你有考虑过期待明天演唱会的来宾吗，不光是入场券费用，交通费住宿费都要花很多钱的”，而且这个演唱会就是明天，如果这一关过不去，别说解散，我是观众我就要砸场子了
+
+*****
+
+####  wonner_2012  
+##### 10979#       发表于 2025-1-23 23:25
+
+这集ed前依然是初华旁白，只能寄希望于初华的旁白真的有意义了（叙诡/不可信叙述者），说不定揭露以后初华旁白就消失了
+
+*****
+
+####  leader01234  
+##### 10980#       发表于 2025-1-23 23:26
+
+直到mortis进酒店房间都还能接受，说实话我真没想到这段直接就炸团了，前半集还在说新歌的事呢。而且真要炸炸的人也该是大翔吧，一切失去掌控彻底自暴自弃主动退出，然后翔海玲初华仨人三比二喵睦才对。这也不能是叙诡，真要吓人mortis一进来画面一转舞台宣布解散不是更有节目效果吗，还是想不明白。
+
+*****
+
+####  gammatau  
+##### 10981#       发表于 2025-1-23 23:26
+
+<blockquote>tiro_finale 发表于 2025-1-23 23:15
+想要搞大的就是一种翻车之道啊，仔细想想高调宣传的很多都摔死了，做出突破是九死一生的
+
+mygo就是一副默默 ...</blockquote>
+这就是meta啊（）
+
+*****
+
+####  septemsky  
+##### 10982#       发表于 2025-1-23 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“双重人格”应该不可能是演的，不然睦的人设就烂掉了，虽然现在也没有好到哪里去了，谁能想到少女乐队动画里居然真的有精神病人啊。这个设定一旦坐实，还成为c团和ji团两个团的炸团人，后面人设还捞的回来？
+
+看下集预告的意思，真就各玩各的去了啊，预测后面剧情大祥老师发力，逐个队友攻略回来，面具再戴回去，最后包饺子。
+
+*****
+
+####  answer23  
+##### 10983#       发表于 2025-1-23 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">莫女士不会吉他并且想保全乐队，太都合了
+
+我一点也没看到之前有铺垫她想保存乐队，不是说最讨厌祥子吗，有啥理由保全乐队啊
+
+*****
+
+####  hol_effect  
+##### 10984#       发表于 2025-1-23 23:26
+
+没有观众，有可能是彩排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 10985#       发表于 2025-1-23 23:26
+
+你是？
+
+<img src="https://img.saraba1st.com/forum/202501/23/232638b8b59kb95kl59wj8.png" referrerpolicy="no-referrer">
+
+<strong>E~])J0HYDY8C`CG9MHQ%$OW.png</strong> (307.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 23:26 上传
+
+*****
+
+####  jaewoongh_  
+##### 10986#       发表于 2025-1-23 23:26
+
+按目前为止的塑造，mujica进卡池之后我是不会去抽的，把这五个人塞到一个队伍里很膈应
+
+*****
+
+####  yevvet  
+##### 10987#       发表于 2025-1-23 23:26
+
+mortis不是祥子取的名字吗。但是mortis说从小她就叫mortis。难道是祥子小时候做了什么
+
+*****
+
+####  remedios010000  
+##### 10988#       发表于 2025-1-23 23:26
+
+初华阴谋论是不是破产的差不多了，休息室之战本来还想操作一下，结果被大莫老师一句话噎死<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Bieaeml  
+##### 10989#       发表于 2025-1-23 23:27
+
+非要说给这集洗地：拆队就是四个人演给墨提斯看的，拿解散把睦刺激回来，但是墨提斯这边其实她心里门清四个人在演，她就是要把假的做成真散伙，伤害睦的东西就没有了，也能强行解释她为啥演得那么明显+全程复读名台词——明着告诉大家我不对劲快来刺激我。
+
+不过吧，这么多年每次说是有大的，结果是拉了一坨大的，大家也都习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 10990#       发表于 2025-1-23 23:27
+
+<img src="https://p.sda1.dev/21/ee9af05b0a61b8f08e7bc4edf097e708/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hol_effect| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  听牌小堇  
+##### 10991#       发表于 2025-1-23 23:27
+
+这下原形毕露了？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10992#       发表于 2025-1-23 23:27
+
+如果第五集还要像这样放飞自我，那炸的就不是A团而是wsd了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  arnold_layne  
+##### 10993#       发表于 2025-1-23 23:28
+
+Mortis 在 OP 里还在弹吉他来着，和初华的对话里特地强调了一遍成员退出就算解散，那Mortis 的视角里，小睦这样在大概算退出了吧，估计就是奔着炸团做的
+
+*****
+
+####  zuckmydik  
+##### 10994#       发表于 2025-1-23 23:28
+
+<blockquote>MASKA-1 发表于 2025-1-23 23:26
+你是？</blockquote>
+明显融合素材堆出来的大灰睦了
+
+那么等等...做出各种哈人表情的也是灰睦本身，不是Mortis？
+
+*****
+
+####  novalli  
+##### 10995#       发表于 2025-1-23 23:29
+
+对了，稍微提一下，初华的所有高深的形象目前都是假药，什么掌控一切、故事的真正主角、幕后操纵祥子或者mujica之类的在剧情里都没有实锤。她可能真的只是一个有点傻气的祥子单推人，而且对sumimi也可能真的不完全是应付，和甜甜圈女士在一起比较安心大概率也是真心话。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zuckmydik  
+##### 10996#       发表于 2025-1-23 23:30
+
+<blockquote>yevvet 发表于 2025-1-23 23:26
+mortis不是祥子取的名字吗。但是mortis说从小她就叫mortis。难道是祥子小时候做了什么 ...</blockquote>
+结合心智论和小孩子脾气论
+
+可能第三集上场之前Mortis才真正出生
+
+
+*****
+
+####  MuramasaSP  
+##### 10997#       发表于 2025-1-23 23:30
+
+这一话开头我就觉得很奇怪了，mutsumi性格大变以后，除了祥子剩下三个队友居然没有任何疑问，就这么接受了？
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 10998#       发表于 2025-1-23 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柴突猛进  
+##### 10999#       发表于 2025-1-23 23:30
+
+而且我觉得大莫老师就是最希望母鸡卡解散的那个把，大莫老师这几乎一整集的回旋镖疯狂拷打祥子，还有随时随地都是一副表演的腔调，让我觉得她最后的崩溃和大喊就是演出来为了折磨祥子用的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月灵银羽  
+##### 11000#       发表于 2025-1-23 23:30
+
+话说初华上一集说的话这集立刻就回旋镖了诶啊
+
+原话是“有一个人退出就等于乐队解散”
+
+这集你别管睦头是以什么方式退出的，就问她倒头一睡这团是不是立刻就炸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉缇娅  
+##### 11001#       发表于 2025-1-23 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不过有一点可以确定了
+
+我现在是一点都猜不到后面要怎么演了，真的一点点都猜不出来了
+
+*****
+
+####  天空塔书记官  
+##### 11002#       发表于 2025-1-23 23:31
+
+日推现在什么反应，大炎上吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hol_effect  
+##### 11003#       发表于 2025-1-23 23:31
+
+确实，毕竟假药都比正片有逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 11004#       发表于 2025-1-23 23:31
+
+希望初华爆的部分不要那么弱智
+
+*****
+
+####  Min_FOrder  
+##### 11005#       发表于 2025-1-23 23:32
+
+什么情况？
+
+看完觉得异常精彩，开砖楼一看居然都觉得不行，理由是啥？
+
+大喵Bpart炸了，不就是因为她爹妈家人都满怀期待来看女儿演出，结果你大祥遇上事了说推迟就推迟，明摆着脑子里只有自己什么音乐性，不管不顾外界期待么？换我我也得早点抽身，反正我都勾搭上世界级女演员若叶minami了，破团待不待无所谓。海玲本来就觉得乐队来来去去散了无所谓，初华倒是暂时不知道为啥这么爽快就不干了。
+
+至于双重人格什么的不就是她们几个聊出来的吗，mortis本人又没认可，就不怕后面继续回旋？
+
+*****
+
+####  huxiaopao163  
+##### 11006#       发表于 2025-1-23 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260031&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-23 23:20</a>
+
+看了一下c part，舞台下没有观众，估计不是散团而是活动中止。</blockquote>
+两侧的座位还是能看到荧光棒的，而且能听到一点观众的声音
+
+*****
+
+####  新HGCG  
+##### 11007#       发表于 2025-1-23 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260207&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-23 23:31</a>
+
+日推现在什么反应，大炎上吗</blockquote>
+在日本母鸡卡根本就没中国这样的关注度…………
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|行|
+
+查看全部评分
+
+*****
+
+####  fsfs_freeze  
+##### 11008#       发表于 2025-1-23 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67206504&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-17 16:30</a>
+
+马上要体现出半身的含金量了，祥子要做到这点就相当于把自己身上的高贵全部打碎，重新塑造以祥睦姐妹为中 ...</blockquote>
+这集反而印证了我的想法。。但独角兽你要怎么收呢？就这集的祥子完全不像是能够短时间内真正蜕变为能打碎自己“高贵”的祥子，如果后两集还是这种节奏以机械降神的方式重塑了祥子，那坛友的几乎一切讨论和假药都成了笑话
+
+*****
+
+####  灼眼的夏娜酱  
+##### 11009#       发表于 2025-1-23 23:32
+
+转换心态从想看祥子搞事业变成怜爱吃瘪小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 11010#       发表于 2025-1-23 23:32
+
+mortis跟喵梦的目的估计一致都是想炸，甚至初华看着都有点。
+
+*****
+
+####  刑部姬真可爱  
+##### 11011#       发表于 2025-1-23 23:33
+
+这集还是得过两天看看大佬们扣细节吧
+
+*****
+
+####  zuckmydik  
+##### 11012#       发表于 2025-1-23 23:33
+
+<blockquote>huxiaopao163 发表于 2025-1-23 23:32
+两侧的座位还是能看到荧光棒的，而且能听到一点观众的声音</blockquote>
+像是告别演出了
+
+*****
+
+####  utotqe  
+##### 11013#       发表于 2025-1-23 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大家都说翻车了我反而能回去多看几遍了这是一种怎样的心态
+
+*****
+
+####  柴突猛进  
+##### 11014#       发表于 2025-1-23 23:33
+
+初华想炸团然后独享祥子的假药感觉越来越真了，不然初华现在的表现根本与mygo那会是俩人
+
+*****
+
+####  fsfs_freeze  
+##### 11015#       发表于 2025-1-23 23:34
+
+哦突然想起了mggm之前说最后一集看了5遍，不会是因为最后一集节奏实在太快导致看5遍才能理顺吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

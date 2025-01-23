@@ -1343,3 +1343,198 @@ OPED搞下特效字体就够了 正片还来变色字体 生怕别人不知道�
 
 说起来这倒是很有美剧范，我印象里有些美剧就是每一季开头有些角色就像变了个人似的疯狂搞事制造爆点，后面再慢慢收
 
+
+*****
+
+####  127  
+##### 155#       发表于 2025-1-23 23:24
+
+-2不至于，给的-1
+
+上集给的+2，信息量足够，潜在价值多。本集剧情不够精巧，只表现了睦的当下状态，仅此而已，效果弱。
+
+节奏上，快可以接受，但这集详略实在不够得当。最后一段明显key setting，然而短促，并唐突断章。
+
+很明显牢绫正对暗线这种写作手法趋之若鹜，mygo写的好有一点在于明暗线交织。而同一时间讲尽几人，无观众“脑中补全”的余地，是否是叙事水平不足的表现？
+
+*****
+
+####  易方世界  
+##### 156#       发表于 2025-1-23 23:25
+
+我在想揭掉假面这个行为是否还有其他的暗示。物理上的假面第1集就揭掉了，而笼罩在各个角色内心的假面，恐怕还没有揭开。
+
+*****
+
+####  LLLLLuB  
+##### 157#       发表于 2025-1-23 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259853&amp;ptid=2243994" target="_blank">Ferrari 发表于 2025-1-23 23:13</a>
+mortis讨厌祥子但是她不希望mujica解散，单纯是以自己的能力让mujica走上另一条路
+
+但是她不会吉他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说着不想炸队，但做的事却往偏离祥子的世界观发展，这么跳脸也真亏祥子是把她当青梅竹马，才在她不会弹吉他的时候才炸。
+
+*****
+
+####  Keiji  
+##### 158#       发表于 2025-1-23 23:26
+
+不假弹，超过99%网红乐队<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  敏感词好多  
+##### 159#       发表于 2025-1-23 23:27
+
+难评，我到底看了个啥
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  外挂  
+##### 160#       发表于 2025-1-23 23:28
+
+这集其实我可以给+2  期待的颠婆发疯终于开始，感觉编剧也在给若麦往回找补
+
+感觉若麦那段关于演唱会成本的话，未来五年内都会被截图用在各个组织团体个人的演唱会出岔子的时候。
+
+
+*****
+
+####  rp1993  
+##### 161#       发表于 2025-1-23 23:28
+
+上一集-2，这集只能+2了
+能全程爆笑看完的动画这季只有《我独自升级》和这部《我独自维持母鸡卡》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 162#       发表于 2025-1-23 23:28
+
+<img src="https://img.saraba1st.com/forum/202501/23/232529nkg8z18g7g1qgx4y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 23:25 上传
+
++0，实在难以评价了
+
+这集在一定程度上印证了我的一些想法，但祥子的表现和结尾的急转直下不得不让人怀疑独家兽有没有能力收起来，前面看到坛友说变成了过家家，虽然挺想反驳但我找不出更好的词。
+
+真是疯了
+
+*****
+
+####  一心而用  
+##### 163#       发表于 2025-1-23 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260025&amp;ptid=2243994" target="_blank">阿酷怕苦 发表于 2025-1-23 23:20</a>
+从杂志封面来看，黑睦应该后续还能接广告，挺正常的，那这一段应该就是纯演的，估计就是为了毁团。
+
+ ...</blockquote>
+但是祥子都回家了。
+
+*****
+
+####  ztl44  
+##### 164#       发表于 2025-1-23 23:29
+
+-2
+
+前半还算有乐子 不过充其量就是各种换头二创的水平
+
+后半顶级烂完 不知所云
+
+换做其他新番到这集基本可以弃了吧
+
+
+*****
+
+####  拱猪  
+##### 165#       发表于 2025-1-23 23:31
+
+这大猫这么会作，难道没意识到自己根本就是可以被替代的？mujica的人气，木头人在台上胡搞瞎搞照样赢得满堂彩，索性把她踢了让立希过来代打吧，后面每集有人犯病就从狗团拉人救场吧
+
+*****
+
+####  K·os  
+##### 166#       发表于 2025-1-23 23:31
+
+冷静下来思考，除了莫提斯实在是解释不了，这话的角色居然其实没啥ooc的地方，如果抛开“对作品后续的期待”不谈的话，观看体验确实是非常快乐
+
+意思就是，这要圆上，真的难度有点大吧，有没有独角兽的魔法
+
+*****
+
+####  影伴光生  
+##### 167#       发表于 2025-1-23 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259913&amp;ptid=2243994" target="_blank">樽——見 发表于 2025-1-23 23:15</a>
+B站能不能别搞什么变色字体了 真的土</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好说是不是wsd对接的时候特意标注“此处字幕需换色”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dc5281  
+##### 168#       发表于 2025-1-23 23:32
+
+可以给个+1，回旋镖看爽了
+
+就是进门爆的太快太直接了少点味道、逻辑方面也没法细想
+
+*****
+
+####  sekai-R  
+##### 169#       发表于 2025-1-23 23:33
+
++1
+
+猜得出来mortis会自称不会弹吉他，但只会公式化模仿演戏这点表现的不怎么明显，节奏还是太快了，中间还插入一段大猫的反转的剧情耗费不少时长，后面众人讨论和mortis进房间中间肯定删减了一段作为叙述诡计的。
+
+看后面怎么反转，众人拆穿睦头演技就+2，真是双重人格就-2
+
+*****
+
+####  十壹  
+##### 170#       发表于 2025-1-23 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260124&amp;ptid=2243994" target="_blank">LLLLLuB 发表于 2025-1-23 23:25</a>
+说着不想炸队，但做的事却往偏离祥子的世界观发展，这么跳脸也真亏祥子是把她当青梅竹马，才在她不会弹吉 ...</blockquote>
+真当青梅竹马早就一键三吼，咆哮输出了，发现人格不熟立马闭麦好怕好怕<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sheshiro  
+##### 171#       发表于 2025-1-23 23:33
+
+迷家之绝唱，无韵之吉他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下集如果还是这样，估计主创人员就该变成睦头人了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  stevenzero  
+##### 172#       发表于 2025-1-23 23:33
+
+绝无贬义，这集恐怖剧情看得我乐死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  +2
+
+*****
+
+####  老贝  
+##### 173#       发表于 2025-1-23 23:33
+
+-1
+
+这集看着像是什么同人文，还是水平比较差，只会玩原作台词梗和复读机的那种。
+
