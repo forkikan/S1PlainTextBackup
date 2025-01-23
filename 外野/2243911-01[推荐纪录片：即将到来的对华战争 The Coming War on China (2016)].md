@@ -1054,3 +1054,34 @@ asbm只是最后一根稻草
 —— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v ...</blockquote>
 司令当然想赌啊，不是被参联会和手下gank了，最后发配到韩国当大使去了么...<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pu  
+##### 96#         楼主| 发表于 2025-1-23 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255752&amp;ptid=2243911" target="_blank">seki_m 发表于 2025-1-23 16:22</a>
+
+有没有下载版的？正好在动车上看</blockquote>
+只找到生肉
+
+*****
+
+####  克拉苏  
+##### 97#       发表于 2025-1-23 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255554&amp;ptid=2243911" target="_blank">stmule 发表于 2025-1-23 16:01</a>
+为什么不赌国运呢，是太平洋舰队司令不敢么
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v ...</blockquote>
+这一把怎么算都是亏的 哈里斯有日本血统 奥黑没有<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orecheng  
+##### 98#       发表于 2025-1-23 17:50
+
+比起ASBM这玩意能不能打中，我觉得DF-31 单价低于战斧更吓人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

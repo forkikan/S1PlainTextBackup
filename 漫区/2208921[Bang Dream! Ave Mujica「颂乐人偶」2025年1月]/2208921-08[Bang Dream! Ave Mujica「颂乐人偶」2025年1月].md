@@ -2273,3 +2273,23 @@ https://x.com/Lis_Ani/status/1882354020435763313/photo/1</blockquote>
 
 个人对发图无所谓，不反白地说啥啥啥有啥啥啥没有这就忍不了了
 
+
+*****
+
+####  木板春香  
+##### 10575#       发表于 2025-1-23 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256424&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-23 17:40</a>
+
+怎么塞 去內野举报吗</blockquote>
+右上角ID右侧，选择【我的】→【好友】→【我的黑名单】
+
+APP点头像应该也有 塞抹布 选项
+
+*****
+
+####  Wondering  
+##### 10576#       发表于 2025-1-23 17:52
+
+情报哥可以学一下12123他们用极其抽象的emoji<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
