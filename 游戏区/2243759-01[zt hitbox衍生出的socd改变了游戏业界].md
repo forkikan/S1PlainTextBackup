@@ -756,3 +756,14 @@ cs大部分枪都没有机瞄，有机瞄的枪如狙或者aug开机瞄一般也
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 68#       发表于 2025-1-23 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251308&amp;ptid=2243759" target="_blank">噗呸破屁诚 发表于 2025-1-23 01:51</a>
+
+本来点完视频一看是这个up就出来准备先出来泥潭老害怎么睿评这个科普有多少错误了，结果两页了居然是个【完 ...</blockquote>
+但目前泥潭老害也只说有问题而也没具体说出哪里有问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
