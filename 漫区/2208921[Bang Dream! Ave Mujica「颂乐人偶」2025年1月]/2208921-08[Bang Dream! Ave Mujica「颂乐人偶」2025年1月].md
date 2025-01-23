@@ -1181,3 +1181,40 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 外人的眼光基本上算是实锤了之前说的”丰川家黑暗“了吧，想想也很正常，要是这么大一个财阀你想来就来想 ...</blockquote>
 這裡原文是「見栄えもあって家には戻れず」，我剛睡醒沒想好怎麼翻才是最好，見栄え直譯就是“外表、外觀”<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜玄言  
+##### 10475#       发表于 2025-1-23 10:29
+
+所以说，祥子也mygo了啊
+
+
+*****
+
+####  IVANLIAO  
+##### 10476#       发表于 2025-1-23 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252036&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-23 09:20</a>
+
+我记得播之前你楼不就有舅舅在说从第一集炸到最后一集。
+
+话说这集图透里木头真是，超级soyo。。。我要是祥 ...</blockquote>
+祥子：“soyo还在追我”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 10477#       发表于 2025-1-23 10:32
+
+見た感じがよいこと。外観がよく見えること。
+
+*****
+
+####  御幸一也  
+##### 10478#       发表于 2025-1-23 10:32
+
+訪談又說了mygo和avemujica是“正相反”，提到mygo是“暴露出角色那不想讓人看到的本性”，
+
+那麼avemujica可能就不是這個思路，要和mygo相反，至少就不能用mygo那套邏輯跑了。
+
