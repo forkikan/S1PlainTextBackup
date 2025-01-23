@@ -1263,3 +1263,14 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 一战二战都是拖到实在拖不下去才参战的，跟苏联争霸几 ...</blockquote>
 也难保西大啥时候选上来个不听劝的智障，非要跟东大正面刚一场。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyflyflxf  
+##### 114#       发表于 2025-1-23 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258179&amp;ptid=2243911" target="_blank">cyberalogo 发表于 2025-1-23 21:39</a>
+
+也难保西大啥时候选上来个不听劝的智障，非要跟东大正面刚一场。</blockquote>
+那就要么PLA有足够的物理冷却器让对面及时冷静，要么就只能花一些代价把他们老旧的战舰飞机送去太平洋底做鱼礁了
+

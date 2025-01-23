@@ -3077,3 +3077,300 @@ i83和李子的梗图含金量还在上升
 
 睦平时是有多自闭，同班同学真就soyo一个人知道她以前不这样啊？
 
+
+*****
+
+####  Mikumiku831  
+##### 10652#       发表于 2025-1-23 22:16
+
+爆的也太快了 开火车了
+
+*****
+
+####  AP0rt_  
+##### 10653#       发表于 2025-1-23 22:16
+
+果然，圣爱音是各种意义上的稀缺物种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1223122  
+##### 10654#       发表于 2025-1-23 22:16
+
+后半更恐怖
+
+*****
+
+####  akiomn  
+##### 10655#       发表于 2025-1-23 22:17
+
+太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">莫提斯赶紧下线吧，我觉得真是必死了，这不像是会和睦和解的样子
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 10656#       发表于 2025-1-23 22:17
+
+大喵老师哭唧唧太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1223122  
+##### 10657#       发表于 2025-1-23 22:18
+
+有Cpart..
+
+*****
+
+####  nt2013  
+##### 10658#       发表于 2025-1-23 22:18
+
+在天台一边闪着红灯一边对话的两个人也太恐怖了
+
+*****
+
+####  凉良  
+##### 10659#       发表于 2025-1-23 22:18
+
+10W人同事看了
+
+*****
+
+####  ttoady  
+##### 10660#       发表于 2025-1-23 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">邦邦怎么变成了这样子
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  看穿一切的鱼  
+##### 10661#       发表于 2025-1-23 22:19
+
+下集预告大喵旁边的是远坂凛吗<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Chenlh  
+##### 10662#       发表于 2025-1-23 22:19
+
+我怎么感觉我看不懂这一集，感觉像是四个串子在串祥子
+
+*****
+
+####  u2deack  
+##### 10663#       发表于 2025-1-23 22:19
+
+不是，这里有一个正常人么
+
+*****
+
+####  凉良  
+##### 10664#       发表于 2025-1-23 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258653&amp;ptid=2208921" target="_blank">Chenlh 发表于 2025-1-23 22:19</a>
+
+我怎么感觉我看不懂这一集，感觉像是四个串子在串祥子</blockquote>
+我也感觉  其他三个人表现太抽象了 完全就是为了让mortis痛击祥子服务
+
+*****
+
+####  newtroll  
+##### 10665#       发表于 2025-1-23 22:21
+
+音监像坨屎
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  novalli  
+##### 10666#       发表于 2025-1-23 22:22
+
+啊？
+我只能这么表达我的第一反应了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  本间日阳  
+##### 10667#       发表于 2025-1-23 22:22
+
+彻底疯狂。彻底疯狂！
+
+*****
+
+####  ykyin09  
+##### 10668#       发表于 2025-1-23 22:22
+
+有点用力过猛的感觉，后面真的拉的回来吗
+
+*****
+
+####  ttoady  
+##### 10669#       发表于 2025-1-23 22:22
+
+看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 10670#       发表于 2025-1-23 22:22
+
+ 本帖最后由 影伴光生 于 2025-1-23 22:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然这么说有点不礼貌，但是莫女士要是会弹吉他的话，可能真就凑合过了吧
+这集看完我觉着剧情发展要完球了
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  超极巨鲨鲨  
+##### 10671#       发表于 2025-1-23 22:22
+
+这么恐怖的吗<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 10672#       发表于 2025-1-23 22:22
+
+mortis不能弹 喵梦先军训祥子什么玩意儿
+
+*****
+
+####  Mikumiku831  
+##### 10673#       发表于 2025-1-23 22:23
+
+这集感觉作画有点蹦
+
+*****
+
+####  ochre  
+##### 10674#       发表于 2025-1-23 22:23
+
+乐队速通计划！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  聊nsy专用号  
+##### 10675#       发表于 2025-1-23 22:23
+
+这集剧情快的和12集总集篇一样
+
+*****
+
+####  swff  
+##### 10676#       发表于 2025-1-23 22:23
+
+这集观感真不行吧，这到底演了个什么
+
+*****
+
+####  RPG-7  
+##### 10677#       发表于 2025-1-23 22:23
+
+少女乐队番这样做会犯法的吧！！
+
+*****
+
+####  pliee  
+##### 10678#       发表于 2025-1-23 22:23
+
+墨提斯这也不牛逼啊，感觉智商还低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  newtroll  
+##### 10679#       发表于 2025-1-23 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258697&amp;ptid=2208921" target="_blank">newtroll 发表于 2025-1-23 22:21</a>
+音监像坨屎
+
+—— 来自 鹅球 v3.3.96</blockquote>
+纠正一下，剧情也挺屎的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  卡卡布鲁根  
+##### 10680#       发表于 2025-1-23 22:24
+
+狠狠压力大祥老师
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  chautauqua  
+##### 10681#       发表于 2025-1-23 22:25
+
+我怀疑自己开了二倍速，剧情太快了！
+
+—— 来自 vivo V2403A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ml1642879  
+##### 10682#       发表于 2025-1-23 22:25
+
+爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！爆！
+
+*****
+
+####  厚乳果珍爽  
+##### 10683#       发表于 2025-1-23 22:25
+
+<img src="https://img.saraba1st.com/forum/202501/23/222527gh88xq3vhcpqc5q7.png" referrerpolicy="no-referrer">
+
+<strong>)}[R%({8~CQ}KSYUNE%]I9U.png</strong> (106.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 22:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回旋镖！
+
+*****
+
+####  raii  
+##### 10684#       发表于 2025-1-23 22:25
+
+这就解散了？银河战舰炸了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 10685#       发表于 2025-1-23 22:26
+
+感觉像是把一般放在13话里第10话的内容放到第四话演，怪不得工作人员说很不妙
+
+声优说后面还有更不妙的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 10686#       发表于 2025-1-23 22:26
+
+m女士一急眼就复读了，真的是人偶啊
+
+*****
+
+####  挺好的  
+##### 10687#       发表于 2025-1-23 22:26
+
+<img src="https://p.sda1.dev/21/54634dcca67eb3331eee31a195c6e201/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
