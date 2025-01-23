@@ -978,3 +978,11 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 塞拉升到34级会有闪退bug，我的无敌平a大哥用不了了</blockquote>
 怎么闪退，有报错吗
 
+
+*****
+
+####  Whalouse  
+##### 91#       发表于 2025-1-23 16:44
+
+<img src="https://p.sda1.dev/21/1465f4a849f295737fe47993662b593f/Screenshot 2025-01-23 164212.png" referrerpolicy="no-referrer"> 
+
