@@ -1605,3 +1605,42 @@ https://www.bilibili.com/bangumi/play/ss73081
 
 2025-1-23 13:22 上传
 
+
+*****
+
+####  Ferrari  
+##### 10509#       发表于 2025-1-23 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253973&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-23 13:14</a>
+沟槽的这海玲介绍太搞了，什么都有……</blockquote>
+虽然糊，但是意外的很好辨认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 10510#       发表于 2025-1-23 13:28
+
+假面舞会这个设定，是否也是祥子为了保护睦才加上去的，这样就能让睦合理不露脸。
+
+
+*****
+
+####  御幸一也  
+##### 10511#       发表于 2025-1-23 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254077&amp;ptid=2208921" target="_blank">老贝 发表于 2025-1-23 13:28</a>
+
+假面舞会这个设定，是否也是祥子为了保护睦才加上去的，这样就能让睦合理不露脸。 ...</blockquote>
+
+至少睦的面具遮擋最大，確實就是祥子為了保護睦不讓她露面才這樣設計的
+
+最新雜誌已錘
+
+<img src="https://img.saraba1st.com/forum/202501/23/133226gajpoba7lu79b7fa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:32 上传
+

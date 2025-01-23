@@ -9276,3 +9276,11 @@ n站，神秘面具男登场时的PV弹幕轰炸<img src="https://static.saraba1
 
 2025-1-23 12:37 上传
 
+
+*****
+
+####  WallHrolf  
+##### 5284#       发表于 2025-1-23 13:24
+
+上面那个视频阿姆罗的声音很像，夏亚的一点都不像啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
