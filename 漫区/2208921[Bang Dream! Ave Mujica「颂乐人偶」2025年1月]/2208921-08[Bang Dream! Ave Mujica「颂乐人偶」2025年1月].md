@@ -9012,3 +9012,349 @@ MYGO倒数第四集正式结成，MUJICA正数第四集解散，十分中心对�
 
 因为显然下集预告她们五个还是上场了
 
+
+*****
+
+####  Qing_Qi_2.0  
+##### 11244#       发表于 2025-1-24 00:46
+
+我大胆预测大喵绝对不会退团，大猫是很现实的人，会坚持自己的利益最大化
+
+说自己要退团是给祥子上压力，让大猫派掌握乐队的路线
+
+顺便测一下能不能把木头人撬走了，要是能撬走不曾鸡团的流量，跟木头人单干也能接受
+
+既然木头坚决不走那大猫必不可能退
+
+*****
+
+####  Min_FOrder  
+##### 11245#       发表于 2025-1-24 00:47
+
+<blockquote>Суслов 发表于 2025-1-24 00:44
+大喵老师前面还说为了这为了那不能停演，压力大祥老师两句后又第一个说退出，真要为了家人好歹把眼前这场 ...</blockquote>
+所以也没说不演啊，如果你愿意认为结尾就是这场演出的话，那不是正常演了么，只是演出结束后炸了个大的。当然更有可能是有叙诡
+
+*****
+
+####  一心而用  
+##### 11246#       发表于 2025-1-24 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261156&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 00:36</a>
+又看了一遍，人物行为工笔气太重，编剧の大手太明显
+
+海初喵这仨有一个像人吗？soyo看个电视就能冷汗狂飙， ...</blockquote>
+也就是说这一话纯粹是按照恐怖片来演的，但也正如几乎所有的恐怖片都是在牺牲逻辑和合理性来营造恐怖气氛一样。
+
+*****
+
+####  Min_FOrder  
+##### 11247#       发表于 2025-1-24 00:48
+
+<blockquote>Суслов 发表于 2025-1-24 00:44
+大喵老师前面还说为了这为了那不能停演，压力大祥老师两句后又第一个说退出，真要为了家人好歹把眼前这场 ...</blockquote>
+你是不是没看动画，放录音这方案不是四个人开会都否决掉了吗
+
+*****
+
+####  天空塔书记官  
+##### 11248#       发表于 2025-1-24 00:49
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 00:50 编辑 
+
+看来第四集就是转折，代表着可能和mygo不同的叙事方式与风格，这是从一开始就打算好的，甚至可能直到黑色生日，故事都会一直崩坏下去，需要做好有这种展开的准备
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 11249#       发表于 2025-1-24 00:49
+
+当你需要制造假药才能维持合理性的时候，这片就已经脱离逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+整个片场唯一的操偶师不是大祥是绫奈，要你家人侠就家人侠，要你暴言拆队就拆队。这集下来能保住人设的也没几个了
+
+
+*****
+
+####  fosanoha  
+##### 11250#       发表于 2025-1-24 00:51
+
+不知道为什么回复不了，我就直接发在下面了。
+
+再不熟也当了几个月同事了，不是几天几小时几分钟，几个月！
+几个月时间同事的禀赋性格怎么也该有个大致的了解了，何况是这种180度的大转变？
+出租车上就更别说了，哦你知道她不说话，几个月都不说话，现在一下子开朗了你不奇怪？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MuramasaSP| + 1||
+
+查看全部评分
+
+*****
+
+####  RaKboW  
+##### 11251#       发表于 2025-1-24 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261293&amp;ptid=2208921" target="_blank">wonner_2012 发表于 2025-1-24 00:45</a>
+从战吧搬来的更多本集对应红光电视的画面</blockquote>
+草，还真有点道理
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KokutouMikiya  
+##### 11252#       发表于 2025-1-24 00:51
+
+莫姐把祥子“托付”给初华后说不要告诉祥子，这段的用意是什么？和后面小屁孩脾气的mortis完全搭不上啊
+
+*****
+
+####  Aendst  
+##### 11253#       发表于 2025-1-24 00:51
+
+四个红屏小电视的分镜能完全对上，必然是有意图去这样做的
+
+四话内容存在部分不真实状况的可能性不低
+
+*****
+
+####  刑部姬真可爱  
+##### 11254#       发表于 2025-1-24 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261293&amp;ptid=2208921" target="_blank">wonner_2012 发表于 2025-1-24 00:45</a>
+
+从战吧搬来的更多本集对应红光电视的画面</blockquote>
+这搞得像以前我玩的cod黑色行动似的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 11255#       发表于 2025-1-24 00:52
+
+母鸡卡和睦大祥老师还是选了睦啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">睦祥吃饱饱。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Reinhold  
+##### 11256#       发表于 2025-1-24 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261272&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-1-24 00:44</a>
+大喵老师前面还说为了这为了那不能停演，压力大祥老师两句后又第一个说退出，真要为了家人好歹把眼前这场 ...</blockquote>
+摆烂是一步一步滑向深渊的，从她喝大杯拿铁开始，她在乐队上的心气已经没了。她是流量追逐者，现在莫提斯在的乐队，肉眼可见她完全是洗脚位，留下去完全没有意义。家人的那通电话，就是哭诉现状并得到安慰，而那份承诺，是要继续在东京打拼，而不是在这个乐队打拼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小小雪空  
+##### 11257#       发表于 2025-1-24 00:52
+
+<blockquote>海底铁锚 发表于 2025-1-24 00:44
+彻底重合了，就是！独角兽首播车过的</blockquote>
+au别急，这番也有很多3u看的，先等一下3u的判断，然后直接站在3u对立面，稳赢的……
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zhigui| + 1|太变态了|
+
+查看全部评分
+
+*****
+
+####  Min_FOrder  
+##### 11258#       发表于 2025-1-24 00:52
+
+<blockquote>天空塔书记官 发表于 2025-1-24 00:49
+看来第四集就是转折，代表着可能和mygo不同的叙事方式与风格，这是从一开始就打算好的，甚至直到黑色生日， ...</blockquote>
+忽然觉得avemujica的基调既然都如此了，倒是可以顺理成章地用某种方式把邦邦那阴暗的初设带出来
+
+*****
+
+####  wonner_2012  
+##### 11259#       发表于 2025-1-24 00:52
+
+还有一个外部的电视操作者
+<img src="https://p.sda1.dev/21/85ca59c00473f3c65f52b3ba7c0cf888/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 11260#       发表于 2025-1-24 00:53
+
+<blockquote>Bieaeml 发表于 2025-1-24 00:34
+B站的源，部分墨提斯的台词是标红的，比如
+
+所以有人会认为标红是墨提斯的真正想说的，而白字才是纯复读机。 ...</blockquote>
+按姐妹说说法，若叶睦母亲其实是真正祥子母亲，祥子是过继的。那么若叶睦母亲就不能一直在祥子身边，那么祥子身边就只能是若叶睦。所以所谓拜托就是让若叶睦照顾祥子这个妹妹，毕竟祥子对待若叶睦母亲相当诡异，不管是漫画还是动画一脸不情愿。
+
+*****
+
+####  天空塔书记官  
+##### 11261#       发表于 2025-1-24 00:53
+
+这个锅还是丢给柿本吧，毕竟编剧只负责写剧情，最终决定剧情的还是监督，况且现在跳得最欢的也是他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhigui  
+##### 11262#       发表于 2025-1-24 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261312&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-1-24 00:46</a>
+
+我大胆预测大喵绝对不会退团，大猫是很现实的人，会坚持自己的利益最大化
+
+说自己要退团是给祥子上压力，让 ...</blockquote>
+对她来说利益最大化的方式就是退团，前半段已经展示了莫提斯不给喵梦蹭的机会，自己已经蹭不到东西了
+
+现在突然退了反而热度会上来，就像隔壁天天被人问冰岛往事一样，喵梦用mujica解散之谜吊着大伙流量恰的满满的
+
+至于让大喵领导，那更不可能，大喵自卑极其严重，让她做领队绝对不可能
+
+*****
+
+####  一心而用  
+##### 11263#       发表于 2025-1-24 00:53
+
+<img src="https://p.sda1.dev/21/9011c5c72f970f30985abc97c15b1678/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/5462695c8975a099ac881ca585627740/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 11264#       发表于 2025-1-24 00:54
+
+<blockquote>Qing_Qi_2.0 发表于 2025-1-24 00:46
+我大胆预测大喵绝对不会退团，大猫是很现实的人，会坚持自己的利益最大化
+
+说自己要退团是给祥子上压力，让 ...</blockquote>
+就是现实才要退，Apart已经多处描写她在团里已经捞不到好处了。
+
+*****
+
+####  rushsong  
+##### 11265#       发表于 2025-1-24 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260521&amp;ptid=2208921" target="_blank">椎名mahuyo 发表于 2025-1-23 23:52</a>
+这集音监挺烂的，有几段背景蜜汁bgm让人感觉挺难受
+
+—— 来自 realme RMX3708, Android 15上的 S1Next-鹅 ...</blockquote>
+mujica四集的音监一直很烂
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  铃森冬  
+##### 11266#       发表于 2025-1-24 00:54
+
+这集的几个暗红打光卡在 PV 里以电视机画面的形式出现过真能说明这些事没真实发生过吗，真这么编的话感觉也挺烂的，而且更可能的解释还是这些跟 PV 里烤鸡飞伞那几个意识流画面类似，是现在沉睡了的小睦的内心视角吧
+
+*****
+
+####  Min_FOrder  
+##### 11267#       发表于 2025-1-24 00:54
+
+<blockquote>fosanoha 发表于 2025-1-24 00:51
+不知道为什么回复不了，我就直接发在下面了。
+
+再不熟也当了几个月同事了，不是几天几小时几分钟，几个月！ ...</blockquote>
+那我就更好奇了，几个月呢，时间线理一理？
+
+*****
+
+####  swessia  
+##### 11268#       发表于 2025-1-24 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261418&amp;ptid=2208921" target="_blank">铃森冬 发表于 2025-1-24 00:54</a>
+这集的几个暗红打光卡在 PV 里以电视机画面的形式出现过真能说明这些事没真实发生过吗，真这么编的话感觉也 ...</blockquote>
+复议
+
+这些小电视完全可以简单解释为睦的视角
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  鱼丈人  
+##### 11269#       发表于 2025-1-24 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259994&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-23 23:19</a>
+之前大家都说C团一次性收集了五个神人是中大奖了
+
+按这个节奏鸡团是要收集五个精神病？大祥老师慧眼识鬼？</blockquote>
+你们都个个身怀绝技呀
+<img src="https://p.sda1.dev/21/20dfc6809677a78e0e1bc1c26a2aae85/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 11270#       发表于 2025-1-24 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261335&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 00:48</a>
+你是不是没看动画，放录音这方案不是四个人开会都否决掉了吗</blockquote>
+不放录音是因为没录音，一天时间准备还来不及吗？后面代打的建议更是直接跳过，我是不觉得当时的局面只有解散退出一条路。还是剧情和角色给人的感觉就是这集必须得炸团，不管什么人设什么合理性反正就是得现在炸<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rushsong  
+##### 11271#       发表于 2025-1-24 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260728&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-24 00:06</a>
+我没你们那么婆罗门，光是这两张图我就给+2，mortis喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜欢喜 ...</blockquote>
+这不叫婆罗门，这叫正常评价作品
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  RaKboW  
+##### 11272#       发表于 2025-1-24 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261293&amp;ptid=2208921" target="_blank">wonner_2012 发表于 2025-1-24 00:45</a>
+从战吧搬来的更多本集对应红光电视的画面</blockquote>
+有道理
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dqtql  
+##### 11273#       发表于 2025-1-24 00:55
+
+感觉这个电视可能是睦人格观察外部世界的窗口，就像街角魔族里的祖先大人通过电视看外部环境一样
+
+*****
+
+####  cauchua3  
+##### 11274#       发表于 2025-1-24 00:55
+
+<blockquote>wonner_2012 发表于 2025-1-24 00:52
+还有一个外部的电视操作者</blockquote>
+这个画面是在哪里出现的？
+
