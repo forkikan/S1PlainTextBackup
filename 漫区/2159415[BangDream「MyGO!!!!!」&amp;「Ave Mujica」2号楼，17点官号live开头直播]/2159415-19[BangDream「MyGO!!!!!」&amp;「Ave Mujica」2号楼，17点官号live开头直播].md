@@ -3221,3 +3221,29 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 总选举歌曲
 
+
+*****
+
+####  CyDiablo  
+##### 26886#       发表于 2025-1-23 21:34
+
+下个月大概这轮最后一期fes，剩立希和二柱子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+FES
+<img src="https://p.sda1.dev/21/e92a8bc67b039b23d0cf99302b8ca579/IMG_20250123_212225.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e056d7e66b2f94a932d70c383b7a94cf/IMG_20250123_212234.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/3d9060db570cc792463e2fc56fd34d4f/Image_109727177951386.png" referrerpolicy="no-referrer">
+
+五⭐
+<img src="https://p.sda1.dev/21/006f944ad6c5cd23332db15a258cfb09/IMG_20250123_212317.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/53daf77508ca60e5af57112104f5fb61/IMG_20250123_212304.jpg" referrerpolicy="no-referrer">
+
+四⭐
+<img src="https://p.sda1.dev/21/a2ffb20f70db668e6cc36288c0b92d2e/IMG_20250123_212256.jpg" referrerpolicy="no-referrer">
+
+三⭐
+<img src="https://p.sda1.dev/21/5442168ec168a2d1e6b6fc24a8de0410/IMG_20250123_212244.jpg" referrerpolicy="no-referrer">
+
+二⭐
+<img src="https://p.sda1.dev/21/390aaf2ecff4e58c2ae6b0fad42e8be1/Image_109729615323924.png" referrerpolicy="no-referrer">
+
