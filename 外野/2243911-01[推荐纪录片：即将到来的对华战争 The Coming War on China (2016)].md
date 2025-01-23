@@ -526,3 +526,13 @@ asbm只是最后一根稻草
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">难道说史密斯专员们知道那年都打不赢，以后就更没有机会了，才像现在这样急着打包细软，好在关键时刻能转进如风
 
+
+*****
+
+####  LilyWhite  
+##### 52#       发表于 2025-1-23 11:34
+
+<blockquote>Viteeee 发表于 2025-1-23 10:41
+等美利坚下一个政权修前朝国史的时候，会不会批注上“华盛顿在这一刻丧失了军事上击败东大的最后一个机会” ...</blockquote>
+也可能是“避免了因为一场毁灭性的军事失败导致国家崩溃”
+

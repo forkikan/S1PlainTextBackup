@@ -188,3 +188,16 @@ rog ally玩博得3，1080p30帧，插帧到90。
 为啥这些缩放工具都强制全屏啊</blockquote>
 magpie不熟，但小黄鸭有窗口化功能。而且这种工具大部分使用人群追求的就是全屏高清，窗口化放大反而是小众需求了
 
+
+*****
+
+####  Ik4ruga  
+##### 74#       发表于 2025-1-23 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251165&amp;ptid=2238299" target="_blank">轩辕无 发表于 2025-1-23 00:57</a>
+
+暗黑2原版有自动补帧都到你显示器最大帧的辅助插件不用这个</blockquote>
+暗黑2的分辨率最多800* 600
+
+我是用这个东西加分辨率
+

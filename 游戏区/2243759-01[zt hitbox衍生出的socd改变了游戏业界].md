@@ -824,3 +824,17 @@ cs大部分枪都没有机瞄，有机瞄的枪如狙或者aug开机瞄一般也
 视频没看是真的，因为一切这种 ...</blockquote>
 你但凡打开记事本按住a然后按d再松开d不松开a，对着输入结果也不会敲出上面这段话
 
+
+*****
+
+####  Tring  
+##### 72#       发表于 2025-1-23 11:35
+
+ 本帖最后由 Tring 于 2025-1-23 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253022&amp;ptid=2243759" target="_blank">Midnight.Coup 发表于 2025-1-23 11:10</a>
+
+你但凡打开记事本按住a然后按d再松开d不松开a，对着输入结果也不会敲出上面这段话 ...</blockquote>
+你知道windows事件里，文本输入用的接口和游戏用的完全不一样么？
+
+退一步吧，先不管你说的对不对。那蔚蓝人家怎么做到的双键按下算后键触发？
+
