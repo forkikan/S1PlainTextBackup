@@ -215,3 +215,15 @@ dark age本来就是收购前就定下的项目
 老實說XGP和全價首 ...</blockquote>
 放到23年也一样，23年我觉得首发登录可以说是好评的也只有一个hifi rush，其他包括卧龙啥的都特显出一股敷衍的制作感。
 
+
+*****
+
+####  Piano-Forest  
+##### 197#       发表于 2025-1-24 02:50
+
+ 本帖最后由 Piano-Forest 于 2025-1-24 02:53 编辑 
+
+官宣5月15日发售
+<img src="https://p.sda1.dev/21/1aae81d511d4b4fbd2a3d95854ffb4c4/1000139745.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/38a51db19fddbec492939e33058ae0c4/1000139746.jpg" referrerpolicy="no-referrer">
+
