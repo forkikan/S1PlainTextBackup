@@ -2231,3 +2231,11 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 
 戏太多了，祥子的团要被夺舍睦NTR走了，soyo你还不来救一下<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gammatau  
+##### 248#       发表于 2025-1-24 02:36
+
+感觉很多人都说水平比mygo下降了很多 假药一下，会不会staff看mygo做那么用心（其实也不是什么惊天地泣鬼神的水平）却不火，于是决定mujica上点简单粗暴的，大红打光，塑造生硬，塞入二重人格等俗套，台词只求回旋镖爆爆爆……
+
