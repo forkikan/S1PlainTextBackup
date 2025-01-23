@@ -136,3 +136,11 @@ ed93_ed.webm_snapshot_02.04.922.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/23/051328p4e2hlp6p6pzfl6f.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 7460#       发表于 2025-1-23 14:31
+
+pc和ps版有啥区别吗，是有简中了
+

@@ -674,3 +674,25 @@ asbm只是最后一根稻草
 
 所以不完全算是独走，哈里斯也等到两年后才打发到🇰🇷去当总督了。
 
+
+*****
+
+####  xihaooo  
+##### 64#       发表于 2025-1-23 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251637&amp;ptid=2243911" target="_blank">aeolus039 发表于 2025-1-23 07:50</a>
+
+军官有多克制也难说，我记得不止一个抱怨过奥黑给他们下封口令不许谈南海 ...</blockquote>
+狗被链子拴住的时候叫的都是最凶的，你把链子放开试试。
+
+*****
+
+####  世界不要这样  
+##### 65#       发表于 2025-1-23 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253299&amp;ptid=2243911" target="_blank">致幻之勾 发表于 2025-1-23 11:44</a>
+确实，16年为什么不打？现在网上说法里面，我觉得那个“因为我们已经提早发现他们航母的位置，本着发现就 ...</blockquote>
+啊？ 96年美军怂了？ 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
