@@ -9553,3 +9553,21 @@ NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
 
 所以索顿现在的舰长是谁？我怎么听人说夏利亚只是军官，舰长另有其人？
 
+
+*****
+
+####  NBGI  
+##### 5315#       发表于 2025-1-23 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255612&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-23 16:08</a>
+
+刚刚看完，你楼已经有很多剧透repo了还需要吗（</blockquote>
+需要啊      
+
+*****
+
+####  刺客ares  
+##### 5316#       发表于 2025-1-23 16:22
+
+PV1的画面是全部都出现在剧场版了吗
+

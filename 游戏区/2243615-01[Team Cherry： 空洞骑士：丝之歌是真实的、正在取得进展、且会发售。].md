@@ -522,3 +522,13 @@ HK应该会稍微好一些，毕竟是沿用公式的续作
 
 说起坑没填，Katana Zero是什么情况，也是看起来制作进度已经有了，然后作者突然就失去兴趣了的样子
 
+
+*****
+
+####  pgain2004  
+##### 58#       发表于 2025-1-23 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254577&amp;ptid=2243615" target="_blank">ybfelix 发表于 2025-1-23 14:22</a>
+说起坑没填，Katana Zero是什么情况，也是看起来制作进度已经有了，然后作者突然就失去兴趣了的样子 ...</blockquote>
+按那个作品的调性，也有可能是作品成功了，赚够了，作者不疯了，就做不下去了
+

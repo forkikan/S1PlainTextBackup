@@ -909,3 +909,33 @@ asbm只是最后一根稻草
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ww-tsl  
+##### 84#       发表于 2025-1-23 16:20
+
+日本的老爷们肯定不介意（让自己手下的P民）给爸爸国当肉盾
+
+日本P民虽然一百个不情愿但也不敢违抗并且无论真假都会做出一副慷慨赴死的样子，最多出工不出力
+
+其实根本不需要考虑霓虹人民的感受，正好相反，一开始不来个弹药管够后面人家不但不会领情还会觉得是你怕了他们才留手。
+
+*****
+
+####  seki_m  
+##### 85#       发表于 2025-1-23 16:22
+
+有没有下载版的？正好在动车上看
+
+
+*****
+
+####  Coworker  
+##### 86#       发表于 2025-1-23 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251284&amp;ptid=2243911" target="_blank">清风伴明月 发表于 2025-1-23 01:39</a>
+
+至今不懂对面为什么怂了</blockquote>
+草台论，快250年的帝国了。
+

@@ -1955,3 +1955,13 @@ QQ图片20250123145947.jpg
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  刑部姬真可爱  
+##### 10542#       发表于 2025-1-23 16:18
+
+这下真是kkr了，祥子初华，你们的笑容去哪里了呢<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+说起来薰千圣这俩都是在演艺方面很有心得的前辈，不知道会不会在动画里也登场指点一下<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
