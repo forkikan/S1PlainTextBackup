@@ -11619,3 +11619,38 @@ TMD 太狗了</blockquote>
 你都有 欧 我少一个 太非了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">福袋出的1宝只能当个挂件 不如狗萌新的19个五星NEW
 
+
+*****
+
+####  alucardcz  
+##### 16180#       发表于 2025-1-22 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249641&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-1-22 20:19</a>
+
+月姬角色才是最猛的数值怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你都有 欧 我少一个 太非了！
+
+*****
+
+####  quanlix  
+##### 16181#       发表于 2025-1-22 23:45
+
+金枪虞上班，这90++怎么来个尿壶+蛇眼的掉落组合，蛋疼
+
+*****
+
+####  qixinno2  
+##### 16182#       发表于 2025-1-22 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67250745&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-22 23:25</a>
+
+你都有 欧 我少一个 太非了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">福袋出的1宝只能当个挂件 不如狗萌新的19个五星NEW
+
+*****
+
+####  poor  
+##### 16183#       发表于 2025-1-23 12:23
+
+这活动谁写的？剧情弱智反派LOWB友方鲨臂，看完一个不想抽，包括卫星<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

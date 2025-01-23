@@ -3073,3 +3073,11 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ml1642879  
+##### 26874#       发表于 2025-1-23 12:19
+
+放那么多票，你卖谁了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

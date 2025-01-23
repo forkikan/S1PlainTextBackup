@@ -9244,3 +9244,19 @@ MAV战的意义不持续向敌人暴露自己位置，这俩MAV的意义是让�
 
 话说我觉得虽然一年战争输了，但是联邦的指挥结构和战争潜力怕不是比正史的85年要强
 
+
+*****
+
+####  刺客ares  
+##### 5282#       发表于 2025-1-23 12:13
+
+<img src="https://img.saraba1st.com/forum/202501/23/121253gdp9ecv9pl1779sm.png" referrerpolicy="no-referrer">
+
+<strong>1737604639847.png</strong> (229.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:12 上传
+
+n站，神秘面具男登场时的PV弹幕轰炸<img src="https://static.saraba1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+

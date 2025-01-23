@@ -1486,3 +1486,13 @@ https://www.bilibili.com/bangumi/play/ss73081
 单纯就女杰书简里的内容而言，结合语境上这句的成分补完以后应该是“你逃离已成[的迦太基]，追逐未成[的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是大喵老师吧
 
+
+*****
+
+####  遠い炎群  
+##### 10502#       发表于 2025-1-23 12:20
+
+<blockquote>UNISONIA 发表于 2025-1-23 12:06
+单纯就女杰书简里的内容而言，结合语境上这句的成分补完以后应该是“你逃离已成[的迦太基]，追逐未成[的 ...</blockquote>
+又在假药金毛
+

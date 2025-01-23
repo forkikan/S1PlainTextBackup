@@ -569,3 +569,27 @@ asbm只是最后一根稻草
 
 当然，把舰队开了过来就存在某一级指挥独走的可能性。弄不好这几年美帝的作战意志越来越差就是还在肃清这一遗毒导致的
 
+
+*****
+
+####  masakaha  
+##### 56#       发表于 2025-1-23 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251284&amp;ptid=2243911" target="_blank">清风伴明月 发表于 2025-1-23 01:39</a>
+至今不懂对面为什么怂了</blockquote>
+真压上来就是复刻萨尔浒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  森田美位子  
+##### 57#       发表于 2025-1-23 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252154&amp;ptid=2243911" target="_blank">虎式形态出战 发表于 2025-1-23 09:37</a>
+
+我怎么记得这片子好像还是李世默搞出来的
+
+一根甘蔗两头吃</blockquote>
+我记得片头就有他
+
