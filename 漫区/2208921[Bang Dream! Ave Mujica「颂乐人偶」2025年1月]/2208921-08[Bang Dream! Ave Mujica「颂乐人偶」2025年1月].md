@@ -2301,3 +2301,34 @@ APP点头像应该也有 塞抹布 选项
 
 mortis真就一集时髦值啊
 
+
+*****
+
+####  AveMujica  
+##### 10578#         楼主| 发表于 2025-1-23 18:19
+
+举报给版主了。因为进楼就是剧透，我现在只能通过拉黑让他没法在专楼再回贴
+
+不好意思，我以为「管理」里也有删除的
+
+<img src="https://img.saraba1st.com/forum/202501/23/181840rqb666c6qe6ctt4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 18:18 上传
+
+
+*****
+
+####  木板春香  
+##### 10579#       发表于 2025-1-23 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256786&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-1-23 18:19</a>
+
+举报给版主了。因为进楼就是剧透，我现在只能通过拉黑让他没法在专楼再回贴
+
+不好意思，我以为「管理」里也 ...</blockquote>
+拉黑只是你这个号看不到，不会影响楼层实际显示的
+

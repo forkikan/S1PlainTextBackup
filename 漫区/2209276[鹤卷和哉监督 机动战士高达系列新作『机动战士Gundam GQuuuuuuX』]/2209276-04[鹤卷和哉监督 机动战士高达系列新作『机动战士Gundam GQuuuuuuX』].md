@@ -9762,3 +9762,42 @@ PV1的画面是全部都出现在剧场版了吗
 同时麻球上学查红高达资料（夏亚还有wiki词条也是蛮好笑的，上面也写了他是nt好像，可能这个时间线nt这个概 ...</blockquote>
 纯脑控也太强了，0085已经有这种技术了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 5334#       发表于 2025-1-23 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256697&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-23 18:10</a>
+
+纯脑控也太强了，0085已经有这种技术了吗</blockquote>
+早了11年，说不定在所罗门冲击的时候从“那一边”漏了点什么进来。
+
+*****
+
+####  中野梓  
+##### 5335#       发表于 2025-1-23 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256781&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-23 18:19</a>
+
+早了11年，说不定在所罗门冲击的时候从“那一边”漏了点什么进来。</blockquote>
+这次技术力发展远快于原来的元祖世界，可能关键就是沙仑的玫瑰
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 5336#       发表于 2025-1-23 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256697&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-23 18:10</a>
+
+纯脑控也太强了，0085已经有这种技术了吗</blockquote>
+也不是全程不用手，但是麻球第一次上gqux是没怎么开的，吓得蜷在椅子上都可以自动做各种躲避动作…gqux开了塞克谬会从座位左右上方伸出来两个类似于椅子扶手形状的操纵杆，前端是手掌形的，感觉手放上面意识连上去就行了，黑拳那场好像根本没给麻球怎么开的手部画面
+
+*****
+
+####  卑弥呼yamato  
+##### 5337#       发表于 2025-1-23 18:24
+
+麻球这样看起来不是什么哈曼，就是卡缪+朱总吧（
+

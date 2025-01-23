@@ -3203,3 +3203,11 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 [https://bang-dream.com/discographies/3889](https://bang-dream.com/discographies/3889)
 
+
+*****
+
+####  Ferrari  
+##### 26884#       发表于 2025-1-23 18:24
+
+凡是看到售票平台是大麦的，直接骂一句司马完事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">公通黄牛猪狗不如的东西
+
