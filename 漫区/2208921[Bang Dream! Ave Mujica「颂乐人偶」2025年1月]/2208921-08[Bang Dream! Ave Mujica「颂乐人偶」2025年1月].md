@@ -1519,3 +1519,33 @@ https://www.bilibili.com/bangumi/play/ss73081
 你邦歌曲B榜历史最好记录是多少？杀吻第一周空降二十几名在你邦算什么水平？ ...</blockquote>
 萝，ppp，ras，afterglow都有空降前十的歌，最高的应该是safe and sound空降第五，不过都是很久以前的事情了(悲
 
+
+*****
+
+####  御幸一也  
+##### 10505#       发表于 2025-1-23 12:46
+
+八森優香
+
+■BanG Dream! Ave Mujica
+
+アニメーションキャラクターデザイン(茶之原拓也、Shin Josephと共同)
+
+怎麼是動畫人設畫的()
+
+<img src="https://img.saraba1st.com/forum/202501/23/124439k9xzin7hxje69nrc.jpg" referrerpolicy="no-referrer">
+
+<strong>c20003f8429c8ebcfde8e5604fc5b39d.jpg</strong> (895.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/124430n7uuqsi4gjyp7suw.jpg" referrerpolicy="no-referrer">
+
+<strong>865ed46c0d950ff22ed3cb518d3ca28d.jpg</strong> (195.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:44 上传
+
