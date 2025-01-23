@@ -1965,3 +1965,26 @@ QQ图片20250123145947.jpg
 
 说起来薰千圣这俩都是在演艺方面很有心得的前辈，不知道会不会在动画里也登场指点一下<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 10543#       发表于 2025-1-23 16:31
+
+这个表情我似乎只在章鱼哥身上看到过，太刺激了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 10544#       发表于 2025-1-23 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254685&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-23 14:34</a>
+祥父吃单亲家庭低保和存款呗，祥子来之前祥父就在酗酒了，或者你觉得祥子一个初三生靠业余时间打工就能挣 ...</blockquote>
+反正就很，诡异，牢爹的存款应该不少，丰川家心挺善的居然没有净身出户。
+
+就是完全没工作的设计太诡异了，也不清楚一起住的时候财政在谁手上，不然算下生活费什么的初三盘子擦冒烟都不够的，何况是送点报纸，估计是也不想让人太在意这个，设计到了母鸡卡直接已经开始赚到足额的钱了吧。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

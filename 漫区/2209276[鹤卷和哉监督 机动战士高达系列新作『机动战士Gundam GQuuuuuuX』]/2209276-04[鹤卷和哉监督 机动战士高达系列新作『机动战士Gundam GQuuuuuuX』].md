@@ -9571,3 +9571,54 @@ NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
 
 PV1的画面是全部都出现在剧场版了吗
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 5317#       发表于 2025-1-23 16:25
+
+等等我写的很长流水账，几乎都是剧透，需要反白吗
+
+*****
+
+####  PascalLefèvre  
+##### 5318#       发表于 2025-1-23 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255779&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-23 16:25</a>
+等等我写的很长流水账，几乎都是剧透，需要反白吗</blockquote>
+不需要的，本来就是剧透讨论楼
+
+*****
+
+####  oi99o  
+##### 5319#       发表于 2025-1-23 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255633&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-23 16:10</a>
+
+所以索顿现在的舰长是谁？我怎么听人说夏利亚只是军官，舰长另有其人？</blockquote>
+
+场刊都写出来了，左一是舰长
+
+<img src="https://img.saraba1st.com/forum/202501/23/162712tqicztaeaazjw00k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (535.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 16:27 上传
+
+*****
+
+####  oi99o  
+##### 5320#       发表于 2025-1-23 16:31
+
+特殊部队进驻战舰，部队指挥官戏份比较多，但舰长另有其人，通常也听命于指挥官。这也是你高挺常见的配置了，而且通常是敌对方更喜欢采用这种配置设定。
+
+
+*****
+
+####  猪突猛进R  
+##### 5321#       发表于 2025-1-23 16:33
+
+这舰长一眼小P孩的感觉，还不如右边那个大叔看上去靠谱。
+
