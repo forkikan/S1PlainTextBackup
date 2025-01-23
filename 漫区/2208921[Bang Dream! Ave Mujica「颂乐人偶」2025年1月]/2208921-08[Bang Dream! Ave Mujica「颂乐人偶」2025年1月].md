@@ -12016,3 +12016,64 @@ pareo跑路那段我忘了，masking受伤可是直接让layer硬是wow了半天
 为什么祥子穿着演出服出去，结果穿着常服的初华来给祥子送伞，祥子出去的时候初华穿的还是演出服。 ...</blockquote>
 排练结束换回来,你看后几个镜头
 
+
+*****
+
+####  oyss  
+##### 11519#       发表于 2025-1-24 04:06
+
+<img src="https://img.saraba1st.com/forum/202501/24/040619shz5k0iw06nhk6jf.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh_vJv_bMAAIVRt.jpg</strong> (101.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 04:06 上传
+
+*****
+
+####  凉良  
+##### 11520#       发表于 2025-1-24 04:07
+
+海玲真的会写么  我很怀疑  要奈不也没怎么写
+
+
+*****
+
+####  玖羽  
+##### 11521#       发表于 2025-1-24 04:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262579&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 03:32</a>
+
+但木头和祥子的矛盾肯定是不能一直持续到结尾的，还有初华和海玲要写呢，所以要不就是在黑色生日让木头和祥 ...</blockquote>
+这一话其实还是留了一个扣子，Mortis对祥子说“就你这样，睦<strong>也许</strong>再也回不来了”（二度と戻ってこないかもね）
+
+这里已经明示了，睦回来的前提是祥子必须在人物弧光上更进一步
+
+但是这是第四话，不是第十话，睦的问题不太可能一直拖到临近结尾才解决，如果中间就解决了，结尾之前的大爆炸怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+（进一步说，现在就拆团了，再炸还能怎么比这个更炸）
+
+暂时搁置的话，我想象不出要怎么操作
+
+看那个对谈，工作人员说第四话很不妙，声优表示后面还有更不妙的（[https://www.bilibili.com/video/BV1nDwBegEdN/](https://www.bilibili.com/video/BV1nDwBegEdN/)）
+
+而且听语气，好像是看过后面的之后，第四话相比起来都不算什么了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  天空塔书记官  
+##### 11522#       发表于 2025-1-24 04:13
+
+猫猫是因为其他成员的部分排的很满所以有些工具人化，而A团这边，作为调剂，每个人的个人剧情肯定还是要写的，不可能让剧情一直处于紧绷的状态，而且海玲绑定立希，也需要适当推动迷子那边的行动，所以肯定是有一定戏份的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KokutouMikiya  
+##### 11523#       发表于 2025-1-24 04:16
+
+鸡演到现在，完全没有“代入视角”或“情感支点”（如名义主角的爱音和实际主角的灯），这四集都是纯纯的第三人称视角，着墨最多的睦也是一个外部的声音在（为她）叙事，就算是心理描写，也用上了剧场、意识流等手法，几乎没有主观镜头，还缺乏大量的基础信息和行动目标（祥到底想借鸡团实现什么？），制作组没有选择以祥子的主视角来写一个大女主的复仇（？）故事这种最稳当的路径，而是在推动剧情的过程中刻意留下非常多的谜团，我不好说到底是什么用意。
+
