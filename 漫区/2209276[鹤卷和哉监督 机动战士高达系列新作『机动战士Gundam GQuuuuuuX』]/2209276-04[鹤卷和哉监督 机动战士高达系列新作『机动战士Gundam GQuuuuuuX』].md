@@ -9924,3 +9924,21 @@ PV1的画面是全部都出现在剧场版了吗
 早了11年，说不定在所罗门冲击的时候从“那一边”漏了点什么进来。</blockquote>
 原来是黑科技吗<img src="https://static.saraba1st.com/image/smiley/carton2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lawliet.L  
+##### 5350#       发表于 2025-1-23 19:10
+
+看微博说，电影大陆准备引进，不知道来得及吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 5351#       发表于 2025-1-23 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257242&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-23 19:07</a>
+ 原来是黑科技吗</blockquote>
+甚至比那更早
+正式在79年是没有可以塞到MS驾驶舱周围的塞可缪材料的
+

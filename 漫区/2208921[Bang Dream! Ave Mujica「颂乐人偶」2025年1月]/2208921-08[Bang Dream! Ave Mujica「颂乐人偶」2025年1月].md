@@ -2554,3 +2554,33 @@ mortis真就一集时髦值啊
 
 <img src="https://p.sda1.dev/21/a63bffe465c719a7fd75ab073cf95fe1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 10606#         楼主| 发表于 2025-1-23 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257196&amp;ptid=2208921" target="_blank">miomio123 发表于 2025-1-23 19:02</a>
+
+南瓜哥的话只能信一半，豚豚可以离席了历历在目
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那是10th_Mystery
+
+*****
+
+####  AveMujica  
+##### 10607#         楼主| 发表于 2025-1-23 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257203&amp;ptid=2208921" target="_blank">客服少女小祥 发表于 2025-1-23 19:03</a>
+
+第四集生放送在哪看啊，是B站蓝原的那个直播间吗还是live2那里？有没有好心人给我指路一下，谢谢 ...</blockquote>
+[https://web4.lovelivegundam.top/](https://web4.lovelivegundam.top/)
+
+*****
+
+####  一心而用  
+##### 10608#       发表于 2025-1-23 19:11
+
+<img src="https://p.sda1.dev/21/cf120b2781882ceb915af1f3a51d5dda/image.jpg" referrerpolicy="no-referrer">
+
