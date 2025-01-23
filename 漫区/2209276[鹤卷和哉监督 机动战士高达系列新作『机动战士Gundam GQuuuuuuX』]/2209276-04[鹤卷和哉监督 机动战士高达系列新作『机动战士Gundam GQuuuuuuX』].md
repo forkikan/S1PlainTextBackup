@@ -9212,3 +9212,14 @@ MAV战的意义不持续向敌人暴露自己位置，这俩MAV的意义是让�
 
 其实有一个问题就是关于gqx的配色问题，吉翁那边战后的自研机体居然涂的是联邦的白红蓝，场外看高达主角机肯定得是白红蓝，但是场内不知道会不会解释
 
+
+*****
+
+####  鱼雷鲨  
+##### 5279#       发表于 2025-1-23 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253028&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-23 11:11</a>
+
+这个倒是不至于，不过联邦后续机设计者可能真是骡子。</blockquote>
+还有卡疯子的爹呢
+
