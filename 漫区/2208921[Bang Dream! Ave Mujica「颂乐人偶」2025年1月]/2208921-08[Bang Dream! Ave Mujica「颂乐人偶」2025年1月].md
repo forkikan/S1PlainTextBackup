@@ -5547,3 +5547,379 @@ mujica这边老登整什么史上最狂，op搞成恐怖片，一个劲上杠杆
 
 就是是叙诡也洗不了这集的烂，等于是没能力写好，为了铺垫而铺垫
 
+
+*****
+
+####  lolisk  
+##### 10938#       发表于 2025-1-23 23:16
+
+从之后的展开越來越难以预测的角度上，我觉得这集还是值得评价的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 10939#       发表于 2025-1-23 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一年拖着不播中途改剧本的可信度增加了吗
+
+*****
+
+####  高妹控  
+##### 10940#       发表于 2025-1-23 23:17
+
+小睦怎么突然就变乐队丁真了，这岂止是人格转换，连记忆分区都切换了，就这还在那复读乐队是命运共同体呢，她说这话时难道不清楚自己演奏技能没装上么？太弱智了，第四话只能给不及格，看后面怎么圆回来吧
+
+还有小睦占的篇幅是不是太多了，剩下的话数感觉不够其她人分了，这是要牺牲初华海玲的戏份么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zuckmydik  
+##### 10941#       发表于 2025-1-23 23:17
+
+不过看样子mortis和白睦最后会包饺子变灰睦了
+
+真要是心机又深又会弹吉他的 那才是有取死之道 不纯粹睦头上位吗
+
+*****
+
+####  山ノ内花音  
+##### 10942#       发表于 2025-1-23 23:17
+
+还是等第九集再看吧 实在是看不懂
+
+*****
+
+####  厚乳果珍爽  
+##### 10943#       发表于 2025-1-23 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想到了洗地的方式啊，睦觉得乐队带给自己的只有伤害，但是又不想伤害祥子，于是伪装了一个人格来拆乐队。
+
+*****
+
+####  operatbig  
+##### 10944#       发表于 2025-1-23 23:17
+
+感觉下一话就有喵梦独自上节目涨人气后觉得自己炸团是好棋的画面。
+
+*****
+
+####  天空塔书记官  
+##### 10945#       发表于 2025-1-23 23:17
+
+那是往好的那一面还是坏的那一面改
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mono  
+##### 10946#       发表于 2025-1-23 23:17
+
+感觉mortis反对解散是演的
+
+报复祥子最简单的方式就是毁掉她仅剩最重视的东西
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  YF31  
+##### 10947#       发表于 2025-1-23 23:17
+
+妈的这集我烂片雷达敲得跟他妈深弹砸头顶了一样。
+
+这要是成了第二个水母我根本接受不了。
+
+*****
+
+####  hol_effect  
+##### 10948#       发表于 2025-1-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259862&amp;ptid=2208921" target="_blank">植树淡季 发表于 2025-1-23 23:14</a>
+
+能救这集只有一个办法，那就是整集都是演的，为的就是下一集的演出做一个叙诡。
+
+为什么这么说呢，首先这集 ...</blockquote>
+是的，我现在感觉至少从祥睦海边就是在演了，真正祥子叫小莫出去说了什么现在还不知道，动画如果真加进来一个精神病人很难收场，前面和Cpart其实是连续的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdeplee  
+##### 10949#       发表于 2025-1-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259862&amp;ptid=2208921" target="_blank">植树淡季 发表于 2025-1-23 23:14</a>
+
+能救这集只有一个办法，那就是整集都是演的，为的就是下一集的演出做一个叙诡。
+
+为什么这么说呢，首先这集 ...</blockquote>
+我不是很相信编剧能有这种功力
+
+*****
+
+####  盐盐盐盐盐  
+##### 10950#       发表于 2025-1-23 23:18
+
+太乐了这集，mo每句话都在戳其他人痛点，除了喵海是真的没啥怕的，喵梦甚至直接硬刚mo，初华和祥子就被打得惨败
+
+大伙单飞暂停团活感觉喵梦会很快在演艺圈碰壁，毕竟给她的人设就是赶不上天才，海铃和初华估计没啥影响，就不知道mo怎么办了，这么大的打击睦更不会出来了
+
+其实大方向也没什么超出预料的，肯定炸一次再让祥子拼回去，不然怎么当核心，灯半集都能拉回全队，这还有8到9集，祥子再纠结也能把这过程走完了
+
+*****
+
+####  novalli  
+##### 10951#       发表于 2025-1-23 23:18
+
+目前的情况就是所有人都不开心——包括点燃一切的莫提斯。
+莫提斯根本算不上一个独立的人格，大多数话都是重复别人的话，或者干脆就是模仿，尤其是模仿祥子。讨厌祥子却又用祥子说过的话，什么相爱相杀。
+最后莫提斯和初华的合影封面是什么情况？是mujica还是sumimi还是其他形式？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ARS_Iapetos  
+##### 10952#       发表于 2025-1-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258901&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-23 22:30</a>
+
+初华目前的表现像个弱智(直球)</blockquote>
+1 感觉被刻画的有点太傻白甜，也或许是我们观众上帝视角看剧中人会这样，但这和前面的形象实在有点合不上<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 10953#       发表于 2025-1-23 23:18
+
+说实话，后半部分的展开有点抽象了，虽然看起来是个恐怖片但是我有点想笑
+
+以及莫女士也就算了，他们解散乐队的这个每个人逻辑我能明白，但是她们各自说出来又感觉有点抽象
+
+还有虽然什么都做好了但关键时刻不会弹吉他导致乐队爆炸什么的
+
+双重人格在剧情展开观感上真是把双刃剑，所以还是关注后续展开如何比较重要
+
+另外这集有一个关键信息就是莫女士另外3人都单独聊过了，我觉得聊的内容挺关键的，有她们各自的诉求在里面
+
+看完想了想，解散属于是板上钉钉的事，不管原因是什么，这集肯定是得解散的
+
+解散后怎么组回来还有9集可以拍。如果重点内容都在后面重组的部分，且每个人真正的想法在后面能成为伏笔的话，还是能有精彩的故事看的
+
+但是这集真的是太抽象了，真的。
+
+*****
+
+####  风道北来  
+##### 10954#       发表于 2025-1-23 23:19
+
+之前大家都说C团一次性收集了五个神人是中大奖了
+
+按这个节奏鸡团是要收集五个精神病？大祥老师慧眼识鬼？
+
+没怎么联系的幼驯染，一直陪在身边的幼驯染，小有名气的流浪贝斯手，网上挑的过气美妆主播。四个人四种来源结果是四颗暗雷。我看这编剧应该是天字第一号祥黑，欠拷打了
+
+*****
+
+####  cscbzcbz  
+##### 10955#       发表于 2025-1-23 23:19
+
+不要慌，还有9集，还有回旋的余地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuckmydik  
+##### 10956#       发表于 2025-1-23 23:19
+
+<blockquote>hol_effect 发表于 2025-1-23 23:18
+是的，我现在感觉至少从祥睦海边就是在演了，真正祥子叫小莫出去说了什么现在还不知道，动画如果真加进来 ...</blockquote>
+一股青龙圣者寒蝉卒的八奇领域味🤪真要是最后作画失误/第四集就是水平烂要破防更狠
+
+*****
+
+####  MASKA-1  
+##### 10957#       发表于 2025-1-23 23:19
+
+唉，mortis但凡能支棱一集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 10958#       发表于 2025-1-23 23:19
+
+<img src="https://img.saraba1st.com/forum/202501/23/231941r9bwkz7tvpwitbfz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250123231903.png</strong> (720.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 23:19 上传
+
+大喵老师借坡下驴炸团说
+
+*****
+
+####  零壹贰叁  
+##### 10959#       发表于 2025-1-23 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都啥啊
+虽然我看的挺乐的
+莫小姐原来是熊孩子吗，而且你原来不会吉他啊
+
+*****
+
+####  海底铁锚  
+##### 10960#       发表于 2025-1-23 23:19
+
+mortis就是木原那由多，只能装载其他“木原”的思维模块进行思考啊。
+
+
+*****
+
+####  稀勢のささ  
+##### 10961#       发表于 2025-1-23 23:20
+
+大M老师各方面水平并没有比睦高到哪儿去
+
+感觉纯粹是睦为了喷几句大祥演出来的，结果胡诌了几句给中二大祥带歪认定是双重人格了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 10962#       发表于 2025-1-23 23:20
+
+看了一下c part，舞台下没有观众，估计不是散团而是活动中止。
+
+*****
+
+####  remedios010000  
+##### 10963#       发表于 2025-1-23 23:20
+
+我们的阿贝母鸡卡(哽咽)会变成什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  PDQ4  
+##### 10964#       发表于 2025-1-23 23:20
+
+结尾五人婚了我就能用豚豚之心原谅一切<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 10965#       发表于 2025-1-23 23:20
+
+那要是祥子也变精神病了咋办？
+
+疯人国和疯人井的故事再演
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gaayas  
+##### 10966#       发表于 2025-1-23 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259801&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-23 23:11</a>
+祥子是会把睦的事情告诉其他人的性格吗。为什么她会和大家说睦是双重人格？按照祥子的性格不应该是憋着不说 ...</blockquote>
+最难崩的就是大伙听到双重人格毫无一丝关心，太温暖了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  operatbig  
+##### 10967#       发表于 2025-1-23 23:21
+
+<blockquote>半年 发表于 2025-1-23 23:19
+大喵老师借坡下驴炸团说</blockquote>
+我觉得她就是想炸，上了梦寐而求的节目结果成了小透明一脸不爽，估计跟家里通完电话后就打算跑路了。
+
+*****
+
+####  hol_effect  
+##### 10968#       发表于 2025-1-23 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260008&amp;ptid=2208921" target="_blank">zuckmydik 发表于 2025-1-23 23:19</a>
+
+一股青龙圣者寒蝉卒的八奇领域味🤪真要是最后作画失误/第四集就是水平烂要破防更狠 ...</blockquote>
+这已经不是作画失误的问题了，而是这五个人我没一个认识的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  utotqe  
+##### 10969#       发表于 2025-1-23 23:22
+
+Mortis这个样子实在是太暗黑kkr了，不执着于乐队、说着天真无稽的话把人心里最深的秘密挖出来、看起来像心机深沉但其实真的什么都没想、像小孩子一样轻信人的言语，区别是kkr真的心怀天下，Mortis开朗的外壳只是模仿美奈美/mana/祥子，只负责爆不负责带来笑容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说Mortis不会吉他这个设定很方便地把“需要睦的音乐”变成了实际的硬性要求，下一集睦大概就能上号救场了。但是这种出于现实的“需要”充其量只是把睦叫回来继续受苦，离通过音乐解决角色的问题反而更远了。
+
+祥子甚至比上一集更加软糯，不仅不会吵架，还无力对抗小团体孤立，中间把Mortis拖出去问的竟然是睦明明最重视吉他，虽然非常不团魂（喵：大小姐过家家是这样的）但实在是太祥睦了，更不提祥子是第一个发现双重人格这个（在剧里看来挺离谱的）状况<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+话说连小祥都惊讶于Mortis从小就在睦身边，不知道是不知道她的存在还是小时候出现过但没在意。上集问出的执着于乐队的原因，这集也借Mortis之口回收了，只是居然还是一辈子在一起（喵：大小姐过家家是这样的）所以为什么非得是这五个人
+
+喵老师还是那么急功近利，但是这集给了个家人盾，要是Mortis知道家人的事情绝对会在“演出是大家的心血”那段正论时爆一句你只是想要家人来看而已吧
+
+海铃完全就还是看出解散迹象不加干涉的冷血雇佣兵，可能上一集说出小祥没有看着队员的时候，就等着这乐队崩盘了。另外立希的笔记不出所料非常工整<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+最恐怖的还是go10的世外高人初华竟然变成了这个木头样子，我甚至不知道她是为了监禁小祥演的还是真的，但是关于mana的发言给了sumimi一点安定感，好评
+
+这集的不安氛围甚至更甚于第二集，只是被吓的主角换成了小祥，不论是前半大家对开朗睦的熟视无睹还是福冈码头Mortis的真声暴露和“叫我了吗”都充满了异质感，只是原形毕露得太快小boss感过强，期待莫老师沉淀归来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuckmydik  
+##### 10970#       发表于 2025-1-23 23:23
+
+<blockquote>零壹贰叁 发表于 2025-1-23 23:19
+这都啥啊
+
+虽然我看的挺乐的
+
+莫小姐原来是熊孩子吗，而且你原来不会吉他啊 ...</blockquote>
+真要会吉他 全面比睦头优势后面还怎么包饺子？
+
+这个人格故事最后不就只有死了吗。
+
+啊，所以说我也编个假药，这其实是meta动画，mortis正是预见到了制作组和观众的想法才主动封印自己的吉他能力，当最后灰睦的融合素材🥰
+
+*****
+
+####  Yugao  
+##### 10971#       发表于 2025-1-23 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是编辑，下集我直接把粟米米也爆了，满地图精神病人乱逛
+
+*****
+
+####  天空塔书记官  
+##### 10972#       发表于 2025-1-23 23:23
+
+不过下一集应该就会正常一些了，因为没那么多集数给制作组搞耍
+
+等下周吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 10973#       发表于 2025-1-23 23:23
+
+话说这四话下来，大祥老师也是离前半部分渲染的杀伐果决形象越来越远了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

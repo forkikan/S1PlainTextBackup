@@ -1227,3 +1227,119 @@ B站能不能别搞什么变色字体了 真的土
 
 不过C part里其他几个人都不露出眼睛，让我产生了“实际上是要与第五集联动来看的谜题”的想法，所以先给个-1
 
+
+*****
+
+####  本间日阳  
+##### 142#       发表于 2025-1-23 23:16
+
++2，看爽了就是好片。
+
+*****
+
+####  WoLodEstt  
+##### 143#       发表于 2025-1-23 23:16
+
++1
+
+这一集莫女士演出确实给我有种在看海猫的池沼浮夸风了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很快就又一转软糯小祥加破防屁孩小莫，原来我是在看搞笑动画<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LinkerWeg  
+##### 144#       发表于 2025-1-23 23:17
+
+-1，点错到+0上了。混沌小房间里，祥子被按到挂机位的观感还正常点，至于喵梦和Mortis<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樽——見  
+##### 145#       发表于 2025-1-23 23:17
+
+OPED搞下特效字体就够了 正片还来变色字体 生怕别人不知道这里是重点一样
+
+负责的人审美是负数吗
+
+*****
+
+####  ayachi  
+##### 146#       发表于 2025-1-23 23:17
+
+看了眼前三集的好评率，就像燃尽前的线香花火一样
+
+*****
+
+####  零壹贰叁  
+##### 147#       发表于 2025-1-23 23:17
+
++0 虽然这集我个人看的挺乐
+但是有种火车要跑脱轨的感觉
+
+*****
+
+####  赛文欧德  
+##### 148#       发表于 2025-1-23 23:19
+
++2把，乐子人看着很乐，但是感觉和音乐啊乐队啊没啥关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱小路三礼  
+##### 149#       发表于 2025-1-23 23:19
+
+-1我看不懂她们在干什么
+
+—— 來自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  童贞阿龙  
+##### 150#       发表于 2025-1-23 23:19
+
+0,不会弹吉他被猜到导致观感有点无聊，解散的方式过于突兀了，角色的观感也不好，如果后面没有什么叙事诡计，这集可以-2了
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  阿酷怕苦  
+##### 151#       发表于 2025-1-23 23:20
+
+<img src="https://img.saraba1st.com/forum/202501/23/231921qvj5fx555j6mdwan.png" referrerpolicy="no-referrer">
+
+<strong>搜狗高速浏览器截图20250123231835.png</strong> (53.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 23:19 上传
+
+从杂志封面来看，黑睦应该后续还挺正常，那这一段应该就是纯演的，估计就是为了毁团。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  废都刽子手  
+##### 152#       发表于 2025-1-23 23:20
+
++2 好看，爱看，不看爆的我看个屁原创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JackTitor  
+##### 153#       发表于 2025-1-23 23:21
+
+-2了，双重人格对一个作品真的是很烂的借口
+
+*****
+
+####  Prairial  
+##### 154#       发表于 2025-1-23 23:22
+
+本来应该-2的，但考虑到牢墨有不逊于当年soyo的搞笑艺人气质，姑且-1
+
+要说剧本一眼望到头也不对，应该说由于人物行为逻辑和之前差别太大，很难再基于人物动机做剧情上的推演了，不得不说少了很多乐趣
+
+说起来这倒是很有美剧范，我印象里有些美剧就是每一季开头有些角色就像变了个人似的疯狂搞事制造爆点，后面再慢慢收
+
