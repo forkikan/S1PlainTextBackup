@@ -2723,3 +2723,46 @@ Ave Mujica是祥子活下去的手段
 
 （Ave Mujica）有很多不同调性的乐曲，但世界观上都带有一些黑暗和悲观的部分。总觉得最近社会上这种感觉会比以前更明显，是因为这类音乐能激起某些共鸣吧。成员们也讨论过“未必只有美丽的事物才会闪耀”这个话题，在漆黑之处也会有光芒。所以虽然不算是在黑暗中摸索光明，但我们有自信让各位共犯（代指Ave Mujica的粉丝们）们都能沉浸在准备好的世界观里！
 
+
+*****
+
+####  厚乳果珍爽  
+##### 10613#       发表于 2025-1-23 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257240&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-23 19:07</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">这么说真有可能，所谓的退队的指初华退sumimi
+
+*****
+
+####  哈曼的YY  
+##### 10614#       发表于 2025-1-23 20:01
+
+黄金精神
+
+漆黑意志
+
+*****
+
+####  Wondering  
+##### 10615#       发表于 2025-1-23 20:02
+
+这种谜语人才对味嘛，太过直球那不如去贴吧发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 10616#       发表于 2025-1-23 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个直播地址啊！好久没看直播了！
+
+
+*****
+
+####  哈曼的YY  
+##### 10617#       发表于 2025-1-23 20:06
+
+<blockquote>——您对自己选择踏上苦难之路的祥子有共鸣吗？
+
+该说是不得不共鸣呢，还不如说我觉得她只有这条路可选。但作为我而言，想要告诉祥子的是：身边的人会（比你想的）更愿意帮助你这点。虽然这只是我个人的理解，祥子应该是想在CRYCHIC还是幸福的场所的时候将它终结的吧？因为那是自己非常珍视的美丽回忆，不希望现在的自己去践踏玷污了它……搞不好她也有过这种想法。因为祥子是如此珍惜（CRYCHIC），所以也说不出口父亲的变故，我是带着这种想法去演绎的。</blockquote>
+高尾这个解读是不是十分的日本人啊
+
