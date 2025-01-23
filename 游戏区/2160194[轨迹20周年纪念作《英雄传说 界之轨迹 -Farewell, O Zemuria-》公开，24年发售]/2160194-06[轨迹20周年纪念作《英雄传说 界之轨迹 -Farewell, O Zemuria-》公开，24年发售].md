@@ -268,3 +268,20 @@ a1b8e45c1038534329662709d513b07ecb808884.jpg
 
 手感还是好的可是法老控也太喜欢给L3R3设置功能了，啥时候能mod解决就能开开心心用带背键的国产手柄了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Onelooker  
+##### 7473#       发表于 2025-1-23 23:43
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/rar.gif" referrerpolicy="no-referrer">
+
+FOZ.Crack.rar
+(1.51 MB, 下载次数: 0)
+
+2025-1-23 23:42 上传
+
+点击文件名下载附件
+
+xbox手柄补丁，根目录覆盖
+

@@ -1284,3 +1284,13 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 以前牢米有枪有脑子，你有刀，他觉得打你自己也被开几个口子溅自己一身血恶心，现在你也有枪了，对面变成有枪没脑子身体还很差的疯子，而且越来越疯，谁知道会发生什么事……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  partier  
+##### 116#       发表于 2025-1-23 23:45
+
+我也觉得现在最危险，美国自认为世界第一天下无敌还好，发现已经不是昭昭天命了才危险，哪怕不利己也要自爆脱你下水，我丝毫不怀疑宗教徒会这么做<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
