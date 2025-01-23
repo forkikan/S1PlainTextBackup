@@ -9751,3 +9751,14 @@ PV1的画面是全部都出现在剧场版了吗
 
 说起来那个二人组战术是不是在原版Z高达也出现过，就是杰利特和他基友，在月球上两台马拉塞玩时间差攻击。
 
+
+*****
+
+####  Sliurus  
+##### 5333#       发表于 2025-1-23 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256251&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-23 17:24</a>
+
+同时麻球上学查红高达资料（夏亚还有wiki词条也是蛮好笑的，上面也写了他是nt好像，可能这个时间线nt这个概 ...</blockquote>
+纯脑控也太强了，0085已经有这种技术了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
