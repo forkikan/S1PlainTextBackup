@@ -2102,3 +2102,23 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 
 在整体剧情中逻辑合不合理等全出完再评价
 
+
+*****
+
+####  scorbian  
+##### 240#       发表于 2025-1-24 01:50
+
++100，就爱看这个，多来点，最好后面9集都放这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  醋栗  
+##### 241#       发表于 2025-1-24 01:55
+
+希望ave mujica的大家不要破坏mygo的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+我还是希望ave mujica在这一集之后奋起直上，但如果ave mujica最终翻车翻到连mygo五人的人设都有所破坏的话，我也只能人格分裂出一个没看过mujica，只看过mygo的自己了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">就像不会弹吉他的mortis一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

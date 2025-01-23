@@ -10472,3 +10472,14 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 那倒是，做都知道在做，尤其是khara高达出来之后
 
+
+*****
+
+####  王留美  
+##### 5404#       发表于 2025-1-24 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261766&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-24 01:24</a>
+ 那倒是，做都知道在做，尤其是khara高达出来之后</blockquote>
+还是25-26呢
+我看还有得等
+
