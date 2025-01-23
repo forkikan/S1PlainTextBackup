@@ -12186,3 +12186,49 @@ mujica加了很多现实内容 但是很多地方又还是动画 搞得搞不清
 对了，阿B的红色字幕到底是什么啊，翻译人员也像mortis一样自己加戏？还是真的因为国内比较火，分析的气氛 ...</blockquote>
 这下之前在日本不火变成日本人原罪了
 
+
+*****
+
+####  huxiaopao163  
+##### 11534#       发表于 2025-1-24 04:40
+
+对了，阿B的红色字幕到底是什么啊，翻译人员也像mortis一样自己加戏？还是真的因为国内比较火，分析的气氛比较热烈，所以日方专门透了点东西？
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  KokutouMikiya  
+##### 11535#       发表于 2025-1-24 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262713&amp;ptid=2208921" target="_blank">lumennaturale 发表于 2025-1-24 04:30</a>
+因为复仇是不可能的。mygo选择在痛苦迷茫中前进，avemujica就是在痛苦中陷入逃避与疯狂。这两者虽然内容 ...</blockquote>
+所以要么是故事“必定需要这样的叙事”，或者只是搞噱头闹麻了，希望他们有这个野心和能力吧。
+
+*****
+
+####  凉良  
+##### 11536#       发表于 2025-1-24 04:47
+
+感觉mujica里有的吵架的台词太过刻意了。
+
+第三集先展示喵梦努力练鼓 然后祥子喷喵梦需要练习
+
+第四集先告诉你祥子经常通宵工作 然后喵梦喷祥子不考虑不眠不休的工作人员。  
+
+*****
+
+####  JustW  
+##### 11537#       发表于 2025-1-24 05:16
+
+<blockquote>huxiaopao163 发表于 2025-1-24 04:40
+对了，阿B的红色字幕到底是什么啊，翻译人员也像mortis一样自己加戏？还是真的因为国内比较火，分析的气氛 ...</blockquote>
+这下之前在日本不火变成日本人原罪了
+
+*****
+
+####  玄天宝玉  
+##### 11538#       发表于 2025-1-24 05:29
+
+我还以为莫姐能狂一集呢，怎么半集就成搞笑角色了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
