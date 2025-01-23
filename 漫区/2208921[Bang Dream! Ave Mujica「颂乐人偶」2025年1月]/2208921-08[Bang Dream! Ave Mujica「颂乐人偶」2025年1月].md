@@ -1218,3 +1218,92 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 那麼avemujica可能就不是這個思路，要和mygo相反，至少就不能用mygo那套邏輯跑了。
 
+
+*****
+
+####  御幸一也  
+##### 10479#       发表于 2025-1-23 10:36
+
+這次的監督訪談大概看完，1～3話的劇情解讀其實不多，更多的是構思上的一些東西，mygo和avemujica的企劃構思
+
+倒是這次雜誌裡的角色介紹有點意思，晚點翻譯一下
+
+每個角色的title極其中二，什麼悲傷歌姬、忘卻女神、背負死亡的天使，天啊到底是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 10480#       发表于 2025-1-23 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252680&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 10:36</a>
+
+這次的監督訪談大概看完，1～3話的劇情解讀其實不多，更多的是構思上的一些東西，mygo和avemujica的企劃構 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那海玲是恐惧魔王？
+
+
+*****
+
+####  Raven314  
+##### 10481#       发表于 2025-1-23 10:38
+
+系构和监督的中二大爆发，mggm还特别喜欢
+看观众能不能一起中二了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  用户名1  
+##### 10482#       发表于 2025-1-23 10:39
+
+第一个自我对话场景
+开篇以墨提斯“欢迎你今天来到我的节目。”现在式的语句起手，用了欢快的语调。就像是真正的采访一样，带领观众将睦困在时光片段中进行观赏。但这里是过去的意识空间，本质是将睦的过去单独提出来展示。所以墨提斯后面会转用过去式的语气。
+这段总体可以分为四个片段，每个都是“正/负/总结”的形式，
+第一段“期待/冷场”—就像这样，小睦一直都不太会说话
+第二段“夸赞/自省”—从来就没有什么，是属于小睦自己的
+第三段“失落/开心”—小睦终于获得了【属于小睦自己的东西】“
+开心/失落”—但是神明非常坏心眼   没有给予她让吉他歌唱的天赋
+第四段“羡慕/自卑”睦，枯立在原地 绝望地，蹲下身来
+“一直都、从来没有、每天都、终于获得、坏心眼、枯立、绝望”墨提斯使用这些语词将睦的内心暴露给观众面前，我们能从中看到睦长久以来的渴望和症结所在。但这种盖棺定论的总结形式似乎没有留给观众足够的想象空间。
+回过头再看墨提斯一直用的第三人称做主语。看起来就如同戏剧中的旁白一般，但她本身是故事中的人物。以第一人称（人物）视点冒充第三人称（作者）对事件进行诠释解说。不由得会让人想这段场景中是否本身就存在着自利性与误导。
+
+不过这段独白中其实出现了第三个自我“吉他”
+“我也想唱歌啊   一起唱歌吧？让我说话好吗？”“好羡慕啊，小灯的歌声真好听    立希的古典好帅气   爽世弹奏的音色总是很温柔    祥子…   让我也唱歌嘛    那样一定会很开心”←我觉得整段里面唯一可以完全相信的部分
+
+之前写的想法<img src="https://p.sda1.dev/21/525c076370e22dd1f303a450b7458d00/CMP_20250123103902015.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  御幸一也  
+##### 10483#       发表于 2025-1-23 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252698&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-23 10:37</a>
+
+那海玲是恐惧魔王？</blockquote>
+“忘却”の女神
+
+全ては“愛”されるため
+
+無自覚故の“恐怖”
+
+“死”を背負う天使
+
+“悲しみ”の歌姫
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 10484#       发表于 2025-1-23 10:41
+
+中二病大爆发是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 10485#       发表于 2025-1-23 10:43
+
+贴吧还说祥子实际精神年龄是只有十三岁的中二少女呢，柿本不比祥子中二多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

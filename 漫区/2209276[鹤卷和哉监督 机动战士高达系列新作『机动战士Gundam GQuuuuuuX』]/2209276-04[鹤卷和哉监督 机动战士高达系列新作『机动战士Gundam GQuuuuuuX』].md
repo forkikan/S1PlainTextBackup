@@ -9135,3 +9135,13 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252068&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-23 09:24</a></blockquote>
 我记得剧场版后自爆的武士道好像也是金属人来着？
 
+
+*****
+
+####  刺客ares  
+##### 5272#       发表于 2025-1-23 10:42
+
+看匿名版讨论MAV战术，突然蹦出一句：
+
+“庵野与鹤卷在剧场版也使用了M.A.V战术，两位名监督一前一后出击，并相互掩护”
+
