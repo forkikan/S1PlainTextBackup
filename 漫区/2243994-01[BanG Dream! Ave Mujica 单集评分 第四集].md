@@ -2055,3 +2055,32 @@ mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都�
 
 现在算是从零开始了，希望下一集能认真塑造角色讲故事吧，否则真成全是噱头堆出来的动画了
 
+
+*****
+
+####  醋栗  
+##### 235#       发表于 2025-1-24 01:04
+
+再怎么说这集也超展开过头了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我真心希望这集是ave mujica表现最差的一集
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Asukalangley33  
+##### 236#       发表于 2025-1-24 01:13
+
+第一遍看完投了-1
+
+现在又看了2遍，想改+1了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 237#       发表于 2025-1-24 01:13
+
+0 莫名拧歪的剧情是本集退步幅度最小的部分，主要是因为还可以吊着“也许是诡叙”
+
+但无论音乐演出等退步多少，这总还算是本季比较精良的动画，希望后面有起色
+
