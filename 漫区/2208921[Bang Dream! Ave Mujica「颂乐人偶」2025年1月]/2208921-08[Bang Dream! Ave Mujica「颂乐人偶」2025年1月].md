@@ -999,3 +999,13 @@ b站的鼓手说有眼力的看个几秒十几秒就够了的
 
 可以省略奋斗过程专注团队内斗
 
+
+*****
+
+####  Ferrari  
+##### 10459#       发表于 2025-1-23 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67248765&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-22 18:22</a>
+Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给aniplex企划唱anisong，电视台（非富士台） ...</blockquote>
+能上红白吗
+
