@@ -825,3 +825,14 @@ yysy,我之前看一些分析，到时候很大程度看日本人愿不愿意当
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pu  
+##### 77#         楼主| 发表于 2025-1-23 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254894&amp;ptid=2243911" target="_blank">onion0201 发表于 2025-1-23 14:54</a>
+
+之前只听说过这个纪录片，今天看了主楼链接视频的下半段开始就是张维为真的没绷住 ...</blockquote>
+哈哈 张VV老师厉害的 很早就国际上舌战群儒了
+

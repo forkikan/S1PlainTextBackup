@@ -1877,3 +1877,18 @@ QQ图片20250123145947.jpg
 
 <img src="https://img.saraba1st.com/forum/202501/23/150557ed7gdzud55368uy7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 10533#       发表于 2025-1-23 15:30
+
+从光线来看，应该是紧跟着第三话结尾
+
+*****
+
+####  swessia  
+##### 10534#       发表于 2025-1-23 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">估计是Cpart，就是不知道是不是直接说退团了，反正我觉得退团是烂活纯粹为爆而爆
+

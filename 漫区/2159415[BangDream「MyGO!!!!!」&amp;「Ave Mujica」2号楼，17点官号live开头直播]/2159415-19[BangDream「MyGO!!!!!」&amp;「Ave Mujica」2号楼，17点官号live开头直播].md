@@ -3146,3 +3146,13 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 去年暑假梅奔被刘德华还是谁包了，那个环境最好。。。
 
+
+*****
+
+####  ReginaldMorgan  
+##### 26881#       发表于 2025-1-23 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我被大麦盾挡出去了，到点提示我操作过于频繁请验证
+
+更麻烦的事被架住了，按照计划抢到了周日的yoasobi，但是周六的roselia没抢到，现在不想为了一个夜游专门飞一趟上海（还得周一请假）
+

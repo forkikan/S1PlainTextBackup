@@ -9491,3 +9491,16 @@ NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
 
 0085的部分没找到在哪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">急急急
 
+
+*****
+
+####  Toby_dak  
+##### 5308#       发表于 2025-1-23 15:27
+
+<blockquote>引用第5294楼0aleph37于2025-01-23 15:39发表的  :
+
+夏利亚在战后吉翁算什么定位啊，我看repo说麻球说到夏亚还得靠手机上网查，他们这派是被排挤了吗？</blockquote>
+一个SIDE6的普通JK知道自护王牌反而才奇怪吧。就好像说基辅幽灵，有几个人知道是什么东西？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

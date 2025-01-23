@@ -224,3 +224,40 @@ magpie不熟，但小黄鸭有窗口化功能。而且这种工具大部分使�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 黄油看CG切换下一张的时候，它硬是给补帧变成动画，卡的一笔。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 77#       发表于 2025-1-23 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67253164&amp;ptid=2238299" target="_blank">Ik4ruga 发表于 2025-1-23 11:27</a>
+
+暗黑2的分辨率最多800* 600
+
+我是用这个东西加分辨率</blockquote>
+暗黑2不是有d2dx嘛，用那个图形效果在4k我都觉得还行
+
+*****
+
+####  慕容断月  
+##### 78#       发表于 2025-1-23 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251133&amp;ptid=2238299" target="_blank">naclken. 发表于 2025-1-23 00:46</a>
+
+为啥这些缩放工具都强制全屏啊
+
+kirikiri2引擎还把鼠标给干没了……</blockquote>
+全屏方便计算，窗口缩放不如用蜃气楼
+
+*****
+
+####  慕容断月  
+##### 79#       发表于 2025-1-23 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239807&amp;ptid=2238299" target="_blank">霖岚_ 发表于 2025-1-21 17:34</a>
+
+这个和dlss跟fsr有什么不一样吗，是可以整个桌面全局应用而不是单独软件应用？
+
+延迟会很大吗，会不会很吃性 ...</blockquote>
+这个软件插帧跟fsrdlss啥的没任何关系，至于缩放，这软件自带fsr1
+
