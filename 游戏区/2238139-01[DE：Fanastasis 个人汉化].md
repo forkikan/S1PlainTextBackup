@@ -997,3 +997,13 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 怎么闪退，有报错吗</blockquote>
 <img src="https://p.sda1.dev/21/fa215b51384f696a4efae136a2c8541a/Screenshot 2025-01-23 165222.png" referrerpolicy="no-referrer"> 测了一下塞拉装上这两个一升级就会报错，换掉就正常了
 
+
+*****
+
+####  sgkqjsd  
+##### 93#         楼主| 发表于 2025-1-23 21:12
+
+<blockquote>Whalouse 发表于 2025-1-23 16:54
+测了一下塞拉装上这两个一升级就会报错，换掉就正常了</blockquote>
+看起来像是数值溢出导致的错误
+
