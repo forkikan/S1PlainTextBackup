@@ -2813,3 +2813,36 @@ Ave Mujica是祥子活下去的手段
 
 原来如此，那就直接看熟肉了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 10622#       发表于 2025-1-23 20:48
+
+<img src="https://p.sda1.dev/21/c820c1ec5ac80ab304ec73fa5f45f277/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ed7ac651c932d782024dccef87241441/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/84b4cda0a5691c10d51ecccd637af711/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6eec5d19607d5a2d0672bf5e7443242b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e0898bfc12430ec04a2460cb88584046/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/65ebe99208907b693a14376d750e7a0b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c39a680963cfd794fe1287d6d4a2c789/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ea04d5b3059194cfa1bbf05bc1193d0f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d5f1df483d7adb7061e637b8b7f6248b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 10623#       发表于 2025-1-23 20:55
+
+感觉mujica的主线应该就是祥子不断受难，不断被队友背刺，然后再一一克服，最终成长为一个金刚不坏铁陀螺的故事
+
+4.png
+(77.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/205506ezmlynuhlzjzhfh3.png" referrerpolicy="no-referrer">
+
