@@ -217,3 +217,14 @@ a1b8e45c1038534329662709d513b07ecb808884.jpg
 
 8k120得5090吧，真吓人啊 4080 8kdlss超级质量 开始的场景47帧
 
+
+*****
+
+####  kenqqex  
+##### 7468#       发表于 2025-1-23 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256563&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-1-23 17:54</a>
+
+是不是把4k当2k了。。。我看到最高分辨率是8k。。。</blockquote>
+你说得没错....我开4k全开了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
