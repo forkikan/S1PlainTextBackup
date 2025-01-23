@@ -12155,3 +12155,24 @@ mujica加了很多现实内容 但是很多地方又还是动画 搞得搞不清
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  KokutouMikiya  
+##### 11531#       发表于 2025-1-24 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262713&amp;ptid=2208921" target="_blank">lumennaturale 发表于 2025-1-24 04:30</a>
+因为复仇是不可能的。mygo选择在痛苦迷茫中前进，avemujica就是在痛苦中陷入逃避与疯狂。这两者虽然内容 ...</blockquote>
+所以要么是故事“必定需要这样的叙事”，或者只是搞噱头闹麻了，希望他们有这个野心和能力吧。
+
+*****
+
+####  凉良  
+##### 11532#       发表于 2025-1-24 04:47
+
+感觉mujica里有的吵架的台词太过刻意了。
+
+第三集先展示喵梦努力练鼓 然后祥子喷喵梦需要练习
+
+第四集先告诉你祥子经常通宵工作 然后喵梦喷祥子不考虑不眠不休的工作人员。  
+
