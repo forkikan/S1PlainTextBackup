@@ -1364,3 +1364,39 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 但mujica不一样，士大夫们很清楚观众来看什么的，也有意识地应对。
 
+
+*****
+
+####  御幸一也  
+##### 10492#       发表于 2025-1-23 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252880&amp;ptid=2208921" target="_blank">NOYURINOLIFE 发表于 2025-1-23 10:57</a>
+
+还会有系构的访谈吗，挺想看看系构对鸡团时期祥子的理解的</blockquote>
+綾奈已經直言不會再有了，前年febri那次就是最後一次<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NOYURINOLIFE  
+##### 10493#       发表于 2025-1-23 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252912&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 11:00</a>
+
+綾奈已經直言不會再有了，前年febri那次就是最後一次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 10494#       发表于 2025-1-23 11:06
+
+「BanG Dream! Ave Mujica」#4
+官方Fanart第1弹来自 PiPi 老师
+
+🌙 bilibili番剧 
+https://www.bilibili.com/bangumi/play/ss73081
+<img src="https://p.sda1.dev/21/9394f1c83a40e9adecfc0597f3568830/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

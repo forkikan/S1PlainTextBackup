@@ -406,3 +406,28 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 看了一下day2的creator stage确实有cali和fuwamoco，看看把
 
+
+*****
+
+####  holofan  
+##### 10713#       发表于 2025-1-23 10:50
+
+今天的汉堡店怕不要太刺激了
+
+山田kanade加上koyo青
+
+*****
+
+####  holofan  
+##### 10714#       发表于 2025-1-23 10:53
+
+<img src="https://img.saraba1st.com/forum/202501/23/105259pnh58sjc5yz5y5mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 10:52 上传
+
+该来的要来了，昨天直播就说了一大波告知即将到来
+

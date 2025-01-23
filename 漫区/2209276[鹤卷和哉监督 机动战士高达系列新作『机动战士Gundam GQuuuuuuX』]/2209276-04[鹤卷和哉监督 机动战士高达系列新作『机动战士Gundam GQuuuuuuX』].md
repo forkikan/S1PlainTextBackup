@@ -9168,3 +9168,28 @@ Plazma上了Apple music j-pop now电台2025开年第一期开场曲，而且DJ�
 
 总之无责任毒奶一个GQX的设计者是骡子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5275#       发表于 2025-1-23 11:02
+
+<blockquote>刺客ares 发表于 2025-1-23 10:42
+看匿名版讨论MAV战术，突然蹦出一句：
+
+“庵野与鹤卷在剧场版也使用了M.A.V战术，两位名监督一前一后出击， ...</blockquote>
+MAV战的意义不持续向敌人暴露自己位置，这俩MAV的意义是让我们抓不准谁是背锅的那个是吧
+
+
+*****
+
+####  刺客ares  
+##### 5276#       发表于 2025-1-23 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252938&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-23 11:02</a>
+
+MAV战的意义不持续向敌人暴露自己位置，这俩MAV的意义是让我们抓不准谁是背锅的那个是吧 ...</blockquote>
+现在确实稍微分成了有喜欢前半讨厌后半和喜欢后半讨厌前半的两个群体
+
+但他们都无法彻底否定这部电影，这不是很成功吗MAV战术（
+

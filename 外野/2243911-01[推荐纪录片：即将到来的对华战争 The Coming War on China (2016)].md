@@ -491,3 +491,30 @@ asbm只是最后一根稻草
 问题是，最近几十年，时间是谁的朋友呢</blockquote>
 谁在走上坡路，时间就是谁的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightrap  
+##### 49#       发表于 2025-1-23 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252730&amp;ptid=2243911" target="_blank">Viteeee 发表于 2025-1-23 10:41</a>
+
+等美利坚下一个政权修前朝国史的时候，会不会批注上“华盛顿在这一刻丧失了军事上击败东大的最后一个机会” ...</blockquote>
+放到96年那次似乎更合适一些，但当时两边表面上的关系还过得去，2016年那次美利用南海在国际上的宣传造势，此时确实是在道义优势上打一战的最佳机会了。然而这种就是必须打赢，无论打输了还是不打了都是有损伤的，虽说损伤的方面并不一样。
+
+当然我怀疑美政治人员对海军的认知可能还停留在90年代，感觉打一次不费吹灰之力，发展到这个程度或许是他们没想到的。
+
+*****
+
+####  nightrap  
+##### 50#       发表于 2025-1-23 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252843&amp;ptid=2243911" target="_blank">剑鹰 发表于 2025-1-23 10:52</a>
+
+断句断句
+
+问题是，最近几十年，时间是谁的朋友呢</blockquote>
+过度在乎时间的作用本来就是阶级社会给人设下的陷阱而已。
+
+当然国内之前也是落入了这个陷阱里，过后总有一天或许会发现，当年的有些事情只要多坚持一下就会有转机了。
+
