@@ -1069,3 +1069,49 @@ Mortis顶号炒热度之后ave mujica太火爆了，搞了各种CM tie曲，给a
 
 李子也有去燈這個角色的試鏡，但監督聽了羊宮的就感覺“燈來了”，然後聽了李子的“這下初華也來了”。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YF31  
+##### 10466#       发表于 2025-1-23 10:10
+
+有关第五话预告的那句拉丁文facta fugis, facienda petis，虽说是出自狄多对埃涅阿斯，但如果把埃涅阿斯套牢祥，那现在的A团里真没谁会对她说这话吧，相反如果把狄多套牢祥，那对象能套的至少有mortis和大喵老师，但牢祥这个塑造也很难说会是对路线斗争低头的样子。
+
+当然可以把埃涅阿斯抛弃狄多发散到牢祥退队上，但是狄多写这个诗是为了留下埃涅阿斯，最后还殉情自杀了，如果硬套那相当于一集演完黑刀之夜加飞鸟山之战，现在A团里有谁非得这么留牢祥吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+考虑到第二集的拉丁文标题的出典菲丽丝致狄摩福恩书，也很难和剧情套上，我感觉这个短语还是得从字面来理解。
+
+我不会拉丁语，去查了一下翻译说标题拉丁文的意思是” What is achieved, you turn your back upon; what is to be achieved, you ever pursue. “ 既有的成就弃之不顾，要拼命去追求新的成就。
+[https://www.loebclassics.com/vie ... 14/pb_LCL041.83.xml](https://www.loebclassics.com/view/ovid-heroides/1914/pb_LCL041.83.xml)
+
+这句话的核心应该是后一句吧，说埃涅阿斯受神指示一定要去意大利建城，假设说这集牢祥退队，那她退队的目的是为了建新的队？我觉得不太可能。
+
+相反我觉得这集要么深入讲为什么牢祥听完春日影要建mujica，要么是讲牢祥为什么丢了大小姐生活选爹，总之不太可能再演退队了，上季已经用牢祥演过一次退队了这季还这么演，我只能说独角兽和柿本没活硬整。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 10467#       发表于 2025-1-23 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252259&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 09:55</a>
+新訪談部分
+
+柿本：確實如你所說祥子和祖父一起住的話，就不用沒落。但她的理想是她媽媽那樣的強大又溫柔， ...</blockquote>
+算是实锤了牢爹不上班，啊这，还真是祥子给爹赚酒钱啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 10468#       发表于 2025-1-23 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252405&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-23 10:11</a>
+
+算是实锤了牢爹不上班，啊这，还真是祥子给爹赚酒钱啊？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倾向于用的是存款吧，按牢爹那种喝法纯靠牢祥打黑工养，那跟喝女儿血有啥区别。
+
+而且背后混蛋老爹都骂出来了还在给酒钱，什么慈母多败儿，要是能给牢祥说几句好话那不得把牢祥pua到死啊。
+
