@@ -1803,3 +1803,97 @@ B站能不能别搞什么变色字体了 真的土</blockquote>
 
 给个＋0不过分
 
+
+*****
+
+####  fsfs_freeze  
+##### 206#       发表于 2025-1-24 00:14
+
+有人说这集像水母，不知道坛友怎么评价<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卵真是牛逼  
+##### 207#       发表于 2025-1-24 00:14
+
+本来-2，结果整集都在迫害祥子让我感觉很美味，改成-1<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 208#       发表于 2025-1-24 00:15
+
+真神奇，怎么变成剧偶像了
+
+*****
+
+####  Reinhold  
+##### 209#       发表于 2025-1-24 00:16
+
+感觉这其实才是真正的母鸡卡ep1
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xiaosayang  
+##### 210#       发表于 2025-1-24 00:16
+
+独角兽粉可不能顺风时脚踩花田剑指高达，逆风时切割剧本、音监是不是你打的有问题呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinoverse  
+##### 211#       发表于 2025-1-24 00:17
+
+-1
+
+从2/3开始我就跟祥子一个表情，这是哪儿啊/咋回事啊/我是谁啊/那咋整啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算后面能圆回来我也不认为这集是好活
+
+*****
+
+####  Tienx  
+##### 212#       发表于 2025-1-24 00:19
+
+我很想看潭友也回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fyzqwzh  
+##### 213#       发表于 2025-1-24 00:20
+
+节奏好差，加上该爆的时候声优表现有点灾难，观感一坨
+
+
+*****
+
+####  xyion  
+##### 214#       发表于 2025-1-24 00:20
+
+-2
+
+这话的烂法甚至让我看了三遍都无法确定它烂，节奏、台词、音监都无比的诡异，不说和前三话不像一个片场出来的，就下半和上半都不像。感觉也是长见识了。
+
+*****
+
+####  fsfs_freeze  
+##### 215#       发表于 2025-1-24 00:21
+
+mujica要不要也分出来黑子白子下棋，之前虽然有但是两边都没什么对立的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硝石重心  
+##### 216#       发表于 2025-1-24 00:24
+
+看的晕晕的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinoverse  
+##### 217#       发表于 2025-1-24 00:26
+
+要不丰川祥子回去被迫继承亿万资产得了，哦牛批这是一个普通中二病犟驴大小姐能解决的问题？staff能圆的回来有鬼了
+

@@ -10415,3 +10415,27 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 夏亚打01高达那场怎么又是头掉了就爆炸……
 
+
+*****
+
+####  mad55555  
+##### 5399#       发表于 2025-1-24 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259789&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-23 23:10</a>
+
+现在回看官网这个剧情简介，这事件发生顺序完全就是错的啊？按照这上面写的，那麻球应该是先遇上喵安开启军 ...</blockquote>
+反正都有穿越要素了，再加个时间轮回也可以吧
+
+重复无数次只为遇见她的莫比乌斯之环不是挺浪漫的吗
+
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5400#       发表于 2025-1-24 00:21
+
+没憋住又买了几张电影场贩贴纸，准备拿来咕手机壳，哈罗和小螃蟹都有贴纸就是比例有点太大了，希望后面出点盒蛋什么的
+蹲等下周的特典设定本了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
