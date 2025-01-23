@@ -3115,3 +3115,13 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 栗子被孤立？不会吧
 
+
+*****
+
+####  rollingusagi  
+##### 26878#       发表于 2025-1-23 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">万人场秒空，你邦现在国内这人气是真有点恐怖了吧，我都开始觉得之前某些人吹的组团来鸟巢是真能坐的满的了，当然北京那边因为政治原因估计不太行，但是上海也是有鸟巢规模的体育场的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
