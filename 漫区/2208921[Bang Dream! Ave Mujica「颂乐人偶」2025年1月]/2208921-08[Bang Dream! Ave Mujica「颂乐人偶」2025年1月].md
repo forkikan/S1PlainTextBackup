@@ -8718,3 +8718,297 @@ B站的源，部分墨提斯的台词是标红的，比如
 
 唉，还是既视感太重了，现在大喵在我脑海里已经和那个人的身影重合了，我的潜意识在阻止我给大喵找理由，唉
 
+
+*****
+
+####  zuckmydik  
+##### 11221#       发表于 2025-1-24 00:36
+
+<blockquote>一心而用 发表于 2025-1-24 00:35
+既然大M老师的话全部都是复读别人，这句是祥妈的遗言吗？</blockquote>
+卧槽，可能是以后所有假药的基点发言来了！
+
+*****
+
+####  fosanoha  
+##### 11222#       发表于 2025-1-24 00:36
+
+又看了一遍，人物行为工笔气太重，编剧の大手太明显
+
+海初喵这仨有一个像人吗？soyo看个电视就能冷汗狂飙，你们几个当了几个月同事没有一个人觉得奇怪是吧，睦头前两天还是个三棍子打不出一屁的，今天变成肢体语言丰富叭叭叭叭个不停的小孩子，你们都看不见？装瞎？真瞎？
+三角初华，这四集看下来行为突出一个割裂。说她祥派忠犬，团内矛盾划水挂机只会几句不痛不痒的片汤话；说她阴谋算计，这集被mortis哄的五迷三道，出租车上简直在搞笑。你是第一天认识若叶睦吗？你给她递水那会儿也觉得她像mana，和她在一起也心情轻松吗？
+八幡海铃，全程中立OB，线香花火发言好像看透了一切，事实上她做了什么？什么都没做。三十个乐队代打不加入的雇佣兵大人，有朝一日正式加入了乐队作为正式贝斯手出道，放话“一辈子的事”“想有个归宿”，然后一脸平静说乐队散了才是常事。你来ave mujica到底是干什么的，真来打工？
+祐天寺若麦，努力家卷王，蹭流量网红，家人侠。第一集擅自摘面具的是你，这一集说会给大家添麻烦的是你。喊着要回应观众期待的逼睦表演的是你，说被抢了风头自己在忍的也是你。让家人期待福冈演唱会要放大烟花的是你，不行了咱解散吧的还是你。你告诉我唐突一转让祥睦退出的理由是什么，前脚解散震惊脸后脚蠢毙了老娘不干了又是什么逻辑？看她满嘴正论我真是绷不住，还在“人偶的演技”“线断了一样”，我草那就不是演技是他妈木僵！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 佳奈助| + 1|真成编剧的人偶了|
+
+查看全部评分
+
+*****
+
+####  fsfs_freeze  
+##### 11223#       发表于 2025-1-24 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261125&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-24 00:35</a>
+既然大M老师的话全部都是复读别人，这句是祥妈的遗言吗？</blockquote>
+这个好，只是不清楚mortis是有意演戏炸团还是单纯地主家的傻儿子
+
+*****
+
+####  wonner_2012  
+##### 11224#       发表于 2025-1-24 00:39
+
+首先本集镜头出现在了红光电视中
+<img src="https://p.sda1.dev/21/1b1f83242ba3452588d9cb59ad97db27/image.jpg" referrerpolicy="no-referrer">
+
+然后存在一个外部操作电视的人
+<img src="https://p.sda1.dev/21/c520a88e1855ad7f75bd159f14def7e6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wsuFish  
+##### 11225#       发表于 2025-1-24 00:40
+
+其实总觉得mortis和初华单独谈话那段也很奇怪，有一点托孤祥子给初华的意思。但这样一来解散就是mortis计划之中了，结尾那段也是演技的话有点用力过猛了吧
+
+
+*****
+
+####  凉良  
+##### 11226#       发表于 2025-1-24 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261118&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-1-24 00:34</a>
+
+B站的源，部分墨提斯的台词是标红的，比如
+
+所以有人会认为标红是墨提斯的真正想说的，而白字才是纯复读机。 ...</blockquote>
+只有B站是标红的 我觉得解读意义不大
+
+*****
+
+####  堆雪若叶  
+##### 11227#       发表于 2025-1-24 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261118&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-1-24 00:34</a>
+
+B站的源，部分墨提斯的台词是标红的，比如
+
+所以有人会认为标红是墨提斯的真正想说的，而白字才是纯复读机。 ...</blockquote>
+中文虽然翻成你，但睦这里说的是初华啊，祥妈托孤初华被睦听到是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ARS_Iapetos  
+##### 11228#       发表于 2025-1-24 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259487&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-23 22:56</a>
+
+还有一个点还没有人说，op里的莫提斯是会弹吉他的。究竟到底是谁在演？</blockquote>
+我也想问这个，还是太奇怪了
+
+*****
+
+####  Min_FOrder  
+##### 11229#       发表于 2025-1-24 00:41
+
+<blockquote>fosanoha 发表于 2025-1-24 00:36
+又看了一遍，人物行为工笔气太重，编剧の大手太明显
+
+海初喵这仨有一个像人吗？soyo看个电视就能冷汗狂飙， ...</blockquote>
+第一点难道不是因为真的不熟？倒不如好好想想，这几个人除了排练演出之外能聚在一起的机会能有多少，初华在出租车上还说你刚进团的时候也不怎么说话，这不明摆着之前根本没互相接触几次么
+
+*****
+
+####  zuckmydik  
+##### 11230#       发表于 2025-1-24 00:42
+
+ 本帖最后由 zuckmydik 于 2025-1-24 00:43 编辑 
+
+其实有一个疑点:第三集的Mortis演技是浑然天成那种，这一集就为演而演 
+
+看出天赋的大喵也指出来不对劲了
+
+*****
+
+####  wolf1997  
+##### 11231#       发表于 2025-1-24 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261054&amp;ptid=2208921" target="_blank">wolf1997 发表于 2025-1-24 00:29</a>
+
+MYGO倒数第四集正式结成，MUJICA正数第四集解散，十分中心对称
+
+本来我也觉得这集加速太快了，但看了下集预 ...</blockquote>
+补充一点，第7集播放时间2.13，正是祥子生日前一天，预计真的会十分关键
+
+*****
+
+####  Reinhold  
+##### 11232#       发表于 2025-1-24 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261156&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 00:36</a>
+又看了一遍，人物行为工笔气太重，编剧の大手太明显
+
+海初喵这仨有一个像人吗？soyo看个电视就能冷汗狂飙， ...</blockquote>
+其实硬要说的话，就是真不熟，所以只有祥子对睦的转变有剧烈反应。其他三个明星、网红、雇佣兵根本不知道睦平时是什么情况，只有工作交集。喵还说了“难得气氛融洽”。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  海底铁锚  
+##### 11233#       发表于 2025-1-24 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261145&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-24 00:35</a>
+
+唉，想了很久，还是看后面怎么补吧
+
+现在的问题是
+
+就大喵老师个人来说，人设没问题，纯粹流量的努力家还是家 ...</blockquote>
+彻底重合了，就是！独角兽首播车过的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuckmydik  
+##### 11234#       发表于 2025-1-24 00:44
+
+<blockquote>堆雪若叶 发表于 2025-1-24 00:40
+中文虽然翻成你，但睦这里说的是初华啊，祥妈托孤初华被睦听到是吧</blockquote>
+要是成真，肯定是睦妈托孤睦被大M复读给初华啊
+
+*****
+
+####  刑部姬真可爱  
+##### 11235#       发表于 2025-1-24 00:44
+
+喵梦现在的形象往邦邦以前的角色靠的话大概是千圣？但千圣压力归压力，没搞这么多作妖怼人的事啊，喵梦的风评真能救回来吗。。。
+
+*****
+
+####  Суслов  
+##### 11236#       发表于 2025-1-24 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261041&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 00:28</a>
+很简单啊，上升不上去了啊，拉队伍的大祥毫不知变通整天做什么音乐性的大梦，主音吉他精神病犯了吉他这块 ...</blockquote>
+大喵老师前面还说为了这为了那不能停演，压力大祥老师两句后又第一个说退出，真要为了家人好歹把眼前这场演唱会对付过去，方法多的是。代打找不到就推脱小睦发烧了上不了台，台上摆个吉他台下放录音，多大点事又不是没乐队干过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zuckmydik  
+##### 11237#       发表于 2025-1-24 00:44
+
+<blockquote>刑部姬真可爱 发表于 2025-1-24 00:44
+喵梦现在的形象往邦邦以前的角色靠的话大概是千圣？但千圣压力归压力，没搞这么多作妖怼人的事啊，喵梦的风 ...</blockquote>
+当成过激版藤田琴音得了
+
+家人侠嘛
+
+*****
+
+####  lolisk  
+##### 11238#       发表于 2025-1-24 00:44
+
+《关于我理想中的完美人格被青梅竹马拒绝后导致乐团一夕之间解散这件事》
+
+*****
+
+####  一心而用  
+##### 11239#       发表于 2025-1-24 00:45
+
+<img src="https://p.sda1.dev/21/0cae374474d0ff18c657f71cc321dc48/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/32eb381dfbea02e6ea4d3712f39bb57f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Min_FOrder  
+##### 11240#       发表于 2025-1-24 00:45
+
+<blockquote>zuckmydik 发表于 2025-1-24 00:42
+其实有一个疑点:第三集的Mortis演技是浑然天成那种，这一集就为演而演 
+
+看出天赋的大喵也指出来不对劲了 ...</blockquote>
+雨夜红灯下的坦白说得很清楚了，就是混乱邪恶，想把伤害了睦头的大祥折磨到死
+
+
+*****
+
+####  PDQ4  
+##### 11241#       发表于 2025-1-24 00:45
+
+滑坡完还是要看动画的，然后发现了个很大的疑点
+
+第四集有出现一些正式PV电视里的画面
+
+第四集
+
+<img src="https://img.saraba1st.com/forum/202501/24/003644vwstsugg9vgl9161.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 00:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/003505lgpqrju5w5qlgsz9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 00:35 上传
+
+正式PV
+
+<img src="https://img.saraba1st.com/forum/202501/24/004024aru3o3uwkh6lrtus.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 00:40 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/004036mmms7eeustmsmlsm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 00:40 上传
+
+有没有可能这一集很多部分，都是mortis给沉睡的睦播的假片？可以合理解释这一集人设人物行为逻辑很崩坏，
+
+以及解释c part明明有观众在看，但是mortis却可以在舞台上崩溃
+
+有没有可能，mortis为了刺激睦刻意为之，演出这么癫狂让人难受的TV，这样所有诡异的地方都有了解释，不是演的，是假的
+
+*****
+
+####  wonner_2012  
+##### 11242#       发表于 2025-1-24 00:45
+
+从战吧搬来的更多本集对应红光电视的画面
+<img src="https://p.sda1.dev/21/966345472427b26bbab0505bde3b384d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zuckmydik  
+##### 11243#       发表于 2025-1-24 00:45
+
+<blockquote>Суслов 发表于 2025-1-24 00:44
+大喵老师前面还说为了这为了那不能停演，压力大祥老师两句后又第一个说退出，真要为了家人好歹把眼前这场 ...</blockquote>
+有一说一，大喵肯定是说这次演出后退出
+
+因为显然下集预告她们五个还是上场了
+
