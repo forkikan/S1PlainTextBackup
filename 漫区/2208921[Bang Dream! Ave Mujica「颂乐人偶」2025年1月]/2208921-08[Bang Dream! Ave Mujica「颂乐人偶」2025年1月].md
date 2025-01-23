@@ -12289,3 +12289,23 @@ mujica加了很多现实内容 但是很多地方又还是动画 搞得搞不清
 
 赶紧搞了个剧本，然后暂时停止活动，全员假装这是演出的一部分，应该是最有可能的。毕竟最后终究是要包饺子的。
 
+
+*****
+
+####  JustW  
+##### 11544#       发表于 2025-1-24 07:01
+
+<blockquote>Liza 发表于 2025-1-24 06:52
+这片可能完全不是邦邦传统风格，也不是少女乐队片的样板套路。说不定最后也没有什么饺子。 ...</blockquote>
+除非母鸡卡合同live也不搞了、游戏也不实装了、直接从企划里切割出去了，否则百分之一百会以包饺子结尾。
+
+*****
+
+####  qwased  
+##### 11545#       发表于 2025-1-24 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262721&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 04:34</a>
+
+第五话可能还不是解散，估计就是个忙个的去了，名存实亡而已，真正攒这局的是成人的资本，不可能放任小孩子 ...</blockquote>
+以剧中人的视角来看这不就是在烂炒热度，偶像团体分分合合的戏码<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">太摇滚辣
+
