@@ -2846,3 +2846,13 @@ Ave Mujica是祥子活下去的手段
 
 <img src="https://img.saraba1st.com/forum/202501/23/205506ezmlynuhlzjzhfh3.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 10624#       发表于 2025-1-23 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257890&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-23 20:55</a>
+感觉mujica的主线应该就是祥子不断受难，不断被队友背刺，然后再一一克服，最终成长为一个金刚不坏铁陀螺的 ...</blockquote>
+因为是半身所以祥子也有同款替身，结果到最后祥子都没崩溃过，Ob一串字母一次都没有出来
+
