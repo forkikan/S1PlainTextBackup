@@ -2350,3 +2350,52 @@ mortis真就一集时髦值啊
 拉黑只是你这个号看不到，不会影响楼层实际显示的</blockquote>
 那我联系版主问问吧
 
+
+*****
+
+####  YF31  
+##### 10582#       发表于 2025-1-23 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67252569&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-23 10:25</a>
+
+這裡原文是「見栄えもあって家には戻れず」，我剛睡醒沒想好怎麼翻才是最好，見栄え直譯就是“外表、外觀 ...</blockquote>
+请教下，这篇访谈的原文在哪里呢？
+
+*****
+
+####  1223122  
+##### 10583#       发表于 2025-1-23 18:43
+
+诡奕<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 10584#       发表于 2025-1-23 18:44
+
+<img src="https://p.sda1.dev/21/4968bfa388476cbeb325f425e31086fb/image.jpg" referrerpolicy="no-referrer">
+如图，手机端可屏蔽，第一次见到如此跳梁小丑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 10585#       发表于 2025-1-23 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257007&amp;ptid=2208921" target="_blank">1223122 发表于 2025-1-23 18:43</a>
+诡奕</blockquote>
+是亲舅舅，我们有救了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  半年  
+##### 10586#       发表于 2025-1-23 18:44
+
+<img src="https://p.sda1.dev/21/e9e06f6202dc51dbbf492340d90f17db/Gh6E6y5akAA08mp.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/MIIx777/status/1882087913116385621/photo/1](https://x.com/MIIx777/status/1882087913116385621/photo/1)
+

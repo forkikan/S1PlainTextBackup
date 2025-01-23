@@ -1128,3 +1128,15 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 现在最影响我军颜值的装备应该就是轰六了</blockquote>
 横向比较也不差啊，目前就只有三个国家装备战略轰炸机，装备数量最多的分别是图16、B52、图95，基本上是一个时代的东西，大差不差。
 
+
+*****
+
+####  泥鳅化石  
+##### 103#       发表于 2025-1-23 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251284&amp;ptid=2243911" target="_blank">清风伴明月 发表于 2025-1-23 01:39</a>
+至今不懂对面为什么怂了</blockquote>
+看看日不落是怎么日落的不就明白了，老美还是这事的推手和最终受益人，而且自从原子弹被发明出来，美国就没对任何一个有投射能力的拥核国家开战过。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

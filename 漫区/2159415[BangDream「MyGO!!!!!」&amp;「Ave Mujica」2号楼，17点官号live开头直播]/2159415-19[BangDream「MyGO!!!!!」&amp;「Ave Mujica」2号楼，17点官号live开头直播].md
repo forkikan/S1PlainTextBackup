@@ -3211,3 +3211,13 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 凡是看到售票平台是大麦的，直接骂一句司马完事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">公通黄牛猪狗不如的东西
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26885#       发表于 2025-1-23 18:37
+
+【【音频】雪华翩跹 笑看无常】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1YVfVYmEuc/?share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
+
+总选举歌曲
+

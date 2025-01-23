@@ -9827,3 +9827,49 @@ PV1的画面是全部都出现在剧场版了吗
 
 其实联邦哪里技术水平好像也变高了 能在钢加农上装俩光束加农 还能同时开火 原本这会有出力怎么高的炉子吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 5341#       发表于 2025-1-23 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256896&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-23 18:32</a>
+说不定是哈曼，麻球是克隆人</blockquote>
+原来哈曼论还没破产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  不知道从哪条线传过去的
+
+*****
+
+####  中野梓  
+##### 5342#       发表于 2025-1-23 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256950&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-23 18:37</a>
+
+其实联邦哪里技术水平好像也变高了 能在钢加农上装俩光束加农 还能同时开火 原本这会有出力怎么高的炉子吗 ...</blockquote>
+肯定提高了，至少钢加农2的出力
+
+
+*****
+
+####  中野梓  
+##### 5343#       发表于 2025-1-23 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256960&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-23 18:38</a>
+
+原来哈曼论还没破产  不知道从哪条线传过去的</blockquote>
+我是这么想的，UC牛逼的NT死了应该多少有个女鬼状态，拉拉在主宇宙阴魂不散，魂穿的可能性不大，你看哈曼，炸了之后再也没有灵魂状态出场过，说不定就能圆上
+
+*****
+
+####  岸浪白野  
+##### 5344#       发表于 2025-1-23 18:47
+
+[X 上的 サンティ🫧：“映画未視聴勢から見た機動戦士ガンダムジークアクス #GQuuuuuuX [url]https://t.co/1VMgdK9Tsu](https://x.com/Suntchannel/status/1882357304965906765)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/23/184737gfew9aa0a424juo3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 18:47 上传
+
