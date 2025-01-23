@@ -108,3 +108,14 @@ mtg牌手小黄鱼用的多罢
 这并不影响mtg在国内是路边一条，尤其是取消了简中后</blockquote>
 虽然确实是路边一条，但是除了ygo和ptcg，其他的几家打牌的tcg在国内交易量真没多少能和这路边一条比
 
+
+*****
+
+####  kytos  
+##### 224#       发表于 2025-1-23 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67171764&amp;ptid=2175566" target="_blank">蚊仔蚊仔蚊仔 发表于 2025-1-14 02:33</a>
+
+PTCG朱紫第一弹卡表完全公开，最具代表性的两个朱紫卡组一个没出一个阉割，针对非强势卡组也阉割了不少key ...</blockquote>
+结果151完全卖爆
+

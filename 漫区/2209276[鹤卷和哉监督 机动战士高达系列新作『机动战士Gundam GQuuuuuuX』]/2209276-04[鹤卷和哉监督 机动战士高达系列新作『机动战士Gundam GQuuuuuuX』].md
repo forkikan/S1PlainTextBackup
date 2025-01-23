@@ -9894,3 +9894,33 @@ PV1的画面是全部都出现在剧场版了吗
 确实有可能，把白卡一起传过去</blockquote>
 赛克缪技术不就有了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 5347#       发表于 2025-1-23 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257135&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-23 18:56</a>
+赛克缪技术不就有了嘛</blockquote>
+这下故事都连上了，只剩确认玛丘身份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 5348#       发表于 2025-1-23 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256950&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-23 18:37</a>
+ 其实联邦哪里技术水平好像也变高了 能在钢加农上装俩光束加农 还能同时开火 原本这会有出力怎么高的炉子吗 ...</blockquote>
+敢达钢加农轻加农的核心机思路都变成0083时期的水平模式，本体不用再负担背部推进器，把这部分出力转去火力了吧
+
+
+*****
+
+####  Sliurus  
+##### 5349#       发表于 2025-1-23 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256781&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-23 18:19</a>
+
+早了11年，说不定在所罗门冲击的时候从“那一边”漏了点什么进来。</blockquote>
+原来是黑科技吗<img src="https://static.saraba1st.com/image/smiley/carton2017/099.png" referrerpolicy="no-referrer">
+

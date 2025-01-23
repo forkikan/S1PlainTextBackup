@@ -2471,3 +2471,86 @@ mortis真就一集时髦值啊
 
 南瓜哥基本只透一集吧，应该就是第四集
 
+
+*****
+
+####  狮子咕  
+##### 10596#       发表于 2025-1-23 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">南瓜哥抢鲜一集的话，这个时候出来说明他透的是第五集，和下午那个估计一样
+
+*****
+
+####  zzhh0131  
+##### 10597#       发表于 2025-1-23 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这大纲
+
+*****
+
+####  IWS2000  
+##### 10598#       发表于 2025-1-23 19:02
+
+不听不看不搜
+
+*****
+
+####  miomio123  
+##### 10599#       发表于 2025-1-23 19:02
+
+南瓜哥的话只能信一半，豚豚可以离席了历历在目
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  客服少女小祥  
+##### 10600#       发表于 2025-1-23 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">第四集生放送在哪看啊，是B站蓝原的那个直播间吗还是live2那里？有没有好心人给我指路一下，谢谢
+
+
+*****
+
+####  阿姆罗二世  
+##### 10601#       发表于 2025-1-23 19:03
+
+豚豚可以离席了不是南瓜哥说的，是另一位10th哥
+
+*****
+
+####  坐看风起云涌  
+##### 10602#       发表于 2025-1-23 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257196&amp;ptid=2208921" target="_blank">miomio123 发表于 2025-1-23 19:02</a>
+南瓜哥的话只能信一半，豚豚可以离席了历历在目
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那个情报哥现在还没来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  收纳袋  
+##### 10603#       发表于 2025-1-23 19:04
+
+这边透一点那边透一点，真是看不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  miomio123  
+##### 10604#       发表于 2025-1-23 19:04
+
+记忆错位了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 10605#       发表于 2025-1-23 19:07
+
+<img src="https://p.sda1.dev/21/a63bffe465c719a7fd75ab073cf95fe1/image.jpg" referrerpolicy="no-referrer">
+
