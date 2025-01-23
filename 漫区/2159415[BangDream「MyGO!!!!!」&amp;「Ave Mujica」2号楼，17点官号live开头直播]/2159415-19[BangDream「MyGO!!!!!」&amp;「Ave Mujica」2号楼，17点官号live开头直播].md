@@ -3097,3 +3097,21 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 真的Kirakiradokidoki吗
 
+
+*****
+
+####  基神的强袭自由  
+##### 26876#       发表于 2025-1-23 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67207439&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-17 18:12</a>
+
+定制冠军来咯</blockquote>
+五剑下天山
+
+*****
+
+####  lkjasd  
+##### 26877#       发表于 2025-1-23 13:19
+
+栗子被孤立？不会吧
+
