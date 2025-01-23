@@ -9942,3 +9942,14 @@ PV1的画面是全部都出现在剧场版了吗
 甚至比那更早
 正式在79年是没有可以塞到MS驾驶舱周围的塞可缪材料的
 
+
+*****
+
+####  ティグル  
+##### 5352#       发表于 2025-1-23 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256950&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-23 18:37</a>
+
+其实联邦哪里技术水平好像也变高了 能在钢加农上装俩光束加农 还能同时开火 原本这会有出力怎么高的炉子吗 ...</blockquote>
+MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯定是比正史要高的
+
