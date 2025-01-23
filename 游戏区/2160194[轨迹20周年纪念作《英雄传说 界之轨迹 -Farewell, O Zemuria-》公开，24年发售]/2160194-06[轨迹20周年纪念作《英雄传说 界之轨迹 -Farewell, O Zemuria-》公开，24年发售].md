@@ -228,3 +228,23 @@ a1b8e45c1038534329662709d513b07ecb808884.jpg
 是不是把4k当2k了。。。我看到最高分辨率是8k。。。</blockquote>
 你说得没错....我开4k全开了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  alucardcz  
+##### 7469#       发表于 2025-1-23 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257400&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-23 19:31</a>
+
+你说得没错....我开4k全开了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过有一说一 这分辨率设置的方式我第1次见 
+
+*****
+
+####  提挈天地  
+##### 7470#       发表于 2025-1-23 20:31
+
+关闭垂直同步后，CPU好像完全不干活，蠢蠢全用GPU跑的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

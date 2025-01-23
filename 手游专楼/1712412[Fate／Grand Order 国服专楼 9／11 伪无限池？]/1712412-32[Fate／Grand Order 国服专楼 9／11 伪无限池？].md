@@ -55,3 +55,11 @@
 
 五十抽没有正雪，放弃了……就一个丑御前不尴不尬的
 
+
+*****
+
+####  khxooo  
+##### 46973#       发表于 2025-1-23 20:36
+
+高难小号打了个金皮卡4T，大号等明天水武藏宝具本开了再打<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
