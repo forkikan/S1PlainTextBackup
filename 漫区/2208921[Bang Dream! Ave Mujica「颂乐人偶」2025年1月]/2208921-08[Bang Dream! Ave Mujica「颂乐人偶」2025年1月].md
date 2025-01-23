@@ -11965,3 +11965,54 @@ pareo跑路那段我忘了，masking受伤可是直接让layer硬是wow了半天
 
 不是有说喵梦的鼓很便宜吗，大杯拿铁嘴上说怕肥其实是舍不得花钱喝吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 11514#       发表于 2025-1-24 03:58
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 03:59 编辑 
+
+而对其他三人没有感知到木头异常的一个可能解释，是祥子单方面的放大了这种违和感，实际上木头并没有那么极端
+
+这也能解释初华开门那段戏的演艺，主视角一直都是跟在初华身后的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plok201  
+##### 11515#       发表于 2025-1-24 04:01
+
+大喵老师真的家庭美满么，会不会也是什么叙诡烟雾弹，按现在什么都不能信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说不定其实祥爹也是演的，大祥老师因为老妈的死得了精神病不想继承家族，老爹忍辱负重联合乐队4个人专门演一场帮忙治病
+
+*****
+
+####  wqan1007  
+##### 11516#       发表于 2025-1-24 04:01
+
+我觉得广电审核不可能接受人格分裂了不去医院反过来加强刺激还能包饺子这种价值观 过审的番剧一定没真分裂
+
+*****
+
+####  沙坪坝沙耶香  
+##### 11517#       发表于 2025-1-24 04:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262489&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-24 03:09</a>
+
+为什么祥子穿着演出服出去，结果穿着常服的初华来给祥子送伞，祥子出去的时候初华穿的还是演出服。 ...</blockquote>
+初华叙述者说的又一力证
+
+*****
+
+####  oyss  
+##### 11518#       发表于 2025-1-24 04:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262489&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-24 03:09</a>
+
+为什么祥子穿着演出服出去，结果穿着常服的初华来给祥子送伞，祥子出去的时候初华穿的还是演出服。 ...</blockquote>
+排练结束换回来,你看后几个镜头
+
