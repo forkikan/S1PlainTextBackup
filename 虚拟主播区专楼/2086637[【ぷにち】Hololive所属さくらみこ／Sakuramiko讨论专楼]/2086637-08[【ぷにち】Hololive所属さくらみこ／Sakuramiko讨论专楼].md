@@ -431,3 +431,26 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 该来的要来了，昨天直播就说了一大波告知即将到来
 
+
+*****
+
+####  holofan  
+##### 10715#       发表于 2025-1-23 12:35
+
+<img src="https://img.saraba1st.com/forum/202501/23/123538wz2n6e3ozne4o3ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:35 上传
+
+。。。
+
+*****
+
+####  karastar  
+##### 10716#       发表于 2025-1-23 12:36
+
+被夺舍了
+
