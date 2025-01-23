@@ -152,3 +152,16 @@ pc和ps版有啥区别吗，是有简中了
 
 这次按键设置怎么还退步了。。。有些按键是不是改不了 战技只能按c？ 以前习惯按z了。。。
 
+
+*****
+
+####  alucardcz  
+##### 7462#       发表于 2025-1-23 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254660&amp;ptid=2160194" target="_blank">Aeons 发表于 2025-1-23 14:31</a>
+
+pc和ps版有啥区别吗，是有简中了</blockquote>
+简中 繁中 韩文
+
+不知道Ps什么情况  pc4k120fps画质拉满很流畅
+

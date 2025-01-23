@@ -9414,3 +9414,46 @@ NT机关培养出来开最新机体的首席是个没上过战场的雏鸟。
 
 军校哥这手操有点厉害的
 
+
+*****
+
+####  Gysumitka  
+##### 5299#       发表于 2025-1-23 14:49
+
+机战片段太劲了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 5300#       发表于 2025-1-23 14:50
+
+不愧是EVA新剧场版的人马
+
+这机战的表现力<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 5301#       发表于 2025-1-23 14:53
+
+怎么突然跟直播楼一样，不要恰独食啊
+
+*****
+
+####  刺客ares  
+##### 5302#       发表于 2025-1-23 14:54
+
+直接去B站搜夏亚，按最新排序
+
+有0079线夏亚和夏利亚冲向所罗门的机战戏
+
+*****
+
+####  Gysumitka  
+##### 5303#       发表于 2025-1-23 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254873&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-23 14:53</a>
+怎么突然跟直播楼一样，不要恰独食啊</blockquote>
+阿b或者抖都有发
+

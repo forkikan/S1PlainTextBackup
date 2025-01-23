@@ -3133,3 +3133,16 @@ Roselia 「Stille Nacht, Rosen Nacht」SHANGHAI 票务信息正式解禁
 
 沪萝恐怖如斯
 
+
+*****
+
+####  550616  
+##### 26880#       发表于 2025-1-23 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67254133&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2025-1-23 13:34</a>
+
+万人场秒空，你邦现在国内这人气是真有点恐怖了吧，我都开始觉得之前某些人吹的组团来鸟巢是真能坐的满的了 ...</blockquote>
+冷知识，八万人从没满开过，哪怕足球都不行，当地公安就不允许
+
+去年暑假梅奔被刘德华还是谁包了，那个环境最好。。。
+
