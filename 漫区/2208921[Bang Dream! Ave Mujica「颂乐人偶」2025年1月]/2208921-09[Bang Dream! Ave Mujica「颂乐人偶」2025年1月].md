@@ -2849,3 +2849,166 @@ a团真正的不和谐音并不是哪个角色，而是a团本身。对比过去
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  wpcc  
+##### 12093#       发表于 2025-1-24 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268157&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-24 16:23</a>
+
+也算是大祥老师的定位才是，虽然表现得不太好。
+
+a团真正的不和谐音并不是哪个角色，而是a团本身。对比过 ...</blockquote>
+已经没办法变成乐团了 因为核心是大祥的原生家庭问题 不解决这个就无法召唤白祥，这事你得kkr来
+
+*****
+
+####  bird-lay  
+##### 12094#       发表于 2025-1-24 16:27
+
+喵梦努力难道剩下写剧本写歌写词跑采访安排日程表的就不努力吗
+
+怎么好像洗得像她努力了没蹭上流量别人都对不起她一样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 12095#       发表于 2025-1-24 16:27
+
+这样说吧，A团是辆车，其他人是轮胎，祥子是发动机，就算买轮胎遇到奸商坑骗买到了粗制滥造的劣等品，那危害能有发动机出问题大 ? 就算是因为爆胎出了事故车撞坏了，那不修发动机，只修轮胎，这车就能跑了，开什么玩笑，更何况这车的发动机和制动早就有问题，这车你敢开 ? 我们来看乐队表演，是来看车比赛的，不是来看昏厥起步和换胎的，那光要个车架就行了，还要赛场干什么，你想看换十三集轮胎是你的事，言尽于此
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 12096#       发表于 2025-1-24 16:27
+
+如何让大祥把队友当人看的前提是这五个都是正常人 现在五个精神病组歌剧我看独角兽是没法写的
+
+*****
+
+####  哈曼的YY  
+##### 12097#       发表于 2025-1-24 16:28
+
+<blockquote>scorbian 发表于 2025-1-24 16:13
+话说回来海铃真的是冷面笑匠，每次她说话我都想笑
+
+“我数学很好，不用了”
+
+“我这人是吃不胖的体质”</blockquote>
+癫狂的结尾让我完全忘了这股清流
+
+*****
+
+####  wpcc  
+##### 12098#       发表于 2025-1-24 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268186&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 16:27</a>
+
+这样说吧，A团是辆车，其他人是轮胎，祥子是发动机，就算买轮胎遇到奸商坑骗买到了粗制滥造的劣等品，那危 ...</blockquote>
+道理是这个道理 舅舅剧透说发动机是灯皇修好的 我现在看已经是烂完了 但是比不修强
+
+
+*****
+
+####  aptx8285144  
+##### 12099#       发表于 2025-1-24 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268159&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 16:24</a>
+
+大猫现在不就是素世定位，但是观感上没那么别扭导致看上去还行，还有就是和灯长的太像了，不像是无意的
+
+— ...</blockquote>
+素世是大祥或者说老乐队可以是家人的“舔狗”，手段难看，最后逼格也不行，但是目标也算令人同情，喵梦主要是这种乐队是流量工具的意图要改，这个意图改了就能洗白<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  itsmyrailgun  
+##### 12100#       发表于 2025-1-24 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">Mortis感觉后面那些夸张的发言有明显的突兀感，感觉是表演成分比较多的发言，目的可能是为了保护小睦。
+
+因为
+
+和小翔一块让小睦痛苦。
+
+有avemujica让小翔和小睦在一起。
+
+所以：应该想办法破坏ave mujica
+
+这一集评分怎么样，得看下一集回收，如果说下一集我们发现，我们作为观众也被Mortis戏耍了
+
+那我的评价才会很高。
+
+*****
+
+####  wpcc  
+##### 12101#       发表于 2025-1-24 16:31
+
+mujica出发点就是祥子自己整个给自己爽的乐队 最后送瘟神的肯定还是得自己来 但是目前很明显是做不到的
+
+*****
+
+####  necroia  
+##### 12102#       发表于 2025-1-24 16:31
+
+让伪人队友修有点强伪人所难，自己补完自己那后续直接变成大祥传，结果现在刚好有个一直塞纸条的狂暴小企鹅跃跃欲试……
+
+*****
+
+####  刑部姬真可爱  
+##### 12103#       发表于 2025-1-24 16:32
+
+假如最后卷寿司喵梦向祥子下跪苦苦求原谅，大家会替祥子原谅喵梦吗？
+
+假如最后卷寿司祥子向其他三人下跪苦苦求原谅，大家会替其他三人原谅祥子吗？
+
+*****
+
+####  瞳映山川  
+##### 12104#       发表于 2025-1-24 16:32
+
+这新图怎么把睦的腰给没收了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12105#       发表于 2025-1-24 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵都无所谓了，反正编剧工具人
+睦这个问题是真要疯了。到底是不是双重人格？妈耶要是没让剧内角色说出来还好，但偏偏让初华说了（虽然初华是问句还有谎话嫌疑）我真要怀疑wsd疯了
+更恐怖的是现在这种这集知道睦还是莫提斯的状态还好，如果下一集还不给主视角，端上来个和原来一样的睦，观众敢不敢认啊？
+真的不如说睦记恨起祥子故意报复拆团呢
+
+*****
+
+####  ape-apple  
+##### 12106#       发表于 2025-1-24 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268186&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 16:27</a>
+这样说吧，A团是辆车，其他人是轮胎，祥子是发动机，就算买轮胎遇到奸商坑骗买到了粗制滥造的劣等品，那危 ...</blockquote>
+轮胎还能让发动机爆炸的？不就是轮胎指责发动机：你又不用天天吃土，只要喝油就行。而且现在是左前轮想让右前轮自己飞，要不就拆发动机走人，左后轮说：这玩意跑一个咱们车就抛锚了，左前轮说：好啊，支持啊
+
+*****
+
+####  厚乳果珍爽  
+##### 12107#       发表于 2025-1-24 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我到觉得如果真是一个商业团，喵梦在第一级干的事情就该被踢了，祥子说过把你的人生交给我，那就只能对他负责，总之把事情原过去了。不就是苦了点累了点吗？
+
+祥子每天晚上通宵时候想到喵梦又涨粉又吃流量的时候，自己按下键盘的手指也不知觉得变得轻快了起来。
+
+*****
+
+####  hulaoda007  
+##### 12108#       发表于 2025-1-24 16:33
+
+我倒觉得黑祥组a团的真正原因是想道别白祥。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+黑祥的一切几乎是白祥的反面。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我觉得大祥才是以后a团真正的猫位。
+

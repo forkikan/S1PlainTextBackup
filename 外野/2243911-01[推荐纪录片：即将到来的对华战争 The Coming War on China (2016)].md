@@ -1672,3 +1672,16 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 他的核武器也是搞笑的，核试验也不完整，导弹都不完备，缺乏威胁。
 
+
+*****
+
+####  logiccat  
+##### 150#       发表于 2025-1-24 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267929&amp;ptid=2243911" target="_blank">mandown 发表于 2025-1-24 15:59</a>
+
+美国现在是不是准备拉拢印度来对付中国?印度应该算陆上大国了吧，人口比中国多，也有核武器 ...</blockquote>
+然而印度这个国家有万般不好，有一点好就是圆滑，你美国真拉印度打中国，那肯定他不会干的。
+
+在说印度也不是没有后顾之忧。
+
