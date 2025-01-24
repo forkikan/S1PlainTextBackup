@@ -11939,3 +11939,58 @@ GiDuuJKbQAEvdel.jpg
 国内哪里有好评环境了</blockquote>
 他人不是在日本吗？
 
+
+*****
+
+####  王留美  
+##### 5543#       发表于 2025-1-25 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271781&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-25 00:43</a>
+ 他人不是在日本吗？</blockquote>
+他ip不是在北京？
+
+*****
+
+####  线程召唤使  
+##### 5544#       发表于 2025-1-25 00:48
+
+第一部看的高达是08ms，一个下午和ew一起租的vcd，再看的ew。
+
+租碟的时候还看到卡喵，没选z，那个时候就已经看壳子能分辨“这部画面应该比较破，没那两部好看”
+
+第一个买的是x高达，假胶，
+
+前两年过年还翻出小学一年级买的龙星丸，当然也是假货。
+
+*****
+
+####  Gysumitka  
+##### 5545#       发表于 2025-1-25 00:49
+
+<img src="https://p.sda1.dev/21/795717a838e4f03651d765583afb2109/image.jpg" referrerpolicy="no-referrer">
+uce更新内容剧透，有没有人看到过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 5546#       发表于 2025-1-25 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271142&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 23:59</a>
+
+这次是原创TV，后面全是未知的舞台，比之前有原作小说打底的UC世界观作品更刺激
+
+另外揭示板群众说好像玛秋 ...</blockquote>
+第3张洗衣店没有出现。
+
+
+*****
+
+####  YU_JI  
+##### 5547#       发表于 2025-1-25 00:53
+
+ 本帖最后由 YU_JI 于 2025-1-25 00:55 编辑 
+<blockquote>王留美 发表于 2025-1-25 00:46
+他ip不是在北京？</blockquote>
+
+哦，搞错了，我看他动态在日本我还以为他一直在日本）不过院线上映有repo出来之后，国内倒也没有差评一边倒的情况了，尊重哥不至于完全不看院线反馈吧
+

@@ -6187,3 +6187,61 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  半年  
+##### 12388#       发表于 2025-1-25 00:46
+
+<img src="https://p.sda1.dev/21/82229a0f891d34c3bcfa5f4de5b28e1e/GiDdkxfbMAEyEGV.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Slug10000/status/1882748277894058258/photo/1](https://x.com/Slug10000/status/1882748277894058258/photo/1)
+
+*****
+
+####  6030sylar  
+##### 12389#       发表于 2025-1-25 00:49
+
+第三形态是既不会弹吉他也不会演戏的废人状态吗
+
+
+*****
+
+####  fmketchup  
+##### 12390#       发表于 2025-1-25 00:53
+
+ 本帖最后由 fmketchup 于 2025-1-25 00:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271759&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-25 00:37</a>
+
+晚上把鸡团的歌拉了一下，从元素专拉到同名曲，就感觉啊，如果接下来还继续接着发生类似酒店之战这样难绷的 ...</blockquote>
+我觉得还就得是软糯小章鱼被生活捶打完了狠狠编交响金发泄才对劲，突出一个不疯魔不成活。
+
+目前小祥精神状态还是有点太稳定了，都没崩溃过在天台徘徊呢，怎么继续创作啊。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 12391#       发表于 2025-1-25 00:54
+
+<blockquote>6030sylar 发表于 2025-1-25 00:49
+第三形态是既不会弹吉他也不会演戏的废人状态吗</blockquote>
+你是指在睡觉的睦吗？
+
+*****
+
+####  arachnid  
+##### 12392#       发表于 2025-1-25 00:54
+
+看见你们说第三形态我突然想到这图<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e9670c086d05801b3a6c123108c48036/QQ图片20250125005136.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 12393#       发表于 2025-1-25 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271800&amp;ptid=2208921" target="_blank">半年 发表于 2025-1-25 00:46</a>
+
+https://x.com/Slug10000/status/1882748277894058258/photo/1</blockquote>
+半夜看着实吓人
+
