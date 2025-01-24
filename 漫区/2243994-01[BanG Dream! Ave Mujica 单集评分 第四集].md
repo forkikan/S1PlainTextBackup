@@ -2776,3 +2776,21 @@ Mortis双重人格说我倒是没什么意见，从第三集看再怎么切割�
 
 提醒 mujica目前独角兽只有第一集的单集脚本
 
+
+*****
+
+####  稀勢のささ  
+##### 302#       发表于 2025-1-24 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265444&amp;ptid=2243994" target="_blank">千本blur 发表于 2025-1-24 11:51</a>
+
+我只想说mortis为什么不去讨厌强摘面具挤压自己的家庭空间不懂善待队友一心只有炒作流量博眼球小人作风的大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半身的含金量，都喜欢对最亲近的人输出
+
+*****
+
+####  帝下室の年糕  
+##### 303#       发表于 2025-1-24 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且第一集是双人脚本排第二，推上也说过这个季度只有单数月有她的脚本，下集没有的话那可以确定全片只参与了半集脚本了
+
