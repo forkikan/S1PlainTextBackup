@@ -5341,3 +5341,73 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  akiomn  
+##### 12313#       发表于 2025-1-24 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270660&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 21:43</a>
+姐们从幼儿园到高中，怎么说认识十来年了吧，俩姐妹认识十年了，你不爽你说好吧？你要是生气这段时间丰川祥 ...</blockquote>
+不是，最可怕的是啥？十几年的姐妹，莫提斯自己说的小时候就存在了，那岂不是睦瞒了祥子十几年自己有双重人格？
+祥子把自己的秘密都跟睦说了，结果睦瞒着祥子瞒了个最重要也是最要命的信息
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我tm越盘这莫提斯剧情越离谱了，还有祥子说的睦以前爱笑爱说话，那祥子以前碰上的是睦还是莫提斯？
+
+*****
+
+####  江口夕  
+##### 12314#       发表于 2025-1-24 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270678&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 21:46</a>
+不是，最可怕的是啥？十几年的姐妹，莫提斯自己说的小时候就存在了，那岂不是睦瞒了祥子十几年自己有双重 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是睦，之前在ktv笑的难道是鬼啊
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  yaneis  
+##### 12315#       发表于 2025-1-24 21:50
+
+<blockquote>Lyzers 发表于 2025-1-24 21:31
+所以说母鸡卡这边目前出现的问题已经太硬核太重了，随便拉一个出来的严重程度都已经能把狗团那边一整季的内 ...</blockquote>
+她要是爆完了开始回收那还好说，但都明着告诉你初华害得爆，这可不是一个念诗能救回来的了
+
+*****
+
+####  akiomn  
+##### 12316#       发表于 2025-1-24 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270691&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 21:49</a>
+
+当然是睦，之前在ktv笑的难道是鬼啊
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就冲现在睦瞒着祥子瞒了个最要命的信息，双重人格实锤的话，哪怕睦回来，我是祥子我要疯了，搁着我把自己信息全和你说了，亲妈还把我托付给你，结果你瞒着我瞒了个最大最爆的秘密？
+
+塑料姐妹啊，之后还考虑到祥子要把睦拉回来，真给祥子封个圣吧
+
+*****
+
+####  江口夕  
+##### 12317#       发表于 2025-1-24 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270706&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 21:51</a>
+就冲现在睦瞒着祥子瞒了个最要命的信息，双重人格实锤的话，哪怕睦回来，我是祥子我要疯了，搁着我把自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能，你说的就不成立，谁瞒谁了，睦知道自己有第二人格么。你知道你喝醉酒了会干什么么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  屑猫猫  
+##### 12318#       发表于 2025-1-24 21:53
+
+<blockquote>ntrntr1 发表于 2025-1-24 21:39
+嗨现在感觉讨论了这么多其实没啥用。。。非要现实的看其实该怪经纪公司吃干饭
+
+至少目前来看感觉喵梦就是 ...</blockquote>
+大猫是按钮就不说了。睦这个安排能理解，她有一些负面情绪需要排泄。但给出的信息量不足而且观感确实很差，如部分漏油所说斗的精彩点观感都没这么差，哪怕是情理之中的这几个人讨论的话题远超mortis理解，她也只是跟闹脾气一样，喵梦在那儿说着正论让这段看着更诡异了
+
