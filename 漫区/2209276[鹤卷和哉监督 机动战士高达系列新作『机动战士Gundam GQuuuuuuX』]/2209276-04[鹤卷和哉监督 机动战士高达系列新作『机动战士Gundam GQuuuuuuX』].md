@@ -10535,3 +10535,14 @@ MSV设定里面OYW末期有单肩光束炮的钢加农2，这边技术水平肯�
 
 修司不会是想要找能kirakira的同类吧
 
+
+*****
+
+####  卑弥呼yamato  
+##### 5411#       发表于 2025-1-24 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264125&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-24 10:05</a>
+
+5ch还有从kirakira联想到黑拳对麻球像是drug一样的，太不健全了</blockquote>
+驾驶高达打架对于麻球现在来说就是刺激吧
+
