@@ -15315,3 +15315,186 @@ mujica第四话看乐子派和合理派开始争吵，与片内剧情走向过�
 真的是双重人格不是多重人格吗？第三集节约宝怎么陪的墨提斯都注明是谁，而且第二集睦从更衣室断片到舞台也到最后一曲，之前是这个代打墨提斯明显是会吉他技术还不差<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 当然也有可能现在的墨提斯就是纯演不会吉她就为了拷打折磨祥子，这样就是纯反派最后只有被睦祥完全消灭一条路
 
+
+*****
+
+####  akiomn  
+##### 11824#       发表于 2025-1-24 12:48
+
+重新盘了下第四集，不对劲啊
+
+对喵梦：“大家各自展示自己的优点，让mujica发展更好”(四集没展示)
+对海铃：mujica成为自己的归宿(四集没展示)
+对初华：出租车上，剧中有
+单独谈话，并且对初华说了要对祥子保密，其他两个人的说法也是隐藏的，看样子也保密。
+
+和三个人打好关系后，就出现了Apart，四个人有说有笑，祥子一个人当汉景帝无能狂怒，被孤立。
+巧的是这时候mujica还没开始为下一次巡演合练
+
+然后mortis开始发力了：
+我不会弹吉他哦，是祥子你让我加入mujica的，我不会哦
+海铃都无语了：那巡演第一天你弹的是啥
+
+这么个逻辑盘下来，莫提斯就是故意炸团再把自己伪装成最不希望炸团的那个，其他三个没法指责莫提斯了
+
+*****
+
+####  一心而用  
+##### 11825#       发表于 2025-1-24 12:48
+
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第3话 ​​​
+<img src="https://p.sda1.dev/21/3e7d1577f4e87cd1e7593dabc1a88114/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11826#       发表于 2025-1-24 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266029&amp;ptid=2208921" target="_blank">苌门有K 发表于 2025-1-24 12:47</a>
+当然是故意来解散啊，甚至大概率合伙了大喵甚至海铃。
+
+下大棋总比怂了叫个所谓的第二人格出来把坏事都推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样的角色有决心和弧光，你搞笑吧，搁这把发小往死里整呢
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  dgugvff  
+##### 11827#       发表于 2025-1-24 12:50
+
+<blockquote>zhigui 发表于 2025-1-24 03:38
+半夜睡不着在床上翻来覆去想了很久，感觉又不对了
+
+大喵在团里好像付出最少收获最多啊
+
+剧本不是你写，日程不 ...</blockquote>
+这就是剧情问题了，你把标签贴上但是做出来的和表现的完全不符逻辑，这集就是有问题
+
+*****
+
+####  江口夕  
+##### 11828#       发表于 2025-1-24 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266039&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 12:48</a>
+真的是双重人格不是多重人格吗？第三集节约宝怎么陪的墨提斯都注明是谁，而且第二集睦从更衣室断片到舞台也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代打在哪呢，别脑补。这集说了当时睦是没弹
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  iiiiiiiiii  
+##### 11829#       发表于 2025-1-24 12:51
+
+还有一个疑问，睦的双人格是睦真的双人格还是初华认为的双人格。首先睦双人格是初华自己说的，也是她第一个提出来的。第二睦的双人格不可能叫莫提斯，因为莫提斯是祥子根据月球的月海给五个人起的名字，莫提斯叫莫提斯犯了时间悖论，除非穿越时空，或者全知全能。
+
+*****
+
+####  厚乳果珍爽  
+##### 11830#       发表于 2025-1-24 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外问一个问题，邦里有像喵梦这种非全日制学生的成员吗？未来会不会有转学进学校的剧情啊？
+
+*****
+
+####  天空塔书记官  
+##### 11831#       发表于 2025-1-24 12:52
+
+而且小剧场和空气朋友不能作为第二人格存在的证明，因为每个人多少都会有恶魔和天使的内心戏
+
+况且木头真的没有厌恶祥子的那一面吗，和家人朝夕相处都会有矛盾的积累，现在只是把矛盾引爆了而已
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  稀勢のささ  
+##### 11832#       发表于 2025-1-24 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265956&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 12:40</a>
+
+这句话建议丢给在19年看第二季的老观众，现在可是25年了，甚至在第三季楚平方还踩了R团一脚，导致部分萝 ...</blockquote>
+不同团踩人你甚至可以当成提纯，大不了老死不相往来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果大喵真洗不白了，这种在团内才是真的恶心自家粉丝好吧，水平团内垫底，满脑子都只有自己，台上切割角色/世界观，这不是我们LL零元吗
+
+*****
+
+####  天空塔书记官  
+##### 11833#       发表于 2025-1-24 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266080&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 12:51</a>
+另外问一个问题，邦里有像喵梦这种非全日制学生的成员吗？未来会不会有转学进学校的剧情啊？ ...</blockquote>
+谁也没说过喵梦是非全日制的，她和RAS的主唱瑞依是一个学校的前后辈，只是音高不要求穿校服而已<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KLHgg  
+##### 11834#       发表于 2025-1-24 12:53
+
+mujica前四集给了大量电视采访的片段，练习的场景几乎没有，甚至剧中人演出前才有机会合奏一次
+
+如果说这是刻意编排的，那么10本你在写一种很新的乐队番
+
+
+*****
+
+####  ParadiseMartyr  
+##### 11835#       发表于 2025-1-24 12:54
+
+悲伤通常被认为是一个渐进的过程，分为五个阶段，每个阶段都伴随着特定的心理变化：
+
+‌否认‌：面对突然的不幸，人们的第一反应往往是否认。他们不愿意相信这是真的，试图逃避现实，可能会通过重演一些过去和爱人一起进行的仪式来使自己确信生活没有变化。
+
+‌愤怒‌：随着时间的推移，人们逐渐接受事实，愤怒随之而来。他们可能会责怪自己或他人，情绪容易变得悲愤和激动。
+
+‌讨价还价‌：在这个阶段，人们可能会试图与命运讨价还价，寻找一种解决问题的方法，或者试图通过谈判来改变现状。这通常表现为一种希望一切如旧的心理表现。(Now you are here)
+
+‌沮丧‌：当人们意识到无法改变现实时，可能会陷入沉闷和抑郁的情绪中。这个阶段充满了悲伤和失落，人们可能会感到疲倦、无精打采，甚至会有轻生的念头。
+
+‌接受‌：这是悲伤的最后一个阶段。人们开始接受现实，学会如何与自己的情绪和平共处，尽管这并不意味着他们不再感到痛苦。他们开始思考如何面对未来，如何继续生活。
+
+*****
+
+####  天空塔书记官  
+##### 11836#       发表于 2025-1-24 12:55
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266097&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-1-24 12:53</a>
+不同团踩人你甚至可以当成提纯，大不了老死不相往来
+
+如果大喵真洗不白了，这种在团内才是真的恶心自家粉 ...</blockquote>
+你以为RAS就没有其他成员的唯粉?
+
+炸三团的可是楚平方这一个人，而不是RAS这个整体，她连自己团都炸的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 11837#       发表于 2025-1-24 12:56
+
+承认柿本广大是个菜逼就这么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11838#       发表于 2025-1-24 12:56
+
+ 本帖最后由 江口夕 于 2025-1-24 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266074&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 12:51</a>
+还有一个疑问，睦的双人格是睦真的双人格还是初华认为的双人格。首先睦双人格是初华自己说的，也是她第一个 ...</blockquote>
+双重人格是大祥认为的，大祥说的你不是睦，后面的阻挡
+
+一方面是不知道你要做什么怕你做出异常的举动比如说打人
+二是因为你很陌生很害怕
+初华只是对大祥的说辞做出猜测
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

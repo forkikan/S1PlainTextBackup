@@ -11058,3 +11058,39 @@ jk要萌，杀了人的jk会变得可怕就不够萌了，所以不会发生的�
 
 听说黑拳赛已经拿下人头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  有没有看过的来确认下
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 5462#       发表于 2025-1-24 12:49
+
+只是打掉对面头部显示器了啊（）另一台我忘了什么输法了，至于里面人似没似看不出来，一没人血二没爆炸，虽然比赛也不禁止鲨人，只有一条规则就是打掉头部算胜利，所以麻球比的时候挺怕死的
+
+*****
+
+####  0aleph37  
+##### 5463#       发表于 2025-1-24 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266015&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-24 12:46</a>
+
+jk要萌，杀了人的jk会变得可怕就不够萌了，所以不会发生的思路吧</blockquote>
+jk杀人这种反差萌在令和已经不流行了吗？
+
+*****
+
+####  Gysumitka  
+##### 5464#       发表于 2025-1-24 12:53
+
+jk不能杀人总不能去刷无人机，好像上一个就... 
+
+
+*****
+
+####  JustW  
+##### 5465#       发表于 2025-1-24 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266053&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-24 12:49</a>
+
+只是打掉对面头部显示器了啊（）另一台我忘了什么输法了，至于里面人似没似看不出来，一没人血二没爆炸，虽 ...</blockquote>
+只要打爆一架就够了吧，那一架只是被砍了一刀
+
