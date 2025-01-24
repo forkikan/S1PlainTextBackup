@@ -6367,3 +6367,17 @@ https://x.com/Slug10000/status/1882748277894058258/photo/1</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这样，现在双重人格尴尬，演戏也尴尬，双重人格就送医院，邦邦真有医院的，别搞什么乐队了。演戏是祥子都知错了崩溃成那样了，话都说不利索了，就放过祥子吧。更别提四个演一个更是过分到家了
 当然我不觉得鸡团真的会被拆，只是停止活动，毕竟鸡的设定是舞台上完美表演，肯定会让观众以为鸡团只是用舞台剧表示自己要停止活动了
 
+
+*****
+
+####  dbyboy  
+##### 12405#       发表于 2025-1-25 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270904&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-24 22:22</a>
+一直有人说国产冻鳗的软肋是剧本
+
+如果大家也能拿出同样的热情去冲国产冻鳗，该少走多少弯路啊 ...</blockquote>
+你在搞笑吗，大家不冲的原因是早就绝望了，以前又不是没有过精品。然而大众审美水平就摆在那里，就像从电竞圈引流来的抽象狗们还在喊着爆爆爆一样，你不会觉得这些人真的关心剧本吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
