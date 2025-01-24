@@ -355,3 +355,16 @@ xbox手柄补丁，根目录覆盖
 
 反正OST网上也有资源了，着急可以先听一遍
 
+
+*****
+
+####  kenqqex  
+##### 7482#       发表于 2025-1-24 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262801&amp;ptid=2160194" target="_blank">peshing 发表于 2025-1-24 06:03</a>
+
+音乐难听，台词元素重复，什么台面上下我他妈五句话就会看到一次，真的要吐了。 ...</blockquote>
+【【慎入 含剧透】《轨 言 轨 语》界之轨迹篇——塞姆利亚大陆对话公式1.0】 [https://www.bilibili.com/video/BV1wmyKY3E9D/](https://www.bilibili.com/video/BV1wmyKY3E9D/)
+
+来看看这个 把这3个视频看完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
