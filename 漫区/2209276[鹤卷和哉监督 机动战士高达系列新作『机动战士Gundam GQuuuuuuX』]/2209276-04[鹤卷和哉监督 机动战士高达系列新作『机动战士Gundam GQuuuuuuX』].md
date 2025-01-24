@@ -11660,3 +11660,18 @@ cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要�
 
 期待gqx也有大的能复刻闪哈楼的讨论盛况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5517#       发表于 2025-1-24 22:58
+
+泥楼别闹到无话可聊豚厨大战感觉就已经胜利了）
+
+*****
+
+####  刺客ares  
+##### 5518#       发表于 2025-1-24 22:59
+
+这次是原创TV，后面全是未知的舞台，比之前有原作小说打底的UC世界观作品更刺激<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
