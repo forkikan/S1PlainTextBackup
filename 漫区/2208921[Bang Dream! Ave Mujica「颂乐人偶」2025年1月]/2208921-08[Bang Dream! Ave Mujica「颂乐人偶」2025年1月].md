@@ -14651,3 +14651,78 @@ mygo官漫还真是soyo当主角啊
 而且pv里还有一个穿常服看着摆在大宅钢琴上的手 ...</blockquote>
 应该就是半年，因为预告里面全部都是单飞活动，不是一两个月能搞定的。
 
+
+*****
+
+####  厉飞雨  
+##### 11760#       发表于 2025-1-24 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">把利息拉过来打鼓，就是纯Kirakiradokidoki的故事了
+
+
+*****
+
+####  厚乳果珍爽  
+##### 11761#       发表于 2025-1-24 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265384&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-24 11:44</a>
+
+快过年了我特么还在上班，不过大部分时间都在摸鱼。
+
+早上回顾剧情的时候越想越不对劲，这饺子要怎么包？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个团里核心矛盾就是猫跟祥子的，只要把猫的问题处理了，自然就可以包饺子。
+
+其他成员的矛盾更加的是团队以外，这个问题对团队没啥大影响，或者说可以克服的。
+
+*****
+
+####  哈曼的YY  
+##### 11762#       发表于 2025-1-24 11:52
+
+啊...忘了时间是马上要换校服的节点 那可能只过了几天 和卖狗里换校服其实也没过很久一样
+
+*****
+
+####  莉缇娅  
+##### 11763#       发表于 2025-1-24 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265441&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 11:51</a>
+
+整个团里核心矛盾就是猫跟祥子的，只要把猫的问题处理了，自然就可以包饺子。
+
+其他成员的矛盾更加的是团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道母鸡卡要成为邦邦第一个没有团魂的乐队吗
+
+*****
+
+####  Raven314  
+##### 11764#       发表于 2025-1-24 11:52
+
+也不对啊，如果时间线过了半年，那这个杂志怎么还在宣传第四集的初睦两人对谈
+而且从祥子擦拭钢琴灰尘和后盖放下来看，祥子回家半年都没碰过钢琴了<img src="https://p.sda1.dev/21/e75e3201b41a46721b4815ff19101a08/IMG_CMP_66315988.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 11765#       发表于 2025-1-24 11:53
+
+我觉得很真的两个药：
+
+1，喵梦是孤儿院长大的孩子，这点在电话那块异常数量的孩子，哥哥姐姐，还有她“母亲”过于正式的安慰方式上有迹象，如果是孤儿院几个孩子专门组织来看她演出，就可以理解她整个人物的行动逻辑和最后压力祥子的说法。
+
+2，双重人格其实完全就是睦的演技，而喵梦是看出来了这一点，原因不管是因为想报复祥子，或者是音乐性/表演性上的不和想要自己来主导，又或者是祥子给的压力太大了让睦觉得反而是小时候配合父母表演的时候压力还小一点，也可能是这些多重理由的综合，反正睦通过演技来把主导权引导向自己，而喵梦最后爆的视角就是，你们两个大小姐争夺乐队主导权搞得明天可能演不了，结合第一条就是真的血压炸了的表现。
+
+
+*****
+
+####  KLHgg  
+##### 11766#       发表于 2025-1-24 11:54
+
+<img src="https://img.saraba1st.com/forum/202501/24/115439mhswww3nbjjo0gy7.jpg" referrerpolicy="no-referrer">
+
+<strong>tieba.baidu.com_8294a5b20f2442a7e549698d9743ad4bd013029d.jpg</strong> (281.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 11:54 上传
+
