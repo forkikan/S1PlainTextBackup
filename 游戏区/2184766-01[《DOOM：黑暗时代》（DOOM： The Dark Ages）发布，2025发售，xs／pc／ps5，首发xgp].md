@@ -368,3 +368,20 @@ doomTDA的灵感来源，不会是tango那个幽灵线东京吧？？？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">帅帅帅，劲劲劲，霸霸霸！
 
+
+*****
+
+####  Sorastlos  
+##### 211#       发表于 2025-1-24 11:17
+
+标准版349 豪华版499 好贵好贵哟<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+虽然有xgp，但是dlc是不算在内的
+
+
+*****
+
+####  牙晓  
+##### 212#       发表于 2025-1-24 11:22
+
+美服预购普通版70刀，豪华版100刀，送原画和原声，后续有战役dlc但不知道数量一个还是二个，还有没用的猛男皮肤和飞龙皮肤。打算先买普通版。后续有dlc单独买好了
+

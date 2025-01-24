@@ -14177,3 +14177,200 @@ A小消息：武士道员工屯了数以十万记的喵梦谷子，配合操纵�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 11715#       发表于 2025-1-24 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265002&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 11:14</a>
+
+能不能理解了话再回答，怎么感觉都是平行线。这段刑事说明恰恰印证了我说的，刑法都认为酒架不是故意的。 ...</blockquote>
+没错，我不能理解你的意思，你也许可以表达得更明白一点
+
+我要表达的是，睦根本没睡着，是清醒的，顶多是入戏太深以为自己睡着了
+
+*****
+
+####  厉飞雨  
+##### 11716#       发表于 2025-1-24 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">回过头看母鸡卡这团，换了大喵老师基本是能按大祥老师的预期发展的
+初华，睦头听大祥老师的，海玲就打工
+大喵老师现在也是纯挑事工具人
+
+*****
+
+####  江口夕  
+##### 11717#       发表于 2025-1-24 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265069&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:19</a>
+没错，我不能理解你的意思，你也许可以表达得更明白一点
+
+我要表达的是，睦根本没睡着，是清醒的，顶多是 ...</blockquote>
+睦放弃自己了，明白？睦本人格睡着了。并不是什么故意要演莫女士。莫女士就是睦的醉酒或者说做梦形态
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  fljlj  
+##### 11718#       发表于 2025-1-24 11:21
+
+以前没来看过讨论，今天翻了一下讨论，有个很无厘头的问题：
+
+“叙诡”是推理小说几种诡计“物理诡计”“心理诡计”“叙述诡计”中“叙述诡计”的缩写。“诡叙”是啥，定语中心语颠倒了？推理小说还有一个“核心诡计”一词也很喜欢用“核诡”的缩写，根据语言的类推效应，以后会出现“诡核”这个词吗？
+
+*****
+
+####  阿兹尔  
+##### 11719#       发表于 2025-1-24 11:22
+
+没有喵梦爆不了就不符合wsd要的效果了，结果就是生硬的逻辑和丑陋的冲突
+
+*****
+
+####  KLHgg  
+##### 11720#       发表于 2025-1-24 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子随便找一个像海铃一样有职业素养的鼓手都没那么多事了
+
+
+*****
+
+####  operatbig  
+##### 11721#       发表于 2025-1-24 11:22
+
+这两集给角色口嗨台词发的回旋镖就没少过，大喵那段口嗨正论放个回旋镖也不是不可能。
+
+*****
+
+####  玖羽  
+##### 11722#       发表于 2025-1-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265093&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 11:20</a>
+
+睦放弃自己了，明白？睦本人格睡着了。并不是什么故意要演莫女士。莫女士就是睦的醉酒或者说做梦形态</blockquote>
+这一点上我们有很大分歧，我认为睦没睡着，只是装作睡着了，或者以为自己睡着了（这个区别不重要）
+
+醉酒的时候心里是明白的，你可能想表达喝断片，但喝断片不等于失去神智，也不能比喻为做梦
+
+*****
+
+####  wwwttth  
+##### 11723#       发表于 2025-1-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260458&amp;ptid=2208921" target="_blank">wonner_2012 发表于 2025-1-23 23:48</a>
+
+这段喵梦台词可以认为与之前的剧情有矛盾吗</blockquote>
+答案是网络对线技巧，把一个后面才知道的事实提前来抬自己，小祥在对线技巧上输太多了啊。
+
+*****
+
+####  江口夕  
+##### 11724#       发表于 2025-1-24 11:23
+
+ 本帖最后由 江口夕 于 2025-1-24 11:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265128&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:23</a>
+这一点上我们有很大分歧，我认为睦没睡着，只是装作睡着了，或者以为自己睡着了（这个区别不重要）
+
+醉酒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兄弟，你想表达的东西，现实世界就没有。现实世界也不存在喝醉酒的发酒疯，是平时就想发疯
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厚乳果珍爽  
+##### 11725#       发表于 2025-1-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265028&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:16</a>
+
+我同意是演出来的，但我认为目的是报复祥子，炸团不是睦的本意，她没想到会炸团 ...</blockquote>
+炸团也是报复祥子的手段啊，演出不想炸团的样子只是为了撇清责任罢了。
+
+*****
+
+####  ml1642879  
+##### 11726#       发表于 2025-1-24 11:24
+
+还真是，你要是塑造一个正常人喵梦来捅破四个神人，展开矛盾，应该还好。塑造五个神人互相甩锅，那解散了才是对的，哦不对，真解散了卧槽！
+
+*****
+
+####  求解过程  
+##### 11727#       发表于 2025-1-24 11:24
+
+按理说这剧最后还得包饺子，但是我想不到谁能出手缝补这个烂摊子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风道北来  
+##### 11728#       发表于 2025-1-24 11:24
+
+ 本帖最后由 风道北来 于 2025-1-24 11:27 编辑 
+
+问题就在于大祥老师负责的剧本，作曲这两件事从始至终鸡团其他四个几乎没当回事过
+
+灯神的春日影能把立希变舔狗，诗超绊能放全团复活术。相比之下大祥老师的中二剧场和死亡金属团里有人说过一次好话吗？诗华捧她的时候也只从肯定了她的辛劳，音乐上的成就真是一点也没提过。我琢磨大家live的时候心态可能和上班差不多
+
+这导致速通武道馆这个成就看起来异常空虚，团战的时候无论是大祥老师自己还是绝对中立海玲都没提过。很神奇的现象
+
+*****
+
+####  08df1258c5ed098  
+##### 11729#       发表于 2025-1-24 11:25
+
+入戏太深很恰当，所以才会下意识去逃避吉他。
+
+只要拿起吉他就会让她想起她是睦，拿起吉他就没办法自欺欺人了
+
+*****
+
+####  玖羽  
+##### 11730#       发表于 2025-1-24 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265143&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 11:23</a>
+
+炸团也是报复祥子的手段啊，演出不想炸团的样子只是为了撇清责任罢了。 ...</blockquote>
+这个目前还没有证据，我觉得有点诛心了，反正等下一话应该就能说明
+
+*****
+
+####  iiiiiiiiii  
+##### 11731#       发表于 2025-1-24 11:26
+
+我觉得就是真解散没有重建，但是这样下去究竟怎么写很奇怪。毕竟mygo珠玉在前，mujica还是写了一年反复修改，整部完成度很高的作品。而且节奏出问题就是后半部分，真很难不怀疑是故意的。
+
+*****
+
+####  玖羽  
+##### 11732#       发表于 2025-1-24 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265142&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 11:23</a>
+
+兄弟，你想表达的东西，现实世界就没有。现实世界也不存在喝醉酒的发酒疯，是平时就想发疯</blockquote>
+首先，现实世界<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+再说现实世界怎么就没有呢，装的，或者入戏太深了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 11733#       发表于 2025-1-24 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265168&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:25</a>
+
+这个目前还没有证据，我觉得有点诛心了，反正等下一话应该就能说明</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说睦就是mygo的长期素食位，只不过soyo的目的是重建ccc，而睦是炸团。
+
+*****
+
+####  玖羽  
+##### 11734#       发表于 2025-1-24 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265190&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 11:27</a>
+
+不如说睦就是mygo的长期素食位，只不过soyo的目的是重建ccc，而睦是炸团。</blockquote>
+从这一话的命运共同体对话来看我觉得Soyo位是初华<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
