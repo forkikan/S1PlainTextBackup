@@ -786,3 +786,68 @@ motis可能早就存在，但这个名字可能是后面才有的。
 
 看窝楼楼友才意识到一个问题是，这堆人都最速武道馆还没有音乐上的共鸣，我看的是少，但取得一定成就后滚和beck不都去庆祝了，你们这关系也太塑料了，再怎么也去敬祥子一个啊
 
+
+*****
+
+####  苌门有K  
+##### 11909#       发表于 2025-1-24 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266736&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 14:03</a>
+
+看窝楼楼友才意识到一个问题是，这堆人都最速武道馆还没有音乐上的共鸣，我看的是少，但取得一定成就后滚和 ...</blockquote>
+动画里面有个人说过想开庆功宴，可惜祥子把大喵呛回去了
+
+*****
+
+####  稀勢のささ  
+##### 11910#       发表于 2025-1-24 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266736&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 14:03</a>
+
+看窝楼楼友才意识到一个问题是，这堆人都最速武道馆还没有音乐上的共鸣，我看的是少，但取得一定成就后滚和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就要论她们是凭什么最速武道馆的了，答案是邦邦世界这根本不叫事，只有臭底边大喵（和观众）在意
+
+*****
+
+####  cxj649  
+##### 11911#       发表于 2025-1-24 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266692&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-24 13:57</a>
+
+啥假药能全救啊，初华和莫的拟人程度我大概看40遍都看不明白。
+
+大猫明智跑路我觉得很不崩塌了。 ...</blockquote>
+莫女士还好，就一分出的神经病人格，不用看明白
+
+但初华这人无论有心机还是真的是纯白现在都有点抽象了233
+
+*****
+
+####  天空塔书记官  
+##### 11912#       发表于 2025-1-24 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266705&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 13:59</a>
+希望你身无分文时候去送报纸，我去踩你一脚嘲讽一下把你报纸扔了你也能对我心存感激。我是帮你振作不是害 ...</blockquote>
+所以呢，祥子是真的惨到只能靠水滴筹续命吗，你以为丰川家真的会一直放任不管 ? 她姥爷真的对她一点也不关心 ? 离开颓废的父亲就有可能回到集团当大小姐，虽然祥子是主动出走陪父亲，但集团要是真不想让她走 ，祥子就能走的了吗，绑人还不会绑 ?
+
+你真以为祥子是什么家道中落，悲苦流离的破落户啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 11913#       发表于 2025-1-24 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喵梦睦卫兵的贷款叠甲破产了，该找新的贷款叠甲了
+
+*****
+
+####  Min_FOrder  
+##### 11914#       发表于 2025-1-24 14:12
+
+又看了一遍，大喵其实就是听到祥子遇上大事还在搁那满口乐队、满口音乐性之后才炸的，她给的第一方案是把祥子开了，或者把睦头开了，这也没有炸团啊，很难想象漏油把这里想得那么不合情理。本来对她来说几个人之间也没有什么羁绊可言，飞一个成员换取她顺风顺水走下去，这不是挺符合网红事业批的形象吗？
+
+可惜之后大祥还在念叨什么“想让睦回来”，但大喵很清楚这些烂事都是大祥作出来的，一天之内把睦头人格找回来更无异于天方夜谭，这才拍桌子说我不干了，赶紧跳船，这发展逻辑难道很唐突吗？
+
