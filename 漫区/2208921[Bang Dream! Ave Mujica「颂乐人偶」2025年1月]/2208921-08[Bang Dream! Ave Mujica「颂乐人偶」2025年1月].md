@@ -13628,3 +13628,168 @@ B站源第三集结尾就有台词变色的情况
 墨缇丝这种超自然力量都能被她喷沉默
 太逆天了
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 11660#       发表于 2025-1-24 10:48
+
+喷喵梦不会被说是围喵救祥了，我们mujica有救了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11661#       发表于 2025-1-24 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264611&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 10:46</a>
+我还是认为这件事的内核是睦故意整祥子，孤立祥子、踩祥子的世界观、公开说(复读)祥子除了Mujica什么也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士压根不在乎祥子怎么样好吧，她只在乎自己的生存，被压制十几年好不容易放出来，先想的是如何存货，而且莫女士智商只到小学。莫女士答应睦要维持mujica，维持不住的话，自己可是要挂的，特意去拆队就是自杀
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ddy2811  
+##### 11662#       发表于 2025-1-24 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264177&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 10:10</a>
+
+我说祥子就应该学伊头鬼作，把其他成员的把柄牢牢抓在手上，要他们給祥子演一辈子的人偶。 ...</blockquote>
+如果真的有意如此，那祥子从拉人起的决策就是一塌糊涂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千本blur  
+##### 11663#       发表于 2025-1-24 10:50
+
+这集把前几集的缺点都集中起来了，大猫老师这段家人侠的加戏完全掩盖不了行事作风的混沌和缺乏逻辑。
+
+*****
+
+####  pokemon最爱  
+##### 11664#       发表于 2025-1-24 10:51
+
+说到叙诡就不得不提经典的原创叙诡动画Lost Song了，当时在叙诡揭露前为数不多的追番观众也大都以为只是单纯的烂片没往叙诡上想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总之这集我看的挺开心的，所有人都在发癫，不多评价静待后续剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 11665#       发表于 2025-1-24 10:51
+
+大喵没事就先怼祥子，祥子你攻起来，最绷不住的，居然还怕木头人打她
+
+
+*****
+
+####  玖羽  
+##### 11666#       发表于 2025-1-24 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264672&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 10:50</a>
+
+莫女士压根不在乎祥子怎么样好吧，她只在乎自己的生存，被压制十几年好不容易放出来，先想的是如何存货， ...</blockquote>
+Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型，生存什么生存
+
+我觉得这就是睦被祥子伤透心之后故意整祥子，只是由于狠狠整队友会严重影响人物形象，所以用这种演出方式，搞得好像是另一个人格干的，睦睡着了，跟睦没有关系
+
+*****
+
+####  YF31  
+##### 11667#       发表于 2025-1-24 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264382&amp;ptid=2208921" target="_blank">矢吹奈子 发表于 2025-1-24 10:29</a>
+
+看完这集我觉得若麦老师说小祥是大小姐玩过家家完全正论啊</blockquote>
+其他三个人都比喵圣有资格说牢祥过家家，唯独她不配。
+
+前脚摘面具引流后脚嘴工作人员辛苦，前脚观众至上后脚我要退团，又要拿低道德的优势又要占据道德高地，自私双标无耻给喵圣阐释得淋漓尽致，也就是一群大小姐不会骂人给她胡搅蛮缠说晕了才显得她能。
+
+*****
+
+####  KLHgg  
+##### 11668#       发表于 2025-1-24 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 海铃按理说是有实力硬刚大喵的，但她不下场
+
+*****
+
+####  山ノ内花音  
+##### 11669#       发表于 2025-1-24 10:55
+
+完全不能理解喵梦吵架无敌这个设定有什么意义
+吵架戏好看是因为你来我往势均力敌
+一个人一喷四 到底哪个观众能看开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 11670#       发表于 2025-1-24 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264690&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-24 10:51</a>
+
+大喵没事就先怼祥子，祥子你攻起来，最绷不住的，居然还怕木头人打她</blockquote>
+不是怕被打，是怕被一个陌生人接近。莫女士祥子可不认识
+
+*****
+
+####  08df1258c5ed098  
+##### 11671#       发表于 2025-1-24 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264699&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 10:52</a>
+
+Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型，生存什么生存
+
+我觉得这就是睦被祥子伤 ...</blockquote>
+换个说法就很好理解，Mortis只是睦童年时期给自己玩偶分配的角色（自设）。
+
+从小接触大概不是虚言，演剧的时候睦也确实是童年状态。但这更像睦给自己写的剧本。
+
+从祥要坏了、手在迷茫等等等地方都体现睦自身超人的共情能力，这也导致她的担心只要直接说出来对当事人暴击率奇高。久而久之就没法靠自己表达感情，但是她确实有戏剧的才能，于是可以靠角色表达。
+
+之所以不会弹吉他，因为自己演自己就不叫演了
+
+*****
+
+####  结衣小比取  
+##### 11672#       发表于 2025-1-24 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262216&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 02:19</a>
+
+这里面有两个阶段，你怎么能以各自的立场一概而论。
+
+而且下集预告的演出4个人都同意解散，就非常诡异。非 ...</blockquote>
+你说的那个应该是C Part内容，和预告连在一起的
+
+*****
+
+####  akiomn  
+##### 11673#       发表于 2025-1-24 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这团里能说祥子的，只有海铃，初华，睦，但是这三个都不会直接喷祥子
+唯独喵梦不配，从拆面具那刻开始都是祥子再给喵梦擦屁股，熬夜改剧本还不是因为喵梦摘面具？被逼的精神烂掉还不是因为天天和喵梦对线？到最后祥子终于爆掉了把睦也给逼疯了
+喵梦在团里干啥？除了打鼓外就她最闲了
+
+*****
+
+####  江口夕  
+##### 11674#       发表于 2025-1-24 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264699&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 10:52</a>
+Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型，生存什么生存
+
+我觉得这就是睦被祥子伤 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的完全ooc了，什么ai模型，睦大脑里装4090了？莫女士就是睦的无意识发疯状态没别的，也可以说是二重人格。跟人喝醉酒差不多。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  结衣小比取  
+##### 11675#       发表于 2025-1-24 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263472&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-24 09:04</a>
+
+可以和mygo切割吗？</blockquote>
+可以啊，当初不少MyGO粉丝担心的就是新动画把祥子的事情放在中后段才讲，万一新动画不够好，不方便切割，但是实际上新动画第一话就把遗留问题讲清楚了，那可就太方便了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
