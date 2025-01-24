@@ -12030,3 +12030,14 @@ https://weibo.com/6303938704/5126297578115975
 
 塞可缪和吉翁所属，貌似还把之后所属船也漏了。不过这楼里应该都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 5551#       发表于 2025-1-25 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271963&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-25 02:17</a>
+
+脸红好像是见到修司那里的，其他两个镜头确实没出现</blockquote>
+第一张是麻球第一次上GQuuuuuuX后回家睡觉的镜头。
+
