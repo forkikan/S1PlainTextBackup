@@ -506,3 +506,14 @@ Doom配置要求也出了，和夺宝奇兵一样强制光追打底了，20系n�
 永恒是jump and shoot，就是飞到天 ...</blockquote>
 也就是这代不会有高机动战斗了？
 
+
+*****
+
+####  牙狼GARO  
+##### 223#       发表于 2025-1-24 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267400&amp;ptid=2184766" target="_blank">魔王候补77号 发表于 2025-1-24 15:07</a>
+
+也就是这代不会有高机动战斗了？</blockquote>
+我看那个11分钟的介绍和实机画面，说永恒是战斗机，这次就是重型坦克，估计玩起来不至于像永恒一样高手皇牌空战，但远距离突进、盾牌定位大跳这些还是有的
+
