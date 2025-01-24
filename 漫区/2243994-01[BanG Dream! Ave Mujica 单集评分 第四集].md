@@ -2690,3 +2690,31 @@ Mortis双重人格说我倒是没什么意见，从第三集看再怎么切割�
 
 感觉有点不像现实世界了
 
+
+*****
+
+####  xwr  
+##### 292#       发表于 2025-1-24 12:20
+
+乐，+2吧
+
+*****
+
+####  PigMourne  
+##### 293#       发表于 2025-1-24 12:23
+
+到解散了还在扯头花，那我缺的symbol 1234上哪儿听啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 294#       发表于 2025-1-24 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265444&amp;ptid=2243994" target="_blank">千本blur 发表于 2025-1-24 11:51</a>
+我只想说mortis为什么不去讨厌强摘面具挤压自己的家庭空间不懂善待队友一心只有炒作流量博眼球小人作风的大 ...</blockquote>
+如果你只把喵梦当个起爆器就能理解了，谁会和个按钮计较<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于为啥活生生的一个人变起爆器了，那就得问编剧了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

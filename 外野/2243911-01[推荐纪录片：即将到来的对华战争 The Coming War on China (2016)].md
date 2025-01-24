@@ -1576,3 +1576,17 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 所以福岛炸完之后急匆匆的让灾民返乡是不是也有美帝给的压力，为了继续研究核战后辐射对人类造成的影响？
 
+
+*****
+
+####  stmule  
+##### 143#       发表于 2025-1-24 12:21
+
+诸位楼友还是应该多看看西点严选的教材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+"He who has planned his campaign in advance and reckons that he will win, has many calculations on his side; he who has planned his campaign in advance and reckons that he will not win, has few calculations on his side. With many calculations one can win; with few calculations one cannot win; how much less so if there are no calculations at all! By this I can foresee who will win and who will lose." 
+
+夫未战而庙算胜者，得算多也；未战而庙算不胜者，得算少也。多算胜，少算不胜，而况于无算乎！吾以此观之，胜负见矣。
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
