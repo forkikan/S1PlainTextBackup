@@ -1474,3 +1474,222 @@ weibo：梅比乌斯TUTAI想玩XBX
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 11977#       发表于 2025-1-24 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然某位喵梦厨已经被我屏蔽了，但我还是想说你多吹吹喵梦比车祥更像个喵梦厨
+
+*****
+
+####  Min_FOrder  
+##### 11978#       发表于 2025-1-24 15:05
+
+<blockquote>盐盐盐盐盐 发表于 2025-1-24 14:58
+现在尴尬的是剧里确实没有对am的音乐多少评价，爱音跟风去看演唱会原因是怀疑喵梦是amoris+她们有名+有演戏 ...</blockquote>
+这不就更说明大祥的什么音乐性路线根本就是狗屁了么，玩crythic退团时大伙纷纷不舍，写的歌还被mygo翻奏，她就觉得自己的音乐天下无敌了，实际抵不过烂炒一根。最后我觉得她的归宿就是认识到，凭着一腔报复mygo的怒火、靠着姥爷的钱硬拉的人气，根本无法产生真正的音乐。音乐这种东西，只有真的怀揣想和人组一辈子乐队的真心才能铸造。最后返璞归真，和纷纷迷失自我的余下四人在小小的livehouse舞台上体会到了真正的默契，可喜可贺
+
+*****
+
+####  天空塔书记官  
+##### 11979#       发表于 2025-1-24 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267349&amp;ptid=2208921" target="_blank">佳奈助 发表于 2025-1-24 15:02</a>
+音乐如何第十二集完整展示过，为什么好像都没看过似的</blockquote>
+所以呢，剧中有人表示过被感动到了吗，爱音给立希看视频也是选了演剧的部分，这不就代表她认为演剧比音乐更吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 11980#       发表于 2025-1-24 15:06
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-24 15:08 编辑 
+<blockquote>用户名1 发表于 2025-1-24 15:00
+故事机制下的多重人格是一个人物对自我身份认知的丧失。常用的表现手法一般为身体损伤、心理障碍等问题致使 ...</blockquote>
+
+来场人格面具分析？
+
+睦的本我是希望能唱歌能展现自己的若叶睦，睦的超我符合大众期待的莫提斯。
+
+所谓的痛苦产生就是超我和本我的矛盾，即我想的和社会希望对我期许不一致。
+
+所谓寻找自我就是如何在本我和超我中寻找调和共同点。那么结局只能是本我和超我一起消失的人格融合补完了。搞得跟eva一样（笑）
+
+*****
+
+####  Raven314  
+##### 11981#       发表于 2025-1-24 15:06
+
+没有团魂的乐队，队员还各怀鬼胎
+只能夸赞技术吧，睦对自己的吉他评价可是没有灵魂不能唱歌，但是她在舞台上从不会弹错就已经具备职业级了
+c团三人的音乐评价也是有的
+灯:这是我不知道的祥子呐喊
+立希:这才不是乐队<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+soyo:全是祥子干的，做曲剧本都是她<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 11982#       发表于 2025-1-24 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267192&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-24 14:47</a>
+
+车站吵架的时候海铃帮喵梦可以看做实话实说
+
+但散伙的时候海铃第一个支持喵梦又是为了什么么呢 ...</blockquote>
+我是觉得海铃早就对祥子失去耐心了，大喵还会觉得祥子你是老大你该决定了，海铃应该连这种意识都不剩了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂热飞鸟  
+##### 11983#       发表于 2025-1-24 15:09
+
+之前顺风顺水不是祥一手操办是吗
+
+出了问题这几集擦屁股不是祥是吧
+
+背负人生是什么成功是理所当然问题就是你没说到做到的万能道德绑架吗
+
+*****
+
+####  稀勢のささ  
+##### 11984#       发表于 2025-1-24 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267326&amp;ptid=2208921" target="_blank">厄斯沃穆 发表于 2025-1-24 15:00</a>
+
+想了想，楼里讨论分歧主要集中在mortis是二重人格还是演技，这个问题的核心是mortis作为独立角色来说浅薄又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不能是制作组里全是祥黑，于是搞了个嘴替出来骂两句大祥和祥黑观众一起狂欢
+
+*****
+
+####  古明地雷  
+##### 11985#       发表于 2025-1-24 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266815&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 14:12</a>
+又看了一遍，大喵其实就是听到祥子遇上大事还在搁那满口乐队、满口音乐性之后才炸的，她给的第一方案是把祥 ...</blockquote>
+神他妈都是祥子作出来的，自己不听规划搞事不粘锅是吧，也就其他三个都是bot没人嘴，放三次元参考阿手
+还把祥子/睦开了，一个流量大腿一个作曲剧本运营狗链牵着初华，你一个外人搞事该滚的是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这么肯定离了母鸡卡能进一步发展？开口就是解散？说实话我不懂她的底气在哪，如果不是演的那烂完了
+
+
+*****
+
+####  Min_FOrder  
+##### 11986#       发表于 2025-1-24 15:11
+
+<blockquote>古明地雷 发表于 2025-1-24 15:10
+神他妈都是祥子作出来的，自己不听规划搞事不粘锅是吧，也就其他三个都是bot没人嘴，放三次元参考阿手
+
+还 ...</blockquote>
+不了解管人，你们阿手也这么精彩的？
+
+*****
+
+####  huxiaopao163  
+##### 11987#       发表于 2025-1-24 15:11
+
+ 本帖最后由 huxiaopao163 于 2025-1-24 15:13 编辑 
+
+我现在还是觉得mortis是很有魅力的，当然前提是建立在那段小孩撒泼是演的，下一集会是一脸计划通的表情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+毕竟mortis有能看透人心，知道所有队友内心的渴望，让队内一片和和气气的能力，然后再把这一切毁掉。
+
+可能她说的话语是拼出来的，但是情商、洞察力、表演力、炒作力这些能力也是复制的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 11988#       发表于 2025-1-24 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我真觉得祥子是该把喵梦踢了
+妈的第一集摘面给喵梦擦屁股熬夜改剧本，私底下想挖睦单飞也没骂喵梦，一系列的祸全都是喵梦惹的，最后结果是什么？祥子精神也爆炸了，把睦逼疯了
+现在好了，团要炸了，喵梦要祥子拿主意，结果是祥子被抽了三集＋海港莫提斯暴击，彻底心碎只想睦回来了。
+你不能在要散团时候才想到祥p背负人生
+
+*****
+
+####  结衣小比取  
+##### 11989#       发表于 2025-1-24 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267349&amp;ptid=2208921" target="_blank">佳奈助 发表于 2025-1-24 15:02</a>
+
+音乐如何第十二集完整展示过，为什么好像都没看过似的</blockquote>
+坛友想说的是不是第十三话？
+
+*****
+
+####  结衣小比取  
+##### 11990#       发表于 2025-1-24 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264839&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-24 11:04</a>
+
+go里底边的立希现在风评可是直线上升啊，mygo粉丝现在可过的太舒服了</blockquote>
+本来就是这样，将来就算有黑子想来清算，怼回去也有底气，可谓进可攻退可守<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 11991#       发表于 2025-1-24 15:15
+
+<blockquote>Min_FOrder 发表于 2025-1-24 15:05
+这不就更说明大祥的什么音乐性路线根本就是狗屁了么，玩crythic退团时大伙纷纷不舍，写的歌还被mygo翻奏 ...</blockquote>
+这个我怕说了会让有些人觉得我在踩am捧go，但是单单从剧里的听众和角色反馈来说，灯的歌词（旋律别人也没怎么评价，对不起，立希）不仅深深打动团结go团成员，而且能单人诗朗诵一场场吸引来越来越多的观众共情，基本上每次演出都会得到一些表扬（当然也可能是live house对业余乐队态度鼓励为主嘛），am则只强调了人气，商业的成功完全对音乐究竟有没有打动听众避而不谈（甚至睦还觉得自己吉他没灵魂），我是觉得就是留给后面修正祥子的，一个乐队的你队友都对你写的音乐没有触动，观众也不评价音乐哪里好，完全不符合音乐番的基本原则
+
+*****
+
+####  天空塔书记官  
+##### 11992#       发表于 2025-1-24 15:15
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 15:17 编辑 
+
+对，祥子怎么不让喵梦滚呢，现在是喵梦作妖，是木头作妖，之后就不能是海玲作妖，初华作妖了 ? 有没有可能我是说是双方都有错呢，就你祥子冰清玉洁、孑然独立，好似处身事外一样，哦，原来不在乐队的是身为领导者的祥子啊，那就怪不得了，都不作为了还要你这个领导干什么，楚平方为了追六花废了那么大劲，结果合奏不及格也是说踢就踢，那你祥子有这个魄力吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 11993#       发表于 2025-1-24 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267204&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 14:48</a>
+
+在比较楚平方和祥子拉人的手法，只要是小猫头认定的人，都是双手递上名片，起步就是“瓦塔西”、除了你其他 ...</blockquote>
+chu2：不要弹那种随大流的东西，你的音乐是你内心的呐喊
+
+pareo：公若不弃，令王那愿拜为妇妇
+
+祥子：反正你就是个利欲熏心的傻逼网红，我给你谈谈你能得到什么利益
+
+喵梦：啊对反正我就是个利欲熏心的傻逼网红
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 11994#       发表于 2025-1-24 15:17
+
+从第四集看该滚的确实是喵梦，不过喵梦只是个无辜的工具纸片人，最该滚的还是想推剧情了就给角色塞狗屁不通抽象活的编剧
+
+*****
+
+####  佳奈助  
+##### 11995#       发表于 2025-1-24 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267457&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-24 15:13</a>
+坛友想说的是不是第十三话？</blockquote>
+一季度的最后一集，是十三话吗，那就是我记错了
+
+*****
+
+####  江口夕  
+##### 11996#       发表于 2025-1-24 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士只能看懂表面，他能看懂初华么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

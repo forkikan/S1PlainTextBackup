@@ -11272,3 +11272,38 @@ jk不能杀人总不能去刷无人机，好像上一个就...
 
 你现在看到说12集也只有是情报哥说的，甚至还有是深夜档的说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TRIScRE  
+##### 5481#       发表于 2025-1-24 15:08
+
+喵安看起来确实是最高的
+
+GiCj6bnbEAAExeU.jpg
+(133.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/150740i34ucuasu2xmpzzs.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 5482#       发表于 2025-1-24 15:09
+
+<img src="https://p.sda1.dev/21/9c8906f7184a8593d2ff9903279b0312/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3f989affc0ff633cb6657e3deb9b0b3d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  0aleph37  
+##### 5483#       发表于 2025-1-24 15:16
+
+修司眼睛聚焦的方向真奇怪，人设图也有种瞳孔涣散的既视感
+
+来个假药：作为xx人，修司并不以视觉为主要感官方式
+

@@ -491,3 +491,18 @@ PSN美服预购界面扒下来的壁纸</blockquote>
 <img src="https://p.sda1.dev/21/9041ff6807c8a8d575597042dbb488fc/CMP_20250124144407311.jpg" referrerpolicy="no-referrer">
 Doom配置要求也出了，和夺宝奇兵一样强制光追打底了，20系n和6000系A是入门门槛，显存要求也蛮高，1080p推荐了8g，1440p10g，4k16g
 
+
+*****
+
+####  魔王候补77号  
+##### 222#       发表于 2025-1-24 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266989&amp;ptid=2184766" target="_blank">zzy516232108 发表于 2025-1-24 14:31</a>
+
+开发者访谈说了
+
+2016是run and gun，主要就是走+打，类似老FPS的设定
+
+永恒是jump and shoot，就是飞到天 ...</blockquote>
+也就是这代不会有高机动战斗了？
+
