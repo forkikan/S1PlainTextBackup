@@ -6356,3 +6356,14 @@ https://x.com/Slug10000/status/1882748277894058258/photo/1</blockquote>
 
 想象一下睦背后找人商量就觉得乐：姐几个，我看祥子有点心理问题，要不咱们演出戏把团拆了给她治治？
 
+
+*****
+
+####  akiomn  
+##### 12404#       发表于 2025-1-25 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272165&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-25 03:17</a>
+演戏太扯了，终于睦有点主观能动性想解决问题了，然后惊世智慧想出来的不是去聊聊，居然是演一出戏，然后在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这样，现在双重人格尴尬，演戏也尴尬，双重人格就送医院，邦邦真有医院的，别搞什么乐队了。演戏是祥子都知错了崩溃成那样了，话都说不利索了，就放过祥子吧。更别提四个演一个更是过分到家了
+当然我不觉得鸡团真的会被拆，只是停止活动，毕竟鸡的设定是舞台上完美表演，肯定会让观众以为鸡团只是用舞台剧表示自己要停止活动了
+
