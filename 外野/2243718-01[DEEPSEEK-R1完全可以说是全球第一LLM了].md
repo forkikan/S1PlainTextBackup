@@ -1179,3 +1179,13 @@ r1可以联网搜索，两个可以一起开了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  黄泉川此方  
+##### 97#       发表于 2025-1-24 07:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下本地部署7B，发现还不如能无限用的网页版
+
+家用显卡还是继续打游戏吧，显卡钱买API用到天荒地老了
+
