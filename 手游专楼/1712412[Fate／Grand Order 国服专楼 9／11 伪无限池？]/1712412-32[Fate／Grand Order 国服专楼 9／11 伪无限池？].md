@@ -63,3 +63,15 @@
 
 高难小号打了个金皮卡4T，大号等明天水武藏宝具本开了再打<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 46974#       发表于 2025-1-24 20:19
+
+丑御前2 正雪1
+
+丑御前这个满破模组是真的难看吧
+
+想打90++却发现我连齐格飞技能都没法点满20NP更是开不出来，干脆放弃改用萨老师愉快刷90+去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

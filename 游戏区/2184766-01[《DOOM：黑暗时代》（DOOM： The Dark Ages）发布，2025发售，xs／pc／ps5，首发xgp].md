@@ -593,3 +593,26 @@ Doom配置要求也出了，和夺宝奇兵一样强制光追打底了，20系n�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  madcow  
+##### 231#       发表于 2025-1-24 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268188&amp;ptid=2184766" target="_blank">JOJO42 发表于 2025-1-24 16:27</a>
+
+从11分钟演示里部分内容看，这代与敌人间的高速战斗还是有，只是目前看还没有展示现类似永恒那种的紧迫感， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那感觉要是跟子弹风暴那样搞不是更欢乐（
+
+
+*****
+
+####  希望之异热同心  
+##### 232#       发表于 2025-1-24 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264331&amp;ptid=2184766" target="_blank">牙晓 发表于 2025-1-24 10:25</a>
+马丁说了盾牌所有操作都是一个键输入完成，那估计键位会在L1和LB上，按照战斗ui设计，盾牌在左边，枪械在右 ...</blockquote>
+不需要搞十字键切换，只要看准心对准的目标和目标距离就可以触发相应的动作了，按一下就是丢盾，按住就是格挡，按住释放就是冲锋，准心对着对你发起攻击的怪或者炮弹按盾就是弹反
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
