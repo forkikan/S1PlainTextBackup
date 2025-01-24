@@ -4047,3 +4047,62 @@ Mortis其实就是小女孩闹别扭，只不过用了非常极端夸张、看�
 现在还不明确喵梦作事的动机，尤其是和家人通话里的烟花有些太过刻意了，如同被刻意引导向了炸团的方向，这 ...</blockquote>
 一個陰謀論：要賺快錢 不行就去下一個地方 睦和她說好了
 
+
+*****
+
+####  天空塔书记官  
+##### 12193#       发表于 2025-1-24 18:06
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269076&amp;ptid=2208921" target="_blank">間桐櫻 发表于 2025-1-24 18:00</a>
+一個陰謀論：要賺快錢 不行就去下一個地方 睦和她說好了</blockquote>
+比起钱，我觉得喵梦更看重舞台，换成睦妈的引荐和人脉也许能更恰当一些<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 12194#       发表于 2025-1-24 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268778&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-24 17:32</a></blockquote>
+这算中花萝莉塔？
+
+*****
+
+####  xyion  
+##### 12195#       发表于 2025-1-24 18:07
+
+mortis是睦闹别扭是一种能解释得通的方式。
+
+但这闹得把团炸了，哪怕是睦精神崩溃下的行为，对人物形象影响都太大了，感觉得之后深度参与把团拉回来的过程才能补回来。
+
+*****
+
+####  ddy2811  
+##### 12196#       发表于 2025-1-24 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269030&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 17:54</a>
+
+我打个比方，这就像魔王对勇者说“勇者啊，只要你不能领悟爱，你就永远别想救出公主”
+
+这种话被魔王说出 ...</blockquote>
+这看着怎么那么像宝莲灯/黑悟空的杨戬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 12197#       发表于 2025-1-24 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268143&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 16:22</a>
+来点新图这次谷子还行吧
+初华有权杖祥子有小扇子</blockquote>
+睦头这套怎么束腰完全没起作用。看着腰比其他人胖好多
+
+*****
+
+####  ape-apple  
+##### 12198#       发表于 2025-1-24 18:11
+
+……苗萌什么时候说喜欢舞台，游戏上线了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心意是坏的 ，行动是坏的，结局是未知的，好心办坏事还轮不到诸位来说
+

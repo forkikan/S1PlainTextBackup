@@ -1731,3 +1731,15 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 张教授都到znh给居委们上课了，他的地位真的高到一定程度</blockquote>
 现在表情包可是正面嘲讽殖人用了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UniqueDiablo  
+##### 156#       发表于 2025-1-24 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67256278&amp;ptid=2243911" target="_blank">marxel 发表于 2025-1-23 17:26</a>
+如果西大当时知道这不是为了南海，而是为了扼杀将来可能要了自己性命的最大对手的话，或许就不会就觉得这 ...</blockquote>
+一切胜利，归功于伟大的抗美援朝
+
+抗美援朝之后，美国人明白东大再穷在困难，也是敢跟你玩命的；而美国在西太平洋有什么必要跟东大玩命呢？
+
