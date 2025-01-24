@@ -518,3 +518,126 @@ dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/
 
 PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的还看不出来
 
+
+*****
+
+####  kenqqex  
+##### 7497#       发表于 2025-1-24 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268162&amp;ptid=2160194" target="_blank">peshing 发表于 2025-1-24 16:24</a>
+
+笑吐了，我找deepseek R1来写都能秒杀这傻逼剧本。想想也不对啊，空轨零碧的时候台词还蛮好的，剧本的节奏 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/24/165334wziwk66hoed0wkew.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (382.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 16:53 上传
+
+  其实早在空fc——
+
+                                                                .  .  .  .
+
+いや，ed345，就已经有这些词了，因为竹入那个时候已经开始写了
+
+*****
+
+####  alucardcz  
+##### 7498#       发表于 2025-1-24 16:59
+
+没事去看了看steam评论  优化这次确实没问题
+
+但是按键果不其然的被喷爆了 。。。确实意义不明 黎2明明很完美 这次开倒车真是活该被喷
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 7499#       发表于 2025-1-24 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268162&amp;ptid=2160194" target="_blank">peshing 发表于 2025-1-24 16:24</a>
+
+笑吐了，我找deepseek R1来写都能秒杀这傻逼剧本。想想也不对啊，空轨零碧的时候台词还蛮好的，剧本的节奏 ...</blockquote>
+因为那个时候也有，只不过注意力并没有在台词上面很关心，因为剧情还过的去
+
+现在的话
+
+这剧情一坨屎，大家自然就开始骂————不，研究这个游戏的精妙台词了
+
+*****
+
+####  卢迪克  
+##### 7500#       发表于 2025-1-24 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268086&amp;ptid=2160194" target="_blank">killcal 发表于 2025-1-24 16:16</a>
+
+现在翻译情况怎么样？pc版有改进吗？简体还是繁体</blockquote>
+看解包的说简体就是一键繁转简+改了一些人名和名词试图掩饰。
+
+*****
+
+####  kalavinka  
+##### 7501#       发表于 2025-1-24 17:37
+
+dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  peshing  
+##### 7502#       发表于 2025-1-24 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268447&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-24 16:55</a>
+
+其实早在空fc——
+
+                                                                .  .  .  .</blockquote>
+那可能就是没有CV反而观感不会这么明显了
+
+*****
+
+####  玩吗？  
+##### 7503#       发表于 2025-1-24 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">第一章打了一半，这熟悉的台面上下真的吐了。。。。
+
+操作人物一点也不变变，闪3好歹上来新7班人都换了，这次一上来还是这几个完全没有用的欲望。。。。。地图也还是通首都各处马桶。。。。
+
+*****
+
+####  alucardcz  
+##### 7504#       发表于 2025-1-24 21:42
+
+装备界面怎么感觉人物是糊的？其他地方倒是正常
+
+*****
+
+####  zhouaa  
+##### 7505#       发表于 2025-1-25 02:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好的吃第一章和第二章吧
+
+*****
+
+####  yth329  
+##### 7506#       发表于 2025-1-25 03:27
+
+PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的还看不出来
+
+*****
+
+####  nozomitech  
+##### 7507#       发表于 2025-1-25 07:42
+
+索尼现在是真即把出生，之前星刃就发现了，他居然把一部分游戏的免费试玩平替成高级会员的那个10小时试玩。这它吗比是能平替的吗。
+
+<img src="https://img.saraba1st.com/forum/202501/25/004150x0zm21qvo21wnkwo.jpg" referrerpolicy="no-referrer">
+
+<strong>5EC70B00-F19B-46BA-9A64-FA3425EFD5B7.jpg</strong> (619.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 07:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
