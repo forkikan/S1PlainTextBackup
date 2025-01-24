@@ -2503,3 +2503,204 @@ chu2其实也是塑造的集数足够才知道这人因为不会乐器自己又�
 
 纯路人，这里是刀塔专楼漫区分楼吗
 
+
+*****
+
+####  苌门有K  
+##### 12064#       发表于 2025-1-24 16:08
+
+祥子想的太理想化了，祥子到底想的是什么有人能说出来吗，怕是她自己都说不出来
+
+*****
+
+####  天空塔书记官  
+##### 12065#       发表于 2025-1-24 16:09
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 16:13 编辑 
+
+我是来讨论剧情的，不是来吵架的，我的发言一直围绕着这部作品本身，而不是某一个特定的角色，所以我一直在强调邦世界包饺子的底层逻辑，我的出发点一直是怎样能把饺子包好，而不是对某一个角色的好恶
+
+既然都觉得我是个猫粉，那是就是吧，毕竟我嘴笨
+
+但我之后可能还会是睦粉、海玲粉、初华粉，甚至是祥爹粉，祥姥爷粉，那就只能希望到时候各位还能包容了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 12066#       发表于 2025-1-24 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267958&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 16:02</a>
+我会给喵梦补人设是因为她确定是邦宇宙的一员，所以必然会有人物的出身和背景，而且写人设是我的个人爱好， ...</blockquote>
+因为不完美的受害者仍然是受害者，满口道德牌坊的加害者不会因为给自己立的牌坊堵住悠悠之口。
+什么时候能等喵圣真心实意弥补了过错再开始洗这个地？现在甚至没弥补，在她炸团的基础上就开始舔地板了，我不好说什么，只能说确实真情实感代入了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 狂热飞鸟| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Min_FOrder  
+##### 12067#       发表于 2025-1-24 16:10
+
+<blockquote>苌门有K 发表于 2025-1-24 16:08
+祥子想的太理想化了，祥子到底想的是什么有人能说出来吗，怕是她自己都说不出来 ...</blockquote>
+至少我觉得很多漏油已经忘了祥子是听mygo擅自演奏春日影之后受刺激才找她姥爷要钱要资源办的avemujica的了（
+
+*****
+
+####  hulaoda007  
+##### 12068#       发表于 2025-1-24 16:11
+
+有一说一，炸团必须炸的，谁背锅的问题。
+
+a团根本不是和谐团体，一开始都心怀鬼胎。特点就在除了大祥没人在意这个a开头的企划死活。
+所以故事设置到结尾，a团真的能成为一个团体，互相理解本来就是这个动画的主旨才是。总不能让先上了船的罗宾一直当个不是船员的角色，还是要有cp9事件爆发，最后让草帽团团结一心才行，a团才能不是1+1+1+1+1，而是5。
+
+何况还要卖角色的，包饺子肯定要包，包的好不好，那就另说了。
+
+虽然目前五个人突出一个“无组织，无纪律。”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 12069#       发表于 2025-1-24 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268025&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 16:09</a>
+
+我是来讨论剧情的，不是来吵架的，我的发言一直围绕着这部作品本身，而不是某一个特定的角色，所以我一直在 ...</blockquote><blockquote>只有祥子惨，世上最惨，所以错都是别人的
+
+这什么厕妹言论</blockquote>
+
+我是来讨论剧情的，不是来吵架的，指直接把别人的发言滑坡到只有祥子惨，指着别人的发言说是厕妹言论吗？大家又不是没见过假药假设，会把你当猫厨不是因为你直接抛开话题对言论下定义吗？
+
+*****
+
+####  necroia  
+##### 12070#       发表于 2025-1-24 16:12
+
+喵圣觉得她打的没问题
+
+观众也有人觉得她打的没问题
+
+所以我现在巴不得制作组也觉得她打的没问题
+
+一个按理说谁都觉得她没问题的二偶角色只能祝大卖喽
+
+*****
+
+####  天空塔书记官  
+##### 12071#       发表于 2025-1-24 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268009&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 16:07</a>
+也不能完全这么说吧，ras追求音乐纯洁性是完全没问题的，那四个在邦邦里都算很忠的了。鸡成员多少有些病 ...</blockquote>
+对的，所以我一直在说，祥子需要学会让别人也来担负自己的人生，这份契约一直都是双向的，没有成员作为手和脚，楚平方就没法演奏RAS的音乐，同理缺失了其他人，祥子也不能独自支撑ave的世界观，而祥子并没有对其他成员说过这句话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  scorbian  
+##### 12072#       发表于 2025-1-24 16:13
+
+话说回来海铃真的是冷面笑匠，每次她说话我都想笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+“我数学很好，不用了”
+“我这人是吃不胖的体质”
+“毕竟我也算是有几分姿色”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Raven314  
+##### 12073#       发表于 2025-1-24 16:14
+
+搞笑的同时还带着三分炫耀自夸<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12074#       发表于 2025-1-24 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我说这集猫在演已经尽量洗猫了，楼友看似爱猫实则让人观感更差，已经快到打滚的级别了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  海底铁锚  
+##### 12075#       发表于 2025-1-24 16:15
+
+写在第三集，真的要挽回喵梦风评，只能磕头道歉，别无他法。
+
+<img src="https://img.saraba1st.com/forum/202501/24/161547pnnjqciwauummzza.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (286.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 16:15 上传
+
+*****
+
+####  wpcc  
+##### 12076#       发表于 2025-1-24 16:16
+
+死亡获得了死亡 遗忘真的忘了，恐怖化身为了恐怖 悲伤被悲伤浸没
+
+那我问你那我问你这个爱猫TV是怎么爱的，难不成是家人侠的爱吗
+
+这五个名字的扳机一枪不开吗
+
+*****
+
+####  sauron.j  
+##### 12077#       发表于 2025-1-24 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267783&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-24 15:43</a>
+
+爱猫又爱祥，输了又要赢，赢完也得输。</blockquote>
+第二集：发现睦头情况不对，皱眉
+
+上一集：偷听看见大祥泪崩
+
+本集：祥子没事吧，是不是累了呀<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  間桐櫻  
+##### 12078#       发表于 2025-1-24 16:17
+
+<blockquote>blackeryuri2 发表于 2025-1-24 14:45
+独角兽24年一月初可是暗示过这是她写的会带到坟墓里的剧本，算一下时间24年年初的时候剧本应该已经不可能被 ...</blockquote>
+帶到墳墓裡滑坡一下也可以解釋成只有她一個人知道的劇本 非公開
+
+*****
+
+####  swessia  
+##### 12079#       发表于 2025-1-24 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不是你们咋还理那位啊，像我一样拉黑不久完了
+
+*****
+
+####  屑猫猫  
+##### 12080#       发表于 2025-1-24 16:17
+
+<blockquote>苌门有K 发表于 2025-1-24 16:08
+祥子想的太理想化了，祥子到底想的是什么有人能说出来吗，怕是她自己都说不出来 ...</blockquote>
+所以现阶段只能推测是一些音乐上的追求，但是也判断不出来什么来
+

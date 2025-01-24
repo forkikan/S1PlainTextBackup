@@ -3271,3 +3271,11 @@ mygo漫画第二话，下一话要2.28了
 [https://comic-growl.com/episode/2550912964996119363](https://comic-growl.com/episode/2550912964996119363)
 从爽姐视角讲了ccc的成立过程，看爽姐从踩雷工兵到被灯歌词刺痛的过程还是很有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">灯手好
 
+
+*****
+
+####  ml1642879  
+##### 26889#       发表于 2025-1-24 16:09
+
+鸡团这新衣服到底是什么玩意，感觉四不像
+
