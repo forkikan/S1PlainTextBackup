@@ -11675,3 +11675,73 @@ cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要�
 
 这次是原创TV，后面全是未知的舞台，比之前有原作小说打底的UC世界观作品更刺激<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 5519#       发表于 2025-1-24 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271142&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 22:59</a>
+这次是原创TV，后面全是未知的舞台，比之前有原作小说打底的UC世界观作品更刺激
+
+另外揭示板群众说好像玛秋 ...</blockquote>
+翻了下上面这个“beginning”版预告，有这三个镜头，理论上既然他能换个名字重发一遍就应该保证里面的内容剧场版里都有才对
+
+<img src="https://img.saraba1st.com/forum/202501/24/231649qhufr8hqf9ha65bh.png" referrerpolicy="no-referrer">
+
+<strong>img_5061.png</strong> (633.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:16 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  WallHrolf  
+##### 5520#       发表于 2025-1-24 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我就是因为GQX泄露背景后怕看不懂就去补了0079TV的，不过第一部高达还真是闪哈，后面在水魔的间隙去补了SEED，下一步是刷完三部总集篇后去看Z
+
+
+*****
+
+####  TRIScRE  
+##### 5521#       发表于 2025-1-24 23:21
+
+網
+
+@amiamic
+
+今日から入場特典が第2弾に切り替わります～
+
+よろしくお願いします
+
+GiDuuJKbQAEvdel.jpg
+(177.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/232104a89sq5s1cyp2iysn.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 5522#       发表于 2025-1-24 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271266&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-24 23:17</a>
+
+翻了下上面这个“beginning”版预告，有这三个镜头，理论上既然他能换个名字重发一遍就应该保证里面的内 ...</blockquote>
+看剧透玛秋躺床上应该是抢GQX的当天晚上？
+
+妮娅安脸红是被牢修闻头发？
+
+洗衣店的镜头可能是插在蒙太奇里了？
+
+按理说PV1内容应该都包含在剧场版内，但确实有复数回复说没在剧场版看到
+
+26号新设定册好像也会包含剧场版没有展示也就是属于TV部分的内容<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
