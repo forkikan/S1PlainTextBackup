@@ -4345,3 +4345,45 @@ mortis是睦闹别扭是一种能解释得通的方式。
 
 2.后面这一长段的论述，跟我在那一楼表达的内容有什么关系吗？戏内的喵梦不知道这事，难道戏外这位说大祥把责任都推给别人的大师也不知道吗？
 
+
+*****
+
+####  江口夕  
+##### 12221#       发表于 2025-1-24 19:20
+
+不知道还以为素世女士也赎完罪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来我看的是假的mygo
+大猫后面只要吃个憋，大祥 睦不介意就完事了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厉飞雨  
+##### 12222#       发表于 2025-1-24 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大喵老师加个设定全孤儿院的希望就完事了
+
+*****
+
+####  江口夕  
+##### 12223#       发表于 2025-1-24 19:23
+
+大猫去帮大祥解决老爹问题，就能功大于过了。还需要啥赎罪
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  YF31  
+##### 12224#       发表于 2025-1-24 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269543&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-24 19:01</a>
+
+喵梦有没有问题 赎不赎罪 根本就不重要
+
+只要后面表现好 卖卖关系性 维护下团队 就已经很好了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位金毛主唱，还记得你军体拳过的那位前同事吗？
+
+”好好看着前面啊，笨蛋！“如果喵圣如是洗白你作何感想。
+

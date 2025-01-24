@@ -2964,3 +2964,13 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 
 +1，看到海铃抄作业暗示mortis演戏，几乎使我相信叙诡说了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 322#       发表于 2025-1-24 19:19
+
+我倒要看看睦这个角色要怎么收<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
