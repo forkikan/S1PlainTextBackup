@@ -15498,3 +15498,20 @@ mujica前四集给了大量电视采访的片段，练习的场景几乎没有�
 初华只是对大祥的说辞做出猜测
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  天空塔书记官  
+##### 11839#       发表于 2025-1-24 13:00
+
+是不是菜逼需要等之后的集数再做判断，这一集明显就是故意这么搞的，之后能不能圆是之后的事，现在急着盖棺定论有点太操之过急了，这可才第四集呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 11840#       发表于 2025-1-24 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双重人格说的，问个很简单的问题，在一个相当真实的世界里，演一个人格容易还是一个人有神经病容易？而且还有这个人演技本来就遗传了他妈，口才遗传了他爸的背景下。
+
