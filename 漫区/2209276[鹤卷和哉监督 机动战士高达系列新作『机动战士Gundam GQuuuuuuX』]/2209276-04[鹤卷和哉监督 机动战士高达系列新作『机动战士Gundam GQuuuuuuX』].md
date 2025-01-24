@@ -11791,3 +11791,21 @@ GiDuuJKbQAEvdel.jpg
 
 其实我第一部高达也是闪哈，我是闪哈逆鸭z，0079整个倒着看的，上个月刚看完00（）
 
+
+*****
+
+####  中野梓  
+##### 5526#       发表于 2025-1-24 23:39
+
+其实我第一部高达是F91，那是32年前的事了
+
+*****
+
+####  猪突猛进R  
+##### 5527#       发表于 2025-1-24 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271415&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-24 23:39</a>
+
+其实我第一部高达是F91，那是32年前的事了</blockquote>
+您看起来很有精神，不知道方不方便问一下您今年贵庚？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
