@@ -2638,3 +2638,17 @@ Mortis双重人格说我倒是没什么意见，从第三集看再怎么切割�
 
 上集给了+0，这集感觉比上集的四不像强一点，但是不多
 
+
+*****
+
+####  千本blur  
+##### 287#       发表于 2025-1-24 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259306&amp;ptid=2243994" target="_blank">YF31 发表于 2025-1-23 22:47</a>
+-2，我他妈编都编不出来这么烂。
+
+没道理的，mortis铺垫了一整集出来玩呢，当小丑来了是吧。
+
+解散那段转折生 ...</blockquote>
+乐，这么一说还真是。剧情连贯性和空手部好有一比。
+

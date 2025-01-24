@@ -10858,3 +10858,37 @@ side6窝藏红高达这事一旦做实，相当于挑衅吉翁公国，那可不
 side6窝藏红高达这事一旦做实，相当于挑衅吉翁公 ...</blockquote>
 那夏利亚酒吧喝完，就快点来拐小孩吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 别黑拳了
 
+
+*****
+
+####  卑弥呼yamato  
+##### 5443#       发表于 2025-1-24 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265277&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-1-24 11:34</a>
+哦话说这个黑拳出击之前黑拳队有说你们速战速决，转播开始以后可能军警就会来抓人了（毕竟非法的），然后打 ...</blockquote>
+主要看此时夏利亚的目的是什么，以及迫切不迫切，要看后面会不会讲一点目前吉翁领导层内部的现状。
+
+*****
+
+####  盐盐盐盐盐  
+##### 5444#       发表于 2025-1-24 11:42
+
+其实也就是三明和狸猫比较特别吧，想想以前的高达主角大家行动力都挺强的，个顶个刺头，麻球只是回归这个老传统了
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 5445#       发表于 2025-1-24 11:45
+
+<blockquote>卑弥呼yamato 发表于 2025-1-24 11:41
+主要看此时夏利亚的目的是什么，以及迫切不迫切，要看后面会不会讲一点目前吉翁领导层内部的现状。 ...</blockquote>
+他们这些事（发现红高以及gqux丢了）还瞒着吉翁上层没上报，就不知道能瞒多久了，我还蛮想看85年吉翁那些老角色如何了hh
+
+*****
+
+####  AvenueIII  
+##### 5446#       发表于 2025-1-24 11:48
+
+夏亚梦男肯定是痞哥哥啦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
