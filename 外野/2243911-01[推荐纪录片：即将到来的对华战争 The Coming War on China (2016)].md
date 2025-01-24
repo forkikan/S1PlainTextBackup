@@ -1636,3 +1636,15 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 说穿了，就前几年美军亚太舰队曝光的一堆丑闻，和舰队丑陋的维护状态，它们自己心理就不可能有底子打
 
+
+*****
+
+####  真田安房守  
+##### 147#       发表于 2025-1-24 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260667&amp;ptid=2243911" target="_blank">lin2004 发表于 2025-1-24 00:02</a>
+工业生产力现在米帝是二战日本东大是当年米帝，连宣布原材料禁运封死工生产都一样然后由此发生的日军先去 ...</blockquote>
+蚌埠
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1268,3 +1268,114 @@ weibo：梅比乌斯TUTAI想玩XBX
 我觉得这就是编剧想写的，反正现在已经到谷底了，那么后面只能上升了吧 ...</blockquote>
 这句话真不吉利，从来都是你认为是底的地方还有深渊。
 
+
+*****
+
+####  blackeryuri2  
+##### 11956#       发表于 2025-1-24 14:45
+
+独角兽24年一月初可是暗示过这是她写的会带到坟墓里的剧本，算一下时间24年年初的时候剧本应该已经不可能被大改了。而且这条推还留着没有删，有mygo的前例在+看上去她也不像那种对自己的作品会随便口嗨的人，还是先相信一下好了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11957#       发表于 2025-1-24 14:45
+
+ 本帖最后由 江口夕 于 2025-1-24 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267102&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-1-24 14:40</a>
+你觉得灯的问题和现在的睦/Mortis是一个级别的么？</blockquote>
+这跟要不要去医院没关系吧，有心里问题就是看医生，<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这玩意只分病大病小，并不分你该不该去医院
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Sanco  
+##### 11958#       发表于 2025-1-24 14:45
+
+连爆四集，下集再爆节奏就出问题了，声优也直说第四集有大的，看预告下集应该就缓下来了
+
+*****
+
+####  DARK_HGCG  
+##### 11959#       发表于 2025-1-24 14:47
+
+车站吵架的时候海铃帮喵梦可以看做实话实说
+
+但散伙的时候海铃第一个支持喵梦又是为了什么么呢
+
+*****
+
+####  金钱与民主  
+##### 11960#       发表于 2025-1-24 14:47
+
+我说得再难听点：自从第三话所谓的“Mortis”出现以后，关于Mujica的很多讨论完全奔着超现实主义和玄幻世界那一套去了，仿佛邦的世界不是一个音乐才能普遍调高外加有一个离谱的弦卷财团的现实世界、而是一个一半魔法少女一半赛博朋克的世界。我只能说如果Mortis真的是双重人格、现在效果和附身在睦身上的另一个灵魂无异的话那真的烂完了。
+
+
+*****
+
+####  天空塔书记官  
+##### 11961#       发表于 2025-1-24 14:48
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 14:49 编辑 
+
+在比较楚平方和祥子拉人的手法，小猫头起步就是“瓦塔西”、除了你其他人都不行；祥子则是我欣赏你的才华，所以你有资格来参加我的舞会，我有能力担负你的人生，还轻轻松松，这不是高高在上是什么，你说没问题，要不要也在现实里体验一下，看看隔不膈应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  佳奈助  
+##### 11962#       发表于 2025-1-24 14:49
+
+至于说大象的成果，大象路线主导的第12集的表演大家都看过了，就说好不好吧
+
+*****
+
+####  Sanco  
+##### 11963#       发表于 2025-1-24 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267169&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 14:45</a>
+这跟要不要去医院没关系吧，有心里问题就是看医生，这玩意只分病大病小，并不分你该不该去医院
+
+—— 来 ...</blockquote>
+睦属于是角色亲口说她可能有精神病的，和灯这种二次元时尚单品阿斯伯格完全不一样，从祥爸来看这部片目前对于现实主义情节的处理还是偏写实那块的，得了病去医院反而比较正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有钱多买小人  
+##### 11964#       发表于 2025-1-24 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266556&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-24 13:40</a>
+酒店吵架还是太诡异了，节奏、台词乃至配乐都烂得飞起。
+
+不提一直都看不懂的初华和疯了的莫，喵梦的逻辑我 ...</blockquote>
+是的，大喵作为普通人努力家，大概还是觉得你们一个个有钱有才的在这闹呢。
+
+*****
+
+####  Tocqueville  
+##### 11965#       发表于 2025-1-24 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266175&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-24 13:01</a>
+
+我觉得这个找补也很强行，节目的时候就知道不能弹，为什么临到要演出了才来考虑怎么解决问题，你们四个之 ...</blockquote>
+前几天还能正常表演，突然说自己不会弹吉他，是个人都不会相信的吧。
+
+*****
+
+####  狮子咕  
+##### 11966#       发表于 2025-1-24 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姐妹你怎么不对我笑了？
+
+3V2%N7C11`@}08~ZS[HB}5L.jpg
+(65.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/145344ubalvx35n5zsnhss.jpg" referrerpolicy="no-referrer">
+
