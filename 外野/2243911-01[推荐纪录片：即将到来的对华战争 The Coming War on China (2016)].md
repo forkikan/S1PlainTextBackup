@@ -1501,3 +1501,28 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 
 纪录片没啥内容啊，整篇看下来除了意识形态反华就没了
 
+
+*****
+
+####  呼鲁鲁修  
+##### 137#       发表于 2025-1-24 09:41
+
+我看是打不起来了，扶个乌克兰把军火库掏空不少，就算现在俄乌、巴以立刻停火，西大开始囤军火备战2027，也没几年囤了。
+
+而且懂王这个鸡贼玩意，大概率把ww卖了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。我们不动驻韩和驻日美军，他还是能裱糊的过去的，反正他也没有连任的压力。
+
+
+*****
+
+####  seki_m  
+##### 138#       发表于 2025-1-24 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260769&amp;ptid=2243911" target="_blank">木水风铃 发表于 2025-1-24 00:08</a>
+
+找到了个源，百度盘说文件禁止分享，我看看怎么个回事
+
+不过可能群友已经下火车了
+
+传了个rar，自己解压吧， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被秒ban，回去在线看好了
+

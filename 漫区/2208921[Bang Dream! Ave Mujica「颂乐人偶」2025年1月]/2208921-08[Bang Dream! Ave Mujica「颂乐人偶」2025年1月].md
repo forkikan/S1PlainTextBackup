@@ -12852,3 +12852,90 @@ SOYO是不是一句话都没说？
 
 不过确实很掉份就是了，有种续集削战力的错位感
 
+
+*****
+
+####  Totokei  
+##### 11595#       发表于 2025-1-24 09:41
+
+小猫第四集了都没说过话呢<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+*****
+
+####  淫兽必须死  
+##### 11596#       发表于 2025-1-24 09:41
+
+个人感觉
+
+叙诡论本质上就是“大的要来了！”“下一话怒涛般展开”的变体
+
+此事在国家队连载帖中亦有记载
+
+*****
+
+####  山ノ内花音  
+##### 11597#       发表于 2025-1-24 09:42
+
+初华已经变态完了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+每集都要模仿一个人
+正常状态居然和被鬼上身的睦子米差不多
+
+
+*****
+
+####  JustW  
+##### 11598#       发表于 2025-1-24 09:42
+
+不太懂b站红白字幕是谁想的天才点子，其他平台表示是我们不配了。最好真的是把全片看完的/问过日方的人加的料吧。
+
+*****
+
+####  刑部姬真可爱  
+##### 11599#       发表于 2025-1-24 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263855&amp;ptid=2208921" target="_blank">淫兽必须死 发表于 2025-1-24 09:41</a>
+
+个人感觉
+
+叙诡论本质上就是“大的要来了！”“下一话怒涛般展开”的变体
+
+此事在国家队连载帖中亦有记载 ...</blockquote>
+你就说这几集是不是怒涛般展开吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 11600#       发表于 2025-1-24 09:44
+
+怒涛般展开还是粪海狂蛆般展开 我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  borrowface  
+##### 11601#       发表于 2025-1-24 09:46
+
+这集最后观感炸裂的原因莫小姐不都帮我们问过了么。
+
+"为什么突然一转聊解散？"
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  高妹控  
+##### 11602#       发表于 2025-1-24 09:46
+
+不知道是不是bug，已知小睦从小就练习吉他，又已知小睦以前挺能说的（这是小祥在上一话说的），那现在这个能说却不会弹的小睦也太怪了，人设完全对不上了嘛，已经不能用双重人格来解释了
+
+最令我无法接受的是，炸团的根本原因竟然是小睦不能弹吉他了，如果不是强行加的这个设定，🐔团完全没理由解散，只会更好。如此生硬的转折，竟出自绫濑之手，mygo原来只是昙花一现么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 11603#       发表于 2025-1-24 09:47
+
+除非wsd明确鸡动画是中华炮特供，这又不是有红字真实的海猫片场，搞白字红字叙事日本人又看不到，没有这么搞的理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
