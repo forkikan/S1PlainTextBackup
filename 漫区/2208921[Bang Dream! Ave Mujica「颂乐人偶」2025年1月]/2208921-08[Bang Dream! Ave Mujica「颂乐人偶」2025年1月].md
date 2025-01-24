@@ -13354,3 +13354,62 @@ B站源第三集结尾就有台词变色的情况
 
 双重人格是什么雷点吗，还是说日本人没把精神疾病这种剧情写好过，所以提前害怕
 
+
+*****
+
+####  玖羽  
+##### 11633#       发表于 2025-1-24 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264206&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-1-24 10:13</a>
+
+从莫跟祥的对话可以看出她是很懂各人是想要什么的，这样的她却在节目上打断喵梦的讲话抢了对方的风头，已经 ...</blockquote>
+我怀疑Mortis在节目里纯粹是学父母的，毕竟日常反应学Soyo，Soyo又没上过节目
+
+之前还说双重人格怎么样，现在看来整个基础都不存在了，Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型
+
+*****
+
+####  iiiiiiiiii  
+##### 11634#       发表于 2025-1-24 10:20
+
+<blockquote>ml1642879 发表于 2025-1-24 10:16
+双重人格是什么雷点吗，还是说日本人没把精神疾病这种剧情写好过，所以提前害怕 ...</blockquote>
+有种说法是双重人格是初华自己第一个提出来的，可能现实不存在双重人格，只是初华觉得有双重人格
+
+
+*****
+
+####  江口夕  
+##### 11635#       发表于 2025-1-24 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人最喜欢写精神病了，几个得分高的，chaos child 素晴 都是神经病。而且角色串的很厉害
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  DARK_HGCG  
+##### 11636#       发表于 2025-1-24 10:23
+
+<blockquote>厉飞雨 发表于 2025-1-24 08:56
+圣爱音还在发力吗</blockquote>
+"我一个MYGO的副吉他，怎么就来挽救MUJICA了呢？"
+
+*****
+
+####  MASKA-1  
+##### 11637#       发表于 2025-1-24 10:26
+
+目前我能想到的本手结局是，大伙各自反思，揭露自己的缺点，完成成长。最后带着mortis复健吉他，伴随吉他水平的提升无口睦逐渐苏醒，团魂建立。人格融合睦和其他完全体四人重组mujica包饺子。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 11638#       发表于 2025-1-24 10:27
+
+以为会变成黑心睦，结果变是傻呵呵睦了，这队炸团其实没啥问题，关系就没好过，
+
+这团的目的性也是除了喵梦外都挺暧昧的，喵梦也没那么爱流量，就是年轻人自我意识过剩
+
+问题是这团要怎么复合？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
