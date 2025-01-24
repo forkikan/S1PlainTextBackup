@@ -4933,3 +4933,53 @@ lyy老师时刻不忘爱素
 
 <img src="https://p.sda1.dev/21/378aafa7e61cb908c6c1475f765ed5b4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 12276#       发表于 2025-1-24 20:35
+
+如果一直都是黑到底的风格，那A团还是集体进疯人院好了，毕竟音乐是心灵的呐喊，心都黑到底了，那还有啥救<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  金钱与民主  
+##### 12277#       发表于 2025-1-24 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270133&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-24 20:26</a>
+
+Mujica本身就是祥子为了逃避而搞的一场故弄玄虚的过家家，不过我觉得应该是要逐渐“去伪存真”的 ...</blockquote>
+我不说Mujica这个乐队在舞台上的那些表演是故弄玄虚，我是说这部动画本身在故弄玄虚，再怎么“像惊悚片”，这个世界里也并不存在怪力乱神，连当场死人都不可能，那第三话那些夸张的动画演出和又不送医院的“双重人格”到底是什么？它所承载的内容已经远远超出了一个乐队动画本身了，哪怕最后饺子包上了，那睦和M的问题怎么通过不怪力乱神的方式解决？
+
+*****
+
+####  金钱与民主  
+##### 12278#       发表于 2025-1-24 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270052&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 20:14</a>
+
+问题是mujica的企划一开始就是故弄玄虚，甚至角色名单没公布前就在故弄玄虚。你如果不接受他不是故弄玄虚 ...</blockquote>
+不要动辄拿“目标受众”说事谢谢，Mujica的动画开头写了“XX人群才是目标受众”么？
+
+*****
+
+####  JustW  
+##### 12279#       发表于 2025-1-24 20:43
+
+四人演Mortis的问题在于，你同事疑似压力过大精神出问题了，无论你信不信人格分裂吧，到底有什么好演的，怕不出人命吧
+
+*****
+
+####  ads147147  
+##### 12280#       发表于 2025-1-24 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270219&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 20:35</a>
+如果一直都是黑到底的风格，那A团还是集体进疯人院好了，毕竟音乐是心灵的呐喊，心都黑到底了，那还有啥救
+ ...</blockquote>
+应该后面会改成流行金属风格吧。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
