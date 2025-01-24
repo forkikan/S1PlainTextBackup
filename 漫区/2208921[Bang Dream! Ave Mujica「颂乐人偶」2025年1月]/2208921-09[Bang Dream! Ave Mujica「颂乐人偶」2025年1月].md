@@ -3695,3 +3695,122 @@ M 小姐是不是純反派只要看她是不是真玩不了音樂就可以判斷
 黄大叔看完第四集的评价是“好看”</blockquote>
 漏油最好别这么极端地把第4集不好看当公论，说实话我觉得这个态度比什么角色厨的危害性大多了
 
+
+*****
+
+####  玖羽  
+##### 12166#       发表于 2025-1-24 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268532&amp;ptid=2208921" target="_blank">IVANLIAO 发表于 2025-1-24 17:06</a>
+
+莫肯定会弹吉他🎸，仔细看第四集的第一幕戏莫被主持问是否真的不会演奏时的反应和后面接的月之森那一幕对 ...</blockquote>
+我认为Mortis是睦为了报复祥子而在自己大脑里部署的一个AI模型（这是比喻，总之不要理解为一个完整的人格）
+
+它的本质是睦被祥子伤透心之后故意整祥子，孤立祥子、踩祥子的世界观、公开说(复读)祥子除了Mujica什么也没有了
+
+所以这个问题的答案是“就算能弹，Mortis也<strong>认为</strong>自己不能弹”，因为祥子把睦拉进来是为了吉他，睦的反应说白了就是，那我就是个吉他工具人呗
+
+所以“Mortis不能弹吉他”是写在Mortis的底层逻辑里的，你不要演戏，我就演戏，演几个小时都行，你让我弹吉他，我就不弹，完全不会弹
+
+*****
+
+####  天空塔书记官  
+##### 12167#       发表于 2025-1-24 17:16
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 17:20 编辑 
+
+所以就继续看呗，这动画还有9集，先别急着洗黑，等完结了再反攻倒算也不迟
+
+分析人物和剧情也就是个作为添头的乐子，而且随着剧情的反展，一开始的预测可能会和故事的走向偏离得越来越远，重要的是自己追番的体验
+
+我一直的观点都是炸车只是表现修车必要性的手段和工具，车最后能不能跑起来才是故事的主线
+
+毕竟大家都是kirakiradokidoki的乐队少女，都是好孩子，好姑娘
+
+甚至动画做崩了，只要不与企划切割，那就还有三转二的逆输入，后续的动画和手游剧情，所以现在着什么急呢，真卖不出去角色wsd会比观众更急<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NODY  
+##### 12168#       发表于 2025-1-24 17:18
+
+我真觉得制作组就是打算给喵梦设定家人侠+深柜睦厨+深柜祥厨来挽回人设的，不过观众吃不吃就不知道了
+
+起码目前看来她表现出来的行动不太令人信服，除非真的在关键时刻救火来补偿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IVANLIAO  
+##### 12169#       发表于 2025-1-24 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268597&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 17:16</a>
+
+我认为Mortis是睦为了报复祥子而在自己大脑里部署的一个AI模型（这是比喻，总之不要理解为一个完整的人格 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 12170#       发表于 2025-1-24 17:19
+
+<blockquote>玖羽 发表于 2025-1-24 17:01
+这里说的就是，chu2得到的忠诚不是天上掉下来的，她的四个队友没有一个会鸟财力，归根结底是chu2霸道归霸 ...</blockquote>
+祥子尊重别人的音乐追求、给她们喜欢的舞台剧编排是够音乐番的演绎，如果问题真有这么简单就真能够平稳落地。前四集根本就不是这个走向啊
+
+现阶段她们几个人需要的是音乐性嘛，双重人格 omo人 雇佣兵 网红，车先刹住再说维修吧，就怕后面路段还是下坡路
+
+*****
+
+####  桜庭千景  
+##### 12171#       发表于 2025-1-24 17:21
+
+<blockquote>NODY 发表于 2025-1-24 17:18
+我真觉得制作组就是打算给喵梦设定家人侠+深柜睦厨+深柜祥厨来挽回人设的，不过观众吃不吃就不知道了
+
+起码 ...</blockquote>
+其实第四集她站出来说正论的时候我是以为她要出来救火的
+
+结果没想到一转拆队，就，呃呃。。。
+
+
+*****
+
+####  akiomn  
+##### 12172#       发表于 2025-1-24 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268649&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-24 17:21</a>
+其实第四集她站出来说正论的时候我是以为她要出来救火的
+
+结果没想到一转拆队，就，呃呃。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集我觉得喵梦说的唯一人话是跟莫提斯说你不该待在这里
+真的，这个莫提斯越看越哈人，不管是睦演戏还是双重人格，真的不该继续待着了
+
+*****
+
+####  山ノ内花音  
+##### 12173#       发表于 2025-1-24 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268616&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-24 17:18</a>
+我真觉得制作组就是打算给喵梦设定家人侠+深柜睦厨+深柜祥厨来挽回人设的，不过观众吃不吃就不知道了
+
+起码 ...</blockquote>
+反正日本人好像挺吃这一套的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 12174#       发表于 2025-1-24 17:25
+
+现在还不明确喵梦作事的动机，尤其是和家人通话里的烟花有些太过刻意了，如同被刻意引导向了炸团的方向，这肯定有制作组的考量在，现在喵梦作为起爆器还只是工具人的定位，至于之后会不会补完，那就是之后的事，除非已经看完了全集，否则没法下定论<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 12175#       发表于 2025-1-24 17:26
+
+心意是好的动机是好的，但事办坏了，就不要苛责她了。  我挺恶心这种手法
+

@@ -2882,3 +2882,23 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 
 提到编剧这个事，当年flipflappers也是最后几集把绫奈换掉了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hyde_caesar  
+##### 313#       发表于 2025-1-24 17:20
+
+有种在看抖音10分钟带你看完一季动画的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过确实很欢乐就是了, 适合传播
+
+
+*****
+
+####  AAAZZZWWW  
+##### 314#       发表于 2025-1-24 17:24
+
++2
+
+四集看下来最喜欢的一集
+
