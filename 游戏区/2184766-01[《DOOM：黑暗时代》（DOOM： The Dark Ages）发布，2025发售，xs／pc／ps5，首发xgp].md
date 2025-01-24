@@ -692,3 +692,29 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  灰色的狐狸  
+##### 239#       发表于 2025-1-25 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270388&amp;ptid=2184766" target="_blank">牙晓 发表于 2025-1-24 06:56</a>
+
+各平台DOOM系列都在打折，问下上古的123好玩吗？很便宜，都是3.99刀</blockquote>
+好玩的
+
+包括64
+
+强烈推荐64
+
+*****
+
+####  灰色的狐狸  
+##### 240#       发表于 2025-1-25 00:16
+
+我昨天看片+脑补了一下其实战斗反而不会是太大问题
+
+我现在反而担心他地图变成箱庭了就很蛋疼，线性关卡好处就是能好好设计战斗敌人配置，这样能适配上本身的战斗设计，无论他想高速还是降速都能通过这个调节。
+
+大箱庭我就不好说了。。。
+
