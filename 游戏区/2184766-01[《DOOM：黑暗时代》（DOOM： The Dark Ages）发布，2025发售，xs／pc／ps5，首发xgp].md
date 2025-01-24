@@ -427,3 +427,14 @@ doomTDA的灵感来源，不会是tango那个幽灵线东京吧？？？
 
 PSN美服预购界面扒下来的壁纸
 
+
+*****
+
+####  牙狼GARO  
+##### 217#       发表于 2025-1-24 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266268&amp;ptid=2184766" target="_blank">牙晓 发表于 2025-1-24 13:10</a>
+
+PSN美服预购界面扒下来的壁纸</blockquote>
+谢谢大佬，马上换上
+

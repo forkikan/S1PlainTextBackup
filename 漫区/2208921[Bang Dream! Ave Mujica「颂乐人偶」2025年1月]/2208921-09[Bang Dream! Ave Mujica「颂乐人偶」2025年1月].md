@@ -365,3 +365,121 @@ C 團是祥子跟她的朋友 + 立希
 
 要長期維持關係要靠大家開銀Party 開爽了才可能
 
+
+*****
+
+####  天空塔书记官  
+##### 11874#       发表于 2025-1-24 13:28
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 13:30 编辑 
+
+真的吗，没有祥爸，祥子就能背负其他人的人生 ? kkr都不敢说这话
+
+你丰川家有弦卷财团能量大 ? 缺少了其他四个人，尤其是奥泽美咲，hhw依然运转不了一点，组乐队是五个人的事情，不是她祥子一个人的，没有命运的互相托付，就一定会有她破防的那天，真是高高在上，脑子里只有自己呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Raven314  
+##### 11875#       发表于 2025-1-24 13:30
+
+ 本帖最后由 Raven314 于 2025-1-24 13:32 编辑 
+
+按这个假药如果下一集祥子真的心灰意冷回老家大宅了，那初华不是显得很小丑，好不容易近水楼台结果根本就没捞到什么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+墨提斯也没法保证祥子又一次炸团后不会再次逃避跑路
+
+*****
+
+####  H2Ofrozen  
+##### 11876#       发表于 2025-1-24 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266426&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 13:27</a>
+
+但是莫提斯自述从小一起玩又如何解释</blockquote>
+说了病程是长期发展的，分离人格在完全展现之前总得有个艺术化的形象表现出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Min_FOrder  
+##### 11877#       发表于 2025-1-24 13:31
+
+又看了一遍，第一句台词就透露出后面发展了，“那些全是即兴表演吗”，“mujica的歌我不会啊”。深，太深了，泥潭婊以前还是得放下偏见看一看动画再说
+
+*****
+
+####  江口夕  
+##### 11878#       发表于 2025-1-24 13:31
+
+ 本帖最后由 江口夕 于 2025-1-24 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266419&amp;ptid=2208921" target="_blank">苌门有K 发表于 2025-1-24 13:26</a>
+初华说是双重人格，那一定就是双重人格
+
+至于大喵觉得是演的，那是大喵菜
+
+太尊重原剧了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大祥认为的双重人格即不是睦本人，初华以这个描述解构成双重人格。大祥亲还是你喵梦亲。况且，大猫认为现在睦是在装了么，有什么证据。你不要帮大猫认为
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  屑猫猫  
+##### 11879#       发表于 2025-1-24 13:31
+
+大莫老师留在鸡里动机确实成迷，你也妹保护住睦头提到的乐队啊，就像是耍脾性一样抖露出其他几个人的想法，沟通了但是只是都彼此应付一下。再把大祥soyo自己梦里梦到的意象爹妈说过的话复读一遍，只像是一个语言学习模型不像是严格的双人格
+
+*****
+
+####  iiiiiiiiii  
+##### 11880#       发表于 2025-1-24 13:31
+
+<blockquote>H2Ofrozen 发表于 2025-1-24 13:30
+说了病程是长期发展的，分离人格在完全展现之前总得有个艺术化的形象表现出来吧
+
+ ...</blockquote>
+还是证据不足问题，一看就不是本格推理番（笑）
+
+
+*****
+
+####  novalli  
+##### 11881#       发表于 2025-1-24 13:33
+
+motis可能早就存在，但这个名字可能是后面才有的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  sauron.j  
+##### 11882#       发表于 2025-1-24 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266353&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-24 13:20</a>
+
+假药图一乐，做好编剧就是这么菜的心理准备
+
+莫小姐虽然你菜但我依然爱你 ...</blockquote>
+在mygo能写出 爱音vs大祥 楼梯对决言简意赅的草蛇灰线剧本，然后在这集写出狗屁不通的烂片式逻辑问题，这就是矛盾之处
+
+那么是：
+
+1柿本夺权推翻剧本，为爆而爆
+
+2制作组全员被夺舍
+
+3制作组在下一盘大棋
+
+4独角兽也熬夜脑子不灵光了，审稿没发现硬伤
+
+
+*****
+
+####  dengwl  
+##### 11883#       发表于 2025-1-24 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266483&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-24 13:34</a>
+
+在mygo能写出 爱音vs大祥 楼梯对决言简意赅的草蛇灰线剧本，然后在这集写出狗屁不通的烂片式低级错误，这 ...</blockquote>
+这集我看过，京吹3<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
