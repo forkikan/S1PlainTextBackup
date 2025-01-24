@@ -11534,3 +11534,18 @@ SDG永恒新一轮测试的试玩，扔这了
 
 cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要简化哎
 
+
+*****
+
+####  不可能翻车  
+##### 5506#       发表于 2025-1-24 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265533&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 12:00</a>
+
+对比一下军人时期的夏利亚和战后的夏利亚
+
+可以看出，战后夏利亚军装样式变更，发量减少
+
+更随和懒散，除了原 ...</blockquote>
+85年还脸大变矮了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -4983,3 +4983,89 @@ Mujica本身就是祥子为了逃避而搞的一场故弄玄虚的过家家，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  屑猫猫  
+##### 12281#       发表于 2025-1-24 20:45
+
+等等，大猫老师真的社会人嘛，不是layer姐的年下学妹而已，layer看着那么老练现在应该也是高三差不多，猫在艺人学校估计也就是高一高二的样子。
+
+*****
+
+####  Min_FOrder  
+##### 12282#       发表于 2025-1-24 20:46
+
+ 本帖最后由 Min_FOrder 于 2025-1-24 20:49 编辑 
+
+差不多得了，现在这局面不就是某些少女乐队受众群体处处拿自己的预期和经验轻率地在第4集（第4集！）给全片宣判死刑么？别人讲目标受众就不行，你讲就行？说实话真受够了，mygo怎么解决矛盾，mygo在第几集怎么展开，关另一部作品什么事？不演成样板戏就不满意，这叫啥事？
+
+*****
+
+####  ntrntr1  
+##### 12283#       发表于 2025-1-24 20:49
+
+<blockquote>厚乳果珍爽 发表于 2025-1-24 13:01
+双重人格说的，问个很简单的问题，在一个相当真实的世界里，演一个人格容易还是一个人有神经病容易？而且还 ...</blockquote>
+在一个相当真实的世界里，有人为了报复自己除了情商不大高，没做过任何伤天害理的事情，对自己其实也挺好，生活相当苦逼的姬友，假装精神病，把至少几千个买票的观众和幕后工作人当成玩具，这才是真正的神金好吧。
+
+mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的208。
+
+*****
+
+####  一心而用  
+##### 12284#       发表于 2025-1-24 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270294&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 20:45</a>
+等等，大猫老师真的社会人嘛，不是layer姐的年下学妹而已，layer看着那么老练现在应该也是高三差不多，猫在 ...</blockquote>
+<img src="https://p.sda1.dev/21/0a0f7d95696c60fc4a70880bd2c60f5d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wonner_2012  
+##### 12285#       发表于 2025-1-24 20:50
+
+真走演戏做局路线，我猜是初华和mortis配合演（初华第一个说双重人格，祥子没有明确说出来这个词）
+
+海、喵两个之所以冷静是当时就没信双重人格的说法（海认为“离谱”，喵仍然称呼“睦”），她们认为是祥睦两人出去谈以后没有解决路线之争，睦故意不谈吉他来抗议
+
+
+*****
+
+####  北条早苗  
+##### 12286#       发表于 2025-1-24 20:52
+
+虽然没必要鸡动画复刻狗动画，但就目前的四集来说完全就是过犹不及
+狗团只是jk午后喝茶乐队，爽姐惊天智慧但配上她那孱弱的行动力成功小丑化，最后被一发超诗你的绊修正也是自然。鸡动画一直在强调鸡的商业成果有多成功，但表现出来是对成员毫无约束，大喵想爆就爆，而且她的行为也确实损害了鸡团的利益，结尾又因为底层逻辑必须包饺子，一来一回观感就很差了
+灯皇轻度自闭症，但也没有表现出明显的异质感更没有人敲定就是阿斯伯格。睦头倒好，第三集魔女化演出，第四集直接抛出个多重人格概念，无论是真是假我只能说绫奈闹麻了
+看得最难受的还是初华，狗动画里还是旁敲侧击就可以给灯指路的形象。鸡动画里前四集的表现作为主唱完全删了都不影响，第四集已经伪人到尴尬了，“我觉得现在的母鸡卡挺好的，小祥你是不是太累了”。我只能说你最好真的在串，不然蠢得像串那就烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 12287#       发表于 2025-1-24 20:52
+
+日式冷笑话
+<img src="https://p.sda1.dev/21/d4bfb0297ed46b84670dbdaafacb94ec/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4b6bbcee8f1c515675168c4fc3e0af1e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6c46a99be49107128996ae05e85b1b76/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8cb7af12d714d507362e74ccbc4a2a16/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c89d809855abe2a8a48dcdbaeeffe033/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f045e09ef4cea44ca04d6f16552b62f2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/06781c95d51c6621e2e9c6a4b1d5bc5e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c2cfdd33ba897bce058be56b3ac4f5cc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/781e29d3e00f30feec97ae98a80f0669/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/19facbcfb9d19548f49987617474ddd5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/62712cfe9ac918aa5ec669bebb45e027/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/60e3954613b7f14215441bfe6724d655/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cc52949b29ffb15e7077c9f220508f44/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 12288#       发表于 2025-1-24 20:53
+
+<blockquote>JustW 发表于 2025-1-24 20:43
+四人演Mortis的问题在于，你同事疑似压力过大精神出问题了，无论你信不信人格分裂吧，到底有什么好演的，怕 ...</blockquote>
+讲道理，莫女士APART都近乎架空祥子的领导地位宛如成为团宠了，又看上去笑眯眯的，天台上更是让大祥手足无措，观众们哪想到这人格的精神防线打不过三个普通人，甚至连过招我感觉也还称不上“精彩”
+
