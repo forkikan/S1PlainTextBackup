@@ -851,3 +851,93 @@ motis可能早就存在，但这个名字可能是后面才有的。
 
 可惜之后大祥还在念叨什么“想让睦回来”，但大喵很清楚这些烂事都是大祥作出来的，一天之内把睦头人格找回来更无异于天方夜谭，这才拍桌子说我不干了，赶紧跳船，这发展逻辑难道很唐突吗？
 
+
+*****
+
+####  zhzij111  
+##### 11915#       发表于 2025-1-24 14:15
+
+ 本帖最后由 zhzij111 于 2025-1-24 14:17 编辑 
+
+说实话就第二季这要推剧情就把喵梦推出来当工具人，丝毫不考虑人设是不是有点太畜生了的架势，剧情又爆又烂也很正常
+
+*****
+
+####  无事忙  
+##### 11916#       发表于 2025-1-24 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259661&amp;ptid=2208921" target="_blank">yevvet 发表于 2025-1-23 23:04</a>
+
+莫提斯并没有说自己是双重人格。而是大祥告诉其他人的。喵梦就问了莫提斯你真的是双重人格吗？莫提斯没有回 ...</blockquote>
+精神疾病这个太超出知识范围了。
+
+我要是双重人格，别人问我是不是双重人格，我总不能说对的我是吧……
+
+
+*****
+
+####  影伴光生  
+##### 11917#       发表于 2025-1-24 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263377&amp;ptid=2208921" target="_blank">Tienx 发表于 2025-1-24 08:54</a>
+海玲说她能摇人，一晚上真能把人摇到福冈吗</blockquote>
+第二天演出，摇人应该可以，但是鸡团这吉他可不知道点几杯芭菲才可以啊（除了乐奈还有谁能救火）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  IVANLIAO  
+##### 11918#       发表于 2025-1-24 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259024&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-23 22:34</a>
+
+初华确实最迷
+
+祥子虽然确实不适合当领导，但我觉得最可怜的是居然这团没一个人是为了她的音乐过来的，明明 ...</blockquote>
+祥子啊，你的音乐你乐队都没人爱听啊......
+
+最真实伤害的一集<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 11919#       发表于 2025-1-24 14:20
+
+所以大喵后面不为自己的一系列行为买单而是轻描淡写就包她饺子那有点过分了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 11920#       发表于 2025-1-24 14:21
+
+放眼未来 我已经等不及看pico第4季了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赛菲莉亚  
+##### 11921#       发表于 2025-1-24 14:21
+
+喵梦的人设就是短视，自以为懂流量，她根本不懂mujica到底是怎么红的，mujica的成功给了她很多幻觉，以为这是她自己的功劳，她现在还以为她的所作所为是为了乐队好，你们不听我就自己搞，等她独走了她就知道离开Mujica她就是单纯的底边一条。
+
+*****
+
+####  Raven314  
+##### 11922#       发表于 2025-1-24 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266891&amp;ptid=2208921" target="_blank">IVANLIAO 发表于 2025-1-24 14:20</a>
+祥子啊，你的音乐你乐队都没人爱听啊......
+
+最真实伤害的一集</blockquote>
+鸡狗里被祥子音乐天分压力到的是立希<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 11923#       发表于 2025-1-24 14:24
+
+四人演莫女士论的问题在于四人哪来这么好的默契，莫女士和人联合演祥子的问题在于莫女士后半集的表现立刻破功完全没有情商的样子，无法信服地说她有能力演祥子。
+
+当然后面是可以给莫女士找补说她就是这么强，小孩子破防样也是演出来的。但是莫女士的强度提太高这剧本就塞不下别人的弧光了
+
