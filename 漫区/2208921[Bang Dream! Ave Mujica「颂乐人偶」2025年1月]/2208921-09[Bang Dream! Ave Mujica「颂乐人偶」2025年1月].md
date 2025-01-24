@@ -1918,3 +1918,176 @@ pareo：公若不弃，令王那愿拜为妇妇</blockquote>
 
 不过最后一格分享的台词现在要变成“啊哈我就知道你没有曲奇，羡慕去吧臭屌丝”
 
+
+*****
+
+####  天空塔书记官  
+##### 12013#       发表于 2025-1-24 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267534&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 15:19</a>
+太对了，领导者给你搞的事擦屁股，反过来说领导也有错是吧。领导被暴击成这样，怎么你之前搞事不是挺狂的 ...</blockquote>
+更对了，因为这不是喵梦和祥子的对手戏，如果祥子一直是现在这个被动的样子，海玲和初华爆的时候她就能处理好吗
+
+你不能指望别人永远不会遇到点事吧，合着就你祥子重要，其他四个人就狗屁不是了
+
+只有祥子惨，世上最惨，所以错都是别人的
+
+这什么厕妹言论
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  IVANLIAO  
+##### 12014#       发表于 2025-1-24 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267612&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 15:25</a>
+
+我的评价是有些喵梦厨真的很无敌
+
+第四集前想尽办法洗喵梦，第四集后哎洗不动这双标狗了，赶紧拉着祥子共沉 ...</blockquote>
+祥子软糯到底已经解释的通了，就是音乐不能打动人心，不知道自己的呐喊是什么，除了观众的惊叹整个团队里没一个被她们的live感动到的，现在要搞清楚的就是喵梦的正论逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">mujica本来以为要爆，现在嘛，稳中向好好吧
+
+*****
+
+####  爱莉希雅  
+##### 12015#       发表于 2025-1-24 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262370&amp;ptid=2208921" target="_blank">lolisk 发表于 2025-1-24 02:48</a>
+
+理一理五人包厢开团的立场，和预测之后可能会有的展开
+
+1.祥子：一贯主张乐团的音乐性不可或缺，不接受失去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有可能真缺吉他，小猫掉线4集了，怕不是在拼搏一百天我要上划小船
+
+*****
+
+####  厚乳果珍爽  
+##### 12016#       发表于 2025-1-24 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267601&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-1-24 15:24</a>
+
+另外喵梦这几话全都是抽人的一方，接下来也该多受受苦了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我建议在S1成立爱猫TV委员会，纲领就一条：爱猫。
+
+*****
+
+####  KozueAkimoto  
+##### 12017#       发表于 2025-1-24 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266569&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 13:42</a>
+我一般判断是不是会烂尾看的是这部番制作和剧本打磨时间充不充足，绫奈自己说在mygo开播前剧本已经写好了 ...</blockquote>
+这个审了一年剧本的访谈还找得到吗？我好像也找不到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 12018#       发表于 2025-1-24 15:31
+
+大伙觉得第一个新曲live大概什么时候会来，第七集能来吗
+
+*****
+
+####  yukisanae  
+##### 12019#       发表于 2025-1-24 15:31
+
+有没有舅舅党敢来给大伙吃定心丸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 12020#       发表于 2025-1-24 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266887&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-24 14:20</a>
+
+第二天演出，摇人应该可以，但是鸡团这吉他可不知道点几杯芭菲才可以啊（除了乐奈还有谁能救火）
+
+——  ...</blockquote>
+真能请到乐奈救场几杯巴菲还真是小事了，终身无限量供应应该都没问题<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 12021#       发表于 2025-1-24 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267656&amp;ptid=2208921" target="_blank">爱莉希雅 发表于 2025-1-24 15:30</a>
+
+有可能真缺吉他，小猫掉线4集了，怕不是在拼搏一百天我要上划小船</blockquote>
+小猫不是附属初中的初三么，几乎直升高中吧
+
+*****
+
+####  屑猫猫  
+##### 12022#       发表于 2025-1-24 15:33
+
+<blockquote>影伴光生 发表于 2025-1-24 14:20
+第二天演出，摇人应该可以，但是鸡团这吉他可不知道点几杯芭菲才可以啊（除了乐奈还有谁能救火）
+
+——  ...</blockquote>
+答案当然是钱还够时间不冲突一切好说的打工皇帝花园多惠或者短期雇佣兵lock（
+
+*****
+
+####  huxiaopao163  
+##### 12023#       发表于 2025-1-24 15:33
+
+所谓的舅舅党也就提前两天看下一集，之前那个剧透第五集的现在看来就是笑话。。。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  JustW  
+##### 12024#       发表于 2025-1-24 15:34
+
+高中生还是滚去学习吧，平时业余玩玩乐队也可以，退一万步非要商业化也找个成熟的经纪公司（pp那个除外）。现在看哪个假药成真了也是小孩儿闹麻了，又是演戏又是大棋又是玉玉症又是折磨这个折磨那个。
+
+
+*****
+
+####  古明地雷  
+##### 12025#       发表于 2025-1-24 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267643&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 15:29</a>
+更对了，因为这不是喵梦和祥子的对手戏，如果祥子一直是现在这个被动的样子，海玲和初华爆的时候她就能处 ...</blockquote>
+全是祥子作出来的可是前几楼原话，一被反驳就倒打一耙祥子冰清玉洁，太对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12026#       发表于 2025-1-24 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267643&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 15:29</a>
+更对了，因为这不是喵梦和祥子的对手戏，如果祥子一直是现在这个被动的样子，海玲和初华爆的时候她就能处 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太几把对了，第一集喵梦搞事，祥子熬夜给改剧本擦屁股怎么不提？睦崩溃了祥子临场圆场怎么不提？
+喵梦双标狗的嘴脸在你身上也是体现的淋漓尽致了，现在整个团要炸了，就你双标狗不提领导之前擦屁股的一系列事，直接先指责被暴击再起不能的领导是吧？
+有你这种人真是该先把你踢了，最开始做坏事不想着领导的好，有好事让你沾，团队要炸了开始慌了终于想到领导了
+
+*****
+
+####  IVANLIAO  
+##### 12027#       发表于 2025-1-24 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267643&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 15:29</a>
+
+更对了，因为这不是喵梦和祥子的对手戏，如果祥子一直是现在这个被动的样子，海玲和初华爆的时候她就能处 ...</blockquote>
+最会卖惨的不是你大喵吗？讲真的，给大喵的篇幅多得离谱好吧
+
+*****
+
+####  第贰个十年  
+##### 12028#       发表于 2025-1-24 15:38
+
+我嘴笨说不过你们，但我觉得这集还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是自然地推进剧情搭上精心打磨的细节表现和制作，mygo除了诗超绊，其他部分也是这样的，质量不错我比较喜欢。
+
+诗超绊让我从比较喜欢变得很喜欢，mujica的诗超绊还没影儿呢，到时候烂了再说呗。但祥子为什么拘泥于乐队的原因，或者说团魂，到现在也没讲明白，很难想象出来要怎么搞才能把音趴开起来……虽然诗超绊前我也想象不出来，只能相信独角兽老师的水平了。
+
+其他的算是缺点的，一个是双重人格这玩意儿虽然都快用烂了，但能在少女乐队企划里面看见还是震撼我妈了，来真的啊？确实很大胆，效果不好说，看怎么收了。
+二是，喵梦工具人属性已经突破天际了，为了推进剧情已经到了人物逻辑崩坏的边缘了，mygo的猫猫虽然也是工具人，但当时有祥子分担恶役，猫猫搞个神人人设大伙儿也就释怀了。现在喵梦要详细写，很多地方真的不好圆。又要有激烈矛盾推进剧情又要卖角色全员好人，真的很难不出问题。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
