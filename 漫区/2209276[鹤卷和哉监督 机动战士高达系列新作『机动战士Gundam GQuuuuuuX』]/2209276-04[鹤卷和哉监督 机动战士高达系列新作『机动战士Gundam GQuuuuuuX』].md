@@ -11549,3 +11549,13 @@ cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要�
 更随和懒散，除了原 ...</blockquote>
 85年还脸大变矮了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  psycho_Gadfly  
+##### 5507#       发表于 2025-1-24 20:55
+
+知乎有个PhD写的观后感写的蛮专业的(最后一句笑了
+
+《高达GQuuuuuuX》观后感——首部“战后”高达的唏嘘
+
