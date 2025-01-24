@@ -438,3 +438,13 @@ PSN美服预购界面扒下来的壁纸
 PSN美服预购界面扒下来的壁纸</blockquote>
 谢谢大佬，马上换上
 
+
+*****
+
+####  丹德里恩  
+##### 218#       发表于 2025-1-24 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">立刻购入
+
+原来永恒那个彩虹小马皮肤我还挺喜欢的，这代还有么....
+

@@ -2794,3 +2794,20 @@ Mortis双重人格说我倒是没什么意见，从第三集看再怎么切割�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且第一集是双人脚本排第二，推上也说过这个季度只有单数月有她的脚本，下集没有的话那可以确定全片只参与了半集脚本了
 
+
+*****
+
+####  homesickness  
+##### 304#       发表于 2025-1-24 13:49
+
+mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
+
+*****
+
+####  ArthurDent  
+##### 305#       发表于 2025-1-24 13:50
+
+这集太杂乱了，同一集中前后角色的形象都变了又变，不知意欲何为。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

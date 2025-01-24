@@ -1603,3 +1603,28 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 但楼上说意识形态反华就很幽默，像是机器人发 ...</blockquote>
 虽然春夏之交那块他调查的不够仔细 但是这块不是他主要想表达的
 
+
+*****
+
+####  木水风铃  
+##### 145#       发表于 2025-1-24 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264368&amp;ptid=2243911" target="_blank">中二骚年 发表于 2025-1-24 10:28</a>
+
+这片子里提到春夏之交和某炸药和平奖得主，被禁是正常的。
+
+但楼上说意识形态反华就很幽默，像是机器人发 ...</blockquote>
+通过网盘分享的文件：The.Invisible.War.2012.1080p.WEBRip.x264.AAC5.1-[YTS.MX].mp4等2个文件
+
+链接: [https://pan.baidu.com/s/1hc7mwDVz1523Ssylao8ppA?pwd=ai2p](https://pan.baidu.com/s/1hc7mwDVz1523Ssylao8ppA?pwd=ai2p) 提取码: ai2p 
+
+--来自百度网盘超级会员v6的分享
+
+通过网盘分享的文件：The.War.on.Democracy.2007.1080p.WEBRip.x264-RARBG.mp4
+
+链接: [https://pan.baidu.com/s/14w0Zs_XbodZ9aGK1XAAIeQ?pwd=t3vh](https://pan.baidu.com/s/14w0Zs_XbodZ9aGK1XAAIeQ?pwd=t3vh) 提取码: t3vh 
+
+--来自百度网盘超级会员v6的分享
+
+那就顺便传两个。。。希望不要爆。。。
+
