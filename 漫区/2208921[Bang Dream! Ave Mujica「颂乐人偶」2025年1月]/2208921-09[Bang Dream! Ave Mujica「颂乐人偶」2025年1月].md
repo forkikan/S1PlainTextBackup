@@ -6105,3 +6105,85 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 每集结束后初华的报幕词表明了初华是整个故事的讲述者，但是真实仍被锁在猫箱里不得而知，在初华的故事里她自己的存在感低到难以置信，是否是为了掩饰她才是主导了一切的幕后真凶呢
 
+
+*****
+
+####  fsfs_freeze  
+##### 12379#       发表于 2025-1-25 00:36
+
+这才第四集，社区对于祥子这个角色的争议已经大到了不可思议的地步，估计到完结之后双方的仇恨也不会消失，只能说独角兽确实是个人才<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 12380#       发表于 2025-1-25 00:37
+
+晚上把鸡团的歌拉了一下，从元素专拉到同名曲，就感觉啊，如果接下来还继续接着发生类似酒店之战这样难绷的情节，动画剧情真的撑得起来这一年来写的音乐吗？牢祥这个动画人物真的撑得起来这些曲子作曲加编曲的含金量吗？这些旋律里疾走的鼓，暴躁的吉他，华丽的键盘，真的是一个铸币大陀螺能编出来的？软糯小章鱼是被生活捶打完了狠狠编交响金发泄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+古语云，歌以咏志，你在一个2.5次元的乐队企划里，做的歌至少要能够跟你的二次元人物匹配的上。现在的mujica的歌，就像是供曲团队自己在英雄魔王的主题上大嗨特嗨，而动画团队则在演一出尴尬的小丑戏，前四集几乎没有一个人表现出了人物弧光，全是往下走的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+倒并不是说暴露丑态不行，但是审丑总得要有个度，你不能在角色曲里大杀特杀，来到动画剧情里变成小丑，这样不匹配的后果就是让一方的感受体验变得油麦难绷。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过，如果动画团队的目的是在元叙事的层面展现戏剧性对音乐性的颠覆的话，那他们的确是很成功的，这样我建议最后再翻弹翻唱一首《Mujica是个大实验室》。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fsfs_freeze  
+##### 12381#       发表于 2025-1-25 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270819&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 22:09</a>
+拿一堆超现实的东西丢进这个美少女组队搞乐团的动画里，无异于机械降神，其本质就是编剧没办法写下去了，只 ...</blockquote>
+真就现在这种明线暗线假药猜测一大把的情况，虽然才第四集，但已经有种根本收不回来的感觉了，让人觉得仿佛只有机械降神才能收束<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12382#       发表于 2025-1-25 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271754&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-25 00:36</a>
+这才第四集，社区对于祥子这个角色的争议已经大到了不可思议的地步，估计到完结之后双方的仇恨也不会消失， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四集播完祥子风评算好的了，因为祥子彻底没牌打下桌回家了，场内被莫提斯拷打的说不出话彻底破防了。场外火力全在攻击最后五分钟的莫提斯和喵梦上
+
+*****
+
+####  半年  
+##### 12383#       发表于 2025-1-25 00:42
+
+<img src="https://p.sda1.dev/21/f852d1dd19f2a04223f117d00fb4cc4a/GiEKdJOaYAA-sj4.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/AkaneY_banu/status/1882797621523464426/photo/1](https://x.com/AkaneY_banu/status/1882797621523464426/photo/1)
+
+
+*****
+
+####  帝下室の年糕  
+##### 12384#       发表于 2025-1-25 00:43
+
+祥子已经彻底成为没用的废物娇妻，这样的角色甚至没有拷打和围绕着她展开激烈斗争的价值
+
+*****
+
+####  fsfs_freeze  
+##### 12385#       发表于 2025-1-25 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271769&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 00:40</a>
+第四集播完祥子风评算好的了，因为祥子彻底没牌打下桌回家了，场内被莫提斯拷打的说不出话彻底破防了。场 ...</blockquote>
+但祥子可是从开播之前就在打，而且我认为关于其他角色的对立双方到完结还能有和解的可能性，到祥子(到完结那个时候都成历史遗留问题了)的对立双方我看不懂怎么和解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 12386#       发表于 2025-1-25 00:45
+
+以后每一集都是最黑暗的一集<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tsoulgain  
+##### 12387#       发表于 2025-1-25 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271375&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-24 23:32</a>
+还是怀疑睦有第三形态</blockquote>
+小绿是吧<img src="https://static.saraba1st.com/image/smiley/carton2017/249.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

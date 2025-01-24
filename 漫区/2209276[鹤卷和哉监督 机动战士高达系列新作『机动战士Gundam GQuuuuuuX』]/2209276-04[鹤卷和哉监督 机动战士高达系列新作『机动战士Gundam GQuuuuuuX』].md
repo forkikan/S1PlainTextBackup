@@ -11895,3 +11895,47 @@ GiDuuJKbQAEvdel.jpg
 
 我说的反攻倒算当然是指以尊重为中心，发起对高吧NGA等的讨伐。只要《高达正在尊重我发布》，分分钟将差评顽固姨姥分子尽数歼灭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5539#       发表于 2025-1-25 00:36
+
+ 本帖最后由 YU_JI 于 2025-1-25 00:38 编辑 
+<blockquote>AvenueIII 发表于 2025-1-25 00:24
+《正宗哥吉拉》
+
+种青desu
+
+</blockquote>
+
+还真是，他那几期讲CCA的视频我都看过，蛮有意思的
+
+*****
+
+####  王留美  
+##### 5540#       发表于 2025-1-25 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271689&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-25 00:25</a>
+ 尊重大概率是不会差评gqx的，PV发的时候就说看好，他现在看的这么晚，估计早被好评环境确定好预设立场了 ...</blockquote>
+国内哪里有好评环境了
+
+
+*****
+
+####  YU_JI  
+##### 5541#       发表于 2025-1-25 00:42
+
+<blockquote>创始’’’天翔 发表于 2025-1-25 00:34
+我说的反攻倒算当然是指以尊重为中心，发起对高吧NGA等的讨伐。只要《高达正在尊重我发布》，分分钟将差评 ...</blockquote>
+错误的，差评顽固姨姥分子会从机设开喷，而没人能在审美这种主观的东西上消灭对方的观点
+
+*****
+
+####  YU_JI  
+##### 5542#       发表于 2025-1-25 00:43
+
+<blockquote>王留美 发表于 2025-1-25 00:41
+国内哪里有好评环境了</blockquote>
+他人不是在日本吗？
+
