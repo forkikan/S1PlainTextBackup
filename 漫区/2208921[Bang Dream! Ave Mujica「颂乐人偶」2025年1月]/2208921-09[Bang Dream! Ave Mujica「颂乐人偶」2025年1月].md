@@ -3557,3 +3557,141 @@ M 小姐是不是純反派只要看她是不是真玩不了音樂就可以判斷
 有没有舅舅党敢来给大伙吃定心丸的</blockquote>
 试试这个？[https://bbs.saraba1st.com/2b/for ... amp;authorid=552919](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2208921&amp;page=132&amp;authorid=552919)
 
+
+*****
+
+####  天空塔书记官  
+##### 12155#       发表于 2025-1-24 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268519&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-1-24 17:04</a>
+喵梦有去包容别的队友吗
+
+想要流量就把面具摘了，没蹭上就鼓动别人单飞，队友精神出问题了就想退团
+
+总不能没 ...</blockquote>
+这话怎么也应该放到13集去说，而不是第四集，明白吗，这番还没有完结，这只是故事的开头<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  IVANLIAO  
+##### 12156#       发表于 2025-1-24 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268437&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 16:54</a>
+
+你真信莫提斯不会玩吉他吗？
+
+海玲都无语了，那巡演第一场怎么弹的吉他？
+
+莫提斯大概率私底下和其他三个接 ...</blockquote>
+莫肯定会弹吉他🎸，仔细看第四集的第一幕戏莫被主持问是否真的不会演奏时的反应和后面接的月之森那一幕对同学的回应，莫就是用演技混过去了。
+
+倒不如说，我现在认为莫这个所谓的“人格”就是睦依据体验派以及表现派之类的表演模式所构建的“角色”，在感受到祥子对mujica的执念后，睦押注了自己的演技，在这一段时间全身心的投入在这个“角色”中。
+
+和幻想中的朋友一起玩本身是很常见的幼童形象，睦运用高超的演技力，以自己为原型，在参考了众多朋友后，挪用并发展了这一形象。
+
+只是人机小睦还是手艺不到家，童年的玩伴，怎么可能会和小祥的戏剧“死亡”一角“mortis”重名呢？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 12157#       发表于 2025-1-24 17:06
+
+舅舅的评价是没有意义的
+纯纯的信息茧房<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黄大叔看完第四集的评价是“好看”
+结果呢
+
+*****
+
+####  DARK_HGCG  
+##### 12158#       发表于 2025-1-24 17:08
+
+话说回来
+
+尹卡卡都行为艺术成那样了，为什么大家还要在冻鳗追求严丝合缝呢
+
+*****
+
+####  akiomn  
+##### 12159#       发表于 2025-1-24 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看睦的问题最后怎么给个合理解释吧，如果睦的问题都能平稳落地，那么确实配年度第一原创
+但我怀疑制作组是单纯的菜只想爆爆爆却没有收回来的能力啊
+
+*****
+
+####  南宮凝香  
+##### 12160#       发表于 2025-1-24 17:09
+
+<blockquote>山ノ内花音 发表于 2025-1-24 17:06
+舅舅的评价是没有意义的
+
+纯纯的信息茧房
+
+黄大叔看完第四集的评价是“好看”</blockquote>
+好看
+
+一晚上打了那麼多層樓
+
+我就問你好不好看
+
+
+*****
+
+####  影伴光生  
+##### 12161#       发表于 2025-1-24 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268541&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-24 17:08</a>
+话说回来
+
+尹卡卡都行为艺术成那样了，为什么大家还要在冻鳗追求严丝合缝呢 ...</blockquote>
+现实可以没有剧本不讲逻辑
+但是ave mujica可是让大家期待了一年半才端出来+开播前大肆宣传的程度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  bird-lay  
+##### 12162#       发表于 2025-1-24 17:13
+
+别说还没完结了如何如何，如果喵梦最后只靠爱家人就洗白那我是真不想剩下几个人和这种队友包饺子
+
+*****
+
+####  swff  
+##### 12163#       发表于 2025-1-24 17:14
+
+话说如果最后这集真是演的，我建议姐们还是老老实实搞乐团，就这集表现的演技别想着搞表演了
+
+*****
+
+####  厚乳果珍爽  
+##### 12164#       发表于 2025-1-24 17:14
+
+<img src="https://img.saraba1st.com/forum/202501/24/171414q7nju155du0n02nz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250124171221.png</strong> (201.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 17:14 上传
+
+大河内精神继承者
+
+*****
+
+####  Min_FOrder  
+##### 12165#       发表于 2025-1-24 17:15
+
+<blockquote>山ノ内花音 发表于 2025-1-24 17:06
+舅舅的评价是没有意义的
+
+纯纯的信息茧房
+
+黄大叔看完第四集的评价是“好看”</blockquote>
+漏油最好别这么极端地把第4集不好看当公论，说实话我觉得这个态度比什么角色厨的危害性大多了
+

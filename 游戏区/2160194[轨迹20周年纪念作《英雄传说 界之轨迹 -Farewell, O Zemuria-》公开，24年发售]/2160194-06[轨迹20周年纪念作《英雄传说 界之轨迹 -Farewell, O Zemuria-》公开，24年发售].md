@@ -452,3 +452,14 @@ xbox手柄补丁，根目录覆盖
 
 这剧情一坨屎，大家自然就开始骂————不，研究这个游戏的精妙台词了
 
+
+*****
+
+####  卢迪克  
+##### 7490#       发表于 2025-1-24 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268086&amp;ptid=2160194" target="_blank">killcal 发表于 2025-1-24 16:16</a>
+
+现在翻译情况怎么样？pc版有改进吗？简体还是繁体</blockquote>
+看解包的说简体就是一键繁转简+改了一些人名和名词试图掩饰。
+
