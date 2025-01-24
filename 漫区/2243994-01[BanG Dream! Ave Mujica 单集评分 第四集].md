@@ -2360,3 +2360,28 @@ mortis说自己不会吉他，到底是真话，还是假话呢，真话的话�
 
 还是+2，每个人都还在自己人设上尽着自己的义务（海玲:别算我，我只是来帮忙的，散了我可以6）疯狂作死,最意外的mortis哪怕脱去表面的光鲜亮丽，在更心狠手辣的喵梦逼迫下小丑化了也是如此的美味充满喜感，嗯这也该是小丑的职责不是吗。只要继续维持整活这个节奏我会继续+2的，但是。。。结尾不给收好就给你**的-2，反正现在才4集可劲儿浪吧你们
 
+
+*****
+
+####  童话与星空  
+##### 261#       发表于 2025-1-24 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262691&amp;ptid=2243994" target="_blank">kaildo 发表于 2025-1-24 04:16</a>
+感受到了看Flip Flappers时的恐惧
+开始怀疑独角兽的剧本是不是受到了烂尾的诅咒
+我裂开了 ...</blockquote>
+Flip Flappers后半部分的剧本是久弥直树写的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哆哆鸡  
+##### 262#       发表于 2025-1-24 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263308&amp;ptid=2243994" target="_blank">童话与星空 发表于 2025-1-24 08:46</a>
+Flip Flappers后半部分的剧本是久弥直树写的
+
+—— 来自 S1Fun</blockquote>
+mujica就没有这种可能性了吗 如果把mygomujica合起来看 mygo就是轻拍前6集 mujica就是轻拍后6集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
