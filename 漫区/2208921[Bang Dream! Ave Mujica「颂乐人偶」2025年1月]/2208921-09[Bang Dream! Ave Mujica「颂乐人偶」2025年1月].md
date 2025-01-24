@@ -3979,3 +3979,61 @@ Mortis其实就是小女孩闹别扭，只不过用了非常极端夸张、看�
 心意是好的动机是好的，但事办坏了，就不要苛责她了。  我挺恶心这种手法 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是狗团第一集就出现过的问题吗
 
+
+*****
+
+####  影伴光生  
+##### 12188#       发表于 2025-1-24 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268771&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-24 17:31</a>
+我都等了一年半了为啥不再等三个月后全篇演完呢
+
+有人说兽娘2那兽娘1都有那个平平的偶像回呢
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等三个月完全不吃剧透也不是不行，但是很困难（除非有不接触社交网络的决心），我身边就一个埋在合肥人造太阳实验室里的朋友能做到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  IVANLIAO  
+##### 12189#       发表于 2025-1-24 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268913&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 17:43</a>
+
+“睦再也回不来了”——这是有资格作为一个人格的黑睦Mortis
+
+“就你这样，睦也许再也回不来了”（こんな ...</blockquote>
+原本是吉他高手，因为无法歌唱而痛苦，现在直接不会吉他，就算是这样，也想要让自己的吉他歌唱，我超，热血起来了呀<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+致敬传奇创作理论“救猫咪”，故事要走最远的路是吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 12190#       发表于 2025-1-24 17:53
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 17:56 编辑 
+
+我之前对喵梦的人格测写还是说对了一部分的，包括学校的部分，经济条件、多子女家庭和大概的童年生活经历，家庭对她追梦的支持以及固执看气氛的性格特点，但因为过于专注于“母性”而忽视了她并不是担家的长女的可能性，结果她上边还有哥哥和姐姐，就被打脸了2333，所以喵梦可能更像是孩子王的定位，但也不好说，需要再看看
+
+关于“家人侠”，有一点很重要，那就是她当明星是为了满足自己还是明确呼应家庭成员的意愿，这很可能会影响最后观众对她的评价
+
+再者还有一点信息被隐藏了，一个农村土妹是怎么成为都市美妆网红的，从片中看，喵梦不是真正会在意自己外貌的性格，所以是什么原因让她决定成为时尚的弄潮儿，是单纯的爱慕虚荣还是歧视、网暴或者霸凌呢，还有她与鼓又有怎样的关系，这些方面都还有展开的余地，但只是可能不是在动画里罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 12191#       发表于 2025-1-24 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268960&amp;ptid=2208921" target="_blank">IVANLIAO 发表于 2025-1-24 17:48</a>
+
+原本是吉他高手，因为无法歌唱而痛苦，现在直接不会吉他，就算是这样，也想要让自己的吉他歌唱，我超，热 ...</blockquote>
+我打个比方，这就像魔王对勇者说“勇者啊，只要你不能领悟爱，你就永远别想救出公主”
+
+这种话被魔王说出口，你不觉得奇怪吗，能说这种话的魔王就不是魔王，而是公主的传声筒
+
