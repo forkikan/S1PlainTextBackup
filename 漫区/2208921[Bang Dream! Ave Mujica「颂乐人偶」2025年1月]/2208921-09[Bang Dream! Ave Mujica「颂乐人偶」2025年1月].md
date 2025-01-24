@@ -2273,3 +2273,35 @@ pareo：公若不弃，令王那愿拜为妇妇</blockquote>
 
 祥子有问题不代表喵梦没问题，同理喵梦有问题也不代表祥子没问题；主要是祥子已经在吃瘪低低在下了，但是喵梦还是那么高高在上的，多少观感不太好了
 
+
+*****
+
+####  古明地雷  
+##### 12044#       发表于 2025-1-24 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267741&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-1-24 15:38</a>
+我得澄清一下，我前面说的“全是祥子作的”是说在大喵眼里睦头精神病都是祥子作的，她的行为至少符合（或 ...</blockquote>
+如果她觉得是祥子作的，那说明她完全没有想过自己有问题，这角色塑造<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 12045#       发表于 2025-1-24 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267111&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 14:40</a>
+
+要卖角色的，总不能卖个纯坏的人吧？能卖出去吗？</blockquote>
+厕妹女频劣文也有自己的受众，本来狗鸡就是为了拓宽市场推出的作品，狗相比前面的作品就有很大不同。
+
+*****
+
+####  玖羽  
+##### 12046#       发表于 2025-1-24 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267843&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-24 15:49</a>
+
+如果她觉得是祥子作的，那说明她完全没有想过自己有问题，这角色塑造</blockquote>
+喵梦直到第四话都根本不认为睦有精神问题，第三话是天才演技，第四话是大小姐闹别扭
+
+还是说你要喵梦觉得“都怪我摘面具增加了睦的精神负担导致睦精神崩溃被自己的黑暗面吞噬”？这是观众的上帝视角，不是角色的
+

@@ -11375,3 +11375,13 @@ GiCj6bnbEAAExeU.jpg
 
 如果源头是精骨机的猜想没错的话，结局大概就是修司把 阿尔法塞克谬 和 奥米加塞克谬 这不属于这个世界的东西都带回原来的世界吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 5491#       发表于 2025-1-24 15:49
+
+双火为炎，还能合体是吧，怎么听起来像钢巴斯塔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+最后穿越回去也有一万两千年的意思？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
