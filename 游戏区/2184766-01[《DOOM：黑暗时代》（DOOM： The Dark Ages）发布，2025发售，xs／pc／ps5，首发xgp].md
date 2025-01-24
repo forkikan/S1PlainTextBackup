@@ -657,3 +657,26 @@ Doom配置要求也出了，和夺宝奇兵一样强制光追打底了，20系n�
 我是真信楼里舅舅党说的觉得不如永恒好玩，演示里面就已经出现了盾牌兵被盾砸掉盾的情况了，后续我看很大可 ...</blockquote>
 话说你截图上这个武器，我在想是这代依然有模组，还是说有不同升级路线
 
+
+*****
+
+####  Sorastlos  
+##### 237#       发表于 2025-1-24 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269533&amp;ptid=2184766" target="_blank">u2deack 发表于 2025-1-24 18:59</a>
+
+搜了一下发现这作的音乐不是Mick Gordon做的了，真的是终极遗憾</blockquote>
+Eternal的制作期间没给Mick关卡的材料就要求他每个月写两关的音乐，由于缺乏材料导致了大量的重做。
+
+他提交的音乐长度比合同的长两倍，最终全都用上了，但他只拿到了合同上规定长度的钱。
+
+宣布OST发售的时候Mick才从媒体上知道要出版。而他甚至没拿到要出版OST的合同，他甚至没想过要开始相关的工作。
+
+Id指责Mick没在期限内提交OST的最终混音版，Mick指责Id随便拿他提交的素材找他们自己的音乐工程师Chad搞了OST出版。
+
+OST的元数据表明在Mick拿到OST出版合同的六个月前Chad就在做这个OST版本了。
+
+Id的Marty Stratton在Reddit上发了帖子责怪Mick。
+
+Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic client.</blockquote>
+

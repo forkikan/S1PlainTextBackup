@@ -5495,3 +5495,41 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 但某人其實患有失憶症不知道自己忘了什麼
 
+
+*****
+
+####  影伴光生  
+##### 12326#       发表于 2025-1-24 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按前四集来看，大喵才是大女主，怼人一直没输过，被踩头也能反杀，随心所欲搞事情，而且家庭关系和谐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 12327#       发表于 2025-1-24 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿一堆超现实的东西丢进这个美少女组队搞乐团的动画里，无异于机械降神，其本质就是编剧没办法写下去了，只能用乱七八糟的东西才能解释明白了。
+
+
+*****
+
+####  苓宁  
+##### 12328#       发表于 2025-1-24 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263516&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-24 09:10</a>
+感觉剧情不如 flowers冬</blockquote>
+那倒不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑猫猫  
+##### 12329#       发表于 2025-1-24 22:11
+
+<blockquote>厉飞雨 发表于 2025-1-24 22:05
+所以在商k里面笑的是睦头还是牢莫</blockquote>
+睦头啊，牢莫都狰狞成什么样了，哪儿有人类感。牢莫那个频率和浮夸程度，她会在意咧嘴不咧嘴，睦头是捂嘴掩盖了的。
+
