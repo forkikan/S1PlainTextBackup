@@ -12757,3 +12757,40 @@ b站先审后播，肯定是看过全篇做的字幕啊。而且最近出了那�
 
 第四集真的是谁说话少，谁的人设就崩得少，wsd最好真的有在藏东西
 
+
+*****
+
+####  rollingusagi  
+##### 11586#       发表于 2025-1-24 09:22
+
+我还是对莫女士是一个单独人格这个结论保持怀疑，她这集的发言有太多割裂的地方了，看着本身就像是拼凑出来的人格一样，如果这是真的那就更像恐怖片了，后面可能会渐渐变成像坏掉的磁带那样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 11587#       发表于 2025-1-24 09:24
+
+我还是觉得剧情藏东西了，wsd可能不说什么，但是b站字幕组故意搞红白字我觉得就是有什么东西让大家猜
+
+*****
+
+####  凉良  
+##### 11588#       发表于 2025-1-24 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263475&amp;ptid=2208921" target="_blank">PascalLefèvre 发表于 2025-1-24 09:05</a>
+刚刚还看到一个说红字都是谎言的，能不能统一一下
+
+—— 来自 S1Fun</blockquote>
+红字现在还不好判别 但是白字是一个一个被找到出处 除了几句
+
+*****
+
+####  Min_FOrder  
+##### 11589#       发表于 2025-1-24 09:27
+
+<blockquote>哈曼的YY 发表于 2025-1-24 03:28
+大喵单独上节目和祥老师回大宅很难欺诈吧</blockquote>
+真的是大宅吗你再看看
+
