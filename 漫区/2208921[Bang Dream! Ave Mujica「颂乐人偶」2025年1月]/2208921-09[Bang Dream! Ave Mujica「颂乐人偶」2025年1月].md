@@ -4178,3 +4178,44 @@ mortis是睦闹别扭是一种能解释得通的方式。
 
 本来我不担心的，但现在我真的开始担心编剧觉得喵梦没问题或者觉得喵梦已经赎完罪了
 
+
+*****
+
+####  Raven314  
+##### 12206#       发表于 2025-1-24 18:53
+
+不至于，这才多少集，喵梦本来在单飞中最没兜底的人，就这样直接逐梦演艺圈不翻车才怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  necroia  
+##### 12207#       发表于 2025-1-24 18:54
+
+制作组觉得喵梦没问题，那么你就可以见到一路winwinwin的小孩姐喵梦说出那句“我原谅你了，祥子”
+
+*****
+
+####  天空塔书记官  
+##### 12208#       发表于 2025-1-24 18:56
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 18:57 编辑 
+
+只能说一些漏油不是在讨论人物的塑造和剧情的发展，只是想看喵梦吃瘪变成笑话好发泄大祥老师一直被回旋镖的怨气而已
+
+那这就没有继续争论的必要了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 12209#       发表于 2025-1-24 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269382&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-24 18:36</a>
+最大输家也是甜甜圈女士，怎么又被野猫超了，不知道下周能不能超回来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野猫一个四集没出现在cast表的存在，已经是都市传说了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
