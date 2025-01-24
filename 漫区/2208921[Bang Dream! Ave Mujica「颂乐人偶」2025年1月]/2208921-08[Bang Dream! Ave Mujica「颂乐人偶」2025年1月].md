@@ -13413,3 +13413,128 @@ B站源第三集结尾就有台词变色的情况
 
 问题是这团要怎么复合？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 11639#       发表于 2025-1-24 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264346&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-24 10:26</a>
+
+目前我能想到的本手结局是，大伙各自反思，揭露自己的缺点，完成成长。最后带着mortis复健吉他，伴随吉他水 ...</blockquote>
+之前说人格融合，是建立在双重人格基础上的，现在看来整个基础都不存在了，Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型
+
+*****
+
+####  矢吹奈子  
+##### 11640#       发表于 2025-1-24 10:29
+
+看完这集我觉得若麦老师说小祥是大小姐玩过家家完全正论啊
+
+
+*****
+
+####  玖羽  
+##### 11641#       发表于 2025-1-24 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264270&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 10:19</a>
+
+我怀疑Mortis在节目里纯粹是学父母的，毕竟日常反应学Soyo，Soyo又没上过节目</blockquote>
+顺带一提，当Mortis在节目里当场说出“博多人偶”的时候，我的第一反应是这乐队解散算了
+
+我当然不同意祥子世界观神圣不可侵犯的想法，但是公开把幻想世界的Mujica人偶和现实世界的博多人偶相提并论，这相当于把世界观扔在地上用脚踩（我知道是睦的报复）
+
+之前说人格融合，是建立在双重人格基础上的，现在看来整个基础都不存在了，Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI模型
+
+*****
+
+####  桜庭千景  
+##### 11642#       发表于 2025-1-24 10:30
+
+<img src="https://img.saraba1st.com/forum/202501/24/103036p8d468hvp4n44jpp.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_3574747414391512.jpg</strong> (83.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:30 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/103041pnryqn30lvprdvni.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_3574748919860262.jpg</strong> (78.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:30 上传
+
+*****
+
+####  operatbig  
+##### 11643#       发表于 2025-1-24 10:30
+
+<blockquote>KLHgg 发表于 2025-1-24 10:15
+初华海铃祥子的私心描写不说是长期空缺吧，至少也是不如soyo充分</blockquote>
+
+初华想要跟祥一起，祥想躲进自己的世界，基本都是原话了。
+
+*****
+
+####  江口夕  
+##### 11644#       发表于 2025-1-24 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">编剧还不至于傻到前脚大猫告诉家里人自己后面要努力，后脚就要离队拆团。大猫九成有问题。海玲初华估计是跟着演，大祥是放任状态，毕竟这个时间点大祥什么都做不了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ParadiseMartyr  
+##### 11645#       发表于 2025-1-24 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264244&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-24 10:16</a>
+双重人格是什么雷点吗，还是说日本人没把精神疾病这种剧情写好过，所以提前害怕 ...</blockquote>
+二重人格不是雷点，但是如果不是以这个为诡述核心or没有铺垫，突然蹦出来的二重人格，一般是编剧没活儿了，狗血片子
+
+
+*****
+
+####  斗斗一号  
+##### 11646#       发表于 2025-1-24 10:33
+
+点击bilibili吧，差点以为自己还是在萌战吧，至少热度是拉满了
+
+*****
+
+####  ZGM  
+##### 11647#       发表于 2025-1-24 10:34
+
+这一集观感好奇怪啊，前面的情节虽然说有点怪怪的，但我总体还能接受，这最后一段五个人在酒店里对峙的戏也太莫名其妙了吧？我怎么感觉五个人都被夺舍了，这表现和前面16集动画完全不是一个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+提出一个大胆的猜想，第五集的预告里，看起来喵梦、初华和海铃都接受了媒体的采访，不会是致敬《竹林中》，第四集展现出的酒店对峙戏码只是某个人单方面的回忆吧。这一段戏里面，初海祥完全无能为力式挂机，睦（莫形态）像一个小孩子一样无理取闹，只有喵梦在输出，而且是那种听起来完全在为观众考量的正论。所以这一段真的不是喵梦在媒体前单方面的说辞吗？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+不过这种安排也太奇怪了吧？虽然Mygo里就有从不同人的视角演绎同一个场景，但也不是这种罗生门式的美化自己推卸责任给别人泼脏水呀,这种情节也太直面人性之恶太不少女乐队了吧。总不能说我们mujica就是这样的共犯和一丘之貉吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 11648#       发表于 2025-1-24 10:34
+
+现在可以为爆而爆，将来自然可以为了包饺子而包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 11649#       发表于 2025-1-24 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264244&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-24 10:16</a>
+
+双重人格是什么雷点吗，还是说日本人没把精神疾病这种剧情写好过，所以提前害怕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双重人格理论上来说算是缺陷，除非慕残美人喜欢，而且一个偏向日常生活的动画片里，搞这个东西，看着像是看精神分析片的感觉，就“是音乐重要还是表演重要”“观众像看什么就给他看什么吗”
+
+*****
+
+####  theti  
+##### 11650#       发表于 2025-1-24 10:36
+
+莫女士明显是故意炸团演的啊，你说你不会吉他，那op里癫笑弹吉他的是谁？你说没有mujica就不行，那预告里怎么又高高兴兴和初华拍杂志去了
+
