@@ -743,3 +743,13 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 说实话现在的演示内容打精英怪全是一对一全是一个套路， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都有精防了，近战有3个充能那就是豆槽，那么缺的就是消耗豆槽的技能了！还有4个月ID赶紧把你那逼近战改成消耗不同数量的豆释放不同技能，1豆血拳，2豆流星锤和狼牙棒，3豆守护之锤，拥抱最新最潮的ARPG系统吧！
 
+
+*****
+
+####  plok201  
+##### 243#       发表于 2025-1-25 01:03
+
+演示这个战斗给我的感觉就是回归老doom那种节奏，我是挺喜欢那个节奏的
+
+目前来看全面降速，更像市面上流行的FPS，不像永恒那样正常过关打起来像打速通一样
+

@@ -11994,3 +11994,16 @@ uce更新内容剧透，有没有人看到过<img src="https://static.saraba1st.
 
 哦，搞错了，我看他动态在日本我还以为他一直在日本）不过院线上映有repo出来之后，国内倒也没有差评一边倒的情况了，尊重哥不至于完全不看院线反馈吧
 
+
+*****
+
+####  王留美  
+##### 5548#       发表于 2025-1-25 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271814&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-1-25 00:49</a>
+ uce更新内容剧透，有没有人看到过</blockquote>
+https://weibo.com/6303938704/5126297578115975
+
+我没看出来哪里有问题
+难道是砍扎古？
+
