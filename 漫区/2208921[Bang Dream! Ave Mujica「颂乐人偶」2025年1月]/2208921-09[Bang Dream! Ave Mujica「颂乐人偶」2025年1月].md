@@ -6399,3 +6399,56 @@ https://x.com/Slug10000/status/1882748277894058258/photo/1</blockquote>
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  akiomn  
+##### 12408#       发表于 2025-1-25 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272165&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-25 03:17</a>
+演戏太扯了，终于睦有点主观能动性想解决问题了，然后惊世智慧想出来的不是去聊聊，居然是演一出戏，然后在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这样，现在双重人格尴尬，演戏也尴尬，双重人格就送医院，邦邦真有医院的，别搞什么乐队了。演戏是祥子都知错了崩溃成那样了，话都说不利索了，就放过祥子吧。更别提四个演一个更是过分到家了
+当然我不觉得鸡团真的会被拆，只是停止活动，毕竟鸡的设定是舞台上完美表演，肯定会让观众以为鸡团只是用舞台剧表示自己要停止活动了
+
+*****
+
+####  dbyboy  
+##### 12409#       发表于 2025-1-25 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270904&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-24 22:22</a>
+一直有人说国产冻鳗的软肋是剧本
+
+如果大家也能拿出同样的热情去冲国产冻鳗，该少走多少弯路啊 ...</blockquote>
+你在搞笑吗，大家不冲的原因是早就绝望了，以前又不是没有过精品。然而大众审美水平就摆在那里，就像从电竞圈引流来的抽象狗们还在喊着爆爆爆一样，你不会觉得这些人真的关心剧本吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW  
+##### 12410#       发表于 2025-1-25 04:36
+
+谁演谁都很不对劲儿。姐们儿你们是少女乐队不是大明王朝，人际关系利益纠葛有那么复杂吗还要小团体演演演。我勉强也就能接受有一个人脑子坏了开演，一群人合伙演太抽象了。
+
+*****
+
+####  huxiaopao163  
+##### 12411#       发表于 2025-1-25 05:12
+
+感觉在海玲，喵梦她们眼里看来，祥子和小睦确实就像在闹矛盾。一个临表演前说自己不会弹吉他了搞事，一个直接和所有人宣布对方得了神经病。。。玩挺大啊，不知道海玲经历过的乐队有没有遇到过这种的
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  玖羽  
+##### 12412#       发表于 2025-1-25 05:33
+
+这有什么难解的，现在的祥睦关系其实就是MyGO第10话开头的爱灯关系，本质是小女生闹别扭，只要肯哄就好，灯把爱音劝回来只用了不到一分钟
+
+（看这：[https://bbs.saraba1st.com/2b/for ... 21&amp;pid=67268745](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67268745)）
+
+喵梦我都说无数遍了，家人侠这个属性稍微延伸一下就能把队友包含进家人里，如果喵梦出身孤儿院假药是真的，甚至都不用专门延伸
+
+<strong>说到底，在前四话就爆完的问题怎么可能是很严重很难解的</strong>，爆得越早解得越早，要我说，担心初华海铃才是正经
+
