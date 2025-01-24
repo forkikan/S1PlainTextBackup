@@ -718,3 +718,15 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 大箱庭我就不好说了。。。
 
+
+*****
+
+####  有钱多买小人  
+##### 241#       发表于 2025-1-25 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270022&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-24 20:11</a>
+我是真信楼里舅舅党说的觉得不如永恒好玩，演示里面就已经出现了盾牌兵被盾砸掉盾的情况了，后续我看很大可 ...</blockquote>
+是的，回想起了id按着我的手让我用电浆枪的过去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+说实话现在的演示内容打精英怪全是一对一全是一个套路，不会这就没活了吧。这样看飞龙和高达占比要比预想的多得多。总不能全靠探索揭秘撑吧。
+

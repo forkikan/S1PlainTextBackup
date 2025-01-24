@@ -11817,3 +11817,51 @@ GiDuuJKbQAEvdel.jpg
 
 入坑看的0079，不过第一部认真看完的是武斗传（
 
+
+*****
+
+####  卑弥呼yamato  
+##### 5529#       发表于 2025-1-25 00:16
+
+高中时候看的0080MS小队 口袋战争 0083，都没看太明白就觉得机体很帅，打架很帅。后面大学完整看了Seed系，觉得最好看的是观星者（。 再后面出国留学期间把整个UC都看了（甚至独角兽刚出完接上了），还包括GXW。
+
+*****
+
+####  创始’’’天翔  
+##### 5530#       发表于 2025-1-25 00:21
+
+尊重过两天就要看gqx了，准备好反攻倒算了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzf111  
+##### 5531#       发表于 2025-1-25 00:22
+
+←小学时把晓之车设置成qq空间BGM的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是系统地了解UC是在铁血后了
+
+*****
+
+####  AvenueIII  
+##### 5532#       发表于 2025-1-25 00:24
+
+《正宗哥吉拉》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasssf  
+##### 5533#       发表于 2025-1-25 00:24
+
+ 本帖最后由 wasssf 于 2025-1-25 00:25 编辑 
+
+没有先后，种命播一半的时候接触到的，等00s2没播的时期系列一股脑看了
+
+*****
+
+####  YU_JI  
+##### 5534#       发表于 2025-1-25 00:25
+
+尊重大概率是不会差评gqx的，PV发的时候就说看好，他现在看的这么晚，估计早被好评环境确定好预设立场了
+
