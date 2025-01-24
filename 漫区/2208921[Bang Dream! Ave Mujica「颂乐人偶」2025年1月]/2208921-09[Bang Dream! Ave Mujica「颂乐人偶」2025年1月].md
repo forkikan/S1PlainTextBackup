@@ -4581,3 +4581,51 @@ mortis是睦闹别扭是一种能解释得通的方式。
 
 台长发功了。
 
+
+*****
+
+####  zhoujin8584  
+##### 12243#       发表于 2025-1-24 20:05
+
+陷入比惨漩涡确实不好，毕竟这集直接点出了你祥大小姐过家家了，敢掀大祥传的桌家人侠都救不回来她的风评
+
+*****
+
+####  金钱与民主  
+##### 12244#       发表于 2025-1-24 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269891&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-24 19:54</a>
+
+台长这期写得不错【[TV2] 这下彻底炸了？2025年1月新番大爆炸Ave Mujica专场-哔哩哔哩】 https://b23.tv/ID ...</blockquote>
+这里面有一点说得太对了：Mujica目前的剧情过于的故弄玄虚。Mygo的动画可不是靠这些取得成功的。
+
+
+*****
+
+####  天空塔书记官  
+##### 12245#       发表于 2025-1-24 20:11
+
+万字解析up子非鱼发了一个视频预告，说第四集结尾是四个人给莫提斯设的一个局
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑猫猫  
+##### 12246#       发表于 2025-1-24 20:12
+
+<blockquote>ddy2811 发表于 2025-1-24 18:28
+楚萍芳那样的出事了该追人追人该滑跪滑跪，祥子没得楚萍芳的条件，那就不要用楚萍芳的办法。别人不是命中 ...</blockquote>
+比起祥突然领导力飞涨（无论是权谋还是理想指引）还是信服她加强沟通共享团队，总不会接着跑路了吧
+
+*****
+
+####  江口夕  
+##### 12247#       发表于 2025-1-24 20:13
+
+来点轻松点的吧。下一集预告那个初华和莫女士对谈企划的杂志，感觉有点搞头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
