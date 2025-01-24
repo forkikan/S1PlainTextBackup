@@ -4512,3 +4512,72 @@ mortis是睦闹别扭是一种能解释得通的方式。
 大猫有在帮忙就可以了，不用大猫自己去解决。提升观感这就足够了。本质就是哪怕这季度完结，大猫没什么切 ...</blockquote>
 虽然但是，素世成为半个小丑，被爱音等人抓上舞台<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 12236#       发表于 2025-1-24 19:54
+
+台长这期写得不错【[TV2] 这下彻底炸了？2025年1月新番大爆炸Ave Mujica专场-哔哩哔哩】 [https://b23.tv/ID34uJ3](https://b23.tv/ID34uJ3)
+
+*****
+
+####  厚乳果珍爽  
+##### 12237#       发表于 2025-1-24 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269738&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 19:33</a>
+
+大猫有在帮忙就可以了，不用大猫自己去解决。提升观感这就足够了。本质就是哪怕这季度完结，大猫没什么切 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喵也是单亲家庭，只有他妈，然后跟翔爸在一起了，大喵跟祥子成了事实上的姐妹这个洗白点怎么样？
+
+*****
+
+####  ads147147  
+##### 12238#       发表于 2025-1-24 19:56
+
+不是已经有假药说大喵是孤儿院吗，陷入比惨漩涡其实不太好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 12239#       发表于 2025-1-24 19:56
+
+那素世可是迷子的最终boss，喵梦是前期的小boss，她都要做到这种地步才能让观众满意，如果之后还有爆得比喵梦更狠的，那是不是就只有剖腹谢罪了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  一心而用  
+##### 12240#       发表于 2025-1-24 20:00
+
+提问：要不要干脆开一个投票贴，认为大喵老师主责的VS认为大祥老师主责的？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 12241#       发表于 2025-1-24 20:00
+
+ 本帖最后由 江口夕 于 2025-1-24 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269878&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-24 19:52</a>
+虽然但是，素世成为半个小丑，被爱音等人抓上舞台，团队复合的功劳大部分都是爱音和灯的，这样巨大的反衬 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理论上，这次所谓的解散事件就是睦说她不会谈吉他。这次的锅其实不算大猫的。主要还是观感差点，编个理由，观感好了，后面都好说。
+而且开始也是不知者无罪，大猫在贯彻她自己所能看到的东西即使后面被证实是错的。要洗能以大猫是外人为由洗的干干净净。
+但是现在要洗的不是说大猫干了什么导致什么，而是观众的观感问题，这东西素世女士已经演示过一遍了。
+至于莫女士，你们不去批斗她不会谈吉他我感到很诧异
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厚乳果珍爽  
+##### 12242#       发表于 2025-1-24 20:03
+
+【[TV2] 这下彻底炸了？2025年1月新番大爆炸Ave Mujica专场】 [https://www.bilibili.com/video/B ... 4c2e1fd7f9c626d2476](https://www.bilibili.com/video/BV1uLfnY8EqF/?share_source=copy_web&amp;vd_source=339d13b749ff34c2e1fd7f9c626d2476)
+
+台长发功了。
+

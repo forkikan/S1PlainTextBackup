@@ -2984,3 +2984,18 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 
 - 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
 
+
+*****
+
+####  yaneis  
+##### 324#       发表于 2025-1-24 19:59
+
+最后一段观感好怪，mo小姐爆发得不知所谓，还有喵老师你说这话合适吗
+
+*****
+
+####  YESIARE  
+##### 325#       发表于 2025-1-24 19:59
+
++1 第二话还在想睦头这都达到精神疾病程度可不能糊弄过去了，这话直接点爆双重人格真是太爽了，角色现实意义上的发癫真敢写啊，这还是少女乐队番嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜其他团员对睦头疯了的反应不够要扣分
+
