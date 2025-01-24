@@ -10793,3 +10793,68 @@ side6窝藏红高达这事一旦做实，相当于挑衅吉翁公国，那可不
 
 只是这一次那个行动力强的大小姐役当了主角<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 5437#       发表于 2025-1-24 11:28
+
+讲道理，夏亚策反夏利亚的场景真的很给（）两个人在小黑屋里喝红酒，鸭子端个红酒翘个二郎腿一直意味深长的劝夏利亚跟他，然后还有点暗示他不要深究自己身份
+
+而且这个mav就是鸭子和夏利亚发明的战术甚至写在吉翁教材里
+
+*****
+
+####  PascalLefèvre  
+##### 5438#       发表于 2025-1-24 11:29
+
+其实是鸭gachi庵野秀明代入夏利亚了
+
+*****
+
+####  xwz  
+##### 5439#       发表于 2025-1-24 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257029&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-1-23 18:45</a>
+我是这么想的，UC牛逼的NT死了应该多少有个女鬼状态，拉拉在主宇宙阴魂不散，魂穿的可能性不大，你看哈曼 ...</blockquote>
+总要找个借口说她是哈曼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  刺客ares  
+##### 5440#       发表于 2025-1-24 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265167&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-24 11:25</a>
+
+被夏亚魅惑烧坏了脑子，失踪之后这6年里夏利亚的感情会越来越沉重吧</blockquote>
+按理说夏利亚定位其实是林有德的平替，军衔都特意升到了有德同级
+
+但是有德为什么没显得那么骡子重男呢，因为有德结婚生子了，有米莱和有为兄妹稀释感情，而且他是舰长役，并不会直接参与骡子的战斗
+
+夏利亚就不一样了，34岁独身，在战场上与鸭子并肩作战，一起喝酒，共享秘密，还开发了专属二人战术
+
+我都怀疑是Khara哪个夏亚梦男代入了，太gay了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 5441#       发表于 2025-1-24 11:34
+
+哦话说这个黑拳出击之前黑拳队有说你们速战速决，转播开始以后可能军警就会来抓人了（毕竟非法的），然后打完以后修司让麻球赶快离开吧就不知道咋又消失了（你小子真是神出鬼没的，怎么来的也不知道，麻球他们是黑拳队有个从哪的出入口可以短暂开几秒）
+
+我感觉夏利亚那个性格可能不会马上去抓麻球他们，一个是side6独立他们不方便为所欲为的，捞那个驾驶员还得夏利亚去找关系，另一个是夏利亚在85年有点乐子人那种游刃有余的性格，看这场黑拳也不着急，只说那台红高没有打头阵不是鸭子性格，里面果然不是鸭子（pv台词），可能会放任麻球和红高观察一下，倒是side6政府可能会是前期主动抓人的一方
+
+*****
+
+####  Gysumitka  
+##### 5442#       发表于 2025-1-24 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265155&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 11:24</a>
+电影版只有初战，可能回去的当天晚上就被卡姆兰带人抓了
+
+side6窝藏红高达这事一旦做实，相当于挑衅吉翁公 ...</blockquote>
+那夏利亚酒吧喝完，就快点来拐小孩吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 别黑拳了
+

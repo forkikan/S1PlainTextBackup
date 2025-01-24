@@ -14374,3 +14374,111 @@ A小消息：武士道员工屯了数以十万记的喵梦谷子，配合操纵�
 不如说睦就是mygo的长期素食位，只不过soyo的目的是重建ccc，而睦是炸团。</blockquote>
 从这一话的命运共同体对话来看我觉得Soyo位是初华<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 11735#       发表于 2025-1-24 11:29
+
+ 本帖最后由 江口夕 于 2025-1-24 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265187&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:27</a>
+首先，现实世界
+
+再说现实世界怎么就没有呢，装的，或者入戏太深了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就没得说了，你继续想象吧。在你眼中估计世上就没有好人，全都是疯子。因为每个人喝醉酒发疯的概率都很高。大家平时都是装的，都想发疯
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  试制甲炮  
+##### 11736#       发表于 2025-1-24 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264999&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-24 11:14</a>
+
+为了达成mujica，祥子的人格必须重塑或者修正，只要她还抱有自尊或者"高贵”，mujica就走不长远，mortis的 ...</blockquote>
+对，我也是认同这个说法的。不过祥子这一话受的打击实在是太吓人了，先是被木头孤立，然后正式发现木头鬼上身，木头还故意折腾、吓唬她，然后又挨了喵梦一顿嘴，最后剩下的母鸡卡暂告完结。说实在的，真是下一话看见祥子天线宝宝都不奇怪。
+
+*****
+
+####  operatbig  
+##### 11737#       发表于 2025-1-24 11:30
+
+多看点女频就知道为了女角们为了吵架泼脏水瞎扯大旗都是基操，说不定这真是独角兽想写的，看她几次推特发癫真有点那味，当然冲着乐队番看的肯定会被恶心了。
+
+
+*****
+
+####  看穿一切的鱼  
+##### 11738#       发表于 2025-1-24 11:32
+
+我现在感觉祥子反而是这五个人里最正常的了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhzij111  
+##### 11739#       发表于 2025-1-24 11:34
+
+<blockquote>Min_FOrder 发表于 2025-1-24 02:37
+还是那句话，你大祥老师从crythic炸团以来，向来是这么一个人，有着英雄一般的气度，可惜命运之神和缪斯 ...</blockquote>
+大祥老师要是有英雄一样的气度那c团就不会炸辣，反正她组鸡团也不是为了赚钱，c团有什么炸的必要吗
+
+*****
+
+####  玖羽  
+##### 11740#       发表于 2025-1-24 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265204&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 11:29</a>
+
+那就没得说了，你继续想象吧。在你眼中估计世上就没有好人，全都是疯子。因为每个人喝醉酒发疯的概率都很 ...</blockquote>
+你这个比喻不对，虽然叫发酒疯，但喝醉酒和真的精神病发疯是两回事，前面已经说了，喝醉酒不能像精神病那样免除刑事责任
+
+不过有一点是对的，喝醉酒发疯的人平时就是想发疯，<strong>准确地说，是放开了做平时想做不敢做的事，所以被别人笼统地称为发疯</strong>
+
+*****
+
+####  江口夕  
+##### 11741#       发表于 2025-1-24 11:36
+
+ 本帖最后由 江口夕 于 2025-1-24 11:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265278&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:34</a>
+你这个比喻不对，虽然叫发酒疯，但喝醉酒和真的精神病发疯是两回事，前面已经说了，喝醉酒不能像精神病那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你平时是不是也想发疯，来两瓶茅台实验一下。酒精和致幻蘑菇最喜欢的就是你这种
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Devola  
+##### 11742#       发表于 2025-1-24 11:37
+
+这么多剧，番，厕纸，走到这个节奏，基本圆不回来的，只会是滑坡的开始
+
+*****
+
+####  08df1258c5ed098  
+##### 11743#       发表于 2025-1-24 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265271&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-24 11:34</a>
+
+大祥老师要是有英雄一样的气度那c团就不会炸辣，反正她组鸡团也不是为了赚钱，c团有什么炸的必要吗 ...</blockquote>
+说到这想起炸c团好像是因为没时间练习，那到头来灯缺乏练习好像还是祥子的错啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 11744#       发表于 2025-1-24 11:37
+
+mygo官漫还真是soyo当主角啊
+
+纯良时期的软糯soyo
+<img src="https://p.sda1.dev/21/1ea386ca139abbefcaa1c07aa0cae7ef/Screenshot_20250124_111531.jpg" referrerpolicy="no-referrer">
+
+见面一个精准踩雷
+<img src="https://p.sda1.dev/21/5e3345844e8f7f0f0bcab1c8802fafd1/Screenshot_20250124_110759.jpg" referrerpolicy="no-referrer">
+
+于是，小soyo的人生被改变了again
+<img src="https://p.sda1.dev/21/488aa59a921dc34e587436abe2ce5b2a/Screenshot_20250124_112016.jpg" referrerpolicy="no-referrer">
+

@@ -173,3 +173,16 @@ mtg 确实一不太走集换社，这也是我之前一直不转集换社的数�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  灰烬刺猬  
+##### 230#       发表于 2025-1-24 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257414&amp;ptid=2175566" target="_blank">killbillwillil 发表于 2025-1-23 19:34</a>
+
+半年前开始，简中WX第一次实装了每弹只存在5种（每种只有一张）的顶罕。
+
+半年过去，第一弹的5张里面还是只 ...</blockquote>
+新简中一开始的垃圾操作把好多打算会坑的老简中玩家和拉来的新玩家气跑了一大堆，开别的卡是这个是不是能用，这个闪有厂商。开wixoss新简中一弹是这张歪的不是特别厉害和这牌怎么有色差。当时给我的感觉是这玩意印刷质量不如ZZ
+
