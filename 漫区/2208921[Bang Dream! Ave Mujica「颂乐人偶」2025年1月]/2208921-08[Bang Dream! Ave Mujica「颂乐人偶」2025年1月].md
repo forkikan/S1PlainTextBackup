@@ -13793,3 +13793,219 @@ Mortis根本不配称为一个人格，只能算是睦的大脑部署的一个AI
 可以和mygo切割吗？</blockquote>
 可以啊，当初不少MyGO粉丝担心的就是新动画把祥子的事情放在中后段才讲，万一新动画不够好，不方便切割，但是实际上新动画第一话就把遗留问题讲清楚了，那可就太方便了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  borrowface  
+##### 11676#       发表于 2025-1-24 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264728&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 10:55</a>
+不是怕被打，是怕被一个陌生人接近。莫女士祥子可不认识</blockquote>
+挡脸了都，就是怕动手。为什么怕动手呢？祥子可是亲身经历过老爸大变样发怒对自己丢酒瓶的，能不怕么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 11677#       发表于 2025-1-24 10:58
+
+大喵吵架说的话单独看可能没问题 和摘面具联系起来就绷不住了
+
+*****
+
+####  ml1642879  
+##### 11678#       发表于 2025-1-24 10:58
+
+ 本帖最后由 ml1642879 于 2025-1-24 11:00 编辑 
+
+我只能说Mortis这种情况在今敏的妄想代理人连单元集都配不上，不知道为啥普遍觉得写坏了
+
+*****
+
+####  阿兹尔  
+##### 11679#       发表于 2025-1-24 10:59
+
+所以在这集谁说话少谁就有后续救回来的可能，睦双重人格占据优势了实属是，喵梦估计没啥能救的了，老老实实当恶役靠中之人吸粉，祥子作为鸡狗都非常重要的角色，包能救的，初华就有点太逆天了，不是纯坏纯双标那种，是“你在这干嘛”的弱智感
+
+*****
+
+####  ParadiseMartyr  
+##### 11680#       发表于 2025-1-24 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264736&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 10:56</a>
+这团里能说祥子的，只有海铃，初华，睦，但是这三个都不会直接喷祥子
+唯独喵梦不配，从拆面具那刻开始都是 ...</blockquote>
+哎呀，你没看到我们努力家练鼓把鼓锤都敲坏了吗？你们这些娇生惯养的千金大小姐不要诋毁我们贫家女好吧！
+
+
+*****
+
+####  NEWROMANCER  
+##### 11681#       发表于 2025-1-24 11:00
+
+喵梦我觉得上集人设回撤顶多就做了不到二成，硬是靠着场外祥黑当拐给所有行为合法化了，这集好的塑造没加多少整的雷倒越来越多，后续没点团魂剧情加点音乐性内容就真完蛋了，可能还得补点女女关系（这集给喵祥关系就是纯添乱，喵莫关系也没有喵睦好磕），后续堆大量文本上去只是为了把一个完全不讨喜的角色拉回及格线也挺浪费的
+
+*****
+
+####  十九号大侠  
+##### 11682#       发表于 2025-1-24 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">双重人格无所谓，我以前看网文，看欧美电影，起码都十个以上啊，转到那个人格，身体都会发生变化
+
+*****
+
+####  江口夕  
+##### 11683#       发表于 2025-1-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264767&amp;ptid=2208921" target="_blank">borrowface 发表于 2025-1-24 10:58</a>
+挡脸了都，就是怕动手。为什么怕动手呢？祥子可是亲身经历过老爸大变样发怒对自己丢酒瓶的，能不怕么
+
+— ...</blockquote>
+祥子怕恐怖片，跟动手没关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 11684#       发表于 2025-1-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264748&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 10:57</a>
+
+你说的完全ooc了，什么ai模型，睦大脑里装4090了？莫女士就是睦的无意识发疯状态没别的，也可以说是二重人格。跟人喝醉酒差不多。
+
+这种现实里也有，比如吃了致幻的，喝醉酒，甚至是真的精神病</blockquote>
+我都不知道喝醉酒就能产生一个新人格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+告诉你一个小常识，借酒撒疯的时候说的都是真心话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11685#       发表于 2025-1-24 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264801&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:01</a>
+我都不知道喝醉酒就能产生一个新人格
+
+告诉你一个小常识，借酒撒疯的时候说的都是真心话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你喝醉酒时候犯罪了记得说那也是自己
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  阿兹尔  
+##### 11686#       发表于 2025-1-24 11:02
+
+比起担心单个角色爆炸，目前整个剧的问题好像更大点，只能期待所谓的假药是真的
+
+*****
+
+####  swessia  
+##### 11687#       发表于 2025-1-24 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">其实大多数观众还是强度党，只要喵梦像这两集一样吵架吵赢了，那风评就不会差到哪去，自有大儒为我汴京
+
+*****
+
+####  ParadiseMartyr  
+##### 11688#       发表于 2025-1-24 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264798&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-1-24 11:01</a>
+双重人格无所谓，我以前看网文，看欧美电影，起码都十个以上啊，转到那个人格，身体都会发生变化 ...</blockquote>
+那些都是烂片烂作品，你是说母鸡卡是烂片吗？
+
+*****
+
+####  swessia  
+##### 11689#       发表于 2025-1-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264756&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-24 10:58</a>
+
+可以啊，当初不少MyGO粉丝担心的就是新动画把祥子的事情放在中后段才讲，万一新动画不够好，不方便切割， ...</blockquote>
+go里底边的立希现在风评可是直线上升啊，mygo粉丝现在可过的太舒服了
+
+*****
+
+####  玖羽  
+##### 11690#       发表于 2025-1-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264812&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 11:02</a>
+
+那你喝醉酒时候犯罪了记得说那也是自己</blockquote>
+什么鬼，不然呢，难道醉酒犯罪能脱罪不成<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 11691#       发表于 2025-1-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263053&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 07:49</a>
+我当然知道爱音的例子，但是这完全不一样，爱音留学失败只对爱音很重要，对乐队来说是无关紧要的小事
+
+而 ...</blockquote>
+所以说搁置只是可能的发展之一，而且基于半身的设定，有可能是木头先遭不住了，然后主动让步，以自己带动祥子人物的进步，毕竟是“顺从”，而这一集她也明确地许愿了想让正常的睦回来，这是在重新赋予名为睦的人偶“存在的意义”，是神明与造物/信徒假说里很重要的一环，再回收砸镜子的片段，祥子在这一过程仍然是被动的，而且仍然限于睦祥的关系，毕竟愚神里只有“我们”，而真正的矛盾需要祥子主动做出某种改变，真正成为领导这个团队的核心，这才是对于祥子和A团的补完，我是这样认为的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 11692#       发表于 2025-1-24 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264816&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-24 11:02</a>
+其实大多数观众还是强度党，只要喵梦像这两集一样吵架吵赢了，那风评就不会差到哪去，自有大儒为我汴京 ...</blockquote>
+吵得难看没有观赏性没有互动是最大的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 11693#       发表于 2025-1-24 11:05
+
+揣测一下
+
+摘面具大火了导致大家忙 所以大喵觉得没问题
+
+没法演出导致大家忙的一切打水漂 所以大喵要怒喷
+
+但小黄瓜都没了 祥老师也不要啥母鸡卡了先把小黄瓜弄回来吧 这里是邦邦 只要人在乐队可以重新组
+
+*****
+
+####  江口夕  
+##### 11694#       发表于 2025-1-24 11:05
+
+ 本帖最后由 江口夕 于 2025-1-24 11:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264846&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 11:04</a>
+什么鬼，不然呢，难道醉酒犯罪能脱罪不成</blockquote>
+当然能了，你醉酒驾车撞死人，不会给你按个故意杀人罪。就是把你当精神病看的。你看到行人还加大马力碾过去还说你不是故意杀人么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  fsfs_freeze  
+##### 11695#       发表于 2025-1-24 11:06
+
+喵梦实在太过强势了，感觉她才是最破坏邦邦世界观的人，相比之下只有白祥和初华才最像是邦邦世界观里的人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 11696#       发表于 2025-1-24 11:07
+
+<blockquote>江口夕 发表于 2025-1-24 10:31
+编剧还不至于傻到前脚大猫告诉家里人自己后面要努力，后脚就要离队拆团。大猫哪怕拆队也是要蹭睦或者初华， ...</blockquote>
+预告里喵梦不是单飞参加综艺了吗
+
+*****
+
+####  LeonsCat  
+##### 11697#       发表于 2025-1-24 11:07
+
+喵梦作为一个超短线操作手，完全没有问题。
+
+有点类似起点网文作者，读者喷了上午出的新章，那下午就能把全文大纲改了迎合读者。对于这种人来说，只要数据漂亮那辛苦一下工作人员不是问题甚至有荣具焉；但是当你真的没辙了的时候，跳船也比谁都快。
+
