@@ -11307,3 +11307,43 @@ GiCj6bnbEAAExeU.jpg
 
 来个假药：作为xx人，修司并不以视觉为主要感官方式
 
+
+*****
+
+####  卑弥呼yamato  
+##### 5484#       发表于 2025-1-24 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267404&amp;ptid=2209276" target="_blank">TRIScRE 发表于 2025-1-24 15:08</a>
+
+喵安看起来确实是最高的</blockquote>
+这么看喵安还是蛮帅的
+
+*****
+
+####  YU_JI  
+##### 5485#       发表于 2025-1-24 15:20
+
+看到牢修有一件正经衣服穿真是难得
+
+
+*****
+
+####  0aleph37  
+##### 5486#       发表于 2025-1-24 15:25
+
+修司和红高达是从所罗门冲击之后一直在side6吗？还是某个时间点出现在side6，又或者某个时间点出现，然后辗转来side6？
+
+有什么经济来源吗？
+
+*****
+
+####  Steel.Haze  
+##### 5487#       发表于 2025-1-24 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266821&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-24 14:13</a>
+
+虽然我从知道这番12集后就很失望，之后一直没怎么关注了。
+
+其实我觉得这番的设定目前很多地方都在cue独角兽 ...</blockquote>
+我觉得你没准猜中了，可能主角机加上红高达解体后零件的“完全体”才是最终版，也就是“继承78血脉”的“高达”，它和红高达各自可能用了异世界漂流精神力框架的一部分。
+

@@ -1693,3 +1693,228 @@ pareo：公若不弃，令王那愿拜为妇妇
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  iiiiiiiiii  
+##### 11997#       发表于 2025-1-24 15:18
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-24 15:19 编辑 
+<blockquote>盐盐盐盐盐 发表于 2025-1-24 15:15
+这个我怕说了会让有些人觉得我在踩am捧go，但是单单从剧里的听众和角色反馈来说，灯的歌词（旋律别人也没 ...</blockquote>
+
+来点人格炼金术假药吧，很扯，但有趣
+
+- 煅烧：加热分解，先拆解自己的不同部分，重新认识自己、接纳自己。需要打破固执、放下偏见、消除自大和傲娇。
+
+- 溶解：在了解自己性格后，溶解心理杂质。摆脱自我怀疑，观察自身的积极和负面情绪，勇敢承担责任，直面内心阴暗面。
+
+- 分离：不再强求与他人情感链接，一个身体只能承受一个灵魂，控制欲强、情感依赖的人难以快乐，不应将自身的情绪寄托在别人身上。
+
+- 汇合：把前三个步骤过滤后留下的元素巧妙结合，在生活中观察内心情感。
+
+- 发酵：分为腐化和灵性化两步。腐化是扔掉分解过滤后的精神残渣，灵性化是重新认识自己。当有正确人生方向和扎实心理底气时，可享受人生平静和快乐。
+
+- 蒸馏：把心理灵性融入生活，进一步提纯内心，在平静中感受认知像水一样流动，实现自我启迪。
+
+- 凝聚：达到万物与我合一的境界，身外物质和金钱不再重要。
+
+nigredo黑化，albedo白化，citrinitas黄化，rubedo红化，更文雅的翻译为“黑土”“白垩”“黄金”“赤成”
+
+不痛苦撕裂怎么，能达到心灵融合。mujica炼金元素也是不少的。
+
+*****
+
+####  akiomn  
+##### 11998#       发表于 2025-1-24 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267487&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 15:15</a>
+对，祥子怎么不让喵梦滚呢，现在是喵梦作妖，是木头作妖，之后就不能是海玲作妖，初华作妖了 ? 有没有可能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太对了，领导者给你搞的事擦屁股，反过来说领导也有错是吧。领导被暴击成这样，怎么你之前搞事不是挺狂的吗？现在怎么又要领导接着帮忙了？
+有点搞笑了，指责别人前要不看看喵梦自己有多双标？
+
+*****
+
+####  用户名1  
+##### 11999#       发表于 2025-1-24 15:20
+
+第三集想象空间中对话的墨提斯与现在上浮出现的墨提斯总觉得并非同一人。人偶、旁白等对话中的墨提斯更像是自我意识的集合。包含了各种现实中想说的，说不出的以及无法说出（特指祥子）的想法。在睦下沉后上浮出的墨提斯则更像是一个具体的人格面具，比较单纯。
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 12000#       发表于 2025-1-24 15:20
+
+ 本帖最后由 江口夕 于 2025-1-24 15:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信一个靠谎言夺取人格的人格，会是什么神仙。你们是不是有问题，莫女士把伞都扔了，她懂个锤子的人心
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  Min_FOrder  
+##### 12001#       发表于 2025-1-24 15:20
+
+<blockquote>盐盐盐盐盐 发表于 2025-1-24 15:15
+这个我怕说了会让有些人觉得我在踩am捧go，但是单单从剧里的听众和角色反馈来说，灯的歌词（旋律别人也没 ...</blockquote>
+所以我说且往后看，漏油太过着急了，你们想要的完整live、真正的音乐性、对邦环节，到后面一个一个都能拿来破局。手上的子弹多着呢，漏油们发现第四集打不出来就以为这把枪哑火了，太着急了啊
+
+*****
+
+####  阿兹尔  
+##### 12002#       发表于 2025-1-24 15:20
+
+我一直以为鸡团是3+1+1，但是初华现在这游离的状态又不敢确定了，希望她是串的又怕她是纯的
+
+*****
+
+####  试制甲炮  
+##### 12003#       发表于 2025-1-24 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267410&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-24 15:08</a>
+
+我是觉得海铃早就对祥子失去耐心了，大喵还会觉得祥子你是老大你该决定了，海铃应该连这种意识都不剩了 ...</blockquote>
+毕竟海玲连祥子你根本就没关心过你的队友这种多多少少涉及人身攻击的话都说得出来，喵梦虽然上蹿下跳但也只是攻击路线而已。
+
+*****
+
+####  紫苑寺美琴  
+##### 12004#       发表于 2025-1-24 15:22
+
+这么看来大祥老师一直是那个曾经的软糯小祥，面对要抢走自己睦头的喵梦都硬气不起来，有点苦主的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 12005#       发表于 2025-1-24 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267498&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 15:16</a>
+chu2：不要弹那种随大流的东西，你的音乐是你内心的呐喊
+
+pareo：公若不弃，令王那愿拜为妇妇</blockquote>
+说的更难听点，祥子那套说辞换成个油腻经纪人对小网红说，我看上你这妞的脸蛋和流量了，居然还有点音乐天赋，虽然现在还是路边一条，但只要跟爷混，日后必然大红大紫，要放现实，遇到脾气不好地早就一烟灰缸干过去了，还轮到你在这逼逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 12006#       发表于 2025-1-24 15:23
+
+@ei_eq5
+
+<img src="https://img.saraba1st.com/forum/202501/24/152302sr1x9939qhzq94f9.jpg" referrerpolicy="no-referrer">
+
+<strong>ぢゃっきー_20250124.jpg</strong> (464 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:23 上传
+
+@vananatamago
+
+<img src="https://img.saraba1st.com/forum/202501/24/152301m5nh3hbkt2ck2hi3.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh_dlCrb0AAsSCs_orig.jpg</strong> (366.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:23 上传
+
+@Flags2323
+
+<img src="https://img.saraba1st.com/forum/202501/24/152302gvtc5dtt59cdwtrz.jpg" referrerpolicy="no-referrer">
+
+<strong>GiBAmBBbQAA5FgM_orig.jpg</strong> (283.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:23 上传
+
+@Gemini_mujou
+
+<img src="https://img.saraba1st.com/forum/202501/24/152301ocxqxxq9bbvbiocy.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh_IeB-aoAA7N13_orig.jpg</strong> (188.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:23 上传
+
+@lysine_slmr
+
+<img src="https://img.saraba1st.com/forum/202501/24/152301ykqhbc6m5oep3jfs.jpg" referrerpolicy="no-referrer">
+
+<strong>Gh_dlCCaoAA5qXB_orig.jpg</strong> (477.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 15:23 上传
+
+
+*****
+
+####  试制甲炮  
+##### 12007#       发表于 2025-1-24 15:24
+
+另外喵梦这几话全都是抽人的一方，接下来也该多受受苦了。
+
+*****
+
+####  akiomn  
+##### 12008#       发表于 2025-1-24 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的评价是有些喵梦厨真的很无敌
+第四集前想尽办法洗喵梦，第四集后哎洗不动这双标狗了，赶紧拉着祥子共沉沦你也有错
+太无敌了
+
+*****
+
+####  hulaoda007  
+##### 12009#       发表于 2025-1-24 15:25
+
+眼看自己一手开启的视频势vtuber企划逐渐变成了holo和nijisanji，正当祥子打算退而求其次当个vr的时候，喵梦提议撕皮3d超美丽直播当府系，线下握手会转型做地偶。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">但不要黑喵梦好不好，她握手会上真的不问美丑很努力的握手拍切。
+
+*****
+
+####  玖羽  
+##### 12010#       发表于 2025-1-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267591&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 15:23</a>
+
+说的更难听点，祥子那套说辞换成个油腻经纪人对小网红说，我看上你这妞的脸蛋和流量了，居然还有点音乐天 ...</blockquote>
+实际上比这还难听：你这个小网红不就是想要蹭热度吗，这是三角初华，这是森美奈美的女儿，到时候你随便蹭，哦对了，你打起鼓来还挺好看的，就是还得练<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Liza  
+##### 12011#       发表于 2025-1-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267388&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 15:06</a>
+没有团魂的乐队，队员还各怀鬼胎
+只能夸赞技术吧，睦对自己的吉他评价可是没有灵魂不能唱歌，但是她在舞台 ...</blockquote>
+不会弹错是很基本的要求，把谱背熟就行了。otae、要乐奈那种队友弹错能马上改一段圆过去（乐理强）、能用吉他即兴表达当场的感情（乐感强）的才是职业级的能力。
+
+*****
+
+####  Lyzers  
+##### 12012#       发表于 2025-1-24 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这讨论方向有点像某个四格漫画
+
+“我有大豪斯”    “那你有曲奇吗”
+
+“我有豪车”   “那你有曲奇吗”
+
+“我有很多money”    “那你有曲奇吗”
+
+“额，没有”    “给你曲奇”
+
+不过最后一格分享的台词现在要变成“啊哈我就知道你没有曲奇，羡慕去吧臭屌丝”
+
