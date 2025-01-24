@@ -1695,3 +1695,21 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 美国现在是不是准备拉拢印度来对付中国?印度应该算陆上大国了吧，人口比中国多，也有核武器 ...</blockquote>
 印度不行，喜马拉雅山可比台湾海峡难多了，要冲突也是藏南小**，完全不带怕的，要用核的话不如美国佬自己用，印度那个投送水平约等于没有
 
+
+*****
+
+####  克拉苏  
+##### 152#       发表于 2025-1-24 16:48
+
+怎么老觉得印度会跟着美国走的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">阿三虽然爱吹逼不靠谱 但是利益方面鸡贼着呢 
+让印度动一动首先和平交接迭戈加西亚 取消印度洋舰队编制 和联俄一样美帝根本出不起价<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 153#       发表于 2025-1-24 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">三哥的习惯是占小便宜，跟谁拉个群都要占到便宜才安心，所以指望光靠拉拢、怂恿就能让三哥跟东大开片就别想了，只会被三哥先揩一波油
+
+从有记录的几次冲突看，三哥会在自己膨胀到差不多了，脑轴的时候就突然准备整活了，往往都是大家事前事后一脸懵“他到底想干啥”的时候
+

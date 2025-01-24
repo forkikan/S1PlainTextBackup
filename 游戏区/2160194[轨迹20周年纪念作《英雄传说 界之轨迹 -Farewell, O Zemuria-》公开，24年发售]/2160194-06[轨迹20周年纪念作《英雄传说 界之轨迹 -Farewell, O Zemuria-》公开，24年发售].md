@@ -403,3 +403,27 @@ xbox手柄补丁，根目录覆盖
 【【慎入 含剧透】《轨 言 轨 语》界之轨迹篇——塞姆利亚大陆对话公式1.0】 https://www.bilibili.com/v ...</blockquote>
 笑吐了，我找deepseek R1来写都能秒杀这傻逼剧本
 
+
+*****
+
+####  kenqqex  
+##### 7487#       发表于 2025-1-24 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268162&amp;ptid=2160194" target="_blank">peshing 发表于 2025-1-24 16:24</a>
+
+笑吐了，我找deepseek R1来写都能秒杀这傻逼剧本。想想也不对啊，空轨零碧的时候台词还蛮好的，剧本的节奏 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/24/165334wziwk66hoed0wkew.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (382.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 16:53 上传
+
+  其实早在空fc——
+
+                                                                .  .  .  .
+
+いや，ed345，就已经有这些词了，因为竹入那个时候已经开始写了
+
