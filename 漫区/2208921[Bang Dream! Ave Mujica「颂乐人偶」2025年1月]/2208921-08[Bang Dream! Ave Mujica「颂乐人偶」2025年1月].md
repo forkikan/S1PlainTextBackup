@@ -14837,3 +14837,85 @@ soyo已经发现异常了，只要等soyo拉着爱音来A团，一切都会好�
 
 mujica第四话看乐子派和合理派开始争吵，与片内剧情走向过于契合。但我觉得监督和编剧应该没有这么神通广大未卜先知……吧……
 
+
+*****
+
+####  厉飞雨  
+##### 11779#       发表于 2025-1-24 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264230&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-24 10:15</a>
+写的什么？</blockquote>
+最后一句：为尝试与祥子和解的灯提供支持
+
+*****
+
+####  江口夕  
+##### 11780#       发表于 2025-1-24 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得是演戏的人，你在这辩经是不是也在演戏，还是在反串，你是真的你么。请证明一下你现在是不是在演戏
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  pokemon最爱  
+##### 11781#       发表于 2025-1-24 12:12
+
+洗喵梦有个简单的洗法——直接说母鸡卡初期的人气基础是喵梦暗示身份引流过来的就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没记错的话实际上Anon就是因为喵梦而知道的母鸡卡，祥子招人时也说了看中的是脸蛋和流量，所以加这么一条设定并不算太冲突，也能解释喵梦掀桌的底气。
+
+至于炸团的事，一个想法，不一定对，大莫老师想的是保持母鸡卡不炸的情况下狠狠压力祥子报复回去，但是由于过于巨大的性格转变以及节目中的抢戏行为导致她在跟其他三人（喵海初）单独商量过后三人觉得不对劲单独联络了一下，得出结论“目前这状态这团吃枣药丸”，所以最后炸团吵架时喵梦海铃初华三人是串通好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 11782#       发表于 2025-1-24 12:13
+
+想到上集之后长篇大论分析那么多睦在扮演墨缇丝的文章我就想笑
+还是太信任柿本广大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柴突猛进  
+##### 11783#       发表于 2025-1-24 12:13
+
+觉得是第二人格的，在这汴京也可以是第二人格啊，不要无限滑坡了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  山ノ内花音  
+##### 11784#       发表于 2025-1-24 12:15
+
+这不就是各大原创烂片熟悉的制作组一定有深谋远虑的千层饼环节
+
+*****
+
+####  KozueAkimoto  
+##### 11785#       发表于 2025-1-24 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265218&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-1-24 11:30</a>
+多看点女频就知道为了女角们为了吵架撕逼瞎扯大旗泼脏水都是基操，说不定这真是独角兽想写的，看她几次推特 ...</blockquote>
+不是，乐队番的比重真不大吧。还有人冲着乐队番来的？，孤独摇滚都是看波奇扮猪吃虎和磕cp去的。别搞
+
+*****
+
+####  天空塔书记官  
+##### 11786#       发表于 2025-1-24 12:15
+
+把一切黑锅甩到喵梦身上解决不了任何问题，因为她不是A团真正的核心，真正的核心是祥子和绑定着的木头，就像迷子前期的灯和立希一样，离开了立希无名乐团就没法正常运作，如果说是灯在单方面稳定立希，那A团木头和祥子就是互为对方的稳定器，一旦一方失衡，另一方就不能幸免，这就是命运的半身<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 11787#       发表于 2025-1-24 12:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现实里第二人格也是要有契机的，演戏不需要契机，演戏可以一直演，第一季mygo睦一直在演戏，她其实讨厌祥子讨厌素世，她其实只爱自己，她甚至爱自己都是演戏她根本不知道自己是什么，你们说，没错吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -10981,3 +10981,57 @@ side6窝藏红高达这事一旦做实，相当于挑衅吉翁公 ...</blockquot
 更随和懒散，除了原 ...</blockquote>
 沟槽的夏亚梦男痞子！！
 
+
+*****
+
+####  gamedreamer  
+##### 5454#       发表于 2025-1-24 12:08
+
+可怕的夏亚梦男出现了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AvenueIII  
+##### 5455#       发表于 2025-1-24 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265533&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 12:00</a>
+
+对比一下军人时期的夏利亚和战后的夏利亚
+
+可以看出，战后夏利亚军装样式变更，发量减少
+
+更随和懒散，除了原 ...</blockquote>
+还有一点——耳朵变大了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 5456#       发表于 2025-1-24 12:15
+
+痞子早就想做夏亚开二号机了，这次一听夏亚开高达马上自告奋勇又是写剧本又是画爆炸
+
+但是光这样怎么够呢，肯定是要自己也开着机体和夏亚并肩作战才够爽啊
+
+然后你以为痞子爽完就会退场吗？
+
+不，他还要五年后继续登场，用稳重随和的前辈姿态观察年轻一代主人公，顺便怀念他的一年战争和夏亚
+
+卧槽，这老东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 5457#       发表于 2025-1-24 12:15
+
+<img src="https://p.sda1.dev/21/2c1da326f3d23a8ea9621abc2078afc3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 5458#       发表于 2025-1-24 12:18
+
+这种美式军服太像影视剧里的果党了
+
