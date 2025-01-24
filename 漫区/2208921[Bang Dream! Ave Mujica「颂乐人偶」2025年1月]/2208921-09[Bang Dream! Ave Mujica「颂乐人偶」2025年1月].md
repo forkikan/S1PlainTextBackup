@@ -6031,3 +6031,34 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别第三形态了，双重人格已经够离谱了，真实锤了建议直接送医院去，ksm心理原因失声都被建议送医院呢
 如果再来个第三人格观众要疯了
 
+
+*****
+
+####  ntrntr1  
+##### 12372#       发表于 2025-1-24 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271184&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 23:04</a>
+
+我有个熟人看第三话精分他觉得很适合放进雏见泽，如果真能梦回寒蝉业某种意义上挺乐的。现在确实是既不音乐 ...</blockquote>
+能最后舞台上对拳吗 
+
+*****
+
+####  山ノ内花音  
+##### 12373#       发表于 2025-1-24 23:47
+
+我现在就想看op里那五把剑被用上
+不会是摆设吧
+
+*****
+
+####  ntrntr1  
+##### 12374#       发表于 2025-1-24 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271471&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-24 23:47</a>
+
+我现在就想看op里那五把剑被用上
+
+不会是摆设吧</blockquote>
+最后一起切蛋糕。
+
