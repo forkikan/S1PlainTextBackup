@@ -13115,3 +13115,242 @@ b站字幕是b站自己拿台本翻，一般翻译版字幕无大问题怎么搞
 </blockquote>
 前两集就有猜Mortis才是主人格的了，虽然这样也很二次元就是
 
+
+*****
+
+####  operatbig  
+##### 11620#       发表于 2025-1-24 10:06
+
+不认为这片是要看队友出问题了大家就会团结一致拯救队友的传统少女乐队片，从一开始这片就不断在描写各人的私心，什么演戏救木头真不太可能。
+
+*****
+
+####  江口夕  
+##### 11621#       发表于 2025-1-24 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里还没到救呢，只是测试真假的阶段。将信将疑
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 11622#       发表于 2025-1-24 10:08
+
+ 本帖最后由 玖羽 于 2025-1-24 10:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264121&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-24 10:04</a>
+
+前两集就有猜Mortis才是主人格的了，虽然这样也很二次元就是</blockquote>
+我说的不是主人格和次人格这种关系，Mortis是睦记忆中的“小时候的自己”
+
+这不是双重人格，严格地说还是装疯，睦是在演“小时候的自己”，只不过演技过于天才，演出了顶号的效果，双重人格只不过是动画的演出效果
+
+这也是为什么明明Mortis是祥子取的名字，但是Mortis说从小就跟睦在一起
+
+*****
+
+####  哈曼的YY  
+##### 11623#       发表于 2025-1-24 10:08
+
+ 本帖最后由 哈曼的YY 于 2025-1-24 10:11 编辑 
+
+莫姐演戏炸团也可以保住逼格 下一集精神世界给小黄瓜看录像 说已经没事了你好好睡 结果小黄瓜反而醒了砸玩偶扔书摸吉他
+
+不然扔书的是莫姐逼格全无
+
+*****
+
+####  JustW  
+##### 11624#       发表于 2025-1-24 10:10
+
+<blockquote>玖羽 发表于 2025-1-24 10:08
+我说的不是主人格和次人格这种关系，Mortis是睦记忆中的“小时候的自己”
+
+这不是双重人格，严格地说还是 ...</blockquote>
+睦已经有充足的心理活动描写和演出了，并不像海铃和初华那样完全没有，总不能想演别人先演自己吧，那些小剧场都是什么
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 玖羽| + 1|我补充了，动画的演出效果|
+
+查看全部评分
+
+*****
+
+####  厚乳果珍爽  
+##### 11625#       发表于 2025-1-24 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说祥子就应该学伊头鬼作，把其他成员的把柄牢牢抓在手上，要他们給祥子演一辈子的人偶。
+
+*****
+
+####  江口夕  
+##### 11626#       发表于 2025-1-24 10:10
+
+什么时候产生莫女士有逼格的错觉，本来夺舍就是靠欺骗睦获得的。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Bieaeml  
+##### 11627#       发表于 2025-1-24 10:11
+
+B站源第三集结尾就有台词变色的情况
+
+<img src="https://img.saraba1st.com/forum/202501/24/100905zmhk626g4slgk2k4.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (14.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100910jqm92tsfzpn2m2o5.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (11.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100913hctq8mng7orvyyny.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (9.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100916slxb9cflsx49xlfd.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (17.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100920qgmmxn8pnoh3gwp3.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (19.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100926a9z13wb66oxuuv2x.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (20.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100930xtat55aooeuob9nq.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (24.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100946z0tycpavchbw8tab.png" referrerpolicy="no-referrer">
+
+<strong>88.png</strong> (19.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100949p6646zex0c0ynz0y.png" referrerpolicy="no-referrer">
+
+<strong>99.png</strong> (24.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100954hr6liiewbiwvbi5w.png" referrerpolicy="no-referrer">
+
+<strong>10.png</strong> (12.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/100957v0xl99vq7qbz89qj.png" referrerpolicy="no-referrer">
+
+<strong>11.png</strong> (15.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/101000shqg9tegubebdg4l.png" referrerpolicy="no-referrer">
+
+<strong>12.png</strong> (14.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:10 上传
+
+比较特殊的“你甚至不会察觉...”这句，是绿-红-绿的变色，最后一句晚安是直接红色
+
+
+*****
+
+####  operatbig  
+##### 11628#       发表于 2025-1-24 10:13
+
+从莫跟祥的对话可以看出她是很懂各人是想要什么的，这样的她却在节目上打断喵梦的讲话抢了对方的风头，已经很说明问题了。
+
+*****
+
+####  CCCTHUN  
+##### 11629#       发表于 2025-1-24 10:14
+
+<blockquote>wonner_2012 发表于 2025-1-24 09:50
+结合初华在sumimi的疲惫（没有让mana看到）和“转换心情”，这里的初华台词是否可以认为不是真心话（从而推 ...</blockquote>
+这段可以说是中门对串。和mana在一起心情轻松？真当观众没看过mygo吗？
+
+<img src="https://img.saraba1st.com/forum/202501/24/101243o4vdoni3t3vfknew.png" referrerpolicy="no-referrer">
+
+<strong>139419017376839272.png</strong> (93.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 10:12 上传
+
+*****
+
+####  达达葱2  
+##### 11630#       发表于 2025-1-24 10:15
+
+<blockquote>厉飞雨 发表于 2025-1-24 08:56
+圣爱音还在发力吗</blockquote>
+写的什么？
+
+*****
+
+####  KLHgg  
+##### 11631#       发表于 2025-1-24 10:15
+
+ 本帖最后由 KLHgg 于 2025-1-24 10:18 编辑 
+<blockquote>operatbig 发表于 2025-1-24 10:06
+不认为这片是要看队友出问题了大家就会团结一致拯救队友的传统少女乐队片，从一开始这片就不断在描写各人的 ...</blockquote>
+
+初华海铃祥子的私心描写不说是长期空缺吧，至少也是不如soyo充分
+
+*****
+
+####  ml1642879  
+##### 11632#       发表于 2025-1-24 10:16
+
+双重人格是什么雷点吗，还是说日本人没把精神疾病这种剧情写好过，所以提前害怕
+
