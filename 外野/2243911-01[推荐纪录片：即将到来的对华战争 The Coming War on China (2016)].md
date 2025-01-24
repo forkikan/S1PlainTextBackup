@@ -1648,3 +1648,14 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  mandown  
+##### 148#       发表于 2025-1-24 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67261541&amp;ptid=2243911" target="_blank">logiccat 发表于 2025-1-24 01:04</a>
+
+首先，海洋国家挑战陆权国家，不会单上的，必须拉上陆上盟友，请问16年美国能拉上谁来一起干中国？英国？法 ...</blockquote>
+美国现在是不是准备拉拢印度来对付中国?印度应该算陆上大国了吧，人口比中国多，也有核武器
+
