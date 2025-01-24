@@ -2385,3 +2385,22 @@ Flip Flappers后半部分的剧本是久弥直树写的
 —— 来自 S1Fun</blockquote>
 mujica就没有这种可能性了吗 如果把mygomujica合起来看 mygo就是轻拍前6集 mujica就是轻拍后6集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  童话与星空  
+##### 263#       发表于 2025-1-24 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263330&amp;ptid=2243994" target="_blank">哆哆鸡 发表于 2025-1-24 08:48</a>
+mujica就没有这种可能性了吗 如果把mygomujica合起来看 mygo就是轻拍前6集 mujica就是轻拍后6集 ...</blockquote>
+至少现在系构还挂着独角兽的名字，还能认为大框架是按独角兽的设计走的。当然要是后半段所有单集编剧都不是她那另说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  鹤沙航城  
+##### 264#       发表于 2025-1-24 08:57
+
+抽象到好笑
+

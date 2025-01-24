@@ -12638,3 +12638,72 @@ anon：别诋毁我了😅😋
 
 海玲说她能摇人，一天内真能把人摇到福冈吗
 
+
+*****
+
+####  6030sylar  
+##### 11572#       发表于 2025-1-24 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263377&amp;ptid=2208921" target="_blank">Tienx 发表于 2025-1-24 08:54</a>
+海玲说她能摇人，一晚上真能把人摇到福冈吗</blockquote>
+传奇打工皇帝otae
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 11573#       发表于 2025-1-24 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263349&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-1-24 08:50</a>
+
+感觉初华的表现还是太串了。上集明明偷听到祥子对睦爆了，私下对Mortis还在试探说从没见过祥子这样的表情是 ...</blockquote>
+对，那句“睦的吉他是关键，我弥补不了”（要加上动作和语气）太装了，说白了都有点茶了
+
+*****
+
+####  JustW  
+##### 11574#       发表于 2025-1-24 08:56
+
+不管是睦演Mortis把乐队炸了还是真的让另一个人格把乐队炸了都不利于包饺子，只能是无论睦还是Mortis都没有主观意愿要炸团。Mortis展现的心智完全小孩子，对祥子的恶意也是单纯直白，指望她下大棋还是太高看了吧。
+
+*****
+
+####  厉飞雨  
+##### 11575#       发表于 2025-1-24 08:56
+
+<img src="https://p.sda1.dev/21/6ea048e2f88e1da1fe2d58b4a6656fea/image.jpg" referrerpolicy="no-referrer">
+圣爱音还在发力吗
+
+*****
+
+####  凉良  
+##### 11576#       发表于 2025-1-24 08:59
+
+看战吧统计mortis红字是自己的话 白字基本全是复读机
+
+*****
+
+####  yevvet  
+##### 11577#       发表于 2025-1-24 09:00
+
+b站先审后播，肯定是看过全篇做的字幕啊。而且最近出了那么多情报哥，一看就是b站内鬼
+
+
+*****
+
+####  08df1258c5ed098  
+##### 11578#       发表于 2025-1-24 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263400&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-24 08:56</a>
+
+不管是睦演Mortis把乐队炸了还是真的让另一个人格把乐队炸了都不利于包饺子，只能是无论睦还是Mortis都没有 ...</blockquote>
+海港那段提示祥子要还是这样睦就不会回来了活脱脱一副16岁已黑化小屁孩的样子，大概除了中二祥子谁都没相信这什么多重人格。哪有什么大棋，炸团倒很明显是玩儿脱了。
+
+*****
+
+####  間桐櫻  
+##### 11579#       发表于 2025-1-24 09:02
+
+劇中好像沒人對喵夢當初做的事有疑問 並不覺得睦變成這樣和喵夢有甚麼關係 覺得有關的就只有觀眾
+
