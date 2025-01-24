@@ -3087,3 +3087,24 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 +1，看到海铃抄作业暗示mortis演戏，几乎使我相信叙诡说了</blockquote>
 详细希望，怎么个暗示法
 
+
+*****
+
+####  澜灰-  
+##### 336#       发表于 2025-1-24 23:28
+
+想了想，刨掉叙诡或者不可信叙述，现在只有Mortis非第二人格论+Mortis故意拆团论+喵梦不相信第二人格论能让我勉强和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样就只用拷打台词和演出，再加上牺牲一下喵梦形象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lawliet.L  
+##### 337#       发表于 2025-1-24 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271294&amp;ptid=2243994" target="_blank">沼蝇 发表于 2025-1-24 23:20</a>
+
+详细希望，怎么个暗示法</blockquote>
+海希对话明显又向观众（go团）传递信息的意图，暗示大概就是”抄作业=转述，数学没抄=存在误差”
+

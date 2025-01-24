@@ -5971,3 +5971,27 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 能不能5个人挨个犯一次病,其他人就别精神分裂了,换成其他的精神病.
 
+
+*****
+
+####  江口夕  
+##### 12367#       发表于 2025-1-24 23:29
+
+ 本帖最后由 江口夕 于 2025-1-24 23:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271326&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-24 23:24</a>
+莫小姐也没跟睦头许诺什么吧
+
+会保护乐队也是跟祥子说的，在睦头内心世界只说了我和你站一边 ...</blockquote>
+交换条件或者说让睦无防备的条件就是维护mujica，不然她也没必要和初华这些人说这么多废话，她讨厌祥子，难道就喜欢初华这些人么，没必要套近乎。
+莫女士也有她自己的行为逻辑，别不把她当人看，莫女士的行动逻辑不如说非常的透明。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演戏说的各位入戏入的看这剧不知道在看什么了。
+你就是按通常行为逻辑来推，哪怕粪作就粪作了，起码自己目前推的爽。总比瞎臆测occ八百里开外来的好的多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  新HGCG  
+##### 12368#       发表于 2025-1-24 23:32
+
+还是怀疑睦有第三形态
+

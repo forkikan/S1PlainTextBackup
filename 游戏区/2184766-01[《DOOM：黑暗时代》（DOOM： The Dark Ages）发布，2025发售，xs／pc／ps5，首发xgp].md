@@ -680,3 +680,15 @@ Id的Marty Stratton在Reddit上发了帖子责怪Mick。
 
 Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic client.</blockquote>
 
+
+*****
+
+####  希望之异热同心  
+##### 238#       发表于 2025-1-24 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270780&amp;ptid=2184766" target="_blank">JOJO42 发表于 2025-1-24 22:04</a>
+话说你截图上这个武器，我在想是这代依然有模组，还是说有不同升级路线 ...</blockquote>
+现在没透漏有关武器模组的信息吧，按键分配应该是够塞一个模组键的，应该不用担心取消模组？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

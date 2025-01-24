@@ -11745,3 +11745,49 @@ GiDuuJKbQAEvdel.jpg
 
 26号新设定册好像也会包含剧场版没有展示也就是属于TV部分的内容<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 5523#       发表于 2025-1-24 23:30
+
+台湾2.27上映，港澳还没消息，个人预计会比台湾晚一周吧
+
+<img src="https://img.saraba1st.com/forum/202501/24/232816f88jpkbmzidkbhde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/232821kf74lkl3sfvttj5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (672.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:28 上传
+
+*****
+
+####  吃果冻吧你  
+##### 5524#       发表于 2025-1-24 23:33
+
+去问了一下看过的朋友，不过他是一般路人观众，不能完全保证精度，还得看其他朋友了
+
+<img src="https://img.saraba1st.com/forum/202501/24/233207frbamb4bi3tm4b2h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-24-23-29-24-398_com.tencent.mobileqq-edit.jpg</strong> (115.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:32 上传
+
+*****
+
+####  YU_JI  
+##### 5525#       发表于 2025-1-24 23:33
+
+其实我第一部高达也是闪哈，我是闪哈逆鸭z，0079整个倒着看的，上个月刚看完00（）
+
