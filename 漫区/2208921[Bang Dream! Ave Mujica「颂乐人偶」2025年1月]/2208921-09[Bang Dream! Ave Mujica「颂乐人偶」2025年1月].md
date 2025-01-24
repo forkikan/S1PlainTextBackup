@@ -3456,3 +3456,104 @@ M 小姐是不是純反派只要看她是不是真玩不了音樂就可以判斷
 <img src="https://p.sda1.dev/21/13bd350a0b43e4de66f33196f72f089a/QQ图片20250124165244.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/1070e4a7c73eb4338ec2a290b7e5f93a/QQ图片20250124165249.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hulaoda007  
+##### 12145#       发表于 2025-1-24 16:57
+
+ 本帖最后由 hulaoda007 于 2025-1-24 16:59 编辑 
+
+因为m女士按理来说就是睦为了睦能应付a团又能不脱离a团才召唤出来的，所以反而觉得莫不是真心炸团。特别是某程度她的身份其实是a团给的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（也涉及到没了a团以后，小莫怎么继续存在成了一个难说的事，总不能真的从此莫作为睦活着？）
+更倾向是目前大祥玩脱了，坏猫玩脱了，小莫玩脱了，接下来要初华玩脱了。
+
+*****
+
+####  NOYURINOLIFE  
+##### 12146#       发表于 2025-1-24 16:58
+
+<img src="https://img.saraba1st.com/forum/202501/24/165720t4k75hsy559zgiky.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 16:57 上传
+
+*****
+
+####  miomio123  
+##### 12147#       发表于 2025-1-24 16:58
+
+现在场外已经完全是推理剧的氛围了，别是下一个寒蝉卒吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  operatbig  
+##### 12148#       发表于 2025-1-24 17:00
+
+制作组大概率觉得大喵的家庭侠属性就足够洗白她的自私自利，奉劝你们别对这角色有太美好的幻想。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cavaliar  
+##### 12149#       发表于 2025-1-24 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268472&amp;ptid=2208921" target="_blank">miomio123 发表于 2025-1-24 16:58</a>
+
+现在场外已经完全是推理剧的氛围了，别是下一个寒蝉卒吧
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+真是推理吗，怎么感觉全是滑坡<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 12150#       发表于 2025-1-24 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268418&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 16:52</a>
+
+拿祥p和chu2 p比较什么呢，chu2只要不折腾那她就是实际的小皇帝，要忠诚有忠诚要财力有财力，祥p自己都得 ...</blockquote>
+这里说的就是，chu2得到的忠诚不是天上掉下来的，她的四个队友没有一个会鸟财力，归根结底是chu2霸道归霸道，但是在核心问题上不含糊，非常尊重她们的音乐，祥子可以说正好相反
+
+
+*****
+
+####  山ノ内花音  
+##### 12151#       发表于 2025-1-24 17:02
+
+很多日本人已经接受了这集喵梦最后的台词明示了她是隐藏祥厨这个天降设定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无事忙  
+##### 12152#       发表于 2025-1-24 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262163&amp;ptid=2208921" target="_blank">oyss 发表于 2025-1-24 02:13</a>
+
+祥子这一副苦逼脸从mygo到现在是不是就没变过.这角色笑过么?</blockquote>
+预告五个人鬼图那里，祥子不是笑得很开心嘛
+
+*****
+
+####  bird-lay  
+##### 12153#       发表于 2025-1-24 17:04
+
+喵梦有去包容别的队友吗
+
+想要流量就把面具摘了，没蹭上就鼓动别人单飞，队友精神出问题了就想退团
+
+总不能没吃到最大的流量还没跑路就是包容了吧
+
+*****
+
+####  一心而用  
+##### 12154#       发表于 2025-1-24 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267669&amp;ptid=2208921" target="_blank">yukisanae 发表于 2025-1-24 15:31</a>
+
+有没有舅舅党敢来给大伙吃定心丸的</blockquote>
+试试这个？[https://bbs.saraba1st.com/2b/for ... amp;authorid=552919](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2208921&amp;page=132&amp;authorid=552919)
+
