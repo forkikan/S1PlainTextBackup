@@ -213,3 +213,155 @@ mujica里呢，很多观众根据某个人某段话分析人物性格、分析�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Putredinus  
+##### 11862#       发表于 2025-1-24 13:18
+
+想到一个东西
+
+mortis在睦头的视野中是一个玩偶，也只有睦头能看见。
+
+mortis说早就开始跟睦头对话了，也就是说可以长时间存在，可能比动画展现出来的要早。同时在之前的mujica动画中，初华没有见过祥子的玩偶，但是在mygo动画祥子的回忆中，初华不可能没见过这个玩偶。
+
+会不会mygo祥子回忆里的玩偶也是一个人格，所以初华看不见？？ 观众能看见只是因为这个是祥子的回忆 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+从mygo到mujica，十个人里面，睦头被压力、被pua、被依赖的人背刺，过于痛苦最后被迫“沉睡”人偶Mortis上线。
+
+除开睦头，备受打击和压力的也就祥子了，父亲、母亲、crychic、家族背景和执念。
+
+会不会我们现在看到的祥子已经是oblivionis代打了？人偶只能与主体交流，人偶强制上线让主体“沉睡”代打，那么在人偶的视野中也“只剩下mujica”了
+
+<img src="https://img.saraba1st.com/forum/202501/24/125328yt42jhhin5svwtzu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 12:53 上传
+
+*****
+
+####  swessia  
+##### 11863#       发表于 2025-1-24 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假药图一乐，做好编剧就是这么菜的心理准备
+
+莫小姐虽然你菜但我依然爱你<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dgugvff  
+##### 11864#       发表于 2025-1-24 13:20
+
+情报哥为什么会说年度第一原创？不会是第一个播的原创动画吧？搞什么！
+
+*****
+
+####  江口夕  
+##### 11865#       发表于 2025-1-24 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266325&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-24 13:17</a>
+笑点解析：只能在命运不出问题的前提下存在的命运共同体
+
+这和不受到攻击就绝对不会被破坏的防御有什么区别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这就好像说三国演义，同年同月同日死，也是命运共同体，关羽死了你怎么不在当天死，你是不是有问题。口号是口号，现实没有祥子爸还真就可能是命运共同体
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  fosanoha  
+##### 11866#       发表于 2025-1-24 13:22
+
+哪个情报哥说的，10th_mystery吗？
+
+年度第一又没加定语，谁知道是年度第一好还是年度第一播还是年度第一X
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  H2Ofrozen  
+##### 11867#       发表于 2025-1-24 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266074&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-24 12:51</a>
+
+还有一个疑问，睦的双人格是睦真的双人格还是初华认为的双人格。首先睦双人格是初华自己说的，也是她第一个 ...</blockquote>
+分离性身份障碍(解離性同一性障害, Dissociative identity disorder)病程是长期发展的，最终阶段才是“完全展现(full presentation)”。分离的人格特征当然来自患者现实生活中的客观经历，动画里完全展现阶段才成为祥子安排的角色mortis。在这之前病程都没到这个阶段，分离人格并没有成为一个完整的形象
+
+
+*****
+
+####  Libartas  
+##### 11868#       发表于 2025-1-24 13:25
+
+<img src="https://p.sda1.dev/21/19620bbd45371cda82d4746ed382634a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是迷途之子吗？
+
+*****
+
+####  Raven314  
+##### 11869#       发表于 2025-1-24 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266377&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 13:22</a>
+哪个情报哥说的，10th_mystery吗？
+
+年度第一又没加定语，谁知道是年度第一好还是年度第一播还是年度第一X</blockquote>
+记得说是年度最佳原创<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说不定是其他原创烂完了呢
+
+*****
+
+####  xwr  
+##### 11870#       发表于 2025-1-24 13:26
+
+NGA新的假药，Mortis和初华在出租车上的对话实乃勾兑，Mortis负责炸团，祥子归初华
+
+初华：祥子太累了，包揽演出剧本，彻夜不眠作曲，我希望能减少她的负担。（祥子已经进了阁楼，A团什么的太碍事了，祥子的时间是属于我的）
+
+Mortis：（作曲什么的怎么样都好啦），这样不行哦，你应该叫她好好睡觉。
+
+初华：你和真奈好像，和你在一起很自在，和我对你当初的印象判若两人。（我看你和我的老搭档一样是个好人）
+
+Mortis：初华你之前说成员退出等同于乐队解散，我的想法和你一样。初华你和祥子现在最近，祥子就拜托你了。最后注意保密。（炸团一事看来我们想法一致，炸了之后祥子就是你的了，这事只有我们两人知道哦）
+
+*****
+
+####  苌门有K  
+##### 11871#       发表于 2025-1-24 13:26
+
+初华说是双重人格，那一定就是双重人格
+
+至于大喵觉得是演的，那是大喵菜
+
+太尊重原剧了
+
+*****
+
+####  iiiiiiiiii  
+##### 11872#       发表于 2025-1-24 13:27
+
+<blockquote>H2Ofrozen 发表于 2025-1-24 13:22
+分离性身份障碍(解離性同一性障害, Dissociative identity disorder)病程是长期发展的，最终阶段才是“完 ...</blockquote>
+但是莫提斯自述从小一起玩又如何解释
+
+*****
+
+####  南宮凝香  
+##### 11873#       发表于 2025-1-24 13:27
+
+主要問題是雞狗C都是只靠一個插座接起來的陌生人
+
+C 團是祥子跟她的朋友 + 立希
+
+狗是燈的後宮 + 想借殼上市的爽世
+
+雞是祥子的青梅 + 兩個打工仔
+
+中心點出問題了 其他人就只是陌生人了
+
+命運共同體？ （不關心）
+
+要長期維持關係要靠大家開銀Party 開爽了才可能
+

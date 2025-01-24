@@ -1590,3 +1590,16 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pu  
+##### 144#         楼主| 发表于 2025-1-24 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264368&amp;ptid=2243911" target="_blank">中二骚年 发表于 2025-1-24 10:28</a>
+
+这片子里提到春夏之交和某炸药和平奖得主，被禁是正常的。
+
+但楼上说意识形态反华就很幽默，像是机器人发 ...</blockquote>
+虽然春夏之交那块他调查的不够仔细 但是这块不是他主要想表达的
+
