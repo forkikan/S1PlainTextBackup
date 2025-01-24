@@ -384,3 +384,22 @@ xbox手柄补丁，根目录覆盖
 
 真的有新人———— 不，老凯子来玩这种游戏吗
 
+
+*****
+
+####  killcal  
+##### 7485#       发表于 2025-1-24 16:16
+
+现在翻译情况怎么样？pc版有改进吗？简体还是繁体
+
+
+*****
+
+####  peshing  
+##### 7486#       发表于 2025-1-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267279&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-24 14:56</a>
+
+【【慎入 含剧透】《轨 言 轨 语》界之轨迹篇——塞姆利亚大陆对话公式1.0】 https://www.bilibili.com/v ...</blockquote>
+笑吐了，我找deepseek R1来写都能秒杀这傻逼剧本
+

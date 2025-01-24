@@ -2704,3 +2704,148 @@ a团根本不是和谐团体，一开始都心怀鬼胎。特点就在除了大�
 祥子想的太理想化了，祥子到底想的是什么有人能说出来吗，怕是她自己都说不出来 ...</blockquote>
 所以现阶段只能推测是一些音乐上的追求，但是也判断不出来什么来
 
+
+*****
+
+####  66367749  
+##### 12081#       发表于 2025-1-24 16:18
+
+这是一个少女乐队番，视情况可以接受喵梦追求流量甚至疯魔，但目前给的理由完全不能打动我。
+至少也得是个“以前组过乐队因为没人气大失败所以有严重ptsd”级别的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  外骨骼  
+##### 12082#       发表于 2025-1-24 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268065&amp;ptid=2208921" target="_blank">scorbian 发表于 2025-1-24 16:13</a>
+话说回来海铃真的是冷面笑匠，每次她说话我都想笑
+“我数学很好，不用了”
+“我这人是吃不胖的体质”</blockquote>
+可能也是因为是多个乐队的雇佣兵，跑来跑去身体消耗比较大吧。数学好这个镜头有点可爱了
+
+*****
+
+####  玖羽  
+##### 12083#       发表于 2025-1-24 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267920&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-24 15:59</a>
+
+问题就是她作妖啊，目前的故事不做假设不造假药，所有事情的起爆点不就是摘面具这事</blockquote>
+这个问题不要用观众的上帝视角看，我们知道摘面具是所有事情的起爆点，剧中就连睦之外的另外四个人都不知道
+
+第二话“用结果说话”，摘面具让乐队更火了，祥子只能捏着鼻子认，“用结果说话”就是典型的日本传统艺能下克上
+
+当然，从现实的角度看，祥子只要说：合同里写明私自摘面具要罚XX亿违约金
+
+或者：我本来准备在XX场合摘面具，预计有XXX亿收入，你私自摘面具导致我们损失了XXX亿
+
+喵梦怕不是当场就给祥子跪了，但是出于某些神奇的原因，这些措施都没有
+
+所以对睦之外的另外四个人来说，摘面具的结果是自己的身份暴露，乐队更火了，但是摘面具这件事已经结束了
+
+喵梦和祥子都不可能有“摘面具增加了睦的精神负担导致睦精神崩溃被自己的黑暗面吞噬”这个认知，这是观众的上帝视角，不是角色的
+
+哪怕未来出现，比如说，喵梦被网暴失去一切，哭着给祥子下跪，这种某些人心心念念的“因果报应”
+
+这个所谓的“因果报应”也纯粹是观众的上帝视角，在剧中人物看来跟摘面具没有关系
+
+*****
+
+####  哈曼的YY  
+##### 12084#       发表于 2025-1-24 16:19
+
+ 本帖最后由 哈曼的YY 于 2025-1-24 16:21 编辑 
+
+大伙想给莫姐找补主要是铺垫了这么久登场又那么装逼还给祥老师放狠话结果是个彩笔完全接受不了啊
+
+而且会骗也是本事啊 这种假意答应你的愿望然后做根本相反的事情很像奇幻作品里恶魔之类存在干的 
+
+星神也是把惧亡者整个骗成了太空死灵
+
+*****
+
+####  aptx8285144  
+##### 12085#       发表于 2025-1-24 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268081&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-1-24 16:15</a>
+
+写在第三集，真的要挽回喵梦风评，只能磕头道歉，别无他法。</blockquote>
+主要是这终究不是什么微型社会揭示人性险恶的番，而喵梦明显把乐队当流量工具挺过分的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12086#       发表于 2025-1-24 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笨祥当然是想证明自己，结果用人不当。符合人设
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  紫苑寺美琴  
+##### 12087#       发表于 2025-1-24 16:21
+
+这🐔团攒出来就是为了炸的呀，团不炸，这几个各怀鬼胎的主角凭什么完成心境的转变？所以一定得有一个负责点引线的人激化矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+喵梦的定位就是这个前期猛猛gank，后期查无此人的工具人，上限已经被锁的死死的了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Raven314  
+##### 12088#       发表于 2025-1-24 16:22
+
+来点新图这次谷子还行吧<img src="https://p.sda1.dev/21/15bb4810ac432ae14b2e3b2fbacb2d37/image.jpg" referrerpolicy="no-referrer">
+初华有权杖祥子有小扇子<img src="https://p.sda1.dev/21/22f4075f273d21ffac721a01b0ad1865/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 12089#       发表于 2025-1-24 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268123&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-24 16:19</a>
+
+主要是这终究不是什么微型社会揭示人性险恶的番，而喵梦明显把乐队当流量工具挺过分的 ...</blockquote>
+所以mujica动画的上限也就卡死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哎，成也邦多利，败也邦多利。
+
+*****
+
+####  hulaoda007  
+##### 12090#       发表于 2025-1-24 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268089&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-24 16:17</a>
+第二集：发现睦头情况不对，皱眉
+
+上一集：偷听看见大祥泪崩</blockquote>
+也算是大祥老师的定位才是，虽然表现得不太好。
+
+a团真正的不和谐音并不是哪个角色，而是a团本身。对比过去邦邦还是m团甚至c团，a团的问题是它不是团结的社团。这是它最糟的地方，也应该是主旨才是。
+所以大祥老师现在这样子努力单干反而违反了乐团的概念，一种互相需要的状态。所以黑祥大概率要被证明是错的。也有可能大祥转念明白a团不是她一个人的a团时，故事会进展。
+
+至少我觉得a团的主线是种不是爱恨情仇勾心斗角，而是五个散人如何变成一个乐团。所以也不该恨哪个特定角色比较好。
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">反正我爱祥也爱猫，现在输输输，早晚赢光光。
+
+*****
+
+####  山ノ内花音  
+##### 12091#       发表于 2025-1-24 16:23
+
+还是别在意喵梦了 
+
+就当一切都没发生过
+
+只求后面别再给喵梦安排一喷四的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12092#       发表于 2025-1-24 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大猫现在不就是素世定位，但是观感上没那么别扭导致看上去还行，还有就是和灯长的太像了，不像是无意的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
