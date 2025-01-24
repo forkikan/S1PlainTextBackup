@@ -1079,3 +1079,192 @@ weibo：梅比乌斯TUTAI想玩XBX
 
 给的介绍里还在聊乐队的事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 11938#       发表于 2025-1-24 14:35
+
+喵梦不算短视吧
+
+祥子不会画饼
+
+*****
+
+####  間桐櫻  
+##### 11939#       发表于 2025-1-24 14:36
+
+賣狗最後一集雞團的海報寫著tgw產業 這是明晃晃地表明雞團受豐川家贊助了？
+
+*****
+
+####  天空塔书记官  
+##### 11940#       发表于 2025-1-24 14:36
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 14:38 编辑 
+
+祥子真有那么大能耐怎么不人格分裂一个人演五个角色，还要其他四个人干什么，祥子一直没有向其他人表示过他们对自己、对A团的必要性，所以怪不了其他人没有对A团的归属感，这是连饼都懒得画的表现，木头人偶不行为什么不换铁皮人偶，为什么必须是音乐，而不是歌舞剧或者绘画展示，很多工作明明可以交给其他人去做，但一定要硬着头皮自己上，立希能翘课熬夜写曲子是因为迷子现在还是玩票性质的乐队，玩票乐队和商业乐队的运作逻辑是完全不一样的，祥子根本就意识不到这一点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  金钱与民主  
+##### 11941#       发表于 2025-1-24 14:36
+
+还是那个问题：Mortis到底是什么？就现在的讨论仿佛睦被附身了一样，要是双重人格的话，那要么睦该去医院，要么该独角兽去医院。
+
+*****
+
+####  风道北来  
+##### 11942#       发表于 2025-1-24 14:37
+
+虽然鸡团最后肯定是包饺子结局，但我琢磨中间这次解散（如果下集真炸团了的话）也衬得大祥老师太抽象了
+
+普通人的亲友团无非来自几个方面：血缘，学业，职场，社交，同好
+
+我们再来看看大祥老师（这里先不考虑谁对谁错，只说结果）：
+
+为了父亲和母系亲族切割，结果和父亲也闹翻了。血缘out；
+
+转学前的人际关系全部切割，转学后的同学连她名字都不知道。学业out；
+
+稳如磐石的豪华战舰解体（哪怕不解题大祥老师目前也是最不合群的）。职场out（顺带损失半身一个，血缘再out！）；
+
+社交方面编剧几乎没有着墨。不过看起来无论是邻里街坊还是客服送报，大祥老师好像都没认识什么新朋友（哪怕接牢爹回家时和警察姐姐多聊几句也好啊）。社交out；
+
+同好......同好在开音趴，猜猜谁不在？同好out！
+
+一个人能惨到几乎没朋友也不容易，但大祥老师马上就要做到了，真了不起啊
+
+*****
+
+####  江口夕  
+##### 11943#       发表于 2025-1-24 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267053&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-1-24 14:36</a>
+还是那个问题：Mortis到底是什么？就现在的讨论仿佛睦被附身了一样，要是双重人格的话，那要么睦该去医院， ...</blockquote>
+上一季灯就该去医院了不用等到现在
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厄斯沃穆  
+##### 11944#       发表于 2025-1-24 14:38
+
+<blockquote>她根本不懂mujica到底是怎么红的</blockquote>
+多巧啊，观众也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧中有提到过到底速通武道馆是怎样达成的吗，总不能真是因为世界观吧
+
+*****
+
+####  佳奈助  
+##### 11945#       发表于 2025-1-24 14:38
+
+不是顺风顺水最速武道馆了吗，直到大喵开始作
+可以说大象管理刺头的能力不行导致一些列后果，但黑白颠倒说成大象作的就过份了吧
+
+*****
+
+####  operatbig  
+##### 11946#       发表于 2025-1-24 14:39
+
+感觉你们的想法也太纯良了，总从角色本意是好的方向想。
+
+*****
+
+####  盐盐盐盐盐  
+##### 11947#       发表于 2025-1-24 14:39
+
+祥子永远憋着不说话的话可不就是身边的人越来越少，其实感觉她和初华关系也就那样，初华去关心一下她还显得有点生疏，可能就得初华教育她不要什么都瞒着自己
+
+*****
+
+####  金钱与民主  
+##### 11948#       发表于 2025-1-24 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267081&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 14:38</a>
+
+上一季灯就该去医院了不用等到现在
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+你觉得灯的问题和现在的睦/Mortis是一个级别的么？
+
+
+*****
+
+####  厚乳果珍爽  
+##### 11949#       发表于 2025-1-24 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267086&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-1-24 14:39</a>
+
+感觉你们的想法也太纯良了，总从角色本意是好的方向想。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要卖角色的，总不能卖个纯坏的人吧？能卖出去吗？
+
+*****
+
+####  rushsong  
+##### 11950#       发表于 2025-1-24 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266636&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-1-24 13:49</a>
+我倒不觉得喵梦有什么前后不一，她始终是流量第一观众第二乐队不要也罢
+
+总有人拿她擅自揭面具说事，但是揭 ...</blockquote>
+问题是喵梦退出mujica有什么好处？她当初就是因为觉得能搭上睦和初华才来mujica的，现在流量都被睦抢完了，她的目的还没实现为什么那么干脆的要退出，而且还是说一些所谓的“正论”以后退出的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Raven314  
+##### 11951#       发表于 2025-1-24 14:41
+
+日本人综艺不是对底边艺人很难熬么，各种整人出丑就为混个脸熟，不如说上综艺才是大喵受难得第一部
+邦世界观是8+手游再怎么反应现实还要有底线包饺子，现实中日本娱乐圈那真毫无底线<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11952#       发表于 2025-1-24 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267084&amp;ptid=2208921" target="_blank">佳奈助 发表于 2025-1-24 14:38</a>
+不是顺风顺水最速武道馆了吗，直到大喵开始作
+可以说大象管理刺头的能力不行导致一些列后果，但黑白颠倒说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常，诸葛亮用人不当还被喷成傻子呢。何况大祥。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厉飞雨  
+##### 11953#       发表于 2025-1-24 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">牢莫只是在执行木子米保护大祥老师的母鸡卡的指令
+但牢莫同时又不爽大祥老师
+这两件事在他看来不冲突
+
+*****
+
+####  dengwl  
+##### 11954#       发表于 2025-1-24 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267069&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-24 14:37</a>
+
+虽然鸡团最后肯定是包饺子结局，但我琢磨中间这次解散（如果下集真炸团了的话）也衬得大祥老师太抽象了
+
+普 ...</blockquote>
+我觉得这就是编剧想写的，反正现在已经到谷底了，那么后面只能上升了吧
+
+*****
+
+####  iiiiiiiiii  
+##### 11955#       发表于 2025-1-24 14:44
+
+<blockquote>dengwl 发表于 2025-1-24 14:42
+我觉得这就是编剧想写的，反正现在已经到谷底了，那么后面只能上升了吧 ...</blockquote>
+这句话真不吉利，从来都是你认为是底的地方还有深渊。
+
