@@ -3307,3 +3307,16 @@ Roselia「Stille Nacht, Rosen Nacht」SHANGHAI  
 端程山蜜柑solo弹呲了，但是音质这么差要不是她直接失去笑容真注意不到
 采访烂炒鸡第四集
 
+
+*****
+
+####  LeonsCat  
+##### 26892#       发表于 2025-1-24 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67258146&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2025-1-23 21:34</a>
+
+下个月大概这轮最后一期fes，剩立希和二柱子
+
+FES</blockquote>
+saya拿巧克力那张，耳坠款式太成年了……都不像JD像要嫁人的样子。小天才这下有的受了。
+

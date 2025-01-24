@@ -11619,3 +11619,16 @@ cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要�
  又来了，线下宣传 https://weibo.com/6303938704/Pb62kr9I7</blockquote>
 虽然过时又贵，但是有效
 
+
+*****
+
+####  makar0601  
+##### 5513#       发表于 2025-1-24 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270380&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-1-24 20:55</a>
+
+知乎有个PhD写的观后感写的蛮专业的(最后一句笑了
+
+《高达GQuuuuuuX》观后感——首部“战后”高达的唏嘘</blockquote>
+总体来说战后日本这点说得非常对
+
