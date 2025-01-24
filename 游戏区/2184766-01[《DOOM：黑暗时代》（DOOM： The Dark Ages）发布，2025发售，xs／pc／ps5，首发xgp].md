@@ -403,3 +403,16 @@ doomTDA的灵感来源，不会是tango那个幽灵线东京吧？？？
 
 昨天打折15块买了个doom2016，正好5月之前打完补课。只玩过永恒，是不是16和永恒那种飞天遁地八爪鱼开火的高机动战斗思路不太一样？
 
+
+*****
+
+####  JOJO42  
+##### 215#       发表于 2025-1-24 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265500&amp;ptid=2184766" target="_blank">牙狼GARO 发表于 2025-1-24 11:57</a>
+
+5月15日当暗黑猛男
+
+昨天打折15块买了个doom2016，正好5月之前打完补课。只玩过永恒，是不是16和永恒那种飞 ...</blockquote>
+16更old school一些，切枪玩法也有，但是节奏和要求上没那么高，属于让你爽的门槛比较低那种
+
