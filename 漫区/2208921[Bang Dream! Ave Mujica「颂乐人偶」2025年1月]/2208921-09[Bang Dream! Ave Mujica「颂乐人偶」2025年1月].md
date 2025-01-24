@@ -117,3 +117,99 @@ mujica里呢，很多观众根据某个人某段话分析人物性格、分析�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fljlj  
+##### 11853#       发表于 2025-1-24 13:11
+
+<blockquote>gammatau 发表于 2025-1-24 11:45
+主次颠倒了，一切小说的核心首先是叙事，推理小说的一个流派才觉得诡计也是核心，某些人自作主张偷了叙事 ...</blockquote>
+这样解释还是有问题。1.推理小说那个叫叙述诡计，不是“叙事”。但其实我也不太清楚“叙述诡计”这词是谁发明的，他的初始语义是什么。2.不可信叙述者确实非推理小说独有，但所谓叙述诡计也不是只有不可信叙述者。倒不如说，阿加莎写某小说时根本没有叙述诡计这种称呼，是后来新本格发扬光大以后的研究者提出的名词在往回套的。而大量推理小说的所谓“叙述诡计”本质上是基于惯性思维盲点的文字游戏，不像小说“叙事”而是像脑筋急转弯
+
+*****
+
+####  江口夕  
+##### 11854#       发表于 2025-1-24 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266175&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-24 13:01</a>
+我觉得这个找补也很强行，节目的时候就知道不能弹，为什么临到要演出了才来考虑怎么解决问题，你们四个之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不是弹不了吉他好吧，是会弹不弹。你不找问题原因，把锅给4个人是不是有问题？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 11855#       发表于 2025-1-24 13:11
+
+【官方中字】『BanG Dream! It's MyGO!!!!! 雨中祈晴』第2话「想成为人类」 ​​​
+<img src="https://p.sda1.dev/21/077f4df63b374076c8b9bc3f9ff521b7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2adeeeb177a9d553981b5dbd24003032/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/22e207fddf5c7ebe8fdf52ec960ac78e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/63b3489f28717f06ca4d5468e72f32d4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/092f2f60b72dfe5f1f8b66d5e396dffc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fccd978b2c5bae9d8794c45eca94c3a7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2704e840c74a720dbca8f0009fa33cb8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/38606ff41e30560bb8238dbf138e986c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/008afc08c65f6b2763151fb84938447f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  苌门有K  
+##### 11856#       发表于 2025-1-24 13:12
+
+怎么嗑假药还能比来比去的，你觉得什么可能对什么更有意思就嗑什么啊，在盖棺定论前都是假药。
+
+初华问一句双重人格就是双重人格吗，祥子还说crychic是命运共同体呢
+
+*****
+
+####  江口夕  
+##### 11857#       发表于 2025-1-24 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266279&amp;ptid=2208921" target="_blank">苌门有K 发表于 2025-1-24 13:12</a>
+怎么嗑假药还能比来比去的，你觉得什么可能对什么更有意思就嗑什么啊，在盖棺定论前都是假药。
+
+初华问一句 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">live之前确实是命运共同体有什么问题
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  Raven314  
+##### 11858#       发表于 2025-1-24 13:15
+
+为啥这个鹅球就是不能回复，网络问题么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  外骨骼  
+##### 11859#       发表于 2025-1-24 13:16
+
+结合预告pv和现在角色双重人格（存疑），以及恐怖片演出，母鸡卡的人偶设定，和观众越看动画越疯狂……我懂了（长颈鹿）
+
+这是克苏鲁系乐队少女番
+
+*****
+
+####  风道北来  
+##### 11860#       发表于 2025-1-24 13:17
+
+笑点解析：只能在命运不出问题前的提下存在的命运共同体
+
+这和不受到攻击就绝对不会被破坏的防御有什么区别
+
+*****
+
+####  天空塔书记官  
+##### 11861#       发表于 2025-1-24 13:18
+
+图多杀猫了，有点卡<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

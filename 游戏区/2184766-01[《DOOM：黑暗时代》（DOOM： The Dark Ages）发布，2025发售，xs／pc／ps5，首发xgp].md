@@ -416,3 +416,14 @@ doomTDA的灵感来源，不会是tango那个幽灵线东京吧？？？
 昨天打折15块买了个doom2016，正好5月之前打完补课。只玩过永恒，是不是16和永恒那种飞 ...</blockquote>
 16更old school一些，切枪玩法也有，但是节奏和要求上没那么高，属于让你爽的门槛比较低那种
 
+
+*****
+
+####  牙晓  
+##### 216#       发表于 2025-1-24 13:10
+
+<img src="https://image.api.playstation.com/vulcan/ap/rnd/202501/1405/b940bcd6be1b8c7980f750abbd62c9bf63fc51f5d49b61f9.jpg" referrerpolicy="no-referrer">
+<img src="https://image.api.playstation.com/vulcan/ap/rnd/202501/1405/9cce1948120d31351ecd5d9715fffe9ffc0041be81767b45.jpg" referrerpolicy="no-referrer">
+
+PSN美服预购界面扒下来的壁纸
+
