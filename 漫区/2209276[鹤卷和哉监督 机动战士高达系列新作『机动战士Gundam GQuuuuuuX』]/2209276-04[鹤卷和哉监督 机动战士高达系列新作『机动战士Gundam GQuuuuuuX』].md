@@ -11559,3 +11559,29 @@ cut in 好廉价的感觉，战斗动画简化点挺好的，人物cut in不要�
 
 《高达GQuuuuuuX》观后感——首部“战后”高达的唏嘘
 
+
+*****
+
+####  UNINSTALL42  
+##### 5508#       发表于 2025-1-24 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270380&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-1-24 20:55</a>
+
+知乎有个PhD写的观后感写的蛮专业的(最后一句笑了
+
+《高达GQuuuuuuX》观后感——首部“战后”高达的唏嘘</blockquote>
+照这解析怎么感觉又变成押井守的味儿了
+
+
+*****
+
+####  线程召唤使  
+##### 5509#       发表于 2025-1-24 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270380&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-1-24 20:55</a>
+
+知乎有个PhD写的观后感写的蛮专业的(最后一句笑了
+
+《高达GQuuuuuuX》观后感——首部“战后”高达的唏嘘</blockquote>
+开篇第一句就没法看了还最后一句，张口就来。
+
