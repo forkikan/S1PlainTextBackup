@@ -2910,3 +2910,13 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 
 <img src="https://p.sda1.dev/21/746b9dbea80409bd2a6a0edb5518e16c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FanKiE  
+##### 316#       发表于 2025-1-24 18:03
+
+拷打祥子喜闻乐见，可惜大猫肯定了Mortis的能力，反而不太好拷打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

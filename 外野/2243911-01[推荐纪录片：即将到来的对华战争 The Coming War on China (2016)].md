@@ -1721,3 +1721,13 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 现在开天眼看觉得16年“东大问题不大、所以西大不敢打”是没有意义的，这本身是一个持续差不多1年、状况反复升级的博弈过程。所有的演习、部署都是按战状态来的，你现在知道西大是独走，当时有人敢赌吗？傻逼又不是没有。
 
+
+*****
+
+####  UniqueDiablo  
+##### 155#       发表于 2025-1-24 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67255159&amp;ptid=2243911" target="_blank">FeteFete 发表于 2025-1-23 15:20</a>
+张教授都到znh给居委们上课了，他的地位真的高到一定程度</blockquote>
+现在表情包可是正面嘲讽殖人用了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
