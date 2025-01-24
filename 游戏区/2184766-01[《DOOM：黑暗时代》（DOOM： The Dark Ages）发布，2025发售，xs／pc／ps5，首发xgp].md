@@ -616,3 +616,14 @@ Doom配置要求也出了，和夺宝奇兵一样强制光追打底了，20系n�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  牙晓  
+##### 233#       发表于 2025-1-24 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270134&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-24 20:26</a>
+
+不需要搞十字键切换，只要看准心对准的目标和目标距离就可以触发相应的动作了，按一下就是丢盾，按住就是 ...</blockquote>
+原来如此，完美格挡就是攻击到你一瞬间举盾，另外难度里面可以调节完美格挡触发时间，看来可以当鬼泣完美格挡风格玩了
+

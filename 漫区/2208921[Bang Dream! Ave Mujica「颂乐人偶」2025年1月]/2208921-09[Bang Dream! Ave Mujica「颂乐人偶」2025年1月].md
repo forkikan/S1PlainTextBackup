@@ -4772,3 +4772,164 @@ mujica的问题也正在于此；四集了，五个角色两个扯进去家庭�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  新HGCG  
+##### 12261#       发表于 2025-1-24 20:25
+
+ 本帖最后由 新HGCG 于 2025-1-24 20:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270111&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 20:22</a>
+
+故弄玄虚是一种手段，手段无所谓好坏，因为手段只是达成目的的途径
+
+好比魔术师变牌之前又是卖嘴又是装神弄 ...</blockquote>
+喵梦哪里双标了
+
+她从来都是流量至上，讨好观众第二，团队无所谓啊
+
+*****
+
+####  天空塔书记官  
+##### 12262#       发表于 2025-1-24 20:26
+
+那只能说并非并非了，实际上可能并没有像演绎地那么夸张<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 12263#       发表于 2025-1-24 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269986&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-1-24 20:05</a>
+
+这里面有一点说得太对了：Mujica目前的剧情过于的故弄玄虚。Mygo的动画可不是靠这些取得成功的。 ...</blockquote>
+Mujica本身就是祥子为了逃避而搞的一场故弄玄虚的过家家，不过我觉得应该是要逐渐“去伪存真”的
+
+*****
+
+####  一心而用  
+##### 12264#       发表于 2025-1-24 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270057&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-24 20:15</a>
+等等
+
+海铃说的如同燃尽前的烟花
+
+会不会说的不是母鸡卡</blockquote>
+提醒一下，角色是要进游戏卡池的。
+
+*****
+
+####  YF31  
+##### 12265#       发表于 2025-1-24 20:27
+
+ 本帖最后由 YF31 于 2025-1-24 20:28 编辑 
+
+回头听了一下几首鸡团的歌，发现鸡团这个交响金型的音乐风格，走重型乐队风，作曲编曲居然是一只四集以来被连着抽的软糯小章鱼实在挺离谱的。
+
+狗团的歌真可以说是灯发自内心的呐喊，鸡团的歌是小章鱼被生活锤成软糯年糕以后，在角落里哭哭喷黑泥写的吗？
+
+你黑生日呢？大火烧呢？杀人吻呢？
+
+要是黑生日的鼓真是软糯小章鱼一边哭哭一边恶狠狠地加BPM，实在有点太油麦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结合情节来看，很多歌听着是越来越油麦了，希望武士道真的知道他们在干嘛吧。
+
+*****
+
+####  新HGCG  
+##### 12266#       发表于 2025-1-24 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270136&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-24 20:26</a>
+
+提醒一下，角色是要进游戏卡池的。</blockquote>
+结尾治好了不就好了
+
+*****
+
+####  帆前  
+##### 12267#       发表于 2025-1-24 20:28
+
+本集小睦厨的最大损失应该是ep3的这个哭颜原来只是小莫老师在演戏，痛失强忍痛苦的小睦悲情美学一份（
+<img src="https://p.sda1.dev/21/ea978ec3dc340476154dbceba07b3b70/img-d72f2831040efcd33b81c63d668e1136.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12268#       发表于 2025-1-24 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一开始也觉得是4人演1人，后面想想大祥那个状态，是演不了的。
+这里只有初华海玲大猫三人在演莫女士，又或者是大猫独角戏的情况更合理。
+至于演的理由也很合理，这里诡异的地方在于：
+1明明包括大猫都怀疑队友是二重人格了，却撇开不提，变成要不要解散这很违和。这时候应该是先人后事，人都出事了还惦记那破事业呢。这里甚至大猫都是很违和的，自己家庭这么多兄妹要照顾，队友说有二重人格还选择性忽略，包括她之前说和睦双飞，这里不得不说相当的违和
+2有充分的铺垫，之前莫女士说不知道mujica的歌，然后到不会弹吉他炸团，姐妹们你们都是懂音乐的，之前睦弹吉他什么样，现在什么表现，队友再没反应只能说全员串子了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Sanco  
+##### 12269#       发表于 2025-1-24 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270105&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 20:21</a>
+如果这个时候乐队解散了，那不应该是连夜更改头版标题
+“绝密！解散前的对话”“两人的关系性带来的冲击 ...</blockquote>
+所以这个应该是解散之前的杂志
+
+
+*****
+
+####  天空塔书记官  
+##### 12270#       发表于 2025-1-24 20:31
+
+那Ether呢，又是怎么写出来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12271#       发表于 2025-1-24 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270105&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 20:21</a>
+如果这个时候乐队解散了，那不应该是连夜更改头版标题
+“绝密！解散前的对话”“两人的关系性带来的冲击 ...</blockquote>
+预告的前后顺序是颠倒了，还是就是这个顺序，不好说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 12272#       发表于 2025-1-24 20:31
+
+要我说邦邦动画还是太拘泥了，既然都走职业路线了找代打不是很正常，让lock赚个演出费不行吗，反正喵梦和layer那么熟。
+
+*****
+
+####  屑猫猫  
+##### 12273#       发表于 2025-1-24 20:32
+
+<blockquote>zhoujin8584 发表于 2025-1-24 20:15
+第四集明明是莫老师联合初华算计了大家吧，车上的对话两人段位太高了</blockquote>
+问题是他俩没那么熟络啊，以莫女士视角看初华老师都客气到说你人让我想起我的队友mana了，看过go的都知道跟这人相处很难受，怎么会勾结到一起去算计剩下三个
+
+*****
+
+####  一心而用  
+##### 12274#       发表于 2025-1-24 20:32
+
+lyy老师时刻不忘爱素
+<img src="https://p.sda1.dev/21/8dfcba31603b79a5fb37b18094ea1c61/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/05e17d2b46f9054fad2f9ef71fe704f5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/27f728ab4b227c8d4287cb8ccce4d8ad/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 12275#       发表于 2025-1-24 20:33
+
+<img src="https://p.sda1.dev/21/378aafa7e61cb908c6c1475f765ed5b4/image.jpg" referrerpolicy="no-referrer">
+
