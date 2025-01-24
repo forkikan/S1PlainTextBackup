@@ -1685,3 +1685,13 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 在说印度也不是没有后顾之忧。
 
+
+*****
+
+####  x分裂者  
+##### 151#       发表于 2025-1-24 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67267929&amp;ptid=2243911" target="_blank">mandown 发表于 2025-1-24 15:59</a>
+美国现在是不是准备拉拢印度来对付中国?印度应该算陆上大国了吧，人口比中国多，也有核武器 ...</blockquote>
+印度不行，喜马拉雅山可比台湾海峡难多了，要冲突也是藏南小**，完全不带怕的，要用核的话不如美国佬自己用，印度那个投送水平约等于没有
+

@@ -3012,3 +3012,270 @@ mujica出发点就是祥子自己整个给自己爽的乐队 最后送瘟神的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我觉得大祥才是以后a团真正的猫位。
 
+
+*****
+
+####  wpcc  
+##### 12109#       发表于 2025-1-24 16:34
+
+但是哪怕大祥老师和自己和解开始组五个人的乐队 剩下四个神经病轮胎他要怎么修呢 先不提牢爹。
+
+她真的修的好不想弹吉他的死亡吗
+
+*****
+
+####  庸necro  
+##### 12110#       发表于 2025-1-24 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268157&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-24 16:23</a>
+
+也算是大祥老师的定位才是，虽然表现得不太好。
+
+a团真正的不和谐音并不是哪个角色，而是a团本身。对比过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我一开始也觉得应该是祥子发现乐队不是一个人埋头努力，抛掉一些好面子性格，暴露自己的软弱来让团队更紧密结合的剧本，但是目前的发展我很难想象要怎么拐到这上面去，而且她最不想坦白的部分甚至是被动被喵梦爆出来了，我都不知道祥子跨过自己心境成长要靠什么来体现了。现在矛盾全激化了，但是收拾局面的人完全没有迹象（mygo不一样，实际上mygo的人际关系危机要怎么解决爱音在建团过程中已经演示过了）
+
+*****
+
+####  哈曼的YY  
+##### 12111#       发表于 2025-1-24 16:35
+
+<blockquote>Raven314 发表于 2025-1-24 16:22
+来点新图这次谷子还行吧
+
+初华有权杖祥子有小扇子</blockquote>
+还真是权杖啊 大权在握了三角姐 赶紧剧情里也动一动啊
+
+*****
+
+####  wpcc  
+##### 12112#       发表于 2025-1-24 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268255&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-24 16:34</a>
+
+我一开始也觉得应该是祥子发现乐队不是一个人埋头努力，抛掉一些好面子性格，暴露自己的软弱来让团队更紧 ...</blockquote>
+mygo没有五个神经病 还是正常人范畴
+
+*****
+
+####  桜庭千景  
+##### 12113#       发表于 2025-1-24 16:36
+
+可喜可贺
+
+一个月前生放送的时候我就说过祥子在喵梦这件事上做的最错的就是没第一时间把人踢了，然后在nga被人肘击了说喵梦才是真大腿错的是不让摘面的大祥
+
+现在第四话出来后大部队终于发现喵梦洗不动了开始真的反省是不是当初真的踢了是最优解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 12114#       发表于 2025-1-24 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268196&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-24 16:28</a>
+道理是这个道理 舅舅剧透说发动机是灯皇修好的 我现在看已经是烂完了 但是比不修强 ...</blockquote>
+所以最后不还是会修吗，跑一圈也是跑，只要能跑起来就是成功，矛盾的产生必然伴随着矛盾的解决，这是故事发展的基本逻辑，已知最后一定会包饺子，那就说明必须修好发动机和制动，也就证明发动机和制动存在故障，如果真没毛病为什么还要修，这么简单的道理就那么难理解吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 12115#       发表于 2025-1-24 16:37
+
+其实a团只要初华是正常人
+王道走向真的很好写
+但非要剑走偏锋 初华搞得比鬼上身的睦还不正常
+这就难办了
+
+*****
+
+####  IVANLIAO  
+##### 12116#       发表于 2025-1-24 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268243&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-24 16:33</a>
+
+我倒觉得黑祥组a团的真正原因是想道别白祥。
+
+黑祥的一切几乎是白祥的反面。</blockquote>
+看完第四集，黑祥已经寄了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 12117#       发表于 2025-1-24 16:38
+
+<blockquote>山ノ内花音 发表于 2025-1-24 16:23
+还是别在意喵梦了 
+
+就当一切都没发生过
+
+只求后面别再给喵梦安排一喷四的剧情 ...</blockquote>
+不是说九州人战斗力本来就强吗
+
+以前是流放罪犯的地方
+
+*****
+
+####  哈曼的YY  
+##### 12118#       发表于 2025-1-24 16:38
+
+大陀螺这情况应该是被抽破防亮血条了吧 剩下就是用什么小纸条发信息哭哭把血条打空重新来过了
+
+*****
+
+####  南宮凝香  
+##### 12119#       发表于 2025-1-24 16:39
+
+<blockquote>wpcc 发表于 2025-1-24 16:34
+但是哪怕大祥老师和自己和解开始组五个人的乐队 剩下四个神经病轮胎他要怎么修呢 先不提牢爹。
+
+她真的修的 ...</blockquote>
+睦算是最好修的了
+
+半身覺得彈吉他不快樂
+
+那就另一個半身先拾回音樂是快樂的感覺
+
+一半快樂了， 整體慢慢就快樂了
+
+心境上的事， 
+
+邦他一邦就行了
+
+反而現實向的才難修
+
+別人要錢， 祥子變得出來嗎？
+
+總不成要靠邦，邦到對面不要錢口山
+
+*****
+
+####  akiomn  
+##### 12120#       发表于 2025-1-24 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268276&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-24 16:37</a>
+
+其实a团只要初华是正常人
+
+王道走向真的很好写
+
+但非要剑走偏锋 初华搞得比鬼上身的睦还不正常</blockquote>
+
+初华还好，底色被盖章温柔＋喜欢祥子，解决起来算快的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦的问题我提过了，真的要疯了，演员说还好，最差顶多是睦的风评烂掉。但双重人格这东西真跑出来怎么办？哪怕剧内初华只是疑问句，但说出来的瞬间我都觉得wsd疯了，已经不是可以打哈哈过去的地步了，因为双重人格真的是现实问题必须先送到医院去看看的
+
+
+*****
+
+####  iiiiiiiiii  
+##### 12121#       发表于 2025-1-24 16:40
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-24 16:44 编辑 
+
+我感觉第四集后半像是画靶射箭。一开始信息可能只有mujica解散了，别人问初华mujica为什么解散。初华跟你说mujica解散过程，然后mujica怎么解散现在就是个猫箱。因为初华是不可信叙述者，那么真相是不是被掩盖了呢。就像六轩岛右代宫一家被炸死了，怎么死的没说
+
+*****
+
+####  天空塔书记官  
+##### 12122#       发表于 2025-1-24 16:40
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268272&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2025-1-24 16:36</a>
+可喜可贺
+
+一个月前生放送的时候我就说过祥子在喵梦这件事上做的最错的就是没第一时间把人踢了，然后在nga被 ...</blockquote>
+所以你要踢喵梦吗，那之后还要不要把她拉回来，喵梦出问题踢喵梦，木头出问题踢木头，初华和海玲同理，最后踢无可踢让祥子自己玩吗，这还能叫乐队吗，拆了车轮和车架让发动机自己跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hulaoda007  
+##### 12123#       发表于 2025-1-24 16:40
+
+ 本帖最后由 hulaoda007 于 2025-1-24 16:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+反正我现在默认a团是六人组，祥海初喵睦莫。
+
+但说难听点，从不觉得莫演技说是什么好点子。
+现在第二人格已经够鬼扯了，到时你再说这是演技这不叫圆剧情，这叫鬼扯两次。
+
+*****
+
+####  山ノ内花音  
+##### 12124#       发表于 2025-1-24 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268304&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-24 16:39</a>
+
+初华还好，底色被盖章温柔＋喜欢祥子，解决起来算快的
+
+睦的问题我提过了，真的要疯了，演员说还好，最差 ...</blockquote>
+问题是编剧不让初华动 
+
+解决睦的问题 完全帮不上忙
+
+这就很无助了
+
+*****
+
+####  九陌狂游  
+##### 12125#       发表于 2025-1-24 16:43
+
+真假美猴王，佛祖说谁是大圣谁就是大圣。
+睦莫祥子说谁是睦谁就是睦<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 12126#       发表于 2025-1-24 16:43
+
+我觉得双重人格去医院这事情就不该纳入考虑范围 肯定要音乐解决的
+
+不然下集来个镜头小黄瓜在对比度巨高的一片纯白的精神病院里醒来我会吐血的
+
+*****
+
+####  NODY  
+##### 12127#       发表于 2025-1-24 16:43
+
+连邦邦知名木头都知道对付睦的标准打法<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+但祥子的问题是，她现在作曲的时候脑子里真的有另外四个人的声音吗，我不好说，确实是该放个假好好思考一下自己想要组什么样的乐队了
+
+<img src="https://img.saraba1st.com/forum/202501/24/164241yevbcfhlfervfevk.png" referrerpolicy="no-referrer">
+
+<strong>e751d532-830f-4842-b36d-89978d712160.png</strong> (49.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 16:42 上传
+
+*****
+
+####  桜庭千景  
+##### 12128#       发表于 2025-1-24 16:44
+
+你知道你的比喻烂在哪吗？
+
+一辆本来可以正常运行开上路的车，因为劣质轮胎导致车撞墙把其他零件包括发动机撞坏了
+
+你的结论是导致车不能走了的原因是发动机坏了，换轮胎没用继续走的关键是修好发动机
+
+你说的对吗？是对的，的确重点是修好发动机
+
+可楼友明明说的是劣质轮胎导致车失控撞墙的问题
+
+你隔这转移什么讨论焦点呢？
+
+*****
+
+####  Raven314  
+##### 12129#       发表于 2025-1-24 16:45
+
+以前想过假药就是现在剧情是初华用谎言编织的故事讲给失忆的祥子听，毕竟祥子是忘却的女神
+但是这样写就是太土了
+场外一直再丰矿暗示初华不简单，圣质如初不大可能
+
