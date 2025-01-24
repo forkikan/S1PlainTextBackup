@@ -502,3 +502,11 @@ dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/
 
 装备界面怎么感觉人物是糊的？其他地方倒是正常
 
+
+*****
+
+####  zhouaa  
+##### 7495#       发表于 2025-1-25 02:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好的吃第一章和第二章吧
+
