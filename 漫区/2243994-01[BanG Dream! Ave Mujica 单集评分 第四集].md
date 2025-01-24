@@ -2920,3 +2920,14 @@ mortis吞掉睦头这么酷炫的出场，结果就是个2000次男
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 317#       发表于 2025-1-24 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268892&amp;ptid=2243994" target="_blank">一心而用 发表于 2025-1-24 17:42</a></blockquote>
+笑死了，全是回旋镖和复制技能
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

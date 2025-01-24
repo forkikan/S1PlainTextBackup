@@ -471,3 +471,26 @@ xbox手柄补丁，根目录覆盖
 
 dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  peshing  
+##### 7492#       发表于 2025-1-24 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268447&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-24 16:55</a>
+
+其实早在空fc——
+
+                                                                .  .  .  .</blockquote>
+那可能就是没有CV反而观感不会这么明显了
+
+
+*****
+
+####  玩吗？  
+##### 7493#       发表于 2025-1-24 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">第一章打了一半，这熟悉的台面上下真的吐了。。。。
+
+操作人物一点也不变变，闪3好歹上来新7班人都换了，这次一上来还是这几个完全没有用的欲望。。。。。地图也还是通首都各处马桶。。。。
+

@@ -4138,3 +4138,33 @@ mortis是睦闹别扭是一种能解释得通的方式。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ddy2811  
+##### 12202#       发表于 2025-1-24 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268418&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-24 16:52</a>
+
+拿祥p和chu2 p比较什么呢，chu2只要不折腾那她就是实际的小皇帝，要忠诚有忠诚要财力有财力，祥p自己都得 ...</blockquote>
+楚萍芳那样的出事了该追人追人该滑跪滑跪，祥子没得楚萍芳的条件，那就不要用楚萍芳的办法。别人不是命中注定要支持你的，不是皇帝还要摆皇帝的谱，遇到事情了又没有皇帝的杀伐果断，那你不死谁死？
+
+正如睦钻进吉他里治不了心病，祥子再通宵编曲写剧本搞她的世界观也改变不了现状，只会越陷越深、越来越脱离现实，现在祥子就是要搞清楚状况了以后再从头开始，要么承认这个队不是她一个人的然后培养队魂、推动交流沟通，要么就找到能控制所有人的方法彻底黑化成操偶师，要么就提出你的目标并且让这些人认同，这比“处理一堆问题”重要得多
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 12203#       发表于 2025-1-24 18:36
+
+最大输家也是甜甜圈女士，怎么又被野猫超了，不知道下周能不能超回来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/6ea3ade1df1d20fb67be7bfa05eb6ebd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 12204#       发表于 2025-1-24 18:36
+
+<blockquote>阿卡拉兰斯 发表于 2025-1-24 18:36
+最大输家也是甜甜圈女士，怎么又被野猫超了，不知道下周能不能超回来</blockquote>
+一1串久0
+
