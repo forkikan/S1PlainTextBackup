@@ -10927,3 +10927,57 @@ side6窝藏红高达这事一旦做实，相当于挑衅吉翁公 ...</blockquot
 
 以前UC系都是往一年战争边边角角塞新机体，现在可以**方方往if线里塞了
 
+
+*****
+
+####  AvenueIII  
+##### 5451#       发表于 2025-1-24 12:00
+
+所以现在关键就是到底是季番还是半年番，为什么这能不说的，难道是现在的常态吗
+
+*****
+
+####  刺客ares  
+##### 5452#       发表于 2025-1-24 12:00
+
+对比一下军人时期的夏利亚和战后的夏利亚
+
+可以看出，战后夏利亚军装样式变更，发量减少
+
+更随和懒散，除了原本的八字胡还额外留了下巴胡
+
+<img src="https://img.saraba1st.com/forum/202501/24/115732xs3xzx3pk7353xg3.png" referrerpolicy="no-referrer">
+
+<strong>1737690130835.png</strong> (37.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 11:57 上传
+
+这个下巴胡形状是不是有点熟悉？没错
+
+<img src="https://img.saraba1st.com/forum/202501/24/120014si3nin8l1dida5ui.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 12:00 上传
+
+你小子真的干了是吧，玩的真开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卑弥呼yamato  
+##### 5453#       发表于 2025-1-24 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265533&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-24 12:00</a>
+
+对比一下军人时期的夏利亚和战后的夏利亚
+
+可以看出，战后夏利亚军装样式变更，发量减少
+
+更随和懒散，除了原 ...</blockquote>
+沟槽的夏亚梦男痞子！！
+
