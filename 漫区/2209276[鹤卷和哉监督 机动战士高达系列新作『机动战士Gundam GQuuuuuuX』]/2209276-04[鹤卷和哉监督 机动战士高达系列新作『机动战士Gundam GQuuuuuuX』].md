@@ -11493,3 +11493,19 @@ X 上的 H@Lu【DeathMarch】🥇：“最低限のマチュ。 #ジークアク
 ----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
 水魔的时候搞了几次活动也是他吧？
 
+
+*****
+
+####  岸浪白野  
+##### 5502#       发表于 2025-1-24 18:56
+
+[X 上的 えんぎよし：“ジークアクスに今後期待する展開 [url]https://t.co/bJ23KO1CqZ](https://x.com/ENGIYOSI/status/1882739858185331155)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/24/185549b8wxx9mfx8x119yp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 18:55 上传
+

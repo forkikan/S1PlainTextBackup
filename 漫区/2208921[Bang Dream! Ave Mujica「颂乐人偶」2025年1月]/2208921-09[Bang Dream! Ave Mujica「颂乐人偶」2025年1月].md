@@ -4219,3 +4219,80 @@ mortis是睦闹别扭是一种能解释得通的方式。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 12210#       发表于 2025-1-24 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67269502&amp;ptid=2208921" target="_blank">necroia 发表于 2025-1-24 18:54</a>
+制作组觉得喵梦没问题，那么你就可以见到一路winwinwin的小孩姐喵梦说出那句“我原谅你了，祥子” ...</blockquote>
+这话能不能等到第十三集再说，真有这么急吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 12211#       发表于 2025-1-24 19:01
+
+喵梦有没有问题 赎不赎罪 根本就不重要
+只要后面表现好 卖卖关系性 维护下团队 就已经很好了
+
+
+*****
+
+####  南宮凝香  
+##### 12212#       发表于 2025-1-24 19:02
+
+<blockquote>阿卡拉兰斯 发表于 2025-1-24 18:36
+最大输家也是甜甜圈女士，怎么又被野猫超了，不知道下周能不能超回来</blockquote>
+為了流量，
+
+我們踢掉鍵帽，
+
+組一鍵盤，一貝斯，
+
+三把吉他的新母雞卡吧
+
+*****
+
+####  十九号大侠  
+##### 12213#       发表于 2025-1-24 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67264818&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-24 11:02</a>
+
+那些都是烂片烂作品，你是说母鸡卡是烂片吗？</blockquote>
+搏击俱乐部还好吧
+
+*****
+
+####  江口夕  
+##### 12214#       发表于 2025-1-24 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经不知道该说什么好了，楼友比莫女士还疯批。
+祥子说的不是睦就不是睦，怎么莫女士还要去和现在的睦挂钩，什么你接受不了，你到底接受哪个。
+1莫女士就是儿童时期的保护人格，所以不会弹吉他，就是不会，不是什么不想
+2祥子认定的睦就是动画要塑造的睦，这是睦的角色塑造，不是莫女士
+3莫女士夺舍并不是主人格主观选择，是被动保护。这个人格有自己的思想但不是睦。
+
+楼友疯批在于，对睦塑造的全盘否定和对祥睦关系的全盘否定。你都否定了你还来看什么mujica。你到底想看什么。二重人格就二重人格怎么了。你邦最大的谜团黑洞kkr可是远超这个之上的存在
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  humphrey  
+##### 12215#       发表于 2025-1-24 19:06
+
+刚看完，为什么邦邦会拍出一股子飞跃母鸡卡疯人院的味道…
+
+*****
+
+####  十九号大侠  
+##### 12216#       发表于 2025-1-24 19:08
+
+以日本人的角度，搞不好喵梦已经洗白了，没问题了
+
