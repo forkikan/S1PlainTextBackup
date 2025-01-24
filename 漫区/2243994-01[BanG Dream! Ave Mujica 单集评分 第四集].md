@@ -2422,3 +2422,24 @@ mujica就没有这种可能性了吗 如果把mygomujica合起来看 mygo就是�
 mujica就没有这种可能性了吗 如果把mygomujica合起来看 mygo就是轻拍前6集 mujica就是轻拍后6集 ...</blockquote>
 我记得她的名字还有出现在制作名单里面，因此锅有大小之分，完全没有是不太可能的
 
+
+*****
+
+####  xiaosayang  
+##### 267#       发表于 2025-1-24 09:29
+
+前3集2分率那么高，是不是独角兽写的呢
+
+不会到第4集才开始切割吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yozoraxsx  
+##### 268#       发表于 2025-1-24 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67260910&amp;ptid=2243994" target="_blank">Tienx 发表于 2025-1-24 00:19</a>
+
+我很想看潭友也回旋镖</blockquote>
+坛友不是已经扎满回旋镖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
