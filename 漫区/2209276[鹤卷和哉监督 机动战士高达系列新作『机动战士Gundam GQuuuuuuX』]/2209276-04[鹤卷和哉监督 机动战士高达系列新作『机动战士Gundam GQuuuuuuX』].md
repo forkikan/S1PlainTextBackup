@@ -11035,3 +11035,26 @@ side6窝藏红高达这事一旦做实，相当于挑衅吉翁公 ...</blockquot
 
 这种美式军服太像影视剧里的果党了
 
+
+*****
+
+####  0aleph37  
+##### 5459#       发表于 2025-1-24 12:37
+
+为什么5ch总有人说jk不能杀人所以会一直打黑拳这种话，明明令和的作品里jk杀人也不算少数吧
+
+
+*****
+
+####  虛無迴廊  
+##### 5460#       发表于 2025-1-24 12:46
+
+jk要萌，杀了人的jk会变得可怕就不够萌了，所以不会发生的思路吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 5461#       发表于 2025-1-24 12:46
+
+听说黑拳赛已经拿下人头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  有没有看过的来确认下
+

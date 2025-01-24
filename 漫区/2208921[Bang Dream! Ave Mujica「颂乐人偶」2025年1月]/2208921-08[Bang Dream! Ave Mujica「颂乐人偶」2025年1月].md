@@ -15159,3 +15159,159 @@ mujica第四话看乐子派和合理派开始争吵，与片内剧情走向过�
 
 从此坛友不再相信当代剧组有操纵信息差玩弄观众的实力，即使有mygo兜底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苌门有K  
+##### 11810#       发表于 2025-1-24 12:39
+
+依据很多啊，海铃和大喵提前透露要炸团，明明睦和所有人都私聊过但没有描写与海铃大喵私聊的内容，酒店说散就散很诡异，片尾声优表是睦不是莫
+
+最大的依据，睦妈是演员
+
+*****
+
+####  天空塔书记官  
+##### 11811#       发表于 2025-1-24 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265860&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-1-24 12:33</a>
+大喵真没救了吧，再怎么家人侠脑子里只有自己这个是甩不掉了，最多是从无理取闹的键帽变成普通键帽 ...</blockquote>
+这句话建议丢给在19年看第二季的老观众，现在可是25年了，甚至在第三季楚平方还踩了R团一脚，导致部分萝厨和RAS到现在还是水火不容，所以又怎么了，A团内讧只是内讧，而楚平方可是差点炸了三个团的，而且另两个还是邦邦整个企划的元祖和支柱，喵梦不过屁大点事，只是表现手法故意过激了点，实际危害赶不上楚平方一根
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 11812#       发表于 2025-1-24 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265827&amp;ptid=2208921" target="_blank">苌门有K 发表于 2025-1-24 12:29</a>
+还是演戏说更能体现出睦的决心与弧光，痛定思痛拿出自我限制多年的能力鞭策大祥拯救危在旦夕的乐队。双重人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幽默，你睦的决心和弧光就是憎恨发小使绊子，把死了老妈老爸废物的发小往悬崖推是吧，给你决心弧光完了。
+你这么为发小好，怎么不弹吉他，你不是有决心吗，你不弹吉他是想怎样，弧光在哪呢我怎么没见着，这次解散不就是你说自己不会吉他一手造成的？你之前怎么会这次又不会了，是不是故意来解散的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  KLHgg  
+##### 11813#       发表于 2025-1-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265879&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-24 12:34</a>
+
+以后要继续卖角色的企划你们还指望没有洗角色哦。
+
+到时候ave每个人都有多重人格给你弄10个谷子都有可能。 ...</blockquote>
+那进游戏抽到的是什么，角色碎片吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ty_cc  
+##### 11814#       发表于 2025-1-24 12:41
+
+别人说双重人格也就算了，问题是这是串中串初华说出来的，而前面初华嘴里各种很怪很有问题的话。
+喵梦明显不信，只觉得你们大小姐现在还在过家家真有点大病。海铃看上去也不是很信。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  稀勢のささ  
+##### 11815#       发表于 2025-1-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265871&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 12:34</a>
+
+莫女士就是巨婴菜鸡反派，是有依据的
+
+1只有小学学历。
+
+2不会谈吉他或者说不想谈</blockquote>
+不要再刺激楼友了，现在的症状已经离嗷的一声疯掉不远了
+
+到时候大家都转到第二人格开始复读然后突然破防那可不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 11816#       发表于 2025-1-24 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265868&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-1-24 12:33</a>
+
+双重人格我能接受，我不能接受的是你换个人格就说不会弹吉他了，你搁这骗小孩呢？哦不对我们丰川大小姐还真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双重人格有不同技能点的动漫作品也不少
+
+黑子的篮球里就有一个红毛
+
+*****
+
+####  小小雪空  
+##### 11817#       发表于 2025-1-24 12:43
+
+不知道还以为你们在看克系作品……
+
+
+*****
+
+####  厚乳果珍爽  
+##### 11818#       发表于 2025-1-24 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265929&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-24 12:38</a>
+
+一切的恐慌根源是蝈蝈，直接来源是水母，大家叠假药叠到六七层了结果最后制作组摊牌我真只有第一层
+
+从此坛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">群友注册时间也不晚，没追过罪恶王冠、革命机、铁血高达、蒜、水魔这些动画吗？
+
+*****
+
+####  江口夕  
+##### 11819#       发表于 2025-1-24 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265973&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-1-24 12:41</a>
+不要再刺激楼友了，现在的症状已经离嗷的一声疯掉不远了
+
+到时候大家都转到第二人格开始复读然后突然破防 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得他们反而离疯不远了，这番太真实了，剧里剧外一个样，剧里人会谈吉他，说不会。剧外看过mygo但给人的感觉都没看过。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  iiiiiiiiii  
+##### 11820#       发表于 2025-1-24 12:47
+
+<blockquote>小小雪空 发表于 2025-1-24 12:43
+不知道还以为你们在看克系作品……</blockquote>
+就那个播前pv够克系得了
+
+*****
+
+####  苌门有K  
+##### 11821#       发表于 2025-1-24 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265958&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-24 12:40</a>
+
+幽默，你睦的决心和弧光就是憎恨发小使绊子，把死了老妈老爸废物的发小往悬崖推是吧，给你决心弧光完了。 ...</blockquote>
+当然是故意来解散啊，甚至大概率合伙了大喵甚至海铃。
+
+下大棋总比怂了叫个所谓的第二人格出来把坏事都推给第二人格有弧光。
+
+*****
+
+####  iiiiiiiiii  
+##### 11822#       发表于 2025-1-24 12:47
+
+<blockquote>厚乳果珍爽 发表于 2025-1-24 12:45
+群友注册时间也不晚，没追过罪恶王冠、革命机、铁血高达、蒜、水魔这些动画吗？ ...</blockquote>
+比起你说的那些纯烂，我觉得mujica突出一个怪异和不舒服
+
+*****
+
+####  Raven314  
+##### 11823#       发表于 2025-1-24 12:48
+
+真的是双重人格不是多重人格吗？第三集节约宝怎么陪的墨提斯都注明是谁，而且第二集睦从更衣室断片到舞台也到最后一曲，之前是这个代打墨提斯明显是会吉他技术还不差<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+当然也有可能现在的墨提斯就是纯演不会吉她就为了拷打折磨祥子，这样就是纯反派最后只有被睦祥完全消灭一条路
+
