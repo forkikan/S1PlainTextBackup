@@ -5543,3 +5543,82 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 如果大家也能拿出同样的热情去冲国产冻鳗，该少走多少弯路啊
 
+
+*****
+
+####  Raven314  
+##### 12331#       发表于 2025-1-24 22:27
+
+话说莫提斯最开始不是一定就是人格而是小孩子普遍会有的幻想朋友吧，随着睦第一次上电视后认为演技是不属于自己的东西，最后把不喜欢的演技天赋也塞给幻想中的朋友，但是墨提斯本质上还是一种幼儿的自我保护机制人格化
+不过母鸡卡里也没法实锤双重人格吧，总不能真送去精神病院确诊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+还有大喵直球讯问墨提斯是不是双重人格，墨提斯没有正面回答而是侧头看祥子
+讯问双重人格是不是双重人格有种问精神病人是不是有神经病一样的哲学幽默感
+
+*****
+
+####  08df1258c5ed098  
+##### 12332#       发表于 2025-1-24 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270660&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-1-24 21:43</a>
+姐们从幼儿园到高中，怎么说认识十来年了吧，俩姐妹认识十年了，你不爽你说好吧？你要是生气这段时间丰川祥 ...</blockquote>
+演戏说最难圆的部分在于“演戏”作为动词自带的暗示效果，言下之意是睦保留了主动性和目的性。而这对过往人物形象颠覆过重，难以自圆其说。
+对比之下，双重人格则是完全无法接受，因为过于沉重而彻底破坏了作品基调。
+随之派生的阴谋论可以说是为了给单集内无法自圆其说的失败叙事找补的无奈之举。
+但我认为真相完全没有那么复杂，远远轮不到阴谋论找补。答案就只是第三集演出那明明白白的样子，墨提斯诞生于睦的自我放弃。
+因为睦无法发出自我的声音，但是却有着与生俱来的共情能力，于是她可以借助捏造一个角色来替代表达，只不过小时候是对着玩偶过家家，放弃自我后转而代入了自己的玩偶，浑然忘我正是所谓演员的天赋显现。
+墨提斯形态下如果不是模仿就是站桩念台本，海港那段自我介绍还要先对祥子先鞠躬谢礼，肢体动作表演意味十足。你还能说这是有独立意识的人格吗？或者是你能想象一个独立人格说什么你再这样睦就回不来了这种话么？
+墨提斯的所作所为是睦放弃自我的自然而然演出，因为这就是睦在心里勾画的墨提斯（注意：小剧场是拿着剧本的）。最后与其说不会弹吉他，不如说是在抗拒演奏吉他。因为吉他对睦来说就是自我。
+再好的演员唯独没办法扮演自己
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  MASKA-1  
+##### 12333#       发表于 2025-1-24 22:33
+
+也许睦和mo是幼驯染<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IVANLIAO  
+##### 12334#       发表于 2025-1-24 22:34
+
+复盘了一下酒店之夜，于我而言，唯一的乌云也解开了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+大喵的正论输出，是因为大喵讨厌大小姐来跟她们这些小镇努力家抢饭碗，她属于有点轻度仇富倾向<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+看见这帮顺风顺水的人跟她争资源就来气，带着这样一种角度再看，大喵的正论也就成了偏见<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12335#       发表于 2025-1-24 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ksm：孩子们，邦邦真有医院
+
+不过ksm是因为心理问题导致的失声所以不需要去医院，但睦如果真是双重人格……啥也别说了，先送去医院吧
+
+6CD0077D-EA05-4B89-9E2C-EF3BA42F4400.jpeg
+(101.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/223519yjvvjqzv86jss0jg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 12336#       发表于 2025-1-24 22:35
+
+<img src="https://img.saraba1st.com/forum/202501/24/223457wckwkwfk44duxtxk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (237.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 22:34 上传
+
