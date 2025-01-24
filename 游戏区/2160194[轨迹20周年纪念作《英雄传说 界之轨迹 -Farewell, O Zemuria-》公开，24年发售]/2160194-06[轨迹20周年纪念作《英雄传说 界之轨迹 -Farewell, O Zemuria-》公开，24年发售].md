@@ -510,3 +510,11 @@ dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好的吃第一章和第二章吧
 
+
+*****
+
+####  yth329  
+##### 7496#       发表于 2025-1-25 03:27
+
+PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的还看不出来
+
