@@ -1526,3 +1526,14 @@ https://www.youtube.com/watch?v=t6ZgCgpkbEk 下集地址。上集感觉内容没
 传了个rar，自己解压吧， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被秒ban，回去在线看好了
 
+
+*****
+
+####  leghorn00  
+##### 139#       发表于 2025-1-24 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263393&amp;ptid=2243911" target="_blank">barry.allen 发表于 2025-1-24 08:56</a>
+
+更大的可能是海自从开始打仗到结束一直在开会，假装要出战</blockquote>
+复刻关原食神是吧
+
