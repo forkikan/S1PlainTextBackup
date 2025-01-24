@@ -941,3 +941,141 @@ motis可能早就存在，但这个名字可能是后面才有的。
 
 当然后面是可以给莫女士找补说她就是这么强，小孩子破防样也是演出来的。但是莫女士的强度提太高这剧本就塞不下别人的弧光了
 
+
+*****
+
+####  天空塔书记官  
+##### 11924#       发表于 2025-1-24 14:24
+
+ 本帖最后由 天空塔书记官 于 2025-1-24 14:25 编辑 
+
+再说了，楚平方的成长是意识到了自已一直在依靠父母的财力和人脉，所以决心脱离这种荫蔽，只是现在还没有这个能力，但RAS确实是在走独立发展的道路
+
+那祥子呢，她现在真的脱离了丰川家了吗，她真的是在用搞事业的心态搞乐团吗，这不还是大小姐在过家家，连和初创成员交心都不愿意，之后再变心也是之后的事，这样的团队能走多远，炸了不是迟早的事吗，况且现在还没确定是炸了呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Min_FOrder  
+##### 11925#       发表于 2025-1-24 14:25
+
+<blockquote>赛菲莉亚 发表于 2025-1-24 14:21
+喵梦的人设就是短视，自以为懂流量，她根本不懂mujica到底是怎么红的，mujica的成功给了她很多幻觉，以为这 ...</blockquote>
+
+下集就可以让她爆一爆，上综艺发现照旧是接不上话，整半天还是无人在意的路边一条，账号视频播放量暴跌甚至掉大粉，敲鼓完全白练了，直接爆掉
+
+*****
+
+####  一心而用  
+##### 11926#       发表于 2025-1-24 14:26
+
+weibo：梅比乌斯TUTAI想玩XBX
+<img src="https://p.sda1.dev/21/fccb172bd99038116c468caa849966ea/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 11927#       发表于 2025-1-24 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266787&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-24 14:09</a>
+所以呢，祥子是真的惨到只能靠水滴筹续命吗，你以为丰川家真的会一直放任不管 ? 她姥爷真的对她一点也不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那没啥可谈的了，人格都没了还谈个锤子。监狱还能吃牢饭呢，反正饿不死
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ape-apple  
+##### 11928#       发表于 2025-1-24 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266900&amp;ptid=2208921" target="_blank">赛菲莉亚 发表于 2025-1-24 14:21</a>
+喵梦的人设就是短视，自以为懂流量，她根本不懂mujica到底是怎么红的，mujica的成功给了她很多幻觉，以为这 ...</blockquote>
+有意思，下一集苗萌已经独立作为美妆博主上节目了，制作方不会觉得她要吃瘪，这真糟糕
+
+*****
+
+####  ads147147  
+##### 11929#       发表于 2025-1-24 14:27
+
+比较搞的是mygo第二话里祥子说乐队要一起分享快乐和痛苦，事实上祥子本来就没有打算把自己的痛苦分享出去，大家问就躲着，问急了就爆典搞得大伙莫名其妙，这不也算是一种大小姐任性么，我觉得母鸡卡从开播开始就一直在拷打祥子，没困难也要继续拷打，因为祥子这套高贵面具太厚了，完全没没把其他人当做和自己同等的人，而是人偶，这点和她的经济状况完全没关系。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dengwl  
+##### 11930#       发表于 2025-1-24 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266953&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-1-24 14:27</a>
+
+有意思，下一集苗萌已经独立作为美妆博主上节目了，制作方不会觉得她要吃瘪，这真糟糕 ...</blockquote>
+还是有回旋的空间，比如上了节目之后还是没人理的路边，没了乐队后面也没人气
+
+*****
+
+####  IVANLIAO  
+##### 11931#       发表于 2025-1-24 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266914&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-24 14:23</a>
+
+鸡狗里被祥子音乐天分压力到的是立希</blockquote>
+毕竟是祥子精挑细选的初代一辈子成员，soulmate这块儿还是要强点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厚乳果珍爽  
+##### 11932#       发表于 2025-1-24 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266953&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-1-24 14:27</a>
+
+有意思，下一集苗萌已经独立作为美妆博主上节目了，制作方不会觉得她要吃瘪，这真糟糕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看好再节目上吃瘪，然后被炎上。
+
+*****
+
+####  fsfs_freeze  
+##### 11933#       发表于 2025-1-24 14:30
+
+后面的剧情怕不是祥子觉得比起mujica，还是让睦回来更重要，结果睦回来之后又拉着祥子组mujica
+
+*****
+
+####  Raven314  
+##### 11934#       发表于 2025-1-24 14:31
+
+人际关系祥子确实需要磨练，但是访谈钦点初华才能让祥子得到成长
+合着解决墨提斯祥子得到成长弧光还不算完成，初华要整什么活才能把祥子拷打成完全体<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IVANLIAO  
+##### 11935#       发表于 2025-1-24 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266983&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-24 14:30</a>
+
+看好再节目上吃瘪，然后被炎上。</blockquote>
+大喵在团里都抢话抢不过大莫老师，出去准备受苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCCTHUN  
+##### 11936#       发表于 2025-1-24 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67266922&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-1-24 14:24</a>
+
+四人演莫女士论的问题在于四人哪来这么好的默契，莫女士和人联合演祥子的问题在于莫女士后半集的表现立刻破 ...</blockquote>
+墨姐主演，初华另有计划也在演，喵梦头脑简单被墨姐当枪使，海铃旁观者态度无所谓，祥子被一句“睦已经死了”彻底打回软糯形态无法思考。
+
+*****
+
+####  稀勢のささ  
+##### 11937#       发表于 2025-1-24 14:33
+
+大喵那综艺上归上不代表她真独立啊  
+
+给的介绍里还在聊乐队的事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -448,3 +448,37 @@ PSN美服预购界面扒下来的壁纸</blockquote>
 
 原来永恒那个彩虹小马皮肤我还挺喜欢的，这代还有么....
 
+
+*****
+
+####  zzy516232108  
+##### 219#       发表于 2025-1-24 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67265500&amp;ptid=2184766" target="_blank">牙狼GARO 发表于 2025-1-24 11:57</a>
+
+5月15日当暗黑猛男
+
+昨天打折15块买了个doom2016，正好5月之前打完补课。只玩过永恒，是不是16和永恒那种飞 ...</blockquote>
+开发者访谈说了
+
+2016是run and gun，主要就是走+打，类似老FPS的设定
+
+永恒是jump and shoot，就是飞到天上倾泻火力
+
+这次TDA是stand and fight，我个人感觉其实有点像隔壁tango的幽灵线……这样说不会乳doom了吧
+
+*****
+
+####  JOJO42  
+##### 220#       发表于 2025-1-24 14:34
+
+截图展示了把新武器，目测是这代火箭筒定位
+
+<img src="https://img.saraba1st.com/forum/202501/24/143401jytv8bvz14x4448x.jpg" referrerpolicy="no-referrer">
+
+<strong>fps-doom-the-dark-ages-20250124-326321-header.jpg</strong> (299.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 14:34 上传
+
