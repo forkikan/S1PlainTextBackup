@@ -5739,3 +5739,105 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 我有个熟人看第三话精分他觉得很适合放进雏见泽，如果真能梦回寒蝉业某种意义上挺乐的。现在确实是既不音乐也不娱乐
 
+
+*****
+
+####  akiomn  
+##### 12350#       发表于 2025-1-24 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最恐怖的是，四集下来没啥cp大战，第三集后开撕人物塑造，第四集直接集体车喵梦车编剧
+5个人的队伍，一个被抽陀螺，一个ob挂机，一个不知道在想什么，一个只会搞事情背刺，一个换号后还是被抽陀螺甚至只用5分钟就把逼格掉完
+我tm还能说什么？比烂是吧
+
+*****
+
+####  せきぼく  
+##### 12351#       发表于 2025-1-24 23:09
+
+不如改名叫 演剧人偶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小小雪空  
+##### 12352#       发表于 2025-1-24 23:09
+
+颂乐人偶，字面意义就是歌颂音乐的人偶，众所周知，音乐是人类的社会行为，人偶是人类社会的赏玩物品……
+
+
+*****
+
+####  6030sylar  
+##### 12353#       发表于 2025-1-24 23:12
+
+<img src="https://img.saraba1st.com/forum/202501/24/231129z6d4d9dd9e6k4adh.png" referrerpolicy="no-referrer">
+
+<strong>36TSN{~11N0S@]{5(WNDD[9.png</strong> (31.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/231138nvvuuuvp9vagv7p5.png" referrerpolicy="no-referrer">
+
+<strong>1GD)$IX${P__PA(}[D8$WLQ.png</strong> (106.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/231155qbfmm323uveemhta.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/24/231202hv81t2b71h66h747.png" referrerpolicy="no-referrer">
+
+<strong>4YJ5SRVNT2((XW4R_HFO{DO.png</strong> (103.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:12 上传
+
+*****
+
+####  mono  
+##### 12354#       发表于 2025-1-24 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271113&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-24 22:56</a>
+
+那喵梦是不是吕布
+
+总是造反还没人打得过她</blockquote>
+喵梦有身高+打鼓训练
+
+海铃吃不胖说明有肌肉  也许有一战之力
+
+另外三人看不出能打
+
+*****
+
+####  新HGCG  
+##### 12355#       发表于 2025-1-24 23:14
+
+倒是下一集莫怎么面对睦
+
+<img src="https://img.saraba1st.com/forum/202501/24/231421erbmjfhcf7j0mqjm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 23:14 上传
+
+*****
+
+####  江口夕  
+##### 12356#       发表于 2025-1-24 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士除了下跪还能说什么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
