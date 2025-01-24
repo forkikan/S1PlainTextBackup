@@ -5630,3 +5630,64 @@ mygo再怎么也就青春期小女孩的小九九，这要是装病，哪来的2
 
 现在就看第五集的脚本是不是独角兽🦄️，菜花最有意思的两集也是独角兽的（去除最后一集）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 12338#       发表于 2025-1-24 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270982&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-24 22:35</a></blockquote>
+看到排名第一的是素世和爱音，只能说有些人口味独特<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12339#       发表于 2025-1-24 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沟槽的前四集这队伍里四个神人，以后要是祥子振作起来一拖四把这四个神人拉回来真的无敌了
+不对，海铃还算是正常人，其他三个只能是伪人
+
+我有预感，mujica完结后祥子退队流二创肯定不少，这个队伍少了祥子真不行
+
+*****
+
+####  嵇翱u  
+##### 12340#       发表于 2025-1-24 22:49
+
+这不是现在的榜单吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 12341#       发表于 2025-1-24 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270815&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-24 22:08</a>
+
+按前四集来看，大喵才是大女主，怼人一直没输过，被踩头也能反杀，随心所欲搞事情，而且家庭关系和谐
+
+—— ...</blockquote>
+最可怕的是她现在最在意的既不是音乐也不是这个乐队的哪个人，而是流量本身，那确实好像没什么弱点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 12342#       发表于 2025-1-24 22:55
+
+<blockquote>IVANLIAO 发表于 2025-1-24 22:34
+复盘了一下酒店之夜，于我而言，唯一的乌云也解开了
+
+大喵的正论输出，是因为大喵讨厌大小姐来跟她们这些小 ...</blockquote>
+我还是厌恶大喵老师的，这种借机上位的跟努力家经常带有的平凡但守规矩的去争取机会等形象不符，喵老师我只能说别把她想的太正面。
+
+真要论小镇努力家就得茨菇和砂夜说你好了
+
+*****
+
+####  达达葱2  
+##### 12343#       发表于 2025-1-24 22:56
+
+那喵梦是不是吕布
+
+总是造反还没人打得过她
+

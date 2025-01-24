@@ -588,3 +588,28 @@ miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变�
 
 草还好有polka有能帮忙管理新人，要不早放送事故了
 
+
+*****
+
+####  rs5621  
+##### 10726#       发表于 2025-1-24 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏点了这下
+
+*****
+
+####  holofan  
+##### 10727#       发表于 2025-1-24 22:54
+
+<img src="https://img.saraba1st.com/forum/202501/24/225130h5nf5nwfnfn5wkmh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 22:51 上传
+
+2个半小时通关
+
+原则上miko这个企划内选的游戏原意是“调查”而不需要一定按通常的玩法去打到通关但是还是硬着头皮打通关了
+
