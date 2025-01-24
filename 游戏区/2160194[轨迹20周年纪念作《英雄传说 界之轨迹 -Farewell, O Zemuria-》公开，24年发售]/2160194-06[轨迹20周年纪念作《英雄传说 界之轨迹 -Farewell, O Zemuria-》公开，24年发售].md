@@ -463,3 +463,11 @@ xbox手柄补丁，根目录覆盖
 现在翻译情况怎么样？pc版有改进吗？简体还是繁体</blockquote>
 看解包的说简体就是一键繁转简+改了一些人名和名词试图掩饰。
 
+
+*****
+
+####  kalavinka  
+##### 7491#       发表于 2025-1-24 17:37
+
+dlc也太鸡儿贵了 草啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

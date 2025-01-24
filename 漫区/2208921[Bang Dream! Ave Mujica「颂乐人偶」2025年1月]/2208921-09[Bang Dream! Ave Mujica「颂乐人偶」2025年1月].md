@@ -3921,3 +3921,61 @@ Mortis其实就是小女孩闹别扭，只不过用了非常极端夸张、看�
 
 我对1~3话的一切的舞台part的小剧场都不怎么感兴趣，第4话反而有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IVANLIAO  
+##### 12183#       发表于 2025-1-24 17:38
+
+ 本帖最后由 IVANLIAO 于 2025-1-24 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268745&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-24 17:29</a>
+
+Mortis其实就是小女孩闹别扭，只不过用了非常极端夸张、看起来超现实的表达方式
+
+- 摘面具之后接受采访压 ...</blockquote>
+什么娇妻文学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过这样睦的主体性也太弱了，还是希望用可以感动大家的live让睦能够成长为大人，在这样的live里，睦可以找到会歌唱的吉他🎸
+
+狠狠包寿司🍣<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 12184#       发表于 2025-1-24 17:42
+
+<img src="https://p.sda1.dev/21/63f6d567dce925ea5507c6f911ea2c69/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARK_HGCG  
+##### 12185#       发表于 2025-1-24 17:42
+
+其实我当时最怕的就是演成凤傲天一路克服困难一路碾压（主要是被卖狗最后一集的气场震的）
+
+至少现在没这个担心了
+
+*****
+
+####  玖羽  
+##### 12186#       发表于 2025-1-24 17:43
+
+ 本帖最后由 玖羽 于 2025-1-24 17:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268839&amp;ptid=2208921" target="_blank">IVANLIAO 发表于 2025-1-24 17:38</a>
+
+什么娇妻文学不过这样睦的主体性也太弱了，还是希望用可以感动大家的live让睦能够成长为大人，在这样的liv ...</blockquote>
+“睦再也回不来了”——这是有资格作为一个人格的黑睦Mortis
+
+“就你这样，睦<strong>也许</strong>再也回不来了”（こんな祥子ちゃんじゃ、睦ちゃん二度と戻ってこないかもね）——这是“还不快点哄我”
+
+哪有这么关键的狠话还留这么大余地的（明示如果祥子采取正确的做法，睦就能回来），能说这种话就说明还狠不下心
+
+*****
+
+####  狮子咕  
+##### 12187#       发表于 2025-1-24 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268707&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-1-24 17:26</a>
+
+心意是好的动机是好的，但事办坏了，就不要苛责她了。  我挺恶心这种手法 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是狗团第一集就出现过的问题吗
+
