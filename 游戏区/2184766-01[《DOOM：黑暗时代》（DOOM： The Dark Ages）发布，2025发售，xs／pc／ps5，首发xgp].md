@@ -730,3 +730,16 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 说实话现在的演示内容打精英怪全是一对一全是一个套路，不会这就没活了吧。这样看飞龙和高达占比要比预想的多得多。总不能全靠探索揭秘撑吧。
 
+
+*****
+
+####  希望之异热同心  
+##### 242#       发表于 2025-1-25 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271658&amp;ptid=2184766" target="_blank">有钱多买小人 发表于 2025-1-25 00:21</a>
+
+是的，回想起了id按着我的手让我用电浆枪的过去
+
+说实话现在的演示内容打精英怪全是一对一全是一个套路， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都有精防了，近战有3个充能那就是豆槽，那么缺的就是消耗豆槽的技能了！还有4个月ID赶紧把你那逼近战改成消耗不同数量的豆释放不同技能，1豆血拳，2豆流星锤和狼牙棒，3豆守护之锤，拥抱最新最潮的ARPG系统吧！
+
