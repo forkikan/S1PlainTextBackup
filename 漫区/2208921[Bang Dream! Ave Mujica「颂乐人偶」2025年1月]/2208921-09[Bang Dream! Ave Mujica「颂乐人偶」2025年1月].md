@@ -10879,3 +10879,19 @@ https://bbs.yamibo.com/thread-553733-1-1.html
 
 这还有一篇基于DID的对睦头表现的分析，只能说第二集很多行为已经是发病前兆了
 
+
+*****
+
+####  oyss  
+##### 12758#       发表于 2025-1-26 03:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278088&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-26 00:21</a>
+
+不是，那句话就是简单的“呼んだ？”，如果是自己找过来的，至少也应该是“你们在谈我吗？”（私のことを ...</blockquote>
+不需要有人找也可以这样说，尤其是突然探头这种场景。
+
+主动来找事的也可以用，尤其用于会给在场的人添麻烦的场景。
+
+nico还特别有个词条。
+[https://dic.nicovideo.jp/a/%E5%91%BC%E3%82%93%E3%81%A0%3F](https://dic.nicovideo.jp/a/%E5%91%BC%E3%82%93%E3%81%A0%3F)
+
