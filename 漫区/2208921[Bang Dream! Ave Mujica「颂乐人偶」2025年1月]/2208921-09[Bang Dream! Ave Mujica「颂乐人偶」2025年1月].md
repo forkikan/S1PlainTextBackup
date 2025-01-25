@@ -10445,3 +10445,79 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 沉浸式翻译+DeepSeek
 
+
+*****
+
+####  huxiaopao163  
+##### 12729#       发表于 2025-1-26 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277990&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-26 00:04</a>
+
+顺带说一句 mujica肉眼可见第五集大概率没live  这五集就开头一首歌是不是含量太低了 ...</blockquote>
+mygo，好像是第三集C团春日影，第七集碧天伴走+mygo春日影，第十集诗超伴，第十二集星迷叫+迷路日日
+
+其实也还好吧
+
+*****
+
+####  玖羽  
+##### 12730#       发表于 2025-1-26 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277986&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-26 00:03</a>
+
+看完了泛式的分析，酒店之战可以分成三种可能：
+
+1.没有任何翻转，大家说的都是各自的真实想法（最糟情况， ...</blockquote>
+这段的确有很多逻辑跳跃的地方
+
+我认为（贷款）后面能补上，很难想象这么细的剧本出这么明显的问题
+ <blockquote>mo进门时说了句“找我吗？”，说明是有人叫她过来了，不是凭空出现的。
+
+祥子很惊恐，所以不可能是祥子叫的。
+
+其余三人也都表现惊讶（没有立刻去开门），说明她们都没有想到mo为什么会来。
+
+所以应该是有一个人，在明知道四人在谈mo双重人格的话题下，故意叫来了mo
+
+mo在听到大喵的提问后也“欸——”了一下，说明mo在来之前不知情
+
+那么是谁两头瞒，主动或意外的引发了宾馆战？</blockquote>
+
+*****
+
+####  江口夕  
+##### 12731#       发表于 2025-1-26 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277986&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-26 00:03</a>
+看完了泛式的分析，酒店之战可以分成三种可能：
+
+1.没有任何翻转，大家说的都是各自的真实想法（最糟情况， ...</blockquote>
+这集毛病其实在于第一遍观感似乎不行，就像没有演出的mygo第十话。放在游戏里估计感觉会好很多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  sauron.j  
+##### 12732#       发表于 2025-1-26 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277990&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-26 00:04</a>
+
+顺带说一句 mujica肉眼可见第五集大概率没live  这五集就开头一首歌是不是含量太低了 ...</blockquote>
+参考mygo，live都是情感的表达或对牵绊的阶段性总结
+
+除了现实的大手强制kpi（killkiss）外，目前这个离心离德、领袖大脑混沌的团没有演live的“资格”
+
+*****
+
+####  江口夕  
+##### 12733#       发表于 2025-1-26 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278048&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-26 00:14</a>
+这段的确有很多逻辑跳跃的地方
+
+我认为（贷款）后面能补上，很难想象这么细的剧本出这么明显的问题</blockquote>
+莫女士探头那里翻译是“叫我了吗"。里面有“你们谈到我了吗"的意味，并不是之前有人找她
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
