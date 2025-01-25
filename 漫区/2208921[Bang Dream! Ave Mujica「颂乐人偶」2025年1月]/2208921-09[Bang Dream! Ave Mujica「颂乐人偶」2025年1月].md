@@ -7633,3 +7633,85 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  rushsong  
+##### 12523#       发表于 2025-1-25 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274071&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-1-25 13:23</a>
+毒舌老外很喜欢Mujica和第四集，看来是环大陆好评</blockquote>
+收钱看的评论就算了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  akiomn  
+##### 12524#       发表于 2025-1-25 17:24
+
+第四集海港路灯那个应该不是作画失误，大三角路灯是放到pv里的，然后正片里一排路灯也太明显了，制作组不可能犯那么明显的错误
+整个第四集塞了很多信息，但只给了结果忽略了过程，特别是小黑屋，连莫提斯的实质都没在第四集讲
+
+*****
+
+####  厚乳果珍爽  
+##### 12525#       发表于 2025-1-25 17:26
+
+<img src="https://img.saraba1st.com/forum/202501/25/172630sr4x9h949uq9rhx4.png" referrerpolicy="no-referrer">
+
+<strong>IZB@KFWO$H]5NMR`ZU{R.png</strong> (304.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/172634p9hm9tc6gdgm66g9.png" referrerpolicy="no-referrer">
+
+<strong>2G0VT[JEV`2KV[}3ZJ]I03C.png</strong> (234.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/172638gig5ddaahueq68a5.png" referrerpolicy="no-referrer">
+
+<strong>V}HXMMZKP0HIJKKO_3GC)67.png</strong> (176.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 17:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是喜欢炎拳梗
+
+*****
+
+####  厚乳果珍爽  
+##### 12526#       发表于 2025-1-25 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了，soyo是单亲家庭，sakiko是单亲家庭，最后翔爸会不会跟爽妈在一起啊？最后解决祥子的家庭背景问题？
+
+
+*****
+
+####  ntrntr1  
+##### 12527#       发表于 2025-1-25 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275079&amp;ptid=2208921" target="_blank">plok201 发表于 2025-1-25 16:40</a>
+
+寒蝉业：好熟悉的感觉
+
+一大堆人对着每一帧做万字解析，别最后变成两个魔法少女在打拳 ...</blockquote>
+无妨，假药就是乐子的一环
+
+想起上一个被暗示演技很好必有发挥的是。。。。星野露比女士。。。
+
+*****
+
+####  盐盐盐盐盐  
+##### 12528#       发表于 2025-1-25 17:31
+
+<blockquote>厚乳果珍爽 发表于 2025-1-25 17:29
+对了，soyo是单亲家庭，sakiko是单亲家庭，最后翔爸会不会跟爽妈在一起啊？最后解决祥子的家庭背景问题？ ...</blockquote>
+有点道德不要给人家正常家庭里塞垃圾（
+
