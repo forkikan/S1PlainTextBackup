@@ -6981,3 +6981,52 @@ PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wpcc  
+##### 12458#       发表于 2025-1-25 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273742&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-25 12:34</a>
+
+叙诡论最直球的问题，和应该已经没啥可信度的大莫老师阴谋论是一样的：你有诡计不意味着你要做出这么拙劣的 ...</blockquote>
+能被看出来的已经不叫轨迹叙事了 这才第四集就要给编剧洗了
+
+*****
+
+####  江口夕  
+##### 12459#       发表于 2025-1-25 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能初华就是挂机，你们对她期待太高了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  半年  
+##### 12460#       发表于 2025-1-25 13:35
+
+<img src="https://p.sda1.dev/21/59852fd0cbc12cf9f5dc900f432bc163/QQ图片20250125133449.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 12461#       发表于 2025-1-25 13:39
+
+也许初华本人还是比较正常的，但是她的秘密在于她的一些身外之物
+
+
+*****
+
+####  ParadiseMartyr  
+##### 12462#       发表于 2025-1-25 13:42
+
+这种傻逼广告越多，越让人觉得wsd就是没活烂炒。这片子麻了
+
+*****
+
+####  wpcc  
+##### 12463#       发表于 2025-1-25 13:42
+
+初华喜欢的其实是mortis一切都说的通了 用mujica和大猫把木头人杀了 就能召唤mortis了
+
