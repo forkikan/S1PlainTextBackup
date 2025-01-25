@@ -13330,3 +13330,24 @@ G复兴的面具男坚信男主这种精英以后肯定成为独裁者。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Gysumitka  
+##### 5662#       发表于 2025-1-25 15:19
+
+夏亚梦男无所不用其极<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 5663#       发表于 2025-1-25 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274700&amp;ptid=2209276" target="_blank">闽明 发表于 2025-1-25 15:16</a>
+
+G复兴的面具男坚信男主这种精英以后肯定成为独裁者。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+原来霓虹金认可面具那些种族主义发言吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
