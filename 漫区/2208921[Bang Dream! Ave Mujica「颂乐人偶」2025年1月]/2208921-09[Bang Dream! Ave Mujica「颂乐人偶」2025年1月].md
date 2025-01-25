@@ -7136,3 +7136,25 @@ ob出来玩失忆也太无聊了
 大喵现在认识不到小黄瓜这个状态 那以后也得知道吧 难道解决后就当无事发生了？感觉越想越变态 ...</blockquote>
 mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对称的
 
+
+*****
+
+####  novalli  
+##### 12474#       发表于 2025-1-25 14:42
+
+话说像第四话这种单集评分非常平均的似乎很少见？之前有什么单集是这样的吗？
+<img src="https://p.sda1.dev/21/3e918e38a7379d80929b7a4c78298a7a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  帝下室の年糕  
+##### 12475#       发表于 2025-1-25 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274524&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-25 14:42</a>
+
+话说像第四话这种单集评分非常平均的似乎很少见？之前有什么单集是这样的吗？</blockquote>
+国家队（
+
