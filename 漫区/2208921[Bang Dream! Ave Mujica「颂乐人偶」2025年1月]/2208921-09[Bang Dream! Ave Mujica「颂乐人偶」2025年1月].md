@@ -8172,3 +8172,69 @@ TVガイド A Stars vol.06
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 12566#       发表于 2025-1-25 19:14
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 19:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275928&amp;ptid=2208921" target="_blank">H2Ofrozen 发表于 2025-1-25 18:58</a>
+The DSM-5-TR states that "early life trauma (e.g., neglect and physical, sexual, and emotional abus ...</blockquote>
+我在基层卫生单位工作而已，只是希望大家重视而且尊重下重度精神障碍患者
+
+不要把艺术创作带入现实<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 玖羽| + 1||
+
+查看全部评分
+
+*****
+
+####  wwwttth  
+##### 12567#       发表于 2025-1-25 19:14
+
+顺便如果喵梦孤儿院说成立我有个假药，mygo里那句“人偶没有父母”是不是一个大伏笔，意思母鸡卡这几个人没一个人父母是正常的，祥子母亲死了父亲废了，睦父母不说了，喵梦孤儿，初华一个人住没出现过父母，海玲那么多团跑也不像是有父母管的。
+
+*****
+
+####  dengwl  
+##### 12568#       发表于 2025-1-25 19:17
+
+很有可能这集结束之后和ed之后彩蛋之间还有剧情，他们压根没解散，最后商量在舞台上演一出，而彩蛋的其实舞台剧的表演然后只是先暂停后续的乐队活动。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 12569#       发表于 2025-1-25 19:18
+
+比惨就更别了吧，邦宇宙那么多人能叫上名的父母也没几个，总不能都是孤儿吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  H2Ofrozen  
+##### 12570#       发表于 2025-1-25 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275954&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-25 19:04</a>
+
+MyGO的时候关于灯的疑似阿斯伯格，我就看到有学精神科的说过，所有精神疾病都必须由专业医生确诊，普通人 ...</blockquote>
+我对“艺术化加工”的理解是当作品给你美化地、分析式地展现出角色的成长史，并和角色当前的“特质”相关联。这种情况下我会愿意相信在作品情境中，该“特质”是角色的基于遗传和环境影响的客观真实，而非他的某种有意识的、精心伪造“演绎”的形象
+
+(当然你说的对，可能我也没资格下这种判断，毕竟我只有患者的经验而不是你所说的专业医生
+

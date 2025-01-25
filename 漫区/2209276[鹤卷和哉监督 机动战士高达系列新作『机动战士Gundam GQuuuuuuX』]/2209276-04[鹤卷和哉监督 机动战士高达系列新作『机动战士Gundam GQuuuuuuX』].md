@@ -13702,3 +13702,61 @@ X上緑のおじさん的话题刷的是真的快<img src="https://static.saraba
 
 多么熟悉的身影<img src="https://static.saraba1st.com/image/smiley/carton2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 5691#       发表于 2025-1-25 19:17
+
+修司开红高真的看起来很菜（
+
+话说这盗摄又让我回忆了一下原来看到nt光里的红高是这里……里面的到底是谁呢（
+
+
+*****
+
+####  RE㐅ia  
+##### 5692#       发表于 2025-1-25 19:20
+
+<blockquote>盐盐盐盐盐 发表于 2025-1-25 19:17
+修司开红高真的看起来很菜（
+
+话说这盗摄又让我回忆了一下原来看到nt光里的红高是这里……里面的到底是谁呢 ...</blockquote>
+85年是修斯
+
+*****
+
+####  oi99o  
+##### 5693#       发表于 2025-1-25 19:22
+
+能不能别在楼里放盗摄截图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 5694#         楼主| 发表于 2025-1-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274749&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-1-25 15:29</a>
+
+https://tieba.baidu.com/p/9442742991
+
+https://tieba.baidu.com/p/9442921518</blockquote>
+[https://m.weibo.cn/detail/5126698960685443](https://m.weibo.cn/detail/5126698960685443)
+
+高达gquuuuuux/一点特典里竹老师的注释，以及顺着注释的设定欣赏
+
+首先是修司的高光，平时没有高光，但是驾驶高达和涂鸦的时候眼神就会像小孩子一样闪闪发光的。
+
+鉴于孩子穷得连驾驶服都不穿就上机，头发也是炸毛形态。同时也没有别的新衣服。
+<img src="https://p.sda1.dev/21/f78c3b906c0ae7f1009a269f0ad242c4/dcfb53d0gy1hxwy4uf1tyj20u00uzgqe.jpg" referrerpolicy="no-referrer">
+
+麻球和喵安的人设思路是对称的，并且也是很现实潮流的穿搭。
+
+喵安的look看起来多，但作为出来谋生的女孩子实际上衣柜是没有麻球丰富的，实际上是好几件衣服换着穿搭，主要由修身的打底裤袜＋运动背心＋马甲外套组成，统一帆布鞋，翻领和不翻领可以当两款。重点是重心在下。所以其实还是喵安会搭配。
+<img src="https://p.sda1.dev/21/9d65819a014843afa069d1d11919455a/dcfb53d0gy1hxwy4vwz0hj21400u0gqe.jpg" referrerpolicy="no-referrer">
+
+麻球因为是大小姐所以衣服都是成套的套装，上身基本是oversize，下半身光腿。宽松灯笼袖卫衣＋短袜配松糕鞋这样视觉里光腿显高。
+
+我都说了竹是神吧.jpg
+<img src="https://p.sda1.dev/21/9bf1ee89af797ce97b1728a46e2b65fb/dcfb53d0gy1hxwy4v70skj21400u079n.jpg" referrerpolicy="no-referrer">
+
