@@ -1048,3 +1048,14 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 那再问个问题，被一圈宝珠围着的红眼少女要杀吗？是不是只有干掉她才能拿到那个魔法钥匙。
 
+
+*****
+
+####  突发性哮喘病患  
+##### 98#       发表于 2025-1-26 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278077&amp;ptid=2238139" target="_blank">ziyuan327 发表于 2025-1-26 00:19</a>
+
+那再问个问题，被一圈宝珠围着的红眼少女要杀吗？是不是只有干掉她才能拿到那个魔法钥匙。 ...</blockquote>
+集齐所有记忆后杀
+
