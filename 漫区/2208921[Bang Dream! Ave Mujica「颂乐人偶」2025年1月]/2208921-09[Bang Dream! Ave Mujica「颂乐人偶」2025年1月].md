@@ -8398,3 +8398,33 @@ ASD只是在自闭谱系，和一般自闭症差别挺大的
 
 包括很多假药，我都因为觉得会赔很多钱真情实感的为祥子心痛了。不素，祥子小姐再怎么不适合领导或者撩了就跑画饼不填精神上伤害了你们，别人没拖欠你们工资啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkXcross  
+##### 12586#       发表于 2025-1-25 20:07
+
+睦喜欢MUJICA? 睦不是因为担心祥子才加入MUJICA的吗？所以逻辑上睦应该是喜欢祥子，然后爱屋及乌想要保护MUJICA吧。这里要么MORTIS在胡说八道，要么是编剧开始胡说八道了。
+
+*****
+
+####  huxiaopao163  
+##### 12587#       发表于 2025-1-25 20:08
+
+话说现在mujica炒作得这么大，但又争吵得这么凶，有种当年无职转生内味了，就差一个被封杀的借口了，难道是歧视和折磨精神病人<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+我有点害怕了
+
+
+*****
+
+####  iaoyanghaitao  
+##### 12588#       发表于 2025-1-25 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276090&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 19:24</a>
+
+md智障，原文就是莫女士讨厌祥子，但是会守护睦喜欢mujica，这么简单的东西还能衍生这么多一看就是超级ooc ...</blockquote>
+为什么睦会喜欢上mujica？前3集有体现吗？
+
+你说她喜欢C团我信，但mujica纯粹是因为祥子才加入的，哪里表现了她对mujica的感情？
+
