@@ -13607,3 +13607,15 @@ X上绿头发真女主实火
 
 女主开上高达的盗摄片段
 
+
+*****
+
+####  xunit  
+##### 5684#       发表于 2025-1-25 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274650&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-25 15:08</a>
+https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag
+
+独裁者是什么梗 ...</blockquote>
+看到这图突然意识到，g-reco已经是10年前的动画了，根本不是最近
+

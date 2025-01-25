@@ -1364,3 +1364,32 @@ DeepSeek 的潜在心态**
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  关二爷  
+##### 113#       发表于 2025-1-25 18:42
+
+<blockquote>moekyo 发表于 2025-1-22 11:09
+</blockquote>
+这是谁啊
+
+*****
+
+####  88316756  
+##### 114#       发表于 2025-1-25 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275567&amp;ptid=2243718" target="_blank">梅杜莎 发表于 2025-1-25 18:03</a>
+是不是不能登录帐号和密码？比如让它登录后浏览卓明谷的帖子</blockquote>
+我问了他说不能访问外部链接
+
+*****
+
+####  jojog  
+##### 115#       发表于 2025-1-25 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275567&amp;ptid=2243718" target="_blank">梅杜莎 发表于 2025-1-25 18:03</a>
+
+是不是不能登录帐号和密码？比如让它登录后浏览卓明谷的帖子</blockquote>
+这个要搭个cline
+

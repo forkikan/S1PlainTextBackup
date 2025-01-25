@@ -8015,3 +8015,45 @@ mygo11集之后，当时我就在专楼说过，别过度入脑假药和二创�
 
 但是也意味着陀螺还能加快转速
 
+
+*****
+
+####  akiomn  
+##### 12554#       发表于 2025-1-25 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然观众很喜欢爆爆爆，但是严肃点说，制作组很清楚给角色实锤了有精神病代表什么：制作组敢实锤，观众就敢喷既然有病就送到医院而不是玩一辈子乐队
+拿阿斯伯格作为例子，之前楼里就对着喷过，这种事情场外观众知道就好，制作组真敢给灯实锤阿斯伯格吗？答案是不敢的
+睦同理，还有初华的失忆症假药，和精神疾病相关的东西，制作组只敢打擦边球
+当然我也觉得第三集演出玩的过分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 12555#       发表于 2025-1-25 18:34
+
+有一说一，双重人格靠的是综合，包括祥子的反应，初华的结论，莫提斯身上“睦”成分的稀少，以及“演出”。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且演出占比反而多就是了。
+
+那么说会好奇喜欢睦的人会把莫提斯看成莫提斯还是睦？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iiiiiiiiii  
+##### 12556#       发表于 2025-1-25 18:40
+
+我觉得很大程度上是潭友症候群，
+
+*****
+
+####  天空塔书记官  
+##### 12557#       发表于 2025-1-25 18:42
+
+最好别把精神问题当成什么时尚单品，这是疾病而不是超能力，而且单纯因为心理问题就发展成严重病患的只有很少一部分，大部分都是器质性病变的结果
+
+先天畸形、颅脑外伤后遗症、脑和神经系统的相关疾病包括神经退行性疾病、慢性病并发症(主要是二型糖尿病的神经并发症）…这些才是重度精神病患的主要人群
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
