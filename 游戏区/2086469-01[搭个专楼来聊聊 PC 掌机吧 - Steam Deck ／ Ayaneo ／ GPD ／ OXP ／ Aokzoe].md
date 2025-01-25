@@ -577,3 +577,28 @@ hx370确实可以干了月亮湖，但是我记得有人说hx370想释放性能�
 
 我的大拇指是扁平型的，y键能摸到一半多点
 
+
+*****
+
+####  bypass  
+##### 1384#         楼主| 发表于 2025-1-25 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272574&amp;ptid=2086469" target="_blank">ronac 发表于 2025-1-25 09:01</a>
+
+微星的掌机到了，真就是纸壳里面包一层防静电塑料拉倒，也许是知道顺丰会给外面包气泡缓冲膜
+
+背键触感还挺 ...</blockquote>
+风噪如何呢，我喜欢 Ally 一个原因是日常使用真的相对很安静。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 自从 GPD Win 3 之后我对 Intel 的驱动是真的没信心。
+
+*****
+
+####  bypass  
+##### 1385#         楼主| 发表于 2025-1-25 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259287&amp;ptid=2086469" target="_blank">zxlice 发表于 2025-1-23 22:46</a>
+
+好想要翻盖的PC掌机啊，只有ayaneo flip ds 和 gdp mini 2025吗，是不是再等等更好</blockquote>
+近期也不会有什么翻盖新掌机了吧，Aya 基本不出 PC 掌机了（近期只有一款 Ayaneo 3），其他家更不会除了。
+

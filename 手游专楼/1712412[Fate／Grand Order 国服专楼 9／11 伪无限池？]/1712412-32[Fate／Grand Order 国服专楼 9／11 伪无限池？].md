@@ -75,3 +75,11 @@
 
 想打90++却发现我连齐格飞技能都没法点满20NP更是开不出来，干脆放弃改用萨老师愉快刷90+去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46975#       发表于 2025-1-25 10:08
+
+氪金礼装反正没有，干脆上两张倍卡了
+

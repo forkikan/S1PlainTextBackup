@@ -12068,3 +12068,73 @@ https://weibo.com/6303938704/5126297578115975
 
 车尊重哥我在水魔楼里也看过，泥楼确实没活了
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 5555#       发表于 2025-1-25 08:48
+
+那个逆天考察哥虽然好多论点都有点太发散了，但是修司是死者，或者说修司说的另一边是死后世界这个还真有点可能，因为我也特别在意麻球坐的电车线路图里反复出现根之国（ネノクニ）这个站名…（倒是根之国前一站好像没看出来什么特殊意义）根之国就是日本神话里的死者之国嘛
+
+*****
+
+####  咖啡配黑鸡  
+##### 5556#       发表于 2025-1-25 10:07
+
+<img src="https://img.saraba1st.com/forum/202501/25/100650jb8286tb6e8oo8mj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-25-10-03-37-53_9d26c6446fd7bb8e41d99b6262b17def.jpg</strong> (127.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-25 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/100658reoaqh8eoltqdalb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-25-10-04-29-69_9d26c6446fd7bb8e41d99b6262b17def.jpg</strong> (188.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-25 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/100706zjgxjhz4oo1ic4r4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-25-10-05-11-16_9d26c6446fd7bb8e41d99b6262b17def.jpg</strong> (130.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-25 10:07 上传
+
+*****
+
+####  RE㐅ia  
+##### 5557#       发表于 2025-1-25 10:09
+
+<blockquote>咖啡配黑鸡 发表于 2025-1-25 10:07
+</blockquote>
+第三张好好看
+
+*****
+
+####  RE㐅ia  
+##### 5558#       发表于 2025-1-25 10:11
+
+<img src="https://img.saraba1st.com/forum/202501/25/101149qgiz00ni2i0yiioi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>52537A10-8D2B-46DB-8EB6-65E694974BD3.jpeg</strong> (279.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 10:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/101055r8eke0ze6lcx00z2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9AF66FEC-7128-4C32-9C19-EF52F16423F4.jpeg</strong> (263.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 10:10 上传
+
