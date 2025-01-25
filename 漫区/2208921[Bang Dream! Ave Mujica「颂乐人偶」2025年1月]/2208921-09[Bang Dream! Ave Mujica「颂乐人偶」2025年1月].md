@@ -7030,3 +7030,22 @@ PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
 
 初华喜欢的其实是mortis一切都说的通了 用mujica和大猫把木头人杀了 就能召唤mortis了
 
+
+*****
+
+####  ape-apple  
+##### 12464#       发表于 2025-1-25 13:47
+
+反正吧，日本人刻意炒作一个什么东西的时候，多半都是名不副实的，不想地狱攻击
+，不过那边的商法确实奇怪
+
+
+*****
+
+####  半年  
+##### 12465#       发表于 2025-1-25 13:50
+
+<img src="https://p.sda1.dev/21/e30a4d157fd9be7630c7871548a4de49/GiCVEvLbcAAU_kG.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/this_is_nn/status/1882670395226276133/photo/1](https://x.com/this_is_nn/status/1882670395226276133/photo/1)
+
