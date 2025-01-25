@@ -6701,3 +6701,24 @@ crychic的解散和祥子的雨中大哭大概算是mortis出现的诱因，而�
 
 gigguk直播看mujica<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 12435#       发表于 2025-1-25 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272853&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-25 10:03</a>
+
+《MyGo！！！！ 在開會》</blockquote>
+“中间的蓝毛是谁？”
+
+“灯她爸”
+
+“右边的白毛是谁？”
+
+“是要乐奈”
+
+“其他MYGO成员呢？”
+
+“《MYGO成员在开会》”
+
