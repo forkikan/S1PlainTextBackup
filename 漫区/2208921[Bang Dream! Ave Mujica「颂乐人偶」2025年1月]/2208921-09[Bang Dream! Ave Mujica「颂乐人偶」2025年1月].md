@@ -7108,3 +7108,20 @@ PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
 并没有什么双重人格，只有获得短暂生命的人偶</blockquote>
 ob出来玩失忆也太无聊了
 
+
+*****
+
+####  aptx8285144  
+##### 12471#       发表于 2025-1-25 14:23
+
+退一步而言，除非莫小姐也跟着那三个人在那里演戏，否则三个人演另外两个，莫小姐还没察觉，这双重人格岂不更丢脸了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，重新看了一遍，起码海铃无视双重人格把话题集中在今后那里很难演吧，不愧是号称冷酷的雇佣兵（虽然当初她对灯皇是有明显善意），如此执着乐队的存亡（不一定是存，也可以是亡）
+
+*****
+
+####  半年  
+##### 12472#       发表于 2025-1-25 14:23
+
+<img src="https://p.sda1.dev/21/aaff13600a30dcc7ff01fff7e4757fcb/GiHSJ_MaIAApDeJ.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/peso727/status/1883017192943612276/photo/1](https://x.com/peso727/status/1883017192943612276/photo/1)
+
