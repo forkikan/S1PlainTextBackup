@@ -1059,3 +1059,27 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 那再问个问题，被一圈宝珠围着的红眼少女要杀吗？是不是只有干掉她才能拿到那个魔法钥匙。 ...</blockquote>
 集齐所有记忆后杀
 
+
+*****
+
+####  alleriawr9  
+##### 99#       发表于 2025-1-26 01:18
+
+这里也贴一下分区地图，部分标出了所有隐藏房间和道路，部分之后有空再做。
+
+[https://pan.baidu.com/s/1Cu-GexmrlL7kUIjD9r8wHA?pwd=uij5](https://pan.baidu.com/s/1Cu-GexmrlL7kUIjD9r8wHA?pwd=uij5)
+
+
+*****
+
+####  alleriawr9  
+##### 100#       发表于 2025-1-26 01:24
+
+可能没有几个玩家知道这游戏的世界存在比例尺，很多时候以为是地图设计失误对不上，其实是某张图（比如室外）要扩大一倍再对比。
+
+这个会通过切换地图时的格子数体现，比如外面只有一格，进去之后就变成两格了。
+
+典型的比如下面这张图，其实我是看到这里才意识到这一点的，之前真以为有些地方完全对不上是设计失误懒得管了。
+
+<img src="https://imgse.com/i/pEErNtJ" id="aimg_O7mbO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
