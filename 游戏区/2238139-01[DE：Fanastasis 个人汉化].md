@@ -1083,3 +1083,16 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 <img src="https://imgse.com/i/pEErNtJ" id="aimg_O7mbO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  ziyuan327  
+##### 101#       发表于 2025-1-26 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278397&amp;ptid=2238139" target="_blank">alleriawr9 发表于 2025-1-26 01:18</a>
+
+这里也贴一下分区地图，部分标出了所有隐藏房间和道路，部分之后有空再做。
+
+https://pan.baidu.com/s/1Cu- ...</blockquote>
+有的图太大了，我常用的Acdsee打不开，该用啥软件看？
+
