@@ -3180,3 +3180,15 @@ mujica 更像是不恋战，转折点写得难看点就难看点，最后 JK 的
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 正常，这集是争议回，评分每个分段都很平均。
 
+
+*****
+
+####  mortonno2  
+##### 345#       发表于 2025-1-25 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67262980&amp;ptid=2243994" target="_blank">ads147147 发表于 2025-1-24 07:27</a>
+？明明看的乐了一晚上，一看论坛怎么都是减2，难道莫名其妙的是我？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+投票到现在为止第一是0第二是+2第三是-2，而且差距也没有很多，确实是争议回吧，我个人是+2<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

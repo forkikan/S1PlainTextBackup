@@ -716,3 +716,23 @@ Ayaneo 3。 其中一个可换模块有 Steam Controller 和当面腹死胎中 S
 GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是884 ...</blockquote>
 其实比F1（没有PRO）也就轻了30多克，然后多了个实体键盘，其他各方面都不如F1。我两个都有，25款mini主要是升级散热，之前的跑20W都费劲，现在终于能28W了，但风扇声音还是很大，代价是比之前款重了三十多克，不知道算不算得不偿失。这几个WIN掌机的升级款都在加重量，飞行家F1 PRO也650克了，ROG X更是逼近700克，感觉相当无语。 F1其实我觉得是综合最好的了，散热和性能释放不弱于其他几个同配置的掌机同时重量比它们轻了50克以上，不像WIN MINI这种轻是靠牺牲散热实现的。只不过我玩F1的时候发现很多时候没有实体键盘还是不方便，所以后来又入了个有实体键盘的，如果你对实体键盘完全没有需求，不建议买WIN MINI
 
+
+*****
+
+####  医生狼多  
+##### 1394#       发表于 2025-1-25 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273521&amp;ptid=2086469" target="_blank">巨馍蘸酱 发表于 2025-1-25 12:01</a>
+其实比F1（没有PRO）也就轻了30多克，然后多了个实体键盘，其他各方面都不如F1。我两个都有，25款mini主 ...</blockquote>
+f1风噪和散热怎么样
+
+*****
+
+####  巨馍蘸酱  
+##### 1395#       发表于 2025-1-25 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273573&amp;ptid=2086469" target="_blank">医生狼多 发表于 2025-1-25 12:09</a>
+
+f1风噪和散热怎么样</blockquote>
+我觉得挺好的，跟手里的mini对比很明显，即使是升级了散热的25款，虽然能压28W了，但发热和风噪还是比23款的F1明显很多
+

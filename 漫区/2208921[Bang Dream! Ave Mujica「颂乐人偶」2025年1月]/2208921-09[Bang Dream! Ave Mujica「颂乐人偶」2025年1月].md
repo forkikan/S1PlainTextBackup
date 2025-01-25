@@ -6820,3 +6820,25 @@ pv里展现的可以不只是丢书，实际上房间已经被砸了，玩偶书
 
 战吧那个一日囚初华的假药也挺有意思的，就是这样一来队伍里脑子有病的人有点多了
 
+
+*****
+
+####  le1le6  
+##### 12446#       发表于 2025-1-25 12:08
+
+<img src="https://img.saraba1st.com/forum/202501/25/120757e628cahuzce26uii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8747.jpeg</strong> (160.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/120802pxbxgb33zbo5c2x3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8741.jpeg</strong> (147.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:08 上传
+
