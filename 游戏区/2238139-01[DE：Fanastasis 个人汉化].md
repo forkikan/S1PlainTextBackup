@@ -1096,3 +1096,14 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 https://pan.baidu.com/s/1Cu- ...</blockquote>
 有的图太大了，我常用的Acdsee打不开，该用啥软件看？
 
+
+*****
+
+####  alleriawr9  
+##### 102#       发表于 2025-1-26 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278678&amp;ptid=2238139" target="_blank">ziyuan327 发表于 2025-1-26 02:26</a>
+
+有的图太大了，我常用的Acdsee打不开，该用啥软件看？</blockquote>
+不能吧，windows默认的照片和mac默认的预览都能正常打开啊
+
