@@ -23,3 +23,11 @@
 最后女主出现症状，果然这还是虐妹番吧？虽然有几个妹子在似人后的艰险环境还能开心看上去很神人，但内心都还是很纯良无辜的JK，貌似还是做出了点城市废土里强颜欢笑以求生存的感觉的。希望文戏再好好立人设，后面主线有点创意
 <img src="https://p.sda1.dev/21/38775b19ff1d68450fde50c398001e7b/Screenshot_20250124_123426_com.huawei.browser.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 133#       发表于 2025-1-26 02:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
