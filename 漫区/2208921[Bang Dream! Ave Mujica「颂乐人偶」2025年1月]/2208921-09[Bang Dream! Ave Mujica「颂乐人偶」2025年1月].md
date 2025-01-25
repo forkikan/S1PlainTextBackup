@@ -6959,3 +6959,11 @@ https://tieba.baidu.com/p/9441718936?see_lz=0
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  太二EricGuo  
+##### 12456#       发表于 2025-1-25 13:23
+
+毒舌老外很喜欢Mujica和第四集，看来是环大陆好评
+
