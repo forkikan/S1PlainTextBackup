@@ -1743,3 +1743,18 @@ John Pilger 是著名反美记者，而且多少有点**倾向，看到贫富差
 
 抗美援朝之后，美国人明白东大再穷在困难，也是敢跟你玩命的；而美国在西太平洋有什么必要跟东大玩命呢？
 
+
+*****
+
+####  木水风铃  
+##### 157#       发表于 2025-1-25 12:20
+
+ 本帖最后由 木水风铃 于 2025-1-25 12:23 编辑 
+
+再传了个rar，不要在线解压
+
+通过网盘分享的文件：saraba1st.rar
+链接: [https://pan.baidu.com/s/13uVrK5_f3t3YIbBG0q2hKA?pwd=f5qy](https://pan.baidu.com/s/13uVrK5_f3t3YIbBG0q2hKA?pwd=f5qy) 提取码: f5qy
+--来自百度网盘超级会员v6的分享
+密码saraba1st，希望这次不要爆<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

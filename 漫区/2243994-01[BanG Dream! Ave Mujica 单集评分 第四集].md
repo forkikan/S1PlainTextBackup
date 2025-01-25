@@ -3192,3 +3192,13 @@ mujica 更像是不恋战，转折点写得难看点就难看点，最后 JK 的
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 投票到现在为止第一是0第二是+2第三是-2，而且差距也没有很多，确实是争议回吧，我个人是+2<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷路的石头  
+##### 346#       发表于 2025-1-25 12:27
+
+<blockquote>沼蝇 发表于 2025-1-24 23:19
+可不可以初华假唱然后专心弹吉他</blockquote>
+双吉他啊，初华不可能把主音和节奏都弹了的
+
