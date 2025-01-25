@@ -13619,3 +13619,13 @@ https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4
 独裁者是什么梗 ...</blockquote>
 看到这图突然意识到，g-reco已经是10年前的动画了，根本不是最近
 
+
+*****
+
+####  岸浪白野  
+##### 5685#       发表于 2025-1-25 18:44
+
+X上緑のおじさん的话题刷的是真的快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+夏利亚人气厉害啊
+
