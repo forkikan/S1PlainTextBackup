@@ -10654,3 +10654,52 @@ mygo直到第七集才第一次Live, 中间就一个春日影的全曲闪回
 
 2025-1-26 00:36 上传
 
+
+*****
+
+####  swessia  
+##### 12744#       发表于 2025-1-26 00:41
+
+第四集如果停在莫小姐开门露头那不知道这集得多爆<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">武士道这把是不是你打的有问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 12745#       发表于 2025-1-26 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278060&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 00:16</a>
+
+莫女士探头那里翻译是“叫我了吗"。里面有“你们谈到我了吗"的意味，并不是之前有人找她
+
+—— 来自 Xiao ...</blockquote>
+建议坛友找个双语字幕资源
+
+
+*****
+
+####  烂片雷达  
+##### 12746#       发表于 2025-1-26 00:44
+
+懂了，现在是出题篇，前六集以母鸡卡成员种种怪异不合常理的举动构成了一个巨大的谜题，你看初华每集的报幕词像不像海猫的碑文，解开这个谜底的人可以获得木谷高明藏下的十吨黄金<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
+<blockquote>她的秘密在月光下已无所遁形
+人偶们重新取回了人类的模样
+那会是幸福还是毁灭
+命运的齿轮
+已无法停止
+
+破解的面具再也不会复原
+那正是终焉的开始
+断了线的人偶
+真的会获得自由吗
+还是说
+
+不论那是沉睡或死亡
+都愿她至少能得到安宁
+
+她变成了她们
+世界开始变得扭曲不堪
+沉默带来的绝望将她支配
+沉默随即宣告了一切的终焉</blockquote>
+
