@@ -9317,3 +9317,119 @@ image.png
 
 扔书的明显不是莫啊。
 
+
+*****
+
+####  江口夕  
+##### 12648#       发表于 2025-1-25 22:08
+
+ 本帖最后由 江口夕 于 2025-1-25 22:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们还有个问题，对睦客气没问题，对夺取身体对睦说已经死了的莫女士有什么留手的必要么。80也是霸凌莫女士。而且还是是莫女士先霸凌祥子的。谁先手谁还手还不一定。
+
+*****
+
+####  operatbig  
+##### 12649#       发表于 2025-1-25 22:09
+
+第五集肯定是莫继续迫害祥。
+
+*****
+
+####  屑猫猫  
+##### 12650#       发表于 2025-1-25 22:10
+
+四演一不纯纯整蛊把观众当傻子，她们什么时候协商这个了，真有协商起码得有个暗示的镜头。
+
+这时候还四演一不更是五个人塑造一起跟着陪葬
+
+*****
+
+####  嵇翱u  
+##### 12651#       发表于 2025-1-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277193&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-25 22:06</a>
+
+你好，mortis不会弹吉他</blockquote>
+那肯定是其他四个演奏把睦头拉回来啊，你想让莫小姐弹不说会不会，她也不配合啊
+
+*****
+
+####  akiomn  
+##### 12652#       发表于 2025-1-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277203&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:08</a>
+
+你们还有个问题，对睦客气没问题，对夺取身体对睦说已经死了的莫女士有什么留手的必要么。80也是霸凌莫女士 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看你是巴不得4个角色风评当场爆炸
+
+制作组脑子清醒的很，不管是4个演祥子还是4个演莫提斯，最后结果都是那4个风评当场爆炸救不回来的那种
+
+这就是队内80，没得洗那种
+
+*****
+
+####  江口夕  
+##### 12653#       发表于 2025-1-25 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">而且我说的是大猫海玲2演1 祥子初华没参与
+
+
+*****
+
+####  一心而用  
+##### 12654#       发表于 2025-1-25 22:13
+
+还原
+<img src="https://p.sda1.dev/21/cf433f465989078567cd6c2183a3fec9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6327709ff438a0b67b43dc2cfc469034/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c375facfe2729e6e91f8adf1a04ccc39/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 12655#       发表于 2025-1-25 22:13
+
+墨酱果然还是双重人格/鬼上身 好一点
+演戏说太难圆了
+
+*****
+
+####  novalli  
+##### 12656#       发表于 2025-1-25 22:13
+
+看了一堆梗图和日式冷笑话之后感觉大家讨论的怎么都是那么沉重的话题，回旋镖这么欢乐的话题（暂且不论地不地狱）都一转车编剧“同一个套路反复用”。多聊聊开心的东西不好吗。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 12657#       发表于 2025-1-25 22:14
+
+ 本帖最后由 江口夕 于 2025-1-25 22:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277224&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:10</a>
+
+我看你是巴不得4个角色风评当场爆炸
+
+制作组脑子清醒的很，不管是4个演祥子还是4个演莫提斯，最后结果都是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">霸凌谁了，霸凌的不是自称夺取身体的莫女士么。莫女士又不是乐队成员。而且祥子初华没参与。而且是大猫先手的
+
+*****
+
+####  屑猫猫  
+##### 12658#       发表于 2025-1-25 22:14
+
+<blockquote>ParadiseMartyr 发表于 2025-1-25 22:06
+你好，mortis不会弹吉他</blockquote>
+这也很简单嘛，大前辈ksm演示过了，选个人出来solo就完事儿了
+
+*****
+
+####  山ノ内花音  
+##### 12659#       发表于 2025-1-25 22:16
+
+mygo时期让祥子这个外人背锅 效果挺好的
+现在路径依赖让墨酱背锅 感觉也是编剧能干出来的事
+
