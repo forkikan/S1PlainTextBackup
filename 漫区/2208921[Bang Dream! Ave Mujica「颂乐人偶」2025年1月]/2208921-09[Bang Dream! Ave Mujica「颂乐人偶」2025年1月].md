@@ -7715,3 +7715,16 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 对了，soyo是单亲家庭，sakiko是单亲家庭，最后翔爸会不会跟爽妈在一起啊？最后解决祥子的家庭背景问题？ ...</blockquote>
 有点道德不要给人家正常家庭里塞垃圾（
 
+
+*****
+
+####  厚乳果珍爽  
+##### 12529#       发表于 2025-1-25 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275373&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-1-25 17:31</a>
+
+有点道德不要给人家正常家庭里塞垃圾（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信給翔爸一个机会他是可以振作起来的
+
+祥子跟爽世成为姐妹不正好同时解决两个问题？
+
