@@ -10895,3 +10895,17 @@ https://bbs.yamibo.com/thread-553733-1-1.html
 nico还特别有个词条。
 [https://dic.nicovideo.jp/a/%E5%91%BC%E3%82%93%E3%81%A0%3F](https://dic.nicovideo.jp/a/%E5%91%BC%E3%82%93%E3%81%A0%3F)
 
+
+*****
+
+####  KokutouMikiya  
+##### 12759#       发表于 2025-1-26 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277915&amp;ptid=2208921" target="_blank">IVANLIAO 发表于 2025-1-25 23:52</a>
+mujica到底要不要搞乐队，搞什么样的乐队？
+
+睦孜孜以求的会歌唱的吉他指的是什么？
+
+祥子的音乐没能打动乐队 ...</blockquote>
+倒不如说现在剧情的诡异感就是因为这些信息缺失
+
