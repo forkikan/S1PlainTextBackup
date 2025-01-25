@@ -3250,3 +3250,29 @@ mujica 更像是不恋战，转折点写得难看点就难看点，最后 JK 的
 
 mortis可爱 +2
 
+
+*****
+
+####  hac0101  
+##### 352#       发表于 2025-1-25 17:45
+
++1
+
+还不够疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 353#       发表于 2025-1-25 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274486&amp;ptid=2243994" target="_blank">沼蝇 发表于 2025-1-25 14:35</a>
+不是说睦的的没录音嘛，那就初华现在录主音，然后现场弹伴奏</blockquote>
+现场录音然后学习蜜柑立个吉他在那边，通稿说木头人生病，直接把大墨老师扭送精神病院看么。。。
+
+其实还是有点来不及录音了，现场录可能赶不上第二天。
+
+感觉第五集很可能还能继续把这个糊逼炸团给兜住强行不这样展开，观众可能还觉得是正常的宣传低潮期，毕竟祥子新曲子也没写出来不是。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
