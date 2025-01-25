@@ -7366,3 +7366,34 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 —— 来自 鹅球 v3.3.96</blockquote>
 这个作者超喜欢假面骑士梗。
 
+
+*****
+
+####  未来起航  
+##### 12496#       发表于 2025-1-25 16:00
+
+回头想下，她跟几个人私聊的那些作为鸡汤也算十足有力了，挑不出什么毛病。
+先别管会不会吉他（草说出这句话的瞬间我已经在笑了），起码这个行动力拿来给乐队续命还是绰绰有余的。但就是给编剧的大手给一把掐断了。不仅相当得僵硬，而且带出的干活越积极表现越小丑的氛围也相当恶心人……
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天空塔书记官  
+##### 12497#       发表于 2025-1-25 16:00
+
+分不分析主要看直接描写的多少，只有藏的多了才有分析的价值，像是KSM这种脑回路你想分析也分析不了啥
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Raven314  
+##### 12498#       发表于 2025-1-25 16:01
+
+预告那个杂志越看越奇怪，我还以为就是是第四集初睦坐出租后拍的杂志封面结果对比杂志名完全对不上，那这份杂志要么拍比福冈live更早之前
+但是旁边的杂志却是莫提斯的单人美妆带货杂志，谁会一直留一本旧杂志<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9efaf68ca8bb25f0684d13830b0617e6/image.jpg" referrerpolicy="no-referrer">
+
