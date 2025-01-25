@@ -832,3 +832,14 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plok201  
+##### 251#       发表于 2025-1-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274040&amp;ptid=2184766" target="_blank">Firvox 发表于 2025-1-25 13:15</a>
+
+昨天看完了演示，话说这代加强地面战的话，会不会把跳给抠了，我好像没在演示里见到跳唉，大概我看漏了？ ...</blockquote>
+5:29开始那里演示跳了几次，非常沉重的感觉
+
