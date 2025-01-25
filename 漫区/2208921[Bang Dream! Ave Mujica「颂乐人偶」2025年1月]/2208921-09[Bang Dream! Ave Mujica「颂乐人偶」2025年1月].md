@@ -9554,3 +9554,197 @@ mygo时期让祥子这个外人背锅 效果挺好的
 
 莫提斯女士小丑化也太快了，用revice套的话就是蜃楼师傅再怎么说也跟主骑对峙过一段时间，还是有点逼格的，之后就是反反复复的人格对换，就怕后面睦头也是“代替这个优柔寡断的我”把墨女士呼唤出来了…
 
+
+*****
+
+####  江口夕  
+##### 12672#       发表于 2025-1-25 22:30
+
+ 本帖最后由 江口夕 于 2025-1-25 22:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277350&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:27</a>
+反不反派不是你来定义，你这个前提是默认了睦是双重人格，但现在莫提斯的实质还不清楚，第四集压根没给解 ...</blockquote>
+哥们，人上集都演给你了，莫女士都变成史莱姆咀嚼睦了。睦还“哎"的一声没来得及反应。
+你不站在睦的一边，你站在反派那边？
+莫女士说守护睦你就以为她为睦好了，她为睦好，睦去哪了？能不能把之前的睦还回来？莫女士我一开始就说了这个人格充满了欺骗，就是坏玩意
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  山ノ内花音  
+##### 12673#       发表于 2025-1-25 22:32
+
+<img src="https://img.saraba1st.com/forum/202501/25/223225h6ghmc1hq8zzr226.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1569.jpeg</strong> (596.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-25 22:32 上传
+
+https://x.com/ng_suzuki3/status/1883159080707281014?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  akiomn  
+##### 12674#       发表于 2025-1-25 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277366&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:30</a>
+哥们，人上集都演给你了，莫女士都变成史莱姆咀嚼睦了。睦还“哎"的一声没来得及反应。
+你不站在睦的一边 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">what can i say？
+莫提斯的实质到现在都没给解释，我到现在都不确定是演戏还是双重人格，你是官方你先给睦确诊双重人格？
+先确诊双重人格，再确定海玲和喵梦联合80莫提斯是无罪，你既是医生又是法官啊
+
+*****
+
+####  江口夕  
+##### 12675#       发表于 2025-1-25 22:35
+
+ 本帖最后由 江口夕 于 2025-1-25 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277389&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:34</a>
+what can i say？
+莫提斯的实质到现在都没给解释，我到现在都不确定是演戏还是双重人格，你是官方你先给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兄弟，人上回不都演给你了你不当回事罢了，在自己的脑补里一去不复返。莫女士自己也说了睦已经（死了）沉睡了。
+祥子认为是二重人格，这人不是睦，初华从描述里质疑是二重人格。其他人将信将疑，大猫演出戏试探
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  须贺兰  
+##### 12676#       发表于 2025-1-25 22:36
+
+“健康によくない”在第四话出现了两次
+
+这句话是第四话Mortis复述前面动画出现过的众多台词中的一句，出自第三话00:12:41，与其他台词不同的是重复的是自己内心世界的话，严格的说应该算自己的话，手上的动作则是出自MyGO第三话00:14:10
+
+<img src="https://img.saraba1st.com/forum/202501/25/222851btkscbgsuq42fqsd.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-37-08.jpg</strong> (180.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222804oqddhjh4qtcczh2z.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-35-48.jpg</strong> (275.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+第四话Mortis复述台词的时候，好像都搭配了肢体语言
+
+<img src="https://img.saraba1st.com/forum/202501/25/222847lpfdndlxzdedphpn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-07-10.jpg</strong> (229.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222755agij861jcq346vo1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-08-08.jpg</strong> (221.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222846vkij9ptjjtsknpu1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-13-59.jpg</strong> (256.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222845w3zhznt6ninknu33.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-14-12.jpg</strong> (245.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222845ifki2p0t10p1rorv.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-14-28.jpg</strong> (236.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/222844qsrnog4rej7eno12.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-46-19.jpg</strong> (246.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:28 上传
+
+第四话“健康によくない”第一次出现是睦给初华提建议，第二次是初华照办说给祥子，祥子的反馈很好，顺从了初华的休息意见
+
+<img src="https://img.saraba1st.com/forum/202501/25/223018y44u4g4zvivcpo7n.jpg" referrerpolicy="no-referrer">
+
+<strong>第四话初华劝祥子休息.jpg</strong> (365.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:30 上传
+
+和第三话初华劝祥子休息形成了鲜明的对比
+
+<img src="https://img.saraba1st.com/forum/202501/25/223017ydt274m7dl6tqkdk.jpg" referrerpolicy="no-referrer">
+
+<strong>第三话初华劝祥子吃东西.jpg</strong> (454.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:30 上传
+
+那么Mortis是不是知道“健康によくない”这句话对祥子有效果？
+
+所以它那句要保密指不要告诉祥子这话是它教的？
+
+这句话或许也是从别人那里听来的，并不是睦内心世界原创？
+
+<img src="https://img.saraba1st.com/forum/202501/25/223244glr8x16nlrzyq4mn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-25_20-09-06.jpg</strong> (207.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:32 上传
+
+*****
+
+####  山ノ内花音  
+##### 12677#       发表于 2025-1-25 22:36
+
+只能说事已至此 双重人格 确定墨酱是坏的 说实话是更简单的写法<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 12678#       发表于 2025-1-25 22:38
+
+看好莫这事要讲到7、8集。
+
+*****
+
+####  玖羽  
+##### 12679#       发表于 2025-1-25 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277403&amp;ptid=2208921" target="_blank">须贺兰 发表于 2025-1-25 22:36</a>
+
+“健康によくない”在第四话出现了两次
+
+这句话是第四话Mortis复述前面动画出现过的众多台词中的一句，出自 ...</blockquote>
+这个倒吊鸡也用翅膀比这个手势
+
+如果后面有关于祥母的回忆，这句话很可能也是祥母说的
+

@@ -3285,3 +3285,13 @@ mortis可爱 +2
 来人，喂小祥吃回旋镖！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 睦头人的代打真是强，会说你就多说点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 355#       发表于 2025-1-25 22:29
+
+如果 mortis 是自爆演戏炸团的，最后舞台剧里惨叫完补一个咧嘴笑，台词：なんてね（开个玩笑），这集就能继续起飞了。
+
+这集从执行层面的评价分界线就是 mortis 到底是真菜还是演的。
+
