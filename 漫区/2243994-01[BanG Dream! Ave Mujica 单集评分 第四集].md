@@ -3202,3 +3202,15 @@ mujica 更像是不恋战，转折点写得难看点就难看点，最后 JK 的
 可不可以初华假唱然后专心弹吉他</blockquote>
 双吉他啊，初华不可能把主音和节奏都弹了的
 
+
+*****
+
+####  aptx8285144  
+##### 347#       发表于 2025-1-25 12:29
+
+ 本帖最后由 aptx8285144 于 2025-1-25 12:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272190&amp;ptid=2243994" target="_blank">whzfjd 发表于 2025-1-25 03:48</a>
+
+跟巨人不一样，巨人是 JSC 每个节点都打磨得很精彩，到了艾伦沉默开始担忧，复联引发不写观众想看的不满， ...</blockquote>
+但是mujica这个题材难度没有巨人大，无论最后包不包饺子，哪怕负面造成的伤害都很难和巨人一比（假币那神准的枪法就引发震惊了）
+

@@ -12792,3 +12792,114 @@ hmmmmmm
 
 2025-1-25 12:26 上传
 
+
+*****
+
+####  RE㐅ia  
+##### 5615#       发表于 2025-1-25 12:29
+
+<img src="https://img.saraba1st.com/forum/202501/25/122929ya8a9071pbobiio9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1F67C8FA-CBB1-4161-B09D-C4AEB2113652.jpeg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/122932pvad7da8rfppqdvp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>955700F3-06A9-44B0-A580-4A1D77FD95A7.jpeg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/122932wdj7yc5cjddym7cj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3E96C1BC-E864-4BA2-83D5-586ED2C9C72A.jpeg</strong> (949.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/122932sjz41bzyq111yy4b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B6EB9E06-D175-473C-BA09-6EA713511605.jpeg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/122934rqfsdddfrana0q2g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D129208B-3630-4A76-B723-F3C00FAD7417.jpeg</strong> (832.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:29 上传
+
+*****
+
+####  AvenueIII  
+##### 5616#       发表于 2025-1-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273418&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-25 11:47</a>
+
+究极饿鬼牢修</blockquote>
+这不Canti吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+那我懂了，修司头上的是Terminal Core
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5617#       发表于 2025-1-25 12:31
+
+竹的人设潮得我无法呼吸，黑子说话！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刺客ares  
+##### 5618#       发表于 2025-1-25 12:34
+
+<blockquote>纪寞 发表于 2025-1-25 12:11
+修司这里画的ms不是红高达，不会是有阿尔法塞克谬和奥米茄塞可缪的完整精神骨架机的原型高达吧 ...</blockquote>
+红色的是红高达，白色的是gqx
+
+*****
+
+####  Sliurus  
+##### 5619#       发表于 2025-1-25 12:35
+
+黑子说话！当初说人设不行的都站出来<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 5620#       发表于 2025-1-25 12:36
+
+首席哥跟那个小姐姐是官配啊
+
+*****
+
+####  王留美  
+##### 5621#       发表于 2025-1-25 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273755&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-25 12:36</a>
+
+首席哥跟那个小姐姐是官配啊</blockquote>
+首席哥的flag已经起来了
+
+*****
+
+####  Sliurus  
+##### 5622#       发表于 2025-1-25 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273755&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-1-25 12:36</a>
+
+首席哥跟那个小姐姐是官配啊</blockquote>
+甚至两个人都有痣，一个在眼角一个在嘴角
+
