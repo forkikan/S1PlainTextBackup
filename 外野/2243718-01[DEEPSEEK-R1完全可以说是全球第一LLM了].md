@@ -1625,3 +1625,11 @@ DEEPSEEK输出：
 
 （文末批注：太一将"私欲"写作"私腹"，又将"大腿"等词涂抹殆尽，其心可诛）</blockquote>
 
+
+*****
+
+####  魔灵高达  
+##### 128#       发表于 2025-1-25 22:35
+
+审查非常严格，连洗澡都属于不安全内容<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我在部署本地的，看能不能好点
+

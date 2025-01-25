@@ -9748,3 +9748,163 @@ what can i say？
 
 如果后面有关于祥母的回忆，这句话很可能也是祥母说的
 
+
+*****
+
+####  天空塔书记官  
+##### 12680#       发表于 2025-1-25 22:38
+
+莫提斯的形象是布偶娃娃，而布偶娃娃本质是填充物填充的起来的包袱皮，是空心的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  novalli  
+##### 12681#       发表于 2025-1-25 22:38
+
+可能是我对角色完全没有“预期”的原因吧，我一直get不到哪里人设崩塌了。
+在我看来除了喵梦个人的描写多一些，其他人全是迷雾重重。没有定下来的人设没有崩塌的基础，再怎么反转也都是增加了信息量罢了。
+而且目前来看剧情的重要性显然是大于人物的。虽然我不觉得追角色有什么问题，但还是建议先做好心理准备，写剧情上头的创作者即使对人物犯罪也是毫不犹豫的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 12682#       发表于 2025-1-25 22:40
+
+驅魔跟80 是不同的
+
+就是用錯方法
+
+應該把莫老師綁在表演舞台中間
+
+其他四人圍著她邦一整場演唱會
+
+合驅魔跟工作於一身
+
+*****
+
+####  天空塔书记官  
+##### 12683#       发表于 2025-1-25 22:40
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 22:41 编辑 
+
+编辑 
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12684#       发表于 2025-1-25 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277403&amp;ptid=2208921" target="_blank">须贺兰 发表于 2025-1-25 22:36</a>
+“健康によくない”在第四话出现了两次
+
+这句话是第四话Mortis复述前面动画出现过的众多台词中的一句，出自 ...</blockquote>
+这里正反手其实有点意思，莫老师是从演技的角度去学素世。初华就是正常的镜像，没有想这么多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  akiomn  
+##### 12685#       发表于 2025-1-25 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277397&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:35</a>
+兄弟，人上回不都演给你了你不当回事罢了，在自己的脑补里一去不复返。莫女士自己也说了睦已经（死了）沉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懒得跟你说了，你拿个第三集的演出确定睦双重人格再确定莫提斯是反派活该被联合80。然而第五集没出，莫提斯到底是什么情况还有一堆假药
+第三集出来还一堆人确定莫提斯要带着鸡团顺风顺水甚至可能要踢祥子呢，实际呢？到了结尾直接炸团，莫提斯也没想过把祥子踢了，只是拷打了一波
+这是原创番，不到最后别轻易下定论
+
+
+*****
+
+####  江口夕  
+##### 12686#       发表于 2025-1-25 22:42
+
+ 本帖最后由 江口夕 于 2025-1-25 22:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277445&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:41</a>
+我懒得跟你说了，你拿个第三集的演出确定睦双重人格再确定莫提斯是反派活该被联合80。然而第五集没出，莫 ...</blockquote>
+我一直说的试探，你来确定。我咋接？而且我说的大猫表演，海玲参演，其他人没参与，你也一直在那4演1。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 12687#       发表于 2025-1-25 22:42
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277418&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-25 22:38</a>
+这个倒吊鸡也用翅膀比这个手势
+
+如果后面有关于祥母的回忆，这句话很可能也是祥母说的</blockquote>
+也许会是初华“说谎者”的一个例证 ? 
+
+代表信息在描述/转述时扭曲或者失真了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 12688#       发表于 2025-1-25 22:43
+
+ 本帖最后由 一心而用 于 2025-1-25 22:44 编辑 
+
+<img src="https://p.sda1.dev/21/a5d0393b9a1714935789a6143f8b4121/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/db05dd795159003886f326118a03e108/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d71c9ef03fa2fb715e27f2e3f2fcc861/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d1cb51ab78059ffc79ae8283e046d7f5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/937a60996e085be00b9c2b0cacf91a41/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9c6f4d285bdf3da3274630dbcdd51003/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/75726a68e047755730e274713be3b9da/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0cf5c7c1dde0142395a16dc3a3d0a66b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ae2f70dff5e71ef8fdb90a3b949e51db/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e077b619e92318d70368c56b3d418c53/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e6fab490ed91024463565910be8cae1a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12689#       发表于 2025-1-25 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277453&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:42</a>
+我一直说的试探，你来确定。我咋接？而且我说的大猫表演，海玲参演，其他人没参与，你也一直在那4演1。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老话，不到最后不要确定一个角色
+第三集出来我以为莫提斯起码会爽个一集甚至一集半，我以为第四集是蒸蒸日上的鸡团，以为莫提斯要把喵梦素世祥子这些伤害过睦的角色全拷打一遍，实际第四集只是拷打了祥子，压根没有拷打喵梦素世，最后甚至直接炸团了
+
+*****
+
+####  厚乳果珍爽  
+##### 12690#       发表于 2025-1-25 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说吧，在第四集里mo女士跟喵梦上电视，抢话喵梦，明显是故意的，与其说是故意不如说是报复喵梦女士，不想让喵梦获得人气，因为是喵梦导致了母鸡卡现在这个情况。她真正要报复的对象就是喵梦，拆团没有报复祥子的意味反而是保护祥子。
+
+就看下一集怎么处理了，我估计就会有mo女士让喵梦炎上吃瘪的剧情。
+
+*****
+
+####  天空塔书记官  
+##### 12691#       发表于 2025-1-25 22:46
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 22:48 编辑 
+
+怎么又是难绷的假面
+
+我得了一见到大鼻子姐姐就想笑的病.jpg
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
