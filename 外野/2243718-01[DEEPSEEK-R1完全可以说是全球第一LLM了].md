@@ -1323,3 +1323,24 @@ DeepSeek 的潜在心态**
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  黄泉川此方  
+##### 110#       发表于 2025-1-25 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273548&amp;ptid=2243718" target="_blank">colice 发表于 2025-1-25 12:05</a>
+
+如果想要用deepseek写八股文啥的，怎么搞比较方便？用网页和客户端好像是得过审查，并不能写的出来
+
+——  ...</blockquote>
+这样的？用OLLAMA+Open WebUI本地跑的，B站一搜就有教程
+
+<img src="https://img.saraba1st.com/forum/202501/25/172131za1446gaz44155x6.png" referrerpolicy="no-referrer">
+
+<strong>8659E8B1F08308EB5C0CBC0CAB478F34.png</strong> (181.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 17:21 上传
+

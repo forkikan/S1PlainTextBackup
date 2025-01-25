@@ -7615,3 +7615,21 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 原创番不就是这点有趣吗？你怎么知道是超鬼还是超神
 
+
+*****
+
+####  厚乳果珍爽  
+##### 12521#       发表于 2025-1-25 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢？以我有限的观影经验来说，扯一堆有的没的时候，能平稳落地已经很不错了，大概是超鬼的，基本没可能超神。
+
+*****
+
+####  huxiaopao163  
+##### 12522#       发表于 2025-1-25 17:17
+
+莫小姐肯定不是菜逼，肯定还掌握一切<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+导演说的为了某个地方演出能到位，把其他声优拉到一起对后面的剧情，但唯一瞒着祥子的声优，肯定就是第四集最后这场戏
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
