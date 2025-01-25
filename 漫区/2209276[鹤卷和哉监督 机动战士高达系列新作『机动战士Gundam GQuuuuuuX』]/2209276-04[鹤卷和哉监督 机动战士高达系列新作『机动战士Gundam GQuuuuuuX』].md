@@ -13275,3 +13275,58 @@ atomsk是因为拥有星球级的N.O.被MM囚禁利用，所以夏亚现在一�
 
 妮娅安又被华丽地遗忘了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 5657#       发表于 2025-1-25 15:08
+
+<img src="https://img.saraba1st.com/forum/202501/25/150753sz5nztxdzznnt9to.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7138.JPG</strong> (213.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 15:07 上传
+
+[https://x.com/disemboweled/statu ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+独裁者是什么梗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天宮奏  
+##### 5658#       发表于 2025-1-25 15:09
+
+一眼曲识和哀川*伊织，戏言已成为竹的底层逻辑.jpg
+
+*****
+
+####  刺客ares  
+##### 5659#       发表于 2025-1-25 15:09
+
+喵安虽然是难民但用得起智能手机，赢
+
+牢修没有手机是怎么生存的啊，难道是康奇代替了手机功能？
+
+
+*****
+
+####  虛無迴廊  
+##### 5660#       发表于 2025-1-25 15:15
+
+夏利亚是女主不是约等于痞子是女主吗！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闽明  
+##### 5661#       发表于 2025-1-25 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274650&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-25 15:08</a>
+https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag
+
+独裁者是什么梗 ...</blockquote>
+G复兴的面具男坚信男主这种精英以后肯定成为独裁者。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
