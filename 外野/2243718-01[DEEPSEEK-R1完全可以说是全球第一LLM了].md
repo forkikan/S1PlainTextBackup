@@ -2138,3 +2138,13 @@ D = (c² - v²)^(1/2) × 普朗克时间  
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  marlun  
+##### 140#       发表于 2025-1-26 06:22
+
+deepseek终于还是引起了华尔街的注意：一方面已经有不少ai领域的大咖开始质疑deepseek的训练成本是不是真的像他们说的那么低，另一方面金融专家在特别强调“R1是在o1基础上蒸馏的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，训练成本没有统计到o1这部分
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
