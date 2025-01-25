@@ -866,3 +866,14 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 —— 来自 ...</blockquote>
 大概是没有二段跳，但有个利用盾牌的大跳。不知道什么原理，总不能是空中踩盾牌吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 254#       发表于 2025-1-25 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276484&amp;ptid=2184766" target="_blank">有钱多买小人 发表于 2025-1-25 20:24</a>
+
+大概是没有二段跳，但有个利用盾牌的大跳。不知道什么原理，总不能是空中踩盾牌吧 ...</blockquote>
+你说过桥那个？把盾当钩锁用场景触发的东西吧。。
+

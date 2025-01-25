@@ -14134,3 +14134,34 @@ gqux只有斧头好像是因为黑拳队没钱，买不起步枪之类的
 
 感觉修司没有长时间独立生存的经济能力…出现在side6的时间应该不长
 
+
+*****
+
+####  g救世主高达  
+##### 5731#       发表于 2025-1-25 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275341&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-25 17:27</a>
+
+假面不是菜，是贝爷太强。
+
+历代最菜我觉得应该是V高达里那个口罩男。</blockquote>
+开着最神棍的独角兽都打不过白板刚自己，更不用说本传假面打别人也不行阿
+
+gaoda获.PNG
+(930.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/212133gb7gzmb7y1zrhrhy.png" referrerpolicy="no-referrer">
+
+捕222获.PNG
+(817.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/212135yzuugzubh2uel89m.png" referrerpolicy="no-referrer">
+
