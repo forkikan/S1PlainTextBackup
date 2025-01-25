@@ -7049,3 +7049,25 @@ PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
 
 [https://x.com/this_is_nn/status/1882670395226276133/photo/1](https://x.com/this_is_nn/status/1882670395226276133/photo/1)
 
+
+*****
+
+####  红粉骷髅  
+##### 12466#       发表于 2025-1-25 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273804&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-25 12:42</a>
+
+有一說一，
+
+鍵帽在入團前真的已經是在單幹
+
+祥子才是那個創業的</blockquote>
+这创业不是成功了吗，现在你说带领创业团队成功的人在创业之前没成绩，所以不能指责在团队内出力最小的人，为了黑已经不要逻辑了是吧
+
+*****
+
+####  huxiaopao163  
+##### 12467#       发表于 2025-1-25 14:02
+
+祥子既然都说mortis有精神病了，为什么不顺带也说喵梦有精神病，这样一次能把两个自己不爽的人都关起来送去治病，岂不是大获全胜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

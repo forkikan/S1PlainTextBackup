@@ -763,3 +763,23 @@ f1风噪和散热怎么样</blockquote>
 给 ROG Ally 安装 Bazzite，这时候就知道多 C 口和自带键鼠设备的含金量了</blockquote>
 只有一个USB口是我对大多数win掌机最不爽的地方
 
+
+*****
+
+####  bypass  
+##### 1398#         楼主| 发表于 2025-1-25 13:58
+
+来持续更新一下 ROG Ally 使用 Bazzite 的体验。
+
+<img src="https://imgur.ihainan.me/zOAsIWC.jpeg" referrerpolicy="no-referrer">
+
+1. 关闭 TDP Boost，13w 才能做到 720p 稳 45 帧玩 P3R，GPD Win 4 10w 就可以。续航情况如上图。
+
+2. 休眠做到秒开秒睡，比 GPD Win 4 快很多，待机续航待测试。
+
+3. 背键默认一个是开启屏幕键盘，一个是开启 HHD 设置界面。
+
+4. 可以配置 RGB，但是似乎只能选模式，对我来说无所谓，本来就不会开。
+
+5. 又找不到截图键了…试了各种组合都不行，估计得自己配置一下，晚点再研究。
+
