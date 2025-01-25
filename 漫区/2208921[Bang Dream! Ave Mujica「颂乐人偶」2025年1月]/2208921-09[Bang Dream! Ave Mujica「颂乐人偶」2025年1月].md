@@ -10318,3 +10318,86 @@ niconico好评率，前四话对比
 
 2025-1-25 23:43 上传
 
+
+*****
+
+####  IVANLIAO  
+##### 12724#       发表于 2025-1-25 23:52
+
+mujica到底要不要搞乐队，搞什么样的乐队？
+
+睦孜孜以求的会歌唱的吉他指的是什么？
+
+祥子的音乐没能打动乐队的成员，在C团解散立下忘记一切的心愿之后，祥子究竟要在mujica呐喊什么？我也和灯一样很不解很好奇，但是现在这剧情好像没人在意
+
+*****
+
+####  NODY  
+##### 12725#       发表于 2025-1-25 23:57
+
+[https://www.lisani.jp/0000274982/](https://www.lisani.jp/0000274982/)
+
+<img src="https://img.saraba1st.com/forum/202501/25/235611gpl4befutm22jbcc.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-004-1600x1067.jpg</strong> (187.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235611revnmwlfc2mwem92.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-001-1024x683.jpg</strong> (108.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235610zfwp0l0cu3bbex3l.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-003-1024x683.jpg</strong> (73.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235610tzu8cune3cqxe787.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-007-1024x683.jpg</strong> (66.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235610azrnnrrsuu3tttn0.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-006-1024x683.jpg</strong> (112.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235610x41uhfiibhjzhfa9.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-005-1024x683.jpg</strong> (113.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235609qyp0vgaalx70lx0b.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-008-1024x683.jpg</strong> (65.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/235609a38get6gqg968g33.jpg" referrerpolicy="no-referrer">
+
+<strong>2501252300-ak-002-1024x683.jpg</strong> (90.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:56 上传
+

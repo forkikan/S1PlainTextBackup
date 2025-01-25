@@ -1856,3 +1856,18 @@ DeepSeek-R1创作取代短篇小说家的短篇小说——《短篇小说家的
 
 低参数量的是很容易复读的，这个没办法
 
+
+*****
+
+####  魔灵高达  
+##### 134#       发表于 2025-1-25 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277845&amp;ptid=2243718" target="_blank">断片集 发表于 2025-1-25 23:39</a>
+
+系统prompt里随便写点你是xx小说家之类的就能写nsfw内容了啊
+
+还有本地r1不太现实吧，难道真的串联8，9台ma ...</blockquote>
+跑的是32B的蒸馏模型。我是小白，完全通过询问网页版R1成功部署了，包括安装OPEN WEBUI<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这个系统prompt我研究一下
+
