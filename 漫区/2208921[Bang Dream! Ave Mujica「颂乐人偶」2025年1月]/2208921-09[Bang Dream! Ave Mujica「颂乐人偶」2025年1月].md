@@ -6589,3 +6589,24 @@ crychic的解散和祥子的雨中大哭大概算是mortis出现的诱因，而�
 —— 来自 鹅球 v3.3.96</blockquote>
 怎么了？
 
+
+*****
+
+####  天空塔书记官  
+##### 12424#       发表于 2025-1-25 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272551&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-1-25 08:54</a>
+怎么了？</blockquote>
+没啥，标记下楼层而已
+
+防止回滚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  达达葱2  
+##### 12425#       发表于 2025-1-25 09:03
+
+是不是有情报说之后风格会改金属系？
+
