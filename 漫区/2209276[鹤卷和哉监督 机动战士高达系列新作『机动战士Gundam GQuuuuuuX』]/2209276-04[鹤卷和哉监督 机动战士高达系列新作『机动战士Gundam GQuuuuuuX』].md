@@ -14557,3 +14557,13 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏利亚确实是优秀的现代化改造，看 79 只觉得这老爷爷好杂鱼
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5764#       发表于 2025-1-26 02:08
+
+虽然我也不至于是个庵野厨（毕竟整出了新奥和新假） 但也没那么恨痞子就是了 感觉黄色论坛也不至于黑成这样就是……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

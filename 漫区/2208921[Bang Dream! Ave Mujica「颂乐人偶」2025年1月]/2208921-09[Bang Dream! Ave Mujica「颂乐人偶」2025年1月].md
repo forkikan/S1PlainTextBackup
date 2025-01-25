@@ -10821,3 +10821,27 @@ C团和迷子本质是一样的，是以灯为核心，以词作主导的乐队�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  LeonsCat  
+##### 12753#       发表于 2025-1-26 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278038&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-26 00:13</a>
+
+mygo，好像是第三集C团春日影，第七集碧天伴走+mygo春日影，第十集诗超伴，第十二集星迷叫+迷路日日
+
+其实 ...</blockquote>
+第三集还有个想要成为人类，不过也大差不差。
+
+
+*****
+
+####  古明地雷  
+##### 12754#       发表于 2025-1-26 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278339&amp;ptid=2208921" target="_blank">青龙圣者 发表于 2025-1-26 01:07</a>
+5话解析视频：
+【海喵鸣泣之时AVE mujica/颂月人偶 第四话解析 蓄谋拆队重组-哔哩哔哩】 https://b23.tv/n6 ...</blockquote>
+没看视频，解散可以说打击报复，重组又是为了什么？更深的打击报复？真就这么恨吗？而且大喵先不说，初华和海铃凭什么陪她演，对海铃来说乐队就是尽量谈工作，其他都是闹麻；对初华来说既不满足和祥子在一起，祥子的好感又会直线下降，还真期待祥子变成废人永远在一起吗
+
