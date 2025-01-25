@@ -6631,3 +6631,46 @@ crychic的解散和祥子的雨中大哭大概算是mortis出现的诱因，而�
 你在搞笑吗，大家不冲的原因是早就绝望了，以前又不是没有过精品。然而大众审美水平就摆在那里，就像从电 ...</blockquote>
 歪个楼，国产跑去向外国题材“致敬”时还是能弄出好看的电视剧，比如银行版的半泽直树——前途无量
 
+
+*****
+
+####  江口夕  
+##### 12428#       发表于 2025-1-25 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑独角兽看混沌之子
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 12429#       发表于 2025-1-25 09:18
+
+已经和莫小姐和解了，莫小姐真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+毕竟这里需要一个解散的大恶人，命不久矣的莫小姐最适合当这个恶人了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 12430#       发表于 2025-1-25 09:18
+
+唐人、周易、山影这些公司巅峰期都很强好吧，大把的原创能拿出手，怎么就只剩致敬了
+
+况且现在又不是没有好剧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  新HGCG  
+##### 12431#       发表于 2025-1-25 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272231&amp;ptid=2208921" target="_blank">dbyboy 发表于 2025-1-25 04:24</a>
+
+你在搞笑吗，大家不冲的原因是早就绝望了，以前又不是没有过精品。然而大众审美水平就摆在那里，就像从电 ...</blockquote>
+国产动画又不是没在日本播，这几年的新片看下来肉眼可见在进步
+
