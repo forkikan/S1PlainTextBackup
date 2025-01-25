@@ -2128,3 +2128,13 @@ D = (c² - v²)^(1/2) × 普朗克时间  
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renova  
+##### 139#       发表于 2025-1-26 05:38
+
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
