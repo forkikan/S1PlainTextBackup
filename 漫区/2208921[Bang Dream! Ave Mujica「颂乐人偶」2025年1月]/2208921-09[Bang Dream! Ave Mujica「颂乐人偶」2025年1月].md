@@ -9433,3 +9433,124 @@ image.png
 mygo时期让祥子这个外人背锅 效果挺好的
 现在路径依赖让墨酱背锅 感觉也是编剧能干出来的事
 
+
+*****
+
+####  akiomn  
+##### 12660#       发表于 2025-1-25 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277257&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:14</a>
+霸凌谁了，霸凌的不是自称夺取身体的莫女士么。莫女士又不是乐队成员。而且祥子初华没参与。而且是大猫先 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得你挺神经的，海玲那个人设，闲着没事和喵梦一起80莫提斯是吧？突出一个莫名其妙
+
+*****
+
+####  稀勢のささ  
+##### 12661#       发表于 2025-1-25 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277253&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-25 22:13</a>
+
+看了一堆梗图和日式冷笑话之后感觉大家讨论的怎么都是那么沉重的话题，回旋镖这么欢乐的话题（暂且不论地不 ...</blockquote>
+搞个双重人格一直在那回旋镖，看的时候乐归乐但到了祥睦对线给我的感觉是编剧没活了这样推剧情
+
+这不就只能想办法找补了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 12662#       发表于 2025-1-25 22:21
+
+我现在有母鸡卡是邦邦revice的预兆了，“家人”有第二人格、最大主角有一定健忘症、有家人侠，这不就是我们revice嘛
+
+*****
+
+####  半年  
+##### 12663#       发表于 2025-1-25 22:21
+
+<img src="https://p.sda1.dev/21/204cfa027a433443f50b8e26703eb128/GiJLpgwbEAArlQF.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Kanon_Takao/status/1883150775955959957/photo/1](https://x.com/Kanon_Takao/status/1883150775955959957/photo/1)
+
+*****
+
+####  江口夕  
+##### 12664#       发表于 2025-1-25 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277294&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:20</a>
+
+我觉得你挺神经的，海玲那个人设，闲着没事和喵梦一起80莫提斯是吧？突出一个莫名其妙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你又了解海玲了
+
+
+*****
+
+####  山ノ内花音  
+##### 12665#       发表于 2025-1-25 22:22
+
+这集最神经的一点就是墨缇丝最后太小丑了 完全对不起第三集结尾带给观众的期待 吵架逻辑混乱都是次要问题了
+
+*****
+
+####  半年  
+##### 12666#       发表于 2025-1-25 22:23
+
+<img src="https://p.sda1.dev/21/e8e1517c2716061c6141829d13cdfafa/GiI98w-aUAEeBGT.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tekatekapanda/status/1883135710808649930/photo/1](https://x.com/tekatekapanda/status/1883135710808649930/photo/1)
+
+*****
+
+####  akiomn  
+##### 12667#       发表于 2025-1-25 22:25
+
+ 本帖最后由 akiomn 于 2025-1-25 22:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277309&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:21</a>
+
+你又了解海玲了。上一季mujica谁跟睦走的近，海玲</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太对了，那你告诉我海玲联合喵梦80莫提斯的理由是什么？就因为莫提斯夺了睦的身体？
+
+我直接跟你说吧，这种联合80只会让角色塑造和风评原地爆炸，而你恰好是巴不得角色风评爆炸的那种人
+
+邦世界的角色都是好孩子，即便是拆团的素世，即便是前面一直搞骚操作背刺的喵梦，底色也会是好孩子。对着一个双重人格的病人搞联合演戏80，真是人能干的事？
+
+*****
+
+####  嵇翱u  
+##### 12668#       发表于 2025-1-25 22:25
+
+假设真是演戏说，那还是莫小姐发起演祥子更好回收一点，毕竟最后莫小姐肯定是变回睦的，莫小姐论起来都可以说用自己的“性命”来唤醒祥子认识到成员的重要性。
+
+但如果是其他人联合演莫，难道其他人也有病吗？你只要还是正常人范畴，用演戏的方式来解决问题也是很难被观众接受的。
+
+*****
+
+####  江口夕  
+##### 12669#       发表于 2025-1-25 22:25
+
+ 本帖最后由 江口夕 于 2025-1-25 22:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277335&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 22:25</a>
+太对了，那你告诉我海玲联合喵梦80莫提斯的理由是什么？就因为莫提斯夺了睦的身体？
+我直接跟你说吧，这 ...</blockquote>
+不好意思，在我眼里莫女士趁虚而入的反派。我又不在乎别的，我只在乎莫女士赶紧滚蛋
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  akiomn  
+##### 12670#       发表于 2025-1-25 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277340&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 22:25</a>
+不好意思，在我眼里莫女士趁虚而入的反派。我又不在乎别的，我只在乎莫女士赶紧滚蛋
+
+—— 来自 Xiaomi 2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反不反派不是你来定义，你这个前提是默认了睦是双重人格，但现在莫提斯的实质还不清楚，第四集压根没给解释
+
+*****
+
+####  屑猫猫  
+##### 12671#       发表于 2025-1-25 22:27
+
+莫提斯女士小丑化也太快了，用revice套的话就是蜃楼师傅再怎么说也跟主骑对峙过一段时间，还是有点逼格的，之后就是反反复复的人格对换，就怕后面睦头也是“代替这个优柔寡断的我”把墨女士呼唤出来了…
+
