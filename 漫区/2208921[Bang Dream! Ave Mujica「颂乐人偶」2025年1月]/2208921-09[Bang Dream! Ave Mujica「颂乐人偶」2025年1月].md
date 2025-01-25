@@ -10745,3 +10745,55 @@ ksm第三集都还在唱小星星呢
 
 完了 莫姐真是个彩笔
 
+
+*****
+
+####  akiomn  
+##### 12750#       发表于 2025-1-26 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278390&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-26 01:16</a>
+
+沉默带来的绝望将她支配
+
+完了 莫姐真是个彩笔</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许……莫提斯真的玩脱了，刚发现pv里有个画面能和第四集舞台彩排对的上
+
+1F0DBDF0-7EC4-44E2-8BA4-1AF8D8386434.jpeg
+(189.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 01:39 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/013911q4cx6c26z63e6ncz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 12751#       发表于 2025-1-26 01:43
+
+我觉得算是一个比较铁的证据，就是ed前的这一幕窗户的围栏把五个人分成4:1
+
+因为只是分镜构图，所以不存在说谎、演戏、反转或信息差。
+
+又因为这种手法mygo第一集用过，所以可以认为是用了相同的手法，而不是单纯多想。
+
+6.PNG
+(1.45 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 01:38 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/013853r9nnb8z3l9bb2n01.png" referrerpolicy="no-referrer">
+
+7.PNG
+(1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 01:42 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/014230iwja5bdjpbjddx85.png" referrerpolicy="no-referrer">
+

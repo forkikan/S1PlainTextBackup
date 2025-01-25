@@ -14549,3 +14549,11 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Earendil_C  
+##### 5763#       发表于 2025-1-26 01:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏利亚确实是优秀的现代化改造，看 79 只觉得这老爷爷好杂鱼
+
