@@ -14078,3 +14078,36 @@ gqux只有斧头好像是因为黑拳队没钱，买不起步枪之类的
 
 不过现在也得不出结论，只要知道牢修自己买不起流星锤就行了（
 
+
+*****
+
+####  jojonathan  
+##### 5727#       发表于 2025-1-25 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276695&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-25 20:53</a>
+鸭子当时的遗言更像是有人过来这边吧
+
+不过现在也得不出结论，只要知道牢修自己买不起流星锤就行了（ ...</blockquote>
+中间过了好几年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">要是当时牢修就过来了吉翁5年堵不住一个红高达是不是有点幽默了
+
+*****
+
+####  xwz  
+##### 5728#       发表于 2025-1-25 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275634&amp;ptid=2209276" target="_blank">废都刽子手 发表于 2025-1-25 18:13</a>
+
+【【AI高清重制】女主玛秋初次启动高达Gquuuuuux-哔哩哔哩】 https://b23.tv/J1LVM1O
+
+女主开上高达的盗摄片 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/25/205955esusl59slsgju1s6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 20:59 上传
+
+评论图可爱
+

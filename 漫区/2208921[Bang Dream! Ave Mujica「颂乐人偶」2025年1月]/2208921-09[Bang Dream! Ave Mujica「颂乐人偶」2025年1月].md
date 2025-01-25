@@ -8639,3 +8639,56 @@ mygo的演唱会睦倒是除了诗超绊场场没落下，甚至灯的念诗都�
 
 其实mujica就是反向的hhw
 
+
+*****
+
+####  天空塔书记官  
+##### 12609#       发表于 2025-1-25 20:56
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 20:58 编辑 
+
+祥子和睦的情况其实有点像冰川双子，无论是怎样的逃避和互相攻击，“血缘”都是她们之间无法斩断的纽带，最终还是要接纳彼此
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 12610#       发表于 2025-1-25 20:58
+
+wsd预告欺诈也是惯犯了，比如上集预告占了一半篇幅的爽姐，这集就多了个家里看电视的镜头，属实是整蛊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如自由发散，假定下集确实暂停了，那不说素莫，海希应该会有情报交流的机会。这大概是go团掉线两集之后最好加入的机会。说不定海玲向立希透露了什么之后，go团的应对是导致海玲被鸡团质问的契机，海玲的那句“你觉得我不可信吗”也许快要回收了
+
+
+*****
+
+####  huxiaopao163  
+##### 12611#       发表于 2025-1-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276653&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-25 20:46</a>
+
+不过我还是坚持我的观点，商业乐队不太可能轻易地解散和重组，所以A团最多只是暂停活动
+
+莫提斯是戴了假面 ...</blockquote>
+确实喵梦第三集对小睦说了祥子已经成为你的枷锁了，初看以为只是挑拨离间，其实小睦已经听进去了
+
+*****
+
+####  Lawliet.L  
+##### 12612#       发表于 2025-1-25 21:01
+
+我是倾向于莫是睦的体验派表演的，人格是假的，但情绪是真的，也更好地扣题人偶<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 12613#       发表于 2025-1-25 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276682&amp;ptid=2208921" target="_blank">老贝 发表于 2025-1-25 20:51</a>
+
+独身上门然后被莫提斯拿书砸过来，不行这个发展有点太离谱不好收场了…… ...</blockquote>
+PV里那个是对着镜子砸的
+
