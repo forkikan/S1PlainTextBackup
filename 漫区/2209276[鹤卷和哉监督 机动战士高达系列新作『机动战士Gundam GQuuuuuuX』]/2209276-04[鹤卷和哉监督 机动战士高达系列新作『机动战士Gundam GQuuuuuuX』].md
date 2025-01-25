@@ -13448,3 +13448,15 @@ https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4
 独裁者是什么梗 ...</blockquote>
 来自G复国里假面给贝爷的外号，因为贝爷血缘牛逼背景梆硬驾驶技术全片天花板，假面是食用人种的后代，对贝爷又嫉妒又仇恨，认为他迟早会成为高高在上的存在，所以经常喊贝爷为独裁者、杀人犯
 
+
+*****
+
+####  ku2154513  
+##### 5668#       发表于 2025-1-25 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273350&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-25 11:37</a>
+[
+
+attachimg]1826224[/attachimg]</blockquote>
+这红短袜配老头凉鞋有点搞
+

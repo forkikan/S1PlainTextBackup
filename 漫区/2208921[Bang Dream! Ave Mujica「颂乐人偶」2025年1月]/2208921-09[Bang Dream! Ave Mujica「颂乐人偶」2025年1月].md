@@ -7327,3 +7327,22 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 
 这本身就是一个非常kuso的事情，就像你在卖火柴的小女孩的故事里分析出，主角是来自外太空的外星人，她点的火柴只是給她外太空伙伴打信号来接她一样，你看她已经是死了，实际上她已经被她同伴接走了一样。
 
+
+*****
+
+####  半年  
+##### 12492#       发表于 2025-1-25 15:42
+
+<img src="https://p.sda1.dev/21/d81449f5d8793aa8ef0f083f35e34439/GiDlGBtagAAH8cI.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kkkurosuneko/status/1882756540379374013/photo/1](https://x.com/kkkurosuneko/status/1882756540379374013/photo/1)
+
+*****
+
+####  半年  
+##### 12493#       发表于 2025-1-25 15:43
+
+<img src="https://p.sda1.dev/21/9473fb2eab0cbd96729a28a7331ee2af/GiDt2zqaQAAeEdu.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ng_suzuki3/status/1882766404988104808/photo/1](https://x.com/ng_suzuki3/status/1882766404988104808/photo/1)
+
