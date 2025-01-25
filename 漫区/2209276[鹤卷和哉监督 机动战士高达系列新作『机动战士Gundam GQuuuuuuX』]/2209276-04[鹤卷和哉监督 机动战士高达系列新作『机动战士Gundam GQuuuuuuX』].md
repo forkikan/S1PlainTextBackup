@@ -13536,3 +13536,26 @@ https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4
 
 X上绿头发真女主实火
 
+
+*****
+
+####  oi99o  
+##### 5677#       发表于 2025-1-25 16:59
+
+已经十亿了
+
+<img src="https://img.saraba1st.com/forum/202501/25/165949x37slkhl93e20i0q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 16:59 上传
+
+*****
+
+####  YU_JI  
+##### 5678#       发表于 2025-1-25 17:02
+
+不知道今年还有没有面具男役，还是说被鸭子把名额拿回去了（）
+

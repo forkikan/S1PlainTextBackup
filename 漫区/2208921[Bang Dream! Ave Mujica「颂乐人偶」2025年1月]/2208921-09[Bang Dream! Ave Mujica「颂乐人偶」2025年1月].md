@@ -7540,3 +7540,27 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 比卒还难收尾就搞笑了
 
+
+*****
+
+####  山ノ内花音  
+##### 12512#       发表于 2025-1-25 16:55
+
+如果真能用超能力解决 反而好起来了
+
+*****
+
+####  老耗子  
+##### 12513#       发表于 2025-1-25 16:56
+
+现在一堆所谓假药我是真提不起兴趣，我来看剧情讨论的不是看虚空劈入设定造假药的，能不能基于已有剧情好好讨论啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 12514#       发表于 2025-1-25 16:59
+
+邦世界人均音乐天才早就是超能力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
