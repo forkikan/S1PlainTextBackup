@@ -8947,3 +8947,74 @@ PV里那个是对着镜子砸的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦演出的第二人格来拆团跟爽世提出建立乐队一样，算是一个前期的麦高芬，最后肯定要说出原因，就跟爽世建立乐队目的是拉回祥子跟睦一样。
 
+
+*****
+
+####  akiomn  
+##### 12628#       发表于 2025-1-25 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276902&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-25 21:26</a>
+不蓋章有病是因為沒必要也不Dokidoki
+
+像燈那樣， 就算實鎚了有ASD 又怎樣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是问题了，没必要，而且真的实锤了会牵扯到更多东西，怎么让原人格回来，副人格后续怎么处理，涉及到精神病症康复等等现实的问题，需要大量的篇幅，已经不是简单的音乐live治疗就完事了
+这是乐队番，要写的是女女关系性，制作组敢安排实锤一个严肃的病症放到动画里，观众粉丝也会严肃对待，这种事不是随便打哈哈就能过去了
+
+*****
+
+####  Devola  
+##### 12629#       发表于 2025-1-25 21:38
+
+再怎么造假药找补也是屎上雕花自己骗自己，因为影视作品的编剧水平问题一旦原形毕露，后面再怎么也兜不住的
+
+独角兽老厕妹真的能力挽狂澜吗
+你信她不如信她偶像大河内<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑猫猫  
+##### 12630#       发表于 2025-1-25 21:40
+
+<blockquote>天空塔书记官 发表于 2025-1-25 21:29
+可以看看我之前对于愚神的一点发散，就在那堆关于喵梦的废话之前，睦和祥是“命运的双生子”，而不是血缘 ...</blockquote>
+问题是概念都是虚的，她俩绑定再明显不过，如何制造一个交合点让这层关系落脚才是关键的。哪怕很细小都行，类似薯条之于冰川姐妹、下雨日菜接姐姐回家那样。
+
+
+*****
+
+####  6030sylar  
+##### 12631#       发表于 2025-1-25 21:41
+
+<img src="https://img.saraba1st.com/forum/202501/25/214123rtt2ktbsz4rbmp49.jpg" referrerpolicy="no-referrer">
+
+<strong>(LM5LRR9MCBTM4AIO(H_GS4.jpg</strong> (141.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:41 上传
+
+吃菌子了
+
+*****
+
+####  天空塔书记官  
+##### 12632#       发表于 2025-1-25 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276901&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 21:26</a>
+怎么说呢？这样下去两个都会坏掉没错，成为mo女士的目的是踩刹车，是在两害里选择伤害最小的哪个，而睦本 ...</blockquote>
+所以我认为“莫提斯”这一概念本身是近似于某种心理暗示的存在，是演员为了避免自己过度带入角色的一种心理防卫机制，就像恶作剧前会戴的鬼假面或是抢银行前戴的头罩一样，为的是降低自己的道德负罪感和心理负担，效果是能做出违背“自己本心”的举动，比如主动使用天生的从父母那继承的话术和演技或者是去“伤害祥子”，就像解除了某种限制的解放形态，这也为以后莫提斯在后续动画作品和手游剧情中出现做出了合理的铺垫
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 12633#       发表于 2025-1-25 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276844&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-25 21:16</a>
+
+已知的明面上的东西
+
+1莫女士说她没听过mujica的音乐</blockquote>
+四演一假药这么看起来确实是有一定的可能的，假如这里确实是刻意设计的话，那么大喵就算跟大祥爆了也没必要非得确定乐队解散这个事，常理上只要自己眼不见心不烦就行。
+
