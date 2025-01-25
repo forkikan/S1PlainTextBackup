@@ -7346,3 +7346,23 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 
 [https://x.com/ng_suzuki3/status/1882766404988104808/photo/1](https://x.com/ng_suzuki3/status/1882766404988104808/photo/1)
 
+
+*****
+
+####  yevvet  
+##### 12494#       发表于 2025-1-25 15:52
+
+有没有可能下集预告那些单飞内容都是幻想。
+
+
+*****
+
+####  一心而用  
+##### 12495#       发表于 2025-1-25 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274771&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-25 15:33</a>
+怎么莫女士用的假面骑士drive的施工现场这一招
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这个作者超喜欢假面骑士梗。
+
