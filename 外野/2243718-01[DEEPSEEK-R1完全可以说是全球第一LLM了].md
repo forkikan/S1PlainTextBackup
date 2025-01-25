@@ -2148,3 +2148,26 @@ deepseek终于还是引起了华尔街的注意：一方面已经有不少ai领�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  希望之花  
+##### 141#       发表于 2025-1-26 06:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然是这个方面的质疑
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  泰坦失足  
+##### 142#       发表于 2025-1-26 06:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278799&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-26 03:43</a>
+
+如果是为了NSFW似乎没有任何必要部署本地蒸馏的模型了，我下载的是R1:32B，审核很严格绕过很麻烦不说，创作 ...</blockquote>
+R1:32B准确的来说是 Qwen2-R1:32B
+
+所以Qwen2的基础安全审核神经元还在。似乎是DeepSeek V3还是R1啥在paper里说了句，“时间来不及我们没做足够多的审核训练”
+

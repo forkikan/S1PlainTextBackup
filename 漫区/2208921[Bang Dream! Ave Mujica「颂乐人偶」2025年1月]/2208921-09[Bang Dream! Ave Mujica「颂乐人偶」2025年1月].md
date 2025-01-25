@@ -10972,3 +10972,185 @@ mortis说“凭现在的祥子，小睦或许再也回不来。”就是需要�
 
 选择这个形式其实是大家对祥子的温柔
 
+
+*****
+
+####  玖羽  
+##### 12764#       发表于 2025-1-26 06:28
+
+ 本帖最后由 玖羽 于 2025-1-26 06:30 编辑 
+
+与其一直车轱辘假药，我觉得现在有必要重温一下PV里的未回收镜头。部分信息量很低的就不讨论了。
+
+<strong>睦：</strong>
+
+睦在房间里摸吉他、睦被砸烂的房间、扔书等等，估计下一话就会回收
+
+扔书这里的瞳孔是小的，疑似Mortis，可能是下一话在房间里无能狂怒
+
+<img src="https://img.saraba1st.com/forum/202501/26/061836tjqj7j9d788byi8b.jpg" referrerpolicy="no-referrer">
+
+<strong>186.jpg</strong> (38.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:18 上传
+
+现在回头看这里很有意思，显然是睦而不是Mortis，抬起头，<strong>露出了前所未有的坚毅表情</strong>（Soyo：别看我）
+
+<img src="https://img.saraba1st.com/forum/202501/26/055039ik07u6abo7x888e0.jpg" referrerpolicy="no-referrer">
+
+<strong>964.jpg</strong> (69.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:50 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/055039ozmpprmef3x3ccfp.jpg" referrerpolicy="no-referrer">
+
+<strong>342.jpg</strong> (67.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:50 上传
+
+<strong>喵梦：</strong>
+
+喵梦有<strong>两个不同的</strong>拼命练鼓镜头（第二个墙上有花纹墙纸，不是喵梦家或若叶家地下室）
+
+<img src="https://img.saraba1st.com/forum/202501/26/054614bkppf23tp6uly464.jpg" referrerpolicy="no-referrer">
+
+<strong>829.jpg</strong> (121.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:46 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/054614mwuu925r26w296wp.jpg" referrerpolicy="no-referrer">
+
+<strong>602.jpg</strong> (123.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:46 上传
+
+现在确定是喵梦的戏剧书（我还是疑惑，很多书看起来是旧书，可能想表达喵梦是在很穷的时候买的）
+
+<img src="https://img.saraba1st.com/forum/202501/26/060738vn78x4xx4jteoa8a.jpg" referrerpolicy="no-referrer">
+
+<strong>325.jpg</strong> (122.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:07 上传
+
+OP结尾画面，喵梦之后会重戴面具（这个镜头不是第1话或MyGO第13话的，那两个镜头一模一样）
+
+<img src="https://img.saraba1st.com/forum/202501/26/054638ya0e0besq11qeweh.jpg" referrerpolicy="no-referrer">
+
+<strong>8ba61e.jpg</strong> (58.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:46 上传
+
+<strong>海铃：</strong>
+
+一大堆没回收的破防脸，<strong>从这里也可以看出海铃绝不可能是乐奈位</strong>
+
+穿花咲川制服的那张估计是海铃初中组一辈子乐队解散时的情况
+
+<img src="https://img.saraba1st.com/forum/202501/26/054818fg3chs31h36np9zb.jpg" referrerpolicy="no-referrer">
+
+<strong>510f.jpg</strong> (338.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:48 上传
+
+（从这里转的汇总：[https://tieba.baidu.com/p/9430327478](https://tieba.baidu.com/p/9430327478)）
+
+<strong>初华：</strong>
+
+初华在自己家里泡咖啡，疑似是祥子搬走之后
+
+<img src="https://img.saraba1st.com/forum/202501/26/060314e9uswy93cc35vc1s.jpg" referrerpolicy="no-referrer">
+
+<strong>618.jpg</strong> (111.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:03 上传
+
+这里的背景貌似是野外，也许是初华回到小岛
+
+<img src="https://img.saraba1st.com/forum/202501/26/055921su7vg6pyyrdyr79z.jpg" referrerpolicy="no-referrer">
+
+<strong>706.jpg</strong> (77.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 05:59 上传
+
+<strong>祥子：</strong>
+
+灯写的便签，看不出情境
+
+<img src="https://img.saraba1st.com/forum/202501/26/061152rwhrk5kaluicilrs.jpg" referrerpolicy="no-referrer">
+
+<strong>701.jpg</strong> (54.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:11 上传
+
+这张便签就是第1话的房子便签
+
+<img src="https://img.saraba1st.com/forum/202501/26/060647aldmdaa1dfcozg5q.jpg" referrerpolicy="no-referrer">
+
+<strong>051.jpg</strong> (170.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:06 上传
+
+祥子在大宅里对着钢琴，旁边放着娃娃，要么是离家出走之前，要么是后面搬回去
+
+<img src="https://img.saraba1st.com/forum/202501/26/062102kx9ycck93skltxyp.jpg" referrerpolicy="no-referrer">
+
+<strong>994.jpg</strong> (104 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:21 上传
+
+睦的这个表情是第四话在祥子面前露出来的，还有第四话的初华
+
+这个电视房是祥子脑内小剧场（或者类似物）？
+
+<img src="https://img.saraba1st.com/forum/202501/26/061615jxs9sbrur0pzrzeq.jpg" referrerpolicy="no-referrer">
+
+<strong>387.jpg</strong> (134.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:16 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/062357f9ihoizlvkva94iz.jpg" referrerpolicy="no-referrer">
+
+<strong>082.jpg</strong> (150.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:23 上传
+
+按电视的手不明，可能不是上面的电视房，手很可能是初华或祥子
+
+<img src="https://img.saraba1st.com/forum/202501/26/060125dh5ssdti2wzx3gth.jpg" referrerpolicy="no-referrer">
+
+<strong>595.jpg</strong> (66.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 06:01 上传
+
