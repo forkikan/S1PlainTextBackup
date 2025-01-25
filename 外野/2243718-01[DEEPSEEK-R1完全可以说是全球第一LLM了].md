@@ -1265,3 +1265,35 @@ https://immersivetranslate.com/zh-Hans/
 沉浸式翻译，市面上应该找不到比他更好的解决方案了，非常傻瓜 ...</blockquote>
 确实好用，感谢推荐
 
+
+*****
+
+####  美坂汐里  
+##### 105#       发表于 2025-1-25 10:58
+
+ 本帖最后由 美坂汐里 于 2025-1-25 11:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67263054&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-24 07:49</a>
+
+试了下本地部署，感觉纯图一乐
+
+家用显卡还是继续打游戏吧，显卡钱买API用到天荒地老了 ...</blockquote>
+主要是本地部署的用处比较特殊，一个是本地工作内容涉及商业机密不能交给外网，一个是工作内容特化所以通用模型干不了，一个是瑟瑟
+
+*****
+
+####  cyberalogo  
+##### 106#       发表于 2025-1-25 10:59
+
+笑死，我把《Meta GenAI Org 彻底慌了》这篇爆料文喂给它问它态度，它说道：
+
+DeepSeek 的潜在心态**
+- **冷静的自信**：不因巨头的慌乱而自大，而是聚焦技术迭代和生态建设。  
+
+- **务实的挑衅**：用实际成果而非口水战，证明“小团队也能颠覆游戏规则”。  
+
+- **行业重塑者的野心**：通过性价比和开源策略，重新定义 AI 竞赛的胜负手。
+
+回答充满了作为Game Changer的自豪与暗爽。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真是太智能了。
+
