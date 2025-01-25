@@ -10228,3 +10228,93 @@ niconico好评率，前四话对比
 第4话 82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
  ​​​<img src="https://p.sda1.dev/21/2b8ff9e117253fcc7162583c9caa72b9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 12717#       发表于 2025-1-25 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的评价是真的很神经，非给角色确诊个双重人格是吧？
+
+那么从剧内祥子角度看好了，先是亲妈没了，牢爹被赶出家了颓废了，不得不退出c团，然后呢？从小到大的青梅竹马睦被确诊是双重人格，还有个后面不知道有没有病的幼驯染初华。
+
+看看第四集祥子被莫提斯暴击后失魂落魄的样子，再下去祥子真要疯了，求着老天爷给自己来个痛快的
+
+*****
+
+####  一心而用  
+##### 12718#       发表于 2025-1-25 23:40
+
+<img src="https://p.sda1.dev/21/fe44c4f3bdbf4574186b83d46cdd5c52/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 12719#       发表于 2025-1-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277849&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-25 23:40</a></blockquote>
+机翻不对，应该是“原来如此，还有这种观点啊”
+
+*****
+
+####  swessia  
+##### 12720#       发表于 2025-1-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277803&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-25 23:33</a>
+niconico好评率，前四话对比
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9%  ...</blockquote>
+看来大家对第四集还是很满意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 12721#       发表于 2025-1-25 23:42
+
+要演就演全<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/029.png" referrerpolicy="no-referrer"> ：软糯的我已经死了！现在我是遗忘了一切的Oblivionis！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/020.png" referrerpolicy="no-referrer"> ：我的一切皆为谎言！编织虚伪者Doloris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/022.png" referrerpolicy="no-referrer"> ：脸和数字都是为了家人！家人侠Amoris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/003.png" referrerpolicy="no-referrer"> ：我不再恐惧乐队解散！炸团乐子人Timoris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/010.png" referrerpolicy="no-referrer"> Mortis：
+
+<img src="https://img.saraba1st.com/forum/202501/25/230607zpttm4wb220bo6tg.jpg" referrerpolicy="no-referrer">
+
+<strong>orig.jpg</strong> (259.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:06 上传
+
+*****
+
+####  天空塔书记官  
+##### 12722#       发表于 2025-1-25 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 12723#       发表于 2025-1-25 23:43
+
+明明有音源
+
+<img src="https://img.saraba1st.com/forum/202501/25/234350id4l7o8db4o3d2la.jpg" referrerpolicy="no-referrer">
+
+<strong>5Z4`Y0O6O3~JEOYMZ]8E@RK.jpg</strong> (18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:43 上传
+
