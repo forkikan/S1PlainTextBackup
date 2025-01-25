@@ -14577,3 +14577,11 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 不过宇宙里好像还有反side3的势力，这么一想就对正片长度更悲观了
 
+
+*****
+
+####  WallHrolf  
+##### 5766#       发表于 2025-1-26 07:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按照那人的意思，khara就是庵野的一言堂，鹤卷作为监督还压不住脚本独走，含泪做了40分钟的79if
+
