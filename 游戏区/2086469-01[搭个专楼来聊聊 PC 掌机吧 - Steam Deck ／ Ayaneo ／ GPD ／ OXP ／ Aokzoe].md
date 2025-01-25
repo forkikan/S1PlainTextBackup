@@ -602,3 +602,37 @@ hx370确实可以干了月亮湖，但是我记得有人说hx370想释放性能�
 好想要翻盖的PC掌机啊，只有ayaneo flip ds 和 gdp mini 2025吗，是不是再等等更好</blockquote>
 近期也不会有什么翻盖新掌机了吧，Aya 基本不出 PC 掌机了（近期只有一款 Ayaneo 3），其他家更不会除了。
 
+
+*****
+
+####  zxlice  
+##### 1386#       发表于 2025-1-25 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272864&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-25 10:06</a>
+近期也不会有什么翻盖新掌机了吧，Aya 基本不出 PC 掌机了（近期只有一款 Ayaneo 3），其他家更不会除了。 ...</blockquote>
+stos官方授权系统的掌机目前只有sd吗，其他的家有没可能
+
+
+*****
+
+####  慕容断月  
+##### 1387#       发表于 2025-1-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273003&amp;ptid=2086469" target="_blank">zxlice 发表于 2025-1-25 10:35</a>
+stos官方授权系统的掌机目前只有sd吗，其他的家有没可能</blockquote>
+目前第一个第三方授权是联想的新机
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bypass  
+##### 1388#         楼主| 发表于 2025-1-25 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273003&amp;ptid=2086469" target="_blank">zxlice 发表于 2025-1-25 10:35</a>
+
+stos官方授权系统的掌机目前只有sd吗，其他的家有没可能</blockquote>
+有，联想的 Legion Go S Powered by SteamOS，但是要五月份才会发售。
+
+其实我觉得 Bazzite 只要开发者对机型有支持，基本能达到 90% 的 SteamOS 体验了。我又弄了一台 ROG Ally 初代，打算今天刷 Bazzite  试试看。
+
