@@ -1445,3 +1445,17 @@ ds的“联网搜索”只是能让ai自己想关键词然后去调用搜索引�
 
 后续不会真按照这个步骤走吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 120#       发表于 2025-1-25 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276125&amp;ptid=2243718" target="_blank">深空坍缩 发表于 2025-1-25 19:29</a>
+我问他如何看待R1发布后业界震动，他是这么回应的：
+
+总结：技术乐观主义者的谨慎期待
+
+作为观察者，我认为De ...</blockquote>
+作为亲身体验者和受益者，我可以很有信心的说AI辅助已经让编程学习和实现的门槛降得前所未有的低，而deepseek这波又把成本降低了数个数量级，大规模普及编程学习的时代很可能即将到来
+
