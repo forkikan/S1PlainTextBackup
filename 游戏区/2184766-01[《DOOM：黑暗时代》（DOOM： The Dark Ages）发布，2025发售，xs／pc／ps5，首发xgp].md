@@ -843,3 +843,14 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 昨天看完了演示，话说这代加强地面战的话，会不会把跳给抠了，我好像没在演示里见到跳唉，大概我看漏了？ ...</blockquote>
 5:29开始那里演示跳了几次，非常沉重的感觉
 
+
+*****
+
+####  FLZB  
+##### 252#       发表于 2025-1-25 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273280&amp;ptid=2184766" target="_blank">BRAVADO 发表于 2025-1-25 11:23</a>
+
+没有多人模式啊，虽然自2016之后多人模式在id游戏里基本是路边一条了，但这次也算改变祖宗之法了吧。 ...</blockquote>
+一直在缩水，2016有对战有snapmap，永恒把snapmap砍了，这作干脆连对战也没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

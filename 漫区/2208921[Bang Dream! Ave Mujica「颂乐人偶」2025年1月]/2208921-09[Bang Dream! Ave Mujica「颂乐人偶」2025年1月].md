@@ -8332,3 +8332,69 @@ ASD只是在自闭谱系，和一般自闭症差别挺大的
 
 能讲出一个商业乐队的故事比放学后自娱自乐乐队更童话，我和柿本当中肯定有一个对这俩的理解不太正常。
 
+
+*****
+
+####  南宮凝香  
+##### 12580#       发表于 2025-1-25 19:54
+
+<img src="https://img.saraba1st.com/forum/202501/25/195350ie2orn1r20a6mo0m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5646.jpeg</strong> (173.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 19:53 上传
+
+*****
+
+####  akiomn  
+##### 12581#       发表于 2025-1-25 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276239&amp;ptid=2208921" target="_blank">老贝 发表于 2025-1-25 19:50</a>
+能讲出一个商业乐队的故事比放学后自娱自乐乐队更童话，我和柿本当中肯定有一个对这俩的理解不太正常。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑暗童话也是童话嘛
+
+*****
+
+####  ntrntr1  
+##### 12582#       发表于 2025-1-25 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276263&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-25 19:54</a></blockquote>
+一句“我是富二代”
+
+轻轻的让对面破防了 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 12583#       发表于 2025-1-25 20:01
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276195&amp;ptid=2208921" target="_blank">H2Ofrozen 发表于 2025-1-25 19:42</a>
+不知道我的理解有没有问题，所以你觉得假设“虚构作品真的对现实中存在的症状进行艺术化加工”，会导致观 ...</blockquote>
+只是因为在现实中接触了相关人群，所以看到把这些内容娱乐化稍微有些不适罢了，娱乐化本身我并不反对，毕竟很多超能力的原型就是现实中的某些疾病，只要不过分将病症的部分正面描述就行，主要是觉得真给木头加一个病人的标签多少有些轻意了，不太合适，我还是倾向于只是舞台表现效果，而不是疑似的病症，毕竟我自己就属于经常会脑内开会的类型
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hulaoda007  
+##### 12584#       发表于 2025-1-25 20:02
+
+童话一般来说是把非合理元素当做合理，而不是不合理到故事结束就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+个人角度反而是莫的出现不仅没延续睦的感情，反而把睦和a团的关系剪断了（实际甚至没有人觉得是睦在结尾破坏了a团，都觉得是莫）。而且还是一个“现实里也微妙和可疑的病症”，很难有说服力啊。
+
+*****
+
+####  ntrntr1  
+##### 12585#       发表于 2025-1-25 20:03
+
+比较可悲的成年人的一点，莫说自己就是不弹吉他了，我第一反应是。。。租场馆很贵的，罢演应该会被追责吧，心疼祥子小姐的钱包 
+
+包括很多假药，我都因为觉得会赔很多钱真情实感的为祥子心痛了。不素，祥子小姐再怎么不适合领导或者撩了就跑画饼不填精神上伤害了你们，别人没拖欠你们工资啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
