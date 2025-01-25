@@ -1352,3 +1352,15 @@ DeepSeek 的潜在心态**
 
 是不是不能登录帐号和密码？比如让它登录后浏览卓明谷的帖子
 
+
+*****
+
+####  amgryn  
+##### 112#       发表于 2025-1-25 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238676&amp;ptid=2243718" target="_blank">大韩李明博 发表于 2025-1-21 15:30</a>
+狠狠打脸了说中国AI落后美国N年的人一巴掌。</blockquote>
+现在nga的处开始说要不是没有欧美就没有ai了<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">，现在能比美国强有啥用别人做出了0到1！！！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

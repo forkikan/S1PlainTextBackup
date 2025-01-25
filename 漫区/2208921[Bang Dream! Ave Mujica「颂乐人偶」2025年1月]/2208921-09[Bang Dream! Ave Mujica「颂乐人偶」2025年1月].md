@@ -7918,3 +7918,100 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  天空塔书记官  
+##### 12545#       发表于 2025-1-25 18:24
+
+木头玩乐队不开心的原因是没法用音乐表达自己的心声，这点在A团和在C团没有任何区别，她只是为祥子才组乐队，会炸是迟早的事
+
+而祥子过去和现在都没有解决这种事态的能力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  novalli  
+##### 12546#       发表于 2025-1-25 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275044&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-25 16:35</a>
+看到一个挺有意思的说法，第四集结尾的“解散”是母鸡卡演绎出来的“解散”。
+“解散”的导火线是一开始睦 ...</blockquote>
+我的感觉和你有点类似。
+我个人认为最后一幕在上帝视角来看是在“解散”，但在观众看来大概是mujica世界观的发生了巨大转折，但mujica本身还是在继续，最后的效果可能是“mujica宣布从乐队企划转为多栖发展，成员开始solo活动”之类的改变。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wzm96816  
+##### 12547#       发表于 2025-1-25 18:27
+
+睦现在主流的两种推测，去掉超自然，把小莫当做睦心底被压抑的意识。那就是一，有点太接近祥子以至于有点怨气 所以在帮着祥子时闹脾气，不想再拿吉他了，害的乐队出事，主观上还是想帮祥子（比如劝初华让祥子休息），二，就是觉得祥子这样做要坏掉，所以干脆击溃鸡团存在本身，让祥子好好休息歇下来。至于合谋什么的先不要考虑，这集可能没说的睦和每个人的谈心因为没情报，所以暂不考虑。
+
+*****
+
+####  一心而用  
+##### 12548#       发表于 2025-1-25 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274071&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-1-25 13:23</a>
+毒舌老外很喜欢Mujica和第四集，看来是环大陆好评</blockquote>
+<img src="https://p.sda1.dev/21/b711b98f4a7390371c892b61db08abdc/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  结衣小比取  
+##### 12549#       发表于 2025-1-25 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275701&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-25 18:23</a>
+
+用剧里的其他人的逻辑来看，双重人格甚至不是一个值得讨论的问题
+
+双重人格的判断是谁下的？——祥子</blockquote>
+祥子是描述了一下现象，结论是初华下的
+
+*****
+
+####  天空塔书记官  
+##### 12550#       发表于 2025-1-25 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275701&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-25 18:23</a>
+用剧里的其他人的逻辑来看，双重人格甚至不是一个值得讨论的问题
+
+双重人格的判断是谁下的？——祥子</blockquote>
+之所以观众会信这个假药完全是因为内心剧场的演出，而这个是局中人所看不到的(也许灯能 ? )，用高位视角误导观众隐藏低位视角的信息，也是一种套路，大概率就是制作组搞的烟雾弹，现实中能像开技能一样切换人格的精神病患不是分裂症而是妄想症
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 12551#       发表于 2025-1-25 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275758&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-25 18:30</a>
+
+祥子是描述了一下现象，结论是初华下的</blockquote>
+那不是更不可靠了吗，即使是心理学专家也不能听别人转述一下就下判断，何况是普通人
+
+*****
+
+####  wzm96816  
+##### 12552#       发表于 2025-1-25 18:33
+
+另外，也别太执着于图片预告，现在要立足于实际猜剧情了。至少等文字预告出了再说。
+
+mygo11集之后，当时我就在专楼说过，别过度入脑假药和二创，否则等鸡团动画出来，人物形象都把把握不住。
+
+*****
+
+####  哈曼的YY  
+##### 12553#       发表于 2025-1-25 18:33
+
+进入个人活动时期确实是比解散更好写点 毕竟这状态解散了没理由把原班人马找回来 
+
+但是也意味着陀螺还能加快转速
+
