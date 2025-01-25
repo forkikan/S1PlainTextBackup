@@ -13760,3 +13760,50 @@ https://tieba.baidu.com/p/9442921518</blockquote>
 我都说了竹是神吧.jpg
 <img src="https://p.sda1.dev/21/9bf1ee89af797ce97b1728a46e2b65fb/dcfb53d0gy1hxwy4v70skj21400u079n.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 5695#       发表于 2025-1-25 19:26
+
+牢修这军团战表现有点堪忧了……那个一剑爆头秒扎古的红高机师真的是他吗（）
+
+*****
+
+####  纪寞  
+##### 5696#       发表于 2025-1-25 19:26
+
+看样子那个扔热能斧的是红高达
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 5697#       发表于 2025-1-25 19:31
+
+军团战牢修大c，但是红高达就一个流星锤了，不知道是不是保留实力
+
+*****
+
+####  虛無迴廊  
+##### 5698#       发表于 2025-1-25 19:31
+
+不是鸭也不是牢修太怪了，红高里那么热闹？
+
+*****
+
+####  0aleph37  
+##### 5699#       发表于 2025-1-25 19:31
+
+我记得小册子应该是32p，数了数扫图缺p01-03，30-32
+
+*****
+
+####  纪寞  
+##### 5700#       发表于 2025-1-25 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276108&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-25 19:26</a>
+
+牢修这军团战表现有点堪忧了……那个一剑爆头秒扎古的红高机师真的是他吗（） ...</blockquote>
+我觉得也还好吧，他是为了去解救被夹击的gqx，然后那个位置他自己也跑不掉了，只能尽量防御了。只是这次给了你看他驾驶舱的视角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
