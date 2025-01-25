@@ -695,3 +695,24 @@ Ayaneo 3。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png"
  ...</blockquote>
 笑死，谢谢坛友，很符合我对印特尔和一些厂商软件开发能力的刻板印象。
 
+
+*****
+
+####  泰坦失足  
+##### 1392#       发表于 2025-1-25 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273103&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-25 10:53</a>
+
+Ayaneo 3。 其中一个可换模块有 Steam Controller 和当面腹死胎中 Smach Z 的感觉了。</blockquote>
+都快忘了Smach Z 这玩意了，也算是出(或者吹）的太早了。要在现在，高低真给你做出来一些能卖的机器。
+
+*****
+
+####  巨馍蘸酱  
+##### 1393#       发表于 2025-1-25 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67236950&amp;ptid=2086469" target="_blank">Jigsaw1999 发表于 2025-1-21 11:56</a>
+
+GPD WIN mini 2025看着挺不错的，长172mm。宽109mm，重555g，感觉真的有点适合带出去随时随地玩了。但是884 ...</blockquote>
+其实比F1（没有PRO）也就轻了30多克，然后多了个实体键盘，其他各方面都不如F1。我两个都有，25款mini主要是升级散热，之前的跑20W都费劲，现在终于能28W了，但风扇声音还是很大，代价是比之前款重了三十多克，不知道算不算得不偿失。这几个WIN掌机的升级款都在加重量，飞行家F1 PRO也650克了，ROG X更是逼近700克，感觉相当无语。 F1其实我觉得是综合最好的了，散热和性能释放不弱于其他几个同配置的掌机同时重量比它们轻了50克以上，不像WIN MINI这种轻是靠牺牲散热实现的。只不过我玩F1的时候发现很多时候没有实体键盘还是不方便，所以后来又入了个有实体键盘的，如果你对实体键盘完全没有需求，不建议买WIN MINI
+

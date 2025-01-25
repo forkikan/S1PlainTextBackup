@@ -1313,3 +1313,13 @@ DeepSeek 的潜在心态**
 
 我突然想到海龟汤喂进去咋样？
 
+
+*****
+
+####  colice  
+##### 109#       发表于 2025-1-25 12:05
+
+如果想要用deepseek写八股文啥的，怎么搞比较方便？用网页和客户端好像是得过审查，并不能写的出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
