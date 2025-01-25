@@ -6753,3 +6753,44 @@ gigguk直播看mujica<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这公司还有必要呆下去吗
 
+
+*****
+
+####  KozueAkimoto  
+##### 12439#       发表于 2025-1-25 11:19
+
+看到一个吧有的假药，感觉挺有意思的 转一下<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KozueAkimoto  
+##### 12440#       发表于 2025-1-25 11:20
+
+<img src="https://img.saraba1st.com/forum/202501/25/112050ewry70443et74kh8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7029.png</strong> (561.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 11:20 上传
+
+
+*****
+
+####  ads147147  
+##### 12441#       发表于 2025-1-25 11:21
+
+pv里展现的可以不只是丢书，实际上房间已经被砸了，玩偶书本什么的到处都是。
+
+反正我觉得睦至少要睡两集，大概率不会是睦丢的。当然也不排除可能是心相世界里幻想的砸的到处都是，毕竟之前的mo小剧场里人偶还跳楼了。。
+
+
+*****
+
+####  ads147147  
+##### 12442#       发表于 2025-1-25 11:26
+
+诡计说假药的问题就是在于，正常观众根本没法区别什么是真的信息，什么是假的信息，这样很容易变成魂游剧情解析那样只提取自己有利的论据来论述并且强加相互解释的关系，这样的故事可以称得上是二创，而不是分析。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+还是情报太少，之前讨论的那么顺主要还是三集提前点映的混蛋操作，现在大家都一个起跑线，发散的有点过头了。
+
