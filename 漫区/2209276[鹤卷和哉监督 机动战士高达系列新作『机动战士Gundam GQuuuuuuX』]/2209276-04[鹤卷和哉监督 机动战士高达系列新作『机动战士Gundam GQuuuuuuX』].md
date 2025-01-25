@@ -14383,3 +14383,23 @@ gaoda获.PNG
 
 开头0085已经演两集了，暂时还没有明显的反派役登场，现在无论是博美队还是索冬那边都是按讨喜的方向去塑造的
 
+
+*****
+
+####  psycho_Gadfly  
+##### 5748#       发表于 2025-1-25 23:03
+
+推上搜 あのアホ 有点乐
+
+有人说看完电影 重点三个词 
+
+マチュ 緑のおじさん あのアホ (防止剧透
+
+<img src="https://img.saraba1st.com/forum/202501/25/230144v9zg11ztgl9ezb1b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7612.jpeg</strong> (267.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 23:01 上传
+

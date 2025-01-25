@@ -10082,3 +10082,70 @@ what can i say？
 在我看来除了喵梦个人的描写多一 ...</blockquote>
 我也这么觉得，我觉得旅馆之战的台词理解成不同视角下的情绪化表达就好了，完全没必要加那么多阴谋论。
 
+
+*****
+
+####  江口夕  
+##### 12703#       发表于 2025-1-25 22:58
+
+ 本帖最后由 江口夕 于 2025-1-25 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277488&amp;ptid=2208921" target="_blank">Kal'tsit 发表于 2025-1-25 22:49</a>
+
+都觉得墨提斯最后因为mujica解散问题是真破防吗？说实话不确定剧本到底是不是真这么写的，但是我看完的第一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">她怕的不是mujica解散。
+
+mujica解散不解散本身对她而言无所谓，只要睦老实沉睡。
+
+她在乎的是mujica解散可能伴随的睦抢回人格。因为莫女士食言了
+
+因为莫女士答应了睦会保护mujica才完成的夺舍。
+
+这可是二重人格的文学作品的样板戏。抢夺人格的主导权
+
+*****
+
+####  沙坪坝沙耶香  
+##### 12704#       发表于 2025-1-25 22:59
+
+散团之后小祥又什么都没有了，这时候祥爹会不会趁机跳出来洗白
+
+*****
+
+####  天空塔书记官  
+##### 12705#       发表于 2025-1-25 23:01
+
+木头的表现主要还是在让祥子害怕/讨厌(?)从而远离自己上，我觉得这才是她的主要目的，至于A团则并不是很重要，毕竟在A团睦也并没有感觉有多么开心<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 12706#       发表于 2025-1-25 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277537&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 22:56</a>
+
+一个商业乐队，忽然解散，你知道是什么代价吗？代价就是祥子可以跟他爹一起哔哩哔哩干杯了！</blockquote>
+不是含泪回家继承万亿家产吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12707#       发表于 2025-1-25 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞笑，光看第四集就下定义还很确定的样子，第五集还没出呢
+这是原创番，不到最后没人能确定，现在mujica除了结局五个人he，还有舅舅透露的初华是最后爆的消息外，其他都没法确定
+甚至结局都没法确定会不会来个c团大和解的饺子
+
+
+*****
+
+####  江口夕  
+##### 12708#       发表于 2025-1-25 23:05
+
+ 本帖最后由 江口夕 于 2025-1-25 23:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不是卖弄，祥爸赘婿说，莫女士不会谈吉他我都猜对了。从文中找答案，做阅读理解不就是这番的提壶味
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
