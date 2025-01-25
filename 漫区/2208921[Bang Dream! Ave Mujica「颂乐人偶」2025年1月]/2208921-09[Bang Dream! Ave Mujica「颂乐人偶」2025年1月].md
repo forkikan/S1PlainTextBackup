@@ -6922,3 +6922,17 @@ pv里展现的可以不只是丢书，实际上房间已经被砸了，玩偶书
 而且会骗 ...</blockquote>
 是的，其实这话最大问题之一就是莫姐突然变成了彩笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 12453#       发表于 2025-1-25 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273742&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-25 12:34</a>
+叙诡论最直球的问题，和应该已经没啥可信度的大莫老师阴谋论是一样的：你有诡计不意味着你要做出这么拙劣的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">叙诡就是为这旅馆吵架找补了，瘫坐的祥子先不谈，先把大猫海玲初华这诡异的逻辑找补。并不是我们说叙诡他就是叙诡了，因为这吵的稀烂只能找补他们是演的。
+姐妹们，同伴都疑似二重人格变神经病了，还搁这演奏不演奏退团不退团呢。基础的人文关怀都没有了，还搁这搞女女关系性呢。
+送不送医院不谈，因为没医生。起码你们也人工呼吸一下。之所以说演莫女士，不是说已经谈好了让她滚蛋，而是判断下她到底是装的还是真的，先诊断然后再谈治疗。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

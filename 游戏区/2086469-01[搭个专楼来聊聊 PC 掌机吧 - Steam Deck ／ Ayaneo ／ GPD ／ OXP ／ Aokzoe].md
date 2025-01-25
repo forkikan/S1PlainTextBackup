@@ -752,3 +752,14 @@ f1风噪和散热怎么样</blockquote>
 
 2025-1-25 12:38 上传
 
+
+*****
+
+####  月夜凝雪  
+##### 1397#       发表于 2025-1-25 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273770&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-25 12:38</a>
+
+给 ROG Ally 安装 Bazzite，这时候就知道多 C 口和自带键鼠设备的含金量了</blockquote>
+只有一个USB口是我对大多数win掌机最不爽的地方
+

@@ -787,3 +787,16 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 没有多人模式啊，虽然自2016之后多人模式在id游戏里基本是路边一条了，但这次也算改变祖宗之法了吧。
 
+
+*****
+
+####  牙晓  
+##### 247#       发表于 2025-1-25 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271622&amp;ptid=2184766" target="_blank">灰色的狐狸 发表于 2025-1-25 00:16</a>
+
+我昨天看片+脑补了一下其实战斗反而不会是太大问题
+
+我现在反而担心他地图变成箱庭了就很蛋疼，线性关卡好 ...</blockquote>
+限定版比较喜欢永恒的1比1头盔，戴上玩代入感加强不少
+
