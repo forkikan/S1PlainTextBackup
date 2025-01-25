@@ -106,3 +106,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cmyk1234  
+##### 1651#       发表于 2025-1-25 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272819&amp;ptid=1220112" target="_blank">gearbox 发表于 2025-1-25 09:56</a>
+3.3.96版本引用楼层回复会提示出现未知错误引用失败。是我个人问题么
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+好像验证了手机号之后，不再出现这个错误。
+

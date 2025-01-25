@@ -6936,3 +6936,15 @@ pv里展现的可以不只是丢书，实际上房间已经被砸了，玩偶书
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  暗示我7酱  
+##### 12454#       发表于 2025-1-25 13:02
+
+「初华可能是唯一物理意义上的病人，她对时间、记忆的概念有别常人」
+https://tieba.baidu.com/p/9441718936?see_lz=0
+（分享自贴吧 Lite）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
