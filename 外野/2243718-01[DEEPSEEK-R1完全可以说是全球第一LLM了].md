@@ -1411,3 +1411,13 @@ ds的“联网搜索”只是能让ai自己想关键词然后去调用搜索引�
 
 如果你只是想用它调用单篇贴子，可以自己复制黏贴进去
 
+
+*****
+
+####  moekyo  
+##### 118#       发表于 2025-1-25 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275831&amp;ptid=2243718" target="_blank">关二爷 发表于 2025-1-25 18:42</a>
+这是谁啊</blockquote>
+李彦宏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

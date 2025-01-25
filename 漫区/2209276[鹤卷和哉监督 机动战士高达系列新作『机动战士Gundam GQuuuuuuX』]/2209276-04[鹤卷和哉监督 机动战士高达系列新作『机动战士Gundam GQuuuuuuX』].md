@@ -13629,3 +13629,76 @@ X上緑のおじさん的话题刷的是真的快<img src="https://static.saraba
 
 夏利亚人气厉害啊
 
+
+*****
+
+####  虛無迴廊  
+##### 5686#       发表于 2025-1-25 19:05
+
+现在是三个主要男角色（牢修，夏利亚，首席哥）都有帅哥设定吧？竹的xp发力很大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 5687#       发表于 2025-1-25 19:06
+
+ 本帖最后由 Sliurus 于 2025-1-25 19:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275799&amp;ptid=2209276" target="_blank">xunit 发表于 2025-1-25 18:37</a>
+
+看到这图突然意识到，g-reco已经是10年前的动画了，根本不是最近</blockquote>
+有剧场版，也算是近期吧
+
+*****
+
+####  RE㐅ia  
+##### 5688#       发表于 2025-1-25 19:08
+
+叫你就穿个背心（
+
+<img src="https://img.saraba1st.com/forum/202501/25/190817xvn224w9pvhhj9jh.png" referrerpolicy="no-referrer">
+
+<strong>C51B8B64-629D-4CBD-A31C-4BDFC3621872.png</strong> (301.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/190818fn1v33lj8s1v2p2g.png" referrerpolicy="no-referrer">
+
+<strong>FBC0A45F-C245-4F01-8926-E438BF91BC4A.png</strong> (226.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 19:08 上传
+
+
+*****
+
+####  YU_JI  
+##### 5689#       发表于 2025-1-25 19:10
+
+实在很难不好奇夏亚如果出现在0085会是什么造型
+
+*****
+
+####  七七見奈波  
+##### 5690#       发表于 2025-1-25 19:14
+
+<img src="https://img.saraba1st.com/forum/202501/25/191340d24g2247clzv63bp.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-01-25 19.13.26.png</strong> (199.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/191340y3juz1k299ljwwlw.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-01-25 19.10.33.png</strong> (249.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 19:13 上传
+
+多么熟悉的身影<img src="https://static.saraba1st.com/image/smiley/carton2017/032.png" referrerpolicy="no-referrer">
+

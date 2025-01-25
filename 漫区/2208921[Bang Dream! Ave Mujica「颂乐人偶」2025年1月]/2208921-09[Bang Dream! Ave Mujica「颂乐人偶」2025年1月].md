@@ -8102,3 +8102,73 @@ The DSM-5-TR states that "early life trauma (e.g., neglect and physical, sexual,
 
 人格分裂就是比较罕见的大病了
 
+
+*****
+
+####  玖羽  
+##### 12561#       发表于 2025-1-25 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275928&amp;ptid=2208921" target="_blank">H2Ofrozen 发表于 2025-1-25 18:58</a>
+
+The DSM-5-TR states that "early life trauma (e.g., neglect and physical, sexual, and emotional abus ...</blockquote>
+MyGO的时候关于灯的疑似阿斯伯格，我就看到有学精神科的说过，所有精神疾病都必须由专业医生确诊，普通人不能根据外在看起来像什么就下判断
+
+*****
+
+####  岬开斗  
+##### 12562#       发表于 2025-1-25 19:06
+
+<blockquote>qratosones1337 发表于 2025-1-25 18:21
+但是这一回祥子领导者失能不才是“解散”（姑且这么说）的决定性因素么？又要走音乐路线，又解决不了吉他 ...</blockquote>
+大祥作为队长过于软弱绥靖，压不住喵梦作妖，作完还没有任何惩罚，领导能力确实不行。
+
+但同时大祥的策划和运营也是神级的。
+
+喵梦又有啥呢？抛开缺点，她也没什么突出的优点可以谈啊。“练鼓很努力”是个优点，但这也最多和大祥的“连夜作曲”一个水平，拿什么和最速武道馆比？
+
+*****
+
+####  御幸一也  
+##### 12563#       发表于 2025-1-25 19:08
+
+TVガイド A Stars vol.06
+
+自掃
+
+<img src="https://img.saraba1st.com/forum/202501/25/185133uo00r00rzy6xy5nq.jpg" referrerpolicy="no-referrer">
+
+<strong>Scan2025-01-25_172450_000.jpg</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/185140br7o34w04d0t4f44.jpg" referrerpolicy="no-referrer">
+
+<strong>Scan2025-01-25_174629_006.jpg</strong> (2.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 18:51 上传
+
+
+*****
+
+####  ml1642879  
+##### 12564#       发表于 2025-1-25 19:11
+
+那本楼什么时候批判未麻的部屋，我个人认为这是今敏最佳作品，是不是也要因为精神病症贬为奶龙，啊不是，贬为雷作
+
+*****
+
+####  swessia  
+##### 12565#       发表于 2025-1-25 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275739&amp;ptid=2208921" target="_blank">wzm96816 发表于 2025-1-25 18:27</a>
+睦现在主流的两种推测，去掉超自然，把小莫当做睦心底被压抑的意识。那就是一，有点太接近祥子以至于有点怨 ...</blockquote>
+莫小姐演戏论，如果是四演一，你们啥时候这么有团魂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来最没团魂的是小祥啊，那这得继续修正了
+
+如果是一演四，那莫小姐强度太高了，海玲不提，剩下仨被按着打啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
