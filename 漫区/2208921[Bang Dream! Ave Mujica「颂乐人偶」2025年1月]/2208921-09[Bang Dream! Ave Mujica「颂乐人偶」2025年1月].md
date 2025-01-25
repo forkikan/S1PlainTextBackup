@@ -7564,3 +7564,54 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hulaoda007  
+##### 12515#       发表于 2025-1-25 17:05
+
+不要太指望把看动画和爱人爱角色是一回事的情感寄托运动能手能把自己的推想和作品的内容分的很清楚。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 12516#       发表于 2025-1-25 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">味道越来越对了，就等着漏油什么时候嗷的一声发疯
+
+*****
+
+####  山ノ内花音  
+##### 12517#       发表于 2025-1-25 17:09
+
+该提前等待下一部泥潭的大热原创了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 12518#       发表于 2025-1-25 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275122&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-25 16:50</a>
+
+看漏油在用各种努力做补充甚至援引不少专业知识就只害怕最后真是癫婆大战
+
+比卒还难收尾就搞笑了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以接受颠婆大战啊，就像我看少歌一样
+
+
+*****
+
+####  swessia  
+##### 12519#       发表于 2025-1-25 17:11
+
+看分析这么多感觉真没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 12520#       发表于 2025-1-25 17:12
+
+原创番不就是这点有趣吗？你怎么知道是超鬼还是超神
+
