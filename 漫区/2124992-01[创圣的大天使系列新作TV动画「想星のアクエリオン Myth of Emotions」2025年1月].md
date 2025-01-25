@@ -2184,3 +2184,13 @@ evol看着是比无印乐的，创圣除了机设就不是啥正经片<img src="
 
 自己有产生好感的异性忽然说和自己呆一起好恶心，瞬间情感破防了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mumubear  
+##### 228#       发表于 2025-1-25 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67217331&amp;ptid=2124992" target="_blank">wer4f 发表于 2025-1-18 23:16</a>
+这个系列哪部最好看啊？看完两集想补之前的</blockquote>
+第一部，各种杂兵骚得很。
+
