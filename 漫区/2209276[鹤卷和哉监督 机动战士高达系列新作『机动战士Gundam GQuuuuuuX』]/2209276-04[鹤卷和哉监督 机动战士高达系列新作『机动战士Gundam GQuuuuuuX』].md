@@ -13351,3 +13351,100 @@ G复兴的面具男坚信男主这种精英以后肯定成为独裁者。
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 原来霓虹金认可面具那些种族主义发言吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 5664#       发表于 2025-1-25 15:29
+
+[X 上的 じのう：“ﾊｰﾚﾙﾔｯ #GQuuuuuuX #ジークアクス [url]https://t.co/h6eIfpRiEO](https://x.com/Jinou_rakugaki/status/1882993827532972041)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/25/152853tjgwu3jzfuwqfg1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 15:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/152900ygtzkg8uabz48u80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 15:29 上传
+
+*****
+
+####  Piano-Forest  
+##### 5665#         楼主| 发表于 2025-1-25 15:29
+
+[https://tieba.baidu.com/p/9442742991](https://tieba.baidu.com/p/9442742991)
+[https://tieba.baidu.com/p/9442921518](https://tieba.baidu.com/p/9442921518)
+<img src="https://p.sda1.dev/21/280a497d2ab381935bd114b8681443d6/3f8ab52bd40735fadce4d691d8510fb30f240810.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/aca8370da4a6e1f5e8358cae3712a301/23d761a98226cffc463e279aff014a90f603ea11.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/68e1fbc5897f130a9e185e5c962bd12f/2683b113b07eca80da11a1cfd72397dda1448311.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5a2320ede2afde83cb210bef4223d4d0/ef6628d162d9f2d32905bcc7efec8a136327cc11.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e766d997f0b030f8ed0fe035da24152a/c07514d12f2eb9384079e2da93628535e5dd6f11.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8bb08cdad63f6719b84b552b22bbafaf/aebb0ff5e0fe99254d18f17872a85edf8db17111.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/962ec13eb5dae3355fa094ca9da026fa/40ada594a4c27d1ef831a3ec5dd5ad6eddc43811.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/43e50b958a77eaf7954c6884e31e99f8/39d9f31373f082021d8509170dfbfbedab641b11.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a1508b603b90903a565a882727a39715/de7f0c738bd4b31ced2b0c93c1d6277f9e2ff812.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b4069872b9c978dee8d0c15373601d60/b436642309f790520d09df164af3d7ca7bcbd513.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/e4cf99bf4d6d75bf1ce350f4ce1c9349/9c68733d269759eeb6d4f8e3f4fb43166c22dfa1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/de94b9c4824f4497fa91c53dfea86630/d2b12bf790529822e4dfa1eb91ca7bcb0b46d4b9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3995f493b8a7d9830de19d175372c92e/7dc2172ac65c1038ea9256eaf4119313b17e89b9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1a4eab8962b8c7b603437cb5571ac711/198223e93901213f6ddfd6f412e736d12e2e95b9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2d5fc61e7a95430cdbb6b7cd8a4e079e/459b91de9c82d158cc6dc199c60a19d8bd3e42b9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1f8e41515a1bad7157823dd241924290/421af63f8794a4c254cc7f0348f41bd5ac6e39b9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4b6fbb7840ff3f35383f5246866d823f/23d761a98226cffc46c5279aff014a90f703eaba.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9e2b6f930d10837ce60a62cd4769b685/f64bd0d3572c11df293e270b252762d0f603c2ba.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/eef3cee02afe30909ad63ebd9cf97a05/815c14d3d539b6008921979faf50352ac75cb7ba_compressed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e7397aa0a33e857780f3553e5f937038/ef7e76e736d12f2e6383364809c2d562843568a3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b27f3794f3e8e607c722d3d8d3c73f06/328c8ad3fd1f41349bb69d56631f95cad0c85ea3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/832663f2460e36bd355463f3909f8e68/226f7066d01609249da43a33920735fae7cd34a3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/73fbd27fda2caeda2ac9d39b849b5c27/4e2668ed2e738bd4daa02a19e78b87d6267ff9ac.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d748add501b9b9d2de816a17b6a05cec/3d7ea813632762d073bf3c97e6ec08fa503dc6ac.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/edaece588d8463995451f234daff0b38/fff22e338744ebf8b9f0fc179ff9d72a6159a7ac.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f0ff816be807371a2393588de1a4f3b3/f1aa2ed7912397dd62f8002c1f82b2b7d1a287ac.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d5cf504e67ec8df187e5e3852fe62bc0/bbbc9b389b504fc208de282da3dde71191ef6dac.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 先手必胜| + 2||
+
+查看全部评分
+
+*****
+
+####  Piano-Forest  
+##### 5666#         楼主| 发表于 2025-1-25 15:31
+
+[https://x.com/amiamic/status/1882805809727390054](https://x.com/amiamic/status/1882805809727390054)
+
+今日から入場特典が第2弾に切り替わります～
+
+よろしくお願いします✨
+<img src="https://p.sda1.dev/21/5d20a55c36e456c77669ea8cdde1e68f/20250125_153043.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 5667#       发表于 2025-1-25 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274650&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-1-25 15:08</a>
+
+https://x.com/disemboweled/status/1882814707247272061?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag
+
+独裁者是什么梗 ...</blockquote>
+来自G复国里假面给贝爷的外号，因为贝爷血缘牛逼背景梆硬驾驶技术全片天花板，假面是食用人种的后代，对贝爷又嫉妒又仇恨，认为他迟早会成为高高在上的存在，所以经常喊贝爷为独裁者、杀人犯
+

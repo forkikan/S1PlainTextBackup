@@ -7224,3 +7224,106 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 
 就爱笨蛋美少女，初华是个弱智也不错
 
+
+*****
+
+####  KharaLaplace  
+##### 12483#       发表于 2025-1-25 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272284&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-25 05:43</a>
+都不用看来，第三、四话如果把所有超自然演出都去掉，事实就是这样
+
+睦之前弹吉他弹得好好的，突然说自己 ...</blockquote>
+那观众视角呢。前四集哐哐端出来那么多超自然演出，等到出矛盾了然后告诉我要把这些去掉才能分析得了本质问题，这不是打自己脸吗
+
+一个对台词的前后呼应都追求到病态程度的剧本，在一个炸团级别的矛盾面前，角色间的看法这么重要的信息连一个皱眉流汗的镜头都不给，反而让观众自己做减法然后猜角色到底是怎么想的。这不对吧
+
+剧本里要塞的东西挤爆了主创一点减法不做指望观众自己领会，那为什么不直接把大纲端给我呢
+
+它用超自然演出的方式写出了睦头的问题，也希望观众以这种方式理解和接受。如果这时剧本中的角色反而不能接受人格分裂的说法，那睦头这波问题不纯粹跟闹着玩一样。真这么处理就显得太故弄玄虚了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈曼的YY  
+##### 12484#       发表于 2025-1-25 15:31
+
+<blockquote>AvengerRideon 发表于 2025-1-25 14:52
+有没有可能在mortis看来🐔团才是让睦头痛苦的根源，所以后面公馆对话支离破碎的发言都是为了激化队内矛盾加 ...</blockquote>
+我感觉这是唯一能保住莫姐逼格并且不会太乱的写法了
+
+*****
+
+####  半年  
+##### 12485#       发表于 2025-1-25 15:32
+
+<img src="https://p.sda1.dev/21/ebdc54c2b02cb993f5ba7210d966d5cc/GiETPngacAIgQf1.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/cemoniko/status/1882807286630126034/photo/1](https://x.com/cemoniko/status/1882807286630126034/photo/1)
+
+*****
+
+####  半年  
+##### 12486#       发表于 2025-1-25 15:32
+
+<img src="https://p.sda1.dev/21/6b49e84619a6a388b761ba36d59483b9/GiBPXwlaEAAqIMF.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tea_teacat/status/1882591921962623174/photo/1](https://x.com/tea_teacat/status/1882591921962623174/photo/1)
+
+*****
+
+####  哈曼的YY  
+##### 12487#       发表于 2025-1-25 15:33
+
+真把失忆欧姐搬出来 那不会是被灯或者谁捡到然后春日影脱敏疗法吧
+
+我草我写出来都觉得太变态了
+
+*****
+
+####  影伴光生  
+##### 12488#       发表于 2025-1-25 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274632&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-25 15:03</a>
+若叶睦，你不许长眠！ https://b23.tv/RCswguA</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么莫女士用的假面骑士drive的施工现场这一招
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 12489#       发表于 2025-1-25 15:34
+
+脑洞
+
+莫回到家中趴床上哭
+
+这时走过来三个玩偶一边围观一边说
+
+“莫提斯好像被干掉了”
+
+“毕竟她只是四天王里最弱的一个”
+
+“这点打击就承受不住，净给我们里人格丢脸”
+
+
+*****
+
+####  哈曼的YY  
+##### 12490#       发表于 2025-1-25 15:36
+
+你这母鸡卡是无尽战神吗
+
+*****
+
+####  厚乳果珍爽  
+##### 12491#       发表于 2025-1-25 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说过好多次了，在一个美少女组团搞乐队的动画里，需要对他们进行精神分析的时候，就已经不正常了。
+
+因为你没办法用常规手段解释清楚这么发生的原因，所以需要动用超越观众获取的信息来进行解释。
+
+这本身就是一个非常kuso的事情，就像你在卖火柴的小女孩的故事里分析出，主角是来自外太空的外星人，她点的火柴只是給她外太空伙伴打信号来接她一样，你看她已经是死了，实际上她已经被她同伴接走了一样。
+
