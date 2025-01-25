@@ -6967,3 +6967,17 @@ https://tieba.baidu.com/p/9441718936?see_lz=0
 
 毒舌老外很喜欢Mujica和第四集，看来是环大陆好评
 
+
+*****
+
+####  swessia  
+##### 12457#       发表于 2025-1-25 13:26
+
+重看了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前面可以说莫小姐和初华在下大棋，但后面喵梦海玲真不像演的，我倾向小莫真的是菜，然后顺带把初华的小九九给爆了
+
+PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
+
+小莫破防自闭想和吉他里的睦说话，然后被睦破防了开始疯狂拆家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜就菜到底
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -820,3 +820,15 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 昨天看完了演示，话说这代加强地面战的话，会不会把跳给抠了，我好像没在演示里见到跳唉，大概我看漏了？
 
+
+*****
+
+####  希望之异热同心  
+##### 250#       发表于 2025-1-25 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274040&amp;ptid=2184766" target="_blank">Firvox 发表于 2025-1-25 13:15</a>
+昨天看完了演示，话说这代加强地面战的话，会不会把跳给抠了，我好像没在演示里见到跳唉，大概我看漏了？ ...</blockquote>
+跳还是有吧，不然地图设计会很麻烦的，但有没有二段跳是个问题，二段跳是uac的高科技鞋子给的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
