@@ -10617,3 +10617,40 @@ mygo直到第七集才第一次Live, 中间就一个春日影的全曲闪回
 
 至于喵梦自己觉得被呛了。。。大概率因为在墨眼里这人无关紧要外加喵梦确实菜
 
+
+*****
+
+####  吹楼伞人  
+##### 12742#       发表于 2025-1-26 00:30
+
+<img src="https://img.saraba1st.com/forum/202501/26/002954jzgq3cexoz4q64h6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 00:29 上传
+
+
+*****
+
+####  玖羽  
+##### 12743#       发表于 2025-1-26 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278114&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-26 00:26</a>
+
+我觉得她根本不CARE喵梦，说博多人偶之类的是为了打破祥子立的人设，彻底破防母鸡卡原来的路线</blockquote>
+对，迄今为止所有“破坏Mujica世界观”的行为加起来都没有“博多人偶”四个字的破坏力大，我看的时候第一反应是心里拔凉拔凉的
+
+因为这是把一个架空的、幻想的、超现实的设定和一种现实存在的传统手工艺品联系起来，即使说把世界观扔在地上用脚踩也不为过
+
+（这就是博多人偶：）
+
+<img src="https://img.saraba1st.com/forum/202501/26/003617xm6984c69mt94mow.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (38.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 00:36 上传
+
