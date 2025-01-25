@@ -9908,3 +9908,177 @@ what can i say？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pliee  
+##### 12692#       发表于 2025-1-25 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277470&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 22:46</a>
+
+这么说吧，在第四集里mo女士跟喵梦上电视，抢话喵梦，明显是故意的，与其说是故意不如说是报复喵梦女士，不 ...</blockquote>
+真这样就好了，第四集后半段我都想给木头p个红鼻子上去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kal'tsit  
+##### 12693#       发表于 2025-1-25 22:49
+
+都觉得墨提斯最后因为mujica解散问题是真破防吗？说实话不确定剧本到底是不是真这么写的，但是我看完的第一感觉就是破防段墨提斯也是在演，而且是延续性的同一段表演
+
+墨提斯这集干的事情就像是一个对祥子充满怨气的观众，跳进睦子米身体里疯狂地对祥子阴阳怪气，还是用夹子音玩梗的方式；一整集里哪里不夹了呢？就是和祥子一对一，说“（睦子米已经死了）我是认真的”那句。在我看来意思就是，之前有别人在的时候用只有祥子听得懂的回旋镖刺激祥子，现在和祥子一对一就可以直球表达自己的情感诉求了（继续这样的话，睦可能就回不来了）。睦：你问我是认真的吗？你当时说“软弱的我已经死了”有多认真我现在就有多认真。
+
+再看墨提斯破防段，很明显就是夹得不行+表演气息很重，简直是在cosplay soyo继续阴阳祥子，要说这是真破防真的很怪诶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 12694#       发表于 2025-1-25 22:53
+
+那还是伤害祥子比较好
+毕竟无论怎么伤害她
+她最后都是要背负人生的
+
+*****
+
+####  zhzij111  
+##### 12695#       发表于 2025-1-25 22:53
+
+小祥要是有这个能力1天内把队里这群反骨仔组织起来4演1莫提斯，c团也不至于被她操作炸了
+
+*****
+
+####  novalli  
+##### 12696#       发表于 2025-1-25 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277458&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-25 22:43</a></blockquote>
+好像没有李子的单人照？
+初华去哪了.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 12697#       发表于 2025-1-25 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277483&amp;ptid=2208921" target="_blank">pliee 发表于 2025-1-25 22:48</a>
+
+真这样就好了，第四集后半段我都想给木头p个红鼻子上去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们都认定这团就一定会炸？有没有可能只是活动中止呢？
+
+而且，你怎么就知道不是mo女士故意引导要炸团的，对他来说祥子肯定比乐队重要啊
+
+祥子要坏，是来自两个方面的问题，一个是家庭，另外一个是乐队，前者目前被丢一边了，现在乐团的情况随着喵梦的得寸进尺只会越来越糟，最后变成了不是祥子相像的样子了，那乐团的存在还有什么意义呢？
+
+不如按下暂停键，让团里的人员好好想想接下来到底要怎么办？
+
+*****
+
+####  天空塔书记官  
+##### 12698#       发表于 2025-1-25 22:54
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 22:56 编辑 
+
+所以设局说的最大问题就是没法确定局是否对莫提斯(睦)起效了，如果是木头主动要暂停A团的活动，那内部对立的激化本来就是她计划的一部分，那其他人到底设了一个什么局呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑猫猫  
+##### 12699#       发表于 2025-1-25 22:54
+
+<blockquote>山ノ内花音 发表于 2025-1-25 22:36
+只能说事已至此 双重人格 确定墨酱是坏的 说实话是更简单的写法</blockquote>
+确实更简单了，但是这情景隔壁棚给我演示过一遍了，难道后面会出现祥子忘记自己会健忘所以全部记起来了的离谱至极的桥段观众会满意。不追究更细一些的话全员伪人，现在只是富有争议不意味着真补救不了
+
+*****
+
+####  江口夕  
+##### 12700#       发表于 2025-1-25 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我再给你们看明白一点我为什么说祥子没参与。
+
+<img src="https://img.saraba1st.com/forum/202501/25/224627zuisd5dukinfjuw6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:46 上传
+
+这里大猫说的其实是把睦这个物理上的人踢出mujica，这里称谓是睦子，问的是祥子，而且是语重心长的说
+
+<img src="https://img.saraba1st.com/forum/202501/25/224809onznyy8eyy5x55cn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (416.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:48 上传
+
+祥子迟疑沉默发抖
+
+<img src="https://img.saraba1st.com/forum/202501/25/224841s1rmrmtzgmmofgt1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (365.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:48 上传
+
+祥子希望睦本人回来
+
+<img src="https://img.saraba1st.com/forum/202501/25/224926dczlgsbl5pilblgc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (406.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:49 上传
+
+大猫开始表演
+
+<img src="https://img.saraba1st.com/forum/202501/25/225003vrw0acfdsew6rdv0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (310.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:50 上传
+
+我开始是欣赏你的，跟你一起往上爬，但是我现在不想跟你玩过家家，我想尽快确定睦是不是有问题，我没时间
+
+<img src="https://img.saraba1st.com/forum/202501/25/225226zhx35blzhibpk5lx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (419.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 22:52 上传
+
+你说过有个人退出，就是mujica解散，莫女士和睦一换一，就不算解散
+
+*****
+
+####  厚乳果珍爽  
+##### 12701#       发表于 2025-1-25 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么还有人认为还有四演一的情况？全程不都是mo女士在引导炸团吗？
+
+一个商业乐队，忽然解散，你知道是什么代价吗？代价就是祥子可以跟他爹一起哔哩哔哩干杯了！
+
+*****
+
+####  wwwttth  
+##### 12702#       发表于 2025-1-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277428&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-25 22:38</a>
+
+可能是我对角色完全没有“预期”的原因吧，我一直get不到哪里人设崩塌了。
+
+在我看来除了喵梦个人的描写多一 ...</blockquote>
+我也这么觉得，我觉得旅馆之战的台词理解成不同视角下的情绪化表达就好了，完全没必要加那么多阴谋论。
+
