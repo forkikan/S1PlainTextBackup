@@ -7859,3 +7859,62 @@ wsd这样搞更让人想不起那个无意中帮助灯宝的大金毛了，只�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 12541#       发表于 2025-1-25 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274071&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-1-25 13:23</a>
+
+毒舌老外很喜欢Mujica和第四集，看来是环大陆好评</blockquote>
+他们好像就喜欢爆，只要够爆就行
+
+这个做单集reaction的老外也是，称第四话是他最喜欢的一话
+[https://www.bilibili.com/video/BV1gjfRYoEzJ/](https://www.bilibili.com/video/BV1gjfRYoEzJ/)
+
+
+*****
+
+####  NOYURINOLIFE  
+##### 12542#       发表于 2025-1-25 18:20
+
+我觉得有些以初华为出发点的假药还是挺有意思的，因为就番剧本身来说初华这四集就很奇怪，我是真的不信一个二偶动画会这样塑造一个主唱，而且独角兽有说过mujica的创作有参考剧本杀，很多假药也是基于剧情本身来推测的（当然不排除一些过度推测）
+
+*****
+
+####  qratosones1337  
+##### 12543#       发表于 2025-1-25 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275557&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-25 18:01</a>
+大祥把队伍带成了最速武道馆，喵梦独走摘面具蹭队友流量没蹭到还把睦头搞炸了。
+
+能力上的差距是实实在在 ...</blockquote>
+但是这一回祥子领导者失能不才是“解散”（姑且这么说）的决定性因素么？又要走音乐路线，又解决不了吉他的问题，那咋整？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 12544#       发表于 2025-1-25 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275630&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-25 18:12</a>
+
+还没实锤是双重人格呢，目前看来是演出效果的成分居多</blockquote>
+用剧里的其他人的逻辑来看，双重人格甚至不是一个值得讨论的问题
+
+双重人格的判断是谁下的？——祥子
+
+祥子是心理学专家吗？——不是
+
+祥子怎么下的判断？——拽出去单独谈了一会
+
+祥子和对方是什么关系？——大小姐青梅竹马
+
+对方有什么问题？——自称完全不会自己擅长的乐器
+
+然后祥子说：这是双重人格，你说是双重人格就是双重人格？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer"> 
+
