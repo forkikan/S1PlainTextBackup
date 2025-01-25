@@ -6889,3 +6889,36 @@ pv里展现的可以不只是丢书，实际上房间已经被砸了，玩偶书
 
 祥子现在撑死了是有些菜，但你要说坏真得搭不上，也许要坏是要成为她的前队友后才会被重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 12451#       发表于 2025-1-25 12:42
+
+有一說一，
+
+鍵帽在入團前真的已經是在單幹
+
+祥子才是那個創業的
+
+你說鍵帽是底邊
+
+那祥也是個帶業餘團也能帶散的
+
+論實續兩人在團裡也就在爭老四
+
+都是弟弟就別拿成就說事了
+
+
+*****
+
+####  aptx8285144  
+##### 12452#       发表于 2025-1-25 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268121&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-24 16:19</a>
+
+大伙想给莫姐找补主要是铺垫了这么久登场又那么装逼还给祥老师放狠话结果是个彩笔完全接受不了啊
+
+而且会骗 ...</blockquote>
+是的，其实这话最大问题之一就是莫姐突然变成了彩笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

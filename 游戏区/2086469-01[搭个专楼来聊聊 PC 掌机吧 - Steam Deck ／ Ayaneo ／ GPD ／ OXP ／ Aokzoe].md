@@ -736,3 +736,19 @@ f1风噪和散热怎么样
 f1风噪和散热怎么样</blockquote>
 我觉得挺好的，跟手里的mini对比很明显，即使是升级了散热的25款，虽然能压28W了，但发热和风噪还是比23款的F1明显很多
 
+
+*****
+
+####  bypass  
+##### 1396#         楼主| 发表于 2025-1-25 12:38
+
+给 ROG Ally 安装 Bazzite，这时候就知道多 C 口和自带键鼠设备的含金量了 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/25/123802faitcrbereac9cem.jpg" referrerpolicy="no-referrer">
+
+<strong>e6c1735c5568b5dad7e6eb2d31b4e04.jpg</strong> (162.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 12:38 上传
+
