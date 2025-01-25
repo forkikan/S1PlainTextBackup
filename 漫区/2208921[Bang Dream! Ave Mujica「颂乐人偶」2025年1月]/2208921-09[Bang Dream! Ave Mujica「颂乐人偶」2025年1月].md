@@ -10521,3 +10521,99 @@ mo在听到大喵的提问后也“欸——”了一下，说明mo在来之前�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  江口夕  
+##### 12734#       发表于 2025-1-26 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说，我不觉得莫女士表演很好。
+流泪放吉他之前都是原本睦的表演。真正的表演是在不会生活里不断抄袭别人的话的。
+估计后面会有体现。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 12735#       发表于 2025-1-26 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278060&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 00:16</a>
+
+莫女士探头那里翻译是“叫我了吗"。里面有“你们谈到我了吗"的意味，并不是之前有人找她</blockquote>
+不是，那句话就是简单的“呼んだ？”，如果是自己找过来的，至少也应该是“你们在谈我吗？”（私のことを話した？）
+
+祥子除外，房间里的三个人一定有人叫Mortis过来，不然不会这么说，这里面肯定隐瞒了什么
+
+*****
+
+####  pliee  
+##### 12736#       发表于 2025-1-26 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277516&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 22:53</a>
+
+为什么你们都认定这团就一定会炸？有没有可能只是活动中止呢？
+
+而且，你怎么就知道不是mo女士故意引导要 ...</blockquote>
+那她对祥子说的要维持乐队也是演的呗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正这里人格目前来看就是单纯的菜，要我说还不如木头，照你说的炸团都是墨提斯引导安排的，那无敌了，怎样才能培育出这么一个里人格的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdeplee  
+##### 12737#       发表于 2025-1-26 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277990&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-26 00:04</a>
+
+顺带说一句 mujica肉眼可见第五集大概率没live  这五集就开头一首歌是不是含量太低了 ...</blockquote>
+mygo直到第七集才第一次Live, 中间就一个春日影的全曲闪回
+
+*****
+
+####  山ノ内花音  
+##### 12738#       发表于 2025-1-26 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278087&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 00:20</a>
+老实说，我不觉得莫女士表演很好。
+流泪放吉他之前都是原本睦的表演。真正的表演是在不会生活里不断抄袭别 ...</blockquote>
+还真是 第三集结尾的表演是有神性的 甚至用的声线也不一样
+不知道是不是分集演出不一样导致的差别 还是有意的
+
+*****
+
+####  江口夕  
+##### 12739#       发表于 2025-1-26 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278088&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-26 00:21</a>
+不是，那句话就是简单的“呼んだ？”，如果是自己找过来的，至少也应该是“你们在谈我吗？”（私のことを ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人找应该是我来了。为什么要隐藏找她的人。不要自己吓自己。莫老师人设就是巨婴
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 12740#       发表于 2025-1-26 00:23
+
+祥子虽然说着欢迎来到ave mujica的世界，但实际上却从没有放任何其他一个人进入，即使是演奏乐曲的乐队成员在这个世界观里也只是没有自我意志的人偶，祥子的音乐表达是单向的，是封闭的，是某种自我的囚禁与发泄，所以这无法让其他人产生共鸣，只能靠作为噱头的戏剧编排来吸引观众
+
+所以她需要学会开放与包容，从与命运的半身共享开始，到逐步让乐队的成员以真实的姿态融入世界观的创作，而不是被神明指定的名字，这就是成长
+
+神明不是用娃娃过家家的小姑娘，而是引导众人的灯塔，是哭泣呐喊后的优雅与高贵，是经历风雨后的微笑
+
+神明回应众人的祈求，也被众人所塑造，她不是空壳般的偶像，而应该是一个真实存在的自我，“祥子”必须成为“祥子”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ntrntr1  
+##### 12741#       发表于 2025-1-26 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277470&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 22:46</a>
+
+这么说吧，在第四集里mo女士跟喵梦上电视，抢话喵梦，明显是故意的，与其说是故意不如说是报复喵梦女士，不 ...</blockquote>
+我觉得她根本不CARE喵梦，说博多人偶之类的是为了打破祥子立的人设，彻底破防母鸡卡原来的路线
+
+至于喵梦自己觉得被呛了。。。大概率因为在墨眼里这人无关紧要外加喵梦确实菜
+

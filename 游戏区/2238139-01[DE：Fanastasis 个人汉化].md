@@ -1035,3 +1035,16 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ziyuan327  
+##### 97#       发表于 2025-1-26 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277120&amp;ptid=2238139" target="_blank">blackll7 发表于 2025-1-25 21:56</a>
+
+其实这游戏有寝室，解锁记忆可以去人物个人精神空间看剧情（
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那再问个问题，被一圈宝珠围着的红眼少女要杀吗？是不是只有干掉她才能拿到那个魔法钥匙。
+
