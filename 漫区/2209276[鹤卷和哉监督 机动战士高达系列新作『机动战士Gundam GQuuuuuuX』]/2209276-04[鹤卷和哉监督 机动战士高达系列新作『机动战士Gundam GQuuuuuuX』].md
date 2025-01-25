@@ -13471,3 +13471,41 @@ attachimg]1826224[/attachimg]</blockquote>
 X 上的 じのう：“ﾊｰﾚﾙﾔｯ #GQuuuuuuX #ジークアクス [https://t.co/h6eIfpRiEO” / X](https://t.co/h6eIfpRiEO” / X)</blockquote>
 这什么动作。。。切仁义么。。。
 
+
+*****
+
+####  没取名啊  
+##### 5670#       发表于 2025-1-25 16:09
+
+剧场版会上映多久？二月中旬去日本玩的话还能看得上吗？
+
+
+*****
+
+####  岸浪白野  
+##### 5671#       发表于 2025-1-25 16:14
+
+重点还是这是捏他斩服少女的图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNINSTALL42  
+##### 5672#       发表于 2025-1-25 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274866&amp;ptid=2209276" target="_blank">pu 发表于 2025-1-25 15:56</a>
+
+这什么动作。。。切仁义么。。。</blockquote>
+KILL LA KILL的梗吧
+
+*****
+
+####  Toby_dak  
+##### 5673#       发表于 2025-1-25 16:17
+
+<blockquote>引用第5669楼没取名啊于2025-01-25 17:09发表的  :
+
+剧场版会上映多久？二月中旬去日本玩的话还能看得上吗？</blockquote>
+2月中应该能看到，至少播1个月没问题。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
