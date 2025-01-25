@@ -7188,3 +7188,31 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 
 有没有可能在mortis看来🐔团才是让睦头痛苦的根源，所以后面公馆对话支离破碎的发言都是为了激化队内矛盾加速🐔团的谢幕呢<img src="https://p.sda1.dev/21/a50171eb5c4dfb69b3ecc75ab898b3ef/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 12479#       发表于 2025-1-25 15:02
+
+一个想法
+
+牢墨不会弹吉他其实是给中之人结月宝水平不行圆场（望向kdhr
+
+*****
+
+####  huxiaopao163  
+##### 12480#       发表于 2025-1-25 15:02
+
+听说4-6集都是制作组预料的舆论走低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 12481#       发表于 2025-1-25 15:03
+
+若叶睦，你不许长眠！ [https://b23.tv/RCswguA](https://b23.tv/RCswguA)
+<img src="https://p.sda1.dev/21/3402f8c15daba877958c00bfda5c6b04/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/528eb7484a54669d88356e8f92711f43/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a10e0f5bcf66279c9e66ac71f554cb74/image.jpg" referrerpolicy="no-referrer">
+
