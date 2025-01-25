@@ -8077,3 +8077,28 @@ mygo11集之后，当时我就在专楼说过，别过度入脑假药和二创�
 
 （当然我觉得不可能是，不然实锤了也太变态了）
 
+
+*****
+
+####  H2Ofrozen  
+##### 12559#       发表于 2025-1-25 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275827&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-25 18:42</a>
+
+最好别把精神问题当成什么时尚单品，这是疾病而不是超能力，而且单纯因为心理问题就发展成严重病患的只有很 ...</blockquote>
+The DSM-5-TR states that "early life trauma (e.g., neglect and physical, sexual, and emotional abuse, usually before ages 5-6 years) represents a major risk factor for dissociative identity disorder."(p333) Other risk factors reported include painful medical procedures, war, terrorism, or being trafficked in childhood.(p333) Dissociative disorders frequently occur after trauma, and the DSM-5-TR places them after the chapter on trauma- and stressor-related disorders to reflect this close relationship between complex trauma and dissociation.(p329)
+
+其实我单纯有个疑问，因为已经见过不止一个像你这样谈精神科色变的了。在虚构作品里对现实中存在的症状进行艺术化加工对你们来说真的是莫大的禁忌吗？是因为你们本人的痛苦体验导致自己感到被冒犯还是因为别的什么？
+
+*****
+
+####  ntrntr1  
+##### 12560#       发表于 2025-1-25 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275779&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-25 18:34</a>
+
+虽然观众很喜欢爆爆爆，但是严肃点说，制作组很清楚给角色实锤了有精神病代表什么：制作组敢实锤，观众就敢 ...</blockquote>
+虽然我同意你，还是抓个虫，阿斯伯格送医院也没用，没法治的，确诊了也就知道了，只能自己调理去适应社会，年龄很小提前干预更方便演得像正常人而已，而且ASD说实话其实影响不是很大，差不多就等于一个自带的特性
+
+人格分裂就是比较罕见的大病了
+
