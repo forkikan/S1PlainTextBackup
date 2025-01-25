@@ -12331,3 +12331,102 @@ GQX这个镂空头真挺帅的
 
 2025-1-25 10:57 上传
 
+
+*****
+
+####  纪寞  
+##### 5578#       发表于 2025-1-25 11:00
+
+想问一下看过电影的人，玛秋第一次进入kirakira时有没有出现红高达的身影？
+
+*****
+
+####  YU_JI  
+##### 5579#       发表于 2025-1-25 11:06
+
+这些是紧急访谈放出来的设定图吗？
+
+*****
+
+####  刺客ares  
+##### 5580#       发表于 2025-1-25 11:07
+
+<blockquote>纪寞 发表于 2025-1-25 11:00
+想问一下看过电影的人，玛秋第一次进入kirakira时有没有出现红高达的身影？ ...</blockquote>
+有的，那个片段她在新人类空间侧目，能看到红高达在远处两眼圆睁瞪着她，分镜位置参考阿姆罗和拉拉的分镜
+
+*****
+
+####  PascalLefèvre  
+##### 5581#       发表于 2025-1-25 11:09
+
+不得不说这人设比水魔潮多了
+
+*****
+
+####  psycho_Gadfly  
+##### 5582#       发表于 2025-1-25 11:11
+
+<blockquote>YU_JI 发表于 2025-1-25 11:06
+这些是紧急访谈放出来的设定图吗？</blockquote>
+像是第二个特典里的
+
+*****
+
+####  Aaa炒面面包批发  
+##### 5583#       发表于 2025-1-25 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273181&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-25 11:06</a>
+这些是紧急访谈放出来的设定图吗？</blockquote>
+访谈26号才上，这是场特的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  YU_JI  
+##### 5584#       发表于 2025-1-25 11:14
+
+这么一看喵安确实高的吓人，尤其是这连衣裙一穿
+
+*****
+
+####  王留美  
+##### 5585#       发表于 2025-1-25 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273181&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-25 11:06</a>
+
+这些是紧急访谈放出来的设定图吗？</blockquote>
+今天开始的上映二周目的新特典吧
+
+*****
+
+####  王留美  
+##### 5586#       发表于 2025-1-25 11:16
+
+从设定图上看不出来有牙齿啊……
+
+*****
+
+####  RE㐅ia  
+##### 5587#       发表于 2025-1-25 11:17
+
+hmmmmmm
+
+<img src="https://img.saraba1st.com/forum/202501/25/111707vmwrlpop7rlz7zb6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>86F86E4F-12BE-4717-8270-E137DB0BDEDB.jpeg</strong> (45.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/111707owo0bhiihhy2yino.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D6C44B7A-41D1-4BD4-BEFB-AE28EA508157.jpeg</strong> (185.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 11:17 上传
+
