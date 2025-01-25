@@ -1205,3 +1205,25 @@ r1可以联网搜索，两个可以一起开了
 
 求一个可以瑟瑟的模型
 
+
+*****
+
+####  流缨  
+##### 100#       发表于 2025-1-25 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67251297&amp;ptid=2243718" target="_blank">有鱼 发表于 2025-1-23 01:46</a>
+
+有没有傻瓜方案，调用 v3 的 api 搞翻译啊，用 chat 界面很麻烦
+
+论坛助手,iPhone ...</blockquote>
+[https://immersivetranslate.com/zh-Hans/](https://immersivetranslate.com/zh-Hans/)
+
+沉浸式翻译，市面上应该找不到比他更好的解决方案了，非常傻瓜，到deepseek生成api key填上去完事
+
+*****
+
+####  lilisipis  
+##### 101#       发表于 2025-1-25 09:38
+
+AMD宣布要集成deepseek了，苏妈能不能崛起痛击皮衣黄
+

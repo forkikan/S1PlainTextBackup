@@ -102,68 +102,69 @@ if __name__ == '__main__':
                     res = []
                     for post in b:
                         if 今日日期 in post:
+                            print(post)
                             post1 = post
                             post2 = post
                             data={}
-                            data['id'] = re.findall(r"####\s\s([^#]+)\n#", post)[0]
+                            data['id'] = re.findall(r"^####[^#]{2}([^#]+)\n#####", post)[0]
                             # data['level'] = str(filepath)+''.join(re.findall(r"#####\s(\d+)#", post1))
                             data['time'] = re.findall(r"发表于\s(\d{4}-\d{1,2}-\d{1,2}) \d{2}:\d{2}", post2)[0]
-                            if data['id'] and data['time'] == 今日日期:
-                                res.append(data['time'])
-                                if 板块 != "手游战斗":
-                                    for 分词结果 in tok(提取回帖(post1)):
-                                        if 分词结果 :
-                                            for 分词 in 分词结果:
-                                                if len(分词) >1 and 分词 not in 停用词表:
-                                                    词云数据.append(分词)
-                    threadid = re.findall(r"\d{5,9}", str(file))[0]
-                    if Counter(res).get(今日日期, 0) > 0:
-                        if threadid in 板块字典.keys():
-                            板块字典[threadid] = 板块字典[threadid] + Counter(res).get(今日日期, 0)
-                        else:
-                            板块字典[threadid] = Counter(res).get(今日日期, 0)
-        词云排序 = sorted(Counter(词云数据).items(),key=lambda x:x[1],reverse=True)
-        回帖字符串 = f"{回帖字符串}[b]{板块}（{sum(板块字典.values())}）[/b]\n"
-        回帖排序 = sorted(板块字典.items(),key=lambda x:x[1],reverse=True)
-        回帖序号 = min(len(回帖排序),20)
-        with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
-            帖子数据=json.load(f)
-        for i in range(回帖序号):
-            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]{回帖排序[i][1]}[/b]）\n"
-        if 板块 != "手游战斗":
-            回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
-            回帖字符串 = f"{回帖字符串}===========\n\n"
-    #print(回帖字符串)
-    with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
-        cookie_str1 = f.read()
-    cookie_str = repr(cookie_str1)[1:-1]
-    cookies = {}
-    for line in cookie_str.split(';'):
-        key, value = line.split('=', 1)
-        cookies[key] = value
-    headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
-    ''' 获取formhash'''
-    RURL = 'https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
-    s1 = requests.get(RURL, headers=headers,  cookies=cookies)
-    content = s1.content
-    while True:
-        rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
-        if len(rows)!=0:
-            formhash = rows[0]
-            print('formhash is: ' + formhash)
-            subject = u''
-            # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
-            # s = requests.get(Aurl)
-            # threadid = s.content.decode('utf-8')
-            '''回帖ID，手动修改'''
-            threadid = 2143473
-            '''回帖ID，手动修改'''
-            replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
-            #url为要回帖的地址
-            Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-            req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
-            print(req)
-            break
-        else:
-            print('none formhash!')
-            continue
+                            # if data['id'] and data['time'] == 今日日期:
+                            #     res.append(data['time'])
+                            #     if 板块 != "手游战斗":
+                            #         for 分词结果 in tok(提取回帖(post1)):
+                            #             if 分词结果 :
+                            #                 for 分词 in 分词结果:
+                            #                     if len(分词) >1 and 分词 not in 停用词表:
+                            #                         词云数据.append(分词)
+                    # threadid = re.findall(r"\d{5,9}", str(file))[0]
+                    # if Counter(res).get(今日日期, 0) > 0:
+                    #     if threadid in 板块字典.keys():
+                    #         板块字典[threadid] = 板块字典[threadid] + Counter(res).get(今日日期, 0)
+                    #     else:
+                    #         板块字典[threadid] = Counter(res).get(今日日期, 0)
+    #     词云排序 = sorted(Counter(词云数据).items(),key=lambda x:x[1],reverse=True)
+    #     回帖字符串 = f"{回帖字符串}[b]{板块}（{sum(板块字典.values())}）[/b]\n"
+    #     回帖排序 = sorted(板块字典.items(),key=lambda x:x[1],reverse=True)
+    #     回帖序号 = min(len(回帖排序),20)
+    #     with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
+    #         帖子数据=json.load(f)
+    #     for i in range(回帖序号):
+    #         回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]{回帖排序[i][1]}[/b]）\n"
+    #     if 板块 != "手游战斗":
+    #         回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
+    #         回帖字符串 = f"{回帖字符串}===========\n\n"
+    # #print(回帖字符串)
+    # with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
+    #     cookie_str1 = f.read()
+    # cookie_str = repr(cookie_str1)[1:-1]
+    # cookies = {}
+    # for line in cookie_str.split(';'):
+    #     key, value = line.split('=', 1)
+    #     cookies[key] = value
+    # headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
+    # ''' 获取formhash'''
+    # RURL = 'https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
+    # s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+    # content = s1.content
+    # while True:
+    #     rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
+    #     if len(rows)!=0:
+    #         formhash = rows[0]
+    #         print('formhash is: ' + formhash)
+    #         subject = u''
+    #         # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
+    #         # s = requests.get(Aurl)
+    #         # threadid = s.content.decode('utf-8')
+    #         '''回帖ID，手动修改'''
+    #         threadid = 2143473
+    #         '''回帖ID，手动修改'''
+    #         replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
+    #         #url为要回帖的地址
+    #         Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+    #         req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
+    #         print(req)
+    #         break
+    #     else:
+    #         print('none formhash!')
+    #         continue
