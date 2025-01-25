@@ -7421,3 +7421,34 @@ mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对�
 <img src="https://p.sda1.dev/21/148498c92ed11d089519537b191cd236/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/6029edff87ebdf0f1decd49651c5c559/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 12501#       发表于 2025-1-25 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274955&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-25 16:17</a>
+楼友对路灯变成夏日大三角有啥头绪吗？</blockquote>
+这不就视角差 说明边上还有一列路灯
+
+*****
+
+####  厚乳果珍爽  
+##### 12502#       发表于 2025-1-25 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274955&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-25 16:17</a>
+
+楼友对路灯变成夏日大三角有啥头绪吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种分析半天就怕搞最后就只是作画失误
+
+*****
+
+####  gaayas  
+##### 12503#       发表于 2025-1-25 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274071&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-1-25 13:23</a>
+毒舌老外很喜欢Mujica和第四集，看来是环大陆好评</blockquote>
+虽然不是很懂毒舌老外一个人怎么环大陆，但是这些年环大陆好评的都是烂片吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
