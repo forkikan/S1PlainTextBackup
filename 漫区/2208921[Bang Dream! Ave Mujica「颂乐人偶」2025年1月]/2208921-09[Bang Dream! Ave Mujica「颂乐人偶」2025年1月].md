@@ -10188,3 +10188,30 @@ mygo没有五个神经病 还是正常人范畴</blockquote>
 
 其实参考mujica是“无自我”说去看待五个角色反而会好理解些。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 12713#       发表于 2025-1-25 23:25
+
+如果说戴上面具会让睦的道德负罪感降低，那摘下面具后她就要面对更为强烈的负罪感冲击，尤其是她明白这么做是会伤害祥子的情况下，她会感到后悔吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12714#       发表于 2025-1-25 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们都漏了大猫演戏说最大的铺垫，就是这集说的她是演艺学校的，会演戏，还有家人侠那段戏。
+还有之前对睦那个瘫坐的不甘心，但是对后面的莫女士的表演并没有这么震惊。那个瘫坐的状态其实是睦本人不是莫女士
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 12715#       发表于 2025-1-25 23:27
+
+口罩比眼罩在美顏方面好太多了…….
+
