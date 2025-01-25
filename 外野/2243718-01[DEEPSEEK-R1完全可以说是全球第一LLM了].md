@@ -1467,3 +1467,16 @@ ds的“联网搜索”只是能让ai自己想关键词然后去调用搜索引�
 
 关于AI大模型的使用教程有推荐吗？
 
+
+*****
+
+####  纯阳宫道士  
+##### 122#       发表于 2025-1-25 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272710&amp;ptid=2243718" target="_blank">流缨 发表于 2025-1-25 09:37</a>
+
+https://immersivetranslate.com/zh-Hans/
+
+沉浸式翻译，市面上应该找不到比他更好的解决方案了，非常傻瓜 ...</blockquote>
+马克下，好用，谢谢老哥
+

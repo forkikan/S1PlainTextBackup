@@ -854,3 +854,15 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 没有多人模式啊，虽然自2016之后多人模式在id游戏里基本是路边一条了，但这次也算改变祖宗之法了吧。 ...</blockquote>
 一直在缩水，2016有对战有snapmap，永恒把snapmap砍了，这作干脆连对战也没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有钱多买小人  
+##### 253#       发表于 2025-1-25 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274126&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-25 13:31</a>
+跳还是有吧，不然地图设计会很麻烦的，但有没有二段跳是个问题，二段跳是uac的高科技鞋子给的
+
+—— 来自 ...</blockquote>
+大概是没有二段跳，但有个利用盾牌的大跳。不知道什么原理，总不能是空中踩盾牌吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

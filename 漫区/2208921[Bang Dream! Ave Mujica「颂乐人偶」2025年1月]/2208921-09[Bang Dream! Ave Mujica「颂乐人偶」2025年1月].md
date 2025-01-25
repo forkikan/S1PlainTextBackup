@@ -8428,3 +8428,35 @@ md智障，原文就是莫女士讨厌祥子，但是会守护睦喜欢mujica，
 
 你说她喜欢C团我信，但mujica纯粹是因为祥子才加入的，哪里表现了她对mujica的感情？
 
+
+*****
+
+####  老贝  
+##### 12589#       发表于 2025-1-25 20:20
+
+mygo的演唱会睦倒是除了诗超绊场场没落下，甚至灯的念诗都去看过。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 12590#       发表于 2025-1-25 20:20
+
+ 本帖最后由 huxiaopao163 于 2025-1-25 20:21 编辑 
+
+子非鱼的分析出了，就是按四个人演mortis的假药猜测的
+[https://www.bilibili.com/video/BV1TyfdYtEvK](https://www.bilibili.com/video/BV1TyfdYtEvK)
+
+具体流程确实非常合理，最不合理的还是这四个人怎么可能这么快达成一致来坑mortis
+
+现在的祥子还有这种威信嘛？明明这集前面都在渲染mortis更有威信，她才是最有可能把大家捏一起做某些事情的
+
+不懂了，还是看后面剧情到底怎么说吧
+
+*****
+
+####  一心而用  
+##### 12591#       发表于 2025-1-25 20:23
+
+楼里可以发VV表情包吧？
+<img src="https://p.sda1.dev/21/99859d53b894ea5b2698057f7d813733/image.jpg" referrerpolicy="no-referrer">
+
