@@ -7071,3 +7071,40 @@ PV里还剩睦摸吉他，睦扔书，睦拆家，我猜
 
 祥子既然都说mortis有精神病了，为什么不顺带也说喵梦有精神病，这样一次能把两个自己不爽的人都关起来送去治病，岂不是大获全胜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ty_cc  
+##### 12468#       发表于 2025-1-25 14:05
+
+我感觉五个人偶都会出来，不止有Mortis
+并没有什么双重人格，只有获得短暂生命的人偶
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  新HGCG  
+##### 12469#       发表于 2025-1-25 14:11
+
+<img src="https://img.saraba1st.com/forum/202501/25/141142bvsyjyym13k51y1y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 14:11 上传
+
+*****
+
+####  wpcc  
+##### 12470#       发表于 2025-1-25 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274338&amp;ptid=2208921" target="_blank">Ty_cc 发表于 2025-1-25 14:05</a>
+
+我感觉五个人偶都会出来，不止有Mortis
+
+并没有什么双重人格，只有获得短暂生命的人偶</blockquote>
+ob出来玩失忆也太无聊了
+

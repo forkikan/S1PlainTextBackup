@@ -783,3 +783,16 @@ f1风噪和散热怎么样</blockquote>
 
 5. 又找不到截图键了…试了各种组合都不行，估计得自己配置一下，晚点再研究。
 
+
+*****
+
+####  bypass  
+##### 1399#         楼主| 发表于 2025-1-25 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273493&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2025-1-25 11:57</a>
+
+都快忘了Smach Z 这玩意了，也算是出(或者吹）的太早了。要在现在，高低真给你做出来一些能卖的机器。 ...</blockquote>
+Smach Z 破产的时候把问题归咎给疫情以及和广东这边工厂沟通不顺，老实说让一个欧洲小团队弄这玩意确实不靠谱，想拼装个原型基本来回就得一个多月了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 我当时还真的差点就预定了。
+
