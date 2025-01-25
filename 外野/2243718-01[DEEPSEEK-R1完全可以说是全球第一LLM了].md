@@ -1533,3 +1533,14 @@ https://immersivetranslate.com/zh-Hans/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  jyj256  
+##### 126#       发表于 2025-1-25 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272323&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-1-25 06:59</a>
+
+求一个可以瑟瑟的模型</blockquote>
+很多 ollama 直接就能下 试过几个都是弱智 不好用 只能等r1的无审查版本了
+

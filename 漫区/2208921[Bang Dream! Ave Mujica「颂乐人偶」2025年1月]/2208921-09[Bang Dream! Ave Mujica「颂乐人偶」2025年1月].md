@@ -9216,3 +9216,104 @@ image.png
 
 医院医院不去在这里四演1 笑死我了 一群jk演戏能把人格分裂治好a
 
+
+*****
+
+####  jojonathan  
+##### 12637#       发表于 2025-1-25 21:57
+
+越解释不越显得这帮jk都是神人<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 12638#       发表于 2025-1-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277126&amp;ptid=2208921" target="_blank">jojonathan 发表于 2025-1-25 21:57</a>
+越解释不越显得这帮jk都是神人</blockquote>
+还是不要想得那么复杂比较好 乐队番讲情感又不讲理性
+
+*****
+
+####  hulaoda007  
+##### 12639#       发表于 2025-1-25 21:59
+
+那我赌脚本家真的相信这世界存在另一个人格会在你大脑过载的时候出来替你无理取闹和担责任顺便只需要改一下表情就可以再出一款谷子骗钱。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 12640#       发表于 2025-1-25 22:01
+
+4演1不管是谁演谁都是惊世智慧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 12641#       发表于 2025-1-25 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">楼友是不是有个问题，是不是没看过病，看病开始医生肯定是问你哪出了问题，这时候你要说出你哪有问题，你哪怕去拍片子也是照局部。
+
+但是莫女士会说自己哪有问题吗，不会说的。只能问家人问身边的人，那么身边的人也需要知道她哪里有问题不是应该的。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">姐们是队友关心下病情，问是不是有病不是应该的，治不治先沉默下回再说
+
+*****
+
+####  天空塔书记官  
+##### 12642#       发表于 2025-1-25 22:05
+
+再简洁一些，无口睦和莫提斯的关系就是红白脸，白脸不管用就换成红脸，做出“我要生气了”的姿态，其实没那么玄乎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 12643#       发表于 2025-1-25 22:05
+
+四个人演睦头最大的问题是她们相信睦头有第二人格的情况下，到了这个地步的解决办法居然是演一场戏，甚至不是用乐队番的音乐来解决<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 12644#       发表于 2025-1-25 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277183&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-25 22:05</a>
+四个人演睦头最大的问题是她们相信睦头有第二人格的情况下，到了这个地步的解决办法居然是演一场戏，甚至不 ...</blockquote>
+你好，mortis不会弹吉他
+
+*****
+
+####  akiomn  
+##### 12645#       发表于 2025-1-25 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说四演一先想清楚了，不管哪个四演一都是队内80，急着让4个人的风评爆炸是吧
+
+*****
+
+####  玖羽  
+##### 12646#       发表于 2025-1-25 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276901&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-25 21:26</a>
+
+怎么说呢？这样下去两个都会坏掉没错，成为mo女士的目的是踩刹车，是在两害里选择伤害最小的哪个，而睦本 ...</blockquote>
+首先我认为很多人都忽略了最大的前提：<strong>睦不是顺从的人偶</strong>，睦对祥子付出那么多还被吼，生气是很正常的
+
+睦(Mortis)有两个目标：1）报复祥子；
+
+2）Mujica不能解散（睦对乐队解散有PTSD）
+
+对于目标1，让“睦”自己做是不合适的，会严重影响人物形象
+
+所以(编剧让)睦演出了一个人格面具，或者部署了一个AI，总之Mortis不是一个真正的人格，理解意思就行，这样从观感上是“Mortis”在做这些事
+
+但是在弹吉他这一点上，目标1和2出现了矛盾（睦觉得祥子只重视她的吉他，不重视她的人），由于1的优先级更高，“Mortis”选择实现1
+
+*****
+
+####  operatbig  
+##### 12647#       发表于 2025-1-25 22:08
+
+扔书的明显不是莫啊。
+
