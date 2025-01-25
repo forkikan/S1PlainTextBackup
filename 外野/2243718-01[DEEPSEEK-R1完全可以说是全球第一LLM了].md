@@ -1239,3 +1239,29 @@ x上中文圈我只关注黄，日本一般都是正常人居多
 
 有趣的事一些亚裔 ai infra 研究者会把自己的社交账号挂出来，点进去看会在x上和外国研究这讨论技术细节。同时，这群人也会用知乎，在知乎用中文讨论
 
+
+*****
+
+####  qratosones1337  
+##### 103#       发表于 2025-1-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272999&amp;ptid=2243718" target="_blank">FeteFete 发表于 2025-1-25 10:34</a>
+x上中文圈我只关注黄，日本一般都是正常人居多
+
+中文全基本都是搞黄色和鉴证</blockquote>
+他们的X账号就是用于国外AI研究社群的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  beta10  
+##### 104#       发表于 2025-1-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67272710&amp;ptid=2243718" target="_blank">流缨 发表于 2025-1-25 09:37</a>
+
+https://immersivetranslate.com/zh-Hans/
+
+沉浸式翻译，市面上应该找不到比他更好的解决方案了，非常傻瓜 ...</blockquote>
+确实好用，感谢推荐
+

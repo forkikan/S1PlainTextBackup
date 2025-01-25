@@ -636,3 +636,23 @@ stos官方授权系统的掌机目前只有sd吗，其他的家有没可能</blo
 
 其实我觉得 Bazzite 只要开发者对机型有支持，基本能达到 90% 的 SteamOS 体验了。我又弄了一台 ROG Ally 初代，打算今天刷 Bazzite  试试看。
 
+
+*****
+
+####  bypass  
+##### 1389#         楼主| 发表于 2025-1-25 10:53
+
+ 本帖最后由 bypass 于 2025-1-25 10:55 编辑 
+
+Ayaneo 3。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer"> 其中一个可换模块有 Steam Controller 和当面腹死胎中 Smach Z 的感觉了。
+
+<img src="https://imgur.ihainan.me/QW5u5gA.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/pzIHuhL.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/ZClXKoC.png" referrerpolicy="no-referrer">
+
+至于发售时间嘛 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+<img src="https://imgur.ihainan.me/1oQM63B.png" referrerpolicy="no-referrer">
+

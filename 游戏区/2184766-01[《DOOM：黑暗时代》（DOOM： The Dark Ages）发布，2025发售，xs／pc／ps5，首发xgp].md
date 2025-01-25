@@ -753,3 +753,18 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 目前来看全面降速，更像市面上流行的FPS，不像永恒那样正常过关打起来像打速通一样
 
+
+*****
+
+####  JOJO42  
+##### 244#       发表于 2025-1-25 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271347&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-24 23:27</a>
+
+现在没透漏有关武器模组的信息吧，按键分配应该是够塞一个模组键的，应该不用担心取消模组？
+
+—— 来自  ...</blockquote>
+因为我记得之前看参加quakecon的人爆料说这代没有模组更换了......但是这代如果要追求射个爽，加上节奏缓下来些，那其实在战时的模组更换使用，肯定是比永恒舒服些的，没必要删啊
+
+而且光看你这张截图的话，我就感觉它是钉枪的另一个模组；看弹药是那种内置炸药的尖钉飞弹
+
