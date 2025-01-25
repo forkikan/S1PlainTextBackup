@@ -656,3 +656,42 @@ Ayaneo 3。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png"
 
 <img src="https://imgur.ihainan.me/1oQM63B.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ronac  
+##### 1390#       发表于 2025-1-25 11:47
+
+<blockquote>bypass 发表于 2025-1-25 10:06
+风噪如何呢，我喜欢 Ally 一个原因是日常使用真的相对很安静。
+
+ 自从 GPD Win 3 之后我对 Intel 的驱动 ...</blockquote>
+很安静，散热也很好，自定续航8w时风扇rpm2400多
+
+我试了underrail和几个rm2000的小游戏，没遇到什么毛病
+
+现在目测最大的问题是前端抽风
+
+音量键失灵、前端快捷键失灵我全遇到过，虽然不是硬件问题但是也挺讨厌（按键之后有反应但是不正常工作那种，重启会好）
+
+那个微星m控制中心非常搞笑，更新个显卡驱动它卡在99进度寻思了一会儿不声不响自己放弃了，我重新点了一次才成功
+
+之后更新另一个印特尔的hid筛选器驱动，一开始怎么点都是闪一下cmd界面就退出，重启了一次才给我正常更新
+
+然后微星刚更新完，牢因的管理软件也给推送了个xe的驱动更新，结果它下着下着也把自己干没了，这俩废物真是一对难绷
+
+
+*****
+
+####  bypass  
+##### 1391#         楼主| 发表于 2025-1-25 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273420&amp;ptid=2086469" target="_blank">ronac 发表于 2025-1-25 11:47</a>
+
+很安静，散热也很好，自定续航8w时风扇rpm2400多
+
+我试了underrail和几个rm2000的小游戏，没遇到什么毛病
+
+ ...</blockquote>
+笑死，谢谢坛友，很符合我对印特尔和一些厂商软件开发能力的刻板印象。
+
