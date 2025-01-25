@@ -10149,3 +10149,42 @@ mujica解散不解散本身对她而言无所谓，只要睦老实沉睡。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  天空塔书记官  
+##### 12709#       发表于 2025-1-25 23:10
+
+但基于半身的基础设定，厌恶对方，也就意味着在厌恶自己，所以睦还是没有面对自己的本心，所以才会有之后内心的挣扎，才会向着镜子里自己砸书本<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  庸necro  
+##### 12710#       发表于 2025-1-25 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268263&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-24 16:35</a>
+
+mygo没有五个神经病 还是正常人范畴</blockquote>
+是被写成了神经病，第一季你会觉得这几个有这么神经吗
+
+
+*****
+
+####  一心而用  
+##### 12711#       发表于 2025-1-25 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277510&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-25 22:53</a>
+好像没有李子的单人照？
+初华去哪了.jpg</blockquote>
+目前就这一张。
+<img src="https://p.sda1.dev/21/9c0fab4927b7ade3a332e59251ccea01/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 12712#       发表于 2025-1-25 23:15
+
+其实参考mujica是“无自我”说去看待五个角色反而会好理解些。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
