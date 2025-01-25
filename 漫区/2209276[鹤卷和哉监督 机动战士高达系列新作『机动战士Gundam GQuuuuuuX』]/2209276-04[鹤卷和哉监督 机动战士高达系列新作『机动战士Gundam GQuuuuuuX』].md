@@ -14165,3 +14165,45 @@ gaoda获.PNG
 
 <img src="https://img.saraba1st.com/forum/202501/25/212135yzuugzubh2uel89m.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 5732#       发表于 2025-1-25 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276585&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-25 20:38</a>
+
+但我记得元祖的枪是固定能量仓的吧，不是E-pack型，也不需要换弹匣的说法，但是要每次都重新充能。 ...</blockquote>
+这作直说自己是平行世界了改设定不是很正常吗，先不说安彦自己画的gto都爆改科技线了，雷霆宙域战线里的uc高达光枪也是用的弹夹，倒不如说这个世界的元组都爆改成eva样子了，为什么你会觉得科技和正史一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 5733#       发表于 2025-1-25 21:32
+
+看了那个死人说假药结合根之国这个站名老让我觉得修司喵安必有一个要么已经是似人要么大结局会似然后被麻球重新从nt洪流里拉回来（这样好像有点离经叛道？毕竟uc系还没有能从里头救人的只能似了以后化作男女鬼）
+
+先猜一个修司其实是某种nt光里飘荡的意识体被红高创到85年上了一个已死少年的身（
+
+*****
+
+####  猪突猛进R  
+##### 5734#       发表于 2025-1-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276877&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-1-25 21:21</a>
+
+开着最神棍的独角兽都打不过白板刚自己，更不用说本传假面打别人也不行阿
+
+ ...</blockquote>
+这也算的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bird-lay  
+##### 5735#       发表于 2025-1-25 21:35
+
+唉好想看后续<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+以及感觉前半截像是拍了一个剧场版剪出来的，不知道有没有完整版给我看看
+
