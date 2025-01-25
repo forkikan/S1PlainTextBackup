@@ -10401,3 +10401,47 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 2025-1-25 23:56 上传
 
+
+*****
+
+####  huxiaopao163  
+##### 12726#       发表于 2025-1-26 00:03
+
+ 本帖最后由 huxiaopao163 于 2025-1-26 00:04 编辑 
+
+看完了泛式的分析，酒店之战可以分成三种可能：
+
+1.没有任何翻转，大家说的都是各自的真实想法（最糟情况，编剧导演江郎才尽）
+
+2.有反转，某几个人在演mortis，故意让mortis无法完成保护mujica的承诺(有种刺激疗法的意味)
+
+3.有反转，mortis的小丑行为全是在演，可能还有其他同伙，她们就是想拱火炸团，mortis不是非保护mujica不可（至少渲染了半天的mortis不至于变成杂鱼小丑）
+
+这三种都有可能，按现在的信息其实判断不出来。然后就是喵梦说话逻辑非常跳跃，而且很多话都有歧义，怎么解释都行。
+
+总之还是需要后面的信息补充，我觉得现有的这部分算是一个谜面，可惜出得不是非常好，让人有一种“老师，题目是不是打印错了”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 12727#       发表于 2025-1-26 00:04
+
+顺带说一句 mujica肉眼可见第五集大概率没live  这五集就开头一首歌是不是含量太低了
+
+*****
+
+####  梅杜莎  
+##### 12728#       发表于 2025-1-26 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277849&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-25 23:40</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/26/000354qv6yhvpijtih6twn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-26_00-01-18.jpg</strong> (108.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 00:03 上传
+
+沉浸式翻译+DeepSeek
+
