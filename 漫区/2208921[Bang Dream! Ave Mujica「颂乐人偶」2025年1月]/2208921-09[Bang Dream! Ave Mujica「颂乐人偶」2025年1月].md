@@ -9018,3 +9018,201 @@ PV里那个是对着镜子砸的
 1莫女士说她没听过mujica的音乐</blockquote>
 四演一假药这么看起来确实是有一定的可能的，假如这里确实是刻意设计的话，那么大喵就算跟大祥爆了也没必要非得确定乐队解散这个事，常理上只要自己眼不见心不烦就行。
 
+
+*****
+
+####  天空塔书记官  
+##### 12634#       发表于 2025-1-25 21:51
+
+ 本帖最后由 天空塔书记官 于 2025-1-25 21:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277000&amp;ptid=2208921" target="_blank">屑猫猫 发表于 2025-1-25 21:40</a>
+问题是概念都是虚的，她俩绑定再明显不过，如何制造一个交合点让这层关系落脚才是关键的。哪怕很细小都行 ...</blockquote>
+那其实也简单，承认过去就可以了，被“遗忘”就代表着“死亡”，要想“重生”首先需要的是“回忆”，然后承认过去，再破除旧的契约并订立新的契约，也就是神明的再次许愿，最终“无畏遗忘”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12635#       发表于 2025-1-25 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">来来 我们来以大猫开始的即兴演出来对答案，以一场精彩的表演来看待这段，人物对话的话中话，双重并行含义
+
+<img src="https://img.saraba1st.com/forum/202501/25/213255p9gt8x282pnzhm1t.png" referrerpolicy="no-referrer">
+
+<strong>438f3562724f19122694d579807fe27f.png</strong> (448.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:32 上传
+
+1.这里初华其实是说你冷静一下，现在还不是试探的时候，大猫说我很冷静
+
+<img src="https://img.saraba1st.com/forum/202501/25/213419t5rlgmz5hfizgyvb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (470.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:34 上传
+
+2她有这么说过吧，莫女士说她会守护mujica
+
+<img src="https://img.saraba1st.com/forum/202501/25/213634kqocacbf1l411eq6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (444.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:36 上传
+
+3海玲同意大猫也开始表演
+
+<img src="https://img.saraba1st.com/forum/202501/25/213710mm4kxqlay1cy1lii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (469.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:37 上传
+
+4 初华说莫女士是双重人格，不得不说，是因为是祥子描述的。
+
+<img src="https://img.saraba1st.com/forum/202501/25/213914egzi5dzgl6g5al74.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (425.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:39 上传
+
+5上套的莫女士
+
+<img src="https://img.saraba1st.com/forum/202501/25/214017wkzkw1aia4cdwa2a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (425.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:40 上传
+
+6嗨呀莫女士你可是说过要保密的怎么泄露了
+
+<img src="https://img.saraba1st.com/forum/202501/25/214105euco5drqjoqoz8cr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:41 上传
+
+你说保密的怎么又说出来了，我们来看看莫女士自己的回旋镖
+
+<img src="https://img.saraba1st.com/forum/202501/25/214321emkgmxs95xp28k90.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (334.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/214357ug1j2lfz2hptpx1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (282.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:43 上传
+
+好家伙你不是说对祥子保密吗，人就在旁边呢
+
+下面是莫老师模仿大祥三连击，什么命运共同体，只有mujica，这里不放图了
+
+<img src="https://img.saraba1st.com/forum/202501/25/214708aa44vvhpk42p46ak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (358.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:47 上传
+
+海玲接应大猫的解散话题
+
+<img src="https://img.saraba1st.com/forum/202501/25/214832q2pzt82burp22rf3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (367.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:48 上传
+
+莫女士质问海玲
+
+<img src="https://img.saraba1st.com/forum/202501/25/214901p27aa8ltiauzv1aa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:49 上传
+
+大猫开始帮海玲
+
+<img src="https://img.saraba1st.com/forum/202501/25/214931biznnumiyl82lk5m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (385.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:49 上传
+
+大猫以第二人称你来反问莫老师，你莫老师为什么要待在这个乐队
+
+<img src="https://img.saraba1st.com/forum/202501/25/215107lkbp4bwwbkr66ybb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (412.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:51 上传
+
+断线的那次才是真正的演技（真正的我认可的睦）。
+
+<img src="https://img.saraba1st.com/forum/202501/25/215231pfoj5ttrbpjpaqpe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (383.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:52 上传
+
+你莫女士不该待在这里
+
+<img src="https://img.saraba1st.com/forum/202501/25/215354iwwcgls7o4q6crcb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (396.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:53 上传
+
+sodayo
+
+image.png
+(385.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/215054ci4xtdkipas9adsi.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 12636#       发表于 2025-1-25 21:54
+
+医院医院不去在这里四演1 笑死我了 一群jk演戏能把人格分裂治好a
+

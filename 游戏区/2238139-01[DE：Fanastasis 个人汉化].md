@@ -1023,3 +1023,15 @@ https://github.com/imkuang/WindowResizer  我用的这个，游戏内只有全
 
 问个问题，拿到的那些记忆该怎么用？难道只能看简介的那一小段话？
 
+
+*****
+
+####  blackll7  
+##### 96#       发表于 2025-1-25 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67275832&amp;ptid=2238139" target="_blank">ziyuan327 发表于 2025-1-25 18:43</a>
+问个问题，拿到的那些记忆该怎么用？难道只能看简介的那一小段话？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实这游戏有寝室，解锁记忆可以去人物个人精神空间看剧情（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
