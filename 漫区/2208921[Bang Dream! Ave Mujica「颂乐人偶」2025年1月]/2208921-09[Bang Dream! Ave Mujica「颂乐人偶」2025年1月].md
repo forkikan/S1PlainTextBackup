@@ -7125,3 +7125,14 @@ ob出来玩失忆也太无聊了
 
 [https://x.com/peso727/status/1883017192943612276/photo/1](https://x.com/peso727/status/1883017192943612276/photo/1)
 
+
+*****
+
+####  sauron.j  
+##### 12473#       发表于 2025-1-25 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273323&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-25 11:30</a>
+
+大喵现在认识不到小黄瓜这个状态 那以后也得知道吧 难道解决后就当无事发生了？感觉越想越变态 ...</blockquote>
+mygo其他人至今都不知道飞鸟山战役，有些情报就是永远不对称的
+
