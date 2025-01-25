@@ -8460,3 +8460,33 @@ mygo的演唱会睦倒是除了诗超绊场场没落下，甚至灯的念诗都�
 楼里可以发VV表情包吧？
 <img src="https://p.sda1.dev/21/99859d53b894ea5b2698057f7d813733/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 12592#       发表于 2025-1-25 20:25
+
+莫小姐要是觉得睦最喜欢的是C团，然后下一集去和soyo合谋复活C团，我愿称为绝世狠活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 12593#       发表于 2025-1-25 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">比起复活C团，莫小姐说喜欢GO团然后想办法进GO团更靠谱些
+
+素世立希俩嘴硬心软的好搞定，哭着说自己在鸡被欺负了就行【这可真没撒谎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">】
+但灯皇真眼一开就完蛋
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 12594#       发表于 2025-1-25 20:30
+
+从信息抽离的角度考虑是能成立的，我们看到的交涉可能只有很少的一部分，而大部分讨论和协商的内容都被隐藏了，她们确实达成了某种默契<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1480,3 +1480,35 @@ https://immersivetranslate.com/zh-Hans/
 沉浸式翻译，市面上应该找不到比他更好的解决方案了，非常傻瓜 ...</blockquote>
 马克下，好用，谢谢老哥
 
+
+*****
+
+####  棒读  
+##### 123#       发表于 2025-1-25 20:32
+
+只能说这思维水平确实无敌啊
+
+<img src="https://img.saraba1st.com/forum/202501/25/203151cetbrlvwavbnfzzn.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2025-01-25T12-25-31.602Z.png</strong> (126.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/203151m29lzet5zl0ff00e.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2025-01-25T12-25-49.733Z.png</strong> (53.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202501/25/203151imx2pd9td9e2n9d1.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2025-01-25T12-26-02.635Z.png</strong> (93.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-25 20:31 上传
+
