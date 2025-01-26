@@ -15602,3 +15602,16 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 
 修司要是能活着回去的话还能见上晚年麻球最后一面，很浪漫啊
 
+
+*****
+
+####  纪寞  
+##### 5863#       发表于 2025-1-27 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285272&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-27 00:48</a>
+
+我猜修司可能是来自UC正史后期时间线的未来人(V高达-Gaia Gear的时期?)
+
+修司NT能力很高MS驾驶技术也强， ...</blockquote>
+我觉得如果来自正史线又很麻烦，毕竟要插一个又重新研究强力塞克缪的时间点很麻烦，UC后100年正史那边小形文豪在管了。而且长谷川的设定都是没有转正的灰色地带，如果是正史、gqx时间线以外又一平行宇宙才更方便操作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
