@@ -60,3 +60,22 @@
 
 东映你最好真的在给我憋一个大的，当然不能是wing那种一坨大的
 
+
+*****
+
+####  sheshiro  
+##### 250#       发表于 2025-1-26 09:35
+
+回归传统（妖精）但又没那么回归（隔壁法Q铁桥铁马）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Parahure  
+##### 251#       发表于 2025-1-26 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279321&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-1-26 09:19</a>
+去年还有先行放送来着，今年不知道还会不会有
+
+东映你最好真的在给我憋一个大的，当然不能是wing那种一坨大 ...</blockquote>
+想起来了天q开播前三天鹫尾亲自介绍wing的场面<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

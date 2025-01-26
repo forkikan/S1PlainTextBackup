@@ -877,3 +877,14 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 大概是没有二段跳，但有个利用盾牌的大跳。不知道什么原理，总不能是空中踩盾牌吧 ...</blockquote>
 你说过桥那个？把盾当钩锁用场景触发的东西吧。。
 
+
+*****
+
+####  魔王候补77号  
+##### 255#       发表于 2025-1-26 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67271745&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-25 00:35</a>
+
+都有精防了，近战有3个充能那就是豆槽，那么缺的就是消耗豆槽的技能了！还有4个月ID赶紧把你那逼近战改成 ...</blockquote>
+艹 真就第一人称魂游是吧
+
