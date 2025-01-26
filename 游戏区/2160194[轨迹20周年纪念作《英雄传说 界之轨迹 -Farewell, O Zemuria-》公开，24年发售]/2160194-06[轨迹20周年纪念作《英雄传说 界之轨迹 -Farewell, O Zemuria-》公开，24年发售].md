@@ -692,3 +692,13 @@ PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">DLC兔女郎很不错 最色的反而是萝莉的白丝
 
+
+*****
+
+####  希鲁夫  
+##### 7512#       发表于 2025-1-26 23:00
+
+拉碧丝和菲莉怎么认识的啊，完全不记得了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
