@@ -2196,3 +2196,16 @@ R1:32B准确的来说是 Qwen2-R1:32B
 
 类脑加不进去
 
+
+*****
+
+####  革萌  
+##### 145#       发表于 2025-1-26 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278842&amp;ptid=2243718" target="_blank">renova 发表于 2025-1-26 05:38</a>
+
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+API没审查这个其实很有趣，qwen这帮模型哪怕是离线都有审查，DS看来审查都是在模型之外
+
