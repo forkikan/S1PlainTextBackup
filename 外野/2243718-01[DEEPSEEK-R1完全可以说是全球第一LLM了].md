@@ -2490,3 +2490,37 @@ IP不在境内可以用谷歌登录
 
 +86注册送10块钱，其他要用API得充值
 
+
+*****
+
+####  美坂汐里  
+##### 171#       发表于 2025-1-26 23:05
+
+ 本帖最后由 美坂汐里 于 2025-1-26 23:09 编辑 
+<blockquote>魔灵高达 发表于 2025-1-26 03:43
+如果是为了NSFW似乎没有任何必要部署本地蒸馏的模型了，我下载的是R1:32B，审核很严格绕过很麻烦不说，创作 ...</blockquote>
+
+恰恰是nsfw才需要本地。
+
+在线模型的话，可能会加强审核。之前chatgpt和claude都经历过审核不断加强的阶段。结果是穿甲弹需要打补丁一样不断更新。
+
+现在deepseek的这种状态，恐怕不会太久。
+
+*****
+
+####  lzrtwilight  
+##### 172#       发表于 2025-1-26 23:10
+
+崩了，太多人用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yvev  
+##### 173#       发表于 2025-1-26 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284171&amp;ptid=2243718" target="_blank">深蓝巫妖 发表于 2025-1-26 21:43</a>
+呃，为啥要搞这么个多此一举的操作啊。</blockquote>
+因为平时用的是v3，深度思考是r1，这就是两个不同模型啊
+现在吹的都是r1，其实v3也就……还好吧
+

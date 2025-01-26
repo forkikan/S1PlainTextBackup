@@ -15439,3 +15439,15 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 
 大成功！
 
+
+*****
+
+####  Gysumitka  
+##### 5849#       发表于 2025-1-26 23:13
+
+『ガンダム』ジークアクス、テレビ放送は“金曜23時”が濃厚？シリーズ初の「日テレ系」放送に期待高まる
+[来源](https://news.yahoo.co.jp/articles/d9f9b003a81165a142a9f5c34804f7ab845e492b)
+<img src="https://p.sda1.dev/21/0f935ee2344982dbf80442c5032b9d0c/image.jpg" referrerpolicy="no-referrer">
+
+金23,还举了芙丽莲的例子。首日多话连播预定？
+
