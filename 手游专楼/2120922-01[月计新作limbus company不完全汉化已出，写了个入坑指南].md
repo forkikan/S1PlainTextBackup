@@ -208,3 +208,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  菟原手兒奈  
+##### 1067#       发表于 2025-1-26 08:29
+
+终于有空清一下活动和看新队伍了，做了个烧伤队，普牢确实无脑爽 p，但是一旦鸡包没拿到鸡腿就比较僵硬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

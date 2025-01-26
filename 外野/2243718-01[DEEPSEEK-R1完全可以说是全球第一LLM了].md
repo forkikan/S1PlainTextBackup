@@ -2181,3 +2181,18 @@ R1:32B准确的来说是 Qwen2-R1:32B
 很难想象AI通过逻辑推理来准确理解两人的性格和无法说出口的感情，只能说是真正的女女关系性大师了……
 <img src="https://p.sda1.dev/21/24e67dd53369c4cbefce58987312d8f9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vava  
+##### 144#       发表于 2025-1-26 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278842&amp;ptid=2243718" target="_blank">renova 发表于 2025-1-26 05:38</a>
+
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+有什么酒馆社区分享吗？
+
+类脑加不进去
+
