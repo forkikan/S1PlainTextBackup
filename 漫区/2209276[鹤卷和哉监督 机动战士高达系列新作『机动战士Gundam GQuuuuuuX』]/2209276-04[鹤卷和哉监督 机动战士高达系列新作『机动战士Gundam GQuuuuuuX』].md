@@ -15380,3 +15380,18 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  纪寞  
+##### 5844#       发表于 2025-1-26 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284421&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-26 22:25</a>
+
+选择你的牢修之高堡奇人，穿越胶佬，高维生物，红高妖精，男鬼现世</blockquote>
+凭空生成肉体也太搞了，感觉概率是最低的。
+
+我奶是其他平行宇宙的从小生活在研究所的试管新人类<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，阿尔法塞克缪和奥米加塞克缪都是他带来的。
+
+"沙仑的玫瑰"就是他，泽克洛瓦的真相是他在这个世界苏醒时和红高达的阿尔法塞克缪的共鸣而发生的。
+

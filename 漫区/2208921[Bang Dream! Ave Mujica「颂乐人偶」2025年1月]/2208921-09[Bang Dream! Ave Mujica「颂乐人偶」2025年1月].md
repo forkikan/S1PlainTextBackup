@@ -13046,3 +13046,13 @@ mortis老师第三话的最后表演简直是完美的，我要是能这么温�
 
 <img src="https://img.saraba1st.com/forum/202501/26/214110caqm472r587ztqzm.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 12926#       发表于 2025-1-26 22:40
+
+ 本帖最后由 operatbig 于 2025-1-26 22:41 编辑 
+
+海铃估计是喜欢专门炸这种队长不关心不重视成员的团，队员觉得痛苦难受的团就不该存在，在关键时刻踩上油门。
+

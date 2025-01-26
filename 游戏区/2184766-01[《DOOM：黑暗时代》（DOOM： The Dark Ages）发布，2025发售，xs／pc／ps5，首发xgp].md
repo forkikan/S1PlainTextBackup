@@ -943,3 +943,19 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 当然幽灵线本身的gameplay很乏善可陈，希望不担心tda的gameplay……
 
+
+*****
+
+####  JOJO42  
+##### 261#       发表于 2025-1-26 22:35
+
+<img src="https://img.saraba1st.com/forum/202501/26/223101bjztb76jqm7tidg3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1e71hphhj8fe1.jpeg</strong> (76.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 22:31 上传
+
+看起来，这代肩炮倒是依然还在
+
