@@ -182,3 +182,13 @@ p位不是黑白两只吗
 
 等于**也要有唱歌环节？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 260#       发表于 2025-1-26 17:49
+
+南条来了啊，那基本确定两个妖精是追加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+战姬Q娃组又添一员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
