@@ -40,3 +40,23 @@
 今年情报是不是太少了？ 下星期就开播了 只公布了三个Q娃和妖精 反派 家人 同学之类的配角情报什么都没有 P ...</blockquote>
 甚至两个妖精CV都没公布，这集还特地打了问号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 248#       发表于 2025-1-26 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279112&amp;ptid=2208663" target="_blank">离心 发表于 2025-1-26 08:40</a>
+
+看来是板冈负责主q变身了?</blockquote>
+基本是了
+
+*****
+
+####  jaewoongh_  
+##### 249#       发表于 2025-1-26 09:19
+
+去年还有先行放送来着，今年不知道还会不会有
+
+东映你最好真的在给我憋一个大的，当然不能是wing那种一坨大的
+

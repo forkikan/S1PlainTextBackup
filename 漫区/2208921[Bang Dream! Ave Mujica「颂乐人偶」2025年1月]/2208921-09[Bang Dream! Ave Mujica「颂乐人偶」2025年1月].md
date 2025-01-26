@@ -11342,3 +11342,30 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 如果是演祥子重组的思路，抛开场外因素，别人的动机都可以应付过去，再让祥子和喵梦组队是不是太没苦硬吃了，4话看下来我都以为祥子小时候80过喵梦让她怀恨在心，这2人前4话不是在吵架就是准备吵架
 
+
+*****
+
+####  江口夕  
+##### 12782#       发表于 2025-1-26 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在说这么多都是鸡同鸭讲，很多人都脱离文本了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ml1642879  
+##### 12783#       发表于 2025-1-26 09:22
+
+剧本说什么就信什么，最后反转了可以说被编剧摆了一道。
+但如果天天跟着信假药，剧情对不上的时候怪谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12784#       发表于 2025-1-26 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人谁是敌人谁是朋友都分不清，大祥是敌人是吧，把祥子搞死就是正义。莫女士是你们最大的伙伴，都滚去和大莫老师演戏去啊，弹什么破吉他
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
