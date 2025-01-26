@@ -15350,3 +15350,14 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 
 所以现在修司是其他平行宇宙人的设想正确率有几成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 5841#       发表于 2025-1-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284298&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-26 22:04</a>
+
+所以现在修司是其他平行宇宙人的设想正确率有几成</blockquote>
+选择你的牢修之高堡奇人，穿越胶佬，高维生物，红高妖精，男鬼现世
+
