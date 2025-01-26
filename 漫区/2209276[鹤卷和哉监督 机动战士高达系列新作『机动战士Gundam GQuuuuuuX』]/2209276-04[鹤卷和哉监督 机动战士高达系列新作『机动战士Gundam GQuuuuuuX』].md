@@ -14701,3 +14701,11 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 如果红高达和gquuuuuux用的是一台机子上拆出来的精神感应骨架<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">那岂不是结尾要有老东西们最喜欢的一机打爆全世界了
 
+
+*****
+
+####  YU_JI  
+##### 5779#       发表于 2025-1-26 13:35
+
+这片说实话已经满足了制造一部独角兽所需要的全部要素了（）
+

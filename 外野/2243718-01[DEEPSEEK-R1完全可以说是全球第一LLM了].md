@@ -2306,3 +2306,17 @@ R1现在有成熟的预设么？
 用chatbot调用api不知道为啥还是会和谐，而且chatbot居然还要代理才行，还有啥别的安卓app能调用api吗 ...</blockquote>
 Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。
 
+
+*****
+
+####  木水风铃  
+##### 155#       发表于 2025-1-26 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278842&amp;ptid=2243718" target="_blank">renova 发表于 2025-1-26 05:38</a>
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+啊？但我用chatbox调用api还是会和谐啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
