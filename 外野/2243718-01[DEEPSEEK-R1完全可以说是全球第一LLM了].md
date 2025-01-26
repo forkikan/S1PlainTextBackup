@@ -2320,3 +2320,13 @@ Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  requiem116  
+##### 156#       发表于 2025-1-26 14:03
+
+<blockquote>tillnight 发表于 2025-1-26 13:24
+Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。</blockquote>
+看文档目前reasoning就是调r1？但是选reason还是chat都和谐
+

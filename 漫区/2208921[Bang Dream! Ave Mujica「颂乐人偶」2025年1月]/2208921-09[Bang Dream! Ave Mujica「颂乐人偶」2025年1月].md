@@ -12565,3 +12565,47 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  哈曼的YY  
+##### 12888#       发表于 2025-1-26 14:04
+
+背后这玩意是会隐形吗 红光一照才出来 意味着虚实切换？
+
+<img src="https://img.saraba1st.com/forum/202501/26/140431dk1c9fxg1zc91wk3.png" referrerpolicy="no-referrer">
+
+<strong>]{`1_T18AME6(T34TJ63MMR.png</strong> (15.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/140435lbymo1zbt75yahyy.png" referrerpolicy="no-referrer">
+
+<strong>F82D}VIT{0`$HEEAO`SYWLN.png</strong> (13.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:04 上传
+
+*****
+
+####  江口夕  
+##### 12889#       发表于 2025-1-26 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">海玲其实现在也可以分析分析这个人行为底层逻辑。
+
+Mujica和她当雇佣兵时候最大的区别在于：
+Mujica从诞生开始就是有海玲这个席位的。甚至海玲是祥子下面最忙前忙后的那个，可以说上心是确定的。
+
+她当雇佣兵的时候，那个雇佣她的乐队一开始就没有她这个人。
+
+海玲帮喵梦的原因大概是这句
+
+        乐队缺一个人不算是乐队是吧
+
+这一句如果是大猫演的，就非常精妙，如果认定睦本人是乐队的一员，那么现在已经不是乐队了，因为缺了睦，她在跟初华和海玲对答案，明显这里初华犹豫了，海玲认同了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
