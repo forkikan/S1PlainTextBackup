@@ -271,3 +271,15 @@ p位不是黑白两只吗
 
 2025-1-26 19:14 上传
 
+
+*****
+
+####  キュアアイドル  
+##### 268#       发表于 2025-1-26 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">请大家听听我的新单曲，下周日也会继续用偶像微笑服务各位大朋友和小朋友
+
+[https://www.youtube.com/watch?v=AO4RdWIuMFw](https://www.youtube.com/watch?v=AO4RdWIuMFw)
+
+[https://www.bilibili.com/video/BV1ojFAefExK](https://www.bilibili.com/video/BV1ojFAefExK)
+

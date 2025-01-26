@@ -15140,3 +15140,11 @@ op居然都还在制作中吗？是不是米津交歌交的太晚了（）
 
 原来还没做完吗，还以为真的几年磨一剑呢，早做好了，又是谁传出来做完的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5820#       发表于 2025-1-26 20:51
+
+那个声优视频里提到的配音工作完成
+
