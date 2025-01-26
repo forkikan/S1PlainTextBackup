@@ -2279,3 +2279,30 @@ R1现在有成熟的预设么？
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 什么酒馆？具体咋弄？
 
+
+*****
+
+####  requiem116  
+##### 152#       发表于 2025-1-26 13:18
+
+用chatbot调用api不知道为啥还是会和谐，而且chatbot居然还要代理才行，还有啥别的安卓app能调用api吗
+
+
+*****
+
+####  jeokeo  
+##### 153#       发表于 2025-1-26 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279287&amp;ptid=2243718" target="_blank">布里兰特 发表于 2025-1-26 09:13</a>
+为什么我在酒馆用r1会变弱智</blockquote>
+求酒馆部署r1指南
+
+*****
+
+####  tillnight  
+##### 154#       发表于 2025-1-26 13:24
+
+<blockquote>requiem116 发表于 2025-1-26 13:18
+用chatbot调用api不知道为啥还是会和谐，而且chatbot居然还要代理才行，还有啥别的安卓app能调用api吗 ...</blockquote>
+Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。
+

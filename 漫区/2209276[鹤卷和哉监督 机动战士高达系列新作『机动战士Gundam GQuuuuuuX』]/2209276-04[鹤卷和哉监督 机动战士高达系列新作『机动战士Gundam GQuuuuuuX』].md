@@ -14693,3 +14693,11 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 让索顿的人都穿红色制服怎么样，由吉翁战争英雄夏亚最信赖的战友夏利亚领导的特殊部队，为了纪念吉翁英雄夏 ...</blockquote>
 那也太像私军了吧
 
+
+*****
+
+####  jojonathan  
+##### 5778#       发表于 2025-1-26 13:25
+
+如果红高达和gquuuuuux用的是一台机子上拆出来的精神感应骨架<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">那岂不是结尾要有老东西们最喜欢的一机打爆全世界了
+
