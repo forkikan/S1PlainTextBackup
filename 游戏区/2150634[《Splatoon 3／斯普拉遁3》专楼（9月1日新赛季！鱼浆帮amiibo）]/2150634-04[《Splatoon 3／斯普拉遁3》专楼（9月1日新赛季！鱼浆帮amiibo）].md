@@ -6,3 +6,11 @@
 
 无人关心刚才的台北电玩展港台友谊赛，EGOIST把当地选手打了个5-0
 
+
+*****
+
+####  Dedalus  
+##### 5617#       发表于 2025-1-26 12:18
+
+昨晚做梦梦到喷3祭典联动chiikawa，莎莎是小八曼曼是吉伊鬼服是乌萨奇，因为选队问题从日本到你坛吵的不可开交新闻报道有人打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

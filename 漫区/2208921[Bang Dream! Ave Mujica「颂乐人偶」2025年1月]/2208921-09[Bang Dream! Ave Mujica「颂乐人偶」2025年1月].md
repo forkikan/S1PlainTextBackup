@@ -12248,3 +12248,118 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 原来鸡真正的悬疑剧情就是让观众猜墨缇丝小姐到底是不是睦吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 12863#       发表于 2025-1-26 12:18
+
+ 本帖最后由 江口夕 于 2025-1-26 12:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280754&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-26 12:14</a>
+你这种看个两集先下定论的就很适合被回旋镖，太无敌了
+别人还在观望猜测莫提斯是什么情况，你先给角色颁 ...</blockquote>
+内心戏里，莫老师不是坏逼是啥。难道你想说内心戏也是假的。
+
+伞在哪呢，丢地上了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+就冲这伞都丢地上的分镜。这要能回旋镖到我，我只能说编剧人格分裂
+
+我看到的是一群人对着一个满嘴谎言自私的人格进行夺舍之后，还对她抱有这么高的期待，编剧是第一层的话，你们眼里的莫老师怕不是在大气层
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  akiomn  
+##### 12864#       发表于 2025-1-26 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280784&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 12:18</a>
+内心戏里，莫老师不是坏逼是啥。难道你想说内心戏也是假的。
+
+伞在哪呢，丢地上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说别急，你这种人真的很适合被回旋镖，在原创番里看个两三集先对角色下定义，这么急着吃回旋镖啊
+
+*****
+
+####  YF31  
+##### 12865#       发表于 2025-1-26 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280686&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-26 12:07</a>
+
+看了一圈，感觉大家都不喜欢杂鱼莫小姐啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太菜了，没有强度的美。
+
+莫老师就算演的，最后的演技也很掉价，显得心智退行。
+
+说到底拍了四集了，这五个人里除了雇佣兵以外几乎都在掉价，铸币大陀螺、伪人、疑似心智退行、三次元女主播真的是什么很有意思的人设吗？知道的觉得是在看二偶，不知道的还以为是在拍劣质情景喜剧。
+
+
+*****
+
+####  江口夕  
+##### 12866#       发表于 2025-1-26 12:23
+
+ 本帖最后由 江口夕 于 2025-1-26 12:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280803&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-26 12:20</a>
+我只能说别急，你这种人真的很适合被回旋镖，在原创番里看个两三集先对角色下定义，这么急着吃回旋镖啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好意思，我mygo开始说的东西从来没被回旋镖过
+除了大猫打量大祥是落魄大小姐那里莫名其妙的表现猜不出以外基本全部bingo。
+不确定的事我从来不认定，内心戏这里是我唯一认定的东西。
+这是内心戏毫无疑问要表现的东西。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  whzfjd  
+##### 12867#       发表于 2025-1-26 12:24
+
+ 本帖最后由 whzfjd 于 2025-1-26 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280771&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-26 12:16</a>
+
+原来鸡真正的悬疑剧情就是让观众猜墨缇丝小姐到底是不是睦吗</blockquote>
+什么异形契约<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+【ave mujica 包饺子大结局后第一次 live】
+
+祥子：听素世说你以前一个人去看过她们的 live 还送了黄瓜？
+
+睦：？？？
+
+祥子：？？？————！！！————不要不要不要
+
+（一阵劲爆的吉他声）
+
+初华：欢迎来到 ave mujica 的世界
+
+*****
+
+####  hulaoda007  
+##### 12868#       发表于 2025-1-26 12:25
+
+主要就是睦和莫太割裂了，莫稍微有点像睦都还好说。
+就看编剧能不能圆好了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12869#       发表于 2025-1-26 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280830&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 12:23</a>
+不好意思，我mygo开始说的东西从来没被回旋镖过
+除了大猫打量大祥是落魄大小姐那里莫名其妙的表现猜不出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太对了，我只能说你别急，连pv里睦的画面都没回收完呢你先给下定论了，我敢相信你是百分百要吃回旋镖
+
+*****
+
+####  swessia  
+##### 12870#       发表于 2025-1-26 12:28
+
+艹想到一个地狱展开，如果现在的杂鱼莫小姐跑go团哭两下，go团各位对祥子误解要**加深了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我的小黄瓜呢，咋去鸡玩了两天不仅自闭了咋连吉他都不会弹了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
