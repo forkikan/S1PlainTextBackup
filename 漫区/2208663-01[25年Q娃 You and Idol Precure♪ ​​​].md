@@ -202,3 +202,24 @@ p位不是黑白两只吗
 
 小龙虾算半个，还缺炼金三人组的男人，最终季三杂鱼，剩下战姬敌我女性全是Q娃……
 
+
+*****
+
+####  粉儿alice  
+##### 262#       发表于 2025-1-26 18:34
+
+这两年都有同时兼任q娃和妖精的角色 翼同学艾尔 小麦小雪
+今年初始三人组 认识但知名度不高 追加必是大牌声优
+
+*****
+
+####  pokemon最爱  
+##### 263#       发表于 2025-1-26 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282939&amp;ptid=2208663" target="_blank">待宵 发表于 2025-1-26 18:12</a>
+
+在这战姬正统要背刺偶Q之际，战姬又一元老跑偶Q来力
+
+小龙虾算半个，还缺炼金三人组的男人，最终季三杂鱼， ...</blockquote>
+还有2个月，周日早上的幼女偶像番大战就要开打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
