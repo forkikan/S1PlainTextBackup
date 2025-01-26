@@ -15006,3 +15006,69 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 一台消失了五年，官方说法应该是寄掉了的红高达，一台刚刚首秀的吉翁新锐机体，用的还是违禁技术，两个打 ...</blockquote>
 不是说对面是一年战争退役的老将吗？认不出gqx没什么，但我觉得认不出红高达，对红高达没反应是不应该才对。
 
+
+*****
+
+####  Toby_dak  
+##### 5804#       发表于 2025-1-26 19:08
+
+ 本帖最后由 Toby_dak 于 2025-1-26 20:09 编辑 
+
+鹤卷说OP和最终话还在制作中？谁说已经做完的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  刺客ares  
+##### 5805#       发表于 2025-1-26 19:10
+
+<blockquote>纪寞 发表于 2025-1-26 18:55
+不是说对面是一年战争退役的老将吗？认不出gqx没什么，但我觉得认不出红高达，对红高达没反应是不应该才 ...</blockquote>
+雷恩：马夫蒂连高达仿制机都拿出来了吗？！
+
+*****
+
+####  oi99o  
+##### 5806#       发表于 2025-1-26 19:11
+
+官方确实没有说过，只说过立项很早<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RE㐅ia  
+##### 5807#       发表于 2025-1-26 19:15
+
+之前外包说还在画的时候就知道了还没做完呢
+
+*****
+
+####  RE㐅ia  
+##### 5808#       发表于 2025-1-26 19:15
+
+不过op画面这么晚才开始制作吗
+
+*****
+
+####  Gysumitka  
+##### 5809#       发表于 2025-1-26 19:16
+
+只有声优说配音已经完成吧
+
+*****
+
+####  cxasuka  
+##### 5810#       发表于 2025-1-26 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67283314&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-1-26 19:15</a>
+不过op画面这么晚才开始制作吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">富野剪的，我剪不得？
+
+*****
+
+####  古怪山庄士大夫  
+##### 5811#       发表于 2025-1-26 19:17
+
+都是传言吧，不过op还没做吗
+

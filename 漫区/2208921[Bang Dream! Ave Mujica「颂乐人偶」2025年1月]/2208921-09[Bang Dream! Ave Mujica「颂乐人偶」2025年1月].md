@@ -12931,3 +12931,39 @@ mortis老师第三话的最后表演简直是完美的，我要是能这么温�
 这样还能巧妙回避掉双重人格这个难题，毕竟阴影是角色的黑暗面，是必须得接受的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且我不信制作组没参考过p5，同样含有假面和人格要素，当初那么火的jrpg肯定是被参考过的
 
+
+*****
+
+####  一心而用  
+##### 12916#       发表于 2025-1-26 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282969&amp;ptid=2208921" target="_blank">匿名者 发表于 2025-1-26 18:19</a>
+我注册s1这么多年不打算发帖还是因为mortis老师和自己身上发生的事想来说几句，没人信也没关系的，多年不上 ...</blockquote>
+泥潭真是卧虎藏龙<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 12917#       发表于 2025-1-26 19:10
+
+无端联想：独角兽这种爆爆爆的风格挺适合去写（近十年的）高达的。
+
+*****
+
+####  一心而用  
+##### 12918#       发表于 2025-1-26 19:10
+
+<img src="https://p.sda1.dev/21/a3f3f0cc82a32df0de1629ead4ddf85f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5dfad9fe10e1f201ef434c1c2ad4579a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/53ccdc4c186f2bf431b1de4a87d4e3bd/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 12919#       发表于 2025-1-26 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282969&amp;ptid=2208921" target="_blank">匿名者 发表于 2025-1-26 18:19</a>
+我注册s1这么多年不打算发帖还是因为mortis老师和自己身上发生的事想来说几句，没人信也没关系的，多年不上 ...</blockquote>
+这个我找个ai也能编
+

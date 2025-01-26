@@ -14,3 +14,13 @@
 
 昨晚做梦梦到喷3祭典联动chiikawa，莎莎是小八曼曼是吉伊鬼服是乌萨奇，因为选队问题从日本到你坛吵的不可开交新闻报道有人打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 5618#       发表于 2025-1-26 19:15
+
+拿到柱鱼金章后，后面的所有的成就感觉都距离遥远
+
+辰龙都还没过半
+

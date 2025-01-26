@@ -255,3 +255,19 @@ p位不是黑白两只吗
 
 还好四月法Q2已经结束了
 
+
+*****
+
+####  谁的无聊中  
+##### 267#       发表于 2025-1-26 19:14
+
+官方公开妖精的代表颜色，是黑白
+
+<img src="https://img.saraba1st.com/forum/202501/26/191424df0yi3yfekh0wzw4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-26-19-11-48-364_com.twitter.android.jpg</strong> (205.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 19:14 上传
+
