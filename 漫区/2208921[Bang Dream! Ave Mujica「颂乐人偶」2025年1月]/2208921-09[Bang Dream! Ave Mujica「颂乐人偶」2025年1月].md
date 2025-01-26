@@ -12553,3 +12553,15 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 一个情节观众买不买账还是要看作品类型和过往受众，比如你在魔法少女剧里让女A把女B一拳揍飞都可以，但在都市校园剧里女A打了女B一巴掌都是特大问题
 
+
+*****
+
+####  江口夕  
+##### 12887#       发表于 2025-1-26 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67281278&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-26 13:24</a>
+一个情节观众买不买账还是要看作品类型和过往受众，比如你在魔法少女剧里让女A把女B一拳揍飞都可以，但在都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没打呢，脸都没碰到
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
