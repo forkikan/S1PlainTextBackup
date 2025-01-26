@@ -1107,3 +1107,14 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 有的图太大了，我常用的Acdsee打不开，该用啥软件看？</blockquote>
 不能吧，windows默认的照片和mac默认的预览都能正常打开啊
 
+
+*****
+
+####  ziyuan327  
+##### 103#       发表于 2025-1-26 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278750&amp;ptid=2238139" target="_blank">alleriawr9 发表于 2025-1-26 03:02</a>
+
+不能吧，windows默认的照片和mac默认的预览都能正常打开啊</blockquote>
+啊，用照片能看了，我是习惯用Acdsee看图片，那东西超过20m的图就无法读取。
+
