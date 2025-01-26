@@ -11394,3 +11394,43 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  刑部姬真可爱  
+##### 12787#       发表于 2025-1-26 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279510&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 09:46</a>
+
+黑影吞噬咀嚼睦的画面都给你了，还是好的呢
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版  ...</blockquote>
+反正我觉得如果莫真按坏b来刻画的话那睦的人设是完蛋了
+
+
+*****
+
+####  晓色暮云  
+##### 12788#       发表于 2025-1-26 09:52
+
+所以第四集崩坏了，要靠惊天反转才能拯救鸡团这几个人的塑造了，只有可怜的祥p前后一致地被抽陀螺
+
+*****
+
+####  帝下室の年糕  
+##### 12789#       发表于 2025-1-26 09:55
+
+要我说还是别玩什么反转了，就现在这制作组没那个能力好吧，就当拍砸了赶紧进入下一个阶段好好挖掘角色和关系性还有角色厨和河豚给你的企划买帐，不然就等着专辑销量看笑话吧
+
+*****
+
+####  厚乳果珍爽  
+##### 12790#       发表于 2025-1-26 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279538&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 09:50</a>
+
+反正我觉得如果莫真按坏b来刻画的话那睦的人设是完蛋了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么理解吧，mo女士是睦喷人专用马甲，穿上马甲就是来喷人的。目的是給现在不断恶化的情况踩刹车，结果就是炸团。
+
+这个时候看人设只能论心不论迹了。
+
