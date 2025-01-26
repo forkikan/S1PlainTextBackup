@@ -1734,3 +1734,21 @@ IMG_6359.jpeg
 
 我是先玩的玩具，后补的动画。最后几集是汉化组弃坑了还是？好像从月初开始就没有更新了。
 
+
+*****
+
+####  Blackson  
+##### 117#       发表于 2025-1-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279919&amp;ptid=2165211" target="_blank">直推 发表于 2025-1-26 10:43</a>
+第一次玩DX玩具，真好玩啊。随手拍几张。</blockquote>
+动画有字幕组连载，就是慢一点
+
+*****
+
+####  直推  
+##### 118#       发表于 2025-1-26 10:51
+
+再补一张进棚的。拍完了才想起来没贴贴纸！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://pic1.imgdb.cn/item/6795a19bd0e0a243d4f80183.jpg" referrerpolicy="no-referrer">
+

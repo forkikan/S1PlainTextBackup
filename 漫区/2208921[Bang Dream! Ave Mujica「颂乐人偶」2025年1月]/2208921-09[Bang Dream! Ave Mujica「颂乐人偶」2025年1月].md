@@ -11680,3 +11680,66 @@ mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑�
 莫和睦什么关系？？？要么是双重人格，要么是睦表演，我有点不懂你这话什么意思，你的意思是莫和睦没关系 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前主流的有两看法，一个是睦穿了mo女士的马甲，一个是mo上了睦女士的号，前者是演，后者是人格分裂。
 
+
+*****
+
+####  古明地雷  
+##### 12813#       发表于 2025-1-26 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279876&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:38</a>
+第四集明面上莫是和所有人都私聊过，和祥子虽说是被祥子拉去私聊的但也确实聊过了 ...</blockquote>
+我猜你说聊过是针对“谈都不谈”，问题是她和祥子谈的是很表面的，没有涉及乐队发展和内心诉求，只是单纯在对祥子精神攻击
+
+*****
+
+####  YF31  
+##### 12814#       发表于 2025-1-26 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279921&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-1-26 10:43</a>
+
+就不能除了睦和祥全是坏逼？鸡变成毒妇锁妖塔不是更带感？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那武士道还挺有魄力的，整出这么个先锋二偶企划。
+
+希望根本雄贵面对天台飞人的股价也能这么有魄力。
+
+*****
+
+####  江口夕  
+##### 12815#       发表于 2025-1-26 10:48
+
+ 本帖最后由 江口夕 于 2025-1-26 10:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279918&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:43</a>
+莫双重人格治好了，那睦呢，睦变成什么样？又回到一开始受气包，一张嘴就打破绽的小鸭子形态？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">难道不好吗，我挺喜欢的。起码不是你口中的毒妇人，你描述的东西把人黑成什么样了难道自己没自觉吗？
+4个人全变成坏逼清算落魄大祥
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  古明地雷  
+##### 12816#       发表于 2025-1-26 10:52
+
+先对一个人精神攻击再不顾她的意愿强行毁掉她的心血，目的是想让她反思自己变得更好，这说得过去吗？
+
+*****
+
+####  刑部姬真可爱  
+##### 12817#       发表于 2025-1-26 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279972&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-26 10:48</a>
+
+我猜你说聊过是针对“谈都不谈”，问题是她和祥子谈的是很表面的，没有涉及乐队发展和内心诉求，只是单纯 ...</blockquote>
+我觉得这就像一些跑团一样，扔骰子扔个大失败引发的事件固然会对人员的属性造成伤害，但是也确实会提供一些信息，祥莫私聊至少能让祥确定两点，一是现在的莫不是睦，二是要让睦回来现在祥的路线走不通
+
+*****
+
+####  operatbig  
+##### 12818#       发表于 2025-1-26 10:56
+
+<blockquote>YF31 发表于 2025-1-26 10:48
+那武士道还挺有魄力的，整出这么个先锋二偶企划。
+
+希望根本雄贵面对天台飞人的股价也能这么有魄力。 ...</blockquote>
+我认为这么写至少在国内会更火。
+

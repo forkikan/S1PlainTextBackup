@@ -14614,3 +14614,16 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 今天上14e应该没问题，15e有些悬了
 
+
+*****
+
+####  Toby_dak  
+##### 5770#       发表于 2025-1-26 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278935&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-1-26 08:44</a>
+
+别的不说，鸡瘟那身绿加那个头盔出现在木马操作台给人的诡异感远超高达的设计。。。
+
+人物讨喜是可以讨喜， ...</blockquote>
+不穿自护军服如何知道人家是自护军人？警察上岗都要制服证件齐备啊。
+
