@@ -99,3 +99,32 @@
 
 真正的爱不是别人给的，而是自己争取回来的
 
+
+*****
+
+####  Piano-Forest  
+##### 2761#       发表于 2025-1-26 12:54
+
+「わんだふるぷりきゅあ！」を
+
+1年間応援してくれてありがとう🐶🐱🐰
+
+みんなと会えてとってもわんだふるだったよ！
+
+これからもずっとず～っと
+
+／
+
+　みんな なかよし わんだふる～🐾
+
+＼
+<img src="https://p.sda1.dev/21/2cbca5c5d2afe337682b859bae28c9ae/20250126_125133.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sc_ome/status/1883304237494624732](https://x.com/sc_ome/status/1883304237494624732)
+<img src="https://p.sda1.dev/21/6c8babb79c8aa8bf848f44109c5f81ac/20250126_125138.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kitazzinger/status/1883300075876868455](https://x.com/kitazzinger/status/1883300075876868455)
+
+バトンタッチ！お疲れ様でした。
+<img src="https://p.sda1.dev/21/d5e26b5d82521331fcc4e0aedd9c18a8/20250126_125141.jpg" referrerpolicy="no-referrer">
+

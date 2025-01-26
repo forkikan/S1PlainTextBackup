@@ -138,3 +138,22 @@ p位不是黑白两只吗
 
 现在偶像嘛 这样藏着掖着 怕是整更大的活了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 257#         楼主| 发表于 2025-1-26 12:55
+
+[https://x.com/aki_precure/status/1883304535252463789](https://x.com/aki_precure/status/1883304535252463789)
+
+わんぷり50話、第二原画で携わらせていただきましたっ！！
+
+ワンダフル、フレンディ、リリアン、ニャミー、悟、大福
+
+みんな描きましたっっ
+
+最後のバトンタッチのところもやらせてもらってます。アイドルとワンダフルたくさん描きました‼️
+
+幸せです。本当にありがとうございました✨✨
+<img src="https://p.sda1.dev/21/57b3d3c86f7dd23bb9b83fed80c6c043/20250126_125426.jpg" referrerpolicy="no-referrer">
+
