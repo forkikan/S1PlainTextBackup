@@ -11956,3 +11956,26 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 所以纯粹就是为了报复折磨，你楼太纯良总想为角色洗白找补，明明这在女频虐女文里都不是事。 ...</blockquote>
 看12805楼分析，纯打击报复也没道理的。说白了bpart吵架，无论是谁演谁都很恶劣，已经不是角色缺陷可以解释的了，是纯坏了。恶毒女配不需要卖角色但邦需要啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 12839#       发表于 2025-1-26 11:22
+
+有没有可能除了讨厌祥子是真话，莫小姐别的话全是假的，她本来就不想保护睦，也不想保护睦珍视的乐队。第三集内心世界莫小姐也是以玩偶拿伞想要保护睦的形象欺骗了睦，毕竟最后伞掉地上了，睦被吃了。
+如今莫小姐好不容易才出来，怎么可能轻易回去，把鸡团炸了就是为了斩断睦之前的人际关系，好让睦永远沉眠下去。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12840#       发表于 2025-1-26 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280296&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-26 11:22</a>
+有没有可能除了讨厌祥子是真话，莫小姐别的话全是假的，她本来就不想保护睦，也不想保护睦珍视的乐队。第三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦已经沉睡了，为什么要多此一举。
+斩断人际关系和睦永远沉睡有什么关系
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
