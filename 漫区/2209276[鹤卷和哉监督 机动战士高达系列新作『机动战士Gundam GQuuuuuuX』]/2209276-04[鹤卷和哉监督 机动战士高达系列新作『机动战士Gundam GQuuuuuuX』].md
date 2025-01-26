@@ -15506,3 +15506,28 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 这个属实绷不住，现在的X时代还能接受主角被精英杂兵一炮崩掉和阴 毛护身符这类的东西吗 ...</blockquote>
 估计是瞄了眼元祖TV的作画后转头选了看上去不那么痛苦的小说，正好也是夏亚获胜的结局
 
+
+*****
+
+####  虛無迴廊  
+##### 5855#       发表于 2025-1-26 23:58
+
+不是因为大人气角色夏利亚叔叔小说版戏份更多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 5856#       发表于 2025-1-27 00:06
+
+friday anime night要放药屋放到六月，gqx上这个的话至少得七月了
+
+*****
+
+####  57042711  
+##### 5857#       发表于 2025-1-27 00:06
+
+绿色大叔大胜利是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

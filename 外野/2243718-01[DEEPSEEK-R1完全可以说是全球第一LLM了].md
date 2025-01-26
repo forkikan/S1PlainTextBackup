@@ -2687,3 +2687,35 @@ https://weibo.com/6603744955/PbpQT8pqY</blockquote>
 
 [https://www.saraba1st.com/2b/thread-2124524-1-1.html](https://www.saraba1st.com/2b/thread-2124524-1-1.html)
 
+
+*****
+
+####  nexus1  
+##### 184#       发表于 2025-1-27 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284970&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-26 23:55</a>
+
+战狼冯骥盛赞Deepseek是中国之光</blockquote><blockquote>奔跑时速赛港记:插个楼 牢冯啊 连战版本更新后画质缩水严重 此次更新除去pro外所有ps5画质模式由原先插值4k 降为约不到2k 大概率是因为加了吃机能的光照阴影而阉割分辨率 而且在非120hz显示器中 明暗转场的时候会出现画面拖影等的现象 希望继续优化还我4k 目前正在断网玩实体碟老版本4k[doge]
+
+25-1-26 23:35 来自浙江
+
+Yocar-冯骥
+
+:收到，我用AI分析一下情况再发给勇哥</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">成挂件了
+
+*****
+
+####  moeblack  
+##### 185#         楼主| 发表于 2025-1-27 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285018&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-27 00:02</a>
+
+成挂件了</blockquote>
+昨天写文章的感觉是，我只不过是R1大人的文字抄写员罢了
+
+R1:文章要写标题。
+
+我:✍️✍️✍️✍️✍️✍️✍️
+
