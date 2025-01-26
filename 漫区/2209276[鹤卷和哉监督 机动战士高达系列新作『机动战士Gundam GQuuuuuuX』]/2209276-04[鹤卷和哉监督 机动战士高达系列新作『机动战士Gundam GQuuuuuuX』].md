@@ -15648,3 +15648,16 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
  我觉得如果来自正史线又很麻烦，UC后100年正史那边小形文豪在管了。如果是正史、gqx时间线以外又一平行宇 ...</blockquote>
 结果是来自G救世主的时间线（
 
+
+*****
+
+####  xwz  
+##### 5867#       发表于 2025-1-27 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285272&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-27 00:48</a>
+
+我猜修司可能是来自UC正史后期时间线的未来人(V高达-Gaia Gear的时期?)
+
+修司NT能力很高MS驾驶技术也强， ...</blockquote>
+果然还是宇宙人+未来人+异世界人+超能力者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

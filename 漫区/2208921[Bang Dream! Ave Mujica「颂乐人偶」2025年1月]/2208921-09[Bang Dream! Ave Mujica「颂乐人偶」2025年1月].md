@@ -13359,3 +13359,28 @@ https://bbs.nga.cn/read.php?tid=43064917
 
 也就初华比较谜，不知道这人啥定位
 
+
+*****
+
+####  结衣小比取  
+##### 12944#       发表于 2025-1-27 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285434&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-27 01:33</a>
+
+我在看一个MyGO初见单集reaction，作者现在看到第7话：www.油/管.com/@yurienberg
+
+有一点我很赞同（我觉得 ...</blockquote>
+有搬运的，贴这个链接吧
+[https://www.bilibili.com/video/BV1Egf6YvErr/](https://www.bilibili.com/video/BV1Egf6YvErr/)
+
+*****
+
+####  KLHgg  
+##### 12945#       发表于 2025-1-27 03:02
+
+<blockquote>玖羽 发表于 2025-1-27 02:29
+不是瘫倒在舞台上，是瘫倒在椅子上，这两个差别是很大的
+
+说难听点，舞台演出就这样，只要不当场死在舞台 ...</blockquote>
+简单来说睦的严重程度必须剧内人指出来并明确这五个jk处理不了，否则画面表现就只是演出效果
+
