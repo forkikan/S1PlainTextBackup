@@ -14824,3 +14824,15 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
 2025-1-26 16:15 上传
 
+
+*****
+
+####  冰见山美咲  
+##### 5787#       发表于 2025-1-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67281673&amp;ptid=2209276" target="_blank">补天士 发表于 2025-1-26 14:24</a>
+在eva新剧场版之后痞子参与的所有作品都可以认为是痞子在新剧场版玩的侦探游戏的解谜。
+
+奥特曼告诉你，有 ...</blockquote>
+等会，真酱这里啥玩意，咋真希波了
+
