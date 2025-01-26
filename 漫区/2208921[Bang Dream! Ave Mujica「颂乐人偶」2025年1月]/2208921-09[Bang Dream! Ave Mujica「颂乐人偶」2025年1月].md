@@ -13207,3 +13207,34 @@ PV里睦这个抬头动作现在看来很有意思，之前究极发癫，后面
 
 <img src="https://img.saraba1st.com/forum/202501/27/004331bvscyscy8ccoop8o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 12936#       发表于 2025-1-27 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285255&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-27 00:46</a>
+
+我前面就提过，这个镜头还没回收，已知第四集最后要暂时散伙了，那么就没舞台演戏部分，所以这个镜头要回收 ...</blockquote>
+拉到最亮其实看起来应该是两个人，似乎是一个人瘫坐在地上，而另一个人扑在她的怀里拥抱着她。看起来好像是睦和祥子，但是不确定
+
+另外，睦的位置要更右边一点，真要说这里应该更靠近喵梦的位置。
+
+13.PNG
+(102.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 01:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/010042s3ahzr000rf3h670.png" referrerpolicy="no-referrer">
+
+14.PNG
+(338.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 01:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/010431yz6t7gtnlvmnzfg7.png" referrerpolicy="no-referrer">
+
