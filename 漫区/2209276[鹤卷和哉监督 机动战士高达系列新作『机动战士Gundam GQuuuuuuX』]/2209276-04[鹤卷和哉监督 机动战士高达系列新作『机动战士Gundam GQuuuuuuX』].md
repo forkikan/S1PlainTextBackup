@@ -14752,3 +14752,28 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 不知道你能否理解为何痞子非要弄两个鸭子了吧？
 
+
+*****
+
+####  0aleph37  
+##### 5782#       发表于 2025-1-26 14:59
+
+<img src="https://img.saraba1st.com/forum/202501/26/145936e9d8ytrp8ych6w78.jpg" referrerpolicy="no-referrer">
+
+<strong>20250126_145455.jpg</strong> (183.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/145947rqftot8dzq22x8i8.jpg" referrerpolicy="no-referrer">
+
+<strong>20250126_145457.jpg</strong> (309.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-26 14:59 上传
+
+https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
+

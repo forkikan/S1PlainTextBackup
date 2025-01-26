@@ -2340,3 +2340,14 @@ Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。<
 看文档目前reasoning就是调r1？但是选reason还是chat都和谐</blockquote>
 Reasoning就是r1。和谐限制肯定是存在的，但是api下r1可以想办法引导破限的，特别是在搞瑟瑟方面，多尝试看看。
 
+
+*****
+
+####  vava  
+##### 158#       发表于 2025-1-26 15:00
+
+酒馆调用chat模型可以正常工作
+
+调用reasoner无法对话，显示 <blockquote>The first message (except the system message) of deepseek-reasoner must be a user message, but an assistant message detected.</blockquote>
+有解吗
+

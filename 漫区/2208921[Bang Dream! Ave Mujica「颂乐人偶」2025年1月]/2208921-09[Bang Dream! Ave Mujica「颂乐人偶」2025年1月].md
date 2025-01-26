@@ -12768,3 +12768,14 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 <img src="https://p.sda1.dev/21/05dd4dc8b9955bcefee2ef6682ee3d0e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/f5514d895f8feb3c598a03138099a510/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyumo  
+##### 12903#       发表于 2025-1-26 14:59
+
+他们巡演福冈场是最后一场的吗？
+该不会巡演中途还能中断的吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
