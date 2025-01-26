@@ -13319,3 +13319,25 @@ https://bbs.nga.cn/read.php?tid=43064917
 
 第三集睦瘫倒在舞台上，正常思维祥子应该叫救护车了，但编剧的思维是需要爆点时睦就是舞台效果，爆炸后内部解决不了，向外界求助才是可选项
 
+
+*****
+
+####  KokutouMikiya  
+##### 12941#       发表于 2025-1-27 02:29
+
+现在说最后要怎么包饺子我都觉得违和，这五个人现阶段没有任何感情基础，就是冰冷的共事关系，中间总要有个理由让那4个拖1个或者1个拖4个，现在第四集就解散了，该怎么补这个情感驱力？根本猜不透接下来要怎么演<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 12942#       发表于 2025-1-27 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285556&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-27 02:23</a>
+
+泥楼还在讨论睦要不要看医生
+
+第三集睦瘫倒在舞台上，正常思维祥子应该叫救护车了，但编剧的思维是需要爆点 ...</blockquote>
+不是瘫倒在舞台上，是瘫倒在椅子上，这两个差别是很大的
+
+说难听点，舞台演出就这样，只要不当场死在舞台上就要继续演
+

@@ -15638,3 +15638,13 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 那新作谁是真希波</blockquote>
 很有可能就是矮娘女主。
 
+
+*****
+
+####  王留美  
+##### 5866#       发表于 2025-1-27 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285354&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-27 01:08</a>
+ 我觉得如果来自正史线又很麻烦，UC后100年正史那边小形文豪在管了。如果是正史、gqx时间线以外又一平行宇 ...</blockquote>
+结果是来自G救世主的时间线（
+
