@@ -14777,3 +14777,14 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
+
+*****
+
+####  Toby_dak  
+##### 5783#       发表于 2025-1-26 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280124&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-1-26 12:03</a>
+
+主要是观感挺不和谐的，稍微改改，说是特殊部队感觉还好点。。。</blockquote>
+渣种看太多了。
+

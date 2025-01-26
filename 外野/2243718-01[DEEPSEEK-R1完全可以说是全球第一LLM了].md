@@ -2364,3 +2364,23 @@ Reasoning就是r1。和谐限制肯定是存在的，但是api下r1可以想办�
 调用reasoner无法对话，显示</blockquote>
 api配置这里提示词后处理选择严格
 
+
+*****
+
+####  Surlert  
+##### 160#       发表于 2025-1-26 15:23
+
+貌似服务器绷不住了，我网页端小说写一般卡死了。
+
+“不好意思，和 DeepSeek 聊天的人有点太多了，请过一会儿再提问吧。”
+
+
+*****
+
+####  cqc1021  
+##### 161#       发表于 2025-1-26 15:24
+
+试了下，不让写党八股。kimi和豆包都能写，为啥这个不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
