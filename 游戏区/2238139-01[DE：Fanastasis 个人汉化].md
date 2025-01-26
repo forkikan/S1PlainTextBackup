@@ -1173,3 +1173,14 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 
 之前玩了一点，地图设计是真好，但rm战斗系统真是玩吐了不想碰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  突发性哮喘病患  
+##### 110#       发表于 2025-1-27 05:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285079&amp;ptid=2238139" target="_blank">wwddrte 发表于 2025-1-27 00:13</a>
+
+红眼少女我觉得一定要杀的吧，当时我为了找不杀她的办法找了四五个小时。拿到钥匙之后物品描述有说这钥匙一 ...</blockquote>
+这个游戏对话实际上相当少，最多就是三言两句不合就开杀，而且你不杀她是没法重构复活法术，到后面就是杀 杀杀杀
+
