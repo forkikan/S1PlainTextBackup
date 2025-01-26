@@ -12920,3 +12920,14 @@ mortis老师第三话的最后表演简直是完美的，我要是能这么温�
 
 2025-1-26 18:35 上传
 
+
+*****
+
+####  akiomn  
+##### 12915#       发表于 2025-1-26 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起个解法，学习p4和p5那样解释睦的问题不就完了。阴影就是角色隐藏的黑暗面，和角色原本的性格完全不同，切割不掉但又得接受
+睦就是打阴影boss失败了直接be，还不点载入存档直接摆烂了，搞得阴影占了躯体继续打游戏了。需要祥子拉睦一把继续打复活赛，但是最后哪怕打赢了也不能完全切割掉莫提斯，结果肯定接受融合
+这样还能巧妙回避掉双重人格这个难题，毕竟阴影是角色的黑暗面，是必须得接受的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且我不信制作组没参考过p5，同样含有假面和人格要素，当初那么火的jrpg肯定是被参考过的
+

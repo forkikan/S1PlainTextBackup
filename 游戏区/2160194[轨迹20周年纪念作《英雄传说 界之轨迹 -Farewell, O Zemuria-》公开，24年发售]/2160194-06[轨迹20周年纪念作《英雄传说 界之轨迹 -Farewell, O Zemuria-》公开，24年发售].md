@@ -641,3 +641,18 @@ PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秘银mithril  
+##### 7508#       发表于 2025-1-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67268447&amp;ptid=2160194" target="_blank">kenqqex 发表于 2025-1-24 16:55</a>
+
+其实早在空fc——
+
+                                                                .  .  .  .</blockquote>
+早期作品，什么あの人、その人的，对玩家来说确实是不认识的人
+
+但现在全都是熟人了，还要连个小屁孩当游击士协会打杂的都要あの人，虽然都是同一个词但观感完全不一样
+
