@@ -12017,3 +12017,67 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 —— 来自 Xiaomi 23113RK ...</blockquote>
 有可能，但是一是从目前动画内容来看，莫只在睦精神压力较大的情况下出现，二是睦从没有主动在莫出现时先开口说话，三从动画里演绎的莫吞噬睦来看也不像是两者在“合作”，所以也不好说就是这样
 
+
+*****
+
+####  江口夕  
+##### 12843#       发表于 2025-1-26 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280366&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 11:29</a>
+有可能，但是一是从目前动画内容来看，莫只在睦精神压力较大的情况下出现，二是睦从没有主动在莫出现时先 ...</blockquote>
+别123了，首先你第一个就错了，莫女士从小就在了，只不过没冒头，活在底层，谁说压力大就出现。哪有这个前提。
+
+其次莫女士就是假装好人，睦被骗告诉她有什么奇怪的。
+
+更何况，都是同一个身体，都不用说什么告诉不告诉，直接安个只要莫女士出现就能窃取对方的想法的设定都是合情合理的。
+
+退一万步，睦自言自语被莫女士听到了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  xwr  
+##### 12844#       发表于 2025-1-26 11:41
+
+看一圈我觉得现在有说服力的假药就两种,
+
+一是Mortis伙同初华谋划爆团一起演祥子，只要滑坡到无法演出喵梦必爆退队，考虑到官方表情还没回收，那Mortis的大计划还有的演，祥子首当其冲但剩下的也一个都跑不了，初华其实可能并不复杂，只是想金屋藏娇罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+二是现在看到的全是初华的叙述，而初华的记忆有问题，尤其是漫画第三话在阁楼祥子说初华应该见过她母亲吧，结果初华一“惊”，结合小电视还没出现，后半则是要给观众展现初华实际发生了什么。
+
+总之我猜测OOC还会继续，但会更明显，更诡异，进一步调动观众的好奇心。
+
+
+*****
+
+####  刑部姬真可爱  
+##### 12845#       发表于 2025-1-26 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280471&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 11:40</a>
+
+别123了，首先你第一个就错了，莫女士从小就在了，只不过没冒头，活在底层，谁说压力大就出现。哪有这个 ...</blockquote>
+“在”和“出现”是两码事哥们，后续你说的内容反正只通过这几集动画我是看不出来
+
+*****
+
+####  gaayas  
+##### 12846#       发表于 2025-1-26 11:46
+
+假药还是放在看乐子上吧，现在假药变成给剧情打补丁了，假的药要能治病救人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 12847#       发表于 2025-1-26 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280502&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 11:44</a>
+“在”和“出现”是两码事哥们，后续你说的内容反正只通过这几集动画我是看不出来 ...</blockquote>
+其他不提，莫女士假装好人这都看不出来的话。
+
+只能说，说多了都是平行线
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
