@@ -2469,3 +2469,24 @@ api配置这里提示词后处理选择严格</blockquote>
 说实话这么多人都看不到这个选项我也是想不到的</blockquote>
 呃，为啥要搞这么个多此一举的操作啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 169#       发表于 2025-1-26 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">在酒馆用deepseek写刘备没问题吗，毕竟用的手机号注册，而且充值还要实名认证
+
+
+*****
+
+####  黄泉川此方  
+##### 170#       发表于 2025-1-26 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284448&amp;ptid=2243718" target="_blank">人畜无害沃特碧 发表于 2025-1-26 22:28</a>
+
+在酒馆用deepseek写刘备没问题吗，毕竟用的手机号注册，而且充值还要实名认证 ...</blockquote>
+IP不在境内可以用谷歌登录
+
++86注册送10块钱，其他要用API得充值
+
