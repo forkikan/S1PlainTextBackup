@@ -12997,3 +12997,25 @@ mortis老师第三话的最后表演简直是完美的，我要是能这么温�
 
 访谈爆得是第六集，先等到那个时候吧
 
+
+*****
+
+####  waaaagh  
+##### 12923#       发表于 2025-1-26 21:04
+
+母鸡卡中专门提到演技的就木头和大喵，第四集两处逻辑跳跃的地方都是大喵说的话，大喵八成在演戏，不然专门强调去学演技就没意义了。
+
+而且八成是对着木头演，对着天生的演员飙演技比对着一般人在剧情上更有趣。
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">如果演🐘会像霸凌导致观感不好，但演一个偏反派的、可能不存在人权的大墨老师，也更加合理些。
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">盲猜一个MORTIS要么被封印，要么被“杀死”。
+
+*****
+
+####  嵇翱u  
+##### 12924#       发表于 2025-1-26 21:08
+
+主要还是第四集结尾的异质感太强了，强烈到只要是正常看下去的人都会对最后那个部分有自己的看法。
+以至于前几集的一些异常之处在这集结束后都不值一提了。毕竟睦这边的烟花是真大啊，其他人你就算想展开话题，也没办法无视大部分人都关注着现在这个最潮最爆的话题。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
