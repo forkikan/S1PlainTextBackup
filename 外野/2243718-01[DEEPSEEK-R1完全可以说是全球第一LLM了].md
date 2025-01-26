@@ -2810,3 +2810,22 @@ API选择聊天补全
 
 请问有和我一样不论是酒馆还是chatbox都发出信息没有回应的吗，也没法判断是哪里的问题，回话进行了二三十个问题左右吧，这样的小说都太监了，重新再铺垫设定太累了
 
+
+*****
+
+####  goranger  
+##### 193#       发表于 2025-1-27 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285151&amp;ptid=2243718" target="_blank">colice 发表于 2025-1-27 00:26</a>
+想请教下打算用deepseek写公文的话，有什么好的方式么，网页和app的审查比豆包和Kimi都严格，明明没有违禁 ...</blockquote>
+kimi写完交给他润色
+
+*****
+
+####  gammatau  
+##### 194#       发表于 2025-1-27 01:22
+
+<blockquote>SkavenYesYes 发表于 2025-1-26 23:21
+</blockquote>
+喷了，居然还能这个角度
+
