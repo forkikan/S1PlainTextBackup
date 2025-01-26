@@ -12707,3 +12707,30 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 
 喵梦也蛮特务的
 
+
+*****
+
+####  多线程之真理解  
+##### 12896#       发表于 2025-1-26 14:38
+
+刚闲的没事看了看DID的治疗方法，咋感觉这部剧之后要发展成心理治疗的“科普剧”了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  披头破落户  
+##### 12897#       发表于 2025-1-26 14:40
+
+你楼扯了扯了这么多除了在黑泥里打滚什么也讨论不出来，还不如去贴吧nga看假药<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 12898#       发表于 2025-1-26 14:43
+
+黑道大小姐海铃
+
+下集预告乍一看以为海铃被枪指着还面不改色的时候已经脑补出这个背景了 就剩她家庭还一点没露
+
