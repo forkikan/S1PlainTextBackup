@@ -2245,3 +2245,14 @@ deepseek终于还是引起了华尔街的注意：一方面已经有不少ai领�
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 为什么我在酒馆用r1会变弱智
 
+
+*****
+
+####  summerfish  
+##### 149#       发表于 2025-1-26 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277465&amp;ptid=2243718" target="_blank">砂雪 发表于 2025-1-25 22:44</a>
+
+好的，我将按照您的要求创作一篇存在主义风格的短篇小说。为了让故事更加真实可信，我会先梳理一些基本的 ...</blockquote>
+我去，写的也太好了
+

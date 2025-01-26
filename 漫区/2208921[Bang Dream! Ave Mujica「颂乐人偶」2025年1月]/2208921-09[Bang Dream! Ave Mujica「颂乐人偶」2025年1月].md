@@ -11434,3 +11434,48 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 这个时候看人设只能论心不论迹了。
 
+
+*****
+
+####  ads147147  
+##### 12791#       发表于 2025-1-26 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279562&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-1-26 09:55</a>
+
+要我说还是别玩什么反转了，就现在这制作组没那个能力好吧，就当拍砸了赶紧进入下一个阶段好好挖掘角色和关 ...</blockquote>
+就这点破事还专辑笑话呢，隔壁加四人都闹成什么样了，动画更是一拖糊糊也没bd爆炸。
+
+*****
+
+####  江口夕  
+##### 12792#       发表于 2025-1-26 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279538&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 09:50</a>
+反正我觉得如果莫真按坏b来刻画的话那睦的人设是完蛋了</blockquote>
+按你这么讲不光睦完蛋 ，全员完蛋。而且睦怎么完蛋了，莫女士和睦有什么关系么，什么逻辑
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  帝下室の年糕  
+##### 12793#       发表于 2025-1-26 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279585&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-26 09:58</a>
+就这点破事还专辑笑话呢，隔壁加四人都闹成什么样了，动画更是一拖糊糊也没bd爆炸。 ...</blockquote>
+星团基本盘是本子，鸡团基本盘是国内风评，要不看看楼里的鸡友还剩下多少<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 12794#       发表于 2025-1-26 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在扯这么多无非给莫小姐找补
+
+我看别浪费篇幅给莫小姐找补了，当个谐星算了，莫小姐哭一哭大家都会原谅的
+
+把第四集爆炸节奏省下来的篇幅乖乖重塑母鸡卡关系型吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

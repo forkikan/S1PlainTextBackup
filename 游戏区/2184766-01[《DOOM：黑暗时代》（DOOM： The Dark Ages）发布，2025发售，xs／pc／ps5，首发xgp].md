@@ -888,3 +888,19 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 都有精防了，近战有3个充能那就是豆槽，那么缺的就是消耗豆槽的技能了！还有4个月ID赶紧把你那逼近战改成 ...</blockquote>
 艹 真就第一人称魂游是吧
 
+
+*****
+
+####  zzy516232108  
+##### 256#       发表于 2025-1-26 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我真的觉得很像幽灵线东京……
+
+*****
+
+####  JOJO42  
+##### 257#       发表于 2025-1-26 10:03
+
+处决动画…有一定概率没删，b站那个参与制作的老哥提到他几个月前测试模型的时候还有，但是后面是不是被删了就不清楚
+然后这代说是依然有僵尸皮肤
+
