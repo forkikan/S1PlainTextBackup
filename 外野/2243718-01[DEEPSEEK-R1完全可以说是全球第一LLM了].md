@@ -2592,3 +2592,98 @@ api好像还能用吧？
 
 有鬼佬用它准确的图形化了量子电动力学..
 
+
+*****
+
+####  nexus1  
+##### 181#       发表于 2025-1-26 23:54
+
+ 本帖最后由 nexus1 于 2025-1-26 23:55 编辑 
+
+[https://weibo.com/6603744955/PbpQT8pqY](https://weibo.com/6603744955/PbpQT8pqY) <blockquote>Yocar-冯骥
+
+25-1-26 23:32
+
+发布于 浙江
+
+来自 微博网页版
+
+年前还是认真推下DeepSeek吧。
+
+V3已经用了一个月，但R1仅仅用了5天，不得不来发这条微博。
+
+先讲一句暴论：DeepSeek，可能是个国运级别的科技成果。
+
+为了讲清楚这个成果有多惊人，我打个比方：如果有一个AI大模型做到了以下的任何一条，都是超级了不起的突破——
+
+1、强大。比肩O1的推理能力，暂时没有之一
+
+2、便宜。参数少，训练开销与使用费用小了一个数量级
+
+3、开源。任何人均可自行下载与部署，提供论文详细说明训练步骤与窍门，甚至提供了可以运行在手机上的mini模型。
+
+4、免费。官方目前提供的服务完全免费，任何人随时随地可用
+
+5、联网。暂时唯一支持联网搜索的推理模型（o1还不支持）
+
+6、本土。深度求索是一家很小规模的年轻中国公司，由没有海外经历甚至没有资深从业经验的本土团队开发完成
+
+上面的六条，DeepSeek全部、同时做到了。
+
+实在太6了，6到不真实。
+
+如果这都不值得欢呼，还有什么值得欢呼？
+
+那么，希望现在看到这条微博的你去做什么呢？
+
+1、请直接访问：[http://t.cn/A6lvKGGB](http://t.cn/A6lvKGGB)网页链接 马上开玩，也有移动APP
+
+2、疯狂地使用，无尽地对话，尝试习惯用它来取代传统搜索。请想象你已经认识每个领域的顶尖专家，而且他们都是你随时在线的好朋友，把所有可能需要“请教别人”的问题，都拿去先问它——无论是构建一个复杂函数，搞清楚附近哪个游泳池最好，检查合同里的法律陷阱，让新写的歌词再押韵点，或者搞清楚某个保健品的有效成分是否真的通过了科学验证
+
+3、去看看别人是怎么用的，去试试其他大模型，了解AI擅长什么，不擅长什么，如何调教，然后继续解锁与迭代属于自己的用法与更多工具
+
+希望DeepSeek R1会让你对当前最先进的AI祛魅，让AI逐渐变成你生活中的水和电。
+
+太幸运了！太开心了！这样震撼的突破，来自一个纯粹的中国公司。
+
+知识与信息平权，至此又往前迈出了坚实的一步。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/26/235411zge8le83seri8lel.jpg" referrerpolicy="no-referrer">
+
+<strong>005zaVmwgy1hxyl47effjj30u01syjyb.jpg</strong> (242.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 23:54 上传
+
+[color=var(--w-alink)][Yocar-冯骥](https://weibo.com/u/6603744955):完蛋……人还是不能被AI硬控，你说对吗？
+
+<blockquote>Yocar-冯骥
+
+:DS看完我的微博后的部分优化建议[顶] 免费范围：补充说明“官方App免费，但API服务需按量付费”。 参数规模：R1参数为660B，与o1相当，表述中“参数少”易引发误解，建议删除或调整。 “国运级别”：虽搜索结果多次提及“硅谷恐慌”“美国反思”等，但该表述属个人观点，建议标注为“个人评价”。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">原汤化原食
+
+*****
+
+####  moeblack  
+##### 182#         楼主| 发表于 2025-1-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284966&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-26 23:54</a>
+
+https://weibo.com/6603744955/PbpQT8pqY</blockquote>
+战狼冯骥盛赞Deepseek是中国之光
+
+*****
+
+####  moeblack  
+##### 183#         楼主| 发表于 2025-1-26 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284916&amp;ptid=2243718" target="_blank">qqks 发表于 2025-1-26 23:45</a>
+
+就是一个完美的老师，学识充沛，无比耐心的向你普及知识，绝不会因为你的愚蠢产生任何攻击性。</blockquote>
+如果我初中高中有它，我肯定去玩数学竞赛去了，我老师根本讲不懂题目<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+真羡慕未来的孩子，和我23年四月发出了一样的感慨
+
+[https://www.saraba1st.com/2b/thread-2124524-1-1.html](https://www.saraba1st.com/2b/thread-2124524-1-1.html)
+

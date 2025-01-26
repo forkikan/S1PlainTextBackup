@@ -702,3 +702,15 @@ PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  dio999  
+##### 7513#       发表于 2025-1-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284639&amp;ptid=2160194" target="_blank">希鲁夫 发表于 2025-1-26 23:00</a>
+拉碧丝和菲莉怎么认识的啊，完全不记得了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+黎2红魔装的AI六就是拉碧斯啊
+

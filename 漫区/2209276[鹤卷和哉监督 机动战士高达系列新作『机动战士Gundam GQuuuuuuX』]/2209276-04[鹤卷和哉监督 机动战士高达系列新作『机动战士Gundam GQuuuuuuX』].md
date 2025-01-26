@@ -15495,3 +15495,14 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 这下潮哥潮姐入坑指南了 ...</blockquote>
 这个属实绷不住，现在的X时代还能接受主角被精英杂兵一炮崩掉和阴 毛护身符这类的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 5854#       发表于 2025-1-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284918&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-26 23:45</a>
+
+这个属实绷不住，现在的X时代还能接受主角被精英杂兵一炮崩掉和阴 毛护身符这类的东西吗 ...</blockquote>
+估计是瞄了眼元祖TV的作画后转头选了看上去不那么痛苦的小说，正好也是夏亚获胜的结局
+

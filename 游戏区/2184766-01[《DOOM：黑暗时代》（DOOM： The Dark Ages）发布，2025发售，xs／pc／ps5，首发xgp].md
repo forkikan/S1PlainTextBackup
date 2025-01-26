@@ -959,3 +959,11 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 看起来，这代肩炮倒是依然还在
 
+
+*****
+
+####  恶梦再来  
+##### 262#       发表于 2025-1-26 23:50
+
+没了eternal的高速ACT风格有点伤心
+
