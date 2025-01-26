@@ -15451,3 +15451,34 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 
 金23,还举了芙丽莲的例子。首日多话连播预定？
 
+
+*****
+
+####  刺客ares  
+##### 5850#       发表于 2025-1-26 23:26
+
+<blockquote>Gysumitka 发表于 2025-1-26 23:13
+『ガンダム』ジークアクス、テレビ放送は“金曜23時”が濃厚？シリーズ初の「日テレ系」放送に期待高まる
+
+ ...</blockquote>
+首日应该会把0079的部分连带第一集一起播出吧？
+
+
+*****
+
+####  Gysumitka  
+##### 5851#       发表于 2025-1-26 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284805&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-26 23:26</a>
+首日应该会把0079的部分连带第一集一起播出吧？</blockquote>
+这样确实最合理
+
+*****
+
+####  PascalLefèvre  
+##### 5852#       发表于 2025-1-26 23:38
+
+0079部分加第一集，这样加起来正好一个小时<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1148,3 +1148,13 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kikka  
+##### 107#       发表于 2025-1-26 23:33
+
+卡关一天了，雪原入口处女神像钥匙找不到，还有不杀红眼少女的前提下到哪里找黑门钥匙？我看外网讨论去医疗学会找，可是我连医疗学会都找不到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这游戏哪都好，就是提示太少，哪个钥匙一错过就找死人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
