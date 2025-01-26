@@ -2256,3 +2256,26 @@ deepseek终于还是引起了华尔街的注意：一方面已经有不少ai领�
 好的，我将按照您的要求创作一篇存在主义风格的短篇小说。为了让故事更加真实可信，我会先梳理一些基本的 ...</blockquote>
 我去，写的也太好了
 
+
+*****
+
+####  笛诺斯  
+##### 150#       发表于 2025-1-26 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278842&amp;ptid=2243718" target="_blank">renova 发表于 2025-1-26 05:38</a>
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+R1现在有成熟的预设么？
+
+*****
+
+####  yangkaim4  
+##### 151#       发表于 2025-1-26 10:18
+
+<blockquote>renova 发表于 2025-1-26 05:38
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+什么酒馆？具体咋弄？
+

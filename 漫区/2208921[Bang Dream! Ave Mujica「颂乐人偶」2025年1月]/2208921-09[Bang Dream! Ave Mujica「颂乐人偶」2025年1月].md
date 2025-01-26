@@ -11497,3 +11497,65 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 
 就漏油制假药的时候，有没有想过一个最基础的前提，这动画得要卖角色的，你把角色全写成坏种对你卖角色有什么帮助吗？大家一起跟喵圣竞争反向销冠是吧。
 
+
+*****
+
+####  青龙圣者  
+##### 12797#       发表于 2025-1-26 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278633&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-26 02:11</a>
+没看视频，解散可以说打击报复，重组又是为了什么？更深的打击报复？真就这么恨吗？而且大喵先不说，初华 ...</blockquote>
+mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑。
+
+说服初华也很简单，就是出租车上那段。
+
+祥子太忙了撑不住很久，聊到一半突然提成员退出等于解散，把祥子托付给初华的意思。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  青龙圣者  
+##### 12798#       发表于 2025-1-26 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278633&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-26 02:11</a>
+没看视频，解散可以说打击报复，重组又是为了什么？更深的打击报复？真就这么恨吗？而且大喵先不说，初华 ...</blockquote>
+解绑祥子和睦关系，让大祥老师休息。
+
+满足mortis要守护乐队的底层逻辑。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 12799#       发表于 2025-1-26 10:19
+
+把锅全都推到坏小孩墨小姐身上 让祥子唤醒睦 睦来救场 是最轻松的写法
+
+*****
+
+####  青龙圣者  
+##### 12800#       发表于 2025-1-26 10:21
+
+三个叛徒是谁好难猜啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/4cd6b256ec0c377c2ec66af7c3dc0a5a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 12801#       发表于 2025-1-26 10:23
+
+这么多叛徒 最后还要回归到背负人生这个主题 箱子真成圣人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 12802#       发表于 2025-1-26 10:26
+
+以第四集的信息，莫提斯一演四是有可能的，也是比叙诡更平稳的翻篇解释，问题就是没法实锤，不确定因素太多了，所以我说第四集只要 C part 最后半秒莫提斯尖叫完露个计划通的笑容那第四集就无懈可击了，可惜没有。当然从尊重马斯卡雷特的角度看这么决策也是合理的，万一被特写打到了呢（
+
+得看第五集莫提斯是素世（mygo 前7集 ver）化还是继续撒泼打滚。
+
