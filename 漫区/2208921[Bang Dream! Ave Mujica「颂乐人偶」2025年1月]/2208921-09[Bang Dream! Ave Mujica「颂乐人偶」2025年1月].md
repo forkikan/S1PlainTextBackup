@@ -11559,3 +11559,69 @@ mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑�
 
 得看第五集莫提斯是素世（mygo 前7集 ver）化还是继续撒泼打滚。
 
+
+*****
+
+####  drrrrrrrr  
+##### 12803#       发表于 2025-1-26 10:28
+
+海港的路灯和星星，还有初华学的手势都是镜像的，加上op里也有个镜像的初华，是不是初华有什么奇怪的观测角度。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 12804#       发表于 2025-1-26 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279587&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 09:58</a>
+
+按你这么讲不光睦完蛋 ，全员完蛋。而且睦怎么完蛋了，莫女士和睦有什么关系么，什么逻辑
+
+—— 来自 Xia ...</blockquote>
+莫和睦什么关系？？？要么是双重人格，要么是睦表演，我有点不懂你这话什么意思，你的意思是莫和睦没关系？？？
+
+*****
+
+####  古明地雷  
+##### 12805#       发表于 2025-1-26 10:30
+
+别的不说，乐队踢了核心人物真的有重组的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+而且这又牵扯到莫的动机，要讨论莫的动机，首先要讨论莫和睦的关系。
+第二人格基本是代表主人格平时不会显露的真心的一面，如果第二人格不跟主人格有关联，是纯坏逼，那跟鬼上身没区别，那么解决这个坏逼也解决不了睦的本质问题，占的篇幅过多
+在莫一定程度代表睦的真心的基础上再说动机。要么真就这么恨祥，要么强行修正祥。
+前者，睦不会真的这么恨祥。她讨厌也只是讨厌祥不理解她的付出，本质跟祥埋冤她不帮自己说话一样。
+后者，她如果和祥子谈都不谈，强行修正那就是真正的高高在上，严重破坏睦的形象
+
+
+*****
+
+####  刑部姬真可爱  
+##### 12806#       发表于 2025-1-26 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279564&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-26 09:55</a>
+
+这么理解吧，mo女士是睦喷人专用马甲，穿上马甲就是来喷人的。目的是給现在不断恶化的情况踩刹车，结果就 ...</blockquote>
+喵梦现在喷人，逻辑都对得上，但风评已经谷底了，再来一个喷人的角色，不说睦的风评了，一个乐队里两个性质类似的角色wsd不至于干这种事
+
+*****
+
+####  山ノ内花音  
+##### 12807#       发表于 2025-1-26 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279806&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:29</a>
+莫和睦什么关系？？？要么是双重人格，要么是睦表演，我有点不懂你这话什么意思，你的意思是莫和睦没关系 ...</blockquote>
+如果按这种假药 最好是没关系 写成鬼上身 
+之后让墨小姐把锅全背了就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 12808#       发表于 2025-1-26 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279806&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:29</a>
+莫和睦什么关系？？？要么是双重人格，要么是睦表演，我有点不懂你这话什么意思，你的意思是莫和睦没关系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士后面没了就不是双重人格，当然没关系了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
