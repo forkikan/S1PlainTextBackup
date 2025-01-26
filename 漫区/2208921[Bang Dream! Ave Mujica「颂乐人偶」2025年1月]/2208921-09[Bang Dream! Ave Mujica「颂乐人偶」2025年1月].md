@@ -13398,3 +13398,33 @@ MyGO有排练、写歌、开live这些关于组乐队这件事本身很写实的
 在鸡里，对“乐队”的描写完全变成了商业逻辑，海铃负责排日程；祥子一个人写小剧场，演出前发剧本背就是了；初祥包办词曲，和其他成员有没有交流过（我觉得是没有），动画都没有描写。比起“齐心协力”，鸡更像是“各司其职”，纯同事关系。按常理来讲，鸡团的感情就应该在一次又一次的解散危机中慢慢培养起来，如老邦的pp。但这才第四集，编剧就直接让鸡解散了，下面该怎么演？
 已知要包饺子，但是鸡现在不仅没有醋，甚至连食客都没有，包来做甚？我是在困惑这个问题。
 
+
+*****
+
+####  百吧驻楼大使  
+##### 12947#       发表于 2025-1-27 03:39
+
+这集下来看到观众对双重人格的态度比较避忌还是感到有点诧异。毕竟以前有部打篮球🏀热门动漫也是有个双重人格的，我以为都习以为常了。
+虽然观众也是吐槽打个篮球也得扯上双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 12948#       发表于 2025-1-27 03:41
+
+这么明显的伏笔为什么之前没有察觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+祥子喜欢喝红茶，但初华一直给祥子泡咖啡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这不就跟Soyo给灯买摩卡是一样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/27/034022agg05j6od7g1can5.jpg" referrerpolicy="no-referrer">
+
+<strong>618.jpg</strong> (111.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 03:40 上传
+
