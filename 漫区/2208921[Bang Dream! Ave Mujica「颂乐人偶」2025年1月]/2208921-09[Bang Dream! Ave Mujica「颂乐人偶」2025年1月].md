@@ -11625,3 +11625,58 @@ mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  刑部姬真可爱  
+##### 12809#       发表于 2025-1-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279812&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-26 10:30</a>
+
+别的不说，乐队踢了核心人物真的有重组的必要吗
+
+而且这又牵扯到莫的动机，要讨论莫的动机，首先要讨论莫和 ...</blockquote>
+第四集明面上莫是和所有人都私聊过，和祥子虽说是被祥子拉去私聊的但也确实聊过了
+
+
+*****
+
+####  刑部姬真可爱  
+##### 12810#       发表于 2025-1-26 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279858&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 10:34</a>
+
+莫女士后面没了就不是双重人格，当然没关系了。都治好了还有什么问题
+
+—— 来自 Xiaomi 23113RKC6C, And ...</blockquote>
+莫双重人格治好了，那睦呢，睦变成什么样？又回到一开始受气包，一张嘴就打破绽的小鸭子形态？
+
+*****
+
+####  operatbig  
+##### 12811#       发表于 2025-1-26 10:43
+
+就不能除了睦和祥全是坏逼？鸡变成毒妇锁妖塔不是更带感？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 阿兹尔| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  厚乳果珍爽  
+##### 12812#       发表于 2025-1-26 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279806&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:29</a>
+
+莫和睦什么关系？？？要么是双重人格，要么是睦表演，我有点不懂你这话什么意思，你的意思是莫和睦没关系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前主流的有两看法，一个是睦穿了mo女士的马甲，一个是mo上了睦女士的号，前者是演，后者是人格分裂。
+

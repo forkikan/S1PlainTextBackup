@@ -904,3 +904,24 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 处决动画…有一定概率没删，b站那个参与制作的老哥提到他几个月前测试模型的时候还有，但是后面是不是被删了就不清楚
 然后这代说是依然有僵尸皮肤
 
+
+*****
+
+####  有钱多买小人  
+##### 258#       发表于 2025-1-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67276866&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2025-1-25 21:19</a>
+你说过桥那个？把盾当钩锁用场景触发的东西吧。。</blockquote>
+不止，后面说地图探索的时候还有个大跳，明显跟正常跳跃幅度不一样。
+
+
+*****
+
+####  有钱多买小人  
+##### 259#       发表于 2025-1-26 10:40
+
+ 本帖最后由 有钱多买小人 于 2025-1-26 10:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279613&amp;ptid=2184766" target="_blank">zzy516232108 发表于 2025-1-26 10:01</a>
+我真的觉得很像幽灵线东京……</blockquote>
+倒反天罡了，幽灵线本来就是模仿doom 2016。那会很多评测里都提过。
+
