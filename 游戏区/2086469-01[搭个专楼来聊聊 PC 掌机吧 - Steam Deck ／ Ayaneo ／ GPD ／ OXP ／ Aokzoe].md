@@ -796,3 +796,16 @@ Smach Z 破产的时候把问题归咎给疫情以及和广东这边工厂沟通
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 我当时还真的差点就预定了。
 
+
+*****
+
+####  mishizuo  
+##### 1400#       发表于 2025-1-26 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273043&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-25 10:42</a>
+
+有，联想的 Legion Go S Powered by SteamOS，但是要五月份才会发售。
+
+其实我觉得 Bazzite 只要开发者对 ...</blockquote>
+ally刷上bazzite我觉得比sdo体验还更好，不止90%<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
