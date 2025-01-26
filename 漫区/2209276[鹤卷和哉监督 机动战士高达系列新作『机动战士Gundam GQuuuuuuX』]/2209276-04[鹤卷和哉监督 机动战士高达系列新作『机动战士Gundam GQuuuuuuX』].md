@@ -15263,3 +15263,11 @@ MAV的词源确实是来自于マブダチ
 
 挚友是吧
 
+
+*****
+
+####  中野梓  
+##### 5831#       发表于 2025-1-26 21:32
+
+【『機動戦士Gundam GQuuuuuuX -Beginning-』クリエイターズトーク】 [https://www.bilibili.com/video/B ... ae1b6bf8123a7648e14](https://www.bilibili.com/video/BV1U9fzYjEwv/?share_source=copy_web&amp;vd_source=aaafd20d12801ae1b6bf8123a7648e14)
+
