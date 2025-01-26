@@ -2265,7 +2265,7 @@
     "lastedit": 1737904260,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -16538,7 +16538,7 @@
     "newtitle": "[KONAMI新作，幻想水浒传1+2HD REMASTER]",
     "lastedit": 1737670582,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2244011": {
@@ -17217,10 +17217,10 @@
     "update": false
   },
   "2244170": {
-    "totalreply": 134,
+    "totalreply": 136,
     "title": "[黑神话促340亿消费，少数群体的异议态度没有造成影响。]",
     "newtitle": "[黑神话促340亿消费，少数群体的异议态度没有造成影响。]",
-    "lastedit": 1737928930,
+    "lastedit": 1737929890,
     "category": "外野",
     "active": true,
     "update": false
