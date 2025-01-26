@@ -11841,3 +11841,118 @@ mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑�
 莫提斯的描写怎么看都像小屁孩啊，还是太多观众先入为主觉得莫提斯是全能强化版boss形态吧，实际上没有任何 ...</blockquote>
 木箱的叛逆期女儿罢了
 
+
+*****
+
+####  刑部姬真可爱  
+##### 12829#       发表于 2025-1-26 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280004&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-26 10:52</a>
+
+先对一个人精神攻击再不顾她的意愿强行毁掉她的心血，目的是想让她反思自己变得更好，这说得过去吗？ ...</blockquote>
+当然说得过去，精神攻击本质是对祥子的回旋镖，不顾意愿强行毁掉按我认为“莫是好的”的想法是忠言逆耳不破不立。而且祥子的心血已经在实际上造成了睦巨大的精神负担，喵梦的反抗（虽然是为了自私）和海铃的不满，甚至祥子本人巨大的内耗，这种时候不点爆那不成了互相折磨到白头
+
+*****
+
+####  江口夕  
+##### 12830#       发表于 2025-1-26 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280123&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-26 11:03</a>
+莫提斯的描写怎么看都像小屁孩啊，还是太多观众先入为主觉得莫提斯是全能强化版boss形态吧，实际上没有任何 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是认知错位，都以为那个流泪演戏的是莫女士，于是觉得她这么牛逼怎么变得这么菜开始找补。
+
+有没有可能前提就完全错了，流泪演戏的是睦本人。
+
+有个最大的认知错位就是：
+
+谁告诉你们，<strong>睦本人不会演戏</strong>
+
+有没有可能莫女士到现在就没真正在舞台上演过戏
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  刑部姬真可爱  
+##### 12831#       发表于 2025-1-26 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280123&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-26 11:03</a>
+
+莫提斯的描写怎么看都像小屁孩啊，还是太多观众先入为主觉得莫提斯是全能强化版boss形态吧，实际上没有任何 ...</blockquote>
+只能说如是，假如最后的破防为真，又哭又闹那确实小屁孩，但假如真是小屁孩，又怎么能轻松点明其他四人心中的小九九并做出承诺
+
+*****
+
+####  q0we123456  
+##### 12832#       发表于 2025-1-26 11:13
+
+有人提过这样的假说吗？
+
+莫是睦扔不想要东西的垃圾桶而不是玩伴，睦在捡回垃圾桶里的东西时被莫骗了，莫恨睦所以攻击祥子。
+
+*****
+
+####  半年  
+##### 12833#       发表于 2025-1-26 11:14
+
+<img src="https://p.sda1.dev/21/d04be6c96a36022ff8071f9d16e55286/GiLpQMyaYAEvcq5.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/zizoumiao/status/1883324068189061301/photo/1](https://x.com/zizoumiao/status/1883324068189061301/photo/1)
+
+*****
+
+####  半年  
+##### 12834#       发表于 2025-1-26 11:15
+
+<img src="https://img.saraba1st.com/forum/202501/26/111515akwomykwoxxspgkf.jpg" referrerpolicy="no-referrer">
+
+<strong>GiKEJFxboAEPNb3.jpg</strong> (157.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 11:15 上传
+
+[https://x.com/NongAnnBNK/status/1883212934110913004/photo/1](https://x.com/NongAnnBNK/status/1883212934110913004/photo/1)
+
+*****
+
+####  huxiaopao163  
+##### 12835#       发表于 2025-1-26 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279770&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-1-26 10:26</a>
+以第四集的信息，莫提斯一演四是有可能的，也是比叙诡更平稳的翻篇解释，问题就是没法实锤，不确定因素太多 ...</blockquote>
+ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示了吧。计划通笑一下也太直白了，明显现在想藏一手的。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  晓色暮云  
+##### 12836#       发表于 2025-1-26 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280207&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 11:12</a>
+
+只能说如是，假如最后的破防为真，又哭又闹那确实小屁孩，但假如真是小屁孩，又怎么能轻松点明其他四人心 ...</blockquote>
+我觉得这是木就有的能力，她很能共情和理解他人啊，在go里面就体现好几次了，我的倾向是莫提斯没有那么坏，而不是她特别菜，就是从心态上来说她很小孩子
+
+*****
+
+####  江口夕  
+##### 12837#       发表于 2025-1-26 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280207&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 11:12</a>
+只能说如是，假如最后的破防为真，又哭又闹那确实小屁孩，但假如真是小屁孩，又怎么能轻松点明其他四人心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能是善于观察的睦本人告诉莫女士的，莫女士没那个能力。话都是别人的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  古明地雷  
+##### 12838#       发表于 2025-1-26 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280073&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-1-26 10:58</a>
+所以纯粹就是为了报复折磨，你楼太纯良总想为角色洗白找补，明明这在女频虐女文里都不是事。 ...</blockquote>
+看12805楼分析，纯打击报复也没道理的。说白了bpart吵架，无论是谁演谁都很恶劣，已经不是角色缺陷可以解释的了，是纯坏了。恶毒女配不需要卖角色但邦需要啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
