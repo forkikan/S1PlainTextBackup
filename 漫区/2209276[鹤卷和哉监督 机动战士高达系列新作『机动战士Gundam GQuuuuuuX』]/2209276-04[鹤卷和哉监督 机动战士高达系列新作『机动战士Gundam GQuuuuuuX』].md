@@ -14945,3 +14945,64 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  岸浪白野  
+##### 5799#       发表于 2025-1-26 18:46
+
+<img src="https://img.saraba1st.com/forum/202501/26/184656soc4p0e2550mbll5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 18:46 上传
+
+*****
+
+####  bird-lay  
+##### 5800#       发表于 2025-1-26 18:47
+
+话说这场比赛对面什么感想啊，打个黑拳居然上高达，还是两台<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+不过也可能完全认不出来吧
+
+
+*****
+
+####  岸浪白野  
+##### 5801#       发表于 2025-1-26 18:50
+
+[X 上的 コバキンCG（kobakinCG）：“今日のイラスト 『赤いガンダムのシャア』 [url]https://t.co/y42KJJMc8f](https://x.com/kobakin1967/status/1883427463654744529)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/26/185006wopzc001gt51qt5o.jpg" referrerpolicy="no-referrer">
+
+<strong>GiNHMYha4AAmxhq.jpg</strong> (340.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 18:50 上传
+
+*****
+
+####  YU_JI  
+##### 5802#       发表于 2025-1-26 18:51
+
+<blockquote>bird-lay 发表于 2025-1-26 18:47
+话说这场比赛对面什么感想啊，打个黑拳居然上高达，还是两台
+
+不过也可能完全认不出来吧 ...</blockquote>
+一台消失了五年，官方说法应该是寄掉了的红高达，一台刚刚首秀的吉翁新锐机体，用的还是违禁技术，两个打黑拳的能认出来才怪吧……更何况麻球刚开始打纯新手表现
+
+
+*****
+
+####  纪寞  
+##### 5803#       发表于 2025-1-26 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67283181&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-26 18:51</a>
+
+一台消失了五年，官方说法应该是寄掉了的红高达，一台刚刚首秀的吉翁新锐机体，用的还是违禁技术，两个打 ...</blockquote>
+不是说对面是一年战争退役的老将吗？认不出gqx没什么，但我觉得认不出红高达，对红高达没反应是不应该才对。
+
