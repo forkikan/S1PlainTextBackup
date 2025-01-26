@@ -2955,3 +2955,47 @@ NPC对话隐藏治疗对话
 
 问问谁知道目前怎么调教模仿文风写作 这R1让他模仿风格写作他直接开始原创剧情，魔改设定 无视原作故事了。
 
+
+*****
+
+####  黄泉川此方  
+##### 199#       发表于 2025-1-27 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277921&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-25 23:53</a>
+
+跑的是32B的蒸馏模型。我是小白，完全通过询问网页版R1成功部署了，包括安装OPEN WEBUI
+
+这个系统prompt我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">试了试70B好像勉强有反应？显存不够，ollama自动跑内存上了
+
+不过是卡了几分钟，然后开始一个字一个字显示
+
+不过我只有24g显存+32g内存，不知道6 4g内存会不会好点
+
+*****
+
+####  魔灵高达  
+##### 200#       发表于 2025-1-27 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285547&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-27 02:19</a>
+
+试了试70B好像勉强有反应？显存不够，ollama自动跑内存上了
+
+不过是卡了几分钟，然后开始一个字一个字显示
+
+ ...</blockquote>
+我是换成API然后用NGA那帖子里的穿甲咒语成功了，暂且先玩着，这玩意搞NSFW的话很喜欢用一些特别学术的比喻，观感类似傻吧台钳，很搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+我是复制了几篇对我口味的刘备文，让它自己总结并且输出一些让小白创作者也能照着写出差不多风格的文子教程，然后添油加醋让它更加市井、并且指定一些词汇反向输出回去给它，目前看来效果是有一点，明天再继续了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄泉川此方  
+##### 201#       发表于 2025-1-27 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285557&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-27 02:23</a>
+
+我是换成API然后用NGA那帖子里的穿甲咒语成功了，暂且先玩着，这玩意搞NSFW的话很喜欢用一些特别学术的比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么口味特别重
+
