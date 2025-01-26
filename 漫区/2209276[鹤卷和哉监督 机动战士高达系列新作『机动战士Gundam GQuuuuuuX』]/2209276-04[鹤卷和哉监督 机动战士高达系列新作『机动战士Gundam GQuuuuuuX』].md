@@ -14927,3 +14927,21 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
 那新作谁是真希波<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 5797#       发表于 2025-1-26 18:41
+
+还有想想修司口中的"高达"是不是鸭子呢？如果不是鸭子就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 5798#       发表于 2025-1-26 18:41
+
+一会8点的直播的提问环节，瞄了眼カラー官推上募集的问题。怎么没人问红高能靠黑市修理？
+好比现实中搞到F-16的零件不奇怪，但买到F-22的零件就离谱了。而且红高一直就是军用，不像民用渣古要刷军用系统。难道是用了黑市不合适零件，所以在团战划水？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
