@@ -12734,3 +12734,37 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 
 下集预告乍一看以为海铃被枪指着还面不改色的时候已经脑补出这个背景了 就剩她家庭还一点没露
 
+
+*****
+
+####  阿兹尔  
+##### 12899#       发表于 2025-1-26 14:46
+
+祥子这个比心好违和，海铃这个倒是很帅
+
+
+*****
+
+####  山ノ内花音  
+##### 12900#       发表于 2025-1-26 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是AI 吓死我了
+
+*****
+
+####  hulaoda007  
+##### 12901#       发表于 2025-1-26 14:51
+
+坏猫像特务，海玲感觉像唐人街大姐头。
+
+*****
+
+####  一心而用  
+##### 12902#       发表于 2025-1-26 14:54
+
+<img src="https://p.sda1.dev/21/8f3e1a800fc00596c22d6e36183620d9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/705d44c7b5a5e6c836db990cc2dc8237/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/05dd4dc8b9955bcefee2ef6682ee3d0e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f5514d895f8feb3c598a03138099a510/image.jpg" referrerpolicy="no-referrer">
+
