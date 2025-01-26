@@ -15564,3 +15564,41 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 
 已经在做最终话感觉就90%季番了，半年的话一般没有这种播之前就差不多做完的提前量吧
 
+
+*****
+
+####  岸浪白野  
+##### 5861#       发表于 2025-1-27 00:47
+
+[X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉のマンガ [url]https://t.co/sJSlSIfgfk](https://x.com/lysine_slmr/status/1883488140792574008)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/27/004710ku0d83ylmtpcdbsg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1022.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 00:47 上传
+
+*****
+
+####  mad55555  
+##### 5862#       发表于 2025-1-27 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284501&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-26 22:38</a>
+
+凭空生成肉体也太搞了，感觉概率是最低的。
+
+我奶是其他平行宇宙的从小生活在研究所的试管新人类，阿尔法 ...</blockquote>
+我猜修司可能是来自UC正史后期时间线的未来人(V高达-Gaia Gear的时期?)
+
+修司NT能力很高MS驾驶技术也强，而且还具有饥饿属性
+
+感觉很贴合UC后期遍地NT，战事连年种不出作物大饥荒要人吃人的情况
+
+而且这样设定不光能致敬V高达
+
+女主也能存在于正史之中(85年是17岁，如果女主不是哈曼那在V时期也就85岁左右)
+
+修司要是能活着回去的话还能见上晚年麻球最后一面，很浪漫啊
+

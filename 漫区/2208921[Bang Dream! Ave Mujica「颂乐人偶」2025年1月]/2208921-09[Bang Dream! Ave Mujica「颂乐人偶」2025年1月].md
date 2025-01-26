@@ -13189,3 +13189,21 @@ PV里睦这个抬头动作现在看来很有意思，之前究极发癫，后面
 
 2025-1-27 00:23 上传
 
+
+*****
+
+####  akiomn  
+##### 12935#       发表于 2025-1-27 00:46
+
+我前面就提过，这个镜头还没回收，已知第四集最后要暂时散伙了，那么就没舞台演戏部分，所以这个镜头要回收就是第五集了，恰好能接上第四集最后的舞台
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个画面pv里亮度拉到最大是能看清瘫在舞台上的角色和睦的位置是对应上的，如果是睦的话为什么要瘫着？玩脱炸团了吗？
+
+6E963889-8B61-48D6-A6A7-C995A72132CA.jpeg
+(189.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/004331bvscyscy8ccoop8o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
