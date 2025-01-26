@@ -55,3 +55,30 @@
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/018.png" referrerpolicy="no-referrer">狗Q终于完结了，一年那么长的时间过得像一场梦，总体来说今年看得还是挺开心的
 
+
+*****
+
+####  湖静欲成冰  
+##### 2757#       发表于 2025-1-26 08:43
+
+ 本帖最后由 湖静欲成冰 于 2025-1-26 08:45 编辑 
+
+完结了。日常回看的非常开心，主线不敢恭维。印象最深的是30回，看到小雪的转变自己很受触动，后半段由于没有打戏，导致想要传达感情根本出不来给气笑了。那个时候就对主线不抱期望了。总体还是很快乐的一年。只有主线很寒酸吧！
+
+<img src="https://img.saraba1st.com/forum/202501/26/084112xmo1i7qfp8t8i0x7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8658.jpeg</strong> (97.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 08:41 上传
+
+*****
+
+####  成田良美  
+##### 2758#       发表于 2025-1-26 09:01
+
+终于完结了，不知道大家还满意不满意。
+我自己还是非常满意的，因为我倾注最多心血描写的小悟事业爱情双丰收了。
+真的希望还能再当Precure的系列构成啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

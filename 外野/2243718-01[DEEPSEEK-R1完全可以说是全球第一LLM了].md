@@ -2209,3 +2209,16 @@ R1:32B准确的来说是 Qwen2-R1:32B
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 API没审查这个其实很有趣，qwen这帮模型哪怕是离线都有审查，DS看来审查都是在模型之外
 
+
+*****
+
+####  变老的大二  
+##### 146#       发表于 2025-1-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278867&amp;ptid=2243718" target="_blank">希望之花 发表于 2025-1-26 06:28</a>
+
+竟然是这个方面的质疑
+
+----发送自 STAGE1 App for Android.</blockquote>
+现在当务之急就是证明closed ai的成本是合理的，不是骗钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。已经要强行继续星际之门计划了。
+
