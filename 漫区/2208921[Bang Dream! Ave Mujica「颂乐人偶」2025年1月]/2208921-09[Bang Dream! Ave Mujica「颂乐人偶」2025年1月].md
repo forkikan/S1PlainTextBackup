@@ -13294,3 +13294,16 @@ PV里睦这个抬头动作现在看来很有意思，之前究极发癫，后面
 
 2025-1-27 01:24 上传
 
+
+*****
+
+####  huxiaopao163  
+##### 12939#       发表于 2025-1-27 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285369&amp;ptid=2208921" target="_blank">Kal'tsit 发表于 2025-1-27 01:11</a>
+
+https://bbs.nga.cn/read.php?tid=43064917
+
+转个关于喵梦和睦互动的分析，原帖是贴吧，因为带图发个nga的 ...</blockquote>
+非常好的分析啊，可能前半是睦和喵梦对照着写，后半是初华和海玲对照着写
+
