@@ -12089,3 +12089,75 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 说点别的话题，邦邦这边我不太清楚，一季动画应该会出现几首歌？没想到就第一集有live，演的还是op的曲子。。。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 12849#       发表于 2025-1-26 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280535&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-26 11:49</a>
+
+说点别的话题，邦邦这边我不太清楚，一季动画应该会出现几首歌？没想到就第一集有live，演的还是op的曲子。 ...</blockquote>
+第二季第三季歌很多，当然这也是因为突然塞了一堆乐队进来所以必须得歌多，mygo作为某种程度的第四季总的动画里也就表现了三集半曲春日影，7集尴尬的碧天伴走和吉他版春日影，10集诗超绊，12集迷星叫迷路日，13集avemujica，大概5首起步吧
+
+*****
+
+####  whzfjd  
+##### 12850#       发表于 2025-1-26 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279918&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:43</a>
+
+莫双重人格治好了，那睦呢，睦变成什么样？又回到一开始受气包，一张嘴就打破绽的小鸭子形态？ ...</blockquote>
+参考隔壁奇贤异伴黑色天使，里面的女主魂飞魄散，但是用女反派的肉体重新出场，继承能力，顺便完成下肉体原主的心愿<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 12851#       发表于 2025-1-26 12:03
+
+ 本帖最后由 akiomn 于 2025-1-26 12:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒得和上面已经给睦颁发双重人格的吵了
+
+我就说一句，如果实锤睦有双重人格，后面是祥子嘴炮或者音乐疗法睦成功，然后莫提斯人格消失或者融合，我不觉得有多少观众买账，只会觉得有病就去医院而不是待在乐队
+
+突出一个魔幻到家了，双重人格这种是能靠嘴炮或者音乐治好的是吧，这种东西大概率是永久存在的
+
+最几把尴尬的是什么？是第四集和接下来莫提斯继续上线的时间对睦是0塑造，原本的睦用2，3两集塑造了惨，然后呢？没了，接下来塑造的全是莫提斯
+
+这又不是虚白这种玩意，而是基于现实世界的真实病例
+
+*****
+
+####  huxiaopao163  
+##### 12852#       发表于 2025-1-26 12:04
+
+ 本帖最后由 huxiaopao163 于 2025-1-26 12:05 编辑 
+
+我觉得mortis是装坏人，用雷霆手段抽小祥鞭子，让小祥反省和成长。说“凭现在的小祥，睦再也回不来了。”就是希望小祥能成长为一个值得睦回来的人。
+有点类似那种严父的角色，现在小祥肯定很讨厌mortis。但是等祥子成长了，领悟一切后，两人相拥而泣，“我要走了，现在把睦交给你我也放心了”。
+这种不是还挺王道的
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  swessia  
+##### 12853#       发表于 2025-1-26 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">看了一圈，感觉大家都不喜欢杂鱼莫小姐啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  青龙圣者  
+##### 12854#       发表于 2025-1-26 12:08
+
+莫提斯跟其他人说：
+祥子最近一直通宵编曲状态很差，我们偷偷把队拆了让她修养吧。
+她最近疑神疑鬼 总是说我变了一个人，是双重人格什么的，可能有被害幻想了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
