@@ -2222,3 +2222,26 @@ API没审查这个其实很有趣，qwen这帮模型哪怕是离线都有审查�
 ----发送自 STAGE1 App for Android.</blockquote>
 现在当务之急就是证明closed ai的成本是合理的，不是骗钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。已经要强行继续星际之门计划了。
 
+
+*****
+
+####  greataxe_02  
+##### 147#       发表于 2025-1-26 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278862&amp;ptid=2243718" target="_blank">marlun 发表于 2025-1-26 06:22</a>
+deepseek终于还是引起了华尔街的注意：一方面已经有不少ai领域的大咖开始质疑deepseek的训练成本是不是真的 ...</blockquote>
+其实是有政府补贴，用一次就亏一次，那还不赶紧用到他们补贴不起到破产啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  布里兰特  
+##### 148#       发表于 2025-1-26 09:13
+
+<blockquote>renova 发表于 2025-1-26 05:38
+不是，你们都不玩酒馆的么。。。API基本没审查，R1瑟瑟起来不要太颠。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+为什么我在酒馆用r1会变弱智
+
