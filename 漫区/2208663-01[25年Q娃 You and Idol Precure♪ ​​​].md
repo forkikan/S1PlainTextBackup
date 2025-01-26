@@ -99,3 +99,31 @@
 
 查看全部评分
 
+
+*****
+
+####  pokemon最爱  
+##### 253#       发表于 2025-1-26 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279846&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-1-26 10:33</a>
+
+所以我们的P呢，给个交代啊！</blockquote>
+传说中的救世主不需要P，自己上就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双菜  
+##### 254#       发表于 2025-1-26 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279846&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-1-26 10:33</a>
+所以我们的P呢，给个交代啊！</blockquote>
+p位不是黑白两只吗
+
+*****
+
+####  jaewoongh_  
+##### 255#       发表于 2025-1-26 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">去听了下粉主live曲，考虑到这是声优自己唱的，还真挺不错
+

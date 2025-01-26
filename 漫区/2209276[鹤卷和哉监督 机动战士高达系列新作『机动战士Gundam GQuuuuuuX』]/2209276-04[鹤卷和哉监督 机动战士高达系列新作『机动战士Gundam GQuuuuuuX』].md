@@ -14646,3 +14646,14 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 
 让索顿的人都穿红色制服怎么样，由吉翁战争英雄夏亚最信赖的战友夏利亚领导的特殊部队，为了纪念吉翁英雄夏保国，全舰着装夏亚同款红色吉翁军服（<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  补天士  
+##### 5773#       发表于 2025-1-26 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278915&amp;ptid=2209276" target="_blank">WallHrolf 发表于 2025-1-26 07:31</a>
+
+按照那人的意思，khara就是庵野的一言堂，鹤卷作为监督还压不住脚本独走，含泪做了40分钟的79if ...</blockquote>
+傀儡监督不配做人……
+

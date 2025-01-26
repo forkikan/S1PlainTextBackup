@@ -11979,3 +11979,41 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  半年  
+##### 12841#       发表于 2025-1-26 11:29
+
+<img src="https://img.saraba1st.com/forum/202501/26/112856u5i4j5biziyi344z.jpg" referrerpolicy="no-referrer">
+
+<strong>GiGbQ5QbIAATZfn.jpg</strong> (351.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 11:28 上传
+
+[https://x.com/Kanon_Takao/status/1882956837731135622/photo/1](https://x.com/Kanon_Takao/status/1882956837731135622/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202501/26/112855q1wvsfnvnlhq7hnx.jpg" referrerpolicy="no-referrer">
+
+<strong>GiJWBYuaQAAL_Fx.jpg</strong> (209.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 11:28 上传
+
+[https://x.com/yuG_isoG/status/1883162194696864242/photo/1](https://x.com/yuG_isoG/status/1883162194696864242/photo/1)
+
+*****
+
+####  刑部姬真可爱  
+##### 12842#       发表于 2025-1-26 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280253&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 11:17</a>
+
+有没有可能是善于观察的睦本人告诉莫女士的，莫女士没那个能力。话都是别人的
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+有可能，但是一是从目前动画内容来看，莫只在睦精神压力较大的情况下出现，二是睦从没有主动在莫出现时先开口说话，三从动画里演绎的莫吞噬睦来看也不像是两者在“合作”，所以也不好说就是这样
+
