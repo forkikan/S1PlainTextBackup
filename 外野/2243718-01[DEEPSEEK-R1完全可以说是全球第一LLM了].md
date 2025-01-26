@@ -2384,3 +2384,14 @@ api配置这里提示词后处理选择严格
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  vava  
+##### 162#       发表于 2025-1-26 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282008&amp;ptid=2243718" target="_blank">88316756 发表于 2025-1-26 15:13</a>
+
+api配置这里提示词后处理选择严格</blockquote>
+恕我愚笨，这个选项在哪里？没找到
+
