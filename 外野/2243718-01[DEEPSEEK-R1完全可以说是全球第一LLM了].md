@@ -2415,3 +2415,16 @@ api配置这里提示词后处理选择严格</blockquote>
 
  或者更新酒馆为staging分支的最新版也能支持r1
 
+
+*****
+
+####  vava  
+##### 164#       发表于 2025-1-26 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282143&amp;ptid=2243718" target="_blank">88316756 发表于 2025-1-26 15:41</a>
+
+或者更新酒馆为staging分支的最新版也能支持r1</blockquote>
+感谢回复，顺利解决
+
+原来只有选自定义聊天补全来源的时候才会有这几个选项
+

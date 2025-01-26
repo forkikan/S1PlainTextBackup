@@ -14796,3 +14796,13 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
 话说嘎哒里的闪光弹到底什么原理？屏幕没有最高亮度限制的吗
 
+
+*****
+
+####  卡博雷z  
+##### 5785#       发表于 2025-1-26 15:53
+
+刚看完有点懵，什么独角兽（神棍）+武斗传<img src="https://p.sda1.dev/21/1fc01304b34ba2c67f36a1225b0c83e2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
