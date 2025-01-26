@@ -2841,3 +2841,11 @@ ST配置
 目前ST的Release分支(大家一般使用的分支)暂时不支持 DeepSeekR1</blockquote>
 去github下载Git装了没？ 
 
+
+*****
+
+####  陈八尺  
+##### 196#       发表于 2025-1-27 01:34
+
+今天才发现计费模式从之前的买token变成直接计费，不知道我之前买的3000多万token是亏是赚<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
