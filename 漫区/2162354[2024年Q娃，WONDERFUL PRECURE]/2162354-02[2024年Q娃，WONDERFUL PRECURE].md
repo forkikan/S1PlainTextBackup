@@ -128,3 +128,13 @@
 バトンタッチ！お疲れ様でした。
 <img src="https://p.sda1.dev/21/d5e26b5d82521331fcc4e0aedd9c18a8/20250126_125141.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 2762#       发表于 2025-1-26 19:18
+
+虽然不能变成人形，但能说人话，尼克大人给开小窗过于有能<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+结局的文戏还是做得不错，这一年看得挺开心的
+
