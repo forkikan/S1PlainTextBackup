@@ -2330,3 +2330,13 @@ Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。
 Api默认不是选的r1，要自己手动改。api下r1的尺度要宽很多。</blockquote>
 看文档目前reasoning就是调r1？但是选reason还是chat都和谐
 
+
+*****
+
+####  tillnight  
+##### 157#       发表于 2025-1-26 14:21
+
+<blockquote>requiem116 发表于 2025-1-26 14:03
+看文档目前reasoning就是调r1？但是选reason还是chat都和谐</blockquote>
+Reasoning就是r1。和谐限制肯定是存在的，但是api下r1可以想办法引导破限的，特别是在搞瑟瑟方面，多尝试看看。
+

@@ -12622,3 +12622,65 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  江口夕  
+##### 12891#       发表于 2025-1-26 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">大家都是致力于演艺事业的人
+
+         局中唯二有演艺背景的莫老师和大猫
+
+你们只认可莫老师联合其他人演祥子让祥子一无所有。
+却不认可大猫老师主演来让莫老师这个局外人退场，是不是双标。
+
+建议你们回去重新看看大猫的分镜眼神表情台词。老实说第一遍看还不觉得，只觉得有违和感，现在看只觉得精彩
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 12892#       发表于 2025-1-26 14:21
+
+<img src="https://img.saraba1st.com/forum/202501/26/142132oddc0izvtyr8v83r.jpg" referrerpolicy="no-referrer">
+
+<strong>0b4fb286c9177f3eb4b57c2536cf3bc7.jpg</strong> (51.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/142132mwuafffx8svru8o0.jpg" referrerpolicy="no-referrer">
+
+<strong>a5b97209c93d70cfed7b2a25bedcd100.jpg</strong> (82.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/142132hjhaozoaok16s3x5.jpg" referrerpolicy="no-referrer">
+
+<strong>13906a3e6709c93da5738edfd93df8dc.jpg</strong> (77.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/142132usscscc75c7bcr16.jpg" referrerpolicy="no-referrer">
+
+<strong>e1408a3df8dcd100601d7809348b4710.jpg</strong> (75.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/142132mh2h2uhhb7u30f2s.jpg" referrerpolicy="no-referrer">
+
+<strong>225bc400baa1cd11ae37f208ff12c8fc.jpg</strong> (88.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 14:21 上传
+
