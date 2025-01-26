@@ -2395,3 +2395,23 @@ api配置这里提示词后处理选择严格
 api配置这里提示词后处理选择严格</blockquote>
 恕我愚笨，这个选项在哪里？没找到
 
+
+*****
+
+####  88316756  
+##### 163#       发表于 2025-1-26 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282100&amp;ptid=2243718" target="_blank">vava 发表于 2025-1-26 15:33</a>
+
+恕我愚笨，这个选项在哪里？没找到</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/26/154053k444g4cfwbsogwch.png" referrerpolicy="no-referrer">
+
+<strong>ttt.png</strong> (47.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 15:40 上传
+
+ 或者更新酒馆为staging分支的最新版也能支持r1
+
