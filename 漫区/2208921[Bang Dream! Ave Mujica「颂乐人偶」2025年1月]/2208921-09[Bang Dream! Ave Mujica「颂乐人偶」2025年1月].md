@@ -12818,3 +12818,21 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 中午做了个梦，大概内容是五人在舞台上，没有剧本，混杂着真心即兴表演，最后包了饺子，醒来后想了想好像完 ...</blockquote>
 做了个喵梦
 
+
+*****
+
+####  新HGCG  
+##### 12908#       发表于 2025-1-26 16:29
+
+图转群
+
+是问AI问的应该
+
+<img src="https://img.saraba1st.com/forum/202501/26/162912hwxrij2tyrh02wex.jpg" referrerpolicy="no-referrer">
+
+<strong>O`VPBTC`TMX5L_K1WDR53LA.jpg</strong> (798.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 16:29 上传
+
