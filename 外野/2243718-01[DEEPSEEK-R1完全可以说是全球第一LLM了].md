@@ -2829,3 +2829,15 @@ kimi写完交给他润色
 </blockquote>
 喷了，居然还能这个角度
 
+
+*****
+
+####  88316756  
+##### 195#       发表于 2025-1-27 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285159&amp;ptid=2243718" target="_blank">凉良 发表于 2025-1-27 00:27</a>
+ST配置
+
+目前ST的Release分支(大家一般使用的分支)暂时不支持 DeepSeekR1</blockquote>
+去github下载Git装了没？ 
+

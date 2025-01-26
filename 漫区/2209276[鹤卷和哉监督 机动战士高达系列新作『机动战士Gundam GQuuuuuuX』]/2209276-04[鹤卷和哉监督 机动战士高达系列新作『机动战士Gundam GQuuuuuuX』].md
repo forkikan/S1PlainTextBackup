@@ -15615,3 +15615,26 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 修司NT能力很高MS驾驶技术也强， ...</blockquote>
 我觉得如果来自正史线又很麻烦，毕竟要插一个又重新研究强力塞克缪的时间点很麻烦，UC后100年正史那边小形文豪在管了。而且长谷川的设定都是没有转正的灰色地带，如果是正史、gqx时间线以外又一平行宇宙才更方便操作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  补天士  
+##### 5864#       发表于 2025-1-27 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282607&amp;ptid=2209276" target="_blank">冰见山美咲 发表于 2025-1-26 17:05</a>
+
+等会，真酱这里啥玩意，咋真希波了</blockquote>
+新哥斯拉的真希博士，
+
+不是新奥的真嗣。
+
+*****
+
+####  补天士  
+##### 5865#       发表于 2025-1-27 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282980&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-1-26 18:21</a>
+
+那新作谁是真希波</blockquote>
+很有可能就是矮娘女主。
+
