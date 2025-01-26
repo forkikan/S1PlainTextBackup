@@ -13134,3 +13134,13 @@ MyGO之后一年半那么多假药，没人想到“祥子在组Crychic之前母
 
 不是说这片观感很像半泽直树嘛，可能真的是大女主职场日剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  borrowface  
+##### 12932#       发表于 2025-1-27 00:14
+
+有没有初华被莫一句话堵嘴后，那个低拢着脑袋的兽耳图。确实太像了
+
+<img src="https://ibb.co/ySW62Wn" id="aimg_E1oOX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

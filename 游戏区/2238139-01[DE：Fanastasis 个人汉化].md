@@ -1158,3 +1158,18 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 
 这游戏哪都好，就是提示太少，哪个钥匙一错过就找死人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwddrte  
+##### 108#       发表于 2025-1-27 00:13
+
+红眼少女我觉得一定要杀的吧，当时我为了找不杀她的办法找了四五个小时。拿到钥匙之后物品描述有说这钥匙一共就两把，一把在她那，一把在摄政那，摄政是后面的boss肯定没法提前拿。我当时奇怪的是就不能把少女叫醒嘛，人就在你旁边怎么就不能沟通一下呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  祆天发育不良  
+##### 109#       发表于 2025-1-27 00:17
+
+之前玩了一点，地图设计是真好，但rm战斗系统真是玩吐了不想碰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
