@@ -127,3 +127,14 @@ p位不是黑白两只吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">去听了下粉主live曲，考虑到这是声优自己唱的，还真挺不错
 
+
+*****
+
+####  粉儿alice  
+##### 256#       发表于 2025-1-26 12:35
+
+被天空开播前整大喇叭噱头给吃教训反噬了呗
+宠物就学乖了 不肉博开播后生米煮成熟饭再说 访谈也各种官方废话防止爆点<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+现在偶像嘛 这样藏着掖着 怕是整更大的活了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
