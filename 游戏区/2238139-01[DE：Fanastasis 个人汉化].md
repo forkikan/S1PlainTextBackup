@@ -1126,3 +1126,25 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 
 汉化链接失效了……
 
+
+*****
+
+####  kerbad  
+##### 105#       发表于 2025-1-26 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278427&amp;ptid=2238139" target="_blank">alleriawr9 发表于 2025-1-26 01:24</a>
+可能没有几个玩家知道这游戏的世界存在比例尺，很多时候以为是地图设计失误对不上，其实是某张图（比如室外 ...</blockquote>
+在我知道这游戏所有的室内外地图都能严丝合缝拼在一起的时候我是震惊的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alleriawr9  
+##### 106#       发表于 2025-1-26 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284759&amp;ptid=2238139" target="_blank">kerbad 发表于 2025-1-26 23:19</a>
+在我知道这游戏所有的室内外地图都能严丝合缝拼在一起的时候我是震惊的 ...</blockquote>
+真能吗，其实我还是感觉不少地方不能的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

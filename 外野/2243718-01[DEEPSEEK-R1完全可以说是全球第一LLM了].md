@@ -2524,3 +2524,47 @@ IP不在境内可以用谷歌登录
 因为平时用的是v3，深度思考是r1，这就是两个不同模型啊
 现在吹的都是r1，其实v3也就……还好吧
 
+
+*****
+
+####  geeky_kappa  
+##### 174#       发表于 2025-1-26 23:17
+
+试了下问一些压根不在网上的trpg内容，随着问题的细化网络资料撑不起回答开始复读，但居然花了4个问题才出现
+
+*****
+
+####  stygian  
+##### 175#       发表于 2025-1-26 23:17
+
+喷了，晚上就反应很慢，现在直接崩了还行<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 176#       发表于 2025-1-26 23:20
+
+api好像还能用吧？
+
+*****
+
+####  SkavenYesYes  
+##### 177#       发表于 2025-1-26 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/26/232140u9ksc89ujrzxchre.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (838.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 23:21 上传
+
+*****
+
+####  nexus1  
+##### 178#       发表于 2025-1-26 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">已经在用这玩意学专业课了，真屌，比上学的时候爽太多了
+
