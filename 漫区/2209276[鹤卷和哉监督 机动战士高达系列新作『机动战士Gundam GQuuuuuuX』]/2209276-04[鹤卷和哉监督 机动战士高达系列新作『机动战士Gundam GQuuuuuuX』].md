@@ -15482,3 +15482,16 @@ GQX现在用那把是民间私企仿制军用设备为了打黑拳的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Toby_dak  
+##### 5853#       发表于 2025-1-26 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284485&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-1-26 23:35</a>
+
+最出乎意料的是GQX这剧场版还带动了元祖小说的销量
+
+这下潮哥潮姐入坑指南了 ...</blockquote>
+这个属实绷不住，现在的X时代还能接受主角被精英杂兵一炮崩掉和阴 毛护身符这类的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

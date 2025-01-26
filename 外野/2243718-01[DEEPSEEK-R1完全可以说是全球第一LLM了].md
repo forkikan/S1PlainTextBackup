@@ -2568,3 +2568,27 @@ api好像还能用吧？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">已经在用这玩意学专业课了，真屌，比上学的时候爽太多了
 
+
+*****
+
+####  森田美位子  
+##### 179#       发表于 2025-1-26 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">用量信息、api key、账单都能打开，唯独充值打不开
+
+
+*****
+
+####  qqks  
+##### 180#       发表于 2025-1-26 23:45
+
+ 本帖最后由 qqks 于 2025-1-26 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284770&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-26 23:21</a>
+
+已经在用这玩意学专业课了，真屌，比上学的时候爽太多了</blockquote>
+就是一个完美的老师，学识充沛，无比耐心的向你普及知识，绝不会因为你的愚蠢产生任何攻击性。
+
+少数人对知识的垄断彻底终结了
+
+有鬼佬用它准确的图形化了量子电动力学..
+

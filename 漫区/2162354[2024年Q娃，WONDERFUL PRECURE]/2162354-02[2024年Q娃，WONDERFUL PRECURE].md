@@ -192,3 +192,13 @@
 
 2025-1-26 21:31 上传
 
+
+*****
+
+####  codezwei  
+##### 2766#       发表于 2025-1-26 23:37
+
+完结撒花，有点舍不得
+
+—— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
