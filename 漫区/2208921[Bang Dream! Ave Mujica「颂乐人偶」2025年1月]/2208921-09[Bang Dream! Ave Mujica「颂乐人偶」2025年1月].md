@@ -11743,3 +11743,101 @@ mortis讨厌祥子，解绑睦祥关系，又满足mortis守护乐队的逻辑�
 希望根本雄贵面对天台飞人的股价也能这么有魄力。 ...</blockquote>
 我认为这么写至少在国内会更火。
 
+
+*****
+
+####  DD-963  
+##### 12819#       发表于 2025-1-26 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279918&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-26 10:43</a>
+
+莫双重人格治好了，那睦呢，睦变成什么样？又回到一开始受气包，一张嘴就打破绽的小鸭子形态？ ...</blockquote>
+这集祥子说 我只想要睦回来。   到底是想要幼驯染的睦还是想要一个吉他手工具人呢
+
+*****
+
+####  operatbig  
+##### 12820#       发表于 2025-1-26 10:58
+
+<blockquote>古明地雷 发表于 2025-1-26 10:52
+先对一个人精神攻击再不顾她的意愿强行毁掉她的心血，目的是想让她反思自己变得更好，这说得过去吗？ ...</blockquote>
+
+所以纯粹就是为了报复折磨，你楼太纯良总想为角色洗白找补，明明这在女频虐女文里都不是事。
+
+*****
+
+####  山ノ内花音  
+##### 12821#       发表于 2025-1-26 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280061&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-1-26 10:57</a>
+这集祥子说 我只想要睦回来。   到底是想要幼驯染的睦还是想要一个吉他手工具人呢 ...</blockquote>
+那为什么不找一个代打的吉他手工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 12822#       发表于 2025-1-26 10:59
+
+<blockquote>operatbig 发表于 2025-1-26 10:43
+就不能除了睦和祥全是坏逼？鸡变成毒妇锁妖塔不是更带感？</blockquote>
+那应该改成喵梦**自焚遭受网暴被迫退网，回到老家郁郁而终。初华看起来人畜无害但实则馋小祥身子，实施计划被逮个正着锒铛入狱。海铃愉悦犯破坏乐队感情次数过多被发现逐出鸡团。然后事务所发现睦祥二人关系性，实力，后背的资源都完美超过sumimi，将资源大量倾斜给睦祥二人组，最后睦祥历经千辛万苦将所有错误答案剔除，组成二人姐妹乐队，终成版本答案
+
+*****
+
+####  ml1642879  
+##### 12823#       发表于 2025-1-26 10:59
+
+也是网络时代了，要搁TV时代，只看放送台或者忘记录画的日宅碰见这种剧情估计说一句やべー就等下一周了
+
+*****
+
+####  江口夕  
+##### 12824#       发表于 2025-1-26 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280061&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-1-26 10:57</a>
+这集祥子说 我只想要睦回来。   到底是想要幼驯染的睦还是想要一个吉他手工具人呢 ...</blockquote>
+大祥现在的优先级应该是
+睦回来&gt;mujica完整性。
+一方面符合大祥人格，另一方面毕竟是大祥造成的。所以大祥选择沉默
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  operatbig  
+##### 12825#       发表于 2025-1-26 11:01
+
+<blockquote>阿兹尔 发表于 2025-1-26 10:59
+那应该改成喵梦**自焚遭受网暴被迫退网，回到老家郁郁而终。初华看起来人畜无害但实则馋小祥身子，实施计 ...</blockquote>
+我就是一直这么看海铃的，不过应该不会写得这么直白，只是经历了多个乐队解散后逐渐有了这种倾向。
+
+
+*****
+
+####  江口夕  
+##### 12826#       发表于 2025-1-26 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280077&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-26 10:58</a>
+那为什么不找一个代打的吉他手工具人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是代打，找了代打，莫老师也要在台上处在那里，这才是致命。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  晓色暮云  
+##### 12827#       发表于 2025-1-26 11:03
+
+ 本帖最后由 晓色暮云 于 2025-1-26 11:04 编辑 
+
+莫提斯的描写怎么看都像小屁孩啊，还是太多观众先入为主觉得莫提斯是全能强化版boss形态吧，实际上没有任何铺垫，莫提斯一开始是玩偶形态可能也是暗示她就是个小孩子。我是真觉得小孩刻画虽然烂也比心机深沉四演一好多了
+
+*****
+
+####  山ノ内花音  
+##### 12828#       发表于 2025-1-26 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280123&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-26 11:03</a>
+莫提斯的描写怎么看都像小屁孩啊，还是太多观众先入为主觉得莫提斯是全能强化版boss形态吧，实际上没有任何 ...</blockquote>
+木箱的叛逆期女儿罢了
+

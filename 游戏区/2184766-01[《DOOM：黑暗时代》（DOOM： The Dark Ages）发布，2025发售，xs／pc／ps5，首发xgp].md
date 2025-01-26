@@ -925,3 +925,21 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 我真的觉得很像幽灵线东京……</blockquote>
 倒反天罡了，幽灵线本来就是模仿doom 2016。那会很多评测里都提过。
 
+
+*****
+
+####  zzy516232108  
+##### 260#       发表于 2025-1-26 11:02
+
+ 本帖最后由 zzy516232108 于 2025-1-26 11:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67279898&amp;ptid=2184766" target="_blank">有钱多买小人 发表于 2025-1-26 10:40</a>
+
+倒反天罡了，幽灵线本来就是模仿doom 2016。那会很多评测里都提过。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2016大部分时间还是在移动射击中度过的，移动是一个必须要学会的技能，而且至少还有二段跳+攀爬+高低差
+
+然而这个幽灵线真不太行啊，走路龟速，基本不存在run and gun，就是站定了射水射火射风，然后怪物攻击就防御或者弹反……
+
+现在看TDA也是平地龟速游戏，我真的有点害怕，而且很明显盾牌防御+弹反是核心
+
+当然幽灵线本身的gameplay很乏善可陈，希望不担心tda的gameplay……
+

@@ -14627,3 +14627,14 @@ NGA的庵黑没救了，硬要说开局不利庵野全责，怎么解释都不�
 人物讨喜是可以讨喜， ...</blockquote>
 不穿自护军服如何知道人家是自护军人？警察上岗都要制服证件齐备啊。
 
+
+*****
+
+####  ads147147  
+##### 5771#       发表于 2025-1-26 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280039&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-26 10:55</a>
+
+不穿自护军服如何知道人家是自护军人？警察上岗都要制服证件齐备啊。</blockquote>
+主要是观感挺不和谐的，稍微改改，说是特殊部队感觉还好点。。。
+
