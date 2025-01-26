@@ -283,3 +283,11 @@ p位不是黑白两只吗
 
 [https://www.bilibili.com/video/BV1ojFAefExK](https://www.bilibili.com/video/BV1ojFAefExK)
 
+
+*****
+
+####  wly  
+##### 269#       发表于 2025-1-26 21:07
+
+op没感觉，主角角色歌还挺好听的
+
