@@ -11236,3 +11236,14 @@ mujica到底要不要搞乐队，搞什么样的乐队？
 结果又 ...</blockquote>
 初华纯串子 一直在反大箱 我怀疑她喜欢的是mortis 不把木头人逼死mortis是不会出来的
 
+
+*****
+
+####  thisisaspider  
+##### 12772#       发表于 2025-1-26 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67278973&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-26 08:03</a>
+
+初华纯串子 一直在反大箱 我怀疑她喜欢的是mortis 不把木头人逼死mortis是不会出来的 ...</blockquote>
+我觉得不是，至少最终不会是，理由是wsd在卖CP。如果写初和莫的关系，后面不好发展。
+
