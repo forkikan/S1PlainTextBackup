@@ -12779,3 +12779,16 @@ mortis是小睦现象中的玩伴，小睦给mortis设定成如今的性格。�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  吹楼伞人  
+##### 12904#       发表于 2025-1-26 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67281922&amp;ptid=2208921" target="_blank">kyumo 发表于 2025-1-26 14:59</a>
+他们巡演福冈场是最后一场的吗？
+该不会巡演中途还能中断的吧</blockquote>
+说了巡演最后一场有新曲
+那么可能暂停，等播到后面再来新曲
+也有可能没暂停，但是后面几集信息密度巨大，所有事情在巡演中发生/解决
+

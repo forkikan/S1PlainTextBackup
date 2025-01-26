@@ -2351,3 +2351,16 @@ Reasoning就是r1。和谐限制肯定是存在的，但是api下r1可以想办�
 调用reasoner无法对话，显示 <blockquote>The first message (except the system message) of deepseek-reasoner must be a user message, but an assistant message detected.</blockquote>
 有解吗
 
+
+*****
+
+####  88316756  
+##### 159#       发表于 2025-1-26 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67281927&amp;ptid=2243718" target="_blank">vava 发表于 2025-1-26 15:00</a>
+
+酒馆调用chat模型可以正常工作
+
+调用reasoner无法对话，显示</blockquote>
+api配置这里提示词后处理选择严格
+
