@@ -12161,3 +12161,90 @@ ed前最后一幕用窗户把人分成4和1，算是一个比较直白的暗示�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 12855#       发表于 2025-1-26 12:08
+
+ 本帖最后由 江口夕 于 2025-1-26 12:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又一个观众不买账，说的好像mygo前九集有观众买账一样。不知道素世风评已经扳回来了。
+在座各位觉得素世风评没翻盘的举个手我看看。
+
+要不你先对这些对素世有意见的人说他们不配当观众
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  akiomn  
+##### 12856#       发表于 2025-1-26 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太对了，soyo也是双重人格？
+一天到晚就惦记着双重人格，还擅自给角色实锤颁发个双重人格
+你比初华还牛逼，初华好歹说的还是双重人格？你直接认定是双重人格了
+
+*****
+
+####  borrowface  
+##### 12857#       发表于 2025-1-26 12:10
+
+现在最在意初华她到底是个啥样的人，现在看着是个连撩妹安慰人的手段都是有样学样的情感菜鸡。
+
+都已经天天跟祥子在一起了，乐队方向性气氛问题竟然没有什么敏感性，在乎的就是个肉体陪伴，吃了就完事了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 12858#       发表于 2025-1-26 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280713&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-26 12:10</a>
+太对了，soyo也是双重人格？
+一天到晚就惦记着双重人格，还擅自给角色实锤颁发个双重人格
+你比初华还牛逼， ...</blockquote>
+初华认不认定我不知道。
+
+祥子认定了那个不是睦，我是祥厨我站祥子。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  hulaoda007  
+##### 12859#       发表于 2025-1-26 12:14
+
+其实到时候说睦是演戏或者超强精神崩溃所以“形成”一个人格也很唬烂就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 12860#       发表于 2025-1-26 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280727&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-26 12:11</a>
+初华认不认定我不知道。
+
+祥子认定了那个不是睦，我是祥厨我站祥子。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这种看个两集先下定论的就很适合被回旋镖，太无敌了
+别人还在观望猜测莫提斯是什么情况，你先给角色颁发个双重人格再认定莫提斯就是坏的
+
+*****
+
+####  akiomn  
+##### 12861#       发表于 2025-1-26 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67280751&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-26 12:14</a>
+其实到时候说睦是演戏或者超强精神崩溃所以“形成”一个人格也很唬烂就是了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得怪第三集演出玩的太过了，现在拿什么都不好解释
+那么喜欢爆爆爆就得有能收回来的本事，否则结局包饺子都得被人质疑
+
+*****
+
+####  山ノ内花音  
+##### 12862#       发表于 2025-1-26 12:16
+
+原来鸡真正的悬疑剧情就是让观众猜墨缇丝小姐到底是不是睦吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
