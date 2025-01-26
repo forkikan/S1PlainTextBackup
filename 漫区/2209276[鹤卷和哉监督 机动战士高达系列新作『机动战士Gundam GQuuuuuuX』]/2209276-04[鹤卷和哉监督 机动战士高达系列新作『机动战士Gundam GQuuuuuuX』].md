@@ -15317,3 +15317,36 @@ MAV在台词设计上是故意对应マブダチ，不过剧中（目前？）�
 
 怎么热能斧还分军用和团战用<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5837#       发表于 2025-1-26 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284255&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-1-26 21:57</a>
+
+怎么热能斧还分军用和团战用</blockquote>
+GQX现在用那把是民间私企仿制军用设备为了打黑拳的
+
+*****
+
+####  WallHrolf  
+##### 5838#       发表于 2025-1-26 22:02
+
+那夏利亚真会看12集黑拳直播吗）
+
+*****
+
+####  古怪山庄士大夫  
+##### 5839#       发表于 2025-1-26 22:03
+
+表记基本都是些老登，你让老登们做24集那肯定做不动的，能有12集高质量都很不错了
+
+
+*****
+
+####  纪寞  
+##### 5840#       发表于 2025-1-26 22:04
+
+所以现在修司是其他平行宇宙人的设想正确率有几成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
