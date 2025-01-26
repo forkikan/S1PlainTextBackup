@@ -2738,3 +2738,59 @@ R1:文章要写标题。
 真羡慕杭州啊，高科技爆发了</blockquote>
 南京，隐忍！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leia_rolando  
+##### 188#       发表于 2025-1-27 00:25
+
+烟民交税助力六代战机，韭菜亏钱帮训人工智能
+
+横竖不亏😎
+
+*****
+
+####  colice  
+##### 189#       发表于 2025-1-27 00:26
+
+想请教下打算用deepseek写公文的话，有什么好的方式么，网页和app的审查比豆包和Kimi都严格，明明没有违禁词都写不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 190#       发表于 2025-1-27 00:27
+
+ST配置
+
+目前ST的Release分支(大家一般使用的分支)暂时不支持 DeepSeekR1
+
+进入酒馆根目录(带有Start.bat的文件夹)
+
+右键选择"在终端中打开"
+
+输入
+
+git fetch origin
+
+git reset --hard origin/staging
+
+这将将您的ST版本切换为staging分支的最新版(可以使用DeepSeek R1的版本)
+
+请放心,这将会保留您的角色卡与其他内容
+
+等待结束后进入酒馆
+
+点击顶部工具栏的从左往右数第三个长得像插头的图标
+
+API选择聊天补全
+
+聊天补全来源选择为DeepSeek
+
+将您先前保存的DeepSeek的API Key粘贴到Deep Seek API密钥内
+
+将Deep Seek模型修改为deepseek-reasoner
+
+右键选择"在终端中打开"为啥我找不到这个
+

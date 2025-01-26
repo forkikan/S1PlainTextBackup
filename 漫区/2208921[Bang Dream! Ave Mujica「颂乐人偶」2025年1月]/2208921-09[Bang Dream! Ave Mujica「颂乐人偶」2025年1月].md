@@ -13152,3 +13152,40 @@ MyGO之后一年半那么多假药，没人想到“祥子在组Crychic之前母
 
 主要四个人一起救祥子和初华最后爆这个信息矛盾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 12934#       发表于 2025-1-27 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285099&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-27 00:16</a>
+
+主要四个人一起救祥子和初华最后爆这个信息矛盾了</blockquote>
+是的，我完全想不出中间的过程（当然，千万不能让MyGO成员做这件事，那样的话瞬间变小丑）
+
+PV里睦这个抬头动作现在看来很有意思，之前究极发癫，后面出现这个表情，一般来说是要表达角色想通了什么重要的事
+
+<img src="https://img.saraba1st.com/forum/202501/27/002459tijolxwwisi3zhha.jpg" referrerpolicy="no-referrer">
+
+<strong>orig.jpg</strong> (259.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 00:24 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/002324mktztsj9heee7pln.jpg" referrerpolicy="no-referrer">
+
+<strong>964.jpg</strong> (69.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/002324kmmg9b5o9ekb966k.jpg" referrerpolicy="no-referrer">
+
+<strong>342.jpg</strong> (67.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 00:23 上传
+

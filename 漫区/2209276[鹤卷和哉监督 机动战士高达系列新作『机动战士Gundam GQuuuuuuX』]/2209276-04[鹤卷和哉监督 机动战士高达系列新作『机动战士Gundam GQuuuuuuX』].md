@@ -15547,3 +15547,20 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 
 2025-1-27 00:09 上传
 
+
+*****
+
+####  纯狐娘娘  
+##### 5859#       发表于 2025-1-27 00:26
+
+希望至少是半年番吧，TV高达是季番这种真的不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对于高达TV而言水魔这种分割的半年番都算短的了。
+
+—— 来自 HONOR LLY-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  盐盐盐盐盐  
+##### 5860#       发表于 2025-1-27 00:29
+
+已经在做最终话感觉就90%季番了，半年的话一般没有这种播之前就差不多做完的提前量吧
+

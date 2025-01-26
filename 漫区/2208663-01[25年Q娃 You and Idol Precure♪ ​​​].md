@@ -291,3 +291,11 @@ p位不是黑白两只吗
 
 op没感觉，主角角色歌还挺好听的
 
+
+*****
+
+####  天风绯炎  
+##### 270#       发表于 2025-1-27 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">你知道的，我一直是蓝色系单推
+
