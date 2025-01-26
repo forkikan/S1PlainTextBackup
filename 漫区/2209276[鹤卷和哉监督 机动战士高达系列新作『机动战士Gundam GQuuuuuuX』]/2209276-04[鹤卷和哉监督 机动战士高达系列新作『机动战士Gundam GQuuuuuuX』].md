@@ -14909,3 +14909,21 @@ https://x.com/Jinou_rakugaki/status/1883386145289240583?s=19
 
 也说不定修司nt能力更夸张，直接给Ω干出第三形态，掉面罩张嘴露牙（）致敬传奇兽化EVA二号机驾驶员真希波
 
+
+*****
+
+####  bird-lay  
+##### 5795#       发表于 2025-1-26 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282822&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-26 17:49</a>
+
+对了，请教一下看过的人，pv1那个哈罗说的"玛秋的mav，真正的mav" 和 黑拳女领队那句 "那孩子很会抓攻防时 ...</blockquote>
+第一句是女主找到修司做搭档后，到黑拳队的时候哈罗说的
+
+*****
+
+####  jojonathan  
+##### 5796#       发表于 2025-1-26 18:21
+
+那新作谁是真希波<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
