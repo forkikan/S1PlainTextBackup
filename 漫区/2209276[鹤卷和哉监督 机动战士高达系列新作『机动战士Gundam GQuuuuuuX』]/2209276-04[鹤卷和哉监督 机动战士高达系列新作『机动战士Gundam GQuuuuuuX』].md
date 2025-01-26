@@ -15271,3 +15271,18 @@ MAV的词源确实是来自于マブダチ
 
 【『機動戦士Gundam GQuuuuuuX -Beginning-』クリエイターズトーク】 [https://www.bilibili.com/video/B ... ae1b6bf8123a7648e14](https://www.bilibili.com/video/BV1U9fzYjEwv/?share_source=copy_web&amp;vd_source=aaafd20d12801ae1b6bf8123a7648e14)
 
+
+*****
+
+####  虛無迴廊  
+##### 5832#       发表于 2025-1-26 21:45
+
+像top2一样只在最后演一点点地球吧
+
+*****
+
+####  AvenueIII  
+##### 5833#       发表于 2025-1-26 21:47
+
+能回悉尼吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

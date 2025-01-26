@@ -13019,3 +13019,30 @@ mortis老师第三话的最后表演简直是完美的，我要是能这么温�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 12925#       发表于 2025-1-26 21:44
+
+ 本帖最后由 huxiaopao163 于 2025-1-26 21:46 编辑 
+
+如果按照四个人一起演祥子的说法
+
+那么第四集最后的诡异感，是因为初华、海玲、喵梦的演技太差了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前两个本来也不太会演戏，所以话少，而喵梦自以为自己很能演，真上场了逻辑混乱，前言不搭后语
+
+给mortis惊掉下巴了，什么神人队友，自己都没跟上她们的逻辑
+
+于是撒泼打滚也好，装疯卖傻也好，赶紧把话题接管过来，免得被祥子察觉出来有问题
+
+12.PNG
+(1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202501/26/214110caqm472r587ztqzm.png" referrerpolicy="no-referrer">
+

@@ -176,3 +176,19 @@
 
 非常感谢各位制作者带来的美好时光！今后也会为你们应援！
 
+
+*****
+
+####  jaewoongh_  
+##### 2765#       发表于 2025-1-26 21:38
+
+古家陽子（フルヤヨウコ）：交接部分的分镜、原画；07:08~07:23的原画
+
+<img src="https://img.saraba1st.com/forum/202501/26/213124l13b7617bt3blbz7.png" referrerpolicy="no-referrer">
+
+<strong>C2BAFF43C91ACD3F6CCBDD91F4F60AEC.png</strong> (43.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-26 21:31 上传
+

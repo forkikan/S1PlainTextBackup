@@ -2456,3 +2456,16 @@ api配置这里提示词后处理选择严格</blockquote>
 
 说实话这么多人都看不到这个选项我也是想不到的
 
+
+*****
+
+####  深蓝巫妖  
+##### 168#       发表于 2025-1-26 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67282481&amp;ptid=2243718" target="_blank">hargen2000 发表于 2025-1-26 16:37</a>
+
+因为你没选深度思考
+
+说实话这么多人都看不到这个选项我也是想不到的</blockquote>
+呃，为啥要搞这么个多此一举的操作啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
