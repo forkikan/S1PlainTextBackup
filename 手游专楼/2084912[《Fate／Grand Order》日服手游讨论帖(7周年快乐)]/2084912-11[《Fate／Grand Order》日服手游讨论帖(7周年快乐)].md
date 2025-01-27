@@ -106,3 +106,14 @@
 
 啊这活动还没结束吗
 
+
+*****
+
+####  quanlix  
+##### 16187#       发表于 2025-1-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289495&amp;ptid=2084912" target="_blank">棍机凹升龙 发表于 2025-1-27 17:46</a>
+
+啊这活动还没结束吗</blockquote>
+早呢，下礼拜三才结束，现在活动都是持续21天（无限池除外），基本就是一个月一个活动，之后就情人节见了
+

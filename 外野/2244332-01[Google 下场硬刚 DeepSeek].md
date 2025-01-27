@@ -592,3 +592,36 @@ flash thinking在这里[https://aistudio.google.com/prom ... -thinking-exp-01-21
 同样抽象的不少，通义千问app/网页难用无比，混元app难用，llama不提供量化也不手把手教，导致那个llama 3 ...</blockquote>
 但是不论 SGLang 还是 VLLM 都有教程吧
 
+
+*****
+
+####  d2loader  
+##### 61#       发表于 2025-1-27 17:50
+
+又不开源, 而且谷歌一堆TPU部署的又不用给老黄上贡, 不免费打价格战说不过去
+
+
+*****
+
+####  泰坦失足  
+##### 62#       发表于 2025-1-27 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289481&amp;ptid=2244332" target="_blank">万恶淫猥手 发表于 2025-1-27 17:45</a>
+
+但是不论 SGLang 还是 VLLM 都有教程吧</blockquote>
+我当时想用VLLM运行llama 3.2 vision时候问题不少. 不如Qwen看着官方给的教程就行了。
+
+*****
+
+####  某浩  
+##### 63#       发表于 2025-1-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289308&amp;ptid=2244332" target="_blank">mimighost 发表于 2025-1-27 17:14</a>
+
+谷歌这个抽象在哪里呢
+
+谷歌有个自己的gemini的网站：https://gemini.google.com/app</blockquote>
+其实就是大公司病，各个团队都投进去，结果互相打架
+
+字节的豆包、扣子(cn/com)、火山引擎也同样抽象，同一个东西，不同地方逻辑使用计费完全不同
+

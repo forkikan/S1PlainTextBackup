@@ -15647,3 +15647,68 @@ mygo里观众基本是上帝视角，mujica里不是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 13150#       发表于 2025-1-27 17:47
+
+个人感觉CM里面的小睦/mortis的新画面，绝大部分都是mortis，只有最后这个是小睦。从表情丰富程度还是很好区分的
+
+但是最后这个看起来似乎还是内心世界，背后好像是第三集出现的那个内心世界超大屏幕，只是现在播的是第四集最后解散的舞台画面，有标志性的红色聚光灯
+
+15.PNG
+(355.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/174442jbktksbbke21l7ki.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 13151#       发表于 2025-1-27 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289470&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 17:43</a>
+
+所以莫小姐真是破防杂鱼雌小鬼吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那段更像是睦看不下去要出来抢回身体了。
+
+*****
+
+####  akiomn  
+##### 13152#       发表于 2025-1-27 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cm里大喵那几句正论太恐怖了，求你别说话了
+睦现在战吧有个假药是表演欲溢出入戏过深了，分不清内心和现实
+
+
+*****
+
+####  MASKA-1  
+##### 13153#       发表于 2025-1-27 17:53
+
+原来是这样<img src="https://p.sda1.dev/21/1ee69b7b62e2e499def75c799ac1749e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 13154#       发表于 2025-1-27 17:54
+
+官号小编回来炒作了
+
+*****
+
+####  Devola  
+##### 13155#       发表于 2025-1-27 17:55
+
+多加码烂炒是正确的，有热度了动画质量无所谓的，把观众拐进邦多利企划就行。你看狗代这些年刚大木做得一坨不还是咔咔卖胶
+
+可争议点的数量以及异议观众的占比，和烂的程度是成正相关的。反正都四面漏风了，鸡后面少出纰漏就是赢
+
+现在这剧情水平不上不下，还不如搞点鸡和老团互动有意思
+

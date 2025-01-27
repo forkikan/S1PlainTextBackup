@@ -3726,3 +3726,34 @@ api加审查了，梦结束了，得研究破限了<img src="https://static.sara
 
 以前llama的 uncensored是怎么做的？ deepseek可以用吗
 
+
+*****
+
+####  7do  
+##### 265#       发表于 2025-1-27 17:49
+
+不是很懂 ds这种开源的其他家不是就可以直接抄一抄改进他们的模型么，怎么保持优势？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wly5556  
+##### 266#       发表于 2025-1-27 17:54
+
+权重开源、技术报告开源，不等于预料开源、训练细节开源，要复制一个r1出来也是要花功夫的
+
+*****
+
+####  Azcarlo  
+##### 267#       发表于 2025-1-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289514&amp;ptid=2243718" target="_blank">7do 发表于 2025-1-27 17:49</a>
+不是很懂 ds这种开源的其他家不是就可以直接抄一抄改进他们的模型么，怎么保持优势？
+
+— from S1 Next Goo ...</blockquote>
+目前所有部署的方案都没它家快，D家infra团队特别强，手撕cuda。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
