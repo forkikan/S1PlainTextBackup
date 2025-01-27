@@ -15281,3 +15281,44 @@ ave mujica 退队流衍生作品《擅长活跃气氛的我因为不会弹吉他
 其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都 ...</blockquote>
 精神力上确实不是一个人，她第一集被老爹抛弃了，她曾为了老爹舍弃了梦想也就是ccc，而现在也失去了继续组商业乐队的理由，只剩下母鸡卡这个坚持的结果，她只能抓住这个结果，这是她精神上唯一的救命稻草，所以会被拿捏
 
+
+*****
+
+####  thisisaspider  
+##### 13113#       发表于 2025-1-27 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287794&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-27 12:48</a>
+
+其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都 ...</blockquote>
+理解"以前能办到，现在办不到了，祥子角色塑造不一致"，就相当于没看懂作者写作思路。
+
+和MYGO不同，MYGO从C团破碎中诞生，整个剧情是上行的。MUJICA则从武道馆开始，整个剧情是下行的。
+
+祥子更是，从丧母开始，她整个人生就在下行了。以前能办到的事情，很多都失能了。
+
+所以祥子剩下的还有健康的身体和音乐的才能。从预告可见剧情还在下行，祥子还能失去什么呢。<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 13114#       发表于 2025-1-27 15:01
+
+怎么又烂炒，不提前透的话看到这些得有多爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 13115#       发表于 2025-1-27 15:01
+
+好吧不是电视墙<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">是楼房外墙，不过似乎有些前四集重复镜头背景不对，还是有疑点
+<img src="https://p.sda1.dev/21/89800ea4218bef549899adc594b0d9f0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  純田まな  
+##### 13116#       发表于 2025-1-27 15:05
+
+嗨嗨嗨，是我吗～
+
+<img src="https://p.sda1.dev/21/49c741468e34dd982328f94d44c67545/image.jpg" referrerpolicy="no-referrer">
+

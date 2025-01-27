@@ -3389,3 +3389,14 @@ API接口是崩了吗，为什么我的一直在转圈
 
 简单问今年春节三薪有多少天，百度AI回答4天，这货回答3天（除夕没算上）
 
+
+*****
+
+####  moeblack  
+##### 238#         楼主| 发表于 2025-1-27 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288582&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-27 14:48</a>
+
+你这个办法能让r1 也接入网络搜索吗？</blockquote>
+可以 github red-team deepseek
+
