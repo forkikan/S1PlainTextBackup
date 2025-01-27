@@ -6026,3 +6026,11 @@ v3不能瑟瑟
 我完全懂了开源模型如何赚钱.jpg</blockquote>
 “老黄”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔灵高达  
+##### 440#       发表于 2025-1-28 02:17
+
+对于这种一图流的受众，其实可以让deepseek自己来教你安装，甚至教你评估装哪款，保证讲解的又详细又清楚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

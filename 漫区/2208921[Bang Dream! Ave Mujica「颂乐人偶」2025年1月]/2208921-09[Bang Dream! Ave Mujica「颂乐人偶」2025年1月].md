@@ -16118,3 +16118,13 @@ yysy桂柳话属于西南官话，更像云贵川
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 13191#       发表于 2025-1-28 02:17
+
+之前爆出的内部消息是初华在临近结局爆了，而且很快就包饺子，大概这就是骨子里的善良吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
