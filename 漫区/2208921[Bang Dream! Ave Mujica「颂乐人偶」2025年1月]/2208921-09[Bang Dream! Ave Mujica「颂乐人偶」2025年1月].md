@@ -13772,3 +13772,29 @@ QQ图片20250127094332.jpg
 
 初华看到什么了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瞳映山川  
+##### 12977#       发表于 2025-1-27 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286230&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-1-27 09:33</a>
+线下物料/预告这种图可以发
+
+只要不是那种正片截下来的图就行</blockquote>
+第一张初华的框是没装好掉下来了？有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 12978#       发表于 2025-1-27 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285643&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-27 03:41</a>
+这么明显的伏笔为什么之前没有察觉
+
+祥子喜欢喝红茶，但初华一直给祥子泡咖啡
+
+这不就跟Soyo给灯买摩卡是一样 ...</blockquote>
+因为初华自己喝的就是咖啡☕️，这样就可以知道祥子又双叒叕通宵不睡了。
+
