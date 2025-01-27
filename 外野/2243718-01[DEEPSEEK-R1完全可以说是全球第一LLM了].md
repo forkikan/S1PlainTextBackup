@@ -6013,3 +6013,16 @@ v3不能瑟瑟
 这楼也发个本地部署</blockquote>
 这种错的乱七八糟的就别转了吧，谁告诉他70b和671b硬盘够就行的，私货都懒得吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 439#       发表于 2025-1-28 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292365&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 01:30</a>
+
+幻方：不要担心开源不赚钱，我自有办法
+
+我完全懂了开源模型如何赚钱.jpg</blockquote>
+“老黄”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
