@@ -638,3 +638,25 @@ flash thinking在这里[https://aistudio.google.com/prom ... -thinking-exp-01-21
 字节的豆包、扣子(cn/com)、火山引擎也同样抽象，同 ...</blockquote>
 嗯，我也觉得背后是两个团队，互相不对付
 
+
+*****
+
+####  白影  
+##### 65#       发表于 2025-1-27 18:16
+
+<blockquote>猫屎盆子 发表于 2025-1-27 09:52
+google从00年代的互联网最先进标杆，到现在各方面都像路边一坨，中间究竟发生了什么？我知道它担忧砸招牌到 ...</blockquote>
+唯股价马首是瞻是这样的，很多公司都走上这么一条自我限制的路
+
+谷歌不是第一个也不会是最后一个
+
+*****
+
+####  赤尸藏人  
+##### 66#       发表于 2025-1-27 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286368&amp;ptid=2244332" target="_blank">猫屎盆子 发表于 2025-1-27 09:52</a>
+
+google从00年代的互联网最先进标杆，到现在各方面都像路边一坨，中间究竟发生了什么？我知道它担忧砸招牌到 ...</blockquote>
+当然劈材全责
+
