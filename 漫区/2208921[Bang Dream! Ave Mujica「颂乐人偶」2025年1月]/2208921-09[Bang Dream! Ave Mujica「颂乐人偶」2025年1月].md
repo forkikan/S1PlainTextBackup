@@ -14975,3 +14975,60 @@ mujica中段应该能分出半集重点刻画喵梦内心使她不那么像炸�
 初华哭哭这张感觉是小时候
 夏日海岛莫非真发生了什么悲伤的事
 
+
+*****
+
+####  ddy2811  
+##### 13084#       发表于 2025-1-27 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287474&amp;ptid=2208921" target="_blank">answer23 发表于 2025-1-27 12:11</a>
+
+百度哪个帖子链接有吗，想看看假药</blockquote>
+假药集大成者：[https://tieba.baidu.com/p/9441718936](https://tieba.baidu.com/p/9441718936)
+
+现身说法：[https://tieba.baidu.com/p/9443927378](https://tieba.baidu.com/p/9443927378)
+
+*****
+
+####  borrowface  
+##### 13085#       发表于 2025-1-27 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288014&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-1-27 13:14</a>
+https://www.bilibili.com/video/BV1eGfmYjEf6
+
+这个视频是一个一个拍的</blockquote>
+看着像小初华
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  江口夕  
+##### 13086#       发表于 2025-1-27 13:40
+
+睦的内容前面莫老师上线前4集的内容不谈了
+1砸镜子，这明显睦本人上号了，但是莫老师并没完全下线。还活在身体里
+2明显是抱着自己身体，东西还在身体里所以抓狂。
+3类似于有吉他在才能安下心的意思
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  huxiaopao163  
+##### 13087#       发表于 2025-1-27 13:41
+
+小睦或者mortis又去ring看mygo的live了吗，毕竟是mygo的铁粉哈哈。。。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  友情的结晶  
+##### 13088#       发表于 2025-1-27 13:43
+
+小时候的初华那张估计就是祥子要回东京了，初华因为要分开而伤心哭哭，然后祥子讲两句命运的离别和相遇之类的话<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，什么光恋
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
