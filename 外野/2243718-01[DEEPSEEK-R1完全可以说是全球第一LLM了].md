@@ -5613,3 +5613,52 @@ https://status.deepseek.com/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 413#         楼主| 发表于 2025-1-28 01:07
+
+21号那天，
+
+<img src="https://img.saraba1st.com/forum/202501/28/010715nl19vwn0wrw5ntns.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (58.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 01:07 上传
+
+谁能想到梁文峰爷爷真得用R1大模型戳破了美国AI泡沫呢
+
+图片.png
+(58.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 01:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/010716zqpg900oqqoavsqo.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔灵高达  
+##### 414#       发表于 2025-1-28 01:12
+
+[https://github.com/deepseek-ai/Janus](https://github.com/deepseek-ai/Janus)
+
+端了一个新的文生图出来？
+
+*****
+
+####  moeblack  
+##### 415#         楼主| 发表于 2025-1-28 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292288&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-28 01:12</a>
+
+https://github.com/deepseek-ai/Janus
+
+端了一个新的文生图出来？</blockquote>
+多模态，也可以识图
+
