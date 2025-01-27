@@ -6292,3 +6292,14 @@ api还没恢复么 这网页动不动不能回答 或者撤回也太难受了
 
 6144tokens 约4200个汉字还是10000个？记不得是乘以还是除以0.7了. 显存需求达到21.09G，14336 tokens 24.67G
 
+
+*****
+
+####  jeokeo  
+##### 464#       发表于 2025-1-28 04:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292447&amp;ptid=2243718" target="_blank">OrianaThomson 发表于 2025-1-28 01:56</a>
+这楼也发个本地部署</blockquote>
+tmd，我显卡渣渣，但是内存512g
+没救了只能api了吧
+
