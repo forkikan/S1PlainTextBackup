@@ -3656,3 +3656,37 @@ gemini啥的都太听话了，给个抖s人设，一句变星怒 ...</blockquote
 这几天好像在云上飞了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">怎么写的啊，我让他出小段子都得拼手速，而且速度快的一批，马上就撤回了
 
+
+*****
+
+####  qz66618  
+##### 259#       发表于 2025-1-27 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289287&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-27 17:09</a>
+先问下，这会儿是不是r1 的api 坏掉了？ 01/27 17:09:31</blockquote>
+我r1的API一直连不上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琴酒  
+##### 260#       发表于 2025-1-27 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289282&amp;ptid=2243718" target="_blank">ff2077 发表于 2025-1-27 17:08</a>
+
+小黄文咋调教啊 不让写啊
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+你试试加人物卡
+
+然后api不要直接选deepseek
+
+而是选自定义 源那输入 [https://API.deepseek.com/v1](https://API.deepseek.com/v1)
+
+输入API密钥后下面就能选模型了 选chat那个
+
+最重要提示词后处理选严格
+
+再试试
+

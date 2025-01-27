@@ -14896,3 +14896,18 @@ pay 1st photo&amp;interview book</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  starring  
+##### 1449#       发表于 2025-1-27 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289230&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-1-27 16:58</a>
+
+终于等到Febri出手。之前买过sayu那一本，挺厚的，可惜纸质不行
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+pay这本的定价比sayu那本贵一些，内容可能会更多一点
+
+新拍内容+过往web连载未公开的照片+访谈
+

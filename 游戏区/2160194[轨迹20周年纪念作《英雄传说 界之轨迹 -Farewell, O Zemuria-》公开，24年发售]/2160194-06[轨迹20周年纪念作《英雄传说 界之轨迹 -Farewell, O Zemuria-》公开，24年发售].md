@@ -778,3 +778,19 @@ SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘</blo
 —— 来自 O ...</blockquote>
 所以这部我最喜欢的角色是少校，第二喜欢的是学妹。
 
+
+*****
+
+####  ravend233  
+##### 7520#       发表于 2025-1-27 17:17
+
+<img src="https://img.saraba1st.com/forum/202501/27/171710c4ri02dl459ilzi7.png" referrerpolicy="no-referrer">
+
+<strong>9fc43c9940dd3789d381e274fd63197e.png</strong> (248.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 17:17 上传
+
+设定集封面画完了
+
