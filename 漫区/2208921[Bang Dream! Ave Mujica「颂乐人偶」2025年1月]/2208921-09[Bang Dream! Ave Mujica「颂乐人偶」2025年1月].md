@@ -15873,3 +15873,13 @@ yysy桂柳话属于西南官话，更像云贵川
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是坐在花坛上吗
 
+
+*****
+
+####  看穿一切的鱼  
+##### 13170#       发表于 2025-1-27 23:27
+
+大祥老师的言行基本全是回旋镖，飞祥环节我看是必有的。这下灯也可以摸祥的灯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

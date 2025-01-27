@@ -836,3 +836,15 @@ SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘</blo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真能认出这人是van吗（
 
+
+*****
+
+####  crosz1985  
+##### 7526#       发表于 2025-1-27 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67283118&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-1-26 18:41</a>
+101补丁算是把装备界面人物是糊的问题修复了。。。但还是没有改更多按键</blockquote>
+玩着玩着又糊了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

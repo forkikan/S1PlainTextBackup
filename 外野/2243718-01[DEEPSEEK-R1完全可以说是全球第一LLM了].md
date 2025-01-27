@@ -4995,3 +4995,78 @@ deepseek可能现在还不赚钱，
 
 竟然网页版能用api用不了
 
+
+*****
+
+####  Nanachi  
+##### 363#       发表于 2025-1-27 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291633&amp;ptid=2243718" target="_blank">qz66618 发表于 2025-1-27 23:12</a>
+
+看了一下，好像还是r1模型的API用不了不过为什么有的插件上还有deepseek-coder模型选项这个调用的是哪个模 ...</blockquote>
+deepseek-chat吧，coder的接口出于兼容性保留着
+
+*****
+
+####  sellboy  
+##### 364#       发表于 2025-1-27 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291633&amp;ptid=2243718" target="_blank">qz66618 发表于 2025-1-27 23:12</a>
+
+看了一下，好像还是r1模型的API用不了不过为什么有的插件上还有deepseek-coder模型选项这个调用的是哪个模 ...</blockquote>
+9个月前的老模型
+[https://github.com/deepseek-ai/DeepSeek-Coder](https://github.com/deepseek-ai/DeepSeek-Coder)
+
+*****
+
+####  Nanachi  
+##### 365#       发表于 2025-1-27 23:28
+
+DeepSeek 网页/API 性能异常（DeepSeek Web/API Degraded Performance）Subscribe
+
+Monitoring - 【重要】当前仅支持中国大陆手机号注册。
+
+【Important】Currently, only registration with a mainland China mobile phone number is supported.
+
+Jan 27, 2025 - 23:15 CST
+
+*****
+
+####  Nanachi  
+##### 366#       发表于 2025-1-27 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291115&amp;ptid=2243718" target="_blank">pf67 发表于 2025-1-27 22:05</a>
+
+其实+86用户还要实名，海外ip直接邮箱就行
+
+我之前用ds翻小黄文国内号还被封了，海外的号一点事都没有…… ...</blockquote>
+DeepSeek 网页/API 性能异常（DeepSeek Web/API Degraded Performance）Subscribe
+
+Monitoring - 【重要】当前仅支持中国大陆手机号注册。
+
+【Important】Currently, only registration with a mainland China mobile phone number is supported.
+
+Jan 27, 2025 - 23:15 CST
+
+别急，邮箱注册直接ban了
+
+
+*****
+
+####  XSH97  
+##### 367#       发表于 2025-1-27 23:31
+
+平台正常了，估计接下来是限流。头次攻守易换啊。
+
+*****
+
+####  阿刚  
+##### 368#       发表于 2025-1-27 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291158&amp;ptid=2243718" target="_blank">白色的120 发表于 2025-1-27 22:13</a>
+
+酒馆目前来说，其实还是用Claude好点，毕竟deepseek相关的预设破限还是少
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那玩意注册起来好麻烦啊
+
