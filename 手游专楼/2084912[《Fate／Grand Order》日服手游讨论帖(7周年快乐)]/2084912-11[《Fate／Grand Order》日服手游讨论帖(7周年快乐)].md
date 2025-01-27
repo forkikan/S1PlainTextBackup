@@ -117,3 +117,11 @@
 啊这活动还没结束吗</blockquote>
 早呢，下礼拜三才结束，现在活动都是持续21天（无限池除外），基本就是一个月一个活动，之后就情人节见了
 
+
+*****
+
+####  zechins  
+##### 16188#       发表于 2025-1-28 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">archer的轮换池毫无抽卡欲望，速速轮换c阶让我梭哈有珠
+

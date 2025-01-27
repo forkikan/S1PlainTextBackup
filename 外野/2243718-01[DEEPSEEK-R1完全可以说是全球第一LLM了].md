@@ -5391,3 +5391,103 @@ AI的瞳孔闪过一串乱码。趁这瞬间，他咬破舌尖将魔芋残渣混
 7b就是纯娱乐的. 起码32B往上</blockquote>
 32B要什么硬件呀??
 
+
+*****
+
+####  lilisipis  
+##### 395#       发表于 2025-1-28 00:38
+
+就在刚刚，deepseek发布多模态llm Janus-Pro-7B
+
+支持图像理解和图像生成
+
+技术报告还没传上来，宣传上看起来是吊打各路英豪
+
+<img src="https://img.saraba1st.com/forum/202501/28/003828o02fttvxw5n3f125.png" referrerpolicy="no-referrer">
+
+<strong>1000004154.png</strong> (54.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:38 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  琴酒  
+##### 396#       发表于 2025-1-28 00:39
+
+ 本帖最后由 琴酒 于 2025-1-28 00:42 编辑 
+
+api还没好啊
+
+*****
+
+####  黄泉川此方  
+##### 397#       发表于 2025-1-28 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292139&amp;ptid=2243718" target="_blank">lilisipis 发表于 2025-1-28 00:38</a>
+
+就在刚刚，deepseek发布多模态llm Janus-Pro-7B
+
+支持图像理解和图像生成
+
+技术报告还没传上来，宣传上看起来 ...</blockquote>
+我操这也行？
+
+*****
+
+####  leakleak  
+##### 398#       发表于 2025-1-28 00:40
+
+虽然西方人不用过年，但你们是不是太狠了？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  UmarIbnLaAhad  
+##### 399#       发表于 2025-1-28 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄狗过年给大伙放烟花咯
+
+*****
+
+####  LeonsCat  
+##### 400#       发表于 2025-1-28 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292136&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-28 00:36</a>
+
+32B要什么硬件呀??</blockquote>
+民用领域就是3090或者4090呗
+
+闲着没事可以试试7900XTX或者3080/4080双卡
+
+总之，同样的钱够你把api玩腻。
+
+
+*****
+
+####  精钢魔像  
+##### 401#       发表于 2025-1-28 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292139&amp;ptid=2243718" target="_blank">lilisipis 发表于 2025-1-28 00:38</a>
+
+就在刚刚，deepseek发布多模态llm Janus-Pro-7B
+
+支持图像理解和图像生成
+
+技术报告还没传上来，宣传上看起来 ...</blockquote>
+从r1表现来看，这个是真的能画本子了吧
+
