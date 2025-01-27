@@ -14456,3 +14456,27 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 
 可能是致敬禁闭岛，所有的一切都是初华在岛上治疗时产生的幻想，全都是黄粱一梦
 
+
+*****
+
+####  miro112233  
+##### 13045#       发表于 2025-1-27 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287367&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-1-27 11:54</a>
+
+看了遍地铁广告，别人都挺带感的，怎么感觉就海玲
+
+编剧“海玲，你的任务就是和立希粘一块，别的事你就不用 ...</blockquote>
+海铃感觉就纯复刻layer了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">RAS炸团的时候layer的表情也是相对最平静的
+
+*****
+
+####  answer23  
+##### 13046#       发表于 2025-1-27 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284573&amp;ptid=2208921" target="_blank">yy19 发表于 2025-1-26 22:51</a>
+草生。百度战吧有人现身说法记忆障碍（对应初华健忘说），S1泥楼有人现身说法人格解离。
+
+真•活久见LoL ...</blockquote>
+百度哪个帖子链接有吗，想看看假药<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
