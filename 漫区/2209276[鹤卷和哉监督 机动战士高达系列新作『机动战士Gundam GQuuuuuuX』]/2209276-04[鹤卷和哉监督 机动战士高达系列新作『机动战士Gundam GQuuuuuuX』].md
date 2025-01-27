@@ -15681,3 +15681,23 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 
 「機動戦士GundamGQuuuuuuX」1月26日(周日)票房1.91亿日元，累计票房15.01亿日元 
 
+
+*****
+
+####  blueskant  
+##### 5870#       发表于 2025-1-27 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285261&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-27 00:47</a>
+
+X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉のマンガ [url]https://t.co/sJSlSIfgfk” / X[ ...</blockquote>
+喷了       
+
+*****
+
+####  gamedreamer  
+##### 5871#       发表于 2025-1-27 09:06
+
+不知道今天能放什么新东西<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
