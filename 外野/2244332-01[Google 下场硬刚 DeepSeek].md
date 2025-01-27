@@ -395,3 +395,44 @@ ds出来前群里可是在吹爆gemini1206的，谷歌只要放下身段，那�
 ds出来前群里可是在吹爆gemini1206的，谷歌只要放下身段，那技术力还是 ...</blockquote>
 1206 出来之前确实不大行，真正让 gemini 重回桌上的都是 2.0 的模型，对 Google 这个咖位 1.x 都是拉
 
+
+*****
+
+####  bartholo4  
+##### 42#       发表于 2025-1-27 11:38
+
+1.5pro足够好用，手机上搜点东西只用底角一滑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  gundammarkⅡ  
+##### 43#       发表于 2025-1-27 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不作恶
+
+*****
+
+####  listenermy  
+##### 44#       发表于 2025-1-27 11:45
+
+<blockquote>i0ncube_R 发表于 2025-1-27 10:05
+狗家的员工怎么说话都对中国夹枪带棒的，不只是美国的，连国内的都这样
+
+论坛助手,iPhone ...</blockquote>
+**算是狗家企业的核心文化了，就如另一条狗的企业核心文化是JB乱
+
+*****
+
+####  我是大鲨鱼1453  
+##### 45#       发表于 2025-1-27 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286368&amp;ptid=2244332" target="_blank">猫屎盆子 发表于 2025-1-27 09:52</a>
+
+google从00年代的互联网最先进标杆，到现在各方面都像路边一坨，中间究竟发生了什么？我知道它担忧砸招牌到 ...</blockquote>
+因为波士顿动力现在也已经成了路边一坨。两件事互为因果吧。
+
+我觉得有个分析讲得很有道理，硅谷的这帮美国科技精英们从骨子里看不起制造业。
+
