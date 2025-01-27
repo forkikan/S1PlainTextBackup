@@ -15032,3 +15032,58 @@ https://www.bilibili.com/video/BV1eGfmYjEf6
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  圣血天使  
+##### 13089#       发表于 2025-1-27 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287794&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-27 12:48</a>
+
+其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 13090#       发表于 2025-1-27 13:45
+
+我觉得小睦做不出那些夸张的表情，感觉应该是经历解散风波后，小睦终于睡醒了，mortis对身体的控制不绝对了，所以需要安抚小睦。
+
+*****
+
+####  MASKA-1  
+##### 13091#       发表于 2025-1-27 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288210&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-1-27 13:43</a>
+小时候的初华那张估计就是祥子要回东京了，初华因为要分开而伤心哭哭，然后祥子讲两句命运的离别和相遇之类 ...</blockquote>
+约好了哦，再次见面，在舞台上。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 13092#       发表于 2025-1-27 13:46
+
+wsd你最好别拉
+
+*****
+
+####  huxiaopao163  
+##### 13093#       发表于 2025-1-27 13:48
+
+果然还是海猫的剧情吧，明明两人约定好了什么，结果祥子因为老妈身体不好的事情，再也不回小岛了。
+
+初华绝望，崩溃
+
+
+*****
+
+####  天空塔书记官  
+##### 13094#       发表于 2025-1-27 13:52
+
+祥子的关键词是“遗忘”，那答案就是在过去，而想要“无畏遗忘”，就只有回忆起并直面过去的自己，只有承认过去才能继续向前出发，而不是继续困在原地，但这对岛国人来说可不是一件简单容易的事
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
