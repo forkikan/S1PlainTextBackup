@@ -13646,3 +13646,81 @@ pixiv上的新广告
 
 2025-1-27 09:33 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 12966#       发表于 2025-1-27 09:44
+
+推特转（）
+
+看来之后会有新CM（）
+
+QQ图片20250127094329.jpg
+(443.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/094426t662tvt8ttttzm2f.jpg" referrerpolicy="no-referrer">
+
+QQ图片20250127094332.jpg
+(534.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/094427actls9rstvtzovr5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  borrowface  
+##### 12967#       发表于 2025-1-27 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285643&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-27 03:41</a>
+这么明显的伏笔为什么之前没有察觉
+
+祥子喜欢喝红茶，但初华一直给祥子泡咖啡
+
+这不就跟Soyo给灯买摩卡是一样 ...</blockquote>
+初华只想要祥子的肉体
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 12968#       发表于 2025-1-27 09:49
+
+放下自尊的小祥会有吗会有吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 12969#       发表于 2025-1-27 09:50
+
+ 本帖最后由 天空塔书记官 于 2025-1-27 09:53 编辑 
+
+之前一直都在强调，初华和祥子除了童年在岛上时，其实并没有多少接触，如果不是祥子主动表示，初华根本不会选择直接进入祥子的生活
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cauchua3  
+##### 12970#       发表于 2025-1-27 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286230&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-1-27 09:33</a>
+
+线下物料/预告这种图可以发
+
+只要不是那种正片截下来的图就行</blockquote>
+祥子这是跪下了？
+
