@@ -15661,3 +15661,23 @@ friday anime night要放药屋放到六月，gqx上这个的话至少得七月�
 修司NT能力很高MS驾驶技术也强， ...</blockquote>
 果然还是宇宙人+未来人+异世界人+超能力者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 5868#       发表于 2025-1-27 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285272&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-1-27 00:48</a>
+
+我猜修司可能是来自UC正史后期时间线的未来人(V高达-Gaia Gear的时期?)
+
+修司NT能力很高MS驾驶技术也强， ...</blockquote>
+果然还是宇宙人+未来人+异世界人+超能力者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 5869#       发表于 2025-1-27 08:27
+
+「機動戦士GundamGQuuuuuuX」1月26日(周日)票房1.91亿日元，累计票房15.01亿日元 
+
