@@ -16221,3 +16221,14 @@ fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种�
 
 骡，凯，隼人在一开始抢高达的时候就便当了吧，78-01那个没露脸的驾驶员感觉就是骡，用的攻击动作是骡的动作，扔火箭筒，跨栏式闪避啥的。这个时间点的骡打不过开78-02的鸭也正常，最后所罗门时候骡代替了拉拉的位置，把鸭送走。GQX现在的时间点骡鸭拉怕不是已经提前背后灵，创造新时代的不是老人，新的高达就是新三人组的故事罢了
 
+
+*****
+
+####  Sliurus  
+##### 5920#       发表于 2025-1-27 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290273&amp;ptid=2209276" target="_blank">yunluo 发表于 2025-1-27 19:45</a>
+
+骡，凯，隼人在一开始抢高达的时候就便当了吧，78-01那个没露脸的驾驶员感觉就是骡，用的攻击动作是骡的动 ...</blockquote>
+同样的机体条件，刚上手的骡子打不过同时期的鸭子，这种发展虽然合理，但是有种论战中“穿越时空杀死婴儿时期的敌人”的耍赖感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

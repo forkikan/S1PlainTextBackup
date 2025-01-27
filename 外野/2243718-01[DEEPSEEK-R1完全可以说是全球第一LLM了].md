@@ -4065,3 +4065,14 @@ v3导入人物卡能写** 但是写着写着就重复</blockquote>
 
 有托管的山寨app吗？这么大的流量就没有厂商吃进？
 
+
+*****
+
+####  阿刚  
+##### 296#       发表于 2025-1-27 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289977&amp;ptid=2243718" target="_blank">电脑死机 发表于 2025-1-27 19:04</a>
+
+蹲一个教程？</blockquote>
+用酒馆的虚拟聊天人物卡加上破甲文本，可以直接击穿……
+

@@ -3359,3 +3359,15 @@ eupd死了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ykn红包准时领完，昨天马西落还能抢到，你邦不是凉了吗
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26897#       发表于 2025-1-27 20:04
+
+夸张，原来还有beta版MyGO的概念（）
+
+录音室或者舞台上吵架开打，甚至还说“从未见过曙光”
+
+这确定不是什么摇滚乐队刻板印象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
