@@ -6216,3 +6216,13 @@ API现在崩了吗 用chatboxai输入秘钥后跟它说话没反应。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  脸宽  
+##### 457#       发表于 2025-1-28 03:28
+
+没有接触过酒馆，大家说的酒馆是指这个SillyTavern
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

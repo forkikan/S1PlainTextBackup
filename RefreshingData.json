@@ -3777,7 +3777,7 @@
     "lastedit": 1737999180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 130014,
+    "totalreply": 130015,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738005252,
+    "lastedit": 1738006328,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9855,10 +9855,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 8570,
+    "totalreply": 8571,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1738003571,
+    "lastedit": 1738006452,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10737,10 +10737,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 40544,
+    "totalreply": 40545,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1738005851,
+    "lastedit": 1738006452,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15012,10 +15012,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 456,
+    "totalreply": 457,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738006088,
+    "lastedit": 1738006452,
     "category": "外野",
     "active": true,
     "update": false
