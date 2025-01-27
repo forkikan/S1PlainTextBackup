@@ -3444,3 +3444,16 @@ API接口是崩了吗，为什么我的一直在转圈
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  流缨  
+##### 243#       发表于 2025-1-27 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288633&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-27 15:00</a>
+
+可以 github red-team deepseek</blockquote>
+逆向没意义啊，api太便宜了
+
+前端选择OPEN WebUI不是自带搜索api接入吗？虽然我还没折腾但是看起来只需要填key就行
+
