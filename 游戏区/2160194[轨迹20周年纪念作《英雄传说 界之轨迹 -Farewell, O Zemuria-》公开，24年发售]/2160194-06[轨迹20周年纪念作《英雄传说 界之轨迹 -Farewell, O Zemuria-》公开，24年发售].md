@@ -794,3 +794,14 @@ SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘</blo
 
 设定集封面画完了
 
+
+*****
+
+####  zhuhh  
+##### 7521#       发表于 2025-1-27 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289323&amp;ptid=2160194" target="_blank">ravend233 发表于 2025-1-27 17:17</a>
+
+设定集封面画完了</blockquote>
+这不比游戏立绘强？早这样画不更好？立绘站姿比游戏里的帅不少。
+
