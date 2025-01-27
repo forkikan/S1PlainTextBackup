@@ -6226,3 +6226,14 @@ API现在崩了吗 用chatboxai输入秘钥后跟它说话没反应。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  泰坦失足  
+##### 458#       发表于 2025-1-28 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292643&amp;ptid=2243718" target="_blank">riin2 发表于 2025-1-28 03:23</a>
+
+李开复说他早已预料到</blockquote>
+李开复自己的YI都放弃开源了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。它那个YI还是第一个支持中文非常好的开源模型呢。后续的迭代更新模型看评分是不错，问题是他闭源啊。开源不如llama qwen （过去的deepseek虽然也开源，但是它太大了，个人/小企业不如买它的白菜价API），闭源不如各**厂闭源API
+

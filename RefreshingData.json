@@ -3777,7 +3777,7 @@
     "lastedit": 1737999180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -7470,12 +7470,12 @@
     "update": false
   },
   "2052383": {
-    "totalreply": 456,
+    "totalreply": 457,
     "title": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
-    "lastedit": 1737566777,
+    "lastedit": 1738006810,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2110102": {
@@ -15012,10 +15012,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 457,
+    "totalreply": 458,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738006452,
+    "lastedit": 1738007293,
     "category": "外野",
     "active": true,
     "update": false
@@ -17307,10 +17307,10 @@
     "update": false
   },
   "2244341": {
-    "totalreply": 238,
+    "totalreply": 239,
     "title": "[柯洁和战鹰爆了？]",
     "newtitle": "[柯洁和战鹰爆了？]",
-    "lastedit": 1738001896,
+    "lastedit": 1738007293,
     "category": "外野",
     "active": true,
     "update": false
@@ -17415,10 +17415,10 @@
     "update": false
   },
   "2244394": {
-    "totalreply": 130,
+    "totalreply": 131,
     "title": "[中央已经决定了！]",
     "newtitle": "[中央已经决定了！]",
-    "lastedit": 1738004892,
+    "lastedit": 1738007293,
     "category": "外野",
     "active": true,
     "update": false
