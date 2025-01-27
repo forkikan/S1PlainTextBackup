@@ -15339,3 +15339,20 @@ mygo的剧情基本都是从细小的事情积累然后开爆，但情感渲染�
 
 mujica的剧情则是重拿轻放，有种怎么这都行，也有节奏、代入感不足、受众变化的原因。也不知道后面会不会延续。
 
+
+*****
+
+####  烂片雷达  
+##### 13119#       发表于 2025-1-27 15:17
+
+黑长直拿到初华的手机看到初华开小号黑人，愤怒地打了初华一巴掌<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Raven314  
+##### 13120#       发表于 2025-1-27 15:20
+
+mana其实有强硬的一面，比如初华不想吃甜甜圈还是要帮她拿，但是还是因为关心人，打人还是算了
+<img src="https://p.sda1.dev/21/d3f07db15a4ded174352273eefa5eadb/image.jpg" referrerpolicy="no-referrer">
+
