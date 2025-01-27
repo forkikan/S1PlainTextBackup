@@ -96,3 +96,70 @@ v高达的恋童阿姨，脱光了拽着胡索一起进浴缸
 
 一会做个截图对比
 
+
+*****
+
+####  刺客ares  
+##### 5929#       发表于 2025-1-27 20:49
+
+<img src="https://img.saraba1st.com/forum/202501/27/204819s2ktpv7v7zpq4tki.png" referrerpolicy="no-referrer">
+
+<strong>b8f5d8fa8d82b1f678892f2626ec68b.png</strong> (39.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/204827jvvv77xvcuct6coy.png" referrerpolicy="no-referrer">
+
+<strong>7b22681e77c5ceead2eb2c3392c9884.png</strong> (77.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/204834vmf3i8pnqe8fhifz.png" referrerpolicy="no-referrer">
+
+<strong>8ec8c1282b4a5addfa227d240c54551.png</strong> (53.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/204840o0dodnqdrzd5dr7d.png" referrerpolicy="no-referrer">
+
+<strong>2d7372c45287d0af242ad12445eab8e.png</strong> (67.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/204848yt5jmpqpjessf7vs.png" referrerpolicy="no-referrer">
+
+<strong>d798fe1e8bff25240b1ce69836d06bd.png</strong> (84.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/204855foksjscknskpse7a.png" referrerpolicy="no-referrer">
+
+<strong>852ddcff8443f8c1e5397ce6b173d62.png</strong> (78.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:48 上传
+
+*****
+
+####  刺客ares  
+##### 5930#       发表于 2025-1-27 20:53
+
+对比完感觉心里凉了半截
+
+致敬到这个份上，01驾驶员是骡子的可能性不是没有
+
+不如说在致敬范围内，痞子就是把01当阿姆罗该在的位置去做的
+
+感觉要做好本篇到结尾阿姆罗都不会出现的心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

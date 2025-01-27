@@ -4134,3 +4134,45 @@ MD，真没想到DS竟然倒在了“用的人太多了”这点上
 这是不是用酒馆就不需要像其他api一样导入对话补全预设和正则</blockquote>
 也需要导入破限预设
 
+
+*****
+
+####  qratosones1337  
+##### 302#       发表于 2025-1-27 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289645&amp;ptid=2243718" target="_blank">千本blur 发表于 2025-1-27 18:08</a>
+deepseek可能现在还不赚钱，
+但是幻方量化开几个空单现在应该已经赚麻了</blockquote>
+英伟达盘前跌了百分之十几了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 303#       发表于 2025-1-27 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290269&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 19:44</a>
+线上的，就是我先发一部分设定给他，然后根据他反馈的结果不断给他加注意事项 ...</blockquote>
+等SiliconCloud吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 304#       发表于 2025-1-27 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290301&amp;ptid=2243718" target="_blank">景悦风和 发表于 2025-1-27 19:49</a>
+是不是只能年后等whale bro加服务器解决了</blockquote>
+各家云服务都可以托管，SiliconCloud现在已经有V2系列了，估计过一阵就有V3系列了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  断片集  
+##### 305#       发表于 2025-1-27 20:55
+
+好像又好了，下午的时候怎么样都不能直出小黄文的，一直会回复道歉和相关规定啥的，刚才api突然变得很流畅，而且又能直出了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
