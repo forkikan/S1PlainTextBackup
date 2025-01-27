@@ -5902,3 +5902,87 @@ ai有几段写的巨好，感觉已经走出来了。
 
 现在api有人用的了吗？官网状态显示正常但使用有问题。
 
+
+*****
+
+####  moeblack  
+##### 428#         楼主| 发表于 2025-1-28 01:48
+
+<blockquote>XSH97 发表于 2025-1-28 01:46
+现在api有人用的了吗？官网状态显示正常但使用有问题。</blockquote>
+全崩，我这里不行，网页api
+
+*****
+
+####  qz66618  
+##### 429#       发表于 2025-1-28 01:49
+
+我用的chatbox一直没办法使用r1，但是可以使用chat也就是V3模型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  你妈的为什么  
+##### 430#       发表于 2025-1-28 01:50
+
+这波做空老黄不但财富自由还能继续研发
+
+操纵股市的最佳方式就是操纵股市<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Surlert  
+##### 431#       发表于 2025-1-28 01:51
+
+api chat可以用，但非常慢。
+
+
+*****
+
+####  XSH97  
+##### 432#       发表于 2025-1-28 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292417&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 01:48</a>
+
+全崩，我这里不行，网页api</blockquote>
+多谢，我还以为是我一个人的问题。看来他们有的修了。
+
+*****
+
+####  琴酒  
+##### 433#       发表于 2025-1-28 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292411&amp;ptid=2243718" target="_blank">XSH97 发表于 2025-1-28 01:46</a>
+
+现在api有人用的了吗？官网状态显示正常但使用有问题。</blockquote>
+r1发了没反应
+
+v3不能瑟瑟
+
+*****
+
+####  OrianaThomson  
+##### 434#       发表于 2025-1-28 01:56
+
+这楼也发个本地部署<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+-7Qkgn-eterZeT3cSk0-zk.jpg
+(152.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 01:55 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/015541prkjrjbwjqkz13tj.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bixinhaner  
+##### 435#       发表于 2025-1-28 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292406&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 01:44</a>
+
+不知道OCR怎么样，之前一直用Gemini1206很好用</blockquote>
+输入输出的分辨率都太低，不知道是不是模型规模很小的原因
+

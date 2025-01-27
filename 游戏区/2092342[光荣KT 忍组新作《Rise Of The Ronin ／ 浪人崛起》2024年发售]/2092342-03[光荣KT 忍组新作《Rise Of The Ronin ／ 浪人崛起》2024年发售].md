@@ -271,3 +271,11 @@ steam买了，看看高清浪人<img src="https://static.saraba1st.com/image/smi
 二周目就打了一点，隔太久都有点忘了，aibo不是用的无明开新流吗，有什么其他独有流派吗？我之前是指望DL ...</blockquote>
 最后结局就是暗示DLC是aibo和龙马在美国的剧情，如果有DLC aibo应该就有新流派和新武器，但现在应该是无了。
 
+
+*****
+
+####  duraa  
+##### 3343#       发表于 2025-1-28 01:51
+
+我的感想是这游戏就爽就玩简单难度，不要折磨自己<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
