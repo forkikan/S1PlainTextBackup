@@ -16038,3 +16038,18 @@ fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种�
 
 这个票房相当牛逼了
 
+
+*****
+
+####  jojonathan  
+##### 5906#       发表于 2025-1-27 16:48
+
+好想看啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 5907#       发表于 2025-1-27 16:54
+
+没想到居然是后起发力的类型，首日票房那天都还忙着滑坡（）
+

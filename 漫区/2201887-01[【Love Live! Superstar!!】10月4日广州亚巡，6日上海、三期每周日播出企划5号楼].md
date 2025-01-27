@@ -14870,3 +14870,17 @@ Liyuu出道5周年！今年5周年 live还有直播<img src="https://static.sara
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  starring  
+##### 1447#       发表于 2025-1-27 16:46
+
+pay 1st photo&amp;interview book
+
+<img src="https://p.sda1.dev/21/de73aba0e6deb5316e005f4fea4513ff/QQ截图20250127163240.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a9838ee8566d604a1fdfffc09f59ed49/GiSTAIyaMAAyLm0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d4af122f4d9406a872548556023e3229/GiSVUGnbEAAUcqD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e7f28fa26321716af83faf435491a7e8/GiSVUGnaIAAUul0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6934485c42ae7915addfec09805e6eeb/GiSVUGnbUAAr67H.jpg" referrerpolicy="no-referrer">
+
