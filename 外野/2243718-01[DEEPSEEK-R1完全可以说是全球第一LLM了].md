@@ -4032,3 +4032,36 @@ r1 api炸了
 
 v3导入人物卡能写** 但是写着写着就重复
 
+
+*****
+
+####  自闭傻吊小号  
+##### 293#       发表于 2025-1-27 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289514&amp;ptid=2243718" target="_blank">7do 发表于 2025-1-27 17:49</a>
+
+不是很懂 ds这种开源的其他家不是就可以直接抄一抄改进他们的模型么，怎么保持优势？
+
+— from S1 Next Goo ...</blockquote>
+其实对于现在的复杂系统们来说，数据、测试、流程本身甚至比已经公开的源码更有价值
+
+*****
+
+####  lyt777  
+##### 294#       发表于 2025-1-27 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290310&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-27 19:50</a>
+
+r1 api炸了
+
+v3导入人物卡能写** 但是写着写着就重复</blockquote>
+我连V3的都用不了了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qqks  
+##### 295#       发表于 2025-1-27 20:04
+
+有托管的山寨app吗？这么大的流量就没有厂商吃进？
+
