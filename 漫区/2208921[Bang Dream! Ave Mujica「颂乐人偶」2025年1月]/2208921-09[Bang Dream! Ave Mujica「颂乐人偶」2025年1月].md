@@ -15738,3 +15738,15 @@ mygo再不参团就没有优势了——立希来了全敲了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  银酒监武  
+##### 13158#       发表于 2025-1-27 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289535&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-27 17:53</a>
+原来是这样</blockquote>
+yysy桂柳话属于西南官话，更像云贵川
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

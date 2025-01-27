@@ -16104,3 +16104,33 @@ fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种�
 这里周末三天是5.28亿，5847楼是5.5亿，X上ベーダー是5.57亿</blockquote>
 应该是票价系数的原因，自媒体终究难以掌握准确系数，还是要以兴通和官方为准
 
+
+*****
+
+####  王留美  
+##### 5913#       发表于 2025-1-27 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289485&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-27 17:45</a>
+
+应该是票价系数的原因，自媒体终究难以掌握准确系数，还是要以兴通和官方为准 ...</blockquote>
+是
+
+不过15亿肯定过了，这周目标20亿吧
+
+看看下周能不能冲一下相逢在宇宙的23亿(问题应该不大？
+
+*****
+
+####  oi99o  
+##### 5914#       发表于 2025-1-27 18:14
+
+大川ぶくぶ
+
+<img src="https://img.saraba1st.com/forum/202501/27/181404my0jktqqj68artb3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:14 上传
+

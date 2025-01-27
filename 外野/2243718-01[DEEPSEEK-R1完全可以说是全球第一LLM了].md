@@ -3810,3 +3810,36 @@ API能在vscode插件里面用，更方便，虽然今天下午就没能用成�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  我的天呐  
+##### 273#       发表于 2025-1-27 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/27/180532qood1cq88n88p88y.png" referrerpolicy="no-referrer">
+
+<strong>4LH3}C3MI%YIB{Y]M(R4Q8K.png</strong> (410.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:05 上传
+
+%WQ1G%R9X7F)23ZA9@$9[(B_tmb.jpg
+(71.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:05 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/180505f3oc7o0e6opg0rpy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千本blur  
+##### 274#       发表于 2025-1-27 18:08
+
+deepseek可能现在还不赚钱，
+但是幻方量化开几个空单现在应该已经赚麻了
+
