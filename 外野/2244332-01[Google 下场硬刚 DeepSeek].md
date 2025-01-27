@@ -503,3 +503,14 @@ gemini不是说搞瑟瑟特别厉害吗，角色扮演方面？
 
 所以到现在有人查过这人是不是谷歌员工了吗
 
+
+*****
+
+####  万恶淫猥手  
+##### 53#         楼主| 发表于 2025-1-27 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287860&amp;ptid=2244332" target="_blank">colodes 发表于 2025-1-27 12:56</a>
+
+所以到现在有人查过这人是不是谷歌员工了吗</blockquote>
+前员工了，不过 Jeff Dean 转了 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -14790,3 +14790,63 @@ mujica中段应该能分出半集重点刻画喵梦内心使她不那么像炸�
 
 这个视频是一个一个拍的
 
+
+*****
+
+####  江口夕  
+##### 13076#       发表于 2025-1-27 13:18
+
+看清楚了，后面全是睦本人，莫老师已经下线了。我可以开香槟了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Raven314  
+##### 13077#       发表于 2025-1-27 13:21
+
+这个广告剧透不知道透了多少集，wsd真有你的
+
+*****
+
+####  江口夕  
+##### 13078#       发表于 2025-1-27 13:22
+
+感觉应该是mujica解散，莫老师下线，但是几个人不敢再重组，怕莫老师卷土重来
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 13079#       发表于 2025-1-27 13:23
+
+莫小姐下线了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">安抚吉他那铁莫小姐啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 13080#       发表于 2025-1-27 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288069&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 13:23</a>
+莫小姐下线了吗安抚吉他那铁莫小姐啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那个是睦
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  天空塔书记官  
+##### 13081#       发表于 2025-1-27 13:23
+
+“黑化”或者“龙王归来”这类戏码本质是在将人物向下塑造，而少女乐队的基调是向上的，真按爽文展开，除了能满足某些观众的情绪发泄需求之外，对人物形象的塑造补完没有任何意义
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
