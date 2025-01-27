@@ -13740,3 +13740,35 @@ QQ图片20250127094332.jpg
 
 这是白祥下跪 ob上号了吗
 
+
+*****
+
+####  哈曼的YY  
+##### 12973#       发表于 2025-1-27 10:04
+
+绷不住去墓地找老妈了 祥老师果然是萨满
+
+*****
+
+####  SakuraのOrigami  
+##### 12974#       发表于 2025-1-27 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286362&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-1-27 09:52</a>
+祥子这是跪下了？</blockquote>
+看起来是去墓地了（）
+
+*****
+
+####  山ノ内花音  
+##### 12975#       发表于 2025-1-27 10:09
+
+墓地那张是下跪 落泪
+
+
+*****
+
+####  古明地雷  
+##### 12976#       发表于 2025-1-27 10:11
+
+初华看到什么了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
