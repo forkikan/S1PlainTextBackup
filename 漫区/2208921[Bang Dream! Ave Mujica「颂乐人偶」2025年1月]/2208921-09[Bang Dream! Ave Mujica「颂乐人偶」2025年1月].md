@@ -15928,3 +15928,60 @@ yysy桂柳话属于西南官话，更像云贵川
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真跪了的话只能说社区舆论风评要大爆炸了，第四集已经够惨了
 
+
+*****
+
+####  NODY  
+##### 13176#       发表于 2025-1-28 00:16
+
+日本有人对比了喵梦和大姐头的宿舍
+
+房间构造基本相同，床、电脑桌、空调、窗帘都是标配，书架和盆栽应该是自备
+
+<img src="https://img.saraba1st.com/forum/202501/28/001625y8jhheba5qbehbbe.jpg" referrerpolicy="no-referrer">
+
+<strong>GiTaofobgAAvo6b.jpg</strong> (199.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:16 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/001625jqhja3jrrbbjj4tk.jpg" referrerpolicy="no-referrer">
+
+<strong>GiTaq4RakAA_ohO.jpg</strong> (186.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:16 上传
+
+*****
+
+####  天空塔书记官  
+##### 13177#       发表于 2025-1-28 00:17
+
+就是学校宿舍啊，不同年级相邻因为可以自由租赁啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NODY  
+##### 13178#       发表于 2025-1-28 00:20
+
+ 本帖最后由 NODY 于 2025-1-28 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292029&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-28 00:17</a>
+
+就是学校宿舍啊，不同年级相邻因为可以自由租赁啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+之前看到有觉得只是刚好一个学校的在外面租房当邻居的，这样一对比倒是能明显看出是学校宿舍了
+
+能有这个配置的话这个学校的学费应该挺贵的，喵梦家里人供她读书追梦估计也挺辛苦，不知道会不会深入提到这方面剧情
+
+*****
+
+####  山ノ内花音  
+##### 13179#       发表于 2025-1-28 00:21
+
+你知道的吧 观众他们 没有那么脆弱
+
