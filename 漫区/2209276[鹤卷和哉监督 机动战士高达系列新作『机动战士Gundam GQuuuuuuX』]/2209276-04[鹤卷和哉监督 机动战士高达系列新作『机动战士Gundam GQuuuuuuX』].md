@@ -16006,3 +16006,18 @@ GQX鸭那真是从坐上高达起就一路飒爽，再没有任何人能压制�
 —— 来自 HONOR PTP-AN60, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 夏利亚带着一船人看主角团在Side6打黑拳打12集的剧情，有点难编
 
+
+*****
+
+####  卑弥呼yamato  
+##### 5902#       发表于 2025-1-27 16:25
+
+是不是现在夏利亚在日本的人气超过主角团了……
+
+*****
+
+####  Gysumitka  
+##### 5903#       发表于 2025-1-27 16:28
+
+黑拳直播总不能吉翁那边看不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
