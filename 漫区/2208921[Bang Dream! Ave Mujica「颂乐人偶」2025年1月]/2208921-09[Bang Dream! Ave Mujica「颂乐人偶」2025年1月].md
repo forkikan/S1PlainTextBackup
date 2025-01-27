@@ -13591,3 +13591,13 @@ MyGO之后一年半那么多假药，没人 ...</blockquote>
 其他几个人什么情况 人家都精神病了 
 就不能顺着人家不解散乐队吗 还要这么刺激她？
 
+
+*****
+
+####  天空塔书记官  
+##### 12963#       发表于 2025-1-27 09:15
+
+那如果睦确实是病了，那就代表其他人也不一定正常，直接疯人院拉倒算球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
