@@ -3273,3 +3273,16 @@ deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  你好s1  
+##### 227#       发表于 2025-1-27 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286714&amp;ptid=2243718" target="_blank">Vacuolar 发表于 2025-1-27 10:38</a>
+deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上中美差异巨大，这就像新时代的核弹”的神话， ...</blockquote>
+<img src="https://p.sda1.dev/21/87a8608c17f125aea7249f5f17bea0be/image.jpg" referrerpolicy="no-referrer">
+看看人家自己怎么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

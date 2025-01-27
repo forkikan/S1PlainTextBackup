@@ -15200,3 +15200,52 @@ wsd你最好别拉
 “大家” みんな</blockquote>
 音质太糊了，那有可能是みんなあんたに
 
+
+*****
+
+####  Tnzbt  
+##### 13106#       发表于 2025-1-27 14:15
+
+祥子果然是右代宫战人位吧 
+
+祥子，汝好无能！
+
+*****
+
+####  江口夕  
+##### 13107#       发表于 2025-1-27 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实再衍生个话题
+莫老师其实恨的是睦，所以要摧毁睦喜欢的大祥。
+
+不管是维护乐团压制住睦让睦沉睡让乐团变成大祥不认同的乐团也好，
+乐团解散也好，
+都是莫老师乐见的。
+
+莫老师其实是混沌恶
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  江口夕  
+##### 13108#       发表于 2025-1-27 14:17
+
+ 本帖最后由 江口夕 于 2025-1-27 14:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288381&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 14:10</a>
+丢书和安抚吉他的为啥不能都是莫小姐呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咋不说mygo时期全是莫小姐呢，都分不清谁是谁了，这番咱还看么
+
+哪怕最后不管是你们说的融合成功，或者莫老师消失都可以看成是莫老师，反正你看不出来。
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  烂片雷达  
+##### 13109#       发表于 2025-1-27 14:22
+
+太恨墨提斯了，邦多利世界没有真正的坏人，我是这么认为的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
