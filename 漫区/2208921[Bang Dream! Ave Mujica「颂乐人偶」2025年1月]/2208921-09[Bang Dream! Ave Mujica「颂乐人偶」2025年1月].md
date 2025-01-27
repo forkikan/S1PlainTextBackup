@@ -16128,3 +16128,14 @@ yysy桂柳话属于西南官话，更像云贵川
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 13192#       发表于 2025-1-28 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292499&amp;ptid=2208921" target="_blank">Ty_cc 发表于 2025-1-28 02:10</a>
+
+蒋怪只要别搁那整那个破精神分析，还真能进入到神鬼二项性状态</blockquote>
+那个精神分析不是MyGO的精神分析，是独角兽的精神分析，完全用象征意义去看还是有道理的
+

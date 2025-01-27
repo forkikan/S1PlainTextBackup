@@ -6237,3 +6237,29 @@ API现在崩了吗 用chatboxai输入秘钥后跟它说话没反应。
 李开复说他早已预料到</blockquote>
 李开复自己的YI都放弃开源了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。它那个YI还是第一个支持中文非常好的开源模型呢。后续的迭代更新模型看评分是不错，问题是他闭源啊。开源不如llama qwen （过去的deepseek虽然也开源，但是它太大了，个人/小企业不如买它的白菜价API），闭源不如各**厂闭源API
 
+
+*****
+
+####  泰坦失足  
+##### 459#       发表于 2025-1-28 03:50
+
+[https://www.reddit.com/r/LocalLL ... 131gb_dynamic_gguf/](https://www.reddit.com/r/LocalLLaMA/comments/1ibbloy/158bit_deepseek_r1_131gb_dynamic_gguf/)
+
+你可以在 2 个 H100 80GB GPU 上载入所有层以 140 个 token/s 的速度。像 RTX 4090 这样的 24GB GPU 应该能够获得至少 1 到 3 个 token/s。
+
+感觉再量化一点就正好能塞进一个project digits, 或者按官方说的，两个project digits连接，达到256G统一内存，怎么都够了.
+
+*****
+
+####  王苍幻  
+##### 460#       发表于 2025-1-28 03:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292544&amp;ptid=2243718" target="_blank">仓岛千百合 发表于 2025-1-28 02:30</a>
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+ ...</blockquote>
+32b要20G以上显存
+我16G显存用的14b，我用32b也明显比14b慢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
