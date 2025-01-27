@@ -3976,3 +3976,25 @@ API炸了吗，我在酒馆用r1什么回复都没有，换成chat就有回复
 
 感觉已经废了，性能再强再会写都没用，用的人太多永远被占线这怎么用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  静滞场  
+##### 287#       发表于 2025-1-27 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289986&amp;ptid=2243718" target="_blank">abcxiawei 发表于 2025-1-27 19:05</a>
+
+哥们，你是本地部署的还是用的线上的？</blockquote>
+线上的，就是我先发一部分设定给他，然后根据他反馈的结果不断给他加注意事项
+
+*****
+
+####  白色的120  
+##### 288#       发表于 2025-1-27 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290192&amp;ptid=2243718" target="_blank">妄想中毒 发表于 2025-1-27 19:34</a>
+API炸了吗，我在酒馆用r1什么回复都没有，换成chat就有回复</blockquote>
+炸了，用的人太多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

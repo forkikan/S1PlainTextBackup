@@ -1211,3 +1211,16 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 
 这个我是翻遍了基地，都没找到哪里能看其中的信息。
 
+
+*****
+
+####  kerbad  
+##### 113#       发表于 2025-1-27 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284773&amp;ptid=2238139" target="_blank">alleriawr9 发表于 2025-1-26 23:22</a>
+
+真能吗，其实我还是感觉不少地方不能的
+
+论坛助手,iPhone</blockquote>
+只是看别人推测的程度，我自己懒得去验证<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
