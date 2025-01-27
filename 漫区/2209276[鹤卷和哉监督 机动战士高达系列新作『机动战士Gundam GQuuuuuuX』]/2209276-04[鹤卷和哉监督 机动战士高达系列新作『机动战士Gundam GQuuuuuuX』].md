@@ -15972,3 +15972,37 @@ GQX鸭那真是从坐上高达起就一路飒爽，再没有任何人能压制�
 主世界鸭子被阿姆罗数次击败 ...</blockquote>
 实际上，如果基西莉亚被干掉，月球被无伤拿下，联邦剩下那点兵力就可以尝试进攻阿巴阿库了，后面还是防御战，虽然联邦兵力更少，但是德金大概率还是找雷比尔谈判，然后殖民卫星炮，这时无论联邦剩余部队强攻还是撤退，夏亚都有机会联合自己的势力找机会干掉基连，然后顺带还保持吉恩不完全被联邦吞回去。基本上就会变成野望二章，夏亚独立势力开场那个局面（没有拉拉）。
 
+
+*****
+
+####  七草真由美  
+##### 5899#       发表于 2025-1-27 16:16
+
+所以新作其实就是为了搞2v2电竞？
+
+—— 来自 HONOR PTP-AN60, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  王留美  
+##### 5900#       发表于 2025-1-27 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288789&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-1-27 15:30</a>
+ 兴行通信怎么才报14亿  论坛助手,iPhone</blockquote>
+统计口径不一致呗
+
+这里周末三天是5.28亿，5847楼是5.5亿，X上ベーダー是5.57亿
+最后ベーダー那边15.01亿就是险险过的
+不过就算有差距也就是300万左右，今天不管怎么样都会过15亿的
+
+*****
+
+####  卑弥呼yamato  
+##### 5901#       发表于 2025-1-27 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288999&amp;ptid=2209276" target="_blank">七草真由美 发表于 2025-1-27 16:16</a>
+所以新作其实就是为了搞2v2电竞？
+
+—— 来自 HONOR PTP-AN60, Android 15上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+夏利亚带着一船人看主角团在Side6打黑拳打12集的剧情，有点难编
+
