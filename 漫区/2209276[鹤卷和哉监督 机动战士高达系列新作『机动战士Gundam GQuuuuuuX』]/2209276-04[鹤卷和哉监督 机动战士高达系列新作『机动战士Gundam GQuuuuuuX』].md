@@ -15740,3 +15740,27 @@ X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉の�
 修司NT能力很高MS驾驶技术也强， ...</blockquote>
 来个吸血鬼猎人D式样的结尾？在UC战国时代？那倒是非常浪漫。
 
+
+*****
+
+####  0aleph37  
+##### 5876#       发表于 2025-1-27 10:33
+
+<img src="https://img.saraba1st.com/forum/202501/27/103350psuh5qyyxeshuu2l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 10:33 上传
+
+*****
+
+####  0aleph37  
+##### 5877#       发表于 2025-1-27 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286213&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-27 09:31</a>
+
+破十五亿了，能梦个最终票房三十五亿吗</blockquote>
+有难度，得看后续有没有新的特典商法
+

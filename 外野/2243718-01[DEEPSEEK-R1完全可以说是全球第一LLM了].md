@@ -3159,3 +3159,66 @@ deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上�
 
 现在吹第一有点走了一步就说比赛完结的荒诞感。
 
+
+*****
+
+####  Vacuolar  
+##### 216#       发表于 2025-1-27 10:39
+
+而且生成式模型中国一段时期当第一也不是这一次两次了，关键的是这个赛道非常卷，大家进步都很快，两三个月进步慢点就被甩后面。
+
+*****
+
+####  qratosones1337  
+##### 217#       发表于 2025-1-27 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286714&amp;ptid=2243718" target="_blank">Vacuolar 发表于 2025-1-27 10:38</a>
+
+deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上中美差异巨大，这就像新时代的核弹”的神话， ...</blockquote>
+R1神奇的一点在于这东西在文学创作层面真的形成了对GPT全家的降维打击，然后文学创作恰好是人人都能测的，也恰好是包括GPT在内的已有公开通用模型普遍的弱点
+
+*****
+
+####  赤月知佳  
+##### 218#       发表于 2025-1-27 10:42
+
+好卡啊，怎么这么多人用
+
+说好的藏了50000张h100/800呢？
+
+焯！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  monikaca  
+##### 219#       发表于 2025-1-27 10:43
+
+<blockquote>Vacuolar 发表于 2025-1-27 10:38
+deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上中美差异巨大，这就像新时代的核弹”的神话， ...</blockquote>
+这玩意给我一种背后就是国家，看到美国把手牌里大怪拍出来，开香槟的时候冷战一声，然后从手里一堆底牌中选一张deepseek随手扔出去搞节目效果。
+
+
+*****
+
+####  泰坦失足  
+##### 220#       发表于 2025-1-27 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286714&amp;ptid=2243718" target="_blank">Vacuolar 发表于 2025-1-27 10:38</a>
+
+deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上中美差异巨大，这就像新时代的核弹”的神话， ...</blockquote>
+我就一直没觉得差距巨大这回事。只有GPT 4.0那次发现scale law后偷偷做了几年的技术领先太夸张了，直接领先全世界。OpenAI内部应该是做好 4.0后蒸馏出3.5公开出来。所以才能做到22年底还是纯文字3.5,23年初4.0直接多模态了。后面有YI模型在23年底作为第一个用起来顺手的开源模型，比同期llama 2.0高多了。后面还有Qwen，在DS出名之前一直都是开源之光。我觉得比同期llama3.X/Mistral好用。多模态和超长上下文各家也在今年下半年左右赶上。
+
+*****
+
+####  魔灵高达  
+##### 221#       发表于 2025-1-27 10:47
+
+以下内容需要积分高于 5000 才可浏览
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285926&amp;ptid=2243718" target="_blank">M乔梦 发表于 2025-1-27 08:20</a>
+
+有没有nga帖子的链接，我没搜到</blockquote>
+[转载咒语](https://bin.disroot.org/?bdc9e7091d96e08a#zqkb7A993mK5VFfaasVMhw73xfftpdhdGXUGphCL1E5)
+
