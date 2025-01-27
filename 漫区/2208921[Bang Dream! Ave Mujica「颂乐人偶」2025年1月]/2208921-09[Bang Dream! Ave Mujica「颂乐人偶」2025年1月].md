@@ -13798,3 +13798,125 @@ QQ图片20250127094332.jpg
 这不就跟Soyo给灯买摩卡是一样 ...</blockquote>
 因为初华自己喝的就是咖啡☕️，这样就可以知道祥子又双叒叕通宵不睡了。
 
+
+*****
+
+####  Raven314  
+##### 12979#       发表于 2025-1-27 10:24
+
+看祥子校服直接换冬装了，下一集回老宅的可能性增大<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 12980#       发表于 2025-1-27 10:25
+
+没有睦吗没有睦吗<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ParadiseMartyr  
+##### 12981#       发表于 2025-1-27 10:26
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-27 10:27 编辑 
+
+那坏了，更显得祥子闹麻了。毕竟一开始出走也好打工也好，就是她自找的苦难…
+不是说祥子这么做是"作"，只是这么拍会显得她前面的苦难很多余…
+
+*****
+
+####  ytttsuuuba  
+##### 12982#       发表于 2025-1-27 10:28
+
+我现在真希望她回老宅弹钢琴回血
+
+*****
+
+####  Raven314  
+##### 12983#       发表于 2025-1-27 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286592&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 10:25</a>
+没有睦吗没有睦吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+有是有，不过不知道是不是墨还是睦
+背景是ring?<img src="https://p.sda1.dev/21/6129cb33682c61ef96ac2e22b2257475/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 12984#       发表于 2025-1-27 10:30
+
+祥子破防完了回回血估计就要大女主复权了
+
+*****
+
+####  Raven314  
+##### 12985#       发表于 2025-1-27 10:30
+
+初华终于藏不住了，就她的图信息量最大<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 12986#       发表于 2025-1-27 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286592&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 10:25</a>
+没有睦吗没有睦吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://p.sda1.dev/21/b7a8da5c5d51d16ce17332f14ef77984/image.jpg" referrerpolicy="no-referrer">
+第二张如果是莫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 12987#       发表于 2025-1-27 10:31
+
+<img src="https://img.saraba1st.com/forum/202501/27/103131eedi6dipl6godsd6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1639.jpeg</strong> (108.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-27 10:31 上传
+
+像是墨对睦说话
+
+*****
+
+####  哈曼的YY  
+##### 12988#       发表于 2025-1-27 10:32
+
+<blockquote>ParadiseMartyr 发表于 2025-1-27 10:26
+那坏了，更显得祥子闹麻了。毕竟一开始出走也好打工也好，就是她自找的苦难…
+
+不是说祥子这么做是"作"，只 ...</blockquote>
+到被赶走前怎么会是多余的
+
+*****
+
+####  老贝  
+##### 12989#       发表于 2025-1-27 10:32
+
+看着像是在捂着肚子狂笑，然后回去对着睦象征的吉他说你放心我全都搞定了。
+
+*****
+
+####  swessia  
+##### 12990#       发表于 2025-1-27 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286641&amp;ptid=2208921" target="_blank">银酒监武 发表于 2025-1-27 10:31</a>
+第二张如果是莫
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">这第二张不会真计划通了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -724,3 +724,16 @@ PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  風卷豹  
+##### 7515#       发表于 2025-1-27 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286000&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2025-1-27 08:43</a>
+
+有一说一，这次在steam deck上优化还不错，比李鬼2强多了
+
+论坛助手,iPhone</blockquote>
+SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
