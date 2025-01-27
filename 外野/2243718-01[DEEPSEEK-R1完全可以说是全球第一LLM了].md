@@ -6278,3 +6278,17 @@ api还没恢复么 这网页动不动不能回答 或者撤回也太难受了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4060显卡试了一下8b，慢得很，1.5b又太弱智，连1.11和1.9谁大，都能回答没有学过。
 
+
+*****
+
+####  泰坦失足  
+##### 463#       发表于 2025-1-28 04:09
+
+[https://qwen.readthedocs.io/zh-c ... peed_benchmark.html](https://qwen.readthedocs.io/zh-cn/latest/benchmark/speed_benchmark.html)
+
+32B 参考纯GPU运行int4的最低显存要求是18.94显存。Ollama使用的GGUF，超了不会爆显存但是会载入到CPU内存中，进一步的会载入到虚拟内存中。反正我的经验是只要显存不能全部放下，速度就开始慢了。
+
+除此之外，上下文的长度会进一步加大显存占用
+
+6144tokens 约4200个汉字还是10000个？记不得是乘以还是除以0.7了. 显存需求达到21.09G，14336 tokens 24.67G
+
