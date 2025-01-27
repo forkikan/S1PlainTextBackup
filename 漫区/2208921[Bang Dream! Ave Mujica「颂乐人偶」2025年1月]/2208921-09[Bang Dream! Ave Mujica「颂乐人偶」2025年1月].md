@@ -14719,3 +14719,33 @@ ed这种风格也很少是少女们组团做乐队的，更像名字叫BLACK CAT
 祥子是变不成某些人心目中的大女主的 ...</blockquote>
 春日影那段也不是直接和前队友对峙呀
 
+
+*****
+
+####  ntrntr1  
+##### 13070#       发表于 2025-1-27 13:03
+
+<blockquote>嵇翱u 发表于 2025-1-27 11:24
+如果是间谍那祥子离家一年了都不去看看吗。祥子不找她就进不去的内奸也太菜了吧 ...</blockquote>
+你怎么知道没给祥子安小摄像头xd
+
+*****
+
+####  厚乳果珍爽  
+##### 13071#       发表于 2025-1-27 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个cm里，画框掉了以后变成电视后来又花屏了是什么意思？
+
+*****
+
+####  swessia  
+##### 13072#       发表于 2025-1-27 13:06
+
+小祥道心破碎不在组乐队太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+想想这组两个炸两个，除了海希其余人均神人，还把自己唯一好友搭进去了
+
+捶地哭小祥太美味了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

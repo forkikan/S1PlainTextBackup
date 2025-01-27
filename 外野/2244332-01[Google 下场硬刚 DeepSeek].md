@@ -495,3 +495,11 @@ gemini不是说搞瑟瑟特别厉害吗，角色扮演方面？
 【谷歌 RT-2-X 通用型人工智能机器人】 [https://www.bilibili.com/video/BV14G41127Te/](https://www.bilibili.com/video/BV14G41127Te/)
 [https://deepmind.google/discover ... -advanced-robotics/](https://deepmind.google/discover/blog/shaping-the-future-of-advanced-robotics/)
 
+
+*****
+
+####  colodes  
+##### 52#       发表于 2025-1-27 12:56
+
+所以到现在有人查过这人是不是谷歌员工了吗
+
