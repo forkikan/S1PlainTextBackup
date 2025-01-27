@@ -180,3 +180,13 @@ CBA＋1<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" ref
 本来都没注意过，原来阿比现在这么猛，必须练起来了</blockquote>
 虽然国服还没强化，要等周年，但是练起来没问题。
 
+
+*****
+
+####  溯夜  
+##### 46987#       发表于 2025-1-27 23:56
+
+new了女帝，感觉没啥用
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
