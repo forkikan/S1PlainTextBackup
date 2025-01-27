@@ -15528,3 +15528,40 @@ mygo里观众基本是上帝视角，mujica里不是
 黑长直拿到初华的手机看到初华开小号黑人，愤怒地打了初华一巴掌</blockquote>
 狗艹的水母还在追我
 
+
+*****
+
+####  Kasroz  
+##### 13137#       发表于 2025-1-27 17:10
+
+【「BanG Dream! Ave Mujica」东京JR新宿站广告墙-哔哩哔哩】 https://b23.tv/mwZEA4S
+
+官号投稿了
+
+*****
+
+####  plusSharp  
+##### 13138#       发表于 2025-1-27 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288382&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-27 14:10</a>
+
+就mujica这样，前三集已经是为爆而爆了，后面来个祥子失聪都可能
+
+说不好听mygo时候的女女关系性没多少， ...</blockquote>
+拆团已经成路径依赖了，好像不解散就不会推动剧情了。人物也是各个身怀绝技：祥子没苦硬吃，睦疑似精神病，初华有祥子就够了，若麦流量入脑，海铃反复打工。真怀疑一开始做设定的时候是否清醒
+
+
+*****
+
+####  wwwttth  
+##### 13139#       发表于 2025-1-27 17:13
+
+看到最离谱的一个假药，祥子每件事都会被回旋镖，所以祥子阻止灯跳桥也会被回旋镖，来个人阻止祥子跳桥啥的，这剧情好像哪里看过（）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fufusako  
+##### 13140#       发表于 2025-1-27 17:17
+
+我还是不明白祥子到底想干嘛，到第四集了核心矛盾还没出现，不知道主线在哪里，这种没头没脑的情况下怎么造假药都没有意义
+

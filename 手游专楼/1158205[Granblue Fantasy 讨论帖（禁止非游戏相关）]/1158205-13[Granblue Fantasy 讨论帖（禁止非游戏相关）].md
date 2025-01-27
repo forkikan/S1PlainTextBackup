@@ -32,3 +32,36 @@
 
 顺便九柱夏天刚出来的时候都在说不上不下这次不带蛇的作业上了不少，感觉主要是靠闪避来加生存的，可惜我的水太low用着不稳定打了几把换回蛇了。
 
+
+*****
+
+####  phoenixxj  
+##### 18192#       发表于 2025-1-27 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288936&amp;ptid=1158205" target="_blank">Aureth 发表于 2025-1-27 16:01</a>
+
+上次暗双子大战水熊虫，这次暗神将大战祈魂人
+
+顺便九柱夏天刚出来的时候都在说不上不下这次不带蛇的作业上 ...</blockquote>
+这卡主要是奥义回转
+
+还有放大yqm的输出
+
+还有驱散
+
+2技能直接关了没有任何影响。（emmm可能稳定性有影响 但是开了开局送人也会影响稳定性）
+
+*****
+
+####  Aureth  
+##### 18193#       发表于 2025-1-27 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289306&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2025-1-27 17:13</a>
+
+这卡主要是奥义回转
+
+还有放大yqm的输出
+
+还有驱散</blockquote>
+我关上2再试试，反射真的太恶心了
+

@@ -530,3 +530,40 @@ google的2.0 thinking模型，veo2和3d生成都非常强大。ds有牛逼的地
 
 不是只有邪恶的东大ai有政府补贴才能打价格战嘛，怎么你西大主动接茬
 
+
+*****
+
+####  mimighost  
+##### 56#       发表于 2025-1-27 17:09
+
+gemini 2.0不菜
+
+只不过用的人少，不开源又被openai拉了一个身位，那就没啥意义
+
+*****
+
+####  mimighost  
+##### 57#       发表于 2025-1-27 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289240&amp;ptid=2244332" target="_blank">reficul 发表于 2025-1-27 17:00</a>
+
+不是只有邪恶的东大ai有政府补贴才能打价格战嘛，怎么你西大主动接茬</blockquote>
+谷歌硬件都是自己设计的，它才有这个资格打价格战，毕竟不给nvidia上供
+
+*****
+
+####  mimighost  
+##### 58#       发表于 2025-1-27 17:14
+
+谷歌这个抽象在哪里呢
+
+谷歌有个自己的gemini的网站：[https://gemini.google.com/app](https://gemini.google.com/app)
+
+这个网站里面是是没有flash thinking的
+
+flash thinking在这里[https://aistudio.google.com/prom ... -thinking-exp-01-21](https://aistudio.google.com/prompts/new_chat?model=gemini-2.0-flash-thinking-exp-01-21)
+
+这个还是免费的
+
+主打一个毫无任何统筹，产品线极致混乱
+

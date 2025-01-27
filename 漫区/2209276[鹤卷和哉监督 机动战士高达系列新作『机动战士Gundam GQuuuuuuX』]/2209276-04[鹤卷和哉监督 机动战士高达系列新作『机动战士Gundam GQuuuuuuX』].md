@@ -16053,3 +16053,27 @@ fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种�
 
 没想到居然是后起发力的类型，首日票房那天都还忙着滑坡（）
 
+
+*****
+
+####  岸浪白野  
+##### 5908#       发表于 2025-1-27 17:04
+
+<img src="https://img.saraba1st.com/forum/202501/27/170450zw5j4qsk2c9nlwgw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 17:04 上传
+
+*****
+
+####  王留美  
+##### 5909#       发表于 2025-1-27 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289268&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-27 17:04</a></blockquote>
+才14.32亿啊，那今天搞不好破不了15亿
+
+不过问题不大，这周应该能破20亿，再往后都是赚的了
+

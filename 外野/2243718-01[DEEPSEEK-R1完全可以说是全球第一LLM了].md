@@ -3615,3 +3615,44 @@ r1没怎么遇到复读啊你是不是调用的v3
 这几天好像在云上飞了 ...</blockquote>
 咋做的？ 
 
+
+*****
+
+####  ff2077  
+##### 255#       发表于 2025-1-27 17:08
+
+小黄文咋调教啊 不让写啊
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zerona  
+##### 256#       发表于 2025-1-27 17:09
+
+先问下，这会儿是不是r1 的api 坏掉了？ 01/27 17:09:31
+
+*****
+
+####  阿刚  
+##### 257#       发表于 2025-1-27 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289097&amp;ptid=2243718" target="_blank">jcwatm1 发表于 2025-1-27 16:31</a>
+
+r1瑟瑟感觉大有可为，因为推理模型能很好的坚持自己的人设
+
+gemini啥的都太听话了，给个抖s人设，一句变星怒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">求教怎么操作，给支个链接也行
+
+*****
+
+####  阿刚  
+##### 258#       发表于 2025-1-27 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289169&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 16:44</a>
+
+无敌了，我输了几万字的设定进去让它不停生成完全符合我xp的小黄文，每一篇都顶中顶
+
+这几天好像在云上飞了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">怎么写的啊，我让他出小段子都得拼手速，而且速度快的一批，马上就撤回了
+
