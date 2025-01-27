@@ -15504,3 +15504,27 @@ mygo里观众基本是上帝视角，mujica里不是
 
 国服账号是不是回家过年了,这都多少天不炒作了
 
+
+*****
+
+####  ads147147  
+##### 13135#       发表于 2025-1-27 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288846&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-27 15:43</a>
+新台词
+
+海鈴 何が言いたいんです？</blockquote>
+坐上eva就能幸福吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  lucasxp  
+##### 13136#       发表于 2025-1-27 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288711&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-1-27 15:17</a>
+黑长直拿到初华的手机看到初华开小号黑人，愤怒地打了初华一巴掌</blockquote>
+狗艹的水母还在追我
+

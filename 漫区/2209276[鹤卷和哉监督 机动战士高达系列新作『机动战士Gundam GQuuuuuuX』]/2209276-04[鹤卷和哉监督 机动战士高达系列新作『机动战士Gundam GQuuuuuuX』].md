@@ -16021,3 +16021,20 @@ GQX鸭那真是从坐上高达起就一路飒爽，再没有任何人能压制�
 
 黑拳直播总不能吉翁那边看不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5904#       发表于 2025-1-27 16:33
+
+<blockquote>卑弥呼yamato 发表于 2025-1-27 16:25
+是不是现在夏利亚在日本的人气超过主角团了……</blockquote>
+fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种双人图三人图多得多
+
+*****
+
+####  wyhman  
+##### 5905#       发表于 2025-1-27 16:42
+
+这个票房相当牛逼了
+

@@ -3500,3 +3500,42 @@ r1通过推理特别杠，人设完全不跑偏，给了个抖s伪娘人设，�
 
 就是情节太跳脱了，还需要优化
 
+
+*****
+
+####  凉良  
+##### 247#       发表于 2025-1-27 16:40
+
+但是r1真的发癫啊。写小黄文怎么这么能发散。
+
+*****
+
+####  yangkaim4  
+##### 248#       发表于 2025-1-27 16:42
+
+<blockquote>jcwatm1 发表于 2025-1-27 16:31
+r1瑟瑟感觉大有可为，因为推理模型能很好的坚持自己的人设
+
+gemini啥的都太听话了，给个抖s人设，一句变星怒 ...</blockquote>
+酒馆吗？
+
+
+*****
+
+####  凉良  
+##### 249#       发表于 2025-1-27 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288658&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-1-27 15:08</a>
+跟风装了个酒馆，但是这天聊几句对面的回答就开始进入死循环（无论我说啥它都回答一样的句子）是为啥 ...</blockquote>
+r1没怎么遇到复读啊你是不是调用的v3
+
+*****
+
+####  静滞场  
+##### 250#       发表于 2025-1-27 16:44
+
+无敌了，我输了几万字的设定进去让它不停生成完全符合我xp的小黄文，每一篇都顶中顶
+这几天好像在云上飞了几天<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
