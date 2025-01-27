@@ -15985,3 +15985,20 @@ yysy桂柳话属于西南官话，更像云贵川
 
 你知道的吧 观众他们 没有那么脆弱
 
+
+*****
+
+####  天空塔书记官  
+##### 13180#       发表于 2025-1-28 00:26
+
+ 本帖最后由 天空塔书记官 于 2025-1-28 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292046&amp;ptid=2208921" target="_blank">NODY 发表于 2025-1-28 00:20</a>
+之前看到有觉得只是刚好一个学校的在外面租房当邻居的，这样一对比倒是能明显看出是学校宿舍了
+
+能有这个 ...</blockquote>
+这学校原型大概率是东京艺术大学(都立艺术学院）的音乐学部附属高中，符合音乐特长和会有演技相关的开放课程，能进的学习都不会太差，喵梦像六花(乡下土妹）和祥子(落魄的大小姐）在羽丘那样靠拿奖学金补助问题应该不大，而且作为博主也会有一部分收入，看粉丝数，大喵之前也是小火过一阵的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

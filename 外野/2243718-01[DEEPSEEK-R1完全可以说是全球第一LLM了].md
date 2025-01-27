@@ -5361,3 +5361,33 @@ AI的瞳孔闪过一串乱码。趁这瞬间，他咬破舌尖将魔芋残渣混
 
 试了下本地部署7b模型，感觉好智障
 
+
+*****
+
+####  RookieTnT  
+##### 392#       发表于 2025-1-28 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292076&amp;ptid=2243718" target="_blank">Khellendros 发表于 2025-1-28 00:26</a>
+
+试了下本地部署7b模型，感觉好智障</blockquote>
+7b就是纯娱乐的. 起码32B往上
+
+*****
+
+####  Amami_Haruka_  
+##### 393#       发表于 2025-1-28 00:32
+
+续写了最后生还者2和冰与火之歌6、7的大纲，有点东西
+
+（app用不了长截图）
+
+*****
+
+####  王苍幻  
+##### 394#       发表于 2025-1-28 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292115&amp;ptid=2243718" target="_blank">RookieTnT 发表于 2025-1-28 00:32</a>
+
+7b就是纯娱乐的. 起码32B往上</blockquote>
+32B要什么硬件呀??
+
