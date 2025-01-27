@@ -3400,3 +3400,23 @@ API接口是崩了吗，为什么我的一直在转圈
 你这个办法能让r1 也接入网络搜索吗？</blockquote>
 可以 github red-team deepseek
 
+
+*****
+
+####  real_zyf  
+##### 239#       发表于 2025-1-27 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288581&amp;ptid=2243718" target="_blank">bwsusaga 发表于 2025-1-27 14:48</a>
+
+用酒馆出NSFW内容时，R1会越来越嗨，
+
+但如果中间突然插一句不相干的，比如“你写的很棒”之类的，它就突然 ...</blockquote>
+跟风装了个酒馆，但是这天聊几句对面的回答就开始进入死循环（无论我说啥它都回答一样的句子）是为啥
+
+*****
+
+####  卡嘎米  
+##### 240#       发表于 2025-1-27 15:09
+
+7b模型本地8g显存可用，稍微弱智点
+
