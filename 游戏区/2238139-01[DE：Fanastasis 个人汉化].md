@@ -1184,3 +1184,30 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 红眼少女我觉得一定要杀的吧，当时我为了找不杀她的办法找了四五个小时。拿到钥匙之后物品描述有说这钥匙一 ...</blockquote>
 这个游戏对话实际上相当少，最多就是三言两句不合就开杀，而且你不杀她是没法重构复活法术，到后面就是杀 杀杀杀
 
+
+*****
+
+####  ziyuan327  
+##### 111#       发表于 2025-1-27 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285079&amp;ptid=2238139" target="_blank">wwddrte 发表于 2025-1-27 00:13</a>
+
+红眼少女我觉得一定要杀的吧，当时我为了找不杀她的办法找了四五个小时。拿到钥匙之后物品描述有说这钥匙一 ...</blockquote>
+其实理论上是可以不杀的，我拿到钥匙后去开了那些门，发现并没有什么非拿不可的东西，而且很多地方你进去了才发现，还有别的途径一样能进。
+
+当然一直留着那么多门不能进，实在叫人抓心挠肝的，所以还是杀了来得清净。
+
+*****
+
+####  ziyuan327  
+##### 112#       发表于 2025-1-27 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277120&amp;ptid=2238139" target="_blank">blackll7 发表于 2025-1-25 21:56</a>
+
+其实这游戏有寝室，解锁记忆可以去人物个人精神空间看剧情（
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我说的不是那些黄色的队友记忆，而是每次进入新场景后，找到的那些宝珠一样的记忆，比如“XX的记忆”之类。
+
+这个我是翻遍了基地，都没找到哪里能看其中的信息。
+

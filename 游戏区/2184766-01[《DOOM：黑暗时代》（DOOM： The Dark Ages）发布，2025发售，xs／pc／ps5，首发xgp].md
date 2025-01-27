@@ -967,3 +967,11 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 没了eternal的高速ACT风格有点伤心
 
+
+*****
+
+####  white1dance  
+##### 263#       发表于 2025-1-27 11:12
+
+看到那个龟壳就不想玩了 一想到要强制我用龟壳完成各种弹反 防御才能解决战斗  就想死了
+

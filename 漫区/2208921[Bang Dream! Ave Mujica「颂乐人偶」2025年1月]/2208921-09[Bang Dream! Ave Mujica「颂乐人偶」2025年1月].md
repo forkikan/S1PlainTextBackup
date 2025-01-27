@@ -14152,3 +14152,136 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 初华有超忆症，这是她能不断从记忆宫殿里调查过去的每一个记忆<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 初华真的是侦探位，人称小福尔摩斯
 
+
+*****
+
+####  帕林马哲理  
+##### 13014#       发表于 2025-1-27 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286918&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-1-27 04:02</a>
+这下初华纯良说彻底破产了吧，就PV里的几帧怎么看都不是单纯的傻白甜金毛大狗 ...</blockquote>
+看过mygo的，应该都不会信初华纯良说，毕竟天文馆装第一次见从灯套取情报的不就是初华么，有争议的是初华是病娇，导演还是颠佬。
+
+*****
+
+####  ads147147  
+##### 13015#       发表于 2025-1-27 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286781&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-27 10:46</a></blockquote>
+太软弱了，小祥，美味。
+
+基本确定前四集的目的就是把大祥老师的心理防线彻底击碎，最终一无所有的小祥应该是先和灯和解，再支棱起来。
+
+期待爱音表现了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 13016#       发表于 2025-1-27 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我承认我是小丑，武士道这个炒作狗又给我心思勾起来了。
+
+你最好真的能整点大活。
+
+*****
+
+####  江口夕  
+##### 13017#       发表于 2025-1-27 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286938&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-1-27 11:05</a>
+这种电视墙如果是和睦一样作画手法来的表现出初华的脑内剧场，那初华失忆假药是不是反过来了
+初华有超忆症 ...</blockquote>
+那个是广告图吧，是每个人都有的，一双眼睛然后放每个人的场景截图
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿兹尔  
+##### 13018#       发表于 2025-1-27 11:09
+
+初华藏这么大应该还有别的东西吧，真的只是馋小祥身子也太变态了
+
+
+*****
+
+####  拉普拉斯  
+##### 13019#       发表于 2025-1-27 11:10
+
+<img src="https://img.saraba1st.com/forum/202501/27/111024lg7y7ctztmjkgtzk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_43197764576805.jpg</strong> (164.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 11:10 上传
+
+这对吗
+
+<img src="https://img.saraba1st.com/forum/202501/27/111125rv6p5evvc0k163c5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_43911633431694.jpg</strong> (314.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 11:11 上传
+
+
+*****
+
+####  HereLink  
+##### 13020#       发表于 2025-1-27 11:14
+
+<img src="https://img.saraba1st.com/forum/202501/27/111439i4unw1ddf5nznn5l.jpg" referrerpolicy="no-referrer">
+
+<strong>-18155607351737947073248.jpg</strong> (90.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-27 11:14 上传
+
+*****
+
+####  哈曼的YY  
+##### 13021#       发表于 2025-1-27 11:14
+
+<blockquote>拉普拉斯 发表于 2025-1-27 11:10
+这对吗</blockquote>
+海铃:怎么回事啊一个个 好麻烦
+
+*****
+
+####  yone0000  
+##### 13022#       发表于 2025-1-27 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这还是少女乐队动画吗
+
+*****
+
+####  御幸一也  
+##### 13023#       发表于 2025-1-27 11:17
+
+[https://www.youtube.com/watch?v=QDZyWwjIrzs](https://www.youtube.com/watch?v=QDZyWwjIrzs)
+
+有影片了
+
+*****
+
+####  刑部姬真可爱  
+##### 13024#       发表于 2025-1-27 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286986&amp;ptid=2208921" target="_blank">拉普拉斯 发表于 2025-1-27 11:10</a>
+
+这对吗</blockquote>
+这里面的动作，我在想soyo是不是都表演过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 13025#       发表于 2025-1-27 11:18
+
+其实我一直在想一个事啊，母鸡卡这个动画真的能以普通少女乐队番、普通的邦多利系列作品来看待并进行推测吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
