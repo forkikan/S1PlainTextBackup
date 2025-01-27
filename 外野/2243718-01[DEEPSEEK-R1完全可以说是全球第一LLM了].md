@@ -5491,3 +5491,92 @@ api还没好啊
 技术报告还没传上来，宣传上看起来 ...</blockquote>
 从r1表现来看，这个是真的能画本子了吧
 
+
+*****
+
+####  王苍幻  
+##### 402#       发表于 2025-1-28 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292140&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-28 00:39</a>
+
+api还没好啊</blockquote>
+api已经好了，刚还安装插件来着
+
+*****
+
+####  Khellendros  
+##### 403#       发表于 2025-1-28 00:51
+
+幻方是绑架了月球人强迫劳动吗这么高产
+
+*****
+
+####  2017.05.04  
+##### 404#       发表于 2025-1-28 00:53
+
+<img src="https://img.saraba1st.com/forum/202501/28/005338merecccr2lal2e1n.png" referrerpolicy="no-referrer">
+
+<strong>01823793b86a0b1d80563a6d24b9e632.png</strong> (101.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:53 上传
+
+*****
+
+####  阿刚  
+##### 405#       发表于 2025-1-28 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292173&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-28 00:47</a>
+
+api已经好了，刚还安装插件来着</blockquote>
+不行啊，还是那个token预算不足的提示
+
+
+*****
+
+####  thermite  
+##### 406#       发表于 2025-1-28 00:54
+
+圣诞节要给美国人送礼
+
+春节也要给美国人送礼
+
+什么叫美国人不想要？
+
+不想要关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Magnificent_S  
+##### 407#       发表于 2025-1-28 00:54
+
+别的更高深的我不懂，
+
+拿来试验了一下日常商务工作中运用最多的场景
+
+小语种翻译，结果（句法结构等）跟chatGPT 惊人的相似，准确率稍微逊色一点点。
+
+一张EXCEL表格的图片（有格内换行/特殊符号）的，Chat直接回复无法提取图中文字；Claude读取错误，再给与提示后依旧无法修正；DeepSeek一开始犯了跟Claude同样的错误，在提示有格内换行的存在后，能得到十分近似正确的结果。
+
+已决定把DeepSeek列入每日工作AI使用清单
+
+讽刺的是，Chatpgt我是交了月费的。。。
+
+*****
+
+####  2017.05.04  
+##### 408#       发表于 2025-1-28 00:55
+
+据说有人给deepseek挂了500G流量
+
+*****
+
+####  RookieTnT  
+##### 409#       发表于 2025-1-28 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292136&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-28 00:36</a>
+
+32B要什么硬件呀??</blockquote>
+用量化后的最低24G把 
+

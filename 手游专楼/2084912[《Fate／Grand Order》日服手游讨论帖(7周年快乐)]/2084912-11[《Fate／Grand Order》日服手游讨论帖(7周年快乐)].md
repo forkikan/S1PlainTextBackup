@@ -125,3 +125,29 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">archer的轮换池毫无抽卡欲望，速速轮换c阶让我梭哈有珠
 
+
+*****
+
+####  岸浪白野  
+##### 16189#       发表于 2025-1-28 00:51
+
+ 本帖最后由 岸浪白野 于 2025-1-28 00:52 编辑 
+
+说实话有点丢人，但我真的是开服到现在才抽到弓闪，没想到能直接一发2宝
+
+<img src="https://img.saraba1st.com/forum/202501/28/004337upu4zspv4f0fkffj.png" referrerpolicy="no-referrer">
+
+<strong>P}J_)JAX5ZU)U17B~KFZ`~I.png</strong> (2.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/005005qlz0j8qlyi30lgwc.png" referrerpolicy="no-referrer">
+
+<strong>QE)NXONP~71_%T}%B{H}C8J.png</strong> (75.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:50 上传
+
