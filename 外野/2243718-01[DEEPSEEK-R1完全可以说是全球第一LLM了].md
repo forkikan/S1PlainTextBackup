@@ -3235,3 +3235,23 @@ deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上�
 你的咒语是那个更详细连贯的细节吗？还是跟我国内账号有关系</blockquote>
 应该和国内账号无关，我也是实名认证的国内账号。咒语发在下面了
 
+
+*****
+
+####  atomicink  
+##### 223#       发表于 2025-1-27 10:57
+
+ 本帖最后由 atomicink 于 2025-1-27 11:02 编辑 
+
+我去，发错楼
+
+*****
+
+####  zerona  
+##### 224#       发表于 2025-1-27 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286881&amp;ptid=2243718" target="_blank">atomicink 发表于 2025-1-27 10:57</a>
+
+写一个SCP项目：疯狂氪金手游痴</blockquote>
+游戏区的能回自己的分区吗？
+

@@ -14091,3 +14091,64 @@ Q娃20週年也是在這裡打的廣告，全系列Q娃同時變身的畫面確�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  江口夕  
+##### 13007#       发表于 2025-1-27 10:58
+
+搞不好会变成明面上4对1的长久战斗
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  哈曼的YY  
+##### 13008#       发表于 2025-1-27 10:59
+
+真没想到电视会是初华 当时有人分析电视出现在小黄瓜家地下室 而初华没来过这里
+
+难道没来过是盲点吗 初华两次都没来
+
+*****
+
+####  阿兹尔  
+##### 13009#       发表于 2025-1-27 11:00
+
+图透祥子在学校里都这样了，灯不会还像之前一样递便签吧，该主动出击了
+
+
+*****
+
+####  山ノ内花音  
+##### 13010#       发表于 2025-1-27 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286856&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-27 10:54</a>
+https://shunkosha.co.jp/column/ad-board/column-40637
+
+隨便google的</blockquote>
+有声音 新台词不少 太吵了听不清
+
+*****
+
+####  嵇翱u  
+##### 13011#       发表于 2025-1-27 11:01
+
+好好好，莫小姐不是真杂鱼，这下就看后面怎么解释黑刀之夜2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cauchua3  
+##### 13012#       发表于 2025-1-27 11:02
+
+这下初华纯良说彻底破产了吧，就PV里的几帧怎么看都不是单纯的傻白甜金毛大狗
+
+*****
+
+####  Raven314  
+##### 13013#       发表于 2025-1-27 11:05
+
+这种电视墙如果是和睦一样作画手法来的表现出初华的脑内剧场，那初华失忆假药是不是反过来了
+初华有超忆症，这是她能不断从记忆宫殿里调查过去的每一个记忆<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+初华真的是侦探位，人称小福尔摩斯
+
