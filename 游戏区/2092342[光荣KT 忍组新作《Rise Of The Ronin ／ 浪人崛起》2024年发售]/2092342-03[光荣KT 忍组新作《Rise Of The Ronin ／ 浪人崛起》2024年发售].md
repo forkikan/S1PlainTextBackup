@@ -279,3 +279,13 @@ steam买了，看看高清浪人<img src="https://static.saraba1st.com/image/smi
 
 我的感想是这游戏就爽就玩简单难度，不要折磨自己<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  isa2456  
+##### 3344#       发表于 2025-1-28 02:06
+
+我魂魄妖梦的幕末流浪记又能重开了，但我dlc真就被献祭了，不过pc版我可不想再全收集一遍<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

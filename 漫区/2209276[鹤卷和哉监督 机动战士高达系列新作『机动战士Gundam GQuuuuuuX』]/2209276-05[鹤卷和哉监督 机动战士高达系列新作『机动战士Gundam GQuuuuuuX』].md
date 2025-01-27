@@ -386,3 +386,14 @@ G=Gundam
 
 把GQuuuuuuX设定成9就是为了配合MSV里面只有文字设定的8号机吧
 
+
+*****
+
+####  wasssf  
+##### 5944#       发表于 2025-1-28 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290546&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-27 20:28</a>
+
+麻球泡澡是不是高达系列第一次出现？5ch说高达系列一直都是淋浴，泡澡是为了表达麻球家的地位 ...</blockquote>
+塞西莉泡澡
+

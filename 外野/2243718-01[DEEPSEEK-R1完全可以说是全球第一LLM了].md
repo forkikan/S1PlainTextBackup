@@ -5986,3 +5986,30 @@ v3不能瑟瑟
 不知道OCR怎么样，之前一直用Gemini1206很好用</blockquote>
 输入输出的分辨率都太低，不知道是不是模型规模很小的原因
 
+
+*****
+
+####  花生酥王  
+##### 436#       发表于 2025-1-28 01:59
+
+太强了，明天起床部署一下试试<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  real_zyf  
+##### 437#       发表于 2025-1-28 02:01
+
+<blockquote>hysjmr 发表于 2025-1-28 01:29
+借楼问一句，用api的话，怎么让r1像网页端一样联网搜索啊</blockquote>
+有个浏览器插件叫Page assist
+
+
+*****
+
+####  KevinGraham  
+##### 438#       发表于 2025-1-28 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292447&amp;ptid=2243718" target="_blank">OrianaThomson 发表于 2025-1-28 01:56</a>
+这楼也发个本地部署</blockquote>
+这种错的乱七八糟的就别转了吧，谁告诉他70b和671b硬盘够就行的，私货都懒得吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
