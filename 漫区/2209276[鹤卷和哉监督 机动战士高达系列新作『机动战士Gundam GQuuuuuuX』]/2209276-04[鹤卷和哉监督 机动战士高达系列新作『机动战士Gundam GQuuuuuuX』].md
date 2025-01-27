@@ -15783,3 +15783,29 @@ X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉の�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286677&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-27 10:33</a></blockquote>
 已经在期待新高达张嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 5880#       发表于 2025-1-27 12:45
+
+<img src="https://p.sda1.dev/21/1ff99d1f19c788e88e505f5c47440946/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 5881#       发表于 2025-1-27 12:52
+
+没太看懂这段话，意思是牙齿是山下不想画，但是被坚持加上去了吗？
+
+*****
+
+####  岸浪白野  
+##### 5882#       发表于 2025-1-27 12:52
+
+ 本帖最后由 岸浪白野 于 2025-1-27 12:54 编辑 
+
+看了下尊重哥，怎么评价这么好的还真成高达尊重我了
+<img src="https://p.sda1.dev/21/d1a8c11aefeb192d7e4014f03c2d6f75/image.jpg" referrerpolicy="no-referrer">
+

@@ -478,3 +478,20 @@ gemini不是说搞瑟瑟特别厉害吗，角色扮演方面？
 
 我之前还真老用gemini，用还是能用的，但是deepseekR1出来之后我就再也不想回去用gemini了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 51#       发表于 2025-1-27 12:47
+
+ 本帖最后由 泰坦失足 于 2025-1-27 12:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287307&amp;ptid=2244332" target="_blank">cube 发表于 2025-1-27 11:48</a>
+
+谷歌从AI技术的引领者混到现在这份上要蹭中国大模型公司的热度是怎么好意思的。
+
+当初波士顿动力卖身给谷歌 ...</blockquote>
+谷歌有个那个RT系列，今年一年没新进展了。就挺奇怪的，因为VLM这方面大家进步速度都相当快，却没反应在谷歌这个机器人上。也许还没到GPT 4和R1那个奇点，现在再怎么折腾也都是玩具级的。
+
+【谷歌 RT-2-X 通用型人工智能机器人】 [https://www.bilibili.com/video/BV14G41127Te/](https://www.bilibili.com/video/BV14G41127Te/)
+[https://deepmind.google/discover ... -advanced-robotics/](https://deepmind.google/discover/blog/shaping-the-future-of-advanced-robotics/)
+

@@ -14624,3 +14624,98 @@ wsd的Lucia在Discord说初华拿手机是在第X话（）
 
 海铃包回收淫笑的
 
+
+*****
+
+####  aptx8285144  
+##### 13061#       发表于 2025-1-27 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287758&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-27 12:44</a>
+
+我绷不住了，怎么还有这样的？大女主是喵梦是吧？</blockquote>
+其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都已经不是顶不住瞄梦了，<strong>而是近乎全面投降却又不好意思说，脸色苍白的都不敢直接看瞄梦，如果看过前半部分那个对前队友杀伐果决的大祥，真得很难想象是同一个人<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  ytttsuuuba  
+##### 13062#       发表于 2025-1-27 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287769&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-27 12:45</a>
+
+有人指出第一人称用的是我们</blockquote>
+听了几遍，用的第一人称应该就是喵梦自己“にゃむ”
+
+*****
+
+####  哈曼的YY  
+##### 13063#       发表于 2025-1-27 12:51
+
+<blockquote>ytttsuuuba 发表于 2025-1-27 12:50
+听了几遍，用的第一人称应该就是喵梦自己“にゃむ”</blockquote>
+草 什么小孩子撒娇
+
+*****
+
+####  江口夕  
+##### 13064#       发表于 2025-1-27 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">你知道的，大猫大祥组合我一直很看好，至于灯，我祝她幸福
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  烂片雷达  
+##### 13065#       发表于 2025-1-27 12:52
+
+现在mujica就像一个光怪陆离的梦一样，已经分不出哪些是真哪些是假了
+<img src="https://p.sda1.dev/21/0b204e39d293fba7d94de0cfdd8b941c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c697fd43fe57091eba6089284d7e5975/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13066#       发表于 2025-1-27 12:52
+
+杀伐果断还行，不知道是谁听不得春日影的，是哪个平行宇宙的人物吗？
+
+祥子是变不成某些人心目中的大女主的，还是趁早死了这一条心吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 13067#       发表于 2025-1-27 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287794&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-27 12:48</a>
+
+其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，大翔老师是方向pua，先加装被pua了，然后让喵梦接受了以后，就直接强硬了起来是吧？我大翔老师真是下的一盘大棋啊
+
+*****
+
+####  aptx8285144  
+##### 13068#       发表于 2025-1-27 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270281&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-24 20:44</a>
+
+应该后面会改成流行金属风格吧。。现在的风格确实偏黑，不过ed其实还好。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+ed这种风格也很少是少女们组团做乐队的，更像名字叫BLACK CAT或者是东京默示录（
+
+
+*****
+
+####  aptx8285144  
+##### 13069#       发表于 2025-1-27 12:55
+
+ 本帖最后由 aptx8285144 于 2025-1-27 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287825&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-27 12:52</a>
+
+杀伐果断还行，不知道是谁听不得春日影的，是哪个平行宇宙的人物吗？
+
+祥子是变不成某些人心目中的大女主的 ...</blockquote>
+春日影那段也不是直接和前队友对峙呀
+
