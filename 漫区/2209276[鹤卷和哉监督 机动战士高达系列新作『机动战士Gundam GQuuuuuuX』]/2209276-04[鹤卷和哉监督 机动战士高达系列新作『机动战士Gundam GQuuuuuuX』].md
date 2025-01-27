@@ -15929,3 +15929,23 @@ GQX鸭那真是从坐上高达起就一路飒爽，再没有任何人能压制�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Steel.Haze  
+##### 5895#       发表于 2025-1-27 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287828&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-27 12:52</a>
+
+没太看懂这段话，意思是牙齿是山下不想画，但是被坚持加上去了吗？</blockquote>
+山下想画的高达一点，但是被制作方坚持，你画的不够山下找你就没意义，加上牙齿....（和各种其标志性设定元素）
+
+让人觉得像EVA就是官方要得设定效果。
+
+*****
+
+####  卑弥呼yamato  
+##### 5896#       发表于 2025-1-27 15:46
+
+不管怎么说，制作规格上限是高的，看到好多老害原画
+
