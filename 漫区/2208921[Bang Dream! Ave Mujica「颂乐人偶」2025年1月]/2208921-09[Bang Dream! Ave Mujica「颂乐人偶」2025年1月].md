@@ -15758,3 +15758,13 @@ yysy桂柳话属于西南官话，更像云贵川
 
 原创就是要炒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 13160#       发表于 2025-1-27 18:38
+
+[https://www.bilibili.com/bangumi/media/md25038104](https://www.bilibili.com/bangumi/media/md25038104)
+
+草
+
