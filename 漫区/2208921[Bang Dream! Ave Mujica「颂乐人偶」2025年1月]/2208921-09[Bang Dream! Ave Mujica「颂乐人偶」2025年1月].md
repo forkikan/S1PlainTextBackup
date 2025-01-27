@@ -13601,3 +13601,14 @@ MyGO之后一年半那么多假药，没人 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  HGCG+  
+##### 12964#       发表于 2025-1-27 09:28
+
+pixiv上的新广告
+<img src="https://p.sda1.dev/21/60eaf89029b6258491f662dc242bb138/img-9657fdc2gy1hxz1r0cewvg20go0dwdq7.gif" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

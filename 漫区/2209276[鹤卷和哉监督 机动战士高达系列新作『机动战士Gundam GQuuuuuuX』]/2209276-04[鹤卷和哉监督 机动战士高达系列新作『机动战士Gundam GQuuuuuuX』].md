@@ -15701,3 +15701,22 @@ X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉の�
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  虛無迴廊  
+##### 5872#       发表于 2025-1-27 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284501&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-26 22:38</a>
+凭空生成肉体也太搞了，感觉概率是最低的。
+
+我奶是其他平行宇宙的从小生活在研究所的试管新人类，阿尔法 ...</blockquote>
+明白了，牢修是fatima（不是
+
+*****
+
+####  纪寞  
+##### 5873#       发表于 2025-1-27 09:25
+
+修司如果坐实平行宇宙人，这会成为他的免死金牌，最后肯定让他穿回去，虽然大概率会是他单方面的告别，因为某些原因而“不得不回去”。但这对于gqx宇宙他和死了也没区别了
+
