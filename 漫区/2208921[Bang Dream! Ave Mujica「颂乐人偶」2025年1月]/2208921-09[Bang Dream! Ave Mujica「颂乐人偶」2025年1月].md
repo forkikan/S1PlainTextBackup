@@ -14536,3 +14536,47 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 有喵梦赖上祥子的台词
 “你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？”
 
+
+*****
+
+####  yaneis  
+##### 13052#       发表于 2025-1-27 12:29
+
+<blockquote>IWS2000 发表于 2025-1-27 12:27
+有喵梦赖上祥子的台词
+
+“你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？” ...</blockquote>
+这无敌了啊
+
+*****
+
+####  MASKA-1  
+##### 13053#       发表于 2025-1-27 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287597&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-27 12:27</a>
+有喵梦赖上祥子的台词
+“你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？” ...</blockquote>
+人设回撤啊，喵来解散，喵来拧绳。
+
+*****
+
+####  yaneis  
+##### 13054#       发表于 2025-1-27 12:30
+
+我看这喵老师才是pua高手啊
+
+*****
+
+####  烂片雷达  
+##### 13055#       发表于 2025-1-27 12:31
+
+原来喵梦在咖啡馆初见祥子就芳心暗许了，后面问祥子为什么给自己取名为爱也是试探祥子，没想到祥子是个始乱终弃不负责任的渣女<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嵇翱u  
+##### 13056#       发表于 2025-1-27 12:34
+
+刚好过年，这不就是春节十二响吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

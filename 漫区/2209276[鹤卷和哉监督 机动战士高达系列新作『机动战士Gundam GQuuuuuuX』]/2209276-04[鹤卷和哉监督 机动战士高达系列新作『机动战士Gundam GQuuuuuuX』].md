@@ -15764,3 +15764,22 @@ X 上的 理尽@C105 29日 シ-51a：“緑のおじさんとコモリ少尉の�
 破十五亿了，能梦个最终票房三十五亿吗</blockquote>
 有难度，得看后续有没有新的特典商法
 
+
+*****
+
+####  王留美  
+##### 5878#       发表于 2025-1-27 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286213&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-1-27 09:31</a>
+ 破十五亿了，能梦个最终票房三十五亿吗</blockquote>
+先目指30亿吧
+20亿肯定没问题了，看看多久过25亿
+
+*****
+
+####  jojonathan  
+##### 5879#       发表于 2025-1-27 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286677&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-27 10:33</a></blockquote>
+已经在期待新高达张嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

@@ -470,3 +470,11 @@ gemini不是说搞瑟瑟特别厉害吗，角色扮演方面？
 
 硬要说的话，对比24年初，现在Google确实有点知耻而后勇的意思
 
+
+*****
+
+####  观者熊  
+##### 50#       发表于 2025-1-27 12:29
+
+我之前还真老用gemini，用还是能用的，但是deepseekR1出来之后我就再也不想回去用gemini了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
