@@ -6150,3 +6150,33 @@ v3不能瑟瑟
 请问怎么删掉这个32B的内容在重新下。</blockquote>
 问R1哈哈哈哈，我今天也忘记了，然后问的r1
 
+
+*****
+
+####  yvev  
+##### 451#       发表于 2025-1-28 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292447&amp;ptid=2243718" target="_blank">OrianaThomson 发表于 2025-1-28 01:56</a>
+这楼也发个本地部署</blockquote>
+老黄知道自己的40系能跑671b吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓岛千百合  
+##### 452#       发表于 2025-1-28 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292591&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 02:49</a>
+
+问R1哈哈哈哈，我今天也忘记了，然后问的r1</blockquote>
+看了一下，听说32B以下模型效果都不太理想...慢就慢吧，请问下，这玩意如果不使用对电脑性能没啥影响吧
+
+*****
+
+####  moeblack  
+##### 453#         楼主| 发表于 2025-1-28 03:03
+
+<blockquote>仓岛千百合 发表于 2025-1-28 03:02
+看了一下，听说32B以下模型效果都不太理想...慢就慢吧，请问下，这玩意如果不使用对电脑性能没啥影响吧 ...</blockquote>
+我的建议是直接用官方的api，官方api可以SESE的
+
