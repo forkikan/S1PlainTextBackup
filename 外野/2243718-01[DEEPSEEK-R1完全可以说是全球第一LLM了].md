@@ -3352,3 +3352,40 @@ API接口是崩了吗，为什么我的一直在转圈
 部署到本地无法使用联网搜索，可惜了点</blockquote>
 可以把网页逆向给本地用 就能搜索了
 
+
+*****
+
+####  bwsusaga  
+##### 234#       发表于 2025-1-27 14:48
+
+用酒馆出NSFW内容时，R1会越来越嗨，
+
+但如果中间突然插一句不相干的，比如“你写的很棒”之类的，它就突然冷静了，开始告诉我不要再越界写不合规范的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 235#       发表于 2025-1-27 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288550&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-27 14:40</a>
+
+可以把网页逆向给本地用 就能搜索了</blockquote>
+你这个办法能让r1 也接入网络搜索吗？
+
+*****
+
+####  SkavenYesYes  
+##### 236#       发表于 2025-1-27 14:50
+
+还会颜文字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1的这些表情啥时候也能用啊<img src="https://p.sda1.dev/21/26997af4ab19ba705366525461f91a8a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wildarm  
+##### 237#       发表于 2025-1-27 14:54
+
+简单问今年春节三薪有多少天，百度AI回答4天，这货回答3天（除夕没算上）
+
