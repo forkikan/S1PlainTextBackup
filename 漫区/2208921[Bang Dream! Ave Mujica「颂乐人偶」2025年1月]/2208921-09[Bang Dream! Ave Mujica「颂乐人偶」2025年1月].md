@@ -15883,3 +15883,32 @@ yysy桂柳话属于西南官话，更像云贵川
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  MASKA-1  
+##### 13171#       发表于 2025-1-27 23:35
+
+灯是并不想飞，却被祥救了。估计祥也不是真飞。
+
+*****
+
+####  影伴光生  
+##### 13172#       发表于 2025-1-27 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291729&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-27 23:27</a>
+大祥老师的言行基本全是回旋镖，飞祥环节我看是必有的。这下灯也可以摸祥的灯了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的先不提，创可贴管够啊（便利贴顺便把心灵创伤也补一补）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  阿兹尔  
+##### 13173#       发表于 2025-1-27 23:42
+
+真跪了也太乐了
+

@@ -5070,3 +5070,41 @@ Jan 27, 2025 - 23:15 CST
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那玩意注册起来好麻烦啊
 
+
+*****
+
+####  kerorara  
+##### 369#       发表于 2025-1-27 23:39
+
+R1好卡
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  gammatau  
+##### 370#       发表于 2025-1-27 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291109&amp;ptid=2243718" target="_blank">kenqqex 发表于 2025-1-27 22:03</a>
+
+CyberAgent宣布开始使用DeepSeek
+
+CyberAgent旗下子公司包括 Cygames、AbemaTV、NITRO PLUS等 ​​​</blockquote>
+喷了，他们就不能搞个70B的吗
+
+*****
+
+####  阿刚  
+##### 371#       发表于 2025-1-27 23:42
+
+Not enough free tokens for mandatory prompts. Raise your token Limit or disable custom prompts.这个提示是说余额不足吗？我在api那个地方冲了钱啊，而且官网也没说有限制啊
+
+*****
+
+####  requiem116  
+##### 372#       发表于 2025-1-27 23:44
+
+现在本地部署在4090上用哪个好？
+
+huggingface上的uncensored效果咋样
+
