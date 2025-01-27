@@ -3928,3 +3928,16 @@ deepseek可能现在还不赚钱，
 这几天好像在云上飞了 ...</blockquote>
 哥们，你是本地部署的还是用的线上的？
 
+
+*****
+
+####  王苍幻  
+##### 282#       发表于 2025-1-27 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289645&amp;ptid=2243718" target="_blank">千本blur 发表于 2025-1-27 18:08</a>
+
+deepseek可能现在还不赚钱，
+
+但是幻方量化开几个空单现在应该已经赚麻了</blockquote>
+他绝对是计划好的，自己作量化的。不可能想不到这个
+

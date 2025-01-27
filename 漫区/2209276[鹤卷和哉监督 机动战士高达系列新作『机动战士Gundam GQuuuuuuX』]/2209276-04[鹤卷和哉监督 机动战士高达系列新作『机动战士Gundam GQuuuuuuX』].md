@@ -16134,3 +16134,60 @@ fanart数量的话，夏利亚仅次于麻球吧，比修司喵安以及各种�
 
 2025-1-27 18:14 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 5915#       发表于 2025-1-27 18:18
+
+重开了一把SS版野望，夏利亚和NT机关的弗兰纳罕博士是鸭子的左膀右臂
+
+<img src="https://img.saraba1st.com/forum/202501/27/180057jfts64u9cef6se94.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (89.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:00 上传
+
+不知道博士会不会在新高达里出现，按说阿尔法和奥米伽塞克谬技术，他应该都有参与。
+
+拉拉
+
+<img src="https://img.saraba1st.com/forum/202501/27/180057h9nzhm5ssshmhyoi.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (51.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:00 上传
+
+类似小说版设定，鸭子头上没有和骡子拼剑的疤。
+
+<img src="https://img.saraba1st.com/forum/202501/27/180057w4xqljujgsjg4uyz.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (83.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:00 上传
+
+旧时代的夏利亚
+
+<img src="https://img.saraba1st.com/forum/202501/27/181408vaumnm3qpl3qhvcz.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (54.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:14 上传
+
+*****
+
+####  Toby_dak  
+##### 5916#       发表于 2025-1-27 19:08
+
+博士有出场，在马沙出击所罗门之前，把NT研究报告给马沙看了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
