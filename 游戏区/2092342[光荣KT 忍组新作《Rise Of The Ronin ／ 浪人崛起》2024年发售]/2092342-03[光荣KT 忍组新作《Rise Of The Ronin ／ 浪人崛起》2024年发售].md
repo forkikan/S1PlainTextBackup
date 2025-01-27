@@ -73,3 +73,18 @@
 
 之前仁王1和2上pc也是248吧，这定价挺正常的
 
+
+*****
+
+####  葵  
+##### 3323#       发表于 2025-1-27 21:38
+
+居然就这么突然的上PC了，看来是完全弃子了，得亏我还白金了这游戏，希望安田下一作争气一点吧，再扑就真没退路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 3324#       发表于 2025-1-27 21:40
+
+定价取决于销量和开发成本，说明光荣内部不看好真三的销量<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

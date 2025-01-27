@@ -4332,3 +4332,46 @@ DeepSeek-R1-Distill-Qwen-32B
 
 DeepSeek-R1-Distill-Llama-70B
 
+
+*****
+
+####  仓岛千百合  
+##### 316#       发表于 2025-1-27 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290269&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 19:44</a>
+
+线上的，就是我先发一部分设定给他，然后根据他反馈的结果不断给他加注意事项 ...</blockquote>
+求线上写小黄文的方法<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三度音  
+##### 317#       发表于 2025-1-27 21:45
+
+发生什么了，我的沉浸式翻译用的DS突然不能翻译了
+
+*****
+
+####  对羟基笨甲酸  
+##### 318#       发表于 2025-1-27 21:46
+
+线上的挂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 319#       发表于 2025-1-27 21:48
+
+<blockquote>黄泉川此方 发表于 2025-1-27 21:29
+thermite 发表于 2025-1-27 21:23
+
+是量化版本吗？ollama直接下的，应该是吧
+
+DeepSeek-R1-Distill-Qwen-1.5B ...</blockquote>
+这是蒸馏不是量化吧
+
+话说qwen2 7B呢？这个应该才是大多数个人电脑的极限估计
+
+虽然说应该翻译还是直接用网页端就够了吧应该
+
