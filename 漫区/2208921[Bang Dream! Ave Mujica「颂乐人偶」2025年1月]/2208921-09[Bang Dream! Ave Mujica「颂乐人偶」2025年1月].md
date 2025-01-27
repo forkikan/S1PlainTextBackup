@@ -13724,3 +13724,19 @@ QQ图片20250127094332.jpg
 只要不是那种正片截下来的图就行</blockquote>
 祥子这是跪下了？
 
+
+*****
+
+####  SakuraのOrigami  
+##### 12971#       发表于 2025-1-27 09:56
+
+初华面前是mana吗（？）
+<img src="https://p.sda1.dev/21/b2e8682d1819d9cc779a0a39b8913381/IMG_90EAA1B31D622F477F0C8C7C46F680F6.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 12972#       发表于 2025-1-27 09:56
+
+这是白祥下跪 ob上号了吗
+
