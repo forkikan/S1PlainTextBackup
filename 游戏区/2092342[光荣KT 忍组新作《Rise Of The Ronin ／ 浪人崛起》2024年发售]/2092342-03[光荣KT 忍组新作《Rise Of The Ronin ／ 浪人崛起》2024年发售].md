@@ -260,3 +260,14 @@ steam买了，看看高清浪人<img src="https://static.saraba1st.com/image/smi
 
 我只记得这游戏有个牲口会在修炼场玩西洋居合，总的来说这游戏我觉得比卧龙那个抠搜的系统还要好玩一些，但是远不如仁王2，甚至不如日墙弹刀强行喂屎的仁王1
 
+
+*****
+
+####  nage560  
+##### 3342#       发表于 2025-1-28 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292196&amp;ptid=2092342" target="_blank">铁甲钢弹 发表于 2025-1-28 00:51</a>
+
+二周目就打了一点，隔太久都有点忘了，aibo不是用的无明开新流吗，有什么其他独有流派吗？我之前是指望DL ...</blockquote>
+最后结局就是暗示DLC是aibo和龙马在美国的剧情，如果有DLC aibo应该就有新流派和新武器，但现在应该是无了。
+
