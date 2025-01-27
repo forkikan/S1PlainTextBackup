@@ -625,3 +625,16 @@ flash thinking在这里[https://aistudio.google.com/prom ... -thinking-exp-01-21
 
 字节的豆包、扣子(cn/com)、火山引擎也同样抽象，同一个东西，不同地方逻辑使用计费完全不同
 
+
+*****
+
+####  mimighost  
+##### 64#       发表于 2025-1-27 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289557&amp;ptid=2244332" target="_blank">某浩 发表于 2025-1-27 17:55</a>
+
+其实就是大公司病，各个团队都投进去，结果互相打架
+
+字节的豆包、扣子(cn/com)、火山引擎也同样抽象，同 ...</blockquote>
+嗯，我也觉得背后是两个团队，互相不对付
+

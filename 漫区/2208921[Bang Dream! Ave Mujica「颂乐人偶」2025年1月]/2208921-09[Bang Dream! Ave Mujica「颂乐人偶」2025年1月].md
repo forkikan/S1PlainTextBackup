@@ -15712,3 +15712,29 @@ mygo里观众基本是上帝视角，mujica里不是
 
 现在这剧情水平不上不下，还不如搞点鸡和老团互动有意思
 
+
+*****
+
+####  影伴光生  
+##### 13156#       发表于 2025-1-27 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289475&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-27 17:44</a>
+第四集姐们几个刚在巡演场地撕完，下一集接着跑去人家ring撕是吧不怕被立希全轰出去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo再不参团就没有优势了——立希来了全敲了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 13157#       发表于 2025-1-27 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289569&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-27 17:57</a>
+mygo再不参团就没有优势了——立希来了全敲了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+看看mygo团live能控住几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

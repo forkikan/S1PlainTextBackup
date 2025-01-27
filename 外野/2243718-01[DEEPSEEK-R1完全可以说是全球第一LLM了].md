@@ -3757,3 +3757,56 @@ api加审查了，梦结束了，得研究破限了<img src="https://static.sara
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  lyt777  
+##### 268#       发表于 2025-1-27 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289415&amp;ptid=2243718" target="_blank">断片集 发表于 2025-1-27 17:34</a>
+
+api加审查了，梦结束了，得研究破限了</blockquote>
+今天API持续绝赞崩溃中，下午好的时候我还写了一会儿，你是哪儿来的结论？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 269#       发表于 2025-1-27 18:00
+
+不懂就问，网页端和调用api的有什么区别，api会更智能一点吗
+
+*****
+
+####  ryanghj  
+##### 270#       发表于 2025-1-27 18:00
+
+<img src="https://img.saraba1st.com/forum/202501/27/180034y8ab6mzu2826s6f9.png" referrerpolicy="no-referrer">
+
+<strong>fbf37fbd3258949160821fc48d931806.png</strong> (91.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 18:00 上传
+
+28国登顶
+
+*****
+
+####  静滞场  
+##### 271#       发表于 2025-1-27 18:01
+
+<blockquote>阿刚 发表于 2025-1-27 17:11
+怎么写的啊，我让他出小段子都得拼手速，而且速度快的一批，马上就撤回了 ...</blockquote>
+因为我输进去乱七八糟的东西很多，不全是ghs的，只是最后加了几句强调让它生成h的内容，然后一次性出几千字，它写完全部的会过个四五秒再撤回，够我把结果复制下来慢慢看了
+
+*****
+
+####  qz66618  
+##### 272#       发表于 2025-1-27 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289590&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-1-27 18:00</a>
+不懂就问，网页端和调用api的有什么区别，api会更智能一点吗</blockquote>
+API能在vscode插件里面用，更方便，虽然今天下午就没能用成几次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
