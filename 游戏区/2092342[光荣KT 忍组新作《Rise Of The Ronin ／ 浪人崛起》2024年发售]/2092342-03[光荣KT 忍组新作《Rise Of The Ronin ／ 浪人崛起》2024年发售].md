@@ -88,3 +88,28 @@
 
 定价取决于销量和开发成本，说明光荣内部不看好真三的销量<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 3325#       发表于 2025-1-27 21:46
+
+浪人崛起对KT最大的意义大概就是学会做罐头开放世界了，虽然学会做这个可能算吃屎也赶不上热乎的，但好歹比358强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  手铐君  
+##### 3326#       发表于 2025-1-27 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gigax  
+##### 3327#       发表于 2025-1-27 21:53
+
+首发新作349移植冷饭249一直是光荣祖宗之法啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过忍者组也没在做浪人崛起dlc，忍龙4明显也是白金出力比较多忍者组这边派的导演都是平山，忍龙2黑纯ue5练手，那忍者组这两年主力到底在做什么啊，不会真是仁王3吧<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+

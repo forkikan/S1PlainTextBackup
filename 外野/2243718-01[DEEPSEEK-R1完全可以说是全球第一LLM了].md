@@ -4375,3 +4375,46 @@ DeepSeek-R1-Distill-Qwen-1.5B ...</blockquote>
 
 虽然说应该翻译还是直接用网页端就够了吧应该
 
+
+*****
+
+####  lilisipis  
+##### 320#       发表于 2025-1-27 21:49
+
+APP是挂了吗，完全不能用了
+
+
+*****
+
+####  fallout  
+##### 321#       发表于 2025-1-27 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我中午开始就提示人多用不了，现在还有点好奇会不会有人恶意喂垃圾内容搞坏ai啊
+
+*****
+
+####  二岩枫  
+##### 322#       发表于 2025-1-27 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经分不清到底是被ddos了，还是说用户量真的太大了
+
+*****
+
+####  黄泉川此方  
+##### 323#       发表于 2025-1-27 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291014&amp;ptid=2243718" target="_blank">neptunehs 发表于 2025-1-27 21:48</a>
+
+这是蒸馏不是量化吧
+
+话说qwen2 7B呢？这个应该才是大多数个人电脑的极限估计</blockquote>
+补了个DeepSeek-R1-Distill-Qwen-7B
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是网页崩了没得玩了才想起来搞本地
+
+*****
+
+####  reficul  
+##### 324#       发表于 2025-1-27 21:56
+
+急急急啊怎么就不能用了
+
