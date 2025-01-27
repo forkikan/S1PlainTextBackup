@@ -5853,3 +5853,52 @@ ai有几段写的巨好，感觉已经走出来了。
 
 本地部署怎么破防呀
 
+
+*****
+
+####  断片集  
+##### 425#       发表于 2025-1-28 01:39
+
+发一下Janus-Pro-7B给的例子吧
+
+图片理解：
+
+<img src="https://img.saraba1st.com/forum/202501/28/013853edit4wiqi1sztsih.png" referrerpolicy="no-referrer">
+
+<strong>预览 2025-01-28 01.32.54.png</strong> (611.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 01:38 上传
+
+图片生成：
+
+<img src="https://img.saraba1st.com/forum/202501/28/013912h1i1cnfod9femtpo.png" referrerpolicy="no-referrer">
+
+<strong>361edaffdaeed4c2f0ccb91a67eb7513.png</strong> (211.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 01:39 上传
+
+
+*****
+
+####  moeblack  
+##### 426#         楼主| 发表于 2025-1-28 01:44
+
+<blockquote>断片集 发表于 2025-1-28 01:39
+发一下Janus-Pro-7B给的例子吧
+
+图片理解：
+
+</blockquote>
+不知道OCR怎么样，之前一直用Gemini1206很好用
+
+*****
+
+####  XSH97  
+##### 427#       发表于 2025-1-28 01:46
+
+现在api有人用的了吗？官网状态显示正常但使用有问题。
+
