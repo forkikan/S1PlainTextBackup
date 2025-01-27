@@ -766,3 +766,15 @@ SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘</blo
 
 序章休息室的对话看得我头疼，小味儿挠一下就上来了
 
+
+*****
+
+####  仓岛千百合  
+##### 7519#       发表于 2025-1-27 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286828&amp;ptid=2160194" target="_blank">Tehebe 发表于 2025-1-27 10:51</a>
+92小时通关，感觉最后2小时是这几年轨迹里最优秀的两个小时了，果然人类的赞歌就是勇气的赞歌
+
+—— 来自 O ...</blockquote>
+所以这部我最喜欢的角色是少校，第二喜欢的是学妹。
+

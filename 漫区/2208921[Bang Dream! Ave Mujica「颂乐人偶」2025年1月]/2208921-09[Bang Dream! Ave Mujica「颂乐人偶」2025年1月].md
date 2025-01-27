@@ -15356,3 +15356,11 @@ mujica的剧情则是重拿轻放，有种怎么这都行，也有节奏、代�
 mana其实有强硬的一面，比如初华不想吃甜甜圈还是要帮她拿，但是还是因为关心人，打人还是算了
 <img src="https://p.sda1.dev/21/d3f07db15a4ded174352273eefa5eadb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 13121#       发表于 2025-1-27 15:32
+
+mana是mujica真正第六人
+

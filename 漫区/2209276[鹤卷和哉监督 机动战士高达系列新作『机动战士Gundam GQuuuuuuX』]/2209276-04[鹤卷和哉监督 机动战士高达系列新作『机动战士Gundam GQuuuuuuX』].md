@@ -15902,3 +15902,30 @@ GQX鸭那真是从坐上高达起就一路飒爽，再没有任何人能压制�
 
 最后肯定是要把鸭子送回来的，但是他一回来发现阿姆罗和妹妹都比自己年龄还大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5893#       发表于 2025-1-27 15:28
+
+<img src="https://img.saraba1st.com/forum/202501/27/152847sicjjeiqncqahhjl.jpg" referrerpolicy="no-referrer">
+
+<strong>20250127_152759.jpg</strong> (354.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-27 15:28 上传
+
+[https://x.com/6t24413/status/1801373989417230405?s=19](https://x.com/6t24413/status/1801373989417230405?s=19)
+
+*****
+
+####  oi99o  
+##### 5894#       发表于 2025-1-27 15:30
+
+ 本帖最后由 oi99o 于 2025-1-27 15:32 编辑 
+<blockquote>今週の動員ランキングは、『機動戦士Gundam GQuuuuuuX -Beginning-』（東宝/バンダイナムコフィルムワークス）が、週末3日間で動員30万6000人、興収5億2800万円をあげ、2週連続で1位となった。累計成績は動員85万人、興収14億円を突破している。</blockquote>[兴行通信](https://bbs.saraba1st.com/2b/ https://www.kogyotsushin.com/archives/topics/t8/202501/27153050.php)怎么才报14亿
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
