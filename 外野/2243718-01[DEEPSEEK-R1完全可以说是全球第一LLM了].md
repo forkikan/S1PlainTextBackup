@@ -5580,3 +5580,36 @@ api已经好了，刚还安装插件来着</blockquote>
 32B要什么硬件呀??</blockquote>
 用量化后的最低24G把 
 
+
+*****
+
+####  王苍幻  
+##### 410#       发表于 2025-1-28 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292206&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 00:54</a>
+
+不行啊，还是那个token预算不足的提示</blockquote>
+你那是要充值吧？？
+
+*****
+
+####  阿刚  
+##### 411#       发表于 2025-1-28 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292225&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-28 00:59</a>
+
+你那是要充值吧？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">冲了三百了啊，他也没别的地方开会员了啊
+
+*****
+
+####  自闭傻吊小号  
+##### 412#       发表于 2025-1-28 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292239&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 01:01</a>
+冲了三百了啊，他也没别的地方开会员了啊</blockquote>
+https://status.deepseek.com/
+现在 api 应该还有问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

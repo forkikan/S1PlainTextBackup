@@ -151,3 +151,14 @@
 
 2025-1-28 00:50 上传
 
+
+*****
+
+####  qixinno2  
+##### 16190#       发表于 2025-1-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292194&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-1-28 00:51</a>
+
+说实话有点丢人，但我真的是开服到现在才抽到弓闪，没想到能一发2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

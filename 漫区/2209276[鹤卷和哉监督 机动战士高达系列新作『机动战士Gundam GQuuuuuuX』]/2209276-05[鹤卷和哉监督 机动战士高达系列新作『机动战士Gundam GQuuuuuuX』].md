@@ -378,3 +378,11 @@ G=Gundam
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AkaiSuisei  
+##### 5943#       发表于 2025-1-28 01:07
+
+把GQuuuuuuX设定成9就是为了配合MSV里面只有文字设定的8号机吧
+
