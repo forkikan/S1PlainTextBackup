@@ -147,3 +147,14 @@ CBA＋1<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" ref
 
 一秒结束cba+1
 
+
+*****
+
+####  khxooo  
+##### 46984#       发表于 2025-1-27 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289372&amp;ptid=1712412" target="_blank">sandro 发表于 2025-1-27 17:25</a>
+
+阿比二宝了，有用不</blockquote>
+阿比肯定有用啊，100特攻50自充，每次宝具提升都是提升巨大的。
+
