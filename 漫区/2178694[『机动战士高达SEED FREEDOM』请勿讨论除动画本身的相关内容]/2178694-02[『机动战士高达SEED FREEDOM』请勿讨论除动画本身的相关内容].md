@@ -29,3 +29,19 @@
 露娜把飞鸟当马骑，然后飞鸟用这个愤怒把黑骑士给宰了 ...</blockquote>
 除了骑还被循环扇脸，难道是新兵时期的经历么
 
+
+*****
+
+####  死难者23er  
+##### 2027#       发表于 2025-1-27 17:43
+
+黄毛声优的这段台词有意思，高达seed世界观下，黄毛复活的可能性也不是没有，所以高达seed的世界观有死人可以复活的设定
+
+<img src="https://img.saraba1st.com/forum/202501/27/174311nad06dadglanlada.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3846.jpeg</strong> (205.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 17:43 上传
+

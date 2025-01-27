@@ -15580,3 +15580,70 @@ mygo里观众基本是上帝视角，mujica里不是
 
 武士道开始打窝了 mujica该不会是没活了<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer"> 一般来讲没活了才会透透透钓鱼吧
 
+
+*****
+
+####  operatbig  
+##### 13143#       发表于 2025-1-27 17:36
+
+就目前祥子那堆回旋镖，编剧明显不喜欢祥子干的那堆事和说的那堆话，后面大概率要跑去跟灯她们说对不起。
+
+*****
+
+####  huxiaopao163  
+##### 13144#       发表于 2025-1-27 17:37
+
+ 本帖最后由 huxiaopao163 于 2025-1-27 17:39 编辑 
+
+看了一下官方放的CM视频啊，一开始是前四集的语音，然后到了那个“亚美爹、亚美爹、亚美爹”（mortis声线），接着小睦/mortis砸书打破镜子作为分界点，之后所有人的画面都开始画框掉落，墙面倒塌，大家开始露出狰狞的面目。
+
+所以小睦/mortis应该不只是砸了自己的镜子，也是事实上砸了所有人的镜子，正好对应OP里镜子破碎众人开始颜艺
+
+所以我觉得现在这个解散风波，应该不是轻拿轻放的，而是一个关键的节点
+
+*****
+
+####  影伴光生  
+##### 13145#       发表于 2025-1-27 17:39
+
+预告骗有点太多了，以至于我觉着这次宣传CM信息量不少，但没准只有一集的量
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 13146#       发表于 2025-1-27 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以莫小姐真是破防杂鱼雌小鬼吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 13147#       发表于 2025-1-27 17:44
+
+第五集能看到爱音的活跃吗，给灯和🐘牵线和解。毕竟都添加到人物词条了
+
+*****
+
+####  山ノ内花音  
+##### 13148#       发表于 2025-1-27 17:44
+
+我现在觉得其实就算墨小姐是睦演出来的 其实也没什么 毕竟压抑了那么多年 出来搞搞事又怎么了
+
+*****
+
+####  swessia  
+##### 13149#       发表于 2025-1-27 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289445&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-27 17:39</a>
+预告骗有点太多了，以至于我觉着这次宣传CM信息量不少，但没准只有一集的量
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+第四集姐们几个刚在巡演场地撕完，下一集接着跑去人家ring撕是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不怕被立希全轰出去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

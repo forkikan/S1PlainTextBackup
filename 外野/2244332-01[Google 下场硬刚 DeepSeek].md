@@ -581,3 +581,14 @@ flash thinking在这里[https://aistudio.google.com/prom ... -thinking-exp-01-21
 谷歌有个自己的gemini的网站：[https://gemini.google.com/app](https://gemini.google.com/app)</blockquote>
 同样抽象的不少，通义千问app/网页难用无比，混元app难用，llama不提供量化也不手把手教，导致那个llama 3.2 90b 多模态出来后没多少人搞明白怎么部署量化版。所以我很长时间都更喜欢Qwen，手把手教你部署到各个平台，还提供官方量化版本和各种对比指标. 告诉你量化后有多少性能损失，预期的GPU和生成速度提升
 
+
+*****
+
+####  万恶淫猥手  
+##### 60#         楼主| 发表于 2025-1-27 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289381&amp;ptid=2244332" target="_blank">泰坦失足 发表于 2025-1-27 17:27</a>
+
+同样抽象的不少，通义千问app/网页难用无比，混元app难用，llama不提供量化也不手把手教，导致那个llama 3 ...</blockquote>
+但是不论 SGLang 还是 VLLM 都有教程吧
+

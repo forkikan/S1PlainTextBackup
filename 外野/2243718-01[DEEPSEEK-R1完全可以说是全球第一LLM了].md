@@ -3718,3 +3718,11 @@ api加审查了，梦结束了，得研究破限了<img src="https://static.sara
 原来如此啊</blockquote>
 语言大模型问时效性问题都需要联网。至于为什么百度ai准确，因为很多国产商品化的ai都是默认联网搜索的。
 
+
+*****
+
+####  malisa  
+##### 264#       发表于 2025-1-27 17:40
+
+以前llama的 uncensored是怎么做的？ deepseek可以用吗
+
