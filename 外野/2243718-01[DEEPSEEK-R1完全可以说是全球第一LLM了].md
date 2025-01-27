@@ -6180,3 +6180,39 @@ v3不能瑟瑟
 看了一下，听说32B以下模型效果都不太理想...慢就慢吧，请问下，这玩意如果不使用对电脑性能没啥影响吧 ...</blockquote>
 我的建议是直接用官方的api，官方api可以SESE的
 
+
+*****
+
+####  仓岛千百合  
+##### 454#       发表于 2025-1-28 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292616&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 03:03</a>
+
+我的建议是直接用官方的api，官方api可以SESE的</blockquote>
+API现在崩了吗 用chatboxai输入秘钥后跟它说话没反应。
+
+*****
+
+####  riin2  
+##### 455#       发表于 2025-1-28 03:23
+
+<img src="https://img.saraba1st.com/forum/202501/28/032313e4oo4gouhi840t32.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (552.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 03:23 上传
+
+李开复说他早已预料到
+
+
+*****
+
+####  长征5号  
+##### 456#       发表于 2025-1-28 03:24
+
+以前觉得这种攻击是上不得台面的手段，只有小企业才这么干，结果世界头部企业也这么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
