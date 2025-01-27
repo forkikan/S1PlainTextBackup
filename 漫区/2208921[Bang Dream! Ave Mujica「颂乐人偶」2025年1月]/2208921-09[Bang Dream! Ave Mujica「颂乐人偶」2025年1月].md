@@ -15484,3 +15484,15 @@ mygo里观众基本是上帝视角，mujica里不是
 
 初华作为主唱，形象不可能只有馋人身子这么单薄
 
+
+*****
+
+####  天空塔书记官  
+##### 13133#       发表于 2025-1-27 16:12
+
+ 本帖最后由 天空塔书记官 于 2025-1-27 16:15 编辑 
+
+主唱是星星，星星就是恒星，那恒星变成的黑洞也是星星，初华又不是第一个黑洞型主唱，这和灯也能对应上<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

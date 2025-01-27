@@ -3457,3 +3457,32 @@ API接口是崩了吗，为什么我的一直在转圈
 
 前端选择OPEN WebUI不是自带搜索api接入吗？虽然我还没折腾但是看起来只需要填key就行
 
+
+*****
+
+####  白色的120  
+##### 244#       发表于 2025-1-27 16:11
+
+api崩了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚充了100块钱准备好好玩玩
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  tillnight  
+##### 245#       发表于 2025-1-27 16:14
+
+<blockquote>wildarm 发表于 2025-1-27 14:54
+简单问今年春节三薪有多少天，百度AI回答4天，这货回答3天（除夕没算上）
+
+ ...</blockquote>
+大概率没点联网搜索吧。
+
+<img src="https://img.saraba1st.com/forum/202501/27/161420c7pzhzhhp3pqikjh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250127_161347_com.deepseek.chat.jpg</strong> (320.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 16:14 上传
+

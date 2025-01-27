@@ -514,3 +514,11 @@ gemini不是说搞瑟瑟特别厉害吗，角色扮演方面？
 所以到现在有人查过这人是不是谷歌员工了吗</blockquote>
 前员工了，不过 Jeff Dean 转了 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  featherwit  
+##### 54#       发表于 2025-1-27 16:08
+
+google的2.0 thinking模型，veo2和3d生成都非常强大。ds有牛逼的地方，但别这么看不起google
+
