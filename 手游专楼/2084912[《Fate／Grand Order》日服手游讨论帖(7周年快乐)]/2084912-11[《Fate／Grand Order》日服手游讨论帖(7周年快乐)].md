@@ -88,3 +88,13 @@
 
 ・与吉尔伽美什：互相嘲讽「最古英雄王」与「新晋顽童」的称号
 
+
+*****
+
+####  沼蝇  
+##### 16185#       发表于 2025-1-27 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288451&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-1-27 14:23</a>
+最近那个国产chatGPT——DeepSeek很火，在下玩性大发，让它设计了一个孙悟空，感觉挺有意思，转过来水一下 ...</blockquote>
+狂阶变尺阶呗，虽然尺阶跟教会没什么关系，狂阶变saver也行
+

@@ -3334,3 +3334,21 @@ API接口是崩了吗，为什么我的一直在转圈
 
 点击查看deepseek被大型人肉DDOS现状
 
+
+*****
+
+####  王苍幻  
+##### 232#       发表于 2025-1-27 14:40
+
+部署到本地无法使用联网搜索，可惜了点
+
+*****
+
+####  moeblack  
+##### 233#         楼主| 发表于 2025-1-27 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288544&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-27 14:40</a>
+
+部署到本地无法使用联网搜索，可惜了点</blockquote>
+可以把网页逆向给本地用 就能搜索了
+
