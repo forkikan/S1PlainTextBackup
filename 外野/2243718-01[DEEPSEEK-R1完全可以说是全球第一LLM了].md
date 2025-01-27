@@ -6430,3 +6430,15 @@ tmd，我显卡渣渣，但是内存512g
 
 现在api的r1好像还在崩着，v3倒是能用了
 
+
+*****
+
+####  泰坦失足  
+##### 475#       发表于 2025-1-28 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292743&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 06:06</a>
+现在好是好了破甲没用了啊，他开始跳各种提示了</blockquote>
+671b的纯血r1已经量化到130多g显存要求了。那些魔改显存显卡可能三块就能跑。moe架构同时激活的神经元少。但是还都得在显存待命，不然生成速度依然受影响。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
