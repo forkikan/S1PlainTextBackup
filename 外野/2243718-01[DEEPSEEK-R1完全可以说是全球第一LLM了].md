@@ -3053,3 +3053,16 @@ NPC对话隐藏治疗对话
 
 推理模型已经用不了了，用的人太多短时间内负载能力跟不上
 
+
+*****
+
+####  十六夜pad长  
+##### 207#       发表于 2025-1-27 09:23
+
+我昨天要他帮我出个西安旅游攻略，说我要去陕博和陕博秦汉馆，但忘了兵马俑。
+它想了想说：用户看起来是个历史爱好者，但没写兵马俑，但兵马俑是必去的，建议推荐。
+
+DS：你这逼人去西安不去兵马俑的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
