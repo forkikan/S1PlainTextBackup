@@ -65,3 +65,21 @@
 还有驱散</blockquote>
 我关上2再试试，反射真的太恶心了
 
+
+*****
+
+####  Sylpheed  
+##### 18194#       发表于 2025-1-27 23:04
+
+管子上偷的神灭拳皇还挺好用的，改了下盘子15分钟一把，基本没太翻。挂一边爽打一天西格玛2<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  milky658  
+##### 18195#       发表于 2025-1-27 23:12
+
+明天一档预测要接近30e了，顶着这么粪的boss打贡献精神状态还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

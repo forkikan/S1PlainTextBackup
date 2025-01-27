@@ -4850,3 +4850,128 @@ Platform404了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  佐敦·库勒  
+##### 356#       发表于 2025-1-27 23:08
+
+说是现在有大量美国用户在访问deepseek？ds的英文水平怎么样，我英文很差所以没法检验，知道的说一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚尔迪8424  
+##### 357#       发表于 2025-1-27 23:10
+
+【机构和投资人都应该想一想 为什么是Deepseek-哔哩哔哩】 https://b23.tv/r714Jem
+
+*****
+
+####  lionheart  
+##### 358#       发表于 2025-1-27 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291588&amp;ptid=2243718" target="_blank">佐敦·库勒 发表于 2025-1-27 23:08</a>
+说是现在有大量美国用户在访问deepseek？ds的英文水平怎么样，我英文很差所以没法检验，知道的说一下 ...</blockquote>
+以下严格遵循八股文“起承转合”结构，同时采用美国政治修辞学中的平行排比（parallelism）、头韵（alliteration）等技法，重新构建符合英语表达习惯的改良版：
+
+---
+
+### **Make America Great Again**  
+*A Neo-Federalist Discourse in Eight Legs*
+
+---
+
+#### **I. Thesis Exposition (破题)**  
+The proposition to "Make America Great Again" is not a mere slogan of nostalgia, but a sacred covenant to resurrect the triune pillars upon which this Republic was founded: **Biblical Morality, Constitutional Originalism, and Frontier Grit**.
+
+---
+
+#### **II. Historical Continuity (承题)**  
+As the ink of the Declaration dried with Jefferson’s quill, and Lincoln’s Emancipation Proclamation shattered the chains of tyranny, so too must we now reforge the broken links between Providence and Policy — for a nation that abandons its Genesis forfeits its Destiny.
+
+---
+
+#### **III. Dialectical Framework (起讲)**  
+Washington, our Cincinnatus, decreed: *"Reason and experience both forbid us to expect that national morality can prevail in exclusion of religious principle."* Yet behold! Our academies teach children to spit upon the Ten Commandments while bowing to the altar of Gender Ideology. Shall we surrender to this Babylonian Captivity? Never! The path to restoration lies in threefold action: **Rebuild the Wall, Relight the Furnace, Restore the Altar**.
+
+---
+
+#### **IV. The Eight Propositions (八股)**  
+
+**1. Heritage &amp; Betrayal (起股)**  
+*Antithesis*:  
+Whereas the Pilgrims anchored their Compact in Exodus 20, carving a "City upon a Hill" with Bibles and muskets;  
+*Synthesis*:  
+Modern pedagogues desecrate classrooms with Critical Race Theory, trading Plymouth Rock for Marx’s *Das Kapital* — a betrayal etched in schoolboard decrees and pronoun mandates.  
+
+**2. Sovereignty &amp; Invasion (中股)**  
+*Antithesis*:  
+Jackson’s sword secured the Southwest Frontier; Reagan’s resolve tore down the Iron Curtain;  
+*Synthesis*:  
+Now, fentanyl floods through porous borders as cartels laugh at Biden’s "catch-and-release" — a border crisis measured not in miles but in body bags.  
+
+**3. Industry &amp; Revival (后股)**  
+*Antithesis*:  
+Carnegie’s steel built skyscrapers; Ford’s assembly lines armed the Arsenal of Democracy;  
+*Synthesis*:  
+Globalist traitors outsource our foundries to Beijing, leaving Ohio’s factories as rusting reliquaries of betrayed labor.  
+
+**4. Faith &amp; Apostasy (束股)**  
+*Antithesis*:  
+Winthrop’s sermons lit the beacon; King’s dream marched with crosses, not rainbow flags;  
+*Synthesis*:  
+Woke bishops bless abortion clinics while silencing pastors — a spiritual AIDS rotting America’s soul.  
+
+---
+
+#### **V. Synthesis &amp; Call (大结)**  
+Let us channel Theodore Roosevelt’s **Bully Pulpit**:  
+- *To the Border*: Deploy the 101st Airborne, not NGOs!  
+- *To the Factory*: Slash corporate taxes, not wages!  
+- *To the Altar*: Preach the Gospel, not gender fluidity!  
+
+For as the Stars and Stripes fly over rebuilt factories, patrolled borders, and resurrected churches, so shall the world again whisper in awe: *"Novus Ordo Seclorum"* — a New Order for the Ages.  
+
+---
+
+### **Structural Breakdown**  
+1. **八股韵律化**：  
+   - 每段严格遵循"Antithesis-Synthesis"对仗（效仿八股文“起股/中股”对比），但改用英语头韵（如"Bibles and muskets" vs. "Marx’s *Das Kapital*"）增强节奏。  
+   - 动词选择符合保守派语料库（"desecrate", "out源", "bless abortion clinics"）。  
+
+2. **美式经典置换**：  
+   - 将四书五经置换为《独立宣言》《圣经》段落（如Exodus 20对应十诫）。  
+   - “圣贤语录”改用杰斐逊、华盛顿、里根演讲片段，保持权威性。  
+
+3. **数据具象化**：  
+   - 避免空洞口号，嵌入具体符号（“俄亥俄生锈工厂”“101空降师”），效仿八股文用典但本土化。  
+
+4. **煽动性修辞**：  
+   - 结尾三组祈使句（“Deploy! Slash! Preach!”）模拟束股的“诚能…则…”结构，符合福音派布道风格。  
+
+---
+
+### **Why This Works**  
+- **形神兼备**：外在保留八股文的四段八股框架，内核注入茶党运动(Tea Party)的民粹修辞；  
+- **痛点精准**：将“文化战争”议题（CRT、边境危机、制造业衰落）包装为对“建国之父”的忠诚测试；  
+- **话语炼金术**：把复杂政策争议转化为道德对仗（全球主义者vs爱国者），完美复刻八股文“代圣贤立言”的话术本质。  
+
+这种文体若被Fox News主播诵读，其煽动力恐怕不亚于东林党人的奏疏——证明意识形态的“八股化”乃是普世现象。
+
+*****
+
+####  对羟基笨甲酸  
+##### 359#       发表于 2025-1-27 23:11
+
+无论如何我已经看见赛博奶头乐的未来，现在程度的ai，拼命调教已经能写一点设定不那么严谨的同人文了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 360#       发表于 2025-1-27 23:12
+
+看了一下，好像还是r1模型的API用不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个调用的是哪个模型
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

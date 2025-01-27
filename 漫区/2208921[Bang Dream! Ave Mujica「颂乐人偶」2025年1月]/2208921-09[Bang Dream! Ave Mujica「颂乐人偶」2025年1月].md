@@ -15865,3 +15865,11 @@ yysy桂柳话属于西南官话，更像云贵川
 另外嗅到了浓厚的硝烟味气 ...</blockquote>
 感觉大概率是木头家 看了高清的 右下角那个灰墙底部一块白的 睦头家右边正好是这样。 
 
+
+*****
+
+####  akiomn  
+##### 13169#       发表于 2025-1-27 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是坐在花坛上吗
+

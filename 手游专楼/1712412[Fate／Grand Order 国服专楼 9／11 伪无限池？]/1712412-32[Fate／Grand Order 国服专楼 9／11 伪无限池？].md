@@ -169,3 +169,14 @@ CBA＋1<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" ref
 阿比肯定有用啊，100特攻50自充，每次宝具提升都是提升巨大的。</blockquote>
 本来都没注意过，原来阿比现在这么猛，必须练起来了
 
+
+*****
+
+####  khxooo  
+##### 46986#       发表于 2025-1-27 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291384&amp;ptid=1712412" target="_blank">sandro 发表于 2025-1-27 22:42</a>
+
+本来都没注意过，原来阿比现在这么猛，必须练起来了</blockquote>
+虽然国服还没强化，要等周年，但是练起来没问题。
+

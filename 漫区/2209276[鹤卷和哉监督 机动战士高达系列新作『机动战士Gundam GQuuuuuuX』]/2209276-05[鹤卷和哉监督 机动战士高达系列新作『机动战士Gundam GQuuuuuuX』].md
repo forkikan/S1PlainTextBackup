@@ -346,3 +346,11 @@ G=Gundam
 
 想起推上有人说庵野绝对是基连野望的效率厨，第一时间搞掂V作战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 5940#       发表于 2025-1-27 23:10
+
+什么时候内地能看啊，想看看庵野笔下吉连野望中夏亚的行为啊
+
