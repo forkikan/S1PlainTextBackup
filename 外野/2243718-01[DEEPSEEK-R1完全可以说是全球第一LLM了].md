@@ -4418,3 +4418,90 @@ APP是挂了吗，完全不能用了
 
 急急急啊怎么就不能用了
 
+
+*****
+
+####  lesson  
+##### 325#       发表于 2025-1-27 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">用不了，急死了！
+
+*****
+
+####  无尽的牙刷  
+##### 326#       发表于 2025-1-27 22:00
+
+api也崩了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Azcarlo  
+##### 327#       发表于 2025-1-27 22:00
+
+https://status.deepseek.com/
+iOS榜28国登顶，绝赞崩溃中
+<img src="https://p.sda1.dev/21/669626d9eeec37cabcd0251db0750b2f/image.jpg" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  thermite  
+##### 328#       发表于 2025-1-27 22:01
+
+炸了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+キャプチャ24012701.PNG
+(31.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/220043fo7czoo040cqm5z7.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pf67  
+##### 329#       发表于 2025-1-27 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290728&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-27 21:02</a>
+可是V3模型太大了，没法本地部署吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+搜索要调用agent吧，本地部署了r1你也可以让他调用
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kenqqex  
+##### 330#       发表于 2025-1-27 22:03
+
+CyberAgent宣布开始使用DeepSeek
+
+CyberAgent旗下子公司包括 Cygames、AbemaTV、NITRO PLUS等 ​​​
+
+001iVUoXly1hxznfzd0ldj610f11ctir02.jpg
+(97.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 22:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/220341wh8r8l58qr43orw3.jpg" referrerpolicy="no-referrer">
+
