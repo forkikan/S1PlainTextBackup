@@ -4594,3 +4594,13 @@ API是有单次对话的tokens数量限制是吧。我输入刘备文给它学�
 
 这点我觉得是我调教的方式不对，作为使用者也还得多学习啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KioShiMa  
+##### 338#       发表于 2025-1-27 22:18
+
+我还在想怎么摇不出东西了，原来是噶了。
+
+感觉世界线趋近于未来人人抱着奶头乐不下床了
+
