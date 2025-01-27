@@ -4291,3 +4291,26 @@ The most obvious targets for Metallic Turbo are fellow types like Melmetal and y
 线上的，就是我先发一部分设定给他，然后根据他反馈的结果不断给他加注意事项 ...</blockquote>
 线上的如何绕过敏感词？方便私信一下设定过程吗？
 
+
+*****
+
+####  beta10  
+##### 313#       发表于 2025-1-27 21:18
+
+人肉DDoS攻击无敌啊
+
+
+*****
+
+####  thermite  
+##### 314#       发表于 2025-1-27 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290765&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-27 21:06</a>
+
+本地部署翻译测试
+
+原文
+
+CryoGyro: The time-turning head-turner of the trailer, Dialga ex isn’t that  ...</blockquote>
+是量化版本吗？
+
