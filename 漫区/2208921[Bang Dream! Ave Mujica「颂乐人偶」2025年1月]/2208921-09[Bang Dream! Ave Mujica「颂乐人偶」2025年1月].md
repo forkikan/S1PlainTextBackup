@@ -14285,3 +14285,65 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 
 其实我一直在想一个事啊，母鸡卡这个动画真的能以普通少女乐队番、普通的邦多利系列作品来看待并进行推测吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烂片雷达  
+##### 13026#       发表于 2025-1-27 11:18
+
+发生什么事了，小莫怎么笑的直不起腰了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HereLink  
+##### 13027#       发表于 2025-1-27 11:19
+
+说实在的，到现在谁还会觉得这是个单纯的乐队动画😂
+
+感觉已经快到了那种，在不引入超自然能力情况下最夸张的剧本了
+
+*****
+
+####  icosahedron  
+##### 13028#       发表于 2025-1-27 11:21
+
+我咋觉得初华最后是很俗的展开，比如是丰川集团派到祥子身边的间谍什么的，毕竟好像哪个访谈说剧里会有丰川集团的阴暗面？
+
+
+*****
+
+####  天空塔书记官  
+##### 13029#       发表于 2025-1-27 11:23
+
+这真没啥吧，别被演出效果吓到好吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 13030#       发表于 2025-1-27 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287088&amp;ptid=2208921" target="_blank">icosahedron 发表于 2025-1-27 11:21</a>
+
+我咋觉得初华最后是很俗的展开，比如是丰川集团派到祥子身边的间谍什么的，毕竟好像哪个访谈说剧里会有丰川 ...</blockquote>
+如果是间谍那祥子离家一年了都不去看看吗。祥子不找她就进不去的内奸也太菜了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13031#       发表于 2025-1-27 11:24
+
+把睦子米 还给我<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 13032#       发表于 2025-1-27 11:25
+
+就算有原著也不一定耐得住制作组乱来，比如“全都是计划的一部分~”
+
+不过大mo老师笑的那么开心，怕不是真是计划的一部分了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

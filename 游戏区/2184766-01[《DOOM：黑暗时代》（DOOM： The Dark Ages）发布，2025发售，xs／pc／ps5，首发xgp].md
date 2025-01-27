@@ -975,3 +975,11 @@ Mick则发了封公开信。 <blockquote> I never quit DOOM. I quit a toxic clie
 
 看到那个龟壳就不想玩了 一想到要强制我用龟壳完成各种弹反 防御才能解决战斗  就想死了
 
+
+*****
+
+####  希望之异热同心  
+##### 264#       发表于 2025-1-27 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对了演示里面有毁灭战士猎人灭绝之前的样子，一手拿盾一手拿刀，已经梦回斧头哥了
+
