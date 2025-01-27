@@ -5274,3 +5274,82 @@ AI的瞳孔闪过一串乱码。趁这瞬间，他咬破舌尖将魔芋残渣混
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 383#         楼主| 发表于 2025-1-28 00:09
+
+ 本帖最后由 moeblack 于 2025-1-28 00:10 编辑 
+
+卧槽啊美国人咋这么坏！
+
+<img src="https://img.saraba1st.com/forum/202501/28/000859u0ylg7j7077j13fs.png" referrerpolicy="no-referrer">
+
+<strong>766441d5b4fec9b1789dcd36d6ce6c70.png</strong> (32.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 00:08 上传
+
+*****
+
+####  afer  
+##### 384#       发表于 2025-1-28 00:09
+
+<blockquote>近期DeepSeek线上服务受到大规模恶意攻击，为持续提供服务，暂时限制了+86手机号以外的注册方式，已注册用户可以正常登录，感谢理解和支持</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼佬真有攻击的
+
+*****
+
+####  佐敦·库勒  
+##### 385#       发表于 2025-1-28 00:10
+
+完了，ai要累死了
+
+*****
+
+####  lzrtwilight  
+##### 386#       发表于 2025-1-28 00:11
+
+艹 真被打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔灵高达  
+##### 387#       发表于 2025-1-28 00:11
+
+尝试的结果出来了，回答是：当当当当~不好意思，和 DeepSeek 聊天的人有点太多了，请过一会儿再提问吧。
+
+捏妈妈滴，洗洗睡吧
+
+*****
+
+####  吴怀在  
+##### 388#       发表于 2025-1-28 00:12
+
+惨，运维过年加班。
+
+*****
+
+####  变老的大二  
+##### 389#       发表于 2025-1-28 00:13
+
+<blockquote>与天争锋_LZ 发表于 2025-1-28 00:03
+小白只会用这个做简单问答，请问有什么高级用法啊？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你可以要求它制作游戏，网页，以及图表。
+
+
+*****
+
+####  kerorara  
+##### 390#       发表于 2025-1-28 00:16
+
+睡醒了再看看
+我调xp文调到最后了在清设定 结果来这出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

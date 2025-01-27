@@ -367,3 +367,14 @@ G=Gundam
 真正的 ...</blockquote>
 是的，已经讨论过了，结论就是高达9号机
 
+
+*****
+
+####  57042711  
+##### 5942#       发表于 2025-1-28 00:06
+
+改wiki笑死，万恶之源基连野望！<img src="https://static.saraba1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+很好奇这个新世界线阿克西斯的状况…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
