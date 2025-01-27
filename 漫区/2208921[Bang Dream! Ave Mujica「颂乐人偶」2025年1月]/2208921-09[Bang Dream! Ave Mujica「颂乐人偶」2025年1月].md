@@ -15828,3 +15828,40 @@ yysy桂柳话属于西南官话，更像云贵川
 
 图转群
 
+
+*****
+
+####  plok201  
+##### 13166#       发表于 2025-1-27 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287794&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-27 12:48</a>
+
+其实楼里好像之前有人发飙说其他几个人“在霸陵大祥”，虽然有点夸张，但是这话瞄梦室内那段，大祥心理都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">初华视角说，因为整个酒店之战都是初华视角，所以大祥老师非常美味
+
+*****
+
+####  澜灰-  
+##### 13167#       发表于 2025-1-27 22:47
+
+得承认祥在睦家前跪坐的这个推测让我笑得很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太棒了这就是我想看的
+
+真的太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外嗅到了浓厚的硝烟味气息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凉良  
+##### 13168#       发表于 2025-1-27 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291426&amp;ptid=2208921" target="_blank">澜灰- 发表于 2025-1-27 22:47</a>
+
+得承认祥在睦家前跪坐的这个推测让我笑得很开心太棒了这就是我想看的
+
+真的太乐了
+
+另外嗅到了浓厚的硝烟味气 ...</blockquote>
+感觉大概率是木头家 看了高清的 右下角那个灰墙底部一块白的 睦头家右边正好是这样。 
+

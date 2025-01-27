@@ -270,3 +270,14 @@ v高达的恋童阿姨，脱光了拽着胡索一起进浴缸
 
 进入钢蛋大重置时代
 
+
+*****
+
+####  Toby_dak  
+##### 5937#       发表于 2025-1-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290273&amp;ptid=2209276" target="_blank">yunluo 发表于 2025-1-27 20:45</a>
+
+骡，凯，隼人在一开始抢高达的时候就便当了吧，78-01那个没露脸的驾驶员感觉就是骡，用的攻击动作是骡的动 ...</blockquote>
+先不说16岁能不能当驾驶员开上78-1，那动作技术是一个16岁没经过战场磨炼能做出来的？
+

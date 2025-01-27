@@ -142,3 +142,50 @@
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一见大吉  
+##### 3331#       发表于 2025-1-27 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67147449&amp;ptid=2092342" target="_blank">黑修士 发表于 2025-1-10 16:40</a>
+
+原来还有这样的细节
+
+之前他说那这个想法的时候是仁王2发售后那会，所以猜测是不是有过类似题材的立案 ...</blockquote>
+是的，瑟夏就是凯尔特语里“自由”的意思，她说的也是凯尔特语而不是日本的妖怪语。
+
+*****
+
+####  黑修士  
+##### 3332#       发表于 2025-1-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291260&amp;ptid=2092342" target="_blank">真田源次郎信繁 发表于 2025-1-27 22:29</a>
+
+总觉得浪人崛起捏脸捏不出仁王2那么好看的
+
+不过最大的问题还是最后捏个好看的aibo结果天天给你喂屎 ...</blockquote>
+感觉光影要背锅，同样捏出来的角色，不同光影下观感有差异
+
+游戏里呈现出来的效果，往往还不如主菜单的有质感
+
+<img src="https://img.saraba1st.com/forum/202501/27/225137rlj6w6sxxe6ws6lp.jpg" referrerpolicy="no-referrer">
+
+<strong>浪人崛起_20240419184929.jpg</strong> (407.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 22:51 上传
+
+*****
+
+####  真田源次郎信繁  
+##### 3333#       发表于 2025-1-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291461&amp;ptid=2092342" target="_blank">黑修士 发表于 2025-1-27 22:52</a>
+
+感觉光影要背锅，同样捏出来的角色，不同光影下观感有差异
+
+游戏里呈现出来的效果，往往还不如主菜单的有 ...</blockquote>
+主菜单那已经是画面欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
