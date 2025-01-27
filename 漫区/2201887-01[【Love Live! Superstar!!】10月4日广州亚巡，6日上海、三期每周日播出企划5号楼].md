@@ -14884,3 +14884,15 @@ pay 1st photo&amp;interview book
 <img src="https://p.sda1.dev/21/e7f28fa26321716af83faf435491a7e8/GiSVUGnaIAAUul0.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/6934485c42ae7915addfec09805e6eeb/GiSVUGnbUAAr67H.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1448#       发表于 2025-1-27 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289187&amp;ptid=2201887" target="_blank">starring 发表于 2025-1-27 16:46</a>
+pay 1st photo&amp;interview book</blockquote>
+终于等到Febri出手。之前买过sayu那一本，挺厚的，可惜纸质不行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
