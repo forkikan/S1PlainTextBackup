@@ -14480,3 +14480,59 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 真•活久见LoL ...</blockquote>
 百度哪个帖子链接有吗，想看看假药<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 13047#       发表于 2025-1-27 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd下这么重本，那这片还有平稳落地的可能吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  山ノ内花音  
+##### 13048#       发表于 2025-1-27 12:20
+
+就像燃烧殆尽前的线香花火一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1||
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 13049#       发表于 2025-1-27 12:21
+
+怎么能是线香火花，那不是啥都没有了，怎么着也得是飞天十三连响啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  MASKA-1  
+##### 13050#       发表于 2025-1-27 12:24
+
+这广告里有新台词吗？
+
+*****
+
+####  IWS2000  
+##### 13051#       发表于 2025-1-27 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287580&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-27 12:24</a>
+这广告里有新台词吗？</blockquote>
+有喵梦赖上祥子的台词
+“你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？”
+
