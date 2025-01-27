@@ -13519,3 +13519,36 @@ MyGO之后一年半那么多假药，没人 ...</blockquote>
 这集祥子说 我只想要睦回来。   到底是想要幼驯染的睦还是想要一个吉他手工具人呢 ...</blockquote>
 要个沙包 笑死
 
+
+*****
+
+####  wpcc  
+##### 12957#       发表于 2025-1-27 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67284908&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-26 23:44</a>
+
+我说一下我的想法，我不相信所有演戏说（及其变种）和叙诡说（及其变种）
+
+MyGO之后一年半那么多假药，没人 ...</blockquote>
+剧透就是灯皇干了 所以鸡狗合奏包饺子已经是定局了
+
+*****
+
+####  wpcc  
+##### 12958#       发表于 2025-1-27 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285653&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-1-27 03:53</a>
+
+之前也想过，如果把“人偶化”这个过程视作鸡动画的主线，就会合理很多，但这样就必然不可能达成传统意义上 ...</blockquote>
+人偶化就是大祥黑化一控四就完事了 武士道真拿出来这个我看他企划是不想要了 这是什么深夜垃圾漫画的水平吗
+
+
+*****
+
+####  老贝  
+##### 12959#       发表于 2025-1-27 08:47
+
+恶意理解祥子话语那滑坡就没有止境了。
+
+按这个思路，节目上祥子帮睦挡主持人采访的行为也可以解释为并非保护睦，而是为了维护Ave Mujica的世界观，和表面关心睦实质就是想蹭流量的喵梦是一类人了。
+
