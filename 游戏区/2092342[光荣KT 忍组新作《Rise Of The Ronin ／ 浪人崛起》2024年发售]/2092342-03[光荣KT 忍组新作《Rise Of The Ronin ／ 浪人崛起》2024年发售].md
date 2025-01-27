@@ -189,3 +189,26 @@
 游戏里呈现出来的效果，往往还不如主菜单的有 ...</blockquote>
 主菜单那已经是画面欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 3334#       发表于 2025-1-27 22:58
+
+steam买了，看看高清浪人<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  寂长无星夜  
+##### 3335#       发表于 2025-1-27 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291338&amp;ptid=2092342" target="_blank">碎镜子 发表于 2025-1-27 22:37</a>
+先被龙信2创死一次，又要被荒野创死一次
+脱光不长记性啊</blockquote>
+荒野感觉要被自己的优化创死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

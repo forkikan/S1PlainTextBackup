@@ -4816,3 +4816,37 @@ CyberAgent旗下子公司包括 Cygames、AbemaTV、NITRO PLUS等 ​​​</blo
 
 这种将技术瓶颈重构为增长引擎的能力，恰是DeepSeek颠覆性创新的核心体现。当竞品还在追求“永不宕机”的陈旧KPI时，我们已重新定义性能问题的商业价值。
 
+
+*****
+
+####  Sayuki1025  
+##### 352#       发表于 2025-1-27 23:00
+
+登录不上去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KioShiMa  
+##### 353#       发表于 2025-1-27 23:00
+
+Platform404了
+
+
+*****
+
+####  titians  
+##### 354#       发表于 2025-1-27 23:04
+
+看了微博说老美医生用deepseek看病挺准，给自己试了一下，还真的挺准的，和医生说的差不多。
+
+看来赛博问诊就要实现了。
+
+*****
+
+####  qz66618  
+##### 355#       发表于 2025-1-27 23:08
+
+这下彻底404了，我今天下午就没用到过API<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

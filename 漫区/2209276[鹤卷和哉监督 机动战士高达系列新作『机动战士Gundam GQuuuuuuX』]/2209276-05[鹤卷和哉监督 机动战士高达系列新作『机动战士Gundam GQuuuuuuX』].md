@@ -281,3 +281,68 @@ v高达的恋童阿姨，脱光了拽着胡索一起进浴缸
 骡，凯，隼人在一开始抢高达的时候就便当了吧，78-01那个没露脸的驾驶员感觉就是骡，用的攻击动作是骡的动 ...</blockquote>
 先不说16岁能不能当驾驶员开上78-1，那动作技术是一个16岁没经过战场磨炼能做出来的？
 
+
+*****
+
+####  咖啡配黑鸡  
+##### 5938#       发表于 2025-1-27 23:00
+
+關於GQuuuuuuX名稱意思被猜測了很久, 除了劇中的台詞暗示外, 如果有留意山下一直以來的推文上會發現
+
+真正的讀法並非ジーク・アクス, 
+
+真正的讀法是ジー・クァクス
+
+G- QuuuuuuX
+
+而QuX 就是Metasyntactic variable(偽變量)中第4的意思, QuuX第5, QuuuX第6, ....如此類推 QuuuuuuX代表第9
+
+G=Gundam
+
+即本來正史不存在的Gundam QuuuuuuX 高達9號機
+
+<img src="https://img.saraba1st.com/forum/202501/27/225949rgbybl32cbr30ror.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1737988407189.jpg</strong> (24.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-27 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/225957cbymibqqz3gqs8y8.jpg" referrerpolicy="no-referrer">
+
+<strong>FB_IMG_1737988409827.jpg</strong> (16.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-27 22:59 上传
+
+*****
+
+####  Toby_dak  
+##### 5939#       发表于 2025-1-27 23:00
+
+果然真有人编辑了基连的野望的攻略wiki夏利尔的条目。
+
+<img src="https://img.saraba1st.com/forum/202501/27/235757qujysc233ssl2y55.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ1.JPG</strong> (172.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/235759q5iineikiieokkdi.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (174.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 22:57 上传
+
+仕事早いな。
+
+想起推上有人说庵野绝对是基连野望的效率厨，第一时间搞掂V作战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
