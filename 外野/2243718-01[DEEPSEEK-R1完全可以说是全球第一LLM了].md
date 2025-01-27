@@ -6034,3 +6034,32 @@ v3不能瑟瑟
 
 对于这种一图流的受众，其实可以让deepseek自己来教你安装，甚至教你评估装哪款，保证讲解的又详细又清楚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓岛千百合  
+##### 441#       发表于 2025-1-28 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292447&amp;ptid=2243718" target="_blank">OrianaThomson 发表于 2025-1-28 01:56</a>
+
+这楼也发个本地部署</blockquote>
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+32b 电脑配置12400F+3060TI
+
+
+*****
+
+####  你知道我的  
+##### 442#       发表于 2025-1-28 02:32
+
+说是有 600Gbps？
+
+<img src="https://img.saraba1st.com/forum/202501/28/023241nv11kcpzavnzak1v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>nfQkgn-ja2zZcT3cSo8-jk.jpeg</strong> (76.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 02:32 上传
+
