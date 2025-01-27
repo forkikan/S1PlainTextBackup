@@ -6263,3 +6263,18 @@ API现在崩了吗 用chatboxai输入秘钥后跟它说话没反应。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  凉良  
+##### 461#       发表于 2025-1-28 04:04
+
+api还没恢复么 这网页动不动不能回答 或者撤回也太难受了
+
+*****
+
+####  贝多Van  
+##### 462#       发表于 2025-1-28 04:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4060显卡试了一下8b，慢得很，1.5b又太弱智，连1.11和1.9谁大，都能回答没有学过。
+
