@@ -4076,3 +4076,33 @@ v3导入人物卡能写** 但是写着写着就重复</blockquote>
 蹲一个教程？</blockquote>
 用酒馆的虚拟聊天人物卡加上破甲文本，可以直接击穿……
 
+
+*****
+
+####  琴酒  
+##### 297#       发表于 2025-1-27 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290437&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-27 20:09</a>
+
+用酒馆的虚拟聊天人物卡加上破甲文本，可以直接击穿……</blockquote>
+这是不是用酒馆就不需要像其他api一样导入对话补全预设和正则
+
+*****
+
+####  moeblack  
+##### 298#         楼主| 发表于 2025-1-27 20:31
+
+不是，你们美国人没有自己的工作站玩你们自由调教的本地ai吗，免得你们这些建政脑残天天网页端刷和谐词
+
+我无语了
+
+能不能让+86用户优先用
+
+<img src="https://img.saraba1st.com/forum/202501/27/203138nxc2xk2377f7inzz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250127_202846_com.xingin.xhs.jpg</strong> (235.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 20:31 上传
+
