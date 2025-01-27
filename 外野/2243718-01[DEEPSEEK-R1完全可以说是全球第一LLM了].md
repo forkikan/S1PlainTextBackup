@@ -4106,3 +4106,31 @@ v3导入人物卡能写** 但是写着写着就重复</blockquote>
 
 2025-1-27 20:31 上传
 
+
+*****
+
+####  requiem116  
+##### 299#       发表于 2025-1-27 20:38
+
+现在连v3都不太利索，经常生成重复内容，或者是混杂重复内容，感觉是不是压力太大玩蹦了
+
+
+*****
+
+####  thermite  
+##### 300#       发表于 2025-1-27 20:42
+
+MD，真没想到DS竟然倒在了“用的人太多了”这点上
+
+赶紧恢复吧，我要看小黄文啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vava  
+##### 301#       发表于 2025-1-27 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290553&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-27 20:31</a>
+
+这是不是用酒馆就不需要像其他api一样导入对话补全预设和正则</blockquote>
+也需要导入破限预设
+
