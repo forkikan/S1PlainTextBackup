@@ -13950,3 +13950,144 @@ QQ图片20250127094332.jpg
 
 初华干坏事被人拍了？
 
+
+*****
+
+####  江口夕  
+##### 12995#       发表于 2025-1-27 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286660&amp;ptid=2208921" target="_blank">老贝 发表于 2025-1-27 10:32</a>
+看着像是在捂着肚子狂笑，然后回去对着睦象征的吉他说你放心我全都搞定了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么感觉是莫女士被打了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿兹尔  
+##### 12996#       发表于 2025-1-27 10:46
+
+现在祥子这么软糯到时候硬起来人气爆炸，现在就看剩下4个的人设咋救或者要不要救了
+
+*****
+
+####  Raven314  
+##### 12997#       发表于 2025-1-27 10:46
+
+<img src="https://p.sda1.dev/21/4b5968f129b1e612de3e1dd7954d76a9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 12998#       发表于 2025-1-27 10:47
+
+祥老师是饿着了吗 在前往食堂的路上
+
+*****
+
+####  DARK_HGCG  
+##### 12999#       发表于 2025-1-27 10:48
+
+妈呀这是哪里的广告
+
+*****
+
+####  江口夕  
+##### 13000#       发表于 2025-1-27 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我来串个剧情吧，莫女士不演了，在初华面前演祥子被自己迫害，初华直接狂暴了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  galacta  
+##### 13001#       发表于 2025-1-27 10:48
+
+<blockquote>青龙圣者 发表于 2025-1-27 07:06
+能解答一下记忆是不是互通的问题吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+大概至少一半是共同的…情感上更加不共同。各自还是对自己亲身经历的时候印象更深吧，ta不觉得我妈是ta妈。我没有亲自上过班，精神状态更好。技能上我能轻松做的事，在我沉睡时他觉得非常吃力。我回来后就没有问题了。
+
+不过每个人的情况都是不一样的。
+
+我真的觉得活着这么累，就这么无了挺好的，但是因为ta一定要要拽着我，害我也没有彻底沉睡，有一点点意识，生不如死。
+
+我们从小写日记，他一直负责管理这个有解离型失忆的脑子，方便复盘。反正DID无药可救，送医院也没用，非要“治”，国内没什么靠谱咨询师。还是我们自己想办法共存。然后避免压力源。
+
+比如我有记忆你在寒蝉业专楼是扣画面假药大将，但是就这样了。子人格可能不喜欢你我也不太清楚。他负责承担了很多痛苦的回忆。
+
+太遥远了，我不记得自己8年前对泥潭的心情。当时还在看冻蒜楼。现在来这里找剧透。这里真是十年如一日完全没变。
+
+不好意思。
+
+*****
+
+####  JustW  
+##### 13002#       发表于 2025-1-27 10:49
+
+看着像新宿站。不过今早在池袋jr也看见母鸡卡广告了
+
+
+*****
+
+####  御幸一也  
+##### 13003#       发表于 2025-1-27 10:52
+
+這是新宿那個超長螢幕廣告，武士道真的大手筆了，這個超貴的。
+
+Q娃20週年也是在這裡打的廣告，全系列Q娃同時變身的畫面確實很震撼
+
+*****
+
+####  Raven314  
+##### 13004#       发表于 2025-1-27 10:54
+
+<img src="https://p.sda1.dev/21/edc4201b654d342c1a38c7bc780a33a6/image.jpg" referrerpolicy="no-referrer">
+叙诡假药越来真<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 13005#       发表于 2025-1-27 10:54
+
+ 本帖最后由 御幸一也 于 2025-1-27 10:55 编辑 
+
+[https://shunkosha.co.jp/column/ad-board/column-40637](https://shunkosha.co.jp/column/ad-board/column-40637)
+ <blockquote>セット内容：新宿ウォール456/J・ADビジョン新宿駅東西自由通路/J・ADビジョン新宿駅西改札
+
+販売単位：1週間
+
+販売枠数：1社ジャック
+
+※30分に1回6分間、環境演出映像が流れます。
+
+広告料金：16,000,000円
+
+音声出力：あり</blockquote>
+
+有聲音的話應該是這個價
+
+ <blockquote>販売単位：1週間
+
+販売枠数：1社ジャック
+
+※30分に1回6分間、環境演出映像が流れます。
+
+広告料金：11,000,000円
+
+音声出力：単枠販売の場合は音声出力はできません。</blockquote>
+
+只有大螢幕的話是這個價
+
+*****
+
+####  江口夕  
+##### 13006#       发表于 2025-1-27 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">越来越期待了，和我预想的又有差别了，莫女士看来会蹦跶不少时间
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

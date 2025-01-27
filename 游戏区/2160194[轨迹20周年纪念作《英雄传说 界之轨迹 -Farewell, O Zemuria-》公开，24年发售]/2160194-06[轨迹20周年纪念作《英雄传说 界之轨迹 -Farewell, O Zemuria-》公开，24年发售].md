@@ -737,3 +737,24 @@ PC有解包摘面具了，三人组的身份没啥问题很确定，狙击女的
 论坛助手,iPhone</blockquote>
 SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tehebe  
+##### 7516#       发表于 2025-1-27 10:51
+
+92小时通关，感觉最后2小时是这几年轨迹里最优秀的两个小时了，果然人类的赞歌就是勇气的赞歌
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  古畑任三郎2015  
+##### 7517#       发表于 2025-1-27 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286596&amp;ptid=2160194" target="_blank">風卷豹 发表于 2025-1-27 10:26</a>
+SD会莫名其妙的死机，遇到好几次了。现在都是3步一存盘</blockquote>
+啊对，我也遇到一次，还好有自动存档
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
