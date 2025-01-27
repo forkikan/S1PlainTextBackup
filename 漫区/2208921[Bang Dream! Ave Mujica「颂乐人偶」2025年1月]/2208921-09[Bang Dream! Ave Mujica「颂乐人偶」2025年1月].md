@@ -15142,3 +15142,61 @@ wsd你最好别拉
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  嵇翱u  
+##### 13101#       发表于 2025-1-27 14:06
+
+突然想到有没有可能睦头扔书并非是当前时间线下的事情，而是发生在回忆杀中的故事。
+
+毕竟现在这个莫提斯虽然看起来像是祥子口中那个爱说爱笑的睦，但是莫小姐出场后和祥子的关系实在不像幼驯染，哪怕因为睦崩溃，莫小姐也不至于把幼年玩伴也逼疯了，又不是你死我活的问题大家坐下来好好谈谈放缓一下还是可以说通的。
+
+所以可能是一开始爱说爱笑的睦经历了什么，“分化成了对祥有感情的无口睦”和“爱说爱笑但是没有感情的莫提斯”，而扔书发泄就是回忆中分化的过程。
+
+唯一可惜的是，丢书的睦头人也太大了，怎么看至少也是祥母死后那副样子了，除非说祥母的死是睦“分化”的原因之一。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 13102#       发表于 2025-1-27 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287808&amp;ptid=2208921" target="_blank">ytttsuuuba 发表于 2025-1-27 12:50</a>
+听了几遍，用的第一人称应该就是喵梦自己“にゃむ”</blockquote>
+是大家把人生交给你
+“大家” みんな
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 13103#       发表于 2025-1-27 14:10
+
+丢书和安抚吉他的为啥不能都是莫小姐呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  akiomn  
+##### 13104#       发表于 2025-1-27 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288283&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-1-27 13:54</a>
+正常作者应该不会真写精神病或者突然引入超自然要素吧，要是确认了“精神病”感觉会比“车祸，失忆，绝症” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就mujica这样，前三集已经是为爆而爆了，后面来个祥子失聪都可能
+说不好听mygo时候的女女关系性没多少，只有爆爆爆
+
+*****
+
+####  ytttsuuuba  
+##### 13105#       发表于 2025-1-27 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288369&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-27 14:08</a>
+
+是大家把人生交给你
+
+“大家” みんな</blockquote>
+音质太糊了，那有可能是みんなあんたに
+
