@@ -4505,3 +4505,92 @@ CyberAgent旗下子公司包括 Cygames、AbemaTV、NITRO PLUS等 ​​​
 
 <img src="https://img.saraba1st.com/forum/202501/27/220341wh8r8l58qr43orw3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 331#       发表于 2025-1-27 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290558&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-27 20:31</a>
+不是，你们美国人没有自己的工作站玩你们自由调教的本地ai吗，免得你们这些建政脑残天天网页端刷和谐词
+
+我 ...</blockquote>
+其实+86用户还要实名，海外ip直接邮箱就行
+我之前用ds翻小黄文国内号还被封了，海外的号一点事都没有……
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  阿刚  
+##### 332#       发表于 2025-1-27 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">酒馆有没有别的代餐了啊，卧槽刚弄好鲸鱼哥就被玩死了
+
+*****
+
+####  oh_my_god  
+##### 333#       发表于 2025-1-27 22:09
+
+甚至开始戒断反应了，我现在还想玩ds啊（打滚了
+
+
+*****
+
+####  白色的120  
+##### 334#       发表于 2025-1-27 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291122&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-27 22:06</a>
+酒馆有没有别的代餐了啊，卧槽刚弄好鲸鱼哥就被玩死了</blockquote>
+酒馆目前来说，其实还是用Claude好点，毕竟deepseek相关的预设破限还是少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sellboy  
+##### 335#       发表于 2025-1-27 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291047&amp;ptid=2243718" target="_blank">fallout 发表于 2025-1-27 21:54</a>
+
+我中午开始就提示人多用不了，现在还有点好奇会不会有人恶意喂垃圾内容搞坏ai啊 ...</blockquote>
+
+运行的模型是只读的
+
+对你来说它可更新的认知就只有规定的上下文长度，了不起再加一个联网搜索。
+
+
+*****
+
+####  afer  
+##### 336#       发表于 2025-1-27 22:15
+
+ 本帖最后由 afer 于 2025-1-27 22:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能不能让那群拿来生成古文或者文章的逼滚蛋啊，我GODOT刚学会一些
+
+*****
+
+####  魔灵高达  
+##### 337#       发表于 2025-1-27 22:16
+
+API是有单次对话的tokens数量限制是吧。我输入刘备文给它学习，学不了几章就超了。不过效果还不错，比一步一步教快不少。
+
+我现在是开局告诉它，禁止出现任何数学、科学、科学研究相关的直接描述、比喻、暗喻。
+
+不过吧，我觉得它写的东西太过于追求辞藻，有点像女频刘备，怎么教都还是达不到范文里，用简单平直市井风味十足的文字描写出详细的动作、反应blabla的味道，总之，就作为男性向作品差了点。
+
+这点我觉得是我调教的方式不对，作为使用者也还得多学习啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
