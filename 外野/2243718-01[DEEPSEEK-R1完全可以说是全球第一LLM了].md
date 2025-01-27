@@ -4238,3 +4238,56 @@ API炸了吗，我在酒馆用r1什么回复都没有，换成chat就有回复</
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  黄泉川此方  
+##### 311#       发表于 2025-1-27 21:06
+
+本地部署翻译测试
+
+原文
+<blockquote>CryoGyro: The time-turning head-turner of the trailer, Dialga ex isn’t that much to look at by the raw numbers. 30 damage for two Energy is laughable, and 100 for 4 is just okay; Dialga will struggle to take down exs and stage 2s by itself. That’s where Metallic Turbo’s effect comes in and Dialga’s role becomes clear: an early tank that can set up a stronger or healthier finisher, retreating and getting those last couple Energies for itself to end the game if necessary.
+
+The most obvious targets for Metallic Turbo are fellow types like Melmetal and your second Dialga ex, which will certainly benefit, but there’s one sneaky and unprecedented detail about the attack: it works on Pokemon of any type. While this is unlikely to enable decks with two Energy types given that Metallic Turbo requires two Metal, any Pokemon with a decent colorless attack is fair game. Tauros, Pidgeot ex, Wigglytuff ex, and Mew ex have been floated as potential teammates, and a copy of Mew in particular will probably be an essential inclusion for answering Charizard ex, a terrible matchup for Dialga otherwise.</blockquote>
+
+1.5B
+
+<img src="https://img.saraba1st.com/forum/202501/27/210609ct95bbfprcb9u4hd.png" referrerpolicy="no-referrer">
+
+<strong>1.5B.png</strong> (428.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 21:06 上传
+
+32B
+
+<img src="https://img.saraba1st.com/forum/202501/27/210609j6zd3sj3r5hzihrd.png" referrerpolicy="no-referrer">
+
+<strong>32B.png</strong> (513.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 21:06 上传
+
+70B
+
+<img src="https://img.saraba1st.com/forum/202501/27/210609krsffifp7rdi7ufz.jpg" referrerpolicy="no-referrer">
+
+<strong>70B.jpg</strong> (564.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 21:06 上传
+
+*****
+
+####  abcxiawei  
+##### 312#       发表于 2025-1-27 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290269&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 19:44</a>
+
+线上的，就是我先发一部分设定给他，然后根据他反馈的结果不断给他加注意事项 ...</blockquote>
+线上的如何绕过敏感词？方便私信一下设定过程吗？
+
