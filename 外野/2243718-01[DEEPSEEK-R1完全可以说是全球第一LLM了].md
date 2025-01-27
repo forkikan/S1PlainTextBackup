@@ -2999,3 +2999,26 @@ NPC对话隐藏治疗对话
 我是换成API然后用NGA那帖子里的穿甲咒语成功了，暂且先玩着，这玩意搞NSFW的话很喜欢用一些特别学术的比 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么口味特别重
 
+
+*****
+
+####  木水风铃  
+##### 202#       发表于 2025-1-27 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285557&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-27 02:23</a>
+我是换成API然后用NGA那帖子里的穿甲咒语成功了，暂且先玩着，这玩意搞NSFW的话很喜欢用一些特别学术的比 ...</blockquote>
+我穿甲失败了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+你的咒语是那个更详细连贯的细节吗？还是跟我国内账号有关系
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  jeokeo  
+##### 203#       发表于 2025-1-27 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277708&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-25 23:20</a>
+尝试用本地R1进行R15级别的角色扮演描写，在用胸部涂抹沐浴液的阶段要求具体描写，就遇到BUG了，无限复读， ...</blockquote>
+本地化需要什么配置？有教程没？能否破限？
+
