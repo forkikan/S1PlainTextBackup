@@ -83,3 +83,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Sylpheed  
+##### 18196#       发表于 2025-1-27 23:53
+
+讲真一档反正fa也不看，在垃圾的配置能打完也有1e左右的时速，还20分钟收一次菜。要说精神污染肯定算不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反而这100和150杀鸡速度越来越快才折磨，人均1分钟一只。什么时候第一天就开始打250吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -354,3 +354,16 @@ G=Gundam
 
 什么时候内地能看啊，想看看庵野笔下吉连野望中夏亚的行为啊
 
+
+*****
+
+####  NBGI  
+##### 5941#       发表于 2025-1-27 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291511&amp;ptid=2209276" target="_blank">咖啡配黑鸡 发表于 2025-1-27 23:00</a>
+
+關於GQuuuuuuX名稱意思被猜測了很久, 除了劇中的台詞暗示外, 如果有留意山下一直以來的推文上會發現
+
+真正的 ...</blockquote>
+是的，已经讨论过了，结论就是高达9号机
+
