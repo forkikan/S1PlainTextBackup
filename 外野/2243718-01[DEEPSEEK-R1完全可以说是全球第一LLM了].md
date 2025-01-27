@@ -4314,3 +4314,21 @@ The most obvious targets for Metallic Turbo are fellow types like Melmetal and y
 CryoGyro: The time-turning head-turner of the trailer, Dialga ex isn’t that  ...</blockquote>
 是量化版本吗？
 
+
+*****
+
+####  黄泉川此方  
+##### 315#       发表于 2025-1-27 21:29
+
+ 本帖最后由 黄泉川此方 于 2025-1-27 21:30 编辑 
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290863&amp;ptid=2243718" target="_blank">thermite 发表于 2025-1-27 21:23</a>
+
+是量化版本吗？</blockquote>ollama直接下的，应该是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+DeepSeek-R1-Distill-Qwen-1.5B
+
+DeepSeek-R1-Distill-Qwen-32B
+
+DeepSeek-R1-Distill-Llama-70B
+

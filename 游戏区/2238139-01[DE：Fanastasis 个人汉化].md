@@ -1224,3 +1224,15 @@ https://pan.baidu.com/s/1Cu- ...</blockquote>
 论坛助手,iPhone</blockquote>
 只是看别人推测的程度，我自己懒得去验证<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kikka  
+##### 114#       发表于 2025-1-27 21:35
+
+地图还是设计的很严谨的，比如看到隔壁隐藏宝箱房间的入口都能根据地图比例位置猜测到，甚至可以说这个作者在设计隐藏通道地图这块已经丧心病狂了，喜欢的人是真的喜欢，对一般路人是顶级折磨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+前期卡关可以参考速通视频，[https://www.bilibili.com/video/BV1tBcaecEgG](https://www.bilibili.com/video/BV1tBcaecEgG)
+
+视频中还是老版本，打完摄政阿斯兰之后还有很多后续内容，我估摸着至少还有一半<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
