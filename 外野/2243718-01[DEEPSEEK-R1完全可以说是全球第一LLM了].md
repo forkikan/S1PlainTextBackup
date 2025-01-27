@@ -4975,3 +4975,23 @@ For as the Stars and Stripes fly over rebuilt factories, patrolled borders, and 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  gawain  
+##### 361#       发表于 2025-1-27 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289645&amp;ptid=2243718" target="_blank">千本blur 发表于 2025-1-27 18:08</a>
+deepseek可能现在还不赚钱，
+但是幻方量化开几个空单现在应该已经赚麻了</blockquote>
+速报，英伟达绝赞下跌中，-13%
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  无尽的牙刷  
+##### 362#       发表于 2025-1-27 23:18
+
+竟然网页版能用api用不了
+
