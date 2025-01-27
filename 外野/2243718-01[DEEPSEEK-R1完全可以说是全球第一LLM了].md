@@ -6328,3 +6328,32 @@ tmd，我显卡渣渣，但是内存512g
 
 老马继续暴露无知
 
+
+*****
+
+####  希望之花  
+##### 467#       发表于 2025-1-28 05:06
+
+本地部署对比了下32b和14b，还是32b给的答案更符合<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+所以接下来是租个服务器跑吗，是不是还能炼色图（？）<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  黄泉川此方  
+##### 468#       发表于 2025-1-28 05:08
+
+前端网页插件Page Assist
+
+32B联网对比网页版
+
+<img src="https://img.saraba1st.com/forum/202501/28/050729nbhqqlzddh8l7h7q.jpg" referrerpolicy="no-referrer">
+
+<strong>img0-6b06b929-ef1d-47d8-96f5-09921ed8b559.jpg</strong> (486.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 05:07 上传
+
