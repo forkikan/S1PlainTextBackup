@@ -14580,3 +14580,47 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 
 刚好过年，这不就是春节十二响吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厚乳果珍爽  
+##### 13057#       发表于 2025-1-27 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67287597&amp;ptid=2208921" target="_blank">IWS2000 发表于 2025-1-27 12:27</a>
+
+有喵梦赖上祥子的台词
+
+“你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我绷不住了，怎么还有这样的？大女主是喵梦是吧？
+
+*****
+
+####  SakuraのOrigami  
+##### 13058#       发表于 2025-1-27 12:45
+
+wsd的Lucia在Discord说初华拿手机是在第X话（）
+
+当然，没有透露（）
+
+不过说之后会把在新宿车站投的广告上传到**上，目前只是宣传炒作（）
+
+*****
+
+####  哈曼的YY  
+##### 13059#       发表于 2025-1-27 12:45
+
+<blockquote>IWS2000 发表于 2025-1-27 12:27
+有喵梦赖上祥子的台词
+
+“你不知道吗，我已经把人生给你了，你现在要抛弃我逃走？” ...</blockquote>
+有人指出第一人称用的是我们
+
+*****
+
+####  哈曼的YY  
+##### 13060#       发表于 2025-1-27 12:46
+
+大喵在广告里已经回收倒计时表情 莫姐那个感觉还没到时候
+
+海铃包回收淫笑的
+
