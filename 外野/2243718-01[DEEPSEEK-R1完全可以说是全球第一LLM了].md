@@ -3690,3 +3690,31 @@ gemini啥的都太听话了，给个抖s人设，一句变星怒 ...</blockquote
 
 再试试
 
+
+*****
+
+####  琴酒  
+##### 261#       发表于 2025-1-27 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289297&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-27 17:11</a>
+
+怎么写的啊，我让他出小段子都得拼手速，而且速度快的一批，马上就撤回了 ...</blockquote>
+别用官方用酒馆吧
+
+
+*****
+
+####  断片集  
+##### 262#       发表于 2025-1-27 17:34
+
+api加审查了，梦结束了，得研究破限了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 263#       发表于 2025-1-27 17:36
+
+<blockquote>wildarm 发表于 2025-1-27 17:07
+原来如此啊</blockquote>
+语言大模型问时效性问题都需要联网。至于为什么百度ai准确，因为很多国产商品化的ai都是默认联网搜索的。
+
