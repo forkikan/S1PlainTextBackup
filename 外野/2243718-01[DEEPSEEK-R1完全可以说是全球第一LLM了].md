@@ -3033,3 +3033,15 @@ NPC对话隐藏治疗对话
 我是换成API然后用NGA那帖子里的穿甲咒语成功了，暂且先玩着，这玩意搞NSFW的话很喜欢用一些特别学术的比 ...</blockquote>
 有没有nga帖子的链接，我没搜到<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nanachi  
+##### 205#       发表于 2025-1-27 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67285151&amp;ptid=2243718" target="_blank">colice 发表于 2025-1-27 00:26</a>
+想请教下打算用deepseek写公文的话，有什么好的方式么，网页和app的审查比豆包和Kimi都严格，明明没有违禁 ...</blockquote>
+用api
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
