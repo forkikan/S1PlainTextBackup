@@ -4679,3 +4679,80 @@ DeepSeek以十分之一的成本训练出了媲美GPT-4的模型[3]。前谷歌C
 震惊，看deepseek团队，发现一个我高中的校友，当年我们的市状元，他那届的老师正好教我们这级。我们经常听 ...</blockquote>
 有实习可能
 
+
+*****
+
+####  精钢魔像  
+##### 342#       发表于 2025-1-27 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291174&amp;ptid=2243718" target="_blank">afer 发表于 2025-1-27 22:15</a>
+
+能不能让那群拿来生成古文或者文章的逼滚蛋啊，我GODOT刚学会一些</blockquote>
+读代码也可以用豆包啊
+
+*****
+
+####  jeokeo  
+##### 343#       发表于 2025-1-27 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291158&amp;ptid=2243718" target="_blank">白色的120 发表于 2025-1-27 22:13</a>
+酒馆目前来说，其实还是用Claude好点，毕竟deepseek相关的预设破限还是少
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+克劳德只有已经封号和马上就要被封号两种
+
+*****
+
+####  静滞场  
+##### 344#       发表于 2025-1-27 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290787&amp;ptid=2243718" target="_blank">abcxiawei 发表于 2025-1-27 21:09</a>
+
+线上的如何绕过敏感词？方便私信一下设定过程吗？</blockquote>
+我没有绕过啊，就是把敏感词混在一大堆别的内容里面然后他就会生成了
+
+*****
+
+####  我是快乐小马甲  
+##### 345#       发表于 2025-1-27 22:41
+
+谢写代码真的不行。上来第一个问题稍微改了下的确能成，不过已经出现里面乱声明，写了不用的参数情况，不过这个问题的确chatppt答了几次都没给出正确答案，就觉得deepseek有点东西。。结果后面用了半天，完全崩了，有一种百度搜索首页，shi里掏金的美感。回复的确给了，但是能不能用全看运气，跑不通，改不动，和摇骰子差不多
+
+*****
+
+####  神圣天使书记官  
+##### 346#       发表于 2025-1-27 22:42
+
+已尝试在自己的服务器部署，相当不错，准备升级服务器配置来个大的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 347#       发表于 2025-1-27 22:42
+
+衡水中学出来的那个让很多人破防了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 348#       发表于 2025-1-27 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291378&amp;ptid=2243718" target="_blank">我是快乐小马甲 发表于 2025-1-27 22:41</a>
+
+谢写代码真的不行。上来第一个问题稍微改了下的确能成，不过已经出现里面乱声明，写了不用的参数情况，不过 ...</blockquote>
+不要一直问下去，R1的多轮对话效果一般，可以新开聊天继续
+
+
+*****
+
+####  The_Ether_  
+##### 349#       发表于 2025-1-27 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291109&amp;ptid=2243718" target="_blank">kenqqex 发表于 2025-1-27 22:03</a>
+CyberAgent宣布开始使用DeepSeek
+
+CyberAgent旗下子公司包括 Cygames、AbemaTV、NITRO PLUS等 ​​​</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">翻了翻相关的推特，非常有意思，还有日本人拿来问某海岛把自己整破防了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

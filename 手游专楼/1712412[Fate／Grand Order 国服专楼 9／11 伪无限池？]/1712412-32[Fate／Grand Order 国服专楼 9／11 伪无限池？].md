@@ -158,3 +158,14 @@ CBA＋1<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" ref
 阿比二宝了，有用不</blockquote>
 阿比肯定有用啊，100特攻50自充，每次宝具提升都是提升巨大的。
 
+
+*****
+
+####  sandro  
+##### 46985#       发表于 2025-1-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290140&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-1-27 19:26</a>
+
+阿比肯定有用啊，100特攻50自充，每次宝具提升都是提升巨大的。</blockquote>
+本来都没注意过，原来阿比现在这么猛，必须练起来了
+

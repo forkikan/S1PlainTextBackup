@@ -131,3 +131,14 @@
 
 不过最大的问题还是最后捏个好看的aibo结果天天给你喂屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  碎镜子  
+##### 3330#       发表于 2025-1-27 22:37
+
+先被龙信2创死一次，又要被荒野创死一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+脱光不长记性啊
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
