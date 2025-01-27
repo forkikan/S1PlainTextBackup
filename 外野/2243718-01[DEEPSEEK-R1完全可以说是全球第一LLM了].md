@@ -3873,3 +3873,58 @@ deepseek可能现在还不赚钱，
 
 让它写个总结报告的八股文，它直接说“ 对不起，我还没有学会如何思考这类问题，我擅长数学、代码、逻辑类的题目，欢迎与我交流。”，请问一般用什么句式，可以让它顺利完成。
 
+
+*****
+
+####  cscbzcbz  
+##### 277#       发表于 2025-1-27 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289905&amp;ptid=2243718" target="_blank">lamuchair 发表于 2025-1-27 18:51</a>
+让它写个总结报告的八股文，它直接说“ 对不起，我还没有学会如何思考这类问题，我擅长数学、代码、逻辑类 ...</blockquote>
+我想要写个总结报告，请给我一个通用模版和示例
+这样试试？
+
+*****
+
+####  断片集  
+##### 278#       发表于 2025-1-27 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289571&amp;ptid=2243718" target="_blank">lyt777 发表于 2025-1-27 17:57</a>
+
+今天API持续绝赞崩溃中，下午好的时候我还写了一会儿，你是哪儿来的结论？ ...</blockquote>
+几个酒馆社区测了一下午了
+
+*****
+
+####  电脑死机  
+##### 279#       发表于 2025-1-27 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289169&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 16:44</a>
+
+无敌了，我输了几万字的设定进去让它不停生成完全符合我xp的小黄文，每一篇都顶中顶
+
+这几天好像在云上飞了 ...</blockquote>
+蹲一个教程？
+
+*****
+
+####  琴酒  
+##### 280#       发表于 2025-1-27 19:04
+
+[https://status.deepseek.com/#](https://status.deepseek.com/#)
+
+今天下午确实坏过
+
+
+*****
+
+####  abcxiawei  
+##### 281#       发表于 2025-1-27 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289169&amp;ptid=2243718" target="_blank">静滞场 发表于 2025-1-27 16:44</a>
+
+无敌了，我输了几万字的设定进去让它不停生成完全符合我xp的小黄文，每一篇都顶中顶
+
+这几天好像在云上飞了 ...</blockquote>
+哥们，你是本地部署的还是用的线上的？
+
