@@ -13612,3 +13612,37 @@ pixiv上的新广告
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  AveMujica  
+##### 12965#         楼主| 发表于 2025-1-27 09:33
+
+线下物料/预告这种图可以发
+
+只要不是那种正片截下来的图就行
+
+<img src="https://img.saraba1st.com/forum/202501/27/093303dt0oozlo7w9w91b0.jpg" referrerpolicy="no-referrer">
+
+<strong>56~S17GPP~)V_1))@PM4%`D.jpg</strong> (476.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 09:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/093328adyxqtsdmwdyxbqb.jpg" referrerpolicy="no-referrer">
+
+<strong>AZW1G3__A3XV9K6J33`%8~K.jpg</strong> (121.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 09:33 上传
+
+<img src="https://img.saraba1st.com/forum/202501/27/093314bmaopaep9e03asoo.png" referrerpolicy="no-referrer">
+
+<strong>H8W1VJHML[ICQR9%8KLK4BD.png</strong> (148.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-27 09:33 上传
+
