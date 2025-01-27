@@ -3777,7 +3777,7 @@
     "lastedit": 1737999180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -15012,10 +15012,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 464,
+    "totalreply": 466,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738010050,
+    "lastedit": 1738011009,
     "category": "外野",
     "active": true,
     "update": false
@@ -17388,10 +17388,10 @@
     "update": false
   },
   "2244381": {
-    "totalreply": 254,
+    "totalreply": 255,
     "title": "[英伟达夜盘已经跌了7%]",
     "newtitle": "[英伟达夜盘已经跌了7%]",
-    "lastedit": 1738010050,
+    "lastedit": 1738011249,
     "category": "外野",
     "active": true,
     "update": false

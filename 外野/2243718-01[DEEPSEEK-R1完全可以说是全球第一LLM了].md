@@ -6303,3 +6303,28 @@ api还没恢复么 这网页动不动不能回答 或者撤回也太难受了
 tmd，我显卡渣渣，但是内存512g
 没救了只能api了吧
 
+
+*****
+
+####  riin2  
+##### 465#       发表于 2025-1-28 04:47
+
+[img]blob:[https://bbs.saraba1st.com/a5cfde17-4913-4333-a240-e64112316bd2](https://bbs.saraba1st.com/a5cfde17-4913-4333-a240-e64112316bd2)[/img]
+
+老马继续暴露无知
+
+*****
+
+####  riin2  
+##### 466#       发表于 2025-1-28 04:49
+
+<img src="https://img.saraba1st.com/forum/202501/28/044912kdksk2zq0294n7mi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 04:49 上传
+
+老马继续暴露无知
+
