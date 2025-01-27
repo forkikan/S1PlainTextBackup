@@ -3998,3 +3998,37 @@ API炸了吗，我在酒馆用r1什么回复都没有，换成chat就有回复</
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  黄泉川此方  
+##### 289#       发表于 2025-1-27 19:46
+
+老中邪恶AI已经被人肉DDOS击败<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  requiem116  
+##### 290#       发表于 2025-1-27 19:48
+
+好像是和谐了？我用api写点瑟瑟，之前开的对话死活没有响应，但是新开的对话就可以正常回复
+
+*****
+
+####  景悦风和  
+##### 291#       发表于 2025-1-27 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">是不是只能年后等whale bro加服务器解决了
+
+*****
+
+####  琴酒  
+##### 292#       发表于 2025-1-27 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290299&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-1-27 19:48</a>
+
+好像是和谐了？我用api写点瑟瑟，之前开的对话死活没有响应，但是新开的对话就可以正常回复 ...</blockquote>
+r1 api炸了
+
+v3导入人物卡能写** 但是写着写着就重复
+
