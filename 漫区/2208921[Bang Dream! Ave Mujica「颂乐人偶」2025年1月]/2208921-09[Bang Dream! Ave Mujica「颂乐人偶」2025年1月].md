@@ -14393,3 +14393,58 @@ https://shunkosha.co.jp/column/ad-board/column-40637
 
 因为她是个大小姐啊(喝咖啡)
 
+
+*****
+
+####  rushsong  
+##### 13038#       发表于 2025-1-27 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286780&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-27 10:46</a>
+现在祥子这么软糯到时候硬起来人气爆炸，现在就看剩下4个的人设咋救或者要不要救了 ...</blockquote>
+不会，这种桥段来一次可以第二次就会让人感觉重复了，说实话就算是祥子支棱起来她的黑也不会变少，因为前面的塑造太伤了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 13039#       发表于 2025-1-27 11:51
+
+少女乐队的核心是乐队和少女，其他的都是外边的一层皮，别真被包装纸唬到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  rollingusagi  
+##### 13040#       发表于 2025-1-27 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士大小眼怼脸这张，这不是那啥噔噔咚冲击性的事实吗，不会真走背裤衩那个路子吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  嵇翱u  
+##### 13041#       发表于 2025-1-27 11:54
+
+看了遍地铁广告，别人都挺带感的，怎么感觉就海玲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+编剧“海玲，你的任务就是和立希粘一块，别的事你就不用管了”
+
+*****
+
+####  Ein·Dalton  
+##### 13042#       发表于 2025-1-27 11:55
+
+其实大祥老师也是精神病，她的精神穿梭于奇幻的ave mujica世界和现实世界，纠结痛苦的祥子在母亲的墓碑前发出内心深处的呐喊：“妈我分不清，我真的分不清啊啊啊啊啊”<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 13043#       发表于 2025-1-27 11:56
+
+沟槽的炒作狗
+
