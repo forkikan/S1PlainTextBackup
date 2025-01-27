@@ -3286,3 +3286,51 @@ deepseek r1最重要的意义在于它打破了美国某些人说“ai技术上�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qz66618  
+##### 228#       发表于 2025-1-27 14:27
+
+API接口是崩了吗，为什么我的一直在转圈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  魔灵高达  
+##### 229#       发表于 2025-1-27 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288474&amp;ptid=2243718" target="_blank">qz66618 发表于 2025-1-27 14:27</a>
+
+API接口是崩了吗，为什么我的一直在转圈
+
+—— 来自 鹅球 v3.3.96</blockquote>
+网页也崩了，用的人实在太多了
+
+*****
+
+####  qz66618  
+##### 230#       发表于 2025-1-27 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288483&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-27 14:29</a>
+网页也崩了，用的人实在太多了</blockquote>
+好吧，刚刚在调cline，我还以为是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  moeblack  
+##### 231#         楼主| 发表于 2025-1-27 14:35
+
+[https://moeblack.github.io/LMTDS/](https://moeblack.github.io/LMTDS/)
+
+以前有不懂的问百度 以后有不懂的问AI .jpg
+
+顺便 
+[https://status.deepseek.com/#](https://status.deepseek.com/#)
+
+点击查看deepseek被大型人肉DDOS现状
+
