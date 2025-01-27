@@ -6365,3 +6365,33 @@ tmd，我显卡渣渣，但是内存512g
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">现在好是好了破甲没用了啊，他开始跳各种提示了
 
+
+*****
+
+####  qqks  
+##### 470#       发表于 2025-1-28 06:31
+
+ 本帖最后由 qqks 于 2025-1-28 06:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292713&amp;ptid=2243718" target="_blank">希望之花 发表于 2025-1-28 05:06</a>
+
+本地部署对比了下32b和14b，还是32b给的答案更符合
+
+所以接下来是租个服务器跑吗，是不是还能炼色图（？）</blockquote>
+租到服务器的话跑这个不是更好？
+
+[https://huggingface.co/unsloth/D ... eepSeek-R1-UD-IQ1_S](https://huggingface.co/unsloth/DeepSeek-R1-GGUF/tree/main/DeepSeek-R1-UD-IQ1_S)
+
+[1.58bit DeepSeek R1 - 131GB 动态 GGUF : r/LocalLLaMA --- 1.58bit DeepSeek R1 - 131GB Dynamic GGUF : r/LocalLLaMA (reddit.com)](https://www.reddit.com/r/LocalLLaMA/comments/1ibbloy/158bit_deepseek_r1_131gb_dynamic_gguf/)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 2|好我去试试|
+
+查看全部评分
+
