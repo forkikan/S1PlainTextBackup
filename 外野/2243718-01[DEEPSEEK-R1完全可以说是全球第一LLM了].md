@@ -4176,3 +4176,65 @@ deepseek可能现在还不赚钱，
 
 好像又好了，下午的时候怎么样都不能直出小黄文的，一直会回复道歉和相关规定啥的，刚才api突然变得很流畅，而且又能直出了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 306#       发表于 2025-1-27 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">api为啥一直提示Token budget exceeded,接口官网也直接404了
+
+*****
+
+####  变老的大二  
+##### 307#       发表于 2025-1-27 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290664&amp;ptid=2243718" target="_blank">qratosones1337 发表于 2025-1-27 20:54</a>
+
+英伟达盘前跌了百分之十几了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+科技股市值已经预期要蒸发1.2万亿美元了。。。
+
+
+*****
+
+####  琴酒  
+##### 308#       发表于 2025-1-27 21:02
+
+DeepSeek 网页不可用（DeepSeek Web Service Not Available） Subscribe
+
+Monitoring - The chat service has recovered.
+
+The account service still has some problem. You may not login or setup at this time. 
+
+Jan 27, 2025 - 20:55 CST
+
+Investigating - We are currently investigating this issue. 
+
+Jan 27, 2025 - 20:16 CST
+
+被玩坏了 人太多了
+
+*****
+
+####  王苍幻  
+##### 309#       发表于 2025-1-27 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67239740&amp;ptid=2243718" target="_blank">sellboy 发表于 2025-1-21 17:27</a>
+联网搜索的模型是V3</blockquote>
+可是V3模型太大了，没法本地部署吧<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  王苍幻  
+##### 310#       发表于 2025-1-27 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67290192&amp;ptid=2243718" target="_blank">妄想中毒 发表于 2025-1-27 19:34</a>
+API炸了吗，我在酒馆用r1什么回复都没有，换成chat就有回复</blockquote>
+已经404了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
