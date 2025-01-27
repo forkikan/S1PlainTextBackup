@@ -6063,3 +6063,80 @@ v3不能瑟瑟
 
 2025-1-28 02:32 上传
 
+
+*****
+
+####  Nintendo新手  
+##### 443#       发表于 2025-1-28 02:38
+
+网页API似乎修好了，但是chatbox本地api开始无法调用reasoner了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  moeblack  
+##### 444#         楼主| 发表于 2025-1-28 02:39
+
+<blockquote>仓岛千百合 发表于 2025-1-28 02:30
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+ ...</blockquote>
+你用个1.5或者4b试一试就可以了，你32b太为难你的显卡
+
+*****
+
+####  gammatau  
+##### 445#       发表于 2025-1-28 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292544&amp;ptid=2243718" target="_blank">仓岛千百合 发表于 2025-1-28 02:30</a>
+
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+ ...</blockquote>
+本地部署就看你催眠术的水平了
+
+*****
+
+####  仓岛千百合  
+##### 446#       发表于 2025-1-28 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292565&amp;ptid=2243718" target="_blank">gammatau 发表于 2025-1-28 02:40</a>
+
+本地部署就看你催眠术的水平了</blockquote>
+能举个例子吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OrianaThomson  
+##### 447#       发表于 2025-1-28 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292544&amp;ptid=2243718" target="_blank">仓岛千百合 发表于 2025-1-28 02:30</a>
+
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+ ...</blockquote>
+32B还是得配置高点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓岛千百合  
+##### 448#       发表于 2025-1-28 02:43
+
+ 本帖最后由 仓岛千百合 于 2025-1-28 02:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292563&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 02:39</a>
+
+你用个1.5或者4b试一试就可以了，你32b太为难你的显卡</blockquote>
+请问怎么删掉这个32B的内容在重新下。<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzxmly  
+##### 449#       发表于 2025-1-28 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292544&amp;ptid=2243718" target="_blank">仓岛千百合 发表于 2025-1-28 02:30</a>
+
+已经本地部署了，试用了一下，为啥比在线版慢很多啊，在线一下就出来一堆字，这个两个字两个字的往外蹦。
+
+ ...</blockquote>
+应该是显存不够吧.你的GPU没法把整个网络都放到显存里,所以推理的过程中就会不断的有数据在内存和显存之间交换,这个过程挺慢的.
+

@@ -397,3 +397,11 @@ G=Gundam
 麻球泡澡是不是高达系列第一次出现？5ch说高达系列一直都是淋浴，泡澡是为了表达麻球家的地位 ...</blockquote>
 塞西莉泡澡
 
+
+*****
+
+####  AvenueIII  
+##### 5945#       发表于 2025-1-28 02:39
+
+说到泡澡，这次GQX还会有杀必死杀必死环节吗，丽出浴、法子撕衣之类的。麻球也很瑟，老害们不要屈服啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
