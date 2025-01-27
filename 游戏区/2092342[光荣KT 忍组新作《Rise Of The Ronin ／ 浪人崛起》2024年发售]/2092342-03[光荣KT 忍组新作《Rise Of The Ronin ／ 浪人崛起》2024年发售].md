@@ -121,3 +121,13 @@
 
 买个捏脸玩吧，虽然人物驼背当暖暖都够呛。
 
+
+*****
+
+####  真田源次郎信繁  
+##### 3329#       发表于 2025-1-27 22:29
+
+总觉得浪人崛起捏脸捏不出仁王2那么好看的
+
+不过最大的问题还是最后捏个好看的aibo结果天天给你喂屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
