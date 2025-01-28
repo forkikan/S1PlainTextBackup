@@ -7960,3 +7960,14 @@ d瘾犯了，收钱也行啊让我玩玩吧<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">服务器又繁忙了，开个会员通道也行啊
 
+
+*****
+
+####  XSH97  
+##### 608#       发表于 2025-1-29 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301904&amp;ptid=2243718" target="_blank">Mafise 发表于 2025-1-29 00:42</a>
+
+那现在有哪些云平台部署了ds r1啊，官网api挂了玩不了好急</blockquote>
+前面的不是有提到华为吗，那上面的可以用，不过审查比较厉害
+
