@@ -16784,3 +16784,42 @@ GO第12话的演出分镜啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 13238#       发表于 2025-1-28 13:07
+
+看了那个车站宣传视频感觉初华确实有秘密，但不是什么叙诡之类的东西，就是单纯的她可能有什么不光彩的事瞒着祥子，后面被揭出来崩溃了（虽然我也不想猜她是发主唱太拼命的那个人，感觉她看到灯反应很正常），青春期小女孩害怕让别人看到自己没那么光彩的一面还挺合理的，海铃好像没啥事，睦还是和自己内心斗，喵梦应该是有外部变故，可能是因为媒体曝光了她的家庭背景导致家人受牵连，也可能是事业不顺
+
+*****
+
+####  miro112233  
+##### 13239#       发表于 2025-1-28 13:08
+
+ 本帖最后由 miro112233 于 2025-1-28 13:11 编辑 
+
+mujica作为新一代银河战舰，新歌是赶工的，乐队是没有固定排练时间的，到演出前一天才发现吉他手是突然弹不了吉他的，因此乐队原地解散<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ykn&amp;楚平方：你们在开什么邦邦玩笑
+
+
+*****
+
+####  ayachi  
+##### 13240#       发表于 2025-1-28 13:12
+
+都是为了赶在第四集结束光速乐队解散这碟醋包的饺子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ml1642879  
+##### 13241#       发表于 2025-1-28 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293950&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-1-28 11:56</a>
+个人印象里，kalafina 不就是稀里糊涂地散了吗？</blockquote>
+然后前段时间稀里糊涂的复活
+

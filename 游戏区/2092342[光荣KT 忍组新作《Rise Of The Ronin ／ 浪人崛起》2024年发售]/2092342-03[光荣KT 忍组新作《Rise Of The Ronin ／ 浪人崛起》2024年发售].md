@@ -397,3 +397,11 @@ IMG_4655.jpeg
 
 这些方面确实是下了功夫的，最后的综合体验怎么就搞成这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 3352#       发表于 2025-1-28 13:10
+
+ps5上浪人崛起96g，pc竟然180g，往好了考虑是画质增强了，往坏考虑是暴力移植放弃素材压缩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
