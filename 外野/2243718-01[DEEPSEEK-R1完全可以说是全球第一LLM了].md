@@ -7391,3 +7391,26 @@ https://huggingface.co/NaniDA ...</blockquote>
 
 市面上主流机翻，API都有
 
+
+*****
+
+####  琴酒  
+##### 552#       发表于 2025-1-28 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295143&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 15:15</a>
+
+有个小说家穿甲弹……nga架设楼里第二楼就是，那玩意就不需要对话直接出文 ...</blockquote>
+现在r1api不能用
+
+v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
+
+现在要么写不了什么 要么写了一段后之后开始重复
+
+
+*****
+
+####  KioShiMa  
+##### 553#       发表于 2025-1-28 15:30
+
+V3就是一个段落反复重复用，有点精污
+
