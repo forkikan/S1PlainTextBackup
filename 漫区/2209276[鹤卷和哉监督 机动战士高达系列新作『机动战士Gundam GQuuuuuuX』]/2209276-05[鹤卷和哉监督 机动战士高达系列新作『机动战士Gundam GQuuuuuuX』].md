@@ -641,3 +641,58 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 2025-1-28 17:36 上传
 
+
+*****
+
+####  岸浪白野  
+##### 5965#       发表于 2025-1-28 17:50
+
+本物の無茶苦茶
+
+<img src="https://img.saraba1st.com/forum/202501/28/175021vjbj0tjzk0lhkqh0.png" referrerpolicy="no-referrer">
+
+<strong>)RN{RRGB@}IGN8[$DRT@U65.png</strong> (263.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:50 上传
+
+
+*****
+
+####  岸浪白野  
+##### 5966#       发表于 2025-1-28 17:54
+
+这揉虾二创很火啊
+
+[X 上的 ひるげ：“[url]https://t.co/QYW7erYVrn](https://x.com/hiruge_2525/status/1883860632954667313)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/28/175328ye6vo9pxou94ag9o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/175353n21li2ibvqrqf0tt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:53 上传
+
+*****
+
+####  Toby_dak  
+##### 5967#       发表于 2025-1-28 17:56
+
+ 本帖最后由 Toby_dak 于 2025-1-28 18:58 编辑 
+<blockquote>引用第5962楼0aleph37于2025-01-28 17:56发表的  :
+
+本帖最后由 0aleph37 于 2025-1-28 16:59 编辑 有看过的漏油对麻球收到的短信......</blockquote>
+应该说不是短信SMS而是LINE类似物，内容是英文。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

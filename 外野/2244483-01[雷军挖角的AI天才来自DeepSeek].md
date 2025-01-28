@@ -432,3 +432,28 @@ V3的时候就知道罗福利不在deepseek了，大模型领导人物年薪千�
 
 雨田君好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拘翼  
+##### 44#       发表于 2025-1-28 17:55
+
+假设这天才是关键人物，那国运差点被挖走了，小米这是因祸得福吧，没有犯下大罪。
+
+*****
+
+####  hgfdsa  
+##### 45#       发表于 2025-1-28 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295727&amp;ptid=2244483" target="_blank">佛剑分说 发表于 2025-1-28 17:09</a>
+
+如果这会儿还没被挖走的话，应该就挖不走了吧……怎么看离开现在的团队跑去小米搞AI都是不怎么靠谱的事情（ ...</blockquote>
+可以去顺为搞金融，deepseek的本行呢
+
+*****
+
+####  moguu  
+##### 46#       发表于 2025-1-28 17:57
+
+幽默军军这也能营销
+

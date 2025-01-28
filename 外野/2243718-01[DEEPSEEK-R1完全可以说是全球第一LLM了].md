@@ -7541,3 +7541,24 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 火了之后，速度明显慢了，还可能报错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 566#       发表于 2025-1-28 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295947&amp;ptid=2243718" target="_blank">Orianna 发表于 2025-1-28 17:47</a>
+火了之后，速度明显慢了，还可能报错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要还是美国人小心眼，一直在攻击，API都用不了好久了
+
+
+*****
+
+####  Orianna  
+##### 567#       发表于 2025-1-28 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295965&amp;ptid=2243718" target="_blank">沙发果冻 发表于 2025-1-28 17:51</a>
+
+主要还是美国人小心眼，一直在攻击，API都用不了好久了</blockquote>
+我以为是用的人太多，显卡不够用了
+
