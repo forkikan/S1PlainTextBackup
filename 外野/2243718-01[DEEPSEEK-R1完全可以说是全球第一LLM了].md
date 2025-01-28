@@ -7805,3 +7805,30 @@ token数1024好像建议是，本地的话单次生成的多也没啥用，会�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 哈哈哈，就是要逼一逼才行
 
+
+*****
+
+####  中二骚年  
+##### 595#       发表于 2025-1-29 00:25
+
+阿里平台上提供的deepseek-r1是在阿里云上部署的嘛？
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  neptunehs  
+##### 596#       发表于 2025-1-29 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301523&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-1-29 00:11</a>
+token数1024好像建议是，本地的话单次生成的多也没啥用，会重复或者跑题</blockquote>
+好 试试看
+
+
+*****
+
+####  qratosones1337  
+##### 597#       发表于 2025-1-29 00:30
+
+所以现在有哪些托管的R1 API可以用吗，完整版
+
