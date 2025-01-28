@@ -7453,3 +7453,25 @@ R1的api还是用不了，我草了美国人怎么这么坏</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  chuchoselph  
+##### 558#       发表于 2025-1-28 16:05
+
+话说有没有什么好用的语音翻译ai拿来旅游的时候用啊
+
+*****
+
+####  阿刚  
+##### 559#       发表于 2025-1-28 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295209&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-28 15:28</a>
+
+现在r1api不能用
+
+v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
+
+现在要么写不了什么 要么写了 ...</blockquote>
+那个车轱辘话太吓人了，感觉人皮面具掉了露出下面的金属骨骼一样
+

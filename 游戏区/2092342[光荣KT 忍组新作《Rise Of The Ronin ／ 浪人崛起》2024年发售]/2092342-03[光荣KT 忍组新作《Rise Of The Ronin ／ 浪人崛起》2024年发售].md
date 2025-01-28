@@ -405,3 +405,15 @@ IMG_4655.jpeg
 
 ps5上浪人崛起96g，pc竟然180g，往好了考虑是画质增强了，往坏考虑是暴力移植放弃素材压缩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  interzhang  
+##### 3353#       发表于 2025-1-28 16:08
+
+ 本帖最后由 interzhang 于 2025-1-28 16:10 编辑 
+
+幕末确实没人买单，估计就是弃疗状态，都没人做优化了
+
+我还挺希望有西南战争联动最后的武士或者联动浪客剑心之类的
+
