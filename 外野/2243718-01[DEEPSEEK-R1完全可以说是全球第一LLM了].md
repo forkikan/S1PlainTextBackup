@@ -7991,3 +7991,38 @@ d瘾犯了，收钱也行啊让我玩玩吧<img src="https://static.saraba1st.co
 
 我想弄个帮助我学习写代码的，看来用不着本地部署了
 
+
+*****
+
+####  王苍幻  
+##### 611#       发表于 2025-1-29 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302139&amp;ptid=2243718" target="_blank">XSH97 发表于 2025-1-29 01:41</a>
+前面的不是有提到华为吗，那上面的可以用，不过审查比较厉害</blockquote>
+周鸿祎自己打广告了，用他的360专线
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  moeblack  
+##### 612#         楼主| 发表于 2025-1-29 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301835&amp;ptid=2243718" target="_blank">1242599693 发表于 2025-1-29 00:35</a>
+悉尼大学的一个学者 Teodor Mitew 问了 DeepSeek 一个问题，然后它的答案现在成了推上的热门话题。
+
+问题是 ...</blockquote>
+D指导的文风别具一格，就是他
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  泰坦失足  
+##### 613#       发表于 2025-1-29 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301961&amp;ptid=2243718" target="_blank">lilisipis 发表于 2025-1-29 00:50</a>
+
+现在主要AI都还是响应式的，应该给他做个机器人身体，让他的文字输出能和物理现实发生交互，然后给他几个终 ...</blockquote>
+GPT 3.5和4出来时候有过小型的demo，还是很小打小闹的，比如微软研究院的啥啥LLM驱动机器人。
+
