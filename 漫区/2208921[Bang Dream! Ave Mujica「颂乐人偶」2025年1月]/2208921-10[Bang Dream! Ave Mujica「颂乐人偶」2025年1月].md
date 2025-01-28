@@ -799,3 +799,24 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 其实如果不是A团组团原因和钱有那么大关系，剧里又整的那么商业化，大概大家也不会关注这个吧
 
+
+*****
+
+####  huxiaopao163  
+##### 13388#       发表于 2025-1-29 03:18
+
+感觉解散还是有阴谋在里面的，只是没有在第五集立刻解密。
+
+这可能是整个故事的核心诡计，需要在最好的舞台、最好的时机再爆出来
+
+*****
+
+####  akiomn  
+##### 13389#       发表于 2025-1-29 03:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302256&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-29 03:18</a>
+感觉解散还是有阴谋在里面的，只是没有在第五集立刻解密。
+
+这可能是整个故事的核心诡计，需要在最好的舞台 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有人阴谋故意拆团的代价是什么？变成soyo那样，得飞鸟山复刻了
+
