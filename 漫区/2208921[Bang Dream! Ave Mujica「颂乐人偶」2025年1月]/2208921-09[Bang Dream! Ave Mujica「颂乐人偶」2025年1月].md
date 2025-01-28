@@ -16823,3 +16823,14 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 个人印象里，kalafina 不就是稀里糊涂地散了吗？</blockquote>
 然后前段时间稀里糊涂的复活
 
+
+*****
+
+####  厚乳果珍爽  
+##### 13242#       发表于 2025-1-28 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294063&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-1-28 12:12</a>
+
+今天醒的时候在床上想了想，其实鸡团的许多问题，比如管理混乱，成员工作压力大，不服从管理，没有心理疏导 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台长出视频批判的时候，第一个核心问题就是大人的缺失。
+
