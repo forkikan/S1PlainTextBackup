@@ -7164,3 +7164,35 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  vava  
+##### 535#       发表于 2025-1-28 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294279&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-28 12:46</a>
+类脑现在进不了 没地方找了</blockquote>
+确实不好找，只能去小社区打野有啥用啥了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  泰坦失足  
+##### 536#       发表于 2025-1-28 14:09
+
+试了下APP，一上来就支持邮箱/手机注册账号密码后登录+google/Apple登录。而不是byd“我们只支持手机号验证码登录哟，什么密码管理器，不知道的”。先封一个人类之光再说
+
+
+*****
+
+####  无敌大法师  
+##### 537#       发表于 2025-1-28 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293088&amp;ptid=2243718" target="_blank">黑茶子 发表于 2025-1-28 09:34</a>
+
+这一波，是不是有点像美剧硅谷的第一集，突然一个横空出世的新公司把业界大佬提出的压缩技术的理论最小体积 ...</blockquote>
+也没那么新，而且后面的剧情太狗血了相对ds而言
+
+但确实有这种感觉
+
