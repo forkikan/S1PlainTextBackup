@@ -6585,3 +6585,34 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 
 上周三前后的，那时候还可以直接写黄文的样子，可以问我
 
+
+*****
+
+####  吴怀在  
+##### 484#       发表于 2025-1-28 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293116&amp;ptid=2243718" target="_blank">机吉斯卡 发表于 2025-1-28 09:39</a>
+
+我找到了
+
+上周三前后的，那时候还可以直接写黄文的样子，可以问我</blockquote>
+求私信。感谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  机吉斯卡  
+##### 485#       发表于 2025-1-28 09:49
+
+<blockquote>吴怀在 发表于 2025-1-28 09:48
+求私信。感谢</blockquote>
+直接发帖了，群里老哥说的确是硅基写的出来的玩意
+
+*****
+
+####  羽出  
+##### 486#       发表于 2025-1-28 09:51
+
+什么？曾经能写黄文？
+
+我前几天开始玩，别说黄文，稍微带一点身体特征描写都不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
