@@ -717,3 +717,24 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 <img src="https://p.sda1.dev/21/6902c87caa69683d09fc7cb5624ecc9d/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/08edeb600c9892d38cc151cf3074ff65/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maritimus  
+##### 13382#       发表于 2025-1-29 01:26
+
+新年快乐，期待mujica新的一集
+
+*****
+
+####  江口夕  
+##### 13383#       发表于 2025-1-29 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67299052&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-28 21:46</a>
+第四集最后那段能藏的就喵梦海玲和莫提斯的私下谈话，其他真没什么好藏的，不管是谁和谁联合起来演莫提斯或 ...</blockquote>
+这里本来就是大猫对大祥80场景，如果不把矛头转向莫女士，大猫人设就完了。
+
+在队长朋友，你的队友疑似精神病的情况，不管你有什么大道理，不管你多么确定她是装的，都不应该这个时候发难。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
