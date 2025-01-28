@@ -7739,3 +7739,25 @@ API是不是还用不了?
 
 开放平台都打不开了，直接说正在维护，API也是一直报废状态中
 
+
+*****
+
+####  abcxiawei  
+##### 589#       发表于 2025-1-28 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294081&amp;ptid=2243718" target="_blank">Risa 发表于 2025-1-28 12:16</a>
+
+我建议你还是老老实实API加穿甲弹。这是因为酒馆这类文字RP玩法，其实对AI的逻辑能力，智商和反馈能力要 ...</blockquote>
+请问什么是穿甲弹？
+
+*****
+
+####  neptunehs  
+##### 590#       发表于 2025-1-28 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67299930&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-1-28 22:38</a>
+之前问deepseek，如果是lm studio的话可能是没正确设置停止词，再就是把最大tokens调小点还有重复惩罚调 ...</blockquote>
+让他写文章 token少了可以么
+
+顺便写了个拜年短信 还不错（
+
