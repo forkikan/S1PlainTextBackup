@@ -964,3 +964,11 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 这张同人麻球气质真不错</blockquote>
 有种下一秒就要操作高达拍番茄下来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 5990#       发表于 2025-1-29 01:21
+
+其实如果真的能确定是9号机之外还想看这作把8号机拉出来
+
