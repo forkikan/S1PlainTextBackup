@@ -298,3 +298,79 @@ mygo人原谅祥子蒜不蒜毁人设<img src="https://static.saraba1st.com/imag
 
 如果真的就靠丰川的大手来解决商业问题，能不能顺便让丰川接下C团解散的锅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，直接让老登发话，你不能回去找C团的人，睦因为青梅竹马逃过一劫
 
+
+*****
+
+####  yaneis  
+##### 13348#       发表于 2025-1-28 21:35
+
+对赌如果也闹麻的话其实从go13集开始就已经闹麻了（
+
+*****
+
+####  十九号大侠  
+##### 13349#       发表于 2025-1-28 21:36
+
+这大人元素加了，又感觉没加，怪
+
+*****
+
+####  swessia  
+##### 13350#       发表于 2025-1-28 21:37
+
+mygo是双线，也就是说除了祥子外还有一条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是谁呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 13351#       发表于 2025-1-28 21:37
+
+mygo是双线，也就是说除了祥子外还有一条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是谁呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 13352#       发表于 2025-1-28 21:37
+
+mygo是双线，也就是说除了祥子外还有一条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是谁呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 13353#       发表于 2025-1-28 21:37
+
+mygo是双线，也就是说除了祥子外还有一条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是谁呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ntrntr1  
+##### 13354#       发表于 2025-1-28 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67298530&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-28 21:15</a>
+
+别忘了Mujica是真火了，就算钱有可能是丰川家出的，Mujica是实打实的有那么多观众买票来看，实际上烧的肯 ...</blockquote>
+像武道馆或者巨蛋这样的场馆，本身门票是不一定能盈利的，一般需要再加上周边签售之类的才能赚钱。。。。尤其一个月爆火这种前期可能会投入大量宣发，虽然我不看乐队，但偶像团体一般前期都是在烧钱的，因为代言之类的后期才能接到，通告如果是去刷脸的应该拿的钱也不多
+
+当然别用现实世界的逻辑看动画片就对了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 不然按照现实世界的逻辑，祥子这种速度其实是资本砸钱都砸不出来的，肯定是惊世天才。。。但这样的天才外加还能拉投资的理论上还有实权的，队里0人认同，天天被骑脸，太幽默了
+
+*****
+
+####  ntrntr1  
+##### 13355#       发表于 2025-1-28 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67298530&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-28 21:15</a>
+
+别忘了Mujica是真火了，就算钱有可能是丰川家出的，Mujica是实打实的有那么多观众买票来看，实际上烧的肯 ...</blockquote>
+像武道馆或者巨蛋这样的场馆，本身门票是不一定能盈利的，一般需要再加上周边签售之类的才能赚钱。。。。尤其一个月爆火这种前期可能会投入大量宣发，虽然我不看乐队，但偶像团体一般前期都是在烧钱的，因为代言之类的后期才能接到，通告如果是去刷脸的应该拿的钱也不多
+
+当然别用现实世界的逻辑看动画片就对了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
