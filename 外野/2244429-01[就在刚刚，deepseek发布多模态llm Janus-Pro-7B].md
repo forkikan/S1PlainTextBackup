@@ -490,3 +490,11 @@ diffusion 好处的地方也是普惠，后面社区加了很多方案让生成�
 答案：丰川祥子</blockquote>
 ob一串字母小姐太坏了
 
+
+*****
+
+####  泰坦失足  
+##### 45#       发表于 2025-1-28 12:59
+
+已经刷到好几个卖课博主在那里发视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。Deepseek的人知道它们这个7B模型在文字理解上战胜了GPT 4V/4o吗。（超越了Dall-E 3这点倒是真的，毕竟Dall-E 2出来就被SD等模型盖过，后来从卖极为昂贵的次数变成了买ChatGPT plus就送的玩意了，和免费同行的文生图片也差不多一个水平）
+
