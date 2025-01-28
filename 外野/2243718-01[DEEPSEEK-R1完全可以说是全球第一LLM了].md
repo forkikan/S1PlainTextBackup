@@ -7323,3 +7323,37 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 据说有个里层的类脑社区？
 
+
+*****
+
+####  jeokeo  
+##### 546#       发表于 2025-1-28 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294279&amp;ptid=2243718" target="_blank">琴酒 发表于 2025-1-28 12:46</a>
+类脑现在进不了 没地方找了</blockquote>
+是打不开还是有个里层的不让加？
+
+
+*****
+
+####  机吉斯卡  
+##### 547#       发表于 2025-1-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294967&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-1-28 14:40</a>
+
+私一下，谢谢
+
+这个第一次听说</blockquote>
+我发的那个帖子就是，我也不知他们是如何做到的
+
+*****
+
+####  万恶淫猥手  
+##### 548#       发表于 2025-1-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294153&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-28 12:27</a>
+https://www.reddit.com/r/LocalLL ... ablated_uncensored/  相关的讨论串
+
+https://huggingface.co/NaniDA ...</blockquote>
+感谢分享
+
