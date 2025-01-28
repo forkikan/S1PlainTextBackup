@@ -7204,3 +7204,22 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">太爽了，丢代码让他给注释一下，不用自己写了。定位、功能解释都自动生成。还是全中文的
 
+
+*****
+
+####  XSH97  
+##### 539#       发表于 2025-1-28 14:26
+
+翻译插件调用api现在直接挂了
+
+*****
+
+####  妄想中毒  
+##### 540#       发表于 2025-1-28 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293847&amp;ptid=2243718" target="_blank">王苍幻 发表于 2025-1-28 11:42</a>
+两张卡叠加可以么？我旧显卡还没卖
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+没搞过，你可以问问ds行不行<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

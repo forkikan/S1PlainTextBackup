@@ -16920,3 +16920,39 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KLHgg  
+##### 13249#       发表于 2025-1-28 14:27
+
+各种采访拉满来者不拒挤占乐队练习
+
+演唱会临近前又说要重视观众
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子只要全身心投入乐队就会自己运转好，可是喵梦要口嗨的事情就很多了
+
+*****
+
+####  阿兹尔  
+##### 13250#       发表于 2025-1-28 14:30
+
+以鸡目前表现出来的商业化乐队部分，感觉像一个运用了孩之宝偷胶技术的纸壳车
+
+
+*****
+
+####  pokemon最爱  
+##### 13251#       发表于 2025-1-28 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294275&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-28 12:45</a>
+
+商业性看喵梦不就知道了。还拿她和某a团紫毛比的，人3姐炸团时怎么也是团内有成绩的。这喵梦怎么看都是团内 ...</blockquote>
+我个人是猜测母鸡卡初期人气可能是喵梦引流过来的（参考第一集的爱音）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 13252#       发表于 2025-1-28 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个商业化就是为了炸团这醋包的饺子，甚至还包括就为了引爆睦，而睦的疑似双重人格莫提斯也是为了炸团（要我更极端点，疑似双重人格这设定一出来，莫提斯坏事做尽也是制作组为了不让睦背锅，对比前三集的喵梦祥子风评爆炸和边缘ob的海玲初华，制作组想法太搞笑了）
+
