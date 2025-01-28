@@ -6670,3 +6670,35 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 
 金正恩元帅教导我们："不是芯片决定命运，而是思想决定芯片！"在这科技革命的暴风雨中，R1大模型正如千里马时代的电动拖拉机，将碾碎一切技术霸权主义的毒麦，让我们唱着《赤诚之心》的旋律，向着人工智能主体化的最高峰奋勇前进！
 
+
+*****
+
+####  abcxiawei  
+##### 490#       发表于 2025-1-28 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292565&amp;ptid=2243718" target="_blank">gammatau 发表于 2025-1-28 02:40</a>
+
+本地部署就看你催眠术的水平了</blockquote>
+如何催眠？不方便的话能私信交流吗？
+
+
+*****
+
+####  abcxiawei  
+##### 491#       发表于 2025-1-28 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292616&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 03:03</a>
+
+我的建议是直接用官方的api，官方api可以SESE的</blockquote>
+我在官方web上几次尝试让它sese，都被它用政策不允许绕过去了，能否私信教一下如何让它sese？
+
+
+*****
+
+####  妄想中毒  
+##### 492#       发表于 2025-1-28 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293221&amp;ptid=2243718" target="_blank">asion617 发表于 2025-1-28 10:09</a>
+4070是不是跑32b有点勉强</blockquote>
+32B至少24G显存，你12G就别想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
