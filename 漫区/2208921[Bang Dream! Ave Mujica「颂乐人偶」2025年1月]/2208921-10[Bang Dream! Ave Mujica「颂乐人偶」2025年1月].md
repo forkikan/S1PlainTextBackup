@@ -522,3 +522,118 @@ TGW是啥？</blockquote>
 
 c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话说清楚的节点都要瘪着个嘴当谜语人
 
+
+*****
+
+####  天空塔书记官  
+##### 13368#       发表于 2025-1-29 00:39
+
+漏油们新年快乐，楼下回复“新年快乐”散10鹅，让我看看还有多少人没睡
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 13369#       发表于 2025-1-29 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">先别急着开莫小姐香槟，从后面睦的反应来看，莫小姐还是被睦憎恨的可能性很大。八成就是反派塑造了，不仅仅是雌小鬼的程度
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  AveMujica  
+##### 13370#         楼主| 发表于 2025-1-29 00:41
+
+祝各位漏油新年快乐，希望新的一年母鸡卡能蝉蜕蛇解，别再和第四集那样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烂片雷达  
+##### 13371#       发表于 2025-1-29 00:42
+
+新年快乐<img src="https://static.saraba1st.com/image/smiley/goose2017/028.png" referrerpolicy="no-referrer">
+第一次收鹅，有点小激动<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|新年快乐＋2|
+
+查看全部评分
+
+*****
+
+####  嵇翱u  
+##### 13372#       发表于 2025-1-29 00:42
+
+新年快乐，要看到母鸡卡完结哦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|新年快乐+3|
+
+查看全部评分
+
+*****
+
+####  Toki_Ai  
+##### 13373#       发表于 2025-1-29 00:44
+
+新年快乐，希望母鸡卡能好好的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|新年快乐+1+3|
+
+查看全部评分
+
+*****
+
+####  zhoujin8584  
+##### 13374#       发表于 2025-1-29 00:46
+
+<blockquote>山ノ内花音 发表于 2025-1-28 21:22
+所以说到底 有什么非解散不可的理由吗 没人劝劝？</blockquote>
+是没有存在的理由了
+
+初华：只想要和祥子在一起，乐队组合两头跑反而没精力**做的事
+
+海铃：虽然很想有能让自己为之烦恼的乐队，但是前面雇佣兵也经历得多了，母鸡卡的魅力还没到这份上
+
+喵梦：这两大小姐闹矛盾连不会弹吉他的双重人格都整出来了，真是闹麻了
+
+祥：（软糯）我……想要睦回来（事到如今觉悟了没有所爱之人的母鸡卡已经没有了为之努力的理由了）
+
+睦：……玩乐队从未觉得开心过，墨提斯也真的不会弹吉他
+
+*****
+
+####  zhoujin8584  
+##### 13375#       发表于 2025-1-29 00:47
+
+新年快乐！
+
