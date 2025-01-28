@@ -6847,3 +6847,71 @@ R1的API还没有好
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  机吉斯卡  
+##### 507#       发表于 2025-1-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293715&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-28 11:27</a>
+
+我好奇这下子iphone会不会一刀把文心割了要不自己跑开源要么和ds合作</blockquote>
+去年末就说找其他AI了，不想找百度了
+
+*****
+
+####  机吉斯卡  
+##### 508#       发表于 2025-1-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293729&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-1-28 11:29</a>
+
+能切了，真买一台苹果，ds的对话太有意思了。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我都怀疑苹果是不是找DS了
+
+*****
+
+####  泰坦失足  
+##### 509#       发表于 2025-1-28 11:36
+
+我不怎么使用GGUF这种能部分载入的，我更喜欢能完全载入到显存的。用的是Qwen官方对于 int4 GPTQ所需要的显存，如果是GGUF部分载入，算下CPU+GPU内存+显存就行. 后面应该会有量化到1.5bit 2bit的牺牲性能换来更小显存需求的版本。让GPT根据文档画的图，用英文标题是因为它的代码执行模块没有中文字体
+
+<img src="https://img.saraba1st.com/forum/202501/28/113120m14kixoxz4g00g00.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (136.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:31 上传
+
+
+*****
+
+####  王苍幻  
+##### 510#       发表于 2025-1-28 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293329&amp;ptid=2243718" target="_blank">妄想中毒 发表于 2025-1-28 10:35</a>
+32B至少24G显存，你12G就别想了</blockquote>
+两张卡叠加可以么？我旧显卡还没卖<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Gmlazy  
+##### 511#       发表于 2025-1-28 11:42
+
+想尝试一下，4090D这个水平的显卡可以本地使用酒馆搭配DeepSeek吗?
+
+*****
+
+####  moeblack  
+##### 512#         楼主| 发表于 2025-1-28 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293849&amp;ptid=2243718" target="_blank">Gmlazy 发表于 2025-1-28 11:42</a>
+想尝试一下，4090D这个水平的显卡可以本地使用酒馆搭配DeepSeek吗?</blockquote>
+不行，不灵动
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

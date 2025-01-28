@@ -16543,3 +16543,32 @@ CGディレクター：大森 大地
 
 第六张是哔哩哔哩特供版
 
+
+*****
+
+####  本间日阳  
+##### 13215#       发表于 2025-1-28 11:36
+
+ 本帖最后由 本间日阳 于 2025-1-28 11:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">啊，这个神秘人有单集脚本了。
+这个晴日たに在mygo动画被列为脚本之一，一开始被写作同音的春日たに，没有负责单集脚本，也查不到任何信息。只能查到绫奈提过有一次popipa的live幕间剧场是这人写的。
+这人虽然有个推特，但基本上是空的。
+
+*****
+
+####  dewaydu  
+##### 13216#       发表于 2025-1-28 11:36
+
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1jiFpemEj5/?spm_id_from=333.337.search-card.all.click)
+
+由于实在对第四话的压轴文戏的处理过分不满意于是自己下场改了一下（
+
+
+*****
+
+####  凉良  
+##### 13217#       发表于 2025-1-28 11:42
+
+这还扯nm现实呢 商业团可以这样子说解散就解散啊
+

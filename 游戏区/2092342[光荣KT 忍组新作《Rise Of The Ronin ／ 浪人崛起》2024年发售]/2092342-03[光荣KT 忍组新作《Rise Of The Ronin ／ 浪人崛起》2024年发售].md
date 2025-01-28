@@ -374,3 +374,11 @@ IMG_4655.jpeg
 
 <img src="https://img.saraba1st.com/forum/202501/28/103534akt9kkmpfctuc1kr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 3350#       发表于 2025-1-28 11:35
+
+180G？？？暗荣你塞了什么玩意儿在里面比博3还大？？？不会是DLC不会吧？？？
+
