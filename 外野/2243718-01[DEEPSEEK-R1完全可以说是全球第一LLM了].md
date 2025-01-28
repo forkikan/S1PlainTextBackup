@@ -7432,3 +7432,24 @@ V3就是一个段落反复重复用，有点精污
 
 R1的api还是用不了，我草了美国人怎么这么坏<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 556#       发表于 2025-1-28 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295303&amp;ptid=2243718" target="_blank">Hqchan 发表于 2025-1-28 15:52</a>
+R1的api还是用不了，我草了美国人怎么这么坏</blockquote>
+人家亏了几千亿刀，来你服务器DDoS一下不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moeblack  
+##### 557#         楼主| 发表于 2025-1-28 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295303&amp;ptid=2243718" target="_blank">Hqchan 发表于 2025-1-28 15:52</a>
+R1的api还是用不了，我草了美国人怎么这么坏</blockquote>
+亏红了也不允许别人发泄一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
