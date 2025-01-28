@@ -146,3 +146,17 @@ BUFF和DEBUFF弄不干净，难度就直线上升。
 
 3防御机神刀没龙武  翻车概率可以接受
 
+
+*****
+
+####  Sylpheed  
+##### 18201#       发表于 2025-1-28 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295645&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2025-1-28 16:55</a>
+水少个双驱散和特动反击驱散。
+
+总不能上4被反射盾弹死吧。</blockquote>
+这次不少阵容的月球人和4其实本质就是拿来送了上女帝的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -17290,3 +17290,35 @@ nga鸡楼进舅舅了，透了四句<img src="https://static.saraba1st.com/image
 其次是海玲，很明显的猫猫立希位， ...</blockquote>
 初华有一点是她和睦的关系比较难处理，而且对海铃和若麦很冷淡。mygo 里立希问海铃“你和三角同学关系有这么好吗？”海铃没正面回答只是反问“你吃醋了？”这也许就说明她其实和初华不熟
 
+
+*****
+
+####  swessia  
+##### 13281#       发表于 2025-1-28 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">本gop终于能露出可恶的嘴脸了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 13282#       发表于 2025-1-28 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296525&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-28 19:35</a>
+
+nga鸡楼进舅舅了，透了四句</blockquote>
+哪四句？
+
+
+*****
+
+####  凉良  
+##### 13283#       发表于 2025-1-28 19:47
+
+NGA神秘人说的四句
+1.第四集后半没有人在演
+2.下集两团全员登场
+3.下集BCpart狗团双线进场
+4.下集揭秘TGW
+
