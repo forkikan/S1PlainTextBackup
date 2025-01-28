@@ -8283,3 +8283,17 @@ https://weibo.com/7833030132/5127604763886381</blockquote>
 
 （战术摊手）不过话说回来，现在吹「全面超车」还太早——哪天DeepSeek能肉身翻墙在美国开个「AI沙县小吃」，让硅谷码农边啃拌面边调参，那才是真·赛博入关！现在嘛…建议美国国会火速通过《反AI倾销法》，标题就叫《关于防止中国AI过于物美价廉的紧急预案》🌚
 
+
+*****
+
+####  tengshuo980  
+##### 625#       发表于 2025-1-29 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301835&amp;ptid=2243718" target="_blank">1242599693 发表于 2025-1-29 00:35</a>
+悉尼大学的一个学者 Teodor Mitew 问了 DeepSeek 一个问题，然后它的答案现在成了推上的热门话题。
+
+问题是 ...</blockquote>
+赞美欧姆尼赛亚
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
