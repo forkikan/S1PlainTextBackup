@@ -420,3 +420,31 @@ G=Gundam
 
 都露胖次卡胸口了，必然会有杀必死的
 
+
+*****
+
+####  PascalLefèvre  
+##### 5948#       发表于 2025-1-28 07:58
+
+很快就会有麻球撕衣的二创的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咖啡配黑鸡  
+##### 5949#       发表于 2025-1-28 08:09
+
+山下育人：
+
+第二弹特典开头竹的人设那几页，定稿阶段中主角传闻的欧派尺寸是可以被观测到的
+
+GQ欧派uuuuuuX
+
+<img src="https://img.saraba1st.com/forum/202501/28/080944fd8vstcp44vt1816.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-28-08-03-24-07_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (317.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 08:09 上传
+

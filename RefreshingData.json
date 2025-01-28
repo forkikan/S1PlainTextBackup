@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 14213,
+    "totalreply": 14214,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1737992183,
+    "lastedit": 1738023135,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 12250,
+    "totalreply": 12251,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1737996608,
+    "lastedit": 1738023131,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10638,10 +10638,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 5947,
+    "totalreply": 5949,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1738022291,
+    "lastedit": 1738023135,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10737,10 +10737,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 40554,
+    "totalreply": 40555,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1738021329,
+    "lastedit": 1738023135,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12055,15 +12055,6 @@
     "title": "[日本迎来东部战区游客]",
     "newtitle": "[日本迎来东部战区游客]",
     "lastedit": 1736864527,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2219431": {
-    "totalreply": 61,
-    "title": "[【醍醐灌顶】听了我的故事后，你再也不想看黃色片了]",
-    "newtitle": "[【醍醐灌顶】听了我的故事后，你再也不想看黃色片了]",
-    "lastedit": 1736813537,
     "category": "外野",
     "active": false,
     "update": false
@@ -14985,10 +14976,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 475,
+    "totalreply": 478,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738020011,
+    "lastedit": 1738023373,
     "category": "外野",
     "active": true,
     "update": false
@@ -16187,7 +16178,7 @@
     "newtitle": "[这次大对账，还有一大回旋镖就是房产所有权和房产税吧？]",
     "lastedit": 1737764178,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2243961": {
@@ -17118,10 +17109,10 @@
     "update": false
   },
   "2244291": {
-    "totalreply": 288,
+    "totalreply": 289,
     "title": "[柯洁遭判负 LG杯余震： 1-中国停止韩援 2-棋协宣传办涉事人停职 3-梦百合禁赛卞相壹]",
     "newtitle": "[柯洁遭判负LG杯余震： 1-中国联赛停止韩援 2-棋协宣传办涉事人停职 3-梦百合禁赛卞相壹]",
-    "lastedit": 1738021810,
+    "lastedit": 1738023373,
     "category": "外野",
     "active": true,
     "update": false
@@ -17361,10 +17352,10 @@
     "update": false
   },
   "2244381": {
-    "totalreply": 281,
+    "totalreply": 283,
     "title": "[英伟达夜盘已经跌了7%]",
     "newtitle": "[英伟达夜盘已经跌了7%]",
-    "lastedit": 1738022770,
+    "lastedit": 1738023370,
     "category": "外野",
     "active": true,
     "update": false
@@ -17424,10 +17415,10 @@
     "update": false
   },
   "2244405": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[我实在是不能理解国内电视是怎么想的]",
     "newtitle": "[我实在是不能理解国内电视是怎么想的]",
-    "lastedit": 1738022412,
+    "lastedit": 1738023010,
     "category": "外野",
     "active": true,
     "update": false
@@ -17460,10 +17451,10 @@
     "update": false
   },
   "2244393": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[大家的年一番是哪部？]",
     "newtitle": "[大家的年一番是哪部？]",
-    "lastedit": 1738022889,
+    "lastedit": 1738023488,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17492,6 +17483,15 @@
     "newtitle": "[AI助手百团大战还在继续，KIMI这个月20天花了1个亿投放宣传]",
     "lastedit": 1738014611,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2244380": {
+    "totalreply": 41,
+    "title": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
+    "newtitle": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
+    "lastedit": 1738023250,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

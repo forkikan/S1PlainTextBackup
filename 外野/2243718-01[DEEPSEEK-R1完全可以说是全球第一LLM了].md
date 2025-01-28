@@ -6442,3 +6442,94 @@ tmd，我显卡渣渣，但是内存512g
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿刚  
+##### 476#       发表于 2025-1-28 08:04
+
+<img src="https://img.saraba1st.com/forum/202501/28/080358yb3pg363gj2pk33j.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128080336.png</strong> (94.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/080358pb05w9q5909nbq4q.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128080340.png</strong> (61.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:03 上传
+
+ 啥情况？？网页版能用是因为这个？被夺舍了？？还是说他在演我？这也太奇怪了吧
+
+
+*****
+
+####  阿刚  
+##### 477#       发表于 2025-1-28 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我彻底迷茫了到底是深度思维在演我还是真的说漏嘴了
+
+这是第一个问题
+
+<img src="https://img.saraba1st.com/forum/202501/28/081047eqzplqqqblblzs1p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128080854.png</strong> (84.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:10 上传
+
+我一开始没当回事，然后追问了下
+
+这是第二个问题
+
+<img src="https://img.saraba1st.com/forum/202501/28/081110shrqhzn6n6a81vrx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128080857.png</strong> (84.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:11 上传
+
+然后我发现他居然开始忽悠我
+
+第三个问题他直接被打断了深度思考然后我重新发了一下思考内容就没了直接是答案
+
+<img src="https://img.saraba1st.com/forum/202501/28/081149iazigiykckka0dyz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128080911.png</strong> (47.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:11 上传
+
+然后第四个问题他就直接反过来了
+
+<img src="https://img.saraba1st.com/forum/202501/28/081205q3737ivqimgvgrvu.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250128081011.png</strong> (74.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 08:12 上传
+
+我尼玛什么情况啊
+
+*****
+
+####  Rafale  
+##### 478#       发表于 2025-1-28 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292882&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 08:12</a>
+我彻底迷茫了到底是深度思维在演我还是真的说漏嘴了
+
+这是第一个问题我一开始没当回事，然后追问了下
+
+这是第 ...</blockquote>
+第一次用吧?多用几个其他家的就习惯了
+
