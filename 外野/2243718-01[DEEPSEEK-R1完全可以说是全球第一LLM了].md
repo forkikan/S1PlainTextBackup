@@ -6616,3 +6616,15 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 
 我前几天开始玩，别说黄文，稍微带一点身体特征描写都不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  机吉斯卡  
+##### 487#       发表于 2025-1-28 09:56
+
+<blockquote>羽出 发表于 2025-1-28 09:51
+什么？曾经能写黄文？
+
+我前几天开始玩，别说黄文，稍微带一点身体特征描写都不行 ...</blockquote>
+你看我那个贴，上周三前后有老哥试过，什么词都行，不知道他是不是本地部署的
+
