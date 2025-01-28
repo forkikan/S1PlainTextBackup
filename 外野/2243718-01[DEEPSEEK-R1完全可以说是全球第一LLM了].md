@@ -7196,3 +7196,11 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 但确实有这种感觉
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 538#       发表于 2025-1-28 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">太爽了，丢代码让他给注释一下，不用自己写了。定位、功能解释都自动生成。还是全中文的
+
