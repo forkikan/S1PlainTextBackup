@@ -465,3 +465,16 @@ V3的时候就知道罗福利不在deepseek了，大模型领导人物年薪千�
 
 <img src="https://p.sda1.dev/21/d7461d13f02a0fb051caf4bbe1d9c69d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyb  
+##### 48#       发表于 2025-1-28 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294974&amp;ptid=2244483" target="_blank">FeteFete 发表于 2025-1-28 14:41</a>
+v3出了的时候，这个新闻就已经有了，当时知乎评论底下就有人在恭喜大佬
+
+某些人差不多打拳打打得了，还ai  ...</blockquote>
+你这话术味也太大了。
+就算不是也过于符合仙女叙事刻板印象
+

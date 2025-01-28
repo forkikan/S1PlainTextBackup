@@ -17249,3 +17249,17 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 
 官方又开始弄🐶时期那种的竖屏短视频宣传了
 
+
+*****
+
+####  akiomn  
+##### 13277#       发表于 2025-1-28 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296062&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-1-28 18:08</a>
+重组阻力最大的应该还是初华，毕竟她是纯为了祥子，没了乐队说不定对她还更有利。第二是睦，不过不管是设定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恰好相反，地铁cm里初华台词反而说明她是留守在mujica的，压根没离开
+其次是海玲，很明显的猫猫立希位，都被莫提斯点出了只是想要个归宿，只是海玲没被人点醒，被点醒后是回来最简单的。
+难度最大的是睦，不管是双重人格还是演技，编剧必须给出个让观众信服的理由把坑填了，不然被祥子嘴炮归队太容易了
+
+归队不是问题，问题在该怎么让观众信服这角色能归队了
+
