@@ -7496,3 +7496,15 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 我昨天晚上才开始试着用DeepSeek生成小说，强确实是强，但是有一个问题，就是这货每次都不按给定的大纲走。 ...</blockquote>
 我也想问，我发现他写小甜文工业糖精小段子这个赛道简直无敌了，把我撩的脸红心跳的，有这个还要什么乙游，但是稍微长一点的文章就完全不行
 
+
+*****
+
+####  moeblack  
+##### 562#         楼主| 发表于 2025-1-28 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295361&amp;ptid=2243718" target="_blank">chuchoselph 发表于 2025-1-28 16:05</a>
+话说有没有什么好用的语音翻译ai拿来旅游的时候用啊</blockquote>
+豆包，无敌
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
