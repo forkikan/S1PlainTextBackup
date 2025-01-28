@@ -3777,7 +3777,7 @@
     "lastedit": 1737999180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -7115,7 +7115,7 @@
     "newtitle": "[对马岛之鬼讨论帖]",
     "lastedit": 1737766928,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2166463": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 130023,
+    "totalreply": 130024,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738025419,
+    "lastedit": 1738026131,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9855,10 +9855,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 8575,
+    "totalreply": 8576,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1738024696,
+    "lastedit": 1738026013,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10737,10 +10737,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 40562,
+    "totalreply": 40563,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1738024455,
+    "lastedit": 1738026011,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11912,15 +11912,6 @@
     "newtitle": "[现在CV唱歌一姐是谁啊]",
     "lastedit": 1736940870,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2238201": {
-    "totalreply": 67,
-    "title": "[一个未曾遇到的套路／骗局]",
-    "newtitle": "[一个未曾遇到的套路／骗局]",
-    "lastedit": 1736816673,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -17343,10 +17334,10 @@
     "update": false
   },
   "2244381": {
-    "totalreply": 294,
+    "totalreply": 295,
     "title": "[英伟达夜盘已经跌了7%]",
     "newtitle": "[英伟达夜盘已经跌了7%]",
-    "lastedit": 1738025175,
+    "lastedit": 1738026491,
     "category": "外野",
     "active": true,
     "update": false
@@ -17433,28 +17424,28 @@
     "update": false
   },
   "2244329": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[古墓丽影重启第三部很差吗？]",
     "newtitle": "[古墓丽影重启第三部很差吗？]",
-    "lastedit": 1738001052,
+    "lastedit": 1738026369,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2244393": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[大家的年一番是哪部？]",
     "newtitle": "[大家的年一番是哪部？]",
-    "lastedit": 1738025651,
+    "lastedit": 1738026013,
     "category": "漫区",
     "active": true,
     "update": false
   },
   "2244296": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[说起来AI绘图目前压根没有达到预期所想吧？]",
     "newtitle": "[说起来AI绘图目前压根没有达到预期所想吧？]",
-    "lastedit": 1738025419,
+    "lastedit": 1738026013,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17478,19 +17469,19 @@
     "update": false
   },
   "2244380": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
     "newtitle": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
-    "lastedit": 1738025049,
+    "lastedit": 1738026369,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2244424": {
-    "totalreply": 51,
+    "totalreply": 53,
     "title": "[迅雷将以 5 亿元人民币收购虎扑]",
     "newtitle": "[迅雷将以 5 亿元人民币收购虎扑]",
-    "lastedit": 1738025771,
+    "lastedit": 1738026131,
     "category": "外野",
     "active": true,
     "update": false
@@ -17500,6 +17491,15 @@
     "title": "[就在刚刚，deepseek发布多模态llm Janus-Pro-7B]",
     "newtitle": "[就在刚刚，deepseek发布多模态llm Janus-Pro-7B]",
     "lastedit": 1738025176,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2243698": {
+    "totalreply": 41,
+    "title": "[大家年底大扫除搞完了吗？]",
+    "newtitle": "[大家年底大扫除搞完了吗？]",
+    "lastedit": 1738026491,
     "category": "外野",
     "active": true,
     "update": false
