@@ -731,3 +731,25 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 串楼了吗（）
 
+
+*****
+
+####  bird-lay  
+##### 5971#       发表于 2025-1-28 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67288910&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-1-27 15:56</a>
+
+那这么说感觉牙齿设定更像是被要求的噱头啊，staff自己是不怎么看重的，张嘴露牙的可能性反而小了 ...</blockquote>
+应该不是，台词专门说了它有牙
+
+*****
+
+####  0aleph37  
+##### 5972#       发表于 2025-1-28 20:28
+
+很难想象高达装个牙的意义是什么？
+
+纯机械造学Eva暴走咆哮吗？
+
+（虽然肯定GQX应该还有什么没启动
+

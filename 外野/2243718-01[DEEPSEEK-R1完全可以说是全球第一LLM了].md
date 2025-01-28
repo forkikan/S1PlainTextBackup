@@ -7590,3 +7590,56 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 感觉貌似回来了？连续两个问题都可以正常输出当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  fallout  
+##### 571#       发表于 2025-1-28 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好烦啊刚上瘾就一直停止思考
+
+
+*****
+
+####  Andariel  
+##### 572#       发表于 2025-1-28 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">谷歌邮箱还是收不到注册验证码...
+
+
+*****
+
+####  leakleak  
+##### 573#       发表于 2025-1-28 20:34
+
+华为主要是被客户逼的，大批客户要求上线部署 deepseek<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  leakleak  
+##### 574#       发表于 2025-1-28 20:34
+
+华为主要是被客户逼的，大批客户要求上线部署 deepseek<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  leakleak  
+##### 575#       发表于 2025-1-28 20:34
+
+华为主要是被客户逼的，大批客户要求上线部署 deepseek<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  leakleak  
+##### 576#       发表于 2025-1-28 20:34
+
+华为主要是被客户逼的，大批客户要求上线部署 deepseek<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

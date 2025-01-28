@@ -17460,3 +17460,34 @@ mortis就是幼稚小鬼<img src="https://static.saraba1st.com/image/smiley/face
 
 第六集看完沉默 第七集黑色生日肉眼可见要抽陀螺 放风就放到这了
 
+
+*****
+
+####  一心而用  
+##### 13300#       发表于 2025-1-28 20:25
+
+新年快乐！
+<img src="https://p.sda1.dev/21/d5cd08a487c88d33fea4ae5b05944871/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cc87514c9d635d3bfc6cebfc3e30f35b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 13301#       发表于 2025-1-28 20:28
+
+第四集你说 mortis 是真的急了而不是在拱火真的败观感，相当于异度侵入前期给 JW 明显的胡子造型，最后出来个胡子造型一样的局长然后堂堂揭秘说他是 JW 一样败兴。
+
+
+*****
+
+####  ntrntr1  
+##### 13302#       发表于 2025-1-28 20:31
+
+ 本帖最后由 ntrntr1 于 2025-1-28 20:32 编辑 
+
+反正都这种魔幻双重人格了。干嘛不捏个魅力魔女或者现在流行的女鬼疯批呢。。。卖谷也能爆卖啊
+
+虽然我挺喜欢幼稚小鬼的但这个小鬼味儿也不够纯正啊
+
+还我小睦
+
