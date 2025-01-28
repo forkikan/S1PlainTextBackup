@@ -752,3 +752,19 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 难不成在某种意义上也是一个乐队世界系？
 
+
+*****
+
+####  ShikiM  
+##### 13385#       发表于 2025-1-29 01:59
+
+新年快乐
+
+<img src="https://img.saraba1st.com/forum/202501/29/015938r97qbi54ariy0yc4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8634.jpeg</strong> (347.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 01:59 上传
+
