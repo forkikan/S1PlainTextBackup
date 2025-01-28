@@ -6533,3 +6533,14 @@ tmd，我显卡渣渣，但是内存512g
 这是第 ...</blockquote>
 第一次用吧?多用几个其他家的就习惯了
 
+
+*****
+
+####  阿刚  
+##### 479#       发表于 2025-1-28 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292884&amp;ptid=2243718" target="_blank">Rafale 发表于 2025-1-28 08:13</a>
+
+第一次用吧?多用几个其他家的就习惯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">所以这个深度思考也是在忽悠人的是吧
+
