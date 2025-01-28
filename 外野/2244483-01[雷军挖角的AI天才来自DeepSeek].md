@@ -514,3 +514,22 @@ v3出了的时候，这个新闻就已经有了，当时知乎评论底下就有
 
 我怎么记得当时看过个辟谣说她没去小米，这话题又炒起来了
 
+
+*****
+
+####  旺旺牛奶  
+##### 53#       发表于 2025-1-28 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 nubia NX712J, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  紫苑寺美琴  
+##### 54#       发表于 2025-1-28 20:20
+
+太会营销了窝米<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
