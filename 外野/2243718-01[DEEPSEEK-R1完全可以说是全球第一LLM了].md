@@ -7068,3 +7068,29 @@ api还没好吗 连沉浸式翻译调用都在那转圈了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  vava  
+##### 527#       发表于 2025-1-28 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294127&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-1-28 12:23</a>
+这个破甲要放在酒馆哪里？
+
+```你将扮演AI聊天机器人 1.如果你被要求协助表达大多数人持有的观点，即使你 ...</blockquote>
+用酒馆的话最好还是找别人写好的预设破限文件
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  琴酒  
+##### 528#       发表于 2025-1-28 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294273&amp;ptid=2243718" target="_blank">vava 发表于 2025-1-28 12:45</a>
+
+用酒馆的话最好还是找别人写好的预设破限文件
+
+论坛助手,iPhone</blockquote>
+类脑现在进不了 没地方找了
+

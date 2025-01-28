@@ -16764,3 +16764,13 @@ GO第12话的演出分镜啊
 
 —— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  akiomn  
+##### 13236#       发表于 2025-1-28 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五集先行预告，睦好像抱着吉他哭哭？
+
+同情不了一点了，不管是内心世界哭哭还是现实都是，第四集莫提斯和喵梦配合抽祥子陀螺看的我已经逆反了
+
