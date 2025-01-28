@@ -7508,3 +7508,20 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thermite  
+##### 563#       发表于 2025-1-28 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295523&amp;ptid=2243718" target="_blank">Tomorrow_D 发表于 2025-1-28 16:33</a>
+
+我昨天晚上才开始试着用DeepSeek生成小说，强确实是强，但是有一个问题，就是这货每次都不按给定的大纲走。 ...</blockquote>
+欢迎使用LLM，注意力涣散是LLM不得不品尝的一道美味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+要么你告诉它你只能输出XX字以下，然后你继续引导它生成下一段
+
+要么你用类似于酒馆这类前端，让它在不同阶段触发不同的关键字去限制它
+
+人写文写嗨了都会跑题，更何况AI呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

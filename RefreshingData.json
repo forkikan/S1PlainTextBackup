@@ -3777,7 +3777,7 @@
     "lastedit": 1737999180,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -7461,10 +7461,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 13266,
+    "totalreply": 13267,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
-    "lastedit": 1738044738,
+    "lastedit": 1738056851,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 130108,
+    "totalreply": 130109,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738056257,
+    "lastedit": 1738056850,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9855,10 +9855,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 8591,
+    "totalreply": 8593,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1738052414,
+    "lastedit": 1738056611,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10008,10 +10008,10 @@
     "update": false
   },
   "2191728": {
-    "totalreply": 120,
+    "totalreply": 121,
     "title": "[新•首都高赛车 正式公布，预计2025年发售。（RX-7 Type RZ FD3S收录PV发布）]",
     "newtitle": "[专楼新•首都高赛车 已发售抢鲜体验（已有新车、BOSS解包）]",
-    "lastedit": 1738023852,
+    "lastedit": 1738056975,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10737,10 +10737,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 41378,
+    "totalreply": 41393,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1738056496,
+    "lastedit": 1738056975,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13361,7 +13361,7 @@
     "newtitle": "[最近云了拳皇系列的全剧情，挺感慨的]",
     "lastedit": 1737797422,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2242524": {
@@ -14652,10 +14652,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 562,
+    "totalreply": 563,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738055533,
+    "lastedit": 1738056975,
     "category": "外野",
     "active": true,
     "update": false
@@ -16479,10 +16479,10 @@
     "update": false
   },
   "2244147": {
-    "totalreply": 89,
+    "totalreply": 91,
     "title": "[高速堵车交通运输部门不能想想办法吗]",
     "newtitle": "[高速堵车交通运输部门不能想想办法吗]",
-    "lastedit": 1738051338,
+    "lastedit": 1738056735,
     "category": "外野",
     "active": true,
     "update": false
@@ -17100,10 +17100,10 @@
     "update": false
   },
   "2244373": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[ZT：欧洲佬自嘲落后于中美AI大战梗图系列]",
     "newtitle": "[ZT：欧洲佬自嘲落后于中美AI大战梗图系列（打靶的官图]",
-    "lastedit": 1738055536,
+    "lastedit": 1738056973,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,10 +17163,10 @@
     "update": false
   },
   "2244380": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
     "newtitle": "[【送福利】杉果福袋￥34.9抽《怪猎：荒野》！留言赢取《终焉之玛格诺利亚》]",
-    "lastedit": 1738053494,
+    "lastedit": 1738056611,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2244462": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[韩国棋院就LG杯事件致歉]",
     "newtitle": "[韩国棋院就LG杯事件致歉]",
-    "lastedit": 1738043300,
+    "lastedit": 1738056735,
     "category": "外野",
     "active": true,
     "update": false
@@ -17298,10 +17298,19 @@
     "update": false
   },
   "2244490": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[第一次由衷的感谢我国基层体制]",
     "newtitle": "[第一次由衷的感谢我国基层体制]",
-    "lastedit": 1738056376,
+    "lastedit": 1738056975,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2244483": {
+    "totalreply": 41,
+    "title": "[雷军挖角的AI天才来自DeepSeek]",
+    "newtitle": "[雷军挖角的AI天才来自DeepSeek]",
+    "lastedit": 1738056736,
     "category": "外野",
     "active": true,
     "update": false
