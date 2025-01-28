@@ -16956,3 +16956,43 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个商业化就是为了炸团这醋包的饺子，甚至还包括就为了引爆睦，而睦的疑似双重人格莫提斯也是为了炸团（要我更极端点，疑似双重人格这设定一出来，莫提斯坏事做尽也是制作组为了不让睦背锅，对比前三集的喵梦祥子风评爆炸和边缘ob的海玲初华，制作组想法太搞笑了）
 
+
+*****
+
+####  山ノ内花音  
+##### 13253#       发表于 2025-1-28 14:38
+
+说到底 有什么非要解散的理由吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 13254#       发表于 2025-1-28 14:39
+
+不解散怎么重组 
+
+*****
+
+####  osore  
+##### 13255#       发表于 2025-1-28 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">史上最狂，pua观众
+
+
+*****
+
+####  阿兹尔  
+##### 13256#       发表于 2025-1-28 14:42
+
+突然发现这个团组起来的理由还在找，也没有散的理由，重组的理由等后面揭晓
+
+*****
+
+####  KLHgg  
+##### 13257#       发表于 2025-1-28 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294958&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-28 14:38</a>
+
+说到底 有什么非要解散的理由吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">即使没做过调研，喵梦打心底觉得观众就爱看表演而祥子不允许，那不就有理由解散了
+

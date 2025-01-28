@@ -498,3 +498,25 @@ ob一串字母小姐太坏了
 
 已经刷到好几个卖课博主在那里发视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。Deepseek的人知道它们这个7B模型在文字理解上战胜了GPT 4V/4o吗。（超越了Dall-E 3这点倒是真的，毕竟Dall-E 2出来就被SD等模型盖过，后来从卖极为昂贵的次数变成了买ChatGPT plus就送的玩意了，和免费同行的文生图片也差不多一个水平）
 
+
+*****
+
+####  小妻水亚美  
+##### 46#       发表于 2025-1-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294376&amp;ptid=2244429" target="_blank">泰坦失足 发表于 2025-1-28 12:59</a>
+已经刷到好几个卖课博主在那里发视频了。Deepseek的人知道它们这个7B模型在文字理解上战胜了GPT 4V/4o吗。 ...</blockquote>
+编辑了
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  蜇灵  
+##### 47#       发表于 2025-1-28 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292241&amp;ptid=2244429" target="_blank">570898 发表于 2025-1-28 01:01</a>
+答案：丰川祥子</blockquote>
+懂了，祥爹是去投资美股了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
