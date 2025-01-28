@@ -688,3 +688,32 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 [https://x.com/Sakuma07071/status/1884238105546567812](https://x.com/Sakuma07071/status/1884238105546567812)
 
+
+*****
+
+####  小小雪空  
+##### 13380#       发表于 2025-1-29 00:58
+
+新年快乐！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|新年快乐＋7|
+
+查看全部评分
+
+*****
+
+####  一心而用  
+##### 13381#       发表于 2025-1-29 01:01
+
+新年快乐
+<img src="https://p.sda1.dev/21/6902c87caa69683d09fc7cb5624ecc9d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/08edeb600c9892d38cc151cf3074ff65/image.jpg" referrerpolicy="no-referrer">
+

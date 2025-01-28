@@ -7942,3 +7942,13 @@ D指导简直就是玩形而上学的神
 问题是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看文风石锤D指导。
 
+
+*****
+
+####  newtroll  
+##### 606#       发表于 2025-1-29 00:58
+
+d瘾犯了，收钱也行啊让我玩玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
