@@ -16150,3 +16150,29 @@ yysy桂柳话属于西南官话，更像云贵川
 （不知道图能不能传上来）</blockquote>
 人偶复仇说
 
+
+*****
+
+####  山ノ内花音  
+##### 13194#       发表于 2025-1-28 08:05
+
+<img src="https://img.saraba1st.com/forum/202501/28/080456x83nwwv2gnfwgnun.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1667.jpeg</strong> (417.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 08:04 上传
+
+https://x.com/xuserpost/status/1883882919942574272?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  huxiaopao163  
+##### 13195#       发表于 2025-1-28 08:07
+
+今天中午就有第五集文字版预告和先行图了吧，看看这个解散到底怎么回事。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
