@@ -7562,3 +7562,13 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 主要还是美国人小心眼，一直在攻击，API都用不了好久了</blockquote>
 我以为是用的人太多，显卡不够用了
 
+
+*****
+
+####  ternayark  
+##### 568#       发表于 2025-1-28 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295994&amp;ptid=2243718" target="_blank">Orianna 发表于 2025-1-28 17:56</a>
+我以为是用的人太多，显卡不够用了</blockquote>
+都有，明显比前几天变笨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

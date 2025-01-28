@@ -136,3 +136,13 @@ BUFF和DEBUFF弄不干净，难度就直线上升。
 
 总不能上4被反射盾弹死吧。
 
+
+*****
+
+####  leeskies  
+##### 18200#       发表于 2025-1-28 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">用机神欧罗巴雅琪玛奶嘴双贤摆了  一把18分钟
+
+3防御机神刀没龙武  翻车概率可以接受
+
