@@ -458,3 +458,14 @@ YUMA：是你啦
 什么本子剧情……</blockquote>
 更搞笑的是黄毛自己宣称这段不伦恋只是持续了几个月就结束了，因为他觉得这样做不对（其实就是单纯的玩腻了吧），女方想吃回头草的时候，男方已经找了新女朋友
 
+
+*****
+
+####  基本农田  
+##### 42#       发表于 2025-1-28 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67297633&amp;ptid=2244518" target="_blank">傲慢的空想家X 发表于 2025-1-28 20:43</a>
+
+更搞笑的是黄毛自己宣称这段不伦恋只是持续了几个月就结束了，因为他觉得这样做不对（其实就是单纯的玩腻 ...</blockquote>
+这其实有一点对不上，按当事人自己的说法，不伦是23年底到24年初几个月，但网友作为证据的他们的合作影片都是在这个时间之前的。也许那时候只是玩玩不算出轨吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

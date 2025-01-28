@@ -769,3 +769,49 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 高达也要吃核融合炉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 5975#       发表于 2025-1-28 21:00
+
+<img src="https://img.saraba1st.com/forum/202501/28/210032a3ngxc8j3rf33rfl.jpg" referrerpolicy="no-referrer">
+
+<strong>20250128_205756.jpg</strong> (304.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 21:00 上传
+
+*****
+
+####  岸浪白野  
+##### 5976#       发表于 2025-1-28 21:01
+
+[X 上的 竹：“少尉ストラップほしい #GQuuuuuuX #ジークアクス](https://x.com/_take_oekaki/status/1884224821799838042)[https://t.co/x1dAdF6Ne2](https://t.co/x1dAdF6Ne2)” / X
+
+<img src="https://img.saraba1st.com/forum/202501/28/210247oh1qi78i2v2qy11j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/210206j8x8zvyxeg68l987.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (870.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 21:02 上传
+
+*****
+
+####  0aleph37  
+##### 5977#       发表于 2025-1-28 21:03
+
+ 本帖最后由 0aleph37 于 2025-1-28 21:05 编辑 
+
+这是西班牙小油条？看过好几个作品中霓虹jk都吃这个了，有什么原因吗？
+

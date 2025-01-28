@@ -533,3 +533,11 @@ v3出了的时候，这个新闻就已经有了，当时知乎评论底下就有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  魔法煎饼  
+##### 55#       发表于 2025-1-28 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 真是天才的话除非是遇到不良待遇，否则亮成就应该是比薪资重要的
+
