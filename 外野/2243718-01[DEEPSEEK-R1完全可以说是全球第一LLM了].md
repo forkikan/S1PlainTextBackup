@@ -7485,3 +7485,14 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 有没有办法让DeepSeek在生成小说的时候，在能够进行发挥的情况下保留提供的提纲或者原文的主要脉络？
 
+
+*****
+
+####  shiwenbaobao  
+##### 561#       发表于 2025-1-28 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295523&amp;ptid=2243718" target="_blank">Tomorrow_D 发表于 2025-1-28 16:33</a>
+
+我昨天晚上才开始试着用DeepSeek生成小说，强确实是强，但是有一个问题，就是这货每次都不按给定的大纲走。 ...</blockquote>
+我也想问，我发现他写小甜文工业糖精小段子这个赛道简直无敌了，把我撩的脸红心跳的，有这个还要什么乙游，但是稍微长一点的文章就完全不行
+
