@@ -416,3 +416,19 @@ V3的时候就知道罗福利不在deepseek了，大模型领导人物年薪千�
 
 这也能蹭
 
+
+*****
+
+####  神圣天使书记官  
+##### 42#       发表于 2025-1-28 17:40
+
+营销冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帕拉米蒂斯  
+##### 43#       发表于 2025-1-28 17:45
+
+雨田君好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

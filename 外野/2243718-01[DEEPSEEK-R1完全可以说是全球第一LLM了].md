@@ -7525,3 +7525,19 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 人写文写嗨了都会跑题，更何况AI呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ternayark  
+##### 564#       发表于 2025-1-28 17:44
+
+「xx安康」是中文语料中一道巨大的伤疤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1f57822a6012376df6c6e5a940c02855/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Orianna  
+##### 565#       发表于 2025-1-28 17:47
+
+火了之后，速度明显慢了，还可能报错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

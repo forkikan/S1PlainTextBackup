@@ -601,3 +601,43 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 我看5ch上有不少从这里发散的假药。
 
+
+*****
+
+####  RE㐅ia  
+##### 5964#       发表于 2025-1-28 17:37
+
+鹤卷gg狠狠的代入了是吧？痞子代入夏利亚，鹤卷代入艾格萨贝。大家都有光明的未来（
+
+<img src="https://img.saraba1st.com/forum/202501/28/173650g9v7bfvjdtabu2ut.png" referrerpolicy="no-referrer">
+
+<strong>FEF8FAA4-26FB-44BF-B7C7-346F696E8E68.png</strong> (462.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/173649enzormmrnqo2zjy9.png" referrerpolicy="no-referrer">
+
+<strong>1FB6D102-858D-4211-A3C6-DAF0C5CE05CD.png</strong> (589.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/173649zzz913sm177zlzu9.png" referrerpolicy="no-referrer">
+
+<strong>ED383C27-2E43-49BD-BBFE-44545FCFDD84.png</strong> (586.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/173649blpzk2p2zkycylik.png" referrerpolicy="no-referrer">
+
+<strong>2F25E1F4-85BB-44DA-BB93-6488B654045F.png</strong> (580.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 17:36 上传
+
