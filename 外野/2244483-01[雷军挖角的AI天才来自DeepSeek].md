@@ -478,3 +478,13 @@ v3出了的时候，这个新闻就已经有了，当时知乎评论底下就有
 你这话术味也太大了。
 就算不是也过于符合仙女叙事刻板印象
 
+
+*****
+
+####  安德尼特二世  
+##### 49#       发表于 2025-1-28 19:00
+
+<img src="https://p.sda1.dev/21/963b52323cfc8fbef73c5a8d95ae6cab/image.jpg" referrerpolicy="no-referrer">
+
+有一说一，我觉得这女的选择在V3发布前夕跳槽，脑子和见识多少都有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
