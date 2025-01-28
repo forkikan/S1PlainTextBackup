@@ -8216,3 +8216,11 @@ https://weibo.com/7833030132/5127604763886381</blockquote>
 https://weibo.com/7833030132/5127604763886381</blockquote>
 写着写着就开始说梦话了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 620#       发表于 2025-1-29 04:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">看不到鲸鱼哥的碎碎念我好难受啊，究竟什么时候才能好啊，网页版也崩了
+
