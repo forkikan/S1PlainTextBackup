@@ -6738,3 +6738,20 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 我换了14B, 感觉很ok啊
 
+
+*****
+
+####  UNICORN00  
+##### 496#       发表于 2025-1-28 11:02
+
+ollama里的小于671B的R1模型看起来像是浓缩提取其它的模型？能算R1的缩小版吗？
+
+*****
+
+####  qz66618  
+##### 497#       发表于 2025-1-28 11:03
+
+这r1模型的api还没好吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
