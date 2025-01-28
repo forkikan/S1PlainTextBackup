@@ -190,3 +190,13 @@ new了女帝，感觉没啥用
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  待宵  
+##### 46988#       发表于 2025-1-28 10:33
+
+我至今没有cba只有rba，只能带动部分绿卡
+
+结果这福袋出的是水BB，2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
