@@ -6554,3 +6554,22 @@ tmd，我显卡渣渣，但是内存512g
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  黑茶子  
+##### 481#       发表于 2025-1-28 09:34
+
+这一波，是不是有点像美剧硅谷的第一集，突然一个横空出世的新公司把业界大佬提出的压缩技术的理论最小体积直接给干到三分之一了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  披头破落户  
+##### 482#       发表于 2025-1-28 09:36
+
+api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
