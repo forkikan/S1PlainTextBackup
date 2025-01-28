@@ -17587,3 +17587,71 @@ mortis就是幼稚小鬼<img src="https://static.saraba1st.com/image/smiley/face
 现在对赌论反而能解决一堆出戏的现实问题吧，什么合约合同商业问题一句丰川家大手就盖过去了，虽然土但有 ...</blockquote>
 要真是靠和老登对赌 那祥子就是绝对掌控权了 然后还管不住喵梦 对赌简直不能更搞笑
 
+
+*****
+
+####  plok201  
+##### 13314#       发表于 2025-1-28 20:45
+
+对赌168亿我是祥子我先找黑衣人把大喵老师全家人给绑了，赚够钱再放人好吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 13315#       发表于 2025-1-28 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67297650&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-28 20:43</a>
+
+要真是靠和老登对赌 那祥子就是绝对掌控权了 然后还管不住喵梦 对赌简直不能更搞笑 ...</blockquote>
+简单猜想就是跟老登就是要笔钱要些资源帮忙启动母鸡卡，搞成了也就自立了，如果搞砸了我就回丰川家乖乖当继承人。
+
+*****
+
+####  bindata  
+##### 13316#       发表于 2025-1-28 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67297650&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-28 20:43</a>
+
+要真是靠和老登对赌 那祥子就是绝对掌控权了 然后还管不住喵梦 对赌简直不能更搞笑 ...</blockquote>
+简单猜想就是跟老登就是要笔钱要些资源帮忙启动母鸡卡，搞成了也就自立了，如果搞砸了我就回丰川家乖乖当继承人。
+
+跟168亿没啥关系
+
+*****
+
+####  玖羽  
+##### 13317#       发表于 2025-1-28 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67297495&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-1-28 20:36</a>
+
+丰川家会认可mujica解散的原因吗？若叶家的吉他手突然二重人格不会弹吉他了，还是大小姐一人揽全锅
+
+ ...</blockquote>
+你不会真觉得丰川定治会跟他外孙女一点点复盘“你是怎么失败的”“为什么你会犯这种错误”吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这些钱对丰川家是小钱，至少肯定远远少于168亿，我估计丰川定治的想法可能是，你为了你爹离家出走一年多，现在你对他也死心了，平民的苦也吃过了，钱也给你烧了，你差不多该回来含泪继承万亿家产了吧
+
+
+*****
+
+####  KLHgg  
+##### 13318#       发表于 2025-1-28 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子对赌后不选一个新鼓手又去找大喵，会不会被认为不承认过去的失败，没放下面子
+
+*****
+
+####  玖羽  
+##### 13319#       发表于 2025-1-28 20:50
+
+ 本帖最后由 玖羽 于 2025-1-28 20:53 编辑 
+
+//////////
+
+*****
+
+####  山ノ内花音  
+##### 13320#       发表于 2025-1-28 20:52
+
+大小姐就两个爱好 玩乐队 当客服
+

@@ -761,3 +761,11 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 山下自己都不愿意往上画牙齿了，除非甲方铁了心要求加上张嘴，摆明了蹭EVA，不然感觉不会在上面着墨太多了
 
+
+*****
+
+####  猪突猛进R  
+##### 5974#       发表于 2025-1-28 20:46
+
+高达也要吃核融合炉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
