@@ -17340,3 +17340,74 @@ NGA神秘人说的四句</blockquote>
 
 看来下集有灯箱素睦了
 
+
+*****
+
+####  阿兹尔  
+##### 13286#       发表于 2025-1-28 19:54
+
+演戏假药没过一周就破产了
+
+*****
+
+####  swessia  
+##### 13287#       发表于 2025-1-28 19:56
+
+就第四集编剧那水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别指望在第二层
+
+早日接受杂鱼莫小姐<img src="https://p.sda1.dev/21/1f0f596ec6e19d7b22eb17e8c8b675a2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 13288#       发表于 2025-1-28 19:57
+
+话说TGW是啥？
+
+*****
+
+####  哈曼的YY  
+##### 13289#       发表于 2025-1-28 19:58
+
+莫姐以后就是搞笑角色了吧 下集到处无能狂怒？
+
+赞助母鸡卡的TGW物产吧大概 写家族黑暗面那两眼一黑了
+
+
+*****
+
+####  凉良  
+##### 13290#       发表于 2025-1-28 20:00
+
+艹不会真是和老登对赌吧 要是这发展是真的土透了
+
+*****
+
+####  MASKA-1  
+##### 13291#       发表于 2025-1-28 20:00
+
+mortis就是幼稚小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13292#       发表于 2025-1-28 20:01
+
+不是和老登对赌 大概率只是向老登要经费而已 不要把剧情想的太复杂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 13293#       发表于 2025-1-28 20:02
+
+等等，不是演的那初华岂不是真的脑子不好
+
+*****
+
+####  烂片雷达  
+##### 13294#       发表于 2025-1-28 20:03
+
+幼稚怎么你了，我看墨姐除了不会吉他之外活脱脱就是冰川日菜再世<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
