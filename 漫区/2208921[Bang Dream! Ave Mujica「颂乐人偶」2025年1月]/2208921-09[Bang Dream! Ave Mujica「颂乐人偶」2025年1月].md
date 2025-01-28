@@ -16572,3 +16572,16 @@ CGディレクター：大森 大地
 
 这还扯nm现实呢 商业团可以这样子说解散就解散啊
 
+
+*****
+
+####  LeonsCat  
+##### 13218#       发表于 2025-1-28 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293848&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-28 11:42</a>
+
+这还扯nm现实呢 商业团可以这样子说解散就解散啊</blockquote>
+只要你这辈子不混圈了，还真是。
+
+又不是吉本兴业。
+
