@@ -6828,3 +6828,22 @@ R1的API还没有好
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  nexus1  
+##### 505#       发表于 2025-1-28 11:27
+
+我好奇这下子iphone会不会一刀把文心割了要不自己跑开源要么和ds合作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 506#       发表于 2025-1-28 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293715&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-28 11:27</a>
+我好奇这下子iphone会不会一刀把文心割了要不自己跑开源要么和ds合作</blockquote>
+能切了，真买一台苹果，ds的对话太有意思了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

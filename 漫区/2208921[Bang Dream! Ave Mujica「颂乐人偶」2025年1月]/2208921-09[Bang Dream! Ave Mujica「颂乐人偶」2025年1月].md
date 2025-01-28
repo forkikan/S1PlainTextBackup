@@ -16409,3 +16409,137 @@ https://x.com/bake_aqnana/status/1883496324785701220?s=46&amp;t=IZGx0N13SOtHALpw
 
 而且在全国巡演中途解散很不妙吧，后面的场次应该票都卖了
 
+
+*****
+
+####  御幸一也  
+##### 13211#       发表于 2025-1-28 11:27
+
+如果真的是敘述性詭計，那肯定連預告都騙你，不然豈不是很快穿幫
+
+*****
+
+####  rikaren  
+##### 13212#       发表于 2025-1-28 11:29
+
+<blockquote>huxiaopao163 发表于 2025-1-28 11:20
+真解散吗？当我还在想全国巡演中途暂停或者延迟的话，祥子压力应该不小的时候，居然是真解散了？
+
+而且在全 ...</blockquote>
+是最后一场
+
+*****
+
+####  山ノ内花音  
+##### 13213#       发表于 2025-1-28 11:30
+
+<img src="https://img.saraba1st.com/forum/202501/28/113047g3008q1ao5fmq05h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1673.jpeg</strong> (317.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/113047dkrdnr8dor8larla.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1674.jpeg</strong> (323.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/113047w3a788ij7wwh94if.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1675.jpeg</strong> (325.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/113047g16zdfuapfu5uz6n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1676.jpeg</strong> (252.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-28 11:30 上传
+
+https://x.com/_a_jak_/status/1884078371220733984?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
+
+*****
+
+####  AveMujica  
+##### 13214#         楼主| 发表于 2025-1-28 11:31
+
+#5 Facta fugis, facienda petis.
+
+<img src="https://img.saraba1st.com/forum/202501/28/112943d1jfj1igjij0gz33.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (427.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/112944du4y3fizyb79yib7.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (556.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/112945hlojihno55nn1oob.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (742.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/112945rcqnphckppj4u1oj.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (671.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/112946dpiubbvp36b3pis5.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (493.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/113033gqo08o4ooo4bbqqb.png" referrerpolicy="no-referrer">
+
+<strong>06.png</strong> (240.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:30 上传
+
+全国ツアーの真っ只中にバンドが解散。
+
+Ave Mujicaのメンバーは各々の生活に戻ってゆく。
+
+脚本：晴日 たに
+
+絵コンテ：大森 大地、鈴木 大介
+
+演出：大森 大地
+
+CGディレクター：大森 大地
+
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://www.bilibili.com/opus/1027341576481800228](https://www.bilibili.com/opus/1027341576481800228)
+
+第六张是哔哩哔哩特供版
+
