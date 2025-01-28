@@ -825,3 +825,44 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 这是西班牙小油条？看过好几个作品中霓虹jk都吃这个了，有什么原因吗？</blockquote>
 竹这张的话应该是调侃GQuuuuuuX的标题很长吧
 
+
+*****
+
+####  王留美  
+##### 5979#       发表于 2025-1-28 22:12
+
+<img src="https://img.saraba1st.com/forum/202501/28/221155auglxvqxlllkgvvm.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6674.png</strong> (530.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 22:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/221155iskxannhsxbsaxmm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6673.jpeg</strong> (889.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 22:11 上传
+
+*****
+
+####  YU_JI  
+##### 5980#       发表于 2025-1-28 22:12
+
+ 本帖最后由 YU_JI 于 2025-1-28 22:14 编辑 
+<blockquote>0aleph37 发表于 2025-1-28 18:40
+这张同人麻球气质真不错</blockquote>
+
+来点麻球潘妮帕克蜘蛛侠假药
+
+*****
+
+####  Piano-Forest  
+##### 5981#         楼主| 发表于 2025-1-28 22:15
+
+【【中日字幕】高达GQuuuuuuX主创访谈 导演鹤卷和哉/机械作监金世俊/制片人杉谷勇树】 
+[https://b23.tv/WvpUD2P](https://b23.tv/WvpUD2P)
+

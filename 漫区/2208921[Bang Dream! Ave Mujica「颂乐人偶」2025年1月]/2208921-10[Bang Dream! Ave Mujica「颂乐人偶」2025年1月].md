@@ -394,3 +394,22 @@ mygo是双线，也就是说除了祥子外还有一条<img src="https://static.
 你可能不了解，TGW物产出来之后很多(可能是大部分)人都猜第8话祥子是回老宅谈对赌(要钱) ...</blockquote>
 TGW是啥？
 
+
+*****
+
+####  须贺兰  
+##### 13358#       发表于 2025-1-28 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67299154&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-28 21:53</a>
+
+TGW是啥？</blockquote>
+这里，Ave Mujica宣传海报上众多赞助商中的一位。
+
+<img src="https://img.saraba1st.com/forum/202501/28/220658unmztl5lz1llmi7t.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-28_22-06-07.jpg</strong> (287.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 22:06 上传
+
