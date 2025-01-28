@@ -7141,3 +7141,16 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 今天除夕，不会要坏好几天吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 533#       发表于 2025-1-28 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294081&amp;ptid=2243718" target="_blank">Risa 发表于 2025-1-28 12:16</a>
+我建议你还是老老实实API加穿甲弹。这是因为酒馆这类文字RP玩法，其实对AI的逻辑能力，智商和反馈能力要 ...</blockquote>
+好的好的，谢谢老哥。
+穿甲弹哪儿领呢？看了楼上朋友的，这是一些关键语句信息集合是吗？类似以前AI绘图的关键词集合？
+
+—— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
