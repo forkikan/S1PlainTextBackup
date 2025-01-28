@@ -7424,3 +7424,11 @@ V3就是一个段落反复重复用，有点精污
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Hqchan  
+##### 555#       发表于 2025-1-28 15:52
+
+R1的api还是用不了，我草了美国人怎么这么坏<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
