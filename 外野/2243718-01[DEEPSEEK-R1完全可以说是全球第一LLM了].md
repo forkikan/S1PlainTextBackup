@@ -6702,3 +6702,39 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 4070是不是跑32b有点勉强</blockquote>
 32B至少24G显存，你12G就别想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  emcl  
+##### 493#       发表于 2025-1-28 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293116&amp;ptid=2243718" target="_blank">机吉斯卡 发表于 2025-1-28 09:39</a>
+我找到了
+
+上周三前后的，那时候还可以直接写黄文的样子，可以问我</blockquote>
+求私信，感谢🙏
+
+
+*****
+
+####  シマエナガ  
+##### 494#       发表于 2025-1-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293221&amp;ptid=2243718" target="_blank">asion617 发表于 2025-1-28 10:09</a>
+4070是不是跑32b有点勉强</blockquote>
+4070跑7B就差不多了吧…
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  asion617  
+##### 495#       发表于 2025-1-28 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293426&amp;ptid=2243718" target="_blank">シマエナガ 发表于 2025-1-28 10:53</a>
+
+4070跑7B就差不多了吧…
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+我换了14B, 感觉很ok啊
+

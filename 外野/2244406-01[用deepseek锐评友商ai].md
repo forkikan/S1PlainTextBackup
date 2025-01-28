@@ -469,3 +469,11 @@ deepseek修辞能力是真强
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293188&amp;ptid=2244406" target="_blank">somchipter 发表于 2025-1-28 09:58</a></blockquote>
 强烈建议翻译成英文送给国外的老哥们
 
+
+*****
+
+####  magicianxu  
+##### 42#       发表于 2025-1-28 10:49
+
+天下英雄，唯...唯ds耳
+
