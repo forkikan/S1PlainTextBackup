@@ -374,3 +374,23 @@ mygo是双线，也就是说除了祥子外还有一条<img src="https://static.
 
 当然别用现实世界的逻辑看动画片就对了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 13356#       发表于 2025-1-28 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四集最后那段能藏的就喵梦海玲和莫提斯的私下谈话，其他真没什么好藏的，不管是谁和谁联合起来演莫提斯或者祥子都属于是队内80了，到完结都洗不清。小黑屋那段明显是要复刻c团解散
+反正就这样呗，疑似双重人格＋第四集最后5分钟出来，mujica不是超神就是超鬼了。后面要是还和前四集一样只有爆爆爆没有多少女女关系性是真要入土的
+
+
+*****
+
+####  新HGCG  
+##### 13357#       发表于 2025-1-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296795&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-28 20:04</a>
+
+你可能不了解，TGW物产出来之后很多(可能是大部分)人都猜第8话祥子是回老宅谈对赌(要钱) ...</blockquote>
+TGW是啥？
+
