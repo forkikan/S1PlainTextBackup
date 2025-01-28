@@ -8177,3 +8177,30 @@ DeepSeek r1存在重要技术细节需要澄清。
 
 作为GPT-4以来首个验证扩展定律的模型，其表现至关重要。Grok-3已展示超越o1的能力(如Tesseract演示)，其强化学习后的推理能力提升程度将决定行业走向。正如《双塔奇兵》中半兽人所言："肉或许很快会重回菜单"。最终结论将随事实演变而调整。
 
+
+*****
+
+####  2017.05.04  
+##### 617#       发表于 2025-1-29 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302234&amp;ptid=2243718" target="_blank">机吉斯卡 发表于 2025-1-29 02:55</a>
+美国人到现在还想着如何封锁
+
+https://weibo.com/7833030132/5127604763886381</blockquote>
+这个是grok软文
+
+——来自 [S1 Orange](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.1.0
+
+*****
+
+####  moeblack  
+##### 618#         楼主| 发表于 2025-1-29 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302234&amp;ptid=2243718" target="_blank">机吉斯卡 发表于 2025-1-29 02:55</a>
+美国人到现在还想着如何封锁
+
+https://weibo.com/7833030132/5127604763886381</blockquote>
+美国人不是一个整体
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
