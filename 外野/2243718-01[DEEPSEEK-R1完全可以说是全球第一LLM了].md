@@ -6573,3 +6573,15 @@ api的r1还是不能用<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  机吉斯卡  
+##### 483#       发表于 2025-1-28 09:39
+
+<blockquote>吴怀在 发表于 2025-1-28 07:06
+泥潭说有个静香的黄文流传于各大qq群，我至今仍未知道是啥</blockquote>
+我找到了
+
+上周三前后的，那时候还可以直接写黄文的样子，可以问我
+

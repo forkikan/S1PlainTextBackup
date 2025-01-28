@@ -305,3 +305,19 @@ steam买了，看看高清浪人<img src="https://static.saraba1st.com/image/smi
 
 预购了，180G，好像比博德3还大一点
 
+
+*****
+
+####  Redimercia  
+##### 3347#       发表于 2025-1-28 09:40
+
+夺少？
+
+<img src="https://img.saraba1st.com/forum/202501/28/093957nftygjfojyecgeig.png" referrerpolicy="no-referrer">
+
+<strong>16d2b3643f4dbd5c3d6550c8b1b5d60b.png</strong> (90.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 09:39 上传
+
