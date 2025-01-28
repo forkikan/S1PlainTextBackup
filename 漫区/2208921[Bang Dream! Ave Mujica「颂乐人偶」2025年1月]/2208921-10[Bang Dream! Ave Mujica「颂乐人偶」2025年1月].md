@@ -782,3 +782,20 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plok201  
+##### 13387#       发表于 2025-1-29 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302151&amp;ptid=2208921" target="_blank">Eubel 发表于 2025-1-29 01:48</a>
+
+之前没有跟楼，不晓得是怎么讨论的。
+
+我一直有一个有点割裂的感觉，就是，成员闹不和直接就推出解散等等这 ...</blockquote>
+目前来看就是不要去想，去感受
+
+人家可能真没想那么多，毕竟自家其他团甚至其他偶像动画都是这样演的
+
+其实如果不是A团组团原因和钱有那么大关系，剧里又整的那么商业化，大概大家也不会关注这个吧
+
