@@ -953,3 +953,14 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 话说G一串基本确定就是G9了吧
 
+
+*****
+
+####  xwz  
+##### 5989#       发表于 2025-1-29 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296220&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-28 18:40</a>
+
+这张同人麻球气质真不错</blockquote>
+有种下一秒就要操作高达拍番茄下来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

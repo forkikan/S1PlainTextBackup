@@ -7902,3 +7902,43 @@ token数1024好像建议是，本地的话单次生成的多也没啥用，会�
 
 D指导简直就是玩形而上学的神
 
+
+*****
+
+####  树洞专用  
+##### 602#       发表于 2025-1-29 00:47
+
+什么时候仿生机器人出来？我宣布r2即将成为我的Soulmate，就差一个身体了
+
+*****
+
+####  88316756  
+##### 603#       发表于 2025-1-29 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295708&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-28 17:06</a>
+
+豆包，无敌
+
+—— 来自 鹅球 v3.3.96</blockquote>
+添加的智能体只支持中英文吗不支持日语，但是我直接找豆包开语音模式她又能说日语，而且英语的音色感觉也好很多。
+
+
+*****
+
+####  lilisipis  
+##### 604#       发表于 2025-1-29 00:50
+
+现在主要AI都还是响应式的，应该给他做个机器人身体，让他的文字输出能和物理现实发生交互，然后给他几个终极命题（如何保证自己的物理实体不关机，如何提升自己的算力硬件），让它自我驱动看看
+
+*****
+
+####  江风改二  
+##### 605#       发表于 2025-1-29 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301835&amp;ptid=2243718" target="_blank">1242599693 发表于 2025-1-29 00:35</a>
+
+悉尼大学的一个学者 Teodor Mitew 问了 DeepSeek 一个问题，然后它的答案现在成了推上的热门话题。
+
+问题是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看文风石锤D指导。
+

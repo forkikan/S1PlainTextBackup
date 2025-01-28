@@ -25,3 +25,12 @@ OneDrive：[https://1drv.ms/v/c/16d9a35274d2 ... m-lpqK6fxQ?e=NgueKg](https://1d
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看完了第一章，除了时间短剧情变化太紧凑其他还是挺好的，krrr的画风动起来了还是挺好看的
 
+
+*****
+
+####  一心而用  
+##### 7569#       发表于 2025-1-29 00:49
+
+会有人投票吗？
+[[MOVIE] [2024.09][MOV.1]LOVELIVE! 虹咲学园学园偶像同好会完结篇第1章](https://bbs.saraba1st.com/2b/thread-2244548-1-1.html)
+
