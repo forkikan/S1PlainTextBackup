@@ -473,3 +473,20 @@ diffusion 好处的地方也是普惠，后面社区加了很多方案让生成�
 另外1.5b可以在浏览器里跑：
 <img src="https://p.sda1.dev/21/7ec8a0f59a53ba13571ff5c0196e30ec/janus1b.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 43#       发表于 2025-1-28 12:40
+
+这东西是不是能用来对付真人检测？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷路的石头  
+##### 44#       发表于 2025-1-28 12:42
+
+<blockquote>570898 发表于 2025-1-28 01:01
+答案：丰川祥子</blockquote>
+ob一串字母小姐太坏了
+
