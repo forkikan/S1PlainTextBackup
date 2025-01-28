@@ -216,3 +216,55 @@
 
 当然在美少女动画不要想这么多就是了
 
+
+*****
+
+####  玖羽  
+##### 13338#       发表于 2025-1-28 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67298412&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-28 21:11</a>
+
+虽然我不是学经济的，但我想正常的亏168亿应该也不是一次就真拿168亿现金吧，不是各种算下来的结果吗，只 ...</blockquote>
+别忘了Mujica是真火了，就算钱有可能是丰川家出的，Mujica是实打实的有那么多观众买票来看，实际上烧的肯定没那么多，如果不是突然解散，在商业上看起来也蒸蒸日上
+
+*****
+
+####  ntrntr1  
+##### 13339#       发表于 2025-1-28 21:18
+
+我错了，日本的财团应该参考辉夜大小姐，千万不要想太多
+
+但一小群小女生闹小脾气涉及财团斗争娱乐圈盈利也太搞笑了，怎么看她们的矛盾都是小女生吵架吧喂
+
+
+*****
+
+####  山ノ内花音  
+##### 13340#       发表于 2025-1-28 21:21
+
+所以说到底 有什么非解散不可的理由吗 没人劝劝？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13341#       发表于 2025-1-28 21:22
+
+所以说到底 有什么非解散不可的理由吗 没人劝劝？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 13342#       发表于 2025-1-28 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67298578&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-28 21:18</a>
+
+我错了，日本的财团应该参考辉夜大小姐，千万不要想太多</blockquote>
+我觉得这件事根本没那么复杂，<strong>如果对赌是真的</strong>，就是第8话祥子回家要了一笔钱，名义上是对赌，实际上是外公哄外孙女，因为祥子是因为外公赶她爹走才离家出走的
+
+*****
+
+####  十九号大侠  
+##### 13343#       发表于 2025-1-28 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">闹麻了
+
