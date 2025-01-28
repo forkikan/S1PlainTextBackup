@@ -7376,3 +7376,18 @@ https://huggingface.co/NaniDA ...</blockquote>
 酒馆只能RP么，我不需要有一个自己的角色，我只想看小说。但目前看到的都是“我”跟模拟人物对话 ...</blockquote>
 有个小说家穿甲弹……nga架设楼里第二楼就是，那玩意就不需要对话直接出文
 
+
+*****
+
+####  黄泉川此方  
+##### 551#       发表于 2025-1-28 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294982&amp;ptid=2243718" target="_blank">LMBS 发表于 2025-1-28 14:42</a>
+
+现在AI这么强，有没有好用白嫖的翻译扩展</blockquote>
+[https://immersivetranslate.cn/](https://immersivetranslate.cn/)
+
+沉静式翻译
+
+市面上主流机翻，API都有
+

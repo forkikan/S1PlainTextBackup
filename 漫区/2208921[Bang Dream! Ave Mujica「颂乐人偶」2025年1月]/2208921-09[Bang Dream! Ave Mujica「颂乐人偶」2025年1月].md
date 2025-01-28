@@ -17099,3 +17099,13 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Devola  
+##### 13264#       发表于 2025-1-28 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294908&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-28 14:30</a>
+以鸡目前表现出来的商业化乐队部分，感觉像一个运用了孩之宝偷胶技术的纸壳车 ...</blockquote>
+而且还是一趴变形那种水瓢
+
