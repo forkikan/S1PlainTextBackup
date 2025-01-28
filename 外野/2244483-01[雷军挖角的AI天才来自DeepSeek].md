@@ -457,3 +457,11 @@ V3的时候就知道罗福利不在deepseek了，大模型领导人物年薪千�
 
 幽默军军这也能营销
 
+
+*****
+
+####  bin哥厉害  
+##### 47#       发表于 2025-1-28 18:27
+
+<img src="https://p.sda1.dev/21/d7461d13f02a0fb051caf4bbe1d9c69d/image.jpg" referrerpolicy="no-referrer">
+

@@ -7572,3 +7572,11 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 我以为是用的人太多，显卡不够用了</blockquote>
 都有，明显比前几天变笨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cube  
+##### 569#       发表于 2025-1-28 18:27
+
+华为云公布对DEEPSEEK的支持了，估计上门谈合作了。
+
