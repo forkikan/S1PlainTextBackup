@@ -382,3 +382,18 @@ IMG_4655.jpeg
 
 180G？？？暗荣你塞了什么玩意儿在里面比博3还大？？？不会是DLC不会吧？？？
 
+
+*****
+
+####  黑修士  
+##### 3351#       发表于 2025-1-28 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291483&amp;ptid=2092342" target="_blank">真田源次郎信繁 发表于 2025-1-27 22:55</a>
+
+主菜单那已经是画面欺诈了，大概率本来要做到主界面这个画质，最后太菜砍成现在这样了 ...</blockquote>
+又翻了一遍游戏的设定集
+
+不得不说登场角色是真的多，服饰装备等各种设定也是真的细
+
+这些方面确实是下了功夫的，最后的综合体验怎么就搞成这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

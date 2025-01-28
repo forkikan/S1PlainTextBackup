@@ -6932,3 +6932,26 @@ R1的API还没有好
 看了下没有支持dp的啊。</blockquote>
 现在无论官方api还是自己搭建的本地实现（例如ollama），都提供openai兼容接口。用兼容接口即可
 
+
+*****
+
+####  cybernetics31  
+##### 515#       发表于 2025-1-28 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">api还没好吗 连沉浸式翻译调用都在那转圈了
+
+
+*****
+
+####  Risa  
+##### 516#       发表于 2025-1-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293849&amp;ptid=2243718" target="_blank">Gmlazy 发表于 2025-1-28 11:42</a>
+
+想尝试一下，4090D这个水平的显卡可以本地使用酒馆搭配DeepSeek吗?</blockquote>
+我建议你还是老老实实API加穿甲弹。这是因为酒馆这类文字RP玩法，其实对AI的逻辑能力，智商和反馈能力要求非常高。
+
+阉割后的模型虽然能让你本地跑，但你可以想想大脑被切除90%之后非重要部分后，还能不能跟现在一样？那自然无法很好地完成任务。
+
+只能说，能跑，可以折腾，但是在廉价的官方API面前，这没任何意义。
+
