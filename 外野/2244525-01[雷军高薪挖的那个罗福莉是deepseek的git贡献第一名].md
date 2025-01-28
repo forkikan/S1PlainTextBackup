@@ -421,3 +421,13 @@ lz是串子吗
 
 DS自己团队都没说过什么，你们有必要这么关心人家的黑料吗？就因为小米的营销？
 
+
+*****
+
+####  JetBrains  
+##### 42#       发表于 2025-1-29 01:48
+
+我本地 push 代码上去用的私有的 no-reply 邮箱，GitHub 顺手改改 Readme，轻松简单 preview 就不走本地了还可以快速合并。走它自己的 web editor 自动给我签署 GitHub account，这太正常了，在 lz 口中我也会是这种只改 Readme 的人吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
