@@ -7792,3 +7792,16 @@ token数1024好像建议是，本地的话单次生成的多也没啥用，会�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pf67  
+##### 594#       发表于 2025-1-29 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67297413&amp;ptid=2243718" target="_blank">leakleak 发表于 2025-1-28 20:34</a>
+
+华为主要是被客户逼的，大批客户要求上线部署 deepseek
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+哈哈哈，就是要逼一逼才行
+
