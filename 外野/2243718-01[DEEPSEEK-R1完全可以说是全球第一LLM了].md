@@ -6915,3 +6915,20 @@ R1的API还没有好
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 513#       发表于 2025-1-28 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">4070tis  是不是只能老老实实用14b
+
+*****
+
+####  real_zyf  
+##### 514#       发表于 2025-1-28 12:03
+
+<blockquote>zerona 发表于 2025-1-28 11:17
+看了下没有支持dp的啊。</blockquote>
+现在无论官方api还是自己搭建的本地实现（例如ollama），都提供openai兼容接口。用兼容接口即可
+

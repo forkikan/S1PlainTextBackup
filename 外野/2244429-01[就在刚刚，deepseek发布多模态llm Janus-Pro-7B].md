@@ -462,3 +462,14 @@ diffusion 好处的地方也是普惠，后面社区加了很多方案让生成�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  tonyunreal  
+##### 42#       发表于 2025-1-28 12:06
+
+果然图片生成很烂，但是识图功能蛮强的，特别是7b
+
+另外1.5b可以在浏览器里跑：
+<img src="https://p.sda1.dev/21/7ec8a0f59a53ba13571ff5c0196e30ec/janus1b.gif" referrerpolicy="no-referrer">
+

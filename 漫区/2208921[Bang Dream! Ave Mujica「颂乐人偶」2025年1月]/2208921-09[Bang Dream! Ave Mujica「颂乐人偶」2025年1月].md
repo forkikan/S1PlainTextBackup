@@ -16585,3 +16585,66 @@ CGディレクター：大森 大地
 
 又不是吉本兴业。
 
+
+*****
+
+####  烂片雷达  
+##### 13219#       发表于 2025-1-28 11:55
+
+发散一下，第五集会有灯的剧情
+<img src="https://p.sda1.dev/21/38e07ba3e27fa552503f135c85d2cbd4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 13220#       发表于 2025-1-28 11:56
+
+鸡团最大的违和感，商业乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你不能在只享受流量时说自己是商业乐队，商业乐队的束缚去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，完全就是一个学生团啊
+
+*****
+
+####  whzfjd  
+##### 13221#       发表于 2025-1-28 11:56
+
+个人印象里，kalafina 不就是稀里糊涂地散了吗？
+
+*****
+
+####  YU_JI  
+##### 13222#       发表于 2025-1-28 11:58
+
+邦邦乐队商业化问题主打一个大事化小小事化了，能不碰就不碰，结果到了Mujica这里把商业化主动抛出来之后还是这套思路，甚至可以说是“大事化了，了到扯淡”
+
+
+*****
+
+####  zhzij111  
+##### 13223#       发表于 2025-1-28 12:02
+
+没事，反正是有钱老爷爷送孙女的玩票乐队，金主要解散就解散了呗，后台梆硬
+
+*****
+
+####  swessia  
+##### 13224#       发表于 2025-1-28 12:02
+
+鸡的商业化笑话被车已经不是一次了，习惯了习惯了.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 13225#       发表于 2025-1-28 12:05
+
+ 本帖最后由 天空塔书记官 于 2025-1-28 12:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293057&amp;ptid=2208921" target="_blank">本间日阳 发表于 2025-1-28 09:22</a>
+对比图一开始就有啊。就是这个学校没错。</blockquote>
+草，我搜相关学校，出来的全是留学中介的广告
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
