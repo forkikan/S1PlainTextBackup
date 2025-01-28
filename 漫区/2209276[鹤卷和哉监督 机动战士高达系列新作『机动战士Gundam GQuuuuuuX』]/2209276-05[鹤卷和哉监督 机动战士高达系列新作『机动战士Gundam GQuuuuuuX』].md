@@ -490,3 +490,22 @@ GQ欧派uuuuuuX
 
 大多数人还是喜欢一年战争延伸出来的那些故事。
 
+
+*****
+
+####  Sliurus  
+##### 5954#       发表于 2025-1-28 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67291040&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-27 21:53</a>
+
+原来今天安田朗还说了下GTO为什么会不受初代派的欢迎，所以GQuuuuuuX好在水平很高以那种方式重制的话还是可 ...</blockquote>
+确实，新作能吸引新人看0079然后变成富野厨是最好的结果<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 5955#       发表于 2025-1-28 13:53
+
+后UC几乎跟平行世界没什么区别，完全是另一批人的故事了。一年战争衍生与其说受欢迎，不如说是个比较安全的选项，有高人气角色和机体保底，总归会有人去看和买胶
+

@@ -7154,3 +7154,13 @@ DeepSeek R1读书笔记 - su wang的文章 - 知乎 [https://zhuanlan.zhihu.com/
 
 —— 来自 vivo V2405A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lactone  
+##### 534#       发表于 2025-1-28 13:51
+
+话说现在有话术是说ds是蒸馏openai没蒸馏干净，可以通过话术让他自己承认自己是chatgpt了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
