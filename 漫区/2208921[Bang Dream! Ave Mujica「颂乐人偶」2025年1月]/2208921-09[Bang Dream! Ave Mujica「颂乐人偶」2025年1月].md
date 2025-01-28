@@ -17411,3 +17411,52 @@ mortis就是幼稚小鬼<img src="https://static.saraba1st.com/image/smiley/face
 
 幼稚怎么你了，我看墨姐除了不会吉他之外活脱脱就是冰川日菜再世<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 13295#       发表于 2025-1-28 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296755&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-28 20:00</a>
+
+艹不会真是和老登对赌吧 要是这发展是真的土透了</blockquote>
+你可能不了解，TGW物产出来之后很多(可能是大部分)人都猜第8话祥子是回老宅谈对赌(要钱)
+
+*****
+
+####  玖羽  
+##### 13296#       发表于 2025-1-28 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296764&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-28 20:01</a>
+
+不是和老登对赌 大概率只是向老登要经费而已 不要把剧情想的太复杂了</blockquote>
+要经费和对赌有什么区别，或者说对赌和要经费有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+祥子总不能直接说我是你外孙女给我钱，肯定答应做出什么事业，面子上就是对赌，实际上就是给钱<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13297#       发表于 2025-1-28 20:04
+
+说到底这是高中生乱斗片 又不是智斗片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 13298#       发表于 2025-1-28 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296795&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-28 20:04</a>
+
+你可能不了解，TGW物产出来之后很多(可能是大部分)人都猜第8话祥子是回老宅谈对赌(要钱) ...</blockquote>
+我知道 我就是觉得这剧情土的恐怖
+
+*****
+
+####  哈曼的YY  
+##### 13299#       发表于 2025-1-28 20:06
+
+我记得声优说第五集是“还有这种展开？” 千万别在丰川家展开吧
+
+第六集看完沉默 第七集黑色生日肉眼可见要抽陀螺 放风就放到这了
+
