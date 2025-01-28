@@ -567,3 +567,19 @@ eva新剧场版是元明日香发动2冲冲出来的if世界观，结局是元�
 原来今天安田朗还说了下GTO为什么会不受初代派的欢迎，所以GQuuuuuuX好在水平很高以那种方式重制的话还是可 ...</blockquote>
 gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那段，夏亚的巨婴对话太有乐子了
 
+
+*****
+
+####  岸浪白野  
+##### 5961#       发表于 2025-1-28 15:43
+
+[X 上的 きくた：“変装 [url]https://t.co/fg9alyCwmu](https://x.com/kikutainkisa/status/1883873468758065308)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/28/154356s0cmcpw70u0wz0lw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 15:43 上传
+

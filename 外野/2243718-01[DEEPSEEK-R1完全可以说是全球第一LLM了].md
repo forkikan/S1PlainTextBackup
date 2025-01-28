@@ -7414,3 +7414,13 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 
 V3就是一个段落反复重复用，有点精污
 
+
+*****
+
+####  moeblack  
+##### 554#         楼主| 发表于 2025-1-28 15:36
+
+已经开始用R1在B站测试半自动炒作了，等我消息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
