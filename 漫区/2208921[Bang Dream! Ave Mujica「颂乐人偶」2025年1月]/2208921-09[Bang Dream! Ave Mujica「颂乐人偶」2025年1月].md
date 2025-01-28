@@ -17011,3 +17011,91 @@ ykn&amp;楚平方：你们在开什么邦邦玩笑
 
 说起来鸡团最速武道馆，实力应该很强劲，然后吉他手直接瘫坐在椅子上观众还觉得赚到了看得好爽，大家都是奔着啥来的啊？这个世界观也太温柔了罢，前辈团上个武道馆这么费劲，这就是数值膨胀吗
 
+
+*****
+
+####  玖羽  
+##### 13260#       发表于 2025-1-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294857&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-28 14:19</a>
+
+海玲的判词是“恐惧”，我之前提到过恐惧的三重含义，即自我对外界的恐惧、自我对自我的恐惧、外界对自我的 ...</blockquote>
+看图说话假药！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+新预告图里(暂定)初中海铃的这段表情变化很完整：平静→疑惑→不悦
+
+海铃可能认为初中乐队解散不是自己的责任，是队友不听自己的
+
+<img src="https://img.saraba1st.com/forum/202501/28/145357aueguoo5tte8o88z.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (132.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/145357k4rm8eeyeybfsy68.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (127.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202501/28/145357mlh3yxn6yl9y6hw3.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (123.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 14:53 上传
+
+雇佣兵制服海铃露出笑脸，海铃当雇佣兵早期可能对一些乐队上心过
+
+估计也是经过背叛(海铃视角)之后才变成现在的公事公办脸，Disruption可能了解这个情况
+
+<img src="https://img.saraba1st.com/forum/202501/28/145357mvojc77pn2pjdp3u.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (67.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 14:53 上传
+
+*****
+
+####  玖羽  
+##### 13261#       发表于 2025-1-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295044&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-1-28 14:55</a>
+
+这个世界观也太温柔了罢</blockquote>
+毕竟是唱小星星都能满场鼓掌的世界<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 13262#       发表于 2025-1-28 15:02
+
+然后是发假药时间，不过这之前先说一下我对立希的一点个人想法
+
+我一直认为立希才是迷子里最重的那一个，但因为有灯这个特效稳定器在，所以炸得才不算厉害，毕竟这可是真能把“没资格活下去”这种说出口的人啊。因为“劣等感”，立希处在了一种不断地自我否定和自我消除的状态之中，她的内在就像一个不间断吞噬自我的黑洞，甚至情况还在愈演愈烈，为了对抗这种持续性的自我消耗，立希选择了压力自己，通过在外部构建一层球壳的方式阻断向内坍缩的引力，而她的攻击性和对外施压只不过是这一过程的副产物而已，所以她有了一个“坚强”的外表，强大的抗压能力和看似强大的自我情绪调节能力，但这终究不是长久之法，最终不外乎两种结局，一是压力压过了坍缩力，球壳变成了实心球体，彻底隔绝了对外界的联系，封闭自我；二是内心的黑洞撕碎了球壳，自我的存在和周遭的一切都被无差别破坏，而这是最坏的结果，起步就是“吊灯”的级别
+
+所以立希需要灯，需要灯这个<strong>代言者</strong>代替自己发出心灵的呐喊，来获得能够呼吸空气、释放自我的间隙，用自我向外的推力对抗对内坍缩的吸力，实现对内和对外的平衡。但这还不够，虽然作为鼓手甘为绿叶，但作为作曲者她不能只为灯的歌词而存在，立希需要有自己的风格的音乐，她需要释放自己的本能，而这只需要认可自己就可以
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 13263#       发表于 2025-1-28 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67295073&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-28 14:59</a>
+看图说话假药！ 
+
+新预告图里(暂定)初中海铃的这段表情变化很完整：平静→疑惑→不悦</blockquote>
+因为海玲待过的乐队太多，所以恐惧建立的完整过程可能不是在一个乐队实现的，这符合“隐藏的拆队狂魔”的假设<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
