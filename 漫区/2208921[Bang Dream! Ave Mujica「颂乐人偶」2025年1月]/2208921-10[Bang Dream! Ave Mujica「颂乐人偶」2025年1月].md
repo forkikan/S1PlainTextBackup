@@ -268,3 +268,33 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">闹麻了
 
+
+*****
+
+####  海底铁锚  
+##### 13344#       发表于 2025-1-28 21:26
+
+讨论这么多，越来越麻的后果就是祥子退C团中伤灯纯纯闹麻。对素食，立希，灯来说就是无妄之灾
+
+*****
+
+####  阿兹尔  
+##### 13345#       发表于 2025-1-28 21:29
+
+虽然接下来mygo角色要深入剧情，但是应该不至于毁了mygo角色的人设
+
+
+*****
+
+####  山ノ内花音  
+##### 13346#       发表于 2025-1-28 21:34
+
+mygo人原谅祥子蒜不蒜毁人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 13347#       发表于 2025-1-28 21:34
+
+如果真的就靠丰川的大手来解决商业问题，能不能顺便让丰川接下C团解散的锅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，直接让老登发话，你不能回去找C团的人，睦因为青梅竹马逃过一劫
+
