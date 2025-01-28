@@ -16384,3 +16384,28 @@ https://x.com/bake_aqnana/status/1883496324785701220?s=46&amp;t=IZGx0N13SOtHALpw
 
 先行图能相信吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 13209#       发表于 2025-1-28 11:18
+
+<img src="https://img.saraba1st.com/forum/202501/28/111710hfyb0gy828ctzgq8.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1738034089621.jpg</strong> (142.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 11:17 上传
+
+贴吧看到的神秘暴论，还挺有意思的
+
+*****
+
+####  huxiaopao163  
+##### 13210#       发表于 2025-1-28 11:20
+
+真解散吗？当我还在想全国巡演中途暂停或者延迟的话，祥子压力应该不小的时候，居然是真解散了？
+
+而且在全国巡演中途解散很不妙吧，后面的场次应该票都卖了
+

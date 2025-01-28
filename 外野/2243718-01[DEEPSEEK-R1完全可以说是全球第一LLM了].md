@@ -6791,3 +6791,40 @@ R1的API还没有好
 有个浏览器插件叫Page assist</blockquote>
 看了下没有支持dp的啊。
 
+
+*****
+
+####  シマエナガ  
+##### 502#       发表于 2025-1-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293444&amp;ptid=2243718" target="_blank">asion617 发表于 2025-1-28 10:57</a>
+
+我换了14B, 感觉很ok啊</blockquote>
+我8G显存用7B都不够，14B也是得GGUF吧
+
+*****
+
+####  asion617  
+##### 503#       发表于 2025-1-28 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293625&amp;ptid=2243718" target="_blank">シマエナガ 发表于 2025-1-28 11:18</a>
+
+我8G显存用7B都不够，14B也是得GGUF吧</blockquote>
+啊我没说清楚, 是GGUF
+
+*****
+
+####  挖泥船  
+##### 504#       发表于 2025-1-28 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292882&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-28 08:12</a>
+我彻底迷茫了到底是深度思维在演我还是真的说漏嘴了
+
+这是第一个问题我一开始没当回事，然后追问了下
+
+这是第 ...</blockquote>
+幻觉是LLM的特色，不得不品尝，这是概率生成模型无法根除的毛病。
+作为人类 你需要做的是从LLM的回复中找出你想要的东西，而不是完全信任他。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

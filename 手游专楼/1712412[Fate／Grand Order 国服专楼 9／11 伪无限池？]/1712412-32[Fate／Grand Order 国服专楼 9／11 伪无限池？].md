@@ -200,3 +200,11 @@ new了女帝，感觉没啥用
 
 结果这福袋出的是水BB，2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊骑士  
+##### 46989#       发表于 2025-1-28 11:20
+
+出了最不想要之一的旧剑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2宝了
+
