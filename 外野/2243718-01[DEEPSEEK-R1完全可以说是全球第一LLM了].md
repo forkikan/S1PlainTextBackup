@@ -7357,3 +7357,22 @@ https://www.reddit.com/r/LocalLL ... ablated_uncensored/  相关的讨论串
 https://huggingface.co/NaniDA ...</blockquote>
 感谢分享
 
+
+*****
+
+####  moekyo  
+##### 549#       发表于 2025-1-28 15:06
+
+羡慕能用的🍋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 550#       发表于 2025-1-28 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67294199&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-1-28 12:34</a>
+
+酒馆只能RP么，我不需要有一个自己的角色，我只想看小说。但目前看到的都是“我”跟模拟人物对话 ...</blockquote>
+有个小说家穿甲弹……nga架设楼里第二楼就是，那玩意就不需要对话直接出文
+
