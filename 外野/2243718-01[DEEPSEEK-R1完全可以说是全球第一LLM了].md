@@ -6544,3 +6544,13 @@ tmd，我显卡渣渣，但是内存512g
 第一次用吧?多用几个其他家的就习惯了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">所以这个深度思考也是在忽悠人的是吧
 
+
+*****
+
+####  bartholo4  
+##### 480#       发表于 2025-1-28 08:34
+
+都是基于你问题的向量空间概率
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
