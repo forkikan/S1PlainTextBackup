@@ -16203,3 +16203,37 @@ https://x.com/xuserpost/status/1883882919942574272?s=46&amp;t=IZGx0N13SOtHALpwG0
 
 https://x.com/bake_aqnana/status/1883496324785701220?s=46&amp;t=IZGx0N13SOtHALpwG0Ubrg
 
+
+*****
+
+####  厚乳果珍爽  
+##### 13198#       发表于 2025-1-28 09:18
+
+<blockquote>ykyin09 发表于 2025-1-28 08:26
+上一集都猜莫小姐是王者号，看完发现是烂梗机器人复读机，那我猜这集其实没解散
+
+论坛助手,iPhone ...</blockquote>
+必然没解散，商业乐队哪里有什么好解散的？
+
+
+*****
+
+####  本间日阳  
+##### 13199#       发表于 2025-1-28 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292394&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-28 01:39</a>
+
+关于RAS贝斯主唱瑞依/LAYER和喵梦所读高中(都立艺术学院高校）原型的推测:
+
+“东京艺术大学(Tokyo Universi ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/28/092148fiuoonpcil2ptlul.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (519.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 09:21 上传
+
+对比图一开始就有啊。就是这个学校没错。
+
