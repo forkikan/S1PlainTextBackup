@@ -7761,3 +7761,34 @@ API是不是还用不了?
 
 顺便写了个拜年短信 还不错（
 
+
+*****
+
+####  newtroll  
+##### 591#       发表于 2025-1-29 00:06
+
+哎呦卧槽美国人怎么这么坏啊ai都不让人玩
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  requiem116  
+##### 592#       发表于 2025-1-29 00:11
+
+<blockquote>neptunehs 发表于 2025-1-28 23:59
+让他写文章 token少了可以么
+
+顺便写了个拜年短信 还不错（</blockquote>
+token数1024好像建议是，本地的话单次生成的多也没啥用，会重复或者跑题
+
+*****
+
+####  hanan1  
+##### 593#       发表于 2025-1-29 00:12
+
+现在ai搜索哪家强啊？perplexity，gemini，gpt还是deepseek？其他国产的没怎么用过，据说也有些不错的。有相关benchmark吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
