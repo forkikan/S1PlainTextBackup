@@ -885,3 +885,19 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 虽然之前知乎那个”战后的虚无“的观后感挺武断的，但是真希望能着墨这方面，想想就很棒
 
+
+*****
+
+####  岸浪白野  
+##### 5984#       发表于 2025-1-28 22:57
+
+[X 上的 アリコ/ariko：“コモリ少尉～～！ #GQuuuuuuX #ジークアクス [url]https://t.co/WR8JGNE3Ao](https://x.com/arikocco/status/1884212067089146281)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/28/225713kvejglf66vom3cml.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (768.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-28 22:57 上传
+
