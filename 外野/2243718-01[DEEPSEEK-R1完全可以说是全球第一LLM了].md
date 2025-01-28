@@ -6755,3 +6755,39 @@ ollama里的小于671B的R1模型看起来像是浓缩提取其它的模型？�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  泰坦失足  
+##### 498#       发表于 2025-1-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67293481&amp;ptid=2243718" target="_blank">UNICORN00 发表于 2025-1-28 11:02</a>
+
+ollama里的小于671B的R1模型看起来像是浓缩提取其它的模型？能算R1的缩小版吗？ ...</blockquote>
+不是R1的浓缩，是Qwen和Llama在输入R1的输入输出后学习R1思考的产物。有点像梦幻和超梦（弱化版）。所以说可能Qwen和llama的安全神经元还在。
+
+*****
+
+####  otani  
+##### 499#       发表于 2025-1-28 11:11
+
+R1的API还没有好
+
+
+*****
+
+####  XSH97  
+##### 500#       发表于 2025-1-28 11:12
+
+都没好呢，V3现在只能小规模用，批量请求直接挂
+
+*****
+
+####  zerona  
+##### 501#       发表于 2025-1-28 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67292466&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-1-28 02:01</a>
+
+有个浏览器插件叫Page assist</blockquote>
+看了下没有支持dp的啊。
+
