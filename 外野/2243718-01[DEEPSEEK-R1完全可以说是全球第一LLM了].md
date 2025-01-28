@@ -8232,3 +8232,18 @@ https://weibo.com/7833030132/5127604763886381</blockquote>
 
 哭了，d指导分析语境和定义通用概念这么好用，结果现在用不了了。
 
+
+*****
+
+####  qqks  
+##### 622#       发表于 2025-1-29 04:44
+
+哪家能托管最大的671b模型？花钱跑api也行啊，32b本地太傻了跑cline无限循环
+
+*****
+
+####  Nez  
+##### 623#       发表于 2025-1-29 04:45
+
+戒断反应了，国外服务器从前天崩到现在<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
