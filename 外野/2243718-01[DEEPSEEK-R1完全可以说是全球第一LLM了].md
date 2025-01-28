@@ -7475,3 +7475,13 @@ v3api 我随便找个有nsfw的人物卡 然后上nga那帖子的穿甲弹
 现在要么写不了什么 要么写了 ...</blockquote>
 那个车轱辘话太吓人了，感觉人皮面具掉了露出下面的金属骨骼一样
 
+
+*****
+
+####  Tomorrow_D  
+##### 560#       发表于 2025-1-28 16:33
+
+我昨天晚上才开始试着用DeepSeek生成小说，强确实是强，但是有一个问题，就是这货每次都不按给定的大纲走。哪怕先用其他的AI生成一篇，让DeepSeek扩写，也是越写越没谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有没有办法让DeepSeek在生成小说的时候，在能够进行发挥的情况下保留提供的提纲或者原文的主要脉络？
+
