@@ -8510,3 +8510,16 @@ R1 and Deployment at American.
 
 昨天已经用上了，很不错。
 
+
+*****
+
+####  XSH97  
+##### 637#       发表于 2025-1-29 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302611&amp;ptid=2243718" target="_blank">发呆的龙虾 发表于 2025-1-29 09:23</a>
+
+api发key页面不能进了吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+进不了，昨天下午就是了。V3能勉强用一些，R1是直接废了。
+

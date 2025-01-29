@@ -980,3 +980,15 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 鸣潮玩家天天看到这个图片和二创，已经都知道这些小姑娘的名字了，这个番是不是有两季，现在是不是错过了白嫖的机会，九月份的时候反复看了好多次广西少女乐团，跟这个是不是不同分支的
 
+
+*****
+
+####  gaayas  
+##### 13405#       发表于 2025-1-29 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302935&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-29 10:41</a>
+舅舅第一句话直接杀死比赛了，所以到底是怎么扯到解散的</blockquote>
+独角兽的大手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
