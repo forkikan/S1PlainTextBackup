@@ -9582,3 +9582,26 @@ API没好的每一秒都在琢磨本地部署<img src="https://static.saraba1st.
 用Page Assist可以，效果我觉得凑合</blockquote>
 你这是几b的，好像没推理出来我想问的部署r1自己，给理解成部署其他模型了
 
+
+*****
+
+####  黄泉川此方  
+##### 719#       发表于 2025-1-29 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305914&amp;ptid=2243718" target="_blank">又是十元 发表于 2025-1-29 20:37</a>
+
+你这是几b的，好像没推理出来我想问的部署r1自己，给理解成部署其他模型了 ...</blockquote>
+用的ollama上直接下的DeepSeek-R1-Distill-Qwen-32B
+
+
+*****
+
+####  木水风铃  
+##### 720#       发表于 2025-1-29 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305921&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:38</a>
+用的ollama上直接下的DeepSeek-R1-Distill-Qwen-32B</blockquote>
+这个是千问吧。。。？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

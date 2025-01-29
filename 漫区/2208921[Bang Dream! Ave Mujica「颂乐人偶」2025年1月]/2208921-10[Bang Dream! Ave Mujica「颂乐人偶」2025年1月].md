@@ -1954,3 +1954,41 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 
 也算是学习前辈的乐队建设思路了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 13497#       发表于 2025-1-29 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305564&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-29 19:35</a>
+节约的话有什么好滑坡的，省流不就是强调睦对祥子的箭头吗，这点剧中的表现还有什么可质疑的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为第四集最后表现的太差了，真的双重人格就必须好好解决莫提斯这个问题了，毕竟节约以前还说过睦的归宿是祥子身边
+说到底还是这个疑似双重人格的设定，为什么睦的归宿一定要是祥子身边而不是自己玩水仙呢？看起来莫提斯除了拆了母鸡卡外也没对睦怎样
+
+*****
+
+####  ads147147  
+##### 13498#       发表于 2025-1-29 20:40
+
+圣爱音大概率要开始羽丘追逐战把祥子狠狠拿下吧。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  阿兹尔  
+##### 13499#       发表于 2025-1-29 20:42
+
+爱音追人好像很猛，mygo里立希都跑不掉，立希还是公认的体育好，祥子有福了
+
+*****
+
+####  厚乳果珍爽  
+##### 13500#       发表于 2025-1-29 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304481&amp;ptid=2208921" target="_blank">sephal 发表于 2025-1-29 16:04</a>
+
+【AveMujica炸团？前辈们一个比一个狠！老邦邦人带你了解老团解散危机，一起看看如何拯救人偶们！-哔哩哔哩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了，这人确实够牛，一个人讲了一个多小时。
+
