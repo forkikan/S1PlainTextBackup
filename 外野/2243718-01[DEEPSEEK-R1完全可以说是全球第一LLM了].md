@@ -9660,3 +9660,14 @@ API没好的每一秒都在琢磨本地部署<img src="https://static.saraba1st.
 R1的多轮对话能力不好，问太多了不如重开聊天重新问</blockquote>
 就是问几次之后让r1收集下指出的问题并合并，然后从新开个新话题，然后用刚才的问题合集再从新开始？
 
+
+*****
+
+####  Fuero  
+##### 726#       发表于 2025-1-29 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305885&amp;ptid=2243718" target="_blank">又是十元 发表于 2025-1-29 20:31</a>
+
+本地部署可以联网搜索实时资料吗？</blockquote>
+open webui之类的前端支持，不过要提前申请对应的搜索服务api，我还没试过r1上可不可行
+

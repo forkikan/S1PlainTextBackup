@@ -2027,3 +2027,74 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 这才是后面要剧情体现的，为什么必须是祥子？
 睦的归宿是祥子身边这句话几乎是把其他cp一口气按死的地步，包括睦水仙也被按死了
 
+
+*****
+
+####  osore  
+##### 13504#       发表于 2025-1-29 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">cp岂是如此不便之物
+
+*****
+
+####  Lyzers  
+##### 13505#       发表于 2025-1-29 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305751&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-29 20:11</a>
+
+新访谈不也确定了这几集喵梦是故意朝着“讨厌”的方向表现的么，至少这点自知之明没必要滑了吧（ ...</blockquote>
+其实鸡现在的叙事逻辑也断断续续的，现在前面二三集确实都是明着告诉你大喵整的烂活影响到了睦头，卖狗时睦头被压力了一整季，情绪明显变化的镜头和台词加起来都没几个，母鸡卡这边两集就把睦头搞到紧张失眠，大喵花了两三集就被直球评价讨厌了，正常来看谁都会理解成睦对大喵更不对付
+
+那作为睦头的另一面的莫女士按理说也应该更集中大喵老师才对的，结果莫女士上线就全程只对着大祥狠狠输出，也不知道是没来得及跟大喵单独排对手戏就散了，还是编剧真要把大喵和睦头的关系描写就这么跳过
+
+*****
+
+####  山ノ内花音  
+##### 13506#       发表于 2025-1-29 20:58
+
+喜欢的反面是不在意
+墨缇丝确实不太在意喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 13507#       发表于 2025-1-29 21:00
+
+睦头在鸡压力山大不是因为被祥子当情绪垃圾桶吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 13508#       发表于 2025-1-29 21:02
+
+我印象里睦对喵梦的评价是总是说讨厌的话，mortis对祥子才是讨厌吧
+
+*****
+
+####  山ノ内花音  
+##### 13509#       发表于 2025-1-29 21:02
+
+被喵梦喷十几句 也就是自闭一会而已
+被祥子说一句 直接被打出第二人格 这就是含金量啊
+
+*****
+
+####  Besthounddog  
+##### 13510#       发表于 2025-1-29 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304935&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-29 17:45</a>
+搬运隔壁泥潭专楼的，今天新出的杂志访谈
+
+新杂志访谈，每个人翻了一些重点</blockquote>
+密切注意关系性，这不水魔吗
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  JustW  
+##### 13511#       发表于 2025-1-29 21:03
+
+至少前三集睦和乐队其他四个人都不太熟的样子，只是恰好其中有一个是发小罢了（
+
