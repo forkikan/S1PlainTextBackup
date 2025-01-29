@@ -1680,3 +1680,28 @@ mygo录完后才知道要"一人二役"
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  凉良  
+##### 13468#       发表于 2025-1-29 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305031&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-29 18:04</a>
+隔壁狗和gbc的动画都被控分到9.7，鸡动画这波到9.4都没人管，看来叔叔对后期逆转很自信啊 ...</blockquote>
+缓慢降分触发不了保护吧
+
+
+*****
+
+####  osore  
+##### 13469#       发表于 2025-1-29 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我b站看得少你们不要骗我，狗还要控分的吗
+
+*****
+
+####  高妹控  
+##### 13470#       发表于 2025-1-29 18:20
+
+🐔目前的情况，圆回来难度远大于🐶第九话吧，一集🐶的第十话感觉都不够，可能得两话甚至三话，独角兽有这个能力嘛？她迄今为止的笔力巅峰就是🐶了吧
+
