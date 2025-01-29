@@ -9028,3 +9028,16 @@ https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.shtml
 
 吉:说我发送消息过快。这种情况一般要等多久啊
 
+
+*****
+
+####  afer  
+##### 680#       发表于 2025-1-29 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304537&amp;ptid=2243718" target="_blank">Nanachi 发表于 2025-1-29 16:15</a>
+
+美国正对DeepSeek开展国家安全调查
+
+https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.s ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好事，支持撕破脸
+
