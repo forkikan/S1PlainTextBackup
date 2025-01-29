@@ -707,3 +707,13 @@ google从00年代的互联网最先进标杆，到现在各方面都像路边一
 
 很奇怪有多少人用过gemini的  gemini pro 免费一个月 实际上可以无限注册gmail保持免费， 而且目前使用上是我感觉中文语感最好的大模型语言（claude chatgpt deepseek都有用）
 
+
+*****
+
+####  jeokeo  
+##### 72#       发表于 2025-1-30 04:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286261&amp;ptid=2244332" target="_blank">名为侯国玉 发表于 2025-1-27 09:39</a>
+印象里gemini不是一直是路边一条吗？真雄起了？</blockquote>
+瑟瑟好像是最强的
+
