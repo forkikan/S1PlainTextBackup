@@ -1748,3 +1748,30 @@ mygo录完后才知道要"一人二役"
 结晶归结晶，花田确实也没发颠真的有胆把商业企划彻底弄烂，该圆的人设回撤都是尽可能去写的，这样一对比 ...</blockquote>
 哪怕控制变量法看一下都知道为啥星三会好起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就花田背负此间之恶呗。
 
+
+*****
+
+####  akiomn  
+##### 13476#       发表于 2025-1-29 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玫瑰是祥子是吧
+这下海祥也有资格上桌了，君臣组的臣为了再一次信任君主直接把其他打工乐队全停了
+
+
+*****
+
+####  海底铁锚  
+##### 13477#       发表于 2025-1-29 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305268&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-29 18:48</a>
+玫瑰是祥子是吧
+这下海祥也有资格上桌了，君臣组的臣为了再一次信任君主直接把其他打工乐队全停了 ...</blockquote>
+其他乐队：（丰川）资本的大手太恐怖了😭
+
+*****
+
+####  MASKA-1  
+##### 13478#       发表于 2025-1-29 18:54
+
+发错编辑
+

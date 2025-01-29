@@ -9212,3 +9212,32 @@ CPU：AMD EPYC 9004或9005 CPU（推理瓶颈在内存带宽，因此CPU不用�
 
 硬盘：任意1TB NVMe SSD
 
+
+*****
+
+####  moeblack  
+##### 693#         楼主| 发表于 2025-1-29 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305250&amp;ptid=2243718" target="_blank">名居守 发表于 2025-1-29 18:43</a>
+怎么才知道自己是被封号了（老是让ds整擦边涩涩）
+
+是直接提示账号不存在吗？ ...</blockquote>
+目前不封号吧？而且现在你退出了还登录不上去了，他们登录系统不是还是坏着的吗？不过现在好友上搜索功能也好了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moeblack  
+##### 694#         楼主| 发表于 2025-1-29 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305260&amp;ptid=2243718" target="_blank">Fuero 发表于 2025-1-29 18:45</a>
+分享一下推上Matthew Carrigan的纯CPU推理方案，仅需6000美刀。Deepseek R1，8bit量化，速度为6-8 token/s
+
+ ...</blockquote>
+这个方案如果再把cpu降点级用e5的话，还能再减点减到2万块钱或者3万块钱人民币甚至1万多人民币左右吧。
+
+就是速度可能只有3~5托肯秒了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
