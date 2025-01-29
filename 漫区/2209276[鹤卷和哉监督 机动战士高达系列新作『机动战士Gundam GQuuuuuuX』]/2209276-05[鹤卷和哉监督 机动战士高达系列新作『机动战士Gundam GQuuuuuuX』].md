@@ -980,3 +980,24 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 北美2月28上映，看了一眼，本地应该是有的。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 5992#       发表于 2025-1-29 11:59
+
+说起来，为什么奥米加塞可缪启动要什么样的nt，吉翁那边都不知道吗？至少夏利尔是不清楚的。
+
+所以说这奥米加塞可缪根本就不是完全由吉翁自主研发的吧。
+
+而且这个特殊的新人类到底需要怎样的条件。
+
+*****
+
+####  双菜  
+##### 5993#       发表于 2025-1-29 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67296220&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-28 18:40</a>
+这张同人麻球气质真不错</blockquote>
+有02那味了
+

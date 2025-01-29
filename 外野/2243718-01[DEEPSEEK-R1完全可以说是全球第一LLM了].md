@@ -8555,3 +8555,25 @@ api发key页面不能进了吗？
 
 有个很好玩的，Qwen又发布了新的基于moe的Qwen 2.5max，说是干过了DeepSeek的V3，已经成为对标的模版了，虽然也有用了moe的关系
 
+
+*****
+
+####  Fuero  
+##### 641#       发表于 2025-1-29 11:56
+
+本地部署671B的最便宜方案是不是买几台64G的Mac Mini M4
+
+*****
+
+####  泰坦失足  
+##### 642#       发表于 2025-1-29 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302847&amp;ptid=2243718" target="_blank">best32167 发表于 2025-1-29 10:20</a>
+
+一台插满内存通道的大内存裸金属服务器
+
+（虚拟服务器不行，别的虚拟机会抢内存带宽）
+
+这是10万元上下能实 ...</blockquote>
+不知道两台连接的256g nvidia project digits够跑量化版不。project digits的风评也从完美的小黑盒，变成了大家反应过来带宽和核心数都不行，只有个大显存带宽。但是ds r1这个moe激活的权重少，要的就是随时有权重在显存待命。显存/内存来回传输还是影响速度.
+

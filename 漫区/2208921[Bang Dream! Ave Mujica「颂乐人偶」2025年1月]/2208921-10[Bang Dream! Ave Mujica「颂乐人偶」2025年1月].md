@@ -1050,3 +1050,48 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就要智斗财阀了，谁是吃拉面那个
 
+
+*****
+
+####  Eubel  
+##### 13412#       发表于 2025-1-29 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302250&amp;ptid=2208921" target="_blank">plok201 发表于 2025-1-29 03:09</a>
+
+目前来看就是不要去想，去感受
+
+人家可能真没想那么多，毕竟自家其他团甚至其他偶像动画都是这样演的</blockquote>
+对啊，所以说就是因为A团跟钱关系这么大，商业化程度这么高，才更要关注这些吧。钱钱钱，命相连啊。
+
+*****
+
+####  Eubel  
+##### 13413#       发表于 2025-1-29 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302425&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-1-29 07:55</a>
+
+这一点刚好除夕子非鱼老师也加更了。他的拉片解释是祥子和睦作为鸡团内核双C，经纪公司更像是提供服务的 ...</blockquote>
+但是感觉这个也不好解释。。问题就在于，如果这个背后真的是丰川家金主，祥子不像是会吃这么多瘪的样子，更不要说睦现在美丽的精神状态。。
+
+团里双核，金主家的千金无家可归被团片说破防，明星女儿被逼疯，很怪。
+
+
+*****
+
+####  JustW  
+##### 13414#       发表于 2025-1-29 12:00
+
+毫无意外的展开，接下来就看114514种假药的信者有多少能接受了
+
+*****
+
+####  ads147147  
+##### 13415#       发表于 2025-1-29 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303102&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-29 11:18</a></blockquote>
+三次元这种事发生并不奇怪。
+
+母鸡卡这边主要是它是一个故事，肯定要向观众交代前因后果，如果说不清楚，人们可能就没对三次元故事一样那么宽容的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

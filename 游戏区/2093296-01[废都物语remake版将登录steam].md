@@ -28,3 +28,14 @@
 
 这游戏是不是烂尾了，丝之鸽和这个哪个会先出呢？
 
+
+*****
+
+####  101207777  
+##### 754#       发表于 2025-1-29 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302217&amp;ptid=2093296" target="_blank">佐敦·库勒 发表于 2025-1-29 02:41</a>
+
+这游戏是不是烂尾了，丝之鸽和这个哪个会先出呢？</blockquote>
+刚出了一个新pv
+
