@@ -10031,3 +10031,18 @@ ChatBOX，有GUI，一键安装的。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  卷饼大侠  
+##### 756#       发表于 2025-1-30 00:30
+
+ 本帖最后由 卷饼大侠 于 2025-1-30 00:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307134&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-30 00:07</a>
+我怀疑是360微调的一个小模型
+
+这也太野了</blockquote>
+应该是本地部署的，但是没辙呀，app上不去只能用这个凑合一下，我今天一天都是宕机。 不过现在回去用gpt，感觉不适应了，总感觉gpt中文不太行的样子
+
+我现在除了敏感话题会开gpt，基本都用dp了
+

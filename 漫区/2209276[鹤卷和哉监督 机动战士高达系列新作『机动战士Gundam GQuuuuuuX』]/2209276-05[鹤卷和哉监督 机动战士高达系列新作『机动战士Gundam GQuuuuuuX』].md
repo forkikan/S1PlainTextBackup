@@ -1883,3 +1883,23 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 
 夏亚换cv，排除戏外的原因的话，还有一个可能的展开，后期会有两个鸭的对话，另一个鸭的cv会用池田秀一区别
 
+
+*****
+
+####  Gysumitka  
+##### 6061#       发表于 2025-1-30 00:29
+
+红高达（Atomsk）上的某个部件。夏利亚是晴子位来救夏亚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwz  
+##### 6062#       发表于 2025-1-30 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306542&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-29 22:16</a>
+
+只能说要么牢修会写AI，要么这东西里提前装了某人的意识
+
+康奇作为辅助机器人，居然会有主动拒绝与主人对 ...</blockquote>
+墨镜？生怕别人不知道他是鸭子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
