@@ -9241,3 +9241,30 @@ CPU：AMD EPYC 9004或9005 CPU（推理瓶颈在内存带宽，因此CPU不用�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  R.I.P  
+##### 695#       发表于 2025-1-29 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305275&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-29 18:48</a>
+这个方案如果再把cpu降点级用e5的话，还能再减点减到2万块钱或者3万块钱人民币甚至1万多人民币左右吧。
+
+ ...</blockquote>
+不过d4常见的洋垃圾平台要堆到接近的内存通道数好像很难，同通道数本来带宽比d5就差，如果最后降到1token/s这个级别的推理速度的话感觉不太能用了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moeblack  
+##### 696#         楼主| 发表于 2025-1-29 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305319&amp;ptid=2243718" target="_blank">R.I.P 发表于 2025-1-29 18:56</a>
+不过d4常见的洋垃圾平台要堆到接近的内存通道数好像很难，同通道数本来带宽比d5就差，如果最后降到1token ...</blockquote>
+可惜deep seek r1现在不能用，唉，我刚才问了两句话，他又不理我了，又开始繁忙了
+
+不然问他可以直接得出一个比较合适的预算，昨天问过。昨天在那个帖子出来之前，我问他怎么样才能把它搭起来，他给我的预算就是6000美元，用的是跟它上面一样的方案，我勒个去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
