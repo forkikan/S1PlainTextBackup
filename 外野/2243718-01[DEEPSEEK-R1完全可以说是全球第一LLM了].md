@@ -8739,3 +8739,29 @@ Ollama用用一个模型下不同tag来命名不同模型闹眼子。
 
 想体验R1的强大只能等官方的复活了
 
+
+*****
+
+####  zerona  
+##### 658#       发表于 2025-1-29 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303725&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 13:07</a>
+
+第一次用这类软件，问一下各位大佬，现在网页版是不能用了吗？还有下面的深度思考R1，联网搜索都是什么意思 ...</blockquote>
+网页版提供2个版本，基础模式就是v3，它可以开联网模式，你点联网就是v3。
+
+如果你点了深度思考，就是打开了r1 ，r1 不提供联网模式。
+
+
+*****
+
+####  Azcarlo  
+##### 659#       发表于 2025-1-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304064&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-29 14:16</a>
+
+网页版提供2个版本，基础模式就是v3，它可以开联网模式，你点联网就是v3。
+
+如果你点了深度思考，就是打开 ...</blockquote>
+R1 可以同时点思考和联网的，只不过现在联网挂了
+
