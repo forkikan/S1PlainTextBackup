@@ -9908,3 +9908,33 @@ mradermacher / DeepSeek-R1-Distill-Qwen-14B-abliterated-v2.Q8_0.gguf
 叫它总结，然后用总结出来的资料和新开窗口聊</blockquote>
 意思是需要先在一轮对话中生成一个故事大纲，再重开一个对话把大纲喂给它让它详细演绎故事，是这个意思吗？
 
+
+*****
+
+####  bhunter  
+##### 745#       发表于 2025-1-29 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286587&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-27 10:25</a>
+
+ChatBOX，有GUI，一键安装的。
+
+虚拟桌宠模拟器，https://store.steampowered.com/app/1920960/_/?l=schine ...</blockquote>
+这个怎么调用deepseek的api呀，要装什么mod吗？没看到设置的地方。
+
+*****
+
+####  linc555  
+##### 746#       发表于 2025-1-29 22:49
+
+用api的版本会比web版好点么，现在提示我发送消息的频率过快
+
+没东西只能点刷新啊我也没办法啊，老美吃大便去
+
+
+*****
+
+####  SkavenYesYes  
+##### 747#       发表于 2025-1-29 22:52
+
+现在deepseek能回答我问题我都很珍惜了，因为感觉它是在炮火的夹缝里抽空回答的 ​​​<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
