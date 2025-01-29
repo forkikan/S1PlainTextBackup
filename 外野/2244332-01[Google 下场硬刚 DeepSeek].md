@@ -717,3 +717,24 @@ google从00年代的互联网最先进标杆，到现在各方面都像路边一
 印象里gemini不是一直是路边一条吗？真雄起了？</blockquote>
 瑟瑟好像是最强的
 
+
+*****
+
+####  andychen  
+##### 73#       发表于 2025-1-30 05:46
+
+ 本帖最后由 andychen 于 2025-1-30 05:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286368&amp;ptid=2244332" target="_blank">猫屎盆子 发表于 2025-1-27 09:52</a>
+google从00年代的互联网最先进标杆，到现在各方面都像路边一坨，中间究竟发生了什么？我知道它担忧砸招牌到 ...</blockquote>
+google这些年算不错的了，真正的废物是meta
+
+光说ai这块，Gemini作为追赶者现在好歹还有些优势领域，llama现在是性能不行开源又没dsr1彻底，要啥啥没有
+
+
+*****
+
+####  萦桦  
+##### 74#       发表于 2025-1-30 05:53
+
+谷歌也有自己的一套逻辑  
+
