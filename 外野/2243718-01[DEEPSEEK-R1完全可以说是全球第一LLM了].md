@@ -8597,3 +8597,19 @@ project digits好像只能组双机，所以不是很心动
 
 现在有什么适合超长上下文（文本分析）的ai？需要数百万token。qwen-long审查太严了，发现个minimax-01但试了下比较笨容易出错
 
+
+*****
+
+####  雾仙猫灯  
+##### 645#       发表于 2025-1-29 12:18
+
+<img src="https://img.saraba1st.com/forum/202501/29/121834jj716thtvnhlctto.jpg" referrerpolicy="no-referrer">
+
+<strong>MEITU_20250129_121601249.jpg</strong> (524.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 12:18 上传
+
+有人急了嘻嘻
+
