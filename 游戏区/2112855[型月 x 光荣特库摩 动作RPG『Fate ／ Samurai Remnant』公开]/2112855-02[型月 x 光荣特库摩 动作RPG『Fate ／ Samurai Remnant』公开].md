@@ -58,3 +58,15 @@
 所以这是粉丝游戏吗，还是路人也能玩的那种？</blockquote>
 如果看过一些fate动漫并对圣杯战争感兴趣可以考虑入，总而言之还是剧情卖点的游戏，战斗系统和手感只能说一般
 
+
+*****
+
+####  zzy516232108  
+##### 1825#       发表于 2025-1-30 07:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307438&amp;ptid=2112855" target="_blank">上坂莲华 发表于 2025-1-30 01:57</a>
+路人还是算了，这个你能玩进去要么是玩FGO玩的，要么超喜欢日本神话和历史
+
+不然玩起来就是一群不知道从哪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo就算在手游里比 游戏性也太贫瘠了
+
