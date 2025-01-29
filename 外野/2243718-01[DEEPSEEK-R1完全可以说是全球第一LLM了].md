@@ -9964,3 +9964,35 @@ ChatBOX，有GUI，一键安装的。
 直接用周鸿祎的那个纳米ai搜索就能用了，里面有个deepseek专线</blockquote>
 用了就感觉自己脏了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卷饼大侠  
+##### 751#       发表于 2025-1-29 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306935&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-29 23:33</a>
+用了就感觉自己脏了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/29/233720lct51yc4s1wqm5xs.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5022.PNG</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:37 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">我觉得没什么啊，我现在在里面问创始人是谁，dp会告诉我是周鸿祎，从某种意义上，我觉得老周出来挡枪还是挺仁义的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ryanghj  
+##### 752#       发表于 2025-1-29 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306826&amp;ptid=2243718" target="_blank">仓岛千百合 发表于 2025-1-29 23:17</a>
+
+我想问下，深度思考和联网搜索都开的话用的是r1还是v3模型，我想使用R1那联网搜索开不开 ...</blockquote>
+开了深度思考就是R1，联网功能现在关了
+
