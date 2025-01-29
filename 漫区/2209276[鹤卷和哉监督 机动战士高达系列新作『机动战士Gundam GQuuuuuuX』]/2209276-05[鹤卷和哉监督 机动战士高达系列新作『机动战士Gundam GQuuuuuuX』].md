@@ -1859,3 +1859,19 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 
 我倒觉得这个鸭子的机魂没法100%准确的和修司交流，可能只能传达一个非常粗略的内容，康奇的ai可能来自红高达上的某个部件（指不定就是阿尔法塞克缪上的东西）所以都用“高达”来指代这个传递信息的家伙，修司都不一定知道夏亚是谁（）
 
+
+*****
+
+####  岸浪白野  
+##### 6059#       发表于 2025-1-29 23:33
+
+[X 上的 タケウチ　リョースケ：“ジークアクス2回目観てきました 特典が最強過ぎる！FA捗るー✨ [url]https://t.co/XxNubqFBT7](https://x.com/ryosuketarou/status/1884610017292439917)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/29/233320lbybx0gdddcxpxoq.jpg" referrerpolicy="no-referrer">
+
+<strong>Gid60jEaIAAX2RG.jpg</strong> (666.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:33 上传
+

@@ -417,3 +417,11 @@ ps5上浪人崛起96g，pc竟然180g，往好了考虑是画质增强了，往�
 
 我还挺希望有西南战争联动最后的武士或者联动浪客剑心之类的
 
+
+*****
+
+####  zzy516232108  
+##### 3354#       发表于 2025-1-29 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来想买一个玩玩，nmb 180g啊
+
