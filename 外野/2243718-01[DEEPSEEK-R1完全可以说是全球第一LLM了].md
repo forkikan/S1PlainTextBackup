@@ -8694,3 +8694,33 @@ qwen的网页端好像可以让2个模型联手生成数据？
 不开就是v3，开是r1。联网搜索现在好像用不了，大模型关了网络搜索。</blockquote>
 难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 655#         楼主| 发表于 2025-1-29 13:39
+
+我必须提醒一下楼友
+
+目前唯一的deepseek-r1模型，为671b参数量的模型。
+
+其他所有（0.5-70b）模型，均不是deepseek-r1。是老师和学生的关系，学生还没出师。
+
+Ollama用用一个模型下不同tag来命名不同模型闹眼子。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qqks  
+##### 656#       发表于 2025-1-29 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302847&amp;ptid=2243718" target="_blank">best32167 发表于 2025-1-29 10:20</a>
+
+一台插满内存通道的大内存裸金属服务器
+
+（虚拟服务器不行，别的虚拟机会抢内存带宽）
+
+这是10万元上下能实 ...</blockquote>
+我在阿b看了一个cpu跑的，输出有7token。但提示处理只有12token。基本上就是玩具，不具备实用性
+

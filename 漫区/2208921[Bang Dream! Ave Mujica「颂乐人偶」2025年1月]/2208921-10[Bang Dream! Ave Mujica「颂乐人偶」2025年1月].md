@@ -1276,3 +1276,18 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 没事 上一部the 娱乐圈漫改 
 比母鸡卡还神棍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 13434#       发表于 2025-1-29 13:36
+
+换个说法，现实中有精神病没问题，甚至现实里乐队有人drug也不奇怪，但这放在动画中就很不合适
+
+*****
+
+####  Lyzers  
+##### 13435#       发表于 2025-1-29 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才一直说鸡这边的问题太硬核了，真按卖狗的叙事节奏和完成度来算，十三集讲得完睦头和大祥就算胜利
+
