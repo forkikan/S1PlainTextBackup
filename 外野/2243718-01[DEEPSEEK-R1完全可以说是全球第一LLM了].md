@@ -10056,3 +10056,38 @@ ChatBOX，有GUI，一键安装的。
 
 写点脚本还行，涉及功能的就萎了，不过你们键政的，写诗的可以用，反正生成的东西也没啥用（不是
 
+
+*****
+
+####  你好音希  
+##### 758#       发表于 2025-1-30 01:24
+
+挺好用的，唯一问题是访问的人太多？导致回答不及时，挺影响使用的，不过看在免费也没办法，希望后面能做个收费的版本，我还是愿意掏钱的，对我来说挺有用的
+
+*****
+
+####  moeblack  
+##### 759#         楼主| 发表于 2025-1-30 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307379&amp;ptid=2243718" target="_blank">你好音希 发表于 2025-1-30 01:24</a>
+挺好用的，唯一问题是访问的人太多？导致回答不及时，挺影响使用的，不过看在免费也没办法，希望后面能做个 ...</blockquote>
+不是这个原因
+
+deepseek的服务器支持一万亿次每天的推理请求。
+
+日活过亿也能一人一天一万次。
+最近的问题是被美国网军DDOS了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  硫黄  
+##### 760#       发表于 2025-1-30 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307379&amp;ptid=2243718" target="_blank">你好音希 发表于 2025-1-30 01:24</a>
+
+挺好用的，唯一问题是访问的人太多？导致回答不及时，挺影响使用的，不过看在免费也没办法，希望后面能做个 ...</blockquote>
+有美国傻逼在攻击服务器，收费的都用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
