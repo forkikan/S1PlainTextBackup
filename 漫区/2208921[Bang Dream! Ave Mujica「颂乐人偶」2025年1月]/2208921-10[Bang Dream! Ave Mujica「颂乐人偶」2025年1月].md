@@ -1385,3 +1385,26 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 明天就可以看到最新一集了吧。我好急，今天去影院看了烂片，需要洗洗眼
 
+
+*****
+
+####  rubinliu  
+##### 13445#       发表于 2025-1-29 15:50
+
+开始觉得母鸡卡像马3了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+同样有个高评价的前作
+
+结果编剧玩烂梗（內恰0G1 vs 莫老师无脑复读回旋镖
+
+还有无端引入破坏世界观的设定（癫疯期过了 vs 双重人格
+
+希望是我错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 13446#       发表于 2025-1-29 15:52
+
+但是好像没有场外这么多分析访谈和制作假药环节
+

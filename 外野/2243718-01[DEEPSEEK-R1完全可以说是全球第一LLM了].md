@@ -8931,3 +8931,18 @@ E5洋垃圾估计能到3token/s？只求运行的话估计华强北神机1w内�
 
 上面五个事情，只要不拆开，多来几次就全乱套了
 
+
+*****
+
+####  精钢魔像  
+##### 672#       发表于 2025-1-29 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304405&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-29 15:43</a>
+
+用r1还有必要做模块拆分么？
+
+我之前用gpt做一件事差不多要用3-5个ai，比如做一个设计
+
+①一个ai负责了解需求 ...</blockquote>
+要的。就是ai不乱，人脑也需要模块化来减少负担
+
