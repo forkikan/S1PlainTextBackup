@@ -856,3 +856,16 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 13393#       发表于 2025-1-29 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302555&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-29 08:59</a>
+要是真的这么稳当，那喵梦哪来的脸底气指导，祥子哪至于把自己逼那么紧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+因为祥子犯了乐队解散ptsd 乐队成员怎么搞事都不会开人
+而喵梦因为这一点，再加上被祥子取了一个爱的名字，误以为祥子铁暗恋自己。所以更有底气了
+
