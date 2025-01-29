@@ -1925,3 +1925,11 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 确实没人知道吧</blockquote>
 故事里的人当然不知道未来有个裤袜脱落把🐓拿大尉，但是毕竟观众是知道的嘛<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6065#       发表于 2025-1-30 01:00
+
+X上反馈有不少水魔入坑的继续看G9，而且反馈很不错，看来水魔引过来的这波流万代是接住了
+

@@ -10046,3 +10046,13 @@ ChatBOX，有GUI，一键安装的。
 
 我现在除了敏感话题会开gpt，基本都用dp了
 
+
+*****
+
+####  afer  
+##### 757#       发表于 2025-1-30 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">用了用，没有联网搜索功能，寄
+
+写点脚本还行，涉及功能的就萎了，不过你们键政的，写诗的可以用，反正生成的东西也没啥用（不是
+

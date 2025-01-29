@@ -57,3 +57,13 @@ OneDrive：1drv.ms/v/c/16d9a35274d26dc4/EeYcMsGHDTlIr4ITPI0FZgIBRS7Vtj869p7km-lp
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  damian-wade  
+##### 7571#       发表于 2025-1-30 01:05
+
+不是，ksm的live就这么没了？迫害得过分了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
