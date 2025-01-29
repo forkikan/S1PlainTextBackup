@@ -3371,3 +3371,18 @@ eupd死了
 
 这确定不是什么摇滚乐队刻板印象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chichengjerry  
+##### 26898#       发表于 2025-1-29 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67270276&amp;ptid=2159415" target="_blank">聊nsy专用号 发表于 2025-1-24 20:43</a>
+
+整理下今天lsan感想
+
+坐在西侧最左边正好能看到后台待机处，看到go待机的时候蜜柑一直在搓手手，凛和羊宫蜜 ...</blockquote>
+我在第一排看的，但是位置偏右被羊挡了视线，只听到弹呲看不到表情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+至于器材问题感觉是拼盘常态了
+

@@ -81,3 +81,11 @@
 
 顶上来还以为有新消息了，说实话这个重置确实太久了，又不是什么大规格remake
 
+
+*****
+
+####  alucardcz  
+##### 760#       发表于 2025-1-29 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再拖下去还没出的重制版又可以重制了
+
