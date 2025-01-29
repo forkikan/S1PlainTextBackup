@@ -10017,3 +10017,17 @@ ChatBOX，有GUI，一键安装的。
 直接用周鸿祎的那个纳米ai搜索就能用了，里面有个deepseek专线</blockquote>
 我用下来感觉智力和官网版本差了不少，大概率是360自己部署了个量化的，甚至是蒸馏版本的吧…
 
+
+*****
+
+####  moeblack  
+##### 755#         楼主| 发表于 2025-1-30 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306970&amp;ptid=2243718" target="_blank">卷饼大侠 发表于 2025-1-29 23:38</a>
+我觉得没什么啊，我现在在里面问创始人是谁，dp会告诉我是周鸿祎，从某种意义上，我觉得老周出来挡枪 ...</blockquote>
+我怀疑是360微调的一个小模型<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+这也太野了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
