@@ -2117,3 +2117,13 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 
 单箭头等于没箭头，不回箭头比恨更可恶<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 13514#       发表于 2025-1-29 21:25
+
+看完了老团危机剧情的简介，再加上bang dream一直以来互相穿插的剧情，要是A团的来龙去脉和以前完全没关系反而很怪，特别是妨碍kirakiradokidoki的少女乐队的因素必然是要一个个被拔除的。那个视频把之前的情况做了个“综述”，反衬的A团的问题更明显了。现在的剧情主要是一堆问题集中爆发了，走向也很邪道，但解决问题的大方向应该是是不会变的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
