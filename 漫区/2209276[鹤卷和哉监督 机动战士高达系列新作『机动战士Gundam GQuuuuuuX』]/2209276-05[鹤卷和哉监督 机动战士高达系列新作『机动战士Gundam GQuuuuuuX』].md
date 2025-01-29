@@ -972,3 +972,11 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 其实如果真的能确定是9号机之外还想看这作把8号机拉出来
 
+
+*****
+
+####  太极八爪鱼  
+##### 5991#       发表于 2025-1-29 09:32
+
+北美2月28上映，看了一眼，本地应该是有的。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
