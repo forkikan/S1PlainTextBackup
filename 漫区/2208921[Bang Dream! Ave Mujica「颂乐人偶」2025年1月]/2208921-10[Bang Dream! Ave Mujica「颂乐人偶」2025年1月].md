@@ -2195,3 +2195,33 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评价的前作以及苦等的前作粉丝的期待，本身也 ...</blockquote>
 lost song 就像 xb3，中间的饺子醋确实不错，不过后半该咋样咋样，只有 mygo 的 ep7，没有 ep10
 
+
+*****
+
+####  厉飞雨  
+##### 13521#       发表于 2025-1-29 22:10
+
+爱音毕竟阿斯顿维拉青训出来的，追逐战不在话下。
+
+*****
+
+####  天空塔书记官  
+##### 13522#       发表于 2025-1-29 22:10
+
+xb3的真结局在DLC，有没有崭新的未来对整个xb3的评价会很不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 13523#       发表于 2025-1-29 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306289&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-29 21:37</a>
+
+我自己的理解是睦头这种随便一嘴都能破防别人的语言艺术和“我只要说话就会变得不行”的自我认知，能用上 ...</blockquote>
+怎么都两周了还在轮这个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，讨厌的话是指喵梦说睦和祥子现在的关系很不健康，这样下去你们两个会一起完蛋
+
+这话讨厌，但是正确（不健康，在比喻意义和现实意义上都是）
+

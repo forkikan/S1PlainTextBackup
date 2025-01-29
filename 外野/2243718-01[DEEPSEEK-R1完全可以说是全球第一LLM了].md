@@ -9838,3 +9838,17 @@ deepseek-r1-qwen-2.5-32B-ablated-GGUF:Q6_K_L
 Q6_K_L终于能动了，但是输出的真挺烂的，梦回地摊杂志</blockquote>
 这些蒸馏模型都很差的，不要用
 
+
+*****
+
+####  黄泉川此方  
+##### 740#       发表于 2025-1-29 22:05
+
+ 本帖最后由 黄泉川此方 于 2025-1-29 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306437&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-1-29 22:02</a>
+
+这些蒸馏模型都很差的，不要用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">API坏了只能玩这个了
+
+狗屎美国人
+
