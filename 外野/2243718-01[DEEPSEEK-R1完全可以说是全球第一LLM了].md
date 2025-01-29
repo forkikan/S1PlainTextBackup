@@ -9041,3 +9041,35 @@ https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.shtml
 https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.s ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好事，支持撕破脸
 
+
+*****
+
+####  蜇灵  
+##### 681#       发表于 2025-1-29 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304537&amp;ptid=2243718" target="_blank">Nanachi 发表于 2025-1-29 16:15</a>
+美国正对DeepSeek开展国家安全调查
+
+https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.s ...</blockquote>
+
+这下官方认证了
+
+
+*****
+
+####  2017.05.04  
+##### 682#       发表于 2025-1-29 17:02
+
+<img src="https://p.sda1.dev/21/373d586ffdf0f779432f375ff0967656/image.jpg" referrerpolicy="no-referrer">
+太OPEN了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 683#       发表于 2025-1-29 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304709&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-1-29 17:02</a>
+
+太OPEN了</blockquote>
+closeai 真是没脸没皮
+

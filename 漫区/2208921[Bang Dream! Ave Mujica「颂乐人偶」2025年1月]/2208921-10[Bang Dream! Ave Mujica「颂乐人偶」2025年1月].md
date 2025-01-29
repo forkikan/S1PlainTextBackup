@@ -1451,3 +1451,30 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 你邦下一期主推团能不能搞一下炸团是和平分手的那种，像东京事变那样。
 
+
+*****
+
+####  qsscwddv1  
+##### 13451#       发表于 2025-1-29 17:04
+
+<img src="https://img.saraba1st.com/forum/202501/29/170446tlemzrgmhlmlgg5m.jpg" referrerpolicy="no-referrer">
+
+<strong>A5EDB5FA452945A4767D9238D71F853B.jpg</strong> (92.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-29 17:04 上传
+
+*****
+
+####  ddy2811  
+##### 13452#       发表于 2025-1-29 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302555&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-29 08:59</a>
+
+要是真的这么稳当，那喵梦哪来的脸底气指导，祥子哪至于把自己逼那么紧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+祥子不想承认自己“斩断一切”的觉悟就是这样的东西，而喵梦也觉得祥子这性子不会太愿意拉闹得不怎么愉快的家族下场吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
