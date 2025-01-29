@@ -8577,3 +8577,23 @@ api发key页面不能进了吗？
 这是10万元上下能实 ...</blockquote>
 不知道两台连接的256g nvidia project digits够跑量化版不。project digits的风评也从完美的小黑盒，变成了大家反应过来带宽和核心数都不行，只有个大显存带宽。但是ds r1这个moe激活的权重少，要的就是随时有权重在显存待命。显存/内存来回传输还是影响速度.
 
+
+*****
+
+####  Fuero  
+##### 643#       发表于 2025-1-29 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303281&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-29 11:57</a>
+
+不知道两台连接的256g nvidia project digits够跑量化版不。现在的就差一点就能量化到128G了，不过考虑到 ...</blockquote>
+个人本地部署还是要指望老黄的东西，没办法
+
+project digits好像只能组双机，所以不是很心动
+
+*****
+
+####  Mafise  
+##### 644#       发表于 2025-1-29 12:15
+
+现在有什么适合超长上下文（文本分析）的ai？需要数百万token。qwen-long审查太严了，发现个minimax-01但试了下比较笨容易出错
+
