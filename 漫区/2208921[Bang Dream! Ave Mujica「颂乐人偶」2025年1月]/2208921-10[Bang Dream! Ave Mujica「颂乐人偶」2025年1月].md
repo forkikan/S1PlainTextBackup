@@ -2184,3 +2184,14 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 牛国安的剧透的规矩和可信度怎么感觉也不太可靠啊，以前还是具体的账号，最新三份剧透除了一个黄大叔剩下两 ...</blockquote>
 黄大叔有新剧透？
 
+
+*****
+
+####  whzfjd  
+##### 13520#       发表于 2025-1-29 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305696&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-29 20:02</a>
+
+lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评价的前作以及苦等的前作粉丝的期待，本身也 ...</blockquote>
+lost song 就像 xb3，中间的饺子醋确实不错，不过后半该咋样咋样，只有 mygo 的 ep7，没有 ep10
+
