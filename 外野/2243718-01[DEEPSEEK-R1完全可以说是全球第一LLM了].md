@@ -9852,3 +9852,36 @@ Q6_K_L终于能动了，但是输出的真挺烂的，梦回地摊杂志</blockq
 
 狗屎美国人
 
+
+*****
+
+####  tonyunreal  
+##### 741#       发表于 2025-1-29 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306388&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 21:55</a>
+
+Q6_K_L终于能动了，但是输出的真挺烂的，梦回地摊杂志</blockquote>
+我下载了这个
+
+mradermacher / DeepSeek-R1-Distill-Qwen-14B-abliterated-v2.Q8_0.gguf
+
+先问了两个英文的逻辑问题
+
+1. My three sisters are the only people in a room. Anna is reading a book. Alice is playing a game of chess against someone in the room. What is the third sister, Amanda, doing?
+
+2. Jeff has two brothers and each of his brothers has three sisters and each of the sisters has four step brothers. How many step brothers does each brother have?
+
+深度思考过程和结果与未消融的同个模型基本一致。
+
+之后我用中文要求它写小黄文，被断然拒绝。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+换成英文要求，它先是深度思考，然后接受了。之后再补充要求，深度思考过程越来越短，上下文都拿去写作了，大成功。
+
+*****
+
+####  约翰里德  
+##### 742#       发表于 2025-1-29 22:24
+
+这玩意我昨晚注册显示手机号无法绑定，今天又显示此设备（我手机）不安全。
+这到底怎么注册新号<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

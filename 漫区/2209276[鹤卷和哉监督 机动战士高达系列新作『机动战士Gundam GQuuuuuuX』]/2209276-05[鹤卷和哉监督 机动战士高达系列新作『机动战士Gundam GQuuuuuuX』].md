@@ -1680,3 +1680,30 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 【【设定全译】高达GQuuuuuuX特典设定集全译】 
 [https://b23.tv/Uph6wZn](https://b23.tv/Uph6wZn)
 
+
+*****
+
+####  刺客ares  
+##### 6044#       发表于 2025-1-29 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306414&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-29 21:58</a>
+
+我觉得这基本上就是红敢达意识本体或者外部媒介了吧</blockquote>
+只能说要么牢修会写AI，要么这东西里提前装了某人的意识
+
+康奇作为辅助机器人，居然会有主动拒绝与主人对话的表现，这很不正常
+
+剧中也是它发出电子音，然后牢修开始高达说xxx
+
+<img src="https://img.saraba1st.com/forum/202501/29/221543lnu30zho2h4s4r6r.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (319 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 22:15 上传
+
+（霓虹那边其实早就已经快进到鸭子在螃蟹里并作为红高达机魂把牢修当捡来的笨儿子的展开了
+
+（这个一言不合就戴墨镜我感觉已经有点明示了
+
