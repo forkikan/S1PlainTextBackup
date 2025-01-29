@@ -8523,3 +8523,15 @@ api发key页面不能进了吗？
 —— 来自 鹅球 v3.3.96</blockquote>
 进不了，昨天下午就是了。V3能勉强用一些，R1是直接废了。
 
+
+*****
+
+####  发呆的龙虾  
+##### 638#       发表于 2025-1-29 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303002&amp;ptid=2243718" target="_blank">XSH97 发表于 2025-1-29 10:58</a>
+进不了，昨天下午就是了。V3能勉强用一些，R1是直接废了。</blockquote>
+我现在网页也用不了了，美国佬还我D老师，写小说设定写得正嗨呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

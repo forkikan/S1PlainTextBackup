@@ -1000,3 +1000,45 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 二三次元有因为一个吉他手突然上不了台而在巡演时突然解散的乐队吗？
 
+
+*****
+
+####  山ノ内花音  
+##### 13407#       发表于 2025-1-29 11:18
+
+<img src="https://img.saraba1st.com/forum/202501/29/111844pww4weay0x27xax2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4271.jpeg</strong> (175.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 11:18 上传
+
+*****
+
+####  595505568  
+##### 13408#       发表于 2025-1-29 11:19
+
+<blockquote>一心而用 发表于 2025-1-29 11:16
+二三次元有因为一个吉他手突然上不了台而在巡演时突然解散的乐队吗？</blockquote>
+你看你楼下，也是生死五分钟）
+
+*****
+
+####  嵇翱u  
+##### 13409#       发表于 2025-1-29 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303084&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-29 11:16</a>
+二三次元有因为一个吉他手突然上不了台而在巡演时突然解散的乐队吗？</blockquote>
+现实还真有因为上台前吵架而直接解散的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+但还是那句话，现实不需要逻辑，但是故事需要。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 13410#       发表于 2025-1-29 11:22
+
+独角兽:致敬传奇乐队绿洲
+
