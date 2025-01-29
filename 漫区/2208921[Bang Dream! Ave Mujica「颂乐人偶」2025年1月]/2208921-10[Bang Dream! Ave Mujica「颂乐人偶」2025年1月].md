@@ -2498,3 +2498,11 @@ pareo实际干的事可比莫提斯可怕多了
 
 杂志估计是当前情报汇总，真成纯良初华也太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JustW  
+##### 13547#       发表于 2025-1-30 04:07
+
+至少仙台吵架的初华不是演的吧，应该是真吵不过
+
