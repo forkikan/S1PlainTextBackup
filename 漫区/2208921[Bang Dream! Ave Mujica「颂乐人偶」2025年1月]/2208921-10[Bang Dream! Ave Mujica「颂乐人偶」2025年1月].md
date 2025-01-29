@@ -948,3 +948,19 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 真有人阴谋故意拆团的代价是什么？变成soyo那样，得飞鸟山复刻了</blockquote>
 初华很有可能是Soyo位<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古明地雷  
+##### 13402#       发表于 2025-1-29 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">舅舅第一句话直接杀死比赛了，所以到底是怎么扯到解散的
+
+
+*****
+
+####  山ノ内花音  
+##### 13403#       发表于 2025-1-29 10:45
+
+几个人在吵架时感受到了一股来自独角兽的神秘毒奶力量
+
