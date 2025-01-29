@@ -8883,3 +8883,29 @@ DeepSeek 还在其政策中简要指出，当它将数据从 DeepSeek 的使用�
 
 他拒绝透露欧盟认为 DeepSeek 是否遵守了这些规则。 随后，他被问及该应用对中国政治敏感话题的审查是否违反了欧洲的言论自由规则，以及是否应就此展开调查。 雷格尼尔在回应中说道："现在还处于早期阶段，我还谈不上调查。 如果存在潜在问题，我们的框架足以解决这些问题。"
 
+
+*****
+
+####  ryanghj  
+##### 669#       发表于 2025-1-29 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304187&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-29 14:43</a>
+
+有没有人 知道 一般炸到啥时候能好</blockquote>
+现在问题是DDOS规模空前，而且赶上春节假期估计一时半会好不了
+
+
+*****
+
+####  qwased  
+##### 670#       发表于 2025-1-29 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302847&amp;ptid=2243718" target="_blank">best32167 发表于 2025-1-29 10:20</a>
+
+一台插满内存通道的大内存裸金属服务器
+
+（虚拟服务器不行，别的虚拟机会抢内存带宽）
+
+这是10万元上下能实 ...</blockquote>
+E5洋垃圾估计能到3token/s？只求运行的话估计华强北神机1w内就能解决
+

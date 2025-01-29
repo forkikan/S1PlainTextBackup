@@ -89,3 +89,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再拖下去还没出的重制版又可以重制了
 
+
+*****
+
+####  宛若青空  
+##### 761#       发表于 2025-1-29 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303905&amp;ptid=2093296" target="_blank">xbhuang 发表于 2025-1-29 13:40</a>
+
+你要是用了现代化技术重置，那我还可以说确实得花点时间，可是之前看了下，就重新画了下角色，换了点UI，机 ...</blockquote>
+不是吧，哪来的五六年，疫情这几年的都出现漫长时间错觉了。
+
+22年底刚开始开发就公布，算23年开始到现在也就两年，更何况广州天闻角川之前都没有过开发游戏的经验，从0开始拉的队伍。
+
+另外，有新内容战斗系统也并不是简单套用原作，之前那么多消息我都搬过愿意了解的可以往前翻。
+

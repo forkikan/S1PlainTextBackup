@@ -1344,3 +1344,16 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 十五年最狂之大女主
 <img src="https://p.sda1.dev/21/a6be912f4e745115059ed7b20f00203e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 13442#       发表于 2025-1-29 15:05
+
+ 本帖最后由 huxiaopao163 于 2025-1-29 15:06 编辑 
+
+我开始怀疑真的有什么人物前后变化很大，什么故意隐瞒cv后续剧情之内的，感觉只是单纯拿来炒作。
+有空在这一门心思写采访的剧本，不如好好打磨故事本身的剧本。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
