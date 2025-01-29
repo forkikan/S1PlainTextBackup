@@ -1533,3 +1533,25 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 不是结晶了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 13458#       发表于 2025-1-29 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304852&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-29 17:27</a>
+不是结晶了吗</blockquote>
+结晶归结晶，花田确实也没发颠真的有胆把商业企划彻底弄烂，该圆的人设回撤都是尽可能去写的，这样一对比花田在gbc里对偶像竖中指就非常的地狱笑话。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 13459#       发表于 2025-1-29 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304804&amp;ptid=2208921" target="_blank">花スープ 发表于 2025-1-29 17:18</a>
+
+不是很懂二次元，有没有那种前几集哪哪都不对，最后还能成功圆回来的动漫，看番少，感觉对母鸡卡越看越没信 ...</blockquote>
+Lost Song，都不用烂片雷达上来就烂，但后面发现烂得有理有据，完成了惊天大逆转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
