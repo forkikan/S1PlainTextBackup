@@ -9885,3 +9885,26 @@ mradermacher / DeepSeek-R1-Distill-Qwen-14B-abliterated-v2.Q8_0.gguf
 这玩意我昨晚注册显示手机号无法绑定，今天又显示此设备（我手机）不安全。
 这到底怎么注册新号<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 743#         楼主| 发表于 2025-1-29 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306578&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-1-29 22:24</a>
+
+这玩意我昨晚注册显示手机号无法绑定，今天又显示此设备（我手机）不安全。
+
+这到底怎么注册新号 ...</blockquote>
+应该注册不了了 目前 DDOS持续中
+
+*****
+
+####  linchuanwangmou  
+##### 744#       发表于 2025-1-29 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305900&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:35</a>
+
+叫它总结，然后用总结出来的资料和新开窗口聊</blockquote>
+意思是需要先在一轮对话中生成一个故事大纲，再重开一个对话把大纲喂给它让它详细演绎故事，是这个意思吗？
+

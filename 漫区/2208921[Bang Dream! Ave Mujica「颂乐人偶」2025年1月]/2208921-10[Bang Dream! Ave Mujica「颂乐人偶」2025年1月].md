@@ -2225,3 +2225,44 @@ xb3的真结局在DLC，有没有崭新的未来对整个xb3的评价会很不�
 
 这话讨厌，但是正确（不健康，在比喻意义和现实意义上都是）
 
+
+*****
+
+####  半年  
+##### 13524#       发表于 2025-1-29 22:27
+
+<img src="https://img.saraba1st.com/forum/202501/29/222742jzbls7vrfx6bw5ns.jpg" referrerpolicy="no-referrer">
+
+<strong>GidcGfhbgAAYxAR.jpg</strong> (131.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 22:27 上传
+
+[https://x.com/Rainy_NEGI/status/1884576244463030665/photo/1](https://x.com/Rainy_NEGI/status/1884576244463030665/photo/1)
+
+*****
+
+####  mono  
+##### 13525#       发表于 2025-1-29 22:28
+
+我在splatoon改了一个坚强的id <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+photo_2025-01-26_21-48-08.jpg
+(132.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/222701x9n8mja3e422ke28.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 13526#       发表于 2025-1-29 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306289&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-29 21:37</a>
+我自己的理解是睦头这种随便一嘴都能破防别人的语言艺术和“我只要说话就会变得不行”的自我认知，能用上 ...</blockquote>
+いやなこと和きらいなひと不是一个东西。就好像喜欢的反义词不是讨厌而是无关心，总是说讨厌的话的反义词不是说话真好听而是别搭理我，至少目前看上去睦和喵梦的关系并没有深入到可以讨论睦对喵梦是喜欢还是讨厌的程度，如果喵梦不插手睦和祥子的事情的话恐怕睦一个字都不会说。
+
