@@ -8765,3 +8765,40 @@ Ollama用用一个模型下不同tag来命名不同模型闹眼子。
 如果你点了深度思考，就是打开 ...</blockquote>
 R1 可以同时点思考和联网的，只不过现在联网挂了
 
+
+*****
+
+####  zyf199212  
+##### 660#       发表于 2025-1-29 14:25
+
+d瘾犯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 661#       发表于 2025-1-29 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304085&amp;ptid=2243718" target="_blank">Azcarlo 发表于 2025-1-29 14:21</a>
+
+R1 可以同时点思考和联网的，只不过现在联网挂了</blockquote>
+那就是我记错了。哎，反正赶紧好吧。从灵动的小妹变模型了的感觉。
+
+
+*****
+
+####  moekyo  
+##### 662#       发表于 2025-1-29 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303457&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-29 12:25</a>
+qwen的网页端好像可以让2个模型联手生成数据？
+
+他家的api现在没有吗？</blockquote>
+千问怎么可能没API呢，在阿里的百炼上，貌似有送多少钱来着，在三个月内可用
+
+*****
+
+####  linchuanwangmou  
+##### 663#       发表于 2025-1-29 14:33
+
+美国人太坏了，刚开始玩上就服务器炸了
+
