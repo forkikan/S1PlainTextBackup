@@ -8613,3 +8613,16 @@ project digits好像只能组双机，所以不是很心动
 
 有人急了嘻嘻
 
+
+*****
+
+####  zerona  
+##### 646#       发表于 2025-1-29 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303244&amp;ptid=2243718" target="_blank">moekyo 发表于 2025-1-29 11:47</a>
+
+有个很好玩的，Qwen又发布了新的基于moe的Qwen 2.5max，说是干过了DeepSeek的V3，已经成为对标的模版了，虽 ...</blockquote>
+qwen的网页端好像可以让2个模型联手生成数据？
+
+他家的api现在没有吗？
+

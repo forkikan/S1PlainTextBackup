@@ -1137,3 +1137,32 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 当初小说里叶修再夺一冠，确实很多人喷蝴蝶蓝就为了完美结局这碟醋硬包饺子，后来的事情大家都知道了，现实里有更离奇离谱的。
 
+
+*****
+
+####  一心而用  
+##### 13421#       发表于 2025-1-29 12:26
+
+<img src="https://p.sda1.dev/21/e942ce850fd39dd18098b372df1206f4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tsoulgain  
+##### 13422#       发表于 2025-1-29 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302803&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-29 10:12</a>
+英文预告
+#5 Facta fugis, facienda petis.</blockquote>
+成员们回到了各自的生活，离开聚光灯，各自走向属于自己的shadow。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">我已经完全懂了，快进到“你这种家伙，怎么可能会是我！！！！”
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 13423#       发表于 2025-1-29 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈呀，真解散啊？我快笑不活了。
+
