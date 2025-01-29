@@ -1933,3 +1933,11 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 
 X上反馈有不少水魔入坑的继续看G9，而且反馈很不错，看来水魔引过来的这波流万代是接住了
 
+
+*****
+
+####  纪寞  
+##### 6066#       发表于 2025-1-30 01:48
+
+那个黑拳公司女老板真在打开gqx驾驶舱时看奥米加塞克缪位置后露出惊讶脸了吗，我看有视频提到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

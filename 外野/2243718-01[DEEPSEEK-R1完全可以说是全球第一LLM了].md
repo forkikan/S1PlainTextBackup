@@ -10091,3 +10091,17 @@ deepseek的服务器支持一万亿次每天的推理请求。
 挺好用的，唯一问题是访问的人太多？导致回答不及时，挺影响使用的，不过看在免费也没办法，希望后面能做个 ...</blockquote>
 有美国傻逼在攻击服务器，收费的都用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 761#       发表于 2025-1-30 01:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我让ai出黄文结果我被ai撩到了，阿刚 1:16:11
+
+此刻蜷缩在扎卡怀里的他忽然明白，锁住自己的从来不是契约——而是贪恋被撕碎时，那人眼里燃烧的独占欲
+
+                                                   不是契约拴住了对方，而是自己甘愿被那具**肉体锁住了咽喉。
+
+我让他分辨出文中两方互相的看法……他分辨各出了一句…这獭马可是黄文啊，忽然这么一搞就特别走心了……
+
