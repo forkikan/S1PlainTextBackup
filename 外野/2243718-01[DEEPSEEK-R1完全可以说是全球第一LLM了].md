@@ -9330,3 +9330,30 @@ deepseek虽然具有很多创新但不至于颠覆硅谷，是一个非常好的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  琉璃苑軒風  
+##### 699#       发表于 2025-1-29 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305275&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-29 18:48</a>
+这个方案如果再把cpu降点级用e5的话，还能再减点减到2万块钱或者3万块钱人民币甚至1万多人民币左右吧。
+
+ ...</blockquote>
+e5内存通道太少了，双路8通道低频d4对比双路24通道d5差距太大了，加上cpu差距，可能不太能用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ryanghj  
+##### 700#       发表于 2025-1-29 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305396&amp;ptid=2243718" target="_blank">chenke 发表于 2025-1-29 19:05</a>
+
+转载两篇我觉得很有意思的。</blockquote>
+deepseek对transformer进行了改造，最显著的就是MHA改成了MLA，Next token prediction改成了MTP
+
+取决于你怎么定义“传统的transformer”，因为他们做的改变是很显著的
+
