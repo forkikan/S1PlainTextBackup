@@ -9073,3 +9073,23 @@ https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.s ...</blockquot
 太OPEN了</blockquote>
 closeai 真是没脸没皮
 
+
+*****
+
+####  SkavenYesYes  
+##### 684#       发表于 2025-1-29 17:09
+
+联网能用了么<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  afer  
+##### 685#       发表于 2025-1-29 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304709&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-1-29 17:02</a>
+
+太OPEN了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">所以不开源的好处就来了，我说你抄了就抄了，反正你看不见我
+

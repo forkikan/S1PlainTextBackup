@@ -1478,3 +1478,27 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 祥子不想承认自己“斩断一切”的觉悟就是这样的东西，而喵梦也觉得祥子这性子不会太愿意拉闹得不怎么愉快的家族下场吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 13453#       发表于 2025-1-29 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302661&amp;ptid=2208921" target="_blank">plok201 发表于 2025-1-29 09:41</a>
+
+真有兜底的话，也算是个大型回旋镖吧
+
+这一整年大伙都在脑补祥子怎么一个人把团队拉扯出来，大小姐过家家 ...</blockquote>
+再怎么不想承认，“祥子姓丰川”就是她最重要的原始资本之一，要不然她拿什么去认识睦和初华并且拉动她们呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+同时，如果祥子还想前进，也一定要调整好如何看待这个原始资本的心态，调整好了可以当助力也可以放下，调整不好那就会成为心魔——自己过不去也好，被别人侧目而视也罢
+
+*****
+
+####  Sanco  
+##### 13454#       发表于 2025-1-29 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303659&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-29 12:56</a>
+我觉得都是对上一季的矫枉过正，素世演的这么明显，正常人都能看出。但是有人就是不信结果打脸了。mygo时候 ...</blockquote>
+文学是写人的，go属于是就是在大多数动画的人物给人感觉只写几行字的情况下她给你写了几页纸，然后在同样的13集20分钟的框架里呈现出来，在以卖角色为核心的企划里把角色的文学性写出来了，这对于这种类型动画来说方向可以说十分正确了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
