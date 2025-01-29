@@ -1941,3 +1941,17 @@ X上反馈有不少水魔入坑的继续看G9，而且反馈很不错，看来�
 
 那个黑拳公司女老板真在打开gqx驾驶舱时看奥米加塞克缪位置后露出惊讶脸了吗，我看有视频提到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6067#       发表于 2025-1-30 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306434&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-29 22:02</a>
+78和正史没有太大的不同吧
+至少从目前的设定看起来除了外形差异之外涉及技术思路不同的只有核心战机的大 ...</blockquote>
+78的开发规划更接近GTO吧
+不单型号都改成RX-78-01、RX-78-02，而且在夏亚袭击side7时仍保有RX-78-01（原0079这个时点原有的RX-78-1也已经修改为RX-78-2规格，加上新造的共3台RX-78-2）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
