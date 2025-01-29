@@ -9795,3 +9795,46 @@ deepseek-r1-qwen-2.5-32B-ablated-GGUF:Q6_K_L
 
 2025-1-29 21:47 上传
 
+
+*****
+
+####  黄泉川此方  
+##### 736#       发表于 2025-1-29 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306338&amp;ptid=2243718" target="_blank">tonyunreal 发表于 2025-1-29 21:46</a>
+
+原版qwen2.5 32b消融后的我觉得还凑合
+
+反正本地模型能通顺的说中文就已经不错了，英文写作都不如专门的写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Q6_K_L终于能动了，但是输出的真挺烂的，梦回地摊杂志
+
+*****
+
+####  魔灵高达  
+##### 737#       发表于 2025-1-29 21:58
+
+不好意思，DeepSeek 联网搜索服务繁忙，请关闭联网搜索功能，或者稍后再试。
+
+联网搜索被关闭了？希望明后天能修好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moeblack  
+##### 738#         楼主| 发表于 2025-1-29 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306219&amp;ptid=2243718" target="_blank">qqks 发表于 2025-1-29 21:29</a>
+
+其实现在最好的就是国家那几个智算中心托管满血版，据说那里面的昇腾计算卡利用率普遍不高，拿来服务大众既 ...</blockquote>
+观点还没变过来，说实话业内现在心情复杂（做应用的除外）
+
+*****
+
+####  ryanghj  
+##### 739#       发表于 2025-1-29 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306388&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 21:55</a>
+
+Q6_K_L终于能动了，但是输出的真挺烂的，梦回地摊杂志</blockquote>
+这些蒸馏模型都很差的，不要用
+

@@ -1651,3 +1651,23 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 
 宇宙检察官的感觉，和top连上了
 
+
+*****
+
+####  王留美  
+##### 6041#       发表于 2025-1-29 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305491&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-29 19:21</a>
+ 牢修头上的机械螃蟹是用儿童电视游戏机改的 摄像头，机械手脚，橙色涂装都是后来才添加的，原本就是一个白 ...</blockquote>
+我觉得这基本上就是红敢达意识本体或者外部媒介了吧
+
+*****
+
+####  王留美  
+##### 6042#       发表于 2025-1-29 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305563&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-1-29 19:35</a>
+ 不是吧，虽然说是发展不同的世界线 但是这次0079部分 夏亚那群人类还是老画风，但明显rx782一开始就不是0 ...</blockquote>
+78和正史没有太大的不同吧
+至少从目前的设定看起来除了外形差异之外涉及技术思路不同的只有核心战机的大型化这一个点
+
