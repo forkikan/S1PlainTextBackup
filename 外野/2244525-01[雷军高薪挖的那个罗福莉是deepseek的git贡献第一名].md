@@ -449,3 +449,20 @@ DS自己团队都没说过什么，你们有必要这么关心人家的黑料吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">建议发去中专论坛
 
+
+*****
+
+####  loushifang  
+##### 45#       发表于 2025-1-29 10:28
+
+量化基金招一个jumping进去干嘛？但凡动动脑子或者动动手看看人家履历也不至于有这样的想法…
+
+*****
+
+####  很多问题  
+##### 46#       发表于 2025-1-29 10:33
+
+<blockquote>对女声的旋死没有任何抵抗力</blockquote>
+
+请问女声的旋死是啥???
+

@@ -937,3 +937,14 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  玖羽  
+##### 13401#       发表于 2025-1-29 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302262&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-29 03:19</a>
+
+真有人阴谋故意拆团的代价是什么？变成soyo那样，得飞鸟山复刻了</blockquote>
+初华很有可能是Soyo位<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
