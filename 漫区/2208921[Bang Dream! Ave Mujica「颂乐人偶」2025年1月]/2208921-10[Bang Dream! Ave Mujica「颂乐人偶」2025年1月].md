@@ -1908,3 +1908,12 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 13492#       发表于 2025-1-29 20:21
+
+牛国安的剧透是哪个帖子的，现在专楼没了只有专版根本没法跟进最新进度了
+倒是贴吧发了一个和楼里一样的剧透，但也是牛国安的截图<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -9439,3 +9439,40 @@ deepseek对transformer进行了改造，最显著的就是MHA改成了MLA，Next
 我有一个问题啊，我让deepseek帮我总结特摄剧的剧情大纲，在人名上面总是会出现谬误，比如说我问一个角色的 ...</blockquote>
 一次对话太大也会有，最好分成几个会话
 
+
+*****
+
+####  linchuanwangmou  
+##### 708#       发表于 2025-1-29 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305792&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:16</a>
+
+没联网他没资料就只能编
+
+当然联网也会把网上的口胡加进去</blockquote>
+我觉得他应该是有一个内置的资料库吧，很奇怪，我问他王样战队君王者其中的紫战士演员是谁，他给我的是同一个剧里的另外一个角色的演员，我认为应该是有答案，但是给不了我正确的答案。如果没资料那他应该一个正确的答案都没有，而不是有的对有的错吧？
+
+*****
+
+####  ryanghj  
+##### 709#       发表于 2025-1-29 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305772&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 20:14</a>
+
+我有一个问题啊，我让deepseek帮我总结特摄剧的剧情大纲，在人名上面总是会出现谬误，比如说我问一个角色的 ...</blockquote>
+R1的多轮对话能力不好，问太多了不如重开聊天重新问
+
+*****
+
+####  sellboy  
+##### 710#       发表于 2025-1-29 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305672&amp;ptid=2243718" target="_blank">Fuero 发表于 2025-1-29 19:56</a>
+
+老外的部署实践：https://digitalspaceport.com/run ... lled-qwen-or-llama/
+
+目测CPU部署看上去很美，实用 ...</blockquote>
+显存部分3090*4加起来都装不下，瓶颈肯定是内存
+
+而瓶颈是内存的话，8通道D4变成24通道D5提升幅度还是挺明显的。
+
