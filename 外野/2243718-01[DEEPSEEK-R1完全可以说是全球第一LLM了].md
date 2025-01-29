@@ -9938,3 +9938,11 @@ ChatBOX，有GUI，一键安装的。
 
 现在deepseek能回答我问题我都很珍惜了，因为感觉它是在炮火的夹缝里抽空回答的 ​​​<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仓岛千百合  
+##### 748#       发表于 2025-1-29 23:17
+
+我想问下，深度思考和联网搜索都开的话用的是r1还是v3模型，我想使用R1那联网搜索开不开
+

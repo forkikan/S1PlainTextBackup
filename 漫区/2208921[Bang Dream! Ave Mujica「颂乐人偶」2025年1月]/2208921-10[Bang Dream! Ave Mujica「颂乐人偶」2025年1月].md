@@ -2321,3 +2321,56 @@ photo_2025-01-26_21-48-08.jpg
 
 只是这个台词有点太富野了，逻辑上通顺但让人感觉缺失了一些环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 13533#       发表于 2025-1-29 23:08
+
+自購 megami
+
+下期mujica特輯<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/29/230657rjyuzrvxhl1vk38x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/230808hz7yiz2kdrqx2zs9.jpg" referrerpolicy="no-referrer">
+
+<strong>76.jpg</strong> (939.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/230811lysupexycop6y6uz.jpg" referrerpolicy="no-referrer">
+
+<strong>77.jpg</strong> (826.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/230814js7h0ffmqz2s0fof.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (492.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 23:08 上传
+
+*****
+
+####  天空塔书记官  
+##### 13534#       发表于 2025-1-29 23:09
+
+我只关心RAS会不会再有成员露脸，起码楚平方的学校可还没见过真容呢，国际学校不会真在国外吧( ? )
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
