@@ -1738,3 +1738,13 @@ mygo录完后才知道要"一人二役"
 又不是兽娘二完全踢出去的情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 按照控制变量法，要看一下柿本和独角兽单独在其他动画的情况才能分神畜。
 
+
+*****
+
+####  海底铁锚  
+##### 13475#       发表于 2025-1-29 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304881&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-29 17:34</a>
+结晶归结晶，花田确实也没发颠真的有胆把商业企划彻底弄烂，该圆的人设回撤都是尽可能去写的，这样一对比 ...</blockquote>
+哪怕控制变量法看一下都知道为啥星三会好起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就花田背负此间之恶呗。
+

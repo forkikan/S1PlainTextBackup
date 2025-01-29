@@ -9185,3 +9185,30 @@ closeai 真是没脸没皮
 
 写同人相当牛逼，试了试机动警察和高达的
 
+
+*****
+
+####  名居守  
+##### 691#       发表于 2025-1-29 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么才知道自己是被封号了（老是让ds整擦边涩涩）
+
+是直接提示账号不存在吗？
+
+*****
+
+####  Fuero  
+##### 692#       发表于 2025-1-29 18:45
+
+分享一下推上Matthew Carrigan的纯CPU推理方案，仅需6000美刀。Deepseek R1，8bit量化，速度为6-8 token/s
+
+主板：Gigabyte MZ73-LM0或MZ73-LM1
+
+CPU：AMD EPYC 9004或9005 CPU（推理瓶颈在内存带宽，因此CPU不用太强，省钱可上9115或9015）
+
+内存：24 x 32GB DDR5-RDIMM
+
+电源：能耗&lt;400W，上HX1000i
+
+硬盘：任意1TB NVMe SSD
+
