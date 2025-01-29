@@ -10117,3 +10117,14 @@ deepseek的服务器支持一万亿次每天的推理请求。
 
 什么时候原版的抽风才能好啊
 
+
+*****
+
+####  泰坦失足  
+##### 763#       发表于 2025-1-30 05:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306970&amp;ptid=2243718" target="_blank">卷饼大侠 发表于 2025-1-29 23:38</a>
+
+我觉得没什么啊，我现在在里面问创始人是谁，dp会告诉我是周鸿祎，从某种意义上，我觉得老周出来挡枪 ...</blockquote>
+我觉得是设置了额外System prompt，让它能告知别人自己是360架设的。然后这个又没联网。自己不知道创始人-&gt;System prompt说自己是周鸿祎360架设的-&gt;那就说是周鸿祎吧，至少比随口说个别人成功概率高
+
