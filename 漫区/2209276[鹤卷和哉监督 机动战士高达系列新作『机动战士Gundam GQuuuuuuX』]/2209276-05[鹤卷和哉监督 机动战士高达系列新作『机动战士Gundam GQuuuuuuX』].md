@@ -1393,3 +1393,19 @@ NT水平也有不同，而且特调定制系统一定程度降低对NT梯度的�
 
 和独角兽在NT-D模式下可以反过来夺取刹帝利的bit的控制权一个原理
 
+
+*****
+
+####  岸浪白野  
+##### 6025#       发表于 2025-1-29 16:03
+
+[X 上的 甘井ヤドラキ：“歯があると知った時、脳裏をよぎった光景 #GQuuuuuuX #ジークアクス [url]https://t.co/SFmgz8Yzh6](https://x.com/YADORAKI_3/status/1884424376956903641)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/29/160326k31jdiejjkyewifd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 16:03 上传
+

@@ -1408,3 +1408,26 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 但是好像没有场外这么多分析访谈和制作假药环节
 
+
+*****
+
+####  akiomn  
+##### 13447#       发表于 2025-1-29 15:58
+
+ 本帖最后由 akiomn 于 2025-1-29 16:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">场外cp炒作也起飞了，先不说初祥，节约我不好说是纯的还是串子
+
+睦的归宿是祥子身边和睦祥不会输这两句，起码到第四集完全看不出，难道节约认为墨缇丝也是睦？
+
+要是卖半天发现最后是睦水仙大获全胜，节约也得被订上耻辱柱
+
+
+*****
+
+####  sephal  
+##### 13448#       发表于 2025-1-29 16:04
+
+【AveMujica炸团？前辈们一个比一个狠！老邦邦人带你了解老团解散危机，一起看看如何拯救人偶们！-哔哩哔哩】 https://b23.tv/OBflHB9
+谁说母鸡卡不邦的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
