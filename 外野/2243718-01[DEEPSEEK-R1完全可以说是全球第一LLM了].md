@@ -8472,3 +8472,16 @@ x.com/markchen90/status/1884303237186216272
 再转一个介绍本地部署deepseek的比较详细的文。
 [DeepSeek模型科普与部署指南：避免被误导，选择适合自己的模型 - 哔哩哔哩](https://www.bilibili.com/opus/1027420717693534233?spm_id_from=333.1007.top_right_bar_window_dynamic.content.click)
 
+
+*****
+
+####  泰坦失足  
+##### 634#       发表于 2025-1-29 09:59
+
+[https://x.com/perplexity_ai/status/1883913343854923989](https://x.com/perplexity_ai/status/1883913343854923989)
+DeepSeek R1 现在在 Perplexity 上可用，以支持深网研究。新增了 Pro Search 推理模式选择器，以及 OpenAI o1，提供透明的思维链以展示模型的推理。我们正在增加免费和付费用户的每日使用次数，以便在白天增加更多容量。敬请关注！
+
+R1 and Deployment at American.
+
+其实GPT那些发布无非就是几个月被赶上而已，GPT4等级的文字能力/32k 64k 128k大尺寸输出/图片输入/端到端语音, 都是如此。这次R1反应这么大，主要因为OpenAI画的饼太大了，什么tree/阶段式reward，都是狗屁。尺寸够大，模型的机魂就会自己蹦出来响应
+
