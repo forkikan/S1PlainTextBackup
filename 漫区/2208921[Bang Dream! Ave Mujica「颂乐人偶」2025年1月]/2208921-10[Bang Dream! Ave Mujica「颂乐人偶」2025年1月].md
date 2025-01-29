@@ -1662,3 +1662,21 @@ mygo录完后才知道要"一人二役"
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节约最好说的是真的，不然到时候睦祥打不过睦水仙，第一个被cp粉清算的就是节约
 之前那句睦的归宿只有祥子身边，太离谱了
 
+
+*****
+
+####  MASKA-1  
+##### 13466#       发表于 2025-1-29 18:04
+
+隔壁狗和gbc的动画都被控分到9.7，鸡动画这波到9.4都没人管，看来叔叔对后期逆转很自信啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 13467#       发表于 2025-1-29 18:12
+
+就是说mortis也是在保护祥子，只是选择了更激烈的办法。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
