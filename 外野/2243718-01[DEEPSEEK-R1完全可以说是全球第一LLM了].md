@@ -9409,3 +9409,33 @@ deepseek对transformer进行了改造，最显著的就是MHA改成了MLA，Next
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  linchuanwangmou  
+##### 705#       发表于 2025-1-29 20:14
+
+我有一个问题啊，我让deepseek帮我总结特摄剧的剧情大纲，在人名上面总是会出现谬误，比如说我问一个角色的扮演者是谁，会先说另一个扮演者，被我戳穿以后会开始胡说八道，创造出一个虚构的人，是因为没有联网搜索吗？
+
+*****
+
+####  黄泉川此方  
+##### 706#       发表于 2025-1-29 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305772&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 20:14</a>
+
+我有一个问题啊，我让deepseek帮我总结特摄剧的剧情大纲，在人名上面总是会出现谬误，比如说我问一个角色的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没联网他没资料就只能编
+
+当然联网也会把网上的口胡加进去
+
+*****
+
+####  精钢魔像  
+##### 707#       发表于 2025-1-29 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305772&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 20:14</a>
+
+我有一个问题啊，我让deepseek帮我总结特摄剧的剧情大纲，在人名上面总是会出现谬误，比如说我问一个角色的 ...</blockquote>
+一次对话太大也会有，最好分成几个会话
+
