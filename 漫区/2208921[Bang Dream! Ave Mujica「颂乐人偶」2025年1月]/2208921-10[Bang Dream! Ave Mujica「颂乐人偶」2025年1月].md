@@ -1357,3 +1357,23 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  akiomn  
+##### 13443#       发表于 2025-1-29 15:13
+
+ 本帖最后由 akiomn 于 2025-1-29 15:15 编辑 
+
+高尾的访谈有几点
+
+1、她觉得所有角色最初和最后的形象都完全不同
+
+2、初华会导致小祥成长
+
+3，ed自己参加了和声的部分，初华和祥子的声音交缠在一起的地方，只要想到今后故事的展开，就会觉得这里特别有深度。
+
+4，“这部作品，是祥子成长为真正的女主角的故事”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过第四集嘛，越看越对不起吹的逼，b站评分已经9.4了，笑嘻了
+
