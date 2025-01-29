@@ -34,3 +34,26 @@ OneDrive：[https://1drv.ms/v/c/16d9a35274d2 ... m-lpqK6fxQ?e=NgueKg](https://1d
 会有人投票吗？
 [[MOVIE] [2024.09][MOV.1]LOVELIVE! 虹咲学园学园偶像同好会完结篇第1章](https://bbs.saraba1st.com/2b/thread-2244548-1-1.html)
 
+
+*****
+
+####  ads147147  
+##### 7570#       发表于 2025-1-29 07:58
+
+提前恭祝各位喜欢虹之咲的大家新年快乐！这次剧场版完结篇第一章的熟肉下载渠道如下，另外在虹站：nijigaku.club 的剧场分类下，我们也已经上传了这次的剧场版！
+
+百度云：pan.baidu.com/s/1-BQWACd-1OzGOZxwGkKBCg?pwd=6qvc 
+提取码: 6qvc
+
+阿里网盘：www.alipan.com/s/Wh3zmZRGc9P
+提取码: 1hk3
+
+夸克网盘：pan.quark.cn/s/abc47c9a1af1
+提取码：gf5k
+
+OneDrive：1drv.ms/v/c/16d9a35274d26dc4/EeYcMsGHDTlIr4ITPI0FZgIBRS7Vtj869p7km-lpqK6fxQ?e=NgueKg
+
+在b站我们会尽可能进行补档，希望大家可以看得开心！！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
