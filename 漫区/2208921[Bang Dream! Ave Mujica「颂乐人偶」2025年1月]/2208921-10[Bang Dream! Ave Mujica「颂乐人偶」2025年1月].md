@@ -1229,3 +1229,50 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  半年  
+##### 13430#       发表于 2025-1-29 13:29
+
+<img src="https://p.sda1.dev/21/c369d799689261b0b8bfd812fde73be4/GiSnTdgbwAAk2B_.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/reibouQ/status/1883814510013911522/photo/1](https://x.com/reibouQ/status/1883814510013911522/photo/1)
+
+*****
+
+####  厚乳果珍爽  
+##### 13431#       发表于 2025-1-29 13:29
+
+我错了，我真不应该把mujica当成一个相当现实的番看，我以为的剧情走向会跟mygo一样，预料之外情理之中，不过是一堆女孩闹麻了的故事。
+
+而mujica因为涉及到大规模商业演出，自然会有各种staff来约束，会在一个合理的现实的框架下进行剧情，结果就被打脸。
+
+希望会出现睦忽然第二人格暴走，忽然雷普了某人
+
+希望会出现初华掌握了社团，在公演舞台上忽然被喵梦一鼓棒敲死
+
+希望会出现海铃抱着断掉的贝斯大喊“我的音乐之力啊啊啊啊啊”
+
+希望会出现祥子对着爽世喊“三天三夜”的情景
+
+希望会出现喵梦在被处决的时候听着祥子初华唱的“KiLLKiSS judy KiLLKiSS jude KiLLKiSS juda”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plusSharp  
+##### 13432#       发表于 2025-1-29 13:31
+
+这又不是实验动画，编剧是精神病专家吗？主流观众是精神病患者吗？商业动画为什么要强行引入这种纯粹提高理解门槛的要素
+
+*****
+
+####  山ノ内花音  
+##### 13433#       发表于 2025-1-29 13:31
+
+没事 上一部the 娱乐圈漫改 
+比母鸡卡还神棍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

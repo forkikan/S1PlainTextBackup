@@ -8673,3 +8673,24 @@ qwen的网页端好像可以让2个模型联手生成数据？
 
 是不是用不了了
 
+
+*****
+
+####  精钢魔像  
+##### 653#       发表于 2025-1-29 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303725&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 13:07</a>
+
+第一次用这类软件，问一下各位大佬，现在网页版是不能用了吗？还有下面的深度思考R1，联网搜索都是什么意思 ...</blockquote>
+不开就是v3，开是r1。联网搜索现在好像用不了，大模型关了网络搜索。
+
+*****
+
+####  faithlifer  
+##### 654#       发表于 2025-1-29 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303853&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-1-29 13:30</a>
+
+不开就是v3，开是r1。联网搜索现在好像用不了，大模型关了网络搜索。</blockquote>
+难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
