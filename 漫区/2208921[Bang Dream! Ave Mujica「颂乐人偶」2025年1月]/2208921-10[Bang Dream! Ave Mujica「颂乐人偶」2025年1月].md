@@ -1291,3 +1291,22 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才一直说鸡这边的问题太硬核了，真按卖狗的叙事节奏和完成度来算，十三集讲得完睦头和大祥就算胜利
 
+
+*****
+
+####  ml1642879  
+##### 13436#       发表于 2025-1-29 13:57
+
+绿洲两兄弟前段时间也复活重组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 13437#       发表于 2025-1-29 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303886&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-1-29 13:36</a>
+换个说法，现实中有精神病没问题，甚至现实里乐队有人drug也不奇怪，但这放在动画中就很不合适 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别黑动画，动画黑深残的多了去了。放你邦还差不多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

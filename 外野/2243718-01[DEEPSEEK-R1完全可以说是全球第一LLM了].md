@@ -8724,3 +8724,18 @@ Ollama用用一个模型下不同tag来命名不同模型闹眼子。
 这是10万元上下能实 ...</blockquote>
 我在阿b看了一个cpu跑的，输出有7token。但提示处理只有12token。基本上就是玩具，不具备实用性
 
+
+*****
+
+####  dazzle  
+##### 657#       发表于 2025-1-29 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303898&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-29 13:39</a>
+
+我必须提醒一下楼友
+
+目前唯一的deepseek-r1模型，为671b参数量的模型。</blockquote>
+试玩了一下蒸馏模型基本没有推理能力，泯然众AI矣
+
+想体验R1的强大只能等官方的复活了
+

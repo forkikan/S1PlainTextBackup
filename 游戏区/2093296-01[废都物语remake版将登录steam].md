@@ -65,3 +65,19 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  魔灵高达  
+##### 758#       发表于 2025-1-29 13:59
+
+确实有点久了，最好是有新内容<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiiTiiLL  
+##### 759#       发表于 2025-1-29 14:05
+
+顶上来还以为有新消息了，说实话这个重置确实太久了，又不是什么大规格remake
+
