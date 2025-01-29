@@ -9706,3 +9706,92 @@ open webui之类的前端支持，不过要提前申请对应的搜索服务api�
 
 春节放假了没人干活吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等假期结束估计就能爽玩r1了
 
+
+*****
+
+####  tonyunreal  
+##### 730#       发表于 2025-1-29 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305921&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:38</a>
+用的ollama上直接下的DeepSeek-R1-Distill-Qwen-32B</blockquote>
+既然是蒸馏模型，hf上一堆做好消融的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+比如这个
+huihui-ai/DeepSeek-R1-Distill-Qwen-14B-abliterated-v2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ryanghj  
+##### 731#       发表于 2025-1-29 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305864&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:28</a>
+
+试了几个模型，用chatbox+抄来的预设都破限失败，感觉是我姿势不对</blockquote>
+别用蒸馏的模型，都是弱智
+
+最简单的方法就是等API恢复，他们估计还在放假
+
+*****
+
+####  qqks  
+##### 732#       发表于 2025-1-29 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306282&amp;ptid=2243718" target="_blank">tonyunreal 发表于 2025-1-29 21:36</a>
+
+既然是蒸馏模型，hf上一堆做好消融的
+
+比如这个
+
+huihui-ai/DeepSeek-R1-Distill-Qwen-14B-abliterated-v2</blockquote>
+消融会导致智力大幅下降的，除了能瑟瑟之外比传统的无审查模型没有啥优势。
+
+毕竟蒸馏的32b千问性能本来就一般
+
+*****
+
+####  黄泉川此方  
+##### 733#       发表于 2025-1-29 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306282&amp;ptid=2243718" target="_blank">tonyunreal 发表于 2025-1-29 21:36</a>
+
+既然是蒸馏模型，hf上一堆做好消融的
+
+比如这个
+
+huihui-ai/DeepSeek-R1-Distill-Qwen-14B-abliterated-v2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早上意识模糊的时候试了个F16的，卡了每天没反应
+
+deepseek-r1-qwen-2.5-32B-ablated-GGUF:Q6_K_L
+
+现在在重新下
+
+
+*****
+
+####  tonyunreal  
+##### 734#       发表于 2025-1-29 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306307&amp;ptid=2243718" target="_blank">qqks 发表于 2025-1-29 21:40</a>
+
+消融会导致智力大幅下降的，除了能瑟瑟之外比传统的无审查模型没有啥优势。</blockquote>
+原版qwen2.5 32b消融后的我觉得还凑合
+
+反正本地模型能通顺的说中文就已经不错了，英文写作都不如专门的写作类模型
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  XSH97  
+##### 735#       发表于 2025-1-29 21:48
+
+看起来好像准备修复了？
+
+<img src="https://img.saraba1st.com/forum/202501/29/214720p0x5xoo6onoxxydx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 21:47 上传
+

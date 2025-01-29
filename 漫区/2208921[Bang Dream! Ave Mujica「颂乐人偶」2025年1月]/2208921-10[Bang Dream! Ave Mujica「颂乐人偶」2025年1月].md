@@ -2148,3 +2148,39 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Lyzers  
+##### 13517#       发表于 2025-1-29 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306052&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-29 21:02</a>
+我印象里睦对喵梦的评价是总是说讨厌的话，mortis对祥子才是讨厌吧</blockquote>
+我自己的理解是睦头这种随便一嘴都能破防别人的语言艺术和“我只要说话就会变得不行”的自我认知，能用上讨厌这个词已经算很直接了。而且就算这个理解有主观上的差距，也不影响我得出后面的说法
+
+至少让莫女士有个单独台词或者镜头什么的锐评一下，都能有个连续性吧。不然前面写了这么久的压力和摘面具时唯一的惊恐表情不就哑炮了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+打个比方现在就有点像卖狗第九集之后，立希自己把soyo拉回来了，然后爱音和灯对此完全不发表意见，完事了大家就有说有笑地迷星叫去了一样
+
+*****
+
+####  山ノ内花音  
+##### 13518#       发表于 2025-1-29 21:38
+
+新cm那个祥子奔跑画面
+眼睛一直看着前面 
+从背景看还是上坡 
+还疑似是新衣服 
+不太像被追 更像是在追人或者日剧跑
+
+
+*****
+
+####  凉良  
+##### 13519#       发表于 2025-1-29 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305820&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-29 20:21</a>
+
+牛国安的剧透的规矩和可信度怎么感觉也不太可靠啊，以前还是具体的账号，最新三份剧透除了一个黄大叔剩下两 ...</blockquote>
+黄大叔有新剧透？
+

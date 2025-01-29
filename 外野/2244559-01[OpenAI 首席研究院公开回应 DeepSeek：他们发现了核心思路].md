@@ -504,3 +504,16 @@ DeepSeek 研究员回怼：要不要开源一下？</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  qucqee  
+##### 43#       发表于 2025-1-29 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305931&amp;ptid=2244559" target="_blank">八田美咲 发表于 2025-1-29 20:41</a>
+
+当面pk了两个中国人英语对喷，不如说中文算了</blockquote>
+哪来俩中国人？
+
+人眯眯眼根红苗正的香蕉人
+
