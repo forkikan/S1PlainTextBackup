@@ -2555,3 +2555,19 @@ pareo实际干的事可比莫提斯可怕多了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  凉良  
+##### 13553#       发表于 2025-1-30 07:19
+
+这种土味剧本不要啊 mujica的现实元素已经让我违和的绝望了。还是多来点少女乐队吧。
+
+
+*****
+
+####  osore  
+##### 13554#       发表于 2025-1-30 07:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少实锤了小莫在车里和初华讲那些是主观故意害她
+
