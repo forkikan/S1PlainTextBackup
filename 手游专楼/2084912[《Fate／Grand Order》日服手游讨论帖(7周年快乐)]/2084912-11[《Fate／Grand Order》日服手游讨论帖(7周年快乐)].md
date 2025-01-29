@@ -170,3 +170,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这是终于可以不打白纸本了？
 
+
+*****
+
+####  khxooo  
+##### 16192#       发表于 2025-1-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305160&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-1-29 18:25</a>
+
+这是终于可以不打白纸本了？</blockquote>
+是啊，那些材料根本不想打，但是为了星沙又不得不打<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
