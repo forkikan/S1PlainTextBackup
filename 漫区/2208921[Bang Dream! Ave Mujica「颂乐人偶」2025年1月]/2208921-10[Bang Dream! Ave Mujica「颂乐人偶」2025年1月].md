@@ -1705,3 +1705,36 @@ mygo录完后才知道要"一人二役"
 
 🐔目前的情况，圆回来难度远大于🐶第九话吧，一集🐶的第十话感觉都不够，可能得两话甚至三话，独角兽有这个能力嘛？她迄今为止的笔力巅峰就是🐶了吧
 
+
+*****
+
+####  osore  
+##### 13471#       发表于 2025-1-29 18:28
+
+独角兽已被降板，圆不回来责任全在柿本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 13472#       发表于 2025-1-29 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">角色只有mujica
+难道海玲要拿layer剧本，把其他乐队的打工全停了再信任一次祥子？
+海祥也能上桌了卧槽
+
+*****
+
+####  山ノ内花音  
+##### 13473#       发表于 2025-1-29 18:34
+
+不都说了是小王子的玫瑰吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 13474#       发表于 2025-1-29 18:36
+
+又不是兽娘二完全踢出去的情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+按照控制变量法，要看一下柿本和独角兽单独在其他动画的情况才能分神畜。
+

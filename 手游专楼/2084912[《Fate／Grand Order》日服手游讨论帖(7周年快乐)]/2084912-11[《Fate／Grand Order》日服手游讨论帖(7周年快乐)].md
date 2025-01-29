@@ -162,3 +162,11 @@
 说实话有点丢人，但我真的是开服到现在才抽到弓闪，没想到能一发2宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  alucardcz  
+##### 16191#       发表于 2025-1-29 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这是终于可以不打白纸本了？
+
