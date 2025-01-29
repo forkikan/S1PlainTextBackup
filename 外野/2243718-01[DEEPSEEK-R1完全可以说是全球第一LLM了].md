@@ -9996,3 +9996,24 @@ ChatBOX，有GUI，一键安装的。
 我想问下，深度思考和联网搜索都开的话用的是r1还是v3模型，我想使用R1那联网搜索开不开 ...</blockquote>
 开了深度思考就是R1，联网功能现在关了
 
+
+*****
+
+####  afer  
+##### 753#       发表于 2025-1-29 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306935&amp;ptid=2243718" target="_blank">nexus1 发表于 2025-1-29 23:33</a>
+
+用了就感觉自己脏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">360桌面助手资深使用者表示无压力
+
+*****
+
+####  断片集  
+##### 754#       发表于 2025-1-30 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306926&amp;ptid=2243718" target="_blank">卷饼大侠 发表于 2025-1-29 23:32</a>
+
+直接用周鸿祎的那个纳米ai搜索就能用了，里面有个deepseek专线</blockquote>
+我用下来感觉智力和官网版本差了不少，大概率是360自己部署了个量化的，甚至是蒸馏版本的吧…
+
