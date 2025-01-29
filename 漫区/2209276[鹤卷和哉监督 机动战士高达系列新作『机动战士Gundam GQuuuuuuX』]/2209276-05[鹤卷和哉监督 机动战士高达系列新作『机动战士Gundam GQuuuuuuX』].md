@@ -1903,3 +1903,25 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 康奇作为辅助机器人，居然会有主动拒绝与主人对 ...</blockquote>
 墨镜？生怕别人不知道他是鸭子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6063#       发表于 2025-1-30 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307241&amp;ptid=2209276" target="_blank">xwz 发表于 2025-1-30 00:30</a>
+
+墨镜？生怕别人不知道他是鸭子是吧</blockquote>
+确实没人知道吧
+
+
+*****
+
+####  xwz  
+##### 6064#       发表于 2025-1-30 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307274&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-30 00:39</a>
+
+确实没人知道吧</blockquote>
+故事里的人当然不知道未来有个裤袜脱落把🐓拿大尉，但是毕竟观众是知道的嘛<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
