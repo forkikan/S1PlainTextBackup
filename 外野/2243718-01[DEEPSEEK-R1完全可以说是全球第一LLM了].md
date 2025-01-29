@@ -8535,3 +8535,23 @@ api发key页面不能进了吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zerona  
+##### 639#       发表于 2025-1-29 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302611&amp;ptid=2243718" target="_blank">发呆的龙虾 发表于 2025-1-29 09:23</a>
+
+api发key页面不能进了吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+昨天开始就这样了。页面都没了。
+
+*****
+
+####  moekyo  
+##### 640#       发表于 2025-1-29 11:47
+
+有个很好玩的，Qwen又发布了新的基于moe的Qwen 2.5max，说是干过了DeepSeek的V3，已经成为对标的模版了，虽然也有用了moe的关系
+
