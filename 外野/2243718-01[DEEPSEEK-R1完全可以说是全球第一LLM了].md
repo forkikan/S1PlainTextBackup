@@ -8398,3 +8398,24 @@ api现在不开放注册了吗，怎么一直都是崩溃状态
 问题是 ...</blockquote>
 真的，这人昵称就是他名字，我找到原推文了
 
+
+*****
+
+####  发呆的龙虾  
+##### 630#       发表于 2025-1-29 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67302484&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-29 08:22</a>
+以前的api都用不了，现在deep课把国外的ip都屏蔽了，只有中国ip加上中国手机号才能使用（之前注册的外国 ...</blockquote>
+我说我的怎么一直不出字，来去换个新的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  发呆的龙虾  
+##### 631#       发表于 2025-1-29 09:23
+
+api发key页面不能进了吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
