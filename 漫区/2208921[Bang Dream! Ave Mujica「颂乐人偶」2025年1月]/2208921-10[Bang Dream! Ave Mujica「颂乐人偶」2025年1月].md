@@ -1310,3 +1310,18 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  JustW  
+##### 13438#       发表于 2025-1-29 14:10
+
+目前倒也没有烂到时尚单品推子的程度，但推子就是典型的为了爆点可以把逻辑和人设全踩稀烂，希望母鸡卡不会是这样
+
+*****
+
+####  osore  
+##### 13439#       发表于 2025-1-29 14:15
+
+完蛋，目前就是为了爆逻辑全不要的走势<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
