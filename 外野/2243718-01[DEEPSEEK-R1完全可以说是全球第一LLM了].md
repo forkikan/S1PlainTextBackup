@@ -8802,3 +8802,36 @@ qwen的网页端好像可以让2个模型联手生成数据？
 
 美国人太坏了，刚开始玩上就服务器炸了
 
+
+*****
+
+####  linc555  
+##### 664#       发表于 2025-1-29 14:43
+
+有没有人 知道 一般炸到啥时候能好
+
+*****
+
+####  moeblack  
+##### 665#         楼主| 发表于 2025-1-29 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304141&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 14:33</a>
+美国人太坏了，刚开始玩上就服务器炸了
+
+SYL再麻烦问一下各位大佬，怎么把这个AI喂成我想要的性格呢？需要 ...</blockquote>
+喂提示词就行，目前普通用户没有能力把模型微调得更好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  moeblack  
+##### 666#         楼主| 发表于 2025-1-29 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304187&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-29 14:43</a>
+有没有人 知道 一般炸到啥时候能好</blockquote>
+公司用了半年多ds了，只炸过这一次，从来没炸过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
