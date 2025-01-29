@@ -9671,3 +9671,38 @@ R1的多轮对话能力不好，问太多了不如重开聊天重新问</blockqu
 本地部署可以联网搜索实时资料吗？</blockquote>
 open webui之类的前端支持，不过要提前申请对应的搜索服务api，我还没试过r1上可不可行
 
+
+*****
+
+####  gammatau  
+##### 727#       发表于 2025-1-29 21:28
+
+[https://www.reddit.com/r/LocalLL ... 131gb_dynamic_gguf/](https://www.reddit.com/r/LocalLLaMA/comments/1ibbloy/158bit_deepseek_r1_131gb_dynamic_gguf/)
+
+这哥们靠量化把R1降到了131G，专家层都量化到1.5bit了
+
+效果是可以直接写一个愤怒小鸟出来
+
+*****
+
+####  qqks  
+##### 728#       发表于 2025-1-29 21:29
+
+ 本帖最后由 qqks 于 2025-1-29 21:32 编辑 
+
+其实现在最好的就是国家那几个智算中心托管满血版，据说那里面的昇腾计算卡利用率普遍不高，拿来服务大众既能产生社会效益，又能有收入不至于白白吃灰多好。
+
+墙外claude大杯十五刀每百万token，跟抢钱一样
+
+那么多计算中心就没有个公开的托管服务吗<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+华为云托管个蒸馏的32b千问糊弄谁啊
+
+
+*****
+
+####  Mafise  
+##### 729#       发表于 2025-1-29 21:33
+
+春节放假了没人干活吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等假期结束估计就能爽玩r1了
+
