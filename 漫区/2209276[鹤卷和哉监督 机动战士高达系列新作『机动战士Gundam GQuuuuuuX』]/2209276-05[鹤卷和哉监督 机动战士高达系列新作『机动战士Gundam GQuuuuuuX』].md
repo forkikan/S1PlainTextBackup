@@ -1473,3 +1473,26 @@ NT水平也有不同，而且特调定制系统一定程度降低对NT梯度的�
 
 我看到了时间 不是捏他拉拉辛吗？
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6031#       发表于 2025-1-29 17:23
+
+ 本帖最后由 gundammarkⅡ 于 2025-1-29 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304654&amp;ptid=2209276" target="_blank">鱼雷鲨 发表于 2025-1-29 16:45</a>
+时间另一头究竟是啥，怎么好像已经可以下注是gto还是tv时间线了</blockquote>
+GTO，你看RX-78是RX-78-01和RX-78-02<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
+
+更不用说按MSV等设定，夏亚来袭前，三台高达已经都是同样RX-78-2规格的了，但GTO那边同时段还有台RX-78-01哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  纪寞  
+##### 6032#       发表于 2025-1-29 17:26
+
+看航海的特典设定翻译里，修司隐藏处出现"莲花般的尖帽子"，译注上"尖帽子"是最初艾尔美斯的别称，但是gqx的艾尔美斯是停止开发才对。是彩蛋还是什么意思？
+
