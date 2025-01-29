@@ -9605,3 +9605,58 @@ API没好的每一秒都在琢磨本地部署<img src="https://static.saraba1st.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zerona  
+##### 721#       发表于 2025-1-29 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305896&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:34</a>
+
+用浏览器插件Page Assist可以，效果我觉得凑合
+
+引用的链接起码能打开，不是404</blockquote>
+你这是本地部署的？
+
+*****
+
+####  qqks  
+##### 722#       发表于 2025-1-29 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305672&amp;ptid=2243718" target="_blank">Fuero 发表于 2025-1-29 19:56</a>
+
+老外的部署实践：[https://digitalspaceport.com/run](https://digitalspaceport.com/run) ... lled-qwen-or-llama/
+
+目测CPU部署看上去很美，实用 ...</blockquote>
+虽说推理的主要瓶颈是在带宽 但是这么大的模型，3090等级的算力性能还是要有的，我看他们的部署方案提示处理能力只有一二十，长一点输入就要卡死好久，其实是没有实用性的，苹果本来就不高的npu算力难用的一笔，同样好不了多少，老黄那个3000刀的玩意到时候怕不一定能在国内买的到，要是能买到，买四个，一辆车的钱就能得到一台有实用性的超级ai，这还真不错
+
+*****
+
+####  黄泉川此方  
+##### 723#       发表于 2025-1-29 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305947&amp;ptid=2243718" target="_blank">木水风铃 发表于 2025-1-29 20:43</a>
+
+这个是千问吧。。。？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">R1蒸馏的千问
+
+*****
+
+####  qqks  
+##### 724#       发表于 2025-1-29 20:49
+
+5090d连多卡都要阉割，老黄五月份那个gb10那么强的互联能力多半要被禁运的...
+
+
+*****
+
+####  zerona  
+##### 725#       发表于 2025-1-29 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305825&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-1-29 20:22</a>
+
+R1的多轮对话能力不好，问太多了不如重开聊天重新问</blockquote>
+就是问几次之后让r1收集下指出的问题并合并，然后从新开个新话题，然后用刚才的问题合集再从新开始？
+

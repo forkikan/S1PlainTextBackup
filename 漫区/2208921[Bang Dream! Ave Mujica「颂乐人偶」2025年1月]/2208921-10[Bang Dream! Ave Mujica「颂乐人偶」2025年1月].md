@@ -1992,3 +1992,38 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 【AveMujica炸团？前辈们一个比一个狠！老邦邦人带你了解老团解散危机，一起看看如何拯救人偶们！-哔哩哔哩 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了，这人确实够牛，一个人讲了一个多小时。
 
+
+*****
+
+####  天空塔书记官  
+##### 13501#       发表于 2025-1-29 20:47
+
+虽然说错的地方不少，但看的还是挺明白的，就是RAS炸团选第三季剧情可能会更合适一点，对A团的剧情也会更有启示
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  allesdg  
+##### 13502#       发表于 2025-1-29 20:50
+
+ 本帖最后由 allesdg 于 2025-1-29 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305924&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-29 20:39</a>
+
+因为第四集最后表现的太差了，真的双重人格就必须好好解决莫提斯这个问题了，毕竟节约以前还说过睦的归宿 ...</blockquote>
+厄你这后边在说的什么玩意，你意思是指着mo这玩意说可能是睦更好的归宿？你难道能说mo所为不伤害睦吗，讨论睦归宿也好解决方案也好不应该看看睦的底层诉求吗，不就是又回到前面我说的睦对祥子的箭头上了么，你这又给拐到哪去了，另外一句题外话，哥们你id我在这和隔壁泥潭可太眼熟了，我有时真分不清甚至怀疑你是不是串，又或是太过巨魔（
+
+*****
+
+####  akiomn  
+##### 13503#       发表于 2025-1-29 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305970&amp;ptid=2208921" target="_blank">allesdg 发表于 2025-1-29 20:50</a>
+厄你这后边在说的什么玩意，你意思是指着mo这玩意说可能是睦更好的归宿？你难道能说mo所为不伤害睦吗，讨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的意思是，睦对祥子的箭头已经体现出来了，第三集就是了，甚至第一集就能体现。但是没体现出为什么祥子身边是睦的归宿。
+这才是后面要剧情体现的，为什么必须是祥子？
+睦的归宿是祥子身边这句话几乎是把其他cp一口气按死的地步，包括睦水仙也被按死了
+
