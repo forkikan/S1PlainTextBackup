@@ -1502,3 +1502,26 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 我觉得都是对上一季的矫枉过正，素世演的这么明显，正常人都能看出。但是有人就是不信结果打脸了。mygo时候 ...</blockquote>
 文学是写人的，go属于是就是在大多数动画的人物给人感觉只写几行字的情况下她给你写了几页纸，然后在同样的13集20分钟的框架里呈现出来，在以卖角色为核心的企划里把角色的文学性写出来了，这对于这种类型动画来说方向可以说十分正确了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花スープ  
+##### 13455#       发表于 2025-1-29 17:18
+
+不是很懂二次元，有没有那种前几集哪哪都不对，最后还能成功圆回来的动漫，看番少，感觉对母鸡卡越看越没信心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 13456#       发表于 2025-1-29 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304804&amp;ptid=2208921" target="_blank">花スープ 发表于 2025-1-29 17:18</a>
+不是很懂二次元，有没有那种前几集哪哪都不对，最后还能成功圆回来的动漫，看番少，感觉对母鸡卡越看越没信 ...</blockquote>
+有啊，星团2和星团3。
+
+虽然星3真的很努力在圆星2那些够吧设定了，目前来看，大部分被筛选下来的人还是很认可星3的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

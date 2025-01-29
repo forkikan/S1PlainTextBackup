@@ -9093,3 +9093,30 @@ closeai 真是没脸没皮
 太OPEN了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">所以不开源的好处就来了，我说你抄了就抄了，反正你看不见我
 
+
+*****
+
+####  吉黑尽阵  
+##### 686#       发表于 2025-1-29 17:17
+
+吉：话说怎么让ds分析图片？我的网页和APP版本都说只能提取文字。
+
+
+*****
+
+####  real_zyf  
+##### 687#       发表于 2025-1-29 17:20
+
+<blockquote>吉黑尽阵 发表于 2025-1-29 17:17
+吉：话说怎么让ds分析图片？我的网页和APP版本都说只能提取文字。</blockquote>
+给它砸钱砸时间等开发，它现在就没这能力
+
+*****
+
+####  希望之花  
+##### 688#       发表于 2025-1-29 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真亏钱了吧急成这样
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
