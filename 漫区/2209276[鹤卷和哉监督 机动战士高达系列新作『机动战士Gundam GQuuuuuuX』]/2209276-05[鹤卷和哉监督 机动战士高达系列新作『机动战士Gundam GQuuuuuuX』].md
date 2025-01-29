@@ -1053,3 +1053,13 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Gysumitka  
+##### 5998#       发表于 2025-1-29 12:40
+
+阿尔法和欧米伽应该原本是一体，由透过时间而来神秘人赠送。因79时期没有拉拉，夏亚nt能力的限制下，被迫拆分部分给红高使用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 红高消失后，吉翁又偷偷设计gqx
+
+玛丘之后应该能驾驭全部吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
