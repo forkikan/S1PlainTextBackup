@@ -1547,3 +1547,33 @@ TV/剧场版/MSV的原UC线都是RX-78-1、RX-78-2
 
 而且这东西是有自我意识的，当它进行焊接作业或者不想理修司的时候，会将眼睛附带的黑色遮光板放下来
 
+
+*****
+
+####  岸浪白野  
+##### 6036#       发表于 2025-1-29 19:27
+
+<img src="https://img.saraba1st.com/forum/202501/29/192750zdq7kkqu82oudub9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/192830tn77h0kd98d18nh0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (957.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/29/192842bqf2isqijfa8wjoc.png" referrerpolicy="no-referrer">
+
+<strong>{CAL~3%TF)F6M$~2D$$DHKO.png</strong> (141.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 19:28 上传
+

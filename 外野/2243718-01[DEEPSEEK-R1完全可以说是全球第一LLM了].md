@@ -9357,3 +9357,18 @@ deepseek对transformer进行了改造，最显著的就是MHA改成了MLA，Next
 
 取决于你怎么定义“传统的transformer”，因为他们做的改变是很显著的
 
+
+*****
+
+####  都是好事  
+##### 701#       发表于 2025-1-29 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304793&amp;ptid=2243718" target="_blank">吉黑尽阵 发表于 2025-1-29 17:17</a>
+
+吉：话说怎么让ds分析图片？我的网页和APP版本都说只能提取文字。</blockquote>
+暂时还没有这个功能，但是前天发的新模型就是干这个的，多模态整合肯定在todo list上的
+
+如果你想玩图片分析，你可以试试千问 [https://chat.qwenlm.ai](https://chat.qwenlm.ai)
+
+选择模型Qwen2.5-VL-72B-Instruct
+
