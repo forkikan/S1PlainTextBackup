@@ -1848,3 +1848,27 @@ sumimi是由丰川集团赞助的，初华生气是想摆脱丰川集团的控�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JustW  
+##### 13485#       发表于 2025-1-29 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304900&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-29 17:39</a>
+Lost Song，都不用烂片雷达上来就烂，但后面发现烂得有理有据，完成了惊天大逆转 ...</blockquote>
+lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评价的前作以及苦等的前作粉丝的期待，本身也没有得到多少资源和商业束缚，虽然通过叙诡让很多人印象深刻但上限也只是超小众“神作”，现在再让人去看也没多少人看，终究是以小搏略略大。母鸡卡则是饺子包得稍微差点就要被很多人切割了。
+
+*****
+
+####  Lyzers  
+##### 13486#       发表于 2025-1-29 20:02
+
+现有的内容不滑坡就不可避免要变成大喵主责，滑坡就能顺理成章地变成大祥全责了
+
+*****
+
+####  山ノ内花音  
+##### 13487#       发表于 2025-1-29 20:05
+
+坚持ave mujica是精神疗养所的看法不动摇<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

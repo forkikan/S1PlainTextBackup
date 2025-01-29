@@ -9372,3 +9372,40 @@ deepseek对transformer进行了改造，最显著的就是MHA改成了MLA，Next
 
 选择模型Qwen2.5-VL-72B-Instruct
 
+
+*****
+
+####  Fuero  
+##### 702#       发表于 2025-1-29 19:56
+
+ 本帖最后由 Fuero 于 2025-1-29 19:58 编辑 
+
+老外的部署实践：[https://digitalspaceport.com/run ... lled-qwen-or-llama/](https://digitalspaceport.com/running-deepseek-r1-locally-not-a-distilled-qwen-or-llama/)
+
+目测CPU部署看上去很美，实用性很低，一次复杂对话要算1小时
+
+还是需要老黄Project Digits之类的产品早日普及迭代
+
+*****
+
+####  吉黑尽阵  
+##### 703#       发表于 2025-1-29 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305556&amp;ptid=2243718" target="_blank">都是好事 发表于 2025-1-29 19:34</a>
+
+暂时还没有这个功能，但是前天发的新模型就是干这个的，多模态整合肯定在todo list上的
+
+如果你想玩图片分 ...</blockquote>
+吉：原来如此！谢谢
+
+*****
+
+####  R.I.P  
+##### 704#       发表于 2025-1-29 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305672&amp;ptid=2243718" target="_blank">Fuero 发表于 2025-1-29 19:56</a>
+老外的部署实践：https://digitalspaceport.com/running-deepseek-r1-locally-not-a-distilled-qwen-or-lla ...</blockquote>
+那d4平台应该不用考虑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
