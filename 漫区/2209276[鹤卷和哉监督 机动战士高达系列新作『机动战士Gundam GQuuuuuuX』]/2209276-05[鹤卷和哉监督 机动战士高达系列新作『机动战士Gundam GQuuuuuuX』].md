@@ -1063,3 +1063,16 @@ gto漫画感觉比动画有意思，尤其是夏亚和阿姆罗真人快打那�
 
 玛丘之后应该能驾驭全部吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 5999#       发表于 2025-1-29 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67303361&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-29 12:08</a>
+
+现在来看一般的nt还不行，必须要特殊nt
+
+那牢修能启动欧米伽塞可缪吗，阿尔法塞可缪是欧米伽的上位还是下 ...</blockquote>
+NT水平也有不同，而且特调定制系统一定程度降低对NT梯度的影响，比如夏亚的NT等级低（GTO里面的经典段落-阿姆罗提及感知不到夏亚，把夏亚说破防了）但是，类似哈萨维的雷恩、和一些低NT梯度的强化人，都可以使用给自己调整过的NT武器系统，说明这个系统和人的配合有技术手段。我觉得女主单纯是力大出奇迹。女性天赋好的NT，其NT梯度都相当高，无论是拉拉、哈曼还是普鲁（一般强化人则没这么明显），当然，男性NT的爆发能力更强一些。
+

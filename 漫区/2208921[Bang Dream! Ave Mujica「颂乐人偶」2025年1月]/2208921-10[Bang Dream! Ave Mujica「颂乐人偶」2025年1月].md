@@ -1215,3 +1215,17 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 按柿本哥哥的指示 当成童话看就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 13429#       发表于 2025-1-29 12:56
+
+ 本帖最后由 江口夕 于 2025-1-29 12:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得都是对上一季的矫枉过正，素世演的这么明显，正常人都能看出。但是有人就是不信结果打脸了。
+
+这些看不出素世演技的和这季觉得莫女士在演的是不是都是同一波人。他们不是来看剧的，而是想来证明自己。至于角色怎样根本不在乎
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
