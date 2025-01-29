@@ -2098,3 +2098,22 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 
 至少前三集睦和乐队其他四个人都不太熟的样子，只是恰好其中有一个是发小罢了（
 
+
+*****
+
+####  Lyzers  
+##### 13512#       发表于 2025-1-29 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306026&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-29 20:58</a>
+喜欢的反面是不在意
+墨缇丝确实不太在意喵梦</blockquote>
+有一说一第四集前面这跟大喵有说有笑的，怎么说也不能算不在意吧
+
+
+*****
+
+####  烂片雷达  
+##### 13513#       发表于 2025-1-29 21:15
+
+单箭头等于没箭头，不回箭头比恨更可恶<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
