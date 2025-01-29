@@ -48,3 +48,13 @@
 所以这是粉丝游戏吗，还是路人也能玩的那种？</blockquote>
 演出还不错，但是玩法还不如妖尾2，云云就行了。
 
+
+*****
+
+####  黑酒杯  
+##### 1824#       发表于 2025-1-30 04:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307417&amp;ptid=2112855" target="_blank">zzy516232108 发表于 2025-1-30 01:43</a>
+所以这是粉丝游戏吗，还是路人也能玩的那种？</blockquote>
+如果看过一些fate动漫并对圣杯战争感兴趣可以考虑入，总而言之还是剧情卖点的游戏，战斗系统和手感只能说一般
+
