@@ -8455,3 +8455,20 @@ x.com/markchen90/status/1884303237186216272
 
 不要害怕“被烹煮”。我想我自己将来也会被“下锅”，到那时候我一定会尽力保持诚实。我们所需要的，是通过更多透明的讨论，让真相浮现于世。
 
+
+*****
+
+####  lcychill  
+##### 633#       发表于 2025-1-29 09:41
+
+ 本帖最后由 lcychill 于 2025-1-29 09:44 编辑 
+
+[https://www.oneue.com/articles/2350.html](https://www.oneue.com/articles/2350.html)
+
+转一个ollama可以使用非官方支持amd显卡跑大模型方法。
+
+记得先从AMD官网下载对应版本HIP SDK，同时也替换相应文件。
+
+再转一个介绍本地部署deepseek的比较详细的文。
+[DeepSeek模型科普与部署指南：避免被误导，选择适合自己的模型 - 哔哩哔哩](https://www.bilibili.com/opus/1027420717693534233?spm_id_from=333.1007.top_right_bar_window_dynamic.content.click)
+
