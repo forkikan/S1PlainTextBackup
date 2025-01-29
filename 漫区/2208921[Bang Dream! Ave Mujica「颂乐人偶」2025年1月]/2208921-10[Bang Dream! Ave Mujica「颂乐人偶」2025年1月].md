@@ -2407,3 +2407,43 @@ pareo实际干的事可比莫提斯可怕多了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 13538#       发表于 2025-1-29 23:48
+
+「BanG Dream! Ave Mujica」2025年3月号海报 ​​​三角初华 ​​​
+
+<img src="https://p.sda1.dev/21/709fee0c2e519e4282d12e935cd6222b/image.jpg" referrerpolicy="no-referrer">
+
+来自微博:[日_推](http://m.weibo.cn/status/5128299770286761?)
+
+野兽的目光👀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 13539#       发表于 2025-1-29 23:54
+
+初华人气90%靠这张脸的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MASKA-1  
+##### 13540#       发表于 2025-1-29 23:56
+
+伟大的脸，但是有点笨。
+
+*****
+
+####  mye  
+##### 13541#       发表于 2025-1-29 23:56
+
+大胆预测一波素睦，大墨老师现在嘴上没把门的还天天和素世低头不见抬头见，我才不信后面她不给素世好好说说祥子秘史
+
