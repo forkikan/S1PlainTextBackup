@@ -8634,3 +8634,11 @@ qwen的网页端好像可以让2个模型联手生成数据？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">api偶尔能反应一下，网页版彻底傻了
 
+
+*****
+
+####  魔灵高达  
+##### 648#       发表于 2025-1-29 12:55
+
+说是旧的API不能用？但是开放平台维护升级申请不了新的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

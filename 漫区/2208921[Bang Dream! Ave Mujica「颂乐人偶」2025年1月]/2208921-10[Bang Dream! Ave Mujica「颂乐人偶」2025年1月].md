@@ -1166,3 +1166,52 @@ c团解散和soyo跪求这两个不用她主动说，别人给台阶求她把话
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈呀，真解散啊？我快笑不活了。
 
+
+*****
+
+####  Devola  
+##### 13424#       发表于 2025-1-29 12:44
+
+三次元是黑箱，背后的逻辑你也看不全，信息缺失不等于没有
+
+文学影视作品你都上帝视角了，四面漏风的东西还要读者观众自己当裱糊匠吗
+
+*****
+
+####  天空塔书记官  
+##### 13425#       发表于 2025-1-29 12:44
+
+<img src="https://p.sda1.dev/21/68c63e9f1ae424a7e6fb6e45d87f1eac/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  江口夕  
+##### 13426#       发表于 2025-1-29 12:50
+
+ 本帖最后由 江口夕 于 2025-1-29 12:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，都上帝视角看了睦内心活动，莫女士上位过程，还能说演的只能是笑不活了。
+
+编剧：我都给你看了，这就是二重人格，我都让角色直接说出来了。
+
+观众：我不信，你一定是在骗我，一定有惊天大棋
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Lyzers  
+##### 13427#       发表于 2025-1-29 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来说什么商业团不会这么容易散就是前后矛盾。解散不合理，让一个高中生全流程参与，当职业乐队主导人不也不合理吗？就算这点合理了，一个大热乐队短时间内三次live出严重演出事故（大喵一次，睦两次）还没大手直接介入，不也是不合理吗
+
+*****
+
+####  山ノ内花音  
+##### 13428#       发表于 2025-1-29 12:52
+
+按柿本哥哥的指示 当成童话看就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
