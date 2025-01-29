@@ -9476,3 +9476,109 @@ R1的多轮对话能力不好，问太多了不如重开聊天重新问
 
 而瓶颈是内存的话，8通道D4变成24通道D5提升幅度还是挺明显的。
 
+
+*****
+
+####  黄泉川此方  
+##### 711#       发表于 2025-1-29 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">试了几个模型，用chatbox+抄来的预设都破限失败，感觉是我姿势不对
+
+<img src="https://img.saraba1st.com/forum/202501/29/202727obk5ol3ly6l3q335.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 20:27 上传
+
+*****
+
+####  lactone  
+##### 712#       发表于 2025-1-29 20:31
+
+西大这么歇斯底里，deepseek一个小企业没见过大场面，会不会扛不住啊
+
+感觉西大现在真的是脸都不要了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  又是十元  
+##### 713#       发表于 2025-1-29 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305672&amp;ptid=2243718" target="_blank">Fuero 发表于 2025-1-29 19:56</a>
+
+老外的部署实践：https://digitalspaceport.com/run ... lled-qwen-or-llama/
+
+目测CPU部署看上去很美，实用 ...</blockquote>
+本地部署可以联网搜索实时资料吗？
+
+
+*****
+
+####  linchuanwangmou  
+##### 714#       发表于 2025-1-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305825&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-1-29 20:22</a>
+
+R1的多轮对话能力不好，问太多了不如重开聊天重新问</blockquote>
+如果多轮对话能力不好，是不是意味着我不能设定一个性格再和他进行长期多轮次的聊天了啊？
+
+*****
+
+####  黄泉川此方  
+##### 715#       发表于 2025-1-29 20:34
+
+ 本帖最后由 黄泉川此方 于 2025-1-29 20:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305885&amp;ptid=2243718" target="_blank">又是十元 发表于 2025-1-29 20:31</a>
+
+本地部署可以联网搜索实时资料吗？</blockquote>
+用浏览器插件Page Assist可以，效果我觉得凑合
+
+引用的链接起码能打开，不是404
+
+<img src="https://img.saraba1st.com/forum/202501/29/203418gspfjslcxqqpqqqq.jpg" referrerpolicy="no-referrer">
+
+<strong>img-2025.01.29-08.33.59.jpg</strong> (483.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 20:34 上传
+
+*****
+
+####  黄泉川此方  
+##### 716#       发表于 2025-1-29 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305889&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-1-29 20:33</a>
+
+如果多轮对话能力不好，是不是意味着我不能设定一个性格再和他进行长期多轮次的聊天了啊？ ...</blockquote>
+叫它总结，然后用总结出来的资料和新开窗口聊
+
+*****
+
+####  黄泉川此方  
+##### 717#       发表于 2025-1-29 20:37
+
+API没好的每一秒都在琢磨本地部署<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/29/203637doztq9s0rrrz29ae.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-29 20:36 上传
+
+*****
+
+####  又是十元  
+##### 718#       发表于 2025-1-29 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305896&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-29 20:34</a>
+
+用Page Assist可以，效果我觉得凑合</blockquote>
+你这是几b的，好像没推理出来我想问的部署r1自己，给理解成部署其他模型了
+

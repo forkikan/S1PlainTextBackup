@@ -1917,3 +1917,40 @@ lost song和母鸡卡的区别在于，lost song并没有一部有着稳定评�
 牛国安的剧透是哪个帖子的，现在专楼没了只有专版根本没法跟进最新进度了
 倒是贴吧发了一个和楼里一样的剧透，但也是牛国安的截图<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 13493#       发表于 2025-1-29 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305248&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-1-29 18:43</a>
+哪怕控制变量法看一下都知道为啥星三会好起来啊真就花田背负此间之恶呗。 ...</blockquote>
+把锅丢给一个鬼知道是干什么的制作人，直接负责把台词写出来的花田的锅肯定也跑不掉（而且你花在隔壁京吹3采访直言自己是愉悦犯，在拉拉这个自己从小带大的ip场子里说自己被制作人脑控是不是有点幽默<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  烂片雷达  
+##### 13494#       发表于 2025-1-29 20:33
+
+干脆让卖狗的先别干乐队了来母鸡卡兼职精神疗养师吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+妙手回春素大夫、洞察万物灯大夫、仁心慧质爱大夫，生死肉骨希大夫，来个一对一深度诊疗贴身陪护<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13495#       发表于 2025-1-29 20:34
+
+目前来看有这趋势，A团展开太超现实了，需要迷子的重力给它往回拉一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 13496#       发表于 2025-1-29 20:36
+
+也算是学习前辈的乐队建设思路了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
