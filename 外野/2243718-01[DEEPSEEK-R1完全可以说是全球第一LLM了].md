@@ -8971,3 +8971,52 @@ E5洋垃圾估计能到3token/s？只求运行的话估计华强北神机1w内�
 
 下贱的白皮猪这下真心慌了急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 675#       发表于 2025-1-29 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304273&amp;ptid=2243718" target="_blank">qwased 发表于 2025-1-29 15:06</a>
+
+E5洋垃圾估计能到3token/s？只求运行的话估计华强北神机1w内就能解决</blockquote>
+还是挺慢的，长输入会导致进一步延迟吧。不如看看能不能分散载入到多块魔改显卡上.
+
+*****
+
+####  afer  
+##### 676#       发表于 2025-1-29 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304226&amp;ptid=2243718" target="_blank">Nanachi 发表于 2025-1-29 14:52</a>
+
+意大利DPA率先向DeepSeek发出数据监督协查要求
+
+中国人工智能新贵 DeepSeek 究竟是游戏规则改变者，还是可 ...</blockquote>
+有骨气就不提供，爱用不用
+
+*****
+
+####  星の守  
+##### 677#       发表于 2025-1-29 16:13
+
+开始围堵了啊
+
+*****
+
+####  Nanachi  
+##### 678#       发表于 2025-1-29 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304525&amp;ptid=2243718" target="_blank">afer 发表于 2025-1-29 16:13</a>
+有骨气就不提供，爱用不用</blockquote>
+美国正对DeepSeek开展国家安全调查
+https://news.cctv.com/2025/01/29/ARTIvCocAgx8PlNlP1xy1LZU250129.shtml
+
+美国正对DeepSeek开展国家安全调查
+玉渊谭天 2025年01月29日 14:50
+
+当地时间1月28日，美国多名官员回应DeepSeek对美国的影响，表示DeepSeek是“偷窃”，正对其影响开展国家安全调查。就在前一天，美国总统**还称DeepSeek是很积极的技术成果。
+
+扫二维码 访问央视网
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
