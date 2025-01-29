@@ -8386,3 +8386,15 @@ api现在不开放注册了吗，怎么一直都是崩溃状态
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  liquer  
+##### 629#       发表于 2025-1-29 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67301835&amp;ptid=2243718" target="_blank">1242599693 发表于 2025-1-29 00:35</a>
+悉尼大学的一个学者 Teodor Mitew 问了 DeepSeek 一个问题，然后它的答案现在成了推上的热门话题。
+
+问题是 ...</blockquote>
+真的，这人昵称就是他名字，我找到原推文了
+
