@@ -2551,3 +2551,61 @@ NTV对G9这么有信心吗？</blockquote>
 
 开新档只能稳定播一个季度岂不是风险有点大？我奶半年番好吧<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 6127#       发表于 2025-1-30 21:47
+
+PlaZma+打挽尊哥能衍生这么多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/30/214528xi037x0qi0nu9xb0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/214550d3envur6vbuktpnm.png" referrerpolicy="no-referrer">
+
+<strong>_[TN)P`~6HU[TW[GG[`QI4X.png</strong> (75.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/214602ga5oy1cuo15ja47o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/214623smpr22xzrrlmo5if.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/214637hqqj2yqrk9mkjrqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:46 上传
+
+*****
+
+####  Steel.Haze  
+##### 6128#       发表于 2025-1-30 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312810&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-30 21:47</a>
+
+PlaZma+打挽尊哥能衍生这么多啊</blockquote>
+话说现在挽尊哥的罪孽度上升了，因为这次新高达表现的的历史奇点效应其实比之前观众想象的要大....挽尊哥如果不是嘴欠，那么对提坦斯而言真的是少一桩祸事。尤其是西洛克而言，极大可能从终战幸存。
+
