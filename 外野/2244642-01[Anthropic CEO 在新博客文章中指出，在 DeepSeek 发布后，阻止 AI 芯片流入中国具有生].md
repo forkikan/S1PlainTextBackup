@@ -1057,3 +1057,18 @@ LLM这条路实现AGI的可能性为零</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  onezeron  
+##### 99#       发表于 2025-1-30 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309157&amp;ptid=2244642" target="_blank">体制 发表于 2025-1-30 12:22</a>
+
+你的预设是错误的。
+
+美国那几万个顶级智商压根就不在决策层。
+
+美国的决策层是一群靠现代资本贵族裙带和推 ...</blockquote>
+我的观点是，就包括这个ceo，都是顶级人才顶级大脑，那么他们是否相信自己说的话，还是都是在说一套做一套的问题。
+

@@ -2983,3 +2983,133 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  YU_JI  
+##### 13598#       发表于 2025-1-30 12:28
+
+无敌了，大过年的给大家看点喜剧片是吧
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 13599#       发表于 2025-1-30 12:31
+
+这要是敢在一个月前假药这种展开有多少鹅都不够扣的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 13600#       发表于 2025-1-30 12:31
+
+按黄大叔透的 我转的那个四条剧透大概率是真的吧
+
+
+*****
+
+####  wpcc  
+##### 13601#       发表于 2025-1-30 12:31
+
+可以直接开喷武士道亲女儿睡爆哭来西哭了 永不和解了
+
+*****
+
+####  楚暮秦朝  
+##### 13602#       发表于 2025-1-30 12:32
+
+大女主和大陀螺，无敌了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 13603#       发表于 2025-1-30 12:32
+
+话说现在wsd亲女儿是谁，mygo吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  EBe  
+##### 13604#       发表于 2025-1-30 12:32
+
+兜兜转转建议改成哭来死哭传（立希可以换成爱音了）
+
+*****
+
+####  凉良  
+##### 13605#       发表于 2025-1-30 12:32
+
+要是祥子就这么跪了回去做千金小姐这角色真的是烂完了吧
+
+
+*****
+
+####  EBe  
+##### 13606#       发表于 2025-1-30 12:34
+
+建议花咲川四人加个喵梦自行组个乐队算了，两个🥁也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 13607#       发表于 2025-1-30 12:34
+
+看完第五集剧透
+总觉得之后会有希望之花级别的名场面
+
+*****
+
+####  wpcc  
+##### 13608#       发表于 2025-1-30 12:35
+
+<blockquote>凉良 发表于 2025-1-30 12:32
+要是祥子就这么跪了回去做千金小姐这角色真的是烂完了吧</blockquote>
+小留提亲财团老登 这种假药zng都写不出
+
+*****
+
+####  天空塔书记官  
+##### 13609#       发表于 2025-1-30 12:35
+
+不是，怎么才第五集就又烂完了，那第七集还讲啥，到底是在黑祥还是粉祥啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 13610#       发表于 2025-1-30 12:35
+
+令和海猫——&gt;令和轻拍——&gt;令和种命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 13611#       发表于 2025-1-30 12:36
+
+回头看·，<strong>哪怕从吃流量角度</strong>，瞄梦第一话在团队还未遇到瓶颈或没有明确写到观众对团队演出感到有些厌倦时就把众人面具摘了，在商业上本来就是不明智的行为（<strong>自己浪费了一张本来可能存在的王牌</strong>），后续没有根据这方面反驳瞄梦或商业上惩罚她，不过是因为官方顺着她罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 13612#       发表于 2025-1-30 12:37
+
+直接鸡团全是神人废物得了
+
+*****
+
+####  天空塔书记官  
+##### 13613#       发表于 2025-1-30 12:38
+
+结论甚至有可能是A团真就不是商业乐队，本质还是大小姐和“朋友们”组着玩的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

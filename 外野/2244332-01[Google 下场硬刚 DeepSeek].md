@@ -764,3 +764,15 @@ ai这些年attention这些都是google整出来的
 
 google的技术再强也没用，它做不成好的产品。
 
+
+*****
+
+####  pf67  
+##### 78#       发表于 2025-1-30 12:35
+
+今天试了下gemini2.0+酒馆写小黄文，太tm强了，可以说质量秒杀市面上99%的黄油
+
+然而就是还没用爽就报503错误<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
