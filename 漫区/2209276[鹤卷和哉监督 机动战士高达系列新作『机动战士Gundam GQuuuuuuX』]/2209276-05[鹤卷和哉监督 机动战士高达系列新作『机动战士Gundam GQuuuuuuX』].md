@@ -2836,3 +2836,20 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 把目前公开的影像都看了，歌也听了，真的很期待<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  积木23ki  
+##### 6148#       发表于 2025-1-31 02:00
+
+把目前公开的影像都看了，歌也听了，真的很期待<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 6149#       发表于 2025-1-31 06:57
+
+0079那种拟人味还挺有意思的，比如那个把队友推出去挡枪结果自己被飘过来的导弹炸死的扎古
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
