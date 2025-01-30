@@ -2681,3 +2681,19 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  WallHrolf  
+##### 6134#       发表于 2025-1-30 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怎么记得0079自己也干了，还是很早期的集数
+
+
+*****
+
+####  中野梓  
+##### 6135#       发表于 2025-1-30 23:04
+
+老登们就喜欢老机器人动画那拟人味儿，最喜欢的可能是安彦良和
+
