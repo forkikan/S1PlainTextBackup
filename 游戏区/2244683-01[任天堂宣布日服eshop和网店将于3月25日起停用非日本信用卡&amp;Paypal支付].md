@@ -1,0 +1,461 @@
+﻿
+*****
+
+####  oi99o  
+##### 1#       楼主       发表于 2025-1-30 15:17
+
+ 本帖最后由 oi99o 于 2025-1-30 15:19 编辑 
+
+这下没日本信用卡就只能买点卡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/30/151724erph36hrdm9dbpr7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 15:17 上传
+
+*****
+
+####  hisousihou  
+##### 2#       发表于 2025-1-30 15:20
+
+这该咋办<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">一直都是在日区买的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大暴死  
+##### 3#       发表于 2025-1-30 15:21
+
+阿哲.........本来买的挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  战术核辣条  
+##### 4#       发表于 2025-1-30 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有钱不赚王八蛋啊，这是何意
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  高妹控  
+##### 5#       发表于 2025-1-30 15:24
+
+ 本帖最后由 高妹控 于 2025-1-30 15:26 编辑 
+
+日区换区余额清零，但是用点卡必然会有余额，怎么着都要亏点，除非用一辈子日区<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+人体堂罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  makiRicardo  
+##### 6#       发表于 2025-1-30 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这下只能充值卡了？有没有某宝以外的线上购买充值卡的途径？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Andariel  
+##### 7#       发表于 2025-1-30 15:25
+
+这么做图的什么.....有钱不挣？
+
+*****
+
+####  MidKnight  
+##### 8#       发表于 2025-1-30 15:26
+
+日本亚马逊应该可以自己买充值卡吧
+
+*****
+
+####  oi99o  
+##### 9#         楼主| 发表于 2025-1-30 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310391&amp;ptid=2244683" target="_blank">makiRicardo 发表于 2025-1-30 15:25</a>
+
+这下只能充值卡了？有没有某宝以外的线上购买充值卡的途径？
+
+论坛助手,iPhone ...</blockquote>
+
+日本亚马逊，属于是曲线救国了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/30/152655chuyyupaluaau62g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (255.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 15:26 上传
+
+*****
+
+####  ppa11  
+##### 10#       发表于 2025-1-30 15:28
+
+？为啥啊。。
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  沧兰殇  
+##### 11#       发表于 2025-1-30 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310407&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 15:27</a>
+日本亚马逊，属于是曲线救国了</blockquote>
+日本亚马逊注册，还有付款可以用国服paypal吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 12#       发表于 2025-1-30 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有病
+
+*****
+
+####  makiRicardo  
+##### 13#       发表于 2025-1-30 15:30
+
+而且用充值卡续会员也不方便<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  makiRicardo  
+##### 14#       发表于 2025-1-30 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310407&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 15:27</a>
+日本亚马逊，属于是曲线救国了</blockquote>
+那就行，别日亚什么时候也不让用外国信用卡了就行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  沧兰殇  
+##### 15#       发表于 2025-1-30 15:31
+
+别说是为了把大陆用户锁港服搞的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  oi99o  
+##### 16#         楼主| 发表于 2025-1-30 15:33
+
+ 本帖最后由 oi99o 于 2025-1-30 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310427&amp;ptid=2244683" target="_blank">沧兰殇 发表于 2025-1-30 15:30</a>
+
+日本亚马逊注册，还有付款可以用国服paypal吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+不能用paypal，只能用信用卡，包括银联信用卡（不能用储蓄卡）
+
+编辑：任天堂相关券码也不能用银联信用卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（苹果礼品卡倒是可以）
+
+*****
+
+####  oi99o  
+##### 17#         楼主| 发表于 2025-1-30 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310438&amp;ptid=2244683" target="_blank">沧兰殇 发表于 2025-1-30 15:31</a>
+
+别说是为了把大陆用户锁港服搞的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+明面上说是防止不正利用，我觉得实际上可能是会跟ns2时代的定价策略有关系了
+
+*****
+
+####  duraa  
+##### 18#       发表于 2025-1-30 15:35
+
+何意啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 19#       发表于 2025-1-30 15:35
+
+汇率问题吧，可能日服会比其他区便宜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+类似以前倒卖苹果充值卡
+
+*****
+
+####  ParadiseMartyr  
+##### 20#       发表于 2025-1-30 15:39
+
+ 本帖最后由 ParadiseMartyr 于 2025-1-30 15:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310451&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 15:33</a>
+不能用paypal，只能用信用卡，包括银联信用卡（不能用储蓄卡）</blockquote>
+不是说非日本发行的信用卡都不能用吗？国内的jcb这种能用?
+
+*****
+
+####  沧兰殇  
+##### 21#       发表于 2025-1-30 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310461&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 15:34</a>
+明面上说是防止不正利用，我觉得实际上可能是会跟ns2时代的定价策略有关系了 ...</blockquote>
+难道解决ns2机子和游戏日元美元汇率问题的一个策略是加紧其他地区跨区购买？日本一个价，其他地方一个价，不按汇率？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  猫不萌  
+##### 22#       发表于 2025-1-30 15:40
+
+港服这么多游戏没有，也不支持银联支付，到底何意
+
+*****
+
+####  漆黑之花  
+##### 23#       发表于 2025-1-30 15:42
+
+可能是税？国外的钱收多了可能会有问题
+
+*****
+
+####  ubiquity  
+##### 24#       发表于 2025-1-30 15:42
+
+应该是ns2日区游戏价不跟汇率走，还维持较低水准，稳住大本营的市场，要赶紧把其他特别是高价区的踢出去
+
+*****
+
+####  渺小小  
+##### 25#       发表于 2025-1-30 15:44
+
+有病啊？ 除非港服账号能直接绑大陆微信和支付宝否则这仇我记到ESHOP关服<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 26#         楼主| 发表于 2025-1-30 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310478&amp;ptid=2244683" target="_blank">ParadiseMartyr 发表于 2025-1-30 15:39</a>
+
+不是说非日本发行的信用卡都不能用吗？国内的jcb这种能用?</blockquote>
+说的是日本亚马逊的情况，人家要做海淘的，所以政策会松一些。但是刚试了日亚购买任天堂相关的券码也都不能用银联卡，国内发行的visa卡应该还是可以用的。
+
+*****
+
+####  heseran  
+##### 27#       发表于 2025-1-30 15:47
+
+有病……
+
+*****
+
+####  沧兰殇  
+##### 28#       发表于 2025-1-30 15:51
+
+我一直用国服paypal配储蓄卡买的游戏，不过一般大作买实体，但是ns2实体卡带加载速度应该也没内置ufs快，小作品都是paypal付款，这回要买点卡了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  66367749  
+##### 29#       发表于 2025-1-30 15:53
+
+没记错的话paypal早就不能用了，日亚也不支持
+
+*****
+
+####  leyenda  
+##### 30#       发表于 2025-1-30 15:53
+
+点卡也就麻烦点，价格上不是比信用卡便宜多吗
+
+*****
+
+####  Aeroblast  
+##### 31#       发表于 2025-1-30 15:54
+
+<blockquote>makiRicardo 发表于 2025-1-30 15:30
+而且用充值卡续会员也不方便
+
+论坛助手,iPhone</blockquote>
+直接买会员的兑换码
+
+*****
+
+####  wddely  
+##### 32#       发表于 2025-1-30 15:55
+
+sb
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wddely  
+##### 33#       发表于 2025-1-30 15:57
+
+申请jcb是不是要去日本，朋友在日本可以吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ParadiseMartyr  
+##### 34#       发表于 2025-1-30 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310585&amp;ptid=2244683" target="_blank">wddely 发表于 2025-1-30 15:57</a>
+申请jcb是不是要去日本，朋友在日本可以吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+jcb国内也有发行的。
+dlsite和melonbook都能用
+
+*****
+
+####  伪宅ACer  
+##### 35#       发表于 2025-1-30 16:02
+
+<blockquote>ParadiseMartyr 发表于 2025-1-30 16:00
+jcb国内也有发行的。
+
+dlsite和melonbook都能用</blockquote>
+看老任的意思 估计国内的jcb也都不能用吧
+
+*****
+
+####  圈量子  
+##### 36#       发表于 2025-1-30 16:02
+
+还好现在肉身在日本了，哪怕以后再次发疯只能用日本发行的信用卡也不怕了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 37#         楼主| 发表于 2025-1-30 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310568&amp;ptid=2244683" target="_blank">leyenda 发表于 2025-1-30 15:53</a>
+
+点卡也就麻烦点，价格上不是比信用卡便宜多吗</blockquote>
+也没便宜太多，加上凑整的零头优势可能就更少了
+
+*****
+
+####  BQlin  
+##### 38#       发表于 2025-1-30 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310601&amp;ptid=2244683" target="_blank">ParadiseMartyr 发表于 2025-1-30 16:00</a>
+
+jcb国内也有发行的。
+
+dlsite和melonbook都能用</blockquote>
+那些站能用也许只是没ban外地的
+
+银行卡前几位数好像就是地区代码吧，以前谷歌绑卡输完前几位直接就认出来不是当地的
+
+*****
+
+####  沧兰殇  
+##### 39#       发表于 2025-1-30 16:06
+
+傻逼美国只会印钱，一群虫豸，傻逼日本不会发展，现在各个地方都落后，只会加税
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  M乔梦  
+##### 40#       发表于 2025-1-30 16:06
+
+ 本帖最后由 M乔梦 于 2025-1-30 16:08 编辑 
+
+jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人都碰到苹果日区商店国内发行的jcb绑定不了的情况，感觉也会限地区。然后psn我记得很久以前就限制国内jcb了
+
+
+*****
+
+####  Dedalus  
+##### 41#       发表于 2025-1-30 16:06
+
+说句公道话不是任天堂有病，从今年开始日本app store也只能绑定日本jcb了，是日本人有病
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oi99o  
+##### 42#         楼主| 发表于 2025-1-30 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310605&amp;ptid=2244683" target="_blank">伪宅ACer 发表于 2025-1-30 16:02</a>
+
+看老任的意思 估计国内的jcb也都不能用吧</blockquote>
+有些明面上说不能用非日本卡的服务实际上国内的jcb也能用，得到时候实际验证一下
+
+编辑：好像apple日区以前可以的，现在也不行了
+
+*****
+
+####  Fuero  
+##### 43#       发表于 2025-1-30 16:07
+
+卡发行地的话，国内申请的JCB啥的都没用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  畜男不是人  
+##### 44#       发表于 2025-1-30 16:08
+
+不让付就不买了呗，惯了他臭毛病
+
+*****
+
+####  反方向的波  
+##### 45#       发表于 2025-1-30 16:09
+
+konami微微一笑：还得是移形换位！
+
+
+*****
+
+####  Charizard  
+##### 46#       发表于 2025-1-30 16:10
+
+有病吧？？？锁信用卡就算了PayPal也锁是何意啊？
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  check  
+##### 47#       发表于 2025-1-30 16:11
+
+小日本特色 嫌太赚钱了
+
+*****
+
+####  畜男不是人  
+##### 48#       发表于 2025-1-30 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310625&amp;ptid=2244683" target="_blank">Dedalus 发表于 2025-1-30 03:06</a>
+说句公道话不是任天堂有病，从今年开始日本app store也只能绑定日本jcb了，是日本人有病
+
+论坛助手,iPhone ...</blockquote>
+是的 DMM也不行了，以前还去买点漫画，今年省钱了
+
