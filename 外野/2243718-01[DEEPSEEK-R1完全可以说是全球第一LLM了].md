@@ -10629,3 +10629,27 @@ Git hub和perplexity的代理我都用了，远远不行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qratosones1337  
+##### 809#       发表于 2025-1-30 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310377&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-30 15:22</a>
+Git hub和perplexity的代理我都用了，远远不行
+感觉像是怎么说呢，感觉像是部署出了问题
+。智力远远比不 ...</blockquote>
+有可能部署的不是原版…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  精钢魔像  
+##### 810#       发表于 2025-1-30 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310368&amp;ptid=2243718" target="_blank">qqks 发表于 2025-1-30 15:20</a>
+
+鬼佬一堆网站已经开始托管r1大杯了，国内那些服务商在搞毛！</blockquote>
+360那个感觉也不行
+

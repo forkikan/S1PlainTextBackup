@@ -1189,3 +1189,13 @@ AGi是能解决所有问题 ...</blockquote>
 
 就米国这帮精英的种族主义底色，做梦做出来agi也是个反人类玩意儿，到时候不是全人类一起对抗疯掉的ai脑米国？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fw3ii9  
+##### 111#       发表于 2025-1-30 15:46
+
+agi变不出钢铁，也变不出炮弹。
+agi就算能实现自我迭代、实现科研全自动，成果落地还是大规模制造。
+硅谷精英就算费尽千辛万苦搞出来agi，这个agi给他们的第一个建议恐怕是投共<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
