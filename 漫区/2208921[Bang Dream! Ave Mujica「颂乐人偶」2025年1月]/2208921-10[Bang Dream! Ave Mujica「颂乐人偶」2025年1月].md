@@ -5455,3 +5455,185 @@ mortis：何等任性！否定负面情绪，从而想将侬燃尽吗！
 我上一个这么想的是水星的魔女 哈哈</blockquote>
 那你就没必要到楼里参加讨论了。已经完结的剧本，观众的看法毫无意义。发泄感情的话，楼友也不会照顾你。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 13842#       发表于 2025-1-30 19:36
+
+不是吧，又来尊重。。。大花老师真没在星2尊重我，我追星3也没说人家没在圆，没在找补自己那些烂活。。。这还没播完呢。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dgugvff  
+##### 13843#       发表于 2025-1-30 19:37
+
+这集绫奈老师还是没出现，只有原案系构有她唉到底怎么回事？
+
+*****
+
+####  wpcc  
+##### 13844#       发表于 2025-1-30 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311985&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 19:31</a>
+
+灯心里一直都有c团时期祥子，而搞鸡团的祥子是完全摒弃c团时期的自己，这不就是关键吗
+
+而且灯的塑造本身就 ...</blockquote>
+我只能说就目前的人物塑造来讲 假设队长是祥子 讲祥子组件合理的鸡团，那么首先要解决的问题是吧这三个神人都提了 海玲可以留 其他人都滚。
+
+哪怕是精神正常的大象遇到大猫这种人也是组不下去的。两个人是真理念不合，木头更是个越演奏越发神经的地雷分裂症，完全不能当乐队成员用。
+
+假设我们要求包饺子的时候的祥子的状态是能合理协调和队友的关系，做到关心队友的队长，还有一半的内容要给这些神人治病，甚至海玲也得治病。
+
+那么问题来了现在我只看到了爱音的大手，看不到武士道包饺子的能力。访谈看完人都怕了
+
+*****
+
+####  ads147147  
+##### 13845#       发表于 2025-1-30 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312024&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-30 19:37</a>
+这集绫奈老师还是没出现，只有原案系构有她唉到底怎么回事？</blockquote>
+好像贴吧有看到论证有个脚本是独角兽马甲的，只能说有点乐。。。
+ 应该是这个
+https://tieba.baidu.com/p/9452961966?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.77.1.0&amp;st=1738237109&amp;is_video=false&amp;unique=F43F4F40D2F5356D08E3029C3C45068F
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 13846#       发表于 2025-1-30 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312000&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-30 19:33</a>
+我还是觉得，灯救mygo最大一个前提是mygo是真的纯纯小女生闹别扭，没真正意义上坏人恶行，再兜不住大不了一 ...</blockquote>
+现在mujica没有纯无辜的人，搞事的打得菜的看戏的摆烂的，组一丘之貉的队伍已经正好了（）
+
+*****
+
+####  JustW  
+##### 13847#       发表于 2025-1-30 19:38
+
+主要还是从祥子家庭背景揭露开始，母鸡卡整个基调现实严肃得一批，后面还搞老一套的话割裂感不是老团们能比的。RAS俩初中生年纪的讨论用音乐征服世界、小白吃菌子（游戏剧情里都开始联机做梦）能被接受是因为基调就没那么现实严肃，而且和灯一样至少没有角色从嘴里把病名说出来，大家笑一下也就过去了。
+
+*****
+
+####  dgugvff  
+##### 13848#       发表于 2025-1-30 19:38
+
+🐔团的氛围只有mygo的出现才能调节好，喜欢爱音不奇怪
+
+*****
+
+####  山ノ内花音  
+##### 13849#       发表于 2025-1-30 19:39
+
+我就想问问若叶睦什么时候才能回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13850#       发表于 2025-1-30 19:39
+
+只能说包装纸唬人啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wpcc  
+##### 13851#       发表于 2025-1-30 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312040&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-30 19:39</a>
+
+我就想问问若叶睦什么时候才能回来</blockquote>
+访谈说一个月等着去吧 木头回来大象才能回来 我看一集之内要连包两个饺子的
+
+*****
+
+####  盐盐盐盐盐  
+##### 13852#       发表于 2025-1-30 19:40
+
+不是，是都没看过那种动画经典八股文一个角色因为一些痛苦的经历分裂出另一个人格，然后自己和内心和解之后这个人格就和主人格融合了或者偶尔日常切号出来玩的剧情吗，人家也没解释这是什么原理治好精神疾病啊，这只是一种二刺螈的演出套路而已
+
+*****
+
+####  dgugvff  
+##### 13853#       发表于 2025-1-30 19:40
+
+如果说的对，既然都用上马甲了那我不得不怀疑这个剧本的质量了
+
+*****
+
+####  磷叶石~  
+##### 13854#       发表于 2025-1-30 19:41
+
+为了搞时尚单品垫4个肯定不是什么好事，上一个怎么玩的蝶团什么情况大家都看到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13855#       发表于 2025-1-30 19:42
+
+一共十三集墨小姐不会要占至少三集吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13856#       发表于 2025-1-30 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312054&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-1-30 19:40</a>
+
+不是，是都没看过那种动画经典八股文一个角色因为一些痛苦的经历分裂出另一个人格，然后自己和内心和解之后 ...</blockquote>
+现在的问题是大象和木头的精神病是互相锁住的，必须同时解决这两个才行 就逻辑来说mujica已经走到死局了 现在是看武士道破局写的怎么样合理的问题 
+
+已经明确知道包饺子结局的情况下 能讨论的只有过程 
+
+*****
+
+####  swessia  
+##### 13857#       发表于 2025-1-30 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议莫小姐学学吉他，期待op中你的表演
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 13858#       发表于 2025-1-30 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312064&amp;ptid=2208921" target="_blank">磷叶石~ 发表于 2025-1-30 19:41</a>
+
+为了搞时尚单品垫4个肯定不是什么好事，上一个怎么玩的蝶团什么情况大家都看到了 ...</blockquote>
+卖谷子的工具罢了 隔壁那里还有南娘性倒错呢
+
+*****
+
+####  dgugvff  
+##### 13859#       发表于 2025-1-30 19:44
+
+睦的问题估计要到最后解决。
+
+*****
+
+####  ads147147  
+##### 13860#       发表于 2025-1-30 19:45
+
+说起来，因为写的超烂所以用意义不明的马甲顶锅这事，在幻日夜羽里亦有记载。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 13861#       发表于 2025-1-30 19:46
+
+真不至于，海玲和初华还等着爆呢，两个人格对峙一下，可能半集就解决了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

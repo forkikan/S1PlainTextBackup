@@ -11023,3 +11023,15 @@ https://azure.microsoft.com/en-us/blog/d ...</blockquote>
 套皮二道贩子要大量出现了</blockquote>
 这个是啥？怎么用？
 
+
+*****
+
+####  overflowal  
+##### 844#       发表于 2025-1-30 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311224&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-30 17:43</a>
+有啥明显不同的问题吗，我用了一个晚上来着。</blockquote>
+就不是同一个模型啊，那些只是R1教出来的小学生
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

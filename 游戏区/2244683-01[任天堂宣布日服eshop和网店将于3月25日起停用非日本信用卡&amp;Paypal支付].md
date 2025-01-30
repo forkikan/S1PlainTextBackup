@@ -1178,3 +1178,13 @@ appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半
 
 你开献上商店不就是赚钱么，有人给钱就老老实实卖，怕黄牛你就限购好了。。非要弄成这么抽象的服务<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 124#       发表于 2025-1-30 19:33
+
+日亚买点卡有专门的风控的，不同人进去体验不一样很正常。
+
+你们别瞎试。。。。
+
