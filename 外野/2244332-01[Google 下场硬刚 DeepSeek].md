@@ -776,3 +776,24 @@ google的技术再强也没用，它做不成好的产品。
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pf67  
+##### 79#       发表于 2025-1-30 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67289603&amp;ptid=2244332" target="_blank">mimighost 发表于 2025-1-27 18:01</a>
+嗯，我也觉得背后是两个团队，互相不对付</blockquote>
+字节里团队多了去了，每个组都在抢卡，字节去年买了一大堆卡很多都不是给豆包用
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jumbleh  
+##### 80#       发表于 2025-1-30 12:47
+
+Google目前我唯一觉得能用的是Google notebook LLM，但只是因为其他家不做这个产品
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

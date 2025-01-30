@@ -3113,3 +3113,80 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  杰西坦尼斯  
+##### 13614#       发表于 2025-1-30 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259222&amp;ptid=2208921" target="_blank">杰西坦尼斯 发表于 2025-1-23 22:43</a>
+
+我猜后面应该是光速解散，然后五个人天各一方各自发展，丰川祥子陷入低谷，因为mygo还是啥其他原因重新振作 ...</blockquote>
+不是，第五话预告一出，这剧情不就板上钉钉了吗，怎么还有惊讶的
+
+*****
+
+####  afsd109  
+##### 13615#       发表于 2025-1-30 12:39
+
+十五年大女主当然是我粉色奶龙啦。
+
+不过初华暴怒该不会是后面看到大祥老师和其他人和解而自己还被夺走同居生活而暴怒吧。
+
+*****
+
+####  阿兹尔  
+##### 13616#       发表于 2025-1-30 12:39
+
+这就是同一个学校的好处了，看来喵梦可以多和ras的前辈一起玩了
+
+*****
+
+####  JustW  
+##### 13617#       发表于 2025-1-30 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309306&amp;ptid=2208921" target="_blank">杰西坦尼斯 发表于 2025-1-30 12:38</a>
+不是，第五话预告一出，这剧情不就板上钉钉了吗，怎么还有惊讶的</blockquote>
+这就是假药的神威了…
+
+*****
+
+####  凉良  
+##### 13618#       发表于 2025-1-30 12:40
+
+圣爱音或者灯神救场其实还好  我一直是觉得要灯来救祥的 但是祥子回去做大小姐真的太难接受了  感情高贵就高贵在家族了
+
+*****
+
+####  天空塔书记官  
+##### 13619#       发表于 2025-1-30 12:41
+
+第七集应该会有黑色生日的live，不是没散就是重组呗，不过这炸团大概还是和以前不一样的，戏剧化地复活也是戏剧的一部分，本质还是暂停活动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 13620#       发表于 2025-1-30 12:41
+
+唏，可以切割嗎？
+
+這麼早進場會被拖進神經病院
+
+*****
+
+####  山ノ内花音  
+##### 13621#       发表于 2025-1-30 12:42
+
+后世评价mujica动画
+会不会是欲扬先抑抑了六集 
+导致直接被送走了的典型<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 13622#       发表于 2025-1-30 12:43
+
+祥子要暂时加入mygo了嘛，正好再加个键盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

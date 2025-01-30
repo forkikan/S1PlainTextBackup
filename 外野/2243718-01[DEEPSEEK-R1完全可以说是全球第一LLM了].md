@@ -10399,3 +10399,43 @@ R1跟其他的AI相比就像是刘慈欣王小波对比中年老油条公务员�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说酒馆破甲有没有不影响他正常功能的方式，让他当一个百无禁忌的ai聊天助手这种
 
+
+*****
+
+####  阿刚  
+##### 790#       发表于 2025-1-30 12:36
+
+<img src="https://img.saraba1st.com/forum/202501/30/123611kjm16z6j6lzle1jz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250130123553.png</strong> (128.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 12:36 上传
+
+我服了，这下是我分不清了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">到底是这玩意太癫了还是我那个穿甲弹劲儿太大把什么东西打坏了
+
+*****
+
+####  pf67  
+##### 791#       发表于 2025-1-30 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309051&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-30 12:11</a>
+话说酒馆破甲有没有不影响他正常功能的方式，让他当一个百无禁忌的ai聊天助手这种 ...</blockquote>
+你要聊天助手那网上一大堆框架，非要盯着酒馆干啥
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  阿刚  
+##### 792#       发表于 2025-1-30 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309309&amp;ptid=2243718" target="_blank">pf67 发表于 2025-1-30 12:39</a>
+
+你要聊天助手那网上一大堆框架，非要盯着酒馆干啥
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">酒馆人物卡破甲方便一点……
+
