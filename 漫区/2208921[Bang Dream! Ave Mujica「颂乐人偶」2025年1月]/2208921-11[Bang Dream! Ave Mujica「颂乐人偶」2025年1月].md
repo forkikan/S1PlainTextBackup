@@ -1134,3 +1134,200 @@ ave的问题是作为噱头的部分搞太大了，之后需要平衡回来，�
 这集更是说有违约金，还在那OB也过 ...</blockquote>
 只能说不做不错，相比其他成员已经像是个人了，至少还是能够承担起二把手的工作
 
+
+*****
+
+####  iiiiiiiiii  
+##### 14899#       发表于 2025-1-31 02:29
+
+<blockquote>thisisaspider 发表于 2025-1-31 02:23
+这个情况OB也是拟人好吧，真算起来只能说海铃有心病拒绝关心队友了。
+
+安个每次拉回队友最后还是解散的PTS ...</blockquote>
+海玲没那么无敌，如果真那么面面俱到也不至于解散三十个乐队了 。那就问问是海玲眼光差还是海玲的冷漠导致三十个乐队没有团魂
+
+*****
+
+####  thisisaspider  
+##### 14900#       发表于 2025-1-31 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316694&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 02:25</a>
+
+无论是车轱辘喵梦摘面具还是车轱辘木头进医院都没有啥必要，因为那只是故事发展的一个阶段，而不是故事的全 ...</blockquote>
+一想到wsd还要折磨我6-8集，就恨不得杀了mggm。<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 14901#       发表于 2025-1-31 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316632&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 02:17</a>
+什么越过不越过的，看到认识的人有严重精神问题第一反应先送医院不是很正常吗？现有信息来看睦爸妈虽然是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定被车咯，百分百不会去医院
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yaneis  
+##### 14902#       发表于 2025-1-31 02:30
+
+把祥子无论是好的坏的一并全部摧毁确实是太极端了，这样她还有站起来的动机吗？角色的根基都被拷打得动摇了，要我看直接飞人了都不奇怪
+
+*****
+
+####  刑部姬真可爱  
+##### 14903#       发表于 2025-1-31 02:30
+
+我觉得违约金只出现在祥子的剧情就当这违约金在组队的时候祥子就揽给自己了吧，没必要讨论违约金对其他人的“限制”
+
+*****
+
+####  wwwttth  
+##### 14904#       发表于 2025-1-31 02:30
+
+<blockquote>Lyzers 发表于 2025-1-31 02:17
+什么越过不越过的，看到认识的人有严重精神问题第一反应先送医院不是很正常吗？现有信息来看睦爸妈虽然是 ...</blockquote>
+问题目前除了她父母未知（理论上一个月了总应该知道了），就祥素是知道睦有精神问题的啊，拆队那活儿那几个人都反应就没一个是信睦有精神问题不是在闹别扭的。
+
+*****
+
+####  MASKA-1  
+##### 14905#       发表于 2025-1-31 02:31
+
+祥欠睦/莫的，就得还啊
+<img src="https://p.sda1.dev/21/5eeb9ec04d8341dc95cc900825e28dfc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 14906#       发表于 2025-1-31 02:32
+
+莫姐装作在打电话的那个东西是芭蕾舞鞋吗？我真是没想到学芭蕾设定会在这种时候再次出现
+
+如果是真打电话就不会吓到爽女士了
+
+广告里祥老师在小黄瓜家前面瘫坐哭的画面还没回收 最后应该还是要她出面的 但是这集直接跳到变bot太难绷了 得有个过渡吧 节奏这么慢也不会塞不进去 还是第四集太变态拖了这集后腿
+
+
+*****
+
+####  iiiiiiiiii  
+##### 14907#       发表于 2025-1-31 02:32
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-31 02:33 编辑 
+<blockquote>yaneis 发表于 2025-1-31 02:30
+把祥子无论是好的坏的一并全部摧毁确实是太极端了，这样她还有站起来的动机吗？角色的根基都被拷打得动摇了 ...</blockquote>
+
+我是看得真不爽，现在mujica可以说毫无爽点，这几集下来就是一直压抑一直压抑。🦄想什么不知道。说实话一个上班的人是希望角色能完成自己的梦想，而不是看着角色经历一样的事情。
+
+*****
+
+####  huxiaopao163  
+##### 14908#       发表于 2025-1-31 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316605&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 02:14</a>
+
+首先这个是不是莫老师已经不确定了，其次她拿的是鞋当电话。楼里说莫老师打电话自救的先醒醒
+
+三种可能：
+
+1 ...</blockquote>
+喊素世喊的是soyo酱，而不是soyo，说明是mortis的口吻
+
+*****
+
+####  thisisaspider  
+##### 14909#       发表于 2025-1-31 02:33
+
+过去的我拯救了现在的我，是一条好的叙述线。但是现在不敢假药了。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 14910#       发表于 2025-1-31 02:33
+
+<blockquote>刑部姬真可爱 发表于 2025-1-31 02:30
+我觉得违约金只出现在祥子的剧情就当这违约金在组队的时候祥子就揽给自己了吧，没必要讨论违约金对其他人的 ...</blockquote>
+不如放给丰川家当成过家家合约，揽给自己承担最多工作和责任却没有相应权利也太抽象了，包饺子都不好包
+
+*****
+
+####  江口夕  
+##### 14911#       发表于 2025-1-31 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316746&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 02:32</a>
+喊素世喊的是soyo酱，而不是soyo，说明是mortis的口吻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不好说，精神正常就不会拿鞋子当电话了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 14912#       发表于 2025-1-31 02:35
+
+海铃会对迷子支援上心，大概是因为立希，而至于祥子搞的这个“银河战舰”就还是观望居多了
+
+上面说祥子轻信krkrdkdk的，她组A团从开始到现在心理期望就是负面的，甚至一直都是自闭状态，一直拿人当人偶用，是不是正眼瞧过队友都不确定，说krkrdkdk真不是在搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 14913#       发表于 2025-1-31 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316736&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-31 02:31</a>
+祥欠睦/莫的，就得还啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准确来说祥子只欠睦，不欠莫，而祥子搞成现在这个彻底自暴自弃的样子，莫还得背锅
+
+*****
+
+####  江口夕  
+##### 14914#       发表于 2025-1-31 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316736&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-31 02:31</a>
+祥欠睦/莫的，就得还啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不就是去找了没开门么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  哈曼的YY  
+##### 14915#       发表于 2025-1-31 02:36
+
+不破不立 显然剧情是想把陀螺的根基彻底抽碎再重建的 飞人就靠灯复刻当年吧
+
+*****
+
+####  刑部姬真可爱  
+##### 14916#       发表于 2025-1-31 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316753&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:33</a>
+
+不如放给丰川家当成过家家合约，揽给自己承担最多工作和责任却没有相应权利也太抽象了，包饺子都不好包 ...</blockquote>
+权利在那，只是祥子没有去动用而已啊，她的人设是自己跑路，而不是chuchu那样你不行就滚
+
+*****
+
+####  Lyzers  
+##### 14917#       发表于 2025-1-31 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316735&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 02:30</a>
+
+问题目前除了她父母未知（理论上一个月了总应该知道了），就祥素是知道睦有精神问题的啊，拆队那活儿那几 ...</blockquote>
+意思是一个本应心智正常的十几岁乖乖女，唐突性情大变，满嘴人格分裂还在重要场合失声尖叫，但你觉得这就只是她在闹别扭，所以就能很理所当然的对她不管不顾？
+
+*****
+
+####  天空塔书记官  
+##### 14918#       发表于 2025-1-31 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316729&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 02:30</a>
+一想到wsd还要折磨我6-8集，就恨不得杀了mggm。</blockquote>
+那老登都看了五遍了还在烂炒当谜语人，确实该杀好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2068,3 +2068,20 @@ go团拯救一切
 
 这都是些什么事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  老贝  
+##### 230#       发表于 2025-1-31 02:35
+
++2
+这集才让人感觉原来还是mygo原班人马做的动画。
+
+*****
+
+####  Skymoon  
+##### 231#       发表于 2025-1-31 02:37
+
++1
+虽然剧情依旧不能多想，但胜在关系性强烈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
