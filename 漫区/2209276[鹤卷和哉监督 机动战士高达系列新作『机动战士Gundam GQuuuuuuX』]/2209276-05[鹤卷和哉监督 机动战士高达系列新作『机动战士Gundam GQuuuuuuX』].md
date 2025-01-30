@@ -2720,3 +2720,13 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 我怎么记得0079自己也干了，还是很早期的集数</blockquote>
 富野新Z就很正常 233 0079摸索阶段倒也算了 不过我不记得有这种情况。。
 
+
+*****
+
+####  57042711  
+##### 6138#       发表于 2025-1-30 23:47
+
+希望新高达正片能有ez8对决老虎特装型这种值得回味的ms战<img src="https://static.saraba1st.com/image/smiley/bundam2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

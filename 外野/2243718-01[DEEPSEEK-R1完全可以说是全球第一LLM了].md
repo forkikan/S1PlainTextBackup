@@ -11227,3 +11227,89 @@ ddos从原理上而言无法字面意义的防御
 
 好像又炸了，一发消息就提示发的太快稍后再试
 
+
+*****
+
+####  zeroboss1  
+##### 865#       发表于 2025-1-30 23:50
+
+“DeepSeek甚至绕过了CUDA”，论文细节再引热议，工程师灵魂提问：英伟达护城河还在吗？
+
+华尔街见闻
+
+来源：量子位（ID: QbitAI）作者梦晨 西风
+
+英伟达刚刚从DeepSeek-R1引发的4万亿元暴跌中缓过劲来，又面临新的压力？
+
+硬件媒体Tom‘s Hardware带来开年最新热议：
+
+DeepSeek甚至绕过了CUDA，使用更底层的编程语言做优化。
+
+￼
+这一次是DeepSeek-V3论文中的更多细节，被人挖掘出来。
+
+来自Mirae Asset Securities Research（韩国未来资产证券）的分析称，V3的硬件效率之所以能比Meta等高出10倍，可以总结为“他们从头开始重建了一切”。
+
+在使用英伟达的H800 GPU训练DeepSeek-V3时，他们针对自己的需求把132个流式多处理器（SMs）中的20个修改成负责服务器间的通信，而不是计算任务。
+
+变相绕过了硬件对通信速度的限制。
+
+这种操作是用英伟达的PTX（Parallel Thread Execution）语言实现的，而不是CUDA。
+
+PTX在接近汇编语言的层级运行，允许进行细粒度的优化，如寄存器分配和Thread/Warp级别的调整。
+
+这种编程非常复杂且难以维护，所以行业通用的做法是使用CUDA这样的高级编程语言。
+
+换句话说，他们把优化做到了极致。
+
+有网友表示，如果有一群人嫌CUDA太慢而使用PTX，那一定是前量化交易员。
+
+一位亚马逊工程师提出灵魂质问：CUDA是否还是护城河？这种顶尖实验室可以有效利用任何GPU。
+
+甚至有网友开始畅想，如果“新源神”DeepSeek开源了一个CUDA替代方案……
+
+那么事情是否真会如此？
+
+DeepSeek真的绕过了CUDA？
+
+首先要明确的是，PTX仍然是英伟达GPU架构中的技术，它是CUDA编程模型中的中间表示，用于连接CUDA高级语言代码和GPU底层硬件指令。
+
+PTX类似汇编语言，代码大概长这样：
+
+在实际编译流程中，CUDA代码首先被编译为PTX代码，PTX代码再被编译为目标GPU架构的机器码（SASS,Streaming ASSembler）。
+
+CUDA起到了提供高级编程接口和工具链的作用，可以简化开发者的工作。而PTX作为中间层，充当高级语言和底层硬件之间的桥梁。
+
+另外，这种两步编译流程也使得CUDA程序具有跨架构的兼容性和可移植性。
+
+反过来说，像DeepSeek这种直接编写PTX代码的做法，首先不仅非常复杂，也很难移植到不同型号的GPU。
+
+有从业者表示，针对H100优化的代码迁移到其他型号上可能效果打折扣，也可能根本不工作了。
+
+所以说，DeepSeek做了PTX级别的优化不意味着完全脱离了CUDA生态，但确实代表他们有优化其他GPU的能力。
+
+事实上，我们也能看到DeekSeek已经与AMD、华为等团队紧密合作，第一时间提供了对其他硬件生态的支持。
+
+One More Thing
+
+还有人提出，如此一来，让AI擅长编写汇编语言是AI自我改进的一个方向。
+
+我们不知道DeepSeek内部是否使用AI辅助编写了PTX代码——
+
+但是确实刚刚见证DeepSeek-R1编写的代码显著提升大模型推理框架的运行速度。
+
+Llama.cpp项目中的一个新PR请求，使用SIMD指令（允许一条指令同时处理多个数据）显著提升WebAssembly在特定点积函数上的运行速度，提交者表示：
+
+这个PR中的99%的代码都是由DeekSeek-R1编写的。我唯一做的就是开发测试和编写提示（经过一些尝试和错误）。是的，这个PR旨在证明大模型现在能够编写良好的底层代码，甚至能够优化自己的代码。
+
+llama.cpp项目的创始人检查了这段代码后表示“比预期的更爆炸”。
+
+参考链接：
+[1]https://www.tomshardware.com/tech-industry/artificial-intelligence/deepseeks-ai-breakthrough-bypasses-industry-standard-cuda-uses-assembly-like-ptx-programming-instead
+[2]https://x.com/bookwormengr/status/1883355712191123666
+[3]https://tinkerd.net/blog/machine-learning/cuda-basics/
+[4]https://www.amd.com/en/developer/resources/technical-articles/amd-instinct-gpus-power-deepseek-v3-revolutionizing-ai-development-with-sglang.html
+[5]https://x.com/ggerganov/status/1883888097185927311
+
+​
+

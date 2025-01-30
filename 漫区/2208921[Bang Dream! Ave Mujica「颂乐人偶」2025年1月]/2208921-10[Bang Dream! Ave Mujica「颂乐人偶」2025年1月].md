@@ -11239,3 +11239,521 @@ A团众人心之壁都不薄，直接攻破反倒是可行的手段，大喵有�
 可是她上集结尾刚说想让睦回来诶，而且先不说是认识多少年的发小，起码睦疯了的直接原因是祥子，祥子也明 ...</blockquote>
 她想让睦回来的核心原因是，鸡团时期睦是祥子的精神支柱，其他人都是业务伙伴，自己要做什么的时候想想睦是自己的伙伴那也能安心不少，所以需要她下决策的时候她先想睦回来。但母鸡卡炸掉后祥子已经什么都不想干了，而且这种状态的人基本就是靠停止思考来阻止自己感觉到痛苦，睦的事只会让她痛苦她肯定会阻止自己去想睦的事
 
+
+*****
+
+####  zhzij111  
+##### 14445#       发表于 2025-1-30 23:46
+
+ 本帖最后由 zhzij111 于 2025-1-30 23:48 编辑 
+
+丰川老登真是个慈祥老爷爷啊，女儿孙女都不让他省心。女儿要娶亚撒西废物男入赘，忍了，出钱帮废物搞事业。废物拉了个大的亏完了，不得不赶废物走，孙女又要跟爹跑路又要玩乐队，忍了，出钱出力给孙女搞赞助追梦音乐圈，追梦烂了又要出钱兜底接宝贝孙女回家继承家产。
+
+而且可以预见之后祥子还要找丰川老登再要钱重组母鸡卡，真是想想都觉得老爷爷可怜<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 14446#       发表于 2025-1-30 23:46
+
+违约金是大家付的还是祥子一人承担，一起担的话喵梦积极拆队、海玲置身事外也太蠢了，或许是违约金其实很少
+
+如果是祥子一人承担，那表示乐队基本是祥子的，喵梦擅自摘面具显得更除了。抢了祥子的方向盘，捞完好处毁完乐队拍拍屁股债务给祥子了
+
+*****
+
+####  古明地雷  
+##### 14447#       发表于 2025-1-30 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314924&amp;ptid=2208921" target="_blank">kenganmian 发表于 2025-1-30 23:37</a>
+这几集ave mujica看下来，感觉就是编剧先设定好了mujica要炸，然后开始想点子
+
+☝🏻️哎双重人格这个点子很 ...</blockquote>
+这前四集写的不如跟mygo一样开幕就炸了再从头开始呢，现在给人的感觉就是预设一个解散然后完形填空，内容和台词填的都太差。这集开始才有种步上正轨的感觉，问题是前四集已经把人设搞烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 14448#       发表于 2025-1-30 23:47
+
+不过想想🐔团是不是描写五个精神病人组团的故事。祥子自我厌恶情绪可是典型的抑郁症症状，睦不必说精神分裂，初华可能是失忆症，海玲带点反社会人格障碍，特点是没办法感受情感非常冷血，可能立希是唯一例外。喵梦表演型人格。
+
+*****
+
+####  huxiaopao163  
+##### 14449#       发表于 2025-1-30 23:47
+
+话说下集预告的画面和这集不接着啊，难道不是之前那样的开头剧情吗
+
+或者下集mortis说我唤醒小睦的办法就是赶紧学吉他，然后soyo帮她联系了猫猫，然后mortis就带着吉他跟着猫猫走了
+
+*****
+
+####  帆前  
+##### 14450#       发表于 2025-1-30 23:47
+
+这集就是
+
+憋屈90%
+
+最后给cp党注射冰
+
+*****
+
+####  天空塔书记官  
+##### 14451#       发表于 2025-1-30 23:47
+
+kkr扔的只是自己的零花钱，这点小支出对于弦卷财团来说还不够打个水漂，所以当然无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14452#       发表于 2025-1-30 23:47
+
+这集劲儿太大了，A part导演祥子水泥封心自动导航的演绎看的让人太爽了。
+
+*****
+
+####  厉飞雨  
+##### 14453#       发表于 2025-1-30 23:48
+
+这集是官方钦定粉色奶龙是追逐战之王的设定吗
+
+*****
+
+####  zhigui  
+##### 14454#       发表于 2025-1-30 23:48
+
+感觉下集可能是
+
+soyo+🐱+木头在ring门口搞街头演奏（真的要带精神病人这么玩吗？）
+
+粉色奶龙+saki+灯+铁血灯卫兵在ring里面搞演唱会（爱音的小吉他真的能顶得住无敌的丰川键盘手的强度吗）
+
+两边同时结束在门口遇到
+
+睦和祥时隔一个月第一次见面
+
+*****
+
+####  默默摸鱼  
+##### 14455#       发表于 2025-1-30 23:48
+
+第五集鸡团人物小结
+
+祥子：一集之内干了很多事，解散、切割、打工、继承家业但不知道在干嘛，下集难不成又要哭哭逃出家？
+睦：一个月不上学在家自闭，爸妈不管队友不理，睦人格处于挂机中无法切换账号，等待soyo吻醒？怎么预告被猫猫领走了呀？
+初华：跟soyo一样被祥子放置play中
+海玲：人机，谁都不想理
+喵梦：狠狠蹭鸡团流量走综艺路线起飞喽
+
+*****
+
+####  厚乳果珍爽  
+##### 14456#       发表于 2025-1-30 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315039&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-30 23:45</a>
+
+估计是看来这个受的启发https://bbs.saraba1st.com/2b/thread-2244032-0-1.html</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台长每次想不到好选题的时候，就上s1来找梗了是吧？
+
+*****
+
+####  岬开斗  
+##### 14457#       发表于 2025-1-30 23:48
+
+<blockquote>大户爱 发表于 2025-1-30 23:42
+还有喵梦吃瘪是一种可能。
+
+但还有一种可能是，
+
+还一种可能是喵梦大获成功，然后被成长后母鸡卡的某人【睦或 ...</blockquote>
+我还是倾向于最后精神上都要出点问题才能复团。
+
+否则睦头就太冤了。
+
+*****
+
+####  mono  
+##### 14458#       发表于 2025-1-30 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315014&amp;ptid=2208921" target="_blank">Yugao 发表于 2025-1-30 23:44</a>
+
+只能说当年遇到拿着神秘物体打电话的精神病人，里苏特可没带怕的</blockquote>
+那JK和黑帮暗杀队长不能比 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 14459#       发表于 2025-1-30 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">败家又不是问题，问题不是害人么
+
+这集后只能说，祥黑的纯度不如wsd半分
+
+*****
+
+####  莉缇娅  
+##### 14460#       发表于 2025-1-30 23:48
+
+我对这集还是有点意见的。
+
+鸡团重组真的就全靠狗团了？
+
+反正没爱音灯，祥子肯定会一直摆烂。
+
+没立系说两句，海铃这个疑似人类我都不知道怎么才会回归乐队。
+
+没soyo上门，睦头这个真精神分裂病人还真的就没人管了？？？
+
+*****
+
+####  烂片雷达  
+##### 14461#       发表于 2025-1-30 23:49
+
+看哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，神回
+整集几乎没有几句台词，却把这种压抑的氛围塑造到了极点，像是暴风雨前的宁静，凝滞的空气给我的心揪得紧紧的，祥子自我厌恶自我放弃的样子真是天可怜见，我不禁怀疑自己前几集是不是太苛责小祥了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+顺便灯箱无敌了，这种沉重巨大的感情很难相信还有其他cp敌得过<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+我宣布灯的其他所有cp和祥的其他所有cp向灯箱无条件投降<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 14462#       发表于 2025-1-30 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">右边是你吗，透子？
+
+我蝶能不能登场拯救悲伤的初华
+<img src="https://p.sda1.dev/21/2a933785a8088c9fba3665defa509c5a/Snipaste_2025-01-30_23-41-59.png" referrerpolicy="no-referrer">
+
+*****
+
+####  570898  
+##### 14463#       发表于 2025-1-30 23:49
+
+我们应该讨论的是：在编剧没活的时候是否应该放下羞耻心请求AI帮自己写剧本呢？
+
+*****
+
+####  JustW  
+##### 14464#       发表于 2025-1-30 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314958&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-30 23:39</a>
+丰川老登才是最惨的：女儿早逝、废物女婿搞掉公司小二百亿、外孙女离家出走要派人随时盯着、给外孙女失败的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能放任离家出走的未来接班人想干嘛干嘛，顶着这个身份又是干客服又是搞乐团，因为这个公司一遍遍上八卦新闻，还要出资支持乐团，莫名其妙乐团炸了还出钱帮忙善后，最后也没责骂只是说“这下学到教训了吧”就接回家供着了，这什么刀子嘴豆腐心
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14465#       发表于 2025-1-30 23:50
+
+本片乃是mygo续篇，此事在ave mujica 动画化预告最后5秒亦有记载
+
+*****
+
+####  JustW  
+##### 14466#       发表于 2025-1-30 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315045&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 23:46</a>
+她想让睦回来的核心原因是，鸡团时期睦是祥子的精神支柱，其他人都是业务伙伴，自己要做什么的时候想想睦 ...</blockquote>
+精神支柱？情绪垃圾桶罢了
+
+*****
+
+####  plok201  
+##### 14467#       发表于 2025-1-30 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315052&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-30 23:46</a>
+
+丰川老登真是个慈祥老爷爷啊，女儿孙女都不让他省心。女儿要娶亚撒西废物男入赘，忍了，出钱帮废物搞事业。 ...</blockquote>
+丰川集团的黑暗面，就是丰川老登对女儿孙女的爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14468#       发表于 2025-1-30 23:51
+
+那你要说的话，RAS成团也是靠ppp，要不是KSM她们给六花写歌，楚平方都找不到吉他手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14469#       发表于 2025-1-30 23:51
+
+后面让大喵崩溃那颗太简单了，搞了半天自己怎么努力也够不着的睦头的演技只是人家疯了，那大喵这么多努力算什么，嗷的一声跟着一起疯了算了。
+
+*****
+
+####  tiro_finale  
+##### 14470#       发表于 2025-1-30 23:51
+
+确实让deepseek来随便编13集都是稳的，架不住老登要史上最狂啊
+
+*****
+
+####  你妈的为什么  
+##### 14471#       发表于 2025-1-30 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苦来西裤，启动！
+
+*****
+
+####  iiiiiiiiii  
+##### 14472#       发表于 2025-1-30 23:51
+
+<blockquote>凉良 发表于 2025-1-30 23:44
+所以我说这演绎稀烂 祥子坏掉的表现程度不如睦头百分之一明显。</blockquote>
+我就看🦄敢不敢往抑郁症方向写，祥子自我厌恶继续加重，写到最后祥子想不开想自杀。真的是搞个乐队两个人都疯了
+
+*****
+
+####  zhzij111  
+##### 14473#       发表于 2025-1-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315055&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-1-30 23:46</a>
+
+违约金是大家付的还是祥子一人承担，一起担的话喵梦积极拆队、海玲置身事外也太蠢了，或许是违约金其实很少 ...</blockquote>
+喵梦还有啥好说的，在编剧的大手下这角色现在就是纯粹的慕强功利引流狗，黑的没边，已经没救了
+
+*****
+
+####  Fakerの幻影  
+##### 14474#       发表于 2025-1-30 23:51
+
+领班：你这客服回复怎么有气无力的，你昨天当oblivious上台演奏时候的牛劲呢
+
+*****
+
+####  YF31  
+##### 14475#       发表于 2025-1-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315023&amp;ptid=2208921" target="_blank">好想看Mujica啊 发表于 2025-1-30 23:44</a>
+
+富二代玩玩怎么了，母鸡卡还能赚点钱的，虽然估计没赔的多，kkr才是直接把钱往水里扔，也没人骂她败家啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥叫水里扔，KKR砸钱是真能带来笑容的，这牢祥砸钱除了让世界感受痛苦以外还有什么意义？
+
+*****
+
+####  厄神之息  
+##### 14476#       发表于 2025-1-30 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前还有楼友说什么“这不是mygo2是独立的mujica！幻想狗来破局的滚出克！”现在看这真是mygo2吧，就得老熟人们重拳出击啊。
+
+*****
+
+####  Yugao  
+##### 14477#       发表于 2025-1-30 23:51
+
+现在想来，从毛二力开始，月之森的精神病人是不是越来越多了，学校倾尽资源才让四个医生管住了白色奶龙，以至于第二战场没有人手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 14478#       发表于 2025-1-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315055&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-1-30 23:46</a>
+
+违约金是大家付的还是祥子一人承担，一起担的话喵梦积极拆队、海玲置身事外也太蠢了，或许是违约金其实很少 ...</blockquote>
+后一条的概率更大吧，这其实也符合祥子不谙世事和中二的人设特质，完全管不了一点刺头，被磁头狠狠整蛊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 14479#       发表于 2025-1-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315129&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 23:51</a>
+
+那你要说的话，RAS成团也是靠ppp，要不是KSM她们给六花写歌，楚平方都找不到吉他手
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+好歹ras炸团是团里自己的人发挥直观能动性的，你说是不是？
+
+鸡团，哎，别提了。
+
+*****
+
+####  0WHan0  
+##### 14480#       发表于 2025-1-30 23:52
+
+ 本帖最后由 0WHan0 于 2025-1-30 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313973&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-30 22:45</a>
+我听到有人说鸡团和狗团已经切割了</blockquote>
+一群人抱团给这一年多以来那些猜对剧情的坛友扣分可太坏了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+剧情和自己脑补的不一样，下一步就该是烂完了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  苓宁  
+##### 14481#       发表于 2025-1-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314973&amp;ptid=2208921" target="_blank">mono 发表于 2025-1-30 23:41</a>
+想不出这些神人还有什么动机要重新组团
+
+初华：只要祥子回来挖塔西</blockquote>
+说不定是灯神从让小祥幸福的角度深入思考写了一首歌激发了母鸡卡的团魂
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 14482#       发表于 2025-1-30 23:52
+
+还没看 和女人看电影去了 所以台长还能原谅武士道吗 没看是对的
+
+*****
+
+####  YF31  
+##### 14483#       发表于 2025-1-30 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315130&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-30 23:51</a>
+
+后面让大喵崩溃那颗太简单了，搞了半天自己怎么努力也够不着的睦头的演技只是人家疯了，那大喵这么多努力算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点看不起喵老师了，喵老师可是算准了大小姐过家家精准蹭到流量，炸团了钱也不用付美美上节目的，你说会疯我都想笑。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14484#       发表于 2025-1-30 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315114&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 23:50</a>
+
+能放任离家出走的未来接班人想干嘛干嘛，顶着这个身份又是干客服又是搞乐团，因为这个公司一遍遍上八卦新 ...</blockquote>
+而且这集就差直接说丰川老登让家里神秘黑衣人24/7监视祥子行动，🐘老师自以为没有退路的奋斗其实有人暗中都给你托着底呢，这事儿让🐘老师知道了她也得嗷的一下疯掉。
+
+*****
+
+####  thisisaspider  
+##### 14485#       发表于 2025-1-30 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314978&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-30 23:41</a>
+
+你要是和祥子一样有个好外公当靠山，你绝对不会活成现在这样唯唯诺诺</blockquote>
+你有个好外公，能坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gaayas  
+##### 14486#       发表于 2025-1-30 23:54
+
+还能狂吗？目前来看全要mygo救，以后鸡友看见狗友可以跪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莉缇娅  
+##### 14487#       发表于 2025-1-30 23:54
+
+所以，现在这剧情是不是有点像基拉抢了种命飞鸟的主角位的节奏？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14488#       发表于 2025-1-30 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315156&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-30 23:53</a>
+
+有点看不起喵老师了，喵老师可是算准了大小姐过家家精准蹭到流量，炸团了钱也不用付美美上节目的，你说会 ...</blockquote>
+对比大喵老师在其他方面无所不用其极的蹭热度，这集她主动回绝了经纪人的舞台剧邀请，可见鼓手美妆博主心里对演技这事儿看得多重了。
+
+*****
+
+####  wpcc  
+##### 14489#       发表于 2025-1-30 23:54
+
+<blockquote>gaayas 发表于 2025-1-30 23:54
+还能狂吗？目前来看全要mygo救，以后鸡友看见狗友可以跪了
+
+—— 来自 S1Fun</blockquote>
+给狗爷磕头了
+
+*****
+
+####  天空塔书记官  
+##### 14490#       发表于 2025-1-30 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315149&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-30 23:52</a>
+好歹ras炸团是团里自己的人发挥直观能动性的，你说是不是？
+
+鸡团，哎，别提了。 ...</blockquote>
+问题是现在A团还没成立呢，一点音乐追求都没有的五个人凑在一起能叫乐队吗
+
+别对应小猫头自爆，对应下多惠跑路后的RAS<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  未来起航  
+##### 14491#       发表于 2025-1-30 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315156&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-30 23:53</a>
+有点看不起喵老师了，喵老师可是算准了大小姐过家家精准蹭到流量，炸团了钱也不用付美美上节目的，你说会 ...</blockquote>
+直接来一个喵是丰川集团的间谍然后鸟尽弓藏。简单粗暴，包疯的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  好想看Mujica啊  
+##### 14492#       发表于 2025-1-30 23:55
+
+黑衣人人算是邦的底层逻辑了，之前两位够档次的大小姐都有，丰川家勉强也算是了
+
+*****
+
+####  aptx8285144  
+##### 14493#       发表于 2025-1-30 23:55
+
+大喵能洗好像只剩下她是孤儿院孩子出生这种路线吧，其他的洗白路线感觉差点意思
+
+*****
+
+####  柴突猛进  
+##### 14494#       发表于 2025-1-30 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315168&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 23:53</a>
+
+你有个好外公，能坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗 ...</blockquote>
+那不还是没苦硬吃，如果祥子不离家出走跟她爹一起住，一样可以用丰川集团的力量照顾她爹啊，按照外公这么宠她这么为她兜底，就算祥子暗中救济她爹肯定也是睁一只眼闭一只眼的
+
+*****
+
+####  莉缇娅  
+##### 14495#       发表于 2025-1-30 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315181&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 23:55</a>
+
+问题是现在A团还没成立呢，一点音乐追求都没有的五个人凑在一起能叫乐队吗
+
+别对应小猫头自爆，对应下多 ...</blockquote>
+a团成立了，只是解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sakatta  
+##### 14496#       发表于 2025-1-30 23:55
+
+圣爱音，灯神<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 14497#       发表于 2025-1-30 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说，狗团剧情好就是因为只写在校园里的故事，可以不牵扯到很多现实的东西，人物的很多行为都是相当感性的，最终结果也不会又多严重的后果。
+
+但是鸡团不同，是一个已经商业化了的队伍，所以人物的行为都要考虑外部的因素，因为一旦出问题，最终的结果可不是几个还在读书的高中生就能承担的，谁也承担不了。
+
+这也是这几集来带给人的异样感，也是所有观众不断的給假药的原因，因为有太多不合理的地方了。
+
