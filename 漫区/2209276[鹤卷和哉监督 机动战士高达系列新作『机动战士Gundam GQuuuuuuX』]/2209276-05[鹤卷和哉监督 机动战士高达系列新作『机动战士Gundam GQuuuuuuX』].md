@@ -2292,3 +2292,33 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 
 ☝🏼️没有人比庵野秀明（含鹤卷和哉）更尊重高达☝🏼️
 
+
+*****
+
+####  卑弥呼yamato  
+##### 6100#       发表于 2025-1-30 14:56
+
+尊重哥真把自己当尊重哥了笑死
+
+*****
+
+####  虛無迴廊  
+##### 6101#       发表于 2025-1-30 14:58
+
+榎木洋司：那我呢？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AvenueIII  
+##### 6102#       发表于 2025-1-30 15:00
+
+和梗和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 6103#       发表于 2025-1-30 15:02
+
+尊重哥怎么也开香槟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
