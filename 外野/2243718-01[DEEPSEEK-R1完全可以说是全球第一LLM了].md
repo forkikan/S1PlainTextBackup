@@ -10839,3 +10839,25 @@ Git hub和perplexity的代理我都用了，远远不行
 什么时候原版的抽风才能好 ...</blockquote>
 问题现在这货鸡贼的很，刚开头发现不对就停了
 
+
+*****
+
+####  vava  
+##### 826#       发表于 2025-1-30 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310922&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-1-30 16:50</a>
+官网炸了？要生成key显示维护网站。</blockquote>
+炸了几天了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  怀楠凌  
+##### 827#       发表于 2025-1-30 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310812&amp;ptid=2243718" target="_blank">琉璃苑軒風 发表于 2025-1-30 16:36</a>
+
+当下因为攻击，反正web和app的联网搜索都挂掉了，api我倒不知道</blockquote>
+这个联网搜索还影响知识库吗，我还以为开了r1就行<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

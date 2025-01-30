@@ -2425,3 +2425,23 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 
 终于定了，最好的情况还是分割放送吧，真怕不够看
 
+
+*****
+
+####  xwz  
+##### 6115#       发表于 2025-1-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310300&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-30 15:06</a>
+
+榎户gg负责搞好创新三人关系性（</blockquote>
+那么谁负责性关系呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNINSTALL42  
+##### 6116#       发表于 2025-1-30 17:00
+
+<blockquote>xwz 发表于 2025-1-30 16:59
+那么谁负责性关系呢？</blockquote>
+鹤卷以前说过榎户很喜欢搞性暗示之类的东西来着
+
