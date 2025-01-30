@@ -6619,3 +6619,240 @@ c part确认
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无音命题  
+##### 13960#       发表于 2025-1-30 22:16
+
+看笑了，到底要讲啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 13961#       发表于 2025-1-30 22:17
+
+爱音来了！有救了！
+
+*****
+
+####  icoywt  
+##### 13962#       发表于 2025-1-30 22:19
+
+话说灯每天开祥子柜子贴纸留言总感觉有点变态的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 13963#       发表于 2025-1-30 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我直说了，这集后评分要直奔8.X去了，好变态啊，二倍速我都看的受不了了
+
+*****
+
+####  icoywt  
+##### 13964#       发表于 2025-1-30 22:20
+
+当然我看这段是挺姨母笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灯还是在努力不放弃
+
+*****
+
+####  新HGCG  
+##### 13965#       发表于 2025-1-30 22:20
+
+伟大的爱音！
+
+*****
+
+####  Mikumiku831  
+##### 13966#       发表于 2025-1-30 22:21
+
+这集不考虑解散逻辑我觉得还挺好的
+
+
+*****
+
+####  sauron.j  
+##### 13967#       发表于 2025-1-30 22:22
+
+野猫是让吉他唱歌的契机，竟然被我猜中了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 13968#       发表于 2025-1-30 22:22
+
+我要是爱音，绝逼要跑路，这几个人爱咋咋地
+tmd半年过去又要从头再来是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 13969#       发表于 2025-1-30 22:22
+
+伟大的爱音，一个人救两个团！
+
+*****
+
+####  yone0000  
+##### 13970#       发表于 2025-1-30 22:22
+
+爱音这个广告词演的好，我建议让爱音来代言丰川集团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 13971#       发表于 2025-1-30 22:23
+
+这动画里这些都是个人么，编剧想写什么就是什么吧
+你幸福吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 13972#       发表于 2025-1-30 22:23
+
+完了 什么B玩意儿
+
+*****
+
+####  JustW  
+##### 13973#       发表于 2025-1-30 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313199&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-30 22:13</a>
+不对，睦是真的疯了，拿的是拖鞋……
+莫提斯也疯了？</blockquote>
+是芭蕾舞鞋
+
+*****
+
+####  海底铁锚  
+##### 13974#       发表于 2025-1-30 22:24
+
+Go团真变心理医生了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  呱基  
+##### 13975#       发表于 2025-1-30 22:24
+
+？？？？？？看完这集我也迷茫了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  纯白花火  
+##### 13976#       发表于 2025-1-30 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当时就说睦祥还得go团出手来救，不出所料
+
+*****
+
+####  JustW  
+##### 13977#       发表于 2025-1-30 22:24
+
+狂笑二十分钟，第五集伟大
+
+希望一周后的大伙能以比较清醒的状态看片了
+
+*****
+
+####  刑部姬真可爱  
+##### 13978#       发表于 2025-1-30 22:24
+
+这集不错但是原来墨提斯还真是杂鱼杂鱼无语了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 13979#       发表于 2025-1-30 22:25
+
+樓友們姓福嗎？
+
+只要愛音開始跟隨， 沒有人能拒絕她跟到家！
+
+*****
+
+####  不知名工具人  
+##### 13980#       发表于 2025-1-30 22:25
+
+爱音<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 13981#       发表于 2025-1-30 22:25
+
+不考虑上一集，这集还不错啊
+
+*****
+
+####  newtroll  
+##### 13982#       发表于 2025-1-30 22:25
+
+和上一期完全相反的观看体验，前三分之二我觉得它水，后三分之一我人要疯了
+
+*****
+
+####  snhz1029  
+##### 13983#       发表于 2025-1-30 22:25
+
+惊恐soyo 美味
+
+*****
+
+####  凉良  
+##### 13984#       发表于 2025-1-30 22:25
+
+楼友最好祈求别吧go团塑造带歪了
+
+*****
+
+####  xpisces  
+##### 13985#       发表于 2025-1-30 22:25
+
+没粉色奶龙这九个人可能真互相不认识
+
+*****
+
+####  iiiiiiiiii  
+##### 13986#       发表于 2025-1-30 22:25
+
+我觉得这集观感很好
+
+*****
+
+####  无音命题  
+##### 13987#       发表于 2025-1-30 22:26
+
+十个人除了爱音，憋不出一句有逻辑的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 13988#       发表于 2025-1-30 22:26
+
+どうする！長崎そよ！
+
+*****
+
+####  Huzps  
+##### 13989#       发表于 2025-1-30 22:26
+
+这一集还行啊，我感觉发展都是有迹可循的，也是漏油预料到的
+
+*****
+
+####  ykyin09  
+##### 13990#       发表于 2025-1-30 22:26
+
+下集预告里一群人围着的那两个人是谁，看发色好像睦和soyo
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

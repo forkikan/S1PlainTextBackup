@@ -1296,3 +1296,46 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  rhotov  
+##### 136#       发表于 2025-1-30 22:14
+
+日区PayPal 可以绑中国发行的JCB……吧？
+
+我注册过一个美区PayPal 可以绑定中国Visa
+
+*****
+
+####  牛奶笛  
+##### 137#       发表于 2025-1-30 22:19
+
+有没有一丝可能，下个世代能直接用支/微了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天野银次X美堂蛮  
+##### 138#       发表于 2025-1-30 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313225&amp;ptid=2244683" target="_blank">rhotov 发表于 2025-1-30 22:14</a>
+
+日区PayPal 可以绑中国发行的JCB……吧？
+
+我注册过一个美区PayPal 可以绑定中国Visa ...</blockquote>
+按照主楼的说法似乎3.25之后也不行了。。海外发行的都不行
+
+
+*****
+
+####  sunnyjee  
+##### 139#       发表于 2025-1-30 22:20
+
+<blockquote>rhotov 发表于 2025-1-30 22:14
+日区PayPal 可以绑中国发行的JCB……吧？
+
+我注册过一个美区PayPal 可以绑定中国Visa ...</blockquote>
+可以，中国发行的visa也可以绑，就是日区paypal需要日本电话号，我准备还是肉身去日本的时候便利店屯点实体点卡好了
+
