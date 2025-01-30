@@ -2748,3 +2748,20 @@ mujica大成功竟然还要打零工，太在意人设了吧（笑）
 
 墨提斯可能只是单纯想把祥子托付给初华，毕竟小莫出来的初衷是保护小睦，精神敏感纤细的小睦又经常被小祥刺伤，所以小学生思维的小莫就想让小睦离小祥远一点，把小祥托付给一个不会被她刺伤的女人可能就不会出来到处放刺了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 13574#       发表于 2025-1-30 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我不装了，我摊牌了，我一直是mygo粉啊，母鸡卡各位真不熟
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Yugao  
+##### 13575#       发表于 2025-1-30 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到处放刺，你当祥子是钢背兽
+

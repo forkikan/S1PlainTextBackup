@@ -10265,3 +10265,13 @@ staging可以用deepseek-reasoner
 当然并非发癫，而是一本正经的思维过程，最后输出一个发癫的结果，就。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">没……找到……版本不一样的缘故？高级设置里没有这项啊
 
+
+*****
+
+####  发呆的龙虾  
+##### 776#       发表于 2025-1-30 11:19
+
+dsr搞不了黄色吧，太颠了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

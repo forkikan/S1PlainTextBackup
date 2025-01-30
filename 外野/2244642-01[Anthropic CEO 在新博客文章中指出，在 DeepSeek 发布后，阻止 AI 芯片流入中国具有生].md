@@ -847,3 +847,37 @@ deepseek让任何人都能用买一辆车的钱部署一个属于自己的超级
 人脑或者说动物脑最大的优势是神经可塑性 ...</blockquote>
 硬件可塑性和软件可塑性是两码事，论硬件可塑性，谁的脑子能像pci插卡那样扩展算力？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mafise  
+##### 79#       发表于 2025-1-30 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308582&amp;ptid=2244642" target="_blank">宏. 发表于 2025-1-30 11:16</a>
+硬件可塑性和软件可塑性是两码事，论硬件可塑性，谁的脑子能像pci插卡那样扩展算力？
+
+ ...</blockquote>
+你真的懂啥叫神经可塑性 neuroplasticity吗。。要不先问问ai
+
+*****
+
+####  gammatau  
+##### 80#       发表于 2025-1-30 11:22
+
+ 本帖最后由 gammatau 于 2025-1-30 11:24 编辑 
+
+有人类一样视觉听觉等感官处理能力的AI，想靠纯语料训练出来属于发癫，肯定要物理agent。但在制造物理agent这一点上还是东大优势。
+
+如果只想要个说话能力上跟人差不多的聊天AI，那现在基本已经做出来了，老美要是觉得给每个人配一个聊天机器人就能灭鳖，那……他都这么想了，你也只能顺从他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宏.  
+##### 81#       发表于 2025-1-30 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308603&amp;ptid=2244642" target="_blank">Mafise 发表于 2025-1-30 11:19</a>
+
+你真的懂啥叫神经可塑性 neuroplasticity吗。。要不先问问ai</blockquote>
+我说了，硬件可塑性和软件可塑性是两码事，碳基生物需要靠硬件的神经可塑性实现的功能比如学会一门新的语言在硅基上压根就不需要硬件可塑性，直接用软件可塑性就可以实现，你拿神经可塑性论证人脑优越性实际上是十分可笑的，需要几百个小时的睡眠来剪枝哪里算是优越性？
+
