@@ -1763,3 +1763,87 @@ MYGO也开始工具人化了
 
 结果现在证实了大祥老师真的是闹麻了，家里是真有千亿家产等待继承。go批却急着切割mujica，这样对吗?
 
+
+*****
+
+####  池袋西柚  
+##### 200#       发表于 2025-1-31 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315870&amp;ptid=2244721" target="_blank">qweszxc9160 发表于 2025-1-31 00:50</a>
++1吧 但我比较想知道的是当初go批到处踩头的时候，不是预先贷款了mujica一定会成功的吗?
+
+动鳗高手 go批头子 ...</blockquote>
+你在岁月史书啥啊。首先狗踩头不需要拉上鸡，攻击鸡是对面话术，而狗一般的话术都是狗已经很完整了，鸡崩了也没事。
+其次先搞切割的鸡友，特别是泥潭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 201#       发表于 2025-1-31 00:57
+
++1 莫提斯小姐原来你还是替身使者啊，现在银河战舰只撑了四集就坠机了；剩下的时间里面我们还能看到一个有团魂的母鸡卡么<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 202#       发表于 2025-1-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315870&amp;ptid=2244721" target="_blank">qweszxc9160 发表于 2025-1-31 00:50</a>
+
++1吧 但我比较想知道的是当初go批到处踩头的时候，不是预先贷款了mujica一定会成功的吗?
+
+动鳗高手 go批头子 ...</blockquote>
+母鸡卡已经实质上垫给go当金水了 go赢麻了 为什么要切割
+
+你母鸡卡出问题还是go团托底 太有含金量了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厨厨  
+##### 203#       发表于 2025-1-31 00:59
+
+唉，鸡楼几个老熟人已经一星期没说过话了
+
+本来想把这群人玩切割的发言截图全拉出来挂一遍的，想了想大好日子还是不破坏心情了
+
+*****
+
+####  Seeley  
+##### 204#       发表于 2025-1-31 00:59
+
+ 本帖最后由 Seeley 于 2025-1-31 01:00 编辑 
+
+单集非常不错，流畅，除了海玲还是挂机，把其他几个人的线理的很清，但是加上上集甚至前几集，感觉爆的有点闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">+1吧
+以及go团喝茶归喝茶，anon跟灯拧绳真强吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺带喷一句，特么母鸡卡有staff啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yongze  
+##### 205#       发表于 2025-1-31 01:00
+
+ 本帖最后由 yongze 于 2025-1-31 01:01 编辑 
+
+这次不是为了乐子+2了，还好第四集就知道不能再一路狂飙爆下去了，否则越爆越难收尾。虽然祥子的烂摊子收拾的窝囊但符合现实中富二代各种原由办起的事业在搞砸后靠雄厚的家底渡过危机的情况，也没啥不好接受的。然后Mygo成员的入场开始和Avemujica关联上了也对故事带来了新的转机，起码对结局的平稳落地暂时又有了期待。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 206#       发表于 2025-1-31 01:02
+
+-2 大祥差不多得了
+
+
+*****
+
+####  zhzij111  
+##### 207#       发表于 2025-1-31 01:04
+
+塑料姐妹花，功利引流狗，丁真大金毛，重度精神病都闹麻了。哎，还是期待我们卖狗下星期的第19集吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
