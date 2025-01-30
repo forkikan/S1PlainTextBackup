@@ -797,3 +797,18 @@ Google目前我唯一觉得能用的是Google notebook LLM，但只是因为其�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  oldttt  
+##### 81#       发表于 2025-1-30 12:56
+
+google以前搞技术 现在搞意识形态 那不就是必然如此么
+
+*****
+
+####  ParadiseMartyr  
+##### 82#       发表于 2025-1-30 13:00
+
+谷歌之前不是有个alpha go吗，那个啥情况了
+

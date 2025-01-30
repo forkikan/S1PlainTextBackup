@@ -3219,3 +3219,29 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颂乐人偶要不要改成迷途人偶
 
+
+*****
+
+####  ddy2811  
+##### 13626#       发表于 2025-1-30 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309323&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-30 12:40</a>
+
+圣爱音或者灯神救场其实还好  我一直是觉得要灯来救祥的 但是祥子回去做大小姐真的太难接受了  感情高贵就 ...</blockquote>
+能大能小、能升能隐才是真龙，认清自己才能明白以后要走什么路<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13627#       发表于 2025-1-30 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309323&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-30 12:40</a>
+圣爱音或者灯神救场其实还好  我一直是觉得要灯来救祥的 但是祥子回去做大小姐真的太难接受了  感情高贵就 ...</blockquote>
+先别太着急，祥子作为A团剧情的主轴人物，人物弧光的完善可能得到临近结尾才能初步完成，而且都黑色生日了，不就可能会有“歪嘴龙王”的展开了吗，这不应该高兴?
+
+但少女乐队毕竟不是爽文，即使“黑化”最后还是得“洗白”，经典炼金术的四个阶段，黑、白、黄、红，这黑都还没黑完呢，更别提还有除地水风火外的第五元素“真正自由的以太”，这从企划和歌曲发布起做这方面分析的就不少，所以到底有啥可急的
+
+等它烂完了再喷也不迟，反正卖不出卡赚不到钱是wsd的事，放轻松<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
