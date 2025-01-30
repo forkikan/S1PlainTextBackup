@@ -11325,3 +11325,63 @@ llama.cpp项目的创始人检查了这段代码后表示“比预期的更爆�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  披头破落户  
+##### 867#       发表于 2025-1-31 00:06
+
+现在是不是彻底爆炸了，昨天晚上还能用api呢，现在登录都不行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  精钢魔像  
+##### 868#       发表于 2025-1-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315350&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-1-31 00:06</a>
+
+现在是不是彻底爆炸了，昨天晚上还能用api呢，现在登录都不行了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+网页偶尔还能用
+
+*****
+
+####  Magnificent_S  
+##### 869#       发表于 2025-1-31 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315122&amp;ptid=2243718" target="_blank">zeroboss1 发表于 2025-1-30 10:50</a>
+
+“DeepSeek甚至绕过了CUDA”，论文细节再引热议，工程师灵魂提问：英伟达护城河还在吗？
+
+华尔街见闻</blockquote>
+我的理解，不知道是否正确， 请指正：
+
+PTX也是英伟达护城河的一部分， 但是DEEPSEEK 能熟练地运用PTX 这种类汇编语言进行架构优化，说明我国有成熟先进的团队，能让非英伟达（华为）产的芯片也能胜任同等工作，甚至在不久的将来，可以构建属于国产GPU的类似”CUDA“的“护城河”？
+
+*****
+
+####  精钢魔像  
+##### 870#       发表于 2025-1-31 00:07
+
+赛博战斗一直在打，说老钟这边有15个公司参与
+
+
+*****
+
+####  feve9999  
+##### 871#       发表于 2025-1-31 00:12
+
+是不是真急就看这个了，搞这么难看真的破防了来自: iPhone客户端
+
+*****
+
+####  ShamiMo  
+##### 872#       发表于 2025-1-31 00:13
+
+这llama.cpp的pr感觉真有可能让llm左脚踩右脚上天，通过以一个具有良好推理和编程能力的llm不断自己和人为提需求让llm去编写优化代码，不敢想象
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
