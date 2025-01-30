@@ -1121,3 +1121,27 @@ LLM这条路实现AGI的可能性为零</blockquote>
 
 现实世界是3维的，咋可能用大语言模型搞agi，也许智能驾驶比那个只会输出文本的更可能成agi，人脑很一大块组织都是用来处理视觉相关的东西。
 
+
+*****
+
+####  zerona  
+##### 105#       发表于 2025-1-30 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309567&amp;ptid=2244642" target="_blank">hersi 发表于 2025-1-30 13:14</a>
+对他们来说是的，冷战之后美国大企业的利润增长速度远超冷战时期</blockquote>
+那是他们白捡了一个强权的遗产啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  和平保卫者  
+##### 106#       发表于 2025-1-30 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308427&amp;ptid=2244642" target="_blank">Alce79 发表于 2025-1-30 10:51</a>
+真能达成理想中的AGI（不需要人类了）并且有庞大的算力护城河，那所有资本都会涌入美国和硅谷资本串通一 ...</blockquote>
+agi除非能大批量生产飞机航母核武器，不然光靠专利墙谁理他啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
