@@ -692,3 +692,15 @@ FSR宫本伊织比起原版更年青
 
 CAPCOM将于北京时间2月5日早6点播出特别节目，其中前半部分约20分钟，将介绍《鬼武者 Way of the Sword》《CAPCOM格斗收藏2》《漫威VS卡普空 格斗收藏 街机经典》等新作，后半部分则会聚焦于《怪物猎人 荒野》，约15分钟。 ​​​
 
+
+*****
+
+####  moeful  
+##### 78#       发表于 2025-1-30 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927883&amp;ptid=2210366" target="_blank">kos_mos 发表于 2024-12-15 00:09</a>
+主人公声音听着是细谷配的，那就至少不是金城武那样脸模亲自配音。</blockquote>
+找个女人死一次唱一次歌
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -10360,3 +10360,34 @@ API能用了？这几天都连不上</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  vava  
+##### 786#       发表于 2025-1-30 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308662&amp;ptid=2243718" target="_blank">希德尼娅 发表于 2025-1-30 11:26</a>
+昨天碰到一亲戚坚称chatgpt比ds强，我上不了chatgpt，有没有类似的输出对比啊？ ...</blockquote>
+你找找网上那些D指导的赛博情话，没有对手
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  dazzle  
+##### 787#       发表于 2025-1-30 11:59
+
+R1跟其他的AI相比就像是刘慈欣王小波对比中年老油条公务员，同样是人，有些人你就不会想跟他聊天
+
+最近很多研究者都在反思是不是过多的安全对齐协议搞傻了AI
+
+*****
+
+####  阿刚  
+##### 788#       发表于 2025-1-30 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308770&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 11:38</a>
+
+昨天22点之后能偶尔出点，24点之后好像好很多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">重新下了那个版本也没有……不知道啥的问题，面板和原来的一样，算了就先这样吧
+

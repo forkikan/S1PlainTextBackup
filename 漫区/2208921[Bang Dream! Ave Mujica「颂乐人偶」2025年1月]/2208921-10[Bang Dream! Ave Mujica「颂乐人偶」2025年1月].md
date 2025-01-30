@@ -2825,3 +2825,44 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 现在可以宣布不能在不看mygo的前提之下看avemujica了吧，不然第五话人都不熟。
 
+
+*****
+
+####  akiomn  
+##### 13581#       发表于 2025-1-30 11:58
+
+ 本帖最后由 akiomn 于 2025-1-30 11:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，睦的状态能放着没人管的啊？
+
+算了反正第四集最后都那样了，无所谓了
+
+*****
+
+####  swessia  
+##### 13582#       发表于 2025-1-30 11:59
+
+ 本帖最后由 swessia 于 2025-1-30 12:00 编辑 
+
+母鸡卡到现在有哪集时间线没跳的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我劝大活不要再在意时间线了
+
+另外打死我没想到素睦会变成我现在稍微认可的睦的一个cp的一天，母鸡卡各位还是太拟人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿卡拉兰斯  
+##### 13583#       发表于 2025-1-30 12:01
+
+糟了，怎么感觉剧透看完和看完了一整集一样
+提前感觉第四集结尾就看你能不能接受，能接受后面的就能接受，不能接受也没得给你接受了(什么废话文学)
+
+
+*****
+
+####  阿兹尔  
+##### 13584#       发表于 2025-1-30 12:06
+
+龟龟，这剧透，场外观众最期待cp要成真了吗？
+
