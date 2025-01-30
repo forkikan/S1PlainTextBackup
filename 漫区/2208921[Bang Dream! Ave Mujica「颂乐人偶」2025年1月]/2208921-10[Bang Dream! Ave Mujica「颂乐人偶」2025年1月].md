@@ -2571,3 +2571,13 @@ pareo实际干的事可比莫提斯可怕多了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少实锤了小莫在车里和初华讲那些是主观故意害她
 
+
+*****
+
+####  JustW  
+##### 13555#       发表于 2025-1-30 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307718&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-30 07:24</a>
+至少实锤了小莫在车里和初华讲那些是主观故意害她</blockquote>
+这看那句话读不出主观害初华吧，只是mortis的唯一目的就是帮睦维持母鸡卡的存在，所以利用初华的心理罢了
+
