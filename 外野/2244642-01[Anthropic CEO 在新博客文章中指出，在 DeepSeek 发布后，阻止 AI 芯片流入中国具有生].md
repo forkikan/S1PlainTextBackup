@@ -1082,3 +1082,14 @@ LLM这条路实现AGI的可能性为零</blockquote>
 
 然后3.5son一个中型模型只花了不到一亿美元，所以真憋着3.5oous和4.0son呢，还是撞墙了？
 
+
+*****
+
+####  hersi  
+##### 101#       发表于 2025-1-30 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308035&amp;ptid=2244642" target="_blank">天青色的西风 发表于 2025-1-30 09:42</a>
+
+就算你说的技术、芯片的内容都对，单级世界就一定比双极世界好吗？</blockquote>
+对他们来说是的，冷战之后美国大企业的利润增长速度远超冷战时期
+

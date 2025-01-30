@@ -3245,3 +3245,23 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 13628#       发表于 2025-1-30 13:06
+
+之前做前辈团炸团集锦的那位up说的没错，A团本质还是C团的延续，现在A团爆的原因很大一部分就是曾经被“春日影”所掩盖的部分，要想真正和解，必然会有mygo的参与，而且过了第七集，可能才会深入描写A团成员之间的内部矛盾
+
+其实像mygo这样基本是内部问题自己解决的情况很少见，老团之间的相互联系也比迷子入坑的新人所想的更加紧密，不提现在真正坐上ban位的hhw，老团的故事展开都不是一两个团的事，这点看看五周年动画或者PICO就会明白了，让迷子和A团切割从根本上就是不合理的，况且这两个本就是孪生企划，就更不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  金属化反射装甲  
+##### 13629#       发表于 2025-1-30 13:12
+
+看这意思是要前半部分给祥子充电，后半部分再让她去拉团魂解决问题？这四集炸的一地能拼好不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
