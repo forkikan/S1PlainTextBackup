@@ -1273,3 +1273,30 @@ AGi是能解决所有问题 ...</blockquote>
 
 2、3年之后只需重新定义agi即可
 
+
+*****
+
+####  listenermy  
+##### 120#       发表于 2025-1-30 18:30
+
+<blockquote>mimighost 发表于 2025-1-30 07:42
+赞同
+
+我觉得基本下一个o系列的版本就是所谓的agi了，已经没有benchmark可以供他刷了 ...</blockquote>
+希望你重仓的英伟达股票没有赔钱吧
+
+
+*****
+
+####  haibara  
+##### 121#       发表于 2025-1-30 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310532&amp;ptid=2244642" target="_blank">fw3ii9 发表于 2025-1-30 15:46</a>
+
+agi变不出钢铁，也变不出炮弹。
+
+agi就算能实现自我迭代、实现科研全自动，成果落地还是大规模制造。
+
+硅谷精 ...</blockquote>
+AGI在美国能做的就是开发个比WIN11还烂的屎山，毕竟可以全自动写代码，感觉比阿三还不靠谱
+
