@@ -12913,3 +12913,221 @@ y1s1，日本那种综艺通告艺人其实也算不上什么好差事</blockquo
 
 史上最狂=打破祖制的八人樂隊
 
+
+*****
+
+####  一心而用  
+##### 14616#       发表于 2025-1-31 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315052&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-30 23:46</a>
+丰川老登真是个慈祥老爷爷啊，女儿孙女都不让他省心。女儿要娶亚撒西废物男入赘，忍了，出钱帮废物搞事业。 ...</blockquote>
+<img src="https://p.sda1.dev/21/b1f07b3c4c6bf83dc35e3d2a1ea23b8c/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kenganmian| + 1|欢乐多|
+| 厚乳果珍爽| + 1||
+
+查看全部评分
+
+*****
+
+####  Lyzers  
+##### 14617#       发表于 2025-1-31 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315530&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 00:18</a>
+
+我开始真的有点受不了剧情一旦遇上丰川祥子就要变得非常刻意人为操控的感觉，五集了，祥子的所有处理不好的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然确实有别的地方在合理化大祥老师，但那肯定不包括s1母鸡卡专楼
+
+*****
+
+####  Eubel  
+##### 14618#       发表于 2025-1-31 00:26
+
+感觉都在敲打祥子2333333。
+
+节目里提到喵姆去了无人岛，所以她这么在意初华？这方面还没什么回收吧？
+
+*****
+
+####  Devola  
+##### 14619#       发表于 2025-1-31 00:27
+
+大象布尔乔亚是独一档的
+小布尔乔亚再怎么呻吟也望尘莫及<img src="https://p.sda1.dev/21/31a3217606f17f14ccda72cf6dc953b8/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 14620#       发表于 2025-1-31 00:27
+
+编剧和演出非常用心非常严肃地去描写角色的精神问题——虽然是当成二次元时尚单品在描写
+
+*****
+
+####  FanFun  
+##### 14621#       发表于 2025-1-31 00:27
+
+自己事业一帆风顺的时候，莫名其妙碰上高阶次元的大手处处拷打自己，是我我也自闭<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makesense  
+##### 14622#       发表于 2025-1-31 00:28
+
+感觉越来越不妙了啊，可以的吧，能相信的吧，能收回来的吧，独角兽老师<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 14623#       发表于 2025-1-31 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315613&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 00:25</a>
+
+再怎么也比热度走下坡路的美妆博主强吧，不过喵梦肯定是要吃瘪了</blockquote>
+有条线索是喵梦多而不精，后续可能会在这里吃亏，然后正视自己打鼓才能。也符合音乐主题。
+
+*****
+
+####  天空塔书记官  
+##### 14624#       发表于 2025-1-31 00:28
+
+反正我觉得老登的定位可能不会太正面
+
+现在就吹什么绝世好外公还是太早了
+
+牢爹这颗雷可是还没爆呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kirimori  
+##### 14625#       发表于 2025-1-31 00:29
+
+这集开始清雷了，看着像是下集奶一口祥睦，方便之后几集给剩下三个人爆
+
+*****
+
+####  古明地雷  
+##### 14626#       发表于 2025-1-31 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315578&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-31 00:22</a>
+能去顾着别人说明脊梁骨还有没碎完的部分，真要这么拍只会继续延长拷打祥子的集数，现阶段就是要把祥子打 ...</blockquote>
+萎也可以是对睦的问题无能为力后再彻底萎啊。做不到不要紧，去做才是关键。母鸡卡的事，木头是她唯一要负的责，一个必要的责。现在观感太差了
+
+*****
+
+####  厉飞雨  
+##### 14627#       发表于 2025-1-31 00:29
+
+我觉得可以组个轮换制乐队，吉他贝斯分主力阵容跟轮换阵容两套，核心灯祥，鼓手由于灯在鼓在无须轮换。
+
+*****
+
+####  JustW  
+##### 14628#       发表于 2025-1-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315647&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 00:28</a>
+反正我觉得老登的定位可能不会太正面
+
+现在就吹什么绝世好外公还是太早了</blockquote>
+要是真能把外公写成反派也算是邦系列突破了，毕竟之前各种长辈前期扮演恶役后期包饺子的次数已经数不过来了
+
+*****
+
+####  saintsimpler  
+##### 14629#       发表于 2025-1-31 00:30
+
+祥子纯fw来的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  takerest  
+##### 14630#       发表于 2025-1-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315576&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 00:21</a>
+
+其他的可以她偏执，高傲，不懂人心造成的。
+
+但和离家出走一点关系都没有。家庭出问题了，无论你到大，都 ...</blockquote>
+所以大祥老师在emo了一个天降青梅，弄疯了一个青梅后，到底拯救了什么？第一集就和自己要拯救的父亲切割，第五集和乐队切割，这呈现出来的效果客观来讲就是很难评啊，大祥老师到底承担了什么责任？反倒是丰川集团真的担起了五个人的未来（指交违约金）。你越找补越显得大祥老师幽默好吗？大祥老师只能说勇气可嘉，但从剧里剧外都难称正面典型，现实中碰到酗酒的家庭我都是劝小孩向民政局或妇联求助，这根本不是小孩该承担的责任ok?话已至此，不多说了。
+
+*****
+
+####  mono  
+##### 14631#       发表于 2025-1-31 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315418&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 00:11</a>
+
+想到祥子看到纸条破防后还要从书包里掏出笔写几个字放回去之后再出门坐车就难绷 ...</blockquote>
+再想想祥子看了一个月纸条 每天都破防一次 还要把纸条拿走处理掉
+
+更绷不住了 
+
+
+*****
+
+####  莉缇娅  
+##### 14632#       发表于 2025-1-31 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315628&amp;ptid=2208921" target="_blank">Devola 发表于 2025-1-31 00:27</a>
+
+大象布尔乔亚是独一档的
+
+小布尔乔亚再怎么呻吟也望尘莫及</blockquote>
+可是祥子是资产阶级啊
+
+看错了
+
+*****
+
+####  siansian  
+##### 14633#       发表于 2025-1-31 00:34
+
+狗团那几个良家女还是别瞎搀和鸡团的事，那天这几个神人再把你狗团也炸了就老实了
+
+*****
+
+####  一心而用  
+##### 14634#       发表于 2025-1-31 00:35
+
+虽然我也不知道是哪一款迈巴赫
+<img src="https://p.sda1.dev/21/265b0f90806721e1f37aa679cc87bb93/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f9b46eae0e1cef33b452ec26cc540945/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 14635#       发表于 2025-1-31 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这故事还不够一团乱麻吗还想着写姥爷
+
+*****
+
+####  swessia  
+##### 14636#       发表于 2025-1-31 00:35
+
+对母鸡卡众人无话可说
+
+祥子不想骂她，毕竟最后还要靠她拉睦，你自己调整去吧
+
+另外三人全员编剧笔下伪人，自己一边去吧
+
+睦啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">你终究还是疯了，唯一好消息是下集mygo的几个人终于来关爱下坏掉的小黄瓜了
+
+第七集一定是mygo七人的live吧，别jb先把另外仨伪人拉进来恶心我
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

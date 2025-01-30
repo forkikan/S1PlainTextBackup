@@ -11422,3 +11422,42 @@ ptx大概类似x86汇编masm编译器里的宏，能方便点，但还是和硬�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  希望之花  
+##### 876#       发表于 2025-1-31 00:27
+
+下午遇到个问题问gpt半天没个能用的方案，问gs得到的方案能成功编译<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+编译成功提交后喝口茶想问下为啥是这样结果就崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  名居守  
+##### 877#       发表于 2025-1-31 00:29
+
+手机端算是寄了
+反正十几分钟前连对话都发不出去了
+上传文件都提示失败
+
+
+*****
+
+####  newtroll  
+##### 878#       发表于 2025-1-31 00:32
+
+大棋一点来说，ds现在的普及程度远没有深入到影响社会经济运转的地步，所以大可把这次当作一个宝贵的网络对抗应急演练机会
+
+*****
+
+####  zerona  
+##### 879#       发表于 2025-1-31 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315592&amp;ptid=2243718" target="_blank">铃森冬 发表于 2025-1-31 00:23</a>
+
+西大画的 AGI 大饼的故事里很重要一环就是这个，赌大模型智能程度超过一定阈值之后就能滚雪球加速研究快 ...</blockquote>
+他们就觉得自我迭代的agi不会直接灭了他们？
+
