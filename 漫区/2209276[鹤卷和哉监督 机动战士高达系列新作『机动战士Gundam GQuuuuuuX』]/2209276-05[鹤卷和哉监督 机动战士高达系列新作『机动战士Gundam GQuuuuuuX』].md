@@ -2515,3 +2515,17 @@ NTV对G9这么有信心吗？</blockquote>
 
 而之前年初的时候就吹风ntv有个新档，现在来看就是给gqx准备的
 
+
+*****
+
+####  王留美  
+##### 6124#       发表于 2025-1-30 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310207&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-30 14:48</a>
+ “新高达很尊重我”</blockquote>
+看完了
+果然是大陆特产敢达姨姥
+和霓虹正阳旗遗老不在一条线上
+
+后面对0085部分的吹捧看起来没什么问题，但是没看出来为什么踩水魔前三集吹G9(相当于)前三集(的部分)
+

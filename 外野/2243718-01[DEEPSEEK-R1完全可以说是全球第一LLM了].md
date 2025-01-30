@@ -11035,3 +11035,14 @@ https://azure.microsoft.com/en-us/blog/d ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  newtroll  
+##### 845#       发表于 2025-1-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311453&amp;ptid=2243718" target="_blank">Lorraine_Kinney 发表于 2025-1-30 18:14</a>
+
+最近公众号抽风给我推了个行将就木的老登，李未熟，批斗不懂的野鸡学校教授在那锐评ds，蒸馏估计是29号当天 ...</blockquote>
+D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图
+

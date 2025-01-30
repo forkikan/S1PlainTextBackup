@@ -5637,3 +5637,209 @@ https://tieba.baidu.com/p/9452961966?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JustW  
+##### 13862#       发表于 2025-1-30 19:46
+
+ 本帖最后由 JustW 于 2025-1-30 19:47 编辑 
+
+睦应该不会最后才复活吧，否则整一季就是睦被虐了三集死了+Mortis演八九集，而且其它队员还等着炸呢，睦本体真的不需要见证吗（Mortis辛辛苦苦演了大半季结果被睦摘了桃子意难平.jpg
+
+*****
+
+####  磷叶石~  
+##### 13863#       发表于 2025-1-30 19:47
+
+不过有祥在，鸡应该不至于变成蝶那样，但剩下三个什么情况真的不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 13864#       发表于 2025-1-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311809&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-30 19:04</a>
+
+双重人格这设定挺变态的，非要加上去干嘛，加了还只弄出个不小心把团玩炸的莫提斯，如果只为了和祥子爆了甚 ...</blockquote>
+最主要是双重人格这种设定很土，感觉不如带土<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13865#       发表于 2025-1-30 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312085&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-30 19:44</a>
+
+睦的问题估计要到最后解决。</blockquote>
+祥子破防的鞭子有三个 乐队理念不合 木头人精神死亡 爹废物 
+
+木头死亡的理由有三个 原生家庭变态 对于真人出镜恐惧 祥子努力的快死了我也必须撑下去 
+
+大猫炸团理由有三个 我要火速变现 我是家人侠团友去他妈（存疑）我不陪大小姐过家家（信息差）
+
+初华 不明 破防预定
+
+海玲 不明 挂机中
+
+武士道真能写吗
+
+*****
+
+####  天空塔书记官  
+##### 13866#       发表于 2025-1-30 19:49
+
+现在是吃包子一口下去全是面的状态，真要看成色怎样，也得见到陷了再说，甚至这包子到底有多大观众也还不知道呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 13867#       发表于 2025-1-30 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311923&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 19:22</a>
+
+我也觉得是真的，不如说很震惊前三集那么多脑内剧场了，还有很多人觉得是在演 ...</blockquote>
+而且二次元双重人格怎么不好收场了？最后二合一和解的非常非常多。
+
+实在不行可以看一看暴太郎战队怎么处理的。
+
+
+*****
+
+####  磷叶石~  
+##### 13868#       发表于 2025-1-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312117&amp;ptid=2208921" target="_blank">septer 发表于 2025-1-30 19:48</a>
+
+最主要是双重人格这种设定很土，感觉不如带土</blockquote>
+这个就是为了保人气，因为让睦自己来风评肯定会降，双重人格方便甩锅又是时尚单品，厨子又吃这套，但代价是整个企划帮它买单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 13869#       发表于 2025-1-30 19:51
+
+爱祥素墨对谈会是两团关系性的新篇章吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13870#       发表于 2025-1-30 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312133&amp;ptid=2208921" target="_blank">磷叶石~ 发表于 2025-1-30 19:51</a>
+
+这个就是为了保人气，因为让睦自己来风评肯定会降，双重人格方便甩锅又是时尚单品，厨子又吃这套，但代价 ...</blockquote>
+大猫的命也是命啊
+
+*****
+
+####  杂灰  
+##### 13871#       发表于 2025-1-30 19:52
+
+ 本帖最后由 杂灰 于 2025-1-30 19:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312029&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:37</a>
+我只能说就目前的人物塑造来讲 假设队长是祥子 讲祥子组件合理的鸡团，那么首先要解决的问题是吧这三个神 ...</blockquote>
+爱音最多也就控一下祥子跟灯对谈，她跟鸡团其他四个人基本上根不认识没差，滑坡到爱音大手有个屁的逻辑。
+让灯启发祥子重拾白祥时期的一些优点那也是祥子自己原本就有的东西，而真正决定这些品质对队伍是否有价值的是之后的剧情她能不能用这些东西做出有效的行动
+睦头精神问题反而是需要演奏来解决的，只要祥子能做到给她个用吉他弹奏出心声的舞台，饺子随便包，老莫时不时出来下也不是什么事，人现在出来了日子过得比以前还好，不知道的还以为母鸡卡神医再世治好了若叶家女儿的社交障碍症呢。海铃现在纯摆子，怎么扭转她的态度让她也会真正为母鸡卡考虑才是难题。大喵这种随时变友军，她又不是在意乐队这个形式，只要队伍能符合她追求她就没什么意见
+而接下来重组母鸡卡已经不是考虑成员是否合理的问题了，要让祥子塑造起来，那她该做的是承担起这个不合理的队伍，因为这是她自己拉的队伍，也是自己的过错。
+狗+鸡现在17集的祥子内容连起来就可以发现逃避自己犯下的错就是祥子至今一贯的人设，她能克服自己这个问题的话塑造就足够挽回一大部分了
+
+*****
+
+####  thisisaspider  
+##### 13872#       发表于 2025-1-30 19:52
+
+莫小姐占的篇幅实际上不会挤占睦的塑造。 类似情强哥整部剧被玩弄，最后认同了士力架就是自己的本心，蹲牢赎罪也是一种写法。
+
+想写可以写，就担心写不好对角色厨伤害比较大。
+
+像之前up分析莫作为boss位是最好的写法，就是第四集实际杂鱼。有种我还没发力呢，boss就倒下了。确实不如不写。
+
+*****
+
+####  JustW  
+##### 13873#       发表于 2025-1-30 19:52
+
+喵梦：其实功利炸团的我也不是我，真正的我是勤奋练鼓爱家人的我（
+
+*****
+
+####  江口夕  
+##### 13874#       发表于 2025-1-30 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311910&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 19:18</a>
+灯现在精神面就比现在的祥子强大啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那得爱音没事，爱音什么时候也来个二重人格，你也得抑郁
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 13875#       发表于 2025-1-30 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312122&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-30 19:49</a>
+而且二次元双重人格怎么不好收场了？最后二合一和解的非常非常多。
+
+实在不行可以看一看暴太郎战队怎么处 ...</blockquote>
+那敏鬼的水平也不是一般编剧能赶上的，当然老害能整的烂活也非常逆天就是了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  SakuraのOrigami  
+##### 13876#       发表于 2025-1-30 19:54
+
+3个地区的木棉花封面都是同一个镜头（预告片里初华面对采访的镜头）
+这么能藏吗（）
+
+*****
+
+####  wpcc  
+##### 13877#       发表于 2025-1-30 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312143&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 19:52</a>
+
+爱音最多也就控一下祥子跟灯对谈，她跟鸡团其他四个人基本上根不认识没差，滑坡到爱音大手有个屁的逻辑。 ...</blockquote>
+在鸡团祥子犯得唯一的错误就是拉这四个人搞乐队。
+
+她把乐队当家是必然存在的。
+
+因为召唤白祥就必须解决清告的问题 否则祥子是无家可归的
+
+如果武士道把清告剧情从之后的剧情删除那么我认为武士道是不想要逻辑了。
+
+*****
+
+####  akiomn  
+##### 13878#       发表于 2025-1-30 19:55
+
+睦问题留不到最后，舅舅之前钦定过最后是初华，而不管场内还是场外都明示了初华藏了个大的，百分百最后boss了
+
+*****
+
+####  miro112233  
+##### 13879#       发表于 2025-1-30 19:55
+
+今天甚至手游里前几周都有的预告图也撤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 13880#       发表于 2025-1-30 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312150&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-30 19:53</a>
+
+那得爱音没事，爱音什么时候也来个二重人格，你也得抑郁
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
+以乐队少女番来说灯完成了成长，确实比祥强。团魂也是力量之一。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">什么战力厨
+
