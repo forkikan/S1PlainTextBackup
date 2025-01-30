@@ -704,3 +704,16 @@ CAPCOM将于北京时间2月5日早6点播出特别节目，其中前半部分�
 
 —— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  センコウ  
+##### 79#       发表于 2025-1-30 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66927883&amp;ptid=2210366" target="_blank">kos_mos 发表于 2024-12-15 00:09</a>
+
+主人公声音听着是细谷配的，那就至少不是金城武那样脸模亲自配音。</blockquote>
+脸模这事情CAPCOM光是在鬼武者上吃亏太多了
+
+前段时间鬼武者3甚至连双主角脸全换掉了
+

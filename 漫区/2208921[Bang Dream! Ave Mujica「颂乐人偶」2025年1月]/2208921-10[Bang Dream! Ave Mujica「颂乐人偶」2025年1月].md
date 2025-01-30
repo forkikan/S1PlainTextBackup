@@ -3349,3 +3349,15 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 13638#       发表于 2025-1-30 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">现在问题不是大猫那诡异的逻辑把人设弄烂了么，给大猫找补才是紧要的，这也就是我为什么说大猫演给她找补。
+大祥反而是合理的那边。就算回去和老头谈也不能怎么样。不如说虽然出来自立，成年人是脱离不了家庭关系的，何况明面上并不是老头把祥爸逐出去，而且祥爸自己自暴自弃。
+继承家业也分好几种，自己做出成绩的一般来说问题不大，哪怕用到家族关系。还是要看本人怎么想。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
