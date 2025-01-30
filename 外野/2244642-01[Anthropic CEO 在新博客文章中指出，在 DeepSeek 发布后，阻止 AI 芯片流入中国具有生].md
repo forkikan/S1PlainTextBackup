@@ -1145,3 +1145,17 @@ agi除非能大批量生产飞机航母核武器，不然光靠专利墙谁理�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  魔法师lain  
+##### 107#       发表于 2025-1-30 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307786&amp;ptid=2244642" target="_blank">Alce79 发表于 2025-1-30 07:59</a>
+他们要的agi可比阿尔法狗要离谱得多，首先机器全自动、忠诚僚机全自动、科研全自动
+
+AGi是能解决所有问题 ...</blockquote>
+原来agi是这个，今天第一次听这名词，不过这概念之前也有想过。不过即使这ai已经准备好了，要落实到实际工业生产中，这时间也不止10年吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
