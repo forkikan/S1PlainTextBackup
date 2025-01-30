@@ -1404,3 +1404,17 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  魔法师lain  
+##### 147#       发表于 2025-1-30 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313225&amp;ptid=2244683" target="_blank">rhotov 发表于 2025-1-30 22:14</a>
+日区PayPal 可以绑中国发行的JCB……吧？
+
+我注册过一个美区PayPal 可以绑定中国Visa ...</blockquote>
+估计没问题，日服paypal用了很多年了，解决了很多类似问题。商户应该无法知道paypal下的卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

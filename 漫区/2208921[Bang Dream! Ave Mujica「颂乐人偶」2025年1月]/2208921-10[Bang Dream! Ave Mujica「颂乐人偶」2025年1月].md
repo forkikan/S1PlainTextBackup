@@ -11757,3 +11757,504 @@ a团成立了，只是解散了<img src="https://static.saraba1st.com/image/smil
 
 这也是这几集来带给人的异样感，也是所有观众不断的給假药的原因，因为有太多不合理的地方了。
 
+
+*****
+
+####  aptx8285144  
+##### 14498#       发表于 2025-1-30 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315173&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-1-30 23:54</a>
+
+所以，现在这剧情是不是有点像基拉抢了种命飞鸟的主角位的节奏？</blockquote>
+起码明眼人看出，编辑们对灯的爱远胜过祥子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  victorws  
+##### 14499#       发表于 2025-1-30 23:56
+
+这集观感很不错啊，各方面来说算是开播以来最舒服的一集
+
+*****
+
+####  风道北来  
+##### 14500#       发表于 2025-1-30 23:56
+
+以拷打大祥作为贯穿狗鸡的主轴我是完全没有意见的。狗鸡都是祥子的间接与直接产物，这相当于祥子是隐藏的第一女主。
+
+我不认可白祥黑祥那一套，祥子就是轻度NPD，完全不是一些粉丝想象的被命运折磨的英雄。把她拷打至破防，让她重新反思自己的人格特质，实现超越与成长，这种表现人物特质的手法我觉得不赖，毕竟二刺猿很少有这种角色。
+
+但实现这一切的前提是围绕在她周边的都是正常人才能衬出主角的特别。现在是若叶睦突发精神病一事让观众发现原来在座的各位都是人格障碍。这就显得对祥子的拷打非常多余。刘昴星都知道做海鲜要用山珍来衬托啊。
+
+*****
+
+####  杂灰  
+##### 14501#       发表于 2025-1-30 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315126&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 23:50</a>
+
+精神支柱？情绪垃圾桶罢了</blockquote>
+那也是精神支柱啊，正常来说有个私底下能包容自己释放情绪的人更好维持精神状态，毕竟新吉翁总帅也干了，更别说十几岁勾k
+
+*****
+
+####  dc5281  
+##### 14502#       发表于 2025-1-30 23:56
+
+mygo一季都在铺垫祥子性格和为人处事的一体两面性，遭遇变故后缺陷的一面放大
+
+而编剧显然是否定祥子的很多做法的
+
+到了母鸡卡前四集刻意的回旋镖，第五集祥子这个状态挺好理解的，虽然很难同情
+
+*****
+
+####  zhigui  
+##### 14503#       发表于 2025-1-30 23:56
+
+这集最搞笑的还是大喵老师还觉得木头是演技天赋怪
+
+大喵老师觉得木头在充分发挥她的演技天赋
+
+实际上木头已经走了有一会儿了
+
+*****
+
+####  takerest  
+##### 14504#       发表于 2025-1-30 23:57
+
+<blockquote>thisisaspider 发表于 2025-1-30 23:53
+你有个好外公，能坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗 ...</blockquote>
+你都有个好外公了，你还要坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗？你放心不下父亲，你向外公求情送父亲去强制戒酒呀。以上这些是一个十几岁的小姑娘该干的事吗？
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14505#       发表于 2025-1-30 23:57
+
+这集隔壁morfonica的透子出现了你楼连提一嘴的人都没有，希望这一季多来点老团互动吧。
+
+*****
+
+####  skylah  
+##### 14506#       发表于 2025-1-30 23:57
+
+有一说一祥p心里门清初华暗恋她吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想不到有人会对一个收留自己、宁愿干两团也愿意和自己组乐队、乐队解散后还有售后的幼驯染留张纸条后直接失联
+但凡没箭头根本不可能拉得回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 14507#       发表于 2025-1-30 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315113&amp;ptid=2208921" target="_blank">570898 发表于 2025-1-30 23:49</a>
+我们应该讨论的是：在编剧没活的时候是否应该放下羞耻心请求AI帮自己写剧本呢？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算是真用AI填词，编剧也不能说，真会丢饭碗吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Fakerの幻影  
+##### 14508#       发表于 2025-1-30 23:57
+
+还是回到我们女女关系舒适区好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斑驳的阴影  
+##### 14509#       发表于 2025-1-30 23:57
+
+当初谁说这是新系列动画来着，怎么还得狗团的女人们出手相救啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 14510#       发表于 2025-1-30 23:57
+
+说到底还是靠丰川家的大手才有人给资源光速武道馆、全国巡演，本来就是幻梦一场
+
+*****
+
+####  莉缇娅  
+##### 14511#       发表于 2025-1-30 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315203&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-30 23:56</a>
+
+起码明眼人看出，编辑们对灯的爱远胜过祥子</blockquote>
+真飞祥（不是）
+
+*****
+
+####  Yugao  
+##### 14512#       发表于 2025-1-30 23:58
+
+我不知道丰川爷爷是干什么的
+但是他坐的将军同款
+我不敢想了
+
+*****
+
+####  不应  
+##### 14513#       发表于 2025-1-30 23:58
+
+wsd把ykn，楚平方和马希罗三个人的缺点全安在一个角色身上了，她还是主角，无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 14514#       发表于 2025-1-30 23:58
+
+回头一想祥子这么垃还是睦 初华 素世 灯的白月光，真是人形魅魔
+
+*****
+
+####  天空塔书记官  
+##### 14515#       发表于 2025-1-30 23:58
+
+说到底还是商业化的壳子太唬人了，不过这种反差确实很能引流就是了，不过代价是需要后边上工时补回世界观，估计这也在wsd的计划之内<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 14516#       发表于 2025-1-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314744&amp;ptid=2208921" target="_blank">xwr 发表于 2025-1-30 23:26</a>
+
+我看现在都对接好了，圣爱音话聊祥子，soyo救睦，立希找海玲谈谈，初华喵梦给个什么契机再回来，A团街头堂 ...</blockquote>
+问题不是第6话能不能救回来，而是第6话救回来肯定是虚假的，想一想MyGO第6话发生了什么
+
+第7话几乎可以肯定再来一个春日影<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">）
+
+*****
+
+####  莉缇娅  
+##### 14517#       发表于 2025-1-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315222&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-30 23:57</a>
+
+这集隔壁morfonica的透子出现了你楼连提一嘴的人都没有，希望这一季多来点老团互动吧。 ...</blockquote>
+透子的镜头比粉色奶龙在卡片战斗先导者里逛街还短，确实没有必要提<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 14518#       发表于 2025-1-30 23:58
+
+查了一下，感觉祥子抑郁症快发作了
+
+<img src="https://img.saraba1st.com/forum/202501/30/235843qryma7y8kvrhlryk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250130_235557_com.UCMobile.jpg</strong> (177.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-30 23:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/235843n6tp8f88mzj5gcdd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250130_235607_com.UCMobile.jpg</strong> (159.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-30 23:58 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/235843v811kue8eclcuqjc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250130_235420_tv.danmaku.bili.jpg</strong> (112.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-30 23:58 上传
+
+*****
+
+####  zhigui  
+##### 14519#       发表于 2025-1-30 23:59
+
+白月光祥子确实是完美的，这还真没法反驳
+
+但是白月光祥子已经死了，现在站着的是被当年糕的我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 14520#       发表于 2025-1-30 23:59
+
+<img src="https://img.nga.178.com/attachments/mon_202501/30/-9lddQ1a1-fmrjK1eT1kSgp-fd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 14521#       发表于 2025-1-31 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315222&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-30 23:57</a>
+
+这集隔壁morfonica的透子出现了你楼连提一嘴的人都没有，希望这一季多来点老团互动吧。 ...</blockquote>
+就出现一个镜头，台词也没有，不像上一集的layer，也没啥能提的啊
+
+*****
+
+####  huxiaopao163  
+##### 14522#       发表于 2025-1-31 00:00
+
+睦要找的医生就是要乐奈啊
+
+*****
+
+####  天空塔书记官  
+##### 14523#       发表于 2025-1-31 00:00
+
+搞创新的代价啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 14524#       发表于 2025-1-31 00:00
+
+讲道理从武道馆前被扔罐子那一刻起就该做好前几集剧情都会不断羞辱丰川祥子这个人的准备了
+
+*****
+
+####  thisisaspider  
+##### 14525#       发表于 2025-1-31 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315220&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-30 23:57</a>
+
+你都有个好外公了，你还要坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗？你放心不下父亲，你向外 ...</blockquote>
+现在来了，外公就是不肯拉回父亲。后面是不是一哭二闹三上吊。
+
+*****
+
+####  kauking  
+##### 14526#       发表于 2025-1-31 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315222&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-30 23:57</a>
+
+这集隔壁morfonica的透子出现了你楼连提一嘴的人都没有，希望这一季多来点老团互动吧。 ...</blockquote>
+真没注意啊， 在第几分钟？
+
+*****
+
+####  zhzij111  
+##### 14527#       发表于 2025-1-31 00:00
+
+牢莫才是真抑郁想自杀了，都玩过家家找医生治自己了，把小睦弄醒她不就似了，真没想到精神分裂出的第二人格还能抑郁的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  tsoulgain  
+##### 14528#       发表于 2025-1-31 00:01
+
+<img src="https://p.sda1.dev/21/7a0dd3d7549f1e4ff5e234800a65eef5/image.jpg" referrerpolicy="no-referrer">
+
+摇不醒木头人就换猫是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  澜灰-  
+##### 14529#       发表于 2025-1-31 00:01
+
+想了想还是有点难过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对一个有意思的故事的期待的落空
+只能说调整心态了，之后希望整点好活能提振下<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 14530#       发表于 2025-1-31 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315216&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-30 23:56</a>
+这集最搞笑的还是大喵老师还觉得木头是演技天赋怪
+
+大喵老师觉得木头在充分发挥她的演技天赋
+
+实际上木头已经 ...</blockquote>
+我是真不懂编剧为什么会觉得睦在舞台上断片这个事能把喵梦打击的自知没有天赋甚至要放弃演戏梦，一开始不知道实情也就罢了，都知道实情了还能纠结好几集？？那要是哪天看到祥爹酗酒后在大街上猝死一头栽倒在地上，喵梦岂不是更要自愧不如五体投地。
+
+*****
+
+####  mono  
+##### 14531#       发表于 2025-1-31 00:01
+
+为什么透子会和sumimi同台拍照  morfonica是商业乐队吗？
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14532#       发表于 2025-1-31 00:02
+
+这集🐘最大黑点不还是对第一个答应她组队无微不至关心她还给她住所的三角女士（几乎是）不告而别吗？自己身边舔狗多了不起是吧。
+
+*****
+
+####  pzk  
+##### 14533#       发表于 2025-1-31 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315247&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-30 23:58</a>
+查了一下，感觉祥子抑郁症快发作了</blockquote>
+肯定玉玉啊，她这集都已经心死木僵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Asukalangley33  
+##### 14534#       发表于 2025-1-31 00:02
+
+目测下集剧情
+
+mortis偶遇街头表演的乐奈，表示要跟她学吉他
+
+软糯小祥继续在学校被灯和爱音堵
+
+最后搞笑艺人SOYO在ring被mortis吓到二度跪下
+
+*****
+
+####  thisisaspider  
+##### 14535#       发表于 2025-1-31 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315190&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-30 23:55</a>
+
+那不还是没苦硬吃，如果祥子不离家出走跟她爹一起住，一样可以用丰川集团的力量照顾她爹啊，按照外公这么 ...</blockquote>
+还是一样啊，外公就是死心要把爹逐出家门。你跪下来求吗？玩得过老登吗。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14536#       发表于 2025-1-31 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315272&amp;ptid=2208921" target="_blank">kauking 发表于 2025-1-31 00:00</a>
+
+真没注意啊， 在第几分钟？</blockquote>
+A PART sumimi拍照片那段，弹幕有提示，
+
+*****
+
+####  四顾  
+##### 14537#       发表于 2025-1-31 00:03
+
+ 本帖最后由 四顾 于 2025-1-31 00:04 编辑 
+
+《BD!Ave Mujica》作为作品现在的问题就是前作编剧在《BD!MyGo》里埋了太多坑，欠了太多债，结果自己展开的时候根本没有多少独立空间可言，为了反衬Ave Mujica作为乐队的空虚限制成员的发挥能动，只放大他们不稳定、被动的一面，把积极的“行动力”“治愈力”都留给前作人物。这些问题当然早在《BD!MyGo》里就有端倪，无论是睦和素世的“不欢而散”，还是她对祥子单方面的迁就，亦或是祥子的不透明，只是那时还不足以把新作看成《BD!MyGo2》。
+
+所以为了让之前搁置的“[CRYCHIC](https://mzh.moegirl.org.cn/CRYCHIC)”关系发展，就限制Ave Mujica内部关系直接发生才如此让人意外，相当于借了新年的柴烧去年的火，把灶硬是空一块地留着（C团的事大家都知道没完，可没想着是和A团同步“一起完”）。不容忽视的是，Ave Mujica里角色的确有在成长、冲突，但为了和前作“对齐”，她们只能是偏颇的发展、活动然后被叫暂停，Ave Mujica的不顺也从正常团体会有的磕磕绊绊成了注定祭品的宿命钦点。
+
+由此，所谓的“关系性”就成了“构架性”，角色关系不仅仅他们间的关系，以及他们关系之间的关系同时发生，还有了一个前定指标分配，决定次序比重。要说剧情编排都免不了这般大局设想，只是具体实现效果如此生硬、不协调，才让观众失望。
+
+就像此前有的观众总把喵梦对演技的执着看作是“侦探潜力”，且不说个人演技是否必然能辨别他人演技和真异常（现实的案例也没法作直接参考），这至少是寻求新团有机化的期待，但到目前开始，他们之间的误会、无意推搡也没从崩团进一步发展，作为同样轻率的“庶民角色”和爱音对比就会觉得反常。好像喵梦的个性全在为崩团服务，她因为太功利所以没法功利，因为太追求“职业化”所以没法职业化...这样自限的矛盾性格当然也有合理之处，只是有拒有追和爱音不同，她只能朝一个方向发力，让崩团从“偶然中的必然”呈现为“必然的必然”。与之相比，睦的“病变”反而是其中相对最自然，和此前受压抑的人格接轨最融洽的发展了。
+
+接下来的发展，只能看“暂停”结束后是否会有活力再分配的环节，哪怕一定要从灯她们开始也好，能顺势激活、容纳Ave Mujica团员完整的个性。
+
+*****
+
+####  天空塔书记官  
+##### 14538#       发表于 2025-1-31 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315292&amp;ptid=2208921" target="_blank">mono 发表于 2025-1-31 00:01</a>
+为什么透子会和sumimi同台拍照  morfonica是商业乐队吗？</blockquote>
+透子本身就是明星网红，她自带流量的，和蝶团没关系<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Chenlh  
+##### 14539#       发表于 2025-1-31 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314962&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-30 23:40</a>
+
+比起这些，黑的无以附加，不知道怎么洗白，后面还要被包饺子的瞄梦更可怕，而且我感觉第四话家里打电话那 ...</blockquote>
+我感觉喵梦的饺子路线估计是这样：以为睦是装的，所以丝毫不在乎，意识到睦真有病，终于脑子转到摘面具的那一刻。
+
+但我觉得这么写能把人设回撤回来难度还是有点高
+
+*****
+
+####  ntrntr1  
+##### 14540#       发表于 2025-1-31 00:03
+
+<blockquote>FanFun 发表于 2025-1-30 23:46
+违约金是大家付的还是祥子一人承担，一起担的话喵梦积极拆队、海玲置身事外也太蠢了，或许是违约金其实很少 ...</blockquote>
+现实的来看，场馆退票之类的违约金是经纪团队付，成员的违约金是付给经纪公司的，具体比例看合同，一般娱乐圈公司比较精，成员违约金一般都很高。
+
+但祥子是大小姐拉人，可能成员合同就要了一点点违约金，或者对自己特别自信给的承诺想走就走反正外面都没我们m团好。
+
+祥子爷爷应该是把经纪公司那部分和祥子个人的违约金都付了。
+
+*****
+
+####  JustW  
+##### 14541#       发表于 2025-1-31 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315292&amp;ptid=2208921" target="_blank">mono 发表于 2025-1-31 00:01</a>
+为什么透子会和sumimi同台拍照  morfonica是商业乐队吗？</blockquote>
+透子在搞乐队前就已经是行走于潮流前线自己设计服装的网络红人了
+
+*****
+
+####  kuroniko1  
+##### 14542#       发表于 2025-1-31 00:04
+
+<blockquote>takerest 发表于 2025-1-30 23:57
+你都有个好外公了，你还要坚持打工一年，照顾酗酒的父亲，断绝社交，坚持练琴吗？你放心不下父亲，你向外 ...</blockquote>
+祥子现阶段这个人就是这样的，没台阶下是不会认错，别把自己代入进去。
+
+*****
+
+####  盐盐盐盐盐  
+##### 14543#       发表于 2025-1-31 00:04
+
+我倒感觉可能6-7集把睦和祥子治好了，然后后半段是8-9喵梦海铃，同时初华隐雷爆炸，最后四打一战初华（
+
+初华实在是和其他四个太不一样了，海铃冷漠，喵梦的最终目的是当艺人赚钱，但是海铃可以通过立希点，喵梦也明显受睦的才能影响，这些都摆台面上了，只有初华还在藏，她和祥子之外的人完全断绝了
+
+*****
+
+####  aptx8285144  
+##### 14544#       发表于 2025-1-31 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315228&amp;ptid=2208921" target="_blank">斑驳的阴影 发表于 2025-1-30 23:57</a>
+
+当初谁说这是新系列动画来着，怎么还得狗团的女人们出手相救啊</blockquote>
+因为官方那张宣传图里面没有go团的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 14545#       发表于 2025-1-31 00:05
+
+现在想想商业化设定估计是独角兽觉得都要搞假面乐队了，还在live house有点不够格因此强加的设定<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OkaJu  
+##### 14546#       发表于 2025-1-31 00:05
+
+go第三话灯被白祥误会她要天桥飞人把她扑倒，怕不是🐔这边又要来个对位，大🐘老师真玉玉症爆发准备天桥飞人时被灯给救下
+感觉🦄这帮人干得出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  柴突猛进  
+##### 14547#       发表于 2025-1-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315300&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 00:02</a>
+
+还是一样啊，外公就是死心要把爹逐出家门。你跪下来求吗？玩得过老登吗。 ...</blockquote>
+逐出家门哪又怎么了呢？你一定要硬刚外公干嘛呢，祥爹就是做错了事情然后付出了代价，祥子能做的不就是尽力而为让父亲振作起来么，那祥子离家出走打工照顾父亲就可以，用丰川集团的力量照顾父亲就不行？难道外公还会因为祥子偷偷照顾她爹然后把祥子零花钱生活费全断了？
+

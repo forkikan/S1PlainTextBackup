@@ -11313,3 +11313,15 @@ llama.cpp项目的创始人检查了这段代码后表示“比预期的更爆�
 
 ​
 
+
+*****
+
+####  moeblack  
+##### 866#         楼主| 发表于 2025-1-31 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312526&amp;ptid=2243718" target="_blank">gh1023 发表于 2025-1-30 20:50</a>
+这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？ ...</blockquote>
+这种事情想搞定得靠龙组物理黑客
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
