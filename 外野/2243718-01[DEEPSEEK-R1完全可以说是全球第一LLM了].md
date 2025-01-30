@@ -10778,3 +10778,17 @@ Git hub和perplexity的代理我都用了，远远不行
 请问为什么我的deepseek的知识截止日期就到2023年10月，是因为联网搜索不行了吗 ...</blockquote>
 当下因为攻击，反正web和app的联网搜索都挂掉了，api我倒不知道
 
+
+*****
+
+####  moeblack  
+##### 821#         楼主| 发表于 2025-1-30 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310809&amp;ptid=2243718" target="_blank">zeroboss1 发表于 2025-1-30 16:36</a>
+连环拳来了
+
+微软接入加本土小厂商</blockquote>
+皮衣黄能不能给50系降个价<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -569,3 +569,36 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 发放到日亚的账户页面里</blockquote>
 好的好的👌🏻，那感觉没多大影响
 
+
+*****
+
+####  lion_or_judas  
+##### 62#       发表于 2025-1-30 16:36
+
+日亚买eshop点卡要日本地址吗？我之前随便乱填了一个日本地址好像也买不了，appstore日区点卡没这个问题
+
+
+*****
+
+####  oi99o  
+##### 63#         楼主| 发表于 2025-1-30 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310808&amp;ptid=2244683" target="_blank">lion_or_judas 发表于 2025-1-30 16:36</a>
+
+日亚买eshop点卡要日本地址吗？我之前随便乱填了一个日本地址好像也买不了，appstore日区点卡没这个问题 ...</blockquote>
+如果你说请求先地址的话，我填国内的都可以
+
+*****
+
+####  dforce  
+##### 64#       发表于 2025-1-30 16:42
+
+很符合日企作风<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 65#       发表于 2025-1-30 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">淘宝点卡不影响吧
+

@@ -4034,3 +4034,96 @@ MyGO在这方面可以说非常大胆，它用了13话里的10话去铺垫一场
 
 那么重新定下目标是怎样的大家来发散性想一想。
 
+
+*****
+
+####  南宮凝香  
+##### 13708#       发表于 2025-1-30 16:36
+
+<blockquote>盐盐盐盐盐 发表于 2025-1-30 16:23
+虽然go叙事节奏更舒适情感烘托更好，但是am场外炒作热度已经赢麻了赚到钱就是成功，吵争议片未必比做小众好 ...</blockquote>
+雞能這樣搞也離不開先靠狗深耕
+
+沒鋪墊直接上前四話的覺得也會爆，
+
+爆死
+
+*****
+
+####  Aloereed  
+##### 13709#       发表于 2025-1-30 16:37
+
+完了，又要哭哭了吗小哭包<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 13710#       发表于 2025-1-30 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310548&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 15:49</a>
+
+我不觉得祥子回老家继承家产重新出发有什么问题。按喵梦的说法，家世也是才能能用就要都用上。这点如果反映 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢祥继承家产之后的风评基本上可以跟那个贷款150万做独立游戏爆炸，完了家里兜底的那个小孩差不多了。
+
+制作组写了一个遭的难全是没苦硬吃的主角我都不知道想表达什么，是人就该扔掉爹呢还是人不该有心气呢。
+
+*****
+
+####  Mr.Giraffe  
+##### 13711#       发表于 2025-1-30 16:38
+
+生哭立拔<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skylah  
+##### 13712#       发表于 2025-1-30 16:39
+
+又一个舅舅看哭了
+
+*****
+
+####  山ノ内花音  
+##### 13713#       发表于 2025-1-30 16:39
+
+蓝毛锤地哭
+
+*****
+
+####  YF31  
+##### 13714#       发表于 2025-1-30 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅哭的共时性。
+
+*****
+
+####  天空塔书记官  
+##### 13715#       发表于 2025-1-30 16:41
+
+感觉不如粉毛捶地哭带感(
+
+要不黄毛也行(
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 13716#       发表于 2025-1-30 16:43
+
+<blockquote>天空塔书记官 发表于 2025-1-30 16:22
+大家之前一直都过于关注武道馆和巡演了，其实这不过是大小姐们的背后势力给她们准备的游乐场所而已，所以随 ...</blockquote>
+问题是在前四集你甚至感受不到编剧对少女和音乐的执着。真写少女有必要让喵梦和初华人设给现有的剧情让步吗。我对现有的剧情理解就是围绕祥睦在转，其他或多或少工具人了。
+
+*****
+
+####  ads147147  
+##### 13717#       发表于 2025-1-30 16:45
+
+小祥痛哭总会让我想起章鱼哥痛哭，可能是那个我恨你们所有人入脑了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
