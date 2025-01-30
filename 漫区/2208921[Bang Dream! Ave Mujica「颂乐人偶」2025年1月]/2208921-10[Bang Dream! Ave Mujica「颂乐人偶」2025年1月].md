@@ -3190,3 +3190,32 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 祥子要暂时加入mygo了嘛，正好再加个键盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  afsd109  
+##### 13623#       发表于 2025-1-30 12:44
+
+而且图透应该就是第6话的预告，说明第五集大祥老师还是要被拷打一集，然后第六话再被🐶团推一把，第七话银河战舰再次集结唱歌，后面应该就是别的事再爆一次了。
+
+*****
+
+####  影伴光生  
+##### 13624#       发表于 2025-1-30 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309338&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-30 12:42</a>
+后世评价mujica动画
+会不会是欲扬先抑抑了六集 
+导致直接被送走了的典型</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能会成为各集评分差异最大的系列作品？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  KLHgg  
+##### 13625#       发表于 2025-1-30 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颂乐人偶要不要改成迷途人偶
+

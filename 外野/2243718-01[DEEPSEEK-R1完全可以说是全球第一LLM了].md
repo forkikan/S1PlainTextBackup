@@ -10439,3 +10439,21 @@ R1跟其他的AI相比就像是刘慈欣王小波对比中年老油条公务员�
 —— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">酒馆人物卡破甲方便一点……
 
+
+*****
+
+####  jqrs  
+##### 793#       发表于 2025-1-30 12:49
+
+deepseek深度思考和联网不能同时开吗
+
+
+*****
+
+####  下九流3  
+##### 794#       发表于 2025-1-30 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309397&amp;ptid=2243718" target="_blank">jqrs 发表于 2025-1-30 12:49</a>
+deepseek深度思考和联网不能同时开吗</blockquote>
+这贴里回复说可以。
+
