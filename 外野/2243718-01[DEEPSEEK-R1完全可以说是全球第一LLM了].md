@@ -10252,3 +10252,16 @@ gpt，小克，gemini的聊天都用过，之前看人评论也很认可，就�
 酒馆更新了？</blockquote>
 staging可以用deepseek-reasoner
 
+
+*****
+
+####  阿刚  
+##### 775#       发表于 2025-1-30 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308414&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 10:48</a>
+
+酒馆AI响应配置里有个展示思维链
+
+当然并非发癫，而是一本正经的思维过程，最后输出一个发癫的结果，就。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">没……找到……版本不一样的缘故？高级设置里没有这项啊
+
