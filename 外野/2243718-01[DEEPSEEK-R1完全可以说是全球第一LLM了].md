@@ -10457,3 +10457,22 @@ deepseek深度思考和联网不能同时开吗
 deepseek深度思考和联网不能同时开吗</blockquote>
 这贴里回复说可以。
 
+
+*****
+
+####  vava  
+##### 795#       发表于 2025-1-30 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309294&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-30 12:36</a>
+我服了，这下是我分不清了到底是这玩意太癫了还是我那个穿甲弹劲儿太大把什么东西打坏了 ...</blockquote>
+就是这么颠，仿佛多个时间线的脑子在某一点同时涌动重叠
+
+*****
+
+####  vava  
+##### 796#       发表于 2025-1-30 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309397&amp;ptid=2243718" target="_blank">jqrs 发表于 2025-1-30 12:49</a>
+deepseek深度思考和联网不能同时开吗</blockquote>
+本来是可以的，被ddos以后关闭了
+

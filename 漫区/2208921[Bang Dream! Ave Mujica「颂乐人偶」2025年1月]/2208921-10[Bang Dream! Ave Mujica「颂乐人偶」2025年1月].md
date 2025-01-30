@@ -3265,3 +3265,26 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 看这意思是要前半部分给祥子充电，后半部分再让她去拉团魂解决问题？这四集炸的一地能拼好不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 13630#       发表于 2025-1-30 13:18
+
+ 本帖最后由 cxj649 于 2025-1-30 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309520&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 13:06</a>
+
+之前做前辈团炸团集锦的那位up说的没错，A团本质还是C团的延续，现在A团爆的原因很大一部分就是曾经被“春 ...</blockquote>
+说无关的，一些党争作品的党争观众很多时候喜欢把故事角色的人际关系完全切割，很多党争假药的赢家的人际状态非常逆天的，推演来说低头不见抬头见的人际关系变得非常猎奇
+
+简单的说就是党争假药的赢家很多时候是个柳如烟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 13631#       发表于 2025-1-30 13:21
+
+@AveMujica
+
+楼主快来管管，把剧透和聊剧透的楼层先置顶，再举报了，不敢细看网页拉得有点快，好像是从13577L开始的
+
