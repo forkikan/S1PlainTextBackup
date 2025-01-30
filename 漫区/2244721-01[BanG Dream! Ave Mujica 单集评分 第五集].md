@@ -2212,3 +2212,17 @@ go批大脑也升级了?
 
 -2
 
+
+*****
+
+####  yozoraxsx  
+##### 244#       发表于 2025-1-31 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315949&amp;ptid=2244721" target="_blank">厨厨 发表于 2025-1-31 00:59</a>
+唉，鸡楼几个老熟人已经一星期没说过话了
+
+本来想把这群人玩切割的发言截图全拉出来挂一遍的，想了想大好日 ...</blockquote>
+看样子可以回去刷专楼了，被那几个熟面孔祥厨追着扣了34鹅
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
