@@ -11065,3 +11065,24 @@ D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图
 
 360那个高速线路，现在改名叫满血deepseek了，还是和本体有差距
 
+
+*****
+
+####  moeblack  
+##### 848#         楼主| 发表于 2025-1-30 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312273&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-1-30 20:11</a>
+
+360那个高速线路，现在改名叫满血deepseek了，还是和本体有差距</blockquote>
+鉴定为红衣大炮<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moeblack  
+##### 849#         楼主| 发表于 2025-1-30 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312134&amp;ptid=2243718" target="_blank">newtroll 发表于 2025-1-30 19:51</a>
+
+D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">D指导这个幽默风格没在其他任何模型上见过，说套壳的老登都让人怀疑是GPT扮演的（笑
+

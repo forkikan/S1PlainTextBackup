@@ -1196,3 +1196,11 @@ appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半
 
 日本人有钱不赚是出了名了，有的演唱会搞线上直播，但是购买平台限制日本ip日本电话号码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是无本万利的事情，海外想送钱都不收
 
+
+*****
+
+####  gohouruni  
+##### 126#       发表于 2025-1-30 20:17
+
+2025新游戏里除了异度神剑X，还有啥是值得任亏券买的？
+
