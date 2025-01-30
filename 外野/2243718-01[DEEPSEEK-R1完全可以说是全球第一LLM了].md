@@ -10985,3 +10985,31 @@ DeepSeek R1 现已在 Azure AI Foundry 和 GitHub 的模型目录中上线，加
 啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。</blockquote>
 我说的是第三方中转网站，这类网站会提供各种大语言模型的中转接口给用户使用
 
+
+*****
+
+####  hysjmr  
+##### 840#       发表于 2025-1-30 18:18
+
+用APP与D指导交流，感觉到了一股挤在班里最受欢迎的同学身边，拼尽全力插不进话的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一句话发10遍才会有回应
+
+
+*****
+
+####  lilisipis  
+##### 841#       发表于 2025-1-30 18:19
+
+有没有deepseek的套皮应用，本家被DDOS到用不了
+
+
+*****
+
+####  andychen  
+##### 842#       发表于 2025-1-30 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311222&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-30 17:42</a>
+DeepSeek R1 is now available on Azure AI Foundry and GitHub
+
+https://azure.microsoft.com/en-us/blog/d ...</blockquote>
+套皮二道贩子要大量出现了
+

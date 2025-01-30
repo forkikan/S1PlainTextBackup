@@ -4614,3 +4614,76 @@ VOICE Febri杂志AveMujica部分
 
 日本人写女同片 不管当初家庭矛盾有多大 最后都是要尽孝和报恩的
 
+
+*****
+
+####  helloo23  
+##### 13762#       发表于 2025-1-30 18:20
+
+回忆起了不好的事情<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13763#       发表于 2025-1-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311444&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-30 18:13</a>
+牢爹都丢易拉罐了，还写伐木累不太行吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+是冲着门框丢的，不能算肢体暴力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  梅斯之围  
+##### 13764#       发表于 2025-1-30 18:20
+
+为什么渡濑要说睦和她妈妈是“平等竞争”的关系，这需要睦拥有不亚于母亲的表演天赋，才会让她妈这么想吧。在莫提斯出来之前真的有表现过出表演天赋吗？
+
+按第3集的内容，好像睦什么都不用做，光靠父母的光环就能收获夸奖。既然睦妈视女儿为竞争对手，为什么还纵容媒体借用自己的名号来抬高睦的名气。这算是睦妈打压捧杀女儿的一种手段吗。搞不懂睦父母对睦的期望是什么。这条线也不知道要怎么收。
+
+*****
+
+####  YF31  
+##### 13765#       发表于 2025-1-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311451&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-30 18:14</a>
+
+日本人写女同片 不管当初家庭矛盾有多大 最后都是要尽孝和报恩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">请轻浮金毛主唱不要开除几原邦彦日本国籍。
+
+*****
+
+####  烂片雷达  
+##### 13766#       发表于 2025-1-30 18:21
+
+邦多利的老爹待遇就没有不好的
+更何况母鸡卡和卖狗显然对照了初代的的ros和ppp，那谁还说过为了将母鸡卡的风格和ros区分开才设定的小剧场
+参照ykn的设定，我早就认定祥子是十五年未有之大孝女了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 13767#       发表于 2025-1-30 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311415&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 18:10</a>
+
+其实要是真这么写也没啥问题，大不了商战一转家庭伦理剧嘛，此事在星战宇宙亦有记载，长辈和小辈之间又不会 ...</blockquote>
+写家庭伦理剧这点就麻烦怎么融合或突出团魂来写。写五个人反叛各自家庭吗？还是全砍了就写祥睦。真能体现团魂吗。甚至不如写对抗资本好展开。
+
+我对mujica发展担心的只有一点，在前面让角色塑造为剧情让路了。后面要写什么？没看出来。
+
+举例就是把素世单亲家庭的回忆砍了，写她对c团的执着。
+
+
+*****
+
+####  山ノ内花音  
+##### 13768#       发表于 2025-1-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311497&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-30 18:20</a>
+请轻浮金毛主唱不要开除几原邦彦日本国籍。</blockquote>
+柿本哥哥的思维哪能比得上这种老艺术家
+

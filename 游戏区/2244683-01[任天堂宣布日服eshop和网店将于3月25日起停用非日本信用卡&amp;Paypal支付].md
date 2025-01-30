@@ -1002,3 +1002,30 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  oi99o  
+##### 106#         楼主| 发表于 2025-1-30 18:22
+
+草，被日亚锁号了，这么搞笑的吗
+
+<img src="https://img.saraba1st.com/forum/202501/30/182205kvvm06ooxnv8kmop.png" referrerpolicy="no-referrer">
+
+<strong>img_5095.png</strong> (684.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 18:22 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zid99825  
+##### 107#       发表于 2025-1-30 18:27
+
+日亚突然开始买数字商品是容易锁的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
