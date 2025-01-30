@@ -1232,3 +1232,31 @@ appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半
 由手机上传
 2025-1-30 21:06 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 129#       发表于 2025-1-30 21:39
+
+傻X，有病。
+
+*****
+
+####  Antidote丶  
+##### 130#       发表于 2025-1-30 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311801&amp;ptid=2244683" target="_blank">lion_or_judas 发表于 2025-1-30 19:03</a>
+appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半天才解锁，之后就是日亚老老实实买点卡，可 ...</blockquote>
+我前段才在日服ibook买了书，正常应该是不会有问题的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Antidote丶  
+##### 131#       发表于 2025-1-30 21:42
+
+我一般买实体游戏倒还好，但jcb都不能用的话dlc只能买点卡了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
