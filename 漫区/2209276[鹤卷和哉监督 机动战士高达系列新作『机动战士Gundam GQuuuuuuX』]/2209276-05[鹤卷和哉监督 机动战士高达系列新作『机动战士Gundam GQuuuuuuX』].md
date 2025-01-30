@@ -2821,3 +2821,18 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 我觉得万代和日升现在根本没有把非UC系作品系列化的打算，出点小说漫画什么的顶天了，动画续作没可能
 
+
+*****
+
+####  猫兔同笼  
+##### 6146#       发表于 2025-1-31 01:56
+
+想到在光头的新作会议上，几个月前还在吹孤独摇滚这几个天就变成扯GQuX的安田朗，聊这俩个话题哪个会让光头的脸更黑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  积木23ki  
+##### 6147#       发表于 2025-1-31 02:00
+
+把目前公开的影像都看了，歌也听了，真的很期待<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

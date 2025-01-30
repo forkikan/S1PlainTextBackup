@@ -533,3 +533,243 @@ mygo13集灯给祥子递的诗长什么样真的很好奇
 
 而且祥子当时也没说什么音乐性表演性的路线之分，她只说了想让睦回来，已经不是在解决问题的状态了
 
+
+*****
+
+####  椎名mahuyo  
+##### 14844#       发表于 2025-1-31 01:58
+
+这话结尾这情况，按这几集塑造，很难想象下话祥子会给爱灯个好脸。
+不过还是挺同意现在这经纪公司就是tgw实际操纵让祥子瞎搞自己乐队的，不然很多情况太弱智了。
+
+—— 来自 realme RMX3708, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  古明地雷  
+##### 14845#       发表于 2025-1-31 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316461&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-31 01:51</a>
+有啥不好说的，走钢丝的时候确实都想拉住对方，但是这不乐队一解散两人就从钢丝上掉下去了吗 ...</blockquote>
+我就是觉得，她对谁冷脸都不该对明确被自己伤害搞出精神问题的睦这样。上集结尾还想让睦回来，这集不管了给人的感觉就像想要的是吉他工具人而不是睦。
+
+*****
+
+####  北条早苗  
+##### 14846#       发表于 2025-1-31 01:58
+
+其实第5集已经是鸡动画里情绪流最自然的一集了，引发这么大争议主要还是坐实了第4集最后酒馆那段伪人表演就是闹麻了
+
+*****
+
+####  thisisaspider  
+##### 14847#       发表于 2025-1-31 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316415&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 01:44</a>
+
+关于大祥一个月对睦头不管不顾这个事其实不用太纠结，此事在卖狗里也有记载，哭来兮苦在解散1年间的时间线 ...</blockquote>
+然而C团炸了，静止一年的锅可以全给祥子。但现在鸡团队友都跑不掉呢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这里要不祥子全背了。反正一定有祥。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 14848#       发表于 2025-1-31 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316460&amp;ptid=2208921" target="_blank">hol_effect 发表于 2025-1-31 01:51</a>
+
+小陀螺上一集都直接用手挡小莫来保护自己了，可能真被吓出PTSD了</blockquote>
+别说十几年的青梅竹马，换你平常沉默寡言的同事突然性情大变，在某天晚上两个人对谈，对面给你说一堆人格分裂什么的最讨厌你什么的，还一边笑一边靠近你，换谁谁不挡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 14849#       发表于 2025-1-31 01:59
+
+ 本帖最后由 huxiaopao163 于 2025-1-31 02:00 编辑 
+
+话说下集是不是要责怪mygo众人为什么不把小睦送医院
+
+猫猫，你为什么只是教她弹吉他，而不把她送医院呢，你也有责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 14850#       发表于 2025-1-31 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316438&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 01:48</a>
+没打算塑造任何人格魅力，这样的女主角真的存在吗木箱钦定的“明明在走钢丝却想拉对方”前几集确实是真的 ...</blockquote>
+基本就是这样写的，祥子虽然是鸡主角，但更优先处理的是她在狗时期犯下的错，必须狠狠拷打把她过去行为的性质彻底曝光给所有人，不然就无法开始审判这个人
+至于木箱，现在是都摔下去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 14851#       发表于 2025-1-31 02:00
+
+<blockquote>椎名mahuyo 发表于 2025-1-31 01:58
+这话结尾这情况，按这几集塑造，很难想象下话祥子会给爱灯个好脸。
+
+不过还是挺同意现在这经纪公司就是tgw实 ...</blockquote>
+我的建议是降低预期，先质疑再质疑。
+
+当你觉得太弱智的时候，可能比你想的还弱智。
+
+*****
+
+####  thisisaspider  
+##### 14852#       发表于 2025-1-31 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316455&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-31 01:50</a>
+
+祥子的脖子</blockquote>
+黑衣人血C好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没一个是人的大人世界，黑衣人居然这么通情达理（
+
+
+*****
+
+####  刑部姬真可爱  
+##### 14853#       发表于 2025-1-31 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316508&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 01:58</a>
+
+我就是觉得，她对谁冷脸都不该对明确被自己伤害搞出精神问题的睦这样。上集结尾还想让睦回来，这集不管了 ...</blockquote>
+只能说性格有问题，但是人设没崩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大师莫急  
+##### 14854#       发表于 2025-1-31 02:02
+
+没有经历过社会主义改造导致的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sauron.j  
+##### 14855#       发表于 2025-1-31 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316438&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 01:48</a>
+
+没打算塑造任何人格魅力，这样的女主角真的存在吗木箱钦定的“明明在走钢丝却想拉对方”前几集确实是真的 ...</blockquote>
+借用别处的发言：你不能要求一具尸体去关心另一具尸体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 14856#       发表于 2025-1-31 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316467&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-31 01:52</a>
+
+海玲初华不都在想办法吗，大莫老师当精神病的话就不算票，大喵老师要的是个解决方案，如果大祥老师选了的 ...</blockquote>
+代打方案不是被若麦否了吗？她可能觉得睦就是在闹别扭吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/31/020217rcrirz6ve6e4uejm.jpg" referrerpolicy="no-referrer">
+
+<strong>否认代打.jpg</strong> (62.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 02:02 上传
+
+*****
+
+####  厚乳果珍爽  
+##### 14857#       发表于 2025-1-31 02:03
+
+<img src="https://img.saraba1st.com/forum/202501/31/020324n5iyzzffllofxgix.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250131015638.png</strong> (379.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 02:03 上传
+
+台长睿频。
+
+*****
+
+####  帆前  
+##### 14858#       发表于 2025-1-31 02:04
+
+时间来到了第5集，mujica终于迎来了它的第一个过渡回，但车速慢下来不代表讨论度降了。
+
+没想到剧本并不肯回避祥子身上的尴尬之处，团队管理失败，青梅小睦坏掉，艺术追求被否定，一边独自养活父亲一边追求艺术的理想也失败了，就连独立的梦想也已屈服。
+<img src="https://p.sda1.dev/21/cc609948a0859a76fd51b844525d8ae0/Screenshot_20250130_221256_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+真是不留情面的剧本，祥子的自尊心被剥夺了，凭借音乐完成旧时的梦想，那种梦幻的向往，破碎了一地，她的心里也许一直有那个想向母亲献上演出的孩子。
+<img src="https://p.sda1.dev/21/09bf26eae20895335a117323cdc9eda5/Screenshot_20250131_003148_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+她身上流淌着财团祖上的冷酷之血，可是母亲倔强的温情之血还是冲淡了它，让她有了追求艺术的幻梦，却又最终混入了父亲的怯懦。
+<img src="https://p.sda1.dev/21/b7777b002c7c144291433ed48f078805/Screenshot_20250131_003128_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+一个人如果逃避过一次，再逃避起来就不困难了；一个人如果逃避了两次，再振作起来就难了。
+<img src="https://p.sda1.dev/21/9cc0a128f2531792ef259485247f9b6a/Screenshot_20250131_003243_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+祥子对crychic的逃避，在mujica的失败，都是始于浪漫，败在人心。她是一个过于理想主义的小孩子。
+
+对这个人不必去想她的出身，现代想追梦但失败最终跌回家中的人也不止是她这种家世的人，只是家境允许她捅出更大的亏空罢了。
+
+我国古代也有“好家世”的忧郁诗人，人类向往浪漫的梦，然后失败，这种事不少见，艺术家的苦闷本就殊途同归。“家家争唱饮水词，纳兰心事有谁知”。只要艺术上能留下细腻的贡献，也就无所谓家世能不能代入了。一般来说，搞艺术搞出很高思想性的，本来就少得很。
+
+祥子的尴尬之处是她的艺术主张还没建功，现实就不允许她继续尝试，她只能回去面对依赖家世的自己了。纳兰容若至少还可以自得清词的一角是自己创出来的。这纯文学的成本就是比搞商业文艺低啊。
+<img src="https://p.sda1.dev/21/e4fab42511f70806d53f4fa56ebaac9f/Screenshot_20250131_003956_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+我本来以为这个便签场景会是这季灯祥最高光的打法，本季最强情感名场面来着，结果在祥子屈服的时候用掉了。好吧试着找回初心这也是一种灯祥，就是少了一点灰头土脸也要咬牙奋战的魄力，更像是回到青春期少女的故事了。
+<img src="https://p.sda1.dev/21/788094a9d581db28d8f5b8a118b34015/Screenshot_20250130_222252_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+个人私心是想看到更震撼人心的绝地再起的，英雄就是正视生活的现实哪怕尴尬无比也要继续直面口牙。
+
+爱音截胡祥子这点算是有点没浪费上季的群像的意思，小灯也是忠于激情的人，不过比起乐队能不能加人，我更好奇祥子会是会乖乖行mygo第十集事的人吗？我总觉得祥子不会像soyo一样轻易接受，那soyo心是真的软啊。
+<img src="https://p.sda1.dev/21/3bb7a8a7129ce0619ecb07ce84c5df84/IMG_20250130_222827.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 14859#       发表于 2025-1-31 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316513&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 01:59</a>
+
+话说下集是不是要责怪mygo众人为什么不把小睦送医院
+
+猫猫，你为什么只是教她弹吉他，而不把她送医院呢，你 ...</blockquote>
+有一说一确实，一直在纠结送医院这件事的话那估计下集狗团也跑不了背锅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 14860#       发表于 2025-1-31 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316497&amp;ptid=2208921" target="_blank">不知道大佐 发表于 2025-1-31 01:57</a>
+
+我的意思是，祥子要是有办法救木头，那自然是最好。但是现在最大的问题是，在祥子的眼里，木头人完全就是 ...</blockquote>
+不建议贷款后面剧情和木箱回忆。相信的话等就是了。
+
+问题是剩下的成员怎么办
+
+*****
+
+####  plok201  
+##### 14861#       发表于 2025-1-31 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316513&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 01:59</a>
+
+话说下集是不是要责怪mygo众人为什么不把小睦送医院
+
+猫猫，你为什么只是教她弹吉他，而不把她送医院呢，你 ...</blockquote>
+估计是soyo想送，然后莫跑了，出门才发现的猫吧
+
+说起来，莫猫CP有没有搞头<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 14862#       发表于 2025-1-31 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316509&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 01:58</a>
+
+其实第5集已经是鸡动画里情绪流最自然的一集了，引发这么大争议主要还是坐实了第4集最后酒馆那段伪人表演就 ...</blockquote>
+是的，这集接上集不行。单集接CPART也不行，实际上和第6集强关联。现在评价任意一个角色都可能吃回旋镖。
+
