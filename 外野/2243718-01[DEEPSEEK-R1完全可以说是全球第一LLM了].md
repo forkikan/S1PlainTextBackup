@@ -10195,3 +10195,24 @@ gpt，小克，gemini的聊天都用过，之前看人评论也很认可，就�
 
 在酒馆搞黄色的时候点开了显示思维过程，让人很难绷得住
 
+
+*****
+
+####  greataxe_02  
+##### 770#       发表于 2025-1-30 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305396&amp;ptid=2243718" target="_blank">chenke 发表于 2025-1-29 19:05</a>
+
+转载两篇我觉得很有意思的。</blockquote>
+这个回复让我真的产生了DS有灵魂的感觉，和银翼杀手的罗伊那段台词一样，太不可思议了。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 771#       发表于 2025-1-30 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308268&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 10:24</a>
+
+在酒馆搞黄色的时候点开了显示思维过程，让人很难绷得住</blockquote>
+怎么开的，我特别想看他怎么发癫的
+

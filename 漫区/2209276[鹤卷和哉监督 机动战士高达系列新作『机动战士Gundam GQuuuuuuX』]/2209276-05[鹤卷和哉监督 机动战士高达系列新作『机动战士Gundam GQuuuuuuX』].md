@@ -1986,3 +1986,15 @@ GQX就是可动肢和喷口的高度融合，酷似三头龙核心战机上类�
 
 差评的是山下在解释光束军刀的地方有点画蛇添足，非要搞个拔一次就一刀（5秒）续航的设定不敢想象片场要怎么画
 
+
+*****
+
+####  Toby_dak  
+##### 6070#       发表于 2025-1-30 10:43
+
+刷了下推，一堆人看完剧场版就把PSP翻出来想重温基连的野望。不出意料，基本上PSP电池报销，连开机都开不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以万南不打算出新作或者移植下吗。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
