@@ -3462,3 +3462,19 @@ eupd死了
 
 【第3回总选举简中原创曲 | 雪华翩跹，笑看无常-哔哩哔哩】 https://b23.tv/gdrqfIx
 
+
+*****
+
+####  chih12  
+##### 26905#       发表于 2025-1-30 20:38
+
+难绷，前几天看到邦搞了拉美地区号，顺手注册个 parody account，想不到今天才看到武士道搞了新的中文号
+
+<img src="https://img.saraba1st.com/forum/202501/30/203410cji83mmkklmm3mj8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-30-16-59-36-429-edit_com.android.chrome.jpg</strong> (120.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 20:34 上传
+

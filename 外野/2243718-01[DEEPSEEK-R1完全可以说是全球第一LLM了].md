@@ -11086,3 +11086,23 @@ D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图
 D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">D指导这个幽默风格没在其他任何模型上见过，说套壳的老登都让人怀疑是GPT扮演的（笑
 
+
+*****
+
+####  gawain  
+##### 850#       发表于 2025-1-30 20:39
+
+没人去x上问问他们对于ds遭遇如此大规模攻击，有什么头绪吗？ 总不能是东大自己打自己吧，那么会是谁呢？好难猜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  moeblack  
+##### 851#         楼主| 发表于 2025-1-30 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312462&amp;ptid=2243718" target="_blank">gawain 发表于 2025-1-30 20:39</a>
+
+没人去x上问问他们对于ds遭遇如此大规模攻击，有什么头绪吗？ 总不能是东大自己打自己吧，那么会是谁呢？好 ...</blockquote>
+已经持续超过96小时了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
