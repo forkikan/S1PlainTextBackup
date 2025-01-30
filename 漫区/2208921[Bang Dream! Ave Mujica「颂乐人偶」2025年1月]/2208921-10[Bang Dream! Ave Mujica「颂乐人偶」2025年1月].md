@@ -14325,3 +14325,283 @@ mygo可以留问题等mujica解答，很多人的人设可以留一半令人遐�
 
 只能说确实跟祥子很像，想要对方好但完全不在意对方想法，自己也不表达，一股拧巴劲
 
+
+*****
+
+####  天空塔书记官  
+##### 14743#       发表于 2025-1-31 01:16
+
+怎么还有这种言论的，这一集明摆着就是为了打破ave成功的假象，祥子一直没能逃脱资本的大手，她的能量来自于背后的家族，而不是祥子这个人
+
+借用一人之下里的一句台词“陆玲珑的靠山就是陆玲珑”，同样是世家的大小姐，祥子敢说这句话吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岬开斗  
+##### 14744#       发表于 2025-1-31 01:16
+
+ 本帖最后由 岬开斗 于 2025-1-31 01:18 编辑 
+<blockquote>ashero 发表于 2025-1-31 01:14
+最速武道馆靠的是丰川祥子 还是说祥子 现在是要打个问号的了</blockquote>
+
+打一百个问号也不会是因为喵梦这一点是可以确定的。
+
+当然也可以造个敌我同源的假药，摘面具是丰川老登指使的。
+
+*****
+
+####  GBLMikuHatsune  
+##### 14745#       发表于 2025-1-31 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315994&amp;ptid=2208921" target="_blank">不知道大佐 发表于 2025-1-31 01:04</a>
+
+说了啊，木头人如果是阿农酱那种幸福家庭出身，从最开始就不会有什么因为采访太多导致精神压力爆炸的问题 ...</blockquote>
+那你意思是牢祥就该放着木头让她自己疯球然后跳了？
+
+真这样那可真是比起c团解散切割时一点长进都没有，甚至更不是人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 14746#       发表于 2025-1-31 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">编剧不会觉得这个大祥很有趣吧，就想拿一句“我讨厌自己”糊弄过去这仙味儿有点重了
+
+唯一能证明的所谓能力现在还疑似大手了
+
+*****
+
+####  wpcc  
+##### 14747#       发表于 2025-1-31 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316020&amp;ptid=2208921" target="_blank">hol_effect 发表于 2025-1-31 01:06</a>
+
+说实话现在已经懒得谈论这些车轱辘厨黑的问题了，编剧的大手痕迹太明显了，随时都可能给你补设定的情况感觉 ...</blockquote>
+武士道和编剧组都是废物已经是可以确定的 
+
+*****
+
+####  lucasxp  
+##### 14748#       发表于 2025-1-31 01:19
+
+我很好奇soyo是从谁那儿知道睦家在哪儿的，那反应明显第一次去吧？
+
+*****
+
+####  北条早苗  
+##### 14749#       发表于 2025-1-31 01:19
+
+看了这集的初华的待遇和偷摸零的回忆就可以理解，灯皇爽姐睦头是怎么被大祥弄出精神问题的，白祥形态过于魅魔了，一旦被抛弃那是真的彻底切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 14750#       发表于 2025-1-31 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316115&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 01:15</a>
+
+根本原因是喵梦，但直接原因是祥子啊，而且人喵梦跟睦不熟可以拍拍屁股就走，但祥子跟睦什么关系？说白了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">“抛开事实不谈难道你就一点错都没有吗?”
+
+*****
+
+####  厉飞雨  
+##### 14751#       发表于 2025-1-31 01:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">既然这世界还有违约金一事
+第一集大喵老师就该被告到破产，加全方位封杀了
+怎么解散后她还能到处蹭热度
+
+*****
+
+####  Lyzers  
+##### 14752#       发表于 2025-1-31 01:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看到姥爷垫底就恨不得开滑到母鸡卡成功全靠丰川家了，那怎么不一把大手先把暴走的大喵送爱猫tv呢
+
+*****
+
+####  天空塔书记官  
+##### 14753#       发表于 2025-1-31 01:21
+
+祥子是神明，她不是无能，而是她忘了自己神明的身份，作为创作者，她的价值在于创作本事，而不是她姓甚名谁
+
+商业戏码不过是舞台装置，重点还是在于少女与音乐，这才是故事的关键<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 14754#       发表于 2025-1-31 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316166&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 01:19</a>
+
+看了这集的初华的待遇和偷摸零的回忆就可以理解，灯皇爽姐睦头是怎么被大祥弄出精神问题的，白祥形态过于魅 ...</blockquote>
+现在主线是灯呼唤白祥回来 这个太无解了 但是确实是武士道能想出来的烂活 mujica五个人精神不如灯皇一个人
+
+*****
+
+####  风道北来  
+##### 14755#       发表于 2025-1-31 01:22
+
+还在这一拖四带飞属实有点搞笑了。
+
+都说海玲是客观中立，反过来说客观中立不站队本身就是一种站队了。这四集来她有在喵祥分歧中明确站过大祥老师吗？
+
+真要是一拖四带飞，大喵是键猫，睦头是木头，难道海玲初华全是看戏？哦再加上初华是串子的设定，那四个队友里就一个正常人然后这个正常人还不站一拖四的大腿，还怎么解释？四个人一个正常的都没有？那你一拖四到底拖了个勾把？
+
+实际上一拖四这件事根本不存在，硬要说也是丰川家的黑暗势力一拖五而已
+
+
+*****
+
+####  YF31  
+##### 14756#       发表于 2025-1-31 01:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油们，我也挺想知道觉得丰川祥子这角色这集还能成长的，她要怎么成长捏？为什么成长完了还要组乐队？能给一个能服众的理由吗？
+现在这个人物能干的无非也就是学她爹框框磕头道歉，道歉完了能咋滴，过去的事就一笔勾销了？编剧一挥手搞疯了半身一个月不理就不用提了，喵圣管不住现在也能管住了？噼里啪啦甩一大通话就能解决这几个矛盾了？现在还整上了切割舔狗的操作，我真不知道这角色能咋长，框框磕头得了，磕头至少不干事，不然又得整点啥活出来。
+就你可以说我滑坡或者厨子破防回踩，但我真不知道什么东西能让这个人重燃斗志，要是灯皇来了全救了，那这个真的会变成搞笑动画的，合着就是13集前缺个灯皇。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 14757#       发表于 2025-1-31 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316163&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-1-31 01:19</a>
+
+我很好奇soyo是从谁那儿知道睦家在哪儿的，那反应明显第一次去吧？</blockquote>
+soyo班里的优等生，老师最喜欢那种，和老师交情好的话，直接问到也不奇怪吧
+
+*****
+
+####  huxiaopao163  
+##### 14758#       发表于 2025-1-31 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316110&amp;ptid=2208921" target="_blank">ashero 发表于 2025-1-31 01:14</a>
+
+最速武道馆靠的是丰川祥子 还是说祥子 现在是要打个问号的了</blockquote>
+一两个月上武道馆，肯定是钱砸出来的，问题只在于这个钱是怎么来的。
+
+*****
+
+####  DARK_HGCG  
+##### 14759#       发表于 2025-1-31 01:22
+
+<blockquote>lucasxp 发表于 2025-1-31 01:19
+我很好奇soyo是从谁那儿知道睦家在哪儿的，那反应明显第一次去吧？</blockquote>
+问老师
+
+就说我放学了去给她送卷子
+
+*****
+
+####  岬开斗  
+##### 14760#       发表于 2025-1-31 01:23
+
+<blockquote>厉飞雨 发表于 2025-1-31 01:20
+既然这世界还有违约金一事
+
+第一集大喵老师就该被告到破产，加全方位封杀了
+
+怎么解散后她还能到处蹭热度 ...</blockquote>
+因为最后要包饺子，所以点了炸药之后就要弱化影响，把恶感都转给祥子，一点点用努力家人侠来洗。
+
+至于祥子，看来绫奈【裕仁】子对十五年一遇之大女主的塑造很有信心啊。
+
+
+*****
+
+####  wpcc  
+##### 14761#       发表于 2025-1-31 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316189&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 01:22</a>
+
+漏油们，我也挺想知道觉得丰川祥子这角色这集还能成长的，她要怎么成长捏？为什么成长完了还要组乐队？能给 ...</blockquote>
+同。木头死掉之后已经脱离正常包饺子的范畴了
+
+*****
+
+####  古明地雷  
+##### 14762#       发表于 2025-1-31 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316106&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 01:14</a>
+如果看到酒瓶子就润我是不会黑反而很理解大祥老师，因为解决父辈的酗酒问题本不该靠一个未成年人。大祥老 ...</blockquote>
+所以说你是结果论，你用这个角度去批评祥子本来就没道理，是的她选择荣华富贵也没人怪她，她选择荣华富贵也不会有后来的一地鸡毛，难道这样就能怪她在钱和爹里面选了爹？祥子伤害了很多人但这点真没得黑好吧
+
+*****
+
+####  伞木希美  
+##### 14763#       发表于 2025-1-31 01:23
+
+不是啊，大祥老师要是解散之后被打击这么大，那她怎么上一集结尾就那么默许解散了？然后说着让睦回来转头就忘了？这剧本真构思吧？
+
+*****
+
+####  takerest  
+##### 14764#       发表于 2025-1-31 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316167&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 01:19</a>
+
+“抛开事实不谈难道你就一点错都没有吗?”</blockquote>
+你不会真觉得逼疯睦头人这事上大祥老师是一点责任都没有吧？
+
+*****
+
+####  wpcc  
+##### 14765#       发表于 2025-1-31 01:25
+
+本质就是大翔老师从c团解散之后内心就没有家了，所以问题来了谁能给她一个家 灯皇可以吗 
+
+这个家到最后一定是avemujica 我就问了这五个都不是人的能凑一伙吗
+
+*****
+
+####  JustW  
+##### 14766#       发表于 2025-1-31 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316075&amp;ptid=2208921" target="_blank">sanae 发表于 2025-1-31 01:11</a>
+但是在团队没人搞事的情况下，这领导真能带我飞啊</blockquote>
+兄弟我不知道你干过活没有，一个领导最需要的不是自己基础工作能力超群+不要命埋头苦干，而是引领方向的决策能力、和团队成员维持良好关系的沟通能力、知道让什么人办什么事的管理能力，以及赏罚分明、勇于担责，有一张能拉来投资的大脸皮就更好。一个人埋头苦干闭门造车这不是当领导，也没法带你飞远，只会把团队带进沟里或者集体坠机。
+
+*****
+
+####  swessia  
+##### 14767#       发表于 2025-1-31 01:25
+
+对了下集预告一开始祥子还在跑，也就是说祥子还要被抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不会真整mygo把睦治好了，睦再去拉祥进mygo的烂货吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 14768#       发表于 2025-1-31 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316213&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 01:24</a>
+
+你不会真觉得逼疯睦头人这事上大祥老师是一点责任都没有吧？</blockquote>
+你不会觉得拯救木头人这事大象能帮上什么忙吧
+
+都已经卖素莫了 我看武士道是疯了
+
+*****
+
+####  Asukalangley33  
+##### 14769#       发表于 2025-1-31 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316198&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:23</a>
+同。木头死掉之后已经脱离正常包饺子的范畴了</blockquote>
+祥子和睦都是对crychic有愧疚和ptsd的
+把c团问题弄明白这两就算成长了
+
+尤其祥子，她搞a团就是最根本的原因就是c团被自己搞散
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
