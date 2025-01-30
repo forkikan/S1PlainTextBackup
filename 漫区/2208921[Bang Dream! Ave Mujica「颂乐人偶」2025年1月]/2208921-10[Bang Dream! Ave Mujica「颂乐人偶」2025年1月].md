@@ -14605,3 +14605,365 @@ soyo班里的优等生，老师最喜欢那种，和老师交情好的话，直�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zhigui  
+##### 14770#       发表于 2025-1-31 01:26
+
+<img src="https://img.saraba1st.com/forum/202501/31/012314hc7ibrhh1xjth29y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:23 上传
+
+我现在越来越觉得这句话可疑了
+
+因为按时间线来讲喵梦既不可能在当初知道祥子是大小姐，也不可能现在知道祥子已经落魄了
+
+第五集出来我就越来越怀疑喵梦是丰川家埋的暗雷了
+
+除非跟丰川家早有联系，不然不可能知道这个情报
+
+第五集又展示了大喵明明是第一个说炸团的却能过得很好，资源吃满，越来越可疑了
+
+也许外公还有反转呢，不确定，再看看
+
+当然，依然改变不了剧本依托史的事实，甚至根本没往这个方向走，haha
+
+*****
+
+####  ntrntr1  
+##### 14771#       发表于 2025-1-31 01:27
+
+喵梦揭面具等于萨拉热窝呗
+
+是世界大战的导火索，但世界大战的根本原因不是萨拉热窝，甚至可以说萨拉热窝这小地方开战后0人在意
+
+我觉得喵梦揭面具很蠢没啥计划，但睦心理问题真只能算导火索，毕竟都商业出道了，同事害怕被人看脸/有精神疾病，这哪能预料得到啊
+
+喵梦大概就是一群人一起做手术，她不听指挥为了展现自己先切一刀给病人切出血了，然后团队尽力补救了那一台，就她那一刀绝对是傻逼行为，但同事本来就晕血从此不敢上手术台大概算不到她头上吧。。。
+
+*****
+
+####  hol_effect  
+##### 14772#       发表于 2025-1-31 01:27
+
+小陀螺这一自闭就彻底切割原有关系就是人物底色，原来还有个睦，这下倒台彻底自闭把所有人包括自己都切了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+站起来就是让她重新把线接起来呗，就是现在这编剧的能力让人很怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 14773#       发表于 2025-1-31 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316225&amp;ptid=2208921" target="_blank">Asukalangley33 发表于 2025-1-31 01:26</a>
+
+祥子和睦都是对crychic有愧疚和ptsd的
+
+把c团问题弄明白这两就算成长了</blockquote>
+她搞c团就是为了给自己一个家 然后这个家被清告砸碎了 a是她的过家家这个已经是提到很多次了基本就是正论 现在过家家的a团也没了 大箱没家了
+
+除非真的认外公
+
+*****
+
+####  ashero  
+##### 14774#       发表于 2025-1-31 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316229&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 01:26</a>
+
+我现在越来越觉得这句话可疑了
+
+因为按时间线来讲喵梦既不可能在当初知道祥子是大小姐，也不可能现在知道祥 ...</blockquote>
+能做实这点那么后面还怎么包大喵饺子 铁叛徒比铁还铁啊 
+
+*****
+
+####  杂灰  
+##### 14775#       发表于 2025-1-31 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315657&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 00:29</a>
+
+萎也可以是对睦的问题无能为力后再彻底萎啊。做不到不要紧，去做才是关键。母鸡卡的事，木头是她唯一要负 ...</blockquote>
+那就基调就变成了还在想着突出她的人格魅力了，但很明显这几集是完全没有打算给她塑造任何人格魅力的，把她最丑陋的地方挖掘出来给所有人包括她自己看才是主要目的，全部剧情都是为了彻底把这个人击溃。母鸡卡的事她要负的责从来就不止睦，真要让她对睦负责那得等到她明白对别人负责是什么意思的时候
+
+*****
+
+####  厄神之息  
+##### 14776#       发表于 2025-1-31 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316106&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 01:14</a>
+
+如果看到酒瓶子就润我是不会黑反而很理解大祥老师，因为解决父辈的酗酒问题本不该靠一个未成年人。大祥老 ...</blockquote>
+有着高道德标准的同时有超高自尊和一般般的能力和见识的结果是这样的。
+
+*****
+
+####  wpcc  
+##### 14777#       发表于 2025-1-31 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316229&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 01:26</a>
+
+我现在越来越觉得这句话可疑了
+
+因为按时间线来讲喵梦既不可能在当初知道祥子是大小姐，也不可能现在知道祥 ...</blockquote>
+你看访谈了吗 明说了编剧工具人
+
+*****
+
+####  稀勢のささ  
+##### 14778#       发表于 2025-1-31 01:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这个大喵，说好听点是非常会把握机会吃饱饱了，结果真给你机会你还在PTSD，别告诉我你真爱是音乐吧
+
+*****
+
+####  wpcc  
+##### 14779#       发表于 2025-1-31 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316248&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-1-31 01:28</a>
+
+还有这个大喵，说好听点是非常会把握机会吃饱饱了，结果真给你机会你还在PTSD，别告诉我你真爱是音乐吧
+
+ ...</blockquote>
+看访谈看访谈 都能解释的
+
+*****
+
+####  rs5621  
+##### 14780#       发表于 2025-1-31 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315595&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-31 00:23</a>
+
+感觉后面把鸡团拼回去的时候海玲是个难啃的boss：当初你们4个疯子炸团糊我一脸，说解散就解散说重组就重组 ...</blockquote>
+你好，乐队雇佣兵海玲前来报到
+
+*****
+
+####  wpcc  
+##### 14781#       发表于 2025-1-31 01:30
+
+mujica最恶心的一点在于不看访谈你和编剧有信息差，我只能说还好游戏没这么快 否则还得看游戏补信息差 
+
+*****
+
+####  YF31  
+##### 14782#       发表于 2025-1-31 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316225&amp;ptid=2208921" target="_blank">Asukalangley33 发表于 2025-1-31 01:26</a>
+祥子和睦都是对crychic有愧疚和ptsd的
+把c团问题弄明白这两就算成长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是啊，你就给牢C队友全磕出血了又咋样，磕完了都JB姐妹，丰川家大手太温暖了大家再命运共同体重组牢C?有点油麦了说实话。
+就这个人设已经被踩的后续怎么爬都很油麦，既不美也不强更不惨。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 14783#       发表于 2025-1-31 01:30
+
+ave的成功肯定不只是资本的大手，这集不就有表现观众对音乐的喜爱吗，但最速武道馆和开巡演不是，就算是双R现在也做不到这一点，A团不是没实力，而是实力被夸大，祥子本身的创作被资本的大手给笼罩了，这本质还是一个追寻自我的王道故事
+
+所以并没有一拖四，这团队每个人都出了力，但没有一个人尽力，包括祥子，喵梦甚至都可以算最上心的了，但又有谁在意呢，只不过是起爆工具罢了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 14784#       发表于 2025-1-31 01:30
+
+白祥形态的前提是大祥高高在上，一旦对面在上面她就翻脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+睦祥关系不好说，白祥对偷摸零算拯救者，爽姐的话直接就坏心思的神明为我带来了礼物了，初华多半也是安田纱代2号机
+飞鸟山之战爽姐的低姿态直接被绝杀，睦头被当作同情被压力垃圾桶，灯皇看穿一切被扔小纸条，初华作为炸团知情者释放善意被放置play
+
+*****
+
+####  盐盐盐盐盐  
+##### 14785#       发表于 2025-1-31 01:30
+
+可能soyo只是把mo哄出家门了猫猫在吉他上给点提点，最后的关键点还是祥子来不就行了，不过这得祥子先赶紧支棱起来，mo说祥子那样子睦回不来就是剧本直接暗示需要祥子先改变自己才能找回睦嘛
+
+*****
+
+####  岬开斗  
+##### 14786#       发表于 2025-1-31 01:31
+
+<blockquote>wpcc 发表于 2025-1-31 01:29
+看访谈看访谈 都能解释的</blockquote>
+现在我就好奇剧情怎么才能拐到访谈里说的祥睦关系。
+
+*****
+
+####  wpcc  
+##### 14787#       发表于 2025-1-31 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316266&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 01:30</a>
+
+不是啊，你就给牢C队友全磕出血了又咋样，磕完了都JB姐妹，丰川家大手太温暖了大家再命运共同体重组牢C? ...</blockquote>
+起来也没用了 干的事情是实在有点太挂机导致队友全崩了
+
+*****
+
+####  稀勢のささ  
+##### 14788#       发表于 2025-1-31 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316255&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:29</a>
+
+看访谈看访谈 都能解释的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧内不讲清楚靠访谈补设定
+
+上次发生这种事还是上次
+
+*****
+
+####  古明地雷  
+##### 14789#       发表于 2025-1-31 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316167&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 01:19</a>
+“抛开事实不谈难道你就一点错都没有吗?”</blockquote>
+你在说什么，事实就是祥子是最后一击啊，大莫亲口说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子都觉得自己不够关心睦，祥子亲手说的啊
+
+*****
+
+####  zhigui  
+##### 14790#       发表于 2025-1-31 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316247&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:28</a>
+
+你看访谈了吗 明说了编剧工具人</blockquote>
+我一般不看访谈，不太喜欢场外因素来影响场内观感，那只能证明剧本是坨屎场内都救不了
+
+而且访谈还存在翻译歧义的问题，那个完美之人到现在都众说纷纭，有说是“祥子是”的，有说是“祥子将会成为”的，有说是“制作组想让祥子是”的，这之后我就没看过访谈了
+
+
+*****
+
+####  thisisaspider  
+##### 14791#       发表于 2025-1-31 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316183&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:21</a>
+
+现在主线是灯呼唤白祥回来 这个太无解了 但是确实是武士道能想出来的烂活 mujica五个人精神不如灯皇一个 ...</blockquote>
+你拿邦邦底层逻辑来解释就能理解。
+
+祥子还处在事件中心，成长很好写。但剩下几个人怎么办。这是我最担心的。
+
+睦自救可以算一条线，救完之后再回忆白月光祥子。
+
+然后就是过去祥子的情债拯救了现在的祥子。
+
+*****
+
+####  清雨  
+##### 14792#       发表于 2025-1-31 01:32
+
+只要老登有恨祥爹爱祥子的基础设定，老登就能化身🦄的大手。祥爹为什么欠168，老登想赶走他故意搅黄他的生意，喵梦为什么过于激进，老登威胁喵梦拆不了团就让圈内人士疏远她，如果拆了团让祥子回来就给足演艺资源。不过话又说回来喵梦要是没人指使，这精致利己的人设咋往回拉，靠东漂博同情吗
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  wpcc  
+##### 14793#       发表于 2025-1-31 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316290&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 01:31</a>
+
+我一般不看访谈，不太喜欢场外因素来影响场内观感，那只能证明剧本是坨屎场内都救不了
+
+而且访谈还存在翻 ...</blockquote>
+不看访谈甚至不能实锤人格分裂 你说这个是怎么办
+
+*****
+
+####  Lyzers  
+##### 14794#       发表于 2025-1-31 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316218&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 01:25</a>
+
+兄弟我不知道你干过活没有，一个领导最需要的不是自己基础工作能力超群+不要命埋头苦干，而是引领方向的 ...</blockquote>
+大祥老师一开始想管的啊，摘面具时唯一一个严肃对待这个事件的人，结果编剧大手一挥，戏内所有角色，包括影响最深的睦头和这集唐突出现的staff都没当一回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现实来说这么大件事，开了这个头后面就别想让刺头听你的话了
+
+只针对母鸡卡来说编剧就没想让大祥作为队长发挥作用
+
+*****
+
+####  takerest  
+##### 14795#       发表于 2025-1-31 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316223&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:25</a>
+
+你不会觉得拯救木头人这事大象能帮上什么忙吧
+
+都已经卖素莫了 我看武士道是疯了 ...</blockquote>
+把锅都甩给编剧吧，那还聊什么人物塑造啊
+
+*****
+
+####  不知道大佐  
+##### 14796#       发表于 2025-1-31 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315904&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-31 00:54</a>
+
+可以和前面某楼结合起来，大祥这套吃瘪属于硬塞进来的。组团的时候行动力爆发魅魔属性拉满，结果组完团立 ...</blockquote>
+就如果祥子能像黄前久美子一样，一个一个帮助社员解决心结，那确实是最好的结果。但是祥子已经在音乐事业这一方面取得了巨大成功的同时，因为没能很好的担当起队伍里拧绳哥的职责，就被指责是”行动力不足“，未免也过于苛求了。既要也要不可取。
+
+如果是从上帝视角出发，从编剧的层面上说，要写一个拧绳哥角色来提升动画剧情观感的话，比起性格别扭的祥子来拧绳，让本就靠谱的海铃，或者是幡然悔悟之后成长的喵梦来担当拧绳的职责我觉得才更为合适。
+
+至于自私自利就更是罪不至此了。祥子确实是为了给自己的目的组的母鸡卡，但是母鸡卡要是火了，队里除了木头人的另外4人都能收获很大的利益，喵梦能火，海玲能有个稳定队玩音乐，初华能扣小祥。而事实上现在喵梦也确实借助祥子的东风火了。这本来完全是个互利共赢的事。
+
+至于确实从母鸡卡得不到收益的木头人，如上文所述，祥子从小到大对她十几年的陪伴，也值得木头人也为了祥子拼一把好好把乐队搞好吧。现在木头人疯了，本质原因是她爸妈早在十几年前就埋下的炸弹，在今天突然被祥子弄炸了。这个炸弹本身也不是祥子设下来的，全都怪祥子并不合理。反倒是祥子这么多年陪在木头身边，必然是大幅度拖延了这个炸弹起爆的时间。我的评价是功大于过
+
+*****
+
+####  wpcc  
+##### 14797#       发表于 2025-1-31 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316294&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 01:32</a>
+
+你拿邦邦底层逻辑来解释就能理解。
+
+祥子还处在事件中心，成长很好写。但剩下几个人怎么办。这是我最担心 ...</blockquote>
+呼唤白祥回来又能做什么呢 都干成这样了 还能当没发生过吗 对得起初华白吃白住吗
+
+*****
+
+####  JustW  
+##### 14798#       发表于 2025-1-31 01:35
+
+喵梦干了一串蠢事结果五集下来还是风生水起，唯一吃瘪点是莫名其妙地因为睦断片而在演技天赋上受了打击（？），塑造已经不是不好可以形容得了的了。
+
+不过母鸡卡哪怕第一集不摘面具再晚也是要摘的，这点祥子又不否认，总不能说祥子最开始有信心用一段时间把睦不想站在世人面前的问题解决掉再摘面具吧。
+
+*****
+
+####  杂灰  
+##### 14799#       发表于 2025-1-31 01:35
+
+ 本帖最后由 杂灰 于 2025-1-31 01:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316229&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 01:26</a>
+
+我现在越来越觉得这句话可疑了
+
+因为按时间线来讲喵梦既不可能在当初知道祥子是大小姐，也不可能现在知道祥 ...</blockquote>
+访谈说过，12集的时候大喵不单只看到衣服廉价，同时还有出身上流的举止，还有隐藏衣着廉价感的手段。其实这点也不需要访谈来证实，祥子的大小姐口吻很明显，衣服在母鸡卡里也是石锤过廉价
+
+*****
+
+####  zhigui  
+##### 14800#       发表于 2025-1-31 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316239&amp;ptid=2208921" target="_blank">ashero 发表于 2025-1-31 01:27</a>
+
+能做实这点那么后面还怎么包大喵饺子 铁叛徒比铁还铁啊</blockquote>
+现在喵梦的人设还不如铁叛徒呢说实在的，我提这个假药就是想给喵梦洗白找个出路，精致利己双标xxn vs 铁叛徒，虽然都不是好东西但叛徒还是更好洗白的
+
+但我更害怕编剧给喵梦的人设是前者，我真无法信任
+

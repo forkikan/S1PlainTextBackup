@@ -11610,3 +11610,13 @@ P
 他们就觉得自我迭代的agi不会直接灭了他们？</blockquote>
 这套故事一般要配合什么我们自由世界balabala然后CCP有了AGI就会变身老大哥搞监视社会balabala之类的话术一起服用，指望这些人能有自知之明还是稍微难了点
 
+
+*****
+
+####  hargen2000  
+##### 882#       发表于 2025-1-31 01:34
+
+应该说以现在的攻击规模，deepseek没有完全崩掉已经很不容易了
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
