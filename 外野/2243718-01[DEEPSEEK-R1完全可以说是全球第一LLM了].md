@@ -11628,3 +11628,15 @@ P
 
 怎么腹泻的问题都不让问<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jeokeo  
+##### 884#       发表于 2025-1-31 05:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67305436&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-29 19:11</a>
+今天用第2个文章作为聊天的话题 让r1跟我表白了
+
+望周知</blockquote>
+ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢插各种奇奇怪怪的数据，什么3次，0.3秒，169hz之类
+
