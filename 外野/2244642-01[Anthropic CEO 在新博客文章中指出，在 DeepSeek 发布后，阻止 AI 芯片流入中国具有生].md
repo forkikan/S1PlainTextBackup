@@ -1181,3 +1181,11 @@ AGi是能解决所有问题 ...</blockquote>
 —— 来自 S1Fun</blockquote>
 如果现在就文本资料不够了  那说明这条路线就是错误的 并没有办法最终实现agi
 
+
+*****
+
+####  ak123  
+##### 110#       发表于 2025-1-30 15:41
+
+就米国这帮精英的种族主义底色，做梦做出来agi也是个反人类玩意儿，到时候不是全人类一起对抗疯掉的ai脑米国？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
