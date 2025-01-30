@@ -6249,3 +6249,68 @@ wsd剧透炒作访谈炒作确实给楼友带来了不好的追剧体验。罪�
 灯虽然是核，但也不是1拖4。 灯猫可以是灵魂羁绊，猫拉立希，灯拉爱音，爱音拉素世。 ...</blockquote>
 每个人都是有关联性的，这恰恰是🐔团没有的
 
+
+*****
+
+####  天空塔书记官  
+##### 13922#       发表于 2025-1-30 21:09
+
+目前A团的核心只有祥子，初华以后也许也可以是，但现在就算了，而祥子一直在自闭，所以炸团(暂停活动)是必然结果
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  6030sylar  
+##### 13923#       发表于 2025-1-30 21:10
+
+<img src="https://img.saraba1st.com/forum/202501/30/211043bu8dwpnqju8pnuno.png" referrerpolicy="no-referrer">
+
+<strong>@PNM}1PLC{RR2FT(FR04K22.png</strong> (14.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/211133uyoh6p56us6syikp.png" referrerpolicy="no-referrer">
+
+<strong>)H7LZDE{(OO[YS(EF17%7HJ.png</strong> (143.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:11 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/211049x54kyyzlmzgqhydg.png" referrerpolicy="no-referrer">
+
+<strong>`F]})XC{UKQTG$%_$II9[%5.png</strong> (36.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 21:10 上传
+
+*****
+
+####  bindata  
+##### 13924#       发表于 2025-1-30 21:12
+
+现在时点就是没看出母鸡卡对这五个人有什么重要性，就是在祥子心里分量也大概不如Crychic
+
+后面重组总得给个令人信服的动机，不然如果祥睦先好了又有什么必要重新搞起来mujica
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 13925#       发表于 2025-1-30 21:12
+
+胖宝宝真的难绷，之前青木吃成圆木怎么就一样可爱捏
+
+*****
+
+####  盐盐盐盐盐  
+##### 13926#       发表于 2025-1-30 21:14
+
+讲道理我现在最期待初华的塑造好吧，到底是什么惊天秘密让她表情这么狰狞，其他几个人目前的塑造都还没超出动画八股文套路，初华这个活整好了就是全剧亮点，整差了必是年度烂片
+
