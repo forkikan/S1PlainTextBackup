@@ -775,3 +775,64 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 我的日亚绑定outlook，国内+86的手机号，地址有国内地址和日本转运地址，没买过一次数字商品，最早一笔实体商品订单都能追到2017年，怎么也算是良好账号了吧，买不了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyfzs  
+##### 85#       发表于 2025-1-30 17:26
+
+ 本帖最后由 lyfzs 于 2025-1-30 17:28 编辑 
+
+看来常驻任亏是真的亏了，汇率叠加任亏第一方直接属于半价了，这也算留了条路把还可以充点卡，只是以后买独立游戏有点麻烦了。
+
+*****
+
+####  clyde-wang  
+##### 86#       发表于 2025-1-30 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311133&amp;ptid=2244683" target="_blank">QYMtutututu 发表于 2025-1-30 17:25</a>
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的</blockquote>
+你是不是amazon.com进去的？你试试amazon.jp进去看看呢？
+
+我刚试了下招行JCB买了1000日元点卡可以的
+
+
+*****
+
+####  绿冰  
+##### 87#       发表于 2025-1-30 17:30
+
+<blockquote>QYMtutututu 发表于 2025-1-30 17:25
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的
+</blockquote>
+改成日本地址应该就可以吧，随便找个转运以外的正经地址
+
+*****
+
+####  wfhtony  
+##### 88#       发表于 2025-1-30 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311133&amp;ptid=2244683" target="_blank">QYMtutututu 发表于 2025-1-30 17:25</a>
+
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的</blockquote>
+日亚的话，要把[地址簿](https://www.amazon.co.jp/a/addresses)中的日本地址设置为常用地址（即「既定の住所に設定」）。
+
+*****
+
+####  林檎  
+##### 89#       发表于 2025-1-30 17:35
+
+没用过信用卡，点卡不受影响就行
+

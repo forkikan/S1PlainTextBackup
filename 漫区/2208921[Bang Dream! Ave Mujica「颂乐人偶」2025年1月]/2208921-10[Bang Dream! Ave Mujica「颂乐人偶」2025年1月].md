@@ -4307,3 +4307,95 @@ mujica明显是那种想靠谜底来翻转前面的剧情，毕竟导演都说�
 
 但這是邦邦， 所以我看不懂
 
+
+*****
+
+####  thisisaspider  
+##### 13733#       发表于 2025-1-30 17:26
+
+<blockquote>玖羽 发表于 2025-1-30 16:52
+我认为不会，丰川集团太大了，这么干就真成暗黑弦卷心了
+
+而且现在猜测Mujica的资金很可能是祥子管外公要 ...</blockquote>
+现在两个假设都没有实锤。这里只是解释合理性。不这样写也正常。
+
+*****
+
+####  fosanoha  
+##### 13734#       发表于 2025-1-30 17:28
+
+你这山鸡还是漫版的，场内场外都明示这会儿还不到中盘，赵山河迟早给陈浩南拉一刀狠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 13735#       发表于 2025-1-30 17:30
+
+VOICE Febri杂志AveMujica部分
+[https://tieba.baidu.com/p/9454134752](https://tieba.baidu.com/p/9454134752)
+
+<img src="https://img.saraba1st.com/forum/202501/30/173011twyjpnjywhv9xiyv.jpg" referrerpolicy="no-referrer">
+
+<strong>e51.jpg</strong> (90.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 17:30 上传
+
+
+*****
+
+####  osore  
+##### 13736#       发表于 2025-1-30 17:32
+
+若麦路边一条，自己跪
+
+*****
+
+####  烂片雷达  
+##### 13737#       发表于 2025-1-30 17:33
+
+祥子还是太喜欢意气用事了，很多不好的结果都是她太意气用事导致的，从抛下😭来袭哭到抛下老爹到抛下睦都是头脑一热说干就干了，其实内心还是割舍不下的，潮落潮张，最终所有事情都会以更猛烈的攻势向她袭来，要是能抗住就是真正的十五年未有之大女主了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dgugvff  
+##### 13738#       发表于 2025-1-30 17:34
+
+我现在不相信任何访谈，我只看动画
+
+*****
+
+####  天空塔书记官  
+##### 13739#       发表于 2025-1-30 17:34
+
+黑色生日这歌还是有点不妙，甚至迷子众人的参与不会是正面效果也说不定，祥子虽然一直在强调复权，但实际上却并没有采取什么实际行动，难说真正成团之后不会向着错误的方向猛踩油门，比如向<strong>大人</strong>和<strong>资本</strong>复仇之类的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dgugvff  
+##### 13740#       发表于 2025-1-30 17:35
+
+<blockquote>osore 发表于 2025-1-30 17:32
+若麦路边一条，自己跪</blockquote>
+可是现在的谷子，是祥子剩下的多
+
+*****
+
+####  塔尔洛斯  
+##### 13741#       发表于 2025-1-30 17:35
+
+12年武士道受害者p个图给大家笑到22点
+
+<img src="https://img.saraba1st.com/forum/202501/30/173413jm5gwzdu69wtz4dz.png" referrerpolicy="no-referrer">
+
+<strong>1738229546814.png</strong> (45.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 17:34 上传
+
