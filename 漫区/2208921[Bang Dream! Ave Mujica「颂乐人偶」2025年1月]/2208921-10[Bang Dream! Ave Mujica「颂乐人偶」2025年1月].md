@@ -14023,3 +14023,305 @@ mygo团还是有两位对c团念念不忘的，祥子和大莫老师短暂加入
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  古明地雷  
+##### 14717#       发表于 2025-1-31 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315958&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-31 01:00</a>
+现实中的ptsd一样需要复杂的治疗，不会让祥子不找睦变得比现在“正常”。终归还是要擦个精神病的边来让观 ...</blockquote>
+ptsd只是个形容而已，那换个说法睦因为心理问题弹不出来，祥子不去找她就能接受，因为祥子自己也有心理问题，现在搞的太塑料了。。
+
+*****
+
+####  hol_effect  
+##### 14718#       发表于 2025-1-31 01:06
+
+说实话现在已经懒得谈论这些车轱辘厨黑的问题了，编剧的大手痕迹太明显了，随时都可能给你补设定的情况感觉就像在跟空气搏斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RaKboW  
+##### 14719#       发表于 2025-1-31 01:07
+
+美食特写
+
+<img src="https://img.saraba1st.com/forum/202501/31/010702n1rrd9r11hrdgr17.gif" referrerpolicy="no-referrer">
+
+<strong>bili_v_1738255596095.gif</strong> (1015.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/010702yffdhlufr54yppfh.gif" referrerpolicy="no-referrer">
+
+<strong>bili_v_1738255655038.gif</strong> (830.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:07 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/010702qksotddvp6p6z1aj.jpg" referrerpolicy="no-referrer">
+
+<strong>2a79bd71-e25f-4662-b0b3-86ef8b207dd5.jpg</strong> (11.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  百合灵  
+##### 14720#       发表于 2025-1-31 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67259655&amp;ptid=2208921" target="_blank">sephal 发表于 2025-1-23 23:04</a>
+
+这个小莫与其说是个人格，给我感觉更像个AI或者程序，针对目前情况自动选择记忆里某个人的台词动作表情然后 ...</blockquote>
+人格也要讲道理的，睦本身经历就没有有关演出事项和决策、作曲等等的经历，所以做不到也正常（）
+
+
+*****
+
+####  厚乳果珍爽  
+##### 14721#       发表于 2025-1-31 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315996&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 01:04</a>
+
+卖狗的故事虽然经常被人说闹麻了，但不能否认确实算是做到了情理之中意料之外，每个人都在做自己会做的事 ...</blockquote>
+卖狗的剧情也不过是几个小女孩一边玩乐队一边闹别扭，不涉及现实，里面几个人的人际关系问题能有多大？
+
+*****
+
+####  一心而用  
+##### 14722#       发表于 2025-1-31 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315915&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 00:56</a>
+说实话一个团队里的领导，自始至终说不清楚这个团队的理念和发展方向，团队里有人搞事也没有惩罚手段，还往 ...</blockquote>
+说白了八个字：
+匹夫之勇
+妇人之仁
+
+*****
+
+####  岬开斗  
+##### 14723#       发表于 2025-1-31 01:09
+
+<blockquote>scorbian 发表于 2025-1-31 01:05
+唉，最速武道馆全是大祥的功劳，最速解散全是别人的错
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+没有祥子肯定没有最速武道馆。
+
+没有喵梦摘面具现在也不会炸团。
+
+主语能反过来吗？
+
+*****
+
+####  thisisaspider  
+##### 14724#       发表于 2025-1-31 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315912&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 00:55</a>
+
+现在整个剧本让人感觉就是斧凿痕迹很重
+
+像拷打祥子的时候就会出现完全没意义的现实要素，比如这集的违约金 ...</blockquote>
+wsd还是太会炒了，真好剧本，不如13集直接全放出来。
+
+现在无论好坏都在折磨观众<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  庸necro  
+##### 14725#       发表于 2025-1-31 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316002&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 01:05</a>
+巨大的商業成就這集已經被半定性為大小姐的過家家了
+
+老登一聲不響就交了解約金基本上半證實了之前的成功也 ...</blockquote>
+mygo13集海报上就有tgw，但是顺位很靠后，我觉得是外公考虑到祥子脾气所以只是小投资给事务所表个态，事务所自然明白是是什么意思，出了问题可以找谁兜底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 14726#       发表于 2025-1-31 01:10
+
+我现在最膈应的就是木头的父母，真就伪人家庭呗，这俩但凡有一个真的关心木头都不会发展到现在这个地步<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARK_HGCG  
+##### 14727#       发表于 2025-1-31 01:11
+
+微博上看到一个说法，我自己是挺喜欢的：
+
+灯是卖狗女主
+
+祥子是母鸡卡女主
+
+爱音是卖狗和母鸡卡的女主
+
+*****
+
+####  Lyzers  
+##### 14728#       发表于 2025-1-31 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316037&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 01:08</a>
+
+卖狗的剧情也不过是几个小女孩一边玩乐队一边闹别扭，不涉及现实，里面几个人的人际关系问题能有多大？ ...</blockquote>
+我一直都觉得卖狗就是因为归根结底是小女孩闹别扭所以才能收的好
+
+*****
+
+####  sanae  
+##### 14729#       发表于 2025-1-31 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315915&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 00:56</a>
+
+说实话一个团队里的领导，自始至终说不清楚这个团队的理念和发展方向，团队里有人搞事也没有惩罚手段，还往 ...</blockquote>
+但是在团队没人搞事的情况下，这领导真能带我飞啊
+
+*****
+
+####  hol_effect  
+##### 14730#       发表于 2025-1-31 01:11
+
+小陀螺不动用邦邦底层逻辑不可能斗得过老登的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 14731#       发表于 2025-1-31 01:12
+
+应该是目前第二个官方双人fanart，上一个是立希海铃。
+<img src="https://p.sda1.dev/21/d46c20590bc87321db1d0eff9a0b6e44/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  楚暮秦朝  
+##### 14732#       发表于 2025-1-31 01:12
+
+能不能盖棺定论是爱音传了，十五年之大女主说的没错啊我看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 14733#       发表于 2025-1-31 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315832&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 00:46</a>
+
+努力去做不代表因此犯下的错误就不用承担责任，她在明知睦头人精神分裂的情况下挂机一个月都不带问候一声 ...</blockquote>
+她不是觉得只有自己惨，而是超高自尊自视甚高的人就是这样的，在遇到挫折，自己过得不好的时候会倾向于拒绝承认现状或结果，逃避一切认识的人，拒绝他人帮助，不想让别人知道自己的状态。幻想换个地方重新开始一切就都会好，直到下一次把事情搞砸。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">真是和蓝章鱼狠狠的共情了
+
+*****
+
+####  庸necro  
+##### 14734#       发表于 2025-1-31 01:14
+
+mygo可以留问题等mujica解答，很多人的人设可以留一半令人遐想，但是mujica是本质上的“第二季”，你知道真的就这么几集要讲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 14735#       发表于 2025-1-31 01:14
+
+大祥继续当了一个月客服大概还是自己背锅了，姥爷出手付了违约金大祥老师自然没理由也没立场再违逆姥爷了吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GBLMikuHatsune  
+##### 14736#       发表于 2025-1-31 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315944&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-1-31 00:58</a>
+
+睦第一集被喵梦摘面具一脸惊恐（睦为数不多的表情），直接导致第二集睦整个人崩溃
+
+但是二三四集这么多睦 ...</blockquote>
+也妹说喵梦前几集没锅没伤害啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+但是这样就能说第五集牢祥不关心睦这事不用背锅了？在我看来第五集鸡团5个就没一个诗人，其余四个人每个人都要分到不关心睦的锅。
+
+难道就因为前面是喵梦犯了伤害睦的错，你牢祥就可以自己一个人开摆不关心睦？
+
+真觉得这样没问题那也都别玩了，踢不踢大猫也无所谓，反正睦崩了祥子也不用管，全推给始作俑者好了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+真这样我看灯也别救了，反而是一切的始作俑者牢祥该给灯低头道歉呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  takerest  
+##### 14737#       发表于 2025-1-31 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315903&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 00:54</a>
+
+而且你可以翻翻我的发言，我一直在说她对睦不闻不问很过分，我认为睦是她要承担的责任，但也是唯一要承担 ...</blockquote>
+如果看到酒瓶子就润我是不会黑反而很理解大祥老师，因为解决父辈的酗酒问题本不该靠一个未成年人。大祥老师承担照顾祥父的责任不仅没有对她的人生有什么正面导向，反而让她在泥泞中挣扎甚至犯错了伤害了更多人，这就是我所看到的。大祥老师和祥父就是相同的一类人，你必须从她本人角度的出发才能感受到她笨拙的温柔，站在外人的角度看就是一团糟。
+
+*****
+
+####  ashero  
+##### 14738#       发表于 2025-1-31 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316044&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-31 01:09</a>
+
+没有祥子肯定没有最速武道馆。
+
+没有喵梦摘面具现在也不会炸团。</blockquote>
+最速武道馆靠的是丰川祥子 还是说祥子 现在是要打个问号的了
+
+*****
+
+####  古明地雷  
+##### 14739#       发表于 2025-1-31 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315977&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 01:02</a>
+第一集里，是喵梦揭的睦的面具的吧？
+
+造成睦的精神不稳定的根本原因是什么呢？ ...</blockquote>
+根本原因是喵梦，但直接原因是祥子啊，而且人喵梦跟睦不熟可以拍拍屁股就走，但祥子跟睦什么关系？说白了睦都这样了，就算祥子不是最后一击，那她不关心睦就合理吗？好歹关心一下彻底心死了再接这集的机器人剧情有啥不好
+
+*****
+
+####  盐盐盐盐盐  
+##### 14740#       发表于 2025-1-31 01:15
+
+讲道理本来这个企划就写不了什么正经商业戏，没那个能力知道，卖jk的企划，把jk的人物塑造整明白了就已经很好了，go好就好在不搞八股文不搞虚头巴脑的，虽然是闹麻了的一点小事但是里面折射的人之常情的感情体验值得观众共情，am这设定明显就没能力把握住，早点闹麻散团才能进入正题治愈jk纠葛，只是炒作调子起太高了这下再闹麻难免有很多观众不接受
+
+*****
+
+####  斯大林的拖拉机  
+##### 14741#       发表于 2025-1-31 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315900&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 00:54</a>
+邦邦世界观底层逻辑乐队不能超过5个人
+不过大概率和第四集一样是绫奈的烂炒，母鸡卡的剧本套路就是最后一定 ...</blockquote>
+不愧是大河内老师的首席大弟子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 14742#       发表于 2025-1-31 01:16
+
+这集让我观感回升的居然是祥子爹（当然也没回升多少，但至少有回升，不像别人在开倒车）
+
+很明显祥子爹在故意赶祥子走，祥子回来就酗酒进警察局，虽然酒罐子到处摆但祥子日常生活完全没有一点干涉（这酗酒了哪能相安无事啊），祥子回来收拾东西的时候还在装睡断绝祥子留念
+
+只能说确实跟祥子很像，想要对方好但完全不在意对方想法，自己也不表达，一股拧巴劲
+

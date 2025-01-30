@@ -1492,3 +1492,14 @@ cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼�
 哪怕实现了 ai能推理出来新技术新专利谁来落地和实现？美帝现在的工业真的有足够的人来理解这些新技术落地 ...</blockquote>
 当然是AGI控制的机器人来做啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liquer  
+##### 142#       发表于 2025-1-31 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314359&amp;ptid=2244642" target="_blank">zaozaoxx 发表于 2025-1-30 23:05</a>
+那么AGI和量子计算机哪个先出来，量子计算机近十年虽然说的不多，不过货真价实可能是美赢神器之一吧，这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">量子计算机闹钟布局得甚至比大模型早，而且有不同的路线和团队。真拉出来不知道是谁灭谁的神器
+话说去年拿了科技进步奖的那个清华薛副校长就是其中一条路线的关键人物
+
