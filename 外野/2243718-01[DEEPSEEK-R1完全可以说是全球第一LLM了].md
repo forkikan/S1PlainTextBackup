@@ -10310,3 +10310,34 @@ dsr搞不了黄色吧，太颠了。
 我是github拉的staging分支</blockquote>
 API能用了？这几天都连不上
 
+
+*****
+
+####  小止  
+##### 781#       发表于 2025-1-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308746&amp;ptid=2243718" target="_blank">dazzle 发表于 2025-1-30 11:35</a>
+
+API能用了？这几天都连不上</blockquote>
+昨天22点之后能偶尔出点，24点之后好像好很多了
+
+*****
+
+####  泰坦失足  
+##### 782#       发表于 2025-1-30 11:38
+
+360的DeepSeek地址是：[https://bot.n.cn/](https://bot.n.cn/)
+
+不是搜索结果的第一个 [https://www.n.cn/](https://www.n.cn/)，即使这个首页UI还有啥慢思考和深入回答按钮。同时首页也没进入AI助手的入口
+
+
+*****
+
+####  zerona  
+##### 783#       发表于 2025-1-30 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308770&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 11:38</a>
+
+昨天22点之后能偶尔出点，24点之后好像好很多了</blockquote>
+感谢通知。确实能用了。先凑合着用吧。
+

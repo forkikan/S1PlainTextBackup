@@ -891,3 +891,76 @@ deepseek让任何人都能用买一辆车的钱部署一个属于自己的超级
 我说了，硬件可塑性和软件可塑性是两码事，碳基生物需要靠硬件的神经可塑性实现的功能比如学会一门新的语 ...</blockquote>
 说的是能效和运行速度优势啊你到底在说啥
 
+
+*****
+
+####  bonbonfox  
+##### 83#       发表于 2025-1-30 11:36
+
+死棋进入尾盘了，掀桌子做不到，除了拖还能怎么办？现在拖也拖不了了，估计更离谱的还有的看。。。
+
+*****
+
+####  万恶淫猥手  
+##### 84#       发表于 2025-1-30 11:37
+
+“技术专家在技术较量中觉得我他妈需要开地缘政治的外挂”
+
+*****
+
+####  云卷花开  
+##### 85#       发表于 2025-1-30 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说句实在话，你人类也做不到自我迭代，人类的智能是一个运行在自然界亿年为单位迭代出来的复杂硬件上的函数，人类所谓的智能活动始终只是在这个函数输入的上下文上做文章，这个函数本身的全貌人类至今也没概念，人类既没有本事去调整硬件，也没本事去调整软件，要不然也不至于拿拟合这种方式尝试大力砖飞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  雨昼斯基  
+##### 86#       发表于 2025-1-30 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308489&amp;ptid=2244642" target="_blank">prattwhitney 发表于 2025-1-30 11:01</a>
+实际上“我相信我马上能搞出AGI”和“我不相信AGI是可能的”，这本来就是“我信上帝我是天选之子”和“我不 ...</blockquote>
+希望别人相信他能把AGI做出来，但他自己知道agi出来被取代的第一个就是他自己
+希望别人相信他就是上帝天选，但他自己知道上帝真存在第一个灭的就是他自己
+此乃犬儒意识形态的矛盾双面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  montanaB  
+##### 87#       发表于 2025-1-30 11:40
+
+<blockquote>小田切宁宁 发表于 2025-1-30 02:08
+帝国就这么坚信一定能搞出AGI
+
+这到底是哪来的自信啊</blockquote>
+帝国将倾，非法即经。
+
+现在agi相对于帝国来说已经不再是一个产品，而是一个解释自己合法性的经文，所以他只能成功，不可以失败，一旦失败，那是会动摇对高科技世界的释经权的大事
+
+*****
+
+####  宏.  
+##### 88#       发表于 2025-1-30 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308689&amp;ptid=2244642" target="_blank">Mafise 发表于 2025-1-30 11:28</a>
+
+说的是能效和运行速度优势啊你到底在说啥</blockquote>
+跑迷宫再快的老鼠也是老鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种所谓优势在你家做饭用的电磁炉都1kw起步的时候有什么意义可研吗
+
+*****
+
+####  深空坍缩  
+##### 89#       发表于 2025-1-30 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308417&amp;ptid=2244642" target="_blank">宏. 发表于 2025-1-30 10:49</a>
+
+你觉得不到，那你怎么证明？这事在AGI搞出来之前谁也没法下定论
+
+就减轻工作压力这个问题，你看小画师怎 ...</blockquote>
+主楼的内容是要搞百万卡，还不止一家公司要搞百万卡，也就是说他这个层面的人认为百万卡是通向AGI所必需的，那问题来了，电够用吗？建电厂要多少时间，散热还要水，还要风，还要在海底，还要在溶洞<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">散热中心要建多久呢，而且百万卡真的够用吗？
+
