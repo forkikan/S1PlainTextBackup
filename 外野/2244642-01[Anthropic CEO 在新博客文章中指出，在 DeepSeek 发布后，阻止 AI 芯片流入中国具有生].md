@@ -1031,3 +1031,29 @@ LLM这条路实现AGI的可能性为零</blockquote>
 主楼的内容是要搞百万卡，还不止一家公司要搞百万卡，也就是说他这个层面的人认为百万卡是通向AGI所必需 ...</blockquote>
 百万卡你这就别当真了，还是那个问题，知道需要卡很多，需要多少不一定
 
+
+*****
+
+####  小妻水亚美  
+##### 97#       发表于 2025-1-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308837&amp;ptid=2244642" target="_blank">montanaB 发表于 2025-1-30 11:48</a>
+这个问题要这么看，首先人的大脑到底是什么原理，我们其实是没搞清楚的。但是是不是非得搞清楚这个原理才 ...</blockquote>
+但是选择固定翼这条路线也是在发现了伯努利原理和有大量滑翔机积累飞行数据这些前提。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我反正不信5 6年就可以实现AGI
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  体制  
+##### 98#       发表于 2025-1-30 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307716&amp;ptid=2244642" target="_blank">onezeron 发表于 2025-1-30 07:23</a>
+我确实学历不高，跟常春藤和顶校的phd没法比，跟这种ceo也没法比但是我很确定的一个是，我们假设，就算实现 ...</blockquote>
+你的预设是错误的。
+美国那几万个顶级智商压根就不在决策层。
+美国的决策层是一群靠现代资本贵族裙带和推荐信的白痴组成，可悲的是真正有见识的高智商人士只配给他们提供数据。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

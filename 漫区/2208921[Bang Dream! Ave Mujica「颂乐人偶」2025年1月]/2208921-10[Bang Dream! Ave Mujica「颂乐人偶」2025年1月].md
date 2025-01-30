@@ -2926,3 +2926,60 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 接下来只有速胜转速败烂完了的投降派和大的还没来大的在后头的大本营派大乱斗
 至于能接受觉得还行的估计得等这两派杀完了不说话了声音才能从被淹没的泥潭中间发出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 13592#       发表于 2025-1-30 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309110&amp;ptid=2208921" target="_blank">YU_JI 发表于 2025-1-30 12:17</a>
+有没有剧透省流，懒得去登尼姑庵了（）</blockquote>
+[紫吧链接，有图透](https://tieba.baidu.com/p/9454930302?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.78.0.1&amp;st=1738210740&amp;is_video=false&amp;unique=1EE709AFF5299AAB17382FC954682D23)
+
+*****
+
+####  akiomn  
+##### 13593#       发表于 2025-1-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309110&amp;ptid=2208921" target="_blank">YU_JI 发表于 2025-1-30 12:17</a>
+有没有剧透省流，懒得去登尼姑庵了（）</blockquote>
+狗团全员登场，素世对线睦，爱灯跑到祥子家去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间线跳了整整一个月，这一个月没人管这状态的睦……
+
+
+*****
+
+####  凉良  
+##### 13594#       发表于 2025-1-30 12:25
+
+已经有人不反白剧透了 可以直接贷款喷了么
+
+*****
+
+####  稀勢のささ  
+##### 13595#       发表于 2025-1-30 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌了
+
+*****
+
+####  天空塔书记官  
+##### 13596#       发表于 2025-1-30 12:26
+
+ 本帖最后由 天空塔书记官 于 2025-1-30 12:28 编辑 
+
+真正的爆点在第七集，看看对不对得起这么嗯搞幺蛾子吧，如果第七集反转的不好，ave真就烂一半了，现在才哪到哪啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 13597#       发表于 2025-1-30 12:27
+
+这时候下来救火，恐怕后面还得再炸两回，很符合还有个大和初华最后爆的设计。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
