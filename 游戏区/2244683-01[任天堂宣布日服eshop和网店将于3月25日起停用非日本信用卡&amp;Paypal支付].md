@@ -836,3 +836,75 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 没用过信用卡，点卡不受影响就行
 
+
+*****
+
+####  Tachikoma88  
+##### 90#       发表于 2025-1-30 17:37
+
+港服人无所谓了
+
+*****
+
+####  QYMtutututu  
+##### 91#       发表于 2025-1-30 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311157&amp;ptid=2244683" target="_blank">clyde-wang 发表于 2025-1-30 17:29</a>
+
+你是不是amazon.com进去的？你试试amazon.jp进去看看呢？
+
+我刚试了下招行JCB买了1000日元点卡可以的 ...</blockquote>
+一直都是amazon.co.jp进去
+
+
+*****
+
+####  姐霓姐霓  
+##### 92#       发表于 2025-1-30 17:40
+
+总不可能是国行ns2又想搞点骚操作吧
+
+*****
+
+####  何处可分  
+##### 93#       发表于 2025-1-30 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实也就是国人影响最大，因为日服eshop好像也就对中国和新加坡的paypal信用卡提供开放，欧美的卡从一开始就不支持绑定支付
+
+*****
+
+####  lion_or_judas  
+##### 94#       发表于 2025-1-30 17:43
+
+<blockquote>QYMtutututu 发表于 2025-1-30 17:25
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的
+</blockquote>
+和我一样的问题呢
+
+*****
+
+####  lion_or_judas  
+##### 95#       发表于 2025-1-30 17:45
+
+<blockquote>wfhtony 发表于 2025-1-30 17:34
+日亚的话，要把地址簿中的日本地址设置为常用地址（即「既定の住所に設定」）。 ...</blockquote>
+可以试试，之前只是下单选的日本地址
+
+*****
+
+####  oi99o  
+##### 96#         楼主| 发表于 2025-1-30 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311133&amp;ptid=2244683" target="_blank">QYMtutututu 发表于 2025-1-30 17:25</a>
+
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的</blockquote>
+你是在哪一步报错，是点了注文确定之后吗？
+

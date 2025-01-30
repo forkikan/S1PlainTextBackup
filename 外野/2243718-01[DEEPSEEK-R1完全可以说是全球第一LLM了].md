@@ -10929,3 +10929,27 @@ Git hub和perplexity的代理我都用了，远远不行
 官网的API一直不正常，第三方的API反而是正常的，神秘</blockquote>
 啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。
 
+
+*****
+
+####  泰坦失足  
+##### 835#       发表于 2025-1-30 17:42
+
+DeepSeek R1 is now available on Azure AI Foundry and GitHub
+[https://azure.microsoft.com/en-u ... foundry-and-github/](https://azure.microsoft.com/en-us/blog/deepseek-r1-is-now-available-on-azure-ai-foundry-and-github/)
+
+DeepSeek R1 现已在 Azure AI Foundry 和 GitHub 的模型目录中上线，加入了超过 1,800 个模型的多样化组合，包括前沿、开源、行业特定和基于任务的 AI 模型。作为 Azure AI Foundry 的一部分，DeepSeek R1 可在一个可信、可扩展且企业级的平台**问，使企业能够无缝集成先进的 AI，同时满足服务水平协议、安全性和负责任的 AI 承诺——这一切都得到了微软的可靠性和创新的支持。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">价格是最好的必杀技. 甚至现在Preview阶段直接API Free
+
+*****
+
+####  泰坦失足  
+##### 836#       发表于 2025-1-30 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310936&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-1-30 16:52</a>
+
+那个是deepseek放的蒸馏模型。。能力是比不上真正的R1的，估计是32B的qwen蒸馏
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+有啥明显不同的问题吗，我用了一个晚上来着。
+

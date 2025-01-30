@@ -1219,3 +1219,19 @@ agi就算能实现自我迭代、实现科研全自动，成果落地还是大�
 
 不是，就算你搞出AGI又能怎么了，这个世界始终是物质的世界啊，AGI能做啥？能替政客做决定？能全部替换产业工人？能换掉士兵？要是到时候AGI告诉他们合作双赢才是唯一出路，闭关锁国是唯一死路你阿妹是接还是不接啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fanisy  
+##### 114#       发表于 2025-1-30 17:38
+
+连在reddit都被喷爆了，几百个回复居然没看到“不能给数据ccp”之类
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 115#       发表于 2025-1-30 17:43
+
+这种默认东大造不出高端芯片才是最大的傲慢吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">滑稽
+
