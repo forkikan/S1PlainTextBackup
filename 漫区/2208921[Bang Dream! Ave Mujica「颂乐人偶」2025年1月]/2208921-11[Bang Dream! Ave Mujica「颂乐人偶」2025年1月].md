@@ -278,3 +278,258 @@
 不是啊，你就给牢C队友全磕出血了又咋样，磕完了都JB姐妹，丰川家大手太温暖了大家再命运共同体重组牢C? ...</blockquote>
 美强惨入脑了。这只是一条可能的分支，甚至到第二集就消失的写法。
 
+
+*****
+
+####  古明地雷  
+##### 14827#       发表于 2025-1-31 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316241&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-31 01:28</a>
+那就基调就变成了还在想着突出她的人格魅力了，但很明显这几集是完全没有打算给她塑造任何人格魅力的，把 ...</blockquote>
+没打算塑造任何人格魅力，这样的女主角真的存在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木箱钦定的“明明在走钢丝却想拉对方”前几集确实是真的，这集看完不好说了
+
+*****
+
+####  庸necro  
+##### 14828#       发表于 2025-1-31 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316428&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 01:46</a>
+数一下还没启用的伏笔:有第四集画面的红光电视、祥子和木头童年约定给母亲的表演、初中时的海铃、还在岛上 ...</blockquote>
+mygo13集灯给祥子递的诗长什么样真的很好奇<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhigui  
+##### 14829#       发表于 2025-1-31 01:49
+
+<img src="https://img.saraba1st.com/forum/202501/31/014931y7tdvmt5557dtx5m.jpg" referrerpolicy="no-referrer">
+
+<strong>VBM9{RVYVA}DS)1AO3W6QHU.jpg</strong> (26.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 14830#       发表于 2025-1-31 01:50
+
+祥子的脖子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/31/014810icpp2lptttzcvwqc.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-01-31_01-47-54.jpg</strong> (100.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:48 上传
+
+本话祥子有五处比较明显的动容
+
+<img src="https://img.saraba1st.com/forum/202501/31/014314o4glefc5gztcn5f4.jpg" referrerpolicy="no-referrer">
+
+<strong>动容1.jpg</strong> (219.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:43 上传
+
+看到纸条，这里最大，落泪了
+
+<img src="https://img.saraba1st.com/forum/202501/31/014319r4xuarvavuav4ayv.jpg" referrerpolicy="no-referrer">
+
+<strong>动容2.jpg</strong> (189.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:43 上传
+
+黑衣人不拦爱音
+
+<img src="https://img.saraba1st.com/forum/202501/31/014325lrpkskh4qssq4smr.jpg" referrerpolicy="no-referrer">
+
+<strong>动容3.jpg</strong> (172.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:43 上传
+
+灯甚至跟进来了
+
+<img src="https://img.saraba1st.com/forum/202501/31/014329axxn1qqf1st1thsn.jpg" referrerpolicy="no-referrer">
+
+<strong>动容4.jpg</strong> (215.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:43 上传
+
+这里动作非常小，看了好多次发现皱了一下眉，并不是面无表情
+
+<img src="https://img.saraba1st.com/forum/202501/31/014333nyu4645lpy43py6s.jpg" referrerpolicy="no-referrer">
+
+<strong>动容5.jpg</strong> (138.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 01:43 上传
+
+*****
+
+####  hol_effect  
+##### 14831#       发表于 2025-1-31 01:51
+
+小陀螺上一集都直接用手挡小莫来保护自己了，可能真被吓出PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 14832#       发表于 2025-1-31 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316438&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 01:48</a>
+
+没打算塑造任何人格魅力，这样的女主角真的存在吗木箱钦定的“明明在走钢丝却想拉对方”前几集确实是真的 ...</blockquote>
+有啥不好说的，走钢丝的时候确实都想拉住对方，但是这不乐队一解散两人就从钢丝上掉下去了吗
+
+
+*****
+
+####  嵇翱u  
+##### 14833#       发表于 2025-1-31 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316355&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-31 01:37</a>
+那我们不如把木头当副人格做掉算了</blockquote>
+最怕的就是编剧真这么想<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+之前的睦头有什么特色吗，牢莫这不比睦头吸精多了，而且mygo时期也没啥塑造，到时候大手一挥，融合之后牢莫为主了
+
+*****
+
+####  伞木希美  
+##### 14834#       发表于 2025-1-31 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316349&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-31 01:37</a>
+
+只从第四集出现的画面来说，是否解散的票型已经是3：1了，祥子自己由于睦的问题已经弃权了，与其说默许不 ...</blockquote>
+海玲初华不都在想办法吗，大莫老师当精神病的话就不算票，大喵老师要的是个解决方案，如果大祥老师选了的话也不会后面暴论。
+
+大祥老师要是非要音乐性，为什么不选海玲的代打呢，睦缺席一场天又塌不下来。演唱会之后该谈心谈心该去医院去医院呗。然后大祥老师又要音乐性又要非得这五个人（而且必须是这五个人不缺席*任何*一场演出），把乐队解散了，又没有音乐性又没有五个人了，而且解散之后连睦都不管了，这剧情抽不抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 14835#       发表于 2025-1-31 01:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说吧，有个底边的dota2主播，忽然有一天有跑过来说他出场地出资源，1234号位都找好了 ，就差你过来包鸡包眼在泉水挂机了。
+
+你就这么去了，结果比赛一直赢到了major，你嫌弃没流量，开始在直播间里爆战队其他人的私生活，导致全队被网爆。
+
+最终结果是战队的一个成员就这么发神经了打不了dota2，战队就这么解散了。
+
+责任在谁？
+
+*****
+
+####  天空塔书记官  
+##### 14836#       发表于 2025-1-31 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316440&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 01:48</a>
+mygo13集灯给祥子递的诗长什么样真的很好奇
+
+—— 来自 鹅球 v3.3.96</blockquote>
+歌いましょう鳴らしましょう
+
+（一同歌唱一同奏响）
+
+也许会是这首<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 14837#       发表于 2025-1-31 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316455&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-31 01:50</a>
+
+祥子的脖子</blockquote>
+爱音上车这段真有点抽象的，正常来说应该是默认祥子不开口就是不让进吧，这里居然是不开口就默认让爱音进了
+
+*****
+
+####  thisisaspider  
+##### 14838#       发表于 2025-1-31 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316393&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 01:41</a>
+
+兄弟，那你可以试着推演一下，会发现几条思路都非常油麦，比如圣爱音来了救了，灯皇来了救了，自己想通救 ...</blockquote>
+灯平白无故为什么来救祥。灯救祥时编剧还特地加了新回忆干嘛，灯这种灵感的人看到祥子家都要哭了，她感受到什么，她是处于同情来救祥的吗？后面海铃谁拉，初华谁拉，喵梦谁拉。
+
+灯祥展开，编剧明显有备而来好吧。
+
+*****
+
+####  岬开斗  
+##### 14839#       发表于 2025-1-31 01:56
+
+<blockquote>伞木希美 发表于 2025-1-31 01:52
+海玲初华不都在想办法吗，大莫老师当精神病的话就不算票，大喵老师要的是个解决方案，如果大祥老师选了的 ...</blockquote>
+其实你去看前几集，每集都这样，结尾爆个大的，然后下一集开头不咸不淡，一细想全是bug。
+
+不知道是不是编剧团队有什么奇怪的KPI。
+
+*****
+
+####  ashero  
+##### 14840#       发表于 2025-1-31 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316467&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-31 01:52</a>
+
+海玲初华不都在想办法吗，大莫老师当精神病的话就不算票，大喵老师要的是个解决方案，如果大祥老师选了的 ...</blockquote>
+音乐性和五个人其实都不是问题 问题是非得把气球吹到最速武道馆大红大紫 你不炸谁炸 老登不兜底谁兜底 就很都和 就是为了成为银河战舰级别来炸 
+
+
+*****
+
+####  wpcc  
+##### 14841#       发表于 2025-1-31 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316489&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-31 01:56</a>
+
+其实你去看前几集，每集都这样，结尾爆个大的，然后下一集开头不咸不淡，一细想全是bug。
+
+不知道是不是编 ...</blockquote>
+你好 有的 有的 要炸到10为止
+
+*****
+
+####  不知道大佐  
+##### 14842#       发表于 2025-1-31 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316133&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-1-31 01:16</a>
+
+那你意思是牢祥就该放着木头让她自己疯球然后跳了？
+
+真这样那可真是比起c团解散切割时一点长进都没有，甚 ...</blockquote>
+我的意思是，祥子要是有办法救木头，那自然是最好。但是现在最大的问题是，在祥子的眼里，木头人完全就是一种亚空间邪神上身的状态，soyorin看了吓的腿都软了，这种情况下祥子又要怎么去救木头呢？
+
+至于说祥子在人际交往能力上没有长进，那确实没有长进，我也觉得没有长进。但你要说祥子更不是人，那我觉得是胡扯。
+
+祥子从小对木头的陪伴显然是对于木头的病有积极作用的，我的评价是祥子对木头做的已经够多了。换做是别的人，会有人愿意十几年陪着一个话都说不明白的潜在精神病患者做朋友吗？换做是你你愿意吗（不考虑木头的颜值的情况下）？这种情况下祥子实际上并不亏欠木头什么。祥子能把木头治好是姐妹情分，治不好的话这本来也不是祥子的义务，祥子怎么就不是人了呢？
+
+*****
+
+####  刑部姬真可爱  
+##### 14843#       发表于 2025-1-31 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316467&amp;ptid=2208921" target="_blank">伞木希美 发表于 2025-1-31 01:52</a>
+
+海玲初华不都在想办法吗，大莫老师当精神病的话就不算票，大喵老师要的是个解决方案，如果大祥老师选了的 ...</blockquote>
+想办法的环节已经过了，到了解散的环节就是3：1
+
+而且祥子当时也没说什么音乐性表演性的路线之分，她只说了想让睦回来，已经不是在解决问题的状态了
+
