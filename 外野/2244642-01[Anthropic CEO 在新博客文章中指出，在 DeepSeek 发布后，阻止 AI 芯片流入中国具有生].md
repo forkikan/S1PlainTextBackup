@@ -1481,3 +1481,14 @@ cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼�
 
 世界是物质的，人类和人类社会终究要生活在物质世界。美帝的问题是去工业化
 
+
+*****
+
+####  gammatau  
+##### 141#       发表于 2025-1-31 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312086&amp;ptid=2244642" target="_blank">glilg1 发表于 2025-1-30 19:44</a>
+
+哪怕实现了 ai能推理出来新技术新专利谁来落地和实现？美帝现在的工业真的有足够的人来理解这些新技术落地 ...</blockquote>
+当然是AGI控制的机器人来做啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
