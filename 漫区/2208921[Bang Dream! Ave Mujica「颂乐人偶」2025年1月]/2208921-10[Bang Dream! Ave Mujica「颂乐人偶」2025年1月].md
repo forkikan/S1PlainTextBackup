@@ -10301,3 +10301,473 @@ soyo恐怕真觉得是自己拷打了睦导致睦精神出了问题然后母鸡�
 
 好吧我们二刺螈这和感冒差不多
 
+
+*****
+
+####  fsfs_freeze  
+##### 14351#       发表于 2025-1-30 23:26
+
+十五年未有之大女主：千早爱音！
+
+*****
+
+####  newtroll  
+##### 14352#       发表于 2025-1-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314711&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-30 23:24</a>
+
+soyo这是把睦疯了的锅都揽自己头上的感觉，期待得知真相后的反应
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我觉得挺好的，如果soyo能因此对祥子去魅，专心和爱睦过日子那太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 14353#       发表于 2025-1-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314711&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-30 23:24</a>
+
+soyo这是把睦疯了的锅都揽自己头上的感觉，期待得知真相后的反应
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+信息差，信息差还在输出
+
+*****
+
+####  jaewoongh_  
+##### 14354#       发表于 2025-1-30 23:28
+
+第6集唯一可以确定的就是素睦党能吃顿好的
+
+*****
+
+####  thisisaspider  
+##### 14355#       发表于 2025-1-30 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314657&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 23:21</a>
+
+和真嗣比天壤之别，也只有妈去世爹脑子有病的部分一样。真嗣那是他失败就会自己死还捎带上人类的地狱难度 ...</blockquote>
+有几个假选择。组C团可以自己选，离家出走没得选，退C团没得选，去初华家也不能算自己选。
+
+*****
+
+####  大户爱  
+##### 14356#       发表于 2025-1-30 23:28
+
+海玲也冷漠得不像个人类。
+前面一点粘合的作用也没有，隐隐约约帮喵梦拉偏架。无视睦这个精神病人也有她的一份。
+
+后面有什么反转不说，感觉前面几集就初华稍微像个正常人，就是圣质如初，蠢了一点。
+
+*****
+
+####  古明地雷  
+##### 14357#       发表于 2025-1-30 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314652&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 23:21</a>
+她连灯都可以割舍，灯没做错过什么但祥子在羽丘就是会无视灯，她一直就是这样的人设，我早就看出来她这个 ...</blockquote>
+她跟ccc可以说想切割，唯独跟睦一直在一起，这集硬生生不联系太离谱了
+
+*****
+
+####  柴突猛进  
+##### 14358#       发表于 2025-1-30 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314784&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-1-30 23:28</a>
+海玲也冷漠得不像个人类。
+前面一点粘合的作用也没有，隐隐约约帮喵梦拉偏架。无视睦这个精神病人也有她的 ...</blockquote>
+海玲的塑造就是看出来母鸡卡要炸而且救不回来了，所以推波助澜了希望早点炸，别磨蹭了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhigui  
+##### 14359#       发表于 2025-1-30 23:30
+
+灯让祥子来组乐队
+
+→bangbang有不是五人团的吗
+
+→那不就是要踢一个人吗
+
+→优化那肯定优化爱音啊
+
+在场的爱音听到灯的话后：？那我呢
+
+当时看结尾惊天一吼的心路历程
+
+*****
+
+####  Fakerの幻影  
+##### 14360#       发表于 2025-1-30 23:30
+
+坏了，哭来西裤难道要复辟了？
+
+
+*****
+
+####  oneoutsider  
+##### 14361#       发表于 2025-1-30 23:30
+
+海玲作为超级雇佣兵有点置身度外还能理解，其他四人的冷漠只能说编辑的刻意吧，尤其睦作为祥子的青梅竹马，上集还能说因为组乐队忽略了睦的异常，现在乐队解散了祥子真的就一次也没想到睦具体什么情况吗，让人寒心。
+
+*****
+
+####  iiiiiiiiii  
+##### 14362#       发表于 2025-1-30 23:31
+
+<blockquote>zhigui 发表于 2025-1-30 23:30
+灯让祥子来组乐队
+
+→bangbang有不是五人团的吗
+
+→那不就是要踢一个人吗
+</blockquote>
+就不能六个人吗？
+
+*****
+
+####  Tienx  
+##### 14363#       发表于 2025-1-30 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦进团也不难，搞定睦就行
+
+*****
+
+####  厚乳果珍爽  
+##### 14364#       发表于 2025-1-30 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314733&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-30 23:25</a>
+
+我一直猜想这就是《祥子的世界》来着，如此确实是可以解释各种不合理的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一再来一个爆炸性新闻，海玲其实是tgw派来的内鬼，就是来炸团的也不一定。
+
+*****
+
+####  Lyzers  
+##### 14365#       发表于 2025-1-30 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十二三集的动画前五集是这么个状态，究竟怎么反转才能把这前面的内容反转过来啊，下一集来个梦结局一切reset我都觉得是个办法了
+
+*****
+
+####  柴突猛进  
+##### 14366#       发表于 2025-1-30 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥子家里难道不就两位准备组乐队的人类还有一只粉色奶龙嘛，没多人啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一个陆仁贾  
+##### 14367#       发表于 2025-1-30 23:31
+
+祥子加入狗团，被初华看到，然后初华炸了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Mr.shelter  
+##### 14368#       发表于 2025-1-30 23:31
+
+大喵老师有关注度了还在刻苦练琴不就说明她还是有回来的可能的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 14369#       发表于 2025-1-30 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314753&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-30 23:26</a>
+
+十五年未有之大女主：千早爱音！</blockquote>
+说实话，这集的观感明显好于前四集，但也成功彰显了前四集（尤其是ep4）实际上有多么抽象。
+
+所以独角兽大人名为炸团的契柯夫之枪已经声响，后面能好好写女女关系性和音乐了吗？
+
+只可惜团里有些人的形象已经像是完全挽救不回来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 14370#       发表于 2025-1-30 23:31
+
+爱音现在能确定有超能力了吧
+
+百分百能进别人家的超能力！
+
+只要有机会一定能被带回家
+
+就算对方是完全不熟的大小姐
+
+*****
+
+####  TAQ  
+##### 14371#       发表于 2025-1-30 23:31
+
+海和希都很稳定，一个稳定的心之壁，一个稳定的灯厨
+
+*****
+
+####  570898  
+##### 14372#       发表于 2025-1-30 23:31
+
+最后的最后，让我们结束这场闹剧。
+
+违约金年后就会全部给公司。
+
+损失的钱我的家长已经替我承担。
+
+本人的所有账号都会在近期逐步停止运营。
+
+所有的粉丝团都会在近期逐步解散。
+
+《Ave Mujica》这个世界我将会重新对其评估，调整设定。
+
+最后，感谢大家一直以来的关注，我的故事就到此结束了。
+
+再见
+
+*****
+
+####  iiiiiiiiii  
+##### 14373#       发表于 2025-1-30 23:31
+
+<blockquote>oneoutsider 发表于 2025-1-30 23:30
+海玲作为超级雇佣兵有点置身度外还能理解，其他四人的冷漠只能说编辑的刻意吧，尤其睦作为祥子的青梅竹马， ...</blockquote>
+祥子现在状态和睦有啥区别，自己都没有办法了。跟行尸走肉一般
+
+*****
+
+####  Asimot  
+##### 14374#       发表于 2025-1-30 23:32
+
+我要替海玲说句话，我喜欢的女人喜欢的女人不喜欢我喜欢的女人，老娘就是来弹bass的，现在又是舞台剧又是炸团，还要负责运营排班，难道还要负责照顾神经病？
+
+
+*****
+
+####  aptx8285144  
+##### 14375#       发表于 2025-1-30 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314809&amp;ptid=2208921" target="_blank">oneoutsider 发表于 2025-1-30 23:30</a>
+
+海玲作为超级雇佣兵有点置身度外还能理解，其他四人的冷漠只能说编辑的刻意吧，尤其睦作为祥子的青梅竹马， ...</blockquote>
+但是大瞄前四话我印象当中和其他几个人感情交流也很少，初华和大祥，初华和睦都有一些
+
+*****
+
+####  ntrntr1  
+##### 14376#       发表于 2025-1-30 23:32
+
+<blockquote>Ferrari 发表于 2025-1-30 23:23
+大喵个人事业已经起飞了
+
+想让她回去估计得跪下去抱腿</blockquote>
+喵打鼓明显还惦记着母鸡卡吧
+
+甚至变成了睦深柜。。。她大概真觉得睦是演的被演技深深震撼了
+
+可惜睦一心只有祥子捏
+
+*****
+
+####  zhigui  
+##### 14377#       发表于 2025-1-30 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314818&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-30 23:31</a>
+
+就不能六个人吗？</blockquote>
+我当时第一反应确实是这样的
+
+被思维定式套住了
+
+*****
+
+####  drrrrrrrr  
+##### 14378#       发表于 2025-1-30 23:32
+
+初华那个表情难道是看到了6人版春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 14379#       发表于 2025-1-30 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314747&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-30 23:26</a>
+
+但人格解离是超级严重的精神疾病了喂
+
+好吧我们二刺螈这和感冒差不多</blockquote>
+有病那也是监护人先负责啊，若叶家总不能是请不起医生的家境吧。母鸡卡炸了后祥子确实称得上心如死灰，她要是这还能去关心睦那母鸡卡从一开就散不了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14380#       发表于 2025-1-30 23:32
+
+祥子和睦的关系就像是开了自动跟随，只要断了电，这功能就不起作用了，现在木头和祥子都自己拉了闸，所以会变成这样还挺正常的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 14381#       发表于 2025-1-30 23:33
+
+某种程度上这一话才是avemujica的第一话，炸团后重新开始的乐队。
+
+*****
+
+####  柴突猛进  
+##### 14382#       发表于 2025-1-30 23:33
+
+千早爱音：最有效的开盒方式就是跟别人跟到家里去，大家学会了嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刑部姬真可爱  
+##### 14383#       发表于 2025-1-30 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314784&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-1-30 23:28</a>
+
+海玲也冷漠得不像个人类。
+
+前面一点粘合的作用也没有，隐隐约约帮喵梦拉偏架。无视睦这个精神病人也有她的 ...</blockquote>
+经历过可能20支乐队的解散，这次队友也全是神人，很难不冷漠甚至可能希望赶紧散了得了
+
+*****
+
+####  JustW  
+##### 14384#       发表于 2025-1-30 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314782&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 23:28</a>
+有几个假选择。组C团可以自己选，离家出走没得选，退C团没得选，去初华家也不能算自己选。 ...</blockquote>
+说是没得选，但祥子总是可以选择放下自己的尊严说两句话少伤害人，退C团可以但非要炸到全员心理阴影，车站扔下睦也是意识到自己失言也是一句不解释直接跑，搬出初华家也是偷偷提包就走一个招呼不打，这张嘴也只有做客服的时候能张开
+
+*****
+
+####  ntrntr1  
+##### 14385#       发表于 2025-1-30 23:34
+
+商业乐队只有塑料同事情倒是挺正常的。。。
+
+主要是这说解散就解散一点都不商业乐队
+
+*****
+
+####  柴突猛进  
+##### 14386#       发表于 2025-1-30 23:34
+
+邦邦世界观没有六个人的团难道不是因为游戏里只能上五张卡嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 14387#       发表于 2025-1-30 23:34
+
+还是那句话，二次元的多重人格你不能当成个需要看医生的精神疾病来看，只能当成设定，二次元从来没有看医生治好的精神病。
+
+*****
+
+####  莉缇娅  
+##### 14388#       发表于 2025-1-30 23:34
+
+看完了， 有点吓人。
+
+初华怎么看起来是纯的，不是什么大的要来了，她是真的忠犬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 14389#       发表于 2025-1-30 23:34
+
+<blockquote>Ferrari 发表于 2025-1-30 23:23
+大喵个人事业已经起飞了
+
+想让她回去估计得跪下去抱腿</blockquote>
+喵梦会有回旋镖等着的，到时候谁抱谁我不好说。
+
+*****
+
+####  杂灰  
+##### 14390#       发表于 2025-1-30 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314790&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-30 23:28</a>
+
+她跟ccc可以说想切割，唯独跟睦一直在一起，这集硬生生不联系太离谱了</blockquote>
+我觉得关系闹成这样不见面反而蛮正常的.......两边都超尴尬说实话
+
+*****
+
+####  凉良  
+##### 14391#       发表于 2025-1-30 23:35
+
+这集搞了那么久祥子默剧像表现祥子也坏掉的状态，但是楼友都不买账。 至少可以说明演绎结果稀烂了吧
+
+*****
+
+####  Mikumiku831  
+##### 14392#       发表于 2025-1-30 23:35
+
+你怎么不能判断是墨提斯不愿意见祥子 她都说她讨厌祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 14393#       发表于 2025-1-30 23:35
+
+实际上第四集删了根本不影响任何发展，嗯造个双重人格光速瘪了那跟主人格直接崩溃有什么区别？这个设定只凸显队友有多么冷漠，甚至上集祥子的自我反省想让睦回来也完全没有在这集体现，那第四集的意义是啥？直接睦因为断线崩溃了再也弹不出吉他不就可以了吗
+
+*****
+
+####  厉飞雨  
+##### 14394#       发表于 2025-1-30 23:35
+
+有个评论说得好，这么多人里面唯一知道找医生的居然是牢莫<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yicihanshu  
+##### 14395#       发表于 2025-1-30 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314806&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-30 23:30</a>
+灯让祥子来组乐队
+
+→bangbang有不是五人团的吗
+
+→那不就是要踢一个人吗</blockquote>
+？灯一开始一个人都能上台念诗，为什么不能一个主唱加键盘组个队
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhzij111  
+##### 14396#       发表于 2025-1-30 23:35
+
+给莫提斯都干的想自杀了，你们这个鸡团真只剩海铃一个正常人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 14397#       发表于 2025-1-30 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314809&amp;ptid=2208921" target="_blank">oneoutsider 发表于 2025-1-30 23:30</a>
+
+海玲作为超级雇佣兵有点置身度外还能理解，其他四人的冷漠只能说编辑的刻意吧，尤其睦作为祥子的青梅竹马， ...</blockquote>
+真成了“你有一个很棒的发小”了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上集局面烂成那样了唯一的念想就是让睦回来，转过头来这集是啥也没干啊，合着你搞砸了就挂机等着睦泉水复活是吧？
+

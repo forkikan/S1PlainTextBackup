@@ -1431,3 +1431,13 @@ closeai自己数据版权就一屁股屎
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">比起2-3年搞出agi，我还不如相信老中2-3年搞出euv，扩大到五年也一样
 
+
+*****
+
+####  小田切宁宁  
+##### 136#       发表于 2025-1-30 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314359&amp;ptid=2244642" target="_blank">zaozaoxx 发表于 2025-1-30 23:05</a>
+那么AGI和量子计算机哪个先出来，量子计算机近十年虽然说的不多，不过货真价实可能是美赢神器之一吧，这个 ...</blockquote>
+量子计算机更是没影的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

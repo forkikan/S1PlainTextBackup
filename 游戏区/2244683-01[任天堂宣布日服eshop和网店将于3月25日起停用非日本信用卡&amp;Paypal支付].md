@@ -1380,3 +1380,27 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 我记得家庭会员要信用卡或者paypal吧，这调整后之前的家庭会员续费也没了？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 145#       发表于 2025-1-30 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314566&amp;ptid=2244683" target="_blank">君往何处 发表于 2025-1-30 23:16</a>
+
+我记得家庭会员要信用卡或者paypal吧，这调整后之前的家庭会员续费也没了？ ...</blockquote>
+看来是只能建个专门开会员的港服账号
+
+
+*****
+
+####  liekong  
+##### 146#       发表于 2025-1-30 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313114&amp;ptid=2244683" target="_blank">完美的消费品 发表于 2025-1-30 22:10</a>
+日区账号转美区
+异度之刃2的dlc和云存档是不是都等于废了，毕竟美区没有中文</blockquote>
+没影响，像这种语言锁区游戏不同区不是一个sku
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
