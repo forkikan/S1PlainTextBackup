@@ -773,3 +773,168 @@ mygo13集灯给祥子递的诗长什么样真的很好奇
 其实第5集已经是鸡动画里情绪流最自然的一集了，引发这么大争议主要还是坐实了第4集最后酒馆那段伪人表演就 ...</blockquote>
 是的，这集接上集不行。单集接CPART也不行，实际上和第6集强关联。现在评价任意一个角色都可能吃回旋镖。
 
+
+*****
+
+####  YF31  
+##### 14863#       发表于 2025-1-31 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316481&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 01:55</a>
+灯平白无故为什么来救祥。灯救祥时编剧还特地加了新回忆干嘛，灯这种灵感的人看到祥子家都要哭了，她感受 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">你要是觉得灯皇来了全拉了，那她为什么不在建鸡团之前就拉，丰川祥子又为什么不给灯皇画面？非要等到全闹麻了再来拉，那丰川祥子做这些事有什么意义呢？就单纯为了体现非常油麦的自尊心？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 14864#       发表于 2025-1-31 02:09
+
+还在车送医院的是真的祥黑吧，这个只能黑到祥子，还有木头人两个神人父母，其他人没可能越过祥子和她父母去处理这件事啊
+
+*****
+
+####  天空塔书记官  
+##### 14865#       发表于 2025-1-31 02:10
+
+ave的问题是作为噱头的部分搞太大了，之后需要平衡回来，但现在明显还是有点混乱，只是单纯在追求打破迷子的定式，不过这几集观感差早就是可以预料的结果，这就是实验要付出的代价
+
+而wsd显然也知道这一点，也许是认为事态还在能控制的范围内，所以其实也没那么糟不是，迷子众人只是引子，真正解决还是要靠A团自己走出来，就像多惠话疗瑞依，但最后拉楚平方出衣柜的还是贝斯主唱自己，成为星星不是别人承认就行的，需要自己主动去承担这份责任
+
+而A团现在就是没人负责的状态，之前可以靠资本的大手，但之后呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 14866#       发表于 2025-1-31 02:10
+
+<img src="https://p.sda1.dev/21/921b7f39e9a9c30dc1a0ef2c39969e78/_Nekomoe kissaten__BanG Dream! Ave Mujica__05__1080p__JPSC_.mp4_001822.316.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/757ec953af9178a493b57d469832713f/_Nekomoe kissaten__BanG Dream! It’s MyGO!!!!!__01__1080p__JPSC_.mp4_002126.038.jpg" referrerpolicy="no-referrer">
+
+爱音唬人就这反复一套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 14867#       发表于 2025-1-31 02:10
+
+爬了下楼，如果不是为了拷打需要，不建议真心实意替定治心疼
+
+要是他当初不说出这些话，或者早点把话收回，后面都不用劳心费力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/31/020512rhffl7bhvxhre9b2.jpg" referrerpolicy="no-referrer">
+
+<strong>定治台词.jpg</strong> (80.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 02:05 上传
+
+
+*****
+
+####  yaneis  
+##### 14868#       发表于 2025-1-31 02:12
+
+违约金这事也太抽象了，如果真是祥子负责制，那手下哪有立场去质疑老大和搞独走，如果人人责任制，那为啥钱全让丰川家给了，要付一大笔违约金这班人是怎么敢闹解散的
+
+*****
+
+####  哈曼的YY  
+##### 14869#       发表于 2025-1-31 02:13
+
+之前没人把陀螺抽烂 自己小纸条磨血太慢了啊 这次也是听到摔门声才行动的
+
+*****
+
+####  江口夕  
+##### 14870#       发表于 2025-1-31 02:14
+
+ 本帖最后由 江口夕 于 2025-1-31 02:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先这个是不是莫老师已经不确定了，其次她拿的是鞋当电话。楼里说莫老师打电话自救的先醒醒
+两种可能：
+1睦已经醒了但是精神错乱，以为自己是莫
+2莫老师自己疯了
+
+至于大祥到底去没去看睦还是黑箱状态，中间抽了信息也不一定，不要过早下结论。
+可能是去过，但是被拿鞋子打电话什么的吓回来了。
+或者莫本来就讨厌祥子拒绝开门。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  北条早苗  
+##### 14871#       发表于 2025-1-31 02:15
+
+这么多人拷打大祥的原因不就是鸡团到现在为止只有大祥像个人，观众还能看懂本质就一个糯
+睦头现在只有半个了，牢莫本来就不是人
+其他三个队友含人量不超过30%了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14872#       发表于 2025-1-31 02:16
+
+因为这合同搞不好都是财团担保签的，这违约金是经济公司的辛苦费和对乐队投入资源的补偿，而不是与乐队直接签的合同
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 14873#       发表于 2025-1-31 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316563&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 02:08</a>
+
+你要是觉得灯皇来了全拉了，那她为什么不在建鸡团之前就拉，丰川祥子又为什么不给灯皇画面？非要等到全闹 ...</blockquote>
+灯皇什么时候三件套的，诗超绊在春日影之后啊，你让第10集前的灯皇来，他有能力吗？
+
+第10集后，鸡可能都集齐了。祥子那个这个状态，灯还插手不了，但是小字条已经铺垫上了。
+
+第5集之后给了入口就是伏笔回收。
+
+祥子的第一次mujica的意义就在于被拷打，认识到自己的不足。自尊这点不好说，因为从现在来看编剧可能是带贬义的。
+
+*****
+
+####  伞木希美  
+##### 14874#       发表于 2025-1-31 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316536&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-31 02:03</a>
+
+代打方案不是被若麦否了吗？她可能觉得睦就是在闹别扭吧</blockquote>
+对话进行到不同阶段肯定有不同阶段的情况嘛，那时候还没扯到解散，大喵老师也不知道是不是真双重人格，就问了一下为什么不选100分的解决方法。后来都聊到解散了，那有个80分的解决方案就能接受了吧。
+
+*****
+
+####  yaneis  
+##### 14875#       发表于 2025-1-31 02:16
+
+这乐队除了ob位的海玲都没人类了，一个废物老大（存疑，真搞不清楚地位了），一个双标xxn，一个杂鱼精神病患者，一个纯得像串子的伪人，有点太极端了（
+
+*****
+
+####  thisisaspider  
+##### 14876#       发表于 2025-1-31 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316573&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 02:09</a>
+
+还在车送医院的是真的祥黑吧，这个只能黑到祥子，还有木头人两个神人父母，其他人没可能越过祥子和她父母去 ...</blockquote>
+祥子全背是对的。甚至别管神人父母了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 14877#       发表于 2025-1-31 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316573&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 02:09</a>
+
+还在车送医院的是真的祥黑吧，这个只能黑到祥子，还有木头人两个神人父母，其他人没可能越过祥子和她父母去 ...</blockquote>
+什么越过不越过的，看到认识的人有严重精神问题第一反应先送医院不是很正常吗？现有信息来看睦爸妈虽然是神人，但现在也没实锤他们对睦头有什么不符合现实的拘束和限制啊
+
