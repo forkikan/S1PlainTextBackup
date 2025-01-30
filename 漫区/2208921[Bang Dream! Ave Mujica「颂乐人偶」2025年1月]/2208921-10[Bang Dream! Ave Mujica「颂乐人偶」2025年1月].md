@@ -5051,3 +5051,204 @@ ykn爹在ykn还小的时候就给ykn相中了童养媳lisa，牢爹能给祥子�
 离十点就两个多小时了，要急看完再急吧</blockquote>
 大象被抽了十集陀螺我难道还要看下去吗 
 
+
+*****
+
+####  JustW  
+##### 13806#       发表于 2025-1-30 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311876&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:12</a>
+你看看灯像是能说什么正论的话吗 能解决两个原生家庭破碎的精神病人的话mygo里面是这个样子吗 ...</blockquote>
+是精神病人还是小女孩闹脾气取决于编剧的大手，灯能扶MyGO于将倾已经自我证明了，而且无论从C团事C团闭的角度讲还是第一季お幸せに留的扣子讲还是pv里便签镜头讲，灯这个主攻位肯定是有的
+
+*****
+
+####  一心而用  
+##### 13807#       发表于 2025-1-30 19:16
+
+<img src="https://p.sda1.dev/21/7a2830e67ffbb8a49f790395e3f6688d/001iVUoXly1hy2x2q2yp3j60mlcn3kjm02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6a33d8d76abfe7d41a2767631743a173/001iVUoXly1hy2x2p2zwkj60u05wt7wh02.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/a7d5d102e2f3d292cb8a201a5be67611/001iVUoXly1hy2x2nprfjj60xc0m8qmp02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2e6a888de0c172db06a81ad0773b1302/001iVUoXly1hy2x2oan9ij60xc1e0tlb02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/67a9c8b70cba5e5be806c71c8f6e9af6/001iVUoXly1hy2x2o648ej60xc1e0wn602.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13808#       发表于 2025-1-30 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311894&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 19:16</a>
+
+是精神病人还是小女孩闹脾气取决于编剧的大手，灯能扶MyGO于将倾已经自我证明了，而且无论从C团事C团闭的 ...</blockquote>
+因为我就是否定第十集的逻辑但是肯定第十集包饺子的情绪价值的 请问了现在两个人都精神崩溃了有一个直接精神死亡了 灯皇要怎么显圣
+
+*****
+
+####  JustW  
+##### 13809#       发表于 2025-1-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311896&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-30 19:16</a></blockquote>
+实锤多重人格了吧这是
+
+*****
+
+####  杂灰  
+##### 13810#       发表于 2025-1-30 19:18
+
+灯现在精神面就比现在的祥子强大啊
+
+
+*****
+
+####  osore  
+##### 13811#       发表于 2025-1-30 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311824&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 19:05</a>
+
+我印象里見栄好像也没有直接形容祥子</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/30/191821pvqyyq5qvbvytyyx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2065.jpeg</strong> (753.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 19:18 上传
+
+第一栏
+
+原文是省略主语，你说原文没有我只能说是语文问题
+
+*****
+
+####  一心而用  
+##### 13812#       发表于 2025-1-30 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311908&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 19:18</a>
+
+实锤多重人格了吧这是</blockquote>
+我一开始就觉得睦的多重人格是真的，OP画面暗示得非常明显。
+
+*****
+
+####  JustW  
+##### 13813#       发表于 2025-1-30 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311907&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:17</a>
+因为我就是否定第十集的逻辑但是肯定第十集包饺子的情绪价值的 请问了现在两个人都精神崩溃了有一个直接 ...</blockquote>
+灯只能提供一个启发和推动作用（就好像第一季初华对于灯），最终还是要靠祥子自己或者说母鸡卡的问题还是要母鸡卡自己解决，睦最后“复活”也肯定是祥子才能实现，毕竟你Mortis都直接把提示糊祥子脸上了
+
+*****
+
+####  JustW  
+##### 13814#       发表于 2025-1-30 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311917&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-30 19:20</a>
+我一开始就觉得睦的多重人格是真的，OP画面暗示得非常明显。</blockquote>
+我也觉得是真的，不如说很震惊前三集那么多脑内剧场了，还有很多人觉得是在演
+
+*****
+
+####  南宮凝香  
+##### 13815#       发表于 2025-1-30 19:22
+
+有一說一，
+
+My狗中燈才是負責爆頭的那個
+
+按順序來說，立希， 愛音， 素世的狗頭都是她打爆的
+
+愛音負責的是抓人
+
+反正都爆了三個人，
+
+也不差祥子一個了
+
+*****
+
+####  swessia  
+##### 13816#       发表于 2025-1-30 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">自愧不如
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 13817#       发表于 2025-1-30 19:23
+
+多重人格最大的问题是两个人格喜欢不同的人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 13818#       发表于 2025-1-30 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311923&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 19:22</a>
+
+我也觉得是真的，不如说很震惊前三集那么多脑内剧场了，还有很多人觉得是在演 ...</blockquote>
+因为武士道是肯定写不好双重人格包饺子乐队的 骗自己罢了
+
+*****
+
+####  天空塔书记官  
+##### 13819#       发表于 2025-1-30 19:23
+
+但显然不是疾病类型的分裂症，这东西完全是个叙事工具罢了，超能力的类似物，所以其实没必要纠结原理和治疗的问题
+
+只能说不算太难接受<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MASKA-1  
+##### 13820#       发表于 2025-1-30 19:24
+
+莫老师喜欢谁还不知道
+
+*****
+
+####  wpcc  
+##### 13821#       发表于 2025-1-30 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311933&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 19:23</a>
+
+但显然不是疾病类型的分裂症，这东西完全是个叙事工具罢了，超能力的类似物，所以其实没必要纠结原理和治疗 ...</blockquote>
+mygo重建我可以用感染力糊弄过去 你告诉我mujica再用live就能治好精神病吗 
+
+我只能说武士道自毁长城了
+
+*****
+
+####  swessia  
+##### 13822#       发表于 2025-1-30 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">多重人格主要是会把睦的塑造断片吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 13823#       发表于 2025-1-30 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311864&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:11</a>
+
+访谈监督往死里折磨大鼻子老师我真的是无语了 看一个原创爆一个原创</blockquote>
+还没完结，不支持滑坡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13824#       发表于 2025-1-30 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311938&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-1-30 19:24</a>
+
+莫老师喜欢谁还不知道</blockquote>
+看访谈是木头水仙吧 代打一个月决定去留
+
