@@ -2866,3 +2866,63 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 龟龟，这剧透，场外观众最期待cp要成真了吗？
 
+
+*****
+
+####  哈曼的YY  
+##### 13585#       发表于 2025-1-30 12:11
+
+祥老师是A杖钢背兽
+
+*****
+
+####  庸necro  
+##### 13586#       发表于 2025-1-30 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306774&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-1-29 23:08</a>
+
+自購 megami
+
+下期mujica特輯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">感觉初华一在镜头前就特别在状态
+
+*****
+
+####  JustW  
+##### 13587#       发表于 2025-1-30 12:11
+
+啊这，第一季还黄瓜+俩人一个班，怎么想也不可能从此陌路吧，最后母鸡卡肯定是要加入邦邦大家庭的和mygo的关系必然要处理，不如说之前一大堆人急着切割母鸡卡和MyGO才让人看不懂
+
+*****
+
+####  JustW  
+##### 13588#       发表于 2025-1-30 12:13
+
+本来上集就该调整预期的硬是靠着114514个假药撑了一周的大伙，希望这两周能清醒清醒
+
+
+*****
+
+####  凉良  
+##### 13589#       发表于 2025-1-30 12:14
+
+真TM 神人吧 无法理解
+
+*****
+
+####  YU_JI  
+##### 13590#       发表于 2025-1-30 12:17
+
+有没有剧透省流，懒得去登尼姑庵了（）
+
+*****
+
+####  阿卡拉兰斯  
+##### 13591#       发表于 2025-1-30 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309073&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 12:13</a>
+本来上集就该调整预期的硬是靠着114514个假药撑了一周的大伙，希望这两周能清醒清醒 ...</blockquote>
+多亏了wsd的炒作，说实话我觉得要调整预期对于几乎所有社区的大部分人来说都是不可能的
+接下来只有速胜转速败烂完了的投降派和大的还没来大的在后头的大本营派大乱斗
+至于能接受觉得还行的估计得等这两派杀完了不说话了声音才能从被淹没的泥潭中间发出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -10391,3 +10391,11 @@ R1跟其他的AI相比就像是刘慈欣王小波对比中年老油条公务员�
 昨天22点之后能偶尔出点，24点之后好像好很多了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">重新下了那个版本也没有……不知道啥的问题，面板和原来的一样，算了就先这样吧
 
+
+*****
+
+####  阿刚  
+##### 789#       发表于 2025-1-30 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说酒馆破甲有没有不影响他正常功能的方式，让他当一个百无禁忌的ai聊天助手这种
+
