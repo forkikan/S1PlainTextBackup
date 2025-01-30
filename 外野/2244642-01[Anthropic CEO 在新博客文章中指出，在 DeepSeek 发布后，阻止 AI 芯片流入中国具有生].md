@@ -1235,3 +1235,22 @@ agi就算能实现自我迭代、实现科研全自动，成果落地还是大�
 
 这种默认东大造不出高端芯片才是最大的傲慢吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">滑稽
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 116#       发表于 2025-1-30 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307786&amp;ptid=2244642" target="_blank">Alce79 发表于 2025-1-30 07:59</a>
+他们要的agi可比阿尔法狗要离谱得多，首先机器全自动、忠诚僚机全自动、科研全自动
+
+AGi是能解决所有问题 ...</blockquote>
+这不就是战锤里的stc模板吗？一键启动！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 117#       发表于 2025-1-30 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没搞懂，先不说能不能快速搞出AGI，就说AGI本身能带来什么，怎么现在帝国都默认搞出了AGI就能灭鳖了
+

@@ -908,3 +908,35 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 不知道日亚你们都是怎么买的</blockquote>
 你是在哪一步报错，是点了注文确定之后吗？
 
+
+*****
+
+####  riin2  
+##### 97#       发表于 2025-1-30 17:48
+
+主要是任亏券吧，10000日元就能换两个游戏，美服要100刀，直接打6折
+
+
+*****
+
+####  DARILBALDE  
+##### 98#       发表于 2025-1-30 17:52
+
+逼着我赶紧把任亏券买了吗，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  QYMtutututu  
+##### 99#       发表于 2025-1-30 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311243&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 17:45</a>
+
+你是在哪一步报错，是点了注文确定之后吗？</blockquote>
+我日亚用中文页面
+
+分别绑定了一张AMEX借记卡，MasterCard人民币信用卡，MasterCard借记卡
+
+选择“ンテンドープリペイド番号 500円|オンラインコード版”→加入购物车→进入结算中心→选择信用卡和借记卡（银行卡币种全部为Japanese Yen（JPY））→任意选择一张卡→使用此付款方式→提示“您不能购买此商品，因为此区域当前不受支持。 与此商品相关的任何捆绑折扣将不适用于此购买。”
+
+国内收货地址，日本转运地址，地址生成器出来的日本地址都试了一遍，都不行
+

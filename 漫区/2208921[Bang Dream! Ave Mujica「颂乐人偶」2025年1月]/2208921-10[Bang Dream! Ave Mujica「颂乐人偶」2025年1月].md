@@ -4453,3 +4453,56 @@ VOICE Febri杂志AveMujica部分
 最逆天的是，总想通过把已经定好的团队成员踢出去来解决问题，只是因为妨碍她女独自美丽了，企划不是只有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这些所谓独美党争胜利的假药往往到头来他们都不会喜欢
 
+
+*****
+
+####  JustW  
+##### 13746#       发表于 2025-1-30 17:46
+
+这样说制作组确实很有自信，认为自己的观众能坚持到第五集甚至第七集第十集去看反转。而在三集定律出现前普遍大家只看一集就会决定去留，哪怕有了三集定律，在现在这个又快又爽的娱乐方式五花八门的时代，能一连若干月每周投入个把小时的时间在一部动画上，也绝非轻而易举之事。
+
+*****
+
+####  天空塔书记官  
+##### 13747#       发表于 2025-1-30 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311195&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-30 17:36</a>
+我想不到有什么向大人复仇的理由，就算是现在的苦难也是来自内部的矛盾 ...</blockquote>
+现在没有，那之后呢，比如喵梦上节目被奚落和嘲笑、海玲的平静生活被打破、初华也会有sumimi的活动影响这类的，还有木头和父母，祥子和外祖父之间的矛盾，想写都可以写，当然这只是可能的一种发展罢了，但可能性还挺大的…吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  磷叶石~  
+##### 13748#       发表于 2025-1-30 17:53
+
+制作组太自信了，前半大量剧情给了睦导致海初0塑造，喵祥负塑造，如果这种情况持续到第7集，5个主要人物等于只立起了一个剩下的全崩，这种情况在开播前确实想不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 13749#       发表于 2025-1-30 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311181&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 17:34</a>
+
+黑色生日这歌还是有点不妙，甚至迷子众人的参与不会是正面效果也说不定，祥子虽然一直在强调复权，但实际上 ...</blockquote>
+这点也是令人担心的，迷子的介入太早了，你说6、7集完成春日影，按对称是不是还要引爆另一个伏笔？
+
+然后迷子再介入一次？这次复合处理不好对两个团都没有正面作用。
+
+题外话：资本和音乐创作从来不是对立的，一边强调商业企划包饺子，一边要求角色理念的纯洁性才是矛盾的，但这个命题太大了没必要写。作为二次元动画怎么解答都可以。但观众不该对此有偏见。
+
+*****
+
+####  YF31  
+##### 13750#       发表于 2025-1-30 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311181&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 17:34</a>
+
+黑色生日这歌还是有点不妙，甚至迷子众人的参与不会是正面效果也说不定，祥子虽然一直在强调复权，但实际上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑柿本根本都没想过你说的这些，从他的访谈就能嗅出劳保味。
+
+如果真想这么写就根本不会在访谈里用“見栄”来形容牢祥。
+
