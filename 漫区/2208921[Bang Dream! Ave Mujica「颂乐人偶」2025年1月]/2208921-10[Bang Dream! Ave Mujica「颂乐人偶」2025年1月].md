@@ -12629,3 +12629,287 @@ CPart这个太有问题了，前面实际上还不错。CPart给出来就是让�
 其实也不是蹭到才走综艺 是觉得自己天赋不够只能走综艺
 此事在偶像大师scSHHis感谢祭剧情中亦有记载
 
+
+*****
+
+####  takerest  
+##### 14587#       发表于 2025-1-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315268&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 00:00</a>
+
+现在来了，外公就是不肯拉回父亲。后面是不是一哭二闹三上吊。</blockquote>
+祥子看似什么都没有，实际上就是鸡团退路最广的啊。她接回来父亲又如何？她接不回来父亲又如何？难道动画的演出还没让你感受到祥子现在的情况主要还是她本人的偏执造成的吗？事实就是她的选择比她想象中的广啊，但是她偏偏要承担一个十几岁少女不该承担的责任，然后理所应当地搞砸了。
+
+*****
+
+####  zhigui  
+##### 14588#       发表于 2025-1-31 00:16
+
+能在说一遍吗，就是那个
+
+史上最强乐队！完美之人！
+
+hahahahahahaha
+
+*****
+
+####  thisisaspider  
+##### 14589#       发表于 2025-1-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315454&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-31 00:13</a>
+
+你说的没错啊，老登的就是编剧机械降神，老登要祥爹亏168亿祥爹就得亏168亿，老登要祥子只能离家出走照顾 ...</blockquote>
+你这样理解我觉得也没问题，但说角色没苦硬吃就显得在掩盖编剧的问题了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  takerest  
+##### 14590#       发表于 2025-1-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315322&amp;ptid=2208921" target="_blank">kuroniko1 发表于 2025-1-31 00:04</a>
+
+祥子现阶段这个人就是这样的，没台阶下是不会认错，别把自己代入进去。 ...</blockquote>
+我没有带入鸡团任何一个神人，我只是觉得有些人是不是给祥子找补得太多了？
+
+*****
+
+####  lucasxp  
+##### 14591#       发表于 2025-1-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315477&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-31 00:15</a>
+其实灯这个便签啊，应该是写了好久了，最开始第二集祥子有个捏东西的动作，一开始可能猜是不是别人送的信， ...</blockquote>
+就是的，其实漫画版一出来就能确认了，只不过那时候都觉得漫画权威度不够所以没当回事
+
+*****
+
+####  魔灵高达  
+##### 14592#       发表于 2025-1-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315496&amp;ptid=2208921" target="_blank">无证madam 发表于 2025-1-31 00:16</a>
+
+其实也不是蹭到才走综艺 是觉得自己天赋不够只能走综艺
+
+此事在偶像大师scSHHis感谢祭剧情中亦有记载 ...</blockquote>
+A团之前只是网红，现在好歹是事务所签约艺人
+
+*****
+
+####  古明地雷  
+##### 14593#       发表于 2025-1-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315459&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-31 00:13</a>
+关于祥子为何这一个月都没去找睦，很简单，还在逃避。心死就是逃避的一种方式，不去想就可以假装不会痛。
+
+ ...</blockquote>
+如果双重人格删了就没什么问题，如果是睦自己ptsd弹不出来了导致散队了，祥子不去找睦还正常点，现在这样太塑料了，说白了第四集删了不光不影响这集走向甚至鸡团几个人的观感都会好点
+
+*****
+
+####  gaayas  
+##### 14594#       发表于 2025-1-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315440&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-1-31 00:12</a>
+u1s1,我觉得还是独角兽随便玩弄精神疾病症状才是鸡狗最大的罪行</blockquote>
+是的，尤其是拉下精神病一个月不管，让初华海玲祥子都有点拟人了，大喵甚至还能用觉得是木头演技找补，可初华海玲在mygo篇表现出的观察力，刚见面的人都能察觉异常安慰，真碰上队友疯了反而毫无表示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  庸necro  
+##### 14595#       发表于 2025-1-31 00:18
+
+我开始真的有点受不了剧情一旦遇上丰川祥子就要变得非常刻意人为操控的感觉，五集了，祥子的所有处理不好的问题好像都可以归咎到其他外因上，看不到睦状态是因为这场演出很重要，对着睦发脾气是因为她真的只剩mujica了，拿喵梦没办法是因为不敢踢人，这集不当人是因为她解散两个乐队陷入自我怀疑自我厌恶，总有这样那样的理由去让她的行为合理化，就有种“人物设定给得太强只能让他经常伤病非满状态出场”的感觉
+
+*****
+
+####  takerest  
+##### 14596#       发表于 2025-1-31 00:19
+
+这集能把鸡团毒唯狠狠破防了也是大功一件，天天烂炒切割wsd知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 14597#       发表于 2025-1-31 00:19
+
+这话真的笑出眼泪了，个人可以评为本季最佳一集。就等看后面第几集给祥爹收尸再给大祥老师上强度了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 14598#       发表于 2025-1-31 00:20
+
+y1s1，日本那种综艺通告艺人其实也算不上什么好差事
+
+*****
+
+####  天空塔书记官  
+##### 14599#       发表于 2025-1-31 00:20
+
+祥子和老登的矛盾本质是牢爹和姥爷的矛盾，甚至祥爸现在这样很可能就是因为岳父对自己的“背叛”和“放弃”，这么一想，丰川家好像也没好的哪去，牢爹还没变空中飞人估计也是因为挂念着祥子
+
+唉，原生家庭的原生家庭<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  takerest  
+##### 14600#       发表于 2025-1-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315491&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 00:15</a>
+
+小祥她爹很明显不是经济问题而是精神问题吧，小祥打工也就挣自己的学费和生活费，她爹自己有钱买酒，估计还 ...</blockquote>
+祥子出走前祥父照样喝酒，祥子出走后祥父照样喝酒，祥父啃小论可以彻底破产了。
+
+
+*****
+
+####  zhigui  
+##### 14601#       发表于 2025-1-31 00:21
+
+草，突然想到个非常阴间的剧情
+
+小祥生日那天的那集（忘了第几集了）祥爹变成晴天娃娃给🐘上强度，大祥试图变成飞祥被灯救下来又是完美的回旋镖！
+
+这就是wsd给祥子的生日礼物
+
+*****
+
+####  无证madam  
+##### 14602#       发表于 2025-1-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315518&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 00:17</a>
+A团之前只是网红，现在好歹是事务所签约艺人</blockquote>
+是的啊 所以要不是她主动拒绝甚至都不用混综艺了 混综艺对现在的大喵反而是种妥协
+
+*****
+
+####  南宮凝香  
+##### 14603#       发表于 2025-1-31 00:21
+
+未來羽丘的一把手已經決定了
+
+愛音會長我們便敬愛你呀！
+
+*****
+
+####  ads147147  
+##### 14604#       发表于 2025-1-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315516&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-1-31 00:17</a>
+就是的，其实漫画版一出来就能确认了，只不过那时候都觉得漫画权威度不够所以没当回事 ...</blockquote>
+目前看漫画版就是分镜有点不一样，故事是完全定死的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 14605#       发表于 2025-1-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315499&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 00:16</a>
+
+祥子看似什么都没有，实际上就是鸡团退路最广的啊。她接回来父亲又如何？她接不回来父亲又如何？难道动画 ...</blockquote>
+其他的可以她偏执，高傲，不懂人心造成的。
+
+但和离家出走一点关系都没有。家庭出问题了，无论你到大，都可以承担责任。现实还有更绝望的情况，有人没逃避你说是不是他们没苦硬吃。
+
+*****
+
+####  杂灰  
+##### 14606#       发表于 2025-1-31 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315431&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 00:11</a>
+
+不管祥子是不是没苦硬吃，她起码真的吃下来了，她一直在做事，一直在脚踏实地实现她的追求，这个我觉得没得 ...</blockquote>
+能去顾着别人说明脊梁骨还有没碎完的部分，真要这么拍只会继续延长拷打祥子的集数，现阶段就是要把祥子打成失去任何主观行动力的废人
+
+与其说为了让狗团扶贫，不如说冷漠才是鸡团的基调吧
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14607#       发表于 2025-1-31 00:23
+
+感觉后面把鸡团拼回去的时候海玲是个难啃的boss：当初你们4个疯子炸团糊我一脸，说解散就解散说重组就重组，你当老娘是什么东西。
+
+*****
+
+####  ads147147  
+##### 14608#       发表于 2025-1-31 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315548&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-31 00:20</a>
+y1s1，日本那种综艺通告艺人其实也算不上什么好差事</blockquote>
+这种综艺上的节目怎么说呢，说不好听的更像是，逗大家笑的丑角。。。又或者是代替“不愿意直接表达情感的日本”笑的人偶。
+
+哦吼，好像又扣回人偶的主题了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhigui  
+##### 14609#       发表于 2025-1-31 00:23
+
+虽然这集观感是比前几集好的，但这都是因为前几集观感太烂了，这集只是稍微放缓了点节奏就比前面好得多，但依然经不起推敲，很难说这集是剧本回升的开始还是继续崩坏的另一个标志
+
+*****
+
+####  杂灰  
+##### 14610#       发表于 2025-1-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315530&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 00:18</a>
+
+我开始真的有点受不了剧情一旦遇上丰川祥子就要变得非常刻意人为操控的感觉，五集了，祥子的所有处理不好的 ...</blockquote>
+反了吧，目前所有展开都是为了把问题全部归咎到祥子的性格问题上（当然上帝视角看其他人也是有不少锅），从而对她这个人进行最深层的拷打
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 14611#       发表于 2025-1-31 00:24
+
+海玲这集两句台词第一句对记者还能算是职业素养，回答初华试探明显是心里上火了。
+
+*****
+
+####  零壹贰叁  
+##### 14612#       发表于 2025-1-31 00:25
+
+怎么楼里还有人在纠结精神病问题
+那么多少年漫搞人格分裂也不是去医院治的啊
+不当成病比较好<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">又不是真写实动画
+
+*****
+
+####  天空塔书记官  
+##### 14613#       发表于 2025-1-31 00:25
+
+不过看牢爹在这集的表现，倒不至于真变空中飞人，祥子要走大女主复仇路线的话，直接回财团把姥爷架空就行了，但也说不好会不会有和家族切割的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 14614#       发表于 2025-1-31 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315548&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-31 00:20</a>
+y1s1，日本那种综艺通告艺人其实也算不上什么好差事</blockquote>
+再怎么也比热度走下坡路的美妆博主强吧，不过喵梦肯定是要吃瘪了
+
+*****
+
+####  南宮凝香  
+##### 14615#       发表于 2025-1-31 00:25
+
+我覺得也別重組母雞卡了
+
+把祥睦海三人吸進來組MyGo！！！！！！！！
+
+史上最狂=打破祖制的八人樂隊
+

@@ -11385,3 +11385,40 @@ PTX也是英伟达护城河的一部分， 但是DEEPSEEK 能熟练地运用PTX 
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  精钢魔像  
+##### 873#       发表于 2025-1-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315362&amp;ptid=2243718" target="_blank">Magnificent_S 发表于 2025-1-31 00:07</a>
+
+我的理解，不知道是否正确， 请指正：
+
+PTX也是英伟达护城河的一部分， 但是DEEPSEEK 能熟练地运用PTX 这 ...</blockquote>
+ptx大概类似x86汇编masm编译器里的宏，能方便点，但还是和硬件特性强绑定。
+
+国产cuda可能还是要走接口相容的路子。
+
+
+*****
+
+####  铃森冬  
+##### 874#       发表于 2025-1-31 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315450&amp;ptid=2243718" target="_blank">ShamiMo 发表于 2025-1-31 00:13</a>
+
+这llama.cpp的pr感觉真有可能让llm左脚踩右脚上天，通过以一个具有良好推理和编程能力的llm不断自己和人为 ...</blockquote>
+西大画的 AGI 大饼的故事里很重要一环就是这个，赌大模型智能程度超过一定阈值之后就能滚雪球加速研究快进性能改进速度，然后据此认为先达到这个状态的一方可以在各种领域里取得决定性的优势
+
+当然能不能就这么完全无视人类研究团队的作用就是另外一个问题了
+
+*****
+
+####  ShamiMo  
+##### 875#       发表于 2025-1-31 00:23
+
+感觉现有的高级语音将更低一个层次，llm更像一个更加智能化的编译器，随着llm的编程能力越来越强的情况下，prompt将成为一个更高级的语言
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
