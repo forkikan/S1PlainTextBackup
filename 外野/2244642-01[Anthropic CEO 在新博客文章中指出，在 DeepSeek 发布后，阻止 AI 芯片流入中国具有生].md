@@ -545,3 +545,48 @@ AGi是能解决所有问题 ...</blockquote>
 我觉得基本下一个o系列的版本就是所谓的agi了，已经没有benchmark可以供他刷了 ...</blockquote>
 结合前几天刚爆出的closeai在基准测试里作弊的新闻，你要真心这么认为就有点难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十六夜鬼月  
+##### 51#       发表于 2025-1-30 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308190&amp;ptid=2244642" target="_blank">静滞场 发表于 2025-1-30 10:13</a>
+
+我总觉得方向性上有问题，朝这个方向走可能100年也搞不出agi
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+方向肯定有问题，别说啥人脑有啥特别，超算到现在算力仍然比不上什么的。哪怕更低等的生物，其与现实世界交互的水平现阶段ai也一样做不到。那个两条斗气鱼互喷沙子的gif相信很多人都看过，现阶段ai能操作两条机械鱼完成感受到攻击→寻找沙子→游过去→挖掘沙子→找到目标→喷回去这套操作么，肯定做不到。难道算力还比不过鱼了？甚至能不能做到像苍蝇蚊子那样敏捷飞行，准确找到食物同时快速反应躲避人的攻击都不一定做得到。
+
+花费代价巨大，但实机收效寥寥，只能说明方向上出了问题。
+
+*****
+
+####  zerona  
+##### 52#       发表于 2025-1-30 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308269&amp;ptid=2244642" target="_blank">hujingjing 发表于 2025-1-30 10:24</a>
+
+看来这帮精英是真破防了，上蹿下跳的，退一万步，这帮逼搞出所谓科幻片一样的agi，那他妈危险的不是美国吗 ...</blockquote>
+那个野狼啥的作家写的中，美（ai）世界大战的叫啥来着？
+
+*****
+
+####  菱0零  
+##### 53#       发表于 2025-1-30 10:29
+
+别整些没用的，不是领先7-10个月吗，发个3.5op/4.0s看看实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alce79  
+##### 54#       发表于 2025-1-30 10:29
+
+<blockquote>宏. 发表于 2025-1-30 10:24
+“你不觉得”不是个有意义的理由，就像alphaGo显然算不完围棋的变化一样，但这不代表李世石就能算得完
+
+ ...</blockquote>
+那要砸多少钱出来？1-2年就出炉可自我迭代替代全人类的agi？
+
+有未来预期是好事，但这种yy跟东大EUV今年就全产业链化让西大灭亡一个路子 （yy强国）
+
