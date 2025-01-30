@@ -2657,3 +2657,27 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 不知道现在这做分镜的是啥毛病
 
+
+*****
+
+####  猪突猛进R  
+##### 6132#       发表于 2025-1-30 22:49
+
+驾驶员通讯要回头也能硬解释：光通讯。
+
+扎古的独眼不光是摄像机，也可以进行通信<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+好了不开玩笑，机体太像人在机器人动画里是常态了，之前《多安的岛》也是，机器人搞得像武士电影了。
+
+
+*****
+
+####  史蒂符  
+##### 6133#       发表于 2025-1-30 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313732&amp;ptid=2209276" target="_blank">pu 发表于 2025-1-30 22:35</a>
+刚扫到个盗摄 这up也发现了 最近的高达作品 机体动作太像人 根本没必要  剧场版还有一个地方被诟病的 就是 ...</blockquote>
+这动作干脆改成g高达驾驶方式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
