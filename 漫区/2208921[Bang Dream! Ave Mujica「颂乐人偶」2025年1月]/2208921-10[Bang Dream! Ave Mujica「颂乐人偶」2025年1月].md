@@ -4861,3 +4861,91 @@ ykn爹在ykn还小的时候就给ykn相中了童养媳lisa，牢爹能给祥子�
 汉化：
 <img src="https://p.sda1.dev/21/1b4ef6b02cf1e275bb06dbc401311dec/a17e3c44ad345982cdb807ba4af431adcbef8408.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 13787#       发表于 2025-1-30 18:56
+
+ 本帖最后由 杂灰 于 2025-1-30 18:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311623&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-30 18:39</a>
+是说祥子遵循心中的正义跟她爹走，被家暴后后悔了但是死要面子（見栄）不好意思回去继承千亿家产 ...</blockquote>
+这就更偏了，而且家暴跟这个根本无关，原文我记得应该是想以妈为榜样做个强大温柔有包容力的人，跟着爹出走后感受到生活不易，有过后悔想法，但老家人都比较势利自己也不好回去，反正意思更偏向于最后祥子确实是扛住了这些压力，压制住了自己的负面想法适应了穷生活，总之就不是那种坚定到不会怀疑自己选择的人，但也是有坚持下来的志气
+
+*****
+
+####  一心而用  
+##### 13788#       发表于 2025-1-30 18:57
+
+羽丘三人组be like
+<img src="https://p.sda1.dev/21/617b07bd69c1db86a13e0f51b4c78092/8fa2d790f603738d8ec4fe0af51bb051f919ecb4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/041693222d636d124ee125ea7935be04/e2a4a8fae6cd7b899be5c8ab492442a7d8330eb4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 13789#       发表于 2025-1-30 18:58
+
+隔壁小孩姐和mmk好甜🥰还是喜欢这种确定的cp，不要音趴<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 13790#       发表于 2025-1-30 19:02
+
+立希和海铃不就是吗，虽然我们戏份都不多(暂时)，但我们有很甜的cp啊(确实)，这不比只有同框贴贴的大和伊芙强太多了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 13791#       发表于 2025-1-30 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双重人格这设定挺变态的，非要加上去干嘛，加了还只弄出个不小心把团玩炸的莫提斯，如果只为了和祥子爆了甚至把鸡团也一并爆掉的结果，根本不需要双重人格，直接说睦黑化了不干了就完了
+现在好了，本该是睦的戏份全塑造莫提斯了，睦的塑造还停留在1-3集，制作组这帮人真觉得自己写得很好？
+
+*****
+
+####  osore  
+##### 13792#       发表于 2025-1-30 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311768&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 18:56</a>
+这就更偏了，而且家暴跟这个根本无关，原文我记得应该是想以妈为榜样做个强大温柔有包容力的人，跟着爹出 ...</blockquote>
+重点是見栄，那句话根本没提到丰川实家，你是怎么脑补出来的
+
+*****
+
+####  南宮凝香  
+##### 13793#       发表于 2025-1-30 19:04
+
+<blockquote>一心而用 发表于 2025-1-30 18:54
+原作：
+
+汉化：</blockquote>
+‘我選喵夢， 她帶我們邦上月球’
+
+*****
+
+####  杂灰  
+##### 13794#       发表于 2025-1-30 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311813&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-30 19:04</a>
+重点是見栄，那句话根本没提到丰川实家，你是怎么脑补出来的</blockquote>
+我印象里見栄好像也没有直接形容祥子
+
+*****
+
+####  wpcc  
+##### 13795#       发表于 2025-1-30 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311809&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-30 19:04</a>
+
+双重人格这设定挺变态的，非要加上去干嘛，加了还只弄出个不小心把团玩炸的莫提斯，如果只为了和祥子爆了甚 ...</blockquote>
+看完采访我觉得就本质爱音是基拉位 直接把鸡的团魂当爱音就完事了 大象已经是没用的东西了
+

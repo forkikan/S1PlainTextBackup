@@ -425,3 +425,13 @@ ps5上浪人崛起96g，pc竟然180g，往好了考虑是画质增强了，往�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来想买一个玩玩，nmb 180g啊
 
+
+*****
+
+####  jf8350143  
+##### 3355#       发表于 2025-1-30 19:00
+
+180是安装需要的硬盘空间不是装完了占用的空间啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
