@@ -3288,3 +3288,22 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 楼主快来管管，把剧透和聊剧透的楼层先置顶，再举报了，不敢细看网页拉得有点快，好像是从13577L开始的
 
+
+*****
+
+####  江口夕  
+##### 13632#       发表于 2025-1-30 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看几个图透就能断言你们也是赢麻了。本来大祥和财团关系就没断。上一季结尾那赞助摆在那里。
+还是要看大祥怎么处理她和她爸的关系
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  JustW  
+##### 13633#       发表于 2025-1-30 13:30
+
+祥爸大概率也会包饺子
+

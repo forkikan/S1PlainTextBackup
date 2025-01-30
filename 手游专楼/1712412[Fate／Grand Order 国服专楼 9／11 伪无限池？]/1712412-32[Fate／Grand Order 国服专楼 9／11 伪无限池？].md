@@ -242,3 +242,27 @@ sowaka+1，毫无波澜
 
 —— 来自 vivo V2309A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kyonkoism  
+##### 46994#       发表于 2025-1-30 13:29
+
+这次联动写的真好啊，把原作很多没讲的东西讲了，还整个怪好的反转，作为原作党玩的真开心
+
+地右卫门想去地狱见家人的愿望，最后地狱空无一人的安心也好
+
+大雪老师和冰冷却依旧能照亮一切的月光和解也好
+
+以及最重要的，开篇伊织看着像是因为作为已死之身灵魂里强烈愿望连带着记忆一起丢失的伏笔
+
+实则是死前对于杀戮和友情的愿望早已完满的反转也好，实在是完美的afterstory
+
+<img src="https://img.saraba1st.com/forum/202501/30/132834ch6yt6bnm6c63wv6.jpg" referrerpolicy="no-referrer">
+
+<strong>I)%LEUS0DMI64SXMQEOEB58_tmb.jpg</strong> (20.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 13:28 上传
+

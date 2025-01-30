@@ -10476,3 +10476,13 @@ deepseek深度思考和联网不能同时开吗</blockquote>
 deepseek深度思考和联网不能同时开吗</blockquote>
 本来是可以的，被ddos以后关闭了
 
+
+*****
+
+####  qz66618  
+##### 797#       发表于 2025-1-30 13:33
+
+r1的API能用了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
