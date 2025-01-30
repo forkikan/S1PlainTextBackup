@@ -6060,3 +6060,112 @@ wsd剧透炒作访谈炒作确实给楼友带来了不好的追剧体验。罪�
 
 这就是写完成长塑造的主唱核心口牙
 
+
+*****
+
+####  ape-apple  
+##### 13903#       发表于 2025-1-30 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311496&amp;ptid=2208921" target="_blank">梅斯之围 发表于 2025-1-30 18:20</a>
+为什么渡濑要说睦和她妈妈是“平等竞争”的关系，这需要睦拥有不亚于母亲的表演天赋，才会让她妈这么想吧。 ...</blockquote>
+建议声优不要接受访谈，当你觉得本作想上升到雌竞，畸形家庭关系，日本社会的异化之类的事情，可能最后一转日式经典严格家长“我认可你了（点头）”
+
+*****
+
+####  wpcc  
+##### 13904#       发表于 2025-1-30 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312230&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-1-30 20:06</a>
+
+建议声优不要接受访谈，当你觉得本作想上升到雌竞，畸形家庭关系，日本社会的异化之类的事情，可能最后一 ...</blockquote>
+我是这么想的 妈妈也是双人格 最后黑的那个赢了 就变成现在这样了 白色的妈妈已经死了 就剩黑色的mnm了
+
+*****
+
+####  thisisaspider  
+##### 13905#       发表于 2025-1-30 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312182&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-30 19:59</a>
+
+环境都不一样，灯可是温室环境，等灯爸向灯扔啤酒罐子，再死个妈，唯一的从小一起长大的好友疯批了再来谈 ...</blockquote>
+就算残血河道遭遇战别人带着双buff。也只能说别人抓得好。有什么办法。
+
+*****
+
+####  天空塔书记官  
+##### 13906#       发表于 2025-1-30 20:09
+
+单从演技才能理解也不是不可以，比如你和长辈一起打牌或者麻将，也有时候会执着于输赢一样，睦家可能只是将这种竞争常态化了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  osore  
+##### 13907#       发表于 2025-1-30 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被舅舅透成筛子了还藏呢
+
+*****
+
+####  南宮凝香  
+##### 13908#       发表于 2025-1-30 20:11
+
+也可以喝假藥
+
+睦媽把睦當（雌競）對手
+
+雙重人格出現是因為某種大家可以猜到理由的心理創傷
+
+後面爆出來， 睦父睦媽被送進去
+
+所有家庭因素清光了就可以靠音樂包餃子了
+
+*****
+
+####  天空塔书记官  
+##### 13909#       发表于 2025-1-30 20:12
+
+那ave真就变成一款厕妹时尚单品了
+
+一切都是原生家庭的错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  osore  
+##### 13910#       发表于 2025-1-30 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这药是喂武大郎的吧
+
+*****
+
+####  swessia  
+##### 13911#       发表于 2025-1-30 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">BC part是有什么大活吗一直藏
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 13912#       发表于 2025-1-30 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312244&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 20:07</a>
+我是这么想的 妈妈也是双人格 最后黑的那个赢了 就变成现在这样了 白色的妈妈已经死了 就剩黑色的mnm了 ...</blockquote>
+官方要是这么干，mggm就可以收拾行李去发纸巾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd光速破产的未来
+
+*****
+
+####  哈曼的YY  
+##### 13913#       发表于 2025-1-30 20:15
+
+舅舅每集都出来说谜语 上集也没透出解散啊
+
+不安的预感
+
