@@ -2197,3 +2197,48 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 
 这不就是那种大爷穿了很多年松松垮垮比人还长的背心吗，一眼修司捡来的
 
+
+*****
+
+####  RE㐅ia  
+##### 6090#       发表于 2025-1-30 14:15
+
+反正手套是有捡来的设定
+
+<img src="https://img.saraba1st.com/forum/202501/30/141553yclkut61wknpkm1v.png" referrerpolicy="no-referrer">
+
+<strong>39FD81C4-CD0B-4D61-89EF-ADC062EE17B5.png</strong> (499.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 14:15 上传
+
+*****
+
+####  PascalLefèvre  
+##### 6091#       发表于 2025-1-30 14:17
+
+原来是hobo系美男
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  虛無迴廊  
+##### 6092#       发表于 2025-1-30 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309880&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-1-30 14:02</a>
+这不就是那种大爷穿了很多年松松垮垮比人还长的背心吗，一眼修司捡来的
+
+说不定修司被传送过来的时候和终结 ...</blockquote>
+那另一个世界会有一个光着屁股突然出现的鸭子吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 6093#       发表于 2025-1-30 14:20
+
+霓虹那边称这件为不可思议系角色定番的卖肉装
+
+类比就是cc那件拘束服，把牢修性转就看懂了（
+

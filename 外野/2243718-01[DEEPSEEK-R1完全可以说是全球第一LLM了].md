@@ -10501,3 +10501,15 @@ IT之家 1 月 30 日消息，人工智能正加速向着边缘计算领域发�
 
 这开源谁不抄谁傻 edge反攻桌面浏览器历历在目
 
+
+*****
+
+####  moeblack  
+##### 799#         楼主| 发表于 2025-1-30 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309710&amp;ptid=2243718" target="_blank">zeroboss1 发表于 2025-1-30 13:36</a>
+IT之家 1 月 30 日消息，人工智能正加速向着边缘计算领域发展，Copilot+ PC 在其中扮演着重要角色。随着 De ...</blockquote>
+。目前不开联网搜索的模型已经恢复了，哎呀，舒服了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
