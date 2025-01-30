@@ -1199,3 +1199,15 @@ agi变不出钢铁，也变不出炮弹。
 agi就算能实现自我迭代、实现科研全自动，成果落地还是大规模制造。
 硅谷精英就算费尽千辛万苦搞出来agi，这个agi给他们的第一个建议恐怕是投共<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  luang  
+##### 112#       发表于 2025-1-30 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308773&amp;ptid=2244642" target="_blank">云卷花开 发表于 2025-1-30 11:38</a>
+说句实在话，你人类也做不到自我迭代，人类的智能是一个运行在自然界亿年为单位迭代出来的复杂硬件上的函数 ...</blockquote>
+你这是湿件路线，科技树压根没点开过
+
+—— 来自 Google Pixel 6 Pro, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-alpha
+

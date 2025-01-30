@@ -10653,3 +10653,15 @@ Git hub和perplexity的代理我都用了，远远不行
 鬼佬一堆网站已经开始托管r1大杯了，国内那些服务商在搞毛！</blockquote>
 360那个感觉也不行
 
+
+*****
+
+####  KioShiMa  
+##### 811#       发表于 2025-1-30 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310332&amp;ptid=2243718" target="_blank">Canck 发表于 2025-1-30 15:14</a>
+今天一天都提示联网功能繁忙不让用；是只有我这样还是大伙儿都这样？
+
+论坛助手,iPhone ...</blockquote>
+我今天能吐出来一些R1小说，但是我token耗尽了
+
