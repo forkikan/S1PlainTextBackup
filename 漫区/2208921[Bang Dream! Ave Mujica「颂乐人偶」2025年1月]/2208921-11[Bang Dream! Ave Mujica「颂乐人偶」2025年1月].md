@@ -1331,3 +1331,204 @@ ave的问题是作为噱头的部分搞太大了，之后需要平衡回来，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thisisaspider  
+##### 14919#       发表于 2025-1-31 02:39
+
+飞人太沉重了，最不想看到的一幕。一开始的误会，大家还笑小祥纯真，一个美好的误会开始的故事，最后还要回收。
+
+这已经不是对角色输出了，是对观众输出。有种礼物盒的黑色幽默。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 14920#       发表于 2025-1-31 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大祥老师每个炸团关键时刻连一个明确表态支持她的人都没有
+这已经不是单纯的领导能力问题了
+
+
+*****
+
+####  yaneis  
+##### 14921#       发表于 2025-1-31 02:40
+
+<blockquote>iiiiiiiiii 发表于 2025-1-31 02:32
+我是看得真不爽，现在mujica可以说毫无爽点，这几集下来就是一直压抑一直压抑。🦄想什么不知道。说实话一 ...</blockquote>
+我是觉得会对祥子坏的一部分做修正打脸，没想到是直接让祥子好的一面，比如为照顾老爹承担生活压力，全部变成回旋镖打向自己，坐实没苦硬吃，有一种来自现实的"我早就告诉你了"的说教感，属于是在根源上把祥子的高贵捏了个粉碎，让观众感受到祥子所谓的觉悟和坚持正义都是笑话，这种情况实在太极端了
+
+*****
+
+####  thisisaspider  
+##### 14922#       发表于 2025-1-31 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316783&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-31 02:37</a>
+
+权利在那，只是祥子没有去动用而已啊，她的人设是自己跑路，而不是chuchu那样你不行就滚 ...</blockquote>
+不排斥大祥使用丰川大手强势归来。喵梦你说的嘛，父母也是能力，能用上就用上。甚至一扫之前过家家的味道。
+
+问题是怎么写好。
+
+*****
+
+####  Lyzers  
+##### 14923#       发表于 2025-1-31 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316765&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 02:35</a>
+
+海铃会对迷子支援上心，大概是因为立希，而至于祥子搞的这个“银河战舰”就还是观望居多了
+
+上面说祥子轻信 ...</blockquote>
+我不是来吵架的，请问你是怎么好意思一边叫人冷静看待剧情看完再评价，一边直接对角色疯狂滑坡引战的？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 14924#       发表于 2025-1-31 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316765&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 02:35</a>
+
+海铃会对迷子支援上心，大概是因为立希，而至于祥子搞的这个“银河战舰”就还是观望居多了
+
+上面说祥子轻信 ...</blockquote>
+心理这么负面，却不知道要在合同里规定好这类关乎个人隐私的禁止事项吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 14925#       发表于 2025-1-31 02:42
+
+ 本帖最后由 huxiaopao163 于 2025-1-31 02:45 编辑 
+
+说到底也没有信息说睦没有去过医院吧，可能下集就说其实去过医院了，结果测验一圈一下来，发现生理指标都正常的，所以先回家休息休息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mortis：我不管我不管，小睦你怎么不理我了啊，你不要一直睡啊，医生你快救救她啊
+
+医生：啊这
+
+*****
+
+####  哈曼的YY  
+##### 14926#       发表于 2025-1-31 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316714&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 02:27</a>
+
+这里才是最危险的，结合访谈虚假的光和对称结构，第7集爆的概率**上升好吧。
+
+现在MYGO就介入进来了，很难 ...</blockquote>
+我觉得下集应该就到深渊底部了吧不然篇幅
+
+我超我字打了一半突然意识到 这母鸡卡 不会是12甚至13集才重建吧？ 那些颜艺只是重建过程<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+但是这样live咋办
+
+*****
+
+####  thisisaspider  
+##### 14927#       发表于 2025-1-31 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316791&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-31 02:40</a>
+
+大祥老师每个炸团关键时刻连一个明确表态支持她的人都没有
+
+这已经不是单纯的领导能力问题了 ...</blockquote>
+soyo：我反对
+
+睦：我支持
+
+*****
+
+####  wpcc  
+##### 14928#       发表于 2025-1-31 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316810&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-31 02:42</a>
+
+我觉得下集应该就到深渊底部了吧不然篇幅
+
+我超我字打了一半突然意识到 这母鸡卡 不会是12甚至13集才重建 ...</blockquote>
+到第十集就没有往下了
+
+*****
+
+####  庸necro  
+##### 14929#       发表于 2025-1-31 02:44
+
+ 本帖最后由 庸necro 于 2025-1-31 02:47 编辑 
+
+我是不太能接受丰川集团完全掌控或者完全支持鸡团全部运营这种推论的，这也和tgw实际在海报上的低顺位不符合，那真是大小姐过家家了，如果直接求情的话还煮破地方就属于纯粹装装样子了，连没苦硬吃都算不上，属于假装吃苦了，我觉得爷爷可能投得不多，也没有和祥子商量，爷爷明白祥子什么脾气，动用面子果实祥子更能接受也更找不到话说，但是有这个集团投资表态的意思对于事务所来说已经够了，知道真出事了有人会来收拾场子的，祥子自己也确实干了很多制作人的活，那就陪太子读书呗。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 14930#       发表于 2025-1-31 02:44
+
+拒绝沟通是这样的，遇到事不是跑就是润，又恰好她选的两拨队友都是不太能主动沟通的类型，也许素世除外(?)
+
+拒回消息不止祥子，灯也干了，但灯已经走出来了，祥子还在鬼打墙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 14931#       发表于 2025-1-31 02:44
+
+<blockquote>刑部姬真可爱 发表于 2025-1-31 02:37
+权利在那，只是祥子没有去动用而已啊，她的人设是自己跑路，而不是chuchu那样你不行就滚 ...</blockquote>
+如果有权利那最后还是回到抽象大喵，别人过家家才没用权利惩罚你，怎么还好意思输出正论的，还不如坐实就是没实权（
+
+*****
+
+####  thisisaspider  
+##### 14932#       发表于 2025-1-31 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316810&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-31 02:42</a>
+
+我觉得下集应该就到深渊底部了吧不然篇幅
+
+我超我字打了一半突然意识到 这母鸡卡 不会是12甚至13集才重建 ...</blockquote>
+本来预想是10集前，mygo助推一下，完成最后拼图。这样对两个团都好。
+
+现在我都不敢假药了。
+
+*****
+
+####  wwwttth  
+##### 14933#       发表于 2025-1-31 02:45
+
+<blockquote>Lyzers 发表于 2025-1-31 02:37
+意思是一个本应心智正常的十几岁乖乖女，唐突性情大变，满嘴人格分裂还在重要场合失声尖叫，但你觉得这就 ...</blockquote>
+在第四集其他人看来不是性格变好了么？全篇只有最后解散宣言的时候有过激的情绪，完全可以是宣泄情绪，其他人眼中真没啥能觉得她有精神问题的。不是人的当然就是一个月都没注意到的父母，和因为睦头的原因解散却一个月都没去做点什么的祥子啊。
+
+*****
+
+####  江口夕  
+##### 14934#       发表于 2025-1-31 02:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢爹怎么可能不包，楼里什么依靠大手还是醒醒。她牢爹要包，不然不能动用大手
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yaneis  
+##### 14935#       发表于 2025-1-31 02:47
+
+<blockquote>庸necro 发表于 2025-1-31 02:44
+我是不太能接受丰川集团完全掌控或者完全支持鸡团全部运营这种推论的，这也和tgw实际在海报上的低顺位不符 ...</blockquote>
+最恐怖的是编剧真支持过家家论，所有人都在用这个理由拷打祥子，所以我说太极端了（
+
+*****
+
+####  septer  
+##### 14936#       发表于 2025-1-31 02:48
+
+第4话最大的问题还是双重人格把睦搞崩了，这是比丰川的老登大手都要魔幻百倍的存在<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+第5话的小祥更加美味了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
