@@ -2172,3 +2172,16 @@ go团拯救一切
 
 切割前四集的mujica会有希望吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qweszxc9160  
+##### 240#       发表于 2025-1-31 05:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315917&amp;ptid=2244721" target="_blank">池袋西柚 发表于 2025-1-31 00:56</a>
+
+你在岁月史书啥啊。首先狗踩头不需要拉上鸡，攻击鸡是对面话术，而狗一般的话术都是狗已经很完整了，鸡崩 ...</blockquote>
+最大的矛盾 推动所有人的动机 直到最后一集都没有解释过 这都完整
+
+go批大脑也升级了?
+
