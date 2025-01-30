@@ -444,3 +444,27 @@ deepseek让任何人都能用买一辆车的钱部署一个属于自己的超级
 我说了要在ai领域打败你，你就不能开战，也不能反抗芯片禁令， ...</blockquote>
 这波agi还真和里根当时搞“星球大战”一个思维模版了。本质为了战争大叫为了人类，然后希望拖的对方自己投降或者完蛋。
 
+
+*****
+
+####  zerona  
+##### 42#       发表于 2025-1-30 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307798&amp;ptid=2244642" target="_blank">萦桦 发表于 2025-1-30 08:07</a>
+
+AGI带来最直接的特点就是每一名员工都有和自己差不多或更聪明的助理（顾问）在协助，这一点就极大解放了 ...</blockquote>
+和员工有啥关系？都是公司的，你是能带走还是能个性定制啊？
+
+
+*****
+
+####  jojog  
+##### 43#       发表于 2025-1-30 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308035&amp;ptid=2244642" target="_blank">天青色的西风 发表于 2025-1-30 09:42</a>
+
+就算你说的技术、芯片的内容都对，单级世界就一定比双极世界好吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一如果单极是我们肯定也会有不少人支持这么搞
+
+但是现在既然不是我们，那这不得使劲添几把柴火
+
