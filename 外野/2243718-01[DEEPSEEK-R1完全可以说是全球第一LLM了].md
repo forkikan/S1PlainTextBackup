@@ -10861,3 +10861,49 @@ Git hub和perplexity的代理我都用了，远远不行
 当下因为攻击，反正web和app的联网搜索都挂掉了，api我倒不知道</blockquote>
 这个联网搜索还影响知识库吗，我还以为开了r1就行<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Azcarlo  
+##### 828#       发表于 2025-1-30 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310993&amp;ptid=2243718" target="_blank">怀楠凌 发表于 2025-1-30 17:00</a>
+
+这个联网搜索还影响知识库吗，我还以为开了r1就行</blockquote>
+影响的，r1知识库应该到23年的7月，再新的要联网搜
+
+*****
+
+####  弗里德里希大帝  
+##### 829#       发表于 2025-1-30 17:10
+
+有个问题，我把一卷小说拖进去让ds分析人物性格和故事脉络，提示超字数了，只读了一半，我把另一半拖进去需要重开一个新对话，如何保持前后的连贯性？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ggggggssss  
+##### 830#       发表于 2025-1-30 17:12
+
+一说一，D指导给我最震撼的东西，反而是看到他在用23年任先生语料，就能生成出新鲜的25年的马批话。
+
+如果否定变革，一个三十岁成熟中年人构建的逻辑基本上可以解释一切现象。批话大师的末日到来了。
+
+*****
+
+####  ggggggssss  
+##### 831#       发表于 2025-1-30 17:13
+
+<blockquote>弗里德里希大帝 发表于 2025-1-30 17:10
+有个问题，我把一卷小说拖进去让ds分析人物性格和故事脉络，提示超字数了，只读了一半，我把另一半拖进去需 ...</blockquote>
+试下，放在txt里，直接上传文件
+
+*****
+
+####  妄想中毒  
+##### 832#       发表于 2025-1-30 17:15
+
+官网的API一直不正常，第三方的API反而是正常的，神秘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

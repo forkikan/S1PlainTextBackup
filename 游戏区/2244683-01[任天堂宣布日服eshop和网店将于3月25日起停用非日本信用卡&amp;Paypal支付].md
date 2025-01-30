@@ -699,3 +699,27 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 话说如果嗯要丧事喜办的话，以后淘宝买点卡卖到黑卡ban机的几率是不是变低了，毕竟境外黑卡都被限制了
 
+
+*****
+
+####  Bruce33  
+##### 78#       发表于 2025-1-30 17:08
+
+经典犯病
+
+*****
+
+####  zerocount  
+##### 79#       发表于 2025-1-30 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310625&amp;ptid=2244683" target="_blank">Dedalus 发表于 2025-1-30 16:06</a>
+
+说句公道话不是任天堂有病，从今年开始日本app store也只能绑定日本jcb了，是日本人有病
+
+论坛助手,iPhone ...</blockquote>
+对
+
+纯粹日本人有病
+
+去年末还在指导群友注册日区app store 然后突然所有银行的jcb卡都绑不了了  
+
