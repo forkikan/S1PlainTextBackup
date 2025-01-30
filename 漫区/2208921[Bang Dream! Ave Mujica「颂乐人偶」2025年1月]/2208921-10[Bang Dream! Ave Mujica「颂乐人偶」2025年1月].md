@@ -4702,3 +4702,51 @@ VOICE Febri杂志AveMujica部分
 
 就祥子现在这种自己自顾不暇就开始伤害身边人和她爹一模一样的性格来说最后肯定会和解的，或者最差也是老爹因为祥子在音乐上奋斗从颓废里渐渐走出来之类（不过不一定会在动画里写），动画毕竟是am真正成为团队的故事，这种个人大背景可以留到手游写，家庭戏份太重就会导致海铃这种不描写家庭背景的角色很突兀，换句话说如果丰川家内斗描写超过一集就**增加这片烂的风险了（
 
+
+*****
+
+####  osore  
+##### 13771#       发表于 2025-1-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311356&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 18:02</a>
+那段访谈不是不是在说老家人見栄吗</blockquote>
+是说祥子遵循心中的正义跟她爹走，被家暴后后悔了但是死要面子（見栄）不好意思回去继承千亿家产
+
+*****
+
+####  dgugvff  
+##### 13772#       发表于 2025-1-30 18:43
+
+要根据现有的信息来推测好吗，两颗大炸弹一个是睦一个是初华，初华估计祥子解决，睦的话SOYO和祥子解决 祥子的问题灯解决。
+
+*****
+
+####  NODY  
+##### 13773#       发表于 2025-1-30 18:44
+
+ykn爹在ykn还小的时候就给ykn相中了童养媳lisa，牢爹能给祥子送个童养媳吗
+
+*****
+
+####  akiomn  
+##### 13774#       发表于 2025-1-30 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311653&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-30 18:43</a>
+
+要根据现有的信息来推测好吗，两颗大炸弹一个是睦一个是初华，初华估计祥子解决，睦的话SOYO和祥子解决 祥 ...</blockquote>
+
+睦也是祥子独自解决，没素世什么事
+
+莫提斯海港那句话已经钦定了是成长后的祥子
+
+*****
+
+####  天空塔书记官  
+##### 13775#       发表于 2025-1-30 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311506&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 18:21</a>
+写家庭伦理剧这点就麻烦怎么融合或突出团魂来写。写五个人反叛各自家庭吗？还是全砍了就写祥睦。真能体现 ...</blockquote>
+其实只要解决了祥子和木头的家庭矛盾，剩下的都可以用资本应对，可以不让资本完全控制乐队的运行，但借助资本的大手来平事还是很可靠的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
