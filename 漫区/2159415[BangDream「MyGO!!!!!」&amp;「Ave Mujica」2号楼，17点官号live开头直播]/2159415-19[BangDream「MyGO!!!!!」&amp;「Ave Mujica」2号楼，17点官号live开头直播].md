@@ -3421,3 +3421,23 @@ eupd死了
 
 估计是武士道觉得双m流量比邦高，舍不得改。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26902#       发表于 2025-1-30 11:29
+
+【【音频】Grateful Melting - Roselia】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1umF3e6ETg/?share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
+
+龙哥，在世真龙！
+
+又是一首3/4的曲子（）
+
+<img src="https://img.saraba1st.com/forum/202501/30/112849n5suzsheg4ug4e7j.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250130112018.png</strong> (110.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 11:28 上传
+

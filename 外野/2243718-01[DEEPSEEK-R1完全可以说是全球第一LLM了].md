@@ -10275,3 +10275,38 @@ dsr搞不了黄色吧，太颠了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  希德尼娅  
+##### 777#       发表于 2025-1-30 11:26
+
+昨天碰到一亲戚坚称chatgpt比ds强，我上不了chatgpt，有没有类似的输出对比啊？
+
+
+*****
+
+####  小止  
+##### 778#       发表于 2025-1-30 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308518&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-30 11:06</a>
+
+没……找到……版本不一样的缘故？高级设置里没有这项啊</blockquote>
+我是github拉的staging分支
+
+*****
+
+####  玖羽  
+##### 779#       发表于 2025-1-30 11:33
+
+...............
+
+*****
+
+####  dazzle  
+##### 780#       发表于 2025-1-30 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308705&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 11:30</a>
+我是github拉的staging分支</blockquote>
+API能用了？这几天都连不上
+
