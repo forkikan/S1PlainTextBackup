@@ -88,3 +88,17 @@ OneDrive：1drv.ms/v/c/16d9a35274d26dc4/EeYcMsGHDTlIr4ITPI0FZgIBRS7Vtj869p7km-lp
 —— 来自 鹅球 v3.3.96</blockquote>
 就是这个反差，究极迫害。
 
+
+*****
+
+####  4869Bi  
+##### 7574#       发表于 2025-1-30 23:20
+
+ 本帖最后由 4869Bi 于 2025-1-30 23:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307346&amp;ptid=1959558" target="_blank">damian-wade 发表于 2025-1-30 01:05</a>
+
+不是，ksm的live就这么没了？迫害得过分了呀
+
+—— 来自 鹅球 v3.3.96</blockquote>
+ksks之前的无敌级比别人多一首，现在还债
+

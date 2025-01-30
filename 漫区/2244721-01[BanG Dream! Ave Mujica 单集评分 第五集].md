@@ -1093,3 +1093,101 @@ mygo destiny
 
 +1  单看女女关系性的话，这集真不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  砂糖续香香  
+##### 125#       发表于 2025-1-30 23:17
+
++1吧 只要不细想经纪人和大人这种，观感还不错
+
+*****
+
+####  cscbzcbz  
+##### 126#       发表于 2025-1-30 23:19
+
+还有单集评分的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 127#       发表于 2025-1-30 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314489&amp;ptid=2244721" target="_blank">127 发表于 2025-1-30 23:12</a>
+
+坛友的评论很有回旋镖的潜力啊。知人知面不知心，才第五集就锐评某个人如何，这是忘了当初mygo的教训了？当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卖狗回旋镖是因为卖狗真就小女生闹别扭，再坏坏不到哪，开个live话说开就能解决问题
+
+母鸡卡现在实打实把人逼疯了又把人晾在那，一个月不管不顾，我还真就好奇怎么样的回旋镖才能把这种行为圆回来
+
+*****
+
+####  Fatina  
+##### 128#       发表于 2025-1-30 23:21
+
+编剧的智力和观众相得益彰
+
+*****
+
+####  贰臣  
+##### 129#       发表于 2025-1-30 23:21
+
+很喜欢这集，看完甚至有想把第四集评分改高一点的冲动
+
+不过还是算了，希望能保持住吧
+
+
+*****
+
+####  怀沙汨罗  
+##### 130#       发表于 2025-1-30 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314489&amp;ptid=2244721" target="_blank">127 发表于 2025-1-30 23:12</a>
+坛友的评论很有回旋镖的潜力啊。知人知面不知心，才第五集就锐评某个人如何，这是忘了当初mygo的教训了？当 ...</blockquote>
+mygo胜在有自知之明，就用校园乐队的饺子蘸女女关系的醋。母鸡卡这前五集讲的，我只看到左右互搏。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  澜灰-  
+##### 131#       发表于 2025-1-30 23:23
+
+0
+作为单集蛮不错，灯那一句太棒太棒
+作为mujica第五集，基本成送葬者了
+只能说期望后面要不就再整点活，要不尽量舒适区吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 132#       发表于 2025-1-30 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314489&amp;ptid=2244721" target="_blank">127 发表于 2025-1-30 23:12</a>
+
+坛友的评论很有回旋镖的潜力啊。知人知面不知心，才第五集就锐评某个人如何，这是忘了当初mygo的教训了？当 ...</blockquote>
+大祥保底还能浪子回头（虽然作为主角，和当初灯一比就是没有编辑疼爱的）。<strong>和素世不同，大瞄的黑是直接拍在你脸上的，即使后面洗白成功，前面干的烂事还能一笔勾销不成？</strong>
+
+*****
+
+####  电波通信  
+##### 133#       发表于 2025-1-30 23:24
+
+所以鸡动画现在算是感情大于逻辑吗。一开始就没有什么高期待，目标明确，所以：剧情逻辑-2，个人喜闻乐见的素睦大卖+3<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">=+1
+
+*****
+
+####  赛文欧德  
+##### 134#       发表于 2025-1-30 23:24
+
++2 
+
+这是女女关系性动画，什么乐队，不熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 135#       发表于 2025-1-30 23:25
+
++1  没犯病就能不错
+

@@ -1423,3 +1423,11 @@ closeai自己数据版权就一屁股屎
 
 那么AGI和量子计算机哪个先出来，量子计算机近十年虽然说的不多，不过货真价实可能是美赢神器之一吧，这个方向的国土安全审查几乎严的不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  x分裂者  
+##### 135#       发表于 2025-1-30 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">比起2-3年搞出agi，我还不如相信老中2-3年搞出euv，扩大到五年也一样
+
