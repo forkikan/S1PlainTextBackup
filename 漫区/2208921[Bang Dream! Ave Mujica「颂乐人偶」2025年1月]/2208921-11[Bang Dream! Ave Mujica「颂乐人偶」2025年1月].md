@@ -1532,3 +1532,160 @@ soyo：我反对
 
 第5话的小祥更加美味了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 14937#       发表于 2025-1-31 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316729&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 02:30</a>
+
+一想到wsd还要折磨我6-8集，就恨不得杀了mggm。</blockquote>
+追番本该是快乐的，享受对未知的期待和意料之外的惊喜
+
+那些假药入脑的、自顾自脑内补完13集剧本然后正片不按那套来演就大骂的，真是满脑子想着自己呢
+
+*****
+
+####  刑部姬真可爱  
+##### 14938#       发表于 2025-1-31 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316818&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:44</a>
+
+如果有权利那最后还是回到抽象大喵，别人过家家才没用权利惩罚你，怎么还好意思输出正论的，还不如坐实就 ...</blockquote>
+喵梦现在的人设不就是自私外加顺杆爬吗，深谙君子欺之以方的道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 14939#       发表于 2025-1-31 02:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">其实睦头父母不送她去医院这事在日本还挺正常的
+日本八卦小报偶有类似报道
+
+*****
+
+####  天空塔书记官  
+##### 14940#       发表于 2025-1-31 02:50
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 02:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316802&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 02:41</a>
+我不是来吵架的，请问你是怎么好意思一边叫人冷静看待剧情看完再评价，一边直接对角色疯狂滑坡引战的？ ...</blockquote>
+啊 ? 可确实不是krkrdkdk啊，祥子从春日影开始心理状态就很不健康了，这不就是番剧里所表现的吗，从她招募喵梦的手段来看也已经不是像白祥那样阳光充满自信了，尤其是在木头家那段更是如此，所以是怎么能看出祥子轻信他人的，我不明白
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 14941#       发表于 2025-1-31 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316828&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-31 02:48</a>
+
+追番本该是快乐的，享受对未知的期待和意料之外的惊喜
+
+那些假药入脑的、自顾自脑内补完13集剧本然后正片 ...</blockquote>
+真未知吗 我都笑了 纯信息差动画闹麻了
+
+*****
+
+####  wpcc  
+##### 14942#       发表于 2025-1-31 02:51
+
+正常动画100踢大猫龙王杀小人 现在小人要和你包饺子了怎么解释呢 我看不如杀龙王得了
+
+
+*****
+
+####  iiiiiiiiii  
+##### 14943#       发表于 2025-1-31 02:52
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-31 02:54 编辑 
+
+现在感觉跟看骆驼祥子一样，当初为人正直善良的骆驼祥子被旧社会敲打变成市侩的流氓混混。当初关心亲人，爱护家庭又对世界充满希望，追求梦想的祥子变成唯唯诺诺，只会随声附和的提线木偶。🦄想表达什么
+
+*****
+
+####  庸necro  
+##### 14944#       发表于 2025-1-31 02:53
+
+ 本帖最后由 庸necro 于 2025-1-31 02:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316825&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:47</a>
+最恐怖的是编剧真支持过家家论，所有人都在用这个理由拷打祥子，所以我说太极端了（ ...</blockquote>
+因为tgw真来擦屁股了，谁看谁都觉得是大小姐过家家，这属于跳进黄河洗不清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说戏内看不清了，就算是戏外很多人也这么觉得了。但是真的是大小姐过家家那就是从祥子离开家门开始这逻辑就有问题了，如果真是这样那就从头到脚烂完了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 14945#       发表于 2025-1-31 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316825&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:47</a>
+最恐怖的是编剧真支持过家家论，所有人都在用这个理由拷打祥子，所以我说太极端了（ ...</blockquote>
+不会支持的，大祥照顾牢爹还被当过家家。真继承不管牢爹了才是人设崩塌，很明显，很多人直接帮祥子选择了。哪怕大祥搬去初华那里，祥子还是和牢爹有联系进局子还是要捞人的，又不是真不管
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Lyzers  
+##### 14946#       发表于 2025-1-31 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316820&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 02:45</a>
+
+在第四集其他人看来不是性格变好了么？全篇只有最后解散宣言的时候有过激的情绪，完全可以是宣泄情绪，其 ...</blockquote>
+一，这还是没回答我什么越过不越过的问题，大祥老师是同辈首先不用说了根本无权对睦头去什么地方有实质限制，然后睦爸妈也还是那个说法；
+
+二，性格变好了，指在跟团队几个人开完会后live现场失声尖叫吗？就，我可能不太理解社会常识，但在我的认识中，如果一个人在跟我开完会之后不受控制咿呀尖叫，再怎么说我还是会去找办法了解一下这个人什么情况的，但目前信息并没有给出他们有过这种行为，开完live真就各回各家了
+
+*****
+
+####  thisisaspider  
+##### 14947#       发表于 2025-1-31 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316795&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:40</a>
+
+我是觉得会对祥子坏的一部分做修正打脸，没想到是直接让祥子好的一面，比如为照顾老爹承担生活压力，全部 ...</blockquote>
+我给你梳理一下离家线。
+
+1. 母亲去世，祥子组建C团，父亲被诈骗逐出家门。
+
+2. 父亲消失，祥子离家找到父亲并照顾酗酒父亲，撑起家庭，期间还打算回C团排练。
+
+3. 父亲进局子，祥子保释父亲，祥子退出/解散C团。
+
+4. 祥子组建A团，同时照顾父亲。
+
+5. A团上武道馆，被父亲驱逐，祥子住办公室。
+
+6. 被初华捡回家。
+
+7. A团解散，祥子回到父亲家，重新打工学习。
+
+8. 老登堵校门，带走祥子。
+
+也帮忙看一下有没有漏的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南条一间  
+##### 14948#       发表于 2025-1-31 02:56
+
+只是理念不和导致乐队解散搞得和仇人一样见面话都不愿意多说两句，另外睦头精神状态崩了一个月，前队友不熟就算了，知情的发小也不带管得是吧，真是满脑子都是自己啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 14949#       发表于 2025-1-31 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316825&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:47</a>
+最恐怖的是编剧真支持过家家论，所有人都在用这个理由拷打祥子，所以我说太极端了（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看不是编剧支持，是现在的乌烟瘴气不断滑坡的讨论环境入脑了。真编剧支持，牢爹早就不管了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
