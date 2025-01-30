@@ -1254,3 +1254,22 @@ AGi是能解决所有问题 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没搞懂，先不说能不能快速搞出AGI，就说AGI本身能带来什么，怎么现在帝国都默认搞出了AGI就能灭鳖了
 
+
+*****
+
+####  zhaowenyi7  
+##### 118#       发表于 2025-1-30 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308603&amp;ptid=2244642" target="_blank">Mafise 发表于 2025-1-30 11:19</a>
+你真的懂啥叫神经可塑性 neuroplasticity吗。。要不先问问ai</blockquote>
+老哥不会是搞类脑的吧
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  daliang  
+##### 119#       发表于 2025-1-30 18:00
+
+2、3年之后只需重新定义agi即可
+

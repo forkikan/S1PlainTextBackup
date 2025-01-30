@@ -940,3 +940,43 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 国内收货地址，日本转运地址，地址生成器出来的日本地址都试了一遍，都不行
 
+
+*****
+
+####  oi99o  
+##### 100#         楼主| 发表于 2025-1-30 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311293&amp;ptid=2244683" target="_blank">QYMtutututu 发表于 2025-1-30 17:53</a>
+
+我日亚用中文页面
+
+分别绑定了一张AMEX借记卡，MasterCard人民币信用卡，MasterCard借记卡
+
+选择“ンテンド ...</blockquote>
+那可能是你的卡有什么问题吧。我用日文界面，绑定visa信用卡（银行卡币种全部为Japanese Yen（JPY）），请求先（お支払方法に紐づいた住所）用了国内地址，是可以点下“注文を確定”按钮的。
+
+只不过刚才确定了一单，却还没收到日亚邮件，信用卡也没扣款。订单记录有生成，但是查不到兑换码，不知道又是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wondor1111  
+##### 101#       发表于 2025-1-30 18:03
+
+不锁语言就很好了，锁来锁去才符合我对任桑的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 102#       发表于 2025-1-30 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311344&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-1-30 18:00</a>
+那可能是你的卡有什么问题吧。我用日文界面，绑定visa信用卡（银行卡币种全部为Japanese Yen（JPY））， ...</blockquote>
+日亚买点卡听说有延迟，得等几个小时才会扣款发码
+
+*****
+
+####  夜天光  
+##### 103#       发表于 2025-1-30 18:05
+
+日服一直是充点卡买东西，好像没啥影响
+
