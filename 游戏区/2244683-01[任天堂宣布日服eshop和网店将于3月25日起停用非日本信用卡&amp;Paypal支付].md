@@ -723,3 +723,55 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 去年末还在指导群友注册日区app store 然后突然所有银行的jcb卡都绑不了了  
 
+
+*****
+
+####  oi99o  
+##### 80#         楼主| 发表于 2025-1-30 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311008&amp;ptid=2244683" target="_blank">春风画雨 发表于 2025-1-30 17:03</a>
+话说如果嗯要丧事喜办的话，以后淘宝买点卡卖到黑卡ban机的几率是不是变低了，毕竟境外黑卡都被限制了 ...</blockquote>
+被限制的是直接支付的卡，点卡还是可以用海外卡买的（比如日亚），所以点卡风险应该不变
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  绿冰  
+##### 81#       发表于 2025-1-30 17:17
+
+能拖到现在才执行已经有点意外了，毕竟任天堂自家游戏的，不打折情况下现在日服便宜很多
+
+所以NS2时代能不能把港服价格降下来，降了我就不抱怨什么了
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 82#       发表于 2025-1-30 17:17
+
+真傻逼，有钱不赚嫌命长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  廖化  
+##### 83#       发表于 2025-1-30 17:23
+
+一直用信用卡买会员，这下怎么办，只能上亚马逊买点卡？TMD傻逼老任<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  QYMtutututu  
+##### 84#       发表于 2025-1-30 17:25
+
+我是直接寄了
+
+只能在3月25号之前屯点进去
+
+不知道日亚你们都是怎么买的
+
+日亚购买提示，“您不能购买此商品，因为此区域当前不受支持。 与此商品相关的任何捆绑折扣将不适用于此购买。”
+
+我的日亚绑定outlook，国内+86的手机号，地址有国内地址和日本转运地址，没买过一次数字商品，最早一笔实体商品订单都能追到2017年，怎么也算是良好账号了吧，买不了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

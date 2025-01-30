@@ -10907,3 +10907,25 @@ Git hub和perplexity的代理我都用了，远远不行
 
 官网的API一直不正常，第三方的API反而是正常的，神秘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 833#         楼主| 发表于 2025-1-30 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311055&amp;ptid=2243718" target="_blank">弗里德里希大帝 发表于 2025-1-30 17:10</a>
+有个问题，我把一卷小说拖进去让ds分析人物性格和故事脉络，提示超字数了，只读了一半，我把另一半拖进去需 ...</blockquote>
+建议让DAEEPSEEK教你
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zerona  
+##### 834#       发表于 2025-1-30 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311078&amp;ptid=2243718" target="_blank">妄想中毒 发表于 2025-1-30 17:15</a>
+
+官网的API一直不正常，第三方的API反而是正常的，神秘</blockquote>
+啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。
+
