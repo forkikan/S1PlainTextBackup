@@ -10792,3 +10792,50 @@ Git hub和perplexity的代理我都用了，远远不行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  精钢魔像  
+##### 822#       发表于 2025-1-30 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310799&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-1-30 16:35</a>
+
+36的那个ds能联网用么？效果和原版一样？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+感觉比原版的笨，也不能联网，不过速度不错
+
+
+*****
+
+####  yangkaim4  
+##### 823#       发表于 2025-1-30 16:50
+
+官网炸了？要生成key显示维护网站。
+
+*****
+
+####  overflowal  
+##### 824#       发表于 2025-1-30 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310799&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-1-30 16:35</a>
+36的那个ds能联网用么？效果和原版一样？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那个是deepseek放的蒸馏模型。。能力是比不上真正的R1的，估计是32B的qwen蒸馏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yangkaim4  
+##### 825#       发表于 2025-1-30 16:53
+
+<blockquote>RexJax 发表于 2025-1-30 02:05
+用原版写小黄文会写出来再撤回，快写完的时候直接断网就能保存
+
+用360会直接拒绝
+
+什么时候原版的抽风才能好 ...</blockquote>
+问题现在这货鸡贼的很，刚开头发现不对就停了
+
