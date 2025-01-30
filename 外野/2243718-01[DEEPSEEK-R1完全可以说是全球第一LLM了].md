@@ -11013,3 +11013,13 @@ DeepSeek R1 is now available on Azure AI Foundry and GitHub
 https://azure.microsoft.com/en-us/blog/d ...</blockquote>
 套皮二道贩子要大量出现了
 
+
+*****
+
+####  yangkaim4  
+##### 843#       发表于 2025-1-30 19:31
+
+<blockquote>andychen 发表于 2025-1-30 18:27
+套皮二道贩子要大量出现了</blockquote>
+这个是啥？怎么用？
+

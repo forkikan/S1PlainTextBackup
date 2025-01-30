@@ -5252,3 +5252,206 @@ mygo重建我可以用感染力糊弄过去 你告诉我mujica再用live就能�
 莫老师喜欢谁还不知道</blockquote>
 看访谈是木头水仙吧 代打一个月决定去留
 
+
+*****
+
+####  swessia  
+##### 13825#       发表于 2025-1-30 19:26
+
+ 本帖最后由 swessia 于 2025-1-30 19:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">编辑，怕被追杀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 13826#       发表于 2025-1-30 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311949&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 19:25</a>
+
+还没完结，不支持滑坡</blockquote>
+我上一个这么想的是水星的魔女 哈哈
+
+*****
+
+####  JustW  
+##### 13827#       发表于 2025-1-30 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311916&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-30 19:20</a>
+第一栏
+
+原文是省略主语，你说原文没有我只能说是语文问题</blockquote>
+“見栄もあって家には戻れず”确实没什么歧义，就是说祥子出于“面子”没办法回家，見栄算是带有轻微贬义了
+
+*****
+
+####  wpcc  
+##### 13828#       发表于 2025-1-30 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311952&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-30 19:26</a>
+
+哦对了，滑坡建议去尼姑庵
+
+—— 来自 鹅球 v3.3.96</blockquote>
+基于剧透的经验性推测能算滑坡吗
+
+*****
+
+####  玖羽  
+##### 13829#       发表于 2025-1-30 19:28
+
+<blockquote>睦：mortis啊，neuron的同居者啊，我不能让你夺取我的精神！……但是，将你呼唤而来的不是别人，正是我！是那一天的若叶睦，吾等是休戚与共，一莲托生的两个灵魂……现在将力量借与我！mortis！
+
+mortis：何等任性！否定负面情绪，从而想将侬燃尽吗！
+
+睦：否！mortis啊——我会接受你！……那一晚，我的确呼唤了你，我体内极端的情绪与想拯救乐队的渴望呼唤了你，你便是我不可否定的一部分！！
+
+（旁白：若叶睦在演奏的尽头，发现了充满禅意的真实——"不拒绝灵魂中的污秽，同时不被其摆弄操纵……就像接受亲爱吉他的演奏那样，接受这一切！"）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 13830#       发表于 2025-1-30 19:28
+
+这个说不定是真从令王那和pareo那发展出来的，但两条尾巴说到底还是一个人，木头的情况显然也是，所以重点还是她们之间的共性而不是区别<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 13831#       发表于 2025-1-30 19:28
+
+在二刺螈里精神分裂再整合回去就和洒洒水一样简单，多大个事儿呐
+
+*****
+
+####  wpcc  
+##### 13832#       发表于 2025-1-30 19:29
+
+初华有大的总不能是干得比大猫还恶劣的事情然后 我没有精神分裂就是我干的 你把祥子还给我然后稀里糊涂就赢了吧
+
+
+*****
+
+####  天空塔书记官  
+##### 13833#       发表于 2025-1-30 19:30
+
+主要是真有人当真了啊，之前各种双重人格特质的角色还挺多的，大概是灯的阿斯伯格影响太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 13834#       发表于 2025-1-30 19:31
+
+灯心里一直都有c团时期祥子，而搞鸡团的祥子是完全摒弃c团时期的自己，这不就是关键吗
+而且灯的塑造本身就摸到了乐队这个概念的核心，她的歌就是其他人想要唱的歌，因为她没有放弃，其他人想要唱的歌才没有消失，最后都回到了舞台上，所以灯才是“灯”
+说到底从来都不需要把精神问题单独拿出来当个命题去解决，搞乐队只需要去构建一个所有人都可以演唱心中音乐的地方，精神有问题也好为人有问题也好，只要有一个可以容纳所有人的舞台，这乐队就能走下去
+
+*****
+
+####  贰臣  
+##### 13835#       发表于 2025-1-30 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311963&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:27</a>
+基于剧透的经验性推测能算滑坡吗</blockquote>
+你自己看看你在楼里的回复，我真得劝劝你了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/30/193123xnebay0c6xexnz55.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_36179462687603.jpg</strong> (24.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/193100flhbhgkgeueluzpf.png" referrerpolicy="no-referrer">
+
+<strong>Image_59438751962689.png</strong> (94.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 19:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dgugvff  
+##### 13836#       发表于 2025-1-30 19:31
+
+剧本改了三四稿不会越改越差吧
+
+*****
+
+####  6030sylar  
+##### 13837#       发表于 2025-1-30 19:33
+
+ 本帖最后由 6030sylar 于 2025-1-30 19:35 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/30/193237gz9pf0ti27v0t724.png" referrerpolicy="no-referrer">
+
+<strong>S30}LSZ]WY48@EQ}9P[50@R.png</strong> (49.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 19:32 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/30/193512jhzuhzbdshbzdq55.png" referrerpolicy="no-referrer">
+
+<strong>F18USNA5CWTU{SNL86W~8V8.png</strong> (249.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 19:35 上传
+
+*****
+
+####  Lyzers  
+##### 13838#       发表于 2025-1-30 19:33
+
+ 本帖最后由 Lyzers 于 2025-1-30 19:34 编辑 
+
+我还是觉得，灯救mygo最大一个前提是mygo是真的纯纯小女生闹别扭，没真正意义上坏人恶行，再兜不住大不了一个白魔法就完事了
+
+母鸡卡这边肯定不能直接用这套，重量级不是一个级别的，不管这人格分裂是真的还是演的
+
+*****
+
+####  wpcc  
+##### 13839#       发表于 2025-1-30 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311986&amp;ptid=2208921" target="_blank">贰臣 发表于 2025-1-30 19:31</a>
+
+你自己看看你在楼里的回复，我真得劝劝你了</blockquote>
+武士道很明显没有尊重我 下略
+
+*****
+
+####  天空塔书记官  
+##### 13840#       发表于 2025-1-30 19:34
+
+不好说，要评价剧本也要等番剧完结再谈
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 13841#       发表于 2025-1-30 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311954&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:26</a>
+
+我上一个这么想的是水星的魔女 哈哈</blockquote>
+那你就没必要到楼里参加讨论了。已经完结的剧本，观众的看法毫无意义。发泄感情的话，楼友也不会照顾你。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
