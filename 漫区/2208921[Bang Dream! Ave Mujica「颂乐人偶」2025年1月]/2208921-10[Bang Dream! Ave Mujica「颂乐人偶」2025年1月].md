@@ -3307,3 +3307,45 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 祥爸大概率也会包饺子
 
+
+*****
+
+####  osore  
+##### 13634#       发表于 2025-1-30 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看剧透的还是先别讨论了等晚上吧
+
+*****
+
+####  天空塔书记官  
+##### 13635#       发表于 2025-1-30 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309589&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-1-30 13:18</a>
+说无关的，一些党争作品的党争观众很多时候喜欢把故事角色的人际关系完全切割，很多党争假药的赢家的人际 ...</blockquote>
+最逆天的是，总想通过把已经定好的团队成员踢出去来解决问题，只是因为妨碍她女独自美丽了，企划不是只有动画，这就是少女乐队的底层逻辑是“包饺子”的根本原因，一般原创动画你想怎么折腾都行，但乐队企划连纯声优团都不敢随便拆，更何况是还要上台表演的2.5次元乐队了
+
+出发点完全脱离实际，再加上饭圈的二极管思维，不是洗就是黑，就…很难沟通
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 13636#       发表于 2025-1-30 13:38
+
+还有8个多小时 就直接看动画了啊
+
+
+*****
+
+####  天空塔书记官  
+##### 13637#       发表于 2025-1-30 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309552&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-1-30 13:12</a>
+看这意思是要前半部分给祥子充电，后半部分再让她去拉团魂解决问题？这四集炸的一地能拼好不 ...</blockquote>
+致敬传奇追妻总裁楚平方，而且她甚至追了两次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

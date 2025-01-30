@@ -10486,3 +10486,18 @@ r1的API能用了吗<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zeroboss1  
+##### 798#       发表于 2025-1-30 13:36
+
+IT之家 1 月 30 日消息，人工智能正加速向着边缘计算领域发展，Copilot+ PC 在其中扮演着重要角色。随着 DeepSeek R1 出现，微软也意识到了这一模型可能会带来了一系列变革。
+微软今日发文，宣布推出针对?NPU 优化的 DeepSeek-R1(IT之家注：已在 Azure AI Foundry 和 GitHub 上提供)，首批将面向搭载高通骁龙 X 芯片的Copilot+ PC 推出，随后是英特尔酷睿 Ultra 200V 等平台。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">微软已经接入了
+
+<img src="https://p.sda1.dev/21/808fe062306d6dd23669240f6f8db0d7/image.jpg" referrerpolicy="no-referrer">
+
+这开源谁不抄谁傻 edge反攻桌面浏览器历历在目
+
