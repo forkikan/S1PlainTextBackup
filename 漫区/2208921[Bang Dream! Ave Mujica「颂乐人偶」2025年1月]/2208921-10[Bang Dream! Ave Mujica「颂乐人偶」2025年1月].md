@@ -4750,3 +4750,114 @@ ykn爹在ykn还小的时候就给ykn相中了童养媳lisa，牢爹能给祥子�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 13776#       发表于 2025-1-30 18:46
+
+当瑞依向喵梦带来了她的制作人be like [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1xWFLekEsc/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+<img src="https://p.sda1.dev/21/c803add51c3a35e9b3e83f3153ce0bb7/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e11681c0ac00451034d030a53cb6f677/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/104110ffa942cf5c2c6d32284842f9e6/QQ截图20250130183537.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 13777#       发表于 2025-1-30 18:47
+
+请问怎么用两集解决一个双重人格 武士道是真疯了这是可以包饺子的吗
+
+*****
+
+####  osore  
+##### 13778#       发表于 2025-1-30 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">吃中药治好了
+肿么，你不服气吗
+
+*****
+
+####  swessia  
+##### 13779#       发表于 2025-1-30 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">soyo咋解决莫小姐呢，当沙包还是当妈妈
+
+小祥好好调整等你回来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 13780#       发表于 2025-1-30 18:49
+
+只要向森美奈美尽孝 估计什么病都好了
+
+
+*****
+
+####  天空塔书记官  
+##### 13781#       发表于 2025-1-30 18:50
+
+ 本帖最后由 天空塔书记官 于 2025-1-30 18:55 编辑 
+
+那wsd不也是没解释过kkr怎么就能不带伞空降还有肉身突破音障的吗，这有啥奇怪的，又不是真当疾病写了
+
+放轻松，只要你把ave看成hhw的类似物，一切就都能自洽，“人格分裂”也是舞台装置的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 13782#       发表于 2025-1-30 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概剧内不给实锤打哈哈过去了，最后看到的是融合后的完全体睦，共存可能性挺低了
+
+*****
+
+####  未来起航  
+##### 13783#       发表于 2025-1-30 18:53
+
+最大最抽象的问题还是大祥这角色，从第一集开始直接丧失所有有意义的行动力了。
+
+大祥这把人生交给我的魅魔发言被解构是板上钉钉的了，但被解构的原因是因为自己如同完全不记得说过这话似的行动拉胯、大脑痴呆流口水，这种写法就蠢得令人捂鼻子。
+
+回旋镖这种塑造除了造乐子以外也是一无是处。故事最多只能给你指个方向，但你是口号喊得响、说到做不到的类型那什么故事都完蛋。除非你直接跟mygo似的根本不指路，迷路人迷到哪儿算哪儿，完全不画饼，当然就不会有饼做不出来的风险。
+
+*****
+
+####  osore  
+##### 13784#       发表于 2025-1-30 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">融合不算共存吗
+
+*****
+
+####  swessia  
+##### 13785#       发表于 2025-1-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311747&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-30 18:53</a>
+大概剧内不给实锤打哈哈过去了，最后看到的是融合后的完全体睦，共存可能性挺低了 ...</blockquote>
+觉醒睦能表演个秒变脸吓吓小祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 13786#       发表于 2025-1-30 18:54
+
+<img src="https://p.sda1.dev/21/6769055f81c3b4741894b5af870e268f/f56d5efdfc03924508840327c194a4c27d1e250d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/082ab52c328fd368162534094b169bd4/750a1f26cffc1e17988f6e190c90f603738de90e.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/ce2b9f09fddd202e260e121c41abd91e/e189fd59252dd42a4b39e383453b5bb5c9eab80e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2830442bc1d9eabc7d8aa1a140ff1779/a17e3c44ad345982cdba07ba4af431adcbef840e.jpg" referrerpolicy="no-referrer">
+
+原作：
+<img src="https://p.sda1.dev/21/5edc28a013b99e6050ea65cd5671e85d/5dc06b246b600c33dd4a3ce05c4c510fd9f9a10f.jpg" referrerpolicy="no-referrer">
+
+汉化：
+<img src="https://p.sda1.dev/21/1b4ef6b02cf1e275bb06dbc401311dec/a17e3c44ad345982cdb807ba4af431adcbef8408.jpg" referrerpolicy="no-referrer">
+

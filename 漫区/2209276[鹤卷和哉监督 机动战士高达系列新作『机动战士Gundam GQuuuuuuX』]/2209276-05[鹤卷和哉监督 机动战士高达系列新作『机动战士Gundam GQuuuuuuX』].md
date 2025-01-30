@@ -2500,3 +2500,18 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 开哪个档？
 NTV对G9这么有信心吗？
 
+
+*****
+
+####  刺客ares  
+##### 6123#       发表于 2025-1-30 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311422&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-30 18:10</a>
+
+开哪个档？
+
+NTV对G9这么有信心吗？</blockquote>
+因为ntv四月动画目前已经排满，只要在四月播出就必开新档
+
+而之前年初的时候就吹风ntv有个新档，现在来看就是给gqx准备的
+
