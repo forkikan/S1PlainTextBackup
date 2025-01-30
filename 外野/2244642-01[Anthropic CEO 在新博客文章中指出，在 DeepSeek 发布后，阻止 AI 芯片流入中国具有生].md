@@ -1363,3 +1363,11 @@ A社这个老B登滚去和closeAI坐一桌，不发新模型说尼马呢？
 
 哪怕实现了 ai能推理出来新技术新专利谁来落地和实现？美帝现在的工业真的有足够的人来理解这些新技术落地吗？
 
+
+*****
+
+####  sdefrfg1  
+##### 129#       发表于 2025-1-30 22:05
+
+cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼里是罗宾汉劫富济贫这种形象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

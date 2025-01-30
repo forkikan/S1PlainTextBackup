@@ -2609,3 +2609,11 @@ PlaZma+打挽尊哥能衍生这么多啊<img src="https://static.saraba1st.com/i
 PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 话说现在挽尊哥的罪孽度上升了，因为这次新高达表现的的历史奇点效应其实比之前观众想象的要大....挽尊哥如果不是嘴欠，那么对提坦斯而言真的是少一桩祸事。尤其是西洛克而言，极大可能从终战幸存。
 
+
+*****
+
+####  jojonathan  
+##### 6129#       发表于 2025-1-30 21:57
+
+确实有点搞不懂 感觉新高达剧场版内容听起来就很不尊重高达<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">难道是尊重哥看到鹤卷之类的老登的名字感觉稳了？
+
