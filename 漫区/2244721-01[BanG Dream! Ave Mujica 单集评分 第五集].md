@@ -2140,3 +2140,13 @@ go团拯救一切
 每个人都会遇上自己的国家队<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 我逃不掉，你  也逃不掉！
 
+
+*****
+
+####  ぽんぽこ仮面  
+##### 237#       发表于 2025-1-31 04:07
+
+这集纯刻板印象大集合真给我气笑了，感觉像他妈手游编剧能写出来的东西，一集之内能让这么多个人物塑造烂得七七八八也不是一般人能做到的。
+
+我很好奇这到底是独角兽被按住了还是没按得住的结果，但是独角兽再怎么女同样板戏路径依赖也不至于到这个地步吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然有甩锅嫌疑但我不得不怀疑是编剧换人了。
+
