@@ -180,3 +180,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  宛若青空  
+##### 769#       发表于 2025-1-30 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310359&amp;ptid=2093296" target="_blank">xbhuang 发表于 2025-1-30 15:19</a>
+
+所以为啥要这么久？这点改动丢给个大学爱好者社团估计都能在一学期内搞出来
+
+—— 来自 S1Fun ...</blockquote>
+不是吧，你真当游戏开发那么容易，“大学爱好者社团估计都能在一学期内搞出来”这种话都能说出来那没什么好聊的了
+

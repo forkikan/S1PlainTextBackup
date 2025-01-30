@@ -10675,3 +10675,41 @@ Git hub和perplexity的代理我都用了，远远不行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 813#         楼主| 发表于 2025-1-30 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310663&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-1-30 16:13</a>
+这又是啥
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://p.sda1.dev/21/7b3bacb28bc3bdb88c462251300ee1df/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SkavenYesYes| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  启叔  
+##### 814#       发表于 2025-1-30 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310663&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-1-30 16:13</a>
+
+这又是啥
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">一家名为 Groq 的初创公司开发出了一种新的 AI 处理器 ——LPU（Language Processing Unit），其推理速度相较于英伟达 GPU 提高了 10 倍，成本却降低到十分之一。
+
