@@ -3989,3 +3989,48 @@ MyGO在这方面可以说非常大胆，它用了13话里的10话去铺垫一场
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KozueAkimoto  
+##### 13703#       发表于 2025-1-30 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310621&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-30 16:06</a>
+我以前写的，重发一遍
+
+谈一谈MyGO好在哪。</blockquote>
+最重要的是喷角色 喷场外 喷逻辑 喷啥都行，我还看到有人喷live 说你们不是少女乐队吗 现在一首歌都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种可以说比那种抬杠、死缠烂打的还要蠢。mygo也证明了降低歌曲的舞台数量来当做一个完整的番剧去搞、再把live当作是情感宣泄重要节点或者推进剧情关键因素。这样至少不看或者不喜欢看乐队番的人也愿意瞅一眼扩大群众和观众。当你能沉浸这部番剧的时候再去听live，比纯卖歌的live要更容易听进去和感受进去 更加不会觉得尬。到现在还在喷没live的 我都不知道是不是人机来的 跟风喷也就算了 还喷出人机感出来 真的闹麻了
+
+
+*****
+
+####  天空塔书记官  
+##### 13704#       发表于 2025-1-30 16:33
+
+嘛，wsd再烂炒也是要卖乐队的，A团的剧情还没有展开就滑坡到救不回来还是有些太操之过急了，毕竟这是13集的季度番又不是两集的ova，少女乐队真正吸引人的又不是烂炒，那只是引流手段而已
+
+放宽心，这才第四集<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 13705#       发表于 2025-1-30 16:34
+
+别慌 别的片头都是烂尾 mujica是反向烂尾
+
+*****
+
+####  1223122  
+##### 13706#       发表于 2025-1-30 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dgugvff  
+##### 13707#       发表于 2025-1-30 16:35
+
+那么重新定下目标是怎样的大家来发散性想一想。
+

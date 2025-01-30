@@ -10713,3 +10713,68 @@ Git hub和perplexity的代理我都用了，远远不行
 —— 来自 鹅球 v3.3.96</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">一家名为 Groq 的初创公司开发出了一种新的 AI 处理器 ——LPU（Language Processing Unit），其推理速度相较于英伟达 GPU 提高了 10 倍，成本却降低到十分之一。
 
+
+*****
+
+####  木水风铃  
+##### 815#       发表于 2025-1-30 16:31
+
+联网搜索一天都没好用。。。早日恢复啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木水风铃  
+##### 816#       发表于 2025-1-30 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310723&amp;ptid=2243718" target="_blank">启叔 发表于 2025-1-30 16:22</a>
+一家名为 Groq 的初创公司开发出了一种新的 AI 处理器 ——LPU（Language Processing Unit），其推理速度 ...</blockquote>
+具体制程啥的信息有吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  怀楠凌  
+##### 817#       发表于 2025-1-30 16:32
+
+请问为什么我的deepseek的知识截止日期就到2023年10月<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，是因为联网搜索不行了吗
+
+*****
+
+####  SkavenYesYes  
+##### 818#       发表于 2025-1-30 16:35
+
+36的那个ds能联网用么？效果和原版一样？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zeroboss1  
+##### 819#       发表于 2025-1-30 16:36
+
+连环拳来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+微软接入加本土小厂商
+
+虚假的通中:说几句东大的好话
+
+真正的通中:东大的大模型出来后直接接入自己软件，小厂宣称接入后lpu超越gpu
+
+墙倒众人推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+皮衣黄 惊不惊喜 意不意外?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃苑軒風  
+##### 820#       发表于 2025-1-30 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310785&amp;ptid=2243718" target="_blank">怀楠凌 发表于 2025-1-30 16:32</a>
+
+请问为什么我的deepseek的知识截止日期就到2023年10月，是因为联网搜索不行了吗 ...</blockquote>
+当下因为攻击，反正web和app的联网搜索都挂掉了，api我倒不知道
+
