@@ -1126,3 +1126,43 @@ appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ナルバレック  
+##### 119#       发表于 2025-1-30 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311794&amp;ptid=2244683" target="_blank">遗尿 发表于 2025-1-30 19:02</a>
+
+妈的，我任天堂会员是日服的。去推上看了下公告，结果下面评论日本人还都叫好，真TM猪脑子。 ...</blockquote>
+日本人肯定叫好啊，这几年很多第三方日厂不够倾向日本本土口味和海外投放倾斜，都被骂壳国.....日服锁区一直是日本人想看到的，能有特供就更好了，说来棒子厂至今还有很多棒服特供来着
+
+*****
+
+####  oi99o  
+##### 120#         楼主| 发表于 2025-1-30 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311790&amp;ptid=2244683" target="_blank">lion_or_judas 发表于 2025-1-30 19:00</a>
+
+我日亚死活买不了点卡，然后重新注册了一个账号，下单是可以下单了，然后就和你一样说支付异常锁账号了 ...</blockquote>
+刚刚重置密码解锁了账号，然后1月份的所有订单记录都没了，包括一个实体订单（东西已经发到转运仓库的），visa卡和国内收货地址也被删掉了。反正我是暂时不敢再试了，不知道将来真的有需求的时候该怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  M乔梦  
+##### 121#       发表于 2025-1-30 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311008&amp;ptid=2244683" target="_blank">春风画雨 发表于 2025-1-30 17:03</a>
+话说如果嗯要丧事喜办的话，以后淘宝买点卡卖到黑卡ban机的几率是不是变低了，毕竟境外黑卡都被限制了 ...</blockquote>
+点卡黑卡日区从来没有过；港区也就唯一一次，还闹挺大，最后港任还破例解了。黑卡问题主要还是欧美吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  闪光的小黑  
+##### 122#       发表于 2025-1-30 19:17
+
+没用过信用卡，一直是淘宝买点卡
+

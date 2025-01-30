@@ -4949,3 +4949,105 @@ ykn爹在ykn还小的时候就给ykn相中了童养媳lisa，牢爹能给祥子�
 双重人格这设定挺变态的，非要加上去干嘛，加了还只弄出个不小心把团玩炸的莫提斯，如果只为了和祥子爆了甚 ...</blockquote>
 看完采访我觉得就本质爱音是基拉位 直接把鸡的团魂当爱音就完事了 大象已经是没用的东西了
 
+
+*****
+
+####  miro112233  
+##### 13796#       发表于 2025-1-30 19:06
+
+你就说雌小鬼+祥特攻的莫提斯现在二创火不火吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过从剧本层面来说，现在前半段为了莫提斯这个角色垫了鸡团其他5个人的塑造到底值不值也只能等完结后再说了
+
+*****
+
+####  晓色暮云  
+##### 13797#       发表于 2025-1-30 19:07
+
+ 本帖最后由 晓色暮云 于 2025-1-30 19:09 编辑 
+
+漏油串的太变态了，我真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">那直接开高达吧，乐队太小儿科了，该背负全人类的命运了
+
+*****
+
+####  wpcc  
+##### 13798#       发表于 2025-1-30 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311751&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-30 18:53</a>
+
+最大最抽象的问题还是大祥这角色，从第一集开始直接丧失所有有意义的行动力了。
+
+大祥这把人生交给我的魅魔 ...</blockquote>
+大象本质也是迷子 但是大象迷路归迷路 乐队能力是出道全国巡演级别的，你现在四集把队一拆我不知道后面要怎么拉起来才能包饺子了
+
+她的目的是重建mujica吗？根本不是
+
+她的目的就是自己爽
+
+组建一个属于她的乐队 现在的mujica我看是爱音的大手吧
+
+*****
+
+####  wpcc  
+##### 13799#       发表于 2025-1-30 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311832&amp;ptid=2208921" target="_blank">miro112233 发表于 2025-1-30 19:06</a>
+
+你就说雌小鬼+祥特攻的莫提斯现在二创火不火吧
+
+不过从剧本层面来说，现在前半段为了莫提斯这个角色垫了鸡团 ...</blockquote>
+莫提斯也是小丑 爱音英雄登场mujica就突然变好了 无敌了武士道
+
+*****
+
+####  wpcc  
+##### 13800#       发表于 2025-1-30 19:09
+
+爱祥是怎么卖出来的我就问了 爱音不就是无牛宅男哥自嗨吗
+
+
+*****
+
+####  wpcc  
+##### 13801#       发表于 2025-1-30 19:11
+
+访谈监督往死里折磨大鼻子老师我真的是无语了 看一个原创爆一个原创
+
+*****
+
+####  JustW  
+##### 13802#       发表于 2025-1-30 19:11
+
+爱音是辅助位吧，显然是陪灯去的
+
+*****
+
+####  wpcc  
+##### 13803#       发表于 2025-1-30 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311872&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 19:11</a>
+
+爱音是辅助位吧，显然是陪灯去的</blockquote>
+你看看灯像是能说什么正论的话吗 能解决两个原生家庭破碎的精神病人的话mygo里面是这个样子吗
+
+*****
+
+####  天空塔书记官  
+##### 13804#       发表于 2025-1-30 19:13
+
+离十点就两个多小时了，要急看完再急吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 13805#       发表于 2025-1-30 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311880&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-30 19:13</a>
+
+离十点就两个多小时了，要急看完再急吧</blockquote>
+大象被抽了十集陀螺我难道还要看下去吗 
+
