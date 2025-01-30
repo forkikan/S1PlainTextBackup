@@ -10149,3 +10149,22 @@ gpt，小克，gemini的聊天都用过，之前看人评论也很认可，就�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  widder  
+##### 765#       发表于 2025-1-30 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304757&amp;ptid=2243718" target="_blank">afer 发表于 2025-1-29 17:10</a>
+
+所以不开源的好处就来了，我说你抄了就抄了，反正你看不见我</blockquote>
+种子已然播下，剩下的只需要等待
+
+*****
+
+####  鱼丈人  
+##### 766#       发表于 2025-1-30 08:45
+
+感觉ai最擅长的还是哲学文学，融合语料精华肆意创造不需要考虑精确严谨的束缚，
+我问点语言学技术问题他反复出错让我调教了老半天了
+

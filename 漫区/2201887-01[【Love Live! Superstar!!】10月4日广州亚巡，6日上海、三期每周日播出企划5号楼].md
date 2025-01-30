@@ -15001,3 +15001,13 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306928&amp;ptid=2201887" target="_blank">仓岛千百合 发表于 2025-1-29 23:32</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">是我爱的灰毛组
 
+
+*****
+
+####  ads147147  
+##### 1458#       发表于 2025-1-30 08:41
+
+怎么这边也在迫害ksks，人家第一部电影还没能挤上live<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
