@@ -11197,3 +11197,33 @@ Jan 29 (Reuters) - Microsoft (MSFT.O) has made Chinese startup DeepSeek's R1 art
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Herreimu  
+##### 862#       发表于 2025-1-30 23:36
+
+<blockquote>gh1023 发表于 2025-1-30 20:50
+这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？ ...</blockquote>
+ddos从原理上而言无法字面意义的防御
+
+想防御就是砸钱买机子买流量而已
+
+
+*****
+
+####  ryanghj  
+##### 863#       发表于 2025-1-30 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312526&amp;ptid=2243718" target="_blank">gh1023 发表于 2025-1-30 20:50</a>
+
+这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？ ...</blockquote>
+着啥急，年后再说
+
+*****
+
+####  yangkaim4  
+##### 864#       发表于 2025-1-30 23:42
+
+好像又炸了，一发消息就提示发的太快稍后再试
+

@@ -1441,3 +1441,35 @@ closeai自己数据版权就一屁股屎
 那么AGI和量子计算机哪个先出来，量子计算机近十年虽然说的不多，不过货真价实可能是美赢神器之一吧，这个 ...</blockquote>
 量子计算机更是没影的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡普空  
+##### 137#       发表于 2025-1-30 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313012&amp;ptid=2244642" target="_blank">sdefrfg1 发表于 2025-1-30 22:05</a>
+cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼里是罗宾汉劫富济贫这种形象 ...</blockquote>
+开源天生就正义，何况还是这种水平大模型的开源，何止劫富济贫，这是均富卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  CyborgIP  
+##### 138#       发表于 2025-1-30 23:43
+
+你这造的是agi，还是圣杯啊？万能许愿机是吧
+
+*****
+
+####  木水风铃  
+##### 139#       发表于 2025-1-30 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313714&amp;ptid=2244642" target="_blank">体制 发表于 2025-1-30 22:34</a>
+美国公司的ceo无论再天才，只要一上市，最终都会异化成股票机器，一切行为都为了股票啊 ...</blockquote>
+中国也差不多，一上市或者一入股市就自觉不自觉的成为昂撒犹太全球金融帝国的一份子了
+当然我这种还没入的就属于蛮夷了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
