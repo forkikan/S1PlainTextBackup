@@ -11143,3 +11143,11 @@ D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图</b
 已经持续超过96小时了</blockquote>
 这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？
 
+
+*****
+
+####  rhotov  
+##### 856#       发表于 2025-1-30 21:31
+
+Jan 29 (Reuters) - Microsoft (MSFT.O) has made Chinese startup DeepSeek's R1 artificial intelligence model available on its Azure cloud computing platform and GitHub tool for developers, the U.S. company said on Wednesday.
+
