@@ -2652,3 +2652,43 @@ pareo实际干的事可比莫提斯可怕多了
 
 初华说她一晚上没睡，但是一点疲态没有，所以很有可能祥子其实是机器人🤖，所以在能力出众的同时也不太能理解复杂的人类感情
 
+
+*****
+
+####  凉良  
+##### 13563#       发表于 2025-1-30 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308023&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-1-30 09:36</a>
+原来是这样啊，但是祥子身体真不累吗，我看着都感觉累了</blockquote>
+祥子在学校瘫坐下那段我感觉可能就是扛不住了
+
+*****
+
+####  山ノ内花音  
+##### 13564#       发表于 2025-1-30 10:03
+
+祥子有遗传病的概率up
+
+*****
+
+####  一心而用  
+##### 13565#       发表于 2025-1-30 10:04
+
+<img src="https://p.sda1.dev/21/53d85295b635f405b5972ecb83fa4d82/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/314c9f6f6658514370b2575ad740afca/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 13566#       发表于 2025-1-30 10:04
+
+Ave Mujica 英文官推：女人与猫
+<img src="https://p.sda1.dev/21/9cf6b0a9b24bb949882c8ad02ca965b9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 13567#       发表于 2025-1-30 10:05
+
+历史上的各种神人例如拿皇拥有数倍于人的精力都是标配，祥子现在只是要熬夜作曲而已和打工战士时期强度比其实是下降的，初华可能有点以己度人再加上墨提斯误导<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
