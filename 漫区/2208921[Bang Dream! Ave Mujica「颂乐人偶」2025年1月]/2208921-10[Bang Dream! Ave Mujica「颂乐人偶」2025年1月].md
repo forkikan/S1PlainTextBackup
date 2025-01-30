@@ -6856,3 +6856,621 @@ Go团真变心理医生了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dc5281  
+##### 13991#       发表于 2025-1-30 22:26
+
+观感挺好的
+
+*****
+
+####  影伴光生  
+##### 13992#       发表于 2025-1-30 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313469&amp;ptid=2208921" target="_blank">无音命题 发表于 2025-1-30 22:26</a>
+十个人除了爱音，憋不出一句有逻辑的话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱音的“这车真宽敞”“这房子是贵族家”确实直抒胸臆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 13993#       发表于 2025-1-30 22:26
+
+爱音：？？？沟槽的ceychic还在追我！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yy19| + 1|草生|
+
+查看全部评分
+
+*****
+
+####  自由的lu  
+##### 13994#       发表于 2025-1-30 22:26
+
+墨提斯拿着电话(玩具？）咨询医生？
+
+*****
+
+####  Delicatus545  
+##### 13995#       发表于 2025-1-30 22:26
+
+会找医生好评
+
+*****
+
+####  hoyice  
+##### 13996#       发表于 2025-1-30 22:26
+
+圣爱音🥲
+
+*****
+
+####  卡拉德利姆  
+##### 13997#       发表于 2025-1-30 22:27
+
+好评 节奏就是得慢下来才对
+
+*****
+
+####  Sherrycat  
+##### 13998#       发表于 2025-1-30 22:27
+
+什么？即使是我们站在同一个电梯里 你还是满脑子是祥子吗？我替甜甜圈女士感到不值
+
+*****
+
+####  ads147147  
+##### 13999#       发表于 2025-1-30 22:27
+
+soyo一辈子都达不到的高度，比如去小祥家。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  零距离黄金回旋  
+##### 14000#       发表于 2025-1-30 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313458&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-30 22:25</a>
+
+楼友最好祈求别吧go团塑造带歪了</blockquote>
+我看有点困难了
+
+
+*****
+
+####  风道北来  
+##### 14001#       发表于 2025-1-30 22:27
+
+这四个拟人生物真就把一个本该送医院的精神病人拉到台上宣布解散，然后把这个精神病人踢飞整整一个月没人管？
+
+我寻思没有杀父之仇一般不至于到这个地步
+
+*****
+
+####  堆雪若叶  
+##### 14002#       发表于 2025-1-30 22:27
+
+放弃前四集细节的思考这集重头开始吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人又如何  
+##### 14003#       发表于 2025-1-30 22:27
+
+只有爱音，only anon，我爱伟大，无需多言！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 14004#       发表于 2025-1-30 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面一直在当背景板的staff和丰川家突然之间全冒出来了
+
+*****
+
+####  hulaoda007  
+##### 14005#       发表于 2025-1-30 22:27
+
+我不讨厌但又很意外go团居然会占这么重要的比重就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 14006#       发表于 2025-1-30 22:28
+
+爱音管你这管你那的，反正我是直接上车<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 14007#       发表于 2025-1-30 22:28
+
+感觉还是不能过多的考虑现实因素，动画就是动画
+
+*****
+
+####  看穿一切的鱼  
+##### 14008#       发表于 2025-1-30 22:28
+
+已经完全预料不到走向了，灯你也要复辟大清吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  铃森冬  
+##### 14009#       发表于 2025-1-30 22:28
+
+这集挺好的，就是有点变态
+
+*****
+
+####  黒鈴ミヲ  
+##### 14010#       发表于 2025-1-30 22:29
+
+不是，这在演什么，我在看什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NEWROMANCER  
+##### 14011#       发表于 2025-1-30 22:29
+
+这集有些镜头有d5j第二季的感觉，当初23年就是看了d5allmix决定追MyGO
+看staff表，大森大地，一切明朗了
+
+*****
+
+####  影伴光生  
+##### 14012#       发表于 2025-1-30 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313519&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-30 22:27</a>
+这四个拟人生物真就把一个本该送医院的精神病人拉到台上宣布解散，然后把这个精神病人踢飞整整一个月没人管 ...</blockquote>
+得亏当时莫女士没带刀，要不然真得鲨几个来提前实现一辈子吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DYsnow  
+##### 14013#       发表于 2025-1-30 22:29
+
+就当第四集已解散为结果看第五集还是挺好的，第四集这么搞 只能靠外部go团了，处理的还可以。氛围营造也不错。
+
+*****
+
+####  JustW  
+##### 14014#       发表于 2025-1-30 22:29
+
+不过睦是不是有点太钩吧惨了，这个状态是个人都能看出该送医生了吧，乐队另外四个自顾不暇的或者不熟的先不说了，父母也是伪人，老师和家里女仆竟然也一点行动一点表现都没有的？纯是为了soyo上门这叠醋包的饺子吧，而且在soyo视角下你祥睦俩人联合炸团还在公园羞辱我就为了另外搞商业乐队奔前程，结果现在解散了soyo还要天天担心睦状态不对、没上学，搜索框输一个あ就能弹出母鸡卡看来没少关注，还要自己主动上门，睦是救了soyo妈的命吗？
+
+*****
+
+####  反方向的波  
+##### 14015#       发表于 2025-1-30 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">go团粉该祈祷这b片子后面不会把go团人物形象也整崩了
+
+*****
+
+####  yozoraxsx  
+##### 14016#       发表于 2025-1-30 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了大莫老师一切都在意料之中
+
+*****
+
+####  operatbig  
+##### 14017#       发表于 2025-1-30 22:29
+
+确定不是因为狗火了就把4集后全改了把狗插进去？
+
+*****
+
+####  thisisaspider  
+##### 14018#       发表于 2025-1-30 22:29
+
+这集观感可以，但明显是把问题放到下一集了。除了卖了点跨团CP可以算看点。不好评价，要加上下一集来评。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  eaglet_loki  
+##### 14019#       发表于 2025-1-30 22:29
+
+挺好，从前一个月的疯狂里挣脱出来，可以慢慢品味美少女之间的醍醐味了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tjshibc21  
+##### 14020#       发表于 2025-1-30 22:29
+
+能救睦的只有祥子
+
+*****
+
+####  姜饼人  
+##### 14021#       发表于 2025-1-30 22:29
+
+是不是太大胆了这都敢写
+
+*****
+
+####  gaayas  
+##### 14022#       发表于 2025-1-30 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313519&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-30 22:27</a>
+这四个拟人生物真就把一个本该送医院的精神病人拉到台上宣布解散，然后把这个精神病人踢飞整整一个月没人管 ...</blockquote>
+很难想象这要怎么把祥子圆回来，一个月，还是莫提斯去找的医生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  newtroll  
+##### 14023#       发表于 2025-1-30 22:30
+
+我怎么也想不到现在十个人除了粉色奶龙，精神状态最好的是立希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫苑寺美琴  
+##### 14024#       发表于 2025-1-30 22:30
+
+go团粉最心慌的一集，怎么会事呢<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 14025#       发表于 2025-1-30 22:30
+
+粉色奶龙无敌了呀
+
+*****
+
+####  plusSharp  
+##### 14026#       发表于 2025-1-30 22:30
+
+祥子也差不多废了，甚至都懒得拒绝爱音跟上车，和她爸的唯一区别也就是不喝酒了
+
+
+*****
+
+####  Mika-S  
+##### 14027#       发表于 2025-1-30 22:30
+
+窝灯伟大就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银酒监武  
+##### 14028#       发表于 2025-1-30 22:31
+
+<img src="https://p.sda1.dev/21/76785ef09e4f12ffb56887375b2580e0/image.jpg" referrerpolicy="no-referrer">猫睦？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  iiiiiiiiii  
+##### 14029#       发表于 2025-1-30 22:31
+
+<blockquote>plusSharp 发表于 2025-1-30 22:30
+祥子也差不多废了，甚至都懒得拒绝爱音跟上车，和她爸的唯一区别也就是不喝酒了 ...</blockquote>
+心死是这样的，变人偶了
+
+*****
+
+####  影伴光生  
+##### 14030#       发表于 2025-1-30 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313588&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-1-30 22:30</a>
+祥子也差不多废了，甚至都懒得拒绝爱音跟上车，和她爸的唯一区别也就是不喝酒了 ...</blockquote>
+祥子老师前半段还在做题呢，后半段把老爹一撇直接回本家了，这苦不是白吃了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  姜饼人  
+##### 14031#       发表于 2025-1-30 22:31
+
+<blockquote>operatbig 发表于 2025-1-30 22:29
+确定不是因为狗火了就把4集后全改了把狗插进去？</blockquote>
+这剧本有人敢改吗？前无古人后无来者
+
+就是独角兽写的
+
+*****
+
+####  卡拉德利姆  
+##### 14032#       发表于 2025-1-30 22:31
+
+我寻思mortis也没真找医生啊，没看到睦头人手里拿的是个鞋？
+
+*****
+
+####  MASKA-1  
+##### 14033#       发表于 2025-1-30 22:31
+
+莫老师很自觉，在自己找医生。
+
+*****
+
+####  玖羽  
+##### 14034#       发表于 2025-1-30 22:31
+
+还是得靠爱音啊！
+
+<strong>我现在感到非常不妙</strong>(不是贬义)，如果5、6话对应MyGO的5、6话，那就是看似解决问题，实际上憋着炸个更大的，从第7话开始炸<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 
+
+PS：终于给具体日期了！我等这个日期等了五集！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  flyingover  
+##### 14035#       发表于 2025-1-30 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313585&amp;ptid=2208921" target="_blank">newtroll 发表于 2025-1-30 22:30</a>
+
+我怎么也想不到现在十个人除了粉色奶龙，精神状态最好的是立希</blockquote>
+想想立希如果只是复读跟灯幸福的话就绝对不会崩人设！
+
+*****
+
+####  Libartas  
+##### 14036#       发表于 2025-1-30 22:31
+
+从mujica第一集mygo主要角色登场开始这不是一眼就能看出来，始于crychic，终于crychic，无非就是看独角兽怎么讲这个故事而已
+
+*****
+
+####  霜落  
+##### 14037#       发表于 2025-1-30 22:31
+
+感觉大脑被编剧雷普了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 14038#       发表于 2025-1-30 22:32
+
+唏， 可以切割嗎？
+
+我怕再演下去
+
+愛音也要瘋了
+
+想玩玩樂隊變成照顧精神病
+
+*****
+
+####  刑部姬真可爱  
+##### 14039#       发表于 2025-1-30 22:32
+
+该说不说，最后睦mo那里终于有点霓虹宣传语“最狂”那味了，只不过看这样子下集就能治一半
+
+*****
+
+####  gammatau  
+##### 14040#       发表于 2025-1-30 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313519&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-30 22:27</a>
+
+这四个拟人生物真就把一个本该送医院的精神病人拉到台上宣布解散，然后把这个精神病人踢飞整整一个月没人管 ...</blockquote>
+父亲还没死，但是你要说塞一个杀母之仇我觉得这个剧本是塞得进去的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yaneis  
+##### 14041#       发表于 2025-1-30 22:32
+
+烂完了吧这是，先不说编剧的大手，这祥子人物形象还能回撤吗？真坐实没苦硬吃一开始就应该向外公低头切割老爹？还有要赔偿金喵梦还敢解散？这钱不会全让丰川家出吧，你不也是过家家？
+
+*****
+
+####  CharlieZ-  
+##### 14042#       发表于 2025-1-30 22:32
+
+非官方直播间好评率好像就60左右了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电波通信  
+##### 14043#       发表于 2025-1-30 22:32
+
+我看得挺舒服，前面更像是为这盘女女关系性的醋而包的最速武道馆商业乐队饺子了，前四集在劣势区间，这一集回到优势区间，总之能够无视逻辑严谨性放空大脑看的话，感情很真挚
+
+*****
+
+####  cxj649  
+##### 14044#       发表于 2025-1-30 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313519&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-30 22:27</a>
+
+这四个拟人生物真就把一个本该送医院的精神病人拉到台上宣布解散，然后把这个精神病人踢飞整整一个月没人管 ...</blockquote>
+有管啊，初华和大莫老师拍杂志过233
+
+*****
+
+####  JustW  
+##### 14045#       发表于 2025-1-30 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313496&amp;ptid=2208921" target="_blank">自由的lu 发表于 2025-1-30 22:26</a>
+墨提斯拿着电话(玩具？）咨询医生？</blockquote>
+红色的芭蕾舞鞋吧，总之就算不考虑多重人格，就这个窝在房间里的状态不送医院肯定是治不好了，估计还得长期吃药（（
+
+*****
+
+####  fmban  
+##### 14046#       发表于 2025-1-30 22:33
+
+别的先不说，这集感觉一堆二创素材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Charizard  
+##### 14047#       发表于 2025-1-30 22:33
+
+祥黑拼尽全力不如编剧轻轻一笔
+不管睦头人不管爹回丰川家过活<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">违约金还要外公赔
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kenqqex  
+##### 14048#       发表于 2025-1-30 22:34
+
+爱音就是mygo的黄大河!
+
+*****
+
+####  杂灰  
+##### 14049#       发表于 2025-1-30 22:34
+
+送去找心理医生难道不是父母的工作吗，解散后其他四个人凭啥让她去看医生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 14050#       发表于 2025-1-30 22:34
+
+我草，一切都串起来了
+
+喵梦炸团是丰川家示意的，丰川家故意把祥子捧到武道馆然后让喵梦摘面具+炸团，让祥子心灰意冷回家
+
+“你也应该明白了吧”
+
+所以喵梦也才能在炸团后收到这么多资源
+
+一切都串起来了！
+
+*****
+
+####  影伴光生  
+##### 14051#       发表于 2025-1-30 22:34
+
+不过也是，老丰川再不出手，祥子这当客服绝逼填不上赔偿金了，真就得定性成过家家，要不然就要东京湾水泥桩子几位有请了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 14052#       发表于 2025-1-30 22:34
+
+不要太讲究把故事人物逻辑一字一句理顺好了，毕竟大部分作品都做不到，观感不出戏就行了。毕竟不是真红楼梦
+
+*****
+
+####  gammatau  
+##### 14053#       发表于 2025-1-30 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313676&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 22:33</a>
+
+红色的芭蕾舞鞋吧，总之就算不考虑多重人格，就这个窝在房间里的状态不送医院肯定是治不好了，估计还得长 ...</blockquote>
+真有电话音效啊，应该就是电话吧
+
+*****
+
+####  JustW  
+##### 14054#       发表于 2025-1-30 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313644&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-30 22:32</a>
+烂完了吧这是，先不说编剧的大手，这祥子人物形象还能回撤吗？真坐实没苦硬吃一开始就应该向外公低头切割老 ...</blockquote>
+祥子也干了（指欠家里钱
+
+*****
+
+####  紫苑寺美琴  
+##### 14055#       发表于 2025-1-30 22:35
+
+下集要是把go的几个人写崩了就狠狠的清算<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 14056#       发表于 2025-1-30 22:35
+
+<img src="https://img.saraba1st.com/forum/202501/30/223457oi4jxt4y7pyytp4y.png" referrerpolicy="no-referrer">
+
+<strong>@O]OMZ{5JZ%PVWAKZJXYVKN_tmb.png</strong> (23.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 22:34 上传
+
+兄弟不是问你
+
+虽然你是兄弟
+
+*****
+
+####  磷叶石~  
+##### 14057#       发表于 2025-1-30 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cp什么的先不管，这剧情太变态了，wsd敢端上来的啊
+
+*****
+
+####  yaneis  
+##### 14058#       发表于 2025-1-30 22:35
+
+最大的祥黑还真是武士道（
+
+*****
+
+####  盐盐盐盐盐  
+##### 14059#       发表于 2025-1-30 22:35
+
+这制作组还是拍慢节奏抒情好，这集表现方式看着好多了，就是mo那里太故弄玄虚了，也不至于吓成这样吧有什么好害怕的（
+
+不过看完了很想看mo爆炒soyo或者被爆炒，mo也就是个小孩子人格侧面，受打击了比原来的睦还软
+
+下集预告猫是拉睦出去路演了吗还是开导她怎么随心所欲弹吉他，不论是灯拉祥子重新来一次组乐队还是猫带睦还是蛮有音乐番拿音乐解决问题的风格的
+
+*****
+
+####  Libartas  
+##### 14060#       发表于 2025-1-30 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真感觉很多人号称n刷mygo都白看了
+
+*****
+
+####  tyrant3614  
+##### 14061#       发表于 2025-1-30 22:35
+
+mortis这看着像去找猫学吉他了呀
+
+*****
+
+####  lyuhiu  
+##### 14062#       发表于 2025-1-30 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最搞笑的是早上刚看一个up主介绍羽丘是升学校，结果第五集就3个人翘课，能不能尊重下邦的世界观
+
+*****
+
+####  siansian  
+##### 14063#       发表于 2025-1-30 22:36
+
+好消息：太好了是粉色奶龙我们有救了
+
+坏消息：真烂尾了这下go批切割不了了
+

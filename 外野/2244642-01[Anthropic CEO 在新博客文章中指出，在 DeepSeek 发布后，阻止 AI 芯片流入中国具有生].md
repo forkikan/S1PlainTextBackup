@@ -1371,3 +1371,25 @@ A社这个老B登滚去和closeAI坐一桌，不发新模型说尼马呢？
 
 cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼里是罗宾汉劫富济贫这种形象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  体制  
+##### 130#       发表于 2025-1-30 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309245&amp;ptid=2244642" target="_blank">onezeron 发表于 2025-1-30 12:31</a>
+
+我的观点是，就包括这个ceo，都是顶级人才顶级大脑，那么他们是否相信自己说的话，还是都是在说一套做一 ...</blockquote>
+美国公司的ceo无论再天才，只要一上市，最终都会异化成股票机器，一切行为都为了股票啊
+
+*****
+
+####  qratosones1337  
+##### 131#       发表于 2025-1-30 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313012&amp;ptid=2244642" target="_blank">sdefrfg1 发表于 2025-1-30 22:05</a>
+cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼里是罗宾汉劫富济贫这种形象 ...</blockquote>
+closeai自己数据版权就一屁股屎
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
