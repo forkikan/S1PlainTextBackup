@@ -2617,3 +2617,11 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 确实有点搞不懂 感觉新高达剧场版内容听起来就很不尊重高达<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">难道是尊重哥看到鹤卷之类的老登的名字感觉稳了？
 
+
+*****
+
+####  灵魂收割机  
+##### 6130#       发表于 2025-1-30 22:14
+
+尊重哥是谁？你？
+

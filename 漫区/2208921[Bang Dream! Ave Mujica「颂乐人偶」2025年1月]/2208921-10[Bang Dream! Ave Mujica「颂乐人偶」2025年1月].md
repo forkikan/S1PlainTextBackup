@@ -6421,3 +6421,201 @@ wsd剧透炒作访谈炒作确实给楼友带来了不好的追剧体验。罪�
 
 开始了开始了
 
+
+*****
+
+####  新HGCG  
+##### 13936#       发表于 2025-1-30 22:06
+
+又回去当客服了
+
+*****
+
+####  cxj649  
+##### 13937#       发表于 2025-1-30 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">先快速看了一遍，所以是大喵孤家寡人了
+
+其他人有MYGO和甜圈圈女士去救
+
+*****
+
+####  akiomn  
+##### 13938#       发表于 2025-1-30 22:07
+
+c part确认
+素世知道睦精分了，莫提斯玩脱了，睦真的睡了一个多月还没醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫提斯主动打电话叫医生了
+
+*****
+
+####  新HGCG  
+##### 13939#       发表于 2025-1-30 22:08
+
+祥爹的家果然没有浴室
+
+*****
+
+####  fosanoha  
+##### 13940#       发表于 2025-1-30 22:09
+
+太变态了我草，人格分裂的第二人格叫医生是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这你妈是人能整出来的活儿，我对柿本老师绫奈老师只有敬意
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 13941#       发表于 2025-1-30 22:09
+
+太神人了 求求你们别写现实元素内容了 好歹也是大火过的乐队 竟然没了就回去做客服
+
+*****
+
+####  遠い炎群  
+##### 13942#       发表于 2025-1-30 22:10
+
+<blockquote>fosanoha 发表于 2025-1-30 22:09
+太变态了我草，人格分裂的第二人格叫医生是吧这你妈是人能整出来的活儿，我对柿本老师绫奈老师只有敬意
+
+— ...</blockquote>
+自救，唯有自救
+
+*****
+
+####  JamieD  
+##### 13943#       发表于 2025-1-30 22:10
+
+这两个乐队真的没有爱音都得散啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 13944#       发表于 2025-1-30 22:10
+
+竟然无视灯！
+
+*****
+
+####  akiomn  
+##### 13945#       发表于 2025-1-30 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我他妈看到最后已经笑死了
+一个月没人管睦，莫提斯主动叫医生，什么变态剧情啊
+
+*****
+
+####  新HGCG  
+##### 13946#       发表于 2025-1-30 22:11
+
+影月来了！
+
+*****
+
+####  南宮凝香  
+##### 13947#       发表于 2025-1-30 22:11
+
+你好， 
+
+這裡是前母雞卡的鍵盤手.客服小祥
+
+請問今天有什麼可以為您服務？
+
+*****
+
+####  AP0rt_  
+##### 13948#       发表于 2025-1-30 22:12
+
+圣爱音伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 13949#       发表于 2025-1-30 22:12
+
+从第一分钟就让人笑个不停，这简直是最佳喜剧片
+
+*****
+
+####  icoywt  
+##### 13950#       发表于 2025-1-30 22:12
+
+这睦头打电话拿的不是拖鞋吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉病的更深了
+
+*****
+
+####  影伴光生  
+##### 13951#       发表于 2025-1-30 22:13
+
+ 本帖最后由 影伴光生 于 2025-1-30 22:14 编辑 
+
+真的闹麻了。。。看弹丸论破3跟迷家，好歹是10集的时候才确认烂了
+前半集无BGM默剧，在做一种很新奇的尝试是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gaayas  
+##### 13952#       发表于 2025-1-30 22:13
+
+笑死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  akiomn  
+##### 13953#       发表于 2025-1-30 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不对，睦是真的疯了，拿的是拖鞋……
+莫提斯也疯了？
+
+*****
+
+####  新HGCG  
+##### 13954#       发表于 2025-1-30 22:14
+
+还是回老家了
+
+*****
+
+####  Litccc  
+##### 13955#       发表于 2025-1-30 22:14
+
+你楼的双重人格哥看了这集还能和莫老师共情吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 13956#       发表于 2025-1-30 22:14
+
+老登你等三分鐘能收拾個屁？
+
+*****
+
+####  icoywt  
+##### 13957#       发表于 2025-1-30 22:15
+
+姥爷给演唱会兜底赔偿那段看的我笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 13958#       发表于 2025-1-30 22:15
+
+震动棒
+
+和
+
+打字机闹麻了
+
+*****
+
+####  看穿一切的鱼  
+##### 13959#       发表于 2025-1-30 22:16
+
+乐死了，客服小祥怎么还返厂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
