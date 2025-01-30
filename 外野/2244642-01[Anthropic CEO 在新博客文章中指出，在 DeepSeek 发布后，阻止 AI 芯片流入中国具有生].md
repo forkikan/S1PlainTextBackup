@@ -815,3 +815,35 @@ deepseek让任何人都能用买一辆车的钱部署一个属于自己的超级
 
 实际上“我相信我马上能搞出AGI”和“我不相信AGI是可能的”，这本来就是“我信上帝我是天选之子”和“我不相信存在上帝”的一个变体，也就是现在大家逐渐明白过来的帝国闭环赢学和你鳖闭环输学的一个实际呈现。他相信他能搞出来AGI所以他肯定会赢，你不相信AGI所以你搞不出来，你最多只能说他没有赢，但是你同样没有赢。所以这样他的股市才能天天涨，而缅A永远涨不起来。我看各位也不要嘲讽帝国，帝国这套闭环赢学的工夫就是能赛博咩鳖，你还能咋地？你天天说“等到我XXX就能YYY”，但是真到XXX的时候你还是不敢YYY，不就是因为其实心底里被这套闭环赢学给pua到了吗。所以还不如有点积极的信心，投身你鳖闭环赢学，相信你鳖也能把AGI搞出来。
 
+
+*****
+
+####  Mafise  
+##### 76#       发表于 2025-1-30 11:08
+
+没点生物学和神经科学知识就聊人脑有点难崩
+
+人脑或者说动物脑最大的优势是神经可塑性
+
+
+*****
+
+####  鸳鸳相抱  
+##### 77#       发表于 2025-1-30 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307592&amp;ptid=2244642" target="_blank">wwmmddqqbbpp 发表于 2025-1-30 04:19</a>
+阿法狗那进步是有迹可循的，agi是要从石头里蹦出来么</blockquote>
+大模型的语言能力不就是石头里蹦出来的？
+
+*****
+
+####  宏.  
+##### 78#       发表于 2025-1-30 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308535&amp;ptid=2244642" target="_blank">Mafise 发表于 2025-1-30 11:08</a>
+
+没点生物学和神经科学知识就聊人脑有点难崩
+
+人脑或者说动物脑最大的优势是神经可塑性 ...</blockquote>
+硬件可塑性和软件可塑性是两码事，论硬件可塑性，谁的脑子能像pci插卡那样扩展算力？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

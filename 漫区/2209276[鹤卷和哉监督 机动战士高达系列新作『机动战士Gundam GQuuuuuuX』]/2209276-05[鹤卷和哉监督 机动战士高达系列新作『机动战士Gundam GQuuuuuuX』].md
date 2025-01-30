@@ -1998,3 +1998,22 @@ GQX就是可动肢和喷口的高度融合，酷似三头龙核心战机上类�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Gysumitka  
+##### 6071#       发表于 2025-1-30 11:12
+
+<img src="https://p.sda1.dev/21/9b9184c28114a9c5f356722a6cec8450/image.jpg" referrerpolicy="no-referrer">
+[@another_pikuru](https://x.com/another_pikuru/status/1884586572039020546)
+<img src="https://p.sda1.dev/21/e9db9c0bad45826dffbd3e81fe2f0519/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 6072#       发表于 2025-1-30 11:13
+
+对于阿尔法塞可缪也有一点很奇怪，如果阿尔法只是老旧，初期不成熟的塞可缪技术的话，吉翁根本就不需要大费周章去捕获红高达，自己重新造一个不就得了。
+
+可见阿尔法塞可缪对现在的吉翁来说尚且是不可制造和复制的吧
+
