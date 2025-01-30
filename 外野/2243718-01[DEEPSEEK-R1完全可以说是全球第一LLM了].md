@@ -10585,3 +10585,47 @@ Deepseek背后的网络攻防战<img src="https://p.sda1.dev/21/fd25d3d09c578612
 
 2025-1-30 15:05 上传
 
+
+*****
+
+####  Canck  
+##### 805#       发表于 2025-1-30 15:14
+
+今天一天都提示联网功能繁忙不让用；是只有我这样还是大伙儿都这样？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  moeblack  
+##### 806#         楼主| 发表于 2025-1-30 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310332&amp;ptid=2243718" target="_blank">Canck 发表于 2025-1-30 15:14</a>
+今天一天都提示联网功能繁忙不让用；是只有我这样还是大伙儿都这样？
+
+论坛助手,iPhone ...</blockquote>
+Everyone
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  qqks  
+##### 807#       发表于 2025-1-30 15:20
+
+鬼佬一堆网站已经开始托管r1大杯了，国内那些服务商在搞毛！
+
+*****
+
+####  moeblack  
+##### 808#         楼主| 发表于 2025-1-30 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310368&amp;ptid=2243718" target="_blank">qqks 发表于 2025-1-30 15:20</a>
+鬼佬一堆网站已经开始托管r1大杯了，国内那些服务商在搞毛！</blockquote>
+Git hub和perplexity的代理我都用了，远远不行
+感觉像是怎么说呢，感觉像是部署出了问题
+。智力远远比不上官网
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

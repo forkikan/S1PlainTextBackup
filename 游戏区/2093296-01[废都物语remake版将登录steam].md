@@ -168,3 +168,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xbhuang  
+##### 768#       发表于 2025-1-30 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67304803&amp;ptid=2093296" target="_blank">宛若青空 发表于 2025-1-29 17:18</a>
+只能说可能是你的一厢情愿了，这个探索方式要是改了保不准更多人是喷没那个味了，不信你去废都吧问问看， ...</blockquote>
+所以为啥要这么久？这点改动丢给个大学爱好者社团估计都能在一学期内搞出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

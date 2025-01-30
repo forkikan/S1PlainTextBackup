@@ -1159,3 +1159,25 @@ AGi是能解决所有问题 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blackll7  
+##### 108#       发表于 2025-1-30 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是搞不懂为什么那么多人突然变成神经科学，计算机学和控制论三个交叉领域的专家的。这帮人确定自己能读懂这方面的综述吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  临界点  
+##### 109#       发表于 2025-1-30 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307806&amp;ptid=2244642" target="_blank">無始無終 发表于 2025-1-30 08:12</a>
+
+意思是训练用的文本资料不够了
+
+—— 来自 S1Fun</blockquote>
+如果现在就文本资料不够了  那说明这条路线就是错误的 并没有办法最终实现agi
+
