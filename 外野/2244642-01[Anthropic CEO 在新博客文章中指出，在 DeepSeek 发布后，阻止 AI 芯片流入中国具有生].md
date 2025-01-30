@@ -1393,3 +1393,25 @@ closeai自己数据版权就一屁股屎
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ackroyd  
+##### 132#       发表于 2025-1-30 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307502&amp;ptid=2244642" target="_blank">alixsander 发表于 2025-1-30 02:39</a>
+
+基本都认为是2-3年了，LeCun这种死硬派也就觉得5年</blockquote>
+这里的agi什么定义，通用养老机器人还是能学习能搞科研的机器人
+
+
+*****
+
+####  RookieTnT  
+##### 133#       发表于 2025-1-30 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313872&amp;ptid=2244642" target="_blank">ackroyd 发表于 2025-1-30 22:41</a>
+
+这里的agi什么定义，通用养老机器人还是能学习能搞科研的机器人</blockquote>
+可以简单理解为异型 普罗米修斯里面的大卫. 无限接近于人类. 可以真正理解事情. 而不是类似于现在的模拟. 概率.
+

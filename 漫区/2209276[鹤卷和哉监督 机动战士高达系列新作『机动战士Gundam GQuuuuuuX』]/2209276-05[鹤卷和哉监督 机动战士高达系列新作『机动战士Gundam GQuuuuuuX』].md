@@ -2625,3 +2625,35 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 尊重哥是谁？你？
 
+
+*****
+
+####  pu  
+##### 6131#       发表于 2025-1-30 22:35
+
+ 本帖最后由 pu 于 2025-1-30 22:37 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/30/222859fvyle7p0r9p6qe0e.png" referrerpolicy="no-referrer">
+
+<strong>QKAPYHGF9B)R33WFFJ(4WUW.png</strong> (81.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202501/30/222856y9ic9er0i8955iva.png" referrerpolicy="no-referrer">
+
+<strong>[QHGJ~YOFAPD{{Z]3_XR161.png</strong> (87.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 22:28 上传
+
+刚扫到个盗摄 这up也发现了 最近的高达作品 机体动作太像人 根本没必要  剧场版还有一个地方被诟病的 就是后面砍掉对面头 机体爆炸
+
+我回想了下 类似风格的作品 雷霆宙域第二部也是 各种驾驶员之间通讯都要机体回个头（第一部就很好 没发现有这种情况） 独角兽里也出现过好几次 
+
+这点0083和08ms就做的非常好 算是高达设定和作画的分水岭了 
+
+不知道现在这做分镜的是啥毛病
+
