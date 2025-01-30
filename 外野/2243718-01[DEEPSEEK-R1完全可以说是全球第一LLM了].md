@@ -11159,3 +11159,13 @@ Jan 29 (Reuters) - Microsoft (MSFT.O) has made Chinese startup DeepSeek's R1 art
 
 今天的WEB版本感觉卡到夸张，如果说昨天是服务器繁忙，今天就变成了甚至不知道自己有没有把故事发出去
 
+
+*****
+
+####  tengshuo980  
+##### 858#       发表于 2025-1-30 23:13
+
+纯ai小白，请问有没有除了自己搭建外破开deepseek关键词限制的方法<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

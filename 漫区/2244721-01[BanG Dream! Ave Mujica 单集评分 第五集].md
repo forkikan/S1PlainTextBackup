@@ -992,3 +992,104 @@ A，B部分喜闻乐见，大祥老师的部分是真有趣啊。可以给+2
 
 喵梦最畜的点就是没能找到半仙算出来四个队友三个都还好但有一个是揭面具就会爆的精神病
 
+
+*****
+
+####  Perfectfullmoon  
+##### 113#       发表于 2025-1-30 23:06
+
+笑死，醋要端上来了，结果有楼友蚌不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  onion0201  
+##### 114#       发表于 2025-1-30 23:07
+
+让一个精神病人在家里放置一个月<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，立希那段和最后的素世看笑了。+0吧，看看后边该怎么圆
+
+*****
+
+####  pliee  
+##### 115#       发表于 2025-1-30 23:07
+
+没前4集+1，但是它有<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 116#       发表于 2025-1-30 23:07
+
+全线都要让mygo救场，这片不是叫Ave Mujica吗我请问了。
+
+*****
+
+####  weems  
+##### 117#       发表于 2025-1-30 23:08
+
++1，节奏慢下来了，看起来舒服多了。前半段麻木压抑的氛围渲染到位，后半段爱音和灯双神输出
+
+mygo的各位来了，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tienx  
+##### 118#       发表于 2025-1-30 23:08
+
+你也想打复活赛吗小灯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  newtroll  
+##### 119#       发表于 2025-1-30 23:09
+
+ 本帖最后由 newtroll 于 2025-1-30 23:10 编辑 
+
++1，上一集刚骂过音监，这一集就直接不配BGM了，很好，这也算是一种进步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然只给+1还是因为尚未去除第四集余毒，建议以后wsd打算给羊重新录杂街时顺便把鸡的第四集也重置一下<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 120#       发表于 2025-1-30 23:10
+
+mygo destiny
+
+
+*****
+
+####  zechins  
+##### 121#       发表于 2025-1-30 23:11
+
+爱音蹦出来的一瞬间脑子里只有四个字：机械降神<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+看动画这么多年，没想到这个想法会具象化到某角色的某行动上<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+我爱伟大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  127  
+##### 122#       发表于 2025-1-30 23:12
+
+坛友的评论很有回旋镖的潜力啊。知人知面不知心，才第五集就锐评某个人如何，这是忘了当初mygo的教训了？当年mygo队员被大家诟病，到最后风评逆转。mujica未尝没有这样的潜力，毕竟这只是第五集而已。
+
+
+*****
+
+####  fffyyyjj  
+##### 123#       发表于 2025-1-30 23:13
+
+大祥-2
+
+初华和睦头，交友不慎啊
+
+*****
+
+####  yanghuangu  
+##### 124#       发表于 2025-1-30 23:13
+
++1  单看女女关系性的话，这集真不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

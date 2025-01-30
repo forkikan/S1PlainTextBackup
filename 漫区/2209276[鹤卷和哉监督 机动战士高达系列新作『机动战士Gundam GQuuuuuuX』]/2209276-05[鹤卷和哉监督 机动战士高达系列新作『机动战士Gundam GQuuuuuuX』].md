@@ -2697,3 +2697,26 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 老登们就喜欢老机器人动画那拟人味儿，最喜欢的可能是安彦良和
 
+
+*****
+
+####  pu  
+##### 6136#       发表于 2025-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314044&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-30 22:49</a>
+
+驾驶员通讯要回头也能硬解释：光通讯。
+
+扎古的独眼不光是摄像机，也可以进行通信</blockquote>
+不是。。平时都在那正常对话。。前机要后机停下。。他也像真人一样回头伸手。。。
+
+*****
+
+####  pu  
+##### 6137#       发表于 2025-1-30 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314191&amp;ptid=2209276" target="_blank">WallHrolf 发表于 2025-1-30 22:57</a>
+
+我怎么记得0079自己也干了，还是很早期的集数</blockquote>
+富野新Z就很正常 233 0079摸索阶段倒也算了 不过我不记得有这种情况。。
+

@@ -9151,3 +9151,645 @@ mujica真是闹麻了，还不是要靠mygo来救这帮神人<img src="https://s
 现在鸡团人物形象感觉完全和mygo#13时候的形象差远了啊
 之前看起来个个心细如发，运筹帷幄，实力强劲，现在全丑完了
 
+
+*****
+
+####  怀沙汨罗  
+##### 14234#       发表于 2025-1-30 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314272&amp;ptid=2208921" target="_blank">乙津夢 发表于 2025-1-30 23:01</a>
+个人五集下来看到最搞笑的一句台词“取消巡演造成损失的赔偿金，我都付清了”，柿本**，独角兽老师，麻烦你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是看到那里绷不住的，另一处就是客服祥子皮肤回归。
+编剧究竟有没有意识到商业乐队的基本运作？如有。
+你要么就彻底无视逻辑不要讲违约金这些东西，要么你就好好想想一个大热女团的成员怎么能若无其事回去做客服的。现在上不去下不来，卡在这儿了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 14235#       发表于 2025-1-30 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314220&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-1-30 22:58</a>
+大喵老师作为队友也挺神人的，一个背了债务失踪，另一个你们已经知道她有精神疾病的前提下，也是扔下不管， ...</blockquote>
+大喵就完全不觉得睦有病，炸团了也完全没再联系其他成员，按她的一套固有逻辑过日子呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 14236#       发表于 2025-1-30 23:06
+
+谁能具体来说说谁造的什么假药骂得什么烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼里这不都在说好啊坐实了认证了说对了
+
+*****
+
+####  麻仓月轩  
+##### 14237#       发表于 2025-1-30 23:07
+
+有人提大祥老师喝茶的特写么
+早上出门的时候茶杯放在水池旁边，没洗
+晚上回来拿东西，出门的时候特地给了镜头，杯子没了
+那就是说祥爹洗了大祥老师的杯子？这个用意是？祥爹故意表现得邋遢，就为了赶走女儿，但是放不下一个杯子不洗？我的天，眼里可太有活了
+
+*****
+
+####  杂灰  
+##### 14238#       发表于 2025-1-30 23:07
+
+祥子这个会对自己犯下的错全力退避的缺点被彻底引爆算是意料之中，我看前几集的拍法就完全没打算让她在到达谷底前展现什么人格魅力，真要有什么人格魅力，那也只能是她重新振作后才能展现的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱莉希雅  
+##### 14239#       发表于 2025-1-30 23:07
+
+最后的最后,让我们结束这场闹剧。
+
+入场券的费用年后就会全部退给大家。损失的违约金我的家长已经替我承担。
+
+本人的所有账号都会在近期逐步停止运营。所有的玩家社区都会在近期逐步解散。
+
+《Ave Mujica》这支乐队我将会重新对其评估，调整开发。
+
+最后，感谢大家一直以来的关注，我的故事就到此结束了。
+
+再见
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| akito85| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  厚乳果珍爽  
+##### 14240#       发表于 2025-1-30 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314152&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-1-30 22:54</a>
+
+表情好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是我看第五集的表情
+
+
+*****
+
+####  怀沙汨罗  
+##### 14241#       发表于 2025-1-30 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314367&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-1-30 23:05</a>
+我觉得可以盖棺了。
+
+本质上剧情走的还是少女漫画老一套，相识-熟悉-闹别扭-散伙-个人成长-重组，无功无过的 ...</blockquote>
++1，实在搞不懂为什么非要搞成商业乐队，有什么必要吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  帆前  
+##### 14242#       发表于 2025-1-30 23:07
+
+这mujica的人，还就是没有mygo的人心软啊
+
+*****
+
+####  thisisaspider  
+##### 14243#       发表于 2025-1-30 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314240&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-1-30 22:59</a>
+
+不是，大祥老师乐团解散后为啥还能回去重新干她那个客服？之前办的停薪留职？还有这个经纪公司就是早知道这 ...</blockquote>
+不是还是重新打工赚生活费吗。乐队自由度高，办不下去也不能拉着人搞啊。我觉得解散处理反而没什么问题。赔钱完事了。
+
+*****
+
+####  Perfectfullmoon  
+##### 14244#       发表于 2025-1-30 23:07
+
+笑死，醋要端上来了，结果有楼友绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  有钱多买小人  
+##### 14245#       发表于 2025-1-30 23:08
+
+看完这集最担心的是祥爹。他都这样了怎么包饺子？他不包饺子大祥怎么包饺子。要是真搞抱憾终生那倒是佩服了。
+
+*****
+
+####  kenqqex  
+##### 14246#       发表于 2025-1-30 23:08
+
+<img src="https://img.saraba1st.com/forum/202501/30/230803e88he4p8ygehnyvt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (53.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 23:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dgugvff  
+##### 14247#       发表于 2025-1-30 23:08
+
+完全不知道这个团还有什么核心利益
+
+*****
+
+####  JustW  
+##### 14248#       发表于 2025-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314296&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-30 23:02</a>
+这算是我对祥子的最后一点怜悯了，如果放在动画里，我真的一点都共情不了祥子，青梅竹马精分了一番作为也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥子这一手遇事不决就润的风格说不定小时候就是了，初华可能已经是第二次遭遇被晾下
+
+*****
+
+####  kenqqex  
+##### 14249#       发表于 2025-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314418&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-1-30 23:08</a>
+
+看完这集最担心的是祥爹。他都这样了怎么包饺子？他不包饺子大祥怎么包饺子。要是真搞抱憾终生那倒是佩服了 ...</blockquote>
+mggm也是这样想的
+
+*****
+
+####  lyuhiu  
+##### 14250#       发表于 2025-1-30 23:08
+
+初华按独角兽女士这样的玩法，怕不是sumimi后续被迫解散，初华直接自闭，最后老队友mana放手让初华去重组的母鸡卡，那这样可太俗套了
+
+*****
+
+####  ddy2811  
+##### 14251#       发表于 2025-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314162&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-30 22:55</a>
+
+我觉得唯1.5的问题是没必要推一个月，半个月也行了，也没必要硬给个客服小祥的画面，直接接回家就行了，从 ...</blockquote>
+硬要回溯接爹和客服确实败笔，按理说她根本不会有这么做的机会了
+
+*****
+
+####  StrengeMistake  
+##### 14252#       发表于 2025-1-30 23:08
+
+这动画分镜演出剧本没一个无辜的，你们才是真正的神人组合
+
+*****
+
+####  aptx8285144  
+##### 14253#       发表于 2025-1-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314372&amp;ptid=2208921" target="_blank">kenganmian 发表于 2025-1-30 23:06</a>
+
+现在鸡团人物形象感觉完全和mygo#13时候的形象差远了啊
+
+之前看起来个个心细如发，运筹帷幄，实力强劲，现在 ...</blockquote>
+是的，考虑到现在最关心睦的前队友素世，这真得共事的时光各自分开没人在意睦了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 14254#       发表于 2025-1-30 23:09
+
+<blockquote>JustW 发表于 2025-1-30 23:08
+祥子这一手遇事不决就润的风格说不定小时候就是了，初华可能已经是第二次遭遇被晾下 ...</blockquote>
+把祥子当成碇真嗣不就行了，正好睦跟明日香差不多。
+
+*****
+
+####  嵇翱u  
+##### 14255#       发表于 2025-1-30 23:09
+
+想起立石凛那句话了
+
+“爱音爱着人类哦”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+太伟大了，圣爱音
+
+*****
+
+####  xwr  
+##### 14256#       发表于 2025-1-30 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314251&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-30 23:00</a>
+
+没什么的前提是，祥子已经几乎失去了成为“一流机师”的机会，现在整一个被爷爷救完经济，再被灯爱救音乐 ...</blockquote>
+不至于，祥子只要振作起来处理下感情纠葛再说服她爷爷再投钱把A团再搞起来就行了，谁出钱谁就是主角，什么平等？没有我的特殊关系拉来赞助A团能复活吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 14257#       发表于 2025-1-30 23:09
+
+下集预告ring门口那么多人应该是soyo和mo女士搞双人路边演出吧（致敬孤独摇滚）
+
+*****
+
+####  fsfs_freeze  
+##### 14258#       发表于 2025-1-30 23:09
+
+哦对了，沉迷于自己的二创假药在场外乐乐就行了，当个同人文看也行，别擅自带入到正片了，要不然给自己搞破防了也是挺搞笑的。前五集看下来写假药的人或许想把wsd设定在第五层，但实际上有没有第二层都不好说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14259#       发表于 2025-1-30 23:09
+
+ 本帖最后由 天空塔书记官 于 2025-1-30 23:11 编辑 
+
+因为A团本质就是个装成商业乐队的玩票乐队啊，之前光鲜亮丽的外表只不过是资本大手包装的结果，真以为单靠祥子运作就能上武道馆和巡演啊，楚平方都做不到好吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  紫苑寺美琴  
+##### 14260#       发表于 2025-1-30 23:10
+
+有大人兜底的世界真是好啊，大小姐就是能过完家家当甩手掌柜，电话嗯不接0社交压力，最羡慕的一集<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 14261#       发表于 2025-1-30 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314240&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-1-30 22:59</a>
+不是，大祥老师乐团解散后为啥还能回去重新干她那个客服？之前办的停薪留职？还有这个经纪公司就是早知道这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">客服什么垃圾，和三和老哥日结一样不是哑巴就能干
+
+*****
+
+####  厚乳果珍爽  
+##### 14262#       发表于 2025-1-30 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314268&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-30 23:01</a>
+
+竟然有不少人因为假药没有成真而破口大骂剧情烂，还有说前半段很水，该怎么评价好，我觉得是火出圈了危害大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢？假药都比你实际剧情来的合理，当然破口大骂啊。
+
+*****
+
+####  Yugao  
+##### 14263#       发表于 2025-1-30 23:10
+
+<img src="https://img.saraba1st.com/forum/202501/30/231034ui75wriglr5rj7jr.jpg" referrerpolicy="no-referrer">
+
+<strong>~`%WT[`$[[JBW]WW`3DB%DI.jpg</strong> (55.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 23:10 上传
+
+*****
+
+####  大户爱  
+##### 14264#       发表于 2025-1-30 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314268&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-30 23:01</a>
+竟然有不少人因为假药没有成真而破口大骂剧情烂，还有说前半段很水，该怎么评价好，我觉得是火出圈了危害大 ...</blockquote>
+你讲反了，他们是觉得剧情烂，所以用假药欺骗自己。
+这集出来发现骗不下去了，认清了母鸡卡剧情确实一塌糊涂的现实。
+
+*****
+
+####  ntrntr1  
+##### 14265#       发表于 2025-1-30 23:10
+
+其实不考虑上一话这话还行，爱音可爱捏
+
+*****
+
+####  厉飞雨  
+##### 14266#       发表于 2025-1-30 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 14267#       发表于 2025-1-30 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314368&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-30 23:05</a>
+练吉他椅子都坐烂了父母都不知道，如果在卧室尸体发臭才被佣人发现也没什么奇怪的 ...</blockquote>
+那倒也不至于，佣人好歹是要照顾一天三顿饭的，否则你能想象这个状态的睦是每天自己出来找点吃的再回去的样子吗，不过佣人也的确是扫地机器人，有着钢铁一般的神经，正常人都会和soyo一样吓傻，佣人还能没事人一样工作
+
+*****
+
+####  iiiiiiiiii  
+##### 14268#       发表于 2025-1-30 23:10
+
+<blockquote>xwr 发表于 2025-1-30 23:09
+不至于，祥子只要振作起来处理下感情纠葛再说服她爷爷再投钱把A团再搞起来就行了，谁出钱谁就是主角，什 ...</blockquote>
+TGW大手是这样的，没有TGW关系你森美奈美能出人头地吗？
+
+*****
+
+####  gameseve  
+##### 14269#       发表于 2025-1-30 23:11
+
+大祥老师的剧情挺好看的，但是到了睦这里，观感直线下降。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 14270#       发表于 2025-1-30 23:11
+
+仔细一想大祥的形象也确实快要救不回来了，因为现在在睦家门口的是素世<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，<strong>初华在意的也更像大祥个人而不是乐队本身</strong>
+
+*****
+
+####  wangh  
+##### 14271#       发表于 2025-1-30 23:11
+
+前半氛围感好强，看得大气都喘不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  童话与星空  
+##### 14272#       发表于 2025-1-30 23:11
+
+好怪呀，本以为这集不是冲天就是坠地，没想到端上来一个飘在半空的
+
+*****
+
+####  plok201  
+##### 14273#       发表于 2025-1-30 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314422&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-30 23:08</a>
+
+完全不知道这个团还有什么核心利益</blockquote>
+要说有还是有的，目前5个神人都是木偶状态，最后大概告诉你还是组这个A团大家才能摆脱木偶活出自我
+
+就是后面复盘的话估计会很爆笑，闹麻感拉满，像这集的我把违约金全付了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mono  
+##### 14274#       发表于 2025-1-30 23:12
+
+如果不是邦宇宙就算了，在一个先验要继续开live要进手游的团搞成这样，编剧是艺高人胆大吗 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 14275#       发表于 2025-1-30 23:12
+
+这集节奏慢下来了观感还不错但是有逻辑硬伤，那就是完全没人管精神病<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+别人跟睦不熟就算了，祥子上集结尾都那样说想要睦回来了，结果解散一个月都无关心？？？合着真把睦当吉他工具人啊？再这样睦永远都不会回来也无所谓吗？？这可是祥子明确知道的信息诶……
+
+*****
+
+####  yicihanshu  
+##### 14276#       发表于 2025-1-30 23:13
+
+乐队并非只能组一个，灯也没说组的ccc，说说复辟当个乐就算了，有些人别擅自当真擅自滑坡…尤其是灯是完全没管木子米的…灯说组乐队是一个剧情逻辑正常且符合她人设的说法，而且合乎少女乐队世界观。
+木子米没人管，但她姑且有爹有妈，队友注意不到是队友的，她这家庭是真神人家庭。
+祥子被车的很惨，但喵梦风评却意外的不惨…这俩基本大家都是预料有一个欲扬先抑的过程的，从很久以前的访谈到剧透都表明祥子的风评在开头会很差，就看什么时候祥子真的到谷底了。
+初华在mygo炸了的时候帮了灯，但mygo重组并非靠初华。mygo几个人在各种方面参与母鸡卡，但母鸡卡最大的问题不是mygo能解决的，更别说母鸡卡在最大的问题外可能还有潜在的更大的问题（初华）
+
+人物塑造这块是要看成长了，但即便成长到最后，我相信母鸡卡五人也不会解决所有问题，而且会有游戏跟进。对比，我没意见。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  jojonathan  
+##### 14277#       发表于 2025-1-30 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314259&amp;ptid=2208921" target="_blank">九十九忍 发表于 2025-1-30 23:00</a>
+哈集美真就被断线搞PTSD了，人家是真有病好不好
+
+捞翔完全变成凡事一碰壁就和周围人搞到恩断义绝的烂人了</blockquote>
+有一说一祥子之前不就这样<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 14278#       发表于 2025-1-30 23:13
+
+按编剧想法现在的祥子应该是因为自己杀死了睦头所以内心基本死掉的人偶状态。
+
+但是这演出压根没表现出来啊。 观感太TM恶劣了。 祥睦现在完全不知道怎么CP
+
+*****
+
+####  Lyzers  
+##### 14279#       发表于 2025-1-30 23:13
+
+很难想象当年跟灯认识几分钟就能出言支持灯的海玲和初华，怎么会对合作了几个月的母鸡卡队员冷漠成这样
+
+只能假设初华和海玲在母鸡卡也是一次都没开心过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 14280#       发表于 2025-1-30 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314435&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-30 23:08</a>
+
+硬要回溯接爹和客服确实败笔，按理说她根本不会有这么做的机会了</blockquote>
+这个倒是有必要的，老登看完消息，等着祥回来，结果没回来才去接人。这个写得比睦挂机一个月好多了。
+
+
+*****
+
+####  Asimot  
+##### 14281#       发表于 2025-1-30 23:13
+
+万用脸暖屁股机千早爱音<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+两季动画都是猛猛给大象老师甩回旋镖
+
+软弱的自己一直就没死过
+
+真正的满脑子里只有自己
+
+到处留下一地鸡毛然后跑路的顶级大象老师！
+
+*****
+
+####  天空塔书记官  
+##### 14282#       发表于 2025-1-30 23:13
+
+暗黑HHW是这样的，你只管开live剩下的都交给万能的资本<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 14283#       发表于 2025-1-30 23:14
+
+还是片太火了，人一多聊着聊着把自己聊进去随意发散，然后擅自破防。本质偶像乐队企划，掺杂再多的商业职场元素最后也只会收束到人与人的关系性
+
+*****
+
+####  sephal  
+##### 14284#       发表于 2025-1-30 23:14
+
+祥子简直弱到没边，小莫起码还为了保住母鸡卡做了点挣扎，祥子真是就知道软糯。只能说优秀的业务水平掩盖了一直以来解决实际问题能力低下的问题，崩完crychic之后崩母鸡卡，接下来没得崩了，只能回家继承家业<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看着是主角，结果是等待被人解救的公主，在邦邦的世界观里能搞砸两只乐队的也真是神人了
+
+*****
+
+####  莉缇娅  
+##### 14285#       发表于 2025-1-30 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现实的我有点绷不住
+
+搞乐队失败的我只好回去继承千亿家产了。
+
+这段剧情太符合逻辑反而有点想笑，是啊，祥子从来都是有退路的那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 14286#       发表于 2025-1-30 23:14
+
+<blockquote>yicihanshu 发表于 2025-1-30 23:13
+乐队并非只能组一个，灯也没说组的ccc，说说复辟当个乐就算了，有些人别擅自当真擅自滑坡…尤其是灯是完全 ...</blockquote>
+祥子就是键盘啊，mygo缺键盘手啊，估计灯是想把祥子收到mygo当键盘，怎么觉得复辟C团
+
+*****
+
+####  怀沙汨罗  
+##### 14287#       发表于 2025-1-30 23:14
+
+闹麻了，真有人觉得假药多是因为这剧情好啊。上周为啥叙诡说甚嚣尘上，不就是因为第四集人物行为逻辑烂完了，观众想办法给编剧找补呢。要我说最无辜的还是大金毛，就因为太纯良被迫害这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  pzk  
+##### 14288#       发表于 2025-1-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314474&amp;ptid=2208921" target="_blank">gameseve 发表于 2025-1-30 23:11</a>
+
+大祥老师的剧情挺好看的，但是到了睦这里，观感直线下降。</blockquote>
+双重人格这个设定确实太重量级了，没点功力真不能沾边
+
+*****
+
+####  Mr.shelter  
+##### 14289#       发表于 2025-1-30 23:14
+
+大喵老师共情不了睦不是很正常？在她看来睦可是父母双明星，家里又有钱，自己又有天赋的超成功人士。她之前去睦家里对她妈印象也好得不得了。在这种情况下突然说睦得精神病了，第一反应不是她家里人会关心她会动用资源处理好这件事吗？反过来作为青梅竹马好姐妹，既知道睦发病原因，又知道她家里真实生态的祥子，前两集还在说“都是我的责任”“我想要睦回来”，现在就边缘OB了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 14290#       发表于 2025-1-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314424&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 23:08</a>
+
+祥子这一手遇事不决就润的风格说不定小时候就是了，初华可能已经是第二次遭遇被晾下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">其实大祥老师跟牢爹是一类人，遇事就逃避
+
+*****
+
+####  柴突猛进  
+##### 14291#       发表于 2025-1-30 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314449&amp;ptid=2208921" target="_blank">xwr 发表于 2025-1-30 23:09</a>
+不至于，祥子只要振作起来处理下感情纠葛再说服她爷爷再投钱把A团再搞起来就行了，谁出钱谁就是主角，什 ...</blockquote>
+和解一念起，刹那天地宽呗，只要有丰川集团兜底，需要复活母鸡卡嘛，再造一个银河战舰都行啊，资本造星难道看的还不够多嘛，这次丰川大小姐可以挑四个听话的跟班打造一言堂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xwr  
+##### 14292#       发表于 2025-1-30 23:15
+
+看到最后大家可能会发现，mujica的主角是丰川家的老爷子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然了也有可能最后为了打老爷子的脸，A团复活，但是街头乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tienx  
+##### 14293#       发表于 2025-1-30 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就普普通通的过渡回吗，还是少看假药吧
+
+*****
+
+####  影伴光生  
+##### 14294#       发表于 2025-1-30 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314397&amp;ptid=2208921" target="_blank">麻仓月轩 发表于 2025-1-30 23:07</a>
+有人提大祥老师喝茶的特写么
+早上出门的时候茶杯放在水池旁边，没洗
+晚上回来拿东西，出门的时候特地给了镜 ...</blockquote>
+应该只是个人物品全打包带走了吧，不管是装颓还是真颓都没有洗这一个茶杯的动机
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fsfs_freeze  
+##### 14295#       发表于 2025-1-30 23:15
+
+祥子一点都没去管睦是最搞笑的，ep4还想睦回来，ep5又把mortis放置了一个月，虽然说是自闭了，但好歹得有个两人在一起的描写吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 14296#       发表于 2025-1-30 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314460&amp;ptid=2208921" target="_blank">osore 发表于 2025-1-30 23:10</a>
+
+客服什么垃圾，和三和老哥日结一样不是哑巴就能干</blockquote>
+她这不是一般的客服，回来当客服不仅原单位还是原工位，我现在怀疑这所谓的客服是一家名叫“丰川移动”的公司的客服。
+
+*****
+
+####  aptx8285144  
+##### 14297#       发表于 2025-1-30 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314449&amp;ptid=2208921" target="_blank">xwr 发表于 2025-1-30 23:09</a>
+
+不至于，祥子只要振作起来处理下感情纠葛再说服她爷爷再投钱把A团再搞起来就行了，谁出钱谁就是主角，什 ...</blockquote>
+所以这些都是重整旧山河，<strong>吸取人生教训重新开始，太像飞鸟了</strong><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圣血天使  
+##### 14298#       发表于 2025-1-30 23:16
+
+大猫和海玲真是日了狗了进了母鸡卡，这仨队友都什么人…三角这眼瞅就要出大事…母鸡卡还得靠圣爱音和偷摸零和soyo推。我只能说鸡狗里正常人真是太难过了……
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  YF31  
+##### 14299#       发表于 2025-1-30 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314526&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-30 23:14</a>
+
+还是片太火了，人一多聊着聊着把自己聊进去随意发散，然后擅自破防。本质偶像乐队企划，掺杂再多的商业职场 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说得对，但是拿违约金糊人脸的不是我，是柿本广大。
+
