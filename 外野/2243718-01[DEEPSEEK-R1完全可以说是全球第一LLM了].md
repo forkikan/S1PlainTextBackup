@@ -10216,3 +10216,39 @@ gpt，小克，gemini的聊天都用过，之前看人评论也很认可，就�
 在酒馆搞黄色的时候点开了显示思维过程，让人很难绷得住</blockquote>
 怎么开的，我特别想看他怎么发癫的
 
+
+*****
+
+####  小止  
+##### 772#       发表于 2025-1-30 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308397&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-1-30 10:45</a>
+
+怎么开的，我特别想看他怎么发癫的</blockquote>
+酒馆AI响应配置里有个展示思维链
+
+当然并非发癫，而是一本正经的思维过程，最后输出一个发癫的结果，就。。。难绷
+
+*****
+
+####  moeblack  
+##### 773#         楼主| 发表于 2025-1-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308414&amp;ptid=2243718" target="_blank">小止 发表于 2025-1-30 10:48</a>
+
+酒馆AI响应配置里有个展示思维链
+
+当然并非发癫，而是一本正经的思维过程，最后输出一个发癫的结果，就。 ...</blockquote>
+酒馆更新了？
+
+
+*****
+
+####  小止  
+##### 774#       发表于 2025-1-30 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308418&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-30 10:49</a>
+
+酒馆更新了？</blockquote>
+staging可以用deepseek-reasoner
+
