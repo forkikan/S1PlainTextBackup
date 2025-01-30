@@ -2580,3 +2580,14 @@ s1婆罗门还看b站评分我也是绷不住的</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  huxiaopao163  
+##### 15026#       发表于 2025-1-31 07:29
+
+祥子要是下集在小睦家门口下跪，肯定要挨莫老师臭骂吧。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+“你还有脸来，当初说什么想要睦回来，现在好了彻底回不来了，都怪你都怪你。我当时就说不要解散不要解散，你们非不听。哭，哭就能让小睦回来吗？赶紧滚开，不想在看见你了。”
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
