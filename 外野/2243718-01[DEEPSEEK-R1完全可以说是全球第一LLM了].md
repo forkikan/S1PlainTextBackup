@@ -10179,3 +10179,11 @@ gpt，小克，gemini的聊天都用过，之前看人评论也很认可，就�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  阿刚  
+##### 768#       发表于 2025-1-30 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这逼ai就是个性压抑的疯子，他给我列了一大堆风格蒸馏的要求自信满满的保证可以完美重现风格，我给他之后他后续内容癫的我都怀疑是我出问题了
+

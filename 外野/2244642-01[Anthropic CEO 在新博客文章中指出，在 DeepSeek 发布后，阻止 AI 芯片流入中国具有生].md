@@ -478,3 +478,70 @@ AGI带来最直接的特点就是每一名员工都有和自己差不多或更�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qratosones1337  
+##### 45#       发表于 2025-1-30 10:18
+
+过几年一带一路国家的数据中心里全都是部署了R1的Altas800I服务器
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  obiy  
+##### 46#       发表于 2025-1-30 10:21
+
+<blockquote>鱼丈人 发表于 2025-1-30 07:31
+赢学是昂撒美国的国本，
+
+像老中一样自我反思、自我打压压抑、长年低调努力然后最终迎头赶上的老中日常故 ...</blockquote>
+美国不是靠移民么，大把人等着吃现成的哪会和美国一起努力
+
+*****
+
+####  枯风瘦雪  
+##### 47#       发表于 2025-1-30 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308190&amp;ptid=2244642" target="_blank">静滞场 发表于 2025-1-30 10:13</a>
+我总觉得方向性上有问题，朝这个方向走可能100年也搞不出agi
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+按数据消耗速度来说，当前技术路线的上限已经不远了，看到底能不能匹配他们预期的AGi吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  宏.  
+##### 48#       发表于 2025-1-30 10:24
+
+<blockquote>Alce79 发表于 2025-1-30 07:59
+他们要的agi可比阿尔法狗要离谱得多，首先机器全自动、忠诚僚机全自动、科研全自动
+
+AGi是能解决所有问题 ...</blockquote>
+
+“你不觉得”不是个有意义的理由，就像alphaGo显然算不完围棋的变化一样，但这不代表李世石就能算得完
+
+显然人类智能是个有限的玩意，那么没有理由AGI也是有限的，但是不能仍然比人类强的多，也没道理AGI就不能自行迭代
+
+*****
+
+####  hujingjing  
+##### 49#       发表于 2025-1-30 10:24
+
+看来这帮精英是真破防了，上蹿下跳的，退一万步，这帮逼搞出所谓科幻片一样的agi，那他妈危险的不是美国吗，真ai分分钟统治人类吧，真当有智能后会被科幻小说机器人三定律这种虚拟的东西管住吧，结果就是终结者世界线？美国彻底被ai控制，东大靠工业能力苟成人类最后的堡垒，那么t800，t1000在路上了吧，没有就是这些都不会发生，乐
+
+*****
+
+####  Jasherb  
+##### 50#       发表于 2025-1-30 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307747&amp;ptid=2244642" target="_blank">mimighost 发表于 2025-1-30 07:42</a>
+赞同
+
+我觉得基本下一个o系列的版本就是所谓的agi了，已经没有benchmark可以供他刷了 ...</blockquote>
+结合前几天刚爆出的closeai在基准测试里作弊的新闻，你要真心这么认为就有点难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
