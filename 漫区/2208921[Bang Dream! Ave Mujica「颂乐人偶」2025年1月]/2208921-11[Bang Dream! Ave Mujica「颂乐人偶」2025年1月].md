@@ -1689,3 +1689,133 @@ soyo：我反对
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  thisisaspider  
+##### 14950#       发表于 2025-1-31 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316828&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-31 02:48</a>
+
+追番本该是快乐的，享受对未知的期待和意料之外的惊喜
+
+那些假药入脑的、自顾自脑内补完13集剧本然后正片 ...</blockquote>
+上网不教人心态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 14951#       发表于 2025-1-31 02:58
+
+<blockquote>南条一间 发表于 2025-1-31 02:56
+只是理念不和导致乐队解散搞得和仇人一样见面话都不愿意多说两句，另外睦头精神状态崩了一个月，前队友不熟 ...</blockquote>
+现在祥子抑郁症症状太明显了，我完全觉得🦄就是按照抑郁症症状描写的。一个特征就是对外界漠不关心。
+
+*****
+
+####  Lyzers  
+##### 14952#       发表于 2025-1-31 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316835&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 02:50</a>
+
+啊 ? 可确实不是krkrdkdk啊，祥子从春日影开始心理状态就很不健康了，这不就是番剧里所表现的吗，从她招 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">楼里前面早有人说了，每次滑坡就顶着个龇牙嘴还真当自己纯良了是吧
+
+*****
+
+####  ggxx001  
+##### 14953#       发表于 2025-1-31 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316767&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-31 02:35</a>
+准确来说祥子只欠睦，不欠莫，而祥子搞成现在这个彻底自暴自弃的样子，莫还得背锅 ...</blockquote>
+你的意思是莫/睦还得补偿祥？莫睦无论是不是双重人格都是一个“人” 幼驯染成这样不闻不问 还觉得莫/睦亏欠的 真是粉随正主满脑子只有自己呢
+
+*****
+
+####  天空塔书记官  
+##### 14954#       发表于 2025-1-31 03:00
+
+我的观点是祥子选择去陪牢爹是正确的，而且并没有看出被编剧否定的倾向，而且这集的几个细节，被收起来的茶杯，以及祥爸在窗户后看着祥子离开的镜头，都表明祥子的努力没有白费，牢爹已经改变
+
+而且我认为祥子并非不能脱离丰川家，现在老登的形象也不能说有多正面，之后甚至说不定会有爆了的戏码，怎么就成否定祥子的一切了呢，这不是肯定了祥子积极的一面吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 14955#       发表于 2025-1-31 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316864&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 03:00</a>
+楼里前面早有人说了，每次滑坡就顶着个龇牙嘴还真当自己纯良了是吧</blockquote>
+那你倒是先说我怎么滑坡了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Renes  
+##### 14956#       发表于 2025-1-31 03:02
+
+大祥的问题就是，她创作能力强在现实商业乐队很重要，但在少女乐队世界里其实没那么重要。反过来说她没团魂没目标人际一坨管理能力一坨的缺点，在少女乐队世界里很重要，但在现实商业乐队至少不如才能重要。
+
+大喵同理，如果是少女乐队逻辑，不考虑睦炸这个需要未卜先知的事情，当时摘面具其实没有多大事，只是5人关系性的必要一环。但放到现实商业乐队，这就是重罪。
+
+这就是目前很多争吵的矛盾之处，也反应了这集评分两极分化的区别，忽略前四集，那这集细腻的感情描写是好的，但忘不掉前四集，在看到5分钟不唱歌结束的解散live却没人炎上，丰川家大手兜底后，就很容易对后面的内容出脑。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  thisisaspider  
+##### 14957#       发表于 2025-1-31 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316847&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 02:54</a>
+
+一，这还是没回答我什么越过不越过的问题，大祥老师是同辈首先不用说了根本无权对睦头去什么地方有实质限 ...</blockquote>
+CPART最好是wsd炒作，然后第6集补一下。不然难得有人性的一集就要被CPART毁了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 14958#       发表于 2025-1-31 03:07
+
+<blockquote>江口夕 发表于 2025-1-31 02:53
+不会支持的，大祥照顾牢爹还被当过家家。真继承不管牢爹了才是人设崩塌，很明显，很多人直接帮祥子选择了 ...</blockquote>
+主要是祥子把母鸡卡的责任转给老登了，对赌协议目前是没有的，风险是自己承担不了的，老登是关心祥子的，在客观上祥子的觉悟都是建立在老登愿意给钱和托底的前提下，让人疑惑你都能直接要老登钱了那之前那么苦是为了啥，最后回老家更是在没苦硬吃的坟上添一捧土。我实在是想不到后面能怎么写可以扭转这个印象
+
+*****
+
+####  天空塔书记官  
+##### 14959#       发表于 2025-1-31 03:07
+
+祥子之前解救过灯，也许她自己都没有察觉到自己对灯来说有多重要，那现在灯能冲出来甚至会追到大宅里，不就是对祥子过去影响的正面反馈吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 14960#       发表于 2025-1-31 03:07
+
+<blockquote>Lyzers 发表于 2025-1-31 02:54
+一，这还是没回答我什么越过不越过的问题，大祥老师是同辈首先不用说了根本无权对睦头去什么地方有实质限 ...</blockquote>
+所以大祥青梅竹马不关心你作为一个更不熟的人关心是干嘛呢？大祥又不是不在现场，睦又不是没有被送回家。从来没有关系不那么亲近的人要替关系更亲近的人处理事情的说法的，甚至说难听点你拿着精神问题把睦头送进医院，说不定要被她父母记恨的，更何况动机都没有。
+
+所以大祥青梅竹马不关心你作为一个更不熟的人关心是干嘛呢？大祥又不是不在现场，睦又不是没有被送回家。从来没有关系不那么亲近的人要替关系更亲近的人处理事情的说法的，甚至说难听点你拿着精神问题把睦头送进医院，说不定要被她父母记恨的，更何况动机都没有。
+
+这集都说了是解散宣言还live，其他三个人视角可能觉得睦头只是闹别扭或者夺权并不想真解散的结果导致解散了那肯定是发泄情绪咯，甚至喵梦可能觉得“演的真好”。
+

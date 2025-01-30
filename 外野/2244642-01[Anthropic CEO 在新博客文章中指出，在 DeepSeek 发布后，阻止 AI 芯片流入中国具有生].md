@@ -1503,3 +1503,15 @@ cloaseai喷ds偷模型训练被喷出shi了，原来ds在美国网友网友眼�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">量子计算机闹钟布局得甚至比大模型早，而且有不同的路线和团队。真拉出来不知道是谁灭谁的神器
 话说去年拿了科技进步奖的那个清华薛副校长就是其中一条路线的关键人物
 
+
+*****
+
+####  WindBlade  
+##### 143#       发表于 2025-1-31 03:01
+
+<blockquote>Asukalangley33 发表于 2025-1-30 10:45
+说实话，我觉得牢马提的殖民火星，比现在硅谷认为的“真正”agi更有可行性一些
+
+而且能去火星是真能解决地球 ...</blockquote>
+火星上又没有原住民给他们剥头皮抢地皮，开荒建设是赔本的啊
+
