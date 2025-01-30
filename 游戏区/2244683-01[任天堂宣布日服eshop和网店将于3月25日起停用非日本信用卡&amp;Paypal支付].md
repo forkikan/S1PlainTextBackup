@@ -980,3 +980,25 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 
 日服一直是充点卡买东西，好像没啥影响
 
+
+*****
+
+####  oi99o  
+##### 104#         楼主| 发表于 2025-1-30 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311369&amp;ptid=2244683" target="_blank">ParadiseMartyr 发表于 2025-1-30 18:04</a>
+日亚买点卡听说有延迟，得等几个小时才会扣款发码</blockquote>
+行吧，那看来我这边是能买的了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  魔法师lain  
+##### 105#       发表于 2025-1-30 18:16
+
+偶一直用日服paypal，因为当时用北美信用卡，现在paypal内是国内信用卡，是否没影响？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

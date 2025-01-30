@@ -10953,3 +10953,35 @@ DeepSeek R1 现已在 Azure AI Foundry 和 GitHub 的模型目录中上线，加
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 有啥明显不同的问题吗，我用了一个晚上来着。
 
+
+*****
+
+####  moeblack  
+##### 837#         楼主| 发表于 2025-1-30 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311224&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-1-30 17:43</a>
+有啥明显不同的问题吗，我用了一个晚上来着。</blockquote>
+一个憋得像贴吧绿牌
+<img src="https://p.sda1.dev/21/9329d08b8f5a06a08fb3a78e3c8c3426/image.jpg" referrerpolicy="no-referrer">
+一个从容的像贴吧黄牌<img src="https://p.sda1.dev/21/276336293f77c322cad573942f05261a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lorraine_Kinney  
+##### 838#       发表于 2025-1-30 18:14
+
+最近公众号抽风给我推了个行将就木的老登，李未熟，批斗不懂的野鸡学校教授在那锐评ds，蒸馏估计是29号当天看评论区才知道的词，之前还挺乌以真的抽象
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还有就是抽象史学一级教授辛德勇，不知道哪个好事的给他发了DS评价他的回答，还是比较常规的，辛神觉得是一堆废话，DS就是爱国单品，应该没给他看锐评版，发了估计今天就没有心情跟自己的基友晒玉足照了
+
+*****
+
+####  妄想中毒  
+##### 839#       发表于 2025-1-30 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311125&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-30 17:24</a>
+
+啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。</blockquote>
+我说的是第三方中转网站，这类网站会提供各种大语言模型的中转接口给用户使用
+

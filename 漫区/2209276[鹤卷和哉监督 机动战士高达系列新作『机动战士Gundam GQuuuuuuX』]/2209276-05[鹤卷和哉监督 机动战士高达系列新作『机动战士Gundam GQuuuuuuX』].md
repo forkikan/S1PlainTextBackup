@@ -2489,3 +2489,14 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 
 不是11集就算成功。
 
+
+*****
+
+####  王留美  
+##### 6122#       发表于 2025-1-30 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311159&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-30 17:29</a>
+ 其实之前根据商品展开时间和ntv开新档的流言就差不多能确定是四月了。现在仍不确定的是长度吧，ntv新番印象 ...</blockquote>
+开哪个档？
+NTV对G9这么有信心吗？
+

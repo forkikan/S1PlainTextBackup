@@ -4540,3 +4540,77 @@ VOICE Febri杂志AveMujica部分
 
 邦邦之前商业化的几个团基本都讨论过商业与音乐理念的冲突和调和，包饺子经验十分丰富，不如说母鸡卡是目前设定上商业最成功但是剧情上商业化气息最薄弱的（或者说大人介入最少的）。比如pp的剧情一种定番发展就是，成员有什么私下约定时，突然工作电话来了，立马放下约定跑去工作。R和RAS也是要在主线里和大人的世界大量接触与对抗与合作。
 
+
+*****
+
+####  天空塔书记官  
+##### 13754#       发表于 2025-1-30 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311300&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 17:55</a>
+这点也是令人担心的，迷子的介入太早了，你说6、7集完成春日影，按对称是不是还要引爆另一个伏笔？
+
+然后 ...</blockquote>
+所以说是错误的路线啊，乐队真想商业化发展必然离不开资本的扶持，但矛盾还是会有的，就像pp的狗糟经济公司、R的制作人一样，但很不巧RAS三章主线剧情的最终篇就叫“才华战胜资本的世界”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  烂片雷达  
+##### 13755#       发表于 2025-1-30 18:06
+
+感觉女女关系性动画第五集都有大的，莉可丽丝有听心跳，mygo有爱灯水族馆，水母有亲脸蛋，gbc有泼饮料表白，母鸡卡会有什么呢，有点期待<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 13756#       发表于 2025-1-30 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311389&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-1-30 18:06</a>
+感觉女女关系性动画第五集都有大的，莉可丽丝有听心跳，mygo有爱灯水族馆，水母有亲脸蛋，gbc有泼饮料表白 ...</blockquote>
+爱祥共浴 一起唐笑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 13757#       发表于 2025-1-30 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311357&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 18:02</a>
+
+邦邦之前商业化的几个团基本都讨论过商业与音乐理念的冲突和调和，包饺子经验十分丰富，不如说母鸡卡是目 ...</blockquote>
+理解，我认可写商业和音乐性冲突这个命题不需要任何标准答案，邦邦有自己的理解。 后面只是题外话和剧情讨论没关。
+
+*****
+
+####  天空塔书记官  
+##### 13758#       发表于 2025-1-30 18:10
+
+其实要是真这么写也没啥问题，大不了商战一转家庭伦理剧嘛，此事在星战宇宙亦有记载，长辈和小辈之间又不会真有什么不可调和的矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ads147147  
+##### 13759#       发表于 2025-1-30 18:13
+
+牢爹都丢易拉罐了，还写伐木累不太行吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 13760#       发表于 2025-1-30 18:14
+
+可以让祥子多丢几个易拉罐回去
+
+
+*****
+
+####  山ノ内花音  
+##### 13761#       发表于 2025-1-30 18:14
+
+日本人写女同片 不管当初家庭矛盾有多大 最后都是要尽孝和报恩的
+
