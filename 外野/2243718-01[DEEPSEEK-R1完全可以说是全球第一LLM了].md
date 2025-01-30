@@ -11046,3 +11046,14 @@ https://azure.microsoft.com/en-us/blog/d ...</blockquote>
 最近公众号抽风给我推了个行将就木的老登，李未熟，批斗不懂的野鸡学校教授在那锐评ds，蒸馏估计是29号当天 ...</blockquote>
 D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图
 
+
+*****
+
+####  real_zyf  
+##### 846#       发表于 2025-1-30 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311468&amp;ptid=2243718" target="_blank">妄想中毒 发表于 2025-1-30 18:16</a>
+
+我说的是第三方中转网站，这类网站会提供各种大语言模型的中转接口给用户使用 ...</blockquote>
+这种也可能是自己搭的
+

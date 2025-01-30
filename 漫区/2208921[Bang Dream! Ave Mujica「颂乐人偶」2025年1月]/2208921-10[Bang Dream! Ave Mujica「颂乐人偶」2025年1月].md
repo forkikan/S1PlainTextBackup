@@ -5843,3 +5843,220 @@ https://tieba.baidu.com/p/9452961966?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 —— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
 以乐队少女番来说灯完成了成长，确实比祥强。团魂也是力量之一。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">什么战力厨
 
+
+*****
+
+####  山ノ内花音  
+##### 13881#       发表于 2025-1-30 19:57
+
+祥子应该是抖m 就喜欢被青梅竹马狂抽
+解决了睦的问题之后
+又把初华点爆了
+
+*****
+
+####  wpcc  
+##### 13882#       发表于 2025-1-30 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312165&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-30 19:55</a>
+
+睦问题留不到最后，舅舅之前钦定过最后是初华，而不管场内还是场外都明示了初华藏了个大的，百分百最后boss ...</blockquote>
+一想到初华的雷比双重人格厕妹还要大我就全身战栗 还好我不是初祥cp否则要憋三个月
+
+*****
+
+####  天空塔书记官  
+##### 13883#       发表于 2025-1-30 19:57
+
+论团魂战力，是时候请KSM老祖出山了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 13884#       发表于 2025-1-30 19:58
+
+<blockquote>江口夕 发表于 2025-1-30 19:53
+那得爱音没事，爱音什么时候也来个二重人格，你也得抑郁
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
+那可以參考MyGo第十話
+
+堵門邦到第二人格也燈墜就行
+
+*****
+
+####  akiomn  
+##### 13885#       发表于 2025-1-30 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃，睦是最大的，初华是第二大的
+
+*****
+
+####  thisisaspider  
+##### 13886#       发表于 2025-1-30 19:58
+
+wsd剧透炒作访谈炒作确实给楼友带来了不好的追剧体验。罪大恶极。<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 13887#       发表于 2025-1-30 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312167&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 19:56</a>
+以乐队少女番来说灯完成了成长，确实比祥强。团魂也是力量之一。什么战力厨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">环境都不一样，灯可是温室环境，等灯爸向灯扔啤酒罐子，再死个妈，唯一的从小一起长大的好友疯批了再来谈什么团魂精神力
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  小博禹  
+##### 13888#       发表于 2025-1-30 19:59
+
+不论是睦喜欢手莫喜欢祥还是反过来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">睦头人都难以善终
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  帝下室の年糕  
+##### 13889#       发表于 2025-1-30 19:59
+
+山之内祥子，井之上初华
+
+*****
+
+####  wpcc  
+##### 13890#       发表于 2025-1-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312181&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-30 19:58</a>
+
+wsd剧透炒作访谈炒作确实给楼友带来了不好的追剧体验。罪大恶极。</blockquote>
+没有武士道实锤多重人格我们现在吵的东西都不一样 还在吵是不是多重人格 因为是演还能给木头找补一下
+
+*****
+
+####  JustW  
+##### 13891#       发表于 2025-1-30 20:00
+
+祥子：爹飞舞这个编剧大手分分钟解决，让他振作他就振作，问题主要还是祥子搞母鸡卡的目的还没揭露
+木头：原生家庭必然包饺子，最后就是吉他解决一切
+喵梦：如果不考虑角色塑造的话，问题是最好解决的（毕竟已经当了几集工具人了），追流量追到撞墙上了突然醒悟追求音乐性就行了
+海铃：我估计讲一下过去怎么一步步变成无情打工人的过程，然后立希助攻一下开始承认自己真心想要母鸡卡就可以了
+初华：虽然都说会是最终大boss但最终还是要回到与祥子童年的相遇、自己的私心以及sumimi解散吧，其他假药就太离谱了
+
+
+*****
+
+####  山ノ内花音  
+##### 13892#       发表于 2025-1-30 20:00
+
+现在不是墨喜欢睦 睦喜欢祥吗 感觉最后是墨老师终极牺牲和睦融合的走向<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 13893#       发表于 2025-1-30 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312150&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-30 19:53</a>
+那得爱音没事，爱音什么时候也来个二重人格，你也得抑郁
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
+爱音现在就是个打控制的，帮灯控住目标让灯输出就完事了，灯也不需要管鸡团其他人，她处理好祥子就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 13894#       发表于 2025-1-30 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312170&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-30 19:57</a>
+
+祥子应该是抖m 就喜欢被青梅竹马狂抽
+
+解决了睦的问题之后
+
+又把初华点爆了</blockquote>
+群里有句话是 <blockquote>祥子是那种一天不被打就以为自己是S的M。</blockquote>
+
+*****
+
+####  杂灰  
+##### 13895#       发表于 2025-1-30 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312162&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-1-30 19:55</a>
+在鸡团祥子犯得唯一的错误就是拉这四个人搞乐队。
+
+她把乐队当家是必然存在的。
+
+因为召唤白祥就必须解决清 ...</blockquote>
+白祥的消失其实是春日影的锅（）
+
+*****
+
+####  wpcc  
+##### 13896#       发表于 2025-1-30 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312187&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-30 20:00</a>
+
+祥子：爹飞舞这个编剧大手分分钟解决，让他振作他就振作，问题主要还是祥子搞母鸡卡的目的还没揭露
+
+木头： ...</blockquote>
+祥子搞母鸡卡的目的就是自己爽。高中生还是没有精神独立必然需要一个能获得认同和进步的依靠，所以大象老师一门心思搞乐队成绩，这个就是自我锚定，没有自我锚定的天才包变成疯子的
+
+*****
+
+####  akiomn  
+##### 13897#       发表于 2025-1-30 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫提斯明显工具人了，哪怕不说伤害祥子打破防，拆团这个锅编剧明显要让莫提斯背了，哪怕莫提斯也是不想团炸了的
+
+*****
+
+####  wpcc  
+##### 13898#       发表于 2025-1-30 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312197&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-30 20:01</a>
+
+白祥的消失其实是春日影的锅（）</blockquote>
+没有祥爹进去现在就是库莱西裤传
+
+*****
+
+####  哈曼的YY  
+##### 13899#       发表于 2025-1-30 20:03
+
+今天这么能藏？而且是“居然有这种展开”回 最后剧情不会超出所有人预料吧
+
+*****
+
+####  天空塔书记官  
+##### 13900#       发表于 2025-1-30 20:04
+
+ 本帖最后由 天空塔书记官 于 2025-1-30 20:05 编辑 
+
+其实前期是喵梦、木头、祥子一起写的，而海铃和初华被藏了起来，最后也许还会再拿出一集来包两个团的饺子
+
+戏份编排3+2+5或者3+1+1+5这样，后者第二个1和5位置可以调换，也就是初华和包饺子的部分，变成3+1+5+1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  river瑞文  
+##### 13901#       发表于 2025-1-30 20:04
+
+藏的是章鱼戏水图☺️
+
+*****
+
+####  盐盐盐盐盐  
+##### 13902#       发表于 2025-1-30 20:04
+
+灯现在坚韧特性无敌好吧（
+
+这就是写完成长塑造的主唱核心口牙
+
