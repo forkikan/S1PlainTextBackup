@@ -484,3 +484,22 @@ DS自己团队都没说过什么，你们有必要这么关心人家的黑料吗
 请问女声的旋死是啥???</blockquote>
 arch enemy那种
 
+
+*****
+
+####  Auhah  
+##### 49#       发表于 2025-1-30 10:10
+
+原来都没用过 git 就在这锐评啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  FeteFete  
+##### 50#       发表于 2025-1-30 10:11
+
+<blockquote>whirlpool 发表于 2025-1-29 20:00
+频繁改readme，要么产品经理，要么TL，选一个吧</blockquote>
+不是deepseek的库
+

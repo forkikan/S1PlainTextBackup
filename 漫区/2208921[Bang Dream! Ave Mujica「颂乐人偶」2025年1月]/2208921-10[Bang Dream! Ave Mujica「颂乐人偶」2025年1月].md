@@ -2692,3 +2692,16 @@ Ave Mujica 英文官推：女人与猫
 
 历史上的各种神人例如拿皇拥有数倍于人的精力都是标配，祥子现在只是要熬夜作曲而已和打工战士时期强度比其实是下降的，初华可能有点以己度人再加上墨提斯误导<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 13568#       发表于 2025-1-30 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308041&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-30 09:43</a>
+
+大祥搞母鸡卡之前也是大早上送报纸连轴去学校上学，放学后打零工还一点疲态都没有，只能说16岁高一生真是经 ...</blockquote>
+邦邦世界观最大的超能力不是音乐水平，是时间管理
+
+pareo每天光通勤就至少4小时，同时还要上学，她的一天怕不是有36小时
+

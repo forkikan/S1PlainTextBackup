@@ -70,3 +70,11 @@
 不然玩起来就是一群不知道从哪 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo就算在手游里比 游戏性也太贫瘠了
 
+
+*****
+
+####  DARKGRAY  
+##### 1826#       发表于 2025-1-30 10:11
+
+剪定的世界+不是自社人写于是也不是很严格遵守基础设定，路人玩也没啥大问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
