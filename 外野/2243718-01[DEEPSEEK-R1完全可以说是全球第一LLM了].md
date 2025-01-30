@@ -10341,3 +10341,22 @@ API能用了？这几天都连不上</blockquote>
 昨天22点之后能偶尔出点，24点之后好像好很多了</blockquote>
 感谢通知。确实能用了。先凑合着用吧。
 
+
+*****
+
+####  KioShiMa  
+##### 784#       发表于 2025-1-30 11:46
+
+我这边能用R1出文，但是余额用没了充不了，要洗了
+
+*****
+
+####  qratosones1337  
+##### 785#       发表于 2025-1-30 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308662&amp;ptid=2243718" target="_blank">希德尼娅 发表于 2025-1-30 11:26</a>
+昨天碰到一亲戚坚称chatgpt比ds强，我上不了chatgpt，有没有类似的输出对比啊？ ...</blockquote>
+拿来写个诗写个小说就看出来了，R1断档地强，吊打GPT全家
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

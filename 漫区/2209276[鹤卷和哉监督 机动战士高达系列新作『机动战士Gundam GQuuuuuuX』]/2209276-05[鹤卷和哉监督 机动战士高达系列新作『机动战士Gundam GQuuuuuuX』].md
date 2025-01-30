@@ -2081,3 +2081,50 @@ a赛可谬毕竟造成了所罗门冲击，这应该是吉翁后续无法复现�
 那可是红高达，搞出来泽科诺瓦的东西，吉翁真的要捕捉红高达也是冲着泽科诺瓦去的 ...</blockquote>
 但实际上紫婆知道引发泽克诺瓦是需要"沙仑的玫瑰"的，单单阿尔法塞克缪是做不到的，而且这泽克诺瓦太不稳定了，炸一次红高达就直接消失不见了，作为战略武器估计都不如手电筒。
 
+
+*****
+
+####  0aleph37  
+##### 6079#       发表于 2025-1-30 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67308823&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-1-30 11:46</a>
+
+但实际上紫婆知道引发泽克诺瓦是需要"沙仑的玫瑰"的，单单阿尔法塞克缪是做不到的，而且这泽克诺瓦太不稳 ...</blockquote>
+泽克诺瓦是需要α塞可谬+沙伦玫瑰，那当然是得找到红高达才能进一步研究啊？而且泽克诺瓦也不一定是往武器方向研究吧
+
+*****
+
+####  0aleph37  
+##### 6080#       发表于 2025-1-30 11:53
+
+<img src="https://img.saraba1st.com/forum/202501/30/115306exyl9ej993uxyi3j.jpg" referrerpolicy="no-referrer">
+
+<strong>Gieo2YZW0AEbxcY.jpg</strong> (319.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 11:53 上传
+
+[https://x.com/v1t7t/status/1884660628553687328](https://x.com/v1t7t/status/1884660628553687328)
+
+
+*****
+
+####  kirakira~  
+##### 6081#       发表于 2025-1-30 11:56
+
+<img src="https://img.saraba1st.com/forum/202501/30/115603brm0j0vx22vo7o4f.jpg" referrerpolicy="no-referrer">
+
+<strong>1000014053.jpg</strong> (719.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-30 11:56 上传
+
+*****
+
+####  0aleph37  
+##### 6082#       发表于 2025-1-30 11:57
+
+修司这大敞口背心不伸手进去摸摸简直对不起这设计
+

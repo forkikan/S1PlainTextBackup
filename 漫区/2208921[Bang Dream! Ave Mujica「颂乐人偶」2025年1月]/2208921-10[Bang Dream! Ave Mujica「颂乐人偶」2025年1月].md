@@ -2808,3 +2808,20 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 13579#       发表于 2025-1-30 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以4演1祥子说可以洗洗睡了么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 13580#       发表于 2025-1-30 11:57
+
+现在可以宣布不能在不看mygo的前提之下看avemujica了吧，不然第五话人都不熟。
+
