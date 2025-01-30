@@ -1204,3 +1204,14 @@ appstore日区之前绑过上行jcb然后支付就把我账号锁了，弄了半
 
 2025新游戏里除了异度神剑X，还有啥是值得任亏券买的？
 
+
+*****
+
+####  恶意之刃  
+##### 127#       发表于 2025-1-30 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312316&amp;ptid=2244683" target="_blank">gohouruni 发表于 2025-1-30 20:17</a>
+2025新游戏里除了异度神剑X，还有啥是值得任亏券买的？</blockquote>
+神剑X理论上会是实体性价比高
+宝传ZA下个月底该定档了
+

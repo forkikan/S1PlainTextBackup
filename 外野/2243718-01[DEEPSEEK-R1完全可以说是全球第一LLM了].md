@@ -11106,3 +11106,40 @@ D指导炸出来了一堆古墓派老登真是想让人按150%的比例开图</b
 没人去x上问问他们对于ds遭遇如此大规模攻击，有什么头绪吗？ 总不能是东大自己打自己吧，那么会是谁呢？好 ...</blockquote>
 已经持续超过96小时了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangkaim4  
+##### 852#       发表于 2025-1-30 20:46
+
+<blockquote>精钢魔像 发表于 2025-1-30 20:11
+360那个高速线路，现在改名叫满血deepseek了，还是和本体有差距</blockquote>
+有审核吗？
+
+*****
+
+####  阿刚  
+##### 853#       发表于 2025-1-30 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312500&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-1-30 20:46</a>
+
+有审核吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没审核上不了线的吧
+
+*****
+
+####  RexJax  
+##### 854#       发表于 2025-1-30 20:48
+
+360的高速线路的说话方式也和本体不一样啊，而且说话还颠三倒四，就是字里行间的序列会颠倒，符号乱用，吞字，像是文字语句的尸块没缝好的怪异感
+
+*****
+
+####  gh1023  
+##### 855#       发表于 2025-1-30 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67312478&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-30 20:42</a>
+
+已经持续超过96小时了</blockquote>
+这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？
+
