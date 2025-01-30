@@ -2150,3 +2150,15 @@ go团拯救一切
 
 我很好奇这到底是独角兽被按住了还是没按得住的结果，但是独角兽再怎么女同样板戏路径依赖也不至于到这个地步吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然有甩锅嫌疑但我不得不怀疑是编剧换人了。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 238#       发表于 2025-1-31 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317007&amp;ptid=2244721" target="_blank">ぽんぽこ仮面 发表于 2025-1-31 04:07</a>
+这集纯刻板印象大集合真给我气笑了，感觉像他妈手游编剧能写出来的东西，一集之内能让这么多个人物塑造烂得 ...</blockquote>
+前四集都烂完了，还差这一集？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
