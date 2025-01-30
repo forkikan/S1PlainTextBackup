@@ -78,3 +78,24 @@
 
 剪定的世界+不是自社人写于是也不是很严格遵守基础设定，路人玩也没啥大问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ネロ  
+##### 1827#       发表于 2025-1-30 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67307417&amp;ptid=2112855" target="_blank">zzy516232108 发表于 2025-1-30 01:43</a>
+
+所以这是粉丝游戏吗，还是路人也能玩的那种？</blockquote>
+虽然是粉丝向作品，但没有理解门槛，而且我个人觉得路人反而体验更好些
+
+不然某几个角色带着既定印象去看的话，反而容易看偏
+
+真结局相当有意思，但二周目的过程是折磨的<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+即使在重复剧情自动快进、已选选项有标记的情况下
+
+游戏性方面不过不失吧，虽然理解是贴合设定，但主角的伤害真的刮痧，霸体韧狗满地跑，作为玩家缺乏爽点
+
+还有就是DLC1和2过于敷衍
+

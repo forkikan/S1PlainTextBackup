@@ -10513,3 +10513,27 @@ IT之家 1 月 30 日消息，人工智能正加速向着边缘计算领域发�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zerona  
+##### 800#       发表于 2025-1-30 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310047&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-30 14:23</a>
+
+。目前不开联网搜索的模型已经恢复了，哎呀，舒服了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+晕。看错了。
+
+
+*****
+
+####  深空坍缩  
+##### 801#       发表于 2025-1-30 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67309710&amp;ptid=2243718" target="_blank">zeroboss1 发表于 2025-1-30 13:36</a>
+
+IT之家 1 月 30 日消息，人工智能正加速向着边缘计算领域发展，Copilot+ PC 在其中扮演着重要角色。随着 De ...</blockquote>
+先手一个数据偷窃，后手一个我先用了。<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">突出一个身体诚实
+

@@ -3557,3 +3557,13 @@ nga和mxz透完了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 純粹是編劇懶， 什麼鍋都甩給她
 
+
+*****
+
+####  天空塔书记官  
+##### 13658#       发表于 2025-1-30 14:32
+
+茜的水平不容小觑，RAS的鼓手本体夏芽和蝶团Morfonica的鼓手二叶筑紫的本体教练mika更加不是简单角色，实际上邦的大部分鼓手代演都是被她们两个承包了，尤其是夏芽，声优团的现场演出鼓手位基本都是她，因为RAS前身就是作为声优团的幕后演出支持而存在的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
