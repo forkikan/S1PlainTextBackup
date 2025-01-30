@@ -2151,3 +2151,73 @@ CPART最好是wsd炒作，然后第6集补一下。不然难得有人性的一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">祥子这炸团苦难完全是人造的苦难，哪怕换个正常点的鼓手，至少“不会破坏ave mujica的世界观”，这个过家家还能维持很久。编剧的大手让喵梦摘面具，然后引发睦的爆炸，然后引发炸团，真的让人很不舒服，有一种生造的苦难感…
 
+
+*****
+
+####  thisisaspider  
+##### 14987#       发表于 2025-1-31 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316953&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 03:33</a>
+
+上车我觉得也可以说是拿人嘴软，都帮你付违约金了还回去就有点太不知好歹了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+仔细看的话，祥子震惊，可能之前不知道老登赔了，甚至可以补她是想自己有钱后赔付。
+
+编剧最通人性的一集。
+
+*****
+
+####  Lyzers  
+##### 14988#       发表于 2025-1-31 03:40
+
+ 本帖最后由 Lyzers 于 2025-1-31 03:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316944&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 03:26</a>
+
+有人考试失败，或者项目失败或者被公司辞退发泄情绪嚎了一嗓子，然后你就把人抓进精神病院了？
+
+我才是无 ...</blockquote>
+哦对，还要再补一个，这还是还是没有说越权的问题，一定要按亲近程度来给行为做允许，那首先mygo这个故事就展开不了，大部份的关键故事节点都能一句“我跟你熟吗？关我屁事”来结束
+
+*****
+
+####  单脚着地  
+##### 14989#       发表于 2025-1-31 03:41
+
+mujica有什么重建的必要吗？这几个人既没有志同道合的理念和抱负，又没有合拍的性格和深厚的羁绊。强行在一起的意义是什么？证明这五个人谁也没错？
+
+
+*****
+
+####  ParadiseMartyr  
+##### 14990#       发表于 2025-1-31 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316966&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-1-31 03:41</a>
+mujica有什么重建的必要吗？这几个人既没有志同道合的理念和抱负，又没有合拍的性格和深厚的羁绊。强行在一 ...</blockquote>
+可以这么玩，我们戴上面具是ave mujica，摘下面具我们是mygo新成员，sumimi成员，综艺节目选手，这样如何?我觉得太棒了，喜欢讲商业就他妈商业到底啊
+
+*****
+
+####  thisisaspider  
+##### 14991#       发表于 2025-1-31 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316958&amp;ptid=2208921" target="_blank">ParadiseMartyr 发表于 2025-1-31 03:37</a>
+
+祥子这炸团苦难完全是人造的苦难，哪怕换个正常点的鼓手，至少“不会破坏ave mujica的世界观”，这个过家家 ...</blockquote>
+都是队友，又不能换。最后和和美美进卡池就行。乐队就像家庭。成员要谈恋爱。开live音趴。
+
+编剧有大手，但祥子和其他成员问题都有。前四集如果后面没有新情报。定性大祥过家家好了，我同意大祥全责。
+
+*****
+
+####  ParadiseMartyr  
+##### 14992#       发表于 2025-1-31 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316968&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-1-31 03:44</a>
+都是队友，又不能换。最后和和美美进卡池就行。乐队就像家庭。成员要谈恋爱。开live音趴。
+
+编剧有大手， ...</blockquote>
+可以是戴上面具是商业团ave mujica，摘下面具是mygo键盘手和新吉他手和影之贝斯手，sumimi成员，综艺节目艺人。喜欢商业就TM商业到底啊！喜欢塑料就TM塑料到底。还能cp乱炖一鱼二吃呢，让wsd大赚特赚吖!
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
