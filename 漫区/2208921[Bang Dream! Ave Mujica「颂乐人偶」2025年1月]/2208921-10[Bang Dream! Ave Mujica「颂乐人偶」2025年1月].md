@@ -13131,3 +13131,328 @@ y1s1，日本那种综艺通告艺人其实也算不上什么好差事</blockquo
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 14637#       发表于 2025-1-31 00:36
+
+立希你把自己的中之人都逗笑了。
+<img src="https://p.sda1.dev/21/f77a3ba5f658871abf9a577086b668ec/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14638#       发表于 2025-1-31 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315666&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 00:30</a>
+要是真能把外公写成反派也算是邦系列突破了，毕竟之前各种长辈前期扮演恶役后期包饺子的次数已经数不过来 ...</blockquote>
+老登又不是不能洗白，财团对于牢爹的处理也不全是他说了算，毕竟还有董事会，他更多的是默许和冷眼旁观，他作为反派的底层动机也可能是因为失去女儿而对祥子产生的保护欲和控制欲，经典的“不懂爱”的大家长形象，就看之后会不会和老爹和解了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Qing_Qi_2.0  
+##### 14639#       发表于 2025-1-31 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315609&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-1-31 00:25</a>
+
+怎么楼里还有人在纠结精神病问题
+
+那么多少年漫搞人格分裂也不是去医院治的啊
+
+不当成病比较好又不是真写实动 ...</blockquote>
+当然会纠结精神病问题，剧中初华已经明确的把双重人格这一点提出来了
+
+说明这个世界就收有精神疾病存在的世界
+
+要真想写亚撒西的世界就不应该写大祥老师为了生计当客服这么写实感的剧情
+
+不能只在写实对作者有利的时候才强调这是写实动画
+
+*****
+
+####  岬开斗  
+##### 14640#       发表于 2025-1-31 00:36
+
+<blockquote>Lyzers 发表于 2025-1-31 00:35
+这故事还不够一团乱麻吗还想着写姥爷</blockquote>
+乐队对抗财团，一转辉夜大小姐。
+
+
+*****
+
+####  thisisaspider  
+##### 14641#       发表于 2025-1-31 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315672&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 00:30</a>
+
+所以大祥老师在emo了一个天降青梅，弄疯了一个青梅后，到底拯救了什么？第一集就和自己要拯救的父亲切割 ...</blockquote>
+说完观点就跑是吧，我觉得你才幽默。我说离家出走问题，你说其他幼驯染问题，顾左右而言它。我说大祥老师其他部分打的有问题，你说我找补。把编剧对祥子离家决绝的正面描写当成负面的，我只能你更看不懂剧本。扯民政局和妇联更是笑话，这东西编剧想不写就不写。
+
+话已至此，不多说了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 14642#       发表于 2025-1-31 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314829&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-30 23:31</a>
+
+说实话，这集的观感明显好于前四集，但也成功彰显了前四集（尤其是ep4）实际上有多么抽象。
+
+所以独角兽大 ...</blockquote>
+这集老登的出场相当于给前四集定了性：大小姐过家家闹麻了……
+
+*****
+
+####  一心而用  
+##### 14643#       发表于 2025-1-31 00:37
+
+没有爱音你们怎么办？
+<img src="https://p.sda1.dev/21/5d5f851f04115a1b3e2414d1a5ae0c95/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 14644#       发表于 2025-1-31 00:37
+
+乐完了，怎么鸡动画还能把狗弄解散的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 14645#       发表于 2025-1-31 00:38
+
+顺便这图果然是预言了。<img src="https://p.sda1.dev/21/5ace945c3a47f373cd6fd631bf452d4b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kirimori  
+##### 14646#       发表于 2025-1-31 00:38
+
+话说这集初华独白还是在前半说的，后半加入go团视角后就没独白了，前几集mujika视角初华诡叙说还没有破产
+
+*****
+
+####  天空塔书记官  
+##### 14647#       发表于 2025-1-31 00:39
+
+迷子没散啊，乐队成员又没有什么内部矛盾，分头行动也是bang的老传统了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  icoywt  
+##### 14648#       发表于 2025-1-31 00:39
+
+主要问题是母鸡卡这5个人是直到现在都没有一点人情味，祥子一直在逃避，初华只想着祥子，海玲的职业距离感太强，键帽更是只想着自己的事业，睦头的状态其他人发现了吗？别人不讲，海玲跟初华肯定发现了，但他们的选择就是不插手，最后睦头炸了出第二人格，祥子不管不说，其他人看到解散时候睦姐状态那么差一个月也不带关怀一句的，真的挺神人的
+
+*****
+
+####  Qing_Qi_2.0  
+##### 14649#       发表于 2025-1-31 00:40
+
+question
+
+为什么这么初华迷恋大祥老师，即使发现大祥变了还是恋恋不舍？
+
+又为什么不喜欢甜甜圈女士呢？
+
+*****
+
+####  天空塔书记官  
+##### 14650#       发表于 2025-1-31 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315760&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-1-31 00:40</a>
+question
+
+为什么这么初华迷恋大祥老师，即使发现大祥变了还是恋恋不舍？
+
+又为什么不喜欢甜甜圈女士呢？ ...</blockquote>
+白月光
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 14651#       发表于 2025-1-31 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315755&amp;ptid=2208921" target="_blank">icoywt 发表于 2025-1-31 00:39</a>
+
+主要问题是母鸡卡这5个人是直到现在都没有一点人情味，祥子一直在逃避，初华只想着祥子，海玲的职业距离感 ...</blockquote>
+因为第二人格还能活一个月 祥子天天去哭提早哭回来就没得演了
+
+*****
+
+####  古明地雷  
+##### 14652#       发表于 2025-1-31 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315672&amp;ptid=2208921" target="_blank">takerest 发表于 2025-1-31 00:30</a>
+所以大祥老师在emo了一个天降青梅，弄疯了一个青梅后，到底拯救了什么？第一集就和自己要拯救的父亲切割 ...</blockquote>
+你这是结果论，她没有做好，跟她选择去做并且努力做了又不冲突
+
+*****
+
+####  ads147147  
+##### 14653#       发表于 2025-1-31 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315716&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 00:35</a>
+虽然我也不知道是哪一款迈巴赫</blockquote>
+感谢制作组体恤我们这些穷人没见过磁吸门还加了关门音
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 14654#       发表于 2025-1-31 00:42
+
+立希在上一部我还觉得她只是对灯的艺术创作产生共鸣因而着迷，这部怎么感觉已经变成馋灯身子了
+
+
+*****
+
+####  weige  
+##### 14655#       发表于 2025-1-31 00:42
+
+mygo团还是有两位对c团念念不忘的，祥子和大莫老师短暂加入让她们几个还个心愿，然后祥子再重新组mujica包饺子的可能性最大
+
+*****
+
+####  plok201  
+##### 14656#       发表于 2025-1-31 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道还以为是mygo第五集投票呢，刚好也是爱音灯上大分的一集
+
+*****
+
+####  Lyzers  
+##### 14657#       发表于 2025-1-31 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315730&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-31 00:36</a>
+
+乐队对抗财团，一转辉夜大小姐。</blockquote>
+我本来想说辉夜的，但一是我没看到辉夜的财团篇，二是鸡团现在的故事在我看来已经比高中生大战财团还离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 14658#       发表于 2025-1-31 00:43
+
+<blockquote>Qing_Qi_2.0 发表于 2025-1-31 00:40
+question
+
+为什么这么初华迷恋大祥老师，即使发现大祥变了还是恋恋不舍？
+
+又为什么不喜欢甜甜圈女士呢？ ...</blockquote>
+膚淺一點是臉
+
+假藥一點是家產
+
+*****
+
+####  ads147147  
+##### 14659#       发表于 2025-1-31 00:43
+
+可能初华真的是蜘蛛侠吧，帕克真的很纯爱的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 14660#       发表于 2025-1-31 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315760&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-1-31 00:40</a>
+question
+
+为什么这么初华迷恋大祥老师，即使发现大祥变了还是恋恋不舍？
+
+又为什么不喜欢甜甜圈女士呢？ ...</blockquote>
+答案是你小时候特别想吃麦当劳但却没吃上，长大有钱后什么山珍海味都吃过也还是容易在麦当劳把肚子吃撑坏
+
+*****
+
+####  风道北来  
+##### 14661#       发表于 2025-1-31 00:44
+
+祥爹不是大问题。
+
+中年男人失业后出现心理问题在知乎一搜一大把。祥爹警局家里两点一线已经算比较好养的了233。
+
+祥爹最大的错误是没有把自己定位为父亲，反而有意无意间把自己和女儿在同一层次比较。所以他在发现祥子仍然在前行时产生了不该有的劣等感。
+
+不过这话说起来很卑劣但非常符合人性：一方面，本应是被保护的对象太成熟，导致父女关系紊乱。这很像羽川翼和她那对父母的关系—过于正确的孩子会反过来挤压不够成熟的家长；另一方面，祥子的努力背后也带有强烈的期盼性，而这对于刚被击垮的父亲来说太难承担了。
+
+这里当然不是在指责祥子，只是说人性就是这个样子。
+
+现在祥子离开反而是祥父重新振作的契机。这饺子很好包。
+
+*****
+
+####  莉缇娅  
+##### 14662#       发表于 2025-1-31 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别啊。
+
+现在爱音这形象越来越坐实看的疑似舅舅党的那句话的，“爱音是真的爱着人类”。
+
+能不能不要再少女乐队番里塑造这种角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 14663#       发表于 2025-1-31 00:45
+
+放弃思考还是看得很乐的，圣爱音上篮暴扣大祥，爽姐单刷牢莫误入恐怖片场，下一集能看到gochic7人春日影吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bird-lay  
+##### 14664#       发表于 2025-1-31 00:45
+
+开场就看笑了，这就是上集说的要对得起观众，哪怕提前发个解散公告呢？现场宣布解散还不忘记卖周边啊
+
+然后四个人跑了把睦一个人扔台上<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 14665#       发表于 2025-1-31 00:45
+
+其实单就重组乐队来说，喵梦反倒是最容易的，她现在是在撞南墙的状态里，起码行动力还在，至于其他人就不好说啊
+
+在bang世界行动力是个很重要的指标，很多事件的解决需要主观能动性的参与，就比如爱音和灯<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenganmian  
+##### 14666#       发表于 2025-1-31 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315760&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-1-31 00:40</a>
+question
+
+为什么这么初华迷恋大祥老师，即使发现大祥变了还是恋恋不舍？
+
+又为什么不喜欢甜甜圈女士呢？ ...</blockquote>
+小时候交换过命运吧大概
+甜甜圈就是真昼，对上了
+
+*****
+
+####  sakatta  
+##### 14667#       发表于 2025-1-31 00:46
+
+灯最后说的那句话「バンドやろう」很明显就不是说让她加入自己的乐队
+以灯的电波系和单线程，就是让祥子别放弃母鸡卡，继续搞音乐而已，因为搞音乐组乐队的祥子才是真正的「幸せ」
+

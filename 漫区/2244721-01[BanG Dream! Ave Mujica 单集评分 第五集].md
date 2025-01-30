@@ -1682,3 +1682,35 @@ MyGO动画已经是用一多半时间给C团擦屁股+母鸡卡成员疯狂客�
 
 主角都崩了，换以前评价番剧的风格早就直接负分滚出，现在只能说有些设定是戏外的，所以感觉还能抢救一下。
 
+
+*****
+
+####  新闻工作者  
+##### 192#       发表于 2025-1-31 00:37
+
+已经结束了，圆不回来了
+
+*****
+
+####  华安9527  
+##### 193#       发表于 2025-1-31 00:37
+
+soyo就是所有人的妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 194#       发表于 2025-1-31 00:39
+
+还得是爱音+2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  积木23ki  
+##### 195#       发表于 2025-1-31 00:42
+
+还得是爱音<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
