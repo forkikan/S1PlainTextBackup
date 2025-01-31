@@ -11717,3 +11717,24 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  沙发果冻  
+##### 892#       发表于 2025-1-31 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318631&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-1-31 10:54</a>
+请问有人知道回答了一半突然清除告诉我不支持此类问题回答有没有什么好的解决办法，改为采用本地部署会好点 ...</blockquote>
+最好办法是改用API，但是现在API页面直接进不去了。本地部署其实可以看做是r1的弱智版，差距还是有的
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 893#       发表于 2025-1-31 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318737&amp;ptid=2243718" target="_blank">沙发果冻 发表于 2025-1-31 11:05</a>
+最好办法是改用API，但是现在API页面直接进不去了。本地部署其实可以看做是r1的弱智版，差距还是有的 ...</blockquote>
+好的，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
