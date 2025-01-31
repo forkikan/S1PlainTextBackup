@@ -2717,3 +2717,37 @@ ave的成功肯定不只是资本的大手，这集不就有表现观众对音�
 
 我应该忘记mujica，出去走走等第六第七集。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伞木希美  
+##### 15040#       发表于 2025-1-31 08:17
+
+最后不会是靠债务把大喵老师拴回母鸡卡的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 15041#       发表于 2025-1-31 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317339&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-31 08:10</a>
+问题是是wsd让我们觉得做了不是jk过家家的预期</blockquote>
+所以我说了两边都可以送上，因为本身就可以做两种解读
+最大的原因还是武士道烂炒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dgugvff  
+##### 15042#       发表于 2025-1-31 08:22
+
+如果独角兽马甲是真的，即使是亦花亦叶她都没有去套马甲，这部剧她套了很显然她自己都不满意吧
+
+*****
+
+####  杂灰  
+##### 15043#       发表于 2025-1-31 08:22
+
+倒不如说所有目前所有人都在不知道拿什么理由搞母鸡卡上过于统一反而很安心
+
