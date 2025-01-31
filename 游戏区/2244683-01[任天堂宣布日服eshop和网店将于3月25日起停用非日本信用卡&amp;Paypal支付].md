@@ -1749,3 +1749,23 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 我怎么记得蛮早就不能用了，不过我绑定的visa倒是每年扣会员费没问题，其它的都买不了 ...</blockquote>
 以前是网站不能用，但是Switch得eShop直接扣款可以用。
 
+
+*****
+
+####  wfhtony  
+##### 179#       发表于 2025-2-1 01:05
+
+ 本帖最后由 wfhtony 于 2025-2-1 01:09 编辑 
+
+从目前美区锁PayPal地区的现状（仅美区PP可用）看，届时日区eShop在锁区后走日区PP支付（绑日本境外发行的卡，最好是JCB）应该是能正常支付的。（此处假定到时候日区和目前美区锁支付方式的手法一致）
+<img src="https://tc2.wfhtony.space/images/2025/02/01/e44ea1ac2400330c83685ef6dd1767a3.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/02/01/9d9b7832daab211ba4ecc98a9321fe12.png" referrerpolicy="no-referrer">
+
+（刚刚重新买了个2刀的游戏测试了下，美区PP绑大陆发行的visa卡可以正常绑定+支付）
+
+另外再提一嘴：
+
+幸好老任的eshop对CERO:Z的游戏购买没有太多限制（暂时不像索尼PSN那边锁得那么厉害），eshop用日区PP也可以顺利购买评级为Z级的游戏（测试游戏为《生化奇兵2》和《无限》，这俩都是Z级，且正在打折）。
+
+所以就目前来看，也就买点卡的时候会麻烦些（毕竟没有直接刷卡付款这么方便）。
+
