@@ -56,3 +56,28 @@ yin兽*2
 
 看看配了什么声线吧
 
+
+*****
+
+####  rs5621  
+##### 10732#       发表于 2025-1-30 23:45
+
+颜色对口
+
+*****
+
+####  holofan  
+##### 10733#       发表于 2025-1-31 11:21
+
+<img src="https://img.saraba1st.com/forum/202501/31/112043g9ay7dvco9ibds5g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 11:20 上传
+
+这所谓的线下粉丝见面会果然有live部分，直接明着要求粉丝自带荧光棒进入了
+
+这下没开过sololive和开过的直接格差了
+

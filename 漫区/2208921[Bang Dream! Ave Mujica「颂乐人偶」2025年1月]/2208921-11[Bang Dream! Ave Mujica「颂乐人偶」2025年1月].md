@@ -4806,3 +4806,99 @@ mujica可能要完全沦为平庸之作了，不过与之前的宣发相比平�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  iiiiiiiiii  
+##### 15236#       发表于 2025-1-31 11:19
+
+ 本帖最后由 iiiiiiiiii 于 2025-1-31 11:21 编辑 
+<blockquote>JustW 发表于 2025-1-31 11:11
+你自己的人生你愿意怎么选择都行，全世界那么多赌狗也不缺一两个，但也只是你自己的选择。以及祥子一个高 ...</blockquote>
+
+现实中遇到能给你投钱的大金主就偷着乐吧。按现实逻辑来说，谁给钱谁是爹。TGW势力带你玩，让你当靠山你不得跪舔大爹
+
+*****
+
+####  山ノ内花音  
+##### 15237#       发表于 2025-1-31 11:20
+
+按严肃文学主角来拷打还没本事写出严肃文学的水平是最搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 15238#       发表于 2025-1-31 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318876&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-31 11:19</a>
+现实中遇到能给你投钱的大金主就偷着乐吧</blockquote>
+所以我前面说了第五集一出来祥子本身的意义远远被自己的家族盖过了，不如说第一集揭露背景时搞了一个不上不下留有后路的设定时我就有隐忧了
+
+*****
+
+####  未来起航  
+##### 15239#       发表于 2025-1-31 11:22
+
+大祥这塑造不止是过家家的问题，也不是自私自利的问题。过家家的你别管多长久总归要和和气气一阵子，自私自利的更是要苦心经营一切为了谋利。
+大祥的所有精力都在所谓写剧本写歌上。结果剧本是剧内人（指喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）认定的无聊，歌是压根没放出来。剩下的就是上压力，每天都在自毁长城。观众视角约等于这人每天就是睡大觉，起来live上俩小时班之后就是嘴臭。
+这不是什么黑化弱三分的地步了，这就是废人化<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  怀沙汨罗  
+##### 15240#       发表于 2025-1-31 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318688&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 11:00</a>
+自称是对祥自称，对其他人没有自称过，其他人都是看祥的单方面表述而且不怎么信，大喵就不信全是演技，海 ...</blockquote>
+拜托，麻烦看看解散的场合是什么，你拿当着上万观众鬼叫的精神病队员和主动退团攻击性极强的谜语人🐘类比？
+换个角度，必定复辟的母鸡卡是个什么性质的乐队？是按合同办事大家都是雇佣兵的商业大手子乐队，还是别扭又关系性拉满的校园乐队？观众想看哪种？编剧前半段选择第一种，那在经历如此惨烈的炸团且无关心后该转向哪种？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  JustW  
+##### 15241#       发表于 2025-1-31 11:22
+
+现在就是武士道为了猛猛出圈企划了一个又现实又疯狂的故事并且狠狠炒作，但是制作团队是只有写校园青春故事经验的一帮人，一走出舒适圈就变成这个结果了
+
+*****
+
+####  哈曼的YY  
+##### 15242#       发表于 2025-1-31 11:23
+
+既然卖狗是虚假的光 那下集怕不是会变成击碎大陀螺的最后一击 而不是救赎
+
+毕竟深渊半路 4-6风评下降在舅舅预期
+
+*****
+
+####  wwwttth  
+##### 15243#       发表于 2025-1-31 11:23
+
+<blockquote>Lyzers 发表于 2025-1-31 10:40
+所以就还是这个问题这究竟越过哪一层了。另外这说到核心了，这动画目前有逻辑可言吗？
+
+1，我回了这么多 ...</blockquote>
+很简单，你判定是冷漠现实功利怪的标准太低了，你回再多也得认正常人看到一个星二代的闺蜜和你说这个星二代有双重人格，你的视角下这两人在闹别扭，你会：1，把她直接送精神科看看。2，交给她父母处理。
+
+这和冷漠功利半毛钱关系都没这是正常人的正常逻辑，不如说直接信了她闺蜜的话送精神科的是什么神人。
+
+如果在你眼中，越过她父母直接送精神科才是不冷漠不功利的表现的话，那你也是神人别回我了。
+
+按这个车法可以无限滑坡车mygo，c团倒了一年不是大阳角爱音拉起来都没一个人尝试去关心祥子到底发生了啥？睦头人整整一个月没上学soyo才去看她？
+
+*****
+
+####  fsfs_freeze  
+##### 15244#       发表于 2025-1-31 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317776&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-31 09:21</a>
+现在我真希望ep5里路人评价mujica是过家家这句不仅是戏中的看法，也是wsd对戏外观众看法的预期。
+但后面 ...</blockquote>
+要是wsd觉得只有戏中人物才觉得前5集的mujica是过家家就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
