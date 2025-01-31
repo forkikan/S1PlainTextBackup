@@ -3239,3 +3239,16 @@ JSF的视频明确说了在入港的是佩嘎萨斯级1号舰佩嘎萨斯
 
 2025-1-31 15:08 上传
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6179#       发表于 2025-1-31 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319972&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 13:40</a>
+？
+刚发现索顿不是白色基地(White Base)而是天马(Pegasus)？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">还有RX-78-01不就已经说明分歧比金恩扎古更早吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

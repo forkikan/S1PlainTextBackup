@@ -7452,3 +7452,57 @@ mygo也是无病呻吟女生戏码
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  单脚着地  
+##### 15477#       发表于 2025-1-31 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320626&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 15:05</a></blockquote>
+祥子需要看的不是夏目漱石，她该读尼采<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 15478#       发表于 2025-1-31 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319547&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-1-31 12:47</a>
+在小睦门口跪下，出来的是一脸慌张被吓出来的soyo...</blockquote>
+然后祥子说“欧内该，（小睦）怎么样才能回来，只要我能做的，我什么什么都愿意做”，然后soyo气得一拳揍过去哈哈
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Lyzers  
+##### 15479#       发表于 2025-1-31 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320706&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 15:19</a>
+我逻辑很简单啊没羁绊散伙会后队内有亲属的情况下把前队友晾舞台上再正常不过，你不去怪祥不管不顾青梅竹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">额，你最一开始的论点里不是扭送关进精神病院就是不管不顾不问，我一直说的是去关心一下确认一下，但是结果反而是我非黑即白二元论吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那没团魂就不用关心了的话，那就得回到第一集就在车的问题了，你们鸡团姐几个还搞什么水果点心什么下班夜谈啊，都给我按部就班叫你干嘛就干嘛，你喵梦凭什么搁这离间睦头还给我说什么前途什么的，我关心吗，关我屁事关你屁事
+
+*****
+
+####  frank14  
+##### 15480#       发表于 2025-1-31 15:35
+
+逐渐看不懂你们在吵啥了，问两个本集的细节，看楼里好像没人提到。
+一是开头喵梦单独去找staff说了啥？
+二是提到森美奈美说女儿闭门不出一个月，是否说明父母其实知道睦的状态，可能也叫过医生了？
+
+
+*****
+
+####  ParadiseMartyr  
+##### 15481#       发表于 2025-1-31 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320805&amp;ptid=2208921" target="_blank">frank14 发表于 2025-1-31 15:35</a>
+逐渐看不懂你们在吵啥了，问两个本集的细节，看楼里好像没人提到。
+一是开头喵梦单独去找staff说了啥？
+二 ...</blockquote>
+1.找staff替她安排后续电视台活动(单飞了
+2.也许吧
+
