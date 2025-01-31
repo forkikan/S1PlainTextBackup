@@ -2447,3 +2447,32 @@ go批大脑也升级了? ...</blockquote>
 
 演出节奏比之前四集好不少，就是大祥形象越来越救不回来
 
+
+*****
+
+####  lurenasa  
+##### 266#       发表于 2025-1-31 11:28
+
+不得不+2了，鸡播放前夕把狗补完去看专楼各种凭什么银河战舰就要开翻，凭什么狗团参与鸡团剧情，某不到一个月的乐队闹麻了就姨姥还惦记，某某cp脑补闹麻了独角兽都不提的臭鱼烂虾怎么碰瓷某某cp的味大言论这一集全回旋镖了
+预告的猫睦更是好评<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空气先生  
+##### 267#       发表于 2025-1-31 11:31
+
+泥潭部分鸡批以一己之力把这集抬高到了+2，确实越看越乐吧
+
+*****
+
+####  aptx8285144  
+##### 268#       发表于 2025-1-31 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318335&amp;ptid=2244721" target="_blank">Alicest 发表于 2025-1-31 10:21</a>
+
+对鸡成为出色原创的指望没了，只能以河豚的身份继续看了
+
++0，早点失望戳破面纱也是好事 ...</blockquote>
+我看了看泥潭这投票贴，我不得不说这这么多+2能投出来是看不到或者说装作看不到本身是对前四话彻底否定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
