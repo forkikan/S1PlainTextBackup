@@ -7582,3 +7582,73 @@ mygo也是无病呻吟女生戏码
 从哪个镜头看出来，灯是每天都给祥子的鞋箱贴小纸条的？</blockquote>
 从第二集开始祥子就在捏小纸条了，不过鸡团炸了之后灯的小纸条倒是捏到回自己家才放下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 15489#       发表于 2025-1-31 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320834&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-1-31 15:40</a>
+编剧明显是希望故事线要收束到mygo这边，不然mygo的角色都边缘人了，矛盾和问题也都需要mygo的人来解决，但 ...</blockquote>
+回豪宅也不是轻易不轻易的问题，老登主动帮她赔钱后，她已经没有反对老登的余地了
+
+*****
+
+####  一心而用  
+##### 15490#       发表于 2025-1-31 15:48
+
+<img src="https://p.sda1.dev/21/a629cc2465b288ee186359318af4e390/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 15491#       发表于 2025-1-31 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320718&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 15:20</a>
+
+你是不是分不清什么是现实什么是剧情，先不谈剧情里一个月登上武道馆毫无疑问大祥占一大部分，现实里如果 ...</blockquote>
+你是第几次转进了？
+
+我今天和你报菜名到我自己都觉得无聊了。这儿重新列一下报过的菜名，提示一下我举了多少例子证明剧中AM团纯偶像操作和常规意义上的乐队差了很远——
+
+林俊杰，桃草，PERFUME，宝钢，女仆团，Lovebites，Show-Ya，PRINCESS PRINCESS，小暮阁下，姚安娜，Yoshiki，The Velvet Underground，熊光，老淋淋。
+
+*****
+
+####  黑夜落叶秋天  
+##### 15492#       发表于 2025-1-31 15:51
+
+<blockquote>frank14 发表于 2025-1-31 15:35
+逐渐看不懂你们在吵啥了，问两个本集的细节，看楼里好像没人提到。
+
+一是开头喵梦单独去找staff说了啥？
+
+二 ...</blockquote>
+第一个没人知道 可能要看喵梦闪回了
+
+第二个nga有人扒细节 认为睦一个月没上学只有请假条不太可能。睦妈应该有和校方商量过
+
+
+*****
+
+####  wwwttth  
+##### 15493#       发表于 2025-1-31 15:52
+
+ 本帖最后由 wwwttth 于 2025-1-31 15:54 编辑 
+<blockquote>Lyzers 发表于 2025-1-31 15:34
+额，你最一开始的论点里不是扭送关进精神病院就是不管不顾不问，我一直说的是去关心一下确认一下，但是结 ...</blockquote>
+
+不是你先提的把人拉去看精神科的么？还有你要不自己先脑补下这集要是刚吵完架散伙了散伙完突然去关心了这剧情变成啥样了？敢情大伙还是一个乐团的时候都没那么关心，散了反而开始关心起来了，闹麻了搁那。
+
+另外一起吃点东西就有羁绊更是闹麻了，大喵更是典型，她关注的不是睦而是睦背后的流量和演技天赋，你不会真觉得这是关心吧，我已经无法从祥厨以外理解你的逻辑了，多元原因你好歹先反论掉几条再来说事吧
+
+*****
+
+####  圣血天使  
+##### 15494#       发表于 2025-1-31 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320829&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 15:39</a>
+
+再来说团魂的问题，音乐对于A团众人意味着什么，意味着生命，意味着自我意志的宣泄，神明可以给予人偶以生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">saki组团的是时候不就是以为另外四个都是人偶她是神吗，结果发现除了三角之外剩下仨其实不是很鸟她，她现在就崩了，现在就等go团几个人打助攻看看咋让他们再组起来吧，只能说爱音真累
+

@@ -2681,3 +2681,20 @@ go了半集，+1吧，鸡团这几人的关系啊，真的让人闹麻了
 
 mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示了这不会是一个正向塑造的模式/形象
 
+
+*****
+
+####  一心而用  
+##### 290#       发表于 2025-1-31 15:53
+
+<img src="https://p.sda1.dev/21/5d9191b8221b4a027e5214e0335617b3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 291#       发表于 2025-1-31 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319951&amp;ptid=2244721" target="_blank">矢吹奈子 发表于 2025-1-31 13:37</a>
+才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘</blockquote>
+乌咪铃那句判词确实有点……精准到让人不太舒服。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
