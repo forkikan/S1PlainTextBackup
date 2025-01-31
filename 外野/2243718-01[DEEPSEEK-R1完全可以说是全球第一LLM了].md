@@ -11658,3 +11658,15 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 这种国家安全部门真就过年去了？自家最近的招牌AI尖兵被对岸国家级网络攻击，96小时都没法搞定？ ...</blockquote>
 不计成本的ddos就是很难搞啊
 
+
+*****
+
+####  我家阿喵叫花花  
+##### 887#       发表于 2025-1-31 08:29
+
+ 本帖最后由 我家阿喵叫花花 于 2025-1-31 08:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317328&amp;ptid=2243718" target="_blank">xiaojve 发表于 2025-1-31 08:08</a>
+
+钱应该到账了，现在XSH在高强度黑deepseek</blockquote>
+一点开全是假帐号<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啥地方都有，大多是没发过几条动态甚至是零动态的，目测是僵尸号，头一条还在村里喂鸡，下一条黑DS
+
