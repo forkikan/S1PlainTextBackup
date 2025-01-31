@@ -10876,3 +10876,138 @@ lyy老师的爱素
 
 都直言认为祥子只考虑自己，讨厌祥子了。
 
+
+*****
+
+####  wwwttth  
+##### 15765#       发表于 2025-1-31 21:24
+
+我越发觉得负责脚本里有祥黑和喵蜜的说法是真的了。还好我是肉体厨（）
+
+*****
+
+####  半年  
+##### 15766#       发表于 2025-1-31 21:24
+
+<img src="https://img.saraba1st.com/forum/202501/31/212442sy0raabyh0033jaa.jpg" referrerpolicy="no-referrer">
+
+<strong>GinwjGHbYAIeNA_.jpg</strong> (20.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 21:24 上传
+
+[https://x.com/wuubaiwan/status/1885302407208591386/photo/1](https://x.com/wuubaiwan/status/1885302407208591386/photo/1)
+
+*****
+
+####  死宅真恶心  
+##### 15767#       发表于 2025-1-31 21:25
+
+<img src="https://img.saraba1st.com/forum/202501/31/212354r896gkepilzdqkq9.png" referrerpolicy="no-referrer">
+
+<strong>$AB{4}]7ERRNOEZ59PX%OQ8.png</strong> (166.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 21:23 上传
+
+刚下了本精神障碍诊断与统计，翻出了些有意思的东西
+
+*****
+
+####  厚乳果珍爽  
+##### 15768#       发表于 2025-1-31 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323355&amp;ptid=2208921" target="_blank">aistians 发表于 2025-1-31 21:22</a>
+
+有一说一，睦的第二人格不是石锤睦为了帮祥子才加入母鸡卡，然后快崩溃的时候想找祥子救自己，结果被祥子 ...</blockquote>
+你觉得崩溃的原因是什么？
+
+*****
+
+####  aptx8285144  
+##### 15769#       发表于 2025-1-31 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323324&amp;ptid=2208921" target="_blank">MonPanache 发表于 2025-1-31 21:16</a>
+
+对，大喵从第一集开始给人的观感就一路走低。让一个表面看起来自我中心又市侩功利的人试图拿团队、观众来 ...</blockquote>
+我感觉非常不妙的是，折腾了四集，用各种爆炸一样剧情的表现后，官方还亲手粉碎了大祥的决心，且又引入了圣爱音（连弹幕都在吐槽爱音正常的仿佛不是这个片场的人）和灯来救赎大祥，无论这个时间点能不能成功救赎，自一期以来大祥彻底葬送自己的过去两次，这次失败会是第三次，成功又有一定概率成了go团的”俘虏“，成为对等的人物机会几乎被葬送，如果这是敌我难辨或者大逃亡的战斗片，sf片也就尚可理解，在一个少女音乐番里这么反向打压一个目前没有大罪的主角也算是十分罕见了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花スープ  
+##### 15770#       发表于 2025-1-31 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323370&amp;ptid=2208921" target="_blank">半年 发表于 2025-1-31 21:24</a>
+https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
+兽娘动物园3既视感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 15771#       发表于 2025-1-31 21:28
+
+<blockquote>凉良 发表于 2025-1-31 21:10
+我都不懂为啥这集有那么多车灯的</blockquote>
+代入成男友了唄
+
+如果愛燈是男女朋友關係，
+
+這話的確是挺難的
+
+愛音沖塔幫燈聯絡初戀
+
+燈上來就情緒激動的大叫
+
+主要是動畫燈的正反饋因為篇幅問題不夠多 （手遊補下來就夠了）， 動畫愛音基本上是在兩個鹽對應+兩個只看自己想看的人 中不停靠裝醜角來調節氣氛， 是挺消耗熱情的
+
+
+*****
+
+####  嵇翱u  
+##### 15772#       发表于 2025-1-31 21:31
+
+刷到的日语台词解析
+
+*****
+
+####  半年  
+##### 15773#       发表于 2025-1-31 21:31
+
+<img src="https://img.saraba1st.com/forum/202501/31/213132rfi7r4qi6c4zcigr.jpg" referrerpolicy="no-referrer">
+
+<strong>Gin7TUcW4AA8zEO.jpg</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 21:31 上传
+
+[https://x.com/Raito_Taisha/status/1885314457095516306/photo/1](https://x.com/Raito_Taisha/status/1885314457095516306/photo/1)
+
+*****
+
+####  烂片雷达  
+##### 15774#       发表于 2025-1-31 21:33
+
+小祥除了对不起crychic四个人之外没有对不起任何人，小姑娘之间也没什么解不开的深仇大恨，大家一块在舞台上弹弹琴唱唱歌抱在一起哭成一团再告个别就好了，完了祥子站在舞台中间睦灯素爱希猫在边上鼓掌，おめでとう🎉，这次小祥在舞台上呆到了最后目送老队友一个个离开，再见了，所有的哭啦西哭
+
+*****
+
+####  南宮凝香  
+##### 15775#       发表于 2025-1-31 21:33
+
+按篇幅來說，
+
+第6跟7集也差不多是回一口氣，
+
+讓大家覺得有點希望的時候再狠狠一腳踩下去
+
+考慮到初華跟海鈴也要爆，
+
+接下來兩集是該給祥睦包一層餃子皮了
+
+讓祥子進一步變爛， 這餃子就吃不了了
+

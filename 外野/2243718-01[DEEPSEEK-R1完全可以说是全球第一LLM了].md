@@ -12260,3 +12260,11 @@ CloseAI抄的飞快</blockquote>
 啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。</blockquote>
 啊？啥？我一直以为第三方是中转的api……
 
+
+*****
+
+####  zyf199212  
+##### 938#       发表于 2025-1-31 21:27
+
+总感觉那帮红客就是一帮蹭热度卖课的骗子，360也就是个蹭热度的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
