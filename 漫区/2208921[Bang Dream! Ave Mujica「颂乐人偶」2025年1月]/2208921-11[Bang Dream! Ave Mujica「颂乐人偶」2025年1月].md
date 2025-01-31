@@ -9531,3 +9531,150 @@ mujica遇到的一切风波和问题，祥子最终处理的手段都是顺其�
 
 爱音再去一趟睦头家就是三进大观园了。
 
+
+*****
+
+####  jojonathan  
+##### 15646#       发表于 2025-1-31 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320990&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 16:03</a>
+话说武道馆需要提前多久预定场地啊，这个不到一个月最速武道馆，多半是在出道前就预定了吧。
+
+—— 来自 Xi ...</blockquote>
+一年接受一次申请<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">能不能上看能不能通过老登们的评审 时间好像也是老登定
+
+*****
+
+####  岬开斗  
+##### 15647#       发表于 2025-1-31 18:59
+
+<blockquote>江口夕 发表于 2025-1-31 18:43
+摘面具只摘自己的就完了，脸和数字都有了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2 ...</blockquote>
+但是只摘自己怎么蹭睦头和初华啊。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 15648#       发表于 2025-1-31 18:59
+
+可不可以排一下目前两团10个人的家庭阶级了：
+
+T0：🐘家。财阀级别，有形的大手。
+
+T1：若叶家。演绎明星强强联手，和财阀关系亲密。
+
+T2：soyo家/猫猫家。前者是新富阶层，后者家里能开live house也算有自己的产业。
+
+T3：anon家。上层中产，女儿留学费用打水漂就打水漂了，开进口车。
+
+T4：灯/立希家。标准日式中产。
+
+T5：喵梦家：臭外地的来东京要饭来了，不说孤儿院假药，老家里生一大堆估计经济情况不咋地。
+
+无家庭描写：初华/海铃。初华是地主还是普通岛民未知，海铃毫无家庭描写，但是看着不算穷就是了。
+
+*****
+
+####  南宮凝香  
+##### 15649#       发表于 2025-1-31 19:00
+
+<blockquote>jojonathan 发表于 2025-1-31 18:58
+一年接受一次申请能不能上看能不能通过老登们的评审 时间好像也是老登定 ...</blockquote>
+結論是C團爆了的時候已經申請武道館了
+
+*****
+
+####  岬开斗  
+##### 15650#       发表于 2025-1-31 19:01
+
+<blockquote>qratosones1337 发表于 2025-1-31 18:36
+结果就是双输这个是必然的，但对于大喵来说双输好过单赢，万一后面被踢了那就血本无归了。而且现在看来大 ...</blockquote>
+
+乐，喵梦是冲着双输去的还是自己单赢去的心里没点逼数吗？
+
+*****
+
+####  天空塔书记官  
+##### 15651#       发表于 2025-1-31 19:01
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 19:02 编辑 
+
+类似喵梦的角色不是没有，只不过是在另一领域的作品里，典型美式超级英雄，因为自己任性把团队搞崩，然后在成员遇到危险的时候又出手来救，被所有人原谅，长相帅气、举止轻浮，充满有毒男性气质的回头浪子年轻白男
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 15652#       发表于 2025-1-31 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322335&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 18:53</a>
+
+难怪爱音就像进了大庄园一样（</blockquote>
+细节 美奈美给丰川集团拍过广告
+
+也就是说若叶一家事业的早期都可能是攀附丰川崛起的
+
+*****
+
+####  zhzij111  
+##### 15653#       发表于 2025-1-31 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322331&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 18:53</a>
+是我说祥子没责任，还是你说她在过家家？意思是你觉得没做好等于过家家？ ...</blockquote>
+不是哥们，小祥组的是商业乐队，然后她是这个乐队的组织者兼管理者，这个身份是要担起责任运营好乐队的，结果她还拿女高中生玩同好乐队的思路搞，这不是大小姐过家家是啥啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  NaAgfykp  
+##### 15654#       发表于 2025-1-31 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322298&amp;ptid=2208921" target="_blank">waterstars 发表于 2025-1-31 18:48</a>
+别的讨论我不参与，我只纠正一个表述，祥子家住的那个不是别墅，睦那个才是别墅，Villa。
+
+祥子住的是西洋 ...</blockquote>
+我一直觉得她家有点像沙逊别墅来的，原来算是庄园吗？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天空塔书记官  
+##### 15655#       发表于 2025-1-31 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322390&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-31 19:01</a>
+细节 美奈美给丰川集团拍过广告
+
+也就是说若叶一家事业的早期都可能是攀附丰川崛起的 ...</blockquote>
+从这方面考虑，所谓睦妈和木头的竞争关系实际上是在比和丰川家的亲近程度也说不定，这下老登更像boss了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 15656#       发表于 2025-1-31 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322376&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-1-31 18:59</a>
+
+可不可以排一下目前两团10个人的家庭阶级了：
+
+T0：🐘家。财阀级别，有形的大手。</blockquote>
+其实当初看立希经常送灯回家，我经常想到一个词叫青梅竹马<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（虽然也可以叫隔壁邻居？）
+
+*****
+
+####  古明地雷  
+##### 15657#       发表于 2025-1-31 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322394&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:02</a>
+不是哥们，小祥组的是商业乐队，然后她是这个乐队的组织者兼管理者，这个身份是要担起责任运营好乐队的。 ...</blockquote>
+没做好是能力问题，过家家是态度问题，事实是她不是拿母鸡卡玩票的。而且她在精神上从来都没退路，阴阳她含泪继承家产完全没道理。
+
