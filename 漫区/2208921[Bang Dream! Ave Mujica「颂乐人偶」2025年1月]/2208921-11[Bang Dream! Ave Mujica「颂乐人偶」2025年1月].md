@@ -3289,3 +3289,104 @@ ptsd只是个形容而已，那换个说法睦因为心理问题弹不出来，�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  玖羽  
+##### 15094#       发表于 2025-1-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317974&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-1-31 09:43</a>
+
+能再说一遍那个么
+
+把剩下的人生交给我</blockquote>
+你是不是对这句话有什么误解，这句话和“软弱的我已经死了”一看就是为了后面回旋镖准备的
+
+不需要Mujica开播就应该知道黑祥是个很不正常的状态，又不是半泽直树
+
+*****
+
+####  怀沙汨罗  
+##### 15095#       发表于 2025-1-31 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317930&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 09:39</a>
+别给mortis盖棺定论啊，现在死的不是睦吗。
+
+话说要是睦真的回不来，以后都是mortis了，该怎么给睦的塑造 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的意思是，当编剧选择强调双重人格的疾病属性，却又把团里其他人写成漠不关心时，这群神人还能怎么重新组团呢？从剧本角度，这个设定就是负作用啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  柴突猛进  
+##### 15096#       发表于 2025-1-31 09:48
+
+到第五集了祥子在剧情上依然没有起到推进的作用，祥子现在最缺乏的就是主观能动性和行动力，不知道到第几集编剧才能给祥子做人设回撤了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  operatbig  
+##### 15097#       发表于 2025-1-31 09:50
+
+说不定解散那天工作人员心里都想着:这大小姐终于玩厌了。
+
+
+*****
+
+####  束意行气  
+##### 15098#       发表于 2025-1-31 09:52
+
+我觉得母鸡卡应该拍成大祥传才合理也妥当，但编剧甚至让大祥老师成为正常人都非常困难
+
+*****
+
+####  江口夕  
+##### 15099#       发表于 2025-1-31 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说刺团选择真不错，赢了输了都是自己的。要是像mujica一样商业，哪怕像大祥什么通宵作曲规划给你看了都屁用没有，都可以被理解成资本荫蔽下的过家家罢了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yaneis  
+##### 15100#       发表于 2025-1-31 09:53
+
+<blockquote>柴突猛进 发表于 2025-1-31 09:48
+到第五集了祥子在剧情上依然没有起到推进的作用，祥子现在最缺乏的就是主观能动性和行动力，不知道到第几集 ...</blockquote>
+yysy祥子不是一直在主动推动剧情，往坏的方向推也是推
+
+*****
+
+####  庸necro  
+##### 15101#       发表于 2025-1-31 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317954&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 09:41</a>
+不是我说，为什么有一部分人非得觉得祥子是大女主，不是大女主就写崩了 
+
+就算是大女主也总有低谷吧，这不 ...</blockquote>
+那你给我讲讲按照最恶意推断的，完全是丰川大手保护的丰川祥子到底有什么角色魅力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 15102#       发表于 2025-1-31 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317842&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 09:29</a>
+现在全网声讨大祥我是没想到的，甚至还有让大祥下跪的。真是让人捉鸡的情商和智商。
+
+要是这个月大祥真没去 ...</blockquote>
+我觉得祥子可能会下跪不是我觉得祥子一定做错了什么，而是这也是一种成长：放弃自己的过度自尊，承认自己的不足和需要帮助而不是什么都自己一个人硬抗，讨厌自己→接受自己→重新爱上自己，这才是从低谷爬上来的方法。
+
+*****
+
+####  电波通信  
+##### 15103#       发表于 2025-1-31 09:55
+
+大女主亦有区别，抗压成长型大女主也是大女主，而有些人想看的大女主，准确来说，更应该用凤傲天来形容
+
