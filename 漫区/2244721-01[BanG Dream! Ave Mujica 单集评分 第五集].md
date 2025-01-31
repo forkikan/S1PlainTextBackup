@@ -3017,3 +3017,25 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 绝望的股民：大喵老师拆团是丰川外公指使的吧
 
+
+*****
+
+####  liekong  
+##### 321#       发表于 2025-1-31 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323888&amp;ptid=2244721" target="_blank">Lyzers 发表于 2025-1-31 22:46</a>
+
+问题是怎么包
+
+卖狗包饺子包的好，爱灯素三个人在四五集就已经彼此有具体的关系图了，素食虽然利用狗团但 ...</blockquote>
+当初mygo第9集播完大家也都不知道接下来怎么编，“剩下4集真的够吗”。
+
+结果第10集播完，“还有3集？”
+
+*****
+
+####  maritimus  
+##### 322#       发表于 2025-1-31 23:35
+
+感觉不行了，前4集的假药在看完这一集后如同小丑一般。本来不带脑子看的挺开心的，加上了假药的催眠，感觉现在哪哪都不合理。这一集本身还好，但是连着前四集看就有点受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

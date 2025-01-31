@@ -12356,3 +12356,11 @@ API页面啥时候能开啊，我想买API啊<img src="https://static.saraba1st.
 虽然deepseek开源，但是开发训练数据在deepseek手里啊，目前其他服务商部署的最大的671b的ds还是和官网的ds ...</blockquote>
 360不是只有70b？
 
+
+*****
+
+####  yangkaim4  
+##### 948#       发表于 2025-1-31 23:28
+
+美匪又上班了
+

@@ -3660,3 +3660,30 @@ EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A
 这东西之前的全脑控机独角兽就有相似的设定和表现了</blockquote>
 独角兽是明确有系统接管的
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6208#       发表于 2025-1-31 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324111&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-31 23:17</a>
+比如最近 X上面 高赞的就有这条</blockquote>
+【【中文合集】高达进化EVOLVE-哔哩哔哩】 https://b23.tv/4UAJuk0
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">进化第2话里卡缪写的检讨书还有日文版的呀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  纪寞  
+##### 6209#       发表于 2025-1-31 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324159&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-31 23:25</a>
+
+独角兽是明确有系统接管的</blockquote>
+就是你驾驶员反应不过来机体会先帮你代打一下，但大部分情况都是驾驶员自己操控。
+
+独角兽那个会被杀意增幅只是联邦表面弄新人类驱动，实际在搞猎杀新人类的系统，独角兽原先就是他们为了在UC100年终结新人类的猎杀机体，驾驶员在里面当个零件都可以，所以机体自己会动对全脑控机来说也没啥稀奇的。
+
