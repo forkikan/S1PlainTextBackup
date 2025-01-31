@@ -6426,3 +6426,93 @@ mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能�
 
 这集不是很明显的说了吗，祥子是还不起违约金的，但是丰川祥子可以。靠实力可以上武道馆，但是最速武道馆只需要她是丰川祥子，就算她主观上并没有使用家族的力量，她都不可能只得益于什么音乐性，这才是这集她自我厌恶的原因
 
+
+*****
+
+####  厄神之息  
+##### 15385#       发表于 2025-1-31 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316126&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 01:16</a>
+
+这集让我观感回升的居然是祥子爹（当然也没回升多少，但至少有回升，不像别人在开倒车）
+
+很明显祥子爹在故 ...</blockquote>
+完全不能细想的桥段，真是为了让女儿死心回姥爷家的话，根本解释不了第一集他给祥子发短信告别和祥子飞奔过去他就已经是像喝死了一样的状态。除非你说是老爷给他打电话通知他让他这么干的，那这编剧的白手套也太好用了。
+
+*****
+
+####  ml1642879  
+##### 15386#       发表于 2025-1-31 13:38
+
+想当精神寄托的乐队被自己亲手毁掉，想一手包办的生意乐队状况频出，青梅还在自己面前疯了
+
+一整场证明自己的闹剧落幕，最后责任还是被自己自以为切断了联系的家族兜底
+
+要不是前队友跟上来了还真有可能直接玉玉变成太宰祥，千早爱音你亲手杀死了一位芥川赏得主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 15387#       发表于 2025-1-31 13:38
+
+再说到违约金的问题，祥子敢给，那经济公司就敢要吗，是不是看不起丰川老登啊，给了你们一个陪小姐读书的机会，不好好伺候，不怕老爷秋后算账啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 15388#       发表于 2025-1-31 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个简单，问就是客服公司也是togawa的大手，那两个在大祥老师背后碎碎嘴的女人第二天就因为左脚先进门被辞退了
+
+*****
+
+####  swessia  
+##### 15389#       发表于 2025-1-31 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">已经是编剧的大手形状了
+
+小祥好好调整等你第七集
+
+当然如果第七集也拉了那就判死刑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 15390#       发表于 2025-1-31 13:41
+
+无法脱离丰川家族本身就是编剧的大手给大祥的尊严彻底撕碎的一环啊，自以为帅气的离家出走照顾老爹结果在外公眼里就是闹完了吧给我回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  66367749  
+##### 15391#       发表于 2025-1-31 13:42
+
+希望这番最后不是一出给社交媒体量身定制为爆而爆的闹剧，虽然目前来看已经差之不远了，从第一集开始就不断角色崩坏。说起来亦叶亦花也是这俩导演和剧本吧，以后还是绕着走比较好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 15392#       发表于 2025-1-31 13:44
+
+讲道理，狗团在第十集之前不都是处于没有团魂的情况吗，然后真正讲狗团团魂的内容其实都不到两集，鸡团哪怕按舅舅党说的从7集才开始上升，剩下的集数也够表达出鸡团的团魂吧
+
+*****
+
+####  半年  
+##### 15393#       发表于 2025-1-31 13:44
+
+<img src="https://img.saraba1st.com/forum/202501/31/134425ea6baz8v96v486bx.jpg" referrerpolicy="no-referrer">
+
+<strong>GimTTCbbYAMec2l.jpg</strong> (515.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:44 上传
+
+[https://x.com/Kanon_Takao/status/1885199878466515172/photo/1](https://x.com/Kanon_Takao/status/1885199878466515172/photo/1)
+

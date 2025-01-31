@@ -2969,3 +2969,27 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 6160#       发表于 2025-1-31 13:40
+
+？
+刚发现索顿不是白色基地(White Base)而是天马(Pegasus)？
+
+历史的分歧点比金的扎古故障还要早一点？
+
+
+*****
+
+####  oi99o  
+##### 6161#       发表于 2025-1-31 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319972&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 13:40</a>
+？
+刚发现索顿不是白色基地(White Base)而是天马(Pegasus)？</blockquote>
+天马是级别，白色基地和索顿是舰名，不冲突
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
