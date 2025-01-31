@@ -13023,3 +13023,39 @@ cm里有一句，组乐队就可以变得幸福吗？这句话可能会在下集
 
 就算按你说法，初华还有反转。但睦依旧更适合当皮套人或者说油guan主而不是去搞乐队，毕竟只是想弹吉他。
 
+
+*****
+
+####  Licheus  
+##### 15963#       发表于 2025-2-1 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324968&amp;ptid=2208921" target="_blank">扶桑洛槿 发表于 2025-2-1 02:49</a>
+
+就算按你说法，初华还有反转。但睦依旧更适合当皮套人或者说油guan主而不是去搞乐队，毕竟只是想弹吉他。 ...</blockquote>
+睦头虽然自以为在吉他上寄托了自我（绑上了蝴蝶结），但她是在参与crychic的过程中意识到其实它也并非完全属于自己（蝴蝶结脱落了），现有的自我与他人的相比是不完整的，或者说迷茫的。她的破碎是在这时候开始的。
+
+要是没有参加乐队，她跟mortis间可能还算稳定。那么从哪里跌倒只能从哪里爬起来吧。
+
+*****
+
+####  akiomn  
+##### 15964#       发表于 2025-2-1 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324965&amp;ptid=2208921" target="_blank">Licheus 发表于 2025-2-1 02:47</a>
+啊，玖羽老师之前贴过你管上一个up，正在从零开始非常细致地观看mygo。现在看到第七话就指出祥子是注定失 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很遗憾的在于，注定失去一切是有区别的。一个是命中注定失去一切的悲剧，反抗命运的无能为力。另一个是被编剧狠狠用大手按着头失去一切
+而mujica前五集剧情就是后者，充满了编剧的大手与恶意，而不是剧情逻辑恰当的悲剧命运
+
+
+*****
+
+####  Licheus  
+##### 15965#       发表于 2025-2-1 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324978&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-1 02:59</a>
+
+很遗憾的在于，注定失去一切是有区别的。一个是命中注定失去一切的悲剧，反抗命运的无能为力。另一个是被 ...</blockquote>
+我不是写了吗，这里面至少有一半都是小祥自作自受，换言之是性格悲剧。第一话其实就非常明显了，那会儿网友都在复读键帽键帽的，有人管管祥子那该死的控制欲吗？
+
+觉得这就是“恶意”那也没什么好说的。
+

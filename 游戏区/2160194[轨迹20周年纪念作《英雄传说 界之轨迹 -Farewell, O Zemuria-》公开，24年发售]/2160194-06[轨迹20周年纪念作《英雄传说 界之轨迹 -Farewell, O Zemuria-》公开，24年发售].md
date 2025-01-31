@@ -221,3 +221,11 @@
 
 先打李鬼1熟悉下人物和系统吧，李鬼2可以忽略云过去就行，对主线没有任何实质性推进
 
+
+*****
+
+####  上坂莲华  
+##### 7549#       发表于 2025-2-1 02:57
+
+别慌，我两年前玩的李鬼2，现在也全都忘完了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
