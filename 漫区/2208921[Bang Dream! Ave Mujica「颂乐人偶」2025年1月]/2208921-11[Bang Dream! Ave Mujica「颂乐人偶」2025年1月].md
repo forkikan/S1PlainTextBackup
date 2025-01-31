@@ -10378,3 +10378,93 @@ WSD也从来没藏着掩着好吧，第13集鸡团海报上就已经有丰川家
 握草，这还是我觉得？这么直白的编剧描写你都不认，那还有啥好说的，甚至其中一个的漫画就在这上面没几层 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">对对对我聊了半天差不多80%都在用你的论点，我还要被换着法子人身攻击，完事了反而我是杠精了。你开心就好好吧
 
+
+*****
+
+####  古明地雷  
+##### 15718#       发表于 2025-1-31 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322733&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-1-31 19:53</a>
+不摘睦头和初华的，哪来那么大冲击力？？？从摘面具以后现场观众反应就提现了，睦头被摘什么反响，ob一串 ...</blockquote>
+这都第几集了还在吵这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">摘面具解释权归大祥，现在祥子原来的计划永远没人知道了，这个吵无非就是看屁股
+
+*****
+
+####  oyss  
+##### 15719#       发表于 2025-1-31 20:21
+
+好歹火了一阵子,一点钱都没赚到么?怎么就这么喜欢当客服.
+
+*****
+
+####  swessia  
+##### 15720#       发表于 2025-1-31 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反抗家族后面说不定真会演
+
+尼姑庵舅舅说过，手机没法反白先不提了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 15721#       发表于 2025-1-31 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322875&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-31 20:12</a>
+
+老登这集吩咐手下看好野丫头 如果要回收不会拍什么庭院大逃亡动作戏吧 我草太变态了
+
+还不如打感情牌提老妈 ...</blockquote>
+正经地说，第一话就有一个疑惑，为什么祥子摔门而去，定治就马上知道祥子要离家出走
+
+这一话定治说祥子和她妈一样，照此看，搞不好瑞穗也离家出走过，她跟定治有什么重大冲突，原因大概能猜到
+
+*****
+
+####  玖羽  
+##### 15722#       发表于 2025-1-31 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322960&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-31 20:23</a>
+
+反抗家族后面说不定真会演
+
+尼姑庵舅舅说过，手机没法反白先不提了</blockquote>
+这个问题的根本还是清告从大企业高管瞬间变成赤贫，否则祥子不一定选择照顾他
+
+这过于不合理，如果不是编剧强行写，只能认为是定治剥夺了清告的财产
+
+（这还没提168亿的事）
+
+
+*****
+
+####  terry666  
+##### 15723#       发表于 2025-1-31 20:24
+
+能怎么反抗，写成祥爹其实是被老登设套把168亿自己套走的，然后队友里有老登派来专门拆台的不成？
+
+*****
+
+####  蓮華  
+##### 15724#       发表于 2025-1-31 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322748&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 19:56</a>
+
+那如果主角决定反抗家族呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那先打赢赤坂明啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 15725#       发表于 2025-1-31 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322621&amp;ptid=2208921" target="_blank">plok201 发表于 2025-1-31 19:38</a>
+过家家这个标签又不是说你有能力有觉悟就不是过家家了，只要出问题全靠家里兜底就逃不掉
+
+很多作品都知道 ...</blockquote>
+这个安排是故意的，访谈有提到祥子会知道自己有多依赖丰川家，这也正是她死心的原因：想脱离丰川家，结果到头来失去了除了丰川家的一切。非常悲剧了
+

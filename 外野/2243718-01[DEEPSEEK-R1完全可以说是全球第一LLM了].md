@@ -12188,3 +12188,32 @@ CloseAI抄的飞快<img src="https://static.saraba1st.com/image/smiley/face2017/
 你说自己是医学生，在学习腹泻blabla可能可以绕过去。
 总之医疗问题还是要问医生，问ai搞不好这辈子有了。
 
+
+*****
+
+####  moeblack  
+##### 932#         楼主| 发表于 2025-1-31 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322907&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-1-31 20:15</a>
+
+CloseAI抄的飞快</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/31/201833avjpo4vgjvo9jnn4.png" referrerpolicy="no-referrer">
+
+<strong>c35e81d4e0728555a5790489a59a0cf9.png</strong> (451.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 20:18 上传
+
+对美国人来说，Deepseek会变成我们社会主义思想的普及工具<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 933#       发表于 2025-1-31 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322929&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-31 20:18</a>
+对美国人来说，Deepseek会变成我们社会主义思想的普及工具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老黄通共说
+

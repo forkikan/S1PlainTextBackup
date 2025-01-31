@@ -2899,3 +2899,24 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 狗团到第五集的时候内部的关系性能说的也只有爱灯
 
+
+*****
+
+####  JustW  
+##### 310#       发表于 2025-1-31 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322871&amp;ptid=2244721" target="_blank">Reinhold 发表于 2025-1-31 20:11</a>
+前三集铺得太快，第四集就有点崩了。但第五集绝对是舒适区，还特别是女女关系性。不管是主线灯祥，还是路 ...</blockquote>
+这三个还全是MyGO时期就有的，只能说母鸡卡爆了几集之后重新捡起来了
+
+*****
+
+####  Lyzers  
+##### 311#       发表于 2025-1-31 20:22
+
+ 本帖最后由 Lyzers 于 2025-1-31 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322924&amp;ptid=2244721" target="_blank">刑部姬真可爱 发表于 2025-1-31 20:17</a>
+
+狗团到第五集的时候内部的关系性能说的也只有爱灯</blockquote>
+虽然现在才第五集，但我已经想不到除了白魔法和催眠app pro max以外还能怎么把现在这五个人圆回来了，而且后面还得爆
+
