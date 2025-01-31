@@ -3286,3 +3286,14 @@ JSF的视频明确说了在入港的是佩嘎萨斯级1号舰佩嘎萨斯
 
 2025-1-31 15:37 上传
 
+
+*****
+
+####  王留美  
+##### 6181#       发表于 2025-1-31 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320827&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-31 15:38</a>
+ 大河広行对姨姥的看法</blockquote>
+反正日本那边就在社媒上愿意发表观点的人群来说，越是初钢世代越是喜欢的
+主观感受说不喜欢的我这么多天了大概也就是看到两三个而已
+
