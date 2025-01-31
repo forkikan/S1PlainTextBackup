@@ -12022,3 +12022,134 @@ mygo十集包饺子只要把素食的那点未遂的小心思包进去就完事�
 
 Mujica这边包饺子，要把暴走内部爆破银河战舰的大喵，干啥啥不行跑路第一名的大祥，疯批了的睦莫，至今为止基本纯人机的海初包进去，考虑到后面还要爆，这得把一个佛跳墙包进饺子里
 
+
+*****
+
+####  红楼飞雪  
+##### 15868#       发表于 2025-1-31 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324143&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-1-31 23:22</a>
+
+mygo收回来也是第十集吧</blockquote>
+go真压抑的部分也就两到三集，mujica目前看可能要连着七集高压
+
+而且mujica的沉重程度 严肃程度也不是go能比的
+
+在mygo能通关的情绪流，mujica的观众买不买账绝对是个未知数
+
+比方说mygo在播时大概没那么多人纠结“要是在现实中” “她们为什么不如何如何”
+
+*****
+
+####  山ノ内花音  
+##### 15869#       发表于 2025-1-31 23:37
+
+所以说 
+最简单的写法就是把一部分锅甩到老登身上
+就怕柿本gg太爱老登了 不忍心
+
+*****
+
+####  杂灰  
+##### 15870#       发表于 2025-1-31 23:38
+
+老登这个代替付账然后擅自给祥子行为定性我倒感觉确实算反派役
+
+*****
+
+####  新HGCG  
+##### 15871#       发表于 2025-1-31 23:40
+
+Symbol I：Δ是祥子为了针对喵梦而写的伟大作品吗XD
+
+
+*****
+
+####  南宮凝香  
+##### 15872#       发表于 2025-1-31 23:40
+
+這季能說好祥子為什麼要搞雞團我覺得已經能算超額完成，
+
+要真全員惡人再包餃子那基本不可能安穩落地
+
+*****
+
+####  aptx8285144  
+##### 15873#       发表于 2025-1-31 23:40
+
+睦头家的父母其实也是大问题，这一个月就这么不闻不问？不会是过来看望时候是正常人格，走时莫女士再完美操控吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 15874#       发表于 2025-1-31 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323324&amp;ptid=2208921" target="_blank">MonPanache 发表于 2025-1-31 21:16</a>
+对，大喵从第一集开始给人的观感就一路走低。让一个表面看起来自我中心又市侩功利的人试图拿团队、观众来 ...</blockquote>
+我敢说目前看来，键帽就是a团tokyo anon，是后面a团重组的关键人物<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  08df1258c5ed098  
+##### 15875#       发表于 2025-1-31 23:41
+
+甩锅大人更加完蛋，哪怕后期全体洗白白让少女乐队对抗财阀隔壁gbc也干了然后寄了，而且也弥补不住目前各角色塑造缺失的断层。
+本来睦还算有塑造，结果居然是新角色，简直疯了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  古明地雷  
+##### 15876#       发表于 2025-1-31 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323801&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-31 22:34</a>
+借用隔壁泥楼的话，编剧对于前五集的祥子已经是到了过分的地步了，所以才会对接下来的剧情担忧
+
+回头来审视 ...</blockquote>
+太会说了。说实话祥子不是十全十美但她真的不该承受这一切，母鸡卡解散纯属被编剧恶意针对。事已至此只能希望灾后重建不要太儿戏了，这个一场live真救不回来
+
+*****
+
+####  YF31  
+##### 15877#       发表于 2025-1-31 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324266&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-1-31 23:38</a>
+
+老登这个代替付账然后擅自给祥子行为定性我倒感觉确实算反派役</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要黑mujica举重冠军也别黑这个，真嫌丰川祥子风评还不够差吗，嘴是臭钱是真的给了啊。
+
+*****
+
+####  天空塔书记官  
+##### 15878#       发表于 2025-1-31 23:43
+
+ave目前的问题就是故意做成这样，一切都是为了第七集做的铺垫，至于观众能不能接受，那就是实验和创新必须付出的代价了，还有烂炒
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 15879#       发表于 2025-1-31 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324241&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 23:35</a>
+
+mygo十集包饺子只要把素食的那点未遂的小心思包进去就完事了
+
+Mujica这边包饺子，要把暴走内部爆破银河战舰 ...</blockquote>
+如果不说我都快忘了初华是主唱,C团聚焦音乐且愿意讨论音乐的时间太短，连live都是阴森森的风格，初华作为主唱还需要大戏份（
+
+*****
+
+####  无限舰制  
+##### 15880#       发表于 2025-1-31 23:44
+
+睦妈纯纯大司妈不是被提出过很多次的分析了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+或者说全家可能都有那么点精神异常
+
+精神科经典案例之父母带孩子来看病，先给父母看
+

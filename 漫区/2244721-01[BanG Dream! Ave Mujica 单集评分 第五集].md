@@ -3039,3 +3039,15 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 感觉不行了，前4集的假药在看完这一集后如同小丑一般。本来不带脑子看的挺开心的，加上了假药的催眠，感觉现在哪哪都不合理。这一集本身还好，但是连着前四集看就有点受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 323#       发表于 2025-1-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324201&amp;ptid=2244721" target="_blank">liekong 发表于 2025-1-31 23:31</a>
+当初mygo第9集播完大家也都不知道接下来怎么编，“剩下4集真的够吗”。
+
+结果第10集播完，“还有3集？” ...</blockquote>
+还是那句话，mygo本质小女生闹别扭，跟鸡现在问题的规模完全不一样
+

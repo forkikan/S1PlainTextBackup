@@ -3478,3 +3478,40 @@ eupd死了
 
 2025-1-30 20:34 上传
 
+
+*****
+
+####  月島まりな  
+##### 26906#       发表于 2025-1-31 23:39
+
+2月到了
+<img src="https://p.sda1.dev/21/18da8ee33cff9850c8352d0a62208961/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ac9ae7b97053ae57afcc5dd87dc9cbf0/image.png" referrerpolicy="no-referrer">
+
+---
+
+​官号入驻b站＆新春纪念企划第一弹：🎤LIVE观览会🎸
+
+日程如下：
+
+・2月1日 19:00 🧭 MyGO!!!!! 3rd LIVE「声を抱えて生きる」
+
+   直播间👉：@MyGO_AveMujica
+
+・<strong>2月2日 17:30 🌙 Ave Mujica「KiLLKiSS」购买者限定 FREE LIVE</strong>
+
+   直播间👉：@MyGO_AveMujica
+
+・2月8日 19:00 🎧 🦋 BanG Dream! 9th☆LIVE「Mythology」DAY2
+
+   直播间👉：@BanGDream_CN
+
+・2月9日 19:00 ⭐️ 🌹 BanG Dream! 9th☆LIVE「The Beginning」DAY2
+
+   直播间👉：@BanGDream_CN
+
+---
+
+2025 BanG Dream! 新春会「心随星动，梦响十年」
+[https://www.bilibili.com/video/BV1APFxeTE4f/](https://www.bilibili.com/video/BV1APFxeTE4f/)
+
