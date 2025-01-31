@@ -1475,3 +1475,15 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 ----发送自 [Xiaomi 2308CPXD0C,Android 15](http://stage1.5j4m.com/?1.42)
 
+
+*****
+
+####  duo_wolf  
+##### 154#       发表于 2025-1-31 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313704&amp;ptid=2244683" target="_blank">小猪猪 发表于 2025-1-30 22:34</a>
+怎么一群人大惊小怪，你索早十年日服就禁了外国信用卡了，又不见你们有这么大反应……这十年不是还用点卡好 ...</blockquote>
+你索日服之前国内发的JCB是一直能用的，到23年9月随着会员涨价的时候把海外发行的JCB禁了后才彻底不能用国内卡的
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

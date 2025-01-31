@@ -2316,3 +2316,36 @@ btw  现在这个讨论环境只能说是武士道拖一年放送和烂炒的�
 
 我们邦多利就是这样的东西，现在看辗转腾挪的空间还是比邦3大多了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cavaliar  
+##### 254#       发表于 2025-1-31 09:25
+
++2 一直说大小姐过家家闹麻了，真是过家家你又不乐意了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丹德里恩  
+##### 255#       发表于 2025-1-31 09:32
+
+上集-2这集+1，前4集看下来觉得拍成mygo第二季也没什么不好
+
+A part写祥子跌到谷底的自闭样还写挺好的，爬完楼才反应过来是没有BGM瞎掺和<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">，都触底了也该反弹了吧？
+
+海铃与其说是贯彻了看客人设，不如说是当作让rikki出场的cost
+
+喵梦成为目前鸡团最大赢家，理由竟是她和其他人都不熟
+
+Mortis把自己关家里，俩艺人爹妈铺垫到现在的父母失格，估计还不知道自家孩子有精神病，剩下几个队友里唯一会搭理她的还自闭了，得soyo来演恐怖桥段，实在是惨。看下集预告是要小猫来曲线救国，邦多利的世界观里音乐无所不能也不是不行...最后应该是俩人格超融合的结局吧，还是期待一下六边形战士乐观睦
+
+初华，你支棱起来啊初华，别人都犯病你跟着犯什么病啊，拿出点行动力直接去堵祥子啊，只越来越觉得mana惨了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  white1dance  
+##### 256#       发表于 2025-1-31 09:32
+
+没前四集的话+2 这味才对
+

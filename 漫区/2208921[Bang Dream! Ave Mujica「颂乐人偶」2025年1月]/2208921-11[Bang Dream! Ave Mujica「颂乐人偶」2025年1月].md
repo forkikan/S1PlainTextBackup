@@ -3119,3 +3119,74 @@ soyo这是把睦疯了的锅都揽自己头上的感觉，期待得知真相后�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我在想soyo之后再跟偷摸零还有爱音对一遍信息的话，那可真是画美不看了
 
+
+*****
+
+####  圣血天使  
+##### 15078#       发表于 2025-1-31 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314828&amp;ptid=2208921" target="_blank">Mr.shelter 发表于 2025-1-30 23:31</a>
+
+大喵老师有关注度了还在刻苦练琴不就说明她还是有回来的可能的吗我一直认为的是大喵老师并没有对母鸡卡或者 ...</blockquote>
+对的，大喵老师纯粹就是你丫让我进来时候光画饼了，好不容易要兑现了结果发现你们都特么神人直接炸团这玩毛啊~不去参加舞台剧纯粹是因为看到木头这种天赋秒努力的让她觉得自己还不够好，舞台剧还得练啊
+
+*****
+
+####  fsfs_freeze  
+##### 15079#       发表于 2025-1-31 09:28
+
+祥子欠人格修正在ep1就表现出来了，结果ep5结束之后才开始要修正，很难不怀疑是不是修正也要机械降神<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15080#       发表于 2025-1-31 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">现在全网声讨大祥我是没想到的，甚至还有让大祥下跪的。真是让人捉鸡的情商和智商
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  南宮凝香  
+##### 15081#       发表于 2025-1-31 09:31
+
+要讓狗團同時包祥睦餃子又留一點逼格給祥睦的話，
+
+那就是愛燈 跟素世分別把祥跟莫 拖到街頭上
+
+讓他們組成2人街頭樂隊
+
+回歸初心， 想起為什麼要邦
+
+但這編劇大概會選最俗的打法
+
+愛音的心態不崩我就當編劇盡力了
+
+*****
+
+####  圣血天使  
+##### 15082#       发表于 2025-1-31 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314948&amp;ptid=2208921" target="_blank">SakuraのOrigami 发表于 2025-1-30 23:38</a>
+
+我草这写的什么啊
+
+睦祥说好的半身结果直接放着一个月不管？
+
+然后违约金，到头来就是过家家是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">母鸡卡这明显就是丰川姥爷给saki玩的地方啊，小孩子过家家玩玩嘛，玩够了就回来了，从这个角度上来说saki才真无愧是女主玛丽苏，家境最好，自己不行还有一堆人爱，自己玩脱了被骂了也有人把她拉出来啊
+
+*****
+
+####  阿卡拉兰斯  
+##### 15083#       发表于 2025-1-31 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317842&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 09:29</a>
+现在全网声讨大祥我是没想到的，甚至还有让大祥下跪的。真是让人捉鸡的情商和智商
+
+—— 来自 Xiaomi 23113 ...</blockquote>
+如果舅舅说的是真的，保守估计这个情景还得持续半个月，乐观估计
+这个场景要持续到母鸡卡过气<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
