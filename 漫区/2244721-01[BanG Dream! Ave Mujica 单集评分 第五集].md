@@ -2920,3 +2920,14 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 狗团到第五集的时候内部的关系性能说的也只有爱灯</blockquote>
 虽然现在才第五集，但我已经想不到除了白魔法和催眠app pro max以外还能怎么把现在这五个人圆回来了，而且后面还得爆
 
+
+*****
+
+####  俾斯麥  
+##### 312#       发表于 2025-1-31 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322689&amp;ptid=2244721" target="_blank">Lyzers 发表于 2025-1-31 19:49</a>
+
+现在鸡团内除了初祥还有别的成型的关系性吗，还有个喵/睦莫？</blockquote>
+喵祥才嗑，很接近彩千圣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
