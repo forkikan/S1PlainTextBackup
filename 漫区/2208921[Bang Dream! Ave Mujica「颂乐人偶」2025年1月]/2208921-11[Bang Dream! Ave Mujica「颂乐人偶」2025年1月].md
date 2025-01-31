@@ -7652,3 +7652,116 @@ mygo也是无病呻吟女生戏码
 再来说团魂的问题，音乐对于A团众人意味着什么，意味着生命，意味着自我意志的宣泄，神明可以给予人偶以生 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">saki组团的是时候不就是以为另外四个都是人偶她是神吗，结果发现除了三角之外剩下仨其实不是很鸟她，她现在就崩了，现在就等go团几个人打助攻看看咋让他们再组起来吧，只能说爱音真累
 
+
+*****
+
+####  魔灵高达  
+##### 15495#       发表于 2025-1-31 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320663&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 15:11</a>
+
+啊咧咧，我还以为我们就算没在说力量金属，至少也在讨论日摇吧。pop当然要出名趁早了。顺便你要是有个音乐 ...</blockquote>
+你到底是在说什么？从偶像扯到日摇，和此前讨论不露脸也能红的合理性以及A队理应拥有摘面具与否的自主权的有半毛钱关系吗？
+
+前面在说偶像，那以偶像角度来说，唐突摘面具属于“打破商品完整性”会导致企划价值下跌的操作，除非是现有路线真的遇到严重挫折才会用的手段。
+
+从作品的角度来说，既然写了小祥1个月速通武道馆还全国巡演这种夸张的桥段，就等于官方认证A团=现象级爆火，哪怕有财团的大力支持，能取得这样夸张的实绩，A团本身也已经达成了一部分“用音乐/成绩说话的免检通行证”，说到翘首以盼，一个月上武道馆的当然更值得翘首以盼，在这情况下如果写出来事务所在运营方向唱反调才是搞笑，这里事务所作用上的缺失，明明体现在与没有发挥协调，维持团内稳定之类的作用。
+
+*****
+
+####  坐看风起云涌  
+##### 15496#       发表于 2025-1-31 16:00
+
+独角兽切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4ba15917f8c1690bb8c153cd7f8cf0b2/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 15497#       发表于 2025-1-31 16:01
+
+<img src="https://img.saraba1st.com/forum/202501/31/160122g05hrz01driiz55x.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1124525361273720.jpg</strong> (44.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 16:01 上传
+
+*****
+
+####  huxiaopao163  
+##### 15498#       发表于 2025-1-31 16:03
+
+话说武道馆需要提前多久预定场地啊，这个不到一个月最速武道馆，多半是在出道前就预定了吧。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Lyzers  
+##### 15499#       发表于 2025-1-31 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320911&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 15:52</a>
+不是你先提的把人拉去看精神科的么？还有你要不自己先脑补下这集要是刚吵完架散伙了散伙完突然去关心了这 ...</blockquote>
+1,我第一句写的送医院，后面的论点就全是在说晾舞台上了啊，就许你多元论点不许我补充说明吗？
+
+2,我一直都有在根据你上一句的内容进行反应，但是你每回我一次就加一个你所谓多元角度，却很少正面回复过我啊，最正面的回答好像就都是“我觉得...”，那为什么你觉得的就是应该的，我说我觉得的就变成非黑即白和祥厨了
+
+3,我又变成祥厨了，那我现在直球说祥子现在的塑造烂完了，用梦结局救回来都已经是正面手段了，只不过我不仅觉得祥子烂完了，其他人也不是烂完就是在烂完的路上了
+
+*****
+
+####  十九号大侠  
+##### 15500#       发表于 2025-1-31 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 15501#       发表于 2025-1-31 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以独角兽系构只是挂名？
+如果是挂名那能解释为什么切割了，前面搞得那么烂，把祥子的一切全否定，把睦搞成双重人格，鸡团五个没一个有高光，换我我也切割
+
+*****
+
+####  ayara  
+##### 15502#       发表于 2025-1-31 16:05
+
+<blockquote>坐看风起云涌 发表于 2025-1-31 16:00
+独角兽切割了</blockquote>
+祝她以后事业顺利吧🙏🙏遇到好的合作伙伴而不是wsd的神人🙏🙏
+
+*****
+
+####  YF31  
+##### 15503#       发表于 2025-1-31 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320829&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 15:39</a>
+
+再来说团魂的问题，音乐对于A团众人意味着什么，意味着生命，意味着自我意志的宣泄，神明可以给予人偶以生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥们，说实话我也挺羡慕你的乐观主义态度。我是不知道既然丰川祥子已经不过家家了，现在这个鸡组来有什么必要，其他人有什么非得靠这个鸡来实现，这五个神人自己知道鸡的音乐是她们的生命和自我意志的表达吗？
+
+*****
+
+####  厚乳果珍爽  
+##### 15504#       发表于 2025-1-31 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321017&amp;ptid=2208921" target="_blank">ayara 发表于 2025-1-31 16:05</a>
+
+祝她以后事业顺利吧🙏🙏遇到好的合作伙伴而不是wsd的神人🙏🙏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懂了，独角兽就是杀伐果断的祥子，一看到苗头不对自己又无能为力的时候，果断把自己切割了
+
+*****
+
+####  玖羽  
+##### 15505#       发表于 2025-1-31 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320834&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-1-31 15:40</a>
+
+编剧明显是希望故事线要收束到mygo这边，不然mygo的角色都边缘人了，矛盾和问题也都需要mygo的人来解决，但 ...</blockquote>
+都演十几分钟行尸走肉了还想咋的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

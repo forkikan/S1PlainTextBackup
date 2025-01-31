@@ -61,3 +61,11 @@
 
 前十名，事务所二号助手以下全灭，野餐队全灭，真英雄艾米莉亚少校也没有
 
+
+*****
+
+####  洛克萨斯  
+##### 7533#       发表于 2025-1-31 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所长身为男一号挤不进去前三
+
