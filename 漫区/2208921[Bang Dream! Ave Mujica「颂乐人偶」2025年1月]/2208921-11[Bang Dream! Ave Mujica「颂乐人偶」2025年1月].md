@@ -6891,3 +6891,87 @@ bangbang还有出道就假唱被发现的组合呢，不也和没事人一样的
 
 那我建议让母鸡卡五个人围一圈，都互相说一句“我们是偷摸哒鸡desu”，然后大家就都不会有越权问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 15427#       发表于 2025-1-31 14:29
+
+邦邦的世界如果没有恶人，那爷爷自然也不是恶人，就算老爹的事情和他脱不开关系，<strong>大瞄多次做妖总不是他教唆的吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 15428#       发表于 2025-1-31 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320332&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 14:21</a>
+
+其实楚平方也是后来才意识到的，只不过她会下意识避开父母的荫蔽，这就是人物的成长，能意识到这点对祥子 ...</blockquote>
+依赖mujica的四个神经病我还不如灯皇和粉毛大狗把大陀螺草翻完事了 鸡团组建的逻辑已经不存了 不是道个歉就能拉回来的了
+
+*****
+
+####  江口夕  
+##### 15429#       发表于 2025-1-31 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320336&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:21</a>
+你是不是被肥秋毒坏了。桃草就几乎不办握手会，也不妨碍人家是最成功的当代女子偶像之一。PERFUME也几乎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家不办握手会也是有音乐性的一种，说明人家不想当狗屁传统偶像。你呢，一个劲往偶像靠
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wwwttth  
+##### 15430#       发表于 2025-1-31 14:31
+
+<blockquote>Lyzers 发表于 2025-1-31 14:24
+什么叫我捉着一个点攻击另一个点，话都是你说的，然后我把动画现有信息说出来，告诉你说的跟剧情两个矛盾 ...</blockquote>
+问题是在这个点上是没矛盾啊，要说矛盾不就是祥子和睦父母的问题？（甚至父母从人设上来说也没矛盾但是系不动了），反而你所谓的美好二次元解决才是矛盾，因为前面已经描写了这个团就没羁绊。这个团就没羁绊凭什么能“美好二次元”解决？那不是后面的事情？正好上面发了漫画，真要“美好二次元”你说2-3话头人差点舞台事故剩下几个人什么操作的？喵：握草演技天才太牛了。海铃：哦，原来不是演技啊。初华：握草原来是祥子解得围祥子好厉害。这也很符合散伙会后大家都想法和做法。
+
+
+*****
+
+####  厚乳果珍爽  
+##### 15431#       发表于 2025-1-31 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320077&amp;ptid=2208921" target="_blank">kongxian 发表于 2025-1-31 13:54</a>
+
+已经落实Mujica商业乐队解散，又是违约金，那后面无论是商业乐队Mujica又活了，还是非商业乐队Mujica活了都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别到时候mujica复活，因为版权不在手上，然后只能变成地下乐队就搞笑了
+
+*****
+
+####  siriii  
+##### 15432#       发表于 2025-1-31 14:34
+
+为什么不演奏春日影(指第五集ed)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 15433#       发表于 2025-1-31 14:35
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 14:38 编辑 
+
+过家家说的是祥子组乐队的态度和资本对A团的态度，而不是对于观众的，祥子组A团的初始目的不明，但现在表现出的就是给了自己一个可以逃避的场所，而在资本的大手看来这就是大小姐想组个乐队玩玩过把瘾，所以也就随着她折腾，所以那些现实商业规则才对A团才行不通
+
+而祥子显然也不知道商业乐队该怎么组，还是照着哭来西路时的玩票思路(其实也不一定，但一定和现实存在不小差距)，在这方面大小姐的常识肯定是有问题的，祥子确实能吃苦，但也确实没法真正理解平民的生活，她眼中的认真组乐队和商业层面的认真组乐队基本不会是一种东西，这就是因为“高贵”所导致的认知差异
+
+显然祥子缺乏生活常识也不完全是高尾的逆输入，也是伏笔的一部分
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  有钱多买小人  
+##### 15434#       发表于 2025-1-31 14:37
+
+这下嘟噜噜噜了
+
+【莫提斯：嘟噜噜噜噜噜噜 【JOJO×颂乐人偶】-哔哩哔哩】 https://b23.tv/BVtuZv3
+
+<img src="https://p.sda1.dev/21/159d969078541a8650f09cb7f43f8a28/image.jpg" referrerpolicy="no-referrer">
+

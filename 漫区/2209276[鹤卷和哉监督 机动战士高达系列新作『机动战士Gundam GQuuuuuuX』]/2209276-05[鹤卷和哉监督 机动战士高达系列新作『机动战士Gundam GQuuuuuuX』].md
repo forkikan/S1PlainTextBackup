@@ -3152,3 +3152,19 @@ JSF的视频明确说了在入港的是佩嘎萨斯级1号舰佩嘎萨斯
 当然不排除这个1号舰是他们自己根据佩嘎萨斯发散的， ...</blockquote>
 庵野:因为夏亚坐上了Gundam这件事改变了历史，所以一些东西的名字也跟着改变了，但只改变一部分，制造一违和感，这样挺好。例如，白色基地在本作中被命名为飞马，而在被吉翁军俘获后又改名为索顿。【【设定全译】剧情/机设/人设内幕大曝光 高达GQuuuuuuX先行剧场版设定集全译】 37分13秒[https://www.bilibili.com/video/B ... e85c0977ced9d7b506c](https://www.bilibili.com/video/BV1SkwHerEor/?share_source=copy_web&amp;vd_source=dd9243f891fb5e85c0977ced9d7b506c)
 
+
+*****
+
+####  猪突猛进R  
+##### 6174#       发表于 2025-1-31 14:31
+
+ 本帖最后由 猪突猛进R 于 2025-1-31 14:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320376&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 14:25</a>
+
+所以木马是“佩嘎萨斯”还是“白色基地”？
+
+绰号是绰号设定是设定这种事情哪个看敢达的会不知道？</blockquote>
+综合6171楼，也就是说这里痞子又玩了一个小花招，这条世界线上“白色要塞”先于原作飞马号出厂，成为了1号舰，然而因为世界线的收束，又被命名为“飞马”号。
+
+之前有人提到的夏利亚开的MA由布劳·布罗改名为基克罗格，也是一个遗老的小花招。（基克罗格这玩意MSV里有，甚至都不是MA）
+
