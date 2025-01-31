@@ -115,3 +115,15 @@
 
 为什么封歼灭天使的号，不封就一定断崖领先吗（doge）
 
+
+*****
+
+####  卢迪克  
+##### 7539#       发表于 2025-1-31 21:37
+
+ 本帖最后由 卢迪克 于 2025-1-31 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322355&amp;ptid=2160194" target="_blank">zhouaa 发表于 2025-1-31 18:56</a>
+
+不就是粉丝打榜 基本没参考价值</blockquote>
+说这个就无趣了，40周年全系列投票伊苏8枪哥第8算不算打榜？，或者说你法投票都是默认打榜的吧
+
