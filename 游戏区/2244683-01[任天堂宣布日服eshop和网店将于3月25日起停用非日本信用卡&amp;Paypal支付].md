@@ -1673,3 +1673,14 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 因为湾湾没eshop，用的港服和日服，汇率低所以用日服的更多</blockquote>
 震惊，居然没有自己的地区服，PS 和 Xbox 也这样的么
 
+
+*****
+
+####  晴岚  
+##### 172#       发表于 2025-1-31 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321785&amp;ptid=2244683" target="_blank">leystage 发表于 2025-1-31 17:38</a>
+
+震惊，居然没有自己的地区服，PS 和 Xbox 也这样的么</blockquote>
+ps有台服，但国内好像都情愿玩港服都不愿意玩台服（ 
+

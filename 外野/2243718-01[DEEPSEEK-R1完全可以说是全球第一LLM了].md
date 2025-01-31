@@ -12058,3 +12058,14 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 导入这个function就行了
 [https://openwebui.com/f/zgccrui/deepseek_r1](https://openwebui.com/f/zgccrui/deepseek_r1)
 
+
+*****
+
+####  xxad  
+##### 919#       发表于 2025-1-31 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67238340&amp;ptid=2243718" target="_blank">小ghoul 发表于 2025-1-21 14:47</a>
+
+只想知道代码能力咋样，用了一圈感觉都不如gpt4，这个咋样了</blockquote>
+我试了一下，代码能力很差，直接问实现功能，其实给出的都是范例代码并不完整，各种虚空调用，你跟他讨要完整版，直接超时死机，死机以后你再问其他任何话题全部提示超时死机
+

@@ -8868,3 +8868,117 @@ wsd既然选择引入大人的一面，那这写作难度就直线上升了<img 
 
 我不讨论解散不解散的问题，我只讨论解散后那三个队友表现出的无关心是正常的，要车不该解散别找我，你不能突然发现：“如果她们真有羁绊为啥还会解散”这点说不通开始拐话题。
 
+
+*****
+
+####  江口夕  
+##### 15595#       发表于 2025-1-31 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321945&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 18:01</a>
+还给大猫戏份才真是烂完了,直接边缘化不好吗,真给拍成大猫传啊?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">地铁里的cm已经明言了大猫会去找祥子组队
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  青龙圣者  
+##### 15596#       发表于 2025-1-31 18:07
+
+<img src="https://img.saraba1st.com/forum/202501/31/180659a7n85720n8b05it2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/180707t19nzn86z8qnqs89.png" referrerpolicy="no-referrer">
+
+<strong>36f8d606cc1abbc36311afe7898d9c46.png</strong> (10.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 15597#       发表于 2025-1-31 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321386&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-1-31 16:47</a>
+
+一部少女乐队番，五集下来观感最好的竟然是个老登，只能说神人制作组，希望你们求仁得仁吧
+
+—— 来自 鹅球 ...</blockquote>
+定治本来只需要背负清告的一个人的人生就行了啊<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202501/31/180615niuo6xmitpgop40l.jpg" referrerpolicy="no-referrer">
+
+<strong>清告.jpg</strong> (30.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:06 上传
+
+引用一下前面的发言 <blockquote>爬了下楼，如果不是为了拷打需要，不建议真心实意替定治心疼
+
+要是他当初不说出这些话，或者早点把话收回，后面都不用劳心费力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202501/31/180926jzcycq4k42xxzxkm.jpg" referrerpolicy="no-referrer">
+
+<strong>定治台词.jpg</strong> (80.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:09 上传
+
+</blockquote>
+
+*****
+
+####  qratosones1337  
+##### 15598#       发表于 2025-1-31 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320473&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 14:40</a>
+怎么还有人说啥必须摘面具啊，从三次元企划的角度来说确实是肯定会摘面具的，但是吧，单论合理性，不摘面具 ...</blockquote>
+摘面具是大祥给大喵的明确承诺，否则大喵从一开始就不可能过来打白工
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 15599#       发表于 2025-1-31 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321945&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 18:01</a>
+还给大猫戏份才真是烂完了,直接边缘化不好吗,真给拍成大猫传啊?</blockquote>
+从大猫这玩意还要包饺子看就知道母鸡卡包烂完的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Lyzers  
+##### 15600#       发表于 2025-1-31 18:11
+
+ 本帖最后由 Lyzers 于 2025-1-31 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321981&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 18:05</a>
+我没啊，不是你觉得解散后立刻得去关心的么，搞得好像解散了大伙一点情绪都没有的更不像正常人？
+
+我不讨 ...</blockquote>
+我回了这么大段话结果你把它浓缩理解成了“解散后立刻去关心不能有情绪”，我很难再给你把这段话再解压缩了。你说这是你的理解就好，不是我的想法。
+
+
+*****
+
+####  Yukino-Yukino  
+##### 15601#       发表于 2025-1-31 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别到时候是大猫提出来的重组乐队就好笑了，毕竟解散后也就她还在练母鸡卡的谱子了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
