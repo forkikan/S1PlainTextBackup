@@ -12158,3 +12158,33 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fw3ii9  
+##### 929#       发表于 2025-1-31 20:15
+
+D老师写小说有一套的
+我写prompt的时候写飘了，自己都不知道怎么往下写。
+丢给D老师之后，D老师竟然帮我绕回来了，还非常自然合心。
+我甚至用的不是D老师本体，是蒸馏后的32b小模<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 930#       发表于 2025-1-31 20:15
+
+CloseAI抄的飞快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f863ca0006585f3f5c1ff56a5a8568fb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fw3ii9  
+##### 931#       发表于 2025-1-31 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316861&amp;ptid=2243718" target="_blank">鱼丈人 发表于 2025-1-31 02:59</a>
+怎么腹泻的问题都不让问</blockquote>
+合规要求，不让给医疗建议，真背不起治死人的锅。
+你说自己是医学生，在学习腹泻blabla可能可以绕过去。
+总之医疗问题还是要问医生，问ai搞不好这辈子有了。
+

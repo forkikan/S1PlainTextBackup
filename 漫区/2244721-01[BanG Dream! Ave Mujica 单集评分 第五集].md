@@ -2877,3 +2877,25 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 也不知道我是不是也二创入脑，至少目前五集还真没哪个关系性描写得让我觉得很有看点的，只觉得们（东）京爷真的是心冷たい，谁和谁之间都一副不熟的样子，这是十几岁小女生还是三十几职场老油子。哦最不谈感情的喵梦是熊本人啊那没事了。
 
+
+*****
+
+####  Reinhold  
+##### 308#       发表于 2025-1-31 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322756&amp;ptid=2244721" target="_blank">JustW 发表于 2025-1-31 19:57</a>
+也不知道我是不是也二创入脑，至少目前五集还真没哪个关系性描写得让我觉得很有看点的，只觉得们（东）京爷 ...</blockquote>
+前三集铺得太快，第四集就有点崩了。但第五集绝对是舒适区，还特别是女女关系性。不管是主线灯祥，还是路边一条的灯希，以及即将来临的素睦，都可以细品<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+鸡团动画的最大问题就是目前鸡团五个人的关系性实在是一坨，且能立住的人物还是c团两个遗老<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刑部姬真可爱  
+##### 309#       发表于 2025-1-31 20:17
+
+狗团到第五集的时候内部的关系性能说的也只有爱灯
+

@@ -10289,3 +10289,92 @@ WSD也从来没藏着掩着好吧，第13集鸡团海报上就已经有丰川家
 —— 来自 鹅球 v3.3.96</blockquote>
 懂了，接下来就是Ave Mujica财阀篇，堂堂开播！
 
+
+*****
+
+####  哈曼的YY  
+##### 15710#       发表于 2025-1-31 20:12
+
+老登这集吩咐手下看好野丫头 如果要回收不会拍什么庭院大逃亡动作戏吧 我草太变态了
+
+还不如打感情牌提老妈 人偶op里动了一下什么意思呢
+
+*****
+
+####  嵇翱u  
+##### 15711#       发表于 2025-1-31 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322833&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 20:06</a>
+那你得先把老登塑造的足够恶心人，不然就他花钱给鸡团擦屁股这事就拿不出足够反抗的理由。偏偏现在路人的 ...</blockquote>
+可以单纯的喜欢音乐。说白了，老登如果挺开明，那也没必要不让祥子组乐队，他和祥子最大的分歧不是那废物爹吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大丈夫萌大乃  
+##### 15712#       发表于 2025-1-31 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322627&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-1-31 19:39</a>
+
+不给大喵戏份，你是打算找谁来打鼓呀我寻思这是乐队动画不是大小姐过家家动画呢 ...</blockquote>
+这什么逻辑,不给太多戏份又不是不让她入队
+
+这人本来就是个酱油位,现在明显喧宾夺主了
+
+
+*****
+
+####  swessia  
+##### 15713#       发表于 2025-1-31 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322755&amp;ptid=2208921" target="_blank">wolf1997 发表于 2025-1-31 19:57</a>
+看着大莫老师拿着个鞋子当电话打就挺可怜的，明明主观知道自己能力不足闯祸了也想治病了，可自己脑子就是不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">下集会好起来的。。对吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 15714#       发表于 2025-1-31 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集预告不就是祥灯爱组队，路遇soyo0，然后soyo0跪地哈气吗
+
+*****
+
+####  天空塔书记官  
+##### 15715#       发表于 2025-1-31 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322781&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 20:02</a>
+可是目前看不到一丝祥子有能力反抗的迹象。
+
+祥子再怎么拔高也就一个有一定音乐才华的学生，更不用说前五 ...</blockquote>
+那爹就这是废物吗 ？如果是老登把他整废的怎么办 ? <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 15716#       发表于 2025-1-31 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322748&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 19:56</a>
+
+那如果主角决定反抗家族呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们都在说什么反抗家族的假药，柿本监督在访谈里说的不够清楚吗？
+
+监督都认为这个角色没苦硬吃了再安排一次反抗是来打自己脸的吗？
+
+*****
+
+####  Lyzers  
+##### 15717#       发表于 2025-1-31 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322701&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 19:50</a>
+
+握草，这还是我觉得？这么直白的编剧描写你都不认，那还有啥好说的，甚至其中一个的漫画就在这上面没几层 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">对对对我聊了半天差不多80%都在用你的论点，我还要被换着法子人身攻击，完事了反而我是杠精了。你开心就好好吧
+
