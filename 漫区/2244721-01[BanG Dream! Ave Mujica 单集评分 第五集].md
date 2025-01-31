@@ -2953,3 +2953,14 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 喵祥才嗑，很接近彩千圣</blockquote>
 说句难听的，以前还会看一下喵祥，三四集之后get不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  俾斯麥  
+##### 315#       发表于 2025-1-31 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323112&amp;ptid=2244721" target="_blank">Lyzers 发表于 2025-1-31 20:43</a>
+
+说句难听的，以前还会看一下喵祥，三四集之后get不了一点</blockquote>
+后边还会有的，因为终归要包饺子，喵祥是两个极端，她俩聊不开这个团就还得炸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

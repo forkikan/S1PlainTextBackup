@@ -12241,3 +12241,12 @@ CloseAI抄的飞快</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/5c5565c9c9f84b7b032ade1e684df583/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fw3ii9  
+##### 936#       发表于 2025-1-31 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323090&amp;ptid=2243718" target="_blank">鱼丈人 发表于 2025-1-31 20:41</a></blockquote>
+大模型经典bug，重新生成一下就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

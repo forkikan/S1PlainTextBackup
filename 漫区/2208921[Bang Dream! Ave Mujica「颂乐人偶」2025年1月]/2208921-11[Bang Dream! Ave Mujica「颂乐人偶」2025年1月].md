@@ -10685,3 +10685,73 @@ nga的那个是假的
 不就是因为鸡狗是便宜三弟动画，已有的场景能重复利用就没必要浪费经费
 而且祥爹的问题一直是没工作没进账，乐队梦碎了生活还是要过的，该打工还是得打工
 
+
+*****
+
+####  wwwttth  
+##### 15748#       发表于 2025-1-31 20:57
+
+<blockquote>厚乳果珍爽 发表于 2025-1-31 20:48
+nga的那个是假的</blockquote>
+从编剧的病情来看其实不算太假，我思考了下祥子的心态也不是不可能，我看了下也没被证伪。
+
+就是是真的有点实在太变态了。
+
+
+*****
+
+####  一心而用  
+##### 15749#       发表于 2025-1-31 21:01
+
+lyy老师的爱素
+<img src="https://p.sda1.dev/21/3e331a9086928d7eaf15f9fbedf41d99/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c7cecc9704de6917b6fcf7332bcda59b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a272ad3bea7dcf049a2eec48dd951c5e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f7c145ba5a326db7b52dbc2be09bfee0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 15750#       发表于 2025-1-31 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315727&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 00:36</a>
+老登又不是不能洗白，财团对于牢爹的处理也不全是他说了算，毕竟还有董事会，他更多的是默许和冷眼旁观， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 15751#       发表于 2025-1-31 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323207&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 20:57</a>
+从编剧的病情来看其实不算太假，我思考了下祥子的心态也不是不可能，我看了下也没被证伪。
+
+就是是真的有 ...</blockquote>
+大祥现在的状态应该不会接受任何提案，只听老登摆布。要是真的那灯祥的风评要一起入土了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 15752#       发表于 2025-1-31 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322875&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-1-31 20:12</a>
+
+老登这集吩咐手下看好野丫头 如果要回收不会拍什么庭院大逃亡动作戏吧 我草太变态了
+
+还不如打感情牌提老妈 ...</blockquote>
+吩咐的语气还是比较温和的，与其说是看管倒不如说像是吩咐照顾，后面爱音杀过来自称朋友，<strong>大祥连眼神都没给保镖，对方就退让了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  俾斯麥  
+##### 15753#       发表于 2025-1-31 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323154&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-31 20:49</a>
+
+第五话这段默剧想表现祥子坏掉了成了没心的人偶。但是场外很多人都当成了go时期冷酷黑祥。 是不是可以说是 ...</blockquote>
+不算，主要是黑祥上线过一次，不管怎么表现都会让人往黑祥上联系的，但好在她还是会被灯皇搞破防
+
