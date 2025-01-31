@@ -11670,3 +11670,16 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 钱应该到账了，现在XSH在高强度黑deepseek</blockquote>
 一点开全是假帐号<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啥地方都有，大多是没发过几条动态甚至是零动态的，目测是僵尸号，头一条还在村里喂鸡，下一条黑DS
 
+
+*****
+
+####  moeblack  
+##### 888#         楼主| 发表于 2025-1-31 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317410&amp;ptid=2243718" target="_blank">我家阿喵叫花花 发表于 2025-1-31 08:29</a>
+
+一点开全是假帐号啥地方都有，大多是没发过几条动态甚至是零动态的，目测是僵尸号，头一条还在村里喂鸡， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这群人的发言还不如D指导幽默，GPT扮演的
+

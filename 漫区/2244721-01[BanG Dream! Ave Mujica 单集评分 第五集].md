@@ -2269,3 +2269,14 @@ go批大脑也升级了?
 本来想把这群人玩切割的发言截图全拉出来挂一遍的，想了想大好日 ...</blockquote>
 我是支持的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  08df1258c5ed098  
+##### 249#       发表于 2025-1-31 08:56
+
+我不知道邦世界观是个什么东西，但我现在知道这个世界的人不组乐队就像癌症晚期，不组乐队少女就会失去光彩，要用一整集来临终关怀。
++0
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2920,3 +2920,63 @@ KC可是正宗的神人乐队（做一张专辑换一次人、吉他手花式炸
 <img src="https://p.sda1.dev/21/4b706bd3e1510aae49484e047f1270c5/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/b6bacfe58f04ef911d991ab72fed321c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 15059#       发表于 2025-1-31 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317493&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 08:47</a>
+看隔壁发现的，羽丘不是月之森，有车接送放学的情况并不常见。
+祥子上学故意早出晚归（坐电车时车里只有她 ...</blockquote>
+所以其实官方对祥子的塑造从头到尾一直都没有ooc，坚强确实坚强，软弱也确实软弱，确实有人格魅力，但也有性格缺陷
+这也是我为啥说最大的锅还是武士道烂炒的原因，如果接下来真的就是按着成长展开本来挺好的，第四集也很好解释：制作时间不够，本来打算go过后不久就放，结果看到go有热度于是为了烂炒就拖到现在来压榨价值，但鸡的做好了还有下一个项目也不可能回去返工
+于是就出现了虽然有15个月的间隔，但制作时间就是不够的奇观
+
+*****
+
+####  阿卡拉兰斯  
+##### 15060#       发表于 2025-1-31 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317537&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 08:53</a>
+与其说初华是守活寡是soyo2.0，不如说是一个被主人抛弃了的人偶。soyo想要的是原来家的感觉，mygo其实可 ...</blockquote>
+我还是觉得像寡妇，尤其这次真的是上手了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/da054ae3fe55404ad62c9867b018e0e3/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swff  
+##### 15061#       发表于 2025-1-31 09:00
+
+一直说初华后面有大的，现在这情况也看不出后面怎么会说出不要讨厌我，结合所谓丰川家黑暗面，可能真是初华是丰川家的棋子，这样后面也算好圆
+
+*****
+
+####  一心而用  
+##### 15062#       发表于 2025-1-31 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317547&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 08:55</a>
+所以其实官方对祥子的塑造从头到尾一直都没有ooc，坚强确实坚强，软弱也确实软弱，确实有人格魅力，但也 ...</blockquote>
+武士道要烂炒也没办法拦着不是，avemujica拆队不全是祥子的锅但是作为领导必然有不可推卸的责任，木谷高明又何尝不也是如此？
+
+*****
+
+####  达达葱2  
+##### 15063#       发表于 2025-1-31 09:05
+
+我觉得祥子现在就是个混蛋
+
+需要有人修正她
+
+*****
+
+####  一心而用  
+##### 15064#       发表于 2025-1-31 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317565&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 08:57</a>
+我还是觉得像寡妇
+用图说话，没有断章取义
+甚至还有接盘的</blockquote>
+初华是真寡妇，soyo不过是一个离婚阔太太罢了，还是不太一样的。
+所以现在我还是在想初华后面怎么炸的问题，她对祥子的沉重感情是真的，那么能让她破防露出狰狞表情的点在哪里呢？
+
