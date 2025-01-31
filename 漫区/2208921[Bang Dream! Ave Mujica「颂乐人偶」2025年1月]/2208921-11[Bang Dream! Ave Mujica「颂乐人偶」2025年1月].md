@@ -4265,3 +4265,219 @@ chuchu身为小屁孩耍小孩性子赶走pareo这种剧情和对应收到的谴
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xyion  
+##### 15183#       发表于 2025-1-31 10:47
+
+我对编剧会把祥子碾碎倒是开播前就有预期，但我二偶看得少，一开始还真没理解其变态之处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+最近看的另一个主角被碾碎的作品是《乔伊卡》，同样是外部压力作用于性格缺陷，女主自己把事业和家庭全部搞砸，比祥子严重多了。但那是三次元电影。
+
+这个作品中，女主最后重振的契机，不是由她主导，在上半部分也没有任何铺垫。但本质在于女主在最行尸走肉的状态下，依然没有放弃本心。
+
+祥子的本心就是组乐队，看起来是要由灯来唤起。但契机可能同样是只有编剧知道了，当然也可能他们也不知道。
+
+*****
+
+####  YF31  
+##### 15184#       发表于 2025-1-31 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318547&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 10:45</a>
+要go团解决的还是醒醒，大祥只要抛出，你先死个妈，再来个混蛋老爸，再疯个发小。go团直接闭嘴了
+
+—— 来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那丰川祥子还有风评可言吗？别人关心居然靠比惨堵嘴，你比柿本广大还会踩。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 15185#       发表于 2025-1-31 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318495&amp;ptid=2208921" target="_blank">Ty_cc 发表于 2025-1-31 10:39</a>
+看到个说法有点意思，mygo是live小剧场里的“虚假的光”。
+我不认为🐶能解决🐔的建团，🐔的建团必须只靠自 ...</blockquote>
+爱音虽然行动力很强但她是来推动解决问题的，不是来解决问题本身的。灯就是来点破祥子的，灯不断反思什么是幸福，最后得出的答案就是当初和祥子组crychic是幸福的，这就是祥子的初心“优雅的呐喊”。而mujica的歌里，灯听出祥子的呐喊是很陌生的，很可能并不是幸福的。现在要把幸福找回来，那就重新开始组乐队吧。
+海铃那边应该是通过立希为mygo操心明白了想找到自己的安身之所必须自己先行动起来。
+mortis其实就是不会吉他🎸，睦自己又醒不过来，干脆让soyo拉着找猫去学就是了，同一个身体肌肉记忆还在不至于连爱音都不如。
+
+*****
+
+####  fsfs_freeze  
+##### 15186#       发表于 2025-1-31 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318555&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-1-31 10:46</a>
+海玲再不爆炸就没戏份可以爆炸了，只能沦落到猫那样的边缘位也太惨了
+
+—— 来自 S1Fun ...</blockquote>
+海玲真的像是在动画里都删光了(独角兽之前说为了缩剧情把大量的海希戏份全删了)，后续估计只有在游戏里有了
+
+*****
+
+####  南宮凝香  
+##### 15187#       发表于 2025-1-31 10:49
+
+不用算回報，
+
+有足夠資源，
+
+上武道館不就是看場地什麼時候有空檔嗎……..
+
+觀眾？ 
+
+豐川集團這個月的福利就是武道館門票2張
+
+*****
+
+####  怀沙汨罗  
+##### 15188#       发表于 2025-1-31 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318534&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 10:43</a>
+粉丝喜欢是拿来体现大祥老师才华横溢的，过不过家家和这个啥关系没有，鸡团体现自己本质是个爱好者乐队， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再加一条:在确认队员犯病解散的前提下，依然让该队员登台在粉丝面前鬼叫。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  rollingusagi  
+##### 15189#       发表于 2025-1-31 10:49
+
+鸡要重建的话应该会从livehouse重新开始吧，本来go第十三集那种出道演出完事直接推趋势第一名然后光速武道馆这事本身就很奇怪啊，我们邦多利的乐队还得从livehouse一步步往前走才对味吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 15190#       发表于 2025-1-31 10:50
+
+ 本帖最后由 ads147147 于 2025-1-31 10:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318567&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-31 10:47</a>
+
+我对编剧会把祥子碾碎倒是开播前就有预期，但我二偶看得少，一开始还真没理解其变态之处。
+
+最近看的另一个 ...</blockquote>
+把主角碾碎这事，确实也不多。
+
+不过泥潭最喜欢的wa1和wa2不都是把主角碾碎的经典例子么。。wa2妥妥的三个人都崩溃的乐队题材。。而且真的很少见丸户那种把主角的路一条条堵死让人往崩溃的绝路逼的设计。。。
+
+*****
+
+####  JustW  
+##### 15191#       发表于 2025-1-31 10:52
+
+制作组是最大祥黑这话的确没毛病，动动脚趾头都能想到114514个在这几集里让祥子形象稍微不那么有争议一些的办法，但是制作组始终选择了最败坏形象的那一个，基本上除了第一集介绍背景很惨之外就没有留出任何观众能同情的机会。第三集演出了睦崩坏直接导火索就是祥子的感觉，第四集直接借Mortis之口把恨意矛头指向祥子，第五集更是在超现实了几集之后非要让外公登场现实一把，告诉观众祥子不得不让家族兜底，可以说是亲人、朋友、发小、理想、尊严，一个都保不住，甚至观众会觉得祥子这个样子保不住才正常才合理。
+
+
+*****
+
+####  北条早苗  
+##### 15192#       发表于 2025-1-31 10:52
+
+扯现实你就输了，鸡动画到处就充满着编剧工具人的气息。违约金的设定就是给丰川老登一个插手的机会，用来敲打软糯小祥的。大喵前四集到处哈气，福冈公演少了个吉他连糊弄都不糊弄直接炸团的时候怎么就没有违约金了隔壁少女乐队5-2都能继续活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+访谈说后面还有大的，这集狗团高强度切入我唯一就希望别狗团也成工具人了，黑刀之夜一句组乐队不开心到现在也成闹麻了。这集还给大喵私底下练打鼓的戏份，别真的演什么你说团魂我都觉得有些好笑吧
+
+*****
+
+####  厉飞雨  
+##### 15193#       发表于 2025-1-31 10:52
+
+要不是有丰川的大手兜底
+不然按现实情况，大喵老师第一集就得下海了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15194#       发表于 2025-1-31 10:53
+
+ 本帖最后由 江口夕 于 2025-1-31 10:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318568&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 10:47</a>
+那丰川祥子还有风评可言吗？别人关心居然靠比惨堵嘴，你比柿本广大还会踩。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你指的风评是一帮人无视解散的罪魁祸首莫小姐不会吉他，和大猫的胡言乱语。在这疯狂踩被大莫老师吓得动弹不得的大祥么。
+莫老师怎么做的，先不会吉他让乐团机能瓦解，团员疑神疑鬼，再吓唬大祥让领导人失能，现在罪魁祸首直接被观众保护起来了，她有病你搞她就是有罪。
+好家伙都被你们懂完了，老登擦的是大祥屁股，帮大祥一个人垫违约金是吧，其他人违约金在哪呢，被你们吃了？大猫海玲莫老师初华不是也拍拍屁股走人了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厚乳果珍爽  
+##### 15195#       发表于 2025-1-31 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318546&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-1-31 10:45</a>
+
+其实招女婿的话素世妈是最合适的，丰川家中登废了断代了，老登年岁已大，要有现成的人选接管偌大的家业还真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长崎这种new money是不会被丰川这种old money看上的，跟何况长崎估计就是一个经理人，本质就是高级打工仔罢了。
+
+*****
+
+####  YF31  
+##### 15196#       发表于 2025-1-31 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318598&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-31 10:50</a>
+
+把主角碾碎这事，确实也不多。
+
+不过泥潭最喜欢的wa1和wa2不都是把主角碾碎的经典例子么。。wa2妥妥的三个 ...</blockquote>
+别带丸户节奏，wa2里三个人至少都是人，可以理解的。
+
+*****
+
+####  TAQ  
+##### 15197#       发表于 2025-1-31 10:55
+
+说起来小剧场的剧本目前都是成立的，虚假的光——人偶（貌合神离的团内关系）——外部世界破坏（鸡团崩坏）——寻找真正的光——重建自我
+这种谶语式的剧中剧特别的莎士比亚
+
+*****
+
+####  Lyzers  
+##### 15198#       发表于 2025-1-31 10:56
+
+答案是虽然团里所有人要羁绊没羁绊，要信任没信任，但是保密协议是里确实没写要赔违约金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 15199#       发表于 2025-1-31 10:56
+
+我真不知道编剧还要虐祥子多久，真的很好看吗？🦄丝毫不觉得这样虐待一个女高中生和bully有何区别？满足自己个人恶趣味？祥子怎么处理这么多超出个人能力的事情。
+
+*****
+
+####  江口夕  
+##### 15200#       发表于 2025-1-31 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们也是搞笑，违约金是5个人的，却要大祥一个人还
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  ads147147  
+##### 15201#       发表于 2025-1-31 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318638&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 10:54</a>
+
+别带丸户节奏，wa2里三个人至少都是人，可以理解的。</blockquote>
+说的是作者把主角路全部堵死的手法，你要讨论人物塑造，恐怕不认可春希是人的人多了去了。
+
+*****
+
+####  YF31  
+##### 15202#       发表于 2025-1-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318627&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 10:53</a>
+
+你指的风评是一帮人无视解散的罪魁祸首莫小姐不会吉他，和大猫的胡言乱语。在这疯狂踩被大莫老师吓得动弹 ...</blockquote>
+别转火了，越转火越难绷，莫÷难道祥就不÷吗？
+
+你翻翻我发言就知道我是被扣过祥厨帽子的，现在我是带不住这帽子了，你居然还要继续破坏这个角色的风评我不好说什么。
+
