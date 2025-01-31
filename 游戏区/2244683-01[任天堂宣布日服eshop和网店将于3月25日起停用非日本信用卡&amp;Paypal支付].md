@@ -1519,3 +1519,15 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 个人会员可以，家庭不行
 [https://post.m.smzdm.com/p/a90ldx4e/](https://post.m.smzdm.com/p/a90ldx4e/)
 
+
+*****
+
+####  慕容断月  
+##### 158#       发表于 2025-1-31 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314357&amp;ptid=2244683" target="_blank">桜庭ななみ 发表于 2025-1-30 23:05</a>
+本来我觉得任天堂挺开放的，日服居然完全不锁付费方式，苹果在日服都锁外区信用卡。结果这下还是都回去了 ...</blockquote>
+任天堂？开放？你在逗我？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
