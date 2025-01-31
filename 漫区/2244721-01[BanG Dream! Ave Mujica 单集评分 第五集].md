@@ -2793,3 +2793,14 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 2025-1-31 17:38 上传
 
+
+*****
+
+####  aptx8285144  
+##### 300#       发表于 2025-1-31 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319951&amp;ptid=2244721" target="_blank">矢吹奈子 发表于 2025-1-31 13:37</a>
+
+才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘</blockquote>
+不要再谈“十五年”了，这个数字在这集之后已经完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

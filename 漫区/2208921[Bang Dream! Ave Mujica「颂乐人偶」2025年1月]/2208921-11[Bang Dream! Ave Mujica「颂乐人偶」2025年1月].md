@@ -8804,3 +8804,67 @@ wsd既然选择引入大人的一面，那这写作难度就直线上升了<img 
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  半年  
+##### 15589#       发表于 2025-1-31 17:58
+
+<img src="https://img.saraba1st.com/forum/202501/31/175757p5o52pldcledofzj.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250131175740.jpg</strong> (98.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 17:57 上传
+
+
+*****
+
+####  江口夕  
+##### 15590#       发表于 2025-1-31 18:00
+
+ 本帖最后由 江口夕 于 2025-1-31 18:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321920&amp;ptid=2208921" target="_blank">半年 发表于 2025-1-31 17:58</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没有拉黑，起码同居过，素世还是垫底
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  大丈夫萌大乃  
+##### 15591#       发表于 2025-1-31 18:01
+
+还给大猫戏份才真是烂完了,直接边缘化不好吗,真给拍成大猫传啊?
+
+*****
+
+####  十九号大侠  
+##### 15592#       发表于 2025-1-31 18:02
+
+祥子三角函数的题作对了吗。
+
+*****
+
+####  Yukino-Yukino  
+##### 15593#       发表于 2025-1-31 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321892&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 17:54</a>
+哪里做错了，不该组乐队？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别的不说，c团解散那时候说一句家里出事了没法来，不大吵一架然后直接跑路消失不理人，也不会把c团剩下几个炸出ptsd。A团和睦头吵一架，意识到自己说错话也不是找补而是直接跑路也导致睦头情况恶化，mortis上号代打。这两个地方如果她没有那么强的自尊心，半步不让。就算道一句歉可能都不会导致现在这个情况
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wwwttth  
+##### 15594#       发表于 2025-1-31 18:05
+
+<blockquote>Lyzers 发表于 2025-1-31 17:54
+能不能别非黑即白二元论，你就一定非要在大家都不管和大家涌上去一起抱着睦头唱哦没跌多中选吗？谁跟你说 ...</blockquote>
+我没啊，不是你觉得解散后立刻得去关心的么，搞得好像解散了大伙一点情绪都没有的更不像正常人？
+
+我不讨论解散不解散的问题，我只讨论解散后那三个队友表现出的无关心是正常的，要车不该解散别找我，你不能突然发现：“如果她们真有羁绊为啥还会解散”这点说不通开始拐话题。
+
