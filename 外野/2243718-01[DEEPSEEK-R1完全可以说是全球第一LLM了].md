@@ -12268,3 +12268,14 @@ CloseAI抄的飞快</blockquote>
 
 总感觉那帮红客就是一帮蹭热度卖课的骗子，360也就是个蹭热度的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bcxzzz  
+##### 939#       发表于 2025-1-31 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322929&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-31 20:18</a>
+
+对美国人来说，Deepseek会变成我们社会主义思想的普及工具</blockquote>
+这是啥软件？显卡的驱动程序？
+

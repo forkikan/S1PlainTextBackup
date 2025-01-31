@@ -11060,3 +11060,107 @@ https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
 </blockquote>
 并没有，面影桥那块是西早稻田，看了下现在差不多户型的新筑三层一户建直接成品8000万，考虑到这几年地产升值和自建还有折旧等因素，立希家买的话估计当时不超过5000万日元，租的话现在一个月20多万，对于在东京普通的双薪家庭真的算是很普通的水平。
 
+
+*****
+
+####  古明地雷  
+##### 15780#       发表于 2025-1-31 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323034&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 20:34</a>
+那么问题来，写到这个地步，你拿什么救这个角色的形象呢？还是说这个角色观众喜不喜欢并不重要？
+
+摧毁角 ...</blockquote>
+你问我我问谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 15781#       发表于 2025-1-31 21:47
+
+[https://bbs.nga.cn/read.php?tid=43163755](https://bbs.nga.cn/read.php?tid=43163755)
+
+洗猫的建议带上身份证吧，满25岁再说话吧
+
+*****
+
+####  大丈夫萌大乃  
+##### 15782#       发表于 2025-1-31 21:48
+
+我记得之前哪里看到说前半段是木箱主场,后半段金毛主场,现在第五集完了木箱一个陀螺仙人一个精神分裂,金毛身为主唱从人物塑造到剧情分量都是路边一条,按目前的节奏把木箱搞定怕不是九/十集了,还得给大女主努力侠家人侠猫圣戏份拉人,还要回收扒饭颜艺,那金毛龇牙镜头是因为到最后都没戏份想打编剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aistians  
+##### 15783#       发表于 2025-1-31 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323467&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 21:42</a>
+
+还是第一集喵梦揭开了睦的面具，导致睦的通告增加，让她小时候的ptsd又来了
+
+后面才是翔子跟喵梦吵架，睦 ...</blockquote>
+喵梦肯定是最大责任人啊，问题编剧和声优各种访谈狂吹祥子和睦半身，什么睦就要在祥子身边之类的，这剧情里也不是这么回事啊。
+
+和初华聊天说要多关心睦，结果后面是对睦发火，第四集又说想睦回来，结果第五集又放着睦精神分裂一个月没管。
+
+*****
+
+####  看穿一切的鱼  
+##### 15784#       发表于 2025-1-31 21:49
+
+车灯也正常吧，你是爱音你不麻？她甚至都不回避一下爱音，哪有这么跳脸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  aistians  
+##### 15785#       发表于 2025-1-31 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316816&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 02:44</a>
+
+我是不太能接受丰川集团完全掌控或者完全支持鸡团全部运营这种推论的，这也和tgw实际在海报上的低顺位不符 ...</blockquote>
+说明你压根没认真看剧情，首先飞鸟山之战前祥子特意回过豪宅，这个时候正好是她要组母鸡卡的时间，当然祥子已经和家族决裂了，请问她回去是干嘛去了？探亲吗？
+
+*****
+
+####  厚乳果珍爽  
+##### 15786#       发表于 2025-1-31 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323502&amp;ptid=2208921" target="_blank">aistians 发表于 2025-1-31 21:49</a>
+
+喵梦肯定是最大责任人啊，问题编剧和声优各种访谈狂吹祥子和睦半身，什么睦就要在祥子身边之类的，这剧情 ...</blockquote>
+喵梦：“抛开事实不谈难道你就一点错都没有吗?”
+
+*****
+
+####  tuatha  
+##### 15787#       发表于 2025-1-31 21:51
+
+以后新的母鸡卡应该是民间乐队了，音乐初心和背负人生不能兼得，自己的人生还是得自己走
+该和解就和解
+
+*****
+
+####  无事忙  
+##### 15788#       发表于 2025-1-31 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315912&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 00:55</a>
+
+现在整个剧本让人感觉就是斧凿痕迹很重
+
+像拷打祥子的时候就会出现完全没意义的现实要素，比如这集的违约金 ...</blockquote><blockquote>比如这集的违约金，就是为了拷打小祥用的没有意义的东西
+
+镜头给哈基米就一定会有展现她好的一面的分镜，什么家人侠努力家，跟别人的分镜比例完全不对等
+
+像木头这种精神病无人关心还有人机初华就更不用说了，除了编剧的大手我无话可说
+
+还有为爆而爆等等毛病，真的完全无法和mygo比，根本经不起一点推敲</blockquote>
+对啊，就是不知道剧本到底出了什么问题
+
+是绫奈和柿本分道扬镳导致的吗？
+
+还是这俩都是真菜，mygo只是个偶然？
+
+我倾向于觉得还是柿本比较菜
+
