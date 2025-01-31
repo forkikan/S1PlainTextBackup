@@ -3598,3 +3598,65 @@ EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A
 以麻球初战为例，麻球驾驶舱蹲防，机体能拾起热能斧举盾 ...</blockquote>
 那段机体自主行动以及降下来的新操作系统真有点eva的dummy system的感觉
 
+
+*****
+
+####  岸浪白野  
+##### 6205#       发表于 2025-1-31 23:17
+
+ 本帖最后由 岸浪白野 于 2025-1-31 23:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323862&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-1-31 22:43</a>
+
+好像因为plazam和挽尊哥的那个视频，推上关于卡缪的讨论也大量发生了
+
+—— 来自 HUAWEI SEA-AL10, Android ...</blockquote>
+比如最近 X上面 高赞的就有这条
+
+<img src="https://img.saraba1st.com/forum/202501/31/231813k4ecyr4vhfwv3ao8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/231721yx4zqqlm4w4q8asa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 23:17 上传
+
+
+*****
+
+####  纪寞  
+##### 6206#       发表于 2025-1-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324071&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-31 23:12</a>
+
+欧米伽赛可谬是单纯脑波遥控还是有ai辅助补正啊。
+
+以麻球初战为例，麻球驾驶舱蹲防，机体能拾起热能斧举盾
+
+ ...</blockquote>
+这东西之前的全脑控机独角兽就有相似的设定和表现了
+
+<img src="https://img.saraba1st.com/forum/202501/31/232024xz8xb8x5e5i8niev.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-01-27 214955.png</strong> (15.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 23:20 上传
+
+*****
+
+####  0aleph37  
+##### 6207#       发表于 2025-1-31 23:25
+
+<blockquote>纪寞 发表于 2025-1-31 23:21
+这东西之前的全脑控机独角兽就有相似的设定和表现了</blockquote>
+独角兽是明确有系统接管的
+
