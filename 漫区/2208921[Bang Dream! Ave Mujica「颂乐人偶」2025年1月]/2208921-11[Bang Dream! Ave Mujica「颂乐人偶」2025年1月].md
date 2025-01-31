@@ -10519,3 +10519,66 @@ WSD也从来没藏着掩着好吧，第13集鸡团海报上就已经有丰川家
 孩子们，这就是柿本监督的想法啊，看过访谈就知道了，柿本监督是真心实意觉得丰川祥子闹麻了的，那可不就 ...</blockquote>
 先不管谁对谁错，柿本和独角兽都让这群人<strong>一个月速通武道馆了</strong>，那之后闹麻的人怎么看都不是大祥而是喵梦呀<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 15731#       发表于 2025-1-31 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322951&amp;ptid=2208921" target="_blank">oyss 发表于 2025-1-31 20:21</a>
+
+好歹火了一阵子,一点钱都没赚到么?怎么就这么喜欢当客服.</blockquote>
+引入丰川财团的大手后一切都不好说了
+
+真的火吗，会不会只是资本大手的亏钱强推，你说给了粉丝很多镜头说是真爱，那现实里也不是没有演技一塌糊涂的人被资本带火然后硬是收获一群固定粉丝的人，粉丝会不会是丰川财团的亲戚给的票才入坑的
+
+真火的话，其他人不说，小祥真能当她那个客服，不来几个粉丝堵门，丰川大手一进来，很多东西都变成不好说，这伤害太大了
+
+*****
+
+####  ml1642879  
+##### 15732#       发表于 2025-1-31 20:41
+
+手游编剧和动画不是一伙人，各有各的烂
+
+*****
+
+####  天空塔书记官  
+##### 15733#       发表于 2025-1-31 20:41
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 20:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322967&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 20:23</a>
+这个问题的根本还是清告从大企业高管瞬间变成赤贫，否则祥子不一定选择照顾他
+
+这过于不合理，如果不是编 ...</blockquote>
+而且牢爹颓废地太快太狠了，以白祥的行动力从得知父亲被逐出家门到找到他应该隔不了几天，牢爹就已经完全变酒精废人了，可想而知这是受了多大打击，而且表示自己已经没有再次努力的能力，这就表明曾经努力过，但现在已经没有了再努力的可能，可行的路径已经全部被封死了，只有可能是财团直接封杀了他<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 15734#       发表于 2025-1-31 20:42
+
+<blockquote>帆前 发表于 2025-1-31 20:36
+我觉得，祥子现在仍然是那个想为母亲献上演出的孩子，没长大
+
+于是，小祥子的人生毁掉了 . jpg ...</blockquote>
+沒事， 千早愛音是能成為我母親的女性
+
+*****
+
+####  jojonathan  
+##### 15735#       发表于 2025-1-31 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323055&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 20:37</a>
+先不管谁对谁错，柿本和独角兽都让这群人一个月速通武道馆了，那之后闹麻的人怎么看都不是大祥而是喵梦呀 ...</blockquote>
+从现实角度讲一个月武道馆不就是资本的大手嘛<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">就是不知道剧里的武道馆是啥东西了难道是啥团本
+
+*****
+
+####  烂片雷达  
+##### 15736#       发表于 2025-1-31 20:43
+
+两个活泼可爱的小女孩一个嗷的一声疯了，一个变成行尸走肉，怎么会变成这样<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

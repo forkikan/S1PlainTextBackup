@@ -12217,3 +12217,27 @@ CloseAI抄的飞快</blockquote>
 对美国人来说，Deepseek会变成我们社会主义思想的普及工具</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老黄通共说
 
+
+*****
+
+####  周愚  
+##### 934#       发表于 2025-1-31 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322818&amp;ptid=2243718" target="_blank">木水风铃 发表于 2025-1-31 20:05</a>
+
+跟小丑一样，那openai怎么支持共和党了？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+因为这条推特就是1月18日说自己支持共和党的
+
+贴吧的发帖人把民主党和共和党替换了一下，信是民主党的沃伦和贝内特写了批评openai捐款给**的
+
+
+*****
+
+####  鱼丈人  
+##### 935#       发表于 2025-1-31 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5c5565c9c9f84b7b032ade1e684df583/image.jpg" referrerpolicy="no-referrer">
+
