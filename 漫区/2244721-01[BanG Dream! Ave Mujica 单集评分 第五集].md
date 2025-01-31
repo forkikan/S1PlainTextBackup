@@ -2476,3 +2476,40 @@ go批大脑也升级了? ...</blockquote>
 +0，早点失望戳破面纱也是好事 ...</blockquote>
 我看了看泥潭这投票贴，我不得不说这这么多+2能投出来是看不到或者说装作看不到本身是对前四话彻底否定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓮華  
+##### 269#       发表于 2025-1-31 11:36
+
+编剧就这水平，看上集信誓旦旦四处找证据说是叙诡说演的人，我简直想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 270#       发表于 2025-1-31 11:39
+
+-2 结果还是要靠爱音救火
+
+
+*****
+
+####  Reinhold  
+##### 271#       发表于 2025-1-31 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318772&amp;ptid=2244721" target="_blank">qweszxc9160 发表于 2025-1-31 11:08</a>
+希望你们这套次元切割的说法能坚持到13集之后继续在这里对线 
+
+而不是缩回去go批的群里围炉取暖 继续複读 ...</blockquote>
+不是哥们，按你的说法go批不仅要顶着未完结的debuff去各社区踩头，还要一边对抗鸡友切割一边贷款鸡团动画，出事了结果自己切割跑路。
+你想象中的go批可能有点恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  李子孑  
+##### 272#       发表于 2025-1-31 11:41
+
++1,还是回到舒适圈好
+
