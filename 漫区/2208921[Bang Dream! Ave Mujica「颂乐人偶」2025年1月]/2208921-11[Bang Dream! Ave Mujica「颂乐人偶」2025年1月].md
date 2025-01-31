@@ -6748,3 +6748,85 @@ mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能�
 
 不是说大祥管理和人际这水平放现实里没问题，就好像wsd的操作大家也会骂，但哪个更容易成为锅更大的那个，从不同角度是有不同比重的。
 
+
+*****
+
+####  MASKA-1  
+##### 15415#       发表于 2025-1-31 14:06
+
+难道莫老师弹春日影把精神问题弹好了（
+
+*****
+
+####  ddy2811  
+##### 15416#       发表于 2025-1-31 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320025&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 13:47</a>
+
+我觉得反而现在才是正常的，因为作为噱头的部分已经爆完了，之后就会专注于少女乐队的描写…大概，即使再有 ...</blockquote>
+楚萍芳很清楚自己的东西从哪里来，祥子我看目前才第一次知道
+
+*****
+
+####  sauron.j  
+##### 15417#       发表于 2025-1-31 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319492&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 12:40</a>
+
+非要给鸡动画逻辑找补的话，大祥才是第一季最大的迷子，被困在黑刀之夜那个雨夜最深的人，一代目鸡团就是个 ...</blockquote>
+这应该就是剧本原本的用意吧，C团历史遗留问题不解决，鸡狗两团永无宁日
+
+
+*****
+
+####  一心而用  
+##### 15418#       发表于 2025-1-31 14:14
+
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第4话 ​​​
+<img src="https://p.sda1.dev/21/6fd6f22387c1f917c22bcd7bcc53b02c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/cfc63f1de9c26aa9e53274b111fe557c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ec483d962fda70831920ce2eabbba34d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/26b10a5e105b7df3d6008517b36c50c6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/418633881e0cb6ccfaed9d1038c40a5f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c5a3a4e1da1f2dc81fb1c850e3a6a309/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9ee7280f8274223c302a0bcb9d5c769b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0584ba7e8fa7ed2499f2a4f9c1f67c43/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0cd7d6d42074f4bcd47698eddd3e79de/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 15419#       发表于 2025-1-31 14:14
+
+下一集不管是场外还是场内都预示着还要继续压抑下去，睦头精分带来的影响也还在持续。
+
+乐观看待那睦头最快第七集上线，然后和龙场悟道的祥子开始拯救鸡团。这也对应了访谈说的睦是故事中期的重点。
+
+初华会像灯皇一样坚守母鸡卡的名号，那么其实后期关键就两个点，一个是祥睦怎么醒悟，一个怎么拉回海喵。
+
+至于初华，虽然没什么可能，但希望就是纯良大金毛，有事也不至于二度炸团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15420#       发表于 2025-1-31 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320143&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-1-31 14:02</a>
+你没看这一连串讨论，这里讨论的时间点不是刚到武道馆的节点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你想说这五人已经相处半年了？谁给你的信息，你自己吗
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wwwttth  
+##### 15421#       发表于 2025-1-31 14:15
+
+<blockquote>Lyzers 发表于 2025-1-31 13:58
+1，没回答靠人设和一句朋友就打破越权论
+
+2，相处几个月一起上大舞台live，大伙的关系就只能停留在大街上看 ...</blockquote>
+不需要回答，我前面提的点已经够多了，你抓着一个点去攻击另一个，然而实际上就是多个点结合起来一起看，说起来扶老人还真有点道理，和送睦头去看精神科一样，这是一个可能让自己背负风险的行为，且不一定成立（别人可能起来拍拍屁股就走了)，且现场本来就有更亲密关系不需要背负风险的人（青梅竹马）。
+
+我没看懂你搁那一直提美好二次元是想干嘛，现实就是这前几集本来就不美好二次元，鸡团1.0本来就没啥羁绊，唯二的睦初对祥也是单箭头舔狗，这不显然是后面才要搞羁绊的么。
+
