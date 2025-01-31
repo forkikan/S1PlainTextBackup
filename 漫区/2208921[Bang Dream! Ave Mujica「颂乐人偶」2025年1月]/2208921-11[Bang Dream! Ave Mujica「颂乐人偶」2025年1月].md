@@ -10006,3 +10006,104 @@ bang里面不现实的要素一大堆，偏偏要在这个违约金上非要给�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plok201  
+##### 15685#       发表于 2025-1-31 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322504&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 19:19</a>
+
+按你这个等式是不是一切草台都是过家家</blockquote>
+过家家这个标签又不是说你有能力有觉悟就不是过家家了，只要出问题全靠家里兜底就逃不掉
+
+很多作品都知道为了角色魅力，就算家里有帮忙也会是主角自己承担的大部分后果，家里是最后的保险顺便给你描写亲情催泪一下
+
+*****
+
+####  安娜导函数  
+##### 15686#       发表于 2025-1-31 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321945&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 18:01</a>
+还给大猫戏份才真是烂完了,直接边缘化不好吗,真给拍成大猫传啊?</blockquote>
+不给大喵戏份，你是打算找谁来打鼓呀<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 15687#       发表于 2025-1-31 19:40
+
+咦，丰川家原型前年考据不是旧古河庭园吗？怎么这么多坛友问？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 15688#       发表于 2025-1-31 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322609&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:37</a>
+
+干客服还违约金是吧，不是压根就没把失败后果当回事吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那你的意思是为了赔钱，祥子应该去干事少来钱快又多的“某类”工作，才能叫把失败后果当回事？
+
+*****
+
+####  天空塔书记官  
+##### 15689#       发表于 2025-1-31 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322605&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 19:36</a>
+第二话喵梦问美奈美和祥子认识吗，美奈美说祥子和睦从幼儿园就在一起了，微妙地回避了家里的关系 ...</blockquote>
+显然睦妈是不太想直接表明两家关系的，常见的搪塞措辞，不过大喵套话还是有点冒进了，引起了美奈美的警惕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  未来起航  
+##### 15690#       发表于 2025-1-31 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322500&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 19:18</a>
+这片最大的败笔就是真搞个违约金让老登下场收拾残局。
+
+哪怕鸡团就这么解散观众吐槽违约金的事，编剧也完全 ...</blockquote>
+违约金这一出搞笑的算是写得着急了。
+主题就是失去了自己认定的归处avemujica的祥子失魂夺魄失去“人性”的过程。把这段改成：面无表情的祥子主动给外公写了封热情洋溢的信，然后继续面无表情的接受外公热情的拥抱，效果差不多的。他给写成这副刻板爹味大家长形象了。
+反正，如果前几集的群魔乱舞能忍受，这一点bug也没啥绷不住的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  半年  
+##### 15691#       发表于 2025-1-31 19:44
+
+<img src="https://img.saraba1st.com/forum/202501/31/194439r2g31eamwtwgyctr.jpg" referrerpolicy="no-referrer">
+
+<strong>Gimmr4xbYAMQG3E.jpg</strong> (316.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 19:44 上传
+
+[https://x.com/KAWAI_AKAMAI/status/1885221487076065638/photo/1](https://x.com/KAWAI_AKAMAI/status/1885221487076065638/photo/1)
+
+*****
+
+####  杂灰  
+##### 15692#       发表于 2025-1-31 19:47
+
+要的不就是连后果都没资格承受的效果吗
+
+*****
+
+####  上条仁美  
+##### 15693#       发表于 2025-1-31 19:47
+
+<blockquote>waterstars 发表于 2025-1-31 19:48
+别的讨论我不参与，我只纠正一个表述，祥子家住的那个不是别墅，睦那个才是别墅，Villa。
+
+祥子住的是西洋 ...</blockquote>
+如果是一比一现实那旧古河庭园3万多多平方米，比很多城堡占地都大了，还是在山手线边上，相当于北京二环边上的王爷府给私人买了做成宅子
+
