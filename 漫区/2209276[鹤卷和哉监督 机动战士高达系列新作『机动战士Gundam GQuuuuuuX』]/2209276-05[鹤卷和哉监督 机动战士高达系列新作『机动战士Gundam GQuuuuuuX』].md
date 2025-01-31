@@ -3338,3 +3338,17 @@ PS2版的独立战争记的动画过场里还给他们加了几个镜头。
 
 话说后面鸭妹咋样了，看完电影没看见鸭妹被击破呀，后面脱出了还是跟夏亚一起失踪了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6185#       发表于 2025-1-31 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321836&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-1-31 17:46</a>
+体坛死虽然搞成精英才能进，但在里面混的似乎愣头青居多，牛逼的亚赞木星系都是后来才加入的。剧情强敌莱 ...</blockquote>
+巴斯克不是军人没参加一年战争的是小说版设定？
+按高达完美档案等设定集是加入联邦军参加一年战争的呀，但被吉翁俘虏了，所以没什么事迹留下，也因为俘虏期间受击翁虐待留下眼疾要戴护目镜，并极端痛恨吉翁
+<img src="https://p.sda1.dev/21/1f685728c4a63630152d786ff57a56e7/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
