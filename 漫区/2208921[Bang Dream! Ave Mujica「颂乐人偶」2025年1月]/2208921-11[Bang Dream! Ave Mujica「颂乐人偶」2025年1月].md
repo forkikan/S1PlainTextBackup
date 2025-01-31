@@ -2827,3 +2827,96 @@ KC可是正宗的神人乐队（做一张专辑换一次人、吉他手花式炸
 
 C团是真过家家但是炸了之后剧内外都感觉很可惜，A团炸了只觉得早该炸炸了，根本没人留念啊，哪怕对于最破大防的祥子来说似乎也不是非得这五个人吧，她只是想证明自己罢了
 
+
+*****
+
+####  DARK_HGCG  
+##### 15052#       发表于 2025-1-31 08:44
+
+红圈是祥爱灯
+
+蓝圈是爽睦？
+
+<img src="https://img.saraba1st.com/forum/202501/31/084415i7j11fj09ceo9jlu.jpg" referrerpolicy="no-referrer">
+
+<strong>-4077e3e056fa63bb.jpg</strong> (53.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 08:44 上传
+
+*****
+
+####  Mr.Giraffe  
+##### 15053#       发表于 2025-1-31 08:45
+
+这是刚走出ring？前面也没人，是受了多大的打击才能在众人围观下跪下<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 15054#       发表于 2025-1-31 08:47
+
+看隔壁发现的，羽丘不是月之森，有车接送放学的情况并不常见。
+祥子上学故意早出晚归（坐电车时车里只有她一个穿校服的，灯往鞋箱里塞便签时祥子早就换好室内鞋离开了，晚上等很晚了没人才离校）其实就是不想被外公逮到，这也就解释了为什么祥子在拆团后的这一个月依旧在当客服做题照顾爹三不误而不是马上回丰川家，当然最后还是被逮到了。
+外公给违约金兜底是出乎祥子意料的，那一刻祥子意识到自己没有任何反驳的余地了，只能（像人偶一样）任由安排，离开祥爹回丰川家，（祥爹是真的废了但是也有一定演的成分，当着祥子的面颓废进局子，祥子一走就目送，说明目的也是让祥子不再留下来陪自己吃苦），祥子直到看见染尘的钢琴才说出讨厌自己的结语。
+归根结底，无论如何外人怎么看家人怎么说，主创本意是不希望观众觉得这不过是又一个大小姐过家家的游戏的，这确实是一个残酷的梦碎了的故事。
+当然了现在观感上的问题还是因为之前拆队在逻辑上过于强行过于都合导致的。剧情安排上决定了银河战舰必须开局就坠毁，但是是怎么坠毁的，这个过程其实还是没有打磨好。
+
+*****
+
+####  ads147147  
+##### 15055#       发表于 2025-1-31 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317400&amp;ptid=2208921" target="_blank">DMCK 发表于 2025-1-31 08:27</a>
+KC可是正宗的神人乐队（做一张专辑换一次人、吉他手花式炸团），但是一直保持创作质量就这么断断续续搞了 ...</blockquote>
+确实，其实叫kc不如改名叫Robert Fripp和他的朋友们。
+
+说起来这样不是挺符合楼里不少人对祥子的要求嘛，有人搞事的时候居然不是把人踢走马上换人，非常不摇滚。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ads147147  
+##### 15056#       发表于 2025-1-31 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317493&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 08:47</a>
+看隔壁发现的，羽丘不是月之森，有车接送放学的情况并不常见。
+祥子上学故意早出晚归（坐电车时车里只有她 ...</blockquote>
+坠毁形式刻意和ccc对称了，至少楼里不少人对这个是不满的（包括某台）。
+
+然后一看投票加2还是更多的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  月神夜  
+##### 15057#       发表于 2025-1-31 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316874&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-31 03:02</a>
+大祥的问题就是，她创作能力强在现实商业乐队很重要，但在少女乐队世界里其实没那么重要。反过来说她没团魂 ...</blockquote>
+同感。不同意一些过家家论，到底什么是过家家？从认真对待内容来看不是，从轻易解散不对别人的投资负责来看算是。而在两个世界重视的东西是不太一样的。
+我是觉得祥子为了站在老爹一边离开富姐生活组织乐队的尝试很厉害了，所以看到有人跟着剧中路人什么大小姐说过家家有点不爽。人家只是感情纠葛多一点。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 15058#       发表于 2025-1-31 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317390&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 08:25</a>
+归根到底还是武士道哪怕不那么烂炒，不放整整一年，不搞那么多大的要来了的宣传，也不会有那么多自顾自期待 ...</blockquote>
+与其说初华是守活寡是soyo2.0，不如说是一个被主人抛弃了的人偶。soyo想要的是原来家的感觉，mygo其实可以满足她只是她原先没有意识到。但是能满足初华的只有小祥一个人而已。
+<img src="https://p.sda1.dev/21/a2cf094716e2726db6da05400eeb150e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e58b325fcef9d796750d072f24380eae/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/153deab939c305ada117076c3abd9918/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/41562972a0e73962991d737003579537/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7e25d94cd7aec2e655561bd8e2114c0b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/80498a01561544c00a15d8db0db61b29/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4b706bd3e1510aae49484e047f1270c5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b6bacfe58f04ef911d991ab72fed321c/image.jpg" referrerpolicy="no-referrer">
+

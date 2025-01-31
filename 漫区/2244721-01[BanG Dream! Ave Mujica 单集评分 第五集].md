@@ -2246,3 +2246,26 @@ go批大脑也升级了?
 扣的那一分有一半的原因归结为wsd烂炒，不然还不至于影响观感，但观感割裂事实
 至于剧本，等后面的搬上来烂了再扣，现在还不至于死刑宣判
 
+
+*****
+
+####  安娜导函数  
+##### 247#       发表于 2025-1-31 08:45
+
+-2
+真就是大小姐过家家了，说解散就解散，事务所电话不接就没事了，违约金什么的反正外公会陪的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+电话客服也只是体验生活罢了，混不下去我还是能退回去当大小姐的嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 248#       发表于 2025-1-31 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315949&amp;ptid=2244721" target="_blank">厨厨 发表于 2025-1-31 00:59</a>
+
+唉，鸡楼几个老熟人已经一星期没说过话了
+
+本来想把这群人玩切割的发言截图全拉出来挂一遍的，想了想大好日 ...</blockquote>
+我是支持的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
