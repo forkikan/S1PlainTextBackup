@@ -3063,3 +3063,59 @@ KC可是正宗的神人乐队（做一张专辑换一次人、吉他手花式炸
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  wqan1007  
+##### 15073#       发表于 2025-1-31 09:20
+
+灯真贴了俩月便签没回信啊
+
+这不跟某些高中男生感动自己一样
+
+又在鼓励低龄儿童了
+
+*****
+
+####  fsfs_freeze  
+##### 15074#       发表于 2025-1-31 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317368&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 08:17</a>
+所以我说了两边都可以送上，因为本身就可以做两种解读
+最大的原因还是武士道烂炒 ...</blockquote>
+现在我真希望ep5里路人评价mujica是过家家这句不仅是戏中的看法，也是wsd对戏外观众看法的预期。
+但后面要怎么描写才能让戏中戏外观众改变这种印象？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 15075#       发表于 2025-1-31 09:22
+
+ 本帖最后由 怀沙汨罗 于 2025-1-31 09:24 编辑 
+
+再盘盘第四话——可以说一大半观感不佳的问题都是这个双重人格设定导致的。铺垫得像个boss的mortis,却是个除了复读之外啥也不会的瘫子。可多少人直到昨天都还认为是在下大棋，不敢相信真这么菜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+现在回头看，这个设定有什么意义吗？要炸团工具人那之前对睦承受的重压刻画不是够多了吗？墨提斯出场除了吓吓soyo和回旋镖祥子之外还有什么作用呢？都真嗣吼了，结果你告诉我不光不是演的，还真就是当着买票的粉丝观众面。而解散之后队友、经纪人、家人没一个当回事，合着你们酒店会议真觉得双重人格不要紧啊？二次元的工具属性也不是这么写的吧？你要么写的像黑化大杀四方从而淡化疾病属性，要么就写写队友的关心从而增强团魂，现在好了，整的周围人都拟人了。导演不会以为结尾用恐怖片的方式打开很有节目效果吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">你强调痛苦，那观众很难不联系到现实的苦痛啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿卡拉兰斯  
+##### 15076#       发表于 2025-1-31 09:23
+
+说真的我还有点共情大祥老师了，不是因为我是大小姐有个老登在后面，单纯就是一个理解自己菜然后接受自己菜的这个过程
+学会接受自己和爱自己，就和那句台词一样“人的成长就是战胜自己不成熟的过去”
+只不过我那堆闹麻了的破事还没大祥的家庭变故大，我也没有大祥老师一个月最速武道馆的才能，可能也就有个嘴巴不会说话也无法相互理解的家人确实是爱着你的这点是一样的
+
+*****
+
+####  圣血天使  
+##### 15077#       发表于 2025-1-31 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314711&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-1-30 23:24</a>
+
+soyo这是把睦疯了的锅都揽自己头上的感觉，期待得知真相后的反应
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我在想soyo之后再跟偷摸零还有爱音对一遍信息的话，那可真是画美不看了
+
