@@ -3193,3 +3193,35 @@ JSF的视频明确说了在入港的是佩嘎萨斯级1号舰佩嘎萨斯
 
 出于战力考虑也不会把他祭天，所以挽尊哥一直有新机可以玩，最后还分到了只有强化人才能开的弹跳犬。
 
+
+*****
+
+####  岸浪白野  
+##### 6177#       发表于 2025-1-31 14:59
+
+安田朗喜欢到去看第4次拿第2份特典了
+
+<img src="https://img.saraba1st.com/forum/202501/31/145450vyea99ajaal9jg0a.png" referrerpolicy="no-referrer">
+
+<strong>CN6LA(UXOC48I@[X{X{TU53.png</strong> (124.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/145733e73lgg7ezd2gj7ng.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 14:57 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/145815a9zmwy4mg9oy3nyd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (886.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 14:58 上传
+

@@ -7155,3 +7155,184 @@ bangbang还有出道就假唱被发现的组合呢，不也和没事人一样的
 你这逻辑可以扔进垃圾桶了，一转进偶像就拿偶像那套来等同于乐队。连乐队是个什么东西都没理解明白。把你 ...</blockquote>
 你和任何一个认真搞乐队的人说，一个财阀大小姐，拉上一个顶流明星的女儿，和一个当下最火的唱作偶像组合，一个月速通武道馆（国内可以对应红磡或者至少梅奔），第一个反应都是做梦，第二个反应就是是不是姚安娜换赛道了——说真的，姚安娜在演员这上面正经投入的时间恐怕都远超一个月了。
 
+
+*****
+
+####  格林达姆  
+##### 15452#       发表于 2025-1-31 14:58
+
+ 本帖最后由 格林达姆 于 2025-1-31 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67273221&amp;ptid=2208921" target="_blank">格林达姆 发表于 2025-1-25 11:14</a>
+你的同事A（富二代，和老板从小玩到大）：别给我分配工作，我是精神病
+你的老板(一旦创业失败就只能继承 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，这下这从喵梦和海玲的视角看真回家继承家业了
+
+这下这俩要怎么样的条件下才有可能拉回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 15453#       发表于 2025-1-31 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320555&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 14:51</a>
+
+人气高就可以，以及，从合理性的角度来说，关于露不露脸这种极为关键的方向性问题，应该是写在合同里的， ...</blockquote>
+所以才说是大小姐过家家。
+
+如果你是一家家livehouse演出走下来，地下音乐圈沉淀十年，大家都对你翘首以盼的话，从制作方、经纪公司还有唱片公司那儿拿到规划的权限或许可以，作为一个结成一个月就速通武道馆的少女组合，除了大小姐过家家实在想不出有啥理由合同里没规定死，或者说没有指定一个成年老派制作人（而不是爱马仕P那种嘴唇没毛的小年轻）就已经足够匪夷所思了。
+
+*****
+
+####  江口夕  
+##### 15454#       发表于 2025-1-31 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320575&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:55</a>
+你和任何一个认真搞乐队的人说，一个财阀大小姐，拉上一个顶流明星的女儿，和一个当下最火的唱作偶像组合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人编剧就这样写的，你又知道靠的是包装而不是舞台剧加乐队这个idea火的。谁告诉你的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ddy2811  
+##### 15455#       发表于 2025-1-31 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320549&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 14:50</a>
+
+别人怎么看是别人的事，我难绷的是真有人拿片里路人嚼舌根的话以为是staff给祥子定性了 ...</blockquote>
+但就凭C团解散至今的表现，我也只能说目前为止就是大小姐过家家闹麻了，越认真越投入越沉醉也就越小丑。很多事情搞不好早就以她把银河战舰给开坠机为前提安排好了，比如初华还藏着事、mana一点不慌、各种节目和宣传有序展开、经纪公司也就嘴个两句、没人围着她拷打新闻素材等
+
+*****
+
+####  天空塔书记官  
+##### 15456#       发表于 2025-1-31 15:00
+
+而且不要太瞧不起过家家这个概念，这不是简单的玩耍，而是个体基于对自我和周围环境的认知进行的一种情景模拟，是心理状态的具象化，也就是心理治疗中的沙盘疗法或者箱庭疗法
+
+人偶不只代表乐队成员，也是祥子在世界观这个沙盘上进行的自我投射，我非人人，人人皆我，但可惜乐队的成员不是真的可以供祥子任意摆弄的模型，她们有自己的意志，这种主体被转变为客体的过程中产生了严重的认知撕裂，这就是A团爆炸的本质，“我柜子动了”，月光赋予人偶生命，但在没有月光的晚上，人偶却自己活了过来，还有比这更恐怖的吗，所以祥子害怕木头，因为木头不再是自我投射的对象，不再是主体意志的延伸，而是变成了一个陌生的客体，睦“死亡”了，现在是“Mortis”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 15457#       发表于 2025-1-31 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">claris不就是带着面具唱歌的组合吗？
+
+
+*****
+
+####  柴突猛进  
+##### 15458#       发表于 2025-1-31 15:04
+
+问了一下deepseek，目前日本的主流出道艺人，最快的登上武道馆也得7个月，那确实这个母鸡卡一个月速通武道馆太过于神话了
+
+*****
+
+####  reekilynn  
+##### 15459#       发表于 2025-1-31 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320602&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 15:01</a>
+claris不就是带着面具唱歌的组合吗？</blockquote>
+claris除了clara没动，另一边已经换了第二轮了……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  结衣小比取  
+##### 15460#       发表于 2025-1-31 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319949&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-1-31 13:37</a>
+
+完全不能细想的桥段，真是为了让女儿死心回姥爷家的话，根本解释不了第一集他给祥子发短信告别和祥子飞奔 ...</blockquote>
+祥子真不一定是飞速找到清告的，因为动画里没展示有人给她送线索，她本人没显现出情报高手的特质
+
+而且要站在清告的角度想想他的处境：老婆去世不久，自己这个入赘女婿又在工作上通了大篓子被岳父赶出公司和家门，自己仅剩的女儿肯定要被夺走切割断绝父女关系，人生一片灰暗，这么沉重的打击，难免借酒消愁
+
+*****
+
+####  玖羽  
+##### 15461#       发表于 2025-1-31 15:05
+
+<img src="https://img.saraba1st.com/forum/202501/31/150519cev8ngnxnxicvz70.jpg" referrerpolicy="no-referrer">
+
+<strong>9b85.jpg</strong> (178.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/150519kjyjg9hej2bci9az.jpg" referrerpolicy="no-referrer">
+
+<strong>53b7.jpg</strong> (157.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 15:05 上传
+
+*****
+
+####  魔灵高达  
+##### 15462#       发表于 2025-1-31 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320586&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:58</a>
+
+所以才说是大小姐过家家。
+
+如果你是一家家livehouse演出走下来，地下音乐圈沉淀十年，大家都对你翘首以盼 ...</blockquote>
+懒得说你，现在人气的管人花谱是正经初中生出道，唱了好几个动画片主题曲事业上升期。
+
+包括前几年人气高的一塌糊涂的egoist、近几年人气高的不得了的ADO，人也都是妙龄少女出道，还沉淀十年、说难听点，那是庸才之路。
+
+*****
+
+####  Lyzers  
+##### 15463#       发表于 2025-1-31 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320544&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 14:49</a>
+那你在车什么东西，没看懂，剩下三个队友和睦头没有羁绊不是2-3集就演出来的东西然后你去车第五集不把人 ...</blockquote>
+我的问题就是没羁绊就理所当然把精神状况不明的队友晾舞台上太冷漠了。
+
+然后我最一开始就说了鸡现在根本没逻辑可言。
+
+这不是你自己为了圆你的越权论，“多方面分析”，分析一次就把鸡团几个往“纯现实冷淡关系，不能管而且能不管就不管”的方向推一大步，然后又一转只要人设行和偷摸大鸡就又能越权去管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先别管动画的逻辑了你自己的逻辑理顺了吗
+
+*****
+
+####  厚乳果珍爽  
+##### 15464#       发表于 2025-1-31 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320621&amp;ptid=2208921" target="_blank">reekilynn 发表于 2025-1-31 15:04</a>
+
+claris除了clara没动，另一边已经换了第二轮了……
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+当年带面具的理由是组合年纪还小，如果不隐藏身份的话，会影响到组合的人的生活。
+
+*****
+
+####  无限舰制  
+##### 15465#       发表于 2025-1-31 15:07
+
+然后人家该说你这都是偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然也不能说完全不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  LeonsCat  
+##### 15466#       发表于 2025-1-31 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320596&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 15:00</a>
+
+人编剧就这样写的，你又知道靠的是包装而不是舞台剧加乐队这个idea火的。谁告诉你的
+
+—— 来自 Xiaomi 2 ...</blockquote>
+舞台剧+演唱+现场音乐演出，你要是觉得这是啥新点子那建议去学习一点人类学考古学的玩意，这套是从上古时代祭司们跳大神延续到现在的搞法。至于现代摇滚乐队，在演出的时候夹杂舞台剧、诗朗诵、多媒体更是前卫艺术的基操，这要能火那前卫艺术早八辈子就火了。著名如The Velvet Underground，哪怕他们对后世影响极大，但是不妨碍他们的唱片怕只能卖出去三万张~
+
