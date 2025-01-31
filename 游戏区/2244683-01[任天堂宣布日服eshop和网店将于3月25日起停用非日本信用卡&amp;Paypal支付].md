@@ -1601,3 +1601,16 @@ eshop日服之前也锁过一阵海外信用卡吧？
 
 蛙蛙也怨声载道
 
+
+*****
+
+####  duo_wolf  
+##### 165#       发表于 2025-1-31 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318227&amp;ptid=2244683" target="_blank">君往何处 发表于 2025-1-31 10:09</a>
+
+个人会员可以，家庭不行
+
+https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
+确切点说，家庭会员是可以用点卡冲余额买的，但是需要登陆信用卡信息才能用余额，所以…………
+
