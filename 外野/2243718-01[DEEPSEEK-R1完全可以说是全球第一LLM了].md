@@ -11738,3 +11738,31 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  linc555  
+##### 894#       发表于 2025-1-31 16:37
+
+api调用的回复是没有推理过程的，有大佬能讲讲区别么
+
+推理过程是一个在web上通过关键词生成的有效流程
+
+还是一个可以被省略的部分？
+
+
+*****
+
+####  moeblack  
+##### 895#         楼主| 发表于 2025-1-31 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321294&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:37</a>
+api调用的回复是没有推理过程的，有大佬能讲讲区别么
+
+推理过程是一个在web上通过关键词生成的有效流程
+
+还是 ...</blockquote>
+哪个api？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
