@@ -26,3 +26,13 @@
 
 阿金你就这么想推销通行证吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1366#       发表于 2025-1-31 16:46
+
+ 本帖最后由 冰风血羽 于 2025-1-31 16:48 编辑 
+
+而且装备贝壳爆率也高，没有月卡那玩意开吧电池消耗大，不开吧总觉得亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

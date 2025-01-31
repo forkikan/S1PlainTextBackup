@@ -11766,3 +11766,73 @@ api调用的回复是没有推理过程的，有大佬能讲讲区别么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  西林  
+##### 896#       发表于 2025-1-31 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321294&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:37</a>
+api调用的回复是没有推理过程的，有大佬能讲讲区别么
+
+推理过程是一个在web上通过关键词生成的有效流程
+
+还是 ...</blockquote>
+你得选R1，不选是V3，V3就是没有思维链的
+
+*****
+
+####  Azcarlo  
+##### 897#       发表于 2025-1-31 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321294&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:37</a>
+
+api调用的回复是没有推理过程的，有大佬能讲讲区别么
+
+推理过程是一个在web上通过关键词生成的有效流程
+
+还是 ...</blockquote>
+你确定吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+[https://api-docs.deepseek.com/zh-cn/guides/reasoning_model](https://api-docs.deepseek.com/zh-cn/guides/reasoning_model)
+
+而且现在官方r1的api是崩了的，你调得不会是什么其他托管平台的吧
+
+*****
+
+####  linc555  
+##### 898#       发表于 2025-1-31 16:49
+
+ model = deepseek-reasoner 
+
+因为官网的api部分打不开了，所以我是找的kimi告诉我的
+
+
+*****
+
+####  moeblack  
+##### 899#         楼主| 发表于 2025-1-31 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321410&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:49</a>
+ model = deepseek-reasoner 
+
+因为官网的api部分打不开了，所以我是找的kimi告诉我的 ...</blockquote>
+啊，啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你这话里面没有任何有效信息啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  linc555  
+##### 900#       发表于 2025-1-31 16:53
+
+<blockquote>Azcarlo 发表于 2025-1-31 16:47
+你确定吗？
+
+https://api-docs.deepseek.com/zh-cn/guides/reasoning_model
+
+而且现在官方r1的api是崩了的 ...</blockquote>
+我咋节前就充个100块，搞了个api key 
+
+当时是想用来在vscode里跑continue，项目有个小的前端bug程序请假了没人修，我看着难受就就想自己修修看
+
