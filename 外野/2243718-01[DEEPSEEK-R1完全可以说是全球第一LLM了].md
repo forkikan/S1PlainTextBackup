@@ -12250,3 +12250,13 @@ CloseAI抄的飞快</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323090&amp;ptid=2243718" target="_blank">鱼丈人 发表于 2025-1-31 20:41</a></blockquote>
 大模型经典bug，重新生成一下就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jeokeo  
+##### 937#       发表于 2025-1-31 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311125&amp;ptid=2243718" target="_blank">zerona 发表于 2025-1-30 17:24</a>
+啥意思？第三方的api不就是另外公司搭的吗？肯定没影响啊。</blockquote>
+啊？啥？我一直以为第三方是中转的api……
+

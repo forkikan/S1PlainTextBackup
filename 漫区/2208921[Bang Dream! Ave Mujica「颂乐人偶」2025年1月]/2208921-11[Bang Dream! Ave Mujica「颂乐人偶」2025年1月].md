@@ -10755,3 +10755,65 @@ lyy老师的爱素
 第五话这段默剧想表现祥子坏掉了成了没心的人偶。但是场外很多人都当成了go时期冷酷黑祥。 是不是可以说是 ...</blockquote>
 不算，主要是黑祥上线过一次，不管怎么表现都会让人往黑祥上联系的，但好在她还是会被灯皇搞破防
 
+
+*****
+
+####  厚乳果珍爽  
+##### 15754#       发表于 2025-1-31 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323207&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 20:57</a>
+
+从编剧的病情来看其实不算太假，我思考了下祥子的心态也不是不可能，我看了下也没被证伪。
+
+就是是真的有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说按那个发展简直是太变态了，整个角色都被毁灭的彻底，除了小丑就没任何合适的词了
+
+*****
+
+####  wwwttth  
+##### 15755#       发表于 2025-1-31 21:08
+
+<blockquote>看穿一切的鱼 发表于 2025-1-31 21:02
+大祥现在的状态应该不会接受任何提案，只听老登摆布。要是真的那灯祥的风评要一起入土了
+
+—— 来自 S1Fu ...</blockquote>
+
+我觉得灯不至于风评烂掉，这话也是灯说的一起来组乐团，真犹豫也是不想太伤害祥子的表达，而且灯的心态也不可能抛弃任何一个人的。但是祥肯定立刻烂掉，这已经不是一般的烂掉是变态级别的烂掉
+
+*****
+
+####  天空塔书记官  
+##### 15756#       发表于 2025-1-31 21:10
+
+剧透有链接或者贴名吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  凉良  
+##### 15757#       发表于 2025-1-31 21:10
+
+我都不懂为啥这集有那么多车灯的
+
+*****
+
+####  aptx8285144  
+##### 15758#       发表于 2025-1-31 21:12
+
+虽然可能没几个人在意了，我看到淘宝还给我推送那张大祥抱着四个人偶的图<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 15759#       发表于 2025-1-31 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323273&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 21:10</a>
+
+剧透有链接或者贴名吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太傻逼被删了
+翔吃回头草剧透反白
+
