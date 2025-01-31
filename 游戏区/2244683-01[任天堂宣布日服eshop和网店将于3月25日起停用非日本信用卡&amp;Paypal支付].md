@@ -1635,3 +1635,13 @@ dmm游戏很多国内氪金的吧 ，我这龙卡好像还能用
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  JustW  
+##### 168#       发表于 2025-1-31 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310624&amp;ptid=2244683" target="_blank">M乔梦 发表于 2025-1-30 16:06</a>
+jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人都碰到苹果日区商店国内发行的jcb绑定不了的情况 ...</blockquote>
+会限制，比如我在国内办的jcb就没办法在jcb官网注册新的认证，所以eplus就用不了
+

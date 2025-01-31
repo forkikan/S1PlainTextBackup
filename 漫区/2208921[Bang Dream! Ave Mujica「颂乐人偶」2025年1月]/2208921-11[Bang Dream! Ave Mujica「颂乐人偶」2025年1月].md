@@ -6179,3 +6179,131 @@ https://www.bilibili.com/video/BV1N8Fhe9EE6/
 
 mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能好一点？但是大喵和海玲又没理由加入了。<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dengwl  
+##### 15364#       发表于 2025-1-31 13:17
+
+ 本帖最后由 dengwl 于 2025-1-31 13:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319770&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-31 13:15</a>
+
+mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能好一点？但是大喵和海玲又没理由加入了。 ...</blockquote>
+其实到现在了，观众的观感和后续剧情基本没太大关系了，基本就是看对前四集的那些爆爆爆的剧情容忍度了
+
+*****
+
+####  LeonsCat  
+##### 15365#       发表于 2025-1-31 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319741&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-31 13:10</a>
+
+其实挺简单的：祥子去走正规流程去提企划、谈判，然后证明自己的实力。
+
+我猜测，她大概率知道有背后的因 ...</blockquote>
+还是那句话，你要讲音乐性，那首先你别把自己定位成偶像；其次哪怕定位成乐队，那乐队讲音乐性的时候首先就问你有几张独立专辑了，专辑内部的、之间的思想是怎么组织的；然后想要做出高质量的专辑，不敢说部分绝对天才，大部分乐队都需要沉淀、积累的，高强度巡演可能是对出专辑仅次于乐队分裂最糟糕的情况。
+
+*****
+
+####  yaneis  
+##### 15366#       发表于 2025-1-31 13:17
+
+<blockquote>qratosones1337 发表于 2025-1-31 13:13
+也可能是潜规则式的对赌——从一开始就先打着丰川集团的旗号，此时老登不出来划清界限就是默认担保了。同 ...</blockquote>
+虽然对赌本来就挺牵强，但潜规则的对赌就更难绷了……最后要不就不写，要不就是表面对赌协议
+
+*****
+
+####  南宮凝香  
+##### 15367#       发表于 2025-1-31 13:19
+
+<blockquote>JustW 发表于 2025-1-31 13:08
+除非祥子连自己家族企业有哪些都不知道、或者连自己乐队海报都没看过、也从来不和经纪公司有交流 ...</blockquote>
+也可以是她以為豐川集團投錢是她靠計劃書打動的
+
+實際上豐川集團就看了提案人的名字就批錢了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  yaneis  
+##### 15368#       发表于 2025-1-31 13:19
+
+<blockquote>看穿一切的鱼 发表于 2025-1-31 13:15
+mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能好一点？但是大喵和海玲又没理由加入了。 ...</blockquote>
+嗯，玩票性质确实还在学生能力范围内，但其他方面又不好圆了（
+
+*****
+
+####  JustW  
+##### 15369#       发表于 2025-1-31 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319797&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 13:19</a>
+也可以是她以為豐川集團投錢是她靠計劃書打動的
+
+實際上豐川集團就看了提案人的名字就批錢了 ...</blockquote>
+还不如说祥子以为自己戴着面具家里人就认不出来了，不过仔细想想在这个世界观也不是不可能，毕竟soyo就真没认出来
+
+*****
+
+####  LeonsCat  
+##### 15370#       发表于 2025-1-31 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319769&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 13:15</a>
+
+那不就坐实了喵梦就是左右横跳小人嘴脸</blockquote>
+对啊，她就是标准的那种小地方上京的天桥艺人，别说戴面具摘面具了，为了吸引观众来个徒手劈瓦也没任何问题。
+
+这种人在日本其实更常见的是走搞笑艺人这条路，你镇不住她，那就是被她捏扁搓圆。
+
+*****
+
+####  月光润色  
+##### 15371#       发表于 2025-1-31 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">丰川家族势力又没明说给兜底的就默认有了吗，合理推论不代表剧情真是这么发展的啊
+
+
+*****
+
+####  天空塔书记官  
+##### 15372#       发表于 2025-1-31 13:24
+
+丰川家出来兜底是因为祥子姓丰川，而不是一定有协议或者计划好的，即使祥子真靠自己组了玩票乐队，如果出了事，她姥爷一样会出手的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 15373#       发表于 2025-1-31 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319786&amp;ptid=2208921" target="_blank">dengwl 发表于 2025-1-31 13:17</a>
+
+其实到现在了，观众的观感和后续剧情基本没太大关系了，基本就是看对前四集的那些爆爆爆的剧情容忍度了 ...</blockquote>
+能圆回来几个人设我就知足了，在我看来结局大喵和睦祥和解就是烂尾，如果是大喵发力拿预告里那几句话找大祥重组乐队那就是烂中烂。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 15374#       发表于 2025-1-31 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319761&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 13:14</a>
+你又滑坡到啥了，说的是散团后黑不把睦头送精神科，那不当然是只能黑到祥和睦她父母？行动力强能越权不代 ...</blockquote>
+你只说上集散团之后，这集开始直接回到家，那可能还算成立。但问题是动画散团live之后，还有一大段各回各家各找各妈的片段，实打实的谁都没有管睦头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直都有说在live之后晾睦头这事，怎么就是我滑坡了
+
+而且越权说搞得怪严肃怪现实的，说什么越权什么资格，结果要打破，原来纠结这么久还是一句人设如此和我们是偷摸大鸡就能打破了啊，太美好了我们二次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

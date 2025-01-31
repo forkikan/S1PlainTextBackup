@@ -2953,3 +2953,19 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  57042711  
+##### 6159#       发表于 2025-1-31 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318571&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-1-31 10:47</a>
+可以硬解释：
+
+回头其实有设定补充，扎古的那个眼包括了激光通讯器，要照射队友实现通讯。
+
+捂胳膊则可以解 ...</blockquote>
+我去原来这么细吗，战场环境过于恶劣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
