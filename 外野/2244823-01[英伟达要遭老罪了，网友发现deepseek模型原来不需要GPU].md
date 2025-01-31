@@ -1,0 +1,421 @@
+﻿
+*****
+
+####  宏.  
+##### 1#       楼主       发表于 2025-2-1 00:27
+
+ 本帖最后由 宏. 于 2025-2-1 00:28 编辑 
+
+简单来说，直接用大内存+多块SSD就可以跑671B（全尺寸）deepseek R1模型，根本不用GPU，这要是确实可行，LLM直接变成小算力+大存储模式，这甚至能塞进笔记本里面，谁还需要买老黄的GPU，英伟达腰斩指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直觉上这确实更接近人脑的模型
+
+[https://www.reddit.com/r/LocalLL ... sec_without_gpu_on/](https://www.reddit.com/r/LocalLLaMA/comments/1idseqb/deepseek_r1_671b_over_2_toksec_without_gpu_on/)
+
+<img src="https://img.saraba1st.com/forum/202502/01/002757stoleobelemo4s55.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-02-01_00-21-32.png</strong> (247.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 00:27 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 偽物| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  希望之花  
+##### 2#       发表于 2025-2-1 00:29
+
+记得一开始还要用英伟达自家的汇编，现在已经迭代到不用gpu了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  a317216007  
+##### 3#       发表于 2025-2-1 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">把配置要求摸清楚的话，堆一堆内存和SSD说不定能整一个一键部署的家庭装
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 偽物| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  cnwind042  
+##### 4#       发表于 2025-2-1 00:32
+
+烧GPU算力的不是训练的时候吗，部署本来也不会给老黄多卖多少GPU吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qumkml423  
+##### 5#       发表于 2025-2-1 00:35
+
+那利好有海力士三星的棒子了
+
+*****
+
+####  树洞专用  
+##### 6#       发表于 2025-2-1 00:36
+
+跑完整模型真的牛逼好吧，观望一下r2出来能不能这么玩，说不定得提前囤点固态，比h100可便宜多了
+
+*****
+
+####  璇瑢子R  
+##### 7#       发表于 2025-2-1 00:38
+
+本来都可以用cpu跑呀。只要你能存的下运行的模型
+
+*****
+
+####  jxwats1  
+##### 8#       发表于 2025-2-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324590&amp;ptid=2244823" target="_blank">希望之花 发表于 2025-2-1 00:29</a>
+记得一开始还要用英伟达自家的汇编，现在已经迭代到不用gpu了吗
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+不一样，你说的是训练的时候没用coda，这里是用训练好的模型推理不用显卡
+
+*****
+
+####  frankCC  
+##### 9#       发表于 2025-2-1 00:41
+
+你看下帖子内容啊，每秒 2token 的输出黄花菜都凉了，这帖子纯粹为了迎合反老黄的情绪，一点实用性都没有。
+
+*****
+
+####  d2loader  
+##### 10#       发表于 2025-2-1 00:41
+
+ 本帖最后由 d2loader 于 2025-2-1 00:42 编辑 
+
+AMD狂喜，你这个思路不如双路epyc吃满24通道DDR5跑了
+
+国外已经有人做过试验能跑到8tokens每秒
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  宏.  
+##### 11#         楼主| 发表于 2025-2-1 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324634&amp;ptid=2244823" target="_blank">璇瑢子R 发表于 2025-2-1 00:38</a>
+
+本来都可以用cpu跑呀。只要你能存的下运行的模型</blockquote>
+deepseek以前CPU跑的效率是没法接受的，但这要是真行，瓶颈在pcie通道上
+
+*****
+
+####  alixsander  
+##### 12#       发表于 2025-2-1 00:44
+
+2tps什么概念，兄弟
+
+不要搞笑好吗
+
+*****
+
+####  璇瑢子R  
+##### 13#       发表于 2025-2-1 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324624&amp;ptid=2244823" target="_blank">qumkml423 发表于 2025-2-1 00:35</a>
+那利好有海力士三星的棒子了</blockquote>
+主贴里这个人用ssd只是因为他只有96G内存。装不下整个模型
+只要内存够大就完全不需要和ssd有关
+
+*****
+
+####  宏.  
+##### 14#         楼主| 发表于 2025-2-1 00:46
+
+ 本帖最后由 宏. 于 2025-2-1 00:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324641&amp;ptid=2244823" target="_blank">frankCC 发表于 2025-2-1 00:41</a>
+
+你看下帖子内容啊，每秒 2token 的输出黄花菜都凉了，这帖子纯粹为了迎合反老黄的情绪，一点实用性都没有。 ...</blockquote>
+你仔细看，这是x4 nvme跑出来的，这才16x通道，家用机主板专门设计一下搞个64x，插16个ssd问题不大
+
+*****
+
+####  tansapple  
+##### 15#       发表于 2025-2-1 00:46
+
+好消息是显卡还能继续探底，坏消息是固态要涨了是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 16#       发表于 2025-2-1 00:46
+
+这么高配置结果每秒2token  只能说闹麻了
+
+*****
+
+####  都是好事  
+##### 17#       发表于 2025-2-1 00:49
+
+不是一直可以吗？用gpu是快
+
+*****
+
+####  坏掉了  
+##### 18#       发表于 2025-2-1 00:51
+
+还是需要大内存，4xNVMe的速度不行
+
+*****
+
+####  宏.  
+##### 19#         楼主| 发表于 2025-2-1 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324671&amp;ptid=2244823" target="_blank">凉良 发表于 2025-2-1 00:46</a>
+
+这么高配置结果每秒2token  只能说闹麻了</blockquote>
+看原文。这个速度的瓶颈根本不在CPU和GPU，30901ti纯粹是个摆设
+
+After experimenting with various setups, the bottle neck is clearly my Gen 5 x4 NVMe SSD card as the CPU doesn't go over ~30%, the GPU was basically idle, and the power supply fan doesn't even come on.
+
+*****
+
+####  tonyunreal  
+##### 20#       发表于 2025-2-1 00:52
+
+6000刀买epyc或者Mac Studio(m2 ultra)的方案更可行一点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Alce79  
+##### 21#       发表于 2025-2-1 00:52
+
+ 本帖最后由 Alce79 于 2025-2-1 00:54 编辑 
+
+这次的事对老黄是绝对利好，轻量化用户吃不着但是能吃上各国的ai梦. 英国国会上也开始讨论建设ai了.
+
+BV1NTFDe3EQ2
+
+沙特肯定也会跟上，打下价格之后会掀起ai狂潮.
+
+除了基础通用模型以外还有各家公司给用户打造的专用模型（类似tiktok算法怎么舒服怎么来）.
+
+最惨的只有奥特曼和闭源门阀，要么抓紧跑出划时代Ai要么开源大家一起滚泥巴.
+
+*****
+
+####  lin2004  
+##### 22#       发表于 2025-2-1 00:53
+
+<blockquote>坏掉了 发表于 2025-2-1 00:51
+还是需要大内存，4xNVMe的速度不行</blockquote>
+该出专用硬件了.PNG
+
+*****
+
+####  catyoursis  
+##### 23#       发表于 2025-2-1 00:56
+
+这个文的意思大概是对于一般人来说，用显卡跑部署好的蒸馏模型，不如直接用4块nvme ssd来跑671B的完整模型，他意思是虽然慢，但是质量比蒸馏的好。
+
+不过2tps是不是太慢了。。
+
+*****
+
+####  百猪夜行  
+##### 24#       发表于 2025-2-1 00:56
+
+我机器是64g内存加4090，跑32b那个能全装显存里非常快，跑70b那个内存虽然能装的下，但速度就慢了不少。如果是完整671b那个模型，内存都装不下跑在SSD上速度会慢的没有实用价值吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  lin2004  
+##### 25#       发表于 2025-2-1 01:00
+
+<blockquote>百猪夜行 发表于 2025-2-1 00:56
+我机器是64g内存加4090，跑32b那个能全装显存里非常快，跑70b那个内存虽然能装的下，但速度就慢了不少。如 ...</blockquote>
+还是有意义的，单人跑着玩只要求10到20每秒的话瓶颈在hbm上，有人搞特化硬件的话完整模型作为个人玩具可就有盼头了。
+
+*****
+
+####  LeonsCat  
+##### 26#       发表于 2025-2-1 01:10
+
+那啥，你敲算盘、列竖式手撸算子也能跑，连CPU都不需要。
+
+*****
+
+####  宏.  
+##### 27#         楼主| 发表于 2025-2-1 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324726&amp;ptid=2244823" target="_blank">lin2004 发表于 2025-2-1 01:00</a>
+
+还是有意义的，单人跑着玩只要求10到20每秒的话瓶颈在hbm上，有人搞特化硬件的话完整模型作为个人玩具可 ...</blockquote>
+对，这个案例实际是说CPU/GPU就不是本地运行的瓶颈，瓶颈是在满足足够存储容量之后的存储带宽，显然用显存是太贵了而且老黄压根不卖给你，用内存也很贵，用SSD很便宜但是很慢，那么问题变成了用什么样的存储组合能跑出来20token的速度
+
+*****
+
+####  liquer  
+##### 28#       发表于 2025-2-1 01:13
+
+这会不会利好asic
+
+*****
+
+####  冰寒之月  
+##### 29#       发表于 2025-2-1 01:16
+
+ssd还是太慢了 普通内存其实就够了 利好EPYC
+
+AMD Yes！
+
+*****
+
+####  月亮上的珊瑚  
+##### 30#       发表于 2025-2-1 01:18
+
+这是不是有利于推进PCIe7.0
+
+*****
+
+####  qwased  
+##### 31#       发表于 2025-2-1 01:23
+
+ 本帖最后由 qwased 于 2025-2-1 01:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">你去买一套华强北E5+C612神机插满768GB内存也就四千多RMB，速度也是2token/s啊
+
+*****
+
+####  明羽杏子  
+##### 32#       发表于 2025-2-1 01:46
+
+闹麻了，你用cpu跑跑试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  btnooni  
+##### 33#       发表于 2025-2-1 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我看有人拿纯EYPC+ddr5跑400GB的671B的R1也在2t/s左右，主楼那贴跑的是200G的MoE量化671B，拿来给EYPC跑那可以往4t/s靠了吧。然后这配置随便跑个70B模型那速度肯定够用。
+
+*****
+
+####  gammatau  
+##### 34#       发表于 2025-2-1 02:16
+
+ 本帖最后由 gammatau 于 2025-2-1 02:21 编辑 
+
+这是真烧SSD啊哥们
+
+2bit的量化模型就200多G，上个服务器直接装256G内存不比整这SSD便宜？还更快
+
+*****
+
+####  Beams!  
+##### 35#       发表于 2025-2-1 02:20
+
+这个帖子应该发在弱智吧。。。
+
+*****
+
+####  中国科学院  
+##### 36#       发表于 2025-2-1 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324661&amp;ptid=2244823" target="_blank">alixsander 发表于 2025-2-1 00:44</a>
+2tps什么概念，兄弟
+
+不要搞笑好吗</blockquote>
+那不，就是，这样，说，话的，样子，<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Sza  
+##### 37#       发表于 2025-2-1 02:28
+
+ 本帖最后由 Sza 于 2025-2-1 02:37 编辑 
+
+一个想法，傲腾持久内存DCPMM性能介于内存和SSD，如果未来有（国产）厂商能以合理价格生产以及生态开放，LLM是不是能用上？
+
+我想到这点后去查了下新闻，刚好看见新存科技在上个月发了新产品的官网新闻 <blockquote> 新存科技发布升级版更大容量存储芯片“NM102”
+
+2025年1月22日，公司宣布最新力作——非易失性新型存储器“NM102”震撼问世。这款新产品不仅单颗芯片容量达到了惊人的128Gb，更在性能上实现了重大突破，支持4K高速访问，读带宽高达3.2GB/s，树立了业界新标杆。
+
+<img src="https://img.saraba1st.com/forum/202502/01/023705g8axcs0kd82lfduz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2321.png</strong> (160.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 02:37 上传
+
+在实际应用场景中，“NM102”展现出了卓越的性能表现。经过严格测试，搭载该芯片的服务器能够实现微秒级的超快响应时间，确保企业在处理海量数据时，仍能保持高效流畅的运行状态。这一显著提升，对于需要处理大量数据的企业级用户而言，无疑是一大福音，能够极大地提高工作效率。
+
+值得一提的是，“NM102”在保证高性能的同时，还采用了独特的存储机制，有效延长了存储寿命，**降低了客户的整体拥有成本。这一创新设计，不仅提升了产品的性价比，也进一步增强了新存科技在存储市场的竞争力。
+
+此次发布的“NM102”，不仅是公司在大容量新型存储器领域的又一力作，更是技术创新和产品升级的生动体现。与2024年9月成功发布的中国首款最大容量新型存储器芯片“NM101”相比，“NM102”在容量上实现了翻倍增长，标志着新存科技在大容量存储技术上迈出了更加坚实的一步。
+
+目前，公司已经初步构建了有竞争力的新型存储芯片产品组合，并积极向国内云服务厂商等核心客户提供“NM102”样品，进行了一系列严格的性能测试和兼容性验证。这一系列举措的顺利实施，不仅验证了“NM102”的卓越性能和稳定性，也为新存科技在未来市场中的广泛应用奠定了坚实基础。
+
+随着大数据应用的迅猛发展，市场对高性能存储产品的需求日益增加。公司此次推出的“NM102”，恰逢其时，将助力新存科技在大数据时代浪潮中迅速占领市场制高点，为终端用户提供更加高效、可靠的存储解决方案，创造更大的价值回报。
+
+[https://www.numemory.com/newsinfo/7985708.html](https://www.numemory.com/newsinfo/7985708.html)</blockquote>
+
+*****
+
+####  big9999  
+##### 38#       发表于 2025-2-1 03:01
+
+以前硬盘挖矿又可以再来一遍了？
+
+*****
+
+####  懂懂懂？  
+##### 39#       发表于 2025-2-1 03:10
+
+我记得ai刚火的时候就可以用cpu了
+
+*****
+
+####  24k纯帅  
+##### 40#       发表于 2025-2-1 04:05
+
+训练和推理本来就不是一回事，
+
+
+*****
+
+####  希德尼娅  
+##### 41#       发表于 2025-2-1 04:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324714&amp;ptid=2244823" target="_blank">百猪夜行 发表于 2025-2-1 00:56</a>
+我机器是64g内存加4090，跑32b那个能全装显存里非常快，跑70b那个内存虽然能装的下，但速度就慢了不少。如 ...</blockquote>
+32b和70b的输出差别大吗
+

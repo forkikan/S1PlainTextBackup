@@ -12475,3 +12475,16 @@ r1写文太癫了，不管什么题材写着写着就开始往玄幻去了，而
 
 v3倒是比较正常，但是稍微让续写一下就开始变复读机
 
+
+*****
+
+####  LeonsCat  
+##### 957#       发表于 2025-2-1 04:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325049&amp;ptid=2243718" target="_blank">KBAC 发表于 2025-2-1 04:52</a>
+
+r1写文太癫了，不管什么题材写着写着就开始往玄幻去了，而且不听话，思维巨发散，会过度理解要求
+
+v3倒是比 ...</blockquote>
+默认温度太高了。
+

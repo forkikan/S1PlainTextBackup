@@ -1503,12 +1503,12 @@
     "update": false
   },
   "1849302": {
-    "totalreply": 1647,
+    "totalreply": 1648,
     "title": "[EPIC每周白嫖指南：无人机竞速联盟模拟器]",
-    "newtitle": "[EPIC每周白嫖指南：倾听画语： 最美好的景色]",
-    "lastedit": 1737649095,
+    "newtitle": "[EPIC每周白嫖指南：苏醒之路]",
+    "lastedit": 1738357568,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1861134": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 131558,
+    "totalreply": 131560,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738354448,
+    "lastedit": 1738357210,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13365,10 +13365,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 956,
+    "totalreply": 957,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738356968,
+    "lastedit": 1738357212,
     "category": "外野",
     "active": true,
     "update": false
@@ -17005,6 +17005,24 @@
     "title": "[【怀旧】以前有部叫《新女驸马》的电视剧，其实编剧是不是原意想百合结尾]",
     "newtitle": "[【怀旧】以前有部叫《新女驸马》的电视剧，其实编剧是不是原意想百合结尾]",
     "lastedit": 1738346893,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2244823": {
+    "totalreply": 41,
+    "title": "[英伟达要遭老罪了，网友发现deepseek模型原来不需要GPU]",
+    "newtitle": "[英伟达要遭老罪了，网友发现deepseek模型原来不需要GPU]",
+    "lastedit": 1738357213,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2244816": {
+    "totalreply": 41,
+    "title": "[西大智库想到绝妙的办法应对东大：去把东大最好的工程师都挖过来，因为西大更安全]",
+    "newtitle": "[西大智库想到绝妙的办法应对东大：去把东大最好的工程师都挖过来，因为西大更安全]",
+    "lastedit": 1738357570,
     "category": "外野",
     "active": true,
     "update": false
