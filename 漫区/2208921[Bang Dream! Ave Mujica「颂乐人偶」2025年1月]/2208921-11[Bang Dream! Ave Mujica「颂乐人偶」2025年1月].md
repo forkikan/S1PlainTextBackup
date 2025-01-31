@@ -5046,3 +5046,66 @@ b站评分都能降到8.8啊，夸张哦
 是的你又说到点上了，其他这些人也是在干什么呢？就跟这一集突然冒出来的staff一样，闹这么大了这才出来前 ...</blockquote>
 当然是是啊，睦父母明显参与在剧情里，你在对事情发展的情况更不了解的情况下，凭什么能代替别人做决定呢？
 
+
+*****
+
+####  怀沙汨罗  
+##### 15260#       发表于 2025-1-31 11:47
+
+ 本帖最后由 怀沙汨罗 于 2025-1-31 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319006&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 11:32</a>
+显然也不是第二种啊，这几个人设包饺子也不会包成校园少女乐队，加强羁绊和商业乐队是不矛盾的，鸡团1.0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我感觉你是不是老糊涂了？我哪里说让乐队成员送去精神科了？
+你不如先理理这张图吧，动画都特意交代了观众看得出来乐队成员精神状态不对劲，但却对四位“同事”关注却惜字如金。像写路人那样提一嘴关心应该不算“送精神科”吧？<img src="https://p.sda1.dev/21/da99da4466f391075cc50278187c7e2c/image.jpg" referrerpolicy="no-referrer">
+最让我感到分裂的就是海玲，明明第三话特意给她镜头说明意识到睦的不对劲，可4-5集演了什么呢？哪怕是雇佣兵也首先应该是个正常人吧。而喵梦，到现在制作组还强调什么演技，搞笑的是闪回的演技特写也不敢提双重人格，按理说那不是更能体现演技？还是说制作组自己都知道圆不下去了。如果没有路人这一帧，我还能说是制作组没有刻意强调mortis的异样，但他们既然这么干了，不由得让人不拿其他队员和正常路人对比。
+另外我不是在车角色，是在车整个制作组，连正常人的反应不给一个“命运共同体”，如果真要复辟只会让人觉得虚伪。
+因为结尾既然特意点出睦不是表演，就是有精神疾病，那么她的痛苦是实打实的，没有任何虚假成分，这份因果由谁承担呢？还得靠c团的人物吗？我感到可惜，为本来应该可以写的更好的故事，而这其实并不难做到。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Lyzers  
+##### 15261#       发表于 2025-1-31 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319078&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 11:43</a>
+
+当然是是啊，睦父母明显参与在剧情里，你在对事情发展的情况更不了解的情况下，凭什么能代替别人做决定呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就好了，按这么说祥子还有丰川家的长辈，爱灯去找祥也是越权，大祥幸福不幸福关你俩啥事？
+
+虽然素食跑睦头家找睦头还不知道用的什么理由，但又关你素食什么事？
+
+更重要按越权说法，大祥也能说睦爹妈都不管，我就一个青梅+队长，我管什么？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故事也按这个标准展开，大伙遇到事就先掂量一下自己的级别，心中默念“关我屁事关你屁事关他屁事”自己该干嘛干嘛好吧
+
+
+*****
+
+####  qratosones1337  
+##### 15262#       发表于 2025-1-31 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67315944&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-1-31 00:58</a>
+睦第一集被喵梦摘面具一脸惊恐（睦为数不多的表情），直接导致第二集睦整个人崩溃
+
+但是二三四集这么多睦 ...</blockquote>
+不知者不罪，一直到第五集大喵都还在以为睦头是天赋异禀的演员以至于给自己都打出真伤了。而这个理由对大祥显然不成立，她明知道睦头状态不对劲还是自顾自地给睦头上压力，甚至自己意识到自己说错话了还扭头就跑，被大墨直球点草才是应该的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 15263#       发表于 2025-1-31 11:52
+
+八幡海铃第七代火影说
+
+}XSCBSB8Z]_{S7`JW4FN%2I.jpg
+(176.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/115218a24pp2r2qwq8eezf.jpg" referrerpolicy="no-referrer">
+
