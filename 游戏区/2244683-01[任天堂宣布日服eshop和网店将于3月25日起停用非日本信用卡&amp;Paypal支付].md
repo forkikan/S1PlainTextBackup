@@ -1614,3 +1614,24 @@ eshop日服之前也锁过一阵海外信用卡吧？
 https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 确切点说，家庭会员是可以用点卡冲余额买的，但是需要登陆信用卡信息才能用余额，所以…………
 
+
+*****
+
+####  clyde-wang  
+##### 166#       发表于 2025-1-31 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319257&amp;ptid=2244683" target="_blank">清浦刹那 发表于 2025-1-31 12:09</a>
+蛙蛙也怨声载道</blockquote>
+因为湾湾没eshop，用的港服和日服，汇率低所以用日服的更多
+
+*****
+
+####  ace7ace  
+##### 167#       发表于 2025-1-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310652&amp;ptid=2244683" target="_blank">畜男不是人 发表于 2025-1-30 16:11</a>
+是的 DMM也不行了，以前还去买点漫画，今年省钱了</blockquote>
+dmm游戏很多国内氪金的吧 ，我这龙卡好像还能用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

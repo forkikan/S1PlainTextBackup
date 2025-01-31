@@ -5951,3 +5951,231 @@ https://www.bilibili.com/video/BV1N8Fhe9EE6/
 
 怎么第五集大家反而吵的更严重了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 15344#       发表于 2025-1-31 13:06
+
+其实就是没有手腕制裁大喵情况下，还不肯背靠外公的财力打压大瞄（当然这和照顾父亲会发生“矛盾”，说白了独角兽等人想要的太多），独角兽这些人都已经上武道馆了，还既想要现实又不肯放下身段，最后为解散这个饺子就自然让祥子看起来进退失据
+
+*****
+
+####  novalli  
+##### 15345#       发表于 2025-1-31 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319630&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 12:57</a>
+亲，这里不但是有财阀爷爷兜底，这爷爷和父亲关系甚至直接联系到祥子决心承担的责任，这话彻彻底底的重构 ...</blockquote>
+但这些东西在之前、祥子的视角可能是根本不知道、或者没证实的事情就像是爱音在立希点破之后回忆起soyo说的话一样。
+这些只是对祥子精神上又来了一记躲都躲不掉的重击——她自己都没办法确认自己的努力到底有多大作用，因为她永远无法摆脱“丰川”，这大概也是她讨厌自己的原因之一。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qratosones1337  
+##### 15346#       发表于 2025-1-31 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316874&amp;ptid=2208921" target="_blank">Renes 发表于 2025-1-31 03:02</a>
+大祥的问题就是，她创作能力强在现实商业乐队很重要，但在少女乐队世界里其实没那么重要。反过来说她没团魂 ...</blockquote>
+现实商业乐队更不可能戴一辈子面具了，如果按现实商业乐队逻辑就得从一开始就给出明确的红线和时间表。“有命令之前绝对不能摘面具，但是具体什么时候摘，这个走一步看一步，有可能永远不摘”，这种做法在现实商业乐队中也是不可能成立的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 15347#       发表于 2025-1-31 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319689&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 13:05</a>
+劇情最合理的理解就是祥子認為自己沒用本家資源，實際上老登在後面大開綠燈 ...</blockquote>
+除非祥子连自己家族企业有哪些都不知道、或者连自己乐队海报都没看过、也从来不和经纪公司有交流
+
+*****
+
+####  ml1642879  
+##### 15348#       发表于 2025-1-31 13:08
+
+古典文学还真有很多富家主角，可惜母鸡卡不是名著的底子
+
+*****
+
+####  江口夕  
+##### 15349#       发表于 2025-1-31 13:09
+
+ 本帖最后由 江口夕 于 2025-1-31 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319714&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 13:08</a>
+除非祥子连自己家族企业有哪些都不知道、或者连自己乐队海报都没看过、也从来不和经纪公司有交流 ...</blockquote>
+你说的，片里还真可能不知道。大祥饮料机都不会按。一般来说，乐队赞助和，公司赞助是两码事。大祥背靠的母公司什么情况都是黑幕，只知道有一部分钱是老登的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  dengwl  
+##### 15350#       发表于 2025-1-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319692&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-1-31 13:06</a>
+
+怎么第五集大家反而吵的更严重了？</blockquote>
+因为第五集给前四集盖棺定论了，有些人能接受或切割前4集就觉得第五集不错，不能接受的就烂了
+
+*****
+
+####  半年  
+##### 15351#       发表于 2025-1-31 13:10
+
+<img src="https://img.saraba1st.com/forum/202501/31/131032r7sbiiv8uvs5ul71.jpg" referrerpolicy="no-referrer">
+
+<strong>Gij5kH2bcAATlls.jpg</strong> (142.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:10 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/131032smp7hh7orzo5i5rp.jpg" referrerpolicy="no-referrer">
+
+<strong>Gij5kQpaQAAoEvt.jpg</strong> (18.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:10 上传
+
+[https://x.com/MMMbluefilm/status/1885030875517378623/photo/2](https://x.com/MMMbluefilm/status/1885030875517378623/photo/2)
+
+*****
+
+####  JustW  
+##### 15352#       发表于 2025-1-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319725&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 13:09</a>
+你说的，片里还真可能不知道。大祥饮料机都不会按
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next ...</blockquote>
+祥子知不知道也是编剧一句话的事情，毕竟现实逻辑早就无法奏效了
+
+*****
+
+####  novalli  
+##### 15353#       发表于 2025-1-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319714&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 13:08</a>
+除非祥子连自己家族企业有哪些都不知道、或者连自己乐队海报都没看过、也从来不和经纪公司有交流 ...</blockquote>
+其实挺简单的：祥子去走正规流程去提企划、谈判，然后证明自己的实力。
+我猜测，她大概率知道有背后的因素在，这也是她执着于“音乐性”的原因之一。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhigui  
+##### 15354#       发表于 2025-1-31 13:10
+
+祥子已经变成mygo到mujica两季的天煞孤星了
+
+谁是祥子的朋友就会被伤害，被重伤，甚至逼出精神病
+
+谁是祥子的敌人谁就高歌猛进，事业飞黄腾达
+
+或许有人说是祥子自找的，但我感觉就是编剧的大手在搞而已
+
+大莫老师在拷打祥子的时候就宛如天神下凡，一到了保mujica的时候就变成低分狗
+
+初华在第一季还是反应迅速思维敏捷的角色，一靠近祥子就变成纯人机
+
+喵梦炸完团不仅啥都不用赔还能一路高歌猛进，还有无数分镜衬托其家人侠努力家的高贵身份
+
+说实话目前为止我感觉不出编剧有任何对“女主”的爱，只是想拷打她攻击她的恶意而已，整整18集没有一点人物弧光，第五集丰川家的大手更是把祥子前面的努力完全否定，后面还要复刻“惊世一跪”，我不想说太过分的，但编剧你真的明白你是在塑造一个角色而不是打压一个角色吗
+
+
+*****
+
+####  LeonsCat  
+##### 15355#       发表于 2025-1-31 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319681&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 13:04</a>
+
+有啊，孤儿院企业家不少呢，谁叫嚣的能力以外资本为0，不是你们吗
+
+—— 来自 Xiaomi 23113RKC6C, Androi ...</blockquote>
+不就是剧中的大祥老师么，整天音乐性音乐性，讲究音乐性的人居然会选择搞偶像，不知道她之前16年接受的教育都给她脑子里灌了什么LSD。人贵有自知之明，很显然大祥老师没有。
+
+*****
+
+####  JustW  
+##### 15356#       发表于 2025-1-31 13:12
+
+编剧沉迷于塑造一个彻底的悲剧女主角，但没有考虑自己的笔力能否驾驭现实的背景和复杂的角色性
+
+*****
+
+####  qratosones1337  
+##### 15357#       发表于 2025-1-31 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316885&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 03:07</a>
+主要是祥子把母鸡卡的责任转给老登了，对赌协议目前是没有的，风险是自己承担不了的，老登是关心祥子的， ...</blockquote>
+也可能是潜规则式的对赌——从一开始就先打着丰川集团的旗号，此时老登不出来划清界限就是默认担保了。同时另一方面自己也知道这事理亏，所以炸了之后老登来接就乖乖跟老登回家了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 15358#       发表于 2025-1-31 13:13
+
+扯淡了，过家家什么时候还能跟资本什么社会化什么的扯上关系，过家家就是小孩子游戏，本质是不需要负责也没办法负责，祥子在被丰川家兜底的前提下确实是过家家，但一个商业乐队的责任注定不是一个高中生能担得起的，就算后期重组了但还是有大手在背后就摆脱不了过家家的评价
+
+*****
+
+####  wwwttth  
+##### 15359#       发表于 2025-1-31 13:14
+
+<blockquote>Lyzers 发表于 2025-1-31 12:53
+怎么这时候又要遵循人设，行动力强就又能越权了？素食压力了睦一整季，睦头在狗时屈指可数有大幅度表情变 ...</blockquote>
+你又滑坡到啥了，说的是散团后黑不把睦头送精神科，那不当然是只能黑到祥和睦她父母？行动力强能越权不代表行动力弱就得被黑啊。鸡团本来就是神人，但是神人不代表剩下三个要对“睦在家里关了一个月不去看精神科”负责。你先搞清楚逻辑再说吧，目前的逻辑是非黑即白以及不是阳角活该被黑？
+
+*****
+
+####  novalli  
+##### 15360#       发表于 2025-1-31 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319743&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-1-31 13:10</a>
+祥子已经变成mygo到mujica两季的天煞孤星了
+
+谁是祥子的朋友就会被伤害，被重伤，甚至逼出精神病
+
+谁是祥子的 ...</blockquote>
+祥子在mygo基本上是“反派”的位置（当然不是真的反派），然后反派有一种塑造方法叫“美强惨”。
+扯的更远点，这种方法基本上是各种凡人成神、成仙、成圣的常见塑造方法了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ddy2811  
+##### 15361#       发表于 2025-1-31 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319658&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-31 13:01</a>
+
+大祥主观上也没有家族兜底啊，不然解散后还打什么工，接什么事务所的催债电话。过了一个月以后外公主动把大 ...</blockquote>
+她是这么认为的……可只要真的冷静下来想想，她所处的这个情境是怎么来的？解散一个多月了还有一堆人追着成员问话呢，喵梦都还在狠狠炒热度呢，她作为出了大洋相的大小姐居然还能顺利回归旧生活、好好上学上班领人？
+
+最后消债我觉得就是老登懒得等了，一年多高强度关注下来演员们和黑衣人们辛苦了，赶紧让祥子认清现实吧
+
+*****
+
+####  yaneis  
+##### 15362#       发表于 2025-1-31 13:15
+
+<blockquote>LeonsCat 发表于 2025-1-31 13:04
+这从来就是东风压倒西风的。leader当不了leader那不是自己去承担？真能办事的大家族继承人，你看喵梦敢跳 ...</blockquote>
+那不就坐实了喵梦就是左右横跳小人嘴脸
+
+*****
+
+####  看穿一切的鱼  
+##### 15363#       发表于 2025-1-31 13:15
+
+mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能好一点？但是大喵和海玲又没理由加入了。<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
