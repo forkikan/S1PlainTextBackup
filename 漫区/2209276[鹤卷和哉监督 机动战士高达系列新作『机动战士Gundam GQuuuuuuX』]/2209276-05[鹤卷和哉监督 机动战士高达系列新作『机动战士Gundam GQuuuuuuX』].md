@@ -3565,3 +3565,36 @@ IMG_5398.jpeg
 
 <img src="https://img.saraba1st.com/forum/202501/31/230300j8rqy95p598vljxi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 6202#       发表于 2025-1-31 23:12
+
+ 本帖最后由 0aleph37 于 2025-1-31 23:16 编辑 
+
+欧米伽赛可谬是单纯脑波遥控还是有ai辅助补正啊。
+
+以麻球初战为例，麻球驾驶舱蹲防，机体能拾起热能斧举盾
+
+还是说无论驾驶员有意识指令还是无意识指令，对欧米伽赛可谬系统而言都是需要经过转换映射到具体的机体行为的，就像计算机高级语言终归需要编译成二进制语言才能执行
+
+*****
+
+####  中野梓  
+##### 6203#       发表于 2025-1-31 23:13
+
+EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A.V.战就是变相给EXVS的2vs2引流呗
+
+*****
+
+####  bird-lay  
+##### 6204#       发表于 2025-1-31 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324071&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-1-31 23:12</a>
+
+欧米伽赛可谬是单纯脑波遥控还是有ai辅助补正啊。
+
+以麻球初战为例，麻球驾驶舱蹲防，机体能拾起热能斧举盾 ...</blockquote>
+那段机体自主行动以及降下来的新操作系统真有点eva的dummy system的感觉
+
