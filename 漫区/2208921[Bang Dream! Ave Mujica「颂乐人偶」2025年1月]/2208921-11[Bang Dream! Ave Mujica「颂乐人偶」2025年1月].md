@@ -6830,3 +6830,64 @@ mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能�
 
 我没看懂你搁那一直提美好二次元是想干嘛，现实就是这前几集本来就不美好二次元，鸡团1.0本来就没啥羁绊，唯二的睦初对祥也是单箭头舔狗，这不显然是后面才要搞羁绊的么。
 
+
+*****
+
+####  BWFIRE  
+##### 15422#       发表于 2025-1-31 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320077&amp;ptid=2208921" target="_blank">kongxian 发表于 2025-1-31 13:54</a>
+
+已经落实Mujica商业乐队解散，又是违约金，那后面无论是商业乐队Mujica又活了，还是非商业乐队Mujica活了都 ...</blockquote>
+bangbang还有出道就假唱被发现的组合呢，不也和没事人一样的复活了，这都是小问题
+
+不过有个问题倒是该问了，既然祥子的经济问题，她自己娘家就解决了，那hhw是不是应该可以出场了啊
+
+毕竟也不会影响世界观了
+
+*****
+
+####  天空塔书记官  
+##### 15423#       发表于 2025-1-31 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320223&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-31 14:10</a>
+楚萍芳很清楚自己的东西从哪里来，祥子我看目前才第一次知道</blockquote>
+其实楚平方也是后来才意识到的，只不过她会下意识避开父母的荫蔽，这就是人物的成长，能意识到这点对祥子来说也是开始成长的表现，所以我不认同彻底否定她和对她回丰川家是积极表现这类的观点，她回来基本肯定是要爆的，因为只有彻底失去所有依靠，祥子才会学会依赖别人，只有明白了个体能量的不足，才能体会到团队存在的意义
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LeonsCat  
+##### 15424#       发表于 2025-1-31 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320067&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 13:52</a>
+
+幽默，说的你好像很懂偶像一样，握手会在哪呢。没有算个屁的偶像。握手会才是偶像成员赚米的主要渠道，演 ...</blockquote>
+你是不是被肥秋毒坏了。桃草就几乎不办握手会，也不妨碍人家是最成功的当代女子偶像之一。PERFUME也几乎没有过握手会。
+
+当然了，女子偶像乐队，不办握手会，有个最标准的例子，而且把所有2.5次元乐队戏里戏外都直接车翻，宝钢。
+
+
+*****
+
+####  古明地雷  
+##### 15425#       发表于 2025-1-31 14:22
+
+是真的难绷有的人直接定性过家家并以此车祥。睦家里有没有钱？soyo家里有没有钱？都是过家家都是闹麻了？这片又不是女频短剧看谁家有钱，这片的重点是勾k的内心世界，对她们来说精神容身之地是拼尽全力寻找的东西，失败了就是摔得粉碎，不存在什么过家家，老登这个评价是很过分的打击
+
+*****
+
+####  Lyzers  
+##### 15426#       发表于 2025-1-31 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320285&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 14:15</a>
+不需要回答，我前面提的点已经够多了，你抓着一个点去攻击另一个，然而实际上就是多个点结合起来一起看， ...</blockquote>
+什么叫我捉着一个点攻击另一个点，话都是你说的，然后我把动画现有信息说出来，告诉你说的跟剧情两个矛盾了，怎么就是攻击了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我提美好二次元是因为你前面说了一大段，所谓“多角度分析动机”，但是更前面又说只要人设是行动力高和是朋友就能把这个多角度分析推翻了，这不就是纯纯美好二次元解决办法吗？
+
+那我建议让母鸡卡五个人围一圈，都互相说一句“我们是偷摸哒鸡desu”，然后大家就都不会有越权问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
