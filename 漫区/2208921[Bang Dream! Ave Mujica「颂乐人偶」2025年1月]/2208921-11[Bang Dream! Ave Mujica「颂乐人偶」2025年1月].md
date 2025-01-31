@@ -5698,3 +5698,256 @@ go团时期金句太多，眼神太坚定（哪怕只是表面的）了呗，关
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ddy2811  
+##### 15321#       发表于 2025-1-31 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318900&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-31 11:22</a>
+
+大祥这塑造不止是过家家的问题，也不是自私自利的问题。过家家的你别管多长久总归要和和气气一阵子，自私自 ...</blockquote>
+我的感觉就是她在队伍明显危机四伏的时候选择继续埋头在创作里，其实就是和爹一样在猛猛灌酒了，只是到了第四集必须彻底面对现实了
+
+*****
+
+####  LeonsCat  
+##### 15322#       发表于 2025-1-31 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319544&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 12:46</a>
+
+要么楼友来讲解一下，家里有千亿资产的情况下，老登不管你做什么都在给你兜底，怎么做才能不算过家家。
+
+此 ...</blockquote>
+比如林俊杰？比如一力辽？
+
+*****
+
+####  qratosones1337  
+##### 15323#       发表于 2025-1-31 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316818&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 02:44</a>
+如果有权利那最后还是回到抽象大喵，别人过家家才没用权利惩罚你，怎么还好意思输出正论的，还不如坐实就 ...</blockquote>
+权力和责任是对等的，如果想惩罚大喵违规那就需要从一开始就给出明确的时间表和红线——就算大喵不独走，面具也根本不可能戴一辈子。而且睦头的情况大祥也知道，正常情况下应该给出明确的规划然后划出红线（比如睦头绝对不能摘面具）。但是目前的情况看来，大祥显然什么都没准备，就是单纯拖得一时算一时
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 15324#       发表于 2025-1-31 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319530&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-31 12:44</a>
+
+单从剧情来说，这种展开只是在动画里没那么常见。但对比《呼啸山庄》之类的其他文艺作品的剧情，这才哪到哪 ...</blockquote>
+亲，这里不但是有财阀爷爷兜底，这爷爷和父亲关系甚至直接联系到祥子决心承担的责任，这话彻彻底底的重构了这些东西（就更别提上周灾难性的酒店对话），如果我是祥党，不说破防也起码要痛骂制作组这群人了
+
+*****
+
+####  江口夕  
+##### 15325#       发表于 2025-1-31 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319601&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 12:53</a>
+目前没有挑明，只知道第一季祥子回过家，而且不存在祥子不知道自己家里有赞助，人家又没偷偷搞个中间公司 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">要真用本家大量资源也不会被大猫颐指气使了。直接让手下干活，还在这自己熬夜找罪受
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  江口夕  
+##### 15326#       发表于 2025-1-31 12:59
+
+ 本帖最后由 江口夕 于 2025-1-31 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319625&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 12:56</a>
+比如林俊杰？比如一力辽？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真的确定这些人是从0开始么，学费谁出的，家里资源用没用
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  DARK_HGCG  
+##### 15327#       发表于 2025-1-31 12:59
+
+https://www.bilibili.com/video/BV1N8Fhe9EE6/
+
+*****
+
+####  LeonsCat  
+##### 15328#       发表于 2025-1-31 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319579&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-31 12:51</a>
+
+睦的精神问题家庭先背九成以上的锅吧，白祥不也处处照顾睦。家庭埋雷，后面大喵点燃引线，不能因为最后大祥 ...</blockquote>
+是个人都知道老淋淋对沙也加的心理问题责任天大，但是不是前山刚久搞个违背医嘱操纵精神病人的搞法，沙也加到去世前的演艺水准、事业成就都是有目共睹的快速进步。
+
+*****
+
+####  天空塔书记官  
+##### 15329#       发表于 2025-1-31 12:59
+
+还有就是海铃，虽然之前都在说她高情商，但我从迷子就感觉她自我表现的有些过于克制了，这也不是正常情况，只有与立希相处时，才会有放松的感觉
+
+虽然话是不好听，但在A团里找正常人就跟在疯人院里找正常人差不多，这不算是滑坡，是这五个确实都有问题，所以分锅肯定是分不明白的，除了祥子，她的责任一直都是明确的，因为她是领导者，她是神明，当太阳被隐藏，那黑暗就会滋生，群魔乱舞是可以预料的结果，只不过在动画里就是表现的太过了，问题出在度上，还不是方向上，剧情主线还是很明晰的，就是组乐队的过程，所以剧情没有跑偏
+
+再说句更不好听的，喵月被制作组这么作，其实也说明了她的病情是最轻的，也最好原，起码在企划那边就是如此，她确实是A团的爱音位，只不过还没启动罢了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 15330#       发表于 2025-1-31 13:00
+
+<blockquote>LeonsCat 发表于 2025-1-31 12:53
+有啥好处，好处还不是她自己挣的。
+
+按照祥子那套过家家搞“音乐性”但是怎么搞都说不清的搞法，作为随时 ...</blockquote>
+好处就是你独走而作为乐队队长（可能是队长）的祥子因为是过家家没法对你采取措施，吵架还落个下风，这下回过头来又喷是你过家家没想好反制措施对成员监管不力我不陪你玩了，既要又要
+
+*****
+
+####  novalli  
+##### 15331#       发表于 2025-1-31 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319606&amp;ptid=2208921" target="_blank">YF31 发表于 2025-1-31 12:53</a>
+沉重尖锐没觉得，闹麻了倒是真的。
+
+你都提呼啸山庄了为什么不提骆驼祥子呢？骆驼祥子最后也是一烂到底， ...</blockquote>
+我现在不关心角色，因为很明显角色还没塑造完，你给我说谁烂我也没办法共情——我没办法评价一个正在盖的楼的坚固程度。
+甚至最后我也不一定会共情角色，因为我是来看剧情的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  哈曼的YY  
+##### 15332#       发表于 2025-1-31 13:00
+
+之前有人还说格里菲斯 我看就是魔禁的亚雷斯塔但是不会魔法
+
+<img src="https://img.saraba1st.com/forum/202501/31/130047c6gqffqjo2ou33f5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1624147022286344.jpg</strong> (852.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:00 上传
+
+*****
+
+####  ddy2811  
+##### 15333#       发表于 2025-1-31 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319098&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-1-31 11:47</a>
+
+我感觉你是不是老糊涂了？我哪里说让乐队成员送去精神科了？
+
+你不如先理理这张图吧，动画都特意交代了观 ...</blockquote>
+海铃这种人我见过的，你吩咐她做事她会做，但出几分力全看她有多少认同度，一旦和你的分歧大了，逐渐就开摆、支持反对派甚至自己直接闹起来了，我们家店给“海铃”运营了一年多算是不欢而散吧
+
+*****
+
+####  看穿一切的鱼  
+##### 15334#       发表于 2025-1-31 13:01
+
+大祥主观上也没有家族兜底啊，不然解散后还打什么工，接什么事务所的催债电话。过了一个月以后外公主动把大祥“买下来”然后按头让她给我回来不是吗。债是外公消的，她也没立场再违逆外公了。
+
+在大祥的视角这不是大小姐过家家。
+
+不然同样可以家里有千亿资产的情况下，老登不管你做什么都能给你兜底，你们会不会觉得睦也闹麻了，身在福中不知福。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 15335#       发表于 2025-1-31 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天漫区热度吊打外野，大家有什么头绪吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LeonsCat  
+##### 15336#       发表于 2025-1-31 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319641&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 12:59</a>
+
+你真的确定这些人是从0开始么，学费谁出的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v ...</blockquote>
+？
+
+什么叫过家家，过家家就是明明有资本非要喊能力以外资本为零装逼，搞出事来就直接跑路让家里擦屁股。**方方承认出身，审慎地运用家里的资源，实现个人价值就不是过家家。
+
+除非你觉得只有一步到位搞社会化抚养才不算过家家，那建议出门左转外野去发个贴子鼓吹马前卒。
+
+*****
+
+####  JustW  
+##### 15337#       发表于 2025-1-31 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319632&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 12:57</a>
+要真用本家大量资源也不会被大猫颐指气使了。直接让手下干活，还在这自己熬夜找罪受
+
+—— 来自 Xiaomi 2 ...</blockquote>
+用不用不是咱俩在这里分析的而是人家赞助商的名字就明确写着的，至于祥子为什么完全不动喵梦还要自己睡公司写歌写剧本，你问我我问谁，我更问祥子为什么
+
+*****
+
+####  盐盐盐盐盐  
+##### 15338#       发表于 2025-1-31 13:03
+
+海铃鼓励灯不是就是说了两句客套话吗，而且她对am解散没阻止可能是看当时祥子不吭声并没有摆出努力维持的态度，既然你们都不动那我也顺其自然了，灯非得要soyo回来在海铃眼里反而是值得肯定的态度
+
+初华那就，当局者迷吧，这我觉得别人家的事看戏的人可以说一堆大道理但在自己身上就容易被情绪支配还是蛮正常的，而且初华现在本来就不太对劲
+
+*****
+
+####  LeonsCat  
+##### 15339#       发表于 2025-1-31 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319647&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 13:00</a>
+
+好处就是你独走而作为乐队队长（可能是队长）的祥子因为是过家家没法对你采取措施，吵架还落个下风，这下 ...</blockquote>
+这从来就是东风压倒西风的。leader当不了leader那不是自己去承担？真能办事的大家族继承人，你看喵梦敢跳不。
+
+*****
+
+####  月光润色  
+##### 15340#       发表于 2025-1-31 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">爱音有点小心机但好歹是拧绳的。键帽那纯精致利己主义，第五集也基本看不到对团有啥留念，唯一和团有关的还是木头人给她留下的心魔
+
+*****
+
+####  江口夕  
+##### 15341#       发表于 2025-1-31 13:04
+
+ 本帖最后由 江口夕 于 2025-1-31 13:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319663&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 13:02</a>
+？
+
+什么叫过家家，过家家就是明明有资本非要喊能力以外资本为零装逼，搞出事来就直接跑路让家里擦屁股。* ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有啊，孤儿院企业家不少呢，谁叫嚣的能力以外资本为0，不是你们吗
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 15342#       发表于 2025-1-31 13:05
+
+劇情最合理的理解就是祥子認為自己沒用本家資源，實際上老登在後面大開綠燈
+
+*****
+
+####  hulaoda007  
+##### 15343#       发表于 2025-1-31 13:06
+
+怎么第五集大家反而吵的更严重了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
