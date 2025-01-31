@@ -1585,3 +1585,19 @@ eshop日服之前也锁过一阵海外信用卡吧？
 
 但21年开始日元汇率暴跌，任天堂自家游戏的数字版常年都是全球最低价，到现在才说要锁国外支付已经很意外了
 
+
+*****
+
+####  清浦刹那  
+##### 164#       发表于 2025-1-31 12:09
+
+<img src="https://img.saraba1st.com/forum/202501/31/120831bolwwextxz6tek7l.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250131-120509_Chrome.png</strong> (374.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 12:08 上传
+
+蛙蛙也怨声载道
+
