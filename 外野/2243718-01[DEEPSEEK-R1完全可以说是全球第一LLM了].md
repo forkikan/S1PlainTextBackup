@@ -12279,3 +12279,19 @@ CloseAI抄的飞快</blockquote>
 对美国人来说，Deepseek会变成我们社会主义思想的普及工具</blockquote>
 这是啥软件？显卡的驱动程序？
 
+
+*****
+
+####  Abelfufu  
+##### 940#       发表于 2025-1-31 22:06
+
+发现这么个所谓的API购买网站竟然还能正常登录，但是是按月付费的，一眼看上去就像盗版，不知实际情况如何 [https://deepseekapi.org/zh/](https://deepseekapi.org/zh/)
+
+*****
+
+####  fw3ii9  
+##### 941#       发表于 2025-1-31 22:07
+
+说起来，除了官方，还有哪些平台部署了671B的deepseek吗？
+既然这个模型开源不收费，幻方也不从这里面挣钱，官方服务器还在被攻击，我们就不去添乱了，用其他平台搭的应该没啥差别吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

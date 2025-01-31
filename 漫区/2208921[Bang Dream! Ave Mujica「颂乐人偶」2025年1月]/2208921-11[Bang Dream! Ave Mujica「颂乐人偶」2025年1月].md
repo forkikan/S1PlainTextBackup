@@ -11164,3 +11164,68 @@ https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
 
 我倾向于觉得还是柿本比较菜
 
+
+*****
+
+####  古明地雷  
+##### 15789#       发表于 2025-1-31 21:54
+
+祥子的塑造其实没出问题，这里不是说她没错而是错误也是她的一部分，各种访谈说明制作组知道自己在写什么。她现在外壳被击碎了，暴露出的就是她的本质，而这个本质我相信是闪光的，至于怎么挖掘怎么叙述就是制作组的事了。
+
+*****
+
+####  aptx8285144  
+##### 15790#       发表于 2025-1-31 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323499&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 21:48</a>
+
+我记得之前哪里看到说前半段是木箱主场,后半段金毛主场,现在第五集完了木箱一个陀螺仙人一个精神分裂,金毛 ...</blockquote>
+睦虽说惨了点，但也还算唬头拉满了吧，大祥这五集这主场活得太憋屈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 15791#       发表于 2025-1-31 21:56
+
+别的不说我希望鸡团结束了进游戏能把邦邦时间线往后移动一下，想看老家伙们毕业了新故事，也想看鸡狗上高二了怎么对待下一批新团的
+
+*****
+
+####  凉良  
+##### 15792#       发表于 2025-1-31 21:56
+
+全部碎完了第六集开始凭空加有点 真的不是塑造方式错了么。
+
+真的很难理解说拷打就要全部否定是怎么想的
+
+*****
+
+####  大丈夫萌大乃  
+##### 15793#       发表于 2025-1-31 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323543&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 21:55</a>
+
+睦虽说惨了点，但也还算唬头拉满了吧，大祥这五集这主场活得太憋屈了吧 ...</blockquote>
+好像有舅舅党说陀螺要抽到第七集,且不说大象被抽得是不是太用力过猛,这剧情编排明显有问题啊,抽陀螺抽太多了,后面完全没时间给金毛了,难道就是因为发现时间不够所以干脆把金毛献祭了?那我支持金毛对编剧释放岛民杀拳
+
+*****
+
+####  Yukino-Yukino  
+##### 15794#       发表于 2025-1-31 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323548&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-31 21:56</a>
+全部碎完了第六集开始凭空加有点 真的不是塑造方式错了么。
+
+真的很难理解说拷打就要全部否定是怎么想的 ...</blockquote>
+因为前面的事情包括c团炸团，很大一部分都是祥子过高的自尊心造成的，不把这自尊心弄碎才是好完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  tuatha  
+##### 15795#       发表于 2025-1-31 22:02
+
+前几集就是编剧完全否定祥子的路线：纯靠自己来实现音乐梦想并以此背负自己和别人的人生
+

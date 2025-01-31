@@ -127,3 +127,11 @@
 不就是粉丝打榜 基本没参考价值</blockquote>
 说这个就无趣了，40周年全系列投票伊苏8枪哥第8算不算打榜？，或者说你法投票都是默认打榜的吧
 
+
+*****
+
+####  林漠俪  
+##### 7540#       发表于 2025-1-31 21:57
+
+我投的就是黎恩<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
