@@ -11697,3 +11697,13 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 
 甚至懒得和这些玩意儿搭话，一眼僵尸假帐号
 
+
+*****
+
+####  moeblack  
+##### 890#         楼主| 发表于 2025-1-31 09:57
+
+谁在攻击Deepseek啊，好难猜啊<img src="https://p.sda1.dev/21/5981cc307ad1da13fe81f8ef9496121e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

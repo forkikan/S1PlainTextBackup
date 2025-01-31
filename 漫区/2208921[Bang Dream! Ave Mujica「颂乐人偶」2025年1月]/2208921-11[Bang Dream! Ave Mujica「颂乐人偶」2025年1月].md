@@ -3390,3 +3390,103 @@ yysy祥子不是一直在主动推动剧情，往坏的方向推也是推
 
 大女主亦有区别，抗压成长型大女主也是大女主，而有些人想看的大女主，准确来说，更应该用凤傲天来形容
 
+
+*****
+
+####  庸necro  
+##### 15104#       发表于 2025-1-31 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318090&amp;ptid=2208921" target="_blank">电波通信 发表于 2025-1-31 09:55</a>
+大女主亦有区别，抗压成长型大女主也是大女主，而有些人想看的大女主，准确来说，更应该用凤傲天来形容 ...</blockquote>
+她抗什么压了，不是丰川家保护好好的掌上明珠吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">戏里戏外都抗压才是抗压是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 15105#       发表于 2025-1-31 09:59
+
+ 本帖最后由 江口夕 于 2025-1-31 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318084&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 09:55</a>
+我觉得祥子可能会下跪不是我觉得祥子一定做错了什么，而是这也是一种成长：放弃自己的过度自尊，承认自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你说的这种也叫成长？讲的还是人话么。
+兄弟，别人亲妈亲爸发小都这样了，同理心在哪呢。
+反正我是看不出大祥有什么过度的自尊
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 15106#       发表于 2025-1-31 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318079&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 09:55</a>
+
+那你给我讲讲按照最恶意推断的，完全是丰川大手保护的丰川祥子到底有什么角色魅力</blockquote>
+这是第5话，不是第11话，这集把TGW和MyGO两个前面留了扣子的要素都用了，后面再炸就不能用了，不然会重复
+
+等后面再炸，回头来看会觉得这些根本不算什么，到时候只能靠Mujica五人
+
+*****
+
+####  玖羽  
+##### 15107#       发表于 2025-1-31 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318090&amp;ptid=2208921" target="_blank">电波通信 发表于 2025-1-31 09:55</a>
+
+大女主亦有区别，抗压成长型大女主也是大女主，而有些人想看的大女主，准确来说，更应该用凤傲天来形容 ...</blockquote>
+我怀疑有些人的脑回路是不是这样的：炸这么大怎么救哦→我想不出来→完了没救了→崩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  柴突猛进  
+##### 15108#       发表于 2025-1-31 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318066&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 09:53</a>
+yysy祥子不是一直在主动推动剧情，往坏的方向推也是推</blockquote>
+祥子目前唯一推动的剧情只有压力睦导致大莫老师出现，其他的事情都是被推着走啊，喵梦摘面具，电台吵架之夜，酒店炸团之夜，祥子都是被动接团然后越打越输，面对困境大祥老师现在的做法不是都是逃避嘛，连冷暴力初华和无视灯都是初华和灯先主动对祥子表达了关心
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 15109#       发表于 2025-1-31 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317787&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 09:23</a>
+说真的我还有点共情大祥老师了，不是因为我是大小姐有个老登在后面，单纯就是一个理解自己菜然后接受自己菜 ...</blockquote>
+我也觉得本作目前最能共情的还是祥子，年轻有才能有实力有精力想着一切如自己安排就能做出一番事业，结果还是摔得头破血流不得不靠家人兜底。主创拼命多展示祥子的视角也是这个目的，甚至考虑过要不要让祥子的回忆放后面再展示出来其实也是为了让观众尽可能地共情祥子。
+
+*****
+
+####  魔法使夜子  
+##### 15110#       发表于 2025-1-31 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得不是想不出来，你看那么多假药为第四集找补，结果现在告诉你剧本就那样的，很难再相信剧本能找补回来好吧
+
+*****
+
+####  xyion  
+##### 15111#       发表于 2025-1-31 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316885&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 03:07</a>
+
+主要是祥子把母鸡卡的责任转给老登了，对赌协议目前是没有的，风险是自己承担不了的，老登是关心祥子的， ...</blockquote>
+但其实也是一个对赌协议就都能找回来，有对赌协议，祥子最初明面上确实是拉投资而不是找祖父要钱，回老家也是顺理成章。
+
+*****
+
+####  玖羽  
+##### 15112#       发表于 2025-1-31 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318166&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-31 10:03</a>
+
+但其实也是一个对赌协议就都能找回来，有对赌协议，祥子最初明面上确实是拉投资而不是找祖父要钱，回老家 ...</blockquote>
+要经费和对赌有什么区别，或者说对赌和要经费有什么区别
+
+祥子总不能直接说我是你外孙女给我钱，肯定答应做出什么事业，面子上就是对赌，实际上就是给钱
+
+丰川定治的想法可能很简单，钱也给你烧了，你对你爹也死心了，赶紧滚回来继承万亿家产
+
