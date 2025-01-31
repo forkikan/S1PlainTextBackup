@@ -12261,3 +12261,97 @@ soyo 大风大浪都见过也怕精神病？<img src="https://static.saraba1st.c
 如果不说我都快忘了初华是主唱,C团聚焦音乐且愿意讨论音乐的时间太短，连live都是阴森森的风格，初华作为 ...</blockquote>
 初华目前信息太少了，只剩下一个终极祥厨标签
 
+
+*****
+
+####  缪斯替  
+##### 15892#       发表于 2025-1-31 23:56
+
+交棒给大喵可能是个可行方案，像爱灯双主角那样弄个喵祥双主角也不错，炸团两大责任人互相解决问题倒是能找回一定平衡，而且两个都是自我中心的人塑造起来也很有张力，就是真给大喵抬咖的话恐怕不会很讨喜
+
+*****
+
+####  huxiaopao163  
+##### 15893#       发表于 2025-1-31 23:57
+
+所以独角兽有参加所有脚本啊
+
+<img src="https://p.sda1.dev/21/d636aea1b87d1aaece4ebb307f130f3a/IMG_CMP_210011916.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  烂片雷达  
+##### 15894#       发表于 2025-1-31 23:57
+
+第四集若麦突然滑坡到解散然后除了睦全员赞同还是太诡异了，其中一定有内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 15895#       发表于 2025-1-31 23:59
+
+初华你说是祥厨吧，第一集开盒又说自己没所谓，都不站大祥老师那一边，厨得像个串子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+你说怎么得到大祥老师的人。
+
+*****
+
+####  帆前  
+##### 15896#       发表于 2025-1-31 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323103&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 20:42</a>
+
+沒事， 千早愛音是能成為我母親的女性</blockquote>
+这也是妈妈
+
+
+*****
+
+####  天空塔书记官  
+##### 15897#       发表于 2025-2-1 00:03
+
+wsd烂炒被反噬了啊，
+
+这是否也在意料之中
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  L-JoeW  
+##### 15898#       发表于 2025-2-1 00:03
+
+绫奈由仁子这到底是想表达啥意思
+
+*****
+
+####  aptx8285144  
+##### 15899#       发表于 2025-2-1 00:03
+
+第五集时候爱音和灯去看水族馆，这里第五集两人去看大庄园，这何尝不是一种对称美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 15900#       发表于 2025-2-1 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324314&amp;ptid=2208921" target="_blank">无限舰制 发表于 2025-1-31 23:44</a>
+
+睦妈纯纯大司妈不是被提出过很多次的分析了吗
+
+或者说全家可能都有那么点精神异常</blockquote>
+睦妈可是在访谈里说的设定是是逆天雌竞人
+
+*****
+
+####  iiiiiiiiii  
+##### 15901#       发表于 2025-2-1 00:05
+
+<blockquote>L-JoeW 发表于 2025-2-1 00:03
+绫奈由仁子这到底是想表达啥意思</blockquote>
+痞子也不看eva终啊
+

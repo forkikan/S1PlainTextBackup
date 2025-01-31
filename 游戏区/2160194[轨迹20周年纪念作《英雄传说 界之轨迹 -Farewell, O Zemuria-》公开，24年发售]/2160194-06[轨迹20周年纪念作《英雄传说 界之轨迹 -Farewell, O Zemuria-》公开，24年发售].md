@@ -152,3 +152,28 @@
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ny  
+##### 7543#       发表于 2025-1-31 23:56
+
+我也算个新人吧, 虽然10年前玩过某个几个轨迹游戏, 已经完全没印象了
+
+玩界轨刚进游戏就傻了, 完全不知道在说什么, 上来看到个火箭发射, 然后我方3人组一个都不认识, 就开始战斗了
+
+接着几分钟内就给我介绍了一堆战斗机制, 我连前3个人的技能魔法都还没熟悉, 打一会又换成3个完全不一样的角色 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+剧情完全一脸懵逼, 对话里一堆名词听不懂, 新玩家是不是得先通关黎鬼再接着玩这个界轨啊? <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winggg  
+##### 7544#       发表于 2025-1-31 23:59
+
+<blockquote>Ny 发表于 2025-1-31 23:56
+我也算个新人吧, 虽然10年前玩过某个几个轨迹游戏, 已经完全没印象了
+
+玩界轨刚进游戏就傻了, 完全不知道在 ...</blockquote>
+是的，游戏原名黎之轨迹3，因为很多大人的原因才改名界轨来发售。
+

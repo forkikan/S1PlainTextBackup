@@ -3059,3 +3059,14 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 想不通祥子为什么那么执着去当客服，赚的钱够给她爸买酒吗？没苦硬吃到这份上已经和老年人热衷吃过期食品一样是心理疾病了。
 
+
+*****
+
+####  liekong  
+##### 325#       发表于 2025-1-31 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324259&amp;ptid=2244721" target="_blank">Lyzers 发表于 2025-1-31 23:37</a>
+
+还是那句话，mygo本质小女生闹别扭，跟鸡现在问题的规模完全不一样</blockquote>
+说什么规模不一样，现在在丰川家的大手之下，不也就是“大小姐过家家”么
+
