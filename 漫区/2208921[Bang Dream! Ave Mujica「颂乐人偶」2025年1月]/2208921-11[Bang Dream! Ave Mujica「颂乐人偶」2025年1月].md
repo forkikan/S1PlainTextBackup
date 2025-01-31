@@ -4098,3 +4098,170 @@ chuchu身为小屁孩耍小孩性子赶走pareo这种剧情和对应收到的谴
 
 雞狗團在婚禮上靠邦搶婚吧
 
+
+*****
+
+####  庸necro  
+##### 15168#       发表于 2025-1-31 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318439&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 10:34</a>
+正常人就要有资源就用，弱智才会不利用手头的资源。问题只在于借多少有没有把底层的东西交出去。卖公司和 ...</blockquote>
+到了你行你上环节那没什么好聊的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Asukalangley33  
+##### 15169#       发表于 2025-1-31 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318451&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-1-31 10:35</a>
+狗团能一集话疗是因为本身就是青春期少女闹麻了啊
+狗团成立的根本就是圣爱音拉灯皇组乐队，立希就是灯皇在 ...</blockquote>
+母鸡卡5个人现在最大的问题--不熟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+包括祥子和睦，感觉都没go第五集时的爱音跟灯关系好
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  怀沙汨罗  
+##### 15170#       发表于 2025-1-31 10:38
+
+母鸡卡不拍成大祥传才容易出问题，三个团的结都是大祥打的，解铃还须系铃人。但现在问题不就是五集了，🐘的问题反而越来越多，人物关系越来越崩坏吗？除了原c团的，剩下几位人物有闪光点吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Mikumiku831  
+##### 15171#       发表于 2025-1-31 10:38
+
+支持爱祥形婚 爱音当执掌人 一起保养灯<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15172#       发表于 2025-1-31 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318467&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 10:37</a>
+到了你行你上环节那没什么好聊的了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种时候当然是你行你上啊，啃老谁还不会了，我行我真上
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 15173#       发表于 2025-1-31 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318468&amp;ptid=2208921" target="_blank">Asukalangley33 发表于 2025-1-31 10:37</a>
+母鸡卡5个人现在最大的问题--不熟
+包括祥子和睦，感觉都没go第五集时的爱音跟灯关系好</blockquote>
+关键就在于crychic和mujica都没有爱音这种行动力超强的纯阳角。
+
+*****
+
+####  Ty_cc  
+##### 15174#       发表于 2025-1-31 10:39
+
+看到个说法有点意思，mygo是live小剧场里的“虚假的光”。
+我不认为🐶能解决🐔的建团，🐔的建团必须只靠自己
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 15175#       发表于 2025-1-31 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317053&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 04:33</a>
+顺便再说一点，无论怎样木头人是安全送回家了的，这时候怎么处理也是睦头父母说了算，而知道睦头父母不靠 ...</blockquote>
+所以就还是这个问题这究竟越过哪一层了。另外这说到核心了，这动画目前有逻辑可言吗？
+
+1，我回了这么多楼，不合逻辑的点也提了不少，你都没正面回过，每次都在提新的点但现在归到结果就只剩下“睦头回家了后面的活就只剩睦头爹妈了”。
+
+那又再返回来你前面说的四个人三个有事只剩下大祥相对闲一点，但先不说大祥自己都神不守舍，你再想想初华接档都要忙起来，乐队负责人的大祥就不要被staff围着签合同，哪怕这是个大小姐过家家，大热团唐突解散连流程也不走可能吗
+
+2，你目前说的点建立的前提就是，鸡团包括大祥全都是冷漠功利现实怪，反正有别人更该管了，那我管啥呢。这是不是已经跟最一开始说的只能黑到大祥和睦爹妈背离了呢？
+
+
+*****
+
+####  JustW  
+##### 15176#       发表于 2025-1-31 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318495&amp;ptid=2208921" target="_blank">Ty_cc 发表于 2025-1-31 10:39</a>
+看到个说法有点意思，mygo是live小剧场里的“虚假的光”。
+我不认为🐶能解决🐔的建团，🐔的建团必须只靠自 ...</blockquote>
+我估计MyGO能发挥的作用也就是第一季初华对灯的作用，不过C团遗留问题肯定是要解决干净的
+
+*****
+
+####  zhzij111  
+##### 15177#       发表于 2025-1-31 10:43
+
+ 本帖最后由 zhzij111 于 2025-1-31 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317022&amp;ptid=2208921" target="_blank">wangh 发表于 2025-1-31 04:15</a>
+过家家论是最扯谈的，速登武道馆或许是有丰川家大手不假。但如果是烂泥就算糊上墙也只会丢人现眼，而鸡团能 ...</blockquote>
+粉丝喜欢是拿来体现大祥老师才华横溢的，过不过家家和这个啥关系没有，鸡团体现自己本质是个爱好者乐队，被丰川的大手从大小姐过家家托到商业乐队的体现太多了:
+
+1.成立可能大量依靠自己本家丰川集团的援助；
+2队员不听指挥没有任何惩罚措施；
+3有人精神病犯了没工作人员在意
+3.重要巡演前一天才排练
+4.乐队几个人突然想起来要解散第二天就光速解散；
+5.观众都到场了才说自己不干了，连首歌都不给人听，没有艺德
+5.凭着性子解散，结果违约费压根没想好怎么赔，还要靠丰川老登的大手兜底。
+
+就这个漏洞百出的乐队管理，你说鸡团不是给才华横溢的丰川大小姐追梦音乐圈搞的一个过家家组织，那可能邦多利世界的人全是弱智了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  海底铁锚  
+##### 15178#       发表于 2025-1-31 10:44
+
+现在有关海玲的批评看起来就像是“你团五个人，我扇了其他四个神人的巴掌，顺便也扇一下吧”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  烂片雷达  
+##### 15179#       发表于 2025-1-31 10:45
+
+其实招女婿的话素世妈是最合适的，丰川家中登废了断代了，老登年岁已大，要有现成的人选接管偌大的家业还真得是素妈这种，到时候丰川长崎强强联合资产岂不是分分钟翻倍<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15180#       发表于 2025-1-31 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要go团解决的还是醒醒，大祥只要抛出，你先死个妈，再来个混蛋老爸，再疯个发小。go团直接闭嘴了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  柴突猛进  
+##### 15181#       发表于 2025-1-31 10:46
+
+海玲再不爆炸就没戏份可以爆炸了，只能沦落到猫那样的边缘位也太惨了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YF31  
+##### 15182#       发表于 2025-1-31 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318397&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-1-31 10:29</a>
+笑死“大小姐过家家”这种典型的市侩路人嚼人舌根的贬低言语居然被某些人当做踩大象老师的铁证，母鸡卡炸了 ...</blockquote>
+你跟柿本广大说去，导演都钦定因为虚荣心没苦硬吃过家家了剧外人找补只会觉得好笑。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

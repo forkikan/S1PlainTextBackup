@@ -2400,3 +2400,17 @@ Mortis把自己关家里，俩艺人爹妈铺垫到现在的父母失格，估�
 
 ccc这几个人的关系性必然会藕断丝连，不是说你组了新团就会一刀两断了，最简单的几个同学还要在一间教室大眼瞪小眼，想切割纯粹就是做梦，何况Mujica的建队直接诱因是第七话的春日影。
 
+
+*****
+
+####  Reinhold  
+##### 262#       发表于 2025-1-31 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317114&amp;ptid=2244721" target="_blank">qweszxc9160 发表于 2025-1-31 05:21</a>
+最大的矛盾 推动所有人的动机 直到最后一集都没有解释过 这都完整
+
+go批大脑也升级了? ...</blockquote>
+真有把kol的话当圣旨的人啊，您开心就好，独自大脑降级吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
