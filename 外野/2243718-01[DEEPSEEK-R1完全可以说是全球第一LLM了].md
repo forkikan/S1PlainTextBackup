@@ -11922,3 +11922,16 @@ model不就是调用的哪种引擎么？
 官网的啊，能用啊</blockquote>
 R1不能用，你用的是V3，V3不是推理模型。
 
+
+*****
+
+####  魔灵高达  
+##### 907#       发表于 2025-1-31 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321490&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 17:00</a>
+
+官网的啊，能用啊</blockquote>
+怎么用的，我这里甚至开不了申请API的界面，来个能用的网址。
+
+以及，之前API能用的时候我这边用powershell或者本地部署的OPEN WEBUI都是有显示思考的，可以试下后者我觉得蛮好用的，网页DSR1自己推荐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
