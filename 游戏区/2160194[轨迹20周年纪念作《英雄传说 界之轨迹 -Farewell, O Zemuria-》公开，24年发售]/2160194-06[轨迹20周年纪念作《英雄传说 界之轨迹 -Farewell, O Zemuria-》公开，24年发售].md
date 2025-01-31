@@ -211,3 +211,13 @@
 
 谢谢楼上几位, 已经在打黎1了  <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimujie  
+##### 7548#       发表于 2025-2-1 01:48
+
+从剧情上来说界才是李鬼2，李鬼2是李鬼1.5甚至1.3
+
+先打李鬼1熟悉下人物和系统吧，李鬼2可以忽略云过去就行，对主线没有任何实质性推进
+
