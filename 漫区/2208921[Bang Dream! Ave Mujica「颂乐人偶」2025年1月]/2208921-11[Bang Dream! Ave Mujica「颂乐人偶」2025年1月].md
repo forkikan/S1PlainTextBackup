@@ -5497,3 +5497,204 @@ go团时期金句太多，眼神太坚定（哪怕只是表面的）了呗，关
 
 话说第四集b站字幕的红白字到底是什么意思
 
+
+*****
+
+####  novalli  
+##### 15302#       发表于 2025-1-31 12:46
+
+顺便吐槽一句，“嗜血的长颈鹿”感觉没有想象中的多啊，这种“无法预测的命运之舞台”真的不dokidoki吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 15303#       发表于 2025-1-31 12:46
+
+ 本帖最后由 江口夕 于 2025-1-31 12:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">要么楼友来讲解一下，家里有千亿资产的情况下，老登不管你做什么都在给你兜底，怎么做才能不算过家家。
+
+此事在闪之轨迹黎恩传中亦有记载
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ntrntr1  
+##### 15304#       发表于 2025-1-31 12:47
+
+<blockquote>huxiaopao163 发表于 2025-1-31 07:29
+祥子要是下集在小睦家门口下跪，肯定要挨莫老师臭骂吧。
+
+“你还有脸来，当初说什么想要睦回来，现在好了彻 ...</blockquote>
+在小睦门口跪下，出来的是一脸慌张被吓出来的soyo...
+
+*****
+
+####  单脚着地  
+##### 15305#       发表于 2025-1-31 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">找尽一切借口给其他人开脱，无非不就是想把屎盆子都扣在大象老师头上嘛
+
+*****
+
+####  qratosones1337  
+##### 15306#       发表于 2025-1-31 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316687&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-31 02:24</a>
+祥子三番五次口头阻止喵梦的出格行为已经表面至少她没和队员有合同明令禁止哪些能做哪些不能做，讲白就是 ...</blockquote>
+而且看起来大祥对于“面具不可能戴一辈子”这个事情也没有明确的认知和规划，更像是拖一时算一时。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 15307#       发表于 2025-1-31 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319544&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 12:46</a>
+要么楼友来讲解一下，家里有千亿资产的情况下，怎么做才能不算过家家
+
+—— 来自 Xiaomi 23113RKC6C, Andro ...</blockquote>
+和家里切割去照顾废物老爸那段没人说是过家家吧，从借助家族力量开始搞商业乐队开始就不对味儿了
+
+*****
+
+####  厄斯沃穆  
+##### 15308#       发表于 2025-1-31 12:49
+
+因为心理受打击，自己没有“主要”责任，不敢“越权”，就能放着自己精神显然出问题的双子，半身，青梅竹马一个月——我就不提送医院了，甚至都没有一句台词、一个镜头有联系过——不管，这还关什么系性啊，真不熟吧，多生分哪<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  MASKA-1  
+##### 15309#       发表于 2025-1-31 12:50
+
+后面肯定要安排睦祥追妻火葬场，难说能不能让人满意。
+
+*****
+
+####  江口夕  
+##### 15310#       发表于 2025-1-31 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319558&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 12:48</a>
+和家里切割去照顾废物老爸那段没人说是过家家吧，从借助家族力量开始搞商业乐队开始就不对味儿了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那么是老登自己来掺一脚还是祥子主动要求的，楼友有头绪么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  看穿一切的鱼  
+##### 15311#       发表于 2025-1-31 12:51
+
+ 本帖最后由 看穿一切的鱼 于 2025-1-31 12:53 编辑 
+
+睦的精神问题家庭先背九成以上的锅吧，白祥不也处处照顾睦。家庭埋雷，后面大喵点燃引线，不能因为最后大祥老师站的离睦最近就让大祥背锅吧。在我看来大祥老师反而是锅最小的，她跟睦讲那几句甚至都算不上上压力。
+
+还有大莫老师才是时下最时髦的欺软怕硬吧，早出来反抗家庭啊。睦在地下指责大喵总说不好的事的时候怎么不顶号。知道祥老师不会对睦怎么样才会疯狂上嘴脸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 15312#       发表于 2025-1-31 12:52
+
+虛假的半身： 出事一月不聯絡
+
+真正的半身： 姐們有事我沖塔
+
+*****
+
+####  盐盐盐盐盐  
+##### 15313#       发表于 2025-1-31 12:52
+
+别急，说不定祥子在睦家门口哭哭是回忆呢（
+
+已经去过了但是mo的症状完全没好还问她为什么让am散了直戳祥子痛点再次开跑跑到门前瘫倒掉眼泪
+
+*****
+
+####  ddy2811  
+##### 15314#       发表于 2025-1-31 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318908&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 11:22</a>
+
+现在就是武士道为了猛猛出圈企划了一个又现实又疯狂的故事并且狠狠炒作，但是制作团队是只有写校园青春故事 ...</blockquote>
+这就是祥子干的事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 15315#       发表于 2025-1-31 12:53
+
+ 红白字不就是B站字幕组自主加工的特效么
+
+*****
+
+####  JustW  
+##### 15316#       发表于 2025-1-31 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319574&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 12:50</a>
+那么是老登自己来掺一脚还是祥子主动要求的，楼友有头绪么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上 ...</blockquote>
+目前没有挑明，只知道第一季祥子回过家，而且不存在祥子不知道自己家里有赞助，人家又没偷偷搞个中间公司。而且祥子使用这么多资源上了武道馆还没有满足，谁能解释清楚到底目标是什么。
+
+*****
+
+####  Lyzers  
+##### 15317#       发表于 2025-1-31 12:53
+
+ 本帖最后由 Lyzers 于 2025-1-31 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319362&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 12:22</a>
+
+因为爱音是个超强行动力大阳角，素世是睦朋友，c团散了一年没人有动**音能把三个人拉一块鸡团哪个人能比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么这时候又要遵循人设，行动力强就又能越权了？素食压力了睦一整季，睦头在狗时屈指可数有大幅度表情变化的镜头80%都是素食造成的，现在这俩又变成朋友而且就又能越权了？
+
+就算要走人设，那鸡的人设烂完了。祥子能吃能喝上学开豪车回家住大豪斯，但我就觉得你不幸福直接开盒到你家；至于那个在舞台上哇哇叫的睦头，就只剩下多次压力过睦头的素食在乎了，谁管她呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+海玲和初华当时跟灯认识几分钟就能出言支持和开导灯，却对合作几个月的睦头不管不顾因为“初华行动力只在祥子上”和越权论，这也是人设的一部份吗？那鸡团还是纯纯神人集合，行动力还不如只跟祥子对话过几次的爱音和重度社恐的灯，最一开始的问题“只能黑到大祥和睦爹妈”还是不能成立啊
+
+*****
+
+####  YF31  
+##### 15318#       发表于 2025-1-31 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319530&amp;ptid=2208921" target="_blank">novalli 发表于 2025-1-31 12:44</a>
+
+单从剧情来说，这种展开只是在动画里没那么常见。但对比《呼啸山庄》之类的其他文艺作品的剧情，这才哪到哪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">沉重尖锐没觉得，闹麻了倒是真的。
+
+你都提呼啸山庄了为什么不提骆驼祥子呢？骆驼祥子最后也是一烂到底，为什么没人喷骆驼祥子烂而喷丰川祥子烂？
+
+因为设定的苦难根本就没让人共情，你要沉重尖锐不如直接高额违约金逼债下海拍AV，喜欢踩尊严就多踩点，为什么不做呢？是不想吗？
+
+*****
+
+####  LeonsCat  
+##### 15319#       发表于 2025-1-31 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319364&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 12:22</a>
+
+还是那句话，她没理由一边反对过家家一边又享受因为过家家而不用担责所带来的好处，难不成她恨祥子没有在 ...</blockquote>
+有啥好处，好处还不是她自己挣的。
+
+按照祥子那套过家家搞“音乐性”但是怎么搞都说不清的搞法，作为随时能被替换的蒙面乐手唯一能指望的就是这个偶像组合能火上五年十年，这样能分一点唱片版税。平时给自己偷偷引个流都得小心翼翼，那不是得穷死——要记住，偶像组合打歌是要烧钱的，偶像的工资差不多和711打工一样。
+
+也就是摘了面具，把amoris和她本人绑定后，才能赚点外快，虽然到头来一通操作猛如虎，效果一看二百五就是了。
+
+*****
+
+####  novalli  
+##### 15320#       发表于 2025-1-31 12:54
+
+讲道理，台词里明确出现了“大小姐的过家家”，那剧情肯定会往反方向发展吧？
+不过现在最想不清楚的就是sumimi后面要怎么发展？mana是真的太温暖了，可惜暖不了初华已经被夺走的心。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
