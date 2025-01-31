@@ -2414,3 +2414,13 @@ go批大脑也升级了? ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  童贞阿龙  
+##### 263#       发表于 2025-1-31 11:05
+
++2 祥子的角色塑造明显是最好的，倒是担心剧情能不能收回来
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
