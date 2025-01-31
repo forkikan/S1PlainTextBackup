@@ -8392,3 +8392,81 @@ A团在第七话的重组搞不好会是集体黑化的结果，所以才能组�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">这就是中华炮的自信吗
 
+
+*****
+
+####  天空塔书记官  
+##### 15553#       发表于 2025-1-31 16:59
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 17:00 编辑 
+
+对角色的恶意是为了之后角色的成长和反差，仍然是为了剧情服务，甚至这可能还不够，估计第六集还会继续跌落，第七集则是触底的反弹，但也不会键得有多光彩，本质仍然是向下的，现在剧情的氛围不只是针对祥子，其他人也是一样，所有人都在损坏，迷子则是作为对照的存在，而不只是救急的解药<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 15554#       发表于 2025-1-31 16:59
+
+半身这设定也没啥好车的，你不能用大祥彻底坏掉后这两个月的行为否定睦祥从小到大的关系。大祥要是从小到大都这样那哪还有什么托比欧，从来都只有迪亚波罗一个人。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 15555#       发表于 2025-1-31 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321391&amp;ptid=2208921" target="_blank">琉璃苑軒風 发表于 2025-1-31 16:47</a>
+我前不久按论坛里安利才补完mygo，能问下这续作专楼是这么聊着聊着就对人不对事了么 ...</blockquote>
+不知道，我只知道一群人在鸡同鸭讲疯狂吵架谁也说服不了谁，而且完全可以看到这样的情况会延续到母鸡卡播完。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Lyzers  
+##### 15556#       发表于 2025-1-31 17:02
+
+说不定下一集哪个角色又突然龙场悟道一把大手把人拉去live，然后大伙就在音乐感染下意识到自己原来很喜欢阿北母鸡卡，这就是真正的音乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 15557#       发表于 2025-1-31 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321440&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-1-31 16:53</a>
+就现在这剧情尿性，初华九成九不知道因为啥得爆一下，但是估计得在治好木头和祥子之后，接着看吧，我估计 ...</blockquote>
+海铃会爆，而且会在初华之前，当然这只是我的个人观点，海玲身上压抑自我的倾向太明显了，如果解开了束缚，搞不好就会被她的本来面目吓到<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 15558#       发表于 2025-1-31 17:06
+
+ 那也该初华爆了吧，海玲急着爆的动机是啥，初华那么卑微地问：祥子，不在一个乐队我还能联系你么？ 下班回来发现人去楼空，怎么也该让初华直面祥子了吧
+
+*****
+
+####  zhzij111  
+##### 15559#       发表于 2025-1-31 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320347&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 14:22</a>
+是真的难绷有的人直接定性过家家并以此车祥。睦家里有没有钱？soyo家里有没有钱？都是过家家都是闹麻了？这 ...</blockquote>
+笑死，soyo她组乐队就是来玩的，睦就是来帮祥子的，人两位本来就是来过家家的
+
+你祥子可是来证明自己牛逼的，结果是:
+1.成立可能大量依靠自己本家丰川集团的援助；
+2队员不听指挥没有任何惩罚措施；
+3有人精神病犯了没工作人员在意
+3.重要巡演前一天才排练
+4.乐队几个人突然想起来要解散第二天就光速解散；
+5.观众都到场了才说自己不干了，连首歌都不给人听，没有艺德
+5.凭着性子解散，结果违约费压根没想好怎么赔，还要靠丰川老登的大手兜底。
+
+哪里能显示出你这个乐队不是个过家家玩票乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

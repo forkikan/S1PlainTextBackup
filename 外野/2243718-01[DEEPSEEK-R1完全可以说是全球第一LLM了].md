@@ -11836,3 +11836,89 @@ https://api-docs.deepseek.com/zh-cn/guides/reasoning_model
 
 当时是想用来在vscode里跑continue，项目有个小的前端bug程序请假了没人修，我看着难受就就想自己修修看
 
+
+*****
+
+####  linc555  
+##### 901#       发表于 2025-1-31 16:56
+
+<blockquote>moeblack 发表于 2025-1-31 16:51
+啊，啊啊
+
+你这话里面没有任何有效信息啊
+</blockquote>
+你说蒙我了
+
+model不就是调用的哪种引擎么？
+
+就像之前我让他接vscode，调用的就是deepseek-coder
+
+*****
+
+####  moeblack  
+##### 902#         楼主| 发表于 2025-1-31 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321457&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:56</a>
+你说蒙我了
+
+model不就是调用的哪种引擎么？
+
+就像之前我让他接vscode，调用的就是deepseek-coder</blockquote>
+官网炸了不能用官网了你的base url用的是哪家的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hargen2000  
+##### 903#       发表于 2025-1-31 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321294&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:37</a>
+api调用的回复是没有推理过程的，有大佬能讲讲区别么
+
+推理过程是一个在web上通过关键词生成的有效流程
+
+还是 ...</blockquote>
+有推理过程，可能是你用的程序没做适配
+
+r1 api的推理内容是单独一个字段，不和输出在一起
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  moeblack  
+##### 904#         楼主| 发表于 2025-1-31 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321457&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 16:56</a>
+你说蒙我了
+
+model不就是调用的哪种引擎么？
+
+就像之前我让他接vscode，调用的就是deepseek-coder</blockquote>
+如果是官网的话，r1的reasoning回复是包裹在一个单独的字段里面的，我现在一下子记不起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  linc555  
+##### 905#       发表于 2025-1-31 17:00
+
+<blockquote>moeblack 发表于 2025-1-31 16:57
+官网炸了不能用官网了你的base url用的是哪家的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+官网的啊，能用啊
+
+*****
+
+####  Azcarlo  
+##### 906#       发表于 2025-1-31 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321490&amp;ptid=2243718" target="_blank">linc555 发表于 2025-1-31 17:00</a>
+
+官网的啊，能用啊</blockquote>
+R1不能用，你用的是V3，V3不是推理模型。
+
