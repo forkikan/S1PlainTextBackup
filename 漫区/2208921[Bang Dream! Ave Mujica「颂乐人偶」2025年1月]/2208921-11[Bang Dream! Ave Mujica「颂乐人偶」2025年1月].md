@@ -8545,3 +8545,38 @@ A团在第七话的重组搞不好会是集体黑化的结果，所以才能组�
 
 去成为超人吧，大象老师<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无事忙  
+##### 15567#       发表于 2025-1-31 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313919&amp;ptid=2208921" target="_blank">帆前 发表于 2025-1-30 22:43</a>
+
+看到最后只有soyo还惦记着小睦的精神健康，我：soyo！！！！！
+
+不愧是我在鸡狗两个团中单推了一季的人，刀 ...</blockquote>
+素世，伟大，能成为妈妈的人<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15568#       发表于 2025-1-31 17:20
+
+ 本帖最后由 江口夕 于 2025-1-31 17:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321611&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-1-31 17:16</a>
+正常逻辑就是上一集里的二选一，要么是海玲找人代打，要么是按大喵的规划改演戏，完善一点的话也可以两者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">解散是对的，起码在观众质疑之前保留基本盘，长期找代打或者直接不要乐队了就是对的起观众了？要不要让大猫再给你修正下：观众花了这么多路费跑过来你来个代打？or观众花了路费跑过来看你演奏你只演戏？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  古明地雷  
+##### 15569#       发表于 2025-1-31 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321554&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 17:07</a>
+笑死，过家家跟有没有钱有啥关系，soyo她组乐队就是来玩的，睦就是来帮祥子的，人两位本来就是来过家家交 ...</blockquote>
+列了一大堆罪状几条是祥子的原因？工作人员不在意精神病所以祥子是在过家家？是祥子提的要退出还是要解散？你要觉得祥子没压住成员所以是过家家也没什么好说了
+
