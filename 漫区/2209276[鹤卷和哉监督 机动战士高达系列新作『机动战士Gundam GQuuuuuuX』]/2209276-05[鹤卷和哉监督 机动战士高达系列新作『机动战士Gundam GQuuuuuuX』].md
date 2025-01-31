@@ -3792,3 +3792,13 @@ EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A
 
 我个人理解是gquuuuuuc脑控的原理和手操差不多 计算机接受指令调用行为 麻球害怕缩一团的时候想保护自己 计算机接受到了防护的指令就调用对应的行为举盾防御扎古射击<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 6217#       发表于 2025-2-1 02:09
+
+亚赞和玛雅都是EFSF出身
+
+布朗更不是一般人，还接受过强化
+
