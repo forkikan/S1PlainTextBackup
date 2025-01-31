@@ -2656,3 +2656,28 @@ go了半集，+1吧，鸡团这几人的关系啊，真的让人闹麻了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  无证madam  
+##### 288#       发表于 2025-1-31 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319951&amp;ptid=2244721" target="_blank">矢吹奈子 发表于 2025-1-31 13:37</a>
+才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘</blockquote>
+这种是虎扑偷来的 虽然没看虎扑二刺猿区 但虎扑肯定也会有这种帖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sauron.j  
+##### 289#       发表于 2025-1-31 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317257&amp;ptid=2244721" target="_blank">FanKiE 发表于 2025-1-31 07:48</a>
+
+墨提斯到底有什么用？小睦献祭了自己的心理健康，难道只换来一个让狗团介入的契机吗？
+
+—— 来自 S1Fun ...</blockquote>
+没用
+
+mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示了这不会是一个正向塑造的模式/形象
+
