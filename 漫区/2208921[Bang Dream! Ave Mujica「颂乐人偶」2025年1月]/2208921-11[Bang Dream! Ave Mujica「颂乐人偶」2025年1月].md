@@ -9907,3 +9907,102 @@ bang里面不现实的要素一大堆，偏偏要在这个违约金上非要给�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 15677#       发表于 2025-1-31 19:30
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 19:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322543&amp;ptid=2208921" target="_blank">上条仁美 发表于 2025-1-31 19:26</a>
+按照祥妈葬礼上的站位，美奈美应该是祥妈的表姐妹，也就是丰川老登的外甥女，提携一下自己亲戚家也是人之 ...</blockquote>
+但在岛国本家和分家之间的关系还挺微妙的，不太能说是平等的关系，尤其在世家大族更是如此<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 15678#       发表于 2025-1-31 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322546&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:27</a>
+
+那倒也不是，要是能承受失败的后果就不是过家家，可惜编剧恶意太大还给小祥安排了个慈祥老爷爷兜底
+
+—— ...</blockquote>
+祥子在被接回大宅子之前就是继续去当客服打工，也没有怨天怨地，没看出来哪里不能承受失败的后果了
+
+*****
+
+####  Lyzers  
+##### 15679#       发表于 2025-1-31 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322432&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 19:09</a>
+
+我说的不全是动画里的内容么，难道2-3集大伙对睦的差点演出事故的那种态度是我觉得？难道第4集大伙围绕开 ...</blockquote>
+你提的这些不就是纯我觉得吗？有跟睦被压力压垮到浑身颤抖，莫骂祥一样我就讨厌你，睦说喵总说讨厌的话一样的内容吗，就为什么你说的这些内容就能叫理所当然不关心睦头的内容了？
+
+甚至哪怕你说的这些成立吧，那还展开个几把呢？大家都一副关你屁事关我屁事就完了啊，这团还能结什么？最爱流量的大喵也抢不到流量了，睦莫讨厌祥子本来入团就是因为祥子现在也没理由了，海玲更加没关我屁事，就只剩个初华了，你去跟祥腻歪去吧。大家都关我屁事关你屁事就完了啊，等下一集就给你看看素怎么给你越权去吧，为了圆一个问题要么把角色全都拉一个档次，要么我就行你不行，太对咯。
+
+再说你鸡现在情绪断层还少了吗，差一个“呃呃呃我刚吵完架不能管他咯”吗？
+
+
+*****
+
+####  wwwttth  
+##### 15680#       发表于 2025-1-31 19:34
+
+哦对还有个最变态的可能，睦/莫超级融合成为真正的全能大师街演爆火把所有人拉回来，这个能写好的话可能还行但是太容易炸了，以及这样的话很难想象大祥的主角位是靠什么来的…
+
+
+*****
+
+####  江口夕  
+##### 15681#       发表于 2025-1-31 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322546&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:27</a>
+那倒也不是，要是能承受失败的后果就不是过家家，可惜编剧恶意太大还给小祥安排了个慈祥老爷爷兜底
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大祥找老登兜底了么，还不是擅自兜底，后面当借的还就行了。而且大概率会这样，不然牢爹是没得救的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  downnote  
+##### 15682#       发表于 2025-1-31 19:35
+
+ 本帖最后由 downnote 于 2025-1-31 19:36 编辑 
+
+一直没看这片最近两周才补完，本来看第二季宣传画还以为和海猫有啥关系结果似乎没有？
+
+如果按遗产争夺战的路数，应该老登很快就要挂了，祥子又卷入风波，比方说目睹舅舅毒杀老登的一幕啊啥的。
+
+但是拿不出证据，就惨遭排挤要丧失遗产继承权。为了维系在家族的地位以便复仇，立下赌约如果短时间能弄到多少钱就如何如何。
+
+于是只能集结A团复出。期间一番操作，如老舅派人下黑手刺杀、绑架喵梦家人等等手段；均被一一化解。
+
+最后的live上杀手刚拔出枪就被周围发现压倒在地，场面一度十分混乱，粉丝纷纷涌上台前，A团五人混在人群中胜利逃亡。……之类
+
+*****
+
+####  玖羽  
+##### 15683#       发表于 2025-1-31 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322562&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 19:30</a>
+
+但在岛国本家和分家之间的关系还挺微妙的，不太能说是平等的关系，尤其在世家大族更是如此</blockquote>
+第二话喵梦问美奈美和祥子认识吗，美奈美说祥子和睦从幼儿园就在一起了，微妙地回避了家里的关系
+
+*****
+
+####  zhzij111  
+##### 15684#       发表于 2025-1-31 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322567&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-1-31 19:32</a>
+祥子在被接回大宅子之前就是继续去当客服打工，也没有怨天怨地，没看出来哪里不能承受失败的后果了 ...</blockquote>
+干客服还违约金是吧，不是压根就没把失败后果当回事吗，也没人追她债啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
