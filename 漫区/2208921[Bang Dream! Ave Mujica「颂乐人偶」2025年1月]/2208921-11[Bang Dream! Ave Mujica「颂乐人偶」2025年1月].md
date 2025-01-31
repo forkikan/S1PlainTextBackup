@@ -9769,3 +9769,141 @@ T0：🐘家。财阀级别，有形的大手。</blockquote>
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下姥爷和初华不共戴天了，快进到开传送门N初同框。
 
+
+*****
+
+####  南宮凝香  
+##### 15666#       发表于 2025-1-31 19:18
+
+<blockquote>aptx8285144 发表于 2025-1-31 19:06
+其实当初看立希经常送灯回家，我经常想到一个词叫青梅竹马（虽然也可以叫隔壁邻居？） ...</blockquote>
+不是 （Bushi）
+
+立希住兩個車站外，
+
+她只是每次都送燈回家
+
+從燈家住在月之森這貴族學校的旁邊
+
+她的家境實際應該也沒差到那裡去
+
+中產應該還是有的
+
+*****
+
+####  terry666  
+##### 15667#       发表于 2025-1-31 19:18
+
+这片最大的败笔就是真搞个违约金让老登下场收拾残局。
+
+哪怕鸡团就这么解散观众吐槽违约金的事，编剧也完全可以打马虎眼装死。二次元，mmr很好唬弄的。
+
+偏偏编剧选了这么一个直接把所有能圆满解决问题的方法堵死的写法。
+
+bang里面不现实的要素一大堆，偏偏要在这个违约金上非要给个交代是真的奇怪。
+
+有了个老登收拾残局这个剧情在，后面不管主要角色们怎么觉醒怎么努力怎么反转，看乐子的人一句“还不是靠丰川家背后的大手”就能把所有东西都否定了
+
+*****
+
+####  古明地雷  
+##### 15668#       发表于 2025-1-31 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322439&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:10</a>
+说她过家家压根不是说她态度有问题，而是说她能力不足思路幼稚又要证明自己，像小女孩过家家一样闹麻了
+
+ ...</blockquote>
+按你这个等式是不是一切草台都是过家家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 15669#       发表于 2025-1-31 19:21
+
+ 本帖最后由 wwwttth 于 2025-1-31 19:23 编辑 
+
+这一个月找补最多找补两点，如果是洗喵梦，让喵梦拉2.0可以找补下喵其实和睦妈问过睦的情况睦妈没觉得有问题，如果是洗大祥，让大祥拉2.0可以找补睦头门口不让进跪地哭场景回收。海铃没有主动性雷也不大半集回收足够了，初华的雷还得往后延。
+
+*****
+
+####  YF31  
+##### 15670#       发表于 2025-1-31 19:22
+
+ 本帖最后由 YF31 于 2025-1-31 19:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322500&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 19:18</a>
+
+这片最大的败笔就是真搞个违约金让老登下场收拾残局。
+
+哪怕鸡团就这么解散观众吐槽违约金的事，编剧也完全 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孩子们，这就是柿本监督的想法啊，看过访谈就知道了，柿本监督是真心实意觉得丰川祥子闹麻了的，那可不就是回归老登大手嘛。
+
+后续也不需要否定丰川大手，只要软软祥子跟老登中登抱一抱，都是年轻犯下的错误，后续再开一次音趴大家哭哭包饺子就好啦，我们就是来真心实意过女女女关系性的家家的，怎么你不服气.jpg
+
+场外舆论是什么，忙着和解包饺子呢，少话。
+
+*****
+
+####  烂片雷达  
+##### 15671#       发表于 2025-1-31 19:23
+
+如果睦真的彻底回不来了祥子会殉情吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  terry666  
+##### 15672#       发表于 2025-1-31 19:23
+
+<blockquote>YF31 发表于 2025-1-31 19:22
+孩子们，这就是柿本监督的想法啊，看过访谈就知道了，柿本监督是真心实意觉得丰川祥子闹麻了的，那可不就 ...</blockquote>
+所以监督**啊。商业动画给观众添堵就是死罪
+
+
+*****
+
+####  天空塔书记官  
+##### 15673#       发表于 2025-1-31 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322500&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 19:18</a>
+这片最大的败笔就是真搞个违约金让老登下场收拾残局。
+
+哪怕鸡团就这么解散观众吐槽违约金的事，编剧也完全 ...</blockquote>
+<img src="https://p.sda1.dev/21/940b0d1445f22a02bffc3533e431f2d4/image.jpg" referrerpolicy="no-referrer">
+
+不是违约金，是赔偿金
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 15674#       发表于 2025-1-31 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322371&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-31 18:59</a>
+但是只摘自己怎么蹭睦头和初华啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不是已经武道馆了，摘了初华睦也没上东蛋
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  上条仁美  
+##### 15675#       发表于 2025-1-31 19:26
+
+<blockquote>sauron.j 发表于 2025-1-31 20:01
+细节 美奈美给丰川集团拍过广告
+
+也就是说若叶一家事业的早期都可能是攀附丰川崛起的 ...</blockquote>
+
+按照祥妈葬礼上的站位，美奈美应该是祥妈的表姐妹，老登兄弟姐妹的孩子，也就是丰川老登的侄女/外甥女，提携一下自己亲戚家也是人之常情吧。
+
+*****
+
+####  zhzij111  
+##### 15676#       发表于 2025-1-31 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322504&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 19:19</a>
+按你这个等式是不是一切草台都是过家家</blockquote>
+那倒也不是，要是能承受失败的后果就不是过家家，可惜编剧恶意太大还给小祥安排了个慈祥老爷爷兜底
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
