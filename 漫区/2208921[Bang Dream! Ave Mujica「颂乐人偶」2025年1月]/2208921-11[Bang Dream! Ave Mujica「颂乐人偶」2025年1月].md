@@ -5366,3 +5366,55 @@ b站评分都能降到8.8啊，夸张哦
 
 无知者无罪，你这些人本身就是废气满载的窨井我放里面扔个炮仗我无罪，我拉的屎你不能用嘴完美的接住还让它露出来了你不是大小姐过家家是什么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 15289#       发表于 2025-1-31 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316413&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-1-31 01:44</a>
+答应的仅是摘喵梦面具，睦不是必须摘
+
+第一集摘了4个的时候祥子还在劝初华不要摘，表明不全摘就是可选项 ...</blockquote>
+那就更闹麻了，既然可以不全摘那更没有理由死压着大喵不让摘然后连个饼都画不出来了…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 15290#       发表于 2025-1-31 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319358&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 12:21</a>
+
+然而无论是祥子自己还是喵梦还是丰川家都仿佛觉得最速武道馆啥也不算，一个还是满脸焦虑一个急不可耐要更进 ...</blockquote>
+我很怀疑独角兽这群人根本就把武道馆当工具了，虽然路人们一副抢票很难的样子，但是这些全成了为解散而包的饺子，说实话很空虚，现实艺人多少人希望上而不能上的地方成了一个被垫的工具背景<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  newtroll  
+##### 15291#       发表于 2025-1-31 12:29
+
+狗的关系性就是建立在剧情逻辑上的，比如爱音那一句“这不是由我们一起组建乐队吗”让观众有种恍然大悟的感觉，而一开始爱素牵头组乐队是个早期直接展现出来却也没什么人在意过的剧情点，这种前后呼应让关系性变得更美味了。至于鸡的动画嘛，希望后期也能吧剧情逻辑圆回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 15292#       发表于 2025-1-31 12:29
+
+喵梦这集也是脑回路清奇。。。
+
+正常演技不好去剧团被导演指导下和成熟演员对对戏成长最快的，她天天在家里自己练啥用啊。。。结果一想到睦直接自闭放弃了
+
+真是不知道要干嘛清奇的脑回路
+
+
+*****
+
+####  yaneis  
+##### 15293#       发表于 2025-1-31 12:32
+
+<blockquote>qratosones1337 发表于 2025-1-31 12:19
+面具根本不可能戴一辈子，那么理论上作为领导的大祥应该准备好摘面具之后的预案——实际上有么？显然根本 ...</blockquote>
+先不说在更好的时机摘面具会不会给祥子和木头留出更多的余裕，更多的操作空间这种偏脑补的问题，成员独走摘了所有人的面具比起自己主动摘，最大的不同就是队伍不受控制不稳定了，更容易起冲突，这点区别还是很大的，也反映在了剧情里
+
