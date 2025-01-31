@@ -6975,3 +6975,111 @@ bangbang还有出道就假唱被发现的组合呢，不也和没事人一样的
 
 <img src="https://p.sda1.dev/21/159d969078541a8650f09cb7f43f8a28/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 15435#       发表于 2025-1-31 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320347&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 14:22</a>
+
+是真的难绷有的人直接定性过家家并以此车祥。睦家里有没有钱？soyo家里有没有钱？都是过家家都是闹麻了？这 ...</blockquote>
+对本人来说怎么样，和对别人来说怎么样，完全不是一回事的
+
+你本人为此再崩溃，只要想不明白和自己出身以及条件有关的问题，别人看着也是大小姐过家家闹麻了，重新踏上征途的时候务必要想清楚这一点
+
+*****
+
+####  魔灵高达  
+##### 15436#       发表于 2025-1-31 14:40
+
+怎么还有人说啥必须摘面具啊，从三次元企划的角度来说确实是肯定会摘面具的，但是吧，单论合理性，不摘面具一直活动也完全合理的好吗。日本不露脸的歌手和组合也不少了，再说能不能搞清楚现在是2025年，皮套菲猴都能唱动画主题曲了
+
+*****
+
+####  LeonsCat  
+##### 15437#       发表于 2025-1-31 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320405&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 14:29</a>
+
+人家不办握手会也是有音乐性的一种，说明人家不想当狗屁传统偶像。你呢，一个劲往偶像靠。而且现在不是带 ...</blockquote>
+你是真不知道偶像的核心是什么，偶像的核心是依赖大媒体，传统上是电视台，现在转向网络很多了但是还是高度中心化的宣发，投入大量成本打歌、铺货，通过无孔不入式的宣传来提高影响力，而握手会只是其中使用的较多的一种具体手段而已。所谓一两个月速通武道馆，就是标准的偶像宣发才可能有的速度。
+
+与之对应的，讲究音乐性的做法是首先在地下窝着积攒音乐和粉丝，一般来说三五年后走向出道和主流出道——这方面女子乐队的典范是女仆团和Lovebites，以及老前辈Show-Ya无不是如此。其中值得注意的是，Show-Ya甚至干脆是偶像出身，类似的还有索尼亲女儿PRINCESS PRINCESS——从这两支乐队在偶像时期如何运营，在乐队时期又是如何运营，对比一下就能看出来，剧中的AM团是标准的会点吹拉弹唱的女子偶像组合，同讲究音乐积累的乐队还差得远呢。
+
+
+*****
+
+####  kongxian  
+##### 15438#       发表于 2025-1-31 14:43
+
+商业乐队说死就死，到时候说活就活？靠什么？丰川财团的大手吗？这片居然是写财团的商战片啊？
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 15439#       发表于 2025-1-31 14:43
+
+乐队散了合合了散在真实世界里可太多了
+
+*****
+
+####  Lyzers  
+##### 15440#       发表于 2025-1-31 14:43
+
+ 本帖最后由 Lyzers 于 2025-1-31 14:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320413&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 14:31</a>
+问题是在这个点上是没矛盾啊，要说矛盾不就是祥子和睦父母的问题？（甚至父母从人设上来说也没矛盾但是洗 ...</blockquote>
+因为什么人设和能够越权的朋友关系就是编剧一句话一挥手就能写出来的东西啊
+
+再说睦和素食知道自己还是彼此的朋友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我素食在狗时阴阳怪气，路上看见都装没看见，鸡时拷打睦头，严格来说睦头压力爆表也算我素食一份责任，但她们还是能越权的朋友
+
+而鸡团虽然相处几个月，除了大喵也没跟谁有过矛盾，压力爆表我们是主责，但我又不知道你真的假的，你要尖叫就叫吧，关我们姐几个啥事，真不熟，不越权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 15441#       发表于 2025-1-31 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320473&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 14:40</a>
+
+怎么还有人说啥必须摘面具啊，从三次元企划的角度来说确实是肯定会摘面具的，但是吧，单论合理性，不摘面具 ...</blockquote>
+主要是，一个从一开始就偶像运营的组合，有什么能力抵挡运营方用好看的脸来刷数据的冲动——靠自己都不知道怎么办的大祥老师纯粹直觉的的抵抗么……
+
+当然了，你要说大祥老师是令和年代的小暮阁下，那随意。
+
+*****
+
+####  江口夕  
+##### 15442#       发表于 2025-1-31 14:46
+
+ 本帖最后由 江口夕 于 2025-1-31 14:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320489&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:42</a>
+你是真不知道偶像的核心是什么，偶像的核心是依赖大媒体，传统上是电视台，现在转向网络很多了但是还是高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">你偶像什么能力，人一开始就来包装你。你没点东西，人钱给你打水漂玩的？你说的不是偶像，叫企划，实际包装的是制作人和他的idea或者说ppt，都是工具人又不是没你不行，跟你说的偶像本身有个毛的关系
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  LeonsCat  
+##### 15443#       发表于 2025-1-31 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320494&amp;ptid=2208921" target="_blank">kongxian 发表于 2025-1-31 14:43</a>
+
+商业乐队说死就死，到时候说活就活？靠什么？丰川财团的大手吗？这片居然是写财团的商战片啊？ ...</blockquote>
+港真，摇滚乐队，主流出道的搞分分合合，乃至生生死死都是属于再正常不过了。。。又不是偶像企划，那是集中了多个资方共同投资砸钱的，砸了一遍总不能打水漂吧。
+
+*****
+
+####  LeonsCat  
+##### 15444#       发表于 2025-1-31 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320512&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 14:46</a>
+
+你偶像什么能力，人一开始就来包装你。你没点东西，人钱给你打水漂玩的？
+
+—— 来自 Xiaomi 23113RKC6C, ...</blockquote>
+对啊，丰川小公主就是<strong>那点东西</strong>啊。
+
