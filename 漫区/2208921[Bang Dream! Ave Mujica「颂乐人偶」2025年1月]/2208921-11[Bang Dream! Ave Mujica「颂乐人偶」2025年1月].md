@@ -2657,3 +2657,63 @@ s1婆罗门还看b站评分我也是绷不住的</blockquote>
 只能说再等等，这又不是真的赌上人生为啥要这么急眼呢？本质还是预期没对上破防了。
 终归到底是几个JK过家家啊，这句话可以送给对垒的每一个人。
 
+
+*****
+
+####  莉缇娅  
+##### 15034#       发表于 2025-1-31 08:06
+
+<blockquote>天空塔书记官 发表于 2025-1-31 01:30
+ave的成功肯定不只是资本的大手，这集不就有表现观众对音乐的喜爱吗，但最速单场武道馆和开巡演不是，就算 ...</blockquote>
+乐奈奶奶:踏马的一个都不尽力，你们不准开live
+
+*****
+
+####  怀沙汨罗  
+##### 15035#       发表于 2025-1-31 08:07
+
+ 本帖最后由 怀沙汨罗 于 2025-1-31 08:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317289&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-31 07:57</a>
+我真的怀疑改剧本了，不说剧本原版好还是这版好，但是人物关系如同大纲问题是🐔团都没有狗团更新过人物关系 ...</blockquote>
+已经五集了。目前为止我看不出海玲对母鸡卡有什么感情，而初华已经开始soyo寡妇化，祥子和睦更是废人化。靠go团来解开死结，那么母鸡卡有什么复辟的必要吗？这个处在商业大手和大小姐过家家叠加态的乐队有什么团魂吗？剩下八集能塞多少，我感觉不太乐观。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  凉良  
+##### 15036#       发表于 2025-1-31 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317302&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-1-31 08:02</a>
+码了很长一段想想删了，等这股子风头过去了才能好好说话。
+只能说再等等，这又不是真的赌上人生为啥要这么 ...</blockquote>
+问题是是wsd让我们觉得做了不是jk过家家的预期
+
+*****
+
+####  一心而用  
+##### 15037#       发表于 2025-1-31 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317289&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-1-31 07:57</a>
+我真的怀疑改剧本了，不说剧本原版好还是这版好，但是人物关系如同大纲问题是🐔团都没有狗团更新过人物关系 ...</blockquote>
+这一话很明显是🦄老师的味道啊，而且也别把当某一个编剧或者监督当成神，这俩还有亦叶亦花呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+*****
+
+####  dgugvff  
+##### 15038#       发表于 2025-1-31 08:12
+
+还有就是喵梦我真觉得她现在事业上升的不用回来了但还是在打鼓难道要去新乐队
+
+*****
+
+####  thisisaspider  
+##### 15039#       发表于 2025-1-31 08:13
+
+看完又想到了一个剧情发展假药，但是不想写了。
+
+正因为前面卖了太多伏笔，导致即使现在这个情况，我居然还能拼凑出一条完整的发展线索。
+
+我应该忘记mujica，出去走走等第六第七集。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
