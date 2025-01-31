@@ -12085,3 +12085,20 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在提醒也改了？手机端提示服务器繁忙多了句几分钟后再点生成（当然你不理这个提示点生成还是会生成
 
+
+*****
+
+####  对羟基笨甲酸  
+##### 922#       发表于 2025-1-31 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318631&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-1-31 10:54</a>
+请问有人知道回答了一半突然清除告诉我不支持此类问题回答有没有什么好的解决办法，改为采用本地部署会好点 ...</blockquote>
+不要指望本地部署，32B用了一天感觉像小弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windrarara  
+##### 923#       发表于 2025-1-31 18:50
+
+想开点，还好ds诞生在国内，如果是放哪个小国家，现在估计导弹都飞过去了
+

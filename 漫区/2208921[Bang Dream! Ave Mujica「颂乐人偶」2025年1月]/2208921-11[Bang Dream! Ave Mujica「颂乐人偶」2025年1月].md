@@ -9415,3 +9415,119 @@ mujica遇到的一切风波和问题，祥子最终处理的手段都是顺其�
 对喵梦来说，一个是不摘面具她就一直有被换掉的风险，万一被换掉就什么 ...</blockquote>
 着急变现是短视，独走摘面具是蠢，更别说按漏油的想法摘自己面具不就行了，还摘了木头面具导致流量没吸多少更是幽默
 
+
+*****
+
+####  厄神之息  
+##### 15636#       发表于 2025-1-31 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321731&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 17:32</a>
+
+大喵现在闹成虽然说难评，但目前看来，有再组乐队动机，1是觉醒小祥、2是相思病犯了疯癫的初华，剩下的也就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">真别搞吧，go那不涉及利益纯玩票和为给自己利益铺路，不惜把别人心血团炸了把人逼疯的性质观感可真不一样吧。更何况一个失败了沦为搞笑角色，另一个成功了爽爽吃流量了。。。
+
+事实之后要不是大猫拯救了a团这种情况，那他俩还能呆一个团里共事我都觉得不可思议了。
+
+*****
+
+####  天空塔书记官  
+##### 15637#       发表于 2025-1-31 18:47
+
+如果牢爹是法人签名，实际操作的是集团共同决策会怎么样呢，那他只是个背锅的啊
+
+这也能解释他为什么会变得如此颓废
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 15638#       发表于 2025-1-31 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322289&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 18:47</a>
+
+如果牢爹是法人签名，实际操作的是集团共同决策会怎么样呢，那他只是个背锅的啊
+
+这也能解释他为什么会变得如此颓废</blockquote>
+黑一点想的话，可能168亿和剥夺财产都是定治干的
+
+原因是女儿死了之后越想越气，觉得要是女儿当初不看上这个穷小子也许还能多活两年
+
+*****
+
+####  waterstars  
+##### 15639#       发表于 2025-1-31 18:48
+
+别的讨论我不参与，我只纠正一个表述，祥子家住的那个不是别墅，睦那个才是别墅，Villa。
+
+祥子住的是西洋式庄园，Mansion
+
+比那个再大的单一家庭住宅建筑，就只剩下城堡了....
+
+*****
+
+####  江口夕  
+##### 15640#       发表于 2025-1-31 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322289&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 18:47</a>
+如果牢爹是法人签名，实际操作的是集团共同决策会怎么样呢，那他只是个背锅的啊
+
+这也能解释他为什么会变得 ...</blockquote>
+实际就是如此，项目负责人产品经理就是用来背锅的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  古明地雷  
+##### 15641#       发表于 2025-1-31 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321745&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 17:34</a>
+你祥子是乐队实际管理者组织者，结果管的就跟玩一样，然后你说这不是祥子责任，要是没看过光听你这话我还 ...</blockquote>
+是我说祥子没责任，还是你说她在过家家？意思是你觉得没做好等于过家家？
+
+*****
+
+####  aptx8285144  
+##### 15642#       发表于 2025-1-31 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322298&amp;ptid=2208921" target="_blank">waterstars 发表于 2025-1-31 18:48</a>
+
+别的讨论我不参与，我只纠正一个表述，祥子家住的那个不是别墅，睦那个才是别墅，Villa。
+
+祥子住的是西洋 ...</blockquote>
+难怪爱音就像进了大庄园一样（
+
+*****
+
+####  厄神之息  
+##### 15643#       发表于 2025-1-31 18:54
+
+目前来看15年未见的大女主说的可能不是祥子，而是大猫，别人各种痛苦，就她搁那演我独自升级（娱乐圈版）爽的批爆。而且她还是戏里戏外都无敌，大祥戏里戏外一周挨顿骂，顿顿不一样。唯独大猫一句我要为了自己不择手段就可以开免喷符，坏事做尽批话说完美美隐身不被集火不被骂。不可谓不是15年来未见的超级凤傲天大女主。上次这样看到类似的"大女主"，还是rwby的cinder，哪怕cinder也是被主角砍了一条肘子烧了半张脸的。。。
+
+*****
+
+####  天空塔书记官  
+##### 15644#       发表于 2025-1-31 18:54
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 18:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322297&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 18:48</a>
+黑一点想的话，可能168亿和剥夺财产都是定治干的
+
+原因是女儿死了之后越想越气，觉得要是女儿当初不看上这 ...</blockquote>
+祥子肯定会和老登爆了，至于老登黑的程度，就看wsd想让他当动画boss还是剧情长线boss了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 15645#       发表于 2025-1-31 18:54
+
+爱音再去一趟睦头家就是三进大观园了。
+
