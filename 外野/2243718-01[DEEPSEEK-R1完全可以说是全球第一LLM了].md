@@ -12295,3 +12295,36 @@ CloseAI抄的飞快</blockquote>
 说起来，除了官方，还有哪些平台部署了671B的deepseek吗？
 既然这个模型开源不收费，幻方也不从这里面挣钱，官方服务器还在被攻击，我们就不去添乱了，用其他平台搭的应该没啥差别吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纱夜抱着榴弹炮  
+##### 942#       发表于 2025-1-31 22:10
+
+<blockquote>fw3ii9 发表于 2025-1-31 22:07
+说起来，除了官方，还有哪些平台部署了671B的deepseek吗？
+
+既然这个模型开源不收费，幻方也不从这里面挣钱 ...</blockquote>
+openrouter有其他的提供商，但是得注意传provider参数，不然可能意外用到贵的了
+
+*****
+
+####  moeblack  
+##### 943#         楼主| 发表于 2025-1-31 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323620&amp;ptid=2243718" target="_blank">fw3ii9 发表于 2025-1-31 22:07</a>
+
+说起来，除了官方，还有哪些平台部署了671B的deepseek吗？
+
+既然这个模型开源不收费，幻方也不从这里面挣钱 ...</blockquote>
+老黄 满血
+
+*****
+
+####  月灵银羽  
+##### 944#       发表于 2025-1-31 22:13
+
+虽然deepseek开源，但是开发训练数据在deepseek手里啊，目前其他服务商部署的最大的671b的ds还是和官网的ds用起来感觉有智商差距， 360微软英伟达都部署了ds671b
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

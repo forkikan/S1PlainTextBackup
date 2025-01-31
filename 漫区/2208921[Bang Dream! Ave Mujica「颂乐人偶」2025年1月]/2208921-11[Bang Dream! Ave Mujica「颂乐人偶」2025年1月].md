@@ -11229,3 +11229,90 @@ https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
 
 前几集就是编剧完全否定祥子的路线：纯靠自己来实现音乐梦想并以此背负自己和别人的人生
 
+
+*****
+
+####  aptx8285144  
+##### 15796#       发表于 2025-1-31 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323565&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 21:59</a>
+
+好像有舅舅党说陀螺要抽到第七集,且不说大象被抽得是不是太用力过猛,这剧情编排明显有问题啊,抽陀螺抽太 ...</blockquote>
+初华有没有主场到也不是非常必要，主要是要赶紧拜托除了和祥子贴贴以外的傻白甜形象，你好歹像刺刺团的卢帕那样细节说明是个高人也好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 15797#       发表于 2025-1-31 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323548&amp;ptid=2208921" target="_blank">凉良 发表于 2025-1-31 21:56</a>
+全部碎完了第六集开始凭空加有点 真的不是塑造方式错了么。
+
+真的很难理解说拷打就要全部否定是怎么想的 ...</blockquote>
+后面真重塑烂了再说这话也不迟，其实应该可以相信，emo女高是剧本舒适圈。反过来说如果再加前几集那种“现实”成分和烂炒爆点就没救了
+
+*****
+
+####  Azcarlo  
+##### 15798#       发表于 2025-1-31 22:09
+
+我看这架势下一集丰川小姐还要被抽，第六集预告明显对偷摸零哈气，估计八成被我们家爱音和灯联合哈回来。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aistians  
+##### 15799#       发表于 2025-1-31 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318122&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 09:59</a>
+
+你说的这种也叫成长？讲的还是人话么。
+
+兄弟，别人亲妈亲爸发小都这样了，同理心在哪呢。
+
+反正我是看不出 ...</blockquote>
+编剧都钦定，祥子不回豪宅是因为怕别人的目光了，飞鸟山之战前祥子还特意回过豪宅，那时候正好要组母鸡卡。
+
+你又要否定丰川大手，又要否定祥子过度自尊，明显是假药入脑吧。
+
+*****
+
+####  duskeyes  
+##### 15800#       发表于 2025-1-31 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323516&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-31 21:52</a>
+
+对啊，就是不知道剧本到底出了什么问题
+
+是绫奈和柿本分道扬镳导致的吗？
+
+还是这俩都是真菜，mygo只是个 ...</blockquote>
+柿本菜。
+
+绫奈切割的比我想得还狠，x半夜阴阳怪气，然后回复没看过鸡动画（好像鸡动画里也没标她原案了）。<strong>重点是没看过。</strong>
+
+再结合柿本访谈说改剧本常有，人人都知道制作过程中改剧本乃常有之事，但这和特意在访谈中提及是有不同寓意的。
+
+而且现在人物内核充满矛盾，演出low爆，也是没救的了。只能说佩服漏油现在还能争论剧内人物剧情。
+
+
+*****
+
+####  天空塔书记官  
+##### 15801#       发表于 2025-1-31 22:09
+
+纯靠自己从一开始就是不可能的，手底下的人不会是永远不犯错的机器，而且祥子一直也没有离开丰川家的阴影，能上武道馆和开巡演也不是祥子“努力”就能得到的结果
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  huxiaopao163  
+##### 15802#       发表于 2025-1-31 22:11
+
+感觉很多人已经开始“我对动画的某个观点肯定是对的，但是现在的动画不能佐证我的观点，是因为动画没做好，是导演编剧的水平问题”
+
+这感觉已经没法继续讨论了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
