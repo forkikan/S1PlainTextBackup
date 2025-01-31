@@ -11540,3 +11540,99 @@ https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
 回头来审视 ...</blockquote>
 比起阿格尼 ，碇真嗣 ，格斯，格里菲斯等等大祥其实现在更像真飞鸟，但是更搞的是，比她黑的人物现在明面上活得比她充实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwwttth  
+##### 15822#       发表于 2025-1-31 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323646&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 22:11</a>
+
+感觉很多人已经开始“我对动画的某个观点肯定是对的，但是现在的动画不能佐证我的观点，是因为动画没做好， ...</blockquote>
+是这样的，编剧实际上到目前最大的问题是演出差了（很多情绪性演出没有展现出来，比如4集最后的拆队，导致很多人搁那盘逻辑），以及随意地跳时间导致很多关系观感变得奇怪，比如第五集直接跳了一个月，但是底层逻辑是在的。
+
+但是我现在真有点担心第六集作为真正的谷底，如果祥子的人设真的烂到变态的地步的话，后面已经不是救不救的起来的问题，而是角色本身变小丑了，她不是女主的话还好说，但是怎么看她都是女主位。
+
+*****
+
+####  天空塔书记官  
+##### 15823#       发表于 2025-1-31 22:45
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 22:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323844&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-1-31 22:41</a>
+主唱没主场没问题吗?邦邦主唱一直都是C位啊
+
+银河战舰主唱跟卢帕一个待遇这团还是埋了吧 ...</blockquote>
+还真不是，RAS的C位是楚平方，看看她剧情的占比就知道了，而且其实bang乐队的队长好多都不是主唱，所以并没有绝对C位的说法
+
+主唱是星星是肯定的，但从来没有哪个人生来就是星星(大概也就kkr除外），所以还是耐心看着初华成长吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 15824#       发表于 2025-1-31 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323822&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-31 22:38</a>
+鸡狗动画都是玩弄人心的高手，让角色和角色间情报不对等然后互相误会冲突，光是go团内部都至今有大量陈年 ...</blockquote>
+狗动画再压抑，比如第七集后，顶多就压抑了两集，第十集情绪爆发正向反馈了。而前五集是水到渠成的铺垫，最多是淡淡的忧郁（更何况还有粉色奶龙的唐笑）第五集有爱灯水族馆，把爱灯这俩初步塑造起来了，隐藏的还有素世这条线（但是细节管够，暗示素世后面要跳狼）
+而鸡的前五集到了什么地步呢？没有一点正向反馈，唯一的正向反馈是第三集最后睦彻底解脱了，但这叫正向反馈吗？
+整整五集，五个角色没有高光塑造，作为核心主角的祥子更是被彻底打碎失去一切
+这不是观众对负面要素的抗性，是动画本身就出现了很严重的问题
+
+*****
+
+####  凉良  
+##### 15825#       发表于 2025-1-31 22:47
+
+现在祥子被粉碎一切啥都做错的人设还不够烂么，已经是演了半集尸体都没人共情的状态了。
+
+上面说真写烂了再说，可是现在编剧把这样的祥子救回来的难度可比真的写烂了大了太多太多了。
+
+*****
+
+####  Mika-S  
+##### 15826#       发表于 2025-1-31 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323766&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 22:30</a>
+角色也是要成长的，不能总拿成长过的角色来对比还没成长的角色吧，RAS的贝斯主唱合奏瑞依，不仅是海铃的 ...</blockquote>
+乐队都集合起来上武道馆+巡演半圈了，咋可能对标ras lock来之前<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这可是纯当动画主角的乐队，ras在邦tv 第二季那点戏份肯定比不了
+初华主要问题是都不说让她肩负团队中心角色了，她压根有表现出一点点在乎母鸡卡这个乐队的样子吗，所以才是说她“主唱失格”，都演了五集从组团到散团，也就被mortis拿祥子当饵的时候算是跟祥子以外的队员有点有效接触
+反正目前最该担心的就是初华这角色的塑造，问题太大了。这个主唱的形象后面必须得救，还得出大力救，就怕救不起来那就真成你邦史上最差主唱形象了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 15827#       发表于 2025-1-31 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323885&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-31 22:46</a>
+
+狗动画再压抑，比如第七集后，顶多就压抑了两集，第十集情绪爆发正向反馈了。而前五集是水到渠成的铺垫， ...</blockquote>
+还有人有正面塑造的 大猫的努力家 家人侠 三四五集没断过
+
+我真觉得太TM抽象了
+
+*****
+
+####  yaneis  
+##### 15828#       发表于 2025-1-31 22:49
+
+<blockquote>YF31 发表于 2025-1-31 22:43
+我不得不复读一句我第四集开播说过的话：
+
+如果一个角色在前后23集里六集干的事都是没苦硬吃扯几把淡，那这 ...</blockquote>
+yysy，修正是保留优点改正缺点，而现在已经是摧毁人物了，不仅是过错还把离家出走打工写歌写剧本一系列努力全归为过家家，直接打成尸体。我对剧情已经没啥指望了，就是对被摧毁成废墟的人物是要怎么塑造感兴趣（
+
+
+*****
+
+####  天空塔书记官  
+##### 15829#       发表于 2025-1-31 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323897&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-1-31 22:48</a>
+乐队都集合起来上武道馆+巡演半圈了，咋可能对标ras lock来之前这可是纯当动画主角的乐队，ras在邦tv 第 ...</blockquote>
+那只能说明乐队起点高，而不能说明角色有成长啊，武道馆和巡演只是舞台装置，实际上这支乐队就是才没组多久啊，要成长也需要时间，但现在不是没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

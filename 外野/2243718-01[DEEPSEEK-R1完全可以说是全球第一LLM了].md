@@ -12328,3 +12328,11 @@ openrouter有其他的提供商，但是得注意传provider参数，不然可�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tansapple  
+##### 945#       发表于 2025-1-31 22:49
+
+API页面啥时候能开啊，我想买API啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
