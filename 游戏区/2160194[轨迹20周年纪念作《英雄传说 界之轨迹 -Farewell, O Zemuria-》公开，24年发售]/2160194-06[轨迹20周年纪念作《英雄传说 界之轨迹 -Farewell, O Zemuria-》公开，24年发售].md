@@ -135,3 +135,20 @@
 
 我投的就是黎恩<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 7541#       发表于 2025-1-31 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎恩排前面没什么问题吧  三主角之一  强度也在那里
+
+*****
+
+####  古畑任三郎2015  
+##### 7542#       发表于 2025-1-31 22:46
+
+我怀疑哪怕是黎鬼12，要是敢放牢黎选项，牢黎也能投到第一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

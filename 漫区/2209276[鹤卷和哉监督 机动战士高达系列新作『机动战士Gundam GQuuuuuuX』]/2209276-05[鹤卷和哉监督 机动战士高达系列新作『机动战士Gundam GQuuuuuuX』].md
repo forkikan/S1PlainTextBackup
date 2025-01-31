@@ -3484,3 +3484,34 @@ tts那种跳级玩法明显就是快速吸收有潜力的新兵忽视老兵的�
 
 另外高达的光束来福类武器实际上粒子聚能冲击，有动能伤害，所以胳膊被打松脱了其实倒是没什么问题。
 
+
+*****
+
+####  西洛克  
+##### 6196#       发表于 2025-1-31 22:43
+
+<blockquote>gundammarkⅡ 发表于 2025-1-31 18:32
+巴斯克不是军人没参加一年战争的是小说版设定？
+
+按高达完美档案等设定集是加入联邦军参加一年战争的呀， ...</blockquote>
+z高达小说里布列克斯形容巴斯克是“政客出身，连一年战争也没参加过”。后来大概改过了。
+
+*****
+
+####  Toby_dak  
+##### 6197#       发表于 2025-1-31 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322801&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-31 21:04</a>
+
+X 上的 じぃと：“#GQuuuuuuX #ジークアクス [https://t.co/vmu1i3GDSM” / X](https://t.co/vmu1i3GDSM” / X)</blockquote>
+麻球的家外观设计的确象EVA美里的公寓。梶田也吐槽了他下意识想到麻球的冰箱是不是也有两个。
+
+*****
+
+####  CSWQ  
+##### 6198#       发表于 2025-1-31 22:43
+
+好像因为plazam和挽尊哥的那个视频，推上关于卡缪的讨论也大量发生了
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
