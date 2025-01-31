@@ -5109,3 +5109,90 @@ b站评分都能降到8.8啊，夸张哦
 
 <img src="https://img.saraba1st.com/forum/202501/31/115218a24pp2r2qwq8eezf.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 15264#       发表于 2025-1-31 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318863&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-31 11:17</a>
+
+别问，问就是邦多利里鼓手难找是基础世界观。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+有大财团的财力和势力，有什么难找的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 15265#       发表于 2025-1-31 11:58
+
+我现在觉得这部片子耽误之急是来一集回忆杀把大祥老师为什么组mujica的原因讲清楚，这个不讲清楚，mujica的剧本永远是空中楼阁不能脚踏实地。
+
+*****
+
+####  JustW  
+##### 15266#       发表于 2025-1-31 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319125&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-1-31 11:50</a>
+不知者不罪，一直到第五集大喵都还在以为睦头是天赋异禀的演员以至于给自己都打出真伤了。而这个理由对大 ...</blockquote>
+不知才奇怪吧，第三集开头就说了睦是吉他弹错直接傻了，然后喵梦后面还一直一直一直纠结睦的演技天赋，在我看来真的是脑回路清奇
+
+*****
+
+####  花スープ  
+##### 15267#       发表于 2025-1-31 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67313880&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-1-30 22:42</a>
+又到了我觉得楼里一大堆不知道再骂什么我完全没觉得到底哪里有问题的时候了，仿佛回到了当年看gbc一群人车 ...</blockquote>
+观众关注点不同导致的。有的观众关注逻辑、设定，这些表现出来确实就是一坨；有的观众关注关系性、情绪表达，这些就演的很好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  JustW  
+##### 15268#       发表于 2025-1-31 12:00
+
+喵梦在学校上演技课属于是走弯路了，直接去精神病院取材吧，里面个个演技天赋超群，都是活教材
+
+*****
+
+####  xyion  
+##### 15269#       发表于 2025-1-31 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318900&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-1-31 11:22</a>
+
+大祥这塑造不止是过家家的问题，也不是自私自利的问题。过家家的你别管多长久总归要和和气气一阵子，自私自 ...</blockquote>
+说到本质了，mujica的成功容易被理解成是tgw大手，熬夜写出的小剧场和曲子根本没篇幅去体现。
+
+也说不准编剧是觉得不需要体现，还是觉得现在这样就足够体现。因为按访谈，他们一开始都没打算在第一话放祥子回忆，但又像考虑了什么一样放了个压缩版。
+
+*****
+
+####  KLHgg  
+##### 15270#       发表于 2025-1-31 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没提mujica组队有违约金吧
+
+老登只付了巡演取消的赔偿费，这个钱肯定是祥子领队负责，其他成员赔钱也只能祥子主动去讨
+
+*****
+
+####  MERCCCP  
+##### 15271#       发表于 2025-1-31 12:05
+
+这集播出后
+
+一想到在这个楼和以前的“鸡狗”楼里开足马力切割的那几位
+
+就令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 15272#       发表于 2025-1-31 12:05
+
+有一说一，大喵是不是官方的亲女儿还是有最后一个明显的隐患（先不管孤儿假说），她没有“朋友”，你看初华还有个甜甜圈女士，其他人则是另一个团的前队友
+
