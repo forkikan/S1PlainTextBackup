@@ -12554,3 +12554,41 @@ B站翻译写的关于第五集题目翻译的介绍。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  LeonsCat  
+##### 15919#       发表于 2025-2-1 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324451&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-1 00:05</a>
+
+睦妈可是在访谈里说的设定是逆天雌竞人</blockquote>
+说了N遍了，直接代入松田圣子就OK了。
+
+圣子在出道第二年被一个长期合作的杂志背刺后，直接黑化，“但是，我忍住了悔恨的泪水。哭也无济于事。松田圣子也许可以原谅，但蒲池法子无论如何也不能原谅。”，从此变成以身为饵，把媒体、业界钓成傻叉的钢铁公司老淋淋。
+
+*****
+
+####  杂灰  
+##### 15920#       发表于 2025-2-1 00:49
+
+承担起自己犯下的错，以及过去对他人应允过的托付人生的承诺，祥子这个塑造不走赎罪之路是不行的。
+
+
+*****
+
+####  哈曼的YY  
+##### 15921#       发表于 2025-2-1 00:52
+
+最大的还在下集 转一个百综漏油发的灯祥关系
+
+在声优看完沉默吃饭的第六集 独角兽就要把现在祥老师唯一会起反应的人 把这段关系 把最初的组乐队期望拿出来做粉碎陀螺的最后一击 变态到了极致<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/01/004328fh4xbb4kgg24bm05.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-01-31-16-16-06-40.jpg</strong> (955.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 00:43 上传
+
