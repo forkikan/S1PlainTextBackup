@@ -11316,3 +11316,45 @@ https://x.com/wuubaiwan/status/1885302407208591386/photo/1</blockquote>
 
 这感觉已经没法继续讨论了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 15803#       发表于 2025-1-31 22:14
+
+说到底祥子是大女主这套言论到底哪来的，是监督还是独角兽说过吗，为什么会叫一个自闭小女孩大女主，这本身就很奇怪好吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Mika-S  
+##### 15804#       发表于 2025-1-31 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322137&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 18:28</a>
+那么乐队里，谁是最敢于根据不断变化的情况下判断，做出决策的人。没错就是喵梦
+
+所以未来复合后，新mujica ...</blockquote>
+初华作为主唱要是最后混成这样，还是早点给前八个乐队的主唱谢罪吧，把邦邦主唱的脸都给丢尽了！虽然现在的集数表现来看确实也丢尽了就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 15805#       发表于 2025-1-31 22:19
+
+专楼共振不得不品的一环，网上监督与自宅脚本家
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  aptx8285144  
+##### 15806#       发表于 2025-1-31 22:20
+
+ 本帖最后由 aptx8285144 于 2025-1-31 22:22 编辑 
+
+这要问官方从前半部分塑造祥子在前队友面前那个形象了，大部分路人记住的是被春日影破防的祥子还是金句连连，最后还拉来了好几个人做队友的祥子？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
