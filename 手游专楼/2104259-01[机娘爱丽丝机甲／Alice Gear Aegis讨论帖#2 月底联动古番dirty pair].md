@@ -16,3 +16,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1365#         楼主| 发表于 2025-1-31 14:51
+
+现在这调查VER2，3分钟一把打3把然后爆仓，对于习惯了老调查的队长来说简直是寸止<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+阿金你就这么想推销通行证吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

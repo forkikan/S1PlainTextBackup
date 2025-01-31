@@ -7083,3 +7083,75 @@ bangbang还有出道就假唱被发现的组合呢，不也和没事人一样的
 —— 来自 Xiaomi 23113RKC6C, ...</blockquote>
 对啊，丰川小公主就是<strong>那点东西</strong>啊。
 
+
+*****
+
+####  wwwttth  
+##### 15445#       发表于 2025-1-31 14:49
+
+<blockquote>Lyzers 发表于 2025-1-31 14:43
+因为什么人设和能够越权的朋友关系就是编剧一句话一挥手就能写出来的东西啊
+
+再说睦和素食知道自己还是彼 ...</blockquote>
+那你在车什么东西，没看懂，剩下三个队友和睦头没有羁绊不是2-3集就演出来的东西然后你去车第五集不把人送精神科不是搞笑。本来就是祥这个青梅竹马和那两变态父母的责任你和我掰扯了一天其他三个队友有责任不是在搞笑么？
+
+*****
+
+####  江口夕  
+##### 15446#       发表于 2025-1-31 14:49
+
+ 本帖最后由 江口夕 于 2025-1-31 14:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320528&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:48</a>
+对啊，丰川小公主就是那点东西啊。</blockquote>
+你这逻辑可以扔进垃圾桶了，一转进偶像就拿偶像那套来等同于乐队。连乐队是个什么东西都没理解明白。把你这套随便说给个认真玩乐队的不给你个巴掌
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  深渊之呗  
+##### 15447#       发表于 2025-1-31 14:50
+
+**动画片
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  古明地雷  
+##### 15448#       发表于 2025-1-31 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320469&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-1-31 14:39</a>
+对本人来说怎么样，和对别人来说怎么样，完全不是一回事的
+
+你本人为此再崩溃，只要想不明白和自己出身以 ...</blockquote>
+别人怎么看是别人的事，我难绷的是真有人拿片里路人嚼舌根的话以为是staff给祥子定性了
+
+*****
+
+####  魔灵高达  
+##### 15449#       发表于 2025-1-31 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320503&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 14:44</a>
+
+主要是，一个从一开始就偶像运营的组合，有什么能力抵挡运营方用好看的脸来刷数据的冲动——靠自己都不知 ...</blockquote>
+人气高就可以，以及，从合理性的角度来说，关于露不露脸这种极为关键的方向性问题，应该是写在合同里的，好消息是是制作组不至于真写出让事务所强迫成员摘面具的情节，坏消息是大喵这举动造成的后果这么轻描淡写确实太难蹦
+
+
+*****
+
+####  aptx8285144  
+##### 15450#       发表于 2025-1-31 14:55
+
+面具的背后真容是一张王牌，要么在停滞期打出去，要么精心计划后再打出去，大瞄的独走哪怕是从吃流量角度都是很差的选择，而且这片观众们对这个乐队具体称赞也很少写，大瞄突然打出去而没什么后果，所以我说大喵才是“大女主”<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 15451#       发表于 2025-1-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320545&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 14:49</a>
+
+你这逻辑可以扔进垃圾桶了，一转进偶像就拿偶像那套来等同于乐队。连乐队是个什么东西都没理解明白。把你 ...</blockquote>
+你和任何一个认真搞乐队的人说，一个财阀大小姐，拉上一个顶流明星的女儿，和一个当下最火的唱作偶像组合，一个月速通武道馆（国内可以对应红磡或者至少梅奔），第一个反应都是做梦，第二个反应就是是不是姚安娜换赛道了——说真的，姚安娜在演员这上面正经投入的时间恐怕都远超一个月了。
+
