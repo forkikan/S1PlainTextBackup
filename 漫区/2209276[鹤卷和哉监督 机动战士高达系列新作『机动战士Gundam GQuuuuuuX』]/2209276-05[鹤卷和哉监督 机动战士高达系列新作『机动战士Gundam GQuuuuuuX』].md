@@ -2993,3 +2993,14 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kuriri  
+##### 6162#       发表于 2025-1-31 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67306689&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-1-29 22:47</a>
+
+这个给我一会夏亚一会阿姆罗的感觉，不知道是不是有意为之</blockquote>
+看电影时感觉这个夏亚和别人对话的时候会有意使用清脆稚嫩的声音，心理活动则是老练腹黑的声音
+

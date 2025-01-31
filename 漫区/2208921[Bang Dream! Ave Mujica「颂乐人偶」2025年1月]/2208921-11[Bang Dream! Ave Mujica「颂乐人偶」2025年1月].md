@@ -6516,3 +6516,118 @@ mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能�
 
 [https://x.com/Kanon_Takao/status/1885199878466515172/photo/1](https://x.com/Kanon_Takao/status/1885199878466515172/photo/1)
 
+
+*****
+
+####  LeonsCat  
+##### 15394#       发表于 2025-1-31 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319913&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 13:33</a>
+
+神经病，大祥要音乐性，谁不想音乐性，还不是不会玩吉他的大莫老师和无所谓乐队的大猫？
+
+不知道还以为大 ...</blockquote>
+对不起，这叫偶像，不叫乐队。
+
+如果一组艺人，运营像偶像，选角像偶像，用曲像偶像，连炸锅都像偶像，那就是偶像。
+
+*****
+
+####  JustW  
+##### 15395#       发表于 2025-1-31 13:47
+
+这五集要是一路平铺直叙讲故事的话也没什么问题，但为爆而爆牺牲太多了，自己给自己增设的难度已经难与MyGO相提并论
+
+*****
+
+####  天空塔书记官  
+##### 15396#       发表于 2025-1-31 13:47
+
+我觉得反而现在才是正常的，因为作为噱头的部分已经爆完了，之后就会专注于少女乐队的描写…大概，即使再有脱线展开也是基于关系性而不是舞台装置，稳中向好，稳中向好好吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Wiksy  
+##### 15397#       发表于 2025-1-31 13:51
+
+那么第七集会唱春日影吗
+
+
+*****
+
+####  江口夕  
+##### 15398#       发表于 2025-1-31 13:52
+
+ 本帖最后由 江口夕 于 2025-1-31 13:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320022&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 13:47</a>
+对不起，这叫偶像，不叫乐队。
+
+如果一组艺人，运营像偶像，选角像偶像，用曲像偶像，连炸锅都像偶像，那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">幽默，说的你好像很懂偶像一样，握手会在哪呢。没有算个屁的偶像。握手会才是偶像成员赚米的主要渠道，演出偶像分成多少要不你也来谈一下。
+既要又要天海小姐早八百年就演示过了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Lyzers  
+##### 15399#       发表于 2025-1-31 13:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华一曲清唱版阿倍母鸡卡，把大喵老师大祥老师唱哭了，把大莫老师唱超度了
+
+*****
+
+####  wwwttth  
+##### 15400#       发表于 2025-1-31 13:54
+
+<blockquote>Lyzers 发表于 2025-1-31 13:25
+你只说上集散团之后，这集开始直接回到家，那可能还算成立。但问题是动画散团live之后，还有一大段各回各 ...</blockquote>
+这不是从多维角度和你说了其他三个人不管的合理性么，事务性，情感，关系亲密度，每个人的认知，人设不都说了？你非要掰成他们不认知到睦是精神病，不送精神科就是黑点，那我也无话可说，简直就像是看到老人摔倒了，现场有老人的儿子或者其他什么亲戚，你不去扶就是黑点一样。
+
+
+*****
+
+####  kongxian  
+##### 15401#       发表于 2025-1-31 13:54
+
+已经落实Mujica商业乐队解散，又是违约金，那后面无论是商业乐队Mujica又活了，还是非商业乐队Mujica活了都已经显得幽默。这组合还卖不卖
+
+*****
+
+####  无限舰制  
+##### 15402#       发表于 2025-1-31 13:54
+
+偶像，是什么呢
+
+爱马仕也搞不清楚呢.jpg
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小博禹  
+##### 15403#       发表于 2025-1-31 13:55
+
+母鸡卡彻底变成睦祥两个大小姐的玩具<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">但两个大小姐精神都出问题自己炸了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 15404#       发表于 2025-1-31 13:55
+
+<img src="https://img.saraba1st.com/forum/202501/31/135525hvlnyhfckuae0oje.png" referrerpolicy="no-referrer">
+
+<strong>image_1738302830485.png</strong> (409.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:55 上传
+
+祥，不要跑
+
