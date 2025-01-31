@@ -12409,3 +12409,15 @@ D老师写小说有一套的
 这算不算吧deepseek干烧了，我第一次看他思考了一分钟，最后开始胡言乱语了我觉得太极巧克力是毫无疑问的绝 ...</blockquote>
 干烧称不上，我问它小丑牌应该怎么换牌牌型概率大，它想了340多秒，又要想规则问题又要想数学问题我看他来回想了好几轮
 
+
+*****
+
+####  庸necro  
+##### 953#       发表于 2025-2-1 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324719&amp;ptid=2243718" target="_blank">飞雨啸寒 发表于 2025-2-1 00:58</a>
+干烧称不上，我问它小丑牌应该怎么换牌牌型概率大，它想了340多秒，又要想规则问题又要想数学问题我看他 ...</blockquote>
+关键是最后就像摆烂一样胡言乱语了很搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

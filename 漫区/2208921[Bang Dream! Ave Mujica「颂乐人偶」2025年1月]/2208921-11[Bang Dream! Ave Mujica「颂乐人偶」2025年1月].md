@@ -12713,3 +12713,46 @@ B站翻译写的关于第五集题目翻译的介绍。
 
 我认为现在塑造虽然很变态但至少还是有思路可寻的，老实讲我本来是来嗑cp的最后却觉得看祥子被摔成粉碎后再拼起来的过程更有趣（
 
+
+*****
+
+####  刑部姬真可爱  
+##### 15935#       发表于 2025-2-1 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324781&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-1 01:12</a>
+
+怎么逼她们加入？
+
+“来还解散费 不然东京湾雅座4位”？</blockquote>
+霸道总裁，对喵梦就是以前你欠我的，今天就来我身边赎罪，对海铃就是你不是想要安身之所吗，卖身契在这赶紧签了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 15936#       发表于 2025-2-1 01:17
+
+重看一下第五集，发现最后mortis说要让小睦醒过来，但镜头给的是吉他。前面给医生打电话的时候，也是一直抚摸着吉他。
+
+有没有可能mortis说的小睦，其实指的是吉他。毕竟前面也有吉他拟人化，说自己想唱歌的事，只是那个是mortis（吉他）。
+
+现在，她们交换了身体，人变成了mortis，吉他变成了小睦。
+
+所以小睦沉睡了，就是指以后不弹吉他了。小睦叫不醒了，是自己想弹吉他了，但发现完全不会弹，所以下集才要找猫猫教<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 15937#       发表于 2025-2-1 01:18
+
+这种思路真的好变态<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 15938#       发表于 2025-2-1 01:25
+
+隔壁看的不知真假的舅舅剧透说大象跑去找原C团众人试图复辟,被拒后再次哭哭跑路,乍一看很扯淡但是仔细一想大象确实干得出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
