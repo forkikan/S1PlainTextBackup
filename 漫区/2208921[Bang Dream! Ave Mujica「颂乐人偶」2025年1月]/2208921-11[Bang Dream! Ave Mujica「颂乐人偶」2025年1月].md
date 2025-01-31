@@ -7765,3 +7765,66 @@ mygo也是无病呻吟女生戏码
 编剧明显是希望故事线要收束到mygo这边，不然mygo的角色都边缘人了，矛盾和问题也都需要mygo的人来解决，但 ...</blockquote>
 都演十几分钟行尸走肉了还想咋的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hol_effect  
+##### 15506#       发表于 2025-1-31 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是她整的当然得切割啊，挂人家名给改成这样纯纯的诽谤
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 15507#       发表于 2025-1-31 16:09
+
+评分8.8噜，会不会复刻京吹第三季的道路啊
+
+*****
+
+####  天空塔书记官  
+##### 15508#       发表于 2025-1-31 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320943&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-1-31 15:57</a>
+saki组团的是时候不就是以为另外四个都是人偶她是神吗，结果发现除了三角之外剩下仨其实不是很鸟她，她现 ...</blockquote>
+因为初华是给祥子写歌词的那个，她也是“神明”，但本质还是在复读祥子的世界观，其实也没有自己的东西
+
+但不好说是不是就没掺私货<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 15509#       发表于 2025-1-31 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧情我也要怀疑是不是独角兽写的了，哪怕抛开海喵这俩，初睦祥这三个，前半主场是睦祥后半主场初祥
+现在前半主场睦祥已经碎完了，睦祥最精彩的互动是第三集开头睦回忆c团，其他基本没啥互动了，第四集直接变莫提斯。而初祥端水了吗？如端，一个同居外没用了
+前五集女女关系性几乎没多少啊
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 15510#       发表于 2025-1-31 16:15
+
+祥子是轻微控制狂+NPD这点可以盖棺了
+
+*****
+
+####  三尖酸努努  
+##### 15511#       发表于 2025-1-31 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320970&amp;ptid=2208921" target="_blank">坐看风起云涌 发表于 2025-1-31 16:00</a>
+独角兽切割了</blockquote>
+后面不是还转了两个推吗，并没完全切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayara  
+##### 15512#       发表于 2025-1-31 16:15
+
+ 本帖最后由 ayara 于 2025-1-31 16:17 编辑 
+
+算了，不说了
+

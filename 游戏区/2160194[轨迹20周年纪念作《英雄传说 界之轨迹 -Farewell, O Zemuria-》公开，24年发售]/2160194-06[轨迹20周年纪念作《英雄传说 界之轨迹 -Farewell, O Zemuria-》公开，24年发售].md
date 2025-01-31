@@ -69,3 +69,25 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所长身为男一号挤不进去前三
 
+
+*****
+
+####  winggg  
+##### 7534#       发表于 2025-1-31 16:06
+
+ 本帖最后由 winggg 于 2025-1-31 16:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320973&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2025-1-31 16:00</a>
+
+所长身为男一号挤不进去前三</blockquote>
+没办法，表面上规则是只能投一票，有很多希望范恩爱情能有结果的粉丝，到了现在三角恋接近分出胜负的重要关头，不免分裂成应援亚妮艾丝或者艾蕾因的。
+
+*****
+
+####  卢迪克  
+##### 7535#       发表于 2025-1-31 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320973&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2025-1-31 16:00</a>
+
+所长身为男一号挤不进去前三</blockquote>
+第6不错了，曾经高人气的卢法斯直接无了
+
