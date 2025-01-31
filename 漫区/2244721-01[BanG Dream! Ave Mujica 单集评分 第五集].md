@@ -2370,3 +2370,21 @@ Mortis把自己关家里，俩艺人爹妈铺垫到现在的父母失格，估�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集只能加一了，鸡团不行啊，最后还得圣爱音出手
 
+
+*****
+
+####  leommoo  
+##### 259#       发表于 2025-1-31 10:20
+
+ 本帖最后由 leommoo 于 2025-1-31 10:21 编辑 
+
++2，某楼开播前是这粉丝得切割，楼得切割，官号得切割，就冲这集必须给+2了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 260#       发表于 2025-1-31 10:21
+
+对鸡成为出色原创的指望没了，只能以河豚的身份继续看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
++0，早点失望戳破面纱也是好事
+

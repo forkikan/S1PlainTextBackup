@@ -3688,3 +3688,172 @@ yysy祥子不是一直在主动推动剧情，往坏的方向推也是推</block
 祥子的电子琴呢（?）
 家里没见初华家里也没见到来着（）
 
+
+*****
+
+####  operatbig  
+##### 15131#       发表于 2025-1-31 10:16
+
+祥子不一直就挺冷酷无情的。
+
+*****
+
+####  xyion  
+##### 15132#       发表于 2025-1-31 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318226&amp;ptid=2208921" target="_blank">JustW 发表于 2025-1-31 10:09</a>
+
+啥对赌协议啊，赢了我就靠乐队飞黄腾达，输了就回家继承亿万家产，双赢指祥子赢两次是吧 ...</blockquote>
+对赌我顺着回复说的，意思就是要投资，但祖父给了条件失败就回家。直接要钱和拿着企划要投资还是不一样。
+
+回家继承家产你觉得也叫祥子赢了，就当你觉得对赌这词用得不好好了。
+
+*****
+
+####  江口夕  
+##### 15133#       发表于 2025-1-31 10:17
+
+ 本帖最后由 江口夕 于 2025-1-31 10:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318260&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 10:12</a>
+是是是，有能力还违约金，能联系上tgw的祥子哪也住不了非得睡那b工作室没苦硬吃
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，那种家里千亿资产的，儿女不管怎么做都是没苦硬吃。回家啃老算了，在外面矫情个啥，还努力个屁，你说是吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ml1642879  
+##### 15134#       发表于 2025-1-31 10:19
+
+很好奇部分楼友们高一的时候干出过什么成绩。如果说是不能拿现实逻辑套动画的话，为什么有人又在用动画逻辑套现实。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  theti  
+##### 15135#       发表于 2025-1-31 10:19
+
+这集已经已经钦定了，没go团鸡团就是四集解散的五个废物，以后鸡团粉见狗团粉都得请安
+
+这就是编剧想表达的意思
+
+*****
+
+####  一心而用  
+##### 15136#       发表于 2025-1-31 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318218&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 10:08</a>
+现实里大祥这种人拿天使投不要太容易。我们就假设只有100w，这已经是乞丐级投资了，随便拉个房二代就能拉来 ...</blockquote>
+问题就在于本作虽然是基于现实，但逻辑不完全是按照现实走的，就像前面有人说的一样，现实中祥子这样的创作和运营能力价值少说也大几个亿，各方投资跪着求她还来不及，但是在本作就是没有那么万能。现实中大喵独走，别说早就踢了，违约金能让她赔到死，但是在本作就是没多大事，甚至是剧情必须的一环。现实中睦精神分裂早该绑着送医院，但在本作就是在等一个和自己和解。
+剧情运行的逻辑微妙的和现实有所区别，这就是本作大量争议的来源。
+
+*****
+
+####  山ノ内花音  
+##### 15137#       发表于 2025-1-31 10:21
+
+其实灯这集也是典型的没苦硬吃
+和mygo好好过日子多好
+
+*****
+
+####  未来起航  
+##### 15138#       发表于 2025-1-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318334&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-1-31 10:21</a>
+其实灯这集也是典型的没苦硬吃
+和mygo好好过日子多好</blockquote>
+原则上讲，春日影这笔账还欠着呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 15139#       发表于 2025-1-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318329&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 10:20</a>
+问题就在于本作虽然是基于现实，但逻辑不完全是按照现实走的，就像前面有人说的一样，现实中祥子这样的创 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一堆人拿着现实说事呢，什么家里几千亿
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  琉璃苑軒風  
+##### 15140#       发表于 2025-1-31 10:22
+
+隔壁看到一贴感觉有点道理
+
+第五集单独提出来其实也还行，但是毕竟是番剧，等于宣布前几集部分有诡叙可能或者用二次元底层逻辑圆场的内容从死缓变死刑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  yaneis  
+##### 15141#       发表于 2025-1-31 10:22
+
+编剧明显是故意砸烂祥子的，而且用的是最恨的方式，从动机根源甚至能力方面360度无死角砸烂，问题是之后祥子要怎么站起来呢，她站起来后丰川家不参与的话还能摆脱过家家的风评吗？
+
+*****
+
+####  JustW  
+##### 15142#       发表于 2025-1-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318320&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-1-31 10:19</a>
+很好奇部分楼友们高一的时候干出过什么成绩。如果说是不能拿现实逻辑套动画的话，为什么有人又在用动画逻辑 ...</blockquote>
+呃呃，又开始这一套了，人家chuchu初中生年纪跳级到大学还是super独立制作人也没见少挨骂啊
+
+*****
+
+####  庸necro  
+##### 15143#       发表于 2025-1-31 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318254&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 10:12</a>
+如果你这么想，那我问你，你觉得后面8话演什么？日常吗？
+
+你不能因为你无法想象怎么扬你就否定扬，就说My ...</blockquote>
+mygo最讨人嫌的也就一个素世，现在我感觉mujica是五个比素世风评有过之而无不及的人要重组乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且是在前期剧情处理并不通顺的情况下，你觉得只要相信编剧和剧情发展就好了，我的问题是前四集既摆了烂摊子也表现了编剧水平，我实在不能像你100%地信任编剧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 15144#       发表于 2025-1-31 10:23
+
+反正我觉得编剧完不成这个废墟重建工作（
+
+*****
+
+####  山ノ内花音  
+##### 15145#       发表于 2025-1-31 10:23
+
+也算是有生之年看到一部二偶动画敢把主角360度无死角碾碎了
+确实是屎上最狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 15146#       发表于 2025-1-31 10:25
+
+<blockquote>swessia 发表于 2025-1-31 10:14
+现在的祥素一见面估计会先打起来
+
+—— 来自 鹅球 v3.3.96</blockquote>
+沒事， 兩個加起來也打不過愛音
+
+‘來，開始溝通吧’
+
+*****
+
+####  yaneis  
+##### 15147#       发表于 2025-1-31 10:25
+
+还不是因为菜写烂的而是故意写烂的，炒作狗也得考虑手游卖角色吧武士道（
+
