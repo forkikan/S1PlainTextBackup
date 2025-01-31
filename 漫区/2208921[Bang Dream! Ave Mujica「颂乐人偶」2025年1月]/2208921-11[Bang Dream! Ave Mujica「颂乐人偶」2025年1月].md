@@ -8743,3 +8743,64 @@ wsd既然选择引入大人的一面，那这写作难度就直线上升了<img 
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江口夕  
+##### 15584#       发表于 2025-1-31 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他人都不行的，只能等大猫。
+第一波大猫搞定了，才能继续搞其他人。
+
+现在估计没人知道大猫在想什么，还在打鼓呢
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  eyeego  
+##### 15585#       发表于 2025-1-31 17:49
+
+所以商业团真就想解散就解散 live想不开就不开啊？
+那海玲跟喵梦的钱谁出啊？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosones1337  
+##### 15586#       发表于 2025-1-31 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319647&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 13:00</a>
+好处就是你独走而作为乐队队长（可能是队长）的祥子因为是过家家没法对你采取措施，吵架还落个下风，这下 ...</blockquote>
+提醒一句，蒙面的鸡团对于大喵来说只有负收益，流量屁都没有然后还要牵扯大量精力。摘面具这事从一开始就是大祥承诺给大喵的——如果真要求全程戴面具戴到死的话大喵只会回一句“你几把谁啊”。
+
+现在已经上武道馆了，结果你一直压着不让摘，问你具体啥时候摘还支支吾吾说不出来，那大喵咋办？万一之后真把她踢了不就彻底小丑了？
+
+现在想想大祥自己根本就没想明白，正常你直接让大喵先给自己摘面具，然后严禁动其他人的面具不就完了么？这样正好还能流量最大化。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 15587#       发表于 2025-1-31 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321772&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 17:37</a>
+不是，这是解散的同集，你包饺子也不可能是这一集包的啊，这一集解散大家本来就在吵架没羁绊情绪也不行这 ...</blockquote>
+能不能别非黑即白二元论，你就一定非要在大家都不管和大家涌上去一起抱着睦头唱哦没跌多中选吗？谁跟你说速通了？再说速通跟包饺子现在有区别吗，无非就是牺牲合理性多少而已
+
+首先，我都说了你都不一定要在这个时候这种形式解散。
+
+就算你一定要把解散这碟菜端上来，你换个方式行不行？你写一个海初祥在结束各种对接之后瞄到睦还在舞台上小心地去搭话，然后大莫老师失魂的来一句我怎么怎么样，然后把过来搭话的人吓了一跳，再硬切op，op后就是一个月后了之类的发展
+
+*****
+
+####  江口夕  
+##### 15588#       发表于 2025-1-31 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321802&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-1-31 17:40</a>
+祥子这集终于跌得粉碎了，不错。祥子性格里过高的自尊心把c团每个人都炸出了ptsd，最后也间接导致a团爆炸搞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里做错了，不该组乐队？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

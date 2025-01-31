@@ -12024,3 +12024,25 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 都不知道API还剩多少钱，但就是偶尔能用</blockquote>
 冲钱冲少了。哎。我感觉以我的用法坚持不了1个月。
 
+
+*****
+
+####  ranocchia  
+##### 916#       发表于 2025-1-31 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318737&amp;ptid=2243718" target="_blank">沙发果冻 发表于 2025-1-31 11:05</a>
+
+最好办法是改用API，但是现在API页面直接进不去了。本地部署其实可以看做是r1的弱智版，差距还是有的 ...</blockquote>
+本地部署的本质上只是R1的学生。
+
+
+*****
+
+####  魔灵高达  
+##### 917#       发表于 2025-1-31 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321762&amp;ptid=2243718" target="_blank">风真人 发表于 2025-1-31 17:36</a>
+
+我也是按照deepseek推荐的在docker里下openwebui，但是我这里不显示思考链，直装openwebui就有吗？ ...</blockquote>
+抱歉，是我记错了，我OPEN WEBUI这里也不显示思考<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
