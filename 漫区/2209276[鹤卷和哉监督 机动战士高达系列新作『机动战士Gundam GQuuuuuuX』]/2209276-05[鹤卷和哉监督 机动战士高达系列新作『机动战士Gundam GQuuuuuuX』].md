@@ -3004,3 +3004,55 @@ PlaZma+打挽尊哥能衍生这么多啊</blockquote>
 这个给我一会夏亚一会阿姆罗的感觉，不知道是不是有意为之</blockquote>
 看电影时感觉这个夏亚和别人对话的时候会有意使用清脆稚嫩的声音，心理活动则是老练腹黑的声音
 
+
+*****
+
+####  Steel.Haze  
+##### 6163#       发表于 2025-1-31 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319812&amp;ptid=2209276" target="_blank">57042711 发表于 2025-1-31 13:20</a>
+
+我去原来这么细吗，战场环境过于恶劣
+
+—— 来自 鹅球 v3.3.96</blockquote>
+机器拟人化是超级机器人时代的特色，设定擦屁股是真实系机器人时代的才艺。高达恰恰承上启下。
+
+*****
+
+####  猪突猛进R  
+##### 6164#       发表于 2025-1-31 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319972&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 13:40</a>
+
+？
+
+刚发现索顿不是白色基地(White Base)而是天马(Pegasus)？</blockquote>
+联邦的飞马级强袭登陆舰，白色要塞是2号舰。
+
+三批次生产了多艘，0083里的阿鲁比昂也是飞马级。
+
+
+*****
+
+####  王留美  
+##### 6165#       发表于 2025-1-31 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320120&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-31 14:00</a>
+ 联邦的飞马级强袭登陆舰，白色要塞是2号舰。  三批次生产了多艘，0083里的阿鲁比昂也是飞马级。 ...</blockquote>
+场刊里毫无白色基地痕迹，全都是佩嘎萨斯
+以那批遗老的遗老度，我不相信他们搞不懂SCV-69和SCV-70的区别
+
+*****
+
+####  猪突猛进R  
+##### 6166#       发表于 2025-1-31 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320152&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 14:02</a>
+
+场刊里毫无白色基地痕迹，全都是佩嘎萨斯
+
+以那批遗老的遗老度，我不相信他们搞不懂SCV-69和SCV-70的区别 ...</blockquote>
+你没搞明白，飞马是一个级别。
+
+1号舰叫飞马，以后这种舰都是飞马级，现实世界里约定俗成。
+

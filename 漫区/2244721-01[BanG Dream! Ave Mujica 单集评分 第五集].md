@@ -2605,3 +2605,14 @@ go了半集，+1吧，鸡团这几人的关系啊，真的让人闹麻了
 <img src="https://p.sda1.dev/21/8d666cc5333adee8030d0ee0b8e39d67/image.jpg" referrerpolicy="no-referrer">
 才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘
 
+
+*****
+
+####  格林达姆  
+##### 283#       发表于 2025-1-31 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319951&amp;ptid=2244721" target="_blank">矢吹奈子 发表于 2025-1-31 13:37</a>
+
+才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥海铃的分还能这么低。明明是这五个人里最正常的吧
+
