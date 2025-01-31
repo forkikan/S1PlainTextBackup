@@ -12004,3 +12004,23 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 以及，之前API能用的时候我这边用powershe ...</blockquote>
 我也是按照deepseek推荐的在docker里下openwebui，但是我这里不显示思考链，直装openwebui就有吗？
 
+
+*****
+
+####  名居守  
+##### 914#       发表于 2025-1-31 17:37
+
+后悔几天前没弄api了，现在官网进不去拿不到key了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+在线擦边要一步步试探，本来一步步试探也是属于乐趣的一种<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">现在这个攻击导致动不动就服务器繁忙都没乐趣了
+
+*****
+
+####  zerona  
+##### 915#       发表于 2025-1-31 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321721&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-1-31 17:31</a>
+
+都不知道API还剩多少钱，但就是偶尔能用</blockquote>
+冲钱冲少了。哎。我感觉以我的用法坚持不了1个月。
+

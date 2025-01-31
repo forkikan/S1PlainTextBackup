@@ -2773,3 +2773,23 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 这一集操作太偶像动画了，剧情收不回来时突然插入一段跟之前无关的单元剧，虽然没有剧情但是气氛换了，只要人气角色塑造没问题，互动没有出格，理解偶像动画的观众一定能理解的。
 
+
+*****
+
+####  老贝  
+##### 299#       发表于 2025-1-31 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321581&amp;ptid=2244721" target="_blank">滑稽Captain 发表于 2025-1-31 17:11</a>
+
+推特都关点赞显示多久了，哪还看得到，除非评论本人发被点赞记录出来证明 ...</blockquote>
+
+评论本人还真发了，虽然本人也没明确表示被点赞的到底是上面这条，还是下面会一直支持绫奈的那条。
+
+<img src="https://img.saraba1st.com/forum/202501/31/173821qdevw470qrjz0d0z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1607.jpeg</strong> (223.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 17:38 上传
+
