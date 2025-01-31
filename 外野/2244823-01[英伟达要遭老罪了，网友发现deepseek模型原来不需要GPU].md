@@ -419,3 +419,13 @@ AMD Yes！
 我机器是64g内存加4090，跑32b那个能全装显存里非常快，跑70b那个内存虽然能装的下，但速度就慢了不少。如 ...</blockquote>
 32b和70b的输出差别大吗
 
+
+*****
+
+####  strider_oy  
+##### 42#       发表于 2025-2-1 05:08
+
+2 token每秒也太慢了。我看到有用raspberry pi跑到也是这个速度，不过那个是小几号的模型。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
