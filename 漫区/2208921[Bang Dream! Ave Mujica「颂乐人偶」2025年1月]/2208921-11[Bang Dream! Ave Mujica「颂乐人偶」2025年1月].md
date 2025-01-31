@@ -8982,3 +8982,98 @@ wsd既然选择引入大人的一面，那这写作难度就直线上升了<img 
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  swessia  
+##### 15602#       发表于 2025-1-31 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第七集主战场在ring吧看图透初睦海来了，祥子被抓到ring问题也不大，那剩下那个咋办<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 15603#       发表于 2025-1-31 18:18
+
+那完事了大伙是不是还得谢谢大喵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 15604#       发表于 2025-1-31 18:19
+
+感觉乐队也有类似官和吏，将军与参谋的职能划分，好的参谋或者公务员也许能把具体的事务做得很好，但让她做重大决策的时候就抓瞎
+
+mujica遇到的一切风波和问题，祥子最终处理的手段都是顺其自然，没有做出任何果断的判断和抉择，导致问题发展到下一个更严重的阶段
+
+
+*****
+
+####  傘木希美  
+##### 15605#       发表于 2025-1-31 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这一天下来我唯一捋不过来的就是编剧给大猫安排的戏份以及违约金其他的我真的都或多或少能说服自己
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 15606#       发表于 2025-1-31 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322070&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 18:19</a>
+
+感觉乐队也有类似官和吏，将军与参谋的职能划分，好的参谋或者公务员也许能把具体的事务做得很好，但让她做 ...</blockquote>
+很多人都说过了，祥子的性格适合当技术人员，不适合当管理者
+
+*****
+
+####  aptx8285144  
+##### 15607#       发表于 2025-1-31 18:23
+
+车大瞄和大祥够多了，换个人物吧，只要不是喝茶番或独行侠，无数次剧本证明了团队需要一个捏合剂，做得更好的则是能控制全局的人，c团性格上比较符前者合条件的其实只有初华了，然而能扮演这种角色可以是白甜，也可以是天然呆或装傻充嫩，但是不能太傻，结果吗你们也看到了，初华做不到，或者说目前做不到，她只想和大祥贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 15608#       发表于 2025-1-31 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321996&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-31 18:08</a>
+定治本来只需要背负清告的一个人的人生就行了啊 
+
+定治这么能背负人生，那家里养个闲人有多难</blockquote>
+啊？你不会以为我真共情富翁老登了吧？观感不错不是因为他有多善，而是他的外孙女和赘婿都太拟人了。
+另外，我不明白你让富豪老登背负一个带来巨额亏损的无能赘婿的人生是什么意思？我想哪怕是赘婿的脸皮应该也没这么厚吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 15609#       发表于 2025-1-31 18:25
+
+转贴： <blockquote>08:56 小祥在读夏目漱石的《心》。也许是在反省“满脑子都想着自己”的问题罢。
+
+《心》讲述的是“先生”结识并爱上了房东家的小姐，同时也赢得了房东太太的好感，但却因年少时曾受到叔父的欺诈而对他人时存戒心，迟迟不能表白自己的心意。后来，“先生”的好友K住进了房东家里，也爱上了小姐，直率的K向好友“先生"表白了自己的心事，“先生”在表面上批评K“不求上进”，背地里却偷偷地向房东太太提出要和小姐结婚。知道了这一切真相之后的K在绝望中自杀了，同时K的死也留给“先生”一生的不安和自责，婚后的“先生”一直无法忘却K，他的内心无比的寂寞，终于也走上了自杀的道路。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202501/31/182543zw569466g4267411.jpg" referrerpolicy="no-referrer">
+
+<strong>9b85.jpg</strong> (178.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:25 上传
+
+*****
+
+####  怀沙汨罗  
+##### 15610#       发表于 2025-1-31 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322096&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 18:23</a>
+车大瞄和大祥够多了，换个人物吧，只要不是喝茶番或独行侠，无数次剧本证明了团队需要一个捏合剂，做得更好 ...</blockquote>
+是的，这个乐队目前最有行动力竟然还是争议最大的喵梦。我看未来编剧的洗白套路还真就是让喵梦搜集碎片了。想想到时的血雨腥风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说wsd你赢了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

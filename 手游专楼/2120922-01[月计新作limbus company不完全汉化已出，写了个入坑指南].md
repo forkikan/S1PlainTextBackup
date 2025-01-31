@@ -299,3 +299,81 @@
 由手机上传
 2025-1-29 08:05 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 1072#       发表于 2025-1-31 18:14
+
+ 本帖最后由 Jamaisvu 于 2025-1-31 18:19 编辑 
+
+2.6肉斩骨断复刻，又出俩三星人格。
+
+现在动不动一个活动双三星，小金最近去哪取经了？：
+
+<img src="https://img.saraba1st.com/forum/202501/31/180859loe0eglemkboc6bg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250131_180456.jpg</strong> (169.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:08 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/180900elyglsp4y5osjsky.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250131_180526.jpg</strong> (189.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:09 上传
+
+原型是图书馆的杨：
+
+<img src="https://img.saraba1st.com/forum/202501/31/181719plglsglxlxlgypl0.png" referrerpolicy="no-referrer">
+
+<strong>Yang.png</strong> (31.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/180900eeevysw4wezzsvgv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250131_180537.jpg</strong> (201.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/180900xd11vzv8l88vdjre.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250131_180601.jpg</strong> (168.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:09 上传
+
+原型是图书馆的纱世：
+
+<img src="https://img.saraba1st.com/forum/202501/31/181733vmvxk7yc7nhchcbc.png" referrerpolicy="no-referrer">
+
+<strong>Sayo.png</strong> (34.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-1-31 18:17 上传
+
+黑云夫在队友受击或死亡时会强化三技能，黑云玛能强化黑云会阵营的反击技能。
+
+黑云会组队的话就是黑云玛1号位，黑云夫2号位，剩下黑云虫、黑云宝、黑云罗、黑云良。
+
+金锁能把剑箱这种开服之耻都救回来，看好黑云玛带黑云会走向壮观的胜利。
+
+（话说贾府主色调应该是红色吧，拇指是不是快出场了...）
+

@@ -2804,3 +2804,24 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 才知道贴吧可以这么打分的，祥宝的打分好争议，坐等十五年大女主翻盘</blockquote>
 不要再谈“十五年”了，这个数字在这集之后已经完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名津流  
+##### 301#       发表于 2025-1-31 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321893&amp;ptid=2244721" target="_blank">aptx8285144 发表于 2025-1-31 17:54</a>
+
+不要再谈“十五年”了，这个数字在这集之后已经完蛋了</blockquote>
+为什么是15年？2010年的时候有什么特别亮眼的角色吗？
+
+*****
+
+####  aptx8285144  
+##### 302#       发表于 2025-1-31 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322085&amp;ptid=2244721" target="_blank">名津流 发表于 2025-1-31 18:21</a>
+
+为什么是15年？2010年的时候有什么特别亮眼的角色吗？</blockquote>
+好像有人说的是凉宫，但是凉宫我记得是09年的番吧
+

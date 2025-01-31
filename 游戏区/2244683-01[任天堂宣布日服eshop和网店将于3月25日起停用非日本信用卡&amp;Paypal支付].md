@@ -1684,3 +1684,15 @@ jcb以前貌似说无法查发卡地区，但是12月开始小红书上很多人
 震惊，居然没有自己的地区服，PS 和 Xbox 也这样的么</blockquote>
 ps有台服，但国内好像都情愿玩港服都不愿意玩台服（ 
 
+
+*****
+
+####  clyde-wang  
+##### 173#       发表于 2025-1-31 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321785&amp;ptid=2244683" target="_blank">leystage 发表于 2025-1-31 17:38</a>
+震惊，居然没有自己的地区服，PS 和 Xbox 也这样的么</blockquote>
+PS有台服，而且台服在PS4时代送的主题和港服不一样，个人还喜欢点台服的主题。
+
+不过PS5时代就没有区别了
+
