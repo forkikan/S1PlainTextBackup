@@ -3533,3 +3533,35 @@ X:鍋色きん [https://x.com/golden_nabe/status/1885279195846369623](https://x.
 
 第一天十个repo九个说像渚薰的含金量
 
+
+*****
+
+####  中野梓  
+##### 6200#       发表于 2025-1-31 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323862&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-1-31 22:43</a>
+
+好像因为plazam和挽尊哥的那个视频，推上关于卡缪的讨论也大量发生了
+
+—— 来自 HUAWEI SEA-AL10, Android ...</blockquote>
+卡妙可是小型MS空手道冠军
+
+
+*****
+
+####  Earendil_C  
+##### 6201#       发表于 2025-1-31 23:00
+
+ 本帖最后由 Earendil_C 于 2025-1-31 23:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在看安彦的 gto漫画，夏利亚比79 动画画的年龄正常多了画的还很像兰巴拉尔
+
+IMG_5398.jpeg
+(1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 23:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/31/230300j8rqy95p598vljxi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

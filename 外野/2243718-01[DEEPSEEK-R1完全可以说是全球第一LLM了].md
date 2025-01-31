@@ -12336,3 +12336,23 @@ openrouter有其他的提供商，但是得注意传provider参数，不然可�
 
 API页面啥时候能开啊，我想买API啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葛饰应为  
+##### 946#       发表于 2025-1-31 22:58
+
+ 本帖最后由 葛饰应为 于 2025-1-31 22:59 编辑 
+
+我在N卡网页上面第一个问题是问他黄皮衣是谁，答案很有趣
+
+*****
+
+####  山形石雄  
+##### 947#       发表于 2025-1-31 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323662&amp;ptid=2243718" target="_blank">月灵银羽 发表于 2025-1-31 22:13</a>
+
+虽然deepseek开源，但是开发训练数据在deepseek手里啊，目前其他服务商部署的最大的671b的ds还是和官网的ds ...</blockquote>
+360不是只有70b？
+

@@ -11636,3 +11636,98 @@ yysy，修正是保留优点改正缺点，而现在已经是摧毁人物了，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  杂灰  
+##### 15830#       发表于 2025-1-31 22:56
+
+与其说归为过家家 不如说是通过在她面前把她的行为归结为过家家来打击她，这种外界对她行为性质的归结是明确的“外力”，所以并不是完全没有挽回的余地
+
+*****
+
+####  akiomn  
+##### 15831#       发表于 2025-1-31 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最要命的是祥子的高自尊心也被彻底打碎，go里说祥子是骄傲绽放之人，那么鸡里编剧就打碎祥子的全部，让祥子变成行尸走肉
+第四集最后祥子还是会想要睦回来，好家伙第五集这一个月时间，祥子变行尸走肉了
+我之前还奶过祥子哪怕失去一切在彻底崩溃前也会先把睦拉回来，而爆炸后的祥子由回血后的睦拉回，形成双向救赎。现在看我的理解就是屁了，编剧表示睦死了，祥子也跟着一起死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太无敌了编剧
+
+*****
+
+####  天空塔书记官  
+##### 15832#       发表于 2025-1-31 22:57
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 22:59 编辑 
+
+过家家单指组A团，套着商业的壳子搞玩票乐队，而不是祥子陪父亲打工转学搞C团的这些，这应该能算是滑坡了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Yukino-Yukino  
+##### 15833#       发表于 2025-1-31 22:57
+
+ 本帖最后由 Yukino-Yukino 于 2025-1-31 23:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323906&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 22:49</a>
+yysy，修正是保留优点改正缺点，而现在已经是摧毁人物了，不仅是过错还把离家出走打工写歌写剧本一系列努 ...</blockquote>
+不是归于过家家，是从结果上看起来成了过家家<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">祥子主观上肯定不想过家家，但客观上自己行动全部失败，不得不由丰川家兜底导致变成了外人看来的大小姐过家家。就是这种主客观上的不一致导致祥子的自尊心被摧毁，开始怀疑自己，最后的结果就是这句话的唯一一句台词——“我。。。好讨厌我自己”但祥子的成长也必须要从这一刻开始。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  yaneis  
+##### 15834#       发表于 2025-1-31 23:00
+
+<blockquote>Yukino-Yukino 发表于 2025-1-31 22:57
+不是归于过家家，是从结果上看起来成了过家家祥子主观上肯定不想过家家，但客观上自己行动全部失败，不得 ...</blockquote>
+但结果就是一切，祥子的处境就算想说心是好的也没法被接受，因为大手是真的能把个人意志都无视掉的（
+
+*****
+
+####  aptx8285144  
+##### 15835#       发表于 2025-1-31 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323885&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-1-31 22:46</a>
+
+狗动画再压抑，比如第七集后，顶多就压抑了两集，第十集情绪爆发正向反馈了。而前五集是水到渠成的铺垫， ...</blockquote>
+我想了一下，这五人这五集大概唯一的闪光点是初华对大祥的贴贴吧（就别管是真心实意还是官方以后要抛弃的cp了），然后没了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SpaceCowboy  
+##### 15836#       发表于 2025-1-31 23:01
+
+现在剧本的最大问题就是编剧已经告诉祥子：你根本不需要有自由意志，看看你迄今为止的所有选择，哪个不是在让周围的人越来越痛苦。
+
+编剧已经写到这个份上了，后面祥子要怎么重新诞生自由意志突破这个桎梏？我完全无法想象。
+
+*****
+
+####  Yukino-Yukino  
+##### 15837#       发表于 2025-1-31 23:02
+
+ 本帖最后由 Yukino-Yukino 于 2025-1-31 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323972&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 23:00</a>
+但结果就是一切，祥子的处境就算想说心是好的也没法被接受，因为大手是真的能把个人意志都无视掉的（ ...</blockquote>
+就是因为这种客观情况和主观想法的不一致，才会让祥子反思自己过去的手段是不是哪里出了问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不然要是让祥子顺风顺水地把这银河战舰开下去，那她也就不会反思自己，作出改变，而是坚持前三集这个状态一路进行下去了。所谓不破不立，破而后立
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  无限舰制  
+##### 15838#       发表于 2025-1-31 23:03
+
+一切被砸完了的处境可能更有利于想清楚自己该干什么
+
+也许乐队连人都拉不到，也许干什么都脱离不了控制，也许来自别人的评价就会一直这样，“所以要做点什么吗”
+
+反正也只有音乐了
+
