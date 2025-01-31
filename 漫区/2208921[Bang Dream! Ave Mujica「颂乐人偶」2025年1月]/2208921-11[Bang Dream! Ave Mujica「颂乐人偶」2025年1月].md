@@ -13285,3 +13285,26 @@ mujica是自相矛盾的，祥子也是自相矛盾的，有人指出祥子对�
 重看一下第五集，发现最后mortis说要让小睦醒过来，但镜头给的是吉他。前面给医生打电话的时候，也是一直抚 ...</blockquote>
 在睦的世界观里Mortis的本体是吉他，吞噬睦是跟睦互换，把睦封印进吉他里
 
+
+*****
+
+####  玖羽  
+##### 15981#       发表于 2025-2-1 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325144&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 07:13</a>
+
+那睦现在使出mygo这张牌会好用吗，应该也不行吧。不过说不定至少能解决不会弹吉他的问题</blockquote>
+我还是认为高潮会4拖1，如果是祥子失去一切之后再逆袭1拖4，先不说怎么写，那也太变态了
+
+MyGO帮助解决其他人的次要问题是可以的，我之前就说，睦对吉他自卑的原因是家里不给她上吉他课，她实际上就缺个老师
+
+睦练吉他遇到瓶颈，由于没有指导（家里只给安排芭蕾课这种高雅艺术），越来越钻牛角尖，觉得是自己菜
+
+<img src="https://img.saraba1st.com/forum/202502/01/072455vwacfzgamz4fpoch.jpg" referrerpolicy="no-referrer">
+
+<strong>0v0g.jpg</strong> (117.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 07:24 上传
+
