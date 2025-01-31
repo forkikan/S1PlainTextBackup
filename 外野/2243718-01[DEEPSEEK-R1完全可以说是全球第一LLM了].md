@@ -11683,3 +11683,17 @@ ds有点颠，一个表现就是在描述唯心或者瞎编想象的时候喜欢
 
 这群人的发言还不如D指导幽默，GPT扮演的
 
+
+*****
+
+####  我家阿喵叫花花  
+##### 889#       发表于 2025-1-31 09:05
+
+ 本帖最后由 我家阿喵叫花花 于 2025-1-31 09:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317576&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-31 08:59</a>
+
+这群人的发言还不如D指导幽默，GPT扮演的</blockquote>
+看到第一个，点进去，嘛玩意儿，养鸡的，第二个，宝妈，第三个，卖纸扎的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+甚至懒得和这些玩意儿搭话，一眼僵尸假帐号
+

@@ -2980,3 +2980,86 @@ KC可是正宗的神人乐队（做一张专辑换一次人、吉他手花式炸
 初华是真寡妇，soyo不过是一个离婚阔太太罢了，还是不太一样的。
 所以现在我还是在想初华后面怎么炸的问题，她对祥子的沉重感情是真的，那么能让她破防露出狰狞表情的点在哪里呢？
 
+
+*****
+
+####  huxiaopao163  
+##### 15065#       发表于 2025-1-31 09:06
+
+也许四个队友其实都是丰川老头子操纵的人偶，祥子接下来要让她们成为自己的人偶
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ddy2811  
+##### 15066#       发表于 2025-1-31 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317120&amp;ptid=2208921" target="_blank">魔灵高达 发表于 2025-1-31 05:28</a>
+
+小祥原本的计划应该不是解决睦头人的心理问题再摘面具，而是乐队里除了初华，其他人的咖位都不如小睦，要红 ...</blockquote>
+这是长线的玩法，但祥子的节奏就像要玩短线一样，哪怕排除摘面具这点也是在炒热度追噱头，银河战舰自然是开得磕磕碰碰
+
+*****
+
+####  琉璃苑軒風  
+##### 15067#       发表于 2025-1-31 09:08
+
+“等一个第10集重组母鸡卡，喵梦哭着跟祥子“我打鼓太菜了”，祥子抱住喵梦“你说以前没意思””
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿卡拉兰斯  
+##### 15068#       发表于 2025-1-31 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317592&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 09:01</a>
+武士道要烂炒也没办法拦着不是，avemujica拆队不全是祥子的锅但是作为领导必然有不可推卸的责任，木谷高 ...</blockquote>
+自己种的因结自己要的果
+武士道选择烂炒换热度和米，果就是稀烂的环境和肉眼可见的后续大概率所有人的不满意，即使剧本身问题可能真的不大也会被无限放大，这会不会回旋镖到自己身上就让子弹再飞一会儿吧
+
+
+*****
+
+####  岬开斗  
+##### 15069#       发表于 2025-1-31 09:11
+
+<blockquote>huxiaopao163 发表于 2025-1-31 07:29
+祥子要是下集在小睦家门口下跪，肯定要挨莫老师臭骂吧。
+
+“你还有脸来，当初说什么想要睦回来，现在好了彻 ...</blockquote>
+那么当初牢墨是怎么对睦承诺的？牢墨才是真的“背负了别人的人生”。
+
+*****
+
+####  阿卡拉兰斯  
+##### 15070#       发表于 2025-1-31 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317620&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 09:06</a>
+初华是真寡妇，soyo不过是一个离婚阔太太罢了，还是不太一样的。
+所以现在我还是在想初华后面怎么炸的问 ...</blockquote>
+二者确实区别挺大的
+现在还有挺多雷没爆的，也有不少伏笔没收的，上集收了一堆这集其实就只收了几个
+还是再往后看看吧，估计初华得拖到最后才爆
+
+*****
+
+####  嵇翱u  
+##### 15071#       发表于 2025-1-31 09:14
+
+说到初华，看到贴吧一个有意思的说法。除了睦祥两个初华这集没看到的人，海玲和大喵都没给初华好脸色看，关于解散是不是初华还有隐情。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 15072#       发表于 2025-1-31 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316885&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 03:07</a>
+主要是祥子把母鸡卡的责任转给老登了，对赌协议目前是没有的，风险是自己承担不了的，老登是关心祥子的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥只要说说后面赚钱把这次欠的还了就行了。又不是欠了几十亿。区区违约金。而且一个月已经上武道馆了，大祥能力摆那，很多人却视而不见
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
