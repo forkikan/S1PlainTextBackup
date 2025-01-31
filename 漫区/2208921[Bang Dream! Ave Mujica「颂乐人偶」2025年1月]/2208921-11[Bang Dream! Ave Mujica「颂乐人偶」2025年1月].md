@@ -9244,3 +9244,174 @@ mujica遇到的一切风波和问题，祥子最终处理的手段都是顺其�
 
 豊川家として今迄誠実に頑張ってきたのならば、幾許かの手切れ金を渡していても良いくらいだ</blockquote>
 
+
+*****
+
+####  qratosones1337  
+##### 15622#       发表于 2025-1-31 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322125&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-1-31 18:27</a>
+提醒一句，你就是说一万遍“祥子不说什么时候摘”，摘面具后喵梦人气垫底也是事实，在养出个人粉之前摘面 ...</blockquote>
+结果就是双输这个是必然的，但对于大喵来说双输好过单赢，万一后面被踢了那就血本无归了。而且现在看来大祥明显根本就没什么有效的规划，单纯就是控制欲发作而已——真要是顺其自然让大喵可以自己摘面具但不能动别人的，那反倒没这事了，今后还保留了摘其他人面具的后手。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  半年  
+##### 15623#       发表于 2025-1-31 18:36
+
+<img src="https://img.saraba1st.com/forum/202501/31/183652yaa6jwe17wnul76k.jpg" referrerpolicy="no-referrer">
+
+<strong>GihU9tyacAAXoPr.jpg</strong> (289.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:36 上传
+
+[https://x.com/_A_jak_/status/1884849866003845201/photo/1](https://x.com/_A_jak_/status/1884849866003845201/photo/1)
+
+*****
+
+####  aptx8285144  
+##### 15624#       发表于 2025-1-31 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322136&amp;ptid=2208921" target="_blank">hol_effect 发表于 2025-1-31 18:28</a>
+
+那真算了，我真不是来看大猫传的</blockquote>
+在演大猫传前希望<strong>先告诉我</strong>她是孤儿院出来的孩子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 15625#       发表于 2025-1-31 18:38
+
+<img src="https://img.saraba1st.com/forum/202501/31/183841zazrvgi2r6zij6z3.jpg" referrerpolicy="no-referrer">
+
+<strong>GijNgnfawAAY4in.jpg</strong> (142.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 18:38 上传
+
+[https://x.com/puni_0626/status/1884982406350053618/photo/1](https://x.com/puni_0626/status/1884982406350053618/photo/1)
+
+*****
+
+####  huxiaopao163  
+##### 15626#       发表于 2025-1-31 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322167&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-1-31 18:32</a>
+
+真顺其自然倒是没事了，一开始明确说“面具你实在想摘就摘吧，但必须先跟我打招呼改剧本，而且绝对不准动 ...</blockquote>
+这样也算是做了一个判断和决策了，但是祥子的顺其自然就是明知道喵梦可能会产生问题，但是没做事前准备，也没计划事后的安排，就单纯地等到问题真的发生。
+
+而且摘面具事件发生后，对喵梦做点象征性的惩罚，也能让后续的二阶段“方向性之争”时，不要那么被动。但是祥子还是什么都没做。
+
+
+*****
+
+####  yaneis  
+##### 15627#       发表于 2025-1-31 18:40
+
+<blockquote>qratosones1337 发表于 2025-1-31 17:50
+提醒一句，蒙面的鸡团对于大喵来说只有负收益，流量屁都没有然后还要牵扯大量精力。摘面具这事从一开始就 ...</blockquote>
+提醒一句鸡从出道到第一集也就两个月，沟槽的炒作狗wsd都会饥饿营销一年，一个蒸蒸日上准备开巡演的乐队要急着现在就爆是什么天才想法，短视的结果就是自己人气没积攒好被睦头全抢了，还祥子没给具体时间就能滑坡到不摘面具准备踢人您真是太了解喵梦了
+
+*****
+
+####  圣血天使  
+##### 15628#       发表于 2025-1-31 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321520&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-1-31 17:03</a>
+海铃会爆，而且会在初华之前，当然这只是我的个人观点，海玲身上压抑自我的倾向太明显了，如果解开了束缚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海玲，我能想到的就是母鸡卡重组，结果队友除了大猫都是菜逼，海玲：特么的你们行不行了，祥子家别墅，一周特训开始，练练练！不练出十首歌不回家！
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  yaneis  
+##### 15629#       发表于 2025-1-31 18:42
+
+哦先预设立场我要输了就直接双输好过双赢，那无敌了
+
+*****
+
+####  玖羽  
+##### 15630#       发表于 2025-1-31 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322234&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 18:40</a>
+
+提醒一句鸡从出道到第一集也就两个月，沟槽的炒作狗wsd都会饥饿营销一年，一个蒸蒸日上准备开巡演的乐队 ...</blockquote>
+我感觉每周都会轮一遍这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+对喵梦来说，一个是不摘面具她就一直有被换掉的风险，万一被换掉就什么也没有
+
+另一个可能恰恰因为崛起太快，她心里反而没底，着急变现
+
+*****
+
+####  厉飞雨  
+##### 15631#       发表于 2025-1-31 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322096&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-1-31 18:23</a>
+
+车大瞄和大祥够多了，换个人物吧，只要不是喝茶番或独行侠，无数次剧本证明了团队需要一个捏合剂，做得更好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">初华想跟大祥贴贴，所以大喵要开盒的时候，她也支持，太有心机了
+
+*****
+
+####  zhzij111  
+##### 15632#       发表于 2025-1-31 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321996&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-1-31 18:08</a>
+定治本来只需要背负清告的一个人的人生就行了啊 
+
+定治这么能背负人生，那家里养个闲人有多难</blockquote>
+老登把中登赶出去有啥毛病，他一个外姓成年人捅这么大窟窿，老登也没要他赔钱只是跟他切割了。
+
+真要是包庇中登养家里当少爷，家族里其他人怎么想
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 15633#       发表于 2025-1-31 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322000&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-1-31 18:09</a>
+摘面具是大祥给大喵的明确承诺，否则大喵从一开始就不可能过来打白工
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">摘面具只摘自己的就完了，脸和数字都有了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Lyzers  
+##### 15634#       发表于 2025-1-31 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322176&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 18:33</a>
+
+问题你不就是车大伙对睦无关心么，我寻思我给了那么多种类的论据，到头来你又说你不该这么压缩。
+
+顺便说 ...</blockquote>
+你给的论据全是我觉得的话，那就还是那个问题，你觉得我觉得？？能不能给我一个动画里的内容就实锤这帮人就理所当然不关心队友的内容，而不是我觉得就应该这样
+
+然后，我说的是立刻去关心吗？是不能有情绪吗？我没说让大家冷静下下来吗？
+
+就我聊了都快一天了，你觉得了半天了，我除了最一开始和少数几个基本就在复读你的论点和动画内容，你也不说是我说的有什么问题，反正就搁在这多元分析我觉得我觉得，然后现在已经变成了还要滑坡扭曲我的意思了吗
+
+*****
+
+####  yaneis  
+##### 15635#       发表于 2025-1-31 18:45
+
+<blockquote>玖羽 发表于 2025-1-31 18:42
+我感觉每周都会轮一遍这个问题 
+
+对喵梦来说，一个是不摘面具她就一直有被换掉的风险，万一被换掉就什么 ...</blockquote>
+着急变现是短视，独走摘面具是蠢，更别说按漏油的想法摘自己面具不就行了，还摘了木头面具导致流量没吸多少更是幽默
+
