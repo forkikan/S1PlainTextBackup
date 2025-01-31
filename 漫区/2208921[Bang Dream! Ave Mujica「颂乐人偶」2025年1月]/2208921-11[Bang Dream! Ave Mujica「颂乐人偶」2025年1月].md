@@ -10817,3 +10817,62 @@ lyy老师的爱素
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太傻逼被删了
 翔吃回头草剧透反白
 
+
+*****
+
+####  MonPanache  
+##### 15760#       发表于 2025-1-31 21:16
+
+<blockquote>aptx8285144 发表于 2025-1-31 17:32
+我觉得最大问题是，这是少女乐队番，但是喵梦这样的角色后面不曝出是孤儿院之类的没法和解，就算是孤儿院 ...</blockquote>
+对，大喵从第一集开始给人的观感就一路走低。让一个表面看起来自我中心又市侩功利的人试图拿团队、观众来道德绑架背景最硬的实干派大小姐型女主，简直可笑。要说她的优点的话，大概也就只有努力加家人侠了，但大祥的努力程度一点都不逊于她，这就像大祥指责大喵、灯不努力一样，纯属胡扯。
+
+总之大喵这个角色算是烂完了，就算后面她力挽狂澜缝缝补补把剧情又圆回来了，前面的烂活就再怎么都没法补救了。归根结底，这片名叫阿贝母鸡卡，不叫大喵传。
+
+另外祥子也是可笑，组团的思路就是一个人头铁硬顶，对忠心的哈气，碰到刺头就手足无措，最后还靠爆老登金币还清了违约金——世上竟会有这么奇葩的大小姐？
+
+现在剧情都过了三分之一了，别说塑造一个大女主了，铺垫了整整一季的第一女主完全成了小丑。后面要真能圆回来的话还就真的封神了。
+
+
+*****
+
+####  天空塔书记官  
+##### 15761#       发表于 2025-1-31 21:16
+
+ 本帖最后由 天空塔书记官 于 2025-1-31 21:19 编辑 
+
+第六集才是观感最低点的发展符合预期，等第七集吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Yukino-Yukino  
+##### 15762#       发表于 2025-1-31 21:19
+
+<img src="https://p.sda1.dev/21/0027ae5a49cbd70a842973b4b3f2974f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  花スープ  
+##### 15763#       发表于 2025-1-31 21:20
+
+大喵喵谐星化也许能救一下，但是我小墨已经占了谐星位了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aistians  
+##### 15764#       发表于 2025-1-31 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67316167&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-1-31 01:19</a>
+
+“抛开事实不谈难道你就一点错都没有吗?”</blockquote>
+有一说一，睦的第二人格不是石锤睦为了帮祥子才加入母鸡卡，然后快崩溃的时候想找祥子救自己，结果被祥子发火后直接崩溃了吗？
+
+都直言认为祥子只考虑自己，讨厌祥子了。
+
