@@ -1487,3 +1487,13 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  leyenda  
+##### 155#       发表于 2025-1-31 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314566&amp;ptid=2244683" target="_blank">君往何处 发表于 2025-1-30 23:16</a>
+我记得家庭会员要信用卡或者paypal吧，这调整后之前的家庭会员续费也没了？ ...</blockquote>
+记错了，我一直点卡买的
+
