@@ -11948,3 +11948,59 @@ R1不能用，你用的是V3，V3不是推理模型。
 
 因为continue没有适配推理模型，没有抓结果里的reasoning_content。
 
+
+*****
+
+####  纱夜抱着榴弹炮  
+##### 909#       发表于 2025-1-31 17:26
+
+<blockquote>魔灵高达 发表于 2025-1-31 17:14
+怎么用的，我这里甚至开不了申请API的界面，来个能用的网址。
+
+以及，之前API能用的时候我这边用powershe ...</blockquote>
+挂了的是api管理端（申请新key，充值），如果之前申请过api key且账户还有余额，依然能正常使用
+
+*****
+
+####  断片集  
+##### 910#       发表于 2025-1-31 17:29
+
+r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，之前申请过key的还是能继续用的
+
+<img src="https://img.saraba1st.com/forum/202501/31/172936zz2zqukd2hi3ozda.png" referrerpolicy="no-referrer">
+
+<strong>d4d7fc50f6672e29938e76befc31a49c.png</strong> (280.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 17:29 上传
+
+*****
+
+####  黄泉川此方  
+##### 911#       发表于 2025-1-31 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不知道API还剩多少钱，但就是偶尔能用
+
+
+*****
+
+####  魔灵高达  
+##### 912#       发表于 2025-1-31 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321684&amp;ptid=2243718" target="_blank">纱夜抱着榴弹炮 发表于 2025-1-31 17:26</a>
+
+挂了的是api管理端（申请新key，充值），如果之前申请过api key且账户还有余额，依然能正常使用 ...</blockquote>
+还真是，但是API貌似也不稳定，昨天我一整天都没用上，今天懒得试了，刚试了下又能用了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风真人  
+##### 913#       发表于 2025-1-31 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321600&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-31 17:14</a>
+怎么用的，我这里甚至开不了申请API的界面，来个能用的网址。
+
+以及，之前API能用的时候我这边用powershe ...</blockquote>
+我也是按照deepseek推荐的在docker里下openwebui，但是我这里不显示思考链，直装openwebui就有吗？
+

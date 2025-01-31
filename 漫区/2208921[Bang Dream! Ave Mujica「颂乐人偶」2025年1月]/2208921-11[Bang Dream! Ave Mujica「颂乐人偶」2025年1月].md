@@ -8580,3 +8580,106 @@ A团在第七话的重组搞不好会是集体黑化的结果，所以才能组�
 笑死，过家家跟有没有钱有啥关系，soyo她组乐队就是来玩的，睦就是来帮祥子的，人两位本来就是来过家家交 ...</blockquote>
 列了一大堆罪状几条是祥子的原因？工作人员不在意精神病所以祥子是在过家家？是祥子提的要退出还是要解散？你要觉得祥子没压住成员所以是过家家也没什么好说了
 
+
+*****
+
+####  swessia  
+##### 15570#       发表于 2025-1-31 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">该剑指新的假药了
+
+现在为挽救初祥的风评，只能写母鸡卡解散背后是丰川老登的推波助澜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd既然选择引入大人的一面，那这写作难度就直线上升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MonPanache  
+##### 15571#       发表于 2025-1-31 17:27
+
+已经很难想象接下来该怎么翻盘了，烂片雷达响个不停……
+
+*****
+
+####  Lyzers  
+##### 15572#       发表于 2025-1-31 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321585&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-1-31 17:11</a>
+那你不看时间背景么，这是刚吵完架散伙诶，负面情绪在那呢你非要别人这时候关心一下。
+
+更不用说有说有笑 ...</blockquote>
+你看，又是一个新的我觉得。“我觉得吵完架了就不能去关心了”。要怎么写，写不写得好那不是编剧大手的问题吗？
+
+素食还要结束乐队结果就被唱哭催眠APP了。那你鸡团写一个吵完架，然后大家唱完歌冷静下来了又正常地去交流不行吗？反正到现在你都写了几次暴走，镜头一转大家当没事发生了。这种情节本来也合理也常见
+
+甚至更滑坡一点，反正现在大部分人都理解不了这第四集莫名就变成解散，为什么就一定要写到这个地步，然后再非此即彼的问题呢？
+
+这就又返回现在鸡团动画的逻辑问题了，你要这么写出来还坐实了，我觉得就已经是所有人都在烂完的路上了，故事的逻辑也连不上
+
+*****
+
+####  无限舰制  
+##### 15573#       发表于 2025-1-31 17:28
+
+只能说现实里成员之间闹矛盾/主创承担不住压力结果活动休止的乐队很多，回来的时候粉丝也都热情高涨一切照旧
+
+直接解散就【乐队惯例】来说话讲得有点太死了，暂停活动比较合适
+
+*****
+
+####  帆前  
+##### 15574#       发表于 2025-1-31 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321621&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-1-31 17:18</a>
+
+素世，伟大，能成为妈妈的人
+
+说点别的，以前的素世加上现在的初华，看得真让我难受，因为我在三次元也遇 ...</blockquote>
+朋友是容易这样的，哎
+
+
+*****
+
+####  天空塔书记官  
+##### 15575#       发表于 2025-1-31 17:32
+
+我对ave史上最狂的理解大概就是这会是第一支完全以负面目的结成的乐队，也就是炼金术中的第一步“黑化”，黑化代表着物质的死亡。前期都是“黑化”的过程，然后在第七集得到“黑化”的产物，之后才是“白化”“黄化”和“红化”
+
+而A团每个成员又都有自己对应的元素单曲，火是海玲、气是喵梦、水是初华、地是睦，而祥子则是第五元素以太，是光的介质，只有她们的共同参与才能炼出最后的贤者石，即“Ave Mujica”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  魔灵高达  
+##### 15576#       发表于 2025-1-31 17:32
+
+大喵现在闹成虽然说难评，但目前看来，有再组乐队动机，1是觉醒小祥、2是相思病犯了疯癫的初华，剩下的也就只有大喵了吧，哪怕目的性很明确是为了自己热度。
+
+所以喵祥最后会发展成类似爱素的拌嘴关系？完全无法想象
+
+*****
+
+####  aptx8285144  
+##### 15577#       发表于 2025-1-31 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321691&amp;ptid=2208921" target="_blank">MonPanache 发表于 2025-1-31 17:27</a>
+
+已经很难想象接下来该怎么翻盘了，烂片雷达响个不停……</blockquote>
+我觉得最大问题是，这是少女乐队番，但是喵梦这样的角色后面不曝出是孤儿院之类的没法和解，就算是孤儿院出来，不道歉也没办法和解，还有就是第五话实质上对前四话的彻底否定，导致会有一种制作组你们开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 15578#       发表于 2025-1-31 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321662&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-1-31 17:23</a>
+列了一大堆罪状几条是祥子的原因？工作人员不在意精神病所以祥子是在过家家？是祥子提的要退出还是要解散 ...</blockquote>
+你祥子是乐队实际管理者组织者，结果管的就跟玩一样，然后你说这不是祥子责任，要是没看过光听你这话我还以为是别人招祥子进乐队专门作曲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
