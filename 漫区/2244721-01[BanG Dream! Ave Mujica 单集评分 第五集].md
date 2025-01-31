@@ -2931,3 +2931,25 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 现在鸡团内除了初祥还有别的成型的关系性吗，还有个喵/睦莫？</blockquote>
 喵祥才嗑，很接近彩千圣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 313#       发表于 2025-1-31 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322477&amp;ptid=2244721" target="_blank">qiyu1234 发表于 2025-1-31 19:15</a>
+
+看这个不就是看个女同神交，逻辑什么的无所谓的，都是神交的背景板</blockquote>
+丰家财阀：那为什么还需要我亲自下场”粉碎“大祥的决心（可不是站在她那一边的立场，而是粉碎她的立场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+睦：你说的对，其他人对我而言真不熟，只有一个被我吓到的前队友在1个月后探望我<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 314#       发表于 2025-1-31 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67323040&amp;ptid=2244721" target="_blank">俾斯麥 发表于 2025-1-31 20:35</a>
+喵祥才嗑，很接近彩千圣</blockquote>
+说句难听的，以前还会看一下喵祥，三四集之后get不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
