@@ -12515,3 +12515,42 @@ B站翻译写的关于第五集题目翻译的介绍。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  yaneis  
+##### 15915#       发表于 2025-2-1 00:41
+
+在很多地方看到祥子洗心革面认识到自己是什么货色就能成长，就能组鸡团包饺子的言论，其实有点不解，洗心革面后她有什么理由去组鸡团吗？回到丰川家后变成低自尊温柔祥子后可以和初华包饺子，和木头包饺子，但还有组乐队的理由吗？而如果是从丰川家再次脱离，再次复仇者集结似乎又回到了过家家的论调，不符合观众心中的洗心革面了
+
+*****
+
+####  缪斯替  
+##### 15916#       发表于 2025-2-1 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324640&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-1 00:41</a>
+
+在很多地方看到祥子洗心革面认识到自己是什么货色就能成长，就能组鸡团包饺子的言论，其实有点不解，洗心革 ...</blockquote>
+那就真成美式中年危机大男主了，走出低谷应有尽有
+
+*****
+
+####  新HGCG  
+##### 15917#       发表于 2025-2-1 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324605&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-1 00:31</a>
+
+都怪马希洛 不然就没有这两季26集动画了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+马希洛路过牛家村
+
+*****
+
+####  DeltaStriker  
+##### 15918#       发表于 2025-2-1 00:45
+
+祥子现在真的越看越像夏亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

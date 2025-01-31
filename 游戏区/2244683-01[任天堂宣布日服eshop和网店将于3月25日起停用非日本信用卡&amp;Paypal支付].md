@@ -1738,3 +1738,14 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 
 顺便表区用amazon pay充值可以挂任何信用卡。
 
+
+*****
+
+####  Linkwjj  
+##### 178#       发表于 2025-2-1 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322752&amp;ptid=2244683" target="_blank">yuruho 发表于 2025-1-31 19:56</a>
+
+我怎么记得蛮早就不能用了，不过我绑定的visa倒是每年扣会员费没问题，其它的都买不了 ...</blockquote>
+以前是网站不能用，但是Switch得eShop直接扣款可以用。
+

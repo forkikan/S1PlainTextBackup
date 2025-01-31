@@ -12386,3 +12386,15 @@ API页面啥时候能开啊，我想买API啊<img src="https://static.saraba1st.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KioShiMa  
+##### 951#       发表于 2025-2-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322898&amp;ptid=2243718" target="_blank">fw3ii9 发表于 2025-1-31 20:15</a>
+D老师写小说有一套的
+我写prompt的时候写飘了，自己都不知道怎么往下写。
+丢给D老师之后，D老师竟然帮我绕 ...</blockquote>
+但是经常给他一个概念之后他就抓着不放，主角是退伍军人养子，它就往里塞一堆军用被子弹药箱哨兵熄灯号打靶训练这些东西，我拦都拦不住
+

@@ -190,3 +190,16 @@
 玩界轨刚进游戏就傻了, 完全不知道在 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是谁让你从界开始玩的  给他几个耳光！
 
+
+*****
+
+####  ravend233  
+##### 7546#       发表于 2025-2-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324418&amp;ptid=2160194" target="_blank">winggg 发表于 2025-1-31 23:59</a>
+
+是的，游戏原名黎之轨迹3，因为很多基于现实的考量，才改名界轨来发售。（怕补前作会花太多时间的话，或 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少打个黎1吧，黎2没啥信息量可以直接看概括
+
+草，回复点错了
+
