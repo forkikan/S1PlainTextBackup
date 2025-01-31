@@ -12130,3 +12130,31 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 有时候他评价我的问题是有趣的问题，不知道他有趣的标准是什么</blockquote>
 在向量空间里，你问题的特征向量和有趣这个词的距离非常近
 
+
+*****
+
+####  moeblack  
+##### 927#         楼主| 发表于 2025-1-31 19:56
+
+<img src="https://img.saraba1st.com/forum/202501/31/195606l3lkxeiotoxl618x.jpg" referrerpolicy="no-referrer">
+
+<strong>f59646044cec6b0b1c8d51d63b10987a.jpg</strong> (190.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 19:56 上传
+
+奥特曼急了
+
+
+*****
+
+####  木水风铃  
+##### 928#       发表于 2025-1-31 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322747&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-1-31 19:56</a>
+奥特曼急了</blockquote>
+跟小丑一样，那openai怎么支持共和党了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

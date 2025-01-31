@@ -3431,3 +3431,19 @@ tts那种跳级玩法明显就是快速吸收有潜力的新兵忽视老兵的�
 大河広行对姨姥的看法</blockquote>
 身边统计学 周围都是40+的遗老 没有一个不喜欢的 除了对几个设计有瑕疵的分镜吐槽一下 剩下的都是没有新高达看要死了
 
+
+*****
+
+####  岸浪白野  
+##### 6192#       发表于 2025-1-31 20:04
+
+[X 上的 じぃと：“#GQuuuuuuX #ジークアクス [url]https://t.co/vmu1i3GDSM](https://x.com/__JEET/status/1885250047828517285)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202501/31/200428kwisxz88a2s558zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (498.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 20:04 上传
+
