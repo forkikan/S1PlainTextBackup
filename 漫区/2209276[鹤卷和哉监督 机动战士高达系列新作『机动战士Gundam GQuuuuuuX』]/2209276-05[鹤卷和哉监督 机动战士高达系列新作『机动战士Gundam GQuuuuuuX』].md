@@ -3409,3 +3409,25 @@ tts那种跳级玩法明显就是快速吸收有潜力的新兵忽视老兵的�
 
 这次剧场版几个镜头我觉得是欠妥的 包括肩甲被beam炮擦到 后一个镜头扎古在那像真人受伤一样扶着手  后面削了对面头 对面全身爆炸
 
+
+*****
+
+####  pu  
+##### 6190#       发表于 2025-1-31 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320410&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-1-31 14:31</a>
+
+综合6171楼，也就是说这里痞子又玩了一个小花招，这条世界线上“白色要塞”先于原作飞马号出厂，成为了1号 ...</blockquote>
+玩过基连的野望就知道这个舰型造出来都叫ペガサス 阿姆罗他们剧情走完 你可以自己操控的时候那条船单独命名White Base
+
+
+*****
+
+####  pu  
+##### 6191#       发表于 2025-1-31 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320827&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-1-31 15:38</a>
+
+大河広行对姨姥的看法</blockquote>
+身边统计学 周围都是40+的遗老 没有一个不喜欢的 除了对几个设计有瑕疵的分镜吐槽一下 剩下的都是没有新高达看要死了
+

@@ -12119,3 +12119,14 @@ r1的api平台网页是炸了，不过api本身倒是一下能用一下炸的，
 
 如果攻击米国的电网让它们全国大停电，是不是就能把ddos给停了
 
+
+*****
+
+####  moeblack  
+##### 926#         楼主| 发表于 2025-1-31 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322162&amp;ptid=2243718" target="_blank">坚果大爷 发表于 2025-1-31 18:32</a>
+
+有时候他评价我的问题是有趣的问题，不知道他有趣的标准是什么</blockquote>
+在向量空间里，你问题的特征向量和有趣这个词的距离非常近
+

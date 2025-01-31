@@ -10107,3 +10107,85 @@ bang里面不现实的要素一大堆，偏偏要在这个违约金上非要给�
 祥子住的是西洋 ...</blockquote>
 如果是一比一现实那旧古河庭园3万多多平方米，比很多城堡占地都大了，还是在山手线边上，相当于北京二环边上的王爷府给私人买了做成宅子
 
+
+*****
+
+####  古明地雷  
+##### 15694#       发表于 2025-1-31 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322546&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:27</a>
+那倒也不是，要是能承受失败的后果就不是过家家，可惜编剧恶意太大还给小祥安排了个慈祥老爷爷兜底
+
+—— ...</blockquote>
+确实如你所说，所以祥子在老登说她的时候也无力反驳，她只能接受这个说法。不过作为上帝视角一路看来的观众，还是想替她说句话，因为用这个轻佻的词否定她的拼搏还是太残酷了
+
+*****
+
+####  wwwttth  
+##### 15695#       发表于 2025-1-31 19:50
+
+<blockquote>Lyzers 发表于 2025-1-31 19:34
+你提的这些不就是纯我觉得吗？有跟睦被压力压垮到浑身颤抖，莫骂祥一样我就讨厌你，睦说喵总说讨厌的话一 ...</blockquote>
+握草，这还是我觉得？这么直白的编剧描写你都不认，那还有啥好说的，甚至其中一个的漫画就在这上面没几层。更不用说烂完了也是你觉得的，为啥要在刚解散的时间去关心睦，你闹了半天也没想出一个一个解释啊我寻思。
+
+说真的我不该和纯杠精对话的，我的错，你是真的为了辩可以把眼睛都抛开啥剧情都不认。
+
+*****
+
+####  厉飞雨  
+##### 15696#       发表于 2025-1-31 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">别玩到最后，睦莫合体，才是牢祥记忆中的木子米
+
+*****
+
+####  安娜导函数  
+##### 15697#       发表于 2025-1-31 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322255&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 18:43</a>
+摘面具只摘自己的就完了，脸和数字都有了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2 ...</blockquote>
+不摘睦头和初华的，哪来那么大冲击力？？？从摘面具以后现场观众反应就提现了，睦头被摘什么反响，ob一串字母小姐摘了什么反响<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  terry666  
+##### 15698#       发表于 2025-1-31 19:54
+
+<blockquote>未来起航 发表于 2025-1-31 19:44
+违约金这一出搞笑的算是写得着急了。
+
+主题就是失去了自己认定的归处avemujica的祥子失魂夺魄失去“人性” ...</blockquote>
+前面的一堆乱账其实都可以圆的，真要包饺子都可以包，甚至大喵身世往可怜了写都可以洗，可是主角出事靠家里摆平放任何作品里都是大忌了，别说啥欲扬先抑，你直接把主角翻身的可能性完全抹杀了。
+
+你编剧结尾是能让祥子自己把乐队拉回来，然后赚钱把欠爷爷的全还清了还是怎么着？有花钱擦屁股这事在这卡着，结尾这饺子怎么包馅里都有坨屎。
+
+*****
+
+####  Yukino-Yukino  
+##### 15699#       发表于 2025-1-31 19:55
+
+话说灯这么搞是真的要拉大祥进队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不说祥子会不会答应，真拉进来让soyo和立希看到都会哈气啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 15700#       发表于 2025-1-31 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322740&amp;ptid=2208921" target="_blank">terry666 发表于 2025-1-31 19:54</a>
+前面的一堆乱账其实都可以圆的，真要包饺子都可以包，甚至大喵身世往可怜了写都可以洗，可是主角出事靠家 ...</blockquote>
+那如果主角决定反抗家族呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wolf1997  
+##### 15701#       发表于 2025-1-31 19:57
+
+看着大莫老师拿着个鞋子当电话打就挺可怜的，明明主观知道自己能力不足闯祸了也想治病了，可自己脑子就是不听指挥，眼里估计全是幻觉，都分不清哪边是电话了，只能盲目地求救，这种连自己脑子眼睛都不能相信的情况，想想都绝望。
+

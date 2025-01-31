@@ -467,3 +467,28 @@ openai你卖api就知道迟早有这一天
 
 就算用了openAI的语料也是花钱买的。
 
+
+*****
+
+####  qratosones1337  
+##### 42#       发表于 2025-1-31 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317355&amp;ptid=2244729" target="_blank">mimighost 发表于 2025-1-31 08:13</a>
+首先，x上面不只有美国人，我查了一下，说这个的好像是个印度人lol
+
+说回来，这么说完全没错，openai的确吃 ...</blockquote>
+有不少东西还是实锤的版权物，彻头彻尾的侵权那种。如果是开源模型的话可以算合理使用，但是闭源私有模型拿来收费就明显又当又立了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 43#       发表于 2025-1-31 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317731&amp;ptid=2244729" target="_blank">sellboy 发表于 2025-1-31 09:17</a>
+openAI开放API输出内容应该本来就夹着混淆语料的，真靠这个拿来训练只会练成傻子。 ...</blockquote>
+夹杂混淆语料的话模型就用不了了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
