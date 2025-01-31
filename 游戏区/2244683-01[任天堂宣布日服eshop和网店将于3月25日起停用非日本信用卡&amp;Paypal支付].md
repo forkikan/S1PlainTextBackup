@@ -1725,3 +1725,16 @@ PS有台服，而且台服在PS4时代送的主题和港服不一样，个人还
 是的 DMM也不行了，以前还去买点漫画，今年省钱了</blockquote>
 DMM我广发AMEX借记卡能正常充，昨天刚试，500JPY扣款23.4
 
+
+*****
+
+####  yoyokirby  
+##### 177#       发表于 2025-2-1 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310652&amp;ptid=2244683" target="_blank">畜男不是人 发表于 2025-1-30 16:11</a>
+
+是的 DMM也不行了，以前还去买点漫画，今年省钱了</blockquote>
+DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
+
+顺便表区用amazon pay充值可以挂任何信用卡。
+

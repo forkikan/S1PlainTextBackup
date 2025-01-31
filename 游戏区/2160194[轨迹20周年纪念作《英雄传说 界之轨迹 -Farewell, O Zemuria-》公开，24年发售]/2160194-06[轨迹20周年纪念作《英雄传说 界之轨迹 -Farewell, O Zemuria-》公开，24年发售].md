@@ -177,3 +177,16 @@
 玩界轨刚进游戏就傻了, 完全不知道在 ...</blockquote>
 是的，游戏原名黎之轨迹3，因为很多大人的原因才改名界轨来发售。
 
+
+*****
+
+####  alucardcz  
+##### 7545#       发表于 2025-2-1 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324392&amp;ptid=2160194" target="_blank">Ny 发表于 2025-1-31 23:56</a>
+
+我也算个新人吧, 虽然10年前玩过某个几个轨迹游戏, 已经完全没印象了
+
+玩界轨刚进游戏就傻了, 完全不知道在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是谁让你从界开始玩的  给他几个耳光！
+

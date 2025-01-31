@@ -12355,3 +12355,91 @@ wsd烂炒被反噬了啊，
 绫奈由仁子这到底是想表达啥意思</blockquote>
 痞子也不看eva终啊
 
+
+*****
+
+####  cxj649  
+##### 15902#       发表于 2025-2-1 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324404&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-1-31 23:57</a>
+
+所以独角兽有参加所有脚本啊
+
+但是喜欢这部作品，但是没看动画又有点搞笑了</blockquote>
+没甩锅了吗
+
+*****
+
+####  yaneis  
+##### 15903#       发表于 2025-2-1 00:07
+
+她最后这句话就甩不了锅了（
+
+*****
+
+####  爱莉希雅  
+##### 15904#       发表于 2025-2-1 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324444&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-1 00:03</a>
+
+第五集时候爱音和灯去看水族馆，这里第五集两人去看大庄园，这何尝不是一种对称美 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">也是一种爱灯回
+
+*****
+
+####  天空塔书记官  
+##### 15905#       发表于 2025-2-1 00:08
+
+角色粉真是闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 15906#       发表于 2025-2-1 00:08
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-1 00:09 编辑 
+<blockquote>huxiaopao163 发表于 2025-1-31 23:57
+所以独角兽有参加所有脚本啊
+
+但是喜欢这部作品，但是没看动画又有点搞笑了
+
+</blockquote>
+
+有什么不难理解的，痞子他也不看eva终，采访自己说的，搞定EVA终以后骑单车回家了。痞子老年家庭美满事业有成，怎么能跟年轻那个虚无主义怼天怼地的宅男共情呢。
+
+*****
+
+####  Lyzers  
+##### 15907#       发表于 2025-2-1 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324344&amp;ptid=2208921" target="_blank">swessia 发表于 2025-1-31 23:48</a>
+
+小祥我觉的是编剧故意的
+
+但喵海初那实打实的是编剧菜，这也是我大幅下调预期的原因</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在看睦头除了嘴快容易破防别人之外纯纯的人畜无害小动物，倒了八辈子血霉遇上这帮人
+
+从小要面对神人爹妈，发小自从旧乐队爆了之后隔三差五就压力嘴臭自己，前队友也是自那之后换着法子PUA自己，本来为了发小进了她组的新团，结果新团梅伊阁诗人，网红姐就爱整烂活还整到自己身上导致压力爆增，主唱贝斯纯人机，过劳虚弱队友没发现，理论上会有的造型师和对接staff也没发现，自己都被逼疯了结果没一个人care，这号谁爱玩谁玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厉飞雨  
+##### 15908#       发表于 2025-2-1 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">对比友商，总会安排一个阳角在队里来促进神人们彼此交心
+
+*****
+
+####  sauron.j  
+##### 15909#       发表于 2025-2-1 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324405&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-1-31 23:57</a>
+
+第四集若麦突然滑坡到解散然后除了睦全员赞同还是太诡异了，其中一定有内鬼 ...</blockquote>
+我的理解是说气话or开窗先掀天花板
+
+类似于用辞职向领导逼宫的戏码，还特地借用初华过去的发言让大祥下不了台阶，迫使她做决策
+
