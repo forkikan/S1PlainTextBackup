@@ -3490,3 +3490,201 @@ yysy祥子不是一直在主动推动剧情，往坏的方向推也是推</block
 
 丰川定治的想法可能很简单，钱也给你烧了，你对你爹也死心了，赶紧滚回来继承万亿家产
 
+
+*****
+
+####  yaneis  
+##### 15113#       发表于 2025-1-31 10:06
+
+<blockquote>柴突猛进 发表于 2025-1-31 10:02
+祥子目前唯一推动的剧情只有压力睦导致大莫老师出现，其他的事情都是被推着走啊，喵梦摘面具，电台吵架之 ...</blockquote>
+都接团了算主要参与方怎么不是推动剧情，又不是像狸猫一样被砸晕个一集强行下线ob，而且前四集除了吼睦自己逃了外没有逃避过，只是没打赢了（
+
+*****
+
+####  swessia  
+##### 15114#       发表于 2025-1-31 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">过了一晚冷静下来，虽然很乐很想看到七人大live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但就现在编剧这尿性，也可能下集go团双线吃瘪，“你看啊母鸡卡的问题果然还得母鸡卡解决啊~”然后莫名其妙第七集凑齐人了在ring开live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  庸necro  
+##### 15115#       发表于 2025-1-31 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318124&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 09:59</a>
+这是第5话，不是第11话，这集把TGW和MyGO两个前面留了扣子的要素都用了，后面再炸就不能用了，不然会重复
+
+ ...</blockquote>
+哪怕是先抑后扬，那抑的部分需要留下她有美好品质只是没发挥出来的扣子，这样重组才会显得有说服力。
+现在这个问题是戏里戏外都感受不到mujica需要复活的气氛，祥子前五集除了擦屁股厉害，卷自己厉害，没有一丁点领导力的表现，音乐才能还被tgw大手抹黑跳进黄河也洗不清了。
+我是感觉不出来哪里到了该逆袭的气氛了，前面五集逻辑都合成这样，你告诉我只要发起逆袭一切就能好起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  バーチャルS1er  
+##### 15116#       发表于 2025-1-31 10:08
+
+睦这状态一个月没人管也太怪了，让人感觉鸡团都是冷漠无情的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 15117#       发表于 2025-1-31 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">现实里大祥这种人拿天使投不要太容易。我们就假设只有100w，这已经是乞丐级投资了，随便拉个房二代就能拉来，换成日元 2000w，从0做到武道馆一万多人，起码投资人收益翻倍不止了。大祥作为制作人，没能力还违约金我是不信的，什么大手还是省省吧，一个破乐队违约金撑死几百万了不起了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 15118#       发表于 2025-1-31 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318122&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 09:59</a>
+
+你说的这种也叫成长？讲的还是人话么。
+
+兄弟，别人亲妈亲爸发小都这样了，同理心在哪呢</blockquote>
+妈是病死的，爸不用说
+
+睦的双重人格是祥子被睦吓到之后猜测的，确切地说双重人格这四个字是初华听了祥子的转述之后说的，对剧中人物来说根本不可信
+
+退一万步说，就算祥子自己相信，睦已经回家了，家里有她爸妈，反而要祥子一个发小负责？
+
+祥子又不在月之森，不知道睦一个月没上学，祥子都那样了还能去联系别人才奇怪好吧
+
+*****
+
+####  wwwttth  
+##### 15119#       发表于 2025-1-31 10:09
+
+<blockquote>怀沙汨罗 发表于 2025-1-31 09:48
+我的意思是，当编剧选择强调双重人格的疾病属性，却又把团里其他人写成漠不关心时，这群神人还能怎么重新 ...</blockquote>
+我不懂为啥还在拿这个车队友，散伙的那个时间点别人视角睦有没有病都不好说，而且对他们来说这事交给睦父母去处理就行的，你不能自顾自地滑坡到这帮人在不确定是不是有精神问题的情况下不管睦父母是演艺圈人士私自带睦去精神科才没问题。
+
+只有祥是有平行甚至超过睦父母的亲密关系的，并且也是唯一了解睦父母不靠谱的情况的，人物逻辑上应该有动作的只有祥而不是其他三个。你要车这个甚至可以车到soyo，你pua
+
+*****
+
+####  JustW  
+##### 15120#       发表于 2025-1-31 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318166&amp;ptid=2208921" target="_blank">xyion 发表于 2025-1-31 10:03</a>
+但其实也是一个对赌协议就都能找回来，有对赌协议，祥子最初明面上确实是拉投资而不是找祖父要钱，回老家 ...</blockquote>
+啥对赌协议啊，赢了我就靠乐队飞黄腾达，输了就回家继承亿万家产，双赢指祥子赢两次是吧
+
+
+*****
+
+####  柴突猛进  
+##### 15121#       发表于 2025-1-31 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318199&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-1-31 10:06</a>
+都接团了算主要参与方怎么不是推动剧情，又不是像狸猫一样被砸晕个一集强行下线ob，而且前四集除了吼睦自 ...</blockquote>
+祥子接团打输了叫做被剧情推着走，只有祥子打赢团然后反推一波那才是在推剧情，可惜祥子现在战绩几乎是全败
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  玖羽  
+##### 15122#       发表于 2025-1-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318205&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-1-31 10:07</a>
+
+哪怕是先抑后扬，那抑的部分需要留下她有美好品质只是没发挥出来的扣子，这样重组才会显得有说服力。</blockquote>
+如果你这么想，那我问你，你觉得后面8话演什么？日常吗？
+
+你不能因为你无法想象怎么扬你就否定扬，就说MyGO第9话那样，不看第10话你能想象怎么救吗？
+
+*****
+
+####  江口夕  
+##### 15123#       发表于 2025-1-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318221&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 10:08</a>
+妈是病死的，爸不用说
+
+睦的双重人格是祥子被睦吓到之后猜测的，确切地说双重人格这四个字是初华听了祥子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不应该对我说，要大祥负责的是楼里那些把矛头指向大祥的人
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 15124#       发表于 2025-1-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318122&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 09:59</a>
+你说的这种也叫成长？讲的还是人话么。
+兄弟，别人亲妈亲爸发小都这样了，同理心在哪呢。
+反正我是看不出 ...</blockquote>
+祥子确实是才华横溢非常努力也非常悲惨，但这都不是解决问题的办法，现在要重组mujica必须祥子自己先振作起来，而现在还在内耗中的祥子依然缺一个成长点，那就是不要再“脑子里只想着自己”，不要再自己一个人硬抗。
+（没有和你杠的意思，这楼你的大多数观点我基本都是赞同的）。
+
+*****
+
+####  庸necro  
+##### 15125#       发表于 2025-1-31 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318218&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-1-31 10:08</a>
+现实里大祥这种人拿天使投不要太容易。我们就假设只有100w，这已经是乞丐级投资了，随便拉个房二代就能拉来 ...</blockquote>
+是是是，有能力还违约金，能联系上tgw的祥子哪也住不了非得睡那b工作室没苦硬吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 15126#       发表于 2025-1-31 10:12
+
+漏油别太苛刻了，每个大事件都在风暴中心那铁算推动剧情了
+
+*****
+
+####  swessia  
+##### 15127#       发表于 2025-1-31 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317852&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 09:31</a>
+要讓狗團同時包祥睦餃子又留一點逼格給祥睦的話，
+
+那就是愛燈 跟素世分別把祥跟莫 拖到街頭上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在的祥素一见面估计会先打起来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 15128#       发表于 2025-1-31 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318259&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-1-31 10:12</a>
+祥子确实是才华横溢非常努力也非常悲惨，但这都不是解决问题的办法，现在要重组mujica必须祥子自己先振作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那先搞清大猫想干什么再来谈阻止，你要搞什么少女乐队可以，先去把大猫修正了再来谈少女乐队
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  JustW  
+##### 15129#       发表于 2025-1-31 10:16
+
+祥子适合当个人创作者，当乐队长是不够格的。祥子如果不再成长的话，丰川家族企业就倒在这一代了。
+
+*****
+
+####  SakuraのOrigami  
+##### 15130#       发表于 2025-1-31 10:16
+
+说起来
+祥子的电子琴呢（?）
+家里没见初华家里也没见到来着（）
+

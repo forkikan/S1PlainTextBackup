@@ -1507,3 +1507,15 @@ NS2游戏到底能不能用目前的任亏券？现在到底该不该囤券？�
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  君往何处  
+##### 157#       发表于 2025-1-31 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67317980&amp;ptid=2244683" target="_blank">leyenda 发表于 2025-1-31 09:44</a>
+
+记错了，我一直点卡买的</blockquote>
+个人会员可以，家庭不行
+[https://post.m.smzdm.com/p/a90ldx4e/](https://post.m.smzdm.com/p/a90ldx4e/)
+
