@@ -12496,3 +12496,22 @@ B站翻译写的关于第五集题目翻译的介绍。
 
 就是后来罗马真的壮大了，还把迦太基灭了，不知道这点有没有被考虑到这集的标题里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 15913#       发表于 2025-2-1 00:31
+
+都怪马希洛 不然就没有这两季26集动画了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  DeltaStriker  
+##### 15914#       发表于 2025-2-1 00:35
+
+只能说编剧没有认清楚自己的能力边界 这毕竟是个少女乐队片 你在里面刻意引入“真实”要素（木头人的精神病 外公的大手） 但是好像又完全不具备掌握处理所谓“真实”的能力 让观众看起来很魔幻 卡在不上不下的位置
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

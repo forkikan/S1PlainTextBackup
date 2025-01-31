@@ -12376,3 +12376,13 @@ API页面啥时候能开啊，我想买API啊<img src="https://static.saraba1st.
 
 新时代是开源的时代，除非奥特曼立马端出划时代的东西.
 
+
+*****
+
+####  庸necro  
+##### 950#       发表于 2025-2-1 00:33
+
+这算不算吧deepseek干烧了，我第一次看他思考了一分钟，最后开始胡言乱语了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得太极巧克力是毫无疑问的绝对了，除非以后出现新的音译了<img src="https://p.sda1.dev/21/0493974887136ab3352f8ee79f6e02fb/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
