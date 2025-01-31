@@ -6307,3 +6307,122 @@ mujica Ver2.0如果不再是商业乐队而是玩票性质的话观感大概能�
 
 而且越权说搞得怪严肃怪现实的，说什么越权什么资格，结果要打破，原来纠结这么久还是一句人设如此和我们是偷摸大鸡就能打破了啊，太美好了我们二次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JustW  
+##### 15375#       发表于 2025-1-31 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319850&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-1-31 13:25</a>
+能圆回来几个人设我就知足了，在我看来结局大喵和睦祥和解就是烂尾，如果是大喵发力拿预告里那几句话找大 ...</blockquote>
+包饺子是注定的，除非武士道打算把自己炸了给观众看个烟花
+
+*****
+
+####  novalli  
+##### 15376#       发表于 2025-1-31 13:28
+
+对了，刚才在别的楼里看到才想起来，这边提一下：
+外公赔的是取消巡演的钱，乐队解散有没有给经纪公司的违约金好像还真没说。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  木板春香  
+##### 15377#       发表于 2025-1-31 13:28
+
+ 本帖最后由 木板春香 于 2025-1-31 13:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/31/132936m40frh821dvfj2fn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:29 上传
+
+    
+
+<img src="https://img.saraba1st.com/forum/202501/31/132820topfitf9ikf1glh0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-31 13:28 上传
+
+中年男人的悲哀啊
+
+*****
+
+####  南宮凝香  
+##### 15378#       发表于 2025-1-31 13:28
+
+<blockquote>JustW 发表于 2025-1-31 13:20
+还不如说祥子以为自己戴着面具家里人就认不出来了，不过仔细想想在这个世界观也不是不可能，毕竟soyo就真 ...</blockquote>
+
+簽合同要身份證的Desuwa
+
+但就這世界的草台， 也真的說不定……..
+
+‘Ob一串字母小姐要付的違約金， 關我豐川祥子什麼事！’
+
+*****
+
+####  aptx8285144  
+##### 15379#       发表于 2025-1-31 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319816&amp;ptid=2208921" target="_blank">月光润色 发表于 2025-1-31 13:20</a>
+
+丰川家族势力又没明说给兜底的就默认有了吗，合理推论不代表剧情真是这么发展的啊 ...</blockquote>
+其实就是不上不下的设定放在那里，楼里有人就说了担心这个，偏偏还和照顾父亲这事是有“矛盾”的，这种脚本能让主角高光是需要极强的控制力以及天时地利人和的，<strong>哪怕目的是反向摧毁，也不应该是现在这么简单粗暴（解散的第四话真得有为爆而爆的味道）</strong>
+
+*****
+
+####  天空塔书记官  
+##### 15380#       发表于 2025-1-31 13:30
+
+祥子有才能是没错，但只靠“才能”是没可能送乐队上武道馆的，必然有资本大手的运作，至于是她姥爷，还是经济公司看重她家族背景所做的投资，本质都不是对于她个人或者乐队成员的，而是针对她的姓氏，但显然祥子没有这方面的自觉，或者说她低估了家族的影响力和分量<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 15381#       发表于 2025-1-31 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319884&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-1-31 13:28</a>
+簽合同要身份證的Desuwa
+
+但就這世界的草台， 也真的說不定……..</blockquote>
+要是考虑签合同要身份证的话，客服中心还能把祥子返聘了也是神人公司了，就算之前不认识，如今都到同事指指点点的地步了，还真敢让大小姐+大红人在自己这里体验生活
+
+
+*****
+
+####  aptx8285144  
+##### 15382#       发表于 2025-1-31 13:32
+
+不过说实话，除去定位本来就是前传的作品，我印象当中二次元剧本比较精密地写主角是怎么失败的原创动画太少了，一般两话三话就结束失败的太多了，拓展到有原作的可能还多一些
+
+*****
+
+####  江口夕  
+##### 15383#       发表于 2025-1-31 13:33
+
+ 本帖最后由 江口夕 于 2025-1-31 13:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319788&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-1-31 13:17</a>
+还是那句话，你要讲音乐性，那首先你别把自己定位成偶像；其次哪怕定位成乐队，那乐队讲音乐性的时候首先 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">神经病，大祥要音乐性，谁不想音乐性，还不是不会玩吉他的大莫老师和无所谓乐队的大猫？
+不知道还以为大祥自己要音乐性导致团队解散，闹麻了。到最后没有演奏只有演戏的还能叫乐队哦，你定义的乐队不演奏只演戏的？这都不是音乐性的问题了，连乐队都不是
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  北条早苗  
+##### 15384#       发表于 2025-1-31 13:35
+
+这集不是很明显的说了吗，祥子是还不起违约金的，但是丰川祥子可以。靠实力可以上武道馆，但是最速武道馆只需要她是丰川祥子，就算她主观上并没有使用家族的力量，她都不可能只得益于什么音乐性，这才是这集她自我厌恶的原因
+
