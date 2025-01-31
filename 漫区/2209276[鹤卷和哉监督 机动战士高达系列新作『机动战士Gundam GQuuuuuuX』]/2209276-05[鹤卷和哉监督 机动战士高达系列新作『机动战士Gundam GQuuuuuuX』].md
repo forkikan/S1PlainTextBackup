@@ -3784,3 +3784,11 @@ EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A
 
 失去沙仑玫瑰的吉翁，只能继续从精神力系统和那台MS的残骸入手，继续反向解析，几年后终于研究出了小型I立场和欧米伽塞可缪
 
+
+*****
+
+####  jojonathan  
+##### 6216#       发表于 2025-2-1 01:27
+
+我个人理解是gquuuuuuc脑控的原理和手操差不多 计算机接受指令调用行为 麻球害怕缩一团的时候想保护自己 计算机接受到了防护的指令就调用对应的行为举盾防御扎古射击<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

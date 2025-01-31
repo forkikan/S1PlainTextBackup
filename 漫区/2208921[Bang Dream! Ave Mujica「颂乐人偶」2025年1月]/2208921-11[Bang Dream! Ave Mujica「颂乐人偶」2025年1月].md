@@ -12756,3 +12756,20 @@ B站翻译写的关于第五集题目翻译的介绍。
 
 隔壁看的不知真假的舅舅剧透说大象跑去找原C团众人试图复辟,被拒后再次哭哭跑路,乍一看很扯淡但是仔细一想大象确实干得出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 15939#       发表于 2025-2-1 01:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们这讨论环境真恶劣，大祥已经不跪下给你们道歉已经不行了是吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  weige  
+##### 15940#       发表于 2025-2-1 01:32
+
+编剧就是想批判祥子的性格吧，顺风的时候白月光，遇到问题就翻脸不认人，对c团是如此，对初华也一样。难怪祥子外公说她倔，说白了就是满脑子都是自己，根本不会和别人沟通。
+
