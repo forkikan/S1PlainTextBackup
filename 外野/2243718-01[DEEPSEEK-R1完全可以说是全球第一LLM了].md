@@ -12751,3 +12751,14 @@ GPT O3发布了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zerona  
+##### 973#       发表于 2025-2-1 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325691&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-2-1 10:37</a>
+
+D指导真的一股咱妈味儿</blockquote>
+让我总结就是，美国人为了他们的泡泡根本就无意优化他们的技术，甚至可能所谓强了多少主要靠堆了更多硬件进去。
+

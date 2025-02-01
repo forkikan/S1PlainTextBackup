@@ -14036,3 +14036,22 @@ bang几季主要是在积累经验，平衡剧情和live的比重，二三季则
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 16047#       发表于 2025-2-1 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325296&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-1 08:54</a>
+
+我就想知道都这么惨了还没到谷底，接下来要怎么往上拉才能圆回来啊？</blockquote>
+而且还不能看起来太机械降神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔法使夜子  
+##### 16048#       发表于 2025-2-1 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得前几集已经有机械降神的意思了，后面怎么机械降神都不奇怪
+
