@@ -4117,3 +4117,21 @@ X上刷到赤松健问庵野这段挺搞的</blockquote>
 
 嗯？
 
+
+*****
+
+####  Toby_dak  
+##### 6250#       发表于 2025-2-1 22:27
+
+<img src="https://p.sda1.dev/21/e655a357fef949e2c6d243006ebcde91/20250201_205433.JPG" id="aimg_FNI9m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+三刷。特地看了下时间。
+
+21:10~21:29 一开头的不列颠作战到俘获的木马涂成绿色，78-2涂成红色（这时还没装塞克缪）
+
+~21:42 0079部分结束
+
+~21:05 0085部分。麻球第一次上机打掉两台警用渣古。
+
+~21:25 团战结尾
+
