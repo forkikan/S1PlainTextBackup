@@ -13443,3 +13443,48 @@ MyGO帮助解决其他人的次要问题是可以的，我之前就说，睦对�
 MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的时刻救，会严重损 ...</blockquote>
 Mujica也不是什么都没有了，大受欢迎粉丝念念不忘在5集里都表现过好多次。只要能够重组起来，要二次出山确实用不着TGW再出手
 
+
+*****
+
+####  玖羽  
+##### 15994#       发表于 2025-2-1 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325202&amp;ptid=2208921" target="_blank">wangh 发表于 2025-2-1 08:14</a>
+
+Mujica也不是什么都没有了，大受欢迎粉丝念念不忘在5集里都表现过好多次。只要能够重组起来，要二次出山 ...</blockquote>
+喵梦的“昨天还很喜欢，今天就厌烦了”这句话还没有回收
+
+我认为Mujica后面会经历下面这个阶段
+
+<img src="https://img.saraba1st.com/forum/202502/01/081854t2hsn113v9umvcim.jpg" referrerpolicy="no-referrer">
+
+<strong>es.jpg</strong> (303.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 08:18 上传
+
+*****
+
+####  安娜导函数  
+##### 15995#       发表于 2025-2-1 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325074&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 05:41</a>
+我解释一下我的分析逻辑：
+
+MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的时刻救，会严重损 ...</blockquote>
+个人觉得光靠A团自己是没法救自己的，还真得靠外部力量来帮她们改变成长<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 15996#       发表于 2025-2-1 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325186&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-1 08:08</a>
+除了大祥真的要重组ccc，我想不到比大喵渡大祥更大的雷点了。
+
+—— 来自 S1Fun ...</blockquote>
+所以我觉得后期变成大烂片的可能很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+你看目前除了大喵老师还在练A团的鼓，其他人有再考虑复活A团嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
