@@ -1357,3 +1357,46 @@ pp狗槽的经济公司、ykn父亲前队友担任制作人的音乐公司都是
 
 無非是多少
 
+
+*****
+
+####  rollingusagi  
+##### 16409#       发表于 2025-2-1 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329443&amp;ptid=2208921" target="_blank">月光润色 发表于 2025-2-1 21:41</a>
+这说的我有点接受不了，要是祥乐队火起来靠的是大手的话从根上就否定这个角色了。一切的执着努力和坚强都是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那我还说鸡团上来出道就人气拉满，光速武道馆接全国巡演是对前辈团的不尊重呢，pp经历那么多磨难也就好不容易能当个音乐节的陪衬，roselia算是你邦设定实力最强的团，也是一步步走进商业圈子却发现自己不过是井底之蛙，ras想要摆脱传统的商业化走出自己的路结果就是一直在和资本的大手战斗，所以你母鸡卡凭什么上来就能有这么大的成就，你丰川祥子的音乐能力再强能完爆ykn和chuchu吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plusSharp  
+##### 16410#       发表于 2025-2-1 22:52
+
+大手是客观存在的，祥子完全可以走“拒绝大手，理解大手，成为大手”的路线，本来炸团主要2个原因：1.控制不住成员（尤其是若麦）2.睦病了 成为大手就能解决1，而睦的病不说彻底康复至少会好转
+
+*****
+
+####  一心而用  
+##### 16411#       发表于 2025-2-1 22:53
+
+[@纯田まな](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572110) 
+<img src="https://p.sda1.dev/21/18c8490b3f41f822bf3f90c62d23aa3e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4ace5109a62d2cf75bfa85b3cf3d7b47/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/22d0776e716f46b907c77696a8654015/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 16412#       发表于 2025-2-1 22:54
+
+楼友有点太极端了
+
+大手最重要的是给资源，给曝光，火不火得起来一命二运三风水，接下来就是个人的奋斗和历史的进程，
+
+强推之耻在现实要多少有多少
+
+怎么一下子就滑坡到大祥老师没能力呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
