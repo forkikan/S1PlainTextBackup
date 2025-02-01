@@ -1770,3 +1770,85 @@ PV里的红光电视画面还没回收，说明第四集不止那点东西，看
 
 果然鸡将成为不朽神作，鸡黑有难了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 16447#       发表于 2025-2-2 00:17
+
+第5集新加入的一大群staff和违约金彻底印证了解散就是烂炒，商业乐队的现实味彻底冲散了邦邦世界观的认知魔法
+解散的最直接原因牢莫不会吉他这件事到福冈公演前一天才暴露，合着你们乐队是既不需要合练也不需要彩排的，不是过家家乐队是什么
+
+*****
+
+####  DeltaStriker  
+##### 16448#       发表于 2025-2-2 00:17
+
+live的话 下集可以有一首mygo feat 祥子/木头人
+然后10集可能有重组live 12/13集重组后第一次/mygo vs am
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 16449#       发表于 2025-2-2 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330195&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-1 23:35</a>
+
+niconico前五话好评率和观看人数
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1 ...</blockquote>
+我看NGA图 观看人数也涨到3700了 
+
+*****
+
+####  凉良  
+##### 16450#       发表于 2025-2-2 00:19
+
+家人们 烂炒真的有用 
+
+*****
+
+####  DeltaStriker  
+##### 16451#       发表于 2025-2-2 00:19
+
+不需要合练这回事 mygo就给你淡化过了（ 记得有回就是没排练直接上的 只能说编剧给你上数值了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 16452#       发表于 2025-2-2 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330431&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-2 00:15</a>
+如果把第四集当成鸡团黑刀之夜，那么现在鸡团剩下8集要讲mygo10-11集的内容，最大的问题是感觉没啥时间live ...</blockquote>
+黑色生日肯定会有的，毕竟铺垫了那么久
+
+之后加入音乐叙事，多搞几场live也是可能的，然后mygo单独或者两团对邦也许会有 ，但估计放三次元的概率很大<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 16453#       发表于 2025-2-2 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330445&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-2 00:17</a>
+
+第5集新加入的一大群staff和违约金彻底印证了解散就是烂炒，商业乐队的现实味彻底冲散了邦邦世界观的认知魔 ...</blockquote>
+第四话祥子不就说不合练太散漫了吗。  mortis还用小技巧拖延祥子作曲进度。
+
+
+*****
+
+####  DeltaStriker  
+##### 16454#       发表于 2025-2-2 00:22
+
+mygo开live的逻辑是剧情到了水到渠成的QTE am剧情没到那步呢 多塞live人物关系够时间写了吗（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

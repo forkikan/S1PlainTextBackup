@@ -270,3 +270,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">初见骑神战 不好的回忆全都涌上来了（不过这次噩梦骑神战好像难度不高
 
+
+*****
+
+####  ravend233  
+##### 7554#       发表于 2025-2-2 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330270&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-1 23:49</a>
+初见骑神战 不好的回忆全都涌上来了（不过这次噩梦骑神战好像难度不高</blockquote>
+魔装鬼套皮高达战罢了，会开阵就没啥难度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

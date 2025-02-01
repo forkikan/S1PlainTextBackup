@@ -14167,3 +14167,11 @@ edge么，开着b站吗，n卡吗，开着hdr吗——可能是win11的问题。
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 天下无人不通共
 
+
+*****
+
+####  KioShiMa  
+##### 1082#       发表于 2025-2-2 00:22
+
+openrouter的免费版也用不了，Too many requests
+

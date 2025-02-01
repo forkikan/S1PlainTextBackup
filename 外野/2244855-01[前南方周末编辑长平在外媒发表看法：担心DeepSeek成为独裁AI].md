@@ -500,3 +500,24 @@ D导就是个照妖镜，能照出各路英雄好汉，也能照出各种牛鬼�
 
 想把他网线或电源拔了...
 
+
+*****
+
+####  中国科学院  
+##### 54#       发表于 2025-2-2 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326086&amp;ptid=2244855" target="_blank">露综bot一号机 发表于 2025-2-1 11:41</a>
+
+这又是哪条野狗</blockquote>
+南方系骗辑张平，十年前润出去的，在DW和其他一些媒体有专栏，属于计划单列狗了
+
+*****
+
+####  中国科学院  
+##### 55#       发表于 2025-2-2 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329500&amp;ptid=2244855" target="_blank">绕指流光 发表于 2025-2-1 21:47</a>
+
+磁吸太后最新力作</blockquote>
+AI都比不过这些殖蛆因为AI要讲逻辑
+
