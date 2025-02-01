@@ -13722,3 +13722,39 @@ mtm没饿死外加soyo想来就来不就说明家里面有佣人供吃供穿吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wwwttth  
+##### 16019#       发表于 2025-2-1 09:38
+
+<blockquote>看穿一切的鱼 发表于 2025-2-1 08:08
+除了大祥真的要重组ccc，我想不到比大喵渡大祥更大的雷点了。
+
+—— 来自 S1Fun ...</blockquote>
+但是给的预告和逻辑上来看，如果要有人拉大祥就喵梦可能性最大了，再往下是睦头人先靠别人拉回来再来拉祥子这种有点变态的思路，对祥的人设太灾难了。
+
+
+*****
+
+####  烂片雷达  
+##### 16020#       发表于 2025-2-1 09:45
+
+ 本帖最后由 烂片雷达 于 2025-2-1 09:46 编辑 
+
+初华说不要讨厌我，那么初华肯定做了对不起祥子的事
+祥子能在片场独断商业乐队弄得跟草台一样合同不签说解散就解散，说明经纪公司和丰川家有很深的联系
+那么答案很明显了，sumimi和avemujica的经纪公司是丰川集团的财产，大家都以为初华给祥子介绍了经纪公司出了很大力，事实是初华只是充当了中间人的角色，丰川集团需要avemujica从建立到解散的这么一个过程，初华就是安插在祥子身边的一颗钉子
+初华怒颜就是与丰川集团决裂，即使被要挟解散sumimi也不想再助纣为虐要站在祥子身边，我哭死，就是苦了mana遭受无妄之灾<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 16021#       发表于 2025-2-1 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325426&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-1 09:34</a>
+最不自然的地方还是要引入“丰川集团”却只强调了有钱而没明示地位，灯知道了祥子的背景却毫无顾忌，还是像 ...</blockquote>
+灯又不是之前没见过祥子家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子家里面爱音还在东张西望，灯已经轻车熟路地走到钢琴那去了，这就说明灯已经对祥子家很熟了，只是不知道祥子之前选择离家，在她眼里祥子一直都还是大小姐啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
