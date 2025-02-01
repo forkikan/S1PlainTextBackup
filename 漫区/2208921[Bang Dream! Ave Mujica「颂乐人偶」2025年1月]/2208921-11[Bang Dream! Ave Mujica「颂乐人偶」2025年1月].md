@@ -16009,3 +16009,77 @@ BangDream 劇場版 逆襲的Ob一串字母
 
 话说最后祥子在灯的便利贴上到底写了啥，b站字幕是“不要再来了”被说翻译的很有问题？
 
+
+*****
+
+####  lunaticfool  
+##### 16217#       发表于 2025-2-1 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327847&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-1 16:57</a>
+
+这几天提到祥子夏亚说的越来越多了
+
+有崇高理想、双标、吃瘪役、过刚易折、自我毁灭倾向、回避型依恋、缺母 ...</blockquote>
+还都是面具男（女)
+
+*****
+
+####  杂灰  
+##### 16218#       发表于 2025-2-1 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327942&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-2-1 17:16</a>
+话说最后祥子在灯的便利贴上到底写了啥，b站字幕是“不要再来了”被说翻译的很有问题？ ...</blockquote>
+もやめで
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 16219#       发表于 2025-2-1 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327661&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-1 16:19</a>
+也就是说 最后可能剩下的是会弹吉他 保留木头人记忆的Mortis 而非木头人“复活”
+
+—— 来自 鹅球 v3.3.96- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可以这么完，不怕寄刀片的话
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  玖羽  
+##### 16220#       发表于 2025-2-1 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327889&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 17:05</a>
+
+只需要证实祥爹是被老东西设套赔掉168亿赶出家，然后弄个老登为了逼孙女回家设计搞掉乐队就可以给角色足 ...</blockquote>
+168亿和赶出家是两回事，“被诈骗”亏损168亿的确不用还，但不排除定治以此为借口剥夺清告的财产
+
+（例如：你要拿出全部资产作为负责的诚意，你那点资产能抵消168亿亏损算是我给你开恩了）
+
+只有这样才能解释为什么清告在短短几天内从大企业高管丝滑切换到赤贫酒鬼
+
+从反抗动机这方面来说，炸团原因没那么单纯的确是显而易见的强大动机，TGW现在就拿出来，后面是肯定要出问题的
+
+*****
+
+####  结衣小比取  
+##### 16221#       发表于 2025-2-1 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327942&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-2-1 17:16</a>
+
+话说最后祥子在灯的便利贴上到底写了啥，b站字幕是“不要再来了”被说翻译的很有问题？ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/01/172450bzrrq6z9p66u79m8.jpg" referrerpolicy="no-referrer">
+
+<strong>もうやめて.jpg</strong> (172.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 17:24 上传
+
+“もうやめて”
+
+B站是“不要再来了”了吧，问题不大
+

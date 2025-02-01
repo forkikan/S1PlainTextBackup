@@ -13345,3 +13345,79 @@ API没有system prompt，正确用法就是不加system prompt
 问下 你的chatbox 是自己设置一个openai 兼容 还是直接改了deepseek的配置？</blockquote>
 [https://docs.siliconflow.cn/usercases/use-siliconcloud-in-chatbox](https://docs.siliconflow.cn/usercases/use-siliconcloud-in-chatbox) 我用siliconflow给的设置
 
+
+*****
+
+####  linc555  
+##### 1023#       发表于 2025-2-1 17:18
+
+有大佬能告诉我开源的内容包含网页版的调用么
+
+怎么让多轮对话关键信息不丢失。怎么保证关键提示词的高优先级，我对这些比较感兴趣
+
+本地部署对我来说没啥价值，怎么让api调用有更好的体更有意义
+
+*****
+
+####  波克隆斯卡娅  
+##### 1024#       发表于 2025-2-1 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327888&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-2-1 17:05</a>
+
+API没有system prompt，正确用法就是不加system prompt</blockquote>
+原来不加system prompt就行么，我这画蛇添足了，刚刚网页试了不加果然也可以生成
+
+*****
+
+####  zerona  
+##### 1025#       发表于 2025-2-1 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327945&amp;ptid=2243718" target="_blank">波克隆斯卡娅 发表于 2025-2-1 17:16</a>
+
+https://docs.siliconflow.cn/usercases/use-siliconcloud-in-chatbox 我用siliconflow给的设置</blockquote>
+谢了。你得模型的名称用的是什么？ 我添加的 deepseek-reasoner 不行。
+
+*****
+
+####  moeblack  
+##### 1026#         楼主| 发表于 2025-2-1 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327888&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-2-1 17:05</a>
+
+API没有system prompt，正确用法就是不加system prompt</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/01/172125pny7ontljtghgfog.png" referrerpolicy="no-referrer">
+
+<strong>c8b2948a-8182-47ec-a450-6bf710c6fb63.png</strong> (650.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 17:21 上传
+
+我倒是找到了这个，也就是强制输出，他们也发现了这一点 和我之前说的一样
+
+
+*****
+
+####  moeblack  
+##### 1027#         楼主| 发表于 2025-2-1 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327966&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 17:21</a>
+
+谢了。你得模型的名称用的是什么？ 我添加的 deepseek-reasoner 不行。</blockquote>
+硅基流动要用
+
+deepseek-ai/DeepSeek-R1
+
+*****
+
+####  zerona  
+##### 1028#       发表于 2025-2-1 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327968&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 17:21</a>
+
+我倒是找到了这个，也就是强制输出，他们也发现了这一点 和我之前说的一样
+
+ ...</blockquote>
+他说的这个\n 是啥意思？ 需要咱们在提供数据的时候先写个这个？
+
