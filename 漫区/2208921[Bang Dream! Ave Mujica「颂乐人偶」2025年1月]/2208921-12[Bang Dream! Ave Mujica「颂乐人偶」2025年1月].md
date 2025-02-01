@@ -677,3 +677,110 @@ sumimi也不需要解散吧
 
 要是真的搞个丰川老登财团大手当反派那才叫烂完了，认真写财团的动画有多变态不会没人见识过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 16344#       发表于 2025-2-1 21:27
+
+初华有再多假药，对祥子的感情都不是假的。
+<img src="https://p.sda1.dev/21/20c16ca0f6b02d4aa4a29ec67944d4a3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/152961c2e574b45e2a6ae189edacb0fc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hol_effect  
+##### 16345#       发表于 2025-2-1 21:29
+
+ 本帖最后由 hol_effect 于 2025-2-1 21:30 编辑 
+
+也不需要战财团吧，只要得到老登的认可就可以了，从地下乐队做起，编剧的大手该发力了，面具该戴回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 16346#       发表于 2025-2-1 21:30
+
+狐狸和狗亦有相似之处，只能说有人错把狐狸当成狗不是没道理的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 16347#       发表于 2025-2-1 21:31
+
+不需要和财阀对抗，因为有财阀的代理人初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要和初华掰头就行了
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  花スープ  
+##### 16348#       发表于 2025-2-1 21:32
+
+什么时候开始，圣初华已经变成传奇耐💊王了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 16349#       发表于 2025-2-1 21:32
+
+初华有对不起祥子的隐情最大的好处是祥子能抵一笔人情债，当个yyk役也行吧
+
+
+*****
+
+####  ml1642879  
+##### 16350#       发表于 2025-2-1 21:35
+
+原来初华的正式编制是黑衣人（便服Ver.）吗
+
+*****
+
+####  烂片雷达  
+##### 16351#       发表于 2025-2-1 21:35
+
+所有被祥子欠了人情债的都不会和祥子有好结果，只有和祥子互不相欠的才会成为一生的伙伴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 16352#       发表于 2025-2-1 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">木子米父母知道女儿有精神分裂，于是献计老登，然后老登找来内鬼
+
+*****
+
+####  玖羽  
+##### 16353#       发表于 2025-2-1 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329180&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-1 21:07</a>
+
+一內初華
+
+二內海鈴
+
+三內大莫</blockquote>
+Mortis跟背叛扯不上关系，说复仇者还差不多，再说其他人谁知道Mortis存在
+
+喵梦背叛者这个是很容易想到的，甚至容易得有点俗，解散之后喵梦得到的资源确实有点多得不正常
+
+我现在又要把我的森美奈美假药拿出来，我之前以为喵梦的反转是为了队友主动拒绝森美奈美给的资源，现在看来森美奈美根本不算什么，拒绝丰川家的资源比这个有力多了
+
+但是核心依然不变，我还是猜测这个角色的人物弧光完成的方式是<strong>喵梦为了队友主动“自毁前程”</strong>（以世俗标准来看）
+
+喵梦这一话找的经纪人姓袋小路（死胡同），可以说暗示得很明显了，她后面必须认识到现在这种生活对她来说是“袋小路”
+
+<img src="https://img.saraba1st.com/forum/202502/01/213357wmwmbuxwgg0zkwxn.jpg" referrerpolicy="no-referrer">
+
+<strong>0000.jpg</strong> (44.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 21:33 上传
+
+（千万不要是丰川家毁约把喵梦一脚踢开喵梦才悔悟，那样才真完蛋了）
+

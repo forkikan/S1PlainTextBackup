@@ -295,3 +295,12 @@
 
 没抽伯爵...这奏2的伏笔原来在伯爵的2个幕间里就埋下了啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 16204#       发表于 2025-2-1 21:30
+
+还是就加了1点cost<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就那样了
+

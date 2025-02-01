@@ -13739,3 +13739,22 @@ https://cloud.siliconflow.cn/i/dE7Rl30G
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 求互助，很兴奋的注册了之后才发现用坛友的码有钱
 
+
+*****
+
+####  KioShiMa  
+##### 1049#       发表于 2025-2-1 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329048&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 20:46</a>
+模型设置的对吗？</blockquote>
+解决了，感谢
+
+*****
+
+####  lhh_ah  
+##### 1050#       发表于 2025-2-1 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我硅基流动的用一会网页就崩溃了，本家不会。用V3不用R1也一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
