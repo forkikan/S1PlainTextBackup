@@ -674,3 +674,41 @@ ds导gguf进ollama，也能CPU跑推理啊，就是 ...</blockquote>
 对，估算了一下捡垃圾2万多元就够了，功耗不到1kw，总内存带宽能到200G，很有可能跑到10token/s ...</blockquote>
 个人家用两万块正常主机配置的显卡跑不到10tps吗
 
+
+*****
+
+####  orecheng  
+##### 66#       发表于 2025-2-1 14:21
+
+我觉得最大的影响是，AMD, Intel 不用去开发自家的类似cuda的生态了，把省下的钱无脑堆显存就能颠覆Nvidia了，比如1T显存的显卡卖1万USD
+
+*****
+
+####  宵待草  
+##### 67#       发表于 2025-2-1 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325800&amp;ptid=2244823" target="_blank">ななひら 发表于 2025-2-1 10:58</a>
+
+感觉大家都忽略了一个问题，除了参数本身要占内存，加大上下文长度也要占很多内存。2k的上下文干不了什么活 ...</blockquote>
+MLA 用的内存倒是真的不多，每个 token 大概也就 576*2*60*sizeof(dtype)。
+
+不过 2t/s 应该是按照短上下文来算的，计算成本会随上下文长短线性增长，存得下也算不过来
+
+*****
+
+####  dulun59  
+##### 68#       发表于 2025-2-1 14:22
+
+想要跑得快 跑得好 目前还是得用黄狗的卡 并且也还是得用cuda
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qratosones1337  
+##### 69#       发表于 2025-2-1 14:25
+
+华为云公众号发了，硅基流动上架了昇腾推理的R1和V3
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

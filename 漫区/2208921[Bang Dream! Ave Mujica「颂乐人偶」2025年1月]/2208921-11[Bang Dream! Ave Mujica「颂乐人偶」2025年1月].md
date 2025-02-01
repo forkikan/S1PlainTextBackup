@@ -15095,3 +15095,99 @@ mortis听到消息后，立刻赶来医院探望，握着她的手说道:姐姐�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  borrowface  
+##### 16136#       发表于 2025-2-1 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327008&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-1 14:11</a>
+是我第五喜欢的在商业企划里找革命叙事的环节</blockquote>
+网友能一句话富家千金闹麻我当然也能上纲上线<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  烂片雷达  
+##### 16137#       发表于 2025-2-1 14:18
+
+素世从外面给爱音带了个女儿回来，正好和猫猫组成一家三口带猫组合，家庭圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iiiiiiiiii  
+##### 16138#       发表于 2025-2-1 14:20
+
+<blockquote>天空塔书记官 发表于 2025-2-1 14:13
+要革命，也得先和家族决裂再说
+
+急，很急，急得很啊</blockquote>
+这不板上钉钉嘛
+
+*****
+
+####  sauron.j  
+##### 16139#       发表于 2025-2-1 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325609&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-1 10:22</a>
+
+剩下三个也没关系吧，一个雇佣兵，一个连像祥子都找不到的大金毛，大喵更是从头到尾都认是睦演技，可能睦 ...</blockquote>
+让睦回来是吵架时说的，还没散。解散后心态崩了才不找
+
+酒店里和第5集是两个阶段的状态
+
+*****
+
+####  江口夕  
+##### 16140#       发表于 2025-2-1 14:22
+
+cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月的回忆。所以先别滑坡了。
+动画里从来没有说这个月大祥没去过，这点等实锤了再滑坡不迟。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  晓色暮云  
+##### 16141#       发表于 2025-2-1 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327068&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 14:22</a>
+cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月的回忆。所以先别滑坡了。
+动画里从来没有说这个 ...</blockquote>
+那这样第五集演出问题太大了，完全没必要后面写这一段回忆
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山ノ内花音  
+##### 16142#       发表于 2025-2-1 14:24
+
+想让睦回来 但不去找墨缇丝 这不是很合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 16143#       发表于 2025-2-1 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327074&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-1 14:22</a>
+那这样第五集演出问题太大了，完全没必要后面写这一段回忆
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">祥子那点破事，mygo藏了13集呢
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 16144#       发表于 2025-2-1 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327053&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-1 14:20</a>
+这不板上钉钉嘛</blockquote>
+所以到底在急什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

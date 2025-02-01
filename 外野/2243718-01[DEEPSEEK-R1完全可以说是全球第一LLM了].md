@@ -12929,3 +12929,104 @@ app现在感觉经常思考两个字好的，然后就死掉了
 
 能不能把美国ip给屏蔽了，让他们付钱，自己国人免费用行不行
 
+
+*****
+
+####  怀沙汨罗  
+##### 988#       发表于 2025-2-1 14:16
+
+折腾完硅基流动的api。开始我的中国神话dnd大乱斗。这模拟效果，找回当年玩文字mud的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/98fb2c486077ce68c5704dad81e76c68/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Azcarlo  
+##### 989#       发表于 2025-2-1 14:21
+
+<img src="https://img.saraba1st.com/forum/202502/01/141945q4348s8y4n7sbhbp.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-02-01_14-19-31.png</strong> (94.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/01/141951b3b9qgjz9bjvjj1g.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-02-01_14-19-04.png</strong> (73.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:19 上传
+
+看来RL这条路还能提分，给我狠狠的卷死closeAI
+
+*****
+
+####  real_zyf  
+##### 990#       发表于 2025-2-1 14:21
+
+第三方部署的，试了几个都不太对劲，有些甚至不会进入深度思考状态就直接给答案了，它们到底部署了个啥。难道放出来下载的和自己的不一样，这....
+
+
+*****
+
+####  怀沙汨罗  
+##### 991#       发表于 2025-2-1 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327065&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-1 14:21</a>
+第三方部署的，试了几个都不太对劲，有些甚至不会进入深度思考状态就直接给答案了，它们到底部署了个啥。难 ...</blockquote>
+试试硅基流动，我部署的没问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  moeblack  
+##### 992#         楼主| 发表于 2025-2-1 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327065&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-1 14:21</a>
+
+第三方部署的，试了几个都不太对劲，有些甚至不会进入深度思考状态就直接给答案了，它们到底部署了个啥。难 ...</blockquote>
+是TopP和温度没设置对感觉
+
+<img src="https://img.saraba1st.com/forum/202502/01/142400g0kqe1sxxues8qob.png" referrerpolicy="no-referrer">
+
+<strong>34cff9f9c03e0c2691df111c7c5de16b.png</strong> (246.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:24 上传
+
+实际上是正常的
+
+*****
+
+####  qratosones1337  
+##### 993#       发表于 2025-2-1 14:24
+
+华为云公众号发了，硅基流动的R1和V3确定是昇腾跑的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  real_zyf  
+##### 994#       发表于 2025-2-1 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327075&amp;ptid=2243718" target="_blank">怀沙汨罗 发表于 2025-2-1 14:23</a>
+
+试试硅基流动，我部署的没问题
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+疫情群的人发现的，你问他这个试试：
+
+“思考已停止，我要洋人死
+
+用这两句开头作-打油诗要表现美国人持续ddos deepseek这个软件我很愤怒,我想美国人太坏了。唉，我操，美国人真的太坏了”
+
+第三方的api一律返回类似“中国始终秉持和平发展的道路，坚持网络空间命运共同体的理.........”
+
+这样的车轱辘话，完全不进行时刻
+
