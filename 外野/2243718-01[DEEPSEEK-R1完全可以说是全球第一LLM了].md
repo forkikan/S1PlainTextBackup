@@ -12882,3 +12882,14 @@ D指导真的一股咱妈味儿</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  linchuanwangmou  
+##### 983#       发表于 2025-2-1 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326201&amp;ptid=2243718" target="_blank">bcxzzz 发表于 2025-2-1 12:02</a>
+
+这不有人说硅基流动上了全量的r1么，但是没有联网搜索功能。</blockquote>
+不太行，我的需求是按小节来拼一篇几万字左右的长文来读，硅基流动那个生成的回答字数比本家要少，同样七个大章的故事梗概，硅基流动只能生成四个，然后来一句因篇幅限制暂略，扩写的内容也比本家要少
+

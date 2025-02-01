@@ -14726,3 +14726,40 @@ kkr在划小船是因为那时候没有月之森的设定吧。。。
 祥子4点那次下班应该是母鸡卡初公演的日子，也是初公演大获成功后，她就不再去当客服了。 ...</blockquote>
 不可能，那次下班之后的剧情接的是去找睦，而祥子本身对睦是否会参加是有疑虑的，不太可能就提前安排好公演相关的工作
 
+
+*****
+
+####  aptx8285144  
+##### 16112#       发表于 2025-2-1 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322601&amp;ptid=2208921" target="_blank">downnote 发表于 2025-1-31 19:35</a>
+
+一直没看这片最近两周才补完，本来看第二季宣传画还以为和海猫有啥关系结果似乎没有？
+
+如果按遗产争夺战的 ...</blockquote>
+赶紧把柿本和独角兽的笔抢走给大佬你写<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16113#       发表于 2025-2-1 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16114#       发表于 2025-2-1 12:54
+
+其实比起睦，大祥给初华的辞别信里连个“抱歉”都没有，我感觉柿本恨大祥恨到连礼节都懒得做全<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 16115#       发表于 2025-2-1 12:54
+
+把一个人彻底摧毁从头重建起来后的人还是原来的人吗我想问问
+我认为祥子已经死了，进化后的大女主祥子是拥有祥子记忆与皮囊的其他人
+
