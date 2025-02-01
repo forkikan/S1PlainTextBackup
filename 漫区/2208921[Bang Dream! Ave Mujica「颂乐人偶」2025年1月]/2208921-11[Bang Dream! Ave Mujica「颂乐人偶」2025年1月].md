@@ -13654,3 +13654,71 @@ MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  look900822  
+##### 16013#       发表于 2025-2-1 09:28
+
+<blockquote>Yukino-Yukino 发表于 2025-2-1 09:21
+如果大莫老师只是把自己关了一周还能用忙来解释，但这都一个月了真的一个月都没时间管管吗。而且前面请假 ...</blockquote>
+mtm没饿死外加soyo想来就来不就说明家里面有佣人供吃供穿吗
+
+*****
+
+####  zhzij111  
+##### 16014#       发表于 2025-2-1 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325378&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-1 09:21</a>
+如果大莫老师只是把自己关了一周还能用忙来解释，但这都一个月了真的一个月都没时间管管吗。而且前面请假 ...</blockquote>
+除了墨提斯好像没人把精神病当回事，可能她爹妈也没当回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plok201  
+##### 16015#       发表于 2025-2-1 09:32
+
+下一集肯定救不回来，最快第七集，扣除最后一集饺子和live
+
+也就是说剩下6集的时间里算上牢莫救6个人，GO团很鸡贼的弄了猫来减少工作量，A团可没有这位置，你这5个人闹那么大，真的不去写的话等着风评爆炸
+
+你说5个人最后全员悔改，哭一场大的来洗白收尾行不行，可以是可以，也不是没见过吧，问题是节奏可能全崩，你加速1.5倍演苦情戏很容易变成搞笑剧，就像之前酒店大战，我见不少观众都被看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 16016#       发表于 2025-2-1 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322394&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-1-31 19:02</a>
+不是哥们，小祥组的是商业乐队，然后她是这个乐队的组织者兼管理者，这个身份是要担起责任运营好乐队的。 ...</blockquote>
+不过家家的话更不能和大喵老师闹掰了，把大喵老师要的给了也没乱七八糟的了，
+搞搞团建开几个庆功宴就不会发生的事，
+和努力能力强的队友闹掰了别人怎么看?
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  plusSharp  
+##### 16017#       发表于 2025-2-1 09:34
+
+最不自然的地方还是要引入“丰川集团”却只强调了有钱而没明示地位，灯知道了祥子的背景却毫无顾忌，还是像往常一样纸条“骚扰”。如果灯重见祥子能有《故乡》里的闰土见迅哥喊出“老爷”，演出那种“已经隔了一层厚障壁”的效果，那祥子回家才能和“大手”真正的相称
+
+*****
+
+####  swessia  
+##### 16018#       发表于 2025-2-1 09:36
+
+睦这一个月没人管也是编剧的大手啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+唉这集A part要演僵尸小祥，那不可能去管睦
+唉go团要入场，那只能让soyo去，你看我前面都铺垫了多么牛逼
+唉这里c part要复合母鸡卡恐怖的世界观，要搞的吓人点
+
+结果就是现在显得母鸡卡剩下四人和睦父母多么无情<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下集你时间线回车下我都觉得制作组心善
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
