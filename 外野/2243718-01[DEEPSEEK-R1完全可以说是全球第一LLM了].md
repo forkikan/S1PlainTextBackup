@@ -13700,3 +13700,14 @@ deepseek-ai/DeepSeek-R1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 1045#         楼主| 发表于 2025-2-1 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328730&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-1 19:55</a>
+
+硅基流动按文档设置了R1，还是显示model does not exist</blockquote>
+模型设置的对吗？
+
