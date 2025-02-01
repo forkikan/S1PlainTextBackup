@@ -16492,3 +16492,27 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 凭大喵老师是编剧那看不见的大手的白手套啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 大喵老师纯纯的编剧工具人，编剧需要一个团灭导火索，大喵老师就来摘面具了，至于后面火药桶爆炸你明显不能把所有锅甩点火的键帽一个人头上嘛，炸药桶不排除炸不是早晚的结局嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qlipho  
+##### 16255#       发表于 2025-2-1 18:40
+
+谈喵梦的时候就是编剧的大手了，真好用
+
+
+*****
+
+####  江口夕  
+##### 16256#       发表于 2025-2-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328323&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-1 18:34</a>
+凭大喵老师是编剧那看不见的大手的白手套啊
+大喵老师纯纯的编剧工具人，编剧需要一个团灭导火索，大喵老 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大猫自己就是炸药桶。
+老实说，大祥开始预期也就是个职场关系，职场没打成一片的多了去了，也没见哪个公司因为这个倒闭，大家规章办事能有个屁的事情。
+用现实的话来讲，没开掉大猫才是唯一的失败。只有4个人不说坚如磐石吧，坚持个几年绝对没问题。
+大猫那诡异的逻辑就是编剧大手本身。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
