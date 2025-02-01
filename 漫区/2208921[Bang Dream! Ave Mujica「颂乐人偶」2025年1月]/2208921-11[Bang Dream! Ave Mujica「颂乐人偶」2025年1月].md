@@ -13488,3 +13488,19 @@ MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的�
 所以我觉得后期变成大烂片的可能很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 你看目前除了大喵老师还在练A团的鼓，其他人有再考虑复活A团嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yy19  
+##### 15997#       发表于 2025-2-1 08:34
+
+<blockquote>akiomn 发表于 2025-1-31 22:34
+借用隔壁泥楼的话，编剧对于前五集的祥子已经是到了过分的地步了，所以才会对接下来的剧情担忧
+
+回头来审视 ...</blockquote>
++1.
+
+个人对接下来发展的直觉：如果还是走修正（祥子）—包饺子的经典老路，那这片就不是烂完了的问题而是（小）丑完了。如果staff真有胆量另辟蹊径（譬如祥子真暴君化，甚至搞少女乐队世界版的蚀之刻，然后带4个人偶使徒登台演唱）……且不说WSD脑子有没有抽，就前面十几集的演出表现，你这staff有这本事搞这么大吗？
+
+一言以蔽之：这片啊，（至少是）快•完•咯LoL
+

@@ -1779,3 +1779,13 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 
 我就是试一下，还真扣款了（
 
+
+*****
+
+####  nanonya2  
+##### 181#       发表于 2025-2-1 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324746&amp;ptid=2244683" target="_blank">wfhtony 发表于 2025-2-1 01:05</a>
+从目前美区锁PayPal地区的现状（仅美区PP可用）看，届时日区eShop在锁区后走日区PP支付（绑日本境外发行的 ...</blockquote>
+日区PP需要日本电话号码，日本电话号码需要是居民才能申请
+

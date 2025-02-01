@@ -429,3 +429,11 @@ AMD Yes！
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Vacuolar  
+##### 43#       发表于 2025-2-1 08:30
+
+GPU对于跑ai从来不是必须的，只是它跑最快，对于ai这种需要反复跑反复调的东西，速度很关键
+
