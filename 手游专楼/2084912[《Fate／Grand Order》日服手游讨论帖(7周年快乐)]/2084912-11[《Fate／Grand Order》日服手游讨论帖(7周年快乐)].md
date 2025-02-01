@@ -345,3 +345,11 @@
 
 还有十个好友位呢 
 
+
+*****
+
+####  森兰丸  
+##### 16208#       发表于 2025-2-1 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">兽蕾不是打所有EX阶都是红字么....怎么打这次的回忆关卡是蓝字....是我记错了还是啥
+

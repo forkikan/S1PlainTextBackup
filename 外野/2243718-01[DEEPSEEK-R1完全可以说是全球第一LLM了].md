@@ -14011,3 +14011,13 @@ X) 向所有时间线广播反向求婚宣言
 
 不敢瑟瑟是什么意思，生成nsfw直接来电话吗
 
+
+*****
+
+####  spaceblue  
+##### 1068#       发表于 2025-2-1 23:13
+
+试了一下，网页版的DS-R1不支持上传文档，API的速度还行。
+
+我的邀请链接：[https://cloud.siliconflow.cn/i/gxYbtZtY](https://cloud.siliconflow.cn/i/gxYbtZtY)
+

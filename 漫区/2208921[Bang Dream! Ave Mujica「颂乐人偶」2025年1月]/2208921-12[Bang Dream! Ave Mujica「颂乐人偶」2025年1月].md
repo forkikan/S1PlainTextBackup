@@ -1437,3 +1437,78 @@ pp狗槽的经济公司、ykn父亲前队友担任制作人的音乐公司都是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hol_effect  
+##### 16416#       发表于 2025-2-1 23:07
+
+二极管闹够了没，订武道馆是大手，填武道馆是本事，强推之耻是因为数据撑不起推力，你鸡炸之前好歹也是个官推加民推吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 16417#       发表于 2025-2-1 23:08
+
+<blockquote>厉飞雨 发表于 2025-2-1 22:54
+楼友有点太极端了
+
+大手最重要的是给资源，给曝光，火不火得起来一命二运三风水，接下来就是个人的奋斗和历 ...</blockquote>
+粉色奶龙员工说
+
+粉色奶龙能熟练的唱广告曲
+
+粉色奶龙能随意上大小姐的车
+
+其实粉色奶龙才是丰川家隐之继承人
+
+*****
+
+####  一心而用  
+##### 16418#       发表于 2025-2-1 23:09
+
+ 本帖最后由 一心而用 于 2025-2-1 23:10 编辑 
+
+[https://b23.tv/wYbuYvz](https://b23.tv/wYbuYvz)
+<img src="https://p.sda1.dev/21/eaf3f5bdcbe8c5233284c7d8ca808aa6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8d7e2ef83bda9756787bc30a652c8509/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c7550cd8975f90e680f2a27319b3523c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 16419#       发表于 2025-2-1 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329640&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 22:06</a>
+
+反过来推理，喵梦现在的艺人生涯看起来蒸蒸日上，已知喵梦最后肯定要回去打鼓，请问怎么完成这个转变
+
+如 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">其实大喵老师现在的综艺通告艺人工作（就是坐在一堆同类艺人里面陪笑的），相对网红来说是上升，但是相对于人气乐队成员来说其实是滑落的，当然乐队里打鼓的算不算人气乐队成员就是另一回事了
+
+
+*****
+
+####  江口夕  
+##### 16420#       发表于 2025-2-1 23:14
+
+ 本帖最后由 江口夕 于 2025-2-1 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330016&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-1 23:04</a>
+所以是谁在否定祥子的能力呢，是我们这些恶臭遗老还是祥厨 ?
+
+除了回旋镖、抽陀螺、车喵梦三件套就没别的 ...</blockquote>
+幽默，腾讯比老登有钱多了，怎么也投资失败，项目失败这么多。有钱万能省省吧。
+有能力的制作人在现实世界里一样通用。何况这种一手包办这么多项业务的，要不要分析下大祥担任了哪几项职能，在现实里工资应该开多少？
+光一个人顶一堆staff，脚本，作曲，本人还是成员之一光工资开一个月少说几十万上百都不过分。所以才说编剧在女女关系之外哪哪都不行，非常潦草都合
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 16421#       发表于 2025-2-1 23:16
+
+不过喵梦上节目说自己是架子鼓和美妆视频都发过，说的是在成为网红之前还是网红之后，祥子是和楚平方找令王那一样互联网搜索找喵梦的呢，还是先注意到小网红然后看到架子鼓视频的呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
