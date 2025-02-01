@@ -16516,3 +16516,48 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  哈曼的YY  
+##### 16257#       发表于 2025-2-1 18:52
+
+为什么提到c团就全是害了人
+
+灯能呐喊出心声
+
+爽女士能获得一时的温暖
+
+立希能认识灯
+
+这些也是存在的啊 不能因为祥老师不愿坦白家事和队友吵架退出就抹消吧
+
+*****
+
+####  595505568  
+##### 16258#       发表于 2025-2-1 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328273&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-1 18:24</a>
+
+灯祥就是明确的鸡狗底层逻辑，从头到尾都是堆料最多的一对，觉得有异味也没办法，可能官方觉得这个才是主 ...</blockquote>
+无所谓,等邦多礼因为最狂底层逻辑半身 灯祥禁招把人全恶心走了你们美帝粉自己玩去吧。
+
+*****
+
+####  安娜导函数  
+##### 16259#       发表于 2025-2-1 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328362&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 18:45</a>
+大猫自己就是炸药桶。
+老实说，大祥开始预期也就是个职场关系，职场没打成一片的多了去了，也没见哪个公 ...</blockquote>
+没开掉大喵很正常啊，摘面具短期A团内人气爆炸又不是假的，说不定🐘老师想开键帽事务所不同意呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+侧面不更说明🐘老师对乐队并没有她想象中的话语权嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+只不过谁知道队里真有精神病呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 16260#       发表于 2025-2-1 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">自从第四集之后，回看go里的木头人总感觉哪里不习惯
+
