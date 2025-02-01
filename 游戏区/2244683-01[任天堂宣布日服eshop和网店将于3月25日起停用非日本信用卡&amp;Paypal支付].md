@@ -1929,3 +1929,16 @@ KBAC 发表于 2025-2-1 05:14日亚没有任何消费记录的白号，绑国内
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  このママでいい  
+##### 194#       发表于 2025-2-1 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327292&amp;ptid=2244683" target="_blank">黑上シグマ 发表于 2025-2-1 15:01</a>
+你要光用来买虚拟商品那解决方法就是没有
+我用了多年买过各种实体物的日亚号买kindle书买游戏DLC兑换码没 ...</blockquote>
+太可惜了，那以后只能看商家涨价没办法
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
