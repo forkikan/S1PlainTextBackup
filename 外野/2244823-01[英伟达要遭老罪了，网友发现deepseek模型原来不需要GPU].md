@@ -549,3 +549,20 @@ deepaeek以前类似参数的模型cpu跑也是这个速度，deepseek是提升�
 
 反正现在大家刚开始玩还没摸出优化方案，蹲个啥时候能优化到家用nas一样，个人负担得起的定制硬件能家里摆一套玩完整模型跑出10到20tps就算成功
 
+
+*****
+
+####  aimbot  
+##### 55#       发表于 2025-2-1 11:33
+
+我佛，用屁股说话就是比用脑袋说话的牛逼
+
+*****
+
+####  CCauchy  
+##### 56#       发表于 2025-2-1 11:36
+
+傲腾？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -14055,3 +14055,51 @@ bang几季主要是在积累经验，平衡剧情和live的比重，二三季则
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得前几集已经有机械降神的意思了，后面怎么机械降神都不奇怪
 
+
+*****
+
+####  凉良  
+##### 16049#       发表于 2025-2-1 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325936&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-1 11:17</a>
+而且还不能看起来太机械降神</blockquote>
+mujica真的不机械降神么
+
+*****
+
+####  aptx8285144  
+##### 16050#       发表于 2025-2-1 11:25
+
+ 本帖最后由 aptx8285144 于 2025-2-1 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325968&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2025-2-1 11:21</a>
+
+我觉得前几集已经有机械降神的意思了，后面怎么机械降神都不奇怪</blockquote>
+我是感觉一边把制作人，经纪人，公司削的极弱几乎没什么存在感，然后反手却让爷爷出场付掉违约金的操作实在神奇，根本没法细想，一细想全都是漏洞<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  山ノ内花音  
+##### 16051#       发表于 2025-2-1 11:26
+
+感觉重组mujica就是纯纯的没苦硬吃
+
+*****
+
+####  ml1642879  
+##### 16052#       发表于 2025-2-1 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325993&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-1 11:25</a>
+我是感觉一边把制作人，经纪人，公司削的极弱几乎没什么存在感，然后反手却让爷爷出场付掉违约金的操作实 ...</blockquote>
+p就是祥子，马内甲和公司这边都是初华本家，初华好说话，但前面完全不提也是很神秘的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 16053#       发表于 2025-2-1 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我可一直记得莫小姐那句守护睦和睦最喜欢的这个乐队
+
+真是指的母鸡卡我真是气吐了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
