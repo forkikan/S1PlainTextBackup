@@ -14382,3 +14382,97 @@ mygo13集祥子是大概16点就退勤，而AM第五集是21点过了才退勤�
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大喵自己在前面又哈气又挖墙脚，本来就想着单飞，真需要祥子背负人生吗
 
+
+*****
+
+####  刑部姬真可爱  
+##### 16080#       发表于 2025-2-1 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326263&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-1 12:12</a>
+
+还是别太扣细节了，制作组已经放飞了你也不知道想表达啥
+
+—— 来自 S1Fun ...</blockquote>
+也不是扣细节，只是制作组至少是把这个时间**的拍在画面中，至少这种明确的画面能表达一些想法
+
+
+*****
+
+####  aptx8285144  
+##### 16081#       发表于 2025-2-1 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326254&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-1 12:11</a>
+
+mana这样贴心温柔宽宏的mama，我不知道除了感激以外还能表达什么。希望初华不要不知福兮祸所 ...</blockquote>
+我要有个甜甜圈女士得乐开花，也许就不会惦记连告别都不敢的大祥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 16082#       发表于 2025-2-1 12:17
+
+不是，平日和休日的退勤时间没法对比吧，假如是平日16点退勤，我想问问几点放学的，总共干了几分钟就走了？
+
+*****
+
+####  江口夕  
+##### 16083#       发表于 2025-2-1 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我来给你们编个，睦永远回不来了，4人加莫老师组乐队走上救赎之路
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  terry666  
+##### 16084#       发表于 2025-2-1 12:18
+
+<blockquote>Lyzers 发表于 2025-2-1 12:04
+睦还有个大莫老师定版的“喜欢的乐队”，可以圆回来说对母鸡卡有依恋；海初现在信息不够但是这两个人回来没 ...</blockquote>
+被睦演技征服，想跟着睦学习演技
+
+
+*****
+
+####  JustW  
+##### 16085#       发表于 2025-2-1 12:20
+
+而且多排班也是要按劳动法的，一天多排五个小时老板不想活了？
+
+*****
+
+####  yozoraxsx  
+##### 16086#       发表于 2025-2-1 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322390&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-1-31 19:01</a>
+
+细节 美奈美给丰川集团拍过广告
+
+也就是说若叶一家事业的早期都可能是攀附丰川崛起的 ...</blockquote>
+说不定若叶家直接就是丰川分家呢
+
+*****
+
+####  aptx8285144  
+##### 16087#       发表于 2025-2-1 12:22
+
+如果我是初华，重组乐队随意，但是心就不会是大祥的了，当然按照某些假药她也不是祥党<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16088#       发表于 2025-2-1 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326312&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-1 12:20</a>
+
+而且多排班也是要按劳动法的，一天多排五个小时老板不想活了？</blockquote>
+祥子本身就是未成年，牢板敢招进就敢让她多干
+
+*****
+
+####  一心而用  
+##### 16089#       发表于 2025-2-1 12:23
+
+VV表情包虽迟但到。
+<img src="https://p.sda1.dev/21/c9ba7caf47bc004e680eb3f3a6f0d61f/image.jpg" referrerpolicy="no-referrer">
+
