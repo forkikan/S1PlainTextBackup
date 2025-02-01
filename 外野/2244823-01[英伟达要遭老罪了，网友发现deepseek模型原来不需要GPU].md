@@ -437,3 +437,22 @@ AMD Yes！
 
 GPU对于跑ai从来不是必须的，只是它跑最快，对于ai这种需要反复跑反复调的东西，速度很关键
 
+
+*****
+
+####  Evspeed  
+##### 44#       发表于 2025-2-1 08:38
+
+当年不批英伟达收购mellanox感觉很多问题都不会有
+
+*****
+
+####  百猪夜行  
+##### 45#       发表于 2025-2-1 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325050&amp;ptid=2244823" target="_blank">希德尼娅 发表于 2025-2-1 04:54</a>
+32b和70b的输出差别大吗</blockquote>
+差不多，区别不大，都远不如完整在线版的，比如叫它写个七言诗，它们都能理解对仗，但都理解不了平仄关系。32b的好像只能固定输出七言律诗，70b的各种形式都有。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
