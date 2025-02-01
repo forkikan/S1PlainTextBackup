@@ -14795,3 +14795,69 @@ kkr在划小船是因为那时候没有月之森的设定吧。。。
 
 福田夫妇对飞鸟谈不上多喜爱，可以算路上捡的，但是飞鸟从头到尾都没对不起密涅瓦号的众人，奈何开上帝视角是站错了立场。而现在仔细推敲就会感觉柿本（独角兽难说）是真得恨死那个下定决心，装逼，被春日影破防，拼命，不惜伤害前队友而组队的大祥<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 16119#       发表于 2025-2-1 13:07
+
+可别没苦硬吃了。大祥要是能算没哭硬吃那睦更是闹麻中的闹麻，那么优渥的家庭条件你还玉玉？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无限舰制  
+##### 16120#       发表于 2025-2-1 13:08
+
+灯那个电波精神状态你和她讲什么TGW集团她也搞不清楚啊
+
+就知道是朋友的家了
+
+
+*****
+
+####  玖羽  
+##### 16121#       发表于 2025-2-1 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326392&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 12:31</a>
+
+这样搞，肯定不止睦
+
+世上再也没有丰川祥子、若叶睦、三角初华、祐天寺若麦、八幡海铃
+
+只有欧老师、莫老师、多老师、阿老师和梯老师</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/029.png" referrerpolicy="no-referrer"> ：软糯的我已经死了！现在我是遗忘了一切的Oblivionis！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/020.png" referrerpolicy="no-referrer"> ：我的一切皆为谎言！编织虚伪者Doloris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/022.png" referrerpolicy="no-referrer"> ：脸和数字都是为了家人！家人侠Amoris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/003.png" referrerpolicy="no-referrer"> ：我不再恐惧乐队解散！炸团乐子人Timoris！
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/010.png" referrerpolicy="no-referrer"> Mortis：
+
+<img src="https://img.saraba1st.com/forum/202502/01/130835ghl25642g277g3h2.jpg" referrerpolicy="no-referrer">
+
+<strong>6tg.jpg</strong> (273.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:08 上传
+
+*****
+
+####  terry666  
+##### 16122#       发表于 2025-2-1 13:09
+
+都在说种命，有没有可能现在是真飞鸟人设跌倒谷底，然后下集基拉大和出山也玩脱了。
+
+
+*****
+
+####  杂灰  
+##### 16123#       发表于 2025-2-1 13:10
+
+真的是柿本的点子吗，把祥子彻底摧毁到连该关心的人都没法去关心的程度我感觉是大纲上很难动摇的部分，因为后续的剧情必须以这样的祥子来展开
+而且关系如此亲密的人之间存在如此冷漠的时刻反而更接近独角兽xp
+
