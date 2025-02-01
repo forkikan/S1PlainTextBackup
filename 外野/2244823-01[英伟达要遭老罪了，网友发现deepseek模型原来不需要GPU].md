@@ -636,3 +636,41 @@ PCIE5.0 4x的SSD，平均带宽只有10GB/s，如果全部放在服务器多通�
 从个人角度还是很贵，但是从小公司角度也就是一张半rt ...</blockquote>
 对，估算了一下捡垃圾2万多元就够了，功耗不到1kw，总内存带宽能到200G，很有可能跑到10token/s
 
+
+*****
+
+####  masy  
+##### 63#       发表于 2025-2-1 14:07
+
+这配置用来训练简直灾难，跑10年能训练出现在的deepseek-r1吗？
+
+ds导gguf进ollama，也能CPU跑推理啊，就是这输出速度挺感人。
+
+当下的方案还是没法推翻老黄的GPU，毕竟内部还有tensor core和别的支持高速运算的核心硬件在GPU里面。
+
+
+*****
+
+####  sellboy  
+##### 64#       发表于 2025-2-1 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326984&amp;ptid=2244823" target="_blank">masy 发表于 2025-2-1 14:07</a>
+
+这配置用来训练简直灾难，跑10年能训练出现在的deepseek-r1吗？
+
+ds导gguf进ollama，也能CPU跑推理啊，就是 ...</blockquote>
+高速总线支持多卡并联的都可以。
+
+英特尔、AMD、老黄都有4卡、8卡的方案这些配合200多GB的HBM都足够跑原生671b了，需求极端的话老黄还有通过NVlink switch最大并72卡的用法。
+
+
+*****
+
+####  億万千  
+##### 65#       发表于 2025-2-1 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326787&amp;ptid=2244823" target="_blank">宏. 发表于 2025-2-1 13:31</a>
+
+对，估算了一下捡垃圾2万多元就够了，功耗不到1kw，总内存带宽能到200G，很有可能跑到10token/s ...</blockquote>
+个人家用两万块正常主机配置的显卡跑不到10tps吗
+

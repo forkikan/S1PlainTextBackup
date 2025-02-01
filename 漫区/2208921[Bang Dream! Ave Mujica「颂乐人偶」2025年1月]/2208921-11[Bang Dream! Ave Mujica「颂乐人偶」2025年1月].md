@@ -15023,3 +15023,75 @@ mortis听到消息后，立刻赶来医院探望，握着她的手说道:姐姐�
 丰川家只是为了抬高祥子形象的背景，本质上祥p行事完全不像老钱大小姐，所以会觉得什么没苦硬吃闹麻了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  半年  
+##### 16131#       发表于 2025-2-1 14:09
+
+<img src="https://img.saraba1st.com/forum/202502/01/140953gt4p499j4edtexpn.jpg" referrerpolicy="no-referrer">
+
+<strong>Gio0WMUbYAYtmNl.jpg</strong> (696.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/01/140953fbctn2wtw2sjq2f4.jpg" referrerpolicy="no-referrer">
+
+<strong>Gio0XlPbkAA1Tol.jpg</strong> (836.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:09 上传
+
+[https://x.com/nekobako_1225/status/1885377287044161836/photo/2](https://x.com/nekobako_1225/status/1885377287044161836/photo/2)
+
+*****
+
+####  JustW  
+##### 16132#       发表于 2025-2-1 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326857&amp;ptid=2208921" target="_blank">borrowface 发表于 2025-2-1 13:47</a>
+
+革命角度的叙事（拍没拍好另谈）：富家千金不愿安于封建家长制安排，试图剥离家庭身份自闯天地，确始终受限 ...</blockquote>
+
+是我第五喜欢的在商业企划里找革命叙事的环节
+
+*****
+
+####  半年  
+##### 16133#       发表于 2025-2-1 14:11
+
+<img src="https://img.saraba1st.com/forum/202502/01/141155x9li0pow9leml4mo.jpg" referrerpolicy="no-referrer">
+
+<strong>GiqW7_uW4AAcW_u.jpg</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:11 上传
+
+[https://x.com/scrmbl18120915/status/1885500313609892249/photo/1](https://x.com/scrmbl18120915/status/1885500313609892249/photo/1)
+
+*****
+
+####  hulaoda007  
+##### 16134#       发表于 2025-2-1 14:12
+
+ 本帖最后由 hulaoda007 于 2025-2-1 14:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">这集下来反而觉得灯祥是独角兽的一体两面，大祥毕竟是a动画的主角，不懂为啥要热衷大祥黑锅论。
+
+（反对独角兽带入灯被大祥追说，支持独角兽带入大祥被初华追说<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">）
+
+*****
+
+####  天空塔书记官  
+##### 16135#       发表于 2025-2-1 14:13
+
+要革命，也得先和家族决裂再说
+
+急，很急，急得很啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
