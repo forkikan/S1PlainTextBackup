@@ -13711,3 +13711,31 @@ deepseek-ai/DeepSeek-R1
 硅基流动按文档设置了R1，还是显示model does not exist</blockquote>
 模型设置的对吗？
 
+
+*****
+
+####  linchuanwangmou  
+##### 1046#       发表于 2025-2-1 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329048&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 20:46</a>
+
+模型设置的对吗？</blockquote>
+您好，请问硅基流动的破甲该怎么设置。我在硅基流动官网用的R1感觉道德审查比本家还要严格很多
+
+
+*****
+
+####  精钢魔像  
+##### 1047#       发表于 2025-2-1 21:22
+
+硅基流动怎么付费？只能买等级包吗
+
+*****
+
+####  afer  
+##### 1048#       发表于 2025-2-1 21:25
+
+https://cloud.siliconflow.cn/i/dE7Rl30G
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+求互助，很兴奋的注册了之后才发现用坛友的码有钱
+
