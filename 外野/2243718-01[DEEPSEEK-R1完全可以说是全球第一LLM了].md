@@ -12901,3 +12901,21 @@ D指导真的一股咱妈味儿</blockquote>
 
 app现在感觉经常思考两个字好的，然后就死掉了
 
+
+*****
+
+####  泰坦失足  
+##### 985#       发表于 2025-2-1 13:14
+
+仔细用了下360的R1，不对，这离4o都有些距离.
+
+
+*****
+
+####  andychen  
+##### 986#       发表于 2025-2-1 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326679&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-2-1 13:14</a>
+仔细用了下360的R1，不对，这离4o都有些距离.</blockquote>
+可以看看Siliconflow，现在有v3和r1。我随便试了下还可以
+

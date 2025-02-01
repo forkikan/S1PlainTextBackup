@@ -610,3 +610,17 @@ PCIE5.0 4x的SSD，平均带宽只有10GB/s，如果全部放在服务器多通�
 
 训练和部署是两回事啊
 
+
+*****
+
+####  琉璃苑軒風  
+##### 61#       发表于 2025-2-1 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326586&amp;ptid=2244823" target="_blank">宏. 发表于 2025-2-1 12:57</a>
+768G不够用，跑全量R1要1342G，这是个主要限制，单条32G四路主板都不容易塞下这内存容量，但这个容量对SS ...</blockquote>
+双路霄龙24条内存配合64g单条是可以单机1536g内存
+
+从个人角度还是很贵，但是从小公司角度也就是一张半rtx6000ada，成本低好多
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -1821,3 +1821,15 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 
 每次大伙都快忽略任天堂是个日厂的时候，任天堂总能让大伙回想起来
 
+
+*****
+
+####  魔法师lain  
+##### 185#       发表于 2025-2-1 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325218&amp;ptid=2244683" target="_blank">nanonya2 发表于 2025-2-1 08:24</a>
+日区PP需要日本电话号码，日本电话号码需要是居民才能申请</blockquote>
+不会验证的吧，偶填的是转送的号
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
