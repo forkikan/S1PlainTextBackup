@@ -13269,3 +13269,38 @@ ChatBOX
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 还有美国人的pplx，虽然要一个月20美元会员费，美国著名大学校园邮箱（哈佛斯坦福加利福尼亚这种可以白嫖一年，不知道现在还有没有了）
 
+
+*****
+
+####  zerona  
+##### 1016#       发表于 2025-2-1 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327581&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 16:04</a>
+
+https://cloud.siliconflow.cn/i/GX312zX6
+
+硅基流动的Deepseek-R1上了，邀请链接还能互相得14元( ...</blockquote>
+用起来咋样？可以破甲么？
+
+*****
+
+####  moeblack  
+##### 1017#         楼主| 发表于 2025-2-1 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327839&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 16:56</a>
+
+用起来咋样？可以破甲么？</blockquote>
+完全没问题
+
+*****
+
+####  波克隆斯卡娅  
+##### 1018#       发表于 2025-2-1 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327388&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 15:22</a>
+
+因为幻方的网页版内置有CoT提示词，而纯正API的上下文应是干净的。
+
+下面结果来自Openrouter，配合了系统 ...</blockquote>
+谢谢大佬，用chatbox调用硅基的api就行，硅基自己后台就不行，太怪了，两者都有System Prompt啊，区别在哪里<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+

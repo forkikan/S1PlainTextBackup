@@ -15932,3 +15932,33 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 作为肉体厨，我觉得莫小姐这种肯定更好玩法更多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 16212#       发表于 2025-2-1 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327833&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 16:55</a>
+
+但是第五集里mortis说的醒不过来的小睦，不像是在说自己体内的另一个人格，而更像是在说那把粉色吉他啊
+
+所 ...</blockquote>
+在睦的世界观里Mortis的本体是吉他，吞噬睦是跟睦互换，把睦封印进吉他里
+
+
+*****
+
+####  terry666  
+##### 16213#       发表于 2025-2-1 17:05
+
+<blockquote>南宮凝香 发表于 2025-2-1 16:51
+168 億放正常公司是一分也不用還的
+
+最多也就辭職，
+
+也不會業界封殺
+</blockquote>
+只需要证实祥爹是被老东西设套赔掉168亿赶出家，然后弄个老登为了逼孙女回家设计搞掉乐队就可以给角色足够的反抗动机。可惜我觉得staff不会往这方面写。
+
+睦的问题其实很好解决，反而是老登的形象越正面，祥子就越难风评翻身。
+
