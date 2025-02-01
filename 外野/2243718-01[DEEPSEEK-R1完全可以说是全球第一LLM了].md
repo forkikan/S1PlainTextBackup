@@ -12614,3 +12614,16 @@ o3 mini应该是个不超过20b激活的moe，除了编码和数学其他都好�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  SkavenYesYes  
+##### 964#       发表于 2025-2-1 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325475&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 09:50</a>
+
+GPT O3发布了。
+
+我在看论文#AI人工智能 #不懂就间有问必答 #形势一片大好 #一起来探讨 #给大家看看 #GPT #O ...</blockquote>
+150次。。。如果R1不被攻击
+
