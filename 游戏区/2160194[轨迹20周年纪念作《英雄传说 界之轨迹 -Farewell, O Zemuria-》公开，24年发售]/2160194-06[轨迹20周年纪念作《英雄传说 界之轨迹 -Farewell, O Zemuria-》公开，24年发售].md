@@ -249,3 +249,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  alucardcz  
+##### 7552#       发表于 2025-2-1 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330106&amp;ptid=2160194" target="_blank">orangee 发表于 2025-2-1 23:18</a>
+
+之前说着等打折还是憋不住买了，明天开搞
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">现在就在打折 没毛病
+
