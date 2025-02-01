@@ -12701,3 +12701,53 @@ GPT O3发布了。
 
 未来还是上端侧，直接用现实世界的数据学习有希望
 
+
+*****
+
+####  dazzle  
+##### 968#       发表于 2025-2-1 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325683&amp;ptid=2243718" target="_blank">SkavenYesYes 发表于 2025-2-1 10:36</a>
+
+英伟达严格来说是一个平台性公司，并不止是硬件，硬件不过是一个载体，它的护城河是cuda计算平台，所有高性 ...</blockquote>
+这种水平的自媒体文章就别传了，deepseek没有公开源代码和训练数据集
+
+*****
+
+####  泰坦失足  
+##### 969#       发表于 2025-2-1 11:05
+
+360那个DS R1，是没有上下文能力的。你输入了文章A，然后接着问“上个文章说了什么？”。它是不知道的，byd周大炮
+
+*****
+
+####  zerona  
+##### 970#       发表于 2025-2-1 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325324&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-2-1 09:03</a>
+
+费城又掉了飞机，美国人管好你自己吧</blockquote>
+啊？互撞2架之后又掉了一架？
+
+*****
+
+####  moeblack  
+##### 971#         楼主| 发表于 2025-2-1 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325863&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 11:06</a>
+啊？互撞2架之后又掉了一架？</blockquote>
+掉了，全员伤亡，一个急救车类型的飞机
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moeblack  
+##### 972#         楼主| 发表于 2025-2-1 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325858&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-2-1 11:05</a>
+360那个DS R1，是没有上下文能力的。你输入了文章A，然后接着问“上个文章说了什么？”。它是不知道的，byd ...</blockquote>
+红衣大炮
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
