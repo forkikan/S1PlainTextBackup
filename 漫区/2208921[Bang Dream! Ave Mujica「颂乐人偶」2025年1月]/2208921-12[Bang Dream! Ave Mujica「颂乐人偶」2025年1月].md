@@ -2783,3 +2783,29 @@ mortis的本体，或者象征物是镜子，本质是模仿别人。但是镜�
 
 而且你们不要把对赌这件事看得很重，说难听的，搞乐队的那几个钱还不配跟丰川家对赌，如果对赌是真的，实际上就是丰川定治拿钱给外孙女烧着玩，只不过为了祥子的面子，表面上说是对赌，而不是祥子向家里伸手要钱
 
+
+*****
+
+####  bbjajdd  
+##### 16522#       发表于 2025-2-2 07:26
+
+<img src="https://img.saraba1st.com/forum/202502/02/072521sqbmpbv79nz9qq9f.png" referrerpolicy="no-referrer">
+
+<strong>138087817384521712.png</strong> (57.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 07:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/072521phvlj4vx8hijl8v3.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250201_152412.png</strong> (115.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 07:25 上传
+
+我才发现，soyo摔倒时踩的是那个牢祥配色和发型的人偶
+
+这个恶意太强了吧
+
