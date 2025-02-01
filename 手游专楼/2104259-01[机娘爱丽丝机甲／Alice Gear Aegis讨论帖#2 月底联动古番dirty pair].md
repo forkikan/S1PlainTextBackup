@@ -36,3 +36,15 @@
 
 而且装备贝壳爆率也高，没有月卡那玩意开吧电池消耗大，不开吧总觉得亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1367#       发表于 2025-2-2 00:32
+
+<img src="https://p.sda1.dev/21/175124a1c46f789a8e37db3763f3d0c2/image.jpg" referrerpolicy="no-referrer">
+
+我看了几个角色觉得颜色一样就换了，这次周年头饰好像没有分颜色？偷懒了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

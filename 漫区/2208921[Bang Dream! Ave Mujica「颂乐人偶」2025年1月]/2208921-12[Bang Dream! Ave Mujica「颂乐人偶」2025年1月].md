@@ -1852,3 +1852,42 @@ mygo开live的逻辑是剧情到了水到渠成的QTE am剧情没到那步呢 �
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  iiiiiiiiii  
+##### 16455#       发表于 2025-2-2 00:27
+
+https://tieba.baidu.com/p/9457641819?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.77.1.0&amp;st=1738427194&amp;is_video=false&amp;unique=098B15F0B5C2FCD8D642E37617D42A60
+
+这人写的东西是不是真的，还被黄大叔这个舅舅党盖了章
+
+*****
+
+####  盐盐盐盐盐  
+##### 16456#       发表于 2025-2-2 00:30
+
+祥子不可能进go合演的，且不论soyo和立希接不接受（猫猫一向是无所谓的），祥子那自尊心她自己都受不了这种被自己抛弃的人反过来施舍她的感觉，八成是对着灯又一通发脾气跑了或者赶人走。最多也就是go团在台上演新曲灯对着台下喊话吧（假如立希的新曲flag要在这用而不是最后包完饺子用）
+
+不过怎么想这动画播一半了新live还不是am自己的歌也太抽象了，不太现实，go那好歹还是有一首碧天伴走后面才搞春日影
+
+
+*****
+
+####  wwwttth  
+##### 16457#       发表于 2025-2-2 00:35
+
+反正时间很紧，甚至鸡团散货时的羁绊要低于ccc三人，而猫的角色也不怎么需要立希只用了半集，这边就算喵和海玲各用半集，剩下三个至少要3个诗超绊来。
+
+*****
+
+####  刑部姬真可爱  
+##### 16458#       发表于 2025-2-2 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330461&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-2 00:19</a>
+
+不需要合练这回事 mygo就给你淡化过了（ 记得有回就是没排练直接上的 只能说编剧给你上数值了
+
+—— 来自  ...</blockquote>
+除了诗超绊mygo都有排练的
+

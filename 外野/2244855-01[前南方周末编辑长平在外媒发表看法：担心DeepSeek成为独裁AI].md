@@ -521,3 +521,15 @@ D导就是个照妖镜，能照出各路英雄好汉，也能照出各种牛鬼�
 磁吸太后最新力作</blockquote>
 AI都比不过这些殖蛆因为AI要讲逻辑
 
+
+*****
+
+####  ftqwer1  
+##### 56#       发表于 2025-2-2 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328361&amp;ptid=2244855" target="_blank">zerona 发表于 2025-2-1 18:45</a>
+这是DOg部下新指标了吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那个部门管裁员的老马看到收买的都是这种货色怕不是要砍经费。标题写的跟淘宝商品标题那股使劲凑关键词一个吊样。
+
