@@ -1400,3 +1400,40 @@ pp狗槽的经济公司、ykn父亲前队友担任制作人的音乐公司都是
 
 怎么一下子就滑坡到大祥老师没能力呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 16413#       发表于 2025-2-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329640&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 22:06</a>
+反过来推理，喵梦现在的艺人生涯看起来蒸蒸日上，已知喵梦最后肯定要回去打鼓，请问怎么完成这个转变
+
+如 ...</blockquote>
+大喵老师认清自己单打独斗也是个菜逼+见识到睦头家那种真实演艺圈人生感到打心底厌恶然后回旋有啥问题？？有没说A团2.0重组之后就要走商业路线啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 16414#       发表于 2025-2-1 22:57
+
+楼友太幽默了，就这staff时隐时现的水准，指望独角兽能写好需要严谨逻辑的阴谋论，我看各位还是洗洗睡吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  天空塔书记官  
+##### 16415#       发表于 2025-2-1 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329967&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-1 22:54</a>
+楼友有点太极端了
+
+大手最重要的是给资源，给曝光，火不火得起来一命二运三风水，接下来就是个人的奋斗和历 ...</blockquote>
+所以是谁在否定祥子的能力呢，是我们这些恶臭遗老还是祥厨 ?
+
+除了回旋镖、抽陀螺、车喵梦三件套就没别的了，让承认个上武道馆是资本的大手就一个个破防，但祥子的才能真能强到所有人倒贴吗，祥子有才能不假，但才能不是万能的许愿机，抛开剧情逻辑，只从角色洗黑看待问题，这根本就没法沟通<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
