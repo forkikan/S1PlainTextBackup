@@ -1968,3 +1968,27 @@ KBAC 发表于 2025-2-1 05:14日亚没有任何消费记录的白号，绑国内
 
 我靠，我工行JCB卡今天下午fantia的订阅POS交易也被撤销了，不会是日本政府自己出了什么内部正常吧。
 
+
+*****
+
+####  黑上シグマ  
+##### 198#       发表于 2025-2-1 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328656&amp;ptid=2244683" target="_blank">遗尿 发表于 2025-2-1 19:39</a>
+
+我靠，我工行JCB卡今天下午fantia的订阅POS交易也被撤销了，不会是日本政府自己出了什么内部正常吧。 ...</blockquote>
+[https://spotlight.fantia.jp/news/20250201_paymentplan](https://spotlight.fantia.jp/news/20250201_paymentplan)
+
+你说的那个看着像是fantia自己崩了……
+
+*****
+
+####  遗尿  
+##### 199#       发表于 2025-2-1 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328698&amp;ptid=2244683" target="_blank">黑上シグマ 发表于 2025-2-1 19:47</a>
+https://spotlight.fantia.jp/news/20250201_paymentplan
+
+你说的那个看着像是fantia自己崩了…… ...</blockquote>
+原来如此
+

@@ -13628,3 +13628,22 @@ reasoner的api文档里写着temprature参数目 ...</blockquote>
 
 相比之下，英伟达因直接面对消费者、产品高溢价、以及高调的品牌形象，更容易成为用户情绪的宣泄对象。这种差异本质上是**产业链分工与公众感知机制**共同作用的结果。
 
+
+*****
+
+####  KioShiMa  
+##### 1038#       发表于 2025-2-1 19:55
+
+硅基流动按文档设置了R1，还是显示model does not exist
+
+*****
+
+####  jeokeo  
+##### 1039#       发表于 2025-2-1 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327321&amp;ptid=2243718" target="_blank">hargen2000 发表于 2025-2-1 15:08</a>
+硅基流动的api，和官方一个价速度还很快，推荐
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 S1Next-鹅版 ...</blockquote>
+这个网站做什么的？
+
