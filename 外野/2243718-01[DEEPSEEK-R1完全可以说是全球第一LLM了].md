@@ -14072,3 +14072,63 @@ md，🇺🇸人真的太坏了
 一个回复要等70s</blockquote>
 要想用得爽还是得本地部署啊
 
+
+*****
+
+####  moeblack  
+##### 1074#         楼主| 发表于 2025-2-1 23:56
+
+<img src="https://img.saraba1st.com/forum/202502/01/235618ijat5g0pvokkewgq.jpg" referrerpolicy="no-referrer">
+
+<strong>aed27a4de36b6d8e51da66fee9a68b95.jpg</strong> (45.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 23:56 上传
+
+苍天，大地，欧姆弥赛亚。
+
+救救孩子吧
+
+硅基现在70s一个回复了！
+
+*****
+
+####  流浪的翅膀  
+##### 1075#       发表于 2025-2-1 23:57
+
+32B模型测试下来，也很勉强。
+
+
+*****
+
+####  qwased  
+##### 1076#       发表于 2025-2-2 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">怎么回事呢<img src="https://p.sda1.dev/21/cd291815f3eba8a4aed202f1b3eed396/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cc37  
+##### 1077#       发表于 2025-2-2 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330346&amp;ptid=2243718" target="_blank">qwased 发表于 2025-2-2 00:02</a>
+怎么回事呢</blockquote>
+奥特曼也干了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  moeblack  
+##### 1078#         楼主| 发表于 2025-2-2 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330346&amp;ptid=2243718" target="_blank">qwased 发表于 2025-2-2 00:02</a>
+
+怎么回事呢</blockquote>
+在拥有大量训练数据的语言里面
+
+中文的信息熵最大（
+
+数学是不是证明过了
+
