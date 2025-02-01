@@ -16345,3 +16345,72 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 
 而且一个学生，要赚这么多钱，除了那啥我是真不知道有啥办法赚钱了。
 
+
+*****
+
+####  yozoraxsx  
+##### 16244#       发表于 2025-2-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328160&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-1 17:59</a>
+
+你挺神经的，害了n个人，就一个女孩退出c团，那么退出c团之前付出的代价是什么？丧母和爹颓废。退出后的 ...</blockquote>
+一个自闭了
+
+一个像守了活寡
+
+一个疯了
+
+一个又要去步第二个后尘了
+
+一个事业好好的队友被勾引跑了
+
+这就五个起步了
+
+*****
+
+####  595505568  
+##### 16245#       发表于 2025-2-1 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328204&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 18:08</a>
+
+一个自闭了
+
+一个像守了活寡
+
+一个疯了</blockquote>
+自闭的那个天天想她，然后那个阳角还得塑造成爱音爱人类不能有一种“那我呢”的情绪，然后因为她说不定海玲和立希闹掰？她好像10个里好像至少7个要各种吃药吧
+
+
+*****
+
+####  JustW  
+##### 16246#       发表于 2025-2-1 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328189&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 18:05</a>
+
+你可能没看之前的讨论，颓废不是不合理，但是一个做了十年以上大企业高管的人，也没有什么会让人倾家荡产 ...</blockquote>
+
+祥子搬到初华家已经一段时间了，祥爹又没有饿死，当然有钱了
+
+*****
+
+####  wwwttth  
+##### 16247#       发表于 2025-2-1 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328059&amp;ptid=2208921" target="_blank">hulaoda007 发表于 2025-2-1 17:40</a>
+
+我以为从a团每个年轻气盛想干大事的结果把事情搞糟，以及这集的表现，a团前四集的确是“涉世不深的jk的过家 ...</blockquote>
+其实想干大事的就2个，年轻气盛的也就这两，第四集才变成3，前4集最大的问题我倒是觉得不在于祥喵睦，至少这三你能明确地看到方向性，而在于剩下2个太路人了，初华甚至当舔狗都只能打顺风局，第四集连舔都不够用力了。
+
+*****
+
+####  杂灰  
+##### 16248#       发表于 2025-2-1 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328141&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-1 17:55</a>
+這就是把整個第一季都墊給大女主了
+
+第一季的主題思想是大家都迷惘， 但一起走就行</blockquote>
+祥子就是把用音乐表达内心呐喊的手段带给灯的人，不是领路人而是开门人。现在是灯走得更前，她就是因为没有放弃呐喊才能把其他人吸引回舞台上，她成功用音乐创造了自己的归宿，所以她才会有不放弃祥子的意志力
+现在是只有祥子去当大女主才能跟上灯，她要当大女主去给自己和其他人创造归宿，这样才能构成鸡狗的镜像
+

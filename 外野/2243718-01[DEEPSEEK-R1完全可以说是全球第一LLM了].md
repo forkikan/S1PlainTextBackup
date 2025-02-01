@@ -13461,3 +13461,11 @@ cline 的ollama本地版 的prompt是不是有问题？无休止的重复直到�
 再问个事 我在把硅基流动的r1添加到沉浸式翻译的时候。思考过程也被翻译并写到页面上了。有什么办法删去思 ...</blockquote>
 网页翻译用r1太贵太笨重了，cot部分也计入输出token数
 
+
+*****
+
+####  名居守  
+##### 1033#       发表于 2025-2-1 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">chatbox怎么隐藏掉r1的think的内容啊，直接问怎么办就乱码了
+
