@@ -1833,3 +1833,14 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  windaria  
+##### 186#       发表于 2025-2-1 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67311794&amp;ptid=2244683" target="_blank">遗尿 发表于 2025-1-30 19:02</a>
+
+妈的，我任天堂会员是日服的。去推上看了下公告，结果下面评论日本人还都叫好，真TM猪脑子。 ...</blockquote>
+日本人是这样**的啦，不要来玩我们的游戏，不要来买我们的东西
+
