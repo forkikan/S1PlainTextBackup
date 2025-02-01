@@ -297,3 +297,14 @@ ramuchi的情侣spotiffy
 
 她自己说是去了两次北海道两次韩国吧
 
+
+*****
+
+####  sino__unnko3  
+##### 17919#       发表于 2025-2-1 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326685&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-1 13:15</a>
+她自己说是去了两次北海道两次韩国吧</blockquote>
+但是之前有提到去了海外迪士尼？她去年之前的出国根据去年的推限的话，只有小时候去关岛那次，之后就是去年三四月份去的外国，但是韩国为啥自来水不能直饮，而且这次玩的经历之后就没提到过，不管是观众套话还是主动提到都没有
+不知道主播咋想的，这里出现了与存档不对应的描述
+
