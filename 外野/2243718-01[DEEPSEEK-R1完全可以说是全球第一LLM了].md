@@ -14235,3 +14235,15 @@ openrouter的免费版也用不了，Too many requests
 
 个偷懒的办法，就是把R1输出偏短的，扔给gemini扩写
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 1089#       发表于 2025-2-2 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330808&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-2 01:21</a>
+不敢玩NSFW是啥意思，实名注册的API跑了NSFW也就自己玩玩又没传播怕毛啊。
+
+严重程度甚至不如在Q群里发瑟图 ...</blockquote>
+你自己部署去玩啊，用公共资源别人一个截图流出就可以算提供非fa服务了。公司法务又不是弱智
+
