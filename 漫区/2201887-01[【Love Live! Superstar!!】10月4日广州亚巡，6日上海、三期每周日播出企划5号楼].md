@@ -15039,3 +15039,15 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 星不会因为6巡还没开始两天都是OP3穿到底吧……
 
+
+*****
+
+####  csolfans  
+##### 1462#       发表于 2025-2-1 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328098&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-1 17:47</a>
+星不会因为6巡还没开始两天都是OP3穿到底吧……</blockquote>
+换了(
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
