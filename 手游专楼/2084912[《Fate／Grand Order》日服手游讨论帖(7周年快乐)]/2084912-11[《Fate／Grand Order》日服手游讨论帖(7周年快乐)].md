@@ -277,3 +277,13 @@
 
 既然不能同时上，那之后的UP池也没必要再抽了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 16202#       发表于 2025-2-1 20:15
+
+上限終於由170級提高到180
+
+不過應該還不能全5星上陣吧?
+

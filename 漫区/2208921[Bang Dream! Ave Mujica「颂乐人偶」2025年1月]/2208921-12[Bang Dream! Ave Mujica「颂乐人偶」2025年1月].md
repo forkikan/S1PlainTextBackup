@@ -265,3 +265,50 @@ MyGO第一话爱音问祥子要不要组乐队的时候，祥子正要关上钢�
 知道的话，祥子很小丑，前面演的所有觉悟变成 ...</blockquote>
 正经来讲，有经济公司的艺人，对于自己的表演获得了多少赞助哪些方面的赞助谁的赞助，并不是必须要知道吧？
 
+
+*****
+
+####  狮子咕  
+##### 16304#       发表于 2025-2-1 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事后青蒜的时候问丰川老登做了什么坏事，最后答案是因为他什么都不做
+
+*****
+
+####  无限舰制  
+##### 16305#       发表于 2025-2-1 20:10
+
+那说实话，家里动用面子果实而且保密，让孙女更好的过家家，这个思路不是很正常吗
+
+父母去给老师打点关系也不会大张旗鼓闹到小孩被全班同学侧目而视的
+
+*****
+
+####  huxiaopao163  
+##### 16306#       发表于 2025-2-1 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328795&amp;ptid=2208921" target="_blank">狮子咕 发表于 2025-2-1 20:06</a>
+
+那玩意好像出现在初华那边了</blockquote>
+怎么说，具体在哪里出现了啊
+
+
+*****
+
+####  稀勢のささ  
+##### 16307#       发表于 2025-2-1 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328821&amp;ptid=2208921" target="_blank">无限舰制 发表于 2025-2-1 20:10</a>
+
+那说实话，家里动用面子果实而且保密，让孙女更好的过家家，这个思路不是很正常吗
+
+父母去给老师打点关系也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TGW都印海报上了哪里保密了
+
+*****
+
+####  厚乳果珍爽  
+##### 16308#       发表于 2025-2-1 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭终于到了车编剧的环节了啊？！
+

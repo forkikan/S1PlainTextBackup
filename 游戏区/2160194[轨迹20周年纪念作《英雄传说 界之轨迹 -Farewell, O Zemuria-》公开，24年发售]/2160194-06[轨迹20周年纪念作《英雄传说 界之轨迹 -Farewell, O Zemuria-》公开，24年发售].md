@@ -229,3 +229,13 @@
 
 别慌，我两年前玩的李鬼2，现在也全都忘完了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 7550#       发表于 2025-2-1 20:09
+
+ 本帖最后由 妄想中毒 于 2025-2-1 20:12 编辑 
+
+黎轨打完了界轨序章里登场人物依然会有一半不认识吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
