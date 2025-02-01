@@ -15513,3 +15513,14 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 毕竟很多观众还在已知最后一集包饺子，然后倒推前面第几集应该解决谁谁的问题，不然集数就不够了，全是前mygo时代类型片的思路，甚至还没追上mygo的步子
 
+
+*****
+
+####  海底铁锚  
+##### 16175#       发表于 2025-2-1 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327456&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 15:35</a>
+我还是觉得mujica会做出一些观众想不到的新东西，因为他们可以真的突破一些观众以为不能突破的东西（所谓底 ...</blockquote>
+如果没有邦邦手游和后续的live，那确实不需要包饺子，甚至可以给鸡团来一个机关算尽太聪敏反误了卿卿性命，落得白茫茫大地真干净的结局。如果这样写，那么键帽，祥子，初华，木头这些角色，确实写的很活。甚至整个故事都很不错。
+但可惜有wsd，要卖卡，搞live的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

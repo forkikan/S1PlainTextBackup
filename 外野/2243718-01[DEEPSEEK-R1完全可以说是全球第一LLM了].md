@@ -13175,3 +13175,23 @@ ChatBOX
 
 安卓可以用
 
+
+*****
+
+####  莫夜戎  
+##### 1007#       发表于 2025-2-1 15:41
+
+英伟达的api在cherry上正常使用，手机上用chatbox自己加第三方api都显示404连接不上是个什么情况
+
+*****
+
+####  real_zyf  
+##### 1008#       发表于 2025-2-1 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327388&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 15:22</a>
+
+因为幻方的网页版内置有CoT提示词，而纯正API的上下文应是干净的。
+
+下面结果来自Openrouter，配合了系统 ...</blockquote>
+没有用网页，都是用cherry studio接入不同的api做的测试，理论上除了地址和key，其它所有变量都一样
+
