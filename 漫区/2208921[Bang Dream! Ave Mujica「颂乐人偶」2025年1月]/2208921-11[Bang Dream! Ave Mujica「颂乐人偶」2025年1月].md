@@ -15874,3 +15874,61 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 16208#       发表于 2025-2-1 16:51
+
+168 億放正常公司是一分也不用還的
+
+最多也就辭職，
+
+也不會業界封殺
+
+（看看星鳴特攻虧了多少吧）
+
+中登這明擺著是老登要弄他
+
+不然也就調去閒職一兩年罰酒三杯就沒事了
+
+所以祥賺多少也沒用， 
+
+直接做掉老登才是解決辦法
+
+
+*****
+
+####  huxiaopao163  
+##### 16209#       发表于 2025-2-1 16:55
+
+ 本帖最后由 huxiaopao163 于 2025-2-1 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327785&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-1 16:45</a>
+
+莫小姐说的都是真话
+
+讨厌祥子是真的</blockquote>
+但是第五集里mortis说的醒不过来的小睦，不像是在说自己体内的另一个人格，而更像是在说那把粉色吉他啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以mortis说的话到底啥意思，是不是字面意思，还是先质疑一下
+
+<img src="https://img.saraba1st.com/forum/202502/01/133540outiuq5u4u8tt2bh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 16210#       发表于 2025-2-1 16:57
+
+这几天提到祥子夏亚说的越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有崇高理想、双标、吃瘪役、过刚易折、自我毁灭倾向、回避型依恋、缺母爱
+
+扔石头的时候也不管自己妹妹还在地球上
+
+*****
+
+####  wwwttth  
+##### 16211#       发表于 2025-2-1 16:57
+
+作为肉体厨，我觉得莫小姐这种肯定更好玩法更多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

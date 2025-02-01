@@ -13256,3 +13256,16 @@ ChatBOX
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 1015#         楼主| 发表于 2025-2-1 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327768&amp;ptid=2243718" target="_blank">zfy1989 发表于 2025-2-1 16:42</a>
+
+目前是不是只有官方网站有联网搜索功能（虽然不能用），其他没有
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+还有美国人的pplx，虽然要一个月20美元会员费，美国著名大学校园邮箱（哈佛斯坦福加利福尼亚这种可以白嫖一年，不知道现在还有没有了）
+
