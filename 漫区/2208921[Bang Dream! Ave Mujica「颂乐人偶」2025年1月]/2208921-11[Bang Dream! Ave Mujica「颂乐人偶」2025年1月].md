@@ -16730,3 +16730,64 @@ am里除了说了句大猫坏其他时间都被编剧禁言了<img src="https://
 
 這劇所有事情都是WSD TM逼的
 
+
+*****
+
+####  qlipho  
+##### 16275#       发表于 2025-2-1 19:19
+
+就是编剧逼的阿，实在是蔡的没边
+
+*****
+
+####  merumeru  
+##### 16276#       发表于 2025-2-1 19:19
+
+99.99%老登才是一切的始作俑者
+
+看不上女婿，所以祥母去世后，立马就设计让失去了保护的祥父滚蛋，转而培养祥子做继承人
+
+所以前期的mujica，在老登大手下也是必然失败的，所有祥子可以逃的地方都是注定要被摧毁的。就像舞台剧台词"月亮不会治愈任何人...已经无路可逃"
+
+后面就看祥子正视自我后怎么对抗命运了
+
+*****
+
+####  安娜导函数  
+##### 16277#       发表于 2025-2-1 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328460&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 19:05</a>
+真是好用的事务所。
+以前我说同样写关系性无职比mygo好真没错，当时一帮人还来堵嘴。现在一看真是啪啪响 ...</blockquote>
+谁让隐身了4集的事务所啊，赔偿金啊这些大人的问题突然在第5集冒出来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+真是好用的设定呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 16278#       发表于 2025-2-1 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328524&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-1 19:17</a>
+
+要這樣說整個雞團就是工具人
+
+13+5集了， 能解釋為什麼要組建雞團嗎？</blockquote>
+反正监督说是成为女主角的故事，至于剩下的参与在里面让她成为女主角的人算什么，舞台装置吗？我感觉这个故事一点都不邦多利，乐队是一群人的故事，怎么到他们访谈嘴里我只看到了奖杯、木偶、拉郎、舞台装置，被外面的人数落剧本垫子角色多也很正常了
+
+*****
+
+####  qlipho  
+##### 16279#       发表于 2025-2-1 19:22
+
+编剧知道老登想要培养祥子吗
+
+
+*****
+
+####  akiomn  
+##### 16280#       发表于 2025-2-1 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328555&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-1 19:21</a>
+反正监督说是成为女主角的故事，至于剩下的参与在里面让她成为女主角的人算什么，舞台装置吗？我感觉这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在访谈反正是信不了了，从声优到监督都是。就没见过这么折磨角色，5集折磨5个角色，塑造出5个神人
+
