@@ -13802,3 +13802,29 @@ soyo：自己吓自己～
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刑部姬真可爱  
+##### 16026#       发表于 2025-2-1 10:22
+
+鉴于前几集最后给个爆的然后下一集就“不痛不痒”的揭过去的操作来看，下集告诉你睦mo平常见人不演，自己呆小房间或者知道soyo来了才演我都不惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且说起来go里祥子见睦的时候管家都会通知睦祥子来了，那么soyo去找睦的时候管家应该会征求睦的意见才能让soyo进去吧，总不能像爱音那样一句我是她朋友祥子没表态，黑衣人不管不顾就让爱音和灯进车里那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 16027#       发表于 2025-2-1 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325433&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-1 09:36</a>
+
+睦这一个月没人管也是编剧的大手啊
+
+唉这集A part要演僵尸小祥，那不可能去管睦</blockquote>
+剩下三个也没关系吧，一个雇佣兵，一个连像祥子都找不到的大金毛，大喵更是从头到尾都认是睦演技，可能睦妈找她的话还人情会帮下，怎么看都是青梅竹马/钦定半身的祥子有问题。
+
+顺便更变态的一点是，祥子散团说的是啥：想让睦回来。然后散了就不管睦了，这句“想让睦回来”就变得怎么看怎么变态，这点要洗只能拍这个月上半月祥子天天去找睦然后被大莫拒之门外回收跪地哭场景了。
+

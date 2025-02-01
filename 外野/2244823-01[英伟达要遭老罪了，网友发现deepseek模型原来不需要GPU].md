@@ -464,3 +464,21 @@ GPU对于跑ai从来不是必须的，只是它跑最快，对于ai这种需要�
 
 一台96G内存的mac studio应该能跑70b的模型了
 
+
+*****
+
+####  KevinGraham  
+##### 47#       发表于 2025-2-1 10:17
+
+deepaeek以前类似参数的模型cpu跑也是这个速度，deepseek是提升了600b这个量级模型的性能，对怎么跑并没有什么改变啊
+最近这些新闻就突出一个以前完全没研究过怎么本地部署大模型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  張無忌  
+##### 48#       发表于 2025-2-1 10:19
+
+[https://zhuanlan.zhihu.com/p/20714478546](https://zhuanlan.zhihu.com/p/20714478546)
+
+eypc双路不带显卡跑deepseek，速度有6-8T/S
+

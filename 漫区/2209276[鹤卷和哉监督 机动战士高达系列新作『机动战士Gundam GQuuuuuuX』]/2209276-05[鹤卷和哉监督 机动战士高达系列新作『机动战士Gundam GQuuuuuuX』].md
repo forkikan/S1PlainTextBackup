@@ -3819,3 +3819,11 @@ EXVS2 OB全国大会要开打了，GQuuuuuuX肯定要最速参战了，其实M.A
 <img src="https://p.sda1.dev/21/7d8202b2f5d95ca00c42d36979c01c18/image.jpg" referrerpolicy="no-referrer">
 https://x.com/02Curry/status/1885359473264566663
 
+
+*****
+
+####  管理员我不敢了  
+##### 6220#       发表于 2025-2-1 10:17
+
+现在最新票房多少了？
+
