@@ -164,3 +164,104 @@ MyGO第一话爱音问祥子要不要组乐队的时候，祥子正要关上钢�
 
 而且除了旋钮小电视，PV里还有个按键老电视，可能最后是四人，甚至五人，用不同的电视或投影作为载体，回顾第四集酒店之战的前后。
 
+
+*****
+
+####  akiomn  
+##### 16295#       发表于 2025-2-1 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328699&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 19:48</a>
+话说PV里的一堆小电视要什么时候才会出现，本来以为第五集就有了，现在看来要往后放，也许要等到揭秘酒店之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子的内心也不错，第六集复盘一波，最后埋下黑化恶堕的伏笔，第七集ob一串字母开始上号
+这就是半身啊，一个坏掉后精分，另一个被抽陀螺到坏掉后也精分了
+
+*****
+
+####  ml1642879  
+##### 16296#       发表于 2025-2-1 20:01
+
+以贝多芬为原型的话，有望在动画内看见丰川聋子，30多岁就去世什么的不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 16297#       发表于 2025-2-1 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328770&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-1 20:01</a>
+
+以贝多芬为原型的话，有望在动画内看见丰川聋子，30多岁就去世什么的不要啊 ...</blockquote>
+没事，乐队少女年龄流速极大减缓，可能企划死了角色还没大学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 16298#       发表于 2025-2-1 20:04
+
+<blockquote>南宮凝香 发表于 2025-1-31 13:19
+也可以是她以為豐川集團投錢是她靠計劃書打動的
+
+實際上豐川集團就看了提案人的名字就批錢了 ...</blockquote>
+祥子和丰川集团的关系就2种，知道和不知道，其他算是变种
+
+知道的话，祥子很小丑，前面演的所有觉悟变成一边说着大话一边从家里的钱包拿钱
+
+知道的变种是知道的不多和家里硬塞没办法妥协了，那还是那个问题，你mygo里的那些豪言壮语是啥，还有你知道拿家里资源还把团搞炸意味着什么是吧
+
+不知道的话，祥子还是小丑，前面演的所有觉悟和写企划啥的，最后连自家参与了多少都不知道
+
+那我想个搞笑场景，祥子刚走进经纪人公司大门，黑衣人就把电话打到老板那里说你要顺从祥子，一切费用tgw包了
+
+不知道也有很多变种，但最后都很容易把祥子塑造成铁fw害人精，剧情上能圆，但这样一个祥子能不能卖谷就打个**的问号了
+
+*****
+
+####  无限舰制  
+##### 16299#       发表于 2025-2-1 20:04
+
+阿哲，音乐才能也要夺走一遍吗
+
+虽然你邦也不是没有主唱失声这种前例
+
+那🐘老师要怎么办，车祸手受伤弹不了琴了？
+
+只能说不至于，不至于
+
+*****
+
+####  刑部姬真可爱  
+##### 16300#       发表于 2025-2-1 20:05
+
+话说那些个小电视的画面有没有人扣细节有没有谁没出现？
+
+*****
+
+####  狮子咕  
+##### 16301#       发表于 2025-2-1 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328699&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 19:48</a>
+
+话说PV里的一堆小电视要什么时候才会出现，本来以为第五集就有了，现在看来要往后放，也许要等到揭秘酒店之 ...</blockquote>
+那玩意好像出现在初华那边了
+
+*****
+
+####  斯大林的拖拉机  
+##### 16302#       发表于 2025-2-1 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328638&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-1 19:36</a>
+老登背锅能解决什么问题 我是真不知道</blockquote>
+名正言顺甩脱老登付赔偿款的道德包袱，顺便为了中登的遭遇化身家人侠和大喵组成家人连者，这下团魂问题也解决了
+
+*****
+
+####  刑部姬真可爱  
+##### 16303#       发表于 2025-2-1 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328783&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-1 20:04</a>
+
+祥子和丰川集团的关系就2种，知道和不知道，其他算是变种
+
+知道的话，祥子很小丑，前面演的所有觉悟变成 ...</blockquote>
+正经来讲，有经济公司的艺人，对于自己的表演获得了多少赞助哪些方面的赞助谁的赞助，并不是必须要知道吧？
+

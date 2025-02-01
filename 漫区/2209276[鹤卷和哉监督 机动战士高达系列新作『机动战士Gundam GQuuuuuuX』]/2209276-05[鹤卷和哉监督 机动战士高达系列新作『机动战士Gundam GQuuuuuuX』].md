@@ -4043,3 +4043,11 @@ X上刷到赤松健问庵野这段挺搞的</blockquote>
 
 插入曲电影版
 
+
+*****
+
+####  Sliurus  
+##### 6243#       发表于 2025-2-1 20:06
+
+艹，阿姆罗给夏亚点歌最佳损友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -269,3 +269,11 @@
 
 不能同时上两个太莫名其妙了……
 
+
+*****
+
+####  DARKGRAY  
+##### 16201#       发表于 2025-2-1 19:58
+
+既然不能同时上，那之后的UP池也没必要再抽了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
+
