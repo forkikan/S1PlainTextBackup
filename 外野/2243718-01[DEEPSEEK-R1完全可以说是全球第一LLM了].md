@@ -13656,3 +13656,35 @@ reasoner的api文档里写着temprature参数目 ...</blockquote>
 [https://cloud.siliconflow.cn/i/2H90oiMk](https://cloud.siliconflow.cn/i/2H90oiMk)
 硅谷流动邀请链接，注册互送14元<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1041#       发表于 2025-2-1 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328730&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-1 19:55</a>
+
+硅基流动按文档设置了R1，还是显示model does not exist</blockquote>
+deepseek-ai/DeepSeek-R1
+
+看它的模型仓库。你需要什么模型就用它模型仓库里用的名字。
+
+*****
+
+####  KioShiMa  
+##### 1042#       发表于 2025-2-1 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328909&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 20:26</a>
+deepseek-ai/DeepSeek-R1
+
+看它的模型仓库。你需要什么模型就用它模型仓库里用的名字。 ...</blockquote>
+看到了谢谢，手机端直接跳到对话界面，我以为那就是模型仓库，开电脑版页面才看到
+
+
+*****
+
+####  KioShiMa  
+##### 1043#       发表于 2025-2-1 20:32
+
+目前DS能读取的上下文有限，会忘设定和之前的情节有办法吗？
+

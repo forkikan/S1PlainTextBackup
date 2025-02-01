@@ -332,3 +332,27 @@ MyGO第一话爱音问祥子要不要组乐队的时候，祥子正要关上钢�
 怎么说，具体在哪里出现了啊</blockquote>
 说是右边人偶的脚似乎是初华的+cm那堆形成角色面具的碎片画格里有小电视（疑似）
 
+
+*****
+
+####  huxiaopao163  
+##### 16311#       发表于 2025-2-1 20:29
+
+ 本帖最后由 huxiaopao163 于 2025-2-1 20:32 编辑 
+
+啊，萌战吧出了个说是剧透酒店之战真相的，感觉还挺真，感兴趣可以看看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://tieba.baidu.com/p/9460690591](https://tieba.baidu.com/p/9460690591)
+
+
+*****
+
+####  稀勢のささ  
+##### 16312#       发表于 2025-2-1 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328933&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 20:29</a>
+
+啊，萌战吧出了个说是剧透酒店之战真相的，感觉还挺真，感兴趣可以看看
+
+https://tieba.baidu.com/p/9460690 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是大喵内鬼说，对已经烂掉的角色形象有什么正面意义吗
+
