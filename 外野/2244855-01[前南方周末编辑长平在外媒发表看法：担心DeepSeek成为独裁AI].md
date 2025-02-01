@@ -372,3 +372,31 @@ D导就是个照妖镜，能照出各路英雄好汉，也能照出各种牛鬼�
 
 明显被DS抢了饭碗，这种输出的内容以后DS分分钟搞定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PEACH1212  
+##### 42#       发表于 2025-2-1 14:48
+
+这位老殖人了
+
+
+*****
+
+####  ak123  
+##### 43#       发表于 2025-2-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326767&amp;ptid=2244855" target="_blank">洛拉斯 发表于 2025-2-1 13:28</a>
+保留基因多样性</blockquote>
+劣等基因算什么多样性，无非是有势力需要这种狗
+
+*****
+
+####  叹希奇  
+##### 44#       发表于 2025-2-1 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326146&amp;ptid=2244855" target="_blank">猪突猛进R 发表于 2025-2-1 11:54</a>
+
+被这种AI“独裁统治”也未尝不可：</blockquote>
+不行不行，我要大姐姐。
+
