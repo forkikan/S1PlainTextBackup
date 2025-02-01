@@ -1619,3 +1619,112 @@ niconico前五话好评率和观看人数
 
 祥厨是真的好玩。队友稳定他们说我祥一拖四带条狗都行，队友不稳他们说我祥尽力了键帽带不动。这么看给大祥老师挑队友真是有难度。太完美显不出大祥老师厉害，有毛病又连累大祥老师凤傲天开无双。我看大祥老师还是早日筹备第三个团为妙，这批队友实在不行
 
+
+*****
+
+####  wwwttth  
+##### 16432#       发表于 2025-2-1 23:47
+
+5话的演出本来就好一点，蹩脚的地方就那个一个月的设定（也不算演出的问题），目前单看演出我觉得是5＞3＞1＞2＞4。除非4真藏了什么东西否则这情绪调动绝对不太行，而正是因为没提起情绪导致盘逻辑的一堆奇怪坏蛋假药也一堆。
+
+*****
+
+####  akiomn  
+##### 16433#       发表于 2025-2-1 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330259&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-1 23:47</a>
+5话的演出本来就好一点，蹩脚的地方就那个一个月的设定（也不算演出的问题），目前单看演出我觉得是5＞3＞1 ...</blockquote>
+4是被最后5分钟小黑屋毁掉了，不然前面氛围塑造绝对不差的
+
+*****
+
+####  零壹贰叁  
+##### 16434#       发表于 2025-2-1 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论单集来说这集不是做的很好吗？
+前4集烂爆给人太多多余的期待了，事实证明就是纯烂炒不要逻辑了
+我觉得差评降分主要是暴露出编剧完全没想圆前4集奇怪的地方，直直的过渡到解散一个月后了
+
+这集灯祥人大满足<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16435#       发表于 2025-2-1 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330247&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-2-1 23:46</a>
+随手一个电话，当红偶像组合里能吉他能作词的主唱就自带干粮赶过来了
+
+准职业级的吉他手不多说一句废话顶着 ...</blockquote>
+初华词曲全包的，以后剧情里应该也会有她写的曲子
+
+祥子作曲压力大，初华是能帮上忙的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 16436#       发表于 2025-2-1 23:51
+
+我很难理解一帮人能同时接受第四集和第五集
+
+
+*****
+
+####  天空塔书记官  
+##### 16437#       发表于 2025-2-1 23:52
+
+ 本帖最后由 天空塔书记官 于 2025-2-1 23:54 编辑 
+
+PV里的红光电视画面还没回收，说明第四集不止那点东西，看之后怎么圆吧，已经完全是黑箱了
+
+这才是编剧的大手<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  terry666  
+##### 16438#       发表于 2025-2-1 23:52
+
+<blockquote>凉良 发表于 2025-2-1 23:51
+我很难理解一帮人能同时接受第四集和第五集</blockquote>
+大部分是能接受第五集但依旧没法接受第四集吧
+
+*****
+
+####  凉良  
+##### 16439#       发表于 2025-2-1 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330292&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 23:52</a>
+
+大部分是能接受第五集但依旧没法接受第四集吧</blockquote>
+第四集nico也是升啊
+
+*****
+
+####  嵇翱u  
+##### 16440#       发表于 2025-2-1 23:54
+
+与其烂炒武道馆和丰川家的大手。不如还是来聊聊下集的低气压吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+已知场外明示了第六集继续压抑，而现在可以说mygo全员都参团了，不说百分百甩脸色的祥子，睦头这边也没有让人欣慰的转折，显然是猫医生的疗法并不起效（这也是可以预见的，牢莫也说了祥子才是解药）
+
+那我比较悲观的认为地铁cm中疑似祥子跪坐在睦家门口，也许是mygo发现搞不定睦头之后去找祥子了，祥子这才去追妻火葬场。
+
+但是如此一来，睦头扔书的场景该在什么情况下回收呢，苏醒之后睦头因为牢莫毁了乐队而砸镜子？还是在一个月的空档中因为祥子没来，牢莫砸的镜子？
+
+
+*****
+
+####  wwwttth  
+##### 16441#       发表于 2025-2-1 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330263&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-1 23:48</a>
+
+4是被最后5分钟小黑屋毁掉了，不然前面氛围塑造绝对不差的</blockquote>
+后面那小黑屋的问题就是前面接的是一个恐怖片的观感而不是一个没法处理队伍里缺吉他没法演出的观感，这边情绪转不过来还在这加更多恐怖片效果更难绷，只能说除非编剧要的就是这个效果后面复盘每个人视角再调情绪（就像反复复盘的黑刀之夜），要么这里没起情绪让大伙在那用逻辑盘就是个错误。
+

@@ -14050,3 +14050,25 @@ X) 向所有时间线广播反向求婚宣言
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  海底铁锚  
+##### 1072#       发表于 2025-2-1 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">DeepSeek网页版几乎不可用，本地部署的8b模型不太行，硅基流动又不能联网
+
+md，🇺🇸人真的太坏了
+
+*****
+
+####  精钢魔像  
+##### 1073#       发表于 2025-2-1 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330209&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 23:38</a>
+
+完了 硅基排队都排不上了。都怪楼友们！
+
+一个回复要等70s</blockquote>
+要想用得爽还是得本地部署啊
+
