@@ -566,3 +566,16 @@ deepaeek以前类似参数的模型cpu跑也是这个速度，deepseek是提升�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  sellboy  
+##### 57#       发表于 2025-2-1 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325870&amp;ptid=2244823" target="_blank">宏. 发表于 2025-2-1 11:07</a>
+
+主要差别是本地跑60B没啥应用价值，跑600B就应用价值很大了
+
+至于速度，2t/s是太慢了，但1000t/s也对本地 ...</blockquote>
+有思维链的话输出还是得更高一些，毕竟思维链一般不会全看。
+
