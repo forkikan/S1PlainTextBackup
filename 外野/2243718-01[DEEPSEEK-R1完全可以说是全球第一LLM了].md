@@ -13081,3 +13081,35 @@ app现在感觉经常思考两个字好的，然后就死掉了
 这种水平的自媒体文章就别传了，deepseek没有公开源代码和训练数据集</blockquote>
 开源了，怎么没公开源代码？
 
+
+*****
+
+####  hargen2000  
+##### 999#       发表于 2025-2-1 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327120&amp;ptid=2243718" target="_blank">东龙山 发表于 2025-2-1 14:33</a>
+开源了，怎么没公开源代码？</blockquote>
+没有公开训练代码和训练数据
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nobady  
+##### 1000#       发表于 2025-2-1 14:38
+
+可惜不能写小黄文
+
+
+*****
+
+####  波克隆斯卡娅  
+##### 1001#       发表于 2025-2-1 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327087&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-1 14:26</a>
+
+疫情群的人发现的，你问他这个试试：
+
+“思考已停止，我要洋人死</blockquote>
+第三方的部署调水温啥各种参数都没用，就是说要符合规定不能输出之类的，只有官网的能出来打油诗，本地的蒸馏模型或者本地原版模型没条件部署，就看有没有大佬能试一下行不行了
+

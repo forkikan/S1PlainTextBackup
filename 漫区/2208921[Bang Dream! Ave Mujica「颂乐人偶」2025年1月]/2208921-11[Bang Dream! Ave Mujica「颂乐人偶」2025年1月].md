@@ -15251,3 +15251,114 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Licheus  
+##### 16150#       发表于 2025-2-1 14:36
+
+ 本帖最后由 Licheus 于 2025-2-1 14:38 编辑 
+
+祥子都丧失自主性变木头人了还要喷她没去找睦？这俩一个死一个残的，硬要她们给对方做心脏起搏中风康复心理疏导才像话，这些人是瞎的还是傻的啊。
+
+*****
+
+####  江口夕  
+##### 16151#       发表于 2025-2-1 14:37
+
+我再来给你们分析分析大祥现在会怎么样吧。
+
+首先那张纸条上，回灯的话是已经不干了然后揉成一团，所以灯会去说来mygo吧。当然大祥这时候想的是肯定不会再组乐队了。
+
+然后是这集，刻意把祥子放到她爸的位置上让她和她爸感同身受，然而不同的事，祥子有老登这个退路，祥爸已经没了。后面要走的路线基本还是去救老爸。预测大概率是要切割老登了，或者是借钱未来还什么的暂且不谈。
+
+祥爸是什么困境，因为没还168亿所以不可能振作。当然了这168亿具体现实来讲肯定不会一个人欠的，什么内情还有回旋余地，甚至是老登设局的也可能。
+
+最后抛弃祥爸的路线上大祥是不可能成长的。回老登那边也不可能成长。最后大概率是要完全切割老登了。说是168亿，对于大祥能力来说又不是什么完全还不上的债务，加上祥爸的话，大不了还一辈子。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  山ノ内花音  
+##### 16152#       发表于 2025-2-1 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327122&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 14:33</a>
+不这样写怎么会吵这么凶，这集车祥子最多的就是说她不去找睦，搞不好staff就是故意藏着这段剧情让你们吵 ...</blockquote>
+为什么还能如此乐观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16153#       发表于 2025-2-1 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326707&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-1 13:18</a>
+单纯可能是因为13集是暑假排班，不用上课能上早班，5集是上学时间段所以上晚班
+
+剧场版立希也是21点退勤 ...</blockquote>
+那你觉得祥子在上学日每天应该工作多久才能体现她确实在承担赔偿金？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 16154#       发表于 2025-2-1 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327110&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-1 14:30</a>
+但是去不去木家马上就要揭秘了，不是下集就是下下集，除了损坏角色塑造看不出什么藏个两集的理由啊，所以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">可能让观众共振吧，之前又不是没干过
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  novalli  
+##### 16155#       发表于 2025-2-1 14:39
+
+最多也就是这集没空把祥子的行动全部展开罢了，伤害角色形象什么的还远远算不上。一个人的行为完全按时间顺序去写那不是纯纯流水账，看剧情哪有看一部分就下定论的。更何况整整一个月可以做的事情太多了，总要在这集舍弃一部分的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  terry666  
+##### 16156#       发表于 2025-2-1 14:40
+
+<blockquote>天空塔书记官 发表于 2025-2-1 14:34
+我很好奇角色厨到底喜欢的是凤傲天大女主呢，还是丰川祥子这个角色呢
+
+先说自己，我喜欢的是丰川祥子这个角 ...</blockquote>
+我是在这角色风评在母鸡卡动画下跌，加上staff各种恶意安排剧情后，才对这个角色感兴趣的。
+
+对落井下石看乐子没啥兴趣，单纯好奇这角色后期能怎么翻身。
+
+
+*****
+
+####  novalli  
+##### 16157#       发表于 2025-2-1 14:42
+
+等下，灯什么时候说要祥子来mygo了？
+我不懂日语，但那句话应该没这么长吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  晓色暮云  
+##### 16158#       发表于 2025-2-1 14:42
+
+第五集确实有不少伏笔，比如打给祥的电话，喵梦找工作人员干嘛，还有些其他细节。我感觉解散的善后以及木箱关系确实会补充内容，但是也别抱什么期待，制作组已经入魔了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 16159#       发表于 2025-2-1 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开头还有观众说一首歌没听到就结束了，不知道各位要演戏不要音乐的，能不能说服这个观众
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

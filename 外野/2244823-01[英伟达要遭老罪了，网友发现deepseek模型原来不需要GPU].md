@@ -733,3 +733,19 @@ MLA 用的内存倒是真的不多，每个 token 大概也就 576*2*60*sizeof(d
 ds导gguf进ollama，也能CPU跑推理啊，就是 ...</blockquote>
 为什么要训练，你以为老黄卖的是训练，其实老黄卖的是钻石显存跑推理，直接用白菜内存推理不用钻石显存了老黄能不打折吗
 
+
+*****
+
+####  gammatau  
+##### 72#       发表于 2025-2-1 14:40
+
+Unified Memory还真是对的！
+
+
+*****
+
+####  x.cat  
+##### 73#       发表于 2025-2-1 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那内存是不是该涨价了
+
