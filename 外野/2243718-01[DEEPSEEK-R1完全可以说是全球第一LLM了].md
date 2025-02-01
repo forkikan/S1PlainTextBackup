@@ -14200,3 +14200,38 @@ openrouter的免费版也用不了，Too many requests
 
 联网搜索的话能分析推特内容吗
 
+
+*****
+
+####  黄泉川此方  
+##### 1086#       发表于 2025-2-2 05:34
+
+把R1输出的片段，再让GEMINI扩写，神功大成了
+
+*****
+
+####  披头破落户  
+##### 1087#       发表于 2025-2-2 05:35
+
+用硅基的api写文字数一直不多什么情况，要求写5000字只写2000多<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黄泉川此方  
+##### 1088#       发表于 2025-2-2 05:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331173&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-2 05:35</a>
+
+用硅基的api写文字数一直不多什么情况，要求写5000字只写2000多
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+本体的也一样，R1不是很理解5000字到底多长
+
+或者是要求不明确，它就摸鱼了
+
+你可以让它分段写，或者列细纲，要求具体情节
+
+个偷懒的办法，就是把R1输出偏短的，扔给gemini扩写
+
