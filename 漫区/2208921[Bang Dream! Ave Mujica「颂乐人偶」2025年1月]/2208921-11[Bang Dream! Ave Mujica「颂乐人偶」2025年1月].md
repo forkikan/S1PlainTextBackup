@@ -14210,3 +14210,87 @@ MyGO帮助解决其 ...</blockquote>
 
 那才能進下半的劇情
 
+
+*****
+
+####  zhzij111  
+##### 16063#       发表于 2025-2-1 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326075&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-1 11:39</a>
+恰恰相反。
+
+现在都这么多给喵梦洗地的，要真是喵梦救了祥子，那喵梦就成了圣喵，到时候前四集所有屎都会 ...</blockquote>
+给喵梦洗地根本原因是能用喵梦当武器反祥厨，哪有那么多喜欢引流狗的，编剧和观众都爱用，致敬传奇工具人喵梦
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 16064#       发表于 2025-2-1 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326075&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-1 11:39</a>
+
+恰恰相反。
+
+现在都这么多给喵梦洗地的，要真是喵梦救了祥子，那喵梦就成了圣喵，到时候前四集所有屎都会 ...</blockquote>
+你这是场外对线过头的思路了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16065#       发表于 2025-2-1 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326143&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-1 11:52</a>
+
+不是说让祥子下海，是说干客服那点钱也就够自己吃饭，根本没法还违约金，还干这个就表示她实际上没有承担 ...</blockquote>
+虽然但是人家说白了也就16岁女子高中生，前面几集的剧情也已经说明了干客服就是她能找到的最合适的工作，在不偷不抢不黄赌毒的情况下，你觉得一个16岁女子高中生做什么才算是表明她在承担失败的后果？
+
+*****
+
+####  aptx8285144  
+##### 16066#       发表于 2025-2-1 11:58
+
+大瞄的塑造关键作为反派要立起来呀，毕竟素世后来也没给爱音道歉，你看爱音还不大度地没当一回事，<strong>更何况主角是反派被前篇主角救赎或者说主角被前传主角救赎，那好歹只是种命，但是主角垫给反派，或者主角被反派救赎，那是什么作品？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  南宮凝香  
+##### 16067#       发表于 2025-2-1 11:59
+
+燈之前說大祥的歌跟之前不同了，
+
+但這是壞事嗎？
+
+如果祥子跟燈的歌還是跟C團時期一樣
+
+那還需要雞 狗嗎？ 大家合起來搞新C團就行了
+
+就是因為兩人的歌的軸已經不同了
+
+才能成為平行線上互相守望的兩隊樂隊
+
+*****
+
+####  晓色暮云  
+##### 16068#       发表于 2025-2-1 11:59
+
+喵梦不是反派吧，只是要洗白，这集就铺垫了之后重组喵肯定出力的，但是我觉得观感真的很差。地铁宣传里面的台词想一想就觉得变态吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zhzij111  
+##### 16069#       发表于 2025-2-1 12:00
+
+ 本帖最后由 zhzij111 于 2025-2-1 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326164&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-1 11:57</a>
+虽然但是人家说白了也就16岁女子高中生，前面几集的剧情也已经说明了干客服就是她能找到的最合适的工作， ...</blockquote>
+这你得怪编剧啊，钱不用真让小祥自己还，有态度就行，他要是写小祥为了还违约金多打几份工快累死了，然后老登再出来帮她还钱，那观感就没问题了
+
+谁叫编剧这么坏，给了个小祥心死回去当客服麻痹自己，老登就直接跳出来把钱还掉了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

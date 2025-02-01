@@ -12770,3 +12770,14 @@ D指导真的一股咱妈味儿</blockquote>
 
 老是说有服务器问题，整的我现在看到服务器繁忙都不确定是我问的问题不适宜回答，D老师敷衍我一下还是服务器真的又有问题。现在还有没有能正常使用的不是蒸馏版本的DEEPSEEK啊
 
+
+*****
+
+####  bcxzzz  
+##### 975#       发表于 2025-2-1 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326128&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-2-1 11:50</a>
+
+老是说有服务器问题，整的我现在看到服务器繁忙都不确定是我问的问题不适宜回答，D老师敷衍我一下还是服务 ...</blockquote>
+这不有人说硅基流动上了全量的r1么，但是没有联网搜索功能。
+
