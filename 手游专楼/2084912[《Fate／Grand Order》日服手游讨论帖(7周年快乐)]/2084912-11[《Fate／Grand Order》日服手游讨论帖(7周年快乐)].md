@@ -197,3 +197,49 @@
 
 呼符社畜龙来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿提拉  
+##### 16195#       发表于 2025-2-1 17:12
+
+草，开180级了。另外白野可以拿另一个了
+
+*****
+
+####  岸浪白野  
+##### 16196#       发表于 2025-2-1 17:13
+
+奏章3开了，开了180级
+
+<img src="https://img.saraba1st.com/forum/202502/01/171247k6wll1eajdfk0jp6.png" referrerpolicy="no-referrer">
+
+<strong>2FXHSIQ]6B5VL02AL{2S1@G.png</strong> (789.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/01/171242bmbbgo1l9vly1kmv.png" referrerpolicy="no-referrer">
+
+<strong>24KDX944TLR44{)%[@CF4EU.png</strong> (693.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 17:12 上传
+
+*****
+
+####  岸浪白野  
+##### 16197#       发表于 2025-2-1 17:15
+
+一个队不能同时上男女白野<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/01/171512m0i0niix9bci2iq3.png" referrerpolicy="no-referrer">
+
+<strong>90NJS%YR4LD)1%]BU3WTJ_9.png</strong> (398.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 17:15 上传
+

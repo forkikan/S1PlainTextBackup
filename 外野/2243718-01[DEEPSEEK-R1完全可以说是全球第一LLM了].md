@@ -13304,3 +13304,44 @@ https://cloud.siliconflow.cn/i/GX312zX6
 下面结果来自Openrouter，配合了系统 ...</blockquote>
 谢谢大佬，用chatbox调用硅基的api就行，硅基自己后台就不行，太怪了，两者都有System Prompt啊，区别在哪里<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 1019#       发表于 2025-2-1 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327860&amp;ptid=2243718" target="_blank">波克隆斯卡娅 发表于 2025-2-1 17:00</a>
+
+谢谢大佬，用chatbox调用硅基的api就行，硅基自己后台就不行，太怪了，两者都有System Prompt啊，区别在 ...</blockquote>
+API没有system prompt，正确用法就是不加system prompt
+
+
+*****
+
+####  lhh_ah  
+##### 1020#       发表于 2025-2-1 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">硅基流动用两下就网页丢失，是触发屏蔽要素了吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zerona  
+##### 1021#       发表于 2025-2-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327860&amp;ptid=2243718" target="_blank">波克隆斯卡娅 发表于 2025-2-1 17:00</a>
+
+谢谢大佬，用chatbox调用硅基的api就行，硅基自己后台就不行，太怪了，两者都有System Prompt啊，区别在 ...</blockquote>
+问下 你的chatbox 是自己设置一个openai 兼容 还是直接改了deepseek的配置？
+
+*****
+
+####  波克隆斯卡娅  
+##### 1022#       发表于 2025-2-1 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327924&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 17:14</a>
+
+问下 你的chatbox 是自己设置一个openai 兼容 还是直接改了deepseek的配置？</blockquote>
+[https://docs.siliconflow.cn/usercases/use-siliconcloud-in-chatbox](https://docs.siliconflow.cn/usercases/use-siliconcloud-in-chatbox) 我用siliconflow给的设置
+
