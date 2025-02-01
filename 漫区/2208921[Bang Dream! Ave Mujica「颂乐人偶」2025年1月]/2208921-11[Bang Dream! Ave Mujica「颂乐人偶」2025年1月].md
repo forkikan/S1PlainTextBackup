@@ -15463,3 +15463,53 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 16170#       发表于 2025-2-1 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我之前就说独角兽不怎样了，但是祥睦可是她引以为豪的女女关系性，如果后面确实没回忆或者没什么特别的原因给祥睦找补下。我觉得编剧监督怎么喷都不过分
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ml1642879  
+##### 16171#       发表于 2025-2-1 15:31
+
+别带凑友希那节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 16172#       发表于 2025-2-1 15:31
+
+我建议时间线碾过去到地方就翻篇<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">不要对编剧有过高的期待
+
+小祥这一个月没跪没关系，这不还有六七两集嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大丈夫萌大乃  
+##### 16173#       发表于 2025-2-1 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326904&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-1 13:53</a>
+
+祥子的留言里向初华一直以来的帮助致谢了
+
+抱歉是因为没付半个月房租吗？ ...</blockquote>
+还真是高高在上呢
+
+
+*****
+
+####  huxiaopao163  
+##### 16174#       发表于 2025-2-1 15:35
+
+我还是觉得mujica会做出一些观众想不到的新东西
+
+毕竟很多观众还在已知最后一集包饺子，然后倒推前面第几集应该解决谁谁的问题，不然集数就不够了，全是前mygo时代类型片的思路，甚至还没追上mygo的步子
+

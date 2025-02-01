@@ -13152,3 +13152,26 @@ app现在感觉经常思考两个字好的，然后就死掉了
 
 2025-2-1 15:21 上传
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1005#       发表于 2025-2-1 15:31
+
+有无大佬知道硅基流动那个手机网页端大概3条左右的问答就直接卡死关闭了是什么情况，顺便还不能把每次生成的结果留档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+顺便求推荐一个手机端可以用api的app<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moeblack  
+##### 1006#         楼主| 发表于 2025-2-1 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327440&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-1 15:31</a>
+
+有无大佬知道硅基流动那个手机网页端大概3条左右的问答就直接卡死关闭了是什么情况，顺便还不能把每次生成 ...</blockquote>
+ChatBOX 
+
+安卓可以用
+
