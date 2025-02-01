@@ -13333,3 +13333,14 @@ MyGO帮助解决其他人的次要问题是可以的，我之前就说，睦对�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  玖羽  
+##### 15984#       发表于 2025-2-1 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325161&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-1 07:41</a>
+
+恐怕祥子最珍视的玩偶也被毁掉吧。如果母亲留给她的玩偶不毁掉，那么祥子不算一无所有 ...</blockquote>
+现在不能确定，不过顺着这条延长线猜测，这个人偶毁掉可能会成为祥子和丰川家决裂的象征
+
