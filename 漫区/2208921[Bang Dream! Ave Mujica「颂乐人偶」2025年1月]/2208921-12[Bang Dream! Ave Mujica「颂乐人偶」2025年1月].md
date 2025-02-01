@@ -1936,3 +1936,83 @@ https://tieba.baidu.com/p/9457641819?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 
 只能說我們高音世界就是這樣
 
+
+*****
+
+####  凉良  
+##### 16463#       发表于 2025-2-2 00:47
+
+怎么还在自尊啊 现在祥子哪里还有自尊  这大半集连现在完全自我否定状态都看不出么
+
+*****
+
+####  杂灰  
+##### 16464#       发表于 2025-2-2 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329989&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 22:57</a>
+楼友太幽默了，就这staff时隐时现的水准，指望独角兽能写好需要严谨逻辑的阴谋论，我看各位还是洗洗睡吧。
+ ...</blockquote>
+我不同意这个，作为乐队动画来看她这个处理是点出作mygo乐队内核的最好的一手。乐队就是演奏音乐的命运共同体，创造音乐演奏音乐就是乐队的命运，乐队要演奏的音乐是需要所有人承担起各自负责的部分才能完整的演奏，所以乐队才是命运共同体。而演奏音乐必须要有倾听音乐的人，所以乐队必须到舞台上去演出。
+狗对比一般偶像动画最厉害的就是对舞台这个场所的理解大幅领先一般二偶，而诗超绊在作为完美的演出之前，首先是对乐队内核的完美表达。灯能够唤回伙伴最核心的一点就是她的诗是所有人内心的呐喊（音乐），她坚持留在舞台上本质是在向所有伙伴宣告她们的音乐还没有消失，所以心中仍存有呐喊的众人才被吸引回了舞台。她们之所以回到舞台并非因为彼此之间矛盾解决了，只是因为想要演奏的音乐仍在舞台之上，她们重新回到舞台的瞬间是她们蜕变成真正的乐队人的瞬间。最后所有人重新回到舞台，所有人内心的呐喊在灯的诗带领下奇迹般地完美交汇在一起，灯的诗在这一瞬间成为了歌。因为彼此的心声能够组成完美的音乐，所以就算矛盾没解决完，她们也已经是一支乐队了。诗超绊并不只有最后的演出，在灯重回舞台那一刻诗超绊就已经开始了。
+独角兽把情节引向舞台并不是把职责交给演出，而是要让乐队得到舞台。把乐队故事的重心置于舞台上，让乐队概念本身成为奇迹，本身就是对乐队故事最大的尊重。
+
+*****
+
+####  akiomn  
+##### 16465#       发表于 2025-2-2 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在问题是什么才能让祥子振作起来？mujica解散打击直接让祥子彻底变人偶了，还失去了睦。即使后面睦回来了，想让祥子重组mujica，祥子敢答应吗？
+
+*****
+
+####  江口夕  
+##### 16466#       发表于 2025-2-2 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330651&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-2 00:48</a>
+我不同意这个，作为乐队动画来看她这个处理是点出作mygo乐队内核的最好的一手。乐队就是演奏音乐的命运共 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别洗了吧，我评价是不如花田
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  杂灰  
+##### 16467#       发表于 2025-2-2 00:53
+
+ 本帖最后由 杂灰 于 2025-2-2 00:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330663&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-2 00:51</a>
+别洗了吧，我评价是不如花田。真要对剧本自信就不会再做一年了
+
+—— 来自 Xiaomi 23113RKC6C, Android 1 ...</blockquote>
+花田把拉拉那套照搬到gbc也好意思说自己是乐队动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 16468#       发表于 2025-2-2 00:53
+
+……不是说24年就做好了吗 bsd为了炒热度才25年播的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 16469#       发表于 2025-2-2 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330657&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-2 00:50</a>
+现在问题是什么才能让祥子振作起来？mujica解散打击直接让祥子彻底变人偶了，还失去了睦。即使后面睦回来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在想摆脱过家家的命运只有一种解法，切割丰川老登。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  看穿一切的鱼  
+##### 16470#       发表于 2025-2-2 00:54
+
+祥老师一个人背债算不算背负人生了，虽然当客服也还不上钱还是被外公按头了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
