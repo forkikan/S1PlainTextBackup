@@ -15818,3 +15818,59 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 麻美刚死的时候，观众虽然被惊到了，但是觉得只要其他人许愿她复活不就行了，没人会怀疑她后续的戏份，但是随着剧情继续推进，大家发现麻美好像真的就这么死了
 
+
+*****
+
+####  厚乳果珍爽  
+##### 16203#       发表于 2025-2-1 16:38
+
+对了，初华的谎言，有没有可能是mujica二代是是初华骗祥子加入的。
+
+
+*****
+
+####  huxiaopao163  
+##### 16204#       发表于 2025-2-1 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327632&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-1 16:14</a>
+
+假药+加天文学小知识：
+
+忘湖，恐湖，悲湖，爱湾，死湖中只有忘湖在月之暗面。远离人类涉足之地。</blockquote>
+想去圣地巡礼了（
+
+*****
+
+####  akiomn  
+##### 16205#       发表于 2025-2-1 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无口睦就这样无了的话，我毫不怀疑粉丝要把wsd冲烂了，现在的是叫墨缇丝不是若叶睦
+
+*****
+
+####  swessia  
+##### 16206#       发表于 2025-2-1 16:45
+
+莫小姐说的都是真话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+保护睦和睦喜欢的乐队是真的【虽然没保住沟槽的母鸡卡】
+
+睦没死也是真的
+
+小祥再这么个窝囊样睦回不来也是真的
+
+想要叫醒小睦也是真的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然后面一直让我看莫小姐也不是不行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 16207#       发表于 2025-2-1 16:47
+
+得亏莫女士解散后一个月只是在家里自闭，要是出来大闹，这寿司是彻底没得包了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

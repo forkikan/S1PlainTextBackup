@@ -3117,3 +3117,11 @@ mortis是睦自救召唤出的丧尸暴龙兽，第三集末尾的演出明示�
 
 上周一堆人说故事如何，我就觉得这么写才能让mygo合理参加剧情，至少目前为止，确实是这样的处理了
 
+
+*****
+
+####  hulaoda007  
+##### 331#       发表于 2025-2-1 16:36
+
+虽然第四集爆爆爆，但我觉得过渡回是第四集。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

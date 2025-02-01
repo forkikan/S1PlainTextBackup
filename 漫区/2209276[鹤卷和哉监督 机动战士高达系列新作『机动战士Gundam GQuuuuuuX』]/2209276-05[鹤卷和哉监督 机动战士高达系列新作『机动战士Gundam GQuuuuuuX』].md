@@ -3925,3 +3925,30 @@ https://x.com/02Curry/status/1885359473264566663
 
 本来还期待能不能有再次合作的呢
 
+
+*****
+
+####  岸浪白野  
+##### 6232#       发表于 2025-2-1 16:39
+
+ 本帖最后由 岸浪白野 于 2025-2-1 16:42 编辑 
+
+X上刷到赤松健问庵野这段挺搞的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/01/164204c0au0r2qafu30zcc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.86 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 16:42 上传
+
+*****
+
+####  灵魂收割机  
+##### 6233#       发表于 2025-2-1 16:40
+
+<blockquote>岸浪白野 发表于 2025-2-1 16:39
+X上刷到赤松健问庵野这段挺搞的</blockquote>
+Google日翻中升级了吗？感觉比以前明显好些。
+

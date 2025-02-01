@@ -13246,3 +13246,13 @@ ChatBOX
 下面结果来自Openrouter，配合了系统 ...</blockquote>
 可能我哪里操作有问题，系统提示词改了还是不太行<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zfy1989  
+##### 1014#       发表于 2025-2-1 16:42
+
+目前是不是只有官方网站有联网搜索功能（虽然不能用），其他没有
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
