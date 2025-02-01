@@ -2716,3 +2716,17 @@ mortis的本体，或者象征物是镜子，本质是模仿别人。但是镜�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  天空塔书记官  
+##### 16517#       发表于 2025-2-2 04:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331122&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-2 03:55</a>
+那下集是不是该播大象老师个人曲ether了（ 看歌词就是往日一切全被打破了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+这个大结局估计才会放，因为现在祥子还意识不到自己是“以太”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
