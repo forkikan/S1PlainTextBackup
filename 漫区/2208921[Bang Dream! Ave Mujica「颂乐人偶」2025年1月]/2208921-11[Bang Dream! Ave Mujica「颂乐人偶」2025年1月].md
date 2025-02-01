@@ -16453,3 +16453,42 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 灯祥就是明确的鸡狗底层逻辑，从头到尾都是堆料最多的一对，觉得有异味也没办法，可能官方觉得这个才是主味。
 不过灯作为狗核心最先明确的是狗团一个也不能少，祥子要组鸡团最需要的也是对每一个人负责，我不觉得灯祥会和两边的团内关系性有冲突，不如说两边作为核心做好该做的事才是灯祥有进展的前提。不过你觉得这样算是垫了关系性那我也没辙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a611611611  
+##### 16252#       发表于 2025-2-1 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328214&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-1 18:12</a>
+
+祥子搬到初华家已经一段时间了，祥爹又没有饿死，当然有钱了</blockquote>
+不止没有饿死，二三四集可是一次都没有让女儿去警局领人，然后第五集女儿一回来立刻开摆，简直了
+
+
+*****
+
+####  是谁的书画  
+##### 16253#       发表于 2025-2-1 18:32
+
+ 本帖最后由 是谁的书画 于 2025-2-1 18:38 编辑 
+
+本来就是离心离德的队伍，五个人（指4人+莫老师）都满脑子只想自己的事。
+
+互相之间因为自己的事拷打队友不是再合理不过的事情。随便拷打，狠狠拷打。既然如此我观众下场拷打又有什么不行的。
+
+要真说什么事情搞砸了，那祥子一开始建立一个这样的“世界观”再找了怎么样的一帮人，从一开始不就砸了。
+
+等几个人真的思考对方在想什么之后再说吧，现在就一团没沾水的沙子捏都捏不到一块儿去。
+
+*****
+
+####  安娜导函数  
+##### 16254#       发表于 2025-2-1 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328041&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-1 17:36</a>
+拷打是可以，但是拷打到最后的结果是鸡团5个神人，我不好说了，这拷打有啥意义吗？
+
+拷打的前提是无罪的人 ...</blockquote>
+凭大喵老师是编剧那看不见的大手的白手套啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+大喵老师纯纯的编剧工具人，编剧需要一个团灭导火索，大喵老师就来摘面具了，至于后面火药桶爆炸你明显不能把所有锅甩点火的键帽一个人头上嘛，炸药桶不排除炸不是早晚的结局嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

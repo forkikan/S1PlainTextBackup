@@ -130,3 +130,18 @@ Cure Ace把人家整队都要包圆了
 
 今年幼女番竞争有点激烈啊
 
+
+*****
+
+####  bilibilius  
+##### 284#       发表于 2025-2-1 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327572&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-2-1 16:03</a>
+
+Cure Zukyuun キュアズキューン
+
+Cure Kiss キュアキッス
+
+现在扒出来有两位追加战士 这两是否是两妖精不得而 ...</blockquote>
+搜了一下，2chan的贴404了，难道是真的？不知道都是从哪里找到的情报
+
