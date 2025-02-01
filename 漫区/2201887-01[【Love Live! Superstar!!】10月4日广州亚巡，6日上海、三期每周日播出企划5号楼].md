@@ -15019,3 +15019,15 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 东京落的也太惨烈了。
 
+
+*****
+
+####  csolfans  
+##### 1460#       发表于 2025-2-1 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326227&amp;ptid=2201887" target="_blank">黒烨 发表于 2025-2-1 12:07</a>
+东京落的也太惨烈了。</blockquote>
+坛友落了吗？我东京day2二开也落了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

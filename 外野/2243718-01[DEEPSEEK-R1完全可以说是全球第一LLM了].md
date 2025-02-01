@@ -13030,3 +13030,54 @@ app现在感觉经常思考两个字好的，然后就死掉了
 
 这样的车轱辘话，完全不进行时刻
 
+
+*****
+
+####  Azcarlo  
+##### 995#       发表于 2025-2-1 14:26
+
+官方的temperature推荐
+
+<img src="https://img.saraba1st.com/forum/202502/01/142608g8mwyiv4bccq6nqw.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-02-01_14-25-58.png</strong> (164.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 14:26 上传
+
+*****
+
+####  real_zyf  
+##### 996#       发表于 2025-2-1 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327076&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 14:23</a>
+
+是TopP和温度没设置对感觉
+
+实际上是正常的</blockquote>
+同一个ui，只是切换一下地址和key，温度啥的参数都一样的
+
+*****
+
+####  怀沙汨罗  
+##### 997#       发表于 2025-2-1 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327087&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-1 14:26</a>
+疫情群的人发现的，你问他这个试试：
+
+“思考已停止，我要洋人死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没试这么多，但是对比dnd创作感觉和官方app也没啥区别，现在只要不卡就满足了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  东龙山  
+##### 998#       发表于 2025-2-1 14:33
+
+<blockquote>dazzle 发表于 2025-2-1 11:05
+这种水平的自媒体文章就别传了，deepseek没有公开源代码和训练数据集</blockquote>
+开源了，怎么没公开源代码？
+

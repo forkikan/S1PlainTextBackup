@@ -15191,3 +15191,63 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JustW  
+##### 16145#       发表于 2025-2-1 14:29
+
+常看常新
+
+【为什么你把爱音整哭了-哔哩哔哩】 [https://b23.tv/3jFWJSS](https://b23.tv/3jFWJSS)
+
+*****
+
+####  晓色暮云  
+##### 16146#       发表于 2025-2-1 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327084&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 14:25</a>
+祥子那点破事，mygo藏了13集呢
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+但是去不去木家马上就要揭秘了，不是下集就是下下集，除了损坏角色塑造看不出什么藏个两集的理由啊，所以我觉得如果这样演编剧脑子真的不好，不过现在已经不好了说不定真的就是弱智呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Licheus  
+##### 16147#       发表于 2025-2-1 14:32
+
+ 本帖最后由 Licheus 于 2025-2-1 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325426&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-1 09:34</a>
+
+最不自然的地方还是要引入“丰川集团”却只强调了有钱而没明示地位，灯知道了祥子的背景却毫无顾忌，还是像 ...</blockquote>
+毕竟是灯，虽然已经进出过大宅，但可能到这回才知道有丰川集团这回事（而且俗世的伦常跟我企鹅有什么关系）。我猜她甚至对mujica解散这事儿都不太清楚，完全是递了几个月纸条终于得到了回复才展开了下一步行动。
+
+反过来说灯听说tgw是件挺重要的事。她自己也知道，虽然是灵魂之友，但却对小祥了解还太少啊。
+
+*****
+
+####  terry666  
+##### 16148#       发表于 2025-2-1 14:33
+
+<blockquote>晓色暮云 发表于 2025-2-1 14:22
+那这样第五集演出问题太大了，完全没必要后面写这一段回忆
+
+—— 来自 S1Fun ...</blockquote>
+不这样写怎么会吵这么凶，这集车祥子最多的就是说她不去找睦，搞不好staff就是故意藏着这段剧情让你们吵起来。
+
+*****
+
+####  天空塔书记官  
+##### 16149#       发表于 2025-2-1 14:34
+
+我很好奇角色厨到底喜欢的是凤傲天大女主呢，还是丰川祥子这个角色呢
+
+先说自己，我喜欢的是丰川祥子这个角色，尤其是作为创作者的身份，如果制作组在作者性这一点上搞烂活，那我肯定会骂的，至于她是不是大小姐，那只是背景设定而已
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
