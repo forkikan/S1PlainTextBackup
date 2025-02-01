@@ -14024,3 +14024,15 @@ bang几季主要是在积累经验，平衡剧情和live的比重，二三季则
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 16046#       发表于 2025-2-1 11:02
+
+是bang世界第一第二财团大小姐都在划小船，心和夏洛特，第三估计就丰川了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
