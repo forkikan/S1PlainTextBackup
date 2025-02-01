@@ -14183,3 +14183,20 @@ openrouter的免费版也用不了，Too many requests
 
 小白，6750xt 5800x 32gb内存的老电脑能本地部署哪个大小的？
 
+
+*****
+
+####  魔灵高达  
+##### 1084#       发表于 2025-2-2 01:21
+
+不敢玩NSFW是啥意思，实名注册的API跑了NSFW也就自己玩玩又没传播怕毛啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+严重程度甚至不如在Q群里发瑟图吧。这都怕被抓有点闹麻了。反正我是实名玩的
+
+*****
+
+####  zypyong  
+##### 1085#       发表于 2025-2-2 01:25
+
+联网搜索的话能分析推特内容吗
+

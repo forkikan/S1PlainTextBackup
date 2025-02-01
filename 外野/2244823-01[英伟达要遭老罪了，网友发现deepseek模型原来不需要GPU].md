@@ -879,3 +879,13 @@ PCM在LLM推理中的前景取决于：
 
 短期内，PCM更可能作为存储体系的补充，而非核心角色；长期看，若技术成熟且成本可控，可能在特定领域（如边缘AI）占据一席之地。</blockquote>
 
+
+*****
+
+####  廿九  
+##### 79#       发表于 2025-2-2 01:24
+
+今天刚在自家3080电脑上搞了deepseek一键包，32b的模型就是2token每秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
