@@ -13366,3 +13366,80 @@ MyGO帮助解决其他人的次要问题是可以的，我之前就说，睦对�
 
 喵梦渡祥子，祥子渡其他三个
 
+
+*****
+
+####  看穿一切的鱼  
+##### 15987#       发表于 2025-2-1 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325182&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-1 08:03</a>
+这简单
+
+喵梦渡祥子，祥子渡其他三个</blockquote>
+除了大祥真的要重组ccc，我想不到比大喵渡大祥更大的雷点了。<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 15988#       发表于 2025-2-1 08:10
+
+一觉醒来才意识到，祥爹就是故意演的祥子喝酒进局子，怕不是家里的瓶瓶罐罐都是从什么地方搞来的群众演员。祥子一离开家开始巡演，诶，赤羽派出所直接没电话了，家里的瓶瓶罐罐都少了，等祥子重回家里甚至她私人物品都没怎么动过，沟槽的牢爹从局里出来痛哭下跪的地方都是一个地方，您也是中二病附身咯？一个酒鬼怎么可能这么自律，只能说父女都是一伙人，套用前面漏油的话说：命运只有在你什么都不做的时候才垂青丰川父女 ，她们越努力争取什么才越会失去什么。
+
+也就是说其实爹可能根本就没有喝酒的开销，这样也符合他现在烧存款没工作还能生活那么久，祥子打零工开销也够上学吃饭的设计，也不存在祥子给爹赚酒钱。
+
+第二次祥子回家后大概率已经知道爹是不可能心里崩溃到要喝酒麻痹自己，目的只是赶自己走，但是自己也没脸去别的地方，只能默默看爹演戏（牢爹甚至还故意开喵梦的节目来恶心祥子，太坏了）。最后祖父登场说擦屁股了，祥子最终低了头选择借坡下驴又离开了父亲回到了大宅。诶，一个月了，警察局又没电话骚扰咯。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ml1642879  
+##### 15989#       发表于 2025-2-1 08:10
+
+不过也就是卖狗吃太好了，前三季和母鸡卡的逻辑混乱程度其实都差不多，柿本+独角兽看上去是跌落神坛，实则有可能是正常发挥。
+
+*****
+
+####  山ノ内花音  
+##### 15990#       发表于 2025-2-1 08:11
+
+话说一个月武道馆是丰川家的大手
+观众席坐满抽门票困难也是丰川的大手吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 15991#       发表于 2025-2-1 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325192&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-1 08:11</a>
+话说一个月武道馆是丰川家的大手
+观众席坐满抽门票困难也是丰川的大手吗</blockquote>
+这个我懂，官牛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 15992#       发表于 2025-2-1 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324988&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-1 03:07</a>
+该死的控制欲？我寻思祥子也没怎么控制喵梦啊，喵梦都到什么地步了？自己直播间暗示自己是mujica鼓手的身 ...</blockquote>
+有控制欲和自己菜控制不住我寻思也不矛盾啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+嘴上喊着"把你们的人生交给我"，然后乐队运营一言堂这不算控制欲嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangh  
+##### 15993#       发表于 2025-2-1 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325074&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 05:41</a>
+
+我解释一下我的分析逻辑：
+
+MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的时刻救，会严重损 ...</blockquote>
+Mujica也不是什么都没有了，大受欢迎粉丝念念不忘在5集里都表现过好多次。只要能够重组起来，要二次出山确实用不着TGW再出手
+
