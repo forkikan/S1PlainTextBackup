@@ -13613,3 +13613,44 @@ MyGO一定要救一次Mujica，不救说不过去，但是如果在最低谷的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wwwttth  
+##### 16009#       发表于 2025-2-1 09:17
+
+<blockquote>月光润色 发表于 2025-2-1 01:45
+是我看漏了吗，没记得哪里说母鸡卡这么火是祥子爷爷的大手按出来的</blockquote>
+因为武道馆演出要提前3-4月定吧，这意味着还没组好团就定好武道馆了，或者后面插入的预订，都是有“大手”才有的操作。
+
+甚至发散点，说不定和老登的“协议”里就包括让武道馆满席这条
+
+*****
+
+####  一心而用  
+##### 16010#       发表于 2025-2-1 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325332&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 09:06</a>
+我怀疑跟米泽说过的丰川集团黑暗面有关，如果喵梦是其中的关键人物，很多事都能说通 ...</blockquote>
+讲到对抗财阀才是引发烂片雷达的点，希望主创不要挑战自己驾驭不了的东西。
+
+*****
+
+####  山ノ内花音  
+##### 16011#       发表于 2025-2-1 09:21
+
+难道现在不烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 16012#       发表于 2025-2-1 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325339&amp;ptid=2208921" target="_blank">look900822 发表于 2025-2-1 09:09</a>
+说起来，mtm爹妈明明没有任何虐待或者夫妻不和的描写，却风评变成最差的了。工作忙就变得比祥爹还恶劣了
+
+ ...</blockquote>
+如果大莫老师只是把自己关了一周还能用忙来解释，但这都一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的一个月都没时间管管吗。而且前面请假的时候也说了睦她妈是知道睦闭门不出的，并不是完全不知情
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
