@@ -14585,3 +14585,144 @@ kkr去月之森怕不是第二天就要把学校买下来了。我看是月之�
 ？？日本高中生是可以每周合法打工40小时以内的，老板为什么不敢招？</blockquote>
 因为邦多利世界观其他角色的打工基本都是比较轻松正常阳光的工作环境，客服这种工作我是不认为适合未成年的
 
+
+*****
+
+####  安娜导函数  
+##### 16100#       发表于 2025-2-1 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326169&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-1 11:58</a>
+大瞄的塑造关键作为反派要立起来呀，毕竟素世后来也没给爱音道歉，你看爱音还不大度地没当一回事，更何况主 ...</blockquote>
+是布鲁斯.韦恩<img src="https://static.saraba1st.com/image/smiley/carton2017/298.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16101#       发表于 2025-2-1 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326367&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-1 12:29</a>
+
+kkr读划小船不是看准了月之森个顶个都是神人嘛</blockquote>
+也有可能其实是当时还没有明确的月之森设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过以kkr的性格，月之森也确实不适合她
+
+*****
+
+####  南宮凝香  
+##### 16102#       发表于 2025-2-1 12:35
+
+祥子4點下班本來就是尷尬的時間點
+
+上學日4點下班約等於沒上班
+
+不上學日4 點下班比正常下班時間早了一小時左右
+
+只能解釋為當天她有事早退了
+
+平日上晚班， 下課後幹到晚9 
+
+周末9-5 
+
+那樣一周也上了30小時的班了
+
+以學生來說是很拚
+
+*****
+
+####  wwwttth  
+##### 16103#       发表于 2025-2-1 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326392&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 12:31</a>
+
+这样搞，肯定不止睦
+
+世上再也没有丰川祥子、若叶睦、三角初华、祐天寺若麦、八幡海铃
+
+只有欧老师、莫老师 ...</blockquote>
+如果他真敢这么编也是旷世神作，5个人格杀死自己原来的人格然后重新组乐队也太吊了。
+
+*****
+
+####  JustW  
+##### 16104#       发表于 2025-2-1 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326404&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-1 12:33</a>
+因为邦多利世界观其他角色的打工基本都是比较轻松正常阳光的工作环境，客服这种工作我是不认为适合未成年 ...</blockquote>
+高中生当客服比高中生组商业乐队上武道馆要合适114514倍
+
+*****
+
+####  yozoraxsx  
+##### 16105#       发表于 2025-2-1 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322601&amp;ptid=2208921" target="_blank">downnote 发表于 2025-1-31 19:35</a>
+一直没看这片最近两周才补完，本来看第二季宣传画还以为和海猫有啥关系结果似乎没有？
+
+如果按遗产争夺战的 ...</blockquote>
+如果这么搞 这老舅很可能叫若叶隆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  晓色暮云  
+##### 16106#       发表于 2025-2-1 12:41
+
+什么五人凝聚团魂这么正能量的剧情不适合鸡了，只有比假药还野才能救了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古明地雷  
+##### 16107#       发表于 2025-2-1 12:42
+
+kkr在划小船是因为那时候没有月之森的设定吧。。。
+
+*****
+
+####  刑部姬真可爱  
+##### 16108#       发表于 2025-2-1 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326425&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-1 12:35</a>
+
+祥子4點下班本來就是尷尬的時間點
+
+上學日4點下班約等於沒上班</blockquote>
+感觉她周末应该也是9到9，如果把祥子在第13集客服工作结束去找睦看作连贯的话，那么她没必要在五点钟就能下班前提前几十分钟早退，当然也或许在之前她的周末工作时间就只到四点
+
+*****
+
+####  Renes  
+##### 16109#       发表于 2025-2-1 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326425&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-1 12:35</a>
+
+祥子4點下班本來就是尷尬的時間點
+
+上學日4點下班約等於沒上班</blockquote>
+祥子4点那次下班应该是母鸡卡初公演的日子，也是初公演大获成功后，她就不再去当客服了。
+
+*****
+
+####  影伴光生  
+##### 16110#       发表于 2025-2-1 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325682&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 10:36</a>
+祥子解散后没管睦头人，我感觉是编剧故意的，后面反转的时候保不定来一段祥子多次去睦头人家被拒之门外的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这已经把风评都滑完了，真的OK吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 16111#       发表于 2025-2-1 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326481&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-1 12:42</a>
+
+祥子4点那次下班应该是母鸡卡初公演的日子，也是初公演大获成功后，她就不再去当客服了。 ...</blockquote>
+不可能，那次下班之后的剧情接的是去找睦，而祥子本身对睦是否会参加是有疑虑的，不太可能就提前安排好公演相关的工作
+

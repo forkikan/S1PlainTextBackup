@@ -410,3 +410,23 @@ shareit还活着啊，劳资十年前的投资还没能退出，艹
 
 啊不好意思，这个他们是不是也没有啊？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starash  
+##### 42#       发表于 2025-2-1 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326421&amp;ptid=2244815" target="_blank">膛线 发表于 2025-2-1 12:34</a>
+
+全能扫描王有水印是不好用，现在我都用华为自带的扫一扫
+
+啊不好意思，这个他们是不是也没有啊？ ...</blockquote>
+iPhone的扫描功能又不是假的。
+
+*****
+
+####  starash  
+##### 43#       发表于 2025-2-1 12:41
+
+居然没禁小红书，看来关系还不大。
+

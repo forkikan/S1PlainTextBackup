@@ -579,3 +579,16 @@ deepaeek以前类似参数的模型cpu跑也是这个速度，deepseek是提升�
 至于速度，2t/s是太慢了，但1000t/s也对本地 ...</blockquote>
 有思维链的话输出还是得更高一些，毕竟思维链一般不会全看。
 
+
+*****
+
+####  lqf3dnow  
+##### 58#       发表于 2025-2-1 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324773&amp;ptid=2244823" target="_blank">宏. 发表于 2025-2-1 01:11</a>
+
+对，这个案例实际是说CPU/GPU就不是本地运行的瓶颈，瓶颈是在满足足够存储容量之后的存储带宽，显然用显 ...</blockquote>
+PCIE5.0 4x的SSD，平均带宽只有10GB/s，如果全部放在服务器多通道内存里，内存带宽有1TB左右，就算放到洋垃圾第一代志强服务器双路6通道ddr4-2666上，内存带宽也有248GB/s，这样搭配32GBx24内存，可以用不到1W元的价格攒出一台768GB内存的双路服务器，可以运行671B的全量模型。
+
+如果优化好双路NUMA节点，达到20token的速度的速度不难，毕竟用SSD跑都有2~3token的速度
+
