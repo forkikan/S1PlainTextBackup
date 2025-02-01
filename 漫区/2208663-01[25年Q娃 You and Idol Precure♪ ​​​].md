@@ -171,3 +171,31 @@ Cure Kiss キュアキッス
 
 有人传了玩具破解视频 石锤了
 
+
+*****
+
+####  Piano-Forest  
+##### 288#         楼主| 发表于 2025-2-1 22:17
+
+[https://x.com/sugimoto_mi_ho_/status/1885247666877325552](https://x.com/sugimoto_mi_ho_/status/1885247666877325552)
+
+放送も明後日からですね🎀
+<img src="https://p.sda1.dev/21/e32f6fef091d38fa2fd2dd168028a256/20250201_221056.jpg" referrerpolicy="no-referrer">
+
+いよいよ明日、1話放送です🎀
+
+応援よろしくお願いします🫶🏻️✨
+<img src="https://p.sda1.dev/21/3da0229ff1a5360175b94e9668345d9e/20250201_221059.jpg" referrerpolicy="no-referrer">
+
+2月1日は、「フレッシュプリキュア！」(2009年)第1話「もぎたてフレッシュ！キュアピーチ誕生！！」の放送から16年です。
+
+Peach &amp; Idol
+[https://x.com/DanngoDaisuki/status/1885658617631985796](https://x.com/DanngoDaisuki/status/1885658617631985796)
+
+#プリキュアの日 という事で…
+
+勝手に最新のプリキュアとコラボしたったわ〜〜😁
+
+らくがき状態からもう少し線を整理して清書しようかとも思いつつ🤔またそれは気が向いた時に😅
+<img src="https://p.sda1.dev/21/1de8fceba09352796f0de99a52294a98/20250201_221336.jpg" referrerpolicy="no-referrer">
+

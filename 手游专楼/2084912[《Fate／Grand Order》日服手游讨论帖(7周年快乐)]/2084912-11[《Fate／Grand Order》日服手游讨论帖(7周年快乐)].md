@@ -317,3 +317,23 @@
 就那样了</blockquote>
 升到180級就只是加了1點cost???
 
+
+*****
+
+####  岸浪白野  
+##### 16206#       发表于 2025-2-1 22:23
+
+ 本帖最后由 岸浪白野 于 2025-2-1 22:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329692&amp;ptid=2084912" target="_blank">eilot 发表于 2025-2-1 22:13</a>
+
+升到180級就只是加了1點cost???</blockquote>
+如果你还想要除了加1点cost的还要别的那还是有，2点AP吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/01/222350h00qbuzlwvklzl6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 22:23 上传
+

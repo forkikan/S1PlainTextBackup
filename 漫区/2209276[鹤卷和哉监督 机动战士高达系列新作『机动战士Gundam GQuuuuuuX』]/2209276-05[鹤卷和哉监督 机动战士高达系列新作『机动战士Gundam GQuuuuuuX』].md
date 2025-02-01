@@ -4080,3 +4080,40 @@ X上刷到赤松健问庵野这段挺搞的</blockquote>
 
 但是正常来说目标应该是25亿吧，不管怎么样超过相逢在宇宙的23亿拿到系列第二应该没问题
 
+
+*****
+
+####  0aleph37  
+##### 6247#       发表于 2025-2-1 22:16
+
+再来几次高质量新特典才有可能30e
+
+我记得有张图上GQX是四月上旬下院线，还有2个月时间磨
+
+*****
+
+####  王留美  
+##### 6248#       发表于 2025-2-1 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329718&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-1 22:16</a>
+
+再来几次高质量新特典才有可能30e
+
+我记得有张图上GQX是四月上旬下院线，还有2个月时间磨 ...</blockquote>
+第三周没有新特典满神奇的，一点都不像庵野（
+
+*****
+
+####  王留美  
+##### 6249#       发表于 2025-2-1 22:18
+
+<img src="https://img.saraba1st.com/forum/202502/01/221852u3ah9ho3s6z00s36.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 22:18 上传
+
+嗯？
+

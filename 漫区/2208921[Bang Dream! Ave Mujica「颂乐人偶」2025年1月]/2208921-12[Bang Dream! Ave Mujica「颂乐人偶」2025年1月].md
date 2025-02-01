@@ -1196,3 +1196,118 @@ zqsg黑捧角色都没意义，平生最烦编剧存在感过高的剧本，和�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  影伴光生  
+##### 16394#       发表于 2025-2-1 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大部分地方都在塔塔开，只有像孕吧这种本来就在写狠活的地方仍然一团和气，纷纷表示还是原作编剧更能编，比r18g同人还要跳脱
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 16395#       发表于 2025-2-1 22:17
+
+ 本帖最后由 玖羽 于 2025-2-1 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329673&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-1 22:10</a>
+
+其实袋小路前面就有，是鸡团的经纪人，这个意向不是专门针对喵梦的</blockquote>
+不是这样的，这一话特地给了来电显示的画面，上面明晃晃的三个字，这动画没有细节是多余的
+
+*****
+
+####  烂片雷达  
+##### 16396#       发表于 2025-2-1 22:18
+
+祥子现在还是有所牵挂的，她并不是缺少勇气的人，断舍离也非常果断，如果真的了无牵挂生无所恋估计已经跳了
+没跳说明世上还有她牵挂的人和事，已知肯定不会惦记着千亿家产，到底会是什么让祥子没有彻底心死呢，是睦还是灯还是音乐或者是老爹呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 16397#       发表于 2025-2-1 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329699&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-1 22:14</a>
+
+单乐队只靠自己冲人数填票，又不是没有，RAS三章终篇就是啊，场地自己搭的，器材自己凑的，表演就是嗯弹嗯 ...</blockquote>
+你这RAS三章还不是编剧写的，有没有现实点的例子
+
+*****
+
+####  凉良  
+##### 16398#       发表于 2025-2-1 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329716&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-1 22:16</a>
+大部分地方都在塔塔开，只有像孕吧这种本来就在写狠活的地方仍然一团和气，纷纷表示还是原作编剧更能编，比 ...</blockquote>
+孕吧是哪个
+
+*****
+
+####  ntrntr1  
+##### 16399#       发表于 2025-2-1 22:19
+
+<blockquote>影伴光生 发表于 2025-2-1 22:16
+大部分地方都在塔塔开，只有像孕吧这种本来就在写狠活的地方仍然一团和气，纷纷表示还是原作编剧更能编，比 ...</blockquote>
+谁编5个g的西施初华妨碍夫差祥子作曲晚上一起睡觉共度良宵美色害人的
+
+*****
+
+####  Lyzers  
+##### 16400#       发表于 2025-2-1 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少初华是说过保密义务这个内容的，所以你鸡肯定是有这玩意的，但是却给你写了散团的赔偿金，没写违反保密义务的处罚
+
+
+*****
+
+####  ntrntr1  
+##### 16401#       发表于 2025-2-1 22:20
+
+<blockquote>烂片雷达 发表于 2025-2-1 22:18
+祥子现在还是有所牵挂的，她并不是缺少勇气的人，断舍离也非常果断，如果真的了无牵挂生无所恋估计已经跳了 ...</blockquote>
+是三角
+
+—函数
+
+*****
+
+####  wwwttth  
+##### 16402#       发表于 2025-2-1 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329730&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 22:17</a>
+
+不是这样的，这一话特地给了来电显示的画面，上面明晃晃的三个字，这动画没有细节是多余的
+
+再说就算是Mu ...</blockquote>
+我知道，我的意思的可能这个画面结合5话开头喵去找工作人员，可能只是请鸡团经纪人继续担当自己的经纪人，不一定要滑到资本大手的程度
+
+*****
+
+####  天空塔书记官  
+##### 16403#       发表于 2025-2-1 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329742&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-1 22:18</a>
+你这RAS三章还不是编剧写的，有没有现实点的例子</blockquote>
+那你是在看动画还是看记录片，承认祥子靠大手上个武道馆就那么难吗，要是真没才华票也卖不出去啊
+
+你不能只在角色遭罪的时候才讨论现实性
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 16404#       发表于 2025-2-1 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329753&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-1 22:20</a>
+
+我知道，我的意思的可能这个画面结合5话开头喵去找工作人员，可能只是请鸡团经纪人继续担当自己的经纪人 ...</blockquote>
+哦，你没明白，我的意思是这三个字在画面上出现，是对剧外观众的暗示
+
+这个经纪人早就有了，和这三个字直接出现，意义是不一样的
+
