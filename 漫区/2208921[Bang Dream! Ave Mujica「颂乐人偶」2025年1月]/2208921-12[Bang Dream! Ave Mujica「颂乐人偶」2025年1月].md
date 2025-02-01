@@ -560,3 +560,45 @@ https://tieba.baidu.com/p/9460690 ...</blockquote>
 
 喵夢正面跳反的怎也算不進背叛者
 
+
+*****
+
+####  是谁的书画  
+##### 16333#       发表于 2025-2-1 21:08
+
+下集预告里不都已经跑到喘了嘛，这多少得跑到下下周去了
+
+*****
+
+####  姜饼人  
+##### 16334#       发表于 2025-2-1 21:11
+
+剧透看完了，其实这剧最神秘的是初祥的过去吧，没见过有剧透的，宁愿把最大的阴谋透出来都不透初祥过去
+
+*****
+
+####  stevenzero  
+##### 16335#       发表于 2025-2-1 21:12
+
+为什么会有人想在邦邦看普通人见到大小姐自惭形秽的情节啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+可惜最接近这种情况的蝶团实际情况是4个富婆包养主唱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 16336#       发表于 2025-2-1 21:13
+
+mortis的出现也在计划中吗，这有点夸张了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ntrntr1  
+##### 16337#       发表于 2025-2-1 21:14
+
+虽然初华是背叛者比较合理，但要是背叛方式就是天天诱惑祥子多喝热水早点睡觉耽误她作曲那也太温柔了吧。。。。
+
+第四集闹麻了虽然她0输出但好像也没干啥（）
+
