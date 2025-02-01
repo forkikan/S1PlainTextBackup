@@ -304,3 +304,16 @@
 还是就加了1点cost<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 就那样了
 
+
+*****
+
+####  eilot  
+##### 16205#       发表于 2025-2-1 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329355&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2025-2-1 21:30</a>
+
+还是就加了1点cost
+
+就那样了</blockquote>
+升到180級就只是加了1點cost???
+

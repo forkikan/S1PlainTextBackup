@@ -1121,3 +1121,78 @@ sumimi对邦还要上台啊，怎么可能解散<img src="https://static.saraba1
 
 大喵保持目前的人设是最好洗的，一个平民出身的角色带一点功利市侩太正常了，这集大家不都吐槽没法和祥子这种大小姐共情吗？那大喵这种平民家人侠只要给点煽情正面剧情还怕洗不动吗？
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 16388#       发表于 2025-2-1 22:06
+
+<blockquote>岬开斗 发表于 2025-2-1 21:54
+你觉得现在的祥和喵的负面塑造跟anon爱慕虚荣是一个等级的？</blockquote>
+在我看来她俩根本就不算什么特别大的事的“负面塑造”，祥子，自尊太高导致出事就容易自顾不暇伤害身边人&amp;“脑子里只想着自己”，喵梦，为了个人事业得罪队友，就这而已。小孩子做事看不清成人社会的规则搞成过家家这很少见吗，成年人创业比这弱智的多了去了。爱音前期为了主唱位置故意给灯指派什么三角铁打响板要说也是很伤人的，只不过灯天然呆不在意。
+
+祥子要不是有些场外弱智提前吹什么大女主看不得一点挫折戏份现在其实都不会风评反噬的那么厉害，我个人来说觉得祥子犯的这些错作为一个高中生就是没什么，很正常，喵梦也没什么好指责的（睦那种疯了的戏码明显就是烂炒噱头夸大演出，我一点都不担心睦肯定最后会自我和解而且和祥子重修旧好），要怪其实根源在于剧情设定非得加什么最速武道馆，最狂乐队番这些东西，就好像网文动不动就这个神那个魔境界秒境界一样，越堆越low
+
+*****
+
+####  玖羽  
+##### 16389#       发表于 2025-2-1 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329625&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 22:05</a>
+
+大喵保持目前的人设是最好洗的，一个平民出身的角色带一点功利市侩太正常了，这集大家不都吐槽没法和祥子这 ...</blockquote>
+反过来推理，喵梦现在的艺人生涯看起来蒸蒸日上，已知喵梦最后肯定要回去打鼓，请问怎么完成这个转变
+
+如果喵梦的艺人生涯遇到挫折（无论出于什么原因），然后才回去打鼓，这个角色才叫烂完了
+
+如果喵梦的艺人生涯一直不错，仅仅由于找回了热爱才回去打鼓，无论如何都会看起来很强行
+
+所以纯粹从理论上分析，只有让喵梦<strong>主动亲手</strong>毁掉她现在的艺人生涯，她回去打鼓才不毁角色并且不强行
+
+喵梦为什么要这么干，唯一说得通的解释是，她现在的艺人生涯不是她凭本事赚来的，而是做了什么事情之后有人赏给她的
+
+先不说愧疚不愧疚这种话，喵梦必须认识到她现在的艺人生涯是“伪物”，是“袋小路”
+
+第五话还有一个细节，初华和喵梦还在同一个公司，但是相互之间特别冷淡
+
+*****
+
+####  huxiaopao163  
+##### 16390#       发表于 2025-2-1 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329570&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-1 21:56</a>
+
+我们至今仍不知道喵梦违反保密协议的违约处罚究竟是什么</blockquote>
+惩罚你参加各种综艺节目和舞台剧视镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 16391#       发表于 2025-2-1 22:08
+
+zqsg黑捧角色都没意义，平生最烦编剧存在感过高的剧本，和摄像师存在感过高的镜头，就现在这个样还辩论什么🐘幼稚病🐱心机婊，大家一样烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 16392#       发表于 2025-2-1 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329640&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 22:06</a>
+
+反过来推理，喵梦现在的艺人生涯看起来蒸蒸日上，已知喵梦最后肯定要回去打鼓，请问怎么完成这个转变
+
+如 ...</blockquote>
+其实袋小路前面就有，是鸡团的经纪人，这个意向不是专门针对喵梦的<img src="https://tiebapic.baidu.com/forum/w%3D720%3Bq%3D80/sign=cb073b3dfa315c60439569edbd8aba2e/2f738bd4b31c87018a7225ce617f9e2f0608ffd6.jpg?tbpicau=2025-02-03-05_be37bda9d25820b43aaca7906eb58bf1" id="aimg_TP8As" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  天空塔书记官  
+##### 16393#       发表于 2025-2-1 22:14
+
+单乐队只靠自己冲人数填票，又不是没有，RAS三章终篇就是啊，场地自己搭的，器材自己凑的，表演就是嗯弹嗯敲嗯唱，宣传靠自己账号号召粉丝，结果网络直播还被大手掐了，最后硬是靠现场观众人力直播和邦邦全七团所有成员接力转发冲爆了隔壁当红乐队的顶级舞台，这才叫“<strong>才华战胜资本</strong>”，你祥子做得到吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
