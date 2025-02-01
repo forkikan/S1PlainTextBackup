@@ -16083,3 +16083,47 @@ BangDream 劇場版 逆襲的Ob一串字母
 
 B站是“不要再来了”了吧，问题不大
 
+
+*****
+
+####  yozoraxsx  
+##### 16222#       发表于 2025-2-1 17:28
+
+我是觉得大祥老师开局明显高高在上，先拷打一圈让大家平起平坐也不奇怪吧？最后还是祥神的话其他四个人谷子咋卖？游戏里排列组合咋排？
+
+
+*****
+
+####  哈曼的YY  
+##### 16223#       发表于 2025-2-1 17:33
+
+真的和卖狗镜像的话 前面先组无名乐队 到最后一集才重新戴上面具取回ave mujica这个名字吧
+
+*****
+
+####  akiomn  
+##### 16224#       发表于 2025-2-1 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328000&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 17:28</a>
+我是觉得大祥老师开局明显高高在上，先拷打一圈让大家平起平坐也不奇怪吧？最后还是祥神的话其他四个人谷子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拷打是可以，但是拷打到最后的结果是鸡团5个神人，我不好说了，这拷打有啥意义吗？
+
+*****
+
+####  厚乳果珍爽  
+##### 16225#       发表于 2025-2-1 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327942&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-2-1 17:16</a>
+
+话说最后祥子在灯的便利贴上到底写了啥，b站字幕是“不要再来了”被说翻译的很有问题？ ...</blockquote>
+mo yamede
+
+够了，别这样。
+
+*****
+
+####  杂灰  
+##### 16226#       发表于 2025-2-1 17:37
+
+感觉最后灯祥饺子也有可能不是大家想象中那种和解，祥子为了重新成为值得自己骄傲的人而努力，在重新拥有面对灯的自信前仍会回避灯，而灯心里祥子永远是绽放骄傲的重要之人，会一直追逐着祥子
+
