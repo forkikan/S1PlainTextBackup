@@ -13451,3 +13451,13 @@ deepseek-ai/DeepSeek-R1
 
 cline 的ollama本地版 的prompt是不是有问题？无休止的重复直到耗光所有上下文空间报错？
 
+
+*****
+
+####  andychen  
+##### 1032#       发表于 2025-2-1 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327986&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 17:25</a>
+再问个事 我在把硅基流动的r1添加到沉浸式翻译的时候。思考过程也被翻译并写到页面上了。有什么办法删去思 ...</blockquote>
+网页翻译用r1太贵太笨重了，cot部分也计入输出token数
+
