@@ -784,3 +784,114 @@ Mortis跟背叛扯不上关系，说复仇者还差不多，再说其他人谁�
 
 （千万不要是丰川家毁约把喵梦一脚踢开喵梦才悔悟，那样才真完蛋了）
 
+
+*****
+
+####  稀勢のささ  
+##### 16354#       发表于 2025-2-1 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329305&amp;ptid=2208921" target="_blank">花スープ 发表于 2025-2-1 21:23</a>
+
+昨天我就在疑惑，一个哥特金属怎么开 live 能开出包饺子的效果。如果真是为了反抗大手，那还真能用这个路 ...</blockquote>
+不用家族资源非要证明自己，就之前大祥的表现其他几个人凭啥陪着她啊，靠催眠APP吗？哦对 按编剧们喜欢回旋镖的尿性该下跪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过还得先想办法跟所有人宣布和大手切割了，不然怕是改不了在剧里路人眼中的大小姐过家家评价
+
+*****
+
+####  terry666  
+##### 16355#       发表于 2025-2-1 21:38
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-1 21:26
+初华就算是内鬼估计最多就是及时跟丰川家联络一下祥子的状态，好让外公知道大概什么时候出手“恶意赔偿”让 ...</blockquote>
+现在很多人就是想把过家家这个帽子给祥子去掉啊。因为这三个字直接把角色形象打到谷底，还成了路人观众嘲讽大祥的黑点了。前面那一屁股感情债大家也就吐槽下，真正从第五话过家家这个梗一出才开始变成万人嘲的。
+
+关键过家家这个帽子不是单纯包饺子能摘掉的，还真得下点狠料。
+
+*****
+
+####  一心而用  
+##### 16356#       发表于 2025-2-1 21:40
+
+灯希党
+<img src="https://p.sda1.dev/21/dea812e9c3126606d9a8c26517d18aad/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/190ed69119d7bc52b8c25ce3b3869b2e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0cf31870fdb4e5a50f8b3fb98e3157e0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/83febf9f579c5b7f329466d577ccb800/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  月光润色  
+##### 16357#       发表于 2025-2-1 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这说的我有点接受不了，要是祥乐队火起来靠的是大手的话从根上就否定这个角色了。一切的执着努力和坚强都是在爷爷大手下打转的话，这剧到底是拍给谁看的。
+
+
+*****
+
+####  terry666  
+##### 16358#       发表于 2025-2-1 21:42
+
+<blockquote>玖羽 发表于 2025-2-1 21:35
+Mortis跟背叛扯不上关系，说复仇者还差不多，再说其他人谁知道Mortis存在
+
+喵梦背叛者这个是很容易想到的 ...</blockquote>
+大喵现在风评和祥子比都没好到哪去，真要再安排她是内鬼，祥子风评救不救的回来不好说，大喵怕是也跟着完蛋了。
+
+编剧不止一次给这角色上家人侠和努力家的buff，我觉得她的负面剧情应该到此为止了，后面就是尽量挽回风评了。
+
+*****
+
+####  天空塔书记官  
+##### 16359#       发表于 2025-2-1 21:42
+
+所以不是过家家吗，你祥子不靠资本能上武道馆和开巡演?
+
+器材场地盒饭钱靠当客服出? 原来打电话这么挣钱啊，移动联通电信知道吗?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  terry666  
+##### 16360#       发表于 2025-2-1 21:43
+
+<blockquote>月光润色 发表于 2025-2-1 21:41
+这说的我有点接受不了，要是祥乐队火起来靠的是大手的话从根上就否定这个角色了。一切的执着努力和坚强都是 ...</blockquote>
+那可能staff内部有资深老头控
+
+
+*****
+
+####  北条早苗  
+##### 16361#       发表于 2025-2-1 21:44
+
+按照祖宗之法，鸡团重组还是得从space、circle、ring这三个出生点选一个的，现在饺子难包就是因为大喵和海铃这两个有什么必要非要跟着你们大小姐一起玩地下band,再搞什么财团大手是怕剧情还不够暴走吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16362#       发表于 2025-2-1 21:44
+
+你不能只在角色遭罪的时候才考虑现实性
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 16363#       发表于 2025-2-1 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329419&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 21:38</a>
+
+现在很多人就是想把过家家这个帽子给祥子去掉啊。因为这三个字直接把角色形象打到谷底，还成了路人观众嘲 ...</blockquote>
+你要明白，祥子是格里菲斯，在祥子彻底失去一切之前，是不会反弹的（即使看似有也是虚假的）
+
+这个一切当然包括丰川家的财富，所以“含泪回家继承万亿家产”这个退路肯定会被毁掉
+
+但凡你能想到的，祥子还有什么办法（先不管你喜不喜欢、毁不毁角色），这些办法都会给你一项一项找出来然后毁掉，对这一点不要抱有幻想
+

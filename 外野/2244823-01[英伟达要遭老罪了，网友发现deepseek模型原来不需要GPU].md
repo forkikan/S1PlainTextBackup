@@ -769,3 +769,11 @@ Unified Memory还真是对的！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  btnooni  
+##### 76#       发表于 2025-2-1 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仔细看了下他这速度还是四通道单SSD跑出来的，提出四倍SSD也是为了抛砖引玉他自己并没有设备可以测。当然能跑2T/s跟96GB内存也有关系所以哪怕四条SSD搞raid0也不可能就变8T/s了，具体还是等人实测出结果。然后PCIe5.0 SSD貌似就没有500GB的，1T组四个还要找扩展卡价格有点冤种，但整套加起来大概也就一个4090（前提是能用。
+

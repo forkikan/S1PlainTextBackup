@@ -13758,3 +13758,51 @@ https://cloud.siliconflow.cn/i/dE7Rl30G
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  精钢魔像  
+##### 1051#       发表于 2025-2-1 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329357&amp;ptid=2243718" target="_blank">lhh_ah 发表于 2025-2-1 21:31</a>
+
+我硅基流动的用一会网页就崩溃了，本家不会。用V3不用R1也一样
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+edge么，开着b站吗，n卡吗，开着hdr吗——可能是win11的问题。
+
+我的解决方法是按一下ctrl+alt+del，再回去。
+
+*****
+
+####  qqks  
+##### 1052#       发表于 2025-2-1 21:37
+
+它的api有用啊，拿来跑cline什么的都可以，不要太爽
+
+*****
+
+####  shinjia  
+##### 1053#       发表于 2025-2-1 21:39
+
+ 本帖最后由 shinjia 于 2025-2-1 21:40 编辑 
+
+&amp;#x8C22;&amp;#x8C22;&amp;#x9080;&amp;#x8BF7;&amp;#x7801;
+
+&amp;#x7EE7;&amp;#x7EED;&amp;#x4F20;&amp;#x706B;:
+[https://cloud.siliconflow.cn/i/4FfjuHwz](https://cloud.siliconflow.cn/i/4FfjuHwz)
+
+*****
+
+####  黄泉川此方  
+##### 1054#       发表于 2025-2-1 21:40
+
+这硅基流动注册一定要+86吗
+
+*****
+
+####  逆转纹章  
+##### 1055#       发表于 2025-2-1 21:41
+
+硅基流动的api,我怎么感觉审核还挺严的，是我的破限词有问题吗
+
