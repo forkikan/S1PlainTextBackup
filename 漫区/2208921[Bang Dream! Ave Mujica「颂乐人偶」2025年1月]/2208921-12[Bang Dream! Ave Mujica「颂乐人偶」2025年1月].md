@@ -356,3 +356,128 @@ MyGO第一话爱音问祥子要不要组乐队的时候，祥子正要关上钢�
 https://tieba.baidu.com/p/9460690 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是大喵内鬼说，对已经烂掉的角色形象有什么正面意义吗
 
+
+*****
+
+####  是谁的书画  
+##### 16313#       发表于 2025-2-1 20:38
+
+商业化还在追我 😭
+
+*****
+
+####  DeltaStriker  
+##### 16314#       发表于 2025-2-1 20:38
+
+那也太搞了吧 搞半天是祥子不知道有自己家的人赞助被演了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  huxiaopao163  
+##### 16315#       发表于 2025-2-1 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328974&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-2-1 20:35</a>
+
+不就是大喵内鬼说，对已经烂掉的角色形象有什么正面意义吗</blockquote>
+谁是内鬼总共就这么那几个人，肯定好猜
+
+关键是里面细节有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 16316#       发表于 2025-2-1 20:42
+
+还是说 祥子留意到了有家族的大手 但是还是选择把am这个梦做下去？ 倒是也有点符合人设……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  稀勢のささ  
+##### 16317#       发表于 2025-2-1 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329001&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 20:39</a>
+
+谁是内鬼总共就这么那几个人，肯定好猜
+
+关键是里面细节有点多</blockquote>
+哪有啥细节 不都是大喵内鬼+丰川大手结合起来的脑补
+
+还和访谈矛盾了
+
+当然你可以说访谈也在骗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 16318#       发表于 2025-2-1 20:43
+
+<blockquote>刑部姬真可爱 发表于 2025-2-1 20:08
+正经来讲，有经济公司的艺人，对于自己的表演获得了多少赞助哪些方面的赞助谁的赞助，并不是必须要知道吧 ...</blockquote>
+一般艺人当然没有，但是祥子这个A团可不一般，最速武道馆呢
+
+没正式引入tgw集团之前如果你说祥子这人真信全靠自己，这个世界观就这样，那我没啥意见，现在怎么想都有种异味你懂吧
+
+
+*****
+
+####  烂片雷达  
+##### 16319#       发表于 2025-2-1 20:44
+
+喵梦这种正论怪努力家就没有内鬼的可能性，内鬼往往是团队中最不起眼的一个，只需要关键时刻站一下队就行了，你说是吧，初华，从普通岛民穷小子到国民大明星，背后没有资本的大手这可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花スープ  
+##### 16320#       发表于 2025-2-1 20:45
+
+母鸡卡全体队员现在表现出来的都是负面神人形象，唯一亮点传奇耐压王还下了线，欲扬先抑已经差不多咯，看我母鸡卡即将滑向神坛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  厚乳果珍爽  
+##### 16321#       发表于 2025-2-1 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这个发展，是不是翔子出走丰川集团，翔爹振作开公司給mujica当p？然后sumimi怎么办？应该也是丰川集团下面的组合吧？
+
+*****
+
+####  天空塔书记官  
+##### 16322#       发表于 2025-2-1 20:46
+
+其实关于资本的大手从一开始出现武道馆的时候就已经明白告诉观众了，bang第三季是三队拼盘武道馆，被评价是“有魄力的举动”，而且是当地livehouse联合举办的对邦大赛决赛，这组织规模有多庞大，看看参加比赛的乐队数量就知道了，能去的也只有前三名(实际上是前二)，结果A团商业化主流出道不说，还能单团速通武道馆，还开巡演，后面怎么可能没有大手的强推，结果老登出来托底了，就一个个哭丧着脸“呜呜呜，编剧毁了大祥的努力”
+
+这是祥子单靠自己才能可以做到的吗，是有多惊才绝艳才能让刚组不久的班子预定武道馆的位置啊，是场地方一把鼻涕一把泪抱着祥子大腿跪求“女皇上我吗”，还是被名人光环和大把钞票扇脸呢？
+
+你大祥牛啊，左手拳打ykn、右手提溜楚平方，脚底下再踩KSM，她有那么大能耐，她自己知道吗?
+
+明摆的舞台装置，还搁那吹大女主，不是纯搞笑吗，大屏广告推广铺天盖地，说上武道馆就上武道馆、说开巡演就开巡演，演出剧本流程完全自己定，想改随时改，还说解散就解散，这不是大小姐过家家是什么，还有把祥子独自出走转学打工陪父亲也一并推给没苦硬吃的，这不是滑坡是什么
+
+她没苦硬吃是因为“高贵”的自尊心放不下身段，是面对大喵摘面具和睦变脸后的自顾不迭、左支右绌，这些本来可以通过沟通解决的问题在祥子的操作下全变雷炸了，这才是没苦硬吃
+
+编曲可以外包给专门团队或者找初华辅助、剧本也可以和其他人一起讨论共同创作，排练时多关注成员状态，有时间就找其他人谈谈心画画饼联络联络感情顺便处理情绪垃圾，担负人生可是祥子自己说的，结果起手就是拒绝沟通，陷进了世界观顾影自怜、孤芳自赏，“我只有ave mujica了”，不仅背负了不必要的压力，还让A团整个系统处于失能状态，决心和良心多少都有点欠费，吵架除了套公式连词句创新都没有，睁着眼睛说瞎话，一开始不跑话说一半才跑，不上不下就卡在那了
+
+你说祥子人设毁完了，我还说她一开始就烂完了呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 16323#       发表于 2025-2-1 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329033&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-1 20:44</a>
+
+喵梦这种正论怪努力家就没有内鬼的可能性，内鬼往往是团队中最不起眼的一个，只需要关键时刻站一下队就行了 ...</blockquote>
+第二话的电影
+
+“你是背叛者，你也是，你也是”
+
+是哪三个背叛者呢，好难猜呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

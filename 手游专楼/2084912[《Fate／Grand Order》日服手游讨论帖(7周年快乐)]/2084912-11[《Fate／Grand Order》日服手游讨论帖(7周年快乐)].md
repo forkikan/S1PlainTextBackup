@@ -287,3 +287,11 @@
 
 不過應該還不能全5星上陣吧?
 
+
+*****
+
+####  森兰丸  
+##### 16203#       发表于 2025-2-1 20:38
+
+没抽伯爵...这奏2的伏笔原来在伯爵的2个幕间里就埋下了啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

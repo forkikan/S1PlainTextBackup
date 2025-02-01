@@ -13688,3 +13688,15 @@ deepseek-ai/DeepSeek-R1
 
 目前DS能读取的上下文有限，会忘设定和之前的情节有办法吗？
 
+
+*****
+
+####  moeblack  
+##### 1044#         楼主| 发表于 2025-2-1 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328948&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-1 20:32</a>
+目前DS能读取的上下文有限，会忘设定和之前的情节有办法吗？</blockquote>
+用openrouter的供应商的有128k上下文
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
