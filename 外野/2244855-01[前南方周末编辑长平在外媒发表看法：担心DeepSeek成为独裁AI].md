@@ -463,3 +463,15 @@ D导就是个照妖镜，能照出各路英雄好汉，也能照出各种牛鬼�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  泥鳅化石  
+##### 51#       发表于 2025-2-1 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326273&amp;ptid=2244855" target="_blank">为了mf注册 发表于 2025-2-1 12:13</a>
+为啥这些学文的总是要在自己都不懂的科技面前发表看法呢，显得自己水平很低 ...</blockquote>
+想想那个吸铁石吸船的沙雕言论，这不妥妥为了融入美国社会和当地人讨论多了阴谋论自己也变成阴谋论入脑了吗？你用国内的思维模式看他们肯定觉得抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

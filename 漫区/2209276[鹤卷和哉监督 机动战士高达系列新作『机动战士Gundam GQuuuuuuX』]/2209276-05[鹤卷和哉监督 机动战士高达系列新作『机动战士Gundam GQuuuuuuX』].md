@@ -4011,3 +4011,35 @@ Google日翻中升级了吗？感觉比以前明显好些。
 <img src="https://p.sda1.dev/21/9e9b0692d6742b95579557ff90018ad9/image.jpg" referrerpolicy="no-referrer">
 零点
 
+
+*****
+
+####  Steel.Haze  
+##### 6240#       发表于 2025-2-1 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324381&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-1-31 23:54</a>
+
+根据考据哥的说法，两台拥有复数浮游兵器的塞可缪MS，由两名强大NT驾驶着并肩作战，这才是真正理想的MAV战 ...</blockquote>
+从以往高达实战中来看，对OT最好的战术三机波状突击，就是三连星那套路。以三连星战为例，两机MAV肯定搞不过RX78和阿姆罗，三机就可以造成很大威胁。而Z和ZZ也都被三机阵型困扰过。
+
+
+*****
+
+####  Steel.Haze  
+##### 6241#       发表于 2025-2-1 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327755&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-1 16:39</a>
+
+X上刷到赤松健问庵野这段挺搞的</blockquote>
+实际上板野最早做的是艾尔美斯的浮游炮攻击特效。巧妙的在低频数下表现了速度和动感。
+
+
+*****
+
+####  岸浪白野  
+##### 6242#       发表于 2025-2-1 19:43
+
+ 本帖最后由 岸浪白野 于 2025-2-1 19:47 编辑 
+
+插入曲电影版
+
