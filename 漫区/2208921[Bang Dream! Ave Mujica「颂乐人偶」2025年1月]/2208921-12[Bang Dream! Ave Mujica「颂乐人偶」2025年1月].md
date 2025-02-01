@@ -2444,3 +2444,56 @@ mortis的本体，或者象征物是镜子，本质是模仿别人。但是镜�
 看了一下，就是两种老假药的结合，没有新东西，顺便这人说话的方式过于串我鸡皮疙瘩都起来了。 ...</blockquote>
 主要是舅舅党发金水了，普通假药才懒得发泥潭
 
+
+*****
+
+####  古明地雷  
+##### 16495#       发表于 2025-2-2 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330909&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-2 01:38</a>
+其实解散这事很可能有丰川推动
+1.有一件其他四人需要知道不然不好演，但是瞒着祥子的事
+2.会表现丰川家的黑 ...</blockquote>
+又看了下访谈，也不是说有个事实瞒着祥子，是说有个角色今后的事。还是降低期待吧，可能前面的伪人塑造就这样没得找补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+柿本　每次收錄前，我都會在隔間裡和她們說明「這次是這樣的故事」，但有一個角色，如果不知道她今後的事，有些地方就會難以演繹，所以我不得不將劇情的發展告訴聲優。聽了後大家都很吃驚，像是演繹初華的佐佐木李子小姐甚至還起了雞皮疙瘩（笑）。但，我覺得如果知道了這個劇情發展，會影響到祥子的演繹，所以我有下封口令，讓大家都不許和祥子的聲優高尾奏音說。這次的作品有很多地方都要求聲優演技，日常的部分加上作為Ave Mujica登上舞台時的形象，我覺得Ave Mujica的聲優們是真的很辛苦。
+
+*****
+
+####  DeltaStriker  
+##### 16496#       发表于 2025-2-2 02:18
+
+假药看完了
+给我干哪来了 这还是少女乐队片吗 比8点档还夸张了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  plok201  
+##### 16497#       发表于 2025-2-2 02:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如想想，搞完这些，5个人谷要怎么卖
+
+*****
+
+####  凉良  
+##### 16498#       发表于 2025-2-2 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331020&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-2 02:24</a>
+
+不如想想，搞完这些，5个人谷要怎么卖</blockquote>
+睦头一骑绝尘
+
+*****
+
+####  ntrntr1  
+##### 16499#       发表于 2025-2-2 02:28
+
+<blockquote>iiiiiiiiii 发表于 2025-2-2 01:52
+本来不信，但是舅舅党发了金水没办法不信啊。。。。况且莫提斯给睦那把伞和初华接祥子那把一模一样。睦看 ...</blockquote>
+可能只是前面猜中了吧对赌之类的
+
+不过这up真的好敬业啊，真这么写还怪精彩的，可惜日本人只要露出财团二字我们已经深深ptsd
+
