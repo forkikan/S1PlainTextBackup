@@ -13224,3 +13224,25 @@ ChatBOX
 我这里可以，不会是没充钱吧。</blockquote>
 可以了，cherrystudio的问题，重新开始了一个话题就好了
 
+
+*****
+
+####  moeblack  
+##### 1012#         楼主| 发表于 2025-2-1 16:04
+
+[https://cloud.siliconflow.cn/i/GX312zX6](https://cloud.siliconflow.cn/i/GX312zX6)
+
+硅基流动的Deepseek-R1上了，邀请链接还能互相得14元(
+
+*****
+
+####  波克隆斯卡娅  
+##### 1013#       发表于 2025-2-1 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327388&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-1 15:22</a>
+
+因为幻方的网页版内置有CoT提示词，而纯正API的上下文应是干净的。
+
+下面结果来自Openrouter，配合了系统 ...</blockquote>
+可能我哪里操作有问题，系统提示词改了还是不太行<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+

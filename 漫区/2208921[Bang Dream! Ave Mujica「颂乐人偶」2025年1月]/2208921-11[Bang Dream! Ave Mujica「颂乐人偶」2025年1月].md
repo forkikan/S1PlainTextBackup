@@ -15573,3 +15573,128 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  梦诗歌雪  
+##### 16180#       发表于 2025-2-1 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327137&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 14:37</a>
+
+我再来给你们分析分析大祥现在会怎么样吧。
+
+首先那张纸条上，回灯的话是“已经够了”然后揉成一团，所以灯 ...</blockquote>
+都第五集了怎么还在扯什么168亿债务，这债务很明显是公司的损失不是个人的损失，祥爸只是作为高管负主要责任所以引咎辞职而已，有限公司这制度就是规避风险避免债务殃及个人的哪来高管一个人承担公司全部损失的道理
+
+*****
+
+####  terry666  
+##### 16181#       发表于 2025-2-1 16:07
+
+<blockquote>yozoraxsx 发表于 2025-2-1 15:54
+总算是补完了一天份的专楼进度 几个熟悉的id装死了真好
+
+我不明白为什么大家都把大祥老师当女主而不是把五个 ...</blockquote>
+因为你说母鸡卡动画里的地位是五人平等的连最资深的祥黑都不信
+
+*****
+
+####  huxiaopao163  
+##### 16182#       发表于 2025-2-1 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327485&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-1 15:44</a>
+
+如果没有邦邦手游和后续的live，那确实不需要包饺子，甚至可以给鸡团来一个机关算尽太聪敏反误了卿卿性命 ...</blockquote>
+你这也太极端了，明明在传统包饺子和白茫茫大地真干净之间，还有很多路线可以走，能兼顾创意和后续商业运营。
+
+说到底，wsd这次宣传什么史上最狂，肯定是做了商业冒险的。
+
+动画前半部分很古怪，不合常理，后半部分怎么会突然回归传统，那肯定只会更狂、更邪典，赌一把这样能让商业运营效果比走传统路线好。
+
+*****
+
+####  江口夕  
+##### 16183#       发表于 2025-2-1 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327596&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-1 16:07</a>
+都第五集了怎么还在扯什么168亿债务，这债务很明显是公司的损失不是个人的损失，祥爸只是作为高管负主要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">话是这么说，但是要解决问题就不能回避168亿，当然了按责任分肯定没这么多，不然显得编剧屁都不懂。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 16184#       发表于 2025-2-1 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327531&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 15:54</a>
+
+总算是补完了一天份的专楼进度 几个熟悉的id装死了真好
+
+我不明白为什么大家都把大祥老师当女主而不是把五个 ...</blockquote>
+大祥和大瞄这“角色待遇”真得平等吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qjw114514  
+##### 16185#       发表于 2025-2-1 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327416&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 15:28</a>
+我之前就说独角兽不怎样了，但是祥睦可是她引以为豪的女女关系性，如果后面确实没回忆或者没什么特别的原因 ...</blockquote>
+这要怎么找补啊，这一个月出来直接杀死木箱了，我现在甚至不想看到她俩包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 16186#       发表于 2025-2-1 16:13
+
+ 本帖最后由 wwwttth 于 2025-2-1 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327224&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 14:51</a>
+
+可能祥子也和初华在短信交流的，只是搞了个镜头放在祥子回信息之前，让人误以为祥子没有理初华。下集就会揭 ...</blockquote>
+这肯定不可能，第五集有那段初华找海玲问有没有联系小祥被甩脸色说明这两肯定没联系。
+
+*****
+
+####  天空塔书记官  
+##### 16187#       发表于 2025-2-1 16:14
+
+假药+加天文学小知识：
+忘湖，恐湖，悲湖，爱湾，死湖中只有忘湖在月之暗面。远离人类涉足之地。
+
+<img src="https://p.sda1.dev/21/c5db6201921679fe7d43666fa430672a/image.jpg" referrerpolicy="no-referrer"> ​​​
+
+[http://m.weibo.cn/status/5129263833419461?](http://m.weibo.cn/status/5129263833419461?)
+
+来自微博:舰队制造
+
+来点干货<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 16188#       发表于 2025-2-1 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327625&amp;ptid=2208921" target="_blank">qjw114514 发表于 2025-2-1 16:12</a>
+这要怎么找补啊，这一个月出来直接杀死木箱了，我现在甚至不想看到她俩包饺子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我是想不出来，只能把希望放回忆了，要不然本祥厨直接清算了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  山ノ内花音  
+##### 16189#       发表于 2025-2-1 16:15
+
+这集的目的就是让做实破坏人际的罪人这个身份 下集再找补 这集岂不是毫无意义
+
+*****
+
+####  一心而用  
+##### 16190#       发表于 2025-2-1 16:16
+
+<img src="https://p.sda1.dev/21/38fa23dd614d30d7671489ac4700f5aa/image.jpg" referrerpolicy="no-referrer">
+
