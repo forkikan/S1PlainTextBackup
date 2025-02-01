@@ -13777,3 +13777,28 @@ mtm没饿死外加soyo想来就来不就说明家里面有佣人供吃供穿吗
 灯又不是之前没见过祥子家祥子家里面爱音还在东张西望，灯已经轻车熟路地走到钢琴那去了，这就说明灯已经 ...</blockquote>
 可这集演出来的效果是爱音早知道丰川集团但不确定祥子是丰川家的，而灯虽然早认识祥子却不知道丰川集团
 
+
+*****
+
+####  ntrntr1  
+##### 16024#       发表于 2025-2-1 10:00
+
+<blockquote>zhzij111 发表于 2025-2-1 09:31
+除了墨提斯好像没人把精神病当回事，可能她爹妈也没当回事
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+soyo：自己吓自己～
+
+
+*****
+
+####  刑部姬真可爱  
+##### 16025#       发表于 2025-2-1 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325457&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-1 09:45</a>
+初华说不要讨厌我，那么初华肯定做了对不起祥子的事
+祥子能在片场独断商业乐队弄得跟草台一样合同不签说解 ...</blockquote>
+虽然但是对邦预告已经说明sumimi稳如老狗了，倒不如说初华从一开始对mana的应付到最后肯定是对mana的感动，mana赢麻了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
