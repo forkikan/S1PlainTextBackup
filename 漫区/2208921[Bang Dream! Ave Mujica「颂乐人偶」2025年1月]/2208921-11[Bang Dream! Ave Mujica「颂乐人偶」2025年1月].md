@@ -16414,3 +16414,42 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 祥子就是把用音乐表达内心呐喊的手段带给灯的人，不是领路人而是开门人。现在是灯走得更前，她就是因为没有放弃呐喊才能把其他人吸引回舞台上，她成功用音乐创造了自己的归宿，所以她才会有不放弃祥子的意志力
 现在是只有祥子去当大女主才能跟上灯，她要当大女主去给自己和其他人创造归宿，这样才能构成鸡狗的镜像
 
+
+*****
+
+####  akiomn  
+##### 16249#       发表于 2025-2-1 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328204&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 18:08</a>
+一个自闭了
+
+一个像守了活寡
+
+一个疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说你很无敌，真的
+那我说的再难听点吧，谁都可以拷打祥子，唯独喵梦不配，从摘面到第四集干脆利落的解散，事都是喵梦惹出来的，祥子在鸡团爆炸前还得给喵梦擦屁股
+你要是觉得喵梦也配拷打祥子，那我祝你以后也有这种好事全沾坏事全干但没惩罚的同事下属
+
+*****
+
+####  hulaoda007  
+##### 16250#       发表于 2025-2-1 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328220&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-1 18:14</a>
+其实想干大事的就2个，年轻气盛的也就这两，第四集才变成3，前4集最大的问题我倒是觉得不在于祥喵睦，至 ...</blockquote>
+其实到莫也算一个，就是想做点事结果搞砸的目前有三个（或2.5），而因为故事主线基本都是靠角色的这种年轻莽撞搞砸推进的，所以一直怀疑角色整大活表现jk不懂事反而是制作组想表达的。
+然后这集灯没有了解祥子啥情况就问她幸不幸福，以及睦以为c团是自己搞没的，外加虽然是笑点，但也符合某种程序的立希笑话，会怀疑之后“误会”也是推进故事的一个重点。
+
+
+*****
+
+####  杂灰  
+##### 16251#       发表于 2025-2-1 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328170&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-1 18:02</a>
+但问题是，对其他角色卡的异味，从现在开始就有了，我觉得禁招已经开始给别的cp厨一种异味了
+
+就像雪菜一辈 ...</blockquote>
+灯祥就是明确的鸡狗底层逻辑，从头到尾都是堆料最多的一对，觉得有异味也没办法，可能官方觉得这个才是主味。
+不过灯作为狗核心最先明确的是狗团一个也不能少，祥子要组鸡团最需要的也是对每一个人负责，我不觉得灯祥会和两边的团内关系性有冲突，不如说两边作为核心做好该做的事才是灯祥有进展的前提。不过你觉得这样算是垫了关系性那我也没辙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
