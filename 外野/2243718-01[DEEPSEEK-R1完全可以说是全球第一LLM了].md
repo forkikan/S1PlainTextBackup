@@ -13121,3 +13121,13 @@ app现在感觉经常思考两个字好的，然后就死掉了
 
 无限服务器繁忙了，我让d老师写文刚写到主配角开着机甲自爆就结束了，看不到后续我好难受<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hargen2000  
+##### 1003#       发表于 2025-2-1 15:08
+
+硅基流动的api，和官方一个价速度还很快，推荐
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
