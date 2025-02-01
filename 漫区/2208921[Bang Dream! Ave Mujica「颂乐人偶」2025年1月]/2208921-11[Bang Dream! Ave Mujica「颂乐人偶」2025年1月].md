@@ -15698,3 +15698,79 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 <img src="https://p.sda1.dev/21/38fa23dd614d30d7671489ac4700f5aa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwwttth  
+##### 16191#       发表于 2025-2-1 16:16
+
+ 本帖最后由 wwwttth 于 2025-2-1 16:17 编辑 
+
+下集可是钦定的真正的谷底，要找补也是下下集，我倒是很想知道这个人设能烂到何种变态的程度，
+
+*****
+
+####  一心而用  
+##### 16192#       发表于 2025-2-1 16:16
+
+<img src="https://p.sda1.dev/21/a5c7cc490991f5806eff4d3db6bba66b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8bc0532c1a11f76e1f832aaf6b4f2d68/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/08f91b5f4172d219bb4ac6bb4f178128/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0a887378bd7700847ec5f940a2b969db/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 16193#       发表于 2025-2-1 16:16
+
+和漏油相反 我觉得祥子和木头人最后不会恢复以前的关系 可能也更符合编剧的想法……
+刚看贴吧有个观点是 半身这个词可能起源于漫画《半神》 最后主角和妹妹物理切割后 ‘丑恶面’妹妹死亡 主角在懊悔中怀念妹妹
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 16194#       发表于 2025-2-1 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327649&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-1 16:16</a>
+和漏油相反 我觉得祥子和木头人最后不会恢复以前的关系 可能也更符合编剧的想法……
+刚看贴吧有个观点是 半 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那独角兽可以拉出来抽陀螺了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  DeltaStriker  
+##### 16195#       发表于 2025-2-1 16:19
+
+也就是说 最后可能剩下的是会弹吉他 保留木头人记忆的Mortis 而非木头人“复活”
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 16196#       发表于 2025-2-1 16:21
+
+组个乐队要死要活的 
+实在不行放弃也是一种解法
+有个变态的设定就是以后真正的若叶睦只会在mujica的舞台上复活
+所以mujica不得不重组
+
+
+*****
+
+####  plusSharp  
+##### 16197#       发表于 2025-2-1 16:23
+
+莫都专门说了睦是沉睡，那就会醒，又不是“睦已经消失了”
+
+*****
+
+####  wwwttth  
+##### 16198#       发表于 2025-2-1 16:26
+
+楼上的那个设定，可以改一点，她可以在待过的乐团舞台上复活，那么某个设计就没那么变态了。
+
