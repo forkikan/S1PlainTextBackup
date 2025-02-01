@@ -13806,3 +13806,22 @@ edge么，开着b站吗，n卡吗，开着hdr吗——可能是win11的问题。
 
 硅基流动的api,我怎么感觉审核还挺严的，是我的破限词有问题吗
 
+
+*****
+
+####  jeokeo  
+##### 1056#       发表于 2025-2-1 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329440&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-2-1 21:40</a>
+
+这硅基流动注册一定要+86吗</blockquote>
+不用~
+
+可以用虚拟号码
+
+但是充值要实名……
+
+真烦躁，不敢拿来瑟瑟了
+
+[https://cloud.siliconflow.cn/i/527RluID](https://cloud.siliconflow.cn/i/527RluID)
+
