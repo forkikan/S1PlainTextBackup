@@ -897,3 +897,13 @@ PCM在LLM推理中的前景取决于：
 
 deepseek别的不知道，利好硬件升级是真的。
 
+
+*****
+
+####  UniqueDiablo  
+##### 81#       发表于 2025-2-2 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324641&amp;ptid=2244823" target="_blank">frankCC 发表于 2025-2-1 00:41</a>
+你看下帖子内容啊，每秒 2token 的输出黄花菜都凉了，这帖子纯粹为了迎合反老黄的情绪，一点实用性都没有。 ...</blockquote>
+前几年确实有挖硬盘的
+
