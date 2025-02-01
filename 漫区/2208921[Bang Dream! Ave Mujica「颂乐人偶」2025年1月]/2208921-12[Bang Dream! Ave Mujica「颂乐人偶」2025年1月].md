@@ -312,3 +312,23 @@ MyGO第一话爱音问祥子要不要组乐队的时候，祥子正要关上钢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭终于到了车编剧的环节了啊？！
 
+
+*****
+
+####  6030sylar  
+##### 16309#       发表于 2025-2-1 20:18
+
+睦头现在最坏情况只能台上演吉他的时候才能醒来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  狮子咕  
+##### 16310#       发表于 2025-2-1 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328829&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-1 20:12</a>
+
+怎么说，具体在哪里出现了啊</blockquote>
+说是右边人偶的脚似乎是初华的+cm那堆形成角色面具的碎片画格里有小电视（疑似）
+
