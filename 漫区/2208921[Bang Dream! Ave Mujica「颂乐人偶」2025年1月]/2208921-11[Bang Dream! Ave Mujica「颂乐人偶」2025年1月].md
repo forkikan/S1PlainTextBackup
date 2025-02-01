@@ -14885,3 +14885,101 @@ mortis听到消息后，立刻赶来医院探望，握着她的手说道:姐姐�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  玖羽  
+##### 16126#       发表于 2025-2-1 13:39
+
+@ei_eq5
+
+<img src="https://img.saraba1st.com/forum/202502/01/133541bwhohu9fj4nwu8l0.jpg" referrerpolicy="no-referrer">
+
+<strong>GinWGqeaIAA16pV_orig.jpg</strong> (445.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@clelo678
+
+<img src="https://img.saraba1st.com/forum/202502/01/133541j8v64m46d6z6pi7o.jpg" referrerpolicy="no-referrer">
+
+<strong>GioxuLCaIAArxEs_orig.jpg</strong> (284 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@kubo_card
+
+<img src="https://img.saraba1st.com/forum/202502/01/133540fze7cbbzecbscu3s.jpg" referrerpolicy="no-referrer">
+
+<strong>Gikt47RbYAE4979_orig.jpg</strong> (312.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@ssami0617
+
+<img src="https://img.saraba1st.com/forum/202502/01/133539nbkbpdvp45x8xax2.jpg" referrerpolicy="no-referrer">
+
+<strong>GijiMCaaYAAAQ9K_orig.jpg</strong> (419.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@icarus2010741
+
+<img src="https://img.saraba1st.com/forum/202502/01/133540outiuq5u4u8tt2bh.jpg" referrerpolicy="no-referrer">
+
+<strong>Gim5BgNbYAAoGUZ_orig.jpg</strong> (377.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@oekaki_mesugaki
+
+<img src="https://img.saraba1st.com/forum/202502/01/133541gygkt5zghyg6lddn.jpg" referrerpolicy="no-referrer">
+
+<strong>GioJHUMaIAEvSEG_orig.jpg</strong> (799.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@Slug10000
+
+<img src="https://img.saraba1st.com/forum/202502/01/133542aupoaz6eofgejjui.jpg" referrerpolicy="no-referrer">
+
+<strong>Girafp4bYAIwI7Q_orig.jpg</strong> (462.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+@Fishdusking
+
+<img src="https://img.saraba1st.com/forum/202502/01/133541vij8m37lj3jo7kaj.jpg" referrerpolicy="no-referrer">
+
+<strong>GioVK21a8AAOc4X_orig.jpg</strong> (461.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 13:35 上传
+
+
+*****
+
+####  上条仁美  
+##### 16127#       发表于 2025-2-1 13:43
+
+<blockquote>yozoraxsx 发表于 2025-2-1 13:38
+如果这么搞 这老舅很可能叫若叶隆
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+根据已经预言中了很多的细雪假药，祥妈和睦妈很可能是亲姐妹，美穗和美波也很像是亲姐妹的命名方式，而且根据祥妈葬礼站位祥妈和睦妈就算不是亲姐妹也是表姐妹，所以若叶隆只可能是姨丈
+

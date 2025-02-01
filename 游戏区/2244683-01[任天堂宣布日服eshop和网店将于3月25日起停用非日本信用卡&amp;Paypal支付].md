@@ -1844,3 +1844,29 @@ DMM是被信用卡断交了，理由自然是他卖的那堆东西嘛
 妈的，我任天堂会员是日服的。去推上看了下公告，结果下面评论日本人还都叫好，真TM猪脑子。 ...</blockquote>
 日本人是这样**的啦，不要来玩我们的游戏，不要来买我们的东西
 
+
+*****
+
+####  wfhtony  
+##### 187#       发表于 2025-2-1 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326712&amp;ptid=2244683" target="_blank">魔法师lain 发表于 2025-2-1 13:19</a>
+
+不会验证的吧，偶填的是转送的号
+
+—— 来自 鹅球 v3.3.96</blockquote>
+现在PP的注册流程中是需要强制验证手机号（短信或者电话）了，记得是2023年前后新加的要求。
+咱22年注册日区PP的时候用的甚至还是Google Voice的美国号码（当时自然是没过验证）...
+
+*****
+
+####  windaria  
+##### 188#       发表于 2025-2-1 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325063&amp;ptid=2244683" target="_blank">KBAC 发表于 2025-2-1 05:14</a>
+
+日亚没有任何消费记录的白号，绑国内JCB成功买了张点卡
+
+我就是试一下，还真扣款了（ ...</blockquote>
+我当初绑定新开户的国内jcb用新日亚账号Amazon pay一开始也是没问题，但是付款了几次过后突然就不行了，不知道被亚马逊风控了还是怎样，打电话问银行说卡是没问题的
+
