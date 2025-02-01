@@ -749,3 +749,13 @@ Unified Memory还真是对的！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那内存是不是该涨价了
 
+
+*****
+
+####  treexper  
+##### 74#       发表于 2025-2-1 17:35
+
+整个深度学习领域都可以不需要gpu，是不是吓一跳？
+
+回忆一下gpu之前的名字，加速卡。
+

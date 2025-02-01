@@ -13421,3 +13421,33 @@ deepseek-ai/DeepSeek-R1
  ...</blockquote>
 他说的这个\n 是啥意思？ 需要咱们在提供数据的时候先写个这个？
 
+
+*****
+
+####  moeblack  
+##### 1029#         楼主| 发表于 2025-2-1 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327986&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 17:25</a>
+再问个事 我在把硅基流动的r1添加到沉浸式翻译的时候。思考过程也被翻译并写到页面上了。有什么办法删去思 ...</blockquote>
+等沉浸翻译更新吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  农庄主席  
+##### 1030#       发表于 2025-2-1 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327986&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-1 17:25</a>
+
+再问个事 我在把硅基流动的r1添加到沉浸式翻译的时候。思考过程也被翻译并写到页面上了。有什么办法删去思 ...</blockquote>
+我感觉，一般的文本翻译用v3就就够了，用r1有点太笨重。如果是自己的什么东西要翻译为外文，而且是比较正式的东西，用r1可能更好。
+
+
+*****
+
+####  qqks  
+##### 1031#       发表于 2025-2-1 17:40
+
+cline 的ollama本地版 的prompt是不是有问题？无休止的重复直到耗光所有上下文空间报错？
+
