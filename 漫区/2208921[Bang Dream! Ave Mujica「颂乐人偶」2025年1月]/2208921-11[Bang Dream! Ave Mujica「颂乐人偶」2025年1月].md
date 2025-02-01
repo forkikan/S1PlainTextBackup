@@ -13979,3 +13979,48 @@ bang几季主要是在积累经验，平衡剧情和live的比重，二三季则
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  borrowface  
+##### 16042#       发表于 2025-2-1 10:50
+
+好想快点看到拷打大喵
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plusSharp  
+##### 16043#       发表于 2025-2-1 10:51
+
+<blockquote>南宮凝香 发表于 2025-2-1 10:35
+有一說一
+
+比豐川家更大物的大小姐她們也能在Live House 跟街頭上見
+</blockquote>
+不是单纯有钱的问题，是丰川家“积累”比较多，myGo就演了soyo虽然也有些钱了但因为出身还是在学校融不进去，所以才对祥子念念不忘
+
+*****
+
+####  晓色暮云  
+##### 16044#       发表于 2025-2-1 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325765&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-1 10:51</a>
+不是单纯有钱的问题，是丰川家“积累”比较多，myGo就演了soyo虽然也有些钱了但因为出身还是在学校融不进 ...</blockquote>
+你这理解有点变态了，soyo融入是没问题的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  刑部姬真可爱  
+##### 16045#       发表于 2025-2-1 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325765&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-1 10:51</a>
+不是单纯有钱的问题，是丰川家“积累”比较多，myGo就演了soyo虽然也有些钱了但因为出身还是在学校融不进 ...</blockquote>
+坛友说的应该是老团的弦卷心，弦卷家族是科技实力能开发钢铁侠战衣，经济实力约等于世界一半资源的家族，而弦卷心本人就就读于花咲川
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

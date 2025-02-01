@@ -482,3 +482,13 @@ deepaeek以前类似参数的模型cpu跑也是这个速度，deepseek是提升�
 
 eypc双路不带显卡跑deepseek，速度有6-8T/S
 
+
+*****
+
+####  鱼丈人  
+##### 49#       发表于 2025-2-1 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67324624&amp;ptid=2244823" target="_blank">qumkml423 发表于 2025-2-1 00:35</a>
+那利好有海力士三星的棒子了</blockquote>
+国内是不是没有投资韩股的渠道
+
