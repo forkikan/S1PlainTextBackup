@@ -1738,3 +1738,35 @@ PV里的红光电视画面还没回收，说明第四集不止那点东西，看
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 16443#       发表于 2025-2-2 00:06
+
+不过第五集才真正进入主线剧情还是太大胆了，如果不是有mygo垫着，搞不好早就差评如潮了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  老耗子  
+##### 16444#       发表于 2025-2-2 00:08
+
+第四集最后真的太毁观感了，但是放弃第四集，把这个当第一集看吧，质量我是很认可的
+
+
+*****
+
+####  wwwttth  
+##### 16445#       发表于 2025-2-2 00:15
+
+如果把第四集当成鸡团黑刀之夜，那么现在鸡团剩下8集要讲mygo10-11集的内容，最大的问题是感觉没啥时间live了
+
+*****
+
+####  烂片雷达  
+##### 16446#       发表于 2025-2-2 00:15
+
+果然鸡将成为不朽神作，鸡黑有难了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -1992,3 +1992,13 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 你说的那个看着像是fantia自己崩了…… ...</blockquote>
 原来如此
 
+
+*****
+
+####  このママでいい  
+##### 200#       发表于 2025-2-2 00:13
+
+最后用JCB向账户里加了一次余额，你最后的波纹，我收到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

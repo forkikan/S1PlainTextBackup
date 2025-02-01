@@ -14132,3 +14132,38 @@ md，🇺🇸人真的太坏了
 
 数学是不是证明过了
 
+
+*****
+
+####  lhh_ah  
+##### 1079#       发表于 2025-2-2 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329411&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-2-1 21:37</a>
+edge么，开着b站吗，n卡吗，开着hdr吗——可能是win11的问题。
+
+我的解决方法是按一下ctrl+alt+del，再回 ...</blockquote>
+只开了硅基和本家两个网页，我是6800U，win11
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  dhddhh  
+##### 1080#       发表于 2025-2-2 00:11
+
+本地用13700K+64G+4090搭了一个32B的Q8调教了几天算是凑合能用，cpu不介入能有30tokens/s，让cpu介入后稳定在二十多左右。完全本地无网络的基础条件算是具备了，优化还得继续<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  精钢魔像  
+##### 1081#       发表于 2025-2-2 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330349&amp;ptid=2243718" target="_blank">cc37 发表于 2025-2-2 00:03</a>
+
+奥特曼也干了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+天下无人不通共
+
