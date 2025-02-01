@@ -15439,3 +15439,27 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 16168#       发表于 2025-2-1 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326904&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-1 13:53</a>
+
+祥子的留言里向初华一直以来的帮助致谢了
+
+抱歉是因为没付半个月房租吗？ ...</blockquote>
+不正面辞别，写一个“抱歉”很难吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16169#       发表于 2025-2-1 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327339&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-1 15:11</a>
+感觉到现在这个阶段 我已经接受“编剧想得没你多”这个想法了 反正心理预期已经下调到一般～烂了 我现在只 ...</blockquote>
+编剧说破天也就可能十来个人，要是想得比几千上万三教九流热爱思考表达的观众能更多，也不至于就mygo一部说得上好的番了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
