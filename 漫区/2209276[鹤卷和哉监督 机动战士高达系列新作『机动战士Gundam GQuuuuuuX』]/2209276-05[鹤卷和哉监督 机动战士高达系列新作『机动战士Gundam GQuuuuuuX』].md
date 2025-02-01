@@ -4135,3 +4135,19 @@ X上刷到赤松健问庵野这段挺搞的</blockquote>
 
 ~21:25 团战结尾
 
+
+*****
+
+####  岸浪白野  
+##### 6251#       发表于 2025-2-1 22:38
+
+[X 上的 タケウチ　リョースケ：“ジークアクス [url]https://t.co/1byWvwyQvb](https://x.com/ryosuketarou/status/1885695237206737239)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/01/223839ueujz6wzzru8deuj.jpg" referrerpolicy="no-referrer">
+
+<strong>GitV0rKa8AAgLm2.jpg</strong> (657.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-1 22:38 上传
+

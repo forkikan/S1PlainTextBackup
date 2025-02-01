@@ -13950,3 +13950,18 @@ X) 向所有时间线广播反向求婚宣言
 
 泥潭是不是可以开个创作区了，想看各位炼出来的大作
 
+
+*****
+
+####  精钢魔像  
+##### 1062#       发表于 2025-2-1 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329789&amp;ptid=2243718" target="_blank">waterflying 发表于 2025-2-1 22:26</a>
+
+用了硅基流动的api感觉还挺好的，虽然不敢瑟瑟了，但别的常规需求能满足，速度也不错。
+
+但中间出现了一次它 ...</blockquote>
+注册送14块。
+
+充值链接太隐蔽了，在左边财务总览里。
+
