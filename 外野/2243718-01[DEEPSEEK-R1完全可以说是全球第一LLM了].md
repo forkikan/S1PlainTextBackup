@@ -12781,3 +12781,15 @@ D指导真的一股咱妈味儿</blockquote>
 老是说有服务器问题，整的我现在看到服务器繁忙都不确定是我问的问题不适宜回答，D老师敷衍我一下还是服务 ...</blockquote>
 这不有人说硅基流动上了全量的r1么，但是没有联网搜索功能。
 
+
+*****
+
+####  moeblack  
+##### 976#         楼主| 发表于 2025-2-1 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326128&amp;ptid=2243718" target="_blank">linchuanwangmou 发表于 2025-2-1 11:50</a>
+老是说有服务器问题，整的我现在看到服务器繁忙都不确定是我问的问题不适宜回答，D老师敷衍我一下还是服务 ...</blockquote>
+我现在微软和老黄的api都刷不出来，头都是疼的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

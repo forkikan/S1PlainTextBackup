@@ -14294,3 +14294,91 @@ MyGO帮助解决其 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Lyzers  
+##### 16070#       发表于 2025-2-1 12:04
+
+睦还有个大莫老师定版的“喜欢的乐队”，可以圆回来说对母鸡卡有依恋；海初现在信息不够但是这两个人回来没什么阻力；但是大喵老师有什么重新进团的理由，写成隐藏睦厨/祥厨吗？
+
+*****
+
+####  嵇翱u  
+##### 16071#       发表于 2025-2-1 12:06
+
+有一说一小祥已经多打了三个多小时工了，再怎么说也是童工，996离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晓色暮云  
+##### 16072#       发表于 2025-2-1 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326215&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-1 12:04</a>
+睦还有个大莫老师定版的“喜欢的乐队”，可以圆回来说对母鸡卡有依恋；海初现在信息不够但是这两个人回来没 ...</blockquote>
+喵对祥：说好背负我的人生呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 16073#       发表于 2025-2-1 12:07
+
+<img src="https://p.sda1.dev/21/fda92d8053ff9528ebb7cf8d5f469659/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0e3ed1c0b0922dd6a1113443409dd7bb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16074#       发表于 2025-2-1 12:08
+
+别动不动没苦硬吃了，还在没苦硬吃的干脆从爱音放弃自己在霓虹的大好高中生涯不要非得去伦敦没苦硬吃开始车得了，去伦敦是没苦硬吃，组乐队非得掺和一堆神人是没苦硬吃，灯非得五个人一起组mygo是没苦硬吃，立希非得大包大揽是没苦硬吃，soyo非得飞鸟山下跪是没苦硬吃，初华非得单相思是没苦硬吃，喵梦非得比演技是没苦硬吃，睦非得帮助祥是没苦硬吃，海铃也是非得掺和神人乐队是没苦硬吃，这下好了狗团鸡团十个人就乐奈过得最随心所欲，大家都去看乐奈得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 16075#       发表于 2025-2-1 12:11
+
+mana这样贴心温柔宽宏的mama，我不知道除了感激以外还能表达什么。希望初华不要不知福兮祸所<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 16076#       发表于 2025-2-1 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326187&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-1 12:00</a>
+
+这你得怪编剧啊，钱不用真让小祥自己还，有态度就行，他要是写小祥被催债，为了还违约金多打几份工快累死 ...</blockquote>
+mygo13集祥子是大概16点就退勤，而AM第五集是21点过了才退勤，这不能表明态度吗？
+
+*****
+
+####  ml1642879  
+##### 16077#       发表于 2025-2-1 12:11
+
+每天追着看自己鉴定为粪的动画也是没苦硬吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晓色暮云  
+##### 16078#       发表于 2025-2-1 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326255&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-1 12:11</a>
+mygo13集祥子是大概16点就退勤，而AM第五集是21点过了才退勤，这不能表明态度吗？ ...</blockquote>
+还是别太扣细节了，制作组已经放飞了你也不知道想表达啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Lyzers  
+##### 16079#       发表于 2025-2-1 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326225&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-1 12:06</a>
+喵对祥：说好背负我的人生呢
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大喵自己在前面又哈气又挖墙脚，本来就想着单飞，真需要祥子背负人生吗
+
