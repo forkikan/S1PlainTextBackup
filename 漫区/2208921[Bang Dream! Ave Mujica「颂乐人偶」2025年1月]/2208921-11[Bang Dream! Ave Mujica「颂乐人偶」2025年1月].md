@@ -16561,3 +16561,72 @@ Mortis到目前为止到底有什么意义呢？甚至于让第二集结尾断�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">自从第四集之后，回看go里的木头人总感觉哪里不习惯
 
+
+*****
+
+####  DeltaStriker  
+##### 16261#       发表于 2025-2-1 18:59
+
+因为mygo里的木头人还是能说“自己不喜欢的”
+am里除了说了句大猫坏其他时间都被编剧禁言了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qlipho  
+##### 16262#       发表于 2025-2-1 18:59
+
+当然不习惯，编剧把mygo的塑造全毁了呗，就为了逼疯睦祥这醋了
+
+*****
+
+####  sauron.j  
+##### 16263#       发表于 2025-2-1 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328115&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-1 17:50</a>
+
+看到一个解读
+
+灯和爱音进祥子家是走进祥子心里，所以这一幕让灯穿着室内鞋（爱音问了一句“不用换鞋吗”， ...</blockquote>
+这集也顺利回收了我以前一直有的一个疑虑：为什么要特地描写祥子带灯进家演奏，让她成为唯一进过丰川家的角色，剧本完全可以设计成在外面编曲
+
+*****
+
+####  zhzij111  
+##### 16264#       发表于 2025-2-1 19:00
+
+喵梦这角色从设定开始就是纯工具人。
+母鸡卡刨开组织者小祥别的队员不是大明星就是超级雇佣兵，小祥会想起来去找喵梦这个热度技术一个不沾的小网红就很编剧的大手了。
+后面不听指挥，做法发言自相矛盾更是推动剧情的工具
+
+这角色与其说是个角色，不如说是编剧的分身，专门拿来方便她推剧情的，别说车了，讨论价值都没有
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  terry666  
+##### 16265#       发表于 2025-2-1 19:00
+
+<blockquote>595505568 发表于 2025-2-1 18:53
+无所谓,等邦多礼因为最狂底层逻辑半身 灯祥禁招把人全恶心走了你们美帝粉自己玩去吧。 ...</blockquote>
+邦里不看狗和鸡的人多的是，怎么就全恶心走了？
+
+倒不如说很多时候黑这俩的往往本身就是一起黑
+
+
+*****
+
+####  江口夕  
+##### 16266#       发表于 2025-2-1 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328404&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-1 18:54</a>
+没开掉大喵很正常啊，摘面具短期A团内人气爆炸又不是假的，说不定🐘老师想开键帽事务所不同意呢
+侧面不更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是好用的事务所。
+以前我说同样写关系性无职比mygo好真没错，当时一帮人还来堵嘴。现在一看真是啪啪响。
+现在一旦讨论什么，各种没存在感的东西设定就出来了。这就是我说不如的地方。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
