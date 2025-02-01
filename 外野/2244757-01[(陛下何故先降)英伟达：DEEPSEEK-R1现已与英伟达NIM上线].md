@@ -445,3 +445,13 @@ aws也上了，ceo官宣</blockquote>
 </blockquote>
 这反贼比串子还串子啊
 
+
+*****
+
+####  zeroboss1  
+##### 44#         楼主| 发表于 2025-2-1 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67322443&amp;ptid=2244757" target="_blank">迷路的石头 发表于 2025-1-31 19:11</a>
+这反贼比串子还串子啊</blockquote>
+串子十年功力 不如孝子一句真情流露
+

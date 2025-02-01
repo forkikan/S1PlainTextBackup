@@ -14021,3 +14021,32 @@ X) 向所有时间线广播反向求婚宣言
 
 我的邀请链接：[https://cloud.siliconflow.cn/i/gxYbtZtY](https://cloud.siliconflow.cn/i/gxYbtZtY)
 
+
+*****
+
+####  moeblack  
+##### 1069#         楼主| 发表于 2025-2-1 23:38
+
+完了 硅基排队都排不上了。都怪楼友们！<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+一个回复要等70s
+
+*****
+
+####  断片集  
+##### 1070#       发表于 2025-2-1 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328948&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-1 20:32</a>
+目前DS能读取的上下文有限，会忘设定和之前的情节有办法吗？</blockquote>
+隔几段对话要求总结一次就行
+
+
+*****
+
+####  cc37  
+##### 1071#       发表于 2025-2-1 23:44
+
+好像还是不能联网，硅基流动有没有可以联网的模型
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

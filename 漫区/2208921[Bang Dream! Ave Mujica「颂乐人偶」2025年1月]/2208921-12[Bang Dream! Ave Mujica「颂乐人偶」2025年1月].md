@@ -1564,3 +1564,58 @@ niconico前五话好评率和观看人数
 第5话 85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
 <img src="https://p.sda1.dev/21/72c9ee1b567b94a4907e61ccfc5e0bfc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 16427#       发表于 2025-2-1 23:36
+
+烂炒还是有效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 16428#       发表于 2025-2-1 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">环大陆好评，太草了
+
+
+*****
+
+####  一心而用  
+##### 16429#       发表于 2025-2-1 23:42
+
+睦墨版丰川集团广告
+<img src="https://p.sda1.dev/21/e4d098224ca44535d6eeceaf13a565c6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/db6901753c1b40aa8cf5ff462ce743c1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/033acf51f11c2817ef674c3fc2594ce9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/d350dca1f2f82d28a6300a8f9e51696d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 16430#       发表于 2025-2-1 23:43
+
+无敌了 
+
+*****
+
+####  风道北来  
+##### 16431#       发表于 2025-2-1 23:46
+
+随手一个电话，当红偶像组合里能吉他能作词的主唱就自带干粮赶过来了
+
+准职业级的吉他手不多说一句废话顶着嘲讽入团
+
+网上捡的鼓手水平一流
+
+贝斯手身经百战稳如老狗
+
+背后还有紫宫彩票刮出来的肮脏金钱势力
+
+能把这种凤傲天配置开翻车的制作人，我要是老板我破财也得请这位大仙离远点，我怕衰到我
+
+祥厨是真的好玩。队友稳定他们说我祥一拖四带条狗都行，队友不稳他们说我祥尽力了键帽带不动。这么看给大祥老师挑队友真是有难度。太完美显不出大祥老师厉害，有毛病又连累大祥老师凤傲天开无双。我看大祥老师还是早日筹备第三个团为妙，这批队友实在不行
+
