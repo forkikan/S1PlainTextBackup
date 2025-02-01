@@ -2636,3 +2636,15 @@ mortis的本体，或者象征物是镜子，本质是模仿别人。但是镜�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 16511#       发表于 2025-2-2 03:03
+
+ 本帖最后由 huxiaopao163 于 2025-2-2 03:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331060&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-2 02:52</a>
+
+关键的一点是，这个犹大是只有四个声优知道，还是当时四个角色也知道…如果是角色知道，那很多不合理都能 ...</blockquote>
+既然让四个声优都知道了，那肯定是让四个声优抱着角色也知道犯人是谁的思路来配音，不然的话完全可以让不需要知道的人和高尾奏音一桌。
+
