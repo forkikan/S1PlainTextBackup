@@ -15534,3 +15534,42 @@ cm里大祥在睦家门口跪下的分镜，很大可能就是解散后这个月
 
 我不明白为什么大家都把大祥老师当女主而不是把五个人当作平等的主要人物？
 
+
+*****
+
+####  akiomn  
+##### 16177#       发表于 2025-2-1 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327531&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 15:54</a>
+总算是补完了一天份的专楼进度 几个熟悉的id装死了真好
+
+我不明白为什么大家都把大祥老师当女主而不是把五个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为是官方自己说的，祥子是故事核心主角，mujica是祥子成长为真正女主角的故事
+
+*****
+
+####  凉良  
+##### 16178#       发表于 2025-2-1 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327531&amp;ptid=2208921" target="_blank">yozoraxsx 发表于 2025-2-1 15:54</a>
+
+总算是补完了一天份的专楼进度 几个熟悉的id装死了真好
+
+我不明白为什么大家都把大祥老师当女主而不是把五个 ...</blockquote>
+真平等就不会出现五级盯着一个角色拷打的剧情了 
+
+*****
+
+####  江口夕  
+##### 16179#       发表于 2025-2-1 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327172&amp;ptid=2208921" target="_blank">novalli 发表于 2025-2-1 14:42</a>
+等下，灯什么时候说要祥子来mygo了？
+我不懂日语，但那句话应该没这么长吧？</blockquote>
+这里灯说的很简短，来干乐队吧，当然了，字面上可以是继续mujica，或者来我们乐队。
+从上下文来看，回忆是自己和祥子的过去。
+结合灯之前说祥子不同的呐喊，想了解祥子，然后问祥子现在幸福吗，祥子写已经够了直接揉了放鞋箱里，这是给灯的回应，加上大力甩柜子（之前都是揉了带回家），灯察觉到祥子现在肯定是不幸福的。
+那么这里显然就是来我们乐队的意思，<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">换成言情剧就是我养你（。）
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

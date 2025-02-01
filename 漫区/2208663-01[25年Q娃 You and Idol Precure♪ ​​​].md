@@ -62,3 +62,36 @@
 
 大家都好可爱，非常期待
 
+
+*****
+
+####  bilibilius  
+##### 276#       发表于 2025-2-1 15:57
+
+偶Q最大的看点是如何重新解释fan service
+
+
+*****
+
+####  粉儿alice  
+##### 277#       发表于 2025-2-1 16:03
+
+Zukyuun キューン
+Kiss キッス
+
+现在扒出来有两位追加战士 这两是否是两妖精不得而知
+
+*****
+
+####  Mr.Giraffe  
+##### 278#       发表于 2025-2-1 16:04
+
+kiss是要啵嘴的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双重清洁枪  
+##### 279#       发表于 2025-2-1 16:05
+
+3+2 粉主还有妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

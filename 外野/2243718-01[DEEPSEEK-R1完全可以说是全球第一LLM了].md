@@ -13203,3 +13203,24 @@ ChatBOX
 
 硅基流动的R1 api现在用不了吗？
 
+
+*****
+
+####  Azcarlo  
+##### 1010#       发表于 2025-2-1 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327516&amp;ptid=2243718" target="_blank">Litccc 发表于 2025-2-1 15:50</a>
+
+硅基流动的R1 api现在用不了吗？</blockquote>
+我这里可以，不会是没充钱吧。
+
+*****
+
+####  Litccc  
+##### 1011#       发表于 2025-2-1 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327544&amp;ptid=2243718" target="_blank">Azcarlo 发表于 2025-2-1 15:58</a>
+
+我这里可以，不会是没充钱吧。</blockquote>
+可以了，cherrystudio的问题，重新开始了一个话题就好了
+
