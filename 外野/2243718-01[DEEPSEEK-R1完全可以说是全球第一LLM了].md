@@ -12793,3 +12793,31 @@ D指导真的一股咱妈味儿</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  怀沙汨罗  
+##### 977#       发表于 2025-2-1 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">楼友们app刷的出来吗？从今天早上开始一直提示我服务器繁忙，请问哪里有可以用的接口吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  overflowal  
+##### 978#       发表于 2025-2-1 12:34
+
+硅基流动的v3和R1都跑在昇腾上的，应该是早移植完了。
+不知道训练什么时候能切去昇腾
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  泰坦失足  
+##### 979#       发表于 2025-2-1 12:35
+
+所以说也不一定是DDOS的问题，访问量太高了。尤其是联网，一个联网带来的上文长度太长了。成本和推理时间直线飙升。ChatGPT直接都不敢开联网O1推理呢，生怕Plus和Pro用户给它薅亏了。
+

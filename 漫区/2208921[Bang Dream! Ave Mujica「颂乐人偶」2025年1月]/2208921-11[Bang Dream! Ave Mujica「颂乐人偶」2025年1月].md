@@ -14476,3 +14476,112 @@ mana这样贴心温柔宽宏的mama，我不知道除了感激以外还能表达
 VV表情包虽迟但到。
 <img src="https://p.sda1.dev/21/c9ba7caf47bc004e680eb3f3a6f0d61f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 16090#       发表于 2025-2-1 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326323&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-1 12:22</a>
+
+如果我是初华，重组乐队随意，但是心就不会是大祥的了，当然按照某些假药她也不是祥党 ...</blockquote>
+单相思本身也是会被消解的一环，只不过如果真这样的话就和soyo目前的设定太重复了，所以应该往好的方面想<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 16091#       发表于 2025-2-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326298&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-1 12:18</a>
+被睦演技征服，想跟着睦学习演技</blockquote>
+但睦头的又不是演技，一问就露馅，也没什么好学的，不会作为一个主要情节；
+而且会不可避免要把睦头疯了这事拿出来
+
+*****
+
+####  JustW  
+##### 16092#       发表于 2025-2-1 12:27
+
+ 本帖最后由 JustW 于 2025-2-1 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326324&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-1 12:22</a>
+
+祥子本身就是未成年，牢板敢招进就敢让她多干</blockquote>
+
+？？日本高中生是可以每周合法打工40小时以内的，老板为什么不敢招？
+
+邦邦里除了月之森这种校规严格的地方之外打工的人一大把好吧
+
+*****
+
+####  wwwttth  
+##### 16093#       发表于 2025-2-1 12:28
+
+ 本帖最后由 wwwttth 于 2025-2-1 12:30 编辑 
+
+大喵是明牌睦演技厨啊，甚至散团的时候都是“睦你的演技不应该待在这小小的乐团里”，关键是怎么和祥子接点接上，我唯一能想到的是大🐘回收跳天桥回旋镖的时候喵路过（是不是感觉那个味回来了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  novalli  
+##### 16094#       发表于 2025-2-1 12:29
+
+感觉整体剧情是想尽可能遍历所有除了“大少女乐队”之外的可能，最后发现还是要团结才能解决问题。
+
+syl，关于“编剧的大手”。机械降神很糟糕，但在那是解决问题的阶段。解决问题前的各种巧合、误解我认为都是故事背景的一部分。如果没有那么多的“命运”，那这就不是mujica而是另外一个故事了。一下子能想起来的上一个例子是《电玩咖》那场所有人误解了所有人的戏。至于解决的部分不好，是破防还是反攻倒算，那也要演完了才能盖棺定论。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  安娜导函数  
+##### 16095#       发表于 2025-2-1 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325792&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-1 10:57</a>
+坛友说的应该是老团的弦卷心，弦卷家族是科技实力能开发钢铁侠战衣，经济实力约等于世界一半资源的家族， ...</blockquote>
+kkr读划小船不是看准了月之森个顶个都是神人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plusSharp  
+##### 16096#       发表于 2025-2-1 12:30
+
+初华发现祥子吃硬不吃软，然后像寒蝉卒的沙都子一样靠折磨祥子来把她留住
+
+*****
+
+####  huxiaopao163  
+##### 16097#       发表于 2025-2-1 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326297&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-1 12:18</a>
+
+我来给你们编个，睦永远回不来了，4人加莫老师组乐队走上救赎之路
+
+—— 来自 Xiaomi 23113RKC6C, Android  ...</blockquote>
+这样搞，肯定不止睦
+
+世上再也没有丰川祥子、若叶睦、三角初华、祐天寺若麦、八幡海铃
+
+只有欧老师、莫老师、多老师、阿老师和梯老师
+
+*****
+
+####  novalli  
+##### 16098#       发表于 2025-2-1 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326367&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-1 12:29</a>
+kkr读划小船不是看准了月之森个顶个都是神人嘛</blockquote>
+kkr去月之森怕不是第二天就要把学校买下来了。我看是月之森容不下她。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刑部姬真可爱  
+##### 16099#       发表于 2025-2-1 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67326355&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-1 12:27</a>
+
+？？日本高中生是可以每周合法打工40小时以内的，老板为什么不敢招？</blockquote>
+因为邦多利世界观其他角色的打工基本都是比较轻松正常阳光的工作环境，客服这种工作我是不认为适合未成年的
+
