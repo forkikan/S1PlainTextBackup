@@ -353,3 +353,27 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">兽蕾不是打所有EX阶都是红字么....怎么打这次的回忆关卡是蓝字....是我记错了还是啥
 
+
+*****
+
+####  qixinno2  
+##### 16209#       发表于 2025-2-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330039&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-1 23:08</a>
+
+兽蕾不是打所有EX阶都是红字么....怎么打这次的回忆关卡是蓝字....是我记错了还是啥 ...</blockquote>
+克制仇阶之外的额外职介
+
+
+*****
+
+####  森兰丸  
+##### 16210#       发表于 2025-2-1 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330094&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-1 23:16</a>
+
+克制仇阶之外的额外职介</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧是我记错了
+
+最后还是靠抱了个120 5宝的希老师才打过去
+

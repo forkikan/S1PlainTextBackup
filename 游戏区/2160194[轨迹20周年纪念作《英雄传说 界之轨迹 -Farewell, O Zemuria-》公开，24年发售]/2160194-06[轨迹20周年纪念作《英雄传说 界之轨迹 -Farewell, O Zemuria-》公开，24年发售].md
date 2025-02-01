@@ -239,3 +239,13 @@
 
 黎轨打完了界轨序章里登场人物依然会有一半不认识吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 7551#       发表于 2025-2-1 23:18
+
+之前说着等打折还是憋不住买了，明天开搞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
