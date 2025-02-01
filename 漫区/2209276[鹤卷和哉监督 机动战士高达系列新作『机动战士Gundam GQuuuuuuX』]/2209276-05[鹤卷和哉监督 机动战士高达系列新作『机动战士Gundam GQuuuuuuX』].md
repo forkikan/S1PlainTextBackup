@@ -4265,3 +4265,16 @@ PlaZma + 卡缪的二创现在在N站真的很火，原版已经上20W播放了
 
 想去二刷但是没有新特典懒得跑<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 6257#       发表于 2025-2-2 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325342&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-2-1 09:10</a>
+不会是连cca都要蹭这么无耻吧，阿克西斯之光里骡子跟鸭子带着机体穿越到GQuuuuuuX，被捡到了逆向技术开发出 ...</blockquote>
+感觉可能性很高，毕竟阿克西斯最后夏亚阿姆罗莫名其妙就失踪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+牛高达和总帅的驾驶舱穿越到麻球世界线？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

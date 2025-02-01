@@ -1891,3 +1891,48 @@ https://tieba.baidu.com/p/9457641819?share=9105&amp;fr=sharewise&amp;see_lz=0&am
 —— 来自  ...</blockquote>
 除了诗超绊mygo都有排练的
 
+
+*****
+
+####  山ノ内花音  
+##### 16459#       发表于 2025-2-2 00:36
+
+第七集会是ccc重组live吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16460#       发表于 2025-2-2 00:37
+
+诗超绊甚至可以说是现场即兴创作的，这就是音乐天才遍地走的bang世界啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 16461#       发表于 2025-2-2 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330445&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-2 00:17</a>
+
+第5集新加入的一大群staff和违约金彻底印证了解散就是烂炒，商业乐队的现实味彻底冲散了邦邦世界观的认知魔 ...</blockquote>
+至少第四集有给出其中一个理由是祥子的曲子没做完，以及后续就是杂鱼莫破了祥子的防祥子直接断路挂机了
+
+
+*****
+
+####  南宮凝香  
+##### 16462#       发表于 2025-2-2 00:43
+
+<blockquote>刑部姬真可爱 发表于 2025-2-2 00:35
+除了诗超绊mygo都有排练的</blockquote>
+嚴格來說兩次演奏都只排練了一天
+
+第一次Taki 不停改碧天伴走 改到最後一天
+
+第二次是Live 前一晚才弄好， 早上才合練
+
+如練
+
+只能說我們高音世界就是這樣
+
