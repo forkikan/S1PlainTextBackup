@@ -4250,3 +4250,11 @@ https://bbs.nga.cn/read.php?tid=43178321</blockquote>
 https://bbs.nga.cn/read.php?tid=43178321</blockquote>
 C团遗老最喜欢的一集。
 
+
+*****
+
+####  blackeryuri2  
+##### 16637#       发表于 2025-2-2 12:52
+
+祥子疑似真正的月老，负责把素食打碎成就爱素，负责把睦打碎成就素睦，负责把初华打碎成就sumimi
+
