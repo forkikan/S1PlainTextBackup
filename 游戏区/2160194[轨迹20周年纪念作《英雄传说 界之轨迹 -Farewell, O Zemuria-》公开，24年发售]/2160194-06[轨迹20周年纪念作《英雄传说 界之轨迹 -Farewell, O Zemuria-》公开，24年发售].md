@@ -313,3 +313,12 @@
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 代码里数值调高了
 
+
+*****
+
+####  風卷豹  
+##### 7558#       发表于 2025-2-2 17:21
+
+第一章多用师傅可以有效降低开荒难度，用美少女队就要多动点心思了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+总的来说界轨比前几作更不适合新人，战斗难度明显为黎轨熟手设计的，剧情上主线谜语人就算了，npc对话也喜欢“这件事”“那个人”，粉丝也不一定绷得住<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

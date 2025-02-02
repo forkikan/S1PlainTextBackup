@@ -5236,3 +5236,30 @@ https://www.oricon.co.jp/news/2367045/full/</blockquote>
 
 针织帽杀人鬼 UC0085的样子
 
+
+*****
+
+####  岸浪白野  
+##### 6343#       发表于 2025-2-2 17:21
+
+[X 上的 logi (ろじ)：“[url]https://t.co/jvKBPHs3x8](https://x.com/logi_bunbukucha/status/1885903567447580936)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/02/172106vhnrjd80qvicwtrn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (999.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:21 上传
+
+
+*****
+
+####  xwz  
+##### 6344#       发表于 2025-2-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334528&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-2 17:21</a>
+
+X 上的 logi (ろじ)：“[https://t.co/jvKBPHs3x8” / X](https://t.co/jvKBPHs3x8” / X)</blockquote>
+乱掏什么呢（
+
