@@ -7589,3 +7589,16 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  莫洛骑士  
+##### 16940#       发表于 2025-2-3 05:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337448&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-2 13:04</a>
+
+楼友们，已经演了五集了，轻度爱好者有个问题哈，为啥当初祥子要退C团的原因说了吗？
+
+好像演了挺多大伙的不 ...</blockquote>
+因为她选择背负那个破产的爹也没精力去维持乐队了，自尊心又太强所以不想被队友担心，所以整了一出“一切责任全在我”切割了所有人，这也是“真是只考虑自己呢”的超级回旋镖之一
+

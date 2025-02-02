@@ -15353,3 +15353,13 @@ https://pageassist.xyz/
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 用charry的资料库试试，那玩意能让他随时查资料库，但是也会被资料库限定住
 
+
+*****
+
+####  披头破落户  
+##### 1180#       发表于 2025-2-3 05:47
+
+我去用本地api的v3翻译p站的同人文好好用，一点和谐都没有，语气词，动作等地方都能翻译出来并且看不出有什么问题，除了一些特定名词会有错误以外基本没错。看了一晚上了好带劲<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
