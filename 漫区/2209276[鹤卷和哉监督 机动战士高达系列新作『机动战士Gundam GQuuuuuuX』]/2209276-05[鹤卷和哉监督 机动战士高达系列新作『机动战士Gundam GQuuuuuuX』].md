@@ -4786,3 +4786,75 @@ oricon的新闻写了，可是坐实4月春番组。
 夏利亚的又卖完了</blockquote>
 要是出了另一位，是不是也会秒空( 
 
+
+*****
+
+####  wyhman  
+##### 6303#       发表于 2025-2-2 13:15
+
+肯定要谦虚一下的，这宣传力度跟场馆数安排，你说日升对票房没追求，纯纯招笑了
+
+*****
+
+####  RE㐅ia  
+##### 6304#       发表于 2025-2-2 13:15
+
+“要把你干掉，它是这么说的。”
+
+<img src="https://img.saraba1st.com/forum/202502/02/131450pf8mo082xuxf2q80.png" referrerpolicy="no-referrer">
+
+<strong>72C14551-01AC-475B-AFF5-35B82EDA6463.png</strong> (576.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 13:14 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/131450x9q3f79frr9at399.png" referrerpolicy="no-referrer">
+
+<strong>C8B8150B-D977-4254-A0EC-ECE624FF8590.png</strong> (556.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 13:14 上传
+
+*****
+
+####  Toby_dak  
+##### 6305#       发表于 2025-2-2 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332939&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-2 14:02</a>
+
+不是就一个钢镚吗</blockquote>
+是的，全身上下就只那5000块，连饭钱都没剩。这情况难道不是下水找吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 6306#       发表于 2025-2-2 13:16
+
+<img src="https://p.sda1.dev/21/a77c25eec29f71a757ab3f0458d48e63/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  AvenueIII  
+##### 6307#       发表于 2025-2-2 13:16
+
+绿色的大叔和红色的小叔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 6308#       发表于 2025-2-2 13:18
+
+<blockquote>RE㐅ia 发表于 2025-2-2 13:15
+“要把你干掉，它是这么说的。”</blockquote>
+这么一看还真就是外置大脑，把奥尔加和妈妈换成了这次的高达。你说红高达里头没有鸭叔叔亡魂我是不信的（
+
+
+*****
+
+####  jojonathan  
+##### 6309#       发表于 2025-2-2 13:21
+
+鸭叔叔经过现代化改修以后变成爆改儿童玩具了（哭腔
+

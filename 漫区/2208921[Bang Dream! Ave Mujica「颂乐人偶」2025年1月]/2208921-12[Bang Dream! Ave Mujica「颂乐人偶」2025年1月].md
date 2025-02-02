@@ -4377,3 +4377,80 @@ C团遗老最喜欢的一集。
 
 灯邀请祥子组乐队我能理解 她就是这种脑回路，但祥主动找老团要求重组这个不是滑坡和串吗，怎么大伙都默认了，是我漏了啥？
 
+
+*****
+
+####  南宮凝香  
+##### 16648#       发表于 2025-2-2 13:14
+
+<blockquote>yaneis 发表于 2025-2-2 13:12
+灯邀请祥子组乐队我能理解 她就是这种脑回路，但祥主动找老团要求重组这个不是滑坡和串吗，怎么大伙都默认 ...</blockquote>
+因為獨角獸老師什麼都幹得出來
+
+什麼藥都可能是真的
+
+*****
+
+####  稀勢のささ  
+##### 16649#       发表于 2025-2-2 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333027&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-2 13:12</a>
+
+灯邀请祥子组乐队我能理解 她就是这种脑回路，但祥主动找老团要求重组这个不是滑坡和串吗，怎么大伙都默认 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不说恨呢
+
+*****
+
+####  JustW  
+##### 16650#       发表于 2025-2-2 13:16
+
+ 本帖最后由 JustW 于 2025-2-2 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332804&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-2 12:42</a>
+
+气笑了，真这样玩，那我也可以把任何事都滑坡到一个很弱智的程度
+
+为什么是高中生，不是因为祥子组的就是高 ...</blockquote>
+
+赤坂明风评翻身一仗：母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">财阀和娱乐圈都是我玩剩下的哈哈
+
+*****
+
+####  罥索GFFF  
+##### 16651#       发表于 2025-2-2 13:18
+
+与其说wsd不会让喵梦吃瘪，不如这个角色要被边缘化了，前半场工具人，后半场就稍微做点人设回撤然后边缘化，只要大家的重点都在初睦祥go身上就没人会在意喵的人设了，wsd大概一开始就打算牺牲喵这个角色和海玲的戏份
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  伞木希美  
+##### 16652#       发表于 2025-2-2 13:21
+
+对赌这个假药太变态了，合着祥子前脚因为离开家拆了C团，后脚就因为C团回家要钱。
+
+如果说老登给mujica交违约金是剧内对祥子的终极羞辱，那对赌就是编剧对祥子的终极羞辱。
+
+*****
+
+####  wwwttth  
+##### 16653#       发表于 2025-2-2 13:22
+
+<blockquote>江口夕 发表于 2025-2-2 13:10
+帮忙拍广告而已。
+
+首先祥子这个人偶是她妈的遗物，从她妈开始这个人偶锁链就一直在。各种线索都指向这个 ...</blockquote>
+那也不太可能从睦父母入手，这父母可是塑造的比团里这几个还神人，还要让他们背离资本的大手我觉得不如政治婚姻抢婚，上一代她妈也是为了逃避政治婚姻和一个穷小子生米煮成熟饭。这下父亲背锅的原因也解决了
+
+*****
+
+####  江口夕  
+##### 16654#       发表于 2025-2-2 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333062&amp;ptid=2208921" target="_blank">罥索GFFF 发表于 2025-2-2 13:18</a>
+与其说wsd不会让喵梦吃瘪，不如这个角色要被边缘化了，前半场工具人，后半场就稍微做点人设回撤然后边缘化 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">武士道的东西本来就不平衡。到了ras这里已经不在意个别角色的得失了，毕竟你整个团都不出彩了谁还去在意你个人。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
