@@ -4980,3 +4980,33 @@ GM的喷枪厉害还是大魔的扩散炮厉害？
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  猪突猛进R  
+##### 6320#       发表于 2025-2-2 14:42
+
+没说哪种GM啊，要是后期的GM司令官，可以吊打大魔。如果只是初期GM没戏。
+
+<img src="https://img.saraba1st.com/forum/202502/02/144202rdhdrdv5dlhlp9dv.jpg" referrerpolicy="no-referrer">
+
+<strong>075ab5160924ab1827e8b9ed3cfae6cd7a890b2e.jpg</strong> (43.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 14:42 上传
+
+
+*****
+
+####  gundammarkⅡ  
+##### 6321#       发表于 2025-2-2 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333576&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-2 14:29</a>
+GM的喷枪厉害还是大魔的扩散炮厉害？
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+吉姆喷枪，大魔的扩散式只能当个大号闪光弹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

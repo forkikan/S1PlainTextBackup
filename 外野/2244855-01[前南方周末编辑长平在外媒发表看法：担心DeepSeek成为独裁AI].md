@@ -632,3 +632,15 @@ AI都比不过这些殖蛆因为AI要讲逻辑
 
 美国网友：本来还不知道 DeepSeek 有多厉害，听到说要搞民主的 AI 就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔法煎饼  
+##### 67#       发表于 2025-2-2 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 只有这种赚对不起良心和道德的钱的货色才会害怕独裁，靠自己本事过活的人只需要秩序。
+
+完美的独裁才能把权力和义务之间的关系进行完美的对应，独裁者做得不好的时候每个人都知道谁应该为此负责，每个人都知道自己的债应该找谁去讨，这就够了。
+
+多党制本质上就是为了推卸责任和跑路诞生的。
+

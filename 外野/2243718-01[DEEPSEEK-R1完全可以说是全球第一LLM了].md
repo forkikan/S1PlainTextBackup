@@ -14722,3 +14722,14 @@ chatbox ，然后用api
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  午夜钓者  
+##### 1129#       发表于 2025-2-2 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333495&amp;ptid=2243718" target="_blank">ycycyc 发表于 2025-2-2 14:15</a>
+
+请问你用chatbox连硅基的r1他的思考过程生成后折叠吗，我连原厂的没问题，连硅基就咔咔全写在生成文字前 ...</blockquote>
+不折叠，电脑上可以用Cherry 已经支持折叠了
+
