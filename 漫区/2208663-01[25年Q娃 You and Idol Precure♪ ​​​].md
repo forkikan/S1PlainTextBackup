@@ -222,3 +222,70 @@ Peach &amp; Idol
 
 唱歌少不了了，大招动画领域展开好有趣好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 292#       发表于 2025-2-2 08:01
+
+有打架呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  jaewoongh_  
+##### 293#       发表于 2025-2-2 08:01
+
+太典了，典就是好，好就是典
+
+*****
+
+####  深渊魔魂  
+##### 294#       发表于 2025-2-2 08:01
+
+展开挺经典的没啥好说的……但总感觉还不够撑起第一集
+啊对了，うた这么想要为客人唱歌的理由
+说起来うた唱的歌全是op的调子，填词水平很高啊
+搞笑情节的q版人物画的有点特别，喜欢
+
+*****
+
+####  双菜  
+##### 295#       发表于 2025-2-2 08:01
+
+挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HGCG+  
+##### 296#       发表于 2025-2-2 08:02
+
+偶像（物理)
+<img src="https://p.sda1.dev/21/bac92162780cd1aa32cb33e1f0e7402b/IMG_CMP_171946994.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/829cdb4bd23be9e6575f148849545a17/IMG_CMP_67666118.jpeg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  renkan119  
+##### 297#       发表于 2025-2-2 08:03
+
+这第一话是不是和偶像没什么关系啊
+
+*****
+
+####  reficul  
+##### 298#       发表于 2025-2-2 08:07
+
+磁铁脸怎么是往小怪身上吸了23333
+
+日常部分帮噗哩找光美那里的搞笑有点勉强，而且衔接时反复用噗哩贴脸直接跳转有点偷懒了
+
+变身好评
+
+今年的ed不太光美，oped都只能说能听，还不到抓耳的程度
+
