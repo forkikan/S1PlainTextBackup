@@ -5876,3 +5876,120 @@ arsenal base都出了。双bit的就是修斯</blockquote>
 麻球这姿态像是在安抚gqx情绪
 麻球这么小 尼亚安站在最前面确实反常
 
+
+*****
+
+####  YU_JI  
+##### 6401#       发表于 2025-2-2 21:49
+
+<blockquote>吃果冻吧你 发表于 2025-2-2 21:48
+麻球这姿态像是在安抚gqx情绪
+
+麻球这么小 尼亚安站在最前面确实反常</blockquote>
+也可能是“把下面的人都干掉”（）
+
+*****
+
+####  RE㐅ia  
+##### 6402#       发表于 2025-2-2 21:50
+
+和s2剧情不能说一模一样吧，只能说是毫无关联
+
+<img src="https://img.saraba1st.com/forum/202502/02/214939zx2hnochhumetsek.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>41A87121-E245-426D-A8BE-10E256C49E28.jpeg</strong> (100.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:49 上传
+
+*****
+
+####  积木23ki  
+##### 6403#       发表于 2025-2-2 21:51
+
+感觉更倾向于以一个OT视角去仰望这个故事的感觉呢
+
+
+*****
+
+####  刺客ares  
+##### 6404#       发表于 2025-2-2 21:53
+
+而且gqx的监视器明明是绿光的
+
+<img src="https://img.saraba1st.com/forum/202502/02/215312f6dqqan08z0idbqo.png" referrerpolicy="no-referrer">
+
+<strong>2.PNG</strong> (626.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:53 上传
+
+主视图上却是整张脸都在闪蓝色
+
+<img src="https://img.saraba1st.com/forum/202502/02/215254l48okyp1c8ck05pq.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (393.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:52 上传
+
+*****
+
+####  岸浪白野  
+##### 6405#       发表于 2025-2-2 21:53
+
+[X 上的 がんぐれ。：“#GQuuuuuuX #ジークアクス もしもあの改札の前で。 [url]https://t.co/iMOAYvIg9c](https://x.com/disemboweled/status/1885987336498090489)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/02/215304nrtte3tm56k70eut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:53 上传
+
+[X 上的 がんぐれ。：“#GQuuuuuuX #ジークアクス ジェリドルート。 [url]https://t.co/wN0vjUTSvw](https://x.com/disemboweled/status/1886035462877520219)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/02/215322zir6md6zsdn766kq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:53 上传
+
+*****
+
+####  YU_JI  
+##### 6406#       发表于 2025-2-2 21:55
+
+水魔这个就符合随便画画的思路，把主角和机体都摆上去，摆一个很酷很帅的姿势，露出一副很严肃很正式的表情，总之就是一眼让人知道角色是哪些；GQX这个就是，画面里除了高达还是高达，拢共俩人一个又远又小，一个背对屏幕，别说表情了，连肤色是黑是白都看不出（）
+
+*****
+
+####  0aleph37  
+##### 6407#       发表于 2025-2-2 21:55
+
+gqx除了Ω塞可谬还搭载了别的系统吗？
+
+*****
+
+####  RE㐅ia  
+##### 6408#       发表于 2025-2-2 21:55
+
+<blockquote>刺客ares 发表于 2025-2-2 21:53
+而且gqx的监视器明明是绿光的
+
+主视图上却是整张脸都在闪蓝色</blockquote>
+所以这台一定是牢修开的（
+
+*****
+
+####  YU_JI  
+##### 6409#       发表于 2025-2-2 21:56
+
+可能是完全形态的欧米茄塞克缪也说不定，麻球都开始浮空了，舱外遥控机体好像也算不上什么新鲜事
+
