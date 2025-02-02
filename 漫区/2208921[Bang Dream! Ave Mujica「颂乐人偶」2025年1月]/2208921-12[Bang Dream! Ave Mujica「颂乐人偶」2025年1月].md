@@ -3493,3 +3493,94 @@ Mujica的鼓就是非常难打的，而且鼓手自主性也更强，不管是�
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2 ...</blockquote>
 没说写得一丝不苟，就是像教室危机那样搞个家族兄弟内斗的框架<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 16584#       发表于 2025-2-2 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332367&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 11:45</a>
+没说写得一丝不苟，就是像教室危机那样搞个家族兄弟内斗的框架</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">快别说了，我要笑抽筋了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  JustW  
+##### 16585#       发表于 2025-2-2 11:49
+
+以及我不懂，老登都让自己女儿自由恋爱和祥爹结婚了，自己对女儿的感情又这么深，请问下大棋折磨自己女儿的女儿的意义是什么？？有这么大本事在结婚前就把祥爹做掉不行吗？唯一合理的解释就是祥子把她亲妈杀了，所以老登才这么恨。
+
+*****
+
+####  ddy2811  
+##### 16586#       发表于 2025-2-2 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332366&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 11:45</a>
+
+祥爹一个酒瓶子扔过去就能让祥子破防搬走，放弃了这么久的坚持，我的评价是老登的手腕不如祥爹一根毛，花 ...</blockquote>
+祥爹那一瓶子可没打掉祥子傲气和倔劲啊，不如说更加偏执了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/067.png" referrerpolicy="no-referrer">
+
+而且这又算不了什么“手腕”，纯粹是陪着玩玩
+
+*****
+
+####  huxiaopao163  
+##### 16587#       发表于 2025-2-2 11:51
+
+呃，也没说老登在折磨祥子啊，只是可能给过家家定了个期限。想折磨祥子的是初华啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（当然以上本来也都是脑补的）
+
+*****
+
+####  iiiiiiiiii  
+##### 16588#       发表于 2025-2-2 11:52
+
+<blockquote>玖羽 发表于 2025-2-2 07:25
+有一个致命的问题，祥子退出Crychic是2019年6月，着手组Ave Mujica是在2020年6月，中间足足隔了一年，这一 ...</blockquote>
+
+按场内说法是这样，问题是舅舅党说猜对的。即便没有那么严丝合缝你也得认真考虑。如果不是串子那就必定说红字真实。那么有对赌就是红字
+
+
+*****
+
+####  wwwttth  
+##### 16589#       发表于 2025-2-2 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332198&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-2 11:24</a>
+
+大祥都说大猫缺练了，大猫自己承认了，不知道一流怎么来的，靠脑补吗。
+
+要是一流，一开始就不会说两利手， ...</blockquote>
+那段肯定不是在说真缺练啊，一个是惯用打法打习惯了，一个是大喵真不想让人知道自己在练维持人设。
+
+*****
+
+####  iiiiiiiiii  
+##### 16590#       发表于 2025-2-2 11:56
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-2 11:57 编辑 
+
+那篇假药有经常剧透mujica的舅舅党黄大叔盖章。如果不是串能确定的是
+
+一，有对赌的协议
+
+二，初华确定有问题
+
+三，初华和睦认识
+
+因为有剧透的舅舅盖章，即便你觉得再不真实的东西都是对的
+
+*****
+
+####  JustW  
+##### 16591#       发表于 2025-2-2 11:56
+
+ 本帖最后由 JustW 于 2025-2-2 11:57 编辑 
+
+给过家家设期限还需要串通高中生，整个经纪公司都可以是丰川家的能不能想象力丰富一些，不知道的还以为一个乐队有多大的商业能量。请问高中生是什么受过特殊训练的职业吗，非要托付给情绪不稳定变数最多的小孩子去执行任务，老登每天不看公司报表，光陪一群高中女生过家家了是吧。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是真的有点害怕了，竟然有人想看这种剧情
+
