@@ -14852,3 +14852,31 @@ ios上有什么可以用api的app推荐吗
 
 问下，有什么可以支持本地个人知识库的应用推荐吗，我看到有自己搭建的，但是对电脑要求有点高
 
+
+*****
+
+####  julia黑  
+##### 1142#       发表于 2025-2-2 16:39
+
+硅基是透传调用API吗，还是有他自己的系统prompt啥的，有没有自我规制？想用它破限好像不行
+
+
+*****
+
+####  lzrtwilight  
+##### 1143#       发表于 2025-2-2 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334235&amp;ptid=2243718" target="_blank">wjx1988124 发表于 2025-2-2 16:28</a>
+问下，有什么可以支持本地个人知识库的应用推荐吗，我看到有自己搭建的，但是对电脑要求有点高 ...</blockquote>
+https://cherry-ai.com/
+可以直接用硅基的API 
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  精钢魔像  
+##### 1144#       发表于 2025-2-2 16:46
+
+在这个点硅基动不了了，真不是美帝攻击？
+

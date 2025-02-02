@@ -300,3 +300,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  卢迪克  
+##### 7557#       发表于 2025-2-2 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333657&amp;ptid=2160194" target="_blank">希鲁夫 发表于 2025-2-2 14:44</a>
+
+感觉boss战难度变高了？玩的普通难度，第一章的庭院boss硬是用魔法磨过去的
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+代码里数值调高了
+
