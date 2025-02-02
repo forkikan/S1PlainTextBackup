@@ -559,3 +559,94 @@ ED很欢快挺喜欢的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 326#         楼主| 发表于 2025-2-2 23:34
+
+[https://x.com/sugimoto_mi_ho_/status/1885845272896618849](https://x.com/sugimoto_mi_ho_/status/1885845272896618849)
+
+『キミとアイドルプリキュア♪』1話
+
+ご視聴ありがとうございました！✨
+
+改めて、1年間よろしくお願い致します🎀
+
+キラッキランラーーン✨
+<img src="https://p.sda1.dev/21/4b5949f95cc3baa609313800ed36e05d/20250202_232817.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mocomoco_cha3/status/1885851338812379147](https://x.com/mocomoco_cha3/status/1885851338812379147)
+
+『キミとアイドルプリキュア♪』OPにて変身直前の3人のカット、2cut原画で参加させて頂きました！
+
+ご覧いただいた皆様、スタッフの皆様、ありがとうございました！✨
+
+これからの物語がとっても楽しみです！！💜🩷💙
+<img src="https://p.sda1.dev/21/59faa3e8c123e984f295d2fc4c392f5c/20250202_232822.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuubyo/status/1885841091670483018](https://x.com/kuubyo/status/1885841091670483018)
+
+『キミとアイドルプリキュア♪』デビューおめでとうございます！
+
+OP、ちょこっと参加させていただきました
+
+これからみんなの活躍が楽しみです！！！
+<img src="https://p.sda1.dev/21/c377e2ad80fd8ec26f5ce8b941d32690/20250202_232842.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/moyasitteyu/status/1885850845469925865](https://x.com/moyasitteyu/status/1885850845469925865)
+
+『キミとアイドルプリキュア♪』のOPにてLO・原画で参加させていただきました！
+
+子どもの時からみてたプリキュアに参加できてとてもうれしいです😭✨✨✨
+
+ありがとうございました！
+<img src="https://p.sda1.dev/21/558a89e7dadd6ae9e17d0cecbdf7cddf/20250202_232850.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hanamaru_hnkc/status/1885910718211612899](https://x.com/hanamaru_hnkc/status/1885910718211612899)
+
+キミとアイドルプリキュア♪始まりましたね！op参加させていただきました！ラストのカットのレイアウトやってます…！(花びらで切り替わったところからです。)原画作業は他の方にお願いしました。拾ってくれた方大変ありがとうございました！
+
+キラッキランラーンな1年にしましょう〜！
+<img src="https://p.sda1.dev/21/ed3c1f83633b4f92c6966f435e2a3fae/20250202_232917.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/natitititixx/status/1885870419846266999](https://x.com/natitititixx/status/1885870419846266999)
+
+キミプリ1話放送されましたね❣️
+
+サブタイトル、アイキャッチの作画監督させて頂いてます💞
+
+2話も楽しみ！
+<img src="https://p.sda1.dev/21/062f3479dc6510c9847cc61357152375/20250202_232847.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wato_0913/status/1885908250522222784](https://x.com/wato_0913/status/1885908250522222784)
+
+『キミとアイドルプリキュア♪』第1話
+
+第二原画で参加させていただきました！
+
+記念すべき1話目から作品に携わることができ光栄に思います！
+<img src="https://p.sda1.dev/21/58dcb7dcabd86dd2f1f039e6aa96c857/20250202_232911.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yuki9hi/status/1885840731102933332](https://x.com/yuki9hi/status/1885840731102933332)
+
+キミとアイドルプリキュア♪OP、キュアアイドルグータッチbank👊の第二原画にて参加させて頂きました！この度も素敵なプリキュアに参加できて感無量です😭🫶
+
+キラッキランラン〜♪✨
+<img src="https://p.sda1.dev/21/c700f76c5d91a08551552889db175085/20250202_232905.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 327#       发表于 2025-2-2 23:41
+
+第一集观感还行吧，有打戏就是好事儿，看后续发展吧
+
+*****
+
+####  Rhantolk  
+##### 328#       发表于 2025-2-2 23:42
+
+我擦，看完要热泪盈眶了，俺们Q娃今年有救了的预感非常强烈
+

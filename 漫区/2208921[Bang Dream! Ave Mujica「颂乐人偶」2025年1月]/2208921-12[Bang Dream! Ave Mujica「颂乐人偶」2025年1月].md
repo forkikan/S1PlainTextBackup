@@ -6789,3 +6789,60 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 16867#       发表于 2025-2-2 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336692&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 23:28</a>
+
+那能不能先解释下武道馆是咋约的，巡演是咋开的，这大手是托底的时候才出现的吗</blockquote>
+所以这又回到以前讨论烂掉的问题，大祥和瞄梦从来没有觉得一个月速通武道馆是多牛逼的成就，
+
+或者说哪怕功利一点，这是大祥找老登砸钱进去或者大祥找其他关系再结合自己实力进去的，然后早就有人指出为什么大祥即不认为这是什么惊人的成就，喵梦也不拿这事调侃大祥，这么大的一个功绩或者说靶子不提，楼里以前又不是没说过这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16868#       发表于 2025-2-2 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336736&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 23:34</a>
+所以这又回到以前讨论烂掉的问题，大祥和瞄梦从来没有觉得一个月速通武道馆是多牛逼的成就，
+
+或者说哪怕 ...</blockquote>
+那为什么说出来托底就烂完了呢，祥子本来也没有给赔偿金的能力啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 16869#       发表于 2025-2-2 23:37
+
+至少大喵老师在舞台上对大伙上下其手的时候，在节目CM时间当着staff和别的队伍的面哈气的时候，在地铁吵架时一定没出现就对了
+
+
+*****
+
+####  aptx8285144  
+##### 16870#       发表于 2025-2-2 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336767&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 23:37</a>
+
+那为什么说出来托底就烂完了呢，祥子本来也没有给赔偿金的能力啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那不就得了，既然经纪人可以被无限弱化，大瞄擅自摘面具也没被大祥哪怕威胁一下我要拿合同出来要踢你走（后面她教唆睦的时候也是，不说真踢，到现在具体的商业合同是怎么样的也没说），那观众凭什么就不能认为一个月速通武道馆只是设定安排呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16871#       发表于 2025-2-2 23:43
+
+<img src="https://p.sda1.dev/21/5b325a5e45a1fe63f9a78f696892c058/image.jpg" referrerpolicy="no-referrer">
+
+再提醒一下，没有乐队解散付给的经济公司的违约金，只有巡演提前结束给器材场地广告宣发人工成本的赔偿金，也就是说乐队解散没有任何成本，也就是说如果是在巡演结束再解散乐队，所有人都可以拍拍屁股回家，而不用多花一分钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
