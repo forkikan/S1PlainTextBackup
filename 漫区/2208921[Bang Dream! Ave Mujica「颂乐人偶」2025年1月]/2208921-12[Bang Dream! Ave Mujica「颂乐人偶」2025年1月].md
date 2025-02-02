@@ -6846,3 +6846,128 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 16872#       发表于 2025-2-2 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336798&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 23:41</a>
+那不就得了，既然经纪人可以被无限弱化，大瞄擅自摘面具也没被大祥哪怕威胁一下我要拿合同出来要踢你走（ ...</blockquote>
+有没有可能根本就没有合同<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARK_HGCG  
+##### 16873#       发表于 2025-2-2 23:47
+
+独角兽去写Q娃了？
+
+*****
+
+####  aptx8285144  
+##### 16874#       发表于 2025-2-2 23:47
+
+如果独角兽觉得一个上了武士馆的乐队可以这样拍拍屁股走人是合理的话，只能说她开心就好，顺便楼里当初可是试图反复证明c团这群人不是过家家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 16875#       发表于 2025-2-2 23:48
+
+最离谱的就是这个解散时机 第二天就是live 前一天晚上就非要解散 这心态完全不能理解
+
+*****
+
+####  单脚着地  
+##### 16876#       发表于 2025-2-2 23:49
+
+无论墨提斯的失控，还是被喵梦打乱计划，亦或是和初华的同床异梦，这些不就是编剧给大象老师预设的困境，是制造剧情矛盾必不可少的一环，大象老师如果真让这艘银河战舰一路碾压过去到结局，那才是真莫名其妙吧，她这个花瓶基本在上一季就有端倪是要被高高捧起重重摔碎的了，
+
+对一个解题才解一半的人倾泻怒火，与其说没有耐心，不如说是想捣乱混淆视给踩死一个角色定调吧
+
+*****
+
+####  Lyzers  
+##### 16877#       发表于 2025-2-2 23:49
+
+丰川的大手：
+
+<img src="https://img.saraba1st.com/forum/202502/02/234831n71y7xzj3fz7yi4q.png" referrerpolicy="no-referrer">
+
+<strong>0f9f435d-00ab-4432-96a5-be0861453ec0.png</strong> (688.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 23:48 上传
+
+
+*****
+
+####  天空塔书记官  
+##### 16878#       发表于 2025-2-2 23:50
+
+ 本帖最后由 天空塔书记官 于 2025-2-2 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336839&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 23:47</a>
+如果独角兽觉得一个上了武士馆的乐队可以这样拍拍屁股走人是合理的话，只能说她开心就好，顺便楼里当初可是 ...</blockquote>
+因为A团实际上担不起上武道馆的分量，而是被资本的大手推上去的，靠强推上和靠自己上存在本质区别，建议先去看看bang第三季，看看前辈们是怎么靠自己上武道馆的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16879#       发表于 2025-2-2 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336824&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 23:46</a>
+
+有没有可能根本就没有合同
+
+—— 来自 鹅球 v3.3.96</blockquote>
+如果丰川集团砸钱的时候连表面文章都懒得做，那自然可以骂柿本和独角兽随性乱来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16880#       发表于 2025-2-2 23:51
+
+十五年前大女主是谁啊
+
+
+*****
+
+####  天空塔书记官  
+##### 16881#       发表于 2025-2-2 23:51
+
+ 本帖最后由 天空塔书记官 于 2025-2-2 23:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336857&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 23:50</a>
+如果丰川集团砸钱的时候连表面文章都懒得做，那自然可以骂柿本和独角兽随性乱来 ...</blockquote>
+所以说是过家家啊，只不过为了过家家盖了一座城而已，这在第二季第四集亦有记载，所以我才会说A团本质暗黑HWW
+
+没必要跟舞台装置较真，真的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16882#       发表于 2025-2-2 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336864&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 23:51</a>
+
+十五年前大女主是谁啊</blockquote>
+可能是指凉宫春日
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16883#       发表于 2025-2-2 23:55
+
+我问这个问题是因为我越来越感觉现在魔怔人越来越多根本是自己喝自己做的假药喝傻了。
+

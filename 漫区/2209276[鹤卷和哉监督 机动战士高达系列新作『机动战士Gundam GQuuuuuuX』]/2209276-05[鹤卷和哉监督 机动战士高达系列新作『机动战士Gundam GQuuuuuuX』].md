@@ -6088,3 +6088,158 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 
 2025-2-2 23:25 上传
 
+
+*****
+
+####  岸浪白野  
+##### 6418#       发表于 2025-2-2 23:48
+
+ <blockquote>ハロに関しては？<blockquote> 榎戸さん</blockquote><blockquote> 元々鶴巻監督はハロが嫌いで今回の作品にはハロは出さないと言われて </blockquote><blockquote>いやでもガンダムにハロでないのはまずいですよって毎日電話して食い下がって </blockquote><blockquote>シュウジのペットロボットのコンチを出してきてこれ出すからって</blockquote><blockquote><blockquote>これ出すからハロ出さなくていいってことではないよって</blockquote><blockquote>渋々出して貰った</blockquote></blockquote><blockquote>鶴巻監督</blockquote><blockquote>今となっては何でそんなに出さないでいいと思ってたのかわからない</blockquote><blockquote>当時はコンチ出るからいいじゃんって思ってた</blockquote><blockquote>結果的におんなじようなのが2ついるのがうるさくなってるけど面白いよなって</blockquote><blockquote>榎戸さん</blockquote><blockquote>ハロは結構大事なこと喋る</blockquote></blockquote>
+关于哈罗（ハロ）的问题：
+
+榎戸
+
+原本鹤卷监督并不喜欢哈罗，甚至明确表示“这次的作品里不会出现哈罗”。
+
+但我坚持说：“不行啊，高达作品里没有哈啰是不行的！”每天都打电话去争取。
+
+后来他们提出了“修司的宠物机器人‘コンチ’”来代替哈罗，说“用这个来代替吧”。
+
+我说：“推出这个（コンチ）并不代表就可以不用哈罗了！”
+
+最后他们勉强同意让哈罗出场了。
+
+鹤卷
+
+现在回想起来，我也不明白当时为什么觉得“不出现哈罗也无所谓”。
+
+那时候觉得“反正有コンチ出场了，不就行了吗？”
+
+结果现在变成了两个类似的角色（哈罗和コンチ）同时存在，虽然有点吵闹，但也挺有趣的。
+
+榎戸
+
+哈罗其实会说出一些很重要的事情
+
+
+*****
+
+####  纪寞  
+##### 6419#       发表于 2025-2-2 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335554&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-2 20:30</a>
+
+假朋友是牢修吧？
+
+表面上热心的一起打2v2，实际上只是想利用玛秋和欧米伽塞可缪引发泽克诺瓦回到原来的世界 ...</blockquote>
+但是泽克洛瓦看剧中和奥米加塞克缪没直接关系，实际需要"沙仑的玫瑰"和阿尔法塞克缪就可以。
+
+另外从主题曲中看出两位主要女角色都会因为不同的选择而与整个故事无缘，那她们应该都没啥特殊背景。
+
+之后就是结尾总得把鸭子弄回来，这个时期鸭子还能对无辜jk耍心计那裤袜脱落不得给他来一拳，搞崩鸭子人设才是最大的问题了。
+
+有鸭子看着的修司感觉反而是最稳当那个，只是瞒的东西比较多而已，除非他自己有其他心机能把鸭子都骗住。
+
+*****
+
+####  刺客ares  
+##### 6420#       发表于 2025-2-2 23:53
+
+看B站歌词，管人这首是玛秋角色曲啊，而且有和午夜反射共通的歌词<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+暗示了最终会是HE吗，鹤卷gg会给HE吗？
+
+周而复始的fantasy，充斥着阿谀奉承的泛泛之辈
+
+遵从本能自行其是，于青蓝之中激增的冲动
+
+已经，怎样都无所谓了
+
+只想知晓理所当然之事，<strong>向繁星许下最真实的心愿</strong>
+
+在痛苦中故作坚强的借口，不需要，没意义，你觉得呢？
+
+感觉仿佛失去方向，内心如同带刺荆棘
+
+喋喋不休地说着相同的话语，如同笼中鸟般舞动
+
+狼狈周章百般掩饰，紧紧环抱，哭喊着，<strong>望其不会消失</strong>
+
+像魔法一样便利之物，如果是主人公就该有起承转合
+
+最后不管怎样都会是Happy Ending
+
+既然如此，那就随心而动吧
+
+已经，怎样都无所谓了
+
+上下颠倒垂直坠落，零重力的<strong>Midnight</strong> 逃避之行
+
+于秘密之后彼此交合无法自拔
+
+把一切通通带走，毫无保留地将人生讴歌，乘着交融的星辰驰骋
+
+像是月亮很美之类的，这世间的一切Wonder，将爱歌颂
+
+*****
+
+####  Piano-Forest  
+##### 6421#         楼主| 发表于 2025-2-2 23:54
+
+追加キャラ＆メカ多数解禁
+
+本作に登場するキャラクターとメカを、これより多数公開いたします！
+
+▼本日の解禁内容一覧はこちら
+[https://www.gundam.info/feature/ ... deo-music/01_16545/](https://www.gundam.info/feature/gquuuuuux/news/video-music/01_16545/)
+
+鶴巻和哉監督、新作ガンダム『ジークアクス』の制作秘話 衝撃の裏話を披露
+[https://www.oricon.co.jp/news/2366763/full/](https://www.oricon.co.jp/news/2366763/full/)
+[https://youtu.be/Z09x31WOs9o](https://youtu.be/Z09x31WOs9o)
+
+機動戦士Gundam GQuuuuuuX：鶴巻和哉監督、榎戸洋司が明かす誕生秘話、制作の裏側　富野監督への思い
+[https://mantan-web.jp/article/20250202dog00m200016000c.html](https://mantan-web.jp/article/20250202dog00m200016000c.html)
+
+「GQuuuuuuX」改札、橋の下　鶴巻和哉＆榎戸洋司が出会いのシーンについて言及
+[https://natalie.mu/comic/news/610066](https://natalie.mu/comic/news/610066)
+
+[https://x.com/khara_inc2/status/1885898455161454827](https://x.com/khara_inc2/status/1885898455161454827)
+
+本日２月２日は早川健の親友飛鳥五郎の命日（社長の毎年の小ネタ）であり、#ジークアクス の監督 #鶴巻和哉 の誕生日であります。マッキー、59歳おめでとう。
+
+（弊社社長談）
+
+#庵野秀明 より
+
+※本当は17歳(鶴巻談)
+<img src="https://p.sda1.dev/21/0c490ac59be497da73b1e04035b5e0d3/20250202_235132.jpg" referrerpolicy="no-referrer">
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』大ヒット御礼舞台挨拶　午前の回にご来場の皆様、お足元の悪い中ありがとうございました。
+
+午後の回にご来場の皆様もどうぞお気をつけてお越しくださいませ。
+<img src="https://p.sda1.dev/21/08af59001ffd72d2eb20837c412525ba/20250202_235138.jpg" referrerpolicy="no-referrer">
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』大ヒット御礼舞台挨拶　午後の回も終了しました！ご来場の皆様誠にありがとうございました。
+
+トークショーの内容を踏まえて観直したくなったらば是非X回目のご鑑賞に来て頂けますと幸いです！
+<img src="https://p.sda1.dev/21/8fc27dbd94ab1dbb41ffe54e893395b4/20250202_235145.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_take_oekaki/status/1885999227744186785](https://x.com/_take_oekaki/status/1885999227744186785)
+
+🎂🥳
+<img src="https://p.sda1.dev/21/221494922388e0c849da59c29efe1014/20250202_235148.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 6422#       发表于 2025-2-2 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336847&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-2 23:48</a>
+
+ハロに関しては？
+
+榎戸さん
+
+元々鶴巻監督はハロが嫌いで今回の作品にはハロは出さないと言われて</blockquote>
+这个哈罗会说一些很重要的事情想起别人说过在玛秋第一次坐进gqx时，是哈罗先说"锁解开了"，然后是gqx启动奥米加塞克缪。这哈罗不会真有什么背景吧。
+
