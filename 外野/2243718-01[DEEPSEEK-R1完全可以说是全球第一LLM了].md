@@ -14959,3 +14959,16 @@ gemini啊，gemini上下文很长
 
 分享一个NGA那边的从零开始教程吧，我也把OPEN WEBUI换了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 1152#       发表于 2025-2-2 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335166&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-2 19:13</a>
+https://nga.178.com/read.php?tid=43170286
+
+分享一个NGA那边的从零开始教程吧，我也把OPEN WEBUI换了 ...</blockquote>
+看不到帖子 问一下
+open webui有什么不好的地方？
+

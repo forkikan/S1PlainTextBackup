@@ -5721,3 +5721,32 @@ IMG_3551.jpeg
 
 捞了一个录播补档给错过live的，先止渴吧
 
+
+*****
+
+####  玖羽  
+##### 16771#       发表于 2025-2-2 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335095&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-2 19:05</a>
+
+说到电影，看到贴吧也有分析的。
+
+电影里一共五个人，女主，男主，后面三个坐着的人。
+
+但是女主的台词“你 ...</blockquote>
+即使这样，我认为最基本的原则也不应该变，即每一个背叛者都不应该同质
+
+如果睦是知而不报型的背叛者，那海铃是什么？
+
+所以即使按照这个标准，也不妨假设海铃是知而不报型的背叛者，睦是(在祥子看来)没有坚决站在祥子一边的背叛者
+
+
+*****
+
+####  SakuraのOrigami  
+##### 16772#       发表于 2025-2-2 19:24
+
+乌托邦开始算的话
+那估计剩两三首新的（）
+<img src="https://p.sda1.dev/21/71907b999c15e695f5cf468537389547/IMG_E33B28D88A3DB1EB201D8E6FC972CCEC.jpeg" referrerpolicy="no-referrer">
+

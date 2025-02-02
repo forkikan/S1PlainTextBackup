@@ -376,3 +376,16 @@
 
 界我是一路平推过去的   最多是打的太快对面集体抢S灭了几次
 
+
+*****
+
+####  alucardcz  
+##### 7565#       发表于 2025-2-2 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335129&amp;ptid=2160194" target="_blank">zhouaa 发表于 2025-2-2 19:08</a>
+
+比以前简单非常多吧 以前闪噩梦第一个BOSS因为开始一穷二白总会卡你下   
+
+界我是一路平推过去的   最多是 ...</blockquote>
+翻了翻神攻略那边的评论好像说已经改过了 降低了部分怪放技能的频率？
+
