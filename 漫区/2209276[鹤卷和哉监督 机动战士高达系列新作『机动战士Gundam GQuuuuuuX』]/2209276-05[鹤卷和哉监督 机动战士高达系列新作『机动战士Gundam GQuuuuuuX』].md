@@ -6243,3 +6243,30 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 元々鶴巻監督はハロが嫌いで今回の作品にはハロは出さないと言われて</blockquote>
 这个哈罗会说一些很重要的事情想起别人说过在玛秋第一次坐进gqx时，是哈罗先说"锁解开了"，然后是gqx启动奥米加塞克缪。这哈罗不会真有什么背景吧。
 
+
+*****
+
+####  刺客ares  
+##### 6423#       发表于 2025-2-3 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336891&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-2 23:55</a>
+
+这个哈罗会说一些很重要的事情想起别人说过在玛秋第一次坐进gqx时，是哈罗先说"锁解开了"，然后是gqx启动 ...</blockquote>
+按这说法可以把牢修背刺排除了，因为哈啰PV1就说过“玛秋的mav，真正的mav”
+
+剧场版说完牢修就来了，玛秋还很高兴的上去迎
+
+这要背叛岂不是成哈啰打脸现场了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 6424#       发表于 2025-2-3 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336878&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-2 23:53</a>
+
+看B站歌词，管人这首是玛秋角色曲啊，而且有和午夜反射共通的歌词
+
+暗示了最终会是HE吗，鹤卷gg会给HE吗？</blockquote>
+午夜反射不是点名永别主题了吗，看谁走罢了
+

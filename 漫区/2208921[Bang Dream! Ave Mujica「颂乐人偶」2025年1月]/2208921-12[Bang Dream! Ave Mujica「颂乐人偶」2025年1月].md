@@ -6971,3 +6971,98 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 我问这个问题是因为我越来越感觉现在魔怔人越来越多根本是自己喝自己做的假药喝傻了。
 
+
+*****
+
+####  是谁的书画  
+##### 16884#       发表于 2025-2-2 23:57
+
+本来这两部里其他几个人能量加一块都没祥子一个人大，前面陀螺抽的有多狠后面机械降神的就有多邦邦。这故事都走到现在了，不靠大女主还有谁推的动这叙事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16885#       发表于 2025-2-2 23:57
+
+ 本帖最后由 天空塔书记官 于 2025-2-2 23:58 编辑 
+
+团魂，现在就是在告诉你，单凭一个人的力量无法达成想要的结果，只有五个人齐心协力才行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16886#       发表于 2025-2-2 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336626&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-2 23:19</a>
+
+一个要靠角色厨爆米的企划还能问出为啥要让角色厨满意这种抽象问题的？</blockquote>
+因为二次元企划，都默认最后要包饺子，所以过程就算再怎么伤害大，都可以以后“一笑名恩仇”，所以自然可以随意让角色党满意或不满意(
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16887#       发表于 2025-2-2 23:58
+
+顺便：
+
+<img src="https://img.saraba1st.com/forum/202502/02/235835ipxyeb3zbp1dixqd.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (12.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 23:58 上传
+
+*****
+
+####  plok201  
+##### 16888#       发表于 2025-2-2 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336598&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-2 23:16</a>
+
+其实我挺不能理解某些夸大象老师祖父的人的，老登大概率是给大象她爹挖坑，然后对大象故技重施的，区别是对 ...</blockquote>
+有啥不理解的，你直接一句老登挖坑就挺搞笑的，这是你自己弄的假药，大部分人没必要理这个
+
+又不是没有那种一脸坏人的老家长其实根本没问题的片
+
+那我还能弄个假药是祥爹就是混账呢，钱是偷公司的，不想闹大才踢出家族呢
+
+就剧里演到的，他钱出了，也没给你添堵，人接回来了，甚至没有扔啤酒罐
+
+
+*****
+
+####  aptx8285144  
+##### 16889#       发表于 2025-2-3 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336897&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-2 23:57</a>
+
+本来这两部里其他几个人能量加一块都没祥子一个人大，前面陀螺抽的有多狠后面机械降神的就有多邦邦。这故事 ...</blockquote>
+爱音和瞄梦大概率要起重要作用，前者是因为太正常，后者是为了洗白需要，当然机械降神什么的，从引入双人格那时候起就很多剧情早就注定不能理性思考了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fosanoha  
+##### 16890#       发表于 2025-2-3 00:02
+
+说起来十五年这个时间到底是怎么出来的，整个邦邦才十年吧
+
+难道是从隔壁lovelive算起的吗，那个倒是2010年成立的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  第贰个十年  
+##### 16891#       发表于 2025-2-3 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331469&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-2 09:04</a>
+组母鸡卡不就是自尊心作祟，小祥身上又没有欠款，她在母鸡卡追求的东西c团实际上都能满足，只不过这团被 ...</blockquote>
+我完全不能理解，我相信大部分观众也不能理解。如果之后没有其他的揭露信息，比如“人偶”“世界观”跟母亲有关之类独特的意义的话，这个mujica的团魂我看是完蛋了。
+
+现实因素倒不需要特别理解，“舞台装置”一个性质的东西，但这部分实在太滥用了，以至于观众难以忽视，然后真一琢磨就只能像你说的那样推论，味道就不对了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
