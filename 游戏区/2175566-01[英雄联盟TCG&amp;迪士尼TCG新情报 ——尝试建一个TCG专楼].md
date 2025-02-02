@@ -6,3 +6,13 @@
 
 最近入坑了duelmasterplays 感觉和MTG其实区别巨大 经常在秒杀和被反手一波推走之间徘徊
 
+
+*****
+
+####  fbman  
+##### 235#       发表于 2025-2-3 04:49
+
+dm主打的就是一个快速对局吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
