@@ -4827,3 +4827,35 @@ exactly truth
 
 我觉得祥子只是被脸皮厚度惊到了 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 16689#       发表于 2025-2-2 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333976&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-2-2 15:42</a>
+
+祥子跟爱音go里最后一场对话应该是说跟soyo组到了乐队</blockquote>
+祥子跟爱音虽然没怎么说话，但是祥子见到爱音和灯在一起好几次，事实上以她们隔壁班的距离，怕不是隔三差五见
+
+灯递歌词本的时候祥子还从爱音身边走过去呢
+
+
+*****
+
+####  一心而用  
+##### 16690#       发表于 2025-2-2 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333699&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-2-2 14:51</a>
+问到啥了啊急急急</blockquote>
+舅舅党有时候也会串的，不要太当真。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 16691#       发表于 2025-2-2 15:56
+
+ 本帖最后由 aptx8285144 于 2025-2-2 15:57 编辑 
+
+不过非要假药的话，老登下的大棋 下面的人又怎么知道，毕竟老登交代时的语气也不像是把大祥当犯人看管，在手下人看来老登是怕孙女离家出走（比如又去和中登在一起了）或想不开自杀这种感觉
+
