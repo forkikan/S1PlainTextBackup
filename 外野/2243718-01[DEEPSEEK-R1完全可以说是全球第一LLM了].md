@@ -14712,3 +14712,13 @@ chatbox ，然后用api
 可以用Chatbox，设置api就行</blockquote>
 请问你用chatbox连硅基的r1他的思考过程生成后折叠吗，我连原厂的没问题，连硅基就咔咔全写在生成文字前面不给折叠
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1128#       发表于 2025-2-2 14:29
+
+请问有什么好用的整理文档的ai吗，我手动写的和dp老师跑团的设定有点太多了，让dp老师整理他又太爱简化<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

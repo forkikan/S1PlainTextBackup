@@ -4634,3 +4634,19 @@ MyGO前四话讲的无非是几个女孩从不熟到不怎么熟，她们决定�
 
 所以我推荐这个初见MyGO解说，可以提供新鲜大脑的真实视角：[https://www.bilibili.com/video/BV1Egf6YvErr/](https://www.bilibili.com/video/BV1Egf6YvErr/)
 
+
+*****
+
+####  stmule  
+##### 16671#       发表于 2025-2-2 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327847&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-1 16:57</a>
+这几天提到祥子夏亚说的越来越多了
+
+有崇高理想、双标、吃瘪役、过刚易折、自我毁灭倾向、回避型依恋、缺母 ...</blockquote>
+<img src="https://p.sda1.dev/21/8e108cba688943becb181787172dd6fe/CMP_20250202143150631.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fd853be7a5b7626cbcf854dbcd955d0a/CMP_20250202143138283.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
