@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 12306,
+    "totalreply": 12307,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1738491250,
+    "lastedit": 1738496895,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 131936,
+    "totalreply": 131939,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738496295,
+    "lastedit": 1738496895,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9923,7 +9923,7 @@
     "newtitle": "[【百合厨真爱楼】河豚生态观察交流]",
     "lastedit": 1738237458,
     "category": "手游战斗",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2174639": {
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 16772,
+    "totalreply": 16773,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月 (禁止带图剧透)]",
-    "lastedit": 1738495697,
+    "lastedit": 1738496892,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10620,10 +10620,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 6356,
+    "totalreply": 6357,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1738493896,
+    "lastedit": 1738496895,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10701,10 +10701,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 50826,
+    "totalreply": 50839,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1738496291,
+    "lastedit": 1738496895,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12780,10 +12780,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 1154,
+    "totalreply": 1155,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738496295,
+    "lastedit": 1738496767,
     "category": "外野",
     "active": true,
     "update": false
@@ -16551,10 +16551,10 @@
     "update": false
   },
   "2244888": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[美国学校的9美刀套餐]",
     "newtitle": "[美国学校的9美刀套餐]",
-    "lastedit": 1738495697,
+    "lastedit": 1738496649,
     "category": "外野",
     "active": true,
     "update": false
@@ -16808,6 +16808,15 @@
     "newtitle": "[足控系画师的个人所见]",
     "lastedit": 1738496053,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2244965": {
+    "totalreply": 41,
+    "title": "[美国对ai的重视，是不是把它当做当年原子弹来看的？]",
+    "newtitle": "[美国对ai的重视，是不是把它当做当年原子弹来看的？]",
+    "lastedit": 1738496651,
+    "category": "外野",
     "active": true,
     "update": false
   }

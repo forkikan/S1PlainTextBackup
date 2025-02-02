@@ -14990,3 +14990,21 @@ open webui有什么不好的地方？
 把R1输出的片段，再让GEMINI扩写，神功大成了</blockquote>
 gemini不是不能用中文了吗？
 
+
+*****
+
+####  用户名已注册  
+##### 1155#       发表于 2025-2-2 19:42
+
+ 本帖最后由 用户名已注册 于 2025-2-2 19:44 编辑 
+
+请教下，在深度思考的文字中，出现“根据OpenAI的使用政策”，这是个什么原理。
+
+<img src="https://img.saraba1st.com/forum/202502/02/194409g9qa9es8ny0fn9af.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1844.PNG</strong> (194.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 19:44 上传
+
