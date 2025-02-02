@@ -81,3 +81,24 @@ yin兽*2
 
 这下没开过sololive和开过的直接格差了
 
+
+*****
+
+####  holofan  
+##### 10734#       发表于 2025-1-31 17:05
+
+[https://x.com/groove_coaster/status/1885171173925019904](https://x.com/groove_coaster/status/1885171173925019904)
+
+今天发了带音声的PV了
+
+我操这声线似曾相识！
+
+*****
+
+####  rs5621  
+##### 10735#       发表于 2025-2-2 16:51
+
+鲷鱼烧都开第三期了啊，是真的好卖
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

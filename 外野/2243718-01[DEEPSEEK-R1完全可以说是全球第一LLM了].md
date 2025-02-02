@@ -14880,3 +14880,26 @@ https://cherry-ai.com/
 
 在这个点硅基动不了了，真不是美帝攻击？
 
+
+*****
+
+####  qqks  
+##### 1145#       发表于 2025-2-2 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334348&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-2-2 16:46</a>
+
+在这个点硅基动不了了，真不是美帝攻击？</blockquote>
+api没问题，就是吐字慢了一点
+
+*****
+
+####  断片集  
+##### 1146#       发表于 2025-2-2 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334235&amp;ptid=2243718" target="_blank">wjx1988124 发表于 2025-2-2 16:28</a>
+
+问下，有什么可以支持本地个人知识库的应用推荐吗，我看到有自己搭建的，但是对电脑要求有点高 ...</blockquote>
+[https://msty.app](https://msty.app)
+
+这个吧，能本地建RAG，还能接obsidian库
+

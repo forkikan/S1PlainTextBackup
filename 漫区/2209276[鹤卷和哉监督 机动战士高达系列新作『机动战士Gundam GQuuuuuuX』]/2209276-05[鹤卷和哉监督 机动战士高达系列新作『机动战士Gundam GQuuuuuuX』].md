@@ -5193,3 +5193,28 @@ https://www.oricon.co.jp/news/2367045/full/</blockquote>
 
 说不定就是参考了这部动画，才出了个0079异闻录。
 
+
+*****
+
+####  0aleph37  
+##### 6339#       发表于 2025-2-2 16:55
+
+<blockquote>猪突猛进R 发表于 2025-2-2 16:32
+这么看刚才有人提到的buddy complex确实也是Newtype，2人一组，也能干涉时间。
+
+说不定就是参考了这部动画 ...</blockquote>
+这种闭合的世界观不利于万代出新胶吧
+
+*****
+
+####  岸浪白野  
+##### 6340#       发表于 2025-2-2 16:55
+
+<img src="https://img.saraba1st.com/forum/202502/02/165552d3lhhkzsbkfkbhca.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 16:55 上传
+
