@@ -14282,3 +14282,53 @@ openrouter的免费版也用不了，Too many requests
 
 服务器总是繁忙啊，有什么好办法解决吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  加藤樱  
+##### 1093#       发表于 2025-2-2 09:58
+
+192G内存的MAC也可以部署一个671b的量化版模型了，装进内存大概131G<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+【怒省200W！库克狂喜！MAC本地部署Deepseek 671B大模型-哔哩哔哩】 https://b23.tv/JzTnUdR
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  午夜钓者  
+##### 1094#       发表于 2025-2-2 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331661&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 09:48</a>
+服务器总是繁忙啊，有什么好办法解决吗</blockquote>
+用硅基流动吧 速度还可以 用邀请链接能得14元额度
+https://cloud.siliconflow.cn/i/SgzjOJZB
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  名居守  
+##### 1095#       发表于 2025-2-2 10:04
+
+ 本帖最后由 名居守 于 2025-2-2 10:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">官网的D老师一般在凌晨3～6点左右比较活泼，凌晨4～5点基本秒回
+
+剩余的时间基本上就属于“快动啊D老师你为什么不动啊”“没有ds玩要死了”
+
+这几天一直用，甚至还通宵了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">距离上次因为兴趣通宵都好几年了
+
+话说原来硅基限流了，难怪
+
+*****
+
+####  约翰里德  
+##### 1096#       发表于 2025-2-2 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331701&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 09:59</a>
+用硅基流动吧 速度还可以 用邀请链接能得14元额度
+https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
+这个也是ds老师？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
