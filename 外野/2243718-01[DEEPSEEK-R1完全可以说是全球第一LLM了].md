@@ -14437,3 +14437,37 @@ https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
 
 “当然可以，约定好了喵”
 
+
+*****
+
+####  午夜钓者  
+##### 1104#       发表于 2025-2-2 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331819&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 10:25</a>
+额，反正都是类似产品是把，我试试，看蒙了，可以包月吗</blockquote>
+模型上标了价格，1Tokens大约1.5个中文字符
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Holyted  
+##### 1105#       发表于 2025-2-2 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330354&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-2 00:04</a>
+在拥有大量训练数据的语言里面
+
+中文的信息熵最大（
+
+数学是不是证明过了 ...</blockquote>
+让我想起一段往事，我本科是中文系，记得当年古汉语老师说过，别以为咱们中文系没用，将来人工智能时代中文可能是前沿专业<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+虽然中文专业对ai确实没啥用吧，但中文ai的能力确实被证明了吧
+
+*****
+
+####  qqks  
+##### 1106#       发表于 2025-2-2 10:57
+
+vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用第三方api，发现硅基流动的输出较之原版非常飘，容易陷入自问自答的无限循环。感觉默认的模型参数有很大问题
+

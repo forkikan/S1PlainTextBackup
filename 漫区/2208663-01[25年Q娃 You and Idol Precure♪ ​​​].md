@@ -376,3 +376,31 @@ Peach &amp; Idol
 
 幻视罗武哥x
 
+
+*****
+
+####  jaewoongh_  
+##### 308#       发表于 2025-2-2 10:48
+
+又刷了一遍，ed不错，op不如想象中好
+
+
+*****
+
+####  leleq  
+##### 309#       发表于 2025-2-2 10:54
+
+ 本帖最后由 leleq 于 2025-2-2 10:55 编辑 
+
+我就说今千秋老逼的Q娃怎么会没有打斗呢！好！<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+偶像家里是开饭店的把饭勺换成麦克风是吧，偶活Q娃是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+东大妈：小友们看好了银兽的做法跟要家长们要玩具时就要这样做哦
+
+You and Idol Precure♪ 完 下周同一时间请看 魔法つかいプリキュア！！～MIRAI DAYS～<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+粉主的变身比较标准，打斗只能说还行，只能说毕竟憋了一年了。
+
+今千秋有丰富的贫穷动画经历<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">未来谨慎看好
+

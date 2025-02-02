@@ -3132,3 +3132,18 @@ s1的手机端最近不行了，完全一片混乱，电脑端都有一些图看
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  新HGCG  
+##### 16550#       发表于 2025-2-2 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331593&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-2 09:34</a>
+
+布什戈门？
+
+邦多利世界观里喵梦“这么好的鼓手哪里找”？
+
+好在哪？除了左右利手还有啥？</blockquote>
+你对鼓手好坏的定义是“听大小姐的话”的话那我同意你的观点
+
