@@ -4347,3 +4347,19 @@ PlaZma + 卡缪的二创现在在N站真的很火，原版已经上20W播放了
 
 快闪店好像已经要放出夏亚的商品了，大概今天就会剧透解禁吧
 
+
+*****
+
+####  刺客ares  
+##### 6265#       发表于 2025-2-2 11:29
+
+<img src="https://img.saraba1st.com/forum/202502/02/112842ixjcwvj50xcx405e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9863.jpeg</strong> (524.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 11:28 上传
+
+牢鸭周边已经明目张胆贴出来了
+

@@ -907,3 +907,14 @@ deepseek别的不知道，利好硬件升级是真的。
 你看下帖子内容啊，每秒 2token 的输出黄花菜都凉了，这帖子纯粹为了迎合反老黄的情绪，一点实用性都没有。 ...</blockquote>
 前几年确实有挖硬盘的
 
+
+*****
+
+####  harry3  
+##### 82#       发表于 2025-2-2 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331101&amp;ptid=2244823" target="_blank">UniqueDiablo 发表于 2025-2-2 03:16</a>
+
+前几年确实有挖硬盘的</blockquote>
+硬盘币是硬盘币，和AI没一点关系啊，本来就是搞p2p那群人设计的
+

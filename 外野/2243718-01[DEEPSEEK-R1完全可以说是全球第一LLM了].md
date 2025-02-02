@@ -14554,3 +14554,16 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用第三方api，发现硅基流动的输出较之原版非常 ...</blockquote>
 买的哪家查哪家文档，需要在调用指令里加参数
 
+
+*****
+
+####  约翰里德  
+##### 1114#       发表于 2025-2-2 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332065&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 11:04</a>
+直接扣余额的 你直接充值余额就行 充值需要实名认证
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+原来得在网页版弄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过这玩意没有app吗？有点坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3325,3 +3325,121 @@ s1的手机端最近不行了，完全一片混乱，电脑端都有一些图看
 
 老登白手套是初华，初华白手套是喵梦，这丰川家想干个什么还要找高中女生套中套，这剧情梗概写出来不觉得很tm傻缺吗？？RAS主线里敌对一个娱乐圈略有名气的制作，人家都能一个电话让你连演出舞台都找不到，我们大财阀丰川家是在地下养了一群儿童兵吗，给孙女一点资本的震撼这种屁大点事还要这么搞，是不是有病，祥子是离家出走了又不是把她亲妈杀了，那么恨呢。
 
+
+*****
+
+####  aptx8285144  
+##### 16567#       发表于 2025-2-2 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332160&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-2 11:18</a>
+
+现在不是什么大手不大手的问题，问题是独角兽没那个能力驾驭这种题材。不如说日本业界有能力驾驭这个的，并 ...</blockquote>
+其实严丝合缝确实很少，但主要原因是在“少女乐队”番里面搞这么多几原（各种恐怖渲染手法）++丸户（商业）+蘑菇（双重人格）元素作品好像是第一次了，历史上有偏成人题材的音乐番漫改（nana），但是少女音乐队搞这些元素缝合应该是第一次<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 16568#       发表于 2025-2-2 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332179&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-2 11:21</a>
+
+排除在老家练过，理论上喵梦练鼓就一年不到，跟祥子从小开始谈钢琴，初华能自己作曲，睦从小开始弹吉他，还 ...</blockquote>
+如果真的就是这样呢？<img src="https://static.saraba1st.com/image/smiley/carton2017/067.png" referrerpolicy="no-referrer">
+
+Mujica的鼓就是非常难打的，而且鼓手自主性也更强，不管是装新手炸鱼还是真的一年多打出这个水准，那就是有资格叫板的
+
+*****
+
+####  JustW  
+##### 16569#       发表于 2025-2-2 11:29
+
+让我想起一个很傻缺的galgame—恋爱选举巧克力，一群高中生选个学生会长又是开车撞人又是孤儿间谍，就为了社团经费，气笑了
+
+*****
+
+####  JustW  
+##### 16570#       发表于 2025-2-2 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332235&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 11:29</a>
+其实严丝合缝确实很少，但主要原因是在“少女乐队”番里面搞这么多几原（各种恐怖渲染手法）++丸户（商业 ...</blockquote>
+不是，哪里有几原的要素了
+
+*****
+
+####  dgugvff  
+##### 16571#       发表于 2025-2-2 11:33
+
+我一点都不认为，wsd是祥黑不如老实说这就是祥子曾经犯的错误现在就是要去承受的，最怕的就是她本人自己还没有意识到，这个世界不是每个人都会回应她给她爱，而不去直视她自己的错误
+
+*****
+
+####  aptx8285144  
+##### 16572#       发表于 2025-2-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332243&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 11:29</a>
+
+让我想起一个很傻缺的galgame—恋爱选举巧克力，一群高中生选个学生会长又是开车撞人又是孤儿间谍，就为了 ...</blockquote>
+那毕竟有原作，原作世界观下，学校就是个半个社会，连老师们都是学生雇佣的（你看主角团里就有个老师就是如此），学生会会长宝座几乎就是学校这个社会一号人物，各大部门形成派系争斗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，还有学校内设治安部这种一听就很国家化的部门
+
+
+*****
+
+####  厚乳果珍爽  
+##### 16573#       发表于 2025-2-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332238&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-2-2 11:29</a>
+
+如果真的就是这样呢？
+
+Mujica的鼓就是非常难打的，而且鼓手自主性也更强，不管是装新手炸鱼还是真的一年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是编剧傻逼。让海玲找个听话鼓手还不是很容易的事？
+
+*****
+
+####  Lyzers  
+##### 16574#       发表于 2025-2-2 11:35
+
+这时候就得换回乐队动画世界观的逻辑，音乐就是能当催眠APP。jk乐队大战财团大手，拉两车蓝牙音箱放live，一半放春日影一半放Mujica，听众精神大统一感化老登<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 16575#       发表于 2025-2-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332270&amp;ptid=2208921" target="_blank">dgugvff 发表于 2025-2-2 11:33</a>
+我一点都不认为，wsd是祥黑不如老实说这就是祥子曾经犯的错误现在就是要去承受的，最怕的就是她本人自己还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你说得对，但是编剧至少还要再安排金发舔狗加灯皇舔狗环节，怎么你不服气.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 16576#       发表于 2025-2-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332224&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 11:27</a>
+
+老登白手套是初华，初华白手套是喵梦，这丰川家想干个什么还要找高中女生套中套，这剧情梗概写出来不觉得很 ...</blockquote>
+要的就是先给你爽一把再收回去啊，回头再思考就会发现最开始的顺境不说全部也有一大半是资本大手，而祥子却把这些当成了自己的能力和理所当然可以使用的东西，等到养成习惯了再一撤发现原来是这么一回事，这时候祥子就该懂得资本是多么有力而自己和自己的坚持是多么一文不值了
+
+所以很可能在喵梦这里摔跟头不是那么坏的事，搞不好也没有多少安排，只是祥子自己拉来的喵梦一不小心撞破了局歪打正着让祥子提前玩崩了。如果确实如此，这可是祥子货真价实的失败，而不是老登安排的戏码，是相当有意义的
+
+*****
+
+####  aptx8285144  
+##### 16577#       发表于 2025-2-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332255&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 11:31</a>
+
+不是，哪里有几原的要素了</blockquote>
+主要前面几话舞台剧那些恐怖多少让人想起几原玩的一些手法时恐怖味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 16578#       发表于 2025-2-2 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332277&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 11:34</a>
+那毕竟有原作，原作世界观下，学校就是个半个社会，连老师们都是学生雇佣的（你看主角团里就有个老师和铃 ...</blockquote>
+关键这个作品我玩了一部分后已经说服自己这是一个把高中舞台当成社会模型的隐喻作品了，结果越往后玩越发现里面的所有高中生的心智真的就是只有高中生水平，尤其男主完全就是纯纯的普通高中生，完全没有任何超出高中生水平的认知，结果发生的事全是要死要活的，已经不是割裂可以形容而是滑稽了
+
