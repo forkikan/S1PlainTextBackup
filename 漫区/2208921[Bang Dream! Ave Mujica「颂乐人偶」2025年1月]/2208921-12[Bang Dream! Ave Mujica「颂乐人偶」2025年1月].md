@@ -3259,3 +3259,69 @@ s1的手机端最近不行了，完全一片混乱，电脑端都有一些图看
 
 鉴定为喜多，先质疑再质疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉缇娅  
+##### 16560#       发表于 2025-2-2 11:16
+
+我觉得没必要扯什么大旗吧
+
+家族唯一指定继承人叛逆期到了出去组个乐队玩好像也没啥问题，就算出赔偿金也赔不了多少钱，这点钱从剧里看丰川家也不是很在意，能让大小姐脑子清醒清醒比什么都强。
+
+不过上一个叛逆期到了出去组乐队的大少爷好像叫荒坂赖宣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 16561#       发表于 2025-2-2 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在不是什么大手不大手的问题，问题是独角兽没那个能力驾驭这种题材。不如说日本业界有能力驾驭这个的，并且严丝合缝的真找不出来。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厚乳果珍爽  
+##### 16562#       发表于 2025-2-2 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排除在老家练过，理论上喵梦练鼓就一年不到，跟祥子从小开始谈钢琴，初华能自己作曲，睦从小开始弹吉他，还有30个乐队经历的王牌打工人比话，哪里有个好啊？
+
+真是天才了？！
+
+
+*****
+
+####  江口夕  
+##### 16563#       发表于 2025-2-2 11:24
+
+ 本帖最后由 江口夕 于 2025-2-2 11:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">大祥都说大猫缺练了，大猫自己承认了，不知道一流怎么来的，靠脑补吗。
+要是一流，一开始就不会说两利手，这是对人家的侮辱
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 16564#       发表于 2025-2-2 11:27
+
+初五了
+<img src="https://p.sda1.dev/21/129a95408a2876b1a158993ebdefc3d8/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 16565#       发表于 2025-2-2 11:27
+
+祥子的乐团白月光是蝶团，鼓手也是半路出家的，祥子对鼓手水平没有判断能力。（当然是设定水平不是中之人真实实力）
+
+*****
+
+####  JustW  
+##### 16566#       发表于 2025-2-2 11:27
+
+老登白手套是初华，初华白手套是喵梦，这丰川家想干个什么还要找高中女生套中套，这剧情梗概写出来不觉得很tm傻缺吗？？RAS主线里敌对一个娱乐圈略有名气的制作，人家都能一个电话让你连演出舞台都找不到，我们大财阀丰川家是在地下养了一群儿童兵吗，给孙女一点资本的震撼这种屁大点事还要这么搞，是不是有病，祥子是离家出走了又不是把她亲妈杀了，那么恨呢。
+

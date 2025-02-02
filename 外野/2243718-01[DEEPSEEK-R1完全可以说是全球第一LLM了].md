@@ -14544,3 +14544,13 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 
 2025-2-2 11:06 上传
 
+
+*****
+
+####  andychen  
+##### 1113#       发表于 2025-2-2 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332010&amp;ptid=2243718" target="_blank">qqks 发表于 2025-2-2 10:57</a>
+vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用第三方api，发现硅基流动的输出较之原版非常 ...</blockquote>
+买的哪家查哪家文档，需要在调用指令里加参数
+
