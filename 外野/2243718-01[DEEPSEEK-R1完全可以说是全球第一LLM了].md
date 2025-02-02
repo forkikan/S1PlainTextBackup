@@ -15233,3 +15233,16 @@ https://pageassist.xyz/
 
 这大文豪啥时候给个国际奖项，写冷门cp也太屌了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1172#       发表于 2025-2-3 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336411&amp;ptid=2243718" target="_blank">orecheng 发表于 2025-2-2 22:49</a>
+
+https://pageassist.xyz/
+
+我感觉page assist比这些都强，浏览器装个插件就完了，RAG 联网搜索都有 ...</blockquote>
+没有本地模型的话，这个能挂api吗？
+
