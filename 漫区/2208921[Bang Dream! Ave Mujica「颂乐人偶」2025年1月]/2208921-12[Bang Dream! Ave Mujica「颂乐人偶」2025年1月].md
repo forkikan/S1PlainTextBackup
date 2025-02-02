@@ -6210,3 +6210,76 @@ mygo动画也有悬疑要素
 
 这么看，比起复辟C团的猜测，灯皇用成人歌来唤回祥子的初心可能性更大
 
+
+*****
+
+####  terry666  
+##### 16813#       发表于 2025-2-2 21:27
+
+母鸡卡在你们的假药里都快变成酒厂了
+
+*****
+
+####  aptx8285144  
+##### 16814#       发表于 2025-2-2 21:27
+
+如果想洗白睦家，也不是没有简单的办法，<strong>睦家都有精神病遗传就可以洗白一部分了</strong><img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 16815#       发表于 2025-2-2 21:33
+
+ 本帖最后由 JustW 于 2025-2-2 21:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三个四个叛徒都来了，我觉得能一本正经讨论这个东西已经很滑稽了，这不还是第四集结尾四演一三演二的翻版吗
+
+*****
+
+####  plok201  
+##### 16816#       发表于 2025-2-2 21:35
+
+7集不到要洗三个叛徒，独角兽知道自己任务那么重么<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 16817#       发表于 2025-2-2 21:35
+
+<blockquote>嵇翱u 发表于 2025-2-2 21:25
+突然想到，在mygo的BD里送的是ccc春日影，然后剧中确实有半首ccc春日影
+
+而C团还有一首独属灯祥的歌，人間に ...</blockquote>
+成人歌在狗bd就送了，鸡这里只是临时工粘贴复制错了了
+
+*****
+
+####  嵇翱u  
+##### 16818#       发表于 2025-2-2 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335938&amp;ptid=2208921" target="_blank">bindata 发表于 2025-2-2 21:35</a>
+
+成人歌在狗bd就送了，鸡这里只是临时工粘贴复制错了了</blockquote>
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，那就是13集灯写好没送出的歌了
+
+*****
+
+####  wwwttth  
+##### 16819#       发表于 2025-2-2 21:35
+
+其实3个叛徒+睦知情不报也没问题，你想想3个叛徒要是直接说出来这乐队和实质解散有区别么，睦也是有心理阴影的，所以莫提斯上线和三个人单独谈让他们不要背叛。
+
+当然我是不太觉得有酒场这么离谱就是，我只是顺着这假药说下逻辑。
+
+*****
+
+####  天空塔书记官  
+##### 16820#       发表于 2025-2-2 21:36
+
+第四集结尾的演出明摆着就是狼人杀啊，这有啥不能理解的，而且犹大之吻都放op了，还有人物牌，这不能想不到吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
