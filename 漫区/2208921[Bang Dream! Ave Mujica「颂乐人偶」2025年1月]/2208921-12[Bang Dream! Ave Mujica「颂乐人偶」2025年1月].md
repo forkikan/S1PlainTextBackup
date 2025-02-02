@@ -7181,3 +7181,43 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  天空塔书记官  
+##### 16904#       发表于 2025-2-3 00:29
+
+其实对于A团五人的关系之疏离，从基本没有出现成员间手机聊天的画面就能看出来，尤其是祥子，这就表示了她一直处于自我封闭和拒绝沟通的状态<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 16905#       发表于 2025-2-3 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337021&amp;ptid=2208921" target="_blank">月灵银羽 发表于 2025-2-3 00:23</a>
+
+匿名舅 内鬼合集 滑坡 角色厨撕逼 清算 黑泥 通缉文案  
+
+这是给我干哪儿来了，我还是在少女乐队吗</blockquote>
+我也不知道，说是史上最狂乐队动画
+
+*****
+
+####  yaneis  
+##### 16906#       发表于 2025-2-3 00:31
+
+<blockquote>天空塔书记官 发表于 2025-2-2 23:09
+为什么要在乎祥党的感受，不会真以为ave这动画是给大祥老师拍的吧，要真什么都依角色厨，那干脆别组乐队了 ...</blockquote>
+开播前我会说不是，但现在谁也看得出母鸡卡会被拍成大祥传吧，为了摧毁祥子有多少角色都让位了
+
+*****
+
+####  fosanoha  
+##### 16907#       发表于 2025-2-3 00:32
+
+二偶也是偶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
