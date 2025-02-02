@@ -3214,3 +3214,48 @@ s1的手机端最近不行了，完全一片混乱，电脑端都有一些图看
 楼里自信满满说🦄能力强过花田还是挺让人匪夷所思的</blockquote>
 我们独角兽粉是这样的。
 
+
+*****
+
+####  wwwttth  
+##### 16556#       发表于 2025-2-2 11:08
+
+ 本帖最后由 wwwttth 于 2025-2-2 11:09 编辑 
+
+有个很变态的假药，如何光速解决鸡团矛盾和资本的大手？老登来个光速政治婚姻，这下矛盾就瞬间转移到老登身上了，后面直接演乐队抢婚戏码就好了
+
+*****
+
+####  聊nsy专用号  
+##### 16557#       发表于 2025-2-2 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331263&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-2 07:54</a>
+
+别的不好说，我就想知道楼里几位大佬现在还坚持我鸡独美么~</blockquote>
+看了一下三话先行放送时候踩我头的几个祥粉第五集后全失联了，真脆弱啊
+
+*****
+
+####  新HGCG  
+##### 16558#       发表于 2025-2-2 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332054&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-2 11:03</a>
+
+布什戈门？
+
+邦多利世界观里喵梦“这么好的鼓手哪里找”？
+
+好在哪？除了左右利手还有啥？</blockquote>
+你对鼓手好坏的定义是“听大小姐的话”的话那我同意你的观点
+
+但你为什么要连发两个一样的回复
+
+是不是这件事的定性对你而言很重要？
+
+*****
+
+####  爱莉希雅  
+##### 16559#       发表于 2025-2-2 11:11
+
+鉴定为喜多，先质疑再质疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
