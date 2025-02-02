@@ -30,3 +30,11 @@
 
 所以一部后启示录世界观的美少女喝茶片，是怎么做到一点灾难的感觉都没有的，仿佛货架上能长出食物一样的
 
+
+*****
+
+####  jy000129  
+##### 137#       发表于 2025-2-2 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">发现女主和金毛长得好像，特别是刘海一模一样
+

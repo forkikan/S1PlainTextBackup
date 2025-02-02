@@ -5971,3 +5971,43 @@ IMG_3551.jpeg
 
 这就是假药吗，我还是第一次看
 
+
+*****
+
+####  山ノ内花音  
+##### 16792#       发表于 2025-2-2 20:38
+
+睦妈的剧里说了三个叛徒，如果这个是伏笔，那也许能对上睦(むつみ)的同音词無罪(むつみ)[思考]
+
+*****
+
+####  ml1642879  
+##### 16793#       发表于 2025-2-2 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335591&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 20:36</a>
+那大姐头都是出道十几年的职业歌手了，不一样扛不住巡演摁造吗
+
+这种损耗是客观存在的</blockquote>
+压榨和自己不会是两种概念，i83属于两者兼有，社长属于营业牺牲，ray妈就是被压榨了
+
+
+*****
+
+####  天空塔书记官  
+##### 16794#       发表于 2025-2-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335605&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-2 20:39</a>
+压榨和自己不会是两种概念，i83属于两者兼有，社长属于营业牺牲，ray妈就是被压榨了 ...</blockquote>
+这里就不得不提樱小姐了，但她主要还是录音室居多，如果巡演上强度，倒得只会更快，毕竟早就声带小结了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16795#       发表于 2025-2-2 20:47
+
+话说其他人就算算计大祥虽然会对大祥的人设产生一定的冲击，但对于观众们而言最可怕的还是老登这个付钱吧，<strong>加上你楼的假药已经是团队一半不仅是坏还是反贼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
