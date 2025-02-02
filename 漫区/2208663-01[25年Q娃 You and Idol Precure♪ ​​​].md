@@ -549,3 +549,13 @@ ED很欢快挺喜欢的
 
 大招突然变live还挺喜感的
 
+
+*****
+
+####  leommoo  
+##### 325#       发表于 2025-2-2 23:33
+
+看的挺开心的，净化技是live还挺有意思的，希望后面强化形态都有新歌，去年的女人看完猫组就弃了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

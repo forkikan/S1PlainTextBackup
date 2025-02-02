@@ -6704,3 +6704,88 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 十五年未有之大女主难道是楼友编的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 16861#       发表于 2025-2-2 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336638&amp;ptid=2208921" target="_blank">Fakerの幻影 发表于 2025-2-2 23:21</a>
+十五年未有之大女主难道是楼友编的吗</blockquote>
+那是官方说的吗 ? 这个我还真不知道
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Raven314  
+##### 16862#       发表于 2025-2-2 23:25
+
+大女主那是出自小红书<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|行|
+
+查看全部评分
+
+*****
+
+####  novalli  
+##### 16863#       发表于 2025-2-2 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336638&amp;ptid=2208921" target="_blank">Fakerの幻影 发表于 2025-2-2 23:21</a>
+十五年未有之大女主难道是楼友编的吗</blockquote>
+据我所知，是的，不过不是这个楼罢了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  terry666  
+##### 16864#       发表于 2025-2-2 23:26
+
+官方啥时候说过大女主，就前五集这剧情你说是大陀螺还差不多
+
+*****
+
+####  山ノ内花音  
+##### 16865#       发表于 2025-2-2 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336638&amp;ptid=2208921" target="_blank">Fakerの幻影 发表于 2025-2-2 23:21</a>
+十五年未有之大女主难道是楼友编的吗</blockquote>
+左转百综 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|解谜了|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 16866#       发表于 2025-2-2 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336633&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 23:21</a>
+对老登的“夸赞”，很多人其实是玩梗，是对这种剧情的不满，因为独角兽等人是有选择性安排比较“现实”剧 ...</blockquote>
+那能不能先解释下武道馆是咋约的，巡演是咋开的，这大手是托底的时候才出现的吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

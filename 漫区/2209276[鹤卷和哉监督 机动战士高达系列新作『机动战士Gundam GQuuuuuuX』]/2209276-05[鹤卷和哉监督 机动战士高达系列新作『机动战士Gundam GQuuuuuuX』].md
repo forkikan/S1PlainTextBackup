@@ -6072,3 +6072,19 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 对比一下，主视图本来应该突出的女一却被放的那么远，确实有点反常识</blockquote>
 仔细看后感觉，这个主视觉图，有五星物语的风格....
 
+
+*****
+
+####  岸浪白野  
+##### 6417#       发表于 2025-2-2 23:25
+
+[X 上的 仲谷鳰：“ジークアクス観たよらくがき [url]https://t.co/7UuEX2fDc1](https://x.com/nakataniii/status/1886043113371914385)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/02/232504cxti5bhucyezcexa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 23:25 上传
+
