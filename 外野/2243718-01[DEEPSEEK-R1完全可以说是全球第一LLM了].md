@@ -14903,3 +14903,14 @@ api没问题，就是吐字慢了一点
 
 这个吧，能本地建RAG，还能接obsidian库
 
+
+*****
+
+####  moeblack  
+##### 1147#         楼主| 发表于 2025-2-2 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334094&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 15:59</a>
+
+得自己部署？我看官方是收费得</blockquote>
+我都用了1年多了( 所以一直自己部署
+

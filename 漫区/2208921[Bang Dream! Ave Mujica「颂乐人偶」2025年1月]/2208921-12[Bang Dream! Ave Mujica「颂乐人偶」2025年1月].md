@@ -4969,3 +4969,26 @@ exactly truth
 
 支持啊六七集按着假药来，都不敢想又多乐
 
+
+*****
+
+####  高妹控  
+##### 16703#       发表于 2025-2-2 17:04
+
+后面能不能把小睦写正常些，要不是结尾那一幕，第五话观感还是不错的，把角色写成精神病真是臭棋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  595505568  
+##### 16704#       发表于 2025-2-2 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333735&amp;ptid=2208921" target="_blank">QuerTan 发表于 2025-2-2 14:57</a>
+灯角色不崩坏的话做不出这种烂事的，
+
+你要说搞企划写剧本的这些理不理解角色那不好说；
+
+不过乱写可以切割 ...</blockquote>
+但我可以举例说所有go团非猫成员已经混团预告牵线蝶团 Ag PP了，但是灯很难说是不是游戏那边紧急策略了
+
