@@ -5218,3 +5218,21 @@ https://www.oricon.co.jp/news/2367045/full/</blockquote>
 
 2025-2-2 16:55 上传
 
+
+*****
+
+####  xwz  
+##### 6341#       发表于 2025-2-2 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333044&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-2 13:15</a>
+
+“要把你干掉，它是这么说的。”</blockquote>
+总感觉麻球这边是不是帽子才是本体，开高达的时候就自己戴，平时就哈罗戴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 6342#       发表于 2025-2-2 17:16
+
+针织帽杀人鬼 UC0085的样子
+
