@@ -4477,3 +4477,77 @@ MR红高达比白的贵4000啊
 
 应该会给全套bit吗
 
+
+*****
+
+####  Gysumitka  
+##### 6277#       发表于 2025-2-2 12:25
+
+ 本帖最后由 Gysumitka 于 2025-2-2 12:26 编辑 
+
+给全套不符合代孙性格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 出个修司版差不多
+
+*****
+
+####  RE㐅ia  
+##### 6278#       发表于 2025-2-2 12:27
+
+红高达牢修开的还是鸭子开的？bit不会只给俩吧（
+
+*****
+
+####  盐盐盐盐盐  
+##### 6279#       发表于 2025-2-2 12:27
+
+还是涂红了能看点，蓝白红版真的好怪
+
+*****
+
+####  刺客ares  
+##### 6280#       发表于 2025-2-2 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外都官方剧透解禁了，是不是该换上之前偷跑的那个官网简介了
+
+
+*****
+
+####  刺客ares  
+##### 6281#       发表于 2025-2-2 12:33
+
+MR胸口有联邦和吉翁的标志，MR版应该是鸭子版吧？bit应该会给六个
+
+HG请买三盒<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 6282#       发表于 2025-2-2 12:34
+
+<img src="https://p.sda1.dev/21/6f1a724fca48a657114b828b6d229b27/image.jpg" referrerpolicy="no-referrer">
+
+https://www.oricon.co.jp/news/2366763/full/?utm_source=Twitter&amp;utm_medium=social&amp;ref_cd=twshare
+
+*****
+
+####  oi99o  
+##### 6283#       发表于 2025-2-2 12:34
+
+孩子们，我也是Xavier Olivette
+
+<img src="https://img.saraba1st.com/forum/202502/02/123400a3kcu35z7ctou4nl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 12:34 上传
+
+*****
+
+####  虛無迴廊  
+##### 6284#       发表于 2025-2-2 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332739&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-2-2 12:34</a>
+https://www.oricon.co.jp/news/2366763/full/?utm_source=Twitter&amp;utm_medium=social&amp;ref_cd=twshare</blockquote>
+懂了，意思是见到了许多涩涩的图<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
