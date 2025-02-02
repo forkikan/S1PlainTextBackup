@@ -6011,3 +6011,88 @@ IMG_3551.jpeg
 
 话说其他人就算算计大祥虽然会对大祥的人设产生一定的冲击，但对于观众们而言最可怕的还是老登这个付钱吧，<strong>加上你楼的假药已经是团队一半不仅是坏还是反贼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fakerの幻影  
+##### 16796#       发表于 2025-2-2 20:50
+
+三个叛徒，初华，喵梦，海玲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嵇翱u  
+##### 16797#       发表于 2025-2-2 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335432&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-2 20:04</a>
+
+酒店之战的转折点也是最怪的地方是，喵梦突然一拍桌子“你这是大小姐过家家，我要退出”，喵梦之前即使和 ...</blockquote>
+看了一遍，这个时间轴上的对应确实完全没注意到。
+
+评论中提到前四集舞台上“突发情况”后唯一给到后台镜头的只有小睦瘫倒，或许也可以佐证小睦确实与炸团事件无关。
+
+所以大喵摘面具时没有给后台镜头，同时摄像机位也跟着走，是否意味着大喵一开始就已经是内鬼身份呢
+
+*****
+
+####  玖羽  
+##### 16798#       发表于 2025-2-2 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335641&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 20:47</a>
+
+加上你楼的假药已经是鸡团一半不仅是坏还是反贼，连体内声优都被隐瞒</blockquote>
+这个假药（当然，它是假药）巧妙的地方就在于，它可以解释为，所有的背叛者都不是“坏”，而是因为信息差，各自独立做出了“Mujica应当解散”的判断
+
+初华（甚至可以说是）出于好心，觉得Mujica让祥子失去了一切，连健康都无法保证，喵梦是愤怒，觉得自己被祥子耍了，海铃不明，但应该也是类似情况
+
+*****
+
+####  山ノ内花音  
+##### 16799#       发表于 2025-2-2 20:55
+
+这个对比确实是一个明显的提示啊
+同样是舞台上的突发事件 睦突然断线 和 喵梦突然揭面 staff的对应 完全不同
+
+*****
+
+####  aptx8285144  
+##### 16800#       发表于 2025-2-2 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335660&amp;ptid=2208921" target="_blank">Fakerの幻影 发表于 2025-2-2 20:50</a>
+
+三个叛徒，初华，喵梦，海玲</blockquote>
+如果叛徒和数字属实，那就是送分题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 16801#       发表于 2025-2-2 20:55
+
+<img src="https://img.saraba1st.com/forum/202502/02/205511dge95q25gf585zlf.png" referrerpolicy="no-referrer">
+
+<strong>Z8(YAM(I0OC5}DY2KZ[~IE3.png</strong> (176.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/205542fhd10ka1rordo8uk.gif" referrerpolicy="no-referrer">
+
+<strong>{NR(A]GE3ZP_`_NQJ9Y(C.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 20:55 上传
+
+*****
+
+####  山ノ内花音  
+##### 16802#       发表于 2025-2-2 20:57
+
+有一个很关键的是
+独角兽在推特上 明确说了mujica的创作参考了剧本杀
+我觉得必然是有一个“核心谜题”在的
+mygo动画也有悬疑要素
+
