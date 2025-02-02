@@ -7474,3 +7474,19 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16929#       发表于 2025-2-3 02:06
+
+要我说ccc第六集限时复活没问题啊，这是让初华黑化暴怒最合理的理由了。
+
+
+*****
+
+####  akiomn  
+##### 16930#       发表于 2025-2-3 02:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ccc限时复活我也没意见，因为场外大概率会炸掉，看戏不嫌事大
+
