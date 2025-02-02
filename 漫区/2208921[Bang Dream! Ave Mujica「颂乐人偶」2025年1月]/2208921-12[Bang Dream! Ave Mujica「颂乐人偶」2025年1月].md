@@ -7732,3 +7732,18 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 所以在接下来的对话里，喵梦先是巴拉巴拉说了一大堆观众不容易、staff不容易之类的话，“彻底确认”之后当场不干了
 
+
+*****
+
+####  莫洛骑士  
+##### 16950#       发表于 2025-2-3 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337479&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-2 14:17</a>
+
+爽了
+
+谢谢楼友
+
+安心了，睡觉去了</blockquote>
+我勒个究极cp粉
+
