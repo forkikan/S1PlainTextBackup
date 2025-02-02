@@ -15340,3 +15340,16 @@ https://pageassist.xyz/
 
 我发现用了知识库让他有参考资料的话写文的时候可以正常一点……但也只是正常一点……
 
+
+*****
+
+####  阿刚  
+##### 1179#       发表于 2025-2-3 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337400&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-3 03:44</a>
+
+就是每次对话写不了太多，对话一多就容易上下文不对，记忆力不太行
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+用charry的资料库试试，那玩意能让他随时查资料库，但是也会被资料库限定住
+
