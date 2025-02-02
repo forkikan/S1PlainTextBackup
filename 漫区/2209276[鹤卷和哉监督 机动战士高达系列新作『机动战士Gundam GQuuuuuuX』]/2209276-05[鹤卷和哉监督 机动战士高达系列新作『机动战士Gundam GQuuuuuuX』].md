@@ -5263,3 +5263,51 @@ https://www.oricon.co.jp/news/2367045/full/</blockquote>
 X 上的 logi (ろじ)：“[https://t.co/jvKBPHs3x8” / X](https://t.co/jvKBPHs3x8” / X)</blockquote>
 乱掏什么呢（
 
+
+*****
+
+####  0aleph37  
+##### 6345#       发表于 2025-2-2 17:28
+
+<img src="https://img.saraba1st.com/forum/202502/02/172853swuheucox2hko9ox.jpg" referrerpolicy="no-referrer">
+
+<strong>20250202_170753.jpg</strong> (176.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:28 上传
+
+https://x.com/bunta_kikumaru/status/1885975548066939074?s=19
+
+*****
+
+####  DARILBALDE  
+##### 6346#       发表于 2025-2-2 17:28
+
+HG红高居然还挺好看的，感觉比夸克斯卖相好点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  岸浪白野  
+##### 6347#       发表于 2025-2-2 17:35
+
+“对阿姆罗不管用”
+
+<img src="https://img.saraba1st.com/forum/202502/02/173501xe0vtva7ytnv0enf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:35 上传
+
+*****
+
+####  积木23ki  
+##### 6348#       发表于 2025-2-2 17:35
+
+看了一圈……绿色叔叔完全是你夸克斯人气断层top<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

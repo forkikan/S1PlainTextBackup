@@ -5039,3 +5039,109 @@ exactly truth
 
 舅舅要是真的大祥能塑造成鸭子就算超神了，说难听点成格里菲斯了，再考虑到包饺子凑CP这些估计直奔低配崩三琪皇了，别说设定上大女主死了🐎有个精神垮了酗酒的烂爹，双重人格的半身女同还有角色粉扯头花都挺像的。
 
+
+*****
+
+####  huxiaopao163  
+##### 16711#       发表于 2025-2-2 17:32
+
+动画里又没有睦的体检报告和医生下的结论，不能判断睦是否真的患有精神疾病。
+
+你不能在确诊病症的时候仅凭初华的一句话就够了，等到需要治病的时候才想起需要医院和医生
+
+*****
+
+####  aptx8285144  
+##### 16712#       发表于 2025-2-2 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328157&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-1 17:59</a>
+
+祥子剧情一个核心问题是，祥子父女等于加起来欠了外公还也还不完的恩情。祥子作为人的人格独立性已经没有了 ...</blockquote>
+是的，一些假药和猜想老登的黑暗面本质是对祥子人格独立性的挽救，但正如我之前说的，独角兽和柿本敢不敢写出老登和最会作妖的瞄梦联手的剧情，因为就算假设他控制了表面上傻白甜的初华和算计了酒醉成废人的父亲，那也是不够的
+
+*****
+
+####  须贺兰  
+##### 16713#       发表于 2025-2-2 17:36
+
+Ave Mujica FREE LIVE
+
+<img src="https://img.saraba1st.com/forum/202502/02/173622guuybrz4bubg47rh.jpg" referrerpolicy="no-referrer">
+
+<strong>Ave Mujica FREE LIVE.jpg</strong> (73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:36 上传
+
+[https://live.bilibili.com/31160604?live_from=85002](https://live.bilibili.com/31160604?live_from=85002)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16714#       发表于 2025-2-2 17:36
+
+李神这都不热嗓子直接干killkiss也能有这水平啊，有点实力啊李神
+
+*****
+
+####  须贺兰  
+##### 16715#       发表于 2025-2-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333937&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 15:36</a>
+
+这里最搞的是，爱音自称朋友而进来时大祥啥表示都还没有，近乎是一脸蒙蔽的（因为灯这时还没跑到），我印 ...</blockquote>
+爱音和灯进入车内时，祥子表情均有变化
+
+爱音被放行
+
+<img src="https://img.saraba1st.com/forum/202502/02/173056owgc6vcvhh669slk.jpg" referrerpolicy="no-referrer">
+
+<strong>截图01.jpg</strong> (180.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/173055v6ak8a888twa80en.jpg" referrerpolicy="no-referrer">
+
+<strong>截图02.jpg</strong> (177.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/173055gvduzwujsolgrgha.jpg" referrerpolicy="no-referrer">
+
+<strong>截图03.jpg</strong> (179.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
+灯跟进
+
+<img src="https://img.saraba1st.com/forum/202502/02/173054okuzklj88hmlj38k.jpg" referrerpolicy="no-referrer">
+
+<strong>截图04.jpg</strong> (235.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/173054t788d39sjksyhw23.jpg" referrerpolicy="no-referrer">
+
+<strong>截图05.jpg</strong> (235.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/173053jzqkkk4pqbh2fpkk.jpg" referrerpolicy="no-referrer">
+
+<strong>截图06.jpg</strong> (229.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 17:30 上传
+
