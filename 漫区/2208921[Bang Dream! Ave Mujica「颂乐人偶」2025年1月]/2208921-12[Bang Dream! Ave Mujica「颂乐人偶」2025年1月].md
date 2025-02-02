@@ -6532,3 +6532,36 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 都认为有这么多叛徒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽搐一下  
+##### 16842#       发表于 2025-2-2 22:42
+
+叛徒的存在在op就明显了，现在差不多演到op开始的地方吧。祥子在初面前消失成为笼中鸟
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 16843#       发表于 2025-2-2 22:42
+
+编剧太自信了，用半部番剧的时间激化本来存在的角色矛盾,最后还要指望饺子不露馅
+
+*****
+
+####  terry666  
+##### 16844#       发表于 2025-2-2 22:43
+
+那么有主角身边全是叛徒，最后全部站在主角这边一起对抗幕后黑手的作品吗？
+
+*****
+
+####  DeltaStriker  
+##### 16845#       发表于 2025-2-2 22:44
+
+《假面骑士时王》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（大雾）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

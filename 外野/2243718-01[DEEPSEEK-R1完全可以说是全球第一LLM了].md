@@ -15114,3 +15114,11 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 
 太好玩了，这玩意简直是完美的跑团工具，自己跟ai跑团真tmd有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kylaier  
+##### 1165#       发表于 2025-2-2 22:43
+
+官网和app好像内置刷新cd了，输出结束一段时间后才出现刷新键
+
