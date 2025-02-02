@@ -4705,3 +4705,31 @@ ave mujica1.0商业大喝采篇的叙事压力过大导致所谓的伏线表达�
 
 你要说搞企划写剧本的这些理不理解角色那不好说。
 
+
+*****
+
+####  zhzij111  
+##### 16677#       发表于 2025-2-2 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333548&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-2 14:26</a>
+我觉得丰川家多半也没多坏，圣爱音路过一句我是大小姐的偷摸大鸡就能混上车随便进大宅，赤坂都知道把大小姐 ...</blockquote>
+能同意女儿耍任性娶个自己不喜欢的女婿，外姓女婿捅了大篓子也不追责只是逐出家门，幕后呵护离家出走的孙女的老登能是什么坏人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Raven314  
+##### 16678#       发表于 2025-2-2 15:04
+
+喵梦吃瘪是肯定有，地铁cm的嫌弃脸还没回收，推上的部分日本人也认为喵梦要受到惩罚才能洗心革面<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+但是喵梦的回旋镖观众能不能接受又是另一码事，首先能给她的篇幅就不够了，再加上结尾还要包饺子，如果只用家人侠和努力来洗白是完全不够的
+
+*****
+
+####  烂片雷达  
+##### 16679#       发表于 2025-2-2 15:06
+
+原来mujica里素世待遇这么好，怪不得小日向提单母鸡卡剧情很兴奋让大家期待素世在剧情里的表现，这下素黑有福了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
