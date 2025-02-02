@@ -5222,3 +5222,61 @@ Ave Mujica FREE LIVE
 
 细说企划完蛋，谁说的我怎么不知道
 
+
+*****
+
+####  Toki_Ai  
+##### 16726#       发表于 2025-2-2 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">企划完蛋那还早，2021-2023年都还板着混过来了，现在只能说来中演唱会人数不够可能不来了这点比较可惜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 16727#       发表于 2025-2-2 17:50
+
+一问群友都说不看，这不是完蛋
+
+*****
+
+####  一心而用  
+##### 16728#       发表于 2025-2-2 17:51
+
+企划完蛋？哈哈哈，我又得上这张图了。
+<img src="https://p.sda1.dev/21/483cef0b5f2488f4bf3ca4f232790e21/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 16729#       发表于 2025-2-2 17:51
+
+企划完不完蛋还得看来国内办一次演唱会开票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16730#       发表于 2025-2-2 17:52
+
+胖宝宝弹错了哈哈哈
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16731#       发表于 2025-2-2 17:56
+
+小剧场，mute！
+
+*****
+
+####  plok201  
+##### 16732#       发表于 2025-2-2 17:56
+
+原来是是舅舅剧透，不知道还以为是祥黑开会呢
+
+我个人对祥老师顶多是无感，剧透是真想她死啊，这67集怕不是社区风评真成绝世渣女了，什么祥黑过大年<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
