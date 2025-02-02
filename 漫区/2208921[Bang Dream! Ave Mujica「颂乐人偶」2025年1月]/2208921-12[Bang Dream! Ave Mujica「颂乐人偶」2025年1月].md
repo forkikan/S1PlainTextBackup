@@ -7241,3 +7241,45 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  stmule  
+##### 16910#       发表于 2025-2-3 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333130&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 13:27</a>
+我的观点还是那个：mujica的争议最大来源是wsd把鸡狗模式和老团模式切割得太狠了。 ...</blockquote>
+很难想象mujica这居然和hhw是同一个世界观的两个乐队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Laie  
+##### 16911#       发表于 2025-2-3 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337060&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-3 00:37</a>
+
+希望下一作邦邦脚本让冈妈写😛</blockquote>
+降尊纡贵了，冈妈如今可是在剧场动画宣发文案里赫然写着mappa为她的才能所倾倒、要彻底追求她所创作世界的全能型创作者
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16912#       发表于 2025-2-3 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337124&amp;ptid=2208921" target="_blank">Laie 发表于 2025-2-3 00:59</a>
+
+降尊纡贵了，冈妈如今可是在剧场动画宣发文案里赫然写着mappa为她的才能所倾倒、要彻底追求她所创作世界 ...</blockquote>
+让老登给她跪一个试试，不行先把监督换长井龙雪。
+
+*****
+
+####  安娜导函数  
+##### 16913#       发表于 2025-2-3 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333062&amp;ptid=2208921" target="_blank">罥索GFFF 发表于 2025-2-2 13:18</a>
+与其说wsd不会让喵梦吃瘪，不如这个角色要被边缘化了，前半场工具人，后半场就稍微做点人设回撤然后边缘化 ...</blockquote>
+绝对不可能边缘化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -15246,3 +15246,12 @@ https://pageassist.xyz/
 我感觉page assist比这些都强，浏览器装个插件就完了，RAG 联网搜索都有 ...</blockquote>
 没有本地模型的话，这个能挂api吗？
 
+
+*****
+
+####  羊寢  
+##### 1173#       发表于 2025-2-3 00:57
+
+问下，我拿手机浏览器用硅基流动网页突然变成这样了是咋回事……是浏览器问题吗？
+<img src="https://p.sda1.dev/21/83b8710b35b18666525a827bba0b3fda/image.jpg" referrerpolicy="no-referrer">
+
