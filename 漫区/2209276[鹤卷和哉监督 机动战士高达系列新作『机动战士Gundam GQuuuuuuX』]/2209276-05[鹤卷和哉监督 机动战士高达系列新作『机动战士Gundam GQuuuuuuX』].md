@@ -5108,3 +5108,15 @@ hg红高达有种诡异的帅
 
 夏利亚属性太多了
 
+
+*****
+
+####  jojonathan  
+##### 6332#       发表于 2025-2-2 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333576&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-2 14:29</a>
+GM的喷枪厉害还是大魔的扩散炮厉害？
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+大魔那个扩散炮威力略大于闪光弹主要作用是电磁干扰<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+

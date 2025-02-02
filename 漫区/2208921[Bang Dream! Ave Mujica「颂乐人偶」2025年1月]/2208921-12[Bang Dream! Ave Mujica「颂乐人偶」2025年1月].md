@@ -4784,3 +4784,46 @@ exactly truth
 我觉得丰川家多半也没多坏，圣爱音路过一句我是大小姐的偷摸大鸡就能混上车随便进大宅，赤坂都知道把大小姐 ...</blockquote>
 这里最搞的是，爱音自称朋友而进来时大祥啥表示都还没有，近乎是一脸蒙蔽的（因为灯这时还没跑到），我印象当中go团时期大祥好像还没和爱音近距离说过话吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 16685#       发表于 2025-2-2 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333937&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 15:36</a>
+这里最搞的是，爱音自称朋友而进来时大祥啥表示都还没有，近乎是一脸蒙蔽的（因为灯这时还没跑到），我印 ...</blockquote>
+祥子跟爱音go里最后一场对话应该是说跟soyo组到了乐队
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  南宮凝香  
+##### 16686#       发表于 2025-2-2 15:44
+
+有一說一， 愛音已經是學校裡跟祥子說話最多的人了
+
+同班的連她名字也不知道
+
+說是朋友也很合理
+
+*****
+
+####  废都刽子手  
+##### 16687#       发表于 2025-2-2 15:45
+
+<blockquote>aptx8285144 发表于 2025-2-2 15:36
+这里最搞的是，爱音自称朋友而进来时大祥啥表示都还没有，近乎是一脸蒙蔽的（因为灯这时还没跑到），我印 ...</blockquote>
+说过的，这俩神人有过一段北原春希遇到冬马和纱式的开局，爱音还问祥子想不想组乐队
+
+*****
+
+####  mono  
+##### 16688#       发表于 2025-2-2 15:46
+
+直接交流不多 但是互相知道应该不少
+
+不应该要看到灯才想起这是谁
+
+我觉得祥子只是被脸皮厚度惊到了 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

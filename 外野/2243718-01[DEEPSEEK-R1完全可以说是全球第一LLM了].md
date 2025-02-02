@@ -14765,3 +14765,45 @@ chatbox ，然后用api
 —— 来自 鹅球 v3.3.96</blockquote>
 类似chatbox的软件
 
+
+*****
+
+####  午夜钓者  
+##### 1133#       发表于 2025-2-2 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333920&amp;ptid=2243718" target="_blank">bwsusaga 发表于 2025-2-2 15:33</a>
+
+借地问下，目前R1还在哪个平台可以用。官方网页版好几天都不行了。</blockquote>
+硅流现在用的还行[https://cloud.siliconflow.cn/i/SgzjOJZB](https://cloud.siliconflow.cn/i/SgzjOJZB)
+
+
+*****
+
+####  moeblack  
+##### 1134#         楼主| 发表于 2025-2-2 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333622&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 14:39</a>
+
+不折叠，电脑上可以用 Cherry Studio 已经支持折叠了</blockquote>
+lobechat也支持了~ 果然lobechat全平台网页版策略还是好。
+
+*****
+
+####  美坂汐里  
+##### 1135#       发表于 2025-2-2 15:42
+
+请教下，官方的api有充值的地方吗？我之前申请了api，但应该没钱了。api网址又进不去。感谢指点哈。
+
+*****
+
+####  moeblack  
+##### 1136#         楼主| 发表于 2025-2-2 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333978&amp;ptid=2243718" target="_blank">美坂汐里 发表于 2025-2-2 15:42</a>
+
+请教下，官方的api有充值的地方吗？我之前申请了api，但应该没钱了。api网址又进不去。感谢指点哈。 ...</blockquote>
+目前没有恢复，等待后台恢复吧（
+
+现在想用就用硅基流动，送14元。<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+[https://cloud.siliconflow.cn/i/GX312zX6](https://cloud.siliconflow.cn/i/GX312zX6)
+
