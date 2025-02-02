@@ -7460,3 +7460,17 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  天空塔书记官  
+##### 16928#       发表于 2025-2-3 02:01
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 02:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337261&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-3 01:54</a>
+海铃：哈？
+看预告那个b表情别最后告诉我海铃真是啥bt偷税犯吧</blockquote>
+海铃的代表元素是火，现在是完全看不出来，但拿纸包着早晚还是会烧的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
