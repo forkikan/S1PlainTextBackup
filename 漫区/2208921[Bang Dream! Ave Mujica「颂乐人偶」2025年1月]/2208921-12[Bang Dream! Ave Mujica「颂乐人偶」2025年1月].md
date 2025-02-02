@@ -7695,3 +7695,18 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 2我发现我好像根本看不懂鸡团想干啥，大伙都是来挣钱的 ...</blockquote>
 其实大部分人也看不懂鸡团想干啥，非常迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 16948#       发表于 2025-2-3 07:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337013&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-2-3 00:20</a>
+
+让几个jk玩内鬼play是个很抽象的假药，想写好难度很高，写不好一转乐子番，搞得老登最后是个连过家家都玩不 ...</blockquote>
+首先强调这的确是假药，其次重点不是内鬼play，她们没有串通在一起演，背叛者是祥子视角下的背叛者
+
+初华决定拆团之后用信息差骗喵梦当主攻（告诉喵梦Mujica是过家家乐队），初华助攻，海铃的背叛是知情不报
+
+这个假药的妙处在于，每一个背叛者都不同质化，所有人都是在信息差之下独立自主做出选择，只不过合在一起就变成了拆团
+
