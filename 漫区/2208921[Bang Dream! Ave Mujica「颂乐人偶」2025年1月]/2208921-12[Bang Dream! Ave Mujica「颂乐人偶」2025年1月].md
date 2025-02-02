@@ -4938,3 +4938,26 @@ exactly truth
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 16700#       发表于 2025-2-2 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334114&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 16:01</a>
+
+老登要是能控高中生去执行炸团这种精密操作却无法让跟了自己n年的手下读懂自己意图那这御人之术可以说是 ...</blockquote>
+是的，其实主要是现在假药很多都在想象老登是最终boss或者决战丰川家，我心里打鼓地复盘总感觉合理和不合理地方都不少，我觉得真实的原因可能还是柿本和独角兽都是“过程”为目的服务，这过程合不合理他们不清楚或不管了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  酒巻真希菜  
+##### 16701#       发表于 2025-2-2 16:25
+
+[https://www.bilibili.com/video/B ... b9f65e3eaf6e00fa7bd](https://www.bilibili.com/video/BV1CaF6eVEHk/?share_source=copy_web&amp;vd_source=30d454f09b771b9f65e3eaf6e00fa7bd)
+
+[【バンドマンがゆく】とみといびー] 【完全無料生配信】toybee ONEMAN LIVE 2025 at 渋谷CLUB QUATTRO「LOOKBACK TO THE FUTURE」
+
+日本音乐人，总是在做少女乐队动画反应视频的tomitoybee小哥他的2025新演唱会,3小时爽听
+
