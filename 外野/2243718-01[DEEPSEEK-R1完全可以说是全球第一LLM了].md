@@ -14949,3 +14949,13 @@ gemini啊，gemini上下文很长
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  魔灵高达  
+##### 1151#       发表于 2025-2-2 19:13
+
+[https://nga.178.com/read.php?tid=43170286](https://nga.178.com/read.php?tid=43170286)
+
+分享一个NGA那边的从零开始教程吧，我也把OPEN WEBUI换了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

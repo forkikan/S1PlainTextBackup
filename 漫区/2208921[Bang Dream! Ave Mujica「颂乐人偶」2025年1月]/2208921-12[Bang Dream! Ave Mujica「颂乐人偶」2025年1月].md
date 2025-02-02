@@ -5647,3 +5647,77 @@ IMG_3551.jpeg
 
 或者是一主犯，三从犯的感觉
 
+
+*****
+
+####  ntrntr1  
+##### 16766#       发表于 2025-2-2 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335095&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-2 19:05</a>
+
+说到电影，看到贴吧也有分析的。
+
+电影里一共五个人，女主，男主，后面三个坐着的人。
+
+但是女主的台词“你 ...</blockquote>
+祥子：妈的，酒厂。
+
+*****
+
+####  新HGCG  
+##### 16767#       发表于 2025-2-2 19:11
+
+<img src="https://img.saraba1st.com/forum/202502/02/191124izy5j1xz535hb7mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (265.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 19:11 上传
+
+*****
+
+####  天空塔书记官  
+##### 16768#       发表于 2025-2-2 19:14
+
+嗯 ? 大张还行 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 16769#       发表于 2025-2-2 19:16
+
+谈点别的。
+
+在MyGO和Mujica里，表现出来的“进入别人家”全都象征“走进别人内心”
+
+只要罗列一下，就能看出明显的关系性（多于一次的用数字表示）：
+
+灯家 - 祥子(2)、爱音
+
+祥子家 - 灯(2)、爱音
+
+爽世家 - 爱音(2)、MyGO其余四人
+
+爱音家 - MyGO五人
+
+立希家 - 灯、乐奈
+
+初华家 - 祥子
+
+睦卧室 - 爽世
+
+（由于若叶家是一个主要的剧情场景，睦的卧室相当于她的内心）
+
+*****
+
+####  琉璃苑軒風  
+##### 16770#       发表于 2025-2-2 19:17
+
+链接: [https://pan.baidu.com/s/1XH-9npdP8ilm8lk3efgtVA?pwd=AVEM](https://pan.baidu.com/s/1XH-9npdP8ilm8lk3efgtVA?pwd=AVEM) 提取码: AVEM 
+
+捞了一个录播补档给错过live的，先止渴吧
+
