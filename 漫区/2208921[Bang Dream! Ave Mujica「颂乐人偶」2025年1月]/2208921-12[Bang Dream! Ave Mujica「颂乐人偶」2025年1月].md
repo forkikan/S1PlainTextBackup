@@ -4741,3 +4741,26 @@ ave mujica1.0商业大喝采篇的叙事压力过大导致所谓的伏线表达�
 
 说实话，前四集的信息密度和演出节奏过快，给我感到非常的窒息第四集直接给我整迷糊了，这不是优点而是缺点
 
+
+*****
+
+####  wpcc  
+##### 16681#       发表于 2025-2-2 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67327847&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-1 16:57</a>
+
+这几天提到祥子夏亚说的越来越多了
+
+有崇高理想、双标、吃瘪役、过刚易折、自我毁灭倾向、回避型依恋、缺母 ...</blockquote>
+exactly truth
+
+*****
+
+####  wpcc  
+##### 16682#       发表于 2025-2-2 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328082&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-1 17:44</a>
+
+如果真的一辈子追祥子，那灯就是春希，祥子是冬马，爱音要当一辈子雪菜了…这不好吧，到时候go团内部双人卡 ...</blockquote>
+别别别我真的会笑的
+

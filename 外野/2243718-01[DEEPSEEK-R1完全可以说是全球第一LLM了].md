@@ -14733,3 +14733,15 @@ chatbox ，然后用api
 请问你用chatbox连硅基的r1他的思考过程生成后折叠吗，我连原厂的没问题，连硅基就咔咔全写在生成文字前 ...</blockquote>
 不折叠，电脑上可以用Cherry 已经支持折叠了
 
+
+*****
+
+####  zerona  
+##### 1130#       发表于 2025-2-2 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333622&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 14:39</a>
+不折叠，电脑上可以用Cherry 已经支持折叠了</blockquote>
+是另一家？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
