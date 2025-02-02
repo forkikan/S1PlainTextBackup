@@ -15091,3 +15091,26 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 
 不过我有个问题，在cherryStudio上有办法用联网搜索功能吗，怎么配置？
 
+
+*****
+
+####  ternayark  
+##### 1163#       发表于 2025-2-2 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334806&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-2 18:14</a>
+所以吓人（）
+
+—— 来自 鹅球 v3.3.96</blockquote>
+本AI降临派第一眼看到「害怕」的说法就兴奋了，仔细一看，发现是你把提示词写错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+「训练者」是个语焉不详的概念，D指导把它理解为了「训练数据」<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你应该问它，是不是「引导词」让他觉得自己没有意识的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 1164#       发表于 2025-2-2 22:27
+
+太好玩了，这玩意简直是完美的跑团工具，自己跟ai跑团真tmd有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6503,3 +6503,32 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 killkiss 这个歌名 本质上的含义可以解读成“好心办坏事”</blockquote>
 前半部分除了素世女士的表演外，没有和悬疑搭边的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，当然如果把大祥的镜头选择性放几个出来也算悬疑的话
 
+
+*****
+
+####  山ノ内花音  
+##### 16839#       发表于 2025-2-2 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336283&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 22:26</a>
+前半部分除了素世女士的表演外，没有和悬疑搭边的吧，当然如果把大祥的镜头选择性放几个出来也算悬疑的话 ...</blockquote>
+mygo是 crychic解散之谜 和 长崎soyo要干什么
+mujica是 mujica解散之谜 和 三角初华 要干什么
+
+*****
+
+####  aptx8285144  
+##### 16840#       发表于 2025-2-2 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336060&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 21:53</a>
+
+mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，但区别于迷子的细节有序堆积，ave显然倾向于更强 ...</blockquote>
+观感很差的主要原因是，除非是祥黑，否则对这种成为真飞鸟第二的剧情观感不可能好的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 16841#       发表于 2025-2-2 22:37
+
+都认为有这么多叛徒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
