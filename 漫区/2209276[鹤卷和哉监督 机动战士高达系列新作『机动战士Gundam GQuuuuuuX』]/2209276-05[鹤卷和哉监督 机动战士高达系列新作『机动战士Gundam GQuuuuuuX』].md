@@ -4913,3 +4913,16 @@ Z世代，带着墨镜，引导蓝发NT少年
 
 这一次会再重蹈卡缪的覆辙吗（
 
+
+*****
+
+####  oi99o  
+##### 6314#       发表于 2025-2-2 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333009&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-2 13:10</a>
+
+日本テレビ系列にて放送を予定している。
+
+oricon的新闻写了，可是坐实4月春番组。</blockquote>
+这也没写4月啊，日tv放送不是一开始就公布了的吗
+

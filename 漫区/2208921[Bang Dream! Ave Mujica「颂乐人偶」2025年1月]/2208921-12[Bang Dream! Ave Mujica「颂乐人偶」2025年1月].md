@@ -4489,3 +4489,53 @@ C团遗老最喜欢的一集。
 
 5对CP齐撒狗粮！
 
+
+*****
+
+####  JustW  
+##### 16658#       发表于 2025-2-2 13:33
+
+ 本帖最后由 JustW 于 2025-2-2 13:34 编辑 
+
+MyGO和老团没有本质区别，就算是背景如此现实的祥子也能从老团初设里找出痕迹，母鸡卡的解散也是多个老团预演过了，当然楼友说的假药另算
+
+*****
+
+####  aptx8285144  
+##### 16659#       发表于 2025-2-2 13:37
+
+<blockquote>刑部姬真可爱 发表于 2025-2-2 12:58
+邦里角色的家人没出现过“坏”这个意象，所以老登确实也可以不坏
+
+但是一想到wsd“史上最狂”的宣传语， ...</blockquote>
+邦邦角色的家人里没有坏人……那睦她家人对其一个月不管也不带其去医院，据说（资料设定还是声优访谈?）她妈视她竞争对手，真得不是坏人吗?
+
+*****
+
+####  JustW  
+##### 16660#       发表于 2025-2-2 13:38
+
+顺带一提目前邦邦里被垃圾编剧毁的最小丑角色之一美竹兰，就是为了专心于继承家族和父亲的花道而非要解散乐队，别人怎么劝都不听，甚至连父亲都说“你能这样做的前提是你的朋友哪怕你提出解散也不会和你绝交”，最后还是解散了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">解散后没多久其他人自己开了场live，美竹兰看完live就破防后悔，回归乐队包饺子了
+
+*****
+
+####  江口夕  
+##### 16661#       发表于 2025-2-2 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333130&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 13:27</a>
+我的观点还是那个：mujica的争议最大来源是wsd把鸡狗模式和老团模式切割得太狠了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">老团第三章集体无病呻吟，呻吟到隔壁团来救就是没活了。切割是对的。就老团那个情况除了刚组建几章有活以外，二章完成塑造人格都修正之后就彻底没活了。
+写现实乐队写的好的多了也没见哪个要老团模式
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  JustW  
+##### 16662#       发表于 2025-2-2 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333212&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-2 13:38</a>
+老团第三章集体无病呻吟，呻吟到隔壁团来救就是没活了。切割是对的。就老团那个情况除了刚组建几章有活以 ...</blockquote>
+真会切割吗，如切。当初闹挺大的RAS和后来的MyGO都已经进混活大家庭了，母鸡卡实装后早晚也要团建。
+

@@ -14641,3 +14641,41 @@ Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报�
 让我想起一段往事，我本科是中文系，记得当年古汉语老师说过，别以为咱们中文系没用，将来人工智能时代中 ...</blockquote>
 清华中文系因为正常搞没啥干得过隔壁的希望，是搞了人工智能方向的，选这个方向的学生即使是中文系学生也得修编程学分，倒是可以期待一下效果
 
+
+*****
+
+####  Sacross  
+##### 1122#       发表于 2025-2-2 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332927&amp;ptid=2243718" target="_blank">liquer 发表于 2025-2-2 13:00</a>
+清华中文系因为正常搞没啥干得过隔壁的希望，是搞了人工智能方向的，选这个方向的学生即使是中文系学生也 ...</blockquote>
+普通的交叉基本不用想太多，现在高校跨专业门槛不是一般高
+
+而且现在技术门槛，还是大公司实验室去牵头一些跨界项目更有可能性
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  午夜钓者  
+##### 1123#       发表于 2025-2-2 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332233&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 11:28</a>
+
+原来得在网页版弄
+
+不过这玩意没有app吗？有点坑啊</blockquote>
+可以用Chatbox，设置api就行
+
+*****
+
+####  overflowal  
+##### 1124#       发表于 2025-2-2 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332853&amp;ptid=2243718" target="_blank">andychen 发表于 2025-2-2 12:48</a>
+Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报过载</blockquote>
+主要是siliconflow的白嫖用户太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
