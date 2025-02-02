@@ -5170,3 +5170,26 @@ GM的喷枪厉害还是大魔的扩散炮厉害？
 
 看到种猜测
 
+
+*****
+
+####  猪突猛进R  
+##### 6337#       发表于 2025-2-2 16:29
+
+啥，这技术士官也能现代化改造？
+
+唯一输麻了的只有鸭子（被改造成螃蟹）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 6338#       发表于 2025-2-2 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333831&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-2 15:15</a>
+
+https://www.oricon.co.jp/news/2367045/full/</blockquote>
+这么看刚才有人提到的buddy complex确实也是Newtype，2人一组，也能干涉时间。
+
+说不定就是参考了这部动画，才出了个0079异闻录。
+
