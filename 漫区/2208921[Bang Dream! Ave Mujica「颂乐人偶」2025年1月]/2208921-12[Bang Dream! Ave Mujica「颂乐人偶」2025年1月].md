@@ -2890,3 +2890,40 @@ mortis的本体，或者象征物是镜子，本质是模仿别人。但是镜�
 
 游戏里表现的更直接，因为听春日影的时候睦还说了一句“不是C团的春日影”，然后祥子就破防奔出，才有的找初华遗忘一切，难道说明明签了对赌协议却硬是摸了一年，不是因为MyGO都想不起来？
 
+
+*****
+
+####  zhzij111  
+##### 16530#       发表于 2025-2-2 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330748&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-2-2 01:09</a>
+这大祥老师到底药剂吧干啥我请问了？
+从头到尾捋一下她的行事逻辑：母亲去世+受学姐感染→组乐队→父亲出事 ...</blockquote>
+组母鸡卡不就是自尊心作祟，小祥身上又没有欠款，她在母鸡卡追求的东西c团实际上都能满足，只不过这团被她一急眼做谜语人拆了，不好意思回去。
+
+staff赔偿金不就只能理解成工作人员都是来陪大小姐读书的，大小姐们自己玩玩没必要插手，不这样理解的话这世界观的大人就都是弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  罥索GFFF  
+##### 16531#       发表于 2025-2-2 09:08
+
+喵梦信息差太大了，你不能指望一个正常人发现自己的队友四个有三个都是精神病，她本性不算坏人，但上限也就是帮初华组二队打打辅助罢了
+
+
+*****
+
+####  wpcc  
+##### 16532#       发表于 2025-2-2 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330915&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 01:40</a>
+
+6 关于初华
+
+关于初华，导演对于给出她的信息非常吝啬，但是每一处信息，都让人觉得诡异。
+
+从mygo到mujica ...</blockquote>
+是真纯 别猜了
+
