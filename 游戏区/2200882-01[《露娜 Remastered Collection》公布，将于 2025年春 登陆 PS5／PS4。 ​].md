@@ -737,3 +737,60 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 幻水1+2也是49.99吧，格1+2是39.99（也6年前了）</blockquote>
 幻水1+2是168，折合23美元，只有露娜1+2的一半不到，很实惠了。
 
+
+*****
+
+####  火红之眼  
+##### 74#       发表于 2025-2-2 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335730&amp;ptid=2200882" target="_blank">猪突猛进R 发表于 2025-2-2 21:01</a>
+
+幻水1+2是168，折合23美元，只有露娜1+2的一半不到，很实惠了。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/02/210937fduhddpqthh65gh6.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250202210412.png</strong> (853.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/210942gzbgu275u0ftzrfl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250202210728.png</strong> (81.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:09 上传
+
+人确实就这定价吧（
+
+
+*****
+
+####  猪突猛进R  
+##### 75#       发表于 2025-2-2 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335781&amp;ptid=2200882" target="_blank">火红之眼 发表于 2025-2-2 21:10</a>
+
+人确实就这定价吧（</blockquote>
+这么看来可乐妹还有点良心，幻水1+2国区168：
+
+<img src="https://img.saraba1st.com/forum/202502/02/211429orikq72s8s8pe24o.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (107.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:14 上传
+
+露娜1+2的Steam定价还未定，网上应该是外区的价格，希望到时候国区也能有点良心吧。
+
+<img src="https://img.saraba1st.com/forum/202502/02/211429tvlzljappsmdapby.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (195.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 21:14 上传
+

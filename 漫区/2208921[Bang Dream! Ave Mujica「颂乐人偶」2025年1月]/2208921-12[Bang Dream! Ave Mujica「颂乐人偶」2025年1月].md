@@ -6096,3 +6096,90 @@ IMG_3551.jpeg
 我觉得必然是有一个“核心谜题”在的
 mygo动画也有悬疑要素
 
+
+*****
+
+####  aptx8285144  
+##### 16803#       发表于 2025-2-2 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335705&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-2 20:57</a>
+
+有一个很关键的是
+
+独角兽在推特上 明确说了mujica的创作参考了剧本杀
+
+我觉得必然是有一个“核心谜题”在的</blockquote>
+主要是这个剧本杀如果是几个同龄人之间做做也就罢了，你在商业乐队题材里面“选择性”找一些大人过来那不是降维打击吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 16804#       发表于 2025-2-2 21:06
+
+ 本帖最后由 huxiaopao163 于 2025-2-2 21:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335445&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-2 20:07</a>
+
+最重要的是 大猫是怎么知道祥子是放弃继承人身份的呢 这一点除了木头人 还有初华可能知道以外是没人知道的
+
+ ...</blockquote>
+按之前那个假药的说法，人是会在愤怒的时候，吵架的时候，露出马脚的。这段是她的真心话，但也因此漏出了她理论上不该知道的信息。
+
+很多侦探故事不就是靠这种方式揪出了凶手。
+
+*****
+
+####  迷路的石头  
+##### 16805#       发表于 2025-2-2 21:06
+
+<blockquote>新HGCG 发表于 2025-2-2 20:55
+</blockquote>
+节约脸这么小
+
+*****
+
+####  一心而用  
+##### 16806#       发表于 2025-2-2 21:10
+
+<img src="https://oax.wzznft.com/i/2025/02/02/yvxibx.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 16807#       发表于 2025-2-2 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335776&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-2 21:10</a></blockquote>
+说实话花田这套扇脸小连招在女女关系性里还是很强的破招点。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 16808#       发表于 2025-2-2 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335762&amp;ptid=2208921" target="_blank">迷路的石头 发表于 2025-2-2 21:06</a>
+
+节约脸这么小</blockquote>
+发型的原因，他是脸骨架大感觉
+
+*****
+
+####  一心而用  
+##### 16809#       发表于 2025-2-2 21:15
+
+<img src="https://p.sda1.dev/21/fda3fbc155ca459f25882f6505aca100/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/79c3dd5cd87a39a1427ff3d3adaefe69/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/04ad505f1bde53ba258b8e6f2d176034/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c3a0b6f92f33d9ce894f8f9de3c85710/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/39bfa970e8b6686c895a61c9eec1e793/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 16810#       发表于 2025-2-2 21:17
+
+<img src="https://p.sda1.dev/21/cb65d9050d0657b1b2810e2380377909/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8a256c2dc087424d46959158812b5a4e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3f0efd0496e8e8b634d0fa6bf2347d37/image.jpg" referrerpolicy="no-referrer">
+
