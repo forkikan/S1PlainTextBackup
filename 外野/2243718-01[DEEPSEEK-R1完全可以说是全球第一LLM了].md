@@ -15122,3 +15122,30 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 
 官网和app好像内置刷新cd了，输出结束一段时间后才出现刷新键
 
+
+*****
+
+####  orecheng  
+##### 1166#       发表于 2025-2-2 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336142&amp;ptid=2243718" target="_blank">hysjmr 发表于 2025-2-2 22:04</a>
+
+看了楼里讨论换了cherryStudio，感觉确实比chatBox好操作一些。
+
+不过我有个问题，在cherryStudio上有办法 ...</blockquote>
+[https://pageassist.xyz/](https://pageassist.xyz/)
+
+我感觉page assist比这些都强，浏览器装个插件就完了，RAG 联网搜索都有
+
+*****
+
+####  moeblack  
+##### 1167#         楼主| 发表于 2025-2-2 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336142&amp;ptid=2243718" target="_blank">hysjmr 发表于 2025-2-2 22:04</a>
+
+看了楼里讨论换了cherryStudio，感觉确实比chatBox好操作一些。
+
+不过我有个问题，在cherryStudio上有办法 ...</blockquote>
+你可以用Gemini2.0flash 那个有联网搜索 然后让Gemini给出资料 用R1分析资料（我目前还在测试workflow）
+

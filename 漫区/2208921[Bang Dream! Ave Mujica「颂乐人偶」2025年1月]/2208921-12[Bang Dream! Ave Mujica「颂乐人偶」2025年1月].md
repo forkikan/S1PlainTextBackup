@@ -6565,3 +6565,32 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  抽搐一下  
+##### 16846#       发表于 2025-2-2 22:48
+
+我猜mujica最后也不会是krkrdkdk的，除非彻底抛弃原本的音乐风格。感觉会变成一边承受既定命运（当继承人），一边偷偷溜出来共同沉沦搞地下乐队发泄情绪
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16847#       发表于 2025-2-2 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336376&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-2 22:43</a>
+
+那么有主角身边全是叛徒，最后全部站在主角这边一起对抗幕后黑手的作品吗？ ...</blockquote>
+独角兽这不已经派了go团过来把大祥从“叛徒”的包围里面解救出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 16848#       发表于 2025-2-2 22:49
+
+想进手游，必然就要融入bang的世界观，不可能真banHWW一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
