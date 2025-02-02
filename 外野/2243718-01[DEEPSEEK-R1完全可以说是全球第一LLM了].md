@@ -14631,3 +14631,13 @@ vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用
 
 Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报过载
 
+
+*****
+
+####  liquer  
+##### 1121#       发表于 2025-2-2 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331997&amp;ptid=2243718" target="_blank">Holyted 发表于 2025-2-2 10:56</a>
+让我想起一段往事，我本科是中文系，记得当年古汉语老师说过，别以为咱们中文系没用，将来人工智能时代中 ...</blockquote>
+清华中文系因为正常搞没啥干得过隔壁的希望，是搞了人工智能方向的，选这个方向的学生即使是中文系学生也得修编程学分，倒是可以期待一下效果
+

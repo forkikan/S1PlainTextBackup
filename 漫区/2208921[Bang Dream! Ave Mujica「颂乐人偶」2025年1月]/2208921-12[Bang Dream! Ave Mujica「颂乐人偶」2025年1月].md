@@ -4258,3 +4258,78 @@ C团遗老最喜欢的一集。
 
 祥子疑似真正的月老，负责把素食打碎成就爱素，负责把睦打碎成就素睦，负责把初华打碎成就sumimi
 
+
+*****
+
+####  海底铁锚  
+##### 16638#       发表于 2025-2-2 12:55
+
+哇，感觉键帽真的在wsd眼里是完全没问题的了，后续可能连吃瘪情节都没有。
+不要啊，wsd你们人均心理变态吗？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 16639#       发表于 2025-2-2 12:57
+
+本子写的东西自古以来，主角只要是二代（优质血缘关系的情况），自始至终也摆脱不了二代的头衔，包括鸣人，卡卡罗特。最终都是去利用一代（血缘）的恩惠。
+大师尚且做不到，何况她独角兽。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  刑部姬真可爱  
+##### 16640#       发表于 2025-2-2 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332705&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 12:29</a>
+
+对赌协议是指大祥和老登签的吗？还是中登和老登的事?前者的话，老登越来越不像坏人了（ ...</blockquote>
+邦里角色的家人没出现过“坏”这个意象，所以老登确实也可以不坏
+
+但是一想到wsd“史上最狂”的宣传语，那老登是坏也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 16641#       发表于 2025-2-2 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332797&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 12:40</a>
+可以，最好问出点什么。因为舅舅党究竟是串子还是真的我也不敢保证确定。楼里立场舅舅是串，我的假设是真 ...</blockquote>
+问到了，emmmm，总之别太当真，更不要急。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 16642#       发表于 2025-2-2 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331886&amp;ptid=2208921" target="_blank">links8018 发表于 2025-2-2 10:39</a>
+楼里自信满满说🦄能力强过花田还是挺让人匪夷所思的</blockquote>
+就从现在键帽的塑造来看，老登编剧对比xxn编剧还是有点基础的道德观的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这键帽后续不吃瘪，这mujica 播完后不知道要多多少键帽。
+
+*****
+
+####  岬开斗  
+##### 16643#       发表于 2025-2-2 13:03
+
+<blockquote>DARK_HGCG 发表于 2025-2-2 08:23
+初华就想和祥子在一起
+
+睦是因为不想让祥子坏掉
+
+海铃是有活干就参加，她不管乐队档次，MYGO请她她也去
+</blockquote>
+布什戈门？
+
+邦多利世界观里喵梦“这么好的鼓手哪里找”？
+
+好在哪？除了左右利手还有啥？
+
+第一集台上摘别人面具，第三集想拉睦单干，第四集看睦不会弹吉他提出要么把睦踢了要么把祥子踢了，都没踢成就自己退出，还强调“走一个就是解散”……
+
+“这么好的鼓手哪里找”……
+
+萌翻你是现实中被鼓手害过所以喵梦这样的都“好到没地方找”了？
+
