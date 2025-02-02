@@ -4764,3 +4764,23 @@ exactly truth
 如果真的一辈子追祥子，那灯就是春希，祥子是冬马，爱音要当一辈子雪菜了…这不好吧，到时候go团内部双人卡 ...</blockquote>
 别别别我真的会笑的
 
+
+*****
+
+####  天空塔书记官  
+##### 16683#       发表于 2025-2-2 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 16684#       发表于 2025-2-2 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333548&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-2 14:26</a>
+
+我觉得丰川家多半也没多坏，圣爱音路过一句我是大小姐的偷摸大鸡就能混上车随便进大宅，赤坂都知道把大小姐 ...</blockquote>
+这里最搞的是，爱音自称朋友而进来时大祥啥表示都还没有，近乎是一脸蒙蔽的（因为灯这时还没跑到），我印象当中go团时期大祥好像还没和爱音近距离说过话吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

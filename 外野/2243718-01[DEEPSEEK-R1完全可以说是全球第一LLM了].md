@@ -14745,3 +14745,23 @@ chatbox ，然后用api
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  bwsusaga  
+##### 1131#       发表于 2025-2-2 15:33
+
+借地问下，目前R1还在哪个平台可以用。官方网页版好几天都不行了。
+
+*****
+
+####  午夜钓者  
+##### 1132#       发表于 2025-2-2 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333840&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-2 15:16</a>
+
+是另一家？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+类似chatbox的软件
+
