@@ -314,3 +314,31 @@ Peach &amp; Idol
 
 第 01 集的 TVer 源（含日字）：magnet:?xt=urn:btih:206e2250738dfd970d3b51bedcbd24614e712498
 
+
+*****
+
+####  キュアアイドル  
+##### 302#       发表于 2025-2-2 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331300&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-2-2 08:12</a>
+
+啊，我没有出场啊……
+
+总之，这一年请多关照</blockquote>
+下周就可以在学校见面了，期待
+
+
+*****
+
+####  modedd  
+##### 303#       发表于 2025-2-2 08:25
+
+就说不可能没打戏的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 304#       发表于 2025-2-2 08:27
+
+有打戏就放心了
+
