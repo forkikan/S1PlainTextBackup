@@ -14807,3 +14807,22 @@ lobechat也支持了~ 果然lobechat全平台网页版策略还是好。
 现在想用就用硅基流动，送14元。<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 [https://cloud.siliconflow.cn/i/GX312zX6](https://cloud.siliconflow.cn/i/GX312zX6)
 
+
+*****
+
+####  午夜钓者  
+##### 1137#       发表于 2025-2-2 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333964&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-2 15:40</a>
+
+lobechat也支持了~ 果然lobechat全平台网页版策略还是好。</blockquote>
+得自己部署？我看官方是收费得
+
+
+*****
+
+####  魔灵高达  
+##### 1138#       发表于 2025-2-2 16:04
+
+硅基流动都被冲爆了，用了LZ的邀请码注册，登录上去无限转圈
+

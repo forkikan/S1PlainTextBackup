@@ -5120,3 +5120,21 @@ GM的喷枪厉害还是大魔的扩散炮厉害？
 ----发送自 Sony XQ-CT44,Android 14</blockquote>
 大魔那个扩散炮威力略大于闪光弹主要作用是电磁干扰<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 6333#       发表于 2025-2-2 16:06
+
+ 本帖最后由 岸浪白野 于 2025-2-2 16:07 编辑 
+
+绿叔叔讨论激增
+
+<img src="https://img.saraba1st.com/forum/202502/02/160548m857o7284pss45o2.png" referrerpolicy="no-referrer">
+
+<strong>2)VFFJJO)JVK`UHO0_0{7~H.png</strong> (11.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 16:05 上传
+

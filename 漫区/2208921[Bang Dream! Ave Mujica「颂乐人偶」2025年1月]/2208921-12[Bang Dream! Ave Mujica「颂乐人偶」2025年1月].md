@@ -4859,3 +4859,72 @@ exactly truth
 
 不过非要假药的话，老登下的大棋 下面的人又怎么知道，毕竟老登交代时的语气也不像是把大祥当犯人看管，在手下人看来老登是怕孙女离家出走（比如又去和中登在一起了）或想不开自杀这种感觉
 
+
+*****
+
+####  08df1258c5ed098  
+##### 16692#       发表于 2025-2-2 15:59
+
+给我干哪儿来了，有这么多大棋
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhigui  
+##### 16693#       发表于 2025-2-2 16:00
+
+如果是两个月前的我肯定无脑支持独角兽喷舅舅，但现在我无法站边，这究竟是为什么呢
+
+*****
+
+####  swessia  
+##### 16694#       发表于 2025-2-2 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">外面炮火连天的像是六七集都播完的样子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 16695#       发表于 2025-2-2 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334071&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 15:56</a>
+不过非要假药的话，老登下的大棋 下面的人又怎么知道，毕竟老登交代时的语气也不像是把大祥当犯人看管，在 ...</blockquote>
+老登要是能控高中生去执行炸团这种精密操作却无法让跟了自己n年的手下读懂自己意图那这御人之术可以说是神鬼二象了
+
+
+*****
+
+####  Nungesser  
+##### 16696#       发表于 2025-2-2 16:03
+
+<blockquote>风道北来 发表于 2025-2-1 23:46
+随手一个电话，当红偶像组合里能吉他能作词的主唱就自带干粮赶过来了
+
+准职业级的吉他手不多说一句废话顶着 ...</blockquote>
+说得太对了，都让迈巴赫姐幽默完了。
+
+*****
+
+####  wpcc  
+##### 16697#       发表于 2025-2-2 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333997&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-2-2 15:45</a>
+
+说过的，这俩神人有过一段北原春希遇到冬马和纱式的开局，爱音还问祥子想不想组乐队 ...</blockquote>
+最伟大的圣人拯救19集的反派很合理吧 好吃 然后圣人还把自己捐了
+
+*****
+
+####  wpcc  
+##### 16698#       发表于 2025-2-2 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334112&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-2 16:01</a>
+
+外面炮火连天的像是六七集都播完的样子
+
+—— 来自 鹅球 v3.3.96</blockquote>
+你应该祈祷67不会比这个更烂 
+
