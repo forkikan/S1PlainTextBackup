@@ -5993,3 +5993,24 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 
 可能是完全形态的欧米茄塞克缪也说不定，麻球都开始浮空了，舱外遥控机体好像也算不上什么新鲜事
 
+
+*****
+
+####  nnis  
+##### 6410#       发表于 2025-2-2 22:03
+
+感觉也不完全算一点联系没有，米和风灵朝向一致，她们中途确实算一伙目标一致
+
+*****
+
+####  刺客ares  
+##### 6411#       发表于 2025-2-2 22:07
+
+整备的时候都说有牙齿了，肯定有配套的欧米茄塞克缪失控桥段吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+牢修上机试驾结果暴走了，机体张嘴，绿色监视器变成蓝色，开始破坏side6
+
+玛秋只能驾驶红高达播放儿歌bgm并攻击gqx
+
+最后牢修在ICU昏迷不醒，然后发生大家熟悉的在电视上无法播出的展开<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
