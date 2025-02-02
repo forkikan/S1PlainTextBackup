@@ -14344,3 +14344,38 @@ https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  bartholo4  
+##### 1098#       发表于 2025-2-2 10:19
+
+但SF的不能联网
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  moeblack  
+##### 1099#         楼主| 发表于 2025-2-2 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331792&amp;ptid=2243718" target="_blank">bartholo4 发表于 2025-2-2 10:19</a>
+
+但SF的不能联网
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+现在能联网的只有PPLX和Genspark或许
+
+
+*****
+
+####  约翰里德  
+##### 1100#       发表于 2025-2-2 10:25
+
+ 本帖最后由 约翰里德 于 2025-2-2 10:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331740&amp;ptid=2243718" target="_blank">qratosones1337 发表于 2025-2-2 10:08</a>
+硅基流动托管的完整版R1 API，用华子的卡跑的，全国产
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+额，反正都是类似产品是把，我试试，看蒙了，可以包月吗
+
