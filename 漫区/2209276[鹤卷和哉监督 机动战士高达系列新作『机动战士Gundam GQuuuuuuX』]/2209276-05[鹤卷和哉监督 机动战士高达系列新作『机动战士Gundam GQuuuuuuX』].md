@@ -6895,3 +6895,16 @@ NT与富野导演的创作风格密切相关，其他人是否可以触碰这一
 
 有时候会让人感到喘不过气来。
 
+
+*****
+
+####  补天士  
+##### 6437#       发表于 2025-2-3 04:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336879&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-2-2 23:54</a>
+
+追加キャラ＆メカ多数解禁
+
+本作に登場するキャラクターとメカを、これより多数公開いたします！</blockquote>
+为何傀儡监督永远都是一副便秘一样的表情？
+
