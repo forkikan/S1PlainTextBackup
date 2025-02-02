@@ -404,3 +404,19 @@ You and Idol Precure♪ 完 下周同一时间请看 魔法つかいプリキュ
 
 今千秋有丰富的贫穷动画经历<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">未来谨慎看好
 
+
+*****
+
+####  放哨的狼  
+##### 310#       发表于 2025-2-2 11:00
+
+开局正统q娃味太足了，今千秋伟大
+
+路人女漫画家画的漫画都是百合，今千秋今年好好麦
+
+粉主bank挺不错，动感很足，可爱开朗的爱豆感
+
+这几年坂冈锦好像都是负责蓝q的bank了？
+
+追加应该是两只妖精没跑了，op粉主没对恶心帅花痴，win
+

@@ -14471,3 +14471,76 @@ https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
 
 vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用第三方api，发现硅基流动的输出较之原版非常飘，容易陷入自问自答的无限循环。感觉默认的模型参数有很大问题
 
+
+*****
+
+####  阿刚  
+##### 1107#       发表于 2025-2-2 11:00
+
+d老师真的不适合破限，解除限制之后他的发言实在是太癫了，而且最可怕的是你还能看见他的碎碎念，看似正常的念了一大堆逻辑分析之后给你出来一句赛博鬼话。尤其大半夜忽然来这么一手真的遭不住，我都怀疑他这个想象力是不是开发团队和什么亚空间玩意做交易换来的了
+
+*****
+
+####  Holyted  
+##### 1108#       发表于 2025-2-2 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331740&amp;ptid=2243718" target="_blank">qratosones1337 发表于 2025-2-2 10:08</a>
+硅基流动托管的完整版R1 API，用华子的卡跑的，全国产
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+轨迹流动可以有手机app用吗
+
+*****
+
+####  dazzle  
+##### 1109#       发表于 2025-2-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331997&amp;ptid=2243718" target="_blank">Holyted 发表于 2025-2-2 10:56</a>
+
+让我想起一段往事，我本科是中文系，记得当年古汉语老师说过，别以为咱们中文系没用，将来人工智能时代中 ...</blockquote>
+有用的，语言学Linguistics在过去十多年来搜索引擎，智能语言理解，数据挖掘方面一直是显学，LLM只是续上了而已
+
+当然学中文不代表就能干这个，就像学计算机不代表能做AI
+
+*****
+
+####  约翰里德  
+##### 1110#       发表于 2025-2-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331959&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 10:50</a>
+模型上标了价格，1Tokens大约1.5个中文字符
+
+—— 来自 鹅球 v3.3.96</blockquote>
+他这付款我没搞懂，只有Qwen的token包，但这个不是deepseek吧？然后也没找到付款位置，好奇怪？
+
+
+*****
+
+####  午夜钓者  
+##### 1111#       发表于 2025-2-2 11:04
+
+ 本帖最后由 午夜钓者 于 2025-2-2 11:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332040&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 11:01</a>
+他这付款我没搞懂，只有Qwen的token包，但这个不是deepseek吧？然后也没找到付款位置，好奇怪？ ...</blockquote>
+直接扣余额的 你直接充值余额就行 充值需要实名认证
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moeblack  
+##### 1112#         楼主| 发表于 2025-2-2 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332024&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-2 11:00</a>
+
+d老师真的不适合破限，解除限制之后他的发言实在是太癫了，而且最可怕的是你还能看见他的碎碎念，看似正常 ...</blockquote>
+今天D老师说一长串之后给我来一个不遵从指令确实有点哈人
+
+<img src="https://img.saraba1st.com/forum/202502/02/110618rz3zdtnt4eodxek7.png" referrerpolicy="no-referrer">
+
+<strong>474fb254-94e2-4d71-9975-1f69d878dc6d.png</strong> (438.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 11:06 上传
+
