@@ -7296,3 +7296,96 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 —— 来自 samsung SM-S9110, Android 14上的 S1Ne ...</blockquote>
 其实我提这个主要是想说，老团之间台下话聊乃至台上代打都不是稀罕事，鸡狗和前辈团切割太厉害，自己内部又是多是互相亏欠的关系，唯一一对太平和海希正好是两个团最不爱管闲事的。
 
+
+*****
+
+####  安娜导函数  
+##### 16915#       发表于 2025-2-3 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334183&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 16:16</a>
+是的，其实主要是现在假药很多都在想象老登是最终boss或者决战丰川家，我心里打鼓地复盘总感觉合理和不合 ...</blockquote>
+按以往邦多利的世界观里，没有哪队的家长是敌对方这种设定的，所以所有关于老登是什么幕后黑手啊最终BOSS啊之类的我统统觉得都是扯淡<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 16916#       发表于 2025-2-3 01:18
+
+<img src="https://img.saraba1st.com/forum/202502/03/011751s1hdt4us4r7d47ps.jpg" referrerpolicy="no-referrer">
+
+<strong>BFD99399E0E88C93532B121BB806338C.jpg</strong> (259.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-3 01:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/011751ehtzhnhntzh9fft9.jpg" referrerpolicy="no-referrer">
+
+<strong>DF58D72E082E242E650C7F2DB58D34AC.jpg</strong> (224.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-3 01:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/011751tu4d5y52d651ob8i.jpg" referrerpolicy="no-referrer">
+
+<strong>8E4E2033161A01BB246C571B9CC95BCC.jpg</strong> (193.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-3 01:17 上传
+
+来点梦以泳装
+
+*****
+
+####  huxiaopao163  
+##### 16917#       发表于 2025-2-3 01:18
+
+对了，昨天提出内鬼说的贴吧老哥，开始从第一集开始一点一点分析，感兴趣的可以看看。
+[https://tieba.baidu.com/p/9463386996](https://tieba.baidu.com/p/9463386996)
+
+车站之战，说的还挺有意思的
+
+表面上看初华支持祥子，海铃支持喵梦
+
+实则是初华支持喵梦，海铃支持祥子
+
+*****
+
+####  小博禹  
+##### 16918#       发表于 2025-2-3 01:19
+
+双重人格啥的开玩笑还行，真用这个设定太蠢了<img src="https://p.sda1.dev/21/592b950f0224522b334413edc96d476e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  akiomn  
+##### 16919#       发表于 2025-2-3 01:21
+
+ 本帖最后由 akiomn 于 2025-2-3 01:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337184&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-3 01:19</a>
+
+双重人格啥的开玩笑还行，真用这个设定太蠢了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好，真的用了，还被实锤了
+
+所以现在看制作组笑话了，怎么收这个烂摊子
+
+渡瀬：明確に睦に複数の人格があるということを知らされたのは、たしか"It's MyGO!!!!!"が終了して"Ave Mujica"のアフレコが始まるタイミングだったと思うんですが、柿本広大監督が今後の演技のために丁寧にいろいろ教えてくださいました。アフレコが始まる前にわざわざブースを移動して'今後の展開ではこうなります'といったことを教えてくださるから、演技をするうえではとてもありがたいと思っています。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16920#       发表于 2025-2-3 01:24
+
+说起来独角兽还真的蛮厕妹的。狗篇里明明错的是祥子，但是让素世追着道歉；明明错的是素世，但是让爱音追着解释，突出一个“就算错的是我但是你为什么不能先服软呢”。所以鸡团坏人没报应反而是好人吃瘪的剧情你们有什么好吵的，这叫一以贯之。我已经完全理解了。
+
