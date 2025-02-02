@@ -713,3 +713,16 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 炒个冷饭而已，至于价格卖得和新的3A游戏一样么……
 
+
+*****
+
+####  火红之眼  
+##### 72#       发表于 2025-2-2 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334992&amp;ptid=2200882" target="_blank">猪突猛进R 发表于 2025-2-2 18:45</a>
+
+49.99美元，实体版还要贵5美元。
+
+复刻版游戏卖这个价很贵了，隔壁可乐妹的幻水1+2HD才100多人民币，再之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">幻水1+2也是49.99吧，格1+2是39.99（也6年前了）
+

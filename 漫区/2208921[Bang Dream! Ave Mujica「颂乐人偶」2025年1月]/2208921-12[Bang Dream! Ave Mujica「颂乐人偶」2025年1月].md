@@ -5890,3 +5890,25 @@ IMG_3551.jpeg
 
 突然有个想法，如果祥子重回鸡团变的成熟冷淡了，类比西蒙或者大卫在大哥死后扛起领袖责任表现出的那种样子，算是用力过猛还是正常塑造<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 16784#       发表于 2025-2-2 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335432&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-2 20:04</a>
+
+假药（[https://www.bilibili.com/video/BV1YxFZe3Edg](https://www.bilibili.com/video/BV1YxFZe3Edg)）</blockquote>
+我有一点看法跟这个假药说的不同，喵梦并不是早就知道，而是先受到利诱（没必要丰川家出面，而是公司出面），但是喵梦没答应；
+
+接下来是福冈公演前的排练，Mortis拷打祥子的时候，另外三个人在干什么？如果设想初华趁这个机会给喵梦（甚至可能还有海铃）灌输了“Mujica是给大小姐娱乐的过家家乐队”的假信息，让她们对Mujica和祥子失望（喵梦甚至可能是愤怒），似乎是说得通的
+
+然后祥子回来，话题暂时集中在睦身上，但是喵梦一抓住机会就开始旁敲侧击地确认，“确认”之后决定不干了
+
+*****
+
+####  厉飞雨  
+##### 16785#       发表于 2025-2-2 20:18
+
+这次bd又收录苦来兮苦的「人間になりたいうた」
+
