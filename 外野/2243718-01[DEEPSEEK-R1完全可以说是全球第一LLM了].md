@@ -14972,3 +14972,21 @@ https://nga.178.com/read.php?tid=43170286
 看不到帖子 问一下
 open webui有什么不好的地方？
 
+
+*****
+
+####  脸宽  
+##### 1153#       发表于 2025-2-2 19:34
+
+找了个微信小号，拉了个bot放群里，效果还行
+[https://www.bilibili.com/video/BV1P5FXe5E1Z/](https://www.bilibili.com/video/BV1P5FXe5E1Z/)
+
+*****
+
+####  yangkaim4  
+##### 1154#       发表于 2025-2-2 19:35
+
+<blockquote>黄泉川此方 发表于 2025-2-2 05:34
+把R1输出的片段，再让GEMINI扩写，神功大成了</blockquote>
+gemini不是不能用中文了吗？
+
