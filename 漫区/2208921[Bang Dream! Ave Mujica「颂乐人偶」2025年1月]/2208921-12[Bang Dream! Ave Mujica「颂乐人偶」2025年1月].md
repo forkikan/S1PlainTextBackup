@@ -4164,3 +4164,89 @@ https://bbs.nga.cn/read.php?tid=43178321</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  一心而用  
+##### 16630#       发表于 2025-2-2 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332667&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 12:24</a>
+行吧，你说的对，我也反驳不了。你前提舅舅是假，那么没有播出前就是假。那也没办法说什么。因为黄大叔之 ...</blockquote>
+算了，我直接去问他本人，不过我不喜欢剧透。
+
+*****
+
+####  iiiiiiiiii  
+##### 16631#       发表于 2025-2-2 12:40
+
+<blockquote>一心而用 发表于 2025-2-2 12:38
+算了，我直接去问他本人，不过我不喜欢剧透。</blockquote>
+
+可以，最好问出点什么。因为舅舅党究竟是串子还是真的我也不敢保证确定。楼里立场舅舅是串，我的假设是真，不然楼里讨论不下去。如果是辩论场也必须正反方进场
+
+*****
+
+####  huxiaopao163  
+##### 16632#       发表于 2025-2-2 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332442&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-2 11:56</a>
+
+给过家家设期限还需要串通高中生，整个经纪公司都可以是丰川家的能不能想象力丰富一些，不知道的还以为一个 ...</blockquote>
+气笑了，真这样玩，那我也可以把任何事都滑坡到一个很弱智的程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+为什么是高中生，不是因为祥子组的就是高中生乐队嘛，队员也是祥子找的。想到时间让她内部自然瓦解，不要弄得太难看，所以找了乐队里的人合作。
+
+老登花两三分钟把意思传达下去不就行了，下面的人也包括初华会自己动的，可能老登都没见过初华，也不耽误他看报表。
+
+*****
+
+####  结衣小比取  
+##### 16633#       发表于 2025-2-2 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332597&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-2 12:16</a>
+
+實際上就算老C團祥子也不是靠音樂鑑賞力選人的
+
+燈是看上了她的詞</blockquote>
+都前年讨论过的内容了
+
+祥子在月之森音乐节听过Soyo的低音提琴（Double Bass/Contrabass）演奏后才决定邀请她担任贝斯手的
+
+隔壁低音提琴手川岛绿辉也在剧中担任过贝斯手
+
+*****
+
+####  玖羽  
+##### 16634#       发表于 2025-2-2 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332797&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 12:40</a>
+
+可以，最好问出点什么。因为舅舅党究竟是串子还是真的我也不敢保证确定。楼里立场舅舅是串，我的假设是真 ...</blockquote>
+我建议不要依赖任何所谓内幕剧透<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，特别是，这个假药就像我在前面说的，有不可解释的致命问题
+
+
+*****
+
+####  南宮凝香  
+##### 16635#       发表于 2025-2-2 12:46
+
+話說，
+
+雞狗兩團的女女關係性充滿大齡剩女臭
+
+基本上都是一方粉身碎骨的在付出，
+
+另一方偶然給點陽光
+
+編劇小姐代入誰很明顯
+
+*****
+
+####  灼眼的夏娜酱  
+##### 16636#       发表于 2025-2-2 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332644&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-2 12:22</a>
+
+https://bbs.nga.cn/read.php?tid=43178321</blockquote>
+C团遗老最喜欢的一集。
+
