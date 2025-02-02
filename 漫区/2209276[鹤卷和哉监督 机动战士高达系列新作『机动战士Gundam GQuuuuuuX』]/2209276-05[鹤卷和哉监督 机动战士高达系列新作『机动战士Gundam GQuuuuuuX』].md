@@ -4448,3 +4448,32 @@ mr红白安排上了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 该买个麻球了
 
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 6274#       发表于 2025-2-2 12:15
+
+卧槽，直接三个mr安排上了，待遇也太好<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 6275#       发表于 2025-2-2 12:17
+
+<img src="https://p.sda1.dev/21/2d30fdbdbea68b8a57604c6572fa8bbe/HG赤いガンダム_フロントカット_2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3485f90b8eb743918a9168a2c8f604b2/Frsマチュ_2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/81bd9ba26db6140078a35677f445df7e/HG_GQX_NYAAN_01_m1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e0a8b03e905e1be73f11bd468a091e55/a_robot_01_2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b19c8917d2d89024ceaaa48453ec2047/b_robot_c_01.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 6276#       发表于 2025-2-2 12:21
+
+MR红高达比白的贵4000啊
+
+应该会给全套bit吗
+
