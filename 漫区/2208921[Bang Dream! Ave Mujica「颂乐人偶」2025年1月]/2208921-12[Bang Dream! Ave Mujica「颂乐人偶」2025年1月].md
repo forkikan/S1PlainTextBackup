@@ -7389,3 +7389,74 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 说起来独角兽还真的蛮厕妹的。狗篇里明明错的是祥子，但是让素世追着道歉；明明错的是素世，但是让爱音追着解释，突出一个“就算错的是我但是你为什么不能先服软呢”。所以鸡团坏人没报应反而是好人吃瘪的剧情你们有什么好吵的，这叫一以贯之。我已经完全理解了。
 
+
+*****
+
+####  天空塔书记官  
+##### 16921#       发表于 2025-2-3 01:47
+
+问题来了，A团不是全员恶人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 16922#       发表于 2025-2-3 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336515&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-2 23:04</a>
+搞不好到最后才发现大喵才是唯一那个真把自己交给祥子认真搞乐队的人。</blockquote>
+啊？这还用后面嘛？目前不就看得出来了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 16923#       发表于 2025-2-3 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337192&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-3 01:21</a>
+
+你好，真的用了，还被实锤了
+
+所以现在看制作组笑话了，怎么收这个烂摊子
+
+渡瀬：明確に睦に複数の人格があ ...</blockquote>
+额<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">，这种东西也往里面加过两天你说有人一边开飞机变形一边弹吉他唱歌我都觉得正常了
+
+*****
+
+####  江口夕  
+##### 16924#       发表于 2025-2-3 01:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真要大手，初华就是第一个背叛者，初华海玲喵梦这三个在演
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  DeltaStriker  
+##### 16925#       发表于 2025-2-3 01:49
+
+你别说 真加开飞机唱歌真比双重人格合适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 16926#       发表于 2025-2-3 01:51
+
+迷子除了爱音，其他的都不太能称得上是健全人，而A团就更加是，可能大喵还真是里面的正常担当，不能说是坏人享福好人受罪，只能说是恶人自有恶人磨，主打的就是一手相互攻击<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  DeltaStriker  
+##### 16927#       发表于 2025-2-3 01:54
+
+海铃：哈？
+看预告那个b表情别最后告诉我海铃真是啥bt偷税犯吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
