@@ -14598,3 +14598,28 @@ vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用
 官方那个推荐是给v3的，r1写了温度参数无效，可能是内部固定了一个数但是第三方部署的都不知道 ...</blockquote>
 不是，第三方api部署的可以调温度，官方也给了
 
+
+*****
+
+####  moeblack  
+##### 1118#         楼主| 发表于 2025-2-2 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332233&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 11:28</a>
+
+原来得在网页版弄
+
+不过这玩意没有app吗？有点坑啊</blockquote>
+这玩意在这次华为合作之前就是一个小公司，不过确实在圈子里面很多人都在用。
+
+期待他们搭在Deepseek好久了
+
+*****
+
+####  断片集  
+##### 1119#       发表于 2025-2-2 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332503&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-2 12:05</a>
+
+官方那个推荐是给v3的，r1写了温度参数无效，可能是内部固定了一个数但是第三方部署的都不知道 ...</blockquote>
+[img]blob:[https://bbs.saraba1st.com/a50c49fd-2150-48ff-b164-6462d48348e5](https://bbs.saraba1st.com/a50c49fd-2150-48ff-b164-6462d48348e5)[/img]就是r1的官方仓库给的推荐
+
