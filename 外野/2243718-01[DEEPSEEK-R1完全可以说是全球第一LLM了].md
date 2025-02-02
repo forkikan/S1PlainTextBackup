@@ -14701,3 +14701,14 @@ Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报�
 轨迹流动可以有手机app用吗</blockquote>
 chatbox ，然后用api
 
+
+*****
+
+####  ycycyc  
+##### 1127#       发表于 2025-2-2 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333258&amp;ptid=2243718" target="_blank">午夜钓者 发表于 2025-2-2 13:43</a>
+
+可以用Chatbox，设置api就行</blockquote>
+请问你用chatbox连硅基的r1他的思考过程生成后折叠吗，我连原厂的没问题，连硅基就咔咔全写在生成文字前面不给折叠
+

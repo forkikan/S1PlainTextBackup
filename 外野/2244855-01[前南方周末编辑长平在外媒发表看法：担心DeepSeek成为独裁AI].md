@@ -624,3 +624,11 @@ AI都比不过这些殖蛆因为AI要讲逻辑
 
 估计连夜翻阅科幻小说
 
+
+*****
+
+####  小野賢章  
+##### 66#       发表于 2025-2-2 14:23
+
+美国网友：本来还不知道 DeepSeek 有多厉害，听到说要搞民主的 AI 就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
