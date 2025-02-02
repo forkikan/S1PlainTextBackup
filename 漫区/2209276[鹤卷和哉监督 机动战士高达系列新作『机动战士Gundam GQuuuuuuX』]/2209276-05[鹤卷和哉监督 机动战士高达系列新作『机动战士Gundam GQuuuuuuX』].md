@@ -4707,3 +4707,82 @@ pixiv一搜肯定都是r18糊脸不用想的（
 
 2025-2-2 13:03 上传
 
+
+*****
+
+####  Toby_dak  
+##### 6297#       发表于 2025-2-2 13:05
+
+<blockquote>引用第6289楼Sliurus于2025-02-02 13:57发表的  :
+
+真的预料不到人气火爆吗？不仅安排的馆数多，第二周还送新设定集续热度，感觉是寄托了厚望的力推之作</blockquote>
+khara他们就是给日升打工的，最多只有建议发言权。上多少馆，应该是万南和东宝拍板的。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  虛無迴廊  
+##### 6298#       发表于 2025-2-2 13:05
+
+gqx吸引的女观众真的挺多的，x上还有不少一看就是女粉画的乙女味修司玛秋
+
+*****
+
+####  RE㐅ia  
+##### 6299#       发表于 2025-2-2 13:05
+
+<img src="https://img.saraba1st.com/forum/202502/02/130556cj2pflzyjjjzlj0q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EFA405A1-2C8B-4212-911E-E42FBAFDE231.jpeg</strong> (235.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 13:05 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Gysumitka| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  刺客ares  
+##### 6300#       发表于 2025-2-2 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332939&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-2 13:02</a>
+
+不是就一个钢镚吗</blockquote>有人从0080里买酒的购买力换算
+
+如果牢修是按5000给的，那一个硬币购买力大概等于六十多万日元
+
+按现在的汇率换算约30000rmb<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 6301#       发表于 2025-2-2 13:10
+
+日本テレビ系列にて放送を予定している。
+
+oricon的新闻写了，可是坐实4月春番组。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  psycho_Gadfly  
+##### 6302#       发表于 2025-2-2 13:11
+
+<blockquote>RE㐅ia 发表于 2025-2-2 12:58
+夏利亚的又卖完了</blockquote>
+要是出了另一位，是不是也会秒空( 
+
