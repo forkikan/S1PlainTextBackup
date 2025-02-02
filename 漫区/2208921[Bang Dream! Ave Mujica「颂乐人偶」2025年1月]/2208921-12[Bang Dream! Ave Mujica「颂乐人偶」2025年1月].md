@@ -4650,3 +4650,58 @@ MyGO前四话讲的无非是几个女孩从不熟到不怎么熟，她们决定�
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无事忙  
+##### 16672#       发表于 2025-2-2 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332935&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-2 13:01</a>
+
+问到了，emmmm，总之别太当真，更不要急。</blockquote>
+问到啥了啊急急急
+
+
+*****
+
+####  Toki_Ai  
+##### 16673#       发表于 2025-2-2 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">乖乖，透了个通透，还好我没有太吃的cp不然都得疯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Raven314  
+##### 16674#       发表于 2025-2-2 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333203&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 13:37</a>
+邦邦角色的家人里没有坏人……那睦她家人对其一个月不管也不带其去医院，据说（资料设定还是声优访谈?） ...</blockquote>
+那是声优自己的理解不是官方设定
+
+*****
+
+####  Sabbah  
+##### 16675#       发表于 2025-2-2 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来我是土生土长的波斯人，我还寻思我只是华北平原普通动画爱好者呢。
+
+ave mujica1.0商业大喝采篇的叙事压力过大导致所谓的伏线表达过于脱离画面表达，这种近似对电波的做法在我这里不是值得拉出来夸奖的事情。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道像青龙圣者这样的8848居民怎么看。
+
+*****
+
+####  QuerTan  
+##### 16676#       发表于 2025-2-2 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67328170&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-1 18:02</a>
+
+但问题是，对其他角色卡的异味，从现在开始就有了，我觉得禁招已经开始给别的cp厨一种异味了
+
+就像雪菜一辈 ...</blockquote>
+灯角色不崩坏的话做不出这种烂事的，
+
+你要说搞企划写剧本的这些理不理解角色那不好说。
+

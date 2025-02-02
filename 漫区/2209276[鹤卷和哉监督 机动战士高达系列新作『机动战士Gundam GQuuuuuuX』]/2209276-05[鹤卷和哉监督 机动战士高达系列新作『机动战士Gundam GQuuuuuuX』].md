@@ -5010,3 +5010,38 @@ GM的喷枪厉害还是大魔的扩散炮厉害？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6322#       发表于 2025-2-2 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332879&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-2-2 12:53</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">MR魂的红高达是修司使用的0085年两浮游炮+流星锤样式吧，六浮游炮的夏亚样式可能往后上PB<img src="https://p.sda1.dev/21/9b11f5350de62d59406c147b97badf93/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  psycho_Gadfly  
+##### 6323#       发表于 2025-2-2 14:56
+
+<img src="https://img.saraba1st.com/forum/202502/02/145554fl5kq7gkijkzsjgj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7660.jpeg</strong> (162.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 14:55 上传
+
+绿色叔叔已经缺货了……
+
+*****
+
+####  猪突猛进R  
+##### 6324#       发表于 2025-2-2 14:57
+
+这流星锤还是从轻加农身上缴获的。
+
+以后轻加农会不会也出模型？还可以出鸭妹专用机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
