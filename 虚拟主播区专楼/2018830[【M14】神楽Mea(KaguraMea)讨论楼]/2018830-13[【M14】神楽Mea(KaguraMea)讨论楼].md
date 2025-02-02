@@ -369,3 +369,15 @@ ramuchi的情侣spotiffy
 
 找韩一波居然是selly帮忙翻译的？！
 
+
+*****
+
+####  sino__unnko3  
+##### 17927#       发表于 2025-2-2 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334578&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-2 17:29</a>
+找韩一波居然是selly帮忙翻译的？！
+
+那接下来找韩一波指导的时候翻译的人也有可能是selly？之前说是不认识 ...</blockquote>
+相当于还是没展开说自己跟韩服这两位怎么认识的吗，但确实说是初见
+
