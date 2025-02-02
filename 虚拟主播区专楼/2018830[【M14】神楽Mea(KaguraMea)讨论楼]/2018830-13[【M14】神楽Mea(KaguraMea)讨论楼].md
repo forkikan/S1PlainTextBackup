@@ -391,3 +391,15 @@ ramuchi的情侣spotiffy
 
 selly就完全不清楚了（我还有四十分钟左右没看），甚至都不是玩撸的，纯纯枪男还是韩国人
 
+
+*****
+
+####  sino__unnko3  
+##### 17929#       发表于 2025-2-2 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334661&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-2 17:46</a>
+韩一波是她直接去直播间问的能不能教日本的vtuber（自己）玩波比，这样认识的
+
+selly就完全不清楚了（我还 ...</blockquote>
+又没邮箱又没Twitter私信功能，直接去AfreecaTV的直播间留言了，不愧是怪物般的行动力
+
