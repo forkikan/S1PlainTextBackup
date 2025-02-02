@@ -14679,3 +14679,15 @@ Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qratosones1337  
+##### 1125#       发表于 2025-2-2 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331819&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 10:25</a>
+额，反正都是类似产品是把，我试试，看蒙了，可以包月吗</blockquote>
+可以充值，按量付费
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
