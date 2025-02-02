@@ -15055,3 +15055,13 @@ cherry我还在探索，功能还挺丰富。
 但rag基本都要docker 结论而言还是要装吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">其实我是小白，并不懂那么多这个RAG我就没用过
 
+
+*****
+
+####  yangkaim4  
+##### 1160#       发表于 2025-2-2 20:24
+
+<blockquote>阿刚 发表于 2025-2-2 11:00
+d老师真的不适合破限，解除限制之后他的发言实在是太癫了，而且最可怕的是你还能看见他的碎碎念，看似正常 ...</blockquote>
+把温度调低有没有用？
+
