@@ -15149,3 +15149,16 @@ d老师真的不适合破限，解除限制之后他的发言实在是太癫了�
 不过我有个问题，在cherryStudio上有办法 ...</blockquote>
 你可以用Gemini2.0flash 那个有联网搜索 然后让Gemini给出资料 用R1分析资料（我目前还在测试workflow）
 
+
+*****
+
+####  hysjmr  
+##### 1168#       发表于 2025-2-2 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336411&amp;ptid=2243718" target="_blank">orecheng 发表于 2025-2-2 22:49</a>
+
+https://pageassist.xyz/
+
+我感觉page assist比这些都强，浏览器装个插件就完了，RAG 联网搜索都有 ...</blockquote>
+没找到怎么配置siliconflow的api<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
