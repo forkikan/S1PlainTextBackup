@@ -7283,3 +7283,16 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 与其说wsd不会让喵梦吃瘪，不如这个角色要被边缘化了，前半场工具人，后半场就稍微做点人设回撤然后边缘化 ...</blockquote>
 绝对不可能边缘化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16914#       发表于 2025-2-3 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337121&amp;ptid=2208921" target="_blank">stmule 发表于 2025-2-3 00:58</a>
+
+很难想象mujica这居然和hhw是同一个世界观的两个乐队
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Ne ...</blockquote>
+其实我提这个主要是想说，老团之间台下话聊乃至台上代打都不是稀罕事，鸡狗和前辈团切割太厉害，自己内部又是多是互相亏欠的关系，唯一一对太平和海希正好是两个团最不爱管闲事的。
+
