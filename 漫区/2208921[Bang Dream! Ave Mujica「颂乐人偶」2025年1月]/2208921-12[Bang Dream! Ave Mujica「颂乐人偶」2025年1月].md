@@ -6425,3 +6425,24 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 16833#       发表于 2025-2-2 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这假药最大的问题是，幕后的大手也可以把团搞炸，没必要让莫小姐不会弹吉他当小丑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 16834#       发表于 2025-2-2 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336156&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-2 22:06</a>
+只要能在第七集举办一场live就算成功.jpg</blockquote>
+不属于母鸡卡的关键live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
