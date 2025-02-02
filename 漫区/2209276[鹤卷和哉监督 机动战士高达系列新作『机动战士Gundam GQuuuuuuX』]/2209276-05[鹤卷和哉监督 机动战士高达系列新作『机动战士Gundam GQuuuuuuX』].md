@@ -6051,3 +6051,24 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 
 不排除他给吉翁当过MS终端湿件的可能
 
+
+*****
+
+####  UNINSTALL42  
+##### 6415#       发表于 2025-2-2 23:06
+
+<blockquote>Sliurus 发表于 2025-2-2 22:16
+难道说小森少尉是flcl的班长吗？flcl我最喜欢就是班长那集</blockquote>
+对上司不客气那应该是亚麻罗身边那个黑皮妹吧
+
+
+*****
+
+####  Steel.Haze  
+##### 6416#       发表于 2025-2-2 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336022&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-2 21:47</a>
+
+对比一下，主视图本来应该突出的女一却被放的那么远，确实有点反常识</blockquote>
+仔细看后感觉，这个主视觉图，有五星物语的风格....
+

@@ -15070,3 +15070,15 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 太子帽终于可以摘掉了，解脱啊
 
+
+*****
+
+####  csolfans  
+##### 1465#       发表于 2025-2-2 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335206&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-2 19:17</a>
+太子帽终于可以摘掉了，解脱啊</blockquote>
+草(废太子是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
