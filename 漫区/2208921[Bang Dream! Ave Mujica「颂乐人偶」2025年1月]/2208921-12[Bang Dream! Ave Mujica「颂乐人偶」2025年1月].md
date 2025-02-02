@@ -5477,3 +5477,65 @@ B站赚麻了，SC就没断过
 杀吻不是唱过了么</blockquote>
 cue一下小剧场里的ループ吧
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16754#       发表于 2025-2-2 18:38
+
+这对邦要怎么端水啊……两首慢歌都给狗团唱？
+
+*****
+
+####  一心而用  
+##### 16755#       发表于 2025-2-2 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334962&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-2 18:37</a>
+
+茜姨的运动鞋</blockquote>
+自从3rd脱鞋打后都是换运动鞋。
+
+
+*****
+
+####  玖羽  
+##### 16756#       发表于 2025-2-2 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334860&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-2 18:23</a>
+
+按mujica是按照计划解散的那个思路，脑补了一个小睦的情况
+
+小睦也可能是一开始就知道的，只是没说罢了，因 ...</blockquote>
+睦不是，睦对解散有PTSD，如果预先知道绝不会这样，再说睦身上的属性已经够多了，再加一个背叛者就过头了
+
+*****
+
+####  ads147147  
+##### 16757#       发表于 2025-2-2 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334847&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 18:21</a>
+李神嗓子这么造下去估计半年就赶上i83和raychell的战损程度了，武士道是真的一点科学声乐训练都不给啊 ...</blockquote>
+二偶一直以来的问题，以唱代练
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 16758#       发表于 2025-2-2 18:46
+
+是视觉错觉还是破了？
+<img src="https://oax.wzznft.com/i/2025/02/02/uiqryo.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 16759#       发表于 2025-2-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334984&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-2 18:42</a>
+
+睦不是，睦对解散有PTSD，如果预先知道绝不会这样，再说睦身上的属性已经够多了，再加一个背叛者就过头了 ...</blockquote>
+没说睦是背叛者啊，她只是知道而已。
+
+四个人应该都知道，有的人确实是背叛者，有的人只是知道但不说。
+
