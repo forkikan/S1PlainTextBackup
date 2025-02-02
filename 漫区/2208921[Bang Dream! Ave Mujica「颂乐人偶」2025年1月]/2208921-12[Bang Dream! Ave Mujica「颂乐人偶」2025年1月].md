@@ -7490,3 +7490,42 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ccc限时复活我也没意见，因为场外大概率会炸掉，看戏不嫌事大
 
+
+*****
+
+####  烂片雷达  
+##### 16931#       发表于 2025-2-3 02:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太高看初华了，初华要是有占有欲和嫉妒心的话早就没其他人什么事了
+初华是针对祥子一个人的圣人，要是看到祥子在老团开心的话只会一边偷偷抹眼泪一边祝她幸福
+让初华生气必然是有人想对祥子不利
+
+*****
+
+####  naynaydes  
+##### 16932#       发表于 2025-2-3 02:20
+
+15年前的大女主不会是凉宫吧，正好阿虚、长门、1096、古泉也在四演一
+
+*****
+
+####  江口夕  
+##### 16933#       发表于 2025-2-3 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337300&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-3 02:16</a>
+太高看初华了，初华要是有占有欲和嫉妒心的话早就没其他人什么事了
+初华是针对祥子一个人的圣人，要是看到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实要收买，大猫最好收买，但是大猫就完了。选初华是还有回旋的余地
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  小博禹  
+##### 16934#       发表于 2025-2-3 02:23
+
+初华是祥子圣人，睦头是自杀圣人，大猫是熊本圣人，海铃是冷漠圣人<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">四个圣人陪着玩，乐队怎么散了呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
