@@ -3584,3 +3584,112 @@ Mujica的鼓就是非常难打的，而且鼓手自主性也更强，不管是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是真的有点害怕了，竟然有人想看这种剧情
 
+
+*****
+
+####  JustW  
+##### 16592#       发表于 2025-2-2 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332441&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 11:56</a>
+那篇假药有经常剧透mujica的舅舅党黄大叔盖章。如果不是串能确定的是
+
+一，有对赌的协议
+
+二，初华确定有问题 ...</blockquote>
+我不知道你说的这个假药是谁写的又是谁盖章全对的，仅从开头就写祥子是为了对赌协议而退C团就可以判断这俩人没看过MyGO
+
+*****
+
+####  swessia  
+##### 16593#       发表于 2025-2-2 11:59
+
+第七集c团live不知道要搞疯多少人<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 16594#       发表于 2025-2-2 12:01
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-2 12:02 编辑 
+<blockquote>JustW 发表于 2025-2-2 11:59
+我不知道你说的这个假药是谁写的又是谁盖章全对的，仅从开头就写祥子是为了对赌协议而退C团就可以判断这 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/02/120035ulzugl2231cw6w13.jpg" referrerpolicy="no-referrer">
+
+<strong>38955E2CBE20433D6620C57C38C5281B.jpg</strong> (34.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 12:00 上传
+
+你如果经常逛贴吧就知道黄大叔是谁，因为这个人总能在前一天完美剧透星期四播放内容。这人之后删了贴，但确定是本人
+
+*****
+
+####  嵇翱u  
+##### 16595#       发表于 2025-2-2 12:01
+
+对赌是飞鸟山之战之前去老宅发生的事呗。
+
+本来祥子安心当打工妹了，被春日影一勾心有不甘了，但是又不想只是组个C团2.0，所以去搞对赌了。
+
+初华一开始可能没问题，但是丰川家介入之后知道祥子现在离家出走，抱着想让祥子回去的心态答应了丰川家。
+
+*****
+
+####  JustW  
+##### 16596#       发表于 2025-2-2 12:02
+
+以及老登这么怕自己孙女搞乐队，接回家后还嘱咐下人要好好注意，结果下人直接把爱音一个背着吉他的不知道谁给接上车带回家了，请问是这个下人不想干了还是老登想自己扇自己脸？
+
+
+*****
+
+####  JustW  
+##### 16597#       发表于 2025-2-2 12:04
+
+ 本帖最后由 JustW 于 2025-2-2 12:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332472&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 12:01</a>
+
+你如果经常逛贴吧就知道黄大叔是谁，因为这个人总能在前一天完美剧透星期四播放内容。这人之后删了贴， ...</blockquote>
+
+所以你因为这个就觉得祥子退C团是因为对赌协议？你自己不会思考吗？
+
+*****
+
+####  山ノ内花音  
+##### 16598#       发表于 2025-2-2 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332472&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-2 12:01</a>
+你如果经常逛贴吧就知道黄大叔是谁，因为这个人总能在前一天完美剧透星期四播放内容。这人之后删了贴， ...</blockquote>
+你id看错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+他完整id不是三个字
+
+*****
+
+####  iiiiiiiiii  
+##### 16599#       发表于 2025-2-2 12:05
+
+我感觉楼里看贴吧人少，舅舅党就喜欢在贴吧和NGA剧透。这几个舅舅党说话可是份量很足的
+
+*****
+
+####  iiiiiiiiii  
+##### 16600#       发表于 2025-2-2 12:07
+
+<blockquote>山ノ内花音 发表于 2025-2-2 12:04
+你id看错了
+
+他完整id不是三个字</blockquote>
+这个是吧友点进去主页确定的。我看的时候已经删了。但是复数吧友确定是真ID，我也不知道是否正确
+
+
+*****
+
+####  稀勢のささ  
+##### 16601#       发表于 2025-2-2 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">都开始对赌了，我看你们比祥黑编剧还恨大祥
+

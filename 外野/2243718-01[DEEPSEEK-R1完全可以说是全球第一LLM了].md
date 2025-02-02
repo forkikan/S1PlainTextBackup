@@ -14567,3 +14567,34 @@ vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用
 原来得在网页版弄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不过这玩意没有app吗？有点坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断片集  
+##### 1115#       发表于 2025-2-2 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332010&amp;ptid=2243718" target="_blank">qqks 发表于 2025-2-2 10:57</a>
+
+vscode里的cline输出的模型温度怎么调？我用openai兼容模式调用第三方api，发现硅基流动的输出较之原版非常 ...</blockquote>
+官方推荐温度是0.6
+
+
+*****
+
+####  real_zyf  
+##### 1116#       发表于 2025-2-2 12:05
+
+<blockquote>断片集 发表于 2025-2-2 11:59
+官方推荐温度是0.6</blockquote>
+官方那个推荐是给v3的，r1写了温度参数无效，可能是内部固定了一个数但是第三方部署的都不知道
+
+*****
+
+####  ryanghj  
+##### 1117#       发表于 2025-2-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332503&amp;ptid=2243718" target="_blank">real_zyf 发表于 2025-2-2 12:05</a>
+
+官方那个推荐是给v3的，r1写了温度参数无效，可能是内部固定了一个数但是第三方部署的都不知道 ...</blockquote>
+不是，第三方api部署的可以调温度，官方也给了
+
