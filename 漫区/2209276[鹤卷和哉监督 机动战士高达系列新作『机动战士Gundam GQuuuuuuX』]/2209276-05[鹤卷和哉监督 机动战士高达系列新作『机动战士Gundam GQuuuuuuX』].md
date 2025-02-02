@@ -6032,3 +6032,22 @@ gqx除了Ω塞可谬还搭载了别的系统吗？
 
 难道说小森少尉是flcl的班长吗？flcl我最喜欢就是班长那集<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 6414#       发表于 2025-2-2 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336182&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-2 22:10</a>
+
+开始假药时间了，已知主角是三人组，麻球喵安修司，主视觉图是，麻球喵安高达，约掉等式两边相同项，可得， ...</blockquote>
+牢修的设计语言主题是“高达的精灵”
+
+生活能力差，没常识，巨款丢了也不生气
+
+只在开高达和画涂鸦的时候眼睛才有高光
+
+目标也是被“高达”引导着才有的
+
+不排除他给吉翁当过MS终端湿件的可能
+
