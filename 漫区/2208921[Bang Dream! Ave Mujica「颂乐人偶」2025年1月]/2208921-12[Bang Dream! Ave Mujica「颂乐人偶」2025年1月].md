@@ -7229,3 +7229,15 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 希望下一作邦邦脚本让冈妈写😛
 
+
+*****
+
+####  rushsong  
+##### 16909#       发表于 2025-2-3 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337042&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-3 00:31</a>
+开播前我会说不是，但现在谁也看得出母鸡卡会被拍成大祥传吧，为了摧毁祥子有多少角色都让位了 ...</blockquote>
+你确定写的了大祥传？mujica有几个问题就是编剧和国内观众理解错位，国内观众觉得一定要改的问题在编剧眼里估计就是不需要在意的小事，那么也可以合理怀疑后面祥子也没多大高光可以掩盖她前面的错误，估计就是和所有人和解下定决心好好经营乐队从0开始了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
