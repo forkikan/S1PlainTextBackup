@@ -14332,3 +14332,15 @@ https://cloud.siliconflow.cn/i/SgzjOJZB
 https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
 这个也是ds老师？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 1097#       发表于 2025-2-2 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331735&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-2 10:07</a>
+这个也是ds老师？</blockquote>
+硅基流动托管的完整版R1 API，用华子的卡跑的，全国产
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
