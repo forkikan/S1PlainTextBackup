@@ -15255,3 +15255,58 @@ https://pageassist.xyz/
 问下，我拿手机浏览器用硅基流动网页突然变成这样了是咋回事……是浏览器问题吗？
 <img src="https://p.sda1.dev/21/83b8710b35b18666525a827bba0b3fda/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 1174#         楼主| 发表于 2025-2-3 02:28
+
+想让R1给我写点**。
+
+就因为主角是大老板。
+
+所以
+
+所以
+
+就会有经济学模型
+
+一开始是对冲基金
+
+然后是博弈论
+
+现在是国富论<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+
+已经出现好多次国富论了。
+
+<img src="https://img.saraba1st.com/forum/202502/03/022605xql290j554b2dbb4.png" referrerpolicy="no-referrer">
+
+<strong>94dc2658f26a9f27220d51fe9a424daa.png</strong> (33.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 02:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/022740gz6tom13pvswz9p9.png" referrerpolicy="no-referrer">
+
+<strong>34545b9e-9aca-454b-b338-2ed93bbf45d0.png</strong> (239.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 02:27 上传
+
+我得了看到希腊字母就会哭出来的病。
+
+
+*****
+
+####  moeblack  
+##### 1175#         楼主| 发表于 2025-2-3 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337116&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-3 00:57</a>
+
+问下，我拿手机浏览器用硅基流动网页突然变成这样了是咋回事……是浏览器问题吗？
+
+ ...</blockquote>
+网页版怎么炸的比API厉害多了
+

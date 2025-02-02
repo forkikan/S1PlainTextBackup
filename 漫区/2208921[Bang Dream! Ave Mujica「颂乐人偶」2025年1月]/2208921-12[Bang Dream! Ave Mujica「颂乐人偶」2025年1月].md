@@ -7529,3 +7529,20 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 16935#       发表于 2025-2-3 02:26
+
+因为祥子是拆团圣人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NODY  
+##### 16936#       发表于 2025-2-3 02:30
+
+十五年大女主指的是百合后宫版鲁鲁修
+
