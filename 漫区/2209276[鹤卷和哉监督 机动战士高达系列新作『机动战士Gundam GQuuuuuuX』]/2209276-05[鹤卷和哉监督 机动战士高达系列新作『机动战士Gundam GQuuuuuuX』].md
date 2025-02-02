@@ -4949,3 +4949,24 @@ oricon的新闻写了，可是坐实4月春番组。</blockquote>
 
 本来想抢了gqx自己用，结果被不知道哪跑出来的小姑娘捷足先登了。
 
+
+*****
+
+####  YU_JI  
+##### 6317#       发表于 2025-2-2 14:08
+
+<blockquote>Toby_dak 发表于 2025-2-2 13:16
+是的，全身上下就只那5000块，连饭钱都没剩。这情况难道不是下水找吗</blockquote>
+因为高达没让他下水找（）
+
+
+*****
+
+####  Steel.Haze  
+##### 6318#       发表于 2025-2-2 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333106&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-2 13:24</a>
+
+“原来鹤卷监督是这种人啊…”</blockquote>
+吉姆用好了和武器配备理想确实比大魔强，尤其是宇宙战，但陆战肯定没戏。
+

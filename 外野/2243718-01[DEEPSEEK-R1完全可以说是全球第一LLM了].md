@@ -14691,3 +14691,13 @@ Siliconflow的服务已经不堪重负了，我这边r1和v3的api都开始报�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  聆听  
+##### 1126#       发表于 2025-2-2 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332028&amp;ptid=2243718" target="_blank">Holyted 发表于 2025-2-2 11:00</a>
+轨迹流动可以有手机app用吗</blockquote>
+chatbox ，然后用api
+
