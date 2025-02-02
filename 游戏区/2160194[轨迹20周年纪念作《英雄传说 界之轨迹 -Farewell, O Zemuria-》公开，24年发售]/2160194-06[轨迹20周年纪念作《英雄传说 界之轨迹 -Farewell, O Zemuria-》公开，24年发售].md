@@ -346,3 +346,14 @@
 
 庭院羊格子不是二章开始才有吗？原来一章就能刷出来？
 
+
+*****
+
+####  yth329  
+##### 7562#       发表于 2025-2-2 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334913&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2025-2-2 18:29</a>
+
+这代噩梦难度最恶心的是前期下水道的一个BOSS，血不是一般厚，其他我感觉都还好 ...</blockquote>
+不是黎恩线第一个BOSS水母吗，还能回血
+

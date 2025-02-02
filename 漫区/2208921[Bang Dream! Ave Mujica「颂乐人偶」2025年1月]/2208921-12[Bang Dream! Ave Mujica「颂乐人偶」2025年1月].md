@@ -5554,3 +5554,96 @@ cue一下小剧场里的ループ吧
 
 我还是认为如果真有背叛者，那就是电影暗示的三个
 
+
+*****
+
+####  天空塔书记官  
+##### 16761#       发表于 2025-2-2 18:58
+
+ 本帖最后由 天空塔书记官 于 2025-2-2 19:00 编辑 
+
+问有两把琴的，建议去看看RAS的演唱会，Reo三把琴加一把战斧都算标配了，说是电钢，其实都是拿来当合成器用的
+
+祥子钢琴固然厉害，但邦一key还得是PAREO啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Kasroz  
+##### 16762#       发表于 2025-2-2 19:02
+
+1w1的场子<img src="https://p.sda1.dev/21/bb1c69442ee2d2fb366e4095c3abeb99/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3e46e8c11c490a3900f84e56bfa61778/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackeryuri2  
+##### 16763#       发表于 2025-2-2 19:02
+
+ 本帖最后由 blackeryuri2 于 2025-2-2 19:05 编辑 
+
+求求动画千万别翻车了只要平稳落地了就买10份bd支持
+
+三次元这么好的团千万不要辜负她们的努力
+
+IMG_3550.jpeg
+(202.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/190228tz4l1nx9zbx2v9y9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+IMG_3551.jpeg
+(151.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202502/02/190228cabxkpx166b45abv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 16764#       发表于 2025-2-2 19:04
+
+楼里现在买的下手吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/02/190416s0crzm7oc07or5rq.jpg" referrerpolicy="no-referrer">
+
+<strong>3db360fbafebf9b1.jpg</strong> (426.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 19:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  huxiaopao163  
+##### 16765#       发表于 2025-2-2 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335034&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-2 18:56</a>
+
+拜托，这种事知而不报就等于背叛了（海铃可能是此类）
+
+我还是认为如果真有背叛者，那就是电影暗示的三个 ...</blockquote>
+说到电影，看到贴吧也有分析的。
+
+电影里一共五个人，女主，男主，后面三个坐着的人。
+
+但是女主的台词“你也是叛徒，你也是，还有你”
+
+“你也是叛徒”说明前面已经有一个叛徒，所以后面的才用“也”
+
+所以，女主痛骂的男主也是叛徒，一共有四个叛徒。
+
+或者是一主犯，三从犯的感觉
+
