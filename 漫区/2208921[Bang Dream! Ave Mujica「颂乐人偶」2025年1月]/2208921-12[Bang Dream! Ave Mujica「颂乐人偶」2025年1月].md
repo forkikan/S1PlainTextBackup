@@ -7566,3 +7566,15 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 要的是祥子能发现真相，重建mujica，并有能力守护住它。那么mortis才能离开，小睦也才能回来。（不过我觉得最后两人应该是融合）
 
+
+*****
+
+####  深渊之呗  
+##### 16938#       发表于 2025-2-3 05:04
+
+楼友们，已经演了五集了，轻度爱好者有个问题哈，为啥当初祥子要退C团的原因说了吗？
+好像演了挺多大伙的不幸人生，说没说当初祥子就是要退团的原因呀？
+是因为C团太菜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
