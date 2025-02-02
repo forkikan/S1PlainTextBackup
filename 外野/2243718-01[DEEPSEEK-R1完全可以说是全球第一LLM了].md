@@ -14826,3 +14826,21 @@ lobechat也支持了~ 果然lobechat全平台网页版策略还是好。</blockq
 
 硅基流动都被冲爆了，用了LZ的邀请码注册，登录上去无限转圈
 
+
+*****
+
+####  asion617  
+##### 1139#       发表于 2025-2-2 16:08
+
+ios上有什么可以用api的app推荐吗
+
+*****
+
+####  88316756  
+##### 1140#       发表于 2025-2-2 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334126&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-2 16:04</a>
+
+硅基流动都被冲爆了，用了LZ的邀请码注册，登录上去无限转圈</blockquote>
+用api试试，目前我这边还正常
+
