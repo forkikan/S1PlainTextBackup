@@ -3443,3 +3443,53 @@ Mujica的鼓就是非常难打的，而且鼓手自主性也更强，不管是�
 那毕竟有原作，原作世界观下，学校就是个半个社会，连老师们都是学生雇佣的（你看主角团里就有个老师和铃 ...</blockquote>
 关键这个作品我玩了一部分后已经说服自己这是一个把高中舞台当成社会模型的隐喻作品了，结果越往后玩越发现里面的所有高中生的心智真的就是只有高中生水平，尤其男主完全就是纯纯的普通高中生，完全没有任何超出高中生水平的认知，结果发生的事全是要死要活的，已经不是割裂可以形容而是滑稽了
 
+
+*****
+
+####  厚乳果珍爽  
+##### 16579#       发表于 2025-2-2 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">承认编剧负全责很难吗？剩下的事情就是丢了脑子，看还能怎么搞。讲道理，我去年看咒术回战斗的时候也是蛮乐的。
+
+*****
+
+####  JustW  
+##### 16580#       发表于 2025-2-2 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332297&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 11:36</a>
+主要前面几话舞台剧那些恐怖多少让人想起几原玩的一些手法时恐怖味道</blockquote>
+差远了，几原不会搞这些故弄玄虚的东西。前几集有很多片段是有意模仿经典恐怖片的，但这种模仿完全意味不明，既不塑造角色、也不推动故事、还不蕴含内涵，只是在挑逗观众。
+
+*****
+
+####  江口夕  
+##### 16581#       发表于 2025-2-2 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332235&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-2 11:29</a>
+其实严丝合缝确实很少，但主要原因是在“少女乐队”番里面搞这么多几原（各种恐怖渲染手法）++丸户（商业 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好家伙，丸户会写商业，你要笑死我么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  JustW  
+##### 16582#       发表于 2025-2-2 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332296&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-2-2 11:36</a>
+要的就是先给你爽一把再收回去啊，回头再思考就会发现最开始的顺境不说全部也有一大半是资本大手，而祥子 ...</blockquote>
+祥爹一个酒瓶子扔过去就能让祥子破防搬走，放弃了这么久的坚持，我的评价是老登的手腕不如祥爹一根毛，花大笔钱还要串通几个高中生当自己的打手才能让祥子知道自己年轻气盛，这么蠢的剧情还不如赤坂明编的好。
+
+*****
+
+####  aptx8285144  
+##### 16583#       发表于 2025-2-2 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332342&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-2 11:42</a>
+
+好家伙，丸户会写商业，你要笑死我么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+没说写得一丝不苟，就是像教室危机那样搞个家族兄弟内斗的框架<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

@@ -4363,3 +4363,30 @@ PlaZma + 卡缪的二创现在在N站真的很火，原版已经上20W播放了
 
 牢鸭周边已经明目张胆贴出来了
 
+
+*****
+
+####  Gysumitka  
+##### 6266#       发表于 2025-2-2 11:40
+
+人物立牌就多一个夏利亚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 6267#       发表于 2025-2-2 11:44
+
+新贴纸公布了，这咋还有联邦军的事儿呢
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gamedreamer  
+##### 6268#       发表于 2025-2-2 11:44
+
+<img src="https://p.sda1.dev/21/9e0a95d1240d34a98bd1393e5edc13f4/CMP_20250202114418532.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

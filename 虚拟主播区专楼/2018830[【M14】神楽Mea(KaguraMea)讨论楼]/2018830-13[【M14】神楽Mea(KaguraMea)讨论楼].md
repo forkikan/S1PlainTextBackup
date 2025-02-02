@@ -320,3 +320,13 @@ ramuchi的情侣spotiffy
 
 韩援这段在哪，还没看到；我怪猎呢，好像说不开直播玩
 
+
+*****
+
+####  sino__unnko3  
+##### 17921#       发表于 2025-2-2 11:44
+
+重新转译了一下之前罗咩联动的部分文本，你咩真不是系统性研究过心理学的网络巨魔吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+下个月要联机玩怪物猎人，吊桥效应最催生爱情啦！
+我勒个吊桥效应啊，外行一脸懵逼的看她在玩怪物猎人后面加了个吊桥效应
+
