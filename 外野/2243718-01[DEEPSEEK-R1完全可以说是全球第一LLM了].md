@@ -15310,3 +15310,13 @@ https://pageassist.xyz/
  ...</blockquote>
 网页版怎么炸的比API厉害多了
 
+
+*****
+
+####  firefatfox  
+##### 1176#       发表于 2025-2-3 03:33
+
+想让他帮忙写点涉组涉干的网评文章交任务，结果他都是分析一半然后转成“对不起，我还没有学会如何思考这类问题，我擅长数学、代码、逻辑类的题目，欢迎与我交流。”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这点比不上文心一言，我过去一年多的都是他帮我写的。
+
+—— 来自 HUAWEI HBN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
