@@ -14914,3 +14914,38 @@ api没问题，就是吐字慢了一点
 得自己部署？我看官方是收费得</blockquote>
 我都用了1年多了( 所以一直自己部署
 
+
+*****
+
+####  蜇灵  
+##### 1148#       发表于 2025-2-2 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67332072&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-2 11:06</a>
+今天D老师说一长串之后给我来一个不遵从指令确实有点哈人</blockquote>
+怎么叽里咕噜思考了一大堆，都得出结论应该输出F了，结果最后来个Y
+
+
+*****
+
+####  moeblack  
+##### 1149#         楼主| 发表于 2025-2-2 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334791&amp;ptid=2243718" target="_blank">蜇灵 发表于 2025-2-2 18:11</a>
+怎么叽里咕噜思考了一大堆，都得出结论应该输出F了，结果最后来个Y</blockquote>
+所以吓人（）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  trentswd  
+##### 1150#       发表于 2025-2-2 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333571&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-2 14:29</a>
+请问有什么好用的整理文档的ai吗，我手动写的和dp老师跑团的设定有点太多了，让dp老师整理他又太爱简化
+
+— ...</blockquote>
+gemini啊，gemini上下文很长
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

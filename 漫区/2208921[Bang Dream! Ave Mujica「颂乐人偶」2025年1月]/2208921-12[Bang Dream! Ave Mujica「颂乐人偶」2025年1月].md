@@ -5306,3 +5306,58 @@ akane感觉耐久度快到头了
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  septer  
+##### 16736#       发表于 2025-2-2 18:08
+
+民那在剧情滑坡共振发发牢骚不安desu
+怎么就有人直接滑坡到企划完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+跟ep3站台之战唐突一句「我不会让mujica解散一样」，乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 16737#       发表于 2025-2-2 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334658&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-2 17:45</a>
+问一下高尾奏音怎么有两把电子琴，都是用来做什么的？</blockquote>
+要调不同的音色很麻烦，直接两把琴方便切，乐队里很常见，几把琴都很正常。
+
+今年春晚的外语乐队演出也是两把琴。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 16738#       发表于 2025-2-2 18:09
+
+才买的号，专门在2个楼带节奏用的
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16739#       发表于 2025-2-2 18:12
+
+🦎：😛
+
+*****
+
+####  ShamiMo  
+##### 16740#       发表于 2025-2-2 18:15
+
+我一只是sumimi粉呢，mana伟大<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  木板春香  
+##### 16741#       发表于 2025-2-2 18:17
+
+2.5 还是有好处的 有真人LIVE看
+
