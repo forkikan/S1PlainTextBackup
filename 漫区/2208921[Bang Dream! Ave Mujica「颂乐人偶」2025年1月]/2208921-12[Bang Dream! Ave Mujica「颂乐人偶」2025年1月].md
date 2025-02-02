@@ -7116,3 +7116,68 @@ mygo和ave本质都是信息差游戏，在这一点上还是一脉相承的，�
 
 就这么败坏祥子名声，果然里面都是祥黑<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 16898#       发表于 2025-2-3 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336888&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 23:55</a>
+
+我问这个问题是因为我越来越感觉现在魔怔人越来越多根本是自己喝自己做的假药喝傻了。 ...</blockquote>
+编剧引入大手那一刻滑坡已经不可避免了
+
+*****
+
+####  天空塔书记官  
+##### 16899#       发表于 2025-2-3 00:17
+
+如果没有遇到ppp的其他人KSM可能根本不会接触音乐，没有R的其他人ykn也没可能登上Future World Fes的舞台，没有RAS的其他人楚平方甚至连自己的音乐都无法演奏，如果祥子真是万能的许愿机，那还要其他四个成员干什么，讲13集祥子的故事不好吗
+
+正是因为一个人能力有限，所以团队才有了存在的意义，众心齐，泰山移，5个1相加所能迸发出的能量甚至会是百倍甚至千倍。这就是少女乐队的底层逻辑，相信音乐的力量、相信团队的力量，相信梦想、相信羁绊，同风雨，共欢唱
+
+这就是BanG Dream
+
+我始终相信kirakiradokidoki‌
+
+<img src="https://p.sda1.dev/21/b6fb1a40cb60b23044f60405a48acee3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  吹楼伞人  
+##### 16900#       发表于 2025-2-3 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又在拷打
+
+*****
+
+####  huxiaopao163  
+##### 16901#       发表于 2025-2-3 00:17
+
+如果巡演结束后再解散，也许老爷子就不必掏这笔钱了，都怪大莫老师提前起爆。
+若叶父母估计要去给老爷子磕头谢罪了吧
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  KLHgg  
+##### 16902#       发表于 2025-2-3 00:20
+
+让几个jk玩内鬼play是个很抽象的假药，想写好难度很高，写不好一转乐子番，搞得老登最后是个连过家家都玩不起的货色
+
+虽然现在的鸡的确越来越像乐子番了
+
+*****
+
+####  月灵银羽  
+##### 16903#       发表于 2025-2-3 00:23
+
+匿名舅 内鬼合集 滑坡 角色厨撕逼 清算 黑泥 通缉文案  
+这是给我干哪儿来了，我还是在少女乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
