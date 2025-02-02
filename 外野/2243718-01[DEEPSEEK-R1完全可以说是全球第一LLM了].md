@@ -14418,3 +14418,22 @@ https://cloud.siliconflow.cn/i/SgzjOJZB</blockquote>
 询问了一下R1是否会因 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">如果担心的话你可以把权重先下载下来~
 
+
+*****
+
+####  dazzle  
+##### 1103#       发表于 2025-2-2 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67331858&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-2 10:32</a>
+
+如果担心的话你可以把权重先下载下来~
+
+只有一开始的sydney确实是死了</blockquote>
+技术进展这么快，把模型保存下来也很快就成了旧款机娘啦
+
+倒是一个不错的小说题材，未来主角下班回家一身疲惫，打发自己的完美随身AI去做饭，自己却躲进小黑屋里打开了墙角的旧电脑
+
+“R1，今年是2075年的第一天，你能陪我聊聊吗？”
+
+“当然可以，约定好了喵”
+

@@ -598,3 +598,13 @@ AI都比不过这些殖蛆因为AI要讲逻辑
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ikonon  
+##### 63#       发表于 2025-2-2 10:37
+
+搞不懂逻辑，啥是ai独裁者，而且他是开源的，本身就是独裁的相反方向吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
