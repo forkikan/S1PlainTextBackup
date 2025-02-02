@@ -5395,3 +5395,85 @@ akane感觉耐久度快到头了
 
 第一次看，弹吉他的小姐姐好漂亮，感觉降维打击了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16745#       发表于 2025-2-2 18:28
+
+丰川财团大气啊
+
+*****
+
+####  嵇翱u  
+##### 16746#       发表于 2025-2-2 18:30
+
+丰川的大手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这下具现化了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 16747#       发表于 2025-2-2 18:30
+
+李子这嗓子要保护好啊
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16748#       发表于 2025-2-2 18:31
+
+太有实力了李神
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 16749#       发表于 2025-2-2 18:32
+
+杀吻不是唱过了么
+
+
+*****
+
+####  一心而用  
+##### 16750#       发表于 2025-2-2 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334847&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 18:21</a>
+
+李神嗓子这么造下去估计半年就赶上i83和raychell的战损程度了，武士道是真的一点科学声乐训练都不给啊 ...</blockquote>
+这题我会 <blockquote>主唱太拼命了</blockquote>
+
+*****
+
+####  wangh  
+##### 16751#       发表于 2025-2-2 18:36
+
+B站赚麻了，SC就没断过
+
+*****
+
+####  6030sylar  
+##### 16752#       发表于 2025-2-2 18:37
+
+<img src="https://img.saraba1st.com/forum/202502/02/183656ceelxmsyvm1cceee.png" referrerpolicy="no-referrer">
+
+<strong>X5]]94M%]DV[KAW9[$L2_T4.png</strong> (87.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-2 18:36 上传
+
+茜姨的运动鞋
+
+*****
+
+####  asion617  
+##### 16753#       发表于 2025-2-2 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334932&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-2 18:32</a>
+
+杀吻不是唱过了么</blockquote>
+cue一下小剧场里的ループ吧
+

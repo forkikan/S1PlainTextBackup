@@ -330,3 +330,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">用什么师傅 不如刷个10分钟羊 虽然只掉一种颜色的晶片 但经验刚刚的（
 
+
+*****
+
+####  妄想中毒  
+##### 7560#       发表于 2025-2-2 18:29
+
+这代噩梦难度最恶心的是前期下水道的一个BOSS，血不是一般厚，其他我感觉都还好
+
