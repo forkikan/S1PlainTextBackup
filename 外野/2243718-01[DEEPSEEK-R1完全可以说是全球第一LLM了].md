@@ -15044,3 +15044,14 @@ cherry我还在探索，功能还挺丰富。
 其实也没什么不好的地方吧，OPEN WEBUI界面挺简洁的，之所以换掉，主要是因为：目前添加新模型要在函数那 ...</blockquote>
 但rag基本都要docker 结论而言还是要装吧
 
+
+*****
+
+####  魔灵高达  
+##### 1159#       发表于 2025-2-2 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335393&amp;ptid=2243718" target="_blank">neptunehs 发表于 2025-2-2 19:54</a>
+
+但rag基本都要docker 结论而言还是要装吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">其实我是小白，并不懂那么多这个RAG我就没用过
+

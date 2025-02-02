@@ -5831,3 +5831,29 @@ IMG_3551.jpeg
 
 2025-2-2 19:53 上传
 
+
+*****
+
+####  天空塔书记官  
+##### 16779#       发表于 2025-2-2 19:55
+
+一般跳得最欢的通常不是真凶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 16780#       发表于 2025-2-2 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335371&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-2 19:50</a>
+
+没有坚定站在祥子这边只能解释第三集的睦，如果第三集最后就解散了确实可以这么说。
+
+但后面还多了一集mo ...</blockquote>
+这就变成变种的叙诡说了，即睦在2、3话受到严重压力不是因为被采访，而是因为知道了Mujica要解散，只不过在表现上做了叙诡
+
+但是这无法解释睦为什么不告诉祥子
+
+我还是认为，即使是背叛者，也是象征意义上的，或者是祥子眼里的，而不是真背叛了
+
