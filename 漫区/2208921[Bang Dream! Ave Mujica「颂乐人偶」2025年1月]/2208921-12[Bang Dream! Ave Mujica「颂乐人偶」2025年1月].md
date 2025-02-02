@@ -7682,3 +7682,16 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zhigui  
+##### 16947#       发表于 2025-2-3 06:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337470&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-3 05:58</a>
+
+1那现在鸡团炸了她是不是也觉得一切责任都在她？
+
+2我发现我好像根本看不懂鸡团想干啥，大伙都是来挣钱的 ...</blockquote>
+其实大部分人也看不懂鸡团想干啥，非常迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
