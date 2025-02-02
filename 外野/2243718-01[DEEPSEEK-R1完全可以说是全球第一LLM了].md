@@ -15008,3 +15008,39 @@ gemini不是不能用中文了吗？
 
 2025-2-2 19:44 上传
 
+
+*****
+
+####  魔灵高达  
+##### 1156#       发表于 2025-2-2 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335216&amp;ptid=2243718" target="_blank">neptunehs 发表于 2025-2-2 19:18</a>
+
+看不到帖子 问一下
+
+open webui有什么不好的地方？</blockquote>
+其实也没什么不好的地方吧，OPEN WEBUI界面挺简洁的，之所以换掉，主要是因为：目前添加新模型要在函数那边加function才能显示思维链，因为是在浏览器里打开，我习惯的用alt+tab切换不管用，要手点标签页。而且如果是从零开始搞又要下载docker又要输入命令行啥的很麻烦，cherry直接exe安装就可以用很简单。
+
+cherry我还在探索，功能还挺丰富。
+
+*****
+
+####  overflowal  
+##### 1157#       发表于 2025-2-2 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335339&amp;ptid=2243718" target="_blank">用户名已注册 发表于 2025-2-2 19:42</a>
+请教下，在深度思考的文字中，出现“根据OpenAI的使用政策”，这是个什么原理。</blockquote>
+因为openAI和chatgpt在语料中大量出现。大量的ai相关内容都会提及openAI和chatgpt。概率太高
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  neptunehs  
+##### 1158#       发表于 2025-2-2 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67335352&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-2 19:47</a>
+其实也没什么不好的地方吧，OPEN WEBUI界面挺简洁的，之所以换掉，主要是因为：目前添加新模型要在函数那 ...</blockquote>
+但rag基本都要docker 结论而言还是要装吧
+
