@@ -9017,3 +9017,36 @@ Ave Mujica 5th LIVE 确定！
 
 以上没有任何依据全是我乱编的
 
+
+*****
+
+####  天空塔书记官  
+##### 17056#       发表于 2025-2-3 16:31
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 16:33 编辑 
+
+艹，怎么发假药后边全变成写女铜了
+
+什么下凡仙女遇上淳朴穷小子(伪)
+
+我对百合其实真没啥兴趣啊啊啊啊啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 17057#       发表于 2025-2-3 16:35
+
+其实都不用看场外和剧内的暗示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就按祥子这个c团解散元凶的定位
+和独角兽最爱的对称性
+祥子被人背叛拆团的概率应该是100%
+
+哪有mygo、c团核心都有被背叛的情节
+而mujica却没有的道理
+

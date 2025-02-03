@@ -874,3 +874,15 @@ OP、ちょこっと参加させていただきました
 —— 来自 鹅球 v3.3.96</blockquote>
 是好事还是坏事
 
+
+*****
+
+####  modedd  
+##### 351#       发表于 2025-2-3 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340007&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-3 16:26</a>
+是好事还是坏事</blockquote>
+取决于你是否认同“没有消息就是好消息”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
