@@ -11674,3 +11674,67 @@ Like father， like daughter
 
 说起来 祥子怎么做到同居这么多天都没让初华发现自己是羽丘学生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杂灰  
+##### 17279#       发表于 2025-2-4 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343036&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-4 02:20</a>
+
+祥p的人生污点是指crychic吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+肯定的，自己一手拉的队伍，违着心来退出结果出口把所有人都伤了一遍，整个团惨烈分解，祥子人生中第一次大失败，母鸡卡1.0就是逃避失败的产物
+
+*****
+
+####  blackeryuri2  
+##### 17280#       发表于 2025-2-4 02:28
+
+crychic解散的真正原因或许还没有揭露
+
+
+*****
+
+####  庸necro  
+##### 17281#       发表于 2025-2-4 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343043&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-4 02:23</a>
+说起来 祥子怎么做到同居这么多天都没让初华发现自己是羽丘学生</blockquote>
+这是绝对不能细想的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 17282#       发表于 2025-2-4 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343038&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-4 02:21</a>
+
+那现在祥子又跑了是不是觉得初华的部分算自己人生污点了，接下来初华还要进暴怒阶段，祥子这下真跑不掉了 ...</blockquote>
+老队友下场基本已经到转折点了，转折完的大女主祥驯服个暴怒初女士应该不成问题
+
+
+*****
+
+####  杂灰  
+##### 17283#       发表于 2025-2-4 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343051&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-2-4 02:28</a>
+
+这是绝对不能细想的问题
+
+—— 来自 鹅球 v3.3.96</blockquote>
+唯一能想到的解释是巡演开始后祥子一直请假赶稿没上过学，校服就没拿出来过
+
+但初女士这连行李箱都没翻过当什么侦探啊
+
+*****
+
+####  carigura  
+##### 17284#       发表于 2025-2-4 02:32
+
+难道立希视角的ccc也会成为剧情一大重点？就差她了
+
