@@ -7335,3 +7335,25 @@ GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度�
 虽然上来配合比较整蛊，但只要继续 ...</blockquote>
 不用指望军团战打下去，主角团这组合水平，在扎古为主的军团战过于鹤立鸡群，也太显眼，按说已经够把紫婆的奇美拉部队招惹来打追击战了。打军团战那就得是吉翁战后把老ACE都裁员了，夏叔把他们一个个找来配个什么组装机体，然后一场场的去送...
 
+
+*****
+
+####  岸浪白野  
+##### 6477#       发表于 2025-2-3 17:17
+
+<img src="https://img.saraba1st.com/forum/202502/03/171644glx3fiqxqa51xlyy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/171656bwl4ibetocm5zm5w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1023.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:16 上传
+
