@@ -973,3 +973,13 @@ OP、ちょこっと参加させていただきました
 
 看完第一集，好经典的展开。堂堂复活！
 
+
+*****
+
+####  PrincessBanana  
+##### 361#       发表于 2025-2-4 02:38
+
+第一集的日常部分和女主吐槽环节还蛮搞笑的，有种看甜梦猫的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
