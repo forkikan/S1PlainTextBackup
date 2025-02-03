@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 132583,
+    "totalreply": 132584,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1738611247,
+    "lastedit": 1738615929,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12303,10 +12303,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 1222,
+    "totalreply": 1223,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1738608608,
+    "lastedit": 1738615931,
     "category": "外野",
     "active": true,
     "update": false
@@ -16601,6 +16601,15 @@
     "newtitle": "[桐谷华这是要彻底告别业界了吗]",
     "lastedit": 1738614128,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2244859": {
+    "totalreply": 41,
+    "title": "[西方世界的车牌样式吊打国内 不服来辩]",
+    "newtitle": "[西方世界的车牌样式吊打国内 不服来辩]",
+    "lastedit": 1738615931,
+    "category": "外野",
     "active": true,
     "update": false
   }
