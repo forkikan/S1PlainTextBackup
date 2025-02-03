@@ -11795,3 +11795,32 @@ crychic解散的真正原因或许还没有揭露
 
 c团对立希来说最大价值就是遇到灯，虽然对祥子有劣等感但在c团时还是挺开心的
 
+
+*****
+
+####  plok201  
+##### 17291#       发表于 2025-2-4 02:47
+
+初华更适合搞个双重人格，要不到时候藏越大，后面复盘越好笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无限舰制  
+##### 17292#       发表于 2025-2-4 02:51
+
+还是记忆不共享的双重人格是吧
+
+你也表演不连续存在？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小博禹  
+##### 17293#       发表于 2025-2-4 02:51
+
+<blockquote>blackeryuri2 发表于 2025-2-4 02:28
+crychic解散的真正原因或许还没有揭露</blockquote>
+真不如怀孕论吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在宁愿相信祥p是怀了偷摸零或者睦子米的孩子才解散的
+

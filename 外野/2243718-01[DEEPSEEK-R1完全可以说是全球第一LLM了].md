@@ -15792,3 +15792,18 @@ chatbox更新了
 好像网页版又炸了</blockquote>
 晚上美国网军上班，等他们下班，白天用
 
+
+*****
+
+####  Pimpoz  
+##### 1222#       发表于 2025-2-4 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336411&amp;ptid=2243718" target="_blank">orecheng 发表于 2025-2-2 22:49</a>
+
+https://pageassist.xyz/
+
+我感觉page assist比这些都强，浏览器装个插件就完了，RAG 联网搜索都有 ...</blockquote>
+我这里怎么一直提示：请在设置&gt;RAG页面设置一个文本嵌入模型
+
+但是点进去又什么都没得选。。。直接空白啊
+
