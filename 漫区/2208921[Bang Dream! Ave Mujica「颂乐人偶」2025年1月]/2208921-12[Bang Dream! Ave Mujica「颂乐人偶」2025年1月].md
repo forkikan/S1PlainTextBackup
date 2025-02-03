@@ -7747,3 +7747,14 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 安心了，睡觉去了</blockquote>
 我勒个究极cp粉
 
+
+*****
+
+####  嵇翱u  
+##### 16951#       发表于 2025-2-3 08:07
+
+之前还有提到四个人瞒着祥子的访谈，考虑到母鸡卡解散以及肉眼可见不会很快重组的现状，估计就是炸团这件事上瞒着祥子了。
+总不可能花了五六集重组之后四个人还有要给祥p表演的大活吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
