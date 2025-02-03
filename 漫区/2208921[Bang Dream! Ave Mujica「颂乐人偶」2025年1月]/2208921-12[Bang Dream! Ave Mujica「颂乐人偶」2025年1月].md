@@ -9802,3 +9802,33 @@ live前要解决一堆问题，睦go和解，睦吉他复健，祥go和解，祥
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17125#       发表于 2025-2-3 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341546&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-3 20:59</a>
+想看初华仨被点爆肯定很dokidoki，小祥啊你也想不到旧恨刚了结新仇就找上门了吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这下孤狼（立希）斗狂犬（初华）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，卧槽，好看
+
+*****
+
+####  影伴光生  
+##### 17126#       发表于 2025-2-3 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339725&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-3 15:40</a>
+第五集有一句路人的，小睦把自己关家里一个月，美奈美酱不知道怎么办好，大概率就是父母不觉得是双重人格， ...</blockquote>
+怎么说呢，我有个哥们儿出身北京书香门第（爹是造船的高工，妈是自动化的教授），他直到把菜刀架脖子上开划才被送去确诊精神疾病
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 17127#       发表于 2025-2-3 21:09
+
+从一开始就担心初华的塑造，怕成邦邦的第一个挂件主唱，看来后面还有活啊。希望能来点和女女关系性无关的，播到现在初华完全就是工作+祥子，来点初华对音乐的独家感受或者理解吧
+

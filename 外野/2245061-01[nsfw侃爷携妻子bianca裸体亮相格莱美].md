@@ -554,3 +554,11 @@ u管动态，他老婆明显不自在的很。
 
 侃爷老婆是建筑学硕士也算高知了吧，果然钱到位什么都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十点半  
+##### 66#       发表于 2025-2-3 21:14
+
+致敬北齐那个典故是吧
+
