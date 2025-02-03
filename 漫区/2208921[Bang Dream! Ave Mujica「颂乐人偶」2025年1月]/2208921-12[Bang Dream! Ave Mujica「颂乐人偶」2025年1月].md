@@ -9050,3 +9050,18 @@ Ave Mujica 5th LIVE 确定！
 哪有mygo、c团核心都有被背叛的情节
 而mujica却没有的道理
 
+
+*****
+
+####  烂片雷达  
+##### 17058#       发表于 2025-2-3 16:40
+
+初华以为睦是祥子于是和睦说了很多私定终身的话，睦回去又把这些话原封不动说给祥子，有点扭曲了<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 17059#       发表于 2025-2-3 16:42
+
+内鬼说的支撑还是来自茜姨说的关于祥子家族的黑暗，因为同样来自声优的不断明示初华身上还藏有秘密算是能坚持到最后假药了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
