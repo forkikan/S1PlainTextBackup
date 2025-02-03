@@ -9661,3 +9661,46 @@ https://b23.tv/yZL0ObO
 
 大概是想发出自己的声音而不是照谱弹的意思，猫猫这种自由过头的吉他可能是她的理想
 
+
+*****
+
+####  595505568  
+##### 17113#       发表于 2025-2-3 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341206&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-3 20:04</a>
+睦的心魔是她自己，她不能让吉他唱歌，然后在ccc越来越严重，最后黑刀之夜她自说自话被其他人误解了。
+
+大 ...</blockquote>
+所以需要先认清自由弹奏就是灵魂的呐喊，完成锻造的第一步，完成融合的第一步；最后一场Live完成灵魂的淬火，把人偶变回人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 17114#       发表于 2025-2-3 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341155&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-3 19:54</a>
+
+假药太搞了吧，你说一个玩乐队的，全员酒厂，玩个乐队，至于吗？</blockquote>
+这个问题在据说柿本看过很多欧美片且资方也没有压制他，独角兽等人实力上做不到完全匹配后，就没救了，所以现在观感很差的原因之一就是柿本对独角兽等人写过题材没有逼数<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 17115#       发表于 2025-2-3 20:12
+
+祥子想复活c团不需要理由吧，从一开始就不想拆，再经历一次ccc的live可以让她重新确认c团确实是有价值的场所
+从go这边的c团姨姥的角度来看，她最需要的就是向老队员坦白c团对自己的意义，可以说老队员最想知道的真相就是这个，基本上老队员的心理阴影就是创始人拆团→怀疑c团的价值→怀疑珍视c团的自己的价值，当初就是不知道这个才会“迷路”，祥子老老实实承认自己喜欢c团才能解决老队员的心理阴影。
+限时复活ccc这个情节本身没什么问题，c团最终必然会定性为对所有老团员都有价值的场所，只是大家已经离开前往别处了。其他老队员早就离开了，只是为了从来没离开过的祥子（可能还有睦）才短暂回来。而真正接受自己对c团感情并正式离开的祥子也会因为确认自己创建的c团是有价值的事物以符合人物内核的方式重拾动力开始往上拐
+
+*****
+
+####  swessia  
+##### 17116#       发表于 2025-2-3 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">live前要解决一堆问题，睦go和解，睦吉他复健，祥go和解，祥睦和解
+
+我觉得这live得到第七集才能端上来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

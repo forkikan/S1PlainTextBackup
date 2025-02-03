@@ -451,3 +451,28 @@ u管动态，他老婆明显不自在的很。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  卷饼大侠  
+##### 54#       发表于 2025-2-3 20:11
+
+搜了下，这哥们是p站的创意总监，2024年创立了kanye por 成n人影片工作室<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+我现在理解他想做什么
+
+*****
+
+####  偶卖糕的  
+##### 55#       发表于 2025-2-3 20:14
+
+真不拿兄弟们当外人啊
+
+
+*****
+
+####  鬼谷ask  
+##### 56#       发表于 2025-2-3 20:16
+
+好厚米<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

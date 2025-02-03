@@ -15723,3 +15723,15 @@ d老师怎么连自己写男人露熊都能撤回，我都没让他搞涩涩他�
 
 后知后觉地发现一件事，除夕爆炸之前的鲸鱼是会给每个对话总结短标题的，爆炸之后就只会复制粘贴对话开头了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hargen2000  
+##### 1215#       发表于 2025-2-3 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341112&amp;ptid=2243718" target="_blank">Kylaier 发表于 2025-2-3 19:45</a>
+后知后觉地发现一件事，除夕爆炸之前的鲸鱼是会给每个对话总结短标题的，爆炸之后就只会复制粘贴对话开头了 ...</blockquote>
+因为是用v3总结的
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
