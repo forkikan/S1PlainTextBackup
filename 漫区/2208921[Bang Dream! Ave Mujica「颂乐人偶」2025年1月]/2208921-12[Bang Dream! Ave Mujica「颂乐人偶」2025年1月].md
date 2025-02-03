@@ -10261,3 +10261,44 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 
 我另外发帖说过，这种东西就是设定混乱，就像是超级系的萝卜动画里一本正经的说不可能存在的东西的现原理一样。
 
+
+*****
+
+####  厚乳果珍爽  
+##### 17165#       发表于 2025-2-3 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342290&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-3 23:01</a>
+
+“哈气”是什么意思？到处都看到有人在用</blockquote>
+哈基米（猫）凶人就是哈气的，用来比喻祥子給别人脸色的动作。
+
+*****
+
+####  嵇翱u  
+##### 17166#       发表于 2025-2-3 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342186&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-3 22:40</a>
+
+初华会出手B站这广告词还不换也挺变态的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+还真别说，地铁cm里初华还有句“我会在母鸡卡待下去”的台词<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17167#       发表于 2025-2-3 23:08
+
+其实只要后面明说是丰川家搭台的话，那关于乐队商业性的矛盾也就没有了，所以还得再看看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ubox  
+##### 17168#       发表于 2025-2-3 23:12
+
+祥子说完祝你幸福之后灯一直问祥子是否幸福，之前还以为是灯电波感的一部分，既然灯祥都是字面意思，看来是作为观众的我理解错了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
