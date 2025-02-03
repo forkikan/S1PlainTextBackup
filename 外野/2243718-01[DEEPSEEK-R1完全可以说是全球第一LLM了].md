@@ -15503,3 +15503,16 @@ cline要think的内容干啥...
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">想用原配和第三方对比下
 但是一直进不去获取不了api密钥
 
+
+*****
+
+####  moeblack  
+##### 1194#         楼主| 发表于 2025-2-3 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338579&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-3 11:58</a>
+
+官方服务器好像好一点了？就是api怎么还是没修好啊
+
+想用原配和第三方对比下</blockquote>
+官方搜索也可以用了<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+

@@ -1266,3 +1266,28 @@ https://www.bilibili.com/video/BV1r2FyeJETi
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Steel.Haze  
+##### 115#       发表于 2025-2-3 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67137208&amp;ptid=2237116" target="_blank">darkking1200 发表于 2025-1-9 14:46</a>
+
+辐射世界观里美国就吞并了加拿大。然后辐射1/2里没怎么说，到了辐射战略版里各种相关事件一大堆。没想到有 ...</blockquote>
+辐射背景里面还真有加拿大游击队反抗占领，不过游击队员被美军抓到，就当街处决示众。
+
+*****
+
+####  YG111  
+##### 116#       发表于 2025-2-3 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338626&amp;ptid=2237116" target="_blank">initium 发表于 2025-2-3 12:08</a>
+
+关键是怎么分辨，护照一撕买个丑国驾照我是加拿大人还是丑国人呢？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">红墨镜：查口音
+
+按这几天ykw驱逐移民的架势。怕是最后就是看着不爽先抓再说
+
