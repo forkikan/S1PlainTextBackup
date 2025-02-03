@@ -15492,3 +15492,14 @@ cline要think的内容干啥...
 设置-管理提示词-添加新提示词-是否作为系统提示词</blockquote>
 行了，多谢了。设置的基本差不多了。我先删掉官网的，没发充值，钱用光就彻底不能用了。
 
+
+*****
+
+####  名居守  
+##### 1193#       发表于 2025-2-3 11:58
+
+官方服务器好像好一点了？就是api怎么还是没修好啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">想用原配和第三方对比下
+但是一直进不去获取不了api密钥
+
