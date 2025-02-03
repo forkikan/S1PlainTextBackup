@@ -674,3 +674,20 @@ OP、ちょこっと参加させていただきました
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">为什么SNS上这么多人都叫我妈妈
 
+
+*****
+
+####  66367749  
+##### 332#       发表于 2025-2-3 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336831&amp;ptid=2208663" target="_blank">DARK_HGCG 发表于 2025-2-2 23:47</a>
+独角兽过来写Q娃了？</blockquote>
+你可别吓唬我，这位还是离远q娃远点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 333#       发表于 2025-2-3 11:15
+
+话说上一个在剧情中当偶像的q娃组合是哪个？抱q的爱美瑠露露？
+

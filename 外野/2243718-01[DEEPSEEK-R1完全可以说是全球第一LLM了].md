@@ -15409,3 +15409,31 @@ page assist 的设置里面左边的openai兼容API里面填网上的API
 怎么回事呢</blockquote>
 全世界都在说中国话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orecheng  
+##### 1185#       发表于 2025-2-3 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338131&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-3 10:51</a>
+
+感谢。我现在能用了。 如果想测试穿甲效果的话是不是在右侧的当前聊天模型设置瞎的临时系统提示添加 穿甲 ...</blockquote>
+设置-管理提示词-添加新提示词-是否作为系统提示词
+
+*****
+
+####  KioShiMa  
+##### 1186#       发表于 2025-2-3 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336006&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-2-2 21:45</a>
+感觉是没余额了，能不能先修充值页面</blockquote>
+不是，你这个是对话列表不对，必须是你一句ai一句交替，有的地方需要删一下
+
+
+*****
+
+####  KioShiMa  
+##### 1187#       发表于 2025-2-3 11:12
+
+一觉起来硅基不输出think了
+

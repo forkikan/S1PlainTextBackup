@@ -7926,3 +7926,51 @@ pop灯与pipi祥
 —— 来自 鹅球 v ...</blockquote>
 不能因为寒蝉烂，所以此类片都是烂。这是逻辑谬误
 
+
+*****
+
+####  哈曼的YY  
+##### 16965#       发表于 2025-2-3 11:07
+
+bd封面海铃拄着个剑一看就是最忠心的
+
+小黄瓜 状况外
+
+三角女士 身不由己
+
+大喵 下大棋
+
+祥老师 光杆司令
+
+<img src="https://img.saraba1st.com/forum/202502/03/110523ce88d7m8n27a2mem.jpg" referrerpolicy="no-referrer">
+
+<strong>GixvhNFasAAS2ux-1.jpg</strong> (85.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 11:05 上传
+
+*****
+
+####  嵇翱u  
+##### 16966#       发表于 2025-2-3 11:10
+
+内鬼说有个好处就是可以圆回来怎么在没有团魂的情况下重组母鸡卡。那就是其他几个人知道真相后都对祥子有愧疚感，所以要重新聚集在祥子身边组建乐队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 16967#       发表于 2025-2-3 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338245&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-3 11:07</a>
+bd封面海铃拄着个剑一看就是最忠心的
+
+小黄瓜 状况外
+
+三角女士 身不由己</blockquote>
+OP里有五把剑插在地上的画面，这样分析没啥意义<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
