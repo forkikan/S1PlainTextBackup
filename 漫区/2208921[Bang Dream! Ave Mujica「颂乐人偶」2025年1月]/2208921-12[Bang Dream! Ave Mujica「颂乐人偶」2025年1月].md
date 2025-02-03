@@ -9282,3 +9282,53 @@ RAS因为资源问题和萝团粉丝反感还有蝶团横插一脚不是差点�
 那你去跟武士道玩烂的每年下滑的财报说去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你说不适用就不适用了，Go和mujica谷子一起烂仓库的时候建议你去帮他们抄底好吧。
 遗毒这话还轮不到不抱团谷不去买live票的人说，人家真情实感和真金白银到你这里遗毒了，太好笑了
 
+
+*****
+
+####  烂片雷达  
+##### 17082#       发表于 2025-2-3 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340901&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 19:00</a>
+那你去跟武士道玩烂的每年下滑的财报说去吧，你说不适用就不适用了，Go和mujica谷子一起烂仓库的时候建议 ...</blockquote>
+那你跟武士道联系看过鸡live的禁止入场狗live吧，买过狗谷的禁止买鸡谷，狠狠养蛊ttk，想必一定营收蒸蒸日上社区一片繁荣吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 17083#       发表于 2025-2-3 19:08
+
+特邀嘉宾不就是曲子后面加（mygo feat. oblivionis）这种事吗 又不是一定要mygo的名义拉进来（
+算了感觉吵这个没意义 因为我觉得拉两个人过来合奏在下一集不太可能发生（如果第6集还是祥子观感下降回）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 17084#       发表于 2025-2-3 19:09
+
+缪
+水←没想到是退回到这里了~
+虹1←mygo在这里
+星1
+虹2
+星2←以为会到这里
+星3
+莲
+鸟
+
+历史真是螺旋循环呀~
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  杂灰  
+##### 17085#       发表于 2025-2-3 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340749&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 18:35</a>
+你台词有歧义，魔法司翻译有歧义，那恐慌是人之常情，人现在回头看爱音和灯的互动比Go里少，已经有恐慌的 ...</blockquote>
+让一个做完快一年的片子去考虑热度已经发酵了一年多群众对角色和cp理解歪到没边的老钟社区的感受是不是太为难人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且从鸡狗整个结构来看灯祥关系基本就是当鸡狗关系性的缩影去塑造的，到现在都拼了命地营造对照感，在一起的时候就是最高规格的cp配置，拆开后就是整个故事的魂，早点意识到跟这种cp碰没有好结果对所有人都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
