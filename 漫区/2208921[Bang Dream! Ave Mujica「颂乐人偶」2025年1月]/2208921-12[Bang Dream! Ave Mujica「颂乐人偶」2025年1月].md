@@ -9119,3 +9119,22 @@ Mujica过于关注了对祥子回归以太（自我死亡）到再造（复活�
 
 不就是你邦知道这年头按正常拍也没指望逆转下坡路于是赌一把，鸡狗剧组放开了拍不就是mggm支持的
 
+
+*****
+
+####  一心而用  
+##### 17066#       发表于 2025-2-3 18:07
+
+<img src="https://p.sda1.dev/21/999f7ca090288e423112d8bcc008b371/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a349baa49c296d32858b552d032ef455/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toki_Ai  
+##### 17067#       发表于 2025-2-3 18:10
+
+正常拍二偶的路线我是想不出来正统如何让中国炮打起来，怕不是落个同年同月幻夜都不如的结局。你不能否认剑走偏锋能让人认知到这部作品，至于下半部炸膛又是另外的故事了。现在连拉拉都要玩青鸟了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
