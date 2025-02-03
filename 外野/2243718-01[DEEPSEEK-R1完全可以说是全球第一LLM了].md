@@ -15516,3 +15516,22 @@ cline要think的内容干啥...
 想用原配和第三方对比下</blockquote>
 官方搜索也可以用了<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 1195#       发表于 2025-2-3 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337391&amp;ptid=2243718" target="_blank">firefatfox 发表于 2025-2-3 03:33</a>
+想让他帮忙写点涉组涉干的网评文章交任务，结果他都是分析一半然后转成“对不起，我还没有学会如何思考这类 ...</blockquote>
+api能写，app做了后置检查的肯定不能给你放出来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  2023-5-15  
+##### 1196#       发表于 2025-2-3 12:28
+
+本人小白请教一个问题，我用网页版ds和chatbox生成的回答里有图片，但图片不能显示，这是什么问题呢？
+

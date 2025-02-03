@@ -8140,3 +8140,54 @@ ccc有三个人是被伤害的啊，而且已经组mygo了。不能用过去的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 16984#       发表于 2025-2-3 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338686&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-3 12:17</a>
+
+我劝爱厨还是趁早都做好心里建设，重新拉mygo的时候咱发现爱音的定位确实就是灯皇的Q，素世回归乐队后，唯 ...</blockquote>
+都令和种命了，这点心理准备起码我是有的<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">，因为种命时候如果说拉克丝还算是和米娅有段对手戏丰富人性，而基拉就几乎成圣的状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 16985#       发表于 2025-2-3 12:29
+
+ 本帖最后由 南宮凝香 于 2025-2-3 12:31 编辑 
+
+素世那還是有點分別的
+
+她是想借屍還魂，
+
+但說白了她之前跟愛音也就普通路人
+
+路人組團合則來，不合則散很正常
+
+第九集愛音破防主因是燈拿不下主意
+
+愛音覺得都在水族館交心了，
+
+現在姐妹也不挺了，那心累不玩很正常
+
+實際上如果燈點頭換海鈴
+
+愛音也沒所謂
+
+所以素世道不道歉對愛音也沒分別，
+
+因為破防點不是她
+
+
+*****
+
+####  iiiiiiiiii  
+##### 16986#       发表于 2025-2-3 12:35
+
+<blockquote>看穿一切的鱼 发表于 2025-2-3 12:22
+姥爷不能让祥老师转回月之森吗，这样爱音远离了大祥，月之森制服大雷祥也回来了。 ...</blockquote>
+
+凭什么回去月之森学校，你看邦多利真有钱人回去读月之森吗？
+
