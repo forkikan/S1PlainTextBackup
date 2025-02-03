@@ -8015,3 +8015,22 @@ OP里有五把剑插在地上的画面，这样分析没啥意义<img src="https
 
 莫非……？
 
+
+*****
+
+####  看穿一切的鱼  
+##### 16972#       发表于 2025-2-3 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338258&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-3 11:10</a>
+内鬼说有个好处就是可以圆回来怎么在没有团魂的情况下重组母鸡卡。那就是其他几个人知道真相后都对祥子有愧 ...</blockquote>
+如果有愧疚想重聚就能聚的话，下两话ccc就该永久复活了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ape-apple  
+##### 16973#       发表于 2025-2-3 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为什么现在都是根据母鸡来判断鸡蛋好不好吃呢，绫圣再润一次你就知道绝望了
+

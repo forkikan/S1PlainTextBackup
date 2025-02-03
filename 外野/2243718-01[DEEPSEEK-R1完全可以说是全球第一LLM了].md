@@ -15437,3 +15437,39 @@ page assist 的设置里面左边的openai兼容API里面填网上的API
 
 一觉起来硅基不输出think了
 
+
+*****
+
+####  qqks  
+##### 1188#       发表于 2025-2-3 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338269&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-3 11:12</a>
+
+一觉起来硅基不输出think了</blockquote>
+api不输出，网页版还可以，不知道在搞啥
+
+*****
+
+####  moeblack  
+##### 1189#         楼主| 发表于 2025-2-3 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338371&amp;ptid=2243718" target="_blank">qqks 发表于 2025-2-3 11:25</a>
+
+api不输出，网页版还可以，不知道在搞啥</blockquote>
+输出的，和Deepseek标准格式一样包裹在Reanson字段里了。
+
+Cherrystudio正常输出。<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qqks  
+##### 1190#       发表于 2025-2-3 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338391&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-3 11:28</a>
+
+输出的，和Deepseek标准格式一样包裹在Reanson字段里了。
+
+Cherrystudio正常输出。 ...</blockquote>
+那怎么在cline里调出来？cline好像什么都不能调
+
