@@ -15149,3 +15149,13 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 2025-2-3 19:54 上传
 
+
+*****
+
+####  starring  
+##### 1470#       发表于 2025-2-3 21:37
+
+【给您拜年啦～！】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV1okP9emEsz/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+大家的发音都准确了很多
+
