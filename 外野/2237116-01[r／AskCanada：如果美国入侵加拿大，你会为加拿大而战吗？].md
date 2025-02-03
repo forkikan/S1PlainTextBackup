@@ -1302,3 +1302,13 @@ https://www.bilibili.com/video/BV1r2FyeJETi
 你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？</blockquote>
 直接清空弹夹，死了就是美国人，没死就是加拿大人
 
+
+*****
+
+####  失业十年  
+##### 118#       发表于 2025-2-3 12:56
+
+阿三VS啊米狗
+
+是时候证明谁是美洲的主人了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
