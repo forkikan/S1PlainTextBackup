@@ -2188,3 +2188,14 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 看了下官网，应该是和前面有一位回复说的一样，第一次开通的时候需要信用卡，之后取消了自动续期可以用余 ...</blockquote>
 这也只是首次支付前需要绑定一下，不需要扣过费就可以点卡支付
 
+
+*****
+
+####  君往何处  
+##### 217#       发表于 2025-2-3 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342004&amp;ptid=2244683" target="_blank">leyenda 发表于 2025-2-3 22:10</a>
+
+这也只是首次支付前需要绑定一下，不需要扣过费就可以点卡支付</blockquote>
+所以我前面的问题就是调整之后这个以前绑的卡还算数吗？不算数的话就要重新绑一个日区的，那就不能直接续费了
+

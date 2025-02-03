@@ -10217,3 +10217,47 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 
 那么没头没尾让爱灯厨爆炸的一句，祥子能无障碍理解，灯祥还是很有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 17161#       发表于 2025-2-3 22:59
+
+爽姐虽然是恶役，但她还没来得及作恶就被大祥飞鸟山了，之后的行为也只是破罐子破摔退队了。第9集立希找海铃来也是动了踢爽姐的念头的，压力灯让她爱音爽姐二选一，只不过灯谁都不选把爱音也拉爆了。爽姐唯一打出真实伤害的只有睦头，鸡动画也让她当妈妈来拉睦头一把算补偿了
+灯祥结局在狗动画已经有了啊，平行线也要一起前进，也算是鸡狗对邦的主题了
+
+*****
+
+####  天空塔书记官  
+##### 17162#       发表于 2025-2-3 23:00
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342196&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-3 22:41</a>
+这个有点扯，我觉得就算丰川家也没有高贵到用影武者的地步
+
+更重要的是，既然如此，现在的影武者是谁，没 ...</blockquote>
+所以仅供娱乐啊，不过第二个假设还蛮有意思的，我觉得比睦是被若叶从丰川家抱走的有意思
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 17163#       发表于 2025-2-3 23:01
+
+“哈气”是什么意思？到处都看到有人在用<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 17164#       发表于 2025-2-3 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342142&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-3 22:34</a>
+
+其实刚才意识到为什么要把经纪人削弱的如此过，因为姑且不论第一话瞄梦的独走，睦宿机在舞台上，经纪人” ...</blockquote>
+[https://www.saraba1st.com/2b/thread-2244777-1-1.html](https://www.saraba1st.com/2b/thread-2244777-1-1.html)
+
+我另外发帖说过，这种东西就是设定混乱，就像是超级系的萝卜动画里一本正经的说不可能存在的东西的现原理一样。
+
