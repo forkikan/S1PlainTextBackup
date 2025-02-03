@@ -15172,3 +15172,11 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1472#       发表于 2025-2-4 02:10
+
+【【双语Full Size】群星Cruising~上海Ver.~】 [https://www.bilibili.com/video/B ... 926aca6fc47660c8687](https://www.bilibili.com/video/BV1jTPdenEcd/?share_source=copy_web&amp;vd_source=d67df09d0cab3926aca6fc47660c8687)
+
