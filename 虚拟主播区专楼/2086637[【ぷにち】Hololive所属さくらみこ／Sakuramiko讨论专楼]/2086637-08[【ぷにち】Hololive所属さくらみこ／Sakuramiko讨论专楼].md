@@ -129,3 +129,24 @@ yin兽*2
 
 2025-2-3 17:31 上传
 
+
+*****
+
+####  holofan  
+##### 10738#       发表于 2025-2-3 17:40
+
+说到晒新PC配置就想到了当年20年买了新PC，玩MC没事就按F3给观众晒配置晒了半年
+
+*****
+
+####  holofan  
+##### 10739#       发表于 2025-2-3 17:43
+
+<img src="https://img.saraba1st.com/forum/202502/03/174319wf9hbtfmf8bffuff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:43 上传
+

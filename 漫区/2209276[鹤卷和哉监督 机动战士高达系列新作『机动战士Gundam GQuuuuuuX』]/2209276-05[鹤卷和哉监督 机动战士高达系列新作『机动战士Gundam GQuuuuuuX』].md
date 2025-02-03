@@ -7376,3 +7376,43 @@ GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 6480#       发表于 2025-2-3 17:42
+
+[X 上的 クドウ98@変形改造：“GQuuuuuuXのOP映像をリークしたぞ！！！！！4枚目は番組後半から色が変わるらしい [url]https://t.co/Y2jOoleTjy](https://x.com/Motormaster98Q/status/1885934390364254504)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/03/174047zrqv1uwf4icipwef.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/174051i3bw9iido9aobe7e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/174120vrf6oq7x8lntjfr3.png" referrerpolicy="no-referrer">
+
+<strong>GCS{KE%`Z[CP17NU~XFP9J0.png</strong> (3.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/174207t7uv5388f758g55w.jpg" referrerpolicy="no-referrer">
+
+<strong>GiwvVUnasAE9P0p.jpg</strong> (504.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:42 上传
+
