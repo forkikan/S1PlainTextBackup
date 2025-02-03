@@ -9452,3 +9452,81 @@ dokidoki， ...</blockquote>
 最多也就前任文學的味道</blockquote>
 对灯内心距离走的最近的是祥，电波对得上，但客观原因无法走下去，这也是为什么这种前任很酸爽
 
+
+*****
+
+####  blackeryuri2  
+##### 17098#       发表于 2025-2-3 19:34
+
+太真了
+
+【假药成真？拯救睦祥！！Mujica风评反转的最后一块拼图！！！【动画杂谈】】[https://www.bilibili.com/video/B ... d247c5e6a9de00e2d9b](https://www.bilibili.com/video/BV1NFF2e8ENA?vd_source=858ef0164bda0d247c5e6a9de00e2d9b)
+
+这个视频评论区下面的
+
+image.png
+(155.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/193301j4azul958t5u859j.png" referrerpolicy="no-referrer">
+
+image.png
+(197.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/193316i5qazdl0ksd5lbrc.png" referrerpolicy="no-referrer">
+
+image.png
+(121.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/193326uetg4pt7fhqnqtra.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackeryuri2  
+##### 17099#       发表于 2025-2-3 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340995&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-3 19:18</a>
+
+mygo积累一年粉丝的发酵已经引入大量厕妹导致饭圈化。mujica只不过引爆罢了，不是wsd要引诱两团爆破，是因 ...</blockquote>
+还有引了电竞圈的神人，味儿太大
+
+*****
+
+####  blackeryuri2  
+##### 17100#       发表于 2025-2-3 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338973&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-2-3 13:07</a>
+
+有个很棒的长视频，铁血高达奥尔加复活c团，也算满足你的要求，主要是真有趣 ...</blockquote>
+okok好饿
+
+*****
+
+####  6030sylar  
+##### 17101#       发表于 2025-2-3 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341064&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-3 19:32</a>
+
+不素，这个真能救睦吗。。。。</blockquote>
+包不能的，睦头是上live就紧张到爆炸，不仅祥子以及其他人能为她一个搞地下乐队吗，显然不太能
+
+
+*****
+
+####  杂灰  
+##### 17102#       发表于 2025-2-3 19:41
+
+我感觉灯祥是分道扬镳后才好吃。故事起点+萍水相逢的天作之合最后分道扬镳意难平配置+两个团故事的中心人物+强镜像的个人命题+各自最初的突破点和转变的推动力，堆料堆得夸张
+感觉好像明白了为什么说像llx了（）
+
