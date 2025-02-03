@@ -10843,3 +10843,130 @@ https://www.saraba1st.com/2b/thread-2244777-1-1.html
 实际上老登并没有限制小登搞乐队？ ...</blockquote>
 有木有可能，妈妈认识爸爸是通过玩乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，姥爷PTSD了，但是这种扭曲的爱有说不出口“我害怕你和你妈妈一样在乐队里找了一个不能托付的男人”（结果全是女的，爆笑了）
 
+
+*****
+
+####  厚乳果珍爽  
+##### 17210#       发表于 2025-2-4 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342611&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-3 23:59</a>
+
+初华垦有东西藏着，这是板上钉钉的。不然绝色的诡异干从何谈起</blockquote>
+万一是真纯怎么办？到时候初华像灯一样，发挥主观能动性，把一个个成员全追回来了怎么办？
+
+*****
+
+####  adretyu67.  
+##### 17211#       发表于 2025-2-4 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342626&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 00:03</a>
+
+有木有可能，妈妈认识爸爸是通过玩乐队，姥爷PTSD了，但是这种扭曲的爱有说不出口“我害怕你和你妈妈一样 ...</blockquote>
+中登的感情生活感觉应该是不会特意再提了。
+
+不过献给母亲的曲子这一要素应该会成为激起大祥老师重拾音乐的原因之一吧。
+
+*****
+
+####  嵇翱u  
+##### 17212#       发表于 2025-2-4 00:09
+
+姥爷ptsd的可能是孙女搞了个全女乐队，这下传宗接代都不行了，丰川也没弦卷家那种科幻技术，这可咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 17213#       发表于 2025-2-4 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342639&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-4 00:07</a>
+
+万一是真纯怎么办？到时候初华像灯一样，发挥主观能动性，把一个个成员全追回来了怎么办？ ...</blockquote>
+不可能，即使不说剧透图里初华那几个表情，迄今为止的初华(表面上)纯得都圣质如初了，跟MyGO的初华简直不是一个人，就跟MyGO前半的Soyo一样，大量镜头暗示甚至明示初华不对劲
+
+
+*****
+
+####  aptx8285144  
+##### 17214#       发表于 2025-2-4 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342586&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-3 23:52</a>
+
+我再说一遍，我认为，作为一个通用原则，不应该把角色身上的负面特质视为一种应当被切除的缺陷。（因为这 ...</blockquote>
+我并非反对”不讨喜“，也并非坚持必须道歉，只是和素世搞事时的隐蔽性相比，<strong>独角兽和柿本在瞄梦时期拙劣太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>，就是把我要搞事这几个字摆在脸上糊在你脸上，然后结果稍微复盘发觉百分之80都是击溃乐队存在顺便婊大祥而去目的上，加上瞄梦解散之后也短时间内顺风顺水，那自然给观众观感和素世时期不可同日而语，而素世哪怕搞事时期还付出了土下坐的代价（虽然这点上实际错的是大祥的自尊心）
+
+瞄梦在观众看来太像一个看上去”很顺“的反面角色，<strong>即使日后反转里面另有内幕，观感和平衡性也没法和素世时候相比，这是独角兽和柿本非要这么写而付出的观感代价</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">（而且瞄梦嘴炮里面的逻辑就有很多问题，大祥竟然经常无法继续反驳，不是祥党的人复盘时都注意到了，这就能看出起码比起素世，官方为了恶化队内气氛或者解散乐队而对瞄梦有更多目的性的偏爱）
+
+*****
+
+####  南宮凝香  
+##### 17215#       发表于 2025-2-4 00:12
+
+<blockquote>玖羽 发表于 2025-2-3 23:52
+我再说一遍，我认为，作为一个通用原则，不应该把角色身上的负面特质视为一种应当被切除的缺陷。（因为这 ...</blockquote>
+負面特質跟負面特質也是不同的，
+
+有些負面特質就是要去掉你才能去愛他
+
+像一個家暴男
+
+他不改過你就去愛他，
+
+除了給世界增加一個受害者外並沒有意義
+
+愛慕虛榮跟集合石踢組團人當然是可以包容的缺點
+
+但去到某程度的爛人
+
+不先改過是不能和解的
+
+*****
+
+####  LeonsCat  
+##### 17216#       发表于 2025-2-4 00:13
+
+ 本帖最后由 LeonsCat 于 2025-2-4 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342607&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-3 23:58</a>
+
+满口流量根本不是严重的问题。
+
+重要的是你要把搞音乐看的比走流量更重要。</blockquote>
+那我就又要问了，这算是把前卫艺术给整体开除滚籍了么？（虽然这都不算太前卫了）
+
+或者说，在乐队演出中加大量的戏剧、诗朗诵甚至电影短片，如果说60年代还算非常先锋的前卫艺术（dei，就是那个摇滚乐刚刚起步，还没有定型的60年代），在21世纪还觉得和“音乐性”敌对，那唯一的理由就是真的认识到自己从头到尾都在做一个迎合资本市场短频快打法的少女偶像团吧。
+
+*****
+
+####  iiiiiiiiii  
+##### 17217#       发表于 2025-2-4 00:13
+
+<img src="https://img.saraba1st.com/forum/202502/04/001227lx7z31wnp4io3zip.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_001111_tv.danmaku.bili.jpg</strong> (88.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/001227dedac4zivd1vdri1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_001046_tv.danmaku.bili.jpg</strong> (87.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 00:12 上传
+
+两个雨伞颜色一致是真没关系吧，两个都是送伞行为。还是说有什么寓意
+
+*****
+
+####  南宮凝香  
+##### 17218#       发表于 2025-2-4 00:15
+
+祥子的一遇逆境就找親近的人出氣 
+
+跟鍵帽的只顧自己獨走都是些要改過的缺點
+
+不是說一聲這是角色特質就能包餃子
+
