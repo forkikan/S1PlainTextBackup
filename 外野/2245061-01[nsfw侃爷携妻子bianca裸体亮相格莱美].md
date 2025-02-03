@@ -538,3 +538,11 @@ u管动态，他老婆明显不自在的很。
 
 这人能处<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bcxzzz  
+##### 64#       发表于 2025-2-3 20:48
+
+他老婆完全被他控制了吧
+
