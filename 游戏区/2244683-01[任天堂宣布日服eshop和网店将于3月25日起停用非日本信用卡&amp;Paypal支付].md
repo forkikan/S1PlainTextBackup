@@ -2081,3 +2081,19 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 所以最可能的……不想做日本以外的手机验证系统？
 
+
+*****
+
+####  oi99o  
+##### 208#         楼主| 发表于 2025-2-3 18:24
+
+ 本帖最后由 oi99o 于 2025-2-3 18:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340226&amp;ptid=2244683" target="_blank">oidoid 发表于 2025-2-3 17:04</a>
+宝可梦中心他这个还没施行，但是说了理由是要导入认证系统，2/28之后要重新登陆支付方式
+
+而且考虑到日本 ...</blockquote>
+信用卡3d认证是跳转到发卡行页面进行短信验证，理论上全球都可以搞，国内主要银行的信用卡应该都支持的。
+我海淘也遇到过几次，不过不是每次都要跳验证，可能是检测到风险才会，不知道pm中心这波以后是不是每笔都要验证。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -7476,3 +7476,12 @@ GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度�
 
 2025-2-3 18:01 上传
 
+
+*****
+
+####  Gysumitka  
+##### 6484#       发表于 2025-2-3 18:32
+
+gqx的第二套操纵系统用的是Arm raker
+<img src="https://p.sda1.dev/21/9ace9d985401227fa6a7d1fa8287f711/image.jpg" referrerpolicy="no-referrer">
+
