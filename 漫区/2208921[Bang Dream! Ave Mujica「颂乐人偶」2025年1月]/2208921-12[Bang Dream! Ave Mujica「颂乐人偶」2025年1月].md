@@ -8507,3 +8507,20 @@ soyo演完诗超绊下来就是边哭边说我可是利用了大家啊，我觉�
 爱素这cp本来也就是观众根据剧中10集往后的两三个有趣小互动脑补的欢喜冤家向cp，而真正剖析内核，两人其实 ...</blockquote>
 论这个是没有意义的，因为公式态度里灯就是go的核心，她的意志很大程度上可以代表这个团乃至成员的走向，但这也造成了一个问题，关系都深等于都不深：就像立希对灯明晃晃的大箭头不影响观众爱吃海希知己和爱希冤家，猫是被灯吸引来的甚至手游猫希活聊灯也不影响观众吃猫希，爱素那个不退出戏经过广播剧补丁之后就是这两人之间的东西，写出来怎么表达怎么理解是一回事情，受众喜不喜欢是另一回事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烂片雷达  
+##### 17012#       发表于 2025-2-3 14:38
+
+灯的翅膀打结这种关系也不是不能嗑，关系性太多了，共犯关系，欢喜冤家，同一理想的战友，渴求彼此身体的肉体关系，关系性太多了，根本嗑不完<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+撩头发的含金量，仅次于素睦抱抱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 17013#       发表于 2025-2-3 14:40
+
+还是你楼不能把自己大脑降级到厕妹水平的问题，先降级先享受，车那么多楼累不累<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

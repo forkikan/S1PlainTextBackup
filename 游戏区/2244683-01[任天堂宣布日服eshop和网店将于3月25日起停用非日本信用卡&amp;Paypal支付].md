@@ -2018,3 +2018,19 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 日亚可以直接买数字版游戏吧
 
+
+*****
+
+####  oidoid  
+##### 203#       发表于 2025-2-3 14:40
+
+可能找到这次动作的原因了，日本政府的问题
+<img src="https://www.z4a.net/images/2025/02/03/QQ20250203143733.jpg" referrerpolicy="no-referrer">
+
+日本政府吹风4月开始在线支付必须本人认证，海外支付手段没法过本人验证直接都ban了
+<img src="https://www.z4a.net/images/2025/02/03/QQ20250203143744.jpg" referrerpolicy="no-referrer">
+
+宝可梦中心现在卡也得本人认证
+
+挺傻逼的。
+
