@@ -9378,3 +9378,77 @@ RAS因为资源问题和萝团粉丝反感还有蝶团横插一脚不是差点�
 
 mygo积累一年粉丝的发酵已经引入大量厕妹导致饭圈化。mujica只不过引爆罢了，不是wsd要引诱两团爆破，是因为厕妹精神不稳定。总的来说是吃白饭又没事干的原因。特别是贴吧这种太容易积累饭圈毒唯，自己推哪个就建个吧搞个信息茧房，然后像邪教一样症候群，最后党同伐异。不过我还是想说看个纸片人闹麻了
 
+
+*****
+
+####  iiiiiiiiii  
+##### 17090#       发表于 2025-2-3 19:25
+
+反正你看那些角色个人贴吧，一股厕妹味道直冲而来。还是呆在S1算了
+
+*****
+
+####  烂片雷达  
+##### 17091#       发表于 2025-2-3 19:25
+
+已知狗live没有演奏过春日影，鸡live也没有演奏过春日影，那么这首歌将会在什么场合当杀手锏呢
+dokidoki，不知道有没有烟花看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 17092#       发表于 2025-2-3 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341032&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-3 19:25</a>
+
+已知狗live没有演奏过春日影，鸡live也没有演奏过春日影，那么这首歌将会在什么场合当杀手锏呢
+
+dokidoki， ...</blockquote>
+治疗睦的心理疾病的时候<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 17093#       发表于 2025-2-3 19:29
+
+真演奏春日影包炸的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  iiiiiiiiii  
+##### 17094#       发表于 2025-2-3 19:30
+
+我猜一波第六集剧情发展。第六集Apart是重组CCC，然后演奏救睦引来路人围观。B part初华看到CCC引起轰动惊慌失措，然后闪回介绍初华小时候时期。
+
+
+*****
+
+####  山ノ内花音  
+##### 17095#       发表于 2025-2-3 19:31
+
+第七集ccc的live估计真要神回了
+
+*****
+
+####  ntrntr1  
+##### 17096#       发表于 2025-2-3 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341048&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-3 19:30</a>
+
+我猜一波第六集剧情发展。第六集Apart是重组CCC，然后演奏救睦引来路人围观。B part初华看到CCC引起轰动惊 ...</blockquote>
+不素，这个真能救睦吗。。。。
+
+*****
+
+####  sauron.j  
+##### 17097#       发表于 2025-2-3 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340983&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-3 19:16</a>
+
+燈祥的問題是不好吃
+
+最多也就前任文學的味道</blockquote>
+对灯内心距离走的最近的是祥，电波对得上，但客观原因无法走下去，这也是为什么这种前任很酸爽
+
