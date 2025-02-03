@@ -513,3 +513,20 @@ u管动态，他老婆明显不自在的很。
 
 给了多少啊这是，他老婆家也不是穷人啊
 
+
+*****
+
+####  无攻不受鹿  
+##### 61#       发表于 2025-2-3 20:36
+
+客观的说，侃爷这人真的能处<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  maecena  
+##### 62#       发表于 2025-2-3 20:37
+
+按他第二故乡话讲：屌得一比
+
