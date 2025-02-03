@@ -581,3 +581,20 @@ u管动态，他老婆明显不自在的很。
  ...</blockquote>
 有啊，某管上面的视频第一条评论就是说侃爷为什么自己不露的。
 
+
+*****
+
+####  24k纯帅  
+##### 69#       发表于 2025-2-3 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339872&amp;ptid=2245061" target="_blank">猫咪挠墙 发表于 2025-2-3 16:07</a>
+u管动态，他老婆明显不自在的很。</blockquote>
+她要是很自在，侃爷就没有乐趣了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 70#       发表于 2025-2-3 21:30
+
+侃爷这是开源老婆？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
