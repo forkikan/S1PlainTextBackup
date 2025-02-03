@@ -10104,3 +10104,76 @@ mujica第七话go团演到一半灯拉祥子soyo拉木头人上台演奏春日�
 我知道劇本裡祥是好人</blockquote>
 所以之前有人直接吐槽大祥是欺软怕硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Besthounddog  
+##### 17151#       发表于 2025-2-3 22:37
+
+nga看的那个初华是老登私生女那个假药有点意思。
+可惜bangdream游戏不太可能出现这种角色吧
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  玖羽  
+##### 17152#       发表于 2025-2-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339078&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 13:25</a>
+
+爱音也没什么资格接受素世道歉，因为她一开始组乐队的目的只是为了社交娱乐，她也利用了素世，而且这种轻浮 ...</blockquote>
+爱音只有初衷轻浮，发现灯很重之后就不轻浮了
+
+灯第一次要所有人发誓一辈子的时候，爱音说一辈子很长，抗拒发誓，这本身就是不轻浮的表现（背后的逻辑是：只要发誓就是一辈子），否则可以当场随口发誓糊弄灯
+
+当场随口发誓的反而是Soyo
+
+*****
+
+####  aptx8285144  
+##### 17153#       发表于 2025-2-3 22:39
+
+不过以后就算真得破镜重圆了，不知道会不强化经纪人和资方的存在感，不强化基本等于还是把乐队维系在团队个人关系上（为目的而服务，需要时拉出来，不需要时候直接当空气），如果还是想搞商业乐队那还是有点危险<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 17154#       发表于 2025-2-3 22:40
+
+初华会出手<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">B站这广告词还不换也挺变态的<img src="https://p.sda1.dev/21/06688bcc78d26bd281184cfcb24922bf/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 17155#       发表于 2025-2-3 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339999&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 16:25</a>
+
+好，那就以“影舞者”为引子，让我们来做假药，以下仅为娱乐发散，切勿当真
+
+首先是祥睦的部分，“被遗弃的 ...</blockquote>
+这个有点扯<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，我觉得就算丰川家也没有高贵到用影武者的地步
+
+更重要的是，既然如此，现在的影武者是谁，没理由只有小孩才用影武者
+
+
+*****
+
+####  adretyu67.  
+##### 17156#       发表于 2025-2-3 22:43
+
+被讨论搞得好奇的看了一下。
+
+大致肯定了自己之前的想法。
+
+mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的事。
+
+至于为什么要玩音乐非得加一堆人设当演员进去（虽然搞乐队这挺正常的），得问组团的那位了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+
+墨提斯感觉不像是一个独立的人格，更像是在模拟其他人行动方式，演技部分应该是模仿她妈，只不过最关键的弹吉他没模仿到就尴尬了。
+
+感觉重心最后还是会回到搞音乐上，不是解决了问题才能搞乐队，而是搞乐队才是解决问题。
+
