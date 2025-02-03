@@ -8406,3 +8406,23 @@ Ctrl + F +“黄瓜”网页搜索
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 17003#       发表于 2025-2-3 14:14
+
+已知A团最后会是一支一辈子乐队，喵梦注定要为这个乐团打一辈子鼓，那为什么还会有那么多观众记恨于她，甚至都不是睦党，祥党有什么资格，只因为喵梦毁了臆想中不存在的大女主祥子吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 17004#       发表于 2025-2-3 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">阴谋论内鬼问题就是背面的信息太多，如果这东西在动画表面的铺垫不够多的话。除了救救人设之外其实观感也不会好到哪去。
+这东西最大问题还是独角兽，我不信她能写的好，毕竟在自己的舒适区外面疯狂蹦迪。实际现在很少人往这方面想就已经是败笔了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

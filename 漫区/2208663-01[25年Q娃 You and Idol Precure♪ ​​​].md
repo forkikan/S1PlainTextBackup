@@ -757,3 +757,22 @@ OP、ちょこっと参加させていただきました
 初代偶活好像就有她</blockquote>
 这俩年的烂活，让我对这人没有信心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 340#       发表于 2025-2-3 14:07
+
+<blockquote>66367749 发表于 2025-2-3 13:12
+这俩年的烂活，让我对这人没有信心</blockquote>
+比如有哪些
+
+*****
+
+####  帝下室の年糕  
+##### 341#       发表于 2025-2-3 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339005&amp;ptid=2208663" target="_blank">66367749 发表于 2025-2-3 13:12</a>
+这俩年的烂活，让我对这人没有信心</blockquote>
+什么烂活，再烂烂得过这几年的Q娃？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
