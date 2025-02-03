@@ -7121,3 +7121,16 @@ NT嘛，要相信很容易，但是鸭子年轻的时候比较中二，谁都不
 
 不过我感觉兰巴在吉翁还是会被排挤的存在，可能真得还在开老虎。
 
+
+*****
+
+####  纪寞  
+##### 6459#       发表于 2025-2-3 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339543&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-2-3 14:55</a>
+
+兰巴虽然是OT，但是直觉非常敏锐，如果红高达有夏亚，那么他大概率能觉察到。
+
+不过我感觉兰巴在吉翁还是会 ...</blockquote>
+85年还开老虎这是直接叫他送死了，多少给台大魔吧（
+
