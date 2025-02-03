@@ -9168,3 +9168,72 @@ Mujica过于关注了对祥子回归以太（自我死亡）到再造（复活�
 
 想要让祥子玩乐队和跟mygo一辈子本身不是没有矛盾吗，海铃都能兼三十支<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 17071#       发表于 2025-2-3 18:34
+
+ 本帖最后由 ape-apple 于 2025-2-3 18:38 编辑 
+
+不好意思，灯的意志是鸡狗世界的底层逻辑，灯说太阳从西边升那就是从西边，接下来不管是mygo迎接新队员还是C团限时复辟都是正确的，别问为什么，用心感受
+
+“去组乐队吧”也是一厢情愿的想法，翻译成“来组乐队吧”很正常，反正就是看第六集怎么解释。wsd的正道少女乐队不是没火过，但是mygo是靠着邪道火起来的，想再火一次只能拼了
+
+*****
+
+####  595505568  
+##### 17072#       发表于 2025-2-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340737&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-3 18:33</a>
+想要让祥子玩乐队和跟mygo一辈子本身不是没有矛盾吗，海铃都能兼三十支</blockquote>
+你台词有歧义，魔法司翻译有歧义，那恐慌是人之常情，人现在回头看爱音和灯的互动比Go里少，已经有恐慌的基础了，外加独角兽以前干的事情也被翻出来…我只能说恐慌基础在那里你咋办吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，烂炒麻了
+
+*****
+
+####  DeltaStriker  
+##### 17073#       发表于 2025-2-3 18:37
+
+加一两个一次性特邀嘉宾很难接受吗 我觉得就算灯犹豫重组的事 soyo和立希也不会同意
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 17074#       发表于 2025-2-3 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340737&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-3 18:33</a>
+想要让祥子玩乐队和跟mygo一辈子本身不是没有矛盾吗，海铃都能兼三十支</blockquote>
+还有海玲和第二季的Otae一样应该是支援贝斯手兼岗吧，独角兽自己说的少女乐队组建和家庭与恋爱一样的，总不能这个时候不作数了（
+
+*****
+
+####  山ノ内花音  
+##### 17075#       发表于 2025-2-3 18:38
+
+第七集不会是crychic的live吧
+
+
+*****
+
+####  烂片雷达  
+##### 17076#       发表于 2025-2-3 18:41
+
+闹麻了，希望以后鸡狗成员互相串门多来点成员互换狠狠重创这些单团毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+什么时候才能明白不管是狗动画还是鸡动画都是十个人的动画不是五个人的动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17077#       发表于 2025-2-3 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340757&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-3 18:37</a>
+加一两个一次性特邀嘉宾很难接受吗 我觉得就算灯犹豫重组的事 soyo和立希也不会同意
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+Lock当年怎么拒绝KSM的（
+说明当年就有临时加入都不可接受的
+“只有这五个人”才是PPP，这是独角兽自己当年借lock的嘴巴说出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我现在想问了这个只有只能这五个人这个当年强调的东西可以不作数吗，那我投降了
+
