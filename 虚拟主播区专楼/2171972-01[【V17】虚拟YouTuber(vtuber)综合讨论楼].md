@@ -22,3 +22,13 @@
 
 7周年这个全社统一发，口了的真的是本人发的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 1003#       发表于 2025-2-3 14:21
+
+应该都是本人发，没发的基本可以视为人没了（比如小夜
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

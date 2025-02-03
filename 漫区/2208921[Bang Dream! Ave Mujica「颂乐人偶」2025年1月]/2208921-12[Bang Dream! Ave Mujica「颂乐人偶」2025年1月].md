@@ -8426,3 +8426,49 @@ Ctrl + F +“黄瓜”网页搜索
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  厄神之息  
+##### 17005#       发表于 2025-2-3 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">爱素这cp本来也就是观众根据剧中10集往后的两三个有趣小互动脑补的欢喜冤家向cp，而真正剖析内核，两人其实都是被灯“即使迷茫也要在一起共同向前”理念吸引凑在一起的小团队的一份子，爱音追回素世本质是“为了灯的理念可以不在意过去，去拉下脸当这个没心没肺的厚脸皮。”在11集俩人临分别前爱音喊的“soyorin也别退出”很多人喜欢但拎这一句说他俩的cp感，但是完完全全忽视俩人这一段前面全都在讨论灯，结合前文来看，这句话爱音的意思是“为了灯的理念我可以不计前嫌接纳你，你可千万别再跑了啊！”重点在于为了乐队为了灯，但是很多人把这段的重点放在了原谅。
+
+素世就更不用说了，她归队本质是被灯在live后的那番话击沉了，找到了接纳真正自己的地方，而不是爱音跑到她公寓去激将。之后也是再三确认了灯的心意，包括11集和爱音的谈话，13集跟灯说“我一辈子忘不了ccc”确认了灯是和自己一样思念的人，mygo是真正能接纳自己全部的地方才留下。爱素在剧里的感情就怕不是只有为了同一目标冰释前嫌后的普通朋友这样而已。
+
+草，这么一回顾爱音好像在mygo里就已经是灯皇的钩子定位了，也不存在母鸡卡才成了灯皇的钩子这一说。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 17006#       发表于 2025-2-3 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339340&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 14:14</a>
+已知A团最后会是一支一辈子乐队，喵梦注定要为这个乐团打一辈子鼓，那为什么还会有那么多观众记恨于她，甚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几天了还在专楼发癫，出去走走摸摸草吧，喵圣洗不洗对这部动画已经不重要了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 17007#       发表于 2025-2-3 14:25
+
+扯爱素那点老黄历都是不磕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时我看我也理解不了怎么就爱出风头和借尸还魂等位了，但其实如果灯中心制把她们的对谈视为对灯的虚空忏悔那就是等位了。
+
+爱素的磕点就在于即使如此，mygo仍然是由她俩开启的故事，素能在go里去夹子化，go团存续一日爱始终是灯的现任
+
+*****
+
+####  天空塔书记官  
+##### 17008#       发表于 2025-2-3 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339360&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-3 14:20</a>
+几天了还在专楼发癫，出去走走摸摸草吧，喵圣洗不洗对这部动画已经不重要了。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我可没发癫，只是有人还是回旋镖、抽陀螺、车喵梦三件套而已，我觉得他们才是真的爱喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
