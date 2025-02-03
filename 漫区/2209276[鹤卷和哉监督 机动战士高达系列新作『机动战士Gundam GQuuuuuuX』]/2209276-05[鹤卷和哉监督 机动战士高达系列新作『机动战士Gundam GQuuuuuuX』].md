@@ -7416,3 +7416,39 @@ GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度�
 
 2025-2-3 17:42 上传
 
+
+*****
+
+####  岸浪白野  
+##### 6481#       发表于 2025-2-3 17:47
+
+[X 上的 サテー@聖牌/OAF：“（コモリ・ハーコート少尉はイイゾ…のｒｋｇｋ）#GQuuuuuuX [url]https://t.co/F4Z8O6gOcs](https://x.com/syatey_12/status/1886324241257402850)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/03/174527jab0baw6a16wnrla.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (856.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:45 上传
+
+[X 上的 六坂日南：“赤いバージョン #GQuuuuuuX #ジークアクス [url]https://t.co/fSoPATPVdv](https://x.com/HaruMusaka/status/1886067202492899722)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/03/174705gnb8jjhzomtkagnt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:47 上传
+
+[X 上的 錆々【さびさび】：“赤のおじさんと緑のおじさん (雑ですみません、どうしてもコレが頭から離れなかったんです) #GQuuuuuuX #ジークアクス [url]https://t.co/j9BzvYI9jh](https://x.com/Sabi_Sabi1234/status/1886045208510673064)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/03/174738cbububb9upowup9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:47 上传
+

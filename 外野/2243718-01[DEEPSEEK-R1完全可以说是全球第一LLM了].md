@@ -15649,3 +15649,16 @@ chatbox能调出来吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 d老师怎么连自己写男人露熊都能撤回，我都没让他搞涩涩他就自己写了一段男人露熊剧情就被撤回了，一切来得太过突然<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  怀沙汨罗  
+##### 1208#       发表于 2025-2-3 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339139&amp;ptid=2243718" target="_blank">hyde_caesar 发表于 2025-2-3 13:35</a>
+如果你是静态的背景，可以，知识库就是干这个的。
+如果需要根据人物卡片来动态强化的话需要走prompt把人 ...</blockquote>
+第二点不太明白，意思是还得换一个模型吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
