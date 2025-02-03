@@ -10592,3 +10592,107 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 回到我的那个“影舞者”猜想，搞不好以前应付公关的一直都是睦，所以祥子习惯性地都推给她了 ? 还是有点太 ...</blockquote>
 不合常理吧，她俩一个肯定经常一起和爸妈出镜，但是集团大小姐没有刚性的采访需求啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 17189#       发表于 2025-2-3 23:37
+
+还有别忘了。第二话里很多采访工作是初华的，但是初华“忙”所以给了睦…也就是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，结合之前还有一个sumimi的mana在准备单人工作的情况下，初华的工作是有意被经纪人强加上去的，为了把睦逼崩掉，解决掉摇摆的保队派
+
+*****
+
+####  天空塔书记官  
+##### 17190#       发表于 2025-2-3 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342500&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 23:35</a>
+不合常理吧，她俩一个肯定经常一起和爸妈出镜，但是集团大小姐没有刚性的采访需求啊 ...</blockquote>
+现在没有，不说明以前没有，我还是觉得小时候的祥子和睦的关系可能和现在是完全不一样的，她们之间有什么东西被改变过<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17191#       发表于 2025-2-3 23:39
+
+那乐队训练场所是地下室也适合内鬼和若叶家复盘进度的同时，监控祥子的状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+同时会议室里可能初华给美奈美发了消息，请美奈美按照说好的立即打电话，可能爱音发消息后立希立即打电话那段是个暗示<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 17192#       发表于 2025-2-3 23:40
+
+lyy：
+<img src="https://p.sda1.dev/21/52b6f62dae32e718f8cb297138fbf2d5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7e20a1978514abf55787034f8f046f28/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4c2175db074ca52462597825a35c4d98/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3ff0df41586d7115777f9928ee8a6b62/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17193#       发表于 2025-2-3 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342527&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:38</a>
+现在没有，不说明以前没有，我还是觉得小时候的祥子和睦的关系可能和现在是完全不一样的，她们之间有什么 ...</blockquote>
+主要是华族小孩很少出现在其他地方，但是有可能的部份参考圣母在上，应该是有夏季/冬季的华族/老钱/新贵的一些晚宴和老一辈生日宴这种的地方要出场，那睦大概是要负责给可能说漏嘴的祥子当社交嘴替的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17194#       发表于 2025-2-3 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342543&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 23:40</a>
+主要是华族小孩很少出现在其他地方，但是有可能的部份参考圣母在上，应该是有夏季/冬季的华族/老钱/新贵 ...</blockquote>
+所以“睦以前更能说”…<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  无限舰制  
+##### 17195#       发表于 2025-2-3 23:44
+
+睦头又不是一直沉默寡言那个样子
+
+🐘见过开朗的时候吧
+
+要不然也不会吐槽对方怎么不自己表达了
+
+*****
+
+####  小博禹  
+##### 17196#       发表于 2025-2-3 23:44
+
+ 本帖最后由 小博禹 于 2025-2-3 23:46 编辑 
+
+对祥来说睦头是好用的，对睦来说小祥是亲密的半身、人生的归宿，双方的情感倾向太不对等了，这也是睦头自杀、祥子不闻不问的根源吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 17197#       发表于 2025-2-3 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342546&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:41</a>
+
+所以“睦以前更能说”…
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这个也能这么样解释，以前跟父母上节目的时候，睦还是一个很开朗话多的角色，后来节目上多了，睦也懂事了，就发现所谓的“能说”不过是父母来的“恩赐”，所以自己决定封印了这个，就变得不爱说话了。
+
+*****
+
+####  adretyu67.  
+##### 17198#       发表于 2025-2-3 23:45
+
+媒体采访压力其实最早应该是没有那么大的。所以其实分给木头人倒没有想象那么严重。
+
+鸡团在掀面具前是按照设定走的人偶。如果不是掀面具就不会有那么多转进到父母演员的话题。
+
+但是越是走商业化观众对演员隐私的窥探兴趣就越是强烈，只能说是从半年炸团快速推进到了一个月炸团这个的速度。
+

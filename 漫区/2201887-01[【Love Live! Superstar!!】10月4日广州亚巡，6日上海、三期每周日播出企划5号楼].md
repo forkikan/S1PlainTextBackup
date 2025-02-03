@@ -15159,3 +15159,16 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 大家的发音都准确了很多
 
+
+*****
+
+####  csolfans  
+##### 1471#       发表于 2025-2-3 23:40
+
+ 本帖最后由 csolfans 于 2025-2-3 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341790&amp;ptid=2201887" target="_blank">starring 发表于 2025-2-3 21:37</a>
+【给您拜年啦～！】 https://www.bilibili.com/video/BV1okP9emEsz/?share_source=copy_web&amp;vd_source=2cc7 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我还以为今年不会有了，哈哈哈哈惊喜啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -7569,3 +7569,13 @@ X上的Kare @0621utak
 G9世界线应该没有兹玛德和吉翁尼克合并的触机
 那两者应该还是竞争关系，兹玛德的强人和吉翁尼克的敢达应该不会有关系
 
+
+*****
+
+####  57042711  
+##### 6492#       发表于 2025-2-3 23:42
+
+总帅要真的穿越过来了铁定暗中行动的啦…这样寻找新的道路应该会更加方便吧，直接用库瓦托罗身份加入阿纳海姆两边一起算计！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

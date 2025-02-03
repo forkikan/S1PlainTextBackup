@@ -684,3 +684,24 @@ u管动态，他老婆明显不自在的很。</blockquote>
 
 牢美文化包容性就是强，这要搁老中不得抓起来判个猥亵罪什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alarmAll  
+##### 80#       发表于 2025-2-3 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339786&amp;ptid=2245061" target="_blank">Jet.Black 发表于 2025-2-3 15:52</a>
+
+他老婆咋想的，是不是精神也有点问题？
+
+实事求是，身材还是挺好的，扔子很圆 ...</blockquote>
+他老婆甚至还是个的墨尔本大学的建筑硕士，只能说有钱真好，或者说双方xp对上了
+
+
+*****
+
+####  地刺  
+##### 81#       发表于 2025-2-3 23:41
+
+我们和他老婆都是他play的一环  甚至可以说谁脱不重要 这女人只是他行为艺术的一个衣架
+
