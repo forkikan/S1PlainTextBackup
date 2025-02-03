@@ -7758,3 +7758,27 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  南宮凝香  
+##### 16952#       发表于 2025-2-3 09:33
+
+ 本帖最后由 南宮凝香 于 2025-2-3 09:35 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/03/093205xhhzo15r5rta53t5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5657.jpeg</strong> (277.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 09:32 上传
+
+最好的六人
+
+燈皇雙翼+背後的女人
+
+史上最狂的樂隊番將突破邦邦祖制
+
+成立六人樂隊！
+
