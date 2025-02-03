@@ -369,3 +369,11 @@ u管动态，他老婆明显不自在的很。
  ...</blockquote>
 因为他“白命贵”“喜欢洗头佬”都能说出来，女权已经上不了桌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吐梦  
+##### 45#       发表于 2025-2-3 18:52
+
+看过一篇公众号文，侃爷会安排老婆的一切衣着行头，他老婆没有任何穿衣自由<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

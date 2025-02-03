@@ -9237,3 +9237,22 @@ Lock当年怎么拒绝KSM的（
 “只有这五个人”才是PPP，这是独角兽自己当年借lock的嘴巴说出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我现在想问了这个只有只能这五个人这个当年强调的东西可以不作数吗，那我投降了
 
+
+*****
+
+####  595505568  
+##### 17078#       发表于 2025-2-3 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340781&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-3 18:41</a>
+闹麻了，希望以后鸡狗成员互相串门多来点成员互换狠狠重创这些单团毒唯
+什么时候才能明白不管是狗动画还是 ...</blockquote>
+单团毒唯去买高价Live票，抱盒团谷子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，创死他们你以后主要的线下部份收入还要不要了，wsd这是直接加速死亡了，你恶心人爽完了到时候单曲没人买 CD没人买 谷子卖不出去？这2.5次元商业企划能这么儿戏吗。
+RAS因为资源问题和萝团粉丝反感还有蝶团横插一脚不是差点起不来吗，不能无所谓的吧
+
+*****
+
+####  ape-apple  
+##### 17079#       发表于 2025-2-3 18:48
+
+商法就是要养毒唯养忠粉啊，wsd给双R团都玩过届了，养的太狠打得头破血流，你好我好怎么爆米？
+
