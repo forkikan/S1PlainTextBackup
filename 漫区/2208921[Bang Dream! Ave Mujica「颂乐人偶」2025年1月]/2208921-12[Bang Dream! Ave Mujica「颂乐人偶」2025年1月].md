@@ -7792,3 +7792,27 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  烂片雷达  
+##### 16954#       发表于 2025-2-3 09:54
+
+木子米和素世双向暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yy19  
+##### 16955#       发表于 2025-2-3 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337300&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-3 02:16</a>
+
+太高看初华了，初华要是有占有欲和嫉妒心的话早就没其他人什么事了
+
+初华是针对祥子一个人的圣人，要是看到 ...</blockquote>
+爱音爱着人类。
+
+初华爱着祥子！←NOW
+
+我以前以为夸张了。现在…不是，姐们，你们玩真的啊？
+

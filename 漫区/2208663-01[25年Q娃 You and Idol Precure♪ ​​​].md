@@ -666,3 +666,11 @@ OP、ちょこっと参加させていただきました
 
 今年的蓝色的额头好棒。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  キュアアイドル  
+##### 331#       发表于 2025-2-3 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">为什么SNS上这么多人都叫我妈妈
+
