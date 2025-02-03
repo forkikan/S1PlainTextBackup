@@ -10177,3 +10177,43 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 
 感觉重心最后还是会回到搞音乐上，不是解决了问题才能搞乐队，而是搞乐队才是解决问题。
 
+
+*****
+
+####  wzm96816  
+##### 17157#       发表于 2025-2-3 22:46
+
+不过即使叛徒假药是错的，至少视频有一点说的是对的。
+
+那就是鸡狗的台词对偶，甚至把大三角和路灯整进去了，有些镜头和台词就是设计好的。
+
+*****
+
+####  aptx8285144  
+##### 17158#       发表于 2025-2-3 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342166&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-3 22:37</a>
+
+爱音只有初衷轻浮，发现灯很重之后就不轻浮了
+
+灯第一次要所有人发誓一辈子的时候，爱音说一辈子很长，抗 ...</blockquote>
+补的时候还真没有注意到，素世确实不愧是学校第一女特工<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楚暮秦朝  
+##### 17159#       发表于 2025-2-3 22:51
+
+大象🐘表面哈气，实际上高松灯塞得小纸条都偷偷拿回家去，估计晚上对着小纸条哭
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 17160#       发表于 2025-2-3 22:52
+
+又去听了一遍地铁cm，祥子有句软糯的“你是想说玩乐队就可以获得幸福吗”显然就是对应第五集结尾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那么没头没尾让爱灯厨爆炸的一句，祥子能无障碍理解，灯祥还是很有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

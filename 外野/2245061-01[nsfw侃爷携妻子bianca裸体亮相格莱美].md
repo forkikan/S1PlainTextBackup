@@ -598,3 +598,13 @@ u管动态，他老婆明显不自在的很。</blockquote>
 
 侃爷这是开源老婆？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Abba-il-Aeons  
+##### 71#       发表于 2025-2-3 22:51
+
+<blockquote>我在干什么啊 发表于 2025-2-3 18:40
+懒妮teen pop偶像出道，加上当时打造的是清纯玉女的人设，虽然是人设，但很多人是真信了这套，后面转性感 ...</blockquote>
+布兰妮童贞都在出道前被拿走了。。。嘛不过娱乐圈本来就是一般黑
+
