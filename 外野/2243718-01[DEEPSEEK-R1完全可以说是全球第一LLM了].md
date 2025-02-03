@@ -15746,3 +15746,22 @@ d老师怎么连自己写男人露熊都能撤回，我都没让他搞涩涩他�
 chatbox能调出来吗</blockquote>
 chatbox更新了
 
+
+*****
+
+####  moeblack  
+##### 1217#         楼主| 发表于 2025-2-3 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341112&amp;ptid=2243718" target="_blank">Kylaier 发表于 2025-2-3 19:45</a>
+后知后觉地发现一件事，除夕爆炸之前的鲸鱼是会给每个对话总结短标题的，爆炸之后就只会复制粘贴对话开头了 ...</blockquote>
+减负
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zy450  
+##### 1218#       发表于 2025-2-3 22:14
+
+好像网页版又炸了
+

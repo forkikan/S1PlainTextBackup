@@ -2177,3 +2177,14 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 [https://support.nintendo.com/jp/ ... itch_online/02.html](https://support.nintendo.com/jp/switch/nintendo_switch_online/02.html)
 
+
+*****
+
+####  leyenda  
+##### 216#       发表于 2025-2-3 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341919&amp;ptid=2244683" target="_blank">君往何处 发表于 2025-2-3 21:56</a>
+
+看了下官网，应该是和前面有一位回复说的一样，第一次开通的时候需要信用卡，之后取消了自动续期可以用余 ...</blockquote>
+这也只是首次支付前需要绑定一下，不需要扣过费就可以点卡支付
+
