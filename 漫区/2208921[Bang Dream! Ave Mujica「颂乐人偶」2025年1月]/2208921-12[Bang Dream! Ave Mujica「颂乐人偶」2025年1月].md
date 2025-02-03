@@ -10055,3 +10055,52 @@ mujica第七话go团演到一半灯拉祥子soyo拉木头人上台演奏春日�
 而且这集补上回忆后，祝你幸福那就真的是祝灯和自己的乐队过好下去，脸上虽然是绷着的，但嘴巴是软糯的，身 ...</blockquote>
 灯祥太美好了，又又又重温了一遍第五集灯祥part
 
+
+*****
+
+####  玖羽  
+##### 17147#       发表于 2025-2-3 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341530&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-3 20:56</a>
+
+传奇雇佣兵海铃戏份其实比大喵还少，大喵其实不止一次给剧情来塑造其努力家和家人侠的形象，而海铃除了少数卖cp的片段则完全缺乏对人物形象的补完，后续应该至少会把这个角色引入到主线来，除非staff眼中其实这个角色地位和go里的猫是一样的。</blockquote>
+怎么还在说这种话<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202502/03/222922ck0a7at4zt4k41oo.jpg" referrerpolicy="no-referrer">
+
+<strong>510f.jpg</strong> (338.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 22:29 上传
+
+
+*****
+
+####  blackeryuri2  
+##### 17148#       发表于 2025-2-3 22:32
+
+还在复读“哈气”，观众都是上帝视觉了，就是理解不了人物的情绪变化。到灯组新mygo第一次演唱唱不出歌的时候，祥子都在台下眼神鼓励灯，灯顺利唱出碧天伴走时祥子欣慰地笑了，直到春日影暴击祥子彻底被打伤（逐渐坏掉）
+
+*****
+
+####  aptx8285144  
+##### 17149#       发表于 2025-2-3 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339613&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-3 15:11</a>
+
+有事考虑现实性，没事底层逻辑，这就是我们邦多利</blockquote>
+其实刚才意识到为什么要把经纪人削弱的如此过，因为姑且不论第一话瞄梦的独走，睦宿机在舞台上，经纪人”也不必察觉“这个事故而过来询问，最后解散时可能的阻力也被可以直接无视，虽然楼里当初有试图证明这不是过家家，但是这就是独角兽和柿本赋予C团的过家家，一定要摧毁的过家家<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">（玩弄大祥甚至只是终结乐队的一个目的之一罢了）
+
+*****
+
+####  aptx8285144  
+##### 17150#       发表于 2025-2-3 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342077&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-3 22:20</a>
+
+聖人論跡不論心
+
+我知道劇本裡祥是好人</blockquote>
+所以之前有人直接吐槽大祥是欺软怕硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
