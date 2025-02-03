@@ -10010,3 +10010,48 @@ mujica第七话go团演到一半灯拉祥子soyo拉木头人上台演奏春日�
 
 4. 瓦塔西…..
 
+
+*****
+
+####  aptx8285144  
+##### 17144#       发表于 2025-2-3 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341808&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-3 21:38</a>
+
+素世虽然没道歉，但是行动和台词上都帮她消解了很多，反正已经丢过脸了这句杀伤力太大了
+
+还有一个是素世 ...</blockquote>
+是的，我之前就吐槽过虽然都是反派，瞄梦和素世水平差距相当于蓝波斯和迪兰达尔（或者说克队也可以）的差距<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，喵梦实在太跳了，虽然素世早期她手指动作是一个剧情暗示
+
+
+*****
+
+####  南宮凝香  
+##### 17145#       发表于 2025-2-3 22:20
+
+聖人論跡不論心
+
+我知道劇本裡祥是好人
+
+但演出來就是她是個究極DV 聖體
+
+關係越近的她越會撒氣
+
+然後每個角色都只會想著她白的時候，
+
+不停跑回去開始新一輪受氣
+
+而外人一剛她就變軟糯了
+
+與其說是JK， 不如說是中年男
+
+*****
+
+####  blackeryuri2  
+##### 17146#       发表于 2025-2-3 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341847&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-3 21:45</a>
+
+而且这集补上回忆后，祝你幸福那就真的是祝灯和自己的乐队过好下去，脸上虽然是绷着的，但嘴巴是软糯的，身 ...</blockquote>
+灯祥太美好了，又又又重温了一遍第五集灯祥part
+
