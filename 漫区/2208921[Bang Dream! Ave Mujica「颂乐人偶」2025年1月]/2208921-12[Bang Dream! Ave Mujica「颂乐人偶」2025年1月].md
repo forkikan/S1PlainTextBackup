@@ -10302,3 +10302,102 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  玖羽  
+##### 17169#       发表于 2025-2-3 23:15
+
+关于三背叛者假药，我觉得海铃可能没有那么中立。
+
+第2话海铃给睦安排了巨量的采访，是睦崩溃的重要原因之一（至少看起来是这样）
+
+海铃真的对睦的情况一点都没察觉吗，海铃可是对祥子说过“你对成员关注太少”，既然她敢这么说，她肯定有关注到其他成员的情况，那为什么给睦安排那么多采访
+
+这一点甚至是由喵梦的台词指出来的，MyGO里也是，很多台词其实是暗示观众“这个地方需要注意”
+
+初华都不用说了，第2话给了不止一次初华注意到睦半死不活的镜头，但是初华毫无反应
+
+<img src="https://img.saraba1st.com/forum/202502/03/230953pcl5s35aagegfhfz.jpg" referrerpolicy="no-referrer">
+
+<strong>6m.jpg</strong> (40.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 23:09 上传
+
+*****
+
+####  Lyzers  
+##### 17170#       发表于 2025-2-3 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342142&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-3 22:34</a>
+
+其实刚才意识到为什么要把经纪人削弱的如此过，因为姑且不论第一话瞄梦的独走，睦宿机在舞台上，经纪人” ...</blockquote>
+其实问题不在于前面为什么要削弱存在感，大家看了四集基本上也已经接受“就是这么个世界观就是这么个道理的”的逻辑了，但是第五集突然砰的一下，前面都一笔带过甚至可能带都不带的大家都突然冒出来刷存在感，告诉你不是这么个道理，大部分观众应该都是不能接受这种突然的断层的
+
+*****
+
+####  天空塔书记官  
+##### 17171#       发表于 2025-2-3 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342379&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-3 23:15</a>
+关于三背叛者假药，我觉得海铃可能没有那么中立。
+
+第2话海铃给睦安排了巨量的采访，是睦崩溃的重要原因之 ...</blockquote>
+这个祥子说过，是媒体要求的，毕竟名人子女是更容易炒起来的话题，倒是作为财团继承人的祥子没怎么被媒体骚扰这点还是有些微妙的，唉…丰川家的大手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 17172#       发表于 2025-2-3 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342379&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-3 23:15</a>
+
+关于三背叛者假药，我觉得海铃可能没有那么中立。
+
+第2话海铃给睦安排了巨量的采访，是睦崩溃的重要原因之 ...</blockquote>
+不至于，整个团里就初华跟睦名气最大，节目当然是那这两人做主题，所以都要求睦上节目。
+
+而睦的童星身份也多亏于父母的原因，而且上节目也有主持人问睦父母的事情而不是乐队。
+
+在第三集里，睦的父母本来就是导致他的精神创伤，最终在多方面的压力下导致睦精神崩溃。
+
+*****
+
+####  小博禹  
+##### 17173#       发表于 2025-2-3 23:21
+
+纯良一点想，初华真就只是恋爱脑，不管睦头人也算排除情敌<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">就是鸡的团魂是彻底完蛋了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  595505568  
+##### 17174#       发表于 2025-2-3 23:23
+
+ 本帖最后由 595505568 于 2025-2-3 23:26 编辑 
+
+还看到一个假药解析
+
+包括对称论下的子亚种分析
+
+部份关键集的名字，MyGO逆序X+Mujica正序X=一句揭秘的关键短语）
+
+下一集对应的是 今天的Live过后+你将掌控心灵…
+
+？好像挺合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17175#       发表于 2025-2-3 23:24
+
+不过要是祥子知道睦不擅长应付公关活动还接受媒体的要求，这才是真正的烂完了，把木头往火坑里推呗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
