@@ -377,3 +377,11 @@ u管动态，他老婆明显不自在的很。
 
 看过一篇公众号文，侃爷会安排老婆的一切衣着行头，他老婆没有任何穿衣自由<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双面人  
+##### 46#       发表于 2025-2-3 19:01
+
+看过图片超过10秒的自动在2028年投票给侃爷
+

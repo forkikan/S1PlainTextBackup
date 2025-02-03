@@ -9256,3 +9256,29 @@ RAS因为资源问题和萝团粉丝反感还有蝶团横插一脚不是差点�
 
 商法就是要养毒唯养忠粉啊，wsd给双R团都玩过届了，养的太狠打得头破血流，你好我好怎么爆米？
 
+
+*****
+
+####  烂片雷达  
+##### 17080#       发表于 2025-2-3 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340806&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 18:45</a>
+单团毒唯去买高价Live票，抱盒团谷子，创死他们你以后主要的线下部份收入还要不要了，wsd这是直接加速死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸡狗能跟老团一样吗
+老团里有哪两个团一母同胞诞生于同一个乐队的吗我想问问<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+极端鸡批狗批占比鸡狗双批真的很多吗我想打个问号<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+旧时代的遗毒早就不适用于鸡狗了，该被狠狠扫进历史垃圾堆里<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 17081#       发表于 2025-2-3 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340891&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-3 18:58</a>
+鸡狗能跟老团一样吗
+老团里有哪两个团一母同胞诞生于同一个乐队的吗我想问问 
+极端鸡批狗批占比鸡狗双批 ...</blockquote>
+那你去跟武士道玩烂的每年下滑的财报说去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你说不适用就不适用了，Go和mujica谷子一起烂仓库的时候建议你去帮他们抄底好吧。
+遗毒这话还轮不到不抱团谷不去买live票的人说，人家真情实感和真金白银到你这里遗毒了，太好笑了
+

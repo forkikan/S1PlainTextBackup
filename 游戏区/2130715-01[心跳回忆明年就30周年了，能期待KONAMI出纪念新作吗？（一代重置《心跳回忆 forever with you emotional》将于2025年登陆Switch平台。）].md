@@ -3304,3 +3304,15 @@ NTR仙人，专业迫害诗织30年<img src="https://static.saraba1st.com/image/
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  穿越护城河  
+##### 264#       发表于 2025-2-3 18:59
+
+这玩意就是日本80年代最后的墓碑
+
+从此之后这个东西就彻底入土了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
