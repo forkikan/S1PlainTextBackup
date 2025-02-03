@@ -7182,3 +7182,60 @@ MS-07R-35<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" r
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  纪寞  
+##### 6464#       发表于 2025-2-3 15:41
+
+另外大家对修司的这个涂鸦有什么看法吗？只是彩蛋还是什么东西？
+
+<img src="https://img.saraba1st.com/forum/202502/03/154028fki2t0kc7rv7rzn9.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-03 153941.png</strong> (398.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:40 上传
+
+
+*****
+
+####  王留美  
+##### 6465#       发表于 2025-2-3 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339674&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-2-3 15:27</a>
+ 给台肯普法吧，也是蓝色的。</blockquote>
+勇士都没了哪里还会有斗士
+
+*****
+
+####  刺客ares  
+##### 6466#       发表于 2025-2-3 15:45
+
+<img src="https://img.saraba1st.com/forum/202502/03/154450zdcmmbkz1dprzqqh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9867.jpeg</strong> (449.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:44 上传
+
+右上角演示的敌役是兰巴和老虎
+
+*****
+
+####  王留美  
+##### 6467#       发表于 2025-2-3 15:46
+
+好像说夏利安初战开的是大魔？
+
+*****
+
+####  Toby_dak  
+##### 6468#       发表于 2025-2-3 15:47
+
+官网解密的机设怎么没大魔，明明动画里都建模出场了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

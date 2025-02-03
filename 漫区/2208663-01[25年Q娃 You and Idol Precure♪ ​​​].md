@@ -806,3 +806,31 @@ OP、ちょこっと参加させていただきました
 
 有没有人觉得紫色邻家妹妹感很重，莫名的朴素感，父母不在身边，跟爷爷奶奶一起住，还小一年级
 
+
+*****
+
+####  jaewoongh_  
+##### 345#       发表于 2025-2-3 15:40
+
+有没有人觉得op里的蓝紫暗示有点多
+
+<img src="https://img.saraba1st.com/forum/202502/03/154009rkylqqx723xr9kjk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0055.jpeg</strong> (537.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:40 上传
+
+
+*****
+
+####  modedd  
+##### 346#       发表于 2025-2-3 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339722&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-2-3 15:40</a>
+有没有人觉得op里的蓝紫暗示有点多</blockquote>
+先行的时候明明还是女主gachi来着，会变成三角形吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/67666bddbf3a3c157d3097cc7ce24b84/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
