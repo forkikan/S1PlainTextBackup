@@ -15630,3 +15630,22 @@ api能写，app做了后置检查的肯定不能给你放出来
 
 联网搜索好像好了，我测了几条都可以
 
+
+*****
+
+####  AolKleinZ  
+##### 1206#       发表于 2025-2-3 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338391&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-3 11:28</a>
+输出的，和Deepseek标准格式一样包裹在Reanson字段里了。
+
+Cherrystudio正常输出。 ...</blockquote>
+chatbox能调出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 1207#       发表于 2025-2-3 16:52
+
+d老师怎么连自己写男人露熊都能撤回，我都没让他搞涩涩他就自己写了一段男人露熊剧情就被撤回了，一切来得太过突然<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

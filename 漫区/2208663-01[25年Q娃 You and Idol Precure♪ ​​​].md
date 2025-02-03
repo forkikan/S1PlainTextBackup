@@ -886,3 +886,33 @@ OP、ちょこっと参加させていただきました
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  达达葱2  
+##### 352#       发表于 2025-2-3 16:53
+
+<blockquote>modedd 发表于 2025-2-3 16:31
+取决于你是否认同“没有消息就是好消息”
+
+—— 来自 鹅球 v3.3.96</blockquote>
+至少不会比去年还无聊吧
+
+*****
+
+####  modedd  
+##### 353#       发表于 2025-2-3 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340164&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-3 16:53</a>
+
+至少不会比去年还无聊吧</blockquote>
+如果是担心无聊的话那传统开局不应该是坏消息吗，我是觉得子供向能无功无过就没啥好指责的就是了
+
+<img src="https://img.saraba1st.com/forum/202502/03/165651bb07kp3q06idiqbn.png" referrerpolicy="no-referrer">
+
+<strong>068.png</strong> (412 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-2-3 16:56 上传
+

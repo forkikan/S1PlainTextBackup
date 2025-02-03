@@ -7322,3 +7322,16 @@ GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Steel.Haze  
+##### 6476#       发表于 2025-2-3 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340110&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-3 16:43</a>
+
+这次主角团是两个强NT上来就抱团，UC里上次出现这种还得是卡缪+夏亚吧？
+
+虽然上来配合比较整蛊，但只要继续 ...</blockquote>
+不用指望军团战打下去，主角团这组合水平，在扎古为主的军团战过于鹤立鸡群，也太显眼，按说已经够把紫婆的奇美拉部队招惹来打追击战了。打军团战那就得是吉翁战后把老ACE都裁员了，夏叔把他们一个个找来配个什么组装机体，然后一场场的去送...
+
