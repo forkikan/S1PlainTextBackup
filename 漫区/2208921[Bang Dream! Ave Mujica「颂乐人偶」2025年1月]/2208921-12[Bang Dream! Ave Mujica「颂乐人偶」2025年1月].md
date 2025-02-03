@@ -11470,3 +11470,85 @@ Like father， like daughter
 
 小章鱼嘴巴到处硬得不行，但立希一A上去，看见泪痣太妹沙包大的拳头，立马就糯了
 
+
+*****
+
+####  小博禹  
+##### 17258#       发表于 2025-2-4 01:18
+
+为什么要这么畏惧自己的半身呢？🐘是否心中有愧？哭着说想要睦睦回来，怎么转头就一月不见<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">木箱的关系性都无法圆满解决，鸡团这饺子还有救吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 17259#       发表于 2025-2-4 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342881&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-4 01:11</a>
+
+我忘了
+
+最經典的是立希沖臉轉火燈</blockquote>
+不是 你真的记得黑刀之夜的发言顺序么？
+
+*****
+
+####  古明地雷  
+##### 17260#       发表于 2025-2-4 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342873&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-4 01:07</a>
+
+第一集大喵獨走後該強勢壓下去時她做了什麼？
+
+睦失言喵夢問責時她又幹了什麼？</blockquote>
+她对谁都一样的盐而已，你这个说法像祥子看人下菜，实际并不是。（睦是特例，她只在睦面前崩溃）
+
+*****
+
+####  blackeryuri2  
+##### 17261#       发表于 2025-2-4 01:20
+
+战吧那个假药帖子太有意思了（楼主日本ip那个）
+
+可以不入脑单纯当娱乐看，真的很有趣，如果番不是这样演的，也可以拿出来做个二创了
+
+*****
+
+####  古明地雷  
+##### 17262#       发表于 2025-2-4 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342881&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-4 01:11</a>
+
+我忘了
+
+最經典的是立希沖臉轉火燈</blockquote>
+她让灯多练习是转火欺负，那让大喵多练习是？纯粹是先射箭再画靶，用这个词概括祥子对不同人的态度挺离谱的
+
+*****
+
+####  blackeryuri2  
+##### 17263#       发表于 2025-2-4 01:22
+
+<blockquote>凉良 发表于 2025-2-4 01:19
+不是 你真的记得黑刀之夜的发言顺序么？</blockquote>
+那些连剧情都记不清就开始批判这个批判那个的，你就让让他们吧
+
+
+*****
+
+####  凉良  
+##### 17264#       发表于 2025-2-4 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342899&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-4 01:19</a>
+
+她对谁都一样的盐而已，你这个说法像祥子看人下菜，实际并不是。（睦是特例，她只在睦面前崩溃） ...</blockquote>
+我觉得对睦也挺盐的 就是那个高高在上
+
+*****
+
+####  凉良  
+##### 17265#       发表于 2025-2-4 01:26
+
+真要说祥子狗第八集和鸡里面和初华的对话才是软的不可思议 
+
