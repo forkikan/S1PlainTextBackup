@@ -8199,3 +8199,36 @@ ccc有三个人是被伤害的啊，而且已经组mygo了。不能用过去的�
 
 话说种命我觉得问题主要也就是搞了个站错队的新生代和强行让尼奥等于穆
 
+
+*****
+
+####  aptx8285144  
+##### 16988#       发表于 2025-2-3 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338823&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-3 12:42</a>
+
+话说种命我觉得问题主要也就是搞了个站错队的新生代和强行让尼奥等于穆</blockquote>
+还有雷的那一枪，要找补只能在他的设定里找说其实比较正常，并不像克队那么悲观云云，可是对于原创动画而言他这样狐狸的心腹，被基拉这样几句话而反戈一击也是烂活了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 16989#       发表于 2025-2-3 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338788&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-3 12:35</a>
+
+凭什么回去月之森学校，你看邦多利真有钱人回去读月之森吗？</blockquote>
+月之森制服好看啊，羽丘那绿袜子真8行<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 16990#       发表于 2025-2-3 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338719&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-3 12:23</a>
+
+素世要是道歉，那爱素关系上她在明面暗面就都会处于下风，直接导致嘴硬不起来，这cp就烂了
+
+—— 来自 鹅球 ...</blockquote>
+虽然但是，爱素平日在一起时间好像远不如爱灯（
+
