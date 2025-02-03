@@ -15546,3 +15546,28 @@ api能写，app做了后置检查的肯定不能给你放出来
 官方搜索也可以用了</blockquote>
 还不行吧，而且提示搜索不可用换成了英文
 
+
+*****
+
+####  moeblack  
+##### 1198#         楼主| 发表于 2025-2-3 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338751&amp;ptid=2243718" target="_blank">2023-5-15 发表于 2025-2-3 12:28</a>
+
+本人小白请教一个问题，我用网页版ds和chatbox生成的回答里有图片，但图片不能显示，这是什么问题呢？ ...</blockquote>
+因为那是幻觉，不是真的图片
+
+*****
+
+####  hyde_caesar  
+##### 1199#       发表于 2025-2-3 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338117&amp;ptid=2243718" target="_blank">怀沙汨罗 发表于 2025-2-3 10:49</a>
+老哥们，请问部署知识库能够辅助ds跑团时记住设定吗？我发现它很容易忘了人物属性和装备效果
+
+—— 来自 鹅 ...</blockquote>
+如果你是静态的背景，可以，知识库就是干这个的。
+如果需要根据人物卡片来动态强化的话需要走prompt把人物状态输入。这样推荐用qwen，ds的窗口这么长的prompt效果不好。
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
