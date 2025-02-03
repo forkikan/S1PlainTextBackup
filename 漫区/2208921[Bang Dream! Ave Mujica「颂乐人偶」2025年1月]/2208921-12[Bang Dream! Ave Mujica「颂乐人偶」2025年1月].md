@@ -8323,3 +8323,53 @@ Soyo 小姐自己揪不了燈進團能怪誰？
 素睦母女爱情也不影响爱素老夫老妻默契感
 爱素就是兼容性这么高的cp<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 16998#       发表于 2025-2-3 13:50
+
+ 本帖最后由 须贺兰 于 2025-2-3 13:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337448&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-3 05:04</a>
+
+楼友们，已经演了五集了，轻度爱好者有个问题哈，为啥当初祥子要退C团的原因说了吗？
+
+好像演了挺多大伙的不 ...</blockquote>
+第一话就交待得很清楚，精力和经济条件难以维持作为兴趣爱好的乐队活动
+<img src="https://img.saraba1st.com/forum/202501/18/225733f2lkinkq66sqw9qy.jpg" referrerpolicy="no-referrer">
+
+她坚持来CRYCHIC已经非常勉强，如果情况没有改善，退团只是时间问题，只不过祥子还抱有幻想，然后警察局的电话打破了幻想
+
+*****
+
+####  天空塔书记官  
+##### 16999#       发表于 2025-2-3 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339177&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-3 13:44</a>
+高祖他們是玩一輩子樂隊，
+
+但邦世界又不是每個人都是主角，
+
+還是有玩票樂隊的</blockquote>
+所以素世和爱音之间并没有需要相互道歉的关系不是吗，所以爱音没资格接受素世的道歉，应该接受她们道歉的是灯，但灯只会把所有的错误揽到自己身上，所以结果就是剧中人物关系决定不需要素世向谁道歉(睦除外)，想要看素世吃瘪和道歉的只有观众
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  须贺兰  
+##### 17000#       发表于 2025-2-3 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337479&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-3 06:17</a>
+
+爽了
+
+谢谢楼友
+
+安心了，睡觉去了</blockquote>
+[https://www.bilibili.com/opus/846518168365039625](https://www.bilibili.com/opus/846518168365039625)
+
+Ctrl + F +“黄瓜”网页搜索
+
