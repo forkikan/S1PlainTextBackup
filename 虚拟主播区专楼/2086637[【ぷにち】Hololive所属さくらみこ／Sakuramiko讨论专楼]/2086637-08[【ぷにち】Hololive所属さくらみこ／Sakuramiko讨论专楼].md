@@ -102,3 +102,30 @@ yin兽*2
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holofan  
+##### 10736#       发表于 2025-2-3 10:57
+
+<img src="https://img.saraba1st.com/forum/202502/03/105711do61vzvpspo2pxyj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 10:57 上传
+
+*****
+
+####  holofan  
+##### 10737#       发表于 2025-2-3 17:31
+
+<img src="https://img.saraba1st.com/forum/202502/03/173150igpfgitmhg4zm1v1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (271.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 17:31 上传
+
