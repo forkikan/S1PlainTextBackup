@@ -7239,3 +7239,16 @@ MS-07R-35<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" r
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Steel.Haze  
+##### 6469#       发表于 2025-2-3 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339574&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-3 15:02</a>
+
+85年还开老虎这是直接叫他送死了，多少给台大魔吧（</blockquote>
+实际上对面是装备不齐不太会开的女主机（大概也就精神力GP01FB档次）和实际上Bit用完在耍流星锤的78...那么一台改装了一下的老虎是完全可以的。这剧情显然没有进入Z高开始的那种MS科技爆发时代。
+
+更类似0083年代的水平。彼时大魔都算高级量产机。老虎和扎古改都可以一战的。吉翁高达仿制型也没有规模化迹象。
+

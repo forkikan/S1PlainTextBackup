@@ -2044,3 +2044,15 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Slyvan  
+##### 205#       发表于 2025-2-3 16:09
+
+25号, 买完XBX再充点进去 
+
+接下来只能淘宝了, 反正也贵不了多少
+
+傻X港服我是一点都不想用... 有些游戏只有港服有中文我都不怎么想买, 不想分两个账号
+
