@@ -1291,3 +1291,14 @@ https://www.bilibili.com/video/BV1r2FyeJETi
 
 按这几天ykw驱逐移民的架势。怕是最后就是看着不爽先抓再说
 
+
+*****
+
+####  莫吉  
+##### 117#       发表于 2025-2-3 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338140&amp;ptid=2237116" target="_blank">问道于盲 发表于 2025-2-3 10:52</a>
+
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？</blockquote>
+直接清空弹夹，死了就是美国人，没死就是加拿大人
+
