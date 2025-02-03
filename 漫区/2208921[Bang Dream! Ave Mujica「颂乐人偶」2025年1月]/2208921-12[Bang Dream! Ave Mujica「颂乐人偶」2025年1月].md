@@ -7816,3 +7816,32 @@ mortis对祥子说“就凭这样的你，小睦或许再也不会回来了呢�
 
 我以前以为夸张了。现在…不是，姐们，你们玩真的啊？
 
+
+*****
+
+####  swessia  
+##### 16956#       发表于 2025-2-3 10:07
+
+初华内鬼论还真能救回观感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">毕竟初华当偶像也吃了很多苦，被丰川家大手胁迫下问题也不大
+
+前几集不作为也能圆成下大棋
+
+喵梦被收买也可以挽回观感【人设就算了救不了】
+
+海玲袖手旁观
+
+就是祥睦俩人真的惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪不得俩现在都疯了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 16957#       发表于 2025-2-3 10:07
+
+pop灯与pipi祥
+<img src="https://p.sda1.dev/21/bae1a428ced1d602b42bcce38a500c0e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4838a044b27b813534a510f50c36a4fa/image.jpg" referrerpolicy="no-referrer">
+汉化
+<img src="https://p.sda1.dev/21/6b73416f4ae1ffd0fabea240c1d6d418/image.jpg" referrerpolicy="no-referrer">
+
