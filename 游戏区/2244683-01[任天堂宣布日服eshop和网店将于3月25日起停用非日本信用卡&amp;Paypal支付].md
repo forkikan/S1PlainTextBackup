@@ -2215,3 +2215,17 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就不知道了
 
+
+*****
+
+####  nanonya2  
+##### 220#       发表于 2025-2-4 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339453&amp;ptid=2244683" target="_blank">oidoid 发表于 2025-2-3 14:40</a>
+可能找到这次动作的原因了，日本政府的问题
+
+日本政府吹风4月开始在线支付必须本人认证，海外支付手段没法 ...</blockquote>
+我觉得不好说，如果这能算理由的话，那外国人到日本短期旅行，也不能支付了？
+而且eShop通过VISA支付时能够跳转到国内银行的认证页，我多次遇到过。
+如果真的是政策要求，任天堂也没必要不在公告里提及。
+
