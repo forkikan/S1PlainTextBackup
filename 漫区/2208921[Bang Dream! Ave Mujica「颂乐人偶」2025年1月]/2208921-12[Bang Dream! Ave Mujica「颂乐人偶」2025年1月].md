@@ -11923,3 +11923,11 @@ crychic解散的真正原因或许还没有揭露</blockquote>
 
 我猜大猫可能一开始想在鸡团爆炸之后，无视丰川家的大手跟祥子从头来过。但炸团之前她发现祥子没有决心，放弃了这个想法。
 
+
+*****
+
+####  Yugao  
+##### 17302#       发表于 2025-2-4 07:15
+
+圣，圣饥魔（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
