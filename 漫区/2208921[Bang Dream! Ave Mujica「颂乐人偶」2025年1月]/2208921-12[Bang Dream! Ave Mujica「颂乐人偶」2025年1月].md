@@ -8232,3 +8232,14 @@ ccc有三个人是被伤害的啊，而且已经组mygo了。不能用过去的�
 —— 来自 鹅球 ...</blockquote>
 虽然但是，爱素平日在一起时间好像远不如爱灯（
 
+
+*****
+
+####  无事忙  
+##### 16991#       发表于 2025-2-3 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67334538&amp;ptid=2208921" target="_blank">blackeryuri2 发表于 2025-2-2 17:22</a>
+
+有没有把鸡狗团人设套高达背景的小说，感觉能写得很有趣</blockquote>
+有个很棒的长视频，铁血高达奥尔加复活c团，也算满足你的要求，主要是真有趣
+
