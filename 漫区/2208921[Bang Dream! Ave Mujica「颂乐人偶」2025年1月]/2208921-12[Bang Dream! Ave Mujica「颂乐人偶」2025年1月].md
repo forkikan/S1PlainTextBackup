@@ -10765,3 +10765,81 @@ https://www.saraba1st.com/2b/thread-2244777-1-1.html
 我另外发帖说过，这种东西就是设定混乱，就像是 ...</blockquote>
 讲真的，这玩意根本没法两全，如果要按丰家大手存在非常厉害而言，不是距离决战丰川家半步之遥的斗财阀（赤板明：我觉得我写得没那么难看了）就是大祥的人设被拷打的更厉害（就别说对赌那个假药了），当初其实应该按草台班子的邦邦逻辑一路到底的，既然让老登登上舞台，那就看到柿本和独角兽的造化了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厚乳果珍爽  
+##### 17203#       发表于 2025-2-3 23:56
+
+我觉得，看动画还是要遵循奥卡姆剃刀原理的，自己給自己吃了一堆假药，结果就是“我真的在第二层”的时候就非常打脸的。
+
+*****
+
+####  adretyu67.  
+##### 17204#       发表于 2025-2-3 23:58
+
+满口流量根本不是严重的问题。
+
+重要的是你要把搞音乐看的比走流量更重要。
+
+鸡团解散前最严重的问题就是已经开始逐渐把戏剧的部分凌驾于音乐演出之上了。
+
+*****
+
+####  iiiiiiiiii  
+##### 17205#       发表于 2025-2-3 23:59
+
+<blockquote>厚乳果珍爽 发表于 2025-2-3 23:56
+我觉得，看动画还是要遵循奥卡姆剃刀原理的，自己給自己吃了一堆假药，结果就是“我真的在第二层”的时候就 ...</blockquote>
+初华垦有东西藏着，这是板上钉钉的。不然绝色的诡异干从何谈起
+
+*****
+
+####  adretyu67.  
+##### 17206#       发表于 2025-2-4 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342596&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-3 23:55</a>
+
+讲真的，这玩意根本没法两全，如果要按丰家大手存在非常厉害而言，不是距离决战丰川家半步之遥的斗财阀（ ...</blockquote>
+斗财阀这种走向应该是不会出现的。
+
+实际上老登并没有限制小登搞乐队？
+
+
+*****
+
+####  595505568  
+##### 17207#       发表于 2025-2-4 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342599&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-3 23:56</a>
+我觉得，看动画还是要遵循奥卡姆剃刀原理的，自己給自己吃了一堆假药，结果就是“我真的在第二层”的时候就 ...</blockquote>
+我对半身理解就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，离开对方或者对方崩溃后自己无法独立完成社交工作的部份。
+祥子的理性是睦在承担，祥子以前的嘴替是睦。
+睦现在的外显表达依赖祥子，mortis恐怕是睦在承担半身职责后。作为完人缺少的那部份，既然是缺少的，那就会和本我半体之间各自丢东西…这也能解释睦和mortis这么大的差异；睦内归因，mortis外归因，不结合起来这个人会所有的事情都怪自己，无法正确判断因果链<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以最后睦和祥子要把自己丢给对方的一半责任和能力自己弥合到自己身上，这也是断开人与人之间联系的一种
+
+*****
+
+####  天空塔书记官  
+##### 17208#       发表于 2025-2-4 00:02
+
+ 本帖最后由 天空塔书记官 于 2025-2-4 00:04 编辑 
+
+所以假药就是自己写着开心，猜对就是自己牛逼，猜错就继续发新的，只要别碰到上来就扣帽子的就行
+
+不过一直向着负面发展滑坡还是不太能接受，不论最后包得怎么样，饺子还是一定会包的，总是否定这点只能说先别急
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17209#       发表于 2025-2-4 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342621&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-4 00:00</a>
+斗财阀这种走向应该是不会出现的。
+
+实际上老登并没有限制小登搞乐队？ ...</blockquote>
+有木有可能，妈妈认识爸爸是通过玩乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，姥爷PTSD了，但是这种扭曲的爱有说不出口“我害怕你和你妈妈一样在乐队里找了一个不能托付的男人”（结果全是女的，爆笑了）
+
