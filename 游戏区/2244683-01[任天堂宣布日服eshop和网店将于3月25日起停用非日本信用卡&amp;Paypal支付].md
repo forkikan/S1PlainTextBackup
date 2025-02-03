@@ -2138,3 +2138,27 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 那日亚其实也会没救</blockquote>
 是啊，那看来日亚也买不了了
 
+
+*****
+
+####  Hyst3r1a  
+##### 213#       发表于 2025-2-3 20:58
+
+然后点卡充进eshop也要认证，无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  oi99o  
+##### 214#         楼主| 发表于 2025-2-3 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341544&amp;ptid=2244683" target="_blank">Hyst3r1a 发表于 2025-2-3 20:58</a>
+然后点卡充进eshop也要认证，无敌了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+政府政策只涉及信用卡支付，理论上充点卡不管（不过买点卡就另说了）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

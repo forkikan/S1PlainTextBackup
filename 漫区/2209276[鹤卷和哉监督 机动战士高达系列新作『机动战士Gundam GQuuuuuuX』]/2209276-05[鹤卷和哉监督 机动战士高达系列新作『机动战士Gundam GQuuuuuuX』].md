@@ -7517,3 +7517,24 @@ gqx的第二套操纵系统用的是Arm raker
 
 合着量产高达是换头啊？
 
+
+*****
+
+####  psycho_Gadfly  
+##### 6488#       发表于 2025-2-3 20:57
+
+X上的Kare @0621utak 
+
+“ エグザベ少尉とシャリアブルは行くところまで行くって、、、？！?(アニメ前に妄想落書き)”
+
+腐女吃的太好了，已经把结局画出来了
+
+<img src="https://img.saraba1st.com/forum/202502/03/205728c1u7tr9fe4r777xd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7663.jpeg</strong> (299.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-3 20:57 上传
+

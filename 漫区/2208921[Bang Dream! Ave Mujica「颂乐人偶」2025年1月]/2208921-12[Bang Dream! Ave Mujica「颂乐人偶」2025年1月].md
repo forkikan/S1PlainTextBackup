@@ -9781,3 +9781,24 @@ live前要解决一堆问题，睦go和解，睦吉他复健，祥go和解，祥
 
 这么一看，后面分到剧情最少的大概率可能就是大喵。
 
+
+*****
+
+####  595505568  
+##### 17123#       发表于 2025-2-3 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341503&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-3 20:51</a>
+睦和她父母没啥要和解的，她是对自我的质疑，小剧场里也不是表示她渴望收到父母的关心，而是所有人都在说 ...</blockquote>
+其实她重心在重铸月之森二人组关系性、获得弹吉他的自由灵魂，和解C团旧情的问题上下功夫，但是爸妈这个情况留在其他地方也不是不能用吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 17124#       发表于 2025-2-3 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341276&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 20:17</a>
+第六话把祥子彻底融化，把睦和mortis像大马士革钢一般反复锤炼到融为一体，形成祥子和睦的新的自我的雏形 ...</blockquote>
+想看初华仨被点爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定很dokidoki，小祥啊你也想不到刚刚旧恨刚了结新仇就找上门了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
