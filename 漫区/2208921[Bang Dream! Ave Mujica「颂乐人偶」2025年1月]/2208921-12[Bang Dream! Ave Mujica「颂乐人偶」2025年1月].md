@@ -10696,3 +10696,72 @@ lyy：
 
 但是越是走商业化观众对演员隐私的窥探兴趣就越是强烈，只能说是从半年炸团快速推进到了一个月炸团这个的速度。
 
+
+*****
+
+####  玖羽  
+##### 17199#       发表于 2025-2-3 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342564&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-3 23:45</a>
+
+这个也能这么样解释，以前跟父母上节目的时候，睦还是一个很开朗话多的角色，后来节目上多了，睦也懂事了 ...</blockquote>
+睦的小剧场可能是真发生过的，小时候上节目问“像妈妈一样是什么意思”，玩具说她沾父母的光，可能她被其他小孩说过这话
+
+*****
+
+####  595505568  
+##### 17200#       发表于 2025-2-3 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342561&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-3 23:44</a>
+对祥来说睦头是好用的，对睦来说小祥是亲密的半身、人生的归宿，双方的情感倾向太不对等了，这也是睦头自杀 ...</blockquote>
+若叶家大概率是分家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 17201#       发表于 2025-2-3 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338470&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-3 11:40</a>
+
+而且素世到现在也没给爱音道歉，其实观众主要是看在那句世纪名言的面子上接纳她了，所以我很怀疑放在瞄梦 ...</blockquote>
+我再说一遍，我认为，作为一个通用原则，<strong>不应该把角色身上的负面特质视为一种应当被切除的缺陷。</strong>（因为这背后暗含着一种逻辑：如果角色具有这样的负面特质，她就不值得被爱。）
+
+MyGO动画做得最对的事情之一恰恰是，Soyo在诗超绊之后甚至没有一个正式道歉环节（象征着她切割自己的负面特质），取而代之的则是
+
+“我可是利用了你们啊”“就算如此也要一辈子”
+
+“我也很差劲”
+
+“Soyorin”
+
+MyGO连Soyo这样严重的负面特质都包容了，能包容到这个地步，也就没有什么不能包容的了——换句话说，只有包容到这个地步，才能叫真正的包容
+
+因此，MyGO填补了Soyo心中的空洞，给了Soyo彻底的安全感
+
+所以Soyo最后对灯说“我永远忘不了Crychic”，这句话的意思就是“我以后永远忠于MyGO”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+如果Ave Mujica采用同样的做法，Ave Mujica也不会有正式道歉环节，每个人都会包容其他四个人的负面特质，无论多严重
+
+事实上，等初华和海铃爆出来，喵梦的这些负面特质和她们相比，很可能根本不算什么
+
+这就好像，如果是一个只看过传统少女偶像动画的人，看MyGO前几集可能会觉得爱音讨厌，爱音一开始表现出来的负面特质在传统的少女偶像番里是会尽量避免的
+
+但是后面一对比，爱音这点事根本不算什么
+
+我认为喵梦直到最后一话也会满口流量，但是最后一话的满口流量和第一话的满口流量一定是不一样的，到时候我们会清晰地感受到这种差异
+
+*****
+
+####  aptx8285144  
+##### 17202#       发表于 2025-2-3 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342295&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-3 23:02</a>
+
+https://www.saraba1st.com/2b/thread-2244777-1-1.html
+
+我另外发帖说过，这种东西就是设定混乱，就像是 ...</blockquote>
+讲真的，这玩意根本没法两全，如果要按丰家大手存在非常厉害而言，不是距离决战丰川家半步之遥的斗财阀（赤板明：我觉得我写得没那么难看了）就是大祥的人设被拷打的更厉害（就别说对赌那个假药了），当初其实应该按草台班子的邦邦逻辑一路到底的，既然让老登登上舞台，那就看到柿本和独角兽的造化了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
