@@ -7558,3 +7558,14 @@ X上的Kare @0621utak
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王留美  
+##### 6491#       发表于 2025-2-3 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341690&amp;ptid=2209276" target="_blank">zakufa782 发表于 2025-2-3 21:25</a>
+ 格鲁古古项目被毙了结果是强人和高达二合一，感觉真是这帮老害会干的事</blockquote>
+G9世界线应该没有兹玛德和吉翁尼克合并的触机
+那两者应该还是竞争关系，兹玛德的强人和吉翁尼克的敢达应该不会有关系
+

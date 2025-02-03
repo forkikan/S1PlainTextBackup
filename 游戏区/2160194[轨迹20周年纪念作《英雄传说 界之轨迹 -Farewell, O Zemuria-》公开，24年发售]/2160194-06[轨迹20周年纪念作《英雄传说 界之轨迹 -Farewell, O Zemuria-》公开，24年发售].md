@@ -432,3 +432,13 @@
 不得不说刷羊简直神来之笔，极大提升游戏体验，希望下一代继续可以刷羊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">已经被砍过了 本来是掉所有颜色 现在只掉一种。下作怕不是一种都不掉了（
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7571#       发表于 2025-2-3 22:02
+
+平均一天7小时高强度通马桶，这就是我充实的春节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人在安卡维尔刚下空艇已经昏迷
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

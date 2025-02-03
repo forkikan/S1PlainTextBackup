@@ -2162,3 +2162,18 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  君往何处  
+##### 215#       发表于 2025-2-3 21:56
+
+ 本帖最后由 君往何处 于 2025-2-3 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341140&amp;ptid=2244683" target="_blank">leyenda 发表于 2025-2-3 19:50</a>
+
+我一直是家长，点卡开的，不过我是美区，虽然这攻略也说美区不行</blockquote>
+看了下官网，应该是和前面有一位回复说的一样，第一次开通的时候需要信用卡，之后取消了自动续期可以用余额
+[https://en-americas-support.nint ... /detail/a_id/42013/](https://en-americas-support.nintendo.com/app/answers/detail/a_id/42013/)
+
+[https://support.nintendo.com/jp/ ... itch_online/02.html](https://support.nintendo.com/jp/switch/nintendo_switch_online/02.html)
+
