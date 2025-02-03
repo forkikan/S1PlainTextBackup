@@ -8771,3 +8771,46 @@ Ave Mujica 5th LIVE 确定！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  huxiaopao163  
+##### 17034#       发表于 2025-2-3 15:28
+
+这集初华的旁白也说了:因为此处 尚在坠入地狱途中
+
+无法想象下集小祥还会有多惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aptx8285144  
+##### 17035#       发表于 2025-2-3 15:28
+
+睦的双亲就是那种除非说他们也是这个病或者说“能力”，否则没法解释为什么莫女士还在家在操控用鞋子打电话，还是说莫女士已经精准操控来避开双亲的探望了?<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17036#       发表于 2025-2-3 15:32
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 15:34 编辑 
+
+不过宣传的也是“最狂”而不是“最现实”，所以噱头多而无实质也是在意料之中的
+
+引入具有现实特征的元素，不代表就是真的现实性内容，反而可能表示会更加不现实，因为某些元素在现实中是互斥的而无法共存的，所以需要更加不现实的内容作为补充，这也许就是“最狂”吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  aptx8285144  
+##### 17037#       发表于 2025-2-3 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339676&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-3 15:27</a>
+
+母鸡卡的各种假药：叙诡论，四演一，抓内鬼本质就是在给前期剧情找补，毕竟大家都不想看到一个前后割裂的故 ...</blockquote>
+其他先不说，双重人格形成应该不是老登或者其他大人们干的，在一个少女乐队番却得这么超能力一样的病（感冒，皮外伤这些起码现实色彩浓厚），如果最后只是为了反衬春日影曲子的伟大，实在是让人汗颜的把睦当训练对象
+
