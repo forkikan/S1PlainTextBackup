@@ -6938,3 +6938,11 @@ NT与富野导演的创作风格密切相关，其他人是否可以触碰这一
 
 超级系？世界系！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七七見奈波  
+##### 6441#       发表于 2025-2-3 10:55
+
+不知道四月前国内有没有机会上
+

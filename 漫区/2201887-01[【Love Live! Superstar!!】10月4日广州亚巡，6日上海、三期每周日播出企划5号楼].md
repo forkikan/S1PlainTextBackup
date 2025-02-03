@@ -15105,3 +15105,15 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 主要是前阵子大眼睛平台那些乱咬人阴阳怪气的真的看着太招笑了，叔叔的新企划评论区还有零星几个带话题的；贵企划当朝太子只是能多上上电视上拼盘，真该出力拉质和量的方面全部平庸甚至以下的话， 那谁来戴这个帽子都是流口水；
 
+
+*****
+
+####  csolfans  
+##### 1468#       发表于 2025-2-3 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337849&amp;ptid=2201887" target="_blank">离心 发表于 2025-2-3 09:58</a>
+从昨天的黑人问号后，想了一下毕竟五年了，也正常要开新团了，只能说星确实辛苦了，几乎全勤参与活动，也该 ...</blockquote>
+但是想想现在都成**大前辈了……星团很多成员也就20出头多点
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
