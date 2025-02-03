@@ -8847,3 +8847,46 @@ Ave Mujica 5th LIVE 确定！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  未来起航  
+##### 17040#       发表于 2025-2-3 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339627&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-3 15:13</a>
+祥子这套欺软怕硬太致命了，不求她能改，后续能像第四集中间的莫多敲打她几下也好 ...</blockquote>
+比起致命更主要是莫名其妙。“要多练习”一句没头没尾还没啥用的烂话都成典了。花一分钟说是家庭原因什么老妈之前对自己这么说的所以学下来了倒也可行但还是觉着好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  天空塔书记官  
+##### 17041#       发表于 2025-2-3 15:50
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 15:52 编辑 
+
+睦家如果真是丰川的分家，再结合一些经典日式家族关系桥段，后边搞出什么睦妈和睦曾经是本家的“影舞者”之类的展开的也不会让人太过惊讶就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 17042#       发表于 2025-2-3 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339725&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-3 15:40</a>
+
+第五集有一句路人的，小睦把自己关家里一个月，美奈美酱不知道怎么办好，大概率就是父母不觉得是双重人格， ...</blockquote>
+如果要考虑现实性，那父母必然要强行与睦有起码的接触（不管对方愿不愿意），来判断孩子究竟是怎么了，然后素世做个访客就能接触到，感觉还是要把大人们强行隔开的手段<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 17043#       发表于 2025-2-3 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339725&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-3 15:40</a>
+第五集有一句路人的，小睦把自己关家里一个月，美奈美酱不知道怎么办好，大概率就是父母不觉得是双重人格， ...</blockquote>
+应该还是看了医生的，地上有药，但这父母太神人都这样了还是丢下女儿去工作了
+
