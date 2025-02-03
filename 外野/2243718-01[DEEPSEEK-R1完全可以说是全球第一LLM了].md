@@ -15781,3 +15781,14 @@ chatbox更新了
 
 试了下硅基动力的，速度好慢啊，完全无法接受
 
+
+*****
+
+####  精钢魔像  
+##### 1221#       发表于 2025-2-4 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342037&amp;ptid=2243718" target="_blank">zy450 发表于 2025-2-3 22:14</a>
+
+好像网页版又炸了</blockquote>
+晚上美国网军上班，等他们下班，白天用
+

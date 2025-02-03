@@ -11552,3 +11552,14 @@ Like father， like daughter
 
 真要说祥子狗第八集和鸡里面和初华的对话才是软的不可思议 
 
+
+*****
+
+####  古明地雷  
+##### 17266#       发表于 2025-2-4 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342911&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-4 01:24</a>
+
+我觉得对睦也挺盐的 就是那个高高在上</blockquote>
+不是说对睦不盐，而是她唯独对睦确实看人下菜，她只愿意在睦面前展现情绪，亦或者说“不堪的自己”吧，所以会对她发脾气
+
