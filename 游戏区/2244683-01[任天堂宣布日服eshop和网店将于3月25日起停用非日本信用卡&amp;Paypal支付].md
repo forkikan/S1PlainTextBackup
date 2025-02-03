@@ -2034,3 +2034,13 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 挺傻逼的。
 
+
+*****
+
+####  oi99o  
+##### 204#         楼主| 发表于 2025-2-3 15:12
+
+那么eshop和官网商店搞3d认证是会有什么技术难度吗？是的话国内卡又要怎么进行本人认证？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -8623,3 +8623,120 @@ soyo演完诗超绊下来就是边哭边说我可是利用了大家啊，我觉�
 
 我自认算不得祥子厨，初祥睦祥算能吃的那种，但动画里目前这个表现。。。实在非常异味。。。虐角色已经虐到了一种，疑惑wsd还要不要把她们弄进手游卖卡卖周边的程度<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 17023#       发表于 2025-2-3 15:09
+
+第四集因为信息抽离的问题，在红光电视的画面回收之前说实话没啥争论的必要，至于喵梦，她的人物内在行为逻辑还不完善，一脚踩死也大可不必，睦的分裂，除非真的有相关医疗内容的介入，否则和超能力也没什么不同，结论是，在没搞清楚后面到底还有没有藏东西的情况下一路滑坡到全部烂完为时尚早
+
+至于祥子的塑造，目前没有问题
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 17024#       发表于 2025-2-3 15:11
+
+有事考虑现实性，没事底层逻辑，这就是我们邦多利
+
+*****
+
+####  AveMujica  
+##### 17025#         楼主| 发表于 2025-2-3 15:11
+
+<img src="https://img.saraba1st.com/forum/202502/03/151122g8et8ere8rx14t81.jpg" referrerpolicy="no-referrer">
+
+<strong>831bebe68a4e2d4fb8b2cba91e2622fa1459104794.jpg</strong> (382.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:11 上传
+
+TV动画「BanG Dream! Ave Mujica」Blu-ray
+
+5月28日(周三)发售预定。
+
+详情
+
+上：[https://bang-dream.com/discographies/4023](https://bang-dream.com/discographies/4023)
+
+<img src="https://img.saraba1st.com/forum/202502/03/151121vav8b894av4kgob8.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (86.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:11 上传
+
+下：[https://bang-dream.com/discographies/4024](https://bang-dream.com/discographies/4024)
+
+<img src="https://img.saraba1st.com/forum/202502/03/151121ud2pap7tsj2tapi7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (120.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:11 上传
+
+
+*****
+
+####  AveMujica  
+##### 17026#         楼主| 发表于 2025-2-3 15:12
+
+7月26日(周六)・27日(周日)
+
+LaLa arena TOKYO-BAY
+
+Ave Mujica 5th LIVE 确定！
+
+最速先行抽选券会封入【2nd Single「KiLLKiSS」初回生産分】中。
+
+<img src="https://img.saraba1st.com/forum/202502/03/151213nfdiilinbddrxplv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:12 上传
+
+*****
+
+####  aptx8285144  
+##### 17027#       发表于 2025-2-3 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339594&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-3 15:07</a>
+
+我自认算不得祥子厨，初祥睦祥算能吃的那种，但动画里目前这个表现。。。实在非常异味。。。虐角色已经虐到 ...</blockquote>
+参考机战游戏重置世界线吧，种自剧场版是去年才出的，整整十几年我看到鸟党们都是在玩机战的方式切割动画（也是原创动画），切割不就行了，除非手游也是这么阴森画风<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17028#       发表于 2025-2-3 15:13
+
+恐怖氛围营造和所谓虐角色，演出效果大于实质，还是噱头居多<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plusSharp  
+##### 17029#       发表于 2025-2-3 15:13
+
+祥子这套欺软怕硬太致命了，不求她能改，后续能像第四集中间的莫多敲打她几下也好
+
+*****
+
+####  天空塔书记官  
+##### 17030#       发表于 2025-2-3 15:16
+
+讨论现实性的基本还是观众，至于剧本其实涉及的真不多，总不能说有生老病死就是违背作品底层逻辑和世界观吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
