@@ -8373,3 +8373,36 @@ Soyo 小姐自己揪不了燈進團能怪誰？
 
 Ctrl + F +“黄瓜”网页搜索
 
+
+*****
+
+####  南宮凝香  
+##### 17001#       发表于 2025-2-3 13:59
+
+<blockquote>天空塔书记官 发表于 2025-2-3 13:50
+所以素世和爱音之间并没有需要相互道歉的关系不是吗，所以爱音没资格接受素世的道歉，应该接受她们道歉的 ...</blockquote>
+對也不對
+
+我找你組一個休閑車隊
+
+結果你在後面打算踢了我加你的舊朋友來重新組隊
+
+這說嚴重當然不嚴重， 但不厚道逃不了
+
+
+*****
+
+####  天空塔书记官  
+##### 17002#       发表于 2025-2-3 14:03
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 14:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339260&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-3 13:59</a>
+對也不對
+
+我找你組休閑車隊，我花了時間在集合石把人拉了</blockquote>
+但这种不厚道在灯的一辈子面前啥也不是，既然素世接受了这个约定，那就表明她对团队的付出必定超过对团队成员最初造成的伤害，这就是命运共同体
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
