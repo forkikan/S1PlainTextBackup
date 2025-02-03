@@ -15377,3 +15377,35 @@ page assist 的设置里面左边的openai兼容API里面填网上的API
 
 硅基流动的url就填 [https://api.siliconflow.cn/v1](https://api.siliconflow.cn/v1)
 
+
+*****
+
+####  怀沙汨罗  
+##### 1182#       发表于 2025-2-3 10:49
+
+老哥们，请问部署知识库能够辅助ds跑团时记住设定吗？我发现它很容易忘了人物属性和装备效果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zerona  
+##### 1183#       发表于 2025-2-3 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338046&amp;ptid=2243718" target="_blank">orecheng 发表于 2025-2-3 10:36</a>
+
+page assist 的设置里面左边的openai兼容API里面填网上的API
+
+硅基流动的url就填 https://api.siliconflow ...</blockquote>
+感谢。我现在能用了。 如果想测试穿甲效果的话是不是在右侧的当前聊天模型设置瞎的临时系统提示添加 穿甲提示？
+
+
+*****
+
+####  YaZ  
+##### 1184#       发表于 2025-2-3 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67330346&amp;ptid=2243718" target="_blank">qwased 发表于 2025-2-2 00:02</a>
+怎么回事呢</blockquote>
+全世界都在说中国话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

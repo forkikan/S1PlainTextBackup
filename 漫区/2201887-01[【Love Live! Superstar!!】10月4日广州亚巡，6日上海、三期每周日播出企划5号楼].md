@@ -15092,3 +15092,16 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ViyViy  
+##### 1467#       发表于 2025-2-3 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67336532&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-2-2 23:07</a>
+
+草(废太子是吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+主要是前阵子大眼睛平台那些乱咬人阴阳怪气的真的看着太招笑了，叔叔的新企划评论区还有零星几个带话题的；贵企划当朝太子只是能多上上电视上拼盘，真该出力拉质和量的方面全部平庸甚至以下的话， 那谁来戴这个帽子都是流口水；
+

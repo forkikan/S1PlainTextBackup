@@ -1232,3 +1232,25 @@ https://www.bilibili.com/video/BV1r2FyeJETi
 </blockquote>
 魁北克闹分裂又不是第一次了，问卷和实际情况两码事。美国政府连自己本土都管理不好，真吞加拿大，那才叫好日子在后面
 
+
+*****
+
+####  Steel.Haze  
+##### 112#       发表于 2025-2-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133203&amp;ptid=2237116" target="_blank">变老的大二 发表于 2025-1-8 23:56</a>
+
+最麻幻想</blockquote>
+以纯战略而言，概念拥核并能小型化做成铁炸弹（巴基斯坦水平），然后配备J35，确实能实现吓阻效果。
+
+*****
+
+####  问道于盲  
+##### 113#       发表于 2025-2-3 10:52
+
+<blockquote>wlbthh 发表于 2025-2-3 04:15
+你真硬吞加拿大可就真的铁扇公主吞猴哥了，纯文化接近又内部异见可猛了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？
+

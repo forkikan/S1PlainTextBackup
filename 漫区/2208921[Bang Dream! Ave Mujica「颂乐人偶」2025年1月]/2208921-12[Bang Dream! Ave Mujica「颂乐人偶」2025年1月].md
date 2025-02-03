@@ -7903,3 +7903,26 @@ pop灯与pipi祥
 她打心底承认那些工作都应该属 ...</blockquote>
 不接表演工作感觉更像是心态崩了，“明明没有线却看到它断掉”，后面莫上场真演的时候对喵梦的冲击反而没那次断线大。
 
+
+*****
+
+####  看穿一切的鱼  
+##### 16963#       发表于 2025-2-3 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338005&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-3 10:29</a>
+内鬼一个就够了，炸个高中生乐队还放那么多内鬼幕后黑手这是有多恨乐队</blockquote>
+一个内鬼还可以怪大祥处理不当，四个都是内鬼那只能是世界的错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iiiiiiiiii  
+##### 16964#       发表于 2025-2-3 10:52
+
+<blockquote>zhzij111 发表于 2025-2-3 09:47
+又是叛徒又是大手，疯狂的抠细节，不知道还以为看的是寒蝉楼，这是不是片要烂的一个共性
+
+—— 来自 鹅球 v ...</blockquote>
+不能因为寒蝉烂，所以此类片都是烂。这是逻辑谬误
+
