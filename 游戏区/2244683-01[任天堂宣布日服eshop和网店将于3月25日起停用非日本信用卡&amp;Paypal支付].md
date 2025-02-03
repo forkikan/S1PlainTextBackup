@@ -2097,3 +2097,23 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  leyenda  
+##### 209#       发表于 2025-2-3 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67318227&amp;ptid=2244683" target="_blank">君往何处 发表于 2025-1-31 10:09</a>
+
+个人会员可以，家庭不行
+
+https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
+我一直是家长，点卡开的，不过我是美区，虽然这攻略也说美区不行
+
+*****
+
+####  五月之雨  
+##### 210#       发表于 2025-2-3 19:55
+
+美区点卡淘宝都78折 早就开小号上美服了
+

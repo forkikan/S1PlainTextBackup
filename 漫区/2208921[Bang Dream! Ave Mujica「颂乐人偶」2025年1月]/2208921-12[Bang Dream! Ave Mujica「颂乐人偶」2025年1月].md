@@ -9530,3 +9530,60 @@ okok好饿
 我感觉灯祥是分道扬镳后才好吃。故事起点+萍水相逢的天作之合最后分道扬镳意难平配置+两个团故事的中心人物+强镜像的个人命题+各自最初的突破点和转变的推动力，堆料堆得夸张
 感觉好像明白了为什么说像llx了（）
 
+
+*****
+
+####  凉良  
+##### 17103#       发表于 2025-2-3 19:46
+
+啊 怎么都说要重组c团了
+
+*****
+
+####  595505568  
+##### 17104#       发表于 2025-2-3 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341124&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-3 19:46</a>
+啊 怎么都说要重组c团了</blockquote>
+因为祥子在MyGO第八话说了，C团死了，绝无复活的可能
+但是祥子自己是回旋镖体质，一定会打自己
+GO-7/8的素世复活失败了，那祥子必然需要反过来希望复活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 17105#       发表于 2025-2-3 19:51
+
+本来祥子就是硬拆c团后走上歪路的，让她回溯到黑刀之夜用正确的方法结束c团作为塑造的转折点确实符合创作逻辑
+
+*****
+
+####  blackeryuri2  
+##### 17106#       发表于 2025-2-3 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341133&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 19:48</a>
+
+因为祥子在MyGO第八话说了，C团死了，绝无复活的可能
+
+但是祥子自己是回旋镖体质，一定会打自己
+
+GO-7/8的 ...</blockquote>
+祥子会希望ccc复活我觉得理由必须得充分点，不然祥子就像个小丑（）
+
+*****
+
+####  厚乳果珍爽  
+##### 17107#       发表于 2025-2-3 19:54
+
+假药太搞了吧，你说一个玩乐队的，全员酒厂，玩个乐队，至于吗？
+
+*****
+
+####  一心而用  
+##### 17108#       发表于 2025-2-3 19:54
+
+https://b23.tv/yZL0ObO
+<img src="https://p.sda1.dev/21/a1a69301c6fc14f3867b2c881e8ca2ac/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/feb1ebcb8c3bc5266e22a0bca24f723b/image.jpg" referrerpolicy="no-referrer">
+

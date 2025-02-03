@@ -415,3 +415,11 @@ ae阶up快来了，该备战藤蔓，希望能凑够保底（还差一百石）
 答：不开20绊就行了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16215#       发表于 2025-2-3 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">杀狐还剩60W就15绊了 红卡已经要不能用了
+
