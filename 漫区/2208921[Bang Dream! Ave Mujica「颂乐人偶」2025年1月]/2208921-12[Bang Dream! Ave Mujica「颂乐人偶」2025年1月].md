@@ -11622,3 +11622,55 @@ Like father， like daughter
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  carigura  
+##### 17273#       发表于 2025-2-4 02:18
+
+海铃低头叫醒睦和提醒睦走错方向那个担忧的镜头足够表达她对队员的关心了，mygo13+鸡1-4前半这个团怎么看都是不至于直接解散的，母鸡卡黑色五分钟太变态了
+
+简直像是制作组内部有人从前四集的内鬼说直接改成第五集的复辟c团说一样
+
+*****
+
+####  杂灰  
+##### 17274#       发表于 2025-2-4 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342917&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-4 01:26</a>
+
+真要说祥子狗第八集和鸡里面和初华的对话才是软的不可思议</blockquote>
+祥子对老队员主打一个逃和防，对睦是撒娇，对陌生人则是拉开距离，初华无关祥子的人生污点所以可以放松回归白祥
+
+*****
+
+####  小博禹  
+##### 17275#       发表于 2025-2-4 02:20
+
+祥p的人生污点是指crychic吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 17276#       发表于 2025-2-4 02:21
+
+那现在祥子又跑了是不是觉得初华的部分算自己人生污点了，接下来初华还要进暴怒阶段，祥子这下真跑不掉了
+
+*****
+
+####  zhoujin8584  
+##### 17277#       发表于 2025-2-4 02:22
+
+<blockquote>杂灰 发表于 2025-2-4 02:19
+祥子对老队员主打一个逃和防，对睦是撒娇，对陌生人则是拉开距离，初华无关祥子的人生污点所以可以放松回 ...</blockquote>
+说到这个，看初华soyo化后我又把mygo那一段拉出来品，得出的结论是初华可能也被祥子拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杂灰  
+##### 17278#       发表于 2025-2-4 02:23
+
+说起来 祥子怎么做到同居这么多天都没让初华发现自己是羽丘学生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
