@@ -8740,3 +8740,34 @@ Ave Mujica 5th LIVE 确定！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  金属化反射装甲  
+##### 17031#       发表于 2025-2-3 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339618&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-3 15:12</a>
+
+参考机战游戏重置世界线吧，种自剧场版是去年才出的，整整十几年我看到鸟党们都是在玩机战的方式切割动画 ...</blockquote>
+呃，就近拿go团当例子，进游戏确实会把动画剧情再演一遍的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 17032#       发表于 2025-2-3 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339613&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-3 15:11</a>
+
+有事考虑现实性，没事底层逻辑，这就是我们邦多利</blockquote>
+非要引入这么多唬头元素而不是在go团气氛（哪怕是素世也没得双重人格吧）下推动C团剧本是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 17033#       发表于 2025-2-3 15:27
+
+母鸡卡的各种假药：叙诡论，四演一，抓内鬼本质就是在给前期剧情找补，毕竟大家都不想看到一个前后割裂的故事。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

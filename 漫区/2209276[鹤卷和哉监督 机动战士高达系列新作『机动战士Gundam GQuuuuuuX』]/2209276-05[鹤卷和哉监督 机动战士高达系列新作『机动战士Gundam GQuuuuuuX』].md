@@ -7134,3 +7134,41 @@ NT嘛，要相信很容易，但是鸭子年轻的时候比较中二，谁都不
 不过我感觉兰巴在吉翁还是会 ...</blockquote>
 85年还开老虎这是直接叫他送死了，多少给台大魔吧（
 
+
+*****
+
+####  oi99o  
+##### 6460#       发表于 2025-2-3 15:18
+
+兴通报19亿
+
+<img src="https://img.saraba1st.com/forum/202502/03/151827a0tuijvan00hqhh0.jpg" referrerpolicy="no-referrer">
+
+<strong>img_5157.jpg</strong> (325.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 15:18 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  YU_JI  
+##### 6461#       发表于 2025-2-3 15:23
+
+<blockquote>纪寞 发表于 2025-2-3 15:02
+85年还开老虎这是直接叫他送死了，多少给台大魔吧（</blockquote>
+答案是现代化改造
+
+*****
+
+####  猪突猛进R  
+##### 6462#       发表于 2025-2-3 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339574&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-3 15:02</a>
+
+85年还开老虎这是直接叫他送死了，多少给台大魔吧（</blockquote>
+给台肯普法吧，也是蓝色的。
+
