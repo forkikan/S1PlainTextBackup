@@ -188,3 +188,28 @@ yin兽*2
 
 待机间反复换号发anti言论超过一年以上的这个团队大概真的要被起诉了
 
+
+*****
+
+####  holofan  
+##### 10744#       发表于 2025-2-4 00:21
+
+直播里提到的这周末有企划？箱企划？要发表
+
+还有taiyaki的发表也是这周
+
+*****
+
+####  holofan  
+##### 10745#       发表于 2025-2-4 00:26
+
+<img src="https://img.saraba1st.com/forum/202502/04/002638xhqm1qpqgceeczy2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 00:26 上传
+
+这播放量bug了？78万！？
+

@@ -10970,3 +10970,52 @@ https://www.saraba1st.com/2b/thread-2244777-1-1.html
 
 不是說一聲這是角色特質就能包餃子
 
+
+*****
+
+####  adretyu67.  
+##### 17219#       发表于 2025-2-4 00:18
+
+ 本帖最后由 adretyu67. 于 2025-2-4 00:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342663&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 00:12</a>
+
+我并非反对”不讨喜“，也并非坚持必须道歉，只是和素世搞事时的隐蔽性相比，独角兽和柿本在瞄梦时期拙劣 ...</blockquote>
+喵梦其实也没多顺，摘面具的是她。结果吃到流量大头的是sumi和木头人。
+
+中途那片报道就没提她。
+
+*****
+
+####  aptx8285144  
+##### 17220#       发表于 2025-2-4 00:19
+
+大祥的欺软怕硬，瞄梦喜欢按自己流量至上的独走，这两个负面特质（更别说瞄梦可能还没爆完）可比素世缺乏传统母爱而幻想复辟要难解决太多了，毕竟乐队是个家这个解决方式相对自然的，另外两人的负面特质就算包个饺子过去了，不有所反思，不就是现在把饺子包完了，以后这不还是定时炸弹吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 17221#       发表于 2025-2-4 00:21
+
+喵梦第五话有个练鼓推掉经纪人推荐角色的场景，还是能救的。
+
+大祥这脾气就不好救了。
+
+
+*****
+
+####  玖羽  
+##### 17222#       发表于 2025-2-4 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342663&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 00:12</a>
+
+我并非反对”不讨喜“，也并非坚持必须道歉，只是和素世搞事时的隐蔽性相比，独角兽和柿本在瞄梦时期拙劣 ...</blockquote>
+参见我之前的说法，你觉得Soyo的行为不严重，是因为你已经适应MyGO的海拔高度了，如果换到MyGO刚播出的时候，你站在传统偶像动画的海拔去看，你照样会觉得Soyo极度恶劣、根本没法洗
+
+<img src="https://img.saraba1st.com/forum/202502/04/002244onkxaqqnianktqaj.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (145.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 00:22 上传
+
