@@ -11824,3 +11824,42 @@ c团对立希来说最大价值就是遇到灯，虽然对祥子有劣等感但�
 crychic解散的真正原因或许还没有揭露</blockquote>
 真不如怀孕论吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在宁愿相信祥p是怀了偷摸零或者睦子米的孩子才解散的
 
+
+*****
+
+####  小博禹  
+##### 17294#       发表于 2025-2-4 02:55
+
+干脆鸡团五人都有双重人格好了，正好对应母鸡卡世界观<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+说起这个，前两天还见过一个木箱糖：祥一个月没去找睦是因为第二人格ob女士还要一个月才出生，对应祥比睦晚出生一个月
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 17295#       发表于 2025-2-4 02:56
+
+话说现在的小睦和mortis，有op里和开播前倒计时鬼图的感觉吗？应该还是没有吧。
+就算考虑上最近流行的小睦被迫加入了解散mujica计划的内鬼说，应该也不是这种表情啊。
+
+那种鬼图里的狂喜感，兴奋感，小睦到底还藏着什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  carigura  
+##### 17296#       发表于 2025-2-4 03:02
+
+猫猫上完buff就有了
+
+*****
+
+####  杂灰  
+##### 17297#       发表于 2025-2-4 03:03
+
+灯祥过过夜，怀孕论还没死，只是孕期有那么一丢丢长
+
