@@ -458,3 +458,13 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 
 还是那个味儿 第一章夜晚前的剧情不就是强行注水，让前作有名有姓的人物都露个脸
 
+
+*****
+
+####  orangee  
+##### 7574#       发表于 2025-2-4 00:55
+
+今天慢悠悠打了七个多小时才到游戏里吃中午饭，我都吃两顿饭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

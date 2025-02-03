@@ -2207,3 +2207,11 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 刚才据群友说，DMM那边也更新了条款，要求必须用日本本土自己的卡才能氪金
 
+
+*****
+
+####  sunnyjee  
+##### 219#       发表于 2025-2-4 00:49
+
+先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就不知道了
+

@@ -721,3 +721,11 @@ x上看到最离谱的还是有个小孩就在附近，也看到了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了图，连乳贴都没上，厉害了……
 
+
+*****
+
+####  叹希奇  
+##### 84#       发表于 2025-2-4 00:55
+
+[https://x.com/dom_lucre/status/1886197074330366403](https://x.com/dom_lucre/status/1886197074330366403)
+
