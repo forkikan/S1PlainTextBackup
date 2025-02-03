@@ -10401,3 +10401,194 @@ mujica搞音乐和演戏的成分矛盾不可调和，炸团是板上钉钉的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厚乳果珍爽  
+##### 17176#       发表于 2025-2-3 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342430&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:24</a>
+
+不过要是祥子知道睦不擅长应付公关活动还接受媒体的要求，这才是真正的烂完了，把木头往火坑里推呗
+
+——  ...</blockquote>
+知道的啊， 一直有在拦着，之前上节目还替睦说过“玩偶是没有父母的”
+
+但是人家节目指命要睦上，你也没办法不是，如果不上，喵梦是不是就有意见了？
+
+*****
+
+####  天空塔书记官  
+##### 17177#       发表于 2025-2-3 23:28
+
+ 本帖最后由 天空塔书记官 于 2025-2-3 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342450&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-3 23:27</a>
+知道的啊， 一直有在拦着，之前上节目还替睦说过“玩偶是没有父母的”
+
+但是人家节目指命要睦上，你也没办 ...</blockquote>
+这乐队是喵梦说的算吗 ？
+
+她反对有什么用 ?
+
+如果祥子连这魄力都没有，那这乐队都算是散晚了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 17178#       发表于 2025-2-3 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67333559&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-2 14:27</a>
+
+我的理论是这样的，假设传统偶像动画是海拔0米，MyGO是海拔2000米，Mujica是海拔4000米，如果你适应了MyGO的空气，你会觉得Mujica呼吸困难，但是如果你只看过传统偶像动画，你也会同样觉得MyGO呼吸困难，现在你只觉得Mujica呼吸困难，恰恰是你适应了MyGO的结果
+
+所以我推荐这个初见MyGO解说，可以提供新鲜大脑的真实视角：[https://www.bilibili.com/video/BV1Egf6YvErr/](https://www.bilibili.com/video/BV1Egf6YvErr/)</blockquote>
+这人对第8话的评价：[https://www.bilibili.com/video/BV1CnFee4EEs/](https://www.bilibili.com/video/BV1CnFee4EEs/)
+
+“你们做这个动画，最终不还是要养成角色粉，叫人到游戏里抽卡吗？谁会想抽她的卡啊？”
+
+“我看回复，很多人说最后变成了Soyo粉，这要怎么洗啊，我完全想不到怎么洗啊”
+
+是不是很眼熟，类似的话是不是已经看过无数遍了
+
+<img src="https://img.saraba1st.com/forum/202502/03/232617n2wn252d5nz835zy.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (148.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/232617hildx41qo1ons3x1.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (102.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/232617m2x2zsfqqj9gocy3.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (121.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/03/232617b1f2aj2q2fqgw2qk.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (145.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 23:26 上传
+
+*****
+
+####  adretyu67.  
+##### 17179#       发表于 2025-2-3 23:28
+
+主要是分工问题
+
+其他人都有别的事，就木头人自己工作量小。
+
+导致墨提斯顶号了。
+
+但是鸡团问题不是在音乐和演戏之间无法取舍吗，甚至越来越偏演戏了。
+
+*****
+
+####  凉良  
+##### 17180#       发表于 2025-2-3 23:29
+
+这乐队不就喵萌说了算吗 要摘面具摘面具 要挖人挖人 要解散解散
+
+*****
+
+####  LeonsCat  
+##### 17181#       发表于 2025-2-3 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342430&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:24</a>
+
+不过祥子知道睦不擅长应付公关活动还接受媒体的要求，这不才是真正的烂完了，她本可以以乐队活动为由替睦挡 ...</blockquote>
+你别把丰川P当金属乐队的灵魂人物看，得把她当少女偶像团的Producer看，没让睦月之森中退、至少转学到堀越高艺能科方便各种艺能活动就算是仁慈了。
+
+*****
+
+####  小博禹  
+##### 17182#       发表于 2025-2-3 23:31
+
+前几集的醋不就是睦头采访很难受、吉他也不开心，“从来没觉得组乐队开心过”。
+结合场外的半身说，证明一切都是大祥老师的错❌，不关心自己半身，更是在第三集亲手杀死了睦睦，之后母鸡卡的解散就是定局了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  南宮凝香  
+##### 17183#       发表于 2025-2-3 23:32
+
+睦頭爆掉那裡就是顯示祥子已經控不住，
+
+被潮流推著走了
+
+她之前口裡說要慢慢來，維持音樂性
+
+但壓不下媒體的要求那就只能當風口的豬了
+
+*****
+
+####  嵇翱u  
+##### 17184#       发表于 2025-2-3 23:33
+
+故意把睦推火坑有点过分了，内鬼说就算有人针对祥子，那也是大家无心为恶，到最后可以虽恶不罚。
+
+但有角色故意给睦加压，那现在睦精神崩溃了是不是要担责，最后怎么偿还睦<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 17185#       发表于 2025-2-3 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342451&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:28</a>
+
+这乐队是喵梦说的算吗 ？
+
+她反对有什么用 ?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/063.png" referrerpolicy="no-referrer">你看，这不是解散了吗？
+
+*****
+
+####  天空塔书记官  
+##### 17186#       发表于 2025-2-3 23:33
+
+回到我的那个“影舞者”猜想，搞不好以前应付公关的一直都是睦，所以祥子习惯性地都推给她了 ? 还是有点太奇怪了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杂灰  
+##### 17187#       发表于 2025-2-3 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342451&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:28</a>
+这乐队是喵梦说的算吗 ？
+
+她反对有什么用 ?</blockquote>
+不关事，基本上都是事务所指定的，初华有sumimi，喵和海铃没咖位，所以顶不了，祥子自己是总指挥因为大喵摘面具也是焦头烂额，但母鸡卡已经开始起飞了商业活动没得不接
+
+*****
+
+####  595505568  
+##### 17188#       发表于 2025-2-3 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342492&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-3 23:33</a>
+回到我的那个“影舞者”猜想，搞不好以前应付公关的一直都是睦，所以祥子习惯性地都推给她了 ? 还是有点太 ...</blockquote>
+不合常理吧，她俩一个肯定经常一起和爸妈出镜，但是集团大小姐没有刚性的采访需求啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
