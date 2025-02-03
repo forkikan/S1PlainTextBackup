@@ -15363,3 +15363,17 @@ https://pageassist.xyz/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  orecheng  
+##### 1181#       发表于 2025-2-3 10:36
+
+ 本帖最后由 orecheng 于 2025-2-3 10:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337065&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-3 00:38</a>
+
+没有本地模型的话，这个能挂api吗？</blockquote>
+page assist 的设置里面左边的openai兼容API里面填网上的API
+
+硅基流动的url就填 [https://api.siliconflow.cn/v1](https://api.siliconflow.cn/v1)
+
