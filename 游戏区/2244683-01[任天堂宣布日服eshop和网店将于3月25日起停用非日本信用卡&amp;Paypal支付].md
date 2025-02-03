@@ -2064,3 +2064,20 @@ https://spotlight.fantia.jp/news/20250201_paymentplan
 
 那日亚其实也会没救<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oidoid  
+##### 207#       发表于 2025-2-3 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339616&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-2-3 15:12</a>
+
+那么eshop和官网商店搞3d认证是会有什么技术难度吗？是的话国内卡又要怎么进行本人认证？
+
+论坛助手,iPhone ...</blockquote>
+宝可梦中心他这个还没施行，但是说了理由是要导入认证系统，2/28之后要重新登陆支付方式
+
+而且考虑到日本不可能有国内这种面部认证的能力，估计最多就是手机号码短信验证。
+
+所以最可能的……不想做日本以外的手机验证系统？
+
