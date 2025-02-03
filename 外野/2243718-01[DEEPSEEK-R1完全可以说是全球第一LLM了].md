@@ -15473,3 +15473,22 @@ Cherrystudio正常输出。<img src="https://static.saraba1st.com/image/smiley/f
 Cherrystudio正常输出。 ...</blockquote>
 那怎么在cline里调出来？cline好像什么都不能调
 
+
+*****
+
+####  real_zyf  
+##### 1191#       发表于 2025-2-3 11:37
+
+cline要think的内容干啥...
+
+
+*****
+
+####  zerona  
+##### 1192#       发表于 2025-2-3 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338215&amp;ptid=2243718" target="_blank">orecheng 发表于 2025-2-3 11:03</a>
+
+设置-管理提示词-添加新提示词-是否作为系统提示词</blockquote>
+行了，多谢了。设置的基本差不多了。我先删掉官网的，没发充值，钱用光就彻底不能用了。
+

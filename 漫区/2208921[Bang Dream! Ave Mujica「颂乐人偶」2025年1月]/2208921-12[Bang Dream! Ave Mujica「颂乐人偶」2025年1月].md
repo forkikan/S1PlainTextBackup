@@ -8034,3 +8034,29 @@ OP里有五把剑插在地上的画面，这样分析没啥意义<img src="https
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为什么现在都是根据母鸡来判断鸡蛋好不好吃呢，绫圣再润一次你就知道绝望了
 
+
+*****
+
+####  嵇翱u  
+##### 16974#       发表于 2025-2-3 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338404&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-3 11:30</a>
+如果有愧疚想重聚就能聚的话，下两话ccc就该永久复活了。
+
+—— 来自 S1Fun ...</blockquote>
+ccc有三个人是被伤害的啊，而且已经组mygo了。不能用过去的愧疚制造新的愧疚感。
+母鸡卡可以用愧疚重组因为她们解散后就没乐队了，只有海玲有一堆乐队可来可不来，不过既然可来可不来那来了也正常。
+再说进了游戏怕不是ccc团活直接拉满，灯祥，素祥，素睦，希祥，鸡狗和老团过于分割导致鸡狗两团的紧密度远超老团，别提这十个人里还有五个人组过一次乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 16975#       发表于 2025-2-3 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337199&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-3 01:24</a>
+
+说起来独角兽还真的蛮厕妹的。狗篇里明明错的是祥子，但是让素世追着道歉；明明错的是素世，但是让爱音追着 ...</blockquote>
+而且素世到现在也没给爱音道歉，其实观众主要是看在那句世纪名言的面子上接纳她了，所以我很怀疑放在瞄梦上到时候官方的操作会更抽象<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
