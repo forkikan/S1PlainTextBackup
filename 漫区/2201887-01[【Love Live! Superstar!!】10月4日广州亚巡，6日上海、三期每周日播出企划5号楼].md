@@ -15117,3 +15117,35 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1469#       发表于 2025-2-3 19:55
+
+为啥特典是这家店，不去Lapis拍一张吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/03/195453gqmltz1kqkl814hq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 19:54 上传
+
+
+*****
+
+####  ViyViy  
+##### 1469#       发表于 2025-2-3 19:55
+
+为啥特典是这家店，不去Lapis拍一张吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/03/195453gqmltz1kqkl814hq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-3 19:54 上传
+

@@ -9587,3 +9587,77 @@ https://b23.tv/yZL0ObO
 <img src="https://p.sda1.dev/21/a1a69301c6fc14f3867b2c881e8ca2ac/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/feb1ebcb8c3bc5266e22a0bca24f723b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 17109#       发表于 2025-2-3 19:54
+
+我说实话其实Mujica第十三话应该在下一个春天回到最初的练习室留下最后的合影后各走各的音乐道路是我认为最好的镜像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但我觉得现在看起来为了爆到最后那个饺子不会有人嫌弃不够辣吧（
+
+*****
+
+####  595505568  
+##### 17110#       发表于 2025-2-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341150&amp;ptid=2208921" target="_blank">blackeryuri2 发表于 2025-2-3 19:52</a>
+祥子会希望ccc复活我觉得理由必须得充分点，不然祥子就像个小丑（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦的心魔第三话里说起来是C团开始的，但我觉得到底是谁提出再来一次的live到底是谁我还不确定，也许最后做决策和下定决心开始对过往的伤害做补偿的是祥子；但发起人要么与C团无关，要么是当年留到最后的那个守墓人。
+你要人开始逆势上扬就得开始认清自我的同时控制自我的缺陷了，咬着牙为他人着想开始利用自己的执行力去行动也可以开始补弧光了
+
+*****
+
+####  ape-apple  
+##### 17111#       发表于 2025-2-3 20:00
+
+还在厕妹还在厕妹，当过ptg的就知道你男大饭圈起来压根不比女粉差，詹粉科蜜是被女追星族鸿儒大脑才从你好我好篮球爱好者升级的吗，为什么是一套班子做两个团，因为这样比较方便，做一个C团也根本爆不起来
+
+*****
+
+####  fuwamoco  
+##### 17112#       发表于 2025-2-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341173&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 19:58</a>
+
+睦的心魔第三话里说起来是C团开始的，但我觉得到底是谁提出再来一次的live到底是谁我还不确定，也许最后 ...</blockquote>
+睦的心魔是她自己，她不能让吉他唱歌，然后在ccc越来越严重，最后黑刀之夜她自说自话被其他人误解了。
+
+大概是想发出自己的声音而不是照谱弹的意思，猫猫这种自由过头的吉他可能是她的理想
+
+
+*****
+
+####  595505568  
+##### 17109#       发表于 2025-2-3 19:54
+
+我说实话其实Mujica第十三话应该在下一个春天回到最初的练习室留下最后的合影后各走各的音乐道路是我认为最好的镜像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但我觉得现在看起来为了爆到最后那个饺子不会有人嫌弃不够辣吧（
+
+*****
+
+####  595505568  
+##### 17110#       发表于 2025-2-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341150&amp;ptid=2208921" target="_blank">blackeryuri2 发表于 2025-2-3 19:52</a>
+祥子会希望ccc复活我觉得理由必须得充分点，不然祥子就像个小丑（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦的心魔第三话里说起来是C团开始的，但我觉得到底是谁提出再来一次的live到底是谁我还不确定，也许最后做决策和下定决心开始对过往的伤害做补偿的是祥子；但发起人要么与C团无关，要么是当年留到最后的那个守墓人。
+你要人开始逆势上扬就得开始认清自我的同时控制自我的缺陷了，咬着牙为他人着想开始利用自己的执行力去行动也可以开始补弧光了
+
+*****
+
+####  ape-apple  
+##### 17111#       发表于 2025-2-3 20:00
+
+还在厕妹还在厕妹，当过ptg的就知道你男大饭圈起来压根不比女粉差，詹粉科蜜是被女追星族鸿儒大脑才从你好我好篮球爱好者升级的吗，为什么是一套班子做两个团，因为这样比较方便，做一个C团也根本爆不起来
+
+*****
+
+####  fuwamoco  
+##### 17112#       发表于 2025-2-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341173&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 19:58</a>
+
+睦的心魔第三话里说起来是C团开始的，但我觉得到底是谁提出再来一次的live到底是谁我还不确定，也许最后 ...</blockquote>
+睦的心魔是她自己，她不能让吉他唱歌，然后在ccc越来越严重，最后黑刀之夜她自说自话被其他人误解了。
+
+大概是想发出自己的声音而不是照谱弹的意思，猫猫这种自由过头的吉他可能是她的理想
+
