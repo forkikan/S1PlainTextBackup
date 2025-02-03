@@ -853,3 +853,24 @@ OP、ちょこっと参加させていただきました
 —— 来自 鹅球 v3.3.96</blockquote>
 我本来以为蓝色是在看粉色，原来是在偷偷瞄紫色
 
+
+*****
+
+####  离心  
+##### 349#       发表于 2025-2-3 16:26
+
+第一集看完了，确实挺传统的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  达达葱2  
+##### 350#       发表于 2025-2-3 16:26
+
+<blockquote>离心 发表于 2025-2-3 16:26
+第一集看完了，确实挺传统的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+是好事还是坏事
+

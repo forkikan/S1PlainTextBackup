@@ -7252,3 +7252,36 @@ MS-07R-35<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" r
 
 更类似0083年代的水平。彼时大魔都算高级量产机。老虎和扎古改都可以一战的。吉翁高达仿制型也没有规模化迹象。
 
+
+*****
+
+####  猪突猛进R  
+##### 6470#       发表于 2025-2-3 16:19
+
+ 本帖最后由 猪突猛进R 于 2025-2-3 16:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339906&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-2-3 16:13</a>
+
+实际上对面是装备不齐不太会开的女主机（大概也就精神力GP01FB档次）和实际上Bit用完在耍流星锤的78...那 ...</blockquote>
+GP01打老虎已经是虐菜了吧，我看你是扎比家的谋士吧，让旧戴肯派名誉战死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 6471#       发表于 2025-2-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339940&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-2-3 16:19</a>
+
+GP01打老虎已经是虐菜了吧，我看你就是想兰巴死</blockquote>
+GP01其实沙漠战还在和一堆扎古周旋，宇宙战没换背包时一度被勇士打爆，虽然优势明显，但是本身也有问题没法拉开革命性差距。我其实想看改装老虎暴打78和主角机。
+
+*****
+
+####  纪寞  
+##### 6472#       发表于 2025-2-3 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339906&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-2-3 16:13</a>
+
+实际上对面是装备不齐不太会开的女主机（大概也就精神力GP01FB档次）和实际上Bit用完在耍流星锤的78...那 ...</blockquote>
+但是我们gqx85年就有能媲美独角兽级别的脑控机和i力场盾牌呢（
+
