@@ -7974,3 +7974,44 @@ OP里有五把剑插在地上的画面，这样分析没啥意义<img src="https
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  0WHan0  
+##### 16968#       发表于 2025-2-3 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67319212&amp;ptid=2208921" target="_blank">MERCCCP 发表于 2025-1-31 12:05</a>
+这集播出后
+
+一想到在这个楼和以前的“鸡狗”楼里开足马力切割的那几位
+
+就令人感叹 ...</blockquote>
+说实话mygo十三集灯给祥子递本子这一情节显然说明mujica里灯肯定有戏份，难道这些毒唯不看动画只看访谈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 16969#       发表于 2025-2-3 11:21
+
+最后想了一下全员内鬼还是有点不太行，首先海玲知不知情是完全无所谓的，她在这部分本来就没起到推进的作用，睦知不知情我本来的逻辑线是她单独找3人聊很奇怪，但是想了下既然有3集结尾黑刀之夜的ptsd发作，从感性上感觉会解散所以找每个人单独聊还是蛮顺的逻辑，所以睦的逻辑线两边都解释的通。大喵的逻辑不需要她是不是内鬼，她只需要被误导就行了，和大手有没有接点根本无关紧要。只有初华这发言串过头了很难认为不是内鬼，所以全员内鬼说本质还是初华内鬼说,不用特意衍生。
+
+
+*****
+
+####  wwwttth  
+##### 16970#       发表于 2025-2-3 11:25
+
+第二集美奈美电影部分也是明确指向了一个叛徒，剩下3个是迁怒，没啥必要搞成全员内鬼这么变态的东西……
+
+*****
+
+####  新HGCG  
+##### 16971#       发表于 2025-2-3 11:25
+
+独角兽在说“请等我新工作的告知”后转发了偶Q
+<img src="https://img.saraba1st.com/forum/202502/03/112456mxm3egvrqxxi3nxr.jpg" referrerpolicy="no-referrer">
+
+莫非……？
+
