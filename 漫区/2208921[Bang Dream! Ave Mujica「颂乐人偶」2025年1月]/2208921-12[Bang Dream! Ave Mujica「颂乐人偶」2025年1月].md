@@ -11113,3 +11113,71 @@ Soyo 那放在現實就是洒洒水的屁事， 也就在樂隊番有問題 ...<
 
 <strong>爱音是越到后面和另外九个人气质差异太大了</strong>（讽刺的是如果问我看上去除了她之外好像最正常是谁，似乎是立希，问题是她的戏份不够多），以至于弹幕和楼里都有人吐槽爱音仿佛不是这个片场的人（tam这不就是拉克丝吗？）  让大祥完成对瞄梦的包容或领导，达到爱音对素世的效果，感觉好难，想自然而然更难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 17232#       发表于 2025-2-4 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342753&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-4 00:31</a>
+偶像女团的话，野心过大的喵梦给她一个分团打发到地方去，她能自己搞成P。
+
+但是心比天高的大小姐就不好说 ...</blockquote>
+真要论现实祥子这点算个啥问题啊 也就是女女关系动画里难解决罢了。财阀大小姐这设定现实里可比动画里强多了。
+
+*****
+
+####  天空塔书记官  
+##### 17233#       发表于 2025-2-4 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342764&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 00:36</a>
+爱音是越到后面和另外九个人气质差异太大了（讽刺的是如果问我看上去除了她之外好像最正常是谁，似乎是立希 ...</blockquote>
+但让喵梦来包容祥子确是可行的，比如让祥子搞出比摘面具更狠的活…这肯定节奏很大就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LeonsCat  
+##### 17234#       发表于 2025-2-4 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342775&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-4 00:38</a>
+
+真要论现实祥子这点算个啥问题啊 也就是女女关系动画里难解决罢了。财阀大小姐这设定现实里可比动画里强 ...</blockquote>
+也就是累死工作人员罢了，毕竟现实里没有米歇尔机甲~
+
+*****
+
+####  单脚着地  
+##### 17235#       发表于 2025-2-4 00:40
+
+能自己打拼成p是指能说出“那些事情交给大人去做不就好了”的大喵吗？
+
+*****
+
+####  友善用户  
+##### 17236#       发表于 2025-2-4 00:42
+
+祥子真欺软怕硬么？
+
+祥子除了没收喵梦手机和拽睦出门，所有矛盾都是靠嘴应对的，只不过对面抗性不同罢了。
+
+
+*****
+
+####  单脚着地  
+##### 17237#       发表于 2025-2-4 00:42
+
+<blockquote>aptx8285144 发表于 2025-2-4 00:36
+爱音是越到后面和另外九个人气质差异太大了（讽刺的是如果问我看上去除了她之外好像最正常是谁，似乎是立希 ...</blockquote>
+我是看完母鸡卡去看卖狗的，第一眼就觉得爱音根本不像这个动画里的角色，她不像是来参加少女乐队的，反而像一个误入规则怪谈的楞头青调查员
+
+*****
+
+####  古明地雷  
+##### 17238#       发表于 2025-2-4 00:44
+
+为什么会觉得祥子欺软怕硬，软硬她都一样的盐，只不过硬的她刚不过罢了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+就说一点，初华对祥子够不够软？祥子有没有凶过她？
+
