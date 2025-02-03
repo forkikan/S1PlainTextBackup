@@ -1254,3 +1254,15 @@ https://www.bilibili.com/video/BV1r2FyeJETi
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？
 
+
+*****
+
+####  initium  
+##### 114#       发表于 2025-2-3 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338140&amp;ptid=2237116" target="_blank">问道于盲 发表于 2025-2-3 10:52</a>
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？</blockquote>
+关键是怎么分辨，护照一撕买个丑国驾照我是加拿大人还是丑国人呢？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
