@@ -11231,3 +11231,190 @@ Soyo 那放在現實就是洒洒水的屁事， 也就在樂隊番有問題 ...<
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 17244#       发表于 2025-2-4 00:59
+
+ 本帖最后由 huxiaopao163 于 2025-2-4 01:01 编辑 
+
+“如今祥子身边最近的就是你啊”
+“祥子就拜托你啦”
+“刚才的话 要对祥子保密哦”
+
+看贴吧分析，之前大家都说这段是mortis复读祥妈，但也可以是复读睦妈啊。然后睦妈把小睦拉进这个内鬼计划里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+毕竟那个有点浮夸的保密手势与微笑，也像是美奈美会做出来的。
+
+小睦嘴还是比较严的，但是也架不住媒体左一句你妈怎么说，右一句你爸怎么说。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  FanFun  
+##### 17245#       发表于 2025-2-4 00:59
+
+祥子对周边哈气几乎都是非主动的
+
+魅魔祥子戏里戏外都太诱人，不断被人缠着应激了
+
+*****
+
+####  iiiiiiiiii  
+##### 17246#       发表于 2025-2-4 01:00
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-4 01:01 编辑 
+
+五个疑问
+
+第一，雨伞问题。初华接祥子和莫提斯送伞的颜色一模一样 是懒得建模还是别有寓意。
+
+<img src="https://img.saraba1st.com/forum/202502/04/005924ks4mbn4s1ya41xzb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_001111_tv.danmaku.bili.jpg</strong> (88.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 00:59 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/005924bjvr0jj14822y2xy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_001046_tv.danmaku.bili.jpg</strong> (87.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 00:59 上传
+
+第二，铁路大战之后睦追祥子的时候被拒绝然后下雨，那么第四集莫提斯给睦为什么递雨伞，是下雨才递雨伞，那么是不是莫提斯给睦递雨伞真实发生过？那么谁是莫提斯
+
+<img src="https://img.saraba1st.com/forum/202502/04/010100nk4vgbe4vlo4eie1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_004600_tv.danmaku.bili.jpg</strong> (101.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 01:01 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/010100rlzlvfl007yklo0y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_001111_tv.danmaku.bili.jpg</strong> (88.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 01:01 上传
+
+第三。第二集失眠的睦第三集突然好了，那么为什么睦会失眠，是抱着吉他睡不着还是在等人。那么谁没有赴约，导致睦等了一个晚上。
+
+<img src="https://img.saraba1st.com/forum/202502/04/010150te1myvtpj2vg28y3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_004221_tv.danmaku.bili.jpg</strong> (107.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 01:01 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/010150dgb14sg9f68g8wn8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_003921_tv.danmaku.bili.jpg</strong> (95.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 01:01 上传
+
+*****
+
+####  LeonsCat  
+##### 17247#       发表于 2025-2-4 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342783&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-4 00:40</a>
+
+能自己打拼成p是指能说出“那些事情交给大人去做不就好了”的大喵吗？</blockquote>
+“给她一个分团打发到地方去”
+
+再想想指涉的是谁~
+
+*****
+
+####  单脚着地  
+##### 17248#       发表于 2025-2-4 01:01
+
+若麦真对祥子硬过吗？在她视角看来她的所做所为都是一个打工人向老板索取之前画好的饼的合理行为，防止自己真被黑心老板坑了而已。所以哪怕车站撕的这么严重了，回到工作她还是该怎样就怎样，猫的底线其实一直都很宽松，甚至祥子一开始引诱她的最大的那个饵，睦家的名人流量，为了母鸡卡这个企划她也觉得该开除就开除了的，说明这个时间点她已经认可祥子带大家做的这个企划了，她是想好好做的。
+
+
+*****
+
+####  LeonsCat  
+##### 17249#       发表于 2025-2-4 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342854&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-4 01:01</a>
+
+若麦真对祥子硬过吗？在她视角看来她的所做所为都是一个打工人向老板索取之前画好的饼的合理行为，防止自己 ...</blockquote>
+考虑到成团才一个月多点，大概率第一笔工资都未必到手，祥子直接拿一叠谕吉抽大喵脸恐怕都问题解决了。别告诉我组织得起这么大阵仗，从公司预支一笔钱有多难，总比赔付违约金简单吧。
+
+*****
+
+####  哈曼的YY  
+##### 17250#       发表于 2025-2-4 01:04
+
+<img src="https://img.saraba1st.com/forum/202502/04/010441ve1x1z1xbqcueuqg.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi0wT3CaYAAHS6X.jpg</strong> (550.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 01:04 上传
+
+[https://x.com/TORASENBEI/status/1886216942505328656](https://x.com/TORASENBEI/status/1886216942505328656)
+
+*****
+
+####  盐盐盐盐盐  
+##### 17251#       发表于 2025-2-4 01:05
+
+祥子那个也不算欺软怕硬，就是越亲近的人面前越容易绷不住开始撒气，情绪是倒给亲朋好友的，对外人则要保持体面大度，这和她从小接受的教育她的高自尊都有关
+
+从这个意义来说祥子确实最亲的是睦，和初华关系就相对远一些，对着喵梦说不出两句话一个是她经常情绪来了自己先懵了，一个就是在喵梦跟前她要装样子（典型的就是睦采访说错话的时候喵梦说你不会偏袒你青梅竹马吧，祥子就不得不说了睦两句以后要注意职业精神）
+
+*****
+
+####  南宮凝香  
+##### 17252#       发表于 2025-2-4 01:07
+
+<blockquote>古明地雷 发表于 2025-2-4 00:54
+怕硬又体现在？</blockquote>
+第一集大喵獨走後該強勢壓下去時她做了什麼？
+
+睦失言喵夢問責時她又幹了什麼？
+
+該硬起來的時候她就不上隨
+
+當然， 怕硬其實不是祥子的主要缺點
+
+可是欺軟是個實打實的問題
+
+不管是朋友或是半身
+
+只要祥子情緒有問題
+
+那就是按關係越近越吃她的冷暴力
+
+你是個放下工作來幫她的朋友？ - 失聯無視
+
+在隔壁班的老相識？ - 別指望她跟你打招呼， 找上門就吃祝你幸福的冷臉吧
+
+舊同學想找她回樂團？ - 還真是滿腦子只有自己， 解釋理由這東西你也配得到？
+
+半身一起吃飯要給錢 - 你TM 看不起我？
+
+半身半死狀態幫不了她說話 - 我只有母雞啦， 你幫幫忙給力點啦
+
+Like father， like daughter
+
