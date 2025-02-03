@@ -9704,3 +9704,36 @@ https://b23.tv/yZL0ObO
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17117#       发表于 2025-2-3 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341253&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-3 20:13</a>
+live前要解决一堆问题，睦go和解，睦吉他复健，祥go和解，祥睦和解
+
+我觉得这live得到第七集才能端上来</blockquote>
+第六话把祥子彻底融化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 17118#       发表于 2025-2-3 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341220&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-3 20:08</a>
+
+所以需要先认清自由弹奏就是灵魂的呐喊，完成锻造的第一步，完成融合的第一步；最后一场Live完成灵魂的淬 ...</blockquote>
+参考睦内心小剧场里那只明显是倒悬者的鸡，浴火重生，换视角（墨提斯）看待问题，从痛苦的体验中获得教训 ，自我牺牲。
+
+确实是融合的暗示，但应该不是她父母是坏人，而是她通过音乐寻求释放情绪的窗口。
+
+*****
+
+####  595505568  
+##### 17119#       发表于 2025-2-3 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341283&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-3 20:18</a>
+参考睦内心小剧场里那只明显是倒悬者的鸡，浴火重生，换视角（墨提斯）看待问题，从痛苦的体验中获得教训 ...</blockquote>
+不是说坏人，应该这么说，比较难在TV和游戏Cpt.1和解的这个状态，这种东西要放Mujica和MyGO混团游戏活动里作为各自的Chapter2的新矛盾去写才好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

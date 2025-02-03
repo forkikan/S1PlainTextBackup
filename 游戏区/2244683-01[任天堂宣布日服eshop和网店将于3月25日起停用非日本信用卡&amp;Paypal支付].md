@@ -2117,3 +2117,24 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 美区点卡淘宝都78折 早就开小号上美服了
 
+
+*****
+
+####  hisousihou  
+##### 211#       发表于 2025-2-3 20:16
+
+美区点卡算上折扣也没日区便宜啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  hlbb  
+##### 212#       发表于 2025-2-3 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339959&amp;ptid=2244683" target="_blank">猫不萌 发表于 2025-2-3 16:20</a>
+
+那日亚其实也会没救</blockquote>
+是啊，那看来日亚也买不了了
+

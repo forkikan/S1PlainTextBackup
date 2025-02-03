@@ -421,3 +421,14 @@
 
 这剧情有点心惊肉跳的，我本来还觉得这不就是庆余年（）
 
+
+*****
+
+####  alucardcz  
+##### 7570#       发表于 2025-2-3 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337518&amp;ptid=2160194" target="_blank">cscbzcbz 发表于 2025-2-3 07:18</a>
+
+不得不说刷羊简直神来之笔，极大提升游戏体验，希望下一代继续可以刷羊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">已经被砍过了 本来是掉所有颜色 现在只掉一种。下作怕不是一种都不掉了（
+

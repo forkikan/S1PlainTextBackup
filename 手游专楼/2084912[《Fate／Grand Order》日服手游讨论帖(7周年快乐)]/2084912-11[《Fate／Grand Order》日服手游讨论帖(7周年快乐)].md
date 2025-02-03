@@ -423,3 +423,16 @@ ae阶up快来了，该备战藤蔓，希望能凑够保底（还差一百石）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">杀狐还剩60W就15绊了 红卡已经要不能用了
 
+
+*****
+
+####  alucardcz  
+##### 16216#       发表于 2025-2-3 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341110&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-3 19:44</a>
+
+杀狐还剩60W就15绊了 红卡已经要不能用了</blockquote>
+欧 羡慕！
+
+为什么萌新杀狐满了！
+

@@ -476,3 +476,40 @@ u管动态，他老婆明显不自在的很。
 
 好厚米<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  时空之旅  
+##### 57#       发表于 2025-2-3 20:18
+
+<blockquote>吐梦 发表于 2025-2-3 18:52
+看过一篇公众号文，侃爷会安排老婆的一切衣着行头，他老婆没有任何穿衣自由 ...</blockquote>
+只能说有钱真好，我也想有钱
+
+*****
+
+####  abcxiawei  
+##### 58#       发表于 2025-2-3 20:18
+
+ 本帖最后由 abcxiawei 于 2025-2-3 20:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340726&amp;ptid=2245061" target="_blank">uyghgyg 发表于 2025-2-3 18:32</a>
+
+怎么老美那边没人骂kanye反女权的吗 只准老婆露自己每次都裹的严严实实的的 还是黑人男拳属zzzq喷不了？
+
+ ...</blockquote>
+之前总统选举，奥巴马拉票，要求自己的黑人选民投民主党的女候选人，不投就是“厌女”。你猜黑人选民什么反应，人家不仅集体不投，甚至反过去投共和党。并表示“别在这给我玩政治正确，我们对这套非常熟悉”
+
+*****
+
+####  wwmmddqqbbpp  
+##### 59#       发表于 2025-2-3 20:19
+
+我还以为隐私部分还是会遮一遮，没想到真开源啊，这play也玩太大了
+
+*****
+
+####  KATE  
+##### 60#       发表于 2025-2-3 20:21
+
+给了多少啊这是，他老婆家也不是穷人啊
+
