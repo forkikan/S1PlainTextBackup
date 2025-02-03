@@ -8060,3 +8060,14 @@ ccc有三个人是被伤害的啊，而且已经组mygo了。不能用过去的�
 说起来独角兽还真的蛮厕妹的。狗篇里明明错的是祥子，但是让素世追着道歉；明明错的是素世，但是让爱音追着 ...</blockquote>
 而且素世到现在也没给爱音道歉，其实观众主要是看在那句世纪名言的面子上接纳她了，所以我很怀疑放在瞄梦上到时候官方的操作会更抽象<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 16976#       发表于 2025-2-3 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67337199&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-3 01:24</a>
+
+说起来独角兽还真的蛮厕妹的。狗篇里明明错的是祥子，但是让素世追着道歉；明明错的是素世，但是让爱音追着 ...</blockquote>
+毕竟素世土下坐时候还能让长颈鹿嗜血且可以猜想祥子为何离去来“转移注意力”，而圣爱音终究是圣爱音，而到了主角祥子成真飞鸟第二，这冲击力基本上就性相当于爱音成真飞鸟第二<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">（毕竟主视角爱音当初是最多的）
+
