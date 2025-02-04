@@ -8290,3 +8290,19 @@ https://x.com/gundam_ab/status/1886702973084164584
 将其考虑为是吉翁尼克在给红敢达增加武装时对火控系统也进行了吉 ...</blockquote>
 实际上这个模块是提姆雷回路，也有人认为骡爹已经被俘了，软件和计算机接口可以在战后往高达型修改了，因为民用和黑拳赛的扎古，已经换了别的系统，可以认为虽然是扎古，但是软件和部分电子系统是战后生产的。高达体系的电子设计整合段和软件设计其实强过吉翁一个位面。吉翁拿到高达后全面考虑这个技术方向也合理。
 
+
+*****
+
+####  岸浪白野  
+##### 6544#       发表于 2025-2-5 01:20
+
+[X 上的 うめウメお：“ジークアクスの中盤のここすき #GQuuuuuuX [url]https://t.co/ej81cLBVtB](https://x.com/libertywander01/status/1886714261361344754)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/05/012035kqhcfrq9dvalq4za.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 01:20 上传
+

@@ -78,3 +78,101 @@ D5J还有某水岛，老登想打中华炮都找不到机会，直接哑火，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Ravio  
+##### 17768#       发表于 2025-2-5 01:18
+
+手游卖角色当然也是一种偶像包装销售，要不怎么那么多在意祥子等人“形象”多“好”的
+
+形象立体完整和一个“好人”是完全不同的概念
+
+*****
+
+####  akiomn  
+##### 17769#       发表于 2025-2-5 01:19
+
+下卷bd画面，执剑人只有海玲和祥子
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">内鬼可能是初华，喵梦，睦
+
+B0960261-7D95-43C2-B95C-5A34EEE844B7.jpeg
+(135.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 01:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/05/011955zytvwaibzqijltit.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 17770#       发表于 2025-2-5 01:20
+
+武士道的卡牌不也是榨角色厨的
+
+除了VG全是靠角色厨包箱开亲签的打法
+
+*****
+
+####  huxiaopao163  
+##### 17771#       发表于 2025-2-5 01:23
+
+丰川集团的广告里强调鸟，mujica和sumimi的经纪公司win-wing-porduction的logo是两个翅膀（第五集喵梦和初华在公司见面时出现），初华在OP的卡牌里有翅膀的图案
+
+又是海猫鸣泣之时吗哈哈
+
+
+*****
+
+####  miomio123  
+##### 17772#       发表于 2025-2-5 01:24
+
+老登塞内鬼还是很合理的，毕竟老登虽然可以用蛮力把孙女抓回去，但抓回去一头倔驴也没啥用，还得是攻心
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 17773#       发表于 2025-2-5 01:24
+
+三人内鬼真太夸张了 我还是觉得如果有内鬼撑死一个
+
+*****
+
+####  古明地雷  
+##### 17774#       发表于 2025-2-5 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348378&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-5 00:11</a>
+
+只爆了兩個人的情況下到第六集完結還在下滑
+
+那剩下三個人爆了是不是要滑到地心了</blockquote>
+初华是帮着拉人还是拯救谁了，不就是点拨一下吗。狗团对鸡团最多也是这个作用。队里的问题必须队里自己的人发挥主观能动性不是理所当然的吗
+
+*****
+
+####  天空塔书记官  
+##### 17775#       发表于 2025-2-5 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348622&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-5 01:20</a>
+武士道的卡牌不也是榨角色厨的
+
+除了VG全是靠角色厨包箱开亲签的打法</blockquote>
+wsd只是负责做卡，除了本家以外，其他的还是甩给ip授权方吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  白水潭的饿鬼  
+##### 17776#       发表于 2025-2-5 01:27
+
+塞内鬼还能让大象一个月速通武道馆吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别告诉我速通武道馆全靠实力
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

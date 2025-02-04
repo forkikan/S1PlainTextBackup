@@ -16587,3 +16587,23 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我要DS帮我分析代码，现在动不动服务器忙 受不了啊！
 
+
+*****
+
+####  月灵银羽  
+##### 1295#       发表于 2025-2-5 01:17
+
+硅基流动的api不能联网搜索吗？我用chatbox给我返回这个
+
+<img src="https://img.saraba1st.com/forum/202502/05/011711wlw7higi088d0gor.png" referrerpolicy="no-referrer">
+
+<strong>img_6226.png</strong> (30.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 01:17 上传
+
+用cherry干脆半天没找到怎么开联网
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
