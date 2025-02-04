@@ -15006,3 +15006,81 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 回头看mygo和mujica…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 17592#       发表于 2025-2-4 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347086&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-4 19:58</a>
+
+有句话说得很对，喜欢洗喵的，大概率是还没出社会工作过的人。</blockquote>
+潜意识里或者行动上会像喵一样做的人也可以是这作品的观众呢<img src="https://static.saraba1st.com/image/smiley/carton2017/067.png" referrerpolicy="no-referrer">
+
+这样的人在社会上也不算少吧？
+
+*****
+
+####  6030sylar  
+##### 17593#       发表于 2025-2-4 20:52
+
+<img src="https://p.sda1.dev/21/3c47a1be2749bf5b7adc7a85b54d4a7b/image.jpg" referrerpolicy="no-referrer">
+牢墨你抓哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qiyu1234  
+##### 17594#       发表于 2025-2-4 20:53
+
+🐘没展现过对阻止mujica解散有做过积极的行动，目前也没什么重组鸡团的主观动力，多半还是要被现实无情抽脸才能醒悟的，说白了这就是常见的人格有缺陷的主人公，需要挫折以成长，只是现代观众比较容易自我移入感情，对现在以及未来的“小丑”桥段的接受度不够罢了
+
+*****
+
+####  江口夕  
+##### 17595#       发表于 2025-2-4 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347057&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 19:52</a>
+发现隔壁nga已经有帖子公然骂对方支持者了，“如果祥厨是逆天榜榜首，喵厨是不是逆天榜榜二？”印象当中少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">阴谋论成立的话，我厨喵祥。没有的话当我没说
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  杂灰  
+##### 17596#       发表于 2025-2-4 20:54
+
+老莫在哺乳说人柱力得路上一往无前
+
+*****
+
+####  烂片雷达  
+##### 17597#       发表于 2025-2-4 20:55
+
+祥子是碇真嗣吗，谁是她的渚薰<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 17598#       发表于 2025-2-4 20:56
+
+看看第8话会不会回收
+
+<img src="https://img.saraba1st.com/forum/202502/04/205601t5aa5u8aal64glag.jpg" referrerpolicy="no-referrer">
+
+<strong>d9.jpg</strong> (43.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:56 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/205601z66p68i6mzq16434.jpg" referrerpolicy="no-referrer">
+
+<strong>d8.jpg</strong> (57.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:56 上传
+
