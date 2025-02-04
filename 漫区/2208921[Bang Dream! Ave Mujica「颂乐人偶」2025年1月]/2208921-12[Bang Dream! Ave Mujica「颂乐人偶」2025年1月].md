@@ -12638,3 +12638,70 @@ B part演啥，小祥来ring土下座吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要想太多有的没的，傻逼wsd就是在烂炒
 
+
+*****
+
+####  fuwamoco  
+##### 17371#       发表于 2025-2-4 11:48
+
+参考睦头人内心世界牢笼是一堆电视机放录像，小墨被关在里面的时候可能24h被循环播放黑刀之夜，飞鸟山之战，小黄瓜退回，大喵摘面具
+
+*****
+
+####  wwwttth  
+##### 17372#       发表于 2025-2-4 11:51
+
+<blockquote>厚乳果珍爽 发表于 2025-2-4 11:46
+前脚还说父母不做人，把孩子关家里不让见光，后脚就把神经病女儿放出来到处跑。
+
+这父母是刚出生还是编剧是 ...</blockquote>
+按照第五集路人台词，是睦头把自己关家里的，父母可能并没有规定她不能出去。
+
+
+*****
+
+####  ads147147  
+##### 17373#       发表于 2025-2-4 11:52
+
+旁边的吉他才是睦啊，图1睦在看着，图2的“吉他”（睦在吉他里）也在看着
+
+转评。现在我确实相信大墨老师就是mygo梗小鬼转世了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  septer  
+##### 17374#       发表于 2025-2-4 11:55
+
+睦那张先行图直接对齐剧场版🐱的场景，这下真是柿本的大手了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 17375#       发表于 2025-2-4 11:56
+
+<img src="https://img.saraba1st.com/forum/202502/04/115615upbw1iooobvonzvv.jpg" referrerpolicy="no-referrer">
+
+<strong>QX3(7)AQDN[0)J`PVSNA6XN.jpg</strong> (90.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:56 上传
+
+感觉还蛮真的，就是拦人靠下跪有点难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 17376#       发表于 2025-2-4 11:57
+
+月之森规则怪谈：
+如果你这辈子有哪个瞬间丢脸的时刻被墨提斯看见了，那你这辈子完了
+
+所以说大墨老师学吉他后要重演爱音卡壳吗
+
+一直以来我觉得花田写小剧场喜剧很牛逼，回扣很厉害，现在一看不如独角兽一根。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

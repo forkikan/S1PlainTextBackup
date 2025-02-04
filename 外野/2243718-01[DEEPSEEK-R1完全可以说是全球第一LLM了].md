@@ -15909,3 +15909,24 @@ AMD官方的对比图是7900XTX远超4080，小超4090，只有32b比4090慢一�
 
 BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。果然能让万能的大熊来当IP营销的人，干出的事也像万能的大熊这种人看齐
 
+
+*****
+
+####  qratosones1337  
+##### 1232#       发表于 2025-2-4 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344045&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-2-4 11:34</a>
+
+纳米AI上的DeepSeek-R1-360高速专线，又改描述了 “本模型为DeepSeek-R1-32B，由华为 910B GPU服务器提供推 ...</blockquote>
+可以看提不提供V3的API，如果有V3的话那R1就是满血的
+
+*****
+
+####  余晖  
+##### 1233#       发表于 2025-2-4 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343940&amp;ptid=2243718" target="_blank">骨于野 发表于 2025-2-4 11:23</a>
+改格式了，一些前端应用要更新。可以更新一下chatbox或者cherrystudio
+顺带我的邀请码yvghesRw和AqvpVpBW ...</blockquote>
+感谢，chatbox更新完终于能折叠了
+
