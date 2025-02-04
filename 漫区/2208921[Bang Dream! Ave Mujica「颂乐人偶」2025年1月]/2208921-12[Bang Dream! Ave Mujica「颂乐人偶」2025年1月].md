@@ -14210,3 +14210,25 @@ mygo第八集后半是高潮前半几乎是纯日常，mujica要搞对偶把下�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  友情的结晶  
+##### 17527#       发表于 2025-2-4 17:19
+
+11集太晚了吧，13集至少要留点空间给后日谈包饺子，最后一场剧情性live我觉得在12集概率比较大<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  huxiaopao163  
+##### 17528#       发表于 2025-2-4 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346197&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-4 17:19</a>
+
+11集太晚了吧，13集至少要留点空间给后日谈包饺子，最后一场剧情性live我觉得在12集概率比较大
+
+论坛助手,i ...</blockquote>
+本来mygo第三集也是插叙，不占时间的，第二集和第四集才是连着的
+
