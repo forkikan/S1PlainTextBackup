@@ -7653,3 +7653,35 @@ G9世界线应该没有兹玛德和吉翁尼克合并的触机
 
 话说G9世界观即使强人还存在也不会是MS-15，应该是MS-10
 
+
+*****
+
+####  0aleph37  
+##### 6499#       发表于 2025-2-4 15:07
+
+<img src="https://img.saraba1st.com/forum/202502/04/150745v3un3ppfjzfuulpo.jpg" referrerpolicy="no-referrer">
+
+<strong>20250204_150735.jpg</strong> (403.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-4 15:07 上传
+
+*****
+
+####  岸浪白野  
+##### 6500#       发表于 2025-2-4 15:08
+
+添饭是自由的吗？
+
+[X 上的 けゐな：“かわいい](https://x.com/fukodupendel/status/1886294867921244257)[https://t.co/C0eltf1VBW](https://t.co/C0eltf1VBW)” / X
+
+<img src="https://img.saraba1st.com/forum/202502/04/150728pvvilvhi0vlk0pvn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 15:07 上传
+
