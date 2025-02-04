@@ -16012,3 +16012,14 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qqks  
+##### 1242#       发表于 2025-2-4 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345071&amp;ptid=2243718" target="_blank">司空怜 发表于 2025-2-4 14:10</a>
+
+本地部署的话32b和14b区别大吗？有没有必要为了本地部署买一张3090 24G的卡</blockquote>
+买7900xtx啊，便宜量足还有保修
+

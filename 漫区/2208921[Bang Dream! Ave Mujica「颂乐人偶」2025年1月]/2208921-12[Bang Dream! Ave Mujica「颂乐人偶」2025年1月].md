@@ -13625,3 +13625,30 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 —— 来自 鹅球 v3.3.96</blockquote>
 楼里当初还有坚信双重人格很快会消失，因为音乐番写不好这个，结果现在都切割不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuwamoco  
+##### 17471#       发表于 2025-2-4 14:30
+
+赶紧进游戏，想看小白和睦两个病友交流病情。
+
+*****
+
+####  天空塔书记官  
+##### 17472#       发表于 2025-2-4 14:30
+
+现在这个莫提斯和本来的睦也不太像两个人格，没有此类角色塑造时常见的反差感
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  嵇翱u  
+##### 17473#       发表于 2025-2-4 14:35
+
+牢莫现在也不是弹不出感情的问题，她压根不会啊，总得先把睦头找回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
