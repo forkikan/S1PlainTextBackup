@@ -8174,3 +8174,24 @@ https://x.com/gundam_ab/status/1886702973084164584
  这里说的是不是为什么修红高，而是为什么能修红高。 红高明明就是纯军用的孤品MS，黑市怎么能搞到适用的 ...</blockquote>
 在加装阿尔法塞可缪(或者更早)的时候进行了制式化改造吧
 
+
+*****
+
+####  Toby_dak  
+##### 6534#       发表于 2025-2-4 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347287&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-4 21:38</a>
+
+原来这时候已经打完了吗？那为什么这里没对吉翁出手呢，只是单纯不想杀人吗？ ...</blockquote>
+最后2个BIT都消耗掉了，估计连火神炮都打光，不然就不会团战时候拿着流星锤。
+
+*****
+
+####  纪寞  
+##### 6535#       发表于 2025-2-4 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347517&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-4 21:21</a>
+
+最后2个BIT都消耗掉了，估计连火神炮都打光，不然就不会团战时候拿着流星锤。 ...</blockquote>
+光剑还在吧，总不能光剑都没了吧，直接一刀下去不就完了，鸭子就是这么干的吧
+

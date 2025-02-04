@@ -16371,3 +16371,26 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 没找到地方，时助手那一栏吗？怎么填呢？</blockquote>
 你用chatbox的话就在助手那一栏填，cherry的话就是智能体设定里，不过不知道为啥cherry的智能体可以简单的破甲，chatbox不用特殊指令他能给你硬绕出来……但是你要话题没那么激进他也不会立刻拒绝
 
+
+*****
+
+####  yangkaim4  
+##### 1276#       发表于 2025-2-4 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347407&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 21:02</a>
+
+你用chatbox的话就在助手那一栏填，cherry的话就是智能体设定里，不过不知道为啥cherry的智能体可以简单 ...</blockquote>
+看到了，原来是右键助手，那么ds的提示词怎么写呢？直接打字吗？还是有什么格式？
+
+
+*****
+
+####  披头破落户  
+##### 1277#       发表于 2025-2-4 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347523&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-2-4 21:22</a>
+看到了，原来是右键助手，那么ds的提示词怎么写呢？直接打字吗？还是有什么格式？ ...</blockquote>
+我在nga找了个很好用的，基本都能出来，私给你看看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
