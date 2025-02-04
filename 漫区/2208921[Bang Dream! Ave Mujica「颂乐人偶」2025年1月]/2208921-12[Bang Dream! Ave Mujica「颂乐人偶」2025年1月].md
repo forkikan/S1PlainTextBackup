@@ -13759,3 +13759,22 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 庄周梦蝶这个确实很好，这才是有巧思的对偶
 
+
+*****
+
+####  天空塔书记官  
+##### 17484#       发表于 2025-2-4 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345257&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-4 14:52</a>
+如果按照我前面贴的对偶说假药，Mortis吞噬睦对应庄周梦蝶，Mortis是睦的一个梦，不知道是Mortis变成了睦 ...</blockquote>
+这就是为什么演员需要学心理学，否则入戏太深，容易分不清自己是谁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 17485#       发表于 2025-2-4 15:01
+
+引入猫睦其实也是在补完猫的塑造……又回归到了猴子打字机的那些话了……
+
