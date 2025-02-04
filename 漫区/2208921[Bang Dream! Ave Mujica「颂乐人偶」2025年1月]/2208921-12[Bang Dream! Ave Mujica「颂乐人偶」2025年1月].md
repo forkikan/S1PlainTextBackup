@@ -14783,3 +14783,55 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 发现隔壁nga已经有帖子公然骂对方了，“如果祥厨是逆天榜榜首，喵厨是不是逆天榜榜二？”印象当中少女乐队 ...</blockquote>
 双R算吗？
 
+
+*****
+
+####  厚乳果珍爽  
+##### 17577#       发表于 2025-2-4 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347057&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 19:52</a>
+
+发现隔壁nga已经有帖子公然骂对方支持者了，“如果祥厨是逆天榜榜首，喵厨是不是逆天榜榜二？”印象当中少 ...</blockquote>
+有句话说得很对，喜欢洗喵的，大概率是还没出社会工作过的人。
+
+*****
+
+####  NODY  
+##### 17578#       发表于 2025-2-4 19:58
+
+邦邦第二季ras和ppp，第三季双r，都撕过，现在去番剧那边的评论区还能看到遗迹
+
+*****
+
+####  爱莉希雅  
+##### 17579#       发表于 2025-2-4 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347062&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-4 19:54</a>
+
+之前有交代过猫猫为什么会春日影吗，不排除她一听就会</blockquote>
+灯没写新歌时，狗团只有春日影练
+
+*****
+
+####  6030sylar  
+##### 17580#       发表于 2025-2-4 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  烂片雷达  
+##### 17581#       发表于 2025-2-4 20:02
+
+素姐会弹低音提琴能弹吉他吗，要是能弹小睦的吉他小睦会不会从吉他里跳出来<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 17582#       发表于 2025-2-4 20:04
+
+我之前说睦是主音吉他，到底是不是啊？有人跟我说是旋律吉他，初华才是主音吉他。
+

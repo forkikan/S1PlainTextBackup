@@ -7942,3 +7942,26 @@ https://x.com/gundam_ab/status/1886702973084164584
 
 首席哥那边是除了盾牌，两把光束刀和一把光枪掉件
 
+
+*****
+
+####  纪寞  
+##### 6513#       发表于 2025-2-4 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347053&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-4 19:51</a>
+
+因为前一天和首席哥对战的时候损坏了
+
+红高和首席哥一战，火控回路损坏，盾牌被打飞，两个bit掉件
+
+首席哥 ...</blockquote>
+这个火控损坏感觉纯剧情需要，明明以前的高达都没怎么提过这事
+
+
+*****
+
+####  UNINSTALL42  
+##### 6514#       发表于 2025-2-4 20:03
+
+火控模块化，梦回装甲核心（
+

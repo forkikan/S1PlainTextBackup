@@ -496,3 +496,16 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这庭院第4层怪怎么一下强了那么多
 
+
+*****
+
+####  alucardcz  
+##### 7578#       发表于 2025-2-4 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346562&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-4 18:22</a>
+
+赶火车一样打完了，感觉就这，要问有没有活不能算是没活，但真的就是闹麻了
+
+演出剧情各种既视感，填了几个 ...</blockquote>
+还是不一样的 万一销量跪了 可能就没有sc了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
