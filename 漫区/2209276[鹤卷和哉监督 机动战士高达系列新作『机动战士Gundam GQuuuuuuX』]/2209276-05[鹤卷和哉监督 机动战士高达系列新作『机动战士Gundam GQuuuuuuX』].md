@@ -8266,3 +8266,27 @@ https://x.com/gundam_ab/status/1886702973084164584
 说起来ac6通关了也没明白这玩意到底干啥的（</blockquote>
 6代因为没有锁定框系统存在感会稀薄很多。推荐玩玩初代（
 
+
+*****
+
+####  王留美  
+##### 6542#       发表于 2025-2-4 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347803&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-2-4 22:15</a>
+ 这里吉翁转为走RX78的技术路线了，那么后续机体、内置模块、软件系统，兼容红高规格也似乎不足为奇。 ...</blockquote>
+不，这个模块是用于扎古等制式量产MS的
+将其考虑为是吉翁尼克在给红敢达增加武装时对火控系统也进行了吉翁制式的改造比较合理
+
+
+*****
+
+####  Steel.Haze  
+##### 6543#       发表于 2025-2-4 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347947&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-4 22:40</a>
+
+不，这个模块是用于扎古等制式量产MS的
+
+将其考虑为是吉翁尼克在给红敢达增加武装时对火控系统也进行了吉 ...</blockquote>
+实际上这个模块是提姆雷回路，也有人认为骡爹已经被俘了，软件和计算机接口可以在战后往高达型修改了，因为民用和黑拳赛的扎古，已经换了别的系统，可以认为虽然是扎古，但是软件和部分电子系统是战后生产的。高达体系的电子设计整合段和软件设计其实强过吉翁一个位面。吉翁拿到高达后全面考虑这个技术方向也合理。
+

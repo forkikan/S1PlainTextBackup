@@ -15433,3 +15433,110 @@ mygo里板书确实能对上，不过剧本这么写真有点刻舟求剑了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码节约信用有了，能拉睦的只有祥子，第六集真的低气压全场沉默
 果然核心还是祥子能不能振作起来
 
+
+*****
+
+####  595505568  
+##### 17633#       发表于 2025-2-4 22:37
+
+那你拉狗团垫角色咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这话要说出去团推先爆炸吧
+
+*****
+
+####  凉良  
+##### 17634#       发表于 2025-2-4 22:39
+
+按鸡前几集结尾爆一波 下集直接轻轻带过的方式
+
+不会灯祥爱的剧情被直接跳过就祥子对着灯的笔记本发呆吧。
+
+*****
+
+####  iiiiiiiiii  
+##### 17635#       发表于 2025-2-4 22:39
+
+<blockquote>fuwamoco 发表于 2025-2-4 22:20
+四姐妹先不论，细雪的背景和内容和祥睦经历确实对得上，还有最关键的那个死婴，是mujica的死亡还是睦人格的 ...</blockquote>
+我看到贴吧有人说，祥子就是细雪里面雪子。因为家庭原因两次相亲以失败告终，判词的意思是祥子也像雪子一样，因为家庭两次组乐队都以失败告终
+
+<img src="https://img.saraba1st.com/forum/202502/04/223936kjekckv0cqsosisq.jpg" referrerpolicy="no-referrer">
+
+<strong>3B82CC20E2B276B1D358B9921D4D1307.jpg</strong> (291.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 22:39 上传
+
+*****
+
+####  阿兹尔  
+##### 17636#       发表于 2025-2-4 22:40
+
+<blockquote>凉良 发表于 2025-2-4 22:23
+隔壁舅舅來了 就四个字
+
+果然是继续低气压拷打么</blockquote>
+哪4个字
+
+*****
+
+####  akiomn  
+##### 17637#       发表于 2025-2-4 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347941&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-4 22:40</a>
+哪4个字</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无喜可报
+最关键的睦祥没一个被拉回来的，哪怕是睦醒来都算是喜了
+
+*****
+
+####  山ノ内花音  
+##### 17638#       发表于 2025-2-4 22:42
+
+又要抽陀螺了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+也不差这一集了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 17639#       发表于 2025-2-4 22:42
+
+<blockquote>akiomn 发表于 2025-2-4 22:41
+无喜可报
+
+最关键的睦祥没一个被拉回来的，哪怕是睦醒来都算是喜了</blockquote>
+半身的含金量保住了
+
+
+*****
+
+####  fuwamoco  
+##### 17640#       发表于 2025-2-4 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347935&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-4 22:39</a>
+
+我看到贴吧有人说，祥子就是细雪里面雪子。因为家庭原因两次相亲以失败告终，判词的意思是祥子也像雪子一 ...</blockquote>
+雪子更像是睦头吧，雪子的描写是像个人偶一样一次次相亲，她的真爱是自己的二姐夫，最后嫁给了不爱的人。
+
+祥子更像是四妹，是那种冲破世俗的，也被家里赶出去了，最后坏了逼家里要钱，但最后产下的是死婴。
+
+不过我现在觉得四妹更像喵梦
+
+
+*****
+
+####  595505568  
+##### 17641#       发表于 2025-2-4 22:43
+
+反正我的评价是要真的GO团双线进场结果go团自己爆炸还被垫掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，太好笑了
+
+*****
+
+####  swessia  
+##### 17642#       发表于 2025-2-4 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">go团垫给祥子，还有这等好事？
+真成了可会炸个大的了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

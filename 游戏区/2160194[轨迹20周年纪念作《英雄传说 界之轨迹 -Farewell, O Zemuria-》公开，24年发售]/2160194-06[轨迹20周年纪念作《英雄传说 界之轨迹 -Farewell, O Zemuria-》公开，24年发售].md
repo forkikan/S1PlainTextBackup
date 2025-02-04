@@ -562,3 +562,16 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 
 网上一搜没有真结局……
 
+
+*****
+
+####  aimujie  
+##### 7583#       发表于 2025-2-4 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347549&amp;ptid=2160194" target="_blank">吴怀在 发表于 2025-2-4 21:27</a>
+
+我还以为类似于闪轨4，normal结局学妹飞升，真结局生日会包饺子。
+
+网上一搜没有真结局…… ...</blockquote>
+其实是空轨fc，下半部追夫/妻
+
