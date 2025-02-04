@@ -549,3 +549,16 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 因为想赶今天打完，所以最后的4spg全跳了，最后等级只有AA</blockquote>
 界2肯定会把学妹捞回来的
 
+
+*****
+
+####  吴怀在  
+##### 7582#       发表于 2025-2-4 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347451&amp;ptid=2160194" target="_blank">aimujie 发表于 2025-2-4 21:11</a>
+
+界2肯定会把学妹捞回来的</blockquote>
+我还以为类似于闪轨4，normal结局学妹飞升，真结局生日会包饺子。
+
+网上一搜没有真结局……
+

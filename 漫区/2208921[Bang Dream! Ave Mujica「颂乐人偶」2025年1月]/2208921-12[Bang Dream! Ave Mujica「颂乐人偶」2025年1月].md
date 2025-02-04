@@ -15202,3 +15202,44 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 对称是炫技是自我满足 是给自己**加难度
 剧情写好了是对称加分项 写坏了的时候估计也没人在意对称了
 
+
+*****
+
+####  浅仓透透  
+##### 17611#       发表于 2025-2-4 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">过年火车上看完go，今天追完5话
+编剧还是蛮厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+原本以为很难处理的几个问题和剧情第五话全收住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 17612#       发表于 2025-2-4 21:28
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-4 21:30 编辑 
+<blockquote>swessia 发表于 2025-2-4 21:08
+我不管啥对偶说，最后端出来母鸡卡能圆回来就行
+
+—— 来自 鹅球 v3.3.96</blockquote>
+
+对偶说的话mujica最后一幕对应mygo第一话，祥子对着mujica和mygo九个人说我回来了。之后下雨的天天空放晴。以下雨开始，以放晴结束。以祥子开始，以祥子终结。以CCC解散开始，以mygo mujica结成结束
+
+
+*****
+
+####  iiiiiiiiii  
+##### 17613#       发表于 2025-2-4 21:33
+
+<img src="https://img.saraba1st.com/forum/202502/04/213257dlcrhhttrtbv8c4t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250204_213240_com.UCMobile.jpg</strong> (256.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 21:32 上传
+
+如果是这样，课上学的古文是不是mujica全员的判词？
+

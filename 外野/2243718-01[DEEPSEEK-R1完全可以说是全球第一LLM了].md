@@ -16394,3 +16394,16 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  yangkaim4  
+##### 1278#       发表于 2025-2-4 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347533&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-4 21:24</a>
+
+我在nga找了个很好用的，基本都能出来，私给你看看
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+好，好人一生平安
+
