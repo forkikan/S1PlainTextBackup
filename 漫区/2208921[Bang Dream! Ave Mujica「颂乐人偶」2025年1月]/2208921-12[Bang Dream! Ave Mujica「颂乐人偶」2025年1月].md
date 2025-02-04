@@ -15251,3 +15251,33 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 sis把自己当成曹雪芹了但是绫圣之前试了那么多次脚本，成功者真是廖廖
 
+
+*****
+
+####  ads147147  
+##### 17615#       发表于 2025-2-4 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347128&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-4 20:04</a>
+
+我之前说睦是主音吉他，到底是不是啊？有人跟我说是旋律吉他，初华才是主音吉他。 ...</blockquote>
+我记得之前楼里看到说结月一开始是键盘手（也就是祥子役），后来奏音来了后她键盘更强所以转去学吉他了，所以是节奏吉他，主音吉他是李子。
+
+解散回不也说了初华没法子完全cover睦的部分。
+
+*****
+
+####  KokutouMikiya  
+##### 17616#       发表于 2025-2-4 21:50
+
+对称说成立的话，必须要考虑对称的意义是什么
+
+
+*****
+
+####  天空塔书记官  
+##### 17617#       发表于 2025-2-4 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
