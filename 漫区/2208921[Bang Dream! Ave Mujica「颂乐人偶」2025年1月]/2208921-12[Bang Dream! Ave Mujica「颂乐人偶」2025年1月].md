@@ -14742,3 +14742,44 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 当然你可以 ...</blockquote>
 还有祥子惨到老队友看不下去了，帮他一把的做法是吧？
 
+
+*****
+
+####  plok201  
+##### 17573#       发表于 2025-2-4 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346868&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-4 19:17</a>
+
+其实也很难想象一个非魔幻类型的番剧怎么表现第二人格消失了。
+
+大概率到最后不会明说，也就是睦既能正常说 ...</blockquote>
+双重人格当二次元时尚小单品那种吧，随便切，无害化，就像多了个姐妹
+
+就是不知道引流来的观众能不能接受了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 17574#       发表于 2025-2-4 19:52
+
+ 本帖最后由 aptx8285144 于 2025-2-4 19:56 编辑 
+
+发现隔壁nga已经有帖子公然骂对方支持者了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 17575#       发表于 2025-2-4 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前有交代过猫猫为什么会春日影吗，不排除她一听就会
+
+*****
+
+####  いほう  
+##### 17576#       发表于 2025-2-4 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347057&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 19:52</a>
+
+发现隔壁nga已经有帖子公然骂对方了，“如果祥厨是逆天榜榜首，喵厨是不是逆天榜榜二？”印象当中少女乐队 ...</blockquote>
+双R算吗？
+
