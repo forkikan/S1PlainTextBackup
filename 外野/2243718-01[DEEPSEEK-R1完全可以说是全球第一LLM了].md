@@ -16619,3 +16619,14 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zerona  
+##### 1297#       发表于 2025-2-5 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348240&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 23:40</a>
+
+话说我知道怎么治d指导的癫了，用cherry复合Gemini那个2.0使用，你提出要求让d指导尽情瞎几把写，然后把推 ...</blockquote>
+有点麻烦就是还得租gemini 。
+
