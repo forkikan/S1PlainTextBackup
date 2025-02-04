@@ -13482,3 +13482,46 @@ MyGO第4话著名的细雪板书 - Mujica第10话
 
 —— 来自 HONOR PTP-AN60, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无限舰制  
+##### 17457#       发表于 2025-2-4 13:58
+
+这下传承前辈了
+
+*****
+
+####  天空塔书记官  
+##### 17458#       发表于 2025-2-4 13:59
+
+ 本帖最后由 天空塔书记官 于 2025-2-4 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344986&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-4 13:53</a>
+睦这次走的猫猫在剧场版里走过的路。
+
+我又去看了一下mygo剧场版枪版，确认了一下是猫猫去space的路，当然 ...</blockquote>
+预告里有木头跟着猫猫的片段，
+
+应该就是了
+
+木头的吉他技艺并不差，差在无法用演奏表达自己的感情，也无法融入乐曲的情绪
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  烂片雷达  
+##### 17459#       发表于 2025-2-4 14:02
+
+会有猫猫睦睦以琴会友琴瑟和鸣高山流水伯牙子期的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 17460#       发表于 2025-2-4 14:07
+
+复读属性不就是说明这个人格很空洞吗，塑造一个好莫提斯就把木头挤得没空间了
+
