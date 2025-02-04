@@ -3349,3 +3349,13 @@ Mihon-更多-设置-浏览-插件仓库-添加 逐个粘贴上面的链接后确
 
 安卓版的mihon倒是可以<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔法师lain  
+##### 319#       发表于 2025-2-5 03:30
+
+现在kisslove的封面图在列表中不能加载，不知道怎么搞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
