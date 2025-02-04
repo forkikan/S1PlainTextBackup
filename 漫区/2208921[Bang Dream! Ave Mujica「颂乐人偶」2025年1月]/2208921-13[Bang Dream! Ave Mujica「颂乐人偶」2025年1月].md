@@ -260,3 +260,50 @@ wsd只是负责做卡，除了本家以外，其他的还是甩给ip授权方吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17786#       发表于 2025-2-5 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348661&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 01:39</a>
+其实只要把几个人的故事重叠起来讲就不会占多少篇幅了，真正的个人塑造还是得靠长线补完
+
+企划伤害毒唯，毒 ...</blockquote>
+不要觉得伤害毒唯没有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17787#       发表于 2025-2-5 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348644&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-5 01:33</a>
+插现实桥段都到了用二次元人物给三次元作传的程度了，而且剧中otae在ras和ppp两幅面孔差点都认不出是同一 ...</blockquote>
+这就是创新的代价，但又必须创新，邦的第一季和第二季之间的差距远比老邦与mygo的差距更大，但企划要想发展一直走传统偶像动画的老路是行不通的，你看隔壁拉就知道了，没有前几季的积累与尝试就不会有mygo的诞生，一直待在舒适圈原地踏步只会被时代抛弃
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 17788#       发表于 2025-2-5 01:49
+
+说起来祥子这腮红真的不知道为啥一直存在  演尸体都要带这这两腮红
+
+
+*****
+
+####  天空塔书记官  
+##### 17789#       发表于 2025-2-5 01:50
+
+ 本帖最后由 天空塔书记官 于 2025-2-5 01:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348678&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 01:46</a>
+不要觉得伤害毒唯没有问题，因为毒唯在和不在都能恶心你，在坑里可以受伤加倍恶心社区，真的遭不住跑了能 ...</blockquote>
+那就更无所谓了，既然到哪都一样被恶心，不如看毒唯破防打滚受伤害，起码自己还能开心点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
