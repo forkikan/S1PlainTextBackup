@@ -15815,3 +15815,21 @@ https://pageassist.xyz/
 
 喜报：秘塔介入了R1，有搜索需求的可以用那个，还能搜索PDF文献
 
+
+*****
+
+####  NameLess2501  
+##### 1224#       发表于 2025-2-4 08:04
+
+AMD官方有个用AMD显卡跑DeepSeek的教程：
+
+https://community.amd.com/t5/ai/experience-the-deepseek-r1-distilled-reasoning-models-on-amd/ba-p/740593
+
+用7800XT试了试
+
+14b，能全速跑，不占用CPU。
+
+32b，GPU offload layers不要拉满，和14b一样设置成48，不会爆显存，CPU跟着跑，速度较慢。
+
+总体上和7800XT和4080S相当。
+
