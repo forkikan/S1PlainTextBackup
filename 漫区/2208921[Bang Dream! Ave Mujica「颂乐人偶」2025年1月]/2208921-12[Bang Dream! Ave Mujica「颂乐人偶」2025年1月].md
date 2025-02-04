@@ -11994,3 +11994,45 @@ op里全员颠婆形态应该就是完全体mujica
 op里全员颠婆形态应该就是完全体mujica</blockquote>
 同意，参考go的op完全体。op为真，全员颠婆
 
+
+*****
+
+####  一心而用  
+##### 17306#       发表于 2025-2-4 09:15
+
+病娇初华
+<img src="https://p.sda1.dev/21/f6a28b622b04e3c4aa6b24c35c158aa9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8a133ddd0f8dcf0344ebdb37b3b948bc/image.jpg" referrerpolicy="no-referrer">
+
+灯又死了
+<img src="https://p.sda1.dev/21/d15246363b850466f8c3383622c0fcbe/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3bc777dabfa999d639c369d7f6f57fdf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8c4bf180b394885d02b12a0eeb949a3a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a2817af5cb5724275d049dc91081a4f0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 17307#       发表于 2025-2-4 09:15
+
+<img src="https://p.sda1.dev/21/4042ed11fc254ba26a6a199d8f09e7c1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/f69a0b47fa39a75ef46dbacc00f69e24/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17308#       发表于 2025-2-4 09:16
+
+显然不是，因为声优表示故事结尾的感觉如同《Ether》一样，这不是一首癫狂的歌
+
+黑化注定只是炼金术的第一步，从一开始就否定krkrdkdk的可能，就像掉进了某种负面期望的陷阱一样，A团不可能唱一辈子黑色生日这样的歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 17309#       发表于 2025-2-4 09:17
+
+你虚空出来个立希冲脸祥子不盐反而转火灯来论证欺软怕硬 还没觉得有问题？
+
