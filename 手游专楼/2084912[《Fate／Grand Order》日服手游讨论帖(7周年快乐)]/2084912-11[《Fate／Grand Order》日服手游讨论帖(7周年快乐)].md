@@ -503,3 +503,35 @@ ae阶up快来了，该备战藤蔓，希望能凑够保底（还差一百石）
 
 我不信这楼里还有比我咸鱼的 我无限池都不刷 活动全自然回 最近因为白纸本的关系 自然回已经好几次活动都没搬空了
 
+
+*****
+
+####  qixinno2  
+##### 16224#       发表于 2025-2-4 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346393&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-4 17:46</a>
+
+我不信这楼里还有比我咸鱼的 我无限池都不刷 活动全自然回 最近因为白纸本的关系 自然回已经好几次活动都没 ...</blockquote>
+然而这样咸鱼的狗萌新五星数量是我的两倍以上 欧羡慕
+
+*****
+
+####  alucardcz  
+##### 16225#       发表于 2025-2-4 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346410&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-4 17:51</a>
+
+然而这样咸鱼的狗萌新五星数量是我的两倍以上 欧羡慕</blockquote>
+狗萌新这个称号应该给我楼上 你out了（
+
+
+*****
+
+####  qixinno2  
+##### 16226#       发表于 2025-2-4 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346416&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-4 17:52</a>
+
+狗萌新这个称号应该给我楼上 你out了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">他是狗 你是狗萌新 
+

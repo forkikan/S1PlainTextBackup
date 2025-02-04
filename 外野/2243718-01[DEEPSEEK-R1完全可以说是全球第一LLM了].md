@@ -16184,3 +16184,13 @@ D指导对于赛博改造的执着实在是太强烈了，问它如何实现世�
 如果你用的是app或官网，那是因为它的temp设的是1.3比较高，有时候会发散的比较偏，这个很多人都察觉到了 ...</blockquote>
 调成0.6之后确实好一点，但是定型文的问题还是挺严重的，不过也可以忍了
 
+
+*****
+
+####  qz66618  
+##### 1258#       发表于 2025-2-4 17:44
+
+硅基流动的R1模型API目前用不了吗？我在chatbox上配置的没有反应<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
