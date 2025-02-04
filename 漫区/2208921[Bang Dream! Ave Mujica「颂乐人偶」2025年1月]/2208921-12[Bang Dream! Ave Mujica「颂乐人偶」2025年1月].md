@@ -12705,3 +12705,98 @@ B part演啥，小祥来ring土下座吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  烂片雷达  
+##### 17377#       发表于 2025-2-4 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344246&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-4 11:56</a>
+感觉还蛮真的，就是拦人靠下跪有点难蚌</blockquote>
+这才是正常的反应吧，看到亲近的人得了重病陪护整晚是正常人会做的事，丢到舞台上转身就走事后也不管不问还是太超现实了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 17378#       发表于 2025-2-4 12:00
+
+<blockquote>ads147147 发表于 2025-2-4 11:57
+月之森规则怪谈：
+
+如果你这辈子有哪个瞬间丢脸的时刻被墨提斯看见了，那你这辈子完了
+</blockquote>
+莫老師： 這是C和弦～
+
+*****
+
+####  嵇翱u  
+##### 17379#       发表于 2025-2-4 12:02
+
+感觉和之前初华带祥子回家过夜，然后睦独自在地下室熬了一夜对应
+
+下集应该是爽姐陪着睦过夜，然后祥子独自在客厅坐了一晚上看笔记本
+
+
+*****
+
+####  wwwttth  
+##### 17380#       发表于 2025-2-4 12:02
+
+一晚上都没治好么，soyo酱你行不行啊
+
+*****
+
+####  暗示我7酱  
+##### 17381#       发表于 2025-2-4 12:04
+
+我们素睦党吃的也太好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Fakerの幻影  
+##### 17382#       发表于 2025-2-4 12:04
+
+肯定do了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TAQ  
+##### 17383#       发表于 2025-2-4 12:04
+
+这是好事啊 至少鸡团有个谐星了
+
+*****
+
+####  ads147147  
+##### 17384#       发表于 2025-2-4 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344303&amp;ptid=2208921" target="_blank">Fakerの幻影 发表于 2025-2-4 12:04</a>
+肯定do了</blockquote>
+一晚上没治好说明没do，do了肯定治好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 17385#       发表于 2025-2-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344302&amp;ptid=2208921" target="_blank">暗示我7酱 发表于 2025-2-4 12:04</a>
+我们素睦党吃的也太好了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+是莫素<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  无限舰制  
+##### 17386#       发表于 2025-2-4 12:07
+
+怎么把孩子关家里都冒出来了
+
+屋子里整那么乱肯定是自己呆房子里嗯造啊
+
