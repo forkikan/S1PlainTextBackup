@@ -15084,3 +15084,51 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 2025-2-4 20:56 上传
 
+
+*****
+
+####  安娜导函数  
+##### 17599#       发表于 2025-2-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346641&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-4 18:35</a>
+独角兽深感邦邦那么多团，却只有一对冰川双子是有血缘关系，所以一次性在鸡狗里补了四个人 ...</blockquote>
+？？？亚子和巴怎么你了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嵇翱u  
+##### 17600#       发表于 2025-2-4 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347381&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-4 20:58</a>
+？？？亚子和巴怎么你了</blockquote>
+巴和亚子是真姐妹情吧，这和双子那种还有现在这几位重量级不是一个层次的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  wzm96816  
+##### 17601#       发表于 2025-2-4 21:01
+
+与其说四姐妹，这个岛的设定不如说海猫。另外独角兽是不是参与过轻拍来着。
+
+*****
+
+####  玖羽  
+##### 17602#       发表于 2025-2-4 21:04
+
+我看了一圈对偶说假药，只能说，如果这是真的，这个剧本的确值得带进坟墓里
+
+整体镜像对应，每一话也镜像对应，哪怕只是大致对应，花费的心力也超乎想象
+
+*****
+
+####  6030sylar  
+##### 17603#       发表于 2025-2-4 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">你邦亲姐妹没一对长得像的，包括冰川双子，纱夜看着比日菜大几岁
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

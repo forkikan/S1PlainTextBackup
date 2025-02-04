@@ -16352,3 +16352,22 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 我也是啊，最晚两分钟回复。
 是不是你费用用完了。
 
+
+*****
+
+####  zeroboss1  
+##### 1274#       发表于 2025-2-4 20:54
+
+联网搜索就玩了2轮 正准备继续呢 就又坏了 
+
+
+*****
+
+####  阿刚  
+##### 1275#       发表于 2025-2-4 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346948&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-2-4 19:33</a>
+
+没找到地方，时助手那一栏吗？怎么填呢？</blockquote>
+你用chatbox的话就在助手那一栏填，cherry的话就是智能体设定里，不过不知道为啥cherry的智能体可以简单的破甲，chatbox不用特殊指令他能给你硬绕出来……但是你要话题没那么激进他也不会立刻拒绝
+
