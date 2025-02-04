@@ -16401,3 +16401,155 @@ go团的乐奈缺剧情，可以用“因为是猫，现在初具人形”来糊
 主唱的初華要兩話很正常吧 （不然就是最影簿的主唱了）</blockquote>
 C团的真相，C团的和解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，至少半集得给吧
 
+
+*****
+
+####  阿兹尔  
+##### 17726#       发表于 2025-2-5 00:28
+
+新歌和live估计是初华回合+全员问题解决+c团和解这3个节点吧
+
+*****
+
+####  友情的结晶  
+##### 17727#       发表于 2025-2-5 00:29
+
+那灯向祥子呐喊、爱音为灯发挥行动力、素世上门照顾睦难道不是符合人设体现弧光的地方吗。下一集go团和mortis的互动肯定有影响但不是决定性的，总不能治不好睦就是成长缩卵吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再说了灯素都忘不掉crychic是mygo 12集明晃晃的台词，本来就是她们人设的一部分
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  595505568  
+##### 17728#       发表于 2025-2-5 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348447&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:29</a>
+那灯向祥子呐喊、爱音为灯发挥行动力、素世上门照顾睦难道不是符合人设体现弧光的地方吗。下一集go团和mort ...</blockquote>
+13话上半末尾，不是12话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 17729#       发表于 2025-2-5 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348434&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:25</a>
+一整部mujica？你确定只有这部mujica吗</blockquote>
+mygo对祥子有铺垫但除了十三集b part就只是铺垫而已
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罥索GFFF  
+##### 17730#       发表于 2025-2-5 00:30
+
+一集解决喵梦+海玲是什么想出来的，让pv那堆正论救祥子的戏码合理起来保底都要分一集半的塑造。
+
+  东京JR地铁预告第一句话是“我不是说过把你剩下的人生交付给我吗”
+
+最后一句话是“大家把人生都交付给你了，你想就这样当逃兵吗”喵祥那场是必有，还是逃不开的重点
+
+*****
+
+####  友情的结晶  
+##### 17731#       发表于 2025-2-5 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348449&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:29</a>
+13话上半末尾，不是12话</blockquote>
+我的，记错了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  huxiaopao163  
+##### 17732#       发表于 2025-2-5 00:31
+
+就像制作游戏是先设计玩法，后设计剧情，侦探小说是先设计诡计或手法，后设计作案动机
+
+mujica的内鬼说如果是真的，那独角兽肯定也是先设计好内鬼相关的诡计作为故事的亮点，然后再设计丰川家这么做的动机用来补全剧情，让它在剧情层面上变得合理。
+
+如果最后丰川家的动机设计得一塌糊涂，让人觉得闹麻了，那确实也没办法，是独角兽设计动机的水平有限。
+
+但内鬼说还是一个不错的巧思，只是它的魅力会由于动机设计的不好而折损。
+
+虽然现实的逻辑，确实是先有做这件事的动机，然后才做这件事。但是写故事肯定不能这么写，不然就是流水账了。
+
+（当然以上都是根据假药脑补的，别太当真。）
+
+*****
+
+####  595505568  
+##### 17733#       发表于 2025-2-5 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348450&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:30</a>
+mygo对祥子有铺垫但除了十三集b part就只是铺垫而已
+
+论坛助手,iPhone</blockquote>
+铺垫也花了大量的剧情时长占用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，go团立希和猫的塑造不够这个问题不也是让路铺垫导致的？
+
+*****
+
+####  小博禹  
+##### 17734#       发表于 2025-2-5 00:31
+
+<blockquote>595505568 发表于 2025-2-5 00:23
+我是说我当年三部作品访谈官配全灭的问题，我一直是Go团和初祥党啊</blockquote>
+高黄真是官配吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17735#       发表于 2025-2-5 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348460&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-5 00:31</a>
+高黄真是官配吗丽奈一直爱的是老师不是九美子吧</blockquote>
+人卖你高黄soulmate历历在目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，弱化小说男女关系，加强高黄女女关系，最后卖的一地鸡毛，根本soul不起来
+
+
+*****
+
+####  未来起航  
+##### 17736#       发表于 2025-2-5 00:32
+
+都是给前几集打补丁，声称“整这么莫名其妙就是考考你的呀”“角色不是蠢而是坏懂不懂”，内鬼论和叙诡论作用完全一样的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kasroz  
+##### 17737#       发表于 2025-2-5 00:32
+
+第六集灯尝试重建ccc失败对偶第八集素世重建ccc的尝试彻底失败
+
+*****
+
+####  sauron.j  
+##### 17738#       发表于 2025-2-5 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348421&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:22</a>
+
+动漫高手发明的这个新词人设回撤到底是什么意思。我问他的粉丝，粉丝说是用在喵梦身上意思等同于洗白，但楼 ...</blockquote>
+再给个词：（观众的）情绪平衡。大家能重新接受这个角色的形象
+
+和洗白的不同点在于，角色本身不一定真的变好，但能开始让人喜爱起来。经典案例就是爽姐
+
+*****
+
+####  盐盐盐盐盐  
+##### 17739#       发表于 2025-2-5 00:33
+
+am节奏感觉不如go舒适还是感觉比起go那种抛出一个问题基本一到两集就可以彻底解决的结构（只有8.9.10可以算大篇章用了三集），am现在是问题不断堆积恶化（甚至因为官方放太多宣传炒作大家都知道了还有初华这个可预料的大问题完全没上线）又看不到改善的兆头，虽然大家都知道最后要包饺子，但是拖得越久这个包好的难度越大，难免令人失去信心
+
+*****
+
+####  595505568  
+##### 17740#       发表于 2025-2-5 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348464&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-5 00:32</a>
+都是给前几集打补丁，声称“整这么莫名其妙就是考考你的呀”“角色不是蠢而是坏懂不懂”，内鬼论和叙诡论作 ...</blockquote>
+人物塑造要跌停了，基础起步粉丝要跑光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，留在里面的不停的需要说服自己后面有机会把角色弧光扭回来的，怎么办嘛chuchu发癫的时候动画让她光速吃瘪后改正了，也展现了她超人的正面高光，就这还因为剧情排布和老团粉丝情绪问题处低位；你到这里好几个人机和0高光0吃瘪后改正，疑似要拉其他关系性排访谈关系的后面去这比当年第二季/第三季的问题还严重
+
