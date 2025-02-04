@@ -16105,3 +16105,31 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 
 不知道amd准备出的那个ai cpu如何
 
+
+*****
+
+####  大耳兽  
+##### 1251#       发表于 2025-2-4 16:34
+
+好笑
+<img src="https://p.sda1.dev/21/83b2cabdc510182abc912a5ed31fff59/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  moeblack  
+##### 1252#         楼主| 发表于 2025-2-4 16:39
+
+硅基流动上线 671B 满血版 DeepSeek-R1、DeepSeek-V3 之后，今天，硅基流动 SiliconCloud 平台继续上线 6 款加速版 DeepSeek-R1 蒸馏版模型，包括 DeepSeek-R1-Distill-Llama-70B、DeepSeek-R1-Distill-Qwen-32B、DeepSeek-R1-Distill-Qwen-14B、DeepSeek-R1-Distill-Llama-8B(Free)、DeepSeek-R1-Distill-Qwen-7B(Free)、DeepSeek-R1-Distill-Qwen-1.5B(Free)。 其中，上述 8B、7B、1.5B 模型可**。
+
+现在硅基流动的V3慢的出奇。
+
+
+*****
+
+####  约翰里德  
+##### 1253#       发表于 2025-2-4 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345921&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-4 16:39</a>
+硅基流动上线 671B 满血版 DeepSeek-R1、DeepSeek-V3 之后，今天，硅基流动 SiliconCloud 平台继续上线 6  ...</blockquote>
+哪种能联网
+

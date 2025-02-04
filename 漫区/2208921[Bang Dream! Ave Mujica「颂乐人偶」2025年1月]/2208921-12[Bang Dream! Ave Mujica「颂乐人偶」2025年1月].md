@@ -14147,3 +14147,35 @@ MyGO _ AveMujica
 
 差个大祥老师跪睦头，就可以闭环了
 
+
+*****
+
+####  玖羽  
+##### 17522#       发表于 2025-2-4 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345431&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-4 15:21</a>
+
+如果对应细雪 
+
+大概率初睦祥其实都有丰川家的血缘 
+
+最后也都会脱离丰川家</blockquote>
+既然现在知道细雪很可能对应Mujica第10话，就不是姐妹说这么简单的问题了，我们都知道第10话是什么重量
+
+这个板书的重点我觉得可能是「四姐妹」，对应四个人，那么少了谁呢……
+
+我把这句话逐字逐句地重翻一遍：
+
+《细细雪》以<strong>充满幽默</strong>的笔触，描绘了居住在东京下町(角色命名方式?)的<strong>四位</strong>表姐妹在四季中的<strong>悲喜交织</strong>。
+
+（「さらさら雪」は東京の下町に住む四人の従姉妹たちの四季を通した悲喜こもごもをユーモアたっぷりに描いており）
+
+*****
+
+####  swessia  
+##### 17523#       发表于 2025-2-4 16:44
+
+睦会不会来不还是编剧的一句话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
