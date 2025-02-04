@@ -13998,3 +13998,27 @@ soyo的莱莱好大呀
 
 墨作为第二人格过于无害了，多重人格角色塑造里，里人格想抢夺身体是常见设定。她目前的目的唤醒睦，实现的那刻不就是她作为人的毁灭吗。小墨如果是个完整的人格，优先考虑的肯定是自我存续而不是完成睦的任务。
 
+
+*****
+
+####  帆前  
+##### 17509#       发表于 2025-2-4 15:50
+
+soyo去的时候好像还真是傍晚哎我趣。
+
+这下偶遇恐怖莫提丝，拼尽全力无法战胜，陪睡一晚了 
+<img src="https://p.sda1.dev/21/8d49970b7896fea1a6e402d21a4531ce/Screenshot_20250204_153919_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17510#       发表于 2025-2-4 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345645&amp;ptid=2208921" target="_blank">帆前 发表于 2025-2-4 15:50</a>
+soyo去的时候好像还真是傍晚哎我趣。
+
+这下偶遇恐怖莫提丝，拼尽全力无法战胜，陪睡一晚了 
+
+ ...</blockquote>
+至少那个拉手的截图光线很像清晨，整体偏白光，带一丢丢蓝绿色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
