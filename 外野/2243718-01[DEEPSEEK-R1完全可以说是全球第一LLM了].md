@@ -16064,3 +16064,15 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 
 .GEMINI说一半话掐断这事有坛友遇到过吗
 
+
+*****
+
+####  vava  
+##### 1247#       发表于 2025-2-4 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345452&amp;ptid=2243718" target="_blank">KioShiMa 发表于 2025-2-4 15:24</a>
+.GEMINI说一半话掐断这事有坛友遇到过吗</blockquote>
+关闭流式输出（如果开了的话）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -7703,3 +7703,15 @@ G9世界线应该没有兹玛德和吉翁尼克合并的触机
 
 2025-2-4 15:23 上传
 
+
+*****
+
+####  cxasuka  
+##### 6502#       发表于 2025-2-4 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345455&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-4 15:25</a>
+想快点能在机战里看到夏利亚遇见裤袜脱落
+
+X 上的 るらっと：“スパロボ時空でクワトロ大尉に遭遇するシャ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既没击败扎比家，又没唤醒新人类集体意识，还被阿姆罗打败的丢人家伙！
+
