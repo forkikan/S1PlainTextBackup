@@ -603,3 +603,16 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感觉轨迹系列就像柯南剧场版
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 7587#       发表于 2025-2-4 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348175&amp;ptid=2160194" target="_blank">希鲁夫 发表于 2025-2-4 23:27</a>
+
+刚打完第二章黎老师线，果然可操作角色少些明显提升游戏体验
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+提前告诉你这作最后一战不是总力战，省下规划的麻烦
+

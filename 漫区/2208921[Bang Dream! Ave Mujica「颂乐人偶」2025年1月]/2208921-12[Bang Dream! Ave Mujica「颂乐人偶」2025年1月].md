@@ -16091,3 +16091,114 @@ go团的乐奈缺剧情，可以用“因为是猫，现在初具人形”来糊
 素世确实亏欠睦吧。。。</blockquote>
 那睦还接了祥子要求防了一年素世情报流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还被独角兽拉去给祥子拆团打收人头的背锅位呢，话说我这话是可以说的吗
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 17698#       发表于 2025-2-4 23:58
+
+虽然祥子和睦的问题第六集解决不了是预告就能看出来的，不过还是觉得这两个拖的实在太久了，go的话这会已经把爱音立希两个单人回都写完了还给了灯一定程度塑造，am这边五个人一个没解决，这后半节奏得飞起
+
+*****
+
+####  小博禹  
+##### 17699#       发表于 2025-2-4 23:59
+
+不过有亏欠不重要，写得好都可以成为女女关系性里重要成分<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+母鸡卡开播的时候谁能想到木箱的问题拖了这么久还没开始解决<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 17700#       发表于 2025-2-4 23:59
+
+問題不是墊不墊
+
+繼續毒打大祥有什麼意義，
+
+她都已經跟死人沒分別
+
+怎想也是時候給她回點血再毒打了
+
+*****
+
+####  fuwamoco  
+##### 17701#       发表于 2025-2-5 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348318&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 23:57</a>
+
+那睦还接了祥子要求防了一年素世情报流，还被独角兽拉去给祥子拆团打收人头的背锅位呢，话说我这话是可以 ...</blockquote>
+好听点说，背锅的是大墨，让她退场就不伤害木箱关系了
+
+*****
+
+####  595505568  
+##### 17702#       发表于 2025-2-5 00:01
+
+在NGA专楼想起来一件事，现在灯注意力全在祥子，会不会口不择言点爆素世和立希<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山ノ内花音  
+##### 17703#       发表于 2025-2-5 00:02
+
+只能说独角兽很变态 角色厨肯定会不满 就看剧情能不能圆回来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17704#       发表于 2025-2-5 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348333&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-5 00:00</a>
+好听点说，背锅的是大墨，让她退场就不伤害木箱关系了</blockquote>
+我说的是C团拆团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17705#       发表于 2025-2-5 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348340&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-5 00:02</a>
+只能说独角兽很变态 角色厨肯定会不满 就看剧情能不能圆回来了</blockquote>
+不把素世和立希点爆导致mygo二度拆团就算赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 17706#       发表于 2025-2-5 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满脑子只有垫垫垫，都不知道说什么好
+
+节约访谈里睦的归宿是祥子身边，看完第六集全场沉默，舅舅说过4-6集不断下滑，第五集旁白说还在下坠的过程中。cm里一堆莫提斯的镜头还需要回收。
+
+那么第六集才到谷底是很明确的，睦醒来都算是上扬了，但是编剧会这么简单让狗团把睦叫醒吗？
+
+莫提斯这个角色很明显，对祥子特攻＋烂梗复读机＋剧情背锅工具人
+
+能解决鸡团问题的永远是鸡团自己人
+
+*****
+
+####  595505568  
+##### 17707#       发表于 2025-2-5 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348345&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-5 00:03</a>
+满脑子只有垫垫垫，都不知道说什么好
+
+节约访谈里睦的归宿是祥子身边，看完第六集全场沉默，舅舅说过4-6集不 ...</blockquote>
+你说的都对，但实际上我每次真情实感相信你访谈的时候，红白 高黄 蒜都给我恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我真情实感去磕你官配的时候哪次表现出来的路径是对的，还是一个把久美子直接成圣人的吹三…一个挑染和白毛互动健康度高过红白的作品，观众也不是那个通关的奖杯，尤其是mygo+mujica里祥子做的事情吃瘪到为错误道歉的反射弧长成这样了你让人有什么信心可以保留吗
+
+*****
+
+####  杂灰  
+##### 17708#       发表于 2025-2-5 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348155&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 23:22</a>
+灯的团轴性回撤 爱音团队响应回撤 立希的团队为主回撤 素世的成长和包容性回撤；顺带一提，因为游戏写了N ...</blockquote>
+团轴回撤又是什么说法，我理解的狗团运行逻辑里灯那种不经修饰也不圆滑的尖锐感情爆发是所有人都会维护的特质，但不需要她每次都能代表所有人的想法，完全可以有冲突，但队伍成员是可以做到积极调和的。
+但唯独不会有人希望灯这种特质变得圆滑，这才是团轴所在吧
+
