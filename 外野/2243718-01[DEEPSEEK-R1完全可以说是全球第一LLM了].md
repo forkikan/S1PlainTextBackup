@@ -16307,3 +16307,15 @@ chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里�
 
 不管是api还是直接对话都是大概率没有回应或者显示服务器忙
 
+
+*****
+
+####  约翰里德  
+##### 1270#       发表于 2025-2-4 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347189&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-4 20:17</a>
+这是不是到了晚上基本上就没法用了……
+
+不管是api还是直接对话都是大概率没有回应或者显示服务器忙</blockquote>
+啊？还好啊，我用chatbox感觉速度还可以
+

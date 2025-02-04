@@ -14988,3 +14988,13 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Yukino-Yukino  
+##### 17590#       发表于 2025-2-4 20:26
+
+【【初素睦登】蓝发双马尾受害联盟-哔哩哔哩】 https://b23.tv/Ef1aJtc 还真有画一个叉，这歌词也太符合了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一点不用改
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
