@@ -16758,3 +16758,20 @@ MyGO第一集没有Live，应该是春日阳光下十个人在C团出发的练�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 17760#       发表于 2025-2-5 00:58
+
+ 本帖最后由 天空塔书记官 于 2025-2-5 01:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348539&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:50</a>
+我能说好像效果不怎么好吗，补充结果上，对商业</blockquote>
+wsd把自己玩崩的根本原因是摊子铺的太大，尤其是向D5J倾斜了太多资源，还撞上了疫情，线下搞不起来，所以后边紧急切割了许多企划，像bang这种长期项目有波折很正常，又不会真把团拆了，只要后边剧情能补回来，还能继续出新歌，搞联动，剩下的都不是大事
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+哦，还有wsd把乐队压榨得太狠了，大姐头这嗓子都扛不住，更别说夹角色音的爱美，再加上李美丽的身体原因，对ppp的线下影响很大
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

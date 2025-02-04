@@ -16579,3 +16579,11 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 我一般是把这段话作为新对话的起始，所以更好的用法是放在系统prompt里吗？比如chatbox是放在助手设置那里？
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 1294#       发表于 2025-2-5 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我要DS帮我分析代码，现在动不动服务器忙 受不了啊！
+
