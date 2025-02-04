@@ -13525,3 +13525,74 @@ MyGO第4话著名的细雪板书 - Mujica第10话
 
 复读属性不就是说明这个人格很空洞吗，塑造一个好莫提斯就把木头挤得没空间了
 
+
+*****
+
+####  未来起航  
+##### 17461#       发表于 2025-2-4 14:10
+
+好蠢的对偶<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">形式上各种细枝末节去凑。有啥用啊？
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  6030sylar  
+##### 17462#       发表于 2025-2-4 14:11
+
+现在还能往回扳，牢墨还可以不是一个完整的人格，只是睦头的自我保护的安全模式
+真搞双重人格风险太大
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 17463#       发表于 2025-2-4 14:11
+
+睦的元素属性是土，是地球，大地无言，但一旦撕裂所释放的能量也是最恐怖的
+
+河川变色，地动山摇 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  帆前  
+##### 17464#       发表于 2025-2-4 14:12
+
+下集如果是soyo军训小莫老师我愿称staff没有常识到了小莫老师的程度
+
+*****
+
+####  琉璃苑軒風  
+##### 17465#       发表于 2025-2-4 14:15
+
+夕阳祥子坐 シーケンス-01.00_01_13_07.静止画010-1024x576.png
+
+飞鸟山复刻 シーケンス-01.00_04_18_16.静止画022-1024x576.png
+
+猫猫家门口 シーケンス-01.00_08_19_03.静止画056-1024x576.png
+
+看到说图带时间戳，有一张是只有b站有的所以没有
+
+*****
+
+####  安娜导函数  
+##### 17466#       发表于 2025-2-4 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344871&amp;ptid=2208921" target="_blank">mono 发表于 2025-2-4 13:31</a>
+邦世界主角们好像没有人真的去看过医生，包括心理医生
+
+我只能想起saaya妈进过医院
+
+以前ksm失声也是话疗好的 ...</blockquote>
+otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 17467#       发表于 2025-2-4 14:17
+
+可能邦多利世界中医生也是乐队兼职的，甚至大量职业都是由乐队担任。所以大少女乐队时代才有坚实的基础<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
