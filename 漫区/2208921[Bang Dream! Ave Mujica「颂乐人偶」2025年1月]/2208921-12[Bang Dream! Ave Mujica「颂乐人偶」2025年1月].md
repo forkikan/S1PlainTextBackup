@@ -15353,3 +15353,64 @@ sis把自己当成曹雪芹了但是绫圣之前试了那么多次脚本，成�
 
 我觉得编剧要做对称，最多做了大结构上的对称，以及一些硬塞的黑板上的判词。那些精确到秒的百分百是观众脑补啊
 
+
+*****
+
+####  Dedicatus-545  
+##### 17626#       发表于 2025-2-4 22:18
+
+虽然愿意相信对称说，但在动画里这些不起眼的地方做文章是不是有点一眼盯真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 17627#       发表于 2025-2-4 22:20
+
+四姐妹先不论，细雪的背景和内容和祥睦经历确实对得上，还有最关键的那个死婴，是mujica的死亡还是睦人格的死亡呢
+
+*****
+
+####  iiiiiiiiii  
+##### 17628#       发表于 2025-2-4 22:20
+
+<blockquote>Dedicatus-545 发表于 2025-2-4 22:18
+虽然愿意相信对称说，但在动画里这些不起眼的地方做文章是不是有点一眼盯真了 ...</blockquote>
+因为就是能对上啊。。。
+
+<img src="https://img.saraba1st.com/forum/202502/04/222021ds3swsjsssdwzr3d.jpg" referrerpolicy="no-referrer">
+
+<strong>A54C36303230C1786407EE8628388262.jpg</strong> (158.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/222021l8ywwosfap66z5as.jpg" referrerpolicy="no-referrer">
+
+<strong>CE47F4C3E079186BD0E63D28A395F680.jpg</strong> (102.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 22:20 上传
+
+狗叼肉刚好对应喵梦找睦要单飞
+
+
+*****
+
+####  影伴光生  
+##### 17629#       发表于 2025-2-4 22:22
+
+mygo里板书确实能对上，不过剧本这么写真有点刻舟求剑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 17630#       发表于 2025-2-4 22:23
+
+隔壁舅舅來了 就四个字
+
+果然是继续低气压拷打么
+

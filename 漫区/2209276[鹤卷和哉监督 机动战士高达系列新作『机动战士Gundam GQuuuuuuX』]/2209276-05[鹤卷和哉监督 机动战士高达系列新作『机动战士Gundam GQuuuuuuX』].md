@@ -8255,3 +8255,14 @@ https://x.com/gundam_ab/status/1886702973084164584
 红高明明就是纯军用的孤品MS，黑市怎么能搞到适用的 ...</blockquote>
 这里吉翁转为走RX78的技术路线了，那么后续机体、内置模块、软件系统，兼容红高规格也似乎不足为奇。
 
+
+*****
+
+####  UNINSTALL42  
+##### 6541#       发表于 2025-2-4 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347317&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-4 20:44</a>
+
+说起来ac6通关了也没明白这玩意到底干啥的（</blockquote>
+6代因为没有锁定框系统存在感会稀薄很多。推荐玩玩初代（
+
