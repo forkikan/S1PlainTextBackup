@@ -13596,3 +13596,32 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 可能邦多利世界中医生也是乐队兼职的，甚至大量职业都是由乐队担任。所以大少女乐队时代才有坚实的基础<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 17468#       发表于 2025-2-4 14:22
+
+你们真想看美少女被抓进精神看护病房灌上药物整个人木的和傻子一样的故事么。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 17469#       发表于 2025-2-4 14:25
+
+大概率挪用素材库，我挺期待soyo看到这个模仿秀的反应
+
+*****
+
+####  aptx8285144  
+##### 17470#       发表于 2025-2-4 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344418&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-4 12:19</a>
+
+不是说切割莫小姐吗，看来还是切割不掉啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+楼里当初还有坚信双重人格很快会消失，因为音乐番写不好这个，结果现在都切割不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
