@@ -12203,3 +12203,135 @@ op里全员颠婆形态应该就是完全体mujica</blockquote>
 
 soyo这不得爽死
 
+
+*****
+
+####  Devola  
+##### 17328#       发表于 2025-2-4 11:16
+
+对仗太刻意就没意思了，就不能搞点新东西
+
+*****
+
+####  fuwamoco  
+##### 17329#       发表于 2025-2-4 11:17
+
+<img src="https://img.saraba1st.com/forum/202502/04/111656hgo7wwwik00kmy0o.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi6YLBNbUAAZclq.jpg</strong> (110.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/111659f6leyu2lvsu4h88s.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi57M-JWYAAw9s9.jpg</strong> (93.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:16 上传
+
+找不同
+
+*****
+
+####  aptx8285144  
+##### 17330#       发表于 2025-2-4 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342884&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-4 01:13</a>
+
+如果欺软是用的盐应对 那欺硬不也应该是盐应对么
+
+实际上和喵梦一直在吵架就没停过 不知道怎么就成了怕了 ...</blockquote>
+第四话室内已经被瞄压制得不敢看她了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 17331#         楼主| 发表于 2025-2-4 11:20
+
+#6 Animum reges. 
+眠る睦を起こそうとそよに縋るモ一ティス。
+変わり果てた"睦"を目の当たりにしたMyGO!!!!!のメンバ一は……
+Mortis紧紧依靠爽世，试图唤醒沉睡的睦。
+Mygo!!!!!的成员们亲眼目睹了已完全变样的“睦”。
+
+脚本:和場明子
+絵コンテ:奥川尚弥
+演出:古賀公一郎
+CGディレクタ一:古賀公一郎
+<img src="https://p.sda1.dev/21/6d79ee9b32eaf06a3007c3e5340a56c9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/909b76693c7b1f8332cf3066ab2d592e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/002103a6de9aaf98aef3ed86ffa5bf55/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7c1b1b79ee559ae48cbd700e9de3220f/image.jpg" referrerpolicy="no-referrer">
+
+https://anime.bang-dream.com/avemujica/story/
+https://b23.tv/yFpz1Aw
+本次b站和官网同步于11:00更新，且b站也只有四张前瞻。
+
+*****
+
+####  aptx8285144  
+##### 17332#       发表于 2025-2-4 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343139&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-2-4 03:57</a>
+
+还有一个bug就是祥子都回家了为什么祥爷不让祥子转回月之森而是继续在羽丘上学
+
+—— 来自 鹅球 v3.3.96-al ...</blockquote>
+只要证明老爷爷对她管理还是比较宽松的证明，如果日后独角兽和柿本还非要把老爷爷拉上最终反派，那就可以多一个拷打的佐证了（
+
+
+*****
+
+####  新HGCG  
+##### 17333#       发表于 2025-2-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343888&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-4 11:17</a>
+
+找不同</blockquote>
+祥子克SOYO
+
+SOYO克莫提丝
+
+莫提丝克祥子
+
+*****
+
+####  嵇翱u  
+##### 17334#       发表于 2025-2-4 11:24
+
+<img src="https://img.saraba1st.com/forum/202502/04/112143x53ctckl7y75yozy.png" referrerpolicy="no-referrer">
+
+<strong>B5Z8XSPI(GT@SR(O{CU4XNU.png</strong> (430.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:21 上传
+
+“睦”确实要被带到ring去了，mygo全员见证了她的变化
+
+话说我本来看上集结尾睦穿的还是睡衣，今天预告就换成常服了，不会扔书也在这集了吧
+
+*****
+
+####  阿卡拉兰斯  
+##### 17335#       发表于 2025-2-4 11:24
+
+我只能说官方是真玩明白烂炒怎么炒了
+
+*****
+
+####  无事忙  
+##### 17336#       发表于 2025-2-4 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67341090&amp;ptid=2208921" target="_blank">blackeryuri2 发表于 2025-2-3 19:37</a>
+
+okok好饿</blockquote>
+【【MyGo】奥尔加团长复活Crychic】 [https://www.bilibili.com/video/B ... 939892e5b18bc6369b1](https://www.bilibili.com/video/BV1kx4y1n7Xh/?share_source=copy_web&amp;vd_source=96c49aec2bd7b939892e5b18bc6369b1)
+
+说的是这个，虽然当时奥尔加的做法有些强行，但是二创通过演出和情绪渲染，比如最初只有钢琴+歌声，但是立希的回归带来了鼓声，这样逐渐递进带来的观感很好很mygo
+
+就是高达出场只在开始，后面几乎没了
+

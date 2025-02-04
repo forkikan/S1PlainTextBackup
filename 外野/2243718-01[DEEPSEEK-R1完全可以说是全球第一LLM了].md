@@ -15867,3 +15867,24 @@ AMD官方的对比图是7900XTX远超4080，小超4090，只有32b比4090慢一�
 
 硅基流动的api今天不给我输出思考过程了
 
+
+*****
+
+####  约翰里德  
+##### 1228#       发表于 2025-2-4 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343806&amp;ptid=2243718" target="_blank">余晖 发表于 2025-2-4 11:08</a>
+硅基流动的api今天不给我输出思考过程了</blockquote>
+一样，我问ds他说什么要设置stream=true，没搞懂
+
+*****
+
+####  骨于野  
+##### 1229#       发表于 2025-2-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343806&amp;ptid=2243718" target="_blank">余晖 发表于 2025-2-4 11:08</a>
+硅基流动的api今天不给我输出思考过程了</blockquote>
+改格式了，一些前端应用要更新。可以更新一下chatbox或者cherrystudio
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

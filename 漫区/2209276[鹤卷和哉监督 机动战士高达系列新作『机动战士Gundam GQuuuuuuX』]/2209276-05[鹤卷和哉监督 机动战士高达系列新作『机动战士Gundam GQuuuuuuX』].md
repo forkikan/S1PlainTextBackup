@@ -7596,3 +7596,20 @@ G9世界线应该没有兹玛德和吉翁尼克合并的触机
 
 想破30亿也不难，发个彩透HG当特典
 
+
+*****
+
+####  王留美  
+##### 6495#       发表于 2025-2-4 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340550&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-3 18:02</a>
+
+第3弹特典</blockquote>
+送胶片了啊
+
+角色篇还能再搞一波
+
+感觉总30亿稳了
+
+但是为什么上周不端出来呢？难道是原案集印多了？
+
