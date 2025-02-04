@@ -7883,3 +7883,13 @@ https://x.com/gundam_ab/status/1886702973084164584
 
 2025-2-4 18:29 上传
 
+
+*****
+
+####  王留美  
+##### 6509#       发表于 2025-2-4 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346242&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-2-4 17:24</a>
+ https://x.com/gundam_ab/status/1886702973084164584</blockquote>
+官方缩写是GQ了
+

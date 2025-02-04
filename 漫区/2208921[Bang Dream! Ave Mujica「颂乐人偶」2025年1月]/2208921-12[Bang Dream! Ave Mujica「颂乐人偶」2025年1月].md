@@ -14545,3 +14545,110 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 祥子会不会是段誉 am团另外4个是段正淳的女儿
 
+
+*****
+
+####  ads147147  
+##### 17560#       发表于 2025-2-4 18:58
+
+睦和莫之后和游戏王一样相互切相互请神不就好了，而且很明显动画只会给你讲个开头，剩下双重人格的展开可以在游戏里说，说不定还会有决斗之仪（
+
+个人还是不认为双重人格这个说法是成立的，莫还是像应激反应导致的入戏过深无法脱离莫这个身份，她就是睦，也不是睦，接受父母和给自己的才能也是自己的东西是睦必须走的路，或许是编剧对庄周梦蝶的一个解释，她既可以是庄周也可以是蝴蝶。
+
+这点上soyo说不定真是前辈，soyo作为脱不下妈妈面具的女人最理解睦这种入戏太深分不清面具到底是面具还是自己的情况，也是在mygo成立后成功解离了自己和面具，认清自己走什么路的人，指点下大莫老师去找猫问题也不大。
+
+虽然我是不太了解soyo怎么开出找猫这个配方的，感觉图透可能是莫求soyo教她吉他，soyo弹贝斯肯定没法教，总不可能靠爱音吧，或许找猫已经是最好的选择。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  友情的结晶  
+##### 17561#       发表于 2025-2-4 18:58
+
+四子之争，素来如此
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  玖羽  
+##### 17562#       发表于 2025-2-4 19:00
+
+@KanadeSub_34
+
+<img src="https://img.saraba1st.com/forum/202502/04/184458ijiai1rdbqtalqdr.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi36YC7a4AAfidN_orig.jpg</strong> (197.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+@Oox3O
+
+<img src="https://img.saraba1st.com/forum/202502/04/184458cxbbvkyxshhtz207.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi64Y1CaQAAXe-w_orig.jpg</strong> (169.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+@ssami0617
+
+<img src="https://img.saraba1st.com/forum/202502/04/184459jy2zm2le2q5lmly5.jpg" referrerpolicy="no-referrer">
+
+<strong>GiywBv0bUAAvzVd_orig.jpg</strong> (305.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+@maxmanster
+
+<img src="https://img.saraba1st.com/forum/202502/04/184457q7gx4mcwvcocr5v1.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi1xLRfa0AAFjoA_orig.jpg</strong> (436.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+@sukeillust
+
+<img src="https://img.saraba1st.com/forum/202502/04/184458dlmnhvh3windmmaf.jpg" referrerpolicy="no-referrer">
+
+<strong>GiuiVabaoAATReM_orig.jpg</strong> (319.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+@CEMA8077919
+
+<img src="https://img.saraba1st.com/forum/202502/04/184458otucdafueceedvuf.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi4bFnDa4AAs5mQ_orig.jpg</strong> (893.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/184457uhgh1d0hvdhe771b.jpg" referrerpolicy="no-referrer">
+
+<strong>Gi3PVZpaQAA1te1_orig.jpg</strong> (63.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:44 上传
+
+
+*****
+
+####  zhigui  
+##### 17563#       发表于 2025-2-4 19:03
+
+（虽然四子夺嫡假药是纯图一乐，但我真怀疑初华有丰川家血缘）
+
