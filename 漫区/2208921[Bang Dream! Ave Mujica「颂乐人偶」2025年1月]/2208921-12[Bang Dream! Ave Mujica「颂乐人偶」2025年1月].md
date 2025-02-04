@@ -15540,3 +15540,108 @@ mygo里板书确实能对上，不过剧本这么写真有点刻舟求剑了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17643#       发表于 2025-2-4 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347974&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-4 22:45</a>
+go团垫给祥子，还有这等好事？
+真成了可会炸个大的了</blockquote>
+那武士道真的要亏本16.8亿自己玩去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屌丶哲  
+##### 17644#       发表于 2025-2-4 22:47
+
+<img src="https://img.saraba1st.com/forum/202502/04/224701yi2w2tkdtr2dgdrn.png" referrerpolicy="no-referrer">
+
+<strong>EF1119EFC627192B6CB82FE5008BDB88.png</strong> (2.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 22:47 上传
+
+【若叶睦：“祥子，这一刀戒骄戒躁”】
+[https://www.bilibili.com/video/BV1ckPqeyEyf](https://www.bilibili.com/video/BV1ckPqeyEyf)
+
+*****
+
+####  嵇翱u  
+##### 17645#       发表于 2025-2-4 22:47
+
+睦不会因为go团介入苏醒是板上钉钉的吧，本来牢莫就说了“现在的祥子不行”，预示只有祥子可以。
+mygo估计也就是像睦头传话，海玲鼓励灯这种间接干预
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  akiomn  
+##### 17646#       发表于 2025-2-4 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫提斯第四集提示过了啊，现在的祥子没法把睦拉回来
+编剧就差直说能拉睦的只有觉醒后的祥子了
+但是祥子现在也是炸掉的状态，得有人拉祥子一把
+狗团这波进场肯定没法把睦祥两个拉回来的，要不然后面还演什么？
+
+*****
+
+####  阿兹尔  
+##### 17647#       发表于 2025-2-4 22:49
+
+剩下3个鸡团角色洗白和填充人设、关系性、背景的集数够不够啊。。。剩下3个角色真是单薄得可以
+
+*****
+
+####  595505568  
+##### 17648#       发表于 2025-2-4 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347992&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-4 22:48</a>
+莫提斯第四集提示过了啊，现在的祥子没法把睦拉回来
+编剧就差直说能拉睦的只有觉醒后的祥子了
+但是祥子现在 ...</blockquote>
+ 那客观说还是垫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那Go推铁要出来规模性的闹了，到时候不要出现爱音+110之后鸡团谷子+不出来了，RAS的待遇再来一次吧，天天骗人和垫团，还是嫌弃邦多利企划活久了。当年Layer是KSM直接拉起来复活的，你现在把Go团垫完后开始不仲风险暴露不得活剥mggm
+
+
+*****
+
+####  595505568  
+##### 17649#       发表于 2025-2-4 22:53
+
+到时候圣爱音完了搞笑素世，单箭头轻语灯，初恋处男立希，芭菲猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，然后mygo里缺乏高光的继续被拉去当笑料触发器和工具人；然后来一句这个不需要了垫掉，你不会觉得社区反馈会很有趣吧
+
+*****
+
+####  山ノ内花音  
+##### 17650#       发表于 2025-2-4 22:55
+
+希望祥子能发力 让武士道倒闭<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 17651#       发表于 2025-2-4 22:57
+
+舅舅党的链接能发一下吗？
+
+*****
+
+####  fuwamoco  
+##### 17652#       发表于 2025-2-4 22:57
+
+素世是最危险的吧，她100%解开不了睦的心结，整个mygo篇她还是利用pua睦头的关系，并且从她视角一直认为睦头和祥子合起伙要和她切割。怎么看都是劣势路
+
+圣爱音和灯对的是必须要战起来才能救mujica的大祥老师，优势路无疑。
+
+立希中路solo海玲那不是随便拿捏，海玲早没位置给她戏份了
+
+*****
+
+####  古明地雷  
+##### 17653#       发表于 2025-2-4 22:57
+
+不懂这什么思路，mygo没把鸡团的事解决了就是垫了？那鸡团都靠狗怎么不是垫给狗了呢。。乐队之间帮忙很正常，但是乐队内部的事还是得内部成员解决啊
+
