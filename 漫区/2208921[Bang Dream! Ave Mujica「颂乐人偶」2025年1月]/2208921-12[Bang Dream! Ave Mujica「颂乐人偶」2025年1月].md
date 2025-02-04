@@ -16553,3 +16553,143 @@ am节奏感觉不如go舒适还是感觉比起go那种抛出一个问题基本�
 都是给前几集打补丁，声称“整这么莫名其妙就是考考你的呀”“角色不是蠢而是坏懂不懂”，内鬼论和叙诡论作 ...</blockquote>
 人物塑造要跌停了，基础起步粉丝要跑光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，留在里面的不停的需要说服自己后面有机会把角色弧光扭回来的，怎么办嘛chuchu发癫的时候动画让她光速吃瘪后改正了，也展现了她超人的正面高光，就这还因为剧情排布和老团粉丝情绪问题处低位；你到这里好几个人机和0高光0吃瘪后改正，疑似要拉其他关系性排访谈关系的后面去这比当年第二季/第三季的问题还严重
 
+
+*****
+
+####  595505568  
+##### 17741#       发表于 2025-2-5 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348471&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-5 00:33</a>
+am节奏感觉不如go舒适还是感觉比起go那种抛出一个问题基本一到两集就可以彻底解决的结构（只有8.9.10可以算 ...</blockquote>
+Go跟老邦三季是很接近的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，到最后别一场空就不错了
+
+*****
+
+####  huxiaopao163  
+##### 17742#       发表于 2025-2-5 00:40
+
+ 本帖最后由 huxiaopao163 于 2025-2-5 00:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348464&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-5 00:32</a>
+
+都是给前几集打补丁，声称“整这么莫名其妙就是考考你的呀”“角色不是蠢而是坏懂不懂”，内鬼论和叙诡论作 ...</blockquote>
+“整这么莫名其妙就是考考你的呀”“角色不是蠢而是坏懂不懂”
+
+这两句话很好的总结了导演和声优们的访谈内容
+
+不过他们说的话确实也不必相信，确实也有可能动画里啥都没有，独角兽忙半天其实写的是采访剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 17743#       发表于 2025-2-5 00:40
+
+ 本帖最后由 南宮凝香 于 2025-2-5 00:42 编辑 
+<blockquote>595505568 发表于 2025-2-5 00:26
+C团的真相，C团的和解，至少半集得给吧</blockquote>
+
+沒時間了
+
+就當希素燈三人肚量大
+
+一曲泯恩仇算了
+
+一算下去後半季的節奏根本趕得飛起
+
+再拖下去連雞團為什麼要重組我們可能也要靠打哈哈帶過
+
+*****
+
+####  友情的结晶  
+##### 17744#       发表于 2025-2-5 00:41
+
+说到猫的塑造，可以说她这个人设非常取巧，寥寥几笔就立起来的一个非常鲜明的人形野猫形象。可能因为我不算厨子，但我觉得这个取巧的人设放在mygo动画里正正好，再去塑造太多她“人”的一面反而画蛇添足。
+
+不过我本来就是认为tv华恋大于剧场版华恋的一派，也习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  595505568  
+##### 17745#       发表于 2025-2-5 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348495&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-5 00:40</a>
+沒時間了
+
+就當希素燈三人肚量大</blockquote>
+那人设真的回撤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，飞鸟山不存在了，立希看灯自闭后自己其实也自闭的情绪积累不存在了，灯…我现在只能求别为了卖灯祥忘记mygo必须是这五个人一辈子的乐队优先度高低了
+
+*****
+
+####  小博禹  
+##### 17746#       发表于 2025-2-5 00:42
+
+狗第七集灯看到木箱坚定意志唱出口，对偶鸡第七集灯用自己的意志唤醒木箱收两后宫。从被拯救到拯救，也是c到狗再到鸡的传承<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2793f1b6a63a82d05c8557154d2be49f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 17747#       发表于 2025-2-5 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348436&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:25</a>
+但是otae人设爆炸的剧情，是动画来的吧，造成的震荡可真的擦不干净的屁股 ...</blockquote>
+这部分不是人设的问题，而是想要加入现实性桥段搞烂炒，组合大腿被挖走或者单飞是玩乐队不可不品尝的一环，多惠本来就是超乎常人的电波性格，不会说人话是常态(无贬义），而且其实关于她的时间安排早就做过铺垫了，只不过周年纪念的噱头把观众期望垫得过高，所以反转后必然会引来不满，再加上空降RAS带来的反噬，但我就属于还好的类型，毕竟看动画有趣才是最重要的，如果真要一直无波折发展下去还是会让观众会很无聊的
+
+况且bang企划注定是要在不同乐队之间寻找关系性的切入点，哪怕是硬造一个，就比如楚平方和透子，那多少是有点生硬，天降青梅已经算是很成熟的手段，只不过原有CP粉能不能接受就是另一回事了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  fuwamoco  
+##### 17748#       发表于 2025-2-5 00:42
+
+猫猫人气可不低，尤其剧场版之后人气更高
+
+*****
+
+####  595505568  
+##### 17749#       发表于 2025-2-5 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348501&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 00:42</a>
+这部分不是人设的问题，而是想要加入现实性桥段搞烂炒，组合大腿被挖走或者单飞是玩乐队不可不品尝的一环 ...</blockquote>
+原有的粉丝他稳定消费你去恶心他不是没事找事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 17750#       发表于 2025-2-5 00:43
+
+ 本帖最后由 罥索GFFF 于 2025-2-5 00:46 编辑 
+
+好好好好好
+
+*****
+
+####  凉良  
+##### 17751#       发表于 2025-2-5 00:43
+
+今天的感想 对偶说太可怕了
+
+*****
+
+####  595505568  
+##### 17752#       发表于 2025-2-5 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348501&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 00:42</a>
+这部分不是人设的问题，而是想要加入现实性桥段搞烂炒，组合大腿被挖走或者单飞是玩乐队不可不品尝的一环 ...</blockquote>
+主要是团魂粉收到了巨大的背叛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，人不在乎你多点关系性，但你要出现青梅乐团二选一的抉择点，还出现了重要的周年演出缺席的问题，这团推炸给你看。说到底你关系性就算真到两个人跑床上去了也没人管，但你优先级轻重总得分清楚吧，PPP团魂问题受到动摇的剧本说实话确实看的不舒服
+
+*****
+
+####  凉良  
+##### 17753#       发表于 2025-2-5 00:47
+
+按对偶说 鸡13集会不会是c团大和解十人春日影
+
