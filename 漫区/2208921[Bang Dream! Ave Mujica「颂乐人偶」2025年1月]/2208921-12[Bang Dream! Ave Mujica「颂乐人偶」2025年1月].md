@@ -14095,3 +14095,37 @@ MyGO _ AveMujica
 
 哪能割掉，早就你中有我我中有你一母同胞血浓于水了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 17517#       发表于 2025-2-4 16:13
+
+切割是肯定不可能的。mujica放送前特别节目里提到过mujica这个副标题是后来才确定的，搞不好最早的计划就是一部动画分割放送。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 17518#       发表于 2025-2-4 16:14
+
+你以为是拉拉星团1和星团2啊，人家一期第一季真的没有半点会有第二季加人的暗示，mygo很明显就是讲个上半部分的设计，想切割哪里切的掉。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 17519#       发表于 2025-2-4 16:17
+
+<blockquote>天空塔书记官 发表于 2025-2-4 16:04
+MyGO _ AveMujica 
+
+2025年2月4日16:01</blockquote>
+愛祥！
+
+這時間點還真刺激
+
+大屋裡兩人越過燈真接對線
+
