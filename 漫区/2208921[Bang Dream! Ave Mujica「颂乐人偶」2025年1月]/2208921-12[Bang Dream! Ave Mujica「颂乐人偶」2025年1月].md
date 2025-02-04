@@ -14179,3 +14179,17 @@ MyGO _ AveMujica
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 17524#       发表于 2025-2-4 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345936&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-4 16:42</a>
+既然现在知道细雪很可能对应Mujica第10话，就不是姐妹说这么简单的问题了，我们都知道第10话是什么重量
+
+ ...</blockquote>
+如果少的那一个是故事的讲述者，搞不好红光电视就会在第十集出现<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
