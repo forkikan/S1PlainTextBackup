@@ -301,3 +301,11 @@
 新债券也挖出来了，自爆主题，抽象的一逼</blockquote>
 地狱火背包应该还是挺有用的，毕竟开了之后还有10秒倒数。核弹手枪看起来好像也还行
 
+
+*****
+
+####  unsh  
+##### 5704#       发表于 2025-2-5 00:21
+
+炸干扰塔更方便了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

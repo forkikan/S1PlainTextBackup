@@ -16551,3 +16551,13 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  goranger  
+##### 1291#       发表于 2025-2-5 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347841&amp;ptid=2243718" target="_blank">西林 发表于 2025-2-4 22:22</a>
+求私，感谢</blockquote>
+球传火
+

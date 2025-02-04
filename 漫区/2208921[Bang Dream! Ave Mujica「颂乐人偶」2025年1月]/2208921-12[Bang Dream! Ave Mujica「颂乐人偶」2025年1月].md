@@ -16269,3 +16269,135 @@ go团的乐奈缺剧情，可以用“因为是猫，现在初具人形”来糊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17714#       发表于 2025-2-5 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348393&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 00:15</a>
+不是都明示大三角了吗，而且真正的社会性关系不会只有固定的两个人，又不是隔壁D5J的真女同，再说了有“爱 ...</blockquote>
+邦多利企划不会，但是独角兽会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  友情的结晶  
+##### 17715#       发表于 2025-2-5 00:22
+
+动漫高手发明的这个新词人设回撤到底是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。我问他的粉丝，粉丝说是用在喵梦身上意思等同于洗白，但楼里的用法我又看着不像
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  595505568  
+##### 17716#       发表于 2025-2-5 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348377&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-5 00:10</a>
+还抱着木箱官配想法的cp党还是快点跑吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我是说我当年三部作品访谈官配全灭的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我一直是Go团和初祥党啊
+
+*****
+
+####  烂片雷达  
+##### 17717#       发表于 2025-2-5 00:23
+
+既然有关系不好的乐队，当然也可以有精神不好的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+我看大家的思维还是太局限了，谁说一定要治好精神问题才能组乐队的，我看玩音乐的就该有点精神病（开玩笑的
+
+这下重组mujica的意义也有了，姐几个都因为旧mujica的问题产生了不同程度的战后综合征，为了治病姐妹几个不得不重聚在一起，一边玩音乐一边寻找治病的办法，和迷子的即使迷茫也要前进也对应上了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17718#       发表于 2025-2-5 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348421&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:22</a>
+动漫高手发明的这个新词人设回撤到底是什么意思。我问他的粉丝，粉丝说是用在喵梦身上意思等同于洗白，但楼 ...</blockquote>
+做过头的角色唐突变好人是回撤，成长了结果又缩卵了也是回撤，弧光已经拉出来了结果给你擦掉塞回去就是回撤<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 17719#       发表于 2025-2-5 00:24
+
+都拿一整部mujica来写祥子的死亡和重生了，不止一个官配不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  天空塔书记官  
+##### 17720#       发表于 2025-2-5 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348411&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:21</a>
+邦多利企划不会，但是独角兽会</blockquote>
+以后反正都会进手游，动画只是角色塑造的一部分，别忘了还有逆输入呢，李子和鼓子的青梅关系性说不定已经在路上了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  595505568  
+##### 17721#       发表于 2025-2-5 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348431&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:24</a>
+都拿一整部mujica来写祥子的死亡和重生了，不止一个官配不是很正常
+
+论坛助手,iPhone ...</blockquote>
+一整部mujica？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定只有这部mujica吗
+
+*****
+
+####  fuwamoco  
+##### 17722#       发表于 2025-2-5 00:25
+
+只要海希这对不动，其他人都和祥子当cp也行
+
+*****
+
+####  595505568  
+##### 17723#       发表于 2025-2-5 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348433&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 00:24</a>
+以后反正都会进手游，动画只是角色塑造的一部分，别忘了还有逆输入呢，李子和鼓子的青梅关系性说不定已经 ...</blockquote>
+但是otae人设爆炸的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是动画来的吧，造成的震荡可真的擦不干净的屁股
+
+*****
+
+####  南宮凝香  
+##### 17724#       发表于 2025-2-5 00:25
+
+剩下8 集
+
+主唱的初華要兩話很正常吧 （不然就是最影簿的主唱了）
+
+海喵我假設1話解決兩人
+
+包餃子+ 後日談 1集半
+
+這已經只剩下3話左右給睦祥
+
+第7話初步解決睦的問題可以說是硬標準
+
+睦祥從第2話開始算已經4話了
+
+在這裡分配一半以上的時間基本上可以說是安排失當
+
+*****
+
+####  595505568  
+##### 17725#       发表于 2025-2-5 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348437&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-5 00:25</a>
+剩下8 集
+
+主唱的初華要兩話很正常吧 （不然就是最影簿的主唱了）</blockquote>
+C团的真相，C团的和解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，至少半集得给吧
+
