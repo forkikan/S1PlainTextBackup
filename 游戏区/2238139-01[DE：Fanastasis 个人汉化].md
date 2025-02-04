@@ -40,3 +40,14 @@
 
 魔女帝纯木桩还好吧..几个隐藏的龙和恶魔都比她麻烦，正常情况下那个时期玩家不论法队（老鼠c）或者物理（双刀或者双动暗使）都已经输出溢出了
 
+
+*****
+
+####  83913536  
+##### 120#       发表于 2025-2-4 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347222&amp;ptid=2238139" target="_blank">sosgame67 发表于 2025-2-4 20:24</a>
+
+魔女帝纯木桩还好吧..几个隐藏的龙和恶魔都比她麻烦，正常情况下那个时期玩家不论法队（老鼠c）或者物理（ ...</blockquote>
+双刀和双动暗使我都没用，就3保1大剑姐锁残血每个肉盾基本几下暴击就死了...听说大剑还是垫底的输出，其他阵容应该随便打<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">，整体难度确实不高，就是不换装备防异常很烦人
+

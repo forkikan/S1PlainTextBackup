@@ -15756,3 +15756,67 @@ c团live，或者内鬼论的情况下莫姐说漏嘴？掌控心灵以后第7�
 
 灯神已经给了第一推动力，能不能转起来就看小祥自己了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古明地雷  
+##### 17666#       发表于 2025-2-4 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348067&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 23:04</a>
+
+你没发现我总结的时候角色复杂度和上一次完成的角色弧光补完都没了吗，人设回撤的不止有Mujica的情况下你 ...</blockquote>
+很难理解，你的意思是mygo要么不出场要么解决鸡团的问题？而且狗团又怎么回撤了
+
+*****
+
+####  595505568  
+##### 17667#       发表于 2025-2-4 23:19
+
+，高达SeedD当年要是把大天使号一干人拉过来出场占了篇幅后还被拉来吃瘪会怎么样；现在就卡在这个问题上了，一旦这个拉起来过程展现出的结果是垫了，工具人化、人设回撤了，那基本要完蛋了，祥子人物弧光给够了以后立即滑坡大祥传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，邦多利要体验当年高达上下篇特有的老人核地雷了
+
+*****
+
+####  坚挺水表君  
+##### 17668#       发表于 2025-2-4 23:19
+
+个人对第6集的推测：
+
+祥这条线爱和灯没有打出决定性的效果(可能最大的成果就是把笔记本送出去了)
+
+睦这条线应该是go团这边尽力抢救但还是没成功
+
+(对应mygo第8话，一起都朝着更加糟糕的方向发展)
+
+*****
+
+####  南宮凝香  
+##### 17669#       发表于 2025-2-4 23:20
+
+實際上最遲第七話祥睦要爬起來一個了
+
+不然剩下那三個空氣人就是空氣笑話了
+
+
+*****
+
+####  595505568  
+##### 17670#       发表于 2025-2-4 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348135&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-4 23:18</a>
+很难理解，你的意思是mygo要么不出场要么解决鸡团的问题？而且狗团又怎么回撤了 ...</blockquote>
+灯的团轴性回撤 爱音团队响应回撤 立希的团队为主回撤 素世的成长和包容性回撤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">；顺带一提，因为游戏写了N个团活和跨团活动，人设已经开始前进和偏移了，存在的风险就是我说的上述情况是人设已经被广播剧 Live小剧场 游戏剧情开始延伸的情况下，mujica里退回13集去的情况，别人不满意很正常
+
+*****
+
+####  fuwamoco  
+##### 17671#       发表于 2025-2-4 23:25
+
+提醒一下，狗团第五集已经在打水族馆之战了。鸡团第六集还在全速后退呢，不会是月之森浓度更高的一半。
+
+*****
+
+####  山ノ内花音  
+##### 17672#       发表于 2025-2-4 23:27
+
+估计是努力了半天 最后发现睦还是醒不过来这种展开吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

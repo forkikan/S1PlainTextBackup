@@ -290,3 +290,14 @@
 
 这波基本是QOL润色更新，改进了很多小细节，比如更清晰的新UI，投掷物高抛低抛，角色移动加了视角偏移（虽然瞄准时向右移动时头会挡住准星），武器后坐力动画也改了，不过看测试又改出了不少bug
 
+
+*****
+
+####  xinfengj  
+##### 5703#       发表于 2025-2-4 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347861&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2025-2-4 22:27</a>
+
+新债券也挖出来了，自爆主题，抽象的一逼</blockquote>
+地狱火背包应该还是挺有用的，毕竟开了之后还有10秒倒数。核弹手枪看起来好像也还行
+
