@@ -8242,3 +8242,16 @@ https://x.com/gundam_ab/status/1886702973084164584
 
 别问，问就是高达是这么说的
 
+
+*****
+
+####  Steel.Haze  
+##### 6540#       发表于 2025-2-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347196&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-4 20:18</a>
+
+这里说的是不是为什么修红高，而是为什么能修红高。
+
+红高明明就是纯军用的孤品MS，黑市怎么能搞到适用的 ...</blockquote>
+这里吉翁转为走RX78的技术路线了，那么后续机体、内置模块、软件系统，兼容红高规格也似乎不足为奇。
+
