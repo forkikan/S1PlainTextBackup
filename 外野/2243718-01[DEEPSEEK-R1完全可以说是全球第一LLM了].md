@@ -16319,3 +16319,36 @@ chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里�
 不管是api还是直接对话都是大概率没有回应或者显示服务器忙</blockquote>
 啊？还好啊，我用chatbox感觉速度还可以
 
+
+*****
+
+####  01一14  
+##### 1271#       发表于 2025-2-4 20:34
+
+deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出的deepseek r1 qwen 1M模型还可以，不过可能还需要再优化微调下。
+
+*****
+
+####  jf8350143  
+##### 1272#       发表于 2025-2-4 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347249&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-4 20:30</a>
+
+啊？还好啊，我用chatbox感觉速度还可以</blockquote>
+我是用的硅基流动的api（因为官网的api页面一直在维护），基本上是完全没有回应……
+
+官网直接输入大概率显示服务器忙
+
+
+*****
+
+####  约翰里德  
+##### 1273#       发表于 2025-2-4 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347275&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-4 20:35</a>
+我是用的硅基流动的api（因为官网的api页面一直在维护），基本上是完全没有回应……
+
+官网直接输入大概率 ...</blockquote>
+我也是啊，最晚两分钟回复。
+是不是你费用用完了。
+
