@@ -13875,3 +13875,70 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 前几天我在nga发帖讨论过，目前睦的塑造全是朝着莫去的，这么多塑造不可能无效塑造的。所以以后人格融合后，很可能平时表现的跟莫一样，以前无口睦登场会少了。我觉得你们要接受以前的睦在鸡团结尾才能登场，或者以莫为主了。
 
+
+*****
+
+####  烂片雷达  
+##### 17496#       发表于 2025-2-4 15:18
+
+不是在撒娇吗，把墨提斯当成一个小孩子看就行了，这时候就跟小孩拉大人衣角撒娇差不多
+素世也会怒斥墨提斯不要撒娇现在是说这种话的时候吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晓色暮云  
+##### 17497#       发表于 2025-2-4 15:19
+
+那我想问以后也这么喜欢模仿吗，就不觉得莫很像没有灵魂的人偶嘛，比无口木还不像人
+
+*****
+
+####  山ノ内花音  
+##### 17498#       发表于 2025-2-4 15:19
+
+这下真的瞒天过海了
+不过第五集就能被看出来也算是只有mygo先进国才能做到的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 17499#       发表于 2025-2-4 15:21
+
+如果对应细雪 
+大概率初睦祥其实都有丰川家的血缘 
+最后也都会脱离丰川家
+
+*****
+
+####  烂片雷达  
+##### 17500#       发表于 2025-2-4 15:22
+
+小孩爱模仿不是很正常，多肯定多点关爱多给点正反馈就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17501#       发表于 2025-2-4 15:22
+
+但奈何想要A团和迷子切割的太多，这种可能从一开始就被好多观众否定<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  厚乳果珍爽  
+##### 17502#       发表于 2025-2-4 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345158&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 14:28</a>
+
+楼里当初还有坚信双重人格很快会消失，因为音乐番写不好这个，结果现在都切割不了 ...</blockquote>
+我还坚信双重人格不过是睦的演技演出来的。
+
+*****
+
+####  杂灰  
+##### 17503#       发表于 2025-2-4 15:25
+
+这个企划从一开始就没打算完全切开，不如说就是想要搞出那种平行又紧密相连的感觉，go团剧情鸡团参与那么多，还留了一堆尾巴，鸡团剧情本来就不可能脱离狗团人
+
