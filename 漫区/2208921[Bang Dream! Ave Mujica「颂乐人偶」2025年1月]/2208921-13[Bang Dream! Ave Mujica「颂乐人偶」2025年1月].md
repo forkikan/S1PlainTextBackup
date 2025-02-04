@@ -307,3 +307,13 @@ wsd只是负责做卡，除了本家以外，其他的还是甩给ip授权方吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 17790#       发表于 2025-2-5 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348693&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 01:50</a>
+那就更无所谓了，既然到哪都一样被恶心，不如看毒唯破防打滚受伤害，起码自己还能开心点</blockquote>
+毒唯不打滚还是能用来消费的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，脱坑回踩就一点顾忌都没了，不是好事
+
