@@ -334,3 +334,42 @@ wsd只是负责做卡，除了本家以外，其他的还是甩给ip授权方吧
 
 本来洗白这个词也有差不多意思，就怪这些年全是各种硬洗，一个恶心角色整点理由就变成大好人了，一用洗白就引起大家ptsd，导致要出各种细分名词<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwwttth  
+##### 17792#       发表于 2025-2-5 02:27
+
+ 本帖最后由 wwwttth 于 2025-2-5 02:30 编辑 
+
+那个致敬海猫说有点真，不说私生子说对不对但是致敬要素确实有点多了，甚至还有b站特供的红色真实
+
+*****
+
+####  莱茵哈鲁特  
+##### 17793#       发表于 2025-2-5 02:29
+
+[https://www.bilibili.com/video/BV1TVfjYLEHE/](https://www.bilibili.com/video/BV1TVfjYLEHE/)
+
+看了这个视频才发现，墨提斯模仿最多的人还是素世啊。
+
+*****
+
+####  澜灰-  
+##### 17794#       发表于 2025-2-5 02:30
+
+贴吧那op名字假药不错啊
+假如真的话确实是在谜面上
+judy对睦
+judu对喵梦
+juda对初华
+这个样子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉能信个8成
+
+
+*****
+
+####  凉良  
+##### 17795#       发表于 2025-2-5 02:34
+
+3内鬼最大问题 老登有病吧塞那么多内鬼……
+
