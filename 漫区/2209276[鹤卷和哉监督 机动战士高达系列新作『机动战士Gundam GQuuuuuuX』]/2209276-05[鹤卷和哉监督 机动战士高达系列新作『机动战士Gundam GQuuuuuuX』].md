@@ -8164,3 +8164,13 @@ https://x.com/gundam_ab/status/1886702973084164584
 高达大概率不能说话只能传递抽象的nt电波。牢修对上电波能勉强理解高达“想要变强”的意思，但要说有具体 ...</blockquote>
 但有没有可能买个小零件就变强在UC里很天方夜谭（
 
+
+*****
+
+####  王留美  
+##### 6533#       发表于 2025-2-4 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347196&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-4 20:18</a>
+ 这里说的是不是为什么修红高，而是为什么能修红高。 红高明明就是纯军用的孤品MS，黑市怎么能搞到适用的 ...</blockquote>
+在加装阿尔法塞可缪(或者更早)的时候进行了制式化改造吧
+

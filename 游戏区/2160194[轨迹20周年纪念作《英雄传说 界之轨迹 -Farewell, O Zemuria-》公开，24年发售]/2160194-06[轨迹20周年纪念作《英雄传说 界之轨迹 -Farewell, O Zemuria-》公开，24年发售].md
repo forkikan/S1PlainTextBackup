@@ -521,3 +521,31 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 
 这结尾就是真结局？怎么又搞了个ys8丹娜类似的角色
 
+
+*****
+
+####  卢迪克  
+##### 7580#       发表于 2025-2-4 21:06
+
+ 本帖最后由 卢迪克 于 2025-2-4 21:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347093&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-4 19:59</a>
+
+还是不一样的 万一销量跪了 可能就没有sc了</blockquote>
+很难的啦，某第三方已经因为ns2兼容ns软件上调预期了
+
+至于法老控他已经自信把ps4都扔了，要知道ps4界轨还有2.2w销量呢
+<img src="https://p.sda1.dev/21/69b386ea96348ec740ee176cde6da333/IMG_CMP_100433571.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aimujie  
+##### 7581#       发表于 2025-2-4 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347393&amp;ptid=2160194" target="_blank">吴怀在 发表于 2025-2-4 21:00</a>
+打完收工。
+
+因为想赶今天打完，所以最后的4spg全跳了，最后等级只有AA</blockquote>
+界2肯定会把学妹捞回来的
+

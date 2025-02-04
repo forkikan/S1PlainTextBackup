@@ -15132,3 +15132,44 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  swessia  
+##### 17604#       发表于 2025-2-4 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我不管啥对偶说，最后端出来母鸡卡能圆回来就行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  嵇翱u  
+##### 17605#       发表于 2025-2-4 21:11
+
+日本人对庄周梦蝶的典故理解和我们这里一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，还是他只是取了字面意思双方分不清彼此
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  凉良  
+##### 17606#       发表于 2025-2-4 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347057&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 19:52</a>
+发现隔壁nga已经有帖子公然骂对方支持者了，“如果祥厨是逆天榜榜首，喵厨是不是逆天榜榜二？”印象当中少 ...</blockquote>
+第六集继续拷打感觉能迈入批判的不够卖力就是罪
+
+*****
+
+####  一心而用  
+##### 17607#       发表于 2025-2-4 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347452&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-4 21:11</a>
+日本人对庄周梦蝶的典故理解和我们这里一样吗，还是他只是取了字面意思双方分不清彼此
+
+—— 来自 S1Fun ...</blockquote>
+ D指导：
+日本在接受庄周梦蝶时，更多结合了本土的禅宗思想与无常观。例如，日本作家平野启一郎在《一月物语》中，将庄周梦蝶与“黄粱一梦”结合，并融入李贺诗歌的意象，赋予其更强烈的文学幻想色彩。日本文化更倾向于将梦蝶视为一种“瞬间的永恒”，强调生命无常与虚实交织的美感，而非纯粹哲学上的齐物论。这种解读弱化了庄子原典中的逻辑思辨，转而突出禅宗的“空寂”与物哀美学。
+
