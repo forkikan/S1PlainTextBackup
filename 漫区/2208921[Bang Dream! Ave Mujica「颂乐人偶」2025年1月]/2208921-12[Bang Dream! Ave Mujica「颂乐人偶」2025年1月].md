@@ -13196,3 +13196,32 @@ IMG_3554.jpeg
 
 鸡团杂鱼和狗团杂鱼得惊世一战
 
+
+*****
+
+####  十万年魂环  
+##### 17432#       发表于 2025-2-4 12:56
+
+整点新活，反正都要流量不要🐴的烂炒了
+
+*****
+
+####  mono  
+##### 17433#       发表于 2025-2-4 13:00
+
+靠对偶和梗驱动故事 讲真有点破坏观感
+
+
+*****
+
+####  zhzij111  
+##### 17434#       发表于 2025-2-4 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344164&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-4 11:46</a>
+前脚还说父母不做人，把孩子关家里不让见光，后脚就把神经病女儿放出来到处跑。
+
+这父母是刚出生还是编剧是 ...</blockquote>
+有一说一这个精神病有被治疗的意愿，没有暴力倾向，卖狗也都是好人和朋友，拉去治疗一下真没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
