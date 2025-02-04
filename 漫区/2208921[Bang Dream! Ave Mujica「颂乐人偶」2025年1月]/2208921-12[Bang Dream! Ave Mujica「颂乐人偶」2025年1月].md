@@ -14420,3 +14420,42 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊<img src=
 
 其实如果从比较现实角度考量，大瞄确实比大祥更危险一点，毕竟在一个团队你可以和领导不做朋友（<strong>没有亲近就不会被直接压力</strong>），或者产生分歧，但是这种一般情况下不会立刻炸掉团队，但和瞄梦产生分歧，对方真得可能会立刻独走或教唆你走人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 17548#       发表于 2025-2-4 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346523&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-4 18:15</a>
+Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockquote>
+主要是血缘说和家系说能解释素世被祥子盐对应的根本是她也是家系中人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然素世自己可能不知道
+
+
+*****
+
+####  海底铁锚  
+##### 17549#       发表于 2025-2-4 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346527&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 18:15</a>
+其实如果从比较现实角度考量，大瞄确实比大祥更危险一点，毕竟在一个团队你可以和领导不做朋友（没有亲近就 ...</blockquote>
+键帽这种人遇到了肯定是第一时间干掉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可以说删掉这个角色，找个其他理由炸团，观感都会比现在好上不少。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhigui  
+##### 17550#       发表于 2025-2-4 18:24
+
+假药越来越离谱了，原来mygo＆ave mujica是一处大型的家庭感情剧，闹到最后真的是大小姐们在过家家
+
+*****
+
+####  huxiaopao163  
+##### 17551#       发表于 2025-2-4 18:24
+
+四子夺嫡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+不要以为自己是嫡亲大小姐，就是稳稳的继承人了
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
