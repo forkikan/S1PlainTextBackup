@@ -16275,3 +16275,14 @@ chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里�
 下午试着让Deepseek选下20年到24年每年的年度游戏音乐曲目。结果到21年的时候各种推出来ost里面找都找不到 ...</blockquote>
 你试试秘塔
 
+
+*****
+
+####  yangkaim4  
+##### 1267#       发表于 2025-2-4 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346626&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 18:31</a>
+
+chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里面就行了</blockquote>
+ok，我试试
+
