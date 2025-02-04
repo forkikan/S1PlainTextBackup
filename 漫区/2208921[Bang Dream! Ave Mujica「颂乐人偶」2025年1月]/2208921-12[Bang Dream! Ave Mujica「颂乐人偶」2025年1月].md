@@ -15691,3 +15691,68 @@ mygo估计也就是像睦头传话，海玲鼓励灯这种间接干预
 就海铃喵梦在新宿cm那两句台词
 就说明了祥子现在依然不太正常  摆烂中
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 17659#       发表于 2025-2-4 23:08
+
+恐怕不是go团垫箱子而是其他所有垫c团吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+而箱子是所有11人的大太阳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+狗和鸡不过永远是两个代餐团<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 17660#       发表于 2025-2-4 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348089&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-4 23:08</a>
+恐怕不是go团垫箱子而是其他所有垫c团吧
+
+而箱子是所有11人的大太阳，旧约狗加新約鸡合起来才是大象传本体</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，自引流都要给你踹停止了
+
+
+*****
+
+####  天邪鬼  
+##### 17661#       发表于 2025-2-4 23:12
+
+睦现在也很尴尬，前四集憋半天憋出来个mortis。这东西和自身塑造没啥关系不说还表现的跟个工具人一样，出现就是为了让祥子进谷底的
+内心小剧场算是解释了她为什么沉默寡言，但也没啥用
+初华各种暗示有秘密，别拿出来一看又是什么难绷的秘密（像什么主唱太拼命其实是她发的）
+
+*****
+
+####  阿兹尔  
+##### 17662#       发表于 2025-2-4 23:14
+
+初华这个大的最好合理，要不真要喜夺最无存在感的主唱头名了
+
+*****
+
+####  杂灰  
+##### 17663#       发表于 2025-2-4 23:14
+
+c团就是对五个人都有价值的场所，只是大家已经从那里离开了，这种调性不是还挺好，也不影响已经建立的新归宿的地位，狗团是重新前进的象征，鸡团是既成的现实和责任
+
+*****
+
+####  澜灰-  
+##### 17664#       发表于 2025-2-4 23:15
+
+剧情压抑没啥问题，包括素世跪(？)也可以做侧证。怎么爆可以期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许祥在睦家外跪放在第六集？莫姐整个大活？
+但挺好奇之后用哪个点重燃组乐队的热情？
+c团live，或者内鬼论的情况下莫姐说漏嘴？掌控心灵以后第7集莫姐就觉醒了是吧。还是初华和莫姐爆了让小祥知道了真相<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">不过这个也可以放第六集
+
+*****
+
+####  烂片雷达  
+##### 17665#       发表于 2025-2-4 23:17
+
+灯神已经给了第一推动力，能不能转起来就看小祥自己了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
