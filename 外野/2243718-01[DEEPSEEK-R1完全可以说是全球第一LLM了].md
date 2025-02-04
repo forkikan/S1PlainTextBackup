@@ -16133,3 +16133,43 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 硅基流动上线 671B 满血版 DeepSeek-R1、DeepSeek-V3 之后，今天，硅基流动 SiliconCloud 平台继续上线 6  ...</blockquote>
 哪种能联网
 
+
+*****
+
+####  变老的大二  
+##### 1254#       发表于 2025-2-4 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345718&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 16:03</a>
+
+试了几天几夜终于知道问题在哪了，deepseek这玩意在文学类的输出上有问题，他对文字的输出是有各种类型的定 ...</blockquote>
+D指导对于赛博改造的执着实在是太强烈了，问它如何实现世界和平，都要扯到几句相关的。
+
+脑机接口技术打破语言文化壁垒，元宇宙空间创造超国家身份认同
+
+基因编辑消除暴力倾向遗传基础，神经调制技术普及同理心增强
+
+*****
+
+####  披头破落户  
+##### 1255#       发表于 2025-2-4 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345921&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-4 16:39</a>
+硅基流动上线 671B 满血版 DeepSeek-R1、DeepSeek-V3 之后，今天，硅基流动 SiliconCloud 平台继续上线 6  ...</blockquote>
+这三个哪个最佳，什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  绕指流光  
+##### 1256#       发表于 2025-2-4 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345718&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 16:03</a>
+试了几天几夜终于知道问题在哪了，deepseek这玩意在文学类的输出上有问题，他对文字的输出是有各种类型的定 ...</blockquote>
+如果你用的是app或官网，那是因为它的temp设的是1.3比较高，有时候会发散的比较偏，这个很多人都察觉到了
+如果用api写码的话就不会有这种情况，因为默认coder接口的temp是0
+但是api目前不接受temp参数输入。我用32b本地蒸馏模型调了几下，1.2左右就可以纠正不少这种毛病了。但是32b还是太弱智，starwberry都答不对
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
