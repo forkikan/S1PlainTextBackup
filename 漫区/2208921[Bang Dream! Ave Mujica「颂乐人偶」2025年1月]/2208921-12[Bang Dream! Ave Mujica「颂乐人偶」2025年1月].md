@@ -13321,3 +13321,65 @@ IMG_3554.jpeg
 
 以前ksm失声也是话疗好的
 
+
+*****
+
+####  Kasroz  
+##### 17443#       发表于 2025-2-4 13:36
+
+<img src="https://p.sda1.dev/21/f37c6568626109da29bcd482bb6c37a1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17444#       发表于 2025-2-4 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方这个沟槽的，P3的睦还有一个Call Back是猫的MyGO剧场版部份
+其他地方的总结：
+“对应的是剧场版里初一猫的那句“吉他和心情都无法传递，只能传递给奶奶”。ring重新开门的时候凛凛子专门邀请的猫去弹琴（甚至饮品区那套设备都是专门给猫准备的），猫被说动了即兴了一段得到了凛凛子的认可，也是猫第一次发现自己的吉他和心情传递了出去。
+没错，在得到认可前这不就是二号睦头吗”
+
+*****
+
+####  595505568  
+##### 17445#       发表于 2025-2-4 13:39
+
+那soyo要做的事应该是凛凛子他们会做的事情，准备好音乐的一角和掌声吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 17446#       发表于 2025-2-4 13:42
+
+我怎么感觉以前也看过一个观感迷路光惦记着对仗结构美的作品？
+
+*****
+
+####  ky刃  
+##### 17447#       发表于 2025-2-4 13:46
+
+好兴奋啊
+
+*****
+
+####  AveMujica  
+##### 17448#         楼主| 发表于 2025-2-4 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343916&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-2-4 11:20</a>
+#6 Animum reges. 
+眠る睦を起こそうとそよに縋るモ一ティス。
+変わり果てた"睦"を目の当たりにしたMyGO!!! ...</blockquote>
+已更新文件名
+
+*****
+
+####  烂片雷达  
+##### 17449#       发表于 2025-2-4 13:47
+
+我感觉观众真是闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+日本jk平常坐姿不就跪坐吗，两个jk坐一起吃零食玩闹，完了一个jk起身要走另一个jk拉手挽留，这不是很平常的场景吗，看不懂破防点哪儿<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+我都怀疑看这么多动画白看了，我就随便点开一个jk动画，请问这两个jk在互相下跪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/16e68aba6eb521be80f88585b258b674/image.jpg" referrerpolicy="no-referrer">
+
