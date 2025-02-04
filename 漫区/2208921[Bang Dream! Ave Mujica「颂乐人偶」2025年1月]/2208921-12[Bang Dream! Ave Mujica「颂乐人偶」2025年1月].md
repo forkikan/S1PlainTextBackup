@@ -16693,3 +16693,68 @@ C团的真相，C团的和解，至少半集得给吧</blockquote>
 
 按对偶说 鸡13集会不会是c团大和解十人春日影
 
+
+*****
+
+####  595505568  
+##### 17754#       发表于 2025-2-5 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348522&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-5 00:47</a>
+按对偶说 鸡13集会不会是c团大和解十人春日影</blockquote>
+MyGO第一集没有Live，应该是春日阳光下十个人在C团出发的练习室合影吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 17755#       发表于 2025-2-5 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348505&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:43</a>
+原有的粉丝他稳定消费你去恶心他不是没事找事吗</blockquote>
+但会有新的粉丝去补位啊，你是不是看不起粉红兔兔帝国的cp粉丝
+
+毒唯是一种商法，撕cp也是一种商法，柯哀和新兰撕了那么多年也没把青山老贼弄死就是证明，关键还是看剧情写的怎么样，逆输入可是更容易让观众带入情感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17756#       发表于 2025-2-5 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348531&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 00:49</a>
+但会有新的粉丝去补位啊，你是不是看不起粉红兔兔帝国的cp粉丝
+
+毒唯是一种商法，撕cp也是一种商法，柯哀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我能说好像效果不怎么好吗，补充结果上，对商业
+
+*****
+
+####  凉良  
+##### 17757#       发表于 2025-2-5 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348528&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 00:48</a>
+MyGO第一集没有Live，应该是春日阳光下十个人在C团出发的练习室合影吧</blockquote>
+对偶集数不是反着来么 go的1012对应的鸡也没live啊
+
+
+*****
+
+####  杂灰  
+##### 17758#       发表于 2025-2-5 00:52
+
+第七话搞c团live的剧透感觉板上钉钉，越想越感觉功能性很丰富
+首先go这边的老人当初就是因为祥子粗暴的炸团方式不得不怀疑c团存在的意义，既不知道c团为何分解，也不知道如何是好，进而怀疑在乎c团的自己的价值，最后都“迷路”了。而c团真相天下大白+live成功证明c团的存在价值基本上能大幅修复老人的风湿
+然后就是c团时期的祥子就已经对睦有亏欠，因为c团时期祥子一定程度上忽略了只是跟进来帮自己振作的睦的感受，作的音乐没有让睦的吉他发出心声，在母鸡卡暂时没指望拉起来的情况下，限时复活c团就可以给祥子救睦提供一个平台，用音乐去唤醒睦让睦的吉他发出心声，让c团终于成为对睦有价值的场所，c团完成对所有团员有价值的证明，一定程度上弥补自己对睦的错，也能重新建立祥子作为创始人的自信，睦的情况也会得到缓解，睦祥同时可以恢复行动力
+然后正式给c团送终后，睦祥可以直接一起加入母鸡卡重组阶段，两（三？）个人一起推进可以更有效率。再加上真的对照春日影的话可以直接开启下个鸡团队友的剧情
+
+*****
+
+####  ads147147  
+##### 17759#       发表于 2025-2-5 00:55
+
+怎么都开始吵戏份了，要不开始数毛把每分钟谁占画面幅度多少都进行数字化算了。。
+
+说起来我一直以为二偶的人物塑造有些人就是比其他人更平等是常识来着。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

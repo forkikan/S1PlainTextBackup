@@ -16571,3 +16571,11 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 求私，感谢</blockquote>
 看到楼下发的了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  requiem116  
+##### 1293#       发表于 2025-2-5 00:52
+
+我一般是把这段话作为新对话的起始，所以更好的用法是放在系统prompt里吗？比如chatbox是放在助手设置那里？
+
