@@ -15281,3 +15281,24 @@ sis把自己当成曹雪芹了但是绫圣之前试了那么多次脚本，成�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  iiiiiiiiii  
+##### 17618#       发表于 2025-2-4 21:59
+
+睦-周公梦蝶 喵梦-狗叼肉 可能祥子判词是《细雪》
+
+
+*****
+
+####  ntrntr1  
+##### 17619#       发表于 2025-2-4 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347682&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-4 21:50</a>
+
+对称说成立的话，必须要考虑对称的意义是什么</blockquote>
+观众的余兴<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+看20分钟可以惦记一周
+
