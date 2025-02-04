@@ -15845,3 +15845,17 @@ AMD官方有个用AMD显卡跑DeepSeek的教程：
 https://community.amd.com/t5/ai/experience-the-deepseek-r1-di ...</blockquote>
 请问16g和24g（79xtx）的区别大吗，32b版本能不能跑
 
+
+*****
+
+####  NameLess2501  
+##### 1226#       发表于 2025-2-4 10:16
+
+ 本帖最后由 NameLess2501 于 2025-2-4 10:18 编辑 
+<blockquote>爱莉希雅 发表于 2025-2-4 08:49
+请问16g和24g（79xtx）的区别大吗，32b版本能不能跑</blockquote>
+
+大，能。
+
+AMD官方的对比图是7900XTX远超4080，小超4090，只有32b比4090慢一点。
+
