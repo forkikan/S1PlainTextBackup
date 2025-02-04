@@ -14363,3 +14363,60 @@ mygo第八集后半是高潮前半几乎是纯日常，mujica要搞对偶把下�
 
 快进到素睦初祥其实是4个丰川家系姐妹乱炖Cp<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我是斐儿  
+##### 17541#       发表于 2025-2-4 18:09
+
+独角兽老师其实和大河内一个模子，就是强调编剧中心主义，而不是观众中心主义，他们要的是观众绕着编剧转而不是相反，他们就是“能接受就看，不接受就走”的原则，只为特定的观众服务，花田老师有时还算观众中心主义的，你看GBC基本上是观众爱看的东西，不过也有点编剧中心主义的味道。所以我认定mujica是电波番，并不适合所有人观看。
+
+*****
+
+####  山ノ内花音  
+##### 17542#       发表于 2025-2-4 18:10
+
+丰川家注定毁灭了这下 年轻人全是女同性恋
+
+*****
+
+####  595505568  
+##### 17543#       发表于 2025-2-4 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346472&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-4 18:04</a>
+实在是太变态了 但很独角兽</blockquote>
+主要是祥子和素世眼睛发色是直接对称的<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+话说素睦初祥的生日不会也有加减法谜题吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+1/14 5/27 2/14 初华是几号来着<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+1/14-2/14 5/27-6/26…不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 17544#       发表于 2025-2-4 18:12
+
+搞不好去跟猫猫学吉他的也是莫，觉得学了就能叫醒木头。最后两人融合。
+
+*****
+
+####  plok201  
+##### 17545#       发表于 2025-2-4 18:12
+
+你的笑点比春节贺岁档还多，史上最狂乐队的狂是狂笑的狂
+
+我最关心的倒是猫莫能写出点啥，众所周知抹茶芭菲是绿色的，睦也是绿色头发，春日影那晚祥子跑路为啥睦还在看mygo，爽世说，立希说，灯说之外会不会存在一个猫猫说
+
+*****
+
+####  山ノ内花音  
+##### 17546#       发表于 2025-2-4 18:15
+
+Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 17547#       发表于 2025-2-4 18:15
+
+其实如果从比较现实角度考量，大瞄确实比大祥更危险一点，毕竟在一个团队你可以和领导不做朋友（<strong>没有亲近就不会被直接压力</strong>），或者产生分歧，但是这种一般情况下不会立刻炸掉团队，但和瞄梦产生分歧，对方真得可能会立刻独走或教唆你走人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
