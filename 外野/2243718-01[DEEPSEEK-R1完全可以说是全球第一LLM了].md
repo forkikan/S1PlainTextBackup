@@ -16286,3 +16286,14 @@ chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里�
 chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里面就行了</blockquote>
 ok，我试试
 
+
+*****
+
+####  yangkaim4  
+##### 1268#       发表于 2025-2-4 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346626&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 18:31</a>
+
+chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里面就行了</blockquote>
+没找到地方，时助手那一栏吗？怎么填呢？
+
