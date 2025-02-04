@@ -317,3 +317,20 @@ wsd只是负责做卡，除了本家以外，其他的还是甩给ip授权方吧
 那就更无所谓了，既然到哪都一样被恶心，不如看毒唯破防打滚受伤害，起码自己还能开心点</blockquote>
 毒唯不打滚还是能用来消费的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，脱坑回踩就一点顾忌都没了，不是好事
 
+
+*****
+
+####  plok201  
+##### 17791#       发表于 2025-2-5 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348421&amp;ptid=2208921" target="_blank">友情的结晶 发表于 2025-2-5 00:22</a>
+
+动漫高手发明的这个新词人设回撤到底是什么意思。我问他的粉丝，粉丝说是用在喵梦身上意思等同于洗白，但楼 ...</blockquote>
+一个坏人，洗白就是他干坏事的原因是当年爱人惨死，主角团感动了原谅他
+
+回撤就是把他爱人惨死给你说一遍，但是主角团可能根本不知道，该干啥还是干啥
+
+影响的更多是屏幕前观众的观感，对剧情甚至剧中人的影响说不定为零，主要让一个角色内核更丰富
+
+本来洗白这个词也有差不多意思，就怪这些年全是各种硬洗，一个恶心角色整点理由就变成大好人了，一用洗白就引起大家ptsd，导致要出各种细分名词<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
