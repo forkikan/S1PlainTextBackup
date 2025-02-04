@@ -14679,3 +14679,33 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 目前很难说是到底是工整还是呆板，我很不看好
 
+
+*****
+
+####  嵇翱u  
+##### 17567#       发表于 2025-2-4 19:17
+
+其实也很难想象一个非魔幻类型的番剧怎么表现第二人格消失了。
+大概率到最后不会明说，也就是睦既能正常说话了也能弹有感情的吉他了，然后场内祥子盖章场外访谈盖章就当过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+可能手游剧情里会再模仿下别人耍宝，给鸡团加点轻松元素
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fuwamoco  
+##### 17568#       发表于 2025-2-4 19:19
+
+<blockquote>番茄中毒 发表于 2025-2-4 19:04
+看打枪比赛老刷到慕名看了几集 推测后面不就是自闭灯写新歌给祥子然后感动全员包饺子剧情吗 想不出日本人还 ...</blockquote>
+你这样说 蛇鼠点不也是包饺子吗
+
+
+*****
+
+####  595505568  
+##### 17569#       发表于 2025-2-4 19:22
+
+顺带一提<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我记得伦理学研究过来着，初华为什么对祥子心心念念也可以得到解释。
+“遗传性吸引”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，越想越沟槽了，不能乱想了
+
