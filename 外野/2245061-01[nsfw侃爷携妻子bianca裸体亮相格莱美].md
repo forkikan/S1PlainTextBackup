@@ -825,3 +825,15 @@ https://x.com/dcoglobalnews/status/1886206465364664791?s=46
 
 还有一种可能，侃爷是苦主，真正的黄毛另有其人
 
+
+*****
+
+####  Abba-il-Aeons  
+##### 95#       发表于 2025-2-4 13:47
+
+<blockquote>bcxzzz 发表于 2025-2-4 01:42
+谁和她papa了
+
+—— 来自 HUAWEI LIO-AL00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+高中同学还是发小，具体网上搜。。。顺便，布兰妮本人都对一些粉丝要求偶像是白莲花感到很困惑，“凭啥我就得是处”
+

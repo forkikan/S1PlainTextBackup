@@ -13383,3 +13383,102 @@ IMG_3554.jpeg
 我都怀疑看这么多动画白看了，我就随便点开一个jk动画，请问这两个jk在互相下跪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/16e68aba6eb521be80f88585b258b674/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 17450#       发表于 2025-2-4 13:48
+
+“史上最狂”？
+现在觉得大概是“史上最炒作”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  友情的结晶  
+##### 17451#       发表于 2025-2-4 13:48
+
+所谓对仗也只是剧情大框架上的吧。mujica前五集和mygo后五集又没什么刻板的一一对应。即使不考虑对仗，从场外发言和场内剧情走向上也明显可以猜个大概：前六集抑，第七集是关键回开始扬，八九十治好睦拉回来mujica，十、十一进初华线，最后包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猜不到的是具体的故事发展。比如第七集怎么转，睦怎么救，初华怎么爆
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  玖羽  
+##### 17452#       发表于 2025-2-4 13:50
+
+惊人的对偶说新假药
+[https://www.bilibili.com/video/BV1GnPZeJEtL](https://www.bilibili.com/video/BV1GnPZeJEtL)
+
+把MyGO和Mujica具体到小段剧情划分之后发现，MyGO里羽丘的上课和板书可能是在对应Mujica的剧情
+
+MyGO第11话很奇怪地讲了完整的庄周梦蝶 - Mujica第3话Mortis和睦
+
+MyGO第10话时间那么紧张还见缝插针塞了一个狗叼肉的寓言 - Mujica第4话拆团
+
+MyGO第4话著名的细雪板书 - Mujica第10话
+
+<img src="https://img.saraba1st.com/forum/202502/04/134758ns6s66b99os3ztlz.jpg" referrerpolicy="no-referrer">
+
+<strong>00001.jpg</strong> (299.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/134758lcqncgf27bc7mqo5.jpg" referrerpolicy="no-referrer">
+
+<strong>00002.jpg</strong> (315.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/134758kbd5dhijyjqcdjj1.jpg" referrerpolicy="no-referrer">
+
+<strong>00003.jpg</strong> (262.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 13:47 上传
+
+*****
+
+####  天空塔书记官  
+##### 17453#       发表于 2025-2-4 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  帆前  
+##### 17454#       发表于 2025-2-4 13:53
+
+官方这么钓，能等得到周四的也是神人了
+
+*****
+
+####  huxiaopao163  
+##### 17455#       发表于 2025-2-4 13:53
+
+睦这次走的猫猫在剧场版里走过的路。
+
+我又去看了一下mygo剧场版枪版，确认了一下是猫猫去space的路，当然猫猫小时候space还在，现在已经拆掉了。
+
+所以也许是猫猫带着睦，去了现在space遗址的停车场
+
+*****
+
+####  七草真由美  
+##### 17456#       发表于 2025-2-4 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">真的跪了吗？
+
+—— 来自 HONOR PTP-AN60, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

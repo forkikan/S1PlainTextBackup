@@ -1008,3 +1008,11 @@ OP、ちょこっと参加させていただきました
 
 想起来这作的Q娃设计有高桥晃那个味道。不过最近好像没看见高桥晃在Q娃棚串场，不知道去哪了？
 
+
+*****
+
+####  渡鸦骑士  
+##### 364#       发表于 2025-2-4 13:55
+
+q娃这变身后瞳色互换算正常设定嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
