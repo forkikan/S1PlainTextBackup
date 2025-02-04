@@ -14835,3 +14835,80 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 我之前说睦是主音吉他，到底是不是啊？有人跟我说是旋律吉他，初华才是主音吉他。
 
+
+*****
+
+####  阿兹尔  
+##### 17583#       发表于 2025-2-4 20:07
+
+发现睦现在这种纯受害者的形象，其实不是很有魅力啊
+
+*****
+
+####  须贺兰  
+##### 17584#       发表于 2025-2-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347062&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-4 19:54</a>
+
+之前有交代过猫猫为什么会春日影吗，不排除她一听就会</blockquote>
+她在第五话开头看了乐谱
+
+<img src="https://img.saraba1st.com/forum/202502/04/200836se9nfwwwaztnnwww.jpg" referrerpolicy="no-referrer">
+
+<strong>截图1.jpg</strong> (267.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/200835n4274214ncnxk46t.jpg" referrerpolicy="no-referrer">
+
+<strong>截图2.jpg</strong> (252.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:08 上传
+
+然后就改编成了吉他版震惊众人
+
+<img src="https://img.saraba1st.com/forum/202502/04/200833r3vuzafs2vnbdsc9.jpg" referrerpolicy="no-referrer">
+
+<strong>截图4.jpg</strong> (313.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/200833p9r10u538wo1ekfa.jpg" referrerpolicy="no-referrer">
+
+<strong>截图5.jpg</strong> (273.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:08 上传
+
+听说剧场版中乐奈还在自己家里爽弹过
+
+截图3.jpg
+(218.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:08 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/200834j0e82afqbuwxa0e0.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  须贺兰  
+##### 17585#       发表于 2025-2-4 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67277403&amp;ptid=2208921" target="_blank">须贺兰 发表于 2025-1-25 22:36</a>
+
+“健康によくない”在第四话出现了两次
+
+这句话是第四话Mortis复述前面动画出现过的众多台词中的一句，出自 ...</blockquote>
+今天哔哩哔哩官方账号证实了“健康によくない”动作、语言是在重复倒吊鸟
+[https://www.bilibili.com/video/BV1wtNceGECV](https://www.bilibili.com/video/BV1wtNceGECV)
+

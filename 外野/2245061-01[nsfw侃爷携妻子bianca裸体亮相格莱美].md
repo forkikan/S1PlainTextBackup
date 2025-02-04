@@ -879,3 +879,23 @@ https://x.com/dcoglobalnews/status/1886206465364664791?s=46
 
 侃爷真不把大伙当外人
 
+
+*****
+
+####  白愁帝皇  
+##### 100#       发表于 2025-2-4 20:09
+
+  主要还是为了带货卖衣服，比安卡是他新牌子的主理人，靠这套博出位的方法，kanye身家已经重新超霉霉了。
+
+*****
+
+####  白愁帝皇  
+##### 101#       发表于 2025-2-4 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67340726&amp;ptid=2245061" target="_blank">uyghgyg 发表于 2025-2-3 18:32</a>
+
+怎么老美那边没人骂kanye反女权的吗 只准老婆露自己每次都裹的严严实实的的 还是黑人男拳属zzzq喷不了？
+
+ ...</blockquote>
+那要看人，kanye上次被封杀后某种意义上已经无敌了
+
