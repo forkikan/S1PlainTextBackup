@@ -13652,3 +13652,52 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 牢莫现在也不是弹不出感情的问题，她压根不会啊，总得先把睦头找回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 17474#       发表于 2025-2-4 14:40
+
+<img src="https://p.sda1.dev/21/d8fd043161bd971a297e98dd7fe67afc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/18cab17001ada73f0f5be5e40cba34f4/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 17475#       发表于 2025-2-4 14:43
+
+但是小睦放mortis出来是为让她保护mujica的，得等mujica重建了，小睦才能安心回来吧
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天空塔书记官  
+##### 17476#       发表于 2025-2-4 14:44
+
+抽象点想，睦和莫提斯是位置互换，现在是睦在吉他里边，而莫提斯不会弹，不就代表着是睦在拒绝和外界沟通吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 17477#       发表于 2025-2-4 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345220&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-4 14:43</a>
+
+但是小睦放mortis出来是为让她保护mujica的，得等mujica重建了，小睦才能安心回来吧</blockquote>
+人家一开始就把条件摆明了，只要祥子这样就永远不会回来
+
+我认为教吉他本身是会成功的，不然会影响乐奈形象，但学会吉他不代表能回来
+
+（先不说这个回来的定义是什么，我依然认为Mortis不配称为一个人格）
+
+*****
+
+####  单脚着地  
+##### 17478#       发表于 2025-2-4 14:47
+
+那万一墨提斯真是睦演出来的呢？
+

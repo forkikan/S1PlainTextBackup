@@ -16023,3 +16023,36 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 本地部署的话32b和14b区别大吗？有没有必要为了本地部署买一张3090 24G的卡</blockquote>
 买7900xtx啊，便宜量足还有保修
 
+
+*****
+
+####  clarkgao  
+##### 1243#       发表于 2025-2-4 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343171&amp;ptid=2243718" target="_blank">afer 发表于 2025-2-4 04:49</a>
+
+喜报：秘塔介入了R1，有搜索需求的可以用那个，还能搜索PDF文献</blockquote>
+秘塔对于英语网络资源支持如何？
+
+*****
+
+####  美坂汐里  
+##### 1244#       发表于 2025-2-4 14:40
+
+ 本帖最后由 美坂汐里 于 2025-2-4 14:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345071&amp;ptid=2243718" target="_blank">司空怜 发表于 2025-2-4 14:10</a>
+
+本地部署的话32b和14b区别大吗？有没有必要为了本地部署买一张3090 24G的卡</blockquote>
+差别很大。60分和40分的区别。但要记住，满分150分。
+
+是的，还有70b和更高的模型。另外个人建议是，如果没有明确的其他需求，或是对ai的强烈喜好，或是不缺钱，专门买个24g显卡容易浪费。
+
+*****
+
+####  qqks  
+##### 1245#       发表于 2025-2-4 14:44
+
+ 本帖最后由 qqks 于 2025-2-4 14:45 编辑 
+
+我看红迪老哥的评测同是蒸馏，70bllama3并不比qwen2.5的32b强。不过如果有48g显存的话可以跑int8...可惜7900xtx这卡外面卖的都是三槽板，要是有涡轮的话就好了
+
