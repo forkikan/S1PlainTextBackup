@@ -8002,3 +8002,62 @@ https://x.com/gundam_ab/status/1886702973084164584
 
 记得鹤卷是不喜欢光束步枪吧（我还是挺喜欢GQX的变种光束军刀的
 
+
+*****
+
+####  YU_JI  
+##### 6519#       发表于 2025-2-4 20:16
+
+我还等着正片GQX反握军刀开鬼人化无双呢（）
+
+*****
+
+####  Toby_dak  
+##### 6520#       发表于 2025-2-4 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347053&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-4 20:51</a>
+
+因为前一天和首席哥对战的时候损坏了
+
+红高和首席哥一战，火控回路损坏，盾牌被打飞，两个bit掉件
+
+首席哥 ...</blockquote>
+这里说的是不是为什么修红高，而是为什么能修红高。
+
+红高明明就是纯军用的孤品MS，黑市怎么能搞到适用的零件。尼亚安只是送货的。
+
+
+*****
+
+####  Toby_dak  
+##### 6521#       发表于 2025-2-4 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346940&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-4 20:31</a>
+
+说起来牢修为啥要找喵安买火控零件？假设牢修的红高达就是当年鸭子最终战开的，那一个正儿八经的实战高达为 ...</blockquote>
+这个问题我在5798楼也提过……
+
+*****
+
+####  YU_JI  
+##### 6522#       发表于 2025-2-4 20:22
+
+感觉暂时找不到什么合理的解释，姑且当剧情bug处理吧
+
+*****
+
+####  纪寞  
+##### 6523#       发表于 2025-2-4 20:24
+
+<img src="https://img.saraba1st.com/forum/202502/04/202041zjk5h55sjt7t030k.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-04 202037.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:20 上传
+
+说起来这里是不是过于狂还是有什么其他目的吗，都和对面母舰擦边过了还不下手，是太讲武德了吗？这时候gqx出击了吗？
+
+明明对军警扎古都重拳出击，对吉翁这边却这么手软。
+

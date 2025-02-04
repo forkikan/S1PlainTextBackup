@@ -14912,3 +14912,79 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 今天哔哩哔哩官方账号证实了“健康によくない”动作、语言是在重复倒吊鸟
 [https://www.bilibili.com/video/BV1wtNceGECV](https://www.bilibili.com/video/BV1wtNceGECV)
 
+
+*****
+
+####  玖羽  
+##### 17586#       发表于 2025-2-4 20:18
+
+剧本对偶说考据-AveMujica第5集与Mygo第9集之间的反向对应关系
+[https://www.bilibili.com/video/BV1xjF1efEDE](https://www.bilibili.com/video/BV1xjF1efEDE)
+
+<img src="https://img.saraba1st.com/forum/202502/04/201643qzfjso8tjfvcj8sy.jpg" referrerpolicy="no-referrer">
+
+<strong>026.jpg</strong> (336.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/201643tt8tctc2elsznpss.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (22.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/201643h8rspqm3pv8xpxm0.jpg" referrerpolicy="no-referrer">
+
+<strong>137.jpg</strong> (179.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:16 上传
+
+*****
+
+####  iiiiiiiiii  
+##### 17587#       发表于 2025-2-4 20:19
+
+<img src="https://img.saraba1st.com/forum/202502/04/201905gtq0wycc7sb77qxb.jpg" referrerpolicy="no-referrer">
+
+<strong>A54C36303230C1786407EE8628388262.jpg</strong> (158.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/201905vu91050y130y5jy2.jpg" referrerpolicy="no-referrer">
+
+<strong>CE47F4C3E079186BD0E63D28A395F680.jpg</strong> (102.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 20:19 上传
+
+对偶说成立，睦的双重人格指的是周公梦蝶
+
+
+*****
+
+####  DeltaStriker  
+##### 17588#       发表于 2025-2-4 20:22
+
+我记得剧里提过初华是主音吉他 木头人是节奏吉他
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  嵇翱u  
+##### 17589#       发表于 2025-2-4 20:24
+
+主要节约前期技术不够吧，只能当节奏。
+就和r组纱夜设定上强，实际也就只能弹节奏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
