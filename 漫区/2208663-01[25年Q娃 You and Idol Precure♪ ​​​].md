@@ -983,3 +983,20 @@ OP、ちょこっと参加させていただきました
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  raimouse  
+##### 362#       发表于 2025-2-4 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343064&amp;ptid=2208663" target="_blank">PrincessBanana 发表于 2025-2-4 02:38</a>
+
+第一集的日常部分和女主吐槽环节还蛮搞笑的，有种看甜梦猫的感觉
+
+—— 来自 S1Fun ...</blockquote>
+说道甜梦猫
+
+第二季我感觉就远远不如第一季有意思了
+
+看到40多扔了没看了
+

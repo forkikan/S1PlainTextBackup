@@ -12036,3 +12036,16 @@ op里全员颠婆形态应该就是完全体mujica</blockquote>
 
 你虚空出来个立希冲脸祥子不盐反而转火灯来论证欺软怕硬 还没觉得有问题？
 
+
+*****
+
+####  bbjajdd  
+##### 17310#       发表于 2025-2-4 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343139&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-2-4 03:57</a>
+
+还有一个bug就是祥子都回家了为什么祥爷不让祥子转回月之森而是继续在羽丘上学
+
+—— 来自 鹅球 v3.3.96-al ...</blockquote>
+转学手续也没那么快吧
+
