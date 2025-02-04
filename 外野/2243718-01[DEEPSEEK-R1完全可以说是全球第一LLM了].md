@@ -15859,3 +15859,11 @@ https://community.amd.com/t5/ai/experience-the-deepseek-r1-di ...</blockquote>
 
 AMD官方的对比图是7900XTX远超4080，小超4090，只有32b比4090慢一点。
 
+
+*****
+
+####  余晖  
+##### 1227#       发表于 2025-2-4 11:08
+
+硅基流动的api今天不给我输出思考过程了
+

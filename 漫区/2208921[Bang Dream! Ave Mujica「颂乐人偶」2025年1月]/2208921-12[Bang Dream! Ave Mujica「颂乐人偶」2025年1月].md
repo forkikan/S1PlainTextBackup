@@ -12163,3 +12163,43 @@ op里全员颠婆形态应该就是完全体mujica</blockquote>
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  嵇翱u  
+##### 17323#       发表于 2025-2-4 11:06
+
+对偶越来越真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，下跪也能复刻的啊，那还有第五集预告俯瞰镜头的“下跪”呢，一集跪两次？
+
+*****
+
+####  6030sylar  
+##### 17324#       发表于 2025-2-4 11:06
+
+喜剧天赋过强
+
+*****
+
+####  SakuraのOrigami  
+##### 17325#       发表于 2025-2-4 11:09
+
+喜闻乐见的是，鸡官网崩了（）
+
+*****
+
+####  swessia  
+##### 17326#       发表于 2025-2-4 11:09
+
+编剧这烂炒上瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+中文预告是啥有翻译不
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 17327#       发表于 2025-2-4 11:10
+
+soyo这不得爽死
+
