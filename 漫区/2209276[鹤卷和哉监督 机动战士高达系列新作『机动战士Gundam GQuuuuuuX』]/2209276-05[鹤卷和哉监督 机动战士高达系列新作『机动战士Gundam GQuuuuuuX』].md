@@ -7813,3 +7813,13 @@ X 上的 るらっと：“スパロボ時空でクワトロ大尉に遭遇す�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Gysumitka  
+##### 6504#       发表于 2025-2-4 17:24
+
+<img src="https://p.sda1.dev/21/ef3b85c517ff03052d1d063cc7e7c300/image.jpg" referrerpolicy="no-referrer">
+
+https://x.com/gundam_ab/status/1886702973084164584
+

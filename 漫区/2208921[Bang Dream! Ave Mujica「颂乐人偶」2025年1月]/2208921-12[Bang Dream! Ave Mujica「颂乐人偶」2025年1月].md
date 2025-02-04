@@ -14232,3 +14232,16 @@ mygo第八集后半是高潮前半几乎是纯日常，mujica要搞对偶把下�
 论坛助手,i ...</blockquote>
 本来mygo第三集也是插叙，不占时间的，第二集和第四集才是连着的
 
+
+*****
+
+####  ddy2811  
+##### 17529#       发表于 2025-2-4 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345442&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-4 15:22</a>
+
+但奈何想要A团和迷子切割的太多，这种可能从一开始就被许多观众忽视
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+很多吗？太集中了而已吧
+
