@@ -12842,3 +12842,101 @@ B part演啥，小祥来ring土下座吗
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  swessia  
+##### 17392#       发表于 2025-2-4 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不是说切割莫小姐吗，看来还是切割不掉啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17393#       发表于 2025-2-4 12:19
+
+气笑了，素世和睦都是受害者怎么跪起来了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">，太过份了
+
+*****
+
+####  天空塔书记官  
+##### 17394#       发表于 2025-2-4 12:21
+
+樂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  十九号大侠  
+##### 17395#       发表于 2025-2-4 12:22
+
+受害者有罪论，哈哈哈
+
+*****
+
+####  huxiaopao163  
+##### 17396#       发表于 2025-2-4 12:22
+
+对了，之前楼友说小睦卧室里地上有药，但仔细一看其实都是扑克牌。。。
+看到b站的分析说，mortis是在复刻小时候和睦一起玩耍的情况，包括玩娃娃，看童话书，打扑克牌等等。不过最后还是发现小睦是在吉他里吧。
+至于打电话找医生，应该也是模仿记忆中的某个人的行为吧。只是没有亲眼看到医生抢救病人，不然可能直接模仿医生给吉他做心脏复苏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  青龙圣者  
+##### 17397#       发表于 2025-2-4 12:23
+
+这不是我们海猫的茶会室吗<img src="https://p.sda1.dev/21/c4b89bac463749b135df0820c9fa963e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  稀勢のささ  
+##### 17398#       发表于 2025-2-4 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要做玩梗搞笑动画那你上一集干啥玩意呢
+
+*****
+
+####  南宮凝香  
+##### 17399#       发表于 2025-2-4 12:26
+
+應該不會1:1 復刻驚世一跪的細節的
+
+只是編劇是梗小鬼這點逃不了
+
+*****
+
+####  yeo  
+##### 17400#       发表于 2025-2-4 12:26
+
+无奖竞猜，结局谁会润去敦敦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 17401#       发表于 2025-2-4 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344466&amp;ptid=2208921" target="_blank">yeo 发表于 2025-2-4 12:26</a>
+无奖竞猜，结局谁会润去敦敦</blockquote>
+吉他（睦）坏了，扔伦敦返厂维修去了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿兹尔  
+##### 17402#       发表于 2025-2-4 12:27
+
+<blockquote>yeo 发表于 2025-2-4 12:26
+无奖竞猜，结局谁会润去敦敦</blockquote>
+我猜是sumimi的真奈
+
