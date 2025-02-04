@@ -817,3 +817,11 @@ https://x.com/dcoglobalnews/status/1886206465364664791?s=46
 
 有没有一种可能，是女方逼迫侃爷的结果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  narizen  
+##### 94#       发表于 2025-2-4 13:19
+
+还有一种可能，侃爷是苦主，真正的黄毛另有其人
+

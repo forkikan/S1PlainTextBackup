@@ -13268,3 +13268,16 @@ IMG_3554.jpeg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fuwamoco  
+##### 17438#       发表于 2025-2-4 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344726&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-4 13:06</a>
+
+不找医生治疗给刺激坏了的话，狗团真得背负别人的人生了吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+月之森大前辈们也在给小白治病，一样的
+
