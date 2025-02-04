@@ -15414,3 +15414,22 @@ mygo里板书确实能对上，不过剧本这么写真有点刻舟求剑了
 
 果然是继续低气压拷打么
 
+
+*****
+
+####  嵇翱u  
+##### 17631#       发表于 2025-2-4 22:27
+
+往好处想，第六集就是各方确认下的最低谷了，后面不管怎么说都是上扬，就看他后面七集能不能拉回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  akiomn  
+##### 17632#       发表于 2025-2-4 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码节约信用有了，能拉睦的只有祥子，第六集真的低气压全场沉默
+果然核心还是祥子能不能振作起来
+
