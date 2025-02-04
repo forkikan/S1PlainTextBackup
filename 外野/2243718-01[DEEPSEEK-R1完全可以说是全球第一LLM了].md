@@ -16473,3 +16473,22 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  莫夜戎  
+##### 1285#       发表于 2025-2-4 22:58
+
+火山引擎的deepseek-r1也上线了，试了下速度很猛，比现在的硅基流动体验好太多了，送50万tokens，缺点是不显示推理过程
+
+*****
+
+####  披头破落户  
+##### 1286#       发表于 2025-2-4 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348041&amp;ptid=2243718" target="_blank">莫夜戎 发表于 2025-2-4 22:58</a>
+火山引擎的deepseek-r1也上线了，试了下速度很猛，比现在的硅基流动体验好太多了，送50万tokens，缺点是不 ...</blockquote>
+硅基的也不显示了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
