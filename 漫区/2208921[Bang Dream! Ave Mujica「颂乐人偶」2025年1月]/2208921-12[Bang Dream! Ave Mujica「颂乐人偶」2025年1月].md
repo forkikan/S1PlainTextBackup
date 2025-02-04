@@ -13033,3 +13033,91 @@ B part演啥，小祥来ring土下座吗
 
 仔细一想，最变态的可能墨老师跪不是为了救救睦，而是求soyo去救祥子
 
+
+*****
+
+####  Milarvoz  
+##### 17414#       发表于 2025-2-4 12:38
+
+烂活也是活，比没活强。安安心心看乐子了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 17415#       发表于 2025-2-4 12:40
+
+宗师拉比克你就学吧
+
+*****
+
+####  terry666  
+##### 17416#       发表于 2025-2-4 12:41
+
+<blockquote>fuwamoco 发表于 2025-2-4 12:36
+仔细一想，最变态的可能墨老师跪不是为了救救睦，而是求soyo去救祥子</blockquote>
+你说睦头人求soyo救祥子我还勉强信，就大莫老师呛祥子时的口气怎么会求soyo去救祥子
+
+*****
+
+####  blackeryuri2  
+##### 17417#       发表于 2025-2-4 12:41
+
+等着被炒作狠狠反噬吧
+
+IMG_3554.jpeg
+(122.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 12:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/124046tdnneni07yen8kxi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 17418#       发表于 2025-2-4 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344507&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-4 12:32</a>
+
+这题我知道，是花咲川的吉他主唱前辈三森（不是）百合前辈
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+就不给润美国吗？（三森确实是在美国）
+
+*****
+
+####  Nanachi  
+##### 17419#       发表于 2025-2-4 12:41
+
+动漫红楼梦，全篇对称是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  一心而用  
+##### 17420#       发表于 2025-2-4 12:43
+
+<img src="https://p.sda1.dev/21/abb224605315ea07cc57b79040e11651/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 17421#       发表于 2025-2-4 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344558&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-4 12:41</a>
+
+你说睦头人求soyo救祥子我还勉强信，就大莫老师呛祥子时的口气怎么会求soyo去救祥子 ...</blockquote>
+小墨的底层逻辑是睦头大于一切，睦头给她的任务是保护mujica，保护mujica的原因是祥子没了mujica就会坏掉。所以小墨很讨厌祥子也要去救祥子和mujica才是最变态的路线呀。
+
+*****
+
+####  北条早苗  
+##### 17422#       发表于 2025-2-4 12:46
+
+之后再来个大祥跪睦头（牢莫），月之森下跪大三角就完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
