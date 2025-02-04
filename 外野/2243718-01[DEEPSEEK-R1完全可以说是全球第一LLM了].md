@@ -15833,3 +15833,15 @@ https://community.amd.com/t5/ai/experience-the-deepseek-r1-distilled-reasoning-m
 
 总体上和7800XT和4080S相当。
 
+
+*****
+
+####  爱莉希雅  
+##### 1225#       发表于 2025-2-4 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343308&amp;ptid=2243718" target="_blank">NameLess2501 发表于 2025-2-4 08:04</a>
+AMD官方有个用AMD显卡跑DeepSeek的教程：
+
+https://community.amd.com/t5/ai/experience-the-deepseek-r1-di ...</blockquote>
+请问16g和24g（79xtx）的区别大吗，32b版本能不能跑
+
