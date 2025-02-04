@@ -15930,3 +15930,26 @@ BYD 之前说满血，满血是Qwen-Distilled-R1-32B？不愧是周大炮啊。�
 顺带我的邀请码yvghesRw和AqvpVpBW ...</blockquote>
 感谢，chatbox更新完终于能折叠了
 
+
+*****
+
+####  约翰里德  
+##### 1234#       发表于 2025-2-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343940&amp;ptid=2243718" target="_blank">骨于野 发表于 2025-2-4 11:23</a>
+改格式了，一些前端应用要更新。可以更新一下chatbox或者cherrystudio
+顺带我的邀请码yvghesRw和AqvpVpBW ...</blockquote>
+这个输出能切换开启关闭吗
+
+*****
+
+####  绕指流光  
+##### 1235#       发表于 2025-2-4 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344045&amp;ptid=2243718" target="_blank">泰坦失足 发表于 2025-2-4 11:34</a>
+纳米AI上的DeepSeek-R1-360高速专线，又改描述了 “本模型为DeepSeek-R1-32B，由华为 910B GPU服务器提供推 ...</blockquote>
+满血版必须有足够大的推理集群才敢搞api，不然分分钟卡爆，可以说是重资产了
+360自从剥离了奇虎就是个营销公司，怎么可能有这个能力
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

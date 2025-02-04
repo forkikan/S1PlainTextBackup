@@ -12800,3 +12800,45 @@ B part演啥，小祥来ring土下座吗
 
 屋子里整那么乱肯定是自己呆房子里嗯造啊
 
+
+*****
+
+####  wwwttth  
+##### 17387#       发表于 2025-2-4 12:12
+
+ 本帖最后由 wwwttth 于 2025-2-4 12:14 编辑 
+
+奇葩假药：按照对偶说，13集最后爱音重新留学英国（你怎么知道我考上牛津拉），然后ccc堂堂复活（雾）
+
+*****
+
+####  akiomn  
+##### 17388#       发表于 2025-2-4 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我群里的睦厨已经疯狂了，前三集挨抽就算了，后面出来的莫提斯还是个烂梗复读机
+
+*****
+
+####  6030sylar  
+##### 17389#       发表于 2025-2-4 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">放宽心，主吉他哪有正常人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  长空雁叫霜晨月  
+##### 17390#       发表于 2025-2-4 12:16
+
+气笑了，什么玩意，脑子丢掉纯看乐子吧
+
+*****
+
+####  江口夕  
+##### 17391#       发表于 2025-2-4 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">睦厨不是看吉他么，我现在看睦眼睛就看吉他
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
