@@ -14709,3 +14709,36 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 顺带一提<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我记得伦理学研究过来着，初华为什么对祥子心心念念也可以得到解释。
 “遗传性吸引”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，越想越沟槽了，不能乱想了
 
+
+*****
+
+####  ads147147  
+##### 17570#       发表于 2025-2-4 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346801&amp;ptid=2208921" target="_blank">番茄中毒 发表于 2025-2-4 19:04</a>
+
+看打枪比赛老刷到慕名看了几集 推测后面不就是自闭灯写新歌给祥子然后感动全员包饺子剧情吗 想不出日本人还 ...</blockquote>
+感动全员这个做法大概率已经被ban了（因为mygo已经用过一次了）所以大概率确实还有新活。。
+
+当然你可以觉得已经写劈叉了，后面编剧只能选择包饺子迫降。
+
+*****
+
+####  烂片雷达  
+##### 17571#       发表于 2025-2-4 19:41
+
+素睦居然还有姐妹关系，加上背德感这cp岂不是要飞上大气层<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+要是真的我们爱素真的要向素睦投降了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 17572#       发表于 2025-2-4 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346990&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-4 19:40</a>
+
+感动全员这个做法大概率已经被ban了（因为mygo已经用过一次了）所以大概率确实还有新活。。
+
+当然你可以 ...</blockquote>
+还有祥子惨到老队友看不下去了，帮他一把的做法是吧？
+
