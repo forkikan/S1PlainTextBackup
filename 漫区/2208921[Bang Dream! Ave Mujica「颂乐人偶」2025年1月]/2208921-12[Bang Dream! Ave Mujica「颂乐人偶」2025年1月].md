@@ -15985,3 +15985,109 @@ go团的乐奈缺剧情，可以用“因为是猫，现在初具人形”来糊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 17687#       发表于 2025-2-4 23:48
+
+少滑点坡了，am团靠am人自己解决这不是从一开始大家就默认的事吗，谁会觉得go团不能直接解决祥子和睦的问题就是被垫了啊，只要是发挥了正面影响不就行了，人设倒退更是不知道哪来的说法，soyo表现温柔底色，爱音行动力无敌，灯不会放弃朋友这不都是闪光点，说白了go团和祥子和睦也就是时间没有很长的朋友（这里面呆最久的只有soyo和睦，立希和海铃当了同学），能为她们做点事已经是很不错了，如果go团把事全干成了祥子还干嘛，还塑造什么am成员
+
+*****
+
+####  595505568  
+##### 17688#       发表于 2025-2-4 23:48
+
+还有一点好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，Otae当年真的吃了人设和人设回撤，独角兽为了那点逼东西把乐队番该干的事情给忘了我怕是会再来一次
+
+*****
+
+####  小博禹  
+##### 17689#       发表于 2025-2-4 23:51
+
+<blockquote>595505568 发表于 2025-2-4 23:47
+说一句难听的，丸山彩的Cp全拉去外团了其实导致PP老CP粉丝里有人感觉反感，你不会觉得拉着别人关系性垫勇者 ...</blockquote>
+木箱厨也不想要这些垫子吧，不是都想着自己推的cp安安稳稳过日子
+
+*****
+
+####  山ノ内花音  
+##### 17690#       发表于 2025-2-4 23:52
+
+其实也有种可能
+舅舅的意思是 重组ccc的假药是真的
+所以无喜可报
+
+
+*****
+
+####  iiiiiiiiii  
+##### 17691#       发表于 2025-2-4 23:53
+
+<blockquote>山ノ内花音 发表于 2025-2-4 23:52
+其实也有种可能
+
+舅舅的意思是 重组ccc的假药是真的
+
+所以无喜可报</blockquote>
+那第七集播什么？
+
+*****
+
+####  595505568  
+##### 17692#       发表于 2025-2-4 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348282&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-4 23:51</a>
+木箱厨也不想要这些垫子吧，不是都想着自己推的cp安安稳稳过日子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是独角兽已经把爱灯 素睦 灯希往里垫了，如果终点是睦祥 灯祥的结局，那是已经垫了，还不如Go不出场
+
+*****
+
+####  山ノ内花音  
+##### 17693#       发表于 2025-2-4 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348290&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-4 23:53</a>
+那第七集播什么？</blockquote>
+当然是ccc的live
+全网都不开心 所以无喜可报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 17694#       发表于 2025-2-4 23:54
+
+素世确实亏欠睦吧。。。
+
+*****
+
+####  huxiaopao163  
+##### 17695#       发表于 2025-2-4 23:57
+
+ 本帖最后由 huxiaopao163 于 2025-2-4 23:58 编辑 
+
+对角色的塑造有时候一句话，一个镜头，胜过一整集低信息量的塑造。
+内鬼说的好处在于你以为前几集很多角色的低信息量的塑造，其实都是高信息量塑造。就像你以为眼前只是一堆废铜烂铁，但是只要接上电源就是一台能精密运转的机器。
+
+然后关于对偶说，我觉得存在的意义，一是镜子本身就是mujica里重要的意向，二是想很多人说的是个密码本方便大家猜剧情。
+虽然下跪这里的对偶确实很弱智，但它可以作为一个提示让大家注意到对偶确实存在，然后去挖掘一些有巧思的对偶，比如庄周梦蝶。然后也可以用来猜测和分析mujica的后续剧情。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小博禹  
+##### 17696#       发表于 2025-2-4 23:57
+
+祥子确实亏欠睦吧。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17697#       发表于 2025-2-4 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348300&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-4 23:54</a>
+素世确实亏欠睦吧。。。</blockquote>
+那睦还接了祥子要求防了一年素世情报流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还被独角兽拉去给祥子拆团打收人头的背锅位呢，话说我这话是可以说的吗
+
