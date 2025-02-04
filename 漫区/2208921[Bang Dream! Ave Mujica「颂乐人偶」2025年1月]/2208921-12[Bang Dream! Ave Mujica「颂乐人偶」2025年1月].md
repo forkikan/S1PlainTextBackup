@@ -12095,3 +12095,16 @@ op里全员颠婆形态应该就是完全体mujica</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  夜游宫  
+##### 17316#       发表于 2025-2-4 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343068&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-4 02:41</a>
+
+我记得很久之前李子访谈说过初华是类似侦探的定位</blockquote>
+那个访谈是在什么时候？
+
+之前不是也有访谈说本来第一话里祥子的秘密是要一点点揭开的，但后来全放到第一话了，兴许初华侦探说在原来剧本上的戏份？观众跟着初华的视角，通过各种手段一点点拼凑出祥子身上到底发生了什么事。
+
