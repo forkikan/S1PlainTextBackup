@@ -13701,3 +13701,61 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 那万一墨提斯真是睦演出来的呢？
 
+
+*****
+
+####  huxiaopao163  
+##### 17479#       发表于 2025-2-4 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345232&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-4 14:46</a>
+人家一开始就把条件摆明了，只要祥子这样就永远不会回来
+
+我认为教吉他本身是会成功的，不然会影响乐奈形 ...</blockquote>
+所以是要祥子变得能重建mujica，小睦就能回来了。。。最终肯定还是是要靠祥子
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天空塔书记官  
+##### 17480#       发表于 2025-2-4 14:49
+
+也可以理解为睦给自己下了心理暗示，只有会弹吉他的才是睦，不会弹就是莫提斯
+
+只要弹了吉他，莫提斯就会变回睦
+
+本质还是睦在拒绝与外界的沟通
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 17481#       发表于 2025-2-4 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345247&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-4 14:49</a>
+
+也可以理解为睦给自己下了心理暗示，只有会弹吉他的才是睦，不会弹就是莫提斯
+
+只要弹了吉他，莫提斯就会变 ...</blockquote>
+如果按照我前面贴的对偶说假药，Mortis吞噬睦对应庄周梦蝶，Mortis是睦的一个梦，不知道是Mortis变成了睦，还是睦变成了Mortis
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 17482#       发表于 2025-2-4 14:54
+
+睦就是因为没有遇见猫猫才会发病的，要是早点遇见猫猫早就琴理通达登峰造极了，哪里还会自卑弹琴没有感情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 17483#       发表于 2025-2-4 14:55
+
+庄周梦蝶这个确实很好，这才是有巧思的对偶
+
