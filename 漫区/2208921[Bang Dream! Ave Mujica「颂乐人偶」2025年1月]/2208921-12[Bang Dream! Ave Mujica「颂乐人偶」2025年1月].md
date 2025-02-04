@@ -14022,3 +14022,76 @@ soyo去的时候好像还真是傍晚哎我趣。
  ...</blockquote>
 至少那个拉手的截图光线很像清晨，整体偏白光，带一丢丢蓝绿色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 17511#       发表于 2025-2-4 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345652&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 15:51</a>
+
+至少那个拉手的截图光线很像清晨，整体偏白光，带一丢丢蓝绿色，天知道发生了什么 ...</blockquote>
+担心soyo中（
+
+*****
+
+####  天空塔书记官  
+##### 17512#       发表于 2025-2-4 15:58
+
+“不熬夜主义”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  novalli  
+##### 17513#       发表于 2025-2-4 15:59
+
+复读一下我自己的话：写剧情上头的创作者对自己笔下的角色是无比残忍的。
+优秀的创作者可以把自己投射到角色上的、或者从角色身上感受到的情感传达给读者/观众，情感越极端越难传达；如果能力不足导致传达不到，就是发癫、无病呻吟、掉书袋等等。
+
+目前来看mujica的剧情肯定在孕育一个很大的情感释放，独角兽写的时候明显在给自己上压力。作为纯粹看剧情的观众，我现在非常期待下面的发展，哪怕叙事什么的粗糙点也可以接受。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  novalli  
+##### 17514#       发表于 2025-2-4 16:01
+
+mujica的dokidoki的部分已经看过了，kirakira的部分说不定是超新星爆炸呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 17515#       发表于 2025-2-4 16:04
+
+MyGO _ AveMujica 
+
+2025年2月4日16:01
+ bilibili 限定直播（不定期）第5回
+.直播时间（北京时间）:
+2月6日（周四）19:30~预定
+.出演嘉宾：
+立石凛（千早爱音役）＠立石凛_りんちゃろ
+高尾奏音（ Oblivionis ／丰川祥子役）
+本次直播，会有运营组同学对部分内容进行实时文字翻译。
+直播后会上传回放视频，并于周五制作完成之后上传字幕。
+根据当日情况，开始时间有推迟的可能。
+
+来自B站官号
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  烂片雷达  
+##### 17516#       发表于 2025-2-4 16:05
+
+哪能割掉，早就你中有我我中有你一母同胞血浓于水了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
