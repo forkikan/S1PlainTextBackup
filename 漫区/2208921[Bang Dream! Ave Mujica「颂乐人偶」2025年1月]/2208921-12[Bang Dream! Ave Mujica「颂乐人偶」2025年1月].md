@@ -14193,3 +14193,20 @@ MyGO _ AveMujica
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  carigura  
+##### 17525#       发表于 2025-2-4 17:08
+
+mygo第八集后半是高潮前半几乎是纯日常，mujica要搞对偶把下跪挪到了前面，那后半高潮戏他要怎么去对应mygo第八集的前半？
+
+*****
+
+####  huxiaopao163  
+##### 17526#       发表于 2025-2-4 17:09
+
+11集应该对应mygo第3集，初华第一视角揭露一切真相。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
