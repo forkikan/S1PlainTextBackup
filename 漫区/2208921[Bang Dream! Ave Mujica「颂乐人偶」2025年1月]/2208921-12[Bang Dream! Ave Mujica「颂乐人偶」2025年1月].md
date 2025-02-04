@@ -13942,3 +13942,49 @@ otae去看过牙医的<img src="https://static.saraba1st.com/image/smiley/face20
 
 这个企划从一开始就没打算完全切开，不如说就是想要搞出那种平行又紧密相连的感觉，go团剧情鸡团参与那么多，还留了一堆尾巴，鸡团剧情本来就不可能脱离狗团人
 
+
+*****
+
+####  K·os  
+##### 17504#       发表于 2025-2-4 15:28
+
+搞切割论的是最神秘的，mygo里ave角色戏份这么重，什么春日影飞鸟山祥子不都深度参与，更别说13话
+现在到了ave动画反倒要切割mygo角色吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 17505#       发表于 2025-2-4 15:29
+
+其实一开始睦和莫提斯是分得很清的，但后边自我保护机制收到巨大冲击(乐队解散)开始失效，以前是鬼假面现在已经快变成变相怪杰了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  白水潭的饿鬼  
+##### 17506#       发表于 2025-2-4 15:31
+
+有可能睦莫切分始于c团，融合终于c团彻底进坟墓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+玩乐队过家家玩出精神分裂才是c团解散的真实原因，而大象老师抗下了所有
+
+狗团组建是基于狗团三位认知中的和解，鸡团自然也要建立在木箱认知中的和解
+
+耶稣意象下的犹大可能不是鸡团中任何人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  深渊之呗  
+##### 17507#       发表于 2025-2-4 15:36
+
+该说不说
+soyo的莱莱好大呀
+明明只是个高中生
+身材比未亡人还好
+
