@@ -14307,3 +14307,59 @@ mygo第八集后半是高潮前半几乎是纯日常，mujica要搞对偶把下�
 
 而且在二次元自由切换的双重人格也算比较独特的萌点，虽然在你鸡中完全不萌就是了
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 17535#       发表于 2025-2-4 17:56
+
+栞的mv就是拥抱另一个自己嘛，两个人格都很菜也没什么，尤其是隐藏的那个拥有的体验更少更像小孩子的原始感情还挺合理的，就看睦的角色厨能不能接受最后睦会变成一个混合版性格了
+
+
+*****
+
+####  山ノ内花音  
+##### 17536#       发表于 2025-2-4 18:01
+
+ 本帖最后由 山ノ内花音 于 2025-2-4 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346338&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 17:39</a>
+
+现在最害怕的事情是，我们有四个血缘关系的女士们有关系吧，初 睦 祥…那还有一个是谁呢 ...</blockquote>
+要么是初华已经去世的双胞胎姐姐/妹妹 
+
+要么是墨缇丝
+
+*****
+
+####  姜饼人  
+##### 17537#       发表于 2025-2-4 18:03
+
+难道不是素世？最多戏份就是她了吧
+
+*****
+
+####  595505568  
+##### 17538#       发表于 2025-2-4 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346450&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-4 18:01</a>
+要么是初华已经去世的双胞胎姐姐/妹妹 
+
+要么是墨缇丝</blockquote>
+话说最早MyGO时期还有素世和祥子考据得出对称学说在里面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，主要独角兽真干的出吧
+
+*****
+
+####  山ノ内花音  
+##### 17539#       发表于 2025-2-4 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346466&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-4 18:03</a>
+话说最早MyGO时期还有素世和祥子考据得出对称学说在里面，作为双生剧本，我有点怕素世妈的快速发家和这个 ...</blockquote>
+实在是太变态了 但很独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17540#       发表于 2025-2-4 18:04
+
+快进到素睦初祥其实是4个丰川家系姐妹乱炖Cp<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

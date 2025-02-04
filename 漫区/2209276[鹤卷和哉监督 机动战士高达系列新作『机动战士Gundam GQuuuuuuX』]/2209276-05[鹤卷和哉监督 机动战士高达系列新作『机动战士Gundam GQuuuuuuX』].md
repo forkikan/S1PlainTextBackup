@@ -7833,3 +7833,27 @@ https://x.com/gundam_ab/status/1886702973084164584
  https://x.com/gundam_ab/status/1886702973084164584</blockquote>
 官方缩写是GQ了
 
+
+*****
+
+####  岸浪白野  
+##### 6506#       发表于 2025-2-4 18:01
+
+ 本帖最后由 岸浪白野 于 2025-2-4 18:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/04/180300wpsm08y71ogz7s8c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/180128s4px4p84ng9j8p1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 18:01 上传
+
