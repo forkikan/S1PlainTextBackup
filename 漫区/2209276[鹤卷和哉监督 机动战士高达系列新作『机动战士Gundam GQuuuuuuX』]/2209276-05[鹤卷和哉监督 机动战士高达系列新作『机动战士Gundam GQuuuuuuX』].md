@@ -7588,3 +7588,11 @@ G9世界线应该没有兹玛德和吉翁尼克合并的触机
 刷到一个说红高里有阿姆罗，GQX里有拉拉，Xavier是弗拉纳冈第十个实验体的视频（
 [https://www.youtube.com/watch?v=d64lpTzUeWs](https://www.youtube.com/watch?v=d64lpTzUeWs)
 
+
+*****
+
+####  rhotov  
+##### 6494#       发表于 2025-2-4 08:36
+
+想破30亿也不难，发个彩透HG当特典
+
