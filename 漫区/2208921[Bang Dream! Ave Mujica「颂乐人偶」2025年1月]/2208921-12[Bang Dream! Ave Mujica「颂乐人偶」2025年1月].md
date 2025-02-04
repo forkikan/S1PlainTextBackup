@@ -12513,3 +12513,128 @@ Soyo 老師對莫老師：
 
 这技能也能偷的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 17356#       发表于 2025-2-4 11:38
+
+这么机械，我怀疑给AI喂了MuGo,然后参与了剧本创作
+
+*****
+
+####  Spasskaya  
+##### 17357#       发表于 2025-2-4 11:39
+
+这都什么根什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 17358#       发表于 2025-2-4 11:40
+
+走搞笑路线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冰见山美咲  
+##### 17359#       发表于 2025-2-4 11:40
+
+我不行了，我要笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 17360#       发表于 2025-2-4 11:42
+
+双重人格是为了对偶搞出来的设定吧
+
+
+*****
+
+####  ads147147  
+##### 17361#       发表于 2025-2-4 11:42
+
+哦内该，没有soyo酱的话，瓦塔西。
+
+这就是当初睦只是在边上看的报应呀~
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  novalli  
+##### 17362#       发表于 2025-2-4 11:42
+
+对于mujica的前几集可以这么理解：因为搞笑作品里无敌都是小事，所以搞一段恐怖剧氛围也是常规操作。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+总之现在舞台正式开始，还是放松下来找好可乐爆米花吧！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  安娜导函数  
+##### 17363#       发表于 2025-2-4 11:43
+
+哈哈哈哈哈，就这楼上还在编假药试图找补所谓的"逻辑"，官方只想找乐子
+
+*****
+
+####  fuwamoco  
+##### 17364#       发表于 2025-2-4 11:43
+
+猫猫：mygo里没有的戏份，cp，我要在mujica里夺回来。
+
+*****
+
+####  swessia  
+##### 17365#       发表于 2025-2-4 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">A part应该就是go修睦的事了，修不修好另说
+
+B part演啥，小祥来ring土下座吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  烂片雷达  
+##### 17366#       发表于 2025-2-4 11:44
+
+颇有一种得了绝症找深山隐居的高人治病既视感
+
+会有猫猫睦睦为了治病远离尘世一起隐居十年的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 17367#       发表于 2025-2-4 11:46
+
+这下我信莫是看了1000遍mygo的观众转生的了，不仅只会复读名言，还会复刻名场景
+
+*****
+
+####  厚乳果珍爽  
+##### 17368#       发表于 2025-2-4 11:46
+
+前脚还说父母不做人，把孩子关家里不让见光，后脚就把神经病女儿放出来到处跑。
+
+这父母是刚出生还是编剧是刚出生？
+
+*****
+
+####  iiiiiiiiii  
+##### 17369#       发表于 2025-2-4 11:47
+
+莫提斯不就是镜子吗？那肯定学soyo下跪啊
+
+*****
+
+####  爱莉希雅  
+##### 17370#       发表于 2025-2-4 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要想太多有的没的，傻逼wsd就是在烂炒
+

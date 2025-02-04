@@ -7623,3 +7623,25 @@ G9世界线应该没有兹玛德和吉翁尼克合并的触机
 格鲁古古项目被毙了结果是强人和高达二合一，感觉真是这帮老害会干的事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是马克贝上校拿着鸡西利亚阁下发的企划书干的——汤姆西村少尉的证词。
 
+
+*****
+
+####  王留美  
+##### 6497#       发表于 2025-2-4 11:41
+
+<img src="https://img.saraba1st.com/forum/202502/04/114119yyvvmnnnminnf0kr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/04/114132ocw1bv2cjlvt92wc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-4 11:41 上传
+
