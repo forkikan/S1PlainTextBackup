@@ -2240,3 +2240,18 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 而且eShop通过VISA支付时能 ...</blockquote>
 日本人脑回路很难说的，有的店线上官网禁了外国信用卡，所以外国人不能网购，但是线下刷实体卡没事
 
+
+*****
+
+####  oidoid  
+##### 222#       发表于 2025-2-4 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342984&amp;ptid=2244683" target="_blank">nanonya2 发表于 2025-2-4 01:51</a>
+
+我觉得不好说，如果这能算理由的话，那外国人到日本短期旅行，也不能支付了？
+
+而且eShop通过VISA支付时能 ...</blockquote>
+第一行情况倒是不可能，因为这法律只针对线上支付。
+
+二三行的话，认证服务是要买的，也不难理解，按照在日本的朋友说有可能是找了个信用卡中间商把海外信用卡直接踢了。
+

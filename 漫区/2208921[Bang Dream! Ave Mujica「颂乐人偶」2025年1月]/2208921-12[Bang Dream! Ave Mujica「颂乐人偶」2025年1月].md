@@ -12119,3 +12119,47 @@ op里全员颠婆形态应该就是完全体mujica</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 17318#       发表于 2025-2-4 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">假定每个人的行动语言都有意义，初华大概就是这么理解
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  6030sylar  
+##### 17319#       发表于 2025-2-4 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">前面说过了，这个时间点，月之森刚被马希洛搞过一轮，学风应该是比较自由的
+
+
+*****
+
+####  ykyin09  
+##### 17320#       发表于 2025-2-4 11:03
+
+这官方发第六集的截图也太搞了，看着像是mortis在寝室复刻飞鸟山之战？
+
+
+*****
+
+####  Keiji  
+##### 17321#       发表于 2025-2-4 11:04
+
+<img src="https://i0.hdslb.com/bfs/new_dyn/ac15cda07b7b5949fc8c0b2f496920741459104794.png@1052w_!web-dynamic.avif" id="aimg_rl4J4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HGCG+  
+##### 17322#       发表于 2025-2-4 11:04
+
+喂！
+<img src="https://p.sda1.dev/21/0a46e73c0aadb09dd1f8b480d30c8a29/20250204_120242.jpg" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
