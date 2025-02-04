@@ -15888,3 +15888,14 @@ AMD官方的对比图是7900XTX远超4080，小超4090，只有32b比4090慢一�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  supika  
+##### 1230#       发表于 2025-2-4 11:27
+
+感谢泥潭老哥分享的硅基流动邀请链接，这是我的，贴出来互助：
+[https://cloud.siliconflow.cn/i/b7Uem20Z](https://cloud.siliconflow.cn/i/b7Uem20Z)
+
+单独邀请码：b7Uem20Z
+

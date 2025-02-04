@@ -798,3 +798,22 @@ https://x.com/dcoglobalnews/status/1886206465364664791?s=46
 
 这就叫皇帝的新衣吧？
 
+
+*****
+
+####  泥鳅化石  
+##### 92#       发表于 2025-2-4 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67343530&amp;ptid=2245061" target="_blank">不容易注册上 发表于 2025-2-4 10:07</a>
+他是真的有病。她也有很大问题。这要是性转一下就是暴露狂，那种在公开场合对小姑娘把大衣一敞开里面啥都没 ...</blockquote>
+美国现在推行的LGBTQ不就是这些暴露狂站在台前对大众说我才是对的，你们要向我学习，变性要从娃娃抓起！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  chise20  
+##### 93#       发表于 2025-2-4 11:31
+
+有没有一种可能，是女方逼迫侃爷的结果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
