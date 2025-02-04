@@ -13225,3 +13225,46 @@ IMG_3554.jpeg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  影伴光生  
+##### 17435#       发表于 2025-2-4 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344696&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-4 13:02</a>
+有一说一这个精神病有被治疗的意愿，没有暴力倾向，卖狗也都是好人和朋友，拉去治疗一下真没问题吧
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不找医生治疗给刺激坏了的话，狗团真得背负别人的人生了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  厚乳果珍爽  
+##### 17436#       发表于 2025-2-4 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344696&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-4 13:02</a>
+
+有一说一这个精神病有被治疗的意愿，没有暴力倾向，卖狗也都是好人和朋友，拉去治疗一下真没问题吧
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/119.png" referrerpolicy="no-referrer">这个东西，最好别细想，越想越无语。
+
+*****
+
+####  zhzij111  
+##### 17437#       发表于 2025-2-4 13:16
+
+ 本帖最后由 zhzij111 于 2025-2-4 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344726&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-4 13:06</a>
+不找医生治疗给刺激坏了的话，狗团真得背负别人的人生了吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+半身爹妈这群亲朋好友没一个重视的，眼看着就剩自由飞翔了
+
+我们狗团一个圣人一个自闭症一个妈一个面黑心善女舔狗+一只宠物猫，主打一个人畜无害，用温暖大家庭的民间小偏方治死了也算尽力了，不背锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
