@@ -16607,3 +16607,15 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  披头破落户  
+##### 1296#       发表于 2025-2-5 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348543&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-2-5 00:52</a>
+我一般是把这段话作为新对话的起始，所以更好的用法是放在系统prompt里吗？比如chatbox是放在助手设置那里 ...</blockquote>
+点对话标题出现的系统提示那里
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
