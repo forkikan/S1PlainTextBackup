@@ -14459,3 +14459,46 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  595505568  
+##### 17552#       发表于 2025-2-4 18:28
+
+其实这样有个新问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，MyGO第九话告诉你素世妈妈上来就pick月之森而非白雪…蝶团OvA的时候这两人就在了…
+总不能全是独角兽为了自己好的那口血缘女女乱炖乱伦CP做的铺垫吧
+毕竟细雪四姐妹嘛，总得凑一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，天知道了这下
+毕竟soyo名字不是人名是气象学（微风）
+初华姓氏不是人名是天文学（夏季大三角）
+这俩一个天一个地的，名字上不会也在暗示吧
+毕竟你这剧本一起完成的，不脑洞大开点不行了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 17553#       发表于 2025-2-4 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 17554#       发表于 2025-2-4 18:35
+
+独角兽深感邦邦那么多团，却只有一对冰川双子是有血缘关系，所以一次性在鸡狗里补了四个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 17555#       发表于 2025-2-4 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346527&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-4 18:15</a>
+
+其实如果从比较现实角度考量，大瞄确实比大祥更危险一点，毕竟在一个团队你可以和领导不做朋友（没有亲近就 ...</blockquote>
+大猫发现自己是被丰川家抛弃的孤儿来东京报仇哒
+
+海猫鸣泣之时，是我纱音哒
+

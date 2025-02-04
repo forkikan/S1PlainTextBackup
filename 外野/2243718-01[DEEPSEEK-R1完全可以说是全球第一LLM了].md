@@ -16194,3 +16194,84 @@ D指导对于赛博改造的执着实在是太强烈了，问它如何实现世�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王苍幻  
+##### 1259#       发表于 2025-2-4 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346379&amp;ptid=2243718" target="_blank">qz66618 发表于 2025-2-4 17:44</a>
+
+硅基流动的R1模型API目前用不了吗？我在chatbox上配置的没有反应
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+可以的吧？你是不是模型没选对？
+
+*****
+
+####  yangkaim4  
+##### 1260#       发表于 2025-2-4 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345718&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 16:03</a>
+
+试了几天几夜终于知道问题在哪了，deepseek这玩意在文学类的输出上有问题，他对文字的输出是有各种类型的定 ...</blockquote>
+不用酒馆的话怎么让提示词起作用？
+
+*****
+
+####  最终兵器狂战  
+##### 1261#       发表于 2025-2-4 18:26
+
+下午试着让Deepseek选下20年到24年每年的年度游戏音乐曲目。结果到21年的时候各种推出来ost里面找都找不到的曲名。像是双人成行的《Let's Work Together!》，柯娜精神之桥的《Main Theme》，生化村的《Dimitrescu Castle Main Hall》这些根本不存在的曲名。而且越指出错误，他订正后的答案就越离谱，怎么看都是自己编了个歌名的那种。
+
+这是我用的姿势不对么？还是说21年游戏小年真的恐怖如斯？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 1262#       发表于 2025-2-4 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346589&amp;ptid=2243718" target="_blank">最终兵器狂战 发表于 2025-2-4 18:26</a>
+下午试着让Deepseek选下20年到24年每年的年度游戏音乐曲目。结果到21年的时候各种推出来ost里面找都找不到 ...</blockquote>
+不用想，完全找不到就是编的，我刚才跑团还给我编出了1942年苏联的洲际导弹。
+
+*****
+
+####  王苍幻  
+##### 1263#       发表于 2025-2-4 18:28
+
+感觉自己是轻度用户，不需要上显卡本地部署
+弄个api就足够自己用了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  断片集  
+##### 1264#       发表于 2025-2-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346589&amp;ptid=2243718" target="_blank">最终兵器狂战 发表于 2025-2-4 18:26</a>
+
+下午试着让Deepseek选下20年到24年每年的年度游戏音乐曲目。结果到21年的时候各种推出来ost里面找都找不到 ...</blockquote>
+没有语料的自然就是编的啊，你要查这种必须开联网，不过好像现在还只是灰度，只有部分人能用联网
+
+
+*****
+
+####  阿刚  
+##### 1265#       发表于 2025-2-4 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346588&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-2-4 18:26</a>
+
+不用酒馆的话怎么让提示词起作用？</blockquote>
+chatbox和charry的聊天助手都有身份提示词可以填，穿甲弹塞里面就行了
+
+*****
+
+####  afer  
+##### 1266#       发表于 2025-2-4 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346589&amp;ptid=2243718" target="_blank">最终兵器狂战 发表于 2025-2-4 18:26</a>
+下午试着让Deepseek选下20年到24年每年的年度游戏音乐曲目。结果到21年的时候各种推出来ost里面找都找不到 ...</blockquote>
+你试试秘塔
+
