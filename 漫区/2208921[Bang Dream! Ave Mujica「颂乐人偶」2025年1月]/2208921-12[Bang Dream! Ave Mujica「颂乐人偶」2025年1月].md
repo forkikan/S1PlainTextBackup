@@ -14502,3 +14502,36 @@ Ave Mujica动画果然就是要比Mygo动画更加八点档才对味啊</blockqu
 
 海猫鸣泣之时，是我纱音哒
 
+
+*****
+
+####  aptx8285144  
+##### 17556#       发表于 2025-2-4 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67346642&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-4 18:35</a>
+
+大猫发现自己是被丰川家抛弃的孤儿来东京报仇哒
+
+海猫鸣泣之时，是我纱音哒 ...</blockquote>
+不是说初华和丰川家的黑暗面有关系吗，大喵也有的假药来了，这是基督山伯爵还是夺嫡之争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 17557#       发表于 2025-2-4 18:40
+
+初华，也是住在小岛上的情妇生的女儿，还是我纱音哒
+快进到三位一体说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  plok201  
+##### 17558#       发表于 2025-2-4 18:42
+
+都四子了，怎么不弄五子，是五子不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+海玲，海玲为什么要各个乐队周转，有没有可能是当年跑路的父亲就是乐队有关的，财团大手搞大自己乐队成员给了一笔钱就消失了，现在海玲想找回自己的爸爸
+
