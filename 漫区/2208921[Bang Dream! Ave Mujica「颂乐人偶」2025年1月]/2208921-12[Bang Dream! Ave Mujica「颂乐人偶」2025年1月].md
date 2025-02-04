@@ -13121,3 +13121,78 @@ IMG_3554.jpeg
 
 之后再来个大祥跪睦头（牢莫），月之森下跪大三角就完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  terry666  
+##### 17423#       发表于 2025-2-4 12:46
+
+<blockquote>fuwamoco 发表于 2025-2-4 12:44
+小墨的底层逻辑是睦头大于一切，睦头给她的任务是保护mujica，保护mujica的原因是祥子没了mujica就会坏掉 ...</blockquote>
+那大莫老师更小丑了，讨厌一个人，还因为另一个对自己很重要的人格在乎那个人跑去跪别人求救。
+
+*****
+
+####  6030sylar  
+##### 17424#       发表于 2025-2-4 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344596&amp;ptid=2208921" target="_blank">terry666 发表于 2025-2-4 12:46</a>
+那大莫老师更小丑了，讨厌一个人，还因为另一个对自己很重要的人格在乎那个人跑去跪别人求救。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">睦在上一季也很小丑，夹在祥和soyo中间左右不是人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Kasroz  
+##### 17425#       发表于 2025-2-4 12:51
+
+双膝着地但上半身伸直的就是日本人常做的正坐，根本不算下跪，文化差异闹麻了
+
+
+*****
+
+####  一心而用  
+##### 17426#       发表于 2025-2-4 12:52
+
+李子穿高跟鞋打棒球跌跤了。
+<img src="https://p.sda1.dev/21/573d28500756cc116a4344db31fc0e2a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/611da735ab7eee778b9affa161d54d28/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6fd32802219bb1a9678501bcd759419f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 17427#       发表于 2025-2-4 12:52
+
+弄弄要大学毕业了。
+<img src="https://p.sda1.dev/21/edadcb2fa4258e0076535fd7f84bb734/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 17428#       发表于 2025-2-4 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没问题啊，mortis本来就是复读机，你不能只在她复读的不是大祥时说她烂
+
+*****
+
+####  北条早苗  
+##### 17429#       发表于 2025-2-4 12:53
+
+难道现在的牢莫就不小丑吗，飞鸟山再演之后第三集最后的烂炒演出真的变态好吧
+
+*****
+
+####  borrowface  
+##### 17430#       发表于 2025-2-4 12:54
+
+还真是小孩子有样学样了，motis生成式ai实锤了
+
+*****
+
+####  杂灰  
+##### 17431#       发表于 2025-2-4 12:55
+
+鸡团杂鱼和狗团杂鱼得惊世一战
+
