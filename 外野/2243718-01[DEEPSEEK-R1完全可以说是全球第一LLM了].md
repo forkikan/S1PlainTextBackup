@@ -16654,3 +16654,34 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 火山引擎的deepseek-r1也上线了，试了下速度很猛，比现在的硅基流动体验好太多了，送50万tokens，缺点是不 ...</blockquote>
 找不到api地址
 
+
+*****
+
+####  jeokeo  
+##### 1300#       发表于 2025-2-5 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345961&amp;ptid=2243718" target="_blank">变老的大二 发表于 2025-2-4 16:45</a>
+D指导对于赛博改造的执着实在是太强烈了，问它如何实现世界和平，都要扯到几句相关的。
+
+脑机接口技术打破 ...</blockquote>
+机械飞升！
+
+*****
+
+####  jeokeo  
+##### 1301#       发表于 2025-2-5 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67347407&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-4 21:02</a>
+你用chatbox的话就在助手那一栏填，cherry的话就是智能体设定里，不过不知道为啥cherry的智能体可以简单 ...</blockquote>
+不用破甲，你只要随便给几个关键字就行，甚至不需要擦边，用正常的句子，最后都能给你自己破甲出来。例如说你想和精灵妹子结婚，然后慢慢由它自己发挥。
+
+但是网页版会被吞。
+
+
+*****
+
+####  卑弥呼yamato  
+##### 1302#       发表于 2025-2-5 09:03
+
+D老师好像对可控核聚变没什么实际的办法啊
+
