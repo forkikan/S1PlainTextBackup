@@ -543,3 +543,14 @@ ae阶up快来了，该备战藤蔓，希望能凑够保底（还差一百石）
 
 躺着也中枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16228#       发表于 2025-2-5 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352162&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-2-5 15:32</a>
+
+躺着也中枪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一个月就出五个五星NEW的狗人你好
+
