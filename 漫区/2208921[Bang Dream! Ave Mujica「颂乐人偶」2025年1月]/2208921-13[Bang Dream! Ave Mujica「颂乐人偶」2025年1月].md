@@ -2218,3 +2218,51 @@ C团前夫妻也是夫妻</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  天空塔书记官  
+##### 17970#       发表于 2025-2-5 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353249&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-5 17:42</a>
+斯拉夫血统打完都要虚脱，高一乡下妹恐怖如斯</blockquote>
+立希的鼓打全谱也不是一般人能打的啊，不要小看全员音乐天才的邦多利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17971#       发表于 2025-2-5 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353255&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-5 17:42</a>
+素世逮睦还有一个办法，走过两列课桌说贵安</blockquote>
+主要是第二话为了对称在黄瓜面前逮人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过我这个疑问也只是针对2020年9月20号解散到10月20号的30天里，有14天假期，其实没有大家想的能考虑对方在不在的时间长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，但反过来说其他队友14天都没去考虑看一眼睦…祥子就不说了，估计狠狠摧残自己去全天加班了…只能说14+17天看的头痛
+
+*****
+
+####  盐盐盐盐盐  
+##### 17972#       发表于 2025-2-5 17:52
+
+谁说喵梦是初学了，她只是发打鼓视频没太久，不代表之前没有在练鼓啊
+
+*****
+
+####  斑驳的阴影  
+##### 17973#       发表于 2025-2-5 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353118&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-5 17:23</a>
+
+半身都不要祥p了，还要靠灯去唤醒她谁是真爱一目了然。如果结局是木箱，可能母鸡卡就是这样一个和真爱错过 ...</blockquote>
+灯祥好就好在是悲剧
+
+*****
+
+####  盐盐盐盐盐  
+##### 17974#       发表于 2025-2-5 17:55
+
+<blockquote>阿兹尔 发表于 2025-2-5 17:30
+说起来祥子拉人一个月上武道馆是不是相当于没出道的李宇春上春晚，06年刚出道的霉霉得格莱美 ...</blockquote>
+那不至于，武道馆说白了只是一个演出场地，你有钱就能定（虽然一个月就定下武道馆多半还得有关系）了，最多类比一个歌手官宣一个月就上梅奔/工体开演唱会
+
