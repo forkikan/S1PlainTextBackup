@@ -15206,3 +15206,14 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 2025-2-5 19:54 上传
 
+
+*****
+
+####  csolfans  
+##### 1475#       发表于 2025-2-5 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353993&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-5 19:56</a>
+
+可惜，动画里比较期待会出现的一幕终是成了苍白的文字(还没声音)</blockquote>
+出自杂志吗
+
