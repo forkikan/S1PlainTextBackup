@@ -17598,3 +17598,102 @@ https://cloud.siliconflow.cn/i/527RluID
 
 这是什么意思，4块钱问一次？？？
 
+
+*****
+
+####  Azcarlo  
+##### 1386#       发表于 2025-2-5 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354892&amp;ptid=2243718" target="_blank">RexJax 发表于 2025-2-5 22:50</a>
+输入：￥4/ M Tokens
+
+输出：￥16/ M Tokens</blockquote>
+输入4块钱每100万token，你可以理解为100万字。
+输入输出都要钱，输出一般会贵一点。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  爱莉希雅  
+##### 1387#       发表于 2025-2-5 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354892&amp;ptid=2243718" target="_blank">RexJax 发表于 2025-2-5 22:50</a>
+
+输入：￥4/ M Tokens
+
+输出：￥16/ M Tokens</blockquote>
+M（百万）tokens（词元），一次回答根据字数不同在几百至几千tokens左右
+
+*****
+
+####  御坂MKII  
+##### 1388#       发表于 2025-2-5 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354892&amp;ptid=2243718" target="_blank">RexJax 发表于 2025-2-5 22:50</a>
+
+输入：￥4/ M Tokens
+
+输出：￥16/ M Tokens</blockquote>
+token 大致来说就是大模型输入的最小单元，M 是 million 百万。
+
+价格是说的 100 万输入是 4 块，100 万输出是 16 块。
+
+对于汉字来说一般就当一个字等价于一个 token 就行
+
+*****
+
+####  爱莉希雅  
+##### 1389#       发表于 2025-2-5 22:58
+
+放个邀请链接[https://cloud.siliconflow.cn/i/aOP5MMkm](https://cloud.siliconflow.cn/i/aOP5MMkm)漏油点点，互通有无
+
+*****
+
+####  羊寢  
+##### 1390#       发表于 2025-2-5 22:59
+
+大d老师老拆我cp怎么回事，同样两个人物的设定信息前几天还写得好好的，今天改了几次世界观他就每次都拆cp<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  约翰里德  
+##### 1391#       发表于 2025-2-5 23:00
+
+ 本帖最后由 约翰里德 于 2025-2-5 23:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354936&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-5 22:59</a>
+大d老师老拆我cp怎么回事，同样两个人物的设定信息前几天还写得好好的，今天改了几次世界观他就每次都拆cp ...</blockquote>
+人物设定混淆，🐘老师只能记住3000字左右的对话里的核心设定，建议是人物卡不断喂同时记得更新人物卡。
+建议隔段时间要求他列出主要人物的表格，检查是否又把人物搞混了
+
+*****
+
+####  andychen  
+##### 1392#       发表于 2025-2-5 23:01
+
+官方的API申请和充值都重新开放了
+
+Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
+
+*****
+
+####  yangkaim4  
+##### 1393#       发表于 2025-2-5 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354863&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-5 22:45</a>
+
+在系统提示里加上禁止科幻题材，减少高科技要素，减少人体改造和人体义肢内容试试
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+试过了，这byd思考过程自己都会说用户强调不让出现哪些元素，结果还整这些
+
+*****
+
+####  RexJax  
+##### 1394#       发表于 2025-2-5 23:05
+
+[https://cloud.siliconflow.cn/i/FGBheDJl](https://cloud.siliconflow.cn/i/FGBheDJl)
+
+放个邀请链接
+

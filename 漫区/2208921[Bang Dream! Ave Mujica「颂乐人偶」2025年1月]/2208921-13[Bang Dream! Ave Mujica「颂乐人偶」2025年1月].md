@@ -3261,3 +3261,14 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 毕竟作为整体少了谁都不太行，但生活里很难保证每个人都时时刻刻在状态
 
+
+*****
+
+####  玖羽  
+##### 18061#       发表于 2025-2-5 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354894&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 22:50</a>
+
+既然是Mujica在支撑祥子，那祥子只要智商还正常，情商还是正常水平就应该在措辞和表达上回报团员吧？（我 ...</blockquote>
+本来就不适合啊，不知道你在激动什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
