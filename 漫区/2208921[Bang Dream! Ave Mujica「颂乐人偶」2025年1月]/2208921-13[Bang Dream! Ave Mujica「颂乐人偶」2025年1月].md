@@ -1228,3 +1228,53 @@ SoYo - 大貓 ： 驚世智慧的反賊
 真正的美帝要来了，鸡狗人气双top，要是有正式交流会摩擦出怎么的火花我都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/02ffa6ff92e267b70b0686a279eff578/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 17881#       发表于 2025-2-5 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348345&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-5 00:03</a>
+满脑子只有垫垫垫，都不知道说什么好
+
+节约访谈里睦的归宿是祥子身边，看完第六集全场沉默，舅舅说过4-6集不 ...</blockquote>
+鸡团的问题光靠鸡团自己这几个人是肯定解决不了的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 17882#       发表于 2025-2-5 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内鬼一直在从其他四个人找，祥子有没有可能也是内鬼，这样爆点可太大了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  金属化反射装甲  
+##### 17883#       发表于 2025-2-5 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350708&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 12:30</a>
+
+左脸遮盖多是初华的</blockquote>
+随便一搜的事，要不你点到这楼首页看一眼？
+
+*****
+
+####  fuwamoco  
+##### 17884#       发表于 2025-2-5 12:42
+
+内鬼肯定是发散，但是初华从岛民奋斗到顶层，她和喵梦是有很大经历相似性的，她一定能理解喵梦那种害怕失去流量事业受挫的感觉，因为她之前可是给祥子发消息说终于决定出道了，不可能是一帆风顺就火起来的。这是祥睦海感受不到了，睦头高高在上，海玲无所谓，祥子还沉迷一种掌握欲+超强自尊的过家家游戏里。
+
+所以初华一定是背地里干了什么，她为人处世比素世高十几个段位了，素世的那点小心思都暴露在肢体语言里，初华给人的就是一股淡淡的不对劲的味道。她除了对祥子说得话，嘴上说得话和实际言行是完全对不上的。喵梦就不一样，她做事很欠，但她是一直在说真心话，直接自爆演技不如睦头的。
+
+最烂的情况是，最后初华真的就是满脑子肉体的傻白甜，但是狗团那么细腻的剧情，不应该。
+
+*****
+
+####  6030sylar  
+##### 17885#       发表于 2025-2-5 12:43
+
+祥子当然是鬼，出事不摆平就逃
+
