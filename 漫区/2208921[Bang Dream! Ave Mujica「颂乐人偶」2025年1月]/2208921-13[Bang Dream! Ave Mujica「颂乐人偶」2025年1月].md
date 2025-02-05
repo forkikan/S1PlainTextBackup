@@ -1069,3 +1069,60 @@ be残缺美我觉得算好了，关系性里重要的是箭头啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  嵇翱u  
+##### 17865#       发表于 2025-2-5 11:35
+
+能不能卖素祥啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+C团前夫妻也是夫妻
+
+*****
+
+####  fosanoha  
+##### 17866#       发表于 2025-2-5 11:38
+
+素祥女同性恨不卖吗，我不信
+素祥对线又是飞鸟山回旋镖又是抽陀螺优选，staff这不玩玩也是神人了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  古明地雷  
+##### 17867#       发表于 2025-2-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350283&amp;ptid=2208921" target="_blank">ayachi 发表于 2025-2-5 11:32</a>
+第五话的素睦fanart我感觉更像月之森大三角
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这是初华的面具吧
+
+*****
+
+####  山ノ内花音  
+##### 17868#       发表于 2025-2-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350283&amp;ptid=2208921" target="_blank">ayachi 发表于 2025-2-5 11:32</a>
+第五话的素睦fanart我感觉更像月之森大三角
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这么变态吗 算不算垫
+
+*****
+
+####  阿兹尔  
+##### 17869#       发表于 2025-2-5 11:41
+
+素世对祥子的姿态太低了，又是下跪又是熬夜发信息发现被拉黑，被认为是嘲讽自己还是利用睦的开盒跟踪狂，感觉像单方面抽陀螺同性恨
+
+*****
+
+####  osore  
+##### 17870#       发表于 2025-2-5 11:44
+
+过去低姿态的soyo已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
