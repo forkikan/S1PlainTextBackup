@@ -780,3 +780,21 @@ juda对初华
 什么隐藏的红线 ...</blockquote>
 确实很对胃口啊素睦这种结局的话，后续还能在手游开活动补后续，可惜目前看来不是这种走向
 
+
+*****
+
+####  杂灰  
+##### 17837#       发表于 2025-2-5 10:01
+
+现在不是怎么救祥子的问题，而是祥子需要启动c团救睦来自救，c团是祥子的团，c团能动的前提是祥子肯动
+
+*****
+
+####  嵇翱u  
+##### 17838#       发表于 2025-2-5 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349459&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-2-5 09:47</a>
+
+不如担心第六集祥子对go团哈气，把祥子是个谁亲近她谁就会被哈气的烂人设贯彻到谷底，到时候什么假说都难塑 ...</blockquote>
+不用担心，因为肯定会哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，地铁cm就有对灯的回复
+
