@@ -1923,3 +1923,40 @@ image.png
 这个设定不适祥子第一去拉她的时候就放出来的吗？大象说要跟上A团的水准猫需要多练习，作为编曲大象肯定是 ...</blockquote>
 要看具体环境，在这之前喵梦说过祥子穷酸，祥子这么说有报复的意思，众所周知你要多练是祥子的三板斧之一
 
+
+*****
+
+####  qratosones1337  
+##### 17938#       发表于 2025-2-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352702&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-5 16:33</a>
+
+这个设定不适祥子第一去拉她的时候就放出来的吗？大象说要跟上A团的水准猫需要多练习，作为编曲大象肯定是 ...</blockquote>
+你要多练不就是大祥三板斧么，而且马上被海玲直球打脸了
+
+*****
+
+####  zhoujin8584  
+##### 17939#       发表于 2025-2-5 17:03
+
+<blockquote>单脚着地 发表于 2025-2-5 16:26
+米泽茜再厉害，动画里大喵设定也是A团成员里最菜的那个啊</blockquote>
+真不是，地铁判官海铃如是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fakerの幻影  
+##### 17940#       发表于 2025-2-5 17:04
+
+合理怀疑不要撒娇也是祥子偷祥爸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+两半身都是复读机原来
+
+*****
+
+####  wzm96816  
+##### 17941#       发表于 2025-2-5 17:05
+
+mygo前几集的学校生活气息还是挺自然的，和后期单纯背景板还是有点区别的，甚至前几集多线叙事的群像描写也挺好的，那时爱灯祥if不是一点希望没有。
+
+这么说吧，老c团那几位，从故事一开始就已经没得选了，只能走上其宿命，其余人物还有其他的未来。
+

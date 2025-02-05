@@ -17153,3 +17153,16 @@ Nebius（Openrouter那里提到了）
 
 The system message of deepseek-reasoner must be put on the beginning of the message sequence.
 
+
+*****
+
+####  PharotekWizard  
+##### 1342#       发表于 2025-2-5 17:01
+
+他真的能看懂我讲的冷笑话
+但是沪语冷笑话看不懂
+比如：为什么上海人不用24小时制，因为有13点，这个告诉他笑点他也get不到<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/960283ec6139d0512cea7224c6ed8c04/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
