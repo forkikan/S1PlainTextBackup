@@ -798,3 +798,13 @@ juda对初华
 不如担心第六集祥子对go团哈气，把祥子是个谁亲近她谁就会被哈气的烂人设贯彻到谷底，到时候什么假说都难塑 ...</blockquote>
 不用担心，因为肯定会哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，地铁cm就有对灯的回复
 
+
+*****
+
+####  595505568  
+##### 17839#       发表于 2025-2-5 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349531&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-5 09:57</a>
+确实很对胃口啊素睦这种结局的话，后续还能在手游开活动补后续，可惜目前看来不是这种走向 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
