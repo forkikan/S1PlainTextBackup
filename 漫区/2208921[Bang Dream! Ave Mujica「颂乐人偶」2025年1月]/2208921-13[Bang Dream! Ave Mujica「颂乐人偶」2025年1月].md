@@ -727,3 +727,56 @@ juda对初华
 这样其实还挺有be美感的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KLHgg  
+##### 17832#       发表于 2025-2-5 09:47
+
+ 本帖最后由 KLHgg 于 2025-2-5 09:49 编辑 
+
+不如担心第六集祥子对go团哈气，把祥子是个谁亲近她谁就会被哈气的烂人设贯彻到谷底，到时候什么假说都难塑造回来
+
+*****
+
+####  595505568  
+##### 17833#       发表于 2025-2-5 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349428&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-5 09:41</a>
+
+这样其实还挺有be美感的</blockquote>
+
+突然想起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么隐藏的红线
+
+
+*****
+
+####  iiiiiiiiii  
+##### 17834#       发表于 2025-2-5 09:56
+
+第六集可是钦定毫无喜报，那就是灯救不了祥子 ，素世也救不了睦
+
+*****
+
+####  南宮凝香  
+##### 17835#       发表于 2025-2-5 09:57
+
+<blockquote>KLHgg 发表于 2025-2-5 09:47
+不如担心第六集祥子对go团哈气，把祥子是个谁亲近她谁就会被哈气的烂人设贯彻到谷底，到时候什么假说都难塑 ...</blockquote>
+隨手抓起台球就甩過去，
+
+結果打壞了她媽的人偶
+
+*****
+
+####  阿兹尔  
+##### 17836#       发表于 2025-2-5 09:57
+
+<blockquote>595505568 发表于 2025-2-5 09:49
+突然想起来，睦不记得了不是别人不记得了，这反而上大分了草
+
+什么隐藏的红线 ...</blockquote>
+确实很对胃口啊素睦这种结局的话，后续还能在手游开活动补后续，可惜目前看来不是这种走向
+
