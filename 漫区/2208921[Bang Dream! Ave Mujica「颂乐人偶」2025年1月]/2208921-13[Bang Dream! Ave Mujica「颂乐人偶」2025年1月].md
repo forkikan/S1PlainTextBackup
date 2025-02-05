@@ -551,3 +551,32 @@ juda对初华
 
 背叛者无论是几个，从基本的编剧原则来说，她们一定都不是同质的，每个人出于不同的原因，通过不同的方式背叛，加在一起就成了炸团
 
+
+*****
+
+####  玖羽  
+##### 17815#       发表于 2025-2-5 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348860&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-5 06:10</a>
+
+如果采用对偶说 能否从卖狗第八集找出这集能彻底抽碎陀螺和让声优看了都沉默的对称剧情？
+
+是为什么演奏？ ...</blockquote>
+前面我贴的，有人做的具体到分钟的表格
+
+<img src="https://img.saraba1st.com/forum/202502/05/080927g7mfonkomfmalonm.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (22.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 08:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/05/080932iz0m7f3zvzwytvn3.jpg" referrerpolicy="no-referrer">
+
+<strong>137.jpg</strong> (179.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 08:09 上传
+
