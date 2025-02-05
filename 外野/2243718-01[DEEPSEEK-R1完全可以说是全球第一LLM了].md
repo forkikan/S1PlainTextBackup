@@ -16795,3 +16795,23 @@ Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  魔灵高达  
+##### 1314#       发表于 2025-2-5 11:51
+
+有没有组建个讨论群的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 1315#       发表于 2025-2-5 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350286&amp;ptid=2243718" target="_blank">justwul 发表于 2025-2-5 11:32</a>
+
+Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太给力
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+智能体里的公文笔杆子这个设定模式不行吗？
+
