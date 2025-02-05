@@ -8744,3 +8744,27 @@ rx-78这下巴从侧面看更像那啥了，红高达我还是收个hg然后切�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  岸浪白野  
+##### 6584#       发表于 2025-2-5 21:07
+
+[X 上的 シャパリントン：“ポケットモンスター赤(い彗星)緑(のおじさん) #GQuuuuuuX #ジークアクス [url]https://t.co/G64YRIGUSW](https://x.com/syaparinton/status/1887091925918068794)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/05/210653x2ccdjbajbjs9bjd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/05/210700s9brs4svdzipo0uu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 21:07 上传
+
