@@ -697,3 +697,33 @@ juda对初华
 
 大胆预测喵梦接下来的人物塑造是靠和初华对手戏提升。
 
+
+*****
+
+####  嵇翱u  
+##### 17829#       发表于 2025-2-5 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349363&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 09:32</a>
+一早因为上班情绪低落，突然想到一个素睦关系性被彻底垫掉的滑坡脑洞，莫和素还有Go团尽全力把睦拉到苏醒边 ...</blockquote>
+这就是韩剧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且如果有忘记的伏笔那就会在手游收回来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿兹尔  
+##### 17830#       发表于 2025-2-5 09:41
+
+<blockquote>595505568 发表于 2025-2-5 09:32
+一早因为上班情绪低落，突然想到一个素睦关系性被彻底垫掉的滑坡脑洞，莫和素还有Go团尽全力把睦拉到苏醒边 ...</blockquote>
+这样其实还挺有be美感的
+
+*****
+
+####  595505568  
+##### 17831#       发表于 2025-2-5 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349428&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-5 09:41</a>
+这样其实还挺有be美感的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
