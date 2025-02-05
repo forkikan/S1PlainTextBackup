@@ -2570,3 +2570,20 @@ MAS这种全方位逆输入的角色来认可喵梦就更哈人了
 
 不是睦头炸了还有的强度上。
 
+
+*****
+
+####  天空塔书记官  
+##### 18000#       发表于 2025-2-5 18:46
+
+ 本帖最后由 天空塔书记官 于 2025-2-5 18:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353559&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-5 18:36</a>
+鸡团最厉害的还是撑得住强度，不停搞新曲不停办演出。
+
+同时又是节目采访又是代言。不由得让人怀疑她们一天 ...</blockquote>
+那是因为祥子只需要关注音乐的部分，其他的都交给了海铃和经济公司，这个产出速度其实不算特别离谱，立希的作曲能力就是证明，隔壁肝帝楚平方更是词曲全包还担任了经纪人和对外交涉的工作，甚至自己导演制作Mv，RAS全员战狂更是除了live就是排练，干就完了，还有高祖ppp在大赛的时候硬是靠百人场追平了千人场的票数，这才真的吓人好吧，而祥子只需要写剧本和作曲就可以了，其实没必要给自己太大压力的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
