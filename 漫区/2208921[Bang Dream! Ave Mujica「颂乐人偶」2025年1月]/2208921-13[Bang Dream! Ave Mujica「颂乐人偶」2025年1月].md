@@ -2930,3 +2930,24 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 申请武道馆的是东京livehouse联合 ...</blockquote>
 这就是你不懂了，在邦多利里，乐队少女才是核心，其实是livehouse联合会在拿少女乐队炒作，蹭头部乐队上武道馆，这观众总不能是协会变出来的对吧，不还是三个乐队自己的实力
 
+
+*****
+
+####  K·os  
+##### 18032#       发表于 2025-2-5 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353817&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 19:27</a>
+
+我想了一下，退一步而言，哪怕日后说酒店里有三个都是叛徒，第四话那为炸而炸的僵硬感依然很明显，而且这可 ...</blockquote>
+那我觉得就算，没有人是叛徒，那第四话也没啥问题，说到头什么才算叛徒，喵姆本来就是为了资源来的，睦和初华都是为了祥子来的，海铃不相干，只有祥子一个人有ave mujica的理想，就凭观众已知的信息，这乐队里都没有忠臣啊
+
+更别说睦爆炸是ave mujica的必然，这乐队本身就活不长
+
+
+*****
+
+####  595505568  
+##### 18033#       发表于 2025-2-5 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战吧 Go吧 NGA开始考据耶稣与最亲密的三个门徒，三个玛利亚 犹大了，现在就差立希 猫是什么来的不知道了
+
