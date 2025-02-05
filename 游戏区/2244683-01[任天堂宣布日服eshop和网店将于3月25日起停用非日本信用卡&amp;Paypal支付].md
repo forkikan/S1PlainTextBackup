@@ -2255,3 +2255,27 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 二三行的话，认证服务是要买的，也不难理解，按照在日本的朋友说有可能是找了个信用卡中间商把海外信用卡直接踢了。
 
+
+*****
+
+####  完美的消费品  
+##### 223#       发表于 2025-2-5 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314888&amp;ptid=2244683" target="_blank">liekong 发表于 2025-1-30 23:35</a>
+
+没影响，像这种语言锁区游戏不同区不是一个sku
+
+—— 来自 S1Fun</blockquote>
+那就是说，日服切换美服以后，已经购买的日服有但是美服没有的sku，完全不影响重新下载游戏和云存档吗
+
+*****
+
+####  clyde-wang  
+##### 224#       发表于 2025-2-5 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350460&amp;ptid=2244683" target="_blank">完美的消费品 发表于 2025-2-5 11:56</a>
+那就是说，日服切换美服以后，已经购买的日服有但是美服没有的sku，完全不影响重新下载游戏和云存档吗 ...</blockquote>
+不影响
+
+我有买错过游戏，鬼灭的日版和港版是分开的，我当时先买了日版，然后后来打折时候转区再去买了港版，存档都有，在云存档里有两个独立的
+
