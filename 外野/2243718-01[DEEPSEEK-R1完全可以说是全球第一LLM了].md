@@ -17537,3 +17537,64 @@ chatbox
 
 我真是吐了，似乎除了硅基流动和火山(弱智版)，想用其他云平台的API的话还要扫脸扫银行卡认证？！
 
+
+*****
+
+####  披头破落户  
+##### 1381#       发表于 2025-2-5 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354840&amp;ptid=2243718" target="_blank">yangkaim4 发表于 2025-2-5 22:42</a>
+谁摸索出来可以防止ds加入赛博朋克内容的提示词？我真是服了，再怎么强调，都会出现这些东西 ...</blockquote>
+在系统提示里加上禁止科幻题材，减少高科技要素，减少人体改造和人体义肢内容试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Nanachi  
+##### 1382#       发表于 2025-2-5 22:45
+
+silicon flow和官方的api都慢又卡，直接换qwen来翻译网页了
+
+*****
+
+####  jeokeo  
+##### 1383#       发表于 2025-2-5 22:46
+
+ 本帖最后由 jeokeo 于 2025-2-5 22:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353737&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 19:11</a>
+你们r1都爆炸了？我这跑团用r1好好的啊</blockquote>
+你的跑团咒语是啥？
+我这边老是想擦边
+
+放个硅基邀请，互通有无
+https://cloud.siliconflow.cn/i/527RluID
+
+*****
+
+####  琉璃苑軒風  
+##### 1384#       发表于 2025-2-5 22:47
+
+本地部署了那个32b的，速度尚可，但是不知道是gpu模式还是混合模式
+
+反正两张显卡都吃满内存，加一起倒是真有24g显存
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  RexJax  
+##### 1385#       发表于 2025-2-5 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354872&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-2-5 22:46</a>
+
+你的跑团咒语是啥？
+
+我这边老是想擦边</blockquote>
+输入：￥4/ M Tokens
+
+输出：￥16/ M Tokens
+
+这是什么意思，4块钱问一次？？？
+
