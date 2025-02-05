@@ -3537,3 +3537,14 @@ deepseek这逻辑无敌了，这药太真了。
 说起来 WSD找gigguk真就只是让直播看一次啊？ 到现在还没做推荐视频 我寻思他的粉丝不是视频为主么 ...</blockquote>
 视频为主是好几年前了吧，最近几年几乎都是在直播
 
+
+*****
+
+####  凉良  
+##### 18084#       发表于 2025-2-6 05:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355587&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 04:28</a>
+
+视频为主是好几年前了吧，最近几年几乎都是在直播</blockquote>
+我看他直播也就两平台加一起5K人啊 真的不如视频播放高吧
+
