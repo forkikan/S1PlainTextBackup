@@ -16643,3 +16643,14 @@ deepseek r1蒸馏qwen的模型挺烂的，14b甚至不如一些7b模型。新出
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 不说了，大佬这套提示词是真的强，写的水平几乎可以说是gemini加强版
 
+
+*****
+
+####  yangkaim4  
+##### 1299#       发表于 2025-2-5 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348041&amp;ptid=2243718" target="_blank">莫夜戎 发表于 2025-2-4 22:58</a>
+
+火山引擎的deepseek-r1也上线了，试了下速度很猛，比现在的硅基流动体验好太多了，送50万tokens，缺点是不 ...</blockquote>
+找不到api地址
+
