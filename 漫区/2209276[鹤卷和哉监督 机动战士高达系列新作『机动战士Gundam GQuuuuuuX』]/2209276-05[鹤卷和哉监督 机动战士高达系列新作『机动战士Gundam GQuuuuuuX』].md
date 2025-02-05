@@ -8673,3 +8673,30 @@ gqx遨游黑拳赛没什么问题，不过两台都得加点远程了
 
 rx-78这下巴从侧面看更像那啥了，红高达我还是收个hg然后切掉圆形监视器吧，如果是mr魂肯定不忍心下刀
 
+
+*****
+
+####  岸浪白野  
+##### 6578#       发表于 2025-2-5 18:17
+
+2月7日又有访谈看
+
+<img src="https://img.saraba1st.com/forum/202502/05/181733fkl7pprzddg1dptl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 18:17 上传
+
+
+*****
+
+####  AvenueIII  
+##### 6579#       发表于 2025-2-5 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353466&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-5 18:17</a>
+
+2月7日又有访谈看</blockquote>
+一年战争part怎么不叫痞子<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

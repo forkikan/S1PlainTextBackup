@@ -2497,3 +2497,33 @@ MAS这种全方位逆输入的角色来认可喵梦就更哈人了
 
 邦多利世界的武道馆什么水平，动画三期不是很明确吗，顶尖的三支少女乐队能全开武道馆，那ave能半开很正常啊，邦多利乐队战力学一直保持着非常合理的膨胀速度
 
+
+*****
+
+####  天空塔书记官  
+##### 17993#       发表于 2025-2-5 18:18
+
+ 本帖最后由 天空塔书记官 于 2025-2-5 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353457&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-5 18:15</a>
+邦多利世界的武道馆什么水平，动画三期不是很明确吗，顶尖的三支少女乐队能全开武道馆，那ave能半开很正常 ...</blockquote>
+这不是战力膨胀的问题，三队同登也是大手推上去的，后边是东京livehouse联合会，所以你随随便便就上武道馆肯定不可能单纯只靠乐队实力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 17994#       发表于 2025-2-5 18:19
+
+鸡团最重要的还是快吧，乐队结成前路都已经开始铺了
+
+
+*****
+
+####  天空塔书记官  
+##### 17995#       发表于 2025-2-5 18:22
+
+就像组织音乐大赛，决赛决定在国家大剧院举行一样，这是实力的问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
