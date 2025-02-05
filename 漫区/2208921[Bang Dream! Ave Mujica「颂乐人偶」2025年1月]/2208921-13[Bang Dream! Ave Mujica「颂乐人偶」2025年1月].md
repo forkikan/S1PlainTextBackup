@@ -1587,3 +1587,24 @@ Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲�
 
 这些关系我不希望都是血缘上的，那就太小家子气了，但这些东西肯定有联系。
 
+
+*****
+
+####  金属化反射装甲  
+##### 17909#       发表于 2025-2-5 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351707&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 14:43</a>
+
+右边的面具画的有问题，左边就明显是朝下的祥子面具</blockquote>
+哪儿有问题了，这四个面具全是正放，鼻梁曲线全是外凸出，表面连花纹都有，你到底再杠什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古明地雷  
+##### 17910#       发表于 2025-2-5 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351819&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 14:56</a>
+哪儿有问题了，这四个面具全是正放，鼻梁曲线全是外凸出，表面连花纹都有，你到底再杠什么 ...</blockquote>
+右边面具鼻梁朝向和贴面部分的弧度不一致，看不懂算了
+
