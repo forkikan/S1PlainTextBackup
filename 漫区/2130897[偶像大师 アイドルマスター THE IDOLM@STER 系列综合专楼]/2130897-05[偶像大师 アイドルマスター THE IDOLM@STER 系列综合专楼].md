@@ -55,3 +55,16 @@ MV明晚公開，串流/販賣時間不明。
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  BQlin  
+##### 6888#       发表于 2025-2-5 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353522&amp;ptid=2130897" target="_blank">wfhtony 发表于 2025-2-5 18:28</a>
+
+MV明晚公開，串流/販賣時間不明。</blockquote>
+[https://dmg-gakuen.idolmaster-official.jp/](https://dmg-gakuen.idolmaster-official.jp/)
+
+预约已经有了，nico那边介绍这部分直接给了链接
+
