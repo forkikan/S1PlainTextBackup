@@ -850,3 +850,89 @@ juda对初华
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  osore  
+##### 17844#       发表于 2025-2-5 10:55
+
+原来祝灯幸福也是抄袭她爹吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NameLess2501  
+##### 17845#       发表于 2025-2-5 10:55
+
+<blockquote>ads147147 发表于 2025-2-5 10:45
+早解密了，爹发短信说要走，收尾是祝祥子幸福。
+
+祥子一回家就找爷爷对质然后就离家出走找爹开始吃苦。
+</blockquote>
+感谢，字数补丁
+
+*****
+
+####  阿兹尔  
+##### 17846#       发表于 2025-2-5 10:58
+
+后续把睦救回来还得是看吉他是谁送的吧，现在这个吉他跟巫妖的护命匣一样，祥子送的我觉得是板上钉钉了
+
+*****
+
+####  fosanoha  
+##### 17847#       发表于 2025-2-5 10:58
+
+这能算垫吗，这不是直接开始赢？
+这么写睦祥才是真完了，“半身”“能呆的地方只有祥子身边”搞半天是删减版效果，往后CP粉扯头花起手就是摘桃子闹麻了
+
+按舅舅那个透法和现在这个写法更像是要写狗团进场也打不出效果最后还得大祥上，或者狗团助攻拉满之后睦最后义无反顾和祥双向奔赴，这才叫垫，垫到磕牙
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 17848#       发表于 2025-2-5 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349986&amp;ptid=2208921" target="_blank">osore 发表于 2025-2-5 10:55</a>
+原来祝灯幸福也是抄袭她爹吗</blockquote>
+saki嘴里的重话大部分都是学他爹，不要扯上关系也是。
+
+第一话的时候都回旋镖拉满，其实大家都是复读机。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 17849#       发表于 2025-2-5 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349786&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-5 10:32</a>
+
+大翔老师那就是典型的贵族或者说大小姐char的自尊心了，可以对谁都很温柔，也就是所谓的魅魔体质。
+
+但是谁 ...</blockquote>
+转贴 <blockquote>其实祥子的心态蛮真实的，前一天还是贵族学校的大小姐，打招呼都和平民不一样得说贵安，转天自己爹酗酒当街趴地上跟条烂狗一样（虽然随时都能退回去做大小姐，但是随便丢下亲爹祥子人设就烂完了），<strong>这时候人的自尊心都会变得极端敏感，祥子的心态其实就和丢酒瓶的爹一样，求求你别来，别看到自己烂完了的样子，所以白祥时期可以袒露心声我好幸福啊，落魄以后反而要端着了，因为不敢让你看里子。只不过几乎没人喜欢这种真实，更多地是会恨铁不成钢。</strong></blockquote>
+[https://www.zhihu.com/question/11016892626/answer/90937624799](https://www.zhihu.com/question/11016892626/answer/90937624799)
+
+*****
+
+####  595505568  
+##### 17850#       发表于 2025-2-5 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350010&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-2-5 10:58</a>
+这能算垫吗，这不是直接开始赢？
+这么写睦祥才是真完了，“半身”“能呆的地方只有祥子身边”搞半天是删减 ...</blockquote>
+那更完蛋了，Go团帮倒忙要天天被骂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 17851#       发表于 2025-2-5 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350010&amp;ptid=2208921" target="_blank">fosanoha 发表于 2025-2-5 10:58</a>
+这能算垫吗，这不是直接开始赢？
+这么写睦祥才是真完了，“半身”“能呆的地方只有祥子身边”搞半天是删减 ...</blockquote>
+还有我这个设想其实是很八点档和美剧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

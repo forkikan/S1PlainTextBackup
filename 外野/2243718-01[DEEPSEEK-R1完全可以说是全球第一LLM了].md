@@ -16703,3 +16703,44 @@ gemini反正api免费，用cherry可以整合两个模型随时切换
 
 有没有手机上比较靠谱的客户端，chatbox连api切换比较麻烦也没法测试状态，cherry又没有手机端
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1305#       发表于 2025-2-5 10:59
+
+有无大佬知道火山引擎的api地址在哪，没找到怎么设置
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  暗月杀人兔  
+##### 1306#       发表于 2025-2-5 11:02
+
+求教轻度使用该去哪里？本家一直服务器繁忙根本用不了一点
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1307#       发表于 2025-2-5 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350041&amp;ptid=2243718" target="_blank">暗月杀人兔 发表于 2025-2-5 11:02</a>
+求教轻度使用该去哪里？本家一直服务器繁忙根本用不了一点</blockquote>
+去硅基流动的网页端体验中心即可，就是不能存档，或者用硅基流动送的限额结合客户端使用，安卓端可用chatbox，电脑可用cherey studio
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  洛拉斯  
+##### 1308#       发表于 2025-2-5 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350041&amp;ptid=2243718" target="_blank">暗月杀人兔 发表于 2025-2-5 11:02</a>
+
+求教轻度使用该去哪里？本家一直服务器繁忙根本用不了一点</blockquote>
+不至于完全用不了吧，我手机app和网页端在北京时间白天基本没问题，现在联网搜索也恢复了
+
+晚上倒是有点卡
+

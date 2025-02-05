@@ -69,3 +69,23 @@
 
 重制只有上世代主机版本？
 
+
+*****
+
+####  Piano-Forest  
+##### 88#         楼主| 发表于 2025-2-5 11:00
+
+【《鬼武者 Way of the Sword》开发团队信息】 
+[https://b23.tv/ej4WMqT](https://b23.tv/ej4WMqT)
+
+【《鬼武者2》以高清复刻版的形式归来！】 
+[https://b23.tv/RAN5ewd](https://b23.tv/RAN5ewd)
+
+于2002年在PlayStation®2上推出的《鬼武者2》，将以高清复刻版的形式归来！
+
+各位玩家将于2025年在PlayStation®4、Nintendo Switch™、Xbox One及Steam上看到它的身影！
+
+更多详情将于日后公布，敬请期待
+
+官网：[https://www.capcom-games.com/onimusha/2](https://www.capcom-games.com/onimusha/2)
+
