@@ -3057,3 +3057,66 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厚乳果珍爽  
+##### 18044#       发表于 2025-2-5 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354587&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-5 21:54</a>
+
+我认为背叛的核心就在于那句“不会长久”
+
+就是类似酒店之战的解散戏码早在计划之中（只是morits的出现让他 ...</blockquote>
+不会长久我记得是祥子对睦说的，意思是脱了面具以后这种到处跑通告的情况“不会长久”的。
+
+当时睦压力很大，想起了这个事情就脱口而出。
+
+*****
+
+####  厚乳果珍爽  
+##### 18045#       发表于 2025-2-5 22:19
+
+你说睦要成为内鬼，还搞得自己变成神经病，这代价至于吗？
+
+
+*****
+
+####  huxiaopao163  
+##### 18046#       发表于 2025-2-5 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354720&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-5 22:17</a>
+
+不会长久我记得是祥子对睦说的，意思是脱了面具以后这种到处跑通告的情况“不会长久”的。
+
+当时睦压力很 ...</blockquote>
+哈哈，这是传统解释法，内鬼说解释法是小睦说漏了妈妈告诉她的内情，因为前面主持人问的是美奈美怎么看待这个乐队
+
+*****
+
+####  fuwamoco  
+##### 18047#       发表于 2025-2-5 22:21
+
+睦头的设定可是不会骗人，怎么当内鬼
+
+*****
+
+####  天空塔书记官  
+##### 18048#       发表于 2025-2-5 22:22
+
+不说就可以了，为什么一定要撒谎
+
+我倒是觉得的木头不是内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  huxiaopao163  
+##### 18049#       发表于 2025-2-5 22:25
+
+对了，海玲和睦的面具都是捂嘴的，所以她们属于是知情不报的内鬼。。。当然你也可以不用内鬼这么严厉的词，反正意思是这么个意思。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
