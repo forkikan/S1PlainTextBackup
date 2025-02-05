@@ -17740,3 +17740,13 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
 好像不太对，我再试了下，发现我只要把角色a设置成生体电脑，大d老师就一定会自己把角色b设定成a的制作者 ...</blockquote>
 强调正确走向后要求重写，骂它几句有概率增加正常程度。
 
+
+*****
+
+####  果壳中的松鼠  
+##### 1399#       发表于 2025-2-6 00:39
+
+试了一下满血版api，确实比本地部署32b的蒸馏模型强很多，但是官网和硅基流动响应速度都太慢了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
