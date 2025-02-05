@@ -1210,3 +1210,21 @@ SoYo - 大貓 ： 驚世智慧的反賊
 这是初华的面具吧</blockquote>
 左边（右眼低），这就是祥子的面具
 
+
+*****
+
+####  古明地雷  
+##### 17879#       发表于 2025-2-5 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350644&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 12:21</a>
+左边（右眼低），这就是祥子的面具</blockquote>
+左脸遮盖多是初华的
+
+*****
+
+####  烂片雷达  
+##### 17880#       发表于 2025-2-5 12:34
+
+真正的美帝要来了，鸡狗人气双top，要是有正式交流会摩擦出怎么的火花我都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/02ffa6ff92e267b70b0686a279eff578/image.jpg" referrerpolicy="no-referrer">
+
