@@ -1312,3 +1312,57 @@ mygo和mujica都要表现人际关系的背叛
 随便一搜的事，要不你点到这楼首页看一眼？</blockquote>
 图里面具是反着放的bro。。看打光
 
+
+*****
+
+####  595505568  
+##### 17889#       发表于 2025-2-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350825&amp;ptid=2208921" target="_blank">坚挺水表君 发表于 2025-2-5 12:47</a>
+其实我一直觉得内鬼说并不离谱的原因是：如果硬凹定义的话，mygo前期素世的行为是不是也能被定义为内鬼？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你没发现就是这个状态吗
+Go团是3忠+1拆+中立
+鸡团是1忠+3拆+中立
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，后面有人情绪爆了灰/黑以后变成2拆对2忠
+
+*****
+
+####  安娜导函数  
+##### 17890#       发表于 2025-2-5 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350571&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-5 12:11</a>
+按對位來說
+
+燈 - 祥 ： 決定團隊音樂性的人</blockquote>
+我认为应该是
+灯——祥子
+爱音——大喵
+乐奈——睦头人
+立希——海玲
+soyorin——初华
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhzij111  
+##### 17891#       发表于 2025-2-5 13:13
+
+ 本帖最后由 zhzij111 于 2025-2-5 13:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350825&amp;ptid=2208921" target="_blank">坚挺水表君 发表于 2025-2-5 12:47</a>
+其实我一直觉得内鬼说并不离谱的原因是：如果硬凹定义的话，mygo前期素世的行为是不是也能被定义为内鬼？ ...</blockquote>
+内鬼离谱的是为了洗几个神人队友让丰川老登远程微操内鬼，素世这种自己主动当的内鬼倒没啥了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KLHgg  
+##### 17892#       发表于 2025-2-5 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350772&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-5 12:41</a>
+
+内鬼一直在从其他四个人找，祥子有没有可能也是内鬼，这样爆点可太大了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>mujica的赞助商：精彩，太精彩了！
+
