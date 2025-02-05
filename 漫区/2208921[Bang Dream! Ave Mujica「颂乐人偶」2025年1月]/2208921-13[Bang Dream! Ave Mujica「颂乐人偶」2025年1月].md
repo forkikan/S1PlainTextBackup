@@ -2811,3 +2811,13 @@ ave也开始重走eva的圣经分析对照之路了。。。
 
 就算是mygo，素世也没有向大家道歉忏悔，更不要说这个全员有罪的mujica了。
 
+
+*****
+
+####  595505568  
+##### 18020#       发表于 2025-2-5 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353913&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-5 19:44</a>
+ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
+象征意味太浓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓了，多个假药也好
+

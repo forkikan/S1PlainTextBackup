@@ -386,3 +386,27 @@ P7+
 
 你那轿车和SUV比就说明你还没想好到底需要什么
 
+
+*****
+
+####  chentong23  
+##### 44#       发表于 2025-2-5 19:58
+
+y和p7i比较说明你不看重内饰
+那就p7+吧
+p7+对比i就是内饰档次低了点，选料标准了点，能接受的话还是不错的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  若闲  
+##### 45#       发表于 2025-2-5 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349997&amp;ptid=2245221" target="_blank">Kym1908 发表于 2025-2-5 10:57</a>
+p7+是磷酸铁锂电池，感觉不如p7i的三元锂
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+啊？那点性能提升真顶得过磷酸铁锂的高安全性吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
