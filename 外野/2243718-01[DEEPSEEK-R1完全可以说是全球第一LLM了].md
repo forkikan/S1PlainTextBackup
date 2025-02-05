@@ -16774,3 +16774,24 @@ gemini反正api免费，用cherry可以整合两个模型随时切换
 现在硅基流动都无法注册……有这么火吗……</blockquote>
 找楼里人要邀请码注册
 
+
+*****
+
+####  KioShiMa  
+##### 1312#       发表于 2025-2-5 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350019&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-5 10:59</a>
+有无大佬知道火山引擎的api地址在哪，没找到怎么设置
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+模型页面有，但是好像要扫脸认证，我看到这一步就关了
+
+*****
+
+####  justwul  
+##### 1313#       发表于 2025-2-5 11:32
+
+Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太给力
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

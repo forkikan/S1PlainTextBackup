@@ -1012,3 +1012,60 @@ be残缺美我觉得算好了，关系性里重要的是箭头啊
 
 哦不对，第五话
 
+
+*****
+
+####  古明地雷  
+##### 17860#       发表于 2025-2-5 11:24
+
+最大的对偶一定是c团解散开幕，c团和解收尾，最后通过live（对邦？），ccc所有人终于放下心结<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fosanoha  
+##### 17861#       发表于 2025-2-5 11:28
+
+你问我啊，那我只能说与其指望官方卖素睦压倒睦祥不如指望初祥卖的够大抢占祥的CP市场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+睦祥场外都卖成这样了还有什么好说的，我现在就看明天是断头饭还是一刀砍<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我先猜个一刀砍
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 17862#       发表于 2025-2-5 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349459&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-2-5 09:47</a>
+不如担心第六集祥子对go团哈气，把祥子是个谁亲近她谁就会被哈气的烂人设贯彻到谷底，到时候什么假说都难塑 ...</blockquote>
+哈气是什么意思
+
+
+*****
+
+####  天空塔书记官  
+##### 17863#       发表于 2025-2-5 11:32
+
+与其说是全网网暴祥子，不如说是反祥和祥党互撕，遭报应了呀
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+历经风雨后，归来是少年
+
+“世界上只有一种真正的英雄主义,那就是在认清生活的真相后依然热爱生活。”
+
+也许这就是成长吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ayachi  
+##### 17864#       发表于 2025-2-5 11:32
+
+第五话的素睦fanart我感觉更像月之森大三角<img src="https://p.sda1.dev/21/74936db09a5b412780b4f72ac871adf0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
