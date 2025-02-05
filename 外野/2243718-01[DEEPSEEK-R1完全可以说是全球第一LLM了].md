@@ -17504,3 +17504,16 @@ Fireworks 口碑好一些</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  fireandstar  
+##### 1378#       发表于 2025-2-5 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354499&amp;ptid=2243718" target="_blank">UCXCU 发表于 2025-2-5 21:33</a>
+话说移动端有什么 app 可以使用硅基流动的 API 吗？目前下的 app 只能导入 deepseek 官方的 API
+
+—— 来自 ...</blockquote>
+chatbox
+官方文档自带配置教程，不过今晚硅基也炸了
+
