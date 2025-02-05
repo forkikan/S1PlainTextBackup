@@ -16764,3 +16764,13 @@ gemini反正api免费，用cherry可以整合两个模型随时切换
 
 现在硅基流动都无法注册……有这么火吗……
 
+
+*****
+
+####  约翰里德  
+##### 1311#       发表于 2025-2-5 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350110&amp;ptid=2243718" target="_blank">prattwhitney 发表于 2025-2-5 11:10</a>
+现在硅基流动都无法注册……有这么火吗……</blockquote>
+找楼里人要邀请码注册
+

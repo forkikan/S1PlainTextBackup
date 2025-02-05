@@ -975,3 +975,40 @@ be残缺美我觉得算好了，关系性里重要的是箭头啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕什么，官方盖章双重人格了不也还有不认的
 
+
+*****
+
+####  swessia  
+##### 17856#       发表于 2025-2-5 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉场外打的狗脑子都出来了像是祥子和go团抢mortis这个经验包
+
+*****
+
+####  阿兹尔  
+##### 17857#       发表于 2025-2-5 11:14
+
+官方现在也没咋提素睦吧(有提过吗)，现在只是盖章睦祥的关系，可以说远超其他人了
+
+*****
+
+####  operatbig  
+##### 17858#       发表于 2025-2-5 11:15
+
+我觉得第二季还挺爽的，全网网暴祥子挺有乐子。
+
+
+*****
+
+####  595505568  
+##### 17859#       发表于 2025-2-5 11:20
+
+ 本帖最后由 595505568 于 2025-2-5 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350150&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-5 11:14</a>
+
+官方现在也没咋提素睦吧(有提过吗)，现在只是盖章睦祥的关系，可以说远超其他人了 ...</blockquote>
+
+四话Fanart有两张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦不对，第五话
+

@@ -89,3 +89,13 @@
 
 官网：[https://www.capcom-games.com/onimusha/2](https://www.capcom-games.com/onimusha/2)
 
+
+*****
+
+####  clyde-wang  
+##### 89#       发表于 2025-2-5 11:21
+
+感觉3应该也重制了，一直没出是因为1代反响一般？
+
+感觉2代很早就准备好了，有投资了出新作了准备拿出来怀旧一下？
+
