@@ -580,3 +580,32 @@ juda对初华
 
 2025-2-5 08:09 上传
 
+
+*****
+
+####  天空塔书记官  
+##### 17816#       发表于 2025-2-5 08:41
+
+内鬼只是对于爆团而言，其实只要信息差大到让成员互相起冲突就行，而且如果真有“假的月亮”，只靠传递错误的信息就能让众人新生嫌隙，不用非得要多个内鬼同时存在<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  友情的结晶  
+##### 17817#       发表于 2025-2-5 08:45
+
+不如想想假如第七集真是大的，以wsd的尿性会怎么场外炒作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  天空塔书记官  
+##### 17818#       发表于 2025-2-5 08:47
+
+比如给大祥老师在场外办生日会<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
