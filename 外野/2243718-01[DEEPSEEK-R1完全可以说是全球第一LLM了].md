@@ -17025,3 +17025,31 @@ https://cloud.siliconflow.cn/i/527RluID
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 1331#         楼主| 发表于 2025-2-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352493&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-5 16:09</a>
+
+硅基流动的api都用不了，好像
+
+—— 来自 鹅球 v3.3.96</blockquote>
+炸的彻底。
+
+*****
+
+####  约翰里德  
+##### 1332#       发表于 2025-2-5 16:18
+
+api能用啊，我在用啊，就是这个点很卡，不过我用的r1
+
+
+*****
+
+####  Pimpoz  
+##### 1333#       发表于 2025-2-5 16:20
+
+硅基流动的已经卡爆了。。。。有没有其他替代品
+

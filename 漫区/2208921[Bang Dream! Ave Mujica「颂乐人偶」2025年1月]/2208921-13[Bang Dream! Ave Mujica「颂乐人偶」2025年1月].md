@@ -1819,3 +1819,52 @@ mujica1.0铁杀猪盘已经基本明示了，祥子这人生轨迹跟牢爹就�
 初华老家考证在广岛吴市三角岛更加可信</blockquote>
 链接发来看看。
 
+
+*****
+
+####  zhoujin8584  
+##### 17928#       发表于 2025-2-5 16:16
+
+<blockquote>单脚着地 发表于 2025-2-5 14:37
+Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲给最菜的大喵这么长的SOLO到底是爱她还是 ...</blockquote>
+首先大喵不菜，是你没有在好好关注乐队成员吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 17929#       发表于 2025-2-5 16:18
+
+<blockquote>结衣小比取 发表于 2025-2-5 16:09
+链接发来看看。</blockquote>
+就是隔壁百综坛友考证的啊……
+
+https://tieba.baidu.com/p/9432743159?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=C02F8EA2B6CC46784B6140ECB7748280&amp;st=1738743428&amp;client_type=1&amp;client_version=12.77.1.0&amp;sfc=copy&amp;share_from=post
+
+
+*****
+
+####  K·os  
+##### 17930#       发表于 2025-2-5 16:23
+
+岛民这个设定一般她是自带一些要素的，尤其是 啊 日本人特别能理解这些要素
+
+一般就是 啊 缺乏文明世界的驯化和知道外面有一个广阔的世界
+
+所以岛民设定的人总是会抱有抱有某种纯粹的理想而做出骇人的行为
+
+image.png
+(1019 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-2-5 16:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/05/162241pjob0jepmjinjjmp.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 17931#       发表于 2025-2-5 16:23
+
+而且李子有某次节目是提到三角岛的
+
