@@ -17315,3 +17315,15 @@ gemini反正api免费，用cherry可以整合两个模型随时切换</blockquot
 你们r1都爆炸了？我这跑团用r1好好的啊</blockquote>
 一直在炸，早上到现在就没成功过几次,每次都是服务器繁忙
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1359#       发表于 2025-2-5 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353737&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 19:11</a>
+你们r1都爆炸了？我这跑团用r1好好的啊</blockquote>
+请问是用的哪家的api
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

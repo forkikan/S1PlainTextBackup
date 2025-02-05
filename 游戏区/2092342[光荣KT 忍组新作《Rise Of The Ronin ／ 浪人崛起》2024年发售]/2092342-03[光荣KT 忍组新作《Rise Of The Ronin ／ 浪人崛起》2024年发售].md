@@ -18,3 +18,16 @@
 
 评价这么糟糕的么？
 
+
+*****
+
+####  手铐君  
+##### 3360#       发表于 2025-2-5 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353725&amp;ptid=2092342" target="_blank">xxq1984 发表于 2025-2-5 19:08</a>
+
+中式日式武侠我都很感兴趣
+
+这个游戏我都准备入了，但是搜索论坛帖子的时候好多人都说这游戏特别喂屎，真的 ...</blockquote>
+主要是战斗系统的不满吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">安田一开始说石火（弹反）不重要，结果游戏主打的就是弹反
+
