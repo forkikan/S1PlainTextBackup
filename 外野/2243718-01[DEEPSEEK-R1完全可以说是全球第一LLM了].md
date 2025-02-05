@@ -17470,3 +17470,19 @@ Fireworks 口碑好一些</blockquote>
 <img src="https://p.sda1.dev/21/0c7e3f31a3bd9cdf0484bd674c070cf4/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/4955197306c76a626300aa0718e5417d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云隐  
+##### 1374#       发表于 2025-2-5 21:20
+
+刷到一个让deepseek创作一个新的经典鸡尾酒配方，up调出来还真好看并且喝起来还可以
+
+
+*****
+
+####  爱莉希雅  
+##### 1375#       发表于 2025-2-5 21:25
+
+付钱我倒没意见，不卡就行，就是官方API啥时候能买啊
+
