@@ -17275,3 +17275,32 @@ API连接配置👉补全来源选自定义👉提示词后处理选严格
 
 什么时候修啊，付费也行啊，现在这样真受不了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeblack  
+##### 1355#         楼主| 发表于 2025-2-5 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353661&amp;ptid=2243718" target="_blank">奈落的孤火花 发表于 2025-2-5 18:57</a>
+什么时候修啊，付费也行啊，现在这样真受不了</blockquote>
+我现在很好奇的是为什么只要有上R1就爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  波克隆斯卡娅  
+##### 1356#       发表于 2025-2-5 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349299&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-5 09:22</a>
+
+gemini反正api免费，用cherry可以整合两个模型随时切换</blockquote>
+免费的不是1206么，2.0有个版本是限时免费
+
+*****
+
+####  约翰里德  
+##### 1357#       发表于 2025-2-5 19:11
+
+你们r1都爆炸了？我这跑团用r1好好的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
