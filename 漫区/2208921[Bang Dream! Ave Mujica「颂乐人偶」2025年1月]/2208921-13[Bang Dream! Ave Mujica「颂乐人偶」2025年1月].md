@@ -1649,3 +1649,48 @@ Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲�
 
 2025-2-5 15:12 上传
 
+
+*****
+
+####  古明地雷  
+##### 17913#       发表于 2025-2-5 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352081&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 15:23</a>
+我真服了。。直接画，中轴鼻梁线，四个面具正放，曲线全部是人字形凸出，表面花纹明显，照你说的反着放， ...</blockquote>
+我说的有冲突么？不看鼻梁，贴面的部分很明显是朝下的啊。我也服了，说不通别回了
+
+*****
+
+####  595505568  
+##### 17914#       发表于 2025-2-5 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352081&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 15:23</a>
+我真服了。。直接画，中轴鼻梁线，四个面具正放，曲线全部是人字形凸出，表面花纹明显，照你说的反着放， ...</blockquote>
+那这面具是谁的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我没别的问题
+
+
+*****
+
+####  杂灰  
+##### 17915#       发表于 2025-2-5 15:32
+
+mujica1.0铁杀猪盘已经基本明示了，祥子这人生轨迹跟牢爹就差运气不好被诈骗还没对上其他给她对完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 17916#       发表于 2025-2-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351967&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-5 15:11</a>
+
+初华和喵梦在mujica里是一直有联系的，摘面具，仙台之战是这二人共同讨论过的，而黑刀之夜2.0是初华的独走 ...</blockquote>
+我还是认为，除非必要，尽可能不要横生枝节
+
+如果初华是阴谋的源头，她只需要在每个阶段都给喵梦最低限度的假信息，能推动她行动就行，告诉太多反而增加风险
+
+1.摘面具，初华只需要表示甚至暗示“我也觉得观众想看我们摘面具”，让喵梦心里有底，而不需要跟喵梦串通好；
+
+2.通过摘面具之后的冲突，进一步给信奉“观众至上”的喵梦灌输【祥子不在乎观众，满脑子只有她自己】，这样一来车站吵架迟早会爆发，初华只需要在关键点提出“有人退团就是解散”激化矛盾就行；
+
+3.福冈那一晚，喵梦肯定认为睦不弹吉他是大小姐闹麻了，初华可以顺理成章地打出最后一击【Mujica其实就是大小姐过家家乐队】，暴怒的喵梦自己会引爆炸弹。
+
