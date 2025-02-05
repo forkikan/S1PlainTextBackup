@@ -17356,3 +17356,30 @@ V2.5太蠢了受不了
 —— 来自 鹅球 v3.3.96</blockquote>
 就硅基的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 1363#       发表于 2025-2-5 19:46
+
+他吗的被攻击的完全无法正常使用了，我也在考虑要不要转战硅基先😥
+
+*****
+
+####  88316756  
+##### 1364#       发表于 2025-2-5 19:46
+
+硅基的今天也太慢了，是不是华为把算力调过去给小艺里的deepseek用了
+
+*****
+
+####  StarForceTi  
+##### 1365#       发表于 2025-2-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353889&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-5 19:41</a>
+
+我现在都不要求R1了，有没有能稳定用的V3的api……
+
+V2.5太蠢了受不了</blockquote>
+Fireworks 口碑好一些
+
