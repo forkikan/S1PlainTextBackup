@@ -1143,3 +1143,19 @@ https://x.com/kamikitafutago/status/1886912084899979514
 
 以后还能有出场的话
 
+
+*****
+
+####  renkan119  
+##### 374#       发表于 2025-2-5 22:43
+
+为什么就变成偶像了 第一集有做什么和偶像有关的事情吗…
+
+<img src="https://img.saraba1st.com/forum/202502/05/224317qoy0wy3all3hzojy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0653.jpeg</strong> (402.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 22:43 上传
+

@@ -15217,3 +15217,15 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 可惜，动画里比较期待会出现的一幕终是成了苍白的文字(还没声音)</blockquote>
 出自杂志吗
 
+
+*****
+
+####  离心  
+##### 1476#       发表于 2025-2-5 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354788&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-2-5 22:31</a>
+出自杂志吗</blockquote>
+看样子是拼图游戏里的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

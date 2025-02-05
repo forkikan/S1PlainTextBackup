@@ -3165,3 +3165,73 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 睦单防素世一年有可能不说谎吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 18053#       发表于 2025-2-5 22:39
+
+不过海铃卡牌上蝎子的标记肯定也不会白给的，就是不知道会在哪里背叛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 18054#       发表于 2025-2-5 22:41
+
+ 本帖最后由 aptx8285144 于 2025-2-5 22:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354287&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-5 20:52</a>
+
+这不是明摆着把庆功宴留在产生团魂之后重点描写吗，如果这之前就描写庆功宴，哪怕只是一笔带过，都会影响 ...</blockquote>
+所以当你用“团魂”这种凌驾于人物正常行事的词语时候来解释庆功宴不存在，难道还不说明这个剧本是为了摧毁团队内部气氛而来的牵强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外我说的不如普通经纪人，是指她那时和初华和瞄梦说话的语气，压根就不是成功开完live后一个该夸团队的就夸，该温和就温和的正常商业人士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃苑軒風  
+##### 18055#       发表于 2025-2-5 22:43
+
+最近看了下周边cv节目后知后觉了
+
+原来anon几乎是本音配的啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  玖羽  
+##### 18056#       发表于 2025-2-5 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354835&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 22:41</a>
+
+所以当你用“团魂”这种凌驾于人物正常行事的词语时候来解释庆功宴不存在，难道还不说明这个剧本是为了摧 ...</blockquote>
+我说编辑逻辑你给我说剧内逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+要说剧内逻辑，那就是祥子的精神状态不支持，要搞清楚，不是祥子在支撑Mujica，是Mujica在支撑祥子
+
+*****
+
+####  huxiaopao163  
+##### 18057#       发表于 2025-2-5 22:46
+
+小睦就算没有骗人，但她玩的一手信息差，把素世搞的要死要活。
+在素世眼里，小睦属不属于叛徒呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  玖羽  
+##### 18058#       发表于 2025-2-5 22:46
+
+<img src="https://img.saraba1st.com/forum/202502/05/224633f0eisii0m1qglec2.jpg" referrerpolicy="no-referrer">
+
+<strong>sg.jpg</strong> (70.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 22:46 上传
+
