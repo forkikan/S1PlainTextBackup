@@ -3272,3 +3272,52 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 既然是Mujica在支撑祥子，那祥子只要智商还正常，情商还是正常水平就应该在措辞和表达上回报团员吧？（我 ...</blockquote>
 本来就不适合啊，不知道你在激动什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 18062#       发表于 2025-2-5 23:04
+
+感觉C团复活之夜后就是正式解散了，之前只是祥子的退出和其他成员的离散，这次估计会正式宣布这个团的消失<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 18063#       发表于 2025-2-5 23:04
+
+<blockquote>壁吧：声破天op保持日增3万+，到完结以日均4万算轻松突破300万。收听人数也以每天涨5000+的趋势高速上涨，目前的增长幅度有点吓人不知道何时会停下。</blockquote>
+搬一下最近的热度数据，看来鸡已经准备起飞脱⏰入日了，鬼佬那边MAL评分也一直在涨，过8.4很轻松，完结后目标8.8，上一部环大陆好评的片是（
+<img src="https://p.sda1.dev/21/815d54aa72e7ce2ebffb1826f04f37e7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 18064#       发表于 2025-2-5 23:07
+
+说起来，现在的对偶理论，第七集“为什么要演奏春日影”的soyo位和中途逃跑的祥子位都认为是谁啊。
+
+*****
+
+####  帝下室の年糕  
+##### 18065#       发表于 2025-2-5 23:08
+
+对比同期mygo，官推基础关注数倍杀狗的情况下，每周的涨粉数薄纱狗
+<img src="https://p.sda1.dev/21/dc4e543c267036281854e54838dc3e9f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/277218d245fe6b07a08457a1617f7e83/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 18066#       发表于 2025-2-5 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354869&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-5 22:46</a>
+
+小睦就算没有骗人，但她玩的一手信息差，把素世搞的要死要活。
+
+在素世眼里，小睦属不属于叛徒呢</blockquote>
+素世搞错了，祥子的情况属于祥子的个人隐私，睦头在非极端情况下是一定不会泄露的。她如果把沟通的重点放在睦头上，睦头可能会告诉她，她自己是不想回ccc的。
+
+而且在看soyo快坏掉的时候，是睦头把soyo带去找祥子的，因为她觉得soyo的精神状况的糟糕程度已经是极端状况了。
+
+狗团全篇，soyo唯一一次问睦头自己的想法可能就是：live，怎么样
+
