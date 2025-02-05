@@ -3424,3 +3424,52 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 1是自己的表演跟说话才能被人认为是遗传到父母的，不被认为是自己的东西，所以非 ...</blockquote>
 不想让祥子担心....已经看了无数次11区拍这种“不想让对方担心然后事态因此反向恶化”的剧本，“强加的善意”还不厌吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 18075#       发表于 2025-2-6 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355144&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 23:44</a>
+非要这么说，那对大祥的打击“还不够大”呀，大瞄就不用说了，大祥对海铃有什么多的感情吗，初华最后当面 ...</blockquote>
+我本来就不信啥内鬼说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+soyo双面人对应睦的精神分裂，都是拿来炸团的工具设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便为啥不信内鬼说还因为我猜编剧只是想说炸团根本原因是大象老师的性格缺陷，要是掺上丰川的大手就不纯洁了，不cooooool了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我之前说内鬼说只能用来洗白大象老师，是站观众视角说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，同时意味着编剧压根没打算洗白
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 18076#       发表于 2025-2-6 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355165&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 23:49</a>
+
+不想让祥子担心....已经看了无数次11区拍这种“不想让对方担心然后事态因此反向恶化”的剧本，“强加的善 ...</blockquote>
+这种属于初衷是好的。
+
+就像祥子一样，她个人能力在mo老师出来的之前就是极限了，也没办法，事实上也没办法处理mo老师的事情了。
+
+睦也是，她个人能力已经顶不住这种压力了，所以要靠mo老师干活，结果mo老师也解决不了。
+
+那就这样了，不就炸团了。
+
+少女动画，论心不论迹，反正也没产生多严重的后果，最终交流就能解决的问题。
+
+就是mujica牵扯到现实各种，照成的后果少女可是没办法解决的，造成观感非常出戏。
+
+*****
+
+####  fuwamoco  
+##### 18077#       发表于 2025-2-6 00:11
+
+<blockquote>aptx8285144 发表于 2025-2-5 23:49
+不想让祥子担心....已经看了无数次11区拍这种“不想让对方担心然后事态因此反向恶化”的剧本，“强加的善 ...</blockquote>
+强加吗？祥子怎么拉睦头入队的，睦头说的是祥子快坏掉了所以我加入。如果祥子不要这份善意就该当场拒绝睦头加入。
+
+睦头也没有说不想要祥子担心，她快坏了后紧跟着祥子不就是求救吗。
+
