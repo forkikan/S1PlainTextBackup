@@ -1366,3 +1366,71 @@ soyorin——初华
 
 —— 来自 鹅球 v3.3.96 ...</blockquote>mujica的赞助商：精彩，太精彩了！
 
+
+*****
+
+####  金属化反射装甲  
+##### 17893#       发表于 2025-2-5 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350958&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 13:02</a>
+
+图里面具是反着放的bro。。看打光</blockquote>
+原来是正反不分啊，行吧，要不咱看看这些面具鼻梁处这这向上凸起的拱桥曲线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白水潭的饿鬼  
+##### 17894#       发表于 2025-2-5 13:20
+
+对位来说，我的观点：
+
+灯----初华
+
+爱音----翔子
+
+立希----大喵
+
+爽----睦
+
+猫猫----海玲
+
+*****
+
+####  novalli  
+##### 17895#       发表于 2025-2-5 13:20
+
+staff草台了。B站的fanart好像发错图后又改了，但我保存了错的，刚才才发现不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2025/02/05/pEenfDx.png" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2025/02/05/pEenWK1.jpg" referrerpolicy="no-referrer">
+
+syl 她们看的那个面具是左边多一块的款式，不过是面朝下放的，目前来看大概就是初华的。不过fanart到底有多大参考价值很难说吧。
+<img src="https://s21.ax1x.com/2025/02/05/pEenH8H.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  结衣小比取  
+##### 17896#       发表于 2025-2-5 13:24
+
+ 本帖最后由 结衣小比取 于 2025-2-5 13:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349305&amp;ptid=2208921" target="_blank">sdbfas 发表于 2025-2-5 09:22</a>
+
+整体剧本对仗有可能
+
+扣到分钟的对仗感觉下集就破产</blockquote>
+这个假说之所以能暂时升为“显学”就是因为第六话预告图
+
+如果下载到本地还能看到文件名是带了时间的，可以提前抠
+
+有人用第五话的预告图验证了时间是无误的
+
+<img src="https://img.saraba1st.com/forum/202502/05/132647vdnc9ylfbmmy9ub9.jpg" referrerpolicy="no-referrer">
+
+<strong>shgaishdaosdhoa.jpg</strong> (320.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 13:26 上传
+

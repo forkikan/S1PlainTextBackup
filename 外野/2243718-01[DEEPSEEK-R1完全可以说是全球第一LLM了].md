@@ -16905,3 +16905,30 @@ Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  名居守  
+##### 1319#       发表于 2025-2-5 13:18
+
+设置了魅魔卡
+
+“主人召唤我一定是为了涩涩吧。”
+“涩涩稿都拿出来还能不是为了涩涩？”
+“都在强调凸显涩涩内容了”
+“啊？不是，你真就只聊设定啊？”
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用D老师聊设定真爽啊，涩涩是什么？真不熟
+自己先写个设定大纲，把禁止事项全塞进去，让D老师补细节，这时候要跟D老师强调不要私自为了完善内容添加细节要跟用户讲，生成的比较满意就跟D老师说保持原文，只改修改的点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这样一般我改五次基本就满意了，当然这时候其实D老师还是能问出细节上的问题
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后，然后我就继续跟D老师讨论新的设定了，讨论细节真是太爽了
+就是硅基卡哎，DS官网也卡，拳头，拳头变硬了！
+
+*****
+
+####  羊寢  
+##### 1320#       发表于 2025-2-5 13:18
+
+看到前面说的想起来自己没分享过邀请链接，刚刚去点了下提示升级维护中<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
