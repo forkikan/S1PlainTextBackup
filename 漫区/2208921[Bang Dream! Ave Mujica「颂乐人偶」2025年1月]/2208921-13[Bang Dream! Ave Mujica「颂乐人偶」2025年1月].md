@@ -2266,3 +2266,99 @@ C团前夫妻也是夫妻</blockquote>
 说起来祥子拉人一个月上武道馆是不是相当于没出道的李宇春上春晚，06年刚出道的霉霉得格莱美 ...</blockquote>
 那不至于，武道馆说白了只是一个演出场地，你有钱就能定（虽然一个月就定下武道馆多半还得有关系）了，最多类比一个歌手官宣一个月就上梅奔/工体开演唱会
 
+
+*****
+
+####  595505568  
+##### 17975#       发表于 2025-2-5 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353332&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-5 17:55</a>
+那不至于，武道馆说白了只是一个演出场地，你有钱就能定（虽然一个月就定下武道馆多半还得有关系）了，最 ...</blockquote>
+现实里好像武道馆要提前一年订排期<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，至今解释不了大手的力量
+
+*****
+
+####  天空塔书记官  
+##### 17976#       发表于 2025-2-5 17:56
+
+要不还是先去补下二三季动画和PICO看看邦的前三鼓手都是什么怪物再说吧，能让第二的RAS鼓手认可不会是一般人物的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 17977#       发表于 2025-2-5 17:57
+
+灯祥会在羽丘学生会相遇的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 17978#       发表于 2025-2-5 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353307&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 17:51</a>
+
+主要是第二话为了对称在黄瓜面前逮人，时间轴直接不确定了，你是暑假来抓人的还是上课抓人的，还是你摸清 ...</blockquote>
+你是不是搞错了什么，假期怎么可能上学
+
+从MyGO开始，连着的非假日剧情如果中间有假日，基本上都是跳过假日的
+
+*****
+
+####  595505568  
+##### 17979#       发表于 2025-2-5 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353348&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-5 17:58</a>
+你是不是搞错了什么，假期怎么可能上学
+
+从MyGO开始，连着的非假日剧情如果中间有假日，基本上都是跳过假 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 17980#       发表于 2025-2-5 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353182&amp;ptid=2208921" target="_blank">osore 发表于 2025-2-5 17:32</a>
+
+都写雅蠛蝶了肯定是塞灯的鞋柜里啊
+
+你写雅蠛蝶放自己的鞋柜里是要怎样，诱受吗 ...</blockquote>
+怎么。。。就不能是呢<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 17981#       发表于 2025-2-5 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353332&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-5 17:55</a>
+
+那不至于，武道馆说白了只是一个演出场地，你有钱就能定（虽然一个月就定下武道馆多半还得有关系）了，最 ...</blockquote>
+现实中的话武道馆要审核你的名气的，是投递后再筛选
+
+而且关键是她们坐满了吧。。
+
+*****
+
+####  ads147147  
+##### 17982#       发表于 2025-2-5 18:04
+
+喵不仅是强度高，是高强度的时候还有空给你整花活，加上鼓手的鼓谱本来鼓手自己有一定的自主权，喵梦都是给自己加码的就知道大喵强度很高的。
+
+其实我觉得要是大鼓同学不需要兼任虹那边的话，立希的全谱她大概也能练下来。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 17983#       发表于 2025-2-5 18:04
+
+楼上怎么在纠结鞋柜，楼里都一股味了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
