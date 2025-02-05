@@ -3386,3 +3386,41 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  aptx8285144  
+##### 18072#       发表于 2025-2-5 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355123&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-5 23:38</a>
+
+不说内鬼，只说鸡中扮演狗中soyo位‘背叛’的人，这个人只能是睦
+
+换句话说，在大象眼里，c团外的人根本不 ...</blockquote>
+非要这么说，那对大祥的打击“还不够大”呀，大瞄就不用说了，大祥对海铃有什么多的感情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 18073#       发表于 2025-2-5 23:46
+
+ 本帖最后由 天空塔书记官 于 2025-2-5 23:47 编辑 
+
+有没有可能负责对外交涉的是经纪公司，毕竟连成员的个人行程都是海铃在安排，祥子除了作曲写剧本之外就根本不与外界联系，她这情况一眼自闭啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 18074#       发表于 2025-2-5 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354778&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-5 22:29</a>
+
+睦变神经病有好几个因素的
+
+1是自己的表演跟说话才能被人认为是遗传到父母的，不被认为是自己的东西，所以非 ...</blockquote>
+不想让祥子担心....已经看了无数次11区拍这种“不想让对方担心然后事态因此反向恶化”的剧本，“强加的善意”还不厌吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

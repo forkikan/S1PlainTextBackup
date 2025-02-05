@@ -17721,3 +17721,22 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
  ...</blockquote>
 好像不太对，我再试了下，发现我只要把角色a设置成生体电脑，大d老师就一定会自己把角色b设定成a的制作者并且还是按照自己过世的恋人来设计的，然后文章走向最理想也是替身文学，最糟就直接变成养娃了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 1397#       发表于 2025-2-5 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355047&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-5 23:23</a>
+请问你试过知识库能让ds 记住设置吗？</blockquote>
+还没有，我目前是用他组织的表格来扇他脸让它恢复正常，我明天试试知识库
+
+*****
+
+####  约翰里德  
+##### 1398#       发表于 2025-2-5 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355117&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-5 23:37</a>
+好像不太对，我再试了下，发现我只要把角色a设置成生体电脑，大d老师就一定会自己把角色b设定成a的制作者 ...</blockquote>
+强调正确走向后要求重写，骂它几句有概率增加正常程度。
+
