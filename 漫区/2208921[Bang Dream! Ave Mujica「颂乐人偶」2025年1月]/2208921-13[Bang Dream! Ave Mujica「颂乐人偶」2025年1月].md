@@ -1446,3 +1446,52 @@ syl 她们看的那个面具是左边多一块的款式，不过是面朝下放�
 staff草台了。B站的fanart好像发错图后又改了，但我保存了错的，刚才才发现不一样</blockquote>
 我纳闷这是怎么看成面朝下放的，这种面具面朝下放应该是鼻梁处为中心，面具两边朝上，大体呈V字型才对，就算初华祥子的再怎么看不出，海铃和喵梦的总不至于看不出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuwamoco  
+##### 17898#       发表于 2025-2-5 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351106&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-5 13:20</a>
+
+对位来说，我的观点：
+
+灯----初华
+
+爱音----翔子</blockquote>
+第三集，仙台之战
+
+睦=睦
+
+祥=祥
+
+初华=素世
+
+喵梦=灯
+
+海玲=立希
+
+*****
+
+####  swessia  
+##### 17899#       发表于 2025-2-5 14:14
+
+ 本帖最后由 swessia 于 2025-2-5 14:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">有个挺无喜可报的展开，就是在对祥态度上，爱灯挺祥，素希黑祥，然后go裂开了
+
+睦：我又搞砸了
+
+md太缺德了感觉半夜小黄瓜要从床底爬出来索我命了
+
+*****
+
+####  595505568  
+##### 17900#       发表于 2025-2-5 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351503&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-5 14:14</a>
+有个挺无喜可报的展开，就是在对祥态度上，爱灯挺祥，素希黑祥，然后go裂开了
+
+睦：我又搞砸了 ...</blockquote>
+有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那要加倍PTSD了
+
