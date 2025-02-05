@@ -17818,3 +17818,14 @@ image.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  andychen  
+##### 1403#       发表于 2025-2-6 03:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355414&amp;ptid=2243718" target="_blank">StarForceTi 发表于 2025-2-6 01:12</a>
+百度千帆可以免费用两周</blockquote>
+注册这个需要实名验证
+另外他们官方提供的模型调用名居然是错的，百度刻板印象直接拉满<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
