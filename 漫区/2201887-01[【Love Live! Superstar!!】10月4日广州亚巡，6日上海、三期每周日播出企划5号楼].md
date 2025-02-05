@@ -15250,3 +15250,11 @@ pay这本的定价比sayu那本贵一些，内容可能会更多一点
 
 拼图游戏量大管饱好吧，拼了17小时才拼了一半不到<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1479#       发表于 2025-2-6 00:18
+
+那个拼图游戏要是小故事有语音，我就打算买
+

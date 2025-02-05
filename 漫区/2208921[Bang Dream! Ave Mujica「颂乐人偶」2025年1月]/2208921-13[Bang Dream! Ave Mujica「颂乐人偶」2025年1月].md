@@ -3473,3 +3473,13 @@ soyo双面人对应睦的精神分裂，都是拿来炸团的工具设定<img sr
 
 睦头也没有说不想要祥子担心，她快坏了后紧跟着祥子不就是求救吗。
 
+
+*****
+
+####  小博禹  
+##### 18078#       发表于 2025-2-6 00:21
+
+并不是想求救吧，睦头感觉像个圣人，当时跟着祥子感觉更像觉得自己又搞砸、犯错了才一直跟着，没想到被祥p斩杀了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">估计当时睦头还想着去道歉的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
