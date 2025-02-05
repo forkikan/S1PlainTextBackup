@@ -2865,3 +2865,16 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 就是没开过，喵梦提了两次开庆功宴不是白描写的，一定会在建立团魂之后开庆功宴作为象征 ...</blockquote>
 这很牵强就不说了，大祥作为队长在13话末尾表现吗，我的评价是不如一个普通的经纪人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 18026#       发表于 2025-2-5 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354250&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 20:44</a>
+
+这很牵强就不说了，大祥作为队长在13话末尾表现吗，我的评价是不如一个普通的经纪人 ...</blockquote>
+这不是明摆着把庆功宴留在产生团魂之后重点描写吗，如果这之前就描写庆功宴，哪怕只是一笔带过，都会影响这次庆功宴的分量
+
+要说不如普通经纪人，第13话演出结束之后祥子还知道叫出租车，而且叫四个人坐两辆，仙台巡演之后居然直接从车站坐电车回家
+
