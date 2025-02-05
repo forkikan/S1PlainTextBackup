@@ -837,3 +837,16 @@ juda对初华
 
 所以那骆驼祥子的外号还真没取错
 
+
+*****
+
+####  ads147147  
+##### 17843#       发表于 2025-2-5 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349754&amp;ptid=2208921" target="_blank">NameLess2501 发表于 2025-2-5 10:27</a>
+祥子第一季时演出结束后看手机上某个信息非常震惊，那个信息解密了吗？</blockquote>
+早解密了，爹发短信说要走，收尾是祝祥子幸福。
+祥子一回家就找爷爷对质然后就离家出走找爹开始吃苦。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
