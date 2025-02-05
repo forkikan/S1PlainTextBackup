@@ -32,3 +32,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Devi_Lito  
+##### 1004#       发表于 2025-2-5 19:43
+
+莉泽和社长搞的7周年贺图，两个人在弄完本社、EN、ID、KR的贺图之后发现一个大问题：VirtuaReal的liver居然没有宣传照片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+社长本来打算通过本社运营问VirtuaReal的官方要，但是这一段时间国内又是春节放假。本来社长都要放弃了，最后还是莉泽跑去虹的一个global  discord频道，用三脚猫中文找国内liver要到的宣传照片
+
+（其实你们就算不做VirtuaReal的贺图也不会有人说什么的）
+

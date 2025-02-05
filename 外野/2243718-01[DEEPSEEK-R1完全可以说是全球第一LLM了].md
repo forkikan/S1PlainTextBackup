@@ -17327,3 +17327,32 @@ gemini反正api免费，用cherry可以整合两个模型随时切换</blockquot
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  faithlifer  
+##### 1360#       发表于 2025-2-5 19:36
+
+付费了估计要有不少人骂，不过我也支持付费，不然真是太卡了
+
+
+*****
+
+####  jf8350143  
+##### 1361#       发表于 2025-2-5 19:41
+
+我现在都不要求R1了，有没有能稳定用的V3的api……
+
+V2.5太蠢了受不了
+
+*****
+
+####  约翰里德  
+##### 1362#       发表于 2025-2-5 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353820&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-5 19:28</a>
+请问是用的哪家的api
+
+—— 来自 鹅球 v3.3.96</blockquote>
+就硅基的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

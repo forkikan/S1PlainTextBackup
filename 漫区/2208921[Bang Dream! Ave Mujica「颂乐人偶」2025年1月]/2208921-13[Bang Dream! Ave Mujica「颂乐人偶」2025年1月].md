@@ -2761,3 +2761,53 @@ MAS这种全方位逆输入的角色来认可喵梦就更哈人了
 做法猫猫睦睦大卖day1.1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/e3992be5b752a86b378c1eb5e348bc77/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 18015#       发表于 2025-2-5 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353830&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-5 19:30</a>
+难道就是ring门前被围观的那场戏，正好是soyo和mortis</blockquote>
+那就解释了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 18016#       发表于 2025-2-5 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353863&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-5 19:35</a>
+
+做法猫猫睦睦大卖day1.1</blockquote>
+错误的，猫猫把自己的猫猫朋友都叫做猫猫（
+
+*****
+
+####  白水潭的饿鬼  
+##### 18017#       发表于 2025-2-5 19:44
+
+看隔壁nga，一晚限定的ccc要来喽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这个一晚限定真的是，你说的真的是乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 18018#       发表于 2025-2-5 19:44
+
+ave也开始重走eva的圣经分析对照之路了。。。
+
+*****
+
+####  huxiaopao163  
+##### 18019#       发表于 2025-2-5 19:45
+
+我觉得初华的动机肯定是最黑暗的，不应该是那种为了祥子好，才做了祥子不愿意的事。就算真是这个方向，也是应该有某种更深层次的东西，为了让你不要熬夜太辛苦，回家过大小姐日子更好，这也太浅薄了。完全配不上李子说的黑洞、一直戴着面具的措辞。
+
+我猜测祥子和初华最后的对决，应该是类似mygo第十集爱音和素世的那场家中对决类似，只不过更激烈一点。
+
+我知道你做的坏事了，你也知道我做的坏事，我们不用相互原谅抱头痛哭，因为我们是一丘之貉。
+
+就算是mygo，素世也没有向大家道歉忏悔，更不要说这个全员有罪的mujica了。
+
