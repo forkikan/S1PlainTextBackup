@@ -1199,3 +1199,14 @@ SoYo - 大貓 ： 驚世智慧的反賊
 
 只能说我对主唱这个位置抱有太多期待了
 
+
+*****
+
+####  金属化反射装甲  
+##### 17878#       发表于 2025-2-5 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350338&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 11:40</a>
+
+这是初华的面具吧</blockquote>
+左边（右眼低），这就是祥子的面具
+
