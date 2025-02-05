@@ -538,3 +538,16 @@ juda对初华
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 17814#       发表于 2025-2-5 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348759&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-5 02:34</a>
+
+3内鬼最大问题 老登有病吧塞那么多内鬼……</blockquote>
+我觉得叫内鬼有点跑偏了，<strong>背叛者和内鬼是不同的，背叛者指的是祥子眼中的背叛者</strong>
+
+背叛者无论是几个，从基本的编剧原则来说，她们一定都不是同质的，每个人出于不同的原因，通过不同的方式背叛，加在一起就成了炸团
+
