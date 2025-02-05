@@ -936,3 +936,42 @@ saki嘴里的重话大部分都是学他爹，不要扯上关系也是。
 这么写睦祥才是真完了，“半身”“能呆的地方只有祥子身边”搞半天是删减 ...</blockquote>
 还有我这个设想其实是很八点档和美剧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 17852#       发表于 2025-2-5 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 17853#       发表于 2025-2-5 11:08
+
+<blockquote>595505568 发表于 2025-2-5 11:01
+还有我这个设想其实是很八点档和美剧的，不能不尝的前夫前妻帮忙后自己灰头土脸（物理）的离开，什么告别 ...</blockquote>
+你这一说确实有点像美剧或者电影里前夫帮助前妻和孩子度过难关，不过要是电影就复合了。邦邦的世界观，而且还是素睦的话确实是你这个be好些
+
+*****
+
+####  fosanoha  
+##### 17854#       发表于 2025-2-5 11:09
+
+be残缺美我觉得算好了，关系性里重要的是箭头啊
+就算灰头土脸就算灰暗收场就算什么都捞不到，可是付出时的真心已经证明了对方在心里的地位，这才是天地可鉴价比真金的东西，不比大家心知肚明一定会端上桌的饺子强？
+
+怕就怕要搞张无忌那套“对你是怜惜对X是敬重对Y是感激，只有对Z才是刻骨铭心的相爱”，官方盖章你不如她，那才算是彻底完了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  osore  
+##### 17855#       发表于 2025-2-5 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕什么，官方盖章双重人格了不也还有不认的
+
