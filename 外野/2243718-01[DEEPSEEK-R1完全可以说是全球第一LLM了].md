@@ -17517,3 +17517,23 @@ Fireworks 口碑好一些</blockquote>
 chatbox
 官方文档自带配置教程，不过今晚硅基也炸了
 
+
+*****
+
+####  UCXCU  
+##### 1379#       发表于 2025-2-5 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354537&amp;ptid=2243718" target="_blank">fireandstar 发表于 2025-2-5 21:42</a>
+chatbox
+官方文档自带配置教程，不过今晚硅基也炸了</blockquote>
+刚在知乎上搜到这个软件，感觉很不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  二十面酱  
+##### 1380#       发表于 2025-2-5 21:58
+
+我真是吐了，似乎除了硅基流动和火山(弱智版)，想用其他云平台的API的话还要扫脸扫银行卡认证？！
+
