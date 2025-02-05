@@ -16965,3 +16965,11 @@ Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太�
 
 这个点又超慢了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hysjmr  
+##### 1325#       发表于 2025-2-5 15:08
+
+怎么让page assist显示思考内容啊
+
