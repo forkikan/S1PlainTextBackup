@@ -8314,3 +8314,36 @@ https://x.com/gundam_ab/status/1886702973084164584
 
 说起来，突然觉得红高达和age的维根高达有种微妙的相似感
 
+
+*****
+
+####  Fa15eTT0  
+##### 6546#       发表于 2025-2-5 04:06
+
+说起来，突然觉得红高达和age的维根高达有种微妙的相似感
+
+*****
+
+####  王留美  
+##### 6547#       发表于 2025-2-5 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348621&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-5 01:20</a>
+
+X 上的 うめウメお：“ジークアクスの中盤のここすき #GQuuuuuuXhttps://t.co/ej81cLBVtB” / X</blockquote>
+合理
+
+*****
+
+####  王留美  
+##### 6548#       发表于 2025-2-5 09:31
+
+<img src="https://img.saraba1st.com/forum/202502/05/093121x88zpp3gq2rzq83q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 09:31 上传
+
+天才的鸡瘟整备师……但是HG会很地狱吧
+
