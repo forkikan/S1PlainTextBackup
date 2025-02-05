@@ -1991,3 +1991,82 @@ mygo前几集的学校生活气息还是挺自然的，和后期单纯背景板�
 喵的鼓应该不菜，倒是好像没有特别展示过祥的键盘水平</blockquote>
 live里祥子是最轻松的那个，键盘兼跳舞，专业上的夸奖很难去切入。我要是打着200bpm的鼓抬头看到们编曲键盘手左手弹琴右手飞吻，瓦达西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 17946#       发表于 2025-2-5 17:15
+
+隔壁倒是有个上下半身各动各的键盘手和吉他手<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 17947#       发表于 2025-2-5 17:16
+
+突然发现一个事情要补充一下，按照mygo是2020年来算的话…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 17948#       发表于 2025-2-5 17:17
+
+今天有啥新的情报没，这周都没啥新的杂志访谈之类的东西了吗
+
+*****
+
+####  osore  
+##### 17949#       发表于 2025-2-5 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352988&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-5 17:08</a>
+
+有一说一祥子虽然心死了，还会砸灯的鞋柜，是还需要拷打一集</blockquote>
+祥子心都死了还能被灯气哭，说明灯的呐喊能把棺材里的死人都气活过来
+
+*****
+
+####  单脚着地  
+##### 17950#       发表于 2025-2-5 17:19
+
+大象天天把别人需要练习当三板斧挂嘴边不就是音乐方面是她最自信的地方吗？而且从C到A她作为负责编曲那个，是需要根据每个人的水准来调整编曲的，她如果对自己的水平没有绝对自信说这种话被应该第一时间就被海玲吐槽水平不够吗？漏油黑屁大象老师处理人际关系的方式也就算了，滑坡到能力方面还是算了
+
+
+*****
+
+####  斑驳的阴影  
+##### 17951#       发表于 2025-2-5 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350300&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-5 11:35</a>
+
+能不能卖素祥啊
+
+C团前夫妻也是夫妻</blockquote>
+素祥素睦我都一样的吃口牙！
+
+*****
+
+####  小博禹  
+##### 17952#       发表于 2025-2-5 17:23
+
+半身都不要祥p了，还要靠灯去唤醒她<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17953#       发表于 2025-2-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353118&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-5 17:23</a>
+半身都不要祥p了，还要靠灯去唤醒她谁是真爱一目了然。如果结局是木箱，可能母鸡卡就是这样一个和真爱错过 ...</blockquote>
+那又要回到我的八点档了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 17954#       发表于 2025-2-5 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说莫老师现在这搞笑艺人的样子，和之前舞台上的判若两人，会不会莫老师有两个
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
