@@ -17758,3 +17758,20 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
 
 DeepSeek创始人受邀去美开研讨会<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StarForceTi  
+##### 1401#       发表于 2025-2-6 01:12
+
+百度千帆可以免费用两周
+
+image.png
+(20.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 01:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/011159om5or6vzxm15fr91.png" referrerpolicy="no-referrer">
+
