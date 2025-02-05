@@ -1762,3 +1762,49 @@ mujica1.0铁杀猪盘已经基本明示了，祥子这人生轨迹跟牢爹就�
 
 至于喵梦跟初华冷脸，可以有很多原因，举例而言(随便猜测)，可能是初华告诉喵梦自己是帮祥子“大小姐过家家”的核心，而非拆团核心
 
+
+*****
+
+####  单脚着地  
+##### 17923#       发表于 2025-2-5 15:59
+
+喵梦觉得自己被人当刀使了呗
+
+
+*****
+
+####  金属化反射装甲  
+##### 17924#       发表于 2025-2-5 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352107&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 15:26</a>
+
+我说的有冲突么？不看鼻梁，贴面的部分很明显是朝下的啊。我也服了，说不通别回了 ...</blockquote>
+不是我想回，看不得有人非把白的说成黑的，还这么自信，所以才让你用手比划，贴面朝下，那这面具不就是正放，不看鼻梁线你是想面具和你的脸画X吗，你好好想想你是祥子，这个面具戴上去，多的那一面盖的是哪边脸，到底是正反不分还是左右不分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/05/160115ggi6wf8fa7sa5bli.jpg" referrerpolicy="no-referrer">
+
+<strong>画图.jpg</strong> (38.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 16:01 上传
+
+*****
+
+####  bindata  
+##### 17925#       发表于 2025-2-5 16:04
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-5 15:47
+庵美半岛出身只是给套一个冲绳出歌姬的背景吧，岛歌唱法在日本流行乐里很多用很有b格的（虽然初华并不唱岛 ...</blockquote>
+初华老家考证在广岛吴市三角岛更加可信
+
+*****
+
+####  金属化反射装甲  
+##### 17926#       发表于 2025-2-5 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352126&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 15:28</a>
+
+那这面具是谁的呢，我没别的问题</blockquote>
+就是祥子啊，所以我就很纳闷到底是怎么看成初华的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
