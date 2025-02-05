@@ -1503,3 +1503,19 @@ md太缺德了感觉半夜小黄瓜要从床底爬出来索我命了
 
 然后三女儿已经崩溃了一次了，发现最后连本来有新家可以不再担心的妈妈的家有因为自己（内归因）没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斑驳的阴影  
+##### 17902#       发表于 2025-2-5 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67345645&amp;ptid=2208921" target="_blank">帆前 发表于 2025-2-4 15:50</a>
+soyo去的时候好像还真是傍晚哎我趣。
+
+这下偶遇恐怖莫提丝，拼尽全力无法战胜，陪睡一晚了 
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">长期素食新增过夜点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
