@@ -17407,3 +17407,15 @@ Fireworks 口碑好一些</blockquote>
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 私我好哥哥
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1368#       发表于 2025-2-5 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353898&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 19:42</a>
+就硅基的啊</blockquote>
+我也用的硅基的，但是从昨天晚上开始就极卡极慢，从今下午开始就彻底不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
