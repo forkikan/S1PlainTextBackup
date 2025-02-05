@@ -17829,3 +17829,16 @@ image.png
 注册这个需要实名验证
 另外他们官方提供的模型调用名居然是错的，百度刻板印象直接拉满<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅井惠  
+##### 1404#       发表于 2025-2-6 03:23
+
+我这边硅基流动的速度还可以，官方的很卡
+
+放个邀请链接，有14块赠送余额
+[https://cloud.siliconflow.cn/i/3gg29qDp](https://cloud.siliconflow.cn/i/3gg29qDp)
+
+顺便如果是用来翻译游戏有输出说明的情况，记得在提示词那里加上NO explanations. NO notes. Input:{text}之类的。
+
