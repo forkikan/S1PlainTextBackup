@@ -1519,3 +1519,44 @@ soyo去的时候好像还真是傍晚哎我趣。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plusSharp  
+##### 17903#       发表于 2025-2-5 14:36
+
+丰川祥子热运动说：
+
+1.热只能自发从高温物体转移至低温物体，祥子也只能压力比她软的人。
+
+2.热运动是无规则的，祥子的“该多练习”也不分对象。
+
+3.热有传导，辐射，对流3种方式，祥子有拉黑，“只想自己”，写纸条3种表达方式
+
+*****
+
+####  单脚着地  
+##### 17904#       发表于 2025-2-5 14:37
+
+Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲给最菜的大喵这么长的SOLO到底是爱她还是公报私仇啊<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ltycomputer  
+##### 17905#       发表于 2025-2-5 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351664&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-5 14:37</a>
+
+Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲给最菜的大喵这么长的SOLO到底是爱她还是 ...</blockquote>
+喵姆亲才是最需要练习的一个（
+
+
+*****
+
+####  古明地雷  
+##### 17906#       发表于 2025-2-5 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351332&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 13:47</a>
+我纳闷这是怎么看成面朝下放的，这种面具面朝下放应该是鼻梁处为中心，面具两边朝上，大体呈V字型才对，就 ...</blockquote>
+右边的面具画的有问题，左边就明显是朝下的祥子面具
+
