@@ -357,3 +357,24 @@
 
 攒了一千蓝币，基础债券和爆破已经点满了，现在是点遥遥领先还是等明天的核弹债券？
 
+
+*****
+
+####  6x6z6w  
+##### 5711#       发表于 2025-2-6 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348801&amp;ptid=2170852" target="_blank">qwased 发表于 2025-2-5 03:42</a>
+
+还有难度1单人局是不是不会刷蓝币了？现在还有啥速刷蓝币的办法吗</blockquote>
+可以刷，不过难1兴趣点没有2和3的多，不如去23刷
+
+*****
+
+####  6x6z6w  
+##### 5712#       发表于 2025-2-6 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355472&amp;ptid=2170852" target="_blank">qwased 发表于 2025-2-6 01:42</a>
+
+攒了一千蓝币，基础债券和爆破已经点满了，现在是点遥遥领先还是等明天的核弹债券？ ...</blockquote>
+遥遥领先里的晕雷和电喷泛用性还是很强的，背包核弹目前来看也只能算闪电战用的玩具，实用性没有炸弹手枪强
+
