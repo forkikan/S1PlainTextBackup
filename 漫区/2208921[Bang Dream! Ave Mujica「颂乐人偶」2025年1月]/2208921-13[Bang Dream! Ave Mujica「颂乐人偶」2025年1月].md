@@ -1302,3 +1302,13 @@ mygo和mujica都要表现人际关系的背叛
 
 用膝盖都能想到这一点
 
+
+*****
+
+####  古明地雷  
+##### 17888#       发表于 2025-2-5 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350781&amp;ptid=2208921" target="_blank">金属化反射装甲 发表于 2025-2-5 12:42</a>
+随便一搜的事，要不你点到这楼首页看一眼？</blockquote>
+图里面具是反着放的bro。。看打光
+
