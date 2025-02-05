@@ -8512,3 +8512,21 @@ gqx遨游黑拳赛没什么问题，不过两台都得加点远程了
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  王留美  
+##### 6565#       发表于 2025-2-5 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351235&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-5 13:37</a>
+ 但是这枪看起来是原装的啊，都过去5年了红高达的枪的生产线还在开吗？应该就是原来那把枪吧，鸭子消失前 ...</blockquote>
+有可能是是轻加农的
+或者是鸡瘟量产敢达的
+
+*****
+
+####  YU_JI  
+##### 6566#       发表于 2025-2-5 13:49
+
+所以吉翁的量产高达究竟长啥样呢？
+

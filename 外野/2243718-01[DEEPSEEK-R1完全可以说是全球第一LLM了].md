@@ -16932,3 +16932,20 @@ Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太�
 
 看到前面说的想起来自己没分享过邀请链接，刚刚去点了下提示升级维护中<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二十面酱  
+##### 1321#       发表于 2025-2-5 13:51
+
+火山的那个用起来不对头，不一定是满血版的。
+
+*****
+
+####  wjx1988124  
+##### 1322#       发表于 2025-2-5 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351355&amp;ptid=2243718" target="_blank">二十面酱 发表于 2025-2-5 13:51</a>
+火山的那个用起来不对头，不一定是满血版的。</blockquote>
+是的，火山的不对劲
+

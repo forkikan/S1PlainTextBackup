@@ -1434,3 +1434,15 @@ syl 她们看的那个面具是左边多一块的款式，不过是面朝下放�
 
 2025-2-5 13:26 上传
 
+
+*****
+
+####  金属化反射装甲  
+##### 17897#       发表于 2025-2-5 13:47
+
+ 本帖最后由 金属化反射装甲 于 2025-2-5 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351107&amp;ptid=2208921" target="_blank">novalli 发表于 2025-2-5 13:20</a>
+
+staff草台了。B站的fanart好像发错图后又改了，但我保存了错的，刚才才发现不一样</blockquote>
+我纳闷这是怎么看成面朝下放的，这种面具面朝下放应该是鼻梁处为中心，面具两边朝上，大体呈V字型才对，就算初华祥子的再怎么看不出，海铃和喵梦的总不至于看不出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

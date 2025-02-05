@@ -117,3 +117,11 @@
 
 2代受好评的原因我觉得是判定非常严谨，玩起来比其他几作硬核但一闪的成就感也大。
 
+
+*****
+
+####  Leliel  
+##### 92#       发表于 2025-2-5 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">竟然不说2什么时候出
+
