@@ -17192,3 +17192,36 @@ v3新版本这个有信源吗？
 
 请问下，如果用本地部署，更新到最新版的话。整体能力跟在线版是一样的吗，只是速度慢？ 在内容和准确率方面会有差别吗
 
+
+*****
+
+####  UNICORN00  
+##### 1346#       发表于 2025-2-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353076&amp;ptid=2243718" target="_blank">罐子 发表于 2025-2-5 17:19</a>
+
+请问下，如果用本地部署，更新到最新版的话。整体能力跟在线版是一样的吗，只是速度慢？ 在内容和准确率方 ...</blockquote>
+只有671b的才是原版R1。其它小的都只是微调的其它模型
+
+*****
+
+####  vava  
+##### 1347#       发表于 2025-2-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352852&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-5 16:49</a>
+酒馆一打字遇到这个问题是啥情况
+
+The system message of deepseek-reasoner must be put on the beginning  ...</blockquote>
+API连接配置👉补全来源选自定义👉提示词后处理选严格
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wjx1988124  
+##### 1348#       发表于 2025-2-5 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352757&amp;ptid=2243718" target="_blank">faithlifer 发表于 2025-2-5 16:40</a>
+官网api什么时候能登进去充钱啊，有大概消息吗</blockquote>
+官方api也卡
+

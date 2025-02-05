@@ -2155,3 +2155,66 @@ C团前夫妻也是夫妻</blockquote>
 
 2.5企划的供曲讲究一个能者多劳，和动画里的剧情毫无关联。不然你很难解释“我只有吉他”的冰川纱夜在Roselia演唱会上摸鱼是什么情况
 
+
+*****
+
+####  天空塔书记官  
+##### 17964#       发表于 2025-2-5 17:38
+
+动画里前三的鼓手两个高中生，一个大学生，怎么就违和了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 17965#       发表于 2025-2-5 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353118&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-5 17:23</a>
+半身都不要祥p了，还要靠灯去唤醒她谁是真爱一目了然。如果结局是木箱，可能母鸡卡就是这样一个和真爱错过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">上一季度封印的东西，睦看到大祥看灯的眼神，心里是怎么想的。莫老师的角度从大祥对灯这件事是什么看法
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  结衣小比取  
+##### 17966#       发表于 2025-2-5 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352988&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-5 17:08</a>
+
+有一说一祥子虽然心死了，还会砸灯的鞋柜，是还需要拷打一集</blockquote>
+那不是祥子自己的鞋柜吗？坛友这么说是有什么新依据吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ml1642879  
+##### 17967#       发表于 2025-2-5 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353227&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 17:38</a>
+动画里前三的鼓手两个高中生，一个大学生，怎么就违和了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+斯拉夫血统打完都要虚脱，高一乡下妹恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 17968#       发表于 2025-2-5 17:42
+
+素世逮睦还有一个办法，走过两列课桌说贵安<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 17969#       发表于 2025-2-5 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353182&amp;ptid=2208921" target="_blank">osore 发表于 2025-2-5 17:32</a>
+都写雅蠛蝶了肯定是塞灯的鞋柜里啊
+
+你写雅蠛蝶放自己的鞋柜里是要怎样，诱受吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">灯会去放纸条第二天当然能看到，不过放学的话放灯的鞋柜问题也不大
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
