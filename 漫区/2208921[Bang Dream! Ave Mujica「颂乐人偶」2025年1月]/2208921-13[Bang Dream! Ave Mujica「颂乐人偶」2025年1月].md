@@ -525,3 +525,16 @@ juda对初华
 
 喵梦是祥姐拉来的，插内鬼为啥找这样的，不怕她是保祥派？
 
+
+*****
+
+####  swessia  
+##### 17813#       发表于 2025-2-5 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67348544&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-5 00:52</a>
+第七话搞c团live的剧透感觉板上钉钉，越想越感觉功能性很丰富
+首先go这边的老人当初就是因为祥子粗暴的炸团 ...</blockquote>
+确实，除了有人会疯外没有缺点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
