@@ -1868,3 +1868,39 @@ image.png
 
 而且李子有某次节目是提到三角岛的
 
+
+*****
+
+####  单脚着地  
+##### 17932#       发表于 2025-2-5 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352556&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-5 16:16</a>
+
+首先大喵不菜，是你没有在好好关注乐队成员吧</blockquote>
+米泽茜再厉害，动画里大喵设定也是A团成员里最菜的那个啊
+
+*****
+
+####  K·os  
+##### 17933#       发表于 2025-2-5 16:30
+
+喵姆设定菜在哪呢，不过邦多利乐器战力学最难搞的就是鼓手，鼓手之间总是商业互吹，你就当大家都很厉害就是了
+
+*****
+
+####  一心而用  
+##### 17934#       发表于 2025-2-5 16:32
+
+<img src="https://p.sda1.dev/21/2be18672b81ce94a2d00b97a51354fbf/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  单脚着地  
+##### 17935#       发表于 2025-2-5 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352673&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-5 16:30</a>
+
+喵姆设定菜在哪呢，不过邦多利乐器战力学最难搞的就是鼓手，鼓手之间总是商业互吹，你就当大家都很厉害就是 ...</blockquote>
+这个设定不适祥子第一去拉她的时候说的吗？要跟上A团的水准她需要多练习
+

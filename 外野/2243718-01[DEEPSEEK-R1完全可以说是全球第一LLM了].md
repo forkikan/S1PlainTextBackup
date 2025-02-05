@@ -17053,3 +17053,40 @@ api能用啊，我在用啊，就是这个点很卡，不过我用的r1
 
 硅基流动的已经卡爆了。。。。有没有其他替代品
 
+
+*****
+
+####  Holyted  
+##### 1334#       发表于 2025-2-5 16:26
+
+D瘾犯了，好难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moeblack  
+##### 1335#         楼主| 发表于 2025-2-5 16:27
+
+ 本帖最后由 moeblack 于 2025-2-5 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352592&amp;ptid=2243718" target="_blank">Pimpoz 发表于 2025-2-5 16:20</a>
+
+硅基流动的已经卡爆了。。。。有没有其他替代品</blockquote>
+现在
+
+Nvidia的NIM(5次出1次）
+
+silicon（不出字）
+
+官方（可用，速度不错，问题无法充钱）
+
+openrouter（很多供应商提供的是否是R1存疑，nebius不出思维链）
+
+you.com（同样卡爆）
+
+pplx（这个还真能用，但是一天免费5次，付费用户500次）
+
+Kluster（卡爆
+
+Nebius（Openrouter那里提到了）
+
+我手上能用R1的方法就这些了
+
