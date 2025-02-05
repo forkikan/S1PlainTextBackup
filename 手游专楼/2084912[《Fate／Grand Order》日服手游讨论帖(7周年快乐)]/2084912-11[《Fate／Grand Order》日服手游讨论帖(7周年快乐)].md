@@ -554,3 +554,13 @@ ae阶up快来了，该备战藤蔓，希望能凑够保底（还差一百石）
 躺着也中枪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一个月就出五个五星NEW的狗人你好
 
+
+*****
+
+####  壳壳牛  
+##### 16229#       发表于 2025-2-5 16:49
+
+谷歌商店还不能更新游戏？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

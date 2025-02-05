@@ -17115,3 +17115,41 @@ Nebius（Openrouter那里提到了）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ryanghj  
+##### 1339#       发表于 2025-2-5 16:44
+
+ 本帖最后由 ryanghj 于 2025-2-5 16:45 编辑 
+
+官方应该在修了，希望能快点。我今天凌晨四五点钟的时候用官网生成速度巨快，甚至快的导致显示都赶不上，直接整段整段的出
+
+<img src="https://img.saraba1st.com/forum/202502/05/164304g9psgqrgm2kq93m2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 16:43 上传
+
+据说V3新版本也要发布（可能是用R1的数据做微调）
+
+官方实际上设计指标是1T/天，这个和OpenAI目前的指标是差不多的，但是显然现在需求要比1T/天高得多（据说豆包是4T/天）
+
+*****
+
+####  约翰里德  
+##### 1340#       发表于 2025-2-5 16:47
+
+硅基卡但是还能出，其他的炸的都出不来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 1341#       发表于 2025-2-5 16:49
+
+酒馆一打字遇到这个问题是啥情况
+
+The system message of deepseek-reasoner must be put on the beginning of the message sequence.
+

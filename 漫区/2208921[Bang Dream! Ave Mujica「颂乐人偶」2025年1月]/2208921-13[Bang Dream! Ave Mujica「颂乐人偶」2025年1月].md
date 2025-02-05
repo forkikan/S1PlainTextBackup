@@ -1912,3 +1912,14 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来，爱音是不是第一个主动邀请大祥老师组乐队的
 
+
+*****
+
+####  玖羽  
+##### 17937#       发表于 2025-2-5 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352702&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-5 16:33</a>
+
+这个设定不适祥子第一去拉她的时候就放出来的吗？大象说要跟上A团的水准猫需要多练习，作为编曲大象肯定是 ...</blockquote>
+要看具体环境，在这之前喵梦说过祥子穷酸，祥子这么说有报复的意思，众所周知你要多练是祥子的三板斧之一
+
