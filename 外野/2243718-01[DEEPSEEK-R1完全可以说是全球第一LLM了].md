@@ -17750,3 +17750,11 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zeroboss1  
+##### 1400#       发表于 2025-2-6 01:00
+
+DeepSeek创始人受邀去美开研讨会<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
