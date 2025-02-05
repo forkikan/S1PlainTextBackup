@@ -2645,3 +2645,76 @@ MAS这种全方位逆输入的角色来认可喵梦就更哈人了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厚乳果珍爽  
+##### 18006#       发表于 2025-2-5 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353705&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-5 19:05</a>
+
+转贴，除了祥子我都赞成</blockquote>
+这个不叫内鬼，应该说每个人进乐队的目的不一样。
+
+没把心思放在乐队里罢了，正好应了那句话“小孩子的过家家”
+
+这些人物动机里唯一有问题的还是喵梦。
+
+应该说侠义上有可能成为内鬼的就只有喵梦。
+
+*****
+
+####  zhoujin8584  
+##### 18007#       发表于 2025-2-5 19:19
+
+<blockquote>结衣小比取 发表于 2025-2-5 18:15
+天天放贴纸的是灯不是祥子，灯下次来放贴纸的时候不就看到回信了吗
+
+这里可以看到贴纸是平放在柜内，周围完 ...</blockquote>
+一定要抠吗，这个确实不是一个鞋柜，祥子的鞋柜在更靠近里侧楼梯的地方，灯的鞋柜更靠近门口
+
+<img src="https://img.saraba1st.com/forum/202502/05/191926w7w5fpl2l2xw5488.png" referrerpolicy="no-referrer">
+
+<strong>107688417387537552.png</strong> (193.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/05/191913ov6vqp5uf5vcfclm.png" referrerpolicy="no-referrer">
+
+<strong>52473417387541242.png</strong> (137.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 19:19 上传
+
+
+*****
+
+####  古明地雷  
+##### 18008#       发表于 2025-2-5 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353767&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 19:17</a>
+
+那确实没告诉啊，都一个乐团了，结果还是各种不熟，这和RAS炸团时不是一模一样吗，楚平方之前连令王那通勤 ...</blockquote>
+做错和认清自己做错，跨度很大，谁被背叛会优先反思自己做的不够好
+
+*****
+
+####  天空塔书记官  
+##### 18009#       发表于 2025-2-5 19:26
+
+感觉除了召人的时候有过一对一的交流，剩下的时间祥子都在自闭，这样的团队能登上武道馆才是奇迹
+
+演剧连台词都是各背各的，接戏全靠临场反应，只能说各位少女天赋异禀了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 18010#       发表于 2025-2-5 19:27
+
+我想了一下，退一步而言，<strong>哪怕日后说酒店里有三个都是叛徒，第四话那为炸而炸的僵硬感依然很明显</strong>，而且这可能的剧本杀的演出是真差
+
