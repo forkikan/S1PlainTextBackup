@@ -17006,3 +17006,22 @@ https://cloud.siliconflow.cn/i/527RluID
 试试邀请？</blockquote>
 昨晚开始无法填写这个邀请码了。
 
+
+*****
+
+####  jeokeo  
+##### 1329#       发表于 2025-2-5 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352130&amp;ptid=2243718" target="_blank">GreenBird 发表于 2025-2-5 15:29</a>
+昨晚开始无法填写这个邀请码了。</blockquote>
+啊，我说难怪我的邀请数一直没变<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 1330#       发表于 2025-2-5 16:09
+
+硅基流动的api都用不了，好像
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

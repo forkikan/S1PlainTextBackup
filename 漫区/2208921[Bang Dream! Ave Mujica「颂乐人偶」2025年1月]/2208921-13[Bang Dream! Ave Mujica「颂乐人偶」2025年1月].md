@@ -1808,3 +1808,14 @@ mujica1.0铁杀猪盘已经基本明示了，祥子这人生轨迹跟牢爹就�
 那这面具是谁的呢，我没别的问题</blockquote>
 就是祥子啊，所以我就很纳闷到底是怎么看成初华的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 17927#       发表于 2025-2-5 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352454&amp;ptid=2208921" target="_blank">bindata 发表于 2025-2-5 16:04</a>
+
+初华老家考证在广岛吴市三角岛更加可信</blockquote>
+链接发来看看。
+
