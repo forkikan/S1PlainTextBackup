@@ -2837,3 +2837,31 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 然而危险的种子也许早就埋下了，大祥对内部的有些气氛问题不容推卸，回看第13话末尾，大祥不但批了初华和瞄梦都缺乏“名人的自觉”。有点搞的是初华明显想和她一起回去时被批缺乏名人的自觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 18023#       发表于 2025-2-5 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354160&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-5 20:27</a>
+
+然而危险的种子也许早就埋下了，大祥对内部的有些气氛问题不容推卸，回看第13话末尾，大祥不但批了初华和瞄 ...</blockquote>
+就是没开过，喵梦提了两次开庆功宴不是白描写的，一定会在建立团魂之后开庆功宴作为象征
+
+*****
+
+####  凉良  
+##### 18024#       发表于 2025-2-5 20:43
+
+我了个真就第七话一夜ccc啊
+
+*****
+
+####  aptx8285144  
+##### 18025#       发表于 2025-2-5 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354231&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-5 20:41</a>
+
+就是没开过，喵梦提了两次开庆功宴不是白描写的，一定会在建立团魂之后开庆功宴作为象征 ...</blockquote>
+这很牵强就不说了，大祥作为队长在13话末尾表现吗，我的评价是不如一个普通的经纪人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -17419,3 +17419,37 @@ Fireworks 口碑好一些</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  约翰里德  
+##### 1369#       发表于 2025-2-5 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354132&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-5 20:22</a>
+我也用的硅基的，但是从昨天晚上开始就极卡极慢，从今下午开始就彻底不出来了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+蛤？这，这不可能吧，难道是各地网络不同导致的？
+
+*****
+
+####  jf8350143  
+##### 1370#       发表于 2025-2-5 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354202&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 20:36</a>
+
+蛤？这，这不可能吧，难道是各地网络不同导致的？</blockquote>
+我用硅基的v3也是慢的一笔大概率超时收不到回复
+
+
+*****
+
+####  披头破落户  
+##### 1371#       发表于 2025-2-5 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354037&amp;ptid=2243718" target="_blank">超级大基魔 发表于 2025-2-5 20:04</a>
+私我好哥哥</blockquote>
+上面发过了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
