@@ -3367,3 +3367,22 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 但如果让我从剧本里面得出结论却不完全如此，独角兽和柿本只是有<strong>选择性</strong>表现大祥的“情商”，我认为当她和各路商业人士交涉或和粉丝交涉时是正常的（起码表面正常）参考那次集体采访，<strong>在睦非故意的失言前众人都并无不妥，该强硬的还是会强硬</strong>，但是就算是鸡团支撑大祥，大祥本应该更加珍惜她，更应该放下身段，然而却近乎不可思议地举措失当，一步步失去对团队的控制并没有认真试图改善团内气氛，因为独角兽和柿本就是为了短期内不择手段地炸了鸡团，哪怕有不少地方<strong>有硬伤</strong>也在所不惜
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 18070#       发表于 2025-2-5 23:38
+
+不说内鬼，只说鸡中扮演狗中soyo位‘背叛’的人，这个人只能是睦
+
+换句话说，在大象眼里，c团外的人根本不配当这个‘背叛’的人，初华也不配<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  友情的结晶  
+##### 18071#       发表于 2025-2-5 23:40
+
+硬伤在哪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

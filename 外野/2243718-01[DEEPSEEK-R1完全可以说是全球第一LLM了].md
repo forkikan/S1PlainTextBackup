@@ -17710,3 +17710,14 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
  ...</blockquote>
 请问你试过知识库能让ds 记住设置吗？
 
+
+*****
+
+####  羊寢  
+##### 1396#       发表于 2025-2-5 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354938&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 23:00</a>
+人物设定混淆，🐘老师只能记住3000字左右的对话里的核心设定，建议是人物卡不断喂同时记得更新人物卡。
+ ...</blockquote>
+好像不太对，我再试了下，发现我只要把角色a设置成生体电脑，大d老师就一定会自己把角色b设定成a的制作者并且还是按照自己过世的恋人来设计的，然后文章走向最理想也是替身文学，最糟就直接变成养娃了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
