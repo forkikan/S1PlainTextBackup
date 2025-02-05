@@ -1630,3 +1630,22 @@ Mas?uerade Rhapsody Re?uest这鼓组真的嗨炸了，大象老师作为编曲�
 
 推测3 黑刀之夜2.0是两人产生了分歧，喵梦可能看不下睦头的状况了，认为导致这一切的是她两，但是初华舍不得现在的情况，小祥在身边，睦头支持自己照顾小祥，队内话语权从小祥独自变成大家共同（第四集一开始，四人和祥子分坐两边，初华说喜欢现在的氛围），拒绝和喵梦合作说出真相，并且以艺人前辈的身份强制喵梦不许说。导致后续二人彻底冷战，但是睦头真的觉醒第二人格让事态失控，喵梦遵守诺言没说密谋的事，但是还是结束掉mujica希望睦头能安心去调养。
 
+
+*****
+
+####  金属化反射装甲  
+##### 17912#       发表于 2025-2-5 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67351886&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-2-5 15:02</a>
+
+右边面具鼻梁朝向和贴面部分的弧度不一致，看不懂算了</blockquote>
+我真服了。。直接画，中轴鼻梁线，四个面具正放，曲线全部是人字形凸出，表面花纹明显，照你说的反着放，你倒是找一个V字鼻梁曲线的面具我看看，又是看打光，又是画的有问题，又是弧度不一致，有没有个准？实在不行拿两只手比比都不会？我就不说画师是吃饱了撑的，非要给四个面具又是正又是反的放，你非说在看初华面具，那我问你啊，不说以后，图里这两个人以前，现在和初华很熟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/05/151206sobv9b9tm4909prv.png" referrerpolicy="no-referrer">
+
+<strong>pEenfDx.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-5 15:12 上传
+

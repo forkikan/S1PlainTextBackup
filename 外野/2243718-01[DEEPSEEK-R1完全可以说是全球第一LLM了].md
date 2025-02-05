@@ -16973,3 +16973,23 @@ Cherry 连硅基流动api写八股文怎么搞比较好用，现在感觉不太�
 
 怎么让page assist显示思考内容啊
 
+
+*****
+
+####  jeokeo  
+##### 1326#       发表于 2025-2-5 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67349299&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-5 09:22</a>
+gemini反正api免费，用cherry可以整合两个模型随时切换</blockquote>
+求合并教程
+
+*****
+
+####  jeokeo  
+##### 1327#       发表于 2025-2-5 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67350110&amp;ptid=2243718" target="_blank">prattwhitney 发表于 2025-2-5 11:10</a>
+现在硅基流动都无法注册……有这么火吗……</blockquote>
+https://cloud.siliconflow.cn/i/527RluID
+试试邀请？
+
