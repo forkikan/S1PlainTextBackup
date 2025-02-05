@@ -2070,3 +2070,88 @@ C团前夫妻也是夫妻</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  江口夕  
+##### 17955#       发表于 2025-2-5 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352988&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-5 17:08</a>
+有一说一祥子虽然心死了，还会砸灯的鞋柜，是还需要拷打一集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能那是大祥的鞋柜
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  595505568  
+##### 17956#       发表于 2025-2-5 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353136&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-5 17:25</a>
+老实说莫老师现在这搞笑艺人的样子，和之前舞台上的判若两人，会不会莫老师有两个
+
+—— 来自 Xiaomi 23113 ...</blockquote>
+说不定莫老师就是睦总统不在的时候的议会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一群小孩子叽叽喳喳轮番扮演
+
+*****
+
+####  烂片雷达  
+##### 17957#       发表于 2025-2-5 17:29
+
+许愿猫睦大卖day1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0898d9deebae1991440bdaf92d30ea54/image.jpg" referrerpolicy="no-referrer">
+[qichi256](https://qichi256.lofter.com/post/1f2616e5_2bc419544?incantation=rzg8kRogFKnO)
+
+*****
+
+####  阿兹尔  
+##### 17958#       发表于 2025-2-5 17:30
+
+说起来祥子拉人一个月上武道馆是不是相当于没出道的李宇春上春晚，06年刚出道的霉霉上得格莱美
+
+
+*****
+
+####  zhoujin8584  
+##### 17959#       发表于 2025-2-5 17:32
+
+<blockquote>江口夕 发表于 2025-2-5 17:28
+有没有可能那是大祥的鞋柜
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+扒过了，祥子跟灯的鞋柜不在一个方向，你回信肯定是要放对方那里吧
+
+*****
+
+####  osore  
+##### 17960#       发表于 2025-2-5 17:32
+
+都写雅蠛蝶了肯定是塞灯的鞋柜里啊
+
+你写雅蠛蝶放自己的鞋柜里是要怎样，诱受吗
+
+
+*****
+
+####  小博禹  
+##### 17961#       发表于 2025-2-5 17:34
+
+这祥子怎么这么坏呀<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 17962#       发表于 2025-2-5 17:35
+
+还有个问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，如果soyo要逮到在学校里的睦，她有两个可能的时间点，上学的时候/暑假的时候
+那第二话素世逮睦的是几月份也很重要，她是那天后暑假隔天就运气很好的逮到睦了嘛…还是上学随机逮人就逮到了
+
+*****
+
+####  ml1642879  
+##### 17963#       发表于 2025-2-5 17:35
+
+2.5企划的供曲讲究一个能者多劳，和动画里的剧情毫无关联。不然你很难解释“我只有吉他”的冰川纱夜在Roselia演唱会上摸鱼是什么情况
+
