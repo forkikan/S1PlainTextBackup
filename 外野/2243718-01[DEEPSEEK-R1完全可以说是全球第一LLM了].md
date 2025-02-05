@@ -17166,3 +17166,21 @@ The system message of deepseek-reasoner must be put on the beginning of the mess
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  断片集  
+##### 1343#       发表于 2025-2-5 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67352798&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-2-5 16:44</a>
+
+官方应该在修了，希望能快点。我今天凌晨四五点钟的时候用官网生成速度巨快，甚至快的导致显示都赶不上，直 ...</blockquote>
+v3新版本这个有信源吗？
+
+*****
+
+####  新人马甲2  
+##### 1344#       发表于 2025-2-5 17:17
+
+为什么你们连得上deepseek（嫉妒到变形
+
