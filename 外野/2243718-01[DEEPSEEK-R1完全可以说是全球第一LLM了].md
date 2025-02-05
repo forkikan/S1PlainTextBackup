@@ -17697,3 +17697,16 @@ Siliconflow现在完全没法用，官方的r1也没法用，v3勉强可以
 
 放个邀请链接
 
+
+*****
+
+####  zerona  
+##### 1395#       发表于 2025-2-5 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354938&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-5 23:00</a>
+
+人物设定混淆，🐘老师只能记住3000字左右的对话里的核心设定，建议是人物卡不断喂同时记得更新人物卡。
+
+ ...</blockquote>
+请问你试过知识库能让ds 记住设置吗？
+

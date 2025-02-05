@@ -3321,3 +3321,24 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 狗团全篇，soyo唯一一次问睦头自己的想法可能就是：live，怎么样
 
+
+*****
+
+####  玖羽  
+##### 18067#       发表于 2025-2-5 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354787&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-5 22:31</a>
+
+我觉得叫内鬼有点跑偏了，背叛者和内鬼是不同的，背叛者指的是祥子眼中的背叛者
+
+背叛者无论是几个，从基本的编剧原则来说，她们一定都不是同质的，每个人出于不同的原因，通过不同的方式背叛，加在一起就成了炸团</blockquote>
+纯搞笑，对应一下40K
+
+初华 - 谎言编织者，先天老T圣体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+喵梦 - 说冲就冲说爆就爆，BPM高达888，事K<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+海铃 - 偷税脸.jpg，平时性冷淡显然在压抑对立希的欲望，S党最爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+睦 - 绿的，跟种植有关（其实是只剩下N了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
