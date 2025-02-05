@@ -2959,3 +2959,23 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 这下引到真厕妹了
 
+
+*****
+
+####  adretyu67.  
+##### 18035#       发表于 2025-2-5 21:51
+
+第四话的争吵，其实更适合的是无限期休业，等睦头人治好或者想办法找个备胎。
+
+但是歪着歪着就变成散伙了
+
+*****
+
+####  ashero  
+##### 18036#       发表于 2025-2-5 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354504&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-5 21:34</a>
+
+战吧 Go吧 NGA开始考据耶稣与最亲密的三个门徒，三个玛利亚 犹大了，现在就差立希 猫是什么来的不知道了 ...</blockquote>
+朗基努斯和薛定谔的猫嘛 
+
