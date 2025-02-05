@@ -3009,3 +3009,51 @@ ave也开始重走eva的圣经分析对照之路了。。。</blockquote>
 
 有一说一，之前mini专辑都用了凯撒的名言了，比起犹大的典故，感觉母鸡卡还是凯撒的典故用的更多点，就看看谁才是祥子的布鲁图。从剧中看犹大只是出卖，布鲁图可是真的下了刀的。。
 
+
+*****
+
+####  天空塔书记官  
+##### 18040#       发表于 2025-2-5 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354464&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-5 21:26</a>
+这就是你不懂了，在邦多利里，乐队少女才是核心，其实是livehouse联合会在拿少女乐队炒作，蹭头部乐队上 ...</blockquote>
+? ? ? 
+
+可是申请武道馆的时候大赛还没开始呢，怎么知道决赛是谁，靠时空穿越吗 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  TAQ  
+##### 18041#       发表于 2025-2-5 22:06
+
+说到酒店之战，狗叼肉这个寓言还对应了祥子的犹豫不决，想要睦回来（睦处在亦真亦假的状态中），同时不想母鸡卡解散，结果两者皆失
+
+*****
+
+####  K·os  
+##### 18042#       发表于 2025-2-5 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354648&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-5 22:05</a>
+? ? ? 
+
+可是申请武道馆的时候大赛还没开始呢，怎么知道决赛是谁，靠时空穿越吗 </blockquote>
+无论是谁，反正都是从大赛里卷出来的啊，意思就是三个最强的少女乐队一起就能开武道馆，这点有变化吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 18043#       发表于 2025-2-5 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354655&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-5 22:07</a>
+无论是谁，反正都是从大赛里卷出来的啊，意思就是三个最强的少女乐队一起就能开武道馆，这点有变化吗
+
+— ...</blockquote>
+? 
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
