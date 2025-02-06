@@ -32,3 +32,14 @@
 
 新的90星也不好打啊，黑杯5加成都不能2T
 
+
+*****
+
+####  当光停止  
+##### 47000#       发表于 2025-2-6 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361291&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-2-6 21:46</a>
+
+新的90星也不好打啊，黑杯5加成都不能2T</blockquote>
+汇呆喂饭本。大姐馄饨+神性。
+

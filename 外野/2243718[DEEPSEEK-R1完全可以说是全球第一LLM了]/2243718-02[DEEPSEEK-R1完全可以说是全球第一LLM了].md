@@ -135,3 +135,65 @@ DS的API平台现在需要用密码登陆欸..白天还可以使用手机的验�
 
 我把同一份文件（规则+人设+世设+大纲+其他）交给DS，每次交给他写出来的开头的高度相似，你们也会这样吗？老是看同一个开头有点腻味了，更别提还要和DS奇奇怪怪的xp斗智斗勇
 
+
+*****
+
+####  名居守  
+##### 1494#       发表于 2025-2-6 22:18
+
+硅基的非PRO的DS限制了，未认证的用户一天100次
+
+*****
+
+####  脸宽  
+##### 1495#       发表于 2025-2-6 22:20
+
+不敢玩了，突然想起这玩意儿实名了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  约翰里德  
+##### 1496#       发表于 2025-2-6 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361731&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-6 22:20</a>
+不敢玩了，突然想起这玩意儿实名了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+你不把商业文件放上去没人会搞你的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhh_ah  
+##### 1497#       发表于 2025-2-6 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361518&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-6 22:09</a>
+用来硅基流动的pro api，确实付费强了很多。
+
+但是我发现了很严重的问题，就是太喜欢赛博朋克了，可能是我酒 ...</blockquote>
+设定的时候强调不要赛博，不要科技化内容
+然后隔一两次回答，让d老师写的时候再强调一下
+这样一般就能按住d老师的手脚了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  SevenYuan23  
+##### 1498#       发表于 2025-2-6 22:32
+
+硅基流动的pro也不多给点上下文长度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  羊寢  
+##### 1499#       发表于 2025-2-6 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361606&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-6 22:14</a>
+我把同一份文件（规则+人设+世设+大纲+其他）交给DS，每次交给他写出来的开头的高度相似，你们也会这样吗？ ...</blockquote>
+我刚开始也是同样几个人物一直生成，确实基本条件一致的话生成的内容都差不多，所以现在就每天转换世界观来玩
+不过好像大D老师只有在一开始把世界观写明白了他才会按照你编的来写，如果是半路增加或者改写的世界观，他就会在下次生成时直接爆出你新写的世界观设定，我是想让角色通过探索慢慢找到真相，结果他就直接把掌握真相的角色给我吐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
