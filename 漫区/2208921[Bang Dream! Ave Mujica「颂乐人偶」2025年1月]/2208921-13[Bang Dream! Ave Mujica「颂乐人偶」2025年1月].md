@@ -5278,3 +5278,16 @@ https://b23.tv/H6LdYuz
 
 至于为什么针对祥子，因为睦头根本不在乎喵梦干了啥，亲妈和环境墨提斯解决不了，所以她火力全对准祥子。
 
+
+*****
+
+####  玖羽  
+##### 18250#       发表于 2025-2-6 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359801&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-6 17:44</a>
+
+有一说一，飞鸟山之战虽然soyo惊世智慧很惊人。
+
+带入一下男女关系就是被抛弃的女性对浮气男下跪求着他回来，很古老的肥皂剧剧情了，属于最赢不了的那种，然后果不其然被抛弃了。</blockquote>
+看过一个非常贴切的日本人评论：池袋金色夜叉<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
