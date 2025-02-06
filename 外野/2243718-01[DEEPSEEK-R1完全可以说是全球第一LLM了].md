@@ -18527,3 +18527,25 @@ DS和秘塔怎么都炸了<img src="https://static.saraba1st.com/image/smiley/fa
 
 秘塔的R1联网用的是秘塔自家的搜索，导致输出有时跟DS本家大相径庭，甚至云泥之别
 
+
+*****
+
+####  overflowal  
+##### 1470#       发表于 2025-2-6 17:19
+
+deepseek的文档里说后面会上跟o3类似的reasoning-effort 来控制CoT长度，搞不好又是一波提升
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zerona  
+##### 1471#       发表于 2025-2-6 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359412&amp;ptid=2243718" target="_blank">东风谷草田 发表于 2025-2-6 16:49</a>
+
+暂时免费，但是限定每天50次gemini-pro和1500次gemini-flash的响应
+
+不过可以通过多创建几个项目变相解决 ...</blockquote>
+谢了。我看看去。我现在还没太多可用的地方，估计是够用的。
+

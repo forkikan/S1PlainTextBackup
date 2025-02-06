@@ -5091,3 +5091,59 @@ https://b23.tv/H6LdYuz
 当然如果又是莫瞎胡闹被捕风捉影了 ...</blockquote>
 实在想不到有啥好理由组Mujica，为了木头牺牲的可能性比较大吧，当然也可能是因为当了祥黑嘴替所以人气上升（
 
+
+*****
+
+####  swessia  
+##### 18230#       发表于 2025-2-6 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359593&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-6 17:13</a>
+实在想不到有啥好理由组Mujica，为了木头牺牲的可能性比较大吧，当然也可能是因为当了祥黑嘴替所以人气上 ...</blockquote>
+那就做实工具人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">如果真这么写对母鸡卡评价down down
+
+莫小姐现在占用的篇幅太多了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  blackeryuri2  
+##### 18231#       发表于 2025-2-6 17:17
+
+莫主导重建mujica也太好笑了，感觉不如莫一刀捅死祥
+
+
+*****
+
+####  yaneis  
+##### 18232#       发表于 2025-2-6 17:20
+
+<blockquote>swessia 发表于 2025-2-6 17:15
+那就做实工具人了如果真这么写对母鸡卡评价down down
+
+莫小姐现在占用的篇幅太多了</blockquote>
+烂完的概率太大了，还在加码，已知金毛主唱是后期重要人物，但现在几乎0塑造，编剧打算空降人设吗？就算逻辑能圆起来观感也不会好
+
+*****
+
+####  hol_effect  
+##### 18233#       发表于 2025-2-6 17:21
+
+早就说了这个所谓时髦的“双重人格”比小陀螺难办多了，别整到最后切割也不是不切割也不是（
+
+*****
+
+####  小博禹  
+##### 18234#       发表于 2025-2-6 17:22
+
+莫姐放过小祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">睦头送你不要了<img src="https://p.sda1.dev/21/65caeba840c7c0abb1cc7ca5b326cabd/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 18235#       发表于 2025-2-6 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫这个塑造已经很抽象了，恨一个人恨到这种地步，真这么恨不如当初海港直接把祥子推下海算了
+
