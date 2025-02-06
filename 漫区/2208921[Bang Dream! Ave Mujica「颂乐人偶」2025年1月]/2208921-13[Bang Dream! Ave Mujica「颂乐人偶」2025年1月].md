@@ -4825,3 +4825,34 @@ soyo这是。。。为母则刚啊
 
 家散了就支棱起來了
 
+
+*****
+
+####  595505568  
+##### 18204#       发表于 2025-2-6 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358547&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-6 15:02</a>
+跟她媽一樣
+
+家散了就支棱起來了</blockquote>
+最后啥也要学她妈妈对睦/莫，站在后台门口背后是舞台，说“怎么样，妈妈努力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”
+
+
+*****
+
+####  天空塔书记官  
+##### 18205#       发表于 2025-2-6 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  白水潭的饿鬼  
+##### 18206#       发表于 2025-2-6 15:14
+
+其实我怀疑对偶只针对c团成员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
