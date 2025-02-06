@@ -361,3 +361,12 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 
 为什么硅基流动的r1在chatbox上总是输出一半就中断？
 
+
+*****
+
+####  神剑烧鸡  
+##### 1515#       发表于 2025-2-7 03:24
+
+[https://cloud.siliconflow.cn/i/wQzBIgs7](https://cloud.siliconflow.cn/i/wQzBIgs7)
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我也助力一下，没想到硅基的生成审查还蛮低的……
+
