@@ -8877,3 +8877,25 @@ nt有觉醒了能力又失去了的例子吗？
 
 <img src="https://p.sda1.dev/21/1716b45716e7658242edeffa6f102e17/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 6596#       发表于 2025-2-6 18:29
+
+<blockquote>虛無迴廊 发表于 2025-2-6 18:17
+……蒙面果身还是过于变太了</blockquote>
+
+麻球裸漂的时候也是不摘耳钉的
+
+头部饰品不会被去除
+
+*****
+
+####  cxasuka  
+##### 6597#       发表于 2025-2-6 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360030&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-6 18:17</a>
+……蒙面果身还是过于变太了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭子会戴面具裸体跳扇子舞不是刻板印象吗
+
