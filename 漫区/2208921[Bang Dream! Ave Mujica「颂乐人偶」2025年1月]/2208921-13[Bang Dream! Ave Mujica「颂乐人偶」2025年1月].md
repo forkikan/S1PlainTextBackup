@@ -3597,3 +3597,48 @@ deepseek这逻辑无敌了，这药太真了。
 
 亲，这是少女乐队番的主角兼队长，如果大祥以后还是这样一不团建明确以后的目的（或者说拿出商业计划，讽刺的是喵厨大战祥厨时我经常看到后者表示大喵打乱了大祥的商业计划，然后喵厨就怒斥大祥“有什么商业计划”，虽然这里有为大喵独走狡辩的嫌疑，但是独角兽和柿本没有给大祥“更多的撑腰”也是事实)，二不对全员经常表达感谢（庆功会是其次的，重要的是日常培养感情）而放任队内气氛紧张（并不是说非要CP营业而是大家彼此有一定关照），那现在包完饺子，以后炸了真得依然是时间问题
 
+
+*****
+
+####  杂灰  
+##### 18090#       发表于 2025-2-6 09:18
+
+mujica肯定还是需要每个人都有问题，祥子性格问题，睦头人格分裂后失能的问题，这是目前表面的，剩下三个人都各有自己的罪，才能成为一丘之貉
+
+*****
+
+####  安娜导函数  
+##### 18091#       发表于 2025-2-6 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355443&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 01:24</a>
+问了deepseek按照对偶论mujica第7集对应丰川祥子和长崎素世角色分别是谁，然后得到了非常惊人的答案，后者 ...</blockquote>
+所以说到底是哪里来的消息说第七话要复活CCCP并演奏春日影的？？这种剧本才是烂完了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 18092#       发表于 2025-2-6 09:20
+
+先不论祥子在想什么，当她决定不说出来的时候，就当什么都没有，别说喵梦或者海铃，就连木头都不知道，这就是信息差，是祥子不信任他人，自我封闭造成的，所以担负人生到现在还是一句空话<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  杂灰  
+##### 18093#       发表于 2025-2-6 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356001&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 09:18</a>
+所以说到底是哪里来的消息说第七话要复活CCCP并演奏春日影的？？这种剧本才是烂完了好吧 ...</blockquote>
+你就没发现现在睦祥两个人问题都刚好是一个c团live能解决得差不多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全都是c团时期没搞好的后遗症
+
+*****
+
+####  安娜导函数  
+##### 18094#       发表于 2025-2-6 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356028&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-6 09:23</a>
+你就没发现现在睦祥两个人问题都刚好是一个c团live能解决得差不多吗全都是c团时期没搞好的后遗症 ...</blockquote>
+那为什么不能是睦头和其他人（含鸡团1.0成员，如海玲、初华）聚在一起并演奏了春日影，祥子又又又破防泪奔一次呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

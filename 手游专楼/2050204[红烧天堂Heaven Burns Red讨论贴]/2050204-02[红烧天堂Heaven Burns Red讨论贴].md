@@ -78,3 +78,11 @@
 
 <img src="https://img.saraba1st.com/forum/202502/03/122143f3zipzdkt3tzbivc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Necoboro  
+##### 1672#       发表于 2025-2-6 09:21
+
+这游戏在s1真没啥讨论度啊，日服大概afk了三个月，AB三期回来一看nga的打分阵容已经完全看不懂了，抽象
+
