@@ -13809,3 +13809,156 @@ ave mujica本集笑点
 夏亚的新妈妈soyolin</blockquote>
 种命论又一力证
 
+
+*****
+
+####  ddy2811  
+##### 19110#       发表于 2025-2-7 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364111&amp;ptid=2208921" target="_blank">skylah 发表于 2025-2-7 00:58</a>
+
+前三集关心睦都好几次了，车站喊睦那里也是明显的担心神色
+
+不是她不关心队友而是其他人不怎么在意她的关 ...</blockquote>
+看着这群神人脾气来了吧
+
+*****
+
+####  ntrntr1  
+##### 19111#       发表于 2025-2-7 01:09
+
+祥睦不搞事的话包饺子还是简单的
+
+还能青梅竹马回忆杀 
+
+还能一转找回初心 
+
+*****
+
+####  北条早苗  
+##### 19112#       发表于 2025-2-7 01:09
+
+灯祥就是哪怕大祥哈气，灯也能读出真心的soulmate含金量
+那些贴纸都重得塌缩成黑洞了还能被大祥装订成册<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 19113#       发表于 2025-2-7 01:10
+
+才发现这图也是预言了，预言家二创以前有这么多吗？
+<img src="https://p.sda1.dev/21/cd2e0b282e127f04bcfef87a4cd152fe/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 19114#       发表于 2025-2-7 01:10
+
+祥子那个台词是不是翻译有问题？b站是译成 “我不认识”，有说法是应该译成 “我不在乎/我不管了” ，有楼友懂这个吗？
+
+*****
+
+####  DARK_HGCG  
+##### 19115#       发表于 2025-2-7 01:11
+
+233333333333
+
+-2dbdb76da716c47e.jpg
+(33.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 01:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/011103npllpu484lf4cff4.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 19116#       发表于 2025-2-7 01:13
+
+我懂了，说不定🦄想做的是一个由内疚，耻辱和悔恨所捆绑起来的队伍，互相之间无法原谅却也愧对彼此，那确实是不一样的一套😧
+
+*****
+
+####  huxiaopao163  
+##### 19117#       发表于 2025-2-7 01:13
+
+看到弹幕里提到的对比，确实是这么回事啊。
+
+6.png
+(802.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 01:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/011309s5hmimrwg09mw3m2.png" referrerpolicy="no-referrer">
+
+7.png
+(531.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 01:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/011310hzpdzjujduuctvid.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 19118#       发表于 2025-2-7 01:15
+
+这一集出来后睦的形象也变得抽象了，要是莫老师会吉他+心理年龄增加一点真的是上位替代了
+
+*****
+
+####  大户爱  
+##### 19119#       发表于 2025-2-7 01:16
+
+想了想，从下一集开始包饺子，估计结尾能包上。
+第七集祥睦莫和解，然后一集一集拉队友。喵玲好解决，初华估计藏了个大的。
+最后解决祥爸，结尾大家一起迈向光明的未来。
+
+编剧不继续整活，时间绰绰有余。
+
+*****
+
+####  wwwttth  
+##### 19120#       发表于 2025-2-7 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364081&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 00:53</a>
+
+我建议是尽早抛售祥睦股，大量购入猫睦猫莫股，我都怀疑到最后接受双人格一起玩的只有猫，A团和莫真正和解 ...</blockquote>
+你这抛的有点晚了吧
+
+
+*****
+
+####  暗示我7酱  
+##### 19121#       发表于 2025-2-7 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364173&amp;ptid=2208921" target="_blank">airline114514 发表于 2025-2-7 01:07</a>
+种命论又一力证</blockquote>
+种命万能！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19122#       发表于 2025-2-7 01:17
+
+墨说自己知道ccc能看到发生的事，但她为啥不认识手机，睦头又不是不用手机，第二集她妈还给她打过电话。
+
+*****
+
+####  大户爱  
+##### 19123#       发表于 2025-2-7 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364233&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-7 01:16</a>
+你这抛的有点晚了吧</blockquote>
+低抛高买，股市大忌。
+相信我，现在就是抄底的时候。下一集就要涨了，因为再不写祥睦就来不及了。而我们知道，这个饺子一定会包起来的。
+
