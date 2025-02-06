@@ -3710,3 +3710,15 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团要开live＝要�
 
 今晚的不好猜，要看莫会跟狗的成员说啥。
 
+
+*****
+
+####  NaAgfykp  
+##### 18101#       发表于 2025-2-6 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356028&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-6 09:23</a>
+你就没发现现在睦祥两个人问题都刚好是一个c团live能解决得差不多吗全都是c团时期没搞好的后遗症 ...</blockquote>
+唱歌治好人格分裂也太奇怪了
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

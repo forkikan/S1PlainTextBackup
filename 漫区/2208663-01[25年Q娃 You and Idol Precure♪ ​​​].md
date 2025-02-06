@@ -1177,3 +1177,11 @@ https://x.com/kamikitafutago/status/1886912084899979514
 
 我倒是希望今年走公主路线，探讨一下对于小朋友来说偶像到底是什么东西
 
+
+*****
+
+####  舆水沉浮  
+##### 377#       发表于 2025-2-6 09:49
+
+偶像到底是什么呢....<img src="https://p.sda1.dev/21/6ef263698167c7f32b90bae8034118d3/IMG_20250206_094831.jpg" referrerpolicy="no-referrer">
+
