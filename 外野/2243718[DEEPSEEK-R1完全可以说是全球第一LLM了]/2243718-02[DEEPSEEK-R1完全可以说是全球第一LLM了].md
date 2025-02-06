@@ -353,3 +353,11 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 邀请链接
 [https://cloud.siliconflow.cn/i/FGBheDJl](https://cloud.siliconflow.cn/i/FGBheDJl)
 
+
+*****
+
+####  clarkgao  
+##### 1514#       发表于 2025-2-7 01:31
+
+为什么硅基流动的r1在chatbox上总是输出一半就中断？
+

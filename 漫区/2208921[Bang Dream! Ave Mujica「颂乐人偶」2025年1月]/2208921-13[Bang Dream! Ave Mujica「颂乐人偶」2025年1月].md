@@ -14068,3 +14068,95 @@ ave mujica本集笑点
 套用心理暗示的说法，就是“睦”在故意避开手机，避免与外界进行联系，或者单纯恐惧有谁通过电话和她联系 ...</blockquote>
 然后她急着用芭蕾舞鞋打电话找医生，除非她不知道手机有打电话找个功能，但第二集接电话了。
 
+
+*****
+
+####  xyion  
+##### 19135#       发表于 2025-2-7 01:28
+
+祥子这种非常自私的自我厌恶，还真是扇一巴掌来点重话才有用，灯和爱音那种看她可怜不上重的根本没用
+
+*****
+
+####  blackeryuri2  
+##### 19136#       发表于 2025-2-7 01:28
+
+我还是给开膛手初华爆米吧，这真的是一个优秀的二创
+
+*****
+
+####  skylah  
+##### 19137#       发表于 2025-2-7 01:30
+
+还好初华没出来
+看得最轻松的一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大丈夫萌大乃  
+##### 19138#       发表于 2025-2-7 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364292&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-7 01:25</a>
+
+初华如果没暴露大的这集确实不用出来，出来了估计就是幽怨的两声“小祥在哪”，现在藏着还可以理解为化身bo ...</blockquote>
+好歹给CV领份工资吧,大猫这戏份不是纯水?
+
+*****
+
+####  厉飞雨  
+##### 19139#       发表于 2025-2-7 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364194&amp;ptid=2208921" target="_blank">KLHgg 发表于 2025-2-7 01:10</a>
+祥子那个台词是不是翻译有问题？b站是译成 “我不认识”，有说法是应该译成 “我不在乎/我不管了” ，有楼 ...</blockquote>
+b站翻译其实没啥问题
+知らない既有“不知道、不了解”也有“与我无关”的意思
+翻译成不在乎，大祥老师后一句就没法接了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/59a4e01960bf127d3b87bd3c6acba608/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北条早苗  
+##### 19140#       发表于 2025-2-7 01:33
+
+这段就是大祥哈气三件套之一的胡言乱语，怎么翻都没问题
+
+*****
+
+####  fuwamoco  
+##### 19141#       发表于 2025-2-7 01:34
+
+大祥没接一句爱音你训练太少已经是超频工作了
+
+*****
+
+####  刑部姬真可爱  
+##### 19142#       发表于 2025-2-7 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364308&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 01:27</a>
+然后她急着用芭蕾舞鞋打电话找医生，除非她不知道手机有打电话找个功能，但第二集接电话了。 ...</blockquote>
+她跟着soyo和爱音她们见面的时候，她也对爱音手里的手机表现出了“愤怒（？）”的表情，所以有可能确实是在抗拒真实的联系
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Libartas  
+##### 19143#       发表于 2025-2-7 01:35
+
+<img src="https://p.sda1.dev/21/afb98f1f385d2a5bbc06f24247bef2a1/image.jpg" referrerpolicy="no-referrer">
+才发现6集了，独角兽只在第一话脚本挂了个共作，mygo13话里独角兽就写了四话
+
+*****
+
+####  天空塔书记官  
+##### 19144#       发表于 2025-2-7 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364308&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 01:27</a>
+然后她急着用芭蕾舞鞋打电话找医生，除非她不知道手机有打电话找个功能，但第二集接电话了。 ...</blockquote>
+如果硬要说的话，用认知障碍/错位也能解释，某样事物在人物的认知中被主动或者被动地进行了扭曲，就比方说，手机看起来不像手机，而变成了芭蕾舞鞋，还有在搞笑剧情中常见发怒的母亲变恶鬼桥段，这其实是类似的情况
+
+当然，这只是个人的猜测<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
