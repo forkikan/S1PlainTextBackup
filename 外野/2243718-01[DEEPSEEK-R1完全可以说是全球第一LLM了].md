@@ -18414,3 +18414,33 @@ gemini本身没限制
 联网现在是不能用了吗，其他有地方能用可以联网搜索的DEEPSEEK吗</blockquote>
 可以联网，就是卡吐了，别的网站有联网功能的r1可以用秘塔，每天能免费搜100次
 
+
+*****
+
+####  zyf199212  
+##### 1460#       发表于 2025-2-6 16:27
+
+你们都在用的谁家的api啊，我这边官网的、硅基的、火山的都卡爆了，只能用新出的qwen写代码了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗月杀人兔  
+##### 1461#       发表于 2025-2-6 16:28
+
+<blockquote>约翰里德 发表于 2025-2-6 15:58
+讲道理，r1写真正的团队作战，尤其是大规模冷兵器和热兵器同时使用的互殴战斗场面非常nb，写修罗场也很nb， ...</blockquote>
+求关键词，顺便问下单纯润色的话r1平替有吗，r1老是给我胡乱发散按都按不住
+
+
+*****
+
+####  zerona  
+##### 1462#       发表于 2025-2-6 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358776&amp;ptid=2243718" target="_blank">trentswd 发表于 2025-2-6 15:31</a>
+
+意思就是别用本地了
+
+gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的地方吧</blockquote>
+它这个是免费几个月还是一直有个免费的低级版本？
+
