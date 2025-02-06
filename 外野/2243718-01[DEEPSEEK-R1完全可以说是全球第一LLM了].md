@@ -18042,3 +18042,27 @@ DeepSeek创始人受邀去美开研讨会</blockquote>
 
 阿里云百炼的就别试了，中午折腾了一下，满血版没有思考过程，问个“你是谁”都卡个两分钟才回答，而且几乎是一秒吐两个字的那种，直接在代码里调用API也是一样...浪费表情，还是老老实实用硅基好了
 
+
+*****
+
+####  魔灵高达  
+##### 1425#       发表于 2025-2-6 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357350&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-6 12:25</a>
+最好还是跑团模式写，一段一段来，发现有问题及时打断重来，让他扩写你的简略描述保持你需要的情感基调， ...</blockquote>
+主要我想让它学一下现在主流的手枪文对于人物外形和台词的写法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+目前生成的还是有点文邹邹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  中二骚年  
+##### 1426#       发表于 2025-2-6 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357405&amp;ptid=2243718" target="_blank">二十面酱 发表于 2025-2-6 12:33</a>
+阿里云百炼的就别试了，中午折腾了一下，满血版没有思考过程，问个“你是谁”都卡个两分钟才回答，而且几乎 ...</blockquote>
+百炼那个你仔细看，r1上面写着deepseek部署
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
