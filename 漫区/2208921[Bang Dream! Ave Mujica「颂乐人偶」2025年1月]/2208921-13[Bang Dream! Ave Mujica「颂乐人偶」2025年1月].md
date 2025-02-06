@@ -5777,3 +5777,126 @@ https://b23.tv/H6LdYuz
 
 这集CV表没初华？ 不会真是十五年未有之小主唱吧
 
+
+*****
+
+####  iiiiiiiiii  
+##### 18299#       发表于 2025-2-6 19:46
+
+作为管人痴不得不说现在的祥子真的是我好球区，有种18年看mea收益化通不过，aqua这个好朋友还因为工作原因不得接触mea，半夜里打lol破防痛哭。现在我把mea代入祥子，aqua代入睦简直太美味了。我就说为什么我喜欢祥子，原来是看到mea的影子。同样当初暴言黑料缠身，同样唯一好友离自己而去，同样现实压力破防。实在太美味了#(笑眼) 
+
+*****
+
+####  杂灰  
+##### 18300#       发表于 2025-2-6 19:47
+
+莫就是个刚出生的小孩吧，诞生了很久但实际上现在才第一次上线，以前一直在睦头心里憋着，虽然演技很好但实际没有任何处世，真去处理人际关系就脑子转不过来
+现在两个队里最妈的女人直接自己上门了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太变态了
+
+*****
+
+####  凉良  
+##### 18301#       发表于 2025-2-6 19:47
+
+问下隔壁剧透在第几楼
+
+*****
+
+####  一心而用  
+##### 18302#       发表于 2025-2-6 19:48
+
+你也想被骗168亿？
+<img src="https://p.sda1.dev/21/26204f4046ba2153fc300e0281fa5fe4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 18303#       发表于 2025-2-6 19:48
+
+小白：两个妈很多吗，我有四个
+
+*****
+
+####  6030sylar  
+##### 18304#       发表于 2025-2-6 19:49
+
+<img src="https://img.saraba1st.com/forum/202502/06/194819vs1ht1ubbobhbese.jpg" referrerpolicy="no-referrer">
+
+<strong>1ETUL5JWI6)HMTNWKBDV[(S.jpg</strong> (70.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/194907fvhzomettthjoqiq.png" referrerpolicy="no-referrer">
+
+<strong>~]K9P{G@X]V})WAW_3]M9FI.png</strong> (42.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 19:49 上传
+
+bro你脸红了
+
+*****
+
+####  约翰里德  
+##### 18305#       发表于 2025-2-6 19:49
+
+有生放送地址吗，有的话求一个
+
+
+*****
+
+####  傘木希美  
+##### 18306#       发表于 2025-2-6 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360530&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-6 19:29</a>
+【【Mujica/MyGO/MAD】祥子失恋阵线联盟-哔哩哔哩】 https://b23.tv/X2MeI70</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天才
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 18307#       发表于 2025-2-6 19:53
+
+睦祥半身有点像隔壁V区的meaqua，怪不得那么好球区。这种有异味的CP感觉欣赏的人挺少的。
+
+*****
+
+####  一心而用  
+##### 18308#       发表于 2025-2-6 19:54
+
+对于祥子的不辞而别，初华她……https://b23.tv/Hsts1Mc
+<img src="https://p.sda1.dev/21/62d2bf7b0f5fa2bce513c18f154bb563/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7d5b2e2e548c8fcd73846906f306f99a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 18309#       发表于 2025-2-6 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360668&amp;ptid=2208921" target="_blank">约翰里德 发表于 2025-2-6 19:49</a>
+
+有生放送地址吗，有的话求一个</blockquote>
+没必要，10点就有人放巴哈源了。直播吃生肉没意义。。
+
+*****
+
+####  huxiaopao163  
+##### 18310#       发表于 2025-2-6 19:55
+
+ 本帖最后由 huxiaopao163 于 2025-2-6 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360666&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-6 19:49</a>
+
+bro你脸红了</blockquote>
+看这个杂志，应该是针对第六集的，因为有第六集的图
+
+所以第六集海希的剧情会是个重点，而不是像之前一样只是个过场？
+
+然后标题上说mujica解散的内幕和C团的过去有关？也许这个会在第六集里也会提一下？
+
+反正也就两个小时了，等这个杂志的文字内容解禁后，主要还是用来猜第七集和后面的剧情了
+
