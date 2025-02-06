@@ -57,3 +57,16 @@ chatbox是不是和官方ds八字不合啊，我经常发生token用了，但是
 
 在泥潭传个火~
 
+
+*****
+
+####  黄泉川此方  
+##### 1486#       发表于 2025-2-6 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360800&amp;ptid=2243718" target="_blank">moekyo 发表于 2025-2-6 20:12</a>
+
+70b都很垃圾吗</blockquote>
+r1蒸馏后的qwen，70b写nsfw是地摊文学读着没意思，翻译还行
+
+消融版等于额叶切除，切完审核确实没了，指令也听不懂了
+
