@@ -17871,3 +17871,16 @@ image.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  当光停止  
+##### 1408#       发表于 2025-2-6 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355697&amp;ptid=2243718" target="_blank">小绿瓜拉苟莱斯 发表于 2025-2-6 07:55</a>
+
+我用硅基流动的api，今天突然告诉我“
+
+我们无法提供此类内容。如果您有其他主题或非成人内容的需求，我们 ...</blockquote>
+破限失败，重新生成或者换个提示词。
+
