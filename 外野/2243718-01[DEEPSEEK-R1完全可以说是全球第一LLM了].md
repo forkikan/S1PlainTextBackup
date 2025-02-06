@@ -17858,3 +17858,16 @@ image.png
 
 问deepseek "strawberry"里究竟几个"R"，这思考纠错能力厉害了
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1407#       发表于 2025-2-6 07:55
+
+我用硅基流动的api，今天突然告诉我“
+
+我们无法提供此类内容。如果您有其他主题或非成人内容的需求，我们将很乐意为您提供帮助。”
+发生了甚么事<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
