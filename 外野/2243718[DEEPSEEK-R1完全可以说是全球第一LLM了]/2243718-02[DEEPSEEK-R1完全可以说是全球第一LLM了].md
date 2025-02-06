@@ -78,3 +78,13 @@ r1蒸馏后的qwen，70b写nsfw是地摊文学读着没意思，翻译还行
 
 DS的API平台现在需要用密码登陆欸..白天还可以使用手机的验证码,但是我当时注册的时候没设置密码啊.
 
+
+*****
+
+####  jf8350143  
+##### 1488#       发表于 2025-2-6 21:17
+
+[https://cloud.siliconflow.cn/i/nCRui5RE](https://cloud.siliconflow.cn/i/nCRui5RE)
+
+硅基流动传个火
+

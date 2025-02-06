@@ -5991,3 +5991,12 @@ bro你脸红了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  akiomn  
+##### 18320#       发表于 2025-2-6 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁专楼黄大叔有新的剧透
+呃，mo的台词挺有婆媳剧内味的
+
