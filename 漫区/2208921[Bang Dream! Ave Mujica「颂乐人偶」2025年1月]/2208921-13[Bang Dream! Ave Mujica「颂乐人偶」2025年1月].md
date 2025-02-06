@@ -5067,3 +5067,27 @@ https://b23.tv/H6LdYuz
 
 当然如果又是莫瞎胡闹被捕风捉影了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那继续吃瘪当工具人去吧
 
+
+*****
+
+####  一心而用  
+##### 18228#       发表于 2025-2-6 17:10
+
+高尾奏音：82岁的奶奶前几天看了#AveMujica的免费直播，
+还说“迷上Ave Mujica啦✨得看看Oblivionis的动画呢👵💕”，
+听到这话我很开心。
+
+为了让更多人喜欢上我超爱的Mujica，今后我也会继续加油的🎹🩵
+<img src="https://p.sda1.dev/21/d5cb93d5332752a42abc4f309c26ddd7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 18229#       发表于 2025-2-6 17:13
+
+<blockquote>swessia 发表于 2025-2-6 17:02
+如果真是莫主导重建母鸡卡，别管用啥手段，那我倒理解为啥莫人气上升了
+
+当然如果又是莫瞎胡闹被捕风捉影了 ...</blockquote>
+实在想不到有啥好理由组Mujica，为了木头牺牲的可能性比较大吧，当然也可能是因为当了祥黑嘴替所以人气上升（
+

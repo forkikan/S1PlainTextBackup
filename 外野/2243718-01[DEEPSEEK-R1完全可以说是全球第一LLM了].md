@@ -18509,3 +18509,21 @@ r1我不确定替代的，我只用这个<img src="https://static.saraba1st.com/
 
 你们官网今天用得了吗，我一个问题下午问54遍了也还是服务器繁忙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PharotekWizard  
+##### 1468#       发表于 2025-2-6 17:09
+
+DS和秘塔怎么都炸了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  买码！注册！  
+##### 1469#       发表于 2025-2-6 17:15
+
+秘塔的R1联网用的是秘塔自家的搜索，导致输出有时跟DS本家大相径庭，甚至云泥之别
+
