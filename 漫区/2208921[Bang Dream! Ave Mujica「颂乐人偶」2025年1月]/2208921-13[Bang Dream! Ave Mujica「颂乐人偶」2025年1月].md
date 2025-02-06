@@ -13592,3 +13592,220 @@ soyo要是给祥子大比兜，那mujica一辈子都是mygo洗脚婢了。是不
 
 <img src="https://p.sda1.dev/21/95abd7896dde2eb99f51bf5663c2612e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skylah  
+##### 19090#       发表于 2025-2-7 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364076&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-7 00:53</a>
+如果一开始就是关心队友的那么这个角色没有高光转折可以写了。</blockquote>
+前三集关心睦都好几次了，车站喊睦那里也是明显的担心神色
+不是她不关心队友而是其他人不怎么在意她的关心，甚至也不太关心她的存在
+这也是为什么上集对初华的态度反常
+但这集不知道抽什么风，又变回了无情雇佣兵的刻板印象
+
+*****
+
+####  北条早苗  
+##### 19091#       发表于 2025-2-7 00:58
+
+牢莫把房间的窗帘都给撕碎了，要说正常肯定说不上
+非要让爽姐进去三天三夜才拉出来也算是编剧的大手了
+
+*****
+
+####  dqtql  
+##### 19092#       发表于 2025-2-7 00:58
+
+看到现在，鸡团动画的情节设计几乎全都是为炒作服务的，完全没有mygo动画的那种真诚感了，哎……
+
+*****
+
+####  fuwamoco  
+##### 19093#       发表于 2025-2-7 00:59
+
+我觉得你卖墨提斯商品一定很好卖，实在不行绑定呗
+
+*****
+
+####  刑部姬真可爱  
+##### 19094#       发表于 2025-2-7 00:59
+
+wsd为了不让祥子哈气观感太差，除了前面的靠墙瘫，还有马上下集预告的祥子去睦家，再包括前不久新的图透祥子在睦家门口瘫，已经很努力了
+
+*****
+
+####  Renes  
+##### 19095#       发表于 2025-2-7 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364080&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 00:53</a>
+
+丰川的可能原型好像就是丰田
+
+—— 来自 鹅球 v3.3.96</blockquote>
+姓氏排名与常见性
+
+日本姓氏数量庞大（约10万至14万个），但大部分人口集中在排名前100的姓氏中。例如，排名第1的“佐藤”约有205.5万人，第10位的“加藤”约85万人57。而“丰田”并未出现在前200位的常见姓氏列表中51011，说明其人口规模相对较小。
+
+罕见姓氏的推测
+
+根据网页2的数据，日本排名第3600位后的姓氏属于极罕见的类型，通常仅有极少数人使用4。由于“丰田”未被列入前200位，甚至可能未进入前1000位，其人口可能低于10万，甚至更少。
+
+可能的来源与分布
+
+“丰田”这一姓氏源于地名或职业（如“丰饶的稻田”），与丰田汽车公司的创始人丰田喜一郎家族相关。但作为姓氏，其分布可能集中在特定地区（如爱知县丰田市），而非全国范围内广泛使用11。
+
+总结：综合现有信息，“丰田”姓氏的人口规模较小，可能仅有数万人或更少。如需更精确的数据，需参考日本官方统计或专业姓氏研究机构的报告。其他常见姓氏的详细排名可参见网页3、4、7、8等来源
+
+随手问了一下AI，至少这不是东京地区常用姓，那在东京出现这个姓氏上过贵族学校的大小姐，确实很难不让人联想，就不要说上集的迈巴赫了，难怪爱音一下子能反应过来。
+
+*****
+
+####  沙坪坝沙耶香  
+##### 19096#       发表于 2025-2-7 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364115&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-7 00:58</a>
+
+看到现在，鸡团动画的情节设计几乎全都是为炒作服务的，完全没有mygo动画的那种真诚感了，哎…… ...</blockquote>
+确实，前一集下个要爆的钩子，下一集op前光速回收，耍猴
+
+*****
+
+####  凉良  
+##### 19097#       发表于 2025-2-7 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364119&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-7 00:59</a>
+
+wsd为了不让祥子哈气观感太差，除了前面的靠墙瘫，还有马上下集预告的祥子去睦家，再包括前不久新的图透祥 ...</blockquote>
+然后就来了逆天切割是吧
+
+*****
+
+####  一心而用  
+##### 19098#       发表于 2025-2-7 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364111&amp;ptid=2208921" target="_blank">skylah 发表于 2025-2-7 00:58</a>
+前三集关心睦都好几次了，车站喊睦那里也是明显的担心神色
+不是她不关心队友而是其他人不怎么在意她的关 ...</blockquote>
+上一话对初华的态度可以理解的：“你这个人真的满脑子都是祥子呢。”<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 19099#       发表于 2025-2-7 01:01
+
+还是那个问题，为什么非要让大祥最后哈气呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这种每集末尾假装爆个大的，下一集开头闹麻了的套路玩了这么多集绫奈也是一个神人
+
+
+*****
+
+####  ddy2811  
+##### 19100#       发表于 2025-2-7 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364028&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-7 00:48</a>
+
+实在想不明白祥子能察觉不到牢睦不对劲的原因。
+
+更不能理解不了一个月不找过睦的动机。连喵梦都甚至是因为 ...</blockquote>
+祥子用工作来逃避是一以贯之的，埋头在音乐和剧本里同样是在逃避Mujica越来越失去控制的事实，去当一个月客服也是在试图用自以为的“承担责任”来逃避对自己的清算，她就是这么不负责任的存在吧
+
+*****
+
+####  南宮凝香  
+##### 19101#       发表于 2025-2-7 01:02
+
+燈祥也吃不到糖吧
+
+對比追愛那時候
+
+這裡第一次呼喊被打斷就完結了
+
+還能讓大祥緩慢轉進
+
+*****
+
+####  plok201  
+##### 19102#       发表于 2025-2-7 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364095&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 00:56</a>
+
+soyo要是给祥子大比兜，那mujica一辈子都是mygo洗脚婢了。是不是🦄觉得mujica没粉丝。mujica音乐粉喜欢金属 ...</blockquote>
+不怕，按wsd的炒作之心，soyo给祥子个大比兜后，被路人录了下来，初华看手机就是看到这个，然后跑过去找soyo物理对邦把场子找回来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一心而用| + 1|有道理|
+
+查看全部评分
+
+*****
+
+####  一心而用  
+##### 19103#       发表于 2025-2-7 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364141&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 01:02</a>
+不怕，按wsd的炒作之心，soyo给祥子个大比兜后，被路人录了下来，初华看手机就是看到这个，然后跑过去找s ...</blockquote>
+突然觉得很合理啊！
+
+*****
+
+####  友善用户  
+##### 19104#       发表于 2025-2-7 01:05
+
+所以到底哪个青梅竹马不是青梅竹马。
+
+*****
+
+####  一心而用  
+##### 19105#       发表于 2025-2-7 01:05
+
+<img src="https://p.sda1.dev/21/4716ffa63d2d142a2563f9afb1ca1172/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 19106#       发表于 2025-2-7 01:05
+
+这集已经给了很多描写了祥子就是放不下那个b自尊心才暴言，心里是有愧疚的，下集哭一哭真情流露饺子不就包好了嘛
+
+*****
+
+####  刑部姬真可爱  
+##### 19107#       发表于 2025-2-7 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364131&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-7 01:01</a>
+
+然后就来了逆天切割是吧</blockquote>
+逆天切割之后不就是接下集预告去睦家了吗，所以我才说为了不让这里观感太差，前前后后都有相关内容
+
+*****
+
+####  一心而用  
+##### 19108#       发表于 2025-2-7 01:07
+
+<img src="https://p.sda1.dev/21/6ff85cd69496fa19e8bf015495405c54/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0f8d6f736018504c570fb90123be806f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e75ac50dac2c6e27e0cf6f7da37f46bc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  airline114514  
+##### 19109#       发表于 2025-2-7 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363881&amp;ptid=2208921" target="_blank">暗示我7酱 发表于 2025-2-7 00:30</a>
+
+ave mujica本集笑点
+
+三天三夜致敬旧高父
+
+夏亚的新妈妈soyolin</blockquote>
+种命论又一力证
+

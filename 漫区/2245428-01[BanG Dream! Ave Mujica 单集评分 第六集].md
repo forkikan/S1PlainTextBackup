@@ -2156,3 +2156,24 @@ go团戏份挺出彩的所以给正分
 
 我想看的是mujica，不是mygo2
 
+
+*****
+
+####  13街的居住民  
+##### 226#       发表于 2025-2-7 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">i祥都看乐了
+层层剥皮然后决定性的一击
+下级没打我女的脸那就是剧本有问题
++2
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  束意行气  
+##### 227#       发表于 2025-2-7 01:03
+
+观感回升，不过已经不带脑子看了，这个双重人格的设定太烂了
+
