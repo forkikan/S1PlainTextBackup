@@ -2128,3 +2128,31 @@ ave mujica本集笑点
 +2 
 太爽了，这才是我想看的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ra1n  
+##### 223#       发表于 2025-2-7 00:50
+
++1
+剧情还行，演出太烂了，一定要从最上面的楼梯摔下来吗，太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  零壹贰叁  
+##### 224#       发表于 2025-2-7 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">+1
+go团戏份挺出彩的所以给正分
+至于现在鸡团这边让人想问武士道还想卖角色谷吗
+祥老师这集台词太过分了吧，后面真的能进行角色形象回撤吗
+
+*****
+
+####  六道明  
+##### 225#       发表于 2025-2-7 00:51
+
+我想看的是mujica，不是mygo2
+

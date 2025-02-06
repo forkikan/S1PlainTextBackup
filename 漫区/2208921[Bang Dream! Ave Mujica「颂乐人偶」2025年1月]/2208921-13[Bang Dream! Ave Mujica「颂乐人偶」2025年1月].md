@@ -13369,3 +13369,226 @@ NICONICO的D动画频道（包月收费）是电视同步的
 
 我真的怀疑自从crychic解散以后祥子就没正眼看过一次睦。这也太可怜了。更没有道理。
 
+
+*****
+
+####  mono  
+##### 19067#       发表于 2025-2-7 00:48
+
+喵梦吃了死而复生辣拉面 该归队了
+
+海铃好像快爆了
+
+初华不出现一定是在打击罪恶攒气槽
+
+*****
+
+####  一心而用  
+##### 19068#       发表于 2025-2-7 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363971&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 00:40</a>
+MyGO强行说服自己去和母鸡卡同频还挺逗的，你们共情的事情根本就不是一个level的，产生的后果也不是一个lev ...</blockquote>
+不错，mygo的情况是没有mujica严重，没有人精分没有人有经济损失 ，更没有人死妈废爹。
+但是人和人就是这样的，硬要纠结level那么世界上就不存在任何人可以和对方共情了，还不如大家都当海铃事不关己高高挂起呢。
+
+*****
+
+####  天空塔书记官  
+##### 19069#       发表于 2025-2-7 00:49
+
+庄周梦蝶无论蝶还是孟子，本质都是一个自我意识，只是外在表现形式不一样
+
+当然，岛国那边好像不是这么理解的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Renes  
+##### 19070#       发表于 2025-2-7 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363252&amp;ptid=2208921" target="_blank">Nealyun 发表于 2025-2-6 23:32</a>
+
+有可能還真不知道
+
+我初中的時候也有個很要好的同學，只知道他家裡蠻有錢的。
+
+然後大概去年我跟他吃飯的時 ...</blockquote>
+中国和日本不一样的一点，是因为日本这些大家族的姓氏都是有一定历史的，甚至可能以前是贵族或者大名，不一定很大众，尤其这种拿姓氏做公司名字的。你说马云姓马，你不会觉得身边姓马的是他儿子，如果马云叫枫云，是全国前五富豪枫氏集团家族企业的总裁，你身边有个姓枫的，你不可能不怀疑他身份。
+
+*****
+
+####  kivz  
+##### 19071#       发表于 2025-2-7 00:49
+
+为什么集火独角兽，是她一人拖了一年吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  扶桑洛槿  
+##### 19072#       发表于 2025-2-7 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363894&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 00:31</a>
+
+然而牢祥好像真没这个意思(） 她应该是真根本不想想想到就要面对自己的失败
+
+倒是牢睦不让SOYO找祥是害怕 ...</blockquote>
+牢祥爆典前还是靠墙说了句如果没有我，睦…的话，这句没说完的话具体是什么意思，就看观众怎么发散了。
+
+只能说制作组整出这段剧情，中间还不给找牢祥找点补，不会内部恨抽陀螺抽上瘾了写嗨了吧，
+
+*****
+
+####  一心而用  
+##### 19073#       发表于 2025-2-7 00:50
+
+假装不认识队友这种事soyo也干过。
+<img src="https://p.sda1.dev/21/9776eb3c54568a4adf5804f08b537c73/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skylah  
+##### 19074#       发表于 2025-2-7 00:52
+
+大手也是伸向了海铃
+之前还觉得她看似冷淡的表面下是真心对待乐队关心队友的
+结果制作组就在第一层
+
+*****
+
+####  一心而用  
+##### 19075#       发表于 2025-2-7 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364039&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-7 00:49</a>
+中国和日本不一样的一点，是因为日本这些大家族的姓氏都是有一定历史的，甚至可能以前是贵族或者大名，不 ...</blockquote>
+我还是第一次知道枫氏集团。
+
+*****
+
+####  whzfjd  
+##### 19076#       发表于 2025-2-7 00:53
+
+就祥子在 mygo 里的表现，指望在 mujica 低谷期给她唱赞歌有点天真了，往死里抽才是人的本性。相当于典型的日式霸凌者一旦失势会遭遇更持久的霸凌一样。从白祥的坐标来考虑，这更有一种 NTR 一般的创作爽感。
+
+*****
+
+####  一心而用  
+##### 19077#       发表于 2025-2-7 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364068&amp;ptid=2208921" target="_blank">skylah 发表于 2025-2-7 00:52</a>
+大手也是伸向了海铃
+之前还觉得她看似冷淡的表面下是真心对待乐队关心队友的
+结果制作组就在第一层 ...</blockquote>
+如果一开始就是关心队友的那么这个角色没有高光转折可以写了。
+
+*****
+
+####  595505568  
+##### 19078#       发表于 2025-2-7 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363925&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 00:35</a>
+最后由soyo去杀死最信任soyo的墨提斯，放满脑子祥子的睦头出来，头也不回的去找祥子。soyo抱着墨提斯的芭蕾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八点档赶病好了的孩子去找爸爸后，自己劳心费神倾尽心力的前妻妈妈，最后黯然神伤什么的，素世谷子价格要炒爆掉了吧
+
+*****
+
+####  刑部姬真可爱  
+##### 19079#       发表于 2025-2-7 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363998&amp;ptid=2208921" target="_blank">YU_JI 发表于 2025-2-7 00:44</a>
+
+复盘一下越看越拟人，wsd来来来，你告诉我这是同一个人啊，海玲从这集开始正式跟其他几个人一起去坐候诊室
+
+ ...</blockquote>
+有一说一你不能因为她在mygo里说过这么一句话就认为她会“越界”去解决别人的问题，你要说海铃在前几集里有没有关心过睦，那也只能说确实有
+
+*****
+
+####  天空塔书记官  
+##### 19080#       发表于 2025-2-7 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364039&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-7 00:49</a>
+中国和日本不一样的一点，是因为日本这些大家族的姓氏都是有一定历史的，甚至可能以前是贵族或者大名，不 ...</blockquote>
+丰川的可能原型好像就是丰田<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plok201  
+##### 19081#       发表于 2025-2-7 00:53
+
+我建议是尽早抛售祥睦股，大量购入猫睦猫莫股，我都怀疑到最后接受双人格一起玩的只有猫，A团和莫真正和解要到手游解决
+
+*****
+
+####  北条早苗  
+##### 19082#       发表于 2025-2-7 00:54
+
+牢莫这种情况都不是多重人格障碍了，应该叫一体双魂
+就这动画还能压一年再上，我只能说wsd的运营也是神人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fosanoha  
+##### 19083#       发表于 2025-2-7 00:54
+
+门槛罗雀……个鬼啊，这同接我看是集集新高，第六集已经15W+了；第一集才10W+，百分之五十的涨幅谁敢说WSD不是炒作的高手？
+别问烂不烂，你就说这炒的热不热吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 19084#       发表于 2025-2-7 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363905&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-2-7 00:32</a>
+
+果然Mortis平时表现出来就不是精神病，一般路人察觉不到异常，上一话的C Part是故意的，其实日常生活没问题 ...</blockquote>
+对的，大莫老师待人接物比木头人强得多，而且“没有暴力倾向”
+
+*****
+
+####  iiiiiiiiii  
+##### 19085#       发表于 2025-2-7 00:56
+
+soyo要是给祥子大比兜，那mujica一辈子都是mygo洗脚婢了。是不是🦄觉得mujica没粉丝
+
+*****
+
+####  北条早苗  
+##### 19086#       发表于 2025-2-7 00:57
+
+这集还是有在给大祥找补了，收集灯的贴纸，看到鞋柜没有贴纸的失落，还有自责自己玩坏了睦
+但都被最后的哈气给毁了，睦祥这半身真不如灯祥soulmate吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 19087#       发表于 2025-2-7 00:57
+
+<blockquote>whzfjd 发表于 2025-2-7 00:53
+就祥子在 mygo 里的表现，指望在 mujica 低谷期给她唱赞歌有点天真了，往死里抽才是人的本性。相当于典型的 ...</blockquote>
+敢情祥子在mygo里的表现不是编剧自己写的是吧。
+
+把续作主角写成反派小丑狠狠拷打当然很爽，那么它们打算怎么卖角色角色卡周边门票呢？
+
+*****
+
+####  盐盐盐盐盐  
+##### 19088#       发表于 2025-2-7 00:57
+
+猫mo真的很可爱，mo要是消失了我会很sad的，舅舅说mo人气要涨不是没道理
+
+*****
+
+####  一心而用  
+##### 19089#       发表于 2025-2-7 00:58
+
+<img src="https://p.sda1.dev/21/95abd7896dde2eb99f51bf5663c2612e/image.jpg" referrerpolicy="no-referrer">
+

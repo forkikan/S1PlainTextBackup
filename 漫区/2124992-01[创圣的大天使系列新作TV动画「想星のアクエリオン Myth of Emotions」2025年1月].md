@@ -67,3 +67,11 @@ evol真的很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 怎么招式的脑洞连LOGOS都不如了
 
+
+*****
+
+####  水莲寺流歌  
+##### 244#       发表于 2025-2-7 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集的新角色出场还挺意料之外的
+
