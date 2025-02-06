@@ -18604,3 +18604,11 @@ deepseek的文档里说后面会上跟o3类似的reasoning-effort 来控制CoT�
 传火
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  秦南心  
+##### 1477#       发表于 2025-2-6 19:25
+
+ds这个刘备文能力，跑团真的爽死，xp一本满足<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
