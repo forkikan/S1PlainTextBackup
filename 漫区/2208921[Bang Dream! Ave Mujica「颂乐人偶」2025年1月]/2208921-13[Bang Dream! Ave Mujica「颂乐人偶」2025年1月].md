@@ -5291,3 +5291,66 @@ https://b23.tv/H6LdYuz
 带入一下男女关系就是被抛弃的女性对浮气男下跪求着他回来，很古老的肥皂剧剧情了，属于最赢不了的那种，然后果不其然被抛弃了。</blockquote>
 看过一个非常贴切的日本人评论：池袋金色夜叉<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JustW  
+##### 18251#       发表于 2025-2-6 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359863&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-6 17:53</a>
+所谓的大脑自我保护机制诞生的第二人格，说白了就是甩锅。
+
+睦痛苦的根源是家庭身份错位缺失和作为童星过渡 ...</blockquote>
+如果以Mortis消失作为结局的话，那么说明编剧掏出第二人格这一手看似很大胆，其实很保守。为了方便推动剧情以及最后包饺子时彼此没那么尴尬，就让Mortis这样用完即丢的工具出场戳破一切。
+
+*****
+
+####  傲呆莉亚  
+##### 18252#       发表于 2025-2-6 18:09
+
+飞鸟山跟渣男弃女对应起来也太强行了…玩个放学后乐队真的不是谈恋爱啊
+
+以正常人的视角：你退个乐队，也说了是“自己的问题”，虽然最后闹的有点不愉快，但过去也就过去了
+
+谁知道这个世界的乐队重女过了一年还这么纠缠不放啊
+
+*****
+
+####  fuwamoco  
+##### 18253#       发表于 2025-2-6 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359944&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 18:06</a>
+
+如果以Mortis消失作为结局的话，那么说明编剧掏出第二人格这一手看似很大胆，其实很保守。为了方便推动剧 ...</blockquote>
+过了今晚不可能消失了，先行图里都背着吉他出门了。今晚是抹杀墨提斯的最后机会，否则后面的成长就是墨和睦的共同成长，要开始有羁绊了。
+
+*****
+
+####  兔耳僵尸  
+##### 18254#       发表于 2025-2-6 18:11
+
+这里是邦邦世界，组了乐队就等于X过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 18255#       发表于 2025-2-6 18:12
+
+ 本帖最后由 天空塔书记官 于 2025-2-6 18:13 编辑 
+
+但也不可能让木头一辈子不用演技吧，虽然天赋继承自父母，但那也是睦的一部分，融合也罢，共存也罢，这都是割舍不了的
+
+“莫提斯”就是睦的一部分，要是把这部分直接去掉，那才是真正的人格不健全
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 18256#       发表于 2025-2-6 18:15
+
+如果切割了莫睦，比较抽象的是祥子欠了木头，但跳出来拷打黑祥的又是mo，到木头回来了祥子还是欠着木头，mo一个小孩子二重人格也没法拿她怎么样（）
+
