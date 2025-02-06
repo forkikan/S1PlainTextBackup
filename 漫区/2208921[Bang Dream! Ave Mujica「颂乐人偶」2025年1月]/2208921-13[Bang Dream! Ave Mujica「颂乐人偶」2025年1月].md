@@ -13126,3 +13126,246 @@ Soyo 沒有大喊 木子美她哭了 然後人棍祥子
 <img src="https://p.sda1.dev/21/3fa8e420e5bfac8286c8661bcc32b31a/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/5579ad325ab713492d7926ecba35e699/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 19046#       发表于 2025-2-7 00:38
+
+睦醒了除了一句说猫的吉他在唱歌以外就是一直要求去见祥子，确实是归宿只有祥子身边（
+
+*****
+
+####  一心而用  
+##### 19047#       发表于 2025-2-7 00:38
+
+<img src="https://p.sda1.dev/21/0aa08c2ec2e81f46e25c9e09daf1bbc9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9a7877228203e487ca09aeb119e0273b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 19048#       发表于 2025-2-7 00:39
+
+这应该能解释为什么狗动画里，爽姐PUA睦头睦头还是贴在爽姐身边了，爽姐是能够成为睦头母亲的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 19049#       发表于 2025-2-7 00:39
+
+至于喵梦其实明显一直在给睦/莫发箭头
+
+这话热搜榜母鸡卡排名还要高她直接只点了睦头的。。。
+
+上一话她也只惦记睦 
+
+她回来肯定也和睦有关了，虽然我怀疑过程会比较抽象
+
+*****
+
+####  南宮凝香  
+##### 19050#       发表于 2025-2-7 00:40
+
+<blockquote>一心而用 发表于 2025-2-7 00:38
+</blockquote>
+世上最理解豐川祥子的人
+
+也是世上唯二尊重母雞卡世界觀的人
+
+*****
+
+####  victorws  
+##### 19051#       发表于 2025-2-7 00:40
+
+有没有精神科的大夫证实一下双重人格是不是就这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [OnePlus KB2000,Android 14](http://stage1.5j4m.com/?1.41)
+
+*****
+
+####  JustW  
+##### 19052#       发表于 2025-2-7 00:40
+
+MyGO强行说服自己去和母鸡卡同频还挺逗的，你们共情的事情根本就不是一个level的，产生的后果也不是一个level的
+
+*****
+
+####  Devola  
+##### 19053#       发表于 2025-2-7 00:40
+
+卖狗那是超常发挥
+现在母鸡卡瞎几把扯淡才能让你想起自己看的是邦多利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 19054#       发表于 2025-2-7 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363966&amp;ptid=2208921" target="_blank">victorws 发表于 2025-2-7 00:40</a>
+
+有没有精神科的大夫证实一下双重人格是不是就这样的
+
+----发送自 OnePlus KB2000,Android 14 ...</blockquote>
+大夫：能被阴阳眼看到的时尚小单品就别纠结了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 19055#       发表于 2025-2-7 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363966&amp;ptid=2208921" target="_blank">victorws 发表于 2025-2-7 00:40</a>
+
+有没有精神科的大夫证实一下双重人格是不是就这样的
+
+----发送自 OnePlus KB2000,Android 14 ...</blockquote>
+DID想遇到个真的还是有一定难度的。。。
+
+哦忘了泥潭本楼就有<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 19056#       发表于 2025-2-7 00:41
+
+<img src="https://img.saraba1st.com/forum/202502/07/004142vxm8vm2bf2m6fvwx.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250207-004104.png</strong> (27.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 00:41 上传
+
+这让利息知道，还不哈气？
+
+
+*****
+
+####  fuwamoco  
+##### 19057#       发表于 2025-2-7 00:42
+
+<blockquote>北条早苗 发表于 2025-2-7 00:39
+这应该能解释为什么狗动画里，爽姐PUA睦头睦头还是贴在爽姐身边了，爽姐是能够成为睦头母亲的女人 ...</blockquote>
+睦头：我要见祥子，祥子要坏掉了，你别拦着我。
+
+大墨：祥子一个月没找你哦，你别复读了给我老实待着。
+
+睦头连谁把她喊醒，谁陪她找医生一点不关心的，你不如觉得睦头呆在soyo身边是墨提斯想待
+
+*****
+
+####  YU_JI  
+##### 19058#       发表于 2025-2-7 00:44
+
+复盘一下越看越拟人，wsd来来来，你告诉我这是同一个人啊，海玲从这集开始正式跟其他几个人一起去坐候诊室
+
+<img src="https://img.saraba1st.com/forum/202502/07/004348j4j2j5s6jntsz16h.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3973.png</strong> (164.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/004348gwoepbrbwe9b9buw.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3978.png</strong> (164.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 00:43 上传
+
+*****
+
+####  DARK_HGCG  
+##### 19059#       发表于 2025-2-7 00:44
+
+電話してちょうだい ​​​
+
+Screenshot_20250207-013134.png
+(1.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 00:44 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/004415m02eu1k07itkbi7u.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 19060#       发表于 2025-2-7 00:44
+
+找了一个，果然大家都去各个二创的评论区赞美up了
+
+09a7cc790755b2fac04eff4d8c8d1f1a151384996.jpg
+(342.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 00:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/004157xqc9z6y0c609ecys.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 19061#       发表于 2025-2-7 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364000&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-7 00:44</a>
+
+電話してちょうだい ​​​</blockquote>
+向日葵不是挂了吗
+
+*****
+
+####  ddy2811  
+##### 19062#       发表于 2025-2-7 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363882&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 00:30</a>
+
+墨提斯这个人格还蛮涩的,有种狂气和幼稚共存的味道。反而睦头人格拟人度更低。
+
+按理说祥子说过睦头以前很爱 ...</blockquote>
+猫猫对“睦睡着了”也是有疑问的，很可能“睦”确实还有得说道
+
+*****
+
+####  swessia  
+##### 19063#       发表于 2025-2-7 00:46
+
+莫小姐不要死好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">母鸡卡六人中唯一算有趣的女人了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rushsong  
+##### 19064#       发表于 2025-2-7 00:47
+
+不得不说少女乐队动画的粉丝都很包容啊，现在居然还能见到有人说看了这集以后认为mujica后面的水平能到中上，也就是用七集的篇幅去拯救前面有争议的五个主角，独角兽有这水平那她还这么底边啊，不早就拳打大河内脚踢花田了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  DARK_HGCG  
+##### 19065#       发表于 2025-2-7 00:48
+
+<blockquote>kenqqex 发表于 2025-2-7 00:45
+向日葵不是挂了吗</blockquote>
+NICONICO的D动画频道（包月收费）是电视同步的
+
+*****
+
+####  是谁的书画  
+##### 19066#       发表于 2025-2-7 00:48
+
+实在想不明白祥子能察觉不到牢睦不对劲的原因。
+
+更不能理解不了一个月不找过睦的动机。连喵梦都甚至是因为流量找过睦。
+
+你发小看着就出了大问题，而你还能闭门写那逼世界观和作曲。
+
+我真的怀疑自从crychic解散以后祥子就没正眼看过一次睦。这也太可怜了。更没有道理。
+

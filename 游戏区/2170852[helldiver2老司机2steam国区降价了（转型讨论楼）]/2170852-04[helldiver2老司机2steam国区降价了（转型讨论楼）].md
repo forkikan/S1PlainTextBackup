@@ -443,3 +443,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 5720#       发表于 2025-2-7 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362858&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-2-6 23:10</a>
+
+双刃西线南线不知道，东线强度略低，相比镰刀就多一个中穿优势，得绑定抗性甲。就这一群人还在吹t0取代盟友 ...</blockquote>
+我咋感觉这个纯一坨啊……有点后悔先点这个债券了
+
+但是核弹手枪真的好玩
+
