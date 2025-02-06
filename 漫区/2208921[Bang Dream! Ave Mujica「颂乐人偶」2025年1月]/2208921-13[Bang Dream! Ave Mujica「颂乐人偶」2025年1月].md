@@ -14468,3 +14468,37 @@ soyo哪里只是贝斯妈妈，soyo简直就是侠女<img src="https://static.sa
 才发现6集了，独角兽只在第一话脚本挂了个共作，mygo13话里独角兽就写了四话 ...</blockquote>
 这个独角兽自己解释过，她负责总体架构没空写，就是十本采访时得意的母鸡卡mygo镜像对称
 
+
+*****
+
+####  IVANLIAO  
+##### 19175#       发表于 2025-2-7 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364068&amp;ptid=2208921" target="_blank">skylah 发表于 2025-2-7 00:52</a>
+
+大手也是伸向了海铃
+
+之前还觉得她看似冷淡的表面下是真心对待乐队关心队友的
+
+结果制作组就在第一层 ...</blockquote>
+只能说别把人想得太好了，mujica现在塑造就是很极端，祥子可以一个月不看睦，睦可以真的是双重人格，那也没必要为其他角色预先找补，做好准备面对从来不会主动挽回乐队的海玲和单纯为流量行动的喵梦比较好
+
+*****
+
+####  sauron.j  
+##### 19176#       发表于 2025-2-7 02:40
+
+好像有些事想明白了，为什么这个低气压能拖这么久拖到中期还不解决
+
+因为对于大祥这个角色来说，本集只到母鸡卡第2集。1-4集是系构层面上雷打不动的 初华-出题篇 
+
+
+*****
+
+####  KokutouMikiya  
+##### 19177#       发表于 2025-2-7 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364544&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-7 02:31</a>
+对了，mortis在一本叫《坏心眼的蓝女巫》的童话书上面用蜡笔画叉叉，也许是说的《绿野仙踪》的同人前传《魔 ...</blockquote>
+巧了，魔法坏女巫里的女巫其实是绿色肤色，还有这个音乐剧可以算双女主
+
