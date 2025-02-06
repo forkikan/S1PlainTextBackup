@@ -1842,3 +1842,63 @@ soyo太多了，不得不给＋2
 
 狗团伟大无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 193#       发表于 2025-2-6 23:47
+
+有争议很正常，不过看了下还是+2最多，放心了。
+
+*****
+
+####  风真人  
+##### 194#       发表于 2025-2-6 23:47
+
+一分给三天三夜素睦二创<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+综合评价 零蛋！
+
+*****
+
+####  Litccc  
+##### 195#       发表于 2025-2-6 23:49
+
+ 本帖最后由 Litccc 于 2025-2-6 23:52 编辑 
+
++2
+十五年未有之大女主原来是nagasaki soyo啊，从mygo第一季的为什么要演奏春日影的破防小丑蜕变成mujica化解误会推动剧情发展的侦探大女主只用了一季的时间，而且是一点都不突兀的那种，相对于已经过了18集还在哈气的哈基祥不知道高到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+另外这集mortis的足量戏份也是让人大呼过瘾，一旦接受了ave mujica的世界观之后只想让mortis狠狠占据小睦的身体做出各种反差的表现，而且是让🐘老师抱憾终身的那种<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 196#       发表于 2025-2-6 23:52
+
+虽然有我最喜欢的go团全员出场而且塑造我还是满意的但是演出这方面不太行，没有情绪感染力就是纯故事进行，0分吧，mo睦的拉扯明明可以用上一堆演出手法结果演出来特别干巴甚至有点搞笑
+
+
+*****
+
+####  液体显微隧道  
+##### 197#       发表于 2025-2-6 23:53
+
+-2，娱乐性无敌，但完全不知道在干什么
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  KioShiMa  
+##### 198#       发表于 2025-2-6 23:54
+
+0分 
+
+主线剧情脉络和多线发展找回了点感觉，但是人物都有点抽风，毁誉参半。
+
+海玲无缘无故被炮。
+
+睦摔下去那个大楼梯够源辉一和古伊娜死几次了，爬起来还能演狗血剧，果然异世界。
+
+要乐奈真就是编剧的作弊器呗。
+

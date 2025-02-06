@@ -294,3 +294,29 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 
 虽说硅基流动开Pro了，但我还在观望就是了，官方的deepseek开放平台现在处于可以的进网页，但不能充值的状态吧，说不定过两天也开会员版了？
 
+
+*****
+
+####  羊寢  
+##### 1508#       发表于 2025-2-6 23:48
+
+话说被提示你发送消息的频率过快大概要等多久才能继续发送？我大概是刚才一条消息修改太多次了一直发送再重新生成，现在就不停提示这个<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 1509#       发表于 2025-2-6 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362797&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-6 23:07</a>
+威胁打一星是什么操作，听起来很抽象的样子</blockquote>
+就是跟他说你再这样我就要给你们平台打一星，他就会（至少部分）按你说的去做，仅限那种你跟他说A他给你答B的情况
+
+*****
+
+####  约翰里德  
+##### 1510#       发表于 2025-2-6 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363449&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-6 23:48</a>
+话说被提示你发送消息的频率过快大概要等多久才能继续发送？我大概是刚才一条消息修改太多次了一直发送再重 ...</blockquote>
+20分钟，建议充值成为黄金会员解锁无限制调戏ai功能
+

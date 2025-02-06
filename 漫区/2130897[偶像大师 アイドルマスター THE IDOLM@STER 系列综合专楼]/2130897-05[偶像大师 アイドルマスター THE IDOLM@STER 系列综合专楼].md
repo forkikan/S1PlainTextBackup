@@ -92,3 +92,11 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 【【还没完】闪彩动画大（梗）辞（百）典（科）【动画党眼中的闪彩动画】】 [https://www.bilibili.com/video/B ... cc556defeee1979fb27](https://www.bilibili.com/video/BV13NNHemEhh/?share_source=copy_web&amp;vd_source=7c4a22637017bcc556defeee1979fb27)
 
+
+*****
+
+####  魔灵高达  
+##### 6892#       发表于 2025-2-6 23:50
+
+美铃SOLO1一般，甚至是全角色SOLO1最差的，但是生日曲非常喜欢
+
