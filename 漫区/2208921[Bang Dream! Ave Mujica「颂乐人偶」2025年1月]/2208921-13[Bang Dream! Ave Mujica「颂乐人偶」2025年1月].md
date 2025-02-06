@@ -14545,3 +14545,117 @@ soyo哪里只是贝斯妈妈，soyo简直就是侠女<img src="https://static.sa
 在睦的身上加上魔幻元素（自适应双重人格）在祥子的身上加上现实元素（违约金迈巴赫）还有一集没出现的初华，原地踏步的雇佣兵海铃，直到现在还没吃瘪，意识双重人格的喵梦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来七集剧情即便是样板戏也不会好看到哪去，充斥着编剧的大手
 
+
+*****
+
+####  huxiaopao163  
+##### 19183#       发表于 2025-2-7 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364630&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-2-7 03:20</a>
+
+讲道理开盒开歪了这里刻意了，就为了补情报给狗团，明明爱灯都去过了。编剧写这话的流程自己都写晕了吧，这 ...</blockquote>
+soyo的情报是mortis给的，她的情报又没人给她更新，当然以为还在旧地址。况且从这条线加剧了mortis和小睦的进一步对立，俩人还因为一条过期的情报吵起来了，小睦还以为自己暴露了小祥的地址非常急呢。接下来可能会进一步影响睦祥的关系。
+
+我感觉是个牵一发而动全身的剧情，不能算是一个刻意补情报的设计。
+
+
+*****
+
+####  帆前  
+##### 19184#       发表于 2025-2-7 03:42
+
+本集最大的遗憾是医学意义上的人格分裂症并没有得到众人常识层面的反应，由此产生的一点违和。soyo等人“没想到找医生而是找队友”的思维方式是少女乐队动画的，但是双重人格的尺度实在超出了少女乐队番的范畴，这和众人的思考方式相违，还是造成了常识的违和感。
+
+小莫老师真的留soyo过夜了，可怜soyo太温油了，居然还说什么自己和小睦不算好，直接被小莫老师拿捏：你和小睦好不好我还不知道吗，快和我一起来帮帮小睦
+
+同志们，我感觉soyo对小睦的爱心被小莫老师利用了呀，小莫老师也是个狐狸精😭    
+<img src="https://p.sda1.dev/21/bdf47c474c7a9ca43b9bc2f162183aeb/Screenshot_20250206_220652_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+爱音直接道破真相：你这是被她软禁了呀
+<img src="https://p.sda1.dev/21/2d1832c4da23ac378071d9c47c8bda80/Screenshot_20250206_221453_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小莫老师这集的表现让我想起了我之前的精神病炸团说
+
+我之前猜想的是小莫既是精神疾病，也是故意炸团。小莫和小睦是分裂的精神，小莫想让小睦远离祥子，所以故意炸团，4集的一切都是演的，出于小莫想以自己的方法保护小睦免遭祥子伤害的想法。
+<img src="https://p.sda1.dev/21/6e03b9eae3e77b9f22e6db91e818bbe4/IMG_20250206_225431.jpg" referrerpolicy="no-referrer">
+
+现在看来，精神病是不会错的，都到这份上了，小莫只可能是双重人格了。
+<img src="https://p.sda1.dev/21/5d8695e746a6eb63f58c8740998caa81/Screenshot_20250206_222357_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小莫老师讨厌祥子是毋庸置疑的，但炸团也很可能是误炸，能确定的只不过是离开祥子这个结果她认为是对的，并且应该保持下去。
+
+小莫故意炸团的概率仍不为零，但这操作一定是超过预期的，至少把小睦搞睡一个月不是小莫的愿望。
+
+目前，精神病炸团说能确定的是精神病，炸团不确定是不是有意。
+
+不管小莫是不是有意炸团，这孩子会耍心眼是真的
+
+小睦：我从来没觉得组乐队开心过
+
+小莫：小睦和你都是爱crychic的伙伴哦 
+<img src="https://p.sda1.dev/21/a3c8a7e3b23ecda538f2bd09f74f6825/IMG_20250207_023357.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 19185#       发表于 2025-2-7 03:43
+
+为什么我说莫提斯的人格很大程度上跟初华有关
+
+<img src="https://img.saraba1st.com/forum/202502/07/034232h20ofyo1j0wdj2vy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250207_033901_tv.danmaku.bili.jpg</strong> (216.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 03:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/034232qxuueyqr2kft2fxr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250207_034103_tv.danmaku.bili.jpg</strong> (180.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 03:42 上传
+
+幼年回忆睦的琴弦是七弦琴
+
+<img src="https://img.saraba1st.com/forum/202502/07/034304zsch7umcjhsch6hc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250207_034028_tv.danmaku.bili.jpg</strong> (88.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-7 03:43 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/034304oov7otx5dhsuxlrr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250207_033940_tv.danmaku.bili.jpg</strong> (129.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-7 03:43 上传
+
+现在睦用的吉他是五弦琴
+
+<img src="https://img.saraba1st.com/forum/202502/07/034329suiik4owzw8mk4uo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250207_034132_tv.danmaku.bili.jpg</strong> (241.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 03:43 上传
+
+用七弦琴的是初华
+
+*****
+
+####  lucasxp  
+##### 19186#       发表于 2025-2-7 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364646&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-7 03:37</a>
+soyo的情报是mortis给的，她的情报又没人给她更新，当然以为还在旧地址。况且从这条线加剧了mortis和小睦 ...</blockquote>
+这段剧情是很有必要的，但得想办法设计在和爱灯汇合前，汇合后还依赖单一情报源导致开盒开歪就有点喜剧了
+
