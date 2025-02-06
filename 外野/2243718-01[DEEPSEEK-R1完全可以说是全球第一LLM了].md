@@ -18467,3 +18467,16 @@ r1我不确定替代的，我只用这个<img src="https://static.saraba1st.com/
 我说的正常内容的啊，我不写刘备文的，你确定要吗</blockquote>
 对啊就是正常内容，感谢！
 
+
+*****
+
+####  东风谷草田  
+##### 1465#       发表于 2025-2-6 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359271&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-6 16:31</a>
+
+它这个是免费几个月还是一直有个免费的低级版本？</blockquote>
+暂时免费，但是限定每天50次gemini-pro和1500次gemini-flash的响应
+
+不过可以通过多创建几个项目变相解决这个限制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白天没有DS玩就玩这个了
+
