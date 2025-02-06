@@ -5963,3 +5963,31 @@ bro你脸红了</blockquote>
 
 扒完剧透我竟然感觉还好 完全没上集剧透祥子回丰川家的难受
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 18317#       发表于 2025-2-6 20:52
+
+第七集应该是一个小高光了，既然睦重组am的网络新闻都来了我就猜一个祥子一集治好睦然后双人版新歌（灯的笔记本歌词版）吧，就是缺个唱歌的（）
+
+*****
+
+####  一心而用  
+##### 18318#       发表于 2025-2-6 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360668&amp;ptid=2208921" target="_blank">约翰里德 发表于 2025-2-6 19:49</a>
+有生放送地址吗，有的话求一个</blockquote>
+官方放的【迷途之子!!!!!&amp;颂乐人偶 声优B限直播 #5-哔哩哔哩】 https://b23.tv/8b4bUgi
+
+*****
+
+####  fosanoha  
+##### 18319#       发表于 2025-2-6 20:56
+
+情报哥来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么又哭啊？上周哭这周也哭？上周也妹俩人哭啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
