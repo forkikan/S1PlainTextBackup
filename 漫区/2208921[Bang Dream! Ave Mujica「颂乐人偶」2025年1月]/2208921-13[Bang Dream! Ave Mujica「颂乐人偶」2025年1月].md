@@ -5908,3 +5908,31 @@ bro你脸红了</blockquote>
 
 我猜想可能没有佐佐木李子是障眼法，如果是回忆出场的话。那么小时候初华出场配音可能不是李子
 
+
+*****
+
+####  天空塔书记官  
+##### 18312#       发表于 2025-2-6 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360434&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 19:12</a>
+不用演技？Mortis就是演技的产物
+
+我从第一眼看到Mortis到现在，脑袋里都是下面这句话，没错，我至今认为 ...</blockquote>
+不是，老哥
+
+我的意思是不可能切割睦作为“莫提斯”的那部分，要么融合，要么共存
+
+而且我一直坚持“面具论”和自我心理暗示，“莫提斯”本身是作为工具而存在的，它不能作为一个个体被“好坏”来评价，所以讨论消灭“莫提斯”是没什么意义的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  小博禹  
+##### 18313#       发表于 2025-2-6 20:14
+
+总不能是初华双重人格换声优<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

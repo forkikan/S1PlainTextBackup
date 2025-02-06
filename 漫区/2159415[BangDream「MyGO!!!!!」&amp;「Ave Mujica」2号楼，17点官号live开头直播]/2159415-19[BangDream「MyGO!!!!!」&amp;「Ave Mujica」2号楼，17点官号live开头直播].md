@@ -3636,3 +3636,12 @@ Mujica免费live [https://live.bilibili.com/31160604](https://live.bilibili.com/
 
 已带面包虫完成爱祥大学习
 
+
+*****
+
+####  SakuraのOrigami  
+##### 26911#       发表于 2025-2-6 20:12
+
+管人团新曲，TRASH LIFE
+<img src="https://p.sda1.dev/21/c4192f56b6cf77746aead7f6a2d02928/IMG_4A56ED537CDF75B0AC78CBACCC5CAC1A.png" referrerpolicy="no-referrer">
+
