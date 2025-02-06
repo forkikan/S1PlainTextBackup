@@ -18004,3 +18004,13 @@ https://cloud.siliconflow.cn/i/XRBdLLtf
 
 终于搞定硅基那边了，注册你我都拿2000万tokens
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 1421#       发表于 2025-2-6 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355389&amp;ptid=2243718" target="_blank">zeroboss1 发表于 2025-2-6 01:00</a>
+DeepSeek创始人受邀去美开研讨会</blockquote>
+谁去谁傻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
