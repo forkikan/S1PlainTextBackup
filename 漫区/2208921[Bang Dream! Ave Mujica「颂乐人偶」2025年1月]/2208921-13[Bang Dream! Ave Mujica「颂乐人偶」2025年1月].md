@@ -14337,3 +14337,66 @@ b站翻译其实没啥问题
  ...</blockquote>
 我猜是跟美奈美有关，前面话题刚提到美奈美她马上就打给木头了，我真怀疑睦头手机上有监听器啥的
 
+
+*****
+
+####  天空塔书记官  
+##### 19162#       发表于 2025-2-7 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364450&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 02:03</a>
+看爱音手机就是墨第一视角
+
+而且比起手机更像她对手机壳呲牙,她之前去上台，别人难道不掏手机吗？ ...</blockquote>
+额，在表演时，除非有录像许可的曲目，实际上是不会有人拿手机怼在脸上拍的，盗摄也不可能让人随便就能看见<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  友善用户  
+##### 19163#       发表于 2025-2-7 02:10
+
+我越来越怀疑莫是祥子青梅竹马了。
+
+
+*****
+
+####  Mika-S  
+##### 19164#       发表于 2025-2-7 02:13
+
+虽然但是，这集主唱直接人间蒸发了略显难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19165#       发表于 2025-2-7 02:15
+
+如果是故意这么安排的就不难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Fakerの幻影  
+##### 19166#       发表于 2025-2-7 02:15
+
+<img src="https://p.sda1.dev/21/d842b6a38b02cb5e4c1c5368ecefa015/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 19167#       发表于 2025-2-7 02:16
+
+会不会睦头有什么童年阴影，在很小的时候和saki拿着鞋子玩打电话过家家的时候，收到刺激分裂出了墨。因此墨潜意识里鞋子是一种电话。
+
+这也对得上祥说的，睦头小时候很爱笑很能说。也因为墨被分离出来了，睦头语言表达能力和表演能力自此缺失了，她的童星生涯也就结束了去上学。毕竟ccc和狗时期睦头就没有啥童星业务了，但是很多人都认识她。
+
+*****
+
+####  fuwamoco  
+##### 19168#       发表于 2025-2-7 02:18
+
+<blockquote>天空塔书记官 发表于 2025-2-7 02:10
+额，在表演时，除非有录像许可的曲目，实际上是不会有人拿手机怼在脸上拍的，盗摄也不可能让人随便就能看 ...</blockquote>
+也不是说上台，她顶号了好一段时间呢，不仅上台下台还要和mujica社交出去采访拍广告。这段时间一次都见不到手机？别人看到她对手机这么大反应不奇怪？
+
