@@ -14779,3 +14779,52 @@ mujica世界的路人：哦哦这也是计划的一部分. jpg
 
 mortis从楼梯摔下去，如果硬要解释的话，这算是“艺人魂”吧，搞笑艺人看到香蕉皮就要故意踩上去摔一跤，让观众笑起来，mortis真的是完美继承了父母的演技，大喵老师输得透透的
 
+
+*****
+
+####  帆前  
+##### 19196#       发表于 2025-2-7 04:39
+
+mujica该往何处去？哦，我天哪事到如今在本番“我就是要写双重人格病态多角虐恋故事口牙！”的主张面前，这个问题甚至都不被关心了。
+
+海铃甚至都一脸懵了：你说那个神人乐队？我有什么care它的必要吗
+<img src="https://p.sda1.dev/21/2a58b336d25d71b6074826e95178f307/Screenshot_20250206_221914_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+很符合mujica目前的团魂，那就是没有哇😅
+
+当然也可能是海铃心中暗暗在意，回头下集就爆了（
+<img src="https://p.sda1.dev/21/944a08e6b1f6da90a7380240b2458c87/Screenshot_20250206_221948_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+本集的小猫乐奈！这小猫好哇，她通人性，她会弹【有灵魂的吉他】唤醒里人格，豪猫？灵猫！
+<img src="https://p.sda1.dev/21/e14ca5f1c9406338a3b5d6cfbab67826/Screenshot_20250206_221317_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+还能叫soyo吃小莫的醋，哎长崎素世就是这么感情充沛的人呢，一款很容易幽怨型JK
+<img src="https://p.sda1.dev/21/550e43a4978190dfe3123e7f16a479cc/Screenshot_20250206_222014_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+哄孩子过家家，
+<img src="https://p.sda1.dev/21/38524965803d786fb392b1c4963769ba/Screenshot_20250206_220957_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+陪孩子睡觉，
+<img src="https://p.sda1.dev/21/d3cd21877cc769f11ba22ce46adf1e5a/Screenshot_20250206_223547_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+保护孩子，
+<img src="https://p.sda1.dev/21/07da347bd3b5b82b25ddcaa5d6eb8997/Screenshot_20250206_222955_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+为了孩子出门找前任，
+<img src="https://p.sda1.dev/21/3acbc1be495f8d0098638d77afca1da2/Screenshot_20250206_223722_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+这这这，staff没有在搞16岁单身妈妈，绝对没有（心虚）
+
+小莫这孩子越品越哈人，一口一个soyo酱，小睦都是叫soyo的
+<img src="https://p.sda1.dev/21/a13555b6e00f8356399ee593e486be66/Screenshot_20250206_222053_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+看着跟为了小睦而猎取队友似的
+
+可怜soyo被套牢哩
+
+接下来真没人知道怎么演，也许这是祥子最后一次嘴硬，下集就服软了；也许海铃又爆了
+
+现在问就是灯祥爱灯爱素海希怎么办，祥子那边？把雷拆好也就行啦
+
+指望角色们完完全全合常识是不可能如愿的，指望主线在现实主义方向挖掘也是不可能如愿的，现在只能指望一些角色互动不要牵强，纠缠的角色关系都能得到充分的展开。mujica也算是把人看原创番的心态扭转为好像看同人圈整大活了（
+
