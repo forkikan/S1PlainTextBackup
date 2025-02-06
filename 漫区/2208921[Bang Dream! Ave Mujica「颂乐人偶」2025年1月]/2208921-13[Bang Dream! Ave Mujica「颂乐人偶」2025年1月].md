@@ -9313,3 +9313,1429 @@ mortis滚完楼梯居然不进医院还能当众演戏笑死我了，祥子真�
 木头真别几把舔那大祥了 求求了</blockquote>
 懂不懂半身的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十万年魂环  
+##### 18679#       发表于 2025-2-6 23:06
+
+旧高父的梗，不会真给融了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 18680#       发表于 2025-2-6 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362676&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 23:00</a>
+
+她们得罪了祥子，然后祥子气的书都不读了当即转学跑路是吧，你和高松灯一样平时视角都是边缘虚化时常会跌 ...</blockquote>
+我不理解你的脑回路，但是MyGO都播一年半了，你要是真的觉得有问题，你今天才发现？你真的看过MyGO吗？
+
+另外你要注意，讨论可以，不要人身攻击
+
+
+*****
+
+####  zxtree  
+##### 18681#       发表于 2025-2-6 23:06
+
+祥子-阿斯兰 睦-尼高尔
+
+*****
+
+####  安娜导函数  
+##### 18682#       发表于 2025-2-6 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362398&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-6 22:46</a>
+完全没人记得初华，仿佛对这帮人就是喵梦级别的外人</blockquote>
+别碰瓷我们多栖艺人喵梦桑，大喵老师每一话至少都有单独的镜头描写的，岂是你sumimi的一条能比的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 18683#       发表于 2025-2-6 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362686&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 23:01</a>
+那你让Soyo怎么办，睦的父母是顶级名人，没有他们的同意直接带睦去看医生，还是通知媒体把这事闹大？如果 ...</blockquote>
+哈？你觉得后面mortis自由出入的样子像是父母在乎名声吗？我建议你不要用我们现实世界的逻辑去圆了，毕竟编剧都不在乎。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 18684#       发表于 2025-2-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362757&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-2-6 23:04</a>
+木头真别几把舔那大祥了 求求了</blockquote>
+我对睦的感觉是，被锁定的奖杯，塞在了保险柜里，只要勇者来了就会移动过去，别人都不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，总不能为了祥子母亲的约定吧，那也太拟人了
+
+*****
+
+####  cxj649  
+##### 18685#       发表于 2025-2-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362553&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-6 22:54</a>
+
+其实比起大祥。坐实soyo三天待在家里更加说明这剧情拟人吧。都这样了为什么还不看医生？父母又去哪了？
+
+ ...</blockquote>
+事实上按她父母的设定，不给看医生才是现实逻辑
+
+*****
+
+####  厚乳果珍爽  
+##### 18686#       发表于 2025-2-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361789&amp;ptid=2208921" target="_blank">石狮鬼 发表于 2025-2-6 22:23</a>
+
+致敬传奇大女主机战动画 天使与龙的轮舞</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/06/230706ygmt7tzm3xzn7ypz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250206230647.png</strong> (77.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:07 上传
+
+三天三夜，被我猜到了！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  是谁的书画  
+##### 18687#       发表于 2025-2-6 23:07
+
+炒作勾看谁都是炒作勾，典，人设安排的其实很一以贯之
+
+*****
+
+####  天空塔书记官  
+##### 18688#       发表于 2025-2-6 23:07
+
+木头和祥子的童年回忆还没有展开，只能说还不急，就连她们最初如何建立关系性的都不知道，其他的就更别提了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sxfox  
+##### 18689#       发表于 2025-2-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362597&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-6 22:56</a>
+
+soyo不至于不知道吧，祥子是丰川家的这事难道不应该是月之森学生都知道只不过大家都是大小姐懒得提而已？ ...</blockquote>
+我是觉得那里特意让爱音对素世比第二遍tgw就是对应之前给明显不知道的灯比，素世这种知道祥子是大小姐确实不会有什么反应。
+
+至于月之森的情况，其实按之前校内的氛围来看是属于那种“傻白甜”大小姐学校的氛围，而不是会去关注同学家庭背景的，不然素世篇很容易就可以引入大小姐们冷淡暴发户的剧情了。
+
+再说丰川也就是大财团的程度，又不是唯一，前作还有更夸张的也不至于到听个姓就能联想到的程度吧
+
+*****
+
+####  xwr  
+##### 18690#       发表于 2025-2-6 23:08
+
+我现在就想看soyo爆锤祥子。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 08df1258c5ed098| + 1|气氛都到这了，真得揍一顿|
+
+查看全部评分
+
+*****
+
+####  怀沙汨罗  
+##### 18691#       发表于 2025-2-6 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362800&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-6 23:07</a>
+事实上按她父母的设定，不给看医生才是现实逻辑</blockquote>
+那按照你给的逻辑，她父母怎么把她放出门的？怎么还能让同学探监的？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 18692#       发表于 2025-2-6 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362746&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-6 23:04</a>
+
+这集播完我绝望地认为鸡团角色厨今后在狗团粉面前已经抬不起头了</blockquote>
+此事种命时期亦有记载，而且这话后半部分我越看越觉得这不是救场而是准备把饭喂到你嘴边<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 18693#       发表于 2025-2-6 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362805&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-6 23:07</a>
+木头和祥子的童年回忆还没有展开，只能说还不急，就连她们最初如何建立关系性的都不知道，其他的就更别提了 ...</blockquote>
+然后发现soyo这几集怎么陪伴都没有被睦有记住吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，又垫人了你没发现吗
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 18694#       发表于 2025-2-6 23:08
+
+我觉得没问题。
+
++2了。
+
+*****
+
+####  Libartas  
+##### 18695#       发表于 2025-2-6 23:08
+
+其实这集的一些信息差有点刻意了，这集开头灯音都从丰川宅回来了，soyo从墨老师那要来的结果是赤羽的祥爹出租屋地址，合着在ring碰头以后呆到晚上你们的交流真就台词那几句？
+
+*****
+
+####  Lyzers  
+##### 18696#       发表于 2025-2-6 23:08
+
+不可以看医生因为会影响声誉，但是可以让精神分裂的女儿自由出入并且给大伙表演一个一人二角啊，多现实啊
+
+*****
+
+####  cauchua3  
+##### 18697#       发表于 2025-2-6 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362363&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-6 22:44</a>
+
+soyo只走到门口看到丰川姓氏的名牌就跑了啊，上面没写具体名字，她回去搜也不是搜的祥子她爸的名字，只搜 ...</blockquote>
+这也好找补，虽然事情是1年前发生的，但是新闻有可能是刚出，新闻里可是说罪犯落网，有可能是没那么快。说不定当时搜了没搜到，现在事情了解了
+
+*****
+
+####  JustW  
+##### 18698#       发表于 2025-2-6 23:09
+
+Mortis前有舞台演抽象剧然后乐队解散，后有池袋街头演双簧然后登上热门，睦父母还是当死了比较合理，否则俩明星孩子这样了也没个媒体追问的他们的<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 18699#       发表于 2025-2-6 23:09
+
+我现在感觉键帽这个角色是真洗白了。
+哦不对，因该说是被漂白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+键帽，你这家伙，拿了男频主角剧本是吧。
+
+*****
+
+####  ntrntr1  
+##### 18700#       发表于 2025-2-6 23:09
+
+初华不出场肯定也在和甜甜圈女士三天三夜
+
+忘记小祥吧。。。。
+
+*****
+
+####  无事忙  
+##### 18701#       发表于 2025-2-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360692&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-6 19:53</a>
+
+睦祥半身有点像隔壁V区的meaqua，怪不得那么好球区。这种有异味的CP感觉欣赏的人挺少的。 ...</blockquote>
+咩夸甜的像爱言叶，祥睦大部分时间比不了啊。
+
+*****
+
+####  厉飞雨  
+##### 18702#       发表于 2025-2-6 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以睦头父母的身份怎么可能去看医生
+甚至那些舆论操作，把发疯说成演技，都可能是她父母的手笔
+
+*****
+
+####  天空塔书记官  
+##### 18703#       发表于 2025-2-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362827&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-6 23:08</a>
+然后发现soyo这几集怎么陪伴都没有被睦有记住吧，又垫人了你没发现吗</blockquote>
+?
+
+素世陪的不是“莫提斯”吗 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猫执事  
+##### 18704#       发表于 2025-2-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362599&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-6 22:56</a>
+
+睦也在乎SOYO的。。。
+
+她不让SOYO找祥子是想起上次下跪怕SOYO又伤心。。。 ...</blockquote>
+深知祥子开口伤人的能力，“对健康不好”
+
+*****
+
+####  一心而用  
+##### 18705#       发表于 2025-2-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362535&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 22:53</a>
+海铃这个和祥子比起来确实不算什么，祥子属于是前三集以为这个角色已经到底了，结果第四集第五集还能继续 ...</blockquote>
+第六话还在打洞这个是前面看访谈就知道的啊，第七话标题表明下一话开始才是回升的时候。能不能拉回来这个不敢打包票但是难度没有想象中那么大。
+这一话的祥子是上一话的行尸走肉到开始吸了点阳气有还魂迹象但生理上还处于逃避阶段，距离结束逃避阶段只差一个“破防时刻”。
+
+*****
+
+####  595505568  
+##### 18706#       发表于 2025-2-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362855&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-6 23:09</a>
+?
+
+素世陪的不是“莫提斯”吗 </blockquote>
+所以我在楼里曾经说过一个东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我找给你看，等下）
+
+*****
+
+####  borrowface  
+##### 18707#       发表于 2025-2-6 23:10
+
+ 本帖最后由 borrowface 于 2025-2-6 23:14 编辑 
+
+mujica结束前我想看到：
+
+谁给祥子来一巴掌
+
+谁给喵睦来一巴掌
+
+*****
+
+####  NaAgfykp  
+##### 18708#       发表于 2025-2-6 23:10
+
+算是把饭喂给🐶团？
+感觉太逆天了这集
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  单脚着地  
+##### 18709#       发表于 2025-2-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362777&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 23:06</a>
+
+我不理解你的脑回路，但是MyGO都播一年半了，你要是真的觉得有问题，你今天才发现？你真的看过MyGO吗？
+
+ ...</blockquote>
+我觉得有问题难道需要我看的时候翻出S1找到你给你发私信通知你吗？
+
+*****
+
+####  NaAgfykp  
+##### 18710#       发表于 2025-2-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362869&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-2-6 23:10</a>
+算是把饭喂给🐶团？
+感觉太逆天了这集</blockquote>
+哦，对了，想看祥子飞一个
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  椎名mahuyo  
+##### 18711#       发表于 2025-2-6 23:10
+
+感觉现在这情况大祥只能靠别人比如圣初华这种捞起来了，自我觉醒大女主这条路也太难了
+
+*****
+
+####  KokutouMikiya  
+##### 18712#       发表于 2025-2-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362659&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 23:00</a>
+没让你出手，稍微有点表现也好啊，哪怕立希回问的时候意识到点什么呢，结果还是完全不懂。虽然知道后面几 ...</blockquote>
+她不是不懂，单纯的对此事冷漠而已，一种不想引火烧身的ptsd心态。按照小王子假药，这种冷漠估计也是故意的，逼自己不去在意，很别扭
+
+*****
+
+####  大户爱  
+##### 18713#       发表于 2025-2-6 23:11
+
+初华这个角色后面肯定有大的，其他假药我不信，但初华作为主唱，不可能就这点戏份和单薄的人设。
+
+但这大的能不能写好，我就不知道了。
+
+*****
+
+####  南宮凝香  
+##### 18714#       发表于 2025-2-6 23:11
+
+<blockquote>新HGCG 发表于 2025-2-6 22:59
+首先确认一点
+
+官方什么的从没宣传过祥子是什么“大女主”
+
+对吧</blockquote>
+同樣也沒有說她是爛女主
+
+我覺得首先目標是當個人
+
+自家兄弟街頭上瘋了，
+
+還要因為面子（或是其他什麼東西） 跟她切割
+
+恐怕是連祥黑也無法輕易採用的設定
+
+*****
+
+####  darkXcross  
+##### 18715#       发表于 2025-2-6 23:11
+
+双重人格这种概念在想认真写细腻情感的剧本里就是致命毒药，救不回来了。
+
+*****
+
+####  595505568  
+##### 18716#       发表于 2025-2-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362855&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-6 23:09</a>
+?
+
+素世陪的不是“莫提斯”吗 </blockquote>
+一早因为上班情绪低落，突然想到一个素睦关系性被彻底垫掉的滑坡脑洞，莫和素还有Go团尽全力把睦拉到苏醒边际，然后祥子收尾+mortis自毁融合的时候，mortis只融合了人格，睦昏迷的时期的记忆一点没有留下，最后素世他们只能当这一切没发生过后离开。
+这是我昨天9点早上发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|哦，这个啊|
+
+查看全部评分
+
+*****
+
+####  raii  
+##### 18717#       发表于 2025-2-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362744&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-6 23:04</a>
+
+第十话，我能说诗超绊情绪流加上之前该解决的大问题搞定了七七八八，至少立希、爱音、猫的问题好解决，So ...</blockquote>
+嘛，一帮子【无自觉】的人，处理手段比一帮子【迷路】的人，过激一点也正常
+
+都无自觉了，不过激，那是打不醒的嘛
+
+不妨就接受她们就是个个有毛病，全员神人，再继续看，或者决定弃了咯
+
+感觉现在这个舆论环境，好像有太多人该弃不弃，生理性厌恶了还是要吃，也不知道是觉得不吃回不了本，还是别的什么
+
+要是真邦邦人打钱的那种，到时候游戏上线了不抽，碟子不买，不也完事了嘛
+
+*****
+
+####  yaneis  
+##### 18718#       发表于 2025-2-6 23:11
+
+<blockquote>aptx8285144 发表于 2025-2-6 23:03
+大祥先不论，海铃这集也被“拷打”了，独角兽和柿本真得是怪外抹角地暗示距离大祥越近，连人格都出问题了 ...</blockquote>
+大祥本人都受影响了，木头什么情况第四集都跳脸告诉你了，第六集仿佛第一次听到一样，连相隔两集的动画都能出问题那后面铁定没救了（
+
+*****
+
+####  kiddom  
+##### 18719#       发表于 2025-2-6 23:11
+
+这么紧凑的节奏里还能凑出一分钟让mortis摔楼梯<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+建议直接摔出个脑震荡送医院 然后下一集突然人格恢复母鸡卡在医院包饺子光速结束<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 18720#       发表于 2025-2-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362800&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-6 23:07</a>
+事实上按她父母的设定，不给看医生才是现实逻辑</blockquote>
+有没有一种可能，邦邦就是这么个玩意，没骂起来只是因为老中没人看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 18721#       发表于 2025-2-6 23:11
+
+<img src="https://p.sda1.dev/21/63e6696fbae67e00ccc851e1f2e1db92/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/57f2d3888191a1ea48d9e94ef695ed23/image.jpg" referrerpolicy="no-referrer">
+今晚我笑得很开心
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 18722#       发表于 2025-2-6 23:12
+
+<blockquote>595505568 发表于 2025-2-6 23:11
+一早因为上班情绪低落，突然想到一个素睦关系性被彻底垫掉的滑坡脑洞，莫和素还有Go团尽全力把睦拉到苏醒 ...</blockquote>
+真给你蒙中大部分了，可是一点be美感都没有，可能是因为这集太搞笑了
+
+*****
+
+####  fsfs_freeze  
+##### 18723#       发表于 2025-2-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314829&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-30 23:31</a>
+说实话，这集的观感明显好于前四集，但也成功彰显了前四集（尤其是ep4）实际上有多么抽象。
+
+所以独角兽大 ...</blockquote>
+好写！不过该烂还是烂
+
+*****
+
+####  风道北来  
+##### 18724#       发表于 2025-2-6 23:12
+
+能请传奇切割王大祥老师把第一季和第二季切割开吗
+
+一想到第一季还专门留了一集垫给第二季我就很想笑
+
+*****
+
+####  08df1258c5ed098  
+##### 18725#       发表于 2025-2-6 23:12
+
+就算睦父母神到对女儿不管不问，那路人就不会好奇到去盘问父母吗？难道作为公众人物也不用在乎影响吗？
+
+*****
+
+####  猫执事  
+##### 18726#       发表于 2025-2-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362679&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-6 23:01</a>
+
+说难听点现在的睦，比mygo时期的soyo还卑微，快成舔狗了，真的看得不舒服，有必要吗 ...</blockquote>
+归根结底还是没讲清楚她俩小时候怎么认识的，总不见得是她妈为了巴结财团安排的吧。
+
+*****
+
+####  595505568  
+##### 18727#       发表于 2025-2-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362887&amp;ptid=2208921" target="_blank">raii 发表于 2025-2-6 23:11</a>
+嘛，一帮子【无自觉】的人，处理手段比一帮子【迷路】的人，过激一点也正常
+
+都无自觉了，不过激，那是打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这两季就是圣伊丽莎白医院科室建设史
+然后是圣伊丽莎白与老病人…这也太过激了
+
+*****
+
+####  L-JoeW  
+##### 18728#       发表于 2025-2-6 23:13
+
+呃，这集让声优看完之后都集体沉默的地方在哪<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 18729#       发表于 2025-2-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362818&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-6 23:08</a>
+
+那按照你给的逻辑，她父母怎么把她放出门的？怎么还能让同学探监的？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+维持正常啊，而且别忘了大莫老师是个正常心智无暴力的人格
+
+*****
+
+####  JustW  
+##### 18730#       发表于 2025-2-6 23:13
+
+这就是wsd正常水平，此事在老团亦有记载，先睡了
+
+*****
+
+####  595505568  
+##### 18731#       发表于 2025-2-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362903&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-6 23:12</a>
+真给你蒙中大部分了，可是一点be美感都没有，可能是因为这集太搞笑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这下是我难过的地方
+
+*****
+
+####  JustW  
+##### 18732#       发表于 2025-2-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362921&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2025-2-6 23:13</a>
+呃，这集让声优看完之后都集体沉默的地方在哪</blockquote>
+至少我看到mortis滚下楼梯然后爬起来尬演确实是沉默了
+
+*****
+
+####  厄神之息  
+##### 18733#       发表于 2025-2-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362249&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-6 22:39</a>
+
+猫；猫mygo里就很灵异电波了；一眼有趣无趣，听到诗歌一部分就冲上去伴奏，纯纯的心灵探针 ...</blockquote>
+不，mygo里猫还只是电波，随心所欲而已。有趣是因为灯说要“组一辈子乐队”和她缺的归属对上了，觉得无趣是灯说要组一辈子乐队，遇到事又唯唯诺诺优柔寡断拿不定主意，不像是能一辈子的样子，觉的她也是个只有嘴的人。至于随风来随风去想干嘛干嘛，这些就属于突出她自由，有一些像猫的非人感人设而已。
+
+但鸡这里直接化身暮光之眼，一言不发，一眼看穿精神世界，断定眼前这个没见过的人是双重人格，还精准的用了“睡着了”这个词。这是纯纯超能力范畴了。
+
+*****
+
+####  ntrntr1  
+##### 18734#       发表于 2025-2-6 23:14
+
+海玲其实还是很好洗的，什么经历了太多乐队吵架，开始天真介入最后反而两面不是人一样是解散的下场决心不动真感情。。。。 或者就被点醒了你找不到归宿感是因为你怂你和祥子一样怕受伤
+
+毕竟客观的来说这解散她是一点锅分不到的吧。。。。属于好好打着打着工队友凹的一下神展开了，甚至可能平时她看的还是当众撕逼，这团到底在撕啥她都完全不明白
+
+*****
+
+####  yaneis  
+##### 18735#       发表于 2025-2-6 23:14
+
+<blockquote>L-JoeW 发表于 2025-2-6 23:13
+呃，这集让声优看完之后都集体沉默的地方在哪</blockquote>
+反正我沉默了，就是不知道她们是不是和我一样的理由（
+
+*****
+
+####  kiddom  
+##### 18736#       发表于 2025-2-6 23:14
+
+再补一句：这一集的单集导演绝对有病。太多意义不明镜头了。
+摔楼梯一分钟。mortis自动跟随追猫一分钟。大猫吃特辣拉面吃完还话痨两分钟。无语。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 18737#       发表于 2025-2-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362829&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-2-6 23:08</a>
+其实这集的一些信息差有点刻意了，这集开头灯音都从丰川宅回来了，soyo从墨老师那要来的结果是赤羽的祥爹出 ...</blockquote>
+很显然没交流因为注意力都在睦身上谁会往祥子身上想，别忘了上一季soyo竭尽全力pua睦也只是堵到了祥子一次。mortis是唯一知道祥爹出租屋在哪里的人，但她也不知道祥子回丰川家了。
+我反正看到这一幕还是觉得编排是很精妙的。
+
+*****
+
+####  iiiiiiiiii  
+##### 18738#       发表于 2025-2-6 23:14
+
+我弃了有缘再见
+
+*****
+
+####  fuwamoco  
+##### 18739#       发表于 2025-2-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362937&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-6 23:14</a>
+
+不，mygo里猫还只是电波，随心所欲而已。有趣是因为灯说要“组一辈子乐队”和她缺的归属对上了，觉得无趣 ...</blockquote>
+其实灯以前就对爱音精神世界说的话有反应
+
+*****
+
+####  pokemon最爱  
+##### 18740#       发表于 2025-2-6 23:15
+
+祥子爹的事我觉得很好理解啊，之前狗团这几个人没把这个新闻和祥子的情况联系上，这集获取情报后把信息串起来联系上了，很正常。
+
+*****
+
+####  aptx8285144  
+##### 18741#       发表于 2025-2-6 23:15
+
+这话完全石锤大祥没来见过睦，你就说这人设真得比种命tv时期真飞鸟好吗（鸟从开始到最后都没有对不起密涅瓦号），反正管它后面怎么奋起，柿本和独角兽脑子瓦特了对一个不是反派的主角下黑手到这个程度，叹为观止，不是祥党都感觉你们太极端了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 18742#       发表于 2025-2-6 23:15
+
+mujica 现在是很乐，鸡团成员人均开了界王拳的旧版 soyo，你说喜欢肯定是难以喜欢，但很有观赏性。
+
+猜测火气大的或许是真企划推或者买了谷子的角色推？
+
+总有人拿角色行为不体面说是，但在这种气氛里，行为极端还能说是性格命运使然，这时候还知道收着经营人情才是真的编剧大手吧。
+
+记得这次鸡团 wsd 确实放话过不是传统王道的乐队，估计最后都会维持着这种内部战犯的关系，用更大的目标凝聚了，但过去的伤痕和假面下的真面目不会被清算。
+
+*****
+
+####  是谁的书画  
+##### 18743#       发表于 2025-2-6 23:15
+
+大祥破防的还不够啊，我怎么看着全片都在破防，单论这点看了六集一直破防一直破防的体验真的很差。
+
+然后你还要和我说，下级继续破防，不破不立。
+
+是啊，这谁不知道，但这好看吗？
+
+然后后面大祥开启新人类模式一路凤傲天到结尾，这也不好看啊。
+
+*****
+
+####  wwwttth  
+##### 18744#       发表于 2025-2-6 23:15
+
+话说其实我感觉最离谱的一点，168亿为啥c团解散的时候就发的新闻，现在才搜到，总不能soyo不知道祥子是丰川家大小姐吧？只能解释成就没想过祥子退团的原因可能和丰川集团有关，但是凭soyo后面那尿性怎么看怎么突兀。
+
+*****
+
+####  怀沙汨罗  
+##### 18745#       发表于 2025-2-6 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362924&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-6 23:13</a>
+维持正常啊，而且别忘了大莫老师是个正常心智无暴力的人格</blockquote>
+正常？指的是一个月不上学关在房间里然后还会用鞋子打电话的正常人格吗？大哥你能别给编剧洗地了吗？你觉得这几集哪里在刻画一个正常人？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ntrntr1  
+##### 18746#       发表于 2025-2-6 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362921&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2025-2-6 23:13</a>
+
+呃，这集让声优看完之后都集体沉默的地方在哪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看同事表演双重人格给干沉默了
+
+*****
+
+####  一心而用  
+##### 18747#       发表于 2025-2-6 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362842&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 23:09</a>
+Mortis前有舞台演抽象剧然后乐队解散，后有池袋街头演双簧然后登上热门，睦父母还是当死了比较合理，否则俩 ...</blockquote>
+渡濑结月的访谈已经很明显把睦父母判定作为非正常父母了，可以说是刻意但在这里并没有啥问题。
+要是正常父母睦都走不到今天这一步。
+
+*****
+
+####  怀沙汨罗  
+##### 18748#       发表于 2025-2-6 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362921&amp;ptid=2208921" target="_blank">L-JoeW 发表于 2025-2-6 23:13</a>
+呃，这集让声优看完之后都集体沉默的地方在哪</blockquote>
+反正我看到双重人格公开处刑那里沉默了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  猫执事  
+##### 18749#       发表于 2025-2-6 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362703&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-2-6 23:02</a>
+
+说鸡团没有团魂所以没人管大莫老师的
+
+这个涉及人物底线
+
+主要角色可全都是漂漂亮亮的JK欸</blockquote>
+尤其是 睦每次在路人眼里都是可爱得让人忽略一切不对劲的地方。
+
+*****
+
+####  高妹控  
+##### 18750#       发表于 2025-2-6 23:17
+
+这话B站最高在线人数是多少啊，我看完时是14W+，时间大概10:27左右，不管怎么说，WSD这炒作狗是得逞了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  单脚着地  
+##### 18751#       发表于 2025-2-6 23:17
+
+角色的行为逻辑前后冲突又不是第一天了，只要最后整体观感没问题就是无伤大雅的小缺陷，翻车了就是编剧傻逼
+
+*****
+
+####  zhigui  
+##### 18752#       发表于 2025-2-6 23:17
+
+其实今晚祥子这句话虽然烂但是挺好找补的
+
+下一集在睦前面跪下来哭着对睦说“对不起，对不起，我只想要睦回来”这集的台词也是能捞回来的
+
+捞归捞，能写出这个台词太变态了
+
+独角兽真不是橡木内部恨吗
+
+*****
+
+####  gaayas  
+##### 18753#       发表于 2025-2-6 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363004&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-6 23:17</a>
+其实今晚祥子这句话虽然烂但是挺好找补的
+
+下一集在睦前面跪下来哭着对睦说“对不起，对不起，我只想要睦回 ...</blockquote>
+目前来看应该是鸡团内部恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yaneis  
+##### 18754#       发表于 2025-2-6 23:18
+
+<blockquote>aptx8285144 发表于 2025-2-6 23:15
+这话完全石锤大祥没来见过睦，你就说这人设真得比种命tv时期真飞鸟好吗（鸟从开始到最后都没有对不起密涅瓦 ...</blockquote>
+第五集的麻木私人人设还能救救，王道剧情重新燃起组乐队观感还是不错的，没想到第六集就跌成了又怂又烂的小人，这low到地心了，王道剧情都救不好
+
+*****
+
+####  未来起航  
+##### 18755#       发表于 2025-2-6 23:18
+
+真的牛逼。观众打第一季半截就猜得出来的家庭变故，先是第一季结束才给个“皇军的官方认证”，再是又拖了半季才透露给mygo几个。
+这种信息差是有啥好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  安娜导函数  
+##### 18756#       发表于 2025-2-6 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362620&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 22:58</a>
+祥爹肯定是要处理的，不然维持这个b样到大结局也膈应，不过我很怀疑制作组处理现实问题的能力了，双重人格 ...</blockquote>
+好处理啊，老登为了外孙女，把中登召回去安排个项目把亏本的赚回来不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  守望者404  
+##### 18757#       发表于 2025-2-6 23:19
+
+soyo刀子嘴豆腐心妈妈伟大，上集祥子走的时候给个祥爹特写，还以为这人是故意气走，想多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 18758#       发表于 2025-2-6 23:19
+
+虽然现在期待给祥子友情破颜拳的比较多，但是吧，就猫弹吉他一秒唤醒睦来说
+
+估计最后还得音乐力量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 18759#       发表于 2025-2-6 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362890&amp;ptid=2208921" target="_blank">kiddom 发表于 2025-2-6 23:11</a>
+这么紧凑的节奏里还能凑出一分钟让mortis摔楼梯
+建议直接摔出个脑震荡送医院 然后下一集突然人格恢复母鸡卡 ...</blockquote>
+我也想到这摔一下是不是又要多一个人格或者强行换号换成睦头了，结果并没有。最搞的是狗团众人明明看到人掉下去跑过来了，不知道是被吓愣了还是什么原因扶都不扶一下，还让莫老师跑到街上表演相声去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暴走的包子  
+##### 18760#       发表于 2025-2-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363004&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-6 23:17</a>
+
+其实今晚祥子这句话虽然烂但是挺好找补的
+
+下一集在睦前面跪下来哭着对睦说“对不起，对不起，我只想要睦回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真能捞嘛，在我这边这集之后大祥老师无论做啥都没法补了，已经烂透了
+
+
+*****
+
+####  aptx8285144  
+##### 18761#       发表于 2025-2-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67314829&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-1-30 23:31</a>
+
+说实话，这集的观感明显好于前四集，但也成功彰显了前四集（尤其是ep4）实际上有多么抽象。
+
+所以独角兽大 ...</blockquote>
+柿本和独角兽对鸡团那群人的爱远不如go团，完全是怎么极端怎么来，甚至不惜代价要极端，他们可能觉得什么摔得越惨爬起来才更坚强，然而中间整个“主角团”的形象是真得是几乎一点都不在乎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 18762#       发表于 2025-2-6 23:20
+
+tmd不会有什么“你有一个很棒的半身”这种神秘情节吧
+
+*****
+
+####  盐盐盐盐盐  
+##### 18763#       发表于 2025-2-6 23:21
+
+至少祥子不会对着睦来一套高高在上满脑子只有自己，只是对着爱音和灯甩了两句暴言没对当事人骂，祥子肯定还是对着睦说不出狠话，下一话哭一下睦都得心疼的要死挣扎着出来和解的，这倒没什么可担心，就是啊第七话了你们还不集结部队到底哪一话再搞live啊（
+
+*****
+
+####  yaneis  
+##### 18764#       发表于 2025-2-6 23:21
+
+<blockquote>ntrntr1 发表于 2025-2-6 23:19
+虽然现在期待给祥子友情破颜拳的比较多，但是吧，就猫弹吉他一秒唤醒睦来说
+
+估计最后还得音乐力量说不定还 ...</blockquote>
+那也太哈人了，这样重组Mujica还走中二风格过家家真就一辈子洗不掉了（
+
+*****
+
+####  Nungesser  
+##### 18765#       发表于 2025-2-6 23:21
+
+<blockquote>wwwttth 发表于 2025-2-6 23:15
+话说其实我感觉最离谱的一点，168亿为啥c团解散的时候就发的新闻，现在才搜到，总不能soyo不知道祥子是丰川 ...</blockquote>
+你平时看CCTV2、关注那些财经新闻么？
+
+*****
+
+####  xyion  
+##### 18766#       发表于 2025-2-6 23:21
+
+二重人格还是太需要自行二次元化了，但只要是封印睦吉他的发展，非要按现实写都得去看病。
+
+其实写看了医生也不太影响后续发展，did治疗鼓励社交，详细的也不用写那么清楚，让睦父母把这些信息告诉soyo（顺便告诉观众）就行。
+
+而且病因不是mujica，是幼年家庭问题，简单写下医生的诊断，睦父母都没有禁止睦和鸡狗成员交流的动机，甚至did还有音乐疗法，完全不影响搞乐队。
+
+虽然did不可能在鸡时间线内治好，但看后续也不需要治好，睦是主人格就行。
+
+能有符合现实的写法却没有用，有点可惜。
+
+祥子这个状态过于真实，现在的观众大概是接受不了吧。
+
+我抑郁那会就是这样，被心理医生指着鼻子骂醒的，"你有没有想过你父母？"。
+
+身边的人看我状态太差不敢上严厉的言辞，但不被这样骂是真没有那种陡然惊醒的感觉。
+
+当然也并不是一句话就能振作，还得药物和很多行为治疗。
+
+啊这一话我看得挺开心的。
+
+*****
+
+####  三尖酸努努  
+##### 18767#       发表于 2025-2-6 23:21
+
+单看这集就那样吧。虽然关系性部分是二创水平，双重人格部分更是土，第四集造成的危害产生的余波依旧没有消退，但其他部分还行。看第七集怎么展开了，目前这mijica各个神人观感真的不太好
+
+*****
+
+####  blackeryuri2  
+##### 18768#       发表于 2025-2-6 23:21
+
+鸡团什么垃圾，我们大狗团的垫子罢了
+
+*****
+
+####  安娜导函数  
+##### 18769#       发表于 2025-2-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362629&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-6 22:58</a>
+我理解不了能陪病人待在房间三天然后父母医生都失踪的世界应该不常见吧？只能说很难理解编剧的脑回路。
+
+ ...</blockquote>
+睦头人的父母不是早就确定是神人了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">睦头抱着吉他一个人蹲地下室都没管过的
+
+*****
+
+####  沙坪坝沙耶香  
+##### 18770#       发表于 2025-2-6 23:22
+
+素世找去祥爹家挺离谱的，狗团的群是不是只有立希用来发通知啊，爱音这种人去大豪斯玩一圈也不发个朋友圈吗，就除了乐队之外完全不沟通呗
+
+*****
+
+####  cxj649  
+##### 18771#       发表于 2025-2-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362974&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-6 23:16</a>
+
+正常？指的是一个月不上学关在房间里然后还会用鞋子打电话的正常人格吗？大哥你能别给编剧洗地了吗？你觉 ...</blockquote>
+我不是在洗地，是说你们光是她是“精神病”
+
+不如说你们是觉得邦邦是正常没幻想因素的世界观，还是她父母到底喜欢哪个黄瓜呢
+
+*****
+
+####  Libartas  
+##### 18772#       发表于 2025-2-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362948&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-6 23:14</a>
+很显然没交流因为注意力都在睦身上谁会往祥子身上想，别忘了上一季soyo竭尽全力pua睦也只是堵到了祥子一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真不是我细抠，几句台词就能交代完的情况，你们尬聊几个小时，讨论这么长时间结果就单向信息流动，这个时间推移我真没看懂意义在哪
+
+*****
+
+####  operatbig  
+##### 18773#       发表于 2025-2-6 23:22
+
+下一话大祥怕不是原本想去探望睦，结果在门口碰上立希，嘴不过立希又跑了。
+
+*****
+
+####  厉飞雨  
+##### 18774#       发表于 2025-2-6 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猫猫那个原来是阴阳眼啊，还以为是小孩中二期戴个美瞳呢
+
+*****
+
+####  JustW  
+##### 18775#       发表于 2025-2-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363025&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-6 23:19</a>
+虽然现在期待给祥子友情破颜拳的比较多，但是吧，就猫弹吉他一秒唤醒睦来说
+
+估计最后还得音乐力量说不定还 ...</blockquote>
+邦邦就是这样啊，AG几个活动队友都没劝住队长炸团，然后把队长踢了哥几个自己开了个live，队长听完就幡然醒悟一秒包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cauchua3  
+##### 18776#       发表于 2025-2-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362969&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 23:15</a>
+
+话说其实我感觉最离谱的一点，168亿为啥c团解散的时候就发的新闻，现在才搜到，总不能soyo不知道祥子是丰川 ...</blockquote>
+168e是C团解散的事，新闻可不一定是当时发的，新闻里都说罪犯抓到了，那肯定不是第一时间的新闻
+
+*****
+
+####  天空塔书记官  
+##### 18777#       发表于 2025-2-6 23:22
+
+第七集最后应该会有一场live，但感觉已经对不上黑色生日的情绪了，有点可惜
+
+不过“雨过天晴”，说明至少第七集整体氛围会是向上的…吧
+
+果然还是想看live啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蒜骨  
+##### 18778#       发表于 2025-2-6 23:22
+
+鉴定为两个大小姐过家家，闹麻了。没苦硬吃。🦄摁头忘两个判词靠。编剧大手太有力了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Renes  
+##### 18779#       发表于 2025-2-6 23:23
+
+我是悟了，母鸡卡这种番剧类型可以划分个新类型，就是电竞类。
+
+前一集哥哥糯了输比赛散队，下一集哥哥就坚毅的眼神，最后几集如果哥哥血C后夺冠，就可以青蒜前面唱衰的人了
+
+别管前面打的多烂多没逻辑，只要后面几集哥哥向前闪现血C了那就是世界第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+每周一集就和追比赛一样，戏里戏外都是回旋镖
+
+*****
+
+####  cckuku  
+##### 18780#       发表于 2025-2-6 23:23
+
+事到如今都给狗垫成这样了，以后鸡狗团的谷子放在一起卖好吗？老团真的经不起这种调价了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yaneis  
+##### 18781#       发表于 2025-2-6 23:23
+
+兰已经抽象到影响二创了，祥子也想复刻一次，武士道太狂了
+
+*****
+
+####  沙坪坝沙耶香  
+##### 18782#       发表于 2025-2-6 23:23
+
+所以素世在精神病人家里三天三夜干了啥，手机都不玩，就拿着鞋子陪着过家家咯
+
+*****
+
+####  raii  
+##### 18783#       发表于 2025-2-6 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362961&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-6 23:15</a>
+
+mujica 现在是很乐，鸡团成员人均开了界王拳的旧版 soyo，你说喜欢肯定是难以喜欢，但很有观赏性。
+
+猜测火 ...</blockquote>
+所以迷子是从【意识到自己迷路了】变成【迷路了也没关系，只要姐妹一起走就好】
+
+无自觉就是从【表面上的一丘之貉】变成【终于发现彼此都不是什么好东西，但是继续当一丘之貉比散开更好】
+
+这么看4月对邦上的库来西裤复活就是最后的埋葬，两个团从此之后表面商业友谊，实际分道扬镳，还是挺自洽的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|锁死在一起比较好的寓意|
+
+查看全部评分
+
+*****
+
+####  whzfjd  
+##### 18784#       发表于 2025-2-6 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362969&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 23:15</a>
+
+话说其实我感觉最离谱的一点，168亿为啥c团解散的时候就发的新闻，现在才搜到，总不能soyo不知道祥子是丰川 ...</blockquote>
+丰川集团亏 168 亿很难定位到具体祥子原生家庭上，又不是祥子银行存款划了 168 亿。
+
+*****
+
+####  爱莉希雅  
+##### 18785#       发表于 2025-2-6 23:24
+
+【[TV2] 看动漫破防了怎么办？二次元精神内耗的自救方法】 [https://www.bilibili.com/video/B ... 937b985207e711d6659](https://www.bilibili.com/video/BV1SN4y1P77f/?share_source=copy_web&amp;vd_source=0214528d24d16937b985207e711d6659)
+
+*****
+
+####  一心而用  
+##### 18786#       发表于 2025-2-6 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363062&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-2-6 23:22</a>
+素世找去祥爹家挺离谱的，狗团的群是不是只有立希用来发通知啊，爱音这种人去大豪斯玩一圈也不发个朋友圈吗 ...</blockquote>
+爱音经历了伦敦之旅说不定对发朋友圈炫耀这种事有PTSD了。
+
+*****
+
+####  yone0000  
+##### 18787#       发表于 2025-2-6 23:24
+
+还是校园回看着比较舒适，炸团篇太低气压了，能缩成3话就好了
+
+*****
+
+####  cxj649  
+##### 18788#       发表于 2025-2-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362891&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-6 23:11</a>
+
+有没有一种可能，邦邦就是这么个玩意，没骂起来只是因为老中没人看</blockquote>
+我也不是给邦邦洗
+
+主要是人设上，大莫老师其实比木头人看上去更让她父母喜欢233
+
+*****
+
+####  影伴光生  
+##### 18789#       发表于 2025-2-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362842&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 23:09</a>
+Mortis前有舞台演抽象剧然后乐队解散，后有池袋街头演双簧然后登上热门，睦父母还是当死了比较合理，否则俩 ...</blockquote>
+要真是现实的话，这种级别的明星之家出来的孩子怕不是每时每刻都有狗仔跟踪并更新
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 18790#       发表于 2025-2-6 23:25
+
+<blockquote>一心而用 发表于 2025-2-6 22:59
+剧情还没过半空间绝对够的，倒不如说现在终于结束商业乐队那令人头大的成年人操作，回归舒适区校园女女关 ...</blockquote>
+看完这一集儿戏般的操作我是死心了，后面唤醒肯定也是抽象得一批
+
+*****
+
+####  595505568  
+##### 18791#       发表于 2025-2-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363103&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-2-6 23:23</a>
+所以素世在精神病人家里三天三夜干了啥，手机都不玩，就拿着鞋子陪着过家家咯 ...</blockquote>
+照顾精神病人最麻烦的地方在于眼睛真不能离开一秒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，问题是怎么变成素世去三天三夜照看人了，也没人接替一下，素世纯做精神病院护士了吧，怎么没有交接班
+
+*****
+
+####  fuwamoco  
+##### 18792#       发表于 2025-2-6 23:25
+
+睦头一生最错误的决定，加入mujica而不是mygo
+
+*****
+
+####  gammatau  
+##### 18793#       发表于 2025-2-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363023&amp;ptid=2208921" target="_blank">守望者404 发表于 2025-2-6 23:19</a>
+
+soyo刀子嘴豆腐心妈妈伟大，上集祥子走的时候给个祥爹特写，还以为这人是故意气走，想多了，祥子是真糯啊， ...</blockquote>
+祥子迪奥说
+
+*****
+
+####  zhigui  
+##### 18794#       发表于 2025-2-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363030&amp;ptid=2208921" target="_blank">暴走的包子 发表于 2025-2-6 23:20</a>
+
+真能捞嘛，在我这边这集之后大祥老师无论做啥都没法补了，已经烂透了</blockquote>
+嘴上说的和身体干的还是不一样的，虽然祥某人切割了小睦但是马上去睦家的话是能把这句台词解释为“嘴硬心软”的（有合理性而且不是观众自顾自找补的）
+
+而且祥子哭哭下跪的话已经是祥子能做的赎罪方式的极限了（女高中生还想让她怎么赎罪）
+
+更别提祥子下跪以后睦祥的地位就完全反了，直接变成祥某人要看睦脸色的情况了，可能还时不时要给墨老师吓唬两下变回年糕，至少赎罪这块我觉得没啥问题，只要别再哈气就行
+
+在某些二创世界线可能就完全变成木头的斐济碑了（）
+
+*****
+
+####  烂片雷达  
+##### 18795#       发表于 2025-2-6 23:26
+
+就说这集美帝来了
+真正的灵魂之友solmate，就连三天三夜的前美帝素睦都只能望洋兴叹甘拜下风<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/27a91401c391419510fc1f35371561cd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 18796#       发表于 2025-2-6 23:26
+
+小莫老师这集的表现让我想起了我之前的精神病炸团说
+
+我之前猜想的是小莫既是精神疾病，也是故意炸团。小莫和小睦是分裂的精神，小莫想让小睦远离祥子，所以故意炸团，4集的一切都是演的，出于小莫想以自己的方法保护小睦免遭祥子伤害的想法。
+<img src="https://p.sda1.dev/21/6e03b9eae3e77b9f22e6db91e818bbe4/IMG_20250206_225431.jpg" referrerpolicy="no-referrer">
+
+现在看来，精神病是不会错的，都到这份上了，小莫只可能是双重人格了。
+
+小莫老师讨厌祥子是毋庸置疑的，但炸团也很可能是误炸，能确定的只不过是离开祥子这个结果她认为是对的，并且应该保持下去。
+
+小莫故意炸团的概率仍不为零，但这操作一定是超过预期的，至少把小睦搞睡一个月不是小莫的愿望。
+
+目前，精神病炸团说能确定的是精神病，炸团不确定是不是有意。
+
+*****
+
+####  是谁的书画  
+##### 18797#       发表于 2025-2-6 23:26
+
+都这样的五个神人了，就不要拿什么商业化乐队来说事了。你和你同事要都是这个关系，那也挺离谱的了。
+
+*****
+
+####  沙坪坝沙耶香  
+##### 18798#       发表于 2025-2-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363134&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-6 23:25</a>
+
+照顾精神病人最麻烦的地方在于眼睛真不能离开一秒，问题是怎么变成素世去三天三夜照看人了，也没人接替一 ...</blockquote>
+一个月没人管都没事，差这几秒看手机的功夫吗，哪怕等人睡了掏出手机回个信息也很正常吧
+
+*****
+
+####  Vacuolar  
+##### 18799#       发表于 2025-2-6 23:26
+
+新的一集，这动画越来越mygo附属品了，真的能通过这部动画打好ave mujica的招牌吗？我不得不怀疑了。
+
+*****
+
+####  blackeryuri2  
+##### 18800#       发表于 2025-2-6 23:27
+
+真想不通就这样的动画真的能吸引人去推鸡团去看live吗你甚至搞个crychic团说不定人气都比鸡团高
+
+
+*****
+
+####  icoywt  
+##### 18801#       发表于 2025-2-6 23:27
+
+这祥子无敌了，反复软糯哈气，这拧巴的样子让我爽死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 18802#       发表于 2025-2-6 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362947&amp;ptid=2208921" target="_blank">kiddom 发表于 2025-2-6 23:14</a>
+再补一句：这一集的单集导演绝对有病。太多意义不明镜头了。
+摔楼梯一分钟。mortis自动跟随追猫一分钟。大 ...</blockquote>
+为了那点精确对称的醋，随便塞点填充物不管衔接合理性的感觉
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  无事忙  
+##### 18803#       发表于 2025-2-6 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362202&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-6 22:37</a>
+
+狗團有情有義，
+
+雞團無情無義</blockquote>
+目前看来是的，我的期待也完了，我现在看到狗团人物还好好的我就满足了……
+
+*****
+
+####  links8018  
+##### 18804#       发表于 2025-2-6 23:28
+
+话说下集soyo扇祥子一巴掌然后跑路不参与后续剧情的话，从人设角度来讲是不是mujica播出以来的最大赢家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+66A02D9C.png
+(1.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/232618ivz86300a3eweezq.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 18805#       发表于 2025-2-6 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363152&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-6 23:26</a>
+
+都这样的五个神人了，就不要拿什么商业化乐队来说事了。你和你同事要都是这个关系，那也挺离谱的了。 ...</blockquote>
+现实里商业化乐队换人炸团的不是一堆，知名偶像组合也有一堆队内关系离谱无比的，连SMAP这种也是私下关系烂到离谱照样该工作工作
+
+*****
+
+####  swessia  
+##### 18806#       发表于 2025-2-6 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又看了了一集mygo ova 素莫猫莫甜甜甜，别的地方真不能细想
+
+睦头靠卖惨逃过了对母鸡卡全体的清算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫小姐真是个工具人啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  兔耳僵尸  
+##### 18807#       发表于 2025-2-6 23:29
+
+按照对偶说，祥子还得要几集才能变成人类呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wonner_2012  
+##### 18808#       发表于 2025-2-6 23:29
+
+这集类似滚下楼梯这种情节真不会让一些观众出戏吗？我之前在双重人格那里都没出戏，滚楼梯这里还是绷不住了
+
+一旦出戏就失去共情了，不知道后面的一半集数还能不能再让我入戏
+
+*****
+
+####  天空塔书记官  
+##### 18809#       发表于 2025-2-6 23:29
+
+<img src="https://p.sda1.dev/21/212ce4b2f8284b46978d286951eb3e18/image.jpg" referrerpolicy="no-referrer">
+
+再发一遍这张图，wsd还指望第七集去引大流呢，至少演出规格和上心程度应该是没问题，只能说还有看头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 18810#       发表于 2025-2-6 23:29
+
+估计go团反正课后都要碰头练习的，要说的事就不发群聊了吧，不过我也很想吐槽soyo陪了三天怎么手机也不看一下，mo不让她走，难道三天学也不上家也不回还不看手机
+
+*****
+
+####  yaneis  
+##### 18811#       发表于 2025-2-6 23:29
+
+<blockquote>zhigui 发表于 2025-2-6 23:26
+嘴上说的和身体干的还是不一样的，虽然祥某人切割了小睦但是马上去睦家的话是能把这句台词解释为“嘴硬心 ...</blockquote>
+已知Mujica肯定是要重组的，风格也不会变走中二风，那软弱祥子有理由组Mujica吗，组得来吗？麻木私人崛起可比怂弱小人崛起好写多了，第六集把祥子人设的烂拐到了low，难救喽
+
+*****
+
+####  jxzeroga0  
+##### 18812#       发表于 2025-2-6 23:29
+
+还行，除了祥爹没上吊还搞出soyo本子素材梗比较恶心，这集算是预料中的展开。
+
+*****
+
+####  翼宿一  
+##### 18813#       发表于 2025-2-6 23:29
+
+这集是追下来最乐的一集，甚至感觉比看 MyGO 还乐。我个人觉得观感还挺好的，但是睦和祥父人设都到这份上了，应该是没救了吧……
+
+*****
+
+####  沙坪坝沙耶香  
+##### 18814#       发表于 2025-2-6 23:29
+
+睦头家的窗帘都破破烂烂的，只能说这样的父母对小孩完全不关心，还让木头直接喊名字，真是亲生的吗
+
+*****
+
+####  wwwttth  
+##### 18815#       发表于 2025-2-6 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363051&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-6 23:21</a>
+
+你平时看CCTV2、关注那些财经新闻么？</blockquote>
+但是我也知道恒大破产，京东🐏立事件还有我隔壁地产公司老总嫖宿幼女被抓这类新闻啊，而且如果soyo真在意丰川祥子退团的原因，搜一下很正常，我还是去看下具体台词是说一年前发生还是一年前发布吧，楼下的解释更合理一点。
+
+*****
+
+####  tide777  
+##### 18816#       发表于 2025-2-6 23:30
+
+摔下楼梯再被人拍再扑在身上说别拍了，标准八点档剧情。
+
