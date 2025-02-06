@@ -3548,3 +3548,44 @@ deepseek这逻辑无敌了，这药太真了。
 视频为主是好几年前了吧，最近几年几乎都是在直播</blockquote>
 我看他直播也就两平台加一起5K人啊 真的不如视频播放高吧
 
+
+*****
+
+####  aptx8285144  
+##### 18085#       发表于 2025-2-6 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355443&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 01:24</a>
+
+问了deepseek按照对偶论mujica第7集对应丰川祥子和长崎素世角色分别是谁，然后得到了非常惊人的答案，后者 ...</blockquote>
+话说突然想起个问题，初华是和甜甜圈女士相识早呢还是和大祥相识早呢？
+
+*****
+
+####  天空塔书记官  
+##### 18086#       发表于 2025-2-6 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67355885&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-6 08:57</a>
+话说突然想起个问题，初华是和甜甜圈女士相识早呢还是和大祥相识早呢？ ...</blockquote>
+? 这个问题还用问的吗 ? <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天邪鬼  
+##### 18087#       发表于 2025-2-6 09:00
+
+怎么可能先有团魂再有团队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大部分团队都是一群不认识的人因为一个目标组一块的，这时候能说团魂的可能也就利益一致时的共同合作，但你利益一不一致就四分五裂了
+
+这个时候祥子一不团建明确目标目的，二不开庆功宴安抚团员，主打一个跟我，我带你们飞。那带飞就带飞吧，战绩一亮，前一个乐队演一场live后就解散？
+
+
+*****
+
+####  江口夕  
+##### 18088#       发表于 2025-2-6 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">内鬼当然是给那三个人主要大猫所作所为前后矛盾找补，大祥有什么问题，大祥就是有优点有缺点的普通人罢了，不会说什么修正之后缺点就不存在了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
