@@ -5147,3 +5147,74 @@ https://b23.tv/H6LdYuz
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫这个塑造已经很抽象了，恨一个人恨到这种地步，真这么恨不如当初海港直接把祥子推下海算了
 
+
+*****
+
+####  MASKA-1  
+##### 18236#       发表于 2025-2-6 17:24
+
+因为莫老师有很矛盾的基础设定：
+1. 维护好mujica
+2. 讨厌祥子
+
+*****
+
+####  yaneis  
+##### 18237#       发表于 2025-2-6 17:24
+
+海喵两人不给剧情脑控回归Mujica应该算是篇幅最优解了吧，初睦祥才是核心
+
+*****
+
+####  swessia  
+##### 18238#       发表于 2025-2-6 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">唉小黄瓜估计C不起来了，小祥靠你了
+
+第七集再不行判死刑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 18239#       发表于 2025-2-6 17:32
+
+其实我很感兴趣的一点，怎么判断剧情中人物的台词就是她们本来的意思，而不是编剧扔的烟雾弹呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARK_HGCG  
+##### 18240#       发表于 2025-2-6 17:36
+
+<blockquote>swessia 发表于 2025-2-6 17:02
+如果真是莫主导重建母鸡卡，别管用啥手段，那我倒理解为啥莫人气上升了
+
+当然如果又是莫瞎胡闹被捕风捉影了 ...</blockquote>
+我猜是睦在ring门口整了什么大活然后喊母鸡卡什么什么，被人发网上说"母鸡卡可能复活因为我看到睦怎么怎么"
+
+
+*****
+
+####  operatbig  
+##### 18241#       发表于 2025-2-6 17:37
+
+祥子干的那些事被恨成这样还挺正常的。
+
+*****
+
+####  adretyu67.  
+##### 18242#       发表于 2025-2-6 17:38
+
+莫老师不一定得主导重建鸡团，但是可能觉得办live能叫醒小黄瓜吧
+
+*****
+
+####  天邪鬼  
+##### 18243#       发表于 2025-2-6 17:38
+
+莫搞不属于祥子的avemujica吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是挺对偶的
+

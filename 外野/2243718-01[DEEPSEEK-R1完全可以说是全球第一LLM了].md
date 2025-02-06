@@ -18549,3 +18549,23 @@ deepseek的文档里说后面会上跟o3类似的reasoning-effort 来控制CoT�
 不过可以通过多创建几个项目变相解决 ...</blockquote>
 谢了。我看看去。我现在还没太多可用的地方，估计是够用的。
 
+
+*****
+
+####  Reznik  
+##### 1472#       发表于 2025-2-6 17:27
+
+[https://cloud.siliconflow.cn/i/nMzd4vGs](https://cloud.siliconflow.cn/i/nMzd4vGs)
+
+还没注册的可以用下我的嘛
+
+
+*****
+
+####  gearh  
+##### 1473#       发表于 2025-2-6 17:35
+
+硅基流动过度思考是我一个人的问题吗，比原版多好多
+
+而且多到了一定的限制就不返回token了
+
