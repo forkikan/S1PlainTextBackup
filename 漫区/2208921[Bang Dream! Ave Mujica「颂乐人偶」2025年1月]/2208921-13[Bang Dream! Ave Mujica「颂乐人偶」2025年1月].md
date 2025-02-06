@@ -5535,3 +5535,53 @@ https://b23.tv/H6LdYuz
 看看这些互相恨还能不能保留</blockquote>
 说得多的也就双R了吧，不过由于现在没有相关的新番剧了，吵架的也基本都沉寂了
 
+
+*****
+
+####  烂片雷达  
+##### 18275#       发表于 2025-2-6 18:37
+
+祥子对睦说明明你以前更爱说笑的，难道祥子真的更喜欢能说爱笑的墨提斯<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 18276#       发表于 2025-2-6 18:38
+
+大祥老师这个人，喜好有什么标准吗，我看她四处留情，啥口味都要啊
+
+*****
+
+####  哈曼的YY  
+##### 18277#       发表于 2025-2-6 18:40
+
+<blockquote>fuwamoco 发表于 2025-2-6 18:38
+大祥老师这个人，喜好有什么标准吗，我看她四处留情，啥口味都要啊</blockquote>
+短发喜虫观星假小子
+
+*****
+
+####  akiomn  
+##### 18278#       发表于 2025-2-6 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360227&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-6 18:38</a>
+大祥老师这个人，喜好有什么标准吗，我看她四处留情，啥口味都要啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看祥子选人，灯soyo立希初华喵梦海玲，雷都不小
+睦不好说，也许也不小
+
+
+*****
+
+####  南宮凝香  
+##### 18279#       发表于 2025-2-6 18:45
+
+<blockquote>fuwamoco 发表于 2025-2-6 18:38
+大祥老师这个人，喜好有什么标准吗，我看她四处留情，啥口味都要啊</blockquote>
+孤獨少女
+
+白祥時期親選的三人 睦 燈 Soyo 都是心有空洞的
+
+她就好這味
+
+只有創傷沒空洞的立希跟她就對不起來
+
