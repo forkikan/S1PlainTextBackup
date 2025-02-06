@@ -18094,3 +18094,12 @@ https://cloud.siliconflow.cn/i/XRBdLLtf
 传火传火 昨天试了下本地部署（14b），速度其实还行（HBM神秘加 ...</blockquote>
 你这太小众了吧，我也不知道什么叫疯狂星期四
 
+
+*****
+
+####  loadingloading  
+##### 1430#       发表于 2025-2-6 13:16
+
+传火传火
+[https://cloud.siliconflow.cn/i/gSYDX0KS](https://cloud.siliconflow.cn/i/gSYDX0KS)
+

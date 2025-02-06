@@ -4438,3 +4438,47 @@ xinjinjumin0684910
 
 soyo老师才是影帝牢墨那点根本不叫演技<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuwamoco  
+##### 18165#       发表于 2025-2-6 13:19
+
+素睦王朝了
+
+*****
+
+####  玖羽  
+##### 18166#       发表于 2025-2-6 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357630&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 12:56</a>
+
+逐秒对比给我看乐了，知道动画怎么做的吗</blockquote>
+不同集数时间轴对应又不是什么前所未见的了不得的事
+
+既然你敢这么说，你一定很了解动画是怎么做的，不如你给大家讲一讲？
+
+*****
+
+####  swessia  
+##### 18167#       发表于 2025-2-6 13:23
+
+虽然很乐但是看标题禁止带图剧透<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  KLHgg  
+##### 18168#       发表于 2025-2-6 13:25
+
+这剧透还有光速二创，你邦真的🔥了
+
+*****
+
+####  哈曼的YY  
+##### 18169#       发表于 2025-2-6 13:26
+
+你这根本没编辑掉啊 把图片和附件点开都删了 光删回复引用没用
+
