@@ -4724,3 +4724,41 @@ Post nubila Phoebus
 
 我本来就贴一个假药研究成果，你非得说得好像我给他背书一样，那我今天就非得请教一下动画是怎么做的，请问是怎么做的呀？别嫌S1档次太低，科普一下吧？
 
+
+*****
+
+####  JustW  
+##### 18193#       发表于 2025-2-6 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358348&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 14:32</a>
+
+是谁在撒泼打滚？你张嘴就乐，问我知道动画怎么做的吗，我立即把姿态放得这么低求你科普，你反倒说我撒泼 ...</blockquote>
+
+我本来就说的是做这个逐秒对比的人可笑，你要是自己也没自信不想担责，就不要缠上来一顿乱咬，你要是十分自信完全认可，那我也只好祝你幸福。还有对偶论老是搞些not even wrong的东西多没意思，敢不敢依据对偶论预 测还没有剧透到的第几集第几分钟第几秒演什么剧情，无可验证的东西讨论个什么劲儿啊，你说是不是。
+
+*****
+
+####  swessia  
+##### 18194#       发表于 2025-2-6 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358267&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-6 14:20</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">小祥和睦可爱捏，对这种类型的衣服抵抗不了
+
+
+*****
+
+####  玖羽  
+##### 18195#       发表于 2025-2-6 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358368&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 14:36</a>
+
+我本来就说的是做这个逐秒对比的人可笑，你要是自己也没自信不想担责，就不要缠上来一顿乱咬，你要是十分 ...</blockquote>
+又不是第一天刚看到假药，哪一个假药没有牵强附会、先射箭再画靶的成分？你要说牵强附会也就罢了，上来就问知道不知道动画怎么做的，你也知道还有八集没播，如果不讨论假药，你预测一下后面八集播啥？
+
+*****
+
+####  fuwamoco  
+##### 18196#       发表于 2025-2-6 14:43
+
+初华原来是露大腿的
+

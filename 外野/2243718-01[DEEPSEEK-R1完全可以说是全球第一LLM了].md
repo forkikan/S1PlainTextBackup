@@ -18182,3 +18182,15 @@ deepseek:你骂我也没用，我只会祝你恭喜发财<img src="https://stati
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  faithlifer  
+##### 1439#       发表于 2025-2-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356871&amp;ptid=2243718" target="_blank">飞天荷兰人 发表于 2025-2-6 11:24</a>
+官方的API服务是不是崩了，根本没回复，想念还没爆火的时候。</blockquote>
+现在恢复了吗，我的还是没反应<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
