@@ -9001,3 +9001,25 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 会不会最后等夏亚把面具摘下来发现其实是强尼</blockquote>
 强尼的版权好像比较混乱，是游戏部门的，能出漫画但是从来没法影像化
 
+
+*****
+
+####  鱼雷鲨  
+##### 6605#       发表于 2025-2-7 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67354873&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-2-5 22:46</a>
+
+会不会最后等夏亚把面具摘下来发现其实是强尼</blockquote>
+强尼的版权好像比较混乱，是游戏部门的，能出漫画但是从来没法影像化
+
+*****
+
+####  gundammarkⅡ  
+##### 6606#       发表于 2025-2-7 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364270&amp;ptid=2209276" target="_blank">鱼雷鲨 发表于 2025-2-7 01:21</a>
+救世主是小屏幕吧，电视台搞的</blockquote>
+有的，G-Saviour在1999年6月于电影院上映，规模不大，应该类似电影节那种，2000年才在电视台播放
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
