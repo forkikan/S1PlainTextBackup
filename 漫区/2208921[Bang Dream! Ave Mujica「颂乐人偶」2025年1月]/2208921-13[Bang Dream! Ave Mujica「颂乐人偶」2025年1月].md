@@ -13962,3 +13962,109 @@ ave mujica本集笑点
 低抛高买，股市大忌。
 相信我，现在就是抄底的时候。下一集就要涨了，因为再不写祥睦就来不及了。而我们知道，这个饺子一定会包起来的。
 
+
+*****
+
+####  huxiaopao163  
+##### 19124#       发表于 2025-2-7 01:19
+
+我觉得睦是想告诉祥子真相，也就是她被（包括自己在内的）内鬼坑了，所以不要过于自责和痛苦
+
+她表现得那么舔，也是因为有愧疚在里面
+
+可以这么解释<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwwttth  
+##### 19125#       发表于 2025-2-7 01:22
+
+我听了半天还是听不出那句看看日期是在说新闻的日期还是事件发生的日期，算了不纠结了
+
+*****
+
+####  iiiiiiiiii  
+##### 19126#       发表于 2025-2-7 01:22
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-7 01:23 编辑 
+
+我现在对CCC只有彻底反感，就为了这个早就该进坟墓的玩意粉碎多少人设。要是真的CCC复活搞春日影，这是我这辈子看过最烂的新番
+
+*****
+
+####  哈曼的YY  
+##### 19127#       发表于 2025-2-7 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363612&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-7 00:01</a>
+
+本集又回收了一个op画面 芭蕾舞鞋电话，大概率这段都是正片会出现的画面了吧</blockquote>
+神蠢五把剑会是神人们击剑吗
+
+*****
+
+####  刑部姬真可爱  
+##### 19128#       发表于 2025-2-7 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364239&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 01:17</a>
+墨说自己知道ccc能看到发生的事，但她为啥不认识手机，睦头又不是不用手机，第二集她妈还给她打过电话。
+
+ ...</blockquote>
+我猜是因为睦和mo交流的时候是不需要手机的，所以mo对于“交流”会用到手机是一个不理解的概念？甚至有可能mo人格的形成就是睦去学芭蕾时产生的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Skymoon  
+##### 19129#       发表于 2025-2-7 01:24
+
+感觉这一集垫了mujica高光了mygo，这就是mygo第二季吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 19130#       发表于 2025-2-7 01:25
+
+初华如果没暴露大的这集确实不用出来，出来了估计就是幽怨的两声“小祥在哪”，现在藏着还可以理解为化身boss要准备进场了
+
+*****
+
+####  扶桑洛槿  
+##### 19131#       发表于 2025-2-7 01:25
+
+牢莫这集挺幽默的，没看出哪里有对主人格睦的保护作用。人格设定上也挺抽象的，感觉不会是因为睦被猫祥两人给压力了，所以参考睦对猫祥两个人心里看法形成的人格吧
+
+*****
+
+####  Lyzers  
+##### 19132#       发表于 2025-2-7 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364036&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-7 00:48</a>
+不错，mygo的情况是没有mujica严重，没有人精分没有人有经济损失 ，更没有人死妈废爹。
+但是人和人就是这 ...</blockquote>
+你楼很常见的一句话
+“你不能只在xxxx时考虑现实性”
+
+*****
+
+####  天空塔书记官  
+##### 19133#       发表于 2025-2-7 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364239&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 01:17</a>
+墨说自己知道ccc能看到发生的事，但她为啥不认识手机，睦头又不是不用手机，第二集她妈还给她打过电话。
+
+ ...</blockquote>
+套用心理暗示的说法，就是“睦”在故意避开手机，避免与外界进行联系，或者单纯恐惧有谁通过电话和她联系，这也能解释为啥素世一直在睦家却不与其他人联系，因为“睦”不让她碰手机<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19134#       发表于 2025-2-7 01:27
+
+<blockquote>天空塔书记官 发表于 2025-2-7 01:25
+套用心理暗示的说法，就是“睦”在故意避开手机，避免与外界进行联系，或者单纯恐惧有谁通过电话和她联系 ...</blockquote>
+然后她急着用芭蕾舞鞋打电话找医生，除非她不知道手机有打电话找个功能，但第二集接电话了。
+
