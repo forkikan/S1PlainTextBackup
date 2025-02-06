@@ -4042,3 +4042,72 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  安娜导函数  
+##### 18130#       发表于 2025-2-6 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356555&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-6 10:42</a>
+
+后续要寄希望于祥子，初华，喵梦三人都悔改？这不光是篇幅的问题，根本想不到能有什么合理的契机让她们聚在 ...</blockquote>
+所谓的“悔改”不过就是把假药“内鬼”当前提才会有的一个伪命题，如果没有所谓的内鬼呢？
+
+所以与其考虑什么回旋啊悔改啊，不如猜想一下A团2.0的团魂应该是什么，然后各角色如何围绕团魂进行安排，不然光造假药有什么用...
+
+
+*****
+
+####  南宮凝香  
+##### 18131#       发表于 2025-2-6 11:04
+
+<blockquote>fuwamoco 发表于 2025-2-6 10:43
+祥子和初华夜晚聊天的时候说过，睦是什么样的人我心里清楚，是我把她拉进来把她逼成这个样子。
+
+但后面就 ...</blockquote>
+練習室之戰就是祥子軟弱了
+
+想睦頭開口支援
+
+實際上她是團長，她可以硬頂
+
+大喵你覺得睦頭不反對？
+
+她反不反對這團的方向也是由船長掌舵
+
+當她後退一步，把權力換成看誰得到隊友的支持，
+
+那就給炸團提供了正當性
+
+*****
+
+####  杂灰  
+##### 18132#       发表于 2025-2-6 11:04
+
+背叛者是肯定存在的，而背叛者是最适合把初华拉到与祥子对等的身份
+
+*****
+
+####  NaAgfykp  
+##### 18133#       发表于 2025-2-6 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356291&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 10:06</a>
+我并不觉得最需要的是祥子去救别人，相反我认为，应该是别人来救祥子才是整个母鸡卡的核心，整个A团2.0重 ...</blockquote>
+这样的话，那我还能看到祥子对其他人道歉吗？有种不妙的预感
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  NaAgfykp  
+##### 18134#       发表于 2025-2-6 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356440&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-6 10:23</a>
+长期这么压抑，半身一点没察觉，背一半锅不过分吧
+
+鸡团爆了后撑着病体支持小祥，完全不被关照，再背两成 ...</blockquote>
+爹妈的锅肯定比其它人加起来要大
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
