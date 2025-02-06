@@ -4922,3 +4922,70 @@ soyo这是。。。为母则刚啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 18214#       发表于 2025-2-6 15:55
+
+这后续的睦素关系性完全是踩在睦祥上建立起来的，也太血腥了吧
+
+*****
+
+####  小博禹  
+##### 18215#       发表于 2025-2-6 15:56
+
+所以莫的本质到底是？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+鸡团的问题也好解决了，每集觉醒一个，反正也不需要铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  兔耳僵尸  
+##### 18216#       发表于 2025-2-6 15:57
+
+躺地上当然只能被踩了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 18217#       发表于 2025-2-6 15:58
+
+会哭的孩子有奶吃，看来爱音还是太阳光了不会哭才总被素世盐<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 18218#       发表于 2025-2-6 15:59
+
+对偶应该是对应剧情中的镜子，OP里的镜子，祥子的镜子，睦的镜子。。。
+
+当然现在的进度也不知道镜子在故事里到底有什么含义<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+夫以铜为镜，可以正衣冠；以史为镜，可以知兴替；以人为镜，可以明得失。
+
+（可以暂时把这句话当做对偶说的意义？）
+
+
+*****
+
+####  南宮凝香  
+##### 18219#       发表于 2025-2-6 16:03
+
+<blockquote>烂片雷达 发表于 2025-2-6 15:58
+会哭的孩子有奶吃，看来爱音还是太阳光了不会哭才总被素世盐</blockquote>
+優秀的孩子要敲打
+
+傻了的孩子敲打也沒用， 只能哄了
+
+*****
+
+####  fuwamoco  
+##### 18220#       发表于 2025-2-6 16:03
+
+同样是关键战役睦头说错话，soyo施压睦头之后可就是飞鸟山惨败了。
+
+大祥现在挂机一个月坐迈巴赫住大豪斯，也就是青梅竹马被偷家而已，没事还有另一个。
+

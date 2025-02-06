@@ -18333,3 +18333,40 @@ R1太癫了，动不动就见血
 gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的地方吧</blockquote>
 ？那怎么写刘备，GEMINI破限很容易吗？
 
+
+*****
+
+####  trentswd  
+##### 1452#       发表于 2025-2-6 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358907&amp;ptid=2243718" target="_blank">lyt777 发表于 2025-2-6 15:47</a>
+？那怎么写刘备，GEMINI破限很容易吗？</blockquote>
+gemini本身没限制
+但是有输入输出审查，会截断
+网上有很多防止输入截断的预设
+输出截断关闭流式输出就好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zypyong  
+##### 1453#       发表于 2025-2-6 15:57
+
+联网现在是不能用了吗，其他有地方能用可以联网搜索的DEEPSEEK吗
+
+*****
+
+####  kinko_0019  
+##### 1454#       发表于 2025-2-6 15:57
+
+用r1辅助写带g向的刘备文爽死我了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">感觉xp被拿捏
+
+*****
+
+####  约翰里德  
+##### 1455#       发表于 2025-2-6 15:58
+
+讲道理，r1写真正的团队互殴战斗场面非常nb，写修罗场也很nb，写情话表白话更是nb。
+就是喜欢乱nm加设定搞得我气的破口大骂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
