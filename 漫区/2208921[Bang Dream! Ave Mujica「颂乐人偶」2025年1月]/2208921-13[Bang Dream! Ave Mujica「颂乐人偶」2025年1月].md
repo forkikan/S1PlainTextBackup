@@ -14502,3 +14502,14 @@ soyo哪里只是贝斯妈妈，soyo简直就是侠女<img src="https://static.sa
 对了，mortis在一本叫《坏心眼的蓝女巫》的童话书上面用蜡笔画叉叉，也许是说的《绿野仙踪》的同人前传《魔 ...</blockquote>
 巧了，魔法坏女巫里的女巫其实是绿色肤色，还有这个音乐剧可以算双女主
 
+
+*****
+
+####  huxiaopao163  
+##### 19178#       发表于 2025-2-7 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364580&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-7 02:46</a>
+
+巧了，魔法坏女巫里的女巫其实是绿色肤色，还有这个音乐剧可以算双女主 ...</blockquote>
+有道理啊，不知道是在暗示祥睦，还是在暗示睦莫
+

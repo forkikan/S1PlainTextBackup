@@ -105,3 +105,15 @@
 这游戏在s1真没啥讨论度啊，日服大概afk了三个月，AB三期回来一看nga的打分阵容已经完全看不懂了，抽象 ...</blockquote>
 3个月的话就是目前两个真神（舰长aoi 歌姬月歌）都跳了吧 懵逼是正常的
 
+
+*****
+
+####  sin.yugi  
+##### 1675#       发表于 2025-2-7 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356016&amp;ptid=2050204" target="_blank">Necoboro 发表于 2025-2-5 20:21</a>
+这游戏在s1真没啥讨论度啊，日服大概afk了三个月，AB三期回来一看nga的打分阵容已经完全看不懂了，抽象 ...</blockquote>
+nga打分算很菜的，好阵容直接b站搜甚至能看顶分阵容
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
