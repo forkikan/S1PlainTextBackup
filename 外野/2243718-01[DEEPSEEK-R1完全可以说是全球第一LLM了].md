@@ -18569,3 +18569,26 @@ deepseek的文档里说后面会上跟o3类似的reasoning-effort 来控制CoT�
 
 而且多到了一定的限制就不返回token了
 
+
+*****
+
+####  moekyo  
+##### 1474#       发表于 2025-2-6 17:40
+
+推上看到这个，有人要去搜搜吗
+
+<img src="https://img.saraba1st.com/forum/202502/06/173941r9crth5qdqtqthg4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (225.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 17:39 上传
+
+*****
+
+####  Indolencoma  
+##### 1475#       发表于 2025-2-6 17:44
+
+日常需求专业度高，联网搜索是刚需，官网总是服务器忙，好捉急啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

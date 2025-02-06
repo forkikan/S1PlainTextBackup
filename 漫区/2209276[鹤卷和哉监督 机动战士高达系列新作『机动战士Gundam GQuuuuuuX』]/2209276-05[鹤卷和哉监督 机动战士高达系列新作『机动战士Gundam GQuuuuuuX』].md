@@ -8845,3 +8845,19 @@ nt有觉醒了能力又失去了的例子吗？
  这周票房20亿突破没问题了吧</blockquote>
 ベーダー速报前天已经破了，昨天报20.42亿，算上折扣误差无论如何今天都能破
 
+
+*****
+
+####  0aleph37  
+##### 6593#       发表于 2025-2-6 17:45
+
+<img src="https://img.saraba1st.com/forum/202502/06/174445rh13m8yc53831emy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 17:44 上传
+
+[https://x.com/daph_neko/status/1887411827908485348](https://x.com/daph_neko/status/1887411827908485348)
+

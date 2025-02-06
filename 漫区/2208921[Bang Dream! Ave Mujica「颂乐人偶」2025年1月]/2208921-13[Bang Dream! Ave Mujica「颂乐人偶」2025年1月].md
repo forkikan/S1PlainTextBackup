@@ -5218,3 +5218,25 @@ https://b23.tv/H6LdYuz
 
 莫搞不属于祥子的avemujica吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是挺对偶的
 
+
+*****
+
+####  akiomn  
+##### 18244#       发表于 2025-2-6 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359736&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-2-6 17:37</a>
+祥子干的那些事被恨成这样还挺正常的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，是逻辑有问题。睦的问题不是祥子一个人造就的，还有家庭环境，亲妈，喵梦摘面具这些因素
+然后莫提斯只针对祥子一个人？还是极端祥黑那种
+
+*****
+
+####  adretyu67.  
+##### 18245#       发表于 2025-2-6 17:44
+
+有一说一，飞鸟山之战虽然soyo惊世智慧很惊人。
+
+带入一下男女关系就是被抛弃的女性对浮气男下跪求着他回来，很古老的肥皂剧剧情了，属于最赢不了的那种，然后果不其然被抛弃了。
+
+女方有多惊人，男方就有多渣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
