@@ -456,3 +456,14 @@
 
 但是核弹手枪真的好玩
 
+
+*****
+
+####  FLZB  
+##### 5721#       发表于 2025-2-7 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363972&amp;ptid=2170852" target="_blank">qwased 发表于 2025-2-7 00:40</a>
+
+我咋感觉这个纯一坨啊……有点后悔先点这个债券了</blockquote>
+手枪和背包还算有点价值，不过用途非常有限，反正日常玩我是不会牺牲副手和背包位去带这两个玩意。看看后续能开发出什么新奇的玩法，目前我觉得这个债卷优先级很低
+

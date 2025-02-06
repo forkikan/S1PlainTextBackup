@@ -14160,3 +14160,55 @@ b站翻译其实没啥问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhigui  
+##### 19145#       发表于 2025-2-7 01:39
+
+即便是被捶打到一个人在角落里自顾自破防，还要依靠本能对爱灯哈气吗……哈基祥……你这家伙
+
+
+*****
+
+####  江口夕  
+##### 19146#       发表于 2025-2-7 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364356&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-7 01:39</a>
+即便是被捶打到一个人在角落里自顾自破防，还要依靠本能对爱灯哈气吗……哈基祥……你这家伙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是看到爱音在旁边吧。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  fuwamoco  
+##### 19147#       发表于 2025-2-7 01:46
+
+<blockquote>天空塔书记官 发表于 2025-2-7 01:37
+如果硬要说的话，用认知障碍/错位也能解释，某样事物在人物的认知中被主动或者被动地进行了扭曲，就比方 ...</blockquote>
+小白出现认知障碍都是会直接表现出来的，她能看到鲸鱼在天上飞呢。
+
+狗团里高压第一视角也会变形黑屏有杂音。
+
+*****
+
+####  凉良  
+##### 19148#       发表于 2025-2-7 01:46
+
+说起来下集都说要有live 不会是mygo的live吧？
+
+*****
+
+####  堆雪若叶  
+##### 19149#       发表于 2025-2-7 01:46
+
+莫老师亲近猫猫还是有点意思，因为猫猫是第一个表示有人（猫）喜欢她的，也算是这种转换人格/替身渴求认同的一般写法。另一方面对应到soyo的比较中又暗示soyo虽然对她也很好，但莫老师知道其实是为了睦。不过soyo在人前挺身护住她们也是开始生出感情，感觉最后是狗团反而舍不得莫老师的假药有点真了。
+
+*****
+
+####  Fakerの幻影  
+##### 19150#       发表于 2025-2-7 01:47
+
+第七集就是飞鸟山之战对偶了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
