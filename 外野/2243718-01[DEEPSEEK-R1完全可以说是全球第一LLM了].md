@@ -18223,3 +18223,49 @@ deepseek:你骂我也没用，我只会祝你恭喜发财<img src="https://stati
 
 还是api效果好些
 
+
+*****
+
+####  trentswd  
+##### 1442#       发表于 2025-2-6 15:17
+
+讲真用本地蒸馏模型的我都推荐去用gemini
+
+限时免费，可堪一用，起码比本地模型强
+
+*****
+
+####  faithlifer  
+##### 1443#       发表于 2025-2-6 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358648&amp;ptid=2243718" target="_blank">trentswd 发表于 2025-2-6 15:17</a>
+讲真用本地蒸馏模型的我都推荐去用gemini
+
+限时免费，可堪一用，起码比本地模型强 ...</blockquote>
+写刘备文很好用<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  trentswd  
+##### 1444#       发表于 2025-2-6 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358677&amp;ptid=2243718" target="_blank">faithlifer 发表于 2025-2-6 15:20</a>
+写刘备文很好用
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+gemini写刘备也很强啊（）
+可能仅次于claude 3 opus
+r1论外，r1写的东西我害怕
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lyt777  
+##### 1445#       发表于 2025-2-6 15:27
+
+那么哪里有gemini的本地版本呢？
+
