@@ -1238,3 +1238,19 @@ https://x.com/kamikitafutago/status/1886912084899979514
 
 怎么爆典？
 
+
+*****
+
+####  Piano-Forest  
+##### 383#         楼主| 发表于 2025-2-6 23:31
+
+[https://m.weibo.cn/detail/5129525197275519](https://m.weibo.cn/detail/5129525197275519)
+<img src="https://p.sda1.dev/21/8d81ed39072de4bc18c356c4f6a294b3/illust_126839540_20250206_232609.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/precureojisan/status/1886908436732092748](https://x.com/precureojisan/status/1886908436732092748)
+
+今年も描いてくれましたー！
+
+プリキュアおじさんpresentsキラキラおしゃれひなまつりへぜひどうぞ
+<img src="https://p.sda1.dev/21/37c43fe34a740eef98c9832ac1a1dfd7/20250206_233002.jpg" referrerpolicy="no-referrer">
+

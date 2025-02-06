@@ -94,3 +94,14 @@
 
 毕竟真女同游戏，其实 4 章剧情我还挺喜欢的，本来就很喜欢慧慧和小玉这俩人
 
+
+*****
+
+####  范坚强  
+##### 1674#       发表于 2025-2-6 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356016&amp;ptid=2050204" target="_blank">Necoboro 发表于 2025-2-6 09:21</a>
+
+这游戏在s1真没啥讨论度啊，日服大概afk了三个月，AB三期回来一看nga的打分阵容已经完全看不懂了，抽象 ...</blockquote>
+3个月的话就是目前两个真神（舰长aoi 歌姬月歌）都跳了吧 懵逼是正常的
+

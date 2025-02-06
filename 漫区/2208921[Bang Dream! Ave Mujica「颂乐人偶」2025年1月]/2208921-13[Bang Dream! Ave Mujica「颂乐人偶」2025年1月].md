@@ -10739,3 +10739,598 @@ soyo刀子嘴豆腐心妈妈伟大，上集祥子走的时候给个祥爹特写�
 
 摔下楼梯再被人拍再扑在身上说别拍了，标准八点档剧情。
 
+
+*****
+
+####  单脚着地  
+##### 18817#       发表于 2025-2-6 23:30
+
+<img src="https://img.saraba1st.com/forum/202502/06/233008waegqotg6znvuodp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250206232708.png</strong> (115.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/233008pu594funfn9farpn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250206232606.png</strong> (126.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:30 上传
+
+大象老师你就得这宰总样才够味啊
+
+*****
+
+####  zhigui  
+##### 18818#       发表于 2025-2-6 23:31
+
+滚楼梯这样毫无意义但是演出效果很激烈的情节本来是为了强化情绪用的，可问题是当时情绪还没起来啊，观众视角只是木头自顾自演开始独角戏了，滚楼梯并不会强化氛围只会让观众出戏
+
+*****
+
+####  六道明  
+##### 18819#       发表于 2025-2-6 23:31
+
+改名叫mygo2吧，不想写mujica的故事可以不写，wsd我草拟麻麻
+
+*****
+
+####  08df1258c5ed098  
+##### 18820#       发表于 2025-2-6 23:31
+
+通灵猫都出场了，还要在乎逻辑吗？
+
+*****
+
+####  厚乳果珍爽  
+##### 18821#       发表于 2025-2-6 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362745&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 23:04</a>
+
+海玲这种自称兼任三十几个乐队，实际基本三分之二都解散了的，她依旧觉得自己在兼任的怎么可能是正常人。抱 ...</blockquote>
+二次元祥林嫂是吧？
+
+*****
+
+####  Nealyun  
+##### 18822#       发表于 2025-2-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362969&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 23:15</a>
+
+话说其实我感觉最离谱的一点，168亿为啥c团解散的时候就发的新闻，现在才搜到，总不能soyo不知道祥子是丰川 ...</blockquote>
+有可能還真不知道
+
+我初中的時候也有個很要好的同學，只知道他家裡蠻有錢的。
+
+然後大概去年我跟他吃飯的時候才知道他是某龍集團ceo的外孫。
+
+*****
+
+####  Yugao  
+##### 18823#       发表于 2025-2-6 23:32
+
+或许海玲就是故意把乐队搞爆收集尸体的爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 18824#       发表于 2025-2-6 23:32
+
+谁能想到，这玩意儿是要卖卡卖票的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 18825#       发表于 2025-2-6 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362937&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-6 23:14</a>
+
+不，mygo里猫还只是电波，随心所欲而已。有趣是因为灯说要“组一辈子乐队”和她缺的归属对上了，觉得无趣 ...</blockquote>
+可能是我二创看多了，以前各种灵魂互换系列，经常会有猫猫看穿的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+难道是二创转正了，说到底为啥大家都会认为猫猫会看穿呢
+
+*****
+
+####  blackeryuri2  
+##### 18826#       发表于 2025-2-6 23:33
+
+祥子求求你了快跳楼吧
+
+*****
+
+####  猫执事  
+##### 18827#       发表于 2025-2-6 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363062&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-2-6 23:22</a>
+
+素世找去祥爹家挺离谱的，狗团的群是不是只有立希用来发通知啊，爱音这种人去大豪斯玩一圈也不发个朋友圈吗 ...</blockquote>
+素世认为莫提斯给的地址是去豪宅的，爱音就算发朋友圈也不会发定位吧。  如果知道豪宅地址，素世也不用再问莫提斯了。只能说STAFF太想制造 上一季素问睦 祥家地址的回旋镖
+
+*****
+
+####  Alexmacau8  
+##### 18828#       发表于 2025-2-6 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363228&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 23:30</a>
+大象老师你就得这宰总样才够味啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer"> 说好的半身 直接半身不遂了
+
+*****
+
+####  Libartas  
+##### 18829#       发表于 2025-2-6 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还有墨老师明明知道睦头喜欢哭来吸苦，结果到了ring就跟见不得光似的，不知道是在怕谁
+
+*****
+
+####  xyion  
+##### 18830#       发表于 2025-2-6 23:34
+
+滚楼梯我倒是合上了情绪，跟猫猫实在太普通二偶了，不该出现在鸡里
+
+*****
+
+####  厉飞雨  
+##### 18831#       发表于 2025-2-6 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以睦爹娘浸淫娱乐圈多年的身份
+按住所有说睦头有病的舆论
+统一带节奏这就是演技，饭圈很容易信的
+女儿演技这么屌，比她弹吉他这么屌，也更符合他们自身利益
+
+*****
+
+####  天空塔书记官  
+##### 18832#       发表于 2025-2-6 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363192&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 23:28</a>
+现实里商业化乐队换人炸团的不是一堆，知名偶像组合也有一堆队内关系离谱无比的，连SMAP这种也是私下关系 ...</blockquote>
+其实多关注bang的三次元团也能感觉到，虽然发散不仲多为烂炒，但现实中不可能存在真正的“少女乐团”，都是工作罢了
+
+关注二次元角色关系性就罢了，千万别把岛国娱乐圈那套营业表演当真<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  raii  
+##### 18833#       发表于 2025-2-6 23:35
+
+就很多人觉得再不怎么怎么就救不回来了，也不知道“救回来”是要救回到什么地方...到底是想要变成传统的少女乐队还是没见过的新感觉少女乐队，标题都写着是【无自觉的一丘之貉】了
+
+如果是传统的少女乐队，那又为啥意识不到这番标题名字还有个邦了，搞传统乐队那上限还能多高
+
+都不必说“擅自期待擅自破防”的事情了，不知道一大群人到底在期待什么，对健康不好
+
+*****
+
+####  是谁的书画  
+##### 18834#       发表于 2025-2-6 23:35
+
+哇，祥子第七集成为半人开始拧绳了！
+
+哇，大睦大莫第八集人格合二为一化为吉他疯批开始拧绳了！
+
+哇，海铃第九集终于直到自己不想流浪开始拧绳了！
+
+哇，喵梦第十集发现与其是流量其实自己真正喜欢的是mujica的音乐开始拧绳了！
+
+😅😅😅😅😅😅😅😅这真是不敢想象的好看啊
+
+*****
+
+####  wangh  
+##### 18835#       发表于 2025-2-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362676&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 23:00</a>
+
+她们得罪了祥子，然后祥子气的书都不读了当即转学跑路是吧，你和高松灯一样平时视角都是边缘虚化时常会跌 ...</blockquote>
+祥子转学在C团解散之前好不好……
+
+*****
+
+####  一心而用  
+##### 18836#       发表于 2025-2-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363066&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-2-6 23:22</a>
+真不是我细抠，几句台词就能交代完的情况，你们尬聊几个小时，讨论这么长时间结果就单向信息流动，这个时 ...</blockquote>
+意义在于分工，用信息差隔绝人物的行动空间，给某些角色适合她去做的事情。
+灯关心的是祥子，她是最适合去找祥子的人之一，但是行动力不足所以得有人带着。
+爱音行动力强但是和祥子不熟，她一个人去找祥子很不合适，所以身边必然有灯在。
+立希对C团感情不深，mujica里唯一在乎的只有海铃，所以她去找海铃质问最合适。
+猫猫完全状况外不用管了。
+soyo是对C团感情最深的，她无论找睦还是找祥子都是最合适的，行动力也是爆表，所以这一话她必然忙前忙后。
+
+*****
+
+####  高妹控  
+##### 18837#       发表于 2025-2-6 23:35
+
+你要说海玲不关注队友吧，她还知道为喵梦撑腰，但就小睦的事而言，这妹子不是一般的冷血啊，她这比样没有本命乐队不活该么，毫无团魂，又一个满脑子只想着自己的人
+
+🐘性格真的拧巴，自己缺乏沟通不说，还好意思指责小睦无口，既嫌弃又渴望他人关心，既要面子又没骨气，这人设还有啥魅力啊，和上一季第还是一个人设么？练逼格都全丢完了
+
+至于小睦，令人心疼，为何要把她写成精神病啊，还比如继续当偶尔阳光的自闭萝莉呢<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+🐔团这人物塑造，在邦邦里能排第几？只看过🐶，真的被🐶吊锤了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厄神之息  
+##### 18838#       发表于 2025-2-6 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362954&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-6 23:14</a>
+
+其实灯以前就对爱音精神世界说的话有反应</blockquote>
+那个可以说是灯对爱音思考时脸上的表情变化有反应来找补，或者当个剧情无关的小彩蛋看看。这个真就是一点找补不动还对剧情有推动作用的石锤超能力，性质还是不一样的
+
+*****
+
+####  zhzij111  
+##### 18839#       发表于 2025-2-6 23:36
+
+ 本帖最后由 zhzij111 于 2025-2-6 23:38 编辑 
+
+笑拉了，不说灵视和双重人格这两个几把玩意。
+
+这集已经用“她都这么惨了你还要怎样”给祥子洗白白了，下集掉个小珍珠就能开始大女主重组乐队包饺子了，7集包饺子，觉得好的坛友有的是福享啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  FanFun  
+##### 18840#       发表于 2025-2-6 23:38
+
+这集十个人就初华隐身了
+
+但是永远要挤出点篇幅贴耳告诉观众键帽是努力侠，我哭死
+
+
+*****
+
+####  sauron.j  
+##### 18841#       发表于 2025-2-6 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363259&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-6 23:33</a>
+
+可能是我二创看多了，以前各种灵魂互换系列，经常会有猫猫看穿的剧情
+
+难道是二创转正了，说到底为啥大家 ...</blockquote>
+野猫在mygo因为听了一句一辈子觉得有趣的女人而入团，因为诗朗诵就能回归，和这个阴阳眼算同级别的电波了
+
+*****
+
+####  圣血天使  
+##### 18842#       发表于 2025-2-6 23:38
+
+为啥二创最火的是爱素，看到了吧，前有圣爱音现在有圣素世，只能说狗团人真是太好了，mygo在国内火起来不是没有理由的
+
+*****
+
+####  woui003woui  
+##### 18843#       发表于 2025-2-6 23:38
+
+事到如今了hhw没有理由不客串了吧，怎么米歇尔高达比阴阳眼更玄幻是吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 18844#       发表于 2025-2-6 23:38
+
+三天三夜不洗澡看護大莫
+
+Soyorin 味大！
+
+*****
+
+####  暴走的包子  
+##### 18845#       发表于 2025-2-6 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363142&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-6 23:26</a>
+
+嘴上说的和身体干的还是不一样的，虽然祥某人切割了小睦但是马上去睦家的话是能把这句台词解释为“嘴硬心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">主要是时不时出现的现实元素导致很难完全用二次元的眼光来看待这个角色了，就算用二次元的眼光来看大祥老师也是low到极点的反派，一点魅力都没有
+
+*****
+
+####  aptx8285144  
+##### 18846#       发表于 2025-2-6 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361425&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-6 22:04</a>
+
+立希看得也太明白了</blockquote>
+到是印证了我觉得除了爱音，她是十人里面最正常的一个，不过这话爱音也已经初步圣人化了（为灯愤愤不平时却没有意识到重温旧梦是有问题的，本质就是独角兽已经顾不上那么多，随意写了），指望go团全都塑造完全没问题已经很难了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，要考虑为包饺子这个大前提
+
+*****
+
+####  沙坪坝沙耶香  
+##### 18847#       发表于 2025-2-6 23:39
+
+b站版的这红白字到底搞什么，没看出来规律
+
+*****
+
+####  单脚着地  
+##### 18848#       发表于 2025-2-6 23:39
+
+ 本帖最后由 单脚着地 于 2025-2-6 23:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363294&amp;ptid=2208921" target="_blank">wangh 发表于 2025-2-6 23:35</a>
+
+祥子转学在C团解散之前好不好……</blockquote>
+祥子在练习室收到消息是她爹出事被赶出去了，她转学肯定是这之后，你自己去看看当时她还穿的月之森校服呢，那次之后她就玩消失了，再次出现就是来宣布自己要退出了，对C团里其他不知情的人来说基本可以当作同一时间发生的事
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 18849#       发表于 2025-2-6 23:39
+
+感觉过两天就要有祥爹强碱soyo本子了
+
+*****
+
+####  6030sylar  
+##### 18850#       发表于 2025-2-6 23:39
+
+<img src="https://img.saraba1st.com/forum/202502/06/233937nutet0e0ln32j9e3.jpg" referrerpolicy="no-referrer">
+
+<strong>(Q6_T$U`%O25EP881@@3E_tmb.jpg</strong> (120.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/233947tvm0soszxzpstq2d.jpg" referrerpolicy="no-referrer">
+
+<strong>]]7B_5H1CQ}G{LXB0OY$`94.jpg</strong> (248.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 23:39 上传
+
+*****
+
+####  六道明  
+##### 18851#       发表于 2025-2-6 23:39
+
+十五年未有之大陀螺和她的酱油主唱初兵卫
+
+*****
+
+####  木板春香  
+##### 18852#       发表于 2025-2-6 23:40
+
+祥子都快成格里菲斯了
+
+*****
+
+####  cxj649  
+##### 18853#       发表于 2025-2-6 23:40
+
+黄瓜这个“精神病”最搞就是 第二人格是无暴力比第一人格更接人待物的
+
+不说片中路人，就连队友除了大祥老师外，其他人这集还以为她在演呢233
+
+*****
+
+####  595505568  
+##### 18854#       发表于 2025-2-6 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363154&amp;ptid=2208921" target="_blank">沙坪坝沙耶香 发表于 2025-2-6 23:26</a>
+一个月没人管都没事，差这几秒看手机的功夫吗，哪怕等人睡了掏出手机回个信息也很正常吧 ...</blockquote>
+那这个就是责任心的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我也没法解释，而且素世确实被迫对称拉剧情节点了，我也投降
+
+*****
+
+####  帆前  
+##### 18855#       发表于 2025-2-6 23:41
+
+现在cp未来什么情况，该不会是什么素睦垫给素莫，素莫垫给猫莫，猫莫垫给莫睦，莫睦垫给祥睦吧？？（
+
+*****
+
+####  Lyzers  
+##### 18856#       发表于 2025-2-6 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">楼里还在真情实感觉得剧情好的，没一个是祥厨，骂谁祥厨呢
+
+*****
+
+####  rushsong  
+##### 18857#       发表于 2025-2-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362643&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-6 22:59</a>
+首先确认一点
+
+官方什么的从没宣传过祥子是什么“大女主”
+
+对吧</blockquote>
+那确实，但是祥子从宣传图和OP上来看地位就是不一样，没播之前谁会想过是这种塑造呢?
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  柴突猛进  
+##### 18858#       发表于 2025-2-6 23:41
+
+为什么二创里面猫猫有阴阳眼能让人接受，母鸡卡里面就这么违和？
+
+因为在二创里面猫猫的阴阳眼是唯一能够破局和推动剧情的存在，但是在母鸡卡里面，编剧愣是让大祥一个月没去找睦，让团队其他三个人都因为各种各样的理由觉得睦在演戏/无视了睦的异常，这个时候让猫猫用阴阳眼不是机械降神是啥？
+
+*****
+
+####  天空塔书记官  
+##### 18859#       发表于 2025-2-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363356&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-6 23:40</a>
+祥子都快成格里菲斯了</blockquote>
+其实ED刚出的时候，初华画面对应的才是格里菲斯，这下更恐怖了(
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lolisk  
+##### 18860#       发表于 2025-2-6 23:41
+
+<blockquote>Libartas 发表于 2025-2-6 23:33
+还有墨老师明明知道睦头喜欢哭来吸苦，结果到了ring就跟见不得光似的，不知道是在怕谁 ...</blockquote>
+主要是爱音说的话让她应激了，睦不喜欢这种跟风粉，莫想保护睦，所以看见乐奈不但盐对应还一眼点破病情反而屁颠地跟在后头
+
+*****
+
+####  lucasxp  
+##### 18861#       发表于 2025-2-6 23:42
+
+笑死我了soyo床上陪小鬼三天三夜电话都不回这是什么本子剧情
+
+*****
+
+####  海底铁锚  
+##### 18862#       发表于 2025-2-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363301&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-2-6 23:35</a>
+你要说海玲不关注队友吧，她还知道为喵梦撑腰，但就小睦的事而言，这妹子不是一般的冷血啊，她这比样没有本 ...</blockquote>
+海玲就是纯粹的机器人，完完全全的以事实说话。也不会对环境做任何主观能动性的动作。
+
+*****
+
+####  阿卡拉兰斯  
+##### 18863#       发表于 2025-2-6 23:42
+
+看完莫小姐滚完楼梯在大街上发癫回去看了下第三集，越看越觉得不对劲
+前三集和后三集就不像一部动画，太割裂了，再想想，第四集，第五集都可以拆开来，加上虽然是因为假药但也暴露出来了动画的一堆bug，感觉像是莫小姐出来给鸡下了咒一样，突然就光怪陆离了
+先再等等看看第七集和大金毛的后续吧
+
+*****
+
+####  木板春香  
+##### 18864#       发表于 2025-2-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363374&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-6 23:41</a>
+
+其实ED刚出的时候，初华画面对应的才是格里菲斯，这下更恐怖了(
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+初华要去阻止丰川祥子献祭掉母鸡卡以达成自己心灵的平静么？  三角初华还在路上
+
+*****
+
+####  厚乳果珍爽  
+##### 18865#       发表于 2025-2-6 23:43
+
+[https://www.saraba1st.com/2b/thread-2244777-1-1.html](https://www.saraba1st.com/2b/thread-2244777-1-1.html)
+
+问题一直存在，只不过之前mygo情感塑造的还是合理，不会在意一些剧情设定上的硬伤。
+
+但是mujica做得太过了，硬伤太明显，你无法忽视，就成了目前观众的各种反应。
+
+嘛，烂就烂了，烂片再烂也比没人看的片强不是？
+
+*****
+
+####  fuwamoco  
+##### 18866#       发表于 2025-2-6 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363333&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-6 23:38</a>
+
+三天三夜不洗澡看護大莫
+
+Soyorin 味大！</blockquote>
+还闻了睦的芭蕾舞鞋子
+
+
+*****
+
+####  blackeryuri2  
+##### 18867#       发表于 2025-2-6 23:44
+
+想来想去都没想明白为啥要让后面要让祥子说那些话，突然灵机一动，后面要有祥子和祥爹和解的剧情了，哦，当然少不了我们大女主soyo的进一步高光
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 18868#       发表于 2025-2-6 23:44
+
+有一说一，邦邦存在玄幻要素不是一天两天了，说猫猫机械降神的该不会mujica是你们的年一邦吧？
+
+*****
+
+####  syndrome2032  
+##### 18869#       发表于 2025-2-6 23:44
+
+大祥老师虐的好，我很满意<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+又在意又舍不得自尊心硬撑。
+
+就差修正拳了。
+
+soyo陪牢莫三天三夜怎么一副离异前妻看望孩子的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+就是牢莫和黄瓜大街现场表演精分有点夸张了，我最早还以为是脑内小剧场
+
+*****
+
+####  烂片雷达  
+##### 18870#       发表于 2025-2-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363333&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-6 23:38</a>
+三天三夜不洗澡看護大莫
+
+Soyorin 味大！</blockquote>
+肯定有洗澡吧，小睦睡衣常服衣服都换过
+不过小睦家有适合素世的衣服换洗吗，洗完澡洗完衣服穿什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 18871#       发表于 2025-2-6 23:45
+
+话说真还有吃祥睦的应该是都死了，不说一个月没去看，光三天三夜这个话出来这详睦吃的也是二手货了。
+
+*****
+
+####  HGCG+  
+##### 18872#       发表于 2025-2-6 23:45
+
+"神回"
+<img src="https://p.sda1.dev/21/fbc29240eba32ca8747ea1957f92bb30/IMG_CMP_147937821.png" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  huxiaopao163  
+##### 18873#       发表于 2025-2-6 23:46
+
+翻译解释的这集标题的出处
+
+“愤怒是短暂的疯狂，你要控制好心灵（此处指前文提到的愤怒情绪），它若不服从你，就会指挥你。用缰绳或锁链来控制它。”
+
+可以认为这一切是小睦对祥子的恨，与小睦对祥子的爱，这两者的分裂。类似头上的小天使与小恶魔。
+
+而现在小睦身体被对祥子的愤怒控制住了。
+
+*****
+
+####  南宮凝香  
+##### 18874#       发表于 2025-2-6 23:46
+
+這集唯一的意義是從根本上切割了C團重組的可能
+
+要是有人說重組C團
+
+素世跟立希應該會四隻老拳掄上去
+
+猶豫一秒便當輸了
+
