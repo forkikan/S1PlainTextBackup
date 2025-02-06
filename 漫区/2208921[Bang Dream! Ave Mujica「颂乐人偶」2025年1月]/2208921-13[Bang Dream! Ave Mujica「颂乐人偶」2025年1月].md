@@ -4238,3 +4238,92 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 18147#       发表于 2025-2-6 11:28
+
+<blockquote>天邪鬼 发表于 2025-2-6 11:17
+睦的性格形成基本确定是小时候被拉上节目然后说错话或者啥的导致的，再加上有人说她靠爹妈，让她变相自我厌 ...</blockquote>
+有一个发展的过程，在鸡团的地下室喵睦对线中，可以看到睦还是有完整的表达能力，所以也有人提出哪怕睦头缺少类母爱的成员互动，这里跟喵梦对线一番也能把情绪发泄出来，但被打断了。
+
+到祥子面前就开始无口，可以追溯到mygo13话睦说加入的理由是不想祥子坏掉后被祥子怼高高在上，就更小心翼翼了。
+
+但喵睦其实没有情感性，根本破不了睦头的防，反而交流起来没有负担。
+
+*****
+
+####  兔耳僵尸  
+##### 18148#       发表于 2025-2-6 11:29
+
+八根红线，母鸡卡四个，手手，小灯，中登，老登<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 18149#       发表于 2025-2-6 11:30
+
+https://b23.tv/wzJgsWu
+<img src="https://p.sda1.dev/21/75004d843784b779a9f272afe16ef8b4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/67334c34acb8bcab0b66d74a7a215072/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/6f7a8fd66f81814f0318d4441b1f9387/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3636b96f035161d184f3033791ef3d14/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 18150#       发表于 2025-2-6 11:32
+
+老登多半是推动剧情工具人，再出场主要意义估计可能就是和中登和解。
+
+不过我个人观点是内鬼和老登无关，或者内鬼即使和老登有关，拆团指令也不是老登策划的。
+
+鸡团1.0爆炸的问题明显就是要甩大祥老师头上的，这锅要是老登接了就有点搞笑了。
+
+*****
+
+####  595505568  
+##### 18151#       发表于 2025-2-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356931&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-6 11:32</a>
+老登多半是推动剧情工具人，再出场主要意义估计可能就是和中登和解。
+
+不过我个人观点是内鬼和老登无关，或 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 18152#       发表于 2025-2-6 11:36
+
+<img src="https://img.saraba1st.com/forum/202502/06/113523m8y8z7ibz7za4rj9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5661.jpeg</strong> (230.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 11:35 上传
+
+三角初華罪大惡極
+
+*****
+
+####  fuwamoco  
+##### 18153#       发表于 2025-2-6 11:36
+
+大概率墨提斯怎么努力都治不好，最后圣祥降临拯救睦头
+
+*****
+
+####  杂灰  
+##### 18154#       发表于 2025-2-6 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356851&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 11:21</a>
+当我们讨论“背叛者”的时候我们究竟在讨论什么呢？
+
+背叛者=丰川家族的内应，丰川家族的目的就是要把A团1 ...</blockquote>
+作为祥子身边的人出于某种理由否定了祥子的选择和努力的都是背叛者，实际上一路过来已经有不少祥子的意志被其他人否定的铺垫了，过去跟着爹生活所做的选择与努力被爹否定，现在是被老登否定了所有自我挣扎被定性为过家家。那么母鸡卡的背叛者其实并不需要太多外界理由，她只需要有不认同祥子的地方并为了否定而做出行动
+过去祥子这些行为虽然有有问题的地方但完全没必要全盘否定，而祥子的个人成长要从这些他人的看法中抓住自我有价值的部分坚持下去维系自我
+

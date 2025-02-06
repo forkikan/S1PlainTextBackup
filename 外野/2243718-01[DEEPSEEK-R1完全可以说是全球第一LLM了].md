@@ -17959,3 +17959,48 @@ cherry挂知识库完全没问题，你甚至能挑个喜欢的文风的小说�
 
 一直这样...
 
+
+*****
+
+####  飞天荷兰人  
+##### 1417#       发表于 2025-2-6 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356825&amp;ptid=2243718" target="_blank">lamuchair 发表于 2025-2-6 11:18</a>
+
+连接 DeepSeek API 失败。这通常是由于配置错误或 DeepSeek API 账户问题。请检查您的设置并验证您的 DeepS ...</blockquote>
+官方的API服务是不是崩了，根本没回复，想念还没爆火的时候。
+
+*****
+
+####  魔灵高达  
+##### 1418#       发表于 2025-2-6 11:24
+
+昨天想说，拿10段精选的刘备文给r1学习，结果中途突然失忆了，连破限都中途失败，应该是上下文超了吧？我还特意让他只回复已阅来省tokens。
+如果要它学习文风，用他对这些段落的思考建立知识库有用吗？还是是直接用小说原文呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Glaceon丶  
+##### 1419#       发表于 2025-2-6 11:33
+
+https://cloud.siliconflow.cn/i/XRBdLLtf
+
+传火传火<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 昨天试了下本地部署（14b），速度其实还行（HBM神秘加成？）
+但考虑到连疯狂星期四都get不到的水平还是投奔API了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/02fb9619e02f48dd21e8e6ed3f313d3d/CMP_20250206113152064.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+
+*****
+
+####  琉璃苑軒風  
+##### 1420#       发表于 2025-2-6 11:35
+
+[https://cloud.siliconflow.cn/i/erfbHC4B](https://cloud.siliconflow.cn/i/erfbHC4B)
+
+终于搞定硅基那边了，注册你我都拿2000万tokens
+
