@@ -2279,3 +2279,14 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 我有买错过游戏，鬼灭的日版和港版是分开的，我当时先买了日版，然后后来打折时候转区再去买了港版，存档都有，在云存档里有两个独立的
 
+
+*****
+
+####  roamer  
+##### 225#       发表于 2025-2-6 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342810&amp;ptid=2244683" target="_blank">sunnyjee 发表于 2025-2-4 00:49</a>
+
+先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就 ...</blockquote>
+这玩意儿是要日本手机号吗
+

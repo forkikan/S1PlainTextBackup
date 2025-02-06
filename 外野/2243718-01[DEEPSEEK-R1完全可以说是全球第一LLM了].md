@@ -18269,3 +18269,25 @@ r1论外，r1写的东西我害怕
 
 那么哪里有gemini的本地版本呢？
 
+
+*****
+
+####  anianime  
+##### 1446#       发表于 2025-2-6 15:30
+
+gemini是闭源的，哪有本地部署版本
+
+*****
+
+####  trentswd  
+##### 1447#       发表于 2025-2-6 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358745&amp;ptid=2243718" target="_blank">lyt777 发表于 2025-2-6 15:27</a>
+那么哪里有gemini的本地版本呢？</blockquote>
+意思就是别用本地了
+gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的地方吧
+
+除非真的是有隐私需求，完全不能接外网，那种只能接本地的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
