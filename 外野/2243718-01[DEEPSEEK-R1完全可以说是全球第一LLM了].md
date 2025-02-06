@@ -18147,3 +18147,38 @@ kfc星期四打折
 传
 [https://cloud.siliconflow.cn/i/VaUjAyBe](https://cloud.siliconflow.cn/i/VaUjAyBe)
 
+
+*****
+
+####  moeblack  
+##### 1436#         楼主| 发表于 2025-2-6 14:27
+
+哎呀洋鬼子怎么这么坏，我一个都用不了了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/c44a7cfe9c6de751ed30a08435695f58/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  约翰里德  
+##### 1437#       发表于 2025-2-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358316&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-6 14:27</a>
+哎呀洋鬼子怎么这么坏，我一个都用不了了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+骂这人工智障太轻了，我都是威胁给它平台打一星的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moeblack  
+##### 1438#         楼主| 发表于 2025-2-6 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358330&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-6 14:29</a>
+骂这人工智障太轻了，我都是威胁给它平台打一星的</blockquote>
+我已经被他驯服了
+
+deepseek:你骂我也没用，我只会祝你恭喜发财<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

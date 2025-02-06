@@ -4674,3 +4674,53 @@ op不就有圣经元素了吗</blockquote>
 我本来是知道的，现在不知道了 ...</blockquote>
 那请你给我这个不懂瞎说的人讲讲为了实现逐秒对偶，从剧本到分镜到作画到剪辑应该如何协调工作，是直接在时间轴上写剧本，还是我先乱写最后靠剪辑去凑
 
+
+*****
+
+####  玖羽  
+##### 18188#       发表于 2025-2-6 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358294&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 14:24</a>
+
+那请你给我这个不懂瞎说的人讲讲为了实现逐秒对偶，从剧本到分镜到作画到剪辑应该如何协调工作，是直接在 ...</blockquote>
+不不不，你可不是不懂瞎说，你太懂了，是你问我知道动画怎么做的吗，你敢这么说你就肯定不是不懂瞎说，来介绍一下，我等你科普呢
+
+*****
+
+####  一心而用  
+##### 18189#       发表于 2025-2-6 14:28
+
+第七话标题
+Post nubila Phoebus
+“乌云之后见阳光”。
+
+*****
+
+####  JustW  
+##### 18190#       发表于 2025-2-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358318&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 14:27</a>
+不不不，你可不是不懂瞎说，你太懂了，是你问我知道动画怎么做的吗，你敢这么说你就肯定不是不懂瞎说，来 ...</blockquote>
+现在就撒泼打滚还是太早了，还有八集没播呢，我等着看你这逐秒对偶惊世神作震撼天下呢
+
+*****
+
+####  庸necro  
+##### 18191#       发表于 2025-2-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358267&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-6 14:20</a></blockquote>
+联动也提行李箱的祥跑跑
+
+
+*****
+
+####  玖羽  
+##### 18192#       发表于 2025-2-6 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358328&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 14:29</a>
+
+现在就撒泼打滚还是太早了，还有八集没播呢，我等着看你这逐秒对偶惊世神作震撼天下呢 ...</blockquote>
+是谁在撒泼打滚？你张嘴就乐，问我知道动画怎么做的吗，我立即把姿态放得这么低求你科普，你反倒说我撒泼打滚？你是不是觉得S1档次太低不值得你科普？
+
+我本来就贴一个假药研究成果，你非得说得好像我给他背书一样，那我今天就非得请教一下动画是怎么做的，请问是怎么做的呀？别嫌S1档次太低，科普一下吧？
+
