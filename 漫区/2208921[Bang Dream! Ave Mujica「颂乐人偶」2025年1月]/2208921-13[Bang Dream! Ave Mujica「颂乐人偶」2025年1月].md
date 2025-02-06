@@ -4111,3 +4111,83 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团 ...</blockquote>
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一心而用  
+##### 18135#       发表于 2025-2-6 11:09
+
+第六话官方 fanart
+灯祥 绘：QUASARCAKE ​​​
+<img src="https://p.sda1.dev/21/c6f9901a402b19eb4f70511ce6db29c5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 18136#       发表于 2025-2-6 11:09
+
+ 本帖最后由 天空塔书记官 于 2025-2-6 11:12 编辑 
+
+祥子是端着大小姐架子喝茶而穿便宜衣服的唯一一人。
+
+祥子一到咖啡店，所有喝茶的顾客便都看着她笑。有人叫道："丰川小姐，你又破防掉眼泪了"她不回答，对前台说："要一杯红茶，不要茶点。"然后掏出一把散钱。他们又故意高声嚷道："你一定又听了春日影了！"祥子睁大眼睛说："你怎么这样凭妄加揣测……"他们又嘲讽道："什么揣测？我前天亲眼见你从RING跑出来，哭了一路。"祥子便涨红了脸，咬牙争辩道："哭算什么破防……！朋友组乐队的事，能算破防么？"接着便是难懂的话，什么"命运共同体",什么"担负人生"之类，引得众人都哄笑起来，店内外充满了快活的空气。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 18137#       发表于 2025-2-6 11:13
+
+大祥老师这设定丢其他片场不就是开场一股反派作风后期光速进场的恶役千金。
+
+哦，原来我说的是mygo啊
+
+
+*****
+
+####  嵇翱u  
+##### 18138#       发表于 2025-2-6 11:14
+
+官方fanart和B站官方切片都是灯祥，今晚必有大战啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 18139#       发表于 2025-2-6 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356756&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-6 11:09</a>
+
+第六话官方 fanart
+
+灯祥 绘：QUASARCAKE ​​​</blockquote>
+破损的镜面也做出了一个带面具的效果，这个图画的很厉害
+
+*****
+
+####  ads147147  
+##### 18140#       发表于 2025-2-6 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356652&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-6 10:55</a>
+
+现在补两拳也来得及（这年糕真得大力锤才软糯吧）
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这时候你给祥子两拳人家说不定还会来一句你没吃饭么，大力点，我想死的三板斧。。
+
+*****
+
+####  天邪鬼  
+##### 18141#       发表于 2025-2-6 11:17
+
+睦的性格形成基本确定是小时候被拉上节目然后说错话或者啥的导致的，再加上有人说她靠爹妈，让她变相自我厌恶。但就算这样，她到ccc的时候也是会笑和说话的。
+
+现在这个睦头人形态更可能是夹在两人中间，又要控制表情和说话给出的信息防止素世打听，又要照顾祥子那脆弱的自尊心给练出来的
+
+*****
+
+####  swessia  
+##### 18142#       发表于 2025-2-6 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以A part猫睦，B part灯箱吗
+
