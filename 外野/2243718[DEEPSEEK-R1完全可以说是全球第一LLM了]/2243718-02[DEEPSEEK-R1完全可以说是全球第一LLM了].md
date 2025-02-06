@@ -218,3 +218,49 @@ DS的API平台现在需要用密码登陆欸..白天还可以使用手机的验�
 我刚开始也是同样几个人物一直生成，确实基本条件一致的话生成的内容都差不多，所以现在就每天转换世界观 ...</blockquote>
 威胁打一星是什么操作，听起来很抽象的样子
 
+
+*****
+
+####  jf8350143  
+##### 1502#       发表于 2025-2-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361518&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-6 22:09</a>
+
+用来硅基流动的pro api，确实付费强了很多。
+
+但是我发现了很严重的问题，就是太喜欢赛博朋克了，可能是我酒 ...</blockquote>
+这个pro api要怎么用，是需要付费才能解锁么？我看了下好像api 的key 和链接都和普通的没区别？
+
+*****
+
+####  脸宽  
+##### 1503#       发表于 2025-2-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363041&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-6 23:20</a>
+
+这个pro api要怎么用，是需要付费才能解锁么？我看了下好像api 的key 和链接都和普通的没区别？ ...</blockquote>
+是的，硅基流动的api是可以选择模型的，找到pro打头的那个就行了
+
+*****
+
+####  对羟基笨甲酸  
+##### 1504#       发表于 2025-2-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361518&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-6 22:09</a>
+用来硅基流动的pro api，确实付费强了很多。
+
+但是我发现了很严重的问题，就是太喜欢赛博朋克了，可能是我酒 ...</blockquote>
+阴谋论、科幻、义体、数字
+D老师的xp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 1505#       发表于 2025-2-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363126&amp;ptid=2243718" target="_blank">对羟基笨甲酸 发表于 2025-2-6 23:25</a>
+阴谋论、科幻、义体、数字
+D老师的xp</blockquote>
+还有各种天马行空的计划名称和虚构地点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
