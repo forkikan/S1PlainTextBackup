@@ -4388,3 +4388,37 @@ xinjinjumin0684910
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357338&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-6 12:24</a></blockquote>
 初华上灯！是吉他扫弦！
 
+
+*****
+
+####  玖羽  
+##### 18161#       发表于 2025-2-6 12:48
+
+【剧本对偶说】go13倒放与鸡1的逐秒对比
+[https://www.bilibili.com/video/BV1wZP1eiEvg](https://www.bilibili.com/video/BV1wZP1eiEvg)
+
+<img src="https://img.saraba1st.com/forum/202502/06/124813cgbrjbi5qh8gkbz8.jpg" referrerpolicy="no-referrer">
+
+<strong>0000.jpg</strong> (161.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 12:48 上传
+
+*****
+
+####  天空塔书记官  
+##### 18162#       发表于 2025-2-6 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  JustW  
+##### 18163#       发表于 2025-2-6 12:56
+
+逐秒对比给我看乐了，知道动画怎么做的吗
+
