@@ -1974,3 +1974,57 @@ soyo太多了，不得不给＋2
 
 现在莫提斯已经是章鱼博士了，确实得靠蜘蛛人来救。
 
+
+*****
+
+####  dqtql  
+##### 207#       发表于 2025-2-7 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362769&amp;ptid=2245428" target="_blank">Alicest 发表于 2025-2-6 23:05</a></blockquote>
+请问这是哪部动画啊
+
+*****
+
+####  麻巳巳  
+##### 208#       发表于 2025-2-7 00:08
+
+一坨不知所云-2，场外继续有乐子看+2，综合给个零
+
+*****
+
+####  MKLL  
+##### 209#       发表于 2025-2-7 00:09
+
+这集我看了一个多小时，为什么呢，因为太尬了不得不暂停笑会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神人动画
+
+*****
+
+####  Alicest  
+##### 210#       发表于 2025-2-7 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363682&amp;ptid=2245428" target="_blank">dqtql 发表于 2025-2-7 00:07</a>
+
+请问这是哪部动画啊</blockquote>
+少女歌剧剧场版
+
+设定上来说和bang dream是一个世界观
+
+
+*****
+
+####  kaildo  
+##### 211#       发表于 2025-2-7 00:13
+
++2
+太变态了这动画
+只要接受鸡团都是有人格缺陷的神人一切都会好起来的
+
+*****
+
+####  方舟售票员  
+##### 212#       发表于 2025-2-7 00:15
+
+mygo和之前的bangbang相比，是真实系的...<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+今天这集是真看笑了
+

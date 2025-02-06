@@ -320,3 +320,16 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 话说被提示你发送消息的频率过快大概要等多久才能继续发送？我大概是刚才一条消息修改太多次了一直发送再重 ...</blockquote>
 20分钟，建议充值成为黄金会员解锁无限制调戏ai功能
 
+
+*****
+
+####  kerorara  
+##### 1511#       发表于 2025-2-7 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363352&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-6 23:40</a>
+虽说硅基流动开Pro了，但我还在观望就是了，官方的deepseek开放平台现在处于可以的进网页，但不能充值的状 ...</blockquote>
+我昨天刚在deepseek的api平台实名认证氪进去20。
+可能是服务还在波动吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
