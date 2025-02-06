@@ -14400,3 +14400,47 @@ b站翻译其实没啥问题
 额，在表演时，除非有录像许可的曲目，实际上是不会有人拿手机怼在脸上拍的，盗摄也不可能让人随便就能看 ...</blockquote>
 也不是说上台，她顶号了好一段时间呢，不仅上台下台还要和mujica社交出去采访拍广告。这段时间一次都见不到手机？别人看到她对手机这么大反应不奇怪？
 
+
+*****
+
+####  Spin-Up  
+##### 19169#       发表于 2025-2-7 02:21
+
+soyo哪里只是贝斯妈妈，soyo简直就是侠女<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+单人深入虎穴的事情做了好几次，每次都是胆小被吓出表情包，小睦被置于现实火力的时候只有她扑了过去维护小睦，我建议此话标题改为《月之森侠女传》<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19170#       发表于 2025-2-7 02:22
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 02:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364503&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 02:18</a>
+也不是说上台，她顶号了好一段时间呢，不仅上台下台还要和mujica社交出去采访拍广告。这段时间一次都见不 ...</blockquote>
+但这部分确实没画面啊，我只是从已有的画面进行推测，画面外这咋知道啊
+
+编剧可能都不会考虑这些
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  kivz  
+##### 19171#       发表于 2025-2-7 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364345&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-2-7 01:35</a>
+才发现6集了，独角兽只在第一话脚本挂了个共作，mygo13话里独角兽就写了四话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  terry666  
+##### 19172#       发表于 2025-2-7 02:27
+
+看完了。
+
+我说句对鸡团粉丝来说编剧就是纯畜生有人反对吗？
+
