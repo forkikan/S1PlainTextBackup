@@ -18592,3 +18592,15 @@ deepseek的文档里说后面会上跟o3类似的reasoning-effort 来控制CoT�
 
 日常需求专业度高，联网搜索是刚需，官网总是服务器忙，好捉急啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PharotekWizard  
+##### 1476#       发表于 2025-2-6 17:52
+
+ 本帖最后由 PharotekWizard 于 2025-2-6 17:53 编辑 
+
+[https://cloud.siliconflow.cn/i/5Zo9o7J8](https://cloud.siliconflow.cn/i/5Zo9o7J8)
+传火
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

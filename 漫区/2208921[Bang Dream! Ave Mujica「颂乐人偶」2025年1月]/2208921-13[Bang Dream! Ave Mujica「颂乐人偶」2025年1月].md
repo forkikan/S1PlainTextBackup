@@ -5240,3 +5240,41 @@ https://b23.tv/H6LdYuz
 
 女方有多惊人，男方就有多渣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwwttth  
+##### 18246#       发表于 2025-2-6 17:48
+
+不属于祥子的母鸡卡，让我想到当初看到的祥子爱音对换假药了，这下给爱音追星追明白了。
+
+*****
+
+####  老贝  
+##### 18247#       发表于 2025-2-6 17:51
+
+墨的心智显然没那么高，而且她对于睦玩吉他看上去挺有意见的，也许是嫉妒。按这个方向想的话肯定是谁带她玩乐队她恨谁。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 18248#       发表于 2025-2-6 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359828&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-6 17:48</a>
+不属于祥子的母鸡卡，让我想到当初看到的祥子爱音对换假药了，这下给爱音追星追明白了。 ...</blockquote>
+大胆猜测，母鸡卡其他4人组成没有祥子的A团2.0，大祥老师听到消息拍桌子道:就让我来结束母鸡卡的闹剧，然后被大喵老师死亡之握一把拉上台，睦头人递上键盘，然后一群人开始即兴演出震惊四座<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 18249#       发表于 2025-2-6 17:53
+
+所谓的大脑自我保护机制诞生的第二人格，说白了就是甩锅。
+
+睦痛苦的根源是家庭身份错位缺失和作为童星过渡曝光后舆论压力得到的不断负反馈。长期压抑自己的表演天赋和表达能力以避免说错话带来的压力和焦虑。
+
+睦头大脑：我解决不了这些，但我能创造一个全肯定墨提斯，告诉你错的都是别人来缓解你的焦虑。
+
+至于为什么针对祥子，因为睦头根本不在乎喵梦干了啥，亲妈和环境墨提斯解决不了，所以她火力全对准祥子。
+
