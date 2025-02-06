@@ -5632,3 +5632,38 @@ https://b23.tv/H6LdYuz
 
 还是想擅自期待一下海铃戏份能有总时长五分之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 18285#       发表于 2025-2-6 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359961&amp;ptid=2208921" target="_blank">傲呆莉亚 发表于 2025-2-6 18:09</a>
+飞鸟山跟渣男弃女对应起来也太强行了…玩个放学后乐队真的不是谈恋爱啊
+
+以正常人的视角：你退个乐队，也说 ...</blockquote>
+有一说一，你说完是自己问题然后就开始说队友不行，队友很难觉得不是你对他们有意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 18286#       发表于 2025-2-6 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359990&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-6 18:12</a>
+
+但也不可能让木头一辈子不用演技吧，虽然天赋继承自父母，但那也是睦的一部分，融合也罢，共存也罢，这都是 ...</blockquote>
+不用演技？Mortis就是演技的产物
+
+我从第一眼看到Mortis到现在，脑袋里都是下面这句话，没错，我至今认为Mortis不配称为一个人格
+
+<img src="https://img.saraba1st.com/forum/202502/06/183644twb5yfz5nxksmzwz.jpg" referrerpolicy="no-referrer">
+
+<strong>11111.jpg</strong> (72.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 18:36 上传
+
