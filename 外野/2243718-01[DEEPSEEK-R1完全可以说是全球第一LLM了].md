@@ -18320,3 +18320,16 @@ R1太癫了，动不动就见血
 
 官方API开了一天就不能充值了
 
+
+*****
+
+####  lyt777  
+##### 1451#       发表于 2025-2-6 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358776&amp;ptid=2243718" target="_blank">trentswd 发表于 2025-2-6 15:31</a>
+
+意思就是别用本地了
+
+gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的地方吧</blockquote>
+？那怎么写刘备，GEMINI破限很容易吗？
+
