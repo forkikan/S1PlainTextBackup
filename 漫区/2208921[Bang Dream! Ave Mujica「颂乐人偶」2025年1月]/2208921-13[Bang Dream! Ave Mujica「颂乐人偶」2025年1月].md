@@ -4582,3 +4582,95 @@ op不就有圣经元素了吗
 
 以及这个13集和1集的倒播评论区还有人罗列了所有“能对应上的点”，其中不说全部也有九成牵强附会，图一乐就算了，真信的最好小心电信诈骗
 
+
+*****
+
+####  JustW  
+##### 18180#       发表于 2025-2-6 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358187&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 14:10</a>
+既然你敢这么说，你一定很了解，你不会不知道以前有人做过不同集数时间轴对应吧
+
+只知道张着一张嘴搁那乐 ...</blockquote>
+那可不是，少了你们这动画的乐趣立马打一折
+
+*****
+
+####  哈曼的YY  
+##### 18181#       发表于 2025-2-6 14:20
+
+<blockquote>庸necro 发表于 2025-2-6 13:38
+op不就有圣经元素了吗</blockquote>
+啊对 吻杀和犹大那些 我想说的是没想到会有十字架和圣母数字生日这么多的地方
+
+所以有人觉得背叛者是在给祥老师找补就很神奇 明明一开始是给变态的酒店小黑屋找补 还能对应op的各种意向 哪怕最后都空了也是追原创过程中的乐趣之一
+
+*****
+
+####  NODY  
+##### 18182#       发表于 2025-2-6 14:20
+
+<img src="https://img.saraba1st.com/forum/202502/06/142030alw9data8n94949t.png" referrerpolicy="no-referrer">
+
+<strong>98CA97083AA83D7BE3E07EE90A3807D8.png</strong> (123.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 14:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/06/142029apbpvkp8fw5pkpkl.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2v-2acrZnT3cSqy-sg.jpg</strong> (139.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 14:20 上传
+
+*****
+
+####  玖羽  
+##### 18183#       发表于 2025-2-6 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358238&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 14:17</a>
+
+以及这个13集和1集的倒播评论区还有人罗列了所有“能对应上的点”，其中不说全部也有九成牵强附会，图一乐 ...</blockquote>
+你要说牵强附会也就罢了，上来就张着个嘴搁那乐，问我知道动画怎么做的吗
+
+我本来是知道的，现在不知道了，一定要请你科普动画是怎么做的，给S1的大家开开眼，我想既然你这么懂，一定不会说不出来吧？
+
+*****
+
+####  一心而用  
+##### 18184#       发表于 2025-2-6 14:20
+
+黄兄弟又开始文字剧透了，内容都不出所料。
+
+*****
+
+####  玖羽  
+##### 18185#       发表于 2025-2-6 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358247&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-6 14:18</a>
+
+那可不是，少了你们这动画的乐趣立马打一折</blockquote>
+一折多没意思啊，我觉得整个动画的乐趣都没你一折强，快点科普一下动画是怎么做的，我什么都不懂，就等着你这个什么都懂的科普呢
+
+*****
+
+####  狂热飞鸟  
+##### 18186#       发表于 2025-2-6 14:23
+
+说白了，只要鸡没烂，逻辑能圆上，那祥子就不会烂(好不好另说)。所以在某些人眼里给剧本找补就等于给祥子找补。
+
+
+*****
+
+####  JustW  
+##### 18187#       发表于 2025-2-6 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358268&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-6 14:20</a>
+你要说牵强附会也就罢了，上来就张着个嘴搁那乐，问我知道动画怎么做的吗
+
+我本来是知道的，现在不知道了 ...</blockquote>
+那请你给我这个不懂瞎说的人讲讲为了实现逐秒对偶，从剧本到分镜到作画到剪辑应该如何协调工作，是直接在时间轴上写剧本，还是我先乱写最后靠剪辑去凑
+
