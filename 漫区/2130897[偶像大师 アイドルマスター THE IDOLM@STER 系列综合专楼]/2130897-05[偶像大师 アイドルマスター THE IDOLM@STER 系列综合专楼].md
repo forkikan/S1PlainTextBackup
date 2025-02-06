@@ -100,3 +100,16 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 美铃SOLO1一般，甚至是全角色SOLO1最差的，但是生日曲非常喜欢
 
+
+*****
+
+####  BQlin  
+##### 6893#       发表于 2025-2-7 00:21
+
+冠菊加长版，拿系统自带的剪辑随便拼出来解解馋
+
+连接处有点瑕疵，有没有大佬帮忙拼个好一点的
+[https://pan.baidu.com/s/1tiIY2xWKIV5li9_FlwwLFw?pwd=u5sg](https://pan.baidu.com/s/1tiIY2xWKIV5li9_FlwwLFw?pwd=u5sg)
+
+音源[https://www.bilibili.com/video/av113951790598660/](https://www.bilibili.com/video/av113951790598660/)
+

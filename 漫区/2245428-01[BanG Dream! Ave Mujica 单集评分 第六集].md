@@ -2028,3 +2028,25 @@ mygo和之前的bangbang相比，是真实系的...<img src="https://static.sara
 
 今天这集是真看笑了
 
+
+*****
+
+####  凤鲜  
+##### 213#       发表于 2025-2-7 00:22
+
+看的很开心，爱音逃兵羁绊，素世母爱溢出，立希c团难忘+质问团魂，灯皇替睦说话，还有最神奇的猫咪乐奈，狗团每个人塑造都很全面，直接+2有疑问吗？
+
+祥子继续下降，睦头化身舔狗，大喵一直震惊，海铃还在风凉，初华直接消失。不存在的乐队需要打分吗？
+
+母鸡卡是什么真不熟，这就是mygo第二季呀
+
+*****
+
+####  暗示我7酱  
+##### 214#       发表于 2025-2-7 00:23
+
++2 
+给我找到了国家队13集之后的感觉 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB-J716F, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

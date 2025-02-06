@@ -1254,3 +1254,16 @@ https://x.com/kamikitafutago/status/1886912084899979514
 プリキュアおじさんpresentsキラキラおしゃれひなまつりへぜひどうぞ
 <img src="https://p.sda1.dev/21/37c43fe34a740eef98c9832ac1a1dfd7/20250206_233002.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  噗哩噗  
+##### 384#       发表于 2025-2-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360347&amp;ptid=2208663" target="_blank">待宵 发表于 2025-2-6 18:56</a>
+
+真讨论偶像是什么不就等着跟去年一样爆典吗？</blockquote>
+对小朋友来说偶像是什么并不是偶像真的是什么啊，去年是直接从现实题材切入，离小孩远的东西按公主样板抄都行，怕的反而是乱创新
+
+当然第一集没有落入把当偶像当梦想的陷阱已经很加分
+
