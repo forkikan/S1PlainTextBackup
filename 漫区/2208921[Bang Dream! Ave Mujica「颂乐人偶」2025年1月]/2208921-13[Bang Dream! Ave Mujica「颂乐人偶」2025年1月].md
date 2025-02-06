@@ -5585,3 +5585,42 @@ https://b23.tv/H6LdYuz
 
 只有創傷沒空洞的立希跟她就對不起來
 
+
+*****
+
+####  zhoujin8584  
+##### 18280#       发表于 2025-2-6 18:51
+
+<blockquote>MASKA-1 发表于 2025-2-6 18:22
+隔壁猴区专楼感觉要借睦莫进行祥粉祥黑大战了</blockquote>
+专楼作为养蛊地，越火声音越纯，厨子串黑罢了
+
+
+*****
+
+####  小博禹  
+##### 18281#       发表于 2025-2-6 18:53
+
+睦是养成款<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  NaAgfykp  
+##### 18282#       发表于 2025-2-6 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360210&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-6 18:36</a>
+说得多的也就双R了吧，不过由于现在没有相关的新番剧了，吵架的也基本都沉寂了 ...</blockquote>
+双R…
+感觉“相互竞争”的味道更浓一点，还是偏正向而不是互相恨的负面情感。
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhoujin8584  
+##### 18283#       发表于 2025-2-6 18:55
+
+祥子没有把灯的声音强加给睦，她强加的是自己的声音，至今都没有问过睦为什么玩乐队不开心而擅自认为那句话是在助攻自己
+
