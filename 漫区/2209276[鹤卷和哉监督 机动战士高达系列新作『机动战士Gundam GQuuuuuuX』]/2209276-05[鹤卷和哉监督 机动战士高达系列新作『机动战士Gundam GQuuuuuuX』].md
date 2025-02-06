@@ -8948,3 +8948,35 @@ nt有觉醒了能力又失去了的例子吗？
 然后下面一堆人讨论的结果是她打算和鸭子结婚
 除了鸭子想杀她之外这确实是一手好棋
 
+
+*****
+
+####  线程召唤使  
+##### 6601#       发表于 2025-2-6 19:56
+
+IGN的文章，说那部真人电影的，
+
+Mobile Suit Gundam Live Action Film Now in Full Production
+
+A live action film adaptation of the beloved anime and toy franchise Mobile Suit Gundam finally appears to have entered full production, with Bandai Namco and Legendary signing an agreement to co-finance it.
+
+While the film was announced in 2018 it's barely been heard of since, but this word from Legendary and the newly formed Bandai Namco Filmworks America indicates fans can finally start looking forward to seeing the first ever live action Gundam film on the big screen.
+
+The companies confirmed Mobile Suit Gundam, which currently lacks an official name, will be written and directed by Sweet Tooth's Kim Mickle and released in theaters globally.
+
+It will be the first live action punt for a franchise which has seen 25 anime series, 34 animated films, 27 original anime productions, and more, plus an incredibly popular toy line, that combined pull in more than $900 million a year.
+
+"We plan to steadily announce details as they become finalized," Legendary and Bandai Namco said. No release windows or plot details were shared, though a teaser poster was released.
+
+"Mobile Suit Gundam, which began broadcasting in 1979, established the genre of 'real robot anime' that could not be described in terms of simple good and evil, which had been the trend of robot anime up to that point, with realistic depictions of war, detailed scientific examinations, and intricately interwoven human dramas that treated robots as 'weapons' called 'mobile suits,' and caused a huge boom," they added.
+
+换导演了
+
+
+*****
+
+####  线程召唤使  
+##### 6602#       发表于 2025-2-6 20:03
+
+“seeing the first ever live action Gundam film on the big screen”（并不）
+
