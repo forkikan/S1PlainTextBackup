@@ -18066,3 +18066,31 @@ DeepSeek创始人受邀去美开研讨会</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  overflowal  
+##### 1427#       发表于 2025-2-6 12:56
+
+怎么都是64k上下文，就没国内厂商搞128k吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  希德尼娅  
+##### 1428#       发表于 2025-2-6 12:59
+
+效果不错，就是用着累，感觉像是给中学生当家教改作文，当然我也不是什么好的语文老师，结果师生开始拉扯
+
+*****
+
+####  希德尼娅  
+##### 1429#       发表于 2025-2-6 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356939&amp;ptid=2243718" target="_blank">Glaceon丶 发表于 2025-2-6 11:33</a>
+https://cloud.siliconflow.cn/i/XRBdLLtf
+
+传火传火 昨天试了下本地部署（14b），速度其实还行（HBM神秘加 ...</blockquote>
+你这太小众了吧，我也不知道什么叫疯狂星期四
+
