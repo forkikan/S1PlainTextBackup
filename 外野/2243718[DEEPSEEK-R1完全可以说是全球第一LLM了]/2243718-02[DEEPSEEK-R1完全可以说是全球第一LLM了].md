@@ -197,3 +197,24 @@ DS的API平台现在需要用密码登陆欸..白天还可以使用手机的验�
 我刚开始也是同样几个人物一直生成，确实基本条件一致的话生成的内容都差不多，所以现在就每天转换世界观来玩
 不过好像大D老师只有在一开始把世界观写明白了他才会按照你编的来写，如果是半路增加或者改写的世界观，他就会在下次生成时直接爆出你新写的世界观设定，我是想让角色通过探索慢慢找到真相，结果他就直接把掌握真相的角色给我吐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 1500#       发表于 2025-2-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362124&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-6 22:35</a>
+我刚开始也是同样几个人物一直生成，确实基本条件一致的话生成的内容都差不多，所以现在就每天转换世界观 ...</blockquote>
+秘密得慢慢喂。
+我这两位数主角团的加上全球满地跑加上各种奇幻设定已经把ds老师大脑烧废了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Algie  
+##### 1501#       发表于 2025-2-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362124&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-6 22:35</a>
+
+我刚开始也是同样几个人物一直生成，确实基本条件一致的话生成的内容都差不多，所以现在就每天转换世界观 ...</blockquote>
+威胁打一星是什么操作，听起来很抽象的样子
+
