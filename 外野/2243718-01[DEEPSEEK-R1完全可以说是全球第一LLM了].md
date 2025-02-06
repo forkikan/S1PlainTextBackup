@@ -18194,3 +18194,32 @@ deepseek:你骂我也没用，我只会祝你恭喜发财<img src="https://stati
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ryanghj  
+##### 1440#       发表于 2025-2-6 14:48
+
+官方应该是优先保证网页版了，api似乎加了速率限制，可能是半分钟到几分钟
+
+
+*****
+
+####  美坂汐里  
+##### 1441#       发表于 2025-2-6 14:49
+
+ 本帖最后由 美坂汐里 于 2025-2-6 14:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356939&amp;ptid=2243718" target="_blank">Glaceon丶 发表于 2025-2-6 11:33</a>
+[https://cloud.siliconflow.cn/i/XRBdLLtf](https://cloud.siliconflow.cn/i/XRBdLLtf)
+
+传火传火 昨天试了下本地部署（14b），速度其实还行（HBM神秘加 ...</blockquote>
+怎么说呢....
+
+首先，14b不能称之为ds，ds现在只有一个版本，671b那个。14b是用671b训练出来的其他模型。
+
+其次，14b本身数据量就太小。
+
+打个比方，这等于你去某米其林大厨的店吃饭，因为种种原因预约不上大厨本人的，就去吃了他手下学了两年的徒弟的。
+
+还是api效果好些
+
