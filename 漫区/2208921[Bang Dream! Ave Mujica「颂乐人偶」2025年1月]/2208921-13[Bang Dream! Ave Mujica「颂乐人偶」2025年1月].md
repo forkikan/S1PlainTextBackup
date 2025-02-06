@@ -4352,3 +4352,22 @@ https://b23.tv/wzJgsWu
 <img src="https://p.sda1.dev/21/94444a66efe49e292b8240e23ff795f5/image.jpg" referrerpolicy="no-referrer">
 xinjinjumin0684910
 
+
+*****
+
+####  嵇翱u  
+##### 18157#       发表于 2025-2-6 12:18
+
+如果祥子是耶稣，那三位一体算不算上帝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。然后正好把灯叫灯皇，喻指凯撒了。
+
+最后上帝的归上帝，凯撒的归凯撒。两个团彻底分离<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 18158#       发表于 2025-2-6 12:24
+
+<img src="https://p.sda1.dev/21/672321e691904abb622f40a95d226a83/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a83004b055a018afefdc240ed83d6b9c/image.jpg" referrerpolicy="no-referrer">
+
