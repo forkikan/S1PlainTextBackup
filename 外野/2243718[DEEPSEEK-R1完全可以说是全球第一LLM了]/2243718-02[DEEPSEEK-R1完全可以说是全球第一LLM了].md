@@ -96,3 +96,22 @@ DS的API平台现在需要用密码登陆欸..白天还可以使用手机的验�
 
 硅基流动搞了Pro版本的deepseek，试了应该是要充值才能用，不能薅邀请的羊毛。从 ～5 t/s 到 ～10 t/s 的巨大提升
 
+
+*****
+
+####  biye  
+##### 1490#       发表于 2025-2-6 21:53
+
+[https://cloud.siliconflow.cn/i/ogMGyExZ](https://cloud.siliconflow.cn/i/ogMGyExZ)
+
+传火
+
+*****
+
+####  约翰里德  
+##### 1491#       发表于 2025-2-6 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361280&amp;ptid=2243718" target="_blank">中二骚年 发表于 2025-2-6 21:44</a>
+硅基流动搞了Pro版本的deepseek，试了应该是要充值才能用，不能薅邀请的羊毛。从 ～5 t/s 到 ～10 t/s 的巨 ...</blockquote>
+试了下，秒出答案，不错，付费用户终于有了区别待遇<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
