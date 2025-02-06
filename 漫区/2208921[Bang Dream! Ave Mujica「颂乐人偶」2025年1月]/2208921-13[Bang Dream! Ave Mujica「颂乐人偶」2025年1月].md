@@ -3814,3 +3814,55 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团 ...</blockquote>
 
 海玲可是可不是，毕竟背后也没什么联系，难道刚加入乐队就被老登盒武器然后塞钱吗。
 
+
+*****
+
+####  天空塔书记官  
+##### 18110#       发表于 2025-2-6 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356309&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-6 10:08</a>
+睦当时说从来没觉得组乐队开心过不是为祥子的谜语人行为分摊伤害故意说的暴言吗？后续看她对C团的感情明明 ...</blockquote>
+木头无法像其他人一样用演奏表达自我的情绪所以不开心，这是一种压抑的感觉，而不单是为了祥子暴言<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 18111#       发表于 2025-2-6 10:19
+
+凭什么祥子唤醒睦就可以复活鸡团呀？真把鸡团当做两个大小姐的情趣了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+除非大猫真的铁暗恋、初华真是内鬼心中有愧，不然想不通为什么会乖乖回来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  小博禹  
+##### 18112#       发表于 2025-2-6 10:23
+
+<blockquote>天空塔书记官 发表于 2025-2-6 10:17
+木头无法像其他人一样用演奏表达自我的情绪所以不开心，这是一种压抑的感觉，而不单是为了祥子暴言
+
+—— ...</blockquote>
+长期这么压抑，半身一点没察觉，背一半锅不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+鸡团爆了后撑着病体支持小祥，完全不被关照，再背两成锅。
+
+最后睦头人都快傻了，还被小祥补刀干掉<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+可以说睦头之死小祥九成锅是跑不掉的<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 18113#       发表于 2025-2-6 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356159&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-6 09:43</a>
+
+【【Radio企划】MyGO!!!!!の「迷子集会」#112-哔哩哔哩】 https://b23.tv/BTseBWl
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+迷子集会之前的我没看过，请问也有出现这种用“观众来信"做幌子来剧透的先例吗？？
+
