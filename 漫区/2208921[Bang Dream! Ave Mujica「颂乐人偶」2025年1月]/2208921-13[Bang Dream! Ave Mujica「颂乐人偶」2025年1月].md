@@ -4989,3 +4989,27 @@ soyo这是。。。为母则刚啊
 
 大祥现在挂机一个月坐迈巴赫住大豪斯，也就是青梅竹马被偷家而已，没事还有另一个。
 
+
+*****
+
+####  友情的结晶  
+##### 18221#       发表于 2025-2-6 16:12
+
+是soyo没住大平层还是睦没住大别墅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  天空塔书记官  
+##### 18222#       发表于 2025-2-6 16:14
+
+ 本帖最后由 天空塔书记官 于 2025-2-6 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359006&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-6 15:59</a>
+对偶应该是对应剧情中的镜子，OP里的镜子，祥子的镜子，睦的镜子。。。
+
+当然现在的进度也不知道镜子在故事 ...</blockquote>
+其实还有一种解法，镜子里的自己是现实中自己的另一半，从剧情设计上讲迷子和A团的剧情互相补充，这是对偶；从角色塑造上讲就是展现迷子剧情外角色的另一面，打破镜子，就像是对另一半自我的完全接纳，即“自我的补完”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

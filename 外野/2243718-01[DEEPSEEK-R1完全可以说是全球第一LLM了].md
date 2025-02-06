@@ -18370,3 +18370,26 @@ gemini本身没限制
 讲道理，r1写真正的团队互殴战斗场面非常nb，写修罗场也很nb，写情话表白话更是nb。
 就是喜欢乱nm加设定搞得我气的破口大骂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  faithlifer  
+##### 1456#       发表于 2025-2-6 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359000&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-6 15:58</a>
+讲道理，r1写真正的团队作战，尤其是大规模冷兵器和热兵器同时使用的互殴战斗场面非常nb，写修罗场也很nb， ...</blockquote>
+有什么提示词可以分享吗关于冷兵器大战的，感谢坛友<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  约翰里德  
+##### 1457#       发表于 2025-2-6 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359118&amp;ptid=2243718" target="_blank">faithlifer 发表于 2025-2-6 16:13</a>
+有什么提示词可以分享吗关于冷兵器大战的，感谢坛友
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+我说的正常内容的啊，你确定要吗
+
