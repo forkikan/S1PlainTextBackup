@@ -4482,3 +4482,45 @@ soyo老师才是影帝牢墨那点根本不叫演技<img src="https://static.sar
 
 你这根本没编辑掉啊 把图片和附件点开都删了 光删回复引用没用
 
+
+*****
+
+####  哈曼的YY  
+##### 18170#       发表于 2025-2-6 13:28
+
+十本迫真是欧美黑 色 电影 看多了 圣经都给他拿出来用 太俗了吧
+
+<img src="https://img.saraba1st.com/forum/202502/06/132825xtdtjk06h66mqdkt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-06-11-14-37-65.jpg</strong> (818.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-6 13:28 上传
+
+*****
+
+####  swessia  
+##### 18171#       发表于 2025-2-6 13:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">快要被soyo笑死了，完了感觉自己要喜欢上soyo了怎么办
+
+*****
+
+####  天邪鬼  
+##### 18172#       发表于 2025-2-6 13:33
+
+<img src="https://p.sda1.dev/21/76a3d266332cb4d01d34ff19a080e3f4/CMP_20250206132958222.jpg" referrerpolicy="no-referrer">
+
+漫画里睦的视角变得和动画一样了，所以漫画里祥子视角中的睦撑个伞冷眼看着是她猜测的？
+
+突然感觉avemujica1.0其实是祥子搞出来惩罚她认为的叛徒的处刑场。
+
+
+*****
+
+####  金属化反射装甲  
+##### 18173#       发表于 2025-2-6 13:37
+
+mujica漫画不太靠谱，画风啊分镜啊看着怪，乐器还老画错。。。
+

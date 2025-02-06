@@ -8835,3 +8835,13 @@ nt有觉醒了能力又失去了的例子吗？
 
 这周票房20亿突破没问题了吧
 
+
+*****
+
+####  王留美  
+##### 6592#       发表于 2025-2-6 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357567&amp;ptid=2209276" target="_blank">卑弥呼yamato 发表于 2025-2-6 12:50</a>
+ 这周票房20亿突破没问题了吧</blockquote>
+ベーダー速报前天已经破了，昨天报20.42亿，算上折扣误差无论如何今天都能破
+
