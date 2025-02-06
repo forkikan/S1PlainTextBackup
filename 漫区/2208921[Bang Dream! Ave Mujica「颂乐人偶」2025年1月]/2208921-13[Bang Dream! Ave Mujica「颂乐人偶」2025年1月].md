@@ -4191,3 +4191,50 @@ c团本来就是祥子的团，c团能动＝祥子能动，c团 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以A part猫睦，B part灯箱吗
 
+
+*****
+
+####  zhoujin8584  
+##### 18143#       发表于 2025-2-6 11:19
+
+八根红线，喵：……那我呢？
+
+*****
+
+####  安娜导函数  
+##### 18144#       发表于 2025-2-6 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356720&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-6 11:04</a>
+
+背叛者是肯定存在的，而背叛者是最适合把初华拉到与祥子对等的身份</blockquote>
+当我们讨论“背叛者”的时候我们究竟在讨论什么呢？
+
+背叛者=丰川家族的内应，丰川家族的目的就是要把A团1.0炸了，好控制大翔老师？
+
+
+*****
+
+####  595505568  
+##### 18145#       发表于 2025-2-6 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356851&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 11:21</a>
+当我们讨论“背叛者”的时候我们究竟在讨论什么呢？
+
+背叛者=丰川家族的内应，丰川家族的目的就是要把A团1 ...</blockquote>
+圣经论看就是罗马总督对基督说：汝当认罪
+但是罗马总督本意不是处死基督<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 18146#       发表于 2025-2-6 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356851&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 11:21</a>
+当我们讨论“背叛者”的时候我们究竟在讨论什么呢？
+
+背叛者=丰川家族的内应，丰川家族的目的就是要把A团1 ...</blockquote>
+整治一下大祥天真的性格，然后再拽回家呗。
+外公不都说了  这回你也学到些东西了吧，给我回来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
