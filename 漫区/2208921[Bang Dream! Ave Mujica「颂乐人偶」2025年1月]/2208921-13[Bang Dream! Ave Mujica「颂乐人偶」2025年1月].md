@@ -4524,3 +4524,14 @@ soyo老师才是影帝牢墨那点根本不叫演技<img src="https://static.sar
 
 mujica漫画不太靠谱，画风啊分镜啊看着怪，乐器还老画错。。。
 
+
+*****
+
+####  庸necro  
+##### 18174#       发表于 2025-2-6 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67357889&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-6 13:28</a>
+
+十本迫真是欧美黑 色 电影 看多了 圣经都给他拿出来用 太俗了吧</blockquote>
+op不就有圣经元素了吗
+
