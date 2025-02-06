@@ -5354,3 +5354,82 @@ https://b23.tv/H6LdYuz
 
 如果切割了莫睦，比较抽象的是祥子欠了木头，但跳出来拷打黑祥的又是mo，到木头回来了祥子还是欠着木头，mo一个小孩子二重人格也没法拿她怎么样（）
 
+
+*****
+
+####  yaneis  
+##### 18257#       发表于 2025-2-6 18:17
+
+而且木头最核心的问题吉他唱不了歌还真不是祥子的问题，在c团时她也不开心（
+
+*****
+
+####  烂片雷达  
+##### 18258#       发表于 2025-2-6 18:21
+
+祥子有咩有爱上墨提斯的可能性，木箱莫三个人睦–&gt;祥–&gt;莫–&gt;睦，这种全单向的扭曲闭环关系难道就是睦祥关系性的醍醐之处<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MASKA-1  
+##### 18259#       发表于 2025-2-6 18:22
+
+隔壁猴区专楼感觉要借睦莫进行祥粉祥黑大战了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 18260#       发表于 2025-2-6 18:22
+
+太抖m了，难怪会想重组Mujica
+
+*****
+
+####  白水潭的饿鬼  
+##### 18261#       发表于 2025-2-6 18:23
+
+我也来一个叙诡假药<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+大莫老师人格诞生于c团时期，直接原因就是箱子。c团和鸡团都炸于大莫。大莫说在c团一点也不开心，后面一定回收这句话。和soyo一样，身体不由自主的动了起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+木箱矛盾才是c团和鸡团爆炸的核心原因，只不过箱子从来没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  哈曼的YY  
+##### 18262#       发表于 2025-2-6 18:23
+
+睦&gt;祥&gt;莫&gt;爽&gt;睦
+
+*****
+
+####  akiomn  
+##### 18263#       发表于 2025-2-6 18:24
+
+隔壁专楼了已经出新的剧透图了，莫提斯那个表情有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 18264#       发表于 2025-2-6 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360026&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-6 18:17</a>
+而且木头最核心的问题吉他唱不了歌还真不是祥子的问题，在c团时她也不开心（ ...</blockquote>
+祥子也有责任，因为她是作曲者，因为她不去理解木头的内心，而把灯的声音强加给了她，所以木头无法发出自己的声音
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 18265#       发表于 2025-2-6 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67360073&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-2-6 18:22</a>
+隔壁猴区专楼感觉要借睦莫进行祥粉祥黑大战了</blockquote>
+打不起来，全是祥粉莫黑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

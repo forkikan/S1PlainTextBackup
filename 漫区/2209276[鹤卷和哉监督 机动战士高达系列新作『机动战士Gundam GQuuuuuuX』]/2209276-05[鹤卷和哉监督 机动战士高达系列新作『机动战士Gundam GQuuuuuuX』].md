@@ -8861,3 +8861,19 @@ nt有觉醒了能力又失去了的例子吗？
 
 [https://x.com/daph_neko/status/1887411827908485348](https://x.com/daph_neko/status/1887411827908485348)
 
+
+*****
+
+####  虛無迴廊  
+##### 6594#       发表于 2025-2-6 18:17
+
+……蒙面果身还是过于变太了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 6595#       发表于 2025-2-6 18:23
+
+<img src="https://p.sda1.dev/21/1716b45716e7658242edeffa6f102e17/image.jpg" referrerpolicy="no-referrer">
+

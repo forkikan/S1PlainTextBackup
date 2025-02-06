@@ -1207,3 +1207,14 @@ https://x.com/kamikitafutago/status/1886912084899979514
 与怪兽战斗，还会唱歌跳舞的奇装异服女人，这要放古代肯定是偶像啊。说不定还要招圣女去学舞蹈来与偶像沟通 ...</blockquote>
 什么返璞归真的偶像崇拜
 
+
+*****
+
+####  新HGCG  
+##### 380#       发表于 2025-2-6 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359211&amp;ptid=2208663" target="_blank">阿卡拉兰斯 发表于 2025-2-6 16:23</a>
+
+什么返璞归真的偶像崇拜</blockquote>
+真原教旨偶像
+
