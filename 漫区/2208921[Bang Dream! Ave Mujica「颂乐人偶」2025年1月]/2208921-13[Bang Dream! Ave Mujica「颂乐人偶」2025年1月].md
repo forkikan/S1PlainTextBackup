@@ -4890,3 +4890,23 @@ soyo这是。。。为母则刚啊
 
 后来几集都没有了吗？
 
+
+*****
+
+####  NaAgfykp  
+##### 18211#       发表于 2025-2-6 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358517&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-6 14:58</a>
+不过我现在理解为啥祥厨这么恨莫了</blockquote>
+也不是所有祥推都不喜欢莫
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  KokutouMikiya  
+##### 18212#       发表于 2025-2-6 15:43
+
+我觉得对偶说倒不至于是纯牵强附会，证据还是挺多的，问题在于搞这玩意儿目前看来没多大意义，看不出对偶结构为剧情服务的迹象。要是真有意义，那就变成另外一个版本的叙诡说了
+

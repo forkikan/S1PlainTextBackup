@@ -18291,3 +18291,32 @@ gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  faithlifer  
+##### 1448#       发表于 2025-2-6 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358712&amp;ptid=2243718" target="_blank">trentswd 发表于 2025-2-6 15:23</a>
+
+gemini写刘备也很强啊（）
+
+可能仅次于claude 3 opus
+
+r1论外，r1写的东西我害怕</blockquote>
+R1太癫了，动不动就见血
+
+*****
+
+####  约翰里德  
+##### 1449#       发表于 2025-2-6 15:41
+
+尼玛，这傻子人工智障成天想办法黑我扮演的主角，我又要臭骂他了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 1450#       发表于 2025-2-6 15:43
+
+官方API开了一天就不能充值了
+
