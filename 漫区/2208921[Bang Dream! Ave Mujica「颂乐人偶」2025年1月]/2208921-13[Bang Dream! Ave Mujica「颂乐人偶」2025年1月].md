@@ -14212,3 +14212,28 @@ b站翻译其实没啥问题
 
 第七集就是飞鸟山之战对偶了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 19151#       发表于 2025-2-7 01:50
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 01:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364385&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 01:46</a>
+小白出现认知障碍都是会直接表现出来的，她能看到鲸鱼在天上飞呢。
+
+狗团里高压第一视角也会变形黑屏有杂 ...</blockquote>
+有不一样的地方，小白的认知障碍能够被表现是因为主视角在她身上，而睦则不是，在卧室是素世的视角，在外面是众人(?)的视角
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 19152#       发表于 2025-2-7 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd，我本来都不带脑子看番了，第五集已经够我乐的了。然后第六集来了个三天三夜，what can i say？致敬天使龙是吧
+卖cp都卖的我想笑
+
