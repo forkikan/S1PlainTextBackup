@@ -18444,3 +18444,26 @@ gemini本身没限制
 gemini谷歌的，不用实名，而且（目前）不要钱，没啥担心的地方吧</blockquote>
 它这个是免费几个月还是一直有个免费的低级版本？
 
+
+*****
+
+####  约翰里德  
+##### 1463#       发表于 2025-2-6 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359246&amp;ptid=2243718" target="_blank">暗月杀人兔 发表于 2025-2-6 16:28</a>
+求关键词，顺便问下单纯润色的话r1平替有吗，r1老是给我胡乱发散按都按不住 ...</blockquote>
+看你具体要什么了，如果要现实的，明确告知他对应势力，时间，越细越好，他会自动的给你找对应装备型号。
+如果是空想的，那你就得在人物卡里标注好，能力啥的写上去，他自己会生成你需要的对战内容。
+r1我不确定替代的，我只用这个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  faithlifer  
+##### 1464#       发表于 2025-2-6 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67359144&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-6 16:16</a>
+
+我说的正常内容的啊，我不写刘备文的，你确定要吗</blockquote>
+对啊就是正常内容，感谢！
+

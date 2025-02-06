@@ -5013,3 +5013,29 @@ soyo这是。。。为母则刚啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 18223#       发表于 2025-2-6 16:36
+
+[【わたくし達の歌を聞いて！と叫び出してしまいそう…！（「聆听我们的歌吧！」 我不禁要放声呐喊）-哔哩哔哩】](https://b23.tv/vn8jXCv) 
+
+今天发的烂炒小视频
+
+[分享MyGO!!!!!的单曲《歌いましょう鳴らしましょう (一同歌唱一同奏响)》](http://163cn.tv/BIwcsKg)
+
+搞不好真会有这歌出场<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  一心而用  
+##### 18224#       发表于 2025-2-6 16:42
+
+https://b23.tv/H6LdYuz
+<img src="https://p.sda1.dev/21/78449948750b114a4f22e6df57c4d757/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7f9daa615d361281dc0d3b2e8f69638f/image.jpg" referrerpolicy="no-referrer">
+
