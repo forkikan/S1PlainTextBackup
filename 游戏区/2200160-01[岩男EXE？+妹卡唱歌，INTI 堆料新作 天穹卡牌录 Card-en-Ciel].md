@@ -1879,3 +1879,14 @@ INTI 的新年贺图：https://www.inti.co.jp/nenga2025.htm
 
 打算买一份，ns版有和谐或者更新慢之类的问题吗？
 
+
+*****
+
+####  检索者  
+##### 161#       发表于 2025-2-6 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67353049&amp;ptid=2200160" target="_blank">66367749 发表于 2025-2-5 17:16</a>
+
+打算买一份，ns版有和谐或者更新慢之类的问题吗？</blockquote>
+体感加载比PC慢一些，有时候会卡顿
+

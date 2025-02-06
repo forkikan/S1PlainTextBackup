@@ -3642,3 +3642,33 @@ mujica肯定还是需要每个人都有问题，祥子性格问题，睦头人�
 你就没发现现在睦祥两个人问题都刚好是一个c团live能解决得差不多吗全都是c团时期没搞好的后遗症 ...</blockquote>
 那为什么不能是睦头和其他人（含鸡团1.0成员，如海玲、初华）聚在一起并演奏了春日影，祥子又又又破防泪奔一次呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 18095#       发表于 2025-2-6 09:29
+
+其实搞一个非常传统的剧本，初华一直追逐着祥子，最后发现是追着心中的幻影，迷茫过后发现祥子也是一个立体的人，初华不再纠结过去，和鸡团的大家一起走下去，又典又好写吧
+
+
+*****
+
+####  swessia  
+##### 18096#       发表于 2025-2-6 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356048&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-6 09:26</a>
+
+那为什么不能是睦头和其他人（含鸡团1.0成员，如海玲、初华）聚在一起并演奏了春日影，祥子又又又破防泪 ...</blockquote>
+第七集是鸡团live是最好的，但是问题就是第七集实在聚不起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 18097#       发表于 2025-2-6 09:35
+
+<blockquote>安娜导函数 发表于 2025-2-6 09:18
+所以说到底是哪里来的消息说第七话要复活CCCP并演奏春日影的？？这种剧本才是烂完了好吧
+
+ ...</blockquote>
+不一定是春日影，只是按对偶论肯定有个live
+
