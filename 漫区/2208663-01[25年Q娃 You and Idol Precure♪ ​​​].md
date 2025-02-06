@@ -1197,3 +1197,13 @@ https://x.com/kamikitafutago/status/1886912084899979514
 
 就是这个第二集就暴露感觉之后会不好写
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 379#       发表于 2025-2-6 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67356583&amp;ptid=2208663" target="_blank">天邪鬼 发表于 2025-2-6 10:46</a>
+与怪兽战斗，还会唱歌跳舞的奇装异服女人，这要放古代肯定是偶像啊。说不定还要招圣女去学舞蹈来与偶像沟通 ...</blockquote>
+什么返璞归真的偶像崇拜
+

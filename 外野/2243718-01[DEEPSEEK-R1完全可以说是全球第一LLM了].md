@@ -18393,3 +18393,24 @@ gemini本身没限制
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 我说的正常内容的啊，你确定要吗
 
+
+*****
+
+####  深空坍缩  
+##### 1458#       发表于 2025-2-6 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358877&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-6 15:41</a>
+
+尼玛，这傻子人工智障成天想办法黑我扮演的主角，我又要臭骂他了</blockquote>
+呵呵，故意的。我扮演创世神让世界自行演化，死了个我喜欢的角色，我让R1复活她，结果R1先是给她搞了个代价极大的复活方式，变的不人不鬼，气得我直接对他说我是创世神，你给我无代价的复活她，然后复活之后他借着角色之口阴阳我<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyf199212  
+##### 1459#       发表于 2025-2-6 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67358987&amp;ptid=2243718" target="_blank">zypyong 发表于 2025-2-6 15:57</a>
+
+联网现在是不能用了吗，其他有地方能用可以联网搜索的DEEPSEEK吗</blockquote>
+可以联网，就是卡吐了，别的网站有联网功能的r1可以用秘塔，每天能免费搜100次
+
