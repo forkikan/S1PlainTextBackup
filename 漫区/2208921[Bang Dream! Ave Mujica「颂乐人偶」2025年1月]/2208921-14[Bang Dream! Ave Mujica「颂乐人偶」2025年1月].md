@@ -2174,3 +2174,86 @@ EXO是晚辈了。
 
 你要充分意识到，am团在邦邦世界观，是被丰川大手用全面地推的方式，一个月硬捧上武道馆的超级偶像——别说什么实力，就算放慢到一年，实力乐队不挂靠IP，从结成到上武道馆一年都是属于你确定你脑子没进水？这地儿排期排一年不奇怪，也就是说演出前一年你的水平、名声就已经要能达到武道馆演出的审核底线了。
 
+
+*****
+
+####  adw667  
+##### 19437#       发表于 2025-2-7 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366478&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-7 11:10</a>
+
+一方面用各种演出手法让motis显得像个诡异的坏东西，一方面又用灵猫之类的让motis显得好像是个好东西，那你 ...</blockquote>
+motis好的那一面是是社交装甲，是演的，演得观众都信了她是个小可爱
+
+*****
+
+####  aptx8285144  
+##### 19438#       发表于 2025-2-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366908&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 11:53</a>
+
+爱音都直白的说是理解祥子在逃避现实了，这样写已经算人设回撤了。</blockquote>
+我指的是这两个段落一旦结合起来看，对睦的形象也是一种伤害，会让睦看起来超出轻百里面一般女士范畴看起来很舔狗
+
+*****
+
+####  刑部姬真可爱  
+##### 19439#       发表于 2025-2-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366889&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 11:50</a>
+
+话说独角兽和柿本为何前面双人格大战要不要找大祥，后面却让大祥宣称自己不认识睦，他们真得觉得这只是对大 ...</blockquote>
+所以在下集预告马上塞了祥子站在睦家门前的画面
+
+*****
+
+####  清江望月  
+##### 19440#       发表于 2025-2-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366801&amp;ptid=2208921" target="_blank">Reinhold 发表于 2025-2-7 11:40</a>
+
+引咎辞职
+
+以及</blockquote>
+上门女婿就是儿子啊，他都改姓丰川了，实际上他的继承权是大于大祥老师的，你看大祥老师他外公的话就明白了，想继承丰川家族大祥老师必须先当自己外公的义女，而且这里有个前提就是大祥老师她爸必须失去继承权，也就是赶出家门。
+
+完了，这动画的剧情不能细想，一细想哪哪都有问题。
+
+
+*****
+
+####  fsfs_freeze  
+##### 19441#       发表于 2025-2-7 11:57
+
+该排排毒血了，不是人人都奔着女女关系性来看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 19442#       发表于 2025-2-7 12:00
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 12:02 编辑 
+
+既然楼里都有分裂症患者现身说法了，那我也来吧
+
+其实像这种在公众面前搞“异常表演”的事情，我就做过，在小学上课的时候突然站起身来绕着教室打转(白日梦游)，后边甚至当着老师和同学的面走出了教室，到走廊上去撞栏杆，只能庆幸当时没被当成精神病送进隔壁五院(精神病院)了
+
+所以类似的事情放在现实，大概率是没什么人会向精神疾病患者方面考虑的，又不是突然暴起伤人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岬开斗  
+##### 19443#       发表于 2025-2-7 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366911&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-7 11:53</a>
+如果AKB如日中天的时候前田敦子在涩谷十字路口闹这出，估计也好不到哪儿去。</blockquote>
+都出到第六集了怎么还没认识到，鸡团上武道馆是跌落的剧情需要，是编剧的大手，不需要遵守任何世界观，你那个“丰川大手全年地推”是你自己为了世界观自洽脑补出来的。
+以现在体现出来的编剧水平来说，任何试图给AM圆设定的行为都是假药，都超出了编剧的能力之外。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

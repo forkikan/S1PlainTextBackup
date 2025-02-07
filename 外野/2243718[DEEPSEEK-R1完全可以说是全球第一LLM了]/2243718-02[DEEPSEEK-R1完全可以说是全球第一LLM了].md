@@ -604,3 +604,14 @@ pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接�
 pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接拉到最下面就是，cherry应该要自己添加模型名 ...</blockquote>
  不用。cherry 也是在设置里找到硅基流动，然后打开右下侧的管理的最下面也有个pro 的分类目录里面就有了。
 
+
+*****
+
+####  jeokeo  
+##### 1536#       发表于 2025-2-7 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67361280&amp;ptid=2243718" target="_blank">中二骚年 发表于 2025-2-6 21:44</a>
+硅基流动搞了Pro版本的deepseek，试了应该是要充值才能用，不能薅邀请的羊毛。从 ～5 t/s 到 ～10 t/s 的巨 ...</blockquote>
+请问一下现在有没有类似chatbox的安卓软件？
+chatbox感觉不太好用
+
