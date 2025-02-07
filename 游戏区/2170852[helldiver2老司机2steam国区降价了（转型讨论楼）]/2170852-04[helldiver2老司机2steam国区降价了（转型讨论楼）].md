@@ -565,3 +565,18 @@ KZ联动甲算不算防火，能抗双刃镰吗
 
 相比之下反而地狱火背包有点整活了
 
+
+*****
+
+####  KOBI  
+##### 5732#       发表于 2025-2-7 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365946&amp;ptid=2170852" target="_blank">九十九忍 发表于 2025-2-7 10:23</a>
+
+KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
+可以，联动甲+生命虽然没办法完全免伤但散热红之前伤害可以忽略
+
+反正红了后要么换弹要么靠针
+
+就是轻甲容易寿衣，反应时间也比火甲少
+

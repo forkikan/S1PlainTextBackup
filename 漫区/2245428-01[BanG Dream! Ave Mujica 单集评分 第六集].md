@@ -2923,3 +2923,13 @@ soyo释怀了吗？
 
 编剧写时间的时候是真的没概念，精神病JK卧室闷一个月，同学JK去探望三天三夜没回家，太狂气了
 
+
+*****
+
+####  Kfly  
+##### 294#       发表于 2025-2-7 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369779&amp;ptid=2245428" target="_blank">KioShiMa 发表于 2025-2-7 18:20</a>
+编剧写时间的时候是真的没概念，精神病JK卧室闷一个月，同学JK去探望三天三夜没回家，太狂气了 ...</blockquote>
+记得天使龙最后吹三天三夜其实也就一夜？也是由此很怀疑素世是不是在夸大其词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
