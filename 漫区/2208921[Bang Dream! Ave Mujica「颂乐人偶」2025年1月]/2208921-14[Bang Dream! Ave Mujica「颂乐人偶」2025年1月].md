@@ -1449,3 +1449,140 @@ Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会
 
 沒這三大舔狗她已經可以如願的過孤獨人生了
 
+
+*****
+
+####  天空塔书记官  
+##### 19371#       发表于 2025-2-7 10:49
+
+“丰川家的黑暗面”好像就是访谈说的?
+
+所以大概不会这么简单<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 19372#       发表于 2025-2-7 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366174&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 10:42</a>
+
+还在吵祥子还在吵。祥子的背景设定放在现实里是挺惨的，但是现在惨的程度也不够合理化她的所有言行了，就好 ...</blockquote>
+但是仔细想一想，除非假药里老登确实是幕后黑手，也确实和炸团有直接关系，否则大祥的背景对于普通人还是高不可攀（
+
+*****
+
+####  JustW  
+##### 19373#       发表于 2025-2-7 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366233&amp;ptid=2208921" target="_blank">eyeego 发表于 2025-2-7 10:47</a>
+祥爹到底惨在哪了？
+无非就是中年死了老婆又丢了工作 在二刺螈比惨大会里都排不上号的 ...</blockquote>
+放现实里啊，放二次元里那谁不是闹麻了，总有人更惨一千倍
+
+*****
+
+####  plusSharp  
+##### 19374#       发表于 2025-2-7 10:52
+
+<blockquote>iiiiiiiiii 发表于 2025-2-7 10:43
+我觉得初华害睦有极大可能性，首先不怎么可能半身童年只认识祥子,不认识睦。睦的第二人格可能是小时候过 ...</blockquote>
+是的，而且初华偷听睦和祥子谈话可能就是在确认计划进度，拆团的表现也是故意的，甚至喵梦坚信睦是演技也许都是初华引发的
+
+*****
+
+####  zhzij111  
+##### 19375#       发表于 2025-2-7 10:53
+
+祥子真惨的就一个妈死了。
+
+这爹中年失业颓了有啥惨得，现实里爹失业惨是收入断了欠一屁股债，小祥这爹一点债没有天天喝大酒，自己千亿财产等着继承，真是惨的没边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  qlipho  
+##### 19376#       发表于 2025-2-7 10:54
+
+祥惨就惨在编剧觉得她太惨了
+
+*****
+
+####  Mika-S  
+##### 19377#       发表于 2025-2-7 10:54
+
+这集不就继续说明了在你🐔世界观里喵梦的想法就完全是“正常人”，你看正常路人一直以来都是跟喵梦同频的啊，认为睦/莫断线啊发癫啊都是超绝演技，狂喊666的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 19378#       发表于 2025-2-7 10:54
+
+ 本帖最后由 单脚着地 于 2025-2-7 10:57 编辑 
+
+问题照漏油这么逻辑演下去，那丰川祥子这个角色直接消失就好了，不抗争不倔的丰川祥子根本没存在的必要。非理性的抗争，哪怕跌的遍体鳞伤最后只剩失败，永远不该在文艺作品里被贬低。如果编剧是海明威，她现在所经历的多半连四十天都不到，那条大马林鱼都没钓上来呢。索性她现在不是一个人孤独的漂在海上，我相信编剧一定让人拉住她想要剪断钓线的手，那个人可能是素世，可能是灯也可能是睦，最后哪怕Ave mujica再也没法主流，成为那个被鲨鱼啃食完的骨架，只要坚持到岸边，那这个组合就依旧没有被大海击败
+
+*****
+
+####  江口夕  
+##### 19379#       发表于 2025-2-7 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366233&amp;ptid=2208921" target="_blank">eyeego 发表于 2025-2-7 10:47</a>
+祥爹到底惨在哪了？
+无非就是中年死了老婆又丢了工作 在二刺螈比惨大会里都排不上号的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放二次元里还行，你咋不说除了大祥老登一帮穷jk连个人生都背不动，放二次元里直接背个地球
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 19380#       发表于 2025-2-7 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366285&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-7 10:52</a>
+
+是的，而且初华偷听睦和祥子谈话可能就是在确认计划进度，拆团的表现也是故意的，甚至喵梦坚信睦是演技也 ...</blockquote>
+其实我觉得这话喵梦看了视频要是还在坚信这是睦的演技，我都要怀疑她的智商有没有问题了，合理推测她应该要怀疑睦确实有双重人格了
+
+*****
+
+####  南宮凝香  
+##### 19381#       发表于 2025-2-7 10:55
+
+祥爹也沒什麼
+
+祥子放下他幾次也沒變飛浩
+
+掏點錢送進療養院迫戒酒就能解決
+
+放現實裡祥子更掛不上號減慘
+
+*****
+
+####  plusSharp  
+##### 19382#       发表于 2025-2-7 10:56
+
+祥子在“二次元”里也算不上惨的，魔卡少女樱漫画里的木之本樱不也是幼年丧母，哥哥，父亲都有特殊设定，也不像祥子那样只会无差别攻击
+
+*****
+
+####  eyeego  
+##### 19383#       发表于 2025-2-7 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366278&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 10:51</a>
+放现实里啊，放二次元里那谁不是闹麻了，总有人更惨一千倍</blockquote>
+一没欠债二还有女儿帮衬到底惨在哪了？
+酗酒是他自己废物可怨不得别人<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19384#       发表于 2025-2-7 10:57
+
+可惜现实里丰田家除了造假也找不到其他花边新闻，一点参考价值都没<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

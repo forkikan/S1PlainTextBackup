@@ -544,3 +544,14 @@ KZ联动甲算不算防火，能抗双刃镰吗
 
 什么时候出奶人无人机了我再带双刃镰吧，有点容易死了
 
+
+*****
+
+####  Sannapolis  
+##### 5730#       发表于 2025-2-7 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366131&amp;ptid=2170852" target="_blank">rick343 发表于 2025-2-7 10:38</a>
+
+什么时候出奶人无人机了我再带双刃镰吧，有点容易死了</blockquote>
+穿防火甲并且队里有带生命力强化的话只有热度超过100%时会扣血，问题不算特别大
+

@@ -456,3 +456,16 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 看看是不是应用有上下文数和输出长度限制</blockquote>
 max token8192吧
 
+
+*****
+
+####  斯卡文分则能成  
+##### 1525#       发表于 2025-2-7 10:49
+
+https://cloud.siliconflow.cn/i/z8SkAHeN
+这里也传个火吧
+虽然是真卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+充钱能不卡么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
