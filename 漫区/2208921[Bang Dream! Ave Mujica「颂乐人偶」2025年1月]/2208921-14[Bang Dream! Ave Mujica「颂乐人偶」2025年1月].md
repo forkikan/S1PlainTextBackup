@@ -7444,3 +7444,175 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ntrntr1  
+##### 19874#       发表于 2025-2-7 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371577&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:22</a>
+
+没事去医院住两天，看看别人。我见过的反而是女儿女婿照顾的多，亲生的反而说忙巴拉巴拉来的少。
+
+——  ...</blockquote>
+那请问他们离婚了吗 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">  
+
+我国国情这么开放都是前夫前妻照顾岳父岳母？AMAZING.
+
+*****
+
+####  江口夕  
+##### 19875#       发表于 2025-2-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371557&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:18</a>
+所以这句话害死了祥子妈妈？ 让祥子爸爸酗酒了？
+
+你要不要再用脑子想一想？祥子的家庭悲剧是外公引起的？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然呢，但凡教育好，女儿也不会找个赘婿。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  木板春香  
+##### 19876#       发表于 2025-2-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371574&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 23:21</a>
+
+他酗酒是因为被切割出了家庭，借酒消愁，用酒精麻痹自我，你到底有没有看过我在说什么 ?  
+
+丰川家和丰川 ...</blockquote>
+我来还原下现场：
+
+<img src="https://img.saraba1st.com/forum/202502/07/232504dgu55xsq65uquswv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 23:25 上传
+
+你说的又有什么用，老登亲手拆了这个家，
+
+我的回答是：
+
+<img src="https://img.saraba1st.com/forum/202502/07/232553t1e30z0k8n1kn0e5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 23:25 上传
+
+我的观点是： 
+
+<img src="https://img.saraba1st.com/forum/202502/07/232803kgm9dwz9nommlluv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 23:28 上传
+
+父女2个人都是因为性格决定的命运，悲剧是自己引起的，而不是被陷害的。
+
+自己做错的事，就要自己去面对，而不是通过假想出一个别人的陷害去逃避责任。
+
+*****
+
+####  木板春香  
+##### 19877#       发表于 2025-2-7 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371614&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:29</a>
+
+不然呢，但凡教育好，女儿也不会找个赘婿。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版  ...</blockquote>
+  丘处机真是个坏人
+
+
+*****
+
+####  江口夕  
+##### 19878#       发表于 2025-2-7 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371596&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 23:26</a>
+那请问他们离婚了吗   
+
+我国国情这么开放都是前夫前妻照顾岳父岳母？AMAZING.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看老丈人丈母娘的奇葩程度，你是丈母娘老丈人人还好好的，就急着切割了。只能说你真的很恨你老婆
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  huxiaopao163  
+##### 19879#       发表于 2025-2-7 23:32
+
+对了，mortis对给医生打电话这么执着，还重复了两次，应该不单纯是发病。而且除了打电话以外，其实也没有那么不正常。
+
+这应该也是某种模仿，例如小时候祥睦在给祥子妈妈表演的时候，妈妈突然病倒了，然后有人打电话叫医生的一幕，让年幼的睦印象深刻。甚至可能祥和睦在这个过程中犯了什么错，让妈妈的病更危险了。
+
+*****
+
+####  cxj649  
+##### 19880#       发表于 2025-2-7 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371593&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-7 23:25</a>
+
+一般懒得正经讨论莫小姐，太多人恨她了，不理解她编剧剧情最大工具人的本质
+
+最粗暴无情的写法就是下集彻底 ...</blockquote>
+其实现在路人观感大莫比木头人好233
+
+所以现在来说你第一个会使得木头人观感下降233
+
+
+*****
+
+####  wwwttth  
+##### 19881#       发表于 2025-2-7 23:33
+
+这讨论歪了啊，现实中的因素往往是自己有没有足够的资本来照顾，而动画里这是个不缺钱的，更多的是在祥子少个父亲和祥爹可能给祥子施加不好的影响里选，老登选了激进的做法，甚至可能把祥子自己跑出去和后面的事情看成是长教训和锻炼，不能说完全错但是确实也缺乏感情。这是少女乐队番，所以肯定是要重感情的，但是换成个商战番可能就是另一套逻辑了，我不认为这有啥吵的必要。
+
+*****
+
+####  天空塔书记官  
+##### 19882#       发表于 2025-2-7 23:33
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371619&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:29</a>
+我来还原下现场：</blockquote>
+牢爹酗酒是在被踢出丰川家以后，这没有老登什么事 ? 
+
+怎么，他从小到大都爱喝酒 ?
+
+这时间逻辑都搞不清楚 ?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 19883#       发表于 2025-2-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371637&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:32</a>
+
+看老丈人丈母娘的奇葩程度，你是丈母娘老丈人人还好好的，就急着切割了。只能说你真的很恨你老婆
+
+——  ...</blockquote>
+？我死了我老婆也没有任何义务要照顾我父母啊。
+
+你不会是艾伦分开了还要别人惦记十五年吧。
+
+*****
+
+####  厄神之息  
+##### 19884#       发表于 2025-2-7 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我觉得有相当一部分人对老登的喜爱来自于“如果我能化身次元蠕虫钻进二次元夺舍小祥，那我有老登这样的外公该有多爽！”这种极其肤浅功利理由，但也不得不说某些楼友对中登是不是太爱了？就目前的表现来说中登本来就是赘婿，还是能力运气都很差，老登表示看不上的外姓赘婿。他和老登的联系全靠祥妈维系着，祥妈死后老登和他感情纽带实际已经是完全断裂的状态了。他失败后自我流放，动画目前也没表现出是老登的大手栽赃陷害再逐出家门的证据。老登也没特别的理由要挽留的理由吧，你顶多说他没有为了孙女也要拼尽全力把他挽留住让他振作那种程度的爱家人，但也不至于说是他现在的表现是个无情无义大反派吧。
+
+而且话又说出来，动画真给你演老登中登复刻飞鸟山之战，跪在地上挽着中登的手说“没有你的话，哇达西的孙女！”你们就能接受就能爱看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

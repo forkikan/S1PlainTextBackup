@@ -1071,3 +1071,11 @@ kanye经常这么搞，只不过每次尺度不太一样，家常便饭了<img s
 
 写了一堆NAZI的推中间混了这么一条老中的真是让人看了两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pepper023  
+##### 115#       发表于 2025-2-7 23:28
+
+无语 别带上老中啊 bro 
+
