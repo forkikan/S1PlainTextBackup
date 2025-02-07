@@ -662,3 +662,12 @@ cherry studio没有手机端
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  神剑烧鸡  
+##### 1541#       发表于 2025-2-7 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测试下来我其实更愿意用温度高点的v3，在1.2到1.6左右
+低了重复得厉害，高了会呓语连词组都拼凑不了，r1填了一堆提示词照样玩赛博，对机械臂是不是有什么执念
+

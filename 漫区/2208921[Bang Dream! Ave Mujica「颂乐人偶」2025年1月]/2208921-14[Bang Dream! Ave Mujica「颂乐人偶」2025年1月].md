@@ -3039,3 +3039,95 @@ Wrath is a short-lived madness: curb and bitYour mind: 'twill rule you, if you r
 
 不过我觉得邦邦之下肯定也很难，估计最后还是大睦战胜大莫，大莫服软退场😅
 
+
+*****
+
+####  akiomn  
+##### 19517#       发表于 2025-2-7 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367424&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 12:56</a>
+Animum reges.你将掌握心灵
+
+Ira furor brevis est: animum rege; qui nisi paret.Imperat; hunc frenis,  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是双重人格啊，别洗什么大脑保护机制了，场外访谈都确定双重人格了，场内表现也基本实锤了。
+
+*****
+
+####  fuwamoco  
+##### 19518#       发表于 2025-2-7 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367438&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-7 12:58</a>
+
+不就是双重人格啊，别洗什么大脑保护机制了，场外访谈都确定双重人格了，场内表现也基本实锤了。 ...</blockquote>
+不要用洗这个词，我贴的是拉丁文原文，标题也不是我起的。
+
+*****
+
+####  akiomn  
+##### 19519#       发表于 2025-2-7 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367446&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 12:59</a>
+不要用洗这个词，我贴的是拉丁文原文，标题也不是我起的。</blockquote>
+双重人格实锤了，和大脑保护机制就无关了
+编剧写的烂压根没得洗，主人格压制不住副人格已经足够搞笑了
+
+
+*****
+
+####  爱莉希雅  
+##### 19520#       发表于 2025-2-7 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要在意逻辑了，你以为编剧在严丝合缝造T800，其实他在幼儿园搭积木
+
+
+*****
+
+####  JustW  
+##### 19521#       发表于 2025-2-7 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子不管他爹这段时间他爹又不会偷偷打工，所以还没饿死不是说明有钱吗，至少温饱不成问题，如果不是这个b样随便干点什么不行
+
+*****
+
+####  玖羽  
+##### 19522#       发表于 2025-2-7 13:04
+
+ 本帖最后由 玖羽 于 2025-2-7 13:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367430&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 12:57</a>
+
+这我又不懂了，难道中登这样子去偏远乡村就甘心了？而且这大东京是只有丰川一家公司了吗，祥子一个小姑娘 ...</blockquote>
+被流放至少能维持一个上班族的正常收入，名义上也有工作不是废人，就算过一段时间他自己辞职，事情的热度已经下去了，对公司的影响很小，再说一个犯了错的高管你觉得日本企业是有多少机会给他面试
+
+我举个真实例子，把兽娘动物园搞砸的细谷伸之，毁了这么火的IP，造成的损失肯定比168亿多，完全的主观恶意犯错，也不是高管，更不是家族成员，惩罚是调到一个不知所谓的破部门，一年多之后自己辞职
+
+所以对清告的处理在正常情况下是非常难以想象的
+
+*****
+
+####  爱莉希雅  
+##### 19523#       发表于 2025-2-7 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367405&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 12:53</a>
+日本企业对这种情况的处理方式一般是流放，把当事人调到哪个偏远乡村的事务所，或者是哪个幽灵部门，对当 ...</blockquote>
+也没啥毛病，中登这样看着也不像没米买酒，可以解释成给个虚职爱去不去钱照发
+
+*****
+
+####  江口夕  
+##### 19524#       发表于 2025-2-7 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367315&amp;ptid=2208921" target="_blank">格林达姆 发表于 2025-2-7 12:42</a>
+老登没啥问题。被坑钱的责任不由祥子爹承担，总不能由老登自己承担吧
+
+祥子爹的问题在于背锅后直接自暴自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了，老登什么职位要不要担责任，牢爹是审查位，老登什么位
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天邪鬼  
+##### 19525#       发表于 2025-2-7 13:07
+
+编剧现在几个主要视角的人都写不清楚，还指望她写明白她们家庭？那照这么说soyo消失三天三夜，她妈没报警是不是不关心她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
