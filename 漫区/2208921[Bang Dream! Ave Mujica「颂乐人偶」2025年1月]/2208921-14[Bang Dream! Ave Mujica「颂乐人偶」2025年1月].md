@@ -2016,3 +2016,65 @@ Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会
 那要是告诉你，弦卷家实际原型搞不好就是阿美莉卡会怎么样呢，类似的总统萌化形象和正面塑造放在岛国一抓 ...</blockquote>
 到底是要讨论现实还是讨论邦邦啊？
 
+
+*****
+
+####  厚乳果珍爽  
+##### 19424#       发表于 2025-2-7 11:36
+
+感觉mujica是真厕化了，隔壁楼里一堆顶着硬核不媚宅的头像在发癫。
+
+*****
+
+####  findpkq  
+##### 19425#       发表于 2025-2-7 11:38
+
+祥子没人盯着还可以靠着外部刺激慢慢磨着去行动，一有熟人来关心可怜马上就应激开始摆不知道哪来的架子，包括之前打工大概也是抱着自己是落魄大小姐的心态强撑着自尊
+
+看看黑色生日的假药能不能把丰川之名剥掉，彻底失去大小姐身份后纯粹靠黑祥把mujica重组起来才劲口牙
+
+以及staff真的一本正经地在搞乐子，这片场太乐了XD  
+
+
+*****
+
+####  Reinhold  
+##### 19426#       发表于 2025-2-7 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366622&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-7 11:23</a>
+丰田家族会因为168亿日元的亏损就直接把家族成员赶出去吗？1万6千8百亿才有可能吧。 ...</blockquote>
+引咎辞职
+
+以及
+
+自己看不上的上门女婿
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 19427#       发表于 2025-2-7 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366726&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 11:32</a>
+到底是要讨论现实还是讨论邦邦啊？</blockquote>
+在讨论乐子(认真)
+
+咳，说回正题，牢爹因为168亿(日元）就被踢出集团还是很大发散空间的，而且他的表现不像是单纯地扫地出门，而是被封杀雪藏了，但这是考虑到有“丰川家黑暗面”存在的可能，如果编剧只是单纯想给祥子搞个道德包袱，那就没啥好说的了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 19428#       发表于 2025-2-7 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364214&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-7 01:13</a>
+
+我懂了，说不定🦄想做的是一个由内疚，耻辱和悔恨所捆绑起来的队伍，互相之间无法原谅却也愧对彼此，那确实 ...</blockquote>
+我已经不想再看大团结了，要不就再扭曲一点吧🤗
+
