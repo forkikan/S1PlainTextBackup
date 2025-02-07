@@ -8572,3 +8572,13 @@ Mujica第一集之后我同样红迪投票调查，是六成多喜欢三成多�
 
 小〇🌰子是吧，我完全理解了😽
 
+
+*****
+
+####  安娜导函数  
+##### 19960#       发表于 2025-2-8 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372035&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-8 00:46</a>
+说到喵梦，我是真受不了每集都给她个看见睦就咂嘴的公式镜头啊。是尼玛真的公式啊。前面回忆睦的神之一瘫咂 ...</blockquote>
+因为到现在为止大喵老师还是不接受睦头双重人格的说法啊，觉得都是你们城里人真会玩，演技可以啊什么都能演得象真的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
