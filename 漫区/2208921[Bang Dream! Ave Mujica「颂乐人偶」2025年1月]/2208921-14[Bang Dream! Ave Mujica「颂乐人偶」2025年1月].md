@@ -6313,3 +6313,208 @@ MYGO的别C了！
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  plok201  
+##### 19788#       发表于 2025-2-7 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370886&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-2-7 21:27</a>
+
+看不懂为什么第6话祥爹让人印象更差了，失去才懂得珍贵不是正常写法？完全不在乎才是更加没心没肺吧 ...</blockquote>
+因为这话几乎实锤纯FW了啊，失去才懂珍惜有很多种写法，喝酒买醉进警察局疑似家暴肯定不算
+
+本来还期待是不是有反转吧，现在这个描写就是八点档家暴男啥都不改脑子里还在想着老婆回家，我没见哪个剧这种人印象会变好的
+
+*****
+
+####  木板春香  
+##### 19789#       发表于 2025-2-7 21:40
+
+<img src="https://img.saraba1st.com/forum/202502/07/213701w1jk8sjftjshkjsj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (540.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:37 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/213741u9aujtnt0n5au30j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (474.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:37 上传
+
+不出意外这里也会回旋镖
+
+<img src="https://img.saraba1st.com/forum/202502/07/213857gilo1vlqvq5vwr8v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (420.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:38 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/213919aw1a62f9lvq981fv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (493.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/214006vf6p0gm8qocff46m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (392.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/214021jz1frits4y7i7azd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (440.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:40 上传
+
+  说出这句话的祥子 背负好了母鸡卡的人人生了么？ 背负好自己要去照顾的父亲的人生了么？
+
+*****
+
+####  ntrntr1  
+##### 19790#       发表于 2025-2-7 21:41
+
+就算老登再无情，丰川家这么不好，出来了又没限制人身自由，中登找份普通工作，祥子本来也挺坚强的，两父女过好日子不就是对老登最好的打击吗
+
+中登哪怕天天在家喝闷酒不去街上让未成年的女儿捞人，祥子都能在CCC坚持一下自己喜欢的音乐，祥子又不是没有才能，多坚持下未来未必不好
+
+说白了这对父女不也是放不下丰川家的一切吗，他们又不是不能过上父女相依为命不富裕但是充实的生活，不还是因为所谓大小姐的自尊，曾经入赘大企业的自尊让他们非要走向现在这逼样 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">感觉执着给中登给老登当儿子的才是放不下富贵啊
+
+
+*****
+
+####  木板春香  
+##### 19791#       发表于 2025-2-7 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370942&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 21:35</a>
+
+祥子要是虚伪就不会自我厌恶。理解一下什么叫虚伪什么叫逃避
+
+—— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
+  那个玖羽试图在攻击我说的合理的行为是一种虚伪，但我在回应的是，如果只凭着冲动做事，然后遇到问题就离开才是真的虚伪。
+
+  就像给流浪猫喂东西一样，你觉得喂猫的行为是真的在做好事么？
+
+  在我看来，喂流浪猫就是一种自我满足
+
+*****
+
+####  玖羽  
+##### 19792#       发表于 2025-2-7 21:42
+
+ 本帖最后由 玖羽 于 2025-2-7 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370922&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:32</a>
+
+一个人如果要自甘堕落，那旁边的人怎么劝都没有用，关键的是自我审视。
+
+  高高在上的是谁？ 觉得自己能 ...</blockquote>
+所以我说你要搞清楚，是定治先把清告赶出去，清告才变成这样的，就算清告是个废人，让他住在大宅里又碍得了什么呢？
+
+的确，清告爬不起来，是他的问题，但是自甘堕落这话谁都能说，唯独定治不能说，你不能先把他打趴在地，然后指着他说：你看，他爬不起来了，他果然是自甘堕落的
+
+定治对祥子做的这些事，不就是想让祥子变成他希望的那种人吗？恨清告当然也是其中之一
+
+问题是，如果祥子真的变成定治希望的那种人，你丰川定治也六七十了，再过一二十年你老年痴呆，年轻当主丰川祥子判定你无法振作了，把你扔到破屋里等死，你愿意吗？这不是虚伪是什么？
+
+*****
+
+####  江口夕  
+##### 19793#       发表于 2025-2-7 21:43
+
+ 本帖最后由 江口夕 于 2025-2-7 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370978&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:40</a>
+不出意外这里也会回旋镖
+
+  说出这句话的祥子 背负好了母鸡卡的人人生了么？ 背负好自己要去照顾的父亲的人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你在说什么不是已经在照顾了，只不过太难放弃选择逃避了。虽然说离家了，又没拉黑牢爹。出事了不一样去警局捞人。
+说到底除了警局捞人好像也没什么值得天天照顾的，一个月去打扫一次确认人死没死也算孝敬了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ddy2811  
+##### 19794#       发表于 2025-2-7 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370813&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 21:16</a>
+
+你要搞清楚，你要的是一个丰川家继承人，还是你的外孙女，你说的这些归根结底不就是三个字“为你好”
+
+如 ...</blockquote>
+这应该就是他要的继承人，既然自己会这样做那么很可能就是早有准备的了，说不定还会留句话留封信祝贺祥子合格了
+
+*****
+
+####  南宮凝香  
+##### 19795#       发表于 2025-2-7 21:43
+
+老登跟中登要還進場，
+
+這季就比爛還要爛
+
+你們還是祈求開切割線直接把這兩人清掉吧
+
+再說一次， 還有7話
+
+沒解決的人單是雞團已經有5+1 個，
+
+其中有3個還沒立起來
+
+🐘的問題在於她自己，
+
+她過得了自己， 富貴貧窮都不是問題
+
+大不了就兩登都不管去跟初華同居
+
+過不了自己，富貴貧窮都是問題
+
+*****
+
+####  木板春香  
+##### 19796#       发表于 2025-2-7 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370993&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 21:42</a>
+
+所以我说你要搞清楚，是定治先把清告赶出去，清告才变成这样的，就算清告是个废人，让他住在大宅里又碍得 ...</blockquote>
+一个自甘堕落的人会对周围的人造成多大的危害，和他一起住的祥子最后变成什么样子不是很明显的吗？
+
+*****
+
+####  木板春香  
+##### 19797#       发表于 2025-2-7 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370995&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 21:43</a>
+
+你在说什么不是已经在照顾了，只不过太难放弃选择逃避了。虽然说离家了，又没拉黑牢爹。出事了不一样去警 ...</blockquote>
+ 如果只是一个月去打扫确认一下为什么非要和外公闹翻自己一个人搬出去又搬回来呢？
+
+  编剧设计出来的这个情节不就是显得祥子是在找罪受么？ 我当然是知道祥子是想作为一个女儿的行为去帮助自己的父亲走出困境
+
+*****
+
+####  Delicatus545  
+##### 19798#       发表于 2025-2-7 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370964&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 21:39</a>
+
+因为这话几乎实锤纯FW了啊，失去才懂珍惜有很多种写法，喝酒买醉进警察局疑似家暴肯定不算
+
+本来还期待是 ...</blockquote>
+你说的酗酒家暴不是前面的内容吗？这一话就只表现了他以为女儿回来了很惊喜而已，不懂这是什么负面塑造。
+

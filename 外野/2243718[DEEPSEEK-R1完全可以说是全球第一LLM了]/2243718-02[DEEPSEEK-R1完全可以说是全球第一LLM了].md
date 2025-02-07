@@ -1308,3 +1308,19 @@ chatbox 设置20 0.6 0.7可以不
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  名居守  
+##### 1602#       发表于 2025-2-7 21:42
+
+<img src="https://img.saraba1st.com/forum/202502/07/213218dsse5g6g62775ssz.png" referrerpolicy="no-referrer">
+
+<strong>E1138AAF41A647475EAB44113DEAE70C.png</strong> (10.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:32 上传
+
+我终于知道为什么D老师在写设定时总能让我血压上升了
+

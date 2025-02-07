@@ -1331,3 +1331,11 @@ Q娃预告
 你要说人间体偶像 ...</blockquote>
 战斗就是偶像活动这种展开的概率还是挺大的吧，也不可能真把每集都要有的固定桥段和作品主题割裂开来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 390#       发表于 2025-2-7 21:37
+
+第三话今千秋亲自操刀脚本？第四话井上亚树子脚本？？？
+
