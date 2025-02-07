@@ -561,3 +561,140 @@ soyo切割时pua睦，看见灯和爱音对朋友说不认识，灯追过来也�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 19296#       发表于 2025-2-7 09:48
+
+ 本帖最后由 江口夕 于 2025-2-7 09:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">编剧唯一干的人事就是让立希去碰大祥了，让爽姐去指不定会干出什么事。
+你知道的，我一直看好立祥股，至于灯，我祝她幸福
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  看穿一切的鱼  
+##### 19297#       发表于 2025-2-7 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365591&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 09:48</a>
+编剧唯一干的人事就是让立希去碰大祥了，让爽姐去指不定会干出什么事
+
+—— 来自 Xiaomi 23113RKC6C, Andro ...</blockquote>
+爽姐所有的主动出击无一例外全送了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 19298#       发表于 2025-2-7 09:50
+
+拿大祥和小孩姐做对比简直是不可理喻，小孩姐从中期开始就决定哪怕乐队散了团魂无了也要一个人玩下去。
+大祥现在抽一下动弹一下，满脑子除了逃跑就是逃跑。
+不过两人互换身份，一边就不会解散crychic，另一边也不会有103。大祥要是真有几个正常人在身边会许事情也不会怎么糟。
+
+*****
+
+####  fuwamoco  
+##### 19299#       发表于 2025-2-7 09:50
+
+ccc团的soyo和灯接触白祥几个月就一辈子忘不了了。接触白祥十几年的睦头已经是祥子重度依赖，产生戒断反应了。
+
+*****
+
+####  eyeego  
+##### 19300#       发表于 2025-2-7 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365557&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 09:45</a>
+对啊，在你眼里知道地铁站是公开场合，吵架会造成不好影响。但是上了节目直播给大家看的，睦只不过是无心 ...</blockquote>
+睦头人那句没头没尾的话想要带过去可太简单了
+可是大祥老师就是要端着她那ob一串字母的中二人设不解释不澄清不回应那能怎么办呢？
+然后线下地铁站吵架 录节目的空档还要接着吵
+神仙难救啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 19301#       发表于 2025-2-7 09:50
+
+ 本帖最后由 zhzij111 于 2025-2-7 09:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365358&amp;ptid=2208921" target="_blank">yongze 发表于 2025-2-7 09:25</a>
+但是大祥老师比小孩姐有个最大的挡箭牌就是她真的死了妈颓了爹还有个大家长外公要强迫给她不喜欢的人生。废 ...</blockquote>
+不喜欢老登强加的人生那一开始就该彻底切割别回丰川家，也不要接受老登的组团投资和赔偿金援助，而不是一边享受老登的迈巴赫兜底一边觉得自己有资格追求喜欢的人生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 19302#       发表于 2025-2-7 09:51
+
+睦和祥子的过去不是摆明了就硬藏 但是我真不觉得能写出啥特别惊人的玩意  还不如丢前面拉拉好感
+
+*****
+
+####  aptx8285144  
+##### 19303#       发表于 2025-2-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365434&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-7 09:33</a>
+
+还真是，现在我已经不在意大喵了，核心人物已经被按头踩到谷底，op的c位查无此人，路边一条真无所谓了（ ...</blockquote>
+问题是引入GO团就实在导致对比扎眼了，哪怕暂时撇开素世和喵梦各自曾经和现在的反面色彩不谈，初华，海玲，睦被“削弱”或惨遭精神病待遇明眼人都看出整一个比密涅瓦号还惨待遇，而对面就是有血有肉而现在又开始圣人化（比如爱音出大祥家却没意识到灯叫大象组乐队有什么不对劲而只是为灯抱不平），这反差让人震惊，这是打算讲一个“一丘之貉”团被圣人团感化的故事吗（
+
+*****
+
+####  江口夕  
+##### 19304#       发表于 2025-2-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365603&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-7 09:50</a>
+拿大祥和小孩姐做对比简直是不可理喻，小孩姐从中期开始就决定哪怕乐队散了团魂无了也要一个人玩下去。
+大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要是互换，momoka可是真会背人生的，大祥直接嫁了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  yaneis  
+##### 19305#       发表于 2025-2-7 09:55
+
+<blockquote>aptx8285144 发表于 2025-2-7 09:52
+问题是引入GO团就实在导致对比扎眼了，哪怕暂时撇开素世和喵梦各自曾经和现在的反面色彩不谈，初华，海玲 ...</blockquote>
+
+有一说一现在也没有什么一丘之貉，现在所有锅都是大象的，其他人只是受害者（
+
+剧本失衡太严重了
+
+*****
+
+####  eyeego  
+##### 19306#       发表于 2025-2-7 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365617&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-7 09:51</a>
+睦和祥子的过去不是摆明了就硬藏 但是我真不觉得能写出啥特别惊人的玩意  还不如丢前面拉拉好感 ...</blockquote>
+mygo藏了一季最后就原来只是爹一蹶不振酗酒了 真没啥好藏的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 19307#       发表于 2025-2-7 09:56
+
+不过这集虽然很多地方很搞，笑的人停不下来，但是soyo拿鞋子当电话那幕观感真的挺好的，十五年的大女主大概说的是soyo吧
+
+讲道理，这企划出来的时候，有谁能想到版本T0是soyo<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 19308#       发表于 2025-2-7 09:57
+
+這種情況不會持續很久的 可以洗成 我們母雞卡會更上層樓
+
+訪談這種事故根本不算事， 隨便買點水軍就能解決
+
+在公眾場合不仲是真搞笑
+
