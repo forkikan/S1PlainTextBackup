@@ -909,3 +909,23 @@ apikey填硅基的key
 
 对了，问下说什么连酒馆跑团更好，什么酒馆
 
+
+*****
+
+####  zyf199212  
+##### 1564#       发表于 2025-2-7 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368849&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 16:18</a>
+
+pro还有啥区别吗实名了能玩刘备文吗</blockquote>
+pro就是速度快些，不至于扔那卡半天，和刘备文没啥关系
+
+*****
+
+####  约翰里德  
+##### 1565#       发表于 2025-2-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368849&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 16:18</a>
+pro还有啥区别吗实名了能玩刘备文吗</blockquote>
+实名制是充值要求的，和其他一切使用无关。
+
