@@ -2676,3 +2676,171 @@ EXO是晚辈了。
 
 都好
 
+
+*****
+
+####  fuwamoco  
+##### 19484#       发表于 2025-2-7 12:34
+
+冰川双子前期闹别扭比这厉害多了，后面还不是想贴就贴。
+
+我看这睦墨就是双子2.0去的，双人花嫁卡都准备好了
+
+*****
+
+####  一心而用  
+##### 19485#       发表于 2025-2-7 12:34
+
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第5话 ​​​
+<img src="https://p.sda1.dev/21/9401a4477e056882069da014190f6f84/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1908c3f4769de7988b4adcb39707744d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8a4c7fb5bbcb9ce80c16cc9dec7d7e9e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7b575873d862842f7aefb137389a10ed/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/4c281d4babcea345ce76afefc4d02e8c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/059c98ab2bd06c16928409fc3768473f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fc685b24843aaf9115eb089489c5c1f5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a1b77425757f448067faf3033dfe8dae/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7018bc60842e961d182c867c86ea5ae4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19486#       发表于 2025-2-7 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367254&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 12:32</a>
+祥子她爹的塑造就是祥子的一面镜子，是编剧怕观众看不懂又不愿意直白的塑造祥子人性里那些弱点，才间接安 ...</blockquote>
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢了，恨牢爹又是为啥呢，是因为破坏了祥子“坚强自立的大女主形象” ? <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 19487#       发表于 2025-2-7 12:39
+
+有一说一，按祥子这个运营水平，真当继承人亏的不会比自己爹少多少。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 19488#       发表于 2025-2-7 12:40
+
+有没有开盘下一集十五年未有之大妈妈会不会打出花田修正掌的
+
+
+*****
+
+####  刑部姬真可爱  
+##### 19489#       发表于 2025-2-7 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367265&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-7 12:34</a>
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第5话 ​​​</blockquote>
+这次漫画倒是稍微有那么一点新信息，喵梦对睦（的表演）不是“嫉妒”“害怕”而是“兴奋”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 19490#       发表于 2025-2-7 12:40
+
+<blockquote>天空塔书记官 发表于 2025-2-7 12:36
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢 ...</blockquote>
+不是，他就一个女婿啊，本来就不同意女儿，结果女儿命也没了，女婿败了168亿，除非这168亿是给下的套，没追责只是赶出去怎么了。。。
+
+*****
+
+####  akiomn  
+##### 19491#       发表于 2025-2-7 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越看莫提斯越神人，把锅全甩到祥子头上。睦极端爱祥子就算了，莫提斯更神人
+睦的扭曲绝对是多方面的，祥子不回箭头只是一个因素，根本原因是睦从小到大的扭曲家庭环境造成的睦自卑心理
+然后莫提斯全怪到祥子头上，而拥有最多情报的祥子不反抗一下的。
+最想念小孩姐的一集，换成小孩姐性格的祥子就是先把自己的错认了，然后反手问莫提斯你这么能甩锅敢不敢脱离糟糕的家庭环境呢？
+更何况炸团的根本原因是莫提斯隐瞒自己不会弹吉他，更是没话说了，别输出这输出那，就问你炸团是不是因为不会弹吉他还刻意隐瞒吧
+
+*****
+
+####  单脚着地  
+##### 19492#       发表于 2025-2-7 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367273&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:36</a>
+
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢 ...</blockquote>
+慕强吧，还有漏油觉得祥子就应该顺从不该抗争，乖乖的当大小姐躺平，什么都不去争取的呢
+
+*****
+
+####  格林达姆  
+##### 19493#       发表于 2025-2-7 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367273&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:36</a>
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢 ...</blockquote>
+老登没啥问题。被坑钱的责任不由祥子爹承担，总不能由老登自己承担吧
+
+祥子爹的问题在于背锅后直接自暴自弃再起不能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 19494#       发表于 2025-2-7 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367315&amp;ptid=2208921" target="_blank">格林达姆 发表于 2025-2-7 12:42</a>
+老登没啥问题。被坑钱的责任不由祥子爹承担，总不能由老登自己承担吧
+
+祥子爹的问题在于背锅后直接自暴自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢爹：但凡168亿少个0我立马仰卧起坐
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  刑部姬真可爱  
+##### 19495#       发表于 2025-2-7 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367304&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 12:40</a>
+不是，他就一个女婿啊，本来就不同意女儿，结果女儿命也没了，女婿败了168亿，除非这168亿是给下的套，没 ...</blockquote>
+说白了就是老登的赶人是有“量刑过重”和“假公济私”甚至“故意陷害”之嫌的，从企业的角度来说，不太可能是中登一意孤行的去做然后受骗造成损失，甚至这种金额难道不会经过老登的审查？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 19496#       发表于 2025-2-7 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367304&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 12:40</a>
+
+不是，他就一个女婿啊，本来就不同意女儿，结果女儿命也没了，女婿败了168亿，除非这168亿是给下的套，没 ...</blockquote>
+这不是单纯的赶出去，前高管仅仅因为被诈骗就被剥夺得一贫如洗，这也是损害集团形象的
+
+丰川集团那么有钱，完全可以给清告一笔足够喝酒吃饭的小钱，让他住在哪个集团产业的公寓里自己喝死
+
+这就是祖孙杠上了，祥子离家出走去过贫困生活，也有给定治施压的意思：你忍心看你外孙女这么穷苦吗
+
+但是祥子跟瑞穗是同一类人，定治多半也是，也就是吃软不吃硬，硬就硬到底，所以足足杠了一年
+
+*****
+
+####  zhzij111  
+##### 19497#       发表于 2025-2-7 12:45
+
+ 本帖最后由 zhzij111 于 2025-2-7 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367273&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:36</a>
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢 ...</blockquote>
+有啥绝情的，中登又不是自家人，赔了这么多钱只是把你扫地出门还不够吗，把中登养起来就更扯了，合着赔这么多钱啥责任也不用负，就回去当大少爷，中登要是自家亲儿子那还行，一个赘婿这么多那老登作为家主真是偏心的没边了
+
+而且中登直接颓了过的不像个人，是老登限制他找工作了还是背上债还不起了，还不是自己废物
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19498#       发表于 2025-2-7 12:47
+
+正常人遇到压力，大脑安慰自己甩锅给别人很合理。
+
