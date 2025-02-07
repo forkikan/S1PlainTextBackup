@@ -1539,3 +1539,34 @@ page assist 就是chatbox一样定位的东西。
 
 然而还是继续添加新设定，直到骂出了我截图的那据
 
+
+*****
+
+####  zerona  
+##### 1619#       发表于 2025-2-7 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371227&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-7 22:24</a>
+
+这个是D老师的答复啊，并不是设置
+
+老是给我加设定，加一次直球辱骂一次，最后爆了这句出来。
+
+之前有些疑 ...</blockquote>
+如果加在知识库这种等于文档性质的提示里呢？
+
+*****
+
+####  KioShiMa  
+##### 1620#       发表于 2025-2-7 22:57
+
+GEMINI的文风虽然不够华丽不够灵感迸发，但是稳定流畅字数充足是最适合我的，不过经常话说一半卡没了啊啊啊啊啊啊啊啊
+
+*****
+
+####  SevenYuan23  
+##### 1621#       发表于 2025-2-7 22:57
+
+硅基流动pro版本的API 很容易输出截断是什么原因，明明看token统计没到上限啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
