@@ -344,3 +344,159 @@ soyo切割时pua睦，看见灯和爱音对朋友说不认识，灯追过来也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我现在已经开始怀疑鸡团3次元这么有团魂，就是怕观众看完母鸡卡动画都被吓跑了，赶紧营业好给大家留下好印象
 
+
+*****
+
+####  aptx8285144  
+##### 19274#       发表于 2025-2-7 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365301&amp;ptid=2208921" target="_blank">Mr.Giraffe 发表于 2025-2-7 09:20</a>
+
+当初鸡楼黑屁爽姐的时候可曾想过会有这一天，简直就是噩梦</blockquote>
+因为素世一直是训练有素的角色（包括当反派时候)，不管你对她持什么看法，大祥现在愈发被废物化了，独角兽和柿本更恨的是谁就不好说了
+
+*****
+
+####  ml1642879  
+##### 19275#       发表于 2025-2-7 09:28
+
+米泽茜每期邦tv结尾都欺负高尾然后抓住手喊拜拜那个样子，很难觉得是营业<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  victorws  
+##### 19276#       发表于 2025-2-7 09:28
+
+这剧情单纯是为爆而爆，已经缺乏必要逻辑性了吧，看看就好，过多论证反而会被剧本带歪了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 19277#       发表于 2025-2-7 09:28
+
+<blockquote>刑部姬真可爱 发表于 2025-2-7 09:23
+soyo切割时pua睦，看见灯和爱音对朋友说不认识，灯追过来也不理，直球说立希你也是这样自私，对爱音也没 ...</blockquote>
+燈追過來這不沒讓追上
+
+愛希在她面前都是高姿態， 觸發不了媽型態
+
+要是愛音在她家像莫老師一樣跪了，那就是三天三夜了
+
+*****
+
+####  eyeego  
+##### 19278#       发表于 2025-2-7 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365358&amp;ptid=2208921" target="_blank">yongze 发表于 2025-2-7 09:25</a>
+但是大祥老师比小孩姐有个最大的挡箭牌就是她真的死了妈颓了爹还有个大家长外公要强迫给她不喜欢的人生。废 ...</blockquote>
+队友也就被喵梦坑了一把
+没有初华跟睦头人作保 她有什么资格商业团出道？靠外公的大手吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 19279#       发表于 2025-2-7 09:30
+
+木箱童年一直在藏真是绝活，早点放出来观众可能觉得两人感情深厚情有可原，观感恶劣到这个地步再补个三分钟的样板戏青梅回忆只会觉得编剧找补闹麻了
+
+*****
+
+####  yongze  
+##### 19280#       发表于 2025-2-7 09:33
+
+<blockquote>eyeego 发表于 2025-2-7 09:29
+队友也就被喵梦坑了一把
+
+没有初华跟睦头人作保 她有什么资格商业团出道？靠外公的大手吗？ ...</blockquote>
+如果不是这个遭遇她还在开开心心的玩校园乐队呢？而且这种没牵绊的团队这么组了又拆反而是更大的二次伤害。
+
+
+*****
+
+####  yaneis  
+##### 19281#       发表于 2025-2-7 09:33
+
+<blockquote>aptx8285144 发表于 2025-2-7 09:15
+我现在有一个抽象的猜测，莫非独角兽和柿本觉得只要把大祥的形象拉得没法再差，观众就会选择性地忘掉大喵 ...</blockquote>
+
+还真是，现在我已经不在意大喵了，核心人物已经被按头踩到谷底，op的c位查无此人，路边一条真无所谓了（
+
+*****
+
+####  凉良  
+##### 19282#       发表于 2025-2-7 09:33
+
+而且说抽了六集陀螺  这抽陀螺的方式都不带改的。 只是一次比一次更过激更爆典。 不知道有啥必要那么多级。
+
+
+*****
+
+####  单脚着地  
+##### 19283#       发表于 2025-2-7 09:34
+
+<blockquote>eyeego 发表于 2025-2-7 09:29
+队友也就被喵梦坑了一把
+
+没有初华跟睦头人作保 她有什么资格商业团出道？靠外公的大手吗？ ...</blockquote>
+睦在节目上唐突说的早晚要解散呢？大象老师确实是神人，但把她当好用的甩锅垃圾桶不是搞笑吗
+
+*****
+
+####  plok201  
+##### 19284#       发表于 2025-2-7 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365220&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-2-7 09:10</a>
+
+原来祥爹那段台词是翻译错误么，是故意的还是不小心，太变态了，再加上soyo惊恐的样子，直接把我看立了
+
+— ...</blockquote>
+倒也没有错
+
+只能说还好不是那种游戏的剧情，要不多少得弄个祥子我觉得你和妈很像，然后这集把soyo拖进房间了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 19285#       发表于 2025-2-7 09:35
+
+此集剧情在黄金树幽影的石棺大洞亦有记载：
+
+大祥老师：“将我的半身，弃置于此。”
+
+观众(白灵)锐评：“大祥舍弃了绝对不该舍弃的事物，连自己的半身都拯救不了，怎么拯救mujica。”
+
+大莫老师：“杀了大祥，受囚禁的大小姐，拯救不了任何人。”
+
+*****
+
+####  一心而用  
+##### 19286#       发表于 2025-2-7 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364862&amp;ptid=2208921" target="_blank">出什么都没用了 发表于 2025-2-7 07:57</a>
+
+所有发展都不突兀指楼梯滚下来没事，眼睛里能看到两个框</blockquote>
+那就不得不提跳楼还能翻跟头的kkr了。<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+猫猫手游里还能看到吉他的灵魂。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 19287#       发表于 2025-2-7 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365269&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-7 09:15</a>
+
+其实车的最厉害的把睦头逼疯这点  编剧好像真的觉得二重人格没啥大不了的 ...</blockquote>
+我看到现在基本可以确定双重人格是会带进手游的设定了。
+
+*****
+
+####  eyeego  
+##### 19288#       发表于 2025-2-7 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365429&amp;ptid=2208921" target="_blank">yongze 发表于 2025-2-7 09:33</a>
+如果不是这个遭遇她还在开开心心的玩校园乐队呢。而且这种没牵绊的团队这么组了又拆反而是更大的二次伤害 ...</blockquote>
+说到底她为什么脑子一热就要搞商业团了才是最迷惑的 只能说跟爹一脉相传的废物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
