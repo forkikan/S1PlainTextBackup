@@ -9481,3 +9481,14 @@ AB整理
 
 所以狗是公是母（）
 
+
+*****
+
+####  岸浪白野  
+##### 6636#       发表于 2025-2-7 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370037&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-7 19:05</a>
+
+所以狗是公是母（）</blockquote>
+未定，连名字都还没有
+

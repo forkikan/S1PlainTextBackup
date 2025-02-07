@@ -1057,3 +1057,24 @@ chatbox相比cherry 有什么优势</blockquote>
 
 IOS和安卓都有，cherry貌似只有电脑端。
 
+
+*****
+
+####  王苍幻  
+##### 1578#       发表于 2025-2-7 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369880&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 18:36</a>
+chatbox相比cherry 有什么优势</blockquote>
+chatbox可以提前设定多种性格
+想跟谁聊跟谁聊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  约翰里德  
+##### 1579#       发表于 2025-2-7 19:13
+
+跑团切回v3了。
+r1实在太癫了，完全压不住<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
