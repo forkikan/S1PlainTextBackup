@@ -4656,3 +4656,76 @@ Mygo的五个人在Ave Mujica就是纯纯的工具啊，大家各自拿出最好
 
 soyo侍寝那个镜头，我记得轻拍翻转有个同款体位吧，而且都是阿姨配小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 19667#       发表于 2025-2-7 15:54
+
+话说海玲这集有点闹别扭，有点破防的情绪。
+
+会不会是第四集mortis提到的，海玲希望mujica成为自己的归宿的。
+
+也许大莫老师真的把海玲说动了，让她有了一些希望（特别是那张合照很有象征意义）。
+
+但是mortis又用非常滑稽的方式掐灭了她刚燃起的希望。
+
+所以海玲对睦/莫的感情，非常复杂，立希找她聊这个事情，让她心情不太稳定。
+
+*****
+
+####  天空塔书记官  
+##### 19668#       发表于 2025-2-7 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368521&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 15:37</a>
+立希： 我原來是神？！</blockquote>
+不太一样，迷子是词作主导的乐队，而A团是曲作主导，立希是“神明”灯的共鸣者，她甘当绿叶，作曲是为了迎合和烘托灯的心声，词与曲是交替支撑、互相增强的关系；初华则是按照祥子的要求写歌词，本身没有自我的表达(?)，所以只是“神明”的转述者，这也是叙诡说能成立的根基之一，即初华利用祥子与其他人之间的信息差“假传圣旨”来搞事情
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Litccc  
+##### 19669#       发表于 2025-2-7 15:56
+
+初华蜘蛛侠的梗是怎么来的
+
+*****
+
+####  天空塔书记官  
+##### 19670#       发表于 2025-2-7 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368697&amp;ptid=2208921" target="_blank">Litccc 发表于 2025-2-7 15:56</a>
+初华蜘蛛侠的梗是怎么来的</blockquote>
+假面上有蜘蛛的纹饰，还有“编织谎言”
+
+所以就是蜘蛛侠了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  单脚着地  
+##### 19671#       发表于 2025-2-7 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368265&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 15:02</a>
+
+虽然我铁支持爱素，但是官方不论是第一季动画还是手游剧情，感觉soyo对粉色奶龙明显没那意思啊 ...</blockquote>
+这可能就是素世性格缺陷的地方了，目前看她有喜欢渣女的嫌疑
+
+*****
+
+####  595505568  
+##### 19672#       发表于 2025-2-7 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368605&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 15:47</a>
+自称灯厨想不通这里什么意思才是有问题。难道不是自己的问题
+
+—— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
