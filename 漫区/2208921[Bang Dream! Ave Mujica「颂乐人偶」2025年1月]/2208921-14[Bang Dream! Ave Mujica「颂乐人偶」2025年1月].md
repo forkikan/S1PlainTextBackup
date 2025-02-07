@@ -7712,3 +7712,127 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
   有家人看着，有家人理解，就会好好说话？就会好好面对？
 
+
+*****
+
+####  江口夕  
+##### 19891#       发表于 2025-2-7 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371661&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-7 23:35</a>
+虽然我觉得有相当一部分人对老登的喜爱来自于“如果我能化身次元蠕虫钻进二次元夺舍小祥，那我有老登这样的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人说老登一定得是反派，老登是反派用来洗大猫差不多。
+老登的言行，操作所形成的家庭环境。造就了，祥妈，牢爹，大祥这些人
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ntrntr1  
+##### 19892#       发表于 2025-2-7 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371664&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:36</a>
+
+说明你老婆很恨你。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">出事了第一时间找前妻/前夫的，还是先反省下自己亲戚关系吧，是不是和中登一样，当了赘婿后自己其他亲戚都死完了。
+
+*****
+
+####  天空塔书记官  
+##### 19893#       发表于 2025-2-7 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371697&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:42</a>
+外公说女儿是个倔强的人，孙女是个倔强的人，他自己就不倔强吗？
+
+  明明是想好好照顾孙女，嘴巴还硬的 ...</blockquote>
+所以呢，把话说开不就行了 ?
+
+祥子不也一样吗，牢爹不也一样吗 ?
+
+这三个之中，真有十恶不赦的坏人 ?
+
+我之前一直说老登就是典型的不懂爱的大家长形象，但他把家庭成员切割出去就是不对，这没什么问题吧
+
+而他的这种行为显然给祥子和牢爹造成了伤害，这也没什么问题吧
+
+怎么就全变成父女俩没苦硬吃了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 19894#       发表于 2025-2-7 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371719&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 23:46</a>
+出事了第一时间找前妻/前夫的，还是先反省下自己亲戚关系吧，是不是和中登一样，当了赘婿后自己其他亲戚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝了，不是看你怎么做么，跟你老丈人丈母娘想怎么样有个球的关系，你觉得行就行呗。你做不到还要讽刺做到的人觉得别人有问题。有问题的不是你吗
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 19895#       发表于 2025-2-7 23:49
+
+<blockquote>iiiiiiiiii 发表于 2025-2-7 23:05
+没想到莫提斯这种角色还有人厨素莫cp啊。请问莫提斯不会乐器是🐶🐔团哪个团员？bangbang世界观不会乐器什么 ...</blockquote>
+別帶高松燈節奏
+
+莫老師也可以在樂隊前面跳舞
+
+音樂豈是這麼不便之物
+
+
+*****
+
+####  天空塔书记官  
+##### 19896#       发表于 2025-2-7 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371714&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:46</a>
+喝酒到麻木是为了什么，是在逃避！
+
+  爱音想假装自己没去伦敦是为了什么，还是在逃避！
+
+  祥子说自己不 ...</blockquote>
+不是吗，这是动画，是要包饺子的，最后问题就是要解决，不通过沟通，难道要这爷孙三挨个上天台 ?
+
+什么逻辑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 19897#       发表于 2025-2-7 23:50
+
+ 本帖最后由 ntrntr1 于 2025-2-7 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371729&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:49</a>
+
+绝了，不是看你怎么做么，跟你老丈人丈母娘想怎么样有个球的关系，你觉得行就行呗
+
+—— 来自 Xiaomi 231 ...</blockquote>
+按照法律就是婚姻状态有协助赡养义务，离婚状态没有呗，当然权利义务是相对的，女婿/儿媳离婚后也没有继承的权利  
+
+哦大多数国家法律都是这么定的
+
+可恶的法律破坏亲情，有碍坛友心中的乡土人伦
+
+*****
+
+####  木板春香  
+##### 19898#       发表于 2025-2-7 23:55
+
+ 本帖最后由 木板春香 于 2025-2-7 23:56 编辑 
+
+ 他讨厌这个无能的女婿但仍然让两个人结婚了，觉得他不靠谱仍然给岗位让他历练，信任你给你决策岗让给你犯错的空间，所以伤害了你是吧。
+
+ 觉得孙女能力不足以照顾女婿，仍然尊重她的选择，出了问题去接人，去帮忙兜底，也是在伤害孙女是吧。
+
+ 如果从一开始就不给女婿任何发挥的空间就不会有犯错的机会是吧，人是不需要成长的，给出成长空间的人才是恶人是吧？
+
+  你要不要看一看你在说什么东西？给你了空间去成长的人反而是不懂爱，反而是在伤害别人？
+
