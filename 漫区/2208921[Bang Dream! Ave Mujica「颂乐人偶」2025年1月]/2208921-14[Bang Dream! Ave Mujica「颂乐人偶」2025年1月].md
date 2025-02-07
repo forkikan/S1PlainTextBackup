@@ -3246,3 +3246,176 @@ Ira furor brevis est: animum rege; qui nisi paret.Imperat; hunc frenis,  ...</
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  huxiaopao163  
+##### 19536#       发表于 2025-2-7 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366389&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-7 11:02</a></blockquote>
+小圆里的魔女文字吗，不知道写的是啥。这两人确实有点小圆和小焰的意思
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  南宮凝香  
+##### 19537#       发表于 2025-2-7 13:19
+
+中登洗不白的
+
+16歲的小寡婦跟她媽也懂為母則剛
+
+中登手腳俱全， 鼓起勁來找一份普通工作養活自己是基本責任吧
+
+在大少女樂團的世界，
+
+老中雙登兩個不玩樂團的男人也沒必要洗
+
+一起飛翔算了
+
+我想看暗黑弦卷心
+
+*****
+
+####  安娜导函数  
+##### 19538#       发表于 2025-2-7 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367570&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 13:16</a>
+这当然看规模，168亿是小数那开女婿就是借口，因为这数不算事，那开女婿是另有目的。168亿是大数，那老登 ...</blockquote>
+老登审查失格也是因为你祥爹给的材料是假的，怎么上司都已经指定你来背锅了你还指望甩的掉嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 19539#       发表于 2025-2-7 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367517&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 13:10</a>
+
+那对自己女儿砸啤酒瓶就很容易想象？我寻思喝酒喝到进警察局的醉汉和被开除一穷二白也是两种形象吧，这用 ...</blockquote>
+前面不是有人给你说了吗，日本这种情况下改了姓的女婿就是儿子，相当于他对自己的儿子这么做，他甚至还没有别的子女，说难听点，这跟秀吉杀秀次差不多了
+
+*****
+
+####  DARK_HGCG  
+##### 19540#       发表于 2025-2-7 13:20
+
+<blockquote>安娜导函数 发表于 2025-2-7 13:19
+老登审查失格也是因为你祥爹给的材料是假的，怎么上司都已经指定你来背锅了你还指望甩的掉嘛 ...</blockquote>
+我现在最期待下周海铃要怎么爆
+
+*****
+
+####  595505568  
+##### 19541#       发表于 2025-2-7 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367373&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 12:50</a>
+一定要墨退场的话，能不能让soyo来动手，墨最信任的soyo亲手杀死墨，然后小寡妇看着复活的睦头和祥子双宿双 ...</blockquote>
+soyo来送别吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，希望不是soyo来动手，而是说“下次再一次玩吧”，然后mortis安安静静的离去了
+
+*****
+
+####  单脚着地  
+##### 19542#       发表于 2025-2-7 13:21
+
+说真的，祥子厨和睦厨互相攻击一点意义都没有，这两的CP稳到形容成情比金坚都不为过，是最不可能被拆得。
+
+*****
+
+####  江口夕  
+##### 19543#       发表于 2025-2-7 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367590&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 13:19</a>
+老登审查失格也是因为你祥爹给的材料是假的，怎么上司都已经指定你来背锅了你还指望甩的掉嘛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真的啊，地面师名字不也给到老登了，怎么不审查呢。
+上司责任属下背不是常识
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 19544#       发表于 2025-2-7 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367517&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 13:10</a>
+那对自己女儿砸啤酒瓶就很容易想象？我寻思喝酒喝到进警察局的醉汉和被开除一穷二白也是两种形象吧，这用 ...</blockquote>
+牢爹砸的砸的是门框，而不是祥子，这连肢体暴力都不是，顶多算语言暴力
+
+我爹在我小时候还照着墙砸暖水壶呢，易拉罐算个屁<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  哈曼的YY  
+##### 19545#       发表于 2025-2-7 13:24
+
+莫姐在书上画红圈圈是一个影视作品常见表达吗？我以前看过个恐怖片 在有怪物的时候 里面的小孩子会画红圈圈 反之画蓝圈圈
+
+要是莫姐以后画蓝圈圈是不是给十本抄完了
+
+*****
+
+####  安娜导函数  
+##### 19546#       发表于 2025-2-7 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367599&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-7 13:20</a>
+我现在最期待下周海铃要怎么爆</blockquote>
+"sakiko你竟敢无视Taki!"<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 19547#       发表于 2025-2-7 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367605&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 13:21</a>
+说真的，祥子厨和睦厨互相攻击一点意义都没有，这两的CP稳到形容成情比金坚都不为过，是最不可能被拆得。 ...</blockquote>
+洗洗睡吧，楼里一个睦厨都没有，就我在这黑大莫老师，其他人巴不得大莫主人格睦消失呢，还有人信誓旦旦搁那说mygo睦都是演的。
+睦厨滚哪去了都死了吗
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  qlipho  
+##### 19548#       发表于 2025-2-7 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367605&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 13:21</a>
+
+说真的，祥子厨和睦厨互相攻击一点意义都没有，这两的CP稳到形容成情比金坚都不为过，是最不可能被拆得。 ...</blockquote>
+快拆了吧，对角色厨好一点
+
+*****
+
+####  rushsong  
+##### 19549#       发表于 2025-2-7 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367002&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-7 12:05</a>
+楼友们对着与现实情况对不上或者逻辑不通的地方不要太纠结，这么多年来日本动画里不涉及主要剧情的现实要素 ...</blockquote>
+不是你🐔是什么东西能把整个日本动画拉下来垫?真好笑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 19550#       发表于 2025-2-7 13:27
+
+<blockquote>595505568 发表于 2025-2-7 13:21
+soyo来送别吧，希望不是soyo来动手，而是说“下次再一次玩吧”，然后mortis安安静静的离去了 ...</blockquote>
+又是我最喜欢的be感吗，但是目前这个制作组估计只能做出一种莫名其妙的甘蔗渣味
+
+*****
+
+####  ntrntr1  
+##### 19551#       发表于 2025-2-7 13:27
+
+<blockquote>玖羽 发表于 2025-2-7 13:20
+前面不是有人给你说了吗，日本这种情况下改了姓的女婿就是儿子，相当于他对自己的儿子这么做，他甚至还没 ...</blockquote>
+我寻思那也不是为了女儿只能接受吗。
+
+不是很懂赘婿的想法。毕竟俺们普通群众只想住大别野开大长车，合着这么多年大别野就心安理得白住了是吧，人家只想要爱情，白当继承人住大别野什么是我受的委屈，都认了当儿子的这本来就该是我的。
+
+太委屈了，赶快多喝几口砸下女儿。
+
