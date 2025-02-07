@@ -1202,3 +1202,28 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  秦南心  
+##### 1592#       发表于 2025-2-7 20:39
+
+卧槽，R1配合资料库无敌了，<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 1593#       发表于 2025-2-7 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369063&amp;ptid=2243718" target="_blank">费雷拉 发表于 2025-2-7 16:44</a>
+
+搜索page assist游览器插件安装。
+
+打开插件网页，设置里把语言改成中文，
+
+配置open ai兼容api，base url那 ...</blockquote>
+无法连接到Ollama
+
+兼容性那边设置好了，首要的怎么处理啊。
+

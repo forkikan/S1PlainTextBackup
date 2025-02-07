@@ -5725,3 +5725,170 @@ wsd在奇怪的病上总是很用心，查了下现实案例。
 
 只要心怀相信<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Delicatus545  
+##### 19754#       发表于 2025-2-7 20:38
+
+不管老登是好是坏，后续戏份肯定少不了啊。3个团的问题核心都是祥子，祥子的问题不就来自中登老登。不可能只治标不治本吧
+
+*****
+
+####  aptx8285144  
+##### 19755#       发表于 2025-2-7 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370562&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 20:34</a>
+
+不过某些人自己造假药车老登到底是为啥啊，叛逆么
+
+我知道很多故事都把老登这种传统家长弄成罪大恶极的人， ...</blockquote>
+估计有两个原因吧，1个是想挽救大祥第五话被摧毁作为主角独立性（实际上被摧毁本身是不可能挽救的，但是至少可以弄的看起来斗不过也没办法，可以挽尊），第二个感觉是内鬼和叛徒假药延伸开来的猜想
+
+
+*****
+
+####  半年  
+##### 19756#       发表于 2025-2-7 20:42
+
+<img src="https://img.saraba1st.com/forum/202502/07/204230a7dooib7zcbi3oo3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250207204120.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/204232oousw4pko9kmwwv9.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250207204130.png</strong> (1.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:42 上传
+
+*****
+
+####  木板春香  
+##### 19757#       发表于 2025-2-7 20:44
+
+<img src="https://img.saraba1st.com/forum/202502/07/202909nzymzzcbr7pun7ry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (582.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/202927y0lob6dzozol26cf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (553.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/203017v4392c25trfaz3to.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (531.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/202948nc15xueu0zqvynbm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (507.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/203209o5l2dgqyqbk4p2zv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (697.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/203238j3f853mj3lh3z3wm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (173.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:32 上传
+
+到这，为什么要说忠言逆耳，祥子外公也就是清告岳父，很小很早就告诫清告做事要注意要小心，然后出事被诈骗，这是第一重回旋镖。
+
+ 祥子妈妈夸奖清告没事，你的真诚是一种美德，但清告真的真诚么？ 并不，出事就自我感动式切割，给自己女儿发祝你幸福这种明摆着求人来挽留自己的话。第二重回旋镖
+
+  第三四五就不一一列举了，一个人嘴巴说的好听，脑子里也许还觉得我都这么苦了，你还想要我怎样，实际所作所为只是在伤害别人，就像溺水的人一样，自己快死了，还在乱动，伤害来救自己的人。
+
+  祥子外公提醒清告做事小心，清告出事被诈骗，提醒祥子不要冲动，并且为了照顾孙女的尊严用了：
+
+<img src="https://img.saraba1st.com/forum/202502/07/203828xg0sg40ufv45spqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (540.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:38 上传
+
+ 运气差倒霉这个说法去照顾自己女婿和孙女的尊严，而不是真的在怒斥无能。
+
+<img src="https://img.saraba1st.com/forum/202502/07/203920vpg4umzwqgm6fzod.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (451.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:39 上传
+
+  真的能心平气和地照顾好一个想要摆烂自我践踏的中年人么？ 
+
+<img src="https://img.saraba1st.com/forum/202502/07/204055q35erzm0k0pe2kxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:40 上传
+
+ 照顾一个想要自虐的人最后只会心生厌恶
+
+<img src="https://img.saraba1st.com/forum/202502/07/204248drzoz89x6pbhgxpx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (391.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/204214e0s2824a8p2p0gxh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (651.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 20:42 上传
+
+ 关心自己孙女的行为，帮忙解决问题，并且把出问题之后的话题引导到向成长的期许，而不是在反复复盘骂你当初怎么不听我的？ 
+
+*****
+
+####  剑士  
+##### 19758#       发表于 2025-2-7 20:46
+
+卧草这丰川祥子那么坏
+
+MYGO的别C了！
+
+*****
+
+####  aptx8285144  
+##### 19759#       发表于 2025-2-7 20:47
+
+刚才突然想起一个关于大祥描写上的事情，如果据此推测的话，感觉对大祥不是很有利，但是先不做结论了，因为还要再观望几集
+
