@@ -615,3 +615,16 @@ pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接�
 请问一下现在有没有类似chatbox的安卓软件？
 chatbox感觉不太好用
 
+
+*****
+
+####  zerona  
+##### 1537#       发表于 2025-2-7 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366937&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-2-7 11:56</a>
+
+请问一下现在有没有类似chatbox的安卓软件？
+
+chatbox感觉不太好用</blockquote>
+错了。你要的手机版本。我没注意它有没有就不说了。
+

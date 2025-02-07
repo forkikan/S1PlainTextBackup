@@ -2376,3 +2376,161 @@ motis好的那一面是是社交装甲，是演的，演得观众都信了她是
 我始终觉得喵梦把断线当演技是最离谱的，就连满脑子都是自己的祥子也知道睦是单纯因为出错断线了 ...</blockquote>
 祥睦认识多少年了？大喵老师和他们组队才几天？大喵对睦头的认知怕是一直停留在著名女星女儿的这个标签上吧，觉得是演技有啥问题？？
 
+
+*****
+
+####  高妹控  
+##### 19456#       发表于 2025-2-7 12:14
+
+🥦和🐔，哪个更好？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 19457#       发表于 2025-2-7 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">只能想到是初华那个冤大头公司看到睦这个视频觉得还能做，就让初华把人都找回来，从行为艺术重启项目，这就能接上解谜游戏
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  JustW  
+##### 19458#       发表于 2025-2-7 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367080&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 12:13</a>
+祥睦认识多少年了？大喵老师和他们组队才几天？大喵对睦头的认知怕是一直停留在著名女星女儿的这个标签上 ...</blockquote>
+喵梦第一反应是演技也就算了，关键下台后解释过了也不信，一直一直惦记着あれは本物，啥是本物，我看神经病是本物
+
+*****
+
+####  zhzij111  
+##### 19459#       发表于 2025-2-7 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367031&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-7 12:09</a>
+长崎素世和睦不好吗</blockquote>
+这素睦该磕素莫还是素睦啊，睦子米一醒就复读saki，跟素世真不熟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 19460#       发表于 2025-2-7 12:17
+
+ 本帖最后由 aptx8285144 于 2025-2-7 12:18 编辑 
+
+话说这话先开始“拷打”海玲（借立希之口）而不是大喵，感觉独角兽和柿本真不会觉得大喵不作吧，算了，放弃一般理性逻辑吧
+
+*****
+
+####  单脚着地  
+##### 19461#       发表于 2025-2-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366866&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-7 11:48</a>
+
+EXO是晚辈了。
+
+日音的话，讲乐队捏世界观绕不过去的一个重量级角色就是圣饥魔，到现在还没人知道小暮阁 ...</blockquote>
+红太早了，他们的成员我都只在日综上经常看到，歌都没听过，举例EXO这种年代更近一点我觉得能get的人更多一点。真要拿传奇乐队的成员当原型反而是好事和卖点
+
+*****
+
+####  月神夜  
+##### 19462#       发表于 2025-2-7 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366863&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-7 11:47</a>
+？？？？？？？？？</blockquote>
+笑死，是这个道理<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 19463#       发表于 2025-2-7 12:18
+
+ 本帖最后由 JustW 于 2025-2-7 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367100&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-7 12:15</a>
+
+只能想到是初华那个冤大头公司看到睦这个视频觉得还能做，就让初华把人都找回来，从行为艺术重启项目，这就 ...</blockquote>
+
+观众视角的母鸡卡不是炒作炒麻了，武道馆摘面具，采访铺垫不会长久，直播节目演断线人偶，全国巡演当场解散，解散一个月池袋街头尬演，然后宣布重启。这一套连招属于是把互联网玩明白了。
+
+*****
+
+####  ml1642879  
+##### 19464#       发表于 2025-2-7 12:19
+
+动物疗法没绷住
+
+*****
+
+####  安娜导函数  
+##### 19465#       发表于 2025-2-7 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366478&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-7 11:10</a>
+一方面用各种演出手法让motis显得像个诡异的坏东西，一方面又用灵猫之类的让motis显得好像是个好东西，那你 ...</blockquote>
+请问你们是从哪些画面觉得莫小姐是个诡异的坏东西的？因为她压力大祥老师嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 19466#       发表于 2025-2-7 12:20
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367063&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-7 12:12</a>
+然而这话的报道里明确说了，是解职，也就是说爷爷在第一话里甚至在祥子面前给她爹留了面子。 ...</blockquote>
+但集团是一方面，家族是另一方面，老登是直接把牢爹从丰川家除名了，甚至剥夺了他祥子父亲的身份，这就很不正常，而且这是诈骗，又不是商业决策失误，如果是老登被电信诈骗了，他是不是也要从丰川家麻溜滚蛋 ?
+
+牢爹哪怕再废，只要老登还当他是自家人，养他一辈子又如何，又不是养不起，反正祥子都被钦定继承人了，牢爹又不会和女儿抢位置，所以为啥一定要赶他走呢 ？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 19467#       发表于 2025-2-7 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367125&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:18</a>
+
+观众视角的母鸡卡不是炒作炒麻了，武道馆摘面具，采访铺垫不会长久，直播节目演断线人偶，全国巡演当场解 ...</blockquote>
+这一段最后母鸡卡重组，论功行赏墨提斯就是开响复辟第一枪的头功，复出的台阶都铺垫好了
+
+*****
+
+####  南宮凝香  
+##### 19468#       发表于 2025-2-7 12:22
+
+說到對偶
+
+祥子在不做人橋上打算飛祥，
+
+大伙兒一起撲倒她
+
+我覺得這是洗白的唯一方法了
+
+*****
+
+####  JustW  
+##### 19469#       发表于 2025-2-7 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367147&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 12:20</a>
+请问你们是从哪些画面觉得莫小姐是个诡异的坏东西的？因为她压力大祥老师嘛 ...</blockquote>
+有一说一第三集模仿魔女张开大口把睦吃了、第四集模仿恐怖片敲门开门，第六集在睦面前突然变大威吓、把睦人偶塞回去，这些都是制作组故意设计让人对Mortis产生恐惧感的，虽然我觉得只是在增加噱头
+
+*****
+
+####  单脚着地  
+##### 19470#       发表于 2025-2-7 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367155&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:20</a>
+
+但集团是一方面，家族是另一方面，老登是直接把牢爹从丰川家除名了，甚至剥夺了他祥子父亲的身份，这就很 ...</blockquote>
+当爹的哪个女儿出嫁心情不复杂的，何况还是个上门女婿，更看不上了，后面女儿还死了，觉得自己的宝贝女儿就是被你个龟孙克死的迁怒你让你滚蛋太正常了
+
