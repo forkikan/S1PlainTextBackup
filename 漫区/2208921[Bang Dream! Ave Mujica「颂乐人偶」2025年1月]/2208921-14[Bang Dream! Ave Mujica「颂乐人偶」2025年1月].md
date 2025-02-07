@@ -7184,3 +7184,159 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
 这种角色不是一眼献祭吗
 
+
+*****
+
+####  木板春香  
+##### 19854#       发表于 2025-2-7 23:07
+
+  这就是对于同样的剧情不同三观的人就会有不同的看法啊。
+
+  祥子母亲是外公害死的吗？祥子父亲的酒是外公找黑衣人灌进嘴里的吗？老登拆家都出来了，我也不知道你脑子里的风暴刮成什么样了，祥子在觉得自己只有母鸡卡的时候，外公也被她单方面不当人了啊，到底是谁在主观无视谁？看不到身边的人的善意，满脑子都觉得世界的雨下不停，这雨是脑子里进的水吗？
+
+  下一话雨过天晴，是在暗讽，脑子终于清醒过来了？
+
+   祥子身边的亲人一直没有放弃她，反而一直在看着她，准备在她摔倒的时候去扶持她，她只是在自顾自地觉得自己什么都没有了。 外公不是亲人嘛？
+
+*****
+
+####  江口夕  
+##### 19855#       发表于 2025-2-7 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371486&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 23:05</a>
+没想到莫提斯这种角色还有人厨素莫cp啊。请问莫提斯不会乐器是🐶🐔团哪个团员？bangbang世界观不会乐器什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在不一定了，独角兽怕不是没卵用的人格也要救。已经有兆头了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  plusSharp  
+##### 19856#       发表于 2025-2-7 23:08
+
+既然已经有灵视了，那我猜后面扔书画面是睦把莫抽离到了镜子里然后靠扔书砸碎镜子杀死莫，就这么简单，根本不需要什么治疗
+
+
+*****
+
+####  安娜导函数  
+##### 19857#       发表于 2025-2-7 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371339&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 22:42</a>
+教唆睦这种私底下离间队内气氛事情原来柿本和独角兽也觉得没问题呀，懒得评价官方 ...</blockquote>
+那不叫教唆离间，是大喵老师真心觉得以她认为的睦头的演技，待在mujica里真的是埋没了，这演技太他妈神了，大佬快带我飞吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 19858#       发表于 2025-2-7 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371497&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:07</a>
+这就是对于同样的剧情不同三观的人就会有不同的看法啊。
+
+  祥子母亲是外公害死的吗？祥子父亲的酒是外公 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢爹不是亲人？怎么突然雨过天晴了。群友逻辑真是让人摸不着头脑
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wwwttth  
+##### 19859#       发表于 2025-2-7 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371385&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-7 22:49</a>
+
+祥爹就是没有美少女皮和未成年盾的大香老师，所以之前我一直以为后面包饺子要把祥爹包进去
+
+但第六话好像编 ...</blockquote>
+我倒是觉得会包，包括当初祥妈生日详睦的演奏可能也是伏笔（女儿生日老登大概率是在场的）。家庭关系的问题一定是用音乐解决的。
+
+*****
+
+####  iiiiiiiiii  
+##### 19860#       发表于 2025-2-7 23:12
+
+<blockquote>江口夕 发表于 2025-2-7 23:07
+现在不一定了，独角兽怕不是没卵用的人格也要救。已经有兆头了
+
+—— 来自 Xiaomi 23113RKC6C, Android 1 ...</blockquote>
+救了2.5次元企划怎么解决，演唱会门票还能卖吗？
+
+*****
+
+####  木板春香  
+##### 19861#       发表于 2025-2-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371518&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:11</a>
+
+牢爹不是亲人？怎么突然雨过天晴了。群友逻辑真是让人摸不着头脑
+
+—— 来自 Xiaomi 23113RKC6C, Android ...</blockquote>
+这集动画你有看完么？
+
+<img src="https://img.saraba1st.com/forum/202502/07/231246l07d3xk3x4j3rlxv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 23:12 上传
+
+  这样
+
+<img src="https://img.saraba1st.com/forum/202502/07/231259g3mcppegcapc2ezh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 23:12 上传
+
+ 好理解一点
+
+*****
+
+####  江口夕  
+##### 19862#       发表于 2025-2-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371522&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 23:12</a>
+救了2.5次元企划怎么解决，演唱会门票还能卖吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫老师在脑内电影土下座就行了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  安娜导函数  
+##### 19863#       发表于 2025-2-7 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371373&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 22:47</a>
+关于这点我认为除非独角兽和柿本告诉我：大喵这个作妖最多的人和老登联手这种魔幻戏码在前四话出现，否则 ...</blockquote>
+炸团在邦多利是什么无法接受的事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+那我要介绍一位花道领域大神了呢，手游用了4期活动来挽留，结果人家就是要炸团<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 19864#       发表于 2025-2-7 23:14
+
+<blockquote>江口夕 发表于 2025-2-7 23:13
+莫老师在脑内电影土下座就行了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+什么监禁play
+
+*****
+
+####  ntrntr1  
+##### 19865#       发表于 2025-2-7 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371481&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 23:04</a>
+
+啊？啊？？啊？？？
+
+不然呢？？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那单纯离个婚外公外婆也和孩子有血缘关系啊，难道对面瘫痪了你也能像照顾亲生父母一样照顾岳父母？哪来的圣人
+
+反正这个世界上大部分人都做不到，不然法律为啥这么规定呢，女婿对岳父母本来就是没有任何赡养义务的啊，谁离婚了还给岳父母每个月寄点钱意思一下都是大善人了好吧
+
