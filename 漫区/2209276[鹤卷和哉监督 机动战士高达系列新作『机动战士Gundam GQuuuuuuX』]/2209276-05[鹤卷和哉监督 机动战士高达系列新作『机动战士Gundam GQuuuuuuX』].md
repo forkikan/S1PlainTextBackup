@@ -9457,3 +9457,27 @@ AB整理
 
 有吧
 
+
+*****
+
+####  岸浪白野  
+##### 6634#       发表于 2025-2-7 18:56
+
+是有些消息，但是选没几条的观众提问连狗是公还是母的问题都选上来
+
+<img src="https://img.saraba1st.com/forum/202502/07/185554mjzppwjilw17zz4q.png" referrerpolicy="no-referrer">
+
+<strong>U58DOBHEGQ%)RV3T5$~ZN~U.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 18:55 上传
+
+
+*****
+
+####  YU_JI  
+##### 6635#       发表于 2025-2-7 19:05
+
+所以狗是公是母（）
+
