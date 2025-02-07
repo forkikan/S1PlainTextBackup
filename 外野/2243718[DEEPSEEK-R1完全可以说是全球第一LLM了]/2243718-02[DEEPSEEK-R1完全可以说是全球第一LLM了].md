@@ -1407,3 +1407,36 @@ chatbox 设置20 0.6 0.7可以不
 之前有些疑 ...</blockquote>
 恐怖，它居然能理解这种复杂概念
 
+
+*****
+
+####  二十面酱  
+##### 1609#       发表于 2025-2-7 22:28
+
+pro的API怎么也400了，我去，正到关键的时候呢！
+
+*****
+
+####  羊寢  
+##### 1610#       发表于 2025-2-7 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368899&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 16:24</a>
+V3真的不错，输出速度还可以，而且不会像R1一样乱加设定</blockquote>
+v3也会乱添加设定，不过确实比起r1要好不少，之前我用v3跑团他就老按自己的思路给我微调设定
+
+
+*****
+
+####  约翰里德  
+##### 1611#       发表于 2025-2-7 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371227&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-7 22:24</a>
+这个是D老师的答复啊，并不是设置
+
+老是给我加设定，加一次直球辱骂一次，最后爆了这句出来。
+
+之前有些疑 ...</blockquote>
+没用的。
+过了十个回复以后还是会犯。
+他那永久固定设定就是安慰你的。
+
