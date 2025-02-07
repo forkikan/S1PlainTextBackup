@@ -8378,3 +8378,67 @@ Mujica第一集之后我同样红迪投票调查，是六成多喜欢三成多�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厄神之息  
+##### 19942#       发表于 2025-2-8 00:46
+
+说到喵梦，我是真受不了每集都给她个看见睦就咂嘴的公式镜头啊。是尼玛真的公式啊。前面回忆睦的神之一瘫咂嘴就罢了，现在你又不是不知道他人格分裂了，看个精神病自我拉扯也要咂下嘴好像既生瑜何生亮似的我是真尼玛遭不住啊，你学斯坦尼斯拉夫斯基学入魔了是吗？讲求真听真看真感受，看见木子米能切身感受精神病的痛苦狠狠的慕了是吧？
+
+
+*****
+
+####  lucasxp  
+##### 19943#       发表于 2025-2-8 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371973&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-8 00:31</a>
+年龄差一样，猫希有人说炼铜，猫睦却都说两个小可爱，令人感叹</blockquote>
+是猫莫，炼铜的是猫（
+
+*****
+
+####  嵇翱u  
+##### 19944#       发表于 2025-2-8 00:50
+
+说起来，牢莫给睦头看录像的时候为什么要把解散放到最前，后面自爆和祥子想睦头回来倒是正常顺序。
+
+正常顺序的话是牢莫把祥子点爆了，所以母鸡卡才解散。
+
+按牢莫给睦头看的剪辑版那就是因为解散所以牢莫讨厌祥子。
+
+这下是不是把自己摘出去了，我看牢莫也不像真小孩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 19945#       发表于 2025-2-8 00:50
+
+下一集大祥老师干了啥才能让莫头砸镜子
+
+*****
+
+####  江口夕  
+##### 19946#       发表于 2025-2-8 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372028&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 00:44</a>
+再核对一个细节，    </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还不是牢爹自己冠名的，他想叫啥就叫啥。老登又不认。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ntrntr1  
+##### 19947#       发表于 2025-2-8 00:53
+
+ 本帖最后由 ntrntr1 于 2025-2-8 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372054&amp;ptid=2208921" target="_blank">半年 发表于 2025-2-8 00:50</a>
+
+下一集大祥老师干了啥才能让莫头砸镜子</blockquote>
+和睦头在房间讨论音乐三天三夜  
+
+莫头：啊啊啊啊啊啊啊啊啊啊   为什么 那个讨厌的女人
+
+此画面在天使龙中亦有记载
+
