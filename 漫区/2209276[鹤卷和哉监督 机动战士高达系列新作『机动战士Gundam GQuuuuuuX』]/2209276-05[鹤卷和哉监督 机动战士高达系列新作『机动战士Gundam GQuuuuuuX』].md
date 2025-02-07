@@ -9570,3 +9570,15 @@ https://x.com/inchhime/status/1887788362100285879?s=09
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  EFSF  
+##### 6642#       发表于 2025-2-7 22:06
+
+出差正好有时间把这剧场版看了，第一话部分人物和第二话部分风格差别真的太明显了，特别是夏利安<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+战斗场面确实好看。
+
+—— 来自 Sony XQ-DQ72, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

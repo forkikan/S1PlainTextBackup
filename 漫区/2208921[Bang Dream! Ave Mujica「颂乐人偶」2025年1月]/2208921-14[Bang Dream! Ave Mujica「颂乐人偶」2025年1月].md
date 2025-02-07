@@ -6657,3 +6657,102 @@ MYGO的别C了！
 
   
 
+
+*****
+
+####  木板春香  
+##### 19811#       发表于 2025-2-7 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371084&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 21:56</a>
+
+照你的说法去救落水的，自己也淹死了。大祥什么精神状态。现在回老宅不代表以后继续呆在老宅。救落水的自 ...</blockquote>
+ 所以外公当时觉得祥子没有足够的能力去救祥爹这个落水的人啊，这话虽然非常难听，但确实是事实啊，人不能被情绪裹挟就失去判断啊
+
+*****
+
+####  江口夕  
+##### 19812#       发表于 2025-2-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371097&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:58</a>
+所以外公当时觉得祥子没有足够的能力去救祥爹这个落水的人啊，这话虽然非常难听，但确实是事实啊，人不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">做不到是一回事，做不做是一回事
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 19813#       发表于 2025-2-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371087&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:57</a>
+
+当然是接受自己被切割，自己想要培养出一个自立自强的继承人，抛弃切割一个犯错误的自己不是很合理的行 ...</blockquote>
+我就说，你说的这些谁都可以说，唯独定治不能说，这是一个爷爷叫孙女切割她的生父，你知道这句话是什么意思吗？
+
+弃老山的典故你总知道吧，这不就是活生生的弃老山吗，你亲爹没用了就切割亲爹，我亲爷爷没用了就切割亲爷爷，你看你说的这叫人话吗？
+
+
+*****
+
+####  木板春香  
+##### 19814#       发表于 2025-2-7 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371100&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 21:59</a>
+
+做不到是一回事，做不做是一回事
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+ 祥子在我看来，是一个悲剧，有好的心意，但能力不足，被编剧践踏到尊严几乎全失，分析祥子行为动机就像乌鸦报丧一样，难听，但不是乌鸦把人叫死了。
+
+*****
+
+####  Licheus  
+##### 19815#       发表于 2025-2-7 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371070&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-7 21:54</a>
+
+说起来之前烂炒睦下跪的是不是现在都在这个事情上装死了
+
+第六集过后大家提都不提这事儿像群体失忆一样 ...</blockquote>
+第四话看了就能感到莫这些“回旋镖”都是很轻浮地用出来，这一回当然也不例外。
+
+部分观众发疯那是戏外的事儿嘛。
+
+*****
+
+####  安娜导函数  
+##### 19816#       发表于 2025-2-7 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370585&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-2-7 20:38</a>
+不管老登是好是坏，后续戏份肯定少不了啊。3个团的问题核心都是祥子，祥子的问题不就来自中登老登。不可能 ...</blockquote>
+祥子的问题不是她自己性格造成的？非要说是家庭的富裕造成了她大小姐的高傲自尊所以怪到老登头上也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19817#       发表于 2025-2-7 22:05
+
+核心问题其实是家庭与企业不能用同一种思维来思考，对牢爹失职处理是企业的角度，但剥夺牢爹对祥子的监护权则是家庭情感方面的干涉，不能用管企业的方式去管家庭，否则就一定会遭到反噬
+
+牢爹不一定能当好一个高管，但不代表他不能成为一个好父亲，从纯粹利益的角度去否定牢爹作为人父的人格和价值就是老登的不对，他没有资格这么做，除非牢爹真不是个人，但看祥子对父亲的态度，他像吗 ? 这不单是你手下的员工，也是自己的家人，如果一点亲情都不讲，那又哪来的家庭关系呢 ？即使老登让祥子做了继承人，又能怎么样，她的家已经没有了
+
+就好比组乐队，如果只是靠单纯地利益绑定，而没有没有彼此的包容、情感的链接，最后就一定会炸团的，这就是少女乐队
+
+现在祥子的家也已经炸了，炸在了高高在上的外祖父手里，他又何尝不是在否定和逃避，即使向女婿倾泻再多怒火，女儿也已经回不来了，而现在老登就是亲手拆毁这个家仅存的部分，真是脑子里只有自己呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 19818#       发表于 2025-2-7 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371103&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 22:00</a>
+
+我就说，你说的这些谁都可以说，唯独定治不能说，这是一个爷爷叫孙女切割她的生父，你知道这句话是什么意 ...</blockquote>
+这就是切割么? 一个自怨自艾的人，你能力不足以把他从旋涡里拉出来的时候，只会把自己搭进去，就像一个不会游泳的人强行跳下去救人一样。
+
+  我请问，丰川清告把自己饿死了吗？ 
+

@@ -1334,3 +1334,13 @@ chatbox 设置20 0.6 0.7可以不
 
 —— 来自 vivo V2254A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  弗里德里希大帝  
+##### 1604#       发表于 2025-2-7 22:06
+
+把文档放进资料库以后ds的读取还会有上限吗？我放了七卷小说让他分析，他只读了6卷
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
