@@ -685,3 +685,13 @@ ai lives matter！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KBAC  
+##### 1543#       发表于 2025-2-7 13:35
+
+<blockquote>LeonsCat 发表于 2025-2-1 04:58
+默认温度太高了。</blockquote>
+感觉r1本身思维方式就怪，很意识流，温度调到0才勉强不发癫，但是依然喜欢搞一些中二比喻
+

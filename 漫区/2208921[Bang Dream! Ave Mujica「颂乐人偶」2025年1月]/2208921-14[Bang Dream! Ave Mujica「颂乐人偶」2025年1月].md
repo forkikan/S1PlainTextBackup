@@ -3419,3 +3419,79 @@ soyo来送别吧，希望不是soyo来动手，而是说“下次再一次玩吧
 
 太委屈了，赶快多喝几口砸下女儿。
 
+
+*****
+
+####  ntrntr1  
+##### 19552#       发表于 2025-2-7 13:29
+
+<blockquote>天空塔书记官 发表于 2025-2-7 13:23
+牢爹砸的是门框，而不是祥子，这连肢体暴力都不是，顶多算语言暴力，他从头到尾都没有和祥子动过手，估计 ...</blockquote>
+不能理解你们恶劣的生活环境真是对不起了！
+
+*****
+
+####  厄神之息  
+##### 19553#       发表于 2025-2-7 13:32
+
+<blockquote>天空塔书记官 发表于 2025-2-7 12:36
+但老登这种绝情才是真正应该被谴责的，结果一窝蜂都是在踩牢爹，捧老登，这我就理解不了了，恨喵梦也就罢 ...</blockquote>
+被引流来的慕强拜金屁孩电竞粉路人而已。属于之前会管马云叫爸爸的那种人。他们带入也不是带入小祥现在的处境，而是把小祥这人完全踢掉，把那个位置换成现在的自己。那老登作为家长有钱能背负人生，给自己人生猛上保险猛兜底，还不管自己干啥，闹够了就回来继承家产！？我带入小孩位实在太爽辣~我要吹老登！中登喝酒啃小才死了老婆丢了饭碗就一蹶不振了，我摊上简直头都大了！我要骂中登！
+
+事实是第一集祥子选亲爹没选继承家产这么正常的决策就已经被这群人痛批没苦硬吃了。可见这批玩抽象的小鬼已经拜金拜的灭绝人性了。
+
+*****
+
+####  刑部姬真可爱  
+##### 19554#       发表于 2025-2-7 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367428&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-7 12:57</a>
+那祥子也能说啊，我童年起码关心过你吧，虽然剧里没表现睦祥童年，但是总不能是祥子从小就虐待睦吧？
+莫 ...</blockquote>
+祥子确实是对睦说了你认为应该对莫说的话嘛，由于先后顺序的原因祥子面对莫打不出这张牌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 19555#       发表于 2025-2-7 13:33
+
+那还是楼友童年太幸福了呀，没被父母真打过，之前还在说楼梯的问题，我被我爹一脚从三楼踹到二楼，现在不也是好好的，动画表现得夸张一点很正常好吧，更何况隔壁就有一个直接跳三楼接侧手翻的<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 19556#       发表于 2025-2-7 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367586&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-7 13:19</a>
+
+小圆里的魔女文字吗，不知道写的是啥。这两人确实有点小圆和小焰的意思
+
+—— 来自 Xiaomi 2407FRK8EC, A ...</blockquote>
+
+就是mortis
+<img src="https://s3.bmp.ovh/imgs/2025/02/07/0ad8b115b1ab5c53.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 19557#       发表于 2025-2-7 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367605&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 13:21</a>
+
+说真的，祥子厨和睦厨互相攻击一点意义都没有，这两的CP稳到形容成情比金坚都不为过，是最不可能被拆得。 ...</blockquote>
+那最后赢家初祥呢
+
+*****
+
+####  swessia  
+##### 19558#       发表于 2025-2-7 13:38
+
+不是咋没睦厨了，我懒得参与角色厨撕逼就被开除睦厨了？
+
+楼上那个NGA S1轮着天天黑睦我都懒得回了
+
