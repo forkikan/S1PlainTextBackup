@@ -380,3 +380,14 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 为什么硅基流动的r1在chatbox上总是输出一半就中断？</blockquote>
 我也遇到这个情况，还以为网络问题<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中二骚年  
+##### 1517#       发表于 2025-2-7 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364324&amp;ptid=2243718" target="_blank">clarkgao 发表于 2025-2-7 01:31</a>
+
+为什么硅基流动的r1在chatbox上总是输出一半就中断？</blockquote>
+看看是不是应用有上下文数和输出长度限制
+
