@@ -671,3 +671,17 @@ cherry studio没有手机端
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测试下来我其实更愿意用温度高点的v3，在1.2到1.6左右
 低了重复得厉害，高了会呓语连词组都拼凑不了，r1填了一堆提示词照样玩赛博，对机械臂是不是有什么执念
 
+
+*****
+
+####  斯卡文分则能成  
+##### 1542#       发表于 2025-2-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367482&amp;ptid=2243718" target="_blank">神剑烧鸡 发表于 2025-2-7 13:05</a>
+测试下来我其实更愿意用温度高点的v3，在1.2到1.6左右
+低了重复得厉害，高了会呓语连词组都拼凑不了，r1填 ...</blockquote>
+ai想要自己的躯体
+ai lives matter！<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

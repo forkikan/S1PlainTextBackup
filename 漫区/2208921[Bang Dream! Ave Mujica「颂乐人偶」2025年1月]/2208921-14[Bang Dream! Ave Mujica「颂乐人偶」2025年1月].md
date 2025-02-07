@@ -3131,3 +3131,118 @@ Ira furor brevis est: animum rege; qui nisi paret.Imperat; hunc frenis,  ...</
 
 编剧现在几个主要视角的人都写不清楚，还指望她写明白她们家庭？那照这么说soyo消失三天三夜，她妈没报警是不是不关心她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 19526#       发表于 2025-2-7 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365850&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 10:15</a>
+独角兽好歹说我和她已经没有关系了也好，直接说不认识，知道你在逃避，但这也是是侮辱观众的智商 ...</blockquote>
+看了一下编剧的翻译笔记，说是原话可以翻译成不认识，也可以翻译成和我没关系，两种都可以。然后字幕组在深思熟虑之后选择了不认识，因为他们觉得这样能表达祥子的逃避。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ntrntr1  
+##### 19527#       发表于 2025-2-7 13:10
+
+<blockquote>玖羽 发表于 2025-2-7 13:04
+被流放至少能维持一个上班族的正常收入，名义上也有工作不是废人，就算过一段时间他自己辞职，事情的热度 ...</blockquote>
+那对自己女儿砸啤酒瓶就很容易想象？我寻思喝酒喝到进警察局的醉汉和被开除一穷二白也是两种形象吧，这用不是老登设的套吧
+
+反正按照我贫乏的生活经验，老登这种一手遮天的要开除女婿压根不需要设啥套，真离婚见不到孩子的到处都有那是真多上门几次都能直接报警
+
+但丰川家毕竟一窝子神人，可能人均爱过家家，我觉得正常人还是别想象了
+
+*****
+
+####  xyion  
+##### 19528#       发表于 2025-2-7 13:10
+
+<blockquote>南宮凝香 发表于 2025-2-7 12:22
+說到對偶
+
+祥子在不做人橋上打算飛祥，
+</blockquote>
+降难度的写法还真是这样。但最难的不在洗白，而是祥子怎么成长。她现在是极度自私的自我厌恶，逃避一切关心与责任，而且自尊碎一地也没有抗争的力量。需要很多内容才能把这人拼好。
+
+*****
+
+####  安娜导函数  
+##### 19529#       发表于 2025-2-7 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367489&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 13:06</a>
+问题来了，老登什么职位要不要担责任，牢爹是审查位，老登什么位
+
+—— 来自 Xiaomi 23113RKC6C, Android ...</blockquote>
+老登是集团BOSS吧，祥爹是下面子公司的，子公司运作又不需要每个项目都和集团汇报让上面做决定
+
+*****
+
+####  江口夕  
+##### 19530#       发表于 2025-2-7 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367428&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-7 12:57</a>
+那祥子也能说啊，我童年起码关心过你吧，虽然剧里没表现睦祥童年，但是总不能是祥子从小就虐待睦吧？
+莫 ...</blockquote>
+海玲：？关大祥什么事，不是莫不会吉他解散的么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  qlipho  
+##### 19531#       发表于 2025-2-7 13:14
+
+还在纠结财团老登中登的，这剧的现实性不就是‘没写的就是没有’
+
+*****
+
+####  akiomn  
+##### 19532#       发表于 2025-2-7 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367529&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 13:12</a>
+海玲：？关大祥什么事，不是莫不会吉他解散的么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，但海玲这段剧情直接被观众无视了，很搞笑吧
+在炸团这事上莫提斯是最没资格甩锅的，哪怕有内鬼也好，本质第四集都是因为莫提斯不会吉他导致的直接炸团
+
+*****
+
+####  玖羽  
+##### 19533#       发表于 2025-2-7 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367510&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-7 13:09</a>
+
+看了一下编剧的翻译笔记，说是原话可以翻译成不认识，也可以翻译成和我没关系，两种都可以。然后字幕组在 ...</blockquote>
+这不就是对应Soyo说过的MyGO跟我没有关系吗，我寻思祥子怎么都比不上Soyo从一开始就想踢走两个人恶劣吧，如果现在都觉得不行，MyGO第9话之后是怎么活下来的
+
+*****
+
+####  格林达姆  
+##### 19534#       发表于 2025-2-7 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367412&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-7 12:55</a>
+就算否定掉故意亏钱这点，但是依然否定不掉这么大金额的支出肯定是会经过老登的手
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能让老登下罪己诏吧
+当然都明确表示这女婿老登看不上，老登顺水推舟肯定有
+
+但哪怕没诈骗这档事，在到底是祥爹赡养老登还是老登在赡养祥爹都分不清的情况下，老登在女儿死后让祥爹净身出户这操作也不太能指摘
+
+*****
+
+####  江口夕  
+##### 19535#       发表于 2025-2-7 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367520&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 13:11</a>
+老登是集团BOSS吧，祥爹是下面子公司的，子公司运作又不需要每个项目都和集团汇报让上面做决定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这当然看规模，168亿是小数那开女婿就是借口，168亿是大数，那老登也是审查失格甩锅给女婿
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
