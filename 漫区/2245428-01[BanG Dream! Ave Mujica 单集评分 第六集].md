@@ -2895,3 +2895,13 @@ soyo释怀了吗？
 
 很多人都说编剧是祥黑，我反而强烈觉得编剧狠狠把自己代入祥子，享受着自己无论怎么胡搞怎么臭脸一堆美少女都能对自己无条件的爱和包容，哦对了还有随时等着自己继承的亿万家产
 
+
+*****
+
+####  saglork  
+##### 291#       发表于 2025-2-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368840&amp;ptid=2245428" target="_blank">雪霜 发表于 2025-2-7 16:17</a>
+很多人都说编剧是祥黑，我反而强烈觉得编剧狠狠把自己代入祥子，享受着自己无论怎么胡搞怎么臭脸一堆美少女 ...</blockquote>
+因为最后这饺子一定会包回来，所以我觉得你说的对<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

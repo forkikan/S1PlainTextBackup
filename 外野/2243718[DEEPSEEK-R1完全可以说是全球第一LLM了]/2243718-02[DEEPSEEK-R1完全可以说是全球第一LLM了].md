@@ -883,3 +883,29 @@ V3真的不错，输出速度还可以，而且不会像R1一样乱加设定
 结合page assist这个插件，链接硅基流动的api，可以实现联网的ds r1</blockquote>
 怎么用啊，有教程么
 
+
+*****
+
+####  费雷拉  
+##### 1562#       发表于 2025-2-7 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368967&amp;ptid=2243718" target="_blank">斯卡文分则能成 发表于 2025-2-7 16:32</a>
+
+怎么用啊，有教程么</blockquote>
+搜索page assist游览器插件安装。
+
+打开插件网页，设置里把语言改成中文，
+
+配置open ai兼容api，base url那里填[https://api.siliconflow.cn/v1](https://api.siliconflow.cn/v1)
+
+apikey填硅基的key
+
+管理搜索那里配置搜索引擎就行了。
+
+*****
+
+####  约翰里德  
+##### 1563#       发表于 2025-2-7 16:45
+
+对了，问下说什么连酒馆跑团更好，什么酒馆
+

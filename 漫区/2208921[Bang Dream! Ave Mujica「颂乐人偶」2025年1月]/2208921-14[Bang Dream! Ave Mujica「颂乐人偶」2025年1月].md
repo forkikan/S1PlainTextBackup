@@ -4898,3 +4898,47 @@ soyo侍寝那个镜头，我记得轻拍翻转有个同款体位吧，而且都�
 
 爱素这段时间被压一头了，惨。
 
+
+*****
+
+####  aptx8285144  
+##### 19688#       发表于 2025-2-7 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368940&amp;ptid=2208921" target="_blank">天邪鬼 发表于 2025-2-7 16:29</a>
+
+先导者和少歌都不好拿进来的，毕竟虽然mujica的组成是上层叙事的大手早就订好的事，但剧内的建队逻辑其实挺 ...</blockquote>
+做网红，好像和大喵是不是重叠了（
+
+*****
+
+####  fuochai  
+##### 19689#       发表于 2025-2-7 16:37
+
+soyo不是都知道原因了 怎么还能听到crythic就应激啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 Sony XQ-DQ72, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  天空塔书记官  
+##### 19690#       发表于 2025-2-7 16:40
+
+祥子不做客服，好像就只能去便利店或者餐饮单位打工了，有可能天天和熟人碰面，祥子肯定是接受不了的，客服好歹还有个格子间呢
+
+但凡她打工能遇上KSM这帮前辈，估计也就没后边这么多事了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 19691#       发表于 2025-2-7 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369014&amp;ptid=2208921" target="_blank">fuochai 发表于 2025-2-7 16:37</a>
+
+soyo不是都知道原因了 怎么还能听到crythic就应激啊
+
+—— 來自 Sony XQ-DQ72, Android 14上的 S1Next-鵝版 ...</blockquote>
+重点不是最后的睦么，再怎么说对于永远不会忘记ccc的人来说，你说忘了ccc确实会激怒人家。
+
