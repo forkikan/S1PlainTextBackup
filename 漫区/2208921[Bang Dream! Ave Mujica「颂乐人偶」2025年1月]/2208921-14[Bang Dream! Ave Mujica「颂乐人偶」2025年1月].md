@@ -4468,3 +4468,61 @@ mortis：何等任性！否定压力，想将吾燃尽吗？若叶睦！
 
 soyo爱的是ccc，不是祥。祥子对她来说是ccc中很重要的一部分。灯那种直球告白才是爱着给她温暖的祥子。
 
+
+*****
+
+####  rushsong  
+##### 19651#       发表于 2025-2-7 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368362&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-7 15:16</a>
+按内娱写法，大祥老师确实是大女主
+因为她有四个舔狗，青梅竹马的睦，初恋的灯，童年惊鸿一瞥就一见钟情念 ...</blockquote>
+soyo早就不舔了，下一集估计就是报仇回
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  EverNight  
+##### 19652#       发表于 2025-2-7 15:28
+
+滚楼梯那里我理解编剧是像拔高一个感情烈度，但是摔下来身上没点伤我觉得不行，反而因为反常有点出戏
+不如在mortis脸上加点淤青甚至血痕，我觉得效果绝对震撼，绝对让人心碎，烈度拉满
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  595505568  
+##### 19653#       发表于 2025-2-7 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 19654#       发表于 2025-2-7 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368362&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-7 15:16</a>
+
+按内娱写法，大祥老师确实是大女主
+
+因为她有四个舔狗，青梅竹马的睦，初恋的灯，童年惊鸿一瞥就一见钟情念 ...</blockquote>
+先不管初华有什么黑暗面，恕我直言，除非告诉我甜甜圈女士是财阀的卧底，否则我看不出来现在的大祥有什么比甜甜圈女士更有吸引人的地方
+
+*****
+
+####  天空塔书记官  
+##### 19655#       发表于 2025-2-7 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368249&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 15:00</a>
+我觉得不行，这种最多算A团1.0希望的“团魂”，如今的大祥老师已经当不了“神明”了，至少大喵老师那边可 ...</blockquote>
+但祥子注定是神明，因为她就是作曲者，除非换一个人来作曲，就像换一个鼓手来敲鼓一样，祥子是没有作为神明的自觉，没有意识到自己身为神明的责任，所以喵梦不认可她是一定的，但只要选择加入乐团，代表肯定还是对音乐有追求的，即使不是目的也是实现追求的手段，这是bang的底层逻辑，所以喵梦意识到自己对祥子有所求，对音乐还有梦想，或者想要通过音乐达成什么，就一定会回到A团的
+
+乐团是五个人的事情，而不是某一个人的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

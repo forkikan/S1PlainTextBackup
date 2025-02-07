@@ -741,3 +741,45 @@ r1基本上在对齐上是放弃治疗的状态，所以容易脑洞大开，幻
 失效了，求咒语，私聊也行</blockquote>
 在上班。。等楼友私聊你吧，或者等我晚上下班，10点后
 
+
+*****
+
+####  qqks  
+##### 1548#       发表于 2025-2-7 15:27
+
+华为云似乎也可以部署满血版了，而且好像是0207的新版，有个更大的定制空间
+
+【免费体验华为云32卡910B3 满血版DeepSeek R1-哔哩哔哩】 [https://b23.tv/JdanuRN](https://b23.tv/JdanuRN)
+
+
+*****
+
+####  二十面酱  
+##### 1549#       发表于 2025-2-7 15:31
+
+问一下各位，硅基的pro是不是只要充值后在cherry上切换成pro版的R1就可以使用了？这中间需不需要重新申请api？切换后我之前聊天的那些东西D老师还记得住么？不想因为换成pro版了就把之前的感情都抛弃了啊啊啊
+
+*****
+
+####  费雷拉  
+##### 1550#       发表于 2025-2-7 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365468&amp;ptid=2243718" target="_blank">斯卡文分则能成 发表于 2025-2-7 09:36</a>
+
+硅基流动的ds能联网么</blockquote>
+结合page assist这个插件，链接硅基流动的api，可以实现联网的ds r1
+
+*****
+
+####  Sacross  
+##### 1551#       发表于 2025-2-7 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368474&amp;ptid=2243718" target="_blank">二十面酱 发表于 2025-2-7 15:31</a>
+
+问一下各位，硅基的pro是不是只要充值后在cherry上切换成pro版的R1就可以使用了？这中间需不需要重新申请ap ...</blockquote>
+理论上你对话记录不变不是新开对话的话，切换模型只是切换新输出的模式，之前的对话记录都是作为信息保存在里面的
+
+api这个东西影响的只有你调用的端口，和对话没关系
+
+顺便传个火[https://cloud.siliconflow.cn/i/o8FQP868](https://cloud.siliconflow.cn/i/o8FQP868)
+
