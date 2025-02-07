@@ -2534,3 +2534,145 @@ EXO是晚辈了。
 但集团是一方面，家族是另一方面，老登是直接把牢爹从丰川家除名了，甚至剥夺了他祥子父亲的身份，这就很 ...</blockquote>
 当爹的哪个女儿出嫁心情不复杂的，何况还是个上门女婿，更看不上了，后面女儿还死了，觉得自己的宝贝女儿就是被你个龟孙克死的迁怒你让你滚蛋太正常了
 
+
+*****
+
+####  天空塔书记官  
+##### 19471#       发表于 2025-2-7 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367168&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:22</a>
+有一说一第三集模仿魔女张开大口把睦吃了、第四集模仿恐怖片敲门开门，第六集在睦面前突然变大威吓、把睦 ...</blockquote>
+但这些是给观众看的，又不是给剧中人看的，别被高位视角给骗到啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LeonsCat  
+##### 19472#       发表于 2025-2-7 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366984&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-7 12:02</a>
+
+都出到第六集了怎么还没认识到，鸡团上武道馆是跌落的剧情需要，是编剧的大手，不需要遵守任何世界观，你 ...</blockquote>
+落脚点是“偶像团”，丰川只是恰逢其会，改成kkr突发奇想让黑衣人推am团一样的论证。
+
+虽然说著名乐队特别是国民乐队或多或少会有偶像化运营，甚至不少乐队是偶像出身（比如披头士），但是一般来说对于正经乐队，听众是相对不会关注具体成员的私生活，除非你搞成列侬那样更不会有莫名其妙的私生饭。相反偶像团那养gachi是基本功，街拍……青木来国内那是一堆人跑到机场蹲守。
+
+*****
+
+####  北条早苗  
+##### 19473#       发表于 2025-2-7 12:26
+
+如果是现实意义的多重人格障碍，那牢莫也是若叶睦这个个体的一部分，睦头现在连自爱能力都都丢失了，明显也是不正常的
+但是wsd大概率是把双重人格当成时尚单品了，搞不好还会出水仙卡花前花后换人格
+
+*****
+
+####  天空塔书记官  
+##### 19474#       发表于 2025-2-7 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367175&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 12:23</a>
+当爹的哪个女儿出嫁心情不复杂的，何况还是个上门女婿，更看不上了，后面女儿还死了，觉得自己的宝贝女儿 ...</blockquote>
+所以还是老登导致牢爹变成这样的呗，那牢爹到底坏在哪了，诈骗他也是受害者，除了和祥子一样的别扭性格和多少有点无能，剩下的也就只有入赘豪门了，这不能改变 ?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 19475#       发表于 2025-2-7 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367101&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:15</a>
+喵梦第一反应是演技也就算了，关键下台后解释过了也不信，一直一直惦记着あれは本物，啥是本物，我看神经 ...</blockquote>
+精神病这种东西真的不是靠嘴说两句有就信的，就比如你一个沉默寡言的同事，突然有一天变得开朗活泼外向，你去问他怎么了，他说他人格分裂，和他说他买彩票中了两千万已经辞了这个勾八工作，你更信哪个？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  守望者404  
+##### 19476#       发表于 2025-2-7 12:28
+
+想不到怎么处理莫，这心理年龄跟个几岁的一样，让她跟大伙和解？变成地狱战神替睦说话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海洋队手下mayo  
+##### 19477#       发表于 2025-2-7 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367125&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:18</a>
+观众视角的母鸡卡不是炒作炒麻了，武道馆摘面具，采访铺垫不会长久，直播节目演断线人偶，全国巡演当场解 ...</blockquote>
+作为一直追kanye新闻的乐子人 难怪有神秘即视感<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">鸡团这包炒作天才啊，而且祥子的说翻脸就翻脸+大喵的爱数字作精+木头的纯天然发癫再加上（邦邦世界观里）够硬的音乐实力
+
+这不就是邦版kanye
+
+*****
+
+####  刑部姬真可爱  
+##### 19478#       发表于 2025-2-7 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367147&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 12:20</a>
+请问你们是从哪些画面觉得莫小姐是个诡异的坏东西的？因为她压力大祥老师嘛 ...</blockquote>
+体现在她对睦的态度上啊，不以小孩子耍脾气的态度来看待的话，这不一副要取而代之的恶人形象
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 19479#       发表于 2025-2-7 12:30
+
+合体啊，大莫大睦合二为一，我成了我😂
+
+
+*****
+
+####  格林达姆  
+##### 19480#       发表于 2025-2-7 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367220&amp;ptid=2208921" target="_blank">守望者404 发表于 2025-2-7 12:28</a>
+想不到怎么处理莫，这心理年龄跟个几岁的一样，让她跟大伙和解？变成地狱战神替睦说话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种剧情最好写
+解开大祥心结，大家一起开个live哄开心了就行
+
+
+*****
+
+####  岬开斗  
+##### 19481#       发表于 2025-2-7 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367188&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-7 12:24</a>
+落脚点是“偶像团”，丰川只是恰逢其会，改成kkr突发奇想让黑衣人推am团一样的论证。
+
+虽然说著名乐队特别 ...</blockquote>
+不是什么偶像团什么谁在推的问题，而是你一直试图在找自洽，剧本没写的就用现实世界观来补，而六集看下来，事实就是编剧想怎么写就怎么写不需要自洽，默认“没写就是没有”命中率反而更高。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 19482#       发表于 2025-2-7 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367213&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:27</a>
+
+所以还是老登导致牢爹变成这样的呗，那牢爹到底坏在哪了，诈骗他也是受害者，除了和祥子一样的别扭性格和 ...</blockquote>
+祥子她爹的塑造就是祥子的一面镜子，是编剧怕观众看不懂又不愿意直白的塑造祥子人性里那些弱点，才间接安排出来他的这种经历的。如果客观的去看待剧情，每个角色的行为的底层逻辑都是为了剧情推进服务的，本来就无所谓对错。
+
+*****
+
+####  哈曼的YY  
+##### 19483#       发表于 2025-2-7 12:33
+
+<blockquote>zhigui 发表于 2025-2-7 02:05
+突然想到，祥子这集忘记的台词不会是为了和ob一串字母“我，毋畏遗忘”作对应的吧
+
+那编剧可太变态了，为了 ...</blockquote>
+这里就是强行遗忘姐 在这种地方用真是太变态了 观众根本get不到什么意思 台词就是写成
+
+我害睦变成这样如果没有我睦就不会... 如果去见睦又会伤害到她(像莫姐说的)但是睦又想见我 我不知道该怎么办了
+
+都好
+

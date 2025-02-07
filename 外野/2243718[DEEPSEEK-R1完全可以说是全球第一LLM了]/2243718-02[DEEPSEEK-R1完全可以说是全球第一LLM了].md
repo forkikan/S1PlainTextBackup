@@ -628,3 +628,14 @@ chatbox感觉不太好用
 chatbox感觉不太好用</blockquote>
 错了。你要的手机版本。我没注意它有没有就不说了。
 
+
+*****
+
+####  clarkgao  
+##### 1538#       发表于 2025-2-7 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365664&amp;ptid=2243718" target="_blank">coldhot3 发表于 2025-2-7 09:56</a>
+
+max token8192吧</blockquote>
+应该不是这个的限制。有时候就能完成输出。
+
