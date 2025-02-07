@@ -469,3 +469,26 @@ https://cloud.siliconflow.cn/i/z8SkAHeN
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeblack  
+##### 1526#         楼主| 发表于 2025-2-7 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365472&amp;ptid=2243718" target="_blank">zyf199212 发表于 2025-2-7 09:37</a>
+
+硅基流动充了钱之后用pro是真快啊</blockquote>
+让我试试
+
+*****
+
+####  约翰里德  
+##### 1527#       发表于 2025-2-7 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366249&amp;ptid=2243718" target="_blank">斯卡文分则能成 发表于 2025-2-7 10:49</a>
+https://cloud.siliconflow.cn/i/z8SkAHeN
+这里也传个火吧
+虽然是真卡啊</blockquote>
+能，变得飞飞飞飞飞飞快
+但是胡说八道程度还是压不下来
+

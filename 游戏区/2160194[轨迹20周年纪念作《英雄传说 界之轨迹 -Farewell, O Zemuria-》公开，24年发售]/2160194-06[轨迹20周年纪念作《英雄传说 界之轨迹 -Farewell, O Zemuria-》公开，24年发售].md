@@ -647,3 +647,27 @@ van的第一章高强度通马桶真是一坨，没有补上夜晚溜紫兔根�
 已经被砍过了 本来是掉所有颜色 现在只掉一种。下作怕不是一种都不掉了（ ...</blockquote>
 龙来瀑布路上的那只无限刷的全晶片羊还在不在?
 
+
+*****
+
+####  无动于衷  
+##### 7591#       发表于 2025-2-7 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366193&amp;ptid=2160194" target="_blank">吴怀在 发表于 2025-2-7 10:43</a>
+
+话说有没有可能，空轨重置结尾整个大活，老玩家玩到最后发现重制版是界轨结局回溯后的世界线？
+
+这样岂不是 ...</blockquote>
+这个提案一开始就被否了
+
+
+*****
+
+####  吴怀在  
+##### 7592#       发表于 2025-2-7 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366363&amp;ptid=2160194" target="_blank">无动于衷 发表于 2025-2-7 10:59</a>
+这个提案一开始就被否了</blockquote>
+那真可惜
+我是希望黎恩篇和范恩篇都能砍掉注水内容重置
+

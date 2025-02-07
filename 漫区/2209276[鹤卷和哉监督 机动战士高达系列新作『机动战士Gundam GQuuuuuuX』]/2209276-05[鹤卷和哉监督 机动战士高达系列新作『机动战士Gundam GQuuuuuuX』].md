@@ -9036,3 +9036,20 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』</blockquote>
 好！本周末破23亿超相逢在宇宙吧！
 
+
+*****
+
+####  王留美  
+##### 6608#       发表于 2025-2-7 11:04
+
+在无人关心的角落里，**上初代敢达第一话(限定日本IP免费播放)的播放量在1月24号到2月4号的约10天内增长了约26.5万次 ​​​
+
+*****
+
+####  psycho_Gadfly  
+##### 6609#       发表于 2025-2-7 11:05
+
+<blockquote>王留美 发表于 2025-2-7 11:04
+在无人关心的角落里，**上初代敢达第一话(限定日本IP免费播放)的播放量在1月24号到2月4号的约10天内增长了 ...</blockquote>
+痞子引流大成功
+
