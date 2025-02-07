@@ -9400,3 +9400,29 @@ AB整理
 
 2025-2-7 17:19 上传
 
+
+*****
+
+####  中野梓  
+##### 6629#       发表于 2025-2-7 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369326&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-7 17:19</a>
+
+冠军锐评GQXop：一眼普通人开不动。我？我当然可以，因为我是冠军</blockquote>
+不愧是冠军
+
+*****
+
+####  岸浪白野  
+##### 6630#       发表于 2025-2-7 17:49
+
+[X 上的 オトナの食玩倶楽部：“昨日ご案内した、スペシャルな商品をチラ見せ！ こだわりすぎて公開に間に合わせらせなかったのですが、とてもかわいく仕上がっております 近日予約開始予定！お楽しみに！（企画担当K澤） #GQuuuuuuX #ジークアクス [url]https://t.co/mpBS2enzUC](https://x.com/otona_shokugan/status/1887788993187832165)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/07/174850kifyfd7fhyyi9r9e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 17:48 上传
+

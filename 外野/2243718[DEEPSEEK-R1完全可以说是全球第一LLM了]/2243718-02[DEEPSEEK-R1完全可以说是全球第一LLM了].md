@@ -989,3 +989,30 @@ silly tarven用来搞涩涩的生产力工具（大概）</blockquote>
 哈？正经跑团能用吗我想改善ds瞎编设定的问题</blockquote>
 ds生成的跑团像喝了迷魂汤，我都看不懂写的啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">ds写作就是文笔高大上，剧情发展乱七八糟，但对角色性格把握得还可以（人多了会乱套），不像别的ai写不出细致角色性格，全是换头人。可以喂它角色台词和剧情，适合生成喜欢的角色的同人段子
 
+
+*****
+
+####  约翰里德  
+##### 1571#       发表于 2025-2-7 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369494&amp;ptid=2243718" target="_blank">zyf199212 发表于 2025-2-7 17:43</a>
+ds生成的跑团像喝了迷魂汤，我都看不懂写的啥ds写作就是文笔高大上，剧情发展乱七八糟，但对角色性格把握 ...</blockquote>
+别说了，我已经放弃对它产的某些段落的严谨性的思考了，我假装没看到一般直接过了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 1572#       发表于 2025-2-7 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369494&amp;ptid=2243718" target="_blank">zyf199212 发表于 2025-2-7 17:43</a>
+
+ds生成的跑团像喝了迷魂汤，我都看不懂写的啥ds写作就是文笔高大上，剧情发展乱七八糟，但对角色性格把握 ...</blockquote>
+上下文64K比较短
+
+*****
+
+####  zyf199212  
+##### 1573#       发表于 2025-2-7 17:46
+
+我焯怎么秘塔也挂了，这就是个搜索工具都不能对话咋还挂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
