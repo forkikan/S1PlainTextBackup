@@ -969,3 +969,23 @@ pro还有啥区别吗实名了能玩刘备文吗</blockquote>
 对了，问下说什么连酒馆跑团更好，什么酒馆</blockquote>
 silly tarven用来搞涩涩的生产力工具（大概）
 
+
+*****
+
+####  约翰里德  
+##### 1569#       发表于 2025-2-7 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369291&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-2-7 17:15</a>
+silly tarven用来搞涩涩的生产力工具（大概）</blockquote>
+哈？正经跑团能用吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想改善ds瞎编设定的问题
+
+*****
+
+####  zyf199212  
+##### 1570#       发表于 2025-2-7 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369468&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 17:39</a>
+
+哈？正经跑团能用吗我想改善ds瞎编设定的问题</blockquote>
+ds生成的跑团像喝了迷魂汤，我都看不懂写的啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">ds写作就是文笔高大上，剧情发展乱七八糟，但对角色性格把握得还可以（人多了会乱套），不像别的ai写不出细致角色性格，全是换头人。可以喂它角色台词和剧情，适合生成喜欢的角色的同人段子
+
