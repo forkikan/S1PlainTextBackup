@@ -4328,3 +4328,98 @@ mortis：何等任性！否定压力，想将吾燃尽吗？若叶睦！
 墨这个角色最大的问题是不会乐器导致她很难参与最终事件搞live</blockquote>
 別黑我燈
 
+
+*****
+
+####  蓮華  
+##### 19637#       发表于 2025-2-7 15:04
+
+我问问啊，小睦要墨提斯去阻止soyo去大祥家那
+
+是因为怕soyo看到大祥家那惨样后大祥自尊又受损了
+
+还是怕soyo经历飞鸟山一战后大祥再伤害到soyo了
+
+*****
+
+####  fuwamoco  
+##### 19638#       发表于 2025-2-7 15:05
+
+墨睦就是没去成人桥，去趟成人桥，墨来句我想保护你，睦来句我想成为人，就和解了。
+
+*****
+
+####  DD-963  
+##### 19639#       发表于 2025-2-7 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368255&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-7 15:00</a>
+
+祥子现在要别人推她才动，因为灯贴了纸条所以能想到灯，看了睦的视频才想起睦也正常 ...</blockquote>
+初华给祥子发消息 却不回
+
+*****
+
+####  plusSharp  
+##### 19640#       发表于 2025-2-7 15:06
+
+<blockquote>蓮華 发表于 2025-2-7 15:04
+我问问啊，小睦要墨提斯去阻止soyo去大祥家那
+
+是因为怕soyo看到大祥家那惨样后大祥自尊又受损了
+
+还是怕soyo ...</blockquote>
+肯定是为了祥子，睦在退黄瓜以后就再没为soyo考虑过
+
+
+*****
+
+####  lucasxp  
+##### 19641#       发表于 2025-2-7 15:07
+
+所以pv里按下电视开关的到底是谁？这一话能看出来电视款式都不一样，甚至一个用遥控器一个用按钮
+
+*****
+
+####  厄神之息  
+##### 19642#       发表于 2025-2-7 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368255&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-7 15:00</a>
+
+祥子现在要别人推她才动，因为灯贴了纸条所以能想到灯，看了睦的视频才想起睦也正常 ...</blockquote>
+灯贴了纸条所以怀念灯，但是睦被暗裔小莫夺舍把团搞炸，在舞台嗷嗷叫的撕心裂肺，事后直接人间蒸发一个月却不担心怀念睦？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 19643#       发表于 2025-2-7 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368278&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-7 15:04</a>
+
+我问问啊，小睦要墨提斯去阻止soyo去大祥家那
+
+是因为怕soyo看到大祥家那惨样后大祥自尊又受损了
+
+还是怕soyo ...</blockquote>
+应该是木头人理解大祥老师不希望别人知道家庭情况。
+
+
+*****
+
+####  玖羽  
+##### 19644#       发表于 2025-2-7 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368302&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-2-7 15:07</a>
+
+所以pv里按下电视开关的到底是谁？这一话能看出来电视款式都不一样，甚至一个用遥控器一个用按钮 ...</blockquote>
+我估计八成是初华，二成是祥子
+
+*****
+
+####  plusSharp  
+##### 19645#       发表于 2025-2-7 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368309&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-7 15:07</a>
+
+灯贴了纸条所以怀念灯，但是睦被暗裔小莫夺舍把团搞炸，在舞台嗷嗷叫的撕心裂肺，事后直接人间蒸发一个月 ...</blockquote>
+不是不怀念睦，复盘解散事件，祥子的唯一表态是“我希望睦能够回来”，她是因为莫顶了睦才解散的，如果她不是最关注睦那只是缺个吉他的程度演出完全可以掩盖过去，莫都说了可以接着演
+

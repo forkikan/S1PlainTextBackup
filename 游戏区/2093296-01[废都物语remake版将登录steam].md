@@ -26,3 +26,23 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  manyin1  
+##### 774#       发表于 2025-2-7 15:09
+
+完蛋了完蛋了……
+
+隐隐约约感觉不会是xxn团队在做吧？……
+
+*****
+
+####  猪突萌进  
+##### 775#       发表于 2025-2-7 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67310700&amp;ptid=2093296" target="_blank">宛若青空 发表于 2025-1-30 16:19</a>
+
+不是吧，你真当游戏开发那么容易，“大学爱好者社团估计都能在一学期内搞出来”这种话都能说出来那没什么 ...</blockquote>
+老游戏重制啊不玩什么花活就真的这么容易。
+

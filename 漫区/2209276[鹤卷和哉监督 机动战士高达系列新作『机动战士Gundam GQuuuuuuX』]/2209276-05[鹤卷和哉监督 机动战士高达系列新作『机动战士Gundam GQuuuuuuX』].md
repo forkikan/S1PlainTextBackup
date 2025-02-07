@@ -9107,3 +9107,13 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 
 原来庵野也喜欢小森少尉<img src="https://p.sda1.dev/21/7b401fe88d96fd9b28ad7f774459a6e4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 6615#       发表于 2025-2-7 15:07
+
+内部爱
+
+没有带货任务应该不会发展到孤儿的程度吧
+

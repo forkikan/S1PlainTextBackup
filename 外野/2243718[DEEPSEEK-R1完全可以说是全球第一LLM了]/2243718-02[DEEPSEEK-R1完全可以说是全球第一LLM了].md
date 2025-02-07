@@ -718,3 +718,26 @@ r1基本上在对齐上是放弃治疗的状态，所以容易脑洞大开，幻
 
 我这边R1基本不会出任何科学、赛博相关的内容了，包括思维发散能力感觉也被限制的还不错。但是我是每次感觉不对，就告诉它哪不对，然后累加进提示词里，提示词到现在已经非常长了XD。具体那一条对应哪一方面也不懂
 
+
+*****
+
+####  毒品  
+##### 1546#       发表于 2025-2-7 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67286791&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-1-27 10:47</a>
+
+**** 本内容被作者隐藏 ****
+
+转载咒语</blockquote>
+失效了，求咒语，私聊也行
+
+*****
+
+####  魔灵高达  
+##### 1547#       发表于 2025-2-7 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368318&amp;ptid=2243718" target="_blank">毒品 发表于 2025-2-7 15:09</a>
+
+失效了，求咒语，私聊也行</blockquote>
+在上班。。等楼友私聊你吧，或者等我晚上下班，10点后
+
