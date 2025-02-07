@@ -1098,3 +1098,51 @@ r1实在太癫了，完全压不住
 v3怎么重复一个段子啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">温度调高点可以缓解一些，据我的观察人多的时候v3就算能用也会变复读弱智
 
+
+*****
+
+####  约翰里德  
+##### 1582#       发表于 2025-2-7 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370195&amp;ptid=2243718" target="_blank">神剑烧鸡 发表于 2025-2-7 19:33</a>
+温度调高点可以缓解一些，据我的观察人多的时候v3就算能用也会变复读弱智 ...</blockquote>
+我信了你把r1跳到了温度2。
+然后我看到了疑似港漫的文字版<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  神剑烧鸡  
+##### 1583#       发表于 2025-2-7 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370233&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 19:39</a>
+我信了你把r1跳到了温度2。
+然后我看到了疑似港漫的文字版</blockquote>
+2会变成呓语我上面说过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">勉强能读
+
+*****
+
+####  二十面酱  
+##### 1584#       发表于 2025-2-7 19:45
+
+pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整了...说起来关于AI，不论是GPT和是文心，千问啥的，我之前没怎么研究过，目前我跟R1的对话里，发现这货自己提出的数学模型，在对话的过程中甚至可以自我优化，也就是说我每一次问它问题，它都会再审视一遍自己的模型，然后在原有的基础上做出一些更改，当我发现这些差异的时候反问它，它甚至告诉我每次输出回答的时候会比较新旧两个模型输出的答案，如果改动后的模型给出的答案更“合适”，它就会默认使用优化的模型。这有点进化的意味在里面了
+
+*****
+
+####  神剑烧鸡  
+##### 1585#       发表于 2025-2-7 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370233&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 19:39</a>
+我信了你把r1跳到了温度2。
+然后我看到了疑似港漫的文字版</blockquote>
+诶不是怎么r1还2的，r1默认就够狂了，要调调v3的呀
+
+*****
+
+####  披头破落户  
+##### 1586#       发表于 2025-2-7 19:46
+
+硅基pro版r1的深度思考有很多乱码什么情况，还好不影响实际写出的内容
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

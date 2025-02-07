@@ -5380,3 +5380,31 @@ wsd在奇怪的病上总是很用心，查了下现实案例。
 <img src="https://p.sda1.dev/21/72cc5af56ee471ede37ab98ce38308e8/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/74d7a32de7499af32e628533fd4dfa18/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 19724#       发表于 2025-2-7 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370165&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-2-7 19:28</a>
+
+这集两个人格区分挺明显的，是前面两集，有人提出根据瞳孔判断不是一直都是mortis ，睦也说了话的
+
+——  ...</blockquote>
+前面几集字幕也是这样的.我的意思是既然官方都这么写字幕了,那就是没打算在这个事情上卖关子了.
+
+*****
+
+####  plok201  
+##### 19725#       发表于 2025-2-7 19:40
+
+<blockquote>天空塔书记官 发表于 2025-2-7 12:57
+你这话要不要套在自己家身上想想，…而且这是欺诈，是犯罪，而不是投资策略失误，这部分损失，是可以通过 ...</blockquote>
+你自己造一堆假药找补也太好笑了吧
+
+有没有可能168亿是周围人全在反对然后中登自作主张欺上瞒下搞的，一大堆人要给他擦屁股，所以不逐出家门不行，你别说没可能哦，看祥子那副样子，鬼知道他爹什么情况
+
+甚至可能真的给了他一个闲职，然后人家硬是自甘堕落呢
+
+我都不明白为啥对老登恨意那么大呢，这人出场到现在一件坏事都没干过呢
+
