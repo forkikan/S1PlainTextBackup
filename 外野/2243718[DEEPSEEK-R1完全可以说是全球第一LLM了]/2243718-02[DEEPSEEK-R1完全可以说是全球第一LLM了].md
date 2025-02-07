@@ -1741,3 +1741,16 @@ D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充�
 
 每天一到晚上九点之后就逐渐没有限制了，尤其是凌晨，现在生成速度巨快
 
+
+*****
+
+####  2023-5-15  
+##### 1637#       发表于 2025-2-8 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371445&amp;ptid=2243718" target="_blank">SevenYuan23 发表于 2025-2-7 22:57</a>
+
+硅基流动pro版本的API 很容易输出截断是什么原因，明明看token统计没到上限啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我感觉输出到4k就会截断了，不知道你是不是
+
