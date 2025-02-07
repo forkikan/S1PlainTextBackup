@@ -1308,3 +1308,13 @@ Q娃预告
 
 我们真的有p？
 
+
+*****
+
+####  天邪鬼  
+##### 388#       发表于 2025-2-7 20:03
+
+今年真的要探究q娃当偶像的道路吗，不会还在那里搞什么我们战斗是为了回应粉丝的期待吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+你要说人间体偶像出道也就算了
+

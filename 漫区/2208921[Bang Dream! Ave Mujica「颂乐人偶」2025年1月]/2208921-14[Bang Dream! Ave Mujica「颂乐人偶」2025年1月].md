@@ -5447,3 +5447,62 @@ wsd在奇怪的病上总是很用心，查了下现实案例。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那祥子现在离开她爹是不是她爹即将饿死了？还是说祥子每次离家还会给祥爹留下点零花钱？
 
+
+*****
+
+####  zhoujin8584  
+##### 19730#       发表于 2025-2-7 20:01
+
+应该可以拿零花钱的一部分接济中登的
+
+——咱能不聊斗财阀这种本来就没可能的展开了吗
+
+*****
+
+####  Nungesser  
+##### 19731#       发表于 2025-2-7 20:02
+
+ 本帖最后由 Nungesser 于 2025-2-7 20:05 编辑 
+
+某些烂爹控污染这栋楼一下午了。这动画TM叫Ave Mujica不叫二十四孝之祥子救父。
+
+*****
+
+####  南宮凝香  
+##### 19732#       发表于 2025-2-7 20:03
+
+祥子兩次離開中登也沒看他怎樣
+
+明顯是有足夠資源生活自理的
+
+住的房子雖然破爛
+
+但老實說單身男也沒什麼好所謂
+
+他這種身份
+
+比起說老登搶了他的錢這麼不合乎邏輯，
+
+不如說本來就沒多少錢是在他名下吧
+
+（有錢人錢進公戶避稅， 被清出家門就拿不到那些錢了）
+
+*****
+
+####  江口夕  
+##### 19733#       发表于 2025-2-7 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370372&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-7 20:02</a>
+某些烂爹控污染这栋楼一下午了。这动画TM叫Ave Mujica不叫二十四孝之祥子救父。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信不信她演个祥子救父给你看
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  一心而用  
+##### 19734#       发表于 2025-2-7 20:07
+
+依旧
+<img src="https://p.sda1.dev/21/daa61bcc4a988b5989c3b5ce5edc7969/image.jpg" referrerpolicy="no-referrer">
+

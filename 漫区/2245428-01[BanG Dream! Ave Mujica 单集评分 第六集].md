@@ -2953,3 +2953,23 @@ soyo释怀了吗？
 真能三天的话她手机应该早就黑屏了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果只是soyo说这一句的话还可能是虚指，关键前面爱音还说soyo失踪了三天，难绷
 
+
+*****
+
+####  cxj649  
+##### 297#       发表于 2025-2-7 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370036&amp;ptid=2245428" target="_blank">KioShiMa 发表于 2025-2-7 19:05</a>
+
+真能三天的话她手机应该早就黑屏了</blockquote>
+不会，苹果手机充电器木头人家还是会有的
+
+毕竟管饭的
+
+*****
+
+####  狼影者瑞德克斯  
+##### 298#       发表于 2025-2-7 20:04
+
+这也能+2……那我觉得迷家也该+2
+

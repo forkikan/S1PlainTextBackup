@@ -1173,3 +1173,18 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 
 太卡了 你们怎么解决的？
 
+
+*****
+
+####  lambl  
+##### 1590#       发表于 2025-2-7 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369063&amp;ptid=2243718" target="_blank">费雷拉 发表于 2025-2-7 16:44</a>
+
+搜索page assist游览器插件安装。
+
+打开插件网页，设置里把语言改成中文，
+
+配置open ai兼容api，base url那 ...</blockquote>
+这只能网页用吧，硅基不是一般都是拿API接其他chatbox之类用么，这个能配置到chatbox么
+
