@@ -1440,3 +1440,50 @@ v3也会乱添加设定，不过确实比起r1要好不少，之前我用v3跑�
 过了十个回复以后还是会犯。
 他那永久固定设定就是安慰你的。
 
+
+*****
+
+####  名居守  
+##### 1612#       发表于 2025-2-7 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371279&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 22:32</a>
+
+没用的。
+
+过了十个回复以后还是会犯。
+
+他那永久固定设定就是安慰你的。</blockquote>
+这个对我来说问题不大，一波讨论完了我自己还会总结重新开始对话
+
+但是这种会根据我质疑的点加新内容的功能老是让我跟D老师进入无意义的互害（），因为我质疑反问的都是我不想要，也不想有任何一点相关内容加进我大纲里的。
+
+之前一直没抓到重点，现在被D老师突然点明了。
+
+
+*****
+
+####  jeokeo  
+##### 1613#       发表于 2025-2-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371075&amp;ptid=2243718" target="_blank">minefriys 发表于 2025-2-7 21:54</a>
+之前没问过D老师数学题，今天心血来潮找了道高中难度题目给D老师做，结果思考7分钟才做出来，这个时间正常 ...</blockquote>
+15点技能点，给法师分配
+
+想了十分钟，最后给了个错的
+
+*****
+
+####  费雷拉  
+##### 1614#       发表于 2025-2-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370377&amp;ptid=2243718" target="_blank">lambl 发表于 2025-2-7 20:03</a>
+
+这只能网页用吧，硅基不是一般都是拿API接其他chatbox之类用么，这个能配置到chatbox么 ...</blockquote>
+page assist 就是chatbox一样定位的东西。
+
+我研究过其他实现联网搜索的方案，包括anythingllm对r1兼容性都有问题。
+
+就这个page assist最靠谱，可以单开网页像官网一样对话，随时开关联网搜索，
+
+而且可以游览器开侧边栏，对当前网页进行对话
+
