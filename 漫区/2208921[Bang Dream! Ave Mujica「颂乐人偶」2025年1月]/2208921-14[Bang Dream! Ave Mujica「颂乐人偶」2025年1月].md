@@ -1233,3 +1233,219 @@ SOYO：宝宝求你去看医生吧 我没法同时做你的心理医生和妈妈
 
 母鸡卡世界观的路人群众已经不是正常思维的人了，还真就和海虎世界观差不多。或者说为了营造一个大环境都在给睦施压的条件，只好让路人群众全都只能机械无脑认为演员的女儿在舞台上断片、在大街上双簧一定都是演技天赋发作了，和喵梦这个意味不明的东西一样多少集了一直惦记自己赶不上精神病人的演技，这是人的脑回路？
 
+
+*****
+
+####  plusSharp  
+##### 19358#       发表于 2025-2-7 10:39
+
+<blockquote>ntrntr1 发表于 2025-2-6 22:55
+那也太坏了。。。这饺子包不得啊</blockquote>
+如果写初华害睦有好几个好处：
+
+1.再次体现祥子对她的意义
+
+2.睦不是抗压力不够才让莫出来
+
+3.初华提供解药，不用让睦再找医生
+
+*****
+
+####  吴怀在  
+##### 19359#       发表于 2025-2-7 10:40
+
+厕妹是怎么定义的？
+
+*****
+
+####  ads147147  
+##### 19360#       发表于 2025-2-7 10:40
+
+大喵百分之一千不承认睦是精神分裂的。个人也觉得大墨属于自我保护性格的具现化，最终还是要和睦本人取得一个平衡，已经可以猜到游戏里的公式剧情就是小祥发癫，然后睦切大墨老师出来拷打小祥，结果大家都要来哄睦。。。
+
+
+*****
+
+####  aptx8285144  
+##### 19361#       发表于 2025-2-7 10:40
+
+初华叛徒说也是为了救初华的人设吧，毕竟和睦不一样，坐拥偶像团体，有甜甜圈女士死心塌地，却去当大祥的舔狗实在需要大祥的反向报答，以至于有不少人吐槽甜甜圈女士愈发苦主化
+
+*****
+
+####  ape-apple  
+##### 19362#       发表于 2025-2-7 10:41
+
+之前就说过民意实在是不应该被玩弄，蛰里一帮伪人粉丝，到🐔这块从伪人变成工具，说不清是好是坏
+
+*****
+
+####  JustW  
+##### 19363#       发表于 2025-2-7 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还在吵祥子还在吵。祥子的背景设定放在现实里是挺惨的，但是现在惨的程度也不够合理化她的所有言行了，就好像祥爹的经历放到现实里也很惨吧但有人在意他吗？从这一季开始制作组恨不得每分钟都在告诉你祥子的遭遇和对周围人造成的伤害已经逐渐和她的悲惨遭遇无关了，现在是剧中人全都知道祥子的惨情也无法替她挽尊了，只有等她什么时候自己能开窍了。
+
+*****
+
+####  指南アキラ  
+##### 19364#       发表于 2025-2-7 10:43
+
+ 本帖最后由 指南アキラ 于 2025-2-7 10:44 编辑 
+
+Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会关注财经新闻
+
+在第五话，Soyo从灯和爱音哪里得到的信息是祥子上下学有豪车接送(ep5 00:15:10)，在第六话和MyGO乐队成员会合后(ep6 00:06:58)，<strong>可能</strong>还得到了祥子住在豪宅的信息，综合一下，Soyo不难得出祥子目前生活环境相对优渥的结论
+
+<img src="https://img.saraba1st.com/forum/202502/07/103535ug100wn2nqi99gak.png" referrerpolicy="no-referrer">
+
+<strong>截图01.png</strong> (942.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/103534p5wz25wgw8lh7v27.png" referrerpolicy="no-referrer">
+
+<strong>截图02.png</strong> (989.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+接下来第六话Soyo<strong>临时起意</strong>去找祥子，于是向身边的Mortis要住址(ep6 00:18:47)，Mortis因为信息差并不清楚祥子已经被丰川定治带回，遂告诉了丰川清告的住址。
+
+<img src="https://img.saraba1st.com/forum/202502/07/103533t9fg2i5x77jfi8i3.png" referrerpolicy="no-referrer">
+
+<strong>截图03.png</strong> (857.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+于是Soyo开着导航照着这个地址找过了过去(ep6 00:19:41)，目的地居然是个破破烂烂的廉租房(ep6 00:19:59)，门牌上有“丰川”(ep6 00:20:07)，屋子里的男人疑似认识祥子(ep6 00:20:16)
+
+<img src="https://img.saraba1st.com/forum/202502/07/103532uqre1qgqzgx9aqme.png" referrerpolicy="no-referrer">
+
+<strong>截图04.png</strong> (877.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/103532qkbp91u1mek5ku1k.png" referrerpolicy="no-referrer">
+
+<strong>截图05.png</strong> (858.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/103531bih9qk0dvjd9k91c.png" referrerpolicy="no-referrer">
+
+<strong>截图06.png</strong> (809.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/103530wumkzsy9gkmnyh3m.jpg" referrerpolicy="no-referrer">
+
+<strong>截图07.jpg</strong> (30.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+这和Soyo前面得知的信息相差太大，这才<strong>以祥子家发生过变故为前提来找新闻</strong>，那个168亿日元的新闻在时间上和CRYCHIC解散时间相近(ep6 00:20:56)，所以被发现。
+
+当然仅凭这个新闻还是不能确定是否真的有关联，所以Soyo停留在或许有隐情阶段的推测阶段
+
+<img src="https://img.saraba1st.com/forum/202502/07/103529vcp6047zhommeo6a.jpg" referrerpolicy="no-referrer">
+
+<strong>截图08.jpg</strong> (95.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+最后贴一张被称为“正常人”的立希的认知
+
+<img src="https://img.saraba1st.com/forum/202502/07/103529sqbfzmbbbwn1a4qs.png" referrerpolicy="no-referrer">
+
+<strong>立希对丰川集团的认识.png</strong> (1016.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:35 上传
+
+*****
+
+####  iiiiiiiiii  
+##### 19365#       发表于 2025-2-7 10:43
+
+<blockquote>plusSharp 发表于 2025-2-7 10:39
+如果写初华害睦有好几个好处：
+
+1.再次体现祥子对她的意义
+
+2.睦不是抗压力不够才让莫出来
+</blockquote>
+我觉得初华害睦有极大可能性，首先不怎么可能半身童年只认识祥子,不认识睦。睦的第二人格可能是小时候过家家扮演时候产生的，所以意识还是在幼年期。初华有可能是知道这个第二人格
+
+*****
+
+####  6030sylar  
+##### 19366#       发表于 2025-2-7 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365996&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 10:28</a>
+那你背的了吗你就说背不背的了吧。你看老登能背的了，大祥不是哑火了
+
+—— 来自 Xiaomi 23113RKC6C, And ...</blockquote>
+钱的问题祥爷能帮你背，搞出人的问题祥爷也背不了，这苏州屎还得你自己去擦，
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  DARK_HGCG  
+##### 19367#       发表于 2025-2-7 10:45
+
+<blockquote>江口夕 发表于 2025-2-7 10:35
+虽然但是对立希也哈气了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+对呀中世纪的邪灵除了被圣徒除魔不还有个下场是被骑士干掉吗  而立希是邦邦第一灯骑士
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 19368#       发表于 2025-2-7 10:46
+
+我现在突然觉得b站mygo和母鸡卡合号是个顶好的主意<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，我不觉得母鸡卡现在有开分号的能力
+
+*****
+
+####  eyeego  
+##### 19369#       发表于 2025-2-7 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366174&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 10:42</a>
+还在吵祥子还在吵。祥子的背景设定放在现实里是挺惨的，但是现在惨的程度也不够合理化她的所有言行了，就好 ...</blockquote>
+祥爹到底惨在哪了？
+无非就是中年死了老婆又丢了工作 在二刺螈比惨大会里都排不上号的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 19370#       发表于 2025-2-7 10:47
+
+悲劇是用來展現角色的人格的
+
+小祥她是挺慘
+
+但人格也是挺爛的
+
+她還存在在故事的主要原因是🦄給發的鎖好感度的三大舔狗
+
+沒這三大舔狗她已經可以如願的過孤獨人生了
+
