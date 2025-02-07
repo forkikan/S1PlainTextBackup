@@ -1954,3 +1954,65 @@ Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fuwamoco  
+##### 19418#       发表于 2025-2-7 11:28
+
+我们邦邦里世界首富的kkr，还在划小船念书呢
+
+*****
+
+####  6030sylar  
+##### 19419#       发表于 2025-2-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366381&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-7 11:01</a>
+海希这段确实也是对称。</blockquote>
+要对称乌咪铃也得是小处男了，但现在没有让她露出这一面的人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  LunarCorona_VOV  
+##### 19420#       发表于 2025-2-7 11:29
+
+最好笑莫过于十五年的大女主一集换一个，人人有大女主当
+
+*****
+
+####  zhzij111  
+##### 19421#       发表于 2025-2-7 11:29
+
+ 本帖最后由 zhzij111 于 2025-2-7 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366427&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-7 11:05</a>
+正经背负她爹的方法是直接告诉队友我搞这乐队是既是精神追求又是为了爹，我把我的人生托付给你们，所以我 ...</blockquote>
+小祥这个能力既要背负爹又要背负队友还要搞乐队是不可能的，最速武道馆她的音乐天赋很重要，但离了资本的大手根本不可能，依靠大手那不还是老登忍受大小姐的小任性帮你背的，算啥自立
+
+如果她真能彻底切割老登从底层做起那确实算自立也可以背队友，毕竟队里两个舔狗一个雇佣兵，喵梦看到底边小乐队压根不会来，整个就一夸夸团（c团青春版）随便背。但问题又来到了钱这块，和丰川家切割干净了底层乐队没收入，这废物爹又咋背呢
+
+顺便老登把中登切割了有啥不可接受的，一个老婆死了的外姓女婿亏了这么多钱难道还养起来吗，丰川家别的人怎么想，只让他引咎辞职已经仁至义尽了，说谢谢还来不及
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 19422#       发表于 2025-2-7 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366673&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 11:27</a>
+丰川在邦邦里肯定到不了丰田在现实里的级别，首先就不如弦卷一根毛，各种配套也不算最顶级 ...</blockquote>
+那要是告诉你，弦卷家实际原型搞不好就是阿美莉卡会怎么样呢，类似的总统萌化形象和正面塑造放在岛国一抓一大把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 19423#       发表于 2025-2-7 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366707&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 11:31</a>
+那要是告诉你，弦卷家实际原型搞不好就是阿美莉卡会怎么样呢，类似的总统萌化形象和正面塑造放在岛国一抓 ...</blockquote>
+到底是要讨论现实还是讨论邦邦啊？
+

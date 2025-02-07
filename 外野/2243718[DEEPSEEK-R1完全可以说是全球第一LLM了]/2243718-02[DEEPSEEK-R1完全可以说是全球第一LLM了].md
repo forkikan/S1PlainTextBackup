@@ -548,3 +548,37 @@ pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接�
 
 查看全部评分
 
+
+*****
+
+####  zyf199212  
+##### 1531#       发表于 2025-2-7 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366557&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 11:16</a>
+
+最少100
+
+你用chatbox的话切换模型的地方就有了</blockquote>
+不用充100，能自定义充值金额，我就冲了10块，怕之后用的人多了又要卡
+
+*****
+
+####  约翰里德  
+##### 1532#       发表于 2025-2-7 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366733&amp;ptid=2243718" target="_blank">zyf199212 发表于 2025-2-7 11:33</a>
+不用充100，能自定义充值金额，我就冲了10块，怕之后用的人多了又要卡</blockquote>
+啊？
+我之前用网页版最少是100啊？
+算了冲都冲了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyf199212  
+##### 1533#       发表于 2025-2-7 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365451&amp;ptid=2243718" target="_blank">斯卡文分则能成 发表于 2025-2-7 09:35</a>
+
+传火点进去之后注册的账号有啥额外奖励么</blockquote>
+给你和发邀请码的人各14块额度，但现在免费额度用deepseek没啥用了，卡爆了，想正常用ds得充钱用pro的ds，你可以用免费额度调用别的模型
+
