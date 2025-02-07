@@ -7616,3 +7616,99 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
 而且话又说出来，动画真给你演老登中登复刻飞鸟山之战，跪在地上挽着中登的手说“没有你的话，哇达西的孙女！”你们就能接受就能爱看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 19885#       发表于 2025-2-7 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371654&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 23:34</a>
+？我死了我老婆也没有任何义务要照顾我父母啊。
+
+你不会是艾伦分开了还要别人惦记十五年吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">说明你老婆很恨你。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  木板春香  
+##### 19886#       发表于 2025-2-7 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371650&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 23:33</a>
+
+牢爹酗酒是在被踢出丰川家以后，这没有老登什么事 ? 
+
+怎么，他从小到大都爱喝酒 ?</blockquote>
+  这什么强盗逻辑？ 你自己选择酗酒自甘堕落，责任要怪别人吗？这酒是被人按住手脚灌进嘴里的？
+
+*****
+
+####  xyion  
+##### 19887#       发表于 2025-2-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371557&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:18</a>
+
+所以这句话害死了祥子妈妈？ 让祥子爸爸酗酒了？
+
+你要不要再用脑子想一想？祥子的家庭悲剧是外公引起的？ ...</blockquote>
+如果祥爷说的是，你爹现在无力抚养你，你平时跟我过，那我觉得你说得对。
+
+你可以对比下这种说法，和现在祥爷的说法。
+
+*****
+
+####  天空塔书记官  
+##### 19888#       发表于 2025-2-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371669&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:37</a>
+这什么强盗逻辑？ 你自己选择酗酒自甘堕落，责任要怪别人吗？这酒是被人按住手脚灌进嘴里的？ ...</blockquote>
+有家人看着，有家人理解，他会酗酒 ?
+
+你这又是什么强盗逻辑 ?
+
+他是因为爱喝酒才酗酒的 ?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  木板春香  
+##### 19889#       发表于 2025-2-7 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371680&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-7 23:39</a>
+
+如果祥爷说的是，你爹现在无力抚养你，你平时跟我过，那我觉得你说得对。
+
+你可以对比下这种说法，和现在 ...</blockquote>
+  外公说女儿是个倔强的人，孙女是个倔强的人，他自己就不倔强吗？
+
+  明明是想好好照顾孙女，嘴巴还硬的要死，各种演坏人。
+
+ 孙女就算私下去照顾自己父亲，外公有拦着不让吗？有把大小姐锁在金丝笼里失去自由吗？
+
+  台面上有的这些信息综合起来的实际行为和很多人自己脑补出来的行为是不一样的啊
+
+*****
+
+####  木板春香  
+##### 19890#       发表于 2025-2-7 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371686&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 23:39</a>
+
+有家人看着，有家人理解，他会酗酒 ?
+
+你这又是什么强盗逻辑 ?</blockquote>
+  喝酒到麻木是为了什么，是在逃避！
+
+  爱音假装自己没去伦敦是为了什么，还是在逃避！
+
+  祥子说自己不记得CCC不认识睦是为了什么，还是在逃避！
+
+  绫奈由仁子说自己没看母鸡的动画是为了什么？
+
+  有家人看着，有家人理解，就会好好说话？就会好好面对？
+

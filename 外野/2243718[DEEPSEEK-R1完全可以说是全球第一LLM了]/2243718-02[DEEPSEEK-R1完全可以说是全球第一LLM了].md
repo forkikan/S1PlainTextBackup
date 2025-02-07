@@ -1580,3 +1580,16 @@ GEMINI的文风虽然不够华丽不够灵感迸发，但是稳定流畅字数�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zyf199212  
+##### 1623#       发表于 2025-2-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369136&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 16:54</a>
+实名制是充值要求的，和其他一切使用无关。而且他们每天几十亿次api调取，没时间管这的。
+当然我是不建议 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小红书上面看到有人给豆包app直球狂发刘备词汇被封号五个月，d老师有没有这功能就不知道了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
