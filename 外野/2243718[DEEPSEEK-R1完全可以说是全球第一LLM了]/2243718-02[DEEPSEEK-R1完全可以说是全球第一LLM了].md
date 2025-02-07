@@ -791,3 +791,20 @@ api这个东西影响的只有你调用的端口，和对话没关系
 
 感觉白嫖的siliconflow现在使用体验差了好多，动不动就截断输出了，感觉是不是想让人充钱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  对羟基笨甲酸  
+##### 1553#       发表于 2025-2-7 15:44
+
+充钱换pro之后体验好多了
+
+*****
+
+####  费雷拉  
+##### 1554#       发表于 2025-2-7 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">pro的ds r1也挺慢的，目测只有10不到的token/s.
+
+当特定问题的问答机器还行吧
+

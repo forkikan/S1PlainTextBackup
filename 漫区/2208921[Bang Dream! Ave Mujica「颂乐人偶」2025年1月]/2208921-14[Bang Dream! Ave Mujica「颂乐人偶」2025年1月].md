@@ -4625,3 +4625,34 @@ soyo早就不舔了，下一集估计就是报仇回
 
 Mygo的五个人在Ave Mujica就是纯纯的工具啊，大家各自拿出最好用的一点来推动鸡团剧情
 
+
+*****
+
+####  天空塔书记官  
+##### 19664#       发表于 2025-2-7 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368508&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-7 15:36</a>
+问题大祥老师的性格质变打算怎么安排呢？还是现在这种软糯的性格肯定不行 不知道后面能写成啥样了 ...</blockquote>
+只需要交流就可以了，把话说开，而不是继续自闭下去，学会向他人寻求帮助，学会与乐队成员共同分担人生，祥子的代表元素是“以太”，是光的介质，本身就代表着沟通，延伸意为“天使”，结合月光的意象，就是“音乐的使者”，她天生就有这种能力，她的作曲能力就是证明<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 19665#       发表于 2025-2-7 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368540&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-7 15:40</a>
+还有第六话开头台词解决了第五话结尾的翻译问题导致的吵架，但是灯这么一搞mygo显得很没团魂怎么办 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自称灯厨想不通这里什么意思才是有问题。难道不是自己的问题
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  lucasxp  
+##### 19666#       发表于 2025-2-7 15:53
+
+soyo侍寝那个镜头，我记得轻拍翻转有个同款体位吧，而且都是阿姨配小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
