@@ -3495,3 +3495,93 @@ soyo来送别吧，希望不是soyo来动手，而是说“下次再一次玩吧
 
 楼上那个NGA S1轮着天天黑睦我都懒得回了
 
+
+*****
+
+####  6030sylar  
+##### 19559#       发表于 2025-2-7 13:38
+
+为什么总是扣着祥爸的问题不放，这种背景设定级别的剧情，还不是编剧说什么就是什么
+
+*****
+
+####  江口夕  
+##### 19560#       发表于 2025-2-7 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥小时候肯定帮过睦的，那可是白祥，杀伤力不一样
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  huxiaopao163  
+##### 19561#       发表于 2025-2-7 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367101&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:15</a>
+喵梦第一反应是演技也就算了，关键下台后解释过了也不信，一直一直惦记着あれは本物，啥是本物，我看神经 ...</blockquote>
+小睦说是自己弹错了
+海玲说:原来不是蒙混过关，而是僵住了
+小祥说:小睦不会蒙混过关
+
+所以喵梦觉得小睦坐在椅子上的的这个动作，很有艺术感很美。如果她不是刻意表演，而只是僵住了后下意识就能做的这么好，所以更崇拜也没啥问题吧。
+
+我觉得很多人误以为事后的解释，是解释了观众上帝视角下的小睦太累压力太大所以昏过去了。暂且不管这是不是事实，至少剧中的大家根本没这么解释。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ntrntr1  
+##### 19562#       发表于 2025-2-7 13:41
+
+我不懂不同意中登最惨怎么就拜金了，老登要是故意演这一出不也是个神人
+
+隔壁韭留美的妈把钱败光了人也走了留下一堆欠款，爹带着年幼的女儿也就老老实实打工
+
+哦当然这人倒了八辈子霉女儿也是个败家子，充分说明真好人默默背锅打工只会召开不幸，多卖惨多演戏才能心安理得躺平迎来光明未来
+
+*****
+
+####  单脚着地  
+##### 19563#       发表于 2025-2-7 13:42
+
+白象得魅力是无可置疑得，看卖狗得时候她站在人群中发言领导一切得样子我看我也想推她当凯撒，但不妨碍黑祥是个铁咋总，事物就是得有多样性才有趣。观众从来不追求一个完人。
+
+*****
+
+####  sauron.j  
+##### 19564#       发表于 2025-2-7 13:43
+
+本集初华不在，但又无处不在
+
+海铃背后空着的椅子、大屏幕上广告被替换、旁白消失。在故意营造一种该登场的人没登场的观感
+
+*****
+
+####  天邪鬼  
+##### 19565#       发表于 2025-2-7 13:44
+
+为什么老说有藏过去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">睦内心小剧场没演明白吗？还是说那是mortis说的就不认了
+
+
+*****
+
+####  江口夕  
+##### 19566#       发表于 2025-2-7 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367739&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 13:41</a>
+我不懂不同意中登最惨怎么就拜金了，老登要是故意演这一出不也是个神人
+
+隔壁韭留美的妈把钱败光了人也走了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老登要不是神人，女儿也不会叛逆觉得自己是人偶还传到下一代
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  LeonsCat  
+##### 19567#       发表于 2025-2-7 13:45
+
+泥潭怎么又开始车祥爹的问题，该不会是共情中年失业男吧？
+

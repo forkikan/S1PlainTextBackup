@@ -695,3 +695,14 @@ ai lives matter！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 默认温度太高了。</blockquote>
 感觉r1本身思维方式就怪，很意识流，温度调到0才勉强不发癫，但是依然喜欢搞一些中二比喻
 
+
+*****
+
+####  LeonsCat  
+##### 1544#       发表于 2025-2-7 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367687&amp;ptid=2243718" target="_blank">KBAC 发表于 2025-2-7 13:35</a>
+
+感觉r1本身思维方式就怪，很意识流，温度调到0才勉强不发癫，但是依然喜欢搞一些中二比喻 ...</blockquote>
+r1基本上在对齐上是放弃治疗的状态，所以容易脑洞大开，幻觉比较严重。这个属于本质上矛盾的，你不能指望创造力强的时候没有幻觉。
+
