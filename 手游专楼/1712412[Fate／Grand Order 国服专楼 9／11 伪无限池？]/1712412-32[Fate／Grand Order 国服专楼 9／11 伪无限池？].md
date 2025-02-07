@@ -83,3 +83,15 @@
 
 90石头，压力马斯呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 47005#       发表于 2025-2-7 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367941&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2025-2-7 14:15</a>
+有没有满配nff汇呆好友啊，救救，借了个nff兽尼打好辛苦</blockquote>
+我有个五宝107级未满树（差个蓝星）的，你算算够不够用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

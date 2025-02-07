@@ -2943,3 +2943,13 @@ soyo释怀了吗？
 记得天使龙最后吹三天三夜其实也就一夜？也是由此很怀疑素世是不是在夸大其词 ...</blockquote>
 真能三天的话她手机应该早就黑屏了
 
+
+*****
+
+####  JustW  
+##### 296#       发表于 2025-2-7 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370036&amp;ptid=2245428" target="_blank">KioShiMa 发表于 2025-2-7 19:05</a>
+真能三天的话她手机应该早就黑屏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果只是soyo说这一句的话还可能是虚指，关键前面爱音还说soyo失踪了三天，难绷
+
