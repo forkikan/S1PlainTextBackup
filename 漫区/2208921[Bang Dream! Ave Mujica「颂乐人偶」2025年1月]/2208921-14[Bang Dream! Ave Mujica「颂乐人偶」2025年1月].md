@@ -3791,3 +3791,98 @@ soyo来送别吧，希望不是soyo来动手，而是说“下次再一次玩吧
 
 确实，还是让音乐来说话。在我心中制作组至少还欠A团3场LIVE
 
+
+*****
+
+####  刑部姬真可爱  
+##### 19588#       发表于 2025-2-7 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367864&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-7 14:01</a>
+
+中登比较合理的推测是168e案是背锅于是被扫地出门。
+
+但是摆烂成那个样子也是有点寒心了，特别是女儿做出了 ...</blockquote>
+D老师为你解答<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">：
+
+配偶死亡后的姓氏：配偶去世后，法律不强制要求生存一方改回原姓。即使婚姻关系因死亡终止，原婚姻中的姓氏仍可继续使用。
+
+改回原姓的条件：若男方希望恢复原姓，需通过家庭法院申请「氏の変更」（姓氏变更），通常需证明合理理由（如继承原家族事务、社会认同需求等）。
+
+*****
+
+####  iiiiiiiiii  
+##### 19589#       发表于 2025-2-7 14:15
+
+对祥子来说灯最重要吧
+
+*****
+
+####  FanFun  
+##### 19590#       发表于 2025-2-7 14:16
+
+大概要结尾才有正经live了，还是多观赏几遍第13集的live吧，很可能这就是鸡的巅峰了
+
+*****
+
+####  第贰个十年  
+##### 19591#       发表于 2025-2-7 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367924&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 14:11</a>
+其实关于团魂，我之前一直有提过，月光能给予人偶生命，月光就是音乐，所以音乐能让A团众人获得“生命”， ...</blockquote>
+这种的也提过，但对观众来讲真的太复杂了，十个有九个都当中二小短剧看过去懒得想了，远没有“迷茫也要一起前进”来的让人动容和理解。我觉得独角兽老师不会设置这么复杂难以理解的主题。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刑部姬真可爱  
+##### 19592#       发表于 2025-2-7 14:18
+
+哪怕按照对偶说，下集和第10集都该有live，然后第13集包饺子live应该也少不了
+
+*****
+
+####  是谁的书画  
+##### 19593#       发表于 2025-2-7 14:19
+
+别说live了，你甚至都没见过这几个人在一块练习😫
+
+*****
+
+####  天空塔书记官  
+##### 19594#       发表于 2025-2-7 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367936&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 14:13</a>
+确实，还是让音乐来说话。在我心中制作组至少还欠A团3场LIVE</blockquote>
+本来以为第七集至少会有黑色生日的，但感觉已经对不上气氛了，再看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 19595#       发表于 2025-2-7 14:22
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 14:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367965&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-2-7 14:18</a>
+这种的也提过，但对观众来讲真的太复杂了，十个有九个都当中二小短剧看过去懒得想了，远没有“迷茫也要一 ...</blockquote>
+但这个确实可以通过演剧的形式表现出来，我觉得A团不可能真和演剧切割的
+
+比如说搞大一点，最后让几个人穿着常服上台，或者直接在舞台下开演
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 19596#       发表于 2025-2-7 14:22
+
+<blockquote>天空塔书记官 发表于 2025-2-7 14:19
+本来以为第七集至少会有黑色生日的，但感觉已经对不上气氛了，再看看吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我猜不光没有a团的live，反而会先有一场m团得罪新歌来解决问题。这么看前面节奏其实有点慢了
+
