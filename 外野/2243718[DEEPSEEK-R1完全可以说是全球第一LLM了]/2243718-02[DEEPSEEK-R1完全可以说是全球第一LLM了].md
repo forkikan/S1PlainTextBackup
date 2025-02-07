@@ -1355,3 +1355,55 @@ chatbox 设置20 0.6 0.7可以不
 我终于知道为什么D老师在写设定时总能让我血压上升了</blockquote>
 这是在哪设置的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jeokeo  
+##### 1606#       发表于 2025-2-7 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368588&amp;ptid=2243718" target="_blank">对羟基笨甲酸 发表于 2025-2-7 15:44</a>
+充钱换pro之后体验好多了</blockquote>
+他娘的送的金额就等于浪费了，一个都刷不出来，太恶心了
+
+*****
+
+####  名居守  
+##### 1607#       发表于 2025-2-7 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371187&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 22:16</a>
+
+这是在哪设置的啊</blockquote>
+这个是D老师的答复啊，并不是设置
+
+老是给我加设定，加一次直球辱骂一次，最后爆了这句出来。
+
+之前有些疑惑我也明白了
+
+为毛我质疑后D老师会在下次输出时突然加了新的内容，感情是我把质疑的和反问的全当成了要提取出添加的内容
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 秦南心| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  秦南心  
+##### 1608#       发表于 2025-2-7 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371227&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-7 22:24</a>
+
+这个是D老师的答复啊，并不是设置
+
+老是给我加设定，加一次直球辱骂一次，最后爆了这句出来。
+
+之前有些疑 ...</blockquote>
+恐怖，它居然能理解这种复杂概念
+

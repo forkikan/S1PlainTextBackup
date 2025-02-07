@@ -108,3 +108,30 @@ PP4更新完补丁以后现在应该没那么多问题了，不过还是要5 6�
 
 2025-2-7 21:01 上传
 
+
+*****
+
+####  holofan  
+##### 10753#       发表于 2025-2-7 21:04
+
+<img src="https://img.saraba1st.com/forum/202502/07/210445azoiguocakcp9pui.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:04 上传
+
+DDOS
+
+*****
+
+####  holofan  
+##### 10754#       发表于 2025-2-7 22:15
+
+官网TMD一直进不去服了
+
+今年开催店铺增加了3家
+
+另外该猜下一次告知的内容了
+
