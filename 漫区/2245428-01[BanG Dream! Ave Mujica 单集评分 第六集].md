@@ -2828,3 +2828,30 @@ soyo释怀了吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 285#       发表于 2025-2-7 15:18
+
+ 本帖最后由 玖羽 于 2025-2-7 15:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367839&amp;ptid=2245428" target="_blank">ArcadiaMartyr 发表于 2025-2-7 13:58</a>
+
+soyo释怀了吗？
+
+不是还问爱音：祥子真说不管睦和crychic了吗？</blockquote>
+何止释怀了，这一话把Mujica的过渡回同时写成MyGO的收尾回，从此MyGO成员就对Crychic彻底不存在心结了
+
+经过这一话之后，真的到了（比如说）哪怕下一话为了祥子或睦，Crychic限时回归一次，MyGO都不会有情绪的地步
+
+（反过来说，什么叫心结，就像前面说的，轮符雨里所有人提都不敢提Crychic，这叫心结）
+
+爱的反面不是恨，是不在乎，到了这个地步，Crychic可以说真的结束了，完全变成了过去的团，甚至让我感觉有点怅然
+
+*****
+
+####  hac0101  
+##### 286#       发表于 2025-2-7 15:21
+
++2 看得开心比什么都重要。
+

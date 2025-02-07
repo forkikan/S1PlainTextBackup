@@ -46,3 +46,16 @@
 不是吧，你真当游戏开发那么容易，“大学爱好者社团估计都能在一学期内搞出来”这种话都能说出来那没什么 ...</blockquote>
 老游戏重制啊不玩什么花活就真的这么容易。
 
+
+*****
+
+####  manyin1  
+##### 776#       发表于 2025-2-7 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367926&amp;ptid=2093296" target="_blank">直钩 发表于 2025-2-7 14:11</a>
+
+看到招文案我只有不好的预感
+
+再加上之前爆出来的员工组成，悬啊</blockquote>
+员工组成是什么成份
+
