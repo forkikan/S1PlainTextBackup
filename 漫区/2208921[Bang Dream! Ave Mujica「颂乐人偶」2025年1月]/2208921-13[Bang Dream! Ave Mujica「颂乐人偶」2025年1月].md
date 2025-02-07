@@ -15109,3 +15109,44 @@ mujica该往何处去？哦，我天哪事到如今在本番“我就是要写�
 
 大家拿捏不好怎樣既吹捧小登滿足她又不會靠得太近傷了小登自尊心 還真是壞
 
+
+*****
+
+####  aptx8285144  
+##### 19218#       发表于 2025-2-7 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364852&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-7 07:55</a>
+
+那不也是好评吗？</blockquote>
+那起码和“年度佳作”评选毫无关系了（
+
+*****
+
+####  eyeego  
+##### 19219#       发表于 2025-2-7 08:21
+
+废物大小姐这个名号实至名归了 
+大祥老师不会真觉得自己可以带团光速武道馆靠得是自己那个少林功夫加唱歌跳舞的搞笑中二小剧场吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  terry666  
+##### 19220#       发表于 2025-2-7 08:23
+
+好还是坏当然是看屁股，你对go厨来说自然对这部大部分是好评啊。
+
+*****
+
+####  江口夕  
+##### 19221#       发表于 2025-2-7 08:25
+
+ 本帖最后由 江口夕 于 2025-2-7 08:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364912&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 08:15</a>
+對對對
+
+謎語人什麼都不說只會拿出冷屁股是理由當然的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看看，嘲笑阴阳怪气这不就来了，所以不告诉是对的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
