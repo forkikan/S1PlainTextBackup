@@ -1617,3 +1617,16 @@ GEMINI的文风虽然不够华丽不够灵感迸发，但是稳定流畅字数�
 
 不行我快被大D老师折磨疯了，我想让他写个尼尔2的同人，给他描述了一大堆世界观设定，就这样他还要每次都改我设定。真的没法每次都复读那么长的设定，但是我不复读他就要给我乱编，每次都复读一堆再加上自己写个大纲梗概，感觉还不如我自己来写算了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  中二骚年  
+##### 1626#       发表于 2025-2-8 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371075&amp;ptid=2243718" target="_blank">minefriys 发表于 2025-2-7 21:54</a>
+
+之前没问过D老师数学题，今天心血来潮找了道高中难度题目给D老师做，结果思考7分钟才做出来，这个时间正常 ...</blockquote>
+年前不是这样的，推导飞快，还能过若干遍检查。我试过用含笔误的论文内容喂给它，不给提示词的形况R1都能找出推导里的笔误修正。而且reasoning里真能有些灵感，不过让它做一些开创性的发现还是不行。
+
+年后我再想复现就需要提示词告诉他检查推导过程了。即使这样，同样的提示词也只有R1和o1能正确找到笔误。Qwen-max/Llama 3.1 405B/Claude 3.5 Sonnet/Gemini 2.0/o3-mini 都不行
+

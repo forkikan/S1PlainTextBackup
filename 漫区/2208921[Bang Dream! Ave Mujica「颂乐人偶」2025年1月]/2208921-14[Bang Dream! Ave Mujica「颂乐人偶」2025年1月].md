@@ -7957,3 +7957,137 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
 好吧，有情有义受了伤只是不给未成年女儿生活费还要她打工甚至去警察局捞人罢了。
 
+
+*****
+
+####  厄神之息  
+##### 19908#       发表于 2025-2-8 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371716&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 23:46</a>
+
+没人说老登一定得是反派，老登是反派用来洗大猫差不多。
+
+老登的言行，操作所形成的家庭环境。造就了，祥 ...</blockquote>
+你的意思是，祥爹自我流放后酗酒堕落再起不能，是老登言行造成的？这。。。
+
+首先明确一点，动画到现在为止没有明确提及祥爹的自我流放是老登的阴谋甚至暗示都没有。那老登对祥爹未尽到的行为就只剩把他拼死留在丰川家。
+
+也就是说你们认为祥爹目前酗酒堕落的直接原因是老登没有挽留他呆在丰川家，而间接原因是怀疑老登未表现的言行举止摧毁了祥爹的独立人格，导致他离开了丰川家就会变酗酒废物?
+
+emmmmmmmmm....
+
+*****
+
+####  单脚着地  
+##### 19909#       发表于 2025-2-8 00:07
+
+不是，一个美少女乐队动画你们讨论两个中老年男性从下午讨论到凌晨，多少有点奇葩了。这有啥好纠结的！
+
+*****
+
+####  木板春香  
+##### 19910#       发表于 2025-2-8 00:08
+
+  这是给美少女的行为性质定性，如果祥子是个男的，我才懒得讨论他的家庭呢
+
+*****
+
+####  江口夕  
+##### 19911#       发表于 2025-2-8 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371813&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-8 00:04</a>
+这个论坛的人很奇怪，本来没有义务的人不履行义务，怪别人无情无义
+
+真的百分之百有抚养义务的人不履行义务 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你开心就好
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  fsfs_freeze  
+##### 19912#       发表于 2025-2-8 00:11
+
+xdm，我有点混了，我知道mujica立项早于mygo，那mujica的剧本完成时间是不是也早于mygo？
+
+*****
+
+####  江口夕  
+##### 19913#       发表于 2025-2-8 00:12
+
+ 本帖最后由 江口夕 于 2025-2-8 00:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371825&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-8 00:06</a>
+你的意思是，祥爹自我流放后酗酒堕落再起不能，是老登言行造成的？这。。。
+
+首先明确一点，动画到现在为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老登：不要在见这个人了。是不是对祥子说的。祥子会怎么想？这不是反派谁是反派。
+
+老登的问题是一点情面没有给女儿留。说白了女婿开始就没当自己人。
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  syndrome2032  
+##### 19914#       发表于 2025-2-8 00:13
+
+老登做的出格的部分是切割和扫地出门。
+
+让中登引咎辞职然后安排一个空闲岗位给人挂着是比较现实的处理方法。
+
+剩下就是心死的中登再也无法振作只能自甘堕落了。
+
+至于为什么下手得这么狠，只能说情节推动上需要大祥老师离家出走顺带解散ccc。
+
+*****
+
+####  木板春香  
+##### 19915#       发表于 2025-2-8 00:14
+
+ 本帖最后由 木板春香 于 2025-2-8 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371853&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-8 00:11</a>
+
+xdm，我有点混了，我知道mujica立项早于mygo，那mujica的剧本完成时间是不是也早于mygo？ ...</blockquote>
+立项虽然早，但剧本的时间流上mygo还是要早于母鸡卡的啊，得先写好MYGO的铺垫，后续的母鸡卡的剧情才好去对称，Mygo应该是地基，前后的剧本我觉得应该是一体式创作一个框架，再后续分包给各个编剧自己细化细节。
+
+*****
+
+####  天空塔书记官  
+##### 19916#       发表于 2025-2-8 00:14
+
+ 本帖最后由 天空塔书记官 于 2025-2-8 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371825&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-8 00:06</a>
+你的意思是，祥爹自我流放后酗酒堕落再起不能，是老登言行造成的？这。。。
+
+首先明确一点，动画到现在为 ...</blockquote>
+因为他切割的话是直接说给祥子听的，这伤害到了祥子，而且引咎辞职和从家族除名不是一回事，没说过老登一定有什么阴谋，但他的实际行为就是在破坏家庭关系，但凡能把话说开，就没那么多屁事了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 19917#       发表于 2025-2-8 00:15
+
+RiNG旁边的大广告牌换成了森美奈美吧，所以都没有Sumimi的歌了
+
+<img src="https://img.saraba1st.com/forum/202502/08/001321rm922jmqliwjqqqx.jpg" referrerpolicy="no-referrer">
+
+<strong>截图_2025-02-07_23-47-39.jpg</strong> (171.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 00:13 上传
+
+初华也不在座位，旁白也不在，这一话真是消失得非常干净
+
+<img src="https://img.saraba1st.com/forum/202502/08/001320emzjpmupj9ccl5l6.jpg" referrerpolicy="no-referrer">
+
+<strong>截图_2025-02-07_23-49-45.jpg</strong> (238.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 00:13 上传
+
