@@ -1078,3 +1078,23 @@ chatbox可以提前设定多种性格
 跑团切回v3了。
 r1实在太癫了，完全压不住<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StarForceTi  
+##### 1580#       发表于 2025-2-7 19:29
+
+酒馆我用的不多，不是geimini flash 2.0就够了么
+
+
+*****
+
+####  神剑烧鸡  
+##### 1581#       发表于 2025-2-7 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370095&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 19:13</a>
+跑团切回v3了。
+r1实在太癫了，完全压不住
+v3怎么重复一个段子啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">温度调高点可以缓解一些，据我的观察人多的时候v3就算能用也会变复读弱智
+

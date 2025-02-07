@@ -5339,3 +5339,44 @@ MyGO前6话基本全靠第3话的神演出，不谈伏笔的话，1~4话几乎�
 
 不希望马上有live,如果一定要有但愿只是个片段而不是整整一首歌
 
+
+*****
+
+####  第贰个十年  
+##### 19721#       发表于 2025-2-7 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370120&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-7 19:18</a>
+我也没说是b站.没看过b站,不知道红字啥的是什么.</blockquote>
+这集两个人格区分挺明显的，是前面两集，有人提出根据瞳孔判断不是一直都是mortis ，睦也说了话的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  fuwamoco  
+##### 19722#       发表于 2025-2-7 19:34
+
+wsd在奇怪的病上总是很用心，查了下现实案例。
+
+解离型身份识别障碍来自于4-8岁精神创伤
+
+部分副人格会长期沉睡
+
+人格切换会伴随记忆 能力缺失
+
+多数患者存在不同人格沟通经历
+
+现实里治愈的案例，最终留下的人格也不是最初人格，多半是积极乐观的人格。这能算治好吗
+
+*****
+
+####  一心而用  
+##### 19723#       发表于 2025-2-7 19:35
+
+乐奈：新猫猫？rua一下！ ​​​
+<img src="https://p.sda1.dev/21/959c334d3d619f38c3cccfc9d6eded12/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e7f8337e1025832b0168805a57112339/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/72cc5af56ee471ede37ab98ce38308e8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/74d7a32de7499af32e628533fd4dfa18/image.jpg" referrerpolicy="no-referrer">
+

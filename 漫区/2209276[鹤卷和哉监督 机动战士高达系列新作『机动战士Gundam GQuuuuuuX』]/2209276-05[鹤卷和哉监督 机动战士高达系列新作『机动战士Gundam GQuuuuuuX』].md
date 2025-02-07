@@ -9492,3 +9492,43 @@ AB整理
 所以狗是公是母（）</blockquote>
 未定，连名字都还没有
 
+
+*****
+
+####  王留美  
+##### 6637#       发表于 2025-2-7 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369988&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-7 18:56</a>
+
+是有些消息，但是选没几条的观众提问连狗是公还是母的问题都选上来</blockquote>
+观众那边是很多涉及到剧透还没解密吧
+
+*****
+
+####  岸浪白野  
+##### 6638#       发表于 2025-2-7 19:26
+
+<img src="https://img.saraba1st.com/forum/202502/07/192555my9xtzs1qqnt6aap.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (455.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/192603v2u8do2sosxx2218.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (601.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/192609gdxe0c7bbcz1zx7u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (443.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 19:26 上传
+
