@@ -1227,3 +1227,20 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 
 兼容性那边设置好了，首要的怎么处理啊。
 
+
+*****
+
+####  约翰里德  
+##### 1594#       发表于 2025-2-7 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370589&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 20:39</a>
+卧槽，R1配合资料库无敌了，各种人称代词耍的飞起，光是幕刃这类给刘备加码的人称代词都可以把十几个代词用 ...</blockquote>
+建议赶紧把关键词删掉，真的会被砍头的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 1595#       发表于 2025-2-7 20:52
+
+最近用了用，感觉不用库，不特调，用Gemini写设定比D好用，D的问题是邪恶混沌，各种不按你要求来然后出小心思，甚至故意阴阳怪气显得他很聪明一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
