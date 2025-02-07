@@ -1244,3 +1244,25 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 
 最近用了用，感觉不用库，不特调，用Gemini写设定比D好用，D的问题是邪恶混沌，各种不按你要求来然后出小心思，甚至故意阴阳怪气显得他很聪明一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秦南心  
+##### 1596#       发表于 2025-2-7 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370644&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 20:49</a>
+
+建议赶紧把关键词删掉，真的会被砍头的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不传播没啥啊大不了api没了，换个号再充钱
+
+
+*****
+
+####  zerona  
+##### 1597#       发表于 2025-2-7 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370589&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 20:39</a>
+
+卧槽，R1配合资料库无敌了，各种人称代词耍的飞起，光是幕刃这类给刘备加码的人称代词都可以把十几个代词用 ...</blockquote>
+不说刘备文，就以写文来说。资料库里就是放所有人物的设定？比如职业，年龄，人物关系，技能 口癖 ？举止模型能控制么？比如说话按小孩的口气，学生，或者 工人的风格说话？还有设计的地图关系也能用上吗？比如设定一个地方去另外一个地方过程中遇到的可能？
+
