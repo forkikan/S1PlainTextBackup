@@ -3886,3 +3886,116 @@ D老师为你解答<img src="https://static.saraba1st.com/image/smiley/face2017/
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 我猜不光没有a团的live，反而会先有一场m团得罪新歌来解决问题。这么看前面节奏其实有点慢了
 
+
+*****
+
+####  fuwamoco  
+##### 19597#       发表于 2025-2-7 14:24
+
+顺带一提，心理医生和病患在长期相处中很容易产生恋情
+
+*****
+
+####  雷攻姛人  
+##### 19598#       发表于 2025-2-7 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368009&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 14:24</a>
+
+顺带一提，心理医生和病患在长期相处中很容易产生恋情</blockquote>
+问题来了，素睦还是素莫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 19599#       发表于 2025-2-7 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367969&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-7 14:19</a>
+
+别说live了，你甚至都没见过这几个人在一块练习😫</blockquote>
+皇马资道吧，来得全是即战力不需要磨合，你需要磨合那是能力不够
+
+*****
+
+####  单脚着地  
+##### 19600#       发表于 2025-2-7 14:27
+
+这么多拉素睦得，爱音真得错付了，就没人心疼粉毛吗？
+
+
+*****
+
+####  wwwttth  
+##### 19601#       发表于 2025-2-7 14:28
+
+有一个想法，既然母鸡卡路人都这么嗜血长颈鹿，不会母鸡卡的诗超绊就是演剧吧，第一幕就是睦头的那段，然后下一段来个祥子和大喵那段
+
+*****
+
+####  天空塔书记官  
+##### 19602#       发表于 2025-2-7 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367994&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 14:22</a>
+我猜不光没有a团的live，反而会先有一场m团得罪新歌来解决问题。这么看前面节奏其实有点慢了 ...</blockquote>
+因为实际上第4/5才算正式进入主线，这才第2/3集所以也不是不能理解…吧，而下一集预告有迷子排练的画面，说不定就会在第七集安排两场live呢(继续做白日梦)
+
+《歌いましょう鳴らしましょう 》
+
+希望能看到这首<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  废都刽子手  
+##### 19603#       发表于 2025-2-7 14:30
+
+大概大象小时候救过睦头的命，成为人类桥上飞扑灯就是场景和睦类似应激了
+
+—— 来自 vivo V2417A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  雪菜碧池  
+##### 19604#       发表于 2025-2-7 14:31
+
+<blockquote>天空塔书记官 发表于 2025-2-7 12:20
+但集团是一方面，家族是另一方面，老登是直接把牢爹从丰川家除名了，甚至剥夺了他祥子父亲的身份，这就很 ...</blockquote>
+参考三星那个女婿，烂泥就是烂泥
+
+*****
+
+####  雷攻姛人  
+##### 19605#       发表于 2025-2-7 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368026&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 14:27</a>
+
+这么多拉素睦得，爱音真得错付了，就没人心疼粉毛吗？</blockquote>
+爱音不是有灯吗，那可是贯穿mygo始终的大官配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 19606#       发表于 2025-2-7 14:31
+
+从来没人说过有丰川家族的黑暗面，说的是祥子家庭的黑暗，说第一集就是也能说通
+
+*****
+
+####  单脚着地  
+##### 19607#       发表于 2025-2-7 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368040&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 14:29</a>
+
+因为实际上第4/5才算正式进入主线，这才第2/3集所以也不是不能理解…吧，而下一集预告有迷子排练的画面， ...</blockquote>
+我觉得是出未公布得新曲可能性大一点
+
+*****
+
+####  影伴光生  
+##### 19608#       发表于 2025-2-7 14:32
+
+真素睦的话，那不是跟暴太郎战队最后给黑狗粉鸡抢女人安排的结局一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

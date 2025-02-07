@@ -2672,3 +2672,65 @@ soyo释怀了吗？
 
 <img src="https://s3.bmp.ovh/imgs/2025/02/07/64f09c59421dc533.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzzuuuuuz  
+##### 276#       发表于 2025-2-7 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367867&amp;ptid=2245428" target="_blank">一心而用 发表于 2025-2-7 14:02</a></blockquote>
+漏油这图都到哪里找的啊？笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 277#       发表于 2025-2-7 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368005&amp;ptid=2245428" target="_blank">zzzuuuuuz 发表于 2025-2-7 14:24</a>
+
+漏油这图都到哪里找的啊？笑死我了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+右下角就是作者啊，每周这个点发布。
+
+
+*****
+
+####  z-hunter  
+##### 278#       发表于 2025-2-7 14:31
+
+至于作为鸡团动画的第6集，总体只能给0分，主要是第四集太差了。
+
+对于鸡团的五人，目前我祝她们幸福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大祥还在嘴硬还在刺猬，这是我没想到的，台词也逆天，编剧这是把大祥都踩到地底了还在使劲踩。就为了演绎ob一串字母的人设，和给素世一个机会说那句回旋镖”你这人真是只想着自己呢“吗？现在风评肯定是谷底了，就怕下集还能继续跌我都不意外了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小睦和小墨，我不是精神病人也不是医生，很难评她的行为。两人脑内对话，在外左右互博估计是一种“演技”的表演延续吧，只能说编剧讲得开心就好。祥睦这对的股也跌到谷底了，一边只要小祥，一边不认识。
+
+不过小墨老师开启了和猫的神交路线之后，估计会变成常驻人物，不会怕有融合和死亡的结局了。
+
+喵梦还在心理阴影，老艺术家还在追她哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她也有点喜剧人了。
+
+海铃被立希破防了，不过就篇幅来说，估计她的故事并不会说太多，稍微说一点，然后努力重组鸡团估计就差不多了。故事都在手游里。
+
+初华。。。我们最重要的主唱跑哪去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是我粉鸡团的重要因素，你真的是最终BOSS吗哈哈
+
+其实也不必对鸡动画有太高的期待，是因为狗的动画太高光了对编剧有过高期待？还是等了一年各种假药二创入脑各种宣传和自己期待的剧情不一样？
+
+邦邦的剧情逻辑其实一直不怎样，狗动画反而是一个另类，编剧的高光不可能一直都有的，所以我不太抱期望，看得还算可以。。。
+
+反正狗动画也是用诗超绊来一击逆转，你也不怕狗动画再来一次
+
+*****
+
+####  zzzuuuuuz  
+##### 279#       发表于 2025-2-7 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368038&amp;ptid=2245428" target="_blank">一心而用 发表于 2025-2-7 14:29</a>
+右下角就是作者啊，每周这个点发布。</blockquote>
+我知道是他发的，可是一般都发在哪里啊？我只在今天见过这一张图……漏油是从哪里搬的啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
