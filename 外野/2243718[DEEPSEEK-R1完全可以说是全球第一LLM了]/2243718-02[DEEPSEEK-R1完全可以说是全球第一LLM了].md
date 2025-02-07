@@ -945,3 +945,27 @@ pro还有啥区别吗实名了能玩刘备文吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  费雷拉  
+##### 1567#       发表于 2025-2-7 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369148&amp;ptid=2243718" target="_blank">SevenYuan23 发表于 2025-2-7 16:55</a>
+
+好像不显示COT，有办法解决吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+问问题的时候顺带提一句显示思维链试试？
+
+
+*****
+
+####  requiem116  
+##### 1568#       发表于 2025-2-7 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369068&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 16:45</a>
+
+对了，问下说什么连酒馆跑团更好，什么酒馆</blockquote>
+silly tarven用来搞涩涩的生产力工具（大概）
+

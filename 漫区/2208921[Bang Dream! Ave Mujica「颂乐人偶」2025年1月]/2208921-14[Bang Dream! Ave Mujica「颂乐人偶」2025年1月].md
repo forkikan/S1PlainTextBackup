@@ -5019,3 +5019,49 @@ Mutsumi/Mortis 的意识空间（headspace）表现得非常真实，尤其是 M
 
 mujica到底要怎么写，是想复刻少歌那样前期乱写，最后一集神回就行了吗？
 
+
+*****
+
+####  天空塔书记官  
+##### 19697#       发表于 2025-2-7 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369192&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 17:02</a>
+mujica到底要怎么写，是想复刻少歌那样前期乱写，最后一集神回就行了吗？</blockquote>
+目前看来和剧情发展最匹配的是这个神秘学假药，就是理解起来有点困难<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/ad153ef416b4a6c022734fa016fdb1b8/image.jpg" referrerpolicy="no-referrer">
+
+原贴在萌战吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  huxiaopao163  
+##### 19698#       发表于 2025-2-7 17:10
+
+我还是期待着，当后面揭露真相后，前面看似混乱的剧情，会瞬间变得规整和精巧。
+
+就像小时候的小虎队解密卡一样
+
+*****
+
+####  NOSbeam  
+##### 19699#       发表于 2025-2-7 17:11
+
+弄成这样还不如就像之前邦二三季一样，通过🐶的视角写🐔的发展……，作为mygo第二季的话确实好评，但是这是mujica。
+
+顺便问问当时追go的时候风评怎么样的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fuwamoco  
+##### 19700#       发表于 2025-2-7 17:12
+
+目前认为，DID是一种对童年创伤的极端应对机制。在大脑中创造一系列身份，把自己无法面对的创伤，交给“另一个人”来应对。一个人用这种方式来脱离压力或创伤，或把创伤记忆从正常的意识中分离出来。通过这种分离出来，ta可以保持某种程度的功能，就好像创伤没有发生一样。
+
+如果睦头确实是照着DID描写的，那就是祥睦童年经历藏了一段没说呗，睦头因为这事后分裂出墨提斯再也不笑了，祥墨是解开这个迷的钥匙，因为睦头自己也不知道的，祥子不被提醒肯定想不起来，对这段记忆印象最深的是墨。
+
