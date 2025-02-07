@@ -8276,3 +8276,105 @@ Mujica第一集之后我同样红迪投票调查，是六成多喜欢三成多�
 熊本妹来东京上高中，现在高一，怎么就成肄业了</blockquote>
 我还以为大猫老师已经大学了所以从来不穿校服。
 
+
+*****
+
+####  天空塔书记官  
+##### 19935#       发表于 2025-2-8 00:38
+
+ 本帖最后由 天空塔书记官 于 2025-2-8 00:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371979&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-8 00:32</a>
+大猫老师究竟多大?高中肄业来东京讨生活所以从来不穿校服是吗。</blockquote>
+都立艺术学院高校高一，和RAS主唱合奏瑞依(高三）一个学校，学校没有校服要求，原型是东京艺术大学音乐学部附属音乐高，日本唯一一所国立音乐高中，毕业生中90%升入东京艺术大学，学校的偏差值64。相当厉害的学校了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 19936#       发表于 2025-2-8 00:38
+
+大猫就是打扮得成熟，乡下人上京想把自己打扮得成熟点免得被人看出自己的胆怯
+
+*****
+
+####  ddy2811  
+##### 19937#       发表于 2025-2-8 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371899&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-8 00:19</a>
+
+其实也没多出格就是了，挥泪斩马谡，有些事情必须给个交代，说不定公司里的人全在鼓掌呢 ...</blockquote>
+如果我是公司里的人，说不定早看这倒插门上位硬扶十几年都扶不起的阿斗不爽了
+
+*****
+
+####  烂片雷达  
+##### 19938#       发表于 2025-2-8 00:40
+
+做法猫睦大卖day3<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7176e7d821e8e1e8416935e8c2756e11/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/205d600a7a5f7ae0841e8df432120fc8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/51d2ab8203bac39365ecdad691b7b841/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/05b114cad32547d7b86dd9328aadc25b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 19939#       发表于 2025-2-8 00:40
+
+这集看了又有信心了 剧本还是知道自己在干啥的
+老有人说去医院 在这种片里属于是机械降神了 像needy girl overdose的医院结局了 理论最好但是太平淡（虽然老登也算是 但钱的问题没那么核心）
+
+—— 來自 Sony XQ-DQ72, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  木板春香  
+##### 19940#       发表于 2025-2-8 00:44
+
+再核对一个细节，
+
+<img src="https://img.saraba1st.com/forum/202502/08/003952fu7bbn5rrr0536r6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (246.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 00:39 上传
+
+    
+
+<img src="https://img.saraba1st.com/forum/202502/08/004220r33dcaahrrxcf5ik.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (310.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 00:42 上传
+
+水友们，赘婿有被踢出家族了嘛？
+
+有的人嘴巴硬的不行：
+
+<img src="https://img.saraba1st.com/forum/202502/08/004332avnheubzkevvef1f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (209.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 00:43 上传
+
+  实际有去剥夺姓氏踢出家族了吗？
+
+*****
+
+####  天空塔书记官  
+##### 19941#       发表于 2025-2-8 00:45
+
+不过偏差值64…好像也不是特别高，主要还是以艺术特长为主，公立学校学费是比私立便宜的，而且内部直升也方便
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
