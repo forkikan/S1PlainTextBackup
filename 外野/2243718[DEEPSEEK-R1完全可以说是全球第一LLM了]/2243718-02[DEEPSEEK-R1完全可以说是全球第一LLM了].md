@@ -1287,3 +1287,14 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 不传播没啥啊大不了api没了，换个号再充钱</blockquote>
 不是，涉及某拳的词会被版主砍头的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秦南心  
+##### 1600#       发表于 2025-2-7 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370807&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 21:14</a>
+
+不是，涉及某拳的词会被版主砍头的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
