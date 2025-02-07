@@ -1630,3 +1630,23 @@ GEMINI的文风虽然不够华丽不够灵感迸发，但是稳定流畅字数�
 
 年后我再想复现就需要提示词告诉他检查推导过程了。即使这样，同样的提示词也只有R1和o1能正确找到笔误。Qwen-max/Llama 3.1 405B/Claude 3.5 Sonnet/Gemini 2.0/o3-mini 都不行
 
+
+*****
+
+####  果壳中的松鼠  
+##### 1627#       发表于 2025-2-8 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371793&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-8 00:00</a>
+
+不行我快被大D老师折磨疯了，我想让他写个尼尔2的同人，给他描述了一大堆世界观设定，就这样他还要每次都改 ...</blockquote>
+可以用酒馆，把设定写到世界信息里，这样每次对话都会自动把设定加到后面
+
+*****
+
+####  约翰里德  
+##### 1628#       发表于 2025-2-8 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371921&amp;ptid=2243718" target="_blank">果壳中的松鼠 发表于 2025-2-8 00:23</a>
+可以用酒馆，把设定写到世界信息里，这样每次对话都会自动把设定加到后面 ...</blockquote>
+酒馆到底是什么，求个攻略<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
