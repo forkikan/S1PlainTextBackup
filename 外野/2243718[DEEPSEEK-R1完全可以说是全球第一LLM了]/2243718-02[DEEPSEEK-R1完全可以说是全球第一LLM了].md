@@ -1298,3 +1298,13 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 不是，涉及某拳的词会被版主砍头的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 1601#       发表于 2025-2-7 21:32
+
+chatbox 设置20 0.6 0.7可以不
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

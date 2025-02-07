@@ -1318,3 +1318,16 @@ Q娃预告
 
 你要说人间体偶像出道也就算了
 
+
+*****
+
+####  modedd  
+##### 389#       发表于 2025-2-7 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370382&amp;ptid=2208663" target="_blank">天邪鬼 发表于 2025-2-7 20:03</a>
+
+今年真的要探究q娃当偶像的道路吗，不会还在那里搞什么我们战斗是为了回应粉丝的期待吧
+
+你要说人间体偶像 ...</blockquote>
+战斗就是偶像活动这种展开的概率还是挺大的吧，也不可能真把每集都要有的固定桥段和作品主题割裂开来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
