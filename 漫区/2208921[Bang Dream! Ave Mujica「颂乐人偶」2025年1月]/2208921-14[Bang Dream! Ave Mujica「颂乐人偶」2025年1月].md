@@ -4729,3 +4729,113 @@ soyo侍寝那个镜头，我记得轻拍翻转有个同款体位吧，而且都�
 —— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 19673#       发表于 2025-2-7 16:05
+
+可能是爱音还不够小屁孩，要是像莫提斯一样soyo估计就母性爆发了
+
+*****
+
+####  lucasxp  
+##### 19674#       发表于 2025-2-7 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368728&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 15:59</a>
+假面上有蜘蛛/网的纹饰，还有“编织谎言”
+
+所以就是蜘蛛侠了</blockquote>
+补充一个，李子还有个切片模仿蜘蛛侠喷丝
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|草www|
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 19675#       发表于 2025-2-7 16:07
+
+邦邦世界真有幽灵和猫可以看到吉他器灵这事，好像真的不少人不知道而且完全不接受。。。
+
+要不以后遇到什么问题干脆推荐他们点开邦邦第二集第四集看五分钟就知道邦邦是什么样的世界了。。。
+
+*****
+
+####  安娜导函数  
+##### 19676#       发表于 2025-2-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368693&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 15:56</a>
+
+不太一样，迷子是词作主导的乐队，而A团是曲作主导，立希是“神明”灯的共鸣者，她甘当绿叶，作曲是为了 ...</blockquote>
+所以大祥老师是圣灵，我们隐身小主唱才是耶稣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 19677#       发表于 2025-2-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368214&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-7 14:55</a>
+
+墨这个角色最大的问题是不会乐器导致她很难参与最终事件搞live</blockquote>
+睦莫融合就能解决了
+
+*****
+
+####  ads147147  
+##### 19678#       发表于 2025-2-7 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368697&amp;ptid=2208921" target="_blank">Litccc 发表于 2025-2-7 15:56</a>
+
+初华蜘蛛侠的梗是怎么来的</blockquote>
+一开始是初华蜘蛛说，因为初华身上有很多蜘蛛意向的东西，在本子传说里，也有奈落蛛丝的传说。
+
+然后进一步就是初华其实是蜘蛛侠的假药。介于邦邦世界真的有钢铁侠，所以有蜘蛛侠很合理。
+
+有点好奇初华如果是蜘蛛侠，她吐蛛丝用的是发射器还是手腕直接飞。。
+
+
+*****
+
+####  天空塔书记官  
+##### 19679#       发表于 2025-2-7 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368791&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 16:10</a>
+一开始是初华蜘蛛说，因为初华身上有很多蜘蛛意向的东西，在本子传说里，也有奈落蛛丝的传说。
+
+然后进一 ...</blockquote>
+吉他弦( 
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ashero  
+##### 19680#       发表于 2025-2-7 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368779&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 16:07</a>
+
+邦邦世界真有幽灵和猫可以看到吉他器灵这事，好像真的不少人不知道而且完全不接受。。。
+
+要不以后遇到什么 ...</blockquote>
+你以为现在那么多的观众看过以前邦邦的占多数还是少数
+
+不都是mygo造就的流量 mygo好评的要素不是这些要素 你加进来就会被质疑
+
+
+*****
+
+####  是谁的书画  
+##### 19681#       发表于 2025-2-7 16:13
+
+与其说邦邦的世界观是因为邦邦才怎么神奇妙想，不如转换想法，邦邦其实是卡牌战斗先导者世界观的一部分，这样是不是对比起来已经都算是正常人哩😎
+
