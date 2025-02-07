@@ -126,3 +126,22 @@
 
 褒姒也不奇怪，一个RM级别的小品游戏做了这么多年不成就是内部出问题了
 
+
+*****
+
+####  宛若青空  
+##### 784#       发表于 2025-2-8 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369673&amp;ptid=2093296" target="_blank">serj005 发表于 2025-2-7 18:05</a>
+
+不说贷款吃屎，只说现在试玩和预告里这个小人移动我已经很难接受了，原版的地图圆点明明挺好的，看着舒服也 ...</blockquote>
+应该是做了多种指针给人选择的，TGS试玩时就出现过指针样式，见下图
+
+<img src="https://img.saraba1st.com/forum/202502/08/014938mtcmmvnztsntgqhh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3180.jpeg</strong> (283.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 01:49 上传
+

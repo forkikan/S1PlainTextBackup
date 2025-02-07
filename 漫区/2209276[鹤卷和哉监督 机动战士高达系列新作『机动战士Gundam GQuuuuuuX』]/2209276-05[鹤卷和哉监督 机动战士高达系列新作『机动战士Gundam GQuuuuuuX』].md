@@ -9606,3 +9606,17 @@ https://x.com/inchhime/status/1887788362100285879?s=09
 
 中间谈的夏利亚义眼部分是什么意思，采纳成GQX设定了吗
 
+
+*****
+
+####  xwz  
+##### 6646#       发表于 2025-2-8 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370477&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-7 20:14</a>
+シャアの国葬で盛大に賛辞を送るギレン
+
+https://x.com/inchhime/status/1887788362100285879?s=09 ...</blockquote>
+搞不好是真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
