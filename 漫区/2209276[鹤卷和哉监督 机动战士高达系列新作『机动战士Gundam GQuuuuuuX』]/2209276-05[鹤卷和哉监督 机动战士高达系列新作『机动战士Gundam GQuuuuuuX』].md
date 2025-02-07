@@ -9086,3 +9086,14 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 
 打算去澳门看，顺便看能不能整盘怪猎荒野
 
+
+*****
+
+####  王留美  
+##### 6613#       发表于 2025-2-7 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366805&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-7 11:41</a>
+ 这20亿就别跟几十年的23亿比了，水分太多。不说这么多年日元贬值多少，不孝子之后电影票由1500、1800升到20 ...</blockquote>
+说是这么说，去年也这么说过
+但是总归是个节点，真要比动员数……那确实打不过（
+

@@ -639,3 +639,26 @@ chatbox感觉不太好用</blockquote>
 max token8192吧</blockquote>
 应该不是这个的限制。有时候就能完成输出。
 
+
+*****
+
+####  jeokeo  
+##### 1539#       发表于 2025-2-7 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366878&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-7 11:49</a>
+不用。cherry 也是在设置里找到硅基流动，然后打开右下侧的管理的最下面也有个pro 的分类目录里面就有了 ...</blockquote>
+cherry全称是啥？
+谷歌商店里面没找到
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 1540#       发表于 2025-2-7 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367349&amp;ptid=2243718" target="_blank">jeokeo 发表于 2025-2-7 12:46</a>
+cherry全称是啥？
+谷歌商店里面没找到</blockquote>
+cherry studio没有手机端
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

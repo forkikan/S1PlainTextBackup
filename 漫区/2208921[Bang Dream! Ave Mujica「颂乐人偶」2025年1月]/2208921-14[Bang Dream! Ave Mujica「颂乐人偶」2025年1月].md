@@ -2844,3 +2844,198 @@ EXO是晚辈了。
 
 正常人遇到压力，大脑安慰自己甩锅给别人很合理。
 
+
+*****
+
+####  安娜导函数  
+##### 19499#       发表于 2025-2-7 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367012&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:06</a>
+我女女关系性哪里去了，也没写好啊关键</blockquote>
+素睦（含Mo）都三天三夜了还不满足嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 19500#       发表于 2025-2-7 12:48
+
+<blockquote>刑部姬真可爱 发表于 2025-2-7 12:45
+说白了就是老登的赶人是有“量刑过重”和“假公济私”甚至“故意陷害”之嫌的，从企业的角度来说，不太可 ...</blockquote>
+我怎么知道，我又没做过168亿的生意，不懂故意自己亏钱就为了赶人是个什么心态，毕竟俺这种俗人思路，女儿都没了，不想要的女婿这种外人其实想开除就开除，可能有钱人就这么爱过家家非要花个168亿走个过场吧。
+
+*****
+
+####  天空塔书记官  
+##### 19501#       发表于 2025-2-7 12:49
+
+这剧里明明最惨的就是牢爹好吧，爱上了豪门大小姐，所以选择入赘，还有一个可爱而又优秀的女儿，看似是爽文开局
+
+但平日里受尽岳父白眼但仍在努力打拼，结果中年丧妻，还因为自己的诚实被人利用背叛被踢出企业和家族，彻底封杀，甚至被剥夺了女儿的监护权，只能以酒消愁
+
+这可太惨了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19502#       发表于 2025-2-7 12:50
+
+一定要墨退场的话，能不能让soyo来动手，墨最信任的soyo亲手杀死墨，然后小寡妇看着复活的睦头和祥子双宿双飞，扭曲的女女关系性
+
+*****
+
+####  单脚着地  
+##### 19503#       发表于 2025-2-7 12:51
+
+这剧情真理性来看除了老登迁怒中登根本没合理解释的。。。现实里日本那些大企业的高管捅大篓子的新闻一大堆，大多数不就是出来鞠个躬然后私密马三就当无事发生了，哪至于搞到这一步
+
+*****
+
+####  akiomn  
+##### 19504#       发表于 2025-2-7 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367358&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-7 12:47</a>
+正常人遇到压力，大脑安慰自己甩锅给别人很合理。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太压力了。甩锅给别人可以，敢不敢让主人格上个号？
+卧槽什么狗屁逻辑啊，睦睡着了不乐意哭爹喊娘的，醒了想要见祥子也不乐意，还上手直接抠玩偶眼球硬塞回去
+这到底是大脑保护机制还是双重人格？先给个结论，如果是大脑保护机制我能不能直接判睦这个角色是纯弱智？
+
+*****
+
+####  xyion  
+##### 19505#       发表于 2025-2-7 12:52
+
+<blockquote>zhzij111 发表于 2025-2-7 11:29
+小祥这个能力既要背负爹又要背负队友还要搞乐队是不可能的，最速武道馆她的音乐天赋很重要，但离了资本的 ...</blockquote>
+搞个起步乐队完全能维持生计，现在是在讨论正经做法，而不是剧情里祥子的做法（甚至剧情里也没有讲家族资本是怎么介入的）。乐队阵容摆在这里，不靠家族资本成功的概率也一点都不小。
+
+认同赶出家门本质是在代入豪门大家长冷酷的视角。可以认为祥爷不这么做他就无法维护身为豪门大家长的地位，但否认祥子的抗争实在太过功利了。
+
+*****
+
+####  刑部姬真可爱  
+##### 19506#       发表于 2025-2-7 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367308&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-7 12:41</a>
+越看莫提斯越神人，把锅全甩到祥子头上。睦极端爱祥子就算了，莫提斯更神人
+睦的扭曲绝对是多方面的，祥子 ...</blockquote>
+睦的家庭内部目前来看最大的问题是缺爱，但是这个点不能说是导致睦压力大的直接因素，祥子抓这点的话感觉辩不过观众手操莫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 19507#       发表于 2025-2-7 12:53
+
+<blockquote>天空塔书记官 发表于 2025-2-7 12:49
+这剧里明明最惨的就是牢爹好吧，爱上了豪门大小姐，所以选择入赘，还有一个可爱而又优秀的女儿，看似是爽文 ...</blockquote>
+？虽然我这辈子都没负责168亿生意的机会，但被剥夺抚养权例子还是能看到的，真被剥夺抚养权根本看都看不到一面好吧，还能有拿啤酒瓶砸女儿的机会啊，好吧又是这样贫民不懂有钱人的过家家了。
+
+*****
+
+####  安娜导函数  
+##### 19508#       发表于 2025-2-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367168&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 12:22</a>
+有一说一第三集模仿魔女张开大口把睦吃了、第四集模仿恐怖片敲门开门，第六集在睦面前突然变大威吓、把睦 ...</blockquote>
+就是制作组故弄玄虚搞"恐怖片"氛围的手段顺便拷打大祥老师罢了，Mortis现在看来就一低龄幼儿，想让她被什么"内鬼"的假药属实是想的比编剧多多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 19509#       发表于 2025-2-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367348&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-7 12:45</a>
+
+有啥绝情的，中登又不是自家人，赔了这么多钱只是把你扫地出门还不够吗，把中登养起来就更扯了，合着赔这 ...</blockquote>
+不是自家人为什么要叫丰川清告？他改了姓就说明他是丰川家一员了，入赘的女婿其实就是儿子了，你看看财前又一怎么对待财前五郎的。
+
+*****
+
+####  玖羽  
+##### 19510#       发表于 2025-2-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367362&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 12:48</a>
+
+我怎么知道，我又没做过168亿的生意，不懂故意自己亏钱就为了赶人是个什么心态，毕竟俺这种俗人思路，女 ...</blockquote>
+日本企业对这种情况的处理方式一般是流放，把当事人调到哪个偏远乡村的事务所，或者是哪个幽灵部门，对当事人来说当然是职业生涯完蛋了，但总归不是直接开除，让他一贫如洗更是难以想象
+
+原因很简单，这甚至不是投资失误，是被诈骗，168亿也不可能绝对是一个人的责任，仅仅因为被诈骗就把前高管剥夺到这个地步，你让其他人怎么想？让外人怎么想？就像前面别人说的，你定治自己要是被诈骗，是不是也要这样？这就是借着由头公报私仇
+
+
+*****
+
+####  刑部姬真可爱  
+##### 19511#       发表于 2025-2-7 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367362&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 12:48</a>
+我怎么知道，我又没做过168亿的生意，不懂故意自己亏钱就为了赶人是个什么心态，毕竟俺这种俗人思路，女 ...</blockquote>
+就算否定掉故意亏钱这点，但是依然否定不掉这么大金额的支出肯定是会经过老登的手
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19512#       发表于 2025-2-7 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367378&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-7 12:51</a>
+
+太压力了。甩锅给别人可以，敢不敢让主人格上个号？
+
+卧槽什么狗屁逻辑啊，睦睡着了不乐意哭爹喊娘的，醒 ...</blockquote>
+Animum reges.你将掌握心灵
+
+Ira furor brevis est: animum rege; qui nisi paret.Imperat; hunc frenis, hunc tu compesce catena.
+
+Wrath is a short-lived madness: curb and bitYour mind: 'twill rule you, if you rule not it
+
+很明显了吧，墨提斯就是愤怒，睦头没有驯服心灵的话，就会被愤怒控制（不让见祥子），睦头需要去驯服墨提斯。
+
+注意标题是将来时，原文是现在时，睦头未来会驯服墨提斯
+
+*****
+
+####  akiomn  
+##### 19513#       发表于 2025-2-7 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367393&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-7 12:52</a>
+睦的家庭内部目前来看最大的问题是缺爱，但是这个点不能说是导致睦压力大的直接因素，祥子抓这点的话感觉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那祥子也能说啊，我童年起码关心过你吧，虽然剧里没表现睦祥童年，但是总不能是祥子从小就虐待睦吧？
+莫提斯能甩锅的c团解散后的祥子不够关心睦，根本不回箭头。其他莫提斯有屁资格甩锅啊
+
+*****
+
+####  ntrntr1  
+##### 19514#       发表于 2025-2-7 12:57
+
+<blockquote>玖羽 发表于 2025-2-7 12:53
+日本企业对这种情况的处理方式一般是流放，把当事人调到哪个偏远乡村的事务所，或者是哪个幽灵部门，对当 ...</blockquote>
+这我又不懂了，难道中登这样子去偏远乡村就甘心了？而且这大东京是只有丰川一家公司了吗，祥子一个小姑娘都知道去打工，一个有手有脚的大男人不知道去面试啊。
+
+*****
+
+####  天空塔书记官  
+##### 19515#       发表于 2025-2-7 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367348&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-7 12:45</a>
+有啥绝情的，中登又不是自家人，赔了这么多钱只是把他扫地出门还不够吗，把中登养起来就更扯了，合着赔这 ...</blockquote>
+你这话要不要套在自己家身上想想，…而且这是欺诈，是犯罪，而不是投资策略失误，这部分损失，是可以通过司法手段追回来一部分的
+
+即使老登要记仇也是记在诈骗的那一方，而不应该是自己女婿身上，这女婿虽然有点无能但没到天怒人怨的地步，否则也不可能在集团当十几年中层，大金额的资金来往，老登不会过问 ? 结果出了事，先把女婿推出来顶锅，这让外人看了都寒心<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 19516#       发表于 2025-2-7 12:58
+
+想要睦的剧情推进，大莫和大睦两个人要对祥子的看法达成一致，至少在某一些方面。
+
+我个人比较希望最后睦对于祥子的态度是：我喜欢你但有多喜欢就有多讨厌，我绝不会原谅你。但为了你，我还愿意继续。
+
+不过我觉得邦邦之下肯定也很难，估计最后还是大睦战胜大莫，大莫服软退场😅
+
