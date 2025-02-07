@@ -848,3 +848,27 @@ pro的ds r1也挺慢的，目测只有10不到的token/s.
 当特定问题的问答机器还行吧</blockquote>
 凑合用吧，年前ds那种速度已经回不去了
 
+
+*****
+
+####  秦南心  
+##### 1559#       发表于 2025-2-7 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365472&amp;ptid=2243718" target="_blank">zyf199212 发表于 2025-2-7 09:37</a>
+
+硅基流动充了钱之后用pro是真快啊</blockquote>
+pro还有啥区别吗实名了能玩刘备文吗
+
+
+*****
+
+####  秦南心  
+##### 1560#       发表于 2025-2-7 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367482&amp;ptid=2243718" target="_blank">神剑烧鸡 发表于 2025-2-7 13:05</a>
+
+测试下来我其实更愿意用温度高点的v3，在1.2到1.6左右
+
+低了重复得厉害，高了会呓语连词组都拼凑不了，r1填 ...</blockquote>
+V3真的不错，输出速度还可以，而且不会像R1一样乱加设定
+

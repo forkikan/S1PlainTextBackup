@@ -4839,3 +4839,37 @@ soyo侍寝那个镜头，我记得轻拍翻转有个同款体位吧，而且都�
 
 与其说邦邦的世界观是因为邦邦才怎么神奇妙想，不如转换想法，邦邦其实是卡牌战斗先导者世界观的一部分，这样是不是对比起来已经都算是正常人哩😎
 
+
+*****
+
+####  一心而用  
+##### 19682#       发表于 2025-2-7 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368362&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-7 15:16</a>
+
+按内娱写法，大祥老师确实是大女主
+
+因为她有四个舔狗，青梅竹马的睦，初恋的灯，童年惊鸿一瞥就一见钟情念 ...</blockquote>
+<img src="https://p.sda1.dev/21/539e57f174793d87733ec0fe35faddfd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 19683#       发表于 2025-2-7 16:15
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 16:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368812&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-7 16:13</a>
+与其说邦邦的世界观是因为邦邦才怎么神奇妙想，不如转换想法，邦邦其实是卡牌战斗先导者世界观的一部分，这 ...</blockquote>
+以及少女歌剧，但偶尔搞下联动就算了，还有客串出场什么的，直接合并，受众群体是一定会炸的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  秋月孝三  
+##### 19684#       发表于 2025-2-7 16:18
+
+ 本帖最后由 秋月孝三 于 2025-2-7 16:19 编辑 
+
+双人格脑内搬凳子看小电视的演出非常90年代，而现实里无缝切人格吵架又非常超兵。干脆做部邦多利xenoglossia吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
