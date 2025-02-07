@@ -5205,3 +5205,20 @@ MyGO前6话基本全靠第3话的神演出，不谈伏笔的话，1~4话几乎�
 
 換到歌曲的神明應該是彈鋼琴後就有人圍上來當小妹
 
+
+*****
+
+####  天空塔书记官  
+##### 19711#       发表于 2025-2-7 18:07
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369675&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 18:05</a>
+春日影是歌+詞吧
+
+燈的歌詞本拿起來就能虎軀一震 遇明公就拜</blockquote>
+所以在C团时，实际上祥子和立希是一样的，都是灯的共鸣者<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+<blockquote>C团和迷子本质是一样的，是以灯为核心，以词作主导的乐队；而A团则是以祥子为核心，以曲作主导的乐队。灯的文字能够引发情感的共鸣，这是她与生俱来的天赋，祥子和立希的工作就是用乐曲去烘托和放大这种力量，所以词与曲是互相增强彼此支持的关系，所以灯是其他人的代言者，灯的歌就是乐队心灵的呐喊，这需要彼此的接纳与包容，就像素世最终融入了迷子这一集体</blockquote>
+这是我之前发过的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
