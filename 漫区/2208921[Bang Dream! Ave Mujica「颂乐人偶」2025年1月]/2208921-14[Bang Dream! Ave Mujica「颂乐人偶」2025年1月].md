@@ -5073,3 +5073,52 @@ mujica到底要怎么写，是想复刻少歌那样前期乱写，最后一集�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不好童年睦想跳天桥被大祥老师救了
 
+
+*****
+
+####  玖羽  
+##### 19702#       发表于 2025-2-7 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369003&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 16:36</a>
+
+做网红，好像和大喵是不是重叠了（</blockquote>
+很简单，祥子抗拒露脸，就跟夏亚戴面具一样，隐瞒身份只是借口
+ <blockquote>其实祥子的心态蛮真实的，前一天还是贵族学校的大小姐，打招呼都和平民不一样得说贵安，转天自己爹酗酒当街趴地上跟条烂狗一样（虽然随时都能退回去做大小姐，但是随便丢下亲爹祥子人设就烂完了），<strong>这时候人的自尊心都会变得极端敏感，祥子的心态其实就和丢酒瓶的爹一样，求求你别来，别看到自己烂完了的样子，所以白祥时期可以袒露心声我好幸福啊，落魄以后反而要端着了，因为不敢让你看里子。只不过几乎没人喜欢这种真实，更多地是会恨铁不成钢。</strong>
+
+[https://www.zhihu.com/question/11016892626/answer/90937624799](https://www.zhihu.com/question/11016892626/answer/90937624799)</blockquote>
+
+
+*****
+
+####  刑部姬真可爱  
+##### 19703#       发表于 2025-2-7 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369266&amp;ptid=2208921" target="_blank">NOSbeam 发表于 2025-2-7 17:11</a>
+
+弄成这样还不如就像之前邦二三季一样，通过🐶的视角写🐔的发展……，作为mygo第二季的话确实好评，但是这是 ...</blockquote>
+1~6集，杂鱼偶像番
+
+7集，卧槽这也太爆了
+
+8集，卧槽这也太爆了，长期素食挺王稳了，丰川祥子是不是有病
+
+9集，卧槽就剩4集了这团怎么组
+
+10集，神回，类目
+
+11，12集，女女关系性狂磕，剪切线
+
+13集，客服小祥，银河战舰，肉体厨，啊mujica居然还要等那么久
+
+*****
+
+####  aptx8285144  
+##### 19704#       发表于 2025-2-7 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369260&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-7 17:10</a>
+
+我还是期待着，当后面揭露真相后，前面看似混乱的剧情，会瞬间变得规整和精巧。
+
+就像小时候的小虎队解密卡 ...</blockquote>
+退一步而言，代价过高，大祥和喵梦的人设如此极端且双人格这种几乎不可能是大人操控（有这操手恐怕真要决战某地了）然而已经至少影响睦，海玲，大祥三个人设对他人共情能力了（不是过剩就是过冷）
+
