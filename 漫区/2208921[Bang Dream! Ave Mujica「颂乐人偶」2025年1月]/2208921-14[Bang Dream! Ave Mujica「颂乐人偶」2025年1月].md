@@ -698,3 +698,114 @@ mygo藏了一季最后就原来只是爹一蹶不振酗酒了 真没啥好藏的
 
 在公眾場合不仲是真搞笑
 
+
+*****
+
+####  单脚着地  
+##### 19309#       发表于 2025-2-7 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365612&amp;ptid=2208921" target="_blank">eyeego 发表于 2025-2-7 09:50</a>
+
+睦头人那句没头没尾的话想要带过去可太简单了
+
+可是大祥老师就是要端着她那ob一串字母的中二人设不解释不 ...</blockquote>
+对啊，所以大象老师连夜改剧本圆这事了啊？一直站在睦的立场弱化她言行的影响把责任都归结到一个人身上对客观评价剧情没有任何意，又不是来角色厨共振的。大象老师有绝大错误和责任不代表其他人没问题啊。A团这事在我看来大象老师背4.5成锅，键帽4成，睦1.5成。
+
+*****
+
+####  aptx8285144  
+##### 19310#       发表于 2025-2-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365632&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 09:52</a>
+
+要是互换，momoka可是真会背人生的，大祥直接嫁了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next ...</blockquote>
+没有安在那里调解关系，你看桃香说要解散，大祥照样是没办法只能放狠话或缩回去的，把安换成换成喵梦就不敢想象画面有“多美了”（
+
+*****
+
+####  remedios010000  
+##### 19311#       发表于 2025-2-7 09:59
+
+这集最搞笑的是寄于众望的爱音开局就淡出了，明明上集还力挽狂澜追逐战血C，结果话都没说一句就被祥子从家里撵出来了，C团团建还被大莫老师讨厌警惕，最后素世解密祥子难言之隐也只能附和一句俺也一样嗯嗯啊嗯，真是但凡能打出一点伤害也不至于一点伤害没打出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反倒是上集结尾直接被神经病吓趴下，一脸杂鱼样的soyo女士，风评从猜猜soyo能在大莫老师面前坚持多少秒才跪，到“欧内该.jpg”剧照预热以后风评一路走高，再到播出后俨然已经成为鸡狗两团最高的山，令人感叹，武士道烂炒的功力已入化境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  yongze  
+##### 19312#       发表于 2025-2-7 09:59
+
+喵梦和祥子的对立只在运营理念上，她就是一个实用主义和现实主义者，从她从网红经济角度出发对于商业走红方式的理解，和对睦转变的态度就能看出根本不在一个频道上，特别是现在还觉得睦在演已经耿直的有点搞笑了。不从祥子是主角的立场出发也就是争夺团内话语权的概念，能被诟病的也就是一些针对祥子挑衅意义的擅作主张上。对睦的伤害和团队分裂属于添了把火创造了机会但不起决定作用。再加上对她坚信自己的方式并不断努力的塑造，对她的清算不如祥子也在理解范围内。
+
+*****
+
+####  是谁的书画  
+##### 19313#       发表于 2025-2-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365632&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 09:52</a>
+
+要是互换，momoka可是真会背人生的，大祥直接嫁了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next ...</blockquote>
+但是真要桃香来背负祥子人生我只怕桃香会成下一个祥爹，本来就已经半只脚踏入祥爹境了😂
+
+*****
+
+####  adretyu67.  
+##### 19314#       发表于 2025-2-7 10:00
+
+大祥老师这脾气，肯定是会藏自己爹酗酒成性这一点，这倒不奇怪。
+
+*****
+
+####  深渊之呗  
+##### 19315#       发表于 2025-2-7 10:04
+
+他妈的，木子米这个绿茶婊天天装神经病，就是为了草寡妇！！
+让我想起了天使龙！
+
+
+*****
+
+####  另外四分之三  
+##### 19316#       发表于 2025-2-7 10:05
+
+△不会被○软禁了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 19317#       发表于 2025-2-7 10:06
+
+大象究竟是什么魅魔，做这么离谱，现在至少初睦灯都死心塌地，睦算半个，已经精神分裂出讨厌祥子的牢墨了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  eyeego  
+##### 19318#       发表于 2025-2-7 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365704&amp;ptid=2208921" target="_blank">yongze 发表于 2025-2-7 09:59</a>
+喵梦和祥子的对立只在运营理念上，她就是一个实用主义和现实主义者，从她从网红经济角度出发对于商业走红方 ...</blockquote>
+大祥老师到底想搞什么东西只有她自己知道 也有可能她自己都不知道自己在搞什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 19319#       发表于 2025-2-7 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365745&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-7 10:04</a>
+
+他妈的，木子米这个绿茶婊天天装神经病，就是为了草寡妇！！
+
+让我想起了天使龙！ ...</blockquote>
+正巧看到
+<img src="https://p.sda1.dev/21/85c8a6f3af9b1fddc4bd36b0cd3171d2/QQ图片20250207100702.gif" referrerpolicy="no-referrer">
+
