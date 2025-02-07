@@ -1727,3 +1727,149 @@ mortis躲爱音给了个镜头给手机，怕不是在躲摄像头
 
 另外爱音不都说了，这小祥后面显然是在逃避，就和她当初逃避英国留学失败一样，只是嘴更硬一点罢了，爱音当时是说都不敢说，这点基本的表现逻辑都理解不了的话还是不要看了……
 
+
+*****
+
+####  KLHgg  
+##### 19400#       发表于 2025-2-7 11:08
+
+莫姐也是个串子，给睦看酒店击杀回放，其他成员吵架内容全剪切掉，只留下自己单独破防祥子的片段，恶趣味拉满
+
+
+*****
+
+####  一心而用  
+##### 19401#       发表于 2025-2-7 11:09
+
+来点素睦
+<img src="https://p.sda1.dev/21/e549860aeffca88000ae3270b45b1a47/008xBgkNgy1hy7jf3ajo1j31e01e0x39.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/5f807577b41952a1755f5efbe5236b15/008xBgkNgy1hy7jf35rioj30rs0rsq7i.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  capraeLinn  
+##### 19402#       发表于 2025-2-7 11:10
+
+一方面用各种演出手法让motis显得像个诡异的坏东西，一方面又用灵猫之类的让motis显得好像是个好东西，那你这个motis到底是个什么玩意。
+
+正常人物塑造全面一点就算了，双重人格的一个人格这么写到底是要干什么呢。
+
+这不是逻辑上的问题，这是情绪上的问题。这自相矛盾的表现让人都搞不清到底要以一个什么样的心态和情绪看待这个玩意，那看完出戏了怪不得观众。
+
+*****
+
+####  厚乳果珍爽  
+##### 19403#       发表于 2025-2-7 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366145&amp;ptid=2208921" target="_blank">吴怀在 发表于 2025-2-7 10:40</a>
+
+厕妹是怎么定义的？</blockquote>
+“厕妹”是近年来中文互联网中衍生出的一个具有争议的群体标签，主要指活跃于匿名社交平台（如微博“隔空喊话bot”、QQ匿名群组等）的年轻女性用户。她们通常以匿名身份聚集在被称为“网络厕所”的圈子里，形成独特的语言风格和行为模式：
+
+1. **核心定义**  
+
+   该词源于“网络厕所”这一比喻——匿名平台因言论混杂、负面内容集中，被戏称为“厕所”，而频繁在此类空间活动的年轻女性逐渐被贴上“厕妹”标签。她们常通过谐音、暗号（如“女爹”“解解”等）规避审查，内容多涉及情绪宣泄、对他人或圈子的攻击，甚至演变为网络暴力。
+
+2. **典型特征**  
+
+   - **匿名性与小圈子化**：高度依赖匿名账号，通过封闭的社群（如特定bot评论区、私密群组）形成排外性极强的交流圈。  
+
+   - **语言符号化**：创造黑话体系（如用“厕”代指负面情绪、“泥塑”指性别解构），夹杂大量emoji、拼音缩写（如“nm$l”），形成外人难以理解的沟通方式。  
+
+   - **行为极端化**：部分人会针对特定对象（如公众人物、其他亚文化群体）发起集体嘲讽、人肉搜索，甚至煽动自残等极端行为。
+
+3. **争议与成因**  
+
+   该群体常被批评助长网络暴力，但其存在也反映部分青少年的心理困境：  
+
+   - 未成年人占比高，心智不成熟者易被群体情绪裹挟；  
+
+   - 部分人存在抑郁、焦虑等心理问题，将匿名空间视为情绪出口；  
+
+   - 亚文化圈子（如追星族、游戏圈）的排异竞争加剧了攻击性言论滋生。  
+
+需注意的是，“厕妹”一词本身带有污名化倾向，实际群体构成复杂，不宜简单概括。其现象本质是网络匿名机制、青少年心理状态与亚文化生态共同作用的结果。
+
+*****
+
+####  岬开斗  
+##### 19404#       发表于 2025-2-7 11:10
+
+ 本帖最后由 岬开斗 于 2025-2-7 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365436&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-7 09:33</a>
+而且说抽了六集陀螺  这抽陀螺的方式都不带改的。 只是一次比一次更过激更爆典。 不知道有啥必要那么多级。 ...</blockquote>
+因为十三集总要用东西填啊。
+本质就是定了第四集炸团第七集哭第十二集包饺子，剩下的没活了只能硬整。
+不要太相信裕仁子小姐和她手底下的甲级战犯们。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 19405#       发表于 2025-2-7 11:12
+
+睦祥那点事情放少女乐队里很好圆，立希听灯唱歌都能变成灯骑士，给幼祥幼睦补一段合奏小星星就完事了
+最后那段最变态的是，哪怕观感这么差了都要继续演大祥三件套，只能说是绫奈本人的性癖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 19406#       发表于 2025-2-7 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366481&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-7 11:10</a>
+因为十三集总要用东西填啊。
+本质就是定了第四集炸团第七集哭第十二集包饺子，剩下的没活了只能硬整。
+不 ...</blockquote>
+还剩七集一大堆东西没写啊现在
+
+*****
+
+####  JustW  
+##### 19407#       发表于 2025-2-7 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366478&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-7 11:10</a>
+一方面用各种演出手法让motis显得像个诡异的坏东西，一方面又用灵猫之类的让motis显得好像是个好东西，那你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前来说乐奈的灵视就没有看错过人的本质，游戏剧情里soyo有别的目的请她吃抹茶芭菲都被看破，乐奈直接逃走了
+
+
+*****
+
+####  swessia  
+##### 19408#       发表于 2025-2-7 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">六集看下来，观感好的
+
+软糯小祥【不软糯就不好了】，go团开心小莫，妈妈soyo
+
+海希都变味了
+
+立希啥都好就是没戏份
+
+果然就不该管剧情单纯舔jk美少女
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  白水潭的饿鬼  
+##### 19409#       发表于 2025-2-7 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366175&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-7 10:43</a>
+
+Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会关注财经新闻
+
+在第五话，Soyo从灯和爱音哪里 ...</blockquote>
+【动画角色逆转谈—丰川祥子：当“虚伪”和假面无法掌控他人，人偶开始变成人的时候，祥子是救赎还是破灭？】 [https://www.bilibili.com/video/B ... 05b2413a1e0aae83d0e](https://www.bilibili.com/video/BV1haNwetE3C/?share_source=copy_web&amp;vd_source=2f685364000c005b2413a1e0aae83d0e)
+
+可以看看这个up在视频前面对这个问题的猜测以及下面观众对这个问题找补进行的反驳
+
+我个人意见则是这个新闻被丰川大手隐瞒才是合理的。否则以月之森这种贵族学校，只要是网上能随意搜到的，不可能不传的到处都是
+
+*****
+
+####  iiiiiiiiii  
+##### 19410#       发表于 2025-2-7 11:17
+
+我自己写的睦祥姐妹说假药分析https://tieba.baidu.com/p/9474671057?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.77.1.0&amp;st=1738898219&amp;is_video=false&amp;unique=EB8D4E54E8A57A7B6881D7F9EB8BCD54
+

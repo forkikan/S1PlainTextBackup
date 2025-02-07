@@ -492,3 +492,14 @@ https://cloud.siliconflow.cn/i/z8SkAHeN
 能，变得飞飞飞飞飞飞快
 但是胡说八道程度还是压不下来
 
+
+*****
+
+####  美坂汐里  
+##### 1528#       发表于 2025-2-7 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365219&amp;ptid=2243718" target="_blank">2023-5-15 发表于 2025-2-7 09:10</a>
+
+硅基流动拉满上下文数量还是会遇到输出中断的情况，用的是r1和pro</blockquote>
+请教下，充值多少可以解锁pro，以及在哪选pro模型？谢谢哈
+
