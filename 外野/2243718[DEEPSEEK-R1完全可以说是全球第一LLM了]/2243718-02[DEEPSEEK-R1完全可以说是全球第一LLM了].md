@@ -1719,3 +1719,15 @@ D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充�
 
 这论坛表情怎么不能用了
 
+
+*****
+
+####  zyf199212  
+##### 1635#       发表于 2025-2-8 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372047&amp;ptid=2243718" target="_blank">中二骚年 发表于 2025-2-8 00:49</a>
+D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充完善设定就爽的一批，很多细节D老师都会帮我补完， ...</blockquote>
+和他明确说按照你写的情节来，不要剧情发展过多，一下子写到结局
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

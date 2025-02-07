@@ -1079,3 +1079,13 @@ kanye经常这么搞，只不过每次尺度不太一样，家常便饭了<img s
 
 无语 别带上老中啊 bro 
 
+
+*****
+
+####  CR2  
+##### 116#       发表于 2025-2-8 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我变成这样都是老钟的错！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -8488,3 +8488,21 @@ Mujica第一集之后我同样红迪投票调查，是六成多喜欢三成多�
 中登不滚回头找个后妈再生一个，老登升 ...</blockquote>
 什么168亿就是个契机，祥子妈死的那天中登的命运就注定了，没有168亿也会因为左脚先迈进公司被扫地出门
 
+
+*****
+
+####  Dedicatus-545  
+##### 19952#       发表于 2025-2-8 01:08
+
+这不也是早讨论过了，立一个遗嘱的事用得着这样大费周章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 19953#       发表于 2025-2-8 01:09
+
+说来也挺神必的 mygo动画里算是有羁绊了结果真人没有 am反过来
+事到如今 还是听听歌得了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
