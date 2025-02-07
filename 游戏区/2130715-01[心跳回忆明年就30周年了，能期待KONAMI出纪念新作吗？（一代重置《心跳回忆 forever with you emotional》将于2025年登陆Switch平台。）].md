@@ -3405,3 +3405,19 @@ NTR仙人，专业迫害诗织30年<img src="https://static.saraba1st.com/image/
 
 而且看官网，EVS用的是和心跳4类似的联网生成称呼-下载模式。神经病啊，可能就是4的代码复用.
 
+
+*****
+
+####  穿越护城河  
+##### 274#       发表于 2025-2-7 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362817&amp;ptid=2130715" target="_blank">北一硝子 发表于 2025-2-6 23:08</a>
+搭车求个靠谱的店铺预定</blockquote>
+实体也就普通版了吧，限定版实体已经空了
+
+普通版应该随便买了
+
+买电子版倒不用考虑什么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

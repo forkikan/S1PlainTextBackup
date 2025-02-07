@@ -15178,3 +15178,118 @@ soyo和立希的想法大概就是你不是搞了母鸡卡么，快给我回去�
 
 然后预告和saki对线的是立希，额。。。。也不是不行吧，看saki那个哭哭样子，立希大概还得心软，劣等感终于要治好了么。
 
+
+*****
+
+####  太二EricGuo  
+##### 19224#       发表于 2025-2-7 08:38
+
+看到外网有did患者狠狠共情睦夸睦写的多么好
+
+*****
+
+####  gaayas  
+##### 19225#       发表于 2025-2-7 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364995&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-2-7 08:38</a>
+看到外网有did患者狠狠共情睦夸睦写的多么好</blockquote>
+楼里之前就有，现在不知道咋样了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  达达葱2  
+##### 19226#       发表于 2025-2-7 08:39
+
+<blockquote>aptx8285144 发表于 2025-2-7 08:20
+那起码和“年度佳作”评选毫无关系了（</blockquote>
+今年才开头啊
+
+*****
+
+####  无事忙  
+##### 19227#       发表于 2025-2-7 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362951&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-6 23:14</a>
+
+我弃了有缘再见</blockquote>
+等下，不是要故意抓你回来……我只是看到你的头像想起来你有段时间推荐过一个舅舅，他现在怎样？说的可不可靠
+
+*****
+
+####  aptx8285144  
+##### 19228#       发表于 2025-2-7 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365009&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-7 08:39</a>
+
+今年才开头啊</blockquote>
+公历已经两个多月了（
+
+
+*****
+
+####  岬开斗  
+##### 19229#       发表于 2025-2-7 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364985&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 08:35</a>
+蓝色章鱼终于进化出新形态了，虽然也只是嘴硬的延续，不给你贴便利贴你又不高兴jpg（三板斧进化为四板斧， ...</blockquote>
+懂了，大祥也精神分裂出ob一串字母上号了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  抽搐一下  
+##### 19230#       发表于 2025-2-7 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364985&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 08:35</a>
+
+蓝色章鱼终于进化出新形态了，虽然也只是嘴硬的延续，不给你贴便利贴你又不高兴jpg（三板斧进化为四板斧， ...</blockquote>
+不是立希，衣服不一样
+
+*****
+
+####  DARK_HGCG  
+##### 19231#       发表于 2025-2-7 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364982&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 08:35</a>
+
+感觉立希是最后一个抵抗的人，但是没用，最后一样会因为现实企划而“屈服”在饺子里面 ...</blockquote>
+负隅顽抗的立希最后被变成了粉毛机器人！XD
+
+*****
+
+####  看穿一切的鱼  
+##### 19232#       发表于 2025-2-7 08:43
+
+睦祥想救一下的话 感觉只能是 
+大祥其实来看过睦，但是大莫不让进门，还骗睦说没有来过。
+但是编剧八成是想不到这了，只能马后炮上门哭哭然后两人抱一起哭哭，然后让别人看见了大家一起哭哭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 19233#       发表于 2025-2-7 08:45
+
+鹤卷高达还没播呢。。。电影院能卖20e，拖一下30e也不难，潜力不错的。
+
+个人预约年度是鬼泣新动画，前年2077的网飞动画给人印象真的挺不错的，鬼泣可以期待，然后今年感觉就没啥可以追的了。
+
+母鸡卡作个人是看的很高兴，只少目前没让我觉得有什么崩坏的地方，可能二偶动画看多其中的神奇逻辑都能接受吧。
+
+*****
+
+####  thistimeforlife  
+##### 19234#       发表于 2025-2-7 08:46
+
+少女乐队当然是闹麻了，但不整这么多四不像的玩意儿，演好了共情了就不会在意这些细节的。
+
+还是回归正统，多搞点live和音乐吧，什么都会好起来的，让音乐和星星解决问题，能搞点第二季hhw回那种好活，就还在让6追7的路上。追不了看乐子也行，我这个智障也追过太多智障原创了。
+
+颂乐人偶6集过去到底唱了几首歌？
+
+洗白包寿司收队友开live是定番的话，你鸡无论如何得抓紧了。
+

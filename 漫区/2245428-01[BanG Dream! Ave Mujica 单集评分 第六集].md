@@ -2422,3 +2422,26 @@ go团戏份挺出彩的所以给正分
 主线剧情脉络和多线发展找回了点感觉，但是人物都有点抽风，毁誉参半。</blockquote>
 soyo妈自己都不一定回家，让soyo做这件事意外地合理
 
+
+*****
+
+####  FanKiE  
+##### 252#       发表于 2025-2-7 08:37
+
+ 本帖最后由 FanKiE 于 2025-2-7 08:40 编辑 
+
+合理怀疑柿本广大是在努力往回找补哈基祥的形象才被切割的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Buttercry  
+##### 253#       发表于 2025-2-7 08:42
+
++2
+戏里戏外都是喜剧片，太有搞笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
