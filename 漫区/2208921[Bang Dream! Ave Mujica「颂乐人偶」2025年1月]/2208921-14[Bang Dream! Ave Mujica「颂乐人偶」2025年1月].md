@@ -917,3 +917,186 @@ mygo开场拆ccc和mygo结尾组mujica那会还没炸。
 
 是不是跟她說話前還要用周易算一下？
 
+
+*****
+
+####  xyion  
+##### 19330#       发表于 2025-2-7 10:18
+
+祥子这故事真得全程都用第五话那种方式来写。现在欠了这么多心理刻画，连组mujica的动机都还有好多人get不到。然而台长减法论警告，还是不该在13集二偶里上这么大难度。
+
+*****
+
+####  ads147147  
+##### 19331#       发表于 2025-2-7 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365850&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 10:15</a>
+
+独角兽好歹说我和她已经没有关系了也好，直接说不认识，知道你在逃避，但这也是是侮辱观众的智商 ...</blockquote>
+独角兽：我没看什么母鸡卡动画。
+
+总觉得，一种回旋。怎么说呢，这个女人就是会写这样台词的人。
+
+*****
+
+####  武男  
+##### 19332#       发表于 2025-2-7 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365663&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 09:56</a>
+
+不过这集虽然很多地方很搞，笑的人停不下来，但是soyo拿鞋子当电话那幕观感真的挺好的，十五年的大女主大概 ...</blockquote>
+SOYO：宝宝求你去看医生吧 我没法同时做你的心理医生和妈妈和性玩具和最好的朋友和最坏的敌人和人生导师 
+
+360截图20250207101235838.jpg
+(51.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 10:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/101944hypfpq0vrii22055.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 19333#       发表于 2025-2-7 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365865&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 10:16</a>
+上一季音樂室只有兩個人祥也只會說祝你幸福呀
+
+到底她要達成什麼條件才不當謎語人能好好說話？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好说话，要么你帮她把她爹背了，要么你教她怎么背她爹
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  eyeego  
+##### 19334#       发表于 2025-2-7 10:21
+
+大祥的老师问题就是为什么搞中二小剧场她也说不清 从路人角度看就是我有秘密但我就不说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+初华跟睦头人关系好可以容忍她 海铃就是莫得感情的流水线打工人无所谓 喵梦可不惯着她 放在青年漫画里怕是抬手就要给她一个大比兜了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 19335#       发表于 2025-2-7 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365890&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-7 10:18</a>
+
+祥子这故事真得全程都用第五话那种方式来写。现在欠了这么多心理刻画，连组mujica的动机都还有好多人get不 ...</blockquote>
+我想了半天，其实应该是mygo那会被刺激完了还是想搞乐队。
+
+但是她得打工赚钱，没时间搞乐队，那怎么办呢。
+
+搞个能赚钱的乐队。
+
+*****
+
+####  南宮凝香  
+##### 19336#       发表于 2025-2-7 10:23
+
+<blockquote>江口夕 发表于 2025-2-7 10:20
+好好说话，要么你帮她把她爹背了，要么你教她怎么背她爹
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
+說個話就要背負她的人生嗎？
+
+還真是滿腦子只有自己呢
+
+*****
+
+####  6030sylar  
+##### 19337#       发表于 2025-2-7 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365908&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 10:20</a>
+好好说话，要么你帮她把她爹背了，要么你教她怎么背她爹
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的  ...</blockquote>
+每个人都是自己人生的第一责任人(
+大祥这种非要背，口上还骂你背不了的，就是比睦墨还精神分裂
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  单脚着地  
+##### 19338#       发表于 2025-2-7 10:24
+
+ 本帖最后由 单脚着地 于 2025-2-7 10:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365914&amp;ptid=2208921" target="_blank">eyeego 发表于 2025-2-7 10:21</a>
+
+大祥的老师问题就是为什么搞中二小剧场她也说不清 从路人角度看就是我有秘密但我就不说
+
+初华跟睦头人关系好 ...</blockquote>
+你知道EXO吗？这种给乐队或者组合设计世界观和剧本是现实里很早就有的玩法，这种做法是非常受欢迎的，而且剧情里效果也确实非常好。祥子考虑到了初华和睦麻烦的部分所以引入了面具这个设定，如果猫不摘面具何来容忍一说？你说喵梦不惯着祥子就更奇怪了，喵梦想要的就是这个中二剧场，而不是音乐和乐队演奏，她喜欢的是演戏
+
+*****
+
+####  swessia  
+##### 19339#       发表于 2025-2-7 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得56的大祥老师直接略过吧，编剧没活了不知道塞啥了
+
+你发现第四集软糯小祥和第七集的望睦石能无缝衔接
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  eyeego  
+##### 19340#       发表于 2025-2-7 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365942&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-7 10:23</a>
+我想了半天，其实应该是mygo那会被刺激完了还是想搞乐队。
+
+但是她得打工赚钱，没时间搞乐队，那怎么办呢 ...</blockquote>
+可她没这个能力啊 最终的本质不还是靠白嫖闺蜜？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 19341#       发表于 2025-2-7 10:27
+
+草，贴吧看到说大墨老师对舞鞋和手机的认识可能是反过来的，她看到爱音拿着手机说不定是觉得对方是捏着芭蕾舞鞋的疯子
+
+*****
+
+####  JustW  
+##### 19342#       发表于 2025-2-7 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365833&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 10:13</a>
+有一说一，祥子这种女人虽然很麻烦，那也是建立在你确实对她念念不忘才会觉得麻烦，像是大墨老师那样直接离 ...</blockquote>
+说实话灯睦初这几个不是对祥子的肉体念念不忘的话已经有点说不过去了
+
+*****
+
+####  未来起航  
+##### 19343#       发表于 2025-2-7 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365358&amp;ptid=2208921" target="_blank">yongze 发表于 2025-2-7 09:25</a>
+但是大祥老师比小孩姐有个最大的挡箭牌就是她真的死了妈颓了爹还有个大家长外公要强迫给她不喜欢的人生。废 ...</blockquote>
+真嗣这么个本质缺爱+想爱人又没能力的小孩儿，需要的就是一个宽松的氛围和一点耐心。而且在他身上投入感情也是能有反馈的。
+如果你和葛城美里一样菜，不会爱人，对待碇真嗣你起码还有个“解脱”的手段，就像美里干过的一样：真不想开eva就别开，真想逃避那就滚得远远的，真想毁灭一切那就毁灭好了。
+你把他赶出去过不了多久，他就会自己灰溜溜一脸可怜相地回来的。
+
+祥子更像是明日香那卦：从光辉闪耀的状态日渐沉沦，做事情越做越错，处境一天比一天糟糕，重度的排斥他人+自我厌恶。
+但明日香和她最大的区别（eva独特的地方）在于对她这样一个他者的心理内在做了和真嗣一样的细致描绘，从而不可知的一面被抹掉了。你眼前的她确实无比讨厌，但她内心的几乎一切，那些惹人爱怜的部分，对你也无比明晰。
+大祥就不行。你只能看见她愈发沉沦的脸和不减反增的讨厌鬼脾气。
+甚至现在这种写法还占点仙女钓龟男的PUA<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能写出这种不是人的模样，我只能理解为编剧对这角色有着饭圈厕妹般的疼爱亦或是极度的憎恨
+
+—— 来自 Xiaomi 23116PN5BC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 19344#       发表于 2025-2-7 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365948&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-7 10:24</a>
+每个人都是自己人生的第一责任人(
+大祥这种非要背，口上还骂你背不了的，就是比睦墨还精神分裂</blockquote>
+那你背的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就说背不背的了吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
