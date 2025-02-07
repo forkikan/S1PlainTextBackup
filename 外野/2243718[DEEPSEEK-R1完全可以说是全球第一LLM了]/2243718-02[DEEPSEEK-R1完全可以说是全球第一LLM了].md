@@ -1266,3 +1266,24 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 卧槽，R1配合资料库无敌了，各种人称代词耍的飞起，光是幕刃这类给刘备加码的人称代词都可以把十几个代词用 ...</blockquote>
 不说刘备文，就以写文来说。资料库里就是放所有人物的设定？比如职业，年龄，人物关系，技能 口癖 ？举止模型能控制么？比如说话按小孩的口气，学生，或者 工人的风格说话？还有设计的地图关系也能用上吗？比如设定一个地方去另外一个地方过程中遇到的可能？
 
+
+*****
+
+####  秦南心  
+##### 1598#       发表于 2025-2-7 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370729&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-7 21:03</a>
+
+不说刘备文，就以写文来说。资料库里就是放所有人物的设定？比如职业，年龄，人物关系，技能 口癖 ？举止 ...</blockquote>
+那就要很大量的资料库了吧，我只是定义了女主与其他人交互时使用各种代词的称呼就感觉很哇塞了，可以试试看能不能影响它的其他行文，就是要先代入到文章里来写一些实际发生事情会有什么样的行为逻辑…
+
+
+*****
+
+####  约翰里德  
+##### 1599#       发表于 2025-2-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370705&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 21:00</a>
+不传播没啥啊大不了api没了，换个号再充钱</blockquote>
+不是，涉及某拳的词会被版主砍头的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

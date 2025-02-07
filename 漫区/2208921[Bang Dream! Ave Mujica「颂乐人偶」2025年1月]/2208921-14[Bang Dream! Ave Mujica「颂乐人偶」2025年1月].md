@@ -6034,3 +6034,98 @@ MYGO的别C了！
 
 问题是，你不能一边要求你外孙女切割感情，一边在你自己在意的事上掺杂个人感情
 
+
+*****
+
+####  Nungesser  
+##### 19770#       发表于 2025-2-7 21:13
+
+<blockquote>江口夕 发表于 2025-2-7 21:00
+别忘了，老登要大祥做继承人。
+
+不要看这个人说什么要看这个人做什么。
+</blockquote>
+还在继承人还在继承人，这动画哪里说过继承人这档子事了？又是靠英文官推那个误译么？能不能就事论事，少拿动画里没提过的玩意出来说三道四。
+
+*****
+
+####  木板春香  
+##### 19771#       发表于 2025-2-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370703&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 21:00</a>
+
+别忘了，老登要大祥做继承人。
+
+不要看这个人说什么要看这个人做什么。</blockquote>
+这一段也是回旋镖，
+
+<img src="https://img.saraba1st.com/forum/202502/07/210950su1catchzukv3r8t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (532.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:09 上传
+
+祥子妈妈去世后，并没有被马上驱逐，
+
+<img src="https://img.saraba1st.com/forum/202502/07/211025litvrtmowv4xte00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (451.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:10 上传
+
+清告自虐式盲目努力后来遭遇了诈骗。
+
+祥子妈妈去世后看了蝶团的演出，
+
+<img src="https://img.saraba1st.com/forum/202502/07/211216gldwl5ofpeapp4nm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (653.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:12 上传
+
+ 遭遇了悲剧后，是音乐引导了CCC的诞生
+
+<img src="https://img.saraba1st.com/forum/202502/07/211309alkbl3i22tqlbkkh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (600.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 21:13 上传
+
+。
+
+以编剧的变态程度，后续解决问题，还是要靠音乐，而不是所谓的自己想通。
+
+ 悲剧的诞生是性格使然，但音乐和身边的人才是拯救悲剧的关键。
+
+*****
+
+####  江口夕  
+##### 19772#       发表于 2025-2-7 21:14
+
+ 本帖最后由 江口夕 于 2025-2-7 21:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370797&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-7 21:13</a>
+还在继承人还在继承人，这动画哪里说过继承人这档子事了？又是靠英文官推那个误译么？能不能就事论事，少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你认真的？大祥不是继承人的话更惨了，直接变成雌工具了。你确定你要这样黑老登么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 19773#       发表于 2025-2-7 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370736&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:04</a>
+
+我说的忠言逆耳你还没看出来么，如果一个人预测到一个人可能因为性格的缺陷而去陷入悲剧，提前进行了各种 ...</blockquote>
+你要搞清楚，你要的是一个丰川家继承人，还是你的外孙女，你说的这些归根结底不就是三个字“为你好”
+
+如果你的外孙女觉得她爹废了就把她爹切割掉，那如果有一天她觉得你废了，是不是可以把你也切割掉？当然，到时候可以有预警，毕竟是“为你好”
+
