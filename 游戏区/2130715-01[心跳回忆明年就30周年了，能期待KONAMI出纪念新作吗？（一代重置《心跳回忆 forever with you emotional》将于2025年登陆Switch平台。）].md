@@ -3392,3 +3392,16 @@ NTR仙人，专业迫害诗织30年<img src="https://static.saraba1st.com/image/
 
 搭车求个靠谱的店铺预定
 
+
+*****
+
+####  泰坦失足  
+##### 273#       发表于 2025-2-7 07:48
+
+[https://x.com/tokimeki573/status/1887426013866697184](https://x.com/tokimeki573/status/1887426013866697184)
+
+官推第一次用新版来做视频（但是选择原版画面模式）
+[https://www.konami.com/games/tokimeki/1r/](https://www.konami.com/games/tokimeki/1r/)
+
+而且看官网，EVS用的是和心跳4类似的联网生成称呼-下载模式。神经病啊，可能就是4的代码复用.
+

@@ -15009,3 +15009,62 @@ mujica该往何处去？哦，我天哪事到如今在本番“我就是要写�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AP0rt_  
+##### 19209#       发表于 2025-2-7 07:49
+
+突然有点想回顾一下小时代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 19210#       发表于 2025-2-7 07:53
+
+ 本帖最后由 江口夕 于 2025-2-7 07:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友也是搞，觉得什么都不知道的前队友看到自己有个废物老爹是好事。也就二次元个个心善，放现实里。除了嘲笑没有人会共情的。
+楼友看到废物老爹立马就切割了，要是放楼友身上不也一样逃的远远的。别人问你你爸是不是废物，你当然回答没有
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  达达葱2  
+##### 19211#       发表于 2025-2-7 07:55
+
+<blockquote>肛之练筋士 发表于 2025-2-7 07:24
+你看下面的回复啊，对看乐子的观众来说的确是好评居多</blockquote>
+那不也是好评吗？
+
+*****
+
+####  影伴光生  
+##### 19212#       发表于 2025-2-7 07:56
+
+孕吧有篇文章，接的第四集后半酒店环节，大家接受了双重人格的说法，不过为了唤醒睦头人，直接把祥睦吊起来开电
+怎么逆天二创都能做到比本篇还有团魂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 19213#       发表于 2025-2-7 07:57
+
+都六集了还在抽陀螺，所以这是打算剩下七集一转大祥传舍弃其他四人。还是鸡团的各位全都轻拿轻放，再十人包饺子。
+编剧不会觉得祥老师哭哭就能洗白了吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  出什么都没用了  
+##### 19214#       发表于 2025-2-7 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362073&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-6 22:33</a>
++100000我觉得这是目前最正常的一话了，全面回收伏笔，所以发展都不突兀，不满意的究竟是想看什么剧情我 ...</blockquote>
+所有发展都不突兀指楼梯滚下来没事，眼睛里能看到两个框
+
