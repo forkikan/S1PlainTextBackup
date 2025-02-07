@@ -1324,3 +1324,13 @@ chatbox 设置20 0.6 0.7可以不
 
 我终于知道为什么D老师在写设定时总能让我血压上升了
 
+
+*****
+
+####  minefriys  
+##### 1603#       发表于 2025-2-7 21:54
+
+之前没问过D老师数学题，今天心血来潮找了道高中难度题目给D老师做，结果思考7分钟才做出来，这个时间正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2254A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

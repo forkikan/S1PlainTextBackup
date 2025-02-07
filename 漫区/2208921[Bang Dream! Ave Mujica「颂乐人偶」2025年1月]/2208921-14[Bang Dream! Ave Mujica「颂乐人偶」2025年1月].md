@@ -6518,3 +6518,142 @@ MYGO的别C了！
 本来还期待是 ...</blockquote>
 你说的酗酒家暴不是前面的内容吗？这一话就只表现了他以为女儿回来了很惊喜而已，不懂这是什么负面塑造。
 
+
+*****
+
+####  木板春香  
+##### 19799#       发表于 2025-2-7 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371023&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-2-7 21:47</a>
+
+你说的酗酒家暴不是前面的内容吗？这一话就只表现了他以为女儿回来了很惊喜而已，不懂这是什么负面塑造。 ...</blockquote>
+ 这也是一个回旋镖：嘲笑清告很早就自以为自己能狠心不去拖累女儿，想通过自我感动式切割了女儿，让女儿回去过好生活，实际心里还是放不下，希望女儿能回来看自己。
+
+  在一起的时候不好好相处，真走了又盼着回来。
+
+*****
+
+####  玖羽  
+##### 19800#       发表于 2025-2-7 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371001&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:43</a>
+
+一个自甘堕落的人会对周围的人造成多大的危害，和他一起住的祥子最后变成什么样子不是很明显的吗？ ...</blockquote>
+从定治的角度说，你说的这些都对，问题是，如果未来丰川祥子要用同样的逻辑对待丰川定治，定治怎么办
+
+
+*****
+
+####  江口夕  
+##### 19801#       发表于 2025-2-7 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370988&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:42</a>
+那个玖羽试图在攻击我说的合理的行为是一种虚伪，但我在回应的是，如果只凭着冲动做事，然后遇到问题就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前就说了不要看他说什么，要看他做什么，大祥没觉得她老爸是废物吗，当然觉得。你就说是不是照顾了？是不是去警局捞人了？
+按你说的自我满足，所有东西都可以是自我满足。爸妈生你也是自我满足，你照顾你生病的爸妈也是自我满足，自我满足又怎么样？谁定义不能自我满足的？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  zhoujin8584  
+##### 19802#       发表于 2025-2-7 21:51
+
+虽然很不喜欢在少女乐队番聊大人，你们打不住这话题有没有可能丰川清告作为丰川家的赘婿他万一某一天再婚了，两个跟丰川家毫无血缘的人生下来的孩子跟祥子是同顺位的继承人，田氏代齐想想就恶心，丰川定治还特别跟祥子说了要把她的继承顺位提一级就是为了这个
+
+
+*****
+
+####  安娜导函数  
+##### 19803#       发表于 2025-2-7 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370238&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 19:40</a>
+你自己造一堆假药找补也太好笑了吧
+
+有没有可能168亿是周围人全在反对然后中登自作主张欺上瞒下搞的，一 ...</blockquote>
+不把老登打成反派最终幕后黑手，那不只能是我们15年之大女主大祥老师真的打的有问题了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+总有人接受不了所以非要造什么"内鬼"假药<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+要我说，真对应睦妈的电影，按大莫老师视角，祥子才是最大内鬼，还有初华、大喵，他们都是背叛睦头人的叛徒<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 19804#       发表于 2025-2-7 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371023&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-2-7 21:47</a>
+
+你说的酗酒家暴不是前面的内容吗？这一话就只表现了他以为女儿回来了很惊喜而已，不懂这是什么负面塑造。 ...</blockquote>
+因为毫无变化啊，不懂的话你不用看我说那些酗酒家暴，整个场景没有描写他有改变，那默认状态就是祥子走的那天
+
+这样他看到祥子回来惊喜的描写就和一个啥都不干天天想着天上掉钱的人听到叮的一声以为真的掉钱了一样，这种在大众那里就是负面塑造
+
+*****
+
+####  烂片雷达  
+##### 19805#       发表于 2025-2-7 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67344945&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-4 13:47</a>
+我感觉观众真是闹麻了
+日本jk平常坐姿不就跪坐吗，两个jk坐一起吃零食玩闹，完了一个jk起身要走另一个jk拉 ...</blockquote>
+说起来之前烂炒睦下跪的是不是现在都在这个事情上装死了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+第六集过后大家提都不提这事儿像群体失忆一样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 19806#       发表于 2025-2-7 21:54
+
+祥子目前这个心性 抓回去当财团继承人说不定能赔掉1680亿
+
+看不懂老登图什么
+
+*****
+
+####  Delicatus545  
+##### 19807#       发表于 2025-2-7 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371062&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-7 21:53</a>
+
+因为毫无变化啊，不懂的话你不用看我说那些酗酒家暴，整个场景没有描写他有改变，那默认状态就是祥子走的 ...</blockquote>
+你有没有意识到想着天上掉钱是你自己脑补的？先入为主
+
+*****
+
+####  江口夕  
+##### 19808#       发表于 2025-2-7 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371021&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 21:47</a>
+如果只是一个月去打扫确认一下为什么非要和外公闹翻自己一个人搬出去又搬回来呢？
+
+  编剧设计出来的这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">照你的说法去救落水的，自己也淹死了。大祥什么精神状态。现在回老宅不代表以后继续呆在老宅。救落水的自己出来呼吸口气自救下只能说出于本能，也符合大祥遇事喜欢逃避的性格
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  安娜导函数  
+##### 19809#       发表于 2025-2-7 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370444&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 20:09</a>
+其他姑且不论，这片要想把鸡团这群神人塑造成包饺子且不违和，没有原创动画意感觉的机械降神（邦邦的世界观 ...</blockquote>
+当然咯，编剧从来就没觉得喵梦有什么大问题<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 19810#       发表于 2025-2-7 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371042&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-7 21:50</a>
+
+从定治的角度说，你说的这些都对，问题是，如果未来丰川祥子要用同样的逻辑对待丰川定治，定治怎么办 ...</blockquote>
+  当然是接受自己被切割，自己想要培养出一个自立自强的继承人，抛弃切割一个犯错误的自己不是很合理的行为么？ 如果你希望一个人变成正直而强大，自己成为牺牲品的时候当然不要抱怨。
+
+  谭嗣同和康有为的区别。
+
+  
+
+  
+
+  
+
