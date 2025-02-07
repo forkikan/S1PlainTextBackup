@@ -1188,3 +1188,17 @@ pro-R1确实可以，虽然该慢还是慢，但起码不卡，而且也完整�
 配置open ai兼容api，base url那 ...</blockquote>
 这只能网页用吧，硅基不是一般都是拿API接其他chatbox之类用么，这个能配置到chatbox么
 
+
+*****
+
+####  zyf199212  
+##### 1591#       发表于 2025-2-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370285&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-7 19:46</a>
+硅基pro版r1的深度思考有很多乱码什么情况，还好不影响实际写出的内容
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+温度太高了，调成0.7
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
