@@ -1650,3 +1650,24 @@ GEMINI的文风虽然不够华丽不够灵感迸发，但是稳定流畅字数�
 可以用酒馆，把设定写到世界信息里，这样每次对话都会自动把设定加到后面 ...</blockquote>
 酒馆到底是什么，求个攻略<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  果壳中的松鼠  
+##### 1629#       发表于 2025-2-8 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371926&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-8 00:23</a>
+
+酒馆到底是什么，求个攻略</blockquote>
+这个：[https://github.com/SillyTavern/S ... ain/README-zh-cn.md](https://github.com/SillyTavern/SillyTavern-Launcher/blob/main/README-zh-cn.md)
+
+使用方法可以去B站搜一下，最近好多教程
+
+
+*****
+
+####  2023-5-15  
+##### 1630#       发表于 2025-2-8 00:35
+
+拿同一个问题来问硅基流动pror1，官方网页ds，硅基流动在思考部分文本太长就中断输出了，只有官方网页能正常，请问有懂解决办法的么
+

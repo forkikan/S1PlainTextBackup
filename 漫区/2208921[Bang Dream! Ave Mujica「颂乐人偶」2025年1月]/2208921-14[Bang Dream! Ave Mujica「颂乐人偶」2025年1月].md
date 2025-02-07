@@ -8183,3 +8183,96 @@ Mujica第一集之后我同样红迪投票调查，是六成多喜欢三成多�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ntrntr1  
+##### 19926#       发表于 2025-2-8 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371938&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-8 00:25</a>
+
+不是，所以为什么会觉得是老登把祥爹扫地出门的呢？我看的不是祥爹自己引咎辞职自我流放吗？老登只说了他不 ...</blockquote>
+因为采访说了
+
+丰川家の黑幕<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+其实为了方便包饺子的角度确实可能中登是被老登陷害的  
+
+不过估计大家更想看三角初华小岛的秘密。。。
+
+*****
+
+####  木板春香  
+##### 19927#       发表于 2025-2-8 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371946&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-8 00:26</a>
+
+因为采访说了
+
+丰川家の黑幕</blockquote>
+声优的采访自我理解不能当成推论的基石啊，出事了就怪娘母娘母是吧，反正是大猫说的。
+
+*****
+
+####  syndrome2032  
+##### 19928#       发表于 2025-2-8 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371938&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-8 00:25</a>
+不是，所以为什么会觉得是老登把祥爹扫地出门的呢？我看的不是祥爹自己引咎辞职自我流放吗？老登只说了他不 ...</blockquote>
+因为中登不再是丰川家的人这个判决只有作为家长的老登能做出，哪怕是中登提出也得经过老登同意。
+
+他作为封建大家长当然全责，这个不难理解吧。
+
+
+*****
+
+####  烂片雷达  
+##### 19929#       发表于 2025-2-8 00:31
+
+年龄差一样，猫希有人说炼铜，猫睦却都说两个小可爱，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 19930#       发表于 2025-2-8 00:32
+
+大猫老师究竟多大?高中肄业来东京讨生活所以从来不穿校服是吗。
+
+*****
+
+####  ntrntr1  
+##### 19931#       发表于 2025-2-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371979&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-8 00:32</a>
+
+大猫老师究竟多大?高中肄业来东京讨生活所以从来不穿校服是吗。</blockquote>
+她们那个学校都不穿的
+
+*****
+
+####  江口夕  
+##### 19932#       发表于 2025-2-8 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了，编个假药好了，灯自闭症大祥驾轻就熟，这么熟练，以前是不是帮过另一个自闭症。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  木板春香  
+##### 19933#       发表于 2025-2-8 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371979&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-8 00:32</a>
+
+大猫老师究竟多大?高中肄业来东京讨生活所以从来不穿校服是吗。</blockquote>
+熊本妹来东京上高中，现在高一，怎么就成肄业了
+
+*****
+
+####  syndrome2032  
+##### 19934#       发表于 2025-2-8 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371985&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 00:34</a>
+熊本妹来东京上高中，现在高一，怎么就成肄业了</blockquote>
+我还以为大猫老师已经大学了所以从来不穿校服。
+
