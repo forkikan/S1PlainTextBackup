@@ -4066,3 +4066,100 @@ D老师为你解答<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 怎么可能素莫，真觉得这种CP有前途吗？你要是坚持莫那么睦还怎么塑造？
 
+
+*****
+
+####  fuwamoco  
+##### 19616#       发表于 2025-2-7 14:44
+
+别的不说，墨这波又菜又狂又直的反差形象，现在投票睦墨二选一都是墨领先了
+
+*****
+
+####  南宮凝香  
+##### 19617#       发表于 2025-2-7 14:45
+
+素莫
+
+睦祥 
+
+我們各玩各的
+
+半身 （指只有半個人是CP）
+
+*****
+
+####  一心而用  
+##### 19618#       发表于 2025-2-7 14:46
+
+悲伤的doloris
+<img src="https://p.sda1.dev/21/08f726a32d6af7a8bcc2372ecd43c3fa/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7a843c44be7e65e481b3666ca17750d7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1743d6bd9a7ebe5b3a243da8a49c4e00/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7b267c26a38aea8faf986038d8d232c5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 19619#       发表于 2025-2-7 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368113&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-7 14:39</a>
+
+从最简单的脑回路看，下集莫小姐就要作为反派担当垫给祥睦了，提前祝莫小姐一路走好
+
+当然如果wsd想继续榨 ...</blockquote>
+常见套路，睦成功反杀把Morits打回人偶
+
+后面在关键时刻
+ <blockquote>睦：mortis啊，neuron的同居者啊，我不能让你夺取我的精神，但是将你呼唤而来的不是别人，正是我，是那一天的若叶睦，吾等是休戚与共，寄宿于同一肉体的两个灵魂，现在便将力量借与我！！mortis！！！
+
+mortis：何等任性！否定压力，想将吾燃尽吗？若叶睦！
+
+睦：不！mortis啊！我会接受你，那一晚，我的确呼唤了你，我体内极端的恐惧与想拯救乐队的渴望呼唤了你，不可否定，你便是我的一部分！！
+
+（旁白：若叶睦在茶道的尽头，发现了充满禅意的真实，不拒绝灵魂中的污秽，不被其摆弄操纵，只是与接受亲爱吉他的演奏同样，接受这一切）
+
+咿呀呀呀呀呀呀呀！！！！！Wasshoi！！！！
+
+如今若叶睦已经接受mortis，进入了一心同体的状态！！！</blockquote>
+
+*****
+
+####  595505568  
+##### 19620#       发表于 2025-2-7 14:47
+
+主要是现在睦这个状态<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，现在还会强化素世的圣化的母性，你确定睦不正视mortis是应当面对的自我情绪可以吗（
+
+*****
+
+####  一心而用  
+##### 19621#       发表于 2025-2-7 14:47
+
+<img src="https://p.sda1.dev/21/ce3ff900876043bc65ee721bd55df9ee/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/acb61e1853d1301d0d20d09389daf7b3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 19622#       发表于 2025-2-7 14:48
+
+墨是剧里最能满足soyo欲望的人，soyo一直有着强烈的照顾别人的欲望，而且渴望得到被照顾者的正反馈。但在月之森她躲不开外表装的那套，在mygo和大家是接过伤疤的损友了没有反馈，只有墨最适合释放她的母性，而且小墨很愿意说soyo爱听的那些话。
+
+*****
+
+####  一心而用  
+##### 19623#       发表于 2025-2-7 14:48
+
+蜘蛛侠
+<img src="https://p.sda1.dev/21/98b6e47235b06535caeac98c769e444b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhigui  
+##### 19624#       发表于 2025-2-7 14:52
+
+唉，一觉醒来越想越觉得编剧变态，但凡让祥子闭嘴都能比说话效果好，纯纯编剧的硬实力
+
+不过我还是觉得现在社区舆论对大角老师还是太过“友好了”，水母出事了可是整个版面清一色的在清算59，而我们的角老师又美美隐身噜
+
