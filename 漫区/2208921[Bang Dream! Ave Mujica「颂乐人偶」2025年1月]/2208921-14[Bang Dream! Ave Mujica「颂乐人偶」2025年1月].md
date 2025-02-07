@@ -3710,3 +3710,84 @@ soyo来送别吧，希望不是soyo来动手，而是说“下次再一次玩吧
 
 <img src="https://s3.bmp.ovh/imgs/2025/02/07/64f09c59421dc533.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 19580#       发表于 2025-2-7 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367813&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 13:53</a>
+我觉得睦祥亲姐妹，祥子是过继到丰川家的。中登可能连女儿都没有，美奈美才是祥子亲妈。睦就是美奈美跟丰川 ...</blockquote>
+兄弟，别再给自己造假药了，我看你吃假药都吃魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+这剧再像八点档可前面还有个title叫BanGDream，最后10个人也是要进手游的，不会真给你整什么家庭伦理剧的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 19581#       发表于 2025-2-7 14:06
+
+中登有几个特写镜头特意给了手指上的结婚戒指，可能在丧妻的那一刻中登的心就坏死了，只不过还有个冠冕堂皇的目标为了祥子要担起这个小家，后面的168彻底让他无法站起来了，估计脑海里时时刻刻都是亡妻苛责的面孔。想要遗忘却脱不下戒指，就像祥子说别来了，但却把每张灯得得纸条都收集在日记里一样。
+
+*****
+
+####  兔耳僵尸  
+##### 19582#       发表于 2025-2-7 14:09
+
+居然能觉得SOYO比现在的祥恶劣，先不说她这种性格能不能踢走爱音和猫，就算真干了和从小长大的青梅竹马能比吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 19583#       发表于 2025-2-7 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367647&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-7 13:27</a>
+又是我最喜欢的be感吗，但是目前这个制作组估计只能做出一种莫名其妙的甘蔗渣味 ...</blockquote>
+铁有甘蔗渣味道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 19584#       发表于 2025-2-7 14:11
+
+真情比金坚吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+单方面的半身，单方面的归宿，单方面的情比金坚，对大祥来说睦子米真有多重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 19585#       发表于 2025-2-7 14:11
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 14:13 编辑 
+
+其实关于团魂，我之前一直有提过，月光能给予人偶生命，月光就是音乐，所以音乐能让A团众人获得“生命”，获得表现自我、实现自我的机会；而祥子是作曲者，是乐队领袖，是神明，是月亮，其他人必须依赖于她，让祥子成为自己心声的“代言者”
+
+音乐即是生命，这就是团魂
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  08df1258c5ed098  
+##### 19586#       发表于 2025-2-7 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367864&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-7 14:01</a>
+中登比较合理的推测是168e案是背锅于是被扫地出门。
+
+但是摆烂成那个样子也是有点寒心了，特别是女儿做出了 ...</blockquote>
+中登都不一定是被老登踢的，被诈骗后家族冷落他然后自己切割谢罪了都有可能。
+毕竟祥子也干了，还干了好几次。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 19587#       发表于 2025-2-7 14:13
+
+确实，还是让音乐来说话。在我心中制作组至少还欠A团3场LIVE
+
