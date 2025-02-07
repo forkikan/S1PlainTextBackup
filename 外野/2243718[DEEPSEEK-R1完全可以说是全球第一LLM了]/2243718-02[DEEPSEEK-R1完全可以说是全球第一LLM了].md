@@ -783,3 +783,11 @@ api这个东西影响的只有你调用的端口，和对话没关系
 
 顺便传个火[https://cloud.siliconflow.cn/i/o8FQP868](https://cloud.siliconflow.cn/i/o8FQP868)
 
+
+*****
+
+####  requiem116  
+##### 1552#       发表于 2025-2-7 15:40
+
+感觉白嫖的siliconflow现在使用体验差了好多，动不动就截断输出了，感觉是不是想让人充钱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

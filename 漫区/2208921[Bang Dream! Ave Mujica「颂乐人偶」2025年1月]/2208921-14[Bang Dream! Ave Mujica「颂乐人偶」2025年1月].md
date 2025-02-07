@@ -4526,3 +4526,102 @@ soyo早就不舔了，下一集估计就是报仇回
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  capraeLinn  
+##### 19656#       发表于 2025-2-7 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367184&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 12:24</a>
+
+但这些是给观众看的，又不是给剧中人看的，别被高位视角给骗到啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这是给观众看的，所以这就是最大的问题啊，高位视角都看不懂这个角色，那这个角色塑造难道是有效的吗？
+
+看完动画我对motis这个角色的认知只有迷惑，对她的情绪认知是断断续续的。
+
+我认为这个双重人格最大的问题不是剧本逻辑混乱，而是情绪引导混乱。
+
+*****
+
+####  安娜导函数  
+##### 19657#       发表于 2025-2-7 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368491&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 15:33</a>
+
+但祥子注定是神明，因为她就是作曲者，除非换一个人来作曲，就像换一个鼓手来敲鼓一样，祥子是没有作为神 ...</blockquote>
+问题大祥老师的性格质变打算怎么安排呢？还是现在这种软糯的性格肯定不行 不知道后面能写成啥样了
+
+*****
+
+####  595505568  
+##### 19658#       发表于 2025-2-7 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368502&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-7 15:35</a>
+这是给观众看的，所以这就是最大的问题啊，高位视角都看不懂这个角色，那这个角色塑造难道是有效的吗？
+
+ ...</blockquote>
+防护性防自毁的子人格却看不出为什么防自毁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 19659#       发表于 2025-2-7 15:37
+
+<blockquote>天空塔书记官 发表于 2025-2-7 15:33
+但祥子注定是神明，因为她就是作曲者，除非换一个人来作曲，就像换一个鼓手来敲鼓一样，祥子是没有作为神 ...</blockquote>
+立希： 我原來是神？！
+
+*****
+
+####  玖羽  
+##### 19660#       发表于 2025-2-7 15:38
+
+<img src="https://img.saraba1st.com/forum/202502/07/153836nmeyu0ekui4kmy00.jpg" referrerpolicy="no-referrer">
+
+<strong>f68_r.jpg</strong> (89.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/153836d1z7v9y3lq72kl9b.jpg" referrerpolicy="no-referrer">
+
+<strong>265628.jpg</strong> (203.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 15:38 上传
+
+*****
+
+####  595505568  
+##### 19661#       发表于 2025-2-7 15:40
+
+还有第六话开头台词解决了第五话结尾的翻译问题导致的吵架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是灯这么一搞mygo显得很没团魂怎么办
+
+
+*****
+
+####  指南アキラ  
+##### 19662#       发表于 2025-2-7 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368278&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-7 15:04</a>
+
+我问问啊，小睦要墨提斯去阻止soyo去大祥家那
+
+是因为怕soyo看到大祥家那惨样后大祥自尊又受损了
+
+还是怕soyo ...</blockquote>
+当然是担心祥子非常难堪的一面暴露在其他人眼前
+
+祥子家里这种情况说出来都很尴尬，更别提直接看到了，简直比过年去亲戚家串门父母说儿子去年的成就是组了一台NAS还难堪
+
+*****
+
+####  是谁的书画  
+##### 19663#       发表于 2025-2-7 15:43
+
+Mygo的五个人在Ave Mujica就是纯纯的工具啊，大家各自拿出最好用的一点来推动鸡团剧情
+

@@ -9125,3 +9125,27 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 
 几个MSV的人物版权，除了卡多之外，其实游戏和漫画可以用，但是动画和影视不能随便上，要额外去协调授权。然后前哨战机设可以用，人物和故事版权存在争议，作者不授权。所以MSV人物轻易不会用作动画，如果用，那么会是正片人物。
 
+
+*****
+
+####  王留美  
+##### 6617#       发表于 2025-2-7 15:43
+
+<img src="https://img.saraba1st.com/forum/202502/07/154249gomqeueqtoczmtzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6724.jpeg</strong> (406.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/154250n94k9kyjv5y5z953.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6725.jpeg</strong> (311.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 15:42 上传
+
+诚哥锐评麻球：普通人 
+
