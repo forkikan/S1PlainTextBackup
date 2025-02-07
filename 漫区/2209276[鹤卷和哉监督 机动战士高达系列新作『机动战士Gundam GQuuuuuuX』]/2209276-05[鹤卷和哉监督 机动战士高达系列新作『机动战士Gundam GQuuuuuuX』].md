@@ -9023,3 +9023,16 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 6607#       发表于 2025-2-7 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364901&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-7 08:11</a>
+
+◤大ヒット御礼◢
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』</blockquote>
+好！本周末破23亿超相逢在宇宙吧！
+
