@@ -79,3 +79,30 @@
 我说有些人不要先贷款吃shi好吗，天角再招人也不一定是用在废都项目的，这个游戏部门也不是做一作就关掉的 ...</blockquote>
 因为招聘岗位就明确标了废都物语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  M乔梦  
+##### 779#       发表于 2025-2-7 16:55
+
+说实话我反而担心天角作为一个出版物方面公司，会等到版号拿到再拿出来卖
+
+
+*****
+
+####  宛若青空  
+##### 780#       发表于 2025-2-7 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368937&amp;ptid=2093296" target="_blank">rp1993 发表于 2025-2-7 16:29</a>
+因为招聘岗位就明确标了废都物语</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然有点慌，但，算了我看看能不能问到点内部消息
+
+*****
+
+####  kuarwbwe  
+##### 781#       发表于 2025-2-7 17:04
+
+主要拖太久了，本来我以为最晚去年也能玩上了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

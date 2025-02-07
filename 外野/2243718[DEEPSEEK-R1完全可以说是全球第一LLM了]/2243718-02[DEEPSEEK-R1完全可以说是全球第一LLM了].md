@@ -929,3 +929,19 @@ pro就是速度快些，不至于扔那卡半天，和刘备文没啥关系
 pro还有啥区别吗实名了能玩刘备文吗</blockquote>
 实名制是充值要求的，和其他一切使用无关。
 
+
+*****
+
+####  SevenYuan23  
+##### 1566#       发表于 2025-2-7 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369063&amp;ptid=2243718" target="_blank">费雷拉 发表于 2025-2-7 16:44</a>
+搜索page assist游览器插件安装。
+
+打开插件网页，设置里把语言改成中文，
+
+配置open ai兼容api，base url那 ...</blockquote>
+好像不显示COT，有办法解决吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
