@@ -1100,3 +1100,136 @@ SOYO：宝宝求你去看医生吧 我没法同时做你的心理医生和妈妈
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  zhzij111  
+##### 19345#       发表于 2025-2-7 10:28
+
+ 本帖最后由 zhzij111 于 2025-2-7 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365908&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 10:20</a>
+好好说话，要么你帮她把她爹背了，要么你教她怎么背她爹。你不能解决她的问题，又不能教她解决问题，要么 ...</blockquote>
+最正经背她爹的方法就是别组这个逼乐队了老老实实回去当大小姐，丰川老登出于公事不能照顾这个外姓女婿，丰川大小姐没事接济接济亲爹谁又能说什么，这样同时满足了她爹她爷爷的愿望，也就她自己不能玩乐队了不是很爽
+
+现在摆烂了爹也不背了乐队也不搞了，也不敢真切割丰川家还是要回去当大小姐，像个小丑一样
+
+说到底还是满脑子都是自己，既想玩乐队又要自尊心导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  烂片雷达  
+##### 19346#       发表于 2025-2-7 10:29
+
+莫莫为什么见到爱音就龇牙哈气，是不是在爱音身上闻到了祥子的味道<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 19347#       发表于 2025-2-7 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365988&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-7 10:27</a>
+
+真嗣这么个本质缺爱+想爱人又没能力的小孩儿，需要的就是一个宽松的氛围和一点耐心。而且在他身上投入感 ...</blockquote>
+这么一说，独角兽确实很有厕妹的感觉
+
+*****
+
+####  6030sylar  
+##### 19348#       发表于 2025-2-7 10:29
+
+虽然有爱音跟大祥对标，都是逆风逃兵，顺风趾高气扬，给观众理解行为
+但爱音有soyo和立希做平衡，大祥身边只有两个舔狗，大喵只能掀桌子不干，大祥这个角色在剧情上完全没人给他做对手，飘在天上，做事完全随心所欲
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  eyeego  
+##### 19349#       发表于 2025-2-7 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366003&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-7 10:29</a>
+莫莫为什么见到爱音就龇牙哈气，是不是在爱音身上闻到了祥子的味道</blockquote>
+一眼看穿了这个女人的吉他力只有5<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 19350#       发表于 2025-2-7 10:32
+
+反复看了几个re，最后感觉最深的是，鸡团的路人粉也太嗜血长颈鹿了，录像传母鸡卡复活那段也太嗜血了
+
+*****
+
+####  江口夕  
+##### 19351#       发表于 2025-2-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365999&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-7 10:28</a>
+最正经背她爹的方法就是别组这个逼乐队了老老实实回去当大小姐，丰川老登出于公事不能照顾这个外姓女婿， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是小丑，千亿老登都伸出手让你啃老了，现实里有人会拒绝么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 19352#       发表于 2025-2-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366009&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-7 10:29</a>
+
+这么一说，独角兽确实很有厕妹的感觉</blockquote>
+独角兽就是厕妹啊，味道比冈妈还明显的。。。
+
+*****
+
+####  DARK_HGCG  
+##### 19353#       发表于 2025-2-7 10:33
+
+<blockquote>烂片雷达 发表于 2025-2-7 10:29
+莫莫为什么见到爱音就龇牙哈气，是不是在爱音身上闻到了祥子的味道</blockquote>
+放中世纪小莫就是要被圣徒驱邪的恶灵，当然怕圣爱音
+
+
+*****
+
+####  zhzij111  
+##### 19354#       发表于 2025-2-7 10:34
+
+ 本帖最后由 zhzij111 于 2025-2-7 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366061&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-7 10:33</a>
+大家都是小丑，千亿老登都伸出手让你啃老了，现实里有人会拒绝么
+
+—— 来自 Xiaomi 23113RKC6C, Android ...</blockquote>
+那就别既要又要啊，我要是有千亿老登让我啃老，包不谈什么自由意志玩乐队跟他对着干的，使劲啃就完事了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 19355#       发表于 2025-2-7 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366069&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-7 10:33</a>
+放中世纪小莫就是要被圣徒驱邪的恶灵，当然怕圣爱音</blockquote>
+虽然但是对立希也哈气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 19356#       发表于 2025-2-7 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366046&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-7 10:32</a>
+
+反复看了几个re，最后感觉最深的是，鸡团的路人粉也太嗜血长颈鹿了，录像传母鸡卡复活那段也太嗜血了 ...</blockquote>
+有一说一，就我仅知的历史上那些重金属乐队的情况来看，人家台上撕逼，台下撕逼，粉丝只会来一句我要看血流成河，然后问下次live什么时候。。
+
+*****
+
+####  JustW  
+##### 19357#       发表于 2025-2-7 10:37
+
+母鸡卡世界观的路人群众已经不是正常思维的人了，还真就和海虎世界观差不多。或者说为了营造一个大环境都在给睦施压的条件，只好让路人群众全都只能机械无脑认为演员的女儿在舞台上断片、在大街上双簧一定都是演技天赋发作了，和喵梦这个意味不明的东西一样多少集了一直惦记自己赶不上精神病人的演技，这是人的脑回路？
+
