@@ -5232,3 +5232,21 @@ MyGO前6话基本全靠第3话的神演出，不谈伏笔的话，1~4话几乎�
 <img src="https://p.sda1.dev/21/ae1baff28d2348bca0611cb7d829c653/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/3d7b3ad14944d3a8bf298bc285430350/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无事忙  
+##### 19713#       发表于 2025-2-7 18:46
+
+ 本帖最后由 无事忙 于 2025-2-7 18:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368697&amp;ptid=2208921" target="_blank">Litccc 发表于 2025-2-7 15:56</a>
+
+初华蜘蛛侠的梗是怎么来的</blockquote>
+还有一点，如果初华是蜘蛛侠就可以解释为什么她老是不见，整集不见，母鸡卡那边也说忙，sumimi那边也说忙，究竟在忙什么
+
+因为在当蜘蛛侠守护正义打击犯罪
+
+预告里面从楼顶往下看睦头在大街上左右互搏也是蜘蛛侠的视角
+
+另外某泛也很推荐这个假药，我在他那看到的
+

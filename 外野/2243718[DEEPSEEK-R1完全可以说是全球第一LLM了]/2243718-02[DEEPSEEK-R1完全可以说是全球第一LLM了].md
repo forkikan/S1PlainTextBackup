@@ -1037,3 +1037,23 @@ pro还有啥区别吗实名了能玩刘备文吗</blockquote>
 密钥复制到chatbox跑，能输出各种刘备</blockquote>
 chatbox相比cherry 有什么优势
 
+
+*****
+
+####  妄想中毒  
+##### 1576#       发表于 2025-2-7 18:51
+
+用官方API接酒馆玩，每天都只能回复第一句话，后面输出全部为空，这到底是官方API的问题还是我的问题？
+
+*****
+
+####  名居守  
+##### 1577#       发表于 2025-2-7 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369880&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-7 18:36</a>
+
+chatbox相比cherry 有什么优势</blockquote>
+手机可以用chatbox
+
+IOS和安卓都有，cherry貌似只有电脑端。
+
