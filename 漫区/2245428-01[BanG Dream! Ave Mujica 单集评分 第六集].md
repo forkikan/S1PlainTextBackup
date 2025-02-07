@@ -2650,3 +2650,25 @@ soyo妈自己都不一定回家，让soyo做这件事意外地合理
 
 那句”不是想回到那一天，而是想和你并肩同行“证明了灯想对大祥说不是想重组C团，只要我们还在组乐队，哪怕不是同一支乐队，未来也是并肩同行。灯确实是在狗团组团成功后，除了素世外成长最多的人
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 274#       发表于 2025-2-7 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367754&amp;ptid=2245428" target="_blank">z-hunter 发表于 2025-2-7 13:43</a>
+作为狗厨和素世厨，这话当然+2
+
+素世原来一直觉得自己伪善，带着面具生活，不被需要。所以在爱音，灯和立希 ...</blockquote>
+soyo释怀了吗？
+不是还问爱音：祥子真说不管睦和crychic了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 275#       发表于 2025-2-7 14:02
+
+<img src="https://s3.bmp.ovh/imgs/2025/02/07/64f09c59421dc533.jpg" referrerpolicy="no-referrer">
+
