@@ -5290,3 +5290,52 @@ MyGO前6话基本全靠第3话的神演出，不谈伏笔的话，1~4话几乎�
 哦对了，之前不是有个根据睦瞳孔大小判断是mortis人格还是睦人格的分析吗？当时我觉得证据不够没确定是不是 ...</blockquote>
 官方字幕会直接在台词前面写名字.
 
+
+*****
+
+####  第贰个十年  
+##### 19718#       发表于 2025-2-7 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370110&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-7 19:16</a>
+官方字幕会直接在台词前面写名字.</blockquote>
+我看的不是b站，但前几集红色字幕没有几处吧？跟大部分时候是mortis的情况不符啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  oyss  
+##### 19719#       发表于 2025-2-7 19:18
+
+ 本帖最后由 oyss 于 2025-2-7 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370116&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-2-7 19:17</a>
+
+我看的不是b站，但前几集红色字幕没有几处吧？跟大部分时候是mortis的情况不符啊
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/07/191826b1rqd961dduziafp.jpg" referrerpolicy="no-referrer">
+
+<strong>GjHG2qcakAA0uwC.jpg</strong> (175.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202502/07/191831e3w2a29wtost2dnd.jpg" referrerpolicy="no-referrer">
+
+<strong>GjHNr3bbIAQCBCY.jpg</strong> (107.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 19:18 上传
+
+我也没说是b站.没看过b站,不知道红字啥的是什么.
+
+*****
+
+####  plusSharp  
+##### 19720#       发表于 2025-2-7 19:21
+
+不希望马上有live,如果一定要有但愿只是个片段而不是整整一首歌
+
