@@ -872,3 +872,14 @@ pro还有啥区别吗实名了能玩刘备文吗
 低了重复得厉害，高了会呓语连词组都拼凑不了，r1填 ...</blockquote>
 V3真的不错，输出速度还可以，而且不会像R1一样乱加设定
 
+
+*****
+
+####  斯卡文分则能成  
+##### 1561#       发表于 2025-2-7 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368485&amp;ptid=2243718" target="_blank">费雷拉 发表于 2025-2-7 15:32</a>
+
+结合page assist这个插件，链接硅基流动的api，可以实现联网的ds r1</blockquote>
+怎么用啊，有教程么
+

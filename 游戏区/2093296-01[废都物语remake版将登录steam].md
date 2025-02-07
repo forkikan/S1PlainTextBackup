@@ -69,3 +69,13 @@
 
 另外还真有人一直觉得一个换引擎美术素材全部重绘、战斗系统构成加强，数值重做，游戏演出和BGM也几乎是重做的，还加上新增内容的重制版游戏用三个月做出来？还不考虑客观因素新团队等，有这么厉害的人我倒是想知道是谁，有些事嘴上说说当然容易
 
+
+*****
+
+####  rp1993  
+##### 778#       发表于 2025-2-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368677&amp;ptid=2093296" target="_blank">宛若青空 发表于 2025-2-7 15:54</a>
+我说有些人不要先贷款吃shi好吗，天角再招人也不一定是用在废都项目的，这个游戏部门也不是做一作就关掉的 ...</blockquote>
+因为招聘岗位就明确标了废都物语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
