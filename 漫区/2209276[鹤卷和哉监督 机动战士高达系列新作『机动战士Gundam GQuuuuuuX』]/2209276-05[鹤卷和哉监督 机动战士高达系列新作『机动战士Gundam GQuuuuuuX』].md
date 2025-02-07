@@ -9097,3 +9097,13 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 说是这么说，去年也这么说过
 但是总归是个节点，真要比动员数……那确实打不过（
 
+
+*****
+
+####  岸浪白野  
+##### 6614#       发表于 2025-2-7 15:03
+
+ 本帖最后由 岸浪白野 于 2025-2-7 15:04 编辑 
+
+原来庵野也喜欢小森少尉<img src="https://p.sda1.dev/21/7b401fe88d96fd9b28ad7f774459a6e4/image.jpg" referrerpolicy="no-referrer">
+
