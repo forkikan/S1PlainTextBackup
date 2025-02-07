@@ -391,3 +391,24 @@ nmd，我狂用关键词连续压制都控制不住它瞎编<img src="https://st
 为什么硅基流动的r1在chatbox上总是输出一半就中断？</blockquote>
 看看是不是应用有上下文数和输出长度限制
 
+
+*****
+
+####  gabriel233  
+##### 1518#       发表于 2025-2-7 09:09
+
+[https://cloud.siliconflow.cn/i/4MGU4lJD](https://cloud.siliconflow.cn/i/4MGU4lJD)
+
+传火
+
+
+*****
+
+####  2023-5-15  
+##### 1519#       发表于 2025-2-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365166&amp;ptid=2243718" target="_blank">中二骚年 发表于 2025-2-7 09:04</a>
+
+看看是不是应用有上下文数和输出长度限制</blockquote>
+硅基流动拉满上下文数量还是会遇到输出中断的情况，用的是r1和pro
+
