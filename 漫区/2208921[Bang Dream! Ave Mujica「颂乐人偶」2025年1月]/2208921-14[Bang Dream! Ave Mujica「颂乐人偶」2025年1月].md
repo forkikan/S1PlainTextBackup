@@ -2257,3 +2257,122 @@ motis好的那一面是是社交装甲，是演的，演得观众都信了她是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fsfs_freeze  
+##### 19444#       发表于 2025-2-7 12:05
+
+楼友们对着与现实情况对不上或者逻辑不通的地方不要太纠结，这么多年来日本动画里不涉及主要剧情的现实要素都是作为推动剧情的工具罢了，这种东西都不能细究的。
+对邦邦来讲，如果主线还是女女关系性的话，那其他的东西都只是作为推动这一主线的随用随丢的工具，爱怎么样怎么样，当时做的严谨一些肯定会更好，但做不好的情况才是大多数，大家看的时候把这些要素当做客观存在的事实比较好，背后的原因要是细究起来就没完了。
+
+*****
+
+####  JustW  
+##### 19445#       发表于 2025-2-7 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我女女关系性哪里去了，也没写好啊关键
+
+*****
+
+####  aptx8285144  
+##### 19446#       发表于 2025-2-7 12:06
+
+ 本帖最后由 aptx8285144 于 2025-2-7 12:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366947&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-7 11:56</a>
+
+所以在下集预告马上塞了祥子站在睦家门前的画面</blockquote>
+就算如此，简直是把不该伤害的人（睦）也打了一顿然后再拉去找医生看病
+
+*****
+
+####  达达葱2  
+##### 19447#       发表于 2025-2-7 12:09
+
+<blockquote>JustW 发表于 2025-2-7 12:06
+我女女关系性哪里去了，也没写好啊关键</blockquote>
+长崎素世和睦不好吗
+
+*****
+
+####  晓色暮云  
+##### 19448#       发表于 2025-2-7 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367002&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-7 12:05</a>
+
+楼友们对着与现实情况对不上或者逻辑不通的地方不要太纠结，这么多年来日本动画里不涉及主要剧情的现实要素 ...</blockquote>
+现在这些现实要素影响女女关系性了
+
+这双重人格在动画世界到底严不严重不是直接影响和其他人的关系嘛
+
+
+*****
+
+####  akiomn  
+##### 19449#       发表于 2025-2-7 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367002&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-7 12:05</a>
+楼友们对着与现实情况对不上或者逻辑不通的地方不要太纠结，这么多年来日本动画里不涉及主要剧情的现实要素 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是鸡团内部有一对cp卖好的吗？没有，睦祥初祥作为主推的cp，睦祥入土，初祥半入土。
+前六集鸡团内部的女女关系性都一坨
+
+*****
+
+####  爱莉希雅  
+##### 19450#       发表于 2025-2-7 12:11
+
+这byd剪下集预告比误解向mad都能剪
+
+*****
+
+####  Nungesser  
+##### 19451#       发表于 2025-2-7 12:12
+
+<blockquote>Reinhold 发表于 2025-2-7 11:40
+引咎辞职
+
+以及</blockquote>
+然而这话的报道里明确说了，是解职，也就是说爷爷在第一话里甚至在祥子面前给她爹留了面子。
+
+*****
+
+####  JustW  
+##### 19452#       发表于 2025-2-7 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367031&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-7 12:09</a>
+长崎素世和睦不好吗</blockquote>
+睦只惦记着祥子，难道要嗑素莫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且soyo对睦有点太母爱了，完全感受不到浪漫气息
+
+*****
+
+####  天空塔书记官  
+##### 19453#       发表于 2025-2-7 12:12
+
+即使表现得再像疾病，也当成超能力看就好了，毕竟bang又不缺超自然元素
+
+炒作，都是炒作
+
+所以解决问题的办法依然可以套公式，关系性或者音乐
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 19454#       发表于 2025-2-7 12:13
+
+就算是真精神病，在她没有伤害他人和自残倾向前，也是不能强迫她去送医的。墨提斯一直都很无害，你不能说她嘴大祥两句就送医院关着吧。
+
+而且确定病患关系可能会加重病情，她和乐奈玩确实是一种常见的动物疗法。
+
+*****
+
+####  安娜导函数  
+##### 19455#       发表于 2025-2-7 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366352&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-7 10:58</a>
+我始终觉得喵梦把断线当演技是最离谱的，就连满脑子都是自己的祥子也知道睦是单纯因为出错断线了 ...</blockquote>
+祥睦认识多少年了？大喵老师和他们组队才几天？大喵对睦头的认知怕是一直停留在著名女星女儿的这个标签上吧，觉得是演技有啥问题？？
+
