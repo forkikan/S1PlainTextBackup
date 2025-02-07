@@ -503,3 +503,48 @@ https://cloud.siliconflow.cn/i/z8SkAHeN
 硅基流动拉满上下文数量还是会遇到输出中断的情况，用的是r1和pro</blockquote>
 请教下，充值多少可以解锁pro，以及在哪选pro模型？谢谢哈
 
+
+*****
+
+####  约翰里德  
+##### 1529#       发表于 2025-2-7 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366484&amp;ptid=2243718" target="_blank">美坂汐里 发表于 2025-2-7 11:10</a>
+请教下，充值多少可以解锁pro，以及在哪选pro模型？谢谢哈</blockquote>
+最少100
+你用chatbox的话切换模型的地方就有了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 美坂汐里| + 1|谢谢哈|
+
+查看全部评分
+
+*****
+
+####  ycycyc  
+##### 1530#       发表于 2025-2-7 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366484&amp;ptid=2243718" target="_blank">美坂汐里 发表于 2025-2-7 11:10</a>
+
+请教下，充值多少可以解锁pro，以及在哪选pro模型？谢谢哈</blockquote>
+pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接拉到最下面就是，cherry应该要自己添加模型名字
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 美坂汐里| + 1|谢谢哈|
+
+查看全部评分
+

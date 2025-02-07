@@ -1873,3 +1873,84 @@ Soyo找到168亿日元新闻是先射箭后画靶，一般情况下JC、JK哪会
 
 我自己写的睦祥姐妹说假药分析https://tieba.baidu.com/p/9474671057?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.77.1.0&amp;st=1738898219&amp;is_video=false&amp;unique=EB8D4E54E8A57A7B6881D7F9EB8BCD54
 
+
+*****
+
+####  天空塔书记官  
+##### 19411#       发表于 2025-2-7 11:20
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366338&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 10:57</a>
+可惜现实里丰田家除了造假也找不到其他花边新闻，一点参考价值都没
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+还是能翻到点野史的，但可能是造谣
+
+“丰田家二代丰田喜一郎跟他妹妹搞乱伦，绿了妹妹的老公丰田利三郎（三郎是入赘，但原姓是三井 ? 日本四大财阀之一），不，确切的说丰田利三郎才是第三者。丰田喜一郎亲爹临死前话没说完，把家产给了利三郎，而喜一郎想搞汽车，利三郎头顶大绿帽要报复他，丰田转行搞汽车就是围绕这三个人的恩怨情仇展开的”
+
+还有就是丰田家近几年的”大新闻”，第五代没有选择继续和三井家联姻，而是娶了宝冢歌舞剧团的明星花旦，然后这位也是大小姐，背后家族是日本第二的石油巨头
+
+只能说不愧是小日子…过的不错的岛国人，这阶级固化程度，真是令人叹为观止
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 19412#       发表于 2025-2-7 11:22
+
+？？？？？？？？？？？？？
+
+<img src="https://img.saraba1st.com/forum/202502/07/112236lblnq6ycyc9nzllx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 11:22 上传
+
+*****
+
+####  清江望月  
+##### 19413#       发表于 2025-2-7 11:23
+
+丰田家族会因为168亿日元的亏损就直接把家族成员赶出去吗？1万6千8百亿才有可能吧。
+
+*****
+
+####  ml1642879  
+##### 19414#       发表于 2025-2-7 11:23
+
+不是，木之本樱的家庭环境也能和祥子比吗
+小樱的爹主夫力爆炸，哥是妹控，家里还摆着妈妈照片每天问好，比祥子幸福一万倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 19415#       发表于 2025-2-7 11:25
+
+不如说丰川家大小姐在外面干客服搞得路人皆知，都没有媒体深入报道一下，我还以为丰川真的一手遮天让媒体失声呢，结果168亿倒是一查就有
+
+*****
+
+####  JustW  
+##### 19416#       发表于 2025-2-7 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366622&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-7 11:23</a>
+丰田家族会因为168亿日元的亏损就直接把家族成员赶出去吗？1万6千8百亿才有可能吧。 ...</blockquote>
+丰川在邦邦里肯定到不了丰田在现实里的级别，首先就不如弦卷一根毛，各种配套也不算最顶级
+
+*****
+
+####  天空塔书记官  
+##### 19417#       发表于 2025-2-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366651&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-7 11:25</a>
+不如说丰川家大小姐在外面干客服搞得路人皆知，都没有媒体深入报道一下，我还以为丰川真的一手遮天让媒体失 ...</blockquote>
+其实日本真就是这样，能上新闻的再严重鞠个躬私密马赛就完事了，真正能见到花边的很少，尤其是财阀家族的成员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

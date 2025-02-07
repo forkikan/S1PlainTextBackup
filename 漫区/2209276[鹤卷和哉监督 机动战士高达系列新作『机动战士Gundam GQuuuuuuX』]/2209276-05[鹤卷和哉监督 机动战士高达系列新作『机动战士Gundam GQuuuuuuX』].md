@@ -9053,3 +9053,19 @@ It will be the first live action punt for a franchise which has seen 25 anime se
 在无人关心的角落里，**上初代敢达第一话(限定日本IP免费播放)的播放量在1月24号到2月4号的约10天内增长了 ...</blockquote>
 痞子引流大成功
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6610#       发表于 2025-2-7 11:18
+
+突然想到，万代会不会搞个红高达（0079夏亚6浮游炮样式）变形成配件装备，给这新宇宙机器人合体呢
+
+<img src="https://img.saraba1st.com/forum/202502/07/111712viavvjztzkwjqdai.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1he3dadj9fqj30xc84dkjl.jpg</strong> (336.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-7 11:17 上传
+
