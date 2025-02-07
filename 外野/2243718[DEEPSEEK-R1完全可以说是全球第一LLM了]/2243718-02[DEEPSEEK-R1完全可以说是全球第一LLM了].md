@@ -592,3 +592,15 @@ pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zerona  
+##### 1535#       发表于 2025-2-7 11:49
+
+ 本帖最后由 zerona 于 2025-2-7 11:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366578&amp;ptid=2243718" target="_blank">ycycyc 发表于 2025-2-7 11:18</a>
+
+pro不用解锁只能用充值得钱用，免费余额用不了，chatbox直接拉到最下面就是，cherry应该要自己添加模型名 ...</blockquote>
+ 不用。cherry 也是在设置里找到硅基流动，然后打开右下侧的管理的最下面也有个pro 的分类目录里面就有了。
+
