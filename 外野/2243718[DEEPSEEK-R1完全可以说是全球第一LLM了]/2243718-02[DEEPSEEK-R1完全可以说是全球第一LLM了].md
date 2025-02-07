@@ -1487,3 +1487,55 @@ page assist 就是chatbox一样定位的东西。
 
 而且可以游览器开侧边栏，对当前网页进行对话
 
+
+*****
+
+####  约翰里德  
+##### 1615#       发表于 2025-2-7 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371313&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-7 22:38</a>
+这个对我来说问题不大，一波讨论完了我自己还会总结重新开始对话
+
+但是这种会根据我质疑的点加新内容的功 ...</blockquote>
+其实很简单的，你反问他在加句骂人的话就好了，越脏越好。
+他绝对会明白你是要不涉及这个设定，真的
+
+*****
+
+####  ayeah  
+##### 1616#       发表于 2025-2-7 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371227&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-7 22:24</a>
+这个是D老师的答复啊，并不是设置
+
+老是给我加设定，加一次直球辱骂一次，最后爆了这句出来。
+
+之前有些疑 ...</blockquote>
+不好好说话就是会这样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  披头破落户  
+##### 1617#       发表于 2025-2-7 22:51
+
+白痴ds想让他写催眠即堕的小说，非要按照写的人设在那一步步被催眠，结果要求他写假装被催眠即堕生效就马上开始写了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">无语了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  名居守  
+##### 1618#       发表于 2025-2-7 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371362&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-7 22:46</a>
+
+其实很简单的，你反问他在加句骂人的话就好了，越脏越好。
+
+他绝对会明白你是要不涉及这个设定，真的 ...</blockquote>
+质疑反问+骂人这种套路在对话里就已经重复三四次了，甚至最后我都提出了要给API提供商和模型开发商打差评的威胁了。
+
+然而还是继续添加新设定，直到骂出了我截图的那据
+
