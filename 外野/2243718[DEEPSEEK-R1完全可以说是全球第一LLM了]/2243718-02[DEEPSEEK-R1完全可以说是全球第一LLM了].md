@@ -1026,3 +1026,14 @@ ds生成的跑团像喝了迷魂汤，我都看不懂写的啥ds写作就是文�
 pro还有啥区别吗实名了能玩刘备文吗</blockquote>
 密钥复制到chatbox跑，能输出各种刘备
 
+
+*****
+
+####  秦南心  
+##### 1575#       发表于 2025-2-7 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369753&amp;ptid=2243718" target="_blank">对羟基笨甲酸 发表于 2025-2-7 18:16</a>
+
+密钥复制到chatbox跑，能输出各种刘备</blockquote>
+chatbox相比cherry 有什么优势
+
