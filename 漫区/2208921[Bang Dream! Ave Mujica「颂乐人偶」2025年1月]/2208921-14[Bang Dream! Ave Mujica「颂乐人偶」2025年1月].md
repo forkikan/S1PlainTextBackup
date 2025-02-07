@@ -230,3 +230,117 @@ ob一串字母女士在发什么癫我真不理解了 是有谁亏欠她什么�
 
 大祥是，你顺着她她喷你不够努力，你逆着她她喷你为什么不站在她这边，你帮她还喷你不要刺激我脆弱的自尊，哇，这个人真的太难搞了。突然意识到了，是音乐天才版谢尔顿谢耳朵。。。
 
+
+*****
+
+####  ads147147  
+##### 19263#       发表于 2025-2-7 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365269&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-7 09:15</a>
+
+其实车的最厉害的把睦头逼疯这点  编剧好像真的觉得二重人格没啥大不了的 ...</blockquote>
+二次元的精神类疾病，怎么说呢，你可以说他有这些症状，但是不能断言人家就是精神病要把人扭去医院，这样故事都没法写了。
+
+*****
+
+####  plok201  
+##### 19264#       发表于 2025-2-7 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365037&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-7 08:43</a>
+
+睦祥想救一下的话 感觉只能是 
+
+大祥其实来看过睦，但是大莫不让进门，还骗睦说没有来过。
+
+但是编剧八成是想 ...</blockquote>
+没用，这样弄就变成用小莫来垫大祥，写A好人那B那边塑造就变差，写B好轮到C出问题
+
+5个人你伤害我我伤害她，找不到一个最大公约数<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 19265#       发表于 2025-2-7 09:20
+
+当初鸡楼黑屁爽姐的时候可曾想过会有这一天，简直就是噩梦
+
+*****
+
+####  aptx8285144  
+##### 19266#       发表于 2025-2-7 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365272&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-7 09:16</a>
+
+大祥真的是比小孩姐还麻烦的女人，不过想想小孩姐的麻烦主要是建立在花田怎么给她构筑让她麻烦还能施展自 ...</blockquote>
+主要是睦对大祥“倒贴”比之安还厉害，然后大象试图切割实在绝了，仁菜要是切割安你可以想象是什么节奏，仁菜面对最像她自己的小智反而“很怂”
+
+*****
+
+####  ads147147  
+##### 19267#       发表于 2025-2-7 09:21
+
+如果大祥是按照谢尔顿那种扭曲天才来设计的角色的话，人家耳朵可是花了12季上百集才扭的“成为了人类”，还得空降一个诺贝尔给他。不过邦邦这边武道馆都上了，你要对标诺贝尔总不能让她们去开蛋吧，那得多摇滚巨星。。
+
+*****
+
+####  刑部姬真可爱  
+##### 19268#       发表于 2025-2-7 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365248&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 09:13</a>
+
+分別是Soyo 是背後硬， 一見臉對面的姿態一放低就軟得像媽一樣
+
+祥背後軟， 但一見面小嘴就硬得像金剛鑽 ...</blockquote>
+soyo切割时pua睦，看见灯和爱音对朋友说不认识，灯追过来也不理，直球说立希你也是这样自私，对爱音也没有好脸色，真软了吗？
+
+
+*****
+
+####  江口夕  
+##### 19269#       发表于 2025-2-7 09:24
+
+ 本帖最后由 江口夕 于 2025-2-7 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365303&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 09:20</a>
+主要是睦对大祥“倒贴”比之安还厉害，然后大象试图切割实在绝了，仁菜要是切割安你可以想象是什么节奏， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那还不是表面切割，下一秒就是睦家了。爽姐是别人上门，还说要结束乐队。
+说白了，两个人还是不同的人，面临的问题也不一样。祥子想好是一定要背牢爹的人生的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 19270#       发表于 2025-2-7 09:24
+
+謝耳朵至少你順毛摸不會炸…….
+
+*****
+
+####  看穿一切的鱼  
+##### 19271#       发表于 2025-2-7 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365265&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-7 09:15</a>
+我现在有一个抽象的猜测，莫非独角兽和柿本觉得只要把大祥的形象拉得没法再差，观众就会选择性地忘掉大喵 ...</blockquote>
+现在错的不是ob一串字母，是世界了。场内场外都必须按着她的头踩两脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这打入谷底的方式太烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yongze  
+##### 19272#       发表于 2025-2-7 09:25
+
+ 本帖最后由 yongze 于 2025-2-7 09:26 编辑 
+
+但是大祥老师比小孩姐有个最大的挡箭牌就是她真的死了妈颓了爹还有个大家长外公要强迫给她不喜欢的人生。废是真的废，但惨也是真的惨，自己找的队友也一个比一个神人。小孩姐的家庭环境和团队友好度和她比就好的不是一个level的。
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  肛之练筋士  
+##### 19273#       发表于 2025-2-7 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我现在已经开始怀疑鸡团3次元这么有团魂，就是怕观众看完母鸡卡动画都被吓跑了，赶紧营业好给大家留下好印象
+

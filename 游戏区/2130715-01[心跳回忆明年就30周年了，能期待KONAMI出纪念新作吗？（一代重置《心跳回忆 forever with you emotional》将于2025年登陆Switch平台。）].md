@@ -3421,3 +3421,20 @@ NTR仙人，专业迫害诗织30年<img src="https://static.saraba1st.com/image/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  nanoka111  
+##### 275#       发表于 2025-2-7 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364835&amp;ptid=2130715" target="_blank">泰坦失足 发表于 2025-2-7 07:48</a>
+
+https://x.com/tokimeki573/status/1887426013866697184
+
+官推第一次用新版来做视频（但是选择原版画面模式 ...</blockquote>
+那完蛋了，指定是用不了多长时间这个服务就关了，往后这个系统就废了。
+
+Konami的在线服务向来就这么短命，我现在对此已经无法信任了。
+
+另外初代取名这里有个彩蛋，我们知道初代是可以自动生成姓名的，但如果仔细观察会发现这些姓名都是来自初代的制作人员，其中有不少让我们熟悉的名字。这种彩蛋后续就再也没有出现了。
+

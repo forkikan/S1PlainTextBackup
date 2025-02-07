@@ -504,3 +504,17 @@
 打了好几把机器人，感觉核弹手枪本质上就是副手位的500kg，500kg干不了的活它也干不了
 但是玩着确实太乐了，特别是看到队友还在搓干扰塔控制台的时候我赶到一枪炸了（然后队友被气浪掀飞
 
+
+*****
+
+####  jy000129  
+##### 5726#       发表于 2025-2-7 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364688&amp;ptid=2170852" target="_blank">qwased 发表于 2025-2-7 04:33</a>
+核弹手枪打不掉那种呼叫地狱火下来炸的炮塔，感觉用处有限了
+
+炮舰工厂也不行，只有干扰塔可以一发炸掉</blockquote>
+能炸泰坦巢和干扰塔已经很有用了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
