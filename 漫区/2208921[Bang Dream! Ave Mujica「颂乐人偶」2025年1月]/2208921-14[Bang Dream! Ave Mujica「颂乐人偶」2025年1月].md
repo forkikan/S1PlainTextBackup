@@ -7340,3 +7340,107 @@ b站看到个视频南极第一深情vs傲娇回避章鱼，给我没绷住
 
 反正这个世界上大部分人都做不到，不然法律为啥这么规定呢，女婿对岳父母本来就是没有任何赡养义务的啊，谁离婚了还给岳父母每个月寄点钱意思一下都是大善人了好吧
 
+
+*****
+
+####  天空塔书记官  
+##### 19866#       发表于 2025-2-7 23:16
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371497&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:07</a>
+这就是对于同样的剧情不同三观的人就会有不同的看法啊。
+
+  祥子母亲是外公害死的吗？祥子父亲的酒是外公 ...</blockquote><img src="https://p.sda1.dev/21/95890e8f7bbeeee873f473ff2926ac93/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/39f696c917a49290857160320ce718af/image.jpg" referrerpolicy="no-referrer">
+
+要不你再看看 ?
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 19867#       发表于 2025-2-7 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371548&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-7 23:16</a>
+
+要不你再看看 ?
+
+—— 来自 鹅球 v3.3.96</blockquote>
+所以这句话害死了祥子妈妈？ 让祥子爸爸酗酒了？
+
+你要不要再用脑子想一想？祥子的家庭悲剧是外公引起的？
+
+*****
+
+####  fuwamoco  
+##### 19868#       发表于 2025-2-7 23:18
+
+墨宝这么可爱，又逊又邪你们居然想杀了她。
+
+我们邦邦的乐队最缺的就是炸团手了，不炸团怎么写剧情，墨宝这种又不会乐器平时睡大觉，有事出来炸团的团宠，简直是救星
+
+*****
+
+####  影伴光生  
+##### 19869#       发表于 2025-2-7 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都已经开始玄幻的部分了，那点现实要素就别车了吧，万一后边动画没讲明白，留着塞访谈里补完呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 19870#       发表于 2025-2-7 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371486&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-7 23:05</a>
+
+没想到莫提斯这种角色还有人厨素莫cp啊。请问莫提斯不会乐器是🐶🐔团哪个团员？bangbang世界观不会乐器什么 ...</blockquote>
+第六集开始就不可能献祭了，最多是时尚单品人格切换或者融合，莫提斯会一直在
+
+莫的描写成了睦的重要组成，你真把这角色删除那就完蛋了
+
+
+*****
+
+####  天空塔书记官  
+##### 19871#       发表于 2025-2-7 23:21
+
+ 本帖最后由 天空塔书记官 于 2025-2-7 23:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371557&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-7 23:18</a>
+所以这句话害死了祥子妈妈？ 让祥子爸爸酗酒了？
+
+你要不要再用脑子想一想？祥子的家庭悲剧是外公引起的？ ...</blockquote>
+他酗酒是因为被切割出了家庭，借酒消愁，用酒精麻痹自我，你到底有没有看过我在说什么 ?  <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+丰川家和丰川集团是一个概念 ?
+
+引咎辞职和被家族除名是一回事 ?
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 19872#       发表于 2025-2-7 23:22
+
+ 本帖最后由 江口夕 于 2025-2-7 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371539&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-7 23:14</a>
+那单纯离个婚外公外婆也和孩子有血缘关系啊，难道对面瘫痪了你也能像照顾亲生父母一样照顾岳父母？哪来的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事去医院住两天，看看别人。我见过的反而是女儿女婿照顾的多，亲生的反而说忙巴拉巴拉来的少。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 19873#       发表于 2025-2-7 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一般懒得正经讨论莫小姐，太多人恨她了，不理解她编剧剧情最大工具人的本质
+
+最粗暴无情的写法就是下集彻底下线，祥睦HE
+包饺子的写法就是下集换号，祥睦HE，后面偶尔冒泡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
