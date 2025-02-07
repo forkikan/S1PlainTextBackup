@@ -5141,3 +5141,67 @@ MyGO前6话基本全靠第3话的神演出，不谈伏笔的话，1~4话几乎�
 
 如果谈伏笔，现在1~6话必然也有很多必须看了后面才能看懂的伏笔，不看后面就评有什么意义
 
+
+*****
+
+####  南宮凝香  
+##### 19706#       发表于 2025-2-7 17:57
+
+<blockquote>天空塔书记官 发表于 2025-2-7 15:56
+不太一样，迷子是词作主导的乐队，而A团是曲作主导，立希是“神明”灯的共鸣者，她甘当绿叶，作曲是为了 ...</blockquote>
+問題是這作曲的神明劇中有人因為她的歌而感動嗎？
+
+*****
+
+####  玖羽  
+##### 19707#       发表于 2025-2-7 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369602&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 17:57</a>
+
+問題是這作曲的神明劇中有人因為她的歌而感動嗎？</blockquote>
+春…春…春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+跟MyGO一样，第10话之前灯唯一一首感动过别人的歌：春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 19708#       发表于 2025-2-7 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369433&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-7 17:34</a>
+1~6集，杂鱼偶像番
+
+7集，卧槽这也太爆了
+
+8集，卧槽这也太爆了，长期素食挺王稳了，丰川祥子是不是有病</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照对称性假说，7集之后只能回归杂鱼本质了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 19709#       发表于 2025-2-7 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369602&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-7 17:57</a>
+問題是這作曲的神明劇中有人因為她的歌而感動嗎？</blockquote>
+所以神明才需要死掉再重生啊，祥子现在还不是“以太”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 19710#       发表于 2025-2-7 18:05
+
+<blockquote>玖羽 发表于 2025-2-7 18:00
+春…春…春日影
+
+跟MyGO一样，第10话之前灯唯一一首感动过别人的歌：春日影 ...</blockquote>
+春日影是歌+詞吧
+
+燈的歌詞本拿起來就能虎軀一震 遇明公就拜
+
+換到歌曲的神明應該是彈鋼琴後就有人圍上來當小妹
+
