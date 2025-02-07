@@ -3999,3 +3999,70 @@ D老师为你解答<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  单脚着地  
+##### 19609#       发表于 2025-2-7 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368063&amp;ptid=2208921" target="_blank">雷攻姛人 发表于 2025-2-7 14:31</a>
+
+爱音不是有灯吗，那可是贯穿mygo始终的大官配</blockquote>
+上一季爱音对素世完全是一见钟情好吧，和灯感觉更多是陪伴，完全没有对素世那种激情。我铁支持爱素的
+
+*****
+
+####  雷攻姛人  
+##### 19610#       发表于 2025-2-7 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368085&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-7 14:34</a>
+
+上一季爱音对素世完全是一见钟情好吧，和灯感觉更多是陪伴，完全没有对素世那种激情。我铁支持爱素的 ...</blockquote>
+莫慌，等心脏弱找补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 19611#       发表于 2025-2-7 14:37
+
+爱音没那么傻，她到soyo回归前一直喊的soyo桑，明显隔着一层。
+
+爱灯才是那种，刻骨铭心的陪伴，水族馆二番战，爱音答应一辈子的时候已经是明牌互通心意了。
+
+*****
+
+####  lucasxp  
+##### 19612#       发表于 2025-2-7 14:37
+
+灵魂伴侣要要，肉体伴侣也要要，这样的女女关系才健全
+
+*****
+
+####  swessia  
+##### 19613#       发表于 2025-2-7 14:39
+
+从最简单的脑回路看，下集莫小姐就要作为反派担当垫给祥睦了，提前祝莫小姐一路走好
+
+当然如果wsd想继续榨价值还是会留着骗钱了
+
+
+*****
+
+####  天空塔书记官  
+##### 19614#       发表于 2025-2-7 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368056&amp;ptid=2208921" target="_blank">雪菜碧池 发表于 2025-2-7 14:31</a>
+参考三星那个女婿，烂泥就是烂泥</blockquote>
+但牢爹也没表现出多烂泥啊，受打击自闭的例子比比皆是，他只是借酒精麻痹自我，而不是去破坏公众安全(日本上班族当街醉倒可太常见了)，甚至都没有动手，丢罐子也不是为了打祥子，所以到底哪烂到底了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 19615#       发表于 2025-2-7 14:42
+
+怎么可能素莫，真觉得这种CP有前途吗？你要是坚持莫那么睦还怎么塑造？
+

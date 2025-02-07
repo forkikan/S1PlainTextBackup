@@ -2734,3 +2734,45 @@ soyo释怀了吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一心而用  
+##### 280#       发表于 2025-2-7 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67368077&amp;ptid=2245428" target="_blank">zzzuuuuuz 发表于 2025-2-7 14:32</a>
+
+我知道是他发的，可是一般都发在哪里啊？我只在今天见过这一张图……漏油是从哪里搬的啊？
+
+—— 来自 鹅 ...</blockquote>
+贴吧。这人是邦多利抗压吧的吧主。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zzzuuuuuz| + 1|感谢|
+
+查看全部评分
+
+
+*****
+
+####  z-hunter  
+##### 281#       发表于 2025-2-7 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67367839&amp;ptid=2245428" target="_blank">ArcadiaMartyr 发表于 2025-2-7 13:58</a>
+
+soyo释怀了吗？
+
+不是还问爱音：祥子真说不管睦和crychic了吗？</blockquote>
+素世自己能说出crychic这个词，和主动去关心帮助睦和找大祥就是对C团的释怀。你还可以说这集一开头她本来都说要上学了一听小墨一提crychic她就又坐下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+手游剧情轮符雨里，爱音，灯和立希就算知道素世在下雨天犯风湿（怀念C团的日子），但所有人都不敢提crychic这个词。狗动画素世一句“我不弹春日影”，其他3人也不会说什么。
+
+所以当素世在12集表白感谢灯没有放开她的手，13集表态一生不会忘记crychic，就代表她的释怀。所以素世在鸡动画里才会行动力这么强。
+
