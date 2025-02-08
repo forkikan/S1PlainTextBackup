@@ -12450,3 +12450,76 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 我想象的下一集，可以用mygo甚至C团相关的live作为引子，以及第六集的一些伏笔，把相互分离的mujica五人重新聚集到ring这边，然后让她们爆发出一些矛盾，揭露出一些被隐藏的信息，使得剧情迅速地流动起来。
 
+
+*****
+
+####  syndrome2032  
+##### 20291#       发表于 2025-2-9 01:25
+
+ 本帖最后由 syndrome2032 于 2025-2-9 01:29 编辑 
+
+dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
+
+丢骰子这个动作就相当于命运已经开始。骰子掷出看似点数是一到六随机，但是实际会出的点数已经被命运决定好了，因此实际上得到的点数是没有随机性。
+
+*****
+
+####  天邪鬼  
+##### 20292#       发表于 2025-2-9 01:30
+
+给几个人安上性格缺陷，然后强行让他们只能呆在avemujica的世界观里苟活。换言之病友交流会
+
+只是这样看海铃可能要被强行安缺陷了，什么“不够关心乐队，不够关心他人”
+
+*****
+
+####  玖羽  
+##### 20293#       发表于 2025-2-9 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378797&amp;ptid=2208921" target="_blank">天邪鬼 发表于 2025-2-9 01:30</a>
+
+给几个人安上性格缺陷，然后强行让他们只能呆在avemujica的世界观里苟活。换言之病友交流会
+
+只是这样看海 ...</blockquote>
+海铃恐惧对乐队付出真心
+
+*****
+
+####  澜灰-  
+##### 20294#       发表于 2025-2-9 01:51
+
+现在对下集的预期就是mygo一首歌，感化睦把祥弄上台crychic再来一首歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">乐子拉满
+虽然发生几率很小，但感觉这样就要包饺子了
+还是希望能一起整点内鬼或者怪味饺子的活<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 20295#       发表于 2025-2-9 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378864&amp;ptid=2208921" target="_blank">澜灰- 发表于 2025-2-9 01:51</a>
+
+现在对下集的预期就是mygo一首歌，感化睦把祥弄上台crychic再来一首歌乐子拉满
+
+虽然发生几率很小，但感觉这 ...</blockquote>
+那大家爱的对偶不就来了么
+
+上季唱歌逼走大祥，本季唱歌招来大祥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 20296#       发表于 2025-2-9 02:13
+
+我想象的下一集，可以用mygo甚至C团相关的live作为引子，以及第六集的一些伏笔，把相互分离的mujica五人重新聚集到ring这边，然后让她们爆发出一些矛盾，揭露出一些被隐藏的信息，使得剧情迅速地流动起来。
+
+*****
+
+####  斑驳的阴影  
+##### 20297#       发表于 2025-2-9 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378256&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-8 23:38</a>
+
+祥子的CP向MAD好少</blockquote>
+灯祥素祥都不少啊，不过go甚至mujica时期这两对都是苦情的人气不如那些天天发糖的高
+
