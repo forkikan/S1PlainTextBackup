@@ -9732,3 +9732,14 @@ https://x.com/inchhime/status/1887788362100285879?s=09 ...</blockquote>
 
 老登看开心了，小登拉入坑了，能有这种效果实属难得
 
+
+*****
+
+####  岸波白野  
+##### 6657#       发表于 2025-2-8 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376276&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-8 17:36</a>
+
+当夏亚的素颜在令和还能成为话题</blockquote>
+所以好歹换个声音更池点的鸭CV啊kola
+
