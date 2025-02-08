@@ -1925,3 +1925,26 @@ cherry studio上调用d指导，是不是还不能调用硅基流动的这两天
 可以调用啊，管理里搜pro有pro/deepseek-ai/deepseek-r1</blockquote>
 感谢，原来pro写在最前面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 1654#       发表于 2025-2-8 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373595&amp;ptid=2243718" target="_blank">无名小卒 发表于 2025-2-8 11:03</a>
+
+官方免费的卡的没法用。
+
+小白一个，请问现在有啥付费的渠道，可以上传文档资料的，然后让ds分析写文档，论 ...</blockquote>
+硅基流动，充钱用Pro开头的API，然后本地安装一个Chatbox
+
+*****
+
+####  qratosones1337  
+##### 1655#       发表于 2025-2-8 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373810&amp;ptid=2243718" target="_blank">Edvinno 发表于 2025-2-8 11:33</a>
+
+感谢，原来pro写在最前面</blockquote>
+硅基流动几乎所有的模型都有Pro，所以放在最前面
+

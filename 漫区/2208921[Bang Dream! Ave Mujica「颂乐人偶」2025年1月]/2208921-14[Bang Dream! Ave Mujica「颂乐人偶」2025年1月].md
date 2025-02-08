@@ -9262,3 +9262,85 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ads147147  
+##### 20018#       发表于 2025-2-8 11:45
+
+贴吧论证soyo陪了木头人四天四夜，而且一开始去木头家没带贝斯（估计是打算看到木头再回家去取，然后去练习），所以大墨老师已经和soyo去过soyo家，还可以脑补下发生了什么jpg。
+
+之后滚地被拍后，soyo又带着大墨老师回家然后盒了牢爹，最后回livehouse和大家交流情报，真是自来也了。
+
+*****
+
+####  安娜导函数  
+##### 20019#       发表于 2025-2-8 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373843&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 11:38</a>
+其实很见鬼的一点是，初华可能真就没隐瞒什么，不能否定这种可能不是，她对于祥子的只可远观，可能真就是 ...</blockquote>
+住口，你这么写让"内鬼说"怎么解释<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20020#       发表于 2025-2-8 11:49
+
+版本t0:情报素世，soyo的行动力从来都没有问题，只是输在了信息差上，这下真为母则刚了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 20021#       发表于 2025-2-8 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373877&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-8 11:45</a>
+
+贴吧论证soyo陪了木头人四天四夜，而且一开始去木头家没带贝斯（估计是打算看到木头再回家去取，然后去练习 ...</blockquote>
+不是同一天，我把这一段时间线贴一下吧
+
+前五话时间线：
+[https://bbs.saraba1st.com/2b/for ... age=389#pid67321236](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2208921&amp;page=389#pid67321236)
+
+10月23日(五)(假定) - 爱音和灯追到丰川家大宅；爽世去若叶家探望睦
+
+------------ 第6话 ------------
+
+10月24日(六)(假定) - MyGO其余四人排练，爽世缺席
+
+10月25日(日)(假定) - 爽世说服睦去弹吉他
+
+10月26日(一)(假定) - 爽世带睦见MyGO其余四人（爱音：3天缺席）；睦和乐奈交流
+
+10月27日(二)(假定) - 祥子发现灯不再贴便签；立希和海铃对话；睦在RiNG公开发病被拍下来
+
+10月28日(三)(假定) - 早晨喵梦拍视频，拍完发现睦上热搜；祥子在羽丘切割睦；爽世得知破屋地址，晚上发现真相，告知MyGO其余四人
+
+这几天一定是10月2X日，具体日期是我估算的，所以标注(假定)
+
+*****
+
+####  huxiaopao163  
+##### 20022#       发表于 2025-2-8 11:51
+
+从舍既成之本，逐未竟之业出发来思考。
+旧mujica本身就是个畸形的产物，包括内鬼说大手说，也包括祥子沉迷工作忽视队友。因此，这个旧mujica不是非他不可，命中注定的乐队。
+所以，尽快地终结旧mujica，进而有机会重建一个更为健康的新mujica，可能是一些角色的行为逻辑。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿兹尔  
+##### 20023#       发表于 2025-2-8 11:53
+
+<img src="https://img.saraba1st.com/forum/202502/08/115332zp33pg4h0lpzjp4a.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-itvuK1lT3cSk0-9o.jpg</strong> (56.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 11:53 上传
+
