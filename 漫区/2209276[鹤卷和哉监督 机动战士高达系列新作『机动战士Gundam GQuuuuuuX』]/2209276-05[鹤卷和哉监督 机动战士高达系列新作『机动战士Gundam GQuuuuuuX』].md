@@ -9685,3 +9685,26 @@ https://x.com/inchhime/status/1887788362100285879?s=09 ...</blockquote>
 
 <img src="https://p.sda1.dev/21/d6ebc211284a47c9bf181ffb326e4b8c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 6653#       发表于 2025-2-8 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374699&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-8 13:57</a>
+
+才看清这里有个红高达，所以那个扎古驾驶员才说了类似“那家伙也有mav吗？”的台词。那这里到底是咋个回事 ...</blockquote>
+虽然我没看过原片，不知道红高达和gqx打后离开的方向，但我觉得这里红高达其实就在附近。修司和"高达"的计划或许就是在这次就夺取gqx，所以没有对gqx下重手只破坏对方的武装。但是突然冲出个玛秋打乱他们的计划，现在他们处于先观察玛秋，看一步走一步。
+
+修司的涂鸦就是kirakira，但是这个应该不是一般nt能进入的空间，我认为是在阿尔法或者奥米加的作用下才能进入。而且这么显眼地涂在殖民卫星外壁，应该是要吸引某些人注意，那或许是故意告诉吉翁他在这，一直在等对面派gqx(奥米加)过来。
+
+
+*****
+
+####  Toby_dak  
+##### 6654#       发表于 2025-2-8 14:24
+
+<img src="https://p.sda1.dev/21/b0c06eccc4763faa7da5bf2a2f5518fa/QQ图片20250208152104.png" referrerpolicy="no-referrer">
+
+没有F91。
+
