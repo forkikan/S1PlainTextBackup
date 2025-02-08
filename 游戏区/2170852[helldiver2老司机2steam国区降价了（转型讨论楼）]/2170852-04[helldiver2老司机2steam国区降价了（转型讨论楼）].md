@@ -611,3 +611,19 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yzqray  
+##### 5736#       发表于 2025-2-8 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67369900&amp;ptid=2170852" target="_blank">KOBI 发表于 2025-2-7 18:39</a>
+可以，联动甲+生命虽然没办法完全免伤但散热红之前伤害很低
+
+反正红了后要么换弹要么靠针
+
+就是轻甲+掉血容 ...</blockquote>
+联动四防甲超级商店有一件500蓝币的是中甲，挺好用的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
