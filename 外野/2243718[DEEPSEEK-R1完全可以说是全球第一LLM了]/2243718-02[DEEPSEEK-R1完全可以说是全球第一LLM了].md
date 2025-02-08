@@ -2219,3 +2219,15 @@ https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_wo
 
 不过今天把酒馆弄好了，可是，貌似也不是很好用，可能是我自己写的人物卡太拉胯了，明天继续学习<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 1681#       发表于 2025-2-9 05:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378924&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 02:21</a>
+一直在用那个超长的prompt，今天看了下魂+AI区，才发现原来硅基流动的R1随便一句话就能破甲，震惊了，cherr ...</blockquote>
+酒馆我至今没弄明白怎么屏蔽r1的思考过程，每次300token的回复就在那看他说自己的思考流程了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
