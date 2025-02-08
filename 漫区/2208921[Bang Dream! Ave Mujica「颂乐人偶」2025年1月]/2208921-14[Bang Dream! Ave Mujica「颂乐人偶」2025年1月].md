@@ -12442,3 +12442,11 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 上季唱歌逼走大祥，本季唱歌招来大祥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 20290#       发表于 2025-2-9 02:13
+
+我想象的下一集，可以用mygo甚至C团相关的live作为引子，以及第六集的一些伏笔，把相互分离的mujica五人重新聚集到ring这边，然后让她们爆发出一些矛盾，揭露出一些被隐藏的信息，使得剧情迅速地流动起来。
+
