@@ -1754,3 +1754,16 @@ D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 我感觉输出到4k就会截断了，不知道你是不是
 
+
+*****
+
+####  约翰里德  
+##### 1638#       发表于 2025-2-8 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371947&amp;ptid=2243718" target="_blank">果壳中的松鼠 发表于 2025-2-8 00:26</a>
+这个：https://github.com/SillyTavern/S ... ain/README-zh-cn.md
+
+使用方法可以去B站搜一下，最近好多教 ...</blockquote>
+手机用不了？
+那没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
