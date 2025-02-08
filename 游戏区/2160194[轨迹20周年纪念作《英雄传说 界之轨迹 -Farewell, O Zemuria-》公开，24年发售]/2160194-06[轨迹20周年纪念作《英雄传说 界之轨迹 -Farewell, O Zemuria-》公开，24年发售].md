@@ -794,3 +794,36 @@ grand odyssey 19999-xxxxx
 不是 我问的是那只羊还能不能无限刷.别的野外羊都是一次性的,就那的一组可以像其他野怪一样用回复柱无限 ...</blockquote>
 还没试，只试了伊西斯郊外的可以柱子刷新<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7603#       发表于 2025-2-8 23:41
+
+歇了几天，今天捏着鼻子拾起来终于到龙来了
+这帮鸟人不说人话真是太逆天了，什么阿猫阿狗都在装懂哥懂姐，黑月老登：我掌握了一些东西，但不能告诉你；雾香：我有一些信息，但欠了总统人情所以不能告诉你<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+去了庭院对话，这帮鸟人还能自己人瞒自己人，这个人欲言又止那个人难言之隐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在外面都号称去庭院交流情报，进去了就开始唯唯诺诺
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  crosz1985  
+##### 7604#       发表于 2025-2-8 23:45
+
+最难绷的就是游戏里的前作回顾都搞谜语人，我特么都看这个了你还这么搞严重怀疑这帮人是不是魔怔了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  隔壁老黄  
+##### 7605#       发表于 2025-2-8 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373445&amp;ptid=2160194" target="_blank">tmmd 发表于 2025-2-8 10:42</a>
+不是 我问的是那只羊还能不能无限刷.别的野外羊都是一次性的,就那的一组可以像其他野怪一样用回复柱无限 ...</blockquote>
+不是一次性的，迷宫和原野的羊都会刷新，但应该是时间刷而不是恢复点刷
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -11974,3 +11974,84 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 
 2025-2-8 23:35 上传
 
+
+*****
+
+####  单脚着地  
+##### 20248#       发表于 2025-2-8 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">祥子的CP向MAD好少
+
+*****
+
+####  cccpprc  
+##### 20249#       发表于 2025-2-8 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377943&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-8 22:46</a>
+
+现在的问题就是，大家其实都知道祥老师早就坏掉了。但是从坏掉到被彻底打碎的观感太烂了，而且非要对轴那 ...</blockquote>
+我现在怀疑黑色生日不会有睦头黑，因为现在这个众叛亲离的状态已经黑到底了
+
+*****
+
+####  fuwamoco  
+##### 20250#       发表于 2025-2-8 23:39
+
+睦头这个纯受害者也是一丘之貉吗，不是有个笨蛋第二人格真完美受害者了吧
+
+
+*****
+
+####  爱莉希雅  
+##### 20251#       发表于 2025-2-8 23:41
+
+开播前：十五年未有之大女主
+
+开播后：十五年未有之大女主
+
+*****
+
+####  NODY  
+##### 20252#       发表于 2025-2-8 23:43
+
+<img src="https://img.saraba1st.com/forum/202502/08/234341kgko7ckk83gbvzc4.jpg" referrerpolicy="no-referrer">
+
+<strong>GjRnPZZbcAAxvI3.jpg</strong> (182.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 23:43 上传
+
+*****
+
+####  看穿一切的鱼  
+##### 20253#       发表于 2025-2-8 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378262&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 23:39</a>
+我现在怀疑黑色生日不会有睦头黑，因为现在这个众叛亲离的状态已经黑到底了 ...</blockquote>
+祥老师可以挨了耳光以后继续嘴硬啊，然后go的人也不管她了睦也不管她了。感觉也不是不可能，六集前谁想得到编剧能写出睦祥切割呢。<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+我想要睦回来这句话可能是ob一串字母人格上号说的。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cccpprc  
+##### 20254#       发表于 2025-2-8 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378159&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 23:21</a>
+
+同意主播对第七集的预测，《关于crychic若干问题的决议》
+
+编剧一定会选择弹幕最多的打法，看好爱音加冕挺王 ...</blockquote>
+要说C团，那第六集就已经“雨过天晴”了
+
+接下来说的就是睦祥这两位了
+
+*****
+
+####  保真花生  
+##### 20255#       发表于 2025-2-8 23:45
+
+祥子是魅魔转世吧，这动画所有东西的成立点只能说这条件，所有一切灯、睦、爽、初以及其他被骗过来和她搞乐队的，都是被她魅惑了，不然你发现这剧情就完全没办法解释得通
+
