@@ -2098,3 +2098,38 @@ R1越狱prompt后瑟瑟太厉害了，有点理解4chan老哥说自己R1出来�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  阿刚  
+##### 1670#       发表于 2025-2-8 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376636&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-8 18:41</a>
+
+目前只有hyperbolic提供了这个api，因为zero版本本身用起来很多问题，只是个概念展示。
+
+—— 来自 鹅球  ...</blockquote>
+用了下，问题……挺大的，感觉是个半成品
+
+*****
+
+####  阿刚  
+##### 1671#       发表于 2025-2-8 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376742&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-8 19:01</a>
+
+R1越狱prompt后瑟瑟太厉害了，有点理解4chan老哥说自己R1出来后玩一晚上不睡觉的快乐。不过它口味实在有点 ...</blockquote>
+他是点子多敢玩，但是定型文太多，多出几次你就发现所有文章都是同一个结构起手，然后还有他莫名其妙的数字描述看的人挠头
+
+
+*****
+
+####  overflowal  
+##### 1672#       发表于 2025-2-8 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377093&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-8 20:15</a>
+他是点子多敢玩，但是定型文太多，多出几次你就发现所有文章都是同一个结构起手，然后还有他莫名其妙的数 ...</blockquote>
+llm对于数字不敏感是正常的，我都是让它一段一段写
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -227,3 +227,68 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wfhtony  
+##### 6905#       发表于 2025-2-8 20:13
+
+Setlist（-初陣公演- 名古屋クラブクアトロ公演）
+
+[開演時間：晝場：15:12 (UTC+9) | 夜場：18:25 (UTC+9)]
+
+・Overture + 1st block<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]（＊新錄）
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全員（＊註1）
+
+02. Campus mode!! // 全員（＊註1）
+
+→ 開場MC（MC①）</blockquote>・2nd block<blockquote>03. 小さな野望 // 陽高真白
+
+04. Fighting My Way // 長月あおい（＊Long Intro ver.）
+
+→ MC②
+
+05. Choo Choo Choo // 陽高真白
+
+06. EGO // 長月あおい
+
+→ MC③</blockquote>・3rd block + 安可<blockquote>07. Our Chant // 陽高真白（＊新曲）
+
+08. がむしゃらに行こう！ // 全員（＊晝場，註1）
+
+08. Howling over the World // 全員（＊夜場，註1）
+
+→ MC④
+
+09. ENDLESS DANCE // 全員（＊註1）
+
+---安可---
+
+10. White Night! White Wish! // 全員（＊註1）
+
+→ 安可MC
+
+11. 初 // 全員（＊註1）
+
+[終演後留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+＊註1：今天 春咲暖 的部分直接用預錄製好的音軌作爲替代方案。
+
+小美野晝場就來了，主要是上臺道歉。
+
+這次公演不販賣手遊的禮包，幾張R卡之後會以其他形式實裝（至少小秦要等到一週年之後）。
+
+夜場他還得再道歉一遍（也確實沒辦法，畢竟是奧師傅嘛，畢竟是開演前一天事務所那邊才出公告）。
+
+其他消息和晝場一樣。
+
+<img src="https://tc2.wfhtony.space/images/2025/02/08/b1c728ac05c63a6fa0c06739e92632fe.png" referrerpolicy="no-referrer">
+
+接下來看 春咲暖 的身體恢復情況，然後等週二的第二場。
+
+以下内容需要积分高于 500 才可浏览
+
+Resilio Sync: B5RZSPOMRA7T67RBTWWEF423I2FTGEVCK
+
