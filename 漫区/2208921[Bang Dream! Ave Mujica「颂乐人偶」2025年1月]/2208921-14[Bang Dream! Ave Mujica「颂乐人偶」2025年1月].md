@@ -11470,3 +11470,69 @@ mygo的睦还只是个无口的小黄瓜，mujica播完了就是个再也治不�
 但是现在观众禁止她反思，认为她就该当一个雇佣兵 ...</blockquote>
 因为 祥子，键帽 这两个得先给海天帝磕个头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  救你是情分，不救是本分。并不是因为和几个神人共事了一段时间，就有拯救神人的义务。
 
+
+*****
+
+####  新HGCG  
+##### 20204#       发表于 2025-2-8 21:47
+
+？？？？？？？？？
+
+<img src="https://img.saraba1st.com/forum/202502/08/214735hnmojd2lio180l8u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 21:47 上传
+
+*****
+
+####  plusSharp  
+##### 20205#       发表于 2025-2-8 21:47
+
+海铃边缘人反思有什么用，祥子对睦都不够关心还会在乎她吗，初华和睦都是为了祥子加入，喵梦为了流量，后面又成了睦的演技魔怔人，海铃和谁都建立不了联系
+
+*****
+
+####  岬开斗  
+##### 20206#       发表于 2025-2-8 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376786&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-8 19:10</a>
+第六集已经表现得这么清楚莫就是小孩子人格，她可能会说坏话但绝对不会说谎话，最多也就是小孩子眼里的认知 ...</blockquote>
+小孩子人格不会说谎……你是大橘吗？
+“她才只有六岁，她能撒谎吗？”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 20207#       发表于 2025-2-8 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377537&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-8 21:43</a>
+
+因为 祥子，键帽 这两个得先给海天帝磕个头  救你是情分，不救是本分。并不是因为和几个神人共事了一段时 ...</blockquote>
+楼上说了参加鸡团是海玲自己的选择
+
+你做出了参加团队的选择，却不愿为团队真正付出
+
+然后说我的本分就是不付出看热闹
+
+我不知道谁认可这种观点，但是现在的海玲应该不认可了
+
+
+*****
+
+####  玖羽  
+##### 20208#       发表于 2025-2-8 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377575&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 21:51</a>
+
+楼上说了参加鸡团是海玲自己的选择
+
+你做出了参加团队的选择，却不愿为团队真正付出
+
+然后你说我的本分就是 ...</blockquote>
+现在说这些没用，重点还是海铃的入团过程没有揭露，估计会在海铃重新加入的剧情前后揭露出来
+
