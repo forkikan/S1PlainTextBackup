@@ -54,3 +54,11 @@
 
 能不能评一个中兴之祖，太子之争石神输了
 
+
+*****
+
+####  Devi_Lito  
+##### 1006#       发表于 2025-2-8 19:43
+
+兔头宣布发新专的时候专辑还没录完，琉璃宣布发新书的时候书还没写完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

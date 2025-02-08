@@ -9776,3 +9776,14 @@ bd发售
 
 应该是先tv放送再发bd
 
+
+*****
+
+####  kuriri  
+##### 6662#       发表于 2025-2-8 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374699&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-8 13:57</a>
+
+才看清这里有个红高达，所以那个扎古驾驶员才说了类似“那家伙也有mav吗？”的台词。那这里到底是咋个回事 ...</blockquote>
+不太理解这个问题，这里应该是2对2打黑拳的时候吧？红高达本身就是和gqx组团的参赛选手呀
+
