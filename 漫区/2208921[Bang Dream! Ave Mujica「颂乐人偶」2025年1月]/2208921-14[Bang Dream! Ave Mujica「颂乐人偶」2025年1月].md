@@ -12427,3 +12427,18 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 虽然发生几率很小，但感觉这样就要包饺子了
 还是希望能一起整点内鬼或者怪味饺子的活<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 20289#       发表于 2025-2-9 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378864&amp;ptid=2208921" target="_blank">澜灰- 发表于 2025-2-9 01:51</a>
+
+现在对下集的预期就是mygo一首歌，感化睦把祥弄上台crychic再来一首歌乐子拉满
+
+虽然发生几率很小，但感觉这 ...</blockquote>
+那大家爱的对偶不就来了么
+
+上季唱歌逼走大祥，本季唱歌招来大祥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
