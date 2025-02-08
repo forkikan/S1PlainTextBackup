@@ -12120,3 +12120,73 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 你試試女朋友回家後跟你說她上班的地方一堆神人，</blockquote>
 喵梦她奶奶当年就是这么对ksm说的啊"你尽力了嘛？"
 
+
+*****
+
+####  aptx8285144  
+##### 20262#       发表于 2025-2-8 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378364&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-8 23:54</a>
+
+讲道理鸡确实很有趣，人物塑造如果不是大象厨的话，其实也还好吧</blockquote>
+如果大瞄是第一主角，直接上邪道主角塑造视角，感觉比现在不上不下的感觉好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 20263#       发表于 2025-2-9 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378209&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-8 23:30</a>
+
+如果mujica最后的结局是疯的疯，死的死，白茫茫大地真干净。用局中这几个神人的结局来表达组乐队要真心，不 ...</blockquote>
+其实如果要暴论一句的话，碰上大祥和大瞄两个神队友，我是初华或海铃可能真得不需要谁过来勾搭而是主动去当叛徒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这也算是一种正义的行为jpg
+
+*****
+
+####  carigura  
+##### 20264#       发表于 2025-2-9 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本现在到底有没有对母鸡卡之后剧情抱有高期待的人都不好说
+
+下集不管是救世神回还是全部木大可能那边好评度都不会变
+
+*****
+
+####  一心而用  
+##### 20265#       发表于 2025-2-9 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378297&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-8 23:43</a></blockquote>
+前6话好评率
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+第3话 83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
+第4话 82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
+第5话 85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
+第6话 85.5% 6.3% 4.1% 2.8% 1.4% 约3200人
+顺便我早已猜到这话一定是迄今好评率最高的一话<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 20266#       发表于 2025-2-9 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378317&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-8 23:46</a>
+
+地铁那个cm不是已经告诉你们了，祥子是大猫去说的，不是大祥来组。
+
+这波睦二重人格表演，mujica所有人应该 ...</blockquote>
+我觉得组团启动器如果不是大祥的话，那就是海玲了
+
+*****
+
+####  aptx8285144  
+##### 20267#       发表于 2025-2-9 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378400&amp;ptid=2208921" target="_blank">carigura 发表于 2025-2-9 00:00</a>
+
+日本现在到底有没有对母鸡卡之后剧情抱有高期待的人都不好说
+
+下集不管是救世神回还是全部木大可能那边好评 ...</blockquote>
+标题都是雨过天晴了，那不管写得怎么样，肯定是积极向上那种吧
+
