@@ -9729,3 +9729,46 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 搬一个睦摔伤掉血拷据</blockquote>
 什么？难道不是睦头和大莫老师互相切号卡无敌帧嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qlipho  
+##### 20053#       发表于 2025-2-8 13:36
+
+还用切号吗，翻滚无敌的
+
+*****
+
+####  2203456  
+##### 20054#       发表于 2025-2-8 13:37
+
+祥爹这表现想包饺子只能让他不是亲爹了
+老登为什么赶走中登，因为祥子不是亲生的
+中登为什么整天喝酒，因为祥子不是亲生的
+祥子为什么黑刀之夜情绪激动，因为老登刚告诉她其实不是亲生的
+木头为什么这么帮祥子，因为她们是姐妹
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  DD-963  
+##### 20055#       发表于 2025-2-8 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67371910&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-8 00:22</a>
+
+我是倾向老登的存在比较工具人。
+
+工具人一样切割中登让祥子宣布解散ccc。</blockquote>
+最后一点可以请教一下教育专家井芹宗男
+
+
+*****
+
+####  zhoujin8584  
+##### 20056#       发表于 2025-2-8 13:44
+
+<blockquote>ntrntr1 发表于 2025-2-8 13:30
+这就是顶级演员的自我修养吗....一辈子都达不到的....</blockquote>
+喵梦：拼尽全力无法战胜……
+
