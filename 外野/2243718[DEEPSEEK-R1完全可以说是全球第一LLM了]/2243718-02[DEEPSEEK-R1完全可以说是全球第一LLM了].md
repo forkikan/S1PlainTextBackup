@@ -1821,3 +1821,38 @@ D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充�
 
 d老师总喜欢写金属皮带扣
 
+
+*****
+
+####  Yui_hirasawa  
+##### 1644#       发表于 2025-2-8 10:48
+
+问下手机APP下面有两个深度思考和联网搜索的选项，分别是有什么用啊？
+
+
+*****
+
+####  约翰里德  
+##### 1645#       发表于 2025-2-8 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373484&amp;ptid=2243718" target="_blank">Yui_hirasawa 发表于 2025-2-8 10:48</a>
+问下手机APP下面有两个深度思考和联网搜索的选项，分别是有什么用啊？</blockquote>
+深度思考显示思考过程，好像就r1有吧。
+联网就是字面意思联网，但是目前暂时没法用好像
+
+*****
+
+####  kerorara  
+##### 1646#       发表于 2025-2-8 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373484&amp;ptid=2243718" target="_blank">Yui_hirasawa 发表于 2025-2-8 10:48</a>
+问下手机APP下面有两个深度思考和联网搜索的选项，分别是有什么用啊？</blockquote>
+深度思考：调用R1
+不开深度思考：调用V3
+
+联网：字面意思，如果给定了链接可能也会去看
+不联网：字面意思
+总之联网现在非常不能用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
