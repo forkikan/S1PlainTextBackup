@@ -11433,3 +11433,40 @@ mygo的睦还只是个无口的小黄瓜，mujica播完了就是个再也治不�
 
 但是现在观众禁止她反思，认为她就该当一个雇佣兵就很难蚌
 
+
+*****
+
+####  cccpprc  
+##### 20201#       发表于 2025-2-8 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377286&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-8 20:52</a>
+
+又不是观众逼编剧这么写的，啊，编剧也要没苦硬吃</blockquote>
+如果说之前拆团的阶段，观众讨论是被编剧和监督牵着鼻子走
+
+那现在立的阶段，观众有点开始我不听我不听了
+
+只能说这回我们有可能看到真正的“环核心观众/婆罗门好评”
+
+*****
+
+####  盐盐盐盐盐  
+##### 20202#       发表于 2025-2-8 21:42
+
+说起来海铃的cm里有句台词就是“即使这样也不能相信（我？对象没指明）吗！”
+
+所以她大概率后面会比较积极行动的
+
+其实那个cm给人的感觉是除了初华是关底boss，喵梦海铃反倒像两个主导行动的人，喵梦还要拷打祥子背负人生发言的真实含义呢……
+
+*****
+
+####  海底铁锚  
+##### 20203#       发表于 2025-2-8 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377501&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 21:35</a>
+论不粘锅无责任的程度海玲是最大的，所以她要开始反思
+
+但是现在观众禁止她反思，认为她就该当一个雇佣兵 ...</blockquote>
+因为 祥子，键帽 这两个得先给海天帝磕个头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  救你是情分，不救是本分。并不是因为和几个神人共事了一段时间，就有拯救神人的义务。
+
