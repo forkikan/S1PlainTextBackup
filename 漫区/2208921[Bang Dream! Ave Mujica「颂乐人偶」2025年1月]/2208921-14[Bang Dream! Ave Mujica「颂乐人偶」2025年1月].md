@@ -12190,3 +12190,83 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 下集不管是救世神回还是全部木大可能那边好评 ...</blockquote>
 标题都是雨过天晴了，那不管写得怎么样，肯定是积极向上那种吧
 
+
+*****
+
+####  江口夕  
+##### 20268#       发表于 2025-2-9 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378410&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-9 00:02</a>
+我觉得组团启动器如果不是大祥的话，那就是海玲了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">组团一般来说是大猫，大猫这要是还看不出人格分裂自己也有锅的话，那是真没救了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  安娜导函数  
+##### 20269#       发表于 2025-2-9 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378209&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-8 23:30</a>
+如果mujica最后的结局是疯的疯，死的死，白茫茫大地真干净。用局中这几个神人的结局来表达组乐队要真心，不 ...</blockquote>
+编剧明摆着没觉得大喵老师前期打法有问题啊，这都第六话了怎么还有人不肯接受呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+后面无非就是大喵老师渴望流量结果被流量反噬，发现只有真心搞乐队才是正道，然后回头备战mujica3.0呗
+
+*****
+
+####  灼眼的夏娜酱  
+##### 20270#       发表于 2025-2-9 00:08
+
+看到灯睦都这么在意祥子，作为祥厨也很开心<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 20271#       发表于 2025-2-9 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378306&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-8 23:45</a>
+
+祥子是魅魔转世吧，这动画所有东西的成立点只能说这条件，所有一切灯、睦、爽、初以及其他被骗过来和她搞乐 ...</blockquote>
+那就得由初华解释一下白祥是什么样子了
+
+会有这个篇幅么？
+
+*****
+
+####  玖羽  
+##### 20272#       发表于 2025-2-9 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378412&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 00:04</a>
+
+标题都是雨过天晴了，那不管写得怎么样，肯定是积极向上那种吧</blockquote>
+Post nubila phoebus.
+
+直译：乌云之后是太阳
+
+意为：坏事之后会有好事
+
+但是这个好事的定义嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 20273#       发表于 2025-2-9 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378242&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-8 23:35</a></blockquote>
+突然想起来，怪不得隔壁有人说像种命时，有人则说更像假面骑士极狐（虽然我没看这部特摄），特摄作品也是啥主角都有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 20274#       发表于 2025-2-9 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378431&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 00:08</a>
+
+编剧明摆着没觉得大喵老师前期打法有问题啊，这都第六话了怎么还有人不肯接受呢
+
+后面无非就是大喵老师渴 ...</blockquote>
+所以意识到这一点后，完全认清了独角兽xxn的本质啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说现在欲切割而不能的独角兽就和逃兵祥子一样<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
