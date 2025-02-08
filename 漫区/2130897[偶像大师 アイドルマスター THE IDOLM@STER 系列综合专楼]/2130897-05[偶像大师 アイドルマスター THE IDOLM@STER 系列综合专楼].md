@@ -161,3 +161,13 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 长月疯狂锻炼，快点成长起来吧
 
+
+*****
+
+####  kykawaiii  
+##### 6898#       发表于 2025-2-8 18:16
+
+羊羔这个腿<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

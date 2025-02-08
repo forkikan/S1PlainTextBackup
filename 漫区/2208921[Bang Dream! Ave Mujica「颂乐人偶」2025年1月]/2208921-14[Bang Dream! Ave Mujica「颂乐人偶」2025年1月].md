@@ -10561,3 +10561,55 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 怎么个暗示法</blockquote>
 辣死（栽跟头），再复活（返场重组乐队）。
 
+
+*****
+
+####  天邪鬼  
+##### 20130#       发表于 2025-2-8 18:07
+
+之后看这一段会不会被剪下来放平台上，说不定就是制作组想烂炒素墨了
+
+*****
+
+####  cccpprc  
+##### 20131#       发表于 2025-2-8 18:11
+
+<blockquote>刑部姬真可爱 发表于 2025-2-8 17:24
+鉴于剧里mo把舞鞋认为是通话设备具有突发性，那么从正常逻辑考虑的话应该就是mo同意让soyo进的，然后soyo ...</blockquote>
+第六话明显看出睦头和莫提斯在抢方向盘了
+
+不如说是睦头请SOYO来，然后关键时刻莫提斯抢号了
+
+
+*****
+
+####  595505568  
+##### 20132#       发表于 2025-2-8 18:14
+
+我觉得没必要把事情想的太复杂<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，可能就是要演DID而已
+
+*****
+
+####  安娜导函数  
+##### 20133#       发表于 2025-2-8 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376306&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-8 17:41</a>
+怎么个暗示法</blockquote>
+暗示祥子妈吃了拉面能复活（迫真
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+暗示A团大家一起吃拉面就能复活母鸡卡了（不是
+暗示大家都吃点苦头才能重组<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 20134#       发表于 2025-2-8 18:18
+
+如果说初华对祥子好心办坏事的猜想成立的话。那其实睦莫关系现在已经和初祥之间有呼应了。
+
+一开始都是祥（睦）找上初（莫）拜托，初（莫）确实为母鸡卡的成功和延续做出了贡献。
+
+现在莫提斯为了避免睦头受到伤害，不让她见祥子，自顾自把睦头关在内心世界里，其实也是好心办坏事的体现。
+
+那么下集祥子先解决睦和莫问题的话，等于从旁观角度先过了一个教程，之后就是祥子自己和初华的问题。
+

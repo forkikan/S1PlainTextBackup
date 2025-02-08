@@ -2007,3 +2007,16 @@ r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还�
 
 给硅基流动的pro充了50，最开始那种流畅的感觉又回来了
 
+
+*****
+
+####  精钢魔像  
+##### 1662#       发表于 2025-2-8 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375254&amp;ptid=2243718" target="_blank">moeblack 发表于 2025-2-8 15:18</a>
+
+我希望哪个厂家搞个妙妙小工具能搞到5万块钱以内20多肯每秒的r1满血必入
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+看了RAGFlow那个我觉得企业用小参数deepseek配合自用的知识库就够用了。每个部门根据自己的业务部署自己的知识库。
+
