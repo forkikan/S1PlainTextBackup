@@ -9955,3 +9955,30 @@ Let’s go! mortis!
 
 那天不解散，吉他找个外援，莫解在台上行云流水一套前空翻后空翻中二舞术，这团说不定意外爆火
 
+
+*****
+
+####  厚乳果珍爽  
+##### 20074#       发表于 2025-2-8 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375072&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-8 14:51</a>
+
+反正与其让祥子被板正回来包饺子，不如塑造个史无前例得极端角色</blockquote>
+你看那个啥人设图，就只有祥子在笑，其他人表情都不高兴。
+
+而且还有一个祥子抱着4个玩偶的官图。
+
+是不是暗示了结局了？
+
+
+*****
+
+####  厚乳果珍爽  
+##### 20075#       发表于 2025-2-8 15:02
+
+ 本帖最后由 厚乳果珍爽 于 2025-2-8 15:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374948&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 14:34</a>
+
+国内被mygo吸引来的观众许多都是因为现实表象和角色重力，而对于作品的童话性和非现实性则并不感冒，惯于用 ...</blockquote>
+作品要有一致性，不能出现前后设定不一致的情况。更何况那些什么违约金这些用过一次就不再提的东西，完全就工具化了。
+
