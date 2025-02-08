@@ -12270,3 +12270,27 @@ Post nubila phoebus.
 
 只能说现在欲切割而不能的独角兽就和逃兵祥子一样<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 20275#       发表于 2025-2-9 00:16
+
+ 本帖最后由 ntrntr1 于 2025-2-9 00:17 编辑 
+
+狐神前面好歹真装了三十多集逼。。
+
+后面吃瘪归吃瘪，逼还是继续装的，祥子但凡有点狐神的厚脸皮和心理素质，队里其他人也不是她对手...
+
+
+*****
+
+####  安娜导函数  
+##### 20276#       发表于 2025-2-9 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378420&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-9 00:06</a>
+组团一般来说是大猫，大猫这要是还看不出人格分裂自己也有锅的话，那是真没救了
+
+—— 来自 Xiaomi 23113 ...</blockquote>
+难讲，目前第六话给出的信息并不能说明大喵老师已经接受了睦头有双重人格这回事啊，看热搜直接无视mujica复活直接点了睦头的那条，明摆着还是觉得睦头演技炸裂，最多就是跑去质问睦头为什么明明已经解散了你还在扮演Mortis，后面的剧情我就猜不出了
+
