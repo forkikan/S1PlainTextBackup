@@ -9772,3 +9772,40 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 这就是顶级演员的自我修养吗....一辈子都达不到的....</blockquote>
 喵梦：拼尽全力无法战胜……
 
+
+*****
+
+####  ntrntr1  
+##### 20057#       发表于 2025-2-8 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374618&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 13:44</a>
+
+喵梦：拼尽全力无法战胜……</blockquote>
+还好摔下来没被录下来
+
+被看到了晚上喵女士要练习滚楼梯了。。。
+
+*****
+
+####  fuwamoco  
+##### 20058#       发表于 2025-2-8 13:48
+
+<blockquote>2203456 发表于 2025-2-8 13:37
+祥爹这表现想包饺子只能让他不是亲爹了
+
+老登为什么赶走中登，因为祥子不是亲生的
+
+中登为什么整天喝酒，因为 ...</blockquote>
+那确实是姐妹 睦头葬礼上坐祥子后一排肯定是表亲
+
+
+*****
+
+####  takerest  
+##### 20059#       发表于 2025-2-8 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372370&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-8 03:49</a>
+
+好好一个少女乐队片,你们就重点关注人家爹</blockquote>
+因为人的本质是一切社会关系的总和啊，讨论祥子本人肯定绕不开她的家庭境遇的，就看编剧是想在母鸡卡动画一次性解决还是留给手游出活动了。
+
