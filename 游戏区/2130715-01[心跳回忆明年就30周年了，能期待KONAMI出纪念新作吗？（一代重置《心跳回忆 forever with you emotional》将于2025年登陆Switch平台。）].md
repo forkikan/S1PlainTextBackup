@@ -3500,3 +3500,16 @@ Konami的在线服务向来就这么短命 ...</blockquote>
 
 GS4现在还是NS独占呢
 
+
+*****
+
+####  DARKGRAY  
+##### 280#       发表于 2025-2-8 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374020&amp;ptid=2130715" target="_blank">穿越护城河 发表于 2025-2-8 12:09</a>
+
+为什么你会做移植的梦
+
+GS4现在还是NS独占呢</blockquote>
+老家伙也不是都会买NS嘛
+
