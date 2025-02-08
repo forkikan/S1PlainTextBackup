@@ -1974,3 +1974,18 @@ chatbox的DSR1不能联网吗？求解决方案
 
 硅基现在什么毛病啊，qwen也400个不停，是996工作时间不让用是怎么的
 
+
+*****
+
+####  moeblack  
+##### 1659#         楼主| 发表于 2025-2-8 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374168&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-8 12:33</a>
+【完整版DeepSeek-R1 671b本地部署 速度瓶颈深度剖析】 https://www.bilibili.com/video/BV1REPqeFE6d/
+
+无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+我希望哪个厂家搞个妙妙小工具能搞到5万块钱以内20多肯每秒的r1满血必入
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
