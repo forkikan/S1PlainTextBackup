@@ -2162,3 +2162,15 @@ R1里对非可验证任务还是用了reward model的
 
 用proR1如果还觉得卡的话，可以去试试腾讯云TI里的R1的api，我用了，是满血版，不卡，速度快，关键是免费
 
+
+*****
+
+####  overflowal  
+##### 1676#       发表于 2025-2-8 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377735&amp;ptid=2243718" target="_blank">二十面酱 发表于 2025-2-8 22:15</a>
+用proR1如果还觉得卡的话，可以去试试腾讯云TI里的R1的api，我用了，是满血版，不卡，速度快，关键是免费 ...</blockquote>
+免费的话很快也要卡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

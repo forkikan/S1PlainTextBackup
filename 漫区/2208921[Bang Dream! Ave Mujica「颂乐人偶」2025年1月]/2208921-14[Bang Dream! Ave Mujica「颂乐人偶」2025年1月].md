@@ -11600,3 +11600,88 @@ My狗第9集後海鈴問立希散團後有沒有去關心愛音
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 20214#       发表于 2025-2-8 22:27
+
+官方在欺诈这块肯定是有锅的，我刚才查过了，不错十五年之大女主来自百综楼，但是大祥抱着四个人偶的官方图是已经先入为主让很多人有了”大女主“的认知，那现在看到讽刺地疯狂把大祥当真飞祥”拷打“那就会有一种莫大的嘲讽感
+
+*****
+
+####  新HGCG  
+##### 20215#       发表于 2025-2-8 22:28
+
+？？？？？？？？？
+
+[NR7D3YI9{%ZCG0QRIJ{MOD.jpg
+(31.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/222830a28p9qxp5yz7n5wx.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 20216#       发表于 2025-2-8 22:30
+
+反正睦的故事下一集就基本结束了，要接棒给我们大祥老师了。
+
+就是我完全不知道这破mujica除了机械降神有什么重组的必要吗，组起来会有人感动吗。
+
+
+*****
+
+####  玖羽  
+##### 20217#       发表于 2025-2-8 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377820&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-8 22:27</a>
+
+官方在欺诈这块肯定是有锅的，我刚才查过了，不错十五年之大女主来自百综楼，但是大祥抱着四个人偶的官方图 ...</blockquote>
+抱着四个人偶跟大女主有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+大女主这个真的只能说是擅自期待擅自破防，我觉得一半人就是想看别人给祥子下跪痛哭，另一半人则是想看祥子给别人下跪痛哭
+
+*****
+
+####  aptx8285144  
+##### 20218#       发表于 2025-2-8 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377837&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-8 22:30</a>
+
+反正睦的故事下一集就基本结束了，要接棒给我们大祥老师了。
+
+就是我完全不知道这破mujica除了机械降神有什 ...</blockquote>
+不管写的有机械降神，现实企划摆在那里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 20219#       发表于 2025-2-8 22:32
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-8 22:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377837&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-8 22:30</a>
+反正睦的故事下一集就基本结束了，要接棒给我们大祥老师了。
+
+就是我完全不知道这破mujica除了机械降神有什 ...</blockquote>
+我会感动，辛苦她们几个捏着鼻子一起组乐队了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+主要还是大喵的问题，先不说她跟睦祥有天大的矛盾，她跟这九个人在线下完全没有联系。海玲还有立希搭线+初华同班呢。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 20220#       发表于 2025-2-8 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377847&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-8 22:31</a>
+
+抱着四个人偶跟大女主有什么关系，我看到这图的第一反应是祥子已经不正常了把队友当人偶
+
+大女主这个真的 ...</blockquote>
+这里的“大女主”和善恶无关，只在于戏份或“逼格’，结果看，大祥戏份没有多大优势，逼格就不用说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
