@@ -2066,3 +2066,25 @@ r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ryanghj  
+##### 1667#       发表于 2025-2-8 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375347&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-8 15:32</a>
+
+r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还是不太行。就讲究一个朴实刚健。可以推断R1的文 ...</blockquote>
+r1zero没用非数学题微调，文科类任务能力很差
+
+*****
+
+####  overflowal  
+##### 1668#       发表于 2025-2-8 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376687&amp;ptid=2243718" target="_blank">ryanghj 发表于 2025-2-8 18:49</a>
+r1zero没用非数学题微调，文科类任务能力很差</blockquote>
+是的，目前看来文科任务还没找到特别好的RL方式，不像数学和coding，对就是对错就是错
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
