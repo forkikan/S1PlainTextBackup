@@ -9344,3 +9344,53 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 
 2025-2-8 11:53 上传
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 20024#       发表于 2025-2-8 11:58
+
+初华隐藏的东西最好能在10秒内收起来是最好圆的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+比如，双子初华的照片<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 20025#       发表于 2025-2-8 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">一边说祥子上武道馆都是老登财团功劳，一方面切割牢爹只想看女女关系性，好一个双标
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  天空塔书记官  
+##### 20026#       发表于 2025-2-8 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373918&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-8 11:51</a>
+从舍既成之本，逐未竟之业出发来思考。
+旧mujica本身就是个畸形的产物，包括内鬼说大手说，也包括祥子沉迷 ...</blockquote>
+但解散可能也是一些人的行为目的，就比如说，我们假设，只是假设，海铃在与“睦”沟通的时候，提议“既然我们在这都不开心，要不还是把乐队炸了，或者把祥子赶走怎么样 ? ” 会不会有这种可能呢 ?
+
+至于为什么这么猜测，还是因为海铃卡牌上的蝎子图案，“危险与背叛”
+
+还有海铃拆队，可能也有为立希出气的想法 ? 所以才会无法理解立希对自己的无情表现出来的愤怒 ?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  庸necro  
+##### 20027#       发表于 2025-2-8 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373387&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-8 10:36</a>
+
+说到底大祥就是怕和人交心，一旦交心的内容超出了她的接受范围就很容易红温然后开始口不择言，这个不改必然 ...</blockquote>
+下一集就能看到自己隐藏了一年多，最不想让人知道的消息透露给最不想让知道的人时候的痛苦章鱼小丸子表情了
+

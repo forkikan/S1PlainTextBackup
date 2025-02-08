@@ -3474,3 +3474,16 @@ Konami的在线服务向来就这么短命 ...</blockquote>
 
 刚才搜了一下，这样的讨论没有了，难道我进入了异次元时空？最近总是发现有些已经记了很多年的确凿记忆，后来却被证实并不是那么回事的情况。
 
+
+*****
+
+####  DARKGRAY  
+##### 278#       发表于 2025-2-8 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372589&amp;ptid=2130715" target="_blank">穿越护城河 发表于 2025-2-8 08:17</a>
+
+？？？
+
+大哥你再考虑一下自己说的</blockquote>
+基于NS的话那移植的可能性是不是又低了
+
