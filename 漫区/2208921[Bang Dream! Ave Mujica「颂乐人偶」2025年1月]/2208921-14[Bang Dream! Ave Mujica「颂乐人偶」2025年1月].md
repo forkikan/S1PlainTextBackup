@@ -9640,3 +9640,92 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 
 2025-2-8 13:25 上传
 
+
+*****
+
+####  阿兹尔  
+##### 20045#       发表于 2025-2-8 13:26
+
+<blockquote>影伴光生 发表于 2025-2-8 13:09
+把祥子叫过来，这样莫女士就拒绝消失了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+按照这编剧的写法，祥子是一直在吃瘪，但是所有人都会同情她喜欢她，甚至第四集喵梦这种被用来做恶役工具人的都有个:“才一定想着要和你一起出人头地”，最后莫提斯估计也是大祥俘虏，素世下一集能撑过半集都算成功了
+
+*****
+
+####  zhoujin8584  
+##### 20046#       发表于 2025-2-8 13:27
+
+<img src="https://img.saraba1st.com/forum/202502/08/132745c6b3i3pehis6ew8v.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250208_132729.jpg</strong> (244.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 13:27 上传
+
+*****
+
+####  天空塔书记官  
+##### 20047#       发表于 2025-2-8 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374470&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-8 13:21</a>
+你对圣杯和葡萄酒的理解我觉得完全错了，圣餐为什么要吃无酵饼（天主教）和葡萄酒是因为圣经里写的"这是 ...</blockquote>
+圣餐是宗教仪式，按照流程走就是遵循教义，而破坏这一仪式就是“不敬”， 向地面倾倒葡萄酒显然不是正常情况下会出现的行为，所以是“叛教”，我是这么理解的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Renes  
+##### 20048#       发表于 2025-2-8 13:29
+
+<blockquote>xyion 发表于 2025-2-8 07:22
+观众视角看祥子没做到正确的事，是推不出编剧的大手的。只有祥子这个性格本该能做到，但剧情里强行让她没 ...</blockquote>
+祥子性格有问题不假，做的事也符合她性格不假，但是放到一般的作品里，祥子遇到的这些事够一个角色起码醒悟两次了，当你的性格问题拖到第六集也没有一点好转的迹象时，大部分评价也基本就是对大祥性格的嘲笑了。现在祥子的情况就好像击杀她的人头谁都不能拿，要拖着等着喂到对的那个人的手里（可能是下集去睦头家）导致所有其他人这把都在收着打，看似尽力但就是不拼最后一下把人头拿下。哪怕大祥下集一集就完成反转，观众在情绪上也很容易是三而竭的状态，这个风险是很高的，当然我们不排除下集神回一集反转的可能，但绝大多数作品这个时间点是很危险的。
+
+
+*****
+
+####  zhoujin8584  
+##### 20049#       发表于 2025-2-8 13:30
+
+<blockquote>阿兹尔 发表于 2025-2-8 13:26
+按照这编剧的写法，祥子是一直在吃瘪，但是所有人都会同情她喜欢她，甚至第四集喵梦这种被用来做恶役工具 ...</blockquote>
+这也是mujica到现在同接创新高但是二创萎靡的原因，cp随集数刷新，精耕细作的二创需要消化、分析、素材剪辑等等，周期长，各路太太是真的不敢贸然下场
+
+*****
+
+####  ntrntr1  
+##### 20050#       发表于 2025-2-8 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374488&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 13:25</a>
+
+搬一个睦摔伤掉血拷据</blockquote>
+这就是顶级演员的自我修养吗....一辈子都达不到的....
+
+*****
+
+####  zhoujin8584  
+##### 20051#       发表于 2025-2-8 13:31
+
+<img src="https://img.saraba1st.com/forum/202502/08/133122ddeslzl2ypq5obml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-08-13-31-03-36_2b95b5a1545d19ca955bcf1044f94582.jpg</strong> (22.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 13:31 上传
+
+*****
+
+####  安娜导函数  
+##### 20052#       发表于 2025-2-8 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374488&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 13:25</a>
+搬一个睦摔伤掉血拷据</blockquote>
+什么？难道不是睦头和大莫老师互相切号卡无敌帧嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
