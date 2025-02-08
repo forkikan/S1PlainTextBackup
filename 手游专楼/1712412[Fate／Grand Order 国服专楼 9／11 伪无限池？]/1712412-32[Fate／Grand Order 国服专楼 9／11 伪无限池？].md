@@ -95,3 +95,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47006#       发表于 2025-2-8 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370265&amp;ptid=1712412" target="_blank">marxel 发表于 2025-2-7 19:44</a>
+
+我有个五宝107级未满树（差个蓝星）的，你算算够不够用
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+可以的可以的，110五宝兽尼我大概要磨个10T，汇呆有特攻够用啦也不追求2T~ 
+
+是安卓b服的么！
+

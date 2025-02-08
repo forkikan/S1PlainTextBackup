@@ -10488,3 +10488,49 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 
 刚看了一个分析说为什么大莫老师对爱音手机有反应是因为睦头人她妈用的手机也是粉色手机壳，再加上其他一些传言说初华后面爆个大的，我猜所谓的内鬼（叛徒）说的核心其实是睦头妈而不是老登，后面老登背叛了睦妈所以是头号叛徒（比如原来说的是捧自己女儿并让祥子回去，后来老登和祥子和解同意祥子继续组mujica了）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 20122#       发表于 2025-2-8 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375805&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 16:25</a>
+
+你忘了大猫那还在地铁预告里存了一把剑。“那不是不负责任吗”“把一辈子托付给你，那才是你的欲望，组乐 ...</blockquote>
+这一话喵梦吃的拉面是“让人辣死再复活的转生拉面”，暗示得很明显了
+
+*****
+
+####  新HGCG  
+##### 20123#       发表于 2025-2-8 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376299&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-8 17:40</a>
+
+这一话喵梦吃的拉面是“让人辣死再复活的转生拉面”，暗示得很明显了</blockquote>
+怎么个暗示法
+
+*****
+
+####  姜饼人  
+##### 20124#       发表于 2025-2-8 17:43
+
+这部动画的设定也太复杂了，这么多阴谋在后面观众却只能看一点
+
+
+*****
+
+####  fuwamoco  
+##### 20125#       发表于 2025-2-8 17:45
+
+如果真的按照现实did患者而不是二次元好用工具背锅人格来塑造小墨的话。按照现实did普遍有儿童时期的精神创伤（大量案例是亲人性侵）来看，红色手机or红色方块事物很可能是睦头童年阴影的来源。睦头也是那时候人格一分为二，切割出了墨提斯这个承担伤痛记忆的人格和表演技能。
+
+*****
+
+####  木板春香  
+##### 20126#       发表于 2025-2-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376306&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-8 17:41</a>
+
+怎么个暗示法</blockquote>
+母鸡卡的死亡与新生  总不能是祥子去能打牌实现愿望的世界打牌让妈妈复活吧
+
