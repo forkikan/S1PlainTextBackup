@@ -2088,3 +2088,13 @@ r1zero没用非数学题微调，文科类任务能力很差</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  overflowal  
+##### 1669#       发表于 2025-2-8 19:01
+
+R1越狱prompt后瑟瑟太厉害了，有点理解4chan老哥说自己R1出来后玩一晚上不睡觉的快乐。不过它口味实在有点重，llm界德国人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
