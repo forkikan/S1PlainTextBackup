@@ -773,3 +773,14 @@ grand odyssey 19999-xxxxx
 
 算了，骂完继续打吧
 
+
+*****
+
+####  tmmd  
+##### 7601#       发表于 2025-2-8 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372623&amp;ptid=2160194" target="_blank">風卷豹 发表于 2025-2-8 08:27</a>
+
+野外的羊收益没砍，庭院里的砍了</blockquote>
+不是 我问的是那只羊还能不能无限刷.别的野外羊都是一次性的,就那的一组可以像其他野怪一样用回复柱无限刷新
+

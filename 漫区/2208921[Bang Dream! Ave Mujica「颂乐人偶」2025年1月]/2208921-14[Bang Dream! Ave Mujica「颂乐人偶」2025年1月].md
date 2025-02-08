@@ -9103,3 +9103,29 @@ mygo全部登场
 
 去背負他們的人生就算了吧
 
+
+*****
+
+####  安娜导函数  
+##### 20005#       发表于 2025-2-8 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373389&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-8 10:36</a>
+你們（指樓裡的中年/老年男人控們） 能背負別人的人生嗎？
+
+像C團那樣， 有些和解就是分手 </blockquote>
+楼里的中年人不能，但是祥子的外公能<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+回不回去不就编剧一句话的事？就算真回不去也不会住初华那边的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20006#       发表于 2025-2-8 10:41
+
+在初华家的问题，其实一开始就明说了，祥子一进门就选择了阁楼，而没有选择和初华住在同一层，这就代表她们之间的关系是不对等，就和ED画面里的一样，祥子在山巅，而初华在上山的路上，这种心理上隔阂让她们无法沟通，但也确实最容易解决的，只要祥子向下走几步就可以，初华一直没有停止上山的步伐，所以两人一定会相遇
+
+那么，大概祥子与初华和解的剧情也是最短的，这符合神秘学假药里初华只需要经过祥子就能回到自己的正位
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
