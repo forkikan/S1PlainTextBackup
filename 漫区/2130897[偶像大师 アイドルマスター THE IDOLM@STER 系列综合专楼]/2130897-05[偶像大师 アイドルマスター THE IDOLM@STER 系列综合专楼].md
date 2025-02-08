@@ -191,3 +191,20 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 夜场直接发力唱豪歌，太有实力了
 
+
+*****
+
+####  白水潭的饿鬼  
+##### 6901#       发表于 2025-2-8 18:41
+
+所以会长为啥不是主vi副da角色呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  麻巳巳  
+##### 6902#       发表于 2025-2-8 18:42
+
+羊羔好，羊羔真好，羊羔太好了...
+

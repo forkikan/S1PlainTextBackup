@@ -2045,3 +2045,24 @@ r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还�
 
 注册了就要14元的免费额度，可以用很久。不过我觉得它比网页版DS稍微慢一点，好在不卡一定出回应
 
+
+*****
+
+####  阿刚  
+##### 1665#       发表于 2025-2-8 18:39
+
+<blockquote>overflowal 发表于 2025-2-8 15:32
+r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还是不太行。就讲究一个朴实刚健。可以推断R1的文 ...</blockquote>
+还有问下现在谁家有zero的api啊，本家的好像选不了
+
+*****
+
+####  overflowal  
+##### 1666#       发表于 2025-2-8 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376629&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-8 18:39</a>
+还有问下现在谁家有zero的api啊，本家的好像选不了</blockquote>
+目前只有hyperbolic提供了这个api，因为zero版本本身用起来很多问题，只是个概念展示。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
