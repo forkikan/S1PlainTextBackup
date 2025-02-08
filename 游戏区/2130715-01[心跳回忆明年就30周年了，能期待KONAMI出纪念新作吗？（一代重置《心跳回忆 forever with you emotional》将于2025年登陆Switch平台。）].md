@@ -3459,3 +3459,18 @@ Konami的在线服务向来就这么短命 ...</blockquote>
 
 复刻版的evs联网是基于NS2 eshop的网络的，要暂停支持肯定得eshop对应下线
 
+
+*****
+
+####  nanoka111  
+##### 277#       发表于 2025-2-8 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372589&amp;ptid=2130715" target="_blank">穿越护城河 发表于 2025-2-8 08:17</a>
+
+？？？
+
+大哥你再考虑一下自己说的</blockquote>
+我明明记得心跳4的EVS服务在游戏推出的几年后就停了的，甚至在PSP的网络服务中止之前，当年对此还有过讨论的？
+
+刚才搜了一下，这样的讨论没有了，难道我进入了异次元时空？最近总是发现有些已经记了很多年的确凿记忆，后来却被证实并不是那么回事的情况。
+
