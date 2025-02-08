@@ -3524,3 +3524,16 @@ GS4现在还是NS独占呢</blockquote>
 老家伙也不是都会买NS嘛</blockquote>
 因为单就日本市场的游戏机来说，也就NS一选了
 
+
+*****
+
+####  Toby_dak  
+##### 282#       发表于 2025-2-8 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372711&amp;ptid=2130715" target="_blank">nanoka111 发表于 2025-2-8 09:49</a>
+
+我明明记得心跳4的EVS服务在游戏推出的几年后就停了的，甚至在PSP的网络服务中止之前，当年对此还有过讨 ...</blockquote>
+官网首页就挂着。
+
+[https://www.konami.com/games/tokimeki/4/](https://www.konami.com/games/tokimeki/4/)
+

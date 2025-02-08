@@ -9677,3 +9677,11 @@ https://x.com/inchhime/status/1887788362100285879?s=09 ...</blockquote>
 特典都好受欢迎啊，这周的MS胶片在煤炉都挺贵的，比角色贵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 然后上周发的册子本来因为是入场特典一度很便宜，现在看又升回150以上了。
 
+
+*****
+
+####  岸浪白野  
+##### 6652#       发表于 2025-2-8 14:05
+
+<img src="https://p.sda1.dev/21/d6ebc211284a47c9bf181ffb326e4b8c/image.jpg" referrerpolicy="no-referrer">
+
