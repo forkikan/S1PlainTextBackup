@@ -2030,3 +2030,18 @@ r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还�
 r1-zero虽然没有瑟瑟审核，但是文字能力和脑洞相比R1来说还是不太行。就讲究一个朴实刚健。可以推断R1的文 ...</blockquote>
 朴实一点好啊，r1的脑洞太大了，而且老想着改造人类这点挺吓人的，动不动就拐到战锤帝国的科技点上去了
 
+
+*****
+
+####  supika  
+##### 1664#       发表于 2025-2-8 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373595&amp;ptid=2243718" target="_blank">无名小卒 发表于 2025-2-8 11:03</a>
+
+官方免费的卡的没法用。
+
+小白一个，请问现在有啥付费的渠道，可以上传文档资料的，然后让ds分析写文档，论 ...</blockquote>
+老哥，这里是硅基流动的邀请链接~[https://cloud.siliconflow.cn/i/b7Uem20Z](https://cloud.siliconflow.cn/i/b7Uem20Z)
+
+注册了就要14元的免费额度，可以用很久。不过我觉得它比网页版DS稍微慢一点，好在不卡一定出回应
+
