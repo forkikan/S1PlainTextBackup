@@ -9787,3 +9787,43 @@ bd发售
 才看清这里有个红高达，所以那个扎古驾驶员才说了类似“那家伙也有mav吗？”的台词。那这里到底是咋个回事 ...</blockquote>
 不太理解这个问题，这里应该是2对2打黑拳的时候吧？红高达本身就是和gqx组团的参赛选手呀
 
+
+*****
+
+####  岸浪白野  
+##### 6663#       发表于 2025-2-8 20:05
+
+“明明带着奇怪面具真面目竟然是金发帅哥”，今天这波讨论也让很多人开始回味以前，安田朗的吐槽也是精辟
+
+<img src="https://img.saraba1st.com/forum/202502/08/195514a57knpj6j258jhh8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/194845uvaaqaqahadlgfgr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/195205iq30ss9d9dew9kmv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 19:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/195926a1foh6ngeeo11ped.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 19:59 上传
+

@@ -216,3 +216,14 @@ MV明晚公開，串流/販賣時間不明。</blockquote>
 
 爱了爱了 会长中之人不负众望
 
+
+*****
+
+####  starring  
+##### 6904#       发表于 2025-2-8 20:04
+
+羊羔这身材，要变肉体厨了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+小小野望这首歌还是太难了，后半段已经不够体力去唱硬撑着唱完
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
