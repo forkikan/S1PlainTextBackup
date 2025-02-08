@@ -9835,3 +9835,13 @@ bd发售
 
 让夏亚以79的形象原原本本地再登场确实很大胆，用40多年前的形象跟着麻球一起出新谷的画面太魔幻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6665#       发表于 2025-2-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377265&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-8 20:47</a>
+ 让夏亚以79的形象原原本本地再登场确实很大胆，用40多年前的形象跟着麻球一起出新谷的画面太魔幻了 ...</blockquote>
+庵野的直觉.jpg
+
