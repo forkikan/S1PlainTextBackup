@@ -9570,3 +9570,30 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 再结合地铁站PV里大喵老师对祥子的输出台词"大家都把人生交给你了，你现在想抛下一切逃走嘛"，我大胆猜测是在睦头人、大喵老师撺掇下重组的，比如大喵老师终于忍不住跑去找睦头人说要问她演技为何如此逼真，然后睦头人要求重组mujica?之后两人然后拉了初华海玲，最后把大祥老师（还是软糯的）拽进来，mujica2.0结成之后，丰川老登出来干涉，结果活动又被迫停止，大祥老师（软糯的）又双叒叕想着逃跑了，结果被大喵老师一顿输出终于觉醒，正式和丰川家切割，重组mujica3.0，抛弃所谓的商业化，从livehouse重新起家走向自己的人生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 20040#       发表于 2025-2-8 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374309&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-8 12:55</a>
+完全不可能，海玲说自己在30多个乐队代打，活动的也就10个左右，说明其他的要么大家都不来了，要么就是直 ...</blockquote>
+这个就涉及海铃隐藏起来的另一面的问题了，不过这部分还是假药的成分居多
+
+确实可能海铃只是单纯的被动，但这与<strong>蝎子的意象</strong>相冲突，所以还得再观望
+
+在OP中，海铃倾倒了杯中的葡萄酒(?)，也就是“圣杯”中的“圣血”，这可能意味着某种“叛教”的行为，显然这种行为必然是主动的，如果A团会有二次黑化的剧情的话，那可能就代表海铃决定主动为团队做什么事情，但如果代表的是最初的祥子的意志，那就有可能是“原初的反叛”，即拆团
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  影伴光生  
+##### 20041#       发表于 2025-2-8 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373932&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-8 11:53</a></blockquote>
+把祥子叫过来，这样莫女士就拒绝消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
