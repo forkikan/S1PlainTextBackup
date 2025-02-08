@@ -3038,3 +3038,22 @@ soyo释怀了吗？
 
 喵梦都开做吃辣挑战了，感觉马上要咬打火机了啊
 
+
+*****
+
+####  庸necro  
+##### 304#       发表于 2025-2-8 09:32
+
++1吧，给下一集留点上升空间，虽然我并不觉得真的能上升
+
+*****
+
+####  岬开斗  
+##### 305#       发表于 2025-2-8 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372913&amp;ptid=2245428" target="_blank">十九号大侠 发表于 2025-2-8 09:20</a>
+喵梦都开做吃辣挑战了，感觉马上要咬打火机了啊</blockquote>
+咬打火机炸到了脸不得不戴面具，然后忏悔自己不该摘面具是吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
