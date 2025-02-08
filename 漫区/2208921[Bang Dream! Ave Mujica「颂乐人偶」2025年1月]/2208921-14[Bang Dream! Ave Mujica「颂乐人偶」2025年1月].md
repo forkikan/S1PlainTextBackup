@@ -10896,3 +10896,81 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  安娜导函数  
+##### 20157#       发表于 2025-2-8 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376770&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-8 19:07</a>
+我早就知道要解散了，感觉怎么还有一点幸灾乐祸在里面啊</blockquote>
+我觉得不是幸灾乐祸，而是经历过太多解散，已经有了第六感的那种感觉
+
+*****
+
+####  fuwamoco  
+##### 20158#       发表于 2025-2-8 19:54
+
+小墨现在还不谐星吗，虽然各种往恐怖片塑造，但是只要开始做事就搞砸
+
+*****
+
+####  江口夕  
+##### 20159#       发表于 2025-2-8 19:55
+
+ 本帖最后由 江口夕 于 2025-2-8 19:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这时候就要掏出我的共存监禁论了。是不是很完美，表面上莫和其他人没接触所以不会影响人的关系，暗地里，睦自己也可以解闷放手游是个不错的笑点
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  cccpprc  
+##### 20160#       发表于 2025-2-8 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376916&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-8 19:40</a>
+
+海铃其实啥毛病没有，她就是个来打工的雇佣兵，你这个母鸡卡除了流量大别的全是缺点，凭啥让人把你当归宿， ...</blockquote>
+海玲自己都在反思这把是不是打的有问题了
+
+你在这替人辩经第一个反对的是她本人啊（笑）
+
+
+*****
+
+####  MuramasaSP  
+##### 20161#       发表于 2025-2-8 19:59
+
+个人对祥子对睦反应的理解
+
+（1）这一个月究竟有没有找睦：mortis说了没去就是没去，编剧没有兴趣在方面给祥子找补形象。
+
+（2）一直不知道睦的精神状态所以看同学手机感到惊讶：mortis舞台上都惨叫了，祥子对睦的精神状态肯定是知道的，只不过一直麻痹自己不去想这件事。手机上看到睦的视频才意识到已经无法逃避了，另外睦的情况可能也比她想象中更糟糕，毕竟之前“睦”“mortis”对着吵架这种情况还没有出现。
+
+（3）希望自己从睦身边消失：自言自语的时候是这么想的，但是爱音和灯问她的时候应该只是嘴硬逃避。
+
+
+*****
+
+####  zhoujin8584  
+##### 20162#       发表于 2025-2-8 20:00
+
+第6集的go团细节，两把吉他都已经印上MyGo纹。第7集如果要整个大live活，大概两把吉他都能上场。人不确定
+
+<img src="https://img.saraba1st.com/forum/202502/08/200029zogoekiebbn6bipo.png" referrerpolicy="no-referrer">
+
+<strong>23063417390069862.png</strong> (190.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/200048qn4w2w41qpohnkoc.png" referrerpolicy="no-referrer">
+
+<strong>20206817390070072.png</strong> (239.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:00 上传
+
