@@ -1767,3 +1767,16 @@ D老师虽然很颠，但搞个能融入科技元素的世界观让它帮补充�
 手机用不了？
 那没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 1639#       发表于 2025-2-8 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372519&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-8 07:49</a>
+手机用不了？
+那没办法了</blockquote>
+酒馆是有移动版本的，你搜一下应该能搜到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

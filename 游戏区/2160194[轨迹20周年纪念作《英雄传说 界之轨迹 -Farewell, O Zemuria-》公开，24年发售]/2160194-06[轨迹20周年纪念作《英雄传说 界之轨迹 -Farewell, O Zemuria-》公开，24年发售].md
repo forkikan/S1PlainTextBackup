@@ -701,3 +701,14 @@ grand odyssey 19999-xxxxx
 
 日本Falcom第一季度（10月至12月）财报显示，销售额下降46%，营业利润下降80%。主要授权部门比去年下滑导致
 
+
+*****
+
+####  風卷豹  
+##### 7596#       发表于 2025-2-8 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67366277&amp;ptid=2160194" target="_blank">tmmd 发表于 2025-2-7 10:51</a>
+
+龙来瀑布路上的那只无限刷的全晶片羊还在不在?</blockquote>
+ 野外的羊收益没砍，庭院里的砍了
+
