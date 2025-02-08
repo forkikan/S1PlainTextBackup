@@ -12316,3 +12316,56 @@ mujica动画的英文标题 The dice is cast (骰子已经掷下)
 之前有出现过吗？好像感觉祥子提到过，但又记不得 ...</blockquote>
 初华在第五集发现祥子出走的场景作为旁白说过
 
+
+*****
+
+####  莱茵哈鲁特  
+##### 20279#       发表于 2025-2-9 01:05
+
+[https://www.bilibili.com/video/BV1yDP1egEdj/](https://www.bilibili.com/video/BV1yDP1egEdj/)
+
+这个失恋阵线联盟mad剪的太好了
+
+*****
+
+####  江口夕  
+##### 20280#       发表于 2025-2-9 01:08
+
+ 本帖最后由 江口夕 于 2025-2-9 01:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378499&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 00:23</a>
+难讲，目前第六话给出的信息并不能说明大喵老师已经接受了睦头有双重人格这回事啊，看热搜直接无视mujica ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大猫人有傻到解散后作为大小姐的成员会在街头表演二重人格么。
+
+从表情来说明显和之前那种被演技震撼时候是有区别的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  玖羽  
+##### 20281#       发表于 2025-2-9 01:10
+
+这个假药太搞笑了，Mortis是睦心目中的祥子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+[https://tieba.baidu.com/p/9477716667?see_lz=1](https://tieba.baidu.com/p/9477716667?see_lz=1)
+
+*****
+
+####  岬开斗  
+##### 20282#       发表于 2025-2-9 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378306&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-8 23:45</a>
+祥子是魅魔转世吧，这动画所有东西的成立点只能说这条件，所有一切灯、睦、爽、初以及其他被骗过来和她搞乐 ...</blockquote>
+白祥？白粉！<img src="https://p.sda1.dev/21/1f256881c3f55b90e11f5f8329c387f5/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 20283#       发表于 2025-2-9 01:12
+
+天蓝色的冰是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
