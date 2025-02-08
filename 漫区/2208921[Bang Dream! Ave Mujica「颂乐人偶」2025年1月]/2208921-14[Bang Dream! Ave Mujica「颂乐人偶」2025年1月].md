@@ -9045,3 +9045,26 @@ mygo全部登场
 
 放在一邊手遊想不到寫什麼再拿出來就行了
 
+
+*****
+
+####  6030sylar  
+##### 20000#       发表于 2025-2-8 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372370&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-8 03:49</a>
+
+好好一个少女乐队片,你们就重点关注人家爹</blockquote>
+符合s1 gay坛印象
+
+
+*****
+
+####  安娜导函数  
+##### 20001#       发表于 2025-2-8 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373246&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-8 10:10</a>
+都說了，
+
+結尾搬出去跟初華住</blockquote>
+不会的，结局肯定是带着中登回归丰川家的，与自己家庭和解也是饺子馅<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
