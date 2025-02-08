@@ -11812,3 +11812,38 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 
 就算是鸟也说不出和史黛拉不熟这么变态的话的
 
+
+*****
+
+####  aptx8285144  
+##### 20233#       发表于 2025-2-8 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378029&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-8 22:57</a>
+
+就算是鸟也说不出和史黛拉不熟这么变态的话的</blockquote>
+如果考虑到睦是青梅竹马，鸟应该是对陪伴时间更长的露娜说这种话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 20234#       发表于 2025-2-8 23:09
+
+祥子戏份很多啊，已经多到感觉重复的地步了。这几集给我的感觉就是把大伙叫出来就是为了这点事啊，像卒里面水集数的那几集，把知道的情报再说一遍，让mygo也知道一下。
+
+
+*****
+
+####  ashero  
+##### 20235#       发表于 2025-2-8 23:13
+
+我有一个新的发想  大祥是被逼着回去母鸡卡的 另外四个人看到大祥和旧c凑一起破防了把大祥绑回去母鸡卡
+
+*****
+
+####  看穿一切的鱼  
+##### 20236#       发表于 2025-2-8 23:15
+
+初华那个怒颜还没回收呢，是看见小祥挨耳光了还是看见她抛弃自己找前女友了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
