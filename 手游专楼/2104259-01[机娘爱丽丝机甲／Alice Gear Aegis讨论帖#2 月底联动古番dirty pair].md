@@ -39,3 +39,15 @@ P站联动活动居然没有在复刻票兑换里<img src="https://static.saraba
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 别啊，又有生放了，周年后还有货怎么都不像阿金，所以有可能是新联动（奶
 
+
+*****
+
+####  冰风血羽  
+##### 1372#       发表于 2025-2-8 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373721&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-2-8 11:22</a>
+别啊，又有生放了，周年后还有货怎么都不像阿金，所以有可能是新联动（奶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">上头害人啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

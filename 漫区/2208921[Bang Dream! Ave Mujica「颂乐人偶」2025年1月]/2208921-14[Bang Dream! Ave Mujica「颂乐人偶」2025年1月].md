@@ -9526,3 +9526,47 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 
 同理，讨论怎么让小登包饺子也是因为她是自带魅魔光环的主角，狗团一圈人围着她转，舔狗如云，不然就这奇葩脾气最有可能的结局就是被老登养到岁数招个上门女婿当生育机器用，当然这个结局肯定比路边一条好得多
 
+
+*****
+
+####  安娜导函数  
+##### 20037#       发表于 2025-2-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373970&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 12:00</a>
+但解散可能也是一些人的行为目的，就比如说，我们假设，只是假设，海铃在与“睦”沟通的时候，提议“既然 ...</blockquote>
+完全不可能，海玲说自己在30多个乐队代打，活动的也就10个左右，说明其他的要么大家都不来了，要么就是直接炸团了，但是海玲还是坚持说30多个，说明她是很不喜欢乐队解散的，内心深处是渴望长久的，只是遇到太多炸了的团让他屏蔽了自己的感情外露，和别人保持足够的距离感，因此我认为从海玲的性格出发，她绝对不会是主动提出要炸团的那个，第6集的表现也提现出她其实内心很在意mujica1.0解散的事的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20038#       发表于 2025-2-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374009&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 12:08</a>
+这是萌战吧假药贴基于神秘学知识给出的A团剧情发展脉络和众人人物弧光建立的推测
+
+大家可以参考一下</blockquote><blockquote><strong>众人成长后的归宿→最后回归的本位能量
+可靠，稳重，值得信赖，默默陪伴，孕育一切的睦。
+包容一切，敏感善良，心中充满爱，感受一切融合一切模仿一切，君子不器的初华。
+注重精神追求，自由追寻自身【高我】与真正自我的艺术价值实现的大贤者（不）喵梦喵梦
+敢于行动，勇于开拓，用热烈的情感守护众人，努力团结大家，守护伊甸园入口，祥子左膀右臂的似神者，大天使海铃。
+以及将自身与宇宙同高，接引无限光，经由四元素将能量传导至大地，伟大梅塔特隆的引导者——魔术师，丰川祥子</strong></blockquote>
+然后这是假药贴对最终人物形象的推测，至于能不能接受就看观众自己了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+原贴链接
+
+[https://tieba.baidu.com/p/9470914098?see_lz=1](https://tieba.baidu.com/p/9470914098?see_lz=1)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  安娜导函数  
+##### 20039#       发表于 2025-2-8 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374019&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-8 12:09</a>
+那这样我看完哭来兮苦第三季就得溜了，后面的母鸡卡祝她们幸福
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+再结合地铁站PV里大喵老师对祥子的输出台词"大家都把人生交给你了，你现在想抛下一切逃走嘛"，我大胆猜测是在睦头人、大喵老师撺掇下重组的，比如大喵老师终于忍不住跑去找睦头人说要问她演技为何如此逼真，然后睦头人要求重组mujica?之后两人然后拉了初华海玲，最后把大祥老师（还是软糯的）拽进来，mujica2.0结成之后，丰川老登出来干涉，结果活动又被迫停止，大祥老师（软糯的）又双叒叕想着逃跑了，结果被大喵老师一顿输出终于觉醒，正式和丰川家切割，重组mujica3.0，抛弃所谓的商业化，从livehouse重新起家走向自己的人生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
