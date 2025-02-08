@@ -12304,3 +12304,15 @@ mujica动画的英文标题 The dice is cast (骰子已经掷下)
 
 之前有出现过吗？好像感觉祥子提到过，但又记不得哪里有了。
 
+
+*****
+
+####  零壹贰叁  
+##### 20278#       发表于 2025-2-9 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378519&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-9 00:27</a>
+mujica动画的英文标题 The dice is cast (骰子已经掷下)
+
+之前有出现过吗？好像感觉祥子提到过，但又记不得 ...</blockquote>
+初华在第五集发现祥子出走的场景作为旁白说过
+
