@@ -784,3 +784,13 @@ grand odyssey 19999-xxxxx
 野外的羊收益没砍，庭院里的砍了</blockquote>
 不是 我问的是那只羊还能不能无限刷.别的野外羊都是一次性的,就那的一组可以像其他野怪一样用回复柱无限刷新
 
+
+*****
+
+####  風卷豹  
+##### 7602#       发表于 2025-2-8 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373445&amp;ptid=2160194" target="_blank">tmmd 发表于 2025-2-8 10:42</a>
+不是 我问的是那只羊还能不能无限刷.别的野外羊都是一次性的,就那的一组可以像其他野怪一样用回复柱无限 ...</blockquote>
+还没试，只试了伊西斯郊外的可以柱子刷新<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
