@@ -9918,3 +9918,18 @@ bd发售
 
 不知道有没有0085画风的夏亚，竹之前画过类似的成熟金发帅哥角色吗？
 
+
+*****
+
+####  zakufa782  
+##### 6673#       发表于 2025-2-8 22:50
+
+昨天刚好刷到这个[视频](https://www.bilibili.com/video/BV1xa4peeEcC/?spm_id_from=333.337.top_right_bar_window_history.content.click&amp;vd_source=2f4ccef050add99a4737b7c930c04f50)，非常应景<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 6674#       发表于 2025-2-8 22:54
+
+X上嬷最多的难道不是未亡人湿度男夏利亚和进狱系小青年艾克撒贝吗（甚至还有审讯情节和体贴的男长官…
+

@@ -11731,3 +11731,69 @@ My狗第9集後海鈴問立希散團後有沒有去關心愛音
 
 我不明白有些人是真的无法理解，还是假装看不懂
 
+
+*****
+
+####  看穿一切的鱼  
+##### 20225#       发表于 2025-2-8 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377919&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-8 22:43</a>
+真的有人觉得MyGO结束时的祥子有逼格吗？直接盖章快坏掉了好吧
+
+开播之前就能看出Mujica里祥子必然要坏掉 ...</blockquote>
+现在的问题就是，大家其实都知道祥老师早就坏掉了。但是从坏掉到被彻底打碎的观感太烂了，而且非要对轴那个b第七集生日弄得太拖沓了。
+能理解的也变成不能理解了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 20226#       发表于 2025-2-8 22:47
+
+ 本帖最后由 江口夕 于 2025-2-8 22:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">早就在筛选了，三观问题，觉得不需要救祥爸的九成九要失望了。
+之前非要说睦演的都去哪，这些觉得不要救祥爸的就去哪。就像以前所谓的素睦党在那扬言睦和祥子不熟一样。
+
+睦为啥急着去见祥子，因为她看了电视立马就想到祥子会对自己的现状产生内疚。睦很明白什么样的话会另别人受伤。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 20227#       发表于 2025-2-8 22:48
+
+ 本帖最后由 aptx8285144 于 2025-2-8 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377919&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-8 22:43</a>
+
+真的有人觉得MyGO结束时的祥子有逼格吗？直接盖章快坏掉了好吧
+
+开播之前就能看出Mujica里祥子必然要坏掉 ...</blockquote>
+你真要代表所有人的观点吗，我看鸡团时是做好大祥去当一个有大量戏份，存在感极强的角色（注意不是善或恶）而不是现在被嘲笑令和种命，连战吧这样百合主导阵营都开火”可不可以当go第二季“看？你还在说官方没有锅？
+
+
+*****
+
+####  十万年魂环  
+##### 20228#       发表于 2025-2-8 22:53
+
+sd还是数码2，现在也没捧到种命那样呀<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 20229#       发表于 2025-2-8 22:54
+
+在soyo一巴掌把大祥老师打飞之后才是种命
+
+*****
+
+####  ml1642879  
+##### 20230#       发表于 2025-2-8 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377824&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-8 22:28</a>
+？？？？？？？？？</blockquote>
+むつみ和ひとみ也能打错的吗，staff扣工资了
+
