@@ -9394,3 +9394,71 @@ kkr能背负别人的人生，不光是因为弦卷家深不可测的财力，�
 说到底大祥就是怕和人交心，一旦交心的内容超出了她的接受范围就很容易红温然后开始口不择言，这个不改必然 ...</blockquote>
 下一集就能看到自己隐藏了一年多，最不想让人知道的消息透露给最不想让知道的人时候的痛苦章鱼小丸子表情了
 
+
+*****
+
+####  庸necro  
+##### 20028#       发表于 2025-2-8 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373970&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 12:00</a>
+
+但解散可能也是一些人的行为目的，就比如说，我们假设，只是假设，海铃在与“睦”沟通的时候，提议“既然 ...</blockquote>
+这也太阴暗了，还好你不是编剧，照你说的为立希出气，立希海玲形象都很奇怪了
+
+立希其实对祥子没什么恶感，完全谈不上需要谁为其复仇
+
+*****
+
+####  天空塔书记官  
+##### 20029#       发表于 2025-2-8 12:08
+
+<blockquote><strong>“虽然最后的顺序尚有争论，但是世俗面具、灵性成长之路、与回归后的本位能量本篇就可以完全解决了。
+
+1.世俗面具/上升星座/众人目前深陷的困局/名字中的字谜
+睦→陷入气元素的世俗面具→深陷悲伤
+初华→险入火元素的世俗面具→深陷不自愿的行动，冲突，纠纷
+海铃→陷入水元素的世俗面具→消极被动
+喵梦→陷入土元素的世俗面具→过于物质主义
+祥子→无法与梅塔特隆的无限光融合→痛苦与无法改良外界环境引发的自我厌恶
+
+2.灵性的成长之路
+睦→火元素紧握权杖的行动力→死亡之课题→不惧怕纷争与行动
+初华→气元素宝剑穿身的痛苦→悲伤之课题→不惧怕放手，做出抉择
+海铃→土元素踏实落地的孕育→恐惧之课题→不惧怕肩负责任，守护归宿
+喵梦→水元素包容敏感的谅解→爱之课题→不惧怕包容与共情她人的情感与关系
+祥子→接受无限光，努力创造→成为魔术师”</strong></blockquote>
+这是萌战吧假药贴基于神秘学知识给出的A团剧情发展脉络和众人人物弧光建立的推测
+
+大家可以参考一下
+
+原贴在这里
+
+[https://tieba.baidu.com/p/9470914098?see_lz=1](https://tieba.baidu.com/p/9470914098?see_lz=1)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 20030#       发表于 2025-2-8 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373814&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-8 11:33</a>
+早说了大喵老师是编剧钦定的组建mujica2.0的核心人物，就等她演艺圈吃瘪想起来组团才是唯一出路了呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">那这样我看完哭来兮苦第三季就得溜了，后面的母鸡卡祝她们幸福
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 20031#       发表于 2025-2-8 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374006&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-2-8 12:07</a>
+这也太阴暗了，还好你不是编剧，照你说的为立希出气，立希海玲形象都很奇怪了
+
+立希其实对祥子没什么恶感 ...</blockquote>
+但蝎子的意象不可能白给的，这是由此衍生的某种惯性推导，只是一种可能<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

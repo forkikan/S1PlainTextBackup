@@ -3487,3 +3487,16 @@ Konami的在线服务向来就这么短命 ...</blockquote>
 大哥你再考虑一下自己说的</blockquote>
 基于NS的话那移植的可能性是不是又低了
 
+
+*****
+
+####  穿越护城河  
+##### 279#       发表于 2025-2-8 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373969&amp;ptid=2130715" target="_blank">DARKGRAY 发表于 2025-2-8 12:00</a>
+
+基于NS的话那移植的可能性是不是又低了</blockquote>
+为什么你会做移植的梦
+
+GS4现在还是NS独占呢
+
