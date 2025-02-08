@@ -2182,3 +2182,14 @@ R1里对非可验证任务还是用了reward model的
 
 deepinfra没有比deepseek贵太多，速度也还行，应该不用担心审查，目前用下来感觉还行。缺点是要绑银行卡，上下文只有16k。
 
+
+*****
+
+####  秦南心  
+##### 1678#       发表于 2025-2-8 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376742&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-8 19:01</a>
+
+R1越狱prompt后瑟瑟太厉害了，有点理解4chan老哥说自己R1出来后玩一晚上不睡觉的快乐。不过它口味实在有点 ...</blockquote>
+越狱prompt是哪些 指个路呗
+

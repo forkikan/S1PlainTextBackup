@@ -12055,3 +12055,68 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 
 祥子是魅魔转世吧，这动画所有东西的成立点只能说这条件，所有一切灯、睦、爽、初以及其他被骗过来和她搞乐队的，都是被她魅惑了，不然你发现这剧情就完全没办法解释得通
 
+
+*****
+
+####  江口夕  
+##### 20256#       发表于 2025-2-8 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">地铁那个cm不是已经告诉你们了，祥子是大猫去说的，不是大祥来组。
+这波睦二重人格表演，mujica所有人应该都看到了，cm那个拿手机给初华看的应该是纯甜女士
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  cccpprc  
+##### 20257#       发表于 2025-2-8 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378297&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-8 23:43</a></blockquote>
+这下环大陆好评了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+至于说日本阿宅这是大将风度还是神经太祖，可能得完结了再下结论了
+
+
+*****
+
+####  江口夕  
+##### 20258#       发表于 2025-2-8 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378299&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-8 23:44</a>
+祥老师可以挨了耳光以后继续嘴硬啊，然后go的人也不管她了睦也不管她了。感觉也不是不可能，六集前谁想得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">下集祥子穿着校服去睦家就是第六集结尾遇见爱灯之后，怎么就切割了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  takerest  
+##### 20259#       发表于 2025-2-8 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377575&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 21:51</a>
+
+楼上说了参加鸡团是海玲自己的选择
+
+你做出了参加团队的选择，却不愿为团队真正付出
+
+然后你说我的本分就是 ...</blockquote>
+第二集的乐队行程规划是你给制定的是吧？纯道德绑架
+
+*****
+
+####  保真花生  
+##### 20260#       发表于 2025-2-8 23:54
+
+讲道理鸡确实很有趣，人物塑造如果不是大象厨的话，其实也还好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 20261#       发表于 2025-2-8 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377643&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-8 22:04</a>
+海鈴生氣很簡單
+
+你試試女朋友回家後跟你說她上班的地方一堆神人，</blockquote>
+喵梦她奶奶当年就是这么对ksm说的啊"你尽力了嘛？"
+
