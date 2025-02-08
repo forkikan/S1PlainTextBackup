@@ -1876,3 +1876,52 @@ d老师总喜欢写金属皮带扣
 
 cherry studio上调用d指导，是不是还不能调用硅基流动的这两天上的r1 pro？能选的硅基流动模型里现在只有r1和v3？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 1649#       发表于 2025-2-8 11:25
+
+硅基流动怎么像ds官网一样看聊天记录？昨天发的内容都找不到了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 1650#       发表于 2025-2-8 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373743&amp;ptid=2243718" target="_blank">人畜无害沃特碧 发表于 2025-2-8 11:25</a>
+硅基流动怎么像ds官网一样看聊天记录？昨天发的内容都找不到了</blockquote>
+硅基流动自己好像是没法像官网那样看历史记录，除非你用chatbox之类的软件
+
+
+*****
+
+####  秦南心  
+##### 1651#       发表于 2025-2-8 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373630&amp;ptid=2243718" target="_blank">Edvinno 发表于 2025-2-8 11:08</a>
+
+cherry studio上调用d指导，是不是还不能调用硅基流动的这两天上的r1 pro？能选的硅基流动模型里现在只有r1 ...</blockquote>
+可以调用啊，管理里搜pro有pro/deepseek-ai/deepseek-r1
+
+*****
+
+####  jumbleh  
+##### 1652#       发表于 2025-2-8 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373595&amp;ptid=2243718" target="_blank">无名小卒 发表于 2025-2-8 11:03</a>
+
+官方免费的卡的没法用。
+
+小白一个，请问现在有啥付费的渠道，可以上传文档资料的，然后让ds分析写文档，论 ...</blockquote>
+硅基流动的pro模型api+各种rag软件就可以
+
+*****
+
+####  Edvinno  
+##### 1653#       发表于 2025-2-8 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373791&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-8 11:31</a>
+可以调用啊，管理里搜pro有pro/deepseek-ai/deepseek-r1</blockquote>
+感谢，原来pro写在最前面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
