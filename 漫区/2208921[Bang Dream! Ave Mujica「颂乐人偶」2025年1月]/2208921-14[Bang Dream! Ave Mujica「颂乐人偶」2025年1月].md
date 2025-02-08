@@ -11372,3 +11372,40 @@ mygo的睦还只是个无口的小黄瓜，mujica播完了就是个再也治不�
 
   她并没有像她的妆容那么成熟冷漠，这就是我的看法。
 
+
+*****
+
+####  cccpprc  
+##### 20196#       发表于 2025-2-8 21:21
+
+ 本帖最后由 cccpprc 于 2025-2-8 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377367&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 21:06</a>
+
+这就是同一件事不同价值观的人会有不同的反应了，海玲对于睦头 初华 甚至大喵的行为心理状态一直在关心 ...</blockquote>
+海玲在车站参团，就是想主动介入团队。但是她太久不直接参与团队运作了，也害怕自己下场了还是得不到回应反而惹祸上身。最后海玲在车站当起了端水串子，往岌岌可危的形势上又补了一刀。最后，海玲指责大祥老师不关心队友的话成了立希手上的回旋镖，这就让她警醒起来了。
+
+她当然不冷漠，但她缺乏勇气，不知道自己想要什么，也不愿去过多的付出。现在她开始反思自己了，就该是立起牺牲殉道人设的时候了。
+
+*****
+
+####  江口夕  
+##### 20197#       发表于 2025-2-8 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377367&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 21:06</a>
+这就是同一件事不同价值观的人会有不同的反应了，海玲对于睦头 初华 甚至大喵的行为心理状态一直在关心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她遇事只止步于责任的层面。就是员工层面的有职业道德，关心同事仅此而已了。让他去xx家这种肯定是不可能的。但是乐队要的是真情实感，所谓友情以上的家族感。她不明白的是，就是因为真情实感所以也容易吵架，吵架其实也是乐队的一环
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  木板春香  
+##### 20198#       发表于 2025-2-8 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377437&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 21:21</a>
+
+海玲在车站参团，就是想主动介入团队。但是她太久不直接参与团队运作了，也害怕自己下场了还是得不到回应 ...</blockquote>
+ 所以需要一次重组啊，1.0小象母鸡卡是必定会散团的，大家的准备都还不够，不足以互相信赖到一辈子，所以得散，正因为暴露出来的种种问题，解决了才能破而后立啊。
+
+  从不粘锅的无责任打法到做出团队级的改变，大家都需要重新再谈一次。
+
