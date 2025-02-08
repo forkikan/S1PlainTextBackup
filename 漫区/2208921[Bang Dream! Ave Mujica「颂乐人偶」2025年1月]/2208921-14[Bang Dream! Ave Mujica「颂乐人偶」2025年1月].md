@@ -10854,3 +10854,45 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cccpprc  
+##### 20154#       发表于 2025-2-8 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376724&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 18:55</a>
+
+现实行进，兼听则明</blockquote>
+这就对了呀
+
+海玲知道自己应该去守护，去忠实于某些东西了。不再是前三集那个首鼠两端的串子了
+
+这就是人物成长啊
+
+然后发现“我效忠的对象不在了”
+
+最后变成“大祥就是母鸡卡，母鸡卡就是大祥”这不就归队了嘛（你问我为什么这时候她惦记起大祥了？那MYGO结尾她说的丰川同学是总指挥嘛）
+
+*****
+
+####  cccpprc  
+##### 20155#       发表于 2025-2-8 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376855&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-8 19:24</a>
+
+灵感猫本身作为一个设定而言并不是什么很新的玩意，大家二创里见的多了。但是这个剧情最大的问题是，在“某 ...</blockquote>
+反正我从一开始就主张消失论的，甚至共存论如果手游里搞得谐星一点也不是不能接受。
+
+但是看ED好像走的是融合论
+
+*****
+
+####  看穿一切的鱼  
+##### 20156#       发表于 2025-2-8 19:48
+
+芭蕾舞鞋会不会味道很大，soyo有福了。
+
+双重人格怎么处理都是个雷，融合也不是消灭也不是共存也不是。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
