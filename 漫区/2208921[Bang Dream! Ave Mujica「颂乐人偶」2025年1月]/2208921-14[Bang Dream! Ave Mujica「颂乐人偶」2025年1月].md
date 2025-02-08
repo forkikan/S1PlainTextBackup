@@ -10391,3 +10391,30 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 
 其实国内引进什么都看个乐，排片就告诉你期望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 20113#       发表于 2025-2-8 16:58
+
+<img src="https://img.saraba1st.com/forum/202502/08/165853i1e18a7781om88el.jpg" referrerpolicy="no-referrer">
+
+<strong>C9R`(_KW}JT`K%`1~4ZG0DA_tmb.jpg</strong> (120.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 16:58 上传
+
+
+*****
+
+####  玖羽  
+##### 20114#       发表于 2025-2-8 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375856&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-8 16:29</a>
+
+我来给祥子洗一下。祥子看到睦的视频之后，说“是我害惨了睦，如果没有我，睦就能……”，所以才会在后面说不认识睦。是觉得自己给睦带来不幸，所以希望不再把睦牵扯到自己身上。</blockquote>
+啊不然呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 
+
+前面是这一句，后面马上让爱音补上，就跟她从英国留学失败回来的时候一样，也不知道那么多人是故意装傻还是没有理解能力
+
