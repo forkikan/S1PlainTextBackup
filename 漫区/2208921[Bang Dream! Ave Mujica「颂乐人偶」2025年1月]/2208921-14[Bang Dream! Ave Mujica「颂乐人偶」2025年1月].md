@@ -8758,3 +8758,42 @@ mortis这人怎么说呢，有蛊惑 ...</blockquote>
 
 2025-2-8 07:52 上传
 
+
+*****
+
+####  595505568  
+##### 19975#       发表于 2025-2-8 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372028&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 00:44</a>
+再核对一个细节，    </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，草，新的角度
+
+*****
+
+####  595505568  
+##### 19976#       发表于 2025-2-8 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372028&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-8 00:44</a>
+再核对一个细节，    </blockquote>
+等下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 19977#       发表于 2025-2-8 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372366&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-8 03:46</a>
+讨论了一天的中登老登，这就是女女关系性吗</blockquote>
+这话不就<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">好可爱。
+
+或者<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">:妈妈!
+
+
+*****
+
+####  swff  
+##### 19978#       发表于 2025-2-8 08:26
+
+既然下集无论如何是要开始上扬了，我想了一下现在祥子这样自我厌恶逃避，觉得自己做的全是错的不如摆烂的情况下怎么才能合理情感上能接受的振作起来的方法，重看看到下集预告里专门安排立希碰到祥子，我就有了个想法。就是要让c团的人表达对祥子的感谢，让她明白组件c团不是个错误，你做的事不是全是错的，是有价值的能帮到他人的。这么说大概会被人喷，还是那句话，君子论迹不论心。就像由于自身性格缺陷，加上编剧的大手让祥子一路上在主观上没有恶意的情况下一直做出最糟糕的选择导致最差的结果伤害了所有人一样。你可以说组件c团的时候也是自我中心不顾他人感受自说自话。 但是c团事实上把灯从自闭中拉了出来，给了soyo一个家，让立希认识到自己的价值不是姐姐的附庸，所以才会是所有人一个最美好的回忆。这点是无论如何不能抹杀的。
+而很有意思的一点是，soyo和灯都是非常感性的人。之前soyo对c团的怀念想重组，现在灯虽然能一眼看穿内心关切的小纸条打出了真伤关切，这两者都是情感上的好意和留恋，很巧的是都没有表示过对祥子组件c团行为上的肯定。但是对于之前别扭高自尊现在心死自我厌恶逃避的人来说，是很难接受别人直率的好意的。这样看来下集专门安排立希碰面就很有意思了。立希应该是全剧里最理性的人了，她是唯一一一个直接指出祥子的错误，明确的表示对祥子退出c团的不满责怪的人，但是还是会不时回忆起祥子教她作曲，对祥子的才能有劣等感。让她来做这个点醒祥子的人是最合适的。“我永远也不会原谅你，但还是谢谢你当年找了我。”
+
