@@ -9068,3 +9068,38 @@ mygo全部登场
 結尾搬出去跟初華住</blockquote>
 不会的，结局肯定是带着中登回归丰川家的，与自己家庭和解也是饺子馅<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gaayas  
+##### 20002#       发表于 2025-2-8 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373006&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-8 09:33</a>
+编剧先定好了几集炸团几集包饺子，之后再想方设法填中间的内容，具体写每一集时就是先定好最后三分钟要整什 ...</blockquote>
+正确的，都第六话还在认真讨论扯现实的属实有点搞笑，尤其是什么中登老登睦的父母全是背景板而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 20003#       发表于 2025-2-8 10:36
+
+说到底大祥就是怕和人交心，一旦交心的内容超出了她的接受范围就很容易红温然后开始口不择言，这个不改必然死局，就看看第七集的哭哭怎么修正人格了。
+
+*****
+
+####  南宮凝香  
+##### 20004#       发表于 2025-2-8 10:36
+
+<blockquote>安娜导函数 发表于 2025-2-8 10:27
+不会的，结局肯定是带着中登回归丰川家的，与自己家庭和解也是饺子馅</blockquote>
+你們（指樓裡的中年/老年男人控們） 能背負別人的人生嗎？
+
+像C團那樣， 有些和解就是分手 
+
+老中雙登這種， 一星期見一次差不多了
+
+去背負他們的人生就算了吧
+

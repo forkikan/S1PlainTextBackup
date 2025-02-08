@@ -580,3 +580,16 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 就是轻甲容易寿衣，反应时间也比火甲少
 
+
+*****
+
+####  真红眼教授  
+##### 5733#       发表于 2025-2-8 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67364688&amp;ptid=2170852" target="_blank">qwased 发表于 2025-2-7 04:33</a>
+
+核弹手枪打不掉那种呼叫地狱火下来炸的炮塔，感觉用处有限了
+
+炮舰工厂也不行，只有干扰塔可以一发炸掉</blockquote>
+机器人野队灭散最多的就是干扰塔，能打干扰塔的非战备就足够强度了
+
