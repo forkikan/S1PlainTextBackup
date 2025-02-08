@@ -75,3 +75,11 @@ evol真的很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集的新角色出场还挺意料之外的
 
+
+*****
+
+####  nelson2062  
+##### 245#       发表于 2025-2-9 03:23
+
+那么问题来了，绿毛男和粉毛地雷女谁才是元素班的人，“合二为一”说的就是合体吧...但总觉得绿毛高纬度一点，开局和oped画面他总是和星盘？一起出现
+
