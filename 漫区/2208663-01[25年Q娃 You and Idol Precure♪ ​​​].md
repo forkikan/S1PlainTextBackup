@@ -1440,3 +1440,16 @@ Q娃预告
 
 主要光美这种存在，真的需要搞偶像活动来增加曝光度积攒人气吗？又或者说没有好处的战斗她们难道还不打了吗？
 
+
+*****
+
+####  modedd  
+##### 399#       发表于 2025-2-8 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376780&amp;ptid=2208663" target="_blank">天邪鬼 发表于 2025-2-8 19:09</a>
+
+就感觉“传说中的战士”，“传说中的魔法师”这种存在变成了“传说中的偶像”怪怪的
+
+主要光美这种存在， ...</blockquote>
+第五集就要有p了，具体对偶像活动是啥立场到时候就知道了，不过就算有你说得这种展开后续肯定也是要被修正的就是，幼女番致敬推子也太贻笑大方了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

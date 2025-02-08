@@ -11088,3 +11088,64 @@ mygo里她给人一种对不上灯的电波，帮倒忙的感觉，不像爱 ...
 
 这么说我觉得motis人格消失，但是若叶睦能在舞台上表演出motis的性格这种写法我觉得还可以。最重要的是她必须是若叶睦的一个侧面。
 
+
+*****
+
+####  看穿一切的鱼  
+##### 20174#       发表于 2025-2-8 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377142&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-8 20:24</a>
+米歇尔和pareo是共享记忆和性格的单个个体吧，性质上更像是motis是若叶睦演出来的。（叠甲：老团不是很熟， ...</blockquote>
+魔法猫咪认证是两个"人"。你要让睦当虾仁饭吗！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  木板春香  
+##### 20175#       发表于 2025-2-8 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377136&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-8 20:23</a>
+
+虽然没说海铃的三十几个乐队具体都是什么情况，但是按她现在还跑十几个乐队的状况大概率都是支援成员而非正 ...</blockquote>
+关于海玲的选择在go里就提过了
+
+<img src="https://img.saraba1st.com/forum/202502/08/202739tz7kk5e7ff7k1akk.jpg" referrerpolicy="no-referrer">
+
+<strong>AFRS93[@)TEXGIM)8O8BU6X.jpg</strong> (30.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/202759j8ukxlmxje855lv5.jpg" referrerpolicy="no-referrer">
+
+<strong>6{RV46SW55SMGG{(WD[3[ND.jpg</strong> (36.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/08/202744fu2rdoffazbquzif.jpg" referrerpolicy="no-referrer">
+
+<strong>QONL3RVH`CC2P~(UZE5BBF3.jpg</strong> (35.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:27 上传
+
+ 她去接木头的时候就表态了，母鸡卡就是她的最后一站了，她也想找一支能过一辈子的乐队了。
+
+
+*****
+
+####  cccpprc  
+##### 20176#       发表于 2025-2-8 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377097&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-8 20:15</a>
+
+她这反思不纯粹是编剧跟折腾喵梦一样又开始脑控了，30多个乐队都不呆非得挑个只有流量行的奇葩乐队呆下去 ...</blockquote>
+首先海玲从MYGO结尾就是认可大祥对鸡团音乐性的构想，认可“丰川同学是总指挥”，认可“这是一辈子的事”而加入鸡团的。现在这样不算脑控，算回归初心了
+
+而且这回反思的契机是被立希点草，硬要说脑控也是被立希脑控了
+
