@@ -9653,3 +9653,27 @@ https://x.com/inchhime/status/1887788362100285879?s=09 ...</blockquote>
 
 官网怎么还不换真简介<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 6650#       发表于 2025-2-8 13:57
+
+才看清这里有个红高达，所以那个扎古驾驶员才说了类似“那家伙也有mav吗？”的台词。那这里到底是咋个回事？是想表示奥米茄源于阿尔法？或者两者是被拆分的同体？而且为什么一个路人驾驶员能看到红高达的身影？
+
+<img src="https://img.saraba1st.com/forum/202502/08/135429kp4qptqvibvlllj7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>49EC5974-FFAF-4005-BC18-E8566F28CBF9.jpeg</strong> (58.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 13:54 上传
+
+*****
+
+####  积木23ki  
+##### 6651#       发表于 2025-2-8 13:58
+
+特典都好受欢迎啊，这周的MS胶片在煤炉都挺贵的，比角色贵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+然后上周发的册子本来因为是入场特典一度很便宜，现在看又升回150以上了。
+
