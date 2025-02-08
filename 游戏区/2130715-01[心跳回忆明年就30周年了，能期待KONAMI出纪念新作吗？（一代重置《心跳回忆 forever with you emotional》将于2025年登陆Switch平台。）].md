@@ -3513,3 +3513,14 @@ GS4现在还是NS独占呢
 GS4现在还是NS独占呢</blockquote>
 老家伙也不是都会买NS嘛
 
+
+*****
+
+####  穿越护城河  
+##### 281#       发表于 2025-2-8 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67374084&amp;ptid=2130715" target="_blank">DARKGRAY 发表于 2025-2-8 12:21</a>
+
+老家伙也不是都会买NS嘛</blockquote>
+因为单就日本市场的游戏机来说，也就NS一选了
+

@@ -1948,3 +1948,13 @@ cherry studio上调用d指导，是不是还不能调用硅基流动的这两天
 感谢，原来pro写在最前面</blockquote>
 硅基流动几乎所有的模型都有Pro，所以放在最前面
 
+
+*****
+
+####  秦南心  
+##### 1656#       发表于 2025-2-8 12:33
+
+【完整版DeepSeek-R1 671b本地部署 速度瓶颈深度剖析】 [https://www.bilibili.com/video/BV1REPqeFE6d/](https://www.bilibili.com/video/BV1REPqeFE6d/)
+
+无敌啊，看评论区还有2000块配置1token/s的，过几年国产芯片起来之后不敢想了
+
