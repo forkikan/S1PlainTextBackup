@@ -11886,3 +11886,91 @@ sd还是数码2，现在也没捧到种命那样呀<img src="https://static.sara
 
 这集睦莫sns上的火热引发了对母鸡卡复活的期待 然后嘛 有一个人是有非常强烈的目的想要母鸡卡回来的 初华 因为没有母鸡卡她甚至找不到大祥 多神必
 
+
+*****
+
+####  aptx8285144  
+##### 20241#       发表于 2025-2-8 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378167&amp;ptid=2208921" target="_blank">ashero 发表于 2025-2-8 23:23</a>
+
+根据广告里大猫对祥子那些质问的话和现在流行的对偶结构来说 那么反过来就是祥子最后被拉回母鸡卡
+
+这集睦 ...</blockquote>
+哦，刚才弄错了，你这是对未来的预测，虽说这么搞大瞄的人设很可能要撇开道德不谈了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  海底铁锚  
+##### 20242#       发表于 2025-2-8 23:30
+
+如果mujica最后的结局是疯的疯，死的死，白茫茫大地真干净。用局中这几个神人的结局来表达组乐队要真心，不要过家家，说到做到，不作恶，不迁怒，不要为了短期流量目光短浅，要学会暴露问题解决问题。那目前的所有角色的塑造都很不错，很立体，很有代表性。这个剧本值得25年最佳（暂定
+但问题是现在独角兽就像镜子一样写mujica，而最后囿于bangDream这个大IP不可避免的要包饺子卖卡牌卖钱。这就变成了命题作文，最后不可避免的看到这五个神人要怎么洗白。仅仅从剧中表现的信息来看，初华，海玲，木头这几个基本没作恶的都好搞。但唯独喵梦和祥子是最难洗的角色。这两位在这几集都是被下降头了一样，完全被独角兽当成了人偶。祥子还能说是性格使然，女儿随爹，是人格中的缺陷导致开翻两次乐队。这个人物想要回升有很多例子。但喵梦就纯粹是从第一集到现在都在用精致利己和蠢的目光短视的行为来恶心观众。而更关键的是监督和脚本完全不觉得这有什么问题。这几集甚至用“别人更烂”来衬托喵梦没那么烂。甚至别说洗白了，估计独角兽甚至不认为喵梦的行为有什么问题。
+怎么说呢，这最后包饺子，这个馅你吃么？ 
+
+*****
+
+####  iiiiiiiiii  
+##### 20243#       发表于 2025-2-8 23:33
+
+<img src="https://img.saraba1st.com/forum/202502/08/233318rdl1dxt2cdq6gdtx.jpg" referrerpolicy="no-referrer">
+
+<strong>FB2A502DCF129077A3029BD00BD2DF03.jpg</strong> (235.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-8 23:33 上传
+
+是不是还有个oblivionis
+
+*****
+
+####  ashero  
+##### 20244#       发表于 2025-2-8 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378204&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-8 23:29</a>
+
+哦，刚才弄错了，你这是对未来的预测，虽说这么搞大瞄的人设很可能要撇开道德不谈了，我现在隐约感觉到独 ...</blockquote>
+既然编剧其实有刻意在想对偶剧情 这不是偶然发现的而是相当明确的结构了
+
+那么结局很可能是反过来 大祥才是四个人的人偶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 成为一种病态的共生关系
+
+感觉这样也挺有趣的 只是突然想到的一种假药
+
+*****
+
+####  看穿一切的鱼  
+##### 20245#       发表于 2025-2-8 23:34
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-8 23:35 编辑 
+
+母鸡卡复活肯定就是借着大莫发癫这块炒作一下，借坡下驴了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+大喵看了热搜回来指责大祥大睦不通知自己。
+不过令人感叹，我一点都不想看原班人马。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 20246#       发表于 2025-2-8 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378209&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-8 23:30</a>
+
+如果mujica最后的结局是疯的疯，死的死，白茫茫大地真干净。用局中这几个神人的结局来表达组乐队要真心，不 ...</blockquote>
+如果是“我们都是一丘之貉，所以组乐队“，那还勉强有点救吧，但是现在总感觉各种迹象表明官方对大瞄更亲，指望官方”惩罚“素世那样惩罚大瞄（虽然我的心理期望更高），我不抱大的指望<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保真花生  
+##### 20247#       发表于 2025-2-8 23:35
+
+<img src="https://img.saraba1st.com/forum/202502/08/233540axg7qkx11ktk1bxu.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (137.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 23:35 上传
+

@@ -2174,3 +2174,11 @@ R1里对非可验证任务还是用了reward model的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RobinEatCorn  
+##### 1677#       发表于 2025-2-8 23:29
+
+deepinfra没有比deepseek贵太多，速度也还行，应该不用担心审查，目前用下来感觉还行。缺点是要绑银行卡，上下文只有16k。
+
