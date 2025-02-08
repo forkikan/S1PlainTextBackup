@@ -3707,3 +3707,31 @@ Mujica免费live [https://live.bilibili.com/31160604](https://live.bilibili.com/
 
 备线2还是可以的
 
+
+*****
+
+####  CyDiablo  
+##### 26917#       发表于 2025-2-8 20:36
+
+ 本帖最后由 CyDiablo 于 2025-2-8 20:39 编辑 
+
+给大伙整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/ea437e1a78308c53c3546ef9ffbb5f09/Image_1039466304225033.jpg" referrerpolicy="no-referrer">
+
+20：38   真tm被切了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 26918#       发表于 2025-2-8 20:39
+
+<img src="https://img.saraba1st.com/forum/202502/08/203918b02sbjy393xs1s39.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-8 20:39 上传
+
+笑死
+

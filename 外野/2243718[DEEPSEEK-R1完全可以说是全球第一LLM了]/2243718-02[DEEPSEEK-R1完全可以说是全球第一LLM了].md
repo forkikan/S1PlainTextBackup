@@ -2133,3 +2133,24 @@ llm对于数字不敏感是正常的，我都是让它一段一段写
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ryanghj  
+##### 1673#       发表于 2025-2-8 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376719&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-8 18:54</a>
+
+是的，目前看来文科任务还没找到特别好的RL方式，不像数学和coding，对就是对错就是错
+
+—— 来自 鹅球 v ...</blockquote>
+R1里对非可验证任务还是用了reward model的
+
+
+*****
+
+####  断片集  
+##### 1674#       发表于 2025-2-8 20:41
+
+要联网搜索的还是去试试秘塔吧，用了段时间体验还行，应该是满血r1
+
