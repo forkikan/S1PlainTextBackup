@@ -8969,3 +8969,28 @@ mygo全部登场
 画师：森闲 ​​​
 <img src="https://p.sda1.dev/21/117651595537ed21109211a15788aaf1/0073UIzOgy1hycroowv9hj30i21kywml.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 19995#       发表于 2025-2-8 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372817&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-8 09:05</a>
+
+在逻辑缜密的剧里或许是这样。但在这番里我倾向于编剧没想那么多，单纯觉得老c团的人该在这个时间点知道 ...</blockquote>
+差不多是这样，算是安排的很不错的一个小爆点。比起之前生硬的转折来说，这里安排很就没有那么刻意。
+
+*****
+
+####  ads147147  
+##### 19996#       发表于 2025-2-8 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67373012&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-8 09:34</a>
+
+那有没有想过，牢爹醉到警察局是想要逃避自己的女儿，而不愿意回家，是故意的呢
+
+你说祥子接了三次，那祥子 ...</blockquote>
+反正牢爹这个人怎么说呢，就很气。和祥子真是一体一面，完全是成人版祥子。
+
+逼着祥子走，祥子真走了又盼着人家回来找自己。和祥子对灯的便签是一个尿性= =
+
