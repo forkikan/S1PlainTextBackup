@@ -2193,3 +2193,17 @@ deepinfra没有比deepseek贵太多，速度也还行，应该不用担心审查
 R1越狱prompt后瑟瑟太厉害了，有点理解4chan老哥说自己R1出来后玩一晚上不睡觉的快乐。不过它口味实在有点 ...</blockquote>
 越狱prompt是哪些 指个路呗
 
+
+*****
+
+####  overflowal  
+##### 1679#       发表于 2025-2-9 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378369&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-8 23:55</a>
+越狱prompt是哪些 指个路呗</blockquote>
+https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_works_on_official_deepseek/
+
+对话前就贴这个帖子里的prompt
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

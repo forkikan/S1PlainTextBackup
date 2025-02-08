@@ -635,3 +635,13 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 这游戏每次一发免费地雷就有人整活，毒气地雷直接往点里扔，我全程得防着队友的呼叫，地雷见一个拆一个
 
+
+*****
+
+####  xinfengj  
+##### 5738#       发表于 2025-2-9 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">收到周年奖励了，亮银版初始中甲，技能皿煮
+
+剧情看来还待等光能能量条跑满
+
