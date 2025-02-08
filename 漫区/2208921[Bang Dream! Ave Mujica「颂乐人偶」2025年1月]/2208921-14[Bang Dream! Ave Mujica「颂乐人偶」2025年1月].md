@@ -12369,3 +12369,18 @@ mujica动画的英文标题 The dice is cast (骰子已经掷下)
 
 天蓝色的冰是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 20284#       发表于 2025-2-9 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378649&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-9 00:58</a>
+初华在第五集发现祥子出走的场景作为旁白说过</blockquote>
+确实啊，感谢。
+
+而且鉴于掷骰子是整个动画的标题，那么这段旁白应该不只是评价五六话，而是可以作为一个全剧的中段旁白评价。
+所以这里掷骰子不是炸团而是第一集摘面具？或者组建mujic就已经是掷骰子了（对赌说）。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
