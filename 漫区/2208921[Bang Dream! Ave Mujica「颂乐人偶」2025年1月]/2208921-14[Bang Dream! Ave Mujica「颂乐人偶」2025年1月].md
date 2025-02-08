@@ -8827,3 +8827,45 @@ mortis这人怎么说呢，有蛊惑 ...</blockquote>
 说祥子没苦硬吃不是说她决定下的有问题，而是她都下了这样的决定了，之后明明有很多可以做的尝试，但她除了 ...</blockquote>
 一个月速通武道馆，哪怕姑且假定老登砸钱，这群神人能坚持到酒店大逃杀都已经是机械降神了，一个不合格的领导，一个很会独走的网红，剩下两个人即不是爱音也不是安，这团队完蛋就是时间问题，最后酒店大逃杀写得非常僵硬（哪怕叛徒或内鬼的假药考虑进去）并不代表这个团不应该炸，以前我就吐槽过把经纪人存在感严重削弱，再把大祥领导力搞得这么差，那TAM和各路商业人士和粉丝营业，交流得体主心骨的是谁，海玲吗，说实话银河战舰的很多人设与剧情是为了预定炸团而搞的，细想就会有很多问题
 
+
+*****
+
+####  一心而用  
+##### 19982#       发表于 2025-2-8 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372523&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-8 07:52</a>
+椎名立希</blockquote>
+mygo全部登场
+<img src="https://p.sda1.dev/21/ec6f02e95efe706129d635edbe58d292/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8c34df75513661cb1d51d0fc9ca390d9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e35cab0773ed00d26eaa4445bccdf071/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/40eeb21c852bcaa49997a430f888d1f7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/a169c04e2fd54160d00a0a84414e7cab/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 19983#       发表于 2025-2-8 08:58
+
+祥子的能力继承了老登（单从组乐队来说），性格特质继承了中登（优势提供情绪价值，劣势自动变fw还会伤害靠近的人）
+
+
+*****
+
+####  aptx8285144  
+##### 19984#       发表于 2025-2-8 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67372308&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-8 02:47</a>
+
+指正，老登切割中登之后祥子并不打算放弃ccc，是中登酗酒闹事不去打工让祥子看着存折担忧开始打童工后， ...</blockquote>
+还有就是中登的醉酒进警局已经是一路连续到鸡团炸了都还在继续，我不由得怀疑独角兽和柿本对中登态度也是负面的，也怀疑最后是不是也来个机械降神把问题解决了
+
+*****
+
+####  单脚着地  
+##### 19985#       发表于 2025-2-8 09:05
+
+<blockquote>ads147147 发表于 2025-2-8 07:32
+听了禅心武神的分析，意识到大墨老师给的地址有点问题啊，按理说睦是知道小祥的居住地应该是和初华住在一起 ...</blockquote>
+在逻辑缜密的剧里或许是这样。但在这番里我倾向于编剧没想那么多，单纯觉得老c团的人该在这个时间点知道祥子的秘密了，所以安排soyo去祥子她爹的住处
+
