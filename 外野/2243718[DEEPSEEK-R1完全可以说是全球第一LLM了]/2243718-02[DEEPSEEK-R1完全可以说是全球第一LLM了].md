@@ -1868,3 +1868,11 @@ d老师总喜欢写金属皮带扣
 
 豆包就可以，但感觉质量还是差了一点点
 
+
+*****
+
+####  Edvinno  
+##### 1648#       发表于 2025-2-8 11:08
+
+cherry studio上调用d指导，是不是还不能调用硅基流动的这两天上的r1 pro？能选的硅基流动模型里现在只有r1和v3？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

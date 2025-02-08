@@ -1368,3 +1368,26 @@ Q娃预告
 
 正好大小姐写过的魔法组和拥抱组也是CV自己唱ED，要不大小姐您写个三组联动的剧场版得了（
 
+
+*****
+
+####  咲良うた  
+##### 394#       发表于 2025-2-8 11:06
+
+第02話　私、バズっちゃってる！？
+
+脚本：加藤陽一
+
+演出：横内一樹
+
+作画監督：藤原未来夫
+
+美術：濱野英次
+
+絵真を助けだし、家に帰ってきたうた（CV.松岡美里）とプリルン。テレビでは、キュアアイドルが「SNSで話題の謎の新人アイドル」と話題になっていた。部屋に戻ると、キラキランドの女王・ピカリーネからプリルンに連絡が入る。ピカリーネによると、ある日、ダークイーネと名乗る者があらわれ、輝きの源である「ビッグキラキラリボン」が切られたことで、キラキランドは闇に包まれてしまったのだという。翌日、新学期が始まった学校に登校したうたは、「キュアアイドル研究会」メンバー募集のポスターが貼られていることにおどろく。クラスメイトの東中みことや蒼風ななをはじめ、世間がキュアアイドルに注目していることに対して鼻が高くなるうた。そんななか、ふたたびチョッキリ団が街に現れて──
+<img src="https://files.catbox.moe/26abr0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/dz5isl.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/r4x7xf.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/kzqz9x.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/908ta6.jpg" referrerpolicy="no-referrer">
+
