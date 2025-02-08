@@ -12417,3 +12417,13 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 只是这样看海 ...</blockquote>
 海铃恐惧对乐队付出真心
 
+
+*****
+
+####  澜灰-  
+##### 20288#       发表于 2025-2-9 01:51
+
+现在对下集的预期就是mygo一首歌，感化睦把祥弄上台crychic再来一首歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">乐子拉满
+虽然发生几率很小，但感觉这样就要包饺子了
+还是希望能一起整点内鬼或者怪味饺子的活<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
