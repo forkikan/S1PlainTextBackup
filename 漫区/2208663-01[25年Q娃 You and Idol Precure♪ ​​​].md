@@ -1744,3 +1744,33 @@ nana的鬓角的两条触须越看越奇怪啊
 
 才发现怎么蓝色是紫色挑染而紫色是蓝色挑染的，就跟紫色的加布是红色腰带红色剑而红色的苦加布是紫色腰带紫色剑一样
 
+
+*****
+
+####  leleq  
+##### 430#       发表于 2025-2-9 16:45
+
+开头这报幕，偶活正统在Q娃是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+女王：盗摄是不对的哦。
+
+但是这个变得乱蓬蓬的惩罚对于某些脱发的大友是福利啊
+
+铅球女士的搞笑水平还是不错的这两集的搞笑水平都在线
+
+最后一段的粉主确实又帅又美又可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+下一集要加人了，还是那句话加人回里的浓度不要信，staff为了加人什么事都编得出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leleq  
+##### 431#       发表于 2025-2-9 16:50
+
+目前2集来看，铅球女士的Q娃还是比较正统的。
+
+正统Q娃的话，整片的浓度大概就是轻百合+烟雾弹了
+
+因为是50集会有上下波动但整体应该差不多，请豚豚做好心里建设。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2397,3 +2397,14 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 
 我在想大模型部署有没有可能也发展出分布式部署？比如把671B拆成20块，分别部署到20台32G内存普通机器上，通过集群内网络通信实现模型推理，成本应该能降低很多吧来自: iPhone客户端
 
+
+*****
+
+####  御坂MKII  
+##### 1697#       发表于 2025-2-9 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381460&amp;ptid=2243718" target="_blank">starfucks 发表于 2025-2-9 16:41</a>
+
+我在想大模型部署有没有可能也发展出分布式部署？比如把671B拆成20块，分别部署到20台32G内存普通机器上， ...</blockquote>
+现在就可以，可以说几个 macmini 是速度和价格平衡下的一个最优选择了
+
