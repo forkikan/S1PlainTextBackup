@@ -15165,3 +15165,15 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">目前为止主动行动的都是mygo的人，鸡团的角色都还僵在原本的状态，想不离题后面确实应该减少mygo的成员参与 展现鸡团这边的角色个人魅力和团队羁绊了。即便解决c团也该展现祥子这边如何到达可以解决c团问题的状态，而非mygo那边
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不然到时候鸡团实装 真就一卡池等待mygo五圣人救助的挖坑不填神人啊
 
+
+*****
+
+####  huxiaopao163  
+##### 20520#       发表于 2025-2-10 07:29
+
+“《It's MyGO!!!!!》是描绘真实女高中生乐队活动的作品，而《Ave Muiica》却是带有黑暗奇幻色彩的悬疑剧”
+
+作为悬疑剧，那肯定谜题是重点，人物是通过对谜题的反应和行为动机来塑造的。如果一个角色和核心谜题关系很小，那她肯定只是个小配角。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
