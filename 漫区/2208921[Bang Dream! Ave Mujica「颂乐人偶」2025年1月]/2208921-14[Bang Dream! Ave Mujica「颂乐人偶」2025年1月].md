@@ -12744,3 +12744,38 @@ https://x.com/CEMA8077919
 
 2025-2-9 12:54 上传
 
+
+*****
+
+####  cxj649  
+##### 20314#       发表于 2025-2-9 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380368&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-2-9 12:47</a>
+
+有没有一种可能日本人看的很少啊，nico也就3000人看，这种数据都能拿来参考吗
+
+—— 来自 鹅球 v3.3.96-a ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">N站3千其实很多了
+
+*****
+
+####  cccpprc  
+##### 20315#       发表于 2025-2-9 12:59
+
+<blockquote>rushsong 发表于 2025-2-9 12:47
+有没有一种可能日本人看的很少啊，nico也就3000人看，这种数据都能拿来参考吗
+
+—— 来自 鹅球 v3.3.96-a ...</blockquote>
+3000+的人数比泥潭和隔壁很多番评分投票的人数都多，不少了
+
+
+*****
+
+####  岬开斗  
+##### 20316#       发表于 2025-2-9 13:04
+
+其实很多问题都是社区讨论出来的，不参与社区讨论的话很多逻辑问题没人给你点出来都是可以被演出节奏给一口气带过去的。
+这也是为啥那么多作品都是环大陆好评，因为大陆内容讨论更集中。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
