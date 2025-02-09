@@ -137,3 +137,11 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 如果已经安装了，重装系统吧
 [https://www.52pojie.cn/forum.php?mod=viewthread&amp;tid=2004163](https://www.52pojie.cn/forum.php?mod=viewthread&amp;tid=2004163)
 
+
+*****
+
+####  ftfkjb  
+##### 96#       发表于 2025-2-10 04:21
+
+我下载到的是一个69M单文件版本3.01，从网友分享蓝奏云里下的3.0也是这种，执行起来不会有帧数显示，游戏也没加速，不过是在断网状态下执行的，应该不会被下载新木马。问题是那些出视频的网友也是用这文件，难道他们能成功插帧显示放大？
+
