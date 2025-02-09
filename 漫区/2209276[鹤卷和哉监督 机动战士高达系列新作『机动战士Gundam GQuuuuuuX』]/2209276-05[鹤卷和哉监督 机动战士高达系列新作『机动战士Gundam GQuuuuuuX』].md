@@ -10531,3 +10531,16 @@ X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）<
 
 牢修是高战力红瞳美少年，铜仁女会喜欢的经典类型，bg粉一下就来了
 
+
+*****
+
+####  Steel.Haze  
+##### 6722#       发表于 2025-2-9 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380206&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-9 12:19</a>
+
+越想越觉得是GTO的世界线。
+
+高达、钢加农和钢坦克都不止一台。钢加农在SIDE7之前就已经配备。RX-78-01正在 ...</blockquote>
+这个在79平行里面不是核心要素，不足以撼动这是TV79平行。GTO一个最大的问题是，战前夏亚已经捡到了拉拉。这个时间顺序的矛盾一般用来区分GTO和TV79的标准。而且GTO里面夏亚的NT感知力更烂...
+
