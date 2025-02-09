@@ -12663,3 +12663,25 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 那大祥是同时站了薇恩和大香的位置的，还怕圆不回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 20309#       发表于 2025-2-9 12:32
+
+<blockquote>堆雪若叶 发表于 2025-2-9 11:38
+九人或者更重要的母鸡卡的四人最简单的共通点应该是都在表现对睦的态度，而初华游离于这一事件之外确实很 ...</blockquote>
+我的观点是初华是被制作组黄牌罚下了。因为初华在炸团中需要负的责任就是：祥卫兵，第四集、第五集都有展示，如果她不改变这一点，就无法凝聚mujica2.0的团魂，所以这一集睦单回的情况下，海铃本质是关注队友的，大猫也一直艳羡睦，原本不认识的go团人也可以群策群力，甚至野猫还是特效药。而脑子里只有祥子的初华则是有意的不作展示
+
+*****
+
+####  aptx8285144  
+##### 20310#       发表于 2025-2-9 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380238&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-9 12:24</a>
+
+你要继续拿星团三打比方的话，作为前作反派位的薇恩在和解后也是有战前演讲的高光的
+
+那大祥是同时站了薇 ...</blockquote>
+我到是没拿星团3做鸡团的比方过，因为第五话开始就感觉像令和种命，只不过这个因为现实企划原因加上死不了人物 所以应该会更早包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
