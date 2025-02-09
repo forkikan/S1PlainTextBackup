@@ -83,3 +83,14 @@ evol真的很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 那么问题来了，绿毛男和粉毛地雷女谁才是元素班的人，“合二为一”说的就是合体吧...但总觉得绿毛高纬度一点，开局和oped画面他总是和星盘？一起出现
 
+
+*****
+
+####  ashero  
+##### 246#       发表于 2025-2-9 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378991&amp;ptid=2124992" target="_blank">nelson2062 发表于 2025-2-9 03:23</a>
+
+那么问题来了，绿毛男和粉毛地雷女谁才是元素班的人，“合二为一”说的就是合体吧...但总觉得绿毛高纬度一 ...</blockquote>
+绿毛对应女神人格ed最后抱着女主那个吧
+
