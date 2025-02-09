@@ -1663,3 +1663,13 @@ Q娃预告
 
 没金发小女孩都怕啊<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 422#       发表于 2025-2-9 12:37
+
+这集老实说觉悟的太快了点，不过想想第一集就说了女主老好人性格，加上确实被对面暴打和队友被嘴哭了，也挺正常的
+
+当然我是更希望专门来上一集，飘了开始各种浪然后被强化怪嗯在地上打，又被反派嘴到粉毛捶地哭，这才叫美味啊<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
