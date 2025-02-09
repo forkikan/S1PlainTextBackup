@@ -14826,3 +14826,81 @@ Mygo!!!!!叫BanG Dream！4，Ave Mujica叫BanG Dream！5的话，鸡团现在剧
 
  什么豪门恩怨，内鬼外戚，都给我在音乐面前轰散呀！
 
+
+*****
+
+####  aptx8285144  
+##### 20492#       发表于 2025-2-9 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383682&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-9 23:16</a>
+
+喵梦真的是最直率的一个内鬼，她在酒店之战说的都是真心话，她原本打算不做内鬼，跟着祥子好好干出人头地 ...</blockquote>
+先不管谁是内鬼，自从第一话喵梦独走摘那几个人面具后的那一刻起，喵梦也没啥资格自称要跟大祥好好干了，<strong>除非她在第一话之后竭尽全力维护队内团结并调解内部气氛，比如双人格出现后主动去安抚睦</strong>
+
+*****
+
+####  aptx8285144  
+##### 20493#       发表于 2025-2-9 23:37
+
+ 本帖最后由 aptx8285144 于 2025-2-9 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383749&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-9 23:30</a>
+
+因为A团现在已经不是把所有锅都甩给老登就能救5个人的阶段了
+
+甚至因为前面演的太好人太开明了，只剩7集 ...</blockquote>
+我也是这个观点，退一万步，大人们要求你当内鬼，你既然当了或者说表现很极端，那也就别怪观众们觉得你们是神人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，被骂是神人也是活该
+
+*****
+
+####  看穿一切的鱼  
+##### 20494#       发表于 2025-2-9 23:37
+
+不是参考狼人杀吗，说不定祥以外的四个人都接到了解散命令，但是内容方式都不同，并且不知道其他人也是内鬼。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岬开斗  
+##### 20495#       发表于 2025-2-9 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383749&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-9 23:30</a>
+因为A团现在已经不是把所有锅都甩给老登就能救5个人的阶段了
+
+甚至因为前面演的太好人太开明了，只剩7集 ...</blockquote>
+你要这么说的话，那我觉得A团用不用老登都很难完全洗回来了，所以就不应该洗了？之后继续五个神人这么神下去？
+当然我倒是无所谓，但从企划角度不可能不洗。
+既然一定要洗，我看不出绝对不能用老登洗的理由。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 20496#       发表于 2025-2-9 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383788&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-9 23:37</a>
+不是参考狼人杀吗，说不定祥以外的四个人都接到了解散命令，但是内容方式都不同，并且不知道其他人也是内鬼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉着更像是4神2狼1民的屠边局，神牌要装民来骗黑狼王白狼王的刀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  烂片雷达  
+##### 20497#       发表于 2025-2-9 23:41
+
+要是初华下线这么久第七集live初华还不参与的我都不知道搞这个主唱干嘛的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+留给主唱的时间已经不多了，不会到结束为止都是满脑子只想着吸祥子的大金毛形象吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 20498#       发表于 2025-2-9 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383798&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-9 23:39</a>
+
+你要这么说的话，那我觉得A团用不用老登都很难完全洗回来了，所以就不应该洗了？之后继续五个神人这么神 ...</blockquote>
+大祥的问题就绝对没法用老登洗，海铃也比较困难（她毕竟连设定上的家人都没有，总不能是立希吧），她的很多表情和语气也经常得看观众们的主观想法
+
