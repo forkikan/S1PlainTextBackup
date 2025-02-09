@@ -3190,3 +3190,18 @@ niconico前6话好评率
 第6话 85.5% 6.3% 4.1% 2.8% 1.4% 约3200人
 <img src="https://p.sda1.dev/21/9d2cb7729c76b91697598ea1bf771c41/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 319#       发表于 2025-2-9 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378384&amp;ptid=2245428" target="_blank">一心而用 发表于 2025-2-8 23:57</a>
+
+niconico前6话好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600 ...</blockquote>
+第四话的酒店戏码的演出这么明显为爆而爆的僵硬感（哪怕内鬼或叛徒假药成立，这演出也很烂）都有百分80以上的好评，无言以对
+
