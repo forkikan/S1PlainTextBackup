@@ -101,3 +101,14 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 讲真，对电池人的动画效果还真挺好的我觉得，只有对那些掉帧特别严重的动画（比如盖塔大师的）效果不好
 
+
+*****
+
+####  巨馍蘸酱  
+##### 93#       发表于 2025-2-10 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383920&amp;ptid=2238299" target="_blank">talesof213 发表于 2025-2-10 00:04</a>
+
+过年用这个试了机战30和最终幻想10HD，机战30插60本身就拉跨的一些动画没法质变，但整体观感提升不小，也没 ...</blockquote>
+锁30的游戏，强行变成60以后最大的问题就是QTE也会变成两倍速导致很难按...
+

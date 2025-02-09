@@ -15009,3 +15009,15 @@ op里的睦不会就是睦莫融合的产物吧，领悟了用吉他唱歌和莫
 
  B站找剧情视频直接云呗，比你自己入坑玩有效率多了
 
+
+*****
+
+####  江口夕  
+##### 20508#       发表于 2025-2-10 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383890&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 23:57</a>
+爱马仕和邦多利总规不是一个世界观吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你邦原点是百万
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
