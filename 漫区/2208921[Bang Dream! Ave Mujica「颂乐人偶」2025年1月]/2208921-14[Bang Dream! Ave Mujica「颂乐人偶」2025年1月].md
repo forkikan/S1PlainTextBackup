@@ -12533,3 +12533,16 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 20299#       发表于 2025-2-9 10:02
+
+ 本帖最后由 aptx8285144 于 2025-2-9 10:04 编辑 
+<blockquote>cccpprc 发表于 2025-2-8 20:30
+首先海玲从MYGO结尾就是认可大祥对鸡团音乐性的构想，认可“丰川同学是总指挥”，认可“这是一辈子的事” ...</blockquote>
+但是如果把这理解成被大祥脑控了的话（
+
+现在我总感觉独角兽和柿本一边恨着大祥的性格，一边却继续借着大祥的音乐才能和回忆杀蛊惑其他人，真得好变态的两个家伙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

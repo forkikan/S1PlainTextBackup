@@ -1592,3 +1592,11 @@ Q娃预告
 早上起床看法Q，法Q看完看妈妈的直播，直播完接着看加布
 完了，小时候在电视上看动画最开心的时候也没这么开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 415#       发表于 2025-2-9 10:03
+
+感觉偶像元素有点割裂 主线还是常见的打怪收集 两者没联系到一起
+
