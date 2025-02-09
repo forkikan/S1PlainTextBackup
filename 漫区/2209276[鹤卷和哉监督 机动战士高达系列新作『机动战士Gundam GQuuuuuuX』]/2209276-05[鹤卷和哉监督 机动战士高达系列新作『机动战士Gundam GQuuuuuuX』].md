@@ -10066,3 +10066,22 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 又像是Z一样戴起墨镜引导年轻NT了吗牢鸭，牢修一脸无辜的对趴 ...</blockquote>
 向小女生寻求母爱的家伙在这个世界线被迫给无常识小男生当爹，怎么想都是报应啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 6687#       发表于 2025-2-9 08:46
+
+这个时间线的吉翁在造高达，那联邦在干嘛，爆改钢加农吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  gamedreamer  
+##### 6688#       发表于 2025-2-9 11:22
+
+快进到修司:夏亚可是能成为我父亲的男人阿<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
