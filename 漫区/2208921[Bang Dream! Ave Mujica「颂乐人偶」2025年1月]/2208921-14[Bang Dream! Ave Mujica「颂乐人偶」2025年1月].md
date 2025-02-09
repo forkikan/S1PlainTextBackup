@@ -15125,3 +15125,20 @@ op里的睦不会就是睦莫融合的产物吧，领悟了用吉他唱歌和莫
 
 反正我的看法是用老登去洗白A团不是什么好办法，太懒了，而且线索太少和出现太晚，最后真用估计也只能靠情绪去感染观众了
 
+
+*****
+
+####  sauron.j  
+##### 20517#       发表于 2025-2-10 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384416&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-10 02:28</a>
+
+为什么我不喜欢mujica里面过多mygo，如果把mujica比作一个命题作文，mygo就是离题写法。一部离题的叙述文章 ...</blockquote>
+过多mygo X     
+
+很多苦来兮苦  √
+
+这两集高强度参团的是原C团成员。虽然两季标题不同，但本质是一部作品的上下部
+
+C团就好比是两个团的原生家庭，不解决这个遗留问题就无法前进
+
