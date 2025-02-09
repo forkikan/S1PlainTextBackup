@@ -10819,3 +10819,11 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 不过可以预料现在绝大多数的红蓝乙女味同人在TV放送后都 ...</blockquote>
 原作负责关系性，同人负责性关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AvenueIII  
+##### 6746#       发表于 2025-2-10 03:21
+
+既然访谈自己都提到了女二类似mamimi定位，那这“若即若离”的抓手就是FLCL那种感觉咯
+
