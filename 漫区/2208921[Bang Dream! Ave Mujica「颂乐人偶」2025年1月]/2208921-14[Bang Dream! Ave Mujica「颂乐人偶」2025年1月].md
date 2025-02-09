@@ -12871,3 +12871,29 @@ https://x.com/CEMA8077919
 
 来点sumimi解散不仲营业，初华星空剧院火星撞地球
 
+
+*****
+
+####  Skymoon  
+##### 20326#       发表于 2025-2-9 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380738&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 14:08</a>
+也许就根本不存在所谓的幕后黑手呢就好比花道领域大神要炸团并不是他爹逼她的你说是吧
+
+为啥不肯承认A团1 ...</blockquote>
+那就真是神秘动画了，一边mujica炸团是邦邦世界观，一边睦子米双重人格和乐奈神眼是玄幻世界观，一边祥子又是现实世界观，无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 20327#       发表于 2025-2-9 14:42
+
+李子在动漫节互动的时候说，虽然这集我没戏份，但初华后面有很多爆炸的剧情，请期待
+
+*****
+
+####  qlipho  
+##### 20328#       发表于 2025-2-9 14:42
+
+祥老师还做数学题呢，不知道邦邦都能上大学的，也骗不了别人的毕业证
+
