@@ -12798,3 +12798,29 @@ https://x.com/CEMA8077919
 其实很多问题都是社区讨论出来的，不参与社区讨论的话很多逻辑问题没人给你点出来都是可以被演出节奏给一口 ...</blockquote>
 一个这么伤害第一主角（大祥）的剧本，到现在又没有明示炸团这事有幕后黑手（像当年无限的未知，康德拉舰长很早就作为外部敌人登上舞台），国内要是没有大规模讨论才奇怪呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 20319#       发表于 2025-2-9 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380677&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 13:53</a>
+一个这么伤害第一主角（大祥）的剧本，到现在又没有明示炸团这事有幕后黑手（像当年无限的未知，康德拉舰 ...</blockquote>
+也许就根本不存在所谓的幕后黑手呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+为啥不肯承认A团1.0本来就是一个草台班子，按照邦邦世界观，你对音乐不忠诚，你乐队就要爆炸，有什么问题？？大祥老师组mujica1.0动机就不是要实现音乐梦想，所以1.0炸了有啥不能接受的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 20320#       发表于 2025-2-9 14:16
+
+ 本帖最后由 aptx8285144 于 2025-2-9 14:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380738&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 14:08</a>
+
+也许就根本不存在所谓的幕后黑手呢就好比花道领域大神要炸团并不是他爹逼她的你说是吧
+
+为啥不肯承认A团1 ...</blockquote>
+当然，这么多神人而又没有幕后黑手（暂定），那再加上第四话酒店室内对话演出的僵硬感，那自然就只有骂柿本和独角兽了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
