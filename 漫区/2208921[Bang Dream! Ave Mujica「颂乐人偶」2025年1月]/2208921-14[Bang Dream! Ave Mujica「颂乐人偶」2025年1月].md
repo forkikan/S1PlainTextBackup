@@ -12580,3 +12580,42 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 第七话想看live，想看大祥老师跪下来说教练我想打篮球，啊不，我想玩乐队
 
+
+*****
+
+####  堆雪若叶  
+##### 20302#       发表于 2025-2-9 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379640&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-9 10:34</a>
+
+话说如果把初华排除在第六话之前作为先决条件的话，那么剩下九个人在第六话中一定有共通点，以至于如果让初 ...</blockquote>
+九人或者更重要的母鸡卡的四人最简单的共通点应该是都在表现对睦的态度，而初华游离于这一事件之外确实很微妙，并且相对应的反而是她最早出现和莫老师独处的情节。感觉对于初华而言问题也有可能不是在之后而是之前。
+
+*****
+
+####  cccpprc  
+##### 20303#       发表于 2025-2-9 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379488&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 10:02</a>
+
+但是如果把这理解成被大祥脑控了的话（
+
+现在我总感觉独角兽和柿本一边恨着大祥的性格，一边却继续借着大祥 ...</blockquote>
+这波啊，如果真的下集一集和解的话，就是精神变态版星团三
+
+开局银河战舰炸团（星二是拿了冠军的）炒作话题性，前作的坑拉扯半个季度最后一笔勾销，严肃现实问题（168亿/进路调查）亮了一下就被抛弃到一旁，中间还有一小段网红（夏美）的个人故事。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你问我为什么精神变态了，大概是爱音没带大家去伦敦旅游吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 20304#       发表于 2025-2-9 11:43
+
+ 本帖最后由 ads147147 于 2025-2-9 11:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就这还星3？至少母鸡卡没把祥子写成沉迷游戏的小丑，老爹前脚抛弃家庭后脚给学校投钱还给女儿送xbox，最后还要找个不知所谓的二年级生把学生会长强行指定给她。
+
+就恋恋这个塑造也就是恋人气低，独角兽的写法相当于拿香音开刀整了香音六集才给个喘气，你看你花敢干么（哦，在京吹3里真敢干
+

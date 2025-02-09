@@ -10085,3 +10085,20 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 
 —— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  中野梓  
+##### 6689#       发表于 2025-2-9 11:28
+
+拉拉没死，但保鲜期过了，不能当妈妈了
+
+*****
+
+####  良臣没有重谢  
+##### 6690#       发表于 2025-2-9 11:41
+
+<img src="https://p.sda1.dev/21/f0b540c85109cc1d9426109ac1de353e/IMG_CMP_243816905.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
