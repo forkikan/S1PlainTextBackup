@@ -14506,3 +14506,65 @@ mujica解散后祥子就已经没那口气了，回到丰川家是最后一根�
 
 但除了劝祥子多喝热水提出不能减员论外还没来得及实施因为m团人才辈出提前爆了就搞笑了
 
+
+*****
+
+####  抽搐一下  
+##### 20468#       发表于 2025-2-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383477&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 22:39</a>
+
+然而直接导火索是双人格导致莫女士不会弹钢琴引发的撕逼，双人格总不会是哪个大人干的吧？你当然可以说没 ...</blockquote>
+莫女士确实是计划外，本来计划是吵架吵翻的第三集后面也快了，不过她跑出来后各种私聊缓和气氛，开始真救了下，不过不会吉他还是翻了
+
+*****
+
+####  江口夕  
+##### 20469#       发表于 2025-2-9 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有没有一种可能吵架反而不会翻
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 20470#       发表于 2025-2-9 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383515&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-9 22:45</a>
+
+到时候初华确实是内鬼
+
+但除了劝祥子多喝热水提出不能减员论外还没来得及实施因为m团人才辈出提前爆了就搞 ...</blockquote>
+突然想起来，就算假设初华是内鬼，好像也改不了大瞄和大祥是两个神人的事实<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，毕竟瞒着大祥独走摘面具，私底下教唆睦，还有大祥对内部问题的进退失据以及不会安抚睦（双人格出现的原因之一），全都是通往酒店之路内部爆炸的前奏
+
+
+*****
+
+####  影伴光生  
+##### 20471#       发表于 2025-2-9 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382366&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-9 19:23</a>
+借楼贴个自己画的环味墨老师来现现眼。。。
+
+虽然木头人的设定实在经不住细琢磨，但是看着墨老师发癫 演戏  ...</blockquote>
+莫名像非公认战队秋叶原连者的男主强化形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  风中凌乱~  
+##### 20472#       发表于 2025-2-9 22:55
+
+初华就是很奇怪，摘面具后睦低气压，初华察觉到了，并给了一个意味深长的眼神。睦祥吵架，初华在旁偷听，祥子先跑开，不知道此时初华有没有跟睦接触，反正，第二天睦就决定莫上号了。莫上号之后，祥子还嘀咕过，睦是怎么了。那仨队友没人对完全变了一个人的睦感到任何诧异，乐呵呵表示没啥奇怪的。
+
+*****
+
+####  wwwttth  
+##### 20473#       发表于 2025-2-9 22:56
+
+<blockquote>江口夕 发表于 2025-2-9 22:50
+有没有一种可能吵架反而不会翻，公司里吵架的多了，也没见辞职的比mujica还快的。倒是突然宣布自己不会用电 ...</blockquote>
+有个串子说项目组t一个就解散，然后有个人说我不会电脑
+

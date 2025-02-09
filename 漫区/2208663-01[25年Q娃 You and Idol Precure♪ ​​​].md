@@ -1958,3 +1958,14 @@ OP里面一股循环箭头的味道,我等不及啦
 
 一人一首再加3人曲和五人曲，保底也7首了吧
 
+
+*****
+
+####  Rhantolk  
+##### 448#       发表于 2025-2-9 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383446&amp;ptid=2208663" target="_blank">1096beam 发表于 2025-2-9 22:32</a>
+
+一人一首再加3人曲和五人曲，保底也7首了吧</blockquote>
+但你要想有50集呢
+

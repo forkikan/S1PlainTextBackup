@@ -10705,3 +10705,12 @@ X @GameHetaPiPi
 
 虽然很难想象三人若即若离的关系到底是什么样子
 
+
+*****
+
+####  虛無迴廊  
+##### 6735#       发表于 2025-2-9 22:51
+
+nt聊天室的那段很亚撒西让人乙女心大发吧
+但访谈都说修司无口的程度让人吃惊，搞不好tv播了存在感反而会下降，跟剧情将要展开的喵安形势逆转<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
