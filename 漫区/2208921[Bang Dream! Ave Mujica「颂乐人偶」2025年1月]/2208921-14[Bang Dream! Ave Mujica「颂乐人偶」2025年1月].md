@@ -12685,3 +12685,62 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 那大祥是同时站了薇 ...</blockquote>
 我到是没拿星团3做鸡团的比方过，因为第五话开始就感觉像令和种命，只不过这个因为现实企划原因加上死不了人物 所以应该会更早包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rushsong  
+##### 20311#       发表于 2025-2-9 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378326&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-8 23:47</a>
+这下环大陆好评了
+
+至于说日本阿宅这是大将风度还是神经太祖，可能得完结了再下结论了 ...</blockquote>
+有没有一种可能日本人看的很少啊，nico也就3000人看，这种数据都能拿来参考吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ntrntr1  
+##### 20312#       发表于 2025-2-9 12:53
+
+<blockquote>看穿一切的鱼 发表于 2025-2-9 08:48
+春日影不是只会让大祥破防吗
+
+—— 来自 S1Fun</blockquote>
+脱敏疗法 负负得正
+
+*****
+
+####  Nana7ue  
+##### 20313#       发表于 2025-2-9 12:55
+
+ 本帖最后由 Nana7ue 于 2025-2-9 12:58 编辑 
+
+https://x.com/CEMA8077919
+
+<img src="https://img.saraba1st.com/forum/202502/09/125445euu9zr9i2oryiopy.jpg" referrerpolicy="no-referrer">
+
+<strong>20250208_235251.jpg</strong> (593.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 12:54 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/125445bp5c53wys6cbgdli.jpg" referrerpolicy="no-referrer">
+
+<strong>20250208_235258.jpg</strong> (893.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 12:54 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/125441vg74xgbgmxyl8wlb.jpg" referrerpolicy="no-referrer">
+
+<strong>20250208_235313.jpg</strong> (350.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 12:54 上传
+
