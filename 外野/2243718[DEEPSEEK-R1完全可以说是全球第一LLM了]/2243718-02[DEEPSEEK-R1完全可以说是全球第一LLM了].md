@@ -2298,3 +2298,15 @@ nextchat用deepseek倒是能调用，硅基流动我api填上去用不了。
 试了下不行啊直接被拒了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实我试了下单独使用也不行，昨天我主要是配合智能体里面那个《文章风格提示词逆向工程》来用的，发了几篇刘备上去分析的头头是道
 
+
+*****
+
+####  粉色猛男  
+##### 1688#       发表于 2025-2-9 13:29
+
+纯小白问一下，入门部署API的话要怎么搞,你们说的什么酒馆什么ollma都是啥
+
+看了下B站视频,是不是下个cherry studio然后把API丢进去充钱就能用了?cherry studio的能用联网搜索吗
+
+限制怎么解除？画图那些AI也能通过付费API来实现云AI吗
+
