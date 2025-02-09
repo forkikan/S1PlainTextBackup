@@ -12779,3 +12779,22 @@ https://x.com/CEMA8077919
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 20317#       发表于 2025-2-9 13:48
+
+还有，mygo在霓虹热度还可以的，只是不能和国内相提并论而已。
+而avemujica现在无论在哪边，无疑都是火了的。
+
+*****
+
+####  aptx8285144  
+##### 20318#       发表于 2025-2-9 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380444&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-9 13:04</a>
+
+其实很多问题都是社区讨论出来的，不参与社区讨论的话很多逻辑问题没人给你点出来都是可以被演出节奏给一口 ...</blockquote>
+一个这么伤害第一主角（大祥）的剧本，到现在又没有明示炸团这事有幕后黑手（像当年无限的未知，康德拉舰长很早就作为外部敌人登上舞台），国内要是没有大规模讨论才奇怪呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
