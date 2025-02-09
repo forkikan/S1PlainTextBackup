@@ -10572,3 +10572,35 @@ X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）<
 
 顶多算褐肤
 
+
+*****
+
+####  刺客ares  
+##### 6726#       发表于 2025-2-9 20:46
+
+确实，本来印象里是和拉拉差不多的肤色，但实际一对比喵安也太白了
+
+<img src="https://img.saraba1st.com/forum/202502/09/204428bpghtnb1huvkyn2v.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2672333fab9d54f1b913a4454a33cf83.webp</strong> (42.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/204440u7lqld8lolf7qqno.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>b251d93f9a49bdd54974def8fa2bce43.jpeg</strong> (157.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 20:44 上传
+
+
+*****
+
+####  虛無迴廊  
+##### 6727#       发表于 2025-2-9 20:55
+
+喵安还是东亚（or东南亚）的人，怎么也黑不到印度人那个程度啦，大概国内佤族那种感觉？
+
