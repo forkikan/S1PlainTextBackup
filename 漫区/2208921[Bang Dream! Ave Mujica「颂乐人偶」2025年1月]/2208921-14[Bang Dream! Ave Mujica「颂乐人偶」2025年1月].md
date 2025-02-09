@@ -14437,3 +14437,25 @@ mujica解散后祥子就已经没那口气了，回到丰川家是最后一根�
 对啊，老登除了把中登流放冷血了点，目前是一件坏事没做，甚至放任祥子在外面乱搞还略显开明，假药也是为 ...</blockquote>
 所以我也说了，大喵和老登联手“方可破”，毕竟鸡团作妖最多的是她，独走摘面具即是开始也说睦心理压力巨大的起点，但是大喵这么骄傲的人要是和老登联手了（我刚才在想利用说的话，但是如果大祥真得制定出哪怕纸上谈兵水平的商业计划来稳住瞄梦呢，老登真能控制大祥和大瞄在想什么吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 20462#       发表于 2025-2-9 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383056&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 21:19</a>
+所以一个少女乐队番为什么需要一个反派呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">黑井社长：？我是好人没毛病
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  玖羽  
+##### 20463#       发表于 2025-2-9 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383388&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 22:22</a>
+
+所以我也说了，大喵和老登联手“方可破”，毕竟鸡团作妖最多的是她，独走摘面具即是开始也说睦心理压力巨 ...</blockquote>
+之前讨论内鬼说你是不是一点都没看，我认为定治没有必要亲自出手，阴谋的核心是初华，喵梦是被初华当枪使的
+
