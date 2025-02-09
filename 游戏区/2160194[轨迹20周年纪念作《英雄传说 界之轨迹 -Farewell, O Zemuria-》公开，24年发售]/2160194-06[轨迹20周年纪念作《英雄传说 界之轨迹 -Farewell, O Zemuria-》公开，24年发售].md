@@ -888,3 +888,14 @@ grand odyssey 19999-xxxxx
 
 玩到野餐队剧情了，果然气氛欢快起来了
 
+
+*****
+
+####  大厨麦当牛  
+##### 7612#       发表于 2025-2-9 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772581&amp;ptid=2160194" target="_blank">flyreder 发表于 2024-11-25 18:39</a>
+
+就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感 ...</blockquote>
+这次结局感觉不是时间回溯，而是本该灭世的强制重启程序被妮神改成了只灭七曜的程序，相当于塞姆利亚大陆基于导力的科技树全无，被打回到刀耕火种的时代。
+

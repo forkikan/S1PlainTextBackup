@@ -14614,3 +14614,47 @@ mujica的众人需要在这两股力量之间谋求平衡， 找到一条正确�
 
 2025-2-9 23:05 上传
 
+
+*****
+
+####  风中凌乱~  
+##### 20478#       发表于 2025-2-9 23:07
+
+既然早已确立乐队的主题是一丘之貉，那我相信，没人是清白的，每个人都干了。
+
+*****
+
+####  aptx8285144  
+##### 20479#       发表于 2025-2-9 23:07
+
+ 本帖最后由 aptx8285144 于 2025-2-9 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383590&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-9 23:00</a>
+
+但是还有一种内鬼说是四对一，祥子有她的问题，但是，内鬼太多问题更大。毕竟，酒店之战最后一个镜头，是 ...</blockquote>
+如果大瞄，初华，海铃都是内鬼，先不管另外两个，我到是想知道独角兽和柿本打算怎么洗喵梦，喵梦不就成了处心积虑而不折不扣的反派吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 20480#       发表于 2025-2-9 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383323&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-9 22:11</a>
+对啊，老登除了把中登流放冷血了点，目前是一件坏事没做，甚至放任祥子在外面乱搞还略显开明，假药也是为 ...</blockquote>
+如果A团最后是老登卖卡卖谷开演唱会，那确实不能黑老登保“母鸡卡几个神人”。
+否则我实在想不出“不能让老登当反派来洗几个神人”的理由。
+认为编剧没打算黑化老登是一回事，但把老登的人设看得比A团更重要就挺神奇的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  江口夕  
+##### 20481#       发表于 2025-2-9 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383577&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-9 22:56</a>
+有个串子说项目组t一个就解散，然后有个人说我不会电脑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">主动吵架那个员工还说自己不会退出来着，按理说起码撑个2.3个月
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

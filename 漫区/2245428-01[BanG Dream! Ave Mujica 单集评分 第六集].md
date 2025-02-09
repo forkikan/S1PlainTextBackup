@@ -3205,3 +3205,14 @@ niconico前6话好评率
 第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600 ...</blockquote>
 第四话的酒店戏码的演出这么明显为爆而爆的僵硬感（哪怕内鬼或叛徒假药成立，这演出也很烂）都有百分80以上的好评，无言以对
 
+
+*****
+
+####  我是阿须  
+##### 320#       发表于 2025-2-9 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67362212&amp;ptid=2245428" target="_blank">aptx8285144 发表于 2025-2-6 22:38</a>
+
+其实猫睦卖得也不少，应该是开播以来猫最活跃的一集吧</blockquote>
+指第五集露个后脑勺）
+
