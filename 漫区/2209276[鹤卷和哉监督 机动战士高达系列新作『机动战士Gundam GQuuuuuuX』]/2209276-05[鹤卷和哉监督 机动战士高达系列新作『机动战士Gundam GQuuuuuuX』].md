@@ -10693,3 +10693,15 @@ X @GameHetaPiPi
 
 由于第一次看见夏亚是在z，回头看79我还疑惑夏亚怎么没有印象中的帅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 6734#       发表于 2025-2-9 22:38
+
+修司闻麻球头发的同人也太多了，果然是名场面
+
+不过可以预料现在绝大多数的红蓝乙女味同人在TV放送后都会变成OOC同人
+
+虽然很难想象三人若即若离的关系到底是什么样子
+
