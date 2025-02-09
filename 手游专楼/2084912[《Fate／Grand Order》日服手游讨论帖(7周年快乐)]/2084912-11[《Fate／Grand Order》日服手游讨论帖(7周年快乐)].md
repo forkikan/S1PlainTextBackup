@@ -147,3 +147,16 @@
 
 今年不出意料又能仓鼠到夏活了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16248#       发表于 2025-2-9 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382799&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-9 20:35</a>
+
+这新角色一眼望去又是没有任何抽取欲望的
+
+今年不出意料又能仓鼠到夏活了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂了 又要欧了
+

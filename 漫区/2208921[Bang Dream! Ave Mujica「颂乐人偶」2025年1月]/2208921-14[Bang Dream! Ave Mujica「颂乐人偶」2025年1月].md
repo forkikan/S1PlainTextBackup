@@ -14426,3 +14426,14 @@ mujica解散后祥子就已经没那口气了，回到丰川家是最后一根�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 20461#       发表于 2025-2-9 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383323&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-9 22:11</a>
+
+对啊，老登除了把中登流放冷血了点，目前是一件坏事没做，甚至放任祥子在外面乱搞还略显开明，假药也是为 ...</blockquote>
+所以我也说了，大喵和老登联手“方可破”，毕竟鸡团作妖最多的是她，独走摘面具即是开始也说睦心理压力巨大的起点，但是大喵这么骄傲的人要是和老登联手了（我刚才在想利用说的话，但是如果大祥真得制定出哪怕纸上谈兵水平的商业计划来稳住瞄梦呢，老登真能控制大祥和大瞄在想什么吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
