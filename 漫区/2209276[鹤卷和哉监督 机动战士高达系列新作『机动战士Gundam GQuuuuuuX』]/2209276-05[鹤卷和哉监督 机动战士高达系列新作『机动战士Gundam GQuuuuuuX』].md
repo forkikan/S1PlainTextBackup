@@ -10795,3 +10795,27 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 
 求问剧场版上映到什么时候，2月底去东京还能看到吗
 
+
+*****
+
+####  AvenueIII  
+##### 6744#       发表于 2025-2-10 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384190&amp;ptid=2209276" target="_blank">砂雪 发表于 2025-2-10 01:06</a>
+
+求问剧场版上映到什么时候，2月底去东京还能看到吗</blockquote>
+二月底肯定还在映的
+
+
+*****
+
+####  xwz  
+##### 6745#       发表于 2025-2-10 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383473&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-9 22:38</a>
+
+修司闻麻球头发的同人也太多了，果然是名场面
+
+不过可以预料现在绝大多数的红蓝乙女味同人在TV放送后都 ...</blockquote>
+原作负责关系性，同人负责性关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
