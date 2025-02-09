@@ -2303,3 +2303,14 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 
 这个看了一下，好像要手机号来注册？
 
+
+*****
+
+####  魔法师lain  
+##### 227#       发表于 2025-2-9 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67325323&amp;ptid=2244683" target="_blank">强尼高达 发表于 2025-2-1 09:03</a>
+
+日本手机号看演唱会的不是人手一个么……</blockquote>
+怎样入手？之前雅虎突然要绑手机号，在淘宝找来的号过几分钟就会被封
+
