@@ -14413,3 +14413,16 @@ mujica解散后祥子就已经没那口气了，回到丰川家是最后一根�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhzij111  
+##### 20460#       发表于 2025-2-9 22:11
+
+ 本帖最后由 zhzij111 于 2025-2-9 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382455&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 19:39</a>
+而且大祥自从鸡团解散以后，到目前为止，即没看到老登有限制她的人身自由（如果大祥还想拿点小钱去偷偷帮中 ...</blockquote>
+对啊，老登除了把中登流放冷血了点，目前是一件坏事没做，甚至放任祥子在外面乱搞还略显开明，假药也是为了洗母鸡卡这几个神人非要把他预定成反派<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -10636,3 +10636,52 @@ X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）<
 牢修是高战力红瞳美少年，铜仁女会喜欢的经典类型，bg粉一下就来了</blockquote>
 gqx的图我基本看见的都点赞转推，抛开图最多的绿叔叔三人组第二高的就是红蓝了。开播前反过来的基本上都是喵安麻球
 
+
+*****
+
+####  岸浪白野  
+##### 6731#       发表于 2025-2-9 22:13
+
+[大川ぶくぶ/bkub (@bkub_comic) / X](https://x.com/bkub_comic)
+
+<img src="https://img.saraba1st.com/forum/202502/09/221248sh4qhovhf1jjhog1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (788.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 22:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/221254cpwtkplbjpbzcprp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (656.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 22:12 上传
+
+[X 上的 脳汁田中＠ゲーム：“赤い彗星を連れてきたよ [url]https://t.co/rZMCwX5RVY](https://x.com/nounaibussitsu/status/1888505358496477344)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/09/221317mcw8zh9whhpw3z0p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (994.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 22:13 上传
+
+*****
+
+####  RE㐅ia  
+##### 6732#       发表于 2025-2-9 22:13
+
+X @GameHetaPiPi
+
+<img src="https://img.saraba1st.com/forum/202502/09/221228u314wqwgb6ar99rn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4684EE6A-7B65-4985-9C86-90B677BE381F.jpeg</strong> (291.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 22:12 上传
+
