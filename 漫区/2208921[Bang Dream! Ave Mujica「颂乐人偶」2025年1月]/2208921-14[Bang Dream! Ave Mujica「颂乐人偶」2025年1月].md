@@ -15110,3 +15110,18 @@ op里的睦不会就是睦莫融合的产物吧，领悟了用吉他唱歌和莫
 —— 来自 Xiaomi 2407FRK8EC, Android 1 ...</blockquote>
 更像是这俩在体内打架争夺身体控制权
 
+
+*****
+
+####  plok201  
+##### 20516#       发表于 2025-2-10 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383798&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-9 23:39</a>
+
+你要这么说的话，那我觉得A团用不用老登都很难完全洗回来了，所以就不应该洗了？之后继续五个神人这么神 ...</blockquote>
+可以么，那确实可以，然后你会看到只剩下6集不到的文戏里，要分出不少的内容去处理老登和各个内鬼的关系，老登干了什么，为什么那么干，你是少女乐队番，别搞到老登的时间比LIVE还长<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+只有一个初华那还勉强能写，到时候来复数内鬼那这片就改名为TGW人偶了，把一切都甩给老登，观众也不是傻子，一复盘就会发现A场景和老登没关系，B场景那也好像没有关系
+
+反正我的看法是用老登去洗白A团不是什么好办法，太懒了，而且线索太少和出现太晚，最后真用估计也只能靠情绪去感染观众了
+

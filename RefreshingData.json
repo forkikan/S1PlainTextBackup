@@ -2265,7 +2265,7 @@
     "lastedit": 1739113200,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -3777,7 +3777,7 @@
     "lastedit": 1739113920,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -10530,10 +10530,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 20515,
+    "totalreply": 20516,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月 (禁止带图剧透)]",
-    "lastedit": 1739129291,
+    "lastedit": 1739130852,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10763,15 +10763,6 @@
     "active": true,
     "update": false
   },
-  "2210280": {
-    "totalreply": 77,
-    "title": "[有人玩MiSide米塔吗]",
-    "newtitle": "[有人玩MiSide米塔吗]",
-    "lastedit": 1737921371,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2167814": {
     "totalreply": 88,
     "title": "[魔神英雄传 新系列TV动画『魔神创造伝ワタル』制作决定]",
@@ -10899,10 +10890,10 @@
     "update": false
   },
   "2176665": {
-    "totalreply": 230,
+    "totalreply": 231,
     "title": "[原创TV动画『全修。』MAPPA制作]",
     "newtitle": "[原创TV动画『全修。』MAPPA制作]",
-    "lastedit": 1739123178,
+    "lastedit": 1739130614,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11277,10 +11268,10 @@
     "update": false
   },
   "2242793": {
-    "totalreply": 561,
+    "totalreply": 562,
     "title": "[医保局直接开大了]",
     "newtitle": "[医保局直接开大了]",
-    "lastedit": 1739125211,
+    "lastedit": 1739130614,
     "category": "外野",
     "active": true,
     "update": false
@@ -14976,10 +14967,10 @@
     "update": false
   },
   "2245349": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[乐队番的“不专业”是刻意为之吗？]",
     "newtitle": "[乐队番的“不专业”是刻意为之吗？]",
-    "lastedit": 1739127735,
+    "lastedit": 1739130614,
     "category": "漫区",
     "active": true,
     "update": false
