@@ -10461,3 +10461,30 @@ X @knights_2k ジークアクスのネタバレ妄想漫画です
 
 也就是说他有两个壶，一个北宋的一个南宋的？
 
+
+*****
+
+####  积木23ki  
+##### 6716#       发表于 2025-2-9 19:02
+
+2.10的newtype有gquuuuuux好像。
+
+*****
+
+####  gundammarkⅡ  
+##### 6717#       发表于 2025-2-9 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382196&amp;ptid=2209276" target="_blank">猪突猛进 发表于 2025-2-9 18:52</a>
+说起来马克杯的壶到底是不是北宋的？
+
+野望里说壶是南宋的：</blockquote>
+【北宋的壶？北宋的瓶！马克贝的两件古董-哔哩哔哩】 https://b23.tv/LA15gDd
+
+这位up主做过考究
+<img src="https://p.sda1.dev/21/b2ec8d926d2d9b6bdbc8e01a6d465557/image.jpg" referrerpolicy="no-referrer">
+北宋的壶是这个“定窑白釉刻莲纹龙首净瓶”
+<img src="https://p.sda1.dev/21/fdf7211cea702bee9c865357dafe3c8d/image.jpg" referrerpolicy="no-referrer">
+另一个找不到原型，而且即使官方周边也常把两者混淆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
