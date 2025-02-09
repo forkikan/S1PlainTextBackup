@@ -10236,3 +10236,38 @@ gqx是夏利亚发现红高之后才力排众议派出去的 说红高为了gqx�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刺客ares  
+##### 6702#       发表于 2025-2-9 14:49
+
+还有一个有意思的点是
+
+牢修在街机的语音对看不到“另一侧”的人，态度可以说非常冷淡。
+
+但在正篇他对看不懂涂鸦的喵安却表现得很信任，甚至带她去藏身处给她展示红高达。
+
+要知道他现在被吉翁通缉，喵安随时可能去把他告发了拿赏金，信任玛秋能理解，对喵安的信任是从何而来啊？喵安眼里他就是个付不起钱浑身补丁头上顶个橘子箱的流浪汉（
+
+
+*****
+
+####  Piano-Forest  
+##### 6703#         楼主| 发表于 2025-2-9 14:57
+
+[https://x.com/Fuyuhino_mr10/status/1888014886497636802](https://x.com/Fuyuhino_mr10/status/1888014886497636802)
+<img src="https://p.sda1.dev/21/ec0cd27e1c18ec59d87ff971794c10f4/20250209_144822.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/haa065/status/1886812606171951433](https://x.com/haa065/status/1886812606171951433)
+<img src="https://p.sda1.dev/21/731df1d114043734a9287661ceb1a3f8/20250209_144903.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kanzakihiro/status/1888117465626079483](https://x.com/kanzakihiro/status/1888117465626079483)
+<img src="https://p.sda1.dev/21/a776913cf1c1ee93b7f78514bd114dff/20250209_144813.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kamonohashi0921/status/1886133976663990522](https://x.com/kamonohashi0921/status/1886133976663990522)
+<img src="https://p.sda1.dev/21/5b0f2bd1d3f9f457e46e9fa03a4f94ea/20250209_145051.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/boy_illu/status/1886028980614291845](https://x.com/boy_illu/status/1886028980614291845)
+<img src="https://p.sda1.dev/21/337aa2b7b1eeaf75b11a48003613dc8a/20250209_145041.jpg" referrerpolicy="no-referrer">
+
