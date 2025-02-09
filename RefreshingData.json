@@ -2265,7 +2265,7 @@
     "lastedit": 1739113200,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -3777,7 +3777,7 @@
     "lastedit": 1739113920,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -10683,10 +10683,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 2322,
+    "totalreply": 2325,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1739126172,
+    "lastedit": 1739126891,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15768,10 +15768,10 @@
     "update": false
   },
   "2245674": {
-    "totalreply": 93,
+    "totalreply": 94,
     "title": "[这个建筑审美，泥潭什么水平]",
     "newtitle": "[这个建筑审美，泥潭什么水平]",
-    "lastedit": 1739125813,
+    "lastedit": 1739126651,
     "category": "外野",
     "active": true,
     "update": false
