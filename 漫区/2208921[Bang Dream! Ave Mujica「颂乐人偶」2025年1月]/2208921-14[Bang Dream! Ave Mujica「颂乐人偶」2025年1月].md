@@ -12852,3 +12852,22 @@ https://x.com/CEMA8077919
 大箱老师是想实现音乐梦想的，但编剧的大手告诉你要爽吃流量</blockquote>
 真的嘛？A团1.0里祥子一边说要坚持乐队，一边又想着迅速占领市场赚快钱，结果两手抓两手都没抓住不是嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qlipho  
+##### 20324#       发表于 2025-2-9 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380820&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 14:26</a>
+
+真的嘛？A团1.0里祥子一边说要坚持乐队，一边又想着迅速占领市场赚快钱，结果两手抓两手都没抓住不是嘛 ...</blockquote>
+不赚钱就要回去坐迈巴赫了嘛，是需要家人侠好好教育下
+
+
+*****
+
+####  RJG丶one  
+##### 20325#       发表于 2025-2-9 14:37
+
+来点sumimi解散不仲营业，初华星空剧院火星撞地球
+
