@@ -15156,3 +15156,12 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 </blockquote>
 虽然两个团的联系源自苦来兮苦，但是已经没了，现在就是mygo，何况5话爱音和6话猫猫这俩非原C团成员的还占了大量且最关键的戏份。
 
+
+*****
+
+####  海洋队手下mayo  
+##### 20519#       发表于 2025-2-10 07:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">目前为止主动行动的都是mygo的人，鸡团的角色都还僵在原本的状态，想不离题后面确实应该减少mygo的成员参与 展现鸡团这边的角色个人魅力和团队羁绊了。即便解决c团也该展现祥子这边如何到达可以解决c团问题的状态，而非mygo那边
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不然到时候鸡团实装 真就一卡池等待mygo五圣人救助的挖坑不填神人啊
+
