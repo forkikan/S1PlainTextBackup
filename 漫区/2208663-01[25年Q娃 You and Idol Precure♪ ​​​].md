@@ -1554,3 +1554,41 @@ Q娃预告
 金铅球大妈又拓展新业务了 跳舞 唱歌 现在直接当编剧了
 钟弘大小姐还是那句话 给我好好的写隔壁南波万战队先 别捡芝麻丢西瓜 同理香村大妈
 
+
+*****
+
+####  modedd  
+##### 412#       发表于 2025-2-9 09:05
+
+ 本帖最后由 modedd 于 2025-2-9 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379188&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-2-9 08:11</a>
+狗大友差不多得了，这才两集就想看挺好？我相信这次粉蓝党一定会赢到最后的 ...</blockquote>
+蓝色系，第二个加入，青梅
+紫色系，第三个加入，肉眼可见的女主gachi
+真不是我说嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  挺好的  
+##### 413#       发表于 2025-2-9 09:09
+
+<img src="https://img.saraba1st.com/forum/202502/09/090952o864luetux3g3w46.png" referrerpolicy="no-referrer">
+
+<strong>e12856516a00d26db080312453e12919.png</strong> (188.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 09:09 上传
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 414#       发表于 2025-2-9 09:12
+
+早上起床看法Q，法Q看完看妈妈的直播，直播完接着看加布
+完了，小时候在电视上看动画最开心的时候也没这么开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
