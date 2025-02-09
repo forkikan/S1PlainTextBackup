@@ -2444,3 +2444,14 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍</blockquote>
 真•纯小白问一下，这类破甲咒语要怎么用，酒馆可用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔灵高达  
+##### 1701#       发表于 2025-2-9 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381791&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-9 17:38</a>
+
+它要每个文件没限制，你直接扔一个文件里呢？</blockquote>
+有限制，文本量太大会读不出来，只能读前面一部分
+
