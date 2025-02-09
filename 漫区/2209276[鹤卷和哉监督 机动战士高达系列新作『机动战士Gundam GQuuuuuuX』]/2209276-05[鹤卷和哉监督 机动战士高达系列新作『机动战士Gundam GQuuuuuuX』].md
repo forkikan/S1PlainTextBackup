@@ -10604,3 +10604,35 @@ X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）<
 
 喵安还是东亚（or东南亚）的人，怎么也黑不到印度人那个程度啦，大概国内佤族那种感觉？
 
+
+*****
+
+####  Toby_dak  
+##### 6728#       发表于 2025-2-9 21:01
+
+不记得哪里看到了，尼亚安好像是越南系？
+
+*****
+
+####  RE㐅ia  
+##### 6729#       发表于 2025-2-9 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382744&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-9 20:27</a>
+
+想象一下玛秋不变的前提下，
+
+在检票口遇到的是难民走私犯黑发黑皮弱气少年，
+
+在桥下遇到的是开着红高的蓝发 ...</blockquote>
+感觉弱气少年没有弱气少女好卖，神秘电波少年少女倒是都差不多。这下成最正确的人设分配了
+
+*****
+
+####  RE㐅ia  
+##### 6730#       发表于 2025-2-9 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382593&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-9 19:59</a>
+
+牢修是高战力红瞳美少年，铜仁女会喜欢的经典类型，bg粉一下就来了</blockquote>
+gqx的图我基本看见的都点赞转推，抛开图最多的绿叔叔三人组第二高的就是红蓝了。开播前反过来的基本上都是喵安麻球
+
