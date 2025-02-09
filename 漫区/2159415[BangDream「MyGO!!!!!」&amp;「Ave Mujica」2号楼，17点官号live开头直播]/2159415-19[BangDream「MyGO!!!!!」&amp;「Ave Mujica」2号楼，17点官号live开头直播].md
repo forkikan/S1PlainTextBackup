@@ -3754,3 +3754,27 @@ Mujica免费live [https://live.bilibili.com/31160604](https://live.bilibili.com/
 
 8号青木池袋路演说是进入邦多利才有这么多观众，自己第一次在池袋路上live的时候没人看，街上都是lovelive的广告，当时一个大叔投了500元币一直留着没用很珍惜
 
+
+*****
+
+####  6030sylar  
+##### 26921#       发表于 2025-2-9 20:32
+
+<img src="https://img.saraba1st.com/forum/202502/09/203223rcr3fbfrfrfdz6rl.png" referrerpolicy="no-referrer">
+
+<strong>UN0S8HA]2R0`T`]}J~J7BY2.png</strong> (38.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/203232icldfny1ddf88h8d.png" referrerpolicy="no-referrer">
+
+<strong>M9RPHTW((0NVUT[KB}GFENH.png</strong> (56.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 20:32 上传
+
+大家还年轻的时候
+

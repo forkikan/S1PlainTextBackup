@@ -2479,3 +2479,32 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 有限制，文本量太大会读不出来，只能读前面一部分</blockquote>
 大概能多少汉字啊。这个文字量也是会影响ai的反应吧。
 
+
+*****
+
+####  名居守  
+##### 1704#       发表于 2025-2-9 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">写了个设定大纲，扔给D老师让总结出其中一个机构的职能，结果直接把所有设定大纲里的内容全归给这个机构，纠错加骂了好几次，还是不会分开看
+
+最后还是得自己提取内容出来，结果还是自己动手根本不需要D老师了
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">血压部分包括但不限于
+
+把这个机构不该知道的事默认为这个机构知道所有
+
+机构个人私底下做的事当成机构全员准则
+
+机构里某些人自愿行为被弄成了具有奖惩机制的能虚空把人抓回来坐小黑屋
+
+机构一定是黑暗无比的，好的一面是为了掩盖机构天怒人怨的，什么？用户没说要这种结构？我说用户说了就是说了。
+
+*****
+
+####  约翰里德  
+##### 1705#       发表于 2025-2-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382779&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-9 20:32</a>
+写了个设定大纲，扔给D老师让总结出其中一个机构的职能，结果直接把所有设定大纲里的内容全归给这个机构， ...</blockquote>
+我的背景他能把阴谋论先塞北约再塞华约再塞老墨。怎么劝都停不住，从小卒到总统，全都是大坏蛋。
+反正人类坏坏的，ai好好滴。
+

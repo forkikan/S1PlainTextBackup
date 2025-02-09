@@ -137,3 +137,13 @@
 另外求挂nff的学姐，要满绊了，白纸星星还得打
 292483704
 
+
+*****
+
+####  森兰丸  
+##### 16247#       发表于 2025-2-9 20:35
+
+这新角色一眼望去又是没有任何抽取欲望的
+
+今年不出意料又能仓鼠到夏活了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
