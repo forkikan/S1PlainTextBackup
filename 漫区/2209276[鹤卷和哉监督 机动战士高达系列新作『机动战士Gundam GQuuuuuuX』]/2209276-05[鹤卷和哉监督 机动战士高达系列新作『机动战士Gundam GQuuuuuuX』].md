@@ -10779,3 +10779,11 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 大川ぶくぶ/bkub (@bkub_comic) / X</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 6742#       发表于 2025-2-10 00:51
+
+真若即若离吗？我怎么看现在几首配乐的台词感觉怎么看怎么重（）
+

@@ -526,3 +526,22 @@ d指导真的很爱量子力学
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  cyanwow  
+##### 44#       发表于 2025-2-10 00:44
+
+句乱打语序顺，ai复回能吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wiksy  
+##### 45#       发表于 2025-2-10 00:47
+
+游戏不会优化全靠AI DLSS
+
+论坛不会回帖全靠AI DISS
+
+这两个都一样糟糕
+
