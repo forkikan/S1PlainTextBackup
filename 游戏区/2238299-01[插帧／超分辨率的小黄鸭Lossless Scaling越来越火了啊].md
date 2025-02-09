@@ -112,3 +112,14 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 过年用这个试了机战30和最终幻想10HD，机战30插60本身就拉跨的一些动画没法质变，但整体观感提升不小，也没 ...</blockquote>
 锁30的游戏，强行变成60以后最大的问题就是QTE也会变成两倍速导致很难按...
 
+
+*****
+
+####  locco1229  
+##### 94#       发表于 2025-2-10 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383301&amp;ptid=2238299" target="_blank">黑天使の翼 发表于 2025-2-9 22:07</a>
+
+能用,效果挺好.</blockquote>
+移动的时候，屏幕上下会变波浪，是设置的问题吗？
+
