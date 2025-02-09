@@ -2326,3 +2326,13 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 日本政府吹风4月开始在线支付必须本人认证，海外支付手段没法 ...</blockquote>
 感觉不是3d认证的关系 eplus因为3D认证的关系现在可以用国内信用卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  强尼高达  
+##### 229#       发表于 2025-2-9 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379673&amp;ptid=2244683" target="_blank">魔法师lain 发表于 2025-2-9 10:42</a>
+怎样入手？之前雅虎突然要绑手机号，在淘宝找来的号过几分钟就会被封</blockquote>
+[https://www.cmlink.com/jp/zh/get ... amp;promotionType=1](https://www.cmlink.com/jp/zh/get-sim/?productType=10012&amp;flowType=10GB&amp;promotionType=1)
+

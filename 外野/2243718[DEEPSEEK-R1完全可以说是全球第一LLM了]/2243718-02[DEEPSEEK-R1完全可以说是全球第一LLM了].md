@@ -2434,3 +2434,13 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 不过，貌似cheryy studio每一个知识库只能 ...</blockquote>
 它要每个文件没限制，你直接扔一个文件里呢？
 
+
+*****
+
+####  羊寢  
+##### 1700#       发表于 2025-2-9 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379263&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 08:52</a>
+没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍</blockquote>
+真•纯小白问一下，这类破甲咒语要怎么用，酒馆可用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

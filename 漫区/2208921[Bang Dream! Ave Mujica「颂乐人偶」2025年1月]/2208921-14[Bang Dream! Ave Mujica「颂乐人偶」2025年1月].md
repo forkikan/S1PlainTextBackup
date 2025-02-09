@@ -13295,3 +13295,34 @@ mygo上来大祥老师上来对着小企鹅也是一句菜就多练，然后ccc�
 
 所以我觉得就算离开了AM还继续练鼓也正常，也就是回到被邀请进AM之前的状态罢了
 
+
+*****
+
+####  sauron.j  
+##### 20363#       发表于 2025-2-9 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381655&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-9 17:17</a>
+
+睦祥哪埋了，倒不如说整个1～7都是睦祥传，下集必和解的。</blockquote>
+5集大祥回，6集C团遗留问题团建+半个睦头回
+
+看起来go团戏份多，其实全在围着祥睦转
+
+
+*****
+
+####  玖羽  
+##### 20364#       发表于 2025-2-9 17:52
+
+Mujica是讨论热度最高的一月新番
+
+（这里只算了#アニメムジカ，至少还有#AveMujica，实际热度更高）
+
+<img src="https://img.saraba1st.com/forum/202502/09/175132rjvbccb171pc7v93.jpg" referrerpolicy="no-referrer">
+
+<strong>640.jpg</strong> (115.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 17:51 上传
+
