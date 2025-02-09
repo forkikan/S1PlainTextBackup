@@ -14245,3 +14245,24 @@ ccc不是解散，只是没人来了<img src="https://static.saraba1st.com/image
 
 更何况我觉得搞乐队和做继承人也没啥冲突的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，试想一开始祥子没和祥爹走，只要跟着老登住，ccc应该也不会被拆散。
 
+
+*****
+
+####  小博禹  
+##### 20445#       发表于 2025-2-9 21:18
+
+睦头的传话本来就问题很大呀<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看第一季的时候我还以为睦是为了某些目的（比如故意拆散手箱）而故意这样的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 20446#       发表于 2025-2-9 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382528&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-9 19:49</a>
+我记得我几天前刚扯过这个问题，定治要祥子当丰川家继承人，越强硬越容易适得其反
+
+怎么才能根绝继承人不 ...</blockquote>
+所以一个少女乐队番为什么需要一个反派呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
