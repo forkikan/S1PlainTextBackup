@@ -10102,3 +10102,23 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 
 —— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  良臣没有重谢  
+##### 6691#       发表于 2025-2-9 12:10
+
+前面6651楼问的那里，就是修司在场呀。那里是第一次修司和麻球触发kirakira然后麻球说虽然完全搞不懂但是好像懂了。后面还特别给了个红高达开回去路过夏利亚他们船的镜头，夏利亚反应过来里面坐着的不是夏亚是修司。
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Toby_dak  
+##### 6692#       发表于 2025-2-9 12:19
+
+越想越觉得是GTO的世界线。
+高达、钢加农和钢坦克都不止一台。钢加农在SIDE7之前就已经配备。RX-78-01正在模拟战测试。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

@@ -12638,3 +12638,28 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 
 滑个坡 估计正片里面大喵老师的塑造是没啥篇幅拉回来了，这才搞的衍生演出
 
+
+*****
+
+####  cccpprc  
+##### 20307#       发表于 2025-2-9 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380015&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-9 11:43</a>
+
+就这还星3？至少母鸡卡没把祥子写成沉迷游戏的小丑，老爹前脚抛弃家庭后脚给学校投钱还给女儿送xbox，最后 ...</blockquote>
+叶月恋是个给大女主涩谷香音及其团队提供合法性的牌位啊
+
+学园偶像和学校的联系在哪里？你看与学校羁绊深厚的学生会长都入伙甚至被架空了，这联系谁敢说不深厚的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 20308#       发表于 2025-2-9 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380066&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-9 11:54</a>
+
+小丑的方式可以是五花八门的，真飞鸟虽说失去了主角的独立性，可好歹从头到尾都没对不起史黛拉，也没有对不 ...</blockquote>
+你要继续拿星团三打比方的话，作为前作反派位的薇恩在和解后也是有战前演讲的高光的
+
+那大祥是同时站了薇恩和大香的位置的，还怕圆不回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
