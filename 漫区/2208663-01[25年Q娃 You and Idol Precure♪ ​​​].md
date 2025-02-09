@@ -1842,3 +1842,15 @@ nana的鬓角的两条触须越看越奇怪啊
 感觉偶像元素有点割裂 主线还是常见的打怪收集 两者没联系到一起</blockquote>
 就当最后的歌舞是战斗后的胜者舞台吧，正好也是三个人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 439#       发表于 2025-2-9 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二集最有味道的还得是擦眼泪那段
+
+另外就是小歌觉悟的确来的太快了
+
+OP里面一股循环箭头的味道,我等不及啦
+

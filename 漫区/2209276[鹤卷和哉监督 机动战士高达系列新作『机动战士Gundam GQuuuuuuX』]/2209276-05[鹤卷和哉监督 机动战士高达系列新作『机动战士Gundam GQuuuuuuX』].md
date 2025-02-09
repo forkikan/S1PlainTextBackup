@@ -10371,3 +10371,20 @@ gqx是夏利亚发现红高之后才力排众议派出去的 说红高为了gqx�
 
 我记得有repo提过这作的staff里是有宇宙考察协力和科幻顾问的位置
 
+
+*****
+
+####  cxasuka  
+##### 6712#       发表于 2025-2-9 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380718&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-2-9 14:04</a>
+
+按照光头小说版，骡子出场就是训练兵，而不是平民，而GQ这边还未确定有没有骡子呢
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+一开始无和最后无都是无，都是无啊。
+
+关键是只有小说版夏利亚才有这么重的戏份，天天和鸭子搅在一起想着推翻鸡瘟。
+
+不过比起除了拉拉大获全胜的小说版鸭子，gqx不但渣比家一个都没杀掉，甚至连看不顺眼的北宋之壶都活的好好的，真是达成了只有鸭子受伤的世界<img src="https://static.saraba1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+

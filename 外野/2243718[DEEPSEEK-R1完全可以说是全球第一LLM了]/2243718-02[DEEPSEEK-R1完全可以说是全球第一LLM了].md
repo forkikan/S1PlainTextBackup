@@ -2455,3 +2455,16 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 它要每个文件没限制，你直接扔一个文件里呢？</blockquote>
 有限制，文本量太大会读不出来，只能读前面一部分
 
+
+*****
+
+####  moeblack  
+##### 1702#         楼主| 发表于 2025-2-9 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379047&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-9 05:01</a>
+
+酒馆我至今没弄明白怎么屏蔽r1的思考过程，每次300token的回复就在那看他说自己的思考流程了……
+
+——  ...</blockquote>
+默认就是不输出的吧
+

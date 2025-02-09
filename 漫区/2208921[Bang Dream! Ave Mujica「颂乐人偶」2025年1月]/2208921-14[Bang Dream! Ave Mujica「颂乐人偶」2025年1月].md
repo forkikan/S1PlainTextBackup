@@ -13353,3 +13353,37 @@ Mujica是讨论热度最高的一月新番
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 20368#       发表于 2025-2-9 18:26
+
+<blockquote>看穿一切的鱼 发表于 2025-2-9 16:27
+别急，等睦走马灯的时候你们就该明白白祥的恩情还不完了。
+
+—— 来自 S1Fun ...</blockquote>
+这剧肯定讲的是祥子的进化，我感觉祥黑差不多可以退场了
+
+
+*****
+
+####  嵇翱u  
+##### 20369#       发表于 2025-2-9 18:34
+
+其实下一集祥子可能还没那么快就转变，我感觉大概率是刚开了个口子。
+
+毕竟地铁cm大喵还有对线语音呢，如果已经是完全体祥子根本不会给大喵对线的机会吧。
+
+除非下一集把c团，鸡团全挤一块框框A了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 20370#       发表于 2025-2-9 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382072&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-9 18:26</a>
+
+这剧肯定讲的是祥子的进化，我感觉祥黑差不多可以退场了</blockquote>
+如果你楼有不折不扣的祥黑，现在早就吃“美食”撑死到怀疑是餐厅在算计自己<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
