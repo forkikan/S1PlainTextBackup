@@ -2310,3 +2310,16 @@ nextchat用deepseek倒是能调用，硅基流动我api填上去用不了。
 
 限制怎么解除？画图那些AI也能通过付费API来实现云AI吗
 
+
+*****
+
+####  美坂汐里  
+##### 1689#       发表于 2025-2-9 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380571&amp;ptid=2243718" target="_blank">粉色猛男 发表于 2025-2-9 13:29</a>
+
+纯小白问一下，入门部署API的话要怎么搞,你们说的什么酒馆什么ollma都是啥
+
+看了下B站视频,是不是下个cherry ...</blockquote>
+酒馆是指silly tavern，去谷歌搜下，应该是第一个就有官网。说的很详细了。
+
