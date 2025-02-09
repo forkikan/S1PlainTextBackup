@@ -28,3 +28,16 @@ PS：用右摇杆模拟鼠标的时候怎么加速？看网上说按住R2可以�
 
 还是有凑合用的感觉，毕竟不是原生支持steam os。sd太大我实在用不来。
 
+
+*****
+
+####  bypass  
+##### 1403#         楼主| 发表于 2025-2-9 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375861&amp;ptid=2086469" target="_blank">mishizuo 发表于 2025-2-8 16:30</a>
+
+看楼主体验bazzite的bug，回想一下。待机后声音错误和tdp调节无效我也遇到过。
+
+游戏内手柄失效没遇到过，不 ...</blockquote>
+有人建议我安装 Decky 插件 Pause Games，我试了一下，几天了似乎没有再出现问题一和二了，待我再长时间体验一下。
+

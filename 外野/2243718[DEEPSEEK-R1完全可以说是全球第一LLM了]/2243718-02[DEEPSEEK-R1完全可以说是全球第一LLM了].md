@@ -2278,3 +2278,23 @@ https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_wo
 没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍</blockquote>
 试了下不行啊直接被拒了
 
+
+*****
+
+####  脸宽  
+##### 1686#       发表于 2025-2-9 10:22
+
+有没有调用api支持云端数据同步的，chatbox不能备份太麻烦了。
+
+nextchat用deepseek倒是能调用，硅基流动我api填上去用不了。
+
+*****
+
+####  魔灵高达  
+##### 1687#       发表于 2025-2-9 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379290&amp;ptid=2243718" target="_blank">希德尼娅 发表于 2025-2-9 09:03</a>
+
+试了下不行啊直接被拒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实我试了下单独使用也不行，昨天我主要是配合智能体里面那个《文章风格提示词逆向工程》来用的，发了几篇刘备上去分析的头头是道
+
