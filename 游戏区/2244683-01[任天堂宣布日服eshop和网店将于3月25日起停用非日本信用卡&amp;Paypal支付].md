@@ -2314,3 +2314,15 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 日本手机号看演唱会的不是人手一个么……</blockquote>
 怎样入手？之前雅虎突然要绑手机号，在淘宝找来的号过几分钟就会被封
 
+
+*****
+
+####  信长的呕吐  
+##### 228#       发表于 2025-2-9 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339453&amp;ptid=2244683" target="_blank">oidoid 发表于 2025-2-3 14:40</a>
+可能找到这次动作的原因了，日本政府的问题
+
+日本政府吹风4月开始在线支付必须本人认证，海外支付手段没法 ...</blockquote>
+感觉不是3d认证的关系 eplus因为3D认证的关系现在可以用国内信用卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
