@@ -1503,3 +1503,28 @@ Q娃预告
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这集典得实在太棒了，果然还是肉搏戏方便提情绪
 
+
+*****
+
+####  modedd  
+##### 406#       发表于 2025-2-9 08:08
+
+ 本帖最后由 modedd 于 2025-2-9 08:10 编辑 
+
+居然是蓝q先来吗，看起来是那种温柔的，受了委屈也会憋在心里不说出来的类型
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咲良うた  
+##### 407#       发表于 2025-2-9 08:10
+
+第 02 集的 TVer 源（含日字）：magnet:?xt=urn:btih:3c000334b972559bc0d562e8ce9e4f8289d44c33
+
+*****
+
+####  jaewoongh_  
+##### 408#       发表于 2025-2-9 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">狗大友差不多得了，这才两集就想看挺好？我相信这次粉蓝党一定会赢到最后的
+

@@ -827,3 +827,12 @@ grand odyssey 19999-xxxxx
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  killcal  
+##### 7606#       发表于 2025-2-9 08:11
+
+40小时开着高速模式和风灵月影通关了……
+一言难尽，这比闪3咚还过分。
+
