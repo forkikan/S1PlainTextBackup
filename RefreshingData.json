@@ -2265,7 +2265,7 @@
     "lastedit": 1739113200,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -3777,7 +3777,7 @@
     "lastedit": 1739113920,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 134442,
+    "totalreply": 134445,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1739144289,
+    "lastedit": 1739144651,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15777,10 +15777,10 @@
     "update": false
   },
   "2245671": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[冬天大家都是怎么解决吃饭吃到一半菜就凉掉的问题的？]",
     "newtitle": "[冬天大家都是怎么解决吃饭吃到一半菜就凉掉的问题的？]",
-    "lastedit": 1739125813,
+    "lastedit": 1739144533,
     "category": "外野",
     "active": true,
     "update": false
@@ -15831,10 +15831,10 @@
     "update": false
   },
   "2245717": {
-    "totalreply": 50,
+    "totalreply": 54,
     "title": "[正经牛排是不调味的吗？]",
     "newtitle": "[正经牛排是不调味的吗？]",
-    "lastedit": 1739144180,
+    "lastedit": 1739144771,
     "category": "外野",
     "active": true,
     "update": false
