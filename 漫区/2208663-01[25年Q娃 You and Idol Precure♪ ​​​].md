@@ -1814,3 +1814,31 @@ nana的鬓角的两条触须越看越奇怪啊
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">真可爱啊粉主
 
+
+*****
+
+####  jaewoongh_  
+##### 436#       发表于 2025-2-9 18:09
+
+紫色最起码要到第七集才会变，中间还要因为驿传停播一周，什么时候才能对米米犯错啊
+
+*****
+
+####  lyflyflxf  
+##### 437#       发表于 2025-2-9 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381932&amp;ptid=2208663" target="_blank">zpbzpb123123 发表于 2025-2-9 18:02</a>
+
+之后处刑曲会不会多几首歌咧</blockquote>
+第一首是粉主角色歌片段。以后也可以用其他人的角色歌嘛
+
+*****
+
+####  lyflyflxf  
+##### 438#       发表于 2025-2-9 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379492&amp;ptid=2208663" target="_blank">renkan119 发表于 2025-2-9 10:03</a>
+
+感觉偶像元素有点割裂 主线还是常见的打怪收集 两者没联系到一起</blockquote>
+就当最后的歌舞是战斗后的胜者舞台吧，正好也是三个人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
