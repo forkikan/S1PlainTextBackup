@@ -1646,3 +1646,20 @@ Q娃预告
 
 今年粉蓝稳！秋姐就这个粉蓝给我麦啊
 
+
+*****
+
+####  离心  
+##### 420#       发表于 2025-2-9 12:05
+
+只能说还好偶q蓝毛是天降青梅，不是纯青梅。否则这套好孩子不愿说烦恼+开朗女主+偶像紫毛buff打下来我ptsd都要犯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十万年魂环  
+##### 421#       发表于 2025-2-9 12:06
+
+没金发小女孩都怕啊<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
