@@ -1636,3 +1636,13 @@ Q娃预告
 把这片场的蓝毛叫来，我亲自教她怎么把情敌的头发拧成五线谱 ...</blockquote>
 冠军什么的绝不认同<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  放哨的狼  
+##### 419#       发表于 2025-2-9 11:09
+
+今年蓝战士拿了q娃棚最稳的重逢系天降buff，上一个拿这buff的还是咲舞（不算成q那坨）
+
+今年粉蓝稳！秋姐就这个粉蓝给我麦啊
+
