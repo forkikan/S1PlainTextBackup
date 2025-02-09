@@ -88,3 +88,16 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 
 ----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  巨馍蘸酱  
+##### 92#       发表于 2025-2-10 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383879&amp;ptid=2238299" target="_blank">罐子 发表于 2025-2-9 23:55</a>
+
+遇上电池人这种抽帧大师画面会怎么样
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+讲真，对电池人的动画效果还真挺好的我觉得，只有对那些掉帧特别严重的动画（比如盖塔大师的）效果不好
+
