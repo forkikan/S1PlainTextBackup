@@ -2265,7 +2265,7 @@
     "lastedit": 1739113200,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -3777,7 +3777,7 @@
     "lastedit": 1739113920,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -15741,10 +15741,10 @@
     "update": false
   },
   "2245674": {
-    "totalreply": 95,
+    "totalreply": 96,
     "title": "[这个建筑审美，泥潭什么水平]",
     "newtitle": "[这个建筑审美，泥潭什么水平]",
-    "lastedit": 1739128691,
+    "lastedit": 1739139731,
     "category": "外野",
     "active": true,
     "update": false
