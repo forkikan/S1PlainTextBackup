@@ -836,3 +836,11 @@ grand odyssey 19999-xxxxx
 40小时开着高速模式和风灵月影通关了……
 一言难尽，这比闪3咚还过分。
 
+
+*****
+
+####  cccjjjhhh  
+##### 7607#       发表于 2025-2-9 11:27
+
+问下坛友，这代范的弹硬币怎么拉不住怪了，是我打开方式有误吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
