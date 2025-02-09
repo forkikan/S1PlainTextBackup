@@ -1528,3 +1528,11 @@ Q娃预告
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">狗大友差不多得了，这才两集就想看挺好？我相信这次粉蓝党一定会赢到最后的
 
+
+*****
+
+####  双菜  
+##### 409#       发表于 2025-2-9 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">但是紫毛入队后肯定攻势凶猛，温柔蓝毛不一定招架得住
+

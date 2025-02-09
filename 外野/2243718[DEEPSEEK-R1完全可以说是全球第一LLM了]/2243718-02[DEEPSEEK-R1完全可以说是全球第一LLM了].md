@@ -2231,3 +2231,29 @@ https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_wo
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  魔灵高达  
+##### 1682#       发表于 2025-2-9 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379047&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-9 05:01</a>
+
+酒馆我至今没弄明白怎么屏蔽r1的思考过程，每次300token的回复就在那看他说自己的思考流程了……
+
+——  ...</blockquote>
+啊？酒馆我这里从最开始就不显示思考过程。。。
+
+用的是硅基流动的proR1
+
+
+*****
+
+####  黄泉川此方  
+##### 1683#       发表于 2025-2-9 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378924&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 02:21</a>
+
+一直在用那个超长的prompt，今天看了下魂+AI区，才发现原来硅基流动的R1随便一句话就能破甲，震惊了，cherr ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这甲薄的提示词都不用打马了
+

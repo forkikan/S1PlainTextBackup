@@ -10032,3 +10032,37 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 自购自扫
 [https://pan.baidu.com/s/1zPlW2jmtStCsx38j7HhmDQ?pwd=GQUX](https://pan.baidu.com/s/1zPlW2jmtStCsx38j7HhmDQ?pwd=GQUX)
 
+
+*****
+
+####  王留美  
+##### 6685#       发表于 2025-2-9 02:06
+
+《机动战士Gundam GQuuuuuuX -Beginning-》场刊
+
+自购自扫
+[https://pan.baidu.com/s/1zPlW2jmtStCsx38j7HhmDQ?pwd=GQUX](https://pan.baidu.com/s/1zPlW2jmtStCsx38j7HhmDQ?pwd=GQUX)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 阿姆莉莉丝| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  虛無迴廊  
+##### 6686#       发表于 2025-2-9 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378372&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-8 23:56</a>
+如果鸭子真融进红高达里那正篇还有蓝红党呢（
+
+又像是Z一样戴起墨镜引导年轻NT了吗牢鸭，牢修一脸无辜的对趴 ...</blockquote>
+向小女生寻求母爱的家伙在这个世界线被迫给无常识小男生当爹，怎么想都是报应啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
