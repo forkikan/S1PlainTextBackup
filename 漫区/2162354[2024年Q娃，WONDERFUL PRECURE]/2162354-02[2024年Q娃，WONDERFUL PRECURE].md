@@ -23,3 +23,25 @@
 
 我可是天天跟茉优睡在一起的喵
 
+
+*****
+
+####  成田良美  
+##### 2771#       发表于 2025-2-9 17:29
+
+大家对感谢祭的朗读剧还满意吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聖あげは  
+##### 2772#       发表于 2025-2-9 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381588&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2025-2-9 17:06</a>
+
+等了10年才胜利的前辈不会觉得太久了吗
+
+我可是天天跟茉优睡在一起的喵</blockquote>
+不要急，来蓝天王国吧
+
+跟着翼少年修行，不管是变人还是打翻世界上所有男人都不是问题
+

@@ -70,3 +70,14 @@
 
 小野小町最著名的是深草少将的故事，几段逸话基本围绕着悲剧、神秘和暗色系，相比之下肯定还是虽然死了对象但刻板印象满脑子桃色的诗人作家和泉式部更きらきら<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 16240#       发表于 2025-2-9 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381452&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-9 16:41</a>
+只有青子是完全强度无关的那个吧 赢</blockquote>
+比较出乎意料的一个是牢青能有第三，另一个是娄希能上榜。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仔细想想，前五位我好像都拉了至少100级。
+
