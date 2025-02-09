@@ -13530,3 +13530,96 @@ Mujica是讨论热度最高的一月新番
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  看穿一切的鱼  
+##### 20385#       发表于 2025-2-9 19:16
+
+但是现在编剧除了第一集基本完全没给祥惨的画面，反而净让小祥搞逆天操作和发出暴言。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+睦就一直在描写惨，所以没几个说睦是在大豪斯里发癫。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fuwamoco  
+##### 20386#       发表于 2025-2-9 19:20
+
+wsd之前粉黑对冲的楚平方人气很高吗
+
+
+*****
+
+####  aptx8285144  
+##### 20387#       发表于 2025-2-9 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382286&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-9 19:08</a>
+
+现在大概有百分之多少的观众连拥有丰厚的物质条件但是极度精神内耗空虚这种文学手法都没法理解和共鸣，还指 ...</blockquote>
+主要问题是“爱情”如果指一直喝醉的老爹，那大祥也是自己放弃了（毕竟不管老登是不是黑手，你也做了一个选择，甚至这个困难有一定概率最后机械降神解决问题），如果指cp们，那三位里两个添狗加初恋的灯都没放弃她（我甚至看到爱音党已经有愤愤不平了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），至于鸡团，现实企划导致其动画很难切割将其真正干死
+
+<strong>于是这种诡异的剧本写法就变成了</strong>，观众们震惊地看着大祥：你在生活中究竟失去的真得比我们失去的多吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最终兵器狂战  
+##### 20388#       发表于 2025-2-9 19:23
+
+借楼贴个自己画的环味墨老师来现现眼。。。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+虽然木头人的设定实在经不住细琢磨，但是看着墨老师发癫 演戏 拷打小祥 玩脱 吃瘪 哭唧唧一气呵成真是又吓人又好玩，生生看出以前云恐笑游戏的感觉。作为嗜血观众我已经非常满足了，还要啥自行车呢。。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/09/191723x51gq7avxaqvz9ha.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (274.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/191723lkn4nh76v4in3h3h.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (324.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/191723soznukifdj88wz5w.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (52.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 19:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/191724kwzaj54d4gvgf4wg.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (53.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 19:17 上传
+
+*****
+
+####  保真花生  
+##### 20389#       发表于 2025-2-9 19:23
+
+有脑残干出脑残的事了
+
+*****
+
+####  保真花生  
+##### 20390#       发表于 2025-2-9 19:23
+
+要是这事闹大就搞笑了真的纯傻逼一个
+
+*****
+
+####  保真花生  
+##### 20391#       发表于 2025-2-9 19:24
+
+不过从处理速度上看还算可以
+

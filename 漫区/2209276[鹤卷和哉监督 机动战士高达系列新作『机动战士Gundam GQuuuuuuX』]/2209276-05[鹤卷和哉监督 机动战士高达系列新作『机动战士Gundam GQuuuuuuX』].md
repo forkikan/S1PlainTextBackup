@@ -10488,3 +10488,21 @@ X @knights_2k ジークアクスのネタバレ妄想漫画です
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Toby_dak  
+##### 6718#       发表于 2025-2-9 19:20
+
+胶达BFT有队叫「北宋の壺」，这算官方玩梗了。
+
+*****
+
+####  ryanghj  
+##### 6719#       发表于 2025-2-9 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382133&amp;ptid=2209276" target="_blank">WallHrolf 发表于 2025-2-9 18:41</a>
+
+X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）</blockquote>
+シュウマチュ的确吸引了一堆铜仁女
+

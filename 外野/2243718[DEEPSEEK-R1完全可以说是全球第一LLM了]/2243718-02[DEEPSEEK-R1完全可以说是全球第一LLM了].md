@@ -2468,3 +2468,14 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 ——  ...</blockquote>
 默认就是不输出的吧
 
+
+*****
+
+####  zerona  
+##### 1703#       发表于 2025-2-9 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382049&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 18:22</a>
+
+有限制，文本量太大会读不出来，只能读前面一部分</blockquote>
+大概能多少汉字啊。这个文字量也是会影响ai的反应吧。
+
