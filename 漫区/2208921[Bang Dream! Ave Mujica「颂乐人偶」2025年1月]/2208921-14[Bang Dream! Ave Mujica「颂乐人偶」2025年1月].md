@@ -12824,3 +12824,31 @@ https://x.com/CEMA8077919
 为啥不肯承认A团1 ...</blockquote>
 当然，这么多神人而又没有幕后黑手（暂定），那再加上第四话酒店室内对话演出的僵硬感，那自然就只有骂柿本和独角兽了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qlipho  
+##### 20321#       发表于 2025-2-9 14:21
+
+大箱老师是想实现音乐梦想的，但编剧的大手告诉你要爽吃流量
+
+
+*****
+
+####  aptx8285144  
+##### 20322#       发表于 2025-2-9 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380792&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-9 14:21</a>
+
+大箱老师是想实现音乐梦想的，但编剧的大手告诉你要爽吃流量</blockquote>
+不是，编辑们嫌弃黑祥不纯正，所以要折磨她让她变回白祥，至于吃流量问题，你看大瞄还被编辑大手命令私底下在打鼓（而不是一心一意搞网红）·，那就是准备包饺子了
+
+*****
+
+####  安娜导函数  
+##### 20323#       发表于 2025-2-9 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380792&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-9 14:21</a>
+大箱老师是想实现音乐梦想的，但编剧的大手告诉你要爽吃流量</blockquote>
+真的嘛？A团1.0里祥子一边说要坚持乐队，一边又想着迅速占领市场赚快钱，结果两手抓两手都没抓住不是嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
