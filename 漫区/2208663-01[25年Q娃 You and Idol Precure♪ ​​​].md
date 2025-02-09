@@ -1623,3 +1623,16 @@ Q娃预告
 
 本来偶像这个主题就很割裂
 
+
+*****
+
+####  CureJoker  
+##### 418#       发表于 2025-2-9 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379502&amp;ptid=2208663" target="_blank">ダイヤモンド 发表于 2025-2-9 10:06</a>
+
+咋的，不懂跨越十年的冠军的含金量
+
+把这片场的蓝毛叫来，我亲自教她怎么把情敌的头发拧成五线谱 ...</blockquote>
+冠军什么的绝不认同<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
