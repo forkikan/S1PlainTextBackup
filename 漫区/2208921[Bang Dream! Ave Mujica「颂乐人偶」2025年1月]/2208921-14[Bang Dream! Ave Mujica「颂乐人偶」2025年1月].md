@@ -13126,3 +13126,41 @@ pareo：公若不弃，令王那愿拜为妇妇</blockquote>
 
 估计喵梦也不例外
 
+
+*****
+
+####  adretyu67.  
+##### 20348#       发表于 2025-2-9 16:04
+
+为什么你们就不能假设大喵老师真的很爱打鼓呢。
+
+怎么说也是第五话觉得自己演技不够推掉经纪人给的角色继续练打鼓的。
+
+*****
+
+####  adretyu67.  
+##### 20349#       发表于 2025-2-9 16:07
+
+ 本帖最后由 adretyu67. 于 2025-2-9 16:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381154&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-2-9 15:39</a>
+
+这就是最编剧大手的地方，祥子在招喵梦的时候还看得出会一点话术，结果到mujica只会一句：祐天寺小姐才应 ...</blockquote>
+mygo上来大祥老师上来对着小企鹅也是一句菜就多练，然后ccc炸了。
+
+只能理解成这人又犯病了
+
+*****
+
+####  akiomn  
+##### 20350#       发表于 2025-2-9 16:10
+
+总之先把李子和节约打成串子，特别是节约，上回说睦的归宿是祥子身边结果睦祥直接埋了。这次说看到初华看到纸条那个画面……还哭呢，怕是笑出声了
+
+<img src="https://img.saraba1st.com/forum/202502/09/161003h2e4xik0k4doqs8d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>36FE2E70-D9D4-4CB2-9114-55F5D99B1FED.jpeg</strong> (103.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 16:10 上传
+
