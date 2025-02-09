@@ -1774,3 +1774,43 @@ nana的鬓角的两条触须越看越奇怪啊
 
 因为是50集会有上下波动但整体应该差不多，请豚豚做好心里建设。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 432#       发表于 2025-2-9 17:55
+
+今年的女人感觉援力好高，不想犯错啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天风绯炎  
+##### 433#       发表于 2025-2-9 17:58
+
+第二集依旧很稳定，小歌又帅又美又飒，太完美了，经典配方能写好也非常有味道。
+
+小歌第二集就觉悟爆表了，中期后期还会更上一层楼吗，变身的律动吹散南条的眼泪，这处演出惊艳。
+
+（去年的第二集还在阿索波<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+女王也不是谜语人，该说的一些注意事项也关照到位了，应该是个好人，看着比去年的老阿姨会做人。
+
+追加那只黑yin兽，我直觉应该和暗赞女王有关系。
+
+下周可以加推小苍了，dokidoki
+
+
+*****
+
+####  zpbzpb123123  
+##### 434#       发表于 2025-2-9 18:02
+
+之后处刑曲会不会多几首歌咧
+
+*****
+
+####  宅音  
+##### 435#       发表于 2025-2-9 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">真可爱啊粉主
+
