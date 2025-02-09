@@ -13164,3 +13164,46 @@ mygo上来大祥老师上来对着小企鹅也是一句菜就多练，然后ccc�
 
 2025-2-9 16:10 上传
 
+
+*****
+
+####  adretyu67.  
+##### 20351#       发表于 2025-2-9 16:15
+
+还是讨论mygo里大祥老师给初华打电话让我忘记一切是不是被抠了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Licheus  
+##### 20352#       发表于 2025-2-9 16:15
+
+ 本帖最后由 Licheus 于 2025-2-9 16:17 编辑 
+
+喵梦已经三次提到补妆了，ED的图像也是化妆，最后一次（#2）超级卖力的表演说的还是“完美的容颜”。可以推测虽然她有热情和行动力，有一个模糊的努力方向，但仍然搞不清自己具体应该成为什么样的人。#6被“关”在镜头和空空如也的车里，心里还要被睦头折磨。
+
+诶呀，这不就是母鸡卡的团魂吗，大家都是这样的。跟mygo也就隔了层纸。
+
+*****
+
+####  Licheus  
+##### 20353#       发表于 2025-2-9 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381306&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-9 16:10</a>
+
+总之先把李子和节约打成串子，特别是节约，上回说睦的归宿是祥子身边结果睦祥直接埋了。这次说看到初华看到 ...</blockquote>
+一边则是“张嘴就要见祥子”，另一边祥子用她那个经典的扶着左臂的姿势，一边发抖一边挤出来“我不认识睦头”你就当真不认识啦？
+
+感觉现在流行的一些言论大脑皮层略显平滑了。
+
+
+*****
+
+####  huxiaopao163  
+##### 20354#       发表于 2025-2-9 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381306&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-2-9 16:10</a>
+总之先把李子和节约打成串子，特别是节约，上回说睦的归宿是祥子身边结果睦祥直接埋了。这次说看到初华看到 ...</blockquote>
+这个采访哪里有全文看呀
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
