@@ -2290,3 +2290,16 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就 ...</blockquote>
 这玩意儿是要日本手机号吗
 
+
+*****
+
+####  魔法师lain  
+##### 226#       发表于 2025-2-9 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342810&amp;ptid=2244683" target="_blank">sunnyjee 发表于 2025-2-4 00:49</a>
+
+先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就 ...</blockquote>
+以前用过ntt的虚拟信用卡，用来绑psn买z游戏，不过后来服务关了。
+
+这个看了一下，好像要手机号来注册？
+
