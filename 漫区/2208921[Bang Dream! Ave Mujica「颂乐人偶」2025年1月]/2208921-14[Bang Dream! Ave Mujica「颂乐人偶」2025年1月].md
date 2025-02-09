@@ -12523,3 +12523,13 @@ dice roll这个台词的在戏剧里对应的意思就是命运已经开始。
 祥子的CP向MAD好少</blockquote>
 灯祥素祥都不少啊，不过go甚至mujica时期这两对都是苦情的人气不如那些天天发糖的高
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 20298#       发表于 2025-2-9 09:30
+
+别找补了，睦就不是mortis复读机…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
