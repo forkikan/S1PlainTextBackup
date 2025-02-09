@@ -857,3 +857,15 @@ grand odyssey 19999-xxxxx
 
 游玩时的体感是仇恨值的影响变小了。
 
+
+*****
+
+####  隔壁老黄  
+##### 7609#       发表于 2025-2-9 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379917&amp;ptid=2160194" target="_blank">cccjjjhhh 发表于 2025-2-9 11:27</a>
+问下坛友，这代范的弹硬币怎么拉不住怪了，是我打开方式有误吗</blockquote>
+就因为前两作这招实在太逆天，界轨削了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
