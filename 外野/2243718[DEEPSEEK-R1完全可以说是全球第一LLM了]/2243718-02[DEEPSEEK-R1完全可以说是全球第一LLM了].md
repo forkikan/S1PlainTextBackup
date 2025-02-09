@@ -2323,3 +2323,23 @@ nextchat用deepseek倒是能调用，硅基流动我api填上去用不了。
 看了下B站视频,是不是下个cherry ...</blockquote>
 酒馆是指silly tavern，去谷歌搜下，应该是第一个就有官网。说的很详细了。
 
+
+*****
+
+####  Chromo  
+##### 1690#       发表于 2025-2-9 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379047&amp;ptid=2243718" target="_blank">jf8350143 发表于 2025-2-9 05:01</a>
+
+酒馆我至今没弄明白怎么屏蔽r1的思考过程，每次300token的回复就在那看他说自己的思考流程了……
+
+——  ...</blockquote>
+酒馆的staging分支有解析推理过程的提交了，不过还没有合到release里。
+
+*****
+
+####  Fingest  
+##### 1691#       发表于 2025-2-9 14:02
+
+有个问题，酒馆大部分时候自动屏蔽了思考链（偶尔还是会出来），但为什么会秒出结果？没有思考链的时候还是r1吗？
+

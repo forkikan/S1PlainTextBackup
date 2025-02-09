@@ -10142,3 +10142,25 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 
 那既然玛秋第一次开gqx修司在附近的话，感觉都可以确定了，修司和红高就是想来拿走gqx（奥米加）的，但是被人捷足先登了
 
+
+*****
+
+####  良臣没有重谢  
+##### 6695#       发表于 2025-2-9 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380551&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-9 13:25</a>
+
+那既然玛秋第一次开gqx修司在附近的话，感觉都可以确定了，修司和红高就是想来拿走gqx（奥米加）的，但是被 ...</blockquote>
+gqx是夏利亚发现红高之后才力排众议派出去的 说红高为了gqx来的有点倒果为因了。红高登场的理由应该是6690楼我发的那个
+
+*****
+
+####  gundammarkⅡ  
+##### 6696#       发表于 2025-2-9 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380327&amp;ptid=2209276" target="_blank">cxasuka 发表于 2025-2-9 12:37</a>
+骡子无了，夏利亚和鸭子长年搅一起，木马加入吉翁，吉翁和联邦打平，只有大摩，完全是光头小说版的if ...</blockquote>
+按照光头小说版，骡子出场就是训练兵，而不是平民，而GQ这边还未确定有没有骡子呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
