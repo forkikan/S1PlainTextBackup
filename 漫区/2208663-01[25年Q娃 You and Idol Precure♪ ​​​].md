@@ -1716,3 +1716,15 @@ Q娃预告
 
 苍风同学和紫雨同学都像我的翅膀一样，是不可或缺的存在哦<img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒼風なな  
+##### 427#       发表于 2025-2-9 14:58
+
+下周就要出道了，今天开始就要做发声练习
+
+一二三，爱卡茨！爱卡茨！
+
+……好像哪里不太对
+
