@@ -2351,3 +2351,41 @@ nextchat用deepseek倒是能调用，硅基流动我api填上去用不了。
 
 想用cherry studio 的知识库才知道，知识库需要能推理的模型才可以。各位是用了什么模型能保证可以用这个知识库的？
 
+
+*****
+
+####  中二骚年  
+##### 1693#       发表于 2025-2-9 16:35
+
+ 本帖最后由 中二骚年 于 2025-2-9 16:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381304&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-9 16:09</a>
+想用cherry studio 的知识库才知道，知识库需要能推理的模型才可以。各位是用了什么模型能保证可以用这个知 ...</blockquote>
+r1就是推理模型啊，知识库的模型就用它推荐的bge-m3 免费
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  中二骚年  
+##### 1694#       发表于 2025-2-9 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379575&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-9 10:22</a>
+有没有调用api支持云端数据同步的，chatbox不能备份太麻烦了。
+
+nextchat用deepseek倒是能调用，硅基流动我a ...</blockquote>
+Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  魔灵高达  
+##### 1695#       发表于 2025-2-9 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381304&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-9 16:09</a>
+
+想用cherry studio 的知识库才知道，知识库需要能推理的模型才可以。各位是用了什么模型能保证可以用这个知 ...</blockquote>
+你说的是那个嵌入模型吗？我用的是硅基流动的Pro/BAAI/bge-m3
+
+不过，貌似cheryy studio每一个知识库只能添加6个文件来着？我一口气上传了20章小说，但是引用的时候只有顺序打乱的6章
+
