@@ -1469,3 +1469,37 @@ Q娃预告
 
 谨慎观望，偶像这种职业和q娃的关系处理很难，到这一阶段播完再看看
 
+
+*****
+
+####  双菜  
+##### 402#       发表于 2025-2-9 07:57
+
+肉搏爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 403#       发表于 2025-2-9 07:58
+
+伟大的性格，伟大的脸，顶级饭撒，谁看了不脸红<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  himfsz  
+##### 404#       发表于 2025-2-9 07:58
+
+本周还是好复古，果然还是比较喜欢有收集要素的，起码是有个目标
+
+片头报幕那不是偶活吗？
+
+
+*****
+
+####  jaewoongh_  
+##### 405#       发表于 2025-2-9 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一集解决问题，不只是偶像哦，还是救世主哦
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这集典得实在太棒了，果然还是肉搏戏方便提情绪
+
