@@ -899,3 +899,16 @@ grand odyssey 19999-xxxxx
 就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感 ...</blockquote>
 这次结局感觉不是时间回溯，而是本该灭世的强制重启程序被妮神改成了只灭七曜的程序，相当于塞姆利亚大陆基于导力的科技树全无，被打回到刀耕火种的时代。
 
+
+*****
+
+####  玩吗？  
+##### 7613#       发表于 2025-2-10 01:27
+
+60小时通关<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">剧情全塞最终章了，前几章完全就是在复用前作素材水时长，就加一个新城镇，这点上说连闪3都不如。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桃花剑和葱头都加换新S技，让我们看看谁才是主角
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后全员团劝女主别做傻事时就剑女啥都没干，笑死
+
+好了，骂完接着买。
+
