@@ -10122,3 +10122,23 @@ cca鸭也太油腻了说实在的，还得是裤袜脱落时期
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  cxasuka  
+##### 6693#       发表于 2025-2-9 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67380206&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-9 12:19</a>
+
+越想越觉得是GTO的世界线。
+
+高达、钢加农和钢坦克都不止一台。钢加农在SIDE7之前就已经配备。RX-78-01正在 ...</blockquote>
+骡子无了，夏利亚和鸭子长年搅一起，木马加入吉翁，吉翁和联邦打平，只有大摩，完全是光头小说版的if
+
+*****
+
+####  纪寞  
+##### 6694#       发表于 2025-2-9 13:25
+
+那既然玛秋第一次开gqx修司在附近的话，感觉都可以确定了，修司和红高就是想来拿走gqx（奥米加）的，但是被人捷足先登了
+
