@@ -14779,3 +14779,50 @@ mujica的众人需要在这两股力量之间谋求平衡， 找到一条正确�
 
 所以后面祥子应该也是解决掉这个问题之后，带着单纯的目的去组建乐队
 
+
+*****
+
+####  影伴光生  
+##### 20488#       发表于 2025-2-9 23:26
+
+Mygo!!!!!叫BanG Dream！4，Ave Mujica叫BanG Dream！5的话，鸡团现在剧情给狗团垫了还能说两句
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是不是默认第7集有live，但肯定不是鸡团的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 20489#       发表于 2025-2-9 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383646&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-9 23:10</a>
+
+如果A团最后是老登卖卡卖谷开演唱会，那确实不能黑老登保“母鸡卡几个神人”。
+
+否则我实在想不出“不能让 ...</blockquote>
+因为A团现在已经不是把所有锅都甩给老登就能救5个人的阶段了
+
+甚至因为前面演的太好人太开明了，只剩7集篇幅弄成幕后大BOSS，也会给人一种编不下去只能这样了的感觉
+
+*****
+
+####  novalli  
+##### 20490#       发表于 2025-2-9 23:31
+
+墨缇斯心理
+<img src="https://s21.ax1x.com/2025/02/09/pEnEZIe.jpg" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2025/02/09/pEnEVaD.jpg" referrerpolicy="no-referrer">
+来源
+<img src="https://s21.ax1x.com/2025/02/09/pEnEuRA.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 20491#       发表于 2025-2-9 23:31
+
+ 现有的线索就是立希+灯都有参与作曲作词，对着祥子开唱：既然你执迷不悟，那就让我来唱醒你！
+
+ 什么豪门恩怨，内鬼外戚，都给我在音乐面前轰散呀！
+

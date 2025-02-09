@@ -667,3 +667,12 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 另外手雷击杀是不是有BUG？跳出来的数字高得莫名其妙
 
+
+*****
+
+####  xinfengj  
+##### 5740#       发表于 2025-2-9 23:32
+
+<img src="https://p.sda1.dev/21/8dd16072cf02cf3085e76c88f0726f6f/CMP_20250209233134825.jpg" referrerpolicy="no-referrer">
+还有个F斗篷，差评斗篷什么时候发<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
