@@ -123,3 +123,17 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 能用,效果挺好.</blockquote>
 移动的时候，屏幕上下会变波浪，是设置的问题吗？
 
+
+*****
+
+####  royalcat6  
+##### 95#       发表于 2025-2-10 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384087&amp;ptid=2238299" target="_blank">希望之花 发表于 2025-2-10 00:42</a>
+
+lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，是下到假的了吗
+
+----发送自 HUAWEI VOG-L2 ...</blockquote>
+如果已经安装了，重装系统吧
+[https://www.52pojie.cn/forum.php?mod=viewthread&amp;tid=2004163](https://www.52pojie.cn/forum.php?mod=viewthread&amp;tid=2004163)
+
