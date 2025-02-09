@@ -10438,3 +10438,26 @@ X @knights_2k ジークアクスのネタバレ妄想漫画です
 
 痞子玩了飒爽的鸭子，但归根结底还是基连的野望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进  
+##### 6715#       发表于 2025-2-9 18:52
+
+说起来马克杯的壶到底是不是北宋的？
+
+野望里说壶是南宋的：
+
+<img src="https://img.saraba1st.com/forum/202502/09/185051bpbqaoqpw8aej1za.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-09 184348.png</strong> (90.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 18:50 上传
+
+看这个网站说壶有两种：
+[https://gundam-gundam.com/entry/m-ouve](https://gundam-gundam.com/entry/m-ouve)
+
+也就是说他有两个壶，一个北宋的一个南宋的？
+

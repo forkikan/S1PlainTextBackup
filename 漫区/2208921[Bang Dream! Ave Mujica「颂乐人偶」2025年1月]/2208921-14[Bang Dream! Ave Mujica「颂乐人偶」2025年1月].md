@@ -13419,3 +13419,35 @@ Mujica是讨论热度最高的一月新番
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  阿兹尔  
+##### 20374#       发表于 2025-2-9 18:47
+
+后续只要祥子振作，然后补上睦祥的童年经历就行了，这样情绪流和场外会解决1个月没去看半身这个bug的
+
+
+*****
+
+####  ads147147  
+##### 20375#       发表于 2025-2-9 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382139&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-9 18:42</a>
+我铁血祥厨啊。
+后面高光也不代表能勾销烂账嘛。不在回忆找补的话，祥认为远离自己才能不受伤害，所以没 ...</blockquote>
+按照我发的那个祥子人间体的说法是，祥子不去看睦是，一旦她去关心别人，就说明自己之前做错了，“做错了”这个事本身是祥子不能接受的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  rushsong  
+##### 20376#       发表于 2025-2-9 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382072&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-9 18:26</a>
+这剧肯定讲的是祥子的进化，我感觉祥黑差不多可以退场了</blockquote>
+退场？不存在的，祥子的黑子以后也会是你邦第一多，老团粉也不喜欢祥子
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
