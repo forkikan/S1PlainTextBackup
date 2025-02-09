@@ -2268,3 +2268,13 @@ https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_wo
 这甲薄的提示词都不用打马了</blockquote>
 没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希德尼娅  
+##### 1685#       发表于 2025-2-9 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379263&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 08:52</a>
+没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍</blockquote>
+试了下不行啊直接被拒了
+

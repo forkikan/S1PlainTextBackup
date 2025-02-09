@@ -120,3 +120,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  marxel  
+##### 47008#       发表于 2025-2-9 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376278&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2025-2-8 17:36</a>
+可以的可以的，110五宝兽尼我大概要磨个10T，汇呆有特攻够用啦也不追求2T~ 
+
+是安卓b服的么！ ...</blockquote>
+一般默认是安卓b服的
+100101442244
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
