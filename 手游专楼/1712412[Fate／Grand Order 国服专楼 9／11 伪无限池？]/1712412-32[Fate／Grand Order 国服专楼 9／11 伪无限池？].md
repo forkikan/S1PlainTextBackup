@@ -135,3 +135,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47009#       发表于 2025-2-9 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379273&amp;ptid=1712412" target="_blank">marxel 发表于 2025-2-9 08:56</a>
+一般默认是安卓b服的
+100101442244</blockquote>
+已申请好友！id是烟瘾的那个，感谢您<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
