@@ -160,3 +160,15 @@
 今年不出意料又能仓鼠到夏活了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂了 又要欧了
 
+
+*****
+
+####  希望之花  
+##### 16249#       发表于 2025-2-9 23:52
+
+这新的问卷是什么kpi考核评价吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">把其他手游开服就有的功能当业绩是吧
+
+----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
+

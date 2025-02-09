@@ -503,3 +503,16 @@ d指导真的很爱量子力学
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  海底铁锚  
+##### 42#         楼主| 发表于 2025-2-9 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383800&amp;ptid=2245693" target="_blank">王苍幻 发表于 2025-2-9 23:39</a>
+
+以后都是机器人玩了么？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+春节不是有花棉袄机器人和真人一起二人转么，以后就是这样的了。
+

@@ -48,3 +48,15 @@
 
 听说看老里番补帧效果不错？有大佬试下梅津泰臣的黄星吗？那ppt一样的画面能补到动画效果吗？
 
+
+*****
+
+####  罐子  
+##### 88#       发表于 2025-2-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67257054&amp;ptid=2238299" target="_blank">巨馍蘸酱 发表于 2025-1-23 18:47</a>
+试了下，对机战效果还可以，能把锁30帧的战斗动画变成60帧</blockquote>
+遇上电池人这种抽帧大师画面会怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

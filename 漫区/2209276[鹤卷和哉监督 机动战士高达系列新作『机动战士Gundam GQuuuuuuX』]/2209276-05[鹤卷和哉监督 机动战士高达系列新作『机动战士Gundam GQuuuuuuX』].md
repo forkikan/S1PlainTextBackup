@@ -10768,3 +10768,14 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 不过可以预料现在绝大多数的红蓝乙女味同人在TV放送后都 ...</blockquote>
 都是角色初期形象，随着剧情发展下去肯定不会一成不变的
 
+
+*****
+
+####  cxasuka  
+##### 6741#       发表于 2025-2-9 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383332&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-9 22:13</a>
+
+大川ぶくぶ/bkub (@bkub_comic) / X</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
