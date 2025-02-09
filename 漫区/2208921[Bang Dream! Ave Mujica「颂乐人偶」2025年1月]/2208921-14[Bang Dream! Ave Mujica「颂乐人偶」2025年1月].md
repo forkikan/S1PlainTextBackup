@@ -13387,3 +13387,35 @@ Mujica是讨论热度最高的一月新番
 这剧肯定讲的是祥子的进化，我感觉祥黑差不多可以退场了</blockquote>
 如果你楼有不折不扣的祥黑，现在早就吃“美食”撑死到怀疑是餐厅在算计自己<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20371#       发表于 2025-2-9 18:40
+
+如果是纯原创不是少女乐队，感觉祥子和贝多芬一样失聪的可能性挺高的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑猫猫  
+##### 20372#       发表于 2025-2-9 18:40
+
+现在留下来观众基本是等着狂欢的、制造假药的、被kol引流来的，哪儿来的那么多祥黑祥嬷
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 20373#       发表于 2025-2-9 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382072&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-9 18:26</a>
+这剧肯定讲的是祥子的进化，我感觉祥黑差不多可以退场了</blockquote>
+我铁血祥厨啊。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+后面高光也不代表能勾销烂账嘛。不在回忆找补的话，祥认为远离自己才能不受伤害，所以没去看望睦。这种理由能说服观众吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小账可以消，不管自己的精神病半身太过了吧。不过我看wsd简直自信的没边了，鬼知道下集要怎么给祥高光。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

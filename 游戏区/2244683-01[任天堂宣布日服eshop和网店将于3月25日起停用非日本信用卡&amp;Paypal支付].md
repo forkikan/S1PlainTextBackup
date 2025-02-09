@@ -2336,3 +2336,20 @@ https://post.m.smzdm.com/p/a90ldx4e/</blockquote>
 怎样入手？之前雅虎突然要绑手机号，在淘宝找来的号过几分钟就会被封</blockquote>
 [https://www.cmlink.com/jp/zh/get ... amp;promotionType=1](https://www.cmlink.com/jp/zh/get-sim/?productType=10012&amp;flowType=10GB&amp;promotionType=1)
 
+
+*****
+
+####  startraveller  
+##### 230#       发表于 2025-2-9 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67342810&amp;ptid=2244683" target="_blank">sunnyjee 发表于 2025-2-4 00:49</a>
+先暂时用anapay开了张虚拟visa绑了国内jcb充值绑上了eshop，试验了下能用，不过anapay啥时候国内jcb挂掉就 ...</blockquote>
+没有在留卡的话这个一天限额2万日元……买点贵点的就不够了
+
+*****
+
+####  清浦刹那  
+##### 231#       发表于 2025-2-9 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">骏河屋最近的订单也取消信用卡付款要求直接给银行转账付款了，明明之前都正常的……
+

@@ -10388,3 +10388,53 @@ gqx是夏利亚发现红高之后才力排众议派出去的 说红高为了gqx�
 
 不过比起除了拉拉大获全胜的小说版鸭子，gqx不但渣比家一个都没杀掉，甚至连看不顺眼的北宋之壶都活的好好的，真是达成了只有鸭子受伤的世界<img src="https://static.saraba1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WallHrolf  
+##### 6713#       发表于 2025-2-9 18:41
+
+X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）
+
+<img src="https://img.saraba1st.com/forum/202502/09/183810o4he7rerxrersss8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4184(20250209-181907).JPG</strong> (111.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202502/09/183826rsrnf9ibk1sx4dii.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4185(20250209-181910).JPG</strong> (117.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 18:38 上传
+
+X @knights_2k ジークアクスのネタバレ妄想漫画です
+
+<img src="https://img.saraba1st.com/forum/202502/09/184107zehttghitiotjxxe.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4186(20250209-183320).JPG</strong> (234.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-9 18:41 上传
+
+*****
+
+####  cxasuka  
+##### 6714#       发表于 2025-2-9 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381671&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-9 17:19</a>
+
+但凡认真看过GTO和小说版，都不会得出小说版延长线IF的结论……
+
+小说阿宝出场就是驾驶78-2的军士长。</blockquote>
+小说版木马也是上来就第一舰桥无了，有德是在副舰桥指挥的。
+
+所以不是就用了小说版夏利亚和鸭子的基情，其余部分都是小说版激似但只有鸭子彻底吃瘪的if线么
+
+痞子玩了飒爽的鸭子，但归根结底还是基连的野望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
