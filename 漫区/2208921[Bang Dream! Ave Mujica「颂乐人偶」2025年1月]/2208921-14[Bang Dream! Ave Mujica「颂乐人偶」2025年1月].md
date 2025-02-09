@@ -13265,3 +13265,33 @@ mygo上来大祥老师上来对着小企鹅也是一句菜就多练，然后ccc�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 20361#       发表于 2025-2-9 17:40
+
+ 本帖最后由 aptx8285144 于 2025-2-9 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381374&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-9 16:27</a>
+
+别急，等睦走马灯的时候你们就该明白白祥的恩情还不完了。
+
+—— 来自 S1Fun ...</blockquote>
+突然觉得，把大祥打到都已经不知道是哪个谷底了，然后再拉回来包饺子，独角兽和柿本这么搞把他们搞得像大祥的“苛刻岳父和岳母”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liekong  
+##### 20362#       发表于 2025-2-9 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381091&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-9 15:27</a>
+
+マルチタレント，多栖艺人
+
+比如说一个艺人又上节目又拍电影，另一个领域是打鼓，那肯定是喜欢打鼓，不然 ...</blockquote>
+喵梦在被招揽之前就开始练鼓的了，
+
+即使不是喜欢打鼓，那也是那么多乐器里面她自己选择了鼓，
+
+所以我觉得就算离开了AM还继续练鼓也正常，也就是回到被邀请进AM之前的状态罢了
+

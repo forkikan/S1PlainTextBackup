@@ -2421,3 +2421,16 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 
 这个技术甚至在LLM出来前就有了
 
+
+*****
+
+####  zerona  
+##### 1699#       发表于 2025-2-9 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381431&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-9 16:37</a>
+
+你说的是那个嵌入模型吗？我用的是硅基流动的Pro/BAAI/bge-m3
+
+不过，貌似cheryy studio每一个知识库只能 ...</blockquote>
+它要每个文件没限制，你直接扔一个文件里呢？
+

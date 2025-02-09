@@ -45,3 +45,30 @@
 
 跟着翼少年修行，不管是变人还是打翻世界上所有男人都不是问题
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2773#       发表于 2025-2-9 17:39
+
+<blockquote>聖あげは 发表于 2025-2-9 17:35
+不要急，来蓝天王国吧
+
+跟着翼少年修行，不管是变人还是打翻世界上所有男人都不是问题 ...</blockquote>
+前辈可以让翼前辈用鸟儿的形态出现吗
+
+我才不是今天没吃晚饭
+
+
+*****
+
+####  聖あげは  
+##### 2774#       发表于 2025-2-9 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381793&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2025-2-9 17:39</a>
+
+前辈可以让翼前辈用鸟儿的形态出现吗
+
+我才不是今天没吃晚饭</blockquote>
+我能不能先召唤一个叫南野奏的前辈过来陪陪你<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
