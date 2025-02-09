@@ -13035,3 +13035,47 @@ mygo avemujica作为灯祥关系性的双核团，他们本质都是因为ccc解
 
 这一季后面多半是醒悟了的祥子用正确的方法重新招揽每个成员，以喵为例子就是为她确立音乐方面的信心之类的吧
 
+
+*****
+
+####  玖羽  
+##### 20341#       发表于 2025-2-9 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381117&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-9 15:32</a>
+
+祥子招揽每个成员的方式都语焉不详，唯一放出来就是喵梦那段，现在看就是祥子招揽她的方式错误了</blockquote>
+chu2：不要弹那种随大流的东西，你的音乐是你内心的呐喊
+
+pareo：公若不弃，令王那愿拜为妇妇
+
+祥子：反正你就是个利欲熏心的傻逼网红，我给你谈谈你能得到什么利益
+
+喵梦：啊对反正我就是个利欲熏心的傻逼网红
+
+MyGO第12话祥子的话总结起来就是这样：
+
+你这个小网红不就是想要蹭热度吗，这是三角初华，这是森美奈美的女儿，到时候你随便蹭，哦对了，你打起鼓来还挺好看的，就是还得练
+
+*****
+
+####  好想看Mujica啊  
+##### 20342#       发表于 2025-2-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381049&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-9 15:18</a>
+
+为什么你们都觉得喵梦很爱音乐啊，动画里面她自己不都清晰说出目标了吗，就是要成为大热的全能艺人啊，总不 ...</blockquote>
+那她也必要还在练鼓了
+
+*****
+
+####  rushsong  
+##### 20343#       发表于 2025-2-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381138&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-9 15:36</a>
+chu2：不要弹那种随大流的东西，你的音乐是你内心的呐喊
+
+pareo：公若不弃，令王那愿拜为妇妇</blockquote>
+这就是最编剧大手的地方，祥子在招喵梦的时候还看得出会一点话术，结果到mujica只会一句：祐天寺小姐才应该多练习吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
