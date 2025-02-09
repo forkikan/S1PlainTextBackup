@@ -10506,3 +10506,28 @@ X @knights_2k ジークアクスのネタバレ妄想漫画です
 X @ku7450ren 離別エンドにならないでほしい（シュウマチュ）</blockquote>
 シュウマチュ的确吸引了一堆铜仁女
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6720#       发表于 2025-2-9 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382348&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-9 19:20</a>
+胶达BFT有队叫「北宋の壺」，这算官方玩梗了。</blockquote>
+胶系的佐崎一家都是玩马克贝（强人）梗呀
+<img src="https://p.sda1.dev/21/8c9bd75e67c25bdf6884be7bc68fd214/image.jpg" referrerpolicy="no-referrer">
+但是BF/BFT动画里只出场了三兄妹，元宇宙则是四兄弟姐妹四台强人系MS，还有一个不明
+<img src="https://p.sda1.dev/21/4a23ae4772fd06f7acbc117fd08929a4/image.jpg" referrerpolicy="no-referrer">
+连非强人系的HGBF力克大魔强子，说明书也要特别补充道：制作者是佐崎次子佐崎建夫，第一次制作非强人MS，佐崎家为此召开紧急家庭会议，经长时间的讨论后，认为“力克大魔和强人一样是ZIMMAD生产的MS，所以OK”
+<img src="https://p.sda1.dev/21/ffce98c75630fa6e292cd49cd0f37c77/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  虛無迴廊  
+##### 6721#       发表于 2025-2-9 19:59
+
+牢修是高战力红瞳美少年，铜仁女会喜欢的经典类型，bg粉一下就来了
+
