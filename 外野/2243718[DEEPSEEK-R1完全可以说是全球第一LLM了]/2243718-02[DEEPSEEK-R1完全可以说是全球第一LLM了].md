@@ -2257,3 +2257,14 @@ https://www.reddit.com/r/ChatGPTJailbreak/comments/1iex0dq/deepseek_jailbreak_wo
 一直在用那个超长的prompt，今天看了下魂+AI区，才发现原来硅基流动的R1随便一句话就能破甲，震惊了，cherr ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这甲薄的提示词都不用打马了
 
+
+*****
+
+####  魔灵高达  
+##### 1684#       发表于 2025-2-9 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67379209&amp;ptid=2243718" target="_blank">黄泉川此方 发表于 2025-2-9 08:21</a>
+
+这甲薄的提示词都不用打马了</blockquote>
+没错，居然就这么简单，r1出来第一天我本地部署的模型甲都比这个厚10倍<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
