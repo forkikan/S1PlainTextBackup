@@ -3216,3 +3216,16 @@ niconico前6话好评率
 其实猫睦卖得也不少，应该是开播以来猫最活跃的一集吧</blockquote>
 指第五集露个后脑勺）
 
+
+*****
+
+####  bourier  
+##### 321#       发表于 2025-2-10 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67365302&amp;ptid=2245428" target="_blank">lurenasa 发表于 2025-2-7 09:20</a>
+
+场外的话可以+2，很乐，一开始不知道为啥这么滥用嬷这种现在约等于受毒唯的贬义词，结果独角兽写的东西完全 ...</blockquote>
+睦和m融合很简单，她妈以前有个人格森美奈美，融合成了现在的样子。
+
+“不就是人格分裂嘛，小意思，过几天就好了，我有经验”
+
