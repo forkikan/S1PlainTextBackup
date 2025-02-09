@@ -27,3 +27,16 @@
 
 —— 来自 meizu MEIZU Lucky 08, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑天使の翼  
+##### 86#       发表于 2025-2-9 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382914&amp;ptid=2238299" target="_blank">罐子 发表于 2025-2-9 20:53</a>
+
+这个能用在yuzu模拟器上吗
+
+想把30帧的xb2弄到60</blockquote>
+能用,效果挺好.
+
