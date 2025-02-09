@@ -68,3 +68,23 @@
 
 过年用这个试了机战30和最终幻想10HD，机战30插60本身就拉跨的一些动画没法质变，但整体观感提升不小，也没发现有什么图像瑕疵，我感觉我应该能玩下去了。FF10插成60后简直飞跃，作为一个指令式RPG，操作手感竟然都提升很多，畅爽体验。虽然浅色背景的地方人物容易出鬼影，但对比流畅度的提升根本不算个事儿。哦，还有就是插60以后大招qte变难按了一点，需要适应，可见还是有延迟的。感觉这软件对那些锁30的移植老游戏是特攻，效果拔群。
 
+
+*****
+
+####  慕容断月  
+##### 90#       发表于 2025-2-10 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383920&amp;ptid=2238299" target="_blank">talesof213 发表于 2025-2-10 00:04</a>
+
+过年用这个试了机战30和最终幻想10HD，机战30插60本身就拉跨的一些动画没法质变，但整体观感提升不小，也没 ...</blockquote>
+是的，变形金刚赛博坦之战我试了下效果优异，非常惊讶的水平，都可以不用每次都开解锁帧率的插件了
+
+*****
+
+####  希望之花  
+##### 91#       发表于 2025-2-10 00:42
+
+lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，是下到假的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
+
