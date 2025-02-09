@@ -13485,3 +13485,48 @@ Mujica是讨论热度最高的一月新番
 
 那黑锅要不给初华背吧。。。访谈的意思也是初华后面有大的，喵梦和初华加个莫提斯背锅就行
 
+
+*****
+
+####  ads147147  
+##### 20381#       发表于 2025-2-9 19:08
+
+现在大概有百分之多少的观众连拥有丰厚的物质条件但是极度精神内耗空虚这种文学手法都没法理解和共鸣，还指望现在讨论环境好完全是不可能的。
+
+不过祥子这套说极端点颇有种琼瑶的那个他只是失去了腿，我可是失去了爱情啊这种描写，本来就不太可能真的抓住太多核心粉丝，不如说讨厌的人多才是正常的。
+
+*****
+
+####  swessia  
+##### 20382#       发表于 2025-2-9 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下集我贷款的mygo七人live会有吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  看穿一切的鱼  
+##### 20383#       发表于 2025-2-9 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382291&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-9 19:09</a>
+下集我贷款的mygo七人live会有吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+下集说不定会有go五人在睦家地下室live，睦祥是观众。七人live春日影还是太抽象了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岬开斗  
+##### 20384#       发表于 2025-2-9 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382286&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-9 19:08</a>
+现在大概有百分之多少的观众连拥有丰厚的物质条件但是极度精神内耗空虚这种文学手法都没法理解和共鸣，还指 ...</blockquote>
+问题在于目前没有一个比祥子的妈死爹废惨的啊。
+说实话“虽然你妈死爹废但是你姥爷那么有钱你矫情什么”这种话道德上不是很正确，虽然很多观众确实是这么想的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
