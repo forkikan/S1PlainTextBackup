@@ -94,3 +94,15 @@
 
 再者说了，除了ss也不可能再给你安排一个嫁路人了
 
+
+*****
+
+####  走向未来  
+##### 2777#       发表于 2025-2-9 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383085&amp;ptid=2162354" target="_blank">巴莱-银河漂流 发表于 2025-2-9 21:26</a>
+细究小雪这个条件明显不打算把真由让出去吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最希望不出续集的一集
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

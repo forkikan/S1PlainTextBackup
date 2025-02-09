@@ -14289,3 +14289,80 @@ ccc不是解散，只是没人来了<img src="https://static.saraba1st.com/image
 
 我觉得之后祥子必然要带着睦一起和C团来一次真正的告别，然后全身心的投入到新的伙伴和A团中去的
 
+
+*****
+
+####  安娜导函数  
+##### 20449#       发表于 2025-2-9 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383084&amp;ptid=2208921" target="_blank">Licheus 发表于 2025-2-9 21:26</a>
+楼里的分析至少有一点是有道理的，中登只是把事业搞砸，没必要令祥子在丧母后还得失去父亲，这事儿上老登 ...</blockquote>
+老登可没把中登除名赶出家族，是中登自己自说自话跑出去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 20450#       发表于 2025-2-9 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383056&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 21:19</a>
+
+所以一个少女乐队番为什么需要一个反派呢</blockquote>
+林:最初其实有些担心，怕从《BanG Dream!lt's MyGO!!!!!》(以下简称《lt's
+
+MyGO!!!!!》)入坑的《BanG Dream!》老粉会难以接受。《It's MyGO!!!!!》是描绘真
+
+实女高中生乐队活动的作品，而《Ave Mujica》却是带有黑暗奇幻色彩的悬疑剧，
+
+两者的温差实在太大了
+
+因为真是悬疑剧吧，是否扯到蛋另说
+
+*****
+
+####  plok201  
+##### 20451#       发表于 2025-2-9 21:40
+
+我觉得老登做的好啊，就中登这副样子，但凡有点救也不至于要让老登收祥子当孩子了
+
+反正就算最后编剧发疯把老登搞成什么大BOSS，全部锅一股气都扔给他，大伙也不一定会恨他，因为中登太FW了
+
+*****
+
+####  Licheus  
+##### 20452#       发表于 2025-2-9 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383146&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-9 21:37</a>
+
+老登可没把中登除名赶出家族，是中登自己自说自话跑出去的吧</blockquote>
+老登在“那个人已经不是丰川的人了”后面还接了句“忘了父亲吧”
+
+可能这句话就是Obliviounis的原点吧。
+
+
+*****
+
+####  aptx8285144  
+##### 20453#       发表于 2025-2-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382925&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-9 20:55</a>
+
+老登母鸡卡成立后算计过祥子我信，但一开始就处心积虑：
+
+祥子放弃ccc：中登喝酒烂醉祥子捞人不得已放弃的 ...</blockquote>
+是的，这里面有太多不确定因素，如果老登都能掌控，感觉独角兽都可以去写智斗片了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20454#       发表于 2025-2-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67377862&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-8 22:33</a>
+这里的“大女主”和善恶无关，只在于戏份或“逼格’，结果看，大祥戏份没有多大优势，逼格就不用说了吧
+
+ ...</blockquote><blockquote>而在更早的，Mujica的主印象图中，祥子则跳出了五芒星的轮回，将四个玩偶安详的抱在怀中，而这正与塔罗牌中的【魔术师】构图不谋而合（大的红衣魔术师，身前的小四元素，头顶的无限光）<img src="https://p.sda1.dev/21/d591c38c1aca2d2cbcc342837a60b6c3/image.jpg" referrerpolicy="no-referrer"></blockquote>
+[https://tieba.baidu.com/p/9470914098?see_lz=0](https://tieba.baidu.com/p/9470914098?see_lz=0)
+
+可以参考一下这个贴<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
