@@ -2645,3 +2645,28 @@ S1论坛（saraba1st）有个帖子，是发在外野/卓明谷版块的，具�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  洛拉斯  
+##### 1720#       发表于 2025-2-10 11:07
+
+现在ds的网页端除了每天第一次回复不卡以外，白天几乎不能用
+
+而api不能联网导致无法搜索最新的内容回答
+
+有什么好的解决办法吗？
+
+
+*****
+
+####  zerona  
+##### 1721#       发表于 2025-2-10 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386116&amp;ptid=2243718" target="_blank">洛拉斯 发表于 2025-2-10 11:07</a>
+
+现在ds的网页端除了每天第一次回复不卡以外，白天几乎不能用
+
+而api不能联网导致无法搜索最新的内容回答</blockquote>
+api + page assist  我用的是硅基流动的pro 的api。官网好像不给充值了吧。留着点用。
+

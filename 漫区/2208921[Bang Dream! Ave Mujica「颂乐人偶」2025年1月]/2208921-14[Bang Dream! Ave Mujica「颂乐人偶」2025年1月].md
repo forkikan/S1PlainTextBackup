@@ -15464,3 +15464,22 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 
 在已经确定下一回前团live第八回海铃回的前提下，初华就是给祥总二次离家兜底的娇妻罢了，作为配角是真不指望给她搞什么情绪流塑造了，结局跟祥卖一卖就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 20548#       发表于 2025-2-10 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385249&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-10 09:30</a>
+假如内鬼说成立，那显然几个内鬼的责任更大，你们不去怪几个叛徒阴谋炸团，死盯着一个把所有的锅全认了， ...</blockquote>
+所以所谓的内鬼说的核心目的不就是为了让大祥老师少背锅嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+可惜编剧的大手明摆着就是要抽小祥陀螺了，怎么还有人想着往回找补<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qlipho  
+##### 20549#       发表于 2025-2-10 11:17
+
+内鬼说纯给编剧找补吧，毕竟独角兽也是白祥
+
