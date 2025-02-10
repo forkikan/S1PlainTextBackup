@@ -2508,3 +2508,11 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 我的背景他能把阴谋论先塞北约再塞华约再塞老墨。怎么劝都停不住，从小卒到总统，全都是大坏蛋。
 反正人类坏坏的，ai好好滴。
 
+
+*****
+
+####  约翰里德  
+##### 1706#       发表于 2025-2-10 09:00
+
+这个傻逼ai，我跟他今天没完了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/4593412389b46bf29103635c2c2636bb/image.jpg" referrerpolicy="no-referrer">
+

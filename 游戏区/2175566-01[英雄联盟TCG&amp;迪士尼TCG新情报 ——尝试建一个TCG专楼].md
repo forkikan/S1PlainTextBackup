@@ -19,3 +19,12 @@ ll tcg 的规则比我想的有新意，但是好像没看到生物交换和法�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舆水沉浮  
+##### 241#       发表于 2025-2-10 08:57
+
+目前的博弈点就是盲盖live翻开的时候比数值，剩下的就是自己玩自己的，也不能干扰对面，等以后数值膨胀了在看看吧。
+而且每盒保底是女声优的照片卡(pe)，重心确实更偏向收藏卡。<img src="https://p.sda1.dev/21/102e6ee378f61cc53fe07aa6b71e1f73/CMP_20250210085535601.jpg" referrerpolicy="no-referrer">
+
