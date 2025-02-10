@@ -16206,3 +16206,32 @@ soyo是大家的妈妈，爱音是祥子的妈妈（）
 
 素世知道祥子神智已乱，梦越做越深，不禁凄然。
 
+
+*****
+
+####  单脚着地  
+##### 20612#       发表于 2025-2-10 14:15
+
+爱音是享受在台上被瞩目的感受还是享受弹奏吉他本身，我更倾向于前者<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 20613#       发表于 2025-2-10 14:19
+
+爱音想享受瞩目和练吉他不冲突，也没有抢了灯的话筒自己唱，不炸团
+喵梦为了吃流量可是摘面具，虚情假意找睦去关心她，拆团单飞，和整个团队团结度就是反着来的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 20614#       发表于 2025-2-10 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387652&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-10 14:15</a>
+爱音是享受在台上被瞩目的感受还是享受弹奏吉他本身，我更倾向于前者</blockquote>
+但这种成就感是通过演奏音乐实现的，音乐对于少女乐队来说，不仅是目的也是实现目的的手段，当爱音真正答应灯组一辈子乐队请求的时候，音乐就已经变成她生命的一部分了，再也无法分离<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

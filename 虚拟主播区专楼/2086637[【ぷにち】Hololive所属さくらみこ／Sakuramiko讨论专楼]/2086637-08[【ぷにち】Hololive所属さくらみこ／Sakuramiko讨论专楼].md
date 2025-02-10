@@ -299,3 +299,38 @@ DAOKO你入戏太深了吧，还在录你就哭了
 
 2025-2-9 16:46 上传
 
+
+*****
+
+####  holofan  
+##### 10770#       发表于 2025-2-10 14:12
+
+ 本帖最后由 holofan 于 2025-2-10 14:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/10/141147bzou8bjqgzeqgft3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 14:11 上传
+
+草这比喻到底在乳哪一方我不好说
+
+一顺手找到原出处了，是切片
+
+<img src="https://img.saraba1st.com/forum/202502/10/141751t2cderp82m8cdce8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 14:17 上传
+
+*****
+
+####  holofan  
+##### 10771#       发表于 2025-2-10 14:22
+
+说到这个当时在直播的时候就有人问她nyahelloworld怎么样了，是什么类型的事，她没怎么回答，看来应该还早，而且一个novelgame要花这么长时间做大概剧本量也不会小
+
