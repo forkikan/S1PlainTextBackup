@@ -208,3 +208,13 @@ live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收�
 你是说 国家队的驾驶姿势 还是说推子的帽子剧情呢</blockquote>
 你就说国家队驾驶姿势最后有没有用吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NaAgfykp  
+##### 20741#       发表于 2025-2-11 00:26
+
+在想13话的和解会是像寻梦环游记那样的吗？演奏送给已逝之人的歌谣
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
