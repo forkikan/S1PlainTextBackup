@@ -2968,3 +2968,11 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 原来纳米是360的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Algie  
+##### 1748#       发表于 2025-2-11 00:54
+
+额，沉浸式翻译那个插件是不是用默认的prompt翻不了刘备啊，怎么设置才好呢？
+
