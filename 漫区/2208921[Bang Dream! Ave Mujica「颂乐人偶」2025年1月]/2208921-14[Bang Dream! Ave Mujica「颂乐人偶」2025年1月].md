@@ -16353,3 +16353,27 @@ nico更像是刻度移动更难的情绪指示表，不是极度满足观众或�
 
 之后好评有明显增长的也就是最后一集（之前都是五成到六成，最后一集到了七成），但最后一集确实还不错啊。
 
+
+*****
+
+####  小博禹  
+##### 20626#       发表于 2025-2-10 15:06
+
+<blockquote>安娜导函数 发表于 2025-2-10 14:42
+你说大喵为了流量摘面具不假，你说她虚情假意关心睦头就错了，她是真心觉得睦头在这里屈才了大喵老师这人 ...</blockquote>
+队长在拆队危机时明明做了决定“我想要睦头回来”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+都是性情中人
+
+
+*****
+
+####  安娜导函数  
+##### 20627#       发表于 2025-2-10 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388075&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-10 15:06</a>
+队长在拆队危机时明明做了决定“我想要睦头回来”不过下一集就无畏遗忘了一个月
+
+都是性情中人 ...</blockquote>
+明天要表演了，今晚吉他手突然说自己双重人格弹不了吉他，队友提了几个提案要么找外援要么放录音，大家都在等你做决定，结果你软唧唧的来句我想等吉他手恢复，这种领导牵头能搞成什么好项目<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">你们几个跟团长有私人交情的跟着就算了，我喵梦可没工夫陪你们玩
+

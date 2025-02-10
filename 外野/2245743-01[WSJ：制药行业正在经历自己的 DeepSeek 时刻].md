@@ -544,3 +544,26 @@ D老师把斯普特尼克的名字都给抢了<img src="https://static.saraba1st
 
 这些生物制药新药都是齁贵齁贵的，动辄百万美元
 
+
+*****
+
+####  holmesjerry  
+##### 47#       发表于 2025-2-10 15:09
+
+再输出一次暴论
+
+全球医药行业的底层逻辑就是医药行业研究新药，去美股骗钱，基于美国狗屎医保体系可以卖高价这一点在美国上市回本，然后向欧洲中国日本之类医保还不错的地方降价上市。
+
+现在中国人能研究出来新药，卖给bigpharma去美国上市，也就是搭了这个狗屎体系的便车，抢价值链上游了属于是
+
+*****
+
+####  holmesjerry  
+##### 48#       发表于 2025-2-10 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387458&amp;ptid=2245743" target="_blank">AstraZeneca 发表于 2025-2-10 13:48</a>
+中国是有自己独立的药物评价体系的
+
+中药就是典型</blockquote>
+我是中医黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必然不会提中药中成药
+

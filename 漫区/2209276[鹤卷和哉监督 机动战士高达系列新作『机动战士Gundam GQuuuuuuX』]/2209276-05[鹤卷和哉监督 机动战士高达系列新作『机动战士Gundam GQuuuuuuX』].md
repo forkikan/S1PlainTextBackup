@@ -11193,3 +11193,33 @@ plazma应该是op没跑了，ed不知道会是啥
 高烈度战争促使了阿尔法杀手系统的发动</blockquote>
 殖民卫星外面飘着已经化石化的高达残骸，被传言是上古太空文明遗物，是这样吧....
 
+
+*****
+
+####  oi99o  
+##### 6773#       发表于 2025-2-10 15:13
+
+<blockquote>4位は『機動戦士Gundam GQuuuuuuX -Beginning-』（東宝/バンダイナムコフィルムワークス）が続き、週末3日間で動員11万2000人、興収1億9100万円をあげた。累計成績は動員138万人、興収22億円を超えている。 </blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/10/151210lx87w7mx1bu9tm78.jpg" referrerpolicy="no-referrer">
+
+<strong>img_5179.jpg</strong> (373.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 15:12 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  太极八爪鱼  
+##### 6774#       发表于 2025-2-10 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386685&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-9 20:16</a>
+
+奶奶头的能力不用质疑的，这哥们在GQX年表是被鹤卷点名ban掉的存在
+
+访谈里导演直说了，本来计划让主角团 ...</blockquote>
+战后出生那不是出场得9x年？奶奶头就挂了啊
+
