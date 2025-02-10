@@ -15793,3 +15793,26 @@ PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
 好好好，🦄弄出正式的公式图了是吧</blockquote>
 草，什么特摄设定书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 20578#       发表于 2025-2-10 12:46
+
+睦对海铃关系性打问号说是，难道后面要开始大卖海睦？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 20579#       发表于 2025-2-10 12:50
+
+<blockquote>刑部姬真可爱 发表于 2025-2-10 12:46
+睦对海铃关系性打问号说是，难道后面要开始大卖海睦？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+
+睦和海铃第一季就是同归人了，她俩先认识的，并且还在聊入队的事。祥子通过睦招揽海铃我认为是一种高概率事件，初华那个祥卫兵的样子我不认为祥子能指望她
+
