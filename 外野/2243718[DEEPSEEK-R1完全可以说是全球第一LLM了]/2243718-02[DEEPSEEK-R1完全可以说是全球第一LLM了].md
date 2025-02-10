@@ -2802,3 +2802,14 @@ api + page assist  我用的是硅基流动的pro 的api。官网好像不给�
 怎么设置啊，page assist不是只能用本地部署的吗</blockquote>
 OpenAI 兼容 API 这里加上服务商的api相关设置就行。它自动下载目录然后就可以选模型了。
 
+
+*****
+
+####  名为侯国玉  
+##### 1734#       发表于 2025-2-10 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390061&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-10 19:34</a>
+
+OpenAI 兼容 API 这里加上服务商的api相关设置就行。它自动下载目录然后就可以选模型了。 ...</blockquote>
+原来如此，我刚用火狐上的pageassist选不了模型，换成chrome就用上了，谢谢
+
