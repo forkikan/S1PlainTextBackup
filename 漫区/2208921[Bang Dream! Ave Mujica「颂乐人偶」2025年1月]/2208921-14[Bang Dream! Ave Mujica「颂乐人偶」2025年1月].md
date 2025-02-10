@@ -16235,3 +16235,31 @@ soyo是大家的妈妈，爱音是祥子的妈妈（）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 20615#       发表于 2025-2-10 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387558&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-10 14:02</a>
+
+碧天伴走演奏完时已经通过一张特写表现了，第一次享受到live的乐趣</blockquote>
+我一直疑惑爱音初中学生会乐队弹的是什么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+刚看到一句话我比较同意（不是完全同意） <blockquote>海铃和若麦的行动我猜测都是类似自毁的方式。她们会以与过去和退路做主动切割后伤横累累、破败不堪的姿态重新站到祥子面前去，告诉她你应当成为耶稣，因我们都已舍弃一切而向你奉上自己。祥子的回升依旧是被迫的，直到和初华的强交互，她会迎来真正的成长，变成那个值得被托付的人。</blockquote>
+
+*****
+
+####  GBLMikuHatsune  
+##### 20616#       发表于 2025-2-10 14:31
+
+看来是mujica过于神人以至于让大家思考回路都不对了
+
+go团里爱音和猫猫本身玩乐队的理由就很纯粹，一个是享受现充活动，一个是想找个爽弹吉他的容身之所。对于她俩来说这就是个兴趣爱好。
+
+哪像鸡团弄的这么苦大仇深，又是商业又是背负人身的。
+
+你真用鸡团的思路去反推go团的成因那问题大了去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
