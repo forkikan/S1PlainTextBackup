@@ -10837,3 +10837,18 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 二月底肯定还在映的</blockquote>
 好的，谢谢～
 
+
+*****
+
+####  Toby_dak  
+##### 6748#       发表于 2025-2-10 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382141&amp;ptid=2209276" target="_blank">cxasuka 发表于 2025-2-9 19:42</a>
+
+小说版木马也是上来就第一舰桥无了，有德是在副舰桥指挥的。
+
+所以不是就用了小说版夏利亚和鸭子的基情，其 ...</blockquote>
+神（经）论述。
+
+除了夏利尔马沙、木马到了自护手里这两点之外，跟小说哪有什么接点？而且马沙可没吃瘪，从头到尾都是颯爽たるシャア。
+
