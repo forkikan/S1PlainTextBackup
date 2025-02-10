@@ -10930,3 +10930,17 @@ GQX说实话最终神棍机清一波吉翁的有生力量，顺手扫死个汤�
 
 谁要去那个烂透的、慢性死亡的正史啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 6756#       发表于 2025-2-10 11:37
+
+吉翁经济一塌糊涂，内耗不断派系林立
+
+联邦在宇宙失去立足点，退守地球
+
+这种双方筋疲力尽的平衡也就能持续个几年，别看现在和平，等奶奶头归来肯定又要搞事
+
+没了卡缪还有谁能送走奶奶头+铁奥，玛秋能行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

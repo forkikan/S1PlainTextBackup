@@ -15522,3 +15522,61 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 —— 来自 鹅球 v3.3.96</blockquote>
 虽然我一直嘲初祥，但其实咱是在放低预期入股初祥惹，肉体都得到了，心灵还会远吗？笑到最后才是赢家<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安娜导函数  
+##### 20554#       发表于 2025-2-10 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386250&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-10 11:23</a>
+
+我们少女乐队就不能有个单纯善良的傻白白吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+有啊，比如圣爱英<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GBLMikuHatsune  
+##### 20555#       发表于 2025-2-10 11:38
+
+昨晚睡觉做梦做到新一集开live，场外观众都在猜应该演哪首歌
+
+go团和鸡团粉丝都觉得演春日影太过串子
+
+鸡团粉觉得演迷星叫喧宾夺主
+
+go团粉觉得鸡团的歌不适合go团
+
+然后猫猫0帧起手开始弹吉他与孤独与蓝色星球，画面一转爱音旁边还站了另一个粉毛。。。
+
+我怎么会做这样的梦<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 20556#       发表于 2025-2-10 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386250&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-10 11:23</a>
+
+我们少女乐队就不能有个单纯善良的傻白白吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+乐奈：说谁傻呢<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20557#       发表于 2025-2-10 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386366&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-10 11:38</a>
+
+昨晚睡觉做梦做到新一集开live，场外观众都在猜应该演哪首歌
+
+go团和鸡团粉丝都觉得演春日影太过串子
+
+鸡团粉 ...</blockquote>
+如果是青木可能真的干得出来。。。。
+
+要不还是改成优木雪菜演唱会吧（）
+
