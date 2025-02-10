@@ -227,3 +227,11 @@
 为啥这都要藏名字啊，前面生放没看，总不能卡面还要藏吧</blockquote>
 清少纳言出预告的时候貌似也是kirakira archer，此乃循前人旧制
 
+
+*****
+
+####  qixinno2  
+##### 16255#       发表于 2025-2-10 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抽道满失败 GG
+
