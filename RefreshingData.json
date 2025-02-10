@@ -3777,7 +3777,7 @@
     "lastedit": 1739181120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 12420,
+    "totalreply": 12421,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1739210297,
+    "lastedit": 1739211729,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 134876,
+    "totalreply": 134879,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1739211490,
+    "lastedit": 1739211852,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15741,10 +15741,10 @@
     "update": false
   },
   "2245794": {
-    "totalreply": 66,
+    "totalreply": 68,
     "title": "[有这张图，但是似乎他们没看出被挂者的含义。（想知道是不是我的一孔之见）]",
     "newtitle": "[有这张图，但是似乎他们没看出被挂者的含义。（想知道是不是我的一孔之见）]",
-    "lastedit": 1739210653,
+    "lastedit": 1739211855,
     "category": "外野",
     "active": true,
     "update": false
@@ -15817,6 +15817,15 @@
     "title": "[JAVA 刚入职就叫我重构项目]",
     "newtitle": "[JAVA 刚入职就叫我重构项目]",
     "lastedit": 1739208258,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2245827": {
+    "totalreply": 42,
+    "title": "[哪吒和悟空是不是都破了一个全球文化作品记录]",
+    "newtitle": "[哪吒和悟空是不是都破了一个全球文化作品记录]",
+    "lastedit": 1739211855,
     "category": "外野",
     "active": true,
     "update": false
