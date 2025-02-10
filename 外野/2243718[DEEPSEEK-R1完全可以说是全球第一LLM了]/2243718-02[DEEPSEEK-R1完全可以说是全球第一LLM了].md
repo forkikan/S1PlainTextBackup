@@ -2791,3 +2791,14 @@ https://openrouter.ai/docs/use-cases/reasoning-tokens
 api + page assist  我用的是硅基流动的pro 的api。官网好像不给充值了吧。留着点用。 ...</blockquote>
 怎么设置啊，page assist不是只能用本地部署的吗
 
+
+*****
+
+####  zerona  
+##### 1733#       发表于 2025-2-10 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389738&amp;ptid=2243718" target="_blank">名为侯国玉 发表于 2025-2-10 18:44</a>
+
+怎么设置啊，page assist不是只能用本地部署的吗</blockquote>
+OpenAI 兼容 API 这里加上服务商的api相关设置就行。它自动下载目录然后就可以选模型了。
+

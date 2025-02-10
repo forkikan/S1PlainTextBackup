@@ -17035,3 +17035,45 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 
 哪怕（比如说）为了救祥子或睦，Crychic限时回归，对她们来说也不过相当于开车带前任去医院，就是单纯的救一下熟人，心里不会产生任何波澜
 
+
+*****
+
+####  半年  
+##### 20685#       发表于 2025-2-10 19:29
+
+<img src="https://img.saraba1st.com/forum/202502/10/192930eww7qb9c00wnqny7.jpg" referrerpolicy="no-referrer">
+
+<strong>GjZcqKgaIAAFUEh.jpg</strong> (582.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 19:29 上传
+
+[https://x.com/Kanon_Takao/status/1888798977807761438/photo/1](https://x.com/Kanon_Takao/status/1888798977807761438/photo/1)
+
+*****
+
+####  NODY  
+##### 20686#       发表于 2025-2-10 19:31
+
+ppp初设呗，有丧母酗酒父穷得上不起学的同时又有忍者<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 20687#       发表于 2025-2-10 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389924&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-10 19:13</a>
+
+话说大祥身边是醉酒中登等等现实世界压力，而这边则是踩空而无事的双人格（当然睦也有现实压力，双人格有时 ...</blockquote>
+自适应就完事了
+
+*****
+
+####  无限舰制  
+##### 20688#       发表于 2025-2-10 19:33
+
+至少双重人格一般不认为是会严格破坏世界观的东西
+
+只要你觉得灵魂真的存在就行了——一般人也不会很拼命地否认灵魂不存在吧
+
