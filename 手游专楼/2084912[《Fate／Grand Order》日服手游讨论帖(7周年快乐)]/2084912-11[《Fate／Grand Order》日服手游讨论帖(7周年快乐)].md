@@ -183,3 +183,47 @@
 懂了 又要欧了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新在前面几页里天天豹跳如雷是怎么好意思说这话的
 
+
+*****
+
+####  alucardcz  
+##### 16251#       发表于 2025-2-9 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382799&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-9 20:35</a>
+
+这新角色一眼望去又是没有任何抽取欲望的
+
+今年不出意料又能仓鼠到夏活了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂了 又要欧了
+
+*****
+
+####  希望之花  
+##### 16252#       发表于 2025-2-9 23:52
+
+这新的问卷是什么kpi考核评价吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">把其他手游开服就有的功能当业绩是吧
+
+----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  森兰丸  
+##### 16253#       发表于 2025-2-10 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383353&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-9 22:16</a>
+
+懂了 又要欧了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新在前面几页里天天豹跳如雷是怎么好意思说这话的
+
+*****
+
+####  ·Mephisto·  
+##### 16254#       发表于 2025-2-10 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382003&amp;ptid=2084912" target="_blank">angelooo 发表于 2025-2-9 18:13</a>
+
+为啥这都要藏名字啊，前面生放没看，总不能卡面还要藏吧</blockquote>
+清少纳言出预告的时候貌似也是kirakira archer，此乃循前人旧制
+
