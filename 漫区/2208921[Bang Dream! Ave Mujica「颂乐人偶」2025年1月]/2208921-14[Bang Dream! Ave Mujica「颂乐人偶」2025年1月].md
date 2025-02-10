@@ -17242,3 +17242,30 @@ mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
 
 就算主创没疯，观众也不接受强行洗白主角（确信）吧
 
+
+*****
+
+####  天空塔书记官  
+##### 20703#       发表于 2025-2-10 20:50
+
+要评价ave至少得出现一场live再说吧，作为核心主题的音乐一直缺席肯定不是单纯的无能可以解释的，看看能藏啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  指南アキラ  
+##### 20704#       发表于 2025-2-10 20:50
+
+若叶睦吧看到的，睦竟然掌握着出色的受身技巧，不知是不是胡诌的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+[https://tieba.baidu.com/p/9475883762](https://tieba.baidu.com/p/9475883762)
+[https://www.bilibili.com/video/BV1KENWe2E12](https://www.bilibili.com/video/BV1KENWe2E12)
+
+<img src="https://img.saraba1st.com/forum/202502/10/204924dgepy1510qg7yyyw.jpg" referrerpolicy="no-referrer">
+
+<strong>(1)(1)(1)(1)(1)(1).jpg</strong> (672.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 20:49 上传
+
