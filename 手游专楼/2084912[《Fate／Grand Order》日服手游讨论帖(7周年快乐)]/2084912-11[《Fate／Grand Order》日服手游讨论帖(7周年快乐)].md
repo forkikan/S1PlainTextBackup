@@ -235,3 +235,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抽道满失败 GG
 
+
+*****
+
+####  大十字紅朔  
+##### 16256#       发表于 2025-2-10 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381809&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-9 17:41</a>
+
+青子人气卫星的位置摆在那了，厨子捏着鼻子也得抽吧，而且说实话暖机之后强度也不容小觑。
+
+娄希嘛，一方 ...</blockquote>
+娄希是我第一个5宝的五星
+
+其实说实话，强度一般，没特攻
+
+不过我第一个6宝的五星是项羽……
+

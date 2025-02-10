@@ -2771,3 +2771,12 @@ https://openrouter.ai/docs/use-cases/reasoning-tokens
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  2017.05.04  
+##### 1731#       发表于 2025-2-10 18:23
+
+原生鸿蒙版小艺App上架的DeepSeek-R1智能体升级为正式版，新增“联网搜索”功能
+<img src="https://p.sda1.dev/21/944b5f2c4de5403541d6fb88390cc123/image.jpg" referrerpolicy="no-referrer">
+
