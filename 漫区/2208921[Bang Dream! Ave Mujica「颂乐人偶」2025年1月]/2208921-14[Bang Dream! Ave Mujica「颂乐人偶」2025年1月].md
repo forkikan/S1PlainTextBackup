@@ -17106,3 +17106,46 @@ ppp初设呗，有丧母酗酒父穷得上不起学的同时又有忍者<img src
 
 看看大部分人感觉咋样吧。把Mujica当MyGO Season2看得了。
 
+
+*****
+
+####  6030sylar  
+##### 20691#       发表于 2025-2-10 19:54
+
+双重人格在一般作品里都会被认作是两个人物，睦这情况就是天降个新人物来顶着她的皮囊来干前作她的性格不会干的事
+
+*****
+
+####  QuerTan  
+##### 20692#       发表于 2025-2-10 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388733&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 16:26</a>
+
+Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的收尾回，从此MyGO成员就对Crychic彻底不存 ...</blockquote>
+说白了GO团里的ccc前成员都跟ccc和解了，就剩Mujica的两位ccc前成员还放不下<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  QuerTan  
+##### 20693#       发表于 2025-2-10 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390190&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-10 19:54</a>
+
+双重人格在一般作品里都会被认作是两个人物，睦这情况就是天降个新人物来顶着她的皮囊来干前作她的性格不会 ...</blockquote>
+你这说的挺有道理的。
+
+故事编不下去了，该派个人出来发神经搅和了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 20694#       发表于 2025-2-10 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390187&amp;ptid=2208921" target="_blank">QuerTan 发表于 2025-2-10 19:53</a>
+
+虽然我感觉很搞笑，属于一个可以拿来吐槽的点：
+
+“啊你剧集名叫AveMujica中间来一段ccc（或者MyGO）的Liv ...</blockquote>
+mygo里不就是鸡团的开幕演出，还一个又没啥
+
