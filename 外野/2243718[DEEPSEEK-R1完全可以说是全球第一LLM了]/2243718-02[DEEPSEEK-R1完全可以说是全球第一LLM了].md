@@ -2892,3 +2892,16 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 就是不给api，只能用网页端搜
 
+
+*****
+
+####  Freakyyu  
+##### 1742#       发表于 2025-2-10 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390359&amp;ptid=2243718" target="_blank">魔灵高达 发表于 2025-2-10 20:24</a>
+
+DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么好，期待”
+
+结果出来的乱七八糟 ...</blockquote>
+我已经放弃用它搞黄色了，真用不了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
