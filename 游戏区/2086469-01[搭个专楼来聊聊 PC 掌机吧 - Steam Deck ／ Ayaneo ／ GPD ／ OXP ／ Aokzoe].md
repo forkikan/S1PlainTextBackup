@@ -41,3 +41,16 @@ PS：用右摇杆模拟鼠标的时候怎么加速？看网上说按住R2可以�
 游戏内手柄失效没遇到过，不 ...</blockquote>
 有人建议我安装 Decky 插件 Pause Games，我试了一下，几天了似乎没有再出现问题一和二了，待我再长时间体验一下。
 
+
+*****
+
+####  dodolee  
+##### 1404#       发表于 2025-2-10 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375494&amp;ptid=2086469" target="_blank">dodolee 发表于 2025-2-8 15:50</a>
+
+GPD win mini 2025 到了，第一次用这种小机器，这风扇声真够要命的，基本上4000rpm以上就不能忍了，
+
+和SD O ...</blockquote>
+以退货，风扇噪音实在忍不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
