@@ -299,3 +299,16 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 110#       发表于 2025-2-10 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384917&amp;ptid=2238299" target="_blank">泰坦失足 发表于 2025-2-10 08:48</a>
+
+没问题，盗版的有个版本被投毒了，还买了域名 seo大规模推广
+
+论坛助手,iPad ...</blockquote>
+谢。当时搜见到那些分享的有什么嵌入配置的感觉可能有坑，所以还是去STEAM买了救了一命……
+
