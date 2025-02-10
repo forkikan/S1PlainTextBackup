@@ -11270,3 +11270,11 @@ plazma应该是op没跑了，ed不知道会是啥
 
 <img src="https://pbs.twimg.com/media/GjahqH0b0AAMoB2?format=jpg&amp;name=large" id="aimg_uXbuZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  白色有角  
+##### 6779#       发表于 2025-2-10 17:13
+
+战后出生那就有点像平行世界独角兽了，大文豪当初街道要求写uc0096就是打算定在OYW战后出生没经历过战争的新生代
+
