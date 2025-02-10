@@ -578,3 +578,11 @@ D老师把斯普特尼克的名字都给抢了<img src="https://static.saraba1st
 咋可能才几千万，几千万是里程碑付款的第一阶段的钱，如果成功上市，全款都是按亿算的 ...</blockquote>
 是的，越接近后期成品卖价就越高，但那个阶段已经不是药物猎人能决定的范围了，一般是大制药商整体收购团队了
 
+
+*****
+
+####  naclken.  
+##### 50#       发表于 2025-2-10 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那医药股啥时候涨回去？
+

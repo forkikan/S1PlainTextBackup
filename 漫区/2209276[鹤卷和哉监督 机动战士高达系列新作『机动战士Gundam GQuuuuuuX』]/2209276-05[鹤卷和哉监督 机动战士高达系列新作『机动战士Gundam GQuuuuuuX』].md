@@ -11223,3 +11223,14 @@ plazma应该是op没跑了，ed不知道会是啥
 访谈里导演直说了，本来计划让主角团 ...</blockquote>
 战后出生那不是出场得9x年？奶奶头就挂了啊
 
+
+*****
+
+####  oi99o  
+##### 6775#       发表于 2025-2-10 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388137&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-2-10 15:14</a>
+
+战后出生那不是出场得9x年？奶奶头就挂了啊</blockquote>
+奶奶头挂的是原世界线。现在吉翁胜利if里还不知道他会对世界有什么影响呢，鹤卷不想考虑这一点所以就把时间线放在了木星归来之前
+

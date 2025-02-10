@@ -16399,3 +16399,66 @@ nico更像是刻度移动更难的情绪指示表，不是极度满足观众或�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 20629#       发表于 2025-2-10 15:27
+
+go团就是个兴趣乐队，我记得访谈不都说了大家在一起搞乐队是因为开live的体验太爽，爱音那是搞音乐爽到了还是和朋友一起完成一个活动爽到了可能两者都有，反正go团的特质就是迷路，什么东西都还没定死
+
+
+*****
+
+####  结衣小比取  
+##### 20630#       发表于 2025-2-10 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387767&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 14:29</a>
+
+我一直疑惑爱音初中学生会乐队弹的是什么</blockquote>
+不会弹，把吉他挂脖子就上了
+
+<img src="https://img.saraba1st.com/forum/202502/10/153400egkcxilflixedk1b.png" referrerpolicy="no-referrer">
+
+<strong>hdoasidhiao.png</strong> (114.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 15:34 上传
+
+【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈·前篇
+[https://www.bilibili.com/opus/862031452782460945](https://www.bilibili.com/opus/862031452782460945)
+
+*****
+
+####  厚乳果珍爽  
+##### 20631#       发表于 2025-2-10 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388284&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-10 15:34</a>
+
+不会弹，把吉他挂脖子就上了
+
+【个人翻译】《BanG Dream! It’s MyGO!!!!!》柿本广大监督的全集回顾访谈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空气系是吧？
+
+*****
+
+####  天空塔书记官  
+##### 20632#       发表于 2025-2-10 15:36
+
+嘛，最后下个“诊断”吧，以下发言纯属乐子行为，请勿联系到现实:
+
+祥子＝emo 
+
+睦＝解离
+
+喵梦＝表演型人格＋躁狂
+
+海铃＝PTSD
+
+初华＝ ? 也许是选择恐惧or纯粹人机
+
+实锤了，A团确实是“疯人院” <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
