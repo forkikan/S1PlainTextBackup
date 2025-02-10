@@ -16925,3 +16925,14 @@ ccc五个人有四个人觉得自己打得有问题，剩下觉得自己没问�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 邦邦萧敬腾
 
+
+*****
+
+####  安娜导函数  
+##### 20676#       发表于 2025-2-10 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388733&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 16:26</a>
+Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的收尾回，从此MyGO成员就对Crychic彻底不存 ...</blockquote>
+问题蓝色坏女巫还欠大家一个道歉呢<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+而且輪符雨里soyo那种未亡人的感觉以后再也没了嘛 这种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
