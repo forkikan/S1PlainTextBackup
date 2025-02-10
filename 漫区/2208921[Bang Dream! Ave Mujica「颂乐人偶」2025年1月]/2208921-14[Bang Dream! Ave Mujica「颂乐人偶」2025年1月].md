@@ -16518,3 +16518,53 @@ go团就是个兴趣乐队，我记得访谈不都说了大家在一起搞乐队
 抛开大部分观众认为喵梦就是自私，就是恶心，就是无可救药的观点，以及先不讨论对睦伤害的结果(毕竟大喵确 ...</blockquote>
 我觉得想加入对内交流群的不但是大喵老师，海玲何尝不是？每次调侃自己"我脸蛋漂亮"，"我吃不胖"，结果压根没人理<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20638#       发表于 2025-2-10 15:48
+
+海玲确实会无意识的碎碎念一些自己的事，但是根本没人在意，其实这点挺惨的。
+
+包括mygo里她碎碎念自己参加了30个乐队还剩10个这么劲爆的话题，然而灯和爱音在纠结的还是为什么找人来替代soyo。
+
+*****
+
+####  阿兹尔  
+##### 20639#       发表于 2025-2-10 15:49
+
+海喵明明可以变成相声组活跃气氛的，再加个愿意捧的观众初华就行
+
+
+*****
+
+####  天空塔书记官  
+##### 20640#       发表于 2025-2-10 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388384&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-10 15:46</a>
+我觉得想加入对内交流群的不但是大喵老师，海玲何尝不是？每次调侃自己"我脸蛋漂亮"，"我吃不胖"，结果压 ...</blockquote>
+也许还是因为说话时情绪波动太小了吧，就冷面笑将这样<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  看穿一切的鱼  
+##### 20641#       发表于 2025-2-10 15:57
+
+谁会背负泥邦第一个虾仁饭的责任呢。大莫老师可是活生生的人啊。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cccpprc  
+##### 20642#       发表于 2025-2-10 15:57
+
+<blockquote>fuwamoco 发表于 2025-2-10 10:05
+根据月之森扭曲大三角理论，应该是我祥跪睦头</blockquote>
+祥跪睦吃闭门羹，海玲来看睦又吃闭门羹。然后海玲出来以后大骂就这样也不相信我吗？
+
+最后睦头扔书把大莫老师拿下，跑到狗团面前说求你们救救大祥吧她坏掉了，这样也不是不能包饺子……吧
+
