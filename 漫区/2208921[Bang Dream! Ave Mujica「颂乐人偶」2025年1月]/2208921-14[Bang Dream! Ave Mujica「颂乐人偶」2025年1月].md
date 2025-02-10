@@ -17149,3 +17149,16 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 “啊你剧集名叫AveMujica中间来一段ccc（或者MyGO）的Liv ...</blockquote>
 mygo里不就是鸡团的开幕演出，还一个又没啥
 
+
+*****
+
+####  QuerTan  
+##### 20695#       发表于 2025-2-10 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390232&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-10 20:03</a>
+
+mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
+你不说我都忘了MyGO末尾有一场了...
+
+那这样更没什么了，有ccc或GO的Live有就有了，希望剧情上最关键最重点的Live不是ccc或GO的就行。
+
