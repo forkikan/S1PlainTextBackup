@@ -666,3 +666,21 @@ greasyfork被墙了？
 
 比如这楼里被集火的老哥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  海底铁锚  
+##### 58#         楼主| 发表于 2025-2-10 18:33
+
+ 本帖最后由 海底铁锚 于 2025-2-10 18:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389190&amp;ptid=2245693" target="_blank">kros 发表于 2025-2-10 17:27</a>
+
+不生成东西，是为什么。。</blockquote>
+首先不要把key发出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）然后可以打开F12看一下（如果是diss功能的话，会有点日志），最后非pro版本太慢了，还容易失败，建议换其他的模型，速度会比R1好一点。
+
+如果是点击了diss，弹了回复窗口后发现没有内容，应该是我代码问题，晚上更新一下优化代码。
+
+另外除了Diss，还做了一键支持功能，可以期待一下。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
