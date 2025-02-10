@@ -960,3 +960,11 @@ grand odyssey 19999-xxxxx
 剑女不是跟着事务所复读劝了吗？反而黎恩那帮人连了电话但是因为不熟啥都没说托娃因为认识就有跟着复读 ...</blockquote>
 牢黎：场面似曾相识，我一开口会场内一定充满快活的空气<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7619#       发表于 2025-2-10 16:09
+
+黎恩：天啊，这简直是我
+

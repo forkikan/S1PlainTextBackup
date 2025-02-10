@@ -16624,3 +16624,114 @@ go团就是个兴趣乐队，我记得访谈不都说了大家在一起搞乐队
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sakatta  
+##### 20649#       发表于 2025-2-10 16:10
+
+第七集如果是c团或者go团live，肯定有一大堆人诟病的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 20650#       发表于 2025-2-10 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388518&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-10 16:02</a>
+
+但是把人偶拿到椅子上什么意思</blockquote>
+一种猜测是小时候祥子弹钢琴时祥妈就是在这个位置坐着看祥子
+
+*****
+
+####  天空塔书记官  
+##### 20651#       发表于 2025-2-10 16:11
+
+那最好的安排就是黑色生日了，毕竟那天真是祥子的生日<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  玖羽  
+##### 20652#       发表于 2025-2-10 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388544&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-10 16:05</a>
+
+现在这剧情发展，第七集live了估计也是阴间效果(c团复辟啥的
+
+还不如不live</blockquote>
+MyGO第9话之后你跟观众说下一话就是大Live，估计也没人信
+
+下一话预告的海铃咬牙似乎在Livehouse里，可能是在看Live
+
+*****
+
+####  看穿一切的鱼  
+##### 20653#       发表于 2025-2-10 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388586&amp;ptid=2208921" target="_blank">sakatta 发表于 2025-2-10 16:10</a>
+第七集如果是c团或者go团live，肯定有一大堆人诟病的</blockquote>
+没啥吧，go13集还是鸡live呢，就当还一场。c的话本来在go里也有走马灯live，鸡里在开一次也无所谓的。主要是鸡现在开游戏都凑不齐人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sakatta  
+##### 20654#       发表于 2025-2-10 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388610&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-10 16:13</a>
+
+没啥吧，go13集还是鸡live呢，就当还一场。c的话本来在go里也有走马灯live，鸡里在开一次也无所谓的。主 ...</blockquote>
+你放最后一话是没啥的，然后当时c的live在go里算是回忆内容，性质还是不一样的，好多人还是觉得这是AveMujica不是MyGO第二季也不是CRYCHIC第二季<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 20655#       发表于 2025-2-10 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388608&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 16:12</a>
+MyGO第9话之后你跟观众说下一话就是大Live，估计也没人信
+
+下一话预告的海铃咬牙似乎在Livehouse里，可能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那就拭目以待咯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  玖羽  
+##### 20656#       发表于 2025-2-10 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388333&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-10 15:39</a>
+
+因为观众不想让海玲牺牲，想让海玲继续当雇佣兵啊。这楼上讨论不是很明白了嘛 ...</blockquote>
+雇佣兵海铃就是一开始的乐奈，渴望容身之所（连用词都一样），只不过海铃的社会化程度比乐奈高得多，懂得掩饰和自欺
+
+这导致海铃在理性社会人的面具下，内心可能是相当消极负面的，一个旁证是她在乐队关系上绝不主动，明明想跟立希组乐队，就拎个贝斯在立希面前晃，也不开口
+
+海铃和立希是同一种人，都在学校没朋友（甚至可能除了彼此和乐队关系之外没社交），都曾经被乐队解散伤得很重，内心都非常消极负面（立希在被MyGO治好之前）
+
+立希说“灯的歌让我觉得我这种人有资格活下去”，反过来说就是在听到灯的歌之前，立希觉得自己没有资格活下去（一个初三小女孩，整天想自己有没有资格活下去……）
+
+按照立希的前例，海铃后面会经历一个同样程度的瞬间，让海铃觉得自己也有资格活下去（或者类似想法）
+
+立希经历那个瞬间之后也露出了类似海铃淫荡脸的表情
+
+<img src="https://img.saraba1st.com/forum/202502/10/161442h0s4ox00sa4r0ly4.jpg" referrerpolicy="no-referrer">
+
+<strong>our.jpg</strong> (59.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 16:14 上传
+
+*****
+
+####  plusSharp  
+##### 20657#       发表于 2025-2-10 16:17
+
+这种制作水平的3D动画就不该有完整一首歌时间的live,放个幕后准备和live后的画面就足够了，除非歌的水平特别高，不然纯属水时长
+
