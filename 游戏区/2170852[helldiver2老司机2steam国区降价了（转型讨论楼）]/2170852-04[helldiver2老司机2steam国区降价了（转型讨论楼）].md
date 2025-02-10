@@ -694,3 +694,16 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 地狱火背包没有想象中那么好用,5分钟的cd也太长了
 
+
+*****
+
+####  6x6z6w  
+##### 5743#       发表于 2025-2-11 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391896&amp;ptid=2170852" target="_blank">LrGsite 发表于 2025-2-11 03:08</a>
+
+地狱火背包没有想象中那么好用,5分钟的cd也太长了</blockquote>
+就是玩具，但能玩的花样很多
+
+刚才看到一个用反坦克炮当投石机把地狱火背包射出去的视频，就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">
+
