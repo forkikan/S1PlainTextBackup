@@ -15616,3 +15616,26 @@ go团和鸡团粉丝都觉得演春日影太过串子
 
 当然，这里的尸体是个比喻
 
+
+*****
+
+####  ads147147  
+##### 20561#       发表于 2025-2-10 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386467&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-10 11:48</a>
+
+破案了，猫猫真干过
+
+猫猫震撼超稳高音街头live《ギターと孤独と蒼い惑星》 ...</blockquote>
+非常合理。
+
+*****
+
+####  aptx8285144  
+##### 20562#       发表于 2025-2-10 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385813&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-10 10:35</a>
+
+别框那么死，大喵就很坦白，她想成为多栖艺人，为达目的，会不择手段。初华早已在ed中明示是虚假的爱，早 ...</blockquote>
+所以说大喵是最难被观众接受的，因为她不择手段，不管是不是内鬼，后面就要求渲染她早年经历有多么惨才行
+

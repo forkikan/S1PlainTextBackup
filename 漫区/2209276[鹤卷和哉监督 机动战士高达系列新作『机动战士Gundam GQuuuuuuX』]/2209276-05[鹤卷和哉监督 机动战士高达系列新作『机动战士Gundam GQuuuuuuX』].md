@@ -10955,3 +10955,32 @@ GQX说实话最终神棍机清一波吉翁的有生力量，顺手扫死个汤�
 不是说GQ这边穿越过去
 是说正史原生的麻球喵安
 
+
+*****
+
+####  llysander  
+##### 6758#       发表于 2025-2-10 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386355&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-10 11:37</a>
+
+吉翁经济一塌糊涂，内耗不断派系林立
+
+联邦在宇宙失去立足点，退守地球
+
+这种双方筋疲力尽的平衡也就能持续个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 奶奶头要感动得哭出来了，这不就是我要找的统治世界的女性，凶犬又不魔怔的哈曼，这台泰坦尼亚给你开了
+
+*****
+
+####  纪寞  
+##### 6759#       发表于 2025-2-10 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386489&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-10 11:51</a>
+
+不是说GQ这边穿越过去
+
+是说正史原生的麻球喵安</blockquote>
+但那个年代UC也现在也过去了吧，真要登场也是成年了，而且这两个可以说不是同一个人了。
+
+玛秋说不定就本分地生活着，泯然众人矣。
+
