@@ -3800,3 +3800,13 @@ AG箱EX活
 二⭐
 <img src="https://p.sda1.dev/21/2d916fc327170b5c4823601a613d926e/1739156205495.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AnnieLeonhart  
+##### 26923#       发表于 2025-2-10 11:24
+
+狗剧场要引进这事真的假的
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

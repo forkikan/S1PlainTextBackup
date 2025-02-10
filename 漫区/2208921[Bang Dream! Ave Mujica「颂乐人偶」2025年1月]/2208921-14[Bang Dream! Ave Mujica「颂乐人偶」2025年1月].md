@@ -15483,3 +15483,30 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 
 内鬼说纯给编剧找补吧，毕竟独角兽也是白祥
 
+
+*****
+
+####  山ノ内花音  
+##### 20550#       发表于 2025-2-10 11:20
+
+内鬼说确实是合理的 但制作组肯定想不到
+但同时悬疑剧和剧本杀元素又是真的 就很难猜核心谜题到底是什么
+
+*****
+
+####  安娜导函数  
+##### 20551#       发表于 2025-2-10 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386113&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-10 11:07</a>
+在已经确定下一回前团live第八回海铃回的前提下，初华就是给祥总二次离家兜底的娇妻罢了，作为配角是真不指 ...</blockquote>
+初华明摆着不是单纯的舔狗形象，她应该是隐藏很深的心机婊才对<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">而且她并不缺乏行动力，后期我看好她整个大活
+
+*****
+
+####  小博禹  
+##### 20552#       发表于 2025-2-10 11:23
+
+我们少女乐队就不能有个单纯善良的傻白白吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -113,3 +113,11 @@ evol真的很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/
 第四集字幕没人做了吗。。。</blockquote>
 BV1uPP1ekEw4还是有的
 
+
+*****
+
+####  X(iaolw)S  
+##### 249#       发表于 2025-2-10 11:19
+
+阿B的是机翻字幕吧，正式的应该就只有NEO·QSW在做，比较慢第4集还没出
+

@@ -2670,3 +2670,18 @@ S1论坛（saraba1st）有个帖子，是发在外野/卓明谷版块的，具�
 而api不能联网导致无法搜索最新的内容回答</blockquote>
 api + page assist  我用的是硅基流动的pro 的api。官网好像不给充值了吧。留着点用。
 
+
+*****
+
+####  费雷拉  
+##### 1722#       发表于 2025-2-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386116&amp;ptid=2243718" target="_blank">洛拉斯 发表于 2025-2-10 11:07</a>
+
+现在ds的网页端除了每天第一次回复不卡以外，白天几乎不能用
+
+而api不能联网导致无法搜索最新的内容回答</blockquote>
+api联网用page assist。
+
+另外网页不是一天只能回复一次，而是大概有2个小时的cd，cd没转好永远超时的，用来解决一些复杂问题还是得网页（感觉网页的长考没有token限制，api想一半就卡住了）
+
