@@ -16316,3 +16316,28 @@ nico更像是刻度移动更难的情绪指示表，不是极度满足观众或�
 喵梦为了吃流量可是摘面具，虚情假意找 ...</blockquote>
 你说大喵为了流量摘面具不假，你说她虚情假意关心睦头就错了，她是真心觉得睦头在这里屈才了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大喵老师这人从头到尾提现就一个真情实感毫不掩饰直来直往，对谁都不惯着包括自己
 
+
+*****
+
+####  安娜导函数  
+##### 20622#       发表于 2025-2-10 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387767&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 14:29</a>
+我一直疑惑爱音初中学生会乐队弹的是什么</blockquote>
+我觉得这个推测是准确的，最后肯定是章鱼博世大战蜘蛛侠<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 20623#       发表于 2025-2-10 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素世对睦也不是放心不下（心配）
+是不能放弃（棄つとけない）
+
+*****
+
+####  单脚着地  
+##### 20624#       发表于 2025-2-10 14:50
+
+soyo大概潜意识里觉得月之森大三角除了自己和祥的关系，睦和祥子的关系也稳定才能达成稳定吧
+

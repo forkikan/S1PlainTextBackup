@@ -11172,3 +11172,24 @@ plazma应该是op没跑了，ed不知道会是啥
 
 不过这么写 GQ世界线就没法续下去了
 
+
+*****
+
+####  虛無迴廊  
+##### 6771#       发表于 2025-2-10 14:46
+
+假定牢修就是沙伦玫瑰的前提下，他是不是现在还有一部分空间转移的能力，才能做到只身一人在各个殖民卫星间“神出鬼没”<img src="https://p.sda1.dev/21/0a3dd52757a046f940d6c1581fa8630c/IMG_20250210_144558.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 6772#       发表于 2025-2-10 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387850&amp;ptid=2209276" target="_blank">mad55555 发表于 2025-2-10 14:39</a>
+
+天堂制造就可以了啊
+
+高烈度战争促使了阿尔法杀手系统的发动</blockquote>
+殖民卫星外面飘着已经化石化的高达残骸，被传言是上古太空文明遗物，是这样吧....
+
