@@ -15367,3 +15367,36 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 一来睦也是背叛者的概率没那么高，而更重要的是，独角兽和柿本这样对大祥的黑刀一样的写法是很自然引起观 ...</blockquote>
 莫/睦绝不可能独善其身，一丘之貉，五个人没人能跑得掉。我同意你的说法，编剧有意要把祥子写成这样，编剧也知道角色的风评是咋样的。既然已经宣称是悬疑解密，那之后人物形象和剧情会大反转。
 
+
+*****
+
+####  aptx8285144  
+##### 20539#       发表于 2025-2-10 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385519&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-10 10:02</a>
+
+2ch可没有那么乐观，现在在质疑为什么mygo出场这么多，live少，祥子塑造是不是有问题。没到滑坡地步还在 ...</blockquote>
+我认为，如果按照的是“我们是一丘之貉”的挽回写法，那除非各个都是家属被扣押当人质级别的苦衷（而不是大祥领导不力所以我要当内鬼，我要吃流量所以当内鬼，我家和丰家有利益交换所以当内鬼)，否则内鬼浪子回头得到观众们的好感也很难比的过GO团的众人（至少在国内是如此）
+
+*****
+
+####  KLHgg  
+##### 20540#       发表于 2025-2-10 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382787&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-9 20:33</a>
+
+拉一下，最新访谈透露的信息跟我的预测基本吻合，mujica确实在通过鸡狗互动补完第一季有缺口的人物塑造
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica六集下来还没看出悬疑要素
+
+*****
+
+####  庸necro  
+##### 20541#       发表于 2025-2-10 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67383682&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-9 23:16</a>
+
+喵梦真的是最直率的一个内鬼，她在酒店之战说的都是真心话，她原本打算不做内鬼，跟着祥子好好干出人头地 ...</blockquote>
+开播前那个大猫表情其实被人发现自己是扭曲祥厨害羞了
+

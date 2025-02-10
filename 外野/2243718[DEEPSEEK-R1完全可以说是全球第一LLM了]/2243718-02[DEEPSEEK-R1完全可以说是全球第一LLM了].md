@@ -2591,3 +2591,23 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 官网现在是不是针对IP有内置排队CD我只要过很久不用，下一次问就会吐个回复赏给我，以为是渠道通畅了赶紧问 ...</blockquote>
 有机制，优先给长时间没使用过的用户服务。
 
+
+*****
+
+####  魔灵高达  
+##### 1715#       发表于 2025-2-10 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382779&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-9 20:32</a>
+
+写了个设定大纲，扔给D老师让总结出其中一个机构的职能，结果直接把所有设定大纲里的内容全归给这个机构， ...</blockquote>
+AI有时候生成的东西完全乱七八糟，但是思考过程却很有逻辑有点用。
+
+*****
+
+####  魔灵高达  
+##### 1716#       发表于 2025-2-10 10:21
+
+问了几个AI这个问题都没效果，最搞的是KIMI1.5，它直接思考无限循环“我没有找到有点沮丧，但是我想到还可以搜索.....”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+S1论坛（saraba1st）有个帖子，是发在外野/卓明谷版块的，具体内容是一篇原创文章，文章的内容是楼主“我”骗同事自己是杀人犯。发布时间在2020年之前
+

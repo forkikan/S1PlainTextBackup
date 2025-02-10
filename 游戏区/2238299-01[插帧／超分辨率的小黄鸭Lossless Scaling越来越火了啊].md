@@ -193,3 +193,30 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 
 存了一些8、90年代的老动画，有些分辨率只有720甚至480的。但是开了好像没什么效果，按了全屏的那个快捷键但是好像没太大分别。
 
+
+*****
+
+####  泰坦失足  
+##### 102#         楼主| 发表于 2025-2-10 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385550&amp;ptid=2238299" target="_blank">agsva 发表于 2025-2-10 10:06</a>
+
+想问下那个超分辨率对视频要怎么弄？
+
+存了一些8、90年代的老动画，有些分辨率只有720甚至480的。但是开了 ...</blockquote>
+是不是播放的原始窗口太大了？ 等于1080p的窗口里面在播480p的视频。1：1点对点播放后再缩放。或者琢磨下[https://www.bilibili.com/opus/903022612104347699](https://www.bilibili.com/opus/903022612104347699) [https://blogs.nvidia.cn/blog/rtx-video-super-resolution/](https://blogs.nvidia.cn/blog/rtx-video-super-resolution/)
+
+这个英伟达的视频超分辨率，毕竟视频和游戏不一样，对处理延迟没要求
+
+
+*****
+
+####  agsva  
+##### 103#       发表于 2025-2-10 10:25
+
+<blockquote>泰坦失足 发表于 2025-2-10 10:21
+是不是播放的原始窗口太大了？ 等于1080p的窗口里面在播480p的视频。1：1点对点播放后再缩放。或者琢磨下 ...</blockquote>
+其实我都搞不清怎么启动，是不是选好设置，然后选定要提升画质的窗口，按全屏快捷键就可以了？
+
+又试了一下轩辕剑，也是用anime4K，插帧这个效果能感受出来，人物不会一卡一卡地走了，就是人物动起来的时候周围会有一种很不自然的拉伸；但是分辨率感觉不出有变化的样子。
+
