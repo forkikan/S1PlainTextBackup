@@ -94,3 +94,50 @@ live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收�
 还看到个说中登以前是音乐人的，入赘丰川家后被逼放弃乐队活动。没事教祥子弹弹琴，所以祥子后面会想着用 ...</blockquote>
 这个感觉第一集就破产了 至少起了反效果
 
+
+*****
+
+####  Nungesser  
+##### 20730#       发表于 2025-2-10 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391270&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-10 23:08</a>
+
+这个感觉第一集就破产了 至少起了反效果</blockquote>
+这垃圾中登现在完全就是个负面/反派形象，老有人贷它的款也是好笑。<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 20731#       发表于 2025-2-10 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391113&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-10 22:38</a>
+能不能别给非主要人员加戏了......中登现在最需要的是滚出观众的视线。</blockquote>
+加最多戏的不是制作组？还在那里搞对应关系，其他几人的家长就作为背景板。像立希对她姐有劣等感，她姐也不会有太多描写让立希来解开心结或者啥的。
+
+这么喜欢契诃夫的枪理论，这都快成契诃夫的大象了，你跟我说之后不会拿这个做文章
+
+*****
+
+####  Nungesser  
+##### 20732#       发表于 2025-2-10 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391305&amp;ptid=2208921" target="_blank">天邪鬼 发表于 2025-2-10 23:17</a>
+
+加最多戏的不是制作组？还在那里搞对应关系，其他几人的家长就作为背景板。像立希对她姐有劣等感，她姐也 ...</blockquote>
+加了这么多戏，不就是要告诉你，这生父就是个垃圾，别指望垃圾了。
+
+
+*****
+
+####  plok201  
+##### 20733#       发表于 2025-2-10 23:22
+
+邦邦也只敢在正片hhw回搞个高魔？世界，别搞到最后真的祥妈显灵，那就真成年度笑片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 20734#       发表于 2025-2-10 23:26
+
+你猜op里人偶为什么动了 史上最狂!🤣
+
