@@ -17216,3 +17216,29 @@ mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
 
 奇幻色彩+商业+现实压力，所以现在可以理解独角兽根本承受不了柿本给予少女乐队题材这么多五花八门的元素<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 20701#       发表于 2025-2-10 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390326&amp;ptid=2208921" target="_blank">无限舰制 发表于 2025-2-10 20:18</a>
+
+老登聊发少年狂</blockquote>
+现实就有，现任美国总统<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cccpprc  
+##### 20702#       发表于 2025-2-10 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389322&amp;ptid=2208921" target="_blank">暮星弥空 发表于 2025-2-10 17:44</a>
+
+不是说mujica像文学著作那样值得细细的分析，也不是说祥子一点错误都没有，但是有的“观众”真就是眼睛一闭 ...</blockquote>
+我是抱着“主角和作品共同进退，只要主创没疯主角的人设就不会太烂”的想法的。
+
+当然现在这个样子吗
+
+就算主创没疯，观众也不接受强行洗白主角（确信）吧
+

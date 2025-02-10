@@ -2879,3 +2879,16 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 试过硅基流动，不能联网搜 ...</blockquote>
 同问。昨天给轨迹流动充了100元。快是快，但是还是很需要联网搜索。
 
+
+*****
+
+####  断片集  
+##### 1741#       发表于 2025-2-10 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390396&amp;ptid=2243718" target="_blank">fat 发表于 2025-2-10 20:32</a>
+
+同问。昨天给轨迹流动充了100元。快是快，但是还是很需要联网搜索。</blockquote>
+要联网搜索的话直接用那些ai搜索啊，秘塔就可以吧，上了满血r1
+
+就是不给api，只能用网页端搜
+
