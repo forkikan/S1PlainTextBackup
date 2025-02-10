@@ -16973,3 +16973,16 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 
 原来超英大战也是MUJICA演出的一部分啊，太牛了.jpg
 
+
+*****
+
+####  Victorino  
+##### 20680#       发表于 2025-2-10 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388776&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-10 16:33</a>
+
+都要对邦，官方杂志都把ccc标出来了，第七集限时诈尸也是很正常的吧。
+
+如果真的用的圣经典，耶稣死后也会 ...</blockquote>
+成为人类之歌……在狗团ost里有一版5人乐队的，还没在正片出现过……
+
