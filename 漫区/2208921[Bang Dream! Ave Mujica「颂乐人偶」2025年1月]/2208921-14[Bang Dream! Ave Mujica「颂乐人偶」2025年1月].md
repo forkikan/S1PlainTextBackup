@@ -16986,3 +16986,31 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 如果真的用的圣经典，耶稣死后也会 ...</blockquote>
 成为人类之歌……在狗团ost里有一版5人乐队的，还没在正片出现过……
 
+
+*****
+
+####  ads147147  
+##### 20681#       发表于 2025-2-10 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389886&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-2-10 19:07</a>
+成为人类之歌……在狗团ost里有一版5人乐队的，还没在正片出现过……</blockquote>
+这个可能性挺高的，毕竟也是祥子之前的呐喊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 20682#       发表于 2025-2-10 19:09
+
+卖狗第八集和第十三集祥老师疑似回了大宅是不是对赌说的来源？一般都是认为祥老师主动提出的吧 有没有认为是老登之前就下的套 但是祥老师没接 春日影后才接的学说
+
+就老登等了一年不耐烦了 决定出动出击 用漏油杀人诛心那套打法
+
+*****
+
+####  aptx8285144  
+##### 20683#       发表于 2025-2-10 19:13
+
+话说大祥身边是醉酒中登等等现实世界压力，而这边则是踩空而无事的双人格（当然睦也有现实压力）+乐奈的超能力一般的眼睛，少女乐队番以前有这么<strong>三方混搭</strong>的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
