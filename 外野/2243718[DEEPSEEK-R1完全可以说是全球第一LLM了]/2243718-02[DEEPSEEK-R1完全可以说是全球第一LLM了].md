@@ -2976,3 +2976,11 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 额，沉浸式翻译那个插件是不是用默认的prompt翻不了刘备啊，怎么设置才好呢？
 
+
+*****
+
+####  KBAC  
+##### 1749#       发表于 2025-2-11 05:02
+
+我要笑飞了，我把r1生成的癫文给Gemini看，Gemini的评价：超现实主义的抽象幻想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
