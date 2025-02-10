@@ -10864,3 +10864,26 @@ nt聊天室的那段很亚撒西让人乙女心大发吧
 
 修司那边估计是双方都不是一个世界的人，还是不要交往过深，刻意保持距离。玛秋和尼娅安都没他的直接联系方式，就是想找也不知怎么找。
 
+
+*****
+
+####  llysander  
+##### 6750#       发表于 2025-2-10 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 我记得小说也不是木马投了自护而是跟鸭和解，投的是鸭本人而且转头就打进side3本土了。
+
+小说简直邪门，没有z里看到希望又破灭，没有cca里圣徒沙扎比殉道或悲伤的夜莺，就这么理解了
+
+死的阿姆罗比活着的阿姆罗管用太多了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 活的可从来没把鸭嘴炮掉过
+
+有种不好的预感GQ里大噶就这么处理，看到光，我逐渐理解了一切，逃生舱被牛高达摁在阿克西斯上去了一趟宇宙中心见到了神兽和巴上帝.jpg
+
+*****
+
+####  云中漫步  
+##### 6751#       发表于 2025-2-10 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67382924&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-9 20:55</a>
+喵安还是东亚（or东南亚）的人，怎么也黑不到印度人那个程度啦，大概国内佤族那种感觉？ ...</blockquote>
+佤族有部分比三哥还要黑一些
+

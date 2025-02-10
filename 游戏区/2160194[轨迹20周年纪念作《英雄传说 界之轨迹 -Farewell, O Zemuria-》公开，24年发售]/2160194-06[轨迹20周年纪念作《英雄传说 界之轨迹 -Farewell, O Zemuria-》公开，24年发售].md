@@ -950,3 +950,13 @@ grand odyssey 19999-xxxxx
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不熟加上桃花剑没啥立场说吧，毕竟他也是个自爆什么事都揽上身的之前
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7618#       发表于 2025-2-10 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385109&amp;ptid=2160194" target="_blank">Squall25 发表于 2025-2-10 09:14</a>
+剑女不是跟着事务所复读劝了吗？反而黎恩那帮人连了电话但是因为不熟啥都没说托娃因为认识就有跟着复读 ...</blockquote>
+牢黎：场面似曾相识，我一开口会场内一定充满快活的空气<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

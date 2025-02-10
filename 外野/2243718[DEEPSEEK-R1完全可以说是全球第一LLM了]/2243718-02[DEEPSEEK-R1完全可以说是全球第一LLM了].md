@@ -2524,3 +2524,11 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 
 官网现在是不是针对IP有内置排队CD<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我只要过很久不用，下一次问就会吐个回复赏给我，以为是渠道通畅了赶紧问，马上服务器繁忙×20+提问次数频繁冷静一下吧×N
 
+
+*****
+
+####  lyt777  
+##### 1708#       发表于 2025-2-10 09:38
+
+最近有点奇怪，PC上调用API随便就能破甲，手机上用chatbox调用相同的api和prompt它每次都能给我拒绝，这到底是为什么………………
+
