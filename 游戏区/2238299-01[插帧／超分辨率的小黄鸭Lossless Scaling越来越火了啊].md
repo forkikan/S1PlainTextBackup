@@ -320,3 +320,18 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 
 试了下格兰蒂亚那锁30的版本 怎么补完变成个位数帧数了 帧数必须锁死么？
 
+
+*****
+
+####  希望之花  
+##### 112#       发表于 2025-2-11 05:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">通宵改密码，重要的平台账号重新登记设备，贪了几美金的小便宜亏大了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+cookies估计早给它顺走了，就是不知道还给它传走了啥东西
+
+以防万一先把c盘格了重装，剩下几个盘不知道有没有给它埋了啥东西，以防万一先用双系统Ubuntu操作文件，打游戏换另一台机器了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+这李鬼中招的一点是它似乎会重新安装一个显卡驱动，我发现不对劲是因为有一天看视频看着突然黑屏，和显卡更新驱动一样黑那么一下，其它症状就是像肉鸡一样会莫名卡顿。看reddit上讨论说这东西还会绕过defender 检测，关闭uac和卸载avira
+
+----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
+
