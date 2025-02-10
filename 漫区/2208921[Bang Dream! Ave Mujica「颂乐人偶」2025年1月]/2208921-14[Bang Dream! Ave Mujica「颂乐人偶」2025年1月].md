@@ -15210,3 +15210,15 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 
 虽然样本量大家看不上，但是变化趋势都是有迹可循的
 
+
+*****
+
+####  岬开斗  
+##### 20523#       发表于 2025-2-10 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384513&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-10 03:51</a>
+可以么，那确实可以，然后你会看到只剩下6集不到的文戏里，要分出不少的内容去处理老登和各个内鬼的关系 ...</blockquote>
+你觉得剩下的不多了？我怎么觉得编剧还会分出不少时间踩祥子呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
