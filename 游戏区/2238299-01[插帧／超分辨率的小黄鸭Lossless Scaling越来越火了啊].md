@@ -220,3 +220,16 @@ lossless-scaling点com上下载的包解压会被win10系统弹病毒警告，�
 
 又试了一下轩辕剑，也是用anime4K，插帧这个效果能感受出来，人物不会一卡一卡地走了，就是人物动起来的时候周围会有一种很不自然的拉伸；但是分辨率感觉不出有变化的样子。
 
+
+*****
+
+####  泰坦失足  
+##### 104#         楼主| 发表于 2025-2-10 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385725&amp;ptid=2238299" target="_blank">agsva 发表于 2025-2-10 10:25</a>
+
+其实我都搞不清怎么启动，是不是选好设置，然后选定要提升画质的窗口，按全屏快捷键就可以了？
+
+又试了一 ...</blockquote>
+超分辨率看游戏和个人感受吧，不像30fps-60fps那么明显。或者你换下超分辨算法类型。
+
