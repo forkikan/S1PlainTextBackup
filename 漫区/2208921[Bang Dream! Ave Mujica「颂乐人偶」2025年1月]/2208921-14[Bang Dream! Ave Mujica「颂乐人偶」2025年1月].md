@@ -15510,3 +15510,15 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 20553#       发表于 2025-2-10 11:31
+
+<blockquote>小博禹 发表于 2025-2-10 11:23
+我们少女乐队就不能有个单纯善良的傻白白吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+虽然我一直嘲初祥，但其实咱是在放低预期入股初祥惹，肉体都得到了，心灵还会远吗？笑到最后才是赢家<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

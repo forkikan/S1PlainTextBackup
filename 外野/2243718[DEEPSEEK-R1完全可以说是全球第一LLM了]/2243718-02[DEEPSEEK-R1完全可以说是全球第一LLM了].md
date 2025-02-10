@@ -2685,3 +2685,14 @@ api联网用page assist。
 
 另外网页不是一天只能回复一次，而是大概有2个小时的cd，cd没转好永远超时的，用来解决一些复杂问题还是得网页（感觉网页的长考没有token限制，api想一半就卡住了）
 
+
+*****
+
+####  秦南心  
+##### 1723#       发表于 2025-2-10 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67381304&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-9 16:09</a>
+
+想用cherry studio 的知识库才知道，知识库需要能推理的模型才可以。各位是用了什么模型能保证可以用这个知 ...</blockquote>
+知识库需要的是向量模型，用来给知识库里的信息用向量标注以便于LLM识别，cherry里硅基流动选择自带的潜入模型bge-m3就完事了
+

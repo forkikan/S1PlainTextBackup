@@ -54,3 +54,14 @@ GPD win mini 2025 到了，第一次用这种小机器，这风扇声真够要�
 和SD O ...</blockquote>
 以退货，风扇噪音实在忍不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RTLordCaptain  
+##### 1405#       发表于 2025-2-10 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67274356&amp;ptid=2086469" target="_blank">bypass 发表于 2025-1-25 14:08</a>
+
+Smach Z 破产的时候把问题归咎给疫情以及和广东这边工厂沟通不顺，老实说让一个欧洲小团队弄这玩意确实不 ...</blockquote>
+主要是2500U实在不太能用吧，后面4x00U就完全不一样，归根结底还是GlobalFoundries太拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
