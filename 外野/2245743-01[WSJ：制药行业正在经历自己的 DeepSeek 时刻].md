@@ -586,3 +586,13 @@ D老师把斯普特尼克的名字都给抢了<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那医药股啥时候涨回去？
 
+
+*****
+
+####  kong78~3  
+##### 51#       发表于 2025-2-10 16:28
+
+<blockquote>naclken. 发表于 2025-2-10 15:27
+那医药股啥时候涨回去？</blockquote>
+看楼上评论，初创公司做出药品的结局是把药品甚至公司整个卖给美国大药企，整个过程怎么着也和a股没关系。
+
