@@ -2813,3 +2813,35 @@ OpenAI 兼容 API 这里加上服务商的api相关设置就行。它自动下�
 OpenAI 兼容 API 这里加上服务商的api相关设置就行。它自动下载目录然后就可以选模型了。 ...</blockquote>
 原来如此，我刚用火狐上的pageassist选不了模型，换成chrome就用上了，谢谢
 
+
+*****
+
+####  Freakyyu  
+##### 1735#       发表于 2025-2-10 19:50
+
+deepseek对我来说最有用的还是把api导进沉浸式翻译插件看小说，它的中文翻译质量是我用过的AI翻译里最好的，但问题就是最近大部分时间都用不了。
+
+把我用过的英文课件丢进去让它总结和翻译，跟chatgpt各有优劣。deepseek总结的内容更多、结构更清晰，但专业名词翻译不出来，中英文对照也做不好。
+
+至于搞黄色，deepseek那个非人类的行文风格我怎么调教它都改不掉，能用的人也是真是不挑，不如gemini一根。
+
+*****
+
+####  zerona  
+##### 1736#       发表于 2025-2-10 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390140&amp;ptid=2243718" target="_blank">名为侯国玉 发表于 2025-2-10 19:46</a>
+
+原来如此，我刚用火狐上的pageassist选不了模型，换成chrome就用上了，谢谢</blockquote>
+pc区有个人发了个火狐的。你可以看下。好像是pc区。
+
+*****
+
+####  zerona  
+##### 1737#       发表于 2025-2-10 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390165&amp;ptid=2243718" target="_blank">Freakyyu 发表于 2025-2-10 19:50</a>
+
+deepseek对我来说最有用的还是把api导进沉浸式翻译插件看小说，它的中文翻译质量是我用过的AI翻译里最好的 ...</blockquote>
+血肉苦短，机械飞升。
+
