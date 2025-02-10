@@ -263,3 +263,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 16258#       发表于 2025-2-10 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389684&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-2-10 18:36</a>
+
+娄希是我第一个5宝的五星
+
+其实说实话，强度一般，没特攻</blockquote>
+娄希强在作为狂光炮能不限礼装开局放宝具，而且还有群体充能和buff，在目前主推的多核队副本里还是挺好用的，这两次活动90++都能上场，万金油。
+
+而且自buff这么吝啬说不定以后能赶上强化，最近的强化本都喜欢加特攻，娄希感觉可以根据二技能给个毒或诅咒的特攻<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+（如果根据宝具给灼烧特攻那就寄了）
+
