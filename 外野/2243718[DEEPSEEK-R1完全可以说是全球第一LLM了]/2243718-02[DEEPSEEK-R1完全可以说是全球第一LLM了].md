@@ -2746,3 +2746,13 @@ openrouter的r1 api响应里好像不包含思维链？网页的chatroom里却�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1729#       发表于 2025-2-10 17:18
+
+ 本帖最后由 V宇宙的守夜人Z 于 2025-2-10 17:20 编辑 
+
+网页版没开深度思考问了个复线性泛函分解为正线性泛函的构造，秒出<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">，这下把我给干焦虑了。。。这如果不是临时推理出来的话这是喂了多少数学的资料啊
+
