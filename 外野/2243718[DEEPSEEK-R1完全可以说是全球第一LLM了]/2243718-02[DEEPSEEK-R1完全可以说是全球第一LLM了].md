@@ -2756,3 +2756,18 @@ openrouter的r1 api响应里好像不包含思维链？网页的chatroom里却�
 
 网页版没开深度思考问了个复线性泛函分解为正线性泛函的构造，秒出<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">，这下把我给干焦虑了。。。这如果不是临时推理出来的话这是喂了多少数学的资料啊
 
+
+*****
+
+####  Azcarlo  
+##### 1730#       发表于 2025-2-10 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388513&amp;ptid=2243718" target="_blank">嘲哳的声音 发表于 2025-2-10 16:02</a>
+openrouter的r1 api响应里好像不包含思维链？网页的chatroom里却有
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+有的，要额外传参数
+https://openrouter.ai/docs/use-cases/reasoning-tokens
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

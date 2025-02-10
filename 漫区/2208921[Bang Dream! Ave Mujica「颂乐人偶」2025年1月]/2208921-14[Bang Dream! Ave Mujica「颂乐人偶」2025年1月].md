@@ -16823,3 +16823,55 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  单脚着地  
+##### 20666#       发表于 2025-2-10 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388733&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 16:26</a>
+
+Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的收尾回，从此MyGO成员就对Crychic彻底不存 ...</blockquote>
+C团的时代就没开始过啊，从一开始就是编剧给这些主角成长设定的必须跨过去的坎，纯纯的工具定位
+
+
+*****
+
+####  小博禹  
+##### 20667#       发表于 2025-2-10 17:33
+
+[【以防你不知道，目前所有的下雨场面都与祥子有关（截止至第4集）-哔哩哔哩】 ](https://b23.tv/7IB767t)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 20668#       发表于 2025-2-10 17:34
+
+<blockquote>swessia 发表于 2025-2-10 17:07
+祥睦在台上和mygo众人卿卿我我
+
+台下初海喵咬牙切齿苦呀西</blockquote>
+海猫：？无关心，母鸡卡已经死了
+
+*****
+
+####  fuwamoco  
+##### 20669#       发表于 2025-2-10 17:34
+
+ccc五个人有四个人觉得自己打得有问题，剩下觉得自己没问题的过得最幸福
+
+*****
+
+####  zhoujin8584  
+##### 20670#       发表于 2025-2-10 17:35
+
+<blockquote>小博禹 发表于 2025-2-10 15:06
+队长在拆队危机时明明做了决定“我想要睦头回来”不过下一集就无畏遗忘了一个月
+
+都是性情中人 ...</blockquote>
+
+祥子：我选择or
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
