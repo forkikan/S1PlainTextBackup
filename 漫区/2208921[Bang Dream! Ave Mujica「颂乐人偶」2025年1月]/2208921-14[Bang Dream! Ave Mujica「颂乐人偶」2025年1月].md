@@ -15447,3 +15447,20 @@ C团就好比是两个团的原生家庭，不解决这个遗留问题就无法�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 20546#       发表于 2025-2-10 11:06
+
+猫医生治病
+<img src="https://p.sda1.dev/21/3b4568bf7f99a865d7ecc754d1edb378/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/99ca8e89e2e241dd823e75fa8916f7e2/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 20547#       发表于 2025-2-10 11:07
+
+在已经确定下一回前团live第八回海铃回的前提下，初华就是给祥总二次离家兜底的娇妻罢了，作为配角是真不指望给她搞什么情绪流塑造了，结局跟祥卖一卖就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
