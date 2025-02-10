@@ -2853,3 +2853,29 @@ deepseek对我来说最有用的还是把api导进沉浸式翻译插件看小说
 
 用了下网盘，发现天翼和移动都开了个ds满血版界面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔灵高达  
+##### 1739#       发表于 2025-2-10 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390165&amp;ptid=2243718" target="_blank">Freakyyu 发表于 2025-2-10 19:50</a>
+
+deepseek对我来说最有用的还是把api导进沉浸式翻译插件看小说，它的中文翻译质量是我用过的AI翻译里最好的 ...</blockquote>
+DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么好，期待”
+
+结果出来的乱七八糟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fat  
+##### 1740#       发表于 2025-2-10 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386741&amp;ptid=2243718" target="_blank">crow_wine 发表于 2025-2-10 12:24</a>
+
+有没有第三方的，充钱不是问题，需要满血，联网搜索，以及追问，最好开箱即食。
+
+试过硅基流动，不能联网搜 ...</blockquote>
+同问。昨天给轨迹流动充了100元。快是快，但是还是很需要联网搜索。
+

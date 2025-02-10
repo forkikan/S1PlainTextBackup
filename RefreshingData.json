@@ -3777,7 +3777,7 @@
     "lastedit": 1739181120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 12412,
+    "totalreply": 12413,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1739186657,
+    "lastedit": 1739191090,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7200,10 +7200,10 @@
     "update": false
   },
   "2165753": {
-    "totalreply": 2380,
+    "totalreply": 2381,
     "title": "[23年动画 宝可梦地平线-太勒巴戈斯的光辉2号楼 1月12号复播]",
     "newtitle": "[23年动画 宝可梦地平线新章-裂空座崛起 2号楼]",
-    "lastedit": 1739189425,
+    "lastedit": 1739190618,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 134794,
+    "totalreply": 134797,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1739190369,
+    "lastedit": 1739190974,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9234,10 +9234,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 8934,
+    "totalreply": 8942,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1739173582,
+    "lastedit": 1739191091,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -9905,7 +9905,7 @@
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "lastedit": 1738931416,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2156809": {
@@ -10521,19 +10521,19 @@
     "update": false
   },
   "2206957": {
-    "totalreply": 2321,
+    "totalreply": 2322,
     "title": "[暖暖ip系列新作《无限暖暖》定档12.05]",
     "newtitle": "[暖暖ip系列新作《无限暖暖》定档12.05]",
-    "lastedit": 1739180420,
+    "lastedit": 1739190734,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2208921": {
-    "totalreply": 20697,
+    "totalreply": 20700,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月 (禁止带图剧透)]",
-    "lastedit": 1739190025,
+    "lastedit": 1739190974,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10647,10 +10647,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 60130,
+    "totalreply": 60135,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1739190250,
+    "lastedit": 1739190971,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10674,10 +10674,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 2463,
+    "totalreply": 2468,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1739190252,
+    "lastedit": 1739190860,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11106,10 +11106,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 613,
+    "totalreply": 614,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！]",
-    "lastedit": 1739189772,
+    "lastedit": 1739190734,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11160,10 +11160,10 @@
     "update": false
   },
   "2179544": {
-    "totalreply": 766,
+    "totalreply": 771,
     "title": "[《天国：拯救2》正式公开，2025年2月4日发售]",
     "newtitle": "[《天国：拯救2》正式公开，2025年2月4日发售]",
-    "lastedit": 1739190142,
+    "lastedit": 1739190974,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11349,10 +11349,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 1738,
+    "totalreply": 1740,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1739190025,
+    "lastedit": 1739190861,
     "category": "外野",
     "active": true,
     "update": false
@@ -14810,7 +14810,7 @@
     "newtitle": "[字越少事越大]",
     "lastedit": 1738931539,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2210661": {
@@ -15687,10 +15687,10 @@
     "update": false
   },
   "2245734": {
-    "totalreply": 51,
+    "totalreply": 53,
     "title": "[日本制铁收购美国钢铁的后续来了]",
     "newtitle": "[日本制铁收购美国钢铁的后续来了]",
-    "lastedit": 1739190026,
+    "lastedit": 1739190865,
     "category": "外野",
     "active": true,
     "update": false
@@ -15849,10 +15849,10 @@
     "update": false
   },
   "2233350": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[高槻加奈子（31岁）宣布结婚，更新：今日婚礼，男方为印度人]",
     "newtitle": "[高槻加奈子（31岁）宣布结婚，更新：今日婚礼，男方为印度人]",
-    "lastedit": 1739189669,
+    "lastedit": 1739190615,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15880,6 +15880,15 @@
     "title": "[因为工作原因，接下来几年需要常住广州，求推荐吃饭的地方。]",
     "newtitle": "[因为工作原因，接下来几年需要常住广州，求推荐吃饭的地方。]",
     "lastedit": 1739190026,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2245703": {
+    "totalreply": 41,
+    "title": "[推荐大家一个AI字幕和翻译软件]",
+    "newtitle": "[推荐大家一个AI字幕和翻译软件]",
+    "lastedit": 1739190867,
     "category": "外野",
     "active": true,
     "update": false

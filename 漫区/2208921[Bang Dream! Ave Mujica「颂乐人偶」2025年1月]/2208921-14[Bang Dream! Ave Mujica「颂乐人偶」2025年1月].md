@@ -17184,3 +17184,35 @@ mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
 
 老登聊发少年狂
 
+
+*****
+
+####  aptx8285144  
+##### 20698#       发表于 2025-2-10 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390054&amp;ptid=2208921" target="_blank">无限舰制 发表于 2025-2-10 19:33</a>
+
+至少双重人格一般不认为是会严格破坏世界观的东西
+
+只要你觉得灵魂真的存在就行了——一般人也不会很拼命地 ...</blockquote>
+所以说还有乐奈这眼睛根本不是搞音乐的普通少女能拥有的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（另一边则是现实压力）
+
+*****
+
+####  哈曼的YY  
+##### 20699#       发表于 2025-2-10 20:28
+
+<blockquote>plok201 发表于 2025-2-10 20:15
+其实都有，就和mygo时期祥子家族完蛋这事有各种版本一样，祥子和老登的博弈在mygo完结就猜的差不多了
+
+毕 ...</blockquote>
+这动画的商业部分本来就爆笑了 不如拉老登也下水 年轻时玩过乐队深知如何对付乐队人呢👐🏻
+
+
+*****
+
+####  aptx8285144  
+##### 20700#       发表于 2025-2-10 20:34
+
+奇幻色彩+商业+现实压力，所以现在可以理解独角兽根本承受不了柿本给予少女乐队题材这么多五花八门的元素<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
