@@ -16875,3 +16875,41 @@ ccc五个人有四个人觉得自己打得有问题，剩下觉得自己没问�
 祥子：我选择or
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 20671#       发表于 2025-2-10 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得之前有个采访声优还说，每次动画到有新歌的时候都有个符合歌的新展开，结果就是播一半了只有OP这一首
+
+
+*****
+
+####  暮星弥空  
+##### 20672#       发表于 2025-2-10 17:44
+
+不是说mujica像文学著作那样值得细细的分析，也不是说祥子一点错误都没有，但是有的“观众”真就是眼睛一闭无视那些已经几乎把谜底摆在谜面上的信息只是跟着这也烂完那也烂完的烂炒三流up发表一些符合情绪流的观点然后把所有错误归结于祥子然后大玩特玩那些贵物电竞梗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+最近看讨论到mujica的地方总是会有这种感觉
+
+*****
+
+####  哈曼的YY  
+##### 20673#       发表于 2025-2-10 17:44
+
+如果完全没有背叛元素 那犹大吻杀这op应该和残酷天使的纲领一样完全不了解动画2小时写出来的
+
+*****
+
+####  安娜导函数  
+##### 20674#       发表于 2025-2-10 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388471&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-10 15:57</a>
+谁会背负泥邦第一个虾仁饭的责任呢。大莫老师可是活生生的人啊。
+
+砸镜子说不定是祥老师在睦家门口又糯了， ...</blockquote>
+耶稣死后3天复活，睦头人死后3集复活，所以睦头=耶稣<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+按圣经彼得三次不认主，大祥老师几次说不认识睦头了呢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+我觉得完全有可能
+
