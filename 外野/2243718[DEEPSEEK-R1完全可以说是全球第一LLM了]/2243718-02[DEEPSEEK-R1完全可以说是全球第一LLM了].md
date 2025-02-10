@@ -2516,3 +2516,11 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 
 这个傻逼ai，我跟他今天没完了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/21/4593412389b46bf29103635c2c2636bb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笛诺斯  
+##### 1707#       发表于 2025-2-10 09:21
+
+官网现在是不是针对IP有内置排队CD<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我只要过很久不用，下一次问就会吐个回复赏给我，以为是渠道通畅了赶紧问，马上服务器繁忙×20+提问次数频繁冷静一下吧×N
+
