@@ -567,3 +567,14 @@ D老师把斯普特尼克的名字都给抢了<img src="https://static.saraba1st
 中药就是典型</blockquote>
 我是中医黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必然不会提中药中成药
 
+
+*****
+
+####  madbird023  
+##### 49#       发表于 2025-2-10 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387756&amp;ptid=2245743" target="_blank">gnihton314 发表于 2025-2-10 14:27</a>
+
+咋可能才几千万，几千万是里程碑付款的第一阶段的钱，如果成功上市，全款都是按亿算的 ...</blockquote>
+是的，越接近后期成品卖价就越高，但那个阶段已经不是药物猎人能决定的范围了，一般是大制药商整体收购团队了
+
