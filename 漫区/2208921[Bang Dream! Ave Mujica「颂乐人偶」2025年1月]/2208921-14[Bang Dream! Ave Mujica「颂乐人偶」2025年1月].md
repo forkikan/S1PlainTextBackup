@@ -15898,3 +15898,97 @@ PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
 
 你先别说这是不是大女主，就说人设够不够丰富多样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风中凌乱~  
+##### 20586#       发表于 2025-2-10 13:08
+
+你们一定要把初华当做恋爱脑挂件吗？她很明显不是呀，并且心机很深。想一想，如果内鬼说成立，她就是城府极深的事业批。为了更好地守护sumimi，虚情假意地陪大小姐玩家家酒游戏。一下就反转了，真奈女士的大胜利！
+
+*****
+
+####  安娜导函数  
+##### 20587#       发表于 2025-2-10 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387093&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 13:04</a>
+我反对，千万不要栽跟头再回来，要是这样就真废了
+
+喵梦必须主动放弃利益，她放弃舞台剧可能就是铺垫 ...</blockquote>
+肯定是放弃表演转向乐队，但是最多估计就是多栖艺人搞不下去没饭吃了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20588#       发表于 2025-2-10 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cccpprc  
+##### 20589#       发表于 2025-2-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384974&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-10 08:57</a>
+
+至少nico稳在3000+的观影人数和稳定的80%打1的好评率，说明目前按照nico的抽样比例下，并没有很多人觉得母 ...</blockquote>
+不如说是很多人被这些年各种高开低走整应激了，一看到可能崩溃的苗头就开始急（所谓“烂片雷达”）。
+
+至于说最后结果怎么样，只能说那些真的喜欢但又不得不放低期待唱衰的人，被打脸了会很高兴。
+
+*****
+
+####  tsoulgain  
+##### 20590#       发表于 2025-2-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386543&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-10 11:58</a>
+所以说大喵是最难被观众接受的，因为她不择手段，不管是不是内鬼，后面就要求渲染她早年经历有多么惨才行 ...</blockquote>
+也不一定是早年经历多惨，也可以是自己单飞后一直在底边泥地里疯狂打滚。撞到头破血流后迫于家人生计哭着求姐妹原谅。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  古明地雷  
+##### 20591#       发表于 2025-2-10 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">木箱这箭头，都不理解对方
+
+*****
+
+####  玖羽  
+##### 20592#       发表于 2025-2-10 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387138&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-10 13:09</a>
+
+肯定是放弃表演转向乐队，但是最多估计就是多栖艺人搞不下去没饭吃了被演艺圈毒打然后转头就是教练我想组 ...</blockquote>
+我就说如果这么搞这个角色就废了，根据我总结的颠覆性原则，如果一个主要角色登场时表现为某种人，那么揭示真相的时候她肯定不是这种人
+
+喵梦登场时表现为利欲熏心的人，那么她肯定不是利欲熏心的人，否则会违反这个原则
+
+喵梦一个人在家的时候很朴素自律，面对明显非常有利的舞台剧邀约仅仅因为自己心里有一个坎过不去就不接，这些都暗示她能在关键时刻放弃利益
+ <blockquote><strong>1、颠覆性原则。</strong>
+
+只限主角团，一个角色一开始看起来越是没有问题，后面的问题就越大，我从上一个楼就一直在说，初华、海铃、睦只要爆就是大爆；
+
+相反，如果一个角色一开始就表现出一些小问题，比如爱音的虚荣心、立希的态度恶劣，那么后面的问题反而不会很大。
+
+反过来也一样，比如灯在1～9话的绝大部分戏份里都是非常内向和被动的，所以第10话才能正向大爆，重点是完全颠覆原有形象。
+
+<strong>2、炸裂性原则。</strong>
+
+举例来说，如果一个剧情的炸裂程度有可能是：A)100；B)200；C)500，那么不用怀疑，编剧一定会选择：D)1000
+
+在预测剧情的时候，一定不要有任何幻想，编剧一定是你能想象到的（甚至超越你想象的）怎么炸裂怎么来。
+
+<strong>3、回旋镖原则。</strong>
+
+简单地说，就是有呼必有应，MyGO对这一点非常严格，已经有很多人解析过了，我在重看的时候也发现了很多解析文没有提过的小地方。
+
+如果Ave Mujica在这一点上没有变化，那么目前出现的呼肯定在后文有一个应，否则那些剧情就没有必要存在。
+
+而且我认为，在回应的时候一定会遵循前两条原则，如果你能想象到某种回应可以产生最大化炸裂的效果，那么编剧一定会这么干，除非编剧的想象力超过了你。</blockquote>
+
