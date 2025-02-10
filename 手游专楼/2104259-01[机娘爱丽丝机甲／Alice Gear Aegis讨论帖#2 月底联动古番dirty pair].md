@@ -51,3 +51,13 @@ P站联动活动居然没有在复刻票兑换里<img src="https://static.saraba
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1373#       发表于 2025-2-10 22:59
+
+看了下推，这次直播好像没说有联动……月卡又要加东西，买的人真少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
