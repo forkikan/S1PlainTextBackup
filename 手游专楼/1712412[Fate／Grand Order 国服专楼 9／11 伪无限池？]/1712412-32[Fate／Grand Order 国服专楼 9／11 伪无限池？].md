@@ -146,3 +146,16 @@
 100101442244</blockquote>
 已申请好友！id是烟瘾的那个，感谢您<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 47010#       发表于 2025-2-10 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376587&amp;ptid=1712412" target="_blank">qucqee 发表于 2025-2-8 18:27</a>
+
+只要5宝nff就行满不满配不重要，自己看情况上杀狐打大不了带cd服打3t
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我也就这几天有茶壶这么打一下，打完了还是要回到常规队节约拐的
+
