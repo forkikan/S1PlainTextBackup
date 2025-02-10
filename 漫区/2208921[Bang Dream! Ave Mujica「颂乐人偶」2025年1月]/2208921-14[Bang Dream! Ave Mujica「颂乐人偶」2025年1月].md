@@ -17326,3 +17326,37 @@ live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ads147147  
+##### 20709#       发表于 2025-2-10 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390732&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-10 21:33</a>
+C团解散不是还有个谜团没有解开吗，就是祥子接老爸回家的时候，是收到了什么短信才下定决心脱离C团的。。。 ...</blockquote>
+为啥这个楼三天两头还会出现这样的帖子说手机短信是迷的。。。不都明确演出来了。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thistimeforlife  
+##### 20710#       发表于 2025-2-10 21:40
+
+紫吧还在炒nsy中华炮，邦厕百综狗吧仍然在cp角色大战，战吧鸡楼还在血战剧情塑造双重人格老登财团，童厕还在万象天引，就说明你邦至少还活得挺好的。
+
+心态良好，剑指live，相信音乐，多看看邦邦以前的神回就能调理好了，一切过家家、逻辑硬伤、智障塑造、不能细想瞎整的玩意儿，都能翻盘。
+
+哪怕还是烂又如何，老登mggm  中登柿本  老集美独角兽，都笑麻了。
+
+*****
+
+####  ads147147  
+##### 20711#       发表于 2025-2-10 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390776&amp;ptid=2208921" target="_blank">thistimeforlife 发表于 2025-2-10 21:40</a>
+紫吧还在炒nsy中华炮，邦厕百综狗吧仍然在cp角色大战，战吧鸡楼还在血战剧情塑造双重人格老登财团，童厕还 ...</blockquote>
+星3bd2销量初动不过6k，邦邦已经赢了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
