@@ -2532,3 +2532,62 @@ Cherry Studio可以webDav同步，但是没有手机端<img src="https://static.
 
 最近有点奇怪，PC上调用API随便就能破甲，手机上用chatbox调用相同的api和prompt它每次都能给我拒绝，这到底是为什么………………
 
+
+*****
+
+####  披头破落户  
+##### 1709#       发表于 2025-2-10 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385316&amp;ptid=2243718" target="_blank">lyt777 发表于 2025-2-10 09:38</a>
+最近有点奇怪，PC上调用API随便就能破甲，手机上用chatbox调用相同的api和prompt它每次都能给我拒绝，这到 ...</blockquote>
+刷新几次或者改一下问题再发一遍
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lkjasd  
+##### 1710#       发表于 2025-2-10 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">家里电脑4070S+12700，想本地部署搭建自己知识库自娱自乐，这个配置跑快吗？我B站搜说要显存很高，而且各种本地部署五花八门，有没有课代表大佬推荐一个好的本地部署教程~
+
+*****
+
+####  约翰里德  
+##### 1711#       发表于 2025-2-10 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385562&amp;ptid=2243718" target="_blank">lkjasd 发表于 2025-2-10 10:07</a>
+家里电脑4070S+12700，想本地部署搭建自己知识库自娱自乐，这个配置跑快吗？我B站搜说要显存很高，而且各种 ...</blockquote>
+部署了也就是个玩具，api都胡说八道，本地部署的基本是痴呆了
+
+
+*****
+
+####  lkjasd  
+##### 1712#       发表于 2025-2-10 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385571&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-10 10:08</a>
+
+部署了也就是个玩具，api都胡说八道，本地部署的基本是痴呆了</blockquote>
+我自己喂投资料，也痴呆吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  约翰里德  
+##### 1713#       发表于 2025-2-10 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385595&amp;ptid=2243718" target="_blank">lkjasd 发表于 2025-2-10 10:11</a>
+我自己喂投资料，也痴呆吗</blockquote>
+你本地部署算力也小啊。
+光堆资料算力小了还是智障-你看我上面发的那张图，api也是智障就是了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 1714#       发表于 2025-2-10 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385159&amp;ptid=2243718" target="_blank">笛诺斯 发表于 2025-2-10 09:21</a>
+
+官网现在是不是针对IP有内置排队CD我只要过很久不用，下一次问就会吐个回复赏给我，以为是渠道通畅了赶紧问 ...</blockquote>
+有机制，优先给长时间没使用过的用户服务。
+
