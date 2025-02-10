@@ -1989,3 +1989,24 @@ cure idol这女人怎么那么魅惑<img src="https://static.saraba1st.com/image
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  挺好的  
+##### 451#       发表于 2025-2-10 21:25
+
+大友真恶心<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/3535a1cc00248b237efc4fe2b2109007/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  新HGCG  
+##### 452#       发表于 2025-2-10 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390676&amp;ptid=2208663" target="_blank">挺好的 发表于 2025-2-10 21:25</a>
+
+大友真恶心</blockquote>
+DEEPSEEK翻译这么厉害的吗！
+
