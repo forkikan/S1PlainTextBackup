@@ -2780,3 +2780,14 @@ https://openrouter.ai/docs/use-cases/reasoning-tokens
 原生鸿蒙版小艺App上架的DeepSeek-R1智能体升级为正式版，新增“联网搜索”功能
 <img src="https://p.sda1.dev/21/944b5f2c4de5403541d6fb88390cc123/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名为侯国玉  
+##### 1732#       发表于 2025-2-10 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386169&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-10 11:14</a>
+
+api + page assist  我用的是硅基流动的pro 的api。官网好像不给充值了吧。留着点用。 ...</blockquote>
+怎么设置啊，page assist不是只能用本地部署的吗
+
