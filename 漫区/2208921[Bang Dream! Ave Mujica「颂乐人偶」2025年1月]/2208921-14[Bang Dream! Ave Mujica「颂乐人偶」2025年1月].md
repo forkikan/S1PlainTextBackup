@@ -17162,3 +17162,25 @@ mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
 
 那这样更没什么了，有ccc或GO的Live有就有了，希望剧情上最关键最重点的Live不是ccc或GO的就行。
 
+
+*****
+
+####  plok201  
+##### 20696#       发表于 2025-2-10 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389900&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-10 19:09</a>
+
+卖狗第八集和第十三集祥老师疑似回了大宅是不是对赌说的来源？一般都是认为祥老师主动提出的吧 有没有认为 ...</blockquote>
+其实都有，就和mygo时期祥子家族完蛋这事有各种版本一样，祥子和老登的博弈在mygo完结就猜的差不多了
+
+毕竟老爸颓废，没出现老妈，TGW集团赞助，大宅能进，莫名其妙的初登场银河战舰
+
+当然主要是这样弄，故事太好笑了，老登你比少女乐队还少女<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无限舰制  
+##### 20697#       发表于 2025-2-10 20:18
+
+老登聊发少年狂
+

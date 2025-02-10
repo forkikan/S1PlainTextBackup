@@ -2845,3 +2845,11 @@ pc区有个人发了个火狐的。你可以看下。好像是pc区。
 deepseek对我来说最有用的还是把api导进沉浸式翻译插件看小说，它的中文翻译质量是我用过的AI翻译里最好的 ...</blockquote>
 血肉苦短，机械飞升。
 
+
+*****
+
+####  fireflies  
+##### 1738#       发表于 2025-2-10 20:15
+
+用了下网盘，发现天翼和移动都开了个ds满血版界面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
