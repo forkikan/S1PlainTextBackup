@@ -2952,3 +2952,11 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  黄泉川此方  
+##### 1746#       发表于 2025-2-10 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把DS出来太短的扔进gemini就完事了啊
+

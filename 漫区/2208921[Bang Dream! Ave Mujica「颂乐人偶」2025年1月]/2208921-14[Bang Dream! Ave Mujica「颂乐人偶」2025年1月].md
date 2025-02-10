@@ -17412,3 +17412,38 @@ C团解散不是还有个谜团没有解开吗，就是祥子接老爸回家的�
 懂了，若叶睦是李连杰，三角初华是洪金宝</blockquote>
 什么The One
 
+
+*****
+
+####  十万年魂环  
+##### 20717#       发表于 2025-2-10 22:09
+
+直接说绿魔吧，刚好也是四百大妈里面的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xyion  
+##### 20718#       发表于 2025-2-10 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390775&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-10 21:40</a>
+
+为啥这个楼三天两头还会出现这样的帖子说手机短信是迷的。。。不都明确演出来了。。
+
+—— 来自 鹅球 v3. ...</blockquote>
+那里是先手机震动，看见soyo问能来么，然后打算回复时接警局电话。
+
+出警局时再次震动，祥子拿起手机，然后给了手机画面，上面line聊天还是soyo那句话，以及打了一半的回复。
+
+因此一直有人问再次震动是接到了什么信息，有没有藏东西。
+
+*****
+
+####  天空塔书记官  
+##### 20719#       发表于 2025-2-10 22:10
+
+那绿魔确实人格分裂，而且还有老绿魔
+
+(
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
