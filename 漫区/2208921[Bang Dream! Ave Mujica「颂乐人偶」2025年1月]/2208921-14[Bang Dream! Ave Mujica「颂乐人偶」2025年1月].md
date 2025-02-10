@@ -15992,3 +15992,61 @@ PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
 
 而且我认为，在回应的时候一定会遵循前两条原则，如果你能想象到某种回应可以产生最大化炸裂的效果，那么编剧一定会这么干，除非编剧的想象力超过了你。</blockquote>
 
+
+*****
+
+####  天空塔书记官  
+##### 20593#       发表于 2025-2-10 13:18
+
+拿素世去套喵梦是不可行的，毕竟她破防跪的是祥子而不是灯，比起让一个角色撞南墙撞得头破血流还是主动迷途知返更加升华角色，只有明白自己真正想要的是什么，一个角色才能建立自洽的行为逻辑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 20594#       发表于 2025-2-10 13:18
+
+喵梦最后的安排多半是成为A团内部某人的一个挂件，最终不是成为祥的毒唯就是成为睦的毒唯，看看狸希，鸡狗中鼓手的宿命。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 20595#       发表于 2025-2-10 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387129&amp;ptid=2208921" target="_blank">风中凌乱~ 发表于 2025-2-10 13:08</a>
+你们一定要把初华当做恋爱脑挂件吗？她很明显不是呀，并且心机很深。想一想，如果内鬼说成立，她就是城府极 ...</blockquote>
+明显不是为了sumimi，而是为了独占蓝色小章鱼，看我把你周围的一切都夺走，你就只能看着我一人了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 20596#       发表于 2025-2-10 13:20
+
+<blockquote>单脚着地 发表于 2025-2-10 13:18
+喵梦最后的安排多半是成为A团内部某人的一个挂件，最终不是成为祥的毒唯就是成为睦的毒唯，看看狸希，鸡狗 ...</blockquote>
+那鸡狗挂件舔狗是不是太多了
+
+*****
+
+####  天空塔书记官  
+##### 20597#       发表于 2025-2-10 13:23
+
+而且要从新建立祥子的人物形象也很简单，主动与乐队成员交流，然后拼命为团队写曲子就行了，祥子的魅力在于作者性，只要能贯彻她创作者“神明”的形象，那剩下的一切负面塑造就都不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岬开斗  
+##### 20598#       发表于 2025-2-10 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387189&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-10 13:15</a>
+我就说如果这么搞这个角色就废了，根据我总结的颠覆性原则，如果一个主要角色登场时表现为某种人，那么揭 ...</blockquote>
+那么问题来了，你的想法里喵梦的回旋镖呢？摘面具、拆团、发展顺利、突然觉醒——一点挫折都没有，靠自己伟大觉醒，十五年未有之大女主是吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
