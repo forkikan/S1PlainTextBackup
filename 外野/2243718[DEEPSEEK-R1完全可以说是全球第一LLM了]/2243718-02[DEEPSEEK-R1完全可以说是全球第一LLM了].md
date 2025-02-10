@@ -2960,3 +2960,11 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把DS出来太短的扔进gemini就完事了啊
 
+
+*****
+
+####  moekyo  
+##### 1747#       发表于 2025-2-10 22:30
+
+原来纳米是360的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
