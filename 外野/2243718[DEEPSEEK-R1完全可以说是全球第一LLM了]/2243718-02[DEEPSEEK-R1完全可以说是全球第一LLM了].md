@@ -2736,3 +2736,13 @@ api联网用page assist。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  嘲哳的声音  
+##### 1728#       发表于 2025-2-10 16:02
+
+openrouter的r1 api响应里好像不包含思维链？网页的chatroom里却有
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

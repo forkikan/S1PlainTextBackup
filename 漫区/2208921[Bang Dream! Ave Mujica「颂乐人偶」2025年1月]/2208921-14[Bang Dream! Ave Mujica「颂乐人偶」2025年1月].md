@@ -16568,3 +16568,59 @@ go团就是个兴趣乐队，我记得访谈不都说了大家在一起搞乐队
 
 最后睦头扔书把大莫老师拿下，跑到狗团面前说求你们救救大祥吧她坏掉了，这样也不是不能包饺子……吧
 
+
+*****
+
+####  adretyu67.  
+##### 20643#       发表于 2025-2-10 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388341&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-10 15:40</a>
+
+这张图有点诡异啊，该不会祥子把人偶当成想象伙伴吧。弹琴给人偶听</blockquote>
+真红人偶是祥妈的遗物啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 20644#       发表于 2025-2-10 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果鸡是12集之前都没live，12集演一整集live，13集收尾包个饺子大家能接受么。我现在有强烈的预感就是第七集没live，并且深刻怀疑所谓突破少女乐队的限制指的是，剧中段没live。。
+
+*****
+
+####  iiiiiiiiii  
+##### 20645#       发表于 2025-2-10 16:02
+
+<blockquote>adretyu67. 发表于 2025-2-10 16:00
+真红人偶是祥妈的遗物啊</blockquote>
+但是把人偶拿到椅子上什么意思
+
+*****
+
+####  adretyu67.  
+##### 20646#       发表于 2025-2-10 16:03
+
+不能接受，不唱歌搞狼人杀那真得-2了
+
+*****
+
+####  66367749  
+##### 20647#       发表于 2025-2-10 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387343&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-10 13:33</a>
+爱信等是吧。
+那我就等一个喵梦面部受伤必须戴面具但是被其他人扯下来的剧情了。
+回旋镖可别是蓝色章鱼特 ...</blockquote>
+你对这个动画可能有一些不切实际的幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 20648#       发表于 2025-2-10 16:05
+
+现在这剧情发展，第七集live了估计也是阴间效果(c团复辟啥的
+还不如不live
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
