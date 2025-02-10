@@ -11132,3 +11132,13 @@ NMNL和管人就没提这些，都是只说歌曲疾驰感描写宇宙什么的
 倒也不急于下判断，先等等看这三首插入曲会不会是TV的oped，再得看看这三首歌的作词有没有事先了解到gqx的 ...</blockquote>
 plazma应该是op没跑了，ed不知道会是啥
 
+
+*****
+
+####  王留美  
+##### 6769#       发表于 2025-2-10 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387291&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-10 13:25</a>
+ plazma应该是op没跑了，ed不知道会是啥</blockquote>
+明确TV会出现的是nomelon nolemon的那首吧
+
