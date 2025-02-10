@@ -17291,3 +17291,38 @@ mygo里不就是鸡团的开幕演出，还一个又没啥</blockquote>
 
 在中盤給只會讓雞團的存在感進一步消失
 
+
+*****
+
+####  huxiaopao163  
+##### 20706#       发表于 2025-2-10 21:33
+
+C团解散不是还有个谜团没有解开吗，就是祥子接老爸回家的时候，是收到了什么短信才下定决心脱离C团的。。。
+
+*****
+
+####  cccpprc  
+##### 20707#       发表于 2025-2-10 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390482&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-10 20:50</a>
+
+若叶睦吧看到的，睦竟然掌握着出色的受身技巧，不知是不是胡诌的
+
+https://tieba.baidu.com/p/9475883762
+
+ht ...</blockquote>
+假如真有什么庭院大逃亡动作戏
+
+睦头提供一个打十个丰川家保镖的武力担当是吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 20708#       发表于 2025-2-10 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390732&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-10 21:33</a>
+C团解散不是还有个谜团没有解开吗，就是祥子接老爸回家的时候，是收到了什么短信才下定决心脱离C团的。。。 ...</blockquote>
+live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收到了soyo的信息刚打算回就接派出所电话，最后在派出所破防才决定退出的。她盯着看的是soyo之前问的今天能来吗。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
