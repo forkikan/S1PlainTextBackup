@@ -15580,3 +15580,39 @@ go团和鸡团粉丝都觉得演春日影太过串子
 
 要不还是改成优木雪菜演唱会吧（）
 
+
+*****
+
+####  aptx8285144  
+##### 20558#       发表于 2025-2-10 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67385891&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-10 10:42</a>
+
+先不说还有被误导自以为对祥子好而当内鬼这种非常好回撤的情况，就说海铃。她并不是不作为，第四话最后还 ...</blockquote>
+所以你看楼里有几个人骂海玲的?几乎火力对准的是大喵和大祥（包括隔壁NGA)，因为不少人是把大喵对位素世了，然而这反派描写水平基本上是蓝波斯和克队的差距
+
+*****
+
+####  GBLMikuHatsune  
+##### 20559#       发表于 2025-2-10 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386378&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-10 11:39</a>
+
+如果是青木可能真的干得出来。。。。
+
+要不还是改成优木雪菜演唱会吧（） ...</blockquote>
+破案了，猫猫真干过
+[猫猫震撼超稳高音街头live《ギターと孤独と蒼い惑星》](https://www.bilibili.com/video/BV19nxDeQE85)
+
+
+*****
+
+####  huxiaopao163  
+##### 20560#       发表于 2025-2-10 11:51
+
+ 本帖最后由 huxiaopao163 于 2025-2-10 11:54 编辑 
+
+如果按照悬疑剧或者剧本杀的思路，第七集应该就是发现“尸体”的阶段了。
+
+当然，这里的尸体是个比喻
+

@@ -10944,3 +10944,14 @@ GQX说实话最终神棍机清一波吉翁的有生力量，顺手扫死个汤�
 
 没了卡缪还有谁能送走奶奶头+铁奥，玛秋能行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6757#       发表于 2025-2-10 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386225&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-10 11:20</a>
+ GQX说实话最终神棍机清一波吉翁的有生力量，顺手扫死个汤大基，然后结尾鸭子回来带夏利尔和旧戴肯派，吉翁 ...</blockquote>
+不是说GQ这边穿越过去
+是说正史原生的麻球喵安
+
