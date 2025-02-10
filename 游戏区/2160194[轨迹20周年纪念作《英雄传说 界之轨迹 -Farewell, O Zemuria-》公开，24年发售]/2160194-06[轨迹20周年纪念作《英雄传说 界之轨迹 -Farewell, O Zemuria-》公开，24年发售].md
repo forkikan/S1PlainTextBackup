@@ -912,3 +912,14 @@ grand odyssey 19999-xxxxx
 
 好了，骂完接着买。
 
+
+*****
+
+####  天野银次X美堂蛮  
+##### 7614#       发表于 2025-2-10 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384250&amp;ptid=2160194" target="_blank">玩吗？ 发表于 2025-2-10 01:27</a>
+
+60小时通关剧情全塞最终章了，前几章完全就是在复用前作素材水时长，就加一个新城镇，这点上说连闪3都不如 ...</blockquote>
+可能空轨开始玩上来的会觉得情怀比较大？貌似凯文空轨三部曲后到这部为止应该都没当过主角出来过？？（空轨自己没玩不完全确定）
+
