@@ -16102,3 +16102,60 @@ PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江口夕  
+##### 20604#       发表于 2025-2-10 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还不知道大猫父母是什么问题呢，基本mujica已经确定所有人的问题都是和父母有关
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 20605#       发表于 2025-2-10 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386687&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-10 12:16</a>
+nico好评不就是和b站评分一个性质的东西吗？甚至nico要看完整集动画才有资格打评分，这已经筛选掉一部分 ...</blockquote>
+nico更像是刻度移动更难的情绪指示表，不是极度满足观众或者极度激怒观众，正常的nico打分比是不会有强烈波动的，特别是观影人数上体现更明显。都在3k上百人内波动说明受众很稳定，都在80%以上说明观众在目前播出的情况下并没有被激怒，情绪多向正面。
+
+作为对比例子可以看看隔壁虹与星（观看人数2k多），再扩展对比下闪彩12（观看人数2k5多），除了星3上海回和之后一回有突然的观影人数暴增到2k8，其他时候大家核心观众数量几乎没变化，而星团3暴增的观影人数和暴跌的打1百分比，就很明显看得出新增的人是来干什么的。
+
+作为情绪表征来说nico的可读性很高，国内这边观影人数太多带节奏的也多反而失去了一定的可读性。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 20606#       发表于 2025-2-10 13:47
+
+A团现在的表现就是音乐与人物生命力的割离，音乐在众人人生中的占比太小了，一支真正的少女乐队是不能将音乐追求与人生轨迹拆分开来的，所以故事最后还是会收束到音乐上
+
+“写歌真tm开心”
+“演奏真tm开心”
+“live真tm开心”
+“唱歌真tm开心”
+“弹吉他真tm开心”
+“弹贝斯真tm开心”
+“敲架子鼓真tm开心”
+“玩电子琴真tm开心”
+
+音乐就是唯心的力量，就是krkrdkdk，就是包饺子，就是少女乐队的基底和灵魂
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  安娜导函数  
+##### 20607#       发表于 2025-2-10 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387456&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-10 13:47</a>
+A团现在的表现就是音乐与人物生命力的割离，音乐在众人人生中的占比太小了，一支真正的少女乐队是不能将音 ...</blockquote>
+问题也没看出圣爱音觉得"弹吉他真TM开心"啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
