@@ -335,3 +335,14 @@ cookies估计早给它顺走了，就是不知道还给它传走了啥东西
 
 ----发送自 [HUAWEI VOG-L29,Android 10](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  泰坦失足  
+##### 113#         楼主| 发表于 2025-2-11 05:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390832&amp;ptid=2238299" target="_blank">椎名mahuyo 发表于 2025-2-10 21:49</a>
+
+试了下格兰蒂亚那锁30的版本 怎么补完变成个位数帧数了 帧数必须锁死么？</blockquote>
+是不是原窗口太大了？然后缩放写了个x2，把1440p窗口输入，运算量太大了
+
