@@ -17014,3 +17014,24 @@ Crychic已经不是问题了，这一话把Mujica的过渡回同时写成MyGO的
 
 话说大祥身边是醉酒中登等等现实世界压力，而这边则是踩空而无事的双人格（当然睦也有现实压力）+乐奈的超能力一般的眼睛，少女乐队番以前有这么<strong>三方混搭</strong>的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 20684#       发表于 2025-2-10 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67389430&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-10 17:59</a>
+
+问题蓝色坏女巫还欠大家一个道歉呢
+
+而且輪符雨里soyo那种未亡人的感觉以后再也没了嘛 这种事情不要啊 ...</blockquote>
+就好比Crychic是前任，MyGO是现任
+
+灯和Soyo已经决定好好跟现任一起过，但是跟前任分手的现场过于惨烈，她们一直以为是自己做错了什么Crychic才解散的
+
+反过来说，她们会想“如果我当初没有做错，是不是Crychic就不会解散了”，这一直是她们心里的一根刺
+
+直到现在她们才明白，原来Crychic解散真的跟她们没关系，从这开始就彻底放下了
+
+哪怕（比如说）为了救祥子或睦，Crychic限时回归，对她们来说也不过相当于开车带前任去医院，就是单纯的救一下熟人，心里不会产生任何波澜
+
