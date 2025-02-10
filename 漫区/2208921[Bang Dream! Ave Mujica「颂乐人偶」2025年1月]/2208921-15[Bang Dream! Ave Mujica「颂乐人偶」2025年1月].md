@@ -73,3 +73,14 @@ live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收�
 只要你觉得灵魂真的存在就行了——一般人也不会很拼命地 ...</blockquote>
 邦邦世界观是存在人格互换，并且存在生理意义上的人和猫灵魂互换的，比起来双重人格多大点事。
 
+
+*****
+
+####  金钱与民主  
+##### 20728#       发表于 2025-2-10 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391164&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-10 22:47</a>
+
+邦邦世界观是存在人格互换，并且存在生理意义上的人和猫灵魂互换的，比起来双重人格多大点事。 ...</blockquote>
+那是PICO，不是正片行吧......
+
