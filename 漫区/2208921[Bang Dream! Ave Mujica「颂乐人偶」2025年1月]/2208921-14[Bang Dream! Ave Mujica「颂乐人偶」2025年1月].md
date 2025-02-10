@@ -15757,3 +15757,39 @@ PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
 
 只要当最癫的那个仔就行了
 
+
+*****
+
+####  zhoujin8584  
+##### 20575#       发表于 2025-2-10 12:35
+
+好好好，🦄弄出正式的公式图了是吧
+
+<img src="https://img.saraba1st.com/forum/202502/10/123553wzz7juwuwd7m7vu0.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-gor9ZjT3cSlc-sg.jpg</strong> (185.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 12:35 上传
+
+
+*****
+
+####  zhoujin8584  
+##### 20576#       发表于 2025-2-10 12:40
+
+<blockquote>安娜导函数 发表于 2025-2-10 12:16
+不会有什么惊天的渲染了，大喵老师人设已经立起来了，再反转反而很刻意，能喜欢的就继续喜欢，接受不了的 ...</blockquote>
+仔细想想母鸡卡2.0喵祥就是团内唯一能互刚对线的了。什么angry sex、dirty talk，都是小case，恁初祥、睦祥能玩的动这个？快快端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海底铁锚  
+##### 20577#       发表于 2025-2-10 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386855&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-10 12:35</a>
+
+好好好，🦄弄出正式的公式图了是吧</blockquote>
+草，什么特摄设定书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
