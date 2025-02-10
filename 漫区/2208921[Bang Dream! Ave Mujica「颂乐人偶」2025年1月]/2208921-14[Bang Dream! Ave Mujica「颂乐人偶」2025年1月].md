@@ -16462,3 +16462,59 @@ go团就是个兴趣乐队，我记得访谈不都说了大家在一起搞乐队
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cccpprc  
+##### 20633#       发表于 2025-2-10 15:39
+
+<blockquote>xyion 发表于 2025-2-10 10:42
+先不说还有被误导自以为对祥子好而当内鬼这种非常好回撤的情况，就说海铃。她并不是不作为，第四话最后还 ...</blockquote>
+因为观众不想让海玲牺牲，想让海玲继续当雇佣兵啊。这楼上讨论不是很明白了嘛
+
+*****
+
+####  iiiiiiiiii  
+##### 20634#       发表于 2025-2-10 15:40
+
+<img src="https://img.saraba1st.com/forum/202502/10/153956sbht6q3zi9q533q4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250210_152834_tv.danmaku.bili.jpg</strong> (100.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-10 15:39 上传
+
+这张图有点诡异啊，该不会祥子把人偶当成想象伙伴吧。弹琴给人偶听
+
+*****
+
+####  ads147147  
+##### 20635#       发表于 2025-2-10 15:42
+
+记得之前有人说母鸡卡是漫威，mygo是dc来着。
+
+所以a团其实是复仇者联盟（）
+
+
+*****
+
+####  ads147147  
+##### 20636#       发表于 2025-2-10 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388341&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-10 15:40</a>
+
+这张图有点诡异啊，该不会祥子把人偶当成想象伙伴吧。弹琴给人偶听</blockquote>
+至少目前为止人偶的意向应该是指代祥子母亲，当然我记得也有解读认为现在的人偶指的是祥子自己。
+
+不管从哪个方向看，人偶面向指代内心呐喊的钢琴，都代表一种自省的态度。
+
+*****
+
+####  安娜导函数  
+##### 20637#       发表于 2025-2-10 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67388169&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-10 15:19</a>
+抛开大部分观众认为喵梦就是自私，就是恶心，就是无可救药的观点，以及先不讨论对睦伤害的结果(毕竟大喵确 ...</blockquote>
+我觉得想加入对内交流群的不但是大喵老师，海玲何尝不是？每次调侃自己"我脸蛋漂亮"，"我吃不胖"，结果压根没人理<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
