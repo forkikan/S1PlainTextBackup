@@ -16159,3 +16159,21 @@ A团现在的表现就是音乐与人物生命力的割离，音乐在众人人�
 A团现在的表现就是音乐与人物生命力的割离，音乐在众人人生中的占比太小了，一支真正的少女乐队是不能将音 ...</blockquote>
 问题也没看出圣爱音觉得"弹吉他真TM开心"啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 20608#       发表于 2025-2-10 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387496&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-10 13:52</a>
+
+问题也没看出圣爱音觉得"弹吉他真TM开心"啊</blockquote>
+碧天伴走演奏完时已经通过一张特写表现了，第一次享受到live的乐趣
+
+*****
+
+####  595505568  
+##### 20609#       发表于 2025-2-10 14:02
+
+对不起和放不下又是什么美味的关系性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
