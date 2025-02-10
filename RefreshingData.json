@@ -3777,7 +3777,7 @@
     "lastedit": 1739181120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -9369,10 +9369,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 9749,
+    "totalreply": 9750,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1739210169,
+    "lastedit": 1739220969,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15489,10 +15489,10 @@
     "update": false
   },
   "2245714": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[【ZT】扫游剧情排雷：《圣兽之王》——一颗金粒镶嵌在一锅排泄物上]",
     "newtitle": "[【ZT】扫游剧情排雷：《圣兽之王》——一颗金粒镶嵌在一锅排泄物上]",
-    "lastedit": 1739208858,
+    "lastedit": 1739221089,
     "category": "游戏区",
     "active": true,
     "update": false
