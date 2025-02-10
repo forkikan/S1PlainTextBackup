@@ -16263,3 +16263,56 @@ go团里爱音和猫猫本身玩乐队的理由就很纯粹，一个是享受现
 
 你真用鸡团的思路去反推go团的成因那问题大了去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 20617#       发表于 2025-2-10 14:35
+
+<blockquote>ads147147 发表于 2025-2-10 13:45
+nico更像是刻度移动更难的情绪指示表，不是极度满足观众或者极度激怒观众，正常的nico打分比是不会有强烈 ...</blockquote>
+国内其他不说了，叔叔家的很多人打分都是相对宽容的，现在能跌出9分有很大原因 要么是恨大祥，要么是多少代入大祥被剧本宛如种命第二的折磨气晕了
+
+*****
+
+####  595505568  
+##### 20618#       发表于 2025-2-10 14:38
+
+靠，不对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，灯-睦 睦-素的对不起和睦-灯的对不起程度不一样，一个是对不起 一个是请原谅我 带了命令式的…
+
+*****
+
+####  影伴光生  
+##### 20619#       发表于 2025-2-10 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">niconico的评分，负分榜那一串的兽娘2和游戏王A5，都是造奇观刷出来的，比纯放送事故都要低的一档
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 20620#       发表于 2025-2-10 14:41
+
+讨论少女乐队的时候，不能绕过和否定三个重要的问题:
+
+1.少女想用音乐做什么
+
+2.少女能用音乐做什么
+
+3.音乐能为少女做什么
+
+这三个问题对应故事的三个组成部分，即:人物行为的动机、故事展开的逻辑、人物形象的补完，如果看到出现“不合适”的情节时，不妨将音乐作为一个要素加入思考，也许就能得到答案也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 20621#       发表于 2025-2-10 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387686&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-10 14:19</a>
+爱音想享受瞩目和练吉他不冲突，也没有抢了灯的话筒自己唱，不炸团
+喵梦为了吃流量可是摘面具，虚情假意找 ...</blockquote>
+你说大喵为了流量摘面具不假，你说她虚情假意关心睦头就错了，她是真心觉得睦头在这里屈才了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大喵老师这人从头到尾提现就一个真情实感毫不掩饰直来直往，对谁都不惯着包括自己
+

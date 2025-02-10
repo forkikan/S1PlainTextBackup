@@ -514,3 +514,25 @@ D老师把斯普特尼克的名字都给抢了<img src="https://static.saraba1st
 其实也不便宜了，他们就是专门做早期开发的，天津武清这边就有好几家，干成一个能卖几千万美元吧，而且后 ...</blockquote>
 咋可能才几千万，几千万是里程碑付款的第一阶段的钱，如果成功上市，全款都是按亿算的
 
+
+*****
+
+####  The_Ether_  
+##### 44#       发表于 2025-2-10 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387748&amp;ptid=2245743" target="_blank">gnihton314 发表于 2025-2-10 14:26</a>
+
+生物药我不了解，化药方面国内这帮企业整天搞me too，把现成结构简单改下就是新药了，还有更鸡贼的氘代一下 ...</blockquote>
+行业整体往上走，总会有质变的一天的
+
+
+*****
+
+####  gnihton314  
+##### 45#       发表于 2025-2-10 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67387881&amp;ptid=2245743" target="_blank">The_Ether_ 发表于 2025-2-10 14:41</a>
+
+行业整体往上走，总会有质变的一天的</blockquote>
+这两年融资太难了
+
