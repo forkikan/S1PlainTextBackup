@@ -15661,3 +15661,99 @@ mujica到现在最大的问题还是炸团的方式太烂。其他都是次要�
 
 泛式形容说，mujica的炸团就像是各种炸弹都埋好了，就等一个火星引爆了，结果突然天上掉下来一个巡航导弹爆炸了。
 
+
+*****
+
+####  安娜导函数  
+##### 20565#       发表于 2025-2-10 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386495&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-10 11:51</a>
+
+如果按照悬疑剧或者剧本杀的思路，第七集应该就是发现“尸体”的阶段了。
+
+当然，这里的尸体是个比喻</blockquote>
+大家发现其实金毛并不是纯洁大狗狗，实际是心机婊？所谓的内鬼说一直以来都是以“TGW集团”是幕后黑手来演绎的，所谓核心目的是让小祥回到丰川家，但是有没有那么一种可能，其实黑手就是金毛，她就是想独占蓝色小章鱼呢<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KLHgg  
+##### 20566#       发表于 2025-2-10 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">内鬼论已然成为过去，初华配角论该提上日程了，备战sumimi剧场版补上初华故事
+
+*****
+
+####  takerest  
+##### 20567#       发表于 2025-2-10 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67384974&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-10 08:57</a>
+
+至少nico稳在3000+的观影人数和稳定的80%打1的好评率，说明目前按照nico的抽样比例下，并没有很多人觉得母 ...</blockquote>
+nico好评不就是和b站评分一个性质的东西吗？甚至nico要看完整集动画才有资格打评分，这已经筛选掉一部分中途不满退出的观众了，毕竟想打差评的观众很多也没耐心看完整集就为了打差评。
+
+*****
+
+####  安娜导函数  
+##### 20568#       发表于 2025-2-10 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386543&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-10 11:58</a>
+
+所以说大喵是最难被观众接受的，因为她不择手段，不管是不是内鬼，后面就要求渲染她早年经历有多么惨才行 ...</blockquote>
+不会有什么惊天的渲染了，大喵老师人设已经立起来了，再反转反而很刻意，能喜欢的就继续喜欢，接受不了的估计一直也不会接受了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+PS：我是爱喵厨 祥子老师什么时候快上演爱猫TV啊
+
+*****
+
+####  江口夕  
+##### 20569#       发表于 2025-2-10 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">初华有几处很明显的，会读空气的话应该都懂，比如准备把某女士的甜甜圈分给大祥吃。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿兹尔  
+##### 20570#       发表于 2025-2-10 12:17
+
+初华是内鬼塑造感觉还挺难救的，不是坏就是蠢，要不以后邦邦主唱合照让祥子去吧，金毛有点不像人类了
+
+*****
+
+####  安娜导函数  
+##### 20571#       发表于 2025-2-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67386695&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-10 12:17</a>
+
+初华是内鬼塑造感觉还挺难救的，不是坏就是蠢，要不以后邦邦主唱合照让祥子去吧，金毛有点不像人类了 ...</blockquote>
+初华不是内鬼，初华就是黑手本身<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 20572#       发表于 2025-2-10 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">初华自从被莫小姐随便拿捏后，捕食者的逼格就荡然无存了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  mono  
+##### 20573#       发表于 2025-2-10 12:21
+
+大喵布兰度早年丧母 父亲酗酒病死 严酷的孤儿院环境导致她不择手段向上爬的性格
+
+祥子：<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 20574#       发表于 2025-2-10 12:23
+
+初华只差一个爱的表白表示要排除那些让🐘感受到痛苦的东西了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+只要当最癫的那个仔就行了
+
