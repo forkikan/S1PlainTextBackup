@@ -2435,3 +2435,77 @@ C团被大人的破事打碎
 
 然后就是初华一脸惊讶“说好的不组乐队就会幸福呢”
 
+
+*****
+
+####  玖羽  
+##### 20942#       发表于 2025-2-11 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398126&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-11 21:27</a>
+
+我觉得凑个三起三落吧
+
+C团被大人的破事打碎
+
+鸡团被自己的软弱毁灭
+
+新鸡团继续被大人的破事打碎
+
+然后就是初华一脸惊讶“说好的不组乐队就会幸福呢”</blockquote>
+不不……两次打碎就重复了，新生Mujica就是要超级成功，大!成功，除了一个小问题，祥子怎么看怎么有点不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 20943#       发表于 2025-2-11 21:30
+
+下集特殊ED
+
+*****
+
+####  K·os  
+##### 20944#       发表于 2025-2-11 21:32
+
+只有ras是非主唱核心的队伍，原因在于只有ras是真的现有真人乐队，而楚平芳是后面转正加进来的角色
+
+mygo当然也是以灯为核心的作品，都先不论全剧剧情的最高潮就是灯终于站起来学会了怎么作为一个主唱去战斗，mygo结成篇的核心矛盾其实就是，在crychic解散后，有迷茫的灯和想要回到crychic的soyo，anon作为外来者为这个矛盾赋能，到最后灯终于打动了soyo，灯素天桥谈话是实质上的mygo最后一个场景，对剧情主轴的提示是很明显的从“我一直都不擅长灯的歌词”到“我一生都忘不了crychic了”，只是因为13话加入了ave的部分剧情，导致许多人忽视了这一段
+
+*****
+
+####  迷途人偶的呐喊  
+##### 20945#       发表于 2025-2-11 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398143&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 21:30</a>
+下集特殊ED</blockquote>
+ed是新歌是否说明没live
+
+*****
+
+####  影伴光生  
+##### 20946#       发表于 2025-2-11 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然都最狂了，不如直接穿越到异世界开启奇妙冒险（水团也干了）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  K·os  
+##### 20947#       发表于 2025-2-11 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398161&amp;ptid=2208921" target="_blank">迷途人偶的呐喊 发表于 2025-2-11 21:32</a>
+
+ed是新歌是否说明没live</blockquote>
+可能live在前半，后面是睦祥和解后祥子崛起<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 20948#       发表于 2025-2-11 21:36
+
+特殊ed那肯定是live了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 海玲那张估计在结尾。
+鸡第一集也是live代替op，虽然一般第一集不放op
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
