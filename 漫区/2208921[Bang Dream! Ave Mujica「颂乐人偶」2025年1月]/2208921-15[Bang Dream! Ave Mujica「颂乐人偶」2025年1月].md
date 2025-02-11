@@ -2957,3 +2957,15 @@ bang世界又不是有没有超级英雄，我支持hhw空降好吧<img src="htt
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 20997#       发表于 2025-2-11 23:29
+
+感觉不如牢爹入赘长崎家…带劲
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
