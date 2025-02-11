@@ -1409,3 +1409,81 @@ mygo第十三集大家都以为祥子黑化搞了个鸡团要起飞
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  看穿一切的鱼  
+##### 20850#       发表于 2025-2-11 13:58
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-11 14:00 编辑 
+
+可能是包完ccc和睦祥的饺子最后几分钟开live然后给个海玲在台下的画面，本集结束。
+
+白祥能返场吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 20851#       发表于 2025-2-11 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394743&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 13:29</a>
+op有了，如果真是，类似llx一样的腹黑角色。而且数值巨高无比，毕竟是很强很强的人偶 ...</blockquote>
+黑化的不会是祥子而是初华吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 20852#       发表于 2025-2-11 14:00
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-11 14:01 编辑 
+<blockquote>安娜导函数 发表于 2025-2-11 13:59
+黑化的不会是祥子而是初华吧</blockquote>
+
+贴吧有人对照过，说是祥子，看刘海。下一祯有戴手套的祥子擦镜子
+
+
+*****
+
+####  huxiaopao163  
+##### 20853#       发表于 2025-2-11 14:02
+
+<img src="https://p.sda1.dev/21/cbc5666c515174502014d28b0ec0866e/IMG_CMP_240102738.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iiiiiiiiii  
+##### 20854#       发表于 2025-2-11 14:02
+
+<img src="https://img.saraba1st.com/forum/202502/11/140226weh0tgm6m0u7e2eb.jpg" referrerpolicy="no-referrer">
+
+<strong>46CFBDB80C69757C12AAAACAD7CCA229.jpg</strong> (44.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 14:02 上传
+
+这不是开live的CG配置啊
+
+*****
+
+####  小博禹  
+##### 20855#       发表于 2025-2-11 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395004&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-11 14:02</a>
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+不会真要
+BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 20856#       发表于 2025-2-11 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395005&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 14:02</a>
+这不是开live的CG配置啊</blockquote>
+有哪个舅舅说了第七话一定会有live嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
