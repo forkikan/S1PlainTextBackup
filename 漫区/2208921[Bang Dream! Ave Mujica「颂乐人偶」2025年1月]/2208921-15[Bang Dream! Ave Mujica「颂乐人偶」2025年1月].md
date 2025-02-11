@@ -339,3 +339,30 @@ https://tieba.baidu.com/p/9483892538</blockquote>
 —— 来自 vivo V2301A, Android 14上 ...</blockquote>
 我觉得弹钢琴那个画面就是“送给已逝之人”（祥妈）了
 
+
+*****
+
+####  天空塔书记官  
+##### 20752#       发表于 2025-2-11 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 20753#       发表于 2025-2-11 10:45
+
+<blockquote>CCauchy 发表于 2025-2-11 10:17
+这季画面下了血本了, 有的地方都看不出是作画还是3D</blockquote>
+特别是祥子，面部表情非常的精致，第一季的go团比不了的灵动
+
+
+*****
+
+####  单脚着地  
+##### 20754#       发表于 2025-2-11 10:53
+
+提到交响诗篇，能复刻段媲美安妮莫奈的经典独白不，超神的小清水。。。。诗超绊还真比不上，母鸡卡能更上一层楼不
+
