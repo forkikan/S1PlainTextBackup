@@ -3017,3 +3017,37 @@ bang世界又不是有没有超级英雄，我支持hhw空降好吧<img src="htt
 
 NGA匿个名就能当舅舅了，然后还一堆人信，闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 21002#       发表于 2025-2-12 00:50
+
+不管下集烧不烧，火烧中登这个情节属于随时可以发生也可以不发生的，阴影估计能笼罩到完结。
+
+*****
+
+####  玖羽  
+##### 21003#       发表于 2025-2-12 00:52
+
+来个真看过第7话的人透的吧
+
+【中字/相羽爱奈/丰田萌绘】Mujica第7集必看哭
+[https://www.bilibili.com/video/BV1q1NzeVEA9/](https://www.bilibili.com/video/BV1q1NzeVEA9/)
+
+- 有趣（おもろい）
+
+- 必看哭（不过她第6话也看哭了）
+
+- MyGO从后半开始活跃
+
+- 角色产生联系的方式非常惊喜（絡み方がなんとも…って感じ）
+
+
+*****
+
+####  烂片雷达  
+##### 21004#       发表于 2025-2-12 00:55
+
+终于有声优看哭了，可以期待一下了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

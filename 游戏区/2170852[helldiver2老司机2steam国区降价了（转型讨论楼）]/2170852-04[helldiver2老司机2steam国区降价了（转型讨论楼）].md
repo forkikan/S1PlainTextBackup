@@ -937,3 +937,15 @@ GP-31最后通牒
 双刃镰活了几天</blockquote>
 绑防火甲体感差别不大，4阶段趴地上打掉血速度也没快到哪去
 
+
+*****
+
+####  风萧飒  
+##### 5757#       发表于 2025-2-12 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397577&amp;ptid=2170852" target="_blank">heseran 发表于 2025-2-11 20:02</a>
+核弹手枪我还没爽到就挨刀了吗</blockquote>
+你要用来炸干扰塔的话其实没什么影响
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
