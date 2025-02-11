@@ -59,3 +59,17 @@ PC端的汉化甚至是开服不久的时候就有了。
 
 作为速刷天花板，烧伤队在牢内已经毫无操作空间了，不知何时能在牢外也有一席之地。
 
+
+*****
+
+####  fayespike  
+##### 1081#       发表于 2025-2-11 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396700&amp;ptid=2120922" target="_blank">lesword 发表于 2025-2-11 17:32</a>
+这游戏的汉化到处都是吧，各种加速器甚至支持IOS端的汉化。
+
+PC端的汉化甚至是开服不久的时候就有了。</blockquote>
+我知道零协汉化那么久了，用爱发电也该到头了吧。一个中日韩三国玩的游戏出了两年没汉化，是中国人掏钱少吗？我开服玩了半年弃坑的，想回坑发现还在吸汉化组的血瞬间不舒服了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
