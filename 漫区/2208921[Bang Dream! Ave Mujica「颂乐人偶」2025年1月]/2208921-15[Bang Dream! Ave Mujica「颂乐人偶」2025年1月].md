@@ -1987,3 +1987,18 @@ ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
 
   小祥子，真以为我有病啊，逗逗你的呀
 
+
+*****
+
+####  天邪鬼  
+##### 20901#       发表于 2025-2-11 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396857&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-11 17:52</a>
+刚回看一下以前看过的一部双重人格的电视剧
+
+一开始，主人公会在外力作用或极端情况下切换人格，而且也是非 ...</blockquote>
+方谬神探是吧
+但如果两个都是自己的话，就说明祥子并没有对不起睦，反而是睦实打实的把祥子的精神寄托拆散了（虽然她没这个意图）
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
