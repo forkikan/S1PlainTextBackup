@@ -2068,3 +2068,28 @@ ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
 
 NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mortis和oblivious在表演祥睦半身，但是祥睦人格已经消失 外人觉得这是一个很有团魂很有爱的团队。可是细心人总觉得有一丝不对劲的地方。只能说这个结局太克系了。
 
+
+*****
+
+####  天空塔书记官  
+##### 20909#       发表于 2025-2-11 19:52
+
+是不是“最狂”不好说，但一定是观众最能发癫的一部少女乐队番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 20910#       发表于 2025-2-11 19:56
+
+<img src="https://img.saraba1st.com/forum/202502/11/195612kc2vo854k88888k4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250211_195517_gov.pianzong.androidnga.jpg</strong> (286.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 19:56 上传
+
+已经划到京吹3了
+
