@@ -1018,3 +1018,25 @@ grand odyssey 19999-xxxxx
 还是闪3恶心，没有亲爸和便宜老妈对着无能狂怒的黎恩说风凉话的环节，学妹只是和之前的falcom女主那样挂 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">但是闪3只关了1年（
 
+
+*****
+
+####  zhouaa  
+##### 7625#       发表于 2025-2-11 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398525&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-11 22:32</a>
+
+另外最终章范爷的逻辑我看不懂 你救啥救 人家老爸是真的在保护她又不是被什么邪教抓走了 然后学妹跑了又去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人主角不就这样 追求形式正义 至于结果交给可能性和运气
+
+*****
+
+####  alucardcz  
+##### 7626#       发表于 2025-2-11 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398953&amp;ptid=2160194" target="_blank">zhouaa 发表于 2025-2-11 23:52</a>
+
+日本人主角不就这样 追求形式正义 至于结果交给可能性和运气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">可他正义了个啥 鸭脖吗（  
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">基本上属于什么都不知道的情况下在那搅x
+
