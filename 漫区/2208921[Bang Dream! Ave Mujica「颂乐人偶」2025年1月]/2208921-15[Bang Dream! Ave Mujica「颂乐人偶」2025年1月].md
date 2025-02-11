@@ -2341,3 +2341,29 @@ crychic这集不live 怕不是就要到13集最后四个人看着进门的祥老
 
 什么单核带队
 
+
+*****
+
+####  烂片雷达  
+##### 20936#       发表于 2025-2-11 21:11
+
+不知道祥子听到素和墨在睦的房间里三天三夜什么感想
+又想到祥子在素墨三天三夜的房间里跪了一夜，不禁感到更变态了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 20937#       发表于 2025-2-11 21:13
+
+鸡的1号位肯定是大祥啊，2号位都不一定轮得到路人主唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  十万年魂环  
+##### 20938#       发表于 2025-2-11 21:17
+
+旧高父的三天三夜感觉要给融了<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
