@@ -3385,3 +3385,14 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 在想可能是cherry studio不适合DM扮演这个模式，明天开始换成酒馆<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Algie  
+##### 1785#       发表于 2025-2-12 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397651&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-11 20:16</a>
+
+试下我上面给的那个prompt改一下</blockquote>
+那个rp的破甲prompt？我看看
+
