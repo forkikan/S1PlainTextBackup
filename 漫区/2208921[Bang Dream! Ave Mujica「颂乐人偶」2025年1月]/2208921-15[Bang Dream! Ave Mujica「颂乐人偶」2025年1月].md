@@ -1169,3 +1169,167 @@ op有了，如果真是，类似llx一样的腹黑角色</blockquote>
 
 我对夏日漱石的《心》在动画中的意象理解，祥子拿起这本书是在自暴自弃的自怨自艾，放下这本书才是真正自省后承担责任的开始
 
+
+*****
+
+####  玖羽  
+##### 20830#       发表于 2025-2-11 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394788&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-11 13:34</a>
+
+你们在对一个后续要进萌萌手游的企划期待些什么东西啊</blockquote>
+我猜的，不负责
+
+不耽误进手游，因为不会直说，可能会包装成燃烧自己、人偶化或者什么东西，但实质上就是
+
+*****
+
+####  ArcadiaMartyr  
+##### 20831#       发表于 2025-2-11 13:36
+
+黑化了又能干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+mygo第十三集大家都以为祥子黑化搞了个鸡团要起飞
+结果呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  南宮凝香  
+##### 20832#       发表于 2025-2-11 13:37
+
+大祥現在再變鳳傲天也沒用
+
+全世界都知道她一碰壁就會變逃避小象
+
+騙不了人
+
+白象
+
+黑象
+
+小象
+
+真爆點只有飛象
+
+但飛象一出， 這刻畫就是比爛透還爛透了
+
+*****
+
+####  玖羽  
+##### 20833#       发表于 2025-2-11 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394801&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-11 13:36</a>
+
+黑化了又能干嘛
+
+mygo第十三集大家都以为祥子黑化搞了个鸡团要起飞
+
+结果呢</blockquote>
+我猜的，不负责
+
+表现可能会是某些人心心念念的大女主凤傲天，极度完美干啥啥行，就是什么地方有点不对劲
+
+*****
+
+####  iiiiiiiiii  
+##### 20834#       发表于 2025-2-11 13:38
+
+<blockquote>zhoujin8584 发表于 2025-2-11 13:36
+我对夏日漱石的《心》在动画中的意象理解，祥子拿起这本书是在自暴自弃的自怨自艾，放下这本书才是真正自省 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/11/133801svmy0wmrm40dzzdd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250211_133750_tv.danmaku.bili.jpg</strong> (219.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 13:38 上传
+
+如果这一幕是初华收到祥子遗书呢，我觉得很合理啊
+
+*****
+
+####  flyingover  
+##### 20835#       发表于 2025-2-11 13:38
+
+第七集，睦反击大莫，祥子被c团几个拉扯以后，跟睦和解，跟c团和解，然后说暂时不组乐队了，初华因为某些事情黑化。是不是这样的节奏会好点？
+
+*****
+
+####  08df1258c5ed098  
+##### 20836#       发表于 2025-2-11 13:38
+
+黑化就不会找睦哭哭了吧，不应该找老登哭哭要把四个成员搞成人偶那样绑在自己身边么（海报那种）<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 20837#       发表于 2025-2-11 13:39
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-11 13:41 编辑 
+
+顶多是soyo给小祥推倒整哭了我看，骑在身上破颜修正一下我看也不错，气氛都到这了，观众也能解点气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 20838#       发表于 2025-2-11 13:40
+
+<blockquote>南宮凝香 发表于 2025-2-11 13:37
+大祥現在再變鳳傲天也沒用
+
+全世界都知道她一碰壁就會變逃避小象
+</blockquote>
+舞台装置不要太了解，可能就是少女歌剧再生产呢
+
+*****
+
+####  aptx8285144  
+##### 20839#       发表于 2025-2-11 13:41
+
+其他不知道，看这集简介指望大祥能被推一把就能一口气打出真心人格（只对睦个人而言，就别说其他麻烦事情了），感觉有点难<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 20840#       发表于 2025-2-11 13:42
+
+我只是想听黑色生日.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  08df1258c5ed098  
+##### 20841#       发表于 2025-2-11 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394824&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-11 13:39</a>
+顶多是soyo给小祥推倒整哭了我看，骑在身上破颜修正一下我看也不错，气氛都到这了，观众也能解点气 ...</blockquote>
+爽姐要是大庭广众下骑着祥子大打出手，丰川家的黑衣人全得下岗吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 20842#       发表于 2025-2-11 13:44
+
+不赶紧在这一集解决祥睦问题，让俩人先扭成一股绳，这后面剧本真的就要烂完了(虽然已经很烂了)。
+估计就是这集俩人交心扭成一股绳吧，然后睦干不了的交涉活mortis来干了。(什么传声筒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天邪鬼  
+##### 20843#       发表于 2025-2-11 13:46
+
+黑化了之后呢，哪怕她就这么雄起到结束也会被认为下次再遇到大的打击就糯了
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
