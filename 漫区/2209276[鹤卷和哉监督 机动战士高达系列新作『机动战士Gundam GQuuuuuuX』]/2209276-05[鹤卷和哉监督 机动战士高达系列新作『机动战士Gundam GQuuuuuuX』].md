@@ -11504,3 +11504,30 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 过场动画指这个麽？</blockquote>
 两张图上粉毛的气质都不一样了
 
+
+*****
+
+####  llysander  
+##### 6797#       发表于 2025-2-11 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392991&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-11 10:33</a>
+
+两张图上粉毛的气质都不一样了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 坐在驾驶舱里超强气状态面容普遍会狰狞一点
+
+*****
+
+####  Gysumitka  
+##### 6798#       发表于 2025-2-11 11:08
+
+<img src="https://p.sda1.dev/21/763a08cbaab89ae2cb417a458b20bf0e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 6799#       发表于 2025-2-11 11:09
+
+这么快就把4D端上来了啊
+
+因为上周末不到两亿的关系？
+

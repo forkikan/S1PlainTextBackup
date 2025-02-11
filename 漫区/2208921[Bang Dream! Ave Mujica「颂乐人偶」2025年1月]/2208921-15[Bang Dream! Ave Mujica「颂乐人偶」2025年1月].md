@@ -366,3 +366,103 @@ https://tieba.baidu.com/p/9483892538</blockquote>
 
 提到交响诗篇，能复刻段媲美安妮莫奈的经典独白不，超神的小清水。。。。诗超绊还真比不上，母鸡卡能更上一层楼不
 
+
+*****
+
+####  一心而用  
+##### 20755#       发表于 2025-2-11 11:06
+
+Ave Mujica 第7话 先行图
+<img src="https://p.sda1.dev/21/3ee9775b8d4b5adf23573edcd23a3dd4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/e832634d4eec38be1403db10682e0c0c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c25aba62090a9932ee3ae079840c4e96/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9778982aefa063db19f7d33cdb1e1255/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 20756#       发表于 2025-2-11 11:07
+
+這星期的圖透太清水
+
+散了散了
+
+回家包餃子了
+
+*****
+
+####  fuwamoco  
+##### 20757#       发表于 2025-2-11 11:08
+
+祥黑说话！
+
+*****
+
+####  刑部姬真可爱  
+##### 20758#       发表于 2025-2-11 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67393317&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-11 11:08</a>
+
+祥黑说话！</blockquote>
+莫提斯：有人叫我吗？祥子？无关心。
+
+*****
+
+####  swessia  
+##### 20759#       发表于 2025-2-11 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">B part和C part肯定有大的吼吼吼
+
+海玲都在livehouse了还能没live？
+
+另外b站小编是真喜欢soyo啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连着两集加戏了
+
+*****
+
+####  cauchua3  
+##### 20760#       发表于 2025-2-11 11:09
+
+来个时间戳看一下在前段还是后端
+
+
+*****
+
+####  刑部姬真可爱  
+##### 20761#       发表于 2025-2-11 11:10
+
+传奇笑星长期素食，soyo是不是两部里大头特写最多的角色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 20762#       发表于 2025-2-11 11:14
+
+從某個角度看
+
+這集圖透不爛炒
+
+可能真有大的藏著
+
+*****
+
+####  天空塔书记官  
+##### 20763#       发表于 2025-2-11 11:15
+
+第七集再没大的，wsd就是真没货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ml1642879  
+##### 20764#       发表于 2025-2-11 11:15
+
+已经默认图透越爆实际越闹了吗
+
+*****
+
+####  刑部姬真可爱  
+##### 20765#       发表于 2025-2-11 11:15
+
+在阿B的staff也是有点幽默的，上一次喵梦频道就#4变#3，这次还能#7变#6的
+
