@@ -289,3 +289,22 @@ live后接的短信是祝你幸福，然后是开始缺席。黑刀之夜是收�
 
 今天是不是要有下一集的新情报了
 
+
+*****
+
+####  ads147147  
+##### 20747#       发表于 2025-2-11 09:30
+
+周2中午又是wsd图透烂抄的时候了。。。现在出来的图一律认为是不重要的信息（
+
+*****
+
+####  NaAgfykp  
+##### 20748#       发表于 2025-2-11 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391731&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-11 01:04</a>
+https://tieba.baidu.com/p/9483892538</blockquote>
+重要的信息必须用浅显的方式表明。像这样写只会导致词不达意引发人设和剧情的崩坏
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
