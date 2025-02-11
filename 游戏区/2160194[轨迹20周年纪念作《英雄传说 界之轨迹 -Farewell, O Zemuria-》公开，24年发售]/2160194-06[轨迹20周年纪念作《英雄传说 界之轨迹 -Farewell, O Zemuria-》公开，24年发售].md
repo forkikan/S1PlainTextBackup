@@ -986,3 +986,14 @@ grand odyssey 19999-xxxxx
 
 这游戏框架不是和闪3一样。。。90%的注水+谜语人 最终章才来了个大的  只不过这次的大是真的很大 但是咚的地方比闪3还恶心人几十亿倍 而且闪3闪4就1年时间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7622#       发表于 2025-2-11 22:32
+
+ 本帖最后由 alucardcz 于 2025-2-11 22:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">另外最终章范爷的逻辑我看不懂 你救啥救 人家老爸是真的在保护她又不是被什么邪教抓走了 然后学妹跑了又去跟大总统jjyy。。这不是纯纯的搅shi棍吗  
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">是不是自己也知道分割的不是地方强行为了塞个最终迷宫和战斗找理由？
+

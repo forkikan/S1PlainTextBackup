@@ -2750,3 +2750,80 @@ Wonder of u 祥老师<img src="https://static.saraba1st.com/image/smiley/face201
 百特曼总比四百大妈好吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，其实不是漫威是dc，祥子是百特曼，睦是双面人，初华是猫女，海玲是谜语人，喵梦是小丑是吧？
 
+
+*****
+
+####  fuwamoco  
+##### 20974#       发表于 2025-2-11 22:24
+
+初华放的火
+
+*****
+
+####  ml1642879  
+##### 20975#       发表于 2025-2-11 22:24
+
+日本不也搞得到双管猎枪吗，来点更摇滚的不好吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 20976#       发表于 2025-2-11 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398463&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-11 22:24</a>
+日本不也搞得到双管猎枪吗，来点更摇滚的不好吗
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此事记载于孕吧的知名二创——杀没灯姐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 20977#       发表于 2025-2-11 22:26
+
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，讲点家庭吧还是
+
+*****
+
+####  十万年魂环  
+##### 20978#       发表于 2025-2-11 22:27
+
+家族爱看太多了，还是不要端上来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 20979#       发表于 2025-2-11 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398487&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-11 22:27</a>
+家族爱看太多了，还是不要端上来了吧</blockquote>
+ 那也没必要烧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，太作孽了
+
+
+*****
+
+####  K·os  
+##### 20980#       发表于 2025-2-11 22:31
+
+不得不提的是，bang dream里面的bang其实就是开枪的意思，所以不要觉得真的不会有双管猎枪
+
+*****
+
+####  十万年魂环  
+##### 20981#       发表于 2025-2-11 22:31
+
+孤儿也是二刺螈的时尚单品，当然我是不觉得会整火烧这活的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 20982#       发表于 2025-2-11 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398517&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-11 22:31</a>
+孤儿也是二刺螈的时尚单品，当然我是不觉得会整火烧这活的</blockquote>
+太时尚单品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，邦多利不至于新十年第二只乐队就是全员各色各类抽象具象的孤儿组成的乐队吧
+
