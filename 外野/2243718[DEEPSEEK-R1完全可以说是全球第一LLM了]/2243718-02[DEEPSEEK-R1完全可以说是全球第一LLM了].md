@@ -3256,3 +3256,27 @@ chatbox的电脑网页端和手机app端不能同步吗？手机app下了后没�
 
 硅基邀请链接：[https://cloud.siliconflow.cn/i/xm3yWd26](https://cloud.siliconflow.cn/i/xm3yWd26)
 
+
+*****
+
+####  ltycomputer  
+##### 1774#       发表于 2025-2-11 17:23
+
+【【纯cpu方案】本地部署deepseek-r1-671b-q8速度初测-哔哩哔哩】 
+
+https://www.bilibili.com/video/BV1JMNaexEgX/
+
+双路EPYC 9004，合计24通道DDR5 4800，900GB/s内存带宽还是很慢......
+
+
+*****
+
+####  ltycomputer  
+##### 1774#       发表于 2025-2-11 17:23
+
+【【纯cpu方案】本地部署deepseek-r1-671b-q8速度初测-哔哩哔哩】 
+
+https://www.bilibili.com/video/BV1JMNaexEgX/
+
+双路EPYC 9004，合计24通道DDR5 4800，900GB/s内存带宽还是很慢......
+
