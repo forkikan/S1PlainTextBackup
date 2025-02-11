@@ -1487,3 +1487,54 @@ BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" refer
 这不是开live的CG配置啊</blockquote>
 有哪个舅舅说了第七话一定会有live嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 20857#       发表于 2025-2-11 14:12
+
+<blockquote>huxiaopao163 发表于 2025-2-11 14:02
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+作詞已經神隱了
+
+*****
+
+####  huxiaopao163  
+##### 20858#       发表于 2025-2-11 14:14
+
+下集预告的文字内容，虽然基本就是重复上集已有的内容，但应该是明确了下集会继续讲C团的事情。
+
+然后按照上面的采访，感觉应该指的是C团解散的事情还有后续，还有秘密没有揭示。
+
+此外，说是准备好手帕，但不能透露是哪种泪水。难道还能不是“感动”的泪水吗，是“悲伤”的泪水吗？
+
+*****
+
+####  看穿一切的鱼  
+##### 20859#       发表于 2025-2-11 14:15
+
+既然是史上最狂乐队动画，说不定结局没和解呢。Dlc内容在手游里看。
+
+*****
+
+####  operatbig  
+##### 20860#       发表于 2025-2-11 14:16
+
+能不能继续拷打？
+
+*****
+
+####  狮子咕  
+##### 20861#       发表于 2025-2-11 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气哭了
+
+*****
+
+####  595505568  
+##### 20862#       发表于 2025-2-11 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395105&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-11 14:15</a>
+既然是史上最狂乐队动画，说不定结局没和解呢。Dlc内容在手游里看。</blockquote>
+这个肯定是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，拉新不会全拉手游的
+
