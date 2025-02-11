@@ -3276,3 +3276,15 @@ niconico前6话好评率
 
 我没有那么喜欢女女关系性 还是期待像mygo那样心思细腻逻辑自洽的作品 现在看来越来越不可能了 -1
 
+
+*****
+
+####  huanzhi  
+##### 327#       发表于 2025-2-11 17:20
+
+不是一家人，不进一家门，建议彻底锁死
+
+把狗扯进来就是为了给鸡团各种神人擦屁股，真有你的独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+求你了，学福田可以，后面可千万别学成福井啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
