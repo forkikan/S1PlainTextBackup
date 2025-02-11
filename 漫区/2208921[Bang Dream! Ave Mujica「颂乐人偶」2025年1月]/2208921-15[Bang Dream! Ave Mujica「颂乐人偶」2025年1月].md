@@ -316,3 +316,26 @@ https://tieba.baidu.com/p/9483892538</blockquote>
 
 这季画面下了血本了, 有的地方都看不出是作画还是3D
 
+
+*****
+
+####  哈曼的YY  
+##### 20750#       发表于 2025-2-11 10:36
+
+ 本帖最后由 哈曼的YY 于 2025-2-11 10:38 编辑 
+
+让我想起交响诗篇喜欢放金枝装逼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+上周预告图放个让人误解莫姐跪了就知道武士道这病犯的停不下来了
+
+*****
+
+####  cccpprc  
+##### 20751#       发表于 2025-2-11 10:37
+
+<blockquote>NaAgfykp 发表于 2025-2-11 00:26
+在想13话的和解会是像寻梦环游记那样的吗？演奏送给已逝之人的歌谣
+
+—— 来自 vivo V2301A, Android 14上 ...</blockquote>
+我觉得弹钢琴那个画面就是“送给已逝之人”（祥妈）了
+
