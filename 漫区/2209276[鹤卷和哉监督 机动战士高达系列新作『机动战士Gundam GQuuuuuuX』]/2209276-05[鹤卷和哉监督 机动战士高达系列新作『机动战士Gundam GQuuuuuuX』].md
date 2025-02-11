@@ -11444,3 +11444,37 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 
 这本书有“UC的高堡奇人”的美誉
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6794#       发表于 2025-2-11 10:00
+
+ 本帖最后由 gundammarkⅡ 于 2025-2-11 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391581&amp;ptid=2209276" target="_blank">zakufa782 发表于 2025-2-11 00:18</a>
+
+奶奶头vs汤大基应该会很有意思
+
+总帅想要我效忠，天才们（自称）的权力头脑战</blockquote>
+过场动画指这个麽？
+
+<img src="https://img.saraba1st.com/forum/202502/11/095521wfu9we85l758fpcf.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Newtype-corps.webp</strong> (175.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 09:55 上传
+
+黑发拉拉，蓝发玛丽安（EXAM），粉红长发是0079小说版原创的库斯可·艾儿，就是潜入side6与阿姆罗相遇，后来被G3高达击落的爱美号三号机那位<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+基连的野望里画了形象，还加到了OP里
+
+<img src="https://img.saraba1st.com/forum/202502/11/100346ktuwh9seaaab53wv.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Chara_KuzcoAl_p01_SagaSaturn-MSGundamGihrensGreed.webp</strong> (34.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 10:03 上传
+

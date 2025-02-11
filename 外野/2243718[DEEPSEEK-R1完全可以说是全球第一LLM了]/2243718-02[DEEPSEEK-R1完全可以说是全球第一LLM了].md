@@ -3080,3 +3080,18 @@ https://cloud.siliconflow.cn/i/gEn14WDG
 
 手机厂提供的都是满血的？
 
+
+*****
+
+####  2017.05.04  
+##### 1757#       发表于 2025-2-11 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392624&amp;ptid=2243718" target="_blank">kouym 发表于 2025-2-11 09:47</a>
+
+手机厂提供的都是满血的？</blockquote>
+菊花的是
+
+还能联网，目前用下来体验比硅基和其他几家都好
+
+也就比没被ddos时候的DS自家联网版差一点
+
