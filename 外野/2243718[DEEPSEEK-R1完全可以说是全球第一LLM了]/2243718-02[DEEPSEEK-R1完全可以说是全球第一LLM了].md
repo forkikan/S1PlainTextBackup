@@ -3325,3 +3325,20 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100%）才有官网的水平。另外这玩意是不是既没有历史记录，又没有自动将答案生成文本的能力？这点很不方便啊
 
+
+*****
+
+####  sodah  
+##### 1779#       发表于 2025-2-11 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就个人体验而言，随手写的话R1的文笔已经很够用，之前写乏了无聊想着整点黄色废料就让D老师给我生成一个男主给其中一名女角色的嗦脚的场景。我就给了个不要猎奇的限制。D老师写的可不要太好了还贴合我之前给的人物设定什么的。而且贴心给你起个番外标题
+
+*****
+
+####  约翰里德  
+##### 1780#       发表于 2025-2-11 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397179&amp;ptid=2243718" target="_blank">leia_rolando 发表于 2025-2-11 18:51</a>
+花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100 ...</blockquote>
+生成文本的能力有啊，你跟他说要能复制粘贴或者txt格式的，他会出纯txt格式的
+
