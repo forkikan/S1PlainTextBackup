@@ -61,3 +61,22 @@ P站联动活动居然没有在复刻票兑换里<img src="https://static.saraba
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  wilkyway  
+##### 1374#       发表于 2025-2-11 20:37
+
+所以你游现在还有什么靠谱的氪金渠道嘛 鬼子这新政策搞得国内信用卡全完蛋了google点卡还锁区
+
+
+*****
+
+####  冰风血羽  
+##### 1375#       发表于 2025-2-11 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397806&amp;ptid=2104259" target="_blank">wilkyway 发表于 2025-2-11 20:37</a>
+
+所以你游现在还有什么靠谱的氪金渠道嘛 鬼子这新政策搞得国内信用卡全完蛋了google点卡还锁区 ...</blockquote>
+之前在DMM用过信用卡吗，我的visa目前还可以
+
