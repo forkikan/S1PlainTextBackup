@@ -1810,3 +1810,81 @@ test
 <img src="https://p.sda1.dev/21/2d256c2e8503f47baa1bb06129cd84ed/3.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/865af63eca9a4ec7fa5c600b0c2e86b2/4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 20887#       发表于 2025-2-11 17:05
+
+看了一些下集预告图片的分析
+
+一个是小睦用书砸的镜子，是房间里梳妆台的镜子。
+
+二是海玲待的地方确实是在ring里面，应该是在看live
+
+cb58bcec8a136327f931ab1ad78fa0ec09fac747.jpg
+(120.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/170318jxd1i2dz2udi83uj.jpg" referrerpolicy="no-referrer">
+
+ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
+(44.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/170324kyrsyrrvkjmr2y0y.jpg" referrerpolicy="no-referrer">
+
+44d61ab30f2442a78fc8968c9743ad4bd0130258.jpg
+(51.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/170343jszuadxq8vmol8yg.jpg" referrerpolicy="no-referrer">
+
+4791e8faaf51f3de4b75d24dd2eef01f3b297958.jpg
+(37.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/170348k3dihw277stb23qd.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 20888#       发表于 2025-2-11 17:10
+
+<img src="https://i.miji.bid/2025/02/11/539ce73b234aecbcbd68c50b51112480.png" referrerpolicy="no-referrer">
+
+看mygo演出找归队灵感是吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yone0000  
+##### 20889#       发表于 2025-2-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396453&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-11 16:57</a></blockquote>
+墨提斯千万不能消失啊，否则SOYO16岁就要经历丧夫丧子之痛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+查看全部评分
+
