@@ -2149,3 +2149,69 @@ NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mo
 
 指望大祥老师脱胎换骨有点不太现实。
 
+
+*****
+
+####  cccpprc  
+##### 20917#       发表于 2025-2-11 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397554&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-11 19:59</a>
+
+盼不了飞象就开始盼这个，啥时候才肯接受现实制作组就是要打造一个比穷有真乡下人，比疯有真精神病，比中 ...</blockquote>
+但是这个1.0到下集也该拿去系统升级了
+
+不然从剧情逻辑到人物塑造都太无趣了
+
+*****
+
+####  cccpprc  
+##### 20918#       发表于 2025-2-11 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397531&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 19:56</a>
+
+已经划到京吹3了</blockquote>
+但是初华顶多就是觉得大祥不组乐队才能获得幸福，顺便揭一下丰川本家的底
+
+没有高坂女士那种杀伤力啊
+
+怕不是在最后一刻告诉大家大的要来了，我本来想参加的，现在快逃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔耳僵尸  
+##### 20919#       发表于 2025-2-11 20:21
+
+按道理该初华C了，邦邦史上还没有这么稀薄的主唱
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 20920#       发表于 2025-2-11 20:24
+
+鸡狗都不是以主场为中心组的队，这点也算是违反祖制了
+
+
+*****
+
+####  adretyu67.  
+##### 20921#       发表于 2025-2-11 20:25
+
+狗是企鹅中心啊。
+
+soyorin惊世智慧后炸团不就是企鹅拉的
+
+*****
+
+####  whzfjd  
+##### 20922#       发表于 2025-2-11 20:25
+
+说起来，空之境界俯瞰风景 -&gt; 空中飞人 -&gt; ED: Oblivious
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 20923#       发表于 2025-2-11 20:28
+
+狗的组成契机是粉毛要显摆，soyo要借尸还魂。后面炸了之后才是偷摸零出来C，算半个主唱中心吧。
+

@@ -3353,3 +3353,23 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 你打开设置，去到翻译服务，点单个ai ，然后翻译策略选 通用 ，“智能选择”也能改，但是可能是其中默认 ...</blockquote>
 我知道哪里可以写prompt，我只是不知道怎么写一个翻译刘备的prompt
 
+
+*****
+
+####  千千千千鸟  
+##### 1782#       发表于 2025-2-11 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397607&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-11 20:08</a>
+
+我知道哪里可以写prompt，我只是不知道怎么写一个翻译刘备的prompt</blockquote>
+试下我上面给的那个prompt改一下
+
+*****
+
+####  requiem116  
+##### 1783#       发表于 2025-2-11 20:16
+
+<blockquote>leia_rolando 发表于 2025-2-11 18:51
+花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100 ...</blockquote>
+这些一般是前端软件干的吧，试试看chatbox？
+
