@@ -1538,3 +1538,15 @@ BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" refer
 既然是史上最狂乐队动画，说不定结局没和解呢。Dlc内容在手游里看。</blockquote>
 这个肯定是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，拉新不会全拉手游的
 
+
+*****
+
+####  595505568  
+##### 20863#       发表于 2025-2-11 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395096&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-11 14:14</a>
+下集预告的文字内容，虽然基本就是重复上集已有的内容，但应该是明确了下集会继续讲C团的事情。
+
+然后按照上 ...</blockquote>
+可能和解是感动，可能觉得和解后CcC正式的落幕是送别<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
