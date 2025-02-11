@@ -981,3 +981,191 @@ crychic这集不live 怕不是就要到13集最后四个人看着进门的祥老
 
 第5和6集是最适合给祥子内心找补的，结果还在抽陀螺，现在抽完第7集开始进入解决篇也不知道这戏份分配是怎么想的
 
+
+*****
+
+####  cxj649  
+##### 20813#       发表于 2025-2-11 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们想13集才LIVE么，而且都13+7都共20集才黑化故事刚刚开始？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么，你们说大祥黑化的目标是什么吗
+
+*****
+
+####  iiiiiiiiii  
+##### 20814#       发表于 2025-2-11 13:27
+
+<blockquote>cxj649 发表于 2025-2-11 13:26
+你们想13集才LIVE么，而且都13+7都共20集才黑化故事刚刚开始？
+
+那么，你们说大祥黑化的目标是什么吗 ...</blockquote>
+不黑化这剧情有jb张力，整个小女孩闹麻了剧情。我是一点都看不下去
+
+*****
+
+####  whzfjd  
+##### 20815#       发表于 2025-2-11 13:28
+
+上一个头尾 live 的好像还是马娘3 吧
+
+*****
+
+####  cxj649  
+##### 20816#       发表于 2025-2-11 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394584&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-11 13:08</a>
+
+不黑化才奇怪吧，都铺垫这么多了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是期待大祥黑化长逼格还是什么，集数都不够好么
+
+*****
+
+####  cxj649  
+##### 20817#       发表于 2025-2-11 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394724&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 13:27</a>
+
+不黑化这剧情有jb张力，整个小女孩闹麻了剧情。我是一点都看不下去</blockquote>
+黑化后又如何，你们期待大祥黑化后做啥呢
+
+*****
+
+####  iiiiiiiiii  
+##### 20818#       发表于 2025-2-11 13:29
+
+<blockquote>cxj649 发表于 2025-2-11 13:28
+你们是期待大祥黑化长逼格还是什么，集数都不够好么</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/11/132851owdufqr2qq3q3qqm.jpg" referrerpolicy="no-referrer">
+
+<strong>B1D55A54F59C405FD1E8EAA1B0528F13.jpg</strong> (66.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 13:28 上传
+
+op有了，如果真是，类似llx一样的腹黑角色。而且数值巨高无比，毕竟是很强很强的人偶
+
+*****
+
+####  南宮凝香  
+##### 20819#       发表于 2025-2-11 13:30
+
+第七集黑化就是復刻爽姐的結束樂隊-》最速Go墜了
+
+剩下的時間根本不夠她黑化再洗白
+
+除非是變黑象 然後雞團四人突然無理由的覺悟（變墊子）集結把她拉回來的三俗大戲
+
+*****
+
+####  cxj649  
+##### 20820#       发表于 2025-2-11 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394743&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 13:29</a>
+
+op有了，如果真是，类似llx一样的腹黑角色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你们期待腹黑长逼格么233
+
+*****
+
+####  玖羽  
+##### 20821#       发表于 2025-2-11 13:30
+
+ 本帖最后由 玖羽 于 2025-2-11 13:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394719&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-11 13:26</a>
+
+你们想13集才LIVE么，而且都13+7都共20集才黑化故事刚刚开始？
+
+那么，你们说大祥黑化的目标是什么吗 ...</blockquote>
+我猜的，不负责
+
+不是白祥到黑祥那种伪黑化，说白了就是不想活了，把自己烧光拉倒
+
+表现可能会是某些人心心念念的大女主凤傲天，极度完美，就是什么地方有点不对劲
+
+*****
+
+####  cxj649  
+##### 20822#       发表于 2025-2-11 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394749&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-11 13:30</a>
+
+我猜的，不负责
+
+不是白祥到黑祥那种伪黑化，说白了就是不想活了，把自己烧光拉倒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是，没有黑化复仇的对象啊
+
+
+*****
+
+####  cxj649  
+##### 20823#       发表于 2025-2-11 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394747&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-11 13:30</a>
+
+第七集黑化就是復刻爽姐的結束樂隊-》最速Go墜了
+
+剩下的時間根本不夠她黑化再洗白</blockquote>
+对的，集数压根不够，而且黑化复仇对象也没有233
+
+*****
+
+####  玖羽  
+##### 20824#       发表于 2025-2-11 13:33
+
+ 本帖最后由 玖羽 于 2025-2-11 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394757&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-11 13:31</a>
+
+主要是，没有黑化复仇的对象啊</blockquote>
+我猜的，不负责
+
+不是为了复仇，是一种变相自杀，因为少女乐队动画不可能真的表现自杀，提都不能提
+
+这也不是什么突兀的剧情，祥子的自杀倾向从一开始就隐晦地暗示了，第一眼看到灯就以为灯要自杀
+
+*****
+
+####  gaayas  
+##### 20825#       发表于 2025-2-11 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394724&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 13:27</a>
+不黑化这剧情有jb张力，整个小女孩闹麻了剧情。我是一点都看不下去</blockquote>
+黑化应该也是小女孩闹麻剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iiiiiiiiii  
+##### 20826#       发表于 2025-2-11 13:33
+
+<blockquote>cxj649 发表于 2025-2-11 13:32
+对的，集数压根不够，而且黑化复仇对象也没有233</blockquote>
+有剧场版啊，加上剧场版不就有了嘛。
+
+*****
+
+####  单脚着地  
+##### 20827#       发表于 2025-2-11 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在对一个后续要进萌萌手游的企划期待些什么东西啊
+
+*****
+
+####  iiiiiiiiii  
+##### 20828#       发表于 2025-2-11 13:35
+
+<blockquote>单脚着地 发表于 2025-2-11 13:34
+你们在对一个后续要进萌萌手游的企划期待些什么东西啊</blockquote>
+谁叫柿自己说是黑暗 悬疑 奇幻作品
+
+*****
+
+####  zhoujin8584  
+##### 20829#       发表于 2025-2-11 13:36
+
+我对夏日漱石的《心》在动画中的意象理解，祥子拿起这本书是在自暴自弃的自怨自艾，放下这本书才是真正自省后承担责任的开始
+

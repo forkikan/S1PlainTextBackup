@@ -3777,7 +3777,7 @@
     "lastedit": 1739181120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 13559,
+    "totalreply": 13560,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，1月23日静候直面会，希望有大。]",
-    "lastedit": 1739244739,
+    "lastedit": 1739251828,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8420,7 +8420,7 @@
     "newtitle": "[学园偶像大师]",
     "lastedit": 1738992489,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1803414": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 135121,
+    "totalreply": 135131,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1739251690,
+    "lastedit": 1739252056,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8910,10 +8910,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 6402,
+    "totalreply": 6404,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源公布，2025年1月17日登录ps5／pc／xs｜汜水关demo1122上线]",
-    "lastedit": 1739249664,
+    "lastedit": 1739252061,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9180,10 +9180,10 @@
     "update": false
   },
   "2192398": {
-    "totalreply": 5200,
+    "totalreply": 5202,
     "title": "[《尘白禁区》攻略活动互助讨论楼 ver2.0空都演绎（7.11-8.22）]",
     "newtitle": "[《尘白禁区》综合讨论楼#2.5「夙圆心行」1.5周年庆 1.23-3.6]",
-    "lastedit": 1739251092,
+    "lastedit": 1739251828,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10530,10 +10530,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 20812,
+    "totalreply": 20829,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月 (禁止带图剧透)]",
-    "lastedit": 1739250731,
+    "lastedit": 1739252171,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10647,10 +10647,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 60715,
+    "totalreply": 60726,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1739251570,
+    "lastedit": 1739252169,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10971,10 +10971,10 @@
     "update": false
   },
   "2196881": {
-    "totalreply": 505,
+    "totalreply": 506,
     "title": "[圣恩传说f／togf复刻公开，25／1／16发售，登录全平台]",
     "newtitle": "[美德传奇f（圣恩传说f）／togf复刻公开，25／1／16发售，登录全平台]",
-    "lastedit": 1739201543,
+    "lastedit": 1739251828,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11061,10 +11061,10 @@
     "update": false
   },
   "2194344": {
-    "totalreply": 135,
+    "totalreply": 136,
     "title": "[《战队红战士在异世界当冒险者》TV动画化2025年1月放送]",
     "newtitle": "[《战队红战士在异世界当冒险者》TV动画化2025年1月放送]",
-    "lastedit": 1739247378,
+    "lastedit": 1739251946,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11151,10 +11151,10 @@
     "update": false
   },
   "2179544": {
-    "totalreply": 832,
+    "totalreply": 834,
     "title": "[《天国：拯救2》正式公开，2025年2月4日发售]",
     "newtitle": "[《天国：拯救2》正式公开，2025年2月4日发售]",
-    "lastedit": 1739249545,
+    "lastedit": 1739251828,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14643,10 +14643,10 @@
     "update": false
   },
   "2245458": {
-    "totalreply": 684,
+    "totalreply": 686,
     "title": "[CoachGreg格教练手撕丧钟克里斯呀]",
     "newtitle": "[CoachGreg格教练手撕丧钟克里斯呀]",
-    "lastedit": 1739251217,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
@@ -15255,10 +15255,10 @@
     "update": false
   },
   "2245673": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[2024年我国结婚对数610.6万对，同比2023年减少157.4万对、下降20.5%。]",
     "newtitle": "[2024年我国结婚对数610.6万对，同比2023年减少157.4万对、下降20.5%。]",
-    "lastedit": 1739244866,
+    "lastedit": 1739251828,
     "category": "外野",
     "active": true,
     "update": false
@@ -15687,10 +15687,10 @@
     "update": false
   },
   "2245833": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[给3yc老车主推荐一个配件]",
     "newtitle": "[给3yc老车主推荐一个配件]",
-    "lastedit": 1739250858,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
@@ -15723,19 +15723,19 @@
     "update": false
   },
   "2245805": {
-    "totalreply": 50,
+    "totalreply": 52,
     "title": "[今天发现墙上插了个东西，问了是老爸过年时插墙上，这是智商税么？]",
     "newtitle": "[今天发现墙上插了个东西，问了是老爸过年时插墙上，这是智商税么？]",
-    "lastedit": 1739251455,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2245849": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[百色祈福中学这个性侵案看的真是窝火]",
     "newtitle": "[百色祈福中学这个性侵案看的真是窝火]",
-    "lastedit": 1739251455,
+    "lastedit": 1739251828,
     "category": "外野",
     "active": true,
     "update": false
@@ -15759,10 +15759,10 @@
     "update": false
   },
   "2245854": {
-    "totalreply": 90,
+    "totalreply": 94,
     "title": "[＊＊大刀落下！NIH经费降至15%，NSF预算砍2／3，美国科学界炸锅]",
     "newtitle": "[＊＊大刀落下！NIH经费降至15%，NSF预算砍2／3，美国科学界炸锅]",
-    "lastedit": 1739251218,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
@@ -15795,10 +15795,10 @@
     "update": false
   },
   "2245867": {
-    "totalreply": 69,
+    "totalreply": 71,
     "title": "[哈哈，楼下邻居刚提了快一个月的宋]",
     "newtitle": "[哈哈，楼下邻居刚提了快一个月的宋]",
-    "lastedit": 1739251455,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
@@ -15813,10 +15813,10 @@
     "update": false
   },
   "2245864": {
-    "totalreply": 43,
+    "totalreply": 46,
     "title": "[比亚迪的车到底能不能买]",
     "newtitle": "[比亚迪的车到底能不能买]",
-    "lastedit": 1739251221,
+    "lastedit": 1739252061,
     "category": "外野",
     "active": true,
     "update": false
