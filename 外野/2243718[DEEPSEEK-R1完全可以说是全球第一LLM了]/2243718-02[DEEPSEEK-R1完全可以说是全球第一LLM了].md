@@ -3373,3 +3373,15 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100 ...</blockquote>
 这些一般是前端软件干的吧，试试看chatbox？
 
+
+*****
+
+####  千千千千鸟  
+##### 1784#       发表于 2025-2-12 02:44
+
+ 本帖最后由 千千千千鸟 于 2025-2-12 02:46 编辑 
+
+好辛苦，调教了很久，精选了各种桥段，并且总结写法、文风特征（当然也是用AI）放在知识库里面，在大量提示词和反复纠错之后，知识库里有的桥段终于生成可以用的文字了（比如BJ），但是，就几行字居然消耗了3万多tokens。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+在想可能是cherry studio不适合DM扮演这个模式，明天开始换成酒馆<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
