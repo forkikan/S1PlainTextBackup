@@ -3342,3 +3342,14 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100 ...</blockquote>
 生成文本的能力有啊，你跟他说要能复制粘贴或者txt格式的，他会出纯txt格式的
 
+
+*****
+
+####  Algie  
+##### 1781#       发表于 2025-2-11 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396096&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-11 16:14</a>
+
+你打开设置，去到翻译服务，点单个ai ，然后翻译策略选 通用 ，“智能选择”也能改，但是可能是其中默认 ...</blockquote>
+我知道哪里可以写prompt，我只是不知道怎么写一个翻译刘备的prompt
+

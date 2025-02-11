@@ -11791,3 +11791,14 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
 <img src="https://p.sda1.dev/21/75c361defe11f60f0460d14c15103b7e/image.jpg" referrerpolicy="no-referrer">マミ美
 [@Jinou_ rakugaki](https://x.com/Jinou_rakugaki/status/1889243779783426072)
 
+
+*****
+
+####  太极八爪鱼  
+##### 6817#       发表于 2025-2-11 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394278&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-10 20:31</a>
+
+希姆丝中尉吗，她很有可能已经登场了，只不过大家暂时没认出她</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在新世界放飞自我变成了视觉系？
+

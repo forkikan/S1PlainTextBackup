@@ -2110,3 +2110,42 @@ NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mo
 NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mortis和oblivious在表演祥睦半身，但是祥睦 ...</blockquote>
 盼不了飞象就开始盼这个，啥时候才肯接受现实制作组就是要打造一个比穷有真乡下人，比疯有真精神病，比中二有老戏骨，甚至管理人心开卷都答错题的祥p1.0啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 20913#       发表于 2025-2-11 20:07
+
+下集不算的话还有5集够初华炸的吗？睦头从第三集mortis上身到下集治好都要五集了。
+
+
+*****
+
+####  カリオストロ  
+##### 20914#       发表于 2025-2-11 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">对照着mygo的第7集，基本感觉下集是C团演了最后一次春日影，然后解散不留遗憾，向着鸡团努力
+
+*****
+
+####  cccpprc  
+##### 20915#       发表于 2025-2-11 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394345&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-11 12:39</a>
+
+说真的，漏油一直满心期待祥子会被“制裁”后续大概率要失望的</blockquote>
+看预告就是让人期待大祥被制裁的
+
+至于预告片的可信度吗
+
+谁知道呢
+
+*****
+
+####  adretyu67.  
+##### 20916#       发表于 2025-2-11 20:17
+
+比较好奇鸡团2.0究竟靠谁来领导。
+
+指望大祥老师脱胎换骨有点不太现实。
+
