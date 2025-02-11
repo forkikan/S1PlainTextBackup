@@ -11820,3 +11820,19 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
  这片子日本票房破了23.1亿日元的元祖剧场版成绩了吗？</blockquote>
 暂时还没官宣，但是不是周三就是周四了
 
+
+*****
+
+####  王留美  
+##### 6820#       发表于 2025-2-12 01:39
+
+<img src="https://img.saraba1st.com/forum/202502/12/013913nz00qjyh6gmhqfqj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6733.jpeg</strong> (31.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 01:39 上传
+
+GQ版大魔(里克大魔)
+
