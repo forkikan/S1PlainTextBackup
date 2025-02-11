@@ -501,3 +501,85 @@ Ave Mujica 第7话 先行图
 
 黑刀之夜还能藏什么
 
+
+*****
+
+####  cccpprc  
+##### 20770#       发表于 2025-2-11 11:29
+
+<blockquote>新HGCG 发表于 2025-2-11 11:23
+思いがけず暴かれたCRYCHIC解散の真相。
+
+睦からもAve Mujicaからも、そしてCRYCHICからも目を背けた祥子の ...</blockquote>
+我先压一手让大祥一黑到底
+
+*****
+
+####  是谁的书画  
+##### 20771#       发表于 2025-2-11 11:30
+
+完了，感觉又是大祥逃跑的一集，什么时候不跑了，还能被坐死不成<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 20772#         楼主| 发表于 2025-2-11 11:34
+
+#7 Post nubila Phoebus.
+
+思いがけず暴かれたCRYCHIC解散の真相。
+
+睦からもAve Mujicaからも、そしてCRYCHICからも目を背けた祥子の嘯きは、元CRYCHICメンバーたちに、見過ごし得ない波紋をもたらす。
+
+CRYCHIC解散的真相被意外地被揭露。
+
+祥子的傲慢让她对睦、Ave Mujica甚至CRYCHIC都敬而远之，这对前CRYCHIC成员产生了不可忽视的连锁反应。
+
+脚本：小川 ひとみ
+
+絵コンテ：岡 こずえ
+
+演出：鈴木 大介
+
+CGディレクター：小川 浩太朗
+[https://anime.bang-dream.com/ave ... %91%A0-1024x576.png](https://anime.bang-dream.com/avemujica/wordpress/wp-content/uploads/2025/02/10205621/%E2%91%A0-1024x576.png)
+
+<img src="https://img.saraba1st.com/forum/202502/11/113435g5djcxdxbqndhsh8.png" referrerpolicy="no-referrer">
+
+<strong>①-1024x576.png</strong> (558.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 11:34 上传
+
+[https://anime.bang-dream.com/ave ... %91%A1-1024x576.png](https://anime.bang-dream.com/avemujica/wordpress/wp-content/uploads/2025/02/10205638/%E2%91%A1-1024x576.png)
+
+<img src="https://img.saraba1st.com/forum/202502/11/113436h6s0d6ottddo0nn0.png" referrerpolicy="no-referrer">
+
+<strong>②-1024x576.png</strong> (582.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 11:34 上传
+
+[https://anime.bang-dream.com/ave ... %91%A2-1024x576.png](https://anime.bang-dream.com/avemujica/wordpress/wp-content/uploads/2025/02/10205654/%E2%91%A2-1024x576.png)
+
+<img src="https://img.saraba1st.com/forum/202502/11/113436t69h99f6hgpfhvph.png" referrerpolicy="no-referrer">
+
+<strong>③-1024x576.png</strong> (299.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/113437xg7hn9k71a7haszf.png" referrerpolicy="no-referrer">
+
+<strong>bb7ab814018403dd0adb4984c4e6d0f01459104794.png</strong> (610.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 11:34 上传
+
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://www.bilibili.com/opus/1032529038006026288](https://www.bilibili.com/opus/1032529038006026288)
+
