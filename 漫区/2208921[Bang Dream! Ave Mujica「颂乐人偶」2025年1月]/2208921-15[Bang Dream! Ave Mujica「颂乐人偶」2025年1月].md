@@ -2039,3 +2039,32 @@ ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
 
 鸡的炸团店会不会太多了
 
+
+*****
+
+####  看穿一切的鱼  
+##### 20906#       发表于 2025-2-11 19:37
+
+莫老师以后要怎么炸团，一到live就出来说自己不会弹吉他吗。必须小祥下跪才让睦出来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  小博禹  
+##### 20907#       发表于 2025-2-11 19:45
+
+鸡团结局真能成团吗，之前好像有访谈说过“考虑了很久才决定把这部动画命名成母鸡卡”，🐶🐔是一起制作的，可能本来就只有卖狗第二季没有🐔<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 20908#       发表于 2025-2-11 19:46
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-11 19:47 编辑 
+
+NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mortis和oblivious在表演祥睦半身，但是祥睦人格已经消失 外人觉得这是一个很有团魂很有爱的团队。可是细心人总觉得有一丝不对劲的地方。只能说这个结局太克系了。
+
