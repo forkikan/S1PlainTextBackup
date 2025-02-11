@@ -372,3 +372,14 @@ cookies估计早给它顺走了，就是不知道还给它传走了啥东西
 
 试了下，到该掉帧的地方游戏会明显减速来保持流畅，不知道是不是设置问题
 
+
+*****
+
+####  罐子  
+##### 117#       发表于 2025-2-11 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392639&amp;ptid=2238299" target="_blank">gdx23532 发表于 2025-2-11 09:50</a>
+
+应该有关系，30生成60我在本机上感觉挺流畅，但是串流后明线达不到60的流畅度，只能说比30略强一点 ...</blockquote>
+那死心了，串流玩家不适用<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
