@@ -1598,3 +1598,25 @@ space：111，大哥真复活吗
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  sprittee  
+##### 20869#       发表于 2025-2-11 15:31
+
+初华怎么还没出现 邦邦史上最低存在感主唱实锤
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  NODY  
+##### 20870#       发表于 2025-2-11 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395620&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-11 15:16</a>
+
+space：111，大哥真复活吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+这是12集的ring
+
