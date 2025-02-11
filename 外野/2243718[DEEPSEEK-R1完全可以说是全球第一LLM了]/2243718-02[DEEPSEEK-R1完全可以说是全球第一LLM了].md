@@ -3280,3 +3280,16 @@ https://www.bilibili.com/video/BV1JMNaexEgX/
 
 双路EPYC 9004，合计24通道DDR5 4800，900GB/s内存带宽还是很慢......
 
+
+*****
+
+####  精钢魔像  
+##### 1775#       发表于 2025-2-11 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396644&amp;ptid=2243718" target="_blank">ltycomputer 发表于 2025-2-11 17:23</a>
+
+【【纯cpu方案】本地部署deepseek-r1-671b-q8速度初测-哔哩哔哩】 
+
+https://www.bilibili.com/video/BV1JMN ...</blockquote>
+也还行吧，写文案肯定比活人效率高。小红书看到个一万块部署的，能到每秒4 token。
+
