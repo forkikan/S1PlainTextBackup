@@ -11641,3 +11641,18 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 
 4号机红色，赛琳，独眼高达女主，人工NT。
 
+
+*****
+
+####  王留美  
+##### 6808#       发表于 2025-2-11 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394368&amp;ptid=2209276" target="_blank">猪突猛进 发表于 2025-2-11 12:41</a>
+
+是2号机啦，3号机是真的哈曼开的。
+
+艾尔梅斯</blockquote>
+艾尔梅斯123号机在不同媒体里具体对应的机体颜色和驾驶员是不同的
+
+甚至还有一台安室奈美惠开的呢（
+
