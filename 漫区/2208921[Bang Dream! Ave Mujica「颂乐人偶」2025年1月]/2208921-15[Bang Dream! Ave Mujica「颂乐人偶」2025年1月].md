@@ -3200,3 +3200,14 @@ Post nubila phoebus.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是能有那种展开的话，那祥子得是杀了主创全家才能让她在这种动画中承受这么多恶意
 
+
+*****
+
+####  novalli  
+##### 21017#       发表于 2025-2-12 07:25
+
+祥子是为了睦说了“我们人偶是没有父母的”，难道回旋镖打到自己身上了？
+另外喵梦也说过，难道后面也会回收伏笔？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
