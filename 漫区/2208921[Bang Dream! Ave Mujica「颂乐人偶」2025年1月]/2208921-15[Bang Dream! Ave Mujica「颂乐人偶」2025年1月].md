@@ -1579,3 +1579,22 @@ BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" refer
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
 出现了“挺”字，鉴定为串
 
+
+*****
+
+####  DD-963  
+##### 20867#       发表于 2025-2-11 15:15
+
+晚上扔书 难道不是发生在睦的内心世界，现实世界是祥子来访的白天
+
+*****
+
+####  ml1642879  
+##### 20868#       发表于 2025-2-11 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394930&amp;ptid=2208921" target="_blank">NODY 发表于 2025-2-11 13:51</a>
+应该是这里了，后面的是电箱之类的东西</blockquote>
+space：111，大哥真复活吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
