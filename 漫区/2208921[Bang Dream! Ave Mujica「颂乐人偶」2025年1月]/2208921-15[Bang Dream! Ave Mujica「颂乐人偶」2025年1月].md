@@ -767,3 +767,61 @@ ccc解散真相，是指其余四个人为什么也不来了吗
 
 傲慢是啥意思，现在祥子还能有傲慢的吗？再一次因为与编剧理解的不同感到了畏惧
 
+
+*****
+
+####  安娜导函数  
+##### 20792#       发表于 2025-2-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67393606&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-11 11:30</a>
+完了，感觉又是大祥逃跑的一集，什么时候不跑了，还能被坐死不成</blockquote>
+说了彼得三次不认主，大祥=彼得，睦头=耶稣，现在才说了1次不认识，估计还要跑两次<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 20793#       发表于 2025-2-11 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394099&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-11 12:14</a>
+
+傲慢是啥意思，现在祥子还能有傲慢的吗？再一次因为与编剧理解的不同感到了畏惧 ...</blockquote>
+什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 
+
+嘯く：佯装不知（うそ吹く）
+
+<img src="https://img.saraba1st.com/forum/202502/11/121807gvkkmbkkvtkt7tzg.jpg" referrerpolicy="no-referrer">
+
+<strong>000.jpg</strong> (31.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:18 上传
+
+*****
+
+####  安娜导函数  
+##### 20794#       发表于 2025-2-11 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394073&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-11 12:11</a>
+海铃这是在什么地方，门好像不是RiNG</blockquote>
+也许是livehouse galaxy?
+
+*****
+
+####  烂片雷达  
+##### 20795#       发表于 2025-2-11 12:21
+
+祥身后的玻璃怎么碎了，不会莫姐扔书的对象是祥子吧<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 20796#       发表于 2025-2-11 12:22
+
+有一说一，睦这种有钱人家用的不是防割伤玻璃，也挺怪的，正常应该是直接碎一地了，没想到还有蛛网裂痕。
+
+蜘蛛侠说又添力证（不是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
