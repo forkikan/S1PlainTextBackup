@@ -3225,3 +3225,24 @@ chatbox的电脑网页端和手机app端不能同步吗？手机app下了后没�
 怎么设定这个1-5的情节区别？直接写开始，过程，高潮，结束就可以吗？</blockquote>
 差不多吧，简单写就标好1级和5级，d指导自己会大致分配中间等级，写详细的更好，比如写打架一级是口角冲突，二级是推搡，三级是出拳，四级是暴击，五级是打死人这样
 
+
+*****
+
+####  zerona  
+##### 1771#       发表于 2025-2-11 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391699&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-11 00:54</a>
+
+额，沉浸式翻译那个插件是不是用默认的prompt翻不了刘备啊，怎么设置才好呢？ ...</blockquote>
+你打开设置，去到翻译服务，点单个ai ，然后翻译策略选 通用 ，“智能选择”也能改，但是可能是其中默认是通用吧。然后就可以改prompt 内容了。
+
+*****
+
+####  zerona  
+##### 1772#       发表于 2025-2-11 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396071&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-11 16:11</a>
+
+差不多吧，简单写就标好1级和5级，d指导自己会大致分配中间等级，写详细的更好，比如写打架一级是口角冲 ...</blockquote>
+明白了。这个很有意义。
+
