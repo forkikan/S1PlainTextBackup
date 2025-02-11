@@ -917,3 +917,13 @@ GP-31最后通牒
 
 双刃镰活了几天
 
+
+*****
+
+####  xinfengj  
+##### 5755#       发表于 2025-2-12 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397577&amp;ptid=2170852" target="_blank">heseran 发表于 2025-2-11 20:02</a>
+核弹手枪我还没爽到就挨刀了吗</blockquote>
+砍一发备弹罢了，原来喷射舱优化落地1备弹、优化+换弹甲落地2备弹，现在喷射舱优化有没有落地0都是备弹，优化+换弹甲落地1备弹。
+
