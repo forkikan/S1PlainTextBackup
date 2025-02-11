@@ -2263,3 +2263,27 @@ soyorin惊世智慧后炸团不就是企鹅拉的
 
 标志着各有缺陷的人偶们成为人类
 
+
+*****
+
+####  cccpprc  
+##### 20929#       发表于 2025-2-11 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394473&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-11 12:53</a>
+
+crychic这集不live 怕不是就要到13集最后四个人看着进门的祥老师说欢迎回来了 到时候除了遗老全疯了
+
+好吧 ...</blockquote>
+你这后面的更不正常了，变推子结局了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大祥最后半边户口本也要被没收了？
+
+*****
+
+####  天空塔书记官  
+##### 20930#       发表于 2025-2-11 20:54
+
+真没有主唱绝对核心的说法啊，RAS的瑞依入团的时候只是个打卡下班的雇佣兵，真正的核心是制作人楚平方，A团和RAS很像，祥子肯定是大核啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
