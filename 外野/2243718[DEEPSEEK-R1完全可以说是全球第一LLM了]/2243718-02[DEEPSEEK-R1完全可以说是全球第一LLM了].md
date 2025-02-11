@@ -2984,3 +2984,13 @@ DS搞瑟瑟，有时候看到他思考的内容觉得“噢噢噢，想的这么
 
 我要笑飞了，我把r1生成的癫文给Gemini看，Gemini的评价：超现实主义的抽象幻想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 1750#       发表于 2025-2-11 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390819&amp;ptid=2243718" target="_blank">oh_my_god 发表于 2025-2-10 21:46</a>
+冷圈人觉得d指导还是很好很好的，在楼内分享的那个咒语的基础上，再加多点个性化需求，限定好非常具体的 ...</blockquote>
+求一下咒语或者咒语所在坐标。同冷圈人，现在就指望着大d老师续命，然而在酒馆用大D老师r1依旧到处乱歪，v3不进行后续剧情引导就会无限复读，而且每次就只生成一小段，人快麻了。<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
