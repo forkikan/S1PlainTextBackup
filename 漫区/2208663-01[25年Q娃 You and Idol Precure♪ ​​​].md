@@ -2050,3 +2050,14 @@ DEEPSEEK翻译这么厉害的吗！
 
 2025-2-11 08:01 上传
 
+
+*****
+
+####  bilibilius  
+##### 456#       发表于 2025-2-11 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392053&amp;ptid=2208663" target="_blank">firestorm5 发表于 2025-2-11 08:01</a>
+
+领域展开草</blockquote>
+有封闭场地，有专属规则（唱歌/应援），有必中，就是领域展开啊
+

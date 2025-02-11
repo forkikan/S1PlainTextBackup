@@ -693,3 +693,77 @@ ccc解散真相，是指其余四个人为什么也不来了吗
 
 睦祥还是祥睦。。。。真是让人纠结啊
 
+
+*****
+
+####  南宮凝香  
+##### 20786#       发表于 2025-2-11 12:10
+
+這預告詞我就當他是總結之前的劇情吧
+
+真再黑祥一波就真救不回來了
+
+逃避雖可恥但沒有用
+
+- 大祥老師
+
+*****
+
+####  NaAgfykp  
+##### 20787#       发表于 2025-2-11 12:10
+
+傲慢是何意？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TAQ  
+##### 20788#       发表于 2025-2-11 12:11
+
+也可能是soyo把祥打至跪地了
+
+*****
+
+####  玖羽  
+##### 20789#       发表于 2025-2-11 12:11
+
+海铃这是在什么地方，门好像不是RiNG
+
+<img src="https://img.saraba1st.com/forum/202502/11/121140aceu3tb8c4964et0.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (70.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/121141frwelmj6j5oxv5nn.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (63.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:11 上传
+
+*****
+
+####  江口夕  
+##### 20790#       发表于 2025-2-11 12:13
+
+ 本帖最后由 江口夕 于 2025-2-11 12:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67393752&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-11 11:42</a>
+ccc解散真相，是指其余四个人为什么也不来了吗
+
+—— 来自 S1Fun</blockquote>
+前文总结，就是168亿的事。而且莫是不会让睦见祥的，既然让进来了，睦大概是上线了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yaneis  
+##### 20791#       发表于 2025-2-11 12:14
+
+傲慢是啥意思，现在祥子还能有傲慢的吗？再一次因为与编剧理解的不同感到了畏惧
+
