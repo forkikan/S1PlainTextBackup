@@ -2969,3 +2969,11 @@ bang世界又不是有没有超级英雄，我支持hhw空降好吧<img src="htt
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  answer23  
+##### 20998#       发表于 2025-2-11 23:40
+
+不是，大哥，我不是来看布鲁斯韦恩传的，烧烤中登还是别吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
