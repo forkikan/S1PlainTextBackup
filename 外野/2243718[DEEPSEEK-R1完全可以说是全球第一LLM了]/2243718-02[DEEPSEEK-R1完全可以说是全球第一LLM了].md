@@ -3317,3 +3317,11 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 [https://www.bilibili.com/video/BV1JMN](https://www.bilibili.com/video/BV1JMN) ...</blockquote>
 问题的核心不是带宽，是提示处理，这么大模型，cpu那点算力就是玩具
 
+
+*****
+
+####  leia_rolando  
+##### 1778#       发表于 2025-2-11 18:51
+
+花钱充了硅基流动，用pro ds和官方测试了一下。写了一个关于优化电缆使用成本的深度思考，我将K值调高（100%）才有官网的水平。另外这玩意是不是既没有历史记录，又没有自动将答案生成文本的能力？这点很不方便啊
+
