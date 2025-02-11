@@ -2121,3 +2121,13 @@ DEEPSEEK翻译这么厉害的吗！
 机战有一个驾驶陆战机体的角色齐力古，技能演出是把对面摁在山崖上射爆。哪怕战斗 ...</blockquote>
 搬山流我知道，饼干是什么意思？
 
+
+*****
+
+####  双菜  
+##### 462#       发表于 2025-2-11 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397913&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-11 20:53</a>
+搬山流我知道，饼干是什么意思？</blockquote>
+饼干=并感
+
