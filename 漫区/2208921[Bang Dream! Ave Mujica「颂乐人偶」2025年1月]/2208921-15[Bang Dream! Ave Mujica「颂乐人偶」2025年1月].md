@@ -2014,3 +2014,11 @@ ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
 
 感觉结局也可以类似的，小祥作为人质被绑在那边，然后小睦和初华在决战对殴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帕林马哲理  
+##### 20903#       发表于 2025-2-11 19:10
+
+要是mortis能有空境里两仪织那种感染力那我没意见，但TV动画篇幅感觉是不够的。
+
