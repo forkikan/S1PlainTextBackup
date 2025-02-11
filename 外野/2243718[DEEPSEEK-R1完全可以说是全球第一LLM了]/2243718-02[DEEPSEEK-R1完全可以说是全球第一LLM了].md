@@ -3167,3 +3167,21 @@ chatbox的电脑网页端和手机app端不能同步吗？手机app下了后没�
 也就比没被ddos时候的DS自家联网版差一点 ...</blockquote>
 鸿蒙的那个吗？老版本的有说能不能用吗？
 
+
+*****
+
+####  翻滚吧熊犊子  
+##### 1765#       发表于 2025-2-11 16:00
+
+硅基怎么也爆了的样子？是不是充值100元 解锁pro 用cherry就好了？
+
+*****
+
+####  2017.05.04  
+##### 1766#       发表于 2025-2-11 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395933&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-11 15:52</a>
+
+鸿蒙的那个吗？老版本的有说能不能用吗？</blockquote>
+只要升了NEXT就能用吧，我是用的mate60
+
