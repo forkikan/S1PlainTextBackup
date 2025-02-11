@@ -2083,3 +2083,14 @@ DEEPSEEK翻译这么厉害的吗！
 —— 来自 S1Fun</blockquote>
 什么意思啊？
 
+
+*****
+
+####  lyflyflxf  
+##### 459#       发表于 2025-2-11 19:03
+
+看来每年LIVE营收不错，今年加量了。以下由DS翻译： <blockquote>偶像光之美少女挑战「想见到100万个你！」的目标，纪念首次活动「出道公开演唱会」将在横滨、名古屋、大阪三个城市举行！
+
+偶像光之美少女将来到你的城市与你见面♪</blockquote>
+[https://www.toei-anim.co.jp/tv/precure/live2025/#nagoya](https://www.toei-anim.co.jp/tv/precure/live2025/#nagoya)
+

@@ -750,3 +750,13 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 刚才看到一个用反坦克炮当投石机把地狱火背包射出去的视频，就很离谱 ...</blockquote>
 可以脱下的瞬间飞扑利用惯性扔出去，操作性拉满<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 5748#       发表于 2025-2-11 19:02
+
+这枪降低下限增加上限吧，还算有脑子的平衡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
