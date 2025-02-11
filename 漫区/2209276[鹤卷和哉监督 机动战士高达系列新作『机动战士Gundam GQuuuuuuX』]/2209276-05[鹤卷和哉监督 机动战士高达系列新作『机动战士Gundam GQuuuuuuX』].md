@@ -11593,3 +11593,30 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 
 突然想到泽科诺瓦比起eva的冲击搞不好更接近于飞跃巅峰的warp？
 
+
+*****
+
+####  刺客ares  
+##### 6806#       发表于 2025-2-11 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394010&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-2-11 12:06</a>
+
+其他人不说，先把夏利亚附带那个四眼仔掏出来吧，小NT也是NT呀。前面还说谁被影响最大，这四眼仔收益最大直 ...</blockquote>
+希姆丝中尉吗，她很有可能已经登场了，只不过大家暂时没认出她
+
+<img src="https://img.saraba1st.com/forum/202502/11/123047uiiiorrylkfkhd1d.jpg" referrerpolicy="no-referrer">
+
+<strong>9e1431e6a49992468bf025145b06fb92_-9lddQ1a1-60obK2hT1kS97-jg.jpg</strong> (25.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/11/123141yty9thh4j79ihjii.png" referrerpolicy="no-referrer">
+
+<strong>1739247398461.png</strong> (327.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:31 上传
+

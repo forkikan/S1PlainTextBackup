@@ -3113,3 +3113,16 @@ pageassist的联网只能用某一家的搜索服务。。。就不是很方便�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ercai1  
+##### 1760#       发表于 2025-2-11 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392927&amp;ptid=2243718" target="_blank">披头破落户 发表于 2025-2-11 10:25</a>
+
+现在ds本家的api能用了？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+一直能用，但不能充值。也就是说没钱的账户用不了，有付费的账户用一点少一点
+
