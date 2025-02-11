@@ -11754,3 +11754,16 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
 
 如果泽克诺瓦是空间跃迁那还能差个7岁，如果是时间跃迁那就只有2岁差，还没和骡子差得多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 6814#       发表于 2025-2-11 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396900&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-11 17:58</a>
+突然想到，说是可能鸭子给修司当爹，但他们实际年龄差也没那么大啊。
+
+如果泽克诺瓦是空间跃迁那还能差个7岁 ...</blockquote>
+牢修一眼社会化程度低，只是沉默寡言看不出来，真实性格估计跟小孩一样
+说起来这一跳5，6年，现在骡（如果活着）是不是比鸭年纪大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2002,3 +2002,15 @@ ac8e5e36acaf2edd442f20c0cb1001e938019341.jpg
 
 —— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  huxiaopao163  
+##### 20902#       发表于 2025-2-11 18:27
+
+ 本帖最后由 huxiaopao163 于 2025-2-11 18:29 编辑 
+
+对的，就是方谬神探。
+
+感觉结局也可以类似的，小祥作为人质被绑在那边，然后小睦和初华在决战对殴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

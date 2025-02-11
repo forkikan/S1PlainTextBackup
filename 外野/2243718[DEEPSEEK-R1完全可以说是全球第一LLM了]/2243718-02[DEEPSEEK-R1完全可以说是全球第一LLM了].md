@@ -3293,3 +3293,15 @@ https://www.bilibili.com/video/BV1JMNaexEgX/
 https://www.bilibili.com/video/BV1JMN ...</blockquote>
 也还行吧，写文案肯定比活人效率高。小红书看到个一万块部署的，能到每秒4 token。
 
+
+*****
+
+####  披头破落户  
+##### 1776#       发表于 2025-2-11 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394284&amp;ptid=2243718" target="_blank">ercai1 发表于 2025-2-11 12:32</a>
+一直能用，但不能充值。也就是说没钱的账户用不了，有付费的账户用一点少一点 ...</blockquote>
+现在就能冲了，就是用不了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">希望我的硅基这100块用完以前官方的api能用
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
