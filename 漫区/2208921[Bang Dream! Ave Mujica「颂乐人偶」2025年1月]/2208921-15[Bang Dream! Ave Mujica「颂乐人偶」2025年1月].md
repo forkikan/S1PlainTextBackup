@@ -2093,3 +2093,20 @@ NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mo
 
 已经划到京吹3了
 
+
+*****
+
+####  dgugvff  
+##### 20911#       发表于 2025-2-11 19:59
+
+你们看个动画至于吗
+
+*****
+
+####  zhoujin8584  
+##### 20912#       发表于 2025-2-11 19:59
+
+<blockquote>iiiiiiiiii 发表于 2025-2-11 19:46
+NGA已经滑坡到祥子变成oblivious，睦彻底变成mortis。然后台上mortis和oblivious在表演祥睦半身，但是祥睦 ...</blockquote>
+盼不了飞象就开始盼这个，啥时候才肯接受现实制作组就是要打造一个比穷有真乡下人，比疯有真精神病，比中二有老戏骨，甚至管理人心开卷都答错题的祥p1.0啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
