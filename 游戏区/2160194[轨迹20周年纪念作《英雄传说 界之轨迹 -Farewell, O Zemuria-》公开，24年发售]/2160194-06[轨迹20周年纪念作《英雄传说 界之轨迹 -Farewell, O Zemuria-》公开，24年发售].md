@@ -1040,3 +1040,35 @@ grand odyssey 19999-xxxxx
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">可他正义了个啥 鸭脖吗（  
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">基本上属于什么都不知道的情况下在那搅x
 
+
+*****
+
+####  ravend233  
+##### 7627#       发表于 2025-2-12 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398525&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-11 22:32</a>
+另外最终章范爷的逻辑我看不懂 你救啥救 人家老爸是真的在保护她又不是被什么邪教抓走了 然后学妹跑了又去 ...</blockquote>
+van在最后一段感觉整个人已经急到无能狂怒了，确实做的事一点道理都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Aeons  
+##### 7628#       发表于 2025-2-12 01:24
+
+不就是见面前调查软禁真相，见面后推荐延后计划吗。
+
+*****
+
+####  zhouaa  
+##### 7629#       发表于 2025-2-12 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398972&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-11 23:57</a>
+
+可他正义了个啥 鸭脖吗（  
+
+基本上属于什么都不知道的情况下在那搅x</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就和碧轨一个逻辑 不管你的目的是什么  把人抓了就是不对
+
