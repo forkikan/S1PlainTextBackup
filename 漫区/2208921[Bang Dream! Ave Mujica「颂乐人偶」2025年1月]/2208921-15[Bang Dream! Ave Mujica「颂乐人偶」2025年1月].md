@@ -865,3 +865,67 @@ animedia访谈还没出吗<img src="https://static.saraba1st.com/image/smiley/fa
 
 说真的，漏油一直满心期待祥子会被“制裁”后续大概率要失望的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackeryuri2  
+##### 20802#       发表于 2025-2-11 12:49
+
+这里是crychic动画，该滚的是你们ave mujica吧
+
+*****
+
+####  cccpprc  
+##### 20803#       发表于 2025-2-11 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394200&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-11 12:22</a>
+
+有一说一，睦这种有钱人家用的不是防割伤玻璃，也挺怪的，正常应该是直接碎一地了，没想到还有蛛网裂痕。
+
+ ...</blockquote>
+这个更可能是懒得画or用浅显易懂的画面语言表达玻璃被砸过吧
+
+
+*****
+
+####  cccpprc  
+##### 20804#       发表于 2025-2-11 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67394272&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-11 12:30</a>
+
+会是晚上祥子来找睦，然后被愤怒的莫姐扔书，然后祥子跪下说如果你不原谅我我就一直跪在这里不起来然后一直 ...</blockquote>
+卡诺莎之行是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 20805#       发表于 2025-2-11 12:53
+
+ 本帖最后由 哈曼的YY 于 2025-2-11 12:55 编辑 
+
+crychic这集不live 怕不是就要到13集最后四个人看着进门的祥老师说欢迎回来了 到时候除了遗老全疯了
+
+好吧正常点 最后一个离开的祥老师看着空无一人的录音室说撒由那拉然后关上门 ed春日影crychic ver
+
+*****
+
+####  iiiiiiiiii  
+##### 20806#       发表于 2025-2-11 12:55
+
+可能下集不存在CCC的都合剧情。按3rd小剧场来说，祥子就是要彻底切割CCC和睦这些珍爱一切。并且联系《心》这本书，我怀疑下集是祥子在切割前交代后事，而soyo听到祥子切底切割非常伤心和不甘，CCC也就这样解决了彻底死了。最后祥子给初华写了一封“遗书”，之后祥子彻底切割过去，然后彻底化身人偶oblivious。soyo听到祥子切割以后非常伤心，也对CCC死心了。
+
+<img src="https://img.saraba1st.com/forum/202502/11/125509hhny85888czcln5h.jpg" referrerpolicy="no-referrer">
+
+<strong>FB61F2CA5CDA3620E927C354E3105690.jpg</strong> (125.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 12:55 上传
+
+*****
+
+####  iiiiiiiiii  
+##### 20807#       发表于 2025-2-11 12:56
+
+要是祥子Cpart黑化，我觉得可以致敬罪恶王冠了。怪不得大角老师喜欢大河内，原来是喜欢罪恶王冠，我还以为是鲁鲁修呢
+

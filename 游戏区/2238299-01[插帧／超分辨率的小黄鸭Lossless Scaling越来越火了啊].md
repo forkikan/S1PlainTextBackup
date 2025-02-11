@@ -383,3 +383,13 @@ cookies估计早给它顺走了，就是不知道还给它传走了啥东西
 应该有关系，30生成60我在本机上感觉挺流畅，但是串流后明线达不到60的流畅度，只能说比30略强一点 ...</blockquote>
 那死心了，串流玩家不适用<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Deay店长  
+##### 118#       发表于 2025-2-11 12:53
+
+<blockquote>罐子 发表于 2025-2-11 09:36
+试了半天，用来玩模拟器xb2没啥效果。。不知道为啥，感觉有流畅一丢丢，但远没有30-&gt;60的效果，yuzu和龙神 ...</blockquote>
+对，就是这个原因。
+
