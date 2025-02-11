@@ -711,3 +711,13 @@ kite味挺足的，感觉应该比弁魔士好看点吧
 
 昨天手滑把三部曲都删了，字幕超难找的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kiralzb  
+##### 83#       发表于 2025-2-11 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67390008&amp;ptid=2199597" target="_blank">依然荏苒 发表于 2025-2-10 19:27</a>
+昨天手滑把三部曲都删了，字幕超难找的</blockquote>
+老片字幕本来也不咋样，还是高清片源难搞吧，多年前kite的多版本我还是查了才知道区别在哪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

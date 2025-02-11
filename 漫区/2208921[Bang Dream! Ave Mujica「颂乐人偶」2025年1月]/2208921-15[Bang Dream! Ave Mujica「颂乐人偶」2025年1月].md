@@ -1550,3 +1550,22 @@ BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" refer
 然后按照上 ...</blockquote>
 可能和解是感动，可能觉得和解后CcC正式的落幕是送别<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 20864#       发表于 2025-2-11 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第五集时候的第七集ccc live，祥子念起ccc的好的剧透越来越真了
+
+
+*****
+
+####  distrowatch  
+##### 20865#       发表于 2025-2-11 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395005&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-11 14:02</a>
+
+这不是开live的CG配置啊</blockquote>
+演出的铃木大介除了mujica第二话外还负责了第一话live跟mygo12话live，应该会开
+
