@@ -3142,3 +3142,28 @@ chatbox的电脑网页端和手机app端不能同步吗？手机app下了后没�
 
 发现一个小技巧，可以给情节设置一个进展等级，1级表示情节刚刚开始，5级表示情节达到高潮，每次给d指导发消息的时候附上下一段情节的情节等级，可以一定程度上控制情节推进的速度，同理可以拓展到刘备上，只需要稍微修改
 
+
+*****
+
+####  zerona  
+##### 1763#       发表于 2025-2-11 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67395827&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-11 15:39</a>
+
+发现一个小技巧，可以给情节设置一个进展等级，1级表示情节刚刚开始，5级表示情节达到高潮，每次给d指导发 ...</blockquote>
+怎么设定这个1-5的情节区别？直接写开始，过程，高潮，结束就可以吗？
+
+*****
+
+####  zerona  
+##### 1764#       发表于 2025-2-11 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392687&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-2-11 09:55</a>
+
+菊花的是
+
+还能联网，目前用下来体验比硅基和其他几家都好
+
+也就比没被ddos时候的DS自家联网版差一点 ...</blockquote>
+鸿蒙的那个吗？老版本的有说能不能用吗？
+

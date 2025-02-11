@@ -11720,3 +11720,19 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
 
 这样就都圆上了，与小说不冲突。
 
+
+*****
+
+####  岸浪白野  
+##### 6811#       发表于 2025-2-11 15:47
+
+[X 上的 くるみ屋さん(N's)：“修正おじさん vs. 狂犬マチュ #ジークアクス　#GQuuuuuuX [url]https://t.co/TJ3mXvhprn](https://x.com/kurumiyasan_ns/status/1889156246265352567)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/11/154705if17e772zw7c7haj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 15:47 上传
+
