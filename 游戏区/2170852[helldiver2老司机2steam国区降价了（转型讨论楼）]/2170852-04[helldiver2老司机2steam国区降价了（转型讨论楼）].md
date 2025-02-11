@@ -707,3 +707,16 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 刚才看到一个用反坦克炮当投石机把地狱火背包射出去的视频，就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 5744#       发表于 2025-2-11 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391905&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-2-11 03:23</a>
+
+就是玩具，但能玩的花样很多
+
+刚才看到一个用反坦克炮当投石机把地狱火背包射出去的视频，就很离谱 ...</blockquote>
+新债券真好用的还得是这个核弹手枪，配合现在满地的弹药补给很方便能反各种重型敌人
+

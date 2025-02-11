@@ -1569,3 +1569,13 @@ BE吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" refer
 这不是开live的CG配置啊</blockquote>
 演出的铃木大介除了mujica第二话外还负责了第一话live跟mygo12话live，应该会开
 
+
+*****
+
+####  zhoujin8584  
+##### 20866#       发表于 2025-2-11 14:59
+
+<blockquote>huxiaopao163 发表于 2025-2-11 14:02
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+出现了“挺”字，鉴定为串
+
