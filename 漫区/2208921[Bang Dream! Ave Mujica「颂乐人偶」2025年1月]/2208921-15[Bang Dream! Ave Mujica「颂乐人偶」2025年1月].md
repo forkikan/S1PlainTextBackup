@@ -2509,3 +2509,52 @@ ed是新歌是否说明没live</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cccpprc  
+##### 20949#       发表于 2025-2-11 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398140&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-11 21:29</a>
+
+不不……两次打碎就重复了，新生Mujica就是要超级成功，大!成功，除了一个小问题，祥子怎么看怎么有点不对 ...</blockquote>
+睦祥素三个人对着下跪这就已经重复了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且超人小祥这设定其实第三集睦和初华的对话里有暗示，诸如睡事务所之类的桥段也算是旁敲侧击了。
+
+*****
+
+####  iiiiiiiiii  
+##### 20950#       发表于 2025-2-11 21:42
+
+<img src="https://img.saraba1st.com/forum/202502/11/214217xc4i3gblgi8gi2vp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250211_214208_gov.pianzong.androidnga.jpg</strong> (216.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-11 21:42 上传
+
+舅舅什么意思
+
+
+*****
+
+####  swessia  
+##### 20951#       发表于 2025-2-11 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是这么恨大祥老师啊
+
+不想看见中登不出场就行了，真要写死啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 20952#       发表于 2025-2-11 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">编剧解决不了祥父的问题就决定解决祥父本人了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
