@@ -2558,3 +2558,92 @@ ed是新歌是否说明没live</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Delicatus545  
+##### 20953#       发表于 2025-2-11 21:48
+
+原来是这样解决的吗，太巧妙了
+
+*****
+
+####  cccpprc  
+##### 20954#       发表于 2025-2-11 21:49
+
+得了
+
+我们先放一个赤坂明在这里吧
+
+*****
+
+####  十万年魂环  
+##### 20955#       发表于 2025-2-11 21:49
+
+小时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 20956#       发表于 2025-2-11 21:50
+
+老登燒死了中登吧
+
+那接下來只要把老登抓去關，
+
+我們便解決了大人的問題
+
+也是個不是辦法的辦法
+
+最多我們讓Soyo 小姐來句旁白來包餃子
+
+‘ 但是，你知道的，大家，並沒有那麼脆弱。‘
+
+*****
+
+####  是谁的书画  
+##### 20957#       发表于 2025-2-11 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">抠挖苦耐？
+
+*****
+
+####  看穿一切的鱼  
+##### 20958#       发表于 2025-2-11 21:51
+
+Wonder of u 祥老师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿兹尔  
+##### 20959#       发表于 2025-2-11 21:53
+
+玩得有点变态了，怎么还有火刑的
+
+
+*****
+
+####  MASKA-1  
+##### 20960#       发表于 2025-2-11 21:56
+
+有蜘蛛侠，马上还有蝙蝠侠（
+
+
+*****
+
+####  无限舰制  
+##### 20961#       发表于 2025-2-11 21:56
+
+火灾解决老爹，真kira☆kira啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极寒冷焰酋蕾姆  
+##### 20962#       发表于 2025-2-11 21:58
+
+真就物理解决吗？<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">真不愧是最狂少女乐队。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
