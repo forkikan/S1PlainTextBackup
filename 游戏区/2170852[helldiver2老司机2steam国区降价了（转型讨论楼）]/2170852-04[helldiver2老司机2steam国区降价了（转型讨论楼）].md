@@ -728,3 +728,25 @@ KZ联动甲算不算防火，能抗双刃镰吗</blockquote>
 
 机器人喜提另一个严厉的父亲，双刃镰
 
+
+*****
+
+####  qwased  
+##### 5746#       发表于 2025-2-11 18:35
+
+核弹手枪挨刀了，落地固定无备弹+不吃弹药甲增容
+
+双刃镰的温度和穿深正确挂钩，现在固定3穿，修复后要开始掉血才是3穿，着火了变4穿，但是打的时候感觉穿75%防火+生命强化只要着火了也是嘎嘎掉血不敢多打，可以说等于没改
+
+*****
+
+####  Masayuki  
+##### 5747#       发表于 2025-2-11 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67391905&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-2-11 03:23</a>
+
+就是玩具，但能玩的花样很多
+
+刚才看到一个用反坦克炮当投石机把地狱火背包射出去的视频，就很离谱 ...</blockquote>
+可以脱下的瞬间飞扑利用惯性扔出去，操作性拉满<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

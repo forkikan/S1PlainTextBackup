@@ -3305,3 +3305,15 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qqks  
+##### 1777#       发表于 2025-2-11 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396644&amp;ptid=2243718" target="_blank">ltycomputer 发表于 2025-2-11 17:23</a>
+
+【【纯cpu方案】本地部署deepseek-r1-671b-q8速度初测-哔哩哔哩】 
+[https://www.bilibili.com/video/BV1JMN](https://www.bilibili.com/video/BV1JMN) ...</blockquote>
+问题的核心不是带宽，是提示处理，这么大模型，cpu那点算力就是玩具
+

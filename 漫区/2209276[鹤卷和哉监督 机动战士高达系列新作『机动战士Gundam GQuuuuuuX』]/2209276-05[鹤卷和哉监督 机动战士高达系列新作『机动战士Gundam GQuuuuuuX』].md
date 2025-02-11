@@ -11767,3 +11767,18 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
 牢修一眼社会化程度低，只是沉默寡言看不出来，真实性格估计跟小孩一样
 说起来这一跳5，6年，现在骡（如果活着）是不是比鸭年纪大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 6815#       发表于 2025-2-11 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397076&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-11 18:29</a>
+
+牢修一眼社会化程度低，只是沉默寡言看不出来，真实性格估计跟小孩一样
+
+说起来这一跳5，6年，现在骡（如 ...</blockquote>
+感觉小孩不至于吧，可能是常识少，或者就不在乎这些常识，看特典2他还会有和螃蟹闹别扭的时候。
+
+至于鸭子应该回来的时候肉体年龄确实小于妹妹和骡子了。
+
