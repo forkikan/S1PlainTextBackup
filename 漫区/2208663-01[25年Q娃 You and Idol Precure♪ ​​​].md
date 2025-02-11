@@ -2094,3 +2094,18 @@ DEEPSEEK翻译这么厉害的吗！
 偶像光之美少女将来到你的城市与你见面♪</blockquote>
 [https://www.toei-anim.co.jp/tv/precure/live2025/#nagoya](https://www.toei-anim.co.jp/tv/precure/live2025/#nagoya)
 
+
+*****
+
+####  PrincessBanana  
+##### 460#       发表于 2025-2-11 19:17
+
+ 本帖最后由 PrincessBanana 于 2025-2-11 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67396752&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-11 17:38</a>
+什么意思啊？</blockquote>
+一个无聊的机战梗罢了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+机战有一个驾驶陆战机体的角色齐力古，技能演出是把对面摁在山崖上射爆。哪怕战斗场所在宇宙也是套用的这套演出，大家调侃这个角色把山搬上了宇宙，故称宇宙搬山流。
+后来就会在一些固有领域比较大（山、舞台）的终结技演出时被提出来玩梗。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
