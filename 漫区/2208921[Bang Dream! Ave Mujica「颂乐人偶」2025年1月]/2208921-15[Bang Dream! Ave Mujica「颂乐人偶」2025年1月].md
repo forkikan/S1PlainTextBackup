@@ -2708,3 +2708,45 @@ Wonder of u 祥老师<img src="https://static.saraba1st.com/image/smiley/face201
 
 但是不至于把最后的至亲也搞死吧，真要飞祥吗，父母双亡还能救吗
 
+
+*****
+
+####  厚乳果珍爽  
+##### 20969#       发表于 2025-2-11 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞乐队太危险了，还家破人亡成孤儿的。
+
+*****
+
+####  Mr.Giraffe  
+##### 20970#       发表于 2025-2-11 22:17
+
+烈焰升腾吗，这真摇滚
+
+*****
+
+####  十万年魂环  
+##### 20971#       发表于 2025-2-11 22:17
+
+百特曼总比四百大妈好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhzij111  
+##### 20972#       发表于 2025-2-11 22:20
+
+这要是真的那编剧是真会整烂活，不过要是烂成这样确实能让小黑子车都懒得车就是了，也算是回暖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 20973#       发表于 2025-2-11 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398420&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-11 22:17</a>
+
+百特曼总比四百大妈好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，其实不是漫威是dc，祥子是百特曼，睦是双面人，初华是猫女，海玲是谜语人，喵梦是小丑是吧？
+
