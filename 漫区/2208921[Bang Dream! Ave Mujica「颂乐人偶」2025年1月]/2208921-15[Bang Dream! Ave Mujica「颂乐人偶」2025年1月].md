@@ -2827,3 +2827,49 @@ Wonder of u 祥老师<img src="https://static.saraba1st.com/image/smiley/face201
 孤儿也是二刺螈的时尚单品，当然我是不觉得会整火烧这活的</blockquote>
 太时尚单品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，邦多利不至于新十年第二只乐队就是全员各色各类抽象具象的孤儿组成的乐队吧
 
+
+*****
+
+####  MASKA-1  
+##### 20983#       发表于 2025-2-11 22:36
+
+之前不是有猜喵梦孤儿院孩子吗？
+
+*****
+
+####  K·os  
+##### 20984#       发表于 2025-2-11 22:37
+
+那初华更是，不好说父母到底怎么来的，老登私生女说，启动！
+
+*****
+
+####  595505568  
+##### 20985#       发表于 2025-2-11 22:38
+
+你的意思是父母身死的祥子 与父母生不如死的睦 压根不知道爸妈是谁的喵梦 ？？？的初华 和 ？？？的海玲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你不至于告诉我剩下两个一个自己住和爸妈决裂了一个私生子等于不能承认爸妈吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+那确实要外团配平了，这不配平要出事了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 20986#       发表于 2025-2-11 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398159&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-11 21:32</a>
+只有ras是非主唱核心的队伍，原因在于只有ras是真的现有真人乐队，而楚平芳是后面转正加进来的角色
+
+mygo当 ...</blockquote>
+夕阳红也不算主唱核心型吧，虽然大部分矛盾由兰展开，但她更像是被众人推着走的那个
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 20987#       发表于 2025-2-11 22:38
+
+大祥老师要是这么变孤儿就真有点整烂活了吧。
+

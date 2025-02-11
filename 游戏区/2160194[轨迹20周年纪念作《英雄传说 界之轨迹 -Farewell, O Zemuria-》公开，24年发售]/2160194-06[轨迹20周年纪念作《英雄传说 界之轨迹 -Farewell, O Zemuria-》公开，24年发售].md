@@ -997,3 +997,24 @@ grand odyssey 19999-xxxxx
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">另外最终章范爷的逻辑我看不懂 你救啥救 人家老爸是真的在保护她又不是被什么邪教抓走了 然后学妹跑了又去跟大总统jjyy。。这不是纯纯的搅shi棍吗  
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">是不是自己也知道分割的不是地方强行为了塞个最终迷宫和战斗找理由？
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 7623#       发表于 2025-2-11 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398373&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-11 22:09</a>
+
+通了。。98小时噩梦难度 该打的全打了。。  唯一有难度的就是葱头线最终节那场不能死人。。被逼无奈最后只 ...</blockquote>
+还是闪3恶心，没有亲爸和便宜老妈对着无能狂怒的黎恩说风凉话的环节，学妹只是和之前的falcom女主那样挂天上，又不像基友的萝莉手办那样死了。
+
+*****
+
+####  alucardcz  
+##### 7624#       发表于 2025-2-11 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398619&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-2-11 22:46</a>
+
+还是闪3恶心，没有亲爸和便宜老妈对着无能狂怒的黎恩说风凉话的环节，学妹只是和之前的falcom女主那样挂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">但是闪3只关了1年（
+
