@@ -3288,3 +3288,11 @@ niconico前6话好评率
 
 求你了，学福田可以，后面可千万别学成福井啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千本blur  
+##### 328#       发表于 2025-2-12 02:09
+
+0吧，平心静气地说，喵梦和睦莫都是为了塑造大祥老师的主角形象被牺牲掉的配角。想想灰姑娘当年瞎戟把黑未央，至少母鸡卡还知道自己要做什么。
+

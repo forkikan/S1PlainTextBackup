@@ -1072,3 +1072,18 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 基本上属于什么都不知道的情况下在那搅x</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就和碧轨一个逻辑 不管你的目的是什么  把人抓了就是不对
 
+
+*****
+
+####  alucardcz  
+##### 7630#       发表于 2025-2-12 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399273&amp;ptid=2160194" target="_blank">zhouaa 发表于 2025-2-12 01:25</a>
+
+不就和碧轨一个逻辑 不管你的目的是什么  把人抓了就是不对
+
+如果只是把学妹关起来那是别人家务事 范恩出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但学妹都自己溜了你还打还bb这是要做啥鸭
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给我的感觉水剧情水的过头 还选这地方完结 最后发现没有人能打 没有迷宫能跑了 强行搞了个迷宫和boss战
+
