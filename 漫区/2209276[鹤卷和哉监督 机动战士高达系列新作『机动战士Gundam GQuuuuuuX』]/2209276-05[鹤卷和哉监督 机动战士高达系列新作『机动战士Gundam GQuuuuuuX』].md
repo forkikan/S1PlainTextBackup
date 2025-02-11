@@ -11493,3 +11493,14 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 6796#       发表于 2025-2-11 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392727&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-2-11 10:00</a>
+
+过场动画指这个麽？</blockquote>
+两张图上粉毛的气质都不一样了
+
