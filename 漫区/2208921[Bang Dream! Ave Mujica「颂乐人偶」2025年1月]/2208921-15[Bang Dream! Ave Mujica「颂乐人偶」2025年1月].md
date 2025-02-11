@@ -583,3 +583,70 @@ CGディレクター：小川 浩太朗
 [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
 [https://www.bilibili.com/opus/1032529038006026288](https://www.bilibili.com/opus/1032529038006026288)
 
+
+*****
+
+####  ads147147  
+##### 20773#       发表于 2025-2-11 11:39
+
+这图仿佛可以看到soyo额头上浮现出战纹，然后海虎爆破拳一拳打上去，我一直以为soyo不会对大祥动手来着，看来真要回旋镖了。
+
+*****
+
+####  sakatta  
+##### 20774#       发表于 2025-2-11 11:41
+
+友情破颜拳什么时候出
+
+*****
+
+####  6030sylar  
+##### 20775#       发表于 2025-2-11 11:41
+
+大祥这衣服太肤色了像没穿
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 20776#       发表于 2025-2-11 11:42
+
+祥子和睦那张，背后是被砸碎的镜子，祥子看起来跪着，这不就是你们要的三人循环下跪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 20777#       发表于 2025-2-11 11:42
+
+我祥这个姿势，我们忽视掉背景。
+
+不就是出轨的丈夫祈求妻子原谅吗
+
+*****
+
+####  看穿一切的鱼  
+##### 20778#       发表于 2025-2-11 11:42
+
+ccc解散真相，是指其余四个人为什么也不来了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alicest  
+##### 20779#       发表于 2025-2-11 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67393748&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-11 11:42</a>
+我祥这个姿势，我们忽视掉背景。
+
+不就是出轨的丈夫祈求妻子原谅吗</blockquote>
+…这不就是森美奈美演的那出剧
+
+*****
+
+####  阿兹尔  
+##### 20780#       发表于 2025-2-11 11:46
+
+睦祥终于要重归于好，展现半身的实力了吗
+
