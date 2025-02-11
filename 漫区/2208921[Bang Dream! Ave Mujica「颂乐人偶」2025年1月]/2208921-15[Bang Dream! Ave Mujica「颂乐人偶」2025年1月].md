@@ -3051,3 +3051,59 @@ NGA匿个名就能当舅舅了，然后还一堆人信，闹麻了<img src="http
 
 终于有声优看哭了，可以期待一下了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 21005#       发表于 2025-2-12 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399179&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-12 00:52</a>
+来个真看过第7话的人透的吧
+
+【中字/相羽爱奈/丰田萌绘】Mujica第7集必看哭</blockquote>
+第六集能看哭的也是个神人了，是被爽世妈妈的母爱感动了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  客服少女小祥  
+##### 21006#       发表于 2025-2-12 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">典中典BUFF之《声优看哭了》
+
+
+*****
+
+####  木板春香  
+##### 21007#       发表于 2025-2-12 01:05
+
+ 佐仓看完夏洛特的剧本都哭了，哭声感动得麻枝准老师一直到红烧天堂才缓过来
+
+*****
+
+####  iiiiiiiiii  
+##### 21008#       发表于 2025-2-12 01:05
+
+<img src="https://img.saraba1st.com/forum/202502/12/010531x900sh9fc8bbmbly.jpg" referrerpolicy="no-referrer">
+
+<strong>19200478481739293406368.jpg</strong> (68.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 01:05 上传
+
+*****
+
+####  玖羽  
+##### 21009#       发表于 2025-2-12 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399219&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-12 01:05</a></blockquote>
+什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+Post nubila phoebus.
+
+直译：乌云之后是太阳
+
+意为：坏事之后会有好事
+
