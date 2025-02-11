@@ -927,3 +927,13 @@ GP-31最后通牒
 核弹手枪我还没爽到就挨刀了吗</blockquote>
 砍一发备弹罢了，原来喷射舱优化落地1备弹、优化+换弹甲落地2备弹，现在喷射舱优化有没有落地0都是备弹，优化+换弹甲落地1备弹。
 
+
+*****
+
+####  xinfengj  
+##### 5756#       发表于 2025-2-12 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67398227&amp;ptid=2170852" target="_blank">九十九忍 发表于 2025-2-11 21:43</a>
+双刃镰活了几天</blockquote>
+绑防火甲体感差别不大，4阶段趴地上打掉血速度也没快到哪去
+
