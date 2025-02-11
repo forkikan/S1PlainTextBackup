@@ -976,3 +976,13 @@ grand odyssey 19999-xxxxx
 
 李老师：这事我熟，我也选这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7621#       发表于 2025-2-11 22:09
+
+通了。。98小时噩梦难度 该打的全打了。。  唯一有难度的就是葱头线最终节那场不能死人。。被逼无奈最后只能去庭院刷了几个+  其他地方可以说毫无难度 最终boss菜的不能看
+
+这游戏框架不是和闪3一样。。。90%的注水+谜语人 最终章才来了个大的  只不过这次的大是真的很大 但是咚的地方比闪3还恶心人几十亿倍 而且闪3闪4就1年时间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

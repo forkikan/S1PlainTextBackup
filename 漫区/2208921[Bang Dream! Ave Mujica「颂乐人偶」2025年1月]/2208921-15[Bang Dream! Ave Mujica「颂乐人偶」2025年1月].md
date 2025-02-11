@@ -2689,3 +2689,22 @@ Wonder of u 祥老师<img src="https://static.saraba1st.com/image/smiley/face201
 
 天干物燥，小心火烛了
 
+
+*****
+
+####  swessia  
+##### 20967#       发表于 2025-2-11 22:10
+
+大祥：你们是真恨我啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 20968#       发表于 2025-2-11 22:12
+
+越靠近祥子，越会获得不幸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是不至于把最后的至亲也搞死吧，真要飞祥吗，父母双亡还能救吗
+
