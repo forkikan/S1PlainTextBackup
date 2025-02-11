@@ -11744,3 +11744,13 @@ NT部队那张图，最早出自SS版基连野望正统吉翁军的结局画面�
 
 连有德也叫欧吉桑也太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 6813#       发表于 2025-2-11 17:58
+
+突然想到，说是可能鸭子给修司当爹，但他们实际年龄差也没那么大啊。
+
+如果泽克诺瓦是空间跃迁那还能差个7岁，如果是时间跃迁那就只有2岁差，还没和骡子差得多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
