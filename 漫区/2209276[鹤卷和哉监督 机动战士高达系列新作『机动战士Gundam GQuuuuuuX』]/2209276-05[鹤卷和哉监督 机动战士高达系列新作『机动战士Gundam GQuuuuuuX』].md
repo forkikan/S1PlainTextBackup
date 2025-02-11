@@ -11478,3 +11478,18 @@ TV：只出现1话，作为最早被认定的NT，以及他和骡子之间最早
 
 2025-2-11 10:03 上传
 
+
+*****
+
+####  闽明  
+##### 6795#       发表于 2025-2-11 10:16
+
+ 本帖最后由 闽明 于 2025-2-11 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392727&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-2-11 10:00</a>
+过场动画指这个麽？</blockquote>
+库斯珂在游戏里的配音还是榊原良子<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+其实这个角色原本是完整的初钢TV里德金的秘书，预订是要被有德射杀的。TV腰斩这部分内容砍掉以后被富野放到小说里了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

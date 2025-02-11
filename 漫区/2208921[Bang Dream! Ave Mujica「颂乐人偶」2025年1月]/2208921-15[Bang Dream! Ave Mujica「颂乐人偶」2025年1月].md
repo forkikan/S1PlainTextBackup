@@ -308,3 +308,11 @@ https://tieba.baidu.com/p/9483892538</blockquote>
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  CCauchy  
+##### 20749#       发表于 2025-2-11 10:17
+
+这季画面下了血本了, 有的地方都看不出是作画还是3D
+
