@@ -1000,3 +1000,14 @@ Rust是一门很值得学的语言. 写了几千行rust之后再回去写C++我�
 
 至于说什么AI帮忙, AI如果写rust牛逼, 写C++只会更牛逼.
 
+
+*****
+
+####  bcxzzz  
+##### 80#       发表于 2025-2-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402093&amp;ptid=2245923" target="_blank">montanaB 发表于 2025-2-12 13:37</a>
+
+你谈的是另外一个层面的问题</blockquote>
+从技术上来说，可能给一种语言留后门么？ 比如考虑下：1、语言的解释器、编译器是公开代码的么？ 2，即使在语言中留了某个后门，怎么让它在预定的地方起作用？  从技术上说，这能实现不？
+

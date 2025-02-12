@@ -2141,3 +2141,16 @@ DEEPSEEK翻译这么厉害的吗！
 饼干=并感</blockquote>
 这下我懂了
 
+
+*****
+
+####  necoconeco  
+##### 464#       发表于 2025-2-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67397244&amp;ptid=2208663" target="_blank">lyflyflxf 发表于 2025-2-11 20:03</a>
+
+看来每年LIVE营收不错，今年加量了。以下由DS翻译：
+
+https://www.toei-anim.co.jp/tv/precure/live2025/#n ...</blockquote>
+名古屋这场似乎没有主题歌歌手登台，横滨去过了，这个不去了……
+
