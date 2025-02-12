@@ -1256,3 +1256,18 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 话说大人物组这边全都是两边下注，大总统确实也是心太大，把希望全押在凡人击坠王一个人的身上，还是太天真了。感觉他这个计划要想成功，至少得再联合几个大国多搞几台高达出来把黎恩和克洛也射上宇宙打辅助才行。
 
+
+*****
+
+####  alucardcz  
+##### 7643#       发表于 2025-2-12 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406249&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-12 22:54</a>
+
+卢尼为什么下注汉密尔顿博士那边就很迷，只希望下作披露动机时别整什么青梅竹马三人狗血三角恋就行。。
+
+ ...</blockquote>
+大总统压得是反应兵器吧  爱梅丝只是上去引导目标的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我看界2黎爷可能还真要再开一次高达上天打高达（
+
