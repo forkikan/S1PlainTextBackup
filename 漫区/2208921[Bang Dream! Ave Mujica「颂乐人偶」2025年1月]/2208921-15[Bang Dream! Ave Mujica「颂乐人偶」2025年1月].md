@@ -3283,3 +3283,13 @@ Post nubila phoebus.
 
 结合时事，吃不起米饿死可能性更大
 
+
+*****
+
+####  Toki_Ai  
+##### 21026#       发表于 2025-2-12 08:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">阿哲，烧就烧吧，直接死了手游岂不是少了下一次爆团的水字数时间，应该不至于，怀疑是骑士归来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
