@@ -4623,3 +4623,39 @@ C part最终Boss登场（无论初华还是祥子，登场的是谁，谁就是�
 爱音厨可以切割母鸡卡动画</blockquote>
 lsl不是点评了么：爱音爱着人类。
 
+
+*****
+
+####  指南アキラ  
+##### 21160#       发表于 2025-2-12 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401311&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-12 11:46</a>
+
+场景确实是发疯了很久的样子 只能说爽女士母性大发一天治好了 要么别细想 莫姐的心智水平也就是个还坚守 ...</blockquote>
+Mortis早就展示过见碟下菜的本事，我是看到它在窗边目送Soyo离开并无视睦对此的质问时才产生了这个想法
+
+<img src="https://img.saraba1st.com/forum/202502/12/162346aedjzzdm7iksmt5k.png" referrerpolicy="no-referrer">
+
+<strong>jietu2120910.png</strong> (890.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 16:23 上传
+
+这里就好像Mortis在期待Soyo过去的结果
+
+
+*****
+
+####  empereur  
+##### 21161#       发表于 2025-2-12 17:01
+
+<blockquote>DARK_HGCG 发表于 2025-2-12 15:09
+海铃会不会是这样的
+
+表面上装作不在乎
+
+其实飘零半生一直想找个归宿
+</blockquote>
+莫名想起“布飘零半生，未逢明主”
+

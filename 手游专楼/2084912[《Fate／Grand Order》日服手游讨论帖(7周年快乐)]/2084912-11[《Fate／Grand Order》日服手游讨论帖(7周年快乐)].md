@@ -307,3 +307,20 @@
 还得是护符</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗萌新欧羡慕 妈的我就毛都没出
 
+
+*****
+
+####  alucardcz  
+##### 16261#       发表于 2025-2-12 17:06
+
+这名字藏了个寂寞。。
+
+还是个绿光炮
+
+*****
+
+####  khxooo  
+##### 16262#       发表于 2025-2-12 17:07
+
+呼符来了小野小町<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
