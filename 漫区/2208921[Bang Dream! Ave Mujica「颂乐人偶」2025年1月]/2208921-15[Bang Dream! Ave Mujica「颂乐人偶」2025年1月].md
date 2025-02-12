@@ -5920,3 +5920,40 @@ did患者随着时间推移，脑内会继续产生其他人格，只不过很�
 
 而且由于童年创伤造成的did患者，都会有个儿童心智但沉默寡言比较悲观对创伤场景比较深的儿童人格，墨提斯乐观的有点违反设定了。
 
+
+*****
+
+####  plok201  
+##### 21269#       发表于 2025-2-13 00:29
+
+初华的问题不是有没有铺垫，而是她最后真的整大的后，前面初华的戏份和演出能不能让观众接受她有能力整这个大活
+
+真的阅片量多的话，肯定看过很多烂片为了惊天大逆转，把一些不像黑幕但是背后有故事的硬弄成黑幕，最后找补越写越乱，导致整个片变得非常怪异
+
+
+*****
+
+####  天空塔书记官  
+##### 21270#       发表于 2025-2-13 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 21271#       发表于 2025-2-13 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406691&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-13 00:26</a>
+
+而且从第三集和第六集是能看到舞台下坐着一堆无意识的睦头。
+
+did患者随着时间推移，脑内会继续产生其他人格 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所谓叫去看医生的观众都好像对 这块没什么概念
+
+只是复读”看医生“
+
+真去看医生 先不提睦爸妈愿不愿意影不影响星途，就你说的，可能反而医生会杀死睦人格的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
