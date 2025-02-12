@@ -1290,3 +1290,28 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 核弹确实能摧毁盒子，就是没想到盒子还能读档</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我打的时候在想 你是不是忘记你打的是什么了 。是时之至宝啊 “时”啊(
 
+
+*****
+
+####  大厨麦当牛  
+##### 7646#       发表于 2025-2-12 23:59
+
+<blockquote>alucardcz 发表于 2025-2-12 23:33
+大总统压得是反应兵器吧  爱梅丝只是上去引导目标的
+
+我看界2黎爷可能还真要再开一次高达上天打高达（
+
+</blockquote>
+没引导就打不中没用了啊，没高达护航那些小防御机都能把导弹拦截了。
+
+*****
+
+####  alucardcz  
+##### 7647#       发表于 2025-2-13 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406565&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-12 23:59</a>
+
+没引导就打不中没用了啊，没高达护航那些小防御机都能把导弹拦截了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看小飞机不是乱杀的 没毛病  根本没预料到过会有高达
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说白了大总统本身也就是个知道点内情的凡人 身边还是全是25仔 没救了
+

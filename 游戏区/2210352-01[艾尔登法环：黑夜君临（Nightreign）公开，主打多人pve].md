@@ -1904,3 +1904,11 @@ goty没让我破防，这玩意给我干破防了
 
 看了几家媒体的评测，感觉组野队的游戏体验可能波动极大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水莲寺流歌  
+##### 209#       发表于 2025-2-13 00:05
+
+看完评测感觉耐玩性堪忧啊，200块估计也就骗骗魂游凯子了
+
