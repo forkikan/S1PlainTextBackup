@@ -227,3 +227,26 @@
 
 （紫式部墓隔壁是小野篁的墓地，民间传说紫式部写《源氏物语》要进地狱，小野篁去阎魔大王那捞人<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 16296#       发表于 2025-2-12 20:03
+
+<blockquote>音無麻理亜 发表于 2025-2-12 19:36
+坏了，情人节2025的kirakira是ave mujika的kirakira
+
+紫式部：说好的是同事来，怎么变隔壁邻居老头的女儿/ ...</blockquote>
+小町：我该怎么称呼篁大人呢？父亲还是祖父？
+
+篁：
+
+<img src="https://img.saraba1st.com/forum/202502/12/200252vik76prepr6eo8se.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250212_200103.jpg</strong> (36.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 20:02 上传
+

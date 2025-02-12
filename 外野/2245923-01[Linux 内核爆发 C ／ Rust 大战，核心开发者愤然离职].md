@@ -1056,3 +1056,75 @@ Rust是一门很值得学的语言. 写了几千行rust之后再回去写C++我�
 
 其次前几个月在 Rust4Linux 会议上有 C 的支持者当众指着鼻子骂，这才是这些纷争的导火索
 
+
+*****
+
+####  samfs  
+##### 85#       发表于 2025-2-12 19:59
+
+<blockquote>ryanz 发表于 2025-2-12 17:50
+图一乐现在学 python 玩最火的 ai 吧。</blockquote>
+有一说一确实可以试试
+
+*****
+
+####  samfs  
+##### 86#       发表于 2025-2-12 19:59
+
+<blockquote>我是蓝石头 发表于 2025-2-12 18:10
+建议python，一个上午就可以用pytorch零到一写一个简单的有监督机器学习训练加推理，感受朴素的机器学习 ...</blockquote>
+看描述确实很有乐趣
+
+
+*****
+
+####  Steel.Haze  
+##### 87#       发表于 2025-2-12 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404132&amp;ptid=2245923" target="_blank">d2loader 发表于 2025-2-12 17:42</a>
+
+根本不是你说的能阻止或者禁止的，现在是个人按照教程就能用rust写内核驱动</blockquote>
+实际上我说这些的主要感觉就是rust进内核就是有推手搞起来的一阵风，各个社区都有抵制情绪，再结合上面的提到的情况，最终无疾而终。能写当然是肯定能写。不过其最终不会占据一偶。
+
+*****
+
+####  abcxiawei  
+##### 88#       发表于 2025-2-12 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404180&amp;ptid=2245923" target="_blank">samfs 发表于 2025-2-12 17:47</a>
+
+非计算机专业，图一乐的话，rust 值得学吗，和 C 比呢</blockquote>
+不值，非计算机专业请一切围绕你要实现的东西走，哪个语言能最快的实现出你想要的东西，你就用哪个，没必要一定用rust，甚至没必要一定用C
+
+
+*****
+
+####  abcxiawei  
+##### 89#       发表于 2025-2-12 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404685&amp;ptid=2245923" target="_blank">非教徒 发表于 2025-2-12 18:57</a>
+
+来个教程的链接啊...</blockquote>
+教程？随便打开个AI，问它：
+
+1.我想要个什么，应该用什么实现
+
+巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉
+
+2.这个东西需要什么样的环境，怎么搭
+
+巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉
+
+3.环境搭好了，请给我写一个范例程序
+
+巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉巴拉
+
+*****
+
+####  Wiksy  
+##### 90#       发表于 2025-2-12 20:06
+
+<blockquote>samfs 发表于 2025-2-12 17:47
+非计算机专业，图一乐的话，rust 值得学吗，和 C 比呢</blockquote>
+非专业的就用各种脚本语言平时做工具就挺好的了，不需要C或者rust这种
+
