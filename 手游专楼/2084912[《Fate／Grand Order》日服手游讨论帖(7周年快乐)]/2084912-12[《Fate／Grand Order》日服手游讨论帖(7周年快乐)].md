@@ -15,3 +15,38 @@
 
 不过这种考据充分的角色适合在咕哒咕哒这种历史活动出，情人节这么搞就太阴间了，堪比碧蓝航线那个大凤META，不至于过于猎奇吧...
 
+
+*****
+
+####  Jamaisvu  
+##### 16282#       发表于 2025-2-12 17:49
+
+ 本帖最后由 Jamaisvu 于 2025-2-12 17:53 编辑 
+<blockquote>琴酒 发表于 2025-2-12 17:38
+</blockquote>
+
+这个帅哥该不会是小町的爷爷小野篁吧，百度说他在阎王那里当过冥官：
+
+<img src="https://img.saraba1st.com/forum/202502/12/175323ngmhnzaom1mhxvfr.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>66bd347e50340c59765814481a3f91c576c0633e.jpg@1053w_555h_1c.webp</strong> (10.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 17:53 上传
+
+*****
+
+####  quanlix  
+##### 16283#       发表于 2025-2-12 17:49
+
+看台词是又个把爹给缝进去的
+
+*****
+
+####  岸浪白野  
+##### 16284#       发表于 2025-2-12 17:53
+
+天阵营和有神性，羁绊礼装提到佛的视角，这可不单是和她爷爷小野篁缝在一起那么简单<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
