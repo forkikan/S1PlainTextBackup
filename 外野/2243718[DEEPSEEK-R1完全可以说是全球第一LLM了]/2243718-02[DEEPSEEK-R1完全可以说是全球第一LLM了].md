@@ -3566,3 +3566,16 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 买一块4090d等级的显卡跑q4就很爽啦
 
+
+*****
+
+####  精钢魔像  
+##### 1799#       发表于 2025-2-12 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402363&amp;ptid=2243718" target="_blank">qqks 发表于 2025-2-12 14:12</a>
+
+普遍评测蒸馏70b的llama3 不如32b的那个
+
+买一块4090d等级的显卡跑q4就很爽啦 ...</blockquote>
+说的是用RAGflow建知识库，deepseek负责语言解析和推理，知识库的内容要自己喂
+

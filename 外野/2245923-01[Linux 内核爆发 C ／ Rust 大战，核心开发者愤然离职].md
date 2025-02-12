@@ -862,3 +862,39 @@ Rust 粉和 NodeJS 粉已经快接近之前的 PHP 了<img src="https://static.s
 
 你愿意换是你的自由。但我觉得当一个语言没有解决既往语言面对的问题的时候，那它的存在价值就是要打问号的。
 
+
+*****
+
+####  darklinden  
+##### 70#       发表于 2025-2-12 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401819&amp;ptid=2245923" target="_blank">ryanz 发表于 2025-2-12 12:57</a>
+
+公司禁止用 copilot 不太了解关于它修复代码的原理，猜测可能因为编辑器的 linter 告诉 copilot 它才知道 ...</blockquote>
+
+claude, copilot一开始死不悔改说没错，但是认编译器报错，可以正确提示修改意见
+
+ds问了死不悔改说没错，再问busy了就没试成编译器错误信息回复，理论上应该会认...
+
+gpt不开search和reason也是死不悔改，开了就一次过...
+
+<img src="https://img.saraba1st.com/forum/202502/12/140937qchs38dchmnac8f7.png" referrerpolicy="no-referrer">
+
+<strong>wtf.png</strong> (280.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 14:09 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ryanz| + 2|欢乐多|
+
+查看全部评分
+

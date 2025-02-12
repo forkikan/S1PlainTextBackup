@@ -4186,3 +4186,21 @@ nga专楼
 
 海玲完全不算关键节点所以利息也不算（
 
+
+*****
+
+####  aptx8285144  
+##### 21117#       发表于 2025-2-12 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402358&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-12 14:11</a>
+
+母鸡卡就像萝团一样可以指导怎么飞得高，狗团则跟ppp一样指导你怎么飞得远，我觉得新十年这样的搭配很好 ...</blockquote>
+反正当年真飞鸟和露娜后面也成了基神夫妇的小弟，GO团指导鸡团也是一种复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21118#       发表于 2025-2-12 14:20
+
+看到ccclive的情报有点汗流浃背了，这个情绪流做越好不会越奇怪吗，先不说团魂破碎的鸡团连狗团都得被垫了（
+
