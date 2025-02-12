@@ -1175,3 +1175,11 @@ M佬怒辞…
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  coyove  
+##### 93#       发表于 2025-2-12 22:42
+
+可以去看看hellwig的回复，“不是说我不喜欢rust”，叠甲叠满<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，rust不愧是编程界原神
+

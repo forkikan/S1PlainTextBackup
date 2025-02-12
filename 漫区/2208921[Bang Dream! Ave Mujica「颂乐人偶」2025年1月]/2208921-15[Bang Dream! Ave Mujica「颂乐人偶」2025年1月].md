@@ -5567,3 +5567,16 @@ mortis的事情还可以操作一下，最后被大卡车创一下代替睦消�
 不说别的，单论我个人口味嗷，我一点不希望大莫和大祥和解。我就希望这俩人不对付，祥子以后再怎么牛逼见到大莫也要低低在下，这才有节目效果。
 想想看上一秒对大祥温温柔柔百依百顺的睦下一秒转头变成莫提斯对大祥狠狠瞪眼哈气，再念点别碰我绝不原谅之类的话，我就觉得爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KLHgg  
+##### 21247#       发表于 2025-2-12 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405060&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-12 19:47</a>
+
+从莫老师的一个月没来看的台词来看，编剧应该是很清楚自己在写什么的，头脑非常清醒。
+
+至于能不能收住那就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">头脑很清醒地炒作
+

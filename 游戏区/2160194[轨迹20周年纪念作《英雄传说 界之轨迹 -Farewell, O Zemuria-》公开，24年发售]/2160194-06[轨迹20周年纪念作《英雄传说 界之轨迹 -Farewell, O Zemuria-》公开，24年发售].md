@@ -1230,3 +1230,14 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">falcom真正的理由难道不是在于近藤采访？
 说总统提前计划没有任何实际理由只是讨个彩头。
 
+
+*****
+
+####  大厨麦当牛  
+##### 7641#       发表于 2025-2-12 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401368&amp;ptid=2160194" target="_blank">dio999 发表于 2025-2-12 11:54</a>
+
+葱头打李霞那战我都看不出为啥要打</blockquote>
+这个法老控当场就借拉碧丝的口吐槽了，最终找了个“仪式感”当理由。
+
