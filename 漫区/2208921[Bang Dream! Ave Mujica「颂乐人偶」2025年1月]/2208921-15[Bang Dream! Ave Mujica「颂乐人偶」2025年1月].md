@@ -3342,3 +3342,28 @@ Post nubila phoebus.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真父母双亡就变布鲁斯韦恩了，但是实际上被拷打的章鱼像joker
 
+
+*****
+
+####  zhoujin8584  
+##### 21032#       发表于 2025-2-12 09:09
+
+不太可能，有实绩的舅舅确认了下一集没有初华和大猫的戏份，那就演不了有的没的，就是把live搞好让海铃悟道开始行动的事
+
+*****
+
+####  sakatta  
+##### 21033#       发表于 2025-2-12 09:10
+
+父母双亡也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 21034#       发表于 2025-2-12 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399960&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-12 09:09</a>
+
+不太可能，有实绩的舅舅确认了下一集没有初华和大猫的戏份，那就演不了有的没的，就是把live搞好让海铃悟道 ...</blockquote>
+额，初华大猫有没有戏份和这个事也无关吧。
+
