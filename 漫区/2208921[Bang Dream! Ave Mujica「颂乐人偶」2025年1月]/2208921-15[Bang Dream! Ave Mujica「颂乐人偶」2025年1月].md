@@ -4928,3 +4928,37 @@ nga因为之前猴子打印机的事，那堆“剧透”传的是最多的
 所以海猫鸣泣说了，没有爱就看不见，现在素世是不是爱和情报都拿在手上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 有人拿着猴子的片段躲在后面美美拼莎士比亚呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 21185#       发表于 2025-2-12 18:37
+
+莫姐的出现就是三神人已经死结了没法和解 编剧也不知道怎么写开只好天降双重人格了
+
+*****
+
+####  yaneis  
+##### 21186#       发表于 2025-2-12 18:41
+
+拼莎士比亚更变态了，因为ccc组不成了牢祥没办法才回去组鸡团这是人能想出来的吗，太恐怖了
+
+
+*****
+
+####  595505568  
+##### 21187#       发表于 2025-2-12 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404562&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-12 18:41</a>
+拼莎士比亚更变态了，因为ccc组不成了牢祥没办法才回去组鸡团这是人能想出来的吗，太恐怖了，鸡粉一辈子都 ...</blockquote>
+你无法回到春日的暖阳下，只能寻求月光下人偶的舞会也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 21188#       发表于 2025-2-12 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404562&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-12 18:41</a>
+拼莎士比亚更变态了，因为ccc组不成了牢祥没办法才回去组鸡团这是人能想出来的吗，太恐怖了，鸡粉一辈子都 ...</blockquote>
+就像Layer放手这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是一辈子两人在一起组乐队的梦只能一瞬的闪耀后各归各主，这有什么人下人的，那岂不是ppp和RAS都比不过二人乐队了，哪有的事情
+

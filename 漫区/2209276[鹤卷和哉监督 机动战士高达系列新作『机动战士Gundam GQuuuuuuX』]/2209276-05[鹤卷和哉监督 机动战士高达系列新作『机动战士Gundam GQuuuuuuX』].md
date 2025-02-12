@@ -12057,3 +12057,28 @@ Plazma
 联邦手上有
 所罗门就是用手电筒打下来的
 
+
+*****
+
+####  猪突猛进  
+##### 6838#       发表于 2025-2-12 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404426&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-12 18:20</a>
+
+联邦手上有
+
+所罗门就是用手电筒打下来的</blockquote>
+那不是镜子吗？
+
+
+*****
+
+####  岸浪白野  
+##### 6839#       发表于 2025-2-12 18:43
+
+[X 上的 オトナの食玩倶楽部：“『機動戦士Gundam GQuuuuuuX』マチュ＆ニャアンセット デコマスまだ手元にあるので、デジカメで何枚か撮影してご紹介！ （うまくピントが合わせられず一部少しレタッチしてます） バッグも細かく塗分けられております [url]https://t.co/Mr51IOMSaR](https://x.com/otona_shokugan/status/1889623029329830354)” / X[/url]
+
+<img src="https://pbs.twimg.com/media/GjlKIGGaIAIB0wk?format=jpg&amp;name=4096x4096" id="aimg_Pu6my" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/GjlKIGEaIAIOC1L?format=jpg&amp;name=large" id="aimg_fDXe5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/GjlKIGQaIAMcb1u?format=jpg&amp;name=large" id="aimg_P5aSc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/GjlKIGOaIAQyElL?format=jpg&amp;name=large" id="aimg_nAC3c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+[X 上的 オトナの食玩倶楽部：“『機動戦士Gundam GQuuuuuuX』マチュ＆ニャアンセット 机が大きいというコメントがありましたが、その通りです。こちらは意図的に少し大きく造形しております [url]https://t.co/kQLnw2uYTt](https://x.com/otona_shokugan/status/1889624271888195850)” / X[/url]
+<img src="https://pbs.twimg.com/media/GjlLQc9aUAABxST?format=jpg&amp;name=large" id="aimg_VuyzM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/GjlLQdMbEAEgi2w?format=jpg&amp;name=large" id="aimg_lSP26" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/GjlLQdTaIAAQcUZ?format=jpg&amp;name=4096x4096" id="aimg_lMdj7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
