@@ -1912,3 +1912,20 @@ goty没让我破防，这玩意给我干破防了
 
 看完评测感觉耐玩性堪忧啊，200块估计也就骗骗魂游凯子了
 
+
+*****
+
+####  TheCyrodiil  
+##### 210#       发表于 2025-2-13 00:10
+
+单人玩流程能撑40小时吗？能我就买<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 211#       发表于 2025-2-13 00:13
+
+试玩里有个三头犬boss，p2会分裂成三只狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这单人怎么打，就是给组队设计的
+

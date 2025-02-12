@@ -12160,3 +12160,24 @@ Plazma
 
 官图看有5款胶片，结果这周在二手市场看到的款式已经多于10款了，卡拉做特典是不是high疯了，上周是小册子变大开本设定集这周是官推自己都没告知一共多少款的随机胶片<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6848#       发表于 2025-2-13 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406563&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-2-12 23:58</a>
+
+官图看有5款胶片，结果这周在二手市场看到的款式已经多于10款了，卡拉做特典是不是high疯了，上周是小册子 ...</blockquote>
+机体版胶片有1600多种
+
+*****
+
+####  王留美  
+##### 6849#       发表于 2025-2-13 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406065&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-12 22:26</a>
+
+全职走私犯，身上的制服是假的，自行车也疑似是偷的</blockquote>
+身上的制服是假的还行，起码不是偷的（
+

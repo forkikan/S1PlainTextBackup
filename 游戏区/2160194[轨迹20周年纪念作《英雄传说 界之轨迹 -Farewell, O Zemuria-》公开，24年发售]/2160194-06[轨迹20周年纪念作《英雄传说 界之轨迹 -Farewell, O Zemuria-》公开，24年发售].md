@@ -1315,3 +1315,13 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看小飞机不是乱杀的 没毛病  根本没预料到过会有高达
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说白了大总统本身也就是个知道点内情的凡人 身边还是全是25仔 没救了
 
+
+*****
+
+####  大厨麦当牛  
+##### 7648#       发表于 2025-2-13 00:07
+
+我感觉那段的演出的效果是:因为MK公司的AI出问题了导致误判，导致所有人半场开香槟，导致击坠王大意被黑骑偷袭秒了。
+
+否则如果AI没那么早下判断的话，高达虽然也不一定打的过黑骑，但至少能撑到核弹全发射出去，如果all in都不能完全摧毁时至宝的话，那也没脾气了吧。
+
