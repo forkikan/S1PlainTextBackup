@@ -324,3 +324,62 @@
 
 呼符来了小野小町<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 16263#       发表于 2025-2-12 17:11
+
+又藏三破满破，有病吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  khxooo  
+##### 16264#       发表于 2025-2-12 17:13
+
+神经病吗，玩上瘾是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 16265#       发表于 2025-2-12 17:13
+
+惊了，不按套路出牌啊，竟然是小野小町。
+
+卡面又又又又锁三四破：
+
+<img src="https://img.saraba1st.com/forum/202502/12/171017tens7dl676eeke7v.jpg" referrerpolicy="no-referrer">
+
+<strong>FCF402150C8631DA5711B809FCA4A70664140487.jpg</strong> (165.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202502/12/171017t2un3zzfsqynzh9w.jpg" referrerpolicy="no-referrer">
+
+<strong>D7FA17B7583A09198D192ABA431C97B19867735.jpg</strong> (165.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 17:10 上传
+
+技能解包：
+
+<img src="https://img.saraba1st.com/forum/202502/12/171059csxemj6wdqkwxwd0.jpg" referrerpolicy="no-referrer">
+
+<strong>3A832898DF50BE443C67A681120C7CEB.jpg</strong> (188.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 17:10 上传
+
+有50自充、20三色魔放、30宝威、50对死灵和恶特攻和前置20宝威的C阶绿光炮。
+
+数值给的挺慷慨，常驻白杯，就是色卡和职介有点毒...
+
