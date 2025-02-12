@@ -426,3 +426,36 @@ ds其实是工程学上的进步，gpt这些ai做的是从0到1，国内干的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  青春之我  
+##### 44#       发表于 2025-2-12 19:09
+
+话说deepmind在用alphago zero把塔克打哭以后还有什么重大成果吗？
+
+*****
+
+####  jshtstong  
+##### 45#       发表于 2025-2-12 19:12
+
+好，挺好！
+
+请一定要保持你的倔强
+
+我们很喜欢你现在的样子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Indolencoma  
+##### 46#       发表于 2025-2-12 19:15
+
+我认为的科学进步：我告诉你们一个原理，你们可以自己去用，包学包会，想用在哪儿用在哪儿。
+
+他们认为的科学进步：我有一个产品，它可以实现ABCD……你们快来掏钱买/用啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
