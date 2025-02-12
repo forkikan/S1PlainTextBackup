@@ -164,3 +164,11 @@ BV1uPP1ekEw4还是有的
 
 人设确实是很大的问题，现在看来除了开播前能炒炒热度以外全是debuff。尤其是剧中前世的闪回更是割裂感十足
 
+
+*****
+
+####  codezwei  
+##### 255#       发表于 2025-2-12 19:48
+
+病娇太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

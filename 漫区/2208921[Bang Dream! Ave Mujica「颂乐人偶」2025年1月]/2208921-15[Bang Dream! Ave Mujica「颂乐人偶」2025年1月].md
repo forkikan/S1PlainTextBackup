@@ -5306,3 +5306,21 @@ layer还直球表白ras呢，也没有再当个风湿病人</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  K·os  
+##### 21224#       发表于 2025-2-12 19:49
+
+编剧一直很清楚自己在写什么，社群里是假药加假药滑坡加滑坡才变成现在这样的
+
+*****
+
+####  梅杜莎  
+##### 21225#       发表于 2025-2-12 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404825&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-12 19:13</a>
+
+这个太没说服力了，艺人平时请假没去上课太正常了，而且广告牌这东西本来就是定期会换的，你说这是异常也 ...</blockquote>
+旁白也…
+
