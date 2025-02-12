@@ -5635,3 +5635,38 @@ mortis的事情还可以操作一下，最后被大卡车创一下代替睦消�
 
 2025-2-12 22:51 上传
 
+
+*****
+
+####  玖羽  
+##### 21250#       发表于 2025-2-12 22:58
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+〖老蒋巨靠谱〗解构mygica ：从四重后现代神话映射现实，老蒋对角色的完全体解读
+[https://www.bilibili.com/video/BV1B1NzeVELw/](https://www.bilibili.com/video/BV1B1NzeVELw/)
+
+
+*****
+
+####  plusSharp  
+##### 21251#       发表于 2025-2-12 23:04
+
+现在还缺一个“这样的祥子，根本不配获得幸福”的玛奇玛位角色给祥子迎头痛击，灯和爱音的出击完全不够
+
+*****
+
+####  哈曼的YY  
+##### 21252#       发表于 2025-2-12 23:05
+
+原来只要说可爱就生气吗
+
+*****
+
+####  天空塔书记官  
+##### 21253#       发表于 2025-2-12 23:06
+
+想要彻底“摧毁”祥子这个人物，就必须让她和乐队绑在一起…<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
