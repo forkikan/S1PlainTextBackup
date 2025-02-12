@@ -3502,3 +3502,41 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 我是节选想要的段落，反复开新对话，让R1从各种角度分析文风、写法。但是它生成的东西基本都没有用，所以 ...</blockquote>
 回去试试。
 
+
+*****
+
+####  2017.05.04  
+##### 1794#       发表于 2025-2-12 13:57
+
+<img src="https://img.saraba1st.com/forum/202502/12/135733czj3zvrbkkwycywc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9fe2091a1ff2f9612e8db443fc8ab700.jpeg</strong> (732.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 13:57 上传
+
+
+*****
+
+####  精钢魔像  
+##### 1795#       发表于 2025-2-12 14:01
+
+在b站上看到了，16GB显存就能混合计算4b量化的
+
+去年买显卡时真该买个16GB 4060ti
+
+*****
+
+####  qqks  
+##### 1796#       发表于 2025-2-12 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402273&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-2-12 14:01</a>
+
+在b站上看到了，16GB显存就能混合计算4b量化的
+
+去年买显卡时真该买个16GB 4060ti</blockquote>
+两块xeon 6454s 1t内存加1块4090d
+
+这还得有十几万的投资
+

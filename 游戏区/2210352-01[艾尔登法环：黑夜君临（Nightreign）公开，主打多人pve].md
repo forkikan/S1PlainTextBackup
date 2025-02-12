@@ -1785,3 +1785,16 @@ goty没让我破防，这玩意给我干破防了
 2025年2月16日（日）19:00～22:00
 2025年2月17日（一）11:00～14:00
 
+
+*****
+
+####  wthall  
+##### 196#       发表于 2025-2-12 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400996&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-2-12 11:10</a>
+
+没当选
+
+【《艾尔登法环：黑夜君临》测试兑换码现已发放】From Software宣布，《艾尔登法环：黑夜君临》网络 ...</blockquote>
+啊，还要兑换码啊，那看看直播拉倒了
+

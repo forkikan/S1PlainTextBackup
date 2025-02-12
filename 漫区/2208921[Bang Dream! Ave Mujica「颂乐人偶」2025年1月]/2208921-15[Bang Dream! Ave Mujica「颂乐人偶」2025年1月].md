@@ -4119,3 +4119,24 @@ nga专楼
 
 倒不如说下一个团看到鸡团“风光无限”，场外观众才更有可能觉得“自己知道内情，她们其实不是这样”而感到有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 21110#       发表于 2025-2-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402234&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-12 13:55</a>
+憧憬鸡团怎么不可能，在不知情路人视角里鸡团可是一飞冲天各种炒作，路人又不知道什么第二人格、前任文学 ...</blockquote>
+“你们一定是很专业的前辈，请问团队初期怎么拧绳比较好？”<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+祥子“有点困难呢<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">”
+“真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">”
+“因为我们炸完重新拧绳的第一步是隔壁团干的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”
+“阿哲”<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21111#       发表于 2025-2-12 14:06
+
+炸完团之后神隐三个团员的打法还是太变态了，最关键的剧情节点全让给ccc（不含利息）这团魂还能卖得动吗（
+
