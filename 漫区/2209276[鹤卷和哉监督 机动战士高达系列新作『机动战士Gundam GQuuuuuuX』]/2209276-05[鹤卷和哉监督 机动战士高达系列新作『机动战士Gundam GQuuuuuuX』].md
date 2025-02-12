@@ -11852,3 +11852,43 @@ GQX这个宇宙居民被EF和鸡瘟两边夹中间的处境也算不上好吧，
 
 美国月底上映，今天可以买票了
 
+
+*****
+
+####  Steel.Haze  
+##### 6823#       发表于 2025-2-12 10:08
+
+ 本帖最后由 Steel.Haze 于 2025-2-12 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399307&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-12 01:39</a>
+
+GQ版大魔(里克大魔)</blockquote>
+出击镜头有完整的力克大魔半身图，基本和79类似（大魔设计上很完善了）。不过胸甲更外凸，手臂和身体有一段新的关节延伸（类似铁人的那种）【确实解决了模型上的可动问题】，肩甲更大，有吊装杆。腿部没有展示。
+
+<img src="https://img.saraba1st.com/forum/202502/12/100800x9xvnvbx5nq5rqwt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 10:08 上传
+
+
+*****
+
+####  gundammarkⅡ  
+##### 6824#       发表于 2025-2-12 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399307&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-12 01:39</a>
+GQ版大魔(里克大魔)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都出场了也不给个机设图？是想藏到TV后面还有表现的机会麽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+算起来，原TV版外的大魔/力奇大魔好像一直被万代忽视，
+原UC版有卡大爷修身加持，MG还能出两个1.25，
+0080/0083的衍生型倒是赶上早年HGUC的东风都出了
+但08小队版就至今没有商品
+GTO动画版机设（不算原著漫画）没份，MSD留空弄了两款YMS-08B，虽然GTO动画版老虎也这般待遇啦
+雷霆版力奇大魔倒是有机设图，却和雷霆版格鲁古古一样没商品化
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
