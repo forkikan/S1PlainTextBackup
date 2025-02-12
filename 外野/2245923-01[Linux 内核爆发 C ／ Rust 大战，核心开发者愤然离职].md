@@ -777,3 +777,65 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 深入到实际的软件工程，rust带来的不甚可靠的安全性就未必值得给linux这样的成熟项目额外带来工程上的复杂度了。
 
+
+*****
+
+####  montanaB  
+##### 64#       发表于 2025-2-12 13:37
+
+<blockquote>redbuck 发表于 2025-2-12 12:15
+逃生窗肯定要留的，这不算啥黑点</blockquote>
+rust如果不吹它那一套“”彻底解决内存安全问题“”那这就不是黑点。问题是rust天天在吹这个，那这个逃生窗就成了个笑话
+
+*****
+
+####  montanaB  
+##### 65#       发表于 2025-2-12 13:37
+
+<blockquote>bcxzzz 发表于 2025-2-12 13:03
+对于这种后出来的语言，美国的棱镜计划之类的，会不会直接在编译器里埋后门？
+
+—— 来自 HUAWEI LIO-AL0 ...</blockquote>
+你谈的是另外一个层面的问题
+
+
+*****
+
+####  abcxiawei  
+##### 66#       发表于 2025-2-12 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401825&amp;ptid=2245923" target="_blank">YoumuChan 发表于 2025-2-12 12:57</a>
+
+那么你可以说rust有很陡峭的学习曲线，但我觉得跟加强心智负担是有区别的。
+
+而C/C++也只不过是把rust陡峭 ...</blockquote>
+没心智负担怎么会那么多和编译器搏斗的笑话？你别和我说这都是程序员水平不行造成的，当一个工具开始使劲强调使用者的水平的时候，它的竞争力就要下降了。
+
+不好用就是不好用，不用给工具找理由。
+
+要解决内存安全性问题的初衷没有错，但是rust的这个解法肯定是有问题的，学习曲线陡，使用起来照样困难。
+
+我没有说C/C++容易，实际上这两个语言也是以难度高，难以精通著称的。
+
+而且：rust搞了大堆眼花缭乱的东西，难度没降低，最终也没解决内存安全问题。然后声称要取代C/C++。。。
+
+rust只是用一个问题掩盖另外一个问题，这个搞法从方法论上来说就不对。
+
+*****
+
+####  ywydsd  
+##### 67#       发表于 2025-2-12 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399968&amp;ptid=2245923" target="_blank">montanaB 发表于 2025-2-12 09:10</a>
+Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制，来保证所谓的内存安全性。但是在这些东西之外 ...</blockquote>
+可能就是为了留后门
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  万恶淫猥手  
+##### 68#       发表于 2025-2-12 13:45
+
+Rust 粉和 NodeJS 粉已经快接近之前的 PHP 了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

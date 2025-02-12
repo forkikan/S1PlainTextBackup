@@ -3990,3 +3990,86 @@ Bang Dream！CyrChiC：Disruption/Reflection/Domination
 
 那你邦下一个团启蒙对象会是鸡狗哪个啊？肯定是狗吧，憧憬鸡团也太哈人了。
 
+
+*****
+
+####  MASKA-1  
+##### 21096#       发表于 2025-2-12 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401952&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-12 13:17</a>
+明天第7集，看了一下讨论环境，感叹之后就算真有神回也没法逆转风评了，有些观众出脑后都是奔着挑刺来的， ...</blockquote>
+其实从mygo就开始了，nga那边天天抱怨木柜子乐队动画帖子太多的人就是最直观的表现，中间gbc又续一年，现在已经发酵到恶臭了。
+
+*****
+
+####  Mika-S  
+##### 21097#       发表于 2025-2-12 13:38
+
+肯定憧憬鸡团啊，你们不要拿自己的体验代入邦邦世界的路人观众好吧，这么多集了还没回过味来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 21098#       发表于 2025-2-12 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402078&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-12 13:35</a>
+那你邦下一个团启蒙对象会是鸡狗哪个啊？肯定是狗吧，憧憬鸡团也太哈人了。 ...</blockquote>
+C团<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 21099#       发表于 2025-2-12 13:38
+
+<blockquote>bbjajdd 发表于 2025-2-12 13:33
+第七集不已经基本确定没有初华和喵梦戏份了吗</blockquote>
+情报出处是哪里啊
+
+
+*****
+
+####  595505568  
+##### 21100#       发表于 2025-2-12 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402101&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-12 13:38</a>
+肯定憧憬鸡团啊，你们不要拿自己的体验代入邦邦世界的路人观众好吧，这么多集了还没回过味来吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 21101#       发表于 2025-2-12 13:41
+
+大量观众已经已经下判断了，后面神回逆转风评那不是打观众的脸吗，这怎么能认呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+最多这一回确实牛逼，但是前面做的也烂，很客观公正吧
+
+*****
+
+####  bbjajdd  
+##### 21102#       发表于 2025-2-12 13:44
+
+<blockquote>达达葱2 发表于 2025-2-12 13:38
+情报出处是哪里啊</blockquote>
+nga专楼
+
+有确认了战绩的舅舅表示第七集没有李子和茜姨的戏份
+
+*****
+
+####  山ノ内花音  
+##### 21103#       发表于 2025-2-12 13:45
+
+主要还是第四集最后烂了
+因为第四集烂了 墨缇丝烂了
+所以给墨缇丝做铺垫的二三集也烂了
+
+*****
+
+####  天邪鬼  
+##### 21104#       发表于 2025-2-12 13:45
+
+睦祥互相加压什么，有种铁血的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子走出羽丘校门被开黑色高级车的丰川家黑衣人暗杀什么的，快端上来吧
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
