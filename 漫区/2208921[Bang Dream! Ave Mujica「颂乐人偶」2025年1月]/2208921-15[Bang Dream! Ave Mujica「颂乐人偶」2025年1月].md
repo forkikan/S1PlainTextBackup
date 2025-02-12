@@ -4073,3 +4073,49 @@ nga专楼
 
 —— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一心而用  
+##### 21105#       发表于 2025-2-12 13:49
+
+梅比乌斯TUTAI想玩XBX：
+
+她到底想说什么？
+<img src="https://p.sda1.dev/21/0a49fa6dd2a5a8390dd4908b238a6e17/006ea9ISgy1hyhk57gsuwj319k14wq6o.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21106#       发表于 2025-2-12 13:50
+
+我个人觉得最烂的还是喵梦撕皮，故事确实需要冲突才能够开展，但是这并不影响我觉得这段写得不够细腻和合理，反而让我会在未来的很差一段时间都不会喜欢喵梦这个角色。
+
+当然，这也可能是因为我有三姐PTSD
+
+*****
+
+####  一心而用  
+##### 21107#       发表于 2025-2-12 13:50
+
+氧氧氧离子：
+<img src="https://p.sda1.dev/21/960e96c9e4121f4a4175d3aabcf86a37/c01a343ec339b27cbddd547a15a638376085843.jpg@1052w_!web-dynamic.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 21108#       发表于 2025-2-12 13:50
+
+ 本帖最后由 qlipho 于 2025-2-12 13:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">确实像铁血，都是想写的现实感点，最后完全没兜住
+
+*****
+
+####  GBLMikuHatsune  
+##### 21109#       发表于 2025-2-12 13:55
+
+ 憧憬鸡团怎么不可能，在不知情路人里，视角鸡团可是一飞冲天各种炒作，路人又不知道什么第二人格、前任文学这些事，只知道五个人各个都是深不可测的好手
+
+倒不如说下一个团看到鸡团“风光无限”，场外观众才更有可能觉得“自己知道内情，她们其实不是这样”而感到有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

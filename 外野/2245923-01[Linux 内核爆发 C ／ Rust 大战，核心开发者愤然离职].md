@@ -839,3 +839,26 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 Rust 粉和 NodeJS 粉已经快接近之前的 PHP 了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  abcxiawei  
+##### 69#       发表于 2025-2-12 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401711&amp;ptid=2245923" target="_blank">d2loader 发表于 2025-2-12 12:41</a>
+
+大哥, 你用C/C++上班工作一样要开各种静态检查和santinizer的, 还有调试必须会valgrind和gdb这些
+
+你都会 ...</blockquote>
+我没觉得C/C++简单，本来这就是两个难以学习和精通的语言。
+
+所以我也不觉得rust容易。
+
+问题是rust搞了这么多东西后，内存安全问题没有解决啊。
+
+用rust的和编译器搏斗的困难，取代和C/C++的各种漏内存，异常等搏斗的困难，最后，内存安全问题还是没有解决。
+
+为啥要换呢？找不到足够的理由啊。
+
+你愿意换是你的自由。但我觉得当一个语言没有解决既往语言面对的问题的时候，那它的存在价值就是要打问号的。
+
