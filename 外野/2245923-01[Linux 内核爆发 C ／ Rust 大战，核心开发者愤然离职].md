@@ -920,3 +920,13 @@ gpt不开search和reason也是死不悔改，开了就一次过...
 
 rust的问题和node一样，是 crates.io
 
+
+*****
+
+####  woodey  
+##### 73#       发表于 2025-2-12 15:58
+
+ 本帖最后由 woodey 于 2025-2-12 15:59 编辑 
+
+我知道rust很好，那为啥不用rust新做一个系统？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
