@@ -1087,3 +1087,13 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给我的感觉水剧情水的过头 还选这地方完结 最后发现没有人能打 没有迷宫能跑了 强行搞了个迷宫和boss战
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7631#       发表于 2025-2-12 07:54
+
+最终章对线的明明应该是学妹，结果还是大统领承担了所有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
