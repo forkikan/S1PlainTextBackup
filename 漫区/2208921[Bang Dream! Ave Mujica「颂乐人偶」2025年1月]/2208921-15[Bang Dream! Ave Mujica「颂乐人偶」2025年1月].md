@@ -3792,3 +3792,30 @@ nga专楼82100，没匿名，自称是从B站工作人员那里问的
 
 简直魔怔了。
 
+
+*****
+
+####  zhzij111  
+##### 21075#       发表于 2025-2-12 12:37
+
+情绪流建立在前面写好的基础上，就鸡这前6集压根不配让观众情绪流
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Skymoon  
+##### 21076#       发表于 2025-2-12 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401588&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-12 12:27</a>
+不得不吐槽一句如果火烧中登这种是专楼蛊出来的假药，那极端祥厨果然是比祥黑炸裂多了，本来只是一个没苦硬 ...</blockquote>
+中登烧烤只是那专楼里一群人看到不知所谓的匿名舅舅发出的小心火烛，按照惯例在短道速滑大赛中滑出来的金牌罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  晓色暮云  
+##### 21077#       发表于 2025-2-12 12:42
+
+nga鸡楼一个小时滑一个节奏，你现在去看还有人提烧烤吗，你把火烧中登当成祥厨造的假药真的有点太爱身份政治了
+

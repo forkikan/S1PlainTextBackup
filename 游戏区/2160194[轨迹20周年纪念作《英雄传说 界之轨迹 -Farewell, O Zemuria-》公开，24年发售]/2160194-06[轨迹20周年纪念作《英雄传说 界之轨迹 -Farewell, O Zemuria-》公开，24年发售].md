@@ -1196,3 +1196,20 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 最后和眼睛打上天有啥意义吗 去旅个游回来？ 说到底就压根没有打的必要。。可以说是轨迹至今为止最没有意义的最终boss了。。
 
+
+*****
+
+####  winggg  
+##### 7638#       发表于 2025-2-12 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401513&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-12 12:17</a>
+
+现在回看当初van上天的pv 和 白魔装鬼   算不算是一种欺诈
+
+最后和眼睛打上天有啥意义吗 去旅个游回来？ 说 ...</blockquote>
+眼镜卢尼的战斗动机暂时也是谜，范恩他们也是被他先挑衅的——
+
+离全世界大重置还剩15分钟，还跳起来说“让你们见识下魔装鬼·沙代的力量”。这什么鬼，简直离了大谱。
+
+下作可能和闪轨4类似，用相克前要肉搏暖场之类的藉口来强行解释。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

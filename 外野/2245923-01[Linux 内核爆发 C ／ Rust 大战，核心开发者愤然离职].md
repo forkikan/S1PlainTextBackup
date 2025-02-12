@@ -641,3 +641,47 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  d2loader  
+##### 54#       发表于 2025-2-12 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401158&amp;ptid=2245923" target="_blank">abcxiawei 发表于 2025-2-12 11:27</a>
+
+不，你曲解了我的话，我不是认为没意义。而是，你不能付出如此巨大的代价后，最后实现的效果和别人家更简 ...</blockquote>
+大哥, 你用C/C++上班工作一样要开各种静态检查和santinizer的, 还有调试必须会valgrind和gdb这些
+
+你都会这么多东西了看看rust上手很容易的, 使用也不复杂
+
+*****
+
+####  白日依山尽  
+##### 55#       发表于 2025-2-12 12:42
+
+rust是面向老板编程，各类问题都要考虑到处理好，不然都跑不起来，一旦跑起来后续出现的问题几率相对小，不增减功能完全可以把程序员开了。
+
+C之类就相反，把主要逻辑走通，跑起来再说，后面有问题再慢慢修，或许很久才出现当时没预计到的问题，不过这个时候可能程序员都已经换几个公司了。
+
+
+*****
+
+####  darklinden  
+##### 56#       发表于 2025-2-12 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401446&amp;ptid=2245923" target="_blank">ryanz 发表于 2025-2-12 12:07</a>
+
+这种涉及借用权的恰恰 ai 可能绕不过那么多弯。昨天遇见群里有人问一个问题就顺道去问了 ai 
+
+can the cod ...</blockquote>
+
+对于应用来说...ai应该...还行？
+
+<img src="https://img.saraba1st.com/forum/202502/12/124352ie6jbi2ee63vje9x.png" referrerpolicy="no-referrer">
+
+<strong>wtf.png</strong> (39.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 12:43 上传
+
