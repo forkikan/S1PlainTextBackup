@@ -5795,3 +5795,30 @@ mortis是欣然接受采访、表演以及和父母扯上关系的。就算有�
 
 其中有个爱撒娇的男性弟弟人格，只会在祥子面前出现之类的
 
+
+*****
+
+####  wwwttth  
+##### 21258#       发表于 2025-2-12 23:52
+
+初华有问题怎么都不算没铺垫吧，我甚至觉得有一个人退出就解散这句话说出来就是明铺垫了，无论是正常人思维还是舔狗思维怎么会突然冒出这样一句话的
+
+
+*****
+
+####  一心而用  
+##### 21259#       发表于 2025-2-12 23:55
+
+https://tutujun2333.lofter.com/post/4d097160_2bd6797e5
+<img src="https://p.sda1.dev/21/71f0f84a0d8c9bc124df6b319aef0460/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 21260#       发表于 2025-2-12 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406548&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-12 23:55</a>
+
+https://tutujun2333.lofter.com/post/4d097160_2bd6797e5</blockquote>
+好神秘的人物分布
+

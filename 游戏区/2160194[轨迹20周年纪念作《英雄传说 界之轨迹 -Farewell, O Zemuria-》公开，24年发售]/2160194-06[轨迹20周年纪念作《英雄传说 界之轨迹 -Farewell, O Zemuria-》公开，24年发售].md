@@ -1271,3 +1271,22 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 我看界2黎爷可能还真要再开一次高达上天打高达（
 
+
+*****
+
+####  dio999  
+##### 7644#       发表于 2025-2-12 23:48
+
+核弹确实能摧毁盒子，就是没想到盒子还能读档<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 7645#       发表于 2025-2-12 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406521&amp;ptid=2160194" target="_blank">dio999 发表于 2025-2-12 23:48</a>
+
+核弹确实能摧毁盒子，就是没想到盒子还能读档</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我打的时候在想 你是不是忘记你打的是什么了 。是时之至宝啊 “时”啊(
+
