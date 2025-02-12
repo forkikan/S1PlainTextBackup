@@ -1958,3 +1958,13 @@ goty没让我破防，这玩意给我干破防了
 单人玩流程能撑40小时吗？能我就买</blockquote>
 官方说法打完8个关底boss算通关，说15-20小时左右<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 215#       发表于 2025-2-13 03:13
+
+就8个boss，也没啥探索要素，那么当成洛克人呗
+
+估计10小时都差不多到头了
+
