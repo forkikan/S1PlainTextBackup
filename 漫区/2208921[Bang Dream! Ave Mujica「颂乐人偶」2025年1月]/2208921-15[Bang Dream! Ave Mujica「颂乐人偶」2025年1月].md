@@ -5066,3 +5066,26 @@ layer还直球表白ras呢，也没有再当个风湿病人</blockquote>
 
 难道还能不包寿司 be吗
 
+
+*****
+
+####  玖羽  
+##### 21201#       发表于 2025-2-12 18:57
+
+ 本帖最后由 玖羽 于 2025-2-12 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404615&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-12 18:49</a>
+
+觉得初华有问题的依据几乎都是场外因素（主唱不可能没戏份、op唱的juda、地铁站广告剧透等等），而soyo从 ...</blockquote>
+我都说了起点给人的印象不一样，MyGO的起点是量产型杂鱼偶像番，如果前半段不这么铺垫，很多人没有耐心看到后面，Mujica没有这个问题
+
+说穿了，初华就是悬疑剧里最不像犯人的那个人
+
+或者反过来说，前6话多给初华一些黑脸镜头，难道就算塑造初华了吗，初华需要这么塑造吗
+
+*****
+
+####  烂片雷达  
+##### 21202#       发表于 2025-2-12 19:00
+
+墨知道只要把地址透露给素世素世就一定会放那把火，原来这招是借刀杀人，太险恶了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

@@ -1034,3 +1034,25 @@ Rust是一门很值得学的语言. 写了几千行rust之后再回去写C++我�
 建议python，一个上午就可以用pytorch零到一写一个简单的有监督机器学习训练加推理，感受朴素的机器学习 ...</blockquote>
 来个教程的链接啊...
 
+
+*****
+
+####  iamawaistcoat  
+##### 83#       发表于 2025-2-12 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404297&amp;ptid=2245923" target="_blank">bcxzzz 发表于 2025-2-12 18:02</a>
+
+从技术上来说，可能给一种语言留后门么？ 比如考虑下：1、语言的解释器、编译器是公开代码的么？ 2，即使 ...</blockquote>
+和npm一样，在cargo拉进来的那一堆依赖里面？
+
+*****
+
+####  Xerxes_2  
+##### 84#       发表于 2025-2-12 19:03
+
+看这个帖子就高潮的人是不是根本对前情没有一点了解就来输出的？
+
+首先 Rust 进 Linux 是 Linus 本人首肯的，C++都没进
+
+其次前几个月在 Rust4Linux 会议上有 C 的支持者当众指着鼻子骂，这才是这些纷争的导火索
+

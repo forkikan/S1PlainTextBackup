@@ -412,3 +412,17 @@ ds其实是工程学上的进步，gpt这些ai做的是从0到1，国内干的�
 
 要这么说chatgpt这种力大出奇迹的一样没有，当时怎么没听你出来逼逼傻逼closeAI啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aithinkso  
+##### 43#       发表于 2025-2-12 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404595&amp;ptid=2246014" target="_blank">foolishman 发表于 2025-2-12 18:46</a>
+学外语跟审查有什么关系吗？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+和洋马学外语 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

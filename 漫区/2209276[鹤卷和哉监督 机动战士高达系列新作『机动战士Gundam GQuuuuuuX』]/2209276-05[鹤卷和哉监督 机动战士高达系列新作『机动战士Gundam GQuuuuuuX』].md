@@ -12090,3 +12090,19 @@ Plazma
 
 松原秀典说庵野对Beginning的部分很满意，几乎没有返工
 
+
+*****
+
+####  Sliurus  
+##### 6841#       发表于 2025-2-12 19:01
+
+<img src="https://img.saraba1st.com/forum/202502/12/190046mwn1hou4x8jnwn7h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7272.JPG</strong> (730.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 19:00 上传
+
+[https://x.com/rarata6o/status/18 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/rarata6o/status/1889260096745832560?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
