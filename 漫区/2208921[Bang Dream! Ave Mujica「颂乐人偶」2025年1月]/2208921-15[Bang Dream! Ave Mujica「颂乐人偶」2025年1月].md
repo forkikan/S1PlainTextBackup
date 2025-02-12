@@ -3874,3 +3874,48 @@ Bang Dream！CyrChiC：Disruption/Reflection/Domination
 
 再把祥打爛一點就可以救她了
 
+
+*****
+
+####  嵇翱u  
+##### 21083#       发表于 2025-2-12 13:14
+
+主要还是CCC真解散了，要是CCC能进游戏那就是ccc上篇和下篇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在CCC成了一个真正的白月光，游戏里没她的位置，不可能复活，却又被两个团的灵魂灯祥牢牢铭记。要不是底层逻辑不允许，灯祥发话可以组十人音趴，不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 21084#       发表于 2025-2-12 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401933&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-12 13:14</a>
+主要还是CCC真解散了，要是CCC能进游戏那就是ccc上篇和下篇了
+
+现在CCC成了一个真正的白月光，游戏里没她的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 21085#       发表于 2025-2-12 13:16
+
+<img src="https://p.sda1.dev/21/c7d3ccc831009d24243116ed8bf2cc82/07a3d61fd21b0ef4c644c9779bc451da80cb3eca.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/bea603a8fd57842967742dafe43c81ee/909b298aa61ea8d3491b2a2dd10a304e251f5845.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 21086#       发表于 2025-2-12 13:17
+
+<img src="https://p.sda1.dev/21/26e7b2d2480742af408cc4bbae0e9849/008d0RKjgy1hyhnr50i36j31450pk48u.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/8468a76c312740721a887e33f550f49c/QQ截图20250212131550.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21087#       发表于 2025-2-12 13:17
+
+明天第7集，看了一下讨论环境，感叹之后就算真有神回也没法逆转风评了，有些观众出脑后都是奔着挑刺来的，情绪流做再好也没法打动出脑的人（
+

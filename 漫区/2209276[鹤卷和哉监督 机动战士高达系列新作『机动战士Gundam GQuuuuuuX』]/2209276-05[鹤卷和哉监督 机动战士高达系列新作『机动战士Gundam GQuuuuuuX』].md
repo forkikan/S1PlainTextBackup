@@ -11987,3 +11987,17 @@ Plazma
 
 这个gqx世界线的吉翁手电筒应该没拆吧，鹤卷他们肯定也想结尾大场面先开上一炮吧。
 
+
+*****
+
+####  Toby_dak  
+##### 6831#       发表于 2025-2-12 13:20
+
+联邦没了高达，还退回地球，那AE社大概是没了。
+
+自护尼克接手高达开发，于是高达正统在自护尼克。
+
+什么最好侧卫在沈霍伊的笑话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
