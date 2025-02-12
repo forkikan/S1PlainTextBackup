@@ -1208,3 +1208,15 @@ M佬怒辞…
 —— 来自 HUAWEI LIO-AL0 ...</blockquote>
 还是有可能的，可以参考[这篇博客](https://bojieli.com/2014/11/insert-backdoor-into-compiler/)
 
+
+*****
+
+####  bcxzzz  
+##### 96#       发表于 2025-2-13 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406860&amp;ptid=2245923" target="_blank">123485k 发表于 2025-2-13 01:12</a>
+还是有可能的，可以参考这篇博客</blockquote>
+看了这个博客，我感觉美国一直在往种操作系统里塞后门。即使用R，也要看到这个语言的源码才行。
+
+—— 来自 HUAWEI LIO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

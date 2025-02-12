@@ -12189,3 +12189,19 @@ Plazma
 
 结局是百合又大卖的话，高达是不是就成了知名度最高的百合IP了？
 
+
+*****
+
+####  岸浪白野  
+##### 6851#       发表于 2025-2-13 01:41
+
+就之前2号机发的
+
+<img src="https://img.saraba1st.com/forum/202502/13/014136o6ro7vhh7yb3e1oe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 01:41 上传
+
