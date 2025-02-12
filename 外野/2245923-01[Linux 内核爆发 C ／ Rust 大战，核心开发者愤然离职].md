@@ -952,3 +952,16 @@ rust的问题和node一样，是 crates.io
 
 这怎么从rust不能进内核歪到rust是天下第一cjb语言了。反正rust再怎么烂也还是“现代语言”，至于能不能进内核，反正c++进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  d2loader  
+##### 76#       发表于 2025-2-12 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403526&amp;ptid=2245923" target="_blank">Steel.Haze 发表于 2025-2-12 16:27</a>
+你这个说法太理中客。且不说换内核的整体工程代价。这种集中化模式其实增加易于被几种攻击的点而已。你只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+根本不是你说的能阻止或者禁止的，现在是个人按照教程就能用rust写内核驱动
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

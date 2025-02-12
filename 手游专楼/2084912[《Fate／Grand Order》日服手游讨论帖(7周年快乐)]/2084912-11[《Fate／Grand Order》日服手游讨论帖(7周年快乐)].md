@@ -472,3 +472,85 @@
 
 10连
 
+
+*****
+
+####  琴酒  
+##### 16273#       发表于 2025-2-12 17:38
+
+ 本帖最后由 琴酒 于 2025-2-12 17:40 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/12/174047zimdpnlvg891z2dv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1530.JPG</strong> (190.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 17:40 上传
+
+*****
+
+####  白金口袋  
+##### 16274#       发表于 2025-2-12 17:38
+
+5张呼符小野小町到手，代价是活动礼装一张没有，这次看来得慢慢刷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16275#       发表于 2025-2-12 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403886&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-2-12 17:07</a>
+
+呼符来了小野小町</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你是真的狗！
+
+*****
+
+####  khxooo  
+##### 16276#       发表于 2025-2-12 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404121&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-12 17:41</a>
+你是真的狗！</blockquote>
+你有资格说我？<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16277#       发表于 2025-2-12 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404130&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-2-12 17:42</a>
+
+你有资格说我？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新元旦到今天就2new！
+
+
+*****
+
+####  qixinno2  
+##### 16278#       发表于 2025-2-12 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404142&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-12 17:43</a>
+
+萌新元旦到今天就2new！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">只有一个NEW的我在看着你
+
+*****
+
+####  alucardcz  
+##### 16279#       发表于 2025-2-12 17:46
+
+女帝突然大强化。。
+
+然后打完给的石头并没有灵魂
+
+*****
+
+####  qixinno2  
+##### 16280#       发表于 2025-2-12 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403886&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-2-12 17:07</a>
+
+呼符来了小野小町</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">今年最狗的你好
+

@@ -4729,3 +4729,26 @@ Mortis早就展示过见碟下菜的本事，我是看到它在窗边目送Soyo�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小博禹  
+##### 21168#       发表于 2025-2-12 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404082&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-12 17:35</a>
+莫小姐就很割裂，一方面像熊孩子一样天真
+
+一方面又能随意拿捏初华素世祥子</blockquote>
+因为小初小祥小手也都是好孩子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你们十一个人把日子过好比什么都重要
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 21169#       发表于 2025-2-12 17:40
+
+<blockquote>zhoujin8584 发表于 2025-2-12 12:27
+不得不吐槽一句如果火烧中登这种是专楼蛊出来的假药，那极端祥厨果然是比祥黑炸裂多了，本来只是一个没苦硬 ...</blockquote>
+一半乐子一半应激（我第一反应也是星野露比再现）的短道速滑还要虚空索敌角色厨是不是有点过了。
+
