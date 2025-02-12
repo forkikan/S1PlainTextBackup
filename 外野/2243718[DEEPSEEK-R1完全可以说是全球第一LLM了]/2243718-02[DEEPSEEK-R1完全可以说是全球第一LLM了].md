@@ -3587,3 +3587,21 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 说来deepseek支持的最长文本输入长度是多少？有限制吗？蒸馏版的呢？
 
+
+*****
+
+####  overflowal  
+##### 1801#       发表于 2025-2-12 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403002&amp;ptid=2243718" target="_blank">Laniakea 发表于 2025-2-12 15:32</a>
+
+说来deepseek支持的最长文本输入长度是多少？有限制吗？蒸馏版的呢？</blockquote>
+模型128K的窗口，但是国内的供应商一般就给64K，舍得花钱的话看看国外的，好多家都是提供128k的
+
+*****
+
+####  希德尼娅  
+##### 1802#       发表于 2025-2-12 15:46
+
+HBM什么时候能普及啊，普及后就是本地部署的春天了吧
+

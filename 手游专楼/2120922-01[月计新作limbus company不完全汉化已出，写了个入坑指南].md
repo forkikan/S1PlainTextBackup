@@ -73,3 +73,13 @@ PC端的汉化甚至是开服不久的时候就有了。</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  神剑烧鸡  
+##### 1082#       发表于 2025-2-12 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小金在联动粥的时候还专门写了中文
+我说你正好第八章了，搞点原生中文不好吗，又要写柴腻子故事又要联动柴腻子游戏
+到时候第八章更新我只能上线看着韩国人写中国角色故事的英翻语句，然后对着长句琢磨半天结果是满纸荒唐言一把辛酸泪？
+
