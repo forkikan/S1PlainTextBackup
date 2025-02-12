@@ -1896,3 +1896,11 @@ goty没让我破防，这玩意给我干破防了
 
 开箱效果要是加上高亮就很暗黑破坏神了
 
+
+*****
+
+####  黑修士  
+##### 208#       发表于 2025-2-12 23:38
+
+看了几家媒体的评测，感觉组野队的游戏体验可能波动极大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
