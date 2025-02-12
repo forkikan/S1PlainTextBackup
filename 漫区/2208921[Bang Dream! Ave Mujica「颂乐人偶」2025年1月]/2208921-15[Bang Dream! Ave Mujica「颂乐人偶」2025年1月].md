@@ -3293,3 +3293,27 @@ Post nubila phoebus.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 21027#       发表于 2025-2-12 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 21028#       发表于 2025-2-12 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399708&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-12 08:20</a>
+
+但总不至于一把火烧了这个碍事的角色吧</blockquote>
+主要是这个角色只要活着就是一根刺，是祥子的累赘也是祥子之前不得不吃苦的理由，有他在那么包饺子都包不圆，编剧又故意把他写成个一点高光都没有纯废物导致观众只会同情祥子绝不会同情中登，所以死了确实一了百了。
+
+意外死总比自杀死给祥子的心理阴影小那么一点，早点死也能让祥子早点走出来。
+
+但是这活实在是太烂了，观众要同情祥子之前第一反应也绝对是骂编剧，祥子二次元的福一点没享，三次元的苦一个没落，仿佛和其他角色不是一个世界的。
+
