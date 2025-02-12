@@ -1939,3 +1939,22 @@ goty没让我破防，这玩意给我干破防了
 单人玩流程能撑40小时吗？能我就买</blockquote>
 机制都是按三人组队设计的，单人最多调调数值，独狼估计只能给自己找不痛快
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 213#       发表于 2025-2-13 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个法环本体大型扩展mod
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  手铐君  
+##### 214#       发表于 2025-2-13 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406611&amp;ptid=2210352" target="_blank">TheCyrodiil 发表于 2025-2-13 00:10</a>
+单人玩流程能撑40小时吗？能我就买</blockquote>
+官方说法打完8个关底boss算通关，说15-20小时左右<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
