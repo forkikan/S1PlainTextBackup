@@ -4677,3 +4677,28 @@ Mortis早就展示过见碟下菜的本事，我是看到它在窗边目送Soyo�
 半生 （16歲）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 21164#       发表于 2025-2-12 17:17
+
+<blockquote>595505568 发表于 2025-2-12 16:46
+那素世真的要幼年丧父 中年丧偶 晚年丧子了</blockquote>
+
+是人生三大苦青春期的素世全经历了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 21165#       发表于 2025-2-12 17:25
+
+<blockquote>指南アキラ 发表于 2025-2-12 16:56
+Mortis早就展示过见碟下菜的本事，我是看到它在窗边目送Soyo离开并无视睦对此的质问时才产生了这个想法
+
+ ...</blockquote>
+墨老师对人心这一块是拉满技能点的，可以说酒店大战里把所有人的底全透给大祥了，母鸡卡2.0就是开卷考，只是目前考场未知。
+
+还有这保守秘密的破约定，明明话一说开消除信息差素世连飞鸟山都能秒共情，c团旧部立马团结连立希都开始主动参与拯救祥子（c团复辟）大作战。MyGo的飞鸟山惨剧在老墨看来估计闹麻了。那反正是Mortis说的，也不算睦失约咯
+
