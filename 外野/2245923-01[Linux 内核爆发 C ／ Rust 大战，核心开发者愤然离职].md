@@ -1220,3 +1220,18 @@ M佬怒辞…
 
 —— 来自 HUAWEI LIO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  御坂MKII  
+##### 97#       发表于 2025-2-13 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403275&amp;ptid=2245923" target="_blank">woodey 发表于 2025-2-12 15:58</a>
+
+我知道rust很好，那为啥不用rust新做一个系统或者其他大型应用？而是一直依托于C/C++社区的东西 ...</blockquote>
+那不是还因为之前没有更合适的，所以有丰富的历史厚重
+[https://github.com/tikv/tikv](https://github.com/tikv/tikv)
+[https://github.com/databendlabs/databend](https://github.com/databendlabs/databend)
+
+数据库因为有单机转 raft/paxos based 以及未来更激进的 cloud infra 的需要，所以活跃的新项目是很多的
+
