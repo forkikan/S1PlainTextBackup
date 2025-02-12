@@ -4480,3 +4480,11 @@ WSD 的企劃 （手遊+ 2.5 次元）一定有C團混團Live
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 21147#       发表于 2025-2-12 15:20
+
+C团live气氛正好的时候，海玲气死了冲上去打起来，同时mortis也发作了跟着一起闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
