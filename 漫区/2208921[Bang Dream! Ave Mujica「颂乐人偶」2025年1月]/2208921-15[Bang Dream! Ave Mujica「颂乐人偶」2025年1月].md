@@ -4603,3 +4603,23 @@ C part最终Boss登场（无论初华还是祥子，登场的是谁，谁就是�
 那你邦下一个团启蒙对象会是鸡狗哪个啊？肯定是狗吧，憧憬鸡团也太哈人了。 ...</blockquote>
 你邦下一个团是五个人管人
 
+
+*****
+
+####  595505568  
+##### 21158#       发表于 2025-2-12 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403393&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-12 16:12</a>
+难道真的要送走墨老师吗？那再回顾一下墨老师鬼斧神工的天然演技吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 21159#       发表于 2025-2-12 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402737&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-12 14:59</a>
+
+爱音厨可以切割母鸡卡动画</blockquote>
+lsl不是点评了么：爱音爱着人类。
+
