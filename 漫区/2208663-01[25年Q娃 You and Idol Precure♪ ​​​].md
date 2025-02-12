@@ -2154,3 +2154,11 @@ DEEPSEEK翻译这么厉害的吗！
 https://www.toei-anim.co.jp/tv/precure/live2025/#n ...</blockquote>
 名古屋这场似乎没有主题歌歌手登台，横滨去过了，这个不去了……
 
+
+*****
+
+####  bilibilius  
+##### 465#       发表于 2025-2-12 21:12
+
+B站有Zukyun的变身音效了，果然是purirun
+

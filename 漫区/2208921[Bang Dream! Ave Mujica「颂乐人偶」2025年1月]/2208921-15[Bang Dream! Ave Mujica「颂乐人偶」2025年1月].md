@@ -5482,3 +5482,43 @@ crychic 日 mygo 星 ave mujica 月吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cccpprc  
+##### 21240#       发表于 2025-2-12 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405072&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-12 19:49</a>
+
+编剧一直很清楚自己在写什么，社群里是假药加假药滑坡加滑坡才变成现在这样的 ...</blockquote>
+编剧清楚，但是监督执行脚本的过程就一言难尽了
+
+虽然都说第四集写的烂
+
+但是我觉得第四集一个搞笑回外加半个喵梦个人回把喵梦的人设解释了大半，比起前三集就是要逼死睦头，典中典卡视野强多了
+
+
+*****
+
+####  新HGCG  
+##### 21241#       发表于 2025-2-12 21:16
+
+其实吧
+
+我觉得
+
+第四集把莫提丝不会弹琴
+
+变成弹到某个地方一定弹错
+
+就什么问题都没了
+
+后续在收回伏笔说这弹错的地方是什么原因
+
+*****
+
+####  真爱与热情  
+##### 21242#       发表于 2025-2-12 21:17
+
+mortis的事情还可以操作一下，最后被大卡车创一下代替睦消失就行了。此事在空之境界也有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

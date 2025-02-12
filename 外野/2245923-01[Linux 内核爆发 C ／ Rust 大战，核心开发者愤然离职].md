@@ -1155,3 +1155,23 @@ M佬怒辞…
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  HariSeldon  
+##### 92#       发表于 2025-2-12 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401049&amp;ptid=2245923" target="_blank">abcxiawei 发表于 2025-2-12 11:16</a>
+又是这套“我头脑比你强”逻辑。
+
+我自己也是程序员出身的。我已经不止一次看到你们这种逻辑了，越年轻的 ...</blockquote>
+俺寻思这个错误理解很早就被说过了。Rust语言特性多并不能推导出心智负担比C/C++重
+
+反直觉的是，C/C++才是对程序员门槛要求高，心智负担重的那个。学习C++门槛低，靠C++吃饭门槛可高了。即使是精英程序员，精力不济时照样可能犯低级错误。而Rust的编译器检查则极大减少了业务逻辑外犯错的可能性。
+
+一个需要用到非GC语言的非嵌入式项目，几个资深带一群普通程序员用Rust是可以干的：定好规矩or脚本检查普通程序员不可提交unsafe代码就行了，剩下自有编译器教。同样配置的团队用c++的话，不会以为编译器放行是降低心智负担吧？
+
+至于市面上九成以上不需要非gc语言的工作…也不用关心rust，哪有那么多写rust的
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
