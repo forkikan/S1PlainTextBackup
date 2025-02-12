@@ -3491,3 +3491,14 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 学习笔记：xxxxxxxx
 
+
+*****
+
+####  zerona  
+##### 1793#       发表于 2025-2-12 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401370&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-12 11:55</a>
+
+我是节选想要的段落，反复开新对话，让R1从各种角度分析文风、写法。但是它生成的东西基本都没有用，所以 ...</blockquote>
+回去试试。
+
