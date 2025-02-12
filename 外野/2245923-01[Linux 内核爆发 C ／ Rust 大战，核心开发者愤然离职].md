@@ -1183,3 +1183,16 @@ M佬怒辞…
 
 可以去看看hellwig的回复，“不是说我不喜欢rust”，叠甲叠满<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，rust不愧是编程界原神
 
+
+*****
+
+####  YoumuChan  
+##### 94#       发表于 2025-2-13 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403526&amp;ptid=2245923" target="_blank">Steel.Haze 发表于 2025-2-12 16:27</a>
+
+你这个说法太理中客。且不说换内核的整体工程代价。这种集中化模式其实增加易于被几种攻击的点而已。你只 ...</blockquote>
+“由于把会出问题的地方集中起来导致容易被集中攻击”这个说法，有一种“练了金钟罩铁布衫只剩两三个罩门导致容易被集中攻击所以不如不练”的美感。
+
+操作系统方面的落地了的应用案例有[https://github.com/cloud-hypervisor/cloud-hypervisor](https://github.com/cloud-hypervisor/cloud-hypervisor)，还有就是Asahi Linux上的GPU驱动吧。
+

@@ -5990,3 +5990,54 @@ did患者随着时间推移，脑内会继续产生其他人格 ...</blockquote>
 
 如果真带去看医生，医生第一句话怕不是你TM谁啊请把患者的父母叫来
 
+
+*****
+
+####  玖羽  
+##### 21275#       发表于 2025-2-13 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406585&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-13 00:01</a>
+
+说实话，这句话是前四话中我唯一一个确实完全没看懂的地方，这句话出现之后，只要这句话一出现，整个对话 ...</blockquote>
+这就是为什么内鬼说看起来如此有说服力，如果这句话是初华为炸团做的铺垫，一切问题都会解决
+
+*****
+
+####  cxj649  
+##### 21276#       发表于 2025-2-13 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406770&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-13 00:43</a>
+
+而且为什么好像很多人觉得带去看医生就能马上看上马上确诊马上治好
+
+如果真带去看医生，医生第一句话怕不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对的，很奇葩
+
+*****
+
+####  fuwamoco  
+##### 21277#       发表于 2025-2-13 00:46
+
+ 本帖最后由 fuwamoco 于 2025-2-13 00:49 编辑 
+
+采访的患者和公开的病历可以看出，部分人格会畏惧在治疗后消失，因此抗拒治疗拒绝诊断。而且医生早期会按焦虑抑郁，创伤后遗症治疗，精神分裂治疗。
+
+did患者普遍需要十年以上的时间才会最终被确诊。
+
+这病从脑科学来说是事实，但不论确诊还是治疗的难度都是数一数二的。更别说还有博流量模仿者和大众潜意识里认为是演技这两个难点。
+
+不过这也是墨提斯比较奇怪的地方之二，一般她这种明确自身不是主人格的副人格，对找医生这件事会存在天然的恐惧感。比如公开的患者录像里就有部分人格很绝望的说自己会消失，并且是和别的人格讨论谁会留下来。
+
+*****
+
+####  影伴光生  
+##### 21278#       发表于 2025-2-13 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406754&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-13 00:40</a>
+感觉不如不停的殴打莫老师直到她受不住切睦出来吃伤害
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孕吧有一篇鸡团众人先电莫再电祥，成功逼睦切出来的同人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
