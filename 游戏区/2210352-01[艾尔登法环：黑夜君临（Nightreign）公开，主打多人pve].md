@@ -1831,3 +1831,29 @@ goty没让我破防，这玩意给我干破防了
 —— 来自 鹅球 v3.3.96</blockquote>
 多谢了，不过不用日服玩，看看哪位坛友需要吧
 
+
+*****
+
+####  名字已被吃  
+##### 200#       发表于 2025-2-12 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405913&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-2-12 22:01</a>
+
+多谢了，不过不用日服玩，看看哪位坛友需要吧</blockquote>
+我记得就是一个删档测试而已，都没有东西继承到正式版的，何况还能日服小号设置常用主机后再用大号玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 201#       发表于 2025-2-12 22:14
+
+看了ucg的评测，额，我不好说
+
+*****
+
+####  Piano-Forest  
+##### 202#       发表于 2025-2-12 22:16
+
+5月30日发售：[https://youtu.be/Z_fmEDsQPh4](https://youtu.be/Z_fmEDsQPh4)
+
