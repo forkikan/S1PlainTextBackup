@@ -722,3 +722,33 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 —— 来自 HUAWEI LIO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Jet.Black  
+##### 60#       发表于 2025-2-12 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401866&amp;ptid=2245923" target="_blank">bcxzzz 发表于 2025-2-12 13:03</a>
+
+对于这种后出来的语言，美国的棱镜计划之类的，会不会直接在编译器里埋后门？
+
+—— 来自 HUAWEI LIO-AL0 ...</blockquote>
+肯定有啊，美国政府强推Rust，你以为他们真关心技术啊。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  d2loader  
+##### 61#       发表于 2025-2-12 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401893&amp;ptid=2245923" target="_blank">Jet.Black 发表于 2025-2-12 13:08</a>
+
+肯定有啊，美国政府强推Rust，你以为他们真关心技术啊。</blockquote>
+你们到底在胡说什么啊.... 华为是唯一非美国的rust基金会白金赞助商
+
+而且servo项目被华为接过来了准备以后做鸿蒙webview的底层, 做自己掌控的浏览器
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

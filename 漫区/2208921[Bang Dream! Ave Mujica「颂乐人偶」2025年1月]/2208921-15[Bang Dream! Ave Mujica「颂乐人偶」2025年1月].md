@@ -3847,3 +3847,30 @@ nga鸡楼一个小时滑一个节奏，你现在去看还有人提烧烤吗，�
 wsd最大错误就是没把这两季叫crychic1和2我看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  595505568  
+##### 21081#       发表于 2025-2-12 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401837&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-12 12:59</a>
+后面初海喵一个有戏份，一个戏份少，一个献祭掉塞剧场版里，时间这不充足得很吗，go也是这样演的
+wsd最大错 ...</blockquote>
+Bang Dream！CyrChiC：Disruption/Reflection/Domination
+
+
+*****
+
+####  南宮凝香  
+##### 21082#       发表于 2025-2-12 13:10
+
+<img src="https://img.saraba1st.com/forum/202502/12/130959w5zq4cswpsiju45w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5663.jpeg</strong> (151.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 13:09 上传
+
+再把祥打爛一點就可以救她了
+
