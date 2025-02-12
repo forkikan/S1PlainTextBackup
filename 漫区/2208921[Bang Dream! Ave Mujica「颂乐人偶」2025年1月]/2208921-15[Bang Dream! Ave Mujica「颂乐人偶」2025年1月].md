@@ -4391,3 +4391,35 @@ ccc的众人围在爱音周围微笑，爱音在中间鼓掌 哦咩得投
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  老贝  
+##### 21140#       发表于 2025-2-12 14:59
+
+爱音在下面拍照拍视频只会很开心，真掉小珍珠的怕是在mygo账号上看到祥子很幸福的初华。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 21141#       发表于 2025-2-12 14:59
+
+C團分手Live 的問題是這是脫褲子放屁
+
+WSD 的企劃 （手遊+ 2.5 次元）一定有C團混團Live 
+
+這分手炮打了跟沒打沒分別
+
+情緒上來堂堂分手了
+
+4月Live 又合演了
+
+如分
+
+*****
+
+####  山ノ内花音  
+##### 21142#       发表于 2025-2-12 14:59
+
+爱音厨可以切割母鸡卡动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
