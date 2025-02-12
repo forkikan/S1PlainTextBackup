@@ -3606,3 +3606,30 @@ s/1cLnSk4Mw2UsxVq-wXgnIjQ?pwd=5dst
 
 如果这是标准流程的话，那么第五话Soyo来访的时候Mortis其实已经知道来者是谁了，所以针对性的准备了对Soyo言行举止，引发Soyo的同情以便操纵她
 
+
+*****
+
+####  qlipho  
+##### 21058#       发表于 2025-2-12 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401162&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-12 11:28</a>
+
+又看了一遍第六话，感觉Mortis可能在PUA Soyo啊
+
+第六话可以发现第五话的C Part就是噱头，Mortis根本就是活 ...</blockquote>
+别细想了，就是想烂炒cp
+
+
+*****
+
+####  新HGCG  
+##### 21059#       发表于 2025-2-12 11:37
+
+<img src="https://img.saraba1st.com/forum/202502/12/113656bw4ls2prisz1o6ps.png" referrerpolicy="no-referrer">
+
+<strong>`CFPTSESM98}H24SLV024HN.png</strong> (76.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 11:36 上传
+
