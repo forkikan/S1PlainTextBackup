@@ -3219,3 +3219,13 @@ Post nubila phoebus.
 
 匿名那个基本上是假的，但是火烧中登这个有真的可能，因为确实是一种解题思路，虽然这个难题也是编剧自己出的。
 
+
+*****
+
+####  plok201  
+##### 21019#       发表于 2025-2-12 07:54
+
+火烧中登，你还不如陨石遁呢
+
+原来不是种命是美末2啊，优秀细致的前作，心理变态的续作<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
