@@ -1011,3 +1011,15 @@ Rust是一门很值得学的语言. 写了几千行rust之后再回去写C++我�
 你谈的是另外一个层面的问题</blockquote>
 从技术上来说，可能给一种语言留后门么？ 比如考虑下：1、语言的解释器、编译器是公开代码的么？ 2，即使在语言中留了某个后门，怎么让它在预定的地方起作用？  从技术上说，这能实现不？
 
+
+*****
+
+####  我是蓝石头  
+##### 81#       发表于 2025-2-12 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404180&amp;ptid=2245923" target="_blank">samfs 发表于 2025-2-12 17:47</a>
+非计算机专业，图一乐的话，rust 值得学吗，和 C 比呢</blockquote>
+建议python，一个上午就可以零到一写一个简单的有监督机器学习训练加推理，感受朴素的机器学习乐趣。
+再花一个下午可以零到一部署一个带前端，带后端，带数据库，甚至还有api看板的全栈应用。
+再花一个上午，把自带的文件上传接口后面接上刚训练的那个模型的推理，好了，你有了一个图片分类站点<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+

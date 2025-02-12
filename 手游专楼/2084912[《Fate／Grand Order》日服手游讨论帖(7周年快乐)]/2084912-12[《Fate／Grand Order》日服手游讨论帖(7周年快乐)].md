@@ -50,3 +50,41 @@
 
 天阵营和有神性，羁绊礼装提到佛的视角，这可不单是和她爷爷小野篁缝在一起那么简单<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 16285#       发表于 2025-2-12 18:07
+
+<blockquote>岸浪白野 发表于 2025-2-12 17:53
+天阵营和有神性，羁绊礼装提到佛的视角，这可不单只是和她爷爷小野篁缝在一起那么简单
+
+</blockquote>
+日本绿光炮让我联想到大黑天（有珠：？），另外关于小野小町有“七小町”的传说，姑且奶一下她缝了七福神中的某位，比如弁财天？
+
+
+*****
+
+####  Jamaisvu  
+##### 16286#       发表于 2025-2-12 18:13
+
+<img src="https://img.saraba1st.com/forum/202502/12/181244muu0e6u5erkuq3qv.png" referrerpolicy="no-referrer">
+
+<strong>1739355102792.png</strong> (230.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 18:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/12/181244cktup8cmpbomogk4.png" referrerpolicy="no-referrer">
+
+<strong>1739355098858.png</strong> (255.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-12 18:12 上传
+
+话说这辈分对吗，我搜了一下小野篁应该是她爷爷吧？
+
