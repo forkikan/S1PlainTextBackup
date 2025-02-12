@@ -4423,3 +4423,60 @@ WSD 的企劃 （手遊+ 2.5 次元）一定有C團混團Live
 
 爱音厨可以切割母鸡卡动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 21143#       发表于 2025-2-12 15:09
+
+海铃会不会是这样的
+
+表面上装作不在乎
+
+其实飘零半生一直想找个归宿
+
+所以加入鸡团是很开心的
+
+但是鸡团还是散了
+
+她觉得这就是她的命，本来打算放下了
+
+结果一看初华有斯迷迷，祥睦有CCC，喵梦直接开始了艺人生涯，不是有旧归宿就是有新前途
+
+唯独自己又飘零
+
+原本还能忍，但是后续剧情出现了能刺激到她的事，所以就爆了
+
+*****
+
+####  久井路路  
+##### 21144#       发表于 2025-2-12 15:09
+
+反了吧（
+
+既然企划里一定会有混圈live，那正片里也会有不是很正常的事情吗。
+
+还是说即使现实Live搞混圈，只要正片里不演出来就行吗（
+
+*****
+
+####  aptx8285144  
+##### 21145#       发表于 2025-2-12 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402737&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-12 14:59</a>
+
+爱音厨可以切割母鸡卡动画</blockquote>
+我倒是无所谓，起码MUJICA烂的很有乐子效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 21146#       发表于 2025-2-12 15:13
+
+搞情绪流，不会是一边春日影，一边回忆杀，再加上什么篝火助兴吧
+
+那也太…嗜血了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
