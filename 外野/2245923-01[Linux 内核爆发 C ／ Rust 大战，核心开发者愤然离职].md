@@ -930,3 +930,17 @@ rust的问题和node一样，是 crates.io
 
 我知道rust很好，那为啥不用rust新做一个系统？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 74#       发表于 2025-2-12 16:27
+
+ 本帖最后由 Steel.Haze 于 2025-2-12 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401032&amp;ptid=2245923" target="_blank">YoumuChan 发表于 2025-2-12 11:14</a>
+
+我觉得”如果一门语言无法完全解决内存安全问题，则无意义“是一个比较极端的想法。
+
+对于C/C++来说，可以 ...</blockquote>
+你这个说法太理中客。且不说换内核的整体工程代价。这种集中化模式其实增加易于被几种攻击的点而已。你只是初摸rust觉得好上手问题。这个主题讨论的是用rust去换linux的内核和混入内核，不是写个小应用。这个前提问题就不一样。rust这个架构必然是只是一种“过客”语言，一种语言有个局部优势就去奉若神明，甚至拿去替换核心OS的内核，然后这个漫长的工程推进中，它本身就已经过时了，变成了一种不上不下漏洞明显的产物。这样的语言我们见得还少吗？rust又不是最近才出来的吧？它真有竞争力早该被主动在内核领域开始应用了。不需要这么激烈的碰撞来推动。反而rust在话题热度了一段时间后被很多人抛弃了，是最近又被翻出来炒作吧，为了配合混入linux内核和替代部分其它内核与底层程序在炒作吧？而且有美国政府参与推动吧？为什么呢？
+
