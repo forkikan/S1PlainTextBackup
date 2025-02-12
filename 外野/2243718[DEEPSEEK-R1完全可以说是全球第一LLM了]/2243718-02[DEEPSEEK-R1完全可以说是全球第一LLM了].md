@@ -3452,3 +3452,14 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 另外问LLM他是谁没用，你问DSR1他甚至可能会回答你自己是GPT/文心一言
 
+
+*****
+
+####  zerona  
+##### 1790#       发表于 2025-2-12 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399398&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-12 02:44</a>
+
+好辛苦，调教了很久，精选了各种桥段，并且总结写法、文风特征（当然也是用AI）放在知识库里面，在大量提示 ...</blockquote>
+能介绍下知识库的文件怎么编纂吗？ 也想做个称心的剧情出来。
+
