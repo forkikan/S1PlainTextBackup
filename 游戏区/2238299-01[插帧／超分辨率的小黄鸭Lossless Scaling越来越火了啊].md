@@ -401,3 +401,14 @@ cookies估计早给它顺走了，就是不知道还给它传走了啥东西
 
 双卡插一张P106之类的廉价计算卡专门负责超分和插帧不知道如何
 
+
+*****
+
+####  saberserker  
+##### 120#       发表于 2025-2-12 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67392673&amp;ptid=2238299" target="_blank">fyzqwzh 发表于 2025-2-11 09:53</a>
+
+试了下，到该掉帧的地方游戏会明显减速来保持流畅，不知道是不是设置问题 ...</blockquote>
+这软件只是单纯的把帧数翻倍，可以拯救低帧但是救不了掉帧，所以要保持帧数稳定才有比较流畅的效果，适合一些只能跑30帧的游戏或者手动锁在一个比较稳定的帧数上。
+
