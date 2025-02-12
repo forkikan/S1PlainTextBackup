@@ -484,3 +484,13 @@ ds其实是工程学上的进步，gpt这些ai做的是从0到1，国内干的�
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  泥鳅化石  
+##### 50#       发表于 2025-2-12 20:10
+
+看来这位大概率也在股票上赔了不少。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

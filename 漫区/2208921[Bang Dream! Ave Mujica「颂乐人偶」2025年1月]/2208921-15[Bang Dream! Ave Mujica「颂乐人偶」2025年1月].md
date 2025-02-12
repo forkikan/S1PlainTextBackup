@@ -5353,3 +5353,73 @@ layer还直球表白ras呢，也没有再当个风湿病人</blockquote>
 
 而且后面还让海铃补了一句“星星？”，MyGO和Mujica里如果针对一件事有一句看似完全没用的废话，一般都是在暗示“注意这个地方有问题”
 
+
+*****
+
+####  天空塔书记官  
+##### 21228#       发表于 2025-2-12 20:09
+
+主唱是星星，懂了，初华在尾行灯(
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  抽搐一下  
+##### 21229#       发表于 2025-2-12 20:11
+
+crychic 日 mygo 星 ave mujica 月吧
+
+*****
+
+####  单脚着地  
+##### 21230#       发表于 2025-2-12 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404871&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-12 19:19</a>
+
+我有转到专楼，但是我没看出啥来，这故事里面又没有侯爵。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来有搬吗,前面没看到
+
+*****
+
+####  南宮凝香  
+##### 21231#       发表于 2025-2-12 20:11
+
+<blockquote>天空塔书记官 发表于 2025-2-12 20:09
+主唱是星星，懂了，初华在尾行灯(
+
+</blockquote>
+初華也是主唱
+
+所以也可以單純是去洗手間後照鏡子打扮
+
+
+*****
+
+####  aptx8285144  
+##### 21232#       发表于 2025-2-12 20:15
+
+ 本帖最后由 aptx8285144 于 2025-2-12 20:17 编辑 
+
+无所谓看哭不看哭了，反正现在重温这一历史时刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，<strong>很难被超越了
+</strong>
+
+当时素世接到通知要结束乐队，她兴冲冲的刚进livehouse时，她的随身警卫睦即被留在场馆外。素世感到事情有些不大对头，但也没在意。当素世快走进正厅大门时，专门对付她的特别行动小组立即走了过来。
+
+特别行动小组几个人在走廊里把她扭住的时候，<strong>素世惊慌失措，一边大声说 “我是来结束乐队的，你们要干什么？”</strong><img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，一边拳打脚踢，拼命进行反抗。特别行动小组的卫士个个身手不凡，素世很快就被行动小组制服了，被押到了大厅里。
+
+在大厅里，等待她的千早爱音把“逮捕决定”念了一遍。还没等爱音念完，素世突然大吼一声，挣脱警卫人员的扭缚，向五六米远地方的立希元帅猛扑过去。素世练过武，一旦扑过去，打伤了建队元老，这还了得？乐奈大帅久经沙场，不慌不忙的冷眼看着素世的疯狂举动。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+在这千钧一发之际，一旁的警卫反应迅速，猛冲上去把素世扑倒，死死地把她摁住，给她戴上了手铐。在整个过程中，素世是唯一被戴上手铐的人。素世被捕后，对她的监管也最严格的。                
+
+*****
+
+####  zzhh0131  
+##### 21233#       发表于 2025-2-12 20:16
+
+原来下集不是梅津，梅津只有一集分镜（连演出都没做），那我确实相信后面有大的（毕竟怎么看下集都比较关键）。
+
+希望梅津后面能有两集，以及能看到绫奈+梅津回（感觉希望渺茫）
+
