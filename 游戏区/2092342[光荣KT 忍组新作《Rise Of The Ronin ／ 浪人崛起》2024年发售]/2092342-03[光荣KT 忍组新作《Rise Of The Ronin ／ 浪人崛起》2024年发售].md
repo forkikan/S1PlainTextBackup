@@ -137,3 +137,16 @@ FFO通关以后就没怎么碰了，处决播片太长了……
 不过一周目根本不需要这个，得跟等级不断 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">问题不大，紫电烈风我基本不用，单线程大脑一把武器一个架势复读到死（
 
+
+*****
+
+####  千里孤坟  
+##### 3379#       发表于 2025-2-12 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400975&amp;ptid=2092342" target="_blank">zzy516232108 发表于 2025-2-12 11:08</a>
+
+问题不大，紫电烈风我基本不用，单线程大脑一把武器一个架势复读到死（ ...</blockquote>
+紫电还是挺推荐的，比仁王好用很多。仁王能力加点差别大，切不同武器要克服能力加成不同导致面板削弱的硬性障碍。而浪人的四维能力基本是均等增长的，切武器就算加成能力不同也不会降战力，只需要靠练习解决熟练度落差。
+
+烈风倒是比仁王难用，思路不一样，有架势克制问题要考虑。
+

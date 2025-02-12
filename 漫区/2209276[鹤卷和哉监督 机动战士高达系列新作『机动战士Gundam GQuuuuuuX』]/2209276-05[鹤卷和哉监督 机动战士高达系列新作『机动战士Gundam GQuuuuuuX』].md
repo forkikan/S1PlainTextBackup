@@ -11892,3 +11892,19 @@ GTO动画版机设（不算原著漫画）没份，MSD留空弄了两款YMS-08B�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 6825#       发表于 2025-2-12 11:27
+
+[X 上的 (株)カラー 2号機：“◤◤Backgroundworks of GQuuuuuuX◢◢ #ジークアクス 制作の裏側にまつわる様々なモノをチラ見せ！ 『form3+』で作られた"3Dモデルの立体出力"をご紹介。 第2弾は「ジークアクス　バストアップモデル(通常時)」です！ 制作時に資料として活用されています。 [url]https://t.co/Hxpjl5B2kk](https://x.com/khara_inc2/status/1889509741325337040)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/12/112659cwwx64194dw44yzq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1002.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 11:26 上传
+

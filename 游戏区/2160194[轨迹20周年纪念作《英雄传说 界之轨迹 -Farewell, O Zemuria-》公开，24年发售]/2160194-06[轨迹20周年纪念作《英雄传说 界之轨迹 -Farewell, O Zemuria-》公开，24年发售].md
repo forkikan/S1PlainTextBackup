@@ -1141,3 +1141,16 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 而号称精明干练，黑白通吃的范恩所长，他的选择，更接近小孩子那边。
 
+
+*****
+
+####  卢迪克  
+##### 7633#       发表于 2025-2-12 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399616&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2025-2-12 07:54</a>
+
+最终章对线的明明应该是学妹，结果还是大统领承担了所有
+
+论坛助手,iPhone</blockquote>
+大统领这丑完了，黎2说在造新型战舰，界1回溯了也没造出来
+
