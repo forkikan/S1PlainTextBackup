@@ -5957,3 +5957,36 @@ did患者随着时间推移，脑内会继续产生其他人格 ...</blockquote>
 真去看医生 先不提睦爸妈愿不愿意影不影响星途，就你说的，可能反而医生会杀死睦人格的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 21272#       发表于 2025-2-13 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们对这块的“看医生”是没什么概念是吧
+
+某些意义上看医生反而最猎奇最BE的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 21273#       发表于 2025-2-13 00:40
+
+感觉不如不停的殴打莫老师直到她受不住切睦出来吃伤害
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  玖羽  
+##### 21274#       发表于 2025-2-13 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406751&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-13 00:39</a>
+
+你们对这块的“看医生”是没什么概念是吧
+
+某些意义上看医生反而最猎奇最BE的 ...</blockquote>
+而且为什么好像很多人觉得带去看医生就能马上看上马上确诊马上治好
+
+如果真带去看医生，医生第一句话怕不是你TM谁啊请把患者的父母叫来
+

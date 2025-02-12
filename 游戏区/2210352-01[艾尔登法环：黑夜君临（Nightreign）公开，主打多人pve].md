@@ -1929,3 +1929,13 @@ goty没让我破防，这玩意给我干破防了
 试玩里有个三头犬boss，p2会分裂成三只狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这单人怎么打，就是给组队设计的
 
+
+*****
+
+####  医生狼多  
+##### 212#         楼主| 发表于 2025-2-13 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406611&amp;ptid=2210352" target="_blank">TheCyrodiil 发表于 2025-2-13 00:10</a>
+单人玩流程能撑40小时吗？能我就买</blockquote>
+机制都是按三人组队设计的，单人最多调调数值，独狼估计只能给自己找不痛快
+
