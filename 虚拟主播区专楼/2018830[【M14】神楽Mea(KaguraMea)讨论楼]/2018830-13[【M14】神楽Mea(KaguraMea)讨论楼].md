@@ -1067,3 +1067,26 @@ DeepL用得多，但说到底，我中英韩三语最近都接触却都说不溜
 
 硬要说还有什么支线的话就是这人是这把的亚索的观众，被ban了之后还一直在亚索的直播间bb个不停
 
+
+*****
+
+####  TiHaru  
+##### 17974#       发表于 2025-2-13 04:53
+
+<img src="https://img.saraba1st.com/forum/202502/13/045216n1d40lgpg4lt0pd0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7025.jpeg</strong> (121.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 04:52 上传
+
+亚索直播间有个和sl号同名的，不知道是不是本人
+
+*****
+
+####  TiHaru  
+##### 17975#       发表于 2025-2-13 04:55
+
+就是本人，sl能直接跳转这个号
+
