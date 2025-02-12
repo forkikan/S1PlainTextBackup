@@ -628,3 +628,16 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 这个吵了得有两年了吧
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 53#       发表于 2025-2-12 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+经典笑话之评论c和rust 哪个好
+答案是高级c++
+“我不知道 因为我用concepts和constexpr”
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

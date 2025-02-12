@@ -11939,3 +11939,35 @@ GTO动画版机设（不算原著漫画）没份，MSD留空弄了两款YMS-08B�
 
 2025-2-12 11:52 上传
 
+
+*****
+
+####  Gysumitka  
+##### 6828#       发表于 2025-2-12 12:19
+
+ 本帖最后由 Gysumitka 于 2025-2-12 12:23 编辑 
+
+◤音楽情報◢
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』の楽曲が ** VIRALTop50 Japanにランクイン！
+コロニーの彼女（I_006A）
+Plazma
+ミッドナイト・リフレクション
+
+日本榜top50
+<img src="https://p.sda1.dev/21/7ecdfda2979fd8fdb97085f07474f947/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 6829#       发表于 2025-2-12 12:20
+
+[X 上的 スーパーポテサラアニメ：“あの時アムロは何やってたのか問題 [url]https://t.co/jTXGCzZLzq](https://x.com/super_potesala/status/1889288132811804762)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/12/121956ol18440g60xx78g6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (942.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 12:19 上传
+
