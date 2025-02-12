@@ -6206,3 +6206,22 @@ soyorin以德报怨封圣，棕捞蓝，蓝捞绿，蓝可能去找绿妈
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  玖羽  
+##### 21283#       发表于 2025-2-13 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406819&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-13 01:00</a>
+
+1、初华和168有关
+
+老登将祥妈的死迁怒中登，设计让中登被骗，初华知情或有参与却不能让蓝祥知道</blockquote>
+这个和我的判断完全一样，只是我认为细节不同，168亿是真的，定治做的是剥夺了清告的财产
+
+森美奈美我也同意，这个角色如果在后面没有戏份，前面的描写是多到浪费的，动画应该不会做这种事
+
+我认为初华和丰川家应该没有直接联系，不然很容易写得狗血
+
+（他开始看二创了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">）
+
