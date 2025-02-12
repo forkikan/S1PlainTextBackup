@@ -1196,3 +1196,15 @@ M佬怒辞…
 
 操作系统方面的落地了的应用案例有[https://github.com/cloud-hypervisor/cloud-hypervisor](https://github.com/cloud-hypervisor/cloud-hypervisor)，还有就是Asahi Linux上的GPU驱动吧。
 
+
+*****
+
+####  123485k  
+##### 95#       发表于 2025-2-13 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401866&amp;ptid=2245923" target="_blank">bcxzzz 发表于 2025-2-12 13:03</a>
+对于这种后出来的语言，美国的棱镜计划之类的，会不会直接在编译器里埋后门？
+
+—— 来自 HUAWEI LIO-AL0 ...</blockquote>
+还是有可能的，可以参考[这篇博客](https://bojieli.com/2014/11/insert-backdoor-into-compiler/)
+
