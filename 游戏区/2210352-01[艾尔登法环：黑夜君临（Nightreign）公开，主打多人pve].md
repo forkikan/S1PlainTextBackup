@@ -1819,3 +1819,15 @@ goty没让我破防，这玩意给我干破防了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  医生狼多  
+##### 199#         楼主| 发表于 2025-2-12 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405436&amp;ptid=2210352" target="_blank">名字已被吃 发表于 2025-2-12 20:47</a>
+我倒有个多出来的日服ps5码，需要私我
+
+—— 来自 鹅球 v3.3.96</blockquote>
+多谢了，不过不用日服玩，看看哪位坛友需要吧
+

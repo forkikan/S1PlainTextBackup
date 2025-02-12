@@ -268,3 +268,19 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  大十字紅朔  
+##### 16299#       发表于 2025-2-12 22:02
+
+最大的感想：种田的声音真是快不行了……………………
+
+<img src="https://img.saraba1st.com/forum/202502/12/220150iiu837luwrr37837.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (611.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 22:01 上传
+
