@@ -1186,3 +1186,13 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 葱头打李霞那战我都看不出为啥要打<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7637#       发表于 2025-2-12 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">现在回看当初van上天的pv 和 白魔装鬼   算不算是一种欺诈
+
+最后和眼睛打上天有啥意义吗 去旅个游回来？ 说到底就压根没有打的必要。。可以说是轨迹至今为止最没有意义的最终boss了。。
+

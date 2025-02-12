@@ -570,3 +570,61 @@ ai满嘴胡话的情况下，rust编译器的小皮鞭抽着更容易写出健�
 时代变了，老哥
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  abcxiawei  
+##### 49#       发表于 2025-2-12 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401345&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-12 11:51</a>
+
+恰恰相反，你看到的“高门槛”在目前ai助手满地的情况下根本不是事儿
+
+ai满嘴胡话的情况下，rust编译器的小 ...</blockquote>
+那我们就继续看，看rust到底能不能在这个领域把C和C++的地盘侵蚀掉好了。
+
+AI可以教人写rust脚本，照样可以教C和C++脚本，而且，越没门槛，AI教的越好，这是我的判断
+
+*****
+
+####  ryanz  
+##### 50#       发表于 2025-2-12 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401345&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-12 11:51</a>
+
+恰恰相反，你看到的“高门槛”在目前ai助手满地的情况下根本不是事儿
+
+ai满嘴胡话的情况下，rust编译器的小 ...</blockquote>
+这种涉及借用权的恰恰 ai 可能绕不过那么多弯。昨天遇见群里有人问一个问题就顺道去问了 ai 
+
+can the code run
+
+fn main() {
+
+    let mut v = vec![1, 3, 4, 5]; 
+
+    v[v.len() - 1] = 4; 
+
+    println!("{:?}", v); 
+
+} 
+
+ai 答错了，而正确的解答在这里 [https://users.rust-lang.org/t/ca ... ed-as-mutable/85785](https://users.rust-lang.org/t/cannot-borrow-as-immutable-because-it-is-also-borrowed-as-mutable/85785) 作为老早就在我书签里 2022 年的问答它应该学习到才对。
+
+
+*****
+
+####  redbuck  
+##### 51#       发表于 2025-2-12 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399968&amp;ptid=2245923" target="_blank">montanaB 发表于 2025-2-12 09:10</a>
+Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制，来保证所谓的内存安全性。但是在这些东西之外 ...</blockquote>
+逃生窗肯定要留的，这不算啥黑点
+
+*****
+
+####  Vacuolar  
+##### 52#       发表于 2025-2-12 12:17
+
+这个吵了得有两年了吧
+
