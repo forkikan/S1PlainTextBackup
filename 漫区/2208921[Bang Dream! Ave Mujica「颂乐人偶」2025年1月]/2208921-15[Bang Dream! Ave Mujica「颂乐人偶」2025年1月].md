@@ -3835,3 +3835,15 @@ nga鸡楼一个小时滑一个节奏，你现在去看还有人提烧烤吗，�
 祥黑把所有变态假药全都归纳为祥厨的阴谋
 我看这才叫变态多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 21080#       发表于 2025-2-12 12:59
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-12 13:01 编辑 
+
+后面初海喵一个有戏份，一个戏份少，一个献祭掉塞剧场版里，时间这不充足得很吗，go也是这样演的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+wsd最大错误就是没把这两季叫crychic1和2我看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

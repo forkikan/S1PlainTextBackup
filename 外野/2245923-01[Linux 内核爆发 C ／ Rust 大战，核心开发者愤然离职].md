@@ -685,3 +685,40 @@ can the cod ...</blockquote>
 
 2025-2-12 12:43 上传
 
+
+*****
+
+####  ryanz  
+##### 57#       发表于 2025-2-12 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401733&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-12 12:45</a>
+
+对于应用来说...ai应该...还行？</blockquote>
+公司禁止用 copilot 不太了解关于它修复代码的原理，猜测可能因为编辑器的 linter 告诉 copilot 它才知道错了，这个猜测不一定对。直接拿这段代码问过 deepseek 和 chatgpt，它们都认为可以得到结果。
+
+*****
+
+####  YoumuChan  
+##### 58#       发表于 2025-2-12 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401158&amp;ptid=2245923" target="_blank">abcxiawei 发表于 2025-2-12 11:27</a>
+
+不，你曲解了我的话，我不是认为没意义。而是，你不能付出如此巨大的代价后，最后实现的效果和别人家更简 ...</blockquote>
+那么你可以说rust有很陡峭的学习曲线，但我觉得跟加强心智负担是有区别的。
+
+而C/C++也只不过是把rust陡峭的部分，藏在一次次的segmentation fault，gdb和asan中而已。
+
+我个人其实觉得语言学习的第一门语言不应该是rust，先C/C++起手，延迟一小段时间再开始rust其实对于语言之间的tradeoff会有更好的理解。而跟rust编译器搏斗学到的生命周期，反过来对于写C/C++也是有帮助的，可以对于写C/C++潜移默化学到的内存安全规则形成更系统的理解。
+
+
+*****
+
+####  bcxzzz  
+##### 59#       发表于 2025-2-12 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399968&amp;ptid=2245923" target="_blank">montanaB 发表于 2025-2-12 09:10</a>
+Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制，来保证所谓的内存安全性。但是在这些东西之外 ...</blockquote>
+对于这种后出来的语言，美国的棱镜计划之类的，会不会直接在编译器里埋后门？
+
+—— 来自 HUAWEI LIO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
