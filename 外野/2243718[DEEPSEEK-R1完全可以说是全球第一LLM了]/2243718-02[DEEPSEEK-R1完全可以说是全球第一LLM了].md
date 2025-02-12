@@ -3605,3 +3605,14 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 HBM什么时候能普及啊，普及后就是本地部署的春天了吧
 
+
+*****
+
+####  Laniakea  
+##### 1803#       发表于 2025-2-12 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403112&amp;ptid=2243718" target="_blank">overflowal 发表于 2025-2-12 15:43</a>
+
+模型128K的窗口，但是国内的供应商一般就给64K，舍得花钱的话看看国外的，好多家都是提供128k的 ...</blockquote>
+多谢坛友！想在本地跑14b的，我的需求用这个好像差不多够使了
+
