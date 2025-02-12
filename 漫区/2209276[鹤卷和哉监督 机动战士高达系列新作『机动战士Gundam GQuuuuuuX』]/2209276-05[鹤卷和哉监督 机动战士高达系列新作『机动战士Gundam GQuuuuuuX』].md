@@ -12046,3 +12046,14 @@ Plazma
 
 没手电筒，西玛阿姨不用无家可归了。
 
+
+*****
+
+####  王留美  
+##### 6837#       发表于 2025-2-12 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67403371&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-12 16:09</a>
+ 这个世界的手电筒计划被大扎姆量产挤掉了吧，好像根本就没手电筒了</blockquote>
+联邦手上有
+所罗门就是用手电筒打下来的
+

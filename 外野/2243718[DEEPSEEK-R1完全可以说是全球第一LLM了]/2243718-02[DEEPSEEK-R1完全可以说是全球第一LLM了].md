@@ -3672,3 +3672,15 @@ HBM什么时候能普及啊，普及后就是本地部署的春天了吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Azcarlo  
+##### 1809#       发表于 2025-2-12 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404184&amp;ptid=2243718" target="_blank">james0zan 发表于 2025-2-12 17:48</a>
+在泥潭看到有人发自己做的东西还真的是非常魔幻的体验</blockquote>
+啊？是章老师本人吗
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
