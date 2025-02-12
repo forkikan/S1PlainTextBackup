@@ -4893,3 +4893,38 @@ nga因为之前猴子打印机的事，那堆“剧透”传的是最多的
 
 阿B是懂推送的，这个赤羽就是动画里的赤羽吗
 
+
+*****
+
+####  ads147147  
+##### 21182#       发表于 2025-2-12 18:27
+
+给祥子爹住址这个事，有可能是编剧大手让soyo更新情报的，也可能是睦演的。
+
+比较搞的是之前爹目送祥子离开让我有爹赶人走的误解，这次soyo一去直接干碎猜想让我挺无语的，谁知道大墨老师看soyo离开是不是分镜自作多情给的镜头。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  南宮凝香  
+##### 21183#       发表于 2025-2-12 18:33
+
+給祥爹的地址明顯是為了Soyo 吃驚臉這醋包的餃子
+
+這季太多這種為了醋而不顧合理性的餃子了
+
+*****
+
+####  595505568  
+##### 21184#       发表于 2025-2-12 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404387&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-12 18:15</a>
+nga因为之前猴子打印机的事，那堆“剧透”传的是最多的
+
+但是后来翻出来那个人全是滑坡言论，所以猴子打不出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CCC最后的守护者/捍卫者/守墓人，最爱CCC这个整体的素世确实高光多的有点厉害了。
+所以海猫鸣泣说了，没有爱就看不见，现在素世是不是爱和情报都拿在手上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有人拿着猴子的片段躲在后面美美拼莎士比亚呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
