@@ -3396,3 +3396,13 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 试下我上面给的那个prompt改一下</blockquote>
 那个rp的破甲prompt？我看看
 
+
+*****
+
+####  希德尼娅  
+##### 1786#       发表于 2025-2-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399398&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-12 02:44</a>
+好辛苦，调教了很久，精选了各种桥段，并且总结写法、文风特征（当然也是用AI）放在知识库里面，在大量提示 ...</blockquote>
+酒馆是啥，我还以为就是另一个前端呢
+
