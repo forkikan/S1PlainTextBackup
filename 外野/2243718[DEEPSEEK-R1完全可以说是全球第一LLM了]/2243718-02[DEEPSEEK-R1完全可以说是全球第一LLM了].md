@@ -3406,3 +3406,21 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 好辛苦，调教了很久，精选了各种桥段，并且总结写法、文风特征（当然也是用AI）放在知识库里面，在大量提示 ...</blockquote>
 酒馆是啥，我还以为就是另一个前端呢
 
+
+*****
+
+####  2017.05.04  
+##### 1787#       发表于 2025-2-12 09:56
+
+[https://xiaoyi.huawei.com/chat/](https://xiaoyi.huawei.com/chat/)
+
+<img src="https://img.saraba1st.com/forum/202502/12/095605elp6eg6mpmrefzlf.png" referrerpolicy="no-referrer">
+
+<strong>c0c7b68f918c4646880c4bfc1c8e3085.png</strong> (36.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 09:56 上传
+
+菊花的小艺网页版带R1，可以选手动或者自动启用
+
