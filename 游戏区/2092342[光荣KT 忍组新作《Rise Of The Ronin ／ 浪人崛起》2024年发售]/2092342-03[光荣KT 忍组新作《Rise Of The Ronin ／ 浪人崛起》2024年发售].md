@@ -124,3 +124,16 @@ FFO通关以后就没怎么碰了，处决播片太长了……
 
 还有处决后可以无缝出闪刃/紫电/烈风，这个操作有垫招功能。处决演出丰富是浪人里我特别享受的地方了，再也没有傻白断肢阉割，每个流派都不同，打空精自动代入专属处决演出的招多，还有更暴力的杀人剑（特殊技能，只能对杂兵用，有些附加效果）处决，枪毙爆头三四分割砸碎肉应有尽有，斩下来的首级还会在坡道上跟球一样滚，ffo和仁王那点清汤寡水太容易看腻。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 3378#       发表于 2025-2-12 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400895&amp;ptid=2092342" target="_blank">千里孤坟 发表于 2025-2-12 10:59</a>
+
+移植词条方面浪人不如卧龙，得查背包装备，不能从词条库里选。
+
+不过一周目根本不需要这个，得跟等级不断 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">问题不大，紫电烈风我基本不用，单线程大脑一把武器一个架势复读到死（
+
