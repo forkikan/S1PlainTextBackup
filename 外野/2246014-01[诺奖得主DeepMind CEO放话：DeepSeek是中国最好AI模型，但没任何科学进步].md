@@ -459,3 +459,28 @@ ds其实是工程学上的进步，gpt这些ai做的是从0到1，国内干的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liquer  
+##### 47#       发表于 2025-2-12 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和另外一个鬼佬一起把诺贝尔两个奖搞成臭狗屎的东西
+
+
+*****
+
+####  larry1  
+##### 48#       发表于 2025-2-12 19:31
+
+他的围棋算法不是手下黄博士搞的吗？
+
+*****
+
+####  LilithMardin  
+##### 49#       发表于 2025-2-12 19:35
+
+阿达西，那嘴里说出来的话就像醋一样的味道嘛。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

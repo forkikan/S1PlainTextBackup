@@ -200,3 +200,30 @@
 
 （该不会是因为“祖父”喊起来没有“父亲”好听才强调这种说法吧...）
 
+
+*****
+
+####  シャル  
+##### 16294#       发表于 2025-2-12 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404731&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-12 19:01</a>
+
+对于九相图是因为看咒术回战才去了解的，没想到今天在FGO遇到正主了（误）
+
+锁卡面不锁资料也算是妙手， ...</blockquote>
+九相图最早是孔雀王里有故事
+
+
+*****
+
+####  音無麻理亜  
+##### 16295#       发表于 2025-2-12 19:36
+
+ 本帖最后由 音無麻理亜 于 2025-2-12 19:37 编辑 
+
+坏了，情人节2025的kirakira是ave mujika的kirakira<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+紫式部：说好的是同事来，怎么变隔壁邻居老头的女儿/孙女了
+
+（紫式部墓隔壁是小野篁的墓地，民间传说紫式部写《源氏物语》要进地狱，小野篁去阎魔大王那捞人<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
