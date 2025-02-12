@@ -4570,3 +4570,36 @@ C part最终Boss登场（无论初华还是祥子，登场的是谁，谁就是�
 <img src="https://p.sda1.dev/21/7d9b3518555c85cbe1d567752114291e/QQ图片20250212154800.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/a12ca055040df8f5a587239447e1c313/QQ图片20250212155107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 21156#       发表于 2025-2-12 16:12
+
+难道真的要送走墨老师吗？那再回顾一下墨老师鬼斧神工的天然演技吧
+
+<img src="https://img.saraba1st.com/forum/202502/12/161112yyyqkez73xx39mz7.jpg" referrerpolicy="no-referrer">
+
+<strong>F5FA5D28C62C2F8A8AB66BF55FC7817A.jpg</strong> (69.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 16:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/12/161200ge4pu99hr9o5q6qn.jpg" referrerpolicy="no-referrer">
+
+<strong>82518B4E7077D9C07C472133D92472E1.jpg</strong> (49.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 16:12 上传
+
+*****
+
+####  fuwamoco  
+##### 21157#       发表于 2025-2-12 16:15
+
+<blockquote>綺々羅々ヴィヴ 发表于 2025-2-12 13:35
+那你邦下一个团启蒙对象会是鸡狗哪个啊？肯定是狗吧，憧憬鸡团也太哈人了。 ...</blockquote>
+你邦下一个团是五个人管人
+
