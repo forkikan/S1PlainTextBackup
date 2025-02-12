@@ -2162,3 +2162,11 @@ https://www.toei-anim.co.jp/tv/precure/live2025/#n ...</blockquote>
 
 B站有Zukyun的变身音效了，果然是purirun
 
+
+*****
+
+####  jaewoongh_  
+##### 466#       发表于 2025-2-12 21:19
+
+那メロロン是kiss？啥时候出场啊
+

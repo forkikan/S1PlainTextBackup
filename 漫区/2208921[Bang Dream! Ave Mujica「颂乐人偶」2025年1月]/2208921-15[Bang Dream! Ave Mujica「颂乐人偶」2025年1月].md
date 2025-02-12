@@ -5522,3 +5522,22 @@ crychic 日 mygo 星 ave mujica 月吧
 
 mortis的事情还可以操作一下，最后被大卡车创一下代替睦消失就行了。此事在空之境界也有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 21243#       发表于 2025-2-12 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405634&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-12 21:16</a>
+
+第四集把莫提丝不会弹琴
+
+变成弹到某个地方一定弹错
+
+就什么问题都没了
+
+后续在收回伏笔说这弹错的地方是什么原因</blockquote>
+不行，从内部说，Mortis是睦心里对祥子不满的那一部分的体现，所以为了反抗祥子，一点都不能弹
+
+从外部说，喵梦完全不信双重人格，她的认知是：睦很想表演，但是祥子为了她那个破世界观压制睦的表演，所以睦表示一点都不会弹是在反抗祥子
+
