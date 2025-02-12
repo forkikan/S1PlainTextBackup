@@ -3254,3 +3254,32 @@ Post nubila phoebus.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plusSharp  
+##### 21023#       发表于 2025-2-12 08:20
+
+<blockquote>影伴光生 发表于 2025-2-11 23:15
+这个孕吧也有类似的文章，睦头似换祥妈活（好地狱）
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+如果祥母直接复活那剧本就对祥子太偏爱了，要的就是短暂显灵又失去的效果，祥子献祭了某人却只换来了一刻幸福才够劲
+
+*****
+
+####  595505568  
+##### 21024#       发表于 2025-2-12 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67399634&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-12 07:59</a>
+就不该把中登写成crychic爆炸的原因 太碍事了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 21025#       发表于 2025-2-12 08:24
+
+结合时事，吃不起米饿死可能性更大
+
