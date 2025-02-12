@@ -1968,3 +1968,14 @@ goty没让我破防，这玩意给我干破防了
 
 估计10小时都差不多到头了
 
+
+*****
+
+####  usodakedo  
+##### 216#       发表于 2025-2-13 04:06
+
+看各种介绍，本质其实就是借用素材做了一个带毒圈的肉鸽游戏，玩法和节奏完全和过往fs那种深思熟虑的探索感相反。说白了就是借着ip做奶粉作加尝试新类型加让更多社内中坚力量尝试做监督，就看体量和质量能不能对得起售价了。
+至于是不是逼的，反正确实有做完黑魂1万代直接同时立项和开发魂2和魂3的“美谈”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
