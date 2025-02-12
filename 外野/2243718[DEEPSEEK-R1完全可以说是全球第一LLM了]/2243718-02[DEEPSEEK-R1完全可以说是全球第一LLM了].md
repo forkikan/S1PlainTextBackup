@@ -3579,3 +3579,11 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 买一块4090d等级的显卡跑q4就很爽啦 ...</blockquote>
 说的是用RAGflow建知识库，deepseek负责语言解析和推理，知识库的内容要自己喂
 
+
+*****
+
+####  Laniakea  
+##### 1800#       发表于 2025-2-12 15:32
+
+说来deepseek支持的最长文本输入长度是多少？有限制吗？蒸馏版的呢？
+

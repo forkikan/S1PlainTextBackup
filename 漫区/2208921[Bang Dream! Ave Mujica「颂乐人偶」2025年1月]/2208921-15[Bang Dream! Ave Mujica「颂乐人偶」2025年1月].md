@@ -4488,3 +4488,30 @@ WSD 的企劃 （手遊+ 2.5 次元）一定有C團混團Live
 
 C团live气氛正好的时候，海玲气死了冲上去打起来，同时mortis也发作了跟着一起闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  单脚着地  
+##### 21148#       发表于 2025-2-12 15:27
+
+这剧情怎么让我想起某著名搞笑视频<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">《老公，你说句话呀》
+
+
+*****
+
+####  zhzij111  
+##### 21149#       发表于 2025-2-12 15:33
+
+nga不是有个爱音厨形容的很到位，爱音不过是机器人（灯）的机械飞爪，主要负责帮灯皇抓人，机器人和它的飞爪形影不离，但飞爪的想法重要吗
+
+下集要是搞祥子春日影就坐实机械飞爪嘞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 21150#       发表于 2025-2-12 15:35
+
+7人一起live是最好的了
+
