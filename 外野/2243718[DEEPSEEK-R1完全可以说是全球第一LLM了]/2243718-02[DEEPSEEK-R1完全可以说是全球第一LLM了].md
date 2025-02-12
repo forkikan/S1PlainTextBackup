@@ -3437,3 +3437,18 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 小艺说自己不是deepseek啊
 
+
+*****
+
+####  2017.05.04  
+##### 1789#       发表于 2025-2-12 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400554&amp;ptid=2243718" target="_blank">ysys 发表于 2025-2-12 10:22</a>
+
+小艺说自己不是deepseek啊</blockquote>
+我测试的结果就是DS R1
+
+但是有可能不是满血版，但又不像蒸馏和量化版，不知道菊花调整了哪些参数，也有可能是满血版但是在输出token数量做了限制
+
+另外问LLM他是谁没用，你问DSR1他甚至可能会回答你自己是GPT/文心一言
+
