@@ -4140,3 +4140,49 @@ nga专楼
 
 炸完团之后神隐三个团员的打法还是太变态了，最关键的剧情节点全让给ccc（不含利息）这团魂还能卖得动吗（
 
+
+*****
+
+####  qlipho  
+##### 21112#       发表于 2025-2-12 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402272&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-12 14:01</a>
+
+“你们一定是很专业的前辈，请问团队初期怎么拧绳比较好？”
+
+祥子“有点困难呢，我可以带你去找老师”
+
+“ ...</blockquote>
+初华老师只是被洗点了，mygo拉灯的打法还是可以学习的  别急，加完点回来
+
+*****
+
+####  595505568  
+##### 21113#       发表于 2025-2-12 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402327&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-12 14:07</a>
+初华老师只是被洗点了，mygo拉灯的打法还是可以学习的  别急，加完点回来 ...</blockquote>
+快进到初华把点数留了一丢丢给教导，剩下点数全点给了“小祥”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 21114#       发表于 2025-2-12 14:09
+
+立希也有去问情况动摇了海铃的心啊，将来海铃要有什么动作那契机也是立希挖出来的（
+
+
+*****
+
+####  595505568  
+##### 21115#       发表于 2025-2-12 14:11
+
+母鸡卡就像萝团一样可以指导怎么飞得高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21116#       发表于 2025-2-12 14:13
+
+海玲完全不算关键节点所以利息也不算（
+

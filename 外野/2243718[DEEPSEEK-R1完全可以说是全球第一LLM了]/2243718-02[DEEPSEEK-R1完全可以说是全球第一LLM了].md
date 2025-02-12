@@ -3540,3 +3540,29 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 这还得有十几万的投资
 
+
+*****
+
+####  精钢魔像  
+##### 1797#       发表于 2025-2-12 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402292&amp;ptid=2243718" target="_blank">qqks 发表于 2025-2-12 14:03</a>
+
+两块xeon 6454s 1t内存加1块4090d
+
+这还得有十几万的投资</blockquote>
+个人自建知识库可能70b效果就不错了，不一定非要上满血的
+
+
+*****
+
+####  qqks  
+##### 1798#       发表于 2025-2-12 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402325&amp;ptid=2243718" target="_blank">精钢魔像 发表于 2025-2-12 14:07</a>
+
+个人自建知识库可能70b效果就不错了，不一定非要上满血的</blockquote>
+普遍评测蒸馏70b的llama3 不如32b的那个
+
+买一块4090d等级的显卡跑q4就很爽啦
+
