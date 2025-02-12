@@ -4204,3 +4204,73 @@ nga专楼
 
 看到ccclive的情报有点汗流浃背了，这个情绪流做越好不会越奇怪吗，先不说团魂破碎的鸡团连狗团都得被垫了（
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 21119#       发表于 2025-2-12 14:27
+
+怎么说呢，就鸡团写到现在这个地步，不垫已经没法演了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+本来鸡团就已经没东西给自己垫了，光狗团垫也没办法解决所有事情，ccc的live不如说也是把c团垫给鸡了。
+
+这要是第7话再做不好那真就是一拖二跳水了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 21120#       发表于 2025-2-12 14:29
+
+Go那边就当吃顿分手饭呗，喊完唱完各回各家，诗超绊在前Go的羁绊我已经不会怀疑了。
+
+鸡……看后续表现（
+
+
+*****
+
+####  yaneis  
+##### 21121#       发表于 2025-2-12 14:30
+
+ccc的live越好鸡团不就越被垫吗？虽然现在已经是底了，但把我的狗团也一起垫了这种事情不要啊，求求你是mygolive不要是ccclive啊（
+
+
+*****
+
+####  qlipho  
+##### 21122#       发表于 2025-2-12 14:31
+
+真搞ccc的live啊，不敢想场外有多乐了
+
+*****
+
+####  zhoujin8584  
+##### 21123#       发表于 2025-2-12 14:31
+
+<img src="https://img.saraba1st.com/forum/202502/12/143059mpsk74irq41wrbbz.jpg" referrerpolicy="no-referrer">
+
+<strong>1739051842249341.jpg</strong> (57.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 14:30 上传
+
+*****
+
+####  天空塔书记官  
+##### 21124#       发表于 2025-2-12 14:32
+
+打，打tm的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 21125#       发表于 2025-2-12 14:35
+
+情绪流，肯定是先go团一直念叨的新歌live，然后睦祥ccc魂开，春日影启动吧。符合了“除了鸡都有”的说法。
+
+就是吉他和键盘哪里来阿喂。
+
+不会是什么千早爱音的吉他在歌唱吧
+
