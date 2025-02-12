@@ -552,3 +552,21 @@ rust并没有解决问题，它只是把入门门槛抬起来，直接不让没�
 
 编辑。。。
 
+
+*****
+
+####  darklinden  
+##### 48#       发表于 2025-2-12 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401158&amp;ptid=2245923" target="_blank">abcxiawei 发表于 2025-2-12 11:27</a>
+
+不，你曲解了我的话，我不是认为没意义。而是，你不能付出如此巨大的代价后，最后实现的效果和别人家更简 ...</blockquote>
+恰恰相反，你看到的“高门槛”在目前ai助手满地的情况下根本不是事儿
+
+ai满嘴胡话的情况下，rust编译器的小皮鞭抽着更容易写出健壮代码，而gc语言闹oom的几率则是**（糊哩哗啦）增加的
+
+00后随便拉个无经验和ai聊天用rust做小脚本儿还能调优根本不是事儿，反而写着测试着没事儿跑一两天崩了才是头疼玩意儿
+
+时代变了，老哥
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

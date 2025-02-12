@@ -11918,3 +11918,24 @@ GTO动画版机设（不算原著漫画）没份，MSD留空弄了两款YMS-08B�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 6827#       发表于 2025-2-12 11:52
+
+ 本帖最后由 岸浪白野 于 2025-2-12 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401267&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-2-12 11:41</a>
+
+港澳定档了吗，刚刚翻了一下香港院线没找到
+
+论坛助手,iPhone</blockquote>之前羚邦说的，港澳台都是27号
+
+<img src="https://img.saraba1st.com/forum/202502/12/115241a2lpy1wnypplz2lf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-12 11:52 上传
+

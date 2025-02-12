@@ -3463,3 +3463,31 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 好辛苦，调教了很久，精选了各种桥段，并且总结写法、文风特征（当然也是用AI）放在知识库里面，在大量提示 ...</blockquote>
 能介绍下知识库的文件怎么编纂吗？ 也想做个称心的剧情出来。
 
+
+*****
+
+####  yorktown  
+##### 1791#       发表于 2025-2-12 11:52
+
+671B的镜像有什么好的下载路子吗，hf-mirror卡的一笔
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  千千千千鸟  
+##### 1792#       发表于 2025-2-12 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400898&amp;ptid=2243718" target="_blank">zerona 发表于 2025-2-12 10:59</a>
+
+能介绍下知识库的文件怎么编纂吗？ 也想做个称心的剧情出来。</blockquote>
+我是节选想要的段落，反复开新对话，让R1从各种角度分析文风、写法。但是它生成的东西基本都没有用，所以要让它多思考，然后把它的思考复制下来。
+
+最后知识库的文件就是这样
+
+学习：关于XXXX的详细写法
+
+例文：xxxxxxx
+
+学习笔记：xxxxxxxx
+
