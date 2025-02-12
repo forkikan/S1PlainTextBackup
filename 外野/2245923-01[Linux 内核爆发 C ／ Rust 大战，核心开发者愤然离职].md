@@ -1128,3 +1128,30 @@ Rust是一门很值得学的语言. 写了几千行rust之后再回去写C++我�
 非计算机专业，图一乐的话，rust 值得学吗，和 C 比呢</blockquote>
 非专业的就用各种脚本语言平时做工具就挺好的了，不需要C或者rust这种
 
+
+*****
+
+####  darklinden  
+##### 91#       发表于 2025-2-12 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404748&amp;ptid=2245923" target="_blank">Xerxes_2 发表于 2025-2-12 19:03</a>
+看这个帖子就高潮的人是不是根本对前情没有一点了解就来输出的？
+
+首先 Rust 进 Linux 是 Linus 本人首肯的 ...</blockquote>
+他们只是想骂 rust 而已 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这事儿吧…
+Linus 允许 rust 进 驱动
+
+某个讲座上说的是“只是想了解或者精细化每个变量的生命周期以使其更加安全”然后被嘘
+
+rust 如果不进 DMA 无法“舒舒坦坦”地使用api（如果你觉得拷贝源码而不是调用库算是正常使用方法那你牛逼）
+
+M佬向原内核维护人员申请包装一层使用被拒，申请自己实现并维护一套rust的等同C的实现被骂“绝不会允许其他语言进入内核，那就是癌症”
+
+Linus扯皮了两周未对此事发表任何意见，然后M佬怒把此事丢进舆论，他出来对M佬说，现在的问题不是对错而是你，之前已经在跑的东西能跑就是能跑，你说的对与错无所谓，你把这事儿丢舆论漩涡就是你的锅。
+
+M佬怒辞…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -5423,3 +5423,27 @@ crychic 日 mygo 星 ave mujica 月吧
 
 希望梅津后面能有两集，以及能看到绫奈+梅津回（感觉希望渺茫）
 
+
+*****
+
+####  达达葱2  
+##### 21234#       发表于 2025-2-12 20:19
+
+<blockquote>zzhh0131 发表于 2025-2-12 20:16
+原来下集不是梅津，梅津只有一集分镜（连演出都没做），那我确实相信后面有大的（毕竟怎么看下集都比较关键 ...</blockquote>
+哪个梅津？
+
+梅津泰臣？
+
+*****
+
+####  zzhh0131  
+##### 21235#       发表于 2025-2-12 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405276&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-12 20:19</a>
+
+哪个梅津？
+
+梅津泰臣？</blockquote>
+梅津朋美
+
