@@ -12114,3 +12114,15 @@ Plazma
 
 为了避免被剧透就一直没看专楼，好像tv4月就要播了，这个电影啥时候有的看呢？
 
+
+*****
+
+####  oi99o  
+##### 6843#       发表于 2025-2-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405298&amp;ptid=2209276" target="_blank">Liana 发表于 2025-2-12 20:26</a>
+为了避免被剧透就一直没看专楼，好像tv4月就要播了，这个电影啥时候有的看呢？ ...</blockquote>
+2.27上港澳台院线，看不了的话估计就直接等tv了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
