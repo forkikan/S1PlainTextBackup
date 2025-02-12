@@ -752,3 +752,28 @@ Rust这玩意儿最奇葩的是，搞了一大堆，各种概念，各种限制�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jet.Black  
+##### 62#       发表于 2025-2-12 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401936&amp;ptid=2245923" target="_blank">d2loader 发表于 2025-2-12 13:15</a>
+
+你们到底在胡说什么啊.... 华为是唯一非美国的rust基金会白金赞助商
+
+而且servo项目被华为接过来了准备以 ...</blockquote>
+想表达啥？华为又不是神，傻逼事情可没少干。
+
+美国政府几次三番强推Rust不是新闻了，没有其他目的我是不信的。
+
+
+*****
+
+####  白笛之音  
+##### 63#       发表于 2025-2-12 13:30
+
+作为modern c++的用户，我能理解rust要干什么，但我觉得他们的解决方式不甚雅观（当然c++可能有不雅观的部分和历史包袱）
+
+深入到实际的软件工程，rust带来的不甚可靠的安全性就未必值得给linux这样的成熟项目额外带来工程上的复杂度了。
+

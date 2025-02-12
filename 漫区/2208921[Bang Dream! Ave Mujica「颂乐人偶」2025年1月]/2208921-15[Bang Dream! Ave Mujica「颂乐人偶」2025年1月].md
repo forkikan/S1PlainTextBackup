@@ -3919,3 +3919,74 @@ Bang Dream！CyrChiC：Disruption/Reflection/Domination
 
 明天第7集，看了一下讨论环境，感叹之后就算真有神回也没法逆转风评了，有些观众出脑后都是奔着挑刺来的，情绪流做再好也没法打动出脑的人（
 
+
+*****
+
+####  嵇翱u  
+##### 21088#       发表于 2025-2-12 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67401941&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-12 13:16</a>
+
+，快进到c团第一次Live底下站了几个我们未来的团的人和鸡狗团员成为新十年最大谜题 ...</blockquote>
+所以C团才是ppp真正的继承人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只可惜半道崩卒了。而邦高祖作为主唱选择了灯皇带领的mygo
+
+*****
+
+####  是谁的书画  
+##### 21089#       发表于 2025-2-12 13:27
+
+在经历过前面六集的铺垫，真的能够期待后面的情绪流可以做的足够好吗？
+
+*****
+
+####  看穿一切的鱼  
+##### 21090#       发表于 2025-2-12 13:29
+
+解散live五个人一起唱会不会更好，先贷款上合唱版春日影<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  山ノ内花音  
+##### 21091#       发表于 2025-2-12 13:30
+
+真的是解散live吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 21092#       发表于 2025-2-12 13:31
+
+<blockquote>yaneis 发表于 2025-2-12 13:17
+明天第7集，看了一下讨论环境，感叹之后就算真有神回也没法逆转风评了，有些观众出脑后都是奔着挑刺来的， ...</blockquote>
+说的有道理
+
+角色厨太下头了
+
+*****
+
+####  天空塔书记官  
+##### 21093#       发表于 2025-2-12 13:31
+
+除非能看到初华，搞不好第七集也是垫子
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  bbjajdd  
+##### 21094#       发表于 2025-2-12 13:33
+
+第七集不已经基本确定没有初华和喵梦戏份了吗
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 21095#       发表于 2025-2-12 13:35
+
+那你邦下一个团启蒙对象会是鸡狗哪个啊？肯定是狗吧，憧憬鸡团也太哈人了。
+
