@@ -3424,3 +3424,16 @@ https://www.bilibili.com/video/BV1JMN ...</blockquote>
 
 菊花的小艺网页版带R1，可以选手动或者自动启用
 
+
+*****
+
+####  ysys  
+##### 1788#       发表于 2025-2-12 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400311&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-2-12 09:56</a>
+[https://xiaoyi.huawei.com/chat/](https://xiaoyi.huawei.com/chat/)
+
+菊花的小艺网页版带R1，可以选手动或者自动启用</blockquote>
+
+小艺说自己不是deepseek啊
+
