@@ -1221,3 +1221,12 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 界轨这就是为了打而打，基本是目标相同路径不同的几拨人在打
 
+
+*****
+
+####  Aeons  
+##### 7640#       发表于 2025-2-12 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">falcom真正的理由难道不是在于近藤采访？
+说总统提前计划没有任何实际理由只是讨个彩头。
+
