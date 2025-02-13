@@ -12659,3 +12659,30 @@ Plazma
 
 那版的主角是头部改成现在gqx那样，然后红高达是8 bit，但实际剧中夏亚只用过6 bit，85的甚至从2 bit 到 0 bit了。
 
+
+*****
+
+####  刺客ares  
+##### 6892#       发表于 2025-2-13 15:58
+
+给兰巴配个改修版蓝色专用勇士出场当小boss吧
+
+鹤卷和米津都喜欢0080，访谈中多次提到，舞台也正好在side6，可以期待本篇有0080人物登场<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 6893#       发表于 2025-2-13 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411706&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-13 15:37</a>
+
+说起来起初泄漏的gqx机设，直接是标了名字为Rise heavy，这个名字会保留吗？但又感觉这名字没啥意义。
+
+那版 ...</blockquote>
+这个应该是废案了吧，小册子上有几个类似Rise heavy的废设
+
+现在机体编号就写的gms-Ω，和红高的gms-α对仗，一眼在搞初号机十三号机的活
+
+当然也不排除量产型高达沿用Rise heavy外观的情况，毕竟量产EVA也是一身白异形头
+

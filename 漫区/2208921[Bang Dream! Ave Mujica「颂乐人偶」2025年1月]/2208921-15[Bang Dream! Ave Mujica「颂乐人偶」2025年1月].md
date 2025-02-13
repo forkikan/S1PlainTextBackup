@@ -7960,3 +7960,73 @@ nga的祥厨已经进入了三角初华阶段
 木谷老登太想弯道超车了，总不能是编剧独走吧</blockquote>
 更坏的是我怀疑真给他超车了，万一日本人是真喜欢这套呢（
 
+
+*****
+
+####  yaneis  
+##### 21449#       发表于 2025-2-13 15:58
+
+<blockquote>cxj649 发表于 2025-2-13 15:56
+女频的确常见</blockquote>
+女频文那能看到初祥上床吗，能我就回旋了（
+
+*****
+
+####  看穿一切的鱼  
+##### 21450#       发表于 2025-2-13 16:01
+
+小祥想组母鸡卡我也不会怪她了，她就是想复活ccc我都不会怪她，编剧实在是太恨了，让小祥干出什么➗事都不意外。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安娜导函数  
+##### 21451#       发表于 2025-2-13 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411916&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-13 15:56</a>
+
+按照那个什么对偶说，对应灯的第一视角总该对应的是初华的吧，不会要看一整集祥子和初华小时候的故事吧 ...</blockquote>
+难说，描写半天初华小时候对祥子如何如何痴情，结果遇到困难向祥子伸手求救的时候，祥子压根没为初华考虑，然后初华隐忍等待复仇（剧情参照HHW夏洛特团活）
+
+
+*****
+
+####  凉良  
+##### 21452#       发表于 2025-2-13 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411922&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 15:56</a>
+
+更坏的是我怀疑真给他超车了，万一日本人是真喜欢这套呢（</blockquote>
+日本人要是真喜欢就不会流媒体数据路边一条了
+
+*****
+
+####  huxiaopao163  
+##### 21453#       发表于 2025-2-13 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411801&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-13 15:46</a>
+
+就现在这剧本，能写得出内鬼？
+
+无非就是大喵去找睦头/睦头妈想学演戏罢了 ...</blockquote>
+反正采访说是悬疑片，除了内鬼说，那再想一个别的悬疑剧情吧。总不会真有谋杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 21454#       发表于 2025-2-13 16:05
+
+<blockquote>Redimercia 发表于 2025-2-13 14:43
+不得不说看这动画的每一周都很开心，不管是场内还是场外
+
+一想到这动画还有6集一个半月就没了我就心如刀割 ...</blockquote>
+每一周都很开心+1，遗憾的是休假要结束了，估计鸡团的同接巅峰也就这周或者上周了
+
+*****
+
+####  是谁的书画  
+##### 21455#       发表于 2025-2-13 16:06
+
+日本人那边这片热度就近咋样啊，感觉有点信息茧房了
+

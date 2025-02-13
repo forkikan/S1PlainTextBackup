@@ -242,3 +242,13 @@ Stellar Blade PC version supports 22 languages and full lip sync with voice supp
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  名字已被吃  
+##### 1920#       发表于 2025-2-13 15:58
+
+看了官推，pcps两个平台会一起更新语音
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
