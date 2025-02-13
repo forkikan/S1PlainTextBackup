@@ -1511,3 +1511,15 @@ mujica的剧本就是铺垫太多了，以至于无论剧情怎样都感觉能�
 
 这黄瓜没有mygo的时候多啊
 
+
+*****
+
+####  帆前  
+##### 22328#       发表于 2025-2-14 04:36
+
+真的是最后的一次剧情假药了，海铃你，龇牙会不会是别有原因，拜托了有心机也好生气了也好，不一定是单纯的被感动了吧，了吧，了吧（
+<img src="https://p.sda1.dev/22/c3df07e82258dd1871ba471c7b8e43ca/Screenshot_20250213_224915_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+还有就是下集预告是不是有大喵见美奈美，小睦家庭戏还有没有空间挖…（大概没吧
+<img src="https://p.sda1.dev/22/9dec475762a42dd21e4b21c3e95f47db/Screenshot_20250213_225203_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+

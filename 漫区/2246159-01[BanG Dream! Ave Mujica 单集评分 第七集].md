@@ -3311,3 +3311,15 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 --1，这集看着像闪耀色彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，加一分给官方烤羊
 
+
+*****
+
+####  Laie  
+##### 328#       发表于 2025-2-14 04:35
+
+这集让我意识到自己对mygo的喜欢远比想象中的要多
+想起冰果里的一句「全ては主観性を失って、歴史的遠近法の彼方で古典となっていく 」
+至此她们也失却了所有我曾经以为认知到的角色性，在剧作的远近法彼方成为了人偶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
