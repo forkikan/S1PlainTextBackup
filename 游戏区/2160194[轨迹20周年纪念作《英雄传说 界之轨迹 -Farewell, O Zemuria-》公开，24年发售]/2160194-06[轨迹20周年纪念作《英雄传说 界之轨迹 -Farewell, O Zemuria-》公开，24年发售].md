@@ -2033,3 +2033,11 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 论坛助手,iPad ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那他爱的是谁 van吗
 
+
+*****
+
+####  Squall25  
+##### 7704#       发表于 2025-2-13 22:04
+
+我估计很多人不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前解包帖有提到过鲁尼打范恩时有句疑似可能跟他动机有关的台词【无论舍弃什么，为了艾蕾因】。所以别把鲁尼动机猜的很高深，估计就是狗血三角恋而已
+

@@ -9639,3 +9639,268 @@ soyo你无敌了
 
 是她妈电视剧的台词
 
+
+*****
+
+####  cxj649  
+##### 21622#       发表于 2025-2-13 22:06
+
+正常人立希有吐槽观众想吐槽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/13/220511ggjvuijg14ygjvif.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/220556ca9vrvuahlllrqjh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/220622f66k1tc65lkjcflf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:06 上传
+
+*****
+
+####  wqan1007  
+##### 21623#       发表于 2025-2-13 22:06
+
+有个少女乐队动画 主唱两集没有出场
+
+*****
+
+####  木板春香  
+##### 21624#       发表于 2025-2-13 22:06
+
+  太变态了！我只能说
+
+*****
+
+####  阿兹尔  
+##### 21625#       发表于 2025-2-13 22:07
+
+神必台词
+
+*****
+
+####  yaneis  
+##### 21626#       发表于 2025-2-13 22:07
+
+太变态了，这个bgm也是
+
+*****
+
+####  yeo  
+##### 21627#       发表于 2025-2-13 22:08
+
+有点难绷
+
+*****
+
+####  无音命题  
+##### 21628#       发表于 2025-2-13 22:09
+
+为啥啊，为啥啊，为啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 21629#       发表于 2025-2-13 22:09
+
+神秘动画
+
+*****
+
+####  新HGCG  
+##### 21630#       发表于 2025-2-13 22:09
+
+这啥回旋镖
+
+*****
+
+####  南宮凝香  
+##### 21631#       发表于 2025-2-13 22:09
+
+神經病動畫
+
+*****
+
+####  阿兹尔  
+##### 21632#       发表于 2025-2-13 22:10
+
+啊？为啥之前一副不熟的样子突然就开始演苦情戏了，铺垫呢
+
+*****
+
+####  595505568  
+##### 21633#       发表于 2025-2-13 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气笑了
+
+
+*****
+
+####  gammatau  
+##### 21634#       发表于 2025-2-13 22:11
+
+情报爱音无敌
+
+*****
+
+####  新HGCG  
+##### 21635#       发表于 2025-2-13 22:11
+
+黄瓜！！！
+
+*****
+
+####  有钱多买小人  
+##### 21636#       发表于 2025-2-13 22:12
+
+草，送黄瓜
+
+*****
+
+####  scorbian  
+##### 21637#       发表于 2025-2-13 22:12
+
+除了土不知道该怎么形容<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 21638#       发表于 2025-2-13 22:12
+
+还没看完，立希这是编辑的化身吗，<strong>你不要给mago添麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21639#       发表于 2025-2-13 22:12
+
+严父慈母组合还是强
+
+*****
+
+####  看穿一切的鱼  
+##### 21640#       发表于 2025-2-13 22:13
+
+和解了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  595505568  
+##### 21641#       发表于 2025-2-13 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fosanoha  
+##### 21642#       发表于 2025-2-13 22:13
+
+怎么说，和解了没啊漏油？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhigui  
+##### 21643#       发表于 2025-2-13 22:13
+
+太变态了，我已经不想看了
+
+太变态了
+
+*****
+
+####  yaneis  
+##### 21644#       发表于 2025-2-13 22:14
+
+没绷住，好土
+
+*****
+
+####  zhigui  
+##### 21645#       发表于 2025-2-13 22:14
+
+啊？
+
+啊？
+
+啊？
+
+啊？
+
+啊？
+
+*****
+
+####  DeltaStriker  
+##### 21646#       发表于 2025-2-13 22:15
+
+人在无语的时候是会无语的.jpg
+我居然觉得看起来还好吧 am全片这高高拿起轻轻放下的炒作风格是真的绷不住就是<img src="https://p.sda1.dev/22/724597ecafa38a8a6d9469da5bd3ba58/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  yaneis  
+##### 21647#       发表于 2025-2-13 22:15
+
+1.5倍数推进，看这样子真没有木箱回忆了，快到live了
+
+*****
+
+####  反方向的波  
+##### 21648#       发表于 2025-2-13 22:15
+
+狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！
+
+*****
+
+####  595505568  
+##### 21649#       发表于 2025-2-13 22:15
+
+还有soyo这个放下的速度就是拿来垫的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，独角兽你也太那啥了
+
+*****
+
+####  看穿一切的鱼  
+##### 21650#       发表于 2025-2-13 22:15
+
+没有go3回神，不过睦祥还是卖挺大，吃饱了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  未来起航  
+##### 21651#       发表于 2025-2-13 22:16
+
+开场一分钟就把大祥的饺子包完了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">什么早泄脚本
+
+*****
+
+####  阿兹尔  
+##### 21652#       发表于 2025-2-13 22:16
+
+神必半身关系，到底是啥啊值得玩7集睦祥传
+
