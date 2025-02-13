@@ -1429,3 +1429,28 @@ crychic并非是能解一切纠纷的灵药，它作为所谓白月光的退场�
 
 mujica的剧本就是铺垫太多了，以至于无论剧情怎样都感觉能圆回来。当每次看到编剧就在第一层，把铺垫草草用掉就很心疼。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _47  
+##### 22322#       发表于 2025-2-14 03:44
+
+ 本帖最后由 _47 于 2025-2-14 03:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418722&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-14 02:34</a>
+
+呃，我得补充一下
+
+当时京吹3那集出来我是有去5ch看的
+
+他们那里是对半开的好坏参半，真没有所谓的环大陆好评 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/14/034638mgatk016hat11tkk.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250214-034617.png</strong> (108.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 03:46 上传
+
+这集5ch到现在不说一边倒吧，大多数好评是没什么问题的
+
