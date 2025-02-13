@@ -209,3 +209,22 @@ PV1：
 
 敌人像黄油般<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RockingHorse  
+##### 116#       发表于 2025-2-13 11:00
+
+ 本帖最后由 RockingHorse 于 2025-2-13 11:02 编辑 
+
+别接网飞的宫本鬼武者吧，那个剧情也太蠢了
+
+看了下预告，长得还有点像……完蛋
+
+*****
+
+####  shimotsuki14  
+##### 117#       发表于 2025-2-13 11:04
+
+三船？你跟我说这是三船？
+
