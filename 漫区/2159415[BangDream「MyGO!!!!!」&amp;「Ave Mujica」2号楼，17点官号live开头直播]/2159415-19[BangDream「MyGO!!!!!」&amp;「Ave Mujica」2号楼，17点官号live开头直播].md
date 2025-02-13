@@ -3872,3 +3872,11 @@ HALO<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referr
 ※ 购买Synthesizer V 2 AI 夢ノ結唱 PASTEL・HALO的用户，将提供适用于Synthesizer V AI的PASTEL・HALO兼容版。</blockquote>
 还好是向上兼容，没逼着升级SV2
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 26929#       发表于 2025-2-13 17:27
+
+只刷过之前 popy 和 rose 的各种视频，从来没用过 sv，想请教下并不需求周边，单纯就是想买 pastel 自己乱玩到时候应该咋买呀
+

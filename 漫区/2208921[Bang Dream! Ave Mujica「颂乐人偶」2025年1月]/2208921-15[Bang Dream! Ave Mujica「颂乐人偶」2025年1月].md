@@ -8491,3 +8491,84 @@ soyo真把大祥按地上还把手给按住了啊<img src="https://static.saraba
 
 哈哈大笑
 
+
+*****
+
+####  南宮凝香  
+##### 21500#       发表于 2025-2-13 17:27
+
+愛音就是在親友團中的外人
+
+這種東西， 山口山內體現得多了
+
+*****
+
+####  swessia  
+##### 21501#       发表于 2025-2-13 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">该畅想第七集播完后的清算名单了
+
+爱音封圣
+
+素世大女主
+
+立希深陷漩涡美美脱身
+
+乐奈隐身
+
+其他人感觉都逃不掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GBLMikuHatsune  
+##### 21502#       发表于 2025-2-13 17:31
+
+已经看到了隔壁各种厨的破防言论，大家唯一一致认为的就是ccc姨姥会看的很爽
+
+但是我很好奇，真的有ccc姨姥这种东西存在么，你说sumimi姨姥我还信有人推，真有观众推c团这玩意么<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔耳僵尸  
+##### 21503#       发表于 2025-2-13 17:31
+
+还清算角色呢，这剧透要是真的，比过去十年的烂番都恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 21504#       发表于 2025-2-13 17:33
+
+要是真有人提出重組C團
+
+這番就變笑片了
+
+提出的變🤡皇
+
+*****
+
+####  aisakahammer  
+##### 21505#       发表于 2025-2-13 17:34
+
+ccc正因为存在时间短才有意思啊，就像人不可追的青春，滤镜是无限大的
+
+*****
+
+####  看穿一切的鱼  
+##### 21506#       发表于 2025-2-13 17:35
+
+重组ccc和双子要都是真的，我马上去给迷家打10.0，和解了，什么叫真正的悬疑啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GBLMikuHatsune  
+##### 21507#       发表于 2025-2-13 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413000&amp;ptid=2208921" target="_blank">aisakahammer 发表于 2025-2-13 17:34</a>
+
+ccc正因为存在时间短才有意思啊，就像人不可追的青春，滤镜是无限大的</blockquote>
+你站在剧内的角色视点可能是这样，但是在观众眼中现在ccc是青春多一点还是搞笑多一点我不好说啊<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
