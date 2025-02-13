@@ -12535,3 +12535,25 @@ Plazma
 
 又要在圣诞节死一个了吗
 
+
+*****
+
+####  Gysumitka  
+##### 6881#       发表于 2025-2-13 13:50
+
+玛丘学校的jk不还有评价索顿有点可爱，0080那群小男孩看见炮弹爆炸的烟火也在喊帅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 6882#       发表于 2025-2-13 13:55
+
+<blockquote>Toby_dak 发表于 2025-2-13 12:53
+话说杉田这次配马克贝，有没机会开上高达
+
+毕竟0085高达正统在自护尼克
+
+</blockquote>
+强达差不多
+
