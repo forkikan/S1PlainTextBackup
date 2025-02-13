@@ -2267,3 +2267,11 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个脑洞如何！
 
+
+*****
+
+####  Aeons  
+##### 7725#       发表于 2025-2-14 01:00
+
+六柱故事和汉密尔顿对话就是讲了，上下辈子人还是那个人，经历会变而已。
+

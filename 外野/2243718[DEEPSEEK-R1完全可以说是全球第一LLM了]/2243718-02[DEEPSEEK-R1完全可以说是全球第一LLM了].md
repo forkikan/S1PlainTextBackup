@@ -3872,3 +3872,18 @@ DS占了四个，官网+硅基+火山+欧派（不是）云
 
 反正我用下来感觉差不多，D老师该气人还是气人<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 1822#       发表于 2025-2-14 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418078&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-14 00:45</a>
+
+cherryystudio里的添加的模型越来越多了……
+
+DS占了四个，官网+硅基+火山+欧派（不是）云
+
+剩下个gemini</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直球辱骂d老师打断他的赛博疯话也是风味玩法的一部分了
+

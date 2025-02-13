@@ -15735,3 +15735,25 @@ mygo也有这种，为啥没人说，一是他后面有唱的好的抵消，二�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cxj649  
+##### 22199#       发表于 2025-2-14 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418152&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-14 00:53</a>
+
+来点匿名版搬运，不是说mujica在日本那边热度还行吗</blockquote>
+[https://itest.5ch.net/pug/test/read.cgi/anime/1739463424](https://itest.5ch.net/pug/test/read.cgi/anime/1739463424)
+
+自己去看，不过看一眼好像黑泥不多<img src="https://static.saraba1st.com/image/smiley/carton2017/477.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 22200#       发表于 2025-2-14 00:58
+
+现在的mujica让我想起了flowers冬篇，马小姐莫名其妙的出场，莫名其妙的离开，以及搞笑至极的核心谜题。
+
+不对，真不比上啊，人家flowers里是真的做了，这边怎么着都是友情。
+
