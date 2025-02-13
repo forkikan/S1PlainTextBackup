@@ -12265,3 +12265,13 @@ Plazma
 
 艾克萨贝x麻球都有了，乙女爱好者吃太好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6856#       发表于 2025-2-13 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408173&amp;ptid=2209276" target="_blank">evestart 发表于 2025-2-13 09:58</a>
+ 说实话，新作女主的叛逆度和行动力都挺强的，作为故事的推动者是合格的，但这种没事找事的惹事精，可能会让 ...</blockquote>
+那卡缪不是更……
+
