@@ -9344,3 +9344,14 @@ You Belong With Me 很配合平常哭笑都要愛音哄， 祥子只負責上壓
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒计时了
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 21583#       发表于 2025-2-13 21:24
+
+从来没有这么期待过一集新番的播出，天时地利人和拉满
+看完睡觉，第二天起来又能看一个上午甚至一天，爽死了
+哦，这就是武士道送我的情人节礼物啊
+武士道！武士道立功了！他不是一个人在炒作！牛国安贴吧爱斯一今天灵魂附体！丰川祥子明天生日快乐！！！<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

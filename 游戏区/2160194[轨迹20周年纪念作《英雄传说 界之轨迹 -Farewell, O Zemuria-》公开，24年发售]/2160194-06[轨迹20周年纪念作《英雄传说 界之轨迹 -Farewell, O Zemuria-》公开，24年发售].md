@@ -1940,3 +1940,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 黎2已经证明了回溯玩多了就是把玩家当傻逼，界2再蠢也不会重蹈覆辙的。但看界2最后的演出也不知道世界到底发生了什么，汉密尔顿在世界各地搞的那些楔子有什么用。我估计下一部前半部分注水就是围绕着这些满世界的楔子通马桶，收队友，打boss，收集女主碎片。
 
+
+*****
+
+####  alucardcz  
+##### 7695#       发表于 2025-2-13 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414704&amp;ptid=2160194" target="_blank">玩吗？ 发表于 2025-2-13 21:10</a>
+
+说起来3年前黑黎要剧透时条子信誓旦旦说没有那个必要，真出事了连个人影都没，越发🤡了
+
+—— 来自 鹅球 v3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别尬黑 万一界2最终战又全员集合了怎么办
+
