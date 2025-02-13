@@ -12326,3 +12326,18 @@ Plazma
 
 麻球那个frs规格好高，万代居然舍得给这么多配件，心动了（）
 
+
+*****
+
+####  刺客ares  
+##### 6861#       发表于 2025-2-13 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408861&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-13 11:10</a>
+
+目前最能闹腾的其实还是修司和红高吧，他们在潜逃中干出在殖民卫星外壁涂鸦、还公开上电视打黑拳，这直接就 ...</blockquote>
+喵安在下水道藏身处看到红高的第一眼就应该马上拿手机偷偷报警
+
+卡姆兰直接就派人把牢修和红高拿下了，这可是和吉翁公国谈条件的重要筹码
+
+喵安立下大功怕不是直接获得side6公民权，还能拿吉翁方的大额赏金，这不比干走私爽多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

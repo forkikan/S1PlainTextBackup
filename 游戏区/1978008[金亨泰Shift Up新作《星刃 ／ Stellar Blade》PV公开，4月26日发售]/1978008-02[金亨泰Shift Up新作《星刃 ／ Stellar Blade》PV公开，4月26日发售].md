@@ -98,3 +98,13 @@
 有的
 Stellar Blade PC version supports 22 languages and full lip sync with voice support for 10 languages, including Japanese and Chinese!⚠️ #StellarBlade #PC #JapaneseVoice #ChineseVoice
 
+
+*****
+
+####  rainsheep  
+##### 1907#       发表于 2025-2-13 11:23
+
+ps版追加中配吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
