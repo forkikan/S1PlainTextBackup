@@ -8572,3 +8572,38 @@ ccc正因为存在时间短才有意思啊，就像人不可追的青春，滤�
 ccc正因为存在时间短才有意思啊，就像人不可追的青春，滤镜是无限大的</blockquote>
 你站在剧内的角色视点可能是这样，但是在观众眼中现在ccc是青春多一点还是搞笑多一点我不好说啊<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天邪鬼  
+##### 21508#       发表于 2025-2-13 17:42
+
+最大的ccc姨姥就是独角兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别的都不是自己的东西，只有crychic是自己的
+所以为什么祥睦写这么多，而祥子一直被抽陀螺，睦明明坏事做尽却一副受害者模样？因为睦是独角兽的oc，这波啊，这波是借鸡生蛋
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gaayas  
+##### 21509#       发表于 2025-2-13 17:42
+
+提前准备+2<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  swessia  
+##### 21510#       发表于 2025-2-13 17:43
+
+今晚对我来说最雷的估计就是莫小姐无声无息下线了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真就纯纯工具人
+
+*****
+
+####  aisakahammer  
+##### 21511#       发表于 2025-2-13 17:43
+
+搞笑的青春校园乐队，我就很喜欢啊
+
