@@ -9355,3 +9355,13 @@ You Belong With Me 很配合平常哭笑都要愛音哄， 祥子只負責上壓
 哦，这就是武士道送我的情人节礼物啊
 武士道！武士道立功了！他不是一个人在炒作！牛国安贴吧爱斯一今天灵魂附体！丰川祥子明天生日快乐！！！<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llovezhoujielun  
+##### 21584#       发表于 2025-2-13 21:27
+
+祥子是c团爸爸，素食是c团妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

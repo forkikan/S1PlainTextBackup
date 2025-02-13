@@ -1953,3 +1953,24 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 —— 来自 鹅球 v3 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别尬黑 万一界2最终战又全员集合了怎么办
 
+
+*****
+
+####  風卷豹  
+##### 7696#       发表于 2025-2-13 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414050&amp;ptid=2160194" target="_blank">zhouaa 发表于 2025-2-13 19:36</a>
+一腔热血孤注一掷这才是凡人赞歌啊    有人觉得失败是小丑我觉得是勇气   
+
+何况几率挺高的  不是日本人最 ...</blockquote>
+就是因为用了这套路所以账面几率越高越容易失败啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果上来就“我们原本只有0.0001%成功率现在经过努力终于变成了1%”那才是妥了
+
+*****
+
+####  吴怀在  
+##### 7697#       发表于 2025-2-13 21:29
+
+回溯到卡西乌斯·布莱特收养约修亚那个时刻。
+
+欲知后事如何，请玩空之轨迹1st
+

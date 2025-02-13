@@ -1665,3 +1665,16 @@ https://wiki.c2.com/?TheKenThompsonHack
 zig编译太好使了以至于目前最常见的时候都是 ...</blockquote>
 选择工具比较保守就没用过，写前端还是 vite react 默认的那套脚手架。我感觉是最近两三年的东西吧，年轻的应用有各种问题很正常，就像当初 swc 和 esbuild 运行效率导致的那些争论，前期没优化完全并不足以说明什么。
 
+
+*****
+
+####  万恶淫猥手  
+##### 126#       发表于 2025-2-13 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414230&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-13 19:58</a>
+
+请问对于zig编写的bun存在各种奇特内存泄漏的问题怎么看？
+
+zig编译太好使了以至于目前最常见的时候都是 ...</blockquote>
+zig 本身就是显示管理的，写着写着就忘属于老问题了…
+
