@@ -12990,3 +12990,18 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 喷射气流是不是进阶版的MAV？
 或者说MAV是喷射气流的优化版？
 
+
+*****
+
+####  刺客ares  
+##### 6922#       发表于 2025-2-13 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417087&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-13 23:25</a>
+
+喷射气流是不是进阶版的MAV？
+
+或者说MAV是喷射气流的优化版？</blockquote>
+无阵型路人兵&lt;MAV路人兵&lt;喷射气流&lt;MAV双NT
+
+正篇会把黑色三连星拉出来打一顿吧，顺便卖山下版经典配色大魔
+

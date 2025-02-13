@@ -14351,3 +14351,216 @@ CCC 重聚拍成這樣
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ads147147  
+##### 22057#       发表于 2025-2-13 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416979&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-13 23:18</a>
+“你回她一下”
+
+“你自己回呗”</blockquote>
+？爱素不一直都是这样的互动。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 22058#       发表于 2025-2-13 23:34
+
+ 本帖最后由 ntrntr1 于 2025-2-13 23:35 编辑 
+
+爱音怎么说呢。。。
+
+估计转学或者突然加入某个小组过的人会有这种经验，其他人已经很熟了，导致新人要非常努力才能融入
+
+圣爱音身为这堆多愁善感的女高中生里面最阳光开朗积极向上的一个，努力帮忙解决这帮人解决问题的，结果立希找地址找她找人不带她，努力发消息没太多人认真回复。。。说实话看着蛮尴尬的
+
+不能一直都这样就觉得这样正常啊（）
+
+*****
+
+####  cxj649  
+##### 22059#       发表于 2025-2-13 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417201&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-13 23:32</a>
+
+睦和mortis的问题还没结束吧，按照下集预告里的镜头来看。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小猫都意味深长看了一眼，而且OP有剧透
+
+估计时不时冒泡吧
+
+*****
+
+####  南宮凝香  
+##### 22060#       发表于 2025-2-13 23:35
+
+<blockquote>aptx8285144 发表于 2025-2-13 23:26
+后者先不论，前者不会是立希叫她过来的吧，这go团喂饭唯得太过周到了</blockquote>
+立希上一集才跟海子姐吵架，
+
+這集叫她來看彩排
+
+還不如說是MyGo 6號隊員來跟第7第8 號見面，
+
+大團建
+
+*****
+
+####  gaayas  
+##### 22061#       发表于 2025-2-13 23:36
+
+ccc上tft了，wsd真会玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  守望者404  
+##### 22062#       发表于 2025-2-13 23:37
+
+海玲是在咬牙生气他们怎么这么有团魂吗？还是被灯姐唱的感动了
+
+*****
+
+####  天空塔书记官  
+##### 22063#       发表于 2025-2-13 23:37
+
+还在藏，还在藏，还在藏 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 22064#       发表于 2025-2-13 23:38
+
+说是横扫全场，不过猫猫虽然是被命令的工具人，起码还没被大祥直接蛊惑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 22065#       发表于 2025-2-13 23:38
+
+好无聊啊这集，感觉又平庸又刻意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  borrowface  
+##### 22066#       发表于 2025-2-13 23:38
+
+这图搁这排列组合跟nm九十年代以来的南斯拉夫一样，一会一个联合共和国
+
+<img src="https://p.sda1.dev/22/378f66e71d5a2a161d12a4cfc8335739/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/0c719b244325997728f9b92d7cb4866f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  operatbig  
+##### 22067#       发表于 2025-2-13 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417201&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-13 23:32</a>
+
+睦和mortis的问题还没结束吧，按照下集预告里的镜头来看。</blockquote>
+车站广告里的mortis凶狠发光眼还没出现吧。
+
+*****
+
+####  MuramasaSP  
+##### 22068#       发表于 2025-2-13 23:39
+
+向前看。
+
+把mujica看成只有6话的动画。
+
+*****
+
+####  tuatha  
+##### 22069#       发表于 2025-2-13 23:39
+
+还是多刷几遍母鸡卡都死光光吧
+
+*****
+
+####  是谁的书画  
+##### 22070#       发表于 2025-2-13 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417272&amp;ptid=2208921" target="_blank">守望者404 发表于 2025-2-13 23:37</a>
+
+海玲是在咬牙生气他们怎么这么有团魂吗？还是被灯姐唱的感动了</blockquote>
+整怎么烂还一脸感动，是我看了也得说句”你们这都整了些啥，嫩开心啊？“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 22071#       发表于 2025-2-13 23:40
+
+莫提斯在需要的时候还会再上线背锅的
+
+*****
+
+####  墓地里的鱼  
+##### 22072#       发表于 2025-2-13 23:40
+
+小莫别似好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">发那几条信息真可爱吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  南宮凝香  
+##### 22073#       发表于 2025-2-13 23:40
+
+3C 上3次元演唱的最大意味是Sumimi 在動畫中的最大護身符沒有了
+
+純田真奈小姐自求多福吧
+
+*****
+
+####  阿兹尔  
+##### 22074#       发表于 2025-2-13 23:41
+
+海铃咬牙:立希当初来邀请我来顶班的乐队的主唱怎么这么菜
+
+*****
+
+####  影伴光生  
+##### 22075#       发表于 2025-2-13 23:41
+
+莫女士好歹下集预告给了画面，要不然这退场就跟吃了口黄瓜噎死了一样路边了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qiyu1234  
+##### 22076#       发表于 2025-2-13 23:43
+
+如果op全员颠婆是mujica完全体的话，那么接下来的故事还是有些看点的，至少现阶段即使祥想重组乐队也没有非得按照mujica的方向继续（话说这个团的创作灵感也确实得交代一下，这么一看祥身上能挖的还没挖的地方也太多了，也难怪进度开始赶火车）让队友继续跟着一起中二的理由
+
+*****
+
+####  fsfs_freeze  
+##### 22077#       发表于 2025-2-13 23:43
+
+最后的海玲呛人，虽然看似给下集留了个大悬念，但就前几集的结尾与开头来看，应该还是重拿轻放，闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 22078#       发表于 2025-2-13 23:44
+
+开头祥子说“好想成为人类，原来是这么回事”
+
+我觉得应该是指“好想成为人类”这句话最早是小睦说的，祥子最早不懂其中的意思，只是借用来了。
+
+现在才开始逐渐理解其中的含义
+
+也许想成为人类之歌，后面还有完全版也说不定？
+

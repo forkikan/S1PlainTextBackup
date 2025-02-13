@@ -2373,3 +2373,136 @@ live的各种演出基本上都算是为叙事节奏陪葬而非病因。
 
 然后剩下仨人对着快乐的脚踏两条船的祥子爆爆爆这不就行了吗，符合本片的底层逻辑
 
+
+*****
+
+####  icoywt  
+##### 227#       发表于 2025-2-13 23:34
+
+借彩排10分钟来2首没排练过的歌曲告别过去而已，这种尴尬的唱腔我个人觉得很棒，感觉现在有些人好敏感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiiTiiLL  
+##### 228#       发表于 2025-2-13 23:34
+
+<img src="https://img.saraba1st.com/forum/202502/13/233428hnbkshmrzjfni4zz.png" referrerpolicy="no-referrer">
+
+<strong>6585b6828cce116881c931723f7ed463.png</strong> (40.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:34 上传
+
+*****
+
+####  maritimus  
+##### 229#       发表于 2025-2-13 23:34
+
++1
+
+其实觉得还好，符合预期吧。而且这本来就是彩排啊，台下没观众自己唱着玩，不理解为什么要拿音乐扣分。至于说c团复活，春日影在专辑里现在一直标MyGO!!!!! version，明摆着会有别的版本。这个处理我觉得还行，和前团友唱两首而已，怎么搞的和NTR一样。
+
+不太能接受的是还是为啥睦就这么死心塌地，不过看起来也不会说了，一句青梅竹马完事。另外这个饺子太普通了，一点都不像有爆爆爆的样子，有点无聊
+
+*****
+
+####  season1237  
+##### 230#       发表于 2025-2-13 23:34
+
+<blockquote>Sabbah 发表于 2025-2-13 23:30
+-1，crychic这种重中之重的剧情以这种剧情流结束不能接受。
+
+如果结果是可以预测的，那更重要的显然是过程 ...</blockquote>
+这tm是个多媒体企划少女乐队番，剧情都能崩坏牺牲，但是乐队live绝不能坠毁，唱成这样谁tm的想去线下live。
+
+*****
+
+####  homesickness  
+##### 231#       发表于 2025-2-13 23:35
+
++2
+
+饺子只包了2/5，这么包饺子更实锤了其他3位眼里的大小姐过家家印象，我看还能火上浇油<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苓宁  
+##### 232#       发表于 2025-2-13 23:36
+
+-2
+看来邦邦系列能搞出剧情通顺不都和主义的一季反而是偶然事件，本质还是手游ip卖卡宣传片，是大家的预期太高了，本来就这味的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  scorbian  
+##### 233#       发表于 2025-2-13 23:37
+
+前几集我+2是因为有乐子，这集纯在演小时代-2不能更多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nealyun  
+##### 234#       发表于 2025-2-13 23:37
+
+歪个楼
+
+此时的邦p：
+
+<img src="https://img.saraba1st.com/forum/202502/13/233732a58wsw3wjwpwwk5s.png" referrerpolicy="no-referrer">
+
+<strong>5UZ2MEYWA%OY5FF56LWDQJJ.png</strong> (10.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:37 上传
+
+*****
+
+####  YF31  
+##### 235#       发表于 2025-2-13 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨害嗨，沾屎饺子喜欢吗？本来想打-2的，但终于大多数人开始蚌埠住编剧喂的沾屎饺子了，所以-1吧。
+
+
+*****
+
+####  Sabbah  
+##### 236#       发表于 2025-2-13 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417233&amp;ptid=2246159" target="_blank">season1237 发表于 2025-2-13 23:34</a>
+
+这tm是个多媒体企划少女乐队番，剧情都能崩坏牺牲，但是乐队live绝不能坠毁，唱成这样谁tm的想去线下live ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">如果剧情上的表现是这样的话的确不如放原版，不过也就是让不满的观众换个鼻孔出气的法子而已。
+
+正常情况下观众并不会把这段与剧情相应的表演与线下live挂钩。
+
+*****
+
+####  Prairial  
+##### 237#       发表于 2025-2-13 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C团故事终于结束了，本来应该+2的，-1给没把爱音T了挺可惜的
+
+可能不刷论坛，一口气看到这会觉得还不错吧，反正我看的时候感觉反正都出戏，不如唱影色舞得了
+
+*****
+
+####  weems  
+##### 238#       发表于 2025-2-13 23:42
+
+本集0，到了CRYCHIC告别演出，有点迷之感动。
+
+春日影游戏内实装，好评+1
+
+*****
+
+####  zhzij111  
+##### 239#       发表于 2025-2-13 23:43
+
+哪来的杂鱼偶像番，切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

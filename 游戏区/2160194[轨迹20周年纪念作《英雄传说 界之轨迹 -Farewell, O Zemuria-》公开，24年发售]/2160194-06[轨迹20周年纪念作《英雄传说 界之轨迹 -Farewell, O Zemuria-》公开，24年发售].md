@@ -2209,3 +2209,11 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 黎轨2的时候我就想后面来七彩魔装鬼了，现在来个白色的，4spg全员魔装鬼化吧
 
+
+*****
+
+####  alucardcz  
+##### 7720#       发表于 2025-2-13 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还是日站脑洞大 说眼镜上个轮回是女的 现在恢复了上个轮回的记忆 因为女的时候也叫她ルネ 所以现在叫van别喊他名字 （一定是白色相簿玩多了
+
