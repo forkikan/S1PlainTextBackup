@@ -2062,3 +2062,11 @@ Iron pineapple对网测批评蛮狠，"把关卡设计、精心布置的敌人�
 
 Fami通编辑貌似是评测员里技术不太够或者运气不太好的，拼尽全力几次都无法来到尾王面前，有强烈预感组野生队可能就会是这体验<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diodio233  
+##### 225#       发表于 2025-2-13 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中午看到同事在联机老头环，只能说确实是有一部分人打什么游戏都想着有队友帮忙的
+
