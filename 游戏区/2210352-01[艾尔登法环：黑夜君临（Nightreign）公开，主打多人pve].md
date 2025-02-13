@@ -1997,3 +1997,11 @@ goty没让我破防，这玩意给我干破防了
 
 巧了 鸦卫奇旅跟老头换都是我喜欢的游戏 买买买
 
+
+*****
+
+####  ParukiaMKII  
+##### 219#       发表于 2025-2-13 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃鸡的搜刮+PVE感觉会不错，就是不知道耐玩度如何了
+

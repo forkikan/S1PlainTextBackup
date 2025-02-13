@@ -125,3 +125,13 @@ PV1：
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  东方定助  
+##### 106#       发表于 2025-2-13 09:53
+
+怎么长得有点像我是大哥大里那个主角<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">性格应该是走混混路线了，各种脏招都可以用，赢了就行。
+
+断肢和剑戟部分感觉被忍2黑吊打
+
