@@ -1663,3 +1663,42 @@ MyGO成员在上一话就彻底解除了对Crychic的心结，因此这场Live�
 
 至于后面的剧情，我只能说，如果它能够遵循MyGO的正确做法，它就会成功，如果它违背，就会失败，就这么简单。
 
+
+*****
+
+####  firestorm5  
+##### 22339#       发表于 2025-2-14 07:24
+
+我的理解是这番的世界观本质上和万能打牌/四驱车/陀螺是同一类的，可以用音乐解决任何问题
+
+之前只是因为对祥子限定的现实要素，让很多人产生了会用现实的逻辑包饺子的错觉罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晓色暮云  
+##### 22340#       发表于 2025-2-14 07:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是喜欢话疗解决问题的，手希祥平静聊聊天给我感觉很好，不需要诗超绊那种和解，不过ccc的live和死亡真的很不体面后半段全垮，以及我觉得木箱的问题可能还没有完全解决
+
+*****
+
+####  怀沙汨罗  
+##### 22341#       发表于 2025-2-14 07:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这么在意老外评价，那mygo的好评也可以说是大陆限定了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  江口夕  
+##### 22342#       发表于 2025-2-14 07:30
+
+ 本帖最后由 江口夕 于 2025-2-14 07:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说神经病了，没人说这集把大祥包好了，大祥还没开始包呢。
+这集包的是上一季大祥扭曲的建队动机和睦的内疚之源。并不是大祥这个人，大祥这条线远谈不上解决。
+大祥只有拯救她爹一条路可以包。大祥现在有c团的和解和睦的支持只能说如果会写的话下面就是爽文了。问题是独角兽会不会写
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

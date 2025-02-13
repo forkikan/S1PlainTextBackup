@@ -13033,3 +13033,13 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 全曲？</blockquote>
 院线版，不知道全曲死活不放是啥意思
 
+
+*****
+
+####  57042711  
+##### 6926#       发表于 2025-2-14 07:30
+
+想了想吉翁联邦都用吉姆头的MS打成一团也太搞笑了吧<img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
