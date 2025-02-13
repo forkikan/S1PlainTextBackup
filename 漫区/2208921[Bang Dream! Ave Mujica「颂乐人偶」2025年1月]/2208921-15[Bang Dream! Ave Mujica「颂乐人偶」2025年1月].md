@@ -8755,3 +8755,50 @@ C团肯定要好好入土的，只是嘛，有点晚，第七集真的有点晚�
 
 所以神人剧组是怎么写出 mygo 的？
 
+
+*****
+
+####  影伴光生  
+##### 21526#       发表于 2025-2-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413375&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-13 18:13</a>
+所以神人剧组是怎么写出 mygo 的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道士炼丹偶然把火药探索出来，也不妨碍他们用各种重金属猛猛灌皇亲国戚啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 21527#       发表于 2025-2-13 18:17
+
+<blockquote>whzfjd 发表于 2025-2-13 18:13
+所以神人剧组是怎么写出 mygo 的？</blockquote>
+壞了的鐘一天也能對兩次吧
+
+*****
+
+####  天空塔书记官  
+##### 21528#       发表于 2025-2-13 18:18
+
+ 本帖最后由 天空塔书记官 于 2025-2-13 18:19 编辑 
+
+恰恰相反，我觉得CCC大概会被垫给迷子和A团，迷子会有新的诗超绊，而A团也会获得重建的理由，就像第二季RAS垫给PPP一样，只不过这次换成了一支注定会解散(?）的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  无事忙  
+##### 21529#       发表于 2025-2-13 18:19
+
+为什么楼里的剧透我都没看见而且大家都看见了还在哀叹
+
+
+*****
+
+####  木板春香  
+##### 21530#       发表于 2025-2-13 18:21
+
+你不看NGA 贴吧吧
+

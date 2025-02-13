@@ -594,3 +594,16 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 我觉得还可以啊，大家现在要求都那么高了吗？</blockquote>
     要是其他厂发的那应该还行，但这是卡婊。
 
+
+*****
+
+####  大喇叭花田  
+##### 153#       发表于 2025-2-13 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413394&amp;ptid=2210366" target="_blank">bgmilk 发表于 2025-2-13 18:16</a>
+
+要是其他厂发的那应该还行，但这是卡婊。</blockquote>
+正因为是卡表，我反而不担心，啥都可能差，但是动作性和手感上肯定不会有问题。
+
+倒是2代高清版这个画面让我略感失望，2可是最好玩的一代啊，就这么啥都不改端上来也太抠门了。
+

@@ -1491,3 +1491,35 @@ ai都说创世出问题了，说没有任何影响显然是不合理的。
 卢尼最后打斗的一些台词，x教头子一样，如果不是给他装b用的，那他才是ad头子好吧。
 博士和ad的理念关系反而没那么深。
 
+
+*****
+
+####  alucardcz  
+##### 7664#       发表于 2025-2-13 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413380&amp;ptid=2160194" target="_blank">Aeons 发表于 2025-2-13 18:13</a>
+
+卢尼最后打斗的一些台词，x教头子一样，如果不是给他装b用的，那他才是ad头子好吧。
+
+博士和ad的理念关系反 ...</blockquote>
+主要现在这世界观太混乱了 都可以乱搞  什么其他世界线的记忆  xx上身/夺舍 未来人 古代人 甚至不是人是守护圣兽都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 7665#       发表于 2025-2-13 18:21
+
+ 本帖最后由 Aeons 于 2025-2-13 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413371&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 18:12</a>
+
+但是开盘前不就有10%无法分析的因素吗
+
+而且大总统应该知道至宝是有守护兽的  现在影子都没有 肯定有问题啊  ...</blockquote>
+原文还挺清楚的。
+
+【マルドゥック社、危機管理ＡＩにエラー発生、“拡張観測器”に異常を確認しました】
+
+AI直接报错了，说扩张观测器异常，请立即移除。
+
+这和事前的没算准没算到意外我觉得应该差别还挺大的，因为是复活后AI自己检查发现有东西对自身造成了异常，考虑到时间节点问题，我认为在于AI由于扩张观测器判断不出存活与否了。
+

@@ -3880,3 +3880,19 @@ HALO<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referr
 
 只刷过之前 popy 和 rose 的各种视频，从来没用过 sv，想请教下并不需求周边，单纯就是想买 pastel 自己乱玩到时候应该咋买呀
 
+
+*****
+
+####  CyDiablo  
+##### 26930#       发表于 2025-2-13 18:13
+
+ 本帖最后由 CyDiablo 于 2025-2-13 18:14 编辑 
+
+楼友要不去叔叔那儿找个做过翻唱的up问问<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+十周年轨迹展倒计时：ppp
+<img src="https://p.sda1.dev/22/2d8b39186de599c8a1144170901214cd/IMG_20250213_181037.jpg" referrerpolicy="no-referrer">
+
+以及倒计时汇总图
+<img src="https://p.sda1.dev/22/547327a17af84034e15fb124e7ae427a/Image_149454116622445.jpg" referrerpolicy="no-referrer">
+

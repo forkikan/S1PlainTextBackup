@@ -12825,3 +12825,31 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 2025-2-13 17:51 上传
 
+
+*****
+
+####  岸浪白野  
+##### 6906#       发表于 2025-2-13 18:16
+
+ 本帖最后由 岸浪白野 于 2025-2-13 18:19 编辑 
+
+印尼人要3月12号才能看也是够迟的
+
+<img src="https://img.saraba1st.com/forum/202502/13/181551q4f3w4rh3wtpm3a4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.83 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 18:15 上传
+
+泰国要27号-3月5号 imax 上7天 3月6号才电影院正常规格
+
+<img src="https://img.saraba1st.com/forum/202502/13/181837vlytx6qm4l594vv9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 18:18 上传
+
