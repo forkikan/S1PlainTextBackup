@@ -7134,3 +7134,91 @@ ansy真是一对圣人啊再也不黑了
 
 🦄用七集人格謀殺了🐘
 
+
+*****
+
+####  安娜导函数  
+##### 21365#       发表于 2025-2-13 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410213&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-13 13:07</a>
+就紫吧黄大叔啊</blockquote>
+不玩贴吧的伸手求个链接 听上去又有乐子了？？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21366#       发表于 2025-2-13 13:18
+
+立希:我都说了吧，越接近越容易出事，本来我混得挺幸福的又要出场加入漩涡了
+
+*****
+
+####  swessia  
+##### 21367#       发表于 2025-2-13 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">立希美美隐身了，是为什么呢
+
+
+*****
+
+####  天空塔书记官  
+##### 21368#       发表于 2025-2-13 13:20
+
+ 本帖最后由 天空塔书记官 于 2025-2-13 13:25 编辑 
+
+现在的“发展”，体现的是祥子与睦身份的逆转，这符合我“神明与造物/信徒”的假设，而且祈求/许愿在这一关系中的意义十分主要，这表示祥子想要重新建立与睦的联系，起码是一个积极的信号
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<blockquote>那么结论就是，要让木头变回正常，只要祥子许愿就行了，许愿想要真正的木头，而不是表演出的或者隐藏自己的木头，因为“顺从的死亡”会满足神明所有的愿望</blockquote>
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 并没有人在乎| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  sakatta  
+##### 21369#       发表于 2025-2-13 13:20
+
+无言以对了只能说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 21370#       发表于 2025-2-13 13:22
+
+台长哪期节目说独角兽能写高达来着<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 21371#       发表于 2025-2-13 13:22
+
+<blockquote>达达葱2 发表于 2025-2-13 11:59
+上集结束后长崎素世看似怒发冲冠了
+
+今天会不会做一些出格的事？
+
+比下跪还炸裂的那种 ...</blockquote>
+是本来怒发冲冠
+
+被忽悠去中登那看到这家徒四壁的样子估计要母性大发了
+
+*****
+
+####  安娜导函数  
+##### 21372#       发表于 2025-2-13 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410345&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 13:20</a>
+现在的睦门立雪和跪四人，体现的是祥子与睦身份的逆转，这符合我“神明与造物/信徒”的假设，而且祈求/许愿 ...</blockquote>
+没看剧透的猜一手，睦头人真是耶稣？大祥老师真是西门彼得？
+
