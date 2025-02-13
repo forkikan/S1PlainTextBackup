@@ -1903,3 +1903,40 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 回到黎1啥都没有拿啥上太空，真回去了肯定也会加速过掉的
 
+
+*****
+
+####  super_uni  
+##### 7691#       发表于 2025-2-13 21:05
+
+回到创轨把桃花剑打晕，然后好好问下黑黎这问题怎么解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alucardcz  
+##### 7692#       发表于 2025-2-13 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414645&amp;ptid=2160194" target="_blank">kanata 发表于 2025-2-13 21:02</a>
+
+回到黎1啥都没有拿啥上太空，真回去了肯定也会加速过掉的</blockquote>
+当然是我眼镜哥啊 不受时间束缚 随便传送到太空<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玩吗？  
+##### 7693#       发表于 2025-2-13 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来3年前黑黎要剧透时条子信誓旦旦说没有那个必要，真出事了连个人影都没，越发🤡了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大厨麦当牛  
+##### 7694#       发表于 2025-2-13 21:11
+
+黎2已经证明了回溯玩多了就是把玩家当傻逼，界2再蠢也不会重蹈覆辙的。但看界2最后的演出也不知道世界到底发生了什么，汉密尔顿在世界各地搞的那些楔子有什么用。我估计下一部前半部分注水就是围绕着这些满世界的楔子通马桶，收队友，打boss，收集女主碎片。
+
