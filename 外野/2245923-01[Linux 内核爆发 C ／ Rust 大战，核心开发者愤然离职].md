@@ -1568,3 +1568,11 @@ Linus 本人还在 mba 上用 Asahi Linux，R4L 也是 Linus 点头进主线，�
 有人在 Linux 内核中提交了一个补丁，目的是让 Rust 编写的驱动程序能使用 dma_alloc_coherent() 函数，这 ...</blockquote>
 「罕见」失职.jpg
 
+
+*****
+
+####  unlsycn  
+##### 119#       发表于 2025-2-13 18:36
+
+不知道楼里的坛友是怎么一口一个「HaskWell」还有信心装PL大手子的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">问就是原神.jpg
+

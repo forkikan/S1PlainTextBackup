@@ -1543,3 +1543,84 @@ A ...</blockquote>
 
 当然最大问题还是现在完全不知道眼镜是在搞什么。。。没法分析
 
+
+*****
+
+####  Aeons  
+##### 7667#       发表于 2025-2-13 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413508&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 18:28</a>
+不一定 你也可以这么解释 已经超出了ai的预测范围 其实ai这段话也是谜语人对话
+
+毕竟他说请立即移除 不然  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">ai又不是就预测一个功能？这个ai就是太空监测情况的，ai报错，和预测没关系，报的也不是至宝，报的是自身错误，且定位到创世异常
+除非你说事前预测成功得算到卢尼背叛，算到创世不稳定，那确实算不到。
+
+*****
+
+####  上坂莲华  
+##### 7668#       发表于 2025-2-13 18:36
+
+大总统也不算没后手，6枚还是8枚核弹就能把盒子炸烂，然后他准备了20多枚，明显是有万一不行直接饱和攻击的想法的
+
+黑毛那个高达明显也是用来对付可能存在的骑神的，不然不可能摇里爷和五十米拉俩骑神驾驶员来当陪练
+
+结果没想到盒子摇出来的骑神直接把黑毛瞬秒了，那没办法，确实打不了，投了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7669#       发表于 2025-2-13 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413568&amp;ptid=2160194" target="_blank">Aeons 发表于 2025-2-13 18:35</a>
+
+ai又不是就预测一个功能？这个ai就是太空监测情况的，ai报错，和预测没关系，报的也不是至宝，报的是自身 ...</blockquote>
+我意思是事态已经超出了ai能分析的范围 不是说单单的预测 我得锅
+
+说到头这些个事在不知道眼镜到底在搞啥前确实很难说 
+
+
+*****
+
+####  Aeons  
+##### 7667#       发表于 2025-2-13 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413508&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 18:28</a>
+不一定 你也可以这么解释 已经超出了ai的预测范围 其实ai这段话也是谜语人对话
+
+毕竟他说请立即移除 不然  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">ai又不是就预测一个功能？这个ai就是太空监测情况的，ai报错，和预测没关系，报的也不是至宝，报的是自身错误，且定位到创世异常
+除非你说事前预测成功得算到卢尼背叛，算到创世不稳定，那确实算不到。
+
+*****
+
+####  上坂莲华  
+##### 7668#       发表于 2025-2-13 18:36
+
+大总统也不算没后手，6枚还是8枚核弹就能把盒子炸烂，然后他准备了20多枚，明显是有万一不行直接饱和攻击的想法的
+
+黑毛那个高达明显也是用来对付可能存在的骑神的，不然不可能摇里爷和五十米拉俩骑神驾驶员来当陪练
+
+结果没想到盒子摇出来的骑神直接把黑毛瞬秒了，那没办法，确实打不了，投了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7669#       发表于 2025-2-13 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413568&amp;ptid=2160194" target="_blank">Aeons 发表于 2025-2-13 18:35</a>
+
+ai又不是就预测一个功能？这个ai就是太空监测情况的，ai报错，和预测没关系，报的也不是至宝，报的是自身 ...</blockquote>
+我意思是事态已经超出了ai能分析的范围 不是说单单的预测 我得锅
+
+说到头这些个事在不知道眼镜到底在搞啥前确实很难说 
+
+
+*****
+
+####  Aeons  
+##### 7670#       发表于 2025-2-13 18:42
+
+看画面可以看出来，匣子内核破坏后最后是没复原，大致是复原到了前一个阶段。
+也就是说确实造成了不可逆的损害，而且核弹还剩2倍，只能说确实不好说
+
