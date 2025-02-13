@@ -181,3 +181,15 @@ psn配音锁区太tm蠢了<img src="https://static.saraba1st.com/image/smiley/fa
 
 亚当重锤最后出来什么意思，能打了吗？
 
+
+*****
+
+####  牙狼GARO  
+##### 1915#       发表于 2025-2-13 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409756&amp;ptid=1978008" target="_blank">真田源次郎信繁 发表于 2025-2-13 12:27</a>
+psn配音锁区太tm蠢了</blockquote>
+就这还有人喷我爱玩不玩/为什么不去买日版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
