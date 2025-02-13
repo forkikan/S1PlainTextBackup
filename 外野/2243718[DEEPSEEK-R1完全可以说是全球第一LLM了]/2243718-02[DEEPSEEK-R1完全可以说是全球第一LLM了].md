@@ -3770,3 +3770,15 @@ HBM什么时候能普及啊，普及后就是本地部署的春天了吧
 — from S1 Next Goose v3.3.96</blockquote>
 是呀，网上一直这个ID
 
+
+*****
+
+####  蜇灵  
+##### 1813#       发表于 2025-2-13 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67400311&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-2-12 09:56</a>
+https://xiaoyi.huawei.com/chat/
+
+菊花的小艺网页版带R1，可以选手动或者自动启用</blockquote>
+这个有联网搜索吗？
+

@@ -46,3 +46,11 @@ PV1：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">战斗看起来好素阿，一连两个预告都这么寡淡，有点担心
 
+
+*****
+
+####  JOJO42  
+##### 98#       发表于 2025-2-13 08:10
+
+战斗交互看着挺多样的，但是他这个打击感怎么那么软….而且就算追求以前的剑戟片动作质感，动作上也没那么匀速吧
+
