@@ -1333,3 +1333,26 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 最大的吐槽点不就是这种大事竟然不是集大陆全力去干而是自己单上<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">加上核弹是A 那边搞出来的，所以没有A搞出核弹你大总统原计划是拿什么破盒
 
+
+*****
+
+####  alucardcz  
+##### 7650#       发表于 2025-2-13 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406600&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-13 00:07</a>
+
+我感觉那段的演出的效果是:因为MK公司的AI出问题了导致误判，导致所有人半场开香槟，导致击坠王大意被黑骑 ...</blockquote>
+本来就有10%不确定因素 怎么能怪ai呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 7651#       发表于 2025-2-13 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406249&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-12 22:54</a>
+
+卢尼为什么下注汉密尔顿博士那边就很迷，只希望下作披露动机时别整什么青梅竹马三人狗血三角恋就行。。
+
+ ...</blockquote>
+卢尼按设定来说有女朋友的
+

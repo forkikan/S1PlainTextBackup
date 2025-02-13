@@ -5673,3 +5673,13 @@ KT新作“无双深渊”，ps4/5，rouge like型act
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果能有真田丸和358的新人物倒是不错
 
+
+*****
+
+####  琴酒  
+##### 631#       发表于 2025-2-13 15:50
+
+晋都要dlc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大蛇系估计也是dlc
+

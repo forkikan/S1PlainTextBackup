@@ -493,3 +493,22 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 细谷的声音和三船的脸完全不搭 
 
+
+*****
+
+####  东方定助  
+##### 143#       发表于 2025-2-13 15:46
+
+还有一种可能，就是现在用的是年轻版的混混宫本，后面会逐步解锁机能，变成动作利落的宗师宫本<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 144#       发表于 2025-2-13 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410799&amp;ptid=2210366" target="_blank">nage560 发表于 2025-2-13 14:05</a>
+
+我感觉这作是要强调一闪的重要性，削弱普通模式打怪的效率，才会把攻击速度调这么慢吧？不过卡表的技术还是 ...</blockquote>
+这看预告在场景、敌我互动上下了那么多功夫，原本的一闪速杀和这目前呈现出玩法思路明显不搭啊，估计一闪的收益和发动条件都有大改动了
+

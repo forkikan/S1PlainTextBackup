@@ -7894,3 +7894,69 @@ nga的祥厨已经进入了三角初华阶段
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 21441#       发表于 2025-2-13 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">喵梦正论怪打过来了我第一个跑
+
+*****
+
+####  cauchua3  
+##### 21442#       发表于 2025-2-13 15:50
+
+鸡团要重建要么是喵梦发起要么是初华发起，编剧也清楚，如果真是大祥发起再找喵梦就是真的没苦硬吃了
+
+*****
+
+####  yaneis  
+##### 21443#       发表于 2025-2-13 15:51
+
+更抽象的是初华可能是后半的反派位，祥子要去救初华，但一个隐身了两集的纯子跳出来说自己是boss想想就要笑出声了，内鬼说是保住初华角色的救命稻草（
+
+
+*****
+
+####  qlipho  
+##### 21444#       发表于 2025-2-13 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411807&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 15:47</a>
+
+所以说很奇怪，为了包ccc救祥子的醋，把祥子破坏干净抽了6集，但7集过后还得被其他人抽，这是做动画卖角色 ...</blockquote>
+木谷老登太想弯道超车了，总不能是编剧独走吧
+
+*****
+
+####  MASKA-1  
+##### 21445#       发表于 2025-2-13 15:56
+
+喵梦吃拉面不如刀哥咬打火机，睦莫自我拉扯比唐老鸭上吊活还狠，这就是差距。
+
+*****
+
+####  阿兹尔  
+##### 21446#       发表于 2025-2-13 15:56
+
+按照那个什么对偶说，对应灯的第一视角总该对应的是初华的吧，不会要看一整集祥子和初华小时候的故事吧
+
+*****
+
+####  cxj649  
+##### 21447#       发表于 2025-2-13 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411807&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 15:47</a>
+
+所以说很奇怪，为了包ccc救祥子的醋，把祥子破坏干净抽了6集，但7集过后还得被其他人抽，这是做动画卖角色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女频的确常见
+
+*****
+
+####  yaneis  
+##### 21448#       发表于 2025-2-13 15:56
+
+<blockquote>qlipho 发表于 2025-2-13 15:55
+木谷老登太想弯道超车了，总不能是编剧独走吧</blockquote>
+更坏的是我怀疑真给他超车了，万一日本人是真喜欢这套呢（
+
