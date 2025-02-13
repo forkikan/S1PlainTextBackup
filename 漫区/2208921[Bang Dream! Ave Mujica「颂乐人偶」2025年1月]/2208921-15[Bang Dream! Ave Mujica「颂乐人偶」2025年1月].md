@@ -6924,3 +6924,70 @@ soyo不是都跪过了，那时候厨子是真的少，爽姐直接喜获喜剧�
 soyo不是都跪过了，那时候厨子是真的少，爽姐直接喜获喜剧演员的称号</blockquote>
 那是素姐心善
 
+
+*****
+
+####  LinkerWeg  
+##### 21343#       发表于 2025-2-13 12:55
+
+要剑指第八集了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 21344#       发表于 2025-2-13 12:55
+
+老中的爆火不全是爽姐跪出来的 没那个演出也没有今天的厨厨们
+
+*****
+
+####  wpcc  
+##### 21345#       发表于 2025-2-13 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409979&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-13 12:46</a>
+
+祥学长早跑完了，如果还有要给wsd苞米的只能尊重祝福了</blockquote>
+我他妈还卡在日本没发货呢
+
+*****
+
+####  番茄牛奶  
+##### 21346#       发表于 2025-2-13 12:57
+
+四百大妈在和绿魔纠缠呢
+
+*****
+
+####  天空塔书记官  
+##### 21347#       发表于 2025-2-13 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409979&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-13 12:46</a>
+祥学长早跑完了，如果还有要给wsd苞米的只能尊重祝福了</blockquote>
+隔壁已经准备冲一星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wpcc  
+##### 21348#       发表于 2025-2-13 13:00
+
+ansy真是一对圣人啊再也不黑了
+
+*****
+
+####  阿兹尔  
+##### 21349#       发表于 2025-2-13 13:01
+
+好像还真是，没有soyo给大伙整活点炮仗，哪来这么多厨子释放黑泥，真要工工整整的乐队二偶宣传片，还真没那么多人来看
+
+*****
+
+####  看穿一切的鱼  
+##### 21350#       发表于 2025-2-13 13:04
+
+被牢素肘击那块应该是瘫坐吧，不算下跪。睦床前那才算跪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
