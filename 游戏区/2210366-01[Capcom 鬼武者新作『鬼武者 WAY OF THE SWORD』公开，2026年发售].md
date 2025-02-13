@@ -565,3 +565,32 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 我是希望卡婊做动作系统革新的，不知道这个比重这么大的偏斜能玩出什么花
 
+
+*****
+
+####  慕容断月  
+##### 150#       发表于 2025-2-13 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411474&amp;ptid=2210366" target="_blank">被击坠王 发表于 2025-2-13 15:17</a>
+
+这最近的表现就是老员工相继离开新人接手后的卡婊的真正样子吗</blockquote>
+哪来的新手，也有老员工回来，猎天使魔女1制作人+2导演的桥本佑介就是离职回去参与了街霸6
+
+
+*****
+
+####  大喇叭花田  
+##### 151#       发表于 2025-2-13 18:14
+
+我觉得还可以啊，大家现在要求都那么高了吗？
+
+*****
+
+####  bgmilk  
+##### 152#       发表于 2025-2-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413382&amp;ptid=2210366" target="_blank">大喇叭花田 发表于 2025-2-13 18:14</a>
+
+我觉得还可以啊，大家现在要求都那么高了吗？</blockquote>
+    要是其他厂发的那应该还行，但这是卡婊。
+
