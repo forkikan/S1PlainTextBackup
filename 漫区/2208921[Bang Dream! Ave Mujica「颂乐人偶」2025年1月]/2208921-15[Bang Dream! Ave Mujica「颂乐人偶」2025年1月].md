@@ -8283,3 +8283,109 @@ WARNING WARNING 大量剧透来袭各位可以离席了</blockquote>
 
 坏了，猫猫精的很，祥睦回宫直接玩消失。就粉色奶龙抓不住TIMING被挤在外圈，有点心疼了
 
+
+*****
+
+####  安娜导函数  
+##### 21480#       发表于 2025-2-13 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412541&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-13 16:56</a>
+
+坏了，猫猫精的很，祥睦回宫直接玩消失。就粉色奶龙抓不住TIMING被挤在外圈，有点心疼了
+
+不是，声优说看哭 ...</blockquote>
+是挺王到手感动的泪水吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhzij111  
+##### 21481#       发表于 2025-2-13 16:58
+
+这下灯皇要人设回撤到受精卵了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  兔耳僵尸  
+##### 21482#       发表于 2025-2-13 16:59
+
+如果说有什么比睦双重人格更烂活，那就是初华双子论，母鸡卡的悬疑要素是指三流推理小说都不玩的烂梗吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 21483#       发表于 2025-2-13 17:00
+
+CCC限时复活你看你不感动吗，算正常吧
+
+爱音一直是灯的挂件罢了
+
+
+*****
+
+####  天空塔书记官  
+##### 21484#       发表于 2025-2-13 17:00
+
+ 本帖最后由 天空塔书记官 于 2025-2-13 17:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412439&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 16:45</a>
+探究CCC和春日影的本质，还是在于“过去的回忆”上，也就是解明睦祥童年与关系性的切入点和工具
+
+基于“半 ...</blockquote>
+省流版:睦的苏醒代表着祥子“神性”的回归，从新成为“神明”，成为创作者的祥子就能重新加入乐队
+
+但只靠睦的力量还是不够的，不足以把祥子抬到更高的位置，还需要其他人的力量，现在只是解决了重建A团的基础，仍然缺乏重建的动机，即其他人加入的理由
+
+而作为“风”与“火”存在的喵梦和海铃无疑会是接下来故事发展的重点，因为她们的活力是最强的，当然喵梦的活跃肯定会引来新一轮的争吵就是了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿卡拉兰斯  
+##### 21485#       发表于 2025-2-13 17:00
+
+不管结果如何我大概真的一辈子忘不了这部动画了
+虽然我现在说一句我到处看滑雪各种嗅血腥味甚至隐隐其实可能或许想看个大烟花但现在依旧相信后面会赢的的真情实感总感觉像串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 21486#       发表于 2025-2-13 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412567&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-13 16:58</a>
+
+是挺王到手感动的泪水吧</blockquote>
+粉色奶龙：只要你肯吃苦，编剧就会让你有吃不完的苦<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21487#       发表于 2025-2-13 17:03
+
+op欺诈里唯一真的不会只有两个初华吧……
+
+*****
+
+####  六道明  
+##### 21488#       发表于 2025-2-13 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412588&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 17:00</a>
+
+省流版:睦的苏醒代表着祥子“神性”的回归，从新成为“神明”，成为创作者的祥子就能重新加入乐队
+
+但只 ...</blockquote>
+你比独角兽写得好（肯定
+
+*****
+
+####  yaneis  
+##### 21489#       发表于 2025-2-13 17:04
+
+<blockquote>单脚着地 发表于 2025-2-13 17:01
+粉色奶龙：只要你肯吃苦，编剧就会让你有吃不完的苦</blockquote>
+对比之下爱音人设已经很好了，要是剧透是真的其他角色跌到妈都不认识了……
+

@@ -544,3 +544,16 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">其实问题就出在名字叫"鬼武者",别和仁王比了,和马上妇科的鬼武者2一比就知道差距
 
+
+*****
+
+####  nage560  
+##### 148#       发表于 2025-2-13 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412261&amp;ptid=2210366" target="_blank">JOJO42 发表于 2025-2-13 16:29</a>
+
+细想它这一闪系统确实不太适合现在游戏的风潮了，不好平衡它在游戏里的比重和使用频率
+
+而且有说法是真实 ...</blockquote>
+做成成龙家具城不知道游戏性怎么样了，这个应该也没有先例供参考。
+
