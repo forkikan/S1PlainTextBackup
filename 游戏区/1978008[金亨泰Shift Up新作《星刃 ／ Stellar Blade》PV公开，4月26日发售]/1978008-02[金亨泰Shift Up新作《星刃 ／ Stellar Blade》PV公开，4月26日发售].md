@@ -118,3 +118,21 @@ ps版追加中配吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  杨松  
+##### 1909#       发表于 2025-2-13 12:03
+
+行啊，到时候三张可能买了肉痛，我买两份吧，给好友来一份
+
+支持的语种真多：
+
+<img src="https://img.saraba1st.com/forum/202502/13/120412t5kvvkym3crghmmn.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-13 105211.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 12:04 上传
+
