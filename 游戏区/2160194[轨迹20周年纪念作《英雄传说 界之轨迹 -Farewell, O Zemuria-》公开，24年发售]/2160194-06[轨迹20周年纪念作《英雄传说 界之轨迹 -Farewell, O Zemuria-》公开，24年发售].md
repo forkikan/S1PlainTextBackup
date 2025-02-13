@@ -2217,3 +2217,37 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还是日站脑洞大 说眼镜上个轮回是女的 现在恢复了上个轮回的记忆 因为女的时候也叫她ルネ 所以现在叫van别喊他名字 （一定是白色相簿玩多了
 
+
+*****
+
+####  隔壁老黄  
+##### 7721#       发表于 2025-2-13 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416977&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 23:18</a>
+
+突然想起。。女明星老家那泛魔化 以什么基本判断哪些人能动 哪些人不能动是不是没说 ...</blockquote>
+有说，跟主角群强相关的都能动
+
+*****
+
+####  隔壁老黄  
+##### 7722#       发表于 2025-2-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416921&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-13 23:15</a>
+
+还在这盘，界2给剑女也发个魔装鬼就都老实了，哦按轨迹的尿性肯定还得打一次学妹，再给学妹也发个魔装鬼 ...</blockquote>
+本来大家都以为白魔装鬼就是学妹，结果居然是四眼仔！<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 7723#       发表于 2025-2-13 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415250&amp;ptid=2160194" target="_blank">Squall25 发表于 2025-2-13 22:04</a>
+
+我估计很多人不知道之前解包帖有提到过鲁尼打范恩时有句疑似可能跟他动机有关的台词【无论舍弃什么，为了艾 ...</blockquote>
+明显不是三角恋，他意思是帮助梵（这也是为了爱莲）
+
+一个も的存在，意思完全不一样
+

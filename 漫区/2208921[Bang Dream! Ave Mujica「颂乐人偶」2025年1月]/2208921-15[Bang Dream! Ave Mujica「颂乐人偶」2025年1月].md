@@ -14564,3 +14564,263 @@ ccc上tft了，wsd真会玩<img src="https://static.saraba1st.com/image/smiley/f
 
 也许想成为人类之歌，后面还有完全版也说不定？
 
+
+*****
+
+####  kenqqex  
+##### 22079#       发表于 2025-2-13 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417375&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-13 23:44</a>
+
+开头祥子说“好想成为人类，原来是这么回事”
+
+我觉得应该是指“好想成为人类”这句话最早是小睦说的，祥子 ...</blockquote>
+包有的，wsd早就给你准备好了
+
+*****
+
+####  dqtql  
+##### 22080#       发表于 2025-2-13 23:46
+
+只能说有些体验是一辈子只有一次的，没有错过三年前的那个夏夜真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 22081#       发表于 2025-2-13 23:47
+
+独角兽是不是要封圣了？
+
+感觉和去年9月底大A行情好像啊，以为真的起来了，跟风入场也不过是半山腰，携手进入新时代，结果还是平庸的没有共识的大A。
+
+*****
+
+####  刑部姬真可爱  
+##### 22082#       发表于 2025-2-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417231&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-13 23:34</a>
+
+爱音怎么说呢。。。
+
+估计转学或者突然加入某个小组过的人会有这种经验，其他人已经很熟了，导致新人要非常 ...</blockquote>
+立希也没有必须要带爱音去或爱音也没有要跟着去的理由，爱音和睦又不熟
+
+努力发消息没人回，立希在睦家等待的时候其实回了爱音的消息
+
+*****
+
+####  huxiaopao163  
+##### 22083#       发表于 2025-2-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417386&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-2-13 23:45</a>
+
+包有的，wsd早就给你准备好了</blockquote>
+不是指CD啦，我是指也许会和后面的剧情有关
+
+*****
+
+####  fuwamoco  
+##### 22084#       发表于 2025-2-13 23:47
+
+所以mygo是怎么做这么好的
+
+*****
+
+####  jiangyou  
+##### 22085#       发表于 2025-2-13 23:48
+
+仔细想了下接下来是不是继续抽祥子，毕竟祥子没有再组母鸡卡的动力，组了的话指不定自己半身哪天又犯病了
+
+而剩下的三个人可以用当初拉人头用的“剩余人生“那句话继续抽她，让她组母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 22086#       发表于 2025-2-13 23:48
+
+看来mygo确实成为了楼友的crychic，尤其是在mujica这副德行的当下
+
+*****
+
+####  KokutouMikiya  
+##### 22087#       发表于 2025-2-13 23:48
+
+这集最神必的是海铃为什么就来到了彩排现场，甚至不是live现场
+
+*****
+
+####  oyss  
+##### 22088#       发表于 2025-2-13 23:49
+
+这是mygo第15集.
+
+*****
+
+####  victorws  
+##### 22089#       发表于 2025-2-13 23:49
+
+包饺子嘛
+
+----发送自 [OnePlus KB2000,Android 14](http://stage1.5j4m.com/?1.41)
+
+*****
+
+####  阿兹尔  
+##### 22090#       发表于 2025-2-13 23:49
+
+海初喵不会已经组合成小团体，让海铃来跟踪吧
+
+*****
+
+####  cnlmaa  
+##### 22091#       发表于 2025-2-13 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">这集看完最大的乐子是破防的角色厨，看角色厨破防到骂街实在太有意思了
+
+
+*****
+
+####  番茄牛奶  
+##### 22092#       发表于 2025-2-13 23:50
+
+致敬偶像大河内
+
+*****
+
+####  木板春香  
+##### 22093#       发表于 2025-2-13 23:51
+
+  海初喵 这个组合听起来还有点可爱，我就喜欢叫海喵初
+
+*****
+
+####  Суслов  
+##### 22094#       发表于 2025-2-13 23:51
+
+BanG Dream! Ave Mujica ×
+
+BanG Dream! It's MyGO!!!!!第二季 ×
+
+BanG Dream! CRYCHIC第三季 √
+
+看着台上crychic一边演出一边哭成泪人，我的内心毫无波澜，感觉少看了BanG Dream! CRYCHIC第一季<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rubinliu  
+##### 22095#       发表于 2025-2-13 23:52
+
+<blockquote>oyss 发表于 2025-2-13 23:49
+这是mygo第15集.</blockquote>
+Mygo只有13话
+
+Mujica还没播出
+
+多谢
+
+
+*****
+
+####  Chenlh  
+##### 22096#       发表于 2025-2-13 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417272&amp;ptid=2208921" target="_blank">守望者404 发表于 2025-2-13 23:37</a>
+
+海玲是在咬牙生气他们怎么这么有团魂吗？还是被灯姐唱的感动了</blockquote>
+还记得mygo的远古假药吗。soyo原计划故意搞砸第七集的演出，已让祥子感觉：没有我你们果然不行啊。以此重组c团。
+
+按这个思路，海铃可能就是被难听到生气了
+
+*****
+
+####  DARK_HGCG  
+##### 22097#       发表于 2025-2-13 23:52
+
+ 本帖最后由 DARK_HGCG 于 2025-2-13 23:55 编辑 
+
+这个饺子必须在第七集包，因为演唱会买票是下周截止，必须在此之前让CCC重聚来造势
+
+所以这饺子，
+
+其实是为了演唱会这碟醋包的饺子
+
+*****
+
+####  yaneis  
+##### 22098#       发表于 2025-2-13 23:53
+
+<blockquote>qiyu1234 发表于 2025-2-13 23:43
+如果op全员颠婆是mujica完全体的话，那么接下来的故事还是有些看点的，至少现阶段即使祥想重组乐队也没有非 ...</blockquote>
+祥子已经光速变回白祥了，未必不能光速变回黑箱，再把所有人搞疯一次组Mujica
+
+*****
+
+####  Суслов  
+##### 22099#       发表于 2025-2-13 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417231&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-13 23:34</a>
+
+爱音怎么说呢。。。
+
+估计转学或者突然加入某个小组过的人会有这种经验，其他人已经很熟了，导致新人要非常 ...</blockquote>
+许多年之后，面对台上拿着自己吉他演出的crychic，千早爱音将会回想起拒绝红绿灯三人组的那个遥远下午<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 22100#       发表于 2025-2-13 23:54
+
+不行了，这黑暗深邃幻想的Mujica越想越尴尬，真组吗？更过家家了吧这下
+
+*****
+
+####  雪霜  
+##### 22101#       发表于 2025-2-13 23:54
+
+上次看到动画里一帮人一起激动的哭搞得好像多么感人似的却让屏幕前的我尬到脚拇指抠地我都想不起是多久前的事了，今天总算又感受到了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 22102#       发表于 2025-2-13 23:54
+
+这肯定不单是系构的问题，而是wsd整个项目决策和执行的问题，日本动画业界这几年胡搞幺蛾子的又不止wsd一家，京阿尼、狗汉子和马趴都干了，有“想法”的编剧和监督还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  acg_gyanc  
+##### 22103#       发表于 2025-2-13 23:55
+
+其他我都不想管了，要是之后海玲不暴个扭曲的大的我是真要给不及格了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">就只想看海玲原地飞天了
+
+*****
+
+####  yaneis  
+##### 22104#       发表于 2025-2-13 23:55
+
+话说回来情报哥说的跳是谁啊（
+
+*****
+
+####  厉飞雨  
+##### 22105#       发表于 2025-2-13 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">所以soyo拎来的那袋黄瓜最后发挥了什么作用
+
+*****
+
+####  刑部姬真可爱  
+##### 22106#       发表于 2025-2-13 23:56
+
+海铃本身也是经常在ring活动的啊，什么时候有排练哪些乐队排练这些消息随便就能知道吧，从逻辑上来说我能接受，但观感上可能加一小段海铃看见祥子睦和go团在一起进排练室的镜头会更明确些
+
+*****
+
+####  是谁的书画  
+##### 22107#       发表于 2025-2-13 23:56
+
+我很期待白祥能够在下集做点什么，这是现在我能说服我自己继续看下去的理由了。
+

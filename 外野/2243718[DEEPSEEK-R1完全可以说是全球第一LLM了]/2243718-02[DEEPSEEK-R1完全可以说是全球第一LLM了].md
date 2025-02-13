@@ -3839,3 +3839,11 @@ https://xiaoyi.huawei.com/chat/
 
 国外贵的fireworks吐字速度快，但是贵。便宜的Nebius/hyperbolic慢的有点蛋疼
 
+
+*****
+
+####  moekyo  
+##### 1819#       发表于 2025-2-13 23:51
+
+刷到个火山部署的能联网的教程，可以折腾一下[https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)
+
