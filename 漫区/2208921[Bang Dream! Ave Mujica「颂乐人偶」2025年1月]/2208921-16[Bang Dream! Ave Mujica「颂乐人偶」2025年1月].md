@@ -1579,3 +1579,19 @@ mujica的剧本就是铺垫太多了，以至于无论剧情怎样都感觉能�
 
 这么在意日本人评价？难道依托答辩，日本人说是香的，他就是香的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晓色暮云  
+##### 22335#       发表于 2025-2-14 07:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">早就说了抽陀螺就会垫其他人的塑造啊，你不能只在抽陀螺的时候支持墨提斯和喵
+
+
+*****
+
+####  有钱多买小人  
+##### 22336#       发表于 2025-2-14 07:14
+
+想了想，祥子为什么突然白祥，因为不用去打工了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

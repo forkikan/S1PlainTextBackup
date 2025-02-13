@@ -3369,3 +3369,11 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ぽんぽこ仮面  
+##### 334#       发表于 2025-2-14 07:17
+
+到现在为止最令我费解的是为什么连制作水平都这么烂，演出跟mygo根本不是一个级别的，像是一堆无关片段拼凑在一起的一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">人物表情和渲染有时候也很僵硬
+
