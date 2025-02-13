@@ -1410,3 +1410,22 @@ crychic并非是能解一切纠纷的灵药，它作为所谓白月光的退场�
 
 *没有特地翻旧账的意思，仅仅是翻到本楼第一页看了下
 
+
+*****
+
+####  LeonsCat  
+##### 22320#       发表于 2025-2-14 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418798&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 03:09</a>
+
+祥子显然是编剧投入了极大偏爱的角色，无论给观众带来的观感如何，谁都能看出编剧在她身上花费了非常多的 ...</blockquote>
+说白了，这种角色在文艺作品中的典范是《飘》的斯嘉丽，你照着飘去捏还能捏个半身梅兰妮呢。但是创作团队没这个本事，写了半天就知道嬷，嬷了又舍不得。
+
+
+*****
+
+####  thisisaspider  
+##### 22321#       发表于 2025-2-14 03:33
+
+mujica的剧本就是铺垫太多了，以至于无论剧情怎样都感觉能圆回来。当每次看到编剧就在第一层，把铺垫草草用掉就很心疼。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
