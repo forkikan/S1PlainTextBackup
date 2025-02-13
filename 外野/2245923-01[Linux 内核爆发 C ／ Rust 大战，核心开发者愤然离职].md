@@ -1638,3 +1638,17 @@ zig可能靠这个这个独门绝活活下去的
 
 社交媒体逼宫毫无疑问是②的风险发生的指示物，而rust委员会在23年重组本身就说明rust“命不久矣”。林纳斯55岁不是75岁，身后还有c++委员会（除社区支持外还特指美国政府那部分影子）撑腰，肯定不会鸟rust的逼宫行为。
 
+
+*****
+
+####  yikaa  
+##### 124#       发表于 2025-2-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404297&amp;ptid=2245923" target="_blank">bcxzzz 发表于 2025-2-12 18:02</a>
+从技术上来说，可能给一种语言留后门么？ 比如考虑下：1、语言的解释器、编译器是公开代码的么？ 2，即使 ...</blockquote>
+https://wiki.c2.com/?TheKenThompsonHack
+
+如果仅说有没可能，那是有可能的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
