@@ -641,3 +641,13 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 成龙家具城act不就是sifu吗，其实sifu玩场景道具乐子还是挺多的，而且也是快速减员围攻敌人的手段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个其实没啥好担心的
 
+
+*****
+
+####  缺德猫  
+##### 158#       发表于 2025-2-14 03:17
+
+挺惊喜的，那种耍酷武士、忍者动作游戏太多了，早就吃腻了。
+
+这主角挺有喜感的，表情、动作耳目一新
+

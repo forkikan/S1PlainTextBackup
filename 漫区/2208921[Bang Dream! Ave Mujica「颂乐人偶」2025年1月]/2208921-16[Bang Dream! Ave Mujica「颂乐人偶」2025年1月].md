@@ -1373,3 +1373,40 @@ yep
 
 crychic并非是能解一切纠纷的灵药，它作为所谓白月光的退场戏本应凄美又温暖，用在角色未完成人设回转的此处，可谓剧本失衡。
 
+
+*****
+
+####  sauron.j  
+##### 22317#       发表于 2025-2-14 03:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418781&amp;ptid=2208921" target="_blank">Licheus 发表于 2025-2-14 02:59</a>
+
+祥子的最重大转变发生在soyo上门堵祥子到祥子在三人面前落泪这两场戏里，甚至可以说是集中soyo身上。soyo对 ...</blockquote>
+从场外因素猜测，搞不好是制作组发现鸡团矛盾+C团阴影的双线并进、交错发展打法超出了他们能力范围
+
+只能采用一种先填旧仇，再添新恨的下策
+
+*****
+
+####  ArcadiaMartyr  
+##### 22318#       发表于 2025-2-14 03:20
+
+那只能说这俩都喜欢的人确实有福了
+年年都能看到这么好的作品
+以后肯定能看到更多好作品啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  CRYCHIC  
+##### 22319#       发表于 2025-2-14 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418361&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-14 01:20</a>
+
+说起来以前鸡楼里有几个很活跃的鸡团粉丝，把楼当群聊用，现在好像不太看见了，好奇他们现在感受如何 ...</blockquote>
+永远怀念 [@Aendst](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500536) [@星天观测](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572691) [@相坂君](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=440787) [@PDQ4](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=559177) [@御幸一也](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263923) [@前方暴雨预警](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=573114) [@御景](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572401) 
+
+*没有特地翻旧账的意思，仅仅是翻到本楼第一页看了下
+
