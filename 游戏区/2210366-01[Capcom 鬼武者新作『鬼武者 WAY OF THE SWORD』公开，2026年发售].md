@@ -97,3 +97,14 @@ PV1：
 
 这个预告片里居然一次一闪都没有？
 
+
+*****
+
+####  plok201  
+##### 103#       发表于 2025-2-13 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67407869&amp;ptid=2210366" target="_blank">Kyo.C 发表于 2025-2-13 09:21</a>
+
+这个预告片里居然一次一闪都没有？</blockquote>
+估计这次那个发光格挡演出代替了一闪，一闪中了不是闪一下对面死了，而是搞个演出再死
+
