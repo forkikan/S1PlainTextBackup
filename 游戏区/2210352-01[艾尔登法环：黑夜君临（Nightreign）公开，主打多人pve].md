@@ -2044,3 +2044,11 @@ goty没让我破防，这玩意给我干破防了
 
 看试玩挺难崩的，感觉把魂独特的探索体验全砍掉了。期待值一下子跌倒谷底
 
+
+*****
+
+####  曼彻斯特联  
+##### 223#       发表于 2025-2-13 16:33
+
+感觉，没有魂游本体画符联机耐玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，还强制要拉两个朋友。
+
