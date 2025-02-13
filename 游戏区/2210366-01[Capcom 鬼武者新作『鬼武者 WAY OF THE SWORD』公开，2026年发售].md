@@ -28,3 +28,21 @@ PV1：
 
 官网也已更新新内容
 
+
+*****
+
+####  57042711  
+##### 96#       发表于 2025-2-13 07:49
+
+还有无双吉冈流的画面啊，太乐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  性兽阿怪  
+##### 97#       发表于 2025-2-13 07:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">战斗看起来好素阿，一连两个预告都这么寡淡，有点担心
+
