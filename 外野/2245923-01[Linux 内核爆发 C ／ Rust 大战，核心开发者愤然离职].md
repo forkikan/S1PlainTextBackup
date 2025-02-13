@@ -1501,3 +1501,59 @@ Torvalds 说：“显然，有些人就是不喜欢 Rust，也不希望 Rust 侵
 有人在 Linux 内核中提交了一个补丁，目的是让 Rust 编写的驱动程序能使用 dma_alloc_coherent() 函数，这 ...</blockquote>
 Asahi Linux 的图形驱动似乎就是 Rust 的
 
+
+*****
+
+####  Midnight.Coup  
+##### 113#       发表于 2025-2-13 17:56
+
+ 本帖最后由 Midnight.Coup 于 2025-2-13 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413112&amp;ptid=2245923" target="_blank">Xerxes_2 发表于 2025-2-13 17:46</a>
+
+Asahi Linux 的图形驱动似乎就是 Rust 的</blockquote>
+Linus 本人还在 mba 上用 Asahi Linux，R4L 也是 Linus 点头进主线，就很一言难尽，这件事归根到底是 Linus 的态度不明，整双方的像后宫斗争，Linus 最后左右都不好偏，只能从态度上拿 M 佬开刀
+
+*****
+
+####  vail潇  
+##### 114#       发表于 2025-2-13 17:56
+
+支持rust的人再用rust重构一版不行吗？
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Xerxes_2  
+##### 115#       发表于 2025-2-13 17:59
+
+ 本帖最后由 Xerxes_2 于 2025-2-13 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413216&amp;ptid=2245923" target="_blank">vail潇 发表于 2025-2-13 17:56</a>
+
+支持rust的人再用rust重构一版不行吗？
+
+—— 来自 vivo V2307A, Android 15上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+[https://www.redox-os.org/](https://www.redox-os.org/)
+
+?
+
+坛友真的有点搞笑了，一点不懂就原神原神后门后门的叫
+
+*****
+
+####  RookieTnT  
+##### 116#       发表于 2025-2-13 18:02
+
+字节的rsbuild 和 rspack倒是挺好用的
+
+
+*****
+
+####  Xerxes_2  
+##### 117#       发表于 2025-2-13 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413266&amp;ptid=2245923" target="_blank">RookieTnT 发表于 2025-2-13 18:02</a>
+
+字节的rsbuild 和 rspack倒是挺好用的</blockquote>
+现在开发基建用 Rust 的挺多的了，数了下我电脑上的 $brew uses rust --installed --include-build --include-implicit --include-optional                                                                                                                  aider                  fd                     hyperfine              librsvg                ripgrep                tectonic               typst                  uutils-coreutils       zoxide bat                    fish                   kondo                  mise                   scriptisto             tokei                  typstyle               uv eza                    helix                  libimagequant          rav1e                  starship               tree-sitter            usage                  yazi 复制代码
+
