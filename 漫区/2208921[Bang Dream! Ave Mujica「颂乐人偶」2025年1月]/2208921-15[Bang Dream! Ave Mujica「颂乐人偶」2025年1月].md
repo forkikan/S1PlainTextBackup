@@ -8030,3 +8030,66 @@ nga的祥厨已经进入了三角初华阶段
 
 日本人那边这片热度就近咋样啊，感觉有点信息茧房了
 
+
+*****
+
+####  jyhldlagen  
+##### 21456#       发表于 2025-2-13 16:09
+
+《春日影》又来了？
+
+*****
+
+####  一心而用  
+##### 21457#       发表于 2025-2-13 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412022&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 16:06</a>
+
+日本人那边这片热度就近咋样啊，感觉有点信息茧房了</blockquote>
+反正推上热度是一月番第一了。
+<img src="https://img.saraba1st.com/forum/202502/09/175132rjvbccb171pc7v93.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  afsd109  
+##### 21458#       发表于 2025-2-13 16:12
+
+初华很明显了就是看到大祥老师和别人重新上台演出的视频，怒于我找你找不到好辛苦原来是和别人又组乐队了。于是化身星星，纠集大喵领衔鸡团二代重组银河战舰，利用重力将大祥老师捕获在身边无法逃离。
+
+*****
+
+####  cxj649  
+##### 21459#       发表于 2025-2-13 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412022&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 16:06</a>
+
+日本人那边这片热度就近咋样啊，感觉有点信息茧房了</blockquote>
+热度第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便母鸡卡比卖狗在白皮更热门一点
+
+
+*****
+
+####  凉良  
+##### 21460#       发表于 2025-2-13 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412022&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 16:06</a>
+
+日本人那边这片热度就近咋样啊，感觉有点信息茧房了</blockquote>
+路边一条  流媒体20+排名
+
+*****
+
+####  阿卡拉兰斯  
+##### 21461#       发表于 2025-2-13 16:17
+
+这图透怎么越来越夸张了，如果不是假的那母鸡卡怎么样姑且不提，母鸡卡二创估计能上一个新台阶<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 21462#       发表于 2025-2-13 16:17
+
+炒作真的有用，还敢黑mggm吗
+

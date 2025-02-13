@@ -12686,3 +12686,16 @@ Plazma
 
 当然也不排除量产型高达沿用Rise heavy外观的情况，毕竟量产EVA也是一身白异形头
 
+
+*****
+
+####  猪突猛进  
+##### 6894#       发表于 2025-2-13 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411941&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-13 15:58</a>
+
+给兰巴配个改修版蓝色专用勇士出场当小boss吧
+
+鹤卷和米津都喜欢0080，访谈中多次提到，舞台也正好在side6， ...</blockquote>
+都0080了，不用肯普法说不过去吧，也是蓝的。
+

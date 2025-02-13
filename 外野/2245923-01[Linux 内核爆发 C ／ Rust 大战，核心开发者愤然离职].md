@@ -1328,3 +1328,27 @@ Linus对这种想要网暴的行为严厉批评
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  优秀  
+##### 105#       发表于 2025-2-13 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67405274&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-12 20:19</a>
+
+他们只是想骂 rust 而已 
+
+这事儿吧…</blockquote>
+由你描述的过程看来，早前linus让rust进内核说明他也不反感rust，但下面吵了两周他没表态说明他也不知道这个问题上支持哪边好，然后rust那边把这个问题放到社交媒体上这个行为激怒了他（他觉着这种吵架就该在技术社区吵？），这时候他出来说的不是谁对而是谁错了。
+
+好像linus这么处理也没错，当然人跑了从大局上来看是自己损失了。
+
+*****
+
+####  FeteFete  
+##### 106#       发表于 2025-2-13 16:07
+
+<blockquote>我是蓝石头 发表于 2025-2-12 18:10
+建议python，一个上午就可以用pytorch零到一写一个简单的有监督机器学习训练加推理，感受朴素的机器学习 ...</blockquote>
+写python 和写c++真的不是一个难度，哪怕写一个玩具都不一样
+
