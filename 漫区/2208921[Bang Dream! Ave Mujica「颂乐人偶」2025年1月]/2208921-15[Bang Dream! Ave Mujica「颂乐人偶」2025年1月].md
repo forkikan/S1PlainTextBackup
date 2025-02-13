@@ -8841,3 +8841,39 @@ C团肯定要好好入土的，只是嘛，有点晚，第七集真的有点晚�
 
 但是鸡团5个人里面哪个人对A团有巨大感情了，哭团是一个纽带，但是它接不到鸡的身上。
 
+
+*****
+
+####  阿兹尔  
+##### 21535#       发表于 2025-2-13 18:44
+
+最后素希还是达成了一致:真得动手
+
+*****
+
+####  翼宿一  
+##### 21536#       发表于 2025-2-13 18:48
+
+<blockquote>无事忙 发表于 2025-2-13 18:19
+为什么楼里的剧透我都没看见而且大家都看见了还在哀叹</blockquote>
+木棉花那边漏出预览图了，nga、紫吧都有人贴，这楼禁止贴图剧透所以楼友们识趣都没转
+
+
+*****
+
+####  Mika-S  
+##### 21537#       发表于 2025-2-13 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413637&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 18:43</a>
+你可以觉得crychic是两个团的垫子，而且事实如此。但你之后的话我不敢苟同。
+
+先不提mygo，到时候自有动漫领 ...</blockquote>
+有没有可能不是接不到🐔身上而是接不到初喵海身上呢？三个人靠边站不就得了，之后再从能接到的两个人身上接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黛冬優子  
+##### 21538#       发表于 2025-2-13 18:52
+
+我倒是觉得三个团9个人都是大祥一个人的垫子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
