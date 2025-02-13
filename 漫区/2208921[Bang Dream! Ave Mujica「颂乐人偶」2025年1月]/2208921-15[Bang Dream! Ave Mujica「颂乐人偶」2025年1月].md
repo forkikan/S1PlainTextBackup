@@ -6610,3 +6610,56 @@ pv里按电视机7频道有望第七集回收啊 感觉非常meta的画面
 
 比下跪还炸裂的那种
 
+
+*****
+
+####  壳壳牛  
+##### 21306#       发表于 2025-2-13 12:05
+
+贴吧剧透开始咯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 21307#       发表于 2025-2-13 12:06
+
+这剧透看着好土
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21308#       发表于 2025-2-13 12:07
+
+剧透看完了，姨姥泪目<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 21309#       发表于 2025-2-13 12:08
+
+还在藏，还在藏<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 21310#       发表于 2025-2-13 12:09
+
+发展就这？ 前六集搞成这样有必要么。
+
+*****
+
+####  阿卡拉兰斯  
+##### 21311#       发表于 2025-2-13 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409427&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-13 11:59</a>
+上集结束后长崎素世看似怒发冲冠了
+
+今天会不会做一些出格的事？
+
+比下跪还炸裂的那种 ...</blockquote>
+还真是，图透超雄素姐
+
