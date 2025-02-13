@@ -10441,3 +10441,760 @@ soyo和立希都不愿意回消息踢皮球倒是有点<img src="https://static.
 
 复制评论：看着就和春晚小品一样，你该哭了，你该笑了，你该哭了
 
+
+*****
+
+####  car123  
+##### 21717#       发表于 2025-2-13 22:26
+
+看的尴尬的不行，看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 21718#       发表于 2025-2-13 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415714&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 22:25</a>
+
+难顶，这饺子大伙吃得怎么样</blockquote>
+我个人觉得还行，只不过场外很乐而已<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 21719#       发表于 2025-2-13 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415709&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-2-13 22:25</a>
+海玲生气可以理解是嫉妒，但你又是感知到啥就想重来了？</blockquote>
+咬牙切齿的表情不太对，我倾向于海子姐是想重组之后再炸一次，增加一点参与感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lucho  
+##### 21720#       发表于 2025-2-13 22:26
+
+为什么我已经开始幻视平井脸了
+
+
+*****
+
+####  cybernetics31  
+##### 21721#       发表于 2025-2-13 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">饺子嘛，我吃我吃
+
+*****
+
+####  ykyin09  
+##### 21722#       发表于 2025-2-13 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看完这集的唯一感想：怎么还有六集？
+
+*****
+
+####  k1no  
+##### 21723#       发表于 2025-2-13 22:26
+
+好吃爱吃<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 21724#       发表于 2025-2-13 22:26
+
+？？？？怎么羊真人出现了？
+
+*****
+
+####  阿兹尔  
+##### 21725#       发表于 2025-2-13 22:26
+
+这集睦祥卖得没有素希生动立体啊。。。
+
+*****
+
+####  未来起航  
+##### 21726#       发表于 2025-2-13 22:26
+
+大象这么个黑化后对他人是彻底排斥、对自己是沉溺腐烂的完全不做人的角色，靠soyo说两句事实就能瞬间转回白祥形态<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 21727#       发表于 2025-2-13 22:26
+
+**妈 武士道 太变态了
+
+*****
+
+####  航母掉头  
+##### 21728#       发表于 2025-2-13 22:27
+
+库来惜苦风光大葬
+
+圣SOYO一个当妈的果然下不了狠手，想看地狱战神殴打大象老师的有点失望
+
+*****
+
+####  pokemon最爱  
+##### 21729#       发表于 2025-2-13 22:27
+
+CCC团的谢幕演出，如果这不是AveMujica第7集而是MyGO第14集的话倒是没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plusSharp  
+##### 21730#       发表于 2025-2-13 22:27
+
+太急了，太蠢了，感觉比咒术回战漫画的决战还要降智
+
+*****
+
+####  Diong  
+##### 21731#       发表于 2025-2-13 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">完完全全的闹麻了，彻彻底底的闹剧。
+
+*****
+
+####  zhigui  
+##### 21732#       发表于 2025-2-13 22:27
+
+说句实话
+
+第七集比前面六集加起来都压抑
+
+不知道你们有没有这种感觉
+
+真正的压抑感
+
+无力的绝望感
+
+烂完的后悔感
+
+*****
+
+####  UNICORN00  
+##### 21733#       发表于 2025-2-13 22:27
+
+呃呃，两句话光速包饺子了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 21734#       发表于 2025-2-13 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413989&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 19:29</a>
+虽然之前一直有讨论如果把第二季放在今天放映会有啥反应，但没想到这下真要见证历史的重演了
+
+—— 来自 鹅 ...</blockquote>
+好，我自己来打自己的脸了
+
+感觉不如第二季炒作…狂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  壳壳牛  
+##### 21735#       发表于 2025-2-13 22:27
+
+这啥...五仁馅的饺子？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 21736#       发表于 2025-2-13 22:27
+
+这就是我说的啊，这就我想看的啊！给死人过生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陶矢  
+##### 21737#       发表于 2025-2-13 22:27
+
+这集的泪太廉价了 实在不行 真的烂完了有点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  航母掉头  
+##### 21738#       发表于 2025-2-13 22:27
+
+前一幕传奇雇佣兵看着像破防，后一幕居然就来包饺子，这转变未免太快了
+
+*****
+
+####  dc5281  
+##### 21739#       发表于 2025-2-13 22:27
+
+没办法出脑了是这样的，情绪起不来
+
+*****
+
+####  十九号大侠  
+##### 21740#       发表于 2025-2-13 22:27
+
+之前为什么不去，之后又为什么天天去啊，这转变好快啊，我中替身了？
+
+*****
+
+####  prinTTTT  
+##### 21741#       发表于 2025-2-13 22:28
+
+妈呀神经病的故事终于写完了期待下一集
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  废马尔  
+##### 21742#       发表于 2025-2-13 22:28
+
+羊应该是故意这么唱的，作为母鸡卡的第7集确实有点微妙，作为mygo的第20集还是有点味道
+
+*****
+
+####  超极巨鲨鲨  
+##### 21743#       发表于 2025-2-13 22:28
+
+太变态了，太爆笑了，太无语了
+
+*****
+
+####  hz2424520  
+##### 21744#       发表于 2025-2-13 22:28
+
+已经结束啦！
+
+*****
+
+####  阿卡拉兰斯  
+##### 21745#       发表于 2025-2-13 22:28
+
+申必，你演出呢
+人物塑造好像没崩，考虑到第四集后半水平好像就是要这么演的
+嗯，就是闹麻了
+我是在看捷德奥特曼吗，你怎么做到把一锅爆点的辣椒炒炸弹煮成白开水了
+
+*****
+
+####  operatbig  
+##### 21746#       发表于 2025-2-13 22:28
+
+这就洗白祥子？
+
+*****
+
+####  gaayas  
+##### 21747#       发表于 2025-2-13 22:28
+
+这live唱的也挺变态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  本间日阳  
+##### 21748#       发表于 2025-2-13 22:28
+
+这鸡动画真的越来越是个几把了。
+
+*****
+
+####  AP0rt_  
+##### 21749#       发表于 2025-2-13 22:28
+
+笑了一整集，结果最后被灯一嗓子嚎回现实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TAQ  
+##### 21750#       发表于 2025-2-13 22:28
+
+情绪递进的有点错位，算了下集有初华，赶紧爆发吧
+
+*****
+
+####  南宮凝香  
+##### 21751#       发表于 2025-2-13 22:28
+
+CCC 重聚拍成這樣
+
+跟打分手炮卻陽痿一樣
+
+*****
+
+####  风道北来  
+##### 21752#       发表于 2025-2-13 22:28
+
+按这种表现方法剩下6话一路打到反螺旋族时间都充裕得很
+
+就有一种无力和空虚感
+
+*****
+
+####  Chenlh  
+##### 21753#       发表于 2025-2-13 22:28
+
+怎么说呢，如果没有mujica，单把从睦双重人格到c团和解在排练上和mygo交替提出来，做个剧场版，好像整个mygo就完整了。
+
+目前剧本上最大的问题，就是俩个完全不相关的事（c团和解，mujica本身的故事）都要写，而且篇幅都很大，这集我最大的感觉就是，跑了半天题，终于可以入活了
+
+*****
+
+####  影伴光生  
+##### 21754#       发表于 2025-2-13 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415795&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-13 22:27</a>
+说句实话
+
+第七集比前面六集加起来都压抑
+
+不知道你们有没有这种感觉</blockquote>
+就是一种“大的要来了”喊了一个半月最后发现真要拉裤里的不甘
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 21755#       发表于 2025-2-13 22:28
+
+不过祥子这还真是吃硬不吃软，哈气哈了一圈，结果非得soyo来硬的直接扯去睦家就治好了是吧，光速软糯该道歉的道歉该哭的哭该跪的跪什么病都不犯了，难蚌
+
+*****
+
+####  yaneis  
+##### 21756#       发表于 2025-2-13 22:28
+
+<blockquote>zhigui 发表于 2025-2-13 22:27
+说句实话
+
+第七集比前面六集加起来都压抑
+
+不知道你们有没有这种感觉
+</blockquote>
+虽然都是预料内，但确实是一种强烈的无力感
+
+*****
+
+####  岬开斗  
+##### 21757#       发表于 2025-2-13 22:28
+
+预测一个nico90分以上，环大陆好评。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 21758#       发表于 2025-2-13 22:28
+
+<img src="https://img.saraba1st.com/forum/202502/13/222751fhsphhmhh8w950h5.png" referrerpolicy="no-referrer">
+
+<strong>04I5HXUIS1]8RT}R)5B)06B.png</strong> (98.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/222756bhyd2ad4s5kkz8dq.png" referrerpolicy="no-referrer">
+
+<strong>3B_AUWG{5%PU7O1TSS[[VD1.png</strong> (17.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:27 上传
+
+为了live包的饺子，独角兽她能包吗，没这个能力知道吧
+
+*****
+
+####  qlipho  
+##### 21759#       发表于 2025-2-13 22:29
+
+怎么还有令和种命的说法，这不是奔着邦多利铁血去了
+
+*****
+
+####  惨剧王者  
+##### 21760#       发表于 2025-2-13 22:29
+
+情绪没到位 无法沉浸式体验 是我的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SorakadoAo  
+##### 21761#       发表于 2025-2-13 22:29
+
+<img src="https://img.saraba1st.com/forum/202502/13/222917rajvjvzf3vrrv64j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:29 上传
+
+太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tuatha  
+##### 21762#       发表于 2025-2-13 22:29
+
+还以为能再拷打小祥两集的，行吧中单和adc到位了剩下的都好解决，当然之后肯定要加各种新设定拉满噱头的我懂
+
+*****
+
+####  supermangunv4  
+##### 21763#       发表于 2025-2-13 22:29
+
+mygo命运完结，mygo自由开始好评播放中！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Achlys  
+##### 21764#       发表于 2025-2-13 22:30
+
+让祥子直面自己对周围人造成的伤害，去试图弥补c团鸡团最后包饺子，大方向上逻辑上没错演出来怎么那么怪味饺子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  theti  
+##### 21765#       发表于 2025-2-13 22:30
+
+烂的够彻底的
+
+*****
+
+####  天空塔书记官  
+##### 21766#       发表于 2025-2-13 22:30
+
+wsd真nmNB啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  onlv星骸  
+##### 21767#       发表于 2025-2-13 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对这毫无渲染和铺垫，想一出是一出的剧情绝望了，我感觉前部动画也不是这样的啊？
+
+*****
+
+####  6030sylar  
+##### 21768#       发表于 2025-2-13 22:30
+
+还有要羊凹哭腔唱，是虐待羊还是虐待观众
+
+*****
+
+####  刑部姬真可爱  
+##### 21769#       发表于 2025-2-13 22:30
+
+还好我看楼里开始剧透的时候就屏蔽了剧透相关，看下来观感不至于有多好，但是至少算是从五六集正常的接下来，除了他们演新歌的那很出戏之外，其他的倒是挺合情理，楼友的一些reaction我感觉就是有了靶子再射箭，能理解但是我记得不至于<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  双语之城  
+##### 21770#       发表于 2025-2-13 22:30
+
+像是吃到了没煮熟的芥末饺子，难吃也要有个限度啊！
+
+*****
+
+####  有钱多买小人  
+##### 21771#       发表于 2025-2-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415757&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-13 22:26</a>
+咬牙切齿的表情不太对，我倾向于海子姐是想重组之后再炸一次，增加一点参与感
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+懂了，海子姐的梦想大概是在舞台上哭一次。
+
+
+*****
+
+####  阿兹尔  
+##### 21772#       发表于 2025-2-13 22:30
+
+让河豚们去多支持吧这集，cp还是卖了的
+
+*****
+
+####  rrrimo  
+##### 21773#       发表于 2025-2-13 22:30
+
+感觉不如看20分钟灵感菇二创
+
+*****
+
+####  http404  
+##### 21774#       发表于 2025-2-13 22:31
+
+这集双重人格切换那段真给看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 21775#       发表于 2025-2-13 22:31
+
+不知道怎么说。但请把提出“前面其他队友负责感化祥子和睦，后面灯负责唱歌。这样戏份才算工整”的点子的编剧踢出bangdream制作组。麻烦了。
+
+*****
+
+####  是谁的书画  
+##### 21776#       发表于 2025-2-13 22:31
+
+海玲突然就回心转意这个事也够微妙的，虽然我能够理解，但真的很微妙
+
+why does she even care？
+
+*****
+
+####  南宮凝香  
+##### 21777#       发表于 2025-2-13 22:31
+
+這話的內容要是平移到My狗 第13 話的話
+
+我可能會感到
+
+你給我看了6集最狂的少女樂隊動畫
+
+連抽大祥一個半月
+
+突然把所有東西回檔包餃子
+
+我除了笑真的沒第二個情緒了
+
+*****
+
+####  septer  
+##### 21778#       发表于 2025-2-13 22:31
+
+还是那个论断，当你因为前面出脑之后，情绪场是无法俘获你……
+
+这就很难和第一季诗超绊那样<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lyuhiu  
+##### 21779#       发表于 2025-2-13 22:32
+
+对比soyo蹲点蹲不回crychic，大祥蹲点就包饺子，这不是大女主是什么
+
+编辑的大手为所欲为
+
+*****
+
+####  爱莉希雅  
+##### 21780#       发表于 2025-2-13 22:32
+
+<img src="https://img.saraba1st.com/forum/202502/13/223214zj5uq7n5nj7vtnj6.jpg" referrerpolicy="no-referrer">
+
+<strong>7KYCMAXT]5N6}C7)1E@LS%2_tmb.jpg</strong> (37.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:32 上传
+
+*****
+
+####  aptx8285144  
+##### 21781#       发表于 2025-2-13 22:32
+
+真不行，气氛感觉还没到素世就已经在哭了，根本没法和go团那次神回比<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  椎名mahuyo  
+##### 21782#       发表于 2025-2-13 22:32
+
+前半部我看着生硬得很，但是乐子很多
+
+后半感觉还是可以，C团这故事总算屁股擦完了
+
+*****
+
+####  天空塔书记官  
+##### 21783#       发表于 2025-2-13 22:32
+
+剧本感觉和实际的演出对不太上，这监督不会真越权，和系构撕起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  最近卡池有毒吧  
+##### 21784#       发表于 2025-2-13 22:32
+
+苦来兮苦第一集<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+演奏春日影➕靠迈过c团这个心结，让祥子前进一步。
+可惜总感觉差了一点啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21785#       发表于 2025-2-13 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 21786#       发表于 2025-2-13 22:33
+
+漏油这就是被舅舅剧透的结果吧，脑子先射好箭了看谁都像靶子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 21787#       发表于 2025-2-13 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉真烂了吧，后面不会都是闹麻了的剧情吧，大喵我感觉就是闹麻了
+
+*****
+
+####  nt2013  
+##### 21788#       发表于 2025-2-13 22:33
+
+估计是想做出排练的效果 唱的时候音效怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 21789#       发表于 2025-2-13 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">饺子嘛，我吃我吃
+
+*****
+
+####  莱茵哈鲁特  
+##### 21790#       发表于 2025-2-13 22:34
+
+‍这集只有开头的打戏有意思，后面就太无聊了，包饺子包的太平铺直述了。矛盾冲突解决的太轻易，让前面的铺垫显得闹麻了。还有就是这歌唱的，怎么能这么拉……
+
+*****
+
+####  tuatha  
+##### 21791#       发表于 2025-2-13 22:34
+
+海铃肯定要搞事的大概是理智过了头没人爱了，看了演出现在也想当人了
+
+*****
+
+####  thistimeforlife  
+##### 21792#       发表于 2025-2-13 22:34
+
+绵软无力的饺子，开火车解决c团问题，让羊故意这么唱也是真的没蹦住
+
+*****
+
+####  AveMujica  
+##### 21793#         楼主| 发表于 2025-2-13 22:34
+
+【出演确定】
+
+4月26日(周六)・27日(周日)
+
+MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」
+
+CRYCHIC确定参演。
+
+<img src="https://img.saraba1st.com/forum/202502/13/223346x8j0cjcu8qqq9qkc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/223423fu5xqdqu5x954q57.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:34 上传
+
+[https://bang-dream.com/events/mygo-avemujica2025](https://bang-dream.com/events/mygo-avemujica2025)
+
+*****
+
+####  阿兹尔  
+##### 21794#       发表于 2025-2-13 22:34
+
+官号评论好评也不多啊，总不能都是我们看了剧透的锅吧
+
+*****
+
+####  怀沙汨罗  
+##### 21795#       发表于 2025-2-13 22:35
+
+放弃思考的话，真是完美的乐子，这live演出堪比黑色高级车了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  虚无缥缈的光阴  
+##### 21796#       发表于 2025-2-13 22:35
+
+第一首歌真的唱的很难听
+
+*****
+
+####  怀沙汨罗  
+##### 21797#       发表于 2025-2-13 22:36
+
+幽默漏油还在怪剧透，看来承认剧本和演出烂完真的很难。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  清江望月  
+##### 21798#       发表于 2025-2-13 22:36
+
+这剧的狗屎逻辑是真的没救了，这一集每一个人的剧情都尬得要死。
+
+*****
+
+####  扶桑洛槿  
+##### 21799#       发表于 2025-2-13 22:36
+
+太抽象了，编剧是因为想起来不剩几集了，所以光速包饺子么。这集C团和解了，但A团真的有必要重组么？
+
+突发奇想，不会睦的人格分裂设定，是为了来包A团的饺子吧。
+
+从祥睦光速包完饺子来看，上集🐘那句不认识实属是抽陀螺用力过猛了，按这水平，老登迈巴赫对🐘造成得负面影响估计也是圆不回来了
+
+*****
+
+####  zhigui  
+##### 21800#       发表于 2025-2-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415995&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-2-13 22:34</a>
+
+【出演确定】
+
+4月26日(周六)・27日(周日)
+
+MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」</blockquote>
+wsd你是人类吗？
+
+啊？啊？啊？
+

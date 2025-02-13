@@ -959,3 +959,13 @@ GP-31最后通牒
 打西线就有点难受了
 另外500kg感觉突然不好使了，不知道是不是出了bug
 
+
+*****
+
+####  保科智子  
+##### 5759#       发表于 2025-2-13 22:33
+
+马上有大烟花看了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
