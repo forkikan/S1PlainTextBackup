@@ -12699,3 +12699,20 @@ Plazma
 鹤卷和米津都喜欢0080，访谈中多次提到，舞台也正好在side6， ...</blockquote>
 都0080了，不用肯普法说不过去吧，也是蓝的。
 
+
+*****
+
+####  纪寞  
+##### 6895#       发表于 2025-2-13 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412014&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-13 16:05</a>
+
+这个应该是废案了吧，小册子上有几个类似Rise heavy的废设
+
+现在机体编号就写的gms-Ω，和红高的gms-α对 ...</blockquote>
+外观倒不重要，主要是Rise heavy这个名字。现在gqx这个名字很明显是用来隐藏真名。
+
+而那个泄漏机设的设定目前也基本和正剧吻合，估计这个泄漏的已经是大纲敲定时的东西了。
+
+但如果Rise heavy是真名的话，我又想不出这名字有什么隐藏的必要，字数和gqx倒是一样。
+

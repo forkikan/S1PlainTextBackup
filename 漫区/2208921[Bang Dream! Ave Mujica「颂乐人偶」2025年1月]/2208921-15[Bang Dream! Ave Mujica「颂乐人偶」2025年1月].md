@@ -8093,3 +8093,45 @@ nga的祥厨已经进入了三角初华阶段
 
 炒作真的有用，还敢黑mggm吗
 
+
+*****
+
+####  凉良  
+##### 21460#       发表于 2025-2-13 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412022&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 16:06</a>
+
+日本人那边这片热度就近咋样啊，感觉有点信息茧房了</blockquote>
+路边一条  流媒体20+排名
+
+*****
+
+####  阿卡拉兰斯  
+##### 21461#       发表于 2025-2-13 16:17
+
+这图透怎么越来越夸张了，如果不是假的那母鸡卡怎么样姑且不提，母鸡卡二创估计能上一个新台阶<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 21462#       发表于 2025-2-13 16:17
+
+炒作真的有用，还敢黑mggm吗
+
+*****
+
+####  せきぼく  
+##### 21463#       发表于 2025-2-13 16:19
+
+还在内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五集出来就该意识到前四集就是为了后面心死祥那点醋刻意设置的环境罢了，但凡有一点找补的想法都是在破坏之后的情绪流
+
+另外日本人说什么悬疑推理都建议不要太当真，他们认知中大概有一点要素就能算进去的，之前还说心理恐怖呢但是完全没拍出感觉来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">每次看都尬住
+
+
+*****
+
+####  六道明  
+##### 21464#       发表于 2025-2-13 16:22
+
+就要成真正字面意义上的泡面番了，宣传看着好看，打开只有一袋粉包，封面上的牛肉和青菜更是全都没有，各种爆典就像味精一样，吃两顿可以，一个季度下来怕是要反胃了。
+
