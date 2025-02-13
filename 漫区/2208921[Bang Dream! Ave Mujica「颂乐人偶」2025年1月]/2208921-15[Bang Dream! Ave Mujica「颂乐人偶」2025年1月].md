@@ -15407,3 +15407,175 @@ ED里写了这首歌叫 成人歌2，顺带一提成人歌完全版在MyGO BD里
 不过虽然我一直对独角兽不太喜欢，但是这集我觉得剧情的问题反而不大，导致成为笑柄是因为分镜和演出 ...</blockquote>
 看起来像是剧本和监督决裂了，剧本怎么写就怎么安排分镜，完全没有讨论和打磨。
 
+
+*****
+
+####  shinoverse  
+##### 22168#       发表于 2025-2-14 00:37
+
+ 本帖最后由 shinoverse 于 2025-2-14 00:40 编辑 
+
+虽然但是
+
+被骂的最多的音响部分是柿本广大的职责范围
+
+诗超绊也是释放情绪，但数值和机制做到了既要又要
+怎么到原版春日影这里就只能要一个机制了，因为丧曲不能太好听？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 22169#       发表于 2025-2-14 00:38
+
+唉不是，真抽象吧。木子米就被莫提斯放出来一下就恢复正常人了，也不表达障碍了，也不一个字一个字往外蹦了，还学会表达感情和道歉了。那你机能这么正常你之前还把控制权主动交给莫提斯是为什么呢我想问问？而且之前还遍体鳞伤的交控制权一睡不醒，现在就成了“不行！我要见我的好集美！你快放了我！”那前面6集是演了个勾八啊？合着你就是缺觉了，睡两天就好了是吧？？？实在太变态了我草。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 22170#       发表于 2025-2-14 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417272&amp;ptid=2208921" target="_blank">守望者404 发表于 2025-2-13 23:37</a>
+
+海玲是在咬牙生气他们怎么这么有团魂吗？还是被灯姐唱的感动了</blockquote>
+所有表情都截了，反正个人觉得不太像感动
+
+<img src="https://img.saraba1st.com/forum/202502/14/003751fyaa6t0wmfx3d0yh.jpg" referrerpolicy="no-referrer">
+
+<strong>海玲EP7截图.jpg</strong> (541.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 00:37 上传
+
+*****
+
+####  FanFun  
+##### 22171#       发表于 2025-2-14 00:39
+
+排掉大墨这颗雷后还有大喵呢，还是乐观不起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 22172#       发表于 2025-2-14 00:39
+
+开头bgm乱放就够难绷了，编剧和监督吵架就全体摆烂了是吧
+
+*****
+
+####  zhzij111  
+##### 22173#       发表于 2025-2-14 00:39
+
+ 本帖最后由 zhzij111 于 2025-2-14 00:41 编辑 
+
+卖狗成员确实不该参与母鸡卡，本来第一季都塑造完整了。
+
+结果非要塞进母鸡卡一起演，这下好了，成圣的成圣，吸冰的吸冰，母鸡卡的世界观还存不存在不好说，但是卖狗的世界观真要烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 22174#       发表于 2025-2-14 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418007&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-14 00:38</a>
+
+唉不是，真抽象吧。木子米就被莫提斯放出来一下就恢复正常人了，也不表达障碍了，也不一个字一个字往外蹦了 ...</blockquote>
+硬要说的话有素食叫motis和最后乐奈看着睦的特写镜头，以及下集预告有睦“沉水里”的画面，所以或许有伏笔
+
+*****
+
+####  Fakerの幻影  
+##### 22175#       发表于 2025-2-14 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一坨屎，饺子都包不好
+
+
+*****
+
+####  darkXcross  
+##### 22176#       发表于 2025-2-14 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417975&amp;ptid=2208921" target="_blank">Putredinus 发表于 2025-2-14 00:34</a>
+
+不是，为什么那么多人吐槽歌不好听的。那么明显的哭腔，明摆着就是说情绪激动唱不出来，近似一种在“念、说 ...</blockquote>
+因为这里需要及其合理的情绪递进和及其细腻的演出安排才能支持把故意唱跑调的歌去托起整段LIVE和剧情，现在第七集做到这些条件哪怕十分之一了吗？
+
+*****
+
+####  NOSbeam  
+##### 22177#       发表于 2025-2-14 00:42
+
+我和daylight和解了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  plok201  
+##### 22178#       发表于 2025-2-14 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417975&amp;ptid=2208921" target="_blank">Putredinus 发表于 2025-2-14 00:34</a>
+
+不是，为什么那么多人吐槽歌不好听的。那么明显的哭腔，明摆着就是说情绪激动唱不出来，近似一种在“念、说 ...</blockquote>
+mygo也有这种，为啥没人说，一是他后面有唱的好的抵消，二是唱的差的部分没那么长
+
+然后其他番也不是没有哭腔唱歌，哪有这种断气一样把大伙的情绪全给弄下来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 22179#       发表于 2025-2-14 00:42
+
+场外哭来兮苦参加对邦，情人节上FIRST TAKE ，太变态了wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 22180#       发表于 2025-2-14 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418007&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-14 00:38</a>
+唉不是，真抽象吧。木子米就被莫提斯放出来一下就恢复正常人了，也不表达障碍了，也不一个字一个字往外蹦了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">mujica已经没了，所以痊愈了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  sauron.j  
+##### 22181#       发表于 2025-2-14 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417997&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-14 00:37</a>
+
+虽然但是
+
+被骂的最多的音响部分是柿本广大的职责范围</blockquote>
+其实能看出来这集的live演出有刻意的按着，估计是要和鸡团后面主场的演出效果拉开点差距，不然喧宾夺主
+
+*****
+
+####  cxj649  
+##### 22182#       发表于 2025-2-14 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418007&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-14 00:38</a>
+
+唉不是，真抽象吧。木子米就被莫提斯放出来一下就恢复正常人了，也不表达障碍了，也不一个字一个字往外蹦了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">前面我就说了，现在睦真的是原来狗13鸡3之前的“木头人”吗233
+
+小猫都意味深长看了一看，无论人格融合还是睦或者莫演的也没什么奇怪
+
+*****
+
+####  江口夕  
+##### 22183#       发表于 2025-2-14 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418081&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-14 00:46</a>
+前面我就说了，现在睦真的是原来狗13鸡3之前的“木头人”吗233
+
+小猫都意味深长看了一看，无论人格融合还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">莫女士负责崩溃前的危机管理，相当于保险丝，判断大祥不会爆炸就把人放出来了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
