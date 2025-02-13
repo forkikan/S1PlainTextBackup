@@ -1974,3 +1974,28 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 欲知后事如何，请玩空之轨迹1st
 
+
+*****
+
+####  kanata  
+##### 7698#       发表于 2025-2-13 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414683&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 21:07</a>
+
+当然是我眼镜哥啊 不受时间束缚 随便传送到太空</blockquote>
+肉身传上去直接原地去世了，要不一人一个创世变身魔装鬼再传吧，我觉得还不如指望结社掏出台宇宙战舰来好了
+
+*****
+
+####  Aeons  
+##### 7699#       发表于 2025-2-13 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">其实当时说也只是说知道了这件事，20000次轮回都没有解决的事，总统也知道啊，但怎么解决呢？
+
+*****
+
+####  naclken.  
+##### 7700#       发表于 2025-2-13 21:41
+
+打完第一章，事务所吃遍全市，一天吃了87种料理，没给你们撑死啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
