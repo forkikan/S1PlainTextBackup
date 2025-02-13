@@ -219,3 +219,26 @@ Stellar Blade PC version supports 22 languages and full lip sync with voice supp
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼还算有点脑子的
 以前se的古墓丽影重启和科乐美的老游戏即使是steam也搞日区独占日语音
 
+
+*****
+
+####  牙狼GARO  
+##### 1918#       发表于 2025-2-13 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411088&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-2-13 14:35</a>
+索尼还算有点脑子的
+以前se的古墓丽影重启和科乐美的老游戏即使是steam也搞日区独占日语音 ...</blockquote>
+主要是我受不了韩语叽叽喳喳
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 1919#       发表于 2025-2-13 15:06
+
+前不久300买的ps5版感觉怨种了
+还没打多少就要PC了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

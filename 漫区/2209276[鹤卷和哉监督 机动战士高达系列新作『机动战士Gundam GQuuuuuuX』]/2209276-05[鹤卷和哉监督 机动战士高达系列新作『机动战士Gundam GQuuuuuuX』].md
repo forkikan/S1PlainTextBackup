@@ -12590,3 +12590,17 @@ Plazma
 说实话鹤卷说过还喜欢勇士这样有悲剧性质的MS
 感觉还是有机会出场比如这作某人从废弃方案捞出来搞专用机
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6887#       发表于 2025-2-13 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409883&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-13 12:38</a>
+鸡瘟会出来哪些人都能猜得到，无非马克杯拉尔黑三连强尼这些
+
+联邦会是谁呢……真不好猜 ...</blockquote>
+你们呀，不期待林有德、史列加和卡姆兰再次同框的画面麽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
