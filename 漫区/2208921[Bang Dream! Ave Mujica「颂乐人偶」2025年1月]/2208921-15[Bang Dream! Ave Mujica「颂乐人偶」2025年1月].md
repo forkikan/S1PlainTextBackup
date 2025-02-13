@@ -7661,3 +7661,65 @@ QQ图片20250213151338.jpg
 怎么有种京吹三12集的美，以为雨过天晴实际彻底爆炸，清算前几集一直在发癫的恶役角色，主角圣人化，老中破 ...</blockquote>
 黄大叔的戏份都给粉毛拿了（
 
+
+*****
+
+####  66367749  
+##### 21420#       发表于 2025-2-13 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410210&amp;ptid=2208921" target="_blank">iiiiiiiiii 发表于 2025-2-13 13:07</a>
+傻逼玩意，角畜和柿畜上我黑名单了，以后见一次打一次低分。</blockquote>
+看了前面几集还能持续相信不停用藏了和假药来解释一个又一个剧情不合理点本身就挺抽象的了，即使最后整了几个高质量饺子回也掩盖不了前面一泡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 21421#       发表于 2025-2-13 15:20
+
+<blockquote>yaneis 发表于 2025-2-13 15:17
+黄大叔的戏份都给粉毛拿了（</blockquote>
+最后那个背负一切的黄耶稣形象不是给了牢祥嘛
+
+粉毛应该算真由（大概）
+
+*****
+
+####  huxiaopao163  
+##### 21422#       发表于 2025-2-13 15:21
+
+下集预告里喵梦碰睦妈，内鬼说要来了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 21423#       发表于 2025-2-13 15:21
+
+nga的祥厨已经进入了三角初华阶段
+彻底黑化，准备枪杀老登
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 21424#       发表于 2025-2-13 15:22
+
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  看穿一切的鱼  
+##### 21425#       发表于 2025-2-13 15:24
+
+大喵要接新命令了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  滑稽Captain  
+##### 21426#       发表于 2025-2-13 15:27
+
+其实爱音一直都是路边一条，是早期仿佛杂鱼偶像片+第一个出场给了太多人她好像是主角的错觉
+
