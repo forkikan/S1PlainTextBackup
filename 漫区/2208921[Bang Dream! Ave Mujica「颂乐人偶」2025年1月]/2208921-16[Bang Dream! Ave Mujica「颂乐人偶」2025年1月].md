@@ -1454,3 +1454,21 @@ mujica的剧本就是铺垫太多了，以至于无论剧情怎样都感觉能�
 
 这集5ch到现在不说一边倒吧，大多数好评是没什么问题的
 
+
+*****
+
+####  cxj649  
+##### 22323#       发表于 2025-2-14 03:49
+
+红迪白皮也是好评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  木板春香  
+##### 22324#       发表于 2025-2-14 03:53
+
+  好评涌出来了
+
