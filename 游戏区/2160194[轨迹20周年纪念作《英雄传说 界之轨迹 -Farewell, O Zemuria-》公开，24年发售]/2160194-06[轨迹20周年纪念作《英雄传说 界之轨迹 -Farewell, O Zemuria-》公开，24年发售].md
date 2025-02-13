@@ -1697,3 +1697,56 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 由手机上传
 2025-2-13 19:13 上传
 
+
+*****
+
+####  卢迪克  
+##### 7675#       发表于 2025-2-13 19:15
+
+<blockquote>大厨麦当牛 发表于 2025-2-13 18:57
+说白了还是大总统过于孤注一掷了，范恩说他太独了还真没错，别的国家虽然没钱，但可以出各种奇人异士啊，而 ...</blockquote>
+集合帝国利贝尔财团mk社的技术了啊
+
+<img src="https://img.saraba1st.com/forum/202502/13/191353rq428gwlmtd21qpz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250213_191206.jpg</strong> (186.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-13 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/191358dj8v8scjj5jjbfxf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250213_191213.jpg</strong> (192.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-13 19:13 上传
+
+*****
+
+####  alucardcz  
+##### 7676#       发表于 2025-2-13 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413748&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-13 18:57</a>
+
+说白了还是大总统过于孤注一掷了，范恩说他太独了还真没错，别的国家虽然没钱，但可以出各种奇人异士啊，而 ...</blockquote>
+感觉大总统只是爱女儿 
+
+对了学妹她妈和奶奶是怎么死的   就算不当保险学妹是不是也会死？
+
+
+*****
+
+####  kanata  
+##### 7677#       发表于 2025-2-13 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413903&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 19:19</a>
+
+感觉大总统只是爱女儿 
+
+对了学妹她妈和奶奶是怎么死的   就算不当保险学妹是不是也会死？ ...</blockquote>
+她妈病死的奶奶没说，我觉得肯定是这19999线已经发动过2次大重置然后被这俩人介入过了
+
