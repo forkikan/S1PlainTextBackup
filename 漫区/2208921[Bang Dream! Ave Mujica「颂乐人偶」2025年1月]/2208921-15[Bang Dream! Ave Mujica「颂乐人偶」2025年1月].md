@@ -9151,3 +9151,55 @@ CCC是向A团展示羁绊的“第三季的PPP”，而她们则是现在正经�
 乐</blockquote>
 有没有可能是个人live啊，和mujica无关。
 
+
+*****
+
+####  安娜导函数  
+##### 21563#       发表于 2025-2-13 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414227&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-13 19:58</a>
+另外打个预防针，都第七集了还不拷打喵梦
+
+看来家人🦐喵梦在编剧眼里真的没问题，后面都会是正论高光了</blockquote>
+怎么都第7话了还指望拷打大喵老师？？第5话我就说了大喵老师肯定是后期mijica2.0 重组的核心好伐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 21564#       发表于 2025-2-13 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能说还好我不怎么粉角色，看了剧透只觉得乐，不过感觉感情铺垫多半不到位最后节目效果可能垮掉
+
+*****
+
+####  yaneis  
+##### 21565#       发表于 2025-2-13 20:07
+
+ 本帖最后由 yaneis 于 2025-2-13 20:08 编辑 
+
+感情是会铺垫到位的，铺垫的是谁就不好说了，取决于编剧觉得是ccc重要还是木箱重要
+
+*****
+
+####  南宮凝香  
+##### 21566#       发表于 2025-2-13 20:09
+
+提早給Anon Tokyo 小姐點一首霉霉的 &lt;You belong with me &gt;
+
+
+*****
+
+####  单脚着地  
+##### 21567#       发表于 2025-2-13 20:14
+
+不该是《他一定很爱你》吗？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 21568#       发表于 2025-2-13 20:15
+
+怎么真有种末日降临的感觉，我好害怕
+
+不过这也很符合ave mujica的世界观
+

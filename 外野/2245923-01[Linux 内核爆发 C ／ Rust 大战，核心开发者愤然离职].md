@@ -1609,3 +1609,19 @@ zig编译太好使了以至于目前最常见的时候都是在干编译的活�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  d2loader  
+##### 122#       发表于 2025-2-13 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414230&amp;ptid=2245923" target="_blank">darklinden 发表于 2025-2-13 19:58</a>
+请问对于zig编写的bun存在各种奇特内存泄漏的问题怎么看？
+
+zig编译太好使了以至于目前最常见的时候都是 ...</blockquote>
+zig可能靠这个这个独门绝活活下去的
+
+希望rust这边早点造好allocator-api 2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
