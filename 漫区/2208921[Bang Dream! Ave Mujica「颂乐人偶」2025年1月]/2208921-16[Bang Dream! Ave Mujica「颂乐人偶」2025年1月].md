@@ -1702,3 +1702,75 @@ MyGO成员在上一话就彻底解除了对Crychic的心结，因此这场Live�
 大祥只有拯救她爹一条路可以包。大祥现在有c团的和解和睦的支持只能说如果会写的话下面就是爽文了。问题是独角兽会不会写
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  玖羽  
+##### 22343#       发表于 2025-2-14 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419047&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 07:30</a>
+
+只能说神经病了，没人说这集把大祥包好了，大祥还没开始包呢。
+
+这集包的是上一季大祥扭曲的建队动机和睦的 ...</blockquote>
+我知道第7话必然是看似解决，但是即使是这样，也不能用话疗，乐队番释放高潮的形式必须是Live，否则一定会留下欲求不满的感觉
+
+我现在只能说，既然已经这样了，预计10或11话的大Live最好给我搞好点，别再话疗解决之后例行公事
+
+*****
+
+####  江口夕  
+##### 22344#       发表于 2025-2-14 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419061&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-14 07:36</a>
+我知道第7话必然是看似解决，但是即使是这样，也不能用话疗，乐队番释放高潮的形式必须是Live，否则一定会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gbc：？
+不知道我还以为gbc的live你们很满意来着。
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  firestorm5  
+##### 22345#       发表于 2025-2-14 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419047&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 07:30</a>
+
+只能说神经病了，没人说这集把大祥包好了，大祥还没开始包呢。
+
+这集包的是上一季大祥扭曲的建队动机和睦的 ...</blockquote>
+祥爹洗白就是旁听一次live的事，这番的现实要素只是为了抽祥子陀螺而存在，现在包完饺子就回到音乐番的轨道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 22346#       发表于 2025-2-14 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419064&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 07:37</a>
+
+gbc：？
+
+不知道我还以为gbc的live你们很满意来着。</blockquote>
+你不知道我对GBC的评价非常低吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃苑軒風  
+##### 22347#       发表于 2025-2-14 07:39
+
+<img src="https://p.sda1.dev/22/f044d3be239e20da86bbc280b10c1bea/CMP_20250214073843719.jpg" referrerpolicy="no-referrer">
+
+一觉起来看到飞奔7.8了
+
+
+*****
+
+####  江口夕  
+##### 22348#       发表于 2025-2-14 07:40
+
+ 本帖最后由 江口夕 于 2025-2-14 07:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419068&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-14 07:38</a>
+你不知道我对GBC的评价非常低吗 现在你知道了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">只能说大家看的不是一个东西，你评价低关我毛事，我对mygo评价还低呢。mygo难道脱离了小女生闹麻了的犯愁么，诗超绊一帮人没看懂就搁那跟风叫好，我当时就想切割这些人了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
