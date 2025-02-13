@@ -2052,3 +2052,13 @@ goty没让我破防，这玩意给我干破防了
 
 感觉，没有魂游本体画符联机耐玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，还强制要拉两个朋友。
 
+
+*****
+
+####  松风君  
+##### 224#       发表于 2025-2-13 17:21
+
+Iron pineapple对网测批评蛮狠，"把关卡设计、精心布置的敌人、探索要素都去掉只剩下了战斗系统的魂，就像没有吐司的黄油"
+
+Fami通编辑貌似是评测员里技术不太够或者运气不太好的，拼尽全力几次都无法来到尾王面前，有强烈预感组野生队可能就会是这体验<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
