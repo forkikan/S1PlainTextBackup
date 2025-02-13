@@ -2063,3 +2063,12 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 我估计很多人不知道之前解包帖有提到过鲁尼打范恩时有句疑似可能跟他动机有关的台词【无论舍弃什么，为了艾 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别啊 这也太没意思了
 
+
+*****
+
+####  Aeons  
+##### 7707#       发表于 2025-2-13 22:37
+
+たとえ何を捨てようとも──……のためにも…（エレイン/環境音にかき消される）
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">考虑到和のために的区别，我认为翻成这也是为了艾蕾因更好
+

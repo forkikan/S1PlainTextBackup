@@ -11198,3 +11198,780 @@ wsd你是人类吗？
 
 啊？啊？啊？
 
+
+*****
+
+####  theti  
+##### 21801#       发表于 2025-2-13 22:36
+
+漂亮国该雇楼友去洗地，不管啥剧情就是我觉得挺好挺感动
+
+*****
+
+####  asion617  
+##### 21802#       发表于 2025-2-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415769&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-13 22:26</a>
+
+？？？？怎么羊真人出现了？</blockquote>
+the first take, 动画播之前就已经发预告了
+
+*****
+
+####  琉璃苑軒風  
+##### 21803#       发表于 2025-2-13 22:36
+
+脱水后的逻辑是没错，但是观感好奇怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 21804#       发表于 2025-2-13 22:37
+
+但凡wsd真想炒作呢，怎么感觉炒不起来了
+
+不会真要靠初华当炸弹吧，那估计也是个哑弹<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 21805#       发表于 2025-2-13 22:37
+
+海铃那嘴角不爽，可能是想起了自己的第一个乐队
+
+*****
+
+####  pokemon最爱  
+##### 21806#       发表于 2025-2-13 22:37
+
+这集我觉得主要两个问题，一个是主场太拼命了（确信），另一个就是这集放在母鸡卡动画里氛围格格不入（但如果这集放卖狗里就没问题）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 21807#       发表于 2025-2-13 22:37
+
+官方还是不够会烂炒，照我说就该把CCC出演决定在播出前放出来
+我承认我破防了，所有播出前破防的人大概率都没破防，我这个播出前觉得怎么都不可能破防的人破防了
+他怎么做到我3集连播看完后每一集追的都给我全新体验的<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 21808#       发表于 2025-2-13 22:37
+
+两首歌都很难听，但不妨碍ccc团厨喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 21809#       发表于 2025-2-13 22:37
+
+海铃大概是看c团这么有羁绊羡慕了这次想自己努力一次争取吧………大概……毕竟前面立希才点过她，不过完全没解释海铃到底为什么愿意把am当特殊的归宿真的会有后续剧情吗
+
+*****
+
+####  remedios010000  
+##### 21810#       发表于 2025-2-13 22:37
+
+两季下来唯一看完还可以安心入睡的一集<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  屑屑代沟尼亚  
+##### 21811#       发表于 2025-2-13 22:37
+
+就这点东西非拖到第七集干嘛
+
+第四集炸完团就可以让牢祥去门口罚站了啊 
+
+多拷打两集的意义在哪呢我想问问
+
+*****
+
+####  xpisces  
+##### 21812#       发表于 2025-2-13 22:38
+
+情感的起承转合真的没有一点铺垫，而且节奏显然非常赶工，音响监督简直是灾难，这开头的吵架bgm配的什么玩意儿
+
+*****
+
+####  kiddom  
+##### 21813#       发表于 2025-2-13 22:38
+
+。。。气笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  卫星露天咖啡屋  
+##### 21814#       发表于 2025-2-13 22:38
+
+从剧情角度来说，大逻辑没错，小逻辑问题很大；同理细节剧情没错，整体剧情问题很大。从演出角度来说，同样是凑一块边演边哭，显得比mygo那会生硬不少。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 21815#       发表于 2025-2-13 22:38
+
+我靠了，wsd只想炒作啊，你动画都没做好，只有二偶痴会买单吧
+
+*****
+
+####  aptx8285144  
+##### 21816#       发表于 2025-2-13 22:38
+
+羊和音监发挥真不好，回忆杀前后那里算是挽回了一些，撇开其他不谈，五人回忆杀出现前实在给人一种编辑大手命令众人哭的感觉，柿本和演出是不会烘托气氛吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，五人回忆杀开启后算是好很多了
+
+*****
+
+####  ashero  
+##### 21817#       发表于 2025-2-13 22:38
+
+还真是母鸡卡成员反向拉大祥剧情啊
+
+*****
+
+####  Bieaeml  
+##### 21818#       发表于 2025-2-13 22:38
+
+本来”这是最后一次了，属于C团的春日影.jpg“多给点细分和情感酝酿，但是就光速一集和解结果演得像分手炮<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+果然回忆都是有滤镜的，C团就这.jpg
+
+*****
+
+####  darkXcross  
+##### 21819#       发表于 2025-2-13 22:39
+
+第七集可以看出来编剧已经完全放弃了
+
+*****
+
+####  影伴光生  
+##### 21820#       发表于 2025-2-13 22:39
+
+所以春日影重唱的时候，那些crychic的回忆是真实存在的吗，如果是幻想的话就更变态了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Azcarlo  
+##### 21821#       发表于 2025-2-13 22:39
+
+猜中了，巨他妈生硬的收尾，为了收C团这个破伏笔浪费那么多集在这个上面。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+估计后面就是鸡团拉人加一个初华的炸，没有什么悬疑全是直给，就这能看感动的也是神人了。这编剧纯菜。
+
+*****
+
+####  最近卡池有毒吧  
+##### 21822#       发表于 2025-2-13 22:39
+
+独角兽说你以为这是母鸡卡动画，这其实是苦来兮苦动画，也是一种爆点
+
+*****
+
+####  翼宿一  
+##### 21823#       发表于 2025-2-13 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer"> 虽然主场 LIVE 没让出去，但又当一集工具人不还是输麻了，总不能让七追六完了让彩排追正式 LIVE 吧
+
+*****
+
+####  Redimercia  
+##### 21824#       发表于 2025-2-13 22:40
+
+下午我还在说这番让我场内场外都追得很开心，晚上就整这么无聊一出
+前6集我都挺乐的，这一集让我有弃番的念头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Hchan  
+##### 21825#       发表于 2025-2-13 22:40
+
+还挺喜欢这集，几位妹妹终于把c团祛魅成一个普通的团队和时光，自己都发现闹麻了，但又是独一无二的独属于自己的青春
+
+所以独角兽也和当年被背叛的自己和解了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21826#       发表于 2025-2-13 22:40
+
+内鬼说这次应该死绝了，编剧就是纯为了自己的xp写了一堆逻辑错乱的情节，也不用编假药为第四集找补了
+
+*****
+
+####  tuatha  
+##### 21827#       发表于 2025-2-13 22:41
+
+前面几集还是烂炒太多了
+
+*****
+
+####  ml1642879  
+##### 21828#       发表于 2025-2-13 22:41
+
+莫老师隐身最干脆的一次<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乙津夢  
+##### 21829#       发表于 2025-2-13 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然理性告诉我制作组这集大概想要拍出个什么效果，但感性上看的我全程只想笑HAHAHA
+
+*****
+
+####  南宮凝香  
+##### 21830#       发表于 2025-2-13 22:41
+
+可以下判斷了
+
+MyGo 跟 C團就是上對下的關係
+
+詩超伴可以殺三百個成人之歌
+
+*****
+
+####  operatbig  
+##### 21831#       发表于 2025-2-13 22:42
+
+还有机会拷打祥子吗？？？
+
+*****
+
+####  纯白花火  
+##### 21832#       发表于 2025-2-13 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是春日影没唱好，唱好气氛就有了，可惜
+
+*****
+
+####  看穿一切的鱼  
+##### 21833#       发表于 2025-2-13 22:42
+
+还是节奏的问题，这要是第4-5集正好。何必多抽两集陀螺呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无音命题  
+##### 21834#       发表于 2025-2-13 22:43
+
+没法说了，前面弄得烂，多少也算是烂活，这集完事儿直接埋了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这玩意真能把观众情绪调动起来吗
+
+*****
+
+####  天空塔书记官  
+##### 21835#       发表于 2025-2-13 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416180&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-13 22:40</a>
+内鬼说这次应该死绝了，编剧就是纯为了自己的xp写了一堆逻辑错乱的情节，也不用编假药为第四集找补了 ...</blockquote>
+看PV的红光电视就知道第四集还有东西在藏，搞不好就是为了之后整个回马刀，但不排除依旧是闹麻了的可能<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  未来起航  
+##### 21836#       发表于 2025-2-13 22:44
+
+分手炮就炮了，爱音还在台下愣看着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">起码剧本安排避个嫌罢？
+
+
+*****
+
+####  theti  
+##### 21801#       发表于 2025-2-13 22:36
+
+漂亮国该雇楼友去洗地，不管啥剧情就是我觉得挺好挺感动
+
+*****
+
+####  asion617  
+##### 21802#       发表于 2025-2-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415769&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-13 22:26</a>
+
+？？？？怎么羊真人出现了？</blockquote>
+the first take, 动画播之前就已经发预告了
+
+*****
+
+####  琉璃苑軒風  
+##### 21803#       发表于 2025-2-13 22:36
+
+脱水后的逻辑是没错，但是观感好奇怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 21804#       发表于 2025-2-13 22:37
+
+但凡wsd真想炒作呢，怎么感觉炒不起来了
+
+不会真要靠初华当炸弹吧，那估计也是个哑弹<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 21805#       发表于 2025-2-13 22:37
+
+海铃那嘴角不爽，可能是想起了自己的第一个乐队
+
+*****
+
+####  pokemon最爱  
+##### 21806#       发表于 2025-2-13 22:37
+
+这集我觉得主要两个问题，一个是主场太拼命了（确信），另一个就是这集放在母鸡卡动画里氛围格格不入（但如果这集放卖狗里就没问题）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 21807#       发表于 2025-2-13 22:37
+
+官方还是不够会烂炒，照我说就该把CCC出演决定在播出前放出来
+我承认我破防了，所有播出前破防的人大概率都没破防，我这个播出前觉得怎么都不可能破防的人破防了
+他怎么做到我3集连播看完后每一集追的都给我全新体验的<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 21808#       发表于 2025-2-13 22:37
+
+两首歌都很难听，但不妨碍ccc团厨喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 21809#       发表于 2025-2-13 22:37
+
+海铃大概是看c团这么有羁绊羡慕了这次想自己努力一次争取吧………大概……毕竟前面立希才点过她，不过完全没解释海铃到底为什么愿意把am当特殊的归宿真的会有后续剧情吗
+
+*****
+
+####  remedios010000  
+##### 21810#       发表于 2025-2-13 22:37
+
+两季下来唯一看完还可以安心入睡的一集<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  屑屑代沟尼亚  
+##### 21811#       发表于 2025-2-13 22:37
+
+就这点东西非拖到第七集干嘛
+
+第四集炸完团就可以让牢祥去门口罚站了啊 
+
+多拷打两集的意义在哪呢我想问问
+
+*****
+
+####  xpisces  
+##### 21812#       发表于 2025-2-13 22:38
+
+情感的起承转合真的没有一点铺垫，而且节奏显然非常赶工，音响监督简直是灾难，这开头的吵架bgm配的什么玩意儿
+
+*****
+
+####  kiddom  
+##### 21813#       发表于 2025-2-13 22:38
+
+。。。气笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  卫星露天咖啡屋  
+##### 21814#       发表于 2025-2-13 22:38
+
+从剧情角度来说，大逻辑没错，小逻辑问题很大；同理细节剧情没错，整体剧情问题很大。从演出角度来说，同样是凑一块边演边哭，显得比mygo那会生硬不少。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 21815#       发表于 2025-2-13 22:38
+
+我靠了，wsd只想炒作啊，你动画都没做好，只有二偶痴会买单吧
+
+*****
+
+####  aptx8285144  
+##### 21816#       发表于 2025-2-13 22:38
+
+羊和音监发挥真不好，回忆杀前后那里算是挽回了一些，撇开其他不谈，五人回忆杀出现前实在给人一种编辑大手命令众人哭的感觉，柿本和演出是不会烘托气氛吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，五人回忆杀开启后算是好很多了
+
+*****
+
+####  ashero  
+##### 21817#       发表于 2025-2-13 22:38
+
+还真是母鸡卡成员反向拉大祥剧情啊
+
+*****
+
+####  Bieaeml  
+##### 21818#       发表于 2025-2-13 22:38
+
+本来”这是最后一次了，属于C团的春日影.jpg“多给点细分和情感酝酿，但是就光速一集和解结果演得像分手炮<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+果然回忆都是有滤镜的，C团就这.jpg
+
+*****
+
+####  darkXcross  
+##### 21819#       发表于 2025-2-13 22:39
+
+第七集可以看出来编剧已经完全放弃了
+
+*****
+
+####  影伴光生  
+##### 21820#       发表于 2025-2-13 22:39
+
+所以春日影重唱的时候，那些crychic的回忆是真实存在的吗，如果是幻想的话就更变态了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Azcarlo  
+##### 21821#       发表于 2025-2-13 22:39
+
+猜中了，巨他妈生硬的收尾，为了收C团这个破伏笔浪费那么多集在这个上面。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+估计后面就是鸡团拉人加一个初华的炸，没有什么悬疑全是直给，就这能看感动的也是神人了。这编剧纯菜。
+
+*****
+
+####  最近卡池有毒吧  
+##### 21822#       发表于 2025-2-13 22:39
+
+独角兽说你以为这是母鸡卡动画，这其实是苦来兮苦动画，也是一种爆点
+
+*****
+
+####  翼宿一  
+##### 21823#       发表于 2025-2-13 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer"> 虽然主场 LIVE 没让出去，但又当一集工具人不还是输麻了，总不能让七追六完了让彩排追正式 LIVE 吧
+
+*****
+
+####  Redimercia  
+##### 21824#       发表于 2025-2-13 22:40
+
+下午我还在说这番让我场内场外都追得很开心，晚上就整这么无聊一出
+前6集我都挺乐的，这一集让我有弃番的念头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Hchan  
+##### 21825#       发表于 2025-2-13 22:40
+
+还挺喜欢这集，几位妹妹终于把c团祛魅成一个普通的团队和时光，自己都发现闹麻了，但又是独一无二的独属于自己的青春
+
+所以独角兽也和当年被背叛的自己和解了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21826#       发表于 2025-2-13 22:40
+
+内鬼说这次应该死绝了，编剧就是纯为了自己的xp写了一堆逻辑错乱的情节，也不用编假药为第四集找补了
+
+*****
+
+####  tuatha  
+##### 21827#       发表于 2025-2-13 22:41
+
+前面几集还是烂炒太多了
+
+*****
+
+####  ml1642879  
+##### 21828#       发表于 2025-2-13 22:41
+
+莫老师隐身最干脆的一次<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乙津夢  
+##### 21829#       发表于 2025-2-13 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然理性告诉我制作组这集大概想要拍出个什么效果，但感性上看的我全程只想笑HAHAHA
+
+*****
+
+####  南宮凝香  
+##### 21830#       发表于 2025-2-13 22:41
+
+可以下判斷了
+
+MyGo 跟 C團就是上對下的關係
+
+詩超伴可以殺三百個成人之歌
+
+*****
+
+####  operatbig  
+##### 21831#       发表于 2025-2-13 22:42
+
+还有机会拷打祥子吗？？？
+
+*****
+
+####  纯白花火  
+##### 21832#       发表于 2025-2-13 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是春日影没唱好，唱好气氛就有了，可惜
+
+*****
+
+####  看穿一切的鱼  
+##### 21833#       发表于 2025-2-13 22:42
+
+还是节奏的问题，这要是第4-5集正好。何必多抽两集陀螺呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无音命题  
+##### 21834#       发表于 2025-2-13 22:43
+
+没法说了，前面弄得烂，多少也算是烂活，这集完事儿直接埋了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这玩意真能把观众情绪调动起来吗
+
+*****
+
+####  天空塔书记官  
+##### 21835#       发表于 2025-2-13 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416180&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-13 22:40</a>
+内鬼说这次应该死绝了，编剧就是纯为了自己的xp写了一堆逻辑错乱的情节，也不用编假药为第四集找补了 ...</blockquote>
+看PV的红光电视就知道第四集还有东西在藏，搞不好就是为了之后整个回马刀，但不排除依旧是闹麻了的可能<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  未来起航  
+##### 21836#       发表于 2025-2-13 22:44
+
+分手炮就炮了，爱音还在台下愣看着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">起码剧本安排避个嫌罢？
+
+
+*****
+
+####  yaneis  
+##### 21837#       发表于 2025-2-13 22:44
+
+<blockquote>影伴光生 发表于 2025-2-13 22:39
+所以春日影重唱的时候，那些crychic的回忆是真实存在的吗，如果是幻想的话就更变态了
+
+—— 来自 鹅球 v3.3 ...</blockquote>
+一年战争（
+
+*****
+
+####  三季人  
+##### 21838#       发表于 2025-2-13 22:44
+
+c团这个坑算是填了，就看后面怎么编吧
+
+*****
+
+####  南宮凝香  
+##### 21839#       发表于 2025-2-13 22:44
+
+<blockquote>翼宿一 发表于 2025-2-13 22:40
+虽然主场 LIVE 没让出去，但又当一集工具人不还是输麻了，总不能让七追六完了让彩排追正式 LIVE 吧 ...</blockquote>
+讓一場練習把C團的念想殺掉了
+
+贏麻了好不好， 反正狗團也不需要練習 （每次都是直上）
+
+這集唯一的細節就是祥睦走的時候狗團的人也是背向她們，這是真過去了
+
+*****
+
+####  yaneis  
+##### 21840#       发表于 2025-2-13 22:44
+
+<blockquote>未来起航 发表于 2025-2-13 22:44
+分手炮就炮了，爱音还在台下愣看着起码剧本安排避个嫌罢？</blockquote>
+避嫌了，不是公共场合，保留了点面子
+
+
+*****
+
+####  links8018  
+##### 21841#       发表于 2025-2-13 22:45
+
+没想到我听过的最难听的曲子居然会出自乐队番<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 21842#       发表于 2025-2-13 22:45
+
+ 并没有那么多大戏，只有大家发现自己真的闹麻了，舒服
+
+*****
+
+####  aptx8285144  
+##### 21843#       发表于 2025-2-13 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416158&amp;ptid=2208921" target="_blank">翼宿一 发表于 2025-2-13 22:40</a>
+
+虽然主场 LIVE 没让出去，但又当一集工具人不还是输麻了，总不能让七追六完了让彩排追正式 LIVE 吧 ...</blockquote>
+认命吧，从立希被独角兽和柿本命令放弃抵抗的那一刻起，<strong>go团已经被十五年之大瘟神席卷全场了</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hollyween  
+##### 21844#       发表于 2025-2-13 22:45
+
+看乐了，第一次被尬的笑出声
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  blackeryuri2  
+##### 21845#       发表于 2025-2-13 22:45
+
+我tm真的看笑了，这是这七集以来唯一一次看得很开心，因为终于知道这只是一部乐子厕纸番
+
+*****
+
+####  怀沙汨罗  
+##### 21846#       发表于 2025-2-13 22:46
+
+原来一个制作组能够同时做出诗超绊和这集的live演出吗？看来mygo真是撞大运的奇迹水平。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 21847#       发表于 2025-2-13 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一集感情是在线的，可惜前面太多硬伤了，看着还是出席。
+
+*****
+
+####  remedios010000  
+##### 21848#       发表于 2025-2-13 22:46
+
+<blockquote>引用第21780楼aptx8285144于2025-02-13 22:32发表的  :
+
+真不行，气氛感觉还没到素世就已经在哭了，根本没法和go团那次神回比，不过后面回忆杀做得还不错，等等最......</blockquote>
+@aptx8285144
+
+素世撑到祥子放下心结重演春日影才哭已经很能扛了，按道理来讲这5个人在排练室凑齐的时候进门就该捶地哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  yaneis  
+##### 21849#       发表于 2025-2-13 22:46
+
+所以抽了6集的牢祥在10分钟内快速习得了实人心技能，真变回了软孺白祥吗，不应该吧（
+
+*****
+
+####  吃货红毛  
+##### 21850#       发表于 2025-2-13 22:46
+
+海玲的情节能在硬一点吗
+
+*****
+
+####  阿兹尔  
+##### 21851#       发表于 2025-2-13 22:47
+
+这集的唯一好消息:素世真的戒掉祥子了，成功戒掉成瘾性物质，可喜可贺
+
+*****
+
+####  盐盐盐盐盐  
+##### 21852#       发表于 2025-2-13 22:47
+
+这集让我觉得那几个开播前嘴硬要切割mygo和am动画说不看前作没影响的账号可能前几集都没被打败这集会看了气到胸闷………你这c团饺子不看mygo是真的一丁点都看不懂了吧，而且这集说是c团送别其实我感觉还是主要给立希soyo塑造收尾了，回忆都是她俩对c团曾经寄托的感情，睦头人是回来了还是没两句话，祥子更是纯哭纯软糯
+
+*****
+
+####  rushsong  
+##### 21853#       发表于 2025-2-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415844&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-13 22:28</a>
+预测一个nico90分以上，环大陆好评。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那就请日本人去花钱支持吧，国人就不用去凑热闹了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  千千千千鸟  
+##### 21854#       发表于 2025-2-13 22:47
+
+太差了，小祥小睦白吃苦，牢墨完全来搞笑，人类歌还不如祥子版好听。
+
+第三集结尾小睦精神崩溃活动终止，接乐队吵架分散小睦自闭、再接这一集还差不多。第四集吵架第五集救起来。
+
+甚至在小祥和小睦隔着铁门抱完之后，让小祥振作起来行动力拉满一下也还有救，比如利用大小姐的权力把人抢出来啥的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  双语之城  
+##### 21855#       发表于 2025-2-13 22:47
+
+怎么还有大棋党
+
+*****
+
+####  my707776310  
+##### 21856#       发表于 2025-2-13 22:47
+
+原来唱的是春日影嘛,我以为时间煮雨
+
+*****
+
+####  bindata  
+##### 21857#       发表于 2025-2-13 22:47
+
+剧本统筹是真出问题了，这集有些段落放上段详细写写会更好，五六集本来就应该合并成一集或者1.5集的
+
+大纲本来没啥问题，也仅仅是大纲，应该就是系构跑路的恶果
+
