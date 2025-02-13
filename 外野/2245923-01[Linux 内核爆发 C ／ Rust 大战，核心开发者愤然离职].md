@@ -1282,3 +1282,21 @@ M佬怒辞…
 就我体验来说 Rust 写多线 ...</blockquote>
 看了一下c++大概是这么写 std::string a;     std::mutex m;     std::thread t1([&amp;]                 {                      std::lock_guard&lt;std::mutex&gt; lock(m);                     a += "hello";                  });     std::thread t2([&amp;]                 {                      std::lock_guard&lt;std::mutex&gt; lock(m);                     a += "world";                  });     t1.join();     t2.join();     std::cout &lt;&lt; a &lt;&lt; std::endl;复制代码rust要arc包裹mutex包裹string。有个疑问就是假如一个被共享的只读对象也要用arc来访问，在跨numa的情况下原子操作的代价非常昂贵，rust是如何去解决这个问题的？
 
+
+*****
+
+####  YoumuChan  
+##### 102#       发表于 2025-2-13 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410608&amp;ptid=2245923" target="_blank">星空天神 发表于 2025-2-13 13:46</a>
+看了一下c++大概是这么写
+
+rust要arc包裹mutex包裹string。有个疑问就是假如一个被共享的只读对象也要用ar ...</blockquote>
+假如你在线程运行期间对共享对象不会进行更改的话，可以开scoped thread，然后直接共享只读引用就行了。编译器在发现这段生命周期里共享对象只会派生只读引用的话，就会允许你在线程间传递只读引用，所以可以不用arc，甚至不用加锁。
+
+假如需要更改但是你可以保证线程不会后台一直运行，也即你共享的对象最终由主线程释放（持有所有权），而不会由子线程一直持有引用的话，你也可以scoped thread然后直接传递互斥锁mutex的引用，不用arc。
+
+如果什么都不能保证，那你必然需要一个线程安全的类似shared_ptr的东西，那这个东西在rust就叫做arc。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

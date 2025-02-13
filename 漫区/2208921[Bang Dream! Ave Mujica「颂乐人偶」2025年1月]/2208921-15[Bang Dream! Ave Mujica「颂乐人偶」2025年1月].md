@@ -7320,3 +7320,54 @@ ansy真是一对圣人啊再也不黑了
 
 有两首歌，应该不可能是纯c5人live吧，春日影mygo唱，人类之歌c团唱，总不能爱猫排练好好的上场给人t了吧（
 
+
+*****
+
+####  单脚着地  
+##### 21385#       发表于 2025-2-13 14:07
+
+梦想紫吧不都是NSY烂炒吗？有啥发电的
+
+*****
+
+####  一心而用  
+##### 21386#       发表于 2025-2-13 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410817&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-13 14:07</a>
+
+梦想紫吧不都是NSY烂炒吗？有啥发电的</blockquote>
+有发电有烂炒总之各种粪坑内容就对了。
+
+*****
+
+####  是谁的书画  
+##### 21387#       发表于 2025-2-13 14:09
+
+说啥了我朝，收到消息我即刻前往紫吧也只看得一片废墟。<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21388#       发表于 2025-2-13 14:11
+
+晚上生放时我要去刷"不属于Mujica的动画"
+
+*****
+
+####  山ノ内花音  
+##### 21389#       发表于 2025-2-13 14:11
+
+没有新曲子就算了
+连新台词都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸波白野  
+##### 21390#       发表于 2025-2-13 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410345&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 13:20</a>
+
+现在的“发展”，体现的是祥子与睦身份的逆转，这符合我“神明与造物/信徒”的假设，而且祈求/许愿在这一关 ...</blockquote>
+极狐PTSD犯了，只要祈愿就能得到回应，相信是不需要理由的
+
