@@ -4061,3 +4061,13 @@ go的歌没跑了，青木还转推了
 
 2025-2-13 23:10 上传
 
+
+*****
+
+####  Mr.Giraffe  
+##### 26944#       发表于 2025-2-14 00:13
+
+国服同步，我们邦多利当然有crychic这个乐队啦
+
+<img src="https://p.sda1.dev/22/f2f40061ccbb35162c51220ec58d32c3/image.jpg" referrerpolicy="no-referrer">
+

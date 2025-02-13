@@ -14868,3 +14868,202 @@ MYGO和CRYCHIC还是学生乐队水平跑live house的.
 
 我草里的，编剧这可真不是个人吧，能这么解决问题的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 22113#       发表于 2025-2-14 00:07
+
+哦，忘了还有够使万代
+
+这下my二期真和星二期坐一桌了
+
+以及那一票特摄典中典
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  聊nsy专用号  
+##### 22114#       发表于 2025-2-14 00:07
+
+感觉CRYCHIC复活也是很自然的发展了
+
+爱音和猫正好都有英国背景，去伦敦组双人吉他组合吧
+
+*****
+
+####  Gandalf  
+##### 22115#       发表于 2025-2-14 00:08
+
+别说，我觉得jzgg来写都写不了这么烂<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 22116#       发表于 2025-2-14 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">莫小姐还要再上线吧
+
+再工具人也比现在其他神人有乐子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 22117#       发表于 2025-2-14 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417425&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-13 23:48</a>
+
+这集最神必的是海铃为什么就来到了彩排现场，甚至不是live现场</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能继续兼职加上被立希喷过啊
+
+*****
+
+####  兔耳僵尸  
+##### 22118#       发表于 2025-2-14 00:09
+
+<img src="https://p.sda1.dev/22/8b7e212e7573ea20b0ad6ea7f36c3195/image.jpg" referrerpolicy="no-referrer">
+tm的下个镜头猫就出来了，写的什么玩意
+
+*****
+
+####  xyion  
+##### 22119#       发表于 2025-2-14 00:10
+
+这一话也太平庸了，跟邦之前的作品似的，说好的史上最狂呢
+
+*****
+
+####  KokutouMikiya  
+##### 22120#       发表于 2025-2-14 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417527&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-13 23:55</a>
+所以soyo拎来的那袋黄瓜最后发挥了什么作用</blockquote>
+可能爽姐觉得有助于唤醒睦吧，另外黄瓜还没死卖了把素睦。对编剧来说就是想call back下退黄瓜这个事吧
+
+
+*****
+
+####  南宮凝香  
+##### 22121#       发表于 2025-2-14 00:10
+
+下集有MyGo Live 嗎？
+
+聽了這麼難聽的兩首後， 我需要一場正常Live 來洗耳朵
+
+*****
+
+####  北条早苗  
+##### 22122#       发表于 2025-2-14 00:10
+
+太神秘了这一集，柿本不会觉得**音放上来效果很好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 22123#       发表于 2025-2-14 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417515&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 23:54</a>
+
+这肯定不单是系构的问题，而是wsd整个项目决策和执行的问题，日本动画业界这几年胡搞幺蛾子的又不止wsd一家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">个人观感是这集比这些前辈“正常”，只不过太土LIVE有点想法而已233
+
+
+*****
+
+####  KokutouMikiya  
+##### 22124#       发表于 2025-2-14 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417530&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-13 23:56</a>
+海铃本身也是经常在ring活动的啊，什么时候有排练哪些乐队排练这些消息随便就能知道吧，从逻辑上来说我能接 ...</blockquote>
+这么看的话其实海铃才是情报max的侦探位人选啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  victorws  
+##### 22125#       发表于 2025-2-14 00:12
+
+虽然逻辑上没啥问题，但感觉把c团和解放到下集更好，至少节奏不会这么赶，祥子蹲点睦头就几张幻灯片太轻飘飘了，几个人上门话疗可以多写一点
+
+*****
+
+####  mono  
+##### 22126#       发表于 2025-2-14 00:12
+
+愛音脾气真好 挺王预订 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保真花生  
+##### 22127#       发表于 2025-2-14 00:12
+
+不过虽然我一直对独角兽不太喜欢，但是这集我觉得剧情的问题反而不大，导致成为笑柄是因为分镜和演出
+
+*****
+
+####  厄神之息  
+##### 22128#       发表于 2025-2-14 00:13
+
+本来一个月不见木子米，被soyo光光来两下，说了句你的事，我都知道了！就开始每周主动探望木子米了？合着你不去看木子米，是因为之前soyo不知道你的事吗？？？？？
+
+*****
+
+####  保真花生  
+##### 22129#       发表于 2025-2-14 00:13
+
+因为分镜和演出已经烂出一个境界了，导致剧情渲染也变成一个笑话
+
+*****
+
+####  南宮凝香  
+##### 22130#       发表于 2025-2-14 00:14
+
+<blockquote>厄神之息 发表于 2025-2-14 00:13
+本来一个月不见木子米，被soyo光光来两下，说了句你的事，我都知道了！就开始每周主动探望木子米了？合着你 ...</blockquote>
+畢竟爽姐是真會動手的
+
+*****
+
+####  刑部姬真可爱  
+##### 22131#       发表于 2025-2-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417714&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-14 00:12</a>
+
+这么看的话其实海铃才是情报max的侦探位人选啊</blockquote>
+不至于，go团做的这些事又没有藏着掖着，甚至从海希关系性上来说海铃本来就是会额外关注立希的
+
+*****
+
+####  DARK_HGCG  
+##### 22132#       发表于 2025-2-14 00:15
+
+<img src="https://img.saraba1st.com/forum/202502/14/001545kitfrifffssz0kqf.jpg" referrerpolicy="no-referrer">
+
+<strong>img-cf34b4213d11312f6cd98462d583c60a.jpg</strong> (181.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 00:15 上传
+
+*****
+
+####  operatbig  
+##### 22133#       发表于 2025-2-14 00:15
+
+<blockquote>厄神之息 发表于 2025-2-14 00:13
+本来一个月不见木子米，被soyo光光来两下，说了句你的事，我都知道了！就开始每周主动探望木子米了？合着你 ...</blockquote>
+欺软怕硬，人设还是这么统一。
+
+*****
+
+####  屑屑代沟尼亚  
+##### 22134#       发表于 2025-2-14 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁门抱完人说完什么都会做之后第二天素希就来一起进去了
+
+感情啥都不用干啊  为回旋而回旋
+

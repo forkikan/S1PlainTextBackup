@@ -3847,3 +3847,11 @@ https://xiaoyi.huawei.com/chat/
 
 刷到个火山部署的能联网的教程，可以折腾一下[https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)
 
+
+*****
+
+####  羊寢  
+##### 1820#       发表于 2025-2-14 00:08
+
+话说大家有用过派欧那边的ds吗？之前看人说派欧是满血版，然而刚才看到尼姑庵有人说派欧也有阉割？
+
