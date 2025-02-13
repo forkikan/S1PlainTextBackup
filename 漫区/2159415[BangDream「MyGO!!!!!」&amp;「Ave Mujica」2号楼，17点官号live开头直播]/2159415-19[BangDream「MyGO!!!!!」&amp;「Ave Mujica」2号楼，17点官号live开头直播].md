@@ -3919,3 +3919,25 @@ HALO<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referr
 
 羊姐都能上TFT了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这就是养成系么
 
+
+*****
+
+####  泥潭办证先锋  
+##### 26933#       发表于 2025-2-13 20:18
+
+ 本帖最后由 泥潭办证先锋 于 2025-2-13 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414343&amp;ptid=2159415" target="_blank">rp1993 发表于 2025-2-13 20:15</a>
+
+羊姐都能上TFT了这就是养成系么</blockquote>
+反观另一个养成系邦主唱……
+
+养成了个体重。
+
+
+*****
+
+####  ykyin09  
+##### 26934#       发表于 2025-2-13 20:21
+
+tft官推直接@了邦官推，要唱go的歌？
+
