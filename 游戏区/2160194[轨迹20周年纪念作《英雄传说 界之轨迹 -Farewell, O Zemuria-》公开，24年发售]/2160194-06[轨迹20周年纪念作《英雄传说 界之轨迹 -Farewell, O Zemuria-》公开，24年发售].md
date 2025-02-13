@@ -1872,3 +1872,34 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">轨迹编剧用黎2告诉了我们他们并不会写什么轮回系。。这种大重置前段时间的神之天平写过 而且世界结构有点类似。。。 界2能比神之天平强吗（
 
+
+*****
+
+####  大厨麦当牛  
+##### 7688#       发表于 2025-2-13 20:53
+
+我觉得界2不会是又轮回到事件未发生前的世界，应该还是从未完全重置的世界里逆境翻盘大团圆的戏码，第20000次轮回不会真的到来。不然汉密尔顿博士拉出来的一堆死人就成一次性的笑话了。
+
+另外从外太空大破坠机到大气层内的艾米莉亚估计也没事，可能变成独眼龙罢了。
+
+*****
+
+####  alucardcz  
+##### 7689#       发表于 2025-2-13 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414596&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-13 20:53</a>
+
+我觉得界2不会是又轮回到事件未发生前的世界，应该还是从未完全重置的世界里逆境翻盘大团圆的戏码，第20000 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">ed不都这样了。。大概率回到认识学妹那天（
+
+
+*****
+
+####  kanata  
+##### 7690#       发表于 2025-2-13 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414620&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 20:57</a>
+
+ed不都这样了。。大概率回到认识学妹那天（</blockquote>
+回到黎1啥都没有拿啥上太空，真回去了肯定也会加速过掉的
+
