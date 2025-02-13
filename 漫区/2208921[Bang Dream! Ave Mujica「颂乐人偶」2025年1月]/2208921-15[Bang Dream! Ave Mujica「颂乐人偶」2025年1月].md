@@ -13984,3 +13984,370 @@ WSD你这中间一年空窗期补个crychic剧场版那这集还有点说法
 爱音和猫猫当工具人我是以令和种命的标准哈哈而笑而过的，但是这不代表“剧情还行” ...</blockquote>
 我所谓的还行，是指故事没有太大硬伤，逻辑还算能解释的过去，不代表好啊。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 22020#       发表于 2025-2-13 23:24
+
+爱音借吉他让ccc限时复活的剧情真至于楼友这么嚼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未来起航  
+##### 22021#       发表于 2025-2-13 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416946&amp;ptid=2208921" target="_blank">华发夜眼[CN] 发表于 2025-2-13 23:16</a>
+
+突然觉得当时泥潭一起追蝈蝈也没这么小丑了</blockquote>
+s1传统烂片是优缺点都会很明显。你先别管我后面烂到泔水去了你就说02这角色给不给劲吧.jpg
+
+am这种烂说白了沾点原神内味儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比于最好的那部分作品可以说几乎全无优点，所有点全都在平庸线及以下。然后能看到一堆不知道平常到底吃的啥的粉丝狂热引流
+
+*****
+
+####  三尖酸努努  
+##### 22022#       发表于 2025-2-13 23:25
+
+<img src="https://p.sda1.dev/22/83ed3a6aaced04b89b3cda6175f8fafd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 22023#       发表于 2025-2-13 23:25
+
+即使是为了贴合剧情也不应该把live整这么难听，这应该是非常浅显的道理。
+
+*****
+
+####  Skymoon  
+##### 22024#       发表于 2025-2-13 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/a472de24fde3aae95259f1b840ae08aa/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  苓宁  
+##### 22025#       发表于 2025-2-13 23:26
+
+难道编剧就为了扣回上一季灯祥桥上喊的那句话，强行给祥写了这么多集不做人的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 22026#       发表于 2025-2-13 23:26
+
+爱音借吉他本来大概想表达新老团传承成全之类的。。。本身不算烂活
+
+但前面不回短信之类的细节
+
+真的就有那种拼命融入不敌小团体的味儿。。。
+
+*****
+
+####  yaneis  
+##### 22027#       发表于 2025-2-13 23:26
+
+无效内容太多了，特别是mo，黑化的布偶场景是为了啥，复读机的设定是为了啥，没有说，就这么过了
+
+*****
+
+####  bird-lay  
+##### 22028#       发表于 2025-2-13 23:26
+
+工作人员听这破歌还听哭了，是因为没人赔工伤吗
+
+爱音前脚递吉他说猫猫不在不能彩排，后脚猫猫就坐台下了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 22029#       发表于 2025-2-13 23:26
+
+声优的棒读才是最严重的，突然不会配角色音了？
+
+*****
+
+####  aptx8285144  
+##### 22030#       发表于 2025-2-13 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417026&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 23:21</a>
+
+這集真被按頭打的明顯是海子姐
+
+被腦控進來看狗團彩排</blockquote>
+后者先不论，前者不会是立希叫她过来的吧，这go团喂饭唯得太过周到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 22031#       发表于 2025-2-13 23:27
+
+还把go给带异味了，但还能咋滴，凑合着过呗
+
+*****
+
+####  ntrntr1  
+##### 22032#       发表于 2025-2-13 23:27
+
+<blockquote>bird-lay 发表于 2025-2-13 23:26
+工作人员听这破歌还听哭了，是因为没人赔工伤吗
+
+爱音前脚递吉他说猫猫不在不能彩排，后脚猫猫就坐台下了 ...</blockquote>
+这个应该为了表现这两人就是故意的，是善意
+
+但整体看上去就是很搞笑）
+
+*****
+
+####  MuramasaSP  
+##### 22033#       发表于 2025-2-13 23:27
+
+现在的感想就和玩手游差不多。
+
+我还是喜欢它的，只不过内心无法再有波澜了。
+
+*****
+
+####  未来起航  
+##### 22034#       发表于 2025-2-13 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417091&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-13 23:25</a>
+
+即使是为了贴合剧情也不应该把live整这么难听，这应该是非常浅显的道理。</blockquote>
+这就和mortis那个糟糕的小丑表演一样的：柿本表现氛围的能力就到这儿了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 22035#       发表于 2025-2-13 23:27
+
+老实说以前看到视频大批人挤地下停车库听mygo live的漏音，羊又那么火，以为这乐队超厉害
+
+这集第一首歌出来时感觉特奇怪，但我这音痴不敢质疑
+
+原来是真的很难听啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 22036#       发表于 2025-2-13 23:28
+
+<img src="https://img.saraba1st.com/forum/202502/13/232734xp1z0uj0fvjlxzkj.png" referrerpolicy="no-referrer">
+
+<strong>7f8956765484d4f271211e139f955cf8.png</strong> (51.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/232742jb5bdkbn2vs05bjk.png" referrerpolicy="no-referrer">
+
+<strong>75bcbef222d765524d931f1120a6ac47.png</strong> (39.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:27 上传
+
+mggm的最高指示，都给我哭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siansian  
+##### 22037#       发表于 2025-2-13 23:28
+
+今天看到最好笑的
+
+1855DE27CF42326FD0DF5887E7CB1268.jpg
+(30.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/232741lpn6l47ig1lro42p.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  保真花生  
+##### 22038#       发表于 2025-2-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416966&amp;ptid=2208921" target="_blank">你妈的为什么 发表于 2025-2-13 23:17</a>
+
+不行，没有第一季水到渠成解决的感觉，就是到了这个点了必须解决而解决
+
+初华不来个大的，那真的彻底拉了 ...</blockquote>
+第一季那个饺子难道不离谱吗？铺垫了那么久，结果也是强行世纪大和解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一季的饺子只能说比前面三部邦邦那种随手一捏的饺子好，但是也谈不上什么多优秀
+
+*****
+
+####  cxj649  
+##### 22039#       发表于 2025-2-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417062&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-13 23:24</a>
+
+爱音借吉他让ccc限时复活的剧情真至于楼友这么嚼吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一些人是是把 爱音当 “男主”，而大祥是 女主的男白月光
+
+*****
+
+####  operatbig  
+##### 22040#       发表于 2025-2-13 23:28
+
+等等，那个莫双眼发光的剧透图用在哪了？
+
+
+*****
+
+####  阿兹尔  
+##### 22041#       发表于 2025-2-13 23:29
+
+mggm看了最后一集5遍，已经开始期待最后一集有多神必了
+
+*****
+
+####  是谁的书画  
+##### 22042#       发表于 2025-2-13 23:29
+
+我大概明白了，所谓的莫提丝啊，其实根本就不存在。
+
+那就是大睦所扮演的一个角色啊，一个不原原谅大祥却不知怎么拒绝之后的扮演的角色啊。
+
+她演技太好甚至骗过了自己，那个所谓睦人格不过是她的少女”同情心“或者”良心“而已。自己不过是一个扮演情绪的人偶而已。
+
+所以和解以后莫提丝就消失了啊，因为本来就不存在，那就是大睦本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 22043#       发表于 2025-2-13 23:30
+
+<blockquote>是谁的书画 发表于 2025-2-13 23:29
+我大概明白了，所谓的莫提丝啊，其实根本就不存在。
+
+那就是大睦所扮演的一个角色啊，一个不原原谅大祥却不 ...</blockquote>
+喵梦你一定做不到吧
+
+*****
+
+####  雪菜碧池  
+##### 22044#       发表于 2025-2-13 23:30
+
+如果后面5话出现反转，白祥是演的，睦也是演的，还能救一救，否则就是种命<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jiangyou  
+##### 22045#       发表于 2025-2-13 23:30
+
+剧情不说了，楼友都说完了。
+
+但歌是真的不能忍啊，一讲乐队的除了开头播到第七集才有live就算了，不是片名母鸡卡的live也算了，这么难听是真的忍无可忍啊。能理解监督想表达哭腔但这么难听对观感是毁灭的啊
+
+
+*****
+
+####  Sherrycat  
+##### 22046#       发表于 2025-2-13 23:30
+
+这么写 c团的问题不都理清楚了 再重组c团也不是不可能吧（只是说存在可能 当然编剧要催人成长 c团确实从剧本上不能存在下去了 但live都把c团抬出来了 我不好说了） 我看这春日影不也唱挺好的 那编剧你要拿鸡跟狗的人怎么办呢 失去合理性和必要性了啊
+
+*****
+
+####  玖羽  
+##### 22047#       发表于 2025-2-13 23:31
+
+？？？我感觉是异世界还是怎样，推上一大堆日本人说感动、看哭的（#アニメムジカ，按最新排序）
+
+翻了半天一个差评都没看到，差距有这么大吗？
+
+*****
+
+####  阿兹尔  
+##### 22048#       发表于 2025-2-13 23:31
+
+<img src="https://img.saraba1st.com/forum/202502/13/233105vezf5c5apuza5eho.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-13-23-30-31-47_495f17c58cbe167637e70d8012a8aa6f.jpg</strong> (237.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:31 上传
+
+母鸡卡在微博居然还有一定的热度
+
+*****
+
+####  moras2694  
+##### 22049#       发表于 2025-2-13 23:32
+
+我突然想起来这一集好像是武士道炒作了很久的一集，我看的时候都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。确实能理解这么多的差评了，而且这些差评跟前面集数的发挥也脱不了干系，可以说是另一个世界线超低配诗超绊的结局了
+
+*****
+
+####  墓地里的鱼  
+##### 22050#       发表于 2025-2-13 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415834&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 22:28</a>
+CCC 重聚拍成這樣
+
+跟打分手炮卻陽痿一樣</blockquote>
+不光养胃，还假高超
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  huxiaopao163  
+##### 22051#       发表于 2025-2-13 23:32
+
+睦和mortis的问题还没结束吧，按照下集预告里的镜头来看。
+
+*****
+
+####  remedios010000  
+##### 22052#       发表于 2025-2-13 23:32
+
+孩子们，现在只有一个人还没戒掉丰川祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  结衣小比取  
+##### 22053#       发表于 2025-2-13 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416798&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-13 23:08</a>
+
+话说下集预告里有一个某人在水里下沉一样的镜头是谁啊，初华吗</blockquote>
+水中多半不是现实场景
+
+绿发、黄瞳，那就是睦或者Mortis了
+
+*****
+
+####  Lyzers  
+##### 22054#       发表于 2025-2-13 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">鸡团现在人均神人，疯的疯麻的麻赔钱的赔钱，怎么好意思跟狗团那会儿的小女生闹情绪相提并论的
+
+*****
+
+####  jiangyou  
+##### 22055#       发表于 2025-2-13 23:33
+
+推是这样的，没到兽娘2水平是看不到差评的
+
+*****
+
+####  天空塔书记官  
+##### 22056#       发表于 2025-2-13 23:33
+
+我现在对于ave最担心的一点就是别走老谋子的那条路，和✘✘红一样，追求“一镜到底”和“反转反转再反转”，最后证明反转了个寂寞，前面这么胡搞，显然还是为了之后藏的东西做铺垫和腾戏份，都知道初华会炸个大的，但都不知道怎么炸，炸多厉害，以及怎么补回去，这才是真正悬疑的地方，但为了这瓶子醋搭上ave和mygo这两桌饺子，哦还有CCC，至于吗，值得吗，这就很难说了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
