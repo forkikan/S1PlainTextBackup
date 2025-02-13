@@ -193,3 +193,16 @@ psn配音锁区太tm蠢了</blockquote>
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ネロ  
+##### 1916#       发表于 2025-2-13 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408676&amp;ptid=1978008" target="_blank">医生狼多 发表于 2025-2-13 10:53</a>
+有的
+Stellar Blade PC version supports 22 languages and full lip sync with voice support for 10 la ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">谢谢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

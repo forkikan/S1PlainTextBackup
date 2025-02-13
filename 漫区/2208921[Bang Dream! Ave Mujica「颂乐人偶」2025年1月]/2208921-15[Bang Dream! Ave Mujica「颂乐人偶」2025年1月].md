@@ -7387,3 +7387,75 @@ ansy真是一对圣人啊再也不黑了
 
 我现在就想看到soyo把祥子打至跪地拉去当星努力的二创。
 
+
+*****
+
+####  滑稽Captain  
+##### 21393#       发表于 2025-2-13 14:30
+
+<img src="https://img.saraba1st.com/forum/202502/13/143003c9jx3fe4p39ukjee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (127.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 14:30 上传
+
+再次强调，“巨大的存在感”
+
+*****
+
+####  huxiaopao163  
+##### 21394#       发表于 2025-2-13 14:30
+
+黄大叔重新发帖了，可能是之前的剧透有一些误解，大家光速滑坡把人家吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 21395#       发表于 2025-2-13 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，翻到了帖子就去休息了，醒来发现帖子被删了。
+
+*****
+
+####  是谁的书画  
+##### 21396#       发表于 2025-2-13 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67402711&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-12 14:56</a>
+
+要是真演春日影还没爱音，你就看之后国内舆论怎么爆炸就完事了</blockquote>
+嘻嘻，看完了。
+
+这下要看烟花咯
+
+
+*****
+
+####  qlipho  
+##### 21397#       发表于 2025-2-13 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411029&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-13 14:30</a>
+
+再次强调，“巨大的存在感”</blockquote>
+樱花姨编剧这不是很懂吗，怎么有gachi能神圣分离的
+
+*****
+
+####  kenqqex  
+##### 21398#       发表于 2025-2-13 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411036&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-13 14:30</a>
+
+妈的，翻到了帖子就去休息了，醒来发现帖子被删了。</blockquote>
+又发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 21399#       发表于 2025-2-13 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">-2嘴上提，+2手边打
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
