@@ -3819,3 +3819,23 @@ https://xiaoyi.huawei.com/chat/
 
 现在哪家的api最稳定啊，deepseek自己限流真的难受
 
+
+*****
+
+####  med  
+##### 1817#       发表于 2025-2-13 11:50
+
+看这些llm玩狼人杀还蛮有意思的，d指导确实厉害
+
+*****
+
+####  overflowal  
+##### 1818#       发表于 2025-2-13 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408938&amp;ptid=2243718" target="_blank">Litccc 发表于 2025-2-13 11:17</a>
+
+现在哪家的api最稳定啊，deepseek自己限流真的难受</blockquote>
+国内火山引擎的还行。
+
+国外贵的fireworks吐字速度快，但是贵。便宜的Nebius/hyperbolic慢的有点蛋疼
+

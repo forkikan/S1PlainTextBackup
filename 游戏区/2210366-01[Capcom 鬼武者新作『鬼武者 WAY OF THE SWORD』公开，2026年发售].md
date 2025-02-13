@@ -279,3 +279,23 @@ PV1：
 
 主角还是宫本武藏，那就是先出动画后日谈，再出游戏本体，挺抽象的。
 
+
+*****
+
+####  cfeng123  
+##### 124#       发表于 2025-2-13 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66911830&amp;ptid=2210366" target="_blank">adretyu67. 发表于 2024-12-13 10:38</a>
+
+老鬼武差不多是类似老生化那样的固定视角游戏。
+
+技术发展到现在，固定视角应该不流行了。 ...</blockquote>
+复刻时已经改了不再是开坦克了
+
+*****
+
+####  xunit  
+##### 125#       发表于 2025-2-13 11:50
+
+这新PV怎么感觉土之土土
+
