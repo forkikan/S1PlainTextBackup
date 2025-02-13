@@ -135,3 +135,23 @@ PV1：
 
 断肢和剑戟部分感觉被忍2黑吊打
 
+
+*****
+
+####  kuarwbwe  
+##### 107#       发表于 2025-2-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408116&amp;ptid=2210366" target="_blank">东方定助 发表于 2025-2-13 09:53</a>
+
+怎么长得有点像我是大哥大里那个主角性格应该是走混混路线了，各种脏招都可以用，赢了就行。
+
+断肢和剑戟部 ...</blockquote>
+历史上宫本武藏就是这样的，只能说很符合原型了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuglv  
+##### 108#       发表于 2025-2-13 10:02
+
+主角先不说，鬼武者以前可不是打起来这么磨磨蹭蹭的玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉像卡表拿一个废弃的真实系剑戟企划套了个鬼武者皮废物利用...
+
