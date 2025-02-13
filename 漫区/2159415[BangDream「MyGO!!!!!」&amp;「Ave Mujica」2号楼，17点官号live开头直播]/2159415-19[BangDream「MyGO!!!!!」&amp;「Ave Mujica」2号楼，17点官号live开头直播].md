@@ -3989,3 +3989,53 @@ go的歌没跑了，青木还转推了
 
 2025-2-13 22:32 上传
 
+
+*****
+
+####  迷途人偶的呐喊  
+##### 26940#       发表于 2025-2-13 22:46
+
+<img src="https://p.sda1.dev/22/8026cd7e00b808109563eb2cd4ebcabc/image.jpg" referrerpolicy="no-referrer">
+
+第一次的the first take既不是mygo也不是avenujica，而是我crychic
+
+*****
+
+####  sakatta  
+##### 26941#       发表于 2025-2-13 22:48
+
+ 本帖最后由 sakatta 于 2025-2-13 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414552&amp;ptid=2159415" target="_blank">ninokagami 发表于 2025-2-13 20:48</a>
+
+猜一个大炒特炒今晚c团复活春日影接明晚tft春日影</blockquote>
+看群友图透，已经ccc春日影预定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://7up.pics/image/AtLOjW" id="aimg_Vg3bm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://7up.pics/image/AtLpU8" id="aimg_CW4LG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://7up.pics/image/AtLjgv" id="aimg_v1ziJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+4DA5E98042DA152E49FD3A804BDFB09C.jpg
+(152.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/224953mojjpm7zvrom3r6o.jpg" referrerpolicy="no-referrer">
+
+6CE4A70E10ABE3B1AA41B1AA7BE63E3B.jpg
+(121.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/224953mtglt5enu3lh99nh.jpg" referrerpolicy="no-referrer">
+
+7C43CD3F98A895E2A1A4121C03893C5B.jpg
+(129.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/224953z5qly2zxbe5c2k5z.jpg" referrerpolicy="no-referrer">
+

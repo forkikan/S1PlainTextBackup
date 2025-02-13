@@ -2072,3 +2072,43 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 たとえ何を捨てようとも──……のためにも…（エレイン/環境音にかき消される）
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">考虑到和のために的区别，我认为翻成这也是为了艾蕾因更好
 
+
+*****
+
+####  大厨麦当牛  
+##### 7708#       发表于 2025-2-13 22:45
+
+能变身成魔装鬼的人有什么特别之处吗？第二部有没有讲红黎是为什么能变成魔装鬼的？所以卢尼也有一个什么特制的空洞核心吗？
+
+*****
+
+####  alucardcz  
+##### 7709#       发表于 2025-2-13 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416084&amp;ptid=2160194" target="_blank">Aeons 发表于 2025-2-13 22:37</a>
+
+たとえ何を捨てようとも──……のためにも…（エレイン/環境音にかき消される）
+
+考虑到和のために的区别， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">多了个も 完全2种不同的意思了。van还有机会！
+
+*****
+
+####  alucardcz  
+##### 7710#       发表于 2025-2-13 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416284&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-13 22:45</a>
+
+能变身成魔装鬼的人有什么特别之处吗？第二部有没有讲红黎是为什么能变成魔装鬼的？所以卢尼也有一个什么特 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丁格飞是试验 其他的都不知道 只知道要变身身边得有创世 无论是复制品还是本体
+
+
+*****
+
+####  Aeons  
+##### 7711#       发表于 2025-2-13 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416284&amp;ptid=2160194" target="_blank">大厨麦当牛 发表于 2025-2-13 22:45</a>
+能变身成魔装鬼的人有什么特别之处吗？第二部有没有讲红黎是为什么能变成魔装鬼的？所以卢尼也有一个什么特 ...</blockquote>
+目前来看特别之处是都有创世
+

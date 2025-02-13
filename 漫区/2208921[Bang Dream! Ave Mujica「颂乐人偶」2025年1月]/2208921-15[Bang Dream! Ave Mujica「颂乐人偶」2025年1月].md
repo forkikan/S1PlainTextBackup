@@ -11975,3 +11975,616 @@ c团这个坑算是填了，就看后面怎么编吧
 
 大纲本来没啥问题，也仅仅是大纲，应该就是系构跑路的恶果
 
+
+*****
+
+####  461757753  
+##### 21858#       发表于 2025-2-13 22:48
+
+第二季就当作同人作品了，等个民间导演剪辑版
+
+*****
+
+####  长弓日月剑  
+##### 21859#       发表于 2025-2-13 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416308&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 22:46</a>
+
+所以抽了6集的牢祥在10分钟内快速习得了实人心技能，真变回了软孺白祥吗，不应该吧（ ...</blockquote>
+祥子是人机吗？大概。
+
+*****
+
+####  沙坪坝沙耶香  
+##### 21860#       发表于 2025-2-13 22:49
+
+没必要每周四十点守着看了，释然了
+
+*****
+
+####  是谁的书画  
+##### 21861#       发表于 2025-2-13 22:49
+
+先不说司机送人下车就跑导致自家大小姐被人堵门扑倒这种让人感觉异常出戏这件事。
+
+这确确实实是我见过十五年之未有和解速度了，大祥这人就变了？我不懂。你知道我家情况又能咋样，哪怕这是祥子内心中最不愿见人的小秘密，也和睦的事无关吧？
+
+凭啥之后就360°大转弯，非要见睦不死不休了？我大脑真没接通这股情绪流。
+
+依我看这个莫提丝还真没问题，这大祥真有点变态了。后半段莫提丝直接缺席我下意识感觉是大莫老师已经弃疗了。
+
+爱音老师愿意推屁股我不评价，反转会有人提主子伸冤的。
+
+这逼歌和这哭的真没办法让观众跟上节奏啊。什么，你哭了？什么，你也哭了？不，大家都哭了！
+
+我咋妹感受到Crychic的感染力啊，是歌太难听还是因为日语不是我母语所以没接收到电波信号。一个一个搁哪边对Crychic深情告白，我心理想的却是”哦嘈，这逼乐队的事终于过去了，之后能推进下mujica的剧情了吧。“
+
+这集大祥搞定了睦，莫名其妙的还搞定了海铃。Anyway，我觉得很异味，但是考虑到所剩的集数，也行吧，虽然还是很异味。
+
+整集都给人感觉是火速把人推上餐桌然后当面包了个又酸又露馅还夹生的大饺子，然后说吃吧，吃完完事了。
+
+*****
+
+####  木板春香  
+##### 21862#       发表于 2025-2-13 22:49
+
+ 本帖最后由 木板春香 于 2025-2-13 22:51 编辑 
+
+   我们说好不分离！·要一直一直在一起，就算与时间为敌！~将来也要一直走下去！·
+
+  
+
+<img src="https://img.saraba1st.com/forum/202502/13/224951weruu8r868uu9r9s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225053nzeo55aa227992a5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225107yq2j7kvs3px2xkp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:51 上传
+
+*****
+
+####  dentioner  
+##### 21863#       发表于 2025-2-13 22:49
+
+这海铃的Fanart我总有种kidmo画的的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 21864#       发表于 2025-2-13 22:50
+
+海铃这也太卑微了，如果祥没有重组mujica的念头那不是白提了
+说实话🐘虽然找回了一些主动，但是目前还没看出有什么想重组鸡团的必要和想法
+
+*****
+
+####  天空塔书记官  
+##### 21865#       发表于 2025-2-13 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416338&amp;ptid=2208921" target="_blank">bindata 发表于 2025-2-13 22:47</a>
+剧本统筹是真出问题了，这集有些段落放上段详细写写会更好，五六集本来就应该合并成一集或者1.5集的
+
+大纲 ...</blockquote>
+这下wsd自己都包不了饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 21866#       发表于 2025-2-13 22:50
+
+浪费了小祥的人设，我还是去吃同人吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+八成是没打算重组吧，不然大喵还有啥好哈气的，真重组但是不喊她？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhigui  
+##### 21867#       发表于 2025-2-13 22:51
+
+看了上一集我还觉得莫提斯能共存
+
+这集看完我感觉莫提斯必死了
+
+没有存在意义了，只可能最后融合或者消失了
+
+*****
+
+####  answer23  
+##### 21868#       发表于 2025-2-13 22:51
+
+我一直挺乐观的，直到出第七话，算啦，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 21869#       发表于 2025-2-13 22:51
+
+能把读空气之王弄破防的大英帝国实在太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowiner  
+##### 21870#       发表于 2025-2-13 22:51
+
+也就是说，wsd花了七集塑造出这样的祥子和睦子米，霓虹女高中生闹麻了
+
+现在我们还得指望wsd能在剩下六集拯救戏份全无、观感一般的初华、喵梦、海玲
+
+究竟哪些人能对这剧情有好感啊，首先排除mygo和mujica粉
+
+我确实无法理解+2的、感动的楼友
+
+*****
+
+####  十万年魂环  
+##### 21871#       发表于 2025-2-13 22:51
+
+所以情报哥开播前来，原来是这意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  administer  
+##### 21872#       发表于 2025-2-13 22:51
+
+<img src="https://img.saraba1st.com/forum/202502/13/225143kya2tzbmia2bjp0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225146b07t0cnn8gq18tgq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:51 上传
+
+*****
+
+####  aptx8285144  
+##### 21873#       发表于 2025-2-13 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416398&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-13 22:50</a>
+
+海铃这也太卑微了，如果祥没有重组mujica的念头那不是白提了
+
+说实话🐘虽然找回了一些主动，但是目前还没看 ...</blockquote>
+海铃已经被被命令为这场歌唱感动了，无论是不是内鬼或叛徒“也必须”浪子回头<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cauchua3  
+##### 21874#       发表于 2025-2-13 22:52
+
+木谷高明看哭了
+
+
+*****
+
+####  阿兹尔  
+##### 21875#       发表于 2025-2-13 22:52
+
+海初喵你们真的要回来组母鸡卡吗，除了初华实在戒不掉冰，剩下两位回来肯定又是脑控各种逆天发言啊
+
+*****
+
+####  聊nsy专用号  
+##### 21876#       发表于 2025-2-13 22:52
+
+虽然动画里烂完了但是明天tft25年版的羊宫必将反杀好吧
+
+*****
+
+####  darkXcross  
+##### 21877#       发表于 2025-2-13 22:52
+
+听着羊姐跑调的春日影，配着这一台狗血闹剧，真应景。感谢WSD，春日影出脑了，MYGO祛媚了。
+
+*****
+
+####  玖羽  
+##### 21878#       发表于 2025-2-13 22:52
+
+第8话标题：Belua multorum es capitum.（你是多头的怪物）
+
+出自贺拉斯的《书信集》（Epistles），是作者自述为什么不愿参与罗马的公共事务，因为罗马人民就像“多头的怪物”一样充满各种邪恶
+
+估计第8话要揭示黑暗面了
+
+（原文：）
+
+Quod si me populus Romanus forte roget, cur
+
+non ut porticibus sic iudiciis fruar isdem,
+
+nec sequar aut fugiam quae diligit ipse vel odit,
+
+olim quod volpes aegroto cauta leoni
+
+respondit, referam: "quia me vestigia terrent,
+
+omnia te adversum spectantia, nulla retrorsum."
+
+belua multorum es capitum. nam quid sequar aut quem?
+
+pars hominum gestit conducere publica; sunt qui
+
+frustis et pomis viduas venentur avaras
+
+excipiantque senes, quos in vivaria mittant;
+
+multis occulto crescit res faenore.
+
+（简单翻译一下：）
+
+若罗马民众偶然问我：
+
+"为何你与我们漫步于同样的柱廊，却不愿与我们共享同样的评判？
+
+为何你不爱我们所爱，憎我们所憎？"
+
+我将像那只精明的狐狸回复病狮般回答：
+
+"因为那些足迹令我胆寒——
+
+它们全都通往你的巢穴，却无一折返。"
+
+你是一只多头的怪物！我该追随什么，我该听从谁？
+
+你们有人热衷于承包国家税收；有人用残羹果饵
+
+诱捕吝啬的寡妇，网罗老者投入牢笼；
+
+而更多的人则暗中放贷，让财富悄无声息地滋长。
+
+*****
+
+####  cscbzcbz  
+##### 21879#       发表于 2025-2-13 22:52
+
+可以盖棺了吧？不如二创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可怕的是，还有六集！咋演？演啥？饺子包完啦！
+
+*****
+
+####  operatbig  
+##### 21880#       发表于 2025-2-13 22:52
+
+后面的剧情还能炒作吗？
+
+
+*****
+
+####  卫星露天咖啡屋  
+##### 21881#       发表于 2025-2-13 22:53
+
+编剧可以试图把场外的故事引导到监督的问题上，但歌词确实是编剧本人作的吧，这什么水平？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 21882#       发表于 2025-2-13 22:53
+
+感觉这集的春日影不如换成灵感菇，感觉比跑调春日影好
+
+*****
+
+####  安娜导函数  
+##### 21883#       发表于 2025-2-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415534&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 22:17</a>
+
+这是排练，还行</blockquote>
+是啊 无非就是小范围音趴和大街上露出的区别。。。。
+
+*****
+
+####  セト  
+##### 21884#       发表于 2025-2-13 22:53
+
+什么狗屎
+
+*****
+
+####  厚乳果珍爽  
+##### 21885#       发表于 2025-2-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416398&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-13 22:50</a>
+
+海铃这也太卑微了，如果祥没有重组mujica的念头那不是白提了
+
+说实话🐘虽然找回了一些主动，但是目前还没看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是想抱大腿啊，没准是其他人都想抱祥子大腿，毕竟一个月武道馆的势力不是盖的。
+
+*****
+
+####  BismarcKloseL.C  
+##### 21886#       发表于 2025-2-13 22:54
+
+前六集要是不把调门拉那么高，我肯定把这集当神回
+
+*****
+
+####  南宮凝香  
+##### 21887#       发表于 2025-2-13 22:54
+
+垃圾一樣的劇情 -2
+
+低能級別的演唱 -2
+
+沒有讓愛音當真墊子 +2
+
+整體 -2
+
+*****
+
+####  bindata  
+##### 21888#       发表于 2025-2-13 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416402&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 22:50</a>
+
+这下wsd自己都包不了饺子了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+第六集就是有很多无效桥段，比如木头跟猫、三天三夜和爱灯截祥，本来应该断在祥子瘫坐哭哭会更好，起码留个钩子勾引第七集的情绪
+
+*****
+
+####  李黑羊  
+##### 21889#       发表于 2025-2-13 22:54
+
+完全理解了，大祥睦门立雪，祥睦两情相悦，大墨老师发觉原来自己才是那个妖怪，于是转天几人在门前扯了些有的没的来激大祥，大祥终于给了个台阶，大墨老师也就顺坡下驴了。包饺子！
+
+*****
+
+####  最近卡池有毒吧  
+##### 21890#       发表于 2025-2-13 22:55
+
+这集还是挺喜欢的吧，
+不过看下来......母鸡卡真的还有重组的必要吗？
+还有海玲想回归的动机虽然已经很清楚了，但是个人感觉这集对雇佣兵的刻画还是少了一点，看看下集怎么说吧......
+
+*****
+
+####  周处长  
+##### 21891#       发表于 2025-2-13 22:55
+
+ 本帖最后由 周处长 于 2025-2-13 22:57 编辑 
+
+我就放一张图，不敢说多的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/7ffc9d363a714f487f1052afc6b2d159/image.jpg" referrerpolicy="no-referrer">
+最终观感就这张图<img src="https://p.sda1.dev/22/fb2095c318f96a3ec67537635e72efb1/image.jpg" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 21892#       发表于 2025-2-13 22:55
+
+额，我还是看不出来这半身姐妹为啥感情这么深
+
+*****
+
+####  天空塔书记官  
+##### 21893#       发表于 2025-2-13 22:56
+
+这剧本明显砍了太多东西，除了需要给手游留内容和控制动画篇幅外，主要还是为了制造噱头和烂炒的需要，wsd追求的破坏性创新已经超出了他们的能力范围，如果初华的部分再圆不好，就真要滑坡到底了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 21894#       发表于 2025-2-13 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416398&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-13 22:50</a>
+
+海铃这也太卑微了，如果祥没有重组mujica的念头那不是白提了
+
+说实话🐘虽然找回了一些主动，但是目前还没看 ...</blockquote>
+对啊，所以她问的很巧妙啊：你要不要和我和好，这里可以是指普通人际关系也可以是指乐队。海玲问得进退自如又不会让问题延后发酵，我觉得人设是立住了的
+
+*****
+
+####  岬开斗  
+##### 21895#       发表于 2025-2-13 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416391&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-13 22:49</a>
+我们说好不分离！·要一直一直在一起，就算与时间为敌！~将来也要一直走下去！·
+
+  </blockquote>
+原来小心火灾是这个意思啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 21896#       发表于 2025-2-13 22:56
+
+啊，太啰嗦，
+
+*****
+
+####  rubinliu  
+##### 21897#       发表于 2025-2-13 22:56
+
+就算刨去前6集
+
+这集灾难般的过场和音监
+
+真的能叫神回吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 21898#       发表于 2025-2-13 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416338&amp;ptid=2208921" target="_blank">bindata 发表于 2025-2-13 22:47</a>
+
+剧本统筹是真出问题了，这集有些段落放上段详细写写会更好，五六集本来就应该合并成一集或者1.5集的
+
+大纲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">独角兽都说该做都做了，
+
+我就认为独角兽就这水平了，只会写个吸引人的girl meets girl的开头，帕皮卡和可可娜，爱灯，灯祥
+
+后面就不会写了
+
+*****
+
+####  山ノ内花音  
+##### 21899#       发表于 2025-2-13 22:56
+
+终于摆脱了吃屎感的一集 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+后面好好做二偶模版剧情吧 
+别再整活了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21900#       发表于 2025-2-13 22:57
+
+就这状态，我看大伙以后玩手游有的体验呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这世界上有几个人真承受的了”我忘不了前任“这句话的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 21901#       发表于 2025-2-13 22:57
+
+小墨像个笑话
+
+*****
+
+####  六道明  
+##### 21902#       发表于 2025-2-13 22:57
+
+还黑暗面呢，别最后“大的就这”
+
+*****
+
+####  安娜导函数  
+##### 21903#       发表于 2025-2-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415709&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-2-13 22:25</a>
+
+海玲生气可以理解是嫉妒，但你又是感知到啥就想重来了？</blockquote>
+看你们刚才和别人老婆开音趴好爽，能带我一个单不<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 21904#       发表于 2025-2-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416518&amp;ptid=2208921" target="_blank">周处长 发表于 2025-2-13 22:55</a>
+我就放一张图，不敢说多的
+最终观感就这张图
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+C团可能会入土，但C团入土不太可能。
+<img src="https://p.sda1.dev/22/b3cdf023b42a73a2417f48e31d4c0a9b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 21905#       发表于 2025-2-13 22:57
+
+<img src="https://img.saraba1st.com/forum/202502/13/225732usibid4l2vi1g2xb.png" referrerpolicy="no-referrer">
+
+<strong>42Q~%(27E(QGF{9RM@0B15L.png</strong> (449.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225737n2t8k01d2d5e0050.png" referrerpolicy="no-referrer">
+
+<strong>SM{T2)@%Y@V8CV[AXC)F3OI.png</strong> (492.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225742b35kf05mq35nznk7.png" referrerpolicy="no-referrer">
+
+<strong>66IB`0FLK}I$YV4$%%8[CLM.png</strong> (468.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/225746stl36ww7le5etuya.png" referrerpolicy="no-referrer">
+
+<strong>I_9P80(6ZFITZRJZ7A}$BCC.png</strong> (75.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 22:57 上传
+
+你是多首（多余）的怪物
+
+*****
+
+####  DeltaStriker  
+##### 21906#       发表于 2025-2-13 22:58
+
+第7集一出 意思就是说前6集白演了 前面是mygo#14～#20 后面6集才是am 是这个意思吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  山ノ内花音  
+##### 21907#       发表于 2025-2-13 22:58
+
+让你吃了六集的屎
+终于端上来一颗糖
+怎么不叫神回<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  圣血天使  
+##### 21908#       发表于 2025-2-13 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416518&amp;ptid=2208921" target="_blank">周处长 发表于 2025-2-13 22:55</a>
+
+我就放一张图，不敢说多的
+
+最终观感就这张图
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+我看一半就知道4月对邦没有库来西裤那都糟蹋这第七集的气氛了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 21909#       发表于 2025-2-13 22:58
+
+越想越气啊，浪费我时间啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
