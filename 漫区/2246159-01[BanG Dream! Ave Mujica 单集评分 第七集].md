@@ -3122,3 +3122,36 @@ c团姨姥扬眉吐气的一回，就喜欢你看不惯害得看我唱。老羊�
 
 强行包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枪聆弹语  
+##### 308#       发表于 2025-2-14 01:28
+
+我在想国家队13集后直接停播一年，第二季改名叫达令 in the 叫龙，国家队第一季bangumi怎么也可以8.2分吧。还是木柜子太德不配位了，小心机太多了。
+
+
+*****
+
+####  zxtree  
+##### 309#       发表于 2025-2-14 01:31
+
+春日影这歌本来就一般，经不起这么来回唱
+
+*****
+
+####  莱茵哈鲁特  
+##### 310#       发表于 2025-2-14 01:33
+
+这集立竿见影啊，b站评分已经跌到8.4了，明天再发酵一下，跌到8以下也是有可能的。
+
+*****
+
+####  ArcadiaMartyr  
+##### 311#       发表于 2025-2-14 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica才是常态，mygo是变态。
+不然她独角兽怎么mygo之后才出名，花田和大河内之辈至少有人念叨名号
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

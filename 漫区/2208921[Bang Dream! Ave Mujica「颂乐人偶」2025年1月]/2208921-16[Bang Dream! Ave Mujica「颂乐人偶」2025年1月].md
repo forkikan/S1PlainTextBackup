@@ -668,3 +668,82 @@ oh，no，我恐怕这盘饺子对原创番受众来说是致命的……
 <img src="https://p.sda1.dev/22/c2f56809c42612602ad78f7a4fcc1f16/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/98dc0b4896be8da6befe5fd0af2ed2a0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hol_effect  
+##### 22251#       发表于 2025-2-14 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418369&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 01:21</a>
+
+说不定并不带嘲弄意味（</blockquote>
+估计下集就解密了，这集唯一能琢磨的点，其他地方都过于直白了，编剧恨不得把“释怀”两字贴脑门上<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Onelooker  
+##### 22252#       发表于 2025-2-14 01:25
+
+我想了一百种🐘痛苦流涕反省黑刀之夜的剧情
+
+原来是c团挨个磕头给你道歉是我没想到的，太变态了睡不着
+
+*****
+
+####  remedios010000  
+##### 22253#       发表于 2025-2-14 01:29
+
+<blockquote>引用第22127楼厄神之息于2025-02-14 00:13发表的  :
+
+本来一个月不见木子米，被soyo光光来两下，说了句你的事，我都知道了！就开始每周主动探望木子米了？合......</blockquote>
+@厄神之息
+
+大祥老师还在认为大莫老师的精分是因为讨厌自己而演出来的，自己去了只能起到负反馈的作用所以没敢去，这把开局被素世一把抓住顷刻炼化带去对那三天三夜的答案才确定睦头是真的疯了
+
+素世裸绞+分享情报透露出的意思“之前咱俩那点事我暂时都可以不计较，你先给我赶紧去把睦头的问题解决了”
+
+莫提斯对祥子也是纯纯的刻板印象“祥子不爱你”，问题是程门立雪的时候睦头都骗到抱抱和欧内该了，牢莫还在嘴硬，直到四人隔门话疗才破除<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这才肯网开一面暂时下线
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Onelooker  
+##### 22254#       发表于 2025-2-14 01:29
+
+还要爱音这角色mygo时期还能用圣人推辞一下的话
+
+这集递吉他的时候只能用恶心来形容，这是人类吗
+
+
+*****
+
+####  dqtql  
+##### 22255#       发表于 2025-2-14 01:32
+
+<img src="https://img.saraba1st.com/forum/202502/14/013159xo5jrozwiuzsxb5b.png" referrerpolicy="no-referrer">
+
+<strong>独白.png</strong> (116.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 01:31 上传
+
+转自群友
+
+*****
+
+####  千本blur  
+##### 22256#       发表于 2025-2-14 01:32
+
+而且这集真的让人觉得前面白演了，事已至此，祥子和素世立希灯的矛盾早就发展了，站在后者角度祥子不该对他们出于抱持着善意的关心冷眼相待，而祥子角度正是因为受到mygo的刺激才重组了新乐队才有了后面的事。
+
+这些冲突在本集全然被丢掉了，所有人都只有CCC解散当天的记忆。
+
+*****
+
+####  wwwttth  
+##### 22257#       发表于 2025-2-14 01:33
+
+话说这集的单集编剧和上一集的单集编剧是哪两个
+
