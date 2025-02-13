@@ -12805,3 +12805,23 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 剧情都没有，都说了不存在的记忆啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 6905#       发表于 2025-2-13 17:52
+
+ 本帖最后由 岸浪白野 于 2025-2-13 17:53 编辑 
+
+凡尔赛玫瑰女主穿夏亚衣服还行
+
+[X 上的 ほげろー：“オスカル様をラクガキする時…なんとなく服をシャアのコスチュームにする遊びをよくやるんですが…「もしかして今それを描く時じゃ？」と思いちゃんと描いてみました…](https://x.com/hogeroh/status/1889942795533873389)[https://t.co/1qOgm73Aet](https://t.co/1qOgm73Aet)” / X
+
+<img src="https://img.saraba1st.com/forum/202502/13/175136xt2qeqmf32p2d32g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 17:51 上传
+
