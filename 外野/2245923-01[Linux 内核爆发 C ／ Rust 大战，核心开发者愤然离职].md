@@ -1269,3 +1269,16 @@ M佬怒辞…
 
 就我体验来说 Rust 写多线程是比 C 要方便且安全的多的（没用过 C++）
 
+
+*****
+
+####  星空天神  
+##### 101#       发表于 2025-2-13 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409925&amp;ptid=2245923" target="_blank">Xerxes_2 发表于 2025-2-13 12:42</a>
+
+看 Sync 和 Send 两个 trait，简单说严格限制了对象在线程之间发送/共享的要求
+
+就我体验来说 Rust 写多线 ...</blockquote>
+看了一下c++大概是这么写 std::string a;     std::mutex m;     std::thread t1([&amp;]                 {                      std::lock_guard&lt;std::mutex&gt; lock(m);                     a += "hello";                  });     std::thread t2([&amp;]                 {                      std::lock_guard&lt;std::mutex&gt; lock(m);                     a += "world";                  });     t1.join();     t2.join();     std::cout &lt;&lt; a &lt;&lt; std::endl;复制代码rust要arc包裹mutex包裹string。有个疑问就是假如一个被共享的只读对象也要用arc来访问，在跨numa的情况下原子操作的代价非常昂贵，rust是如何去解决这个问题的？
+

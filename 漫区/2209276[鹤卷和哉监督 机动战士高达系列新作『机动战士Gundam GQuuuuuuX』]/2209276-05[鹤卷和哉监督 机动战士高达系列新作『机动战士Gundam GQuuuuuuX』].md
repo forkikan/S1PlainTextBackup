@@ -12525,3 +12525,13 @@ Plazma
 
 习惯了平稳优渥生活的角色，战争是另外一个世界的事物
 
+
+*****
+
+####  Sliurus  
+##### 6880#       发表于 2025-2-13 13:36
+
+用0080推的话，修司算是巴尼还是克丽丝，感觉更像克丽丝，毕竟开的是高达，g9的斧头可能是伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+又要在圣诞节死一个了吗
+
