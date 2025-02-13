@@ -12434,3 +12434,48 @@ Plazma
 联邦会是谁呢……真不好猜 ...</blockquote>
 当然是戴着墨镜的鸭妹了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 6871#       发表于 2025-2-13 12:49
+
+麻球开上MS，没脱离找乐子有行动力JK的范畴。
+相比开场就拳打暴力机关军官的加美尤，打算偷盗暴力机关财产的捷度，可是有本质上的分别。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Toby_dak  
+##### 6872#       发表于 2025-2-13 12:53
+
+话说杉田这次配马克贝，有没机会开上高达<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+毕竟0085高达正统在自护尼克<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  童话与星空  
+##### 6873#       发表于 2025-2-13 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409883&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-13 12:38</a>
+鸡瘟会出来哪些人都能猜得到，无非马克杯拉尔黑三连强尼这些
+
+联邦会是谁呢……真不好猜 ...</blockquote>
+如果主舞台是side6的话，还有可能是0080里的克莉丝，她家就在side6，正史里也开过高达
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YU_JI  
+##### 6874#       发表于 2025-2-13 12:56
+
+<blockquote>童话与星空 发表于 2025-2-13 12:54
+如果主舞台是side6的话，还有可能是0080里的克莉丝，她家就在side6，正史里也开过高达
+
+—— 来自 S1Fun ...</blockquote>
+你别说可能性还真不小
+
