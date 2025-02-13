@@ -155,3 +155,49 @@ PV1：
 
 主角先不说，鬼武者以前可不是打起来这么磨磨蹭蹭的玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉像卡表拿一个废弃的真实系剑戟企划套了个鬼武者皮废物利用...
 
+
+*****
+
+####  葵  
+##### 109#       发表于 2025-2-13 10:06
+
+感觉不太妙，砍杀动作太慢而且软绵绵的毫无命中感，脸膜说是三船敏郎但是完全不像，笑起来的时候反而更像甄子丹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且主角是宫本武藏这个怎么说？那之前同样是宫本武藏主角的那个鬼武者动画算平行世界了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thecatnie  
+##### 110#       发表于 2025-2-13 10:07
+
+有三船敏郎了会不会有仲代达矢啊
+
+*****
+
+####  Nosgoth  
+##### 111#       发表于 2025-2-13 10:08
+
+这软绵绵的什么玩意。
+
+
+*****
+
+####  zqqwe  
+##### 112#       发表于 2025-2-13 10:10
+
+反观鬼武者2hd如果优化下送礼系统和支线便利度，各方面都完爆这新作。即使不玩一闪，2的蓄力派生和秘传也是系列最好的手感。
+
+*****
+
+####  卡拉德利姆  
+##### 113#       发表于 2025-2-13 10:10
+
+我也愣是看了半天没看出来是三船<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三谷歩夢  
+##### 114#       发表于 2025-2-13 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">感觉就是套皮废物利用，没看出来除了那个吸魂动作之外有哪里像鬼武者
+
