@@ -6778,3 +6778,34 @@ soyo 强硬出手 祥子一跪二跪三跪就这么解决了啊……
 
 早點上拳頭一集就速通了
 
+
+*****
+
+####  fuwamoco  
+##### 21326#       发表于 2025-2-13 12:27
+
+第一集就软糯小祥，睦头也不会疯
+
+*****
+
+####  烂片雷达  
+##### 21327#       发表于 2025-2-13 12:27
+
+还是素世的锅，要是当时不拦着立希说不定小祥当时就招了ccc也不会解散<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 21328#       发表于 2025-2-13 12:28
+
+还真是 当初别拦，让立希揪着领子问几下后面两季都不用演了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 21329#       发表于 2025-2-13 12:29
+
+我已经觉得后面剧情是半点活都没了  史上最能烂炒乐队吧
+

@@ -136,3 +136,22 @@ ps版追加中配吗
 
 2025-2-13 12:04 上传
 
+
+*****
+
+####  真田源次郎信繁  
+##### 1910#       发表于 2025-2-13 12:27
+
+psn配音锁区太tm蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 1911#       发表于 2025-2-13 12:28
+
+ 本帖最后由 kuarwbwe 于 2025-2-13 12:29 编辑 
+
+等出价格了再考虑了，还有就是不能绑psn。价格不上350可以考虑，绑psn绝对不玩。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

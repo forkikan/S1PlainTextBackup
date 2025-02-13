@@ -12368,3 +12368,31 @@ Plazma
 
 从索冬船上的对话来看，之前还存在用其他红色MS冒领功劳的情况
 
+
+*****
+
+####  虛無迴廊  
+##### 6865#       发表于 2025-2-13 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408858&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-13 11:10</a>
+普通JK会把回路乖乖交给警察，手机修理费也会直接向妈妈要
+
+看到走私犯和吉翁通缉犯会直接报警，没准还能全 ...</blockquote>
+麻球红色部分的头发确定是染的了吗？也太潮了这丫头
+
+*****
+
+####  YU_JI  
+##### 6866#       发表于 2025-2-13 12:31
+
+联邦那边应该也是盯着红高达的啊，联邦甚至都没有沙仑玫瑰的情报，想研究泽克诺瓦只能从红高达入手
+
+*****
+
+####  王留美  
+##### 6867#       发表于 2025-2-13 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408858&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-13 11:10</a>
+ 普通JK会把回路乖乖交给警察，手机修理费也会直接向妈妈要 看到走私犯和吉翁通缉犯会直接报警，没准还能全 ...</blockquote>
+和巴纳吉比自然不是好孩子，可是比起卡缪那就远远不如了
+
