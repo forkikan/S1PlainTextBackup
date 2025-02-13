@@ -1669,3 +1669,31 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到头来最谜最关键的还是我眼镜哥？
 
+
+*****
+
+####  卢迪克  
+##### 7675#       发表于 2025-2-13 19:15
+
+<blockquote>大厨麦当牛 发表于 2025-2-13 18:57
+说白了还是大总统过于孤注一掷了，范恩说他太独了还真没错，别的国家虽然没钱，但可以出各种奇人异士啊，而 ...</blockquote>
+集合帝国利贝尔财团mk社的技术了啊
+
+<img src="https://img.saraba1st.com/forum/202502/13/191353rq428gwlmtd21qpz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250213_191206.jpg</strong> (186.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-13 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/13/191358dj8v8scjj5jjbfxf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250213_191213.jpg</strong> (192.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-13 19:13 上传
+

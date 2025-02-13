@@ -8905,3 +8905,46 @@ PPP是迷子，多惠是立希(大概)，第二季的ppp解散危急是“根本
 有没有可能不是接不到🐔身上而是接不到初喵海身上呢？三个人靠边站不就得了，之后再从能接到的两个人身上 ...</blockquote>
 已经靠边站两集了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 21541#       发表于 2025-2-13 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413714&amp;ptid=2208921" target="_blank">黛冬優子 发表于 2025-2-13 18:52</a>
+我倒是觉得三个团9个人都是大祥一个人的垫子</blockquote>
+大祥就一祭品，那剧透要是真，我看最后就立希和soyo能善终<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yaneis  
+##### 21542#       发表于 2025-2-13 19:12
+
+<blockquote>看穿一切的鱼 发表于 2025-2-13 19:06
+大祥就一祭品，那剧透要是真，我看最后就立希和soyo能善终
+
+—— 来自 S1Fun ...</blockquote>
+爱音为啥不能善终，都当粉大叔了（
+
+*****
+
+####  蓮華  
+##### 21543#       发表于 2025-2-13 19:12
+
+对我来说可能不是c团的断头饭，是诗超绊的断头饭吧
+视情况以后可能不会再听了，以前觉得是很有感情的歌曲，今天过后可能听起来都是小丑
+
+*****
+
+####  swessia  
+##### 21544#       发表于 2025-2-13 19:13
+
+如果七人live我可以找补爱音能和母鸡卡的ob小姐和莫小姐一块演奏赢麻了
+
+但非得五人live，但我只能投爱音挺王了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
