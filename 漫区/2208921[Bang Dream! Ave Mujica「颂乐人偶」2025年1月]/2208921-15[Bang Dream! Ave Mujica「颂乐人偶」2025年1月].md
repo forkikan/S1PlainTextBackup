@@ -12588,3 +12588,396 @@ C团可能会入土，但C团入土不太可能。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Lyzers  
+##### 21910#       发表于 2025-2-13 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">额啊啊我要看不懂了，来点动画领域大神教我怎么看才能看懂
+
+*****
+
+####  梅杜莎  
+##### 21911#       发表于 2025-2-13 22:58
+
+真是好啊，可惜时过境迁，回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+雨过天晴<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 21912#       发表于 2025-2-13 22:58
+
+没啥可说的。
+
+就和最近玩二次元手游的感想差不多，心情不会有啥波动。
+
+*****
+
+####  清雨  
+##### 21913#       发表于 2025-2-13 22:58
+
+半身是假药还是官方暗示，两姐妹的塑料情让我的认知有点混乱了
+
+*****
+
+####  fwst  
+##### 21914#       发表于 2025-2-13 22:58
+
+我怎么觉得还行 有种游戏王打牌一把泯恩仇的感觉 可能是以前游戏王看多了
+
+*****
+
+####  AP0rt_  
+##### 21915#       发表于 2025-2-13 22:58
+
+感觉看来Mujica版的春日影也不是没有可能嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔耳僵尸  
+##### 21916#       发表于 2025-2-13 22:59
+
+邦邦下限再创新低<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 21917#       发表于 2025-2-13 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415730&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 22:25</a>
+
+本集總結：
+
+時間到了，我們包一下餃子吧</blockquote>
+自己老婆跑去和前任打分手炮，还用的自己的小道具，然后一轮还不够，还要用以前最喜欢的姿势再来一轮，还要让苦主在下面看，完事各回各家这也算保住了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21918#       发表于 2025-2-13 22:59
+
+<blockquote>清雨 发表于 2025-2-13 22:58
+半身是假药还是官方暗示，两姐妹的塑料情让我的认知有点混乱了</blockquote>
+访谈内容
+
+*****
+
+####  圣血天使  
+##### 21919#       发表于 2025-2-13 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">此时应该查询楼里坛友的年龄，这玩意你得想到他们都是高中生，年轻谁人不傻逼，就现在的塑造我只觉得母鸡卡里海玲真的神人，太成熟了
+
+*****
+
+####  天空塔书记官  
+##### 21920#       发表于 2025-2-13 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416496&amp;ptid=2208921" target="_blank">bindata 发表于 2025-2-13 22:54</a>
+第六集就是有很多无效桥段，比如木头跟猫、三天三夜和爱灯截祥，本来应该断在祥子瘫坐哭哭会更好，起码留 ...</blockquote>
+典型的追求演出效果和保持剧情衔接的失衡，实验性动画的常见毛病之一，其实从第四集就开始了，但这演出也没好到哪去啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  FanFun  
+##### 21921#       发表于 2025-2-13 23:00
+
+本来一切闹麻了的事都是大墨和大喵两个作出来的，抹掉这俩的影响就是速包饺子<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白水潭的饿鬼  
+##### 21922#       发表于 2025-2-13 23:00
+
+我就说鸡狗剧本就是为了满足中年厕妹xp的自嗨吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+把少女关系直接写成苦情戏，玩乐队等同做X，然后在第7集来个分手炮<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+整个抖音网剧拿二次元一包装就成时尚单品了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 21923#       发表于 2025-2-13 23:00
+
+还是开膛手初华的逻辑对味
+把祥子关起来问喜不喜欢CCC，喜欢就把她们做成菜，不喜欢更要把她们做成菜了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  最近卡池有毒吧  
+##### 21924#       发表于 2025-2-13 23:01
+
+<img src="https://p.sda1.dev/22/be62b6a60102de48041be72d1c939ae9/IMG_F8CF620D93A69FA79866A64793277B78.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 21925#       发表于 2025-2-13 23:02
+
+说实话这集其实是最烂的吧，已经变回每季一部的杂鱼偶像番了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 21926#       发表于 2025-2-13 23:02
+
+太几把异味了，🦄整的这都是什么死出
+
+她自己写完大纲没过下戏份，分配下段落吗？
+
+*****
+
+####  MASKA-1  
+##### 21927#       发表于 2025-2-13 23:02
+
+莫老师会用手机了，可喜可贺可喜可贺
+<img src="https://p.sda1.dev/22/415670fe79554b9022ee87554e8ddafb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 21928#       发表于 2025-2-13 23:02
+
+话说mygo全团对爱音的态度是否有点过于恶劣了，这集看完感觉只有爱音还想着这个家，其他人对mygo毫无关心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fmban  
+##### 21929#       发表于 2025-2-13 23:02
+
+别的不说，真的是好鸠八难听
+
+*****
+
+####  wpcc  
+##### 21930#       发表于 2025-2-13 23:03
+
+初华真的是一个人吗 还有大的吗我真是操了你还重建mujica干什么呢 这不是我大象一个人的添狗组个ccc干就完事了
+
+*****
+
+####  天空塔书记官  
+##### 21931#       发表于 2025-2-13 23:03
+
+前三集和后面几集完全不像同一部动画，
+
+割裂感太强了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 21932#       发表于 2025-2-13 23:03
+
+好啦好啦，有三次元live就行了（哭泣）
+
+*****
+
+####  Yugao  
+##### 21933#       发表于 2025-2-13 23:03
+
+是不是音监丢了个喇叭给羊唱啊
+
+*****
+
+####  南宮凝香  
+##### 21934#       发表于 2025-2-13 23:03
+
+<blockquote>安娜导函数 发表于 2025-2-13 22:59
+自己老婆跑去和前任打分手炮，还用的自己的小道具，然后一轮还不够，还要用以前最喜欢的姿势再来一轮，还 ...</blockquote>
+沒重組3C 就不算出軌
+
+樂隊少女，混活，能算出軌嗎？
+
+只要掛的隊沒轉， 其他都不算事
+
+*****
+
+####  L-JoeW  
+##### 21935#       发表于 2025-2-13 23:04
+
+开头怎么没有soyo的友情破颜拳啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 21936#       发表于 2025-2-13 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416662&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-13 23:02</a>
+
+说实话这集其实是最烂的吧，已经变回每季一部的杂鱼偶像番了，无聊到恨不得3倍速快进
+
+—— 来自 鹅球 v3.3 ...</blockquote>
+有一说一，没有母鸡卡里几个神人表演时候糟糕<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 21937#       发表于 2025-2-13 23:04
+
+<blockquote>木板春香 发表于 2025-2-13 22:49
+我们说好不分离！·要一直一直在一起，就算与时间为敌！~将来也要一直走下去！·
+
+  
+
+</blockquote>
+说实话，第一首唱的还没时间煮雨好听（）
+
+*****
+
+####  ashero  
+##### 21938#       发表于 2025-2-13 23:04
+
+这集为了包饺子加速演出已经很差了 前几集的演出反而是强的 还要哭腔羊宫 加倍折磨 这时候真不如放cd
+
+*****
+
+####  zhigui  
+##### 21939#       发表于 2025-2-13 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416683&amp;ptid=2208921" target="_blank">Litccc 发表于 2025-2-13 23:02</a>
+
+话说mygo全团对爱音的态度是否有点过于恶劣了，这集看完感觉只有爱音还想着这个家，其他人对mygo毫无关心 ...</blockquote>
+爱音的问题都次要了说实话，这集看了还有人有动力冲的都是这个👍
+
+我是已经彻底无力了，一点力气都提不起来，感觉不管发生都已经无所谓了
+
+*****
+
+####  阿卡拉兰斯  
+##### 21940#       发表于 2025-2-13 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416662&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-13 23:02</a>
+说实话这集其实是最烂的吧，已经变回每季一部的杂鱼偶像番了，无聊到恨不得3倍速快进
+
+—— 来自 鹅球 v3.3 ...</blockquote>
+确实，这就是我破防的原因
+我是在看邦邦吗，哦我确实在看邦邦
+这确实是邦邦啊
+演出还不如前三季呢<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帆前  
+##### 21941#       发表于 2025-2-13 23:05
+
+oh，no，我恐怕这盘饺子对扭曲怪来说是致命的……
+
+*****
+
+####  十万年魂环  
+##### 21942#       发表于 2025-2-13 23:05
+
+真打了，不就是成阿斯兰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 21943#       发表于 2025-2-13 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416701&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 23:03</a>
+
+沒重組3C 就不算出軌
+
+樂隊少女，混活，能算出軌嗎？</blockquote>
+只要结婚证上还是我名字就问题不大是嘛<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21944#       发表于 2025-2-13 23:06
+
+灯唱得有点太难听了，想再看一遍找点细节还是忍不住跳过了
+
+*****
+
+####  天空塔书记官  
+##### 21945#       发表于 2025-2-13 23:06
+
+这“live”追求的就是打破滤镜，糟糕的效果反而应该是故意为之的，也就是“实验性”的产物，监督搞不好还要以此为荣的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cc37  
+##### 21946#       发表于 2025-2-13 23:06
+
+转变太快了缺少铺垫，又或者说之前的铺垫没用上
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  bindata  
+##### 21947#       发表于 2025-2-13 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416548&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-13 22:56</a>
+
+独角兽都说该做都做了，
+
+我就认为独角兽就这水平了，只会写个吸引人的girl meets girl的开头，帕皮卡和可 ...</blockquote>
+独角兽能力并没有那么强，不然这个V形架构大纲不至于修到跑路都没修好
+
+但是丰满细节还是要看单集剧本的，分镜演出更要看监督
+
+现在看来节奏和细节都是灾难，该松的地方不松，该紧的地方不紧，这就是剧情统筹失能的结果了
+
+如果调整节奏，第六话soyo见了睦就去探中登堵羽丘，爱灯进完丰川宅就开始用各种方式试图跟祥子交流，最后收结于祥子哭哭，观感会好很多
+
+*****
+
+####  weige  
+##### 21948#       发表于 2025-2-13 23:07
+
+笑的停不下来，为啥你们看个番还愁眉苦脸
+
+*****
+
+####  ml1642879  
+##### 21949#       发表于 2025-2-13 23:07
+
+如果拿不是LIVE是彩排当理由是不是就能接受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萌二  
+##### 21950#       发表于 2025-2-13 23:07
+
+这部真不该挂母鸡卡的名头
+
+*****
+
+####  木板春香  
+##### 21951#       发表于 2025-2-13 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416708&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-13 23:04</a>
+
+说实话，第一首唱的还没时间煮雨好听（）</blockquote>
+抛开剧情不谈 时间煮雨确实是好歌啊
+
+*****
+
+####  聊nsy专用号  
+##### 21952#       发表于 2025-2-13 23:08
+
+如果觉得这集是最烂的那也大概率是后6集里最好的，c团作为鸡狗的原点再烂也有前面的铺垫，后面可真就无法预测的命运之舞台了
+
