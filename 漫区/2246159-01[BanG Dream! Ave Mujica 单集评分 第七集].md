@@ -3276,3 +3276,11 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 太割裂了。十五年大女主究竟是1大象2大喵3小木4长期素食<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ylssb10438  
+##### 324#       发表于 2025-2-14 02:25
+
+剧情先不提，拖了怎么久为什么制作水准反而差了那么多?
+
