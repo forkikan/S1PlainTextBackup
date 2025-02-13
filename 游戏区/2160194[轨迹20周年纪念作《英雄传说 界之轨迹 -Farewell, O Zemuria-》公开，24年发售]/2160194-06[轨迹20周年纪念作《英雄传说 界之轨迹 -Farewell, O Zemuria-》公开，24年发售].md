@@ -1374,3 +1374,22 @@ van在最后一段感觉整个人已经急到无能狂怒了，确实做的事�
 
 眼镜属于界轨里最意义不明的角色了。。而且黑科技含量超高 还能随随便便瞬移到太空旅个游回来。。
 
+
+*****
+
+####  kanata  
+##### 7654#       发表于 2025-2-13 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406655&amp;ptid=2160194" target="_blank">dio999 发表于 2025-2-13 00:17</a>
+
+最大的吐槽点不就是这种大事竟然不是集大陆全力去干而是自己单上加上核弹是A 那边搞出来的，所以没有A搞出 ...</blockquote>
+核弹是博士徒弟造的，没有恐惧哥大总统亲自下场资助他就完事了
+
+
+*****
+
+####  風卷豹  
+##### 7655#       发表于 2025-2-13 17:12
+
+想到下作极有可能得在剧情里挖出一大块详细塑造卢尼和解释他动机就感觉有种说不出的讨厌感<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

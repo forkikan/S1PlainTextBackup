@@ -8389,3 +8389,52 @@ op欺诈里唯一真的不会只有两个初华吧……
 粉色奶龙：只要你肯吃苦，编剧就会让你有吃不完的苦</blockquote>
 对比之下爱音人设已经很好了，要是剧透是真的其他角色跌到妈都不认识了……
 
+
+*****
+
+####  南宮凝香  
+##### 21490#       发表于 2025-2-13 17:09
+
+25 年挺王封盤了
+
+
+*****
+
+####  qlipho  
+##### 21491#       发表于 2025-2-13 17:11
+
+<blockquote>天空塔书记官 发表于 2025-2-13 17:00
+省流版:睦的苏醒代表着祥子“神性”的回归，从新成为“神明”，成为创作者的祥子就能重新加入乐队
+
+但只 ...</blockquote>
+是什么支持你每次写这么多的
+
+*****
+
+####  阿兹尔  
+##### 21492#       发表于 2025-2-13 17:13
+
+等等，又有新剧透了？在哪里
+
+看到了看到了
+
+*****
+
+####  天空塔书记官  
+##### 21493#       发表于 2025-2-13 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412730&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-13 17:11</a>
+是什么支持你每次写这么多的</blockquote>
+因为想写，你不觉得这很有趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 21494#       发表于 2025-2-13 17:16
+
+soyo真把大祥按地上还把手给按住了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
