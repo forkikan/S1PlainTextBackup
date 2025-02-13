@@ -3782,3 +3782,32 @@ https://xiaoyi.huawei.com/chat/
 菊花的小艺网页版带R1，可以选手动或者自动启用</blockquote>
 这个有联网搜索吗？
 
+
+*****
+
+####  千千千千鸟  
+##### 1814#       发表于 2025-2-13 09:14
+
+卧槽？4090能跑满血R1？按耐不住想下班了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+以及，类脑重开了，这个是不是不能传播来着，昨天进去了，今天多学习下酒馆玩法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  possibility  
+##### 1815#       发表于 2025-2-13 09:17
+
+拿来写词玩，我自己又改改，参与感挺好的，就是服务器繁忙好累，希望技术再进步进步。
+
+菩萨蛮
+
+垂杨空绾春衫碧，菱歌惊散双飞翼。  
+
+烟水白蘋洲，觉来鬓已秋。  
+
+醉里寻旧字，纸尽封春事。  
+
+不敢问归程，青山叠故城。
+
+感觉词投喂的不是很多，不知道该怎么投喂。是把我喜欢的作品都发给它，让它来模拟吗？
+
