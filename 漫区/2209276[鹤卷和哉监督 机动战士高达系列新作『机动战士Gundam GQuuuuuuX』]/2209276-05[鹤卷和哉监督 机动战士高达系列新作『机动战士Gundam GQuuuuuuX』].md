@@ -13013,3 +13013,13 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 星街的插曲上网易云了
 
+
+*****
+
+####  王留美  
+##### 6924#       发表于 2025-2-14 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417672&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-2-14 00:09</a>
+ 星街的插曲上网易云了</blockquote>
+全曲？
+

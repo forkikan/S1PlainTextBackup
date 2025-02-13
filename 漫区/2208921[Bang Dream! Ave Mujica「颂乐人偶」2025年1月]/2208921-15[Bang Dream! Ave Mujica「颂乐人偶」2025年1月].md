@@ -15246,3 +15246,164 @@ tm的下个镜头猫就出来了，写的什么玩意</blockquote>
 
 真的，什么狗屎还这么炒
 
+
+*****
+
+####  Cortana  
+##### 22153#       发表于 2025-2-14 00:28
+
+竟然还有人认为c团复活了的，我怀疑我和你们看的不是一部番。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhzij111  
+##### 22154#       发表于 2025-2-14 00:28
+
+灯皇人气投票现在连喵梦都打不过了，事已至此，还是多回家练练唱歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  秋月艾莉  
+##### 22155#       发表于 2025-2-14 00:28
+
+太变态了
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">原来（CRYCHIC）解散也是MUJICA的演出，太牛了.jpg
+
+*****
+
+####  homesickness  
+##### 22156#       发表于 2025-2-14 00:28
+
+大祥老师生日快乐
+
+*****
+
+####  天空塔书记官  
+##### 22157#       发表于 2025-2-14 00:29
+
+你不能在企划爆雷的时候只骂编剧，还是骂wsd吧，这锅企划方更大，ave显然是为了配合线下炒作故意搞成这样的
+
+这世上太多的问题始于既要又要，贪心不足蛇吞象啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LeonsCat  
+##### 22158#       发表于 2025-2-14 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417723&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-14 00:13</a>
+
+本来一个月不见木子米，被soyo光光来两下，说了句你的事，我都知道了！就开始每周主动探望木子米了？合着你 ...</blockquote>
+感觉就是的，之前东躲西藏就是怕丢作为大小姐的脸的感觉，结果被soyo直接击穿了。
+
+什么玛丽苏被开盒啊。
+
+*****
+
+####  oneoutsider  
+##### 22159#       发表于 2025-2-14 00:30
+
+这6，7集的观感又让我回到看mygo的感觉了，不如说这本来就是c团解散的直接延续剧情，果然抛开商业和大人的事情，只讲高中女生之间的情感纠纷与和解会自然很多。crychic始于春日影，终于春日影，也算好聚好散了。
+
+反过来说a团的前4集剧情真的写得不太行啊，甚至把角色写崩。不知道接下来变回白祥的ob一串字母小姐没有圣·mygou团员的助攻下怎么大战三神人，让a团再回锅。
+
+*****
+
+####  sauron.j  
+##### 22160#       发表于 2025-2-14 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417922&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 00:29</a>
+
+你不能在企划爆雷的时候只骂编剧，还是骂wsd吧，这锅企划方更大，ave显然是为了配合线下炒作故意搞成这样的 ...</blockquote>
+剧情劈叉的作品百分百都是因为既要又要，不够纯粹
+
+鸡这个就是制作组的个人执念和企划的方向性要求混合到一起，出现了怪味化学反应
+
+
+*****
+
+####  单脚着地  
+##### 22161#       发表于 2025-2-14 00:32
+
+虽然漏油生气的很多，但我觉得我之后还是会好好期待和享受这部番的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinoverse  
+##### 22162#       发表于 2025-2-14 00:32
+
+CCC的正常完整版春日影得放专辑里听了，不过好像也没有什么非得听的必要
+
+2023年下半年这东西带给我的美好回忆是真实存在的，追也是会追完的
+
+但就好像立希的那句“CCC只是个普通的乐队”，差不多也该接受这动画本质杂鱼偶像番的这一事实了
+
+*****
+
+####  结衣小比取  
+##### 22163#       发表于 2025-2-14 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417375&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-13 23:44</a>
+
+开头祥子说“好想成为人类，原来是这么回事”
+
+我觉得应该是指“好想成为人类”这句话最早是小睦说的，祥子 ...</blockquote>
+ED里写了这首歌叫 成人歌2，顺带一提成人歌完全版在MyGO BD里有，猜测在Ave Mujica BD里也有成人歌2的完整版
+
+坛友有兴趣可以听一下
+
+《成为人类之歌》58:38
+[https://www.bilibili.com/video/BV1XPWTeoEEh/?t=3518](https://www.bilibili.com/video/BV1XPWTeoEEh/?t=3518)
+
+<img src="https://img.saraba1st.com/forum/202502/14/003226zuz2yrk77m26m5iz.png" referrerpolicy="no-referrer">
+
+<strong>截图21213.png</strong> (3.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 00:32 上传
+
+*****
+
+####  NEWROMANCER  
+##### 22164#       发表于 2025-2-14 00:32
+
+这集开播前staff阵容我还挺信任的，至少比奥川尚弥还有森田紘吏俩混子好多了。结果全干了。
+现在整个片场可以摘出去的staff只剩大森大地和梅津朋美了。所以这季真的还能看到梅津朋美操刀回吗。
+
+*****
+
+####  江口夕  
+##### 22165#       发表于 2025-2-14 00:33
+
+ 本帖最后由 江口夕 于 2025-2-14 00:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这集不是挺好，不知道你们破防啥，几个人开给自己的结束live要啥效果。不知道楼里破防啥。
+大祥之前怕见睦，怕变的更遭，只能说编剧女人逻辑不符合宅男审美，故意要这么整就整了吧，就当打工把脑子打坏了。之后逻辑通顺点睁只眼闭只眼了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Putredinus  
+##### 22166#       发表于 2025-2-14 00:34
+
+不是，为什么那么多人吐槽歌不好听的。那么明显的哭腔，明摆着就是说情绪激动唱不出来，近似一种在“念、说”的感觉，在演而不是搞个录音室版本给你体验情绪，剧里还圆了一嘴说词写不出来、写的不好。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+另外从功能方面想，这Live在干着宣泄情绪的事情，作为解决问题（减慢节奏）的部分，被按下了静音键、被“大手”捂住只能发出呜呜的声音，不让观众感觉到迸发的情绪，只能看到几个人在那里搞这搞那。下一话又要开始加速，难道没有一种乌云渐起、黑暗将至，连市中心清澈的泉水都开始变得浑浊的感觉吗
+
+*****
+
+####  darkXcross  
+##### 22167#       发表于 2025-2-14 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417721&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-14 00:12</a>
+
+不过虽然我一直对独角兽不太喜欢，但是这集我觉得剧情的问题反而不大，导致成为笑柄是因为分镜和演出 ...</blockquote>
+看起来像是剧本和监督决裂了，剧本怎么写就怎么安排分镜，完全没有讨论和打磨。
+
