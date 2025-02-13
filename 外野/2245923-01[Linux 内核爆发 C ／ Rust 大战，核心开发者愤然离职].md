@@ -1255,3 +1255,17 @@ M佬怒辞…
 
 没有写过rust，不过rust既然用所有权的问题解决内存安全问题那么多线程下的内存安全是怎么在编译时期解决的？
 
+
+*****
+
+####  Xerxes_2  
+##### 100#       发表于 2025-2-13 12:42
+
+ 本帖最后由 Xerxes_2 于 2025-2-13 12:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67407344&amp;ptid=2245923" target="_blank">星空天神 发表于 2025-2-13 08:00</a>
+
+没有写过rust，不过rust既然用所有权的问题解决内存安全问题那么多线程下的内存安全是怎么在编译时期解决的 ...</blockquote>
+看 Sync 和 Send 两个 trait，简单说严格限制了对象在线程之间发送/共享的要求
+
+就我体验来说 Rust 写多线程是比 C 要方便且安全的多的（没用过 C++）
+

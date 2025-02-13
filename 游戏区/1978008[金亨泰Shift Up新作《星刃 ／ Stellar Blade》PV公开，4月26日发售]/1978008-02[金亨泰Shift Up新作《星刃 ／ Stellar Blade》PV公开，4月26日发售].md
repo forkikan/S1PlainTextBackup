@@ -155,3 +155,13 @@ psn配音锁区太tm蠢了<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  FFFreddie  
+##### 1912#       发表于 2025-2-13 12:39
+
+看起来我可以把盘卖了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

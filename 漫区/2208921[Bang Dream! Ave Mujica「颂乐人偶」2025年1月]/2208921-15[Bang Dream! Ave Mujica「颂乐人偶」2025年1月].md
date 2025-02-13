@@ -6809,3 +6809,83 @@ soyo 强硬出手 祥子一跪二跪三跪就这么解决了啊……
 
 我已经觉得后面剧情是半点活都没了  史上最能烂炒乐队吧
 
+
+*****
+
+####  qlipho  
+##### 21330#       发表于 2025-2-13 12:36
+
+播完应该再没有樱花姨编剧gachi了吧
+
+*****
+
+####  南宮凝香  
+##### 21331#       发表于 2025-2-13 12:36
+
+立希： 黑刀之夜讓我鎚兩拳不就完了？
+
+*****
+
+####  阿卡拉兰斯  
+##### 21332#       发表于 2025-2-13 12:36
+
+别说，我还真挺期待想要成为人类之歌的
+刷到这个情报后重新听了下，感觉情绪流铺垫好我真能暂时选择忘记其他有的没的
+
+*****
+
+####  天空塔书记官  
+##### 21333#       发表于 2025-2-13 12:38
+
+其他的不知道，但祥党是免不了发疯了
+
+唉…角色厨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 21334#       发表于 2025-2-13 12:38
+
+<blockquote>qlipho 发表于 2025-2-13 12:36
+播完应该再没有樱花姨编剧gachi了吧</blockquote>
+肯定会还会有一批结晶粉的，不过好处是没有那么多编剧粉到处发狂了
+
+*****
+
+####  qzfjnv  
+##### 21335#       发表于 2025-2-13 12:38
+
+这下丰川集团的黑衣人坐实薪水小偷了
+
+
+*****
+
+####  看穿一切的鱼  
+##### 21336#       发表于 2025-2-13 12:41
+
+不是，裸绞也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  凉良  
+##### 21337#       发表于 2025-2-13 12:44
+
+祥第一次被赶出去后一直在门外等着
+
+这句被删了  是藏了啥么
+
+*****
+
+####  rushsong  
+##### 21338#       发表于 2025-2-13 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409856&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-13 12:36</a>
+播完应该再没有樱花姨编剧gachi了吧</blockquote>
+还是有的，一堆人为樱花姨编假药然后证明她深思熟虑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

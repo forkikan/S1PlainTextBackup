@@ -12396,3 +12396,41 @@ Plazma
  普通JK会把回路乖乖交给警察，手机修理费也会直接向妈妈要 看到走私犯和吉翁通缉犯会直接报警，没准还能全 ...</blockquote>
 和巴纳吉比自然不是好孩子，可是比起卡缪那就远远不如了
 
+
+*****
+
+####  王留美  
+##### 6868#       发表于 2025-2-13 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409801&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-13 12:31</a>
+ 联邦那边应该也是盯着红高达的啊，联邦甚至都没有沙仑玫瑰的情报，想研究泽克诺瓦只能从红高达入手 ...</blockquote>
+鸡瘟会出来哪些人都能猜得到，无非马克杯拉尔黑三连强尼这些
+
+联邦会是谁呢……真不好猜
+
+
+*****
+
+####  童话与星空  
+##### 6869#       发表于 2025-2-13 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409883&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-13 12:38</a>
+鸡瘟会出来哪些人都能猜得到，无非马克杯拉尔黑三连强尼这些
+
+联邦会是谁呢……真不好猜 ...</blockquote>
+鸭妹？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刺客ares  
+##### 6870#       发表于 2025-2-13 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67409883&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-13 12:38</a>
+
+鸡瘟会出来哪些人都能猜得到，无非马克杯拉尔黑三连强尼这些
+
+联邦会是谁呢……真不好猜 ...</blockquote>
+当然是戴着墨镜的鸭妹了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
