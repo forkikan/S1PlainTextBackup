@@ -2005,3 +2005,25 @@ goty没让我破防，这玩意给我干破防了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃鸡的搜刮+PVE感觉会不错，就是不知道耐玩度如何了
 
+
+*****
+
+####  JOJO42  
+##### 220#       发表于 2025-2-13 10:17
+
+ 本帖最后由 JOJO42 于 2025-2-13 10:19 编辑 
+
+坏了，我怎么感觉还行？看放出的宣传图，封面角色好像内部不是有机肉体，是通过蓝色线路构成的？如果说这角色是某种魔幻生化人，那他大招是打桩机还挺合理的...
+
+看别的几个角色设计，估计这次剧情上也有一定的想法吧，通过这作来实验加强人物性能后的游戏设计，估计也能给后续fs作品点启发吧
+
+诶等等，不是，怎么这个角色的人称代词是“he”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/13/101930vbkj5bu1urd9156r.jpg" referrerpolicy="no-referrer">
+
+<strong>GjmM89AWIAAEWgs.jpg</strong> (212.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 10:19 上传
+
