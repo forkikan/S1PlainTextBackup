@@ -12614,3 +12614,48 @@ Plazma
 
 看的时候还担心会不会是克莉丝汀娜…
 
+
+*****
+
+####  猪突猛进  
+##### 6889#       发表于 2025-2-13 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411402&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-2-13 15:10</a>
+
+你们呀，不期待林有德、史列加和卡姆兰再次同框的画面麽
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+史列加估计还是要神风大扎姆。
+
+大猩猩都完球了，史列加多半逃不掉。
+
+很难想象鸭妹靠一台轻加农单刷大扎姆。
+
+算是世界线的收束了。
+
+其实假如没所罗门冲击，吉翁可能还是要输。
+
+格兰纳达和阿·巴奥·克一样同属SIDE3最终防卫圈，敲掉一个就能直接进攻SIDE3本土。
+
+如果联邦能一鼓作气拿下SIDE3（这回没有手电筒照射了），月神2号丢就丢了。
+
+
+*****
+
+####  gamedreamer  
+##### 6890#       发表于 2025-2-13 15:36
+
+克莉丝艹
+巴尼不用战斗了结果女方没了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  纪寞  
+##### 6891#       发表于 2025-2-13 15:37
+
+说起来起初泄漏的gqx机设，直接是标了名字为Rise heavy，这个名字会保留吗？但又感觉这名字没啥意义。
+
+那版的主角是头部改成现在gqx那样，然后红高达是8 bit，但实际剧中夏亚只用过6 bit，85的甚至从2 bit 到 0 bit了。
+

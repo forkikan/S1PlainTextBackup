@@ -447,3 +447,49 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 这照片是你吗</blockquote>
 这么看其实还是能看出来有点像的，但是不对比第一眼看真不行。
 
+
+*****
+
+####  drx66  
+##### 138#       发表于 2025-2-13 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411474&amp;ptid=2210366" target="_blank">被击坠王 发表于 2025-2-13 15:17</a>
+
+这最近的表现就是老员工相继离开新人接手后的卡婊的真正样子吗</blockquote>
+那么街霸6算新人接手吗
+
+*****
+
+####  lesword  
+##### 139#       发表于 2025-2-13 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411515&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2025-2-13 15:20</a>
+
+这么看其实还是能看出来有点像的，但是不对比第一眼看真不行。</blockquote>
+第一眼说实话看着像甄子丹（）
+
+
+*****
+
+####  bgmilk  
+##### 140#       发表于 2025-2-13 15:31
+
+     pv比想象中差不少，感觉刀和刀都没碰到一起。
+
+*****
+
+####  kuarwbwe  
+##### 141#       发表于 2025-2-13 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411594&amp;ptid=2210366" target="_blank">lesword 发表于 2025-2-13 15:28</a>
+
+第一眼说实话看着像甄子丹（）</blockquote>
+我第一反应是合金装备崛起的激流山姆，就不知道山姆脸模用的谁了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pu  
+##### 142#       发表于 2025-2-13 15:33
+
+细谷的声音和三船的脸完全不搭 
+

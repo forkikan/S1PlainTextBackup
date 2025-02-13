@@ -7723,3 +7723,45 @@ nga的祥厨已经进入了三角初华阶段
 
 其实爱音一直都是路边一条，是早期仿佛杂鱼偶像片+第一个出场给了太多人她好像是主角的错觉
 
+
+*****
+
+####  Nealyun  
+##### 21427#       发表于 2025-2-13 15:28
+
+作为crychic粉真是越来越期待了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 21428#       发表于 2025-2-13 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411429&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-13 15:12</a>
+对我来说，这样发展的剧情就是在否定当初我对诗超绊的感动
+
+诗超绊最让我感动的是对过去的和解与当下五人的 ...</blockquote>
+因为本来就不是忘记过去啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">soyo最后和灯说的也是"我可能这辈子也无法忘记crythic"而不是"我已经放下了crythic"。灯这种一个都不放手的性格基本上也差不多，mygo到最后本质上也只是把crythic解散的伤口抚平，但还是留了个疤。母鸡卡前六集就是把这道疤再撕开的过程。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 21429#       发表于 2025-2-13 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411639&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-13 15:31</a>
+因为本来就不是忘记过去啊soyo最后和灯说的也是"我可能这辈子也无法忘记crythic"而不是"我已经放下了cryt ...</blockquote>
+我觉得最害怕的是，后面这剧情告诉你大概说我忘不掉的那个人，反而是已经想要试着和现在的伙伴向前走的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 21430#       发表于 2025-2-13 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411429&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-13 15:12</a>
+对我来说，这样发展的剧情就是在否定当初我对诗超绊的感动
+
+诗超绊最让我感动的是对过去的和解与当下五人的 ...</blockquote>
+说真的，哪怕是go团libe上灯对着台下的祥子和睦头唱成为人类之歌唤醒睦头和鼓动祥子，我都觉得是个不错的承上启下，如果真搞什么CCC五人限定复活live……那只能预祝圣爱音挺王当选了
+
