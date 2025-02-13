@@ -3887,3 +3887,19 @@ DS占了四个，官网+硅基+火山+欧派（不是）云
 剩下个gemini</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直球辱骂d老师打断他的赛博疯话也是风味玩法的一部分了
 
+
+*****
+
+####  qwased  
+##### 1823#       发表于 2025-2-14 02:07
+
+<img src="https://img.saraba1st.com/forum/202502/14/020652yvxpius1el81o3lo.jpg" referrerpolicy="no-referrer">
+
+<strong>94E6B5813D923DB8BEB99CDDA928E4BB.jpg</strong> (144.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 02:06 上传
+
+正式发布多模态？
+
