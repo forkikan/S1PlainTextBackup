@@ -4071,3 +4071,14 @@ go的歌没跑了，青木还转推了
 
 <img src="https://p.sda1.dev/22/f2f40061ccbb35162c51220ec58d32c3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninokagami  
+##### 26945#       发表于 2025-2-14 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414552&amp;ptid=2159415" target="_blank">ninokagami 发表于 2025-2-13 20:48</a>
+
+猜一个大炒特炒今晚c团复活春日影接明晚tft春日影</blockquote>
+卧槽里的，宁愿猜错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
