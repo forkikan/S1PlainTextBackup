@@ -206,3 +206,16 @@ Stellar Blade PC version supports 22 languages and full lip sync with voice supp
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Andariel  
+##### 1917#       发表于 2025-2-13 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410762&amp;ptid=1978008" target="_blank">牙狼GARO 发表于 2025-2-13 14:02</a>
+就这还有人喷我爱玩不玩/为什么不去买日版
+
+—— 来自 OnePlus LE2100, Android 14上的 S1Next-鹅版 v2.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼还算有点脑子的
+以前se的古墓丽影重启和科乐美的老游戏即使是steam也搞日区独占日语音
+

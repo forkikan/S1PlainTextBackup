@@ -7459,3 +7459,69 @@ ansy真是一对圣人啊再也不黑了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 21400#       发表于 2025-2-13 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黄大叔这炒作也是给晚上的一把火再浇把油
+
+
+*****
+
+####  cxj649  
+##### 21401#       发表于 2025-2-13 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411075&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-13 14:34</a>
+
+樱花姨编剧这不是很懂吗，怎么有gachi能神圣分离的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神圣分离是每个作品可能都会有角色毒粉的脑补
+
+有时这些脑补哪怕爆破底层逻辑，他们也不管的，也不管角色OOC不管角色结局
+
+
+*****
+
+####  Redimercia  
+##### 21402#       发表于 2025-2-13 14:43
+
+不得不说看这动画的每一周都很开心，不管是场内还是场外
+
+一想到这动画还有6集一个半月就没了我就心如刀割
+
+*****
+
+####  单脚着地  
+##### 21403#       发表于 2025-2-13 14:43
+
+怎么感觉那图根本不适SOYO裸绞大象，而是大象和睦沟通无果崩溃寻求老C人帮助又逃跑被SOYO追上去抱住了
+
+*****
+
+####  厚乳果珍爽  
+##### 21404#       发表于 2025-2-13 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411177&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-13 14:43</a>
+
+怎么感觉那图根本不适SOYO裸绞大象，而是大象和睦沟通无果崩溃寻求老C人帮助又逃跑被SOYO追上去抱住了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是抱住啊！
+
+*****
+
+####  真爱与热情  
+##### 21405#       发表于 2025-2-13 14:46
+
+我看海星，算是给哭团盖棺材板了，如果这动画不叫mujica的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是大祥老师绕了半天还是回到哭团，一季的集数白干，有点难绷
+
+*****
+
+####  天空塔书记官  
+##### 21406#       发表于 2025-2-13 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410898&amp;ptid=2208921" target="_blank">岸波白野 发表于 2025-2-13 14:14</a>
+极狐PTSD犯了，只要祈愿就能得到回应，相信是不需要理由的</blockquote>
+真不至于，祥子和睦好歹也是“血亲”(应该)和青梅竹马，和狐神狸猫那种摁头关系完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -3847,3 +3847,28 @@ film live而已，前两部B站都有
 HALO<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/921f7d921a3253d66dbeb980750eec24/Image_134643808596793.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 26928#       发表于 2025-2-13 14:39
+
+<blockquote>对于拥有Synthesizer V AI 夢ノ結唱POPY・ROSE的用户，我们计划提供以下兼容版本并进行升级码的优惠销售：
+
+① 预计在3月21日左右开始提供适用于Synthesizer V2的、相当于Synthesizer V1功能的兼容版POPY・ROSE。
+
+② 可以购买Synthesizer V2版POPY・ROSE的升级码，价格为4950日元（含税）。
+
+※ 即使进行升级，Synthesizer V AI POPY・ROSE / 兼容版POPY・ROSE仍然可以继续使用。
+
+另外，目前发售中的以下商品将于4月25日（星期五）停止销售：
+
+        •        Synthesizer V AI 夢ノ結唱 POPY Studio Pro 下载版
+
+        •        Synthesizer V AI 夢ノ結唱 ROSE Studio Pro 下载版
+
+※ 购买Synthesizer V 2 AI 夢ノ結唱 POPY・ROSE的用户，将不会提供适用于Synthesizer V AI的POPY・ROSE兼容版。
+
+※ 购买Synthesizer V 2 AI 夢ノ結唱 PASTEL・HALO的用户，将提供适用于Synthesizer V AI的PASTEL・HALO兼容版。</blockquote>
+还好是向上兼容，没逼着升级SV2
+

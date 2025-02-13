@@ -5665,3 +5665,11 @@ KT新作“无双深渊”，ps4/5，rouge like型act
 
 年轻人的第一款无双，前面用孙市后面用雅典娜，一路割 是真的厉害
 
+
+*****
+
+####  折中旗帜鲜明  
+##### 630#       发表于 2025-2-13 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果能有真田丸和358的新人物倒是不错
+
