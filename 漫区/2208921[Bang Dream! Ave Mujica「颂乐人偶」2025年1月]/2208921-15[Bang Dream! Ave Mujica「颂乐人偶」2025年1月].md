@@ -6991,3 +6991,146 @@ ansy真是一对圣人啊再也不黑了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  厚乳果珍爽  
+##### 21351#       发表于 2025-2-13 13:06
+
+贴吧剧透能发一个地址吗？太乐了
+
+*****
+
+####  天空塔书记官  
+##### 21352#       发表于 2025-2-13 13:07
+
+这样看来黑化和白化是合在一集了…
+
+不过海铃会在第八集爆，还是在意料之中
+
+重组A团的发动机还是在喵梦那<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  iiiiiiiiii  
+##### 21353#       发表于 2025-2-13 13:07
+
+ 本帖最后由 iiiiiiiiii 于 2025-2-13 13:08 编辑 
+
+傻逼玩意，角畜和柿畜上我黑名单了，以后见一次打一次低分。
+
+*****
+
+####  凉良  
+##### 21354#       发表于 2025-2-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410200&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-13 13:06</a>
+
+贴吧剧透能发一个地址吗？太乐了</blockquote>
+就紫吧黄大叔啊
+
+*****
+
+####  阿卡拉兰斯  
+##### 21355#       发表于 2025-2-13 13:08
+
+有了上次官方烂炒的对仗怎么大伙还没长记性呢，而且这次炒的也没有什么让人想不到的点吧
+哦不对有的，我觉得真裸绞这个我还真想不到居然真能给做出来，还有铁门环节“只要你能恢复原状 我什么都会做”
+照着二创做原作，至少也有第四集前半水平吧，应该<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 21356#       发表于 2025-2-13 13:09
+
+不过更樂的是
+
+祥党看不到十五年未有之大女主喵梦了，取而代之的是“二十年未有之大女主素世”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 阿兹尔| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  看穿一切的鱼  
+##### 21357#       发表于 2025-2-13 13:10
+
+跟小祥一切的行为都可以和解，因为这次错的真的是世界。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  格雷殿下  
+##### 21358#       发表于 2025-2-13 13:10
+
+刚来，是谁圣人点数+1了吗
+
+*****
+
+####  cxj649  
+##### 21359#       发表于 2025-2-13 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410240&amp;ptid=2208921" target="_blank">格雷殿下 发表于 2025-2-13 13:10</a>
+
+刚来，是谁圣人点数+1了吗</blockquote>
+依旧爱素<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iiiiiiiiii  
+##### 21360#       发表于 2025-2-13 13:12
+
+浪费时间就算了，浪费我的感情，真是下贱畜生
+
+
+*****
+
+####  琉璃苑軒風  
+##### 21361#       发表于 2025-2-13 13:12
+
+甚至mygo的情节可以切过来当vcr放，太抽象了
+
+*****
+
+####  长空雁叫霜晨月  
+##### 21362#       发表于 2025-2-13 13:14
+
+笑死了，烂炒之王WSD
+
+*****
+
+####  ml1642879  
+##### 21363#       发表于 2025-2-13 13:14
+
+海铃要不是被立希曾经注册为替补，不然也得继续雪藏，这就ccc球员派系的丑恶行径
+
+*****
+
+####  南宮凝香  
+##### 21364#       发表于 2025-2-13 13:15
+
+如果這圖透不是爛炒
+
+那重組3C 我一介狗廚+愛燈廚也沒什麼感覺了
+
+她都這麼慘了， 讓讓她吧
+
+🦄用七集人格謀殺了🐘
+

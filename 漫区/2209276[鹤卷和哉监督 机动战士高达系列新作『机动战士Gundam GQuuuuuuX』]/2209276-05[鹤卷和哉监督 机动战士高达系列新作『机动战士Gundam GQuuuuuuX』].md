@@ -12487,3 +12487,21 @@ Plazma
 
 不偷高达怎么演 除非是革命机那种你就是指定驾驶员 阿姆罗不也是偷的吗 又不是真是他家的 是联邦机密啊
 
+
+*****
+
+####  王留美  
+##### 6876#       发表于 2025-2-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67410091&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-13 12:56</a>
+ 你别说可能性还真不小，那确实没有比side6本地人更适合干这个的了（）</blockquote>
+考虑到CV的话……！
+
+
+*****
+
+####  YU_JI  
+##### 6877#       发表于 2025-2-13 13:12
+
+对哦，克里斯蒂娜cv是林原惠美，绫波丽说是，这下都串起来了
+

@@ -173,3 +173,11 @@ psn配音锁区太tm蠢了<img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的日版剑星看来是跟中配无缘了
 
+
+*****
+
+####  jacket  
+##### 1914#       发表于 2025-2-13 13:10
+
+亚当重锤最后出来什么意思，能打了吗？
+
