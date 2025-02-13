@@ -9373,3 +9373,78 @@ You Belong With Me 很配合平常哭笑都要愛音哄， 祥子只負責上壓
 
 大会员没了，现在还有主播能直播的吗
 
+
+*****
+
+####  1223122  
+##### 21586#       发表于 2025-2-13 21:52
+
+继续跳吧，看还能蹦跶多久<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十万年魂环  
+##### 21587#       发表于 2025-2-13 21:53
+
+情报哥<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21588#       发表于 2025-2-13 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">什么情报哥
+
+*****
+
+####  阿卡拉兰斯  
+##### 21589#       发表于 2025-2-13 21:53
+
+你楼舅舅怎么还有7分钟开播时露面啊
+
+*****
+
+####  十万年魂环  
+##### 21590#       发表于 2025-2-13 21:54
+
+情报哥来了，后面还有更大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 21591#       发表于 2025-2-13 21:54
+
+所以继续跳指的是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toki_Ai  
+##### 21592#       发表于 2025-2-13 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，这个是后面8-13的暗示吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 21593#       发表于 2025-2-13 21:54
+
+真舅来了，是指鸡粉跳不了多久该全去世了吗（
+
+*****
+
+####  swessia  
+##### 21594#       发表于 2025-2-13 21:54
+
+情报哥要开始鲨舅舅了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  高规格ik  
+##### 21595#       发表于 2025-2-13 21:55
+
+看到底是舅舅跳还是鸡u跳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

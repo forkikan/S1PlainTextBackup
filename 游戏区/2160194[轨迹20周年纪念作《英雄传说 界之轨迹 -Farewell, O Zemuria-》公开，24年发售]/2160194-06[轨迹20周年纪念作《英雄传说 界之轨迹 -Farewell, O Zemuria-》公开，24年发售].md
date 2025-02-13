@@ -1999,3 +1999,14 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 打完第一章，事务所吃遍全市，一天吃了87种料理，没给你们撑死啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大厨麦当牛  
+##### 7701#       发表于 2025-2-13 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414977&amp;ptid=2160194" target="_blank">naclken. 发表于 2025-2-13 21:41</a>
+
+打完第一章，事务所吃遍全市，一天吃了87种料理，没给你们撑死啊</blockquote>
+人多，还有几个饭桶，勉强无压力吧。
+
