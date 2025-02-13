@@ -1864,3 +1864,11 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老实说这也是老梗了  和时间有关的巫女消耗寿命早死
 
+
+*****
+
+####  alucardcz  
+##### 7687#       发表于 2025-2-13 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">轨迹编剧用黎2告诉了我们他们并不会写什么轮回系。。这种大重置前段时间的神之天平写过 而且世界结构有点类似。。。 界2能比神之天平强吗（
+
