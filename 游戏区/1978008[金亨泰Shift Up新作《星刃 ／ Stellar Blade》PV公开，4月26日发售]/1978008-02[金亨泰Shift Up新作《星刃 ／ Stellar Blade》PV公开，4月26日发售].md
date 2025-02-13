@@ -20,3 +20,13 @@
 现在steam国区号能登外区psn号绑定了么</blockquote>
 一直能啊
 
+
+*****
+
+####  Sevenzerofive  
+##### 1899#       发表于 2025-2-13 08:26
+
+好！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
