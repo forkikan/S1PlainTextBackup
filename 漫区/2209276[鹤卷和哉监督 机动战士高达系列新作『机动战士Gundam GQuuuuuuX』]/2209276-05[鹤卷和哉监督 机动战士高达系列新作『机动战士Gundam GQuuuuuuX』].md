@@ -12745,3 +12745,17 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 可以在剧中给他搞个蓝底+米津配色的肯普法，再让他给驾驶员配个音，这不直接卖爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 6899#       发表于 2025-2-13 16:45
+
+ 本帖最后由 gundammarkⅡ 于 2025-2-13 16:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412351&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-13 16:37</a>
+
+肯普法也行，0085性能还算跟得上，米津采访还提了喜欢肯普法，开演唱会都带着R魂肯普法去的
+
+可以在剧中给他 ...</blockquote>
+然后一话内，哦，不对，按总集数时长比可能是半话到5分钟内，完成出场到杀青，GQ版西川贵教成就达成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

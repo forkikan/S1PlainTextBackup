@@ -8200,3 +8200,86 @@ nga的祥厨已经进入了三角初华阶段
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cauchua3  
+##### 21470#       发表于 2025-2-13 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412425&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 16:44</a>
+
+诶，说千道万还是觉得今晚牢祥就能漂白的话就太离谱了，先抑后扬，抑了六集就这样翻篇一切重头开始，重拿轻 ...</blockquote>
+都第7话了还不重新开始才是真闹麻了，再拖个3话那主标题都可以直接改ccc或者mygo 2了
+
+*****
+
+####  swessia  
+##### 21471#       发表于 2025-2-13 16:47
+
+WARNING WARNING 大量剧透来袭<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">各位可以离席了
+
+*****
+
+####  せきぼく  
+##### 21472#       发表于 2025-2-13 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67412234&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 16:26</a>
+
+内鬼是为了救初华，没点东西还搞黑化是真的会被踩头嘲笑的（看看祥子） ...</blockquote>
+不冲突，初华藏了东西也不太可能会是和炸团有关的，我倾向于认为最后还是会回到关系性上
+
+
+*****
+
+####  yaneis  
+##### 21473#       发表于 2025-2-13 16:50
+
+<blockquote>cauchua3 发表于 2025-2-13 16:46
+都第7话了还不重新开始才是真闹麻了，再拖个3话那主标题都可以直接改ccc或者mygo 2了 ...</blockquote>
+前六集都牺牲了4个角色塑造来抽打一个祥子，一集翻篇一样是闹麻了
+
+*****
+
+####  阿卡拉兰斯  
+##### 21474#       发表于 2025-2-13 16:51
+
+我嘞个去，这次是真透完了，物理意义，虽然透了和没透其实没啥区别底下的字根本看不清
+但是这下滑坡大战真的上了新台阶了，看了十年动画没见过这阵势<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21475#       发表于 2025-2-13 16:51
+
+<blockquote>swessia 发表于 2025-2-13 16:47
+WARNING WARNING 大量剧透来袭各位可以离席了</blockquote>
+已经晚了，判死刑了（
+
+*****
+
+####  单脚着地  
+##### 21476#       发表于 2025-2-13 16:52
+
+爱音的侧颜有点可怜
+
+*****
+
+####  yaneis  
+##### 21477#       发表于 2025-2-13 16:52
+
+确实没见过，舅舅报坏消息一报一个准，好消息全是假的（
+
+*****
+
+####  是谁的书画  
+##### 21478#       发表于 2025-2-13 16:53
+
+空气里已经隐隐传来血腥味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 21479#       发表于 2025-2-13 16:56
+
+坏了，猫猫精的很，祥睦回宫直接玩消失。就粉色奶龙抓不住TIMING被挤在外圈，有点心疼了
+
