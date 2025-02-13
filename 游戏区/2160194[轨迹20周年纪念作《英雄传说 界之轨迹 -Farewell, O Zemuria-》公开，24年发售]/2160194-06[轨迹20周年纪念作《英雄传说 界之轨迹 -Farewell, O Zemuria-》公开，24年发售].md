@@ -2010,3 +2010,26 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 打完第一章，事务所吃遍全市，一天吃了87种料理，没给你们撑死啊</blockquote>
 人多，还有几个饭桶，勉强无压力吧。
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7702#       发表于 2025-2-13 21:54
+
+我有一种不详的预感，眼镜哥人设能力和动机模版不会是重启咲良田的相麻堇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  alucardcz  
+##### 7703#       发表于 2025-2-13 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415090&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2025-2-13 21:54</a>
+
+我有一种不详的预感，眼镜哥人设能力和动机模版不会是重启咲良田的相麻堇吧
+
+论坛助手,iPad ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那他爱的是谁 van吗
+
