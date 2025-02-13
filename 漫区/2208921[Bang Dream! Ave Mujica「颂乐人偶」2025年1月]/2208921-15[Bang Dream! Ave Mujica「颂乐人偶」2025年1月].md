@@ -8877,3 +8877,31 @@ C团肯定要好好入土的，只是嘛，有点晚，第七集真的有点晚�
 
 我倒是觉得三个团9个人都是大祥一个人的垫子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 21539#       发表于 2025-2-13 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413637&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 18:43</a>
+你可以觉得crychic是两个团的垫子，而且事实如此。但你之后的话我不敢苟同。
+
+先不提mygo，到时候自有动漫领 ...</blockquote>
+PPP是迷子，多惠是立希(大概)，第二季的ppp解散危急是“根本就不存在的”，是被“生造”出来的矛盾，这就和迷子之于CCC是一样的，爱音、猫猫就是PPP的其他人，之前有访谈提过，立希和海玲参考了多惠和瑞依，那多惠是危机的“始作俑者” ，是不是就代表立希会是那个提议重组CCC的人
+
+既然多惠不会离开PPP，那立希自然也不会离开迷子
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 21540#       发表于 2025-2-13 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413704&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-13 18:51</a>
+
+有没有可能不是接不到🐔身上而是接不到初喵海身上呢？三个人靠边站不就得了，之后再从能接到的两个人身上 ...</blockquote>
+已经靠边站两集了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
