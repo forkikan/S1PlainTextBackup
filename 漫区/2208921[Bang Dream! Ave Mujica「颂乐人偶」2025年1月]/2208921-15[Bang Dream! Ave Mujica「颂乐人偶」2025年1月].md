@@ -8975,3 +8975,85 @@ PPP是迷子和A团，CCC是RAS，多惠则是立希(大概)，第二季的ppp�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  天空塔书记官  
+##### 21548#       发表于 2025-2-13 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413637&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-13 18:43</a>
+你可以觉得crychic是两个团的垫子，而且事实如此。但你之后的话我不敢苟同。
+
+先不提mygo，到时候自有动漫领 ...</blockquote>
+重新整理一下:
+
+CCC是引发迷子信任危机的“第二季RAS”，是为第二次诗超绊这瓶醋包的的饺子，迷子就是“第二季PPP”；
+
+CCC是向A团展示羁绊的“第三季的PPP”，而她们则是现在正经历炸团危机，渴望自己的归宿的“第三季RAS”
+
+所以说CCC是两队共同的垫子<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蓮華  
+##### 21549#       发表于 2025-2-13 19:27
+
+<img src="https://img.saraba1st.com/forum/202502/13/192616rdzr8990obzibndz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7621.jpeg</strong> (85.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-13 19:26 上传
+
+乐
+
+*****
+
+####  天空塔书记官  
+##### 21550#       发表于 2025-2-13 19:29
+
+虽然之前一直有讨论如果把第二季放在今天放映会有啥反应，但没想到这下真要见证历史的重演了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  yaneis  
+##### 21551#       发表于 2025-2-13 19:32
+
+<blockquote>蓮華 发表于 2025-2-13 19:27
+乐</blockquote>
+一个人唱下面6人听？
+
+*****
+
+####  天空塔书记官  
+##### 21552#       发表于 2025-2-13 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413974&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-13 19:27</a>
+乐</blockquote>
+是诗超绊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十万年魂环  
+##### 21553#       发表于 2025-2-13 19:33
+
+期待社区大战了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 21554#       发表于 2025-2-13 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414015&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 19:32</a>
+一个人唱下面6人听？</blockquote>
+没有她自己的live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1750,3 +1750,26 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 对了学妹她妈和奶奶是怎么死的   就算不当保险学妹是不是也会死？ ...</blockquote>
 她妈病死的奶奶没说，我觉得肯定是这19999线已经发动过2次大重置然后被这俩人介入过了
 
+
+*****
+
+####  巴基  
+##### 7678#       发表于 2025-2-13 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413903&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 19:19</a>
+
+感觉大总统只是爱女儿 
+
+对了学妹她妈和奶奶是怎么死的   就算不当保险学妹是不是也会死？ ...</blockquote>
+按游戏里暗示的来说 学妹的妈和奶奶是发动了以后直接死的。可能因为8创世的原因学妹集齐了 所以发动了以后没死而是存在消失挂天上。。
+
+
+*****
+
+####  zhouaa  
+##### 7679#       发表于 2025-2-13 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一腔热血孤注一掷这才是凡人赞歌啊    有人觉得失败是小丑我觉得是勇气
+
+轨迹这剧情总是怪力乱神总是计划通不也挺没意思的
+
