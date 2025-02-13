@@ -1591,3 +1591,21 @@ Rust 粉和 NodeJS 粉已经快接近之前的 PHP 了
 
 说到时间，最近 10 年的新生代语言我就喜欢 zig，相对其他次生代语言 比如 golang 的 cgo 以及 rust 的 bindgen 引用 c 库的方式，它干净太多。这里还是要吐槽下 rust，bindgen 出来的东西编译后 strip 不干净，导致执行文件体积**增加<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darklinden  
+##### 121#       发表于 2025-2-13 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413760&amp;ptid=2245923" target="_blank">ryanz 发表于 2025-2-13 18:59</a>
+别瞎说，现在的 nodejs 粉大概确实消散完了，对于这些争论只能说时间证明一切吧
+
+说到时间，最近 10 年的 ...</blockquote>
+请问对于zig编写的bun存在各种奇特内存泄漏的问题怎么看？
+
+zig编译太好使了以至于目前最常见的时候都是在干编译的活儿…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
