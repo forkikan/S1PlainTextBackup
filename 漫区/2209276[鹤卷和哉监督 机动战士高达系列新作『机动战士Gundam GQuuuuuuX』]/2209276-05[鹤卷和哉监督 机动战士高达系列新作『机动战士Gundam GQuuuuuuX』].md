@@ -12970,3 +12970,14 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 泥潭豚豚都不看好这片，大概是没厨豚大战的环节了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 6920#       发表于 2025-2-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415116&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-13 21:56</a>
+
+也不能说啥都没有吧，if线不就是开篇这点东西信息量最大，不过泥楼近些天水楼速度明显下滑，快点到4月TV吧 ...</blockquote>
+港澳台上了估计能有不少楼u去看
+

@@ -1678,3 +1678,19 @@ zig编译太好使了以至于目前最常见的时候都是 ...</blockquote>
 zig编译太好使了以至于目前最常见的时候都是 ...</blockquote>
 zig 本身就是显示管理的，写着写着就忘属于老问题了…
 
+
+*****
+
+####  星空天神  
+##### 127#       发表于 2025-2-13 23:18
+
+以后都是ai的世界,编程语言算个球<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星空天神  
+##### 127#       发表于 2025-2-13 23:18
+
+以后都是ai的世界,编程语言算个球<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2141,3 +2141,63 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 空洞核心的逻辑是高级ai，也就是性能好。
 现在假创世无敌强，默认高性能了。
 
+
+*****
+
+####  上坂莲华  
+##### 7715#       发表于 2025-2-13 23:15
+
+还在这盘，界2给剑女也发个魔装鬼就都老实了，哦按轨迹的尿性肯定还得打一次学妹，再给学妹也发个魔装鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7716#       发表于 2025-2-13 23:18
+
+突然想起。。女明星老家那泛魔化 以什么基本判断哪些人能动 哪些人不能动是不是没说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7717#       发表于 2025-2-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416921&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-13 23:15</a>
+
+还在这盘，界2给剑女也发个魔装鬼就都老实了，哦按轨迹的尿性肯定还得打一次学妹，再给学妹也发个魔装鬼 ...</blockquote>
+你这要是组假面军团了吗（
+
+
+*****
+
+####  上坂莲华  
+##### 7715#       发表于 2025-2-13 23:15
+
+还在这盘，界2给剑女也发个魔装鬼就都老实了，哦按轨迹的尿性肯定还得打一次学妹，再给学妹也发个魔装鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7716#       发表于 2025-2-13 23:18
+
+突然想起。。女明星老家那泛魔化 以什么基本判断哪些人能动 哪些人不能动是不是没说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 7717#       发表于 2025-2-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416921&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-13 23:15</a>
+
+还在这盘，界2给剑女也发个魔装鬼就都老实了，哦按轨迹的尿性肯定还得打一次学妹，再给学妹也发个魔装鬼 ...</blockquote>
+你这要是组假面军团了吗（
+
+*****
+
+####  上坂莲华  
+##### 7718#       发表于 2025-2-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416991&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 23:18</a>
+
+你这要是组假面军团了吗（</blockquote>
+八个创世，这才四个，剩下四个还能葱头里爷太阳拐圣一人一个，刚刚好，近藤什么都算到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

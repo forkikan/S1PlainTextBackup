@@ -13245,3 +13245,742 @@ CCC 也是真斷了
 
 剩两个真外人，说难搞也没那么难搞，就是没什么由头重组
 
+
+*****
+
+####  天空塔书记官  
+##### 21982#       发表于 2025-2-13 23:14
+
+我之前一直有猜，ave可能是监督越权的产物，它对于所谓“噱头”和“演出效果”的追求已经破坏了剧本叙事的编排，变成了主创自嗨的“实验性动画”，但好像目前为止并没有什么好的效果，搞不好最后就会和“龙哥的电影感”一样变成了二次元烂梗的注解
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蓮華  
+##### 21983#       发表于 2025-2-13 23:14
+
+干脆把CRYCHIC和SUMIMI全部并入MyGO，名字我都想好了，就叫CSGO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|CSGO|
+
+查看全部评分
+
+*****
+
+####  Sherrycat  
+##### 21984#       发表于 2025-2-13 23:14
+
+这一集就好比花大价钱去高级餐厅吃饭 你知道得最后肯定是能吃饱 然后餐厅故弄玄虚不少前菜和流程 最后打开黄金饭盒 里边只有韭菜盒子 🥟还是上一季剩下的馅子
+
+*****
+
+####  ml1642879  
+##### 21985#       发表于 2025-2-13 23:15
+
+回来了 都回来了
+
+看了约等于没看这种独属于老邦多利动画的奇妙感觉
+
+要是LIVE这一块的补上了就更像了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KLHgg| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  发条之心  
+##### 21986#       发表于 2025-2-13 23:15
+
+海铃像个串子，说出“你们也愿意与我重修于好吗？”时直接笑出声了
+
+*****
+
+####  Sherrycat  
+##### 21987#       发表于 2025-2-13 23:15
+
+这集我愿称其为c团大结局 或者mygo后日谈 唯独不像是母鸡卡的一集 
+
+各种安排显得和解遥遥无期呢 结果编剧无用大棒一个平a秒了
+
+*****
+
+####  刑部姬真可爱  
+##### 21988#       发表于 2025-2-13 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416871&amp;ptid=2208921" target="_blank">461757753 发表于 2025-2-13 23:12</a>
+
+如果第一季是鸡的话，这动画还会火吗</blockquote>
+作为新赛道还是能小火的，不过肯定不会像狗一样能引到什么电竞，抽象之类的流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21989#       发表于 2025-2-13 23:15
+
+我理解你们太久没配合又是情绪上来了，就在舞台上发泄发泄情绪。
+
+但是这逼观感确实很难感动观众啊老实说，起码稍微修修<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21990#       发表于 2025-2-13 23:15
+
+<blockquote>bindata 发表于 2025-2-13 23:14
+海铃明显是带着怒气啊哪有感动</blockquote>
+海铃:没有大手你这大小姐的乐队也太乐色了，看海铃姐给你露一手
+
+*****
+
+####  bindata  
+##### 21991#       发表于 2025-2-13 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最搞笑还是搞对偶，你有那个能么就搞对偶
+
+真不知道片场发生了什么事情
+
+*****
+
+####  华发夜眼[CN]  
+##### 21992#       发表于 2025-2-13 23:16
+
+突然觉得当时泥潭一起追蝈蝈也没这么小丑了
+
+*****
+
+####  aptx8285144  
+##### 21993#       发表于 2025-2-13 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416791&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-13 23:08</a>
+
+这集除了歌不好听，剧情还行吧，包饺子都包完了，剩下的就是看祥子怎么建立一个叫mujica的乐队了。 ...</blockquote>
+爱音和猫猫当工具人<strong>我是以令和种命的标准哈哈而笑而过的</strong>，但是这不代表“剧情还行”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太太  
+##### 21994#       发表于 2025-2-13 23:16
+
+没那金刚钻别揽瓷器活，虽然知道监督是想要这个效果才让🐏这么唱，但你羊就唱不了，硬上就只会让人出戏发笑好吗
+
+成片这效果还不如放cd至少不会成扣分点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 21995#       发表于 2025-2-13 23:16
+
+<blockquote>6030sylar 发表于 2025-2-13 23:14
+剩两个真外人，说难搞也没那么难搞，就是没什么由头重组</blockquote>
+谈了一场高调却失败还光速分手的恋爱
+
+发现渣男和前任情难自禁藕断丝连
+
+忍不住上去，“我们，从来都没这么开心过”...
+
+*****
+
+####  厚乳果珍爽  
+##### 21996#       发表于 2025-2-13 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说，头三集，甚至第四集可以完全剪成一集，就用蒙太奇的手法，观感都比现在强。
+
+*****
+
+####  你妈的为什么  
+##### 21997#       发表于 2025-2-13 23:17
+
+不行，没有第一季水到渠成解决的感觉，就是到了这个点了必须解决而解决
+
+初华不来个大的，那真的彻底拉了
+
+*****
+
+####  plok201  
+##### 21998#       发表于 2025-2-13 23:17
+
+WSD你这中间一年空窗期补个crychic剧场版那这集还有点说法
+
+*****
+
+####  安娜导函数  
+##### 21999#       发表于 2025-2-13 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416857&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 23:12</a>
+
+你連混活也接受不了的話手遊劇情就是不停出軌了
+
+手遊本來也是什麼CP 的糖也發</blockquote>
+手游我也玩，但是玩的不多，所以不知道有没有哪期混活是OTAE又跑回RAS去当吉他手的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+反正已经这样了，今年挺好萌请多多支持粉色奶龙谢谢喵
+
+*****
+
+####  影伴光生  
+##### 22000#       发表于 2025-2-13 23:18
+
+要不然第8集再来个惊世反转：其实第7集包饺子是虚假的梦境（舔甜歌姬并感）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  未来起航  
+##### 22001#       发表于 2025-2-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416901&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 23:14</a>
+
+我之前一直有猜，ave可能是监督越权的产物，它对于所谓“噱头”和“演出效果”的追求已经破坏了剧本叙事的 ...</blockquote>
+他有个屁的演出效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回头看mortis这整个‘角色’，你也能想出来它想搞出那种内心自我挣扎的感觉大概是个什么模样。结果演出做出来纯小丑表演。弄得和黑化大祥一样：做成了一个完全一无是处的角色
+
+*****
+
+####  zhigui  
+##### 22002#       发表于 2025-2-13 23:18
+
+“你回她一下”
+
+“你自己回呗”
+
+素世刚没好脸地说完这句就开始当圣人微笑感化祥子了，无敌了
+
+完美对比
+
+跟爱音的仇怨比祥子的还大
+
+感觉素世和爱音是有杀父之仇啊
+
+两个仇人也没必要组乐队吧，何苦呢，要不mygo还是散了吧，哈哈
+
+*****
+
+####  Totokei  
+##### 22003#       发表于 2025-2-13 23:18
+
+ 本帖最后由 Totokei 于 2025-2-13 23:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上周看完上一集在群里吐槽了一下各种假药找补有种水母第10集的感觉
+
+已知水母第11集有唱歌难听的饺子，这一集也有唱歌难听的饺子。母鸡=水母确信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 22004#       发表于 2025-2-13 23:19
+
+我前面说了感觉主要的问题是进度慢了半集，结果你在第七集赶起进度来了…很多东西扔上集解决观感哪会有这么搞
+
+*****
+
+####  cxj649  
+##### 22005#       发表于 2025-2-13 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">小猫看出点猫腻，真的是“木头人”吗
+
+<img src="https://img.saraba1st.com/forum/202502/13/231916xcnjtcm1pg0m1s1n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:19 上传
+
+*****
+
+####  borrowface  
+##### 22006#       发表于 2025-2-13 23:19
+
+祥子的那一巴掌还有喵梦那一巴掌现在谁来打啊，海玲吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  三尖酸努努  
+##### 22007#       发表于 2025-2-13 23:19
+
+早知这集要包饺子，也确实包饺子了，和解了，祥睦补完了，c团的问题彻底解决了，但没想到这么土。最后跑调的live还能勉强理解，你每人整个内心独白加回忆杀是要闹哪样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很多人相比go说缺乏情感，我觉得这集角色内驱力已经快没了能有啥情感呢。这集的水平让我对后面包饺子的质量不再期待了
+
+*****
+
+####  blackeryuri2  
+##### 22008#       发表于 2025-2-13 23:20
+
+终于不用再为前六集一些点纠结了，因为单纯是纯菜
+
+*****
+
+####  ntrntr1  
+##### 22009#       发表于 2025-2-13 23:20
+
+<blockquote>影伴光生 发表于 2025-2-13 23:18
+要不然第8集再来个惊世反转：其实第7集包饺子是虚假的梦境（舔甜歌姬并感）
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+其实她们已经因为巨额违约金，被发配到神秘小岛地下偶像修罗场..只有最好的乐队才有资格“成为人类”
+
+为了生存，这一次，ave mujica，重启
+
+智斗生存少女动画阿武母鸡卡敬请期待！
+
+*****
+
+####  烂片雷达  
+##### 22010#       发表于 2025-2-13 23:20
+
+逆大天卧槽，我也蚌埠住了，充斥整集的都合剧情、声优稀烂的演技、狗屎一般的歌，我真服了，能把这玩意儿和mygo动画切割吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 22011#       发表于 2025-2-13 23:21
+
+這集真被按頭打的明顯是海子姐
+
+被腦控進來看狗團彩排
+
+被腦控要回雞團
+
+*****
+
+####  fsfs_freeze  
+##### 22012#       发表于 2025-2-13 23:21
+
+这集唯一不满意的点就是那两首歌，那两首歌唱好了能直接+2，tmd柿本sm了能这么处理的。
+
+*****
+
+####  frank14  
+##### 22013#       发表于 2025-2-13 23:21
+
+你们不觉得live过程中c团的ppt回忆杀，和京吹3 ep13的演奏中ppt回忆杀很像吗
+
+*****
+
+####  akiomn  
+##### 22014#       发表于 2025-2-13 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好……搞笑的一集
+墨缇丝说出那句难道我是坏孩子的时候我都笑了，你个复读机也知道啊？
+硬对偶＋双重人格＋c团限时复活，把整个前中期剧情搞得成一坨了
+
+
+*****
+
+####  天空塔书记官  
+##### 21982#       发表于 2025-2-13 23:14
+
+我之前一直有猜，ave可能是监督越权的产物，它对于所谓“噱头”和“演出效果”的追求已经破坏了剧本叙事的编排，变成了主创自嗨的“实验性动画”，但好像目前为止并没有什么好的效果，搞不好最后就会和“龙哥的电影感”一样变成了二次元烂梗的注解
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蓮華  
+##### 21983#       发表于 2025-2-13 23:14
+
+干脆把CRYCHIC和SUMIMI全部并入MyGO，名字我都想好了，就叫CSGO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|CSGO|
+
+查看全部评分
+
+*****
+
+####  Sherrycat  
+##### 21984#       发表于 2025-2-13 23:14
+
+这一集就好比花大价钱去高级餐厅吃饭 你知道得最后肯定是能吃饱 然后餐厅故弄玄虚不少前菜和流程 最后打开黄金饭盒 里边只有韭菜盒子 🥟还是上一季剩下的馅子
+
+*****
+
+####  ml1642879  
+##### 21985#       发表于 2025-2-13 23:15
+
+回来了 都回来了
+
+看了约等于没看这种独属于老邦多利动画的奇妙感觉
+
+要是LIVE这一块的补上了就更像了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KLHgg| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  发条之心  
+##### 21986#       发表于 2025-2-13 23:15
+
+海铃像个串子，说出“你们也愿意与我重修于好吗？”时直接笑出声了
+
+*****
+
+####  Sherrycat  
+##### 21987#       发表于 2025-2-13 23:15
+
+这集我愿称其为c团大结局 或者mygo后日谈 唯独不像是母鸡卡的一集 
+
+各种安排显得和解遥遥无期呢 结果编剧无用大棒一个平a秒了
+
+*****
+
+####  刑部姬真可爱  
+##### 21988#       发表于 2025-2-13 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416871&amp;ptid=2208921" target="_blank">461757753 发表于 2025-2-13 23:12</a>
+
+如果第一季是鸡的话，这动画还会火吗</blockquote>
+作为新赛道还是能小火的，不过肯定不会像狗一样能引到什么电竞，抽象之类的流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21989#       发表于 2025-2-13 23:15
+
+我理解你们太久没配合又是情绪上来了，就在舞台上发泄发泄情绪。
+
+但是这逼观感确实很难感动观众啊老实说，起码稍微修修<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 21990#       发表于 2025-2-13 23:15
+
+<blockquote>bindata 发表于 2025-2-13 23:14
+海铃明显是带着怒气啊哪有感动</blockquote>
+海铃:没有大手你这大小姐的乐队也太乐色了，看海铃姐给你露一手
+
+*****
+
+####  bindata  
+##### 21991#       发表于 2025-2-13 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最搞笑还是搞对偶，你有那个能么就搞对偶
+
+真不知道片场发生了什么事情
+
+*****
+
+####  华发夜眼[CN]  
+##### 21992#       发表于 2025-2-13 23:16
+
+突然觉得当时泥潭一起追蝈蝈也没这么小丑了
+
+*****
+
+####  aptx8285144  
+##### 21993#       发表于 2025-2-13 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416791&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-13 23:08</a>
+
+这集除了歌不好听，剧情还行吧，包饺子都包完了，剩下的就是看祥子怎么建立一个叫mujica的乐队了。 ...</blockquote>
+爱音和猫猫当工具人<strong>我是以令和种命的标准哈哈而笑而过的</strong>，但是这不代表“剧情还行”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太太  
+##### 21994#       发表于 2025-2-13 23:16
+
+没那金刚钻别揽瓷器活，虽然知道监督是想要这个效果才让🐏这么唱，但你羊就唱不了，硬上就只会让人出戏发笑好吗
+
+成片这效果还不如放cd至少不会成扣分点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 21995#       发表于 2025-2-13 23:16
+
+<blockquote>6030sylar 发表于 2025-2-13 23:14
+剩两个真外人，说难搞也没那么难搞，就是没什么由头重组</blockquote>
+谈了一场高调却失败还光速分手的恋爱
+
+发现渣男和前任情难自禁藕断丝连
+
+忍不住上去，“我们，从来都没这么开心过”...
+
+*****
+
+####  厚乳果珍爽  
+##### 21996#       发表于 2025-2-13 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说，头三集，甚至第四集可以完全剪成一集，就用蒙太奇的手法，观感都比现在强。
+
+*****
+
+####  你妈的为什么  
+##### 21997#       发表于 2025-2-13 23:17
+
+不行，没有第一季水到渠成解决的感觉，就是到了这个点了必须解决而解决
+
+初华不来个大的，那真的彻底拉了
+
+*****
+
+####  plok201  
+##### 21998#       发表于 2025-2-13 23:17
+
+WSD你这中间一年空窗期补个crychic剧场版那这集还有点说法
+
+*****
+
+####  安娜导函数  
+##### 21999#       发表于 2025-2-13 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416857&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 23:12</a>
+
+你連混活也接受不了的話手遊劇情就是不停出軌了
+
+手遊本來也是什麼CP 的糖也發</blockquote>
+手游我也玩，但是玩的不多，所以不知道有没有哪期混活是OTAE又跑回RAS去当吉他手的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+反正已经这样了，今年挺好萌请多多支持粉色奶龙谢谢喵
+
+*****
+
+####  影伴光生  
+##### 22000#       发表于 2025-2-13 23:18
+
+要不然第8集再来个惊世反转：其实第7集包饺子是虚假的梦境（舔甜歌姬并感）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  未来起航  
+##### 22001#       发表于 2025-2-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416901&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-13 23:14</a>
+
+我之前一直有猜，ave可能是监督越权的产物，它对于所谓“噱头”和“演出效果”的追求已经破坏了剧本叙事的 ...</blockquote>
+他有个屁的演出效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回头看mortis这整个‘角色’，你也能想出来它想搞出那种内心自我挣扎的感觉大概是个什么模样。结果演出做出来纯小丑表演。弄得和黑化大祥一样：做成了一个完全一无是处的角色
+
+*****
+
+####  zhigui  
+##### 22002#       发表于 2025-2-13 23:18
+
+“你回她一下”
+
+“你自己回呗”
+
+素世刚没好脸地说完这句就开始当圣人微笑感化祥子了，无敌了
+
+完美对比
+
+跟爱音的仇怨比祥子的还大
+
+感觉素世和爱音是有杀父之仇啊
+
+两个仇人也没必要组乐队吧，何苦呢，要不mygo还是散了吧，哈哈
+
+*****
+
+####  Totokei  
+##### 22003#       发表于 2025-2-13 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上周看完上一集在群里吐槽了一下各种假药找补有种水母第10集的感觉
+
+已知水母第11集有唱歌难听，这一集也有唱歌难听。母鸡=水母确信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 22004#       发表于 2025-2-13 23:19
+
+我前面说了感觉主要的问题是进度慢了半集，结果你在第七集赶起进度来了…很多东西扔上集解决观感哪会有这么搞
+
+*****
+
+####  cxj649  
+##### 22005#       发表于 2025-2-13 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">小猫看出点猫腻，真的是“木头人”吗
+
+<img src="https://img.saraba1st.com/forum/202502/13/231916xcnjtcm1pg0m1s1n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:19 上传
+
+*****
+
+####  borrowface  
+##### 22006#       发表于 2025-2-13 23:19
+
+祥子的那一巴掌还有喵梦那一巴掌现在谁来打啊，海玲吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  三尖酸努努  
+##### 22007#       发表于 2025-2-13 23:19
+
+早知这集要包饺子，也确实包饺子了，和解了，祥睦补完了，c团的问题彻底解决了，但没想到这么土。最后跑调的live还能勉强理解，你每人整个内心独白加回忆杀是要闹哪样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很多人相比go说缺乏情感，我觉得这集角色内驱力已经快没了能有啥情感呢。这集的水平让我对后面包饺子的质量不再期待了
+
+*****
+
+####  blackeryuri2  
+##### 22008#       发表于 2025-2-13 23:20
+
+终于不用再为前六集一些点纠结了，因为单纯是纯菜
+
+*****
+
+####  ntrntr1  
+##### 22009#       发表于 2025-2-13 23:20
+
+<blockquote>影伴光生 发表于 2025-2-13 23:18
+要不然第8集再来个惊世反转：其实第7集包饺子是虚假的梦境（舔甜歌姬并感）
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+其实她们已经因为巨额违约金，被发配到神秘小岛地下偶像修罗场..只有最好的乐队才有资格“成为人类”
+
+为了生存，这一次，ave mujica，重启
+
+智斗生存少女动画阿武母鸡卡敬请期待！
+
+*****
+
+####  烂片雷达  
+##### 22010#       发表于 2025-2-13 23:20
+
+逆大天卧槽，我也蚌埠住了，充斥整集的都合剧情、声优稀烂的演技、狗屎一般的歌，我真服了，能把这玩意儿和mygo动画切割吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 22011#       发表于 2025-2-13 23:21
+
+這集真被按頭打的明顯是海子姐
+
+被腦控進來看狗團彩排
+
+被腦控要回雞團
+
+*****
+
+####  fsfs_freeze  
+##### 22012#       发表于 2025-2-13 23:21
+
+这集唯一不满意的点就是那两首歌，那两首歌唱好了能直接+2，tmd柿本sm了能这么处理的。
+
+*****
+
+####  frank14  
+##### 22013#       发表于 2025-2-13 23:21
+
+你们不觉得live过程中c团的ppt回忆杀，和京吹3 ep13的演奏中ppt回忆杀很像吗
+
+*****
+
+####  akiomn  
+##### 22014#       发表于 2025-2-13 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好……搞笑的一集
+墨缇丝说出那句难道我是坏孩子的时候我都笑了，你个复读机也知道啊？
+硬对偶＋双重人格＋c团限时复活，把整个前中期剧情搞得成一坨了
+
+*****
+
+####  单脚着地  
+##### 22015#       发表于 2025-2-13 23:22
+
+<img src="https://img.saraba1st.com/forum/202502/13/232145cch9fvc95zyccfbv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250213232124.png</strong> (111.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 23:21 上传
+
+睦离开的时候还有雏鸟立巢一般的依恋，而祥子则已经彻底放下了。
+
+*****
+
+####  6030sylar  
+##### 22016#       发表于 2025-2-13 23:22
+
+那两首歌究竟是虐待羊还是虐待观众
+
+*****
+
+####  天空塔书记官  
+##### 22017#       发表于 2025-2-13 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416974&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-13 23:18</a>
+他有个屁的演出效果啊
+
+回头看mortis这整个‘角色’，你也能想出来它想搞出那种内心自我挣扎的感觉大概是 ...</blockquote>
+所以说没有好的效果啊，但他就是想要这么搞，那咋办嘛
+
+前三集水准还是可以的，到了第四集才断线，这已经很努力了好吧(笑)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qwased  
+##### 22018#       发表于 2025-2-13 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">作为搞笑片可以给满分
+
+*****
+
+####  厚乳果珍爽  
+##### 22019#       发表于 2025-2-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416949&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-13 23:16</a>
+
+爱音和猫猫当工具人我是以令和种命的标准哈哈而笑而过的，但是这不代表“剧情还行” ...</blockquote>
+我所谓的还行，是指故事没有太大硬伤，逻辑还算能解释的过去，不代表好啊。
+
