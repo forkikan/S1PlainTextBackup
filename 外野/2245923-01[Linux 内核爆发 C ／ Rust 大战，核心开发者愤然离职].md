@@ -1557,3 +1557,14 @@ Linus 本人还在 mba 上用 Asahi Linux，R4L 也是 Linus 点头进主线，�
 字节的rsbuild 和 rspack倒是挺好用的</blockquote>
 现在开发基建用 Rust 的挺多的了，数了下我电脑上的 $brew uses rust --installed --include-build --include-implicit --include-optional                                                                                                                  aider                  fd                     hyperfine              librsvg                ripgrep                tectonic               typst                  uutils-coreutils       zoxide bat                    fish                   kondo                  mise                   scriptisto             tokei                  typstyle               uv eza                    helix                  libimagequant          rav1e                  starship               tree-sitter            usage                  yazi 复制代码
 
+
+*****
+
+####  unlsycn  
+##### 118#       发表于 2025-2-13 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413034&amp;ptid=2245923" target="_blank">Midnight.Coup 发表于 2025-2-13 17:38</a>
+
+有人在 Linux 内核中提交了一个补丁，目的是让 Rust 编写的驱动程序能使用 dma_alloc_coherent() 函数，这 ...</blockquote>
+「罕见」失职.jpg
+
