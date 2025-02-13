@@ -7765,3 +7765,132 @@ nga的祥厨已经进入了三角初华阶段
 诗超绊最让我感动的是对过去的和解与当下五人的 ...</blockquote>
 说真的，哪怕是go团libe上灯对着台下的祥子和睦头唱成为人类之歌唤醒睦头和鼓动祥子，我都觉得是个不错的承上启下，如果真搞什么CCC五人限定复活live……那只能预祝圣爱音挺王当选了
 
+
+*****
+
+####  yaneis  
+##### 21431#       发表于 2025-2-13 15:39
+
+其实按预告来看，祥子被漂白后依然没有选择组乐队，反而是其他几位突然有了执念，那祥子组母鸡卡的动机又扑朔迷离了
+
+*****
+
+####  安娜导函数  
+##### 21432#       发表于 2025-2-13 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411725&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 15:39</a>
+其实按预告来看，祥子被漂白后依然没有选择组乐队，反而是其他几位突然有了执念，那祥子组母鸡卡的动机又扑 ...</blockquote>
+从地铁站切片的喵梦台词就能猜出A团重组肯定不是大祥老师牵头吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 21433#       发表于 2025-2-13 15:43
+
+什么，大喵老师又缺流量啦？<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 21434#       发表于 2025-2-13 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大喵老师当卖笑咖还是糊了于是牵头重组鸡团吧
+
+*****
+
+####  看穿一切的鱼  
+##### 21435#       发表于 2025-2-13 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411725&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-13 15:39</a>
+其实按预告来看，祥子被漂白后依然没有选择组乐队，反而是其他几位突然有了执念，那祥子组母鸡卡的动机又扑 ...</blockquote>
+看地铁预告大喵不都打上丰川宅邸跟睦祥对线了吗，没准下集是问睦妈祥子家在哪里呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 21436#       发表于 2025-2-13 15:45
+
+喵梦拷打祥子的台词还没播呢，看来祥子还得继续被捶打软糯，第七集只是给了点安慰把睦弄回来
+
+不过看图透soyo真是强而有力啊没白长162的个子
+
+*****
+
+####  木板春香  
+##### 21437#       发表于 2025-2-13 15:45
+
+  作为一个编剧，让soyo想结束Mygo不能成为谐星
+
+  
+
+<img src="https://img.saraba1st.com/forum/202502/13/154320f7fuz3omfgfua5im.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 15:43 上传
+
+  
+
+<img src="https://img.saraba1st.com/forum/202502/13/154349hca5cjcww8t3acw1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (253.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 15:43 上传
+
+这么多回旋镖等着拆呢，soyo在13集回答了，我这辈子都不会忘记CCC
+
+<img src="https://img.saraba1st.com/forum/202502/13/154452bsfjjb7c7cq7gv7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (461.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 15:44 上传
+
+所以后面老CCC肯定还要再聚首的
+
+<img src="https://img.saraba1st.com/forum/202502/13/154550f5p9ezpge9ykp799.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (501.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-13 15:45 上传
+
+就等着回旋这句话了
+
+*****
+
+####  安娜导函数  
+##### 21438#       发表于 2025-2-13 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67411519&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-13 15:21</a>
+
+下集预告里喵梦碰睦妈，内鬼说要来了？</blockquote>
+就现在这剧本，能写得出内鬼？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+无非就是大喵去找睦头/睦头妈想学演戏罢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 21439#       发表于 2025-2-13 15:47
+
+所以说很奇怪，为了包ccc救祥子的醋，把祥子破坏干净抽了6集，但7集过后还得被其他人抽，这是做动画卖角色的思路吗，还是说在女频文这很常见？
+
+*****
+
+####  zhzij111  
+##### 21440#       发表于 2025-2-13 15:47
+
+鸡团是真抽象吧，去哪给你找这种要不是标题，怎么想都解散了更好的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
