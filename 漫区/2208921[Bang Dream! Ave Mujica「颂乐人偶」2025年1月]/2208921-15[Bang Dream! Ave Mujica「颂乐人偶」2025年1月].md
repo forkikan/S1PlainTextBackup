@@ -6475,3 +6475,18 @@ soyorin以德报怨封圣，棕捞蓝，蓝捞绿，蓝可能去找绿妈
 
 <img src="https://p.sda1.dev/21/1b46ef0a44ce1894bca3889d8**e36/QQ图片20250213085626.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽搐一下  
+##### 21293#       发表于 2025-2-13 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67407258&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-13 07:33</a>
+
+这个特写不知道是伏笔什么（几乎可以肯定是伏笔），可能是手机壳</blockquote>
+相关线索有，1.莫老师是否是对手机应激才把鞋当电话的；2.对爱音手机哈气；3.第3集前脚提到美奈美就被打电话了，问为什么说是不是提到她了。
+
+有人提到祥和睦独处的两次初华都在旁边
+
+没准有监听
+
