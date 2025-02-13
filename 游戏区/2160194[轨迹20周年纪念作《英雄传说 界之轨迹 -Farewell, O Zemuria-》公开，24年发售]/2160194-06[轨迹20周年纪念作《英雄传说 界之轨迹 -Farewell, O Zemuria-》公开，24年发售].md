@@ -2041,3 +2041,25 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 我估计很多人不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前解包帖有提到过鲁尼打范恩时有句疑似可能跟他动机有关的台词【无论舍弃什么，为了艾蕾因】。所以别把鲁尼动机猜的很高深，估计就是狗血三角恋而已
 
+
+*****
+
+####  古畑任三郎2015  
+##### 7705#       发表于 2025-2-13 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415210&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 22:02</a>
+那他爱的是谁 van吗</blockquote>
+都行，竹入玩的高兴就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 7706#       发表于 2025-2-13 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415250&amp;ptid=2160194" target="_blank">Squall25 发表于 2025-2-13 22:04</a>
+
+我估计很多人不知道之前解包帖有提到过鲁尼打范恩时有句疑似可能跟他动机有关的台词【无论舍弃什么，为了艾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别啊 这也太没意思了
+
