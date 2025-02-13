@@ -1773,3 +1773,41 @@ ai都说创世出问题了，说没有任何影响显然是不合理 ...</blockq
 
 轨迹这剧情总是怪力乱神总是计划通不也挺没意思的
 
+
+*****
+
+####  ravend233  
+##### 7680#       发表于 2025-2-13 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67406655&amp;ptid=2160194" target="_blank">dio999 发表于 2025-2-13 00:17</a>
+最大的吐槽点不就是这种大事竟然不是集大陆全力去干而是自己单上加上核弹是A 那边搞出来的，所以没有A搞出 ...</blockquote>
+这种大事只要你能搞到资源，自己单干绝对比互相扯皮效率高<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">剩下什么鸟国公国也榨不出什么油水，教会结社不出来捣乱就不错了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ravend233  
+##### 7681#       发表于 2025-2-13 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413903&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-13 19:19</a>
+感觉大总统只是爱女儿 
+
+对了学妹她妈和奶奶是怎么死的   就算不当保险学妹是不是也会死？ ...</blockquote>
+具体原因没明说，只说死因和使命有关
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  alucardcz  
+##### 7682#       发表于 2025-2-13 19:44
+
+ 本帖最后由 alucardcz 于 2025-2-13 19:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67414012&amp;ptid=2160194" target="_blank">巴基 发表于 2025-2-13 19:32</a>
+
+按游戏里暗示的来说 学妹的妈和奶奶是发动了以后直接死的。可能因为8创世的原因学妹集齐了 所以发动了以 ...</blockquote>
+回去重新看了下追忆宝珠 奶奶有暗示 妈应该是病死的（当然也没说是普通的病还是因为使命）
+

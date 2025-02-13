@@ -9057,3 +9057,40 @@ CCC是向A团展示羁绊的“第三季的PPP”，而她们则是现在正经�
 一个人唱下面6人听？</blockquote>
 没有她自己的live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Redimercia  
+##### 21555#       发表于 2025-2-13 19:34
+
+说起来想问个事，绫奈以前写过正儿八经的真百脚本吗（鄙人只看了go
+
+*****
+
+####  南宮凝香  
+##### 21556#       发表于 2025-2-13 19:34
+
+<blockquote>蓮華 发表于 2025-2-13 19:27
+乐</blockquote>
+《三角初華在演唱》
+
+*****
+
+####  十九号大侠  
+##### 21557#       发表于 2025-2-13 19:36
+
+大家拿着剧透开始批判了吗
+
+*****
+
+####  天空塔书记官  
+##### 21558#       发表于 2025-2-13 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67413907&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-13 19:19</a>
+問題是你相信🦄在6集內兜得起這底嗎？
+
+這種沒事找事的劇情，</blockquote>
+因为第二季就是这样的，而第二季和第三季也是连在一起的剧本，就像mygo和ave一样，所以不排除再搞一次的可能<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
