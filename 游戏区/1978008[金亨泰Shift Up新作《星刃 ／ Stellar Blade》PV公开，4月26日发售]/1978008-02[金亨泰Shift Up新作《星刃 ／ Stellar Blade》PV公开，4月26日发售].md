@@ -75,3 +75,26 @@
 
 不知道PC版会是个什么配置要求  
 
+
+*****
+
+####  ネロ  
+##### 1905#       发表于 2025-2-13 10:50
+
+希望优化能够给力点
+话说这游戏有日配吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  医生狼多  
+##### 1906#       发表于 2025-2-13 10:53
+
+ 本帖最后由 医生狼多 于 2025-2-13 10:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408642&amp;ptid=1978008" target="_blank">ネロ 发表于 2025-2-13 10:50</a>
+希望优化能够给力点
+话说这游戏有日配吗</blockquote>
+有的
+Stellar Blade PC version supports 22 languages and full lip sync with voice support for 10 languages, including Japanese and Chinese!⚠️ #StellarBlade #PC #JapaneseVoice #ChineseVoice
+
