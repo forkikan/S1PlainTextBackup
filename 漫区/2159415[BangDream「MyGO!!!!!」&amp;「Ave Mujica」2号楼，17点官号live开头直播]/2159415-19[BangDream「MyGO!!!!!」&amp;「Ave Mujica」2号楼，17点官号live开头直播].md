@@ -3941,3 +3941,19 @@ HALO<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referr
 
 tft官推直接@了邦官推，要唱go的歌？
 
+
+*****
+
+####  sakatta  
+##### 26935#       发表于 2025-2-13 20:27
+
+go的歌没跑了，青木还转推了
+
+
+*****
+
+####  stygian  
+##### 26936#       发表于 2025-2-13 20:30
+
+混上tft了还行
+

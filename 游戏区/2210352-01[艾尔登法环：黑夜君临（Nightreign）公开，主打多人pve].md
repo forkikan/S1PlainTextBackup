@@ -2070,3 +2070,11 @@ Fami通编辑貌似是评测员里技术不太够或者运气不太好的，拼�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中午看到同事在联机老头环，只能说确实是有一部分人打什么游戏都想着有队友帮忙的
 
+
+*****
+
+####  windtrack  
+##### 226#       发表于 2025-2-13 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这游戏感觉就是给直播玩家和管人设计的直播游戏，一般玩家估计玩起来就是吃屎
+
