@@ -3241,3 +3241,38 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 赶快切割吧，然后你就会沉浸在没解决问题的go篇假药里<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bolitao  
+##### 320#       发表于 2025-2-14 02:05
+
+-2 太jb搞笑了，全程笑的停不下来
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  你听得到  
+##### 321#       发表于 2025-2-14 02:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想听母鸡卡的新歌
+
+*****
+
+####  小笠原早紀  
+##### 322#       发表于 2025-2-14 02:10
+
+-2
+
+动画也能连烤两首羊，爽吃啊家人们，还是我们库鲁西裤的歌·温暖
+
+
+*****
+
+####  lunaticfool  
+##### 323#       发表于 2025-2-14 02:10
+
+太割裂了。十五年大女主究竟是1大象2大喵3小木4长期素食<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
