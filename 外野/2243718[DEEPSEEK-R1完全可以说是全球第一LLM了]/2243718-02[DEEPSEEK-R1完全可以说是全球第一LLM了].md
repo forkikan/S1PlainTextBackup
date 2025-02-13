@@ -3855,3 +3855,20 @@ https://xiaoyi.huawei.com/chat/
 
 话说大家有用过派欧那边的ds吗？之前看人说派欧是满血版，然而刚才看到尼姑庵有人说派欧也有阉割？
 
+
+*****
+
+####  名居守  
+##### 1821#       发表于 2025-2-14 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">cherryystudio里的添加的模型越来越多了……
+
+DS占了四个，官网+硅基+火山+欧派（不是）云
+
+剩下个gemini
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">就是Gemini太容易出429错误了
+
+派欧云是说的community版吧，是派欧云自己调校的版本？
+
+反正我用下来感觉差不多，D老师该气人还是气人<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

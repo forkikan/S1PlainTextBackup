@@ -15579,3 +15579,159 @@ mygo也有这种，为啥没人说，一是他后面有唱的好的抵消，二�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  DARK_HGCG  
+##### 22184#       发表于 2025-2-14 00:48
+
+顺便日本人的评价是"神回"
+
+<img src="https://img.saraba1st.com/forum/202502/14/004834zek53187xyrr88k5.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214-014731.png</strong> (354.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 00:48 上传
+
+*****
+
+####  LeonsCat  
+##### 22185#       发表于 2025-2-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417997&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-14 00:37</a>
+
+虽然但是
+
+被骂的最多的音响部分是柿本广大的职责范围</blockquote>
+小羊唱的其实和soyo“为什么要演奏春日影”+惊天一跪里蜜柑破音一样，没有任何问题甚至是演技的体现。但是这个编排怎么说呢，全用于塑造大祥老师这个字面意义上的玛丽苏了。
+
+这都啥年代了，玛丽苏早30年都不吃香了……
+
+*****
+
+####  eyeego  
+##### 22186#       发表于 2025-2-14 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417975&amp;ptid=2208921" target="_blank">Putredinus 发表于 2025-2-14 00:34</a>
+不是，为什么那么多人吐槽歌不好听的。那么明显的哭腔，明摆着就是说情绪激动唱不出来，近似一种在“念、说 ...</blockquote>
+诗超绊珠玉在前 你做成这个样子就是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 22187#       发表于 2025-2-14 00:49
+
+这集就是土味包饺子回 但是你要这样子写 前六集搞成这样有任何意义吗
+
+*****
+
+####  helloo23  
+##### 22188#       发表于 2025-2-14 00:50
+
+日本人似乎对故事有着独到的喜好<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Putredinus  
+##### 22189#       发表于 2025-2-14 00:50
+
+另外想不通传奇佣兵怎么想的，看到了“台上的crychic”仿佛看到了敌人还活着，然后转身发出邀约重组mujica<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+那么crychic和mujica有什么共通的呢？祥子和睦
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">不是哥们，你是不是有任务在身就是要拆散祥子和睦啊，不让人家俩在一起。（睦妈指使的？）
+
+“乐队番就要用乐队解决问题，mujica散一次不行，那就再散一次。”
+
+<img src="https://img.saraba1st.com/forum/202502/14/004148r99s911wrzsujzxu.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (26.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 00:41 上传
+
+（这嘴型想到了其他热血漫<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">）
+
+（目前还是对内鬼说保留一点期待）
+
+*****
+
+####  江口夕  
+##### 22190#       发表于 2025-2-14 00:51
+
+ 本帖最后由 江口夕 于 2025-2-14 00:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我也觉得是c团的神回。本来就c团而言也没什么大矛盾。单c团这条链路来说，没什么bug的，睦也解决了自己破坏c团这条原始ptsd。
+这集解决的是大祥建立mujica当做c团替代品错误的动机。现在要重新审视mujica这条船。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  兔耳僵尸  
+##### 22191#       发表于 2025-2-14 00:51
+
+日本人的真实反映得看匿名版吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IVANLIAO  
+##### 22192#       发表于 2025-2-14 00:52
+
+谁说这是二次元红楼梦啊，我看纯纯二次元水浒传啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下半本打方腊，谁jb当土匪啊？包饺子咯，招安咯~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 22193#       发表于 2025-2-14 00:53
+
+来点匿名版搬运，不是说mujica在日本那边热度还行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22194#       发表于 2025-2-14 00:53
+
+除了live我跳了，剩下的部分只要不是假药入脑的话应该没什么意外之处吧，甚至很多人靠访谈都猜到大概走向了不是？这就是邦邦（
+
+
+*****
+
+####  sauron.j  
+##### 22195#       发表于 2025-2-14 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418141&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 00:51</a>
+
+我也觉得是c团的神回。本来就c团而言也没什么大矛盾。单c团这条链路来说，没什么bug的，睦也解决了自己破坏 ...</blockquote>
+功能性上说这集饺子就是对忘记一切的回旋镖，“不，你不许忘”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hyde999  
+##### 22196#       发表于 2025-2-14 00:57
+
+我最喜欢的少女乐队果然还是ENOZ（代练版）
+
+*****
+
+####  MASKA-1  
+##### 22197#       发表于 2025-2-14 00:57
+
+莫老师，大家等你再次上号
+<img src="https://p.sda1.dev/22/96381dd6ebb0c175fa26a0d1bf77aefb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 22198#       发表于 2025-2-14 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在我对母鸡卡仅剩的期待就是莫小姐整活了
+
+难绷但是我果然是睦厨啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2954,3 +2954,53 @@ live演出一坨，我长耳朵不是用来听这个的；
 
 纯尼玛一坨屎，我是看了什么狗屎东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Skyline_R  
+##### 290#       发表于 2025-2-14 00:48
+
+前六集都给了-1~0，这集给-2完全没问题了。
+
+看来我之前说对标星团二期还是太抬举母鸡卡了，人星团动画再怎么垃圾也有京极尚彦的演出当雷打不动的长板呢，你鸡不但剧本烂，视听语言还极其平庸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白面馒头233  
+##### 291#       发表于 2025-2-14 00:50
+
+少女乐队番居然有这么难听的live（虽然是彩排）
+
+唐突一转包C团饺子实在是<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 292#       发表于 2025-2-14 00:50
+
+嘛，毫无意外的一集
+
+
+*****
+
+####  muteresr  
+##### 293#       发表于 2025-2-14 00:54
+
+-2
+
+想过会这么展开，没想过会这么拉跨，live部分更是让人忍不住跳过。
+
+*****
+
+####  ArcadiaMartyr  
+##### 294#       发表于 2025-2-14 00:55
+
+别急，后面还要包喵梦的饺子。
+指不定还要包"乐队是小孩过家家"的外公认同母鸡卡的饺子呢
+这么一比
+这集是不是觉得好多了?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
