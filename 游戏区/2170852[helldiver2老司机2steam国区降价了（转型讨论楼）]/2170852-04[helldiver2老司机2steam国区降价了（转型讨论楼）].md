@@ -1080,3 +1080,12 @@ GP-31最后通牒
 
 第一次超级地球直接陷入危机，使劲打光能也只能让黑洞的移动速度变慢而已。可能要再炸几个球，然后快到超级地球门口的时候发布类特殊任务到黑洞边上的球注入一些物质来生成白洞中和黑洞？
 
+
+*****
+
+####  xinfengj  
+##### 5766#       发表于 2025-2-14 01:38
+
+<img src="https://p.sda1.dev/22/8a242f4369c3aa27e4465ac050f08360/20250214_013626.jpg" referrerpolicy="no-referrer">
+笑死，你们天使投资的房产置换到海尔迈尔了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
