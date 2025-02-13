@@ -6510,3 +6510,27 @@ soyorin以德报怨封圣，棕捞蓝，蓝捞绿，蓝可能去找绿妈
 <img src="https://p.sda1.dev/21/ea7ba69e370c68b033aba1b5240f8903/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/21/1b4d6e1061fb028bd8f830bb0a5ee4d9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  borrowface  
+##### 21296#       发表于 2025-2-13 10:29
+
+睦头人小汤圆
+
+微博：@震惊熊熊厨房
+
+<img src="https://p.sda1.dev/21/b82c3d1791375bb9f587f601f1c66bb3/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/21/a000fc40c736a6972e44ce7bb823ed36/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  yaneis  
+##### 21297#       发表于 2025-2-13 10:34
+
+看到有人把c团类比成一年战争把我乐半天（
+
