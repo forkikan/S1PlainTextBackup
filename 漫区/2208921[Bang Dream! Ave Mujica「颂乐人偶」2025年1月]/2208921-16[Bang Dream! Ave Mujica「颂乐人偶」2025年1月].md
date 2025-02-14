@@ -12059,3 +12059,67 @@ mujica是狗屎动画，但还是喜欢这部动画。
 <img src="https://p.sda1.dev/22/935b879f58b559f9b0e2bde712ca84bc/image.jpg" referrerpolicy="no-referrer">
 此时此刻，正如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Суслов  
+##### 23283#       发表于 2025-2-15 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428428&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:10</a>
+感觉自己要分裂了。
+
+mujica是狗屎动画，但还是喜欢这部动画。
+
+刚看完第七话觉得go团成员的行动符合逻辑，转 ...</blockquote>
+第七集退一万步来说剧情确实是“合理”的，人物行为那更是符合逻辑的，可惜都没演出来
+已经有很多人拿诗超绊做对比了，两个都是用live的方式去打动观众，都是影响着整部动画的评价。可以想象没有被诗超绊打动的观众看着mygo好评如潮也是一脸错愕，现在轮到你了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23284#       发表于 2025-2-15 00:28
+
+说真的26集动画用了20集把白祥找回来 就剩六级的冰可以爽了 真的123接7我观感就很合理了
+
+*****
+
+####  plok201  
+##### 23285#       发表于 2025-2-15 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428475&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:17</a>
+
+考虑到场外，这段是除了live外最让我破防的部分。我看的时候是真心觉得就是在调侃，无论素世还是立希，两 ...</blockquote>
+错在没有东西消解这种调侃带来的不适感，就像爱杀宝贝，都用绞杀了，但是大伙觉得2个人是相亲相爱
+
+优秀的作者有很多种方法消解这种不适，大家也不至于滑坡
+
+
+*****
+
+####  南宮凝香  
+##### 23286#       发表于 2025-2-15 00:33
+
+就像狗說的
+
+瞬間累積起來就會滑坡
+
+制作組整季每一次都省了細節，
+
+場下B站加WSD還在帶節奏
+
+大滑波就只是時間問題
+
+*****
+
+####  cxj649  
+##### 23287#       发表于 2025-2-15 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428551&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 00:28</a>
+
+说真的26集动画用了20集把白祥找回来 就剩六级的冰可以爽了 真的123接7我观感就很合理了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这样的话以后补番人观感会还行吧
+
+即使现在也不少人说观感还行的
+
