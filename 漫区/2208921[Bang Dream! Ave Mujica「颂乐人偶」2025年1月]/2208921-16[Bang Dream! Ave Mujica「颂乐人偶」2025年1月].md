@@ -12666,3 +12666,14 @@ mujica是狗屎动画，但还是喜欢这部动画。
 
 mujicaEP7就是对mygoEP10中通过情绪宣泄而搁置的Crychic议题的正式讨论，讨论的结果就是素希在独白里对Crychic的告别，至此MyGo在我心目中才是真正的完结，而MyGo!!!!!这个乐队的5个感叹号也将在把压抑的情愫彻底释放开后联结得更为紧密。
 
+
+*****
+
+####  _47  
+##### 23337#       发表于 2025-2-15 05:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429184&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-15 04:01</a>
+
+要说爱音的行为其实一直在铺垫，从得知祥子境遇共鸣到看见睦祥彼此受伤而为自己的误会心生歉意，爱音练习心 ...</blockquote>
+Soyo心中对Crychic的感情一直都比MyGo要高的，直到这集结束。而Riki则是把解决祥/睦/Crychic的问题作为了MyGo的问题。而且二位也并没有搁置彩排，最后回Ring与是否解决了睦的问题是无关的，区别大概只在于最后会过去几个人，不过这都是臆想了。
+
