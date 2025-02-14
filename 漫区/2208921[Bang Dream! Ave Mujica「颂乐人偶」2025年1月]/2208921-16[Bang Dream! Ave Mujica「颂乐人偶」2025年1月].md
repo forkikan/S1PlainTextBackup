@@ -7121,3 +7121,54 @@ a团1.0始于祥子对ccc往事逃避，四集速炸→祥子左膀失职、右�
 
 切割就不粘锅，那我是不是要信有幻之里阿贝母鸡卡？别和前几集狂假药给剧情找补一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 22839#       发表于 2025-2-14 15:45
+
+意识到网飞一拳放松的好处，不管好还是坏的片子，看完就是看完了。。。。
+
+*****
+
+####  柴突猛进  
+##### 22840#       发表于 2025-2-14 15:47
+
+全集放送那武士道还怎么炒作啊
+
+
+*****
+
+####  huxiaopao163  
+##### 22841#       发表于 2025-2-14 15:47
+
+我和解了，我感觉得我根本没有必要和其他人一样那么纠结。。。
+
+我只是单纯喜欢大莫老师罢了，这集大莫老师那么多帅气的镜头，不管是复刻美奈美电视剧那里，还是和祥子隔着铁门那一段都很喜欢。
+
+*****
+
+####  天空塔书记官  
+##### 22842#       发表于 2025-2-14 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424133&amp;ptid=2208921" target="_blank">曼彻斯特联 发表于 2025-2-14 15:41</a>
+我觉得大纲是存在明显问题的，虽说整体逻辑目前看还没有大问题，但是体量明显超过单季作品的容纳量了，做减 ...</blockquote>
+但做减法的决定权可在企划方和监督手里
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刑部姬真可爱  
+##### 22843#       发表于 2025-2-14 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424202&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-14 15:47</a>
+
+我和解了，我感觉得我根本没有必要和其他人一样那么纠结。。。
+
+我只是单纯喜欢大莫老师罢了，这集大莫老师 ...</blockquote>
+这集mortis明显没有上集欺负睦偶时帅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

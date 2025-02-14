@@ -3992,3 +3992,32 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 **观众的耳朵也要按基本法，哪怕是出于“故意营造撕心裂肺的感觉”的意图，也不能这么搞
 
+
+*****
+
+####  ads147147  
+##### 387#       发表于 2025-2-14 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422526&amp;ptid=2246159" target="_blank">一心而用 发表于 2025-2-14 13:23</a>
+
+第七话的来了</blockquote>
+这个菩萨像太乐了。。
+
+*****
+
+####  飞天意面怪  
+##### 388#       发表于 2025-2-14 15:51
+
+<blockquote>│尼亚│ 发表于 2025-2-14 14:42
+mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真的假的？</blockquote>
+我没看mujica，但我看过邦多利的第二季和第三季。虽然是整过虐ppp的烂活，但后续的饺子包得不坏，《returns》这首歌也很棒。第三季温泉回可以说是日常神回，双r对邦回和之后的处理也很合我胃口。ras爆炸也没那么大事。
+
+*****
+
+####  CyborgIP  
+##### 389#       发表于 2025-2-14 15:52
+
+很低级很低级的唱功啊，ktv中下水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
