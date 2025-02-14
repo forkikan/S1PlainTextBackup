@@ -478,3 +478,16 @@ Ultimate Edition 应该可以，nyaa表里站都能搜到
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Lawliet.L  
+##### 47#       发表于 2025-2-14 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422746&amp;ptid=2245357" target="_blank">KDConan 发表于 2025-2-14 13:45</a>
+
+要重温要怀旧，就得要H，不然不完整
+
+—— 来自 鹅球 v3.3.96</blockquote>
+难道只有我被ghs剧情逗乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
