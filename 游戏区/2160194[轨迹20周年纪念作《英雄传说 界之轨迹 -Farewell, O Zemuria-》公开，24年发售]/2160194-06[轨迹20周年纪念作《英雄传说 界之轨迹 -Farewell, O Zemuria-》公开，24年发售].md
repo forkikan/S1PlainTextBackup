@@ -2358,3 +2358,13 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 查了下太阳她妈叫莱娜，我开始细思恐极了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 7732#       发表于 2025-2-14 13:44
+
+话说界2会把当初闪1和闪3那无意义的序章再拉出来遛一遛让他变的有意义吗（
+
+然后刚刚在隔壁看到时之至宝是反螺旋族没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

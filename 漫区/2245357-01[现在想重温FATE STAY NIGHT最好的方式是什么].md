@@ -468,3 +468,13 @@ Ultimate Edition 应该可以，nyaa表里站都能搜到
 
 反而月姬那边瓦叔联合空境荒耶宗莲那段就很有感觉，配合BGM那就更赞了
 
+
+*****
+
+####  KDConan  
+##### 46#       发表于 2025-2-14 13:45
+
+要重温要怀旧，就得要H，不然不完整<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
