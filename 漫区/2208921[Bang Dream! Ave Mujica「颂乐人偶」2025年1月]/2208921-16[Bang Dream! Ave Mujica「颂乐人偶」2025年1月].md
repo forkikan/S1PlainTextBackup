@@ -7705,3 +7705,162 @@ ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 22893#       发表于 2025-2-14 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425052&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:06</a>
+可是脚本就是真没有那么大能量可以干涉企划制作的啊，这个总得承认吧</blockquote>
+系构和脚本还是差很多的，包括独角兽这个独立编剧原创作品出的问题是一直在出问题<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，能量大不大不知道，被骂的很惨的邦多利2/3的系构还是她，不可能一直有人摁着头让她写这种女女关系性吧
+
+*****
+
+####  595505568  
+##### 22894#       发表于 2025-2-14 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425047&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 17:05</a>
+我倒是觉得哭腔没什么，但是内心小作文真的受不了，看re看一次尬一次，这种演出只能说明编剧已经丧失了对角 ...</blockquote>
+应该用动作和演出去表现的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，最后用了台本；太可怕了
+
+*****
+
+####  tuatha  
+##### 22895#       发表于 2025-2-14 17:12
+
+有个假药说睦没回来都是莫提斯演的？
+
+*****
+
+####  天空塔书记官  
+##### 22896#       发表于 2025-2-14 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425075&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 17:08</a>
+系构和脚本还是差很多的，包括独角兽这个独立编剧原创作品出的问题是一直在出问题，能量大不大不知道，被 ...</blockquote>
+但实际上系构也不是就能一手遮天的，写大纲是一回事，让大纲实现是另一回事
+
+我是真没觉得二三季有啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  66367749  
+##### 22897#       发表于 2025-2-14 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424635&amp;ptid=2208921" target="_blank">启叔 发表于 2025-2-14 16:25</a>
+关键是独角兽就第一集的脚本而且第一集的脚本有两位，虽然是系构感觉也是挂名了。 ...</blockquote>
+我对谁锅更大一些是55开还是46开并不是那么有兴趣，我只是不想再看见这俩卧龙凤雏。
+
+
+*****
+
+####  595505568  
+##### 22893#       发表于 2025-2-14 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425052&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:06</a>
+可是脚本就是真没有那么大能量可以干涉企划制作的啊，这个总得承认吧</blockquote>
+系构和脚本还是差很多的，包括独角兽这个独立编剧原创作品出的问题是一直在出问题<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，能量大不大不知道，被骂的很惨的邦多利2/3的系构还是她，不可能一直有人摁着头让她写这种女女关系性吧
+
+*****
+
+####  595505568  
+##### 22894#       发表于 2025-2-14 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425047&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 17:05</a>
+我倒是觉得哭腔没什么，但是内心小作文真的受不了，看re看一次尬一次，这种演出只能说明编剧已经丧失了对角 ...</blockquote>
+应该用动作和演出去表现的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，最后用了台本；太可怕了
+
+*****
+
+####  tuatha  
+##### 22895#       发表于 2025-2-14 17:12
+
+有个假药说睦没回来都是莫提斯演的？
+
+*****
+
+####  天空塔书记官  
+##### 22896#       发表于 2025-2-14 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425075&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 17:08</a>
+系构和脚本还是差很多的，包括独角兽这个独立编剧原创作品出的问题是一直在出问题，能量大不大不知道，被 ...</blockquote>
+但实际上系构也不是就能一手遮天的，写大纲是一回事，让大纲实现是另一回事
+
+我是真没觉得二三季有啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  66367749  
+##### 22897#       发表于 2025-2-14 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424635&amp;ptid=2208921" target="_blank">启叔 发表于 2025-2-14 16:25</a>
+关键是独角兽就第一集的脚本而且第一集的脚本有两位，虽然是系构感觉也是挂名了。 ...</blockquote>
+我对谁锅更大一些是55开还是46开并不是那么有兴趣，我只是不想再看见这俩卧龙凤雏。
+
+
+*****
+
+####  595505568  
+##### 22898#       发表于 2025-2-14 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425111&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:12</a>
+但实际上系构也不是就能一手遮天的，写大纲是一回事，让大纲实现是另一回事
+
+我是真没觉得二三季有啥问题 ...</blockquote>
+真没？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Otae人设吃书之后故意大手遮蔽一周年Live开不成？这还不够吗
+
+*****
+
+####  天空塔书记官  
+##### 22899#       发表于 2025-2-14 17:16
+
+而且ave再这么搞下去就2/3季就真要被遗老推上神坛了，起码live是真好看<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 22900#       发表于 2025-2-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425156&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 17:16</a>
+真没？Otae人设吃书之后故意大手遮蔽一周年Live开不成？这还不够吗</blockquote>
+那第三季呢 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 22901#       发表于 2025-2-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425160&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:16</a>
+而且ave再这么搞下去就2/3季就真要被遗老推上神坛了，起码live是真好看
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+应该说Live管够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且好看
+
+*****
+
+####  琉璃奇迹心似钻  
+##### 22902#       发表于 2025-2-14 17:17
+
+<blockquote>JustW 发表于 2025-2-14 10:32
+能感受到官方猛推睦祥的力度但现阶段我是找不到磕法，毕竟睦为什么对祥子能做到这个程度完全没描写，童年时 ...</blockquote>
+只能理解成神人家庭，如果没有遇到祥妈和祥，睦早就在小时候彻底疯掉了吧
+
+*****
+
+####  595505568  
+##### 22903#       发表于 2025-2-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425165&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:17</a>
+那第三季呢 
+
+—— 来自 鹅球 v3.3.96</blockquote>
+黑屏火鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，事到如今如数家珍也是一种难崩了
+
