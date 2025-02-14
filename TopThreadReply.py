@@ -130,7 +130,7 @@ if __name__ == '__main__':
         with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
             帖子数据=json.load(f)
         for i in range(回帖序号):
-            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（+[b]{回帖排序[i][1]}[/b]）\n"
+            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]+{回帖排序[i][1]}[/b]）\n"
         if 板块 != "手游战斗":
             # 回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
             回帖字符串 = f"{回帖字符串}===========\n\n"
