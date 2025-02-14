@@ -3886,3 +3886,44 @@ ccc诈尸完了，crychic对祥子的意义只能说处理得普普通通，我�
 第七话的来了
 <img src="https://p.sda1.dev/22/34c4358301e83bd966e17f3350449900/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DYsnow  
+##### 380#       发表于 2025-2-14 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422526&amp;ptid=2246159" target="_blank">一心而用 发表于 2025-2-14 13:23</a>
+
+第七话的来了</blockquote>
+《不要影响mygo》
+
+
+*****
+
+####  z-hunter  
+##### 381#       发表于 2025-2-14 13:36
+
+所以我之前就说了不要抱太高期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结果就是，从演出到剧情编排到音乐到节奏到人物塑造都拉了坨大的，观众非但没感染到C团结束的感动情绪，还由于割裂感和细节把控得非常差，让观众有了完全不同的另一番的感受。。。
+
+说回单集，作为go厨，给-1。1分献给没有被完全垫给C团的go团。但这集作为mujica动画的第7话，只能-2，献给完全垫给C团的ave mujica。这应该是鸡厨在动画开播之前最不想见到的画面之一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老实说，个人觉得mujica动画的5，6，7集，如果接在go动画的13集后的DLC，再出mujica动画，或许效果会好一点。当然还是有很多逻辑上的问题，例如如何开盒祥子的实际状况，如何撬开睦头的嘴之类的。
+
+但都比现在这种mujica导致睦精神分裂=》mujica解散=》睦自闭了没人管=》素世关心睦然后开盒祥子这一系列的逻辑会好很多，起码不用出现睦的精神分裂。编剧真的不觉得把莫提斯塞进来变多了一个人吗，会更难塑造睦这个人物吗
+
+或许都要怪预定了要在mujica动画的第7话实现C团的结束，结合场外因素，祥子对邦加演游戏实装在TFT唱C团春日影炒作一波，很难不怀疑大人和商业的原因<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真是可怜了mujica动画和这支乐队
+
+我很同意坛友[玖羽](https://bbs.saraba1st.com/2b/space-uid-13058.html)在专楼里发表的，这集的live的问题是就像例行公事，大概编剧觉得剧情进行到这里，该开live了，所以才没有了诗超绊那种感染人心的演出。也导致live之前的话疗、道歉、祥子追睦观感非常机械式，人物工具化，像人偶一样推进着剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过还有另一个区别，就是诗超绊其实是没有解决问题的，只是把5各人拉回到同一起跑线上，再一度出发。这集的春日影则不同，是解决C团遗留问题，所以不能单纯拙劣的复制。这样搞到这集live的效果会更差。羊故意唱跑调都是小问题了
+
+至于爱音厨破防得最厉害的几个场景，我作为爱音厨（个人最喜欢爱音和素世，不过不是爱素厨，其实还是能接受的，但观感非常差。我知道编剧这集总体是想写C团该结束了，go团里的三人唱一首春日影就更会治好风湿病，爱音帮助话疗睦和祥子，这样go团就可以顺利继续前进。然后估计是想着加一些go的互动元素，结果机械性地陷入了go团成员之间关系不是很好的定式怪圈里，这也算邦邦写手或者日式写手不得不品的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看游戏里的卡片剧情，这种定式多不胜数。
+
+本来go厨对C团就敏感，现在这样写让人很有完全不同的感受是正常的，细节实在是太差了。其实只要加几句话，无论是灯，素世，立希多说几句话，观感都立马不同。只能说公式化形象碰上编剧谜语人的滑坡效果意外地坏得不得了。或者这集的主角是C团三次元出道，其他的都能让开
+
+还有人物塑造平板化，前后性格割裂，剧情不连接，重重拷打又轻轻地放下，这些很多人都详细说过了。
+
+只能说MYGO是个意外，令它的动画能感染人心，大多数剧情也是大多数观众想看的喜欢看的。mujica才是常态，水平就是那么的平庸。后面6集就只剩还有什么乐子可以看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

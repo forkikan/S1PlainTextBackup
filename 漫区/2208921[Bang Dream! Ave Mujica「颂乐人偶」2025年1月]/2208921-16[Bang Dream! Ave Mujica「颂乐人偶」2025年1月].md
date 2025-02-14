@@ -5731,3 +5731,108 @@ go好歹还已经成团了，mujica现在实际还未出生，剩下三个人立
 
 进化了，mygo都是放学堵门，现在上学堵门强制带走，技能升级了
 
+
+*****
+
+####  595505568  
+##### 22706#       发表于 2025-2-14 13:30
+
+现在感觉只能剑指游戏剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，难受，第七话整个人物弧光和情绪流全烂了
+
+*****
+
+####  江口夕  
+##### 22707#       发表于 2025-2-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422533&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-14 13:23</a>
+进化了，mygo都是放学堵门，现在上学堵门强制带走，技能升级了
+
+羽丘的路人视角，啊，月森的大小姐又来捞人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就可以不登校了，隔壁小孩姐有话要说
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ntrntr1  
+##### 22708#       发表于 2025-2-14 13:31
+
+<blockquote>aptx8285144 发表于 2025-2-14 12:32
+我现在一想到大喵和大祥包饺子的对手戏，就预感只有灾难性来形容</blockquote>
+大喵身材高大，天天打鼓浑身使不完的劲儿，连soyo都能轻易扑倒的软糯小祥自然是拼尽全力无法战胜
+
+*****
+
+####  Суслов  
+##### 22709#       发表于 2025-2-14 13:32
+
+爱音厨滑坡车爱音厨也滑坡是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这集ccc堂堂复活却惨遭差评的原因除了演出差之外，本身也是背离了观众的期待。观众毕竟是🐔🐶厨居多没有那么多ccc姨姥，结果拍到现在🐔查无此团，连主唱都得靠当bangdream好邻居才能在戏外有点存在感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|反清复明！|
+
+查看全部评分
+
+*****
+
+####  ntrntr1  
+##### 22710#       发表于 2025-2-14 13:33
+
+<blockquote>oyss 发表于 2025-2-14 13:23
+进化了，mygo都是放学堵门，现在上学堵门强制带走，技能升级了
+
+羽丘的路人视角，啊，月森的大小姐又来捞人 ...</blockquote>
+司机保镖视角：呀咧呀咧，大小姐的朋友们可真生猛啊，这就是青春吗。
+
+
+*****
+
+####  cxj649  
+##### 22711#       发表于 2025-2-14 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422604&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-14 13:31</a>
+
+大喵身材高大，天天打鼓浑身使不完的劲儿，连soyo都能轻易扑倒的软糯小祥自然是拼尽全力无法战胜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爽姐162，大喵也就164
+
+*****
+
+####  zhoujin8584  
+##### 22712#       发表于 2025-2-14 13:35
+
+还好我是初华肉体厨，不塑造对我来说就是最大的塑造，爽看6 7磕杂食
+
+*****
+
+####  蓮華  
+##### 22713#       发表于 2025-2-14 13:36
+
+<img src="https://img.saraba1st.com/forum/202502/14/133628x9dqwi5ns2vivxqq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7679.jpeg</strong> (27.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 13:36 上传
+
+*****
+
+####  ntrntr1  
+##### 22714#       发表于 2025-2-14 13:38
+
+<blockquote>cxj649 发表于 2025-2-14 13:34
+爽姐162，大喵也就164</blockquote>
+别人打鼓的，劲儿大，一立十会懂吗
+
+当然好处是武林高手莫小姐可能会归顺祥子，那大喵还是洗洗睡了吧
+

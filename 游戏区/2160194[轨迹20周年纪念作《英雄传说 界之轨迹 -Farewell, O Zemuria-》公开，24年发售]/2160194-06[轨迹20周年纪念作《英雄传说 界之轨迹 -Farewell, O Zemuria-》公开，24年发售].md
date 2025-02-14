@@ -2345,3 +2345,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 可惜 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮娜都不是这个世界的人  
 
+
+*****
+
+####  上坂莲华  
+##### 7731#       发表于 2025-2-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422490&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-14 13:18</a>
+
+妮娜都不是这个世界的人</blockquote>
+希娜，妮娜，莉安娜，这不都是娜字辈的，没毛病
+
+查了下太阳她妈叫莱娜，我开始细思恐极了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
