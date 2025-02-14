@@ -4149,3 +4149,156 @@ mujica谜底还没出吧，我现在对这片唯一期望就是初华的谜底�
 
 b站评分跌到7.7了，半天跌整整1分，这话伤害可比第四话大多了
 
+
+*****
+
+####  saintsimpler  
+##### 22570#       发表于 2025-2-14 11:10
+
+爱音和乐奈，感觉你们很像融入这个团队啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  相坂君  
+##### 22571#       发表于 2025-2-14 11:12
+
+ 本帖最后由 相坂君 于 2025-2-14 11:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418830&amp;ptid=2208921" target="_blank">CRYCHIC 发表于 2025-2-14 03:25</a>
+
+永远怀念 [@Aendst](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500536) [@星天观测](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572691) [@相坂君](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=440787) [@PDQ4](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=559177) [@御幸一也](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263923) [@前方暴雨预警](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=573114) [@御景](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572401) 
+
+*没有特地翻旧账的意思，仅 ...</blockquote>
+还挺惦记鸡推的，没事可以翻都可以翻，反正点进就能看历史发言，爱看鸡推被打脸得到愉悦感的都可以看。看乐子嘛，不寒碜，翻记录也是不得不品的一环呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+鸡推从动画完结开始就一直说鸡团内的事最好不要外人解决，CCC就让它过去了，执着于回旋镖没有意义的
+
+现在CCC大和解，GO团人来拯救祥拯救鸡，其他人被CCC感动，十一人春日影也不是梦，这个大饺子不是之前C厨GO厨们想要的吗？现在鸡团塑造一团糟，有什么不满意的？
+
+鸡推早就预料到这种情况，大饺子必然是大家都闹麻了
+
+你要问鸡推的感想……<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+<strong>今天是著名乐队Ave Mujica队长兼Key，ob一串字母小姐的生日，转发这条消息到五个群聊Ave Mujica就会解散，什么她们已经解散了，那没事了</strong>
+[https://weibo.com/u/7908834265](https://weibo.com/7908834265/Pe9J035h0)
+00:00
+
+Request: 倔強祥攻
+Illustrator: 匿名祥攻
+SNS: NONE 
+
+<img src="https://img.saraba1st.com/forum/202502/14/110027hk7zkc7pytic0llf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:00 上传
+
+02:14
+
+Illustrator: ketimunchan
+twi: bucishiro ​​​
+
+<img src="https://img.saraba1st.com/forum/202502/14/111017f77vfyqhyqf8aaso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:10 上传
+
+09:00
+
+Illustrator: 4/3
+weibo: [@四分之三怪人re](https://weibo.com/n/%E5%9B%9B%E5%88%86%E4%B9%8B%E4%B8%89%E6%80%AA%E4%BA%BAre) / twi: sigangsan
+
+<img src="https://img.saraba1st.com/forum/202502/14/111048azljkdkq9d35f3c7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:10 上传
+
+10:00
+
+Request: Walnut[@啮合反射](https://weibo.com/n/%E5%95%AE%E5%90%88%E5%8F%8D%E5%B0%84)
+Illustrator: akni
+twi: akni105 ​​​
+
+<img src="https://img.saraba1st.com/forum/202502/14/111101v9r197kcs5k27r73.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (933.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:11 上传
+
+11:00
+
+Illustrator: 半杯柠檬摩卡
+weibo: [@半杯柠檬摩卡](https://weibo.com/n/%E5%8D%8A%E6%9D%AF%E6%9F%A0%E6%AA%AC%E6%91%A9%E5%8D%A1) ​​​
+
+<img src="https://img.saraba1st.com/forum/202502/14/111127sfsvyavn95a4yyvw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (407.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:11 上传
+
+虽然这是鸡推梦中的团魂，但多少支持一下丰川小姐，毕竟今天真是<strong>她的生日</strong><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MagicGiraffe| + 1|欢乐多|
+| 晓色暮云| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  qlipho  
+##### 22572#       发表于 2025-2-14 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421166&amp;ptid=2208921" target="_blank">相坂君 发表于 2025-2-14 11:12</a>
+
+还挺惦记鸡推的，没事可以翻都可以翻，反正点进就能看历史发言，爱看鸡推被打脸得到愉悦感的都可以看，看 ...</blockquote>
+木箱推为什么要伪装成鸡推<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkXcross  
+##### 22573#       发表于 2025-2-14 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420991&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-14 10:57</a>
+
+结合之前坛友说的“第7话Live的真正问题不是唱成翻车版，而是：它恰恰是一种例行公事的、“该上台演唱了” ...</blockquote>
+是了，到第七话可以确信了，MUJICA不配称为文艺作品，就是WSD的商业广告和流量制造机。
+
+*****
+
+####  liy30dlys  
+##### 22574#       发表于 2025-2-14 11:15
+
+马后炮的说就是大战莫老师这段拖得太久，在各种解决办法中选择了靠老c团这种最容易招骂的路线，然后剧情演出又没达到让人感动大于角色厨骂的地步<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+一下子把祥子和解散c团铺垫了1.5季这个事情就解决了
+
+*****
+
+####  Lyzers  
+##### 22575#       发表于 2025-2-14 11:17
+
+爱睦灵魂互换的问题点在于如果祥子切割是出于善意，那黑刀之夜还有soyo跪地时恶言相向的力度有点太过太突兀了
+
+但再怎么说比现在官方这把人整疯了，再话疗包寿司高上几个层级
+
