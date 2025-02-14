@@ -2192,3 +2192,128 @@ mygo根本千斤顶乐队吧 就是为了把大鼻子老师拆去mujica才弄出
 
 还是被类型限制了，没法做空中飞祥。
 
+
+*****
+
+####  江口夕  
+##### 22385#       发表于 2025-2-14 08:36
+
+老实说我还指望你们对这集能有什么新鲜的自己的评价，原来和童厕一样除了排泄戾气和疯狂脑补之外真是一无是处
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yaneis  
+##### 22386#       发表于 2025-2-14 08:38
+
+<blockquote>JustW 发表于 2025-2-14 08:33
+我觉得MyGO团粉应该看开点，毕竟这集塑造再怎么变形，今后C团这个历史包袱也没有了，未来一片光明，母鸡卡 ...</blockquote>
+这是go团在动画最后一集，对于动画粉那就是最后的塑造了，结果就留个疙瘩，说大不大但就是不舒服
+
+*****
+
+####  Суслов  
+##### 22387#       发表于 2025-2-14 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419307&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 08:27</a>
+诗超绊之后soyo并没有对MyGO死心塌地，游戏里的进度soyo还在说不知道如何定义与MyGO其他人的关系（当然要是 ...</blockquote>
+以前我不信，现在我信了，soyo这一集露出的笑脸比诗超绊之后加一块都多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  江口夕  
+##### 22388#       发表于 2025-2-14 08:40
+
+ 本帖最后由 江口夕 于 2025-2-14 08:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419362&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-14 08:35</a>
+祥子的台词跟念台本一样，突然的大彻大悟啥都知道了，和前面的嘴硬一对比就很生硬（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解有什么难的吗，大祥原来只知道除了mujica什么都没了。
+现在有能正视的crychic的回忆当然满血复活了。以前是不能正视这段回忆，不能正视睦，因为睦是ccc的一员，所以才一无所有。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22389#       发表于 2025-2-14 08:40
+
+现在看来ccc才是真小时代，姐妹闹矛盾最后解决办法是抱在一起哭一场，我脑袋里都回忆起小时代画面了
+
+*****
+
+####  FanFun  
+##### 22390#       发表于 2025-2-14 08:41
+
+还好我只是个看动画的，喜欢一季度的动画。这集几乎是一季度的几个主角互动，还看得挺开心
+
+*****
+
+####  wpcc  
+##### 22391#       发表于 2025-2-14 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419404&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 08:40</a>
+
+理解有什么难的吗，大祥原来只知道除了mujica什么都没了。
+
+现在有能正视的crychic的回忆当然满血复活了。 ...</blockquote>
+武士道以后能常住ccc吗我什么都会做的 soyo的眼神母爱的出水了都
+
+*****
+
+####  aptx8285144  
+##### 22392#       发表于 2025-2-14 08:43
+
+不是，为什么一定要怒气，现在把这玩意当搞笑烂片不停好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 22393#       发表于 2025-2-14 08:44
+
+ 本帖最后由 qlipho 于 2025-2-14 08:45 编辑 
+
+看到企划厨各种心态爆炸，爽到
+
+*****
+
+####  ads147147  
+##### 22394#       发表于 2025-2-14 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419371&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 08:36</a>
+
+老实说我还指望你们对这集能有什么新鲜的自己的评价，原来和童厕一样除了排泄戾气和疯狂脑补之外真是一无是 ...</blockquote>
+就戾气而言那我确实看到了不少新鲜的东西，比如喷大祥为什么这么快完成角色转变这种喷法。。。
+
+哇，前六集抽陀螺把祥子抽的只剩下嘴硬，一个人的时候自言自语自己害了其他人都当没看过么，这要是算没铺垫的角色转变，那我只能祝福了。
+
+*****
+
+####  とらドラ!  
+##### 22395#       发表于 2025-2-14 08:44
+
+第七集太毁情绪了，只能切割了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22396#       发表于 2025-2-14 08:45
+
+之前游戏剧情被批评，但soyo的态度还是可以参考的，下雨剧情不太情愿让MyGO进自己家避雨、和灯两个人在雨天因祥子退团事件而感伤，赏花剧情里被迫参加、拍完照就跑，和爱音双人卡里说不知道和MyGO众人算不算朋友，当然soyo这个人的确有别扭、不说真心的话的特点，但她对MyGO的归属感显然还没那么强烈，这也是未来乐队剧情的看点之一吧。
+
+*****
+
+####  江口夕  
+##### 22397#       发表于 2025-2-14 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419439&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-14 08:44</a>
+就戾气而言那我确实看到了不少新鲜的东西，比如喷大祥为什么这么快完成角色转变这种喷法。。。
+
+哇，前六 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">那你诗超绊时候就能祝福了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
