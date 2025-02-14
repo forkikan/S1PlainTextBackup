@@ -6739,3 +6739,132 @@ big胆，竟然敢拷打我羊姐的哭戏
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  山ノ内花音  
+##### 22798#       发表于 2025-2-14 15:15
+
+天天嘲讽鸡友想切割ccc
+现在好了 狠狠交融了 也烂完了
+还不如按鸡友意淫的剧情演呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 22799#       发表于 2025-2-14 15:15
+
+只看动画的话，c团是正式解散了吧，咋大家看动画得出的结论是c团复活呢
+
+*****
+
+####  blackeryuri2  
+##### 22800#       发表于 2025-2-14 15:16
+
+编剧的大手会把试图切割的祥子打死，现实的大手也只会把试图切割的独角兽打死，如果开播前就切干净可能还好点，现在估计要被更多的大手打死。只能说从独角兽高调发推宣传mygo开始，就不可能切得干净了，就像小祥创建c团，这可是你开始的故事。
+
+
+*****
+
+####  ml1642879  
+##### 22801#       发表于 2025-2-14 15:18
+
+独角兽8月份开始就在传切割了，BD#13职位表没写原案名，推特取关，菜花片场传闻，一系列情况早都预告了
+
+*****
+
+####  cxj649  
+##### 22802#       发表于 2025-2-14 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423762&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-14 15:15</a>
+
+只看动画的话，c团是正式解散了吧，咋大家看动画得出的结论是c团复活呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">场外你懂的，场内C团以后互动也会不少了
+
+*****
+
+####  蓮華  
+##### 22803#       发表于 2025-2-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423762&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-14 15:15</a>
+只看动画的话，c团是正式解散了吧，咋大家看动画得出的结论是c团复活呢</blockquote>
+那你对邦别参战嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 22804#       发表于 2025-2-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423762&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-14 15:15</a>
+
+只看动画的话，c团是正式解散了吧，咋大家看动画得出的结论是c团复活呢</blockquote>
+手游和live都不定期复活了 动画不复活是因为实在是没剧情写了，mujica目前还是不存在的团得拉起来
+
+*****
+
+####  阿兹尔  
+##### 22805#       发表于 2025-2-14 15:19
+
+到底啥情况，所以现在河豚要跟随独角兽去追寻流奶与蜜之地了吗
+
+
+*****
+
+####  悲伤颂偶  
+##### 22806#       发表于 2025-2-14 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423762&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-14 15:15</a>
+
+只看动画的话，c团是正式解散了吧，咋大家看动画得出的结论是c团复活呢</blockquote>
+解散了怎么又拍节目又上LIVE<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 22807#       发表于 2025-2-14 15:20
+
+mygo12真得改名叫ccc 12 只有五个人怎么卖十个周边？我们拆两个团就行了！武士道太懂了
+
+*****
+
+####  ape-apple  
+##### 22808#       发表于 2025-2-14 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423758&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-14 15:15</a>
+
+天天嘲讽鸡友想切割ccc
+
+现在好了 狠狠交融了 也烂完了
+
+还不如按鸡友意淫的剧情演呢 ...</blockquote>
+你看，你这话就不敢在百合楼说，百合楼动物朋友是没有呼吸权的
+
+*****
+
+####  天空塔书记官  
+##### 22809#       发表于 2025-2-14 15:21
+
+不是哪里说独角兽跑到狗代了吗
+
+看看接下来的作品咋样呗
+
+如果一样翻车，那就接着骂呗
+
+花田不也一样<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  滑稽Captain  
+##### 22810#       发表于 2025-2-14 15:22
+
+明显樱花姨又补一条解释就是被问烦了，23年写脚本的时候工作都正常用心干完了，退出切割后的现在也什么都不会再说了
+
+*****
+
+####  十九号大侠  
+##### 22811#       发表于 2025-2-14 15:24
+
+祥子好黑啊，还企图过肩摔，
+

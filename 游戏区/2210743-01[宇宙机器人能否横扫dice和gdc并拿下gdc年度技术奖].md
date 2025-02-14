@@ -1008,3 +1008,24 @@ DICE的技术奖提名出来了</blockquote>
 
 另外楼上发言还挺重量级，真的是跪久了站不起来<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高妹控  
+##### 91#       发表于 2025-2-14 15:22
+
+小丑牌、小机器人、地狱潜兵2、夺宝奇兵，DICE四大赢家
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BRAVADO  
+##### 92#         楼主| 发表于 2025-2-14 15:25
+
+<blockquote>高妹控 发表于 2025-2-14 15:22
+小丑牌、小机器人、地狱潜兵2、夺宝奇兵，DICE四大赢家
+
+—— 来自 S1Fun</blockquote>
+animal well拿到了game direction，是重量级奖项
+

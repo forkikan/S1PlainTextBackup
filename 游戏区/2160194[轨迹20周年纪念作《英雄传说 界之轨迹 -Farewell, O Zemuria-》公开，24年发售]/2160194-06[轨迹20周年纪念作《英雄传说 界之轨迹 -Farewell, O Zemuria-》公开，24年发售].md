@@ -2409,3 +2409,24 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 闪1闪3是if世界，参考点是黎二那种，和界轨没有关系
 
+
+*****
+
+####  隔壁老黄  
+##### 7737#       发表于 2025-2-14 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417757&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-14 00:16</a>
+
+这个脑洞如何！</blockquote>
+性转这也太恶臭了，而且卢尼用了福山润配音，如果真有这种想法，找绪方惠美这种能配男角色的女声优是最优解，然而并没有
+
+*****
+
+####  隔壁老黄  
+##### 7738#       发表于 2025-2-14 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422759&amp;ptid=2160194" target="_blank">winggg 发表于 2025-2-14 13:46</a>
+
+你细品为什么盟主的声优要借用亚尔缇娜……（大误）</blockquote>
+单纯就是没钱罢了，你看李曹跟大少都是一个CV，但这俩风马牛不相及，类似的一人配两角在轨迹里很常见
+

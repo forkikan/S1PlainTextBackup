@@ -4083,3 +4083,21 @@ gemini写的东西干货少，可以让ds写了让gemini润色，还可以，有
 
 酒馆赛博文爱open ai都不是第一选择，这盘外招不灵啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 1840#       发表于 2025-2-14 15:14
+
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k
+
+这栋楼某些玩法走在了科研前言了
+
+
+*****
+
+####  moekyo  
+##### 1841#       发表于 2025-2-14 15:14
+
+火山R1联网相当好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
