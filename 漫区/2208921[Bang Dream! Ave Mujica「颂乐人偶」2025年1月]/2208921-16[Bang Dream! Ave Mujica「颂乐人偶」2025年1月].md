@@ -4790,3 +4790,135 @@ i83的嗓子也被武士道摧残很惨了，全靠机能撑着，武士道大�
 </blockquote>
 你看这番译名叫啥，这不就是人偶嘛
 
+
+*****
+
+####  08df1258c5ed098  
+##### 22622#       发表于 2025-2-14 12:07
+
+滑坡是因为这坡真的太滑，你不能因为插了张告示牌就指望彻底安全了。
+
+狗团来来回回拉扯一季才得出了凑合过吧的主题，鸡团现在都是意义不明。
+
+那现在原配强势回归冰释前嫌，除了羊叫以外可以说又是一段完美的回忆，那糟糠之妻不去墙角端碗还在这碍眼做什么，是不是有点不懂读空气了。
+
+复合是人之常情，不复合才是施加外力的生硬大手
+
+*****
+
+####  江口夕  
+##### 22623#       发表于 2025-2-14 12:08
+
+ 本帖最后由 江口夕 于 2025-2-14 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421663&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 11:54</a>
+存在滑坡的，和直接烂掉，那也不可能选直接烂掉吧，而且不是要炒热度的么，难道还是烂掉热度更高么， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烂掉也是mujica，和ccc有什么关系。这不海玲就来找茬砸场子了。我是海玲直接砸场子了。到结束才去这素质很高了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  哈曼的YY  
+##### 22624#       发表于 2025-2-14 12:09
+
+<blockquote>wwwttth 发表于 2025-2-14 11:19
+问题是这段真的是导致整个演出如同儿戏最主要的原因，你直接删了都不会有啥问题，纯画蛇添足，现在我一听 ...</blockquote>
+立希的“crychic就是普通的乐队”光画面很难表达吧
+
+*****
+
+####  安娜导函数  
+##### 22625#       发表于 2025-2-14 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419229&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-14 08:16</a>
+这有什么不能论述的，我在前面论述过，你可能没看到
+
+对当时的Soyo来说，乐队（Crychic）是缺失的家庭的替 ...</blockquote>
+所以在这第七集又搞一个和前任的分手炮算干啥呢？？我更愿意剧情是睦祥来看GO团live，让她俩看到素希灯的成长，看到大家虽然离开了CCC但是也能找到自己新的归宿，甚至可以安排GO团在台上为祥子献唱成为人类之歌，台上台下共鸣来结束CCC，即不破坏go团现在的氛围，也能给ccc团一个葬礼，同时启发祥子和睦头重启mujica，现在拍的这是啥玩意？？？ 
+
+*****
+
+####  DeltaStriker  
+##### 22626#       发表于 2025-2-14 12:11
+
+画面确实很难表达 开音量就能表达了（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  南宮凝香  
+##### 22627#       发表于 2025-2-14 12:14
+
+有一說一，
+
+C團也沒什麼復合的理由
+
+這集都給你實寫了希素已經放下
+
+還要硬讓她們復合的有點強把帽子往頭上戴了
+
+*****
+
+####  一心而用  
+##### 22628#       发表于 2025-2-14 12:14
+
+还是祥子生贺图
+<img src="https://p.sda1.dev/22/854895fefd12adf566544e790fdc763a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7ab369b8f72032a17c4f216ffc5d9075/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/72ce4974053b148f12ebf18dab136b86/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7739dfc519e09f0145506b12fecaee2d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 22629#       发表于 2025-2-14 12:15
+
+这一话的看戏猫猫
+<img src="https://p.sda1.dev/22/fa7a951815a38dd5c313fee995f2ea0a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/280bee31b61565e0a3eea80556146a39/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 22630#       发表于 2025-2-14 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421628&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 11:51</a>
+
+祥睦小时候和祥莫关系还是黑盒呢，怎么感觉你们都理解都杀青了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15 ...</blockquote>
+有没有可能根本就不打算演了
+
+*****
+
+####  wwwttth  
+##### 22631#       发表于 2025-2-14 12:15
+
+<blockquote>哈曼的YY 发表于 2025-2-14 12:09
+立希的“crychic就是普通的乐队”光画面很难表达吧</blockquote>
+夸张点就行了，ccc和狗团画面并列，ccc的画面加黑白滤镜。
+
+*****
+
+####  一心而用  
+##### 22632#       发表于 2025-2-14 12:16
+
+海希
+<img src="https://p.sda1.dev/22/6519cba09d95637c6c82c795254ad771/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e154e72595784f46e562bf17203752c6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  柴突猛进  
+##### 22633#       发表于 2025-2-14 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421859&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:14</a>
+有一說一，
+
+C團也沒什麼復合的理由</blockquote>
+反了吧，现在c团五个人你侬我侬，应该问的是C团有什么理由解散才对吧？c团当初是因为祥子家庭出问题要退团，然后剩下的睦不说人话，几个人一通乱战，所以后来没人来了，那祥子现在回了丰川家，睦说的话也解释了，立希也对祥子道歉了，soyo也和解了，灯本来就关心祥子，那c团解散的道理在哪里，总不能说就是为了给母鸡卡让路吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
