@@ -4021,3 +4021,18 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 —— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  MERCCCP  
+##### 390#       发表于 2025-2-14 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417229&amp;ptid=2246159" target="_blank">maritimus 发表于 2025-2-13 23:34</a>
+
++1
+
+其实觉得还好，符合预期吧。而且这本来就是彩排啊，台下没观众自己唱着玩，不理解为什么要拿音乐扣分。 ...</blockquote>
+?
+
+CCC版的春日影全曲已经在GO动画BD下卷里发售了啊
+

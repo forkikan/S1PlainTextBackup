@@ -1683,3 +1683,39 @@ Takachan会来吗？  
 
 我这不知道啥时候绑的+86算是认证了吗？刚在chat里试了一下没提示需要认证啥的
 
+
+*****
+
+####  术士q  
+##### 18002#       发表于 2025-2-14 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423945&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-14 15:27</a>
+这播的时间也太阴间了，多兰剑+抢二失败学w应该是私下又请教过了韩一波了？</blockquote>
+能发消息应该就是可以了，毕竟验证信息也都完全了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sino__unnko3  
+##### 18003#       发表于 2025-2-14 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423945&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-14 15:27</a>
+这播的时间也太阴间了，多兰剑+抢二失败学w应该是私下又请教过了韩一波了？</blockquote>
+绑定了就没事。好像最近两年才+86收不到验证码
+这个招式可能就是前几天和韩一波私下打，没有直播那次学的
+
+
+*****
+
+####  术士q  
+##### 18004#       发表于 2025-2-14 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422686&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-14 13:39</a>
+绑了朋友的海外手机号才解决
+唉希望你咩会取消锁吧，虽然之前放过话会对评论区开杀，但这么一搞国人观众t台 ...</blockquote>
+主动取消锁相当于是说有什么事情让mea能够再更为信任观众，然后取消，除非是有什么大活动，不然听起来其实挺遥远的。
+也不知道今晚会不会播..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1048,3 +1048,20 @@ animal well拿到了game direction，是重量级奖项</blockquote>
 
 那我估计gdc也稳了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eulereld  
+##### 95#       发表于 2025-2-14 15:55
+
+ 本帖最后由 eulereld 于 2025-2-14 15:58 编辑 
+
+家庭遊戲是指合家歡遊戲任何年齡都能玩，入圍的遊戲中又不只有它一個單機
+小機械人裡沒動畫這種話都說得出來，只看CG是吧
+Action game的定義就是包括shooting很神奇吧
+到底要過多少年這些只看中文翻譯的愚蠢的言論才能消失
+
+<img src="https://p.sda1.dev/22/9a1a4b448270af50086ac3460e759f89/image.jpg" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
