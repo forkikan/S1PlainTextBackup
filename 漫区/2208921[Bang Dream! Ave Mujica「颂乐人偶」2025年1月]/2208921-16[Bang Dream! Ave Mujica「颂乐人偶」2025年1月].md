@@ -5028,3 +5028,141 @@ C團也沒什麼復合的理由</blockquote>
 
 现在这个节点复合不复合剧本上都说得通，但选哪个会导致观感一泻千里武士道再想赚钱也不会不懂吧。线下搞ccc团合同演出已经看得出吃相不行了，动画里也搞那口碑就彻底臭了
 
+
+*****
+
+####  595505568  
+##### 22645#       发表于 2025-2-14 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421989&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-14 12:27</a>
+我觉得很多人滑坡的点是真的不把乐队当乐队，真把乐队当结婚了
+
+当然每个人想法不一样，但是我觉得真不至于 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人喜欢乱交有人不喜欢也很正常，还是大家都有理吧，除了说自己抠了很多细节欢乐豆的独角兽🤣，第七话也不知道她关键集抠了什么东西出来，乱七八糟的
+
+*****
+
+####  柴突猛进  
+##### 22646#       发表于 2025-2-14 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421947&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:23</a>
+因為C團只是一個在過去的普通樂團呀
+
+你至少也問問立希小姐的意見</blockquote>
+问题是c团和mygo逻辑上是可以共存的，不是非此即彼的，立希的劣等感更多是因为她姐，在mygo里面担任作曲之后，至少她对祥子怯魅了吧？不至于mygo13集演完她还是觉得对祥子低人一等吧？话语权大从来不是她的追求，立希在mygo的初心是因为有灯，但是c团也有灯，有猫我这一点刚刚说了mygo和c团可以并存，更况且猫还是花女初中生跟立希同校
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刑部姬真可爱  
+##### 22647#       发表于 2025-2-14 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421947&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:23</a>
+
+因為C團只是一個在過去的普通樂團呀
+
+你至少也問問立希小姐的意見</blockquote>
+大家都化身没苦硬吃爱好者了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 22648#       发表于 2025-2-14 12:29
+
+手游神人操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道 你这家伙就这么喜欢ccc吗<img src="https://p.sda1.dev/22/9ead676b5d41fa5ec7666a543c2e7139/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  烂片雷达  
+##### 22649#       发表于 2025-2-14 12:30
+
+小猫教了木子半天吉他，最后借吉他的时候却被爱音摘了桃子，意难平啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+要是小猫借了木子吉他然后木子弹出了会唱歌的吉他，这种良师益友吉他之魂的传承关系我都不敢想有多好嗑<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+看来编剧引以为傲的女女关系性的想象力也不过如此<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22650#       发表于 2025-2-14 12:31
+
+ 本帖最后由 JustW 于 2025-2-14 12:32 编辑 
+
+说实话对C团要复活和b站铺天盖地心疼爱音的不是十分理解，自认为是很喜欢爱音这个角色的，但这集被大手操纵的也不是爱音一个甚至爱音也不是被 操纵最狠的，把吉他借人唱两首歌和绿不绿真能画等号吗，C团对着空舞台告别演出结束后不还是MyGO自己要live，比起这个母鸡卡才是真的从零开始了，祥子现在也不怕被人知道实情也不用照顾废物爹，到底还要怎么把乐队重新攒出来，为什么要攒，剩下六集能把这个讲好就算落地了
+
+*****
+
+####  月光润色  
+##### 22651#       发表于 2025-2-14 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集一股大祥老师完成塑造的感觉，当然，也彻底烂了
+
+*****
+
+####  aptx8285144  
+##### 22652#       发表于 2025-2-14 12:32
+
+<blockquote>Renes 发表于 2025-2-14 11:31
+因为gbc压根不是邦类少女乐队动画，而是音乐创业动画，你拿邦系这一套校园魔法分析必然货不对板，gbc里音 ...</blockquote>
+我现在一想到大喵和大祥包饺子的对手戏，就预感只有灾难性来形容
+
+*****
+
+####  dqtql  
+##### 22653#       发表于 2025-2-14 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422029&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-14 12:30</a>
+
+小猫教了木子半天吉他，最后借吉他的时候却被爱音摘了桃子，意难平啊
+
+要是小猫借了木子吉他然后木子弹出了 ...</blockquote>
+不是，动画里哪里表现猫猫教大莫老师弹吉他了？
+
+*****
+
+####  安娜导函数  
+##### 22654#       发表于 2025-2-14 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420253&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:51</a>
+祥子那点事闹得现在大家都知道了就是也没事啊，说不定那天睦不说那句话+soyo再强硬一点，直接就没有MyGO母 ...</blockquote>
+当天soyo不拦着立希让她给祥子有情破颜拳一顿说不定就没这两季动画了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 22655#       发表于 2025-2-14 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422001&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-2-14 12:28</a>
+
+问题是c团和mygo逻辑上是可以共存的，不是非此即彼的，立希的劣等感更多是因为她姐，在mygo里面担任作曲 ...</blockquote>
+实际上就是ccc已经解散了，而现在是在补葬礼，逻辑上当然是可以共存，以后进游戏了肯定少不了ccc相关活动，但是这和动画现在没关系了
+
+*****
+
+####  柴突猛进  
+##### 22656#       发表于 2025-2-14 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421970&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:25</a>
+牢祥都一鞠躬 自己退場了
+
+結果場外不停強行把帽戴頭上是什麼思路？</blockquote>
+退场按照动画里的逻辑是因为爱音说了该轮到go彩排了，按照祥子的大小姐教养总不可能占着地方不让吧，你说祥子鞠躬退场就代表C团一定就解散了那才有问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  柴突猛进  
+##### 22657#       发表于 2025-2-14 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422064&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-14 12:34</a>
+实际上就是ccc已经解散了，而现在是在补葬礼，逻辑上当然是可以共存，以后进游戏了肯定少不了ccc相关活动 ...</blockquote>
+那不就是编剧按着头让mygo当工具人给c团大和解，然后c团强行解散为母鸡卡让道？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

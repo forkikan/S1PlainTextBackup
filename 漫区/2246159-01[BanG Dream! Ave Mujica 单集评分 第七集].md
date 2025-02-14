@@ -3869,3 +3869,11 @@ ccc诈尸完了，crychic对祥子的意义只能说处理得普普通通，我�
 
 现在这结果完全不意外，反而有点庆幸是怎么回事？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GhostR1  
+##### 378#       发表于 2025-2-14 12:28
+
+要演哭着唱歌难听确实演到味了，但是全员释怀包寿司也太快了。
+
