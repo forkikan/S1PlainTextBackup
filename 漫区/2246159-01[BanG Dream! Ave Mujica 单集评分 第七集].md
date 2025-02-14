@@ -3488,3 +3488,34 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 为什么要演奏春日影
 
+
+*****
+
+####  sheshiro  
+##### 345#       发表于 2025-2-14 08:46
+
+龙骑士07：之前就跟你说过ep7不好写<img src="https://static.saraba1st.com/image/smiley/carton2017/167.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  13431941181  
+##### 346#       发表于 2025-2-14 08:49
+
++1
+
+看完第一遍我是失望的，显然情绪的感染力不够，但看完第二遍我居然又释怀了，我就像soyo一样给mygo套上了回忆滤镜并拿来要求mujica，但是mygo已经结束了，我也应该正视眼前的mujica了
+
+回头一看，包饺子的逻辑还是比较合理的，soyo和taki已经补完了，大祥也开始行动了，睦头也觉得弹吉他开心了
+
+节奏和观感的问题的话，柿本监督是不是要出来背一下锅呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 347#       发表于 2025-2-14 08:50
+
+上热搜了
+<img src="https://p.sda1.dev/22/a6225c26b218fbcc9a43bf6e0c44d041/QQ图片20250214084834.png" referrerpolicy="no-referrer">
+

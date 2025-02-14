@@ -651,3 +651,11 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 这主角挺有喜感的，表情、动作耳目一新
 
+
+*****
+
+####  wthall  
+##### 159#       发表于 2025-2-14 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看了眼视频，不敢相信这个打击感是卡婊端出来的实机，就这样吧，反正等游戏出了再说，用钱宝投票
+

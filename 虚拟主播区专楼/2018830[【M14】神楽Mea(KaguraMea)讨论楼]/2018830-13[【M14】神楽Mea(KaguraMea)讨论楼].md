@@ -1596,3 +1596,15 @@ Takachan会来吗？  
 我还没弄好，t台一直收不到认证邮件
 咕噜咕噜邮箱
 
+
+*****
+
+####  术士q  
+##### 17994#       发表于 2025-2-14 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419384&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-14 08:38</a>
+我还没弄好，t台一直收不到认证邮件
+咕噜咕噜邮箱</blockquote>
+163邮箱倒是可以正常收到确认邮件，但是在号码绑定上花了很多时间，国内号码比较难收到信息，六点开始找办法到快八点才搞好...
+也相信咩能调整好，毕竟什么大风大浪都见过了，重新上分的心气应该也能找回来
+
