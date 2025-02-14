@@ -2368,3 +2368,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 然后刚刚在隔壁看到时之至宝是反螺旋族没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winggg  
+##### 7733#       发表于 2025-2-14 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422595&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-14 13:30</a>
+
+希娜，妮娜，莉安娜，这不都是娜字辈的，没毛病
+
+查了下太阳她妈叫莱娜，我开始细思恐极了 ...</blockquote>
+你细品为什么盟主的声优要借用亚尔缇娜……（大误）
+
