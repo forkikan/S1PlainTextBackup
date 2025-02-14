@@ -4171,3 +4171,16 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 带着切割的心理准备重新看了第二遍，观感反倒还行。但第二首live真不太行，大概少女乐队企划live菜就是原罪
 
+
+*****
+
+####  maritimus  
+##### 405#       发表于 2025-2-14 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424343&amp;ptid=2246159" target="_blank">MERCCCP 发表于 2025-2-14 15:59</a>
+
+?
+
+CCC版的春日影全曲已经在GO动画BD下卷里发售了啊</blockquote>
+啊你说的对，我看apple music上没有，还以为一直没出专辑
+

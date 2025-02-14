@@ -11012,3 +11012,146 @@ tft版真的唱很好吗，对羊的要求是不是也太低了……
 在我看来真正亏待爱音的只有素世，毕竟祥子对素世做了什么，爱音又对素世做了什么，素世对祥子是什么态度， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你告诉我第七话Op前和Op后的素世是一个人吗
 
+
+*****
+
+####  高妹控  
+##### 23185#       发表于 2025-2-14 22:28
+
+看过TFT版春日影后，更疑惑了，第七话到底是什么行为艺术？
+
+*****
+
+####  raii  
+##### 23186#       发表于 2025-2-14 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427659&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 22:22</a>
+
+問題是雞狗兩團加起來的‘正常社會人’有多少個？
+
+所以又回到那個問題了</blockquote>
+那没办法啊，不然那些特殊儿童之家怎么开的起来啊，那些缺陷人士搞互助会围成一个圈互相倾诉还得有个司会呢，常识就是这样啊，总得有予取予求的
+
+所有人同时亏欠着所有人，又同时是所有人的救命恩人，这看上去很诡异的好不好
+
+退一步说，“照顾别人”同时也等于“被别人所依赖所需要”，被依赖这也是人类正常的情感诉求啊
+
+*****
+
+####  看穿一切的鱼  
+##### 23187#       发表于 2025-2-14 22:29
+
+讲真爱音递吉他的时候不是挺游刃有余吗，而且就一彩排现场观众都没有，睦祥也是演完就走了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+下集等灯祥要是真要复辟大清再骂也不迟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  单脚着地  
+##### 23188#       发表于 2025-2-14 22:29
+
+当一个百合向动画的讨论串里出现逼，登，÷的时候，感觉差不多就是该跑路的时候了。。。。真情实感的有点可怕<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼彻斯特联  
+##### 23189#       发表于 2025-2-14 22:29
+
+哪还需要去听TFT，mygo的两次春日影不都很正常，明显就是十本刻意为之
+
+*****
+
+####  zhoujin8584  
+##### 23190#       发表于 2025-2-14 22:29
+
+有个设定想问下，ring的live狗团报出场的频率大概是多久一次，游戏里有相关的信息吗？
+
+*****
+
+####  cccpprc  
+##### 23191#       发表于 2025-2-14 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426924&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-14 21:04</a>
+
+真杀绝了？</blockquote>
+杀绝了，然后风评也坠毁了
+
+然后第七集一出当初兴高采烈车祥的人立马变成我回复那种”制作组是祥麽“，早先拷打了那么多集都是演的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<strong>想想就知道这说法不对吧，按这个说法花田十辉一定是天下第一黄部长麽</strong>
+
+现在我只想问，如果完结后大祥的风评和作品的风评一起坠毁，车祥的人接受不接受。
+
+*****
+
+####  cnlmaa  
+##### 23192#       发表于 2025-2-14 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427609&amp;ptid=2208921" target="_blank">woui003woui 发表于 2025-2-14 22:17</a>
+
+tft版真的唱很好吗，对羊的要求是不是也太低了……</blockquote>
+门外汉能听出来真假音转换很突兀，相比其他录TFT的歌手差了很多
+
+但是你要是跟第七集那两首歌比可真是薄纱了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  最终兵器狂战  
+##### 23193#       发表于 2025-2-14 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427586&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-14 22:14</a>
+
+所以不管老C团还是爱音乐奈，是欠了祥子的？
+
+整个AM动画，甚至加上前面的MyGO，最大的问题就是制作方纯粹 ...</blockquote>
+emmm。。。首先母鸡卡的剧情必须由作为母鸡卡发起者的祥子来推动，而祥子现在是没有驱动力的。那这个驱动力就要作为祥子本心的C团来给予。而爱音乐奈本身跟老C团是没什么关系的。那戏份比重比另外三个C团遗老少不是很正常么？而且虽然戏份少，实际上没有anon追车和猫一眼顶针一吉他拍醒那这剧情还走不下去了呢。何来亏欠的说法？
+
+而且你说的80年代玛丽苏，我理解首先不管哪个年代都很流行美强惨人物。而且祥子美先不提，惨是挺惨了但是她一点不强啊。这都被拷打成最软糯的形态了全靠老队友推着走，这也不怎么符合你的标准吧。
+
+*****
+
+####  杂灰  
+##### 23194#       发表于 2025-2-14 22:31
+
+我倒觉得真明着来一波复辟都好过，至少让角色经历一波失败来证明现实不能一直如她所愿可以让角色塑造进入下个阶段，而不是停在这个阶段试图催眠观众觉得这是对的
+
+*****
+
+####  08df1258c5ed098  
+##### 23195#       发表于 2025-2-14 22:32
+
+现在一看还真是铺天盖地替爱音不值，只能说喜欢造神和造小丑都是一体两面的。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嵇翱u  
+##### 23196#       发表于 2025-2-14 22:34
+
+其实也有剧本过早完成，制作组意识不到爱音会有这么大的人气。
+
+如果鸡狗剧本真是分开做的，那我觉得制作过程中团员对爱音的处理会更圆滑一点
+
+
+*****
+
+####  杂灰  
+##### 23197#       发表于 2025-2-14 22:35
+
+你鸡对哪个角色处理圆滑过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 23198#       发表于 2025-2-14 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427719&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-2-14 22:28</a>
+
+看过TFT版春日影后，更疑惑了，第七话到底是什么行为艺术？</blockquote>
+着力点完全错误而已。
+
+他想表达的是，哭团只是被回忆镀金的白月光，其实就是个JC闹麻了、组建十分快、解散也十分快、水平也就那样（主唱太拼命了不是瞎说）的乐队，给它一个葬礼；不熟练表现烂才是应有之义，熟练了才是问题；而接下来爱音说MyGO的排练，则是真正的生活还要继续。
+
+但是实际表现出来的完全不是那个味儿，给的舞台是主角舞台而不是几个分道扬镳的老友咂酒花子感叹“当年这样那样”的场合，给了主舞台那大家就期待一个不错的Live结果硬要拗一个表现不咋样的场景；最后的“生活还要继续”几秒钟就没了观众压根认识不到。
+
+说白了，这集具体实现的路线是让一群JK跳出来演《老男孩》甚至是唱唐朝版《国际歌》，能搞好才奇怪……
+

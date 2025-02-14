@@ -13242,3 +13242,19 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 山下自己都说过这个话题，虽然可动框架很好看他自己也喜欢，但现实机器人是硬壳结构，所以鹤卷选择让GQ ...</blockquote>
 是的。不过没有可动框架技术迭代其实在这个世界观下是非常合理的。
 
+
+*****
+
+####  kykawaiii  
+##### 6939#       发表于 2025-2-14 22:33
+
+<img src="https://img.saraba1st.com/forum/202502/14/223334r7f72g8lbytm28yu.png" referrerpolicy="no-referrer">
+
+<strong>f17a1c9eff3f3abc7251aa4aec93d60e_720.png</strong> (235.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 22:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
