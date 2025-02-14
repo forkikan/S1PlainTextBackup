@@ -13120,3 +13120,19 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 2025-2-14 11:18 上传
 
+
+*****
+
+####  岸浪白野  
+##### 6933#       发表于 2025-2-14 11:55
+
+[X 上的 (株)カラー 2号機：“◤◤Backgroundworks of GQuuuuuuX◢◢ #ジークアクス 制作の裏側にまつわる様々なモノをチラ見せ！ 『form3+』で作られた"3Dモデルの立体出力"をご紹介。 第4弾は「赤いガンダム　全身モデル」です！ 制作時に資料として活用されています。 [url]https://t.co/Ro6oKjn2FK](https://x.com/khara_inc2/status/1890234513487536434)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/14/115451hpdygnyycooqs9qe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 11:54 上传
+
