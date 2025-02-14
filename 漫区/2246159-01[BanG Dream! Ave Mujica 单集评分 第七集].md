@@ -4114,3 +4114,13 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想要的是花田魔法不是花田流唱法 -2
 
+
+*****
+
+####  saintsimpler  
+##### 399#       发表于 2025-2-14 20:33
+
+这也能一转烤羊的也是神人了，这明显是音响监督或者导演眼熟的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
