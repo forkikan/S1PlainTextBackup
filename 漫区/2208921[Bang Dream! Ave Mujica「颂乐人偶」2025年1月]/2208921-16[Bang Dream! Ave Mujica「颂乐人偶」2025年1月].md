@@ -6868,3 +6868,113 @@ mygo12真得改名叫ccc 12 只有五个人怎么卖十个周边？我们拆两�
 
 祥子好黑啊，还企图过肩摔，
 
+
+*****
+
+####  ape-apple  
+##### 22812#       发表于 2025-2-14 15:25
+
+独角兽要是去搞拉蓝鸟就有意思了，她最喜欢女女乱炖关系性你舔我我不舔你我之前还有个舔过的以后还要舔，就适合拉蓝鸟的调性
+
+*****
+
+####  ArcadiaMartyr  
+##### 22813#       发表于 2025-2-14 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己垃圾别拉花田下水，咖位不配的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  せきぼく  
+##### 22814#       发表于 2025-2-14 15:26
+
+太2.5了，迫真meta大作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkXcross  
+##### 22815#       发表于 2025-2-14 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423647&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 15:05</a>
+
+目前ave的演出问题远大于剧本，系构会切割不是一定会发生的吗，有哪个编剧会真的乐于看到自己的创作被其他 ...</blockquote>
+真那么气不过后面怎么又一起做了亦叶亦花呢？
+
+*****
+
+####  天空塔书记官  
+##### 22816#       发表于 2025-2-14 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423913&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-14 15:25</a>
+自己垃圾别拉花田下水，咖位不配的
+
+—— 来自 S1Fun</blockquote>
+这话最好是在京吹3和星二期的时候说，而不是现在<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 22817#       发表于 2025-2-14 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423952&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-2-14 15:28</a>
+真那么气不过后面怎么又一起做了亦叶亦花呢？</blockquote>
+看这页第一楼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  挺好的  
+##### 22818#       发表于 2025-2-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423952&amp;ptid=2208921" target="_blank">darkXcross 发表于 2025-2-14 15:28</a>
+
+真那么气不过后面怎么又一起做了亦叶亦花呢？</blockquote>
+根据时间菜花24年4月之前可能很早就完成了，这也不冲突啊，离职邦不也是23年9月之后的事
+
+*****
+
+####  ads147147  
+##### 22819#       发表于 2025-2-14 15:31
+
+反正不管怎么算锅，制作人（企划）大于等于导演大于编剧大于单集脚本，至于编剧和编剧之间的高低。。。恐怕不好说。
+
+*****
+
+####  厚乳果珍爽  
+##### 22820#       发表于 2025-2-14 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星二我没看，但是京吹三我觉得还行啊，青春总有遗憾不是？
+
+就是我缺的秀一爱情故事没补给我。
+
+*****
+
+####  JustW  
+##### 22821#       发表于 2025-2-14 15:32
+
+<blockquote>天空塔书记官 发表于 2025-2-14 15:21
+不是哪里说独角兽跑到狗代了吗
+
+看看接下来的作品咋样呗</blockquote>
+是她说会宣布自己的新工作，然后正好拉拉新项目的低气压调性很“MyGO”，所以被猜新工作就是指这个，但没有官宣吧
+
+*****
+
+####  铃森冬  
+##### 22822#       发表于 2025-2-14 15:32
+
+之前也就是切割单部动画，这回把整个邦多利企划都切割了好家伙
+
+*****
+
+####  十万年魂环  
+##### 22823#       发表于 2025-2-14 15:33
+
+还是沉不住气，学习下大河内怎么打☯吧<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+

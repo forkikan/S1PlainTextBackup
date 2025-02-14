@@ -1029,3 +1029,14 @@ DICE的技术奖提名出来了</blockquote>
 —— 来自 S1Fun</blockquote>
 animal well拿到了game direction，是重量级奖项
 
+
+*****
+
+####  ultraseven  
+##### 93#       发表于 2025-2-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423914&amp;ptid=2210743" target="_blank">BRAVADO 发表于 2025-2-14 15:25</a>
+
+animal well拿到了game direction，是重量级奖项</blockquote>
+你看看提名的竞争对手
+
