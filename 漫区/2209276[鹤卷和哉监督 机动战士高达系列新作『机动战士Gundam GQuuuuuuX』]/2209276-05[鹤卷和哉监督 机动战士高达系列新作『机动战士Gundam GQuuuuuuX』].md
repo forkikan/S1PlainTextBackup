@@ -13200,3 +13200,34 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 2025-2-14 20:54 上传
 
+
+*****
+
+####  0aleph37  
+##### 6937#       发表于 2025-2-14 21:10
+
+ 本帖最后由 0aleph37 于 2025-2-14 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426283&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-2-14 19:38</a>
+
+目前没有可动框架技术等二代技术应用迹象。GQX本质是一台有88～91年级别新人类操控系统(新人类用OS水平我 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/14/210617ca0jnn5nian8l0hc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/210635wh5diq2bm570j8l7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 21:06 上传
+
+山下自己都说过这个话题，虽然可动框架很好看他自己也喜欢，但现实机器人是硬壳结构，所以鹤卷选择让GQX中MS也是硬壳结构。
+
+因此这其实是场外要素决定的，而非是剧情中的技术代数问题（如果要圆的话那就是GQX中技术路线与正典发生了分歧
+

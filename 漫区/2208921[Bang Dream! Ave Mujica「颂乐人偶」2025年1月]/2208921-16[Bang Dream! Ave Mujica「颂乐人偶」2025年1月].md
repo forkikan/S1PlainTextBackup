@@ -9636,3 +9636,176 @@ WSD:有传言说CCC已经风光大葬了，我澄清一下，只有风光，没�
 
 有几个走音 情绪还可以 
 
+
+*****
+
+####  595505568  
+##### 23065#       发表于 2025-2-14 21:08
+
+所以昨天的Live是几个意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 23066#       发表于 2025-2-14 21:09
+
+<blockquote>十九号大侠 发表于 2025-2-14 21:06
+我还是第一次知道组乐队就是结婚，这真的 是邦的世界观吗</blockquote>
+夸张描述而已，真这么变态那多惠去ras那段真的太变态了，不过可以按照“朋友以上恋人未满”来个类似的“乐队以上结婚未满”
+
+*****
+
+####  是谁的书画  
+##### 23067#       发表于 2025-2-14 21:09
+
+从🐏姐的声音里上扬的音调听到了CCC的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 23068#       发表于 2025-2-14 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426946&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-14 21:05</a>
+真富婆</blockquote>
+尬黑了，这差了十万八千里
+
+*****
+
+####  烂片雷达  
+##### 23069#       发表于 2025-2-14 21:09
+
+最正确的五个人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 23070#       发表于 2025-2-14 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/470.png" referrerpolicy="no-referrer">所以还需要烤羊吗
+
+*****
+
+####  嵇翱u  
+##### 23071#       发表于 2025-2-14 21:11
+
+今天这个真可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 23072#       发表于 2025-2-14 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426994&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-14 21:09</a>
+最正确的五个人</blockquote>
+那干嘛要写mygo啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，观众是傻子是吗
+
+*****
+
+####  595505568  
+##### 23073#       发表于 2025-2-14 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427005&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-14 21:10</a>
+所以还需要烤羊吗</blockquote>
+烤不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，要稳定还算可以，情感达标了
+
+*****
+
+####  何でやねん  
+##### 23074#       发表于 2025-2-14 21:11
+
+好听的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cccpprc  
+##### 23075#       发表于 2025-2-14 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426868&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-2-14 20:57</a>
+
+就很诡异，4chan、5ch可以说是和大陆对于动画观点最一致的论坛了，以前几次环大陆好评时都能说匿名版才是 ...</blockquote>
+5CH算了吧
+
+哪怕不算京吹三
+
+全员恶玉这玩意能拿5CH2020年榜一的
+
+本身就是死宅聚集地+对华负面滤镜重的地方，分歧才是常态吧
+
+*****
+
+####  Sevenseas  
+##### 23076#       发表于 2025-2-14 21:13
+
+杨姐不是你的错
+
+*****
+
+####  渡鸦骑士  
+##### 23077#       发表于 2025-2-14 21:13
+
+好听归好听，但是这2万7的同接，核心粉丝群体根本没多多少。
+武士道满意了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 23078#       发表于 2025-2-14 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426643&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-14 20:29</a>
+
+只能说猫猫延续了上一季的神出鬼没，其实她心里跟爱音是一样的想法吧，只是爱音用人类的语言表达了出来 ...</blockquote>
+我觉得猫和爱音不太一样，她其实不太CARE陌生人的，不像爱音不熟悉的人也会给予基本的关心
+
+*****
+
+####  LeonsCat  
+##### 23079#       发表于 2025-2-14 21:14
+
+TFT放出来了，只能说索尼爸爸不愧是索尼爸爸，我现在也是羊gachi了。
+
+*****
+
+####  十九号大侠  
+##### 23080#       发表于 2025-2-14 21:15
+
+最后这么唱不好吗
+
+
+*****
+
+####  swessia  
+##### 23081#       发表于 2025-2-14 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">除了春日影还有别的歌不
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  w酱  
+##### 23082#       发表于 2025-2-14 21:17
+
+昨天用这个版本直接神回不好吗
+去tm的真实感<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 23083#       发表于 2025-2-14 21:17
+
+所以柿本这么拉的人就美美隐身了是真的没道理的
+
+*****
+
+####  capraeLinn  
+##### 23084#       发表于 2025-2-14 21:17
+
+海外对mujica没有闹钟这样的热情吧，观看人数的不同决定了风评
+
+换句话说，不能接受ep7的早该被前六集筛走了，尤其是ep4结尾。如果不是mujica，正常来说看到ep4结尾只会觉得这部片烂完了从此不看，只有闹钟疯狂造假药来骗自己看下去。
+
+而且在场外和各种因素下，大家看ep7已经是抱着翻身仗的心态看的了，那只要不是神回都要挨喷的，更别说ep7前半做得真得不好，后半的live有让想看正经live的人不高兴，奖池积累爆发就成现在这个样子了。
+
+闹钟对mujica的关注度以及观众的心态已经不是对待一部普通原创的心态了，自然与海外风评不一致。
+
