@@ -2389,3 +2389,23 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 轨迹cv重复也是个问题。。至少超关键的角色不应该搞重复 好比盟主 大总统之类的 大总统的老婆也是<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7735#       发表于 2025-2-14 15:05
+
+ 本帖最后由 卢迪克 于 2025-2-14 15:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423151&amp;ptid=2160194" target="_blank">alucardcz 发表于 2025-2-14 14:26</a>
+
+轨迹cv重复也是个问题。。至少超关键的角色不应该搞重复 好比盟主 大总统之类的 大总统的老婆也是 ...</blockquote>
+不可能的，近藤说本来预计两个月录完音，结果三个月还没录完。一些粉丝还指望更多角色回归，法社一看就没那个钱了，能兼配就兼配
+
+
+*****
+
+####  Aeons  
+##### 7736#       发表于 2025-2-14 15:12
+
+闪1闪3是if世界，参考点是黎二那种，和界轨没有关系
+

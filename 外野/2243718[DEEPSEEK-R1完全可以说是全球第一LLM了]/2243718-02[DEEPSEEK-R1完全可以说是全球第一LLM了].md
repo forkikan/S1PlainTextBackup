@@ -4063,3 +4063,23 @@ openai成人内容解禁？真的假的？这也太盘外招了吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangkaim4  
+##### 1838#       发表于 2025-2-14 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67404309&amp;ptid=2243718" target="_blank">lhh_ah 发表于 2025-2-12 18:04</a>
+
+用惯了D指导，试了下Gemini写文，怎么感觉干巴巴的，不过文字量确实大很多，是我姿势不对吗？
+
+—— 来自  ...</blockquote>
+gemini写的东西干货少，可以让ds写了让gemini润色，还可以，有时候能出几段非常好的文。
+
+*****
+
+####  xell2alex  
+##### 1839#       发表于 2025-2-14 15:04
+
+酒馆赛博文爱open ai都不是第一选择，这盘外招不灵啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

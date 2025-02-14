@@ -6654,3 +6654,88 @@ ave现在明显是被夹在了文艺片和商业片之间尴尬的位置上，�
 
 独角兽吃了两年哭哭白祥吃的太好了 今天才放出来给观众吃 真是嗜血啊
 
+
+*****
+
+####  sauron.j  
+##### 22790#       发表于 2025-2-14 15:08
+
+staff也是一种睦头和莫提斯在打架。明明只要讨好观众来个公式化商业度拉满的live就行，但放不下那点文艺范的执念，一定要在live里玩叙事，里外不是人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 22791#       发表于 2025-2-14 15:08
+
+还会有祥睦童年回忆吗，我看难，下集预告已经要铺垫进入初华篇了，问题睦的问题又不算完全解决（预告里还有睦沉水镜头，喵梦也找到睦妈），这实在拖得太久太久太久了，第二集就起爆的问题还在解决过程里，不会连睦和莫的完全和解/诀别都没有就这么糊弄了吧
+
+*****
+
+####  JustW  
+##### 22792#       发表于 2025-2-14 15:10
+
+ 本帖最后由 JustW 于 2025-2-14 15:11 编辑 
+<blockquote>08df1258c5ed098 发表于 2025-2-14 15:07
+已经迷惑独角兽是不能说还是不想说了，口气完全不像前者，但前后态度也不像后者。 ...</blockquote>
+
+関わっておりません意思就是没有关系了，这个语气很硬了，正常是不会这么说自己接收过的工作的。估计当时闹得不太愉快，而且现在被问烦了。
+
+*****
+
+####  阿兹尔  
+##### 22793#       发表于 2025-2-14 15:10
+
+<img src="https://img.saraba1st.com/forum/202502/14/151018jkfcnn2jne6fy1hc.jpg" referrerpolicy="no-referrer">
+
+<strong>format,f_auto.jpg</strong> (113.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 15:10 上传
+
+初华:我真的是蜘蛛侠而且也真的在玩乐队
+
+*****
+
+####  Saxk  
+##### 22794#       发表于 2025-2-14 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420993&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 10:57</a>
+
+big胆，竟然敢拷打我羊姐的哭戏
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是bangdream这个2.5次元企划的平均水平吗，这么拉的吗
+
+*****
+
+####  wpcc  
+##### 22795#       发表于 2025-2-14 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422017&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-14 12:29</a>
+
+手游神人操作武士道 你这家伙就这么喜欢ccc吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+武士道是懂的 真能看反田叶月在手游扭吗
+
+*****
+
+####  南宮凝香  
+##### 22796#       发表于 2025-2-14 15:13
+
+哭哭然後跑掉
+
+可惜現實她沒有像睦一樣的半身
+
+*****
+
+####  天空塔书记官  
+##### 22797#       发表于 2025-2-14 15:13
+
+之前一直都有监督和独角兽决裂的传闻，再进一步与企划切割也不是不可能就是了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
