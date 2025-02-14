@@ -4256,3 +4256,14 @@ ds的甲很薄，用api基本随便破甲。但是ds便宜啊，open ai那api价
 
 DeepSeek 更新官方 Prompt 最佳实践<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葛饰应为  
+##### 1853#       发表于 2025-2-14 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67417660&amp;ptid=2243718" target="_blank">羊寢 发表于 2025-2-14 00:08</a>
+
+话说大家有用过派欧那边的ds吗？之前看人说派欧是满血版，然而刚才看到尼姑庵有人说派欧也有阉割？ ...</blockquote>
+不太行，感觉写东西明显生硬
+
