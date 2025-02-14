@@ -8054,3 +8054,128 @@ ccc连队服都补了，场外确实更乐
 
 武士道小红点都收麻了吧，可能在根本看来动画评论区的大陆IP是一群eplus是什么都搞不懂的闹麻人士在乱喷，抽选周边特典单曲专辑门票观影券全切才是母鸡卡做好了的最大证明！
 
+
+*****
+
+####  zhzij111  
+##### 22923#       发表于 2025-2-14 17:38
+
+武士道这个炒法c团真没死吧，队服都给你补上了，就等手游发力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 22924#       发表于 2025-2-14 17:39
+
+相信狐神吧！
+
+*****
+
+####  木板春香  
+##### 22925#       发表于 2025-2-14 17:39
+
+<img src="https://img.saraba1st.com/forum/202502/14/173919x9w4wagpgik6gs5q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 17:39 上传
+
+实时其实已经7.4了
+
+而且还在持续恶化
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|刚看到了|
+
+查看全部评分
+
+*****
+
+####  ddy2811  
+##### 22926#       发表于 2025-2-14 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425047&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 17:05</a>
+
+我倒是觉得哭腔没什么，但是内心小作文真的受不了，看re看一次尬一次，这种演出只能说明编剧已经丧失了对角 ...</blockquote>
+如果确实要传达那些意思，应该是在演出前就能让人感觉到，接下来交给画面和音乐自然流露的，MyGO第7集第10集不就做得很好吗？这小作文真的是画蛇添足<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 22927#       发表于 2025-2-14 17:41
+
+<blockquote>木板春香 发表于 2025-2-14 17:26
+这样看自然点吧</blockquote>
+頭身比例不對
+
+臉跟身的膚色也不對
+
+這隊服的顏色就不適合2次元的白肌+淡色頭髮
+
+3次元黑髮穿上去還可以
+
+怎麼看都很奇怪
+
+
+*****
+
+####  木板春香  
+##### 22928#       发表于 2025-2-14 17:43
+
+  我第一反应是哪个闲人自己跑的图，结果居然是官图，那就没办法了
+
+*****
+
+####  天空塔书记官  
+##### 22929#       发表于 2025-2-14 17:43
+
+CCC这队服搞不好是Ai画的 (
+
+或者就是三次元加滤镜P出来的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 22930#       发表于 2025-2-14 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425446&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 17:43</a>
+CCC这队服搞不好是Ai画的 (
+
+或者就是三次元加滤镜P出来的</blockquote>
+滤镜的应该是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我看了眼，头身完全对不上、很怪
+
+*****
+
+####  影伴光生  
+##### 22931#       发表于 2025-2-14 17:45
+
+说句不中听的，全白真有点像戴孝了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 22932#       发表于 2025-2-14 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425460&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 17:45</a>
+滤镜的应该是，我看了眼，头身完全对不上、很怪</blockquote>
+可以说是非常幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
