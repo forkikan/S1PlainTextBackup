@@ -1774,3 +1774,30 @@ gbc：？
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  JustW  
+##### 22349#       发表于 2025-2-14 07:45
+
+嘛对我而言问题最大还是live感染力远远不够，其他方面的处理并不比邦第二季更差，但邦第二季一首riot洗刷了对初见RAS的恶感，一首return完成和解，比这不知道高到哪里去了
+
+
+*****
+
+####  JustW  
+##### 22350#       发表于 2025-2-14 07:52
+
+ 本帖最后由 JustW 于 2025-2-14 07:53 编辑 
+
+MyGO在我看来优势在于切割老团降低了门槛、清新化的低气压展开让很多人感觉有新鲜感以及soyo下跪这样的片段很适合迷因传播，单从情感描写和live演出来说我不觉得比邦二三季强，wsd肯定没料到会在中国爆火，后续商业策略也肯定推倒重来了。而且MyGO很多问题被搁置是因为所有人都知道没演完，还会有一部母鸡卡来补充解释说明，比如甚至连MyGO都贯穿了的祥子这个角色的行为动机一直都不明确，导致C团遗留问题像还没开始疼的蛀牙一样，你能忍一时不能忍一世。这就导致了MyGO和母鸡卡一起评价就会导致MyGO评价下滑，但不放在一起也会下滑，因为当初能对MyGO做出高评价的一部分就是贷款到了母鸡卡。
+
+*****
+
+####  eyeego  
+##### 22351#       发表于 2025-2-14 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419007&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-2-14 07:14</a>
+想了想，祥子为什么突然白祥，因为不用去打工了啊衣食无忧了就白了，穷才是万恶之源 ...</blockquote>
+然而这么有钱还是会被外校的不良女铜堵在校门口按在地上爆炒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

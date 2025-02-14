@@ -3377,3 +3377,12 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 
 到现在为止最令我费解的是为什么连制作水平都这么烂，演出跟mygo根本不是一个级别的，像是一堆无关片段拼凑在一起的一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">人物表情和渲染有时候也很僵硬
 
+
+*****
+
+####  lurenasa  
+##### 335#       发表于 2025-2-14 07:49
+
+幸亏管住手没买周边，不然就样衰了
+以及这些年看了这么多樱花妹同人文看到第五集第一反应就是独角兽应该就是为了箱子心死一句话不说这么个场景才莫名其妙的炸炸炸，那么这集光速和解也不出人意外了，真羡慕独角兽可以做个动画剧本让自己想怎么爽就怎么爽<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
