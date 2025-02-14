@@ -1065,3 +1065,17 @@ Action game的定義就是包括shooting很神奇吧
 
 —— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  BRAVADO  
+##### 96#         楼主| 发表于 2025-2-14 16:10
+
+<blockquote>eulereld 发表于 2025-2-14 15:55
+家庭遊戲是指合家歡遊戲任何年齡都能玩，入圍的遊戲中又不只有它一個單機
+
+小機械人裡沒動畫這種話都說得出 ...</blockquote>
+fps被称为action games从doom时代就开始了吧，之前考古过一些纸媒的review/90年代电视上的商业广告，发现早期的时候也有叫“fighting games”的，不知道因为何种原因后者变成了格斗游戏的专称了。
+
+现在汉语里的动作游戏一般在英语里可以用character action/stylish action/hack and slash games
+

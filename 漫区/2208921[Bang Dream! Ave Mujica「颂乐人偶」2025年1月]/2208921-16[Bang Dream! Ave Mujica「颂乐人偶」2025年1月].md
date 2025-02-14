@@ -7269,3 +7269,57 @@ mortis本来也不是为了欺负而欺负，她也是想保护小睦嘛
 
 最后是本集里“作者逼的”的最明显对象海铃，也必须要有几个镜头来说明会出现的理由。按道理应该先是祥子解决鸡团的问题，再在最后一集里留点时间给C团春日影然后2边各回各团的，不然很多人就会有疑问这鸡团现在还有什么必须组起来的必要。
 
+
+*****
+
+####  厚乳果珍爽  
+##### 22852#       发表于 2025-2-14 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424396&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-14 16:03</a>
+
+把脚本和导演放在一起比较是不是有点过于幽默了…与导演对位的应该是监督吧</blockquote>
+导演就是监督啊，能跟监督对位的是制作人。
+
+*****
+
+####  liy30dlys  
+##### 22853#       发表于 2025-2-14 16:05
+
+现在口风是不是有点像之前的水星高达了，前面为了爆点挖了太多坑最后只能强行包饺子被骂<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无事忙  
+##### 22854#       发表于 2025-2-14 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418438&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-14 01:32</a>
+
+转自群友</blockquote>
+为什么这段话又真情实感又二次元味扑鼻
+
+是不是哪里来的定型文
+
+*****
+
+####  天空塔书记官  
+##### 22855#       发表于 2025-2-14 16:06
+
+ 本帖最后由 天空塔书记官 于 2025-2-14 16:08 编辑 
+
+联合国警告：日本动画产业面临崩溃风险 ​​​
+
+<img src="https://p.sda1.dev/22/81ebe3eef0df170904e57409e3681548/image.jpg" referrerpolicy="no-referrer">
+
+[http://m.weibo.cn/status/5133982296971565?](http://m.weibo.cn/status/5133982296971565?)
+
+哦，还有更抽象的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 22856#       发表于 2025-2-14 16:10
+
+一見和解，立刻想到重組C團，立刻想到音啪，立刻想到推屁股，立刻想到被退隊，立刻想到回英國。人的想像惟在這一層能夠如此躍進。
+
