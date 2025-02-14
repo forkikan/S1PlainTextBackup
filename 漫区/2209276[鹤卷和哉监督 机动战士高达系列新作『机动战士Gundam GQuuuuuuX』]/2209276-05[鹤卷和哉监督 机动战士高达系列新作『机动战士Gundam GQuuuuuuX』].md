@@ -13268,3 +13268,14 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 6941#       发表于 2025-2-15 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428433&amp;ptid=2209276" target="_blank">57042711 发表于 2025-2-15 00:12</a>
+ 所以说是大家都有拿到未来科技导致一步到位到NT专用机技术泛滥然后其它科技直接路人化是吧  —— 来自 鹅球 ...</blockquote>
+正史科技大爆炸的本质是本身拥有联邦侧技术的AE在战后吃下了鸡瘟各科技公司的大部分骨干和技术
+这个双方技术融合的条件在GQ世界线没有了
+

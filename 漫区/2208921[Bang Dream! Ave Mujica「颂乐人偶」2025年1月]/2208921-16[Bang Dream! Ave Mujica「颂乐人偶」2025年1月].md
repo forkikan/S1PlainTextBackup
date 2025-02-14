@@ -11998,3 +11998,64 @@ mujica是狗屎动画，但还是喜欢这部动画。
 
 这是“年龄”问题以及代入对象问题
 
+
+*****
+
+####  影伴光生  
+##### 23278#       发表于 2025-2-15 00:16
+
+ 本帖最后由 影伴光生 于 2025-2-15 00:21 编辑 
+
+看了战吧的假药，似乎很有道理，但是感觉即使想法是好的，预期表现也会非常低了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比之下还是孕吧比较直白，恨音已经拍了三刀了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MuramasaSP  
+##### 23279#       发表于 2025-2-15 00:17
+
+<blockquote>plok201 发表于 2025-2-14 23:58
+按理说，回短信这段是一个CP调情片段，但是前面描写太像冷暴力了
+
+还有个问题是这动画是3D的，其他作品这 ...</blockquote>
+考虑到场外，这段是除了live外最让我破防的部分。我看的时候是真心觉得就是在调侃，无论素世还是立希，两个人对爱音都不坦率。
+
+然后我发现只有我在逆行，无论nga b站 qq群，都在说素世立希冷暴力爱音。这种明明是同一件事，自己所看到的和大众完全不一样，让我怀疑人生了。
+
+*****
+
+####  ubox  
+##### 23280#       发表于 2025-2-15 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428430&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-2-15 00:11</a>
+
+我又想了下，等二创来一个爱音的《嘉宾》吧。。。</blockquote>
+已经有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+【Mujica/MAD】千早爱音的「嘉宾」也许是另一种「素命」MyGO误解向 [https://www.bilibili.com/video/av113998129269753/](https://www.bilibili.com/video/av113998129269753/)
+
+
+*****
+
+####  Lyzers  
+##### 23281#       发表于 2025-2-15 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428393&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 00:05</a>
+
+主要是按现实所谓家长的尿性通常不承认子女非暴力的一些精神问题的
+
+木头人那样治疗方式就爽猫就样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是你妹好了，所谓家长做对了，母鸡卡是现实主义大作了，皆大欢喜
+
+*****
+
+####  烂片雷达  
+##### 23282#       发表于 2025-2-15 00:21
+
+原来小睦是在模仿上一季第七集的小猫<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3d12750a4329f59948f1cc55b7d5e492/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/935b879f58b559f9b0e2bde712ca84bc/image.jpg" referrerpolicy="no-referrer">
+此时此刻，正如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
