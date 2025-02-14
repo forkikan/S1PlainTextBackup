@@ -4302,3 +4302,20 @@ DeepSeek 更新官方 Pr ...</blockquote>
 火山R1联网相当好用啊</blockquote>
 联网内容插件的最大参考资料Token数、引用条数要设置多少比较合适？按你的设置每月联网免费额度两万次大概能用多久啊
 
+
+*****
+
+####  possibility  
+##### 1857#       发表于 2025-2-14 21:37
+
+d老师写现代诗不如写词，意象堆砌不凝练，思想情感的差点，不知道没喂语料还是现代诗本身喂不明白。让他模仿穆旦诗风改十遍都改不好。
+
+*****
+
+####  andychen  
+##### 1858#       发表于 2025-2-14 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+aider之前那篇博文吧，功能已经上线快两个礼拜了
+
