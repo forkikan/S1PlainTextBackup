@@ -11786,3 +11786,82 @@ anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推�
 明明已经解决了C团解散的问题，C团已经没有解散的理由 ...</blockquote>
 爱因弹的太菜了 而灯皇完全能唱，ep7是监督问题
 
+
+*****
+
+####  cxj649  
+##### 23258#       发表于 2025-2-14 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428233&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-14 23:37</a>
+
+回顾了这一话的后半，还有一个问题是为什么要哭啊。
+
+明明已经解决了C团解散的问题，C团已经没有解散的理由 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，突破5人限制，就完事了
+
+*****
+
+####  厉飞雨  
+##### 23259#       发表于 2025-2-14 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最后让爱音上来喊别走啊，狗还要彩排呢，狗那三（其实是二）又陷进去，反而大祥老师鞠躬以后，真的与过去和解了重新出发了
+
+*****
+
+####  Lyzers  
+##### 23260#       发表于 2025-2-14 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428231&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-14 23:37</a>
+
+现实：我家表妹玉玉症，然后我爸吐槽看什么医生，这是能看吗</blockquote>
+说得不好听，但你在这楼里说这个的话，那你爸能跟母鸡卡共振了呀，母鸡卡也觉得反正看医生也不一定有用的，那就不用看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  car123  
+##### 23261#       发表于 2025-2-14 23:50
+
+本来因为有心理预期，看这集没破防，结果晚上看阿b推送的一堆二创破防了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">为什么阿呜呜
+
+*****
+
+####  xyion  
+##### 23262#       发表于 2025-2-14 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427980&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-14 23:04</a>
+
+其实不是说爱音做的事情不对不好有问题，而是明明祥子一直在犯罪但有人排着队哄，而爱音还必须做正确的事情 ...</blockquote>
+本来祥子第一次见莫被赶崩溃后，已经开始反思了，编剧硬是没让她去反思C团解散。明明此时祥子心防全卸，顺着对C团老人道歉非常自然。结果最后睦有明确的道歉，祥子反而没有，这观众可get不了。
+
+*****
+
+####  wpcc  
+##### 23263#       发表于 2025-2-14 23:52
+
+带入独角兽和武士道也太爽了 祥厨也可以变换形态要起飞了
+
+*****
+
+####  LeonsCat  
+##### 23264#       发表于 2025-2-14 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428022&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-14 23:10</a>
+
+剧情设置对大祥到现在都是搞两级分化式的推动，要么通过彰显黑祥的性格问题再通过谁谁谁或者结局的失败来 ...</blockquote>
++1
+
+这么塑造搞到最后就是大小姐闹麻了，只要不瞎折腾有一群人抢着帮她把事办好，不如做个人偶对谁都好。
+
+*****
+
+####  cxj649  
+##### 23265#       发表于 2025-2-14 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428311&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-14 23:49</a>
+
+说得不好听，但你在这楼里说这个的话，那你爸能跟母鸡卡共振了呀，母鸡卡也觉得反正看医生也不一定有用的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是这是现实和短视频有不少了
+
+而且你说现实就是，看医生=永久退场
+

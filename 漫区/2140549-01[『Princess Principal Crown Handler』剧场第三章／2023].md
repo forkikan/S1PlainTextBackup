@@ -957,3 +957,19 @@ pripri-anime.jp
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  梦诗歌雪  
+##### 97#       发表于 2025-2-14 23:44
+
+<img src="https://img.saraba1st.com/forum/202502/14/234320u8ht9im71f14mi1g.png" referrerpolicy="no-referrer">
+
+<strong>3686717395079642.png</strong> (80.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 23:43 上传
+
+pv里这个画面，看着像是L和公爵做了什么交易把白鸽小队捞出来了，但她们身份已经暴露也不可能继续做间谍了吧，可能交易的条件包括让她们也帮公爵干活？
+
