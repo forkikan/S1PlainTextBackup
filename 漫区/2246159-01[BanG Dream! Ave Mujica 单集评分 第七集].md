@@ -4212,3 +4212,21 @@ CCC版的春日影全曲已经在GO动画BD下卷里发售了啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  DarkDuck  
+##### 409#       发表于 2025-2-15 00:39
+
+很好的动画，非常之搞笑的台词，还有妃那的“深情演唱”，比第五第六集有意思。至少给我逗乐了，很难不笑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  mhss  
+##### 410#       发表于 2025-2-15 00:39
+
+-2
+这饺子包的，我的大脑和耳朵都受到了严重伤害<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

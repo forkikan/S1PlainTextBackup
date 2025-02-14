@@ -12123,3 +12123,150 @@ mujica是狗屎动画，但还是喜欢这部动画。
 
 即使现在也不少人说观感还行的
 
+
+*****
+
+####  zhzij111  
+##### 23288#       发表于 2025-2-15 00:37
+
+ 本帖最后由 zhzij111 于 2025-2-15 00:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428428&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:10</a>
+感觉自己要分裂了。
+
+mujica是狗屎动画，但还是喜欢这部动画。
+
+刚看完第七话觉得go团成员的行动符合逻辑，转 ...</blockquote>
+演出来的效果就是爽姐一回c团笑嘻嘻，一到狗团就摆臭脸，很难不让人觉得她双标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moras2694  
+##### 23289#       发表于 2025-2-15 00:37
+
+战吧伟大。我同意mujica目前的整体的水平低，但没一点可取之处的片我是会果断弃番不看的，从追番角度上，我还是很想看完的。现在只有看战吧能有看笑的帖子了，其他全是荒芜。
+
+*****
+
+####  圣血天使  
+##### 23290#       发表于 2025-2-15 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427980&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-14 23:04</a>
+其实不是说爱音做的事情不对不好有问题，而是明明祥子一直在犯罪但有人排着队哄，而爱音还必须做正确的事情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前两集的时候我就说了，前几集的母鸡卡就是陪大小姐过家家，祥子才是真玛丽苏级的女主啊
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  ccared  
+##### 23291#       发表于 2025-2-15 00:38
+
+<blockquote>玖羽 发表于 2025-2-14 22:24
+不如反过来说，如果有人真的相信给朋友十分钟彻底解决对她来说真的很重要的问题，以及几个短信没回，这个 ...</blockquote>
+现代人如何界定亲密关系属于超纲的课题了，在这番里也用不上讨论这么深。
+
+抓着什么不回消息讨论只是观众不安感爆发的体现，这一点上你日和闹钟不存在文化差异，甚至日本观众应该更能理解，毕竟不说各种x上的地雷妹段子，因为职场上既読スルー就认为对方パワハラ也不少。
+
+根本分歧还是很多日本观众能理解“带货片为什么要这么拍”，他们的预期不一样，先天就能接受作为带货片的一些机械降神。日本人眼里狗只是企划众多商品中的一个，啊这么一集原来是wsd想卡着角色生日卖ccc了，那光速和解拍个ccc团聚挺好的，拍的感人点就给我一个买c团谷的理由，剧情逻辑严谨什么的没那么重要。
+
+就像骑士里二骑的最终形态。二骑刚吃了一整集个人回的塑造拿出的最终形态，下一集光速被新怪人打至跪地闭眼张口——这剧情符合逻辑吗？符合人物塑造曲线吗？都不符合，但大家都前置的理解了万代前一个单人回只是想卖玩具，骑士棚一直就是这么拍的，所以不会计较。特摄也会为了配套宣传和节日调整剧情，都是商业企划的一部分怎么好卖玩具怎么来，剧情逻辑能有圣诞商期重要？
+
+但是这种剧情设置对于二骑过激单推就属于纯喂屎，她们可能有理有据，但她们的不满在别人眼中属于发神经。
+
+其实刚播完第七集go团推还没有这么不安感爆发，在隔壁lga的高赞回复认为两个人推脱回爱音短信是素在捉弄立希的解读。但wsd在场外拿着大喇叭喊我们要卖ccc后，go团推的不安感神经就断了，他们压根没想过ccc能被拿出来卖live，甚至还不是期限复活的彩蛋。于是他们开始追着细节让自己的不安共振，觉得你怎么能把c团复活带货c团呢？他们认知的合理只基于剧情，会认为你拍出来剧情逻辑一坨演出一坨那c团复活到底合理在哪？但企划观众接受起来没难度。
+
+闹钟引来的新观众确实是大张旗鼓把鸡狗当文艺作品看的，没理解这片是个带货片。
+
+*****
+
+####  z-hunter  
+##### 23292#       发表于 2025-2-15 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428475&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:17</a>
+
+考虑到场外，这段是除了live外最让我破防的部分。我看的时候是真心觉得就是在调侃，无论素世还是立希，两 ...</blockquote>
+这只是个人感受不同而已。因为每个人的着眼点，在意点都是不同的，所以对剧情的理解也不同
+
+要怪就怪编剧惜字如金，但凡素世对立希多调侃一句“你翘了彩排快赶不上了对不起爱音吗”，一切就都通了。
+
+但编剧非要你去感受这个场景，去理解。然后就搞砸了
+
+其实不用太在意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 23293#       发表于 2025-2-15 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428475&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:17</a>
+考虑到场外，这段是除了live外最让我破防的部分。我看的时候是真心觉得就是在调侃，无论素世还是立希，两 ...</blockquote>
+因为在手游里提现的也都是Go团几个人私下并不熟，完全不是邦邦其他团里那种放学后好闺蜜的关系<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23294#       发表于 2025-2-15 00:40
+
+<blockquote>cxj649 发表于 2025-2-15 00:34
+这样的话以后补番人观感会还行吧
+
+即使现在也不少人说观感还行的</blockquote>
+我转生白祥厨了 白祥去哪我看哪 太无敌了 十五年大女主藏到第二十集 真有你的
+
+*****
+
+####  南宮凝香  
+##### 23295#       发表于 2025-2-15 00:41
+
+<blockquote>MuramasaSP 发表于 2025-2-15 00:17
+考虑到场外，这段是除了live外最让我破防的部分。我看的时候是真心觉得就是在调侃，无论素世还是立希，两 ...</blockquote>
+你要考慮到這是這季7集內第三次拿愛音的電話/短訊來當調侃對象了
+
+第二集立希掛電話
+
+第六集素世不回短訊
+
+然後是這集
+
+調侃跟冷暴力本來就一線之隔
+
+受得了就是調侃
+
+受不了就不是調侃
+
+
+*****
+
+####  圣血天使  
+##### 23296#       发表于 2025-2-15 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428493&amp;ptid=2208921" target="_blank">ubox 发表于 2025-2-15 00:19</a>
+已经有了
+
+【Mujica/MAD】千早爱音的「嘉宾」也许是另一种「素命」MyGO误解向 https://www.bilibili.com/v ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回复完就在B站看到了，只能说剧情我理解，爱音是真心疼
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  z-hunter  
+##### 23297#       发表于 2025-2-15 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427654&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-14 22:22</a>
+
+所以手游里爱音生日立希特殊语音说得知今天是爱音生日烦死了早点跑路是因为真不熟是吧 ...</blockquote>
+所以这就是日式样板戏不得不尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">领导（导演）下了个命令说这个乐团成员间的感情不太好，一有好一点的苗头就给我写坏一点，然后下面写手就只能样板戏了。
+
+其实邦邦游戏里这种剧情多不胜数，看多了也就习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  青椒猪肝饭  
+##### 23298#       发表于 2025-2-15 00:48
+
+the first take 出来了，如果是这版的话。。。。
+[https://www.bilibili.com/video/BV1J3KMeFEtg](https://www.bilibili.com/video/BV1J3KMeFEtg)
+
