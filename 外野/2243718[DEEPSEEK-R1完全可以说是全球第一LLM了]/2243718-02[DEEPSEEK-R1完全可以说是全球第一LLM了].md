@@ -4319,3 +4319,32 @@ d老师写现代诗不如写词，意象堆砌不凝练，思想情感的差点�
 DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
 aider之前那篇博文吧，功能已经上线快两个礼拜了
 
+
+*****
+
+####  moekyo  
+##### 1859#       发表于 2025-2-14 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427037&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-14 21:13</a>
+
+联网内容插件的最大参考资料Token数、引用条数要设置多少比较合适？按你的设置每月联网免费额度两万次大 ...</blockquote>
+每个人用的情况都不一样，不能一概而论吧，这个搜索本身是按照次数来的，每月两万次，应该很难超过吧，唯一要看就是别烧完token了
+
+<img src="https://img.saraba1st.com/forum/202502/14/223736gwlpjjhlezgh88rx.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-14 at 22.37.25.png</strong> (63.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 22:37 上传
+
+而且还能根据这个分析做调整
+
+<img src="https://img.saraba1st.com/forum/202502/14/224139p7z8bzet821eeecq.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-14 at 22.41.26.png</strong> (506.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 22:41 上传
+
