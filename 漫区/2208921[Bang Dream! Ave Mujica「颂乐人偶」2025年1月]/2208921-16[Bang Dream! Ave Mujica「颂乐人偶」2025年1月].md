@@ -11293,3 +11293,96 @@ emmm。。。首先母鸡卡的剧情必须由作为母鸡卡发起者的祥子�
 
 sumimi注定会有一场离别戏，我只希望到时候别成闹麻了就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 23211#       发表于 2025-2-14 22:50
+
+換到現實這事很容易解決
+
+找個下午在天文部對燈撒半天嬌就能回血
+
+問題這是動畫
+
+我信愛燈的關係性
+
+我不信WSD
+
+*****
+
+####  嵇翱u  
+##### 23212#       发表于 2025-2-14 22:50
+
+现在wsd场外给人的感觉就是动画里虽然死了，但是现实还是可以拉起来卖钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然不知道wsd怎么想的，没有新角色只是多了个新团的名头就能让鸡狗团的人掏钱吗，还是真的社内亲女儿，即使没有未来也要给最好的当下
+
+*****
+
+####  是谁的书画  
+##### 23213#       发表于 2025-2-14 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427869&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-14 22:50</a>
+
+现在wsd场外给人的感觉就是动画里虽然死了，但是现实还是可以拉起来卖钱的
+
+虽然不知道wsd怎么想的，没有新 ...</blockquote>
+这是我觉得wsd最÷的。
+
+你要一个人死，就应该让他安安静静的下地里去。
+
+不要打扰一个死者安息。
+
+以后三天两头挖坟摆弄尸体算是什么恋尸癖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raii  
+##### 23214#       发表于 2025-2-14 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427869&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-14 22:50</a>
+
+现在wsd场外给人的感觉就是动画里虽然死了，但是现实还是可以拉起来卖钱的
+
+虽然不知道wsd怎么想的，没有新 ...</blockquote>
+很明显现实卖钱比13话广告片能卖得多得多，连蓝光都只有上下两部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卖不过爱马仕拉拉只是动画不会做角色不会捏的问题？它连歌也难听啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Laie  
+##### 23215#       发表于 2025-2-14 22:55
+
+听完the first take版的春日影释然了，于此觅得closure，属于mygo那段观影体验的finality
+
+动画里头上一次对系列续作有这种从期待到忧惧再到漠然的鲜明起伏，想想好像还是e7
+
+不过e7是时间跨度极大且遍历剧场版、续作、新译剧场版三部曲甚至还带小钢珠特典映像补完的full course
+
+*****
+
+####  kenganmian  
+##### 23216#       发表于 2025-2-14 22:55
+
+听完tft版的春日影，和解了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+那年的春光如此绚烂，以至于我们都把它当做是命运。如今想想，那只是一支五个人组起来的，普普通通的乐队啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 23217#       发表于 2025-2-14 22:57
+
+希望小睦头接下来能幸福，编剧别折磨她了
+
+*****
+
+####  GBLMikuHatsune  
+##### 23218#       发表于 2025-2-14 22:57
+
+重新翻了翻往期TFT，封面直接有二次元人物和配音的比较近的也就喜多了，不要真人的话再加个星街彗星
+
+wsd这同步烂炒真没少给索尼那边卖勾子吧，一想到人索尼这边这么专业，🐏唱的这么认真，结果最重要的自家的动画里柿本做成那B样我就难受<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
