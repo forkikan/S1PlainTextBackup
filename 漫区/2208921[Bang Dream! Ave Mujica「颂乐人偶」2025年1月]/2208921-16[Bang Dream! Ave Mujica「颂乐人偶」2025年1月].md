@@ -7323,3 +7323,89 @@ mortis本来也不是为了欺负而欺负，她也是想保护小睦嘛
 
 一見和解，立刻想到重組C團，立刻想到音啪，立刻想到推屁股，立刻想到被退隊，立刻想到回英國。人的想像惟在這一層能夠如此躍進。
 
+
+*****
+
+####  zhoujin8584  
+##### 22857#       发表于 2025-2-14 16:14
+
+<blockquote>huxiaopao163 发表于 2025-2-14 15:47
+我和解了，我感觉得我根本没有必要和其他人一样那么纠结。。。
+
+我只是单纯喜欢大莫老师罢了，这集大莫老师 ...</blockquote>
+我睦老师又何尝不是盛世美颜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/14/161328xcjscaw33ww8b94d.png" referrerpolicy="no-referrer">
+
+<strong>37981717395206742.png</strong> (101.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 16:13 上传
+
+*****
+
+####  dqtql  
+##### 22858#       发表于 2025-2-14 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424426&amp;ptid=2208921" target="_blank">无事忙 发表于 2025-2-14 16:05</a>
+
+为什么这段话又真情实感又二次元味扑鼻
+
+是不是哪里来的定型文</blockquote>
+就是母鸡卡第七集唱春日影时每个人内心独白的改写啊
+
+
+*****
+
+####  白色有角  
+##### 22859#       发表于 2025-2-14 16:21
+
+Crychic是普通的乐队
+
+没有命中注定的永远在一起，没有一个风光大葬的live，没有挤满场地的观众。
+只有人生中的一个月，只有彩排中两首歌的时间，只有几个捧场的熟人。
+这也挺好的。
+
+CRYCHIC的和解不是彼此之间的和解，是各自与那个认为CRYCHIC过于美好，与众不同的自己和解。
+这个普通的乐队最后的演出有些许仓促和缺憾，也不能解决大家仍有的问题，它只是给过去的那段时日彻底画上了一个不圆满的句号罢了。
+属于CRYCHIC的故事就到这里了。
+
+*****
+
+####  cherryjia12  
+##### 22860#       发表于 2025-2-14 16:21
+
+独角兽这话就很明确了吧，剧本是我写的，但后面成品的制作我没参与。
+当然这大纲独角兽想甩锅肯定是甩不干净的。
+
+
+*****
+
+####  挺好的  
+##### 22861#       发表于 2025-2-14 16:24
+
+真要分锅怎么看都是身为导演的柿本的锅最大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  启叔  
+##### 22862#       发表于 2025-2-14 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424134&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-14 15:41</a>
+
+切割就不粘锅，那我是不是要信有幻之里阿贝母鸡卡？别和前几集狂假药给剧情找补一样 ...</blockquote>
+关键是独角兽就第一集的脚本而且第一集的脚本有两位，虽然是系构感觉也是挂名了。
+
+*****
+
+####  dqtql  
+##### 22863#       发表于 2025-2-14 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424593&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-14 16:21</a>
+
+独角兽这话就很明确了吧，剧本是我写的，但后面成品的制作我没参与。
+
+当然这大纲独角兽想甩锅肯定是甩不干 ...</blockquote>
+背个次锅吧，主锅是想炒作想疯了的武士道
+
