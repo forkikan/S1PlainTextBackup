@@ -11865,3 +11865,61 @@ anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推�
 
 而且你说现实就是，看医生=永久退场
 
+
+*****
+
+####  Суслов  
+##### 23266#       发表于 2025-2-14 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428275&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-14 23:44</a>
+对啊，突破5人限制，就完事了</blockquote>
+7人乐队致敬林纳德斯金纳德，这下可以爽弹free bird了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 23267#       发表于 2025-2-14 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427978&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-2-14 23:04</a>
+
+说实话，我都有跟了巨人9年然后突然告诉我艾伦亲手指挥他马被吃这种经历了，对什么草蛇灰线什么剧情合理性 ...</blockquote>
+按理说，回短信这段是一个CP调情片段，但是前面描写太像冷暴力了
+
+还有个问题是这动画是3D的，其他作品这种会弄个Q版来消退不适感，这里太真实了像是真的不回信息
+
+
+*****
+
+####  Lyzers  
+##### 23268#       发表于 2025-2-15 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428335&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-14 23:53</a>
+
+主要是这是现实和短视频有不少了
+
+而且你说现实就是，看医生=永久退场
+
+而且治疗办法就片中那样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦原来已经治好了啊，那就更说明做对了
+
+*****
+
+####  杂灰  
+##### 23269#       发表于 2025-2-15 00:03
+
+我觉得回短信那段的意思其实是，立希鸽练习“犯错”了想要“逃避”所以不想回消息，soyo也同样，在祥子面前展现逃避的想法来接纳她，但是有点太绕了
+
+*****
+
+####  cxj649  
+##### 23270#       发表于 2025-2-15 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428369&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-15 00:02</a>
+
+哦原来已经治好了啊，那就更说明做对了</blockquote>
+主要是按现实所谓家长的尿性通常不承认子女非暴力的一些精神问题的
+
+木头人那样治疗方式就爽猫就样<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
