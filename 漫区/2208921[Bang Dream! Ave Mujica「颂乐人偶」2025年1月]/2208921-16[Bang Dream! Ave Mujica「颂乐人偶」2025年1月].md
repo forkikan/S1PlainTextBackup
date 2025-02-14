@@ -11467,3 +11467,110 @@ wsd这同步烂炒真没少给索尼那边卖勾子吧，一想到人索尼这�
 我还是坚信大象老师的判断：这个阵容，可谓坚如磐石。。。。把 ...</blockquote>
 柿本：你的幻想，就由我来打破！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 23227#       发表于 2025-2-14 23:08
+
+我只想看睦祥莫整活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  capraeLinn  
+##### 23228#       发表于 2025-2-14 23:10
+
+回消息需要犹豫和长考不是很正常嘛，特别是自己还稍微做错了一点的时候<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+我要放立希那个位置上肯定也不知道怎么回消息，这时候肯定希望别人来帮忙回一下的，怎么成冷暴力了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 23229#       发表于 2025-2-14 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427980&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-14 23:04</a>
+
+其实不是说爱音做的事情不对不好有问题，而是明明祥子一直在犯罪但有人排着队哄，而爱音还必须做正确的事情 ...</blockquote>
+剧情设置对大祥到现在都是搞两级分化式的推动，要么通过彰显黑祥的性格问题再通过谁谁谁或者结局的失败来拷打其本人，要么就是故交们拼命的施舍（因为大祥太谷底了，很多帮助都客观上看起来像施舍了），于是这种两级描写很容易炸出这样或那样的愤怒，这也算是独角兽和柿本应得的后果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 23230#       发表于 2025-2-14 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428009&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-14 23:08</a>
+我只想看睦祥莫整活
+
+—— 来自 鹅球 v3.3.96</blockquote>
+会有的，一专都有莫的小垃圾了。
+
+*****
+
+####  DeltaStriker  
+##### 23231#       发表于 2025-2-14 23:12
+
+实际上b站评分已经不止7.5分了 贴吧有人看后台数据 am的实际评分已经来到6.4_6.5左右了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ashero  
+##### 23232#       发表于 2025-2-14 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427922&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-14 22:58</a>
+
+希望接下来鸡团平安收个尾就行，不求什么大活了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸡团才是真正的大活呢 什么声优访谈丰川家黑暗 包给你整个爆的
+
+*****
+
+####  是谁的书画  
+##### 23233#       发表于 2025-2-14 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428020&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-14 23:10</a>
+
+回消息需要犹豫和长考不是很正常嘛，特别是自己还稍微做错了一点的时候
+
+我要放立希那个位置上肯定也不知道 ...</blockquote>
+这没道理的，又不是发消息和你打情骂俏，是在催你马上就要live了。这你不回她不回的会不会很不合适啊😅
+
+连这时候都不想鸟爱音我觉得不是很好啊。
+
+*****
+
+####  aptx8285144  
+##### 23234#       发表于 2025-2-14 23:15
+
+话说邦邦历史上真有连续两话都不出场的主唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，虽然戏份少也不一定是坏事（
+
+*****
+
+####  爱莉希雅  
+##### 23235#       发表于 2025-2-14 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">母鸡卡能不能和蛟龙行动一起撤档滚回去重制
+
+*****
+
+####  dqtql  
+##### 23236#       发表于 2025-2-14 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428046&amp;ptid=2208921" target="_blank">ashero 发表于 2025-2-14 23:14</a>
+
+鸡团才是真正的大活呢 什么声优访谈丰川家黑暗 包给你整个爆的</blockquote>
+当时声优访谈里说会有丰川家的黑暗，我真的忍不住想后面不会真有jk斗财阀的情节吧
+
+*****
+
+####  findpkq  
+##### 23237#       发表于 2025-2-14 23:18
+
+anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推舟的
+
+搞不懂的是这话开场拉人一起翘课尾随就是为了给莫老师念电影台词现场凑够人头吗<img src="https://static.saraba1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
+
