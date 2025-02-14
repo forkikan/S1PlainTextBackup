@@ -12270,3 +12270,31 @@ mujica是狗屎动画，但还是喜欢这部动画。
 the first take 出来了，如果是这版的话。。。。
 [https://www.bilibili.com/video/BV1J3KMeFEtg](https://www.bilibili.com/video/BV1J3KMeFEtg)
 
+
+*****
+
+####  南宮凝香  
+##### 23299#       发表于 2025-2-15 00:50
+
+<blockquote>ccared 发表于 2025-2-15 00:38
+现代人如何界定亲密关系属于超纲的课题了，在这番里也用不上讨论这么深。
+
+抓着什么不回消息讨论只是观众 ...</blockquote>
+換另一個角度來說，
+
+WSD 把2.5 次元的偶像當膠來賣
+
+那真爆死了也是活該
+
+*****
+
+####  ddy2811  
+##### 23300#       发表于 2025-2-15 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428697&amp;ptid=2208921" target="_blank">青椒猪肝饭 发表于 2025-2-15 00:48</a>
+
+the first take 出来了，如果是这版的话。。。。
+
+https://www.bilibili.com/video/BV1J3KMeFEtg ...</blockquote>
+换这版治标不治本，甚至连标都不一定治得好，因为春日影基本被内心戏的念白给盖住了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
