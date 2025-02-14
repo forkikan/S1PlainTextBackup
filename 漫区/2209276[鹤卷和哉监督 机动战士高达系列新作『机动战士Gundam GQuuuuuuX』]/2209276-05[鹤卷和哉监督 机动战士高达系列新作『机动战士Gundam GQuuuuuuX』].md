@@ -13070,3 +13070,23 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 不过吉翁那边的最强反派估计会拿出对标gqx，搭载奥米加塞可缪仿制品的新锐机
 
+
+*****
+
+####  西人  
+##### 6929#       发表于 2025-2-14 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">羚邦发了4v2月27日上的，港澳戏院还没见有可以买票的
+
+
+*****
+
+####  oi99o  
+##### 6930#       发表于 2025-2-14 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420542&amp;ptid=2209276" target="_blank">西人 发表于 2025-2-14 10:18</a>
+羚邦发了4v2月27日上的，港澳戏院还没见有可以买票的</blockquote>
+不急，港澳大部分都是提前一两天才出排片放票的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

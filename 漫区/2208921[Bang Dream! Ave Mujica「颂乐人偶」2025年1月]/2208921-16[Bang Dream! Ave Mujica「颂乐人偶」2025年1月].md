@@ -3564,3 +3564,130 @@ AD1E6C9869309A00E50F67256ED3ABCC.jpg
 
 感觉还可以贷款一集，前四集解散篇，中三集 c 团篇，就当前七集是交代背景，或者说献祭的，紧赶慢赶是为了给🐔团真真正正成立腾集数，还有 6 集，最多给🐶团 1 集，还有 5 集。接下来的一集头要是没开好，建议粉丝（还有吗？）可以直接备战剧场版了
 
+
+*****
+
+####  坚挺水表君  
+##### 22521#       发表于 2025-2-14 10:18
+
+本人立场略微偏向go团推，我觉得这集虽然问题不小但也不是完全无法接受，至少CCC终于不再是乌云了
+
+*****
+
+####  595505568  
+##### 22522#       发表于 2025-2-14 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420480&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 10:11</a>
+有没有可能大祥轮椅本来是睦，为了包ccc的饺子强行二重人格了。我这种祥睦党看到睦二重人格就好像看到勇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦有行动力了还是两面睦立马启动了，不是因为两把轮椅都去mygo了所以人体炼成了一把？
+
+*****
+
+####  北条早苗  
+##### 22523#       发表于 2025-2-14 10:21
+
+1-4和6-7在氛围上也是严重割裂的，这集大祥直接给大伙翻译睦言睦语，不开心=我吉他太菜了
+既然大祥自带睦头语翻译器，黑刀之夜失言成了睦头的ptsd，大祥还来压力睦头为什么不帮自己说话，整个第三集的演出太变态了
+
+
+*****
+
+####  08df1258c5ed098  
+##### 22524#       发表于 2025-2-14 10:22
+
+不如说让羊姐唱得稀巴烂真是高明，知道的是还有一锅饺子要包，不知道还以为生怕效果太好哭团真幽而复明呢
+
+*****
+
+####  结衣小比取  
+##### 22525#       发表于 2025-2-14 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420253&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:51</a>
+
+祥子那点事闹得现在大家都知道了就是也没事啊，说不定那天睦不说那句话+soyo再强硬一点，直接就没有MyGO母 ...</blockquote>
+立希提到听Soyo说过的时候，祥子明显还是咯噔了一下，不过还好立希没说什么风凉话
+
+<img src="https://img.saraba1st.com/forum/202502/14/102207lrmghnjzjun3mh4d.png" referrerpolicy="no-referrer">
+
+<strong>截图323242.png</strong> (956.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 10:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/102206t84n3543gnj4jpct.png" referrerpolicy="no-referrer">
+
+<strong>截图3442342.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 10:22 上传
+
+*****
+
+####  江口夕  
+##### 22526#       发表于 2025-2-14 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420534&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-14 10:17</a>
+红发女人虽然退团结婚当皮套主播，但她真的是和平分手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团员和平分手不代表观众也和解，把早期roselia切割的和把现在roselia切割的是尿不到一壶的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  枪聆弹语  
+##### 22527#       发表于 2025-2-14 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以舅舅说看你们后面还怎么跳到底是什么意思
+
+*****
+
+####  595505568  
+##### 22528#       发表于 2025-2-14 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420595&amp;ptid=2208921" target="_blank">枪聆弹语 发表于 2025-2-14 10:23</a>
+所以舅舅说看你们后面还怎么跳到底是什么意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心死了，蹦哒不起来了
+
+*****
+
+####  qlipho  
+##### 22529#       发表于 2025-2-14 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420576&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-14 10:21</a>
+
+1-4和6-7在氛围上也是严重割裂的，这集大祥直接给大伙翻译睦言睦语，不开心=我吉他太菜了
+
+既然大祥自带睦头 ...</blockquote>
+武道馆真是太坏了，直接猛灌洗点药
+
+*****
+
+####  JustW  
+##### 22530#       发表于 2025-2-14 10:26
+
+<blockquote>结衣小比取 发表于 2025-2-14 10:22
+立希提到听Soyo说过的时候，祥子明显还是咯噔了一下，不过还好立希没说什么风凉话
+
+ ...</blockquote>
+我见过对祥子心理最好的解释是爱睦灵魂交换二创里的，大意就是祥子内心知道队友知道了也不会嘲笑自己只会同情安慰自己，但因此更不想让她们知道。要是还能认为队友会说风凉话，那就有点太不了解和信任别人了。
+
+*****
+
+####  江口夕  
+##### 22531#       发表于 2025-2-14 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420566&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 10:20</a>
+睦有行动力了还是两面睦立马启动了，不是因为两把轮椅都去mygo了所以人体炼成了一把？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常小说睦当主角被女主喷应该去仰卧起坐，哪有被别人上号的，又不是黄毛ntr小说
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  JustW  
+##### 22532#       发表于 2025-2-14 10:28
+
+说到这儿感觉现在真不如爱睦灵魂交换吧，从女女关系来讲
+
