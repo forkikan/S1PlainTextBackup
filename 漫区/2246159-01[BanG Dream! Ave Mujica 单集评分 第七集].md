@@ -3421,3 +3421,23 @@ wsd为了炒热度把该有的crythic第二季直接压缩一半。
 和mygo时期差别好大
 感觉像是压缩过一样
 
+
+*****
+
+####  你妈的为什么  
+##### 340#       发表于 2025-2-14 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418986&amp;ptid=2246159" target="_blank">ads147147 发表于 2025-2-14 06:49</a>
+这集都能被劈的狗屁不是，真的很好奇泥潭怎么评价水团两季的最后一集还有水团剧场版的。。怎么没把花田和酒 ...</blockquote>
+拉拉动画本来就是赠品 就是不可燃垃圾也无所谓好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迎清风  
+##### 341#       发表于 2025-2-14 08:17
+
+–2
+剧情观感古怪，最后还放两首跑调版本，歌都不让人好好听
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
