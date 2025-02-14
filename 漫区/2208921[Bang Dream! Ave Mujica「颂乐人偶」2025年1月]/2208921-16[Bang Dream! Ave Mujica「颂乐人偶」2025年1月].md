@@ -8847,3 +8847,60 @@ C团大和解只是给了睦祥重新前进的“勇气？”
 
 （手游不会以后给狗也整点烂活突发恶疾搞事业吧）
 
+
+*****
+
+####  せきぼく  
+##### 22997#       发表于 2025-2-14 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426062&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 19:06</a>
+
+邦二属于是我这个非老团粉也感觉RAS这个点子太“勇敢”了，戏外要捧、戏内还要威胁老团到这种地步，但RAS的 ...</blockquote>
+邦动画多人调度（和live）这块一直是强项。有期CGWORLD邦邦特集就是35人封面，里面有讲一点LO设计，怎么从角色表情动作体现个性和关系性的。
+
+mygo虽然没老邦那么多人，不过4 7 11几场多人戏都拍得不错的。鸡这几集看下来不知道怎么就这么灾难了，感觉经常顾此失彼。
+
+*****
+
+####  595505568  
+##### 22998#       发表于 2025-2-14 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426458&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-14 20:05</a>
+灯只能说电波系的人时候做什么你也没办法搞明白（）虽然立希一直以为灯在写新歌结果是给祥子写的新版成人歌 ...</blockquote>
+我现在唯一的念想是mujica主线里能不能<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，能不能不要再出现第七话这种毛毛躁躁毁人设弧光的部份了，太恶习了
+
+*****
+
+####  zhoujin8584  
+##### 22999#       发表于 2025-2-14 20:11
+
+这两季少女乐队的本质就像是给少女们提供了一个家庭外的栖身之所，能承载内心的呐喊的新家，如果不包原生家庭饺子，其实反而能保住底线
+
+*****
+
+####  烂片雷达  
+##### 23000#       发表于 2025-2-14 20:11
+
+看来以前拍的好都是独角兽的功劳，独角兽一走演出就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  127  
+##### 23001#       发表于 2025-2-14 20:12
+
+<blockquote>烂片雷达 发表于 2025-2-14 19:31
+祥子这个扭头是认真的吗，真不能怪大家瞎联想，活脱脱就是一副要被那啥了的模样
+
+ ...</blockquote>
+祥，移动
+
+*****
+
+####  DeltaStriker  
+##### 23002#       发表于 2025-2-14 20:12
+
+原生家庭饺子想想都知道没法包 除非编剧能写出乐队其他人一起嘴别人爹妈的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
