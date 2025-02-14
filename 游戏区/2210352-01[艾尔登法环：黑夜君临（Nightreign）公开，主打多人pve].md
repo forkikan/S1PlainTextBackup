@@ -2195,3 +2195,11 @@ ps有人连上的吗
 这游戏在泥潭专楼层数这么少，盖楼这么慢，感觉大概率要钉在魂系耻辱柱上，已经迫不及待的想看乐子了！ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为根本没几个人连上吧，云了半小时感觉唐完了
 
+
+*****
+
+####  wsktcy  
+##### 241#       发表于 2025-2-14 22:16
+
+和朋友联机了一晚上凶盒平台的，感觉烂完了已经<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
