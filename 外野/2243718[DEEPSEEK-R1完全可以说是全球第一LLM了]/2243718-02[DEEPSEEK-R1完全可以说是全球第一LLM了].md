@@ -4211,3 +4211,29 @@ DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k
 火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
 模型你用的啥？
 
+
+*****
+
+####  xell2alex  
+##### 1849#       发表于 2025-2-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425527&amp;ptid=2243718" target="_blank">colice 发表于 2025-2-14 17:52</a>
+火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
+调温度了吗，那个调了会报错
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  jf8350143  
+##### 1850#       发表于 2025-2-14 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421372&amp;ptid=2243718" target="_blank">dllplayer 发表于 2025-2-14 11:28</a>
+我宣布OA大胜DS..美国大赢特赢</blockquote>
+还是不太行。
+
+ds的甲很薄，用api基本随便破甲。但是ds便宜啊，open ai那api价格可太凶残了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

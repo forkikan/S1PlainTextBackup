@@ -1110,3 +1110,28 @@ fps被称为action games从doom时代就开始了吧，之前考古过一些纸�
 
 FF7rb连入围都没有，是因为非原创吗？
 
+
+*****
+
+####  日日日日日野  
+##### 100#       发表于 2025-2-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425100&amp;ptid=2210743" target="_blank">outerish 发表于 2025-2-14 17:11</a>
+
+还真让小机器人拿了技术奖
+
+比较搞笑的是地狱潜兵拿最佳音乐，主题曲是很抓耳拉，不过也没好到最佳吧
+
+FF7rb ...</blockquote>
+rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过去，原创优先吧
+
+*****
+
+####  青色精灵の最期  
+##### 101#       发表于 2025-2-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424786&amp;ptid=2210743" target="_blank">自演乙. 发表于 2025-2-14 16:40</a>
+
+习惯就好，说这些逼话的人甚至可能都不玩游戏，只是想趁机骂一下宇宙小机器人，你看智慧的再现也被tga提名 ...</blockquote>
+搞不好索尼就是被骂的太多，才越来越火。前单位部门领导口头语，让他们骂去，越骂咱越顺，一咒十年旺。你看XBOX，大家都是赞誉有加，结果奶死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
