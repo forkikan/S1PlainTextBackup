@@ -4278,3 +4278,16 @@ DeepSeek 更新官方 Prompt 最佳实践<img src="https://static.saraba1st.com/
 火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
 听起来像是模型id没填对位置
 
+
+*****
+
+####  zerona  
+##### 1855#       发表于 2025-2-14 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425831&amp;ptid=2243718" target="_blank">小野賢章 发表于 2025-2-14 18:33</a>
+
+https://github.com/deepseek-ai/DeepSeek-R1?tab=readme-ov-file#official-prompts
+
+DeepSeek 更新官方 Pr ...</blockquote>
+官方的能破甲？
+
