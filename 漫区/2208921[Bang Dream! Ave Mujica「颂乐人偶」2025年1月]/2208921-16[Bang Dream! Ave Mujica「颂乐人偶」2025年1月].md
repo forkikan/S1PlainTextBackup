@@ -3037,3 +3037,200 @@ c团和狗性质倒也差不多。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22469#       发表于 2025-2-14 09:45
+
+话说如果最后鸡团回归学生业余团，她们那个风格的歌在ring里演出有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 22470#       发表于 2025-2-14 09:46
+
+ 本帖最后由 江口夕 于 2025-2-14 09:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼只有我觉得下面是大祥无双爽文了么，主角都三件套了你们还担心包不包的成。
+搁异世界爽文，主角现在都拿圣剑了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  哈曼的YY  
+##### 22471#       发表于 2025-2-14 09:46
+
+ 本帖最后由 哈曼的YY 于 2025-2-14 09:48 编辑 
+
+串门数第一的含金量
+
+海玲一直没有家和父母描写也是为了铺垫这集不爽了吗
+
+<img src="https://img.saraba1st.com/forum/202502/14/094435jccc01kcxhbxj1x9.png" referrerpolicy="no-referrer">
+
+<strong>UX1D@CMA2FQ5L2T7KH5}9@J.png</strong> (76.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 09:44 上传
+
+*****
+
+####  Lyzers  
+##### 22472#       发表于 2025-2-14 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我看泥楼对鸡有信心的不都挺喜欢代入角色预测剧情的吗，怎么现在指导意见又变成不要代入角色预测剧情了
+
+*****
+
+####  mye  
+##### 22473#       发表于 2025-2-14 09:47
+
+说到底都怪观众，观众滑坡还是太慢了更不上编剧的进度，不然怎么会破防呢
+
+*****
+
+####  Ferrari  
+##### 22474#       发表于 2025-2-14 09:48
+
+一觉醒来，群里的大家都回过神来突然意识到
+比起c团闪电和解唱劈春日影
+送黄瓜这段剧情才是最神的
+
+完全莫名其妙只为对偶而生
+甚至soyo找的袋子都和之前拒收时完全一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 22475#       发表于 2025-2-14 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">苦来兮苦解散本来就是谜语人带来的一场误会
+在爱音看来都是小事
+一集就能演完的事
+
+*****
+
+####  ml1642879  
+##### 22476#       发表于 2025-2-14 09:48
+
+校内乐队
+主唱有点内向，和韩国有不解之缘
+前成员大吵一架解散了
+
+原来邦多利是在致敬LINDA LINDA LINDA啊
+
+
+*****
+
+####  六道明  
+##### 22477#       发表于 2025-2-14 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420182&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-14 09:46</a>
+
+我看泥楼对鸡有信心的不都挺喜欢代入角色预测剧情的吗，怎么现在指导意见又变成不要代入角色预测剧情了 ...</blockquote>
+因为现在没信心了，只能给wsd不停找补，维持对后期剧情止跌回升的期望
+
+*****
+
+####  萌二  
+##### 22478#       发表于 2025-2-14 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420166&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-14 09:45</a>
+话说如果最后鸡团回归学生业余团，她们那个风格的歌在ring里演出有点搞</blockquote>
+不签约随便兼任也挺好的 时不时乱交一下
+
+*****
+
+####  JustW  
+##### 22479#       发表于 2025-2-14 09:51
+
+祥子那点事闹得现在大家都知道了就是也没事啊，说不定那天睦不说那句话+soyo再强硬一点，直接就没有MyGO母鸡卡的事儿了
+
+*****
+
+####  qzfjnv  
+##### 22480#       发表于 2025-2-14 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420205&amp;ptid=2208921" target="_blank">Ferrari 发表于 2025-2-14 09:48</a>
+一觉醒来，群里的大家都回过神来突然意识到
+比起c团闪电和解唱劈春日影
+送黄瓜这段剧情才是最神的</blockquote>
+有没有可能，是上集soyo三天三夜后顺走的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  兔耳僵尸  
+##### 22481#       发表于 2025-2-14 09:54
+
+编剧这么喜欢回旋镖，为什么不去呼应爱音最后一棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 22482#       发表于 2025-2-14 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">另外我来讲个国内和日本不同的地方吧，本子那经历过你ccc团的原型，现实原型就是早期roselia。两人退出两个新人一摸一样
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  零壹贰叁  
+##### 22483#       发表于 2025-2-14 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419899&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-14 09:27</a>
+祥子被soyo锁喉这个操作，怎么说呢，应该说是导演直接指示太过火还是soyo吸取了之前抓手手没有用的教训呢。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点做的好吧
+我觉得开头的女人打架我看的是挺开心的
+还给女女关系性增加了边角料
+
+*****
+
+####  逛s1的friends  
+##### 22484#       发表于 2025-2-14 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实pjsk全员轮流拯救玉玉症团员的时候替自己推委屈的角色厨一点不比mujica少
+
+并且饺子包完没两期活动又换了个人爆还炸了团，直接干爆了活动档线，只能说烂炒确实是有流量的
+
+*****
+
+####  艾ACC  
+##### 22485#       发表于 2025-2-14 09:57
+
+<blockquote>JustW 发表于 2025-2-14 09:51
+祥子那点事闹得现在大家都知道了就是也没事啊，说不定那天睦不说那句话+soyo再强硬一点，直接就没有MyGO母 ...</blockquote>
+我也觉得，所以我更觉得这点东西演到第七集才解决，应该是有点问题的。
+
+*****
+
+####  qlipho  
+##### 22486#       发表于 2025-2-14 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420253&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:51</a>
+
+祥子那点事闹得现在大家都知道了就是也没事啊，说不定那天睦不说那句话+soyo再强硬一点，直接就没有MyGO母 ...</blockquote>
+黑刀之夜本来就没那么好圆，观众全靠催眠自己‘祥子真是太坏了’
+
+*****
+
+####  DD-963  
+##### 22487#       发表于 2025-2-14 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420205&amp;ptid=2208921" target="_blank">Ferrari 发表于 2025-2-14 09:48</a>
+
+一觉醒来，群里的大家都回过神来突然意识到
+
+比起c团闪电和解唱劈春日影
+
+送黄瓜这段剧情才是最神的</blockquote>
+soyo要上学 当保姆 排练。哪有时间再种小黄瓜啊，怕不是去菜场买的。
+
+如果不画蛇添足，改成后面几集插入几个素睦一起种小黄瓜的镜头观感能好一点。
+

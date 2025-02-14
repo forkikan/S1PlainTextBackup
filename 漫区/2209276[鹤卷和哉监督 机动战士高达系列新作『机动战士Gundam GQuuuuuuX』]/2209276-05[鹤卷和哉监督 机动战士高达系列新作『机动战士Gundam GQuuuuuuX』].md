@@ -13054,3 +13054,19 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  纪寞  
+##### 6928#       发表于 2025-2-14 09:47
+
+ 本帖最后由 纪寞 于 2025-2-14 09:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420058&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-14 09:39</a>
+
+0085就别再折腾09R这老骨头啦
+
+好歹弄点Rick Dias类似物啊。</blockquote>
+好像这次连gqx这种最新锐机都还是一代机的硬壳结构，二代机我觉得还是别想了。
+
+不过吉翁那边的最强反派估计会拿出对标gqx，搭载奥米加塞可缪仿制品的新锐机
+
