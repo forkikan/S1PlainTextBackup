@@ -8231,3 +8231,74 @@ CCC这队服搞不好是Ai画的 (
 
 <img src="https://img.nga.178.com/attachments/mon_202502/14/axw3Q2v-2baqK2hT3cSrn-sg.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 22938#       发表于 2025-2-14 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425553&amp;ptid=2208921" target="_blank">阿卵真是牛逼 发表于 2025-2-14 17:55</a></blockquote>
+大祥还说了说出口的事又不是事实，直接回撤了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 22939#       发表于 2025-2-14 17:58
+
+我已经想象到第十三集结束，全员大和解之后C团复活。
+
+手游鸡团和C团同时加入，三次元真人乐队也开始活动。
+
+以前虽然也有成员兼职多团，但并不是同一个企划下
+
+现在十人三团，这才是真正的史上最狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 22940#       发表于 2025-2-14 18:03
+
+ccc美好就美好在它回不去了，这一点还是很好理解的
+绫奈的锅是甩不掉的，鸡动画整个结构就不正常。睦门立雪解决睦祥没有问题，但这应该在第5、6集就完成了，而不是迈巴赫违约金真不熟三连之后靠爽姐抓过去，大祥整个人物弧光主动性都烂完了，连带灯祥都一股怪味，小纸条不如月之森擒拿术。在这个基础上塑造的卖狗遗老三人组，加上圣爱音助攻等于是赶着让ccc赶紧开完告别live了事，这一场live的情绪流本身就已经是烂完了
+
+*****
+
+####  一心而用  
+##### 22941#       发表于 2025-2-14 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425579&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-14 17:58</a>
+大祥还说了说出口的事又不是事实，直接回撤了。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+后面还有一句“所以我亲手结束了它。”
+然后另一位决定亲手结束这个乐队的，下场是<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MuramasaSP  
+##### 22942#       发表于 2025-2-14 18:04
+
+如果把mortis看成睦的一部分，那祥睦关系离和解还差得远。作为场外观众，我们知道mortis有独立人格，然而就和喵梦把mortis看成演技类似，祥子把mortis看成人偶。mortis把控制权交出来，可能是了解到了祥子对睦的感情不会伤害睦。祥睦莫后面还有的写。
+
+*****
+
+####  小博禹  
+##### 22943#       发表于 2025-2-14 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425553&amp;ptid=2208921" target="_blank">阿卵真是牛逼 发表于 2025-2-14 17:55</a></blockquote>
+小祥的话不重要（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  tuatha  
+##### 22944#       发表于 2025-2-14 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425357&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-14 17:33</a>
+弹吉他的一定是睦，别的不确定，希望莫小姐有活</blockquote>
+这个怎么说？既然能复刻语气体态动作，那能复刻弹吉他也不算离谱吧
+

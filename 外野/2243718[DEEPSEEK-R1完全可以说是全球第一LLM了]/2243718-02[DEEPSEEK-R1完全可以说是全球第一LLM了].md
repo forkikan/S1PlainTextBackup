@@ -4146,3 +4146,68 @@ DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fat  
+##### 1844#       发表于 2025-2-14 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423631&amp;ptid=2243718" target="_blank">xell2alex 发表于 2025-2-14 15:04</a>
+酒馆赛博文爱open ai都不是第一选择，这盘外招不灵啊</blockquote>
+哪天claude解除限制，将是酒馆最为光明的一天
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  colice  
+##### 1845#       发表于 2025-2-14 18:00
+
+没事了，搞清楚怎么弄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yhmbgm  
+##### 1846#       发表于 2025-2-14 18:02
+
+有调用天翼云息壤的api成功的吗？
+
+
+*****
+
+####  moekyo  
+##### 1847#       发表于 2025-2-14 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425527&amp;ptid=2243718" target="_blank">colice 发表于 2025-2-14 17:52</a>
+
+火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
+是按照我之前发的这个教程吗[https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)？我是按照上面来，就可以了，而且我用的还是cherry studio
+
+<img src="https://img.saraba1st.com/forum/202502/14/180230rf40fq220bb8m000.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-14 at 18.02.12.png</strong> (133.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/180355w7f66hfqeqp1fbhz.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-14 at 18.03.20.png</strong> (116.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 18:03 上传
+
+*****
+
+####  zerona  
+##### 1848#       发表于 2025-2-14 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425527&amp;ptid=2243718" target="_blank">colice 发表于 2025-2-14 17:52</a>
+
+火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
+模型你用的啥？
+

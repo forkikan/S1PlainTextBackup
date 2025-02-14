@@ -355,3 +355,11 @@
 1技能是个摆设，3技能只有1t，直接给个群30大家可能还愿意带她出来玩
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 16307#       发表于 2025-2-14 18:03
+
+今年不是活动后才能兑换巧克力，直接就能换了？
+
