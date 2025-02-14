@@ -1801,3 +1801,29 @@ MyGO在我看来优势在于切割老团降低了门槛、清新化的低气压�
 想了想，祥子为什么突然白祥，因为不用去打工了啊衣食无忧了就白了，穷才是万恶之源 ...</blockquote>
 然而这么有钱还是会被外校的不良女铜堵在校门口按在地上爆炒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷路的石头  
+##### 22352#       发表于 2025-2-14 08:01
+
+<img src="https://img.saraba1st.com/forum/202502/14/080108nlmx5o9mj9xhh1z1.png" referrerpolicy="no-referrer">
+
+<strong>1739491174203.jpeg.png</strong> (44.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 08:01 上传
+
+泽圣看完mujica第七集后，决定和普大帝和解
+
+*****
+
+####  海洋队手下mayo  
+##### 22353#       发表于 2025-2-14 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">环大陆好评可能是因为美日这些地方的宅宅依然迷信自恋式的情感解决一切问题 所以不论其他矛盾的逻辑怎么史 明面上自我迷茫、友谊与羁绊糊弄过去他们就能接受，也能解释
+
+mygo强在聪明地把戏剧矛盾设置在角色内部 没有商业vs音乐 什么演艺圈对人的异化，也没有硬去包圆“区区高中女生”无法解决的问题，所以没什么硬伤
+
