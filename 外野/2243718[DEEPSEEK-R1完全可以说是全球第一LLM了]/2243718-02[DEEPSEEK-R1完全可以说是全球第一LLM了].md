@@ -4237,3 +4237,22 @@ ds的甲很薄，用api基本随便破甲。但是ds便宜啊，open ai那api价
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  colice  
+##### 1851#       发表于 2025-2-14 18:30
+
+是chatbox的问题，不开网络增强就会报错，已经解决了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小野賢章  
+##### 1852#       发表于 2025-2-14 18:33
+
+[https://github.com/deepseek-ai/D ... le#official-prompts](https://github.com/deepseek-ai/DeepSeek-R1?tab=readme-ov-file#official-prompts)
+
+DeepSeek 更新官方 Prompt 最佳实践<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

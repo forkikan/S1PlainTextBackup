@@ -129,3 +129,82 @@ PC端的汉化甚至是开服不久的时候就有了。</blockquote>
 由手机上传
 2025-2-14 18:26 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 1084#       发表于 2025-2-14 18:35
+
+ 本帖最后由 Jamaisvu 于 2025-2-14 18:36 编辑 
+
+同步上线的新卡池是六协会李箱和浮士德HE级ego胸痛：
+
+<img src="https://img.saraba1st.com/forum/202502/14/183133ohvottuwrtj544zh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182815.jpg</strong> (270.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/183143jjkobyyobefjo4ic.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182850.jpg</strong> (182.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/183143xla1lbjaw55b8ja5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182904.jpg</strong> (190.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:31 上传
+
+沟通的艺术、社交的手腕、食人树、暗黑心理学...
+
+<img src="https://img.saraba1st.com/forum/202502/14/183143llnb8tr8rbnhi6rn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182929.jpg</strong> (189.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:31 上传
+
+看演示是三斩击技能，还有给全体队友回15理智的效果，正好代替LCCB李箱的支援被动，不影响辛泣疾变身。
+
+<img src="https://img.saraba1st.com/forum/202502/14/183214kfeaexsmz4oka6la.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_183011.jpg</strong> (207.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/183214uja00z9rmtnj9f8j.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182949.jpg</strong> (171.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/183214gwcr7cef8rfbuzcr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_183025.jpg</strong> (190.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:32 上传
+
+浮浮的胸痛，侵蚀后只剩一个头还挺惊悚的...
+

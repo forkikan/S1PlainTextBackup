@@ -2491,3 +2491,15 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 我现在觉得女神可能就在时至宝的盒子里，眼镜最后说的是人类没有打倒神，雷瓦丁计划也说了要屠神，单一个时至宝我觉得上升不到神这个地位，而且同为至宝时能召唤七骑合体的黑骑也说不过去，最后复原时至宝和召唤黑骑有可能是女神的神力
 
+
+*****
+
+####  隔壁老黄  
+##### 7745#       发表于 2025-2-14 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425686&amp;ptid=2160194" target="_blank">kanata 发表于 2025-2-14 18:11</a>
+我现在觉得女神可能就在时至宝的盒子里，眼镜最后说的是人类没有打倒神，雷瓦丁计划也说了要屠神，单一个时 ...</blockquote>
+女神可能就是个超级电脑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
