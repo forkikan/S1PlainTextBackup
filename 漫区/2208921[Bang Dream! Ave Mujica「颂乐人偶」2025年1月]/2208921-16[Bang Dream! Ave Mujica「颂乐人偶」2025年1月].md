@@ -7531,3 +7531,49 @@ ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒�
 
 京吹三这种编剧嫉妒纸片人生活太如意的典中典发言，看的人都绷不住笑。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 22877#       发表于 2025-2-14 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424794&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-14 16:40</a>
+
+想了一下，把c团的解散歌唱的这么难听是不是故意的，想表达就算重回过去，也会发现过去并没有那么美好？
+
+虽 ...</blockquote>
+我觉得是故意的，想搞点带哭腔抽泣的唱歌献给ccc葬礼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 22877#       发表于 2025-2-14 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424794&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-14 16:40</a>
+
+想了一下，把c团的解散歌唱的这么难听是不是故意的，想表达就算重回过去，也会发现过去并没有那么美好？
+
+虽 ...</blockquote>
+我觉得是故意的，想搞点带哭腔抽泣的唱歌献给ccc葬礼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 22878#       发表于 2025-2-14 16:55
+
+ 本帖最后由 JustW 于 2025-2-14 16:56 编辑 
+
+把祥子的背景设定得这么现实的那一刻起，整个剧本就有点超出编剧能驾驭的范围了，母鸡卡还有各种商业要素掺杂进来，就算企划完全放手，恐怕也只能写一个比较尴尬的故事，看点还是集中于女女关系性，只是国内观众的预期不会被抬起又跌落，前几周我在b站不止看到一个两个真心诚意认为母鸡卡会成为开创历史级别的原创神作的，这显然不是一个无论哪位从履历来看远算不得一流的团队能做到的。
+
+*****
+
+####  08df1258c5ed098  
+##### 22879#       发表于 2025-2-14 16:55
+
+只是为了推动剧情的功能性莱芜。
+为此要突出情绪，压制演出，不能喧宾夺主避免观众真的变成哭团遗老<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
