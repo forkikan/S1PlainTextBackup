@@ -435,3 +435,13 @@ PS2版的网页版本，红迪做的那个吧
 
 [Fate/Stay Night](https://fatestaynight.vnovel.org/)
 
+
+*****
+
+####  岸浪白野  
+##### 43#       发表于 2025-2-14 10:54
+
+PS2版的网页版本，红迪做的那个吧
+
+[Fate/Stay Night](https://fatestaynight.vnovel.org/)
+

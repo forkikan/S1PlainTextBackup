@@ -3948,3 +3948,204 @@ AD1E6C9869309A00E50F67256ED3ABCC.jpg
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  南宮凝香  
+##### 22552#       发表于 2025-2-14 10:53
+
+🦄就喜歡這種單向的女女關係
+
+你看雞狗兩團有正常的雙向CP嗎？
+
+睦祥這關係還是說得過去的
+
+這兩人就是真姐妹，一起長大的
+
+那老姐給老妹擋風擋到命都不要了也是很正常的
+
+*****
+
+####  江口夕  
+##### 22553#       发表于 2025-2-14 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">又吸了一口，太爽了这集。祥睦厨的冰
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 22554#       发表于 2025-2-14 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说第五集就该这样了
+
+灯把祥子抓到ring
+
+素世把睦哄到ring，让乐奈帮着哄
+
+然后大家把话说开了就完事了
+
+*****
+
+####  曼彻斯特联  
+##### 22555#       发表于 2025-2-14 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420627&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:26</a>
+
+我见过对祥子心理最好的解释是爱睦灵魂交换二创里的，大意就是祥子内心知道队友知道了也不会嘲笑自己只会 ...</blockquote>
+这应该是标准答案，黑着脸去退团就是为了不让队友惦记自己，但是演出一直没有把这部分的内容直接放到正片了，搞得观众还得自己分析推敲。
+
+说白了，还是缺了一集祥的内心戏，制作组要真觉得第7集重要完全可以把这集改成全程祥子第一人称，对角色的转变的描写和live的情绪烘托都会有显著帮助。（甚至还能用哭声帮灯遮瑕，提升观众观感）
+
+*****
+
+####  MuramasaSP  
+##### 22556#       发表于 2025-2-14 10:57
+
+结合之前坛友说的“第7话Live的真正问题不是唱成翻车版，而是：它恰恰是一种例行公事的、“该上台演唱了”的Live”。
+
+其实live从推动剧情的角度上完全没用吧，live只是庆功宴，apart已经把要讲的全讲完了。
+
+完全可以怀疑，最近三话就是为了卖c团版春日影和成为人类之歌，为了这瓶醋包的饺子。再发散一下，就是mujica并没有一般原创动画无拘无束的优点，反而要迎合大人的原因和某些商法。
+
+*****
+
+####  Redimercia  
+##### 22557#       发表于 2025-2-14 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420859&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:46</a>
+
+说到托孤这个就想到flowers的秋组了，但人家同样是青梅竹马被托孤，你过线也是能一巴掌拒绝回去的，跟着跑 ...</blockquote>
+看到这楼提起花，我突然就和志水叔叔和解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我玩flowers和九段时还觉得这家伙明明写不好本格悬疑推理还硬要塞，冬篇用儿戏的谜底把苏芳和金银两人的观感拉到谷底，经历昨晚一番比烂居然释怀了
+
+*****
+
+####  江口夕  
+##### 22558#       发表于 2025-2-14 10:57
+
+ 本帖最后由 江口夕 于 2025-2-14 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420940&amp;ptid=2208921" target="_blank">Saxk 发表于 2025-2-14 10:53</a>
+为什么高松灯唱歌都是扯着嗓子的呢？
+
+每次唱歌我都快进受不了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">big胆，竟然敢拷打我羊姐的哭戏
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  MuramasaSP  
+##### 22559#       发表于 2025-2-14 11:00
+
+<blockquote>Redimercia 发表于 2025-2-14 10:57
+看到这楼提起花，我突然就和志水叔叔和解了
+
+我玩flowers和九段时还觉得这家伙明明写不好本格悬疑推理还硬 ...</blockquote>
+mujica谜底还没出吧，我现在对这片唯一期望就是初华的谜底稍微有意思一点，哪怕双子说我都认了，很难想象比flowers冬的谜底还要烂。
+
+另外冬篇马小姐突然出场跳舞给我的无语感不在c团live之下。
+
+
+*****
+
+####  MuramasaSP  
+##### 22560#       发表于 2025-2-14 11:00
+
+<blockquote>Redimercia 发表于 2025-2-14 10:57
+看到这楼提起花，我突然就和志水叔叔和解了
+
+我玩flowers和九段时还觉得这家伙明明写不好本格悬疑推理还硬 ...</blockquote>
+mujica谜底还没出吧，我现在对这片唯一期望就是初华的谜底稍微有意思一点，哪怕双子说我都认了，很难想象比flowers冬的谜底还要烂。
+
+另外冬篇马小姐突然出场跳舞给我的无语感不在c团live之下。
+
+
+*****
+
+####  aptx8285144  
+##### 22561#       发表于 2025-2-14 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420940&amp;ptid=2208921" target="_blank">Saxk 发表于 2025-2-14 10:53</a>
+
+为什么高松灯唱歌都是扯着嗓子的呢？
+
+每次唱歌我都快进受不了</blockquote>
+主要还是这话比GO时期还难听<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 22562#       发表于 2025-2-14 11:03
+
+ 本帖最后由 江口夕 于 2025-2-14 11:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海玲生气是知道了大小姐拿mujica当ccc替代品的事实。这不是明摆着了，自己本来是别人的替代品，本来想着mujica要认真组团了，发现还是被当替代品，当然破防了。
+本来海玲套脖子项圈就是克制自己不能动真心。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wwwttth  
+##### 22563#       发表于 2025-2-14 11:04
+
+又看了一遍re，其他部分都可以和解，赶进度可以说是单集编剧之间缺乏沟通的问题，其实狗当初就有这问题不过靠情绪掩盖过去了（虽然剧情是连续的但是呈现方式非常的单元剧），但是后面那两段内心小作文是怎么都和解不了的，少配这两段话真的会死么…还是说中日文化有这么大的隔阂么，不至于吧，5集上半默剧的呈现手法你不是很会的么
+
+*****
+
+####  darkXcross  
+##### 22564#       发表于 2025-2-14 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420627&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:26</a>
+
+我见过对祥子心理最好的解释是爱睦灵魂交换二创里的，大意就是祥子内心知道队友知道了也不会嘲笑自己只会 ...</blockquote>
+这就是我最气的地方，MUJICA连称为官方二创的资格都没有，因为它在对角色的塑造、角色内心的揣摩上连大部分观众都不如。真就是观众在第五层、编剧在负一层。
+
+*****
+
+####  JustW  
+##### 22565#       发表于 2025-2-14 11:04
+
+<blockquote>MuramasaSP 发表于 2025-2-14 11:00
+mujica谜底还没出吧，我现在对这片唯一期望就是初华的谜底稍微有意思一点，哪怕双子说我都认了，很难想象 ...</blockquote>
+拍了七集还没把Mortis处理明白，很难想象剩下六集处理三个人还能揭开什么双子论这样的惊人谜底
+
+*****
+
+####  aptx8285144  
+##### 22566#       发表于 2025-2-14 11:05
+
+都第七话了，中登还活着，老登也没被明示或暗示是黑手，我看独角兽这群人就一路包饺子到底算了，要是再整什么黑手只会更烂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 22567#       发表于 2025-2-14 11:05
+
+<blockquote>wwwttth 发表于 2025-2-14 11:04
+又看了一遍re，其他部分都可以和解，赶进度可以说是单集编剧之间缺乏沟通的问题，其实狗当初就有这问题不过 ...</blockquote>
+有一說一，
+
+就這表現力
+
+她們還是全部東西都直接在內心獨白寫出來算了
+
+*****
+
+####  FanFun  
+##### 22568#       发表于 2025-2-14 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420778&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:39</a>
+托孤应该是真的但这样也过了，诸葛亮被刘备托孤之后鞠躬尽瘁死而后已是为了报答三顾茅庐知遇之恩，睦一个 ...</blockquote>
+因为睦的语言艺术和双重人格的原因，给祥的致命暴击大多都是出自睦，所以睦对祥的愧疚也很深吧
+
+*****
+
+####  莱茵哈鲁特  
+##### 22569#       发表于 2025-2-14 11:08
+
+b站评分跌到7.7了，半天跌整整1分，这话伤害可比第四话大多了
+
