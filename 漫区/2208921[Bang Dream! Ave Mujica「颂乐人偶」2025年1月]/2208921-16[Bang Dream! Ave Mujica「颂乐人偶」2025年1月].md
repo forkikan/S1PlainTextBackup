@@ -7409,3 +7409,60 @@ CRYCHIC的和解不是彼此之间的和解，是各自与那个认为CRYCHIC过
 当然这大纲独角兽想甩锅肯定是甩不干 ...</blockquote>
 背个次锅吧，主锅是想炒作想疯了的武士道
 
+
+*****
+
+####  JustW  
+##### 22864#       发表于 2025-2-14 16:28
+
+对着一部作品的黑箱分锅没有意义，和其他作品控制变量一下就知道了。假如一个人在各个制作组都能做出还行的作品，偶尔翻车也可能不是他的问题，反之一个人大部分作品都一般般，偶尔一次还行也只能说明灵感来了/其他人带飞。
+
+*****
+
+####  Суслов  
+##### 22865#       发表于 2025-2-14 16:32
+
+花田：独角兽，送你一句话，做动画要和光同尘
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  septer  
+##### 22866#       发表于 2025-2-14 16:33
+
+只能说泥潭的1号楼2号楼里面的系构监督不仲滑坡很不幸言中<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 22867#       发表于 2025-2-14 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424284&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 15:55</a>
+沒用
+
+現在是老鐘的大部分觀眾就不想看C團和解</blockquote>
+C团和解不是问题，问题演成这样还指望别人说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+第一季你能觉得这几个角色都是人，虽然戏称"圣爱音"，但是至少还在人类范畴内，至少写的像个人，请问目前这一坨写出来的台上台下有几个是人？
+
+*****
+
+####  天空塔书记官  
+##### 22868#       发表于 2025-2-14 16:35
+
+ 本帖最后由 天空塔书记官 于 2025-2-14 16:37 编辑 
+
+ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒作想疯了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dqtql  
+##### 22869#       发表于 2025-2-14 16:37
+
+现在看来鸡团动画做成这个样子很明显是被武士道过度干预的结果，mygo时期武士道炒得没那么离谱反而给创作者留出了发挥空间。
+
