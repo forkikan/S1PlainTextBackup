@@ -2381,3 +2381,11 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 查了下太阳她妈叫莱娜，我开始细思恐极了 ...</blockquote>
 你细品为什么盟主的声优要借用亚尔缇娜……（大误）
 
+
+*****
+
+####  alucardcz  
+##### 7734#       发表于 2025-2-14 14:26
+
+轨迹cv重复也是个问题。。至少超关键的角色不应该搞重复 好比盟主 大总统之类的 大总统的老婆也是<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
