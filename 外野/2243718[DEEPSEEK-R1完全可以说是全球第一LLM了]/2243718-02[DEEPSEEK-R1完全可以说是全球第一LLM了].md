@@ -3903,3 +3903,118 @@ DS占了四个，官网+硅基+火山+欧派（不是）云
 
 正式发布多模态？
 
+
+*****
+
+####  possibility  
+##### 1824#       发表于 2025-2-13 09:17
+
+拿来写词玩，我自己又改改，参与感挺好的，就是服务器繁忙好累，希望技术再进步进步。
+
+菩萨蛮
+
+垂杨空绾春衫碧，菱歌惊散双飞翼。  
+
+烟水白蘋洲，觉来鬓已秋。  
+
+醉里寻旧字，纸尽封春事。  
+
+不敢问归程，青山叠故城。
+
+感觉词投喂的不是很多，不知道该怎么投喂。是把我喜欢的作品都发给它，让它来模拟吗？
+
+*****
+
+####  Litccc  
+##### 1825#       发表于 2025-2-13 11:17
+
+现在哪家的api最稳定啊，deepseek自己限流真的难受
+
+*****
+
+####  med  
+##### 1826#       发表于 2025-2-13 11:50
+
+看这些llm玩狼人杀还蛮有意思的，d指导确实厉害
+
+*****
+
+####  overflowal  
+##### 1827#       发表于 2025-2-13 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67408938&amp;ptid=2243718" target="_blank">Litccc 发表于 2025-2-13 11:17</a>
+
+现在哪家的api最稳定啊，deepseek自己限流真的难受</blockquote>
+国内火山引擎的还行。
+
+国外贵的fireworks吐字速度快，但是贵。便宜的Nebius/hyperbolic慢的有点蛋疼
+
+*****
+
+####  moekyo  
+##### 1828#       发表于 2025-2-13 23:51
+
+刷到个火山部署的能联网的教程，可以折腾一下[https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)
+
+*****
+
+####  羊寢  
+##### 1829#       发表于 2025-2-14 00:08
+
+话说大家有用过派欧那边的ds吗？之前看人说派欧是满血版，然而刚才看到尼姑庵有人说派欧也有阉割？
+
+*****
+
+####  名居守  
+##### 1830#       发表于 2025-2-14 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">cherryystudio里的添加的模型越来越多了……
+
+DS占了四个，官网+硅基+火山+欧派（不是）云
+
+剩下个gemini
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">就是Gemini太容易出429错误了
+
+派欧云是说的community版吧，是派欧云自己调校的版本？
+
+反正我用下来感觉差不多，D老师该气人还是气人<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 1831#       发表于 2025-2-14 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418078&amp;ptid=2243718" target="_blank">名居守 发表于 2025-2-14 00:45</a>
+
+cherryystudio里的添加的模型越来越多了……
+
+DS占了四个，官网+硅基+火山+欧派（不是）云
+
+剩下个gemini</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直球辱骂d老师打断他的赛博疯话也是风味玩法的一部分了
+
+*****
+
+####  qwased  
+##### 1832#       发表于 2025-2-14 02:07
+
+<img src="https://img.saraba1st.com/forum/202502/14/020652yvxpius1el81o3lo.jpg" referrerpolicy="no-referrer">
+
+<strong>94E6B5813D923DB8BEB99CDDA928E4BB.jpg</strong> (144.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 02:06 上传
+
+正式发布多模态？
+
+*****
+
+####  UNICORN00  
+##### 1833#       发表于 2025-2-14 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418615&amp;ptid=2243718" target="_blank">qwased 发表于 2025-2-14 02:07</a>
+
+正式发布多模态？</blockquote>
+还有高手？
+
