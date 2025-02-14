@@ -659,3 +659,11 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看了眼视频，不敢相信这个打击感是卡婊端出来的实机，就这样吧，反正等游戏出了再说，用钱宝投票
 
+
+*****
+
+####  林檎  
+##### 160#       发表于 2025-2-14 09:06
+
+卡表的游戏现在做的都黑了吧唧的生怕人看清楚一样
+

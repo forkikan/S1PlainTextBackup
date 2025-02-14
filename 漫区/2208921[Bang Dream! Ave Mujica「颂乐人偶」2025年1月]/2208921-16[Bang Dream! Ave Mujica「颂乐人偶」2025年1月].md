@@ -2598,3 +2598,123 @@ gbclive我跳了影响真不大 本质小孩姐打出名声然后遇到新人墙
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  莉缇娅  
+##### 22423#       发表于 2025-2-14 09:06
+
+所以这鸡团还有必要组吗
+
+*****
+
+####  江口夕  
+##### 22424#       发表于 2025-2-14 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419632&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-14 09:04</a>
+拉拉青鸟是不是她啊很急</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你拉没什么急的，企划大手更大，武士道算是放权放的很开的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ads147147  
+##### 22425#       发表于 2025-2-14 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419581&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 08:59</a>
+
+我对mygo的评价一直是并不觉得多好毛病很多，但是非常有趣。
+
+你们滑坡不会是真当mygo是神作了吧。</blockquote>
+至少牢台真觉得mygo是神作吧。
+
+*****
+
+####  十万年魂环  
+##### 22426#       发表于 2025-2-14 09:07
+
+日升难道不是随便挑吗，有什么急得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 22427#       发表于 2025-2-14 09:08
+
+<blockquote>莉缇娅 发表于 2025-2-14 09:06
+所以这鸡团还有必要组吗</blockquote>
+所以海子姐不就被按著頭來了嗎？
+
+唏，可以和解嗎？
+
+*****
+
+####  江口夕  
+##### 22428#       发表于 2025-2-14 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419666&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-14 09:07</a>
+至少牢台真觉得mygo是神作吧。</blockquote>
+牢台先把2偶整明白再说吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  阿兹尔  
+##### 22429#       发表于 2025-2-14 09:08
+
+要不还是真演小时代吧，那个“发烂发臭”的梗是真挺好玩的，鸡到目前最好玩的就是蜘蛛侠，完全不如“发烂发臭”啊
+
+*****
+
+####  ddy2811  
+##### 22430#       发表于 2025-2-14 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419289&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 08:24</a>
+
+乐奈已经发金水了，正式说明Mortis是另一个人且是好人，死透不可能了</blockquote>
+Mortis也不该死透，总不能睦头以后都是这集的样子吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22431#       发表于 2025-2-14 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内不懂日本人为什么好评，日本人之前还不懂为什么MyGO在国内那么火
+
+
+*****
+
+####  江口夕  
+##### 22432#       发表于 2025-2-14 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419690&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:09</a>
+国内不懂日本人现在为什么好评，日本人之前还不懂为什么MyGO在国内那么火（中日现在感性最重合的地方应该是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家是看第一眼感觉，国内靠大儒给你辩经，社区共振。不好看是大儒水平太差。
+现在的感觉就跟无职那时候一摸一样
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  坚挺水表君  
+##### 22433#       发表于 2025-2-14 09:12
+
+<blockquote>wpcc 发表于 2025-2-14 09:00
+你等着看第八集打脸吧 笑死了</blockquote>
+我反正不信那个所谓的剧透，太离谱了
+
+*****
+
+####  qlipho  
+##### 22434#       发表于 2025-2-14 09:12
+
+日本人有pjsk，比你go奶自闭症劲多了
+
+*****
+
+####  JustW  
+##### 22435#       发表于 2025-2-14 09:12
+
+至少之前一次去Animate，左边pjsk全是日本人，右边母鸡卡全是中国人
+
