@@ -9809,3 +9809,138 @@ TFT放出来了，只能说索尼爸爸不愧是索尼爸爸，我现在也是�
 
 闹钟对mujica的关注度以及观众的心态已经不是对待一部普通原创的心态了，自然与海外风评不一致。
 
+
+*****
+
+####  zhoujin8584  
+##### 23085#       发表于 2025-2-14 21:18
+
+<blockquote>单脚着地 发表于 2025-2-14 21:13
+我觉得猫和爱音不太一样，她其实不太CARE陌生人的，不像爱音不熟悉的人也会给予基本的关心 ...</blockquote>
+我指的是预感到了ccc的逼近迅速撤退但是感觉该mygo唱了又逢召必回这件事，上一季她就是看灯皇犹豫跑路了但是从龙之功也是她
+
+*****
+
+####  是谁的书画  
+##### 23086#       发表于 2025-2-14 21:18
+
+我已经看到未来bang手游crychic限时重组的可能性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但凡用这个音源评价也不会那么糟糕，虽然也不会多好就是了，但起码情绪流上来了
+
+*****
+
+####  太太  
+##### 23087#       发表于 2025-2-14 21:18
+
+昨天用这版情绪真上来了吧，柿本真sm了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 23088#       发表于 2025-2-14 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427096&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-14 21:18</a>
+我已经看到未来bang手游crychic限时重组的可能性了
+
+但凡用这个音源评价也不会那么糟糕，虽然也不会多好就是 ...</blockquote>
+情绪能遮盖很多小问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23089#       发表于 2025-2-14 21:19
+
+就算以2.5次元的企劃來說
+
+CCC 也是不知所謂
+
+在自家兩個樂隊中各抽點人出來
+
+組一個第三團
+
+這是能開拓什麼新市場？ 
+
+不還是原本下面那堆粉？
+
+*****
+
+####  swessia  
+##### 23090#       发表于 2025-2-14 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">情绪也可以遮盖大问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 23091#       发表于 2025-2-14 21:20
+
+原来⏰说的是中国…才知道
+
+*****
+
+####  十九号大侠  
+##### 23092#       发表于 2025-2-14 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427104&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 21:19</a>
+
+就算以2.5次元的企劃來說
+
+CCC 也是不知所謂</blockquote>
+偶尔聚聚嘛，过去发生的事情不要当作没发生呀
+
+
+*****
+
+####  08df1258c5ed098  
+##### 23093#       发表于 2025-2-14 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426927&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-14 21:04</a>
+问题是这件事太诡异了，再怎么说也不可能一边0分一边100分，即使一边排除脑补串子，另一边算上匿名版，也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为不知道成败在此一集吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黑猫桑  
+##### 23094#       发表于 2025-2-14 21:23
+
+要说异世界铺天盖地的提爱音打抱不平我觉得是异世界
+
+gop自己不满就不满还拿爱音来当拐，她的人物逻辑表现根本没问题，一点基本的同理心也能被叫圣
+
+这集再怎么发展也是祥睦被引入mygo变成七人团体，之前的行动爱音已经接受祥睦跟她们产生关联，爱音还巴不得呢，爱灯祥一个学校玩的不亦乐乎，gop不想看见这种情况就直说别拿角色当拐
+
+*****
+
+####  DeltaStriker  
+##### 23095#       发表于 2025-2-14 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈<img src="https://p.sda1.dev/22/f254226c22beba60793e168a75fc6bc3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 23096#       发表于 2025-2-14 21:24
+
+怎么办呢，花田情绪流是建立在人家站在大平台的基础上，你柿本搞情绪流有这个能力吗，音乐用今天这一版好歹能堵住爱厨的嘴，现在就等着收遛狗图和腰斩图吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sakatta  
+##### 23097#       发表于 2025-2-14 21:24
+
+真好听<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我和昨天的自己和解了
+
+*****
+
+####  JustW  
+##### 23098#       发表于 2025-2-14 21:25
+
+爱音递吉他怎么说也比第六集结尾试图共情祥子要符合角色得多，第六集那个真的编剧大手就在我眼前
+

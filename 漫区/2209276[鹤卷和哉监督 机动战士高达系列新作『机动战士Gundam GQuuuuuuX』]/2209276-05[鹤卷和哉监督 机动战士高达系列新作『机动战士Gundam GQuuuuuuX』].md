@@ -13231,3 +13231,14 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 因此这其实是场外要素决定的，而非是剧情中的技术代数问题（如果要圆的话那就是GQX中技术路线与正典发生了分歧
 
+
+*****
+
+####  Steel.Haze  
+##### 6938#       发表于 2025-2-14 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427003&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-14 21:10</a>
+
+山下自己都说过这个话题，虽然可动框架很好看他自己也喜欢，但现实机器人是硬壳结构，所以鹤卷选择让GQ ...</blockquote>
+是的。不过没有可动框架技术迭代其实在这个世界观下是非常合理的。
+

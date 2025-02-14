@@ -4291,3 +4291,14 @@ https://github.com/deepseek-ai/DeepSeek-R1?tab=readme-ov-file#official-prompts
 DeepSeek 更新官方 Pr ...</blockquote>
 官方的能破甲？
 
+
+*****
+
+####  秦南心  
+##### 1856#       发表于 2025-2-14 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423744&amp;ptid=2243718" target="_blank">moekyo 发表于 2025-2-14 15:14</a>
+
+火山R1联网相当好用啊</blockquote>
+联网内容插件的最大参考资料Token数、引用条数要设置多少比较合适？按你的设置每月联网免费额度两万次大概能用多久啊
+
