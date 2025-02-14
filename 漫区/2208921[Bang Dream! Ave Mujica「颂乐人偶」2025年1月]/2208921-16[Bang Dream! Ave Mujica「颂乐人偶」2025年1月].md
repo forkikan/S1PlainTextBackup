@@ -2772,3 +2772,122 @@ Mortis也不该死透，总不能睦头以后都是这集的样子吧<img src="h
 
 海子姐最后那句明显是在讽刺吧
 
+
+*****
+
+####  wpcc  
+##### 22442#       发表于 2025-2-14 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419774&amp;ptid=2208921" target="_blank">柴突猛进 发表于 2025-2-14 09:18</a>
+
+我一直理解的狗团是“即使迷茫也要一起前进”，所以mygo的五个人即使关系不好看似没有团魂，我也当做是一种 ...</blockquote>
+说白了就是这一年不能没live开我们组个千斤顶乐队吧 就这样
+
+*****
+
+####  北条早苗  
+##### 22443#       发表于 2025-2-14 09:24
+
+卖狗3、7、10的三场live都是感情的升华，这一集就是大家都知道哭来兮苦需要一个体面的完结，但是演出来的效果却成了笑话
+情报爽姐的行动力，睦祥铁窗泪和牢莫秒切下线都是为了赶紧把哭来兮苦埋了
+
+*****
+
+####  醋栗  
+##### 22444#       发表于 2025-2-14 09:25
+
+我决定发动剪切线，把ave mujica当做有mygo成员出场但独立于mygo的另一部番剧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">就像mygo之于邦三季一样
+
+五位bangdream世界观里，没有超能力也没有钞能力的普普通通的（重力系）乐队少女，偶然被卷入前队友的超自然人格分裂事件（某只猫还觉醒了灵魂洞察技能），一番操作之后取得了不错的结果（和已经有所淡然，却依旧留有遗憾的过往彻底作别，前队友的病情也进入稳定期），角色也没有崩坏（反而还有许多值得反复观看的片段），对于mygo来说，这不是一份还不错的带有些许番外性质的后日谈嘛<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+无论ave mujica接下来的剧情如何，但想到它对mygo的伟大不会再有什么影响，我就顿感释然。我决定尊重，祝福，和解，祝ave mujica越办越好<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 22445#       发表于 2025-2-14 09:26
+
+ 本帖最后由 江口夕 于 2025-2-14 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419716&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:12</a>
+至少之前一次去Animate，左边pjsk全是日本人，右边母鸡卡全是中国人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我来讲讲为什么吧，pjsk人设讨喜。武士道人设不行。没有一开播就一眼好让阿宅守护笑容的角色。以前老团也是寥寥无几
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  DD-963  
+##### 22446#       发表于 2025-2-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419007&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-2-14 07:14</a>
+
+想了想，祥子为什么突然白祥，因为不用去打工了啊衣食无忧了就白了，穷才是万恶之源 ...</blockquote>
+没苦硬吃是这样的，你看立希登场时也一副不高兴的样子，还不是打工的压力。
+
+*****
+
+####  ads147147  
+##### 22447#       发表于 2025-2-14 09:27
+
+祥子被soyo锁喉这个操作，怎么说呢，应该说是导演直接指示太过火还是soyo吸取了之前抓手手没有用的教训呢。
+
+*****
+
+####  单脚着地  
+##### 22448#       发表于 2025-2-14 09:28
+
+cp厨美化？毒唯擅自脑内美化又擅自破防吧，不如说我觉有些人根本不是破防，他们其实挺享受烂炒自己推这种受伤委屈然后社区共振的氛围的
+
+*****
+
+####  ads147147  
+##### 22449#       发表于 2025-2-14 09:29
+
+不太觉得莫提斯会下线，别的不说，倒数预告的莫提斯表情还没回收吧我记得，目前的大莫老师哪有做过那个表情。。
+
+
+*****
+
+####  JustW  
+##### 22450#       发表于 2025-2-14 09:31
+
+<blockquote>江口夕 发表于 2025-2-14 09:26
+我来讲讲为什么吧，pjsk人设讨喜。武士道人设不行。没有一开播就一眼好让阿宅守护笑容的角色。以前老团也 ...</blockquote>
+因为pjsk了解不多先不说，我对母鸡卡人设没啥意见但是面具太丑了，还好第一集就过去式了
+
+*****
+
+####  江口夕  
+##### 22451#       发表于 2025-2-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419922&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-14 09:29</a>
+不太觉得莫提斯会下线，别的不说，倒数预告的莫提斯表情还没回收吧我记得，目前的大莫老师哪有做过那个表情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别解释了，都共振出ccc复出和莫下线的奇葩逻辑了，想纠正他们比登天难，后面剧情自然会打脸，让剧情给他们辩经再合适不过了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  plok201  
+##### 22452#       发表于 2025-2-14 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419752&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-14 09:16</a>
+
+我还不懂大墨设定出来的第三集为什么是泥潭评价最高的呢
+
+显然是放弃逻辑的开始 ...</blockquote>
+你都说开始了，那崩之前不就最高点了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然目前来看二重人格是编剧自己都不知道怎么处理的烂活，但是第三集问题再多，起码演出没掉，就算无法共情也能共感到睦受到很大压力，这集已经有点游戏王A5进同调篇之前的感觉了
+
+*****
+
+####  yongze  
+##### 22453#       发表于 2025-2-14 09:33
+
+还是那两个点。一.原创番少预测，少看分析，这样能摒除和自己的预期有偏差。二.少代入角色，不要指导角色行为，以免因为角色的行为不符合个人预期而破防。做到这两点就能减少把自己不喜欢误认为这就是动画做坏了的情况，从全局来分析动画提供的要素和是否符合剧情展开，安排是否合理。
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
