@@ -4358,3 +4358,19 @@ aider之前那篇博文吧，功能已经上线快两个礼拜了
 
 唉，赶紧吧claude卷进去吧（
 
+
+*****
+
+####  断片集  
+##### 1861#       发表于 2025-2-15 00:06
+
+试了下用r1写ai图的prompt，相当好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/15/000601zntwznww86b64b8y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 00:06 上传
+

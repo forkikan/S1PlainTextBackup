@@ -11923,3 +11923,78 @@ anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推�
 
 木头人那样治疗方式就爽猫就样<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 23271#       发表于 2025-2-15 00:06
+
+看完这个一定会笑抽
+
+【【AveMujica/小份】 小睦的命运由我来改..变？-哔哩哔哩】 [https://b23.tv/gl6I9nU](https://b23.tv/gl6I9nU)
+
+*****
+
+####  烂片雷达  
+##### 23272#       发表于 2025-2-15 00:08
+
+最后小猫小睦深情对望何意味啊
+<img src="https://p.sda1.dev/22/f840fd851c90e8936b2a63d488dc1017/image.jpg" referrerpolicy="no-referrer">
+
+我们心有灵犀，不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 23273#       发表于 2025-2-15 00:10
+
+感觉自己要分裂了。
+
+mujica是狗屎动画，但还是喜欢这部动画。
+
+刚看完第七话觉得go团成员的行动符合逻辑，转了一圈发现素世灯已经成了大家口中的chusheng，爱音则是好人被枪指着，进而怀疑是不是自己三观有问题。以及“小团体霸凌”“加害者原谅被害者”这些话题，进而发散到现实日本。
+
+无论是海外观众的好评，还是国内大部分观众的愤怒，都让我感到一种不真实感。
+
+*****
+
+####  圣血天使  
+##### 23274#       发表于 2025-2-15 00:11
+
+我又想了下，等二创来一个爱音的《嘉宾》吧。。。
+
+*****
+
+####  ape-apple  
+##### 23275#       发表于 2025-2-15 00:12
+
+没问题啊我们🐑神，在tft发挥真的爆了，mygo那边不行真是因为没有键盘吧
+
+
+*****
+
+####  QuerTan  
+##### 23276#       发表于 2025-2-15 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418327&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-14 01:15</a>
+
+是mygo的彩排，借时间给crychic唱了两首，然后就mygo自己要彩排表演了，要是下集还搞live片段就是mygo的 ...</blockquote>
+哦哦我明白了
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 23277#       发表于 2025-2-15 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428428&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 00:10</a>
+
+感觉自己要分裂了。
+
+mujica是狗屎动画，但还是喜欢这部动画。
+
+刚看完第七话觉得go团成员的行动符合逻辑，转 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了不是“国情”问题
+
+这是“年龄”问题以及代入对象问题
+

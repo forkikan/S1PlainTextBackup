@@ -13258,3 +13258,13 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 6940#       发表于 2025-2-15 00:12
+
+所以说是大家都有拿到未来科技导致一步到位到NT专用机技术泛滥然后其它科技直接路人化是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
