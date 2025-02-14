@@ -695,3 +695,13 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 主要是这pv一出来我就感觉到，哦，一看就是不准备投入太多资源的二线作，卖相不太行。和我看荒野演示的感觉完全不一样。荒野那个演示我看完了是真觉得，嗯有兴趣了，以前没玩过这个ip的作品，这作我有兴趣了，可以看评价试试。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oahcihs  
+##### 164#       发表于 2025-2-14 11:22
+
+鬼武者2 没有实体吗这回？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

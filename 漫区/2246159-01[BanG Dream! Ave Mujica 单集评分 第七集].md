@@ -3790,3 +3790,21 @@ ccc诈尸完了，crychic对祥子的意义只能说处理得普普通通，我�
 
 这样mygo就成为邦邦的轨迹系列,  母鸡卡其实是mygo2 ,下一季继续mygo3 , 下一季副标题就是anon tokyo
 
+
+*****
+
+####  gane1010  
+##### 369#       发表于 2025-2-14 11:22
+
+中规中矩吧 能感觉制作组想表达什么 但是演出制作完全没有跟上 新歌也不好听 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  
+
+*****
+
+####  17119854  
+##### 370#       发表于 2025-2-14 11:24
+
++1
+前面不停拷打得逻辑都要坠机了都有嗜血观众+2，但后面明明白白要包饺子还期待爆什么，现在端上来了，破防了，我反而乐了
+
+颂乐人偶，太人偶了不是么<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+

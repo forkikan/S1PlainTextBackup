@@ -4302,3 +4302,142 @@ weibo: [@半杯柠檬摩卡](https://weibo.com/n/%E5%8D%8A%E6%9D%AF%E6%9F%A0%E6%
 
 但再怎么说比现在官方这把人整疯了，再话疗包寿司高上几个层级
 
+
+*****
+
+####  结衣小比取  
+##### 22576#       发表于 2025-2-14 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420991&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-14 10:57</a>
+
+结合之前坛友说的“第7话Live的真正问题不是唱成翻车版，而是：它恰恰是一种例行公事的、“该上台演唱了” ...</blockquote>
+坛友说的这两首歌在MyGO BD里就出了，感兴趣可以听听
+
+《春日影》58:55
+[https://www.bilibili.com/video/BV1guWTeWECi/?t=3535](https://www.bilibili.com/video/BV1guWTeWECi/?t=3535)
+
+《成为人类之歌》58:38
+[https://www.bilibili.com/video/BV1XPWTeoEEh/?t=3518](https://www.bilibili.com/video/BV1XPWTeoEEh/?t=3518)
+
+第七话唱的是成人歌2
+<img src="https://img.saraba1st.com/forum/202502/14/003226zuz2yrk77m26m5iz.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 22577#       发表于 2025-2-14 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421189&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-14 11:15</a>
+
+木箱推为什么要伪装成鸡推</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">虽然我不是睦祥推，没看泥楼不知道睦祥推被开除鸡推了，但又不是我画的，可能画画的老师喜欢睦祥吧
+
+*****
+
+####  wwwttth  
+##### 22578#       发表于 2025-2-14 11:19
+
+<blockquote>南宮凝香 发表于 2025-2-14 11:05
+有一說一，
+
+就這表現力
+
+</blockquote>
+问题是这段真的是导致整个演出如同儿戏最主要的原因，你直接删了都不会有啥问题，纯画蛇添足，现在我一听到soyo的声音就想起这段然后尬得扣脚趾。
+
+能写出来这段说明编剧自己对soyo和立希的人物形象都没有一个准确的定义，觉得观众一定要看着他独白才能知道她的想法，不敢给一点留白的空间。
+
+*****
+
+####  江口夕  
+##### 22579#       发表于 2025-2-14 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来的鸡推，不都是脑补么，不是一开始就注定成为ccc替代品的临时乐队。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Ty_cc  
+##### 22580#       发表于 2025-2-14 11:22
+
+你甚至能在🐔的动画里看到🐔团成员
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 22581#       发表于 2025-2-14 11:22
+
+ 本帖最后由 江口夕 于 2025-2-14 11:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421244&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 11:19</a>
+问题是这段真的是导致整个演出如同儿戏最主要的原因，你直接删了都不会有啥问题，纯画蛇添足，现在我一听 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不留白都复辟了，留白还得了。要不你跟昨晚信誓旦旦复辟的人聊聊，他们怎么想的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  相坂君  
+##### 22582#       发表于 2025-2-14 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油说得对，哪来的鸡推，早点合并成csgo吧
+
+*****
+
+####  08df1258c5ed098  
+##### 22583#       发表于 2025-2-14 11:25
+
+鸡团怎么办从海铃这开始的走向其实很明确了，就是剩下几个神人生活也不顺了然后跪求祥子复合，没有其他可能性。
+
+鸡推还眷恋鸡头四在前作中的余裕形象的话真得早点跑路
+
+*****
+
+####  师傅没水了  
+##### 22584#       发表于 2025-2-14 11:25
+
+编剧貌似把人真搞成提线木偶了
+
+*****
+
+####  曼彻斯特联  
+##### 22585#       发表于 2025-2-14 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421213&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-14 11:17</a>
+
+爱睦灵魂互换的问题点在于如果祥子切割是出于善意，那黑刀之夜还有soyo跪地时恶言相向的力度有点太过太突兀 ...</blockquote>
+黑刀之夜我觉得是单纯被说急了，脸皮薄想反击。
+
+而mygo第七话之后，祥子的所有恶言都可以理解为为了规避不愿提及的事（c团解散，a团解散）的自我保护，摆着个臭脸说些难听的话把人赶走自然就没有人会去提及这些她不愿面对的事了。所以祥子第六话最破防的时刻是同学给她看了睦的视频，在这个时刻这份自我保护机制失效了。
+
+*****
+
+####  黑猫桑  
+##### 22586#       发表于 2025-2-14 11:26
+
+🐔推不就是祥推
+
+*****
+
+####  江口夕  
+##### 22587#       发表于 2025-2-14 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421317&amp;ptid=2208921" target="_blank">相坂君 发表于 2025-2-14 11:24</a>
+漏油说得对，哪来的鸡推，早点合并成csgo吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我希望武士道搞场真的，未来roselia真的结束的话，把红毛女人和小明都叫来，当然现在说有点不吉利，i83这些人年纪也不小了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厄神之息  
+##### 22588#       发表于 2025-2-14 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420663&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-2-14 10:29</a>
+
+一想到还有女女关系就搞笑，你箱子以后在学校还躲不躲灯？你木还上不上学？ ...</blockquote>
+都大和解了还躲鸡毛了，天天腻一起还来不及了，直接让爱音去车底好吧，成为交通灯三人组的第四灯，小粉灯。
+
