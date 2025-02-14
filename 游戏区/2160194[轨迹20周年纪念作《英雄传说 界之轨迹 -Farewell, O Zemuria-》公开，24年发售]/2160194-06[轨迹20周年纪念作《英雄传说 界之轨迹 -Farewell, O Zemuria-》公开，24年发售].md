@@ -2456,3 +2456,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 反螺旋后面还有10集内容
 
+
+*****
+
+####  alucardcz  
+##### 7742#       发表于 2025-2-14 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424151&amp;ptid=2160194" target="_blank">巴基 发表于 2025-2-14 15:43</a>
+
+说起天元突破 我到是真觉得女神有点像螺旋王。想尽办法把人类拖在星球上。空是实现愿望让人懈怠 幻是改变认 ...</blockquote>
+我感觉螺旋王应该是小黑
+
+奴役全人类让科技水平下降 从而延迟大重置<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

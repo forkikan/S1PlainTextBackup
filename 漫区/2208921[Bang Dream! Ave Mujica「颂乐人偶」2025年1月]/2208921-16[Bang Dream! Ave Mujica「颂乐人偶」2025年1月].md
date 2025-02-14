@@ -7577,3 +7577,131 @@ ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 22880#       发表于 2025-2-14 16:59
+
+还是不能理解台本里这些细节问题处理的一塌糊涂的原因<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，好端端的立希和素世的弧光就这么爆掉了，搞毛啊啊哇哇哇
+
+
+*****
+
+####  cccpprc  
+##### 22881#       发表于 2025-2-14 16:59
+
+<blockquote>dqtql 发表于 2025-2-14 16:26
+背个次锅吧，主锅是想炒作想疯了的武士道</blockquote>
+如星团二策划家四人故事是吧
+
+你看剩下这几集够凑出星团三嘛？
+
+正好也有一个“反派”（薇恩/喵梦）
+
+也有一点现实问题（丰川大手和毕业）
+
+也有重新组队
+
+*****
+
+####  cccpprc  
+##### 22882#       发表于 2025-2-14 17:00
+
+<blockquote>595505568 发表于 2025-2-14 16:59
+还是不能理解台本里这些细节问题处理的一塌糊涂的原因，好端端的立希和素世的弧光就这么爆掉了，搞毛啊啊哇 ...</blockquote>
+真要细细分锅，台本细节不行是单集脚本和监督的问题多一点吧
+
+*****
+
+####  木板春香  
+##### 22883#       发表于 2025-2-14 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424858&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-14 16:45</a>
+
+感觉...x应该单纯水平不行。。。。外加和音监没沟通好。。。。
+
+带哭音但还是好听的音乐剧里了多了去了。 ...</blockquote>
+ 笑点是音监也是监督十本
+
+*****
+
+####  ml1642879  
+##### 22884#       发表于 2025-2-14 17:01
+
+想看live，但只看到了彩排上哭的上气不接下气的分手炮，于是烤羊唱的什么比玩意
+
+昨天到现在看到无数这个令人难绷的逻辑链路
+
+*****
+
+####  保真花生  
+##### 22885#       发表于 2025-2-14 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424869&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-2-14 16:47</a>
+不会真的有独角兽孝子吧，独角兽的本意是好的。唉，都怪柿本改剧本，唉，都怪后藤绿执行坏了。众所周知这两 ...</blockquote>
+现在豚楼就是这个看法，独角兽这个编剧界的驼鹿被无能无耻无德的柿本赶跑了，还脑补一出宫斗大剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莱茵哈鲁特  
+##### 22886#       发表于 2025-2-14 17:02
+
+哭腔肯定能唱的好听，这不是什么特别困难的技巧。
+
+至少再怎么哭腔，也不至于像一个外行人一样跑调到天上去。
+
+所以让我觉得这种跑调的演出是不是别有深意。
+
+*****
+
+####  阿兹尔  
+##### 22887#       发表于 2025-2-14 17:03
+
+那这编剧届的驼鹿憋到现在才半部轻拍和只在cn火的mygo也挺难评的
+
+*****
+
+####  595505568  
+##### 22888#       发表于 2025-2-14 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424988&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-14 17:00</a>
+真要细细分锅，台本细节不行是单集脚本和监督的问题多一点吧</blockquote>
+单集脚本 演出 监督分镜稿有问题
+但是独角兽说她把控细节和整体很难，说明单集脚本不是一人脚本<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，我就真的无言了
+
+*****
+
+####  保真花生  
+##### 22889#       发表于 2025-2-14 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424995&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-14 17:00</a>
+笑点是音监也是监督十本</blockquote>
+昨天那集分镜和音监确实才是该背最大的锅
+
+*****
+
+####  海底铁锚  
+##### 22890#       发表于 2025-2-14 17:04
+
+还“编剧界的驼鹿”呢，驼鹿监督是在兽娘1完结不久，刚刚出第二期的图后，就明明白白的说自己被踢出去的。整个兽娘2压根一点没有参与，甚至同期还做了烟草。独角兽能比吗？
+
+*****
+
+####  wwwttth  
+##### 22891#       发表于 2025-2-14 17:05
+
+我倒是觉得哭腔没什么，但是内心小作文真的受不了，看re看一次尬一次，这种演出只能说明编剧已经丧失了对角色形象把握的自信了
+
+*****
+
+####  天空塔书记官  
+##### 22892#       发表于 2025-2-14 17:06
+
+可是脚本就是真没有那么大能量可以干涉企划制作的啊，这个总得承认吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
