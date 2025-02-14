@@ -5906,3 +5906,84 @@ go好歹还已经成团了，mujica现在实际还未出生，剩下三个人立
 
 可第二季的铜氛围可没这么重，大家是真的在kirakira玩音乐的，所以那段剧情有非议但也水花不大。
 
+
+*****
+
+####  安娜导函数  
+##### 22724#       发表于 2025-2-14 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422379&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-2-14 13:06</a>
+但小祥应该是最初就知道这事的，所以一开始建鸡团的时候没强行拉睦，但是睦看到小祥这样直接说我加入，这 ...</blockquote>
+提醒一下，大祥老师拉喵梦的时候还没跟睦头人说要组新乐队呢，是吃准了睦头人肯定会加入的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 22725#       发表于 2025-2-14 14:01
+
+独角兽写鸡狗台词的时候就爱塞那套性暗示啊，否则八点档狗血味儿没那么正。
+从“让我忘记一切”到“三天三夜”，独角兽的黄色废料是一望而知的，这种情况下滑坡到live＝银趴属于正常的。
+
+*****
+
+####  _47  
+##### 22726#       发表于 2025-2-14 14:01
+
+<img src="https://img.saraba1st.com/forum/202502/14/140103kglpvamddwxxjz8y.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-14 140055.png</strong> (258.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 14:01 上传
+
+看到个[长评](https://note.com/sakosako_ff/n/n5e754f32f587?sub_rt=share_b)搬下
+
+*****
+
+####  oyss  
+##### 22727#       发表于 2025-2-14 14:03
+
+初华这角色还能有什么戏. 全片最正常的人就她了.正常人在这种片就难混.
+
+出场就是当红偶像,音乐追求成长什么的没得写了.
+
+没精神病,没家庭问题,偶像组合也没矛盾.
+
+跟灯看了两次星星,灯的问题算解决了.
+
+就剩下跟祥子的关系了.结果祥子身边从来就不缺人,解决祥子的问题还轮不到她来.
+
+剩下每几集了,前面没伏笔,后面也没地方可以加戏了.
+
+*****
+
+####  天空塔书记官  
+##### 22728#       发表于 2025-2-14 14:03
+
+所以wsd就是在拿“普通的一集”大炒特炒
+
+这就很蚌了
+
+宣传是群英荟萃，一看是萝卜开会
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  z-hunter  
+##### 22729#       发表于 2025-2-14 14:07
+
+其实也不要怪狗厨滑坡C团复活
+
+除了第1集的狗团一小段剧情细节非常好之外，5集之后有关狗的细节都非常差，7集更加是最差的。
+
+可能是编剧想玩些狗团成员间关系不是太好，就算有变好的迹象也要稍微写坏一点的样板戏（邦邦手游剧情特有，不可不尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，结果和独角兽特有的角色不讲人话，惜字如金结合起来，对人物的塑造滑坡效果难以想象
+
+让人观感太差了，其实只要多加一些细节、表情、素世立希灯能多说几句话。滑坡效果都不会那么好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这就变成了编剧是想你感受剧情是这个方向的（C团要和解结束了，结果观众的感受却是完全相反的另一面
+
