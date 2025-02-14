@@ -12392,3 +12392,42 @@ CCC和CCC的成员是从回忆美好的高处回归到了现实的普通，可�
 
 不过回过头来看前七集，演出和剧情节奏设计好的话，其实剧本问题可能也没有那么大？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉场外也不会是这个样子
 
+
+*****
+
+####  wpcc  
+##### 23309#       发表于 2025-2-15 01:19
+
+<blockquote>澜灰- 发表于 2025-2-15 01:17
+不过回过头来看前七集，演出和剧情节奏设计好的话，其实剧本问题可能也没有那么大？感觉场外也不会是这个样 ...</blockquote>
+后面的家庭剧比玩乐队更可怕啊
+
+*****
+
+####  cxj649  
+##### 23310#       发表于 2025-2-15 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428863&amp;ptid=2208921" target="_blank">澜灰- 发表于 2025-2-15 01:17</a>
+
+不过回过头来看前七集，演出和剧情节奏设计好的话，其实剧本问题可能也没有那么大？感觉场外也不会是这个样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就是剧本大纲逻辑没问题，但是细节和演出超有问题
+
+
+*****
+
+####  影伴光生  
+##### 23311#       发表于 2025-2-15 01:24
+
+mujica第7集是对标mygo第10集的，光速和解+两首歌，但是问题在于和解的是crychic，歌也唱疵了，还塞了一堆退队流同人常见的刻板印象塑造，越看越怪
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23312#       发表于 2025-2-15 01:27
+
+<blockquote>cxj649 发表于 2025-2-15 01:20
+本来就是剧本大纲逻辑没问题，但是细节和演出超有问题</blockquote>
+复活c团真的没问题吗 
+

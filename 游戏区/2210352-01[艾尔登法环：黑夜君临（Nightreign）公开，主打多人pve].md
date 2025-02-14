@@ -2229,3 +2229,19 @@ ps有人连上的吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  usodakedo  
+##### 245#       发表于 2025-2-15 01:23
+
+ 本帖最后由 usodakedo 于 2025-2-15 01:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427479&amp;ptid=2210352" target="_blank">shyso 发表于 2025-2-14 22:02</a>
+
+这游戏在泥潭专楼层数这么少，盖楼这么慢，感觉大概率要钉在魂系耻辱柱上，已经迫不及待的想看乐子了！ ...</blockquote>
+没啥所谓的，魂或者现在的fs本来就是最下键最低级的阶级，早就在耻辱柱上了。
+
+但这次服务器还是这么拉是没想到的，本来还以为做主打联机的会用新服务器或者优化下老的。
+
+据说xbox版链接就没啥问题，但问题是很多人没xbox（）
+
