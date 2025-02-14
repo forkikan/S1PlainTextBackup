@@ -13090,3 +13090,19 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 6931#       发表于 2025-2-14 10:33
+
+[X 上的 たくま朋正＠航宙軍8巻2/27発売：“#GQuuuuuuX #ジークアクス RX-78-01/プロトタイプ（ゼロヒト）ガンダム [url]https://t.co/0V0q7fsisN](https://x.com/yunckle19722000/status/1890185980906500102)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/14/103329mqadzqq7m70v77q7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 10:33 上传
+

@@ -3741,3 +3741,14 @@ ccc诈尸完了，crychic对祥子的意义只能说处理得普普通通，我�
 
 羊公这个唱的真的拉，故意让这么唱的吗，本来有0.5的煽情也给你搞得一点感觉没有想笑吸了
 
+
+*****
+
+####  aptx8285144  
+##### 366#       发表于 2025-2-14 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67415974&amp;ptid=2246159" target="_blank">yaneis 发表于 2025-2-13 22:33</a>
+
+情节跳跃节奏怪异，明面上是木箱包饺子回实际是ccc回，木头塑造一如既往没有，音监演出没一个在线，羊姐一 ...</blockquote>
+爱音只是被“赐予体面”了，她完全没有挣扎的样子完全不像一个有血有肉的人类<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
