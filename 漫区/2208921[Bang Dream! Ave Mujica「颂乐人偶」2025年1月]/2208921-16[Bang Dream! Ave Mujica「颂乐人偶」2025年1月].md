@@ -9367,3 +9367,272 @@ mygo虽然没老邦那么多人，不过4 7 11几场多人戏都拍得不错的�
 
 感觉圣人厨是真的多呀
 
+
+*****
+
+####  DeltaStriker  
+##### 23041#       发表于 2025-2-14 20:54
+
+猫确实会读空气 mygo的时候还会耍赖让立希爱音买东西让剩下两人说话 至于ccc上台什么感受怕是只有猫自己知道了（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  間桐櫻  
+##### 23042#       发表于 2025-2-14 20:55
+
+得分鍋了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+1111.jpg
+(49.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:53 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/205340zcxnqincgniiib2c.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  希波兰多的诗歌  
+##### 23043#       发表于 2025-2-14 20:56
+
+<blockquote>玖羽 发表于 2025-2-14 20:51
+这个日本人的单集reaction
+
+https://www.bilibili.com/video/BV1KaKPeFE65/
+
+</blockquote>
+日本人看动画都是选择性感受的，突出一个喂啥吃啥，官方暗示这里别细想就会自动造个认知空气墙这样，很多作品环境都这样
+
+*****
+
+####  LeonsCat  
+##### 23044#       发表于 2025-2-14 20:57
+
+再想想，真就是纯粹独角兽性癖放出搞了个超级玛丽苏祥子，并且一个劲嬷吧。
+
+怎么想都非常难以理解的就是，整个剧本里谁都是一见祥子误终身，只要祥子软糯一下什么都是她是对的。最难崩的就是哭团其他四个人轮流对祥子说对不起。。。
+
+我琢磨着，你想写大祥传没问题，那就要么按照爽文来写别整天嬷，要么按照英雄传奇来写别软糯一下所有人纳头便拜。至于和乐队群像矛盾倒是小事，现实里大多数乐队就是有一个绝对核心的。
+
+*****
+
+####  jkl  
+##### 23045#       发表于 2025-2-14 20:57
+
+国内热度低点能让我下次抢票容易点吗
+
+*****
+
+####  waaaagh  
+##### 23046#       发表于 2025-2-14 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426765&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-14 20:45</a>
+
+而且以前环大陆好评是有人拿着好评来捂嘴的
+
+这次甚至都在翻找外网的差评了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就很诡异，4chan、5ch可以说是和大陆对于动画观点最一致的论坛了，以前几次环大陆好评时都能说匿名版才是真实想法。
+
+结果这次翻了半天真就找不到几个黑屁的，而且在肉眼可见爱音厨很多的情况下，也就刷刷cuck/ntr，<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">没见到几个破防的，感觉看的不是同一部番
+
+*****
+
+####  wwwttth  
+##### 23047#       发表于 2025-2-14 20:57
+
+再造点假药吧，下集大喵向美奈美询问睦的情况/质问为啥不关心睦被美奈美记恨，在节目中引导观众炎上大喵。
+
+这应该是最简单的洗白方式了。
+
+*****
+
+####  何でやねん  
+##### 23048#       发表于 2025-2-14 21:00
+
+THE FIRST TAKE要播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 23049#       发表于 2025-2-14 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第七集不管屁股演出也是灾难性的
+
+不过环大陆好评就好评吧又不是第一次了，要有文化自信
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 23050#       发表于 2025-2-14 21:01
+
+<blockquote>十九号大侠 发表于 2025-2-14 20:53
+感觉圣人厨是真的多呀</blockquote>
+wsd这么干纯粹就是虐粉提纯，最喜欢投票第六集3000票爱音800票，第七集1800票，因为这一集确实就相当于重新演了一下go正式成团前的那些事，很多团推转唯了
+
+*****
+
+####  cccpprc  
+##### 23051#       发表于 2025-2-14 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426864&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-14 20:57</a>
+
+再想想，真就是纯粹独角兽性癖放出搞了个超级玛丽苏祥子，并且一个劲嬷吧。
+
+怎么想都非常难以理解的就是， ...</blockquote>
+很喜欢坛友在第六集时的一句评价：能把天天二创入脑擅自期待擅自破防的祥厨赶尽杀绝还讨论环境一个清净
+
+现在祥厨是杀绝了，讨论环境是没法清净了
+
+
+*****
+
+####  cccpprc  
+##### 23052#       发表于 2025-2-14 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426868&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-2-14 20:57</a>
+
+就很诡异，4chan、5ch可以说是和大陆对于动画观点最一致的论坛了，以前几次环大陆好评时都能说匿名版才是 ...</blockquote>
+别到时候真的连BD销量都大爆了
+
+那我只能说虽然我不喜欢，但这事确实很有节目效果
+
+*****
+
+####  cxj649  
+##### 23053#       发表于 2025-2-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426868&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-2-14 20:57</a>
+
+就很诡异，4chan、5ch可以说是和大陆对于动画观点最一致的论坛了，以前几次环大陆好评时都能说匿名版才是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">因为大祥老师也是美少女，这是个百合美少女群像剧
+<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">这点不要忘了，这点很重要
+
+*****
+
+####  蓮華  
+##### 23054#       发表于 2025-2-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426901&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-14 21:01</a>
+
+很喜欢坛友在第六集时的一句评价：能把天天二创入脑擅自期待擅自破防的祥厨赶尽杀绝还讨论环境一个清净
+
+ ...</blockquote>
+真杀绝了？
+
+*****
+
+####  玖羽  
+##### 23055#       发表于 2025-2-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426892&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-14 21:00</a>
+
+第七集不管屁股演出也是灾难性的
+
+不过环大陆好评就好评吧又不是第一次了，要有文化自信</blockquote>
+问题是这件事太诡异了，再怎么说也不可能一边0分一边100分，即使一边排除脑补串子，另一边算上匿名版，也至少有3、40分对8、90分（当然我认为分数不至于这么低）
+
+同一集怎么会差这么大，这已经不是单纯的文化差异能解释的了
+
+*****
+
+####  zhoujin8584  
+##### 23056#       发表于 2025-2-14 21:04
+
+<img src="https://img.saraba1st.com/forum/202502/14/210432jfq967l97le1q9a9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-14-21-04-06-45_f9ee0578fe1cc94de7482bd41accb329.jpg</strong> (111.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 21:04 上传
+
+tft首播春日影
+
+*****
+
+####  jkl  
+##### 23057#       发表于 2025-2-14 21:05
+
+羊神伟大
+
+*****
+
+####  十九号大侠  
+##### 23058#       发表于 2025-2-14 21:05
+
+期待国产女女关系性？
+
+*****
+
+####  Ferrari  
+##### 23059#       发表于 2025-2-14 21:05
+
+唱得越好越反映出柿本的傻逼
+
+很想剪个对比版
+🐑明明那么努力了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 23060#       发表于 2025-2-14 21:05
+
+真富婆
+
+<img src="https://img.saraba1st.com/forum/202502/14/210543n60ikok2015k660o.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_XHS_17395382776921040g2sg31dsmobtfgmdg5odrb7q40mj4mg71rk0.jpg</strong> (114.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 21:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/210550ixls79169kup61rr.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_XHS_1739538284051.jpg</strong> (58.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 21:05 上传
+
+*****
+
+####  十九号大侠  
+##### 23061#       发表于 2025-2-14 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426897&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-14 21:01</a>
+
+wsd这么干纯粹就是虐粉提纯，最喜欢投票第六集3000票爱音800票，第七集1800票，因为这一集确实就相当于重 ...</blockquote>
+我还是第一次知道组乐队就是结婚，这真的 是邦的世界观吗
+
+*****
+
+####  希波兰多的诗歌  
+##### 23062#       发表于 2025-2-14 21:06
+
+<blockquote>aptx8285144 发表于 2025-2-14 20:39
+如果角色”道德“没有问题，那为什么编辑们让素世去抓大祥强行去见睦，日本人不会觉得大祥被“拷打”那么 ...</blockquote>
+我个人感觉，日本人作品里道德方面就是意思意思罢了，不像国人这样想理的清清楚楚吧，而且soyo生气的核心可能不是从道德角度出发，而是她认为祥子必须面对睦的问题，将其解决，是展现soyo比较务实的一面+她对其它角色的心理距离拉近，而不是说这个行为是在体现该角色的价值观，道德观
+
+soyo之前和其他人心理上是比较远距离的，很客气，或者低姿态。但是不那么客气才是她平等面对他人的一个证明，我是这样去理解这段剧情的，和道德性的关联确实不大
+
+*****
+
+####  安娜导函数  
+##### 23063#       发表于 2025-2-14 21:06
+
+WSD:有传言说CCC已经风光大葬了，我澄清一下，只有风光，没有大葬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tjshibc21  
+##### 23064#       发表于 2025-2-14 21:08
+
+有几个走音 情绪还可以 
+

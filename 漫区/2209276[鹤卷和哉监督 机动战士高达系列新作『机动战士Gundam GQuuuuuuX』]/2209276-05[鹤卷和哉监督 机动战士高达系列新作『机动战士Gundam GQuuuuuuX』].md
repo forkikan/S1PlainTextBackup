@@ -13158,3 +13158,45 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 好歹弄点Rick Dias类似物啊。</blockquote>
 目前没有可动框架技术等二代技术应用迹象。GQX本质是一台有88～91年级别新人类操控系统(新人类用OS水平我认为差不多是88年卡碧尼Mk2那个水平）+GP01FB硬件水平的机体。S6比赛都是各种老扎古。这个时期联邦后续机体没准普遍都是0083里面重甲吉姆加农II那个风格。
 
+
+*****
+
+####  psycho_Gadfly  
+##### 6936#       发表于 2025-2-14 20:55
+
+对面这三人组大受欢迎啊(
+
+<img src="https://img.saraba1st.com/forum/202502/14/205413dkzkyy5ttuu6uv5k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7676.jpeg</strong> (184.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/205413qjj6je8ek68q8j46.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7677.jpeg</strong> (203.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/205413wys0zyz0plz10nps.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7678.jpeg</strong> (147.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:54 上传
+
+作者
+
+<img src="https://img.saraba1st.com/forum/202502/14/205414gcgbfn1fc1bfabb1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7679.jpeg</strong> (159.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:54 上传
+
