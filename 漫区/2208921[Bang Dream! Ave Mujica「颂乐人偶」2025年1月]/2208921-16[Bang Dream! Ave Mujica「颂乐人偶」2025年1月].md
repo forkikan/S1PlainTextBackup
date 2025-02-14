@@ -3392,3 +3392,175 @@ soyo像这集一样直接把祥子按在地上问，我估计祥子一委屈就�
 大祥老师出于个人原因是必须得大幅度减少出席时间。 ...</blockquote>
 玩票乐队减少出席时间为什么就会解散，又没人给她们设定live的deadline
 
+
+*****
+
+####  MASKA-1  
+##### 22503#       发表于 2025-2-14 10:08
+
+mygo和mujica没法切割的，mygo其实可以说是吃了“不用解决ccc矛盾”的红利，ccc问题迟早要解决，结果就是放到mujica动画里解决。没有ccc问题答案的mygo也是不完整的。
+
+*****
+
+####  江口夕  
+##### 22504#       发表于 2025-2-14 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420409&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-14 10:05</a>
+只能说爱音教了soyo太多东西了，就该一手抓住硬拉着祥子走</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是素世模仿灯么，还跌跟头了，放后宫动画直接在大祥胸上按手印了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  刑部姬真可爱  
+##### 22505#       发表于 2025-2-14 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420380&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-2-14 10:03</a>
+
+感觉像悍匪绑架结果塞了一口饺子的微妙谐感。
+
+而且我早就想说为什么要把观众当傻逼一样使劲塞回放和内心独 ...</blockquote>
+塞了回放和内心对ccc告别的独白，依然有很多观众滑坡到踢掉爱音猫猫go解散ccc复活，没有这些独白那更是滑坡大狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 22506#       发表于 2025-2-14 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看到一个为什么爱素会被拉起来当美帝的笑话。
+爱音和素世分别是灯和祥子的轮椅，她俩事件全靠轮椅推动，10个人3个乐队总共就两把轮椅，所以怎么分配轮椅和轮椅只能分一起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 22507#       发表于 2025-2-14 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420418&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:06</a>
+玩票乐队减少出席时间为什么就会解散，又没人给她们设定live的deadline</blockquote>
+祥的意思是我个人退出，你们继续
+睦说玩乐队不开心才最终解散
+
+*****
+
+####  zzs2338645  
+##### 22508#       发表于 2025-2-14 10:10
+
+殴打是不是想太多，常态祥子能打两个soyo吧，也就趁状态不好搞搞偷袭了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 22509#       发表于 2025-2-14 10:10
+
+稍微看了下好像真的环大陆好评？日本人真的很喜欢这么演吗？
+
+*****
+
+####  ads147147  
+##### 22510#       发表于 2025-2-14 10:10
+
+为什么会觉得爱音惨，信不信下集她就拿着个标签贴在自己吉他上，标签什么写着若叶睦同款。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  真爱与热情  
+##### 22511#       发表于 2025-2-14 10:11
+
+这动画回旋镖之密集，mygo都要顶不住了，关键的一击还扎在了哭团上。如果朝凪老师去mygo片场指点一下的话，祥子甚至走不出livehouse的大门
+
+*****
+
+####  Redimercia  
+##### 22512#       发表于 2025-2-14 10:11
+
+红迪的单集讨论楼有人提了嘴说“英区和日区很满意。但中区和韩区讨厌这集”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+AD1E6C9869309A00E50F67256ED3ABCC.jpg
+(268.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 10:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/101119ffbsibmsom8fgk5v.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 22513#       发表于 2025-2-14 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420446&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-14 10:09</a>
+我看到一个为什么爱素会被拉起来当美帝的笑话。
+爱音和素世分别是灯和祥子的轮椅，她俩事件全靠轮椅推动， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有没有可能大祥轮椅本来是睦，为了包ccc的饺子强行二重人格了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  刑部姬真可爱  
+##### 22514#       发表于 2025-2-14 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420418&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:06</a>
+
+玩票乐队减少出席时间为什么就会解散，又没人给她们设定live的deadline</blockquote>
+正常人的乐队，就比如邦第一季saya的前乐队，saya由于家庭原因退出时前乐队确实没有解散，而是又找了一个新鼓手大家一起接着搞乐队
+
+但是不仅ccc抛开祥子还有两个“不正常”的人，而且祥子也确实是ccc的主心骨，解散反而很正常
+
+*****
+
+####  Prairial  
+##### 22515#       发表于 2025-2-14 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yysy把爱音T了挺好的，仔细想想看完live各回各家，打电话敷衍，几天发信息不回，这不妥妥的人厌狗嫌么
+
+这么说来月之森点子王的复团大业还是成功了吧，先找个外人组新团借壳上市，再把外人偷梁换柱成自己人，就是过程走了点弯路，结局还是好的
+
+*****
+
+####  qlipho  
+##### 22516#       发表于 2025-2-14 10:16
+
+ 本帖最后由 qlipho 于 2025-2-14 10:18 编辑 
+
+大祥本来就是‘有睦就行’，go最后整了个‘有爹就行’，现在回到‘有睦就行’的状态了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今晓天愁  
+##### 22517#       发表于 2025-2-14 10:17
+
+大家不要骂了，目前第七集播出后最合理的假药就是：初华两集没来是去祥子的宫殿把秘宝偷了，所以祥子瞬间回心转意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ml1642879  
+##### 22518#       发表于 2025-2-14 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420281&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 09:55</a>
+另外我来讲个国内和日本不同的地方吧，本子那经历过你ccc团的原型，现实原型就是早期roselia。两人退出两个 ...</blockquote>
+红发女人虽然退团结婚当皮套主播，但她真的是和平分手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22519#       发表于 2025-2-14 10:17
+
+<blockquote>Redimercia 发表于 2025-2-14 10:11
+红迪的单集讨论楼有人提了嘴说“英区和日区很满意。但中区和韩区讨厌这集” ...</blockquote>
+的确中韩的口味是比中日接近
+
+*****
+
+####  彼岸之焰  
+##### 22520#       发表于 2025-2-14 10:17
+
+感觉还可以贷款一集，前四集解散篇，中三集 c 团篇，就当前七集是交代背景，或者说献祭的，紧赶慢赶是为了给🐔团真真正正成立腾集数，还有 6 集，最多给🐶团 1 集，还有 5 集。接下来的一集头要是没开好，建议粉丝（还有吗？）可以直接备战剧场版了
+
