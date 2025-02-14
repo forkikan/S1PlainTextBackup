@@ -4082,3 +4082,13 @@ go的歌没跑了，青木还转推了
 猜一个大炒特炒今晚c团复活春日影接明晚tft春日影</blockquote>
 卧槽里的，宁愿猜错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26946#       发表于 2025-2-14 17:52
+
+TFT图真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不好评价信泽
+<img src="https://p.sda1.dev/22/ec426d74b79aed500128169c03028f50/Image_226395681524492.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f24f857051718ebf2f893cd2059ea1b6/Image_224142900837897.jpg" referrerpolicy="no-referrer">
+

@@ -8179,3 +8179,55 @@ CCC这队服搞不好是Ai画的 (
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ddy2811  
+##### 22933#       发表于 2025-2-14 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424794&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-14 16:40</a>
+
+想了一下，把c团的解散歌唱的这么难听是不是故意的，想表达就算重回过去，也会发现过去并没有那么美好？
+
+虽 ...</blockquote>
+可现在的狗和鸡就美好过C团吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果不美好，那为什么还要组？如果很美好，对C团无关的成员这么个态度是什么意思？
+
+*****
+
+####  swessia  
+##### 22934#       发表于 2025-2-14 17:49
+
+虽然早被剧透了ccc live
+
+但当时以为live重点是给祥睦一个舞台和解，毕竟少女动画嘛live能治愈一切，ccc啥的大家真不熟
+
+结果真搬上来居然是倒过来的，祥睦早和解了，ccc才是重点
+
+我承认本gop破防了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhzij111  
+##### 22935#       发表于 2025-2-14 17:53
+
+爽姐在c团笑那么开心真没必要委屈自己组狗团吧，反正话也说开了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  whzfjd  
+##### 22936#       发表于 2025-2-14 17:55
+
+不知道武士道或鸡会不会成为二次元火盆
+
+*****
+
+####  阿卵真是牛逼  
+##### 22937#       发表于 2025-2-14 17:55
+
+<img src="https://img.nga.178.com/attachments/mon_202502/14/axw3Q2v-2baqK2hT3cSrn-sg.jpg" referrerpolicy="no-referrer">
+
