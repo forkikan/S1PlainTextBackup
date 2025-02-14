@@ -9237,3 +9237,133 @@ mygo虽然没老邦那么多人，不过4 7 11几场多人戏都拍得不错的�
 
 假藥好歹也有個藥字
 
+
+*****
+
+####  MASKA-1  
+##### 23030#       发表于 2025-2-14 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426608&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-14 20:26</a>
+
+最神秘的是CCC上台了之后猫不就在台下吗，前一个镜头刚说的话，下一个镜头直接忘了
+
+你干脆就别让猫出现呗 ...</blockquote>
+我觉得这里是为了表现一种ccc表演只是mygo排练的插曲，所以把mygo成员都安排在现场，或者说是为了不让anon一个人在台下看着上面5个人显得太孤独，把猫拉过来和她搭着。反正很不对味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 23031#       发表于 2025-2-14 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426575&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-2-14 20:21</a>
+
+太诡异了，以前环大陆好评起码5厕4厕也能共鸣下，这次是真的找不到可以统一战线的 ...</blockquote>
+而且以前环大陆好评是有人拿着好评来捂嘴的
+
+这次甚至都在翻找外网的差评了
+
+我只能说大受震撼
+
+*****
+
+####  小博禹  
+##### 23032#       发表于 2025-2-14 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425999&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-14 18:58</a>
+母鸡卡的剧情已经不抱期待了，接下来能看见会动的睦祥就够了，剩下就是看看手游剧情能不能发点糖
+
+啊还有究 ...</blockquote>
+下集还有木箱教培，可以剑指了<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 23033#       发表于 2025-2-14 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426732&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 20:40</a>
+
+以文艺作品标准去要求的话，我更不懂为什么前三四集大家的期待值是在上升而不是下降，最疯狂的就是围绕解散 ...</blockquote>
+这倒很正常
+
+哪怕京吹三第12集成那样了，依然有人抱有希望
+
+然后被PPT全国金给干碎了
+
+*****
+
+####  JustW  
+##### 23034#       发表于 2025-2-14 20:47
+
+<blockquote>南宮凝香 发表于 2025-2-14 20:44
+因為不想承認等了一年的就這東西呀
+
+不停出假藥就因為是個人都感到這劇本要死了
+</blockquote>
+说到底还是只能推锅给延迟放送和大炒特炒的wsd、b站，比如b站特供红白字幕可以说就是为了刺激观众造假药
+
+*****
+
+####  zhoujin8584  
+##### 23035#       发表于 2025-2-14 20:49
+
+单集脚本首当其冲吧，细节上缺乏雕琢已经是没跑的了。
+
+
+*****
+
+####  玖羽  
+##### 23036#       发表于 2025-2-14 20:51
+
+ 本帖最后由 玖羽 于 2025-2-14 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426666&amp;ptid=2208921" target="_blank">希波兰多的诗歌 发表于 2025-2-14 20:32</a>
+
+大致看了一下上面x链接里日本那边的评论，大致分为两种
+
+一种是认为两国文化差异导致观众在感受性上有差别， ...</blockquote>
+这个日本人的单集reaction
+[https://www.bilibili.com/video/BV1KaKPeFE65/](https://www.bilibili.com/video/BV1KaKPeFE65/)
+
+他的反应就是单纯的“啊，Crychic又在一起演奏了最后一场，好感动”（哭了）
+
+我有一种强烈的异世界的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  zhoujin8584  
+##### 23037#       发表于 2025-2-14 20:51
+
+说到底猫只是话少罢了，你以为她心里不是跟爱音想的一样，挺好的，舞台让给你们ccc，但别搞mygo吗？
+
+*****
+
+####  sauron.j  
+##### 23038#       发表于 2025-2-14 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426666&amp;ptid=2208921" target="_blank">希波兰多的诗歌 发表于 2025-2-14 20:32</a>
+
+大致看了一下上面x链接里日本那边的评论，大致分为两种
+
+一种是认为两国文化差异导致观众在感受性上有差别， ...</blockquote>
+你说的这点别地也总结过，就是用做题家思维评判文艺作品，先心中假定一个唯一的解，如果不合自己意就要狠狠扣分
+
+先不管作品本身烂不烂，经常用这个思路看番挺难获得快乐的
+
+*****
+
+####  Devola  
+##### 23039#       发表于 2025-2-14 20:53
+
+太君没品是太君的事情
+花时间吃屎骂两句值得柜子大惊小怪么<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+美爹骑在小日子头上拉屎的时候也没见嚷嚷啊
+
+*****
+
+####  十九号大侠  
+##### 23040#       发表于 2025-2-14 20:53
+
+感觉圣人厨是真的多呀
+
