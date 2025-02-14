@@ -10173,3 +10173,238 @@ anon代表的mygo，就是这个当事人的“现任”，大祥代表的ccc就
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刑部姬真可爱  
+##### 23115#       发表于 2025-2-14 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427331&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-14 21:45</a>
+
+我靠，旁边这个莫小姐是啥，石头吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+香包之类的缝制品吧
+
+*****
+
+####  raii  
+##### 23116#       发表于 2025-2-14 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427324&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-14 21:44</a>
+
+关于爱音这个事其实解释起来就是很简单的一句话，就是“你的成熟恰好成了委屈”。
+
+而对于大部分的国人来 ...</blockquote>
+对对对，我个人是不赞同这种想法的，从我看来她本人是没有必要委屈的，反而是戏外的看客在替她说“你怎么可以不受委屈，凭什么别人闹得，你就闹不得”这我觉得是有点过了
+
+*****
+
+####  ykyin09  
+##### 23117#       发表于 2025-2-14 21:48
+
+你们不如加个披风去打revue吧
+
+*****
+
+####  595505568  
+##### 23118#       发表于 2025-2-14 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427355&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-2-14 21:48</a>
+你们不如加个披风去打revue吧</blockquote>
+为什么不呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23119#       发表于 2025-2-14 21:50
+
+GOP 經過一年的煉蠱，
+
+基本上是環大陸純度最高的
+
+B站的炒作也是環大陸烈度最高
+
+兩者相加就是這樣
+
+在親友團中當外人應該是每個人都有的經歷
+
+愛音這事要說也是小事
+
+不上秤四兩沒有
+
+但上秤了就千斤也打不住
+
+加上這季水平低下， 連內部自我反制的能力也沒有
+
+那聲勢不停疊起來就是這樣
+
+WSD 自求多福吧
+
+*****
+
+####  是谁的书画  
+##### 23120#       发表于 2025-2-14 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427354&amp;ptid=2208921" target="_blank">raii 发表于 2025-2-14 21:48</a>
+
+对对对，我个人是不赞同这种想法的，从我看来她本人是没有必要委屈的，反而是戏外的看客在替她说“你怎么 ...</blockquote>
+哪能怎么办呢，我觉得只能说制作太烂了，所以才会让观众有这样的想法，这根本不是观众的错。
+
+制作组但凡能够意识到哪怕一点点这样的情况，也不至于会塑造出这样的一个mygo和属于它的爱音。
+
+
+*****
+
+####  ccared  
+##### 23121#       发表于 2025-2-14 21:52
+
+爱音可以选择相信队友，但她被盐对应这件事本身让观众质疑go团的法理正统，开始不安。
+
+说白了go团对于大部分狗友来说是货真价实的“年轻人的第一个少女乐队”，你现在告诉他们这个年一乐队没有什么海枯石烂的团魂可言，动画本质是个带货片，ccc当然也可以复活被拿出来带货，这件事直接冲击他们三观了。
+
+就好比只看过迪迦的小朋友突然发现在什么联动舞台剧圆谷的大手迪迦垫给路边了，小朋友也会破防的。
+
+*****
+
+####  最强惠酱  
+##### 23122#       发表于 2025-2-14 21:52
+
+你这tft版本唱这么好用了怎么插独白<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莱茵哈鲁特  
+##### 23123#       发表于 2025-2-14 21:53
+
+原来你会唱歌啊
+
+*****
+
+####  cccpprc  
+##### 23124#       发表于 2025-2-14 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427311&amp;ptid=2208921" target="_blank">raii 发表于 2025-2-14 21:42</a>
+
+从路人的角度来看，anon这个最社会化，心理状态最正常的人，
+
+因为相信“就算把乐队3个人给出去”那也只是给 ...</blockquote>
+所以我是不赞成把爱音比成黄部长的
+
+她更类似一个约定好和战友一起平安归来的飞行员。为了不贻误战机宁可抗命（抛弃GO团团魂）也要坚持出击，最后为了保护战友又把自己送了（两首歌帮助C团遗老解开心结）。
+
+*****
+
+####  一心而用  
+##### 23125#       发表于 2025-2-14 21:53
+
+lyy老师的情人节爱素
+<img src="https://p.sda1.dev/22/512d4208b79614685e115fef23f397ee/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8fc103a1983ba017a1f9723a781c4ea2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d0f0da9560e737c085bdbb4aad431fee/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/792af9709099e6b1cb15f0c0fc88bccd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 23126#       发表于 2025-2-14 21:54
+
+我是无法理解看队友叙旧是怎么滑坡到各种委屈的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 23127#       发表于 2025-2-14 21:54
+
+<blockquote>希波兰多的诗歌 发表于 2025-2-14 21:40
+没看过cbm，不清楚…！
+
+mygo制作还是非常好的吧，可以拉到受众以外的观众还获得大好评（比如我）
+</blockquote>
+我想了一下，cbm会不会是…赤坂明？可能说的是推子完结在X上被日本人炎上了吧。
+
+（这拼音简写…）
+
+*****
+
+####  杂灰  
+##### 23128#       发表于 2025-2-14 21:54
+
+独角兽这现在一集单人负责脚本都没负责，真有细节问题也赖不到她头上吧，我还觉得每集大纲单独提炼出来都觉得也不是没有拍好的方法，但一落实成动画后脚本演出音监都是一坨
+现在鸡给我感觉剧本组根本抓不住人物形象和内心，他们自己都维持不了故事中的形象更别说推进，一卡壳就直接照搬刻板印象通通回撤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某种程度上还真需要独角兽多写写，至少她肯定知道自己写的人物内心走势，隔几集写一集我觉得是有利于其他脚本维持人物形象
+
+*****
+
+####  安娜导函数  
+##### 23129#       发表于 2025-2-14 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427104&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 21:19</a>
+就算以2.5次元的企劃來說
+
+CCC 也是不知所謂</blockquote>
+只能说bsr只会烂炒，整个第七集就是CCC三次元重组的广告片罢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 23130#       发表于 2025-2-14 21:54
+
+小猫跑掉不参加彩排的原因
+[https://b23.tv/nfVThSN](https://b23.tv/nfVThSN)
+<img src="https://p.sda1.dev/22/27017032d3be3008f7b9def77c6a284d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/98cf9578784635435a5a9ea6c948629a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0d3e13e04bd759f8b172d265712d0b65/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  希波兰多的诗歌  
+##### 23131#       发表于 2025-2-14 21:55
+
+<blockquote>是谁的书画 发表于 2025-2-14 21:44
+关于爱音这个事其实解释起来就是很简单的一句话，就是“你的成熟恰好成了委屈”。
+
+而对于大部分的国人来 ...</blockquote>
+这个是观众自己的感受性问题了
+
+我看完唯一感觉就是阿农你做什么都会成功的……
+
+而且她帮忙就是为了看人和好吧，和好了阿农就满意了，我都不认为她这个举动有什么目的性（比如让mygo更稳定），就是一个善良女孩正常同理心运作………
+
+而且这个角色和别人都有很健康的心理距离，她对他人并不依赖，甚至自己的心理阴影都是：“我没办法独立解决难关”
+
+如果不拍部东京阿农解决外部（社会现实方面的）问题，定位注定就是帮别人吧……因为目前为止这些角色都是只解决内在问题，等级不一样
+
+*****
+
+####  aptx8285144  
+##### 23132#       发表于 2025-2-14 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427354&amp;ptid=2208921" target="_blank">raii 发表于 2025-2-14 21:48</a>
+
+对对对，我个人是不赞同这种想法的，从我看来她本人是没有必要委屈的，反而是戏外的看客在替她说“你怎么 ...</blockquote>
+很简单，因为国内很容易想到京吹的黄部长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且还有一个原因，爱音在这群人里面形象相对完美（其他人的精神状态太容易陷入低迷或单一强硬（立希），或者像猫猫那样不容易轻易代入）很容易让普通人们共情
+
+*****
+
+####  希波兰多的诗歌  
+##### 23133#       发表于 2025-2-14 21:56
+
+<blockquote>JustW 发表于 2025-2-14 21:54
+我想了一下，cbm会不会是…赤坂明？可能说的是推子完结在X上被日本人炎上了吧。
+
+（这拼音简写…） ...</blockquote>
+谢谢补充！
+
+推子太难看很早就弃了，所以也是不清楚具体情况
+
+*****
+
+####  z-hunter  
+##### 23134#       发表于 2025-2-14 21:57
+
+我前面就说了爱音的“委屈”其实就是这集的演出和细节出了问题，样板化剧情加上不说人话惜字如金叠加效果拔群
+
+很难怪有人会觉得爱音是“受委屈”了，虽然理智的人能看出编剧的本意不是想这样表达的，所以就很搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过爱音估计应该也到谷底了，接下来动画里应该没有戏份了，只能等待游戏里GO的团活和新卡的卡面故事会有什么作妖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
