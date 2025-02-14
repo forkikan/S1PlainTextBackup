@@ -1631,3 +1631,13 @@ Takachan会来吗？  
 
 撸狗都是这样的
 
+
+*****
+
+####  sino__unnko3  
+##### 17998#       发表于 2025-2-14 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419504&amp;ptid=2018830" target="_blank">术士q 发表于 2025-2-14 08:50</a>
+163邮箱倒是可以正常收到确认邮件，但是在号码绑定上花了很多时间，国内号码比较难收到信息，六点开始找 ...</blockquote>
+老哥咋搞定的，绑了虚拟号码吗还是用啥方法绑了＋86的号，网上教程尝试了不少均未收到验证码
+
