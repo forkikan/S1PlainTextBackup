@@ -4124,3 +4124,25 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  YESIARE  
+##### 400#       发表于 2025-2-14 22:07
+
+ 本帖最后由 YESIARE 于 2025-2-14 22:10 编辑 
+
+听完tft版和解了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真爱与热情  
+##### 401#       发表于 2025-2-14 22:09
+
+ 本帖最后由 真爱与热情 于 2025-2-14 22:10 编辑 
+
+难绷，这集演出问题比剧情的大多了，倒不如说剧情也不是不行，但真就是按着所有人的头推进剧情啊
+

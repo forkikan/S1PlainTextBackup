@@ -10555,3 +10555,199 @@ ccc包复辟的，手游又很擅长刻板印象塑造<img src="https://static.s
 
 很好奇爱厨有滑坡的想象力，为什么没有爱音相信队友不会因为CCC放弃mygo所以推队友去和解CCC的想象力呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 23146#       发表于 2025-2-14 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426727&amp;ptid=2208921" target="_blank">不定学研 发表于 2025-2-14 20:39</a>
+
+我认为故事安排在逻辑上是对的，但表现出来不好。
+
+小祥的故事线：母亲逝世--被乐队感动--组c团--父亲拉跨 ...</blockquote>
+然而第五集的长时间沉默之后“好讨厌自己”是本季目前为止唯一有水准的演出
+
+第七集像旁白一样念心声才是拉完了
+
+*****
+
+####  FanFun  
+##### 23147#       发表于 2025-2-14 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427497&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 22:04</a>
+
+你幻想一下你約好了車隊打鎖匙的時間隊友突然說要跟舊朋友耍， 要你等二十分鐘？ ...</blockquote>
+我已经事先知道这旧友对我朋友很重要了，而且近期我朋友对和旧友的人际关系很苦恼。眼前有机会让他们和好，我当然乐意等啊，还会很为我朋友高兴。
+
+为什么会觉得等二十分钟算委屈<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有时候等公交都不止这时间了
+
+*****
+
+####  南宮凝香  
+##### 23148#       发表于 2025-2-14 22:10
+
+<blockquote>嵇翱u 发表于 2025-2-14 22:08
+很好奇爱厨有滑坡的想象力，为什么没有爱音相信队友不会因为CCC放弃mygo所以推队友去和解CCC的想象力呢。 ...</blockquote>
+因為從第二話開始已經一個半月沒吃過糖了？
+
+關係這種東西，問為什麼不相信是沒意義的
+
+*****
+
+####  厚乳果珍爽  
+##### 23149#       发表于 2025-2-14 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滑坡到爱音心情不好受的，报一下年纪吧，没超过25我就原谅你了。
+
+*****
+
+####  是谁的书画  
+##### 23150#       发表于 2025-2-14 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427421&amp;ptid=2208921" target="_blank">希波兰多的诗歌 发表于 2025-2-14 21:55</a>
+
+这个是观众自己的感受性问题了
+
+我看完唯一感觉就是阿农你做什么都会成功的……</blockquote>
+哪怕是单纯为了气氛没那么尴尬，这也是行动的目的，是剧中爱音自我意志的驱使。
+
+这是你的视角下，以爱音为主人格，考虑到她的行动目的，这一切很合理，她是个体贴的女孩。
+
+但你要考虑到，再另外一些人的视角下，是以他者来进行评判的，是对于所有人在事件中收获的衡量。他们是舞台中的幽灵，旁观的第三者。
+
+在他们心中，整个舞台的人需要达成一种均衡的状态，稳定而和谐。那么在此情景下，爱音作为尤为突兀的第三者，是会被额外进行心理考虑的，他们会比尺测量此人在事件中的得失，而且是绝对主观的。
+
+如果你是以评价爱音内心驱使力的角度来评价第三者主观衡量行动的得失，那便不会成为一个等式。
+
+当然，每个第三者的评价标准不同，可能你的评价是只要爱音达到内心的满足的足够了。可能另外一个人则觉得说，行动需要获得外在的反馈，在这个场合下就可能是同伴更为亲昵的表现。
+
+无论哪边都是对的，因为观众看动画没有义务要去理解一个角色的行动，他们只需要给出自我评判就行。
+
+我对这个事情保持客观，我的角度就是，如果编剧能够理解到这个层面，也不会制造出这样的一个场面出来。不过爱音在mujica里本来就是工具人属性，或许编剧就没有在意过这些。
+
+
+*****
+
+####  aptx8285144  
+##### 23151#       发表于 2025-2-14 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427494&amp;ptid=2208921" target="_blank">raii 发表于 2025-2-14 22:04</a>
+
+太完美的人让人共情吗，我一直以为共情就要共情那些有毛病有缺陷的人，毕竟真在现实里谁看得见你，谁又关 ...</blockquote>
+刚才可能用词不当，应该说是“喜欢”，其实还有一个更深层次的原因，鸡团的神人太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 23152#       发表于 2025-2-14 22:13
+
+<blockquote>玖羽 发表于 2025-2-14 21:59
+属于是跟制作组共鸣了。
+
+很简单，你要是真的相信诗超绊的奇迹和MyGO团魂，你就不会觉得Crychic办个葬礼 ...</blockquote>
+关系性不是多脆弱的东西，但关系性“独特的幻觉”确实是一个一戳就破的泡沫。普通观众在第一次接触的时候一定认为吸引自己的是一个“最特别的关系性”，认知中会反过来为这份关系性赋魅。
+
+对普通观众来说，第七集戳破了go团“最特别的”幻觉。爱素依然可以成立，但祥对素会是更特别的人么；狗团依然可以成立，但go团对于c团遗老来说能超过ccc的美好回忆么。
+
+只要不是最特别的，初见的幻觉就破碎了，年一乐队的观众不可能接受狗相对其他邦企划而言并没有那么特别，只是带货片带的货之一这个现实。
+
+*****
+
+####  Суслов  
+##### 23153#       发表于 2025-2-14 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427524&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-14 22:08</a>
+
+很好奇爱厨有滑坡的想象力，为什么没有爱音相信队友不会因为CCC放弃mygo所以推队友去和解CCC的想象力呢。 ...</blockquote>
+爱音敢相信队友，爱音厨敢相信制作组吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 23154#       发表于 2025-2-14 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427212&amp;ptid=2208921" target="_blank">希波兰多的诗歌 发表于 2025-2-14 21:30</a>
+
+我觉得国内（刨除掉发狂的百合厨和角色黑）一些批评还是很有参考性的，因为国内很多人评论会假设自己是作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">母鸡卡这里其实并不是什么文化差异233
+
+*****
+
+####  LeonsCat  
+##### 23155#       发表于 2025-2-14 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427495&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-14 22:04</a>
+
+其实炸团后这几集下来我倒是还真觉着故事脉络中规中矩问题不大。在一个炸团后挨个拉人回来的故事里面，最应 ...</blockquote>
+所以不管老C团还是爱音乐奈，是欠了祥子的？
+
+整个AM动画，甚至加上前面的MyGO，最大的问题就是制作方纯粹的性癖放出。这都2023-2025年了，还搞80年代的玛丽苏，池田理代子那时候都不流行了啊哥……
+
+*****
+
+####  帝下室の年糕  
+##### 23156#       发表于 2025-2-14 22:14
+
+第七集的问题:
+祥子的心路转变是不是太简略了？
+木箱的和解过程太对不起前面这么多集的铺垫了吧？
+LIVE的表现方式也值得商榷
+卧槽什么叫爱音GEGE受委屈了？
+
+*****
+
+####  zhoujin8584  
+##### 23157#       发表于 2025-2-14 22:14
+
+多少有点爱祥学长合流，再次旗帜鲜明的反对皮套自己的极端言论
+
+<img src="https://img.saraba1st.com/forum/202502/14/221311gpd0lzwlmpm401p0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-14-22-06-54-90_149003a2d400f6adb210d7e357a3a646.jpg</strong> (26.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 22:13 上传
+
+*****
+
+####  595505568  
+##### 23158#       发表于 2025-2-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427589&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-14 22:14</a>
+多少有点爱祥学长合流，再次旗帜鲜明的反对皮套自己的极端言论</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你知道我发现第七话后突然素世一直高强度被车的时候，我想到的是什么嘛，有谁回来了
+
+*****
+
+####  帝下室の年糕  
+##### 23159#       发表于 2025-2-14 22:17
+
+粉毛之外都是÷嘛
+
+<img src="https://img.saraba1st.com/forum/202502/14/221701mge1nvjffnjxel86.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-14 195830.png</strong> (52.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 22:17 上传
+
+*****
+
+####  woui003woui  
+##### 23160#       发表于 2025-2-14 22:17
+
+tft版真的唱很好吗，对羊的要求是不是也太低了……
+
+
+*****
+
+####  是谁的书画  
+##### 23161#       发表于 2025-2-14 22:17
+
+我先说好嗷，我可没觉得爱音受委屈，那种环境下做这个事情是正常社会人的人之常情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是不代表大部分心理生理年龄不超过25的农厨会怎么觉得，至于大多数狗友的年龄段是什么我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
