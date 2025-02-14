@@ -11574,3 +11574,51 @@ anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推�
 
 搞不懂的是这话开场拉人一起翘课尾随就是为了给莫老师念电影台词现场凑够人头吗<img src="https://static.saraba1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 23238#       发表于 2025-2-14 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428061&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-14 23:15</a>
+
+当时声优访谈里说会有丰川家的黑暗，我真的忍不住想后面不会真有jk斗财阀的情节吧 ...</blockquote>
+问题是现在都第7话了，斗财阀还只是作为某种猜想出现，老登的镜头就这么点，<strong>已经很少看到一个重要反派存在感<strong>如此不上不下的季番</strong><img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  zhzij111  
+##### 23239#       发表于 2025-2-14 23:20
+
+声优还说看这么个玩意看哭了呢，我看老登的迈巴赫也挺黑暗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 23240#       发表于 2025-2-14 23:21
+
+说句难听的 初华人气已经是鸡团垫底了，谷价更是垫底
+
+
+*****
+
+####  天空塔书记官  
+##### 23241#       发表于 2025-2-14 23:25
+
+就怕现在是没戏分，之后就是塑造爆了啊
+
+想想哪个会更可怕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 23242#       发表于 2025-2-14 23:26
+
+有一说一这老登简直开明的可怕，散养一年好不容易拉回来的小祥又光明正大溜出去跟她那群乐队姐妹鬼混，天天玩睦门立雪他都不管的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

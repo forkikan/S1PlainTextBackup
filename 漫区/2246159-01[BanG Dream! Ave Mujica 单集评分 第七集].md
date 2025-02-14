@@ -4184,3 +4184,13 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 CCC版的春日影全曲已经在GO动画BD下卷里发售了啊</blockquote>
 啊你说的对，我看apple music上没有，还以为一直没出专辑
 
+
+*****
+
+####  hac0101  
+##### 406#       发表于 2025-2-14 23:26
+
+0 欠火候。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
