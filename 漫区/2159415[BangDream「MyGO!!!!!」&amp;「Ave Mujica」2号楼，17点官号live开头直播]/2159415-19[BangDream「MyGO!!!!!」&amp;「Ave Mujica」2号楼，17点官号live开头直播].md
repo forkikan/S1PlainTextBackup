@@ -4138,3 +4138,21 @@ TFT绝对不是只能唱一遍，不相信杨姐的发挥
 
 上first take了啊，原来大家都是美少女。
 
+
+*****
+
+####  紫吹兰  
+##### 26951#         楼主| 发表于 2025-2-15 04:55
+
+<img src="https://img.saraba1st.com/forum/202502/15/045334k9qp4puol1evqzqp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>78e6243f2826c48d.jpeg</strong> (38.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 04:53 上传
+
+独角兽在23年切割后唯一一次转发邦邦动态……结果还是删了。
+
+不过说到底她还是忘不了春日影毕竟独角兽在mygo亲自写的四回1/3/7/13里除了一头一尾就是两次春日影，大概这也是她对邦企划最后的念想。
+
