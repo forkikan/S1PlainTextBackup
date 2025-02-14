@@ -1040,3 +1040,11 @@ animal well拿到了game direction，是重量级奖项
 animal well拿到了game direction，是重量级奖项</blockquote>
 你看看提名的竞争对手
 
+
+*****
+
+####  kuarwbwe  
+##### 94#       发表于 2025-2-14 15:39
+
+那我估计gdc也稳了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
