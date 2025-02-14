@@ -13144,3 +13144,17 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 明天就能看到新特典了
 
+
+*****
+
+####  Steel.Haze  
+##### 6935#       发表于 2025-2-14 19:38
+
+ 本帖最后由 Steel.Haze 于 2025-2-14 19:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420058&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-14 09:39</a>
+
+0085就别再折腾09R这老骨头啦
+
+好歹弄点Rick Dias类似物啊。</blockquote>
+目前没有可动框架技术等二代技术应用迹象。GQX本质是一台有88～91年级别新人类操控系统(新人类用OS水平我认为差不多是88年卡碧尼Mk2那个水平）+GP01FB硬件水平的机体。S6比赛都是各种老扎古。这个时期联邦后续机体没准普遍都是0083里面重甲吉姆加农II那个风格。
+

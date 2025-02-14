@@ -1149,3 +1149,15 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
  ...</blockquote>
 小机器人能和野炊，老头环，博德3一个水平就真见鬼了
 
+
+*****
+
+####  kuarwbwe  
+##### 103#       发表于 2025-2-14 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426198&amp;ptid=2210743" target="_blank">lilisipis 发表于 2025-2-14 19:23</a>
+小机器人能和野炊，老头环，博德3一个水平就真见鬼了</blockquote>
+这东西看同年游戏水平啊。不过被黑神话截胡说明确实不配和这几个大满贯一个地位呗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
