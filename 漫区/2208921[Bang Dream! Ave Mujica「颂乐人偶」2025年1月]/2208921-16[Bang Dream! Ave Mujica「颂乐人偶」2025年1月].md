@@ -11622,3 +11622,42 @@ anon让舞台给人划句号单从要包饺子这个结果来看算是顺水推�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AnnieLeonhart  
+##### 23243#       发表于 2025-2-14 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427978&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-2-14 23:04</a>
+
+说实话，我都有跟了巨人9年然后突然告诉我艾伦亲手指挥他马被吃这种经历了，对什么草蛇灰线什么剧情合理性 ...</blockquote>
+别说，母鸡卡ed那个文艺复兴水彩画美术风格效果确实挺好的，
+
+只是第一眼就想起了同样效果很好那个中世纪早期和炭笔画ed，隐约有点ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 23244#       发表于 2025-2-14 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428061&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-14 23:15</a>
+
+当时声优访谈里说会有丰川家的黑暗，我真的忍不住想后面不会真有jk斗财阀的情节吧 ...</blockquote>
+怎么就不能是海猫鸣泣之时呢
+
+*****
+
+####  KLHgg  
+##### 23245#       发表于 2025-2-14 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦妈也是重量级啊，连续三集不出场，主角团里都没人想过联系睦妈调解睦
+
+下集喵梦要找人睦妈又能冒出来了
+
+*****
+
+####  ntrntr1  
+##### 23246#       发表于 2025-2-14 23:34
+
+睦家女仆，祥子司机：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
