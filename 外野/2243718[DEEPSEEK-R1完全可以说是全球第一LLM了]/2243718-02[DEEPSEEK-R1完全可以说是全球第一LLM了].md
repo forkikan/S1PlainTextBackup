@@ -4267,3 +4267,14 @@ DeepSeek 更新官方 Prompt 最佳实践<img src="https://static.saraba1st.com/
 话说大家有用过派欧那边的ds吗？之前看人说派欧是满血版，然而刚才看到尼姑庵有人说派欧也有阉割？ ...</blockquote>
 不太行，感觉写东西明显生硬
 
+
+*****
+
+####  秦南心  
+##### 1854#       发表于 2025-2-14 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425527&amp;ptid=2243718" target="_blank">colice 发表于 2025-2-14 17:52</a>
+
+火山云在chatbox里连接api以后，输入内容提示Network Error: Failed to fetch是啥情况？按步骤来的啊，难 ...</blockquote>
+听起来像是模型id没填对位置
+
