@@ -8904,3 +8904,76 @@ mygo虽然没老邦那么多人，不过4 7 11几场多人戏都拍得不错的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zhoujin8584  
+##### 23003#       发表于 2025-2-14 20:14
+
+所以有人好奇灯为啥没被霸凌而是成为了班级吉祥物，是不是你邦邦世界观太温暖了。就从mygo剧情来说她小时候反而是会被误会是霸凌方的那个……
+
+*****
+
+####  影伴光生  
+##### 23004#       发表于 2025-2-14 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不是在于多打磨了一年还能端出来这几集烂活吗，早点放还能祛魅
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 23005#       发表于 2025-2-14 20:16
+
+期待下一部女女关系性爆款大作
+
+*****
+
+####  MASKA-1  
+##### 23006#       发表于 2025-2-14 20:20
+
+重新看了一遍第七集，从开头素世拉祥子去找睦，到睦祥和解，再到ccc成员在睦家坦白和解都是比较顺畅的，到灯拿笔记本给大伙看这里都一切正常。但是从这里到ccc上台演奏的推进就很怪味了，anon主动给吉他，说因为猫不在所以你们上去唱吧，这里除了编剧的大手还能说啥。要是ccc的戏份就到这里，大家看完笔记本，素世笑，大伙也笑了，都知道这是c团的歌，但是c团永远没机会唱这首歌了，然后mygo开始排练，睦祥海三人在底下看，海铃说你们旧情修好了，现在我们也来重组吧，我觉得这集大概就没人骂了。
+
+<img src="https://img.saraba1st.com/forum/202502/14/201912asym1f7cqz3bm6fm.png" referrerpolicy="no-referrer">
+
+<strong>RNM2VF093R2P91FO1F9{AT0.png</strong> (462.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:19 上传
+
+
+*****
+
+####  十万年魂环  
+##### 23007#       发表于 2025-2-14 20:21
+
+还有半程呢，现在就要跳车了吗<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  waaaagh  
+##### 23008#       发表于 2025-2-14 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">太诡异了，以前环大陆好评起码5厕4厕也能共鸣下，这次是真的找不到可以统一战线的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23009#       发表于 2025-2-14 20:22
+
+立希最難頂的一定是成人橋上那完全會錯意的應當回應
+
+這季的編劇對角色是沒愛的
+
+只會不停抓著一個模板來複讀
+
+燈是只看一個點的
+
+愛音是要空轉的
+
+立希是會錯意的
+
+祥是軟爛的
+
