@@ -13043,3 +13043,14 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Toby_dak  
+##### 6927#       发表于 2025-2-14 09:39
+
+0085就别再折腾09R这老骨头啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+好歹弄点Rick Dias类似物啊。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

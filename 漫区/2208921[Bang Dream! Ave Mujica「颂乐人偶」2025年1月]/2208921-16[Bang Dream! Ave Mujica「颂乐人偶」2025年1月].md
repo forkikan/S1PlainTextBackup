@@ -2891,3 +2891,149 @@ cp厨美化？毒唯擅自脑内美化又擅自破防吧，不如说我觉有些
 
 —— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  北条早苗  
+##### 22454#       发表于 2025-2-14 09:35
+
+牢莫当然就不能这样死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">
+但是哭来兮苦的戏份只能让睦头来演，只能临时把方向盘给睦头来开了。牢莫的问题肯定要轮到母鸡卡主场来解决
+
+*****
+
+####  虚无缥缈的分身  
+##### 22455#       发表于 2025-2-14 09:36
+
+初华的孪生姐妹快出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 22456#       发表于 2025-2-14 09:37
+
+217话 情人节派对
+
+画师：森闲 
+<img src="https://p.sda1.dev/22/ff90c503bd3432180a331f1f30d352a4/QQ图片20250214093600.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  废都刽子手  
+##### 22457#       发表于 2025-2-14 09:37
+
+<blockquote>江口夕 发表于 2025-2-14 09:26
+我来讲讲为什么吧，pjsk人设讨喜。武士道人设不行。没有一开播就一眼好让阿宅守护笑容的角色。以前老团也 ...</blockquote>
+日本烤哪个团最火啊？也和国内一样是25时吗？
+
+*****
+
+####  南宮凝香  
+##### 22458#       发表于 2025-2-14 09:37
+
+還是細節太爛
+
+C 團完後換一個人把愛音拉上台迫她排練
+
+讓老莫出來給小喵一個拜拜
+
+這集體驗可以提升0.5 分
+
+*****
+
+####  DD-963  
+##### 22459#       发表于 2025-2-14 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419775&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-14 09:18</a>
+
+海子姐最后那句明显是在讽刺吧</blockquote>
+可以这么理解，海玲看到祥睦和好这一段，会更加确定AM就是两个大小姐闹着玩的，吵架了就解散。和好了又回到组团前。
+
+*****
+
+####  dc5281  
+##### 22460#       发表于 2025-2-14 09:38
+
+我还挺喜欢c团的，可鸡狗企划里c团确实尴尬
+
+c团解散的还是太强行了，要说只是普通乐队，那狗好像也没什么特殊但就一辈子了，鸡就不提了
+
+而且像立希自白里说的c团是当时她需要的，那不就是在正确时间遇到正确乐队
+
+现在成了5个人都喜欢c团但必须风光大葬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 22461#       发表于 2025-2-14 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420032&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-2-14 09:37</a>
+日本烤哪个团最火啊？也和国内一样是25时吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是25
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22462#       发表于 2025-2-14 09:41
+
+所以C团的事情最好就是出一个剧场版吧，从元和2年成立解散到元和3年下葬
+
+*****
+
+####  莉缇娅  
+##### 22463#       发表于 2025-2-14 09:41
+
+别别别，pjsk还是有团魂的，别的不说最潮最in的25时能为了团员的家庭问题硬钢好多期活动
+
+鸡团现在只会让人觉得这群人还硬凑干嘛。
+
+*****
+
+####  天空塔书记官  
+##### 22464#       发表于 2025-2-14 09:42
+
+回到剧情本篇，真正的问题不是这几集的演出有多烂，而是对企划方这种“自我感动”式的演出方式能不能把ave真正的谜底圆回来产生的质疑，现在我们已经吃到了“怪味饺子”，但仍然没有看到为包饺子解决的那瓶醋，也不排除之后会有“大反转”，实现剧情逆升的可能，但就目前这种一切让位给噱头和线下炒作的企划安排，我很怀疑之前的伏笔能不能与之后的CG回收达成自洽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 22465#       发表于 2025-2-14 09:42
+
+狗团还是兴趣乐队吧，几个人在live house玩票。
+
+c团和狗性质倒也差不多。
+
+*****
+
+####  MuramasaSP  
+##### 22466#       发表于 2025-2-14 09:43
+
+自己喜欢不喜欢和动画是不是做坏了确实不一样。
+
+我还是很喜欢mujica，但我觉得它是kuso anime。
+
+*****
+
+####  莉缇娅  
+##### 22467#       发表于 2025-2-14 09:43
+
+都是粉毛都是美帝cp，如果mzk发信息被ena无视我都不敢想sega推要被冲多少条。
+
+*****
+
+####  江口夕  
+##### 22468#       发表于 2025-2-14 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420108&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-2-14 09:41</a>
+别别别，pjsk还是有团魂的，别的不说最潮最in的25时能为了团员的家庭问题硬钢好多期活动
+
+鸡团现在只会让人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能要的就是这个硬凑味，团魂已经过时了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
