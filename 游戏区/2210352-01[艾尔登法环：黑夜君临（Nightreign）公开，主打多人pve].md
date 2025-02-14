@@ -2245,3 +2245,11 @@ ps有人连上的吗
 
 据说xbox版链接就没啥问题，但问题是很多人没xbox（）
 
+
+*****
+
+####  Alphawalker  
+##### 246#       发表于 2025-2-15 02:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉就是本体的官方mod，还没DLC武器，不过按这名字估计能卖到AC6那个数吧
+
