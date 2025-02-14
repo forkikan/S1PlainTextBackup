@@ -4538,3 +4538,124 @@ i83的嗓子也被武士道摧残很惨了，全靠机能撑着，武士道大�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  保真花生  
+##### 22596#       发表于 2025-2-14 11:38
+
+ 本帖最后由 保真花生 于 2025-2-14 11:40 编辑 
+
+母鸡卡有点比较特别，就是我第一次看到是有编剧粉这种生物，我现在一直有看到绫奈粉一直声称这是第二部轻拍，绫奈是无辜的，绫奈已经切割了，绫奈被柿本架空了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜大河内没有铁粉，不然他这样前半好看后半垃圾作品那么多，估计已经切割很多部作品了
+
+*****
+
+####  是谁的书画  
+##### 22597#       发表于 2025-2-14 11:39
+
+一般来说像是这种情况，互联物里应该就会出现各种各样的赛博神经病人开始跳脚发疯了。
+
+但是到目前为止似乎场面还算克制，没有什么血腥味。
+
+只能说真的太烂了以至于大家都统一矛头攻击wsd了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼彻斯特联  
+##### 22598#       发表于 2025-2-14 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421496&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-14 11:38</a>
+
+母鸡卡有点比较特别，就是我第一次看到是由编剧粉这种生物，我现在一直有看到绫奈粉一直声称这次第二部轻拍 ...</blockquote>
+我们大河内粉丝就没有人权吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，十几年前切割GC就是这套说辞了。
+
+*****
+
+####  江口夕  
+##### 22599#       发表于 2025-2-14 11:42
+
+ 本帖最后由 江口夕 于 2025-2-14 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421496&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-14 11:38</a>
+母鸡卡有点比较特别，就是我第一次看到是有编剧粉这种生物，我现在一直有看到绫奈粉一直声称这是第二部轻拍 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽什么水平能拿来和大河内说，大河内前三集可是行业top。你有大河内前三集的水平在国内早财富自由了。jzgg也是撑到14集才崩盘了，你能说14集之前不是国家队么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  厄神之息  
+##### 22600#       发表于 2025-2-14 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">妈的回想武士道开播前炒作时放的睦扔书片段大家激烈分析就好笑。都觉得木子米灰大破大立，情感彻底宣泄后再和好，结果只是大莫日常发癫。气笑了真是，木子米这么好写的人都给他写烂了，善良笨嘴好心办坏事的受气包闹麻六集后一集变脸正常人，好像前面十几集情节全部不存在。前面还大莫是保护木子米不受伤的里人格，一集的时间睦就变成了只要有小祥在我就超幸福！大莫成阻挡牛郎织女见面的西王母了，那我完全都不知道大莫存在意义是什么了，就为了演坏蛋不让好姐妹团聚是吗？相比之下什么让角色厨破防的桥段都是小事了，这祥和睦的塑造太儿戏了。
+
+顺带一提我上次看这种emo8集，半集恢复的傻卵桥段，也是在rwby第九季。。。。
+
+
+*****
+
+####  乙津夢  
+##### 22601#       发表于 2025-2-14 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到一个场景来形容这7集以来的追番感想
+
+一群观众去看一场舞台剧，演到一半时因为某些原因，观众们突然看见台上的演员身上都绑着线，顺着线往上看，舞台上方有一群人正在忙来忙去的像操纵人偶一样操纵演员的表演
+
+面对此情此景，有的观众破口大骂，有的观众哈哈大笑，有的观众视而不见，有的观众开始批评其他观众注意力不集中不关注舞台，当然，可能也有观众是真的仍然注意不到那些线和操纵线的人
+
+*****
+
+####  zhoujin8584  
+##### 22602#       发表于 2025-2-14 11:44
+
+<blockquote>有钱多买小人 发表于 2025-2-14 07:14
+想了想，祥子为什么突然白祥，因为不用去打工了啊衣食无忧了就白了，穷才是万恶之源 ...</blockquote>
+所以我才会说初华就是后期再同居给祥子回撤观感用的，事到如今我在很多一般通过评论区都看到这样的说法，那初祥结尾是一定要私奔的。
+
+目前只能说脚本就是这么回事，重点看单集编剧能不能把演出做好了
+
+*****
+
+####  厚乳果珍爽  
+##### 22603#       发表于 2025-2-14 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信mo老师是睦的演技的原因是，第二人格这个设定太coooooooooool了！不适合出现在mujica的世界观里。
+
+当然出现了就出现了呗，mujica也是非常coooooooooooooooool的动画。
+
+*****
+
+####  北条早苗  
+##### 22604#       发表于 2025-2-14 11:44
+
+非要对偶的话，这一集完全可以学卖狗第三集用大祥的第一视角，最后接大祥的鞠躬退场完成闭环
+不管怎么说羊叫+轮流内心独白的演出效果实在太差了
+
+
+*****
+
+####  刑部姬真可爱  
+##### 22605#       发表于 2025-2-14 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421432&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-14 11:32</a>
+
+可以在回忆画面里往后接狗团的画面啊，特别是soyo那几个名场景，直面黑历史，接上去那大家就知道这是和解 ...</blockquote>
+就现在立希和素世独白告别，演出结束后祥子离开时mygo团员没有一个人送送甚至回头看一眼的画面，都能被许多人滑坡到ccc复活mygo可以解散了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 22606#       发表于 2025-2-14 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如鸡狗对邦之后现场宣布鸡狗解散，crychic堂堂出道
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  JustW  
+##### 22607#       发表于 2025-2-14 11:47
+
+<blockquote>Lyzers 发表于 2025-2-14 11:17
+爱睦灵魂互换的问题点在于如果祥子切割是出于善意，那黑刀之夜还有soyo跪地时恶言相向的力度有点太过太突兀 ...</blockquote>
+因为爱睦互换里祥子对睦护得特别紧，所以对soyo的态度可以理解为因为soyo一直缠着睦压力睦。但母鸡卡祥子比soyo压力多多了就显得没资格这么说了。。。
+
