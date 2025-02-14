@@ -7864,3 +7864,103 @@ ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒�
 —— 来自 鹅球 v3.3.96</blockquote>
 黑屏火鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，事到如今如数家珍也是一种难崩了
 
+
+*****
+
+####  ml1642879  
+##### 22904#       发表于 2025-2-14 17:18
+
+4P和萝符号确实是对的，还在观望鸡狗的年一邦越早加入越早迎接美妙邦生
+
+*****
+
+####  Hchan  
+##### 22905#       发表于 2025-2-14 17:19
+
+之前gop各种造神吹独角兽伟大，现在当然要各种找补咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至少独角兽孝子没有像十年前漫山遍野的虚渊玄孝子那样拍坏了就动不动就这个是“挂名”，那个也是“挂名”，那才是真闹麻了
+
+*****
+
+####  木板春香  
+##### 22906#       发表于 2025-2-14 17:20
+
+<img src="https://img.saraba1st.com/forum/202502/14/172037qnzxrz8d8bb3d40e.jpg" referrerpolicy="no-referrer">
+
+<strong>LT3NY()J9D}H_}@E4MJHW6O_tmb.jpg</strong> (59.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 17:20 上传
+
+*****
+
+####  595505568  
+##### 22907#       发表于 2025-2-14 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425205&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-2-14 17:19</a>
+之前gop各种造神吹独角兽伟大，现在当然要各种找补咯
+
+至少独角兽孝子没有像十年前漫山遍野的虚渊玄孝子那 ...</blockquote>
+只能说看完邦2/3，再看了眼Go，觉得已经不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，这肯定是猴子打字机
+
+*****
+
+####  天空塔书记官  
+##### 22908#       发表于 2025-2-14 17:22
+
+所以这和动画本身有啥关系
+
+我与泛式聊2/3季的时候的观点一样，作为少女乐队动画，2/3季肯定是合格，甚至是不错的，即使不是bang粉，也可以看的很舒服，但ave显然不是这样<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 22909#       发表于 2025-2-14 17:22
+
+捏麻麻的，看到死人了
+
+*****
+
+####  南宮凝香  
+##### 22910#       发表于 2025-2-14 17:24
+
+<blockquote>木板春香 发表于 2025-2-14 17:20
+</blockquote>
+右邊是接頭霸王嗎……..
+
+*****
+
+####  木板春香  
+##### 22911#       发表于 2025-2-14 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425259&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 17:24</a>
+
+右邊是接頭霸王嗎……..</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/14/172647kid11d1nd7371gip.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 17:26 上传
+
+这样看自然点吧
+
+*****
+
+####  _47  
+##### 22912#       发表于 2025-2-14 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425016&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-14 17:02</a>
+
+哭腔肯定能唱的好听，这不是什么特别困难的技巧。
+
+至少再怎么哭腔，也不至于像一个外行人一样跑调到天上去 ...</blockquote>
+我觉得得结合收音时间。这话大概率23年就录好了，按当时的情况，让羊处理这种满足日本人侘寂癖好的缺陷演出，那她可能确实没那么能满足这种高难度演绎。
+
