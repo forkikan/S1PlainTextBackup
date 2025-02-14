@@ -2295,3 +2295,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 可惜希娜跟七姐差辈了，而且闪轨实锤七姐没死也掐死了希娜不是七姐转世，要是同一时期的还真想看扯头花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 7727#       发表于 2025-2-14 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420946&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-14 10:53</a>
+
+突然想起来七姐不也是帝国的圣女，加上这作实锤蓝毛是法典国的圣女，合着每个国家都得有一个圣女是吧
+
+可惜 ...</blockquote>
+她是革命之母不是圣女
+
