@@ -7964,3 +7964,93 @@ ave已经是明箱了，毕竟都把CCC炒上TFT了，说明wsd确实是想炒�
 至少再怎么哭腔，也不至于像一个外行人一样跑调到天上去 ...</blockquote>
 我觉得得结合收音时间。这话大概率23年就录好了，按当时的情况，让羊处理这种满足日本人侘寂癖好的缺陷演出，那她可能确实没那么能满足这种高难度演绎。
 
+
+*****
+
+####  ads147147  
+##### 22913#       发表于 2025-2-14 17:29
+
+ccc连队服都补了，场外确实更乐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 22914#       发表于 2025-2-14 17:30
+
+场内:死透了。
+
+场外:复活吧，我的爱人！
+
+*****
+
+####  595505568  
+##### 22915#       发表于 2025-2-14 17:31
+
+我觉得邦多利还是赶紧卖给能做这个事情的企业算了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，烂炒wsd给我➗
+
+*****
+
+####  kenganmian  
+##### 22916#       发表于 2025-2-14 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425215&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-14 17:20</a></blockquote>
+衣服比起脸画得过于写实了，看着怪怪的
+甚至有点ai味
+
+*****
+
+####  aptx8285144  
+##### 22917#       发表于 2025-2-14 17:32
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-12 15:37
+初华下线一集就算了怎么第七集还下线啊，最少也该和海铃一样在台下看吧，这主唱过于空气后面爆再大也会有种 ...</blockquote>
+是的，所以说母鸡卡的剧本就是一坨SHI
+
+
+*****
+
+####  swessia  
+##### 22918#       发表于 2025-2-14 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425110&amp;ptid=2208921" target="_blank">tuatha 发表于 2025-2-14 17:12</a>
+
+有个假药说睦没回来都是莫提斯演的？</blockquote>
+弹吉他的一定是睦，别的不确定，希望莫小姐有活
+
+*****
+
+####  せきぼく  
+##### 22919#       发表于 2025-2-14 17:34
+
+邦三那个方向是mggm定的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说是要做成バトルもの
+
+鸡狗倒是根本p放权了很多的产物，不过就鸡现在这个疯狂炒作的样子，我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后怕是也来个三团合唱包饺子
+
+*****
+
+####  天空塔书记官  
+##### 22920#       发表于 2025-2-14 17:37
+
+<img src="https://p.sda1.dev/22/bf9dbe0ad615c94a3fda5b796ec56b66/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  dgugvff  
+##### 22921#       发表于 2025-2-14 17:37
+
+我觉得她是烦了，也不是怕了
+
+*****
+
+####  ml1642879  
+##### 22922#       发表于 2025-2-14 17:37
+
+武士道小红点都收麻了吧，可能在根本看来动画评论区的大陆IP是一群eplus是什么都搞不懂的闹麻人士在乱喷，抽选周边特典单曲专辑门票观影券全切才是母鸡卡做好了的最大证明！
+

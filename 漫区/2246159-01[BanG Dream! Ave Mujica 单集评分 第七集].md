@@ -4055,3 +4055,31 @@ CCC版的春日影全曲已经在GO动画BD下卷里发售了啊
 mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真的假的？</blockquote>
 我的观点就比较小众了，MyGO+母鸡卡目前为止都没有比邦二三季强
 
+
+*****
+
+####  安娜导函数  
+##### 393#       发表于 2025-2-14 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424840&amp;ptid=2246159" target="_blank">JustW 发表于 2025-2-14 16:44</a>
+我的观点就比较小众了，MyGO+母鸡卡目前为止都没有比邦二三季强</blockquote>
+个人觉得MyGO在BanG动画里算可以的了，要团魂有团魂，要关系性有关系性，每个角色看上去至少是人，CCC2动画我不评价<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zeta945  
+##### 394#       发表于 2025-2-14 17:30
+
+-2，制作烂到懒的车剧情了，看来mygo确实是他们的lifegame，切割了，拜拜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  crye1se  
+##### 395#       发表于 2025-2-14 17:30
+
+在羊宫女士开唱前还是可以给-1甚至0的，唱完只能-2了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
