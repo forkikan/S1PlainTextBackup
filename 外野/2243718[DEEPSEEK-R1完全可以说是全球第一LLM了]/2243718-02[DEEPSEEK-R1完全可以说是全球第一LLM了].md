@@ -4401,3 +4401,11 @@ aider之前那篇博文吧，功能已经上线快两个礼拜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">火山这个好像就是反应快一点，而且感觉比硅基的更接近满血，不过有个问题让他翻译他总是喜欢添油加醋，完全不按文本走啊
 
+
+*****
+
+####  名居守  
+##### 1865#       发表于 2025-2-15 07:04
+
+翻译不是用v3吗
+
