@@ -4094,3 +4094,23 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 第七话的来了</blockquote>
 笑不活了
 
+
+*****
+
+####  何でやねん  
+##### 397#       发表于 2025-2-14 18:22
+
+ 本帖最后由 何でやねん 于 2025-2-14 18:23 编辑 
+
+你库莱西裤就是大家的白月光，没有啥是一首春日影解决不了的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我银河战舰呢，这都第七话了还救的会来么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 398#       发表于 2025-2-14 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想要的是花田魔法不是花田流唱法 -2
+

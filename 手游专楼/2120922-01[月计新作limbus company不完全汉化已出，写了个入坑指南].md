@@ -83,3 +83,49 @@ PC端的汉化甚至是开服不久的时候就有了。</blockquote>
 我说你正好第八章了，搞点原生中文不好吗，又要写柴腻子故事又要联动柴腻子游戏
 到时候第八章更新我只能上线看着韩国人写中国角色故事的英翻语句，然后对着长句琢磨半天结果是满纸荒唐言一把辛酸泪？
 
+
+*****
+
+####  Jamaisvu  
+##### 1083#       发表于 2025-2-14 18:26
+
+5号折射轨道“旋转木马”2.20上线：
+
+<img src="https://img.saraba1st.com/forum/202502/14/182356p5tl646ziars5efe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182255.jpg</strong> (205.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:23 上传
+
+新增异想体boss有凶弹射手、往昔睡袋、四百朵玫瑰：
+
+<img src="https://img.saraba1st.com/forum/202502/14/182614jpe5upu3uu4p4u35.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182143.jpg</strong> (150.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/182614e5w222n0224nown2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182159.jpg</strong> (99.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/14/182614r7g5sv5r7gerv6ge.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250214_182233.jpg</strong> (173.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-14 18:26 上传
+
