@@ -8598,3 +8598,131 @@ ccc美好就美好在它回不去了，这一点还是很好理解的
 
 第三阶段：你是睦，也是墨提斯
 
+
+*****
+
+####  看穿一切的鱼  
+##### 22977#       发表于 2025-2-14 19:28
+
+莫肯定没下线阿，不还有一张马利克的剧照没出现吗，一开始以为是第七集看猫眼，结果不是
+
+*****
+
+####  08df1258c5ed098  
+##### 22978#       发表于 2025-2-14 19:30
+
+所以莫现在会吉他了没
+
+*****
+
+####  真爱与热情  
+##### 22979#       发表于 2025-2-14 19:31
+
+难道不是请押山清高来再踹飞一次独角兽吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 22980#       发表于 2025-2-14 19:31
+
+你们都差不多发够癫了吧，我发点正经的
+
+第8话标题：Belua multorum es capitum.（你是多头的怪物）
+
+出自贺拉斯的《书信集》（Epistles），是作者自述为什么不愿参与罗马的公共事务，因为罗马人民就像“多头的怪物”一样充满各种邪恶
+
+估计第8话要揭示黑暗面了
+
+（原文：）
+
+Quod si me populus Romanus forte roget, cur
+
+non ut porticibus sic iudiciis fruar isdem,
+
+nec sequar aut fugiam quae diligit ipse vel odit,
+
+olim quod volpes aegroto cauta leoni
+
+respondit, referam: "quia me vestigia terrent,
+
+omnia te adversum spectantia, nulla retrorsum."
+
+belua multorum es capitum. nam quid sequar aut quem?
+
+pars hominum gestit conducere publica; sunt qui
+
+frustis et pomis viduas venentur avaras
+
+excipiantque senes, quos in vivaria mittant;
+
+multis occulto crescit res faenore.
+
+（简单翻译一下：）
+
+若罗马民众偶然问我：
+
+"为何你与我们漫步于同样的柱廊，却不愿与我们共享同样的评判？
+
+为何你不爱我们所爱，憎我们所憎？"
+
+我将像那只精明的狐狸回复病狮般回答：
+
+"因为那些足迹令我胆寒——
+
+它们全都通往你的巢穴，却无一折返。"
+
+你是一只多头的怪物！我该追随什么，我该听从谁？
+
+你们有人热衷于承包国家税收；有人用残羹果饵
+
+诱捕吝啬的寡妇，网罗老者投入牢笼；
+
+而更多的人则暗中放贷，让财富悄无声息地滋长。
+
+*****
+
+####  烂片雷达  
+##### 22981#       发表于 2025-2-14 19:31
+
+祥子这个扭头是认真的吗，真不能怪大家瞎联想，活脱脱就是一副要被那啥了的模样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bed9215b0978f60754c2f4ccc8667cc8/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 22982#       发表于 2025-2-14 19:32
+
+<blockquote>刑部姬真可爱 发表于 2025-2-14 19:18
+生态位早被偶像系ll系占领了，mygo要不是搞那种劲爆剧情现在估计也还是路边 ...</blockquote>
+有一说一邦企划顶峰时期也是R和RAS，MyGO和母鸡卡现在还没能做到重现辉煌就别谈别的了
+
+
+*****
+
+####  看穿一切的鱼  
+##### 22983#       发表于 2025-2-14 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426244&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-14 19:31</a>
+
+祥子这个扭头是认真的吗，真不能怪大家瞎联想，活脱脱就是一副要被那啥了的模样
+
+ ...</blockquote>
+咕杀嘛，小祥就是很适合出凌--辱本<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 22984#       发表于 2025-2-14 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426247&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 19:32</a>
+
+有一说一邦企划顶峰时期也是R和RAS，MyGO和母鸡卡现在还没能做到重现辉煌就别谈别的了 ...</blockquote>
+说的是国内热度啊
+
+*****
+
+####  wwwttth  
+##### 22985#       发表于 2025-2-14 19:36
+
+本质就是编剧自己也已经丧失对角色掌控力的表现，无论是哭腔还是内心尬聊小作文。对自身创作有自信的编剧是不可能用这么蠢的idea来填内容的。
+
