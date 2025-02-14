@@ -3808,3 +3808,13 @@ ccc诈尸完了，crychic对祥子的意义只能说处理得普普通通，我�
 
 颂乐人偶，太人偶了不是么<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keroghy  
+##### 371#       发表于 2025-2-14 11:35
+
+木柜子好似<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
