@@ -4036,3 +4036,22 @@ mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真�
 
 CCC版的春日影全曲已经在GO动画BD下卷里发售了啊
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 391#       发表于 2025-2-14 16:42
+
++2
+
+各方面看得都很开心的一集<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 392#       发表于 2025-2-14 16:44
+
+<blockquote>│尼亚│ 发表于 2025-2-14 14:42
+mygo入坑没看过邦其他动画，看贴吧说mujica是邦评论水平，真的假的？</blockquote>
+我的观点就比较小众了，MyGO+母鸡卡目前为止都没有比邦二三季强
+
