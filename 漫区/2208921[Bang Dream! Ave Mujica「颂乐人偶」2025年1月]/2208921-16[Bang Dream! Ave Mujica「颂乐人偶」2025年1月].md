@@ -8977,3 +8977,146 @@ mygo虽然没老邦那么多人，不过4 7 11几场多人戏都拍得不错的�
 
 祥是軟爛的
 
+
+*****
+
+####  嵇翱u  
+##### 23010#       发表于 2025-2-14 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426558&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-2-14 20:20</a>
+
+重新看了一遍第七集，从开头素世拉祥子去找睦，到睦祥和解，再到ccc成员在睦家坦白和解都是比较顺畅的，到 ...</blockquote>
+最神秘的是CCC上台了之后猫不就在台下吗，前一个镜头刚说的话，下一个镜头直接忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你干脆就别让猫出现呗，只能说猫和睦的对视也是重要到这么基础的逻辑都不要了
+
+*****
+
+####  DeltaStriker  
+##### 23011#       发表于 2025-2-14 20:27
+
+我之前想的是mygo feat 祥睦 上台就上了大家别点破就好了 现在我只能说ccc最大姨姥是制作和武士道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhoujin8584  
+##### 23012#       发表于 2025-2-14 20:29
+
+只能说猫猫延续了上一季的神出鬼没，其实她心里跟爱音是一样的想法吧，只是爱音用人类的语言表达了出来
+
+*****
+
+####  是谁的书画  
+##### 23013#       发表于 2025-2-14 20:29
+
+猫猫真跑了就留爱音在台下一个人，之后再来个海铃，两个人在下面撸断
+
+我都不知道之后舆论会有多美
+
+甚至还庆幸起码下面还有几个人，包括那俩工作人员NPC
+
+*****
+
+####  w酱  
+##### 23014#       发表于 2025-2-14 20:29
+
+《THE FIRST TAKE》的创意总监清水惠介称，只有在现场体验到“没有再现性的音乐享受方式”，才是有价值的。
+
+所以ccc无法再复活是不是这个道理<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 23015#       发表于 2025-2-14 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426575&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-2-14 20:21</a>
+太诡异了，以前环大陆好评起码5厕4厕也能共鸣下，这次是真的找不到可以统一战线的 ...</blockquote>
+因为这次可以说是观影群体最分裂的一个作品，直到现在，wsd对mygo还是觉得本土能拉回当年双R的观众就好，现在追番的也是老邦友，而这批人真是什么都能吃，但⏰观众是真的第一次看
+
+*****
+
+####  十九号大侠  
+##### 23016#       发表于 2025-2-14 20:30
+
+应该前几集压缩，第七集拉长的，这节奏没把握好，
+
+*****
+
+####  zhoujin8584  
+##### 23017#       发表于 2025-2-14 20:31
+
+所以我的推断是独角兽既然表达自己用心做了系构但是切割了邦邦企划，古神ccc可能才是被加塞的那个，观感太奇怪了
+
+*****
+
+####  堀内爱里衣  
+##### 23018#       发表于 2025-2-14 20:31
+
+ 本帖最后由 堀内爱里衣 于 2025-2-14 20:33 编辑 
+
+       
+
+<img src="https://img.saraba1st.com/forum/202502/14/203052v1mdldkko1ild2zn.jpg" referrerpolicy="no-referrer">
+
+<strong>「BanG Dream! Ave Mujica」#6 の公式ファンアート.jpg</strong> (582.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:30 上传
+
+       
+
+<img src="https://img.saraba1st.com/forum/202502/14/203053zhkez88w6fk3gigh.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-14_20-29-08.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:30 上传
+
+       [https://x.com/oo6____6oo/status/1889882975061549473](https://x.com/oo6____6oo/status/1889882975061549473)
+
+       
+
+<img src="https://img.saraba1st.com/forum/202502/14/203054k532j2qi7zn37vn5.jpg" referrerpolicy="no-referrer">
+
+<strong>「BanG Dream! Ave Mujica」#6 の公式ファンアート2.jpg</strong> (256.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:30 上传
+
+       
+
+<img src="https://img.saraba1st.com/forum/202502/14/203054lhsgkrz2crfzvjdo.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-14_20-28-07.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-14 20:30 上传
+
+       [https://x.com/satou_kusuri/status/1890049563769340343](https://x.com/satou_kusuri/status/1890049563769340343)
+
+*****
+
+####  希波兰多的诗歌  
+##### 23019#       发表于 2025-2-14 20:32
+
+大致看了一下上面x链接里日本那边的评论，大致分为两种
+
+一种是认为两国文化差异导致观众在感受性上有差别，也有人列举在日本高人气的其它作品剧情被中国方面评价为系列最低，也有说日本都是究极死宅在看，中国却有大量路人粉，搞不懂作品的看点
+
+另外一种是抱怨炎上风气烧到x上，觉得这种行为没有边界感
+
+好像确实没什么人真心认为剧情节奏有问题，不过我觉得可能是因为国内对mujica期待过高+讨论环境比原作还有趣导致的，对日宅来说这就是个单纯的偶像企划动画
+
+一开始看mygo和mujica没看任何讨论，后面补了假药和二创感受到了截然不同的世界，讨论社区的风向也影响许多人观看时在意的部分，我自己看的时候没有太在意角色行为上的道德问题，只是觉得现实设定部分（解约金/角色精神问题之类)做的不好，看讨论社区才发现很多人都在议论角色行为的道德，包括这些行为背后表现的作品价值观取向问题。
+
+大部分国人还是以文艺作品的标准看待作品的，只是一些人表达方式比较激进
+
+日本人主流心态估计就是奶头乐也需要尊重吧，不喜欢就离开，所以近年也不怎么出大众级的佳作了
+
