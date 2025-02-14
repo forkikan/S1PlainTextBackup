@@ -1827,3 +1827,104 @@ MyGO在我看来优势在于切割老团降低了门槛、清新化的低气压�
 
 mygo强在聪明地把戏剧矛盾设置在角色内部 没有商业vs音乐 什么演艺圈对人的异化，也没有硬去包圆“区区高中女生”无法解决的问题，所以没什么硬伤
 
+
+*****
+
+####  swessia  
+##### 22354#       发表于 2025-2-14 08:05
+
+讲讲这集我觉得南蚌的地方
+
+op前的祥子，不是我以为上集结尾你是说说没想到你真的摆了啊
+
+莫小姐，工具人属性拉满，说打人就打人说和解就和解，完全没心理转变描写
+
+祥子再给素希解析睦语，不是原来你都知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早说开多好，这段我一直以为会在上集由莫小姐这个漏勺供出来的
+
+b part live，完全不明觉厉，不光不是正式live，唱的还故意跑调，运镜也完全没有运镜，就是ppt加回忆杀
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 22355#       发表于 2025-2-14 08:06
+
+nga指望喵梦抗祥给我看迷糊了，虽然祥睦ccc和解做得很敷衍生草，祥子的台词也跟对着提词器念一般不知所谓，但祥子下跪道歉认识自己错误的情节不是nga一直想要的清算吗？
+
+*****
+
+####  cccpprc  
+##### 22356#       发表于 2025-2-14 08:06
+
+哦草这也有环大陆好评看的，我只能说，虽然我很厌恶环大陆好评这个说法，但更希望某些人不是只在京阿尼被锤的时候才拿环大陆好评捂嘴。（久美子摊手）
+
+
+*****
+
+####  江口夕  
+##### 22357#       发表于 2025-2-14 08:10
+
+ 本帖最后由 江口夕 于 2025-2-14 08:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们想想当时你们看第十集第一遍真觉得好吗，还不是被别人按头说好的。
+现在知道了这种违和感在哪了？
+
+当时是你们事后分析才觉得好我说的没错吧。
+
+mujica这集之所以你们觉得不好，是因为你们分析不动了，对不对。
+
+可是我分析的动，所以我觉得好。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  plok201  
+##### 22358#       发表于 2025-2-14 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419088&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 07:45</a>
+
+嘛对我而言问题最大还是live感染力远远不够，其他方面的处理并不比邦第二季更差，但邦第二季一首riot洗刷了 ...</blockquote>
+真的比第二季差吧，我二三季没看出那么强编剧大手的感觉，为什么人物想通了这点真的描写太少了
+
+仔细想想大概是交流问题，老前辈就算团里交流炸了吧，和其他团也能有效交流，go相对来说减少了一点这种，但是大家都有小心思这点描写好了
+
+鸡团就到这集之前都不算什么有效交流，然后差不多到点大伙就因为几句话觉悟了和解了
+
+*****
+
+####  ashero  
+##### 22359#       发表于 2025-2-14 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419191&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 08:10</a>
+
+你们想想当时你们看第十集第一遍真觉得好吗，还不是被别人按头说好的。
+
+现在知道了这种违和感在哪了？</blockquote>
+诗超绊如果是这集这种哭腔早被人喷爆了 go 78910是顺着来的一气呵成 
+
+母鸡卡这连贯性就只有大祥一直被抽陀螺而已
+
+*****
+
+####  江口夕  
+##### 22360#       发表于 2025-2-14 08:14
+
+ 本帖最后由 江口夕 于 2025-2-14 08:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419205&amp;ptid=2208921" target="_blank">ashero 发表于 2025-2-14 08:13</a>
+诗超绊如果是这集这种哭腔早被人喷爆了 go 78910是顺着来的一气呵成 
+
+母鸡卡这连贯性就只有大祥一直被抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我弹幕可没存，要是没看直播我大概信了你的鬼话。第一遍直播弹幕喷的多了，后面就被按头说好了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  阿兹尔  
+##### 22361#       发表于 2025-2-14 08:16
+
+这集b站直接干下7.8了，无敌了
+
