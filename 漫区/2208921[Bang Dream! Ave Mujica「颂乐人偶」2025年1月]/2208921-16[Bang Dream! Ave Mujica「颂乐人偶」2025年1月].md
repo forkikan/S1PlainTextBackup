@@ -5289,3 +5289,169 @@ go团的事，我只能说遵从“谁惨谁有理”和“大家都是超级大
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hysjmr  
+##### 22669#       发表于 2025-2-14 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422122&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-14 12:40</a>
+ 我也想不通一些爱音厨到底是想看什么，难道要不借吉他，或者黑着脸看c怀旧？这根本不可能符合塑造吧 怀疑是 ...</blockquote>
+想看mygo成员对原生mygo党的支持，不是单对单的CP，是搞团魂然后用团魂证明爱音的必要性
+
+*****
+
+####  JustW  
+##### 22670#       发表于 2025-2-14 12:46
+
+<blockquote>柴突猛进 发表于 2025-2-14 12:43
+我的观点是，明明c团重组从客观条件还是团队感情都有铺垫到位了，但是一定要解散那纯粹就是编剧的大手完 ...</blockquote>
+抛开感情这些，客观条件也不允许啊，祥子已经不是隐藏大小姐了，是在客服中心都要被人背后议论搞过母鸡卡的小红人了，从路人视角来看母鸡卡解散后两个成员加入了业余小乐队，这不得在媒体上爆一波？
+
+*****
+
+####  南宮凝香  
+##### 22671#       发表于 2025-2-14 12:47
+
+<blockquote>FanFun 发表于 2025-2-14 12:40
+我也想不通一些爱音厨到底是想看什么，难道要不借吉他，或者黑着脸看c怀旧？这根本不可能符合塑造吧
+
+怀疑是 ...</blockquote>
+素希燈三人圍毆🐘
+
+然後說不要再聯絡了， 我怕愛音誤會，
+
+除此以外都是忠誠不徹底，徹底不忠誠
+
+說真的， 這集去睦家解決問題時還把燈留在Livehouse 跟愛音練習， 我覺得算盡力了
+
+*****
+
+####  南宮凝香  
+##### 22672#       发表于 2025-2-14 12:49
+
+<blockquote>柴突猛进 发表于 2025-2-14 12:43
+我的观点是，明明c团重组从客观条件还是团队感情都有铺垫到位了，但是一定要解散那纯粹就是编剧的大手完 ...</blockquote>
+燈是想祥能幸福
+
+玩Band 是手段
+
+目的達到了 （祥回復正常）
+
+那手段就無關重要了
+
+
+*****
+
+####  御景  
+##### 22673#       发表于 2025-2-14 12:50
+
+ 本帖最后由 御景 于 2025-2-14 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418830&amp;ptid=2208921" target="_blank">CRYCHIC 发表于 2025-2-14 03:25</a>
+
+永远怀念 [@Aendst](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500536) [@星天观测](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572691) [@相坂君](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=440787) [@PDQ4](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=559177) [@御幸一也](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263923) [@前方暴雨预警](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=573114) [@御景](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572401) 
+
+*没有特地翻旧账的意思，仅 ...</blockquote>
+我把编剧当正常人看，按正常人的逻辑猜剧情，谁知道是两个畜生呢。
+
+白月光就应该安静的远去，才有追忆的空间，拉C团尸体出来看巨人观吗？
+
+给C团这么多剧情，你是觉得写得很好吗？
+
+*****
+
+####  cxj649  
+##### 22674#       发表于 2025-2-14 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422122&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-14 12:40</a>
+
+我也想不通一些爱音厨到底是想看什么，难道要不借吉他，或者黑着脸看c怀旧？这根本不可能符合塑造吧
+
+怀疑是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这算一些所谓角色厨日常了，通常想第6话大祥一样，送便条哈气不送也不乐意233
+
+*****
+
+####  Aloereed  
+##### 22675#       发表于 2025-2-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67421991&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:27</a>
+
+真換成台上台下共鳴成人歌
+
+就會滑坡成 老婆偷情，跟前任眉目傳情了</blockquote>
+说白了，现在这样被骂是前六集种下的因缘，第7集不管怎么演都得骂
+
+*****
+
+####  JustW  
+##### 22676#       发表于 2025-2-14 12:51
+
+同理母鸡卡复活也只能原样复活成商业乐队，Ring啊Circle啊容不下
+
+*****
+
+####  FanFun  
+##### 22677#       发表于 2025-2-14 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422205&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-14 12:47</a>
+素希燈三人圍毆🐘
+
+然後說不要再聯絡了， 我怕愛音誤會，</blockquote>
+这要求根本就不可能得的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+又不是宫斗剧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 22678#       发表于 2025-2-14 12:52
+
+小祥莫名开启上帝视觉知道木头人的吉他问题，之后火速包饺子，放下旧团的心理活动比较抽象很难GET到。
+
+*****
+
+####  柴突猛进  
+##### 22679#       发表于 2025-2-14 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422202&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 12:46</a>
+抛开感情这些，客观条件也不允许啊，祥子已经不是隐藏大小姐了，是在客服中心都要被人背后议论搞过母鸡卡 ...</blockquote>
+这是在邦邦世界观，结论就是，媒体爆一波那又怎么了呢？初华身兼sumimi吉他和母鸡卡主唱的时候，就是遭受到一些sumimi是否会解散的猜疑而已，海玲摘面具那会儿，观众都认得海玲在多个乐队担任贝斯也没有对海玲做出抨击，难道c团重组会导致邦邦世界观的路人观众炎上？顶多就是多了很多不明真相的路人粉来围观c团live罢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厉飞雨  
+##### 22680#       发表于 2025-2-14 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看网上最破防的倒不是送吉他
+而是那段你回她信息
+这段提一嘴爱音在催我们就可以结束了
+偏要拉扯一段
+
+
+*****
+
+####  cxj649  
+##### 22681#       发表于 2025-2-14 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67422260&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-14 12:52</a>
+
+这要求根本就不可能得的啊
+
+又不是宫斗剧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这是一些角色厨日常
+
+之前最有名是推子的帽厨
+
+甚至母鸡卡前几页也是部分鸡厨也是有点这思维的
+
+*****
+
+####  zhoujin8584  
+##### 22682#       发表于 2025-2-14 12:55
+
+<blockquote>JustW 发表于 2025-2-14 12:40
+虽然这句话Mortis第三集就已经对着祥子原模原样说过一遍了，然后祥子就躲了一个月（） ...</blockquote>
+那时候是真不知道，“这个是需要治的病”吧，看起来是王者表现，我都不敢想大莫老师是怎么拖着病躯回的家
+

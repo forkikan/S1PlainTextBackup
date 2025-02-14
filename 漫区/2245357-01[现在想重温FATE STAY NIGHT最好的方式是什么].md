@@ -445,3 +445,26 @@ PS2版的网页版本，红迪做的那个吧
 
 [Fate/Stay Night](https://fatestaynight.vnovel.org/)
 
+
+*****
+
+####  某化某  
+##### 44#       发表于 2025-2-14 12:48
+
+Ultimate Edition 应该可以，nyaa表里站都能搜到
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  550616  
+##### 45#       发表于 2025-2-14 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67375028&amp;ptid=2245357" target="_blank">岸波白野 发表于 2025-2-8 14:44</a>
+
+《battle moon wars》一个型月同人仿机战游戏，月f空境角色都有参战</blockquote>
+但是接的是HF线，是作者私货，所以感觉FATE部分剧情不是很好
+
+反而月姬那边瓦叔联合空境荒耶宗莲那段就很有感觉，配合BGM那就更赞了
+
