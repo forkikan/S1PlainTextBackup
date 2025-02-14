@@ -3845,3 +3845,106 @@ AD1E6C9869309A00E50F67256ED3ABCC.jpg
 
 说到托孤这个就想到flowers的秋组了，但人家同样是青梅竹马被托孤，你过线也是能一巴掌拒绝回去的，跟着跑了也是出于自己的意志，现在睦自己的意志到底是什么？只希望从吉他入手塑造一下睦的自我吧，否则真只剩祥子和黄瓜了。
 
+
+*****
+
+####  mye  
+##### 22551#       发表于 2025-2-14 10:50
+
+鸡狗对邦最后c团赢了 我怎么会做这样的梦
+
+
+*****
+
+####  Saxk  
+##### 22552#       发表于 2025-2-14 10:53
+
+为什么高松灯唱歌都是扯着嗓子的呢？
+
+每次唱歌我都快进受不了
+
+*****
+
+####  南宮凝香  
+##### 22553#       发表于 2025-2-14 10:53
+
+🦄就喜歡這種單向的女女關係
+
+你看雞狗兩團有正常的雙向CP嗎？
+
+睦祥這關係還是說得過去的
+
+這兩人就是真姐妹，一起長大的
+
+那老姐給老妹擋風擋到命都不要了也是很正常的
+
+*****
+
+####  江口夕  
+##### 22554#       发表于 2025-2-14 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">又吸了一口，太爽了这集。祥睦厨的冰
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  swessia  
+##### 22555#       发表于 2025-2-14 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说第五集就该这样了
+
+灯把祥子抓到ring
+
+素世把睦哄到ring，让乐奈帮着哄
+
+然后大家把话说开了就完事了
+
+*****
+
+####  曼彻斯特联  
+##### 22556#       发表于 2025-2-14 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420627&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:26</a>
+
+我见过对祥子心理最好的解释是爱睦灵魂交换二创里的，大意就是祥子内心知道队友知道了也不会嘲笑自己只会 ...</blockquote>
+这应该是标准答案，黑着脸去退团就是为了不让队友惦记自己，但是演出一直没有把这部分的内容直接放到正片了，搞得观众还得自己分析推敲。
+
+说白了，还是缺了一集祥的内心戏，制作组要真觉得第7集重要完全可以把这集改成全程祥子第一人称，对角色的转变的描写和live的情绪烘托都会有显著帮助。（甚至还能用哭声帮灯遮瑕，提升观众观感）
+
+*****
+
+####  MuramasaSP  
+##### 22557#       发表于 2025-2-14 10:57
+
+结合之前坛友说的“第7话Live的真正问题不是唱成翻车版，而是：它恰恰是一种例行公事的、“该上台演唱了”的Live”。
+
+其实live从推动剧情的角度上完全没用吧，live只是庆功宴，apart已经把要讲的全讲完了。
+
+完全可以怀疑，最近三话就是为了卖c团版春日影和成为人类之歌，为了这瓶醋包的饺子。再发散一下，就是mujica并没有一般原创动画无拘无束的优点，反而要迎合大人的原因和某些商法。
+
+*****
+
+####  Redimercia  
+##### 22558#       发表于 2025-2-14 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420859&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 10:46</a>
+
+说到托孤这个就想到flowers的秋组了，但人家同样是青梅竹马被托孤，你过线也是能一巴掌拒绝回去的，跟着跑 ...</blockquote>
+看到这楼提起花，我突然就和志水叔叔和解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我玩flowers和九段时还觉得这家伙明明写不好本格悬疑推理还硬要塞，冬篇用儿戏的谜底把苏芳和金银两人的观感拉到谷底，经历昨晚一番比烂居然释怀了
+
+*****
+
+####  江口夕  
+##### 22559#       发表于 2025-2-14 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420940&amp;ptid=2208921" target="_blank">Saxk 发表于 2025-2-14 10:53</a>
+为什么高松灯唱歌都是扯着嗓子的呢？
+
+每次唱歌我都快进受不了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然敢拷打我羊姐的哭戏
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
