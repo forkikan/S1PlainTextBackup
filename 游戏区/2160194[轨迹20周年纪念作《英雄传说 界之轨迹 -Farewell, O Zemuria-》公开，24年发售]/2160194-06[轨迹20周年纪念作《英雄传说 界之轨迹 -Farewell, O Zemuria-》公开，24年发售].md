@@ -2332,3 +2332,16 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 界轨ns会有新封面吗
 
+
+*****
+
+####  alucardcz  
+##### 7730#       发表于 2025-2-14 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67420946&amp;ptid=2160194" target="_blank">上坂莲华 发表于 2025-2-14 10:53</a>
+
+突然想起来七姐不也是帝国的圣女，加上这作实锤蓝毛是法典国的圣女，合着每个国家都得有一个圣女是吧
+
+可惜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮娜都不是这个世界的人  
+
