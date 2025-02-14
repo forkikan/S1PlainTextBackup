@@ -2426,3 +2426,175 @@ lofter上的同人真是很多都吊打你鸡，正剧接下来剧情已经无�
 
 某中二电播台的吐槽大会也许还能做，但是他恐怕没有心情做了。
 
+
+*****
+
+####  看穿一切的鱼  
+##### 22408#       发表于 2025-2-14 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419505&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 08:50</a>
+有没有可能我也没觉得台词和演出好，gbclive演出很好吗，巴不得跳过吧。只不过你邦live塞剧情只能连着看 ...</blockquote>
+gbc前两场live和钻尘最后一场很好吧，尤其第二场。后面差的也不至于跳过啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ml1642879  
+##### 22409#       发表于 2025-2-14 08:58
+
+ave mujica神作了
+ave mujica别烂了
+ave mujica别拉着mygo一起烂了
+ave mujica别害我们PICO4烂了 ← Now here
+
+*****
+
+####  江口夕  
+##### 22410#       发表于 2025-2-14 08:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对mygo的评价一直是并不觉得多好毛病很多，但是非常有趣。
+你们滑坡不会是真当mygo是神作了吧。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  aptx8285144  
+##### 22411#       发表于 2025-2-14 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419516&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-14 08:52</a>
+
+我感到很疑惑，这一集的评价差异真的已经到了异世界的程度了
+
+如果你单看评价，你绝对不会相信这是同一集 ...</blockquote>
+日本人既然都能陶醉在莉可莉丝的剧情气氛里面，那为现场几个没有大罪大恶的女孩唱歌鼓掌也正常吧，感受不到难听是他们的问题又不是国人的问题<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 22412#       发表于 2025-2-14 09:00
+
+同一个团队前后演出水平下降太严重了，这一集为了怕观众误解哭来兮苦要复活还要安排轮流内心独白
+
+*****
+
+####  wpcc  
+##### 22413#       发表于 2025-2-14 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419554&amp;ptid=2208921" target="_blank">坚挺水表君 发表于 2025-2-14 08:56</a>
+
+可能是因为昨天下午滑坡滑的太狠了，所以真的看到成片以后反而没有那么糟糕；
+
+因为不管嘴上说的再怎么肉麻 ...</blockquote>
+你等着看第八集打脸吧 笑死了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 22414#       发表于 2025-2-14 09:01
+
+现在看来推迟一年播出确实是改过东西了，估计就是456三集重新写了吧，给CCC风光大葬这段。
+
+*****
+
+####  江口夕  
+##### 22415#       发表于 2025-2-14 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419566&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-14 08:57</a>
+gbc前两场live和钻尘最后一场很好吧，尤其第二场。后面差的也不至于跳过啊。
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">gbclive和剧情切割的比较明显直接跳过并不影响剧情逻辑表现。你邦这两季动画不一样，live里有剧情包含和解逻辑。gbc和解都是化疗不靠live
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wpcc  
+##### 22416#       发表于 2025-2-14 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419592&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-14 09:00</a>
+
+同一个团队前后演出水平下降太严重了，这一集为了怕观众误解哭来兮苦要复活还要安排轮流内心独白 ...</blockquote>
+没死 手游剧情和线下live还能拉出来的 动画自然也不会死透 不过不是常住模式
+
+*****
+
+####  南宮凝香  
+##### 22417#       发表于 2025-2-14 09:02
+
+至於我吃的愛燈
+
+狗十三話本來就說了，
+
+要一輩子就要靠累積瞬間，
+
+眾多瞬間中本來就有苦有樂
+
+夢話故事兩人在一起後就一生甜甜蜜蜜本來就不現實，更何況燈是個自閉症，困難更加加倍
+
+這段關係是不是兩人的付出不對等？ 是
+
+燈這幾話是不是無視了愛音？ 是
+
+這段時間愛音是不是不停吃低壓？ 是
+
+是又怎樣.jpg
+
+一段關係本來就不能像吃飯分帳一樣去算誰付出多少
+
+老實說，第五話結尾是有點慌， 
+
+可是現在不慌了
+
+*****
+
+####  wpcc  
+##### 22418#       发表于 2025-2-14 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419599&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-14 09:01</a>
+
+gbclive和剧情切割的比较明显直接跳过并不影响剧情逻辑表现。你邦这两季动画不一样，live里有剧情包含和 ...</blockquote>
+gbclive我跳了影响真不大 本质小孩姐打出名声然后遇到新人墙被打退就这样
+
+*****
+
+####  液体显微隧道  
+##### 22419#       发表于 2025-2-14 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419500&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-14 08:49</a>
+上热搜了</blockquote>
+没上，这个是你的个人推荐热搜，公共热搜在右边那栏
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  JustW  
+##### 22420#       发表于 2025-2-14 09:03
+
+ 本帖最后由 JustW 于 2025-2-14 09:05 编辑 
+
+绫乃不是自己已经切割了吗）我对这位脚本家的印象就是在日本百合同人女里还可以的水平，只要别挑战什么现实问题，待在女女舒适圈里，哪怕不够大众也不会出很大问题。柿本就这个水平，也不是第一次翻车了，R组剧场版不就差评如潮。也有企划方的大手吧，可能为了配合炒作和三次元live改了一些东西。
+
+*****
+
+####  wpcc  
+##### 22421#       发表于 2025-2-14 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67419619&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-14 09:03</a>
+
+绫乃不是自己已经切割了吗）我对这位脚本家的印象就是在日本百合同人女里还可以的水平，只要别挑战什么现实 ...</blockquote>
+拉拉青鸟是不是她啊很急
+
+*****
+
+####  海底铁锚  
+##### 22422#       发表于 2025-2-14 09:05
+
+我必须得指出，目前这个充满了惊世智慧的剧本绝不是庸才能写得出来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
