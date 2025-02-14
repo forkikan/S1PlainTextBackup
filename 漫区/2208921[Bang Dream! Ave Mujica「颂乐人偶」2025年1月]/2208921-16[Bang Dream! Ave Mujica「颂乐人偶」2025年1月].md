@@ -11386,3 +11386,84 @@ sumimi注定会有一场离别戏，我只希望到时候别成闹麻了就行<i
 
 wsd这同步烂炒真没少给索尼那边卖勾子吧，一想到人索尼这边这么专业，🐏唱的这么认真，结果最重要的自家的动画里柿本做成那B样我就难受<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 23219#       发表于 2025-2-14 22:58
+
+希望接下来鸡团平安收个尾就行，不求什么大活了
+
+*****
+
+####  天空塔书记官  
+##### 23220#       发表于 2025-2-14 23:02
+
+不太可能平安收尾，要么起飞，要么爆炸
+
+都垫了七集了，还见不到大的
+
+不敢想之后能炸多厉害
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  琉璃苑軒風  
+##### 23221#       发表于 2025-2-14 23:03
+
+早上还说飞奔7.8以为是底了，现在一看7.3了，这一集都快打掉1分了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  单脚着地  
+##### 23222#       发表于 2025-2-14 23:04
+
+只要A团的LIVE开起来，一切都会好起来的。
+
+我还是坚信大象老师的判断：这个阵容，可谓坚如磐石。。。。把一切交给音乐说话<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  AnnieLeonhart  
+##### 23223#       发表于 2025-2-14 23:04
+
+说实话，我都有跟了巨人9年然后突然告诉我艾伦亲手指挥他马被吃这种经历了，对什么草蛇灰线什么剧情合理性的期待那时候就用完了
+
+只是你回她短信吧哈哈干嘛你不会这段，不带弹幕看直播的第一感受这就冷暴力
+
+
+*****
+
+####  Renes  
+##### 23224#       发表于 2025-2-14 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实不是说爱音做的事情不对不好有问题，而是明明祥子一直在犯罪但有人排着队哄，而爱音还必须做正确的事情但似乎被杀熟了，的这种反差感
+
+讲真角色厨滑坡是一回事，但如果那几个人把大祥狠狠的拷打一顿，大祥哭着反思自己，爱音帮一把，不会有这么大节奏。
+
+*****
+
+####  DeltaStriker  
+##### 23225#       发表于 2025-2-14 23:05
+
+事到如今还能平稳落地？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 做啥梦呢 还是看看剩下6集还有啥活吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  GBLMikuHatsune  
+##### 23226#       发表于 2025-2-14 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67427974&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-14 23:04</a>
+
+只要A团的LIVE开起来，一切都会好起来的。
+
+我还是坚信大象老师的判断：这个阵容，可谓坚如磐石。。。。把 ...</blockquote>
+柿本：你的幻想，就由我来打破！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
