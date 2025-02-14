@@ -9860,7 +9860,7 @@
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "lastedit": 1739312528,
     "category": "手游战斗",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1549678": {
@@ -16484,6 +16484,15 @@
     "newtitle": "[被白男杀害的中国籍23岁女留子生前画作曝光]",
     "lastedit": 1739568846,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2200941": {
+    "totalreply": 49,
+    "title": "[INTI 少女魔净续作《少女魔役》 银河城／恶魔女仆姐妹]",
+    "newtitle": "[INTI 少女魔净续作《少女魔役》 银河城／恶魔女仆姐妹]",
+    "lastedit": 1739571848,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
