@@ -13418,3 +13418,11 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 原来一直都是这个表情，怪不得观后感想图里都画成这样
 
+
+*****
+
+####  兔狐子  
+##### 6953#       发表于 2025-2-15 16:43
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

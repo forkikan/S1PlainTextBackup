@@ -1370,3 +1370,30 @@ GlitterGreen只是有成员出国留学了，可没解散，有本事武士道�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  第贰个十年  
+##### 23792#       发表于 2025-2-15 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432714&amp;ptid=2208921" target="_blank">无证madam 发表于 2025-2-15 16:33</a>
+这片现在的问题单纯就是故事写烂了 就算把ccc的问题后置 你按照这个写法让鸡五个人互相当工具人解决问题也 ...</blockquote>
+每集结尾搞个爆点，下集开头再轻轻放下，烂炒意图一览无遗恶心坏了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刑部姬真可爱  
+##### 23793#       发表于 2025-2-15 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432673&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-2-15 16:25</a></blockquote>
+类目，元首地位最高的一集<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 23794#       发表于 2025-2-15 16:41
+
+我还记得版主换成爱音灰色头像，感觉有些爱音党是不是还要做好心理准备，被边缘化都算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
