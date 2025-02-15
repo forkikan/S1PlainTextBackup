@@ -3675,3 +3675,194 @@ go对角色都是很温柔的（立希不好说，鸡就大手猛抽，一群人
 
 武士道这副鬼样大概到死也做不出狗和少歌这种东西了
 
+
+*****
+
+####  天空塔书记官  
+##### 23995#       发表于 2025-2-15 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433746&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:21</a>
+主唱戏份要是真不多的话wsd等着被核心粉冲吧</blockquote>
+戏份多少不重要，重要的是对于乐队影响力和剧情发展的影响权重，只要戏份的话，打酱油也算戏份
+
+再拿RAS举例，主唱瑞依的戏份远比不上核心楚平方，但第三季乐队的重建关键还是在她身上，这就是权重的大小<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黑猫桑  
+##### 23996#       发表于 2025-2-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433754&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:22</a>
+泛式前面几集就一直打预防针，圆滑的暗示了。
+“我们不当乐子人，我们当快乐人，快乐的看番”，
+这种话术 ...</blockquote>
+喵梦角色是在第四集毁掉的，纯为了炸团作出的发言，炸团对她这个事业心重的人来说有什么好处？
+
+前面摘面具，让睦演戏是利己主义，因为这真的能让乐队获得更多的流量和关注也更能满足观众的期待
+
+*****
+
+####  大户爱  
+##### 23997#       发表于 2025-2-15 19:27
+
+喵梦是工具人，海玲就不像能有戏份的样子，剩下的不只能写初华了。
+
+初华是肯定有戏份的，但她有戏份的内容完全是场外暗示的结果，她目前的塑造单薄得像纸，场内初华的暗示要回顾到mygo。
+
+基于这一点，初华既好写又不好写。随便写什么都是合理的，但很难写得符合期待。
+
+当然，真小姨，那就乐子无穷了。
+
+*****
+
+####  天空塔书记官  
+##### 23998#       发表于 2025-2-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433774&amp;ptid=2208921" target="_blank">Devola 发表于 2025-2-15 19:25</a>
+你楼除了角色厨和河豚没其他类型的观众了，不好玩
+
+现在剧情音乐演出这三板斧你鸡一个都做不到，也就oped堪 ...</blockquote>
+其实还有剧情党和设定控，啊…大概就我自己，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  liekong  
+##### 23999#       发表于 2025-2-15 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433754&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:22</a>
+泛式前面几集就一直打预防针，圆滑的暗示了。
+“我们不当乐子人，我们当快乐人，快乐的看番”，
+这种话术 ...</blockquote>
+瓶子这种，他逆风喷了几次被一堆人车以后，他现在不就是放大器，“互联网喷子嘴替”嘛
+
+*****
+
+####  thisisaspider  
+##### 24000#       发表于 2025-2-15 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433719&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:16</a>
+
+我猜今晚等大主播定完性，很多观众可能就转观望了，下集再没好活那就可以回到mygo前期的小圈子“爱好”了 ...</blockquote>
+mujica是个在动画播出前就有不少乐团粉的乐队吧，动画对他们会有打击吗，感觉可能最多影响一下谷价。
+
+反正动画看完我还会看乐团，毕竟歌挺喜欢的。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 24001#       发表于 2025-2-15 19:30
+
+<img src="https://p.sda1.dev/22/97eaacd86c0102893b9b48f9aa57c09b/image.jpg" referrerpolicy="no-referrer">
+
+我之前杂七杂八地写了不少，所以在楼里还是蛮开心的，虽然并没什么人看2333
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 24002#       发表于 2025-2-15 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433754&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:22</a>
+
+泛式前面几集就一直打预防针，圆滑的暗示了。
+
+“我们不当乐子人，我们当快乐人，快乐的看番”，
+
+这种话术 ...</blockquote>
+nzh除了情绪输出，基本上是最浅显观点的复读机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但人家就是因为这样才能够成为一部分人的嘴替。他低下的赏析能力恰好成了他的强项。这就是，冻！鳗！高！手！
+
+不过回归本质，第七集制作上的巨大节奏问题让那些最显而易见的解读变成了难以否认的事实。也难怪会有这样的局面。
+
+*****
+
+####  黑猫桑  
+##### 24003#       发表于 2025-2-15 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433607&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-15 18:59</a>
+个人视角的烂分这么几层：
+
+一层在大祥，一个黑化后完全非人类的角色，整个mujica期间宛如行尸走肉。损害别 ...</blockquote>
+你在qq群里发那当然，基本都是gop要么就是玩客服小祥软糯小祥表情真美味的乐子人，祥黑狂欢
+
+现在变成这样底层逻辑就是祥睦原罪解散c团，她们两人必须还罪，母鸡卡解散是解散c团的报应，祥没有自主性是活该，她们两人要当人得要c团其他三人原谅，前面12345铺垫c团入场，67原谅大和解，可喜可贺可喜可贺
+
+*****
+
+####  刑部姬真可爱  
+##### 24004#       发表于 2025-2-15 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433802&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 19:28</a>
+
+mujica是个在动画播出前就有不少乐团粉的乐队吧，动画对他们会有打击吗，感觉可能最多影响一下谷价。
+
+反 ...</blockquote>
+打击肯定是有，不过我说的主要是轻度观众
+
+*****
+
+####  forgetit  
+##### 24005#       发表于 2025-2-15 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433754&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:22</a>
+
+泛式前面几集就一直打预防针，圆滑的暗示了。
+
+“我们不当乐子人，我们当快乐人，快乐的看番”，
+
+这种话术 ...</blockquote>
+我感觉我没看都能想出瓶子的语气啥的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 24006#       发表于 2025-2-15 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433814&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 19:30</a>
+
+我之前杂七杂八地写了不少，所以在楼里还是蛮开心的，虽然并没什么人看2333
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+字太多了，干读确实很难读下去<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 24007#       发表于 2025-2-15 19:34
+
+摘掉脑子工业糖精也是可以吃的，都嗑过乾隆可香高黄黄棕，鸡里的cp也不是不能吃<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 24008#       发表于 2025-2-15 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433773&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-15 19:25</a>
+笑死，万一那个剧透是真的，感觉现在争这些没任何意义，毕竟有想象力的还在后面呢。 ...</blockquote>
+我现在感觉那个剧透非常真了，快端上来等不及了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 24009#       发表于 2025-2-15 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433789&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-2-15 19:27</a>
+喵梦角色是在第四集毁掉的，纯为了炸团作出的发言，炸团对她这个事业心重的人来说有什么好处？
+
+前面摘面 ...</blockquote>
+大喵前面和祥子关于睦子米演戏的讨论纯粹是强行制造的矛盾。
+
+睦木僵被当成演戏强行圆过去了，已经很勉强了。 那也就就一个片段的事，顶多引发一次小热搜之类的讨论。 有什么必要上升到什么演技和音乐的讨论。
+
+而且就算是演戏，大祥从头到尾负责了母鸡卡的编曲歌词和演戏的台本，一个人构建了母鸡卡的世界观。 
+喵梦有什么资格自己揣测和代表观众和大祥叫板。
+
+本身这个矛盾就是站不住脚的，完全是编剧自己硬来的矛盾。
+
