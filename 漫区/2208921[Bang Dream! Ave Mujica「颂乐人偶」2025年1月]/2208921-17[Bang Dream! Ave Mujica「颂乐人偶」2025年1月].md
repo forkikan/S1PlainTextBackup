@@ -2637,3 +2637,173 @@ nga专楼从昨晚开始传遍了，抽象的不行
 仔细想想无论crychic是要风光还是大葬需要扯上mygo这个团半毛钱关系吗。灯素希本来就是以crychic成员身份调 ...</blockquote>
 现在扯上爱音场外都已经滑坡爱音退队go解散ccc复活了，不扯上爱音我都不敢想能滑到什么地步<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  forgetit  
+##### 23906#       发表于 2025-2-15 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433395&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-15 18:22</a>
+
+马后炮一下，播出第一集的时候我就说分镜和演出不如前作精致，感觉系构在分镜上的话语权被削减。有点怀疑能 ...</blockquote>
+制作质量确实不行<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 23907#       发表于 2025-2-15 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433350&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 18:15</a>
+
+正经开播后再来这栋楼才叫对的时候，还没开播前基本还是首页几位现在已经消失的鸡友的共振楼 ...</blockquote>
+之前那鸡厨共振楼我一年都不敢进几次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自从敲定推迟一年上鸡动画就全是对狗团和武士道的输出
+
+又怕鸡动画烂又要骂武士道死马
+
+结果现在鸡动画真的烂了，还是鸡厨最不希望的方式烂，真是惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 23908#       发表于 2025-2-15 18:27
+
+下一集应该会有人设回撤，给mygo一点团魂描写的。
+因为mygo也该退场了，再赖着不走，鸡团就真成路人了。
+
+但愿不要如剧透说的那样，又把祥子当垫子，不然祥子已经很小丑，真小丑完了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 23909#       发表于 2025-2-15 18:27
+
+最早的时候还不允许管丰川祥子叫大祥或者用--》🐘来指代的，这是我见过最离谱的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以我才直到第三集才敢在你楼说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23910#       发表于 2025-2-15 18:27
+
+<blockquote>十九号大侠 发表于 2025-2-15 18:20
+大家滑坡到哪一步了</blockquote>
+大概到沮喪了
+
+星期二樓裡應該能到接受
+
+然後星期四再重置階段再來一次
+
+*****
+
+####  qlipho  
+##### 23911#       发表于 2025-2-15 18:28
+
+<blockquote>堆雪若叶 发表于 2025-2-15 18:18
+仔细想想无论crychic是要风光还是大葬需要扯上mygo这个团半毛钱关系吗。灯素希本来就是以crychic成员身份调 ...</blockquote>
+还有让吉他，十分刻意。真缺你一把吉他吗
+
+*****
+
+####  thisisaspider  
+##### 23912#       发表于 2025-2-15 18:29
+
+回看起来，祥厨可能是攻击性最低的了，祥子被OOC和拷打几集了，厨子都在抗压。别的角色都不算OOC还能当正面描写，就一个没有实锤的霸凌和团魂消散，一下就能炸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 23913#       发表于 2025-2-15 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433434&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-15 18:28</a>
+还有让吉他，十分刻意。真缺你一把吉他吗</blockquote>
+刻意能刻意的过不回信息吗 完全不知道这句词加进来的意义
+
+
+*****
+
+####  天空塔书记官  
+##### 23914#       发表于 2025-2-15 18:30
+
+在第三集的时候明显是演出效果压过了剧情和人物的塑造，现在的问题是A团本身有关的内容还是太少了，第八集应该不会再往后拖了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 23915#       发表于 2025-2-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433417&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 18:26</a>
+
+之前那鸡厨共振楼我一年都不敢进几次自从敲定推迟一年上鸡动画就全是对狗团和武士道的输出
+
+又怕鸡动画烂 ...</blockquote>
+但是反过来一想，前面那些消失的鸡友只看了三四集就脱坑或者转乐子人，而go友要被折磨到7集，我这种一般路过看番人要被“折磨”到13集，是不是就觉得其实鸡友没那么惨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 23916#       发表于 2025-2-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433396&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-15 18:22</a>
+话说圣人的声优最近怎么没有发动画观想了啊</blockquote>
+你在想什么，都拔手机电池了，要不是2.5企划，这姐们直接被踢出去都正常
+
+*****
+
+####  堆雪若叶  
+##### 23917#       发表于 2025-2-15 18:31
+
+ 本帖最后由 堆雪若叶 于 2025-2-15 18:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433403&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 18:23</a>
+
+现在扯上爱音场外都已经滑坡爱音退队go解散ccc复活了，不扯上爱音我都不敢想能滑到什么地步 ...</blockquote>
+给舆论加码的不还是搁置自家live给别人写歌给别人递吉他，crychic和解本来就不需要让灯素希的mygo成员身份垫给crychic成员身份，特意塞两边冲突还端水就是奔着场外爆炸来的。
+
+*****
+
+####  天空塔书记官  
+##### 23918#       发表于 2025-2-15 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433437&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 18:29</a>
+回看起来，祥厨可能是攻击性最低的了，祥子被OOC和拷打几集了，厨子都在抗压。别的角色都不算OOC还能当正面 ...</blockquote>
+笑死，我之前只是写了一点关于喵梦性格解析就被追着骂，还被扣喵粉的帽子，这也能叫攻击性低<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大户爱  
+##### 23919#       发表于 2025-2-15 18:32
+
+场外鸡狗大战，其实也就是祥子厨大战爱音厨，我也不是很理解。都这样了，还在吵饭圈。你们就不能一起骂编剧了嘛。
+
+不过看乐子的心态，其实还蛮好玩的。仔细想想，也能理解鸡团粉丝心态，什么ave mujica，写到现在，全是负面描写。好惨啊。
+
+wsd你就不能给鸡团人物一点正面弧光嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就六集了，我看你鸡团这个饺子怎么包<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ispep  
+##### 23920#       发表于 2025-2-15 18:32
+
+毕竟祥子一直都是这样，但其他人是第七集这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lyzers  
+##### 23921#       发表于 2025-2-15 18:33
+
+戳辣，祥子小丑才是对的，你看前面抽大陀螺大家抽得多开心嗷，恨不得把又蠢又坏打成水印贴在屏幕上，祥子小丑那叫符合母鸡卡底层逻辑
+
+*****
+
+####  MASKA-1  
+##### 23922#       发表于 2025-2-15 18:34
+
+wsd觉得ccc老好了，观众肯定老爱看了。
+
