@@ -14908,3 +14908,103 @@ sumimi只有两人也能成团吗？那比ccc实装更突破了吧？
  所以为啥CCC不能和两团共存呢  能不能简明解释一下</blockquote>
 俄狄浦斯
 
+
+*****
+
+####  wpcc  
+##### 23541#       发表于 2025-2-15 13:00
+
+tft才是武士道最喜欢的宣发节奏 白月光前妻文学 白祥 不拉胯的杨工 。不会吉他的吉他手爆火已经为时已晚了！
+
+*****
+
+####  wpcc  
+##### 23542#       发表于 2025-2-15 13:01
+
+你b的宣发又喜欢串又喜欢剧透，很难不是隔岸观火的！
+
+
+*****
+
+####  AshPenguin  
+##### 23543#       发表于 2025-2-15 13:02
+
+说到底ccc复辟是个商业逻辑。狗团和鸡团已经出道了，狠狠的开live收门票了，那再怎么把热度炒高一点呢？不如来个ccc限时复活吧，就和手游限定池一样观众肯定疯狂爆米。木谷社长一拍脑袋，底下那个谁谁谁去把编剧叫过来，我要复活C团
+
+至于狗团祝，他们幸福，反正该开的live已经开过了，从你们这借调3个人出来应该没人介意吧
+
+*****
+
+####  天空塔书记官  
+##### 23544#       发表于 2025-2-15 13:04
+
+角色厨和cp党争是差不多吗，好像我的脑回路还停留在06动画士剑和双王互撕的时候，这也能算是我为数不多的雷点，fsn的金闪闪还是似了的好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23545#       发表于 2025-2-15 13:05
+
+<blockquote>AshPenguin 发表于 2025-2-15 13:02
+说到底ccc复辟是个商业逻辑。狗团和鸡团已经出道了，狠狠的开live收门票了，那再怎么把热度炒高一点呢？不 ...</blockquote>
+根本性错误 先有mujica的设定再有mygo这个设定 等下mygo要怎么组呢 不如我们弄一个ccc出来这样11个人都串起来了。mujica是严格对仗 海猫的 大型同人都不为过。
+
+*****
+
+####  一心而用  
+##### 23546#       发表于 2025-2-15 13:05
+
+<img src="https://p.sda1.dev/22/ef467ed6feae0336e51a672db441822c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e49e11ac078c47bd4c6ead5fdec55c09/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23547#       发表于 2025-2-15 13:06
+
+只要弄清先有鸡再有狗的问题也不难理解狗为什么和鸡对仗了。至于为什么狗先播 狗后播就卖不了ccc了。
+
+狗友被几个战犯骗的团团转啊
+
+*****
+
+####  天空塔书记官  
+##### 23548#       发表于 2025-2-15 13:07
+
+CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除非还会出新歌，否则也不太可能作为一个单独的乐队活动
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  z-hunter  
+##### 23549#       发表于 2025-2-15 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431217&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 12:51</a>
+
+所以为啥CCC不能和两团共存呢
+
+能不能简明解释一下</blockquote>
+因为C团是GO团厨最脆弱的神经，第一季最大的危机就是素世的复活C团事件，你这真C团和GO团共存？3个遗老稍有点态度不同都被被放大无数倍被当双标被骂，你看现在就是最典型的时间。
+
+你说编剧能端得好两团之间的水，两团都很幸福态度都一样，那难度就大了。一做得不好，现在GO团厨的风暴就是最好的例子。。。
+
+更不要说邦邦系列的祖宗之法不可变，共存是不可能的，组乐队是世上最幸福的事，5个人的团魂才是邦企划的核心
+
+至于JI团，我都替她们可怜。整部动画一半垫给了C团。你看现在有人为鸡团发声喊冤的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把C团的事塞进MUJICA动画应该是鸡厨最不想见到的场景之一，完全垫了……
+
+你看这楼最开始活跃的鸡厨全部都不见了，你就知道有多惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23550#       发表于 2025-2-15 13:07
+
+<blockquote>天空塔书记官 发表于 2025-2-15 13:07
+CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除非还会出新歌，否则也不太可能作为一个单独的乐队 ...</blockquote>
+tft真不是小噱头 ccc真是主推 
+

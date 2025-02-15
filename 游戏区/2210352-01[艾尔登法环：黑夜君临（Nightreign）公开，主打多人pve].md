@@ -2325,3 +2325,18 @@ ps有人连上的吗
 
 哪怕只是测试，也是现代游戏设计史上的奇葩。
 
+
+*****
+
+####  姐霓姐霓  
+##### 255#       发表于 2025-2-15 13:01
+
+这种边角料缝出来的游戏还要卖200块，属实有点不当人了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  swordofsoul1  
+##### 256#       发表于 2025-2-15 13:02
+
+太无聊了，毫无爽点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
