@@ -4278,3 +4278,13 @@ Firstake里羊唱的还行，能不能把动画音轨换成这个
 
 不会再看了，也不会再听了
 
+
+*****
+
+####  hahass_  
+##### 416#       发表于 2025-2-15 12:42
+
+ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和灯一起跟过去睦头家，然后进op又是一分半，结果op结束只过了半分钟四个人就全被mortis赶走了
+
+这编排真给我整笑了，看完直呼我在期待什么？mortis这波真是教科书般的守家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

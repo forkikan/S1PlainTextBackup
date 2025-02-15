@@ -14556,3 +14556,164 @@ ccc复活事一定的 不会说今年突然搞个复活</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ccared  
+##### 23507#       发表于 2025-2-15 12:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可你鸡也拉不出一个柯哀这种全受众层人气top打角解啊。
+青山花几话就能拉出一个复杂神秘的观众童年白月光，你🦄是指望抽五集大祥陀螺把大祥抽成人气top吗，
+
+*****
+
+####  刑部姬真可爱  
+##### 23508#       发表于 2025-2-15 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431078&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 12:35</a>
+啥都说往手游里塞，那你这12集除了复活死人还干寄吧啥了，我请问了</blockquote>
+你这么说本来也没毛病，第四集Mujica就已经死了，剩下的集就是在等着看怎么起死回生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 23509#       发表于 2025-2-15 12:40
+
+ave好像是把好几段掐头去尾的故事缝到了一起，就像2/3季平行登场的好几支乐队一样，但个人叙事和团队叙事不是一回事，叙事的完整性直接碎了一地，观感下降了一大截，但对于更喜欢某些“亮点剧情”的观众反而没多大影响，这大概就是物哀情结吧，某种一瞬的情绪<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  hysjmr  
+##### 23510#       发表于 2025-2-15 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431088&amp;ptid=2208921" target="_blank">w酱 发表于 2025-2-15 12:37</a>
+ 那gop毒唯敢去tft下面刷ccc滚出邦多利我就相信毒唯的战斗力   但是并没有这个情况出现 </blockquote>
+为什么又分极端粉了，意思是不满的都是极端粉呗？
+
+*****
+
+####  AnnieLeonhart  
+##### 23511#       发表于 2025-2-15 12:42
+
+确实，阿侬是角姐那你也没别人是灰原哀啊
+
+*****
+
+####  wpcc  
+##### 23512#       发表于 2025-2-15 12:42
+
+<blockquote>南宮凝香 发表于 2025-2-15 12:29
+再說了
+
+就算行程定好了
+
+</blockquote>
+你给武士道交违约金吗 在mygo做完的时间点ccc复活的各种准备都做下去了。已经是命中注定的四团并行了
+
+*****
+
+####  怀沙汨罗  
+##### 23513#       发表于 2025-2-15 12:43
+
+替wsd商业着想的别急，就现在的制作水平，可以预见后面还有大活。现在就已经炎上到删动态了，未来还会做什么不敢想哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以角色厨互相捅刀子干啥呢，我建议趁早切割设定，和ave mujica这注定一坨的乐子较劲没意思。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  LeonsCat  
+##### 23514#       发表于 2025-2-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431077&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 12:35</a>
+
+别低估人类的艹台程度，人家是真没想到中华炮会爆发，只会奇怪老中为什么会不为C团感动
+
+你看这第7话播完 ...</blockquote>
+116# [https://bbs.saraba1st.com/2b/for ... 21&amp;pid=67427787](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67427787)
+
+日方着力点和中方理解不同一点也不奇怪，甚至可能就是问题关键之一。但是你要说武士道要到24年1月以后甚至到25年才意识到中华炮，那就是明摆着说整个武士道没有一个没24x7喝醉的了。
+
+*****
+
+####  w酱  
+##### 23515#       发表于 2025-2-15 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431125&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-15 12:42</a>
+为什么又分极端粉了，意思是不满的都是极端粉呗？</blockquote>
+就是说啊 看live的这个受众有很多种啊
+这种唯粉人我不觉得是主流群体
+
+*****
+
+####  wpcc  
+##### 23516#       发表于 2025-2-15 12:43
+
+<blockquote>是谁的书画 发表于 2025-2-15 12:35
+啥都说往手游里塞，那你这12集除了复活死人还干寄吧啥了，我请问了</blockquote>
+邦邦剧情靠手游补完是传统 除平方也干了
+
+*****
+
+####  AshPenguin  
+##### 23517#       发表于 2025-2-15 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430945&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:18</a>
+
+25年q1我都笑了 mujica动画24年夏天就做完了。
+
+剧本更是播出之前就写好的 你让日本人24年底重做？ ...</blockquote>
+大哥你给我气笑了，我为此翻出来武士道截至2024年6月的财报，以及社长锐评 [https://finance.logmi.jp/articles/379986](https://bbs.saraba1st.com/2b/网页)，这就是你说的夏天做完了来不及对中华炮反应的木谷社长 <blockquote>2024年6月期は、2023年夏放送のTVアニメ『BanG Dream! It's MyGO!!!!!』が国内外、特に国内と中国で大ヒットし、『バンドリ！』のバンド『MyGO!!!!!』を中心に、イベントやパッケージ商品などが好調に推移し、通期最高売上を達成することができました。来期には、2025年1月からTVアニメ『BanG Dream! Ave Mujica』の放送を予定しており、アニメ展開に合わせたさらなる飛躍を目指していきます。</blockquote><blockquote>各MD商品は非常に好調です。特に、デフォルメフィギュアブランドの『PalVerse』と『PalVerse Palé.』の立ち上げが順調に進んでいます。
+
+『PalVerse』は税込1,100円とフィギュアとしては手に取りやすい価格帯のトレーディング商品ではありますが、クオリティが非常に高いです。国内だけでなく中国からも注文が多数来ていますし、世界中から注文が集まるタイトルもあります</blockquote><blockquote>『バンドリ！』プロジェクトのライブイベントについても先ほどご説明があったように、伸びています。ライブイベントの好調に合わせて、グッズ販売の機会も増え、参加人数も増えています。そのため販売数も増加しています。加えて、現在『MyGO!!!!!』が中国でブレイクしており、日本以上の人気になっていることから、中国への輸出も非常に増えています。</blockquote><blockquote>そのため、今までは海外に対しては、「アメリカ3、中国3、その他4」という比率で考えていたのですが、私の中では現在、「中国5、アメリカ2、その他3」という比率を考えています。したがって、これからの海外出張の半分は中国になるかと思います。すでに今年に入って2回、中国に行っていますが、あと2回くらい行くのではないかと予想しています。</blockquote>
+
+*****
+
+####  wpcc  
+##### 23518#       发表于 2025-2-15 12:45
+
+<blockquote>LeonsCat 发表于 2025-2-15 12:43
+116# https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67427787
+
+ ...</blockquote>
+
+mygo动画做完的时候 mujica大纲也写完了 ccc复活的安排也都弄下去了 没有联播是因为动画还没做完
+
+*****
+
+####  _47  
+##### 23519#       发表于 2025-2-15 12:45
+
+几乎所有与ccc相关的台词都是用的过去式表述，正经Live没给用的是MyGo彩排里的部分时间，真的不需要执着在这限定复活上面。 
+ccc的和解是狗团内关系补完的必需品，在狗10后只是搁置了对Crychic的讨论，而不是将其解决了，这是徘徊在那三人心中的幽灵，也直接影响了其行为（比如mygo后面的递歌词本）。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wpcc  
+##### 23520#       发表于 2025-2-15 12:46
+
+<blockquote>AshPenguin 发表于 2025-2-15 12:45
+大哥你给我气笑了，我为此翻出来武士道截至2024年6月的财报，以及社长锐评 https://finance.logmi.jp/art ...</blockquote>
+我就问你mujica剧本是不是和mygo一起写完的？
+
+
+*****
+
+####  wpcc  
+##### 23521#       发表于 2025-2-15 12:47
+
+中华炮哪怕到天上去了独角兽也不会磕头把爱音写成大女主的 改mujica剧本痴人说梦
+
+*****
+
+####  厄神之息  
+##### 23522#       发表于 2025-2-15 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那手游会单独实装一个ccc的团吗？还是到时候单独给3+2出个ccc衣服的卡就算完事了？
+
