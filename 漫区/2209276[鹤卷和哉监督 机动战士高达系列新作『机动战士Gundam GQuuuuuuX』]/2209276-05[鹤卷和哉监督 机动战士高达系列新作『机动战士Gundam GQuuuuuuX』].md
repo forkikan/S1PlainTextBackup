@@ -13445,3 +13445,26 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 好可爱啊 感觉眼睛做SPA 自己浑身有劲 走路带风 
 哎就是感觉国内估计也不会上……
 
+
+*****
+
+####  岸浪白野  
+##### 6956#       发表于 2025-2-15 18:00
+
+有人能随到这胶片的也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/15/175914ro66o3e3j3duelx0.png" referrerpolicy="no-referrer">
+
+<strong>20250215175906.png</strong> (251.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 17:59 上传
+
+*****
+
+####  zakufa782  
+##### 6957#       发表于 2025-2-15 18:01
+
+FRS的麻球好像根本没有盯人表情，拼装部大失算
+
