@@ -1193,3 +1193,15 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
 
 所以最佳家庭为什么不是马趴呢
 
+
+*****
+
+####  loneblade  
+##### 107#       发表于 2025-2-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429096&amp;ptid=2210743" target="_blank">麦吉卡 发表于 2025-2-15 02:30</a>
+你太狂妄了，你以为物理效果就是画面好吗？我看到小机器人介绍物理效果的视频，那个切木头的片段让我惊得 ...</blockquote>
+建议你搜下合金装备崛起切西瓜 十年前的游戏
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

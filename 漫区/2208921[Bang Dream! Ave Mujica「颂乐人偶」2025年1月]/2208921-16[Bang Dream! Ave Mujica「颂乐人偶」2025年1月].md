@@ -14399,3 +14399,160 @@ ccc复活事一定的 不会说今年突然搞个复活</blockquote>
 
 这么说吧，按照MyGO播出时期官号运营的激进操作，你要说武士道意识不到大概率中华炮爆发，那大概是从木谷到基层社员全部喝高了。总不至于你真的以为直接同步放12话是大陆运营独走吧？
 
+
+*****
+
+####  w酱  
+##### 23493#       发表于 2025-2-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431018&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:26</a>
+不是滑坡啊 你没懂啊 现在中华炮都要求ccc滚出三次元 你现在搞这种东西不被骂吗 ...</blockquote>
+就是好奇喊ccc滚的小鬼他们买碟吗
+估计也不买吧 嗯喊
+
+*****
+
+####  天空塔书记官  
+##### 23494#       发表于 2025-2-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430981&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-15 12:21</a>
+睦祥连个回忆都没有，我不好说</blockquote>
+我之前一直以为五六集会有回忆的，或者第七集上半也行，但…不会真藏到手游去吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天邪鬼  
+##### 23495#       发表于 2025-2-15 12:29
+
+其实都怪监督把祥子身世放第一集说完了，要是放Mujica解散的时候说，随着祥爷的出场把那个做他女儿的场景一起放出来，就没人觉得迈巴赫好坐了。
+祥子靠这无敌金身把ccc重组，哪个角色厨敢跳出来说话，你推有祥子惨吗？情绪流再一推，不就生哭立拔了
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  刑部姬真可爱  
+##### 23496#       发表于 2025-2-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431021&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 12:27</a>
+為什麼是一定？
+
+就算第2大市場完全吃不下3C</blockquote>
+都到现在了，确实能看出来人家就是一根筋猛干踩死油门不松了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 23497#       发表于 2025-2-15 12:29
+
+再說了
+
+就算行程定好了
+
+看市場反應也能微調宣發口徑
+
+加一個期間限定重聚給自己留一條退路
+
+反應還行才推是有多難？
+
+*****
+
+####  qlipho  
+##### 23498#       发表于 2025-2-15 12:31
+
+<blockquote>天空塔书记官 发表于 2025-2-15 12:29
+我之前一直以为五六集会有回忆的，或者第七集上半也行，但…不会真藏到手游去吧
+
+</blockquote>
+铁窗泪了挺好的，这幽默编剧还是别写了
+
+*****
+
+####  天空塔书记官  
+##### 23499#       发表于 2025-2-15 12:32
+
+现在这样只能理解为wsd想要多点开花了，之后还有sumimi能炒呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  hysjmr  
+##### 23500#       发表于 2025-2-15 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431029&amp;ptid=2208921" target="_blank">w酱 发表于 2025-2-15 12:28</a>
+ 就是好奇喊ccc滚的小鬼他们买碟吗 估计也不买吧 嗯喊</blockquote>
+好公式的拷打。要是问为什么人气高没销量也就罢了，别人不想买要怎么给你证明？
+
+*****
+
+####  _47  
+##### 23501#       发表于 2025-2-15 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431018&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:26</a>
+不是滑坡啊 你没懂啊 现在中华炮都要求ccc滚出三次元 你现在搞这种东西不被骂吗 ...</blockquote>
+我是真的没理解鸡狗是怎么跟Crychic对立的，一个摆明死了的团。鸡的团魂现在其实完全没讲还得等后续，狗不如说这场把牵挂断了才是彻底的变成了一辈子乐队
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  太二EricGuo  
+##### 23502#       发表于 2025-2-15 12:33
+
+我看圣人厨跟死小的角除是一模一样的，话术和行为
+
+*****
+
+####  z-hunter  
+##### 23503#       发表于 2025-2-15 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431022&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-15 12:27</a>
+
+这么说吧，按照MyGO播出时期官号运营的激进操作，你要说武士道意识不到大概率中华炮爆发，那大概是从木谷到 ...</blockquote>
+别低估人类的艹台程度，人家是真没想到中华炮会爆发，只会奇怪老中为什么会不为C团感动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你看这第7话播完对邦追加C团，手游实装春日影，TFT上C团春日影，明显就是大人们早就安排好的一波关联操作
+
+中华炮爆发算条毛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 23504#       发表于 2025-2-15 12:35
+
+啥都说往手游里塞，那你这12集除了复活死人还干寄吧啥了，我请问了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  w酱  
+##### 23505#       发表于 2025-2-15 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431057&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-15 12:32</a>
+
+好公式的拷打。要是问为什么人气高没销量也就罢了，别人不想买要怎么给你证明？ ...</blockquote>
+
+那gop毒唯敢去tft下面刷ccc滚出邦多利我就相信毒唯的战斗力 
+
+但是并没有这个情况出现
+
+说白了极端粉是少数的 不影响
+
+*****
+
+####  刑部姬真可爱  
+##### 23506#       发表于 2025-2-15 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431060&amp;ptid=2208921" target="_blank">_47 发表于 2025-2-15 12:33</a>
+我是真的没理解鸡狗是怎么跟Crychic对立的，一个摆明死了的团。鸡的团魂现在其实完全没讲还得等后续，狗 ...</blockquote>
+说白了wsd烂炒太恶心了，它不急着在场外复活ccc，那还有得说，剧里刚播完葬礼现实给你马上复活，这不成了地狱笑话
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
