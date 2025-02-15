@@ -15008,3 +15008,121 @@ CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除�
 CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除非还会出新歌，否则也不太可能作为一个单独的乐队 ...</blockquote>
 tft真不是小噱头 ccc真是主推 
 
+
+*****
+
+####  Суслов  
+##### 23551#       发表于 2025-2-15 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431217&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 12:51</a>
+所以为啥CCC不能和两团共存呢
+
+能不能简明解释一下</blockquote>
+怎么不能共存呢，存，都可以存.vv<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过看第七集的表现，已成团的go团团魂都不能传达给观众，除了猫猫人设最好写的爱音都能写成导火索，我对共存后的状态略微有些怀疑呢<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23552#       发表于 2025-2-15 13:09
+
+<blockquote>z-hunter 发表于 2025-2-15 13:07
+因为C团是GO团厨最脆弱的神经，第一季最大的危机就是素世的复活C团事件，你这真C团和GO团共存？3个遗老稍 ...</blockquote>
+mujica完全沦为独角兽xp爆发田了
+
+*****
+
+####  LeonsCat  
+##### 23553#       发表于 2025-2-15 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431177&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:47</a>
+
+中华炮哪怕到天上去了独角兽也不会磕头把爱音写成大女主的 改mujica剧本痴人说梦 ...</blockquote>
+改成爱音大女主那同样烂完。只要整个系列构成建立在祥all性癖放出之上，怎么都还是这样。
+
+我也不觉得中华炮会对武士道在本土的运营风格有多大影响，但是说他们不知道就有点睁着眼睛说瞎话了。
+
+*****
+
+####  wpcc  
+##### 23554#       发表于 2025-2-15 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431347&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-15 13:09</a>
+
+改成爱音大女主那同样烂完。只要整个系列构成建立在祥all性癖放出之上，怎么都还是这样。
+
+我也不觉得中华 ...</blockquote>
+在剧本写完那一刻就改不了了 和不知道也没区别 硬着头皮卖ccc也要卖了
+
+*****
+
+####  AshPenguin  
+##### 23555#       发表于 2025-2-15 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431308&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:05</a>
+
+根本性错误 先有mujica的设定再有mygo这个设定 等下mygo要怎么组呢 不如我们弄一个ccc出来这样11个人都串 ...</blockquote>
+我糊涂了，哪里有一段官方认证的访谈或者什么东西，提到是先有鸡再有狗的？请赐教
+
+如果没有只能鉴定为假药入脑了
+
+
+*****
+
+####  是谁的书画  
+##### 23556#       发表于 2025-2-15 13:12
+
+b站现在的二创太变态了，真是有活的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还得是这帮逼，比本篇有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23557#       发表于 2025-2-15 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431325&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:07</a>
+tft真不是小噱头 ccc真是主推</blockquote>
+那也得能出新歌吧，在没看到新歌之前，我就当是wsd线下炒热度和给之后迷子和A团上打前阵了，如果CCC想要单独活动，也得有自己的歌才行，就这两首可不够，RAS当初上武道馆可是串了整个企划才凑够歌曲数的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23558#       发表于 2025-2-15 13:13
+
+还有一点是什么为什么要卖ccc 是为了稳住羊宫 羊宫我认为之前想主要做一线动画声优的，等于接班鬼后，现在上了TFT就不能和武士道甩臭脸了 为了留住大爹给大爹两个团也是策略。
+
+*****
+
+####  Yugao  
+##### 23559#       发表于 2025-2-15 13:15
+
+<img src="https://img.saraba1st.com/forum/202502/15/131555c3ezfj1vtrdfr132.gif" referrerpolicy="no-referrer">
+
+<strong>C6PIB{6PKJQ5U8MMUKDPV[G.gif</strong> (528.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 13:15 上传
+
+*****
+
+####  z-hunter  
+##### 23560#       发表于 2025-2-15 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431320&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 13:07</a>
+
+CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除非还会出新歌，否则也不太可能作为一个单独的乐队 ...</blockquote>
+狗厨也只能这样假装安慰自己（我说的不是你
+
+毕竟邦邦系列的祖宗之法，武士道就算再怎样只顾着赚钱不寒掺，也不敢违背这点。
+
+或者像你楼上那样只能阴阳怪气武士道真推的是CCC，只要赚钱不要祖宗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现时点的集中宣发CCC，狗厨是没办法不敏感不反应的，估计会持续一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
