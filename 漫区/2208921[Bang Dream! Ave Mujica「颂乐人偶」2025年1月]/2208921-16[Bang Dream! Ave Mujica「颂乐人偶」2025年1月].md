@@ -15379,3 +15379,242 @@ C團復辟本來就是懸在狗推頭上的達摩克利斯之劍
 没爬完全楼，问一下现在所谓的初华是小姨，祥子第8话要复活ccc是多大程度上的可信？ ...</blockquote>
 第二个比第一个稍微可信一点，第二个是有实绩的舅舅说的，但是原话只是复活没说哪个团。第一个的来源是聊天记录，中间二手传播次数挺多的。
 
+
+*****
+
+####  wpcc  
+##### 23585#       发表于 2025-2-15 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431507&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 13:30</a>
+
+就像之前有人說的
+
+沒安全感了</blockquote>
+比这个更狠 武士道直接击碎了狗团的团魂 表示狗团只是凑一起的千斤顶队伍罢了。团魂只有一个白祥 ccc有 mujica马上有 sumimi有反田 狗你只能看羊宫不情不愿了！
+
+*****
+
+####  AnnieLeonhart  
+##### 23586#       发表于 2025-2-15 13:33
+
+<blockquote>cauchua3 发表于 2025-2-15 13:21
+没爬完全楼，问一下现在所谓的初华是小姨，祥子第8话要复活ccc是多大程度上的可信？ ...</blockquote>
+同一个信源说对了木子米的吉他是借阿侬的
+
+*****
+
+####  wpcc  
+##### 23587#       发表于 2025-2-15 13:34
+
+讲道理我不看狗还真是对的 能少看13集黑祥 
+
+*****
+
+####  看穿一切的鱼  
+##### 23588#       发表于 2025-2-15 13:34
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-15 13:37 编辑 
+
+不过go剧里就压根没团魂吧，拍照的时候都不是一条心，还是二创太入脑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+爱素出脑的话，go里soyo不就是一直敷衍和阴阳吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+爱灯才应该讨说法，你们天台和水族馆是白去了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刑部姬真可爱  
+##### 23589#       发表于 2025-2-15 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431481&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-15 13:28</a>
+
+当初素世不成功不就是因为祥子不回头嘛。现在祥子回来了，一切都能解决了。素世的计划不就成功了吗？
+
+信不 ...</blockquote>
+她们合弹春日影时的独白本身就是在解构ccc的特殊性，结束后祥子鞠躬走人，灯素希三人自己聊自己的都没往祥睦这边看一眼，就像你说之前素食不成功是祥子不回头，但现在是祥子回头（鞠躬告别）而灯素希三人没有回头
+
+*****
+
+####  wpcc  
+##### 23590#       发表于 2025-2-15 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431534&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-15 13:34</a>
+
+不过go剧里就压根没团魂吧，拍照的时候都不是一条心，还是二创太入脑了。
+
+爱素出脑的话，go里soyo不就是一 ...</blockquote>
+千斤顶工具人别来奥
+
+*****
+
+####  天空塔书记官  
+##### 23591#       发表于 2025-2-15 13:37
+
+实际上就是CCC本来应该是为迷子和A团剧情服务的，但目前看来线上和线下都没有达成这种效果，反而影响了两团的稳定性，反客为主了，所以让团推感觉遭到了背叛，大概这样 ? 
+
+本质还是藏剧情炒作的问题，如果能更早进入A团的剧情，应该就不会是这样了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  帝下室の年糕  
+##### 23592#       发表于 2025-2-15 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431102&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-15 12:39</a>
+
+可你鸡也拉不出一个柯哀这种全受众层人气top打角解啊。
+
+青山花几话就能拉出一个复杂神秘的观众童年白月光， ...</blockquote>
+粉毛痴子已经在邦吧战吧紫吧人人喊打了，还隔这自以为无敌盾全网出征呢，真正的核心圈子会给这帮电竞驱二游痴YLG好脸色吗，狗鸡可不是京吹那种一边倒的二元对立，粉毛终究只是个进不了核心圈子的狗团老2.5罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 23593#       发表于 2025-2-15 13:39
+
+怎么能有这么多自己脑补的弱智，我一条一条来辟谣：
+
+mujica比mygo早？：实际上仅仅是之前有一份采访说的mujica的角色设定早于mygo完成，而之后在定下了两团要绑定推出以后，为了动画剧本需求再原创出的crychic，也就是所谓的白祥是不在一开始mujica的设定中的。最终反映到动画，根据剧本的先后顺序，就变成是mygo篇先推出，mygo三次元先开始活动；
+
+剧本被改？：实际上在mygo动画完结的时候，也就是23年9月，绫奈强调她退出整个邦企划的时间点，mujica动画已经做到第三第四集了，而且mujica的成员也说动画配音是在两年前进行的。而绫奈曾在23年初说完成了很重要的一份剧本，基本能确定是mygo/mujica系列。在mygo时候被大家所认可就是她们的脚本会议，是基于各个角色的基本性格，在大纲的基础上，一起反复讨论推演她们该做什么事、她们之间会发生什么关系，再反映成动画脚本，所以让很多观众都觉得逻辑缜密；到了mujica当然还是一样干的，这也就是采访中所说的，在mujica的制作过程中，随着故事的推进以及戏剧性需要，需要对剧本做反复修改。
+
+监督独走？：实际上，柿本广大在剧本上的话语权一直不如绫奈和她的姐妹团们，甚至在菜花这种柿本自己职位挂在系构/单集上的作品片场，脚本会议上他也是低低在下，出自菜花片场里第三方人物的采访。
+
+当然，最后成品他作为监督来拍版定稿的，他肯定还是要负有责任，但所谓传的他自己乱改，就属于信口开河，连当年mygo怎么做的都没了解过就来造谣了
+
+
+*****
+
+####  z-hunter  
+##### 23594#       发表于 2025-2-15 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431534&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-15 13:34</a>
+
+不过go剧里就压根没团魂吧，拍照的时候都不是一条心，还是二创太入脑了。
+
+爱素出脑的话，go里soyo不就是一 ...</blockquote>
+并不是哦，拍照的时候确实不是一条心。但唱完迷声叫，迷路日，确定完乐队队名，13集开完庆功会后，团魂就形成了。
+
+至少狗动画剧情是这么拍的，大多数狗厨也是这样觉得的吧（至少我是这样觉得的
+
+形成团魂的时间并不是诗超绊
+
+*****
+
+####  天空塔书记官  
+##### 23595#       发表于 2025-2-15 13:40
+
+迷子的团魂一直都在灯身上，其他的成员只是灯的共鸣者，所以只要灯还想组一辈子乐队，迷子就不会散，其实问题也不大
+
+只是剧中这点表现的不够明显<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AshPenguin  
+##### 23596#       发表于 2025-2-15 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431422&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:19</a>
+
+如果你问访谈原文更变态了。我们原来想做一个ccc出来 但是我们又想做十个人多一点，怎么办 唉我们拆成两 ...</blockquote>
+既然你总是不举证，我就帮你举了。这是我找到的2025年1月的监督访谈[https://www.bilibili.com/opus/1009128151323770880](https://bbs.saraba1st.com/2b/监督访谈)，这里面和你的观点搭一点点边的片段。这里面哪里提到本来想做个c团的？或者先有鸡团后有狗团的？看到没，本来是要制作<strong>2个</strong>相反的新乐团。
+
+不要沉浸在自己的幻想里朋友 <blockquote>柿本　首先是“BanG Dream!”要开始制作2个新乐团的企划，是从这裡开始的。最开始决定下来的是乐团的方向性。这两个乐团是相反的存在，MyGO!!!!!是庞克，而Ave Mujica是金属。具体的细节部分是先从MyGO!!!!!开始的。
+
+——‘It's MyGO!!!!!’的后期，灯和爽世对CRYCHIC的存在念念不忘，但也决心认真对待现在的乐团，其他的成员也决定一直玩乐团，MyGO!!!!!今后变成了一个很棒的乐团，但能安心的只有很短暂的瞬间，在第12话后期～最终话，祥子组成了Ave Mujica并成功强势出道，非常的衝击。
+
+柿本　其实，最终话是之后才决定要放Ave Mujica的。原本有决定第13话的构成，但在制作剧本的时候，每当角色经历波折就改变情节的发展，结果就是故事完结的有点早了。那剩下的话数怎么办呢，我和脚本家团队讨论了一下，因为祥子一直在暗线行动，那最后就提前放出Ave Mujica，提示大家下一季是另一个乐团的故事吧，就变成这样了。</blockquote>
+
+*****
+
+####  wpcc  
+##### 23597#       发表于 2025-2-15 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431561&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-15 13:39</a>
+
+怎么能有这么多自己脑补的弱智，我一条一条来辟谣：
+
+mujica比mygo早？：实际上仅仅是之前有一份采访说的mu ...</blockquote>
+虐黑祥捧白祥和小姨是绝对的独角兽私货 男监督是弄不出这种女频东西来的
+
+
+*****
+
+####  wpcc  
+##### 23598#       发表于 2025-2-15 13:44
+
+<img src="https://img.saraba1st.com/forum/202502/15/134421tug1prg4sbs5rf00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 13:44 上传
+
+23年十月
+
+*****
+
+####  天空塔书记官  
+##### 23599#       发表于 2025-2-15 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431572&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 13:40</a>
+迷子的团魂一直都在灯身上，其他的成员只是灯的共鸣者，所以只要灯还想组一辈子乐队，迷子就不会散，其实问 ...</blockquote>
+而且说不定第八集就会补上这点，其实没必要现在就着急上头的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23600#       发表于 2025-2-15 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431576&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-15 13:41</a>
+
+既然你总是不举证，我就帮你举了。这是我找到的2025年1月的监督访谈https://www.bilibili.com/opus/10091 ...</blockquote>
+你去看23年的 顺便独角兽要写个十五年大女主这个思想就是毁灭鸡狗的核心问题 这个东西只会比23年更早
+
+
+*****
+
+####  z-hunter  
+##### 23601#       发表于 2025-2-15 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431554&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 13:37</a>
+
+实际上就是CCC本来应该是为迷子和A团剧情服务的，但目前看来线上和线下都没有达成这种效果，反而影响了两团 ...</blockquote>
+我是觉得C团的事就应该在狗动画13话之后，搞个DLC就搞定，然后再进入鸡动画。
+
+当然了这会造成很多逻辑上的问题，例如素世如何开盒大祥，如何撬开睦头的嘴巴，大祥组鸡团的原因。但是这些都可以通过剧情去巧妙说明的
+
+而不是像现在这样，喧宾夺主，搞到3个团都尴尬无比不上不下
+
+我不是编剧，这只是我个人感受，编剧想怎么写是她的自由，或者她觉得现在这样写很爽呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _47  
+##### 23602#       发表于 2025-2-15 13:46
+
+怎么现在才有人注意到go的团魂问题，go的团魂就是EP10，就是灯“组一辈子乐队”这个想法，动画里面就是用通灵猫的反应来显式的表达了出来，没有这个想法的时候猫是不把Go当家的。
+所以Go的团魂在灯祥和解前是脆弱的，因为灯放不下她的白月光。只有在灯放下了，彻底走出ccc阴影以后Go的团魂才能称得上稳定。
+
+*****
+
+####  wpcc  
+##### 23603#       发表于 2025-2-15 13:47
+
+当独角兽创作出祥子和后宫群的一刹那就完蛋了真的
+
+*****
+
+####  595505568  
+##### 23604#       发表于 2025-2-15 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431603&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:45</a>
+你去看23年的 顺便独角兽要写个十五年大女主这个思想就是毁灭鸡狗的核心问题 这个东西只会比23年更早 ...</blockquote>
+这有证据，武田绫乃和绫奈由仁子对谈那次就感觉到了，没有公平分配对角色的爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
