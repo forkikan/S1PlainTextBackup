@@ -4324,3 +4324,13 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 
 如果后面真演海猫鸣泣之时2.0的话，那我要给+2了
 
+
+*****
+
+####  酒巻真希菜  
+##### 421#       发表于 2025-2-15 15:30
+
+<img src="https://pic1.imgdb.cn/item/67b04296d0e0a243d4ff9285.jpg" referrerpolicy="no-referrer">
+
+对偶说达成了 9.6 6.9<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

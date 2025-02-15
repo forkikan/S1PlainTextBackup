@@ -548,3 +548,195 @@ VT真是互联网的终极形态
 
 現在是avemujica他連自己的臉都不要了，還能說什麼呢。
 
+
+*****
+
+####  山ノ内花音  
+##### 23722#       发表于 2025-2-15 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432272&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:26</a>
+畢竟誰能想到堂堂的mujica主唱能直接下線2話呢
+
+主唱什麼地位老邦人都懂的吧，都不說老邦人了，就現實和其 ...</blockquote>
+单纯从商业上来看 
+这么重要的第七集居然连主角团的歌都不卖了
+只能说wsd有他独特的个人理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 23723#       发表于 2025-2-15 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432272&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:26</a>
+
+畢竟誰能想到堂堂的mujica主唱能直接下線2話呢
+
+主唱什麼地位老邦人都懂的吧，都不說老邦人了，就現實和其 ...</blockquote>
+我也不太明白这CV表第一位的人为啥剧情上影响力实际上是最低的<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23724#       发表于 2025-2-15 15:30
+
+<blockquote>御幸一也 发表于 2025-2-15 15:17
+樂了，我看這段怎麼那麼像我打的，結果還真是，什麼轉自S1又轉回來
+
+順便確實沒提過本來想做個C團，但提 ...</blockquote>
+ccc复活应该是23年封笔就定好的 独角兽超喜欢这个的
+
+*****
+
+####  Lyzers  
+##### 23725#       发表于 2025-2-15 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432240&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 15:21</a>
+
+现在能发展成农厨大战邦结晶，鸡剧情无人关心的走向我是没想到的。也是侧面说明了路人全被这集吓跑了，只有 ...</blockquote>
+关心剧情还有什么意义吗，第七集已经告诉你前面闹得再凶，最后要包饺子两三句话就能给你包起来
+
+*****
+
+####  zhzij111  
+##### 23726#       发表于 2025-2-15 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432240&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 15:21</a>
+现在能发展成农厨大战邦结晶，鸡剧情无人关心的走向我是没想到的。也是侧面说明了路人全被这集吓跑了，只有 ...</blockquote>
+其实是农邦大战还有点说头，母鸡卡烂完成共识了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 23727#       发表于 2025-2-15 15:31
+
+我还是觉得让初华下线不只是为了给CCC腾戏份，而是为了营造某种剧烈反差的戏剧效果故意而为之
+
+至于效果会怎样，就不得而知了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  御幸一也  
+##### 23728#       发表于 2025-2-15 15:32
+
+只能說明武士道現在是要流量不要媽，這樣的企劃所有邏輯不服務角色，也不服務劇情，是服務爆點<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要劇情夠爆炸，其他我不管<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+這種情況下任何的認真討論都是浪費時間，因為武士道自己都沒有認真對待角色和劇情。
+
+建議當樂子人就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 23729#       发表于 2025-2-15 15:32
+
+只要初华是内鬼或叛徒的假药成立，剧情就会好起来的jpg,
+
+大祥：她就算是叛徒，难道我这不是丢脸的剧情就是被前队友施舍的样子就能挽回吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 23730#       发表于 2025-2-15 15:32
+
+反正这个剧本充满了自作聪明的味道
+场外配套的商业活动 也是迷之自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 23731#       发表于 2025-2-15 15:34
+
+简而言之，就是故意为了反转而反转
+
+反转本身也是噱头和悬念的一部分
+
+只能说做决定的那个人开心就好，别最后真变✘✘红了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  forgetit  
+##### 23732#       发表于 2025-2-15 15:34
+
+原来以前大家觉得武士道会认真对待剧情吗
+
+*****
+
+####  厄神之息  
+##### 23733#       发表于 2025-2-15 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432295&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-15 15:30</a>
+
+关心剧情还有什么意义吗，第七集已经告诉你前面闹得再凶，最后要包饺子两三句话就能给你包起来 ...</blockquote>
+所以车不应该是车这点吗？都搁那“粉毛受委屈了（自己认为）所有人都要陪葬！”和“你算核心粉？你花钱有我多吗？我五朝邦元老要除你粉籍！”干什么玩意呢？我看这留存下来的观众里也快没人类了吧。
+
+*****
+
+####  御幸一也  
+##### 23734#       发表于 2025-2-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432294&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 15:30</a>
+
+ccc复活应该是23年封笔就定好的 独角兽超喜欢这个的</blockquote>
+
+我可以很肯定的告訴你，C團最初的底層邏輯就是為了被解散。
+
+我把所有訪談都看了不止一次，那兩個至尊說過什麼我都記得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+為了所謂“真實性”，告訴大家玩樂團沒有那麼簡單，所以這次的故事要從一個解散了的團開始。
+
+然後綾奈劇本一早完成這個我也知道，甚至我還盤過配音時間，23年全配完了的。
+
+不然2024年1月的時候告訴我還要等一年，我也不會那麼破防了。
+
+*****
+
+####  山ノ内花音  
+##### 23735#       发表于 2025-2-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432329&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:34</a>
+原来以前大家觉得武士道会认真对待剧情吗</blockquote>
+要么认真对待剧情 要么好好塑造角色 
+作为一个二偶动画 不过分吧 
+做到哪条了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 23736#       发表于 2025-2-15 15:37
+
+剧情有啥好关心的，现在祥子放下自尊心认个怂，哭一下就全部解决了
+
+后面最大炸弹就初华，很明显祥子用这招就1000%解决，而且7集看下来，明显以整个制作组的能力剩下的炸弹别把人逗笑就谢天谢地了
+
+*****
+
+####  cxj649  
+##### 23737#       发表于 2025-2-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432298&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 15:31</a>
+
+我还是觉得让初华下线不只是为了给CCC腾戏份，而是为了营造某种剧烈反差的戏剧效果故意而为之
+
+至于效果会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">初华最大问题这个CV表第一的角色的剧情知情权和人际交际权呢
+
+但凡她问海玲后去问立希或者灯爱还算一个正常主角233
+
+*****
+
+####  cccpprc  
+##### 23738#       发表于 2025-2-15 15:37
+
+我刚想回一下的，才想起楼里某傻逼绿毛在京吹三的时候还在尬洗呢。所以邦邦核心受众有京吹的核心受众能买BD嘛，有的话至少可以看乐子。
+
