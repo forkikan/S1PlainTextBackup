@@ -9616,3 +9616,24 @@ mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感�
 
 既然如此还要继续和这逼crychic纠缠不清简直是有些人对自己主旨最大的ooc啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  披头破落户  
+##### 24552#       发表于 2025-2-16 03:26
+
+b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  scorbian  
+##### 24553#       发表于 2025-2-16 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436525&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:15</a>
+说到底为什么不能七人live，爱音猫上去一起弹有问题嘛。回忆已经做的很烂的，中间插一两段mygo里回忆，就祥 ...</blockquote>
+因为手游只能上五个人，这是底层逻辑（迫真
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

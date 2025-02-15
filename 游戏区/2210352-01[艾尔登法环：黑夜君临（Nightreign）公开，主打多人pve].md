@@ -2630,3 +2630,16 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 但他这复用地图和流程固定挺难评的，时间久了固然无聊乏味，但是他这摆明是要你背板熟悉流程，好尽快成型装配....他下部作品如果开始**加强玩家自机性能，还挺有看头的
 
+
+*****
+
+####  斯库鲁多  
+##### 285#       发表于 2025-2-16 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435418&amp;ptid=2210352" target="_blank">pzk 发表于 2025-2-15 22:07</a>
+
+终于通了一把，还是用的法师。法师的大招除了前摇太大简直强无敌，开了就等于无限血无限蓝。
+
+但一技能的组 ...</blockquote>
+图鉴里有写全组合效果的
+
