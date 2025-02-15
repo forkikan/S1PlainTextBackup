@@ -9704,3 +9704,27 @@ b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/639d53fa2e6758a2d3ef28f194c4d880/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 24560#       发表于 2025-2-16 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437093&amp;ptid=2208921" target="_blank">虚无缥缈的光阴 发表于 2025-2-16 02:05</a>
+初华双子说要是成真的话三次元怎么搞，让李子一人分饰两角？
+
+感觉不太可能，但是初华小姨说可以有。反正目 ...</blockquote>
+应该是分饰两角，反正live上的只有一个。
+其实双子说小姨说哪怕是真的也没啥毕竟算是有活，唯一我接受不了的是结局那个同居，写歌词上live的就是现在的“初华”，感情难道还比过去只有一面之缘的青梅竹马还深不成？
+
+
+*****
+
+####  看穿一切的鱼  
+##### 24561#       发表于 2025-2-16 07:30
+
+事到如今什么小姨，双子都能接受了。
+唯一接受不了的结局啊大祥老师荒野求生那个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
