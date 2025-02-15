@@ -12929,3 +12929,20 @@ C團佔了狗團的3/5 （考慮到貓不參與事務， 實際上是3/4） 這�
 
 谁和白祥作对谁死啊 包括黑祥也是和白祥作对 所以被抽陀螺 大象老师才是真正的分裂。莫老师见到白祥马上服软 海玲归顺 就剩大猫了 小姨更是直接同居意外惊喜哇
 
+
+*****
+
+####  qlipho  
+##### 23361#       发表于 2025-2-15 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥学长都被抽了半季了
+
+*****
+
+####  rollingusagi  
+##### 23362#       发表于 2025-2-15 09:58
+
+才发现算上sumimi就是11个人能组4个团，**降低了人工成本，而且也能降低个别团员出问题了导致团活没法继续的概率，从2.5次元企划上来看这简直天才的设想啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

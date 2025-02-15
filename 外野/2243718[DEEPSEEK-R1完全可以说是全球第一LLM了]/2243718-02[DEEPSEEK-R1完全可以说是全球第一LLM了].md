@@ -4427,3 +4427,51 @@ DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
 
 火山方舟+chatbox部署，在pc上不能开网络兼容性，在安卓上得开，不然就报错。无语了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  larthasliu  
+##### 1868#       发表于 2025-2-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+求个仓库地址，上面没翻到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  larthasliu  
+##### 1868#       发表于 2025-2-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+求个仓库地址，上面没翻到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  larthasliu  
+##### 1868#       发表于 2025-2-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+求个仓库地址，上面没翻到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  larthasliu  
+##### 1868#       发表于 2025-2-15 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+求个仓库地址，上面没翻到
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
