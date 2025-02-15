@@ -3017,3 +3017,122 @@ nga在宣泄情绪，狗吧**战吧在鸡狗大战。b站就不说了，看评�
  ...</blockquote>
 这不就是他们说的OOC吗。祥子没这么强硬。对应爱音也没这么圣人。
 
+
+*****
+
+####  阿兹尔  
+##### 23939#       发表于 2025-2-15 18:47
+
+泥漏现在也在给各个角色厨叫屈啊，不过确实比其他地方冷静点，但不多
+
+*****
+
+####  operatbig  
+##### 23940#       发表于 2025-2-15 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433473&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-15 18:33</a>
+
+戳辣，祥子小丑才是对的，你看前面抽大陀螺大家抽得多开心嗷，恨不得把又蠢又坏打成水印贴在屏幕上，祥子小 ...</blockquote>
+对头，前6集追得这么起劲主要还是期待新一集用什么花活抽大祥。
+
+*****
+
+####  江口夕  
+##### 23941#       发表于 2025-2-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433523&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 18:43</a>
+真的，我几天都在场外看乐子。
+泥楼这都算黑泥，那没几个比这里更详平的地方了。
+nga在宣泄情绪，狗吧** ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在有几个讨论剧情的，不是在车角色就是在车角色厨
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  thisisaspider  
+##### 23942#       发表于 2025-2-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433537&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-15 18:47</a>
+
+泥漏现在也在给各个角色厨叫屈啊，不过确实比其他地方冷静点，但不多</blockquote>
+毕竟二次元就是卖剧情卖角色，但现在编剧没法给人信心讨论剧情展开了，不就只能围着角色转。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 23943#       发表于 2025-2-15 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433486&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-15 18:37</a>
+
+mygo有很多画龙点睛的小细节，例如第2集爱素寒暄的时候，爽姐心不在焉地往楼上环顾，然后打断爱音决定上 ...</blockquote>
+所以我也觉得制作有些内幕
+
+
+*****
+
+####  thisisaspider  
+##### 23944#       发表于 2025-2-15 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433486&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-15 18:37</a>
+
+mygo有很多画龙点睛的小细节，例如第2集爱素寒暄的时候，爽姐心不在焉地往楼上环顾，然后打断爱音决定上 ...</blockquote>
+实际上小表情动作和2D描写，可能mujica更多，只是还没到复盘阶段。
+
+*****
+
+####  凉良  
+##### 23945#       发表于 2025-2-15 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433523&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 18:43</a>
+
+真的，我几天都在场外看乐子。
+
+泥楼这都算黑泥，那没几个比这里更详平的地方了。
+
+nga在宣泄情绪，狗吧** ...</blockquote>
+这么烂的剧情 讨论感觉对不起自己的脑子
+
+*****
+
+####  安娜导函数  
+##### 23946#       发表于 2025-2-15 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433546&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 18:49</a>
+现在有几个讨论剧情的，不是在车角色就是在车角色厨
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Ne ...</blockquote>
+啥？这沟槽的剧情还有讨论的必要？你不如讨论讨论武士道接下来还有哪些宣发来猜对应剧情还更符合逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 23947#       发表于 2025-2-15 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433546&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 18:49</a>
+
+现在有几个讨论剧情的，不是在车角色就是在车角色厨
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Ne ...</blockquote>
+主要是现在这剧情也没啥能讨论的，你永远不知道下一集是编剧又要被wsd的大手配合线下烂炒编剧情，还是又开始“内部爱”狠狠车大祥，要不就是牢莫出来又给你玩个逆天转折。不如保持期待看还能怎什么好活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无证madam  
+##### 23948#       发表于 2025-2-15 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433350&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 18:15</a>
+正经开播后再来这栋楼才叫对的时候，还没开播前基本还是首页几位现在已经消失的鸡友的共振楼 ...</blockquote>
+我是看了人家最早什么时候在这楼发言才这么说的
+
+*****
+
+####  江口夕  
+##### 23949#       发表于 2025-2-15 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433569&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 18:54</a>
+主要是现在这剧情也没啥能讨论的，你永远不知道下一集是编剧又要被wsd的大手配合线下烂炒编剧情，还是又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说现在这楼里是不是只有我看好mujica，不，大祥传
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
