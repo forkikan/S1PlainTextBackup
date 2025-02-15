@@ -10647,10 +10647,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 66953,
+    "totalreply": 66962,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1739579898,
+    "lastedit": 1739580249,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10674,10 +10674,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 3179,
+    "totalreply": 3180,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1739579289,
+    "lastedit": 1739580249,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2243718": {
-    "totalreply": 1866,
+    "totalreply": 1867,
     "title": "[DEEPSEEK-R1完全可以说是全球第一LLM了]",
     "newtitle": "[（转型Deepseek交流楼）DEEPSEEK-R1完全可以说是全球第一LLM了]",
-    "lastedit": 1739578450,
+    "lastedit": 1739580011,
     "category": "外野",
     "active": true,
     "update": false
@@ -11768,7 +11768,7 @@
     "newtitle": "[“Drop 01”网飞版新鬼泣动画]",
     "lastedit": 1739321175,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2244648": {
@@ -14981,7 +14981,7 @@
     "newtitle": "[源圣你这是想干嘛]",
     "lastedit": 1739321181,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2245916": {
@@ -15017,7 +15017,7 @@
     "newtitle": "[美妙新作4月《秘密的偶像公主／爱噗哩》]",
     "lastedit": 1739320698,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2188167": {
@@ -15462,10 +15462,10 @@
     "update": false
   },
   "2246041": {
-    "totalreply": 164,
+    "totalreply": 165,
     "title": "[大女主的女帝送有继承权的皇子去草原和亲]",
     "newtitle": "[大女主的女帝送有继承权的皇子去草原和亲]",
-    "lastedit": 1739579408,
+    "lastedit": 1739580009,
     "category": "外野",
     "active": true,
     "update": false
@@ -15588,10 +15588,10 @@
     "update": false
   },
   "2246063": {
-    "totalreply": 200,
+    "totalreply": 201,
     "title": "[国产单机游戏《湮灭之潮》首支预告片公开，ps／pc／xs]",
     "newtitle": "[国产单机游戏《湮灭之潮》首支预告片公开，ps／pc／xs｜11分钟实机演示公开]",
-    "lastedit": 1739576289,
+    "lastedit": 1739580487,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16128,10 +16128,10 @@
     "update": false
   },
   "2246171": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[终于不是撞飞机了]",
     "newtitle": "[终于不是撞飞机了]",
-    "lastedit": 1739572450,
+    "lastedit": 1739580373,
     "category": "外野",
     "active": true,
     "update": false
@@ -16434,10 +16434,10 @@
     "update": false
   },
   "2246274": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[路边社：阿里巴巴、腾讯、小米、华为、宇树和 DeepSeek将参加研讨会]",
     "newtitle": "[路边社：阿里巴巴、腾讯、小米、华为、宇树和 DeepSeek将参加研讨会]",
-    "lastedit": 1739576647,
+    "lastedit": 1739580373,
     "category": "外野",
     "active": true,
     "update": false
@@ -16484,6 +16484,24 @@
     "newtitle": "[以撒的结合为什么好玩（更新：确实好玩）]",
     "lastedit": 1739579653,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2246288": {
+    "totalreply": 43,
+    "title": "[全国各地现在都在反思自己为什么没有像杭州一样出deepseek和“六小龙”]",
+    "newtitle": "[全国各地现在都在反思自己为什么没有像杭州一样出deepseek和“六小龙”]",
+    "lastedit": 1739580370,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2246261": {
+    "totalreply": 41,
+    "title": "[还是s1钓鱼舒服]",
+    "newtitle": "[还是s1钓鱼舒服]",
+    "lastedit": 1739580373,
+    "category": "外野",
     "active": true,
     "update": false
   }

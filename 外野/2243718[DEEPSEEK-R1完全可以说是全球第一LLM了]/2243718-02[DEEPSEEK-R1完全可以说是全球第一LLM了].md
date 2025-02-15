@@ -4419,3 +4419,11 @@ aider之前那篇博文吧，功能已经上线快两个礼拜了
 DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
 看了下，但是要两个官方的API啊。。
 
+
+*****
+
+####  Geronimo  
+##### 1867#       发表于 2025-2-15 08:37
+
+火山方舟+chatbox部署，在pc上不能开网络兼容性，在安卓上得开，不然就报错。无语了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
