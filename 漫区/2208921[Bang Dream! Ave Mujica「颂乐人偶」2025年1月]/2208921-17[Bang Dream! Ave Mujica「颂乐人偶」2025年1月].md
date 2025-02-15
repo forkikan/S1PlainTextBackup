@@ -5880,3 +5880,68 @@ R团早期也是各取所需，PP更是商业组团<img src="https://static.sara
 这个大A能涨回来吗</blockquote>
 主力出货中，建议割肉离场<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 24198#       发表于 2025-2-15 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434926&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-15 21:13</a>
+泛式都已经开始劝大家远离大A了，毕竟这回真难找补
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大猫摘面具觉得不合适的就应该跑了，撑到现在很不容易了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  看穿一切的鱼  
+##### 24199#       发表于 2025-2-15 21:17
+
+他们几个没看过全集也肯定被透干净了吧，对后面什么态度。瓶肯定要趁机打顺风团没啥参考价值
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 24200#       发表于 2025-2-15 21:19
+
+我看的是啥直播啊，这不是直播玩扫雷吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 24201#       发表于 2025-2-15 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434960&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-15 21:17</a>
+他们几个没看过全集也肯定被透干净了吧，对后面什么态度。瓶肯定要趁机打顺风团没啥参考价值
+
+—— 来自 S1 ...</blockquote>
+泛式之前说过有内部渠道可以透（毕竟年年百大，真得有几个熟人），但他没去接触
+反正猛猛叠甲就好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  FanFun  
+##### 24202#       发表于 2025-2-15 21:21
+
+至少敢逆流了
+
+
+*****
+
+####  堆雪若叶  
+##### 24203#       发表于 2025-2-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434829&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 21:03</a>
+
+反正对第七集脱脑分析后，发现编剧水平稀烂
+
+他们应该知道该怎么做</blockquote>
+稀烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

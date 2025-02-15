@@ -13593,3 +13593,34 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 蝈蝈</blockquote>
 呱，我不要看啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 6969#       发表于 2025-2-15 21:24
+
+目前企划PV中所有明确没有出现在剧场版的画面：
+
+<img src="https://img.saraba1st.com/forum/202502/15/211900u7qqmzvxncqq7xxa.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0430.JPG</strong> (203.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 21:19 上传
+
+玛秋穿着居家服，在卧室床上生气
+
+牢修在藏身处，将头发扎起抬头看
+
+喵安在牢修的藏身处脱外套，并对牢修脸红
+
+军团战后，玛秋和喵安穿着私服在投币洗衣店
+
+*****
+
+####  猪突猛进  
+##### 6970#       发表于 2025-2-15 21:24
+
+奥米伽塞克谬：有男不玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
