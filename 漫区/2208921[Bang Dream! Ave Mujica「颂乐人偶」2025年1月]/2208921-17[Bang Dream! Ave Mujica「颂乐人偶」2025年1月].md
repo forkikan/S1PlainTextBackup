@@ -2342,3 +2342,138 @@ mygo的核心迷题是有留白的，关键集数的情绪调动做得不错，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  cccpprc  
+##### 23880#       发表于 2025-2-15 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433094&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 17:30</a>
+
+我感觉最震惊的还是第五集，真把大祥变成真飞鸟第二（结合灯过来一起组乐队的发言更让人汗颜），所以我虽 ...</blockquote>
+我觉得第六集这反复车祥就已经过分了
+
+这还能圆回来人设吗？
+
+结果就是这个谁都不满意的局面了
+
+（第七集甚至只是个平庸饺子回都能成这样，唯一合理的解释就是积怨已久了）
+
+
+*****
+
+####  嵇翱u  
+##### 23881#       发表于 2025-2-15 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433224&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 17:51</a>
+什么剧透，发来乐乐啊！</blockquote>
+nga专楼从昨晚开始传遍了，抽象的不行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qlipho  
+##### 23882#       发表于 2025-2-15 18:07
+
+ 本帖最后由 qlipho 于 2025-2-15 18:08 编辑 
+
+go对角色都是很温柔的（立希不好说，鸡就大手猛抽，一群人当皇习惯了，还大喊抽的好
+
+*****
+
+####  大户爱  
+##### 23883#       发表于 2025-2-15 18:08
+
+前面几集我最大不满就是，场外staff时隐时现就算了。
+
+喵梦犯下掀面具这种大错，祥子作为团队leader，还带着两个祥卫兵，这都嘴不赢喵梦的。
+
+剧内嘴不过了就算了。剧外，感觉各大论坛基本上也是平分秋色。我真不理解，怎么有人能共情喵梦的，真没上过班嘛。
+
+所以前面几集我就很不满。
+
+而且当你以为，这种本来强行的矛盾制造出来是为了散团。结果最后告诉你，散团的直接动机是大墨老师不会弹吉他，嗯，无语了。
+
+*****
+
+####  DeltaStriker  
+##### 23884#       发表于 2025-2-15 18:09
+
+主要是编剧还给大猫老师套家人侠盾 那我只能说无敌了呀 你都出家人侠盾了还能说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Lyzers  
+##### 23885#       发表于 2025-2-15 18:09
+
+我是第二集疑惑“有保密协议却没有违约处罚，这就是少女乐队高魔世界观吗”，
+第三集看到在少女乐队出现人格吞噬这种演出的时候感觉到有异味，第四集确定已经开始暴走，
+第五集现实元素，丰川大手和狗团介入形成的逻辑断层彻底把我推向看这动画就为了看大伙怎么找补的乐子人心态
+
+*****
+
+####  无证madam  
+##### 23886#       发表于 2025-2-15 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433101&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 17:31</a>
+
+我还真没见过比这个楼讨论氛围更好的地方。
+
+真情实感破防的比例比任何地方都少，大部分人只给支持的言论加 ...</blockquote>
+对的时候进了对的楼
+
+以前另一栋楼不长这样
+
+
+*****
+
+####  厚乳果珍爽  
+##### 23887#       发表于 2025-2-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433301&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-15 18:07</a>
+
+nga专楼从昨晚开始传遍了，抽象的不行
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太高了，有具体定位吗？
+
+*****
+
+####  66367749  
+##### 23888#       发表于 2025-2-15 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433307&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 18:08</a>
+前面几集我最大不满就是，场外staff时隐时现就算了。
+
+喵梦犯下掀面具这种大错，祥子作为团队leader，还带 ...</blockquote>
+这段是一边很现实元素，一边又把搁现实可能早就开撕或者合同上强度，只有二次元过家家才可能轻拿轻放的事洒洒水，很割裂
+
+*****
+
+####  大户爱  
+##### 23889#       发表于 2025-2-15 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433301&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-15 18:07</a>
+nga专楼从昨晚开始传遍了，抽象的不行
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+看了贴吧那个qq聊天记录，我信了八分了。
+
+就算是假的，这聊天记录伪造的也很好。没有很多营销号编聊天记录那种一眼假的感觉。
+
+不过内容是有点离奇。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗示我7酱  
+##### 23890#       发表于 2025-2-15 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433316&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 18:10</a>
+太高了，有具体定位吗？</blockquote>
+初华小姨说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
