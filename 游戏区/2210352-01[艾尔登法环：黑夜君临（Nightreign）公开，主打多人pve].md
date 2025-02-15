@@ -2270,3 +2270,13 @@ ps有人连上的吗
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429085&amp;ptid=2210352" target="_blank"> hkguty 发表于 2025-2-15 02:26</a> 只是单纯的日本人对自己的服务器没什么逼数而已吧，觉得老头环本篇服务器也没什么问题这部肯定也没什么问题，然后就爆了，这种很常见 </blockquote>
 应该是没想到索尼和微软差距这么大，给微软准备的服务器倒是够用，ps用户直接压垮服务器来自: iPhone客户端
 
+
+*****
+
+####  jy000129  
+##### 249#       发表于 2025-2-15 08:59
+
+要不向箭头取下经，老司机虽然十几万人掉线是正常状态，但现在日活5W左右的时候全球裸连体验是厂商前排的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

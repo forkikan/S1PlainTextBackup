@@ -12804,3 +12804,61 @@ Soyo心中对Crychic的感情一直都比MyGo要高的，直到这集结束。�
 
 这灯可真不是人，怪不得老念叨想变成人类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 23352#       发表于 2025-2-15 08:54
+
+这集明明有许多其他地方烂得更离谱程度更深，爱音这说白了就是正反馈不足的问题，本身就没多大点事，场外讨论却更多在讨论爱音相关。别说剧内一些角色行为像不像人类了，我看场外一些什么代入上去给谁谁两巴掌，代入退队，代入紫砂的也挺不像人类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  shinoverse  
+##### 23353#       发表于 2025-2-15 09:00
+
+ 本帖最后由 shinoverse 于 2025-2-15 09:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429017&amp;ptid=2208921" target="_blank">LeonsCat 发表于 2025-2-15 01:49</a>
+
+老早就有人说了，MyGO+Mujica就是独角兽性癖放出，大祥就是她再剧中的代言人。 ...</blockquote>
+绫奈的代言人更有可能是高松灯（她现在的编剧身份与灯孤僻文学少女的对应），丰川祥子更像是她喜欢的某个人的化身
+
+而且灯与祥子都是“受追求者”的定位
+
+*****
+
+####  南宮凝香  
+##### 23354#       发表于 2025-2-15 09:00
+
+<blockquote>zhoujin8584 发表于 2025-2-15 08:14
+来打个圆场，事实上把这两集go团众人的表现依旧视作她们到鸡团时间段的成长仍然说得过去，素世是行动力拉满 ...</blockquote>
+別的不說，
+
+身為副線， 沒多少戲份時間分配的前題下玩一扭三， 制作組得多心大
+
+表現力不夠就等於直接墊掉另外三人
+
+C團佔了狗團的3/5 （考慮到貓不參與事務， 實際上是3/4） 這種情況是不能讓 1/4 的那個人來扭繩的， 三個嘴上說一輩子的人，現在行程隨意就能更改插給舊團， 那很快一個瞬間一個瞬間的累積下去， 狗團也就變成名義團了， 單一一人能扭多少次繩？
+
+這就跟偶像樂隊主動炒作團員不仲一樣，
+
+作死級橫跳
+
+*****
+
+####  アルジュナ  
+##### 23355#       发表于 2025-2-15 09:02
+
+ 本帖最后由 アルジュナ 于 2025-2-15 09:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429394&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-15 08:05</a>
+
+你彻底死了才是分手炮，线下又开始活动了那不就是复合炮
+
+我接受尼玛啊</blockquote>
+一个月的短命C团已经死了，所以用过去式
+
+但告别了过去的新生C团也堂堂成立了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
