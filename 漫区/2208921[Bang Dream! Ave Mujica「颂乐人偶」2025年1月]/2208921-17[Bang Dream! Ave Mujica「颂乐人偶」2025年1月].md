@@ -7956,3 +7956,240 @@ B部分正常来说不会上纲上线，你也没故意上纲上线，
 也就第七集了， ...</blockquote>
 某种意义上被众星捧月得抽也挺大女主的，有点变态了
 
+
+*****
+
+####  wpcc  
+##### 24394#       发表于 2025-2-15 23:28
+
+精神胜利了大主播 你也加入武堕了
+
+*****
+
+####  影伴光生  
+##### 24395#       发表于 2025-2-15 23:28
+
+泛式表演过于卖力，只能说动画区给的任务太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24396#       发表于 2025-2-15 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436148&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-15 23:28</a>
+
+泛式表演过于卖力，只能说动画区给的任务太重了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+他就是造神mygo的罪魁祸首 但是他没想到这两个团是一起写的
+
+*****
+
+####  厚乳果珍爽  
+##### 24397#       发表于 2025-2-15 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436142&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:27</a>
+
+某种意义上被众星捧月得抽也挺大女主的，有点变态了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放心，后面六集你会发现一个完全不同的祥子，以至于你会惊讶到这货是不是被改心了。
+
+*****
+
+####  Yukino-Yukino  
+##### 24398#       发表于 2025-2-15 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436142&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:27</a>
+某种意义上被众星捧月得抽也挺大女主的，有点变态了</blockquote>
+那当然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">或者说就得是大主角才能有这么多鞭子抽，配角想被抽还没机会呢。只不过前面六集抽完花一集就让祥子醒悟了，显得祥子比睦头人还像精神分裂
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 24399#       发表于 2025-2-15 23:30
+
+我觉得楼里居然会为了一个做视频的up吵那么多层也挺让人难绷的
+
+就…挺无聊的知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  斯大林的拖拉机  
+##### 24400#       发表于 2025-2-15 23:30
+
+插播一下，mujica在bgm五分台了
+
+<img src="https://img.saraba1st.com/forum/202502/15/232918vrgfgcdf6scsidyn.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-15 232857.jpg</strong> (15.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 23:29 上传
+
+
+*****
+
+####  影伴光生  
+##### 24401#       发表于 2025-2-15 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436153&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 23:29</a>
+他就是造神mygo的罪魁祸首 但是他没想到这两个团是一起写的</blockquote>
+毕竟当初b站没买，泛式还是吃了瓶子安利才去看的，结果还是他带起来的风潮
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 24402#       发表于 2025-2-15 23:31
+
+没有牢台，不服啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 24403#       发表于 2025-2-15 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436159&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-15 23:30</a>
+
+插播一下，mujica在bgm五分台了</blockquote>
+什么？！母鸡卡都死光光啦，好！好！好消息再报来，终于来好消息了
+
+*****
+
+####  天空塔书记官  
+##### 24404#       发表于 2025-2-15 23:31
+
+小孤独有第二季了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24405#       发表于 2025-2-15 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436158&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 23:30</a>
+
+我觉得楼里居然会为了一个做视频的up吵那么多层也挺让人难绷的
+
+就…挺无聊的知道吧</blockquote>
+你错误的 直播看大主播然后拷打太有意思了 因为大主播也是武士道的大手的一部分 他和独角兽其实是一桌的
+
+
+*****
+
+####  嵇翱u  
+##### 24406#       发表于 2025-2-15 23:33
+
+<img src="https://img.saraba1st.com/forum/202502/15/233301hmyck3b5u18f3mby.jpg" referrerpolicy="no-referrer">
+
+<strong>GK8YO$K~43LN]]H]FHW0EM1_tmb.jpg</strong> (71.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 23:33 上传
+
+*****
+
+####  595505568  
+##### 24407#       发表于 2025-2-15 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436180&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-15 23:33</a></blockquote>
+同接数呢（
+
+*****
+
+####  十九号大侠  
+##### 24408#       发表于 2025-2-15 23:34
+
+哇哦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  usodakedo  
+##### 24409#       发表于 2025-2-15 23:34
+
+到了这个地步，泛式还在幻想给出什么让人信服的理由重组鸡或者什么好的女女关系性，那确实是真情流露了。
+
+其实从狗开始就一直没搞懂大象老师的人格魅力在哪，除去设定上的“魅魔”属性外，这个角色真的有多少能够打动观众的桥段吗？制作组似乎觉得只要设定胡脸观众就能像被催眠一样接受，此事在不少粪特摄里倒是多有记载。
+
+*****
+
+####  凉良  
+##### 24410#       发表于 2025-2-15 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436193&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-15 23:34</a>
+
+到了这个地步，泛式还在幻想给出什么让人信服的理由重组鸡或者什么好的女女关系性，那确实是真情流露了。
+
+ ...</blockquote>
+13话的强度和穷逼大小姐反差确实吸引人啊。
+
+*****
+
+####  是谁的书画  
+##### 24411#       发表于 2025-2-15 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436157&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-15 23:29</a>
+
+那当然或者说就得是大主角才能有这么多鞭子抽，配角想被抽还没机会呢。只不过前面六集抽完花一集就让祥子 ...</blockquote>
+主要是光听这件事情是挺无所谓的，但是当你带入到或许这是独角兽的性癖并且她带入自己半身是祥子，就感觉这人确实是脑子有点问题的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 24412#       发表于 2025-2-15 23:37
+
+祥子这不管正派反派有很多种能写的吸引人的基础能写成这逼样只能说真的无敌了。
+
+*****
+
+####  Dpeey  
+##### 24413#       发表于 2025-2-15 23:37
+
+有人能告诉我独角兽和监督疑似决裂是啥情况吗我真的很好奇制作组内部是个什么状态
+
+*****
+
+####  wpcc  
+##### 24414#       发表于 2025-2-15 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436204&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:36</a>
+
+主要是光听这件事情是挺无所谓的，但是当你带入到或许这是独角兽的性癖并且她带入自己半身是祥子，就感觉 ...</blockquote>
+你带入了会爽的 而且我本身就和独角兽差不多xp还能看六集白祥已经飞起来了
+
+*****
+
+####  大户爱  
+##### 24415#       发表于 2025-2-15 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436136&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 23:27</a>
+你真的很会偷换概念，
+
+B部分正常来说不会上纲上线，你也没故意上纲上线，
+
+所以A部分你就绝对没有断章取义 ...</blockquote>
+好啦好啦，我故意断章取义的。就为了陷害你家泛哥哥。
+
+泛哥哥说错了话，不符合事实，那肯定是不小心的。
+
+我说的话，要是一字一句对不上泛哥哥，那肯定是故意不完整传达泛哥哥精神旨意 ，罪大恶极。
+
+您也得自我检讨一下，前面怎么能说泛哥哥金玉良言，每句话都叠过无数次甲，不可能出错呢。
+
+这不被我挑出泛哥哥毛病来了。你这话不是故意捧杀损坏泛哥哥形象嘛。
+
+和我一起给泛哥哥认错吧。
+
