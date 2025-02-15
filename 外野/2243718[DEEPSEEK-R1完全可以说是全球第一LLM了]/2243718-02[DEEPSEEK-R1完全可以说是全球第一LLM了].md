@@ -4600,3 +4600,19 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 
 阿里百炼太慢了
 
+
+*****
+
+####  我爱撩菜  
+##### 1880#       发表于 2025-2-15 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">已用上R1,非常爽
+
+
+*****
+
+####  Geronimo  
+##### 1881#       发表于 2025-2-15 23:23
+
+火山联网只能一次最多搜10个引用页合计不超54k个token，结果肯定比原版差啊。原版一次可以有4，50个引用页。
+

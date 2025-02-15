@@ -7745,3 +7745,214 @@ image.png
 
 这句是不是就合很多人心意了
 
+
+*****
+
+####  是谁的书画  
+##### 24374#       发表于 2025-2-15 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436004&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-15 23:13</a>
+
+母鸡卡动画祥子不是推动剧情的核心谁是呢？2集不出场的主唱大人吗？
+
+而且工具人不是这动画现在的表现吗？ ...</blockquote>
+我指的是“大女主视角下”不是“大女主推进”，前六集抽的跟陀螺一样她动弹过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 24375#       发表于 2025-2-15 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436026&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-15 23:15</a>
+
+作为半个灯祥学长来说一下，第七集还不如大象的卡片笔记本有磕点，只感觉大象🐘被素食一拳打地上被强健就突 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘴硬罢了，她肯定很关心睦，只是觉得自己再去还会伤害睦，都有人給台阶下了，那肯定要去看的。
+
+*****
+
+####  ccared  
+##### 24376#       发表于 2025-2-15 23:19
+
+这句重置mujica出来才是真情流露了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 24377#       发表于 2025-2-15 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436026&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-15 23:15</a>
+
+作为半个灯祥学长来说一下，第七集还不如大象的卡片笔记本有磕点，只感觉大象🐘被素食一拳打地上被强健就突 ...</blockquote>
+第五集那里我真的氛围都到位了，而且灯拉祥不比第七集这流畅合理一万倍。
+
+*****
+
+####  十九号大侠  
+##### 24378#       发表于 2025-2-15 23:20
+
+莫提死跟喵萌应该会有戏剧表现吧，后面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  liekong  
+##### 24379#       发表于 2025-2-15 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436033&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:16</a>
+
+那他暴论可太多了。我论坛打几个字都能被能被你上纲上线。他再怎么叠甲，说几个小时怎么可能不出差错。
+
+ ...</blockquote>
+如果他要伪造民意避重就轻，他完全可以不提这个问题，或者提完不针对这点展开来说，我觉得他这里纯粹是没扫到相关帖子
+
+*****
+
+####  Renes  
+##### 24380#       发表于 2025-2-15 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436049&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:18</a>
+
+我指的是“大女主视角下”不是“大女主推进”，前六集抽的跟陀螺一样她动弹过吗？如果觉得前面几集是靠祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他有一点我觉得说的是有道理的，你搞那么多精力抽大祥，起码得花费同等水平的戏剧表现给她立起来，所以前面全在抽大祥就是不明所以的嗯拖
+
+*****
+
+####  大户爱  
+##### 24381#       发表于 2025-2-15 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436068&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 23:20</a>
+如果他要伪造民意避重就轻，他完全可以不提这个问题，或者提完不针对这点展开来说，我觉得他这里纯粹是没 ...</blockquote>
+对，有脑子的人都会这么想，不会去上纲上线。就如同有些人咬文嚼字觉得别人故意断章取义一样。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 24382#       发表于 2025-2-15 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436064&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-15 23:20</a>
+
+莫提死跟喵萌应该会有戏剧表现吧，后面
+
+—— 来自 S1Fun</blockquote>
+还有个镜头没回收 感觉可能是睦头家长相关时候出来
+
+
+*****
+
+####  gammatau  
+##### 24383#       发表于 2025-2-15 23:22
+
+怎么才能让武士道重制mujica 求求你了我什么都会做的
+
+不太可能吧，要重置也应该会从前面几个团开始（笑）
+
+*****
+
+####  十九号大侠  
+##### 24384#       发表于 2025-2-15 23:22
+
+能不能重置一下啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厚乳果珍爽  
+##### 24385#       发表于 2025-2-15 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436049&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:18</a>
+
+我指的是“大女主视角下”不是“大女主推进”，前六集抽的跟陀螺一样她动弹过吗？如果觉得前面几集是靠祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说，她前六集的表现，就是被动的接受环境带来的改变，从未展现过自己的主观能动性。
+
+也就第七集了，才愿意天天蹲睦家门口。
+
+她但凡在第一第二集里拷打喵够足，也不会炸团了。
+
+*****
+
+####  凉良  
+##### 24386#       发表于 2025-2-15 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436076&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-15 23:21</a>
+
+他有一点我觉得说的是有道理的，你搞那么多精力抽大祥，起码得花费同等水平的戏剧表现给她立起来，所以前 ...</blockquote>
+本来就是嗯拖啊 对着一个问题重复拷打 然后祥子爆典 再独自愧疚 来几次有意思吗 连复杂度都没有
+
+*****
+
+####  wpcc  
+##### 24387#       发表于 2025-2-15 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436056&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-15 23:19</a>
+
+这句重置mujica出来才是真情流露了</blockquote>
+太真情流露了
+
+*****
+
+####  刑部姬真可爱  
+##### 24388#       发表于 2025-2-15 23:25
+
+盼重置？还是现在就切割然后等剧集播完后大佬的二创吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24389#       发表于 2025-2-15 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436118&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 23:25</a>
+
+盼重置？还是现在就切割然后等剧集播完后大佬的二创吧</blockquote>
+ccc团有官方漫画 看那个比动画强
+
+*****
+
+####  十九号大侠  
+##### 24390#       发表于 2025-2-15 23:26
+
+导演剪辑版呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  liekong  
+##### 24391#       发表于 2025-2-15 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436079&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:21</a>
+
+对，有脑子的人都会这么想，不会去上纲上线。就如同有些人咬文嚼字觉得别人故意断章取义一样。 ...</blockquote>
+你真的很会偷换概念，
+
+B部分正常来说不会上纲上线，你也没故意上纲上线，
+
+所以A部分你就绝对没有断章取义，
+
+这有必然关联么？
+
+*****
+
+####  wpcc  
+##### 24392#       发表于 2025-2-15 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436130&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-15 23:26</a>
+
+导演剪辑版呢
+
+—— 来自 S1Fun</blockquote>
+化身白祥孝子 要求武士道重置动画
+
+*****
+
+####  是谁的书画  
+##### 24393#       发表于 2025-2-15 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436095&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 23:23</a>
+
+不如说，她前六集的表现，就是被动的接受环境带来的改变，从未展现过自己的主观能动性。
+
+也就第七集了， ...</blockquote>
+某种意义上被众星捧月得抽也挺大女主的，有点变态了
+
