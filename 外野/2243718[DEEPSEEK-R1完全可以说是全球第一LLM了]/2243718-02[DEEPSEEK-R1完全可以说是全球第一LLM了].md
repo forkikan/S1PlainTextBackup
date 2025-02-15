@@ -4475,3 +4475,33 @@ DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  requiem116  
+##### 1869#       发表于 2025-2-15 10:01
+
+<blockquote>断片集 发表于 2025-2-15 00:06
+试了下用r1写ai图的prompt，相当好用啊</blockquote>
+这个是怎么写system prompt的
+
+*****
+
+####  披头破落户  
+##### 1870#       发表于 2025-2-15 10:03
+
+字节出的真快啊，可惜r1的字数太少了，能突破就好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  goranger  
+##### 1871#       发表于 2025-2-15 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429797&amp;ptid=2243718" target="_blank">larthasliu 发表于 2025-2-15 09:48</a>
+求个仓库地址，上面没翻到
+
+—— 来自 鹅球 v3.3.96</blockquote>
+[https://github.com/getasterisk/deepclaude](https://github.com/getasterisk/deepclaude)  应该是这个
+
