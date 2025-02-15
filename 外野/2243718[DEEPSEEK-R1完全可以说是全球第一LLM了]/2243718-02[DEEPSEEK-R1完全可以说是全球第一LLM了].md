@@ -4505,3 +4505,27 @@ DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 [https://github.com/getasterisk/deepclaude](https://github.com/getasterisk/deepclaude)  应该是这个
 
+
+*****
+
+####  断片集  
+##### 1872#       发表于 2025-2-15 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429833&amp;ptid=2243718" target="_blank">requiem116 发表于 2025-2-15 10:01</a>
+
+这个是怎么写system prompt的</blockquote>
+参考类脑的一个帖子[https://discord.com/channels/1134557553011998840/1336904184674648167](https://discord.com/channels/1134557553011998840/1336904184674648167)
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+Cherry Studio   DeepSeek 生成 SD 绘图提示词.zip
+(834.02 KB, 下载次数: 0)
+
+2025-2-15 10:15 上传
+
+点击文件名下载附件
+
+系统提示词是那个完整提示词 V2.1里的
+
+其他的用来建知识库就行
+
