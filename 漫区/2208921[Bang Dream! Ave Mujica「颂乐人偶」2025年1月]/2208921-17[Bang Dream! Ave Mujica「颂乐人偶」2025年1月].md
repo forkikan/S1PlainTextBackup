@@ -9272,3 +9272,62 @@ C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 除非断网，躲不掉的。我逛贴吧发现剧透内容直接写在标题里也是麻了。
 
+
+*****
+
+####  一心而用  
+##### 24519#       发表于 2025-2-16 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436688&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 00:37</a>
+话说老登私生女的这种操作最近比较有名的一次是不是辉夜来着
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+小姨恋这个独角兽🦄老师有前科。
+<img src="https://p.sda1.dev/22/8a20036f0f5131eca81936a32c051bab/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 24520#       发表于 2025-2-16 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436653&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-16 00:32</a>
+都不用七人演奏，ccc结束的时候，睦祥下场，视角给到农，其他人站在台上看着她等她上台就够了，有句说句， ...</blockquote>
+这又是一个经典的观众视角，问题仍然是：wsd和柿本独角兽知道这是接班吗，这本来是新的开始好吧
+
+
+*****
+
+####  Onelooker  
+##### 24521#       发表于 2025-2-16 00:59
+
+我还挺期待剧透的剧情的
+
+总比剩下六集母鸡卡再挨个过来给🐘磕头好看吧
+
+
+*****
+
+####  hysjmr  
+##### 24522#       发表于 2025-2-16 01:03
+
+接下来还有什么三次元活动要对轴吗，能不能提前说一下大伙好有个心理准备
+
+*****
+
+####  是谁的书画  
+##### 24523#       发表于 2025-2-16 01:05
+
+傻逼日本人喜欢带私货到商业作品真该死啊。
+
+我要是当编剧就让主角是个棕色头发的带个粉**结的30岁矮子自称小草莓，组个女团全员出走最后孑然一身一片废墟<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liekong  
+##### 24524#       发表于 2025-2-16 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436806&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 01:03</a>
+
+接下来还有什么三次元活动要对轴吗，能不能提前说一下大伙好有个心理准备 ...</blockquote>
+这可没办法提前对轴，你看这C团特别出演也是开播后才公布的，哪里防得住
+
