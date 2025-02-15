@@ -7631,3 +7631,117 @@ image.png
 —— 来自 S1Fun</blockquote>
 牛子作为我们的电子嘴替你还要他怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 24363#       发表于 2025-2-15 23:07
+
+ 本帖最后由 liekong 于 2025-2-15 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435918&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:01</a>
+
+你要这么咬文嚼字，那等明天切片出来。我可以给大鼻子叔叔嚼一堆暴论出来。
+
+ ...</blockquote>
+你断章取义跟嚼文字行为又有什么区别，你就去嚼出暴论来呗，能说明啥，
+
+两种说法就是有很大的差别的，他本就是叠甲行为说的话，用词肯定考究过的
+
+*****
+
+####  Yukino-Yukino  
+##### 24364#       发表于 2025-2-15 23:08
+
+大鼻子叔叔真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在开始拷打祥子了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 24365#       发表于 2025-2-15 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435967&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-15 23:08</a>
+
+大鼻子叔叔真爱楼现在开始拷打祥子了。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+一转小白袜可爱
+
+*****
+
+####  是谁的书画  
+##### 24366#       发表于 2025-2-15 23:11
+
+鼻雷达感受鼻抽动吧可能，可能是一种新人类的进化方向。
+
+鼻这纯是🐘大女主视角下的点评了，可能因为这个才会把go的这些人都评价为工具人。不过这个和我的想法比较接近就是了，只是可能我更悲观点也更狗批一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 24367#       发表于 2025-2-15 23:13
+
+母鸡卡动画祥子不是推动剧情的核心谁是呢？2集不出场的主唱大人吗？
+
+而且工具人不是这动画现在的表现吗？哪点不工具了，都快成伪人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 24368#       发表于 2025-2-15 23:14
+
+后来的可能不知道，大鼻子姐姐这个外号出现的原因就是有人说了一句“怎么感觉这张高尾奏音有点像泛式”
+
+*****
+
+####  楚暮秦朝  
+##### 24369#       发表于 2025-2-15 23:15
+
+作为半个灯祥学长来说一下，第七集还不如大象的卡片笔记本有磕点，只感觉大象🐘被素食一拳打地上被强健就突然与世界和解了，这与前几集苦大仇深没苦硬吃的是一个人吗，情绪转变也太快了吧，你莫和睦怎么解决也没说啊，还要拖到下一集吗。而且你武士道觉得最后鸡团能脱离大小姐过家家这个评价吗，为了莫这个可以算另一个人拖了这么多篇幅真得值得吗，你最后鸡团组成是莫还是睦啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  斯大林的拖拉机  
+##### 24370#       发表于 2025-2-15 23:15
+
+这么想想牛子豪不就完美符合大鼻子老师（非高尾奏音）的论调：只要当观众嘴替喷爽了（live做好了），情绪流起来了，其余不好的地方久自动忽略了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yukino-Yukino  
+##### 24371#       发表于 2025-2-15 23:15
+
+母鸡卡都一半了还有看不出来祥子大女主的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算画一下母鸡卡五个人的关系箭头都能看出来的吧，除了初华和海玲有个前后桌关系，大喵和睦头有点关系。剩下的人基本都是和祥子单箭头或者无箭头。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  大户爱  
+##### 24372#       发表于 2025-2-15 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435963&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 23:07</a>
+你断章取义跟嚼文字行为又有什么区别，你就去嚼出暴论来呗，能说明啥，
+
+两种说法就是有很大的差别的，他本 ...</blockquote>
+那他暴论可太多了。我论坛打几个字都能被能被你上纲上线。他再怎么叠甲，说几个小时怎么可能不出差错。
+
+我也就讨厌他那live是最大问题来避重就轻。表达这么完整了。还有人说我断章取义。
+我没怎么连贯看他直播。那随手说一个，他说没人车祥子人物转变这么快。这种各大论坛被车一万遍的问题。
+大鼻子这么说，是不是在伪造民意，为了众人皆醉我独醒捏造事实。
+
+本来大家表达个意思，理解就行了。怎么还有人搞文字狱呢。
+
+*****
+
+####  liekong  
+##### 24373#       发表于 2025-2-15 23:18
+
+“我都要求那么低了，一个这里（指着脑袋）没有问题的人都没办法像我这样，能从屎里挑出金针菇来吃的，这集都没法取悦我”
+
+这句是不是就合很多人心意了
+
