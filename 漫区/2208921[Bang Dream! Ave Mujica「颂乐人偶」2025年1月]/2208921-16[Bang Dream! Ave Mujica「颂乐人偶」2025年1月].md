@@ -15126,3 +15126,133 @@ CCC线下活动的话，大概只能作为迷子和A团对邦的添头吧，除�
 
 现时点的集中宣发CCC，狗厨是没办法不敏感不反应的，估计会持续一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 23561#       发表于 2025-2-15 13:18
+
+爱厨破防不也是假药补充关系性嘛，这是前六集看片方式的延续啊
+
+前面能放大镜看鸡团表面笑嘻嘻实际mmp，那现在放大镜看狗团表面组团实际霸凌不是很合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 23562#       发表于 2025-2-15 13:18
+
+下集一开始🐶团五个人其乐融融聊天，爱音提到我吉他被大明星木子米酱用过了好开心
+
+猫来一句：木子米？没有木子米，那是mortis。然后四个人呆住，进op
+
+*****
+
+####  wpcc  
+##### 23563#       发表于 2025-2-15 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431366&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-15 13:11</a>
+
+我糊涂了，哪里有一段官方认证的访谈或者什么东西，提到是先有鸡再有狗的？请赐教
+
+如果没有只能鉴定为假 ...</blockquote>
+如果你问访谈原文更变态了。我们原来想做一个ccc出来 但是我们又想做十个人多一点，怎么办 唉我们拆成两个团就行了 基本实锤是ccc1和2了。因为mujica有明显的设计参考加独角兽xp放出 这个部分反而是制作组先定好的。你不能说写完mygo动画脚本的时候 初华不是小姨吧 初华从一开始就是独角兽的小姨角色。
+
+*****
+
+####  wpcc  
+##### 23564#       发表于 2025-2-15 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431410&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-15 13:18</a>
+
+爱厨破防不也是假药补充关系性嘛，这是前六集看片方式的延续啊
+
+前面能放大镜看鸡团表面笑嘻嘻实际mmp，那 ...</blockquote>
+mygo没有团魂是十本原话这个是洗不干净了
+
+*****
+
+####  Wwwwwater  
+##### 23565#       发表于 2025-2-15 13:21
+
+如果母鸡卡在mygo完结不久后播出，感觉狗团的谷也卖不出去了，这么一想延期到今年上映是妙手啊
+
+*****
+
+####  cauchua3  
+##### 23566#       发表于 2025-2-15 13:21
+
+没爬完全楼，问一下现在所谓的初华是小姨，祥子第8话要复活ccc是多大程度上的可信？
+
+
+*****
+
+####  wpcc  
+##### 23567#       发表于 2025-2-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431434&amp;ptid=2208921" target="_blank">Wwwwwater 发表于 2025-2-15 13:21</a>
+
+如果母鸡卡在mygo完结不久后播出，感觉狗团的谷也卖不出去了，这么一想延期到今年上映是妙手啊 ...</blockquote>
+三次元动画没做完给了狗团粉幻想空间罢了 爱素人是真没了 狗团起码还能看合同live
+
+*****
+
+####  wpcc  
+##### 23568#       发表于 2025-2-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431436&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-2-15 13:21</a>
+
+没爬完全楼，问一下现在所谓的初华是小姨，祥子第8话要复活ccc是多大程度上的可信？ ...</blockquote>
+你不信这个可以不用看楼了 等完结说不定评分还能涨回去
+
+*****
+
+####  烂片雷达  
+##### 23569#       发表于 2025-2-15 13:23
+
+这不是闹麻了吗，人隔壁鸡还有被逼出精神分裂的还被扔下一个月不管不顾也没见粉丝到处闹事鸣不平攻击队友啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23570#       发表于 2025-2-15 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431448&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-15 13:23</a>
+
+这不是闹麻了吗，人隔壁鸡还有被逼出精神分裂的还被扔下一个月不管不顾也没见粉丝到处闹事鸣不平攻击队友啊 ...</blockquote>
+我问了下睦厨 基本都是颜狗 只要脸好看就买的 剧情都知道是挂件
+
+*****
+
+####  wpcc  
+##### 23571#       发表于 2025-2-15 13:25
+
+就是因为爱音和大翔是推动剧情走的人和决定剧情的人所以厨子闹啊
+
+*****
+
+####  阿兹尔  
+##### 23572#       发表于 2025-2-15 13:25
+
+说起来素睦黄瓜这个联系点，就这么被轻易用掉了好不爽啊，感觉soyo像来送复活道具的，还是辅助的那种
+
+*****
+
+####  是谁的书画  
+##### 23573#       发表于 2025-2-15 13:25
+
+睦要是有农的流量我怕从第三集开始就会有人在wsd楼下拉横幅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 23574#       发表于 2025-2-15 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431325&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:07</a>
+
+tft真不是小噱头 ccc真是主推</blockquote>
+小羊这次是担起来了
+
+另外难说这是稳住小羊，过了高强度宣传期后，一般的开开Live对于哪怕是一线声优也不是太大的问题，除非你目的是当年的香菜那样刷番。但是现在刷番本身也早就是过时商法了。
+
+要我说更不如说是青二推的，小羊的这个声音太容易让人记住了，属于只要多练练稳定性真的能拉出来唱的，至于是mygo，ccc或者别的什么企划倒是其次。这别说比用角色音拗个角色歌、过了季度就忘的声优歌手好，就是正经歌手也比单纯唱的对、唱的好的那种无聊角色要好。日音早就过了唱得真高、真响、真准的时代了。
+
