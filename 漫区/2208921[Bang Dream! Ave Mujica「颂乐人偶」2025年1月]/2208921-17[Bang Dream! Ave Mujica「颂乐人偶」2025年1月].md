@@ -9571,3 +9571,18 @@ mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  LeonsCat  
+##### 24548#       发表于 2025-2-16 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436310&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:48</a>
+
+第七集你要说最大的问题，那我觉得也是祥子。
+
+大鼻子这点说的还是很好的，你花了六集去摧毁一个形象，那你 ...</blockquote>
+怕不就是独角兽性癖放出。
+
+她自己代入的是带点自闭的tmr，skk则是她捏的理想型，整个go-am就是情书。不然真的理解不了skk原谅了ccc，原谅了丰川家，原谅了所有她压力过的存在，所有的所谓拷打都是skk自己内耗的纯血玛丽苏。
+
