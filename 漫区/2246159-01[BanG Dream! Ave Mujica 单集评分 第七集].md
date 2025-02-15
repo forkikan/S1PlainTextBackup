@@ -4288,3 +4288,11 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 
 这编排真给我整笑了，看完直呼我在期待什么？mortis这波真是教科书般的守家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金属化反射装甲  
+##### 417#       发表于 2025-2-15 14:50
+
+我服了，你前面角色和傀儡一样被剧情推着走我能当看不见，到了乐队最重要情绪释放的live演出这块居然能拉，音乐动画到最后把音乐性丢了，哥们你是来搞笑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2430,3 +2430,13 @@ FS祖传netcode就别指望了，环本体联机时有的问题一个不少，�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  leafS  
+##### 266#       发表于 2025-2-15 14:49
+
+测试的女爵纯纯性能怪物，追踪者综合能力不错，鸟哥什么废物，法师更是查无此人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -16394,3 +16394,54 @@ CCC是属于过去的幽灵，本应该讲述曾经的故事，但却专注于�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  595505568  
+##### 23676#       发表于 2025-2-15 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431993&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-15 14:46</a>
+粉随偶像了属于是
+
+农在动画里受委屈了就会大声地表达出来，农推在被制作组迫害之后就会集中力量冲制作组； ...</blockquote>
+我素推的看到素世挨车完了还要看第七话前后精神分裂的素世是我的错吗<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23677#       发表于 2025-2-15 14:49
+
+我看似乎是某些河豚过来了。真把自己当做什么核心观众，还核心圈哈哈哈哈，可是人家wsd似乎都没把你们当回事，人物塑造稀巴烂还在炒作等上供<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个核心也太憋屈了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 23678#       发表于 2025-2-15 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+所以沪萝楼里有人去吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 23679#       发表于 2025-2-15 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431011&amp;ptid=2208921" target="_blank">_47 发表于 2025-2-15 12:25</a>
+手游肯定都塞的呀，GlitterGreen不也有歌，做了没上才奇怪吧。live上就鸡狗这一场才能组出Crychic，特典 ...</blockquote>
+GlitterGreen只是有成员出国留学了，可没解散，有本事武士道搞一出某天saya抛下ppp成员跑回CHiSPA打鼓的剧情试试？？？
+
+*****
+
+####  ryuusu  
+##### 23680#       发表于 2025-2-15 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431674&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:57</a>
+
+黑祥粉现在拦着武士道赚钱了早该死了。而且你真看的下去黑祥吗 黑祥等于清告 ...</blockquote>
+主要是目前的白祥？太无聊了，如果还有类清告的操作我觉得也能看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
