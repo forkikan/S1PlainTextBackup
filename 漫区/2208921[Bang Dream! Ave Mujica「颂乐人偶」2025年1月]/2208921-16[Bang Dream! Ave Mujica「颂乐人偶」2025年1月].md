@@ -12796,3 +12796,11 @@ Soyo心中对Crychic的感情一直都比MyGo要高的，直到这集结束。�
 
 我看大纲逻辑差不多就是这么个意思，至于演出本身我不做评价
 
+
+*****
+
+####  八木沼了一  
+##### 23351#       发表于 2025-2-15 08:35
+
+这灯可真不是人，怪不得老念叨想变成人类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

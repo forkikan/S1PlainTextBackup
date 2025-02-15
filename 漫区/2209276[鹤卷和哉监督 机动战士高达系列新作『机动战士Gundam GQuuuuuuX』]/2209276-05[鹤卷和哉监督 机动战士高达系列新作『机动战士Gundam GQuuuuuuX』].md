@@ -13289,3 +13289,13 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 更别提是塞可缪飞跃，认独角兽真有精骨水平都可以开始神棍互殴了
 
+
+*****
+
+####  Gysumitka  
+##### 6943#       发表于 2025-2-15 08:35
+
+<img src="https://p.sda1.dev/22/e0705442181604045053810c3ca8482b/image.jpg" referrerpolicy="no-referrer">
+1/1700 GQuuuuuuX版麦哲伦级
+[@hearyhat](https://x.com/hearyhat/status/1890328995859771781)
+
