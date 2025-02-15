@@ -13366,3 +13366,12 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 原来表现成这样，那难怪被搂头都不生气
 
+
+*****
+
+####  积木23ki  
+##### 6948#       发表于 2025-2-15 12:12
+
+煤炉被小番茄大头攻占了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7325f78fc913656cb89145ede4f12c22/image.jpg" referrerpolicy="no-referrer">
+
