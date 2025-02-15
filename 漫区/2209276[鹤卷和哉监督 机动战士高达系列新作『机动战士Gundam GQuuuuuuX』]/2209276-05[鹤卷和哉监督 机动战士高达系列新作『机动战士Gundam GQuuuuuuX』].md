@@ -13754,3 +13754,16 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Sliurus  
+##### 6979#       发表于 2025-2-16 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434491&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-15 20:30</a>
+
+谁会设计限制性别的战斗系统，就算设计者崆峒也不是在这恐啊</blockquote>
+强大的女性驾驶员才能激发恶魔高达的全部潜力，此事在G武斗传中亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+恶魔高达也有张嘴画面来着
+

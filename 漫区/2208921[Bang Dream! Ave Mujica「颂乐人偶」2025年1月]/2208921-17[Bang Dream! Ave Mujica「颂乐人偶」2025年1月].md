@@ -8754,3 +8754,165 @@ mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团
 不过按剧透，这个live可能是鸡团后面矛盾的引子。
 哦，也不用按剧透了，海玲表现那么明显了。
 
+
+*****
+
+####  ccared  
+##### 24470#       发表于 2025-2-16 00:08
+
+想“拉低live水准”完全可以让祥子当那个拉低水准的人，让灯坚定的唱，羊神的歌声里掺一些祥的哭泣和钢琴的乱音。有了新归宿的三人在live里就该展现“完成后的自己”而不是“未成熟的自己”，作为引领者拉动祥，打动莫和睦。
+
+说到底前作人物回归刷脸哪有被摁着“继续成长”的道理。
+
+*****
+
+####  595505568  
+##### 24471#       发表于 2025-2-16 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436457&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:07</a>
+mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团live放到后半部分， 母鸡卡解决一部分问题之 ...</blockquote>
+我就是看了剧透回头看分配和演出是灾难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+干嘛去了，第七话空出来给海玲不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+祥子这个状态能充能完毕吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个脚本这么写没一个角色能活到结束啊
+这母鸡卡确实得重置吧
+
+*****
+
+####  wpcc  
+##### 24472#       发表于 2025-2-16 00:10
+
+就是独角兽啊 这事最该死的
+
+*****
+
+####  DeltaStriker  
+##### 24473#       发表于 2025-2-16 00:10
+
+其实正常唱不行吗 唱完大家表示ccc结束了祝你幸福不就完事了…… 当然这么搞的话这段得往后放
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  零壹贰叁  
+##### 24474#       发表于 2025-2-16 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就我个人来说我是很赞同泛式的观点，live做好了我至少能好过点骗骗自己至少这集live好看
+但是没有
+
+*****
+
+####  天空塔书记官  
+##### 24475#       发表于 2025-2-16 00:11
+
+所以楼里今天有人去沪萝了吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  [皆神孝介]  
+##### 24476#       发表于 2025-2-16 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436270&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-15 23:42</a>
+
+在这里问下，为什么我的鹅球不能回复别人，也不能发图存图</blockquote>
+建议加个群，如果有其他问题可以在群里直接问
+
+<img src="https://img.saraba1st.com/forum/202502/16/001109eigju94s3n4iuis9.jpg" referrerpolicy="no-referrer">
+
+<strong>qrcode_1739635708642.jpg</strong> (174.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 00:11 上传
+
+522433035
+
+*****
+
+####  595505568  
+##### 24477#       发表于 2025-2-16 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436466&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-16 00:08</a>
+想“拉低live水准”完全可以让祥子当那个拉低水准的人，让灯坚定的唱，羊神的歌声里掺一些祥的哭泣和钢琴的 ...</blockquote>
+让一个不熟练的学生来谈钢琴和弹吉他就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但问题是，我一直觉得让爱音在下面默默拨空弦被睦（？）看到后学拨弦慢半拍也不是不行，就是会很地狱（
+钢琴部份不出问题但是平铺直叙的弹更好，因为角色现在其实已经没有情感反馈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，很多问题就是打磨烂完，自己13话东西怎么排布完全没有动脑子
+
+
+*****
+
+####  是谁的书画  
+##### 24478#       发表于 2025-2-16 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436457&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:07</a>
+
+mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团live放到后半部分， 母鸡卡解决一部分问题之 ...</blockquote>
+如果是我就不会处理，吗的过去就过去了，相逢一笑泯恩仇。你走你的武道馆，我走我的ring，见到也都是路人了，谁还没几个过客了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24479#       发表于 2025-2-16 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436484&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-16 00:10</a>
+其实正常唱不行吗 唱完大家表示ccc结束了祝你幸福不就完事了…… 当然这么搞的话这段得往后放
+
+—— 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说难听点真的live好了就会变成最正确的五人…但是只有三个人Ok，睦祥都有演出问题的话也Ok，现在三个不Ok我有点怕了
+
+*****
+
+####  z-hunter  
+##### 24480#       发表于 2025-2-16 00:13
+
+你们是不是忘了大人们的大手，live一定要在第7话的，C团版的春日影也一定要在第7话的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为第二天是大祥的生日，也是TFT版春日影的日子，要一起宣发的
+
+什么前几集太拖沓抽了太多次大祥陀螺，第7集节奏过快都是小事，配合宣发才是正事啊
+
+
+*****
+
+####  烂片雷达  
+##### 24481#       发表于 2025-2-16 00:14
+
+独角兽可能暗恋羊宫妃那
+
+*****
+
+####  wpcc  
+##### 24482#       发表于 2025-2-16 00:14
+
+我给武士道洗一下 他的基本盘是现地民和cd民 也就是要同时喜欢皮套和真人的才算给钱的。
+
+有影响吗动画没影响 但是热度比之前的大多了
+
+武士道赢麻了
+
+现在武士道信和武士道黑大战有什么关系呢 服务好现地民最重要
+
+*****
+
+####  595505568  
+##### 24483#       发表于 2025-2-16 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436512&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 00:13</a>
+你们是不是忘了大人们的大手，live一定要在第7话的，C团版的春日影也一定要在第7话的
+
+因为第二天是大祥的生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我只能说我要是做好了剧本构成，我大不了放送时间调整一下
+
+*****
+
+####  大户爱  
+##### 24484#       发表于 2025-2-16 00:15
+
+说到底为什么不能七人live，爱音猫上去一起弹有问题嘛。回忆已经做的很烂的，中间插一两段mygo里回忆，就祥子看mygo演出那段不行嘛。
+
+这样爱音厨肯定没太多意见了。mygo团魂也有了
+
+场外的大手啊，邦邦乐队只能五个人是无形铁律。
+
