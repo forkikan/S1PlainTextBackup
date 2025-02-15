@@ -9331,3 +9331,50 @@ C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员�
 接下来还有什么三次元活动要对轴吗，能不能提前说一下大伙好有个心理准备 ...</blockquote>
 这可没办法提前对轴，你看这C团特别出演也是开播后才公布的，哪里防得住
 
+
+*****
+
+####  烂片雷达  
+##### 24525#       发表于 2025-2-16 01:07
+
+11个人4个团还是太少了，我建议每次live11个人全去现场开盲盒c11 5，剩下6个人坐台下当观众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 24526#       发表于 2025-2-16 01:09
+
+要不从c11 5改成c11 3，然后命csgo为学马仕。
+
+*****
+
+####  wpcc  
+##### 24527#       发表于 2025-2-16 01:10
+
+学马大战mujica大战mygo哈哈哈哈
+
+
+*****
+
+####  cxj649  
+##### 24528#       发表于 2025-2-16 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436824&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-16 01:07</a>
+
+11个人4个团还是太少了，我建议每次live11个人全去现场开盲盒c11 5，剩下6个人坐台下当观众 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">突然感觉大鼓队员好累
+
+*****
+
+####  Besthounddog  
+##### 24529#       发表于 2025-2-16 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436811&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 01:05</a>
+
+傻逼日本人喜欢带私货到商业作品真该死啊。
+
+我要是当编剧就让主角是个棕色头发的带个粉蝴蝶结的30岁矮子自 ...</blockquote>
+刚好也是A团
+
+也有个拆队的从小地方来的又蠢又坏的紫发，还有一个双马尾队友。对上了，都对上了
+
