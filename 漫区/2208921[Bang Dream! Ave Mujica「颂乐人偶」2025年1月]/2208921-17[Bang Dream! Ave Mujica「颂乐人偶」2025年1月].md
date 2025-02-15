@@ -9082,3 +9082,79 @@ mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团
 现在这个mujica是不怎么协调的。 ...</blockquote>
 最好是最后祥子自己说出来，已经不能平心静气弹不出春日影了，我认为伤痛文学就应该在美好的瞬间上产生裂痕后退却<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烂片雷达  
+##### 24500#       发表于 2025-2-16 00:27
+
+初华晚上会小心翼翼的对祥说姨可以扣你吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 24501#       发表于 2025-2-16 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436504&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 00:12</a>
+
+如果是我就不会处理，吗的过去就过去了，相逢一笑泯恩仇。你走你的武道馆，我走我的ring，见到也都是路人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ring是邦邦底层设定的所有有脸乐队的基地
+
+而且场外，母鸡卡1年前也被发RING证件照
+
+*****
+
+####  DeltaStriker  
+##### 24502#       发表于 2025-2-16 00:31
+
+啊 不是还有circle和galaxy吗（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  柯哀lv王道  
+##### 24503#       发表于 2025-2-16 00:32
+
+都不用七人演奏，ccc结束的时候，睦祥下场，视角给到农，其他人站在台上看着她等她上台就够了，有句说句，老团解散来承接加强新团的含义不是很常见的手法吗
+
+
+*****
+
+####  影伴光生  
+##### 24504#       发表于 2025-2-16 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436621&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-16 00:27</a>
+初华晚上会小心翼翼的对祥说姨可以扣你吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉还得是在炕上叫“爱不爱小姨”那种表现比较带劲，俺们东北人就好这一口
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 24505#       发表于 2025-2-16 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436621&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-16 00:27</a>
+初华晚上会小心翼翼的对祥说姨可以扣你吗</blockquote>
+不行的，睦子米还没睡<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ccared  
+##### 24506#       发表于 2025-2-16 00:34
+
+所以为什么要是小姨。我能理解见到空降的高颜值表姐妹指头痒了，姨和侄女这种关系不会让大头抢占身体吗。
+
+*****
+
+####  sauron.j  
+##### 24507#       发表于 2025-2-16 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434547&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 20:35</a>
+
+看到这张图突然才意识到灯和睦其实某种意义上有点像，当一个五人团队有两个拙于言辞或者说是沉默类型的人 ...</blockquote>
+C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员间完全靠爽姐当润滑剂，本来就无法长久<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
