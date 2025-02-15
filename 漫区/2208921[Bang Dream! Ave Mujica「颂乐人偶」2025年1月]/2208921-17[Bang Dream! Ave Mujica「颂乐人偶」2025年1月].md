@@ -6216,3 +6216,146 @@ live做烂了问题当然大，就跟机甲片机战部分做烂的问题一样�
 
 说的也不能说不对，如果有高质量live确实能让人忽视很多不合理，就像如果有1个亿很多生活情感上的烦恼都可以无视，问题是没有。
 
+
+*****
+
+####  6030sylar  
+##### 24233#       发表于 2025-2-15 21:48
+
+这个柿本就是菜鸡，让羊姐凹哭腔唱live觉得自己很有创意是吧，鬼杀咁听得我多难受，要是害羊姐以后配不了大波妹要怎么赔
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 24234#       发表于 2025-2-15 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435176&amp;ptid=2208921" target="_blank">kyonkoism 发表于 2025-2-15 21:40</a>
+
+母鸡卡在路人风评都墙倒众人推完到出为爱音不值的mad赚眼泪和同情的阶段了，大鼻子叔叔还在这逆行盘这集liv ...</blockquote>
+武士道没有想到爱音的生死决定了中华炮是他封笔之前就没想过的。独角兽把爱音当工具小丑摄像头啊
+
+*****
+
+####  capraeLinn  
+##### 24235#       发表于 2025-2-15 21:49
+
+那live不好确实关键啊，ep7前面的问题和前六集的问题也没啥不同吧
+
+*****
+
+####  老耗子  
+##### 24236#       发表于 2025-2-15 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435095&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 21:33</a>
+
+大鼻子叔叔偷换概念有一手的，母鸡卡这番口碑这么不好，是因为第七话支撑不起来，第七话支撑不起，是因为最 ...</blockquote>
+live能支撑起来风评能好三成吧
+
+*****
+
+####  thisisaspider  
+##### 24237#       发表于 2025-2-15 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435176&amp;ptid=2208921" target="_blank">kyonkoism 发表于 2025-2-15 21:40</a>
+
+母鸡卡在路人风评都墙倒众人推完到出为爱音不值的mad赚眼泪和同情的阶段了，大鼻子叔叔还在这逆行盘这集liv ...</blockquote>
+人家有商业任务<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 24238#       发表于 2025-2-15 21:50
+
+live好了会有更多的人为ccc说话，爱音的付出也会显得更值得。甚至观众关注的焦点也能一定程度地从关系性移到音乐性上
+
+*****
+
+####  zhzij111  
+##### 24239#       发表于 2025-2-15 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434053&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:51</a>
+那我能要个圣素世嘛
+说重来就重来，我现在看无名乐队结团也有异味
+你怎么就这么不管其他几个人这一年对你 ...</blockquote>
+加圣词缀的前提是没做过坏事，第二季新的开始爽姐老案底已经洗白白了，所以第六集混到一个圣，可惜第七集回c团笑得太开心涉及严重双标，圣人身份暂时收回。
+
+不过坛友别急，剧透说第八集她会拒绝c团重组，到时候消除了双标嫌疑，组织还会把圣还给她的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 24240#       发表于 2025-2-15 21:52
+
+Live 做好了觀感起來
+
+對這話有好評價的觀眾多了
+
+能在第一時間對沖差連的觀眾，
+
+不讓輿論滾大
+
+還真是治標的方法
+
+
+*****
+
+####  wpcc  
+##### 24241#       发表于 2025-2-15 21:52
+
+我再重审一次 live=doi 乐器=性器 团魂=性张力  这个是一定说得通的。爱音错就错在一个高武乐队世界观 她对于音乐系毫无贡献 所以灯都懒得给她写歌
+
+*****
+
+####  江口夕  
+##### 24242#       发表于 2025-2-15 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐/监督全责
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  haohaoh4  
+##### 24243#       发表于 2025-2-15 21:52
+
+ 本帖最后由 haohaoh4 于 2025-2-15 21:55 编辑 
+
+live不好本来就是监督全片整个演出思路混乱的最明显体验，基础的演出效果都做不好，谈别的也没啥意义了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 24244#       发表于 2025-2-15 21:53
+
+我觉得还是有影响的。
+
+至少就我个人而言剧情什么自我调理下预期还蛮乐，但耳朵受到的伤害是客观而不可逆的。
+
+*****
+
+####  wpcc  
+##### 24245#       发表于 2025-2-15 21:53
+
+我只能说独角兽的剧本能通过武士道的神人审核 然后被十本改成这个样子全部都要清算 真的要清算
+
+*****
+
+####  thisisaspider  
+##### 24246#       发表于 2025-2-15 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435284&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:52</a>
+
+我再重审一次 live=doi 乐器=性器 团魂=性张力  这个是一定说得通的。爱音错就错在一个高武乐队世界观 她对 ...</blockquote>
+说不通，只能是部分群体的观点。不然老团也太性乱了，对关系纯洁厨不友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 24247#       发表于 2025-2-15 21:54
+
+基础都做不好当然重要了
+
