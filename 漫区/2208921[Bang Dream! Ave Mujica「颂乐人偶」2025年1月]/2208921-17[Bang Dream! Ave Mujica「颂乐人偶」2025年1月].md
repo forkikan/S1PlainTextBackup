@@ -3996,3 +3996,261 @@ mujica是个在动画播出前就有不少乐团粉的乐队吧，动画对他�
 现在变成这 ...</blockquote>
 我之前也觉得C团解散祥睦有原罪，也在想剧情怎么写。但第7集感觉编剧没这么想过。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 24021#       发表于 2025-2-15 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433974&amp;ptid=2208921" target="_blank">ky刃 发表于 2025-2-15 19:45</a>
+春日影那里，没独白的话，感觉效果会好点，不过像这样的mygo可能用过就不继续用，可惜了，软糯小祥哭哭真可 ...</blockquote>
+春日影那里应该直接用立希模糊想起自己live的时候其实敲错鼓，发现好像C团也没那么特别；素世那边用大量的过曝光和越来越淡的回忆来展现回忆只是回忆，再仔细想去已经没有了完整的信息。
+然后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你居然直接上台本，我倒想问编剧在想什么
+
+*****
+
+####  hysjmr  
+##### 24022#       发表于 2025-2-15 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433986&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:46</a>
+ 他们似乎忘记了，C团开始到解散一年后在干这个事情的是素世，现在车素世那么狠的时候忘记她遭遇的C团“冷 ...</blockquote>
+你大概忘了圣爱音这个称号咋来的？
+
+*****
+
+####  66367749  
+##### 24023#       发表于 2025-2-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433986&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:46</a>
+他们似乎忘记了，C团开始到解散一年后在干这个事情的是素世，现在车素世那么狠的时候忘记她遭遇的C团“冷 ...</blockquote>
+现在想的话，素世认死理祥子才能复活ccc，怕不是之前时间里尝试过找其他成员碰过不少次壁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NaAgfykp  
+##### 24024#       发表于 2025-2-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433814&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 19:30</a>
+我之前杂七杂八地写了不少，所以在楼里还是蛮开心的，虽然并没什么人看2333
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你这个发在哪里了？
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  干早爱音  
+##### 24025#       发表于 2025-2-15 19:50
+
+喵梦的最大问题是因为私欲的背叛。
+
+这里面埋了一个很大很大的雷。就是我们看的人的视角下她做错了这件事，但似乎在剧情里头这并不是她最没办法原谅的事情，因为第二集之后队员们并没有再去追究她，哪怕从结果来看这是mujica解散的起点。
+
+这一定肯定会让观众和mujica成员之间对于喵梦态度产生巨大落差。
+
+之后肯定会有争论就是为什么小祥和小睦就这样轻松简单原谅了她。我感觉这是必然会发生的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 24026#       发表于 2025-2-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433878&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-15 19:37</a>
+
+利己是没问题，但第一集在一个商业乐队这么做和事务所没半点招呼，和队友也没半点招呼，真利己吗？（揭面 ...</blockquote>
+我最后得出的合理结论是，编剧对熊本人有意见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skymoon  
+##### 24027#       发表于 2025-2-15 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433991&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 19:46</a>
+我之前也觉得C团解散祥睦有原罪，也在想剧情怎么写。但第7集感觉编剧没这么想过。 ...</blockquote>
+但归根到底c团是祥子一手建立的，最后她因为自适应现实因素解散c团，我觉得很难说有什么原罪，顶多就是像个渣女<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 24028#       发表于 2025-2-15 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434035&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-2-15 19:50</a>
+你这个发在哪里了？
+
+—— 来自 vivo V2301A, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+楼里，这个是我自己的留档，做纪念用的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 24029#       发表于 2025-2-15 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434026&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-15 19:49</a>
+你大概忘了圣爱音这个称号咋来的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说重来就重来，我现在看无名乐队结团也有异味
+你怎么就这么不管其他几个人这一年对你做的事情了
+
+*****
+
+####  刑部姬真可爱  
+##### 24030#       发表于 2025-2-15 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433974&amp;ptid=2208921" target="_blank">ky刃 发表于 2025-2-15 19:45</a>
+
+春日影那里，没独白的话，感觉效果会好点，不过像这样的mygo可能用过就不继续用，可惜了，软糯小祥哭哭真可 ...</blockquote>
+合弹那里大家提出的比如说取消独白用其他回忆杀展示，或者用正常的唱法而不是这种难听的哭腔，可能观感会变好，但其实都不可避免的要滑坡到其他地方，究其本质，没有合适的铺垫，让人感受不到go的团魂。
+
+*****
+
+####  厚乳果珍爽  
+##### 24031#       发表于 2025-2-15 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">编剧的大手一次还还说，都来了多少次了？
+
+第一次，第一集喵梦揭面具，简直了，借用一句话“我像了三天三夜都想不明白，印度为什么要进攻xx。”
+
+第二次，第四集，睦的双重人格，如果说一个设定无限接近现实生活的世界观里，有个双重人格的人，我他妈的活了这么多年就算在互联网上都没见过双重人格的人啊。
+
+第三次，第五集，丰川家的大手，这个我不说了，你还想到有违约金，还是现实社会，前面那些情节放现实社会里有可能发生吗？
+
+*****
+
+####  aptx8285144  
+##### 24032#       发表于 2025-2-15 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433986&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:46</a>
+
+他们似乎忘记了，C团开始到解散一年后在干这个事情的是素世，现在车素世那么狠的时候忘记她遭遇的C团“冷 ...</blockquote>
+你是不是忘了素世为了复活c团搞的那堆事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">以及爱音为什么被称呼圣爱音
+
+
+*****
+
+####  forgetit  
+##### 24033#       发表于 2025-2-15 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433814&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 19:30</a>
+
+我之前杂七杂八地写了不少，所以在楼里还是蛮开心的，虽然并没什么人看2333
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+原来这么详细
+
+*****
+
+####  Skymoon  
+##### 24034#       发表于 2025-2-15 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434053&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:51</a>
+那我能要个圣素世嘛
+说重来就重来，我现在看无名乐队结团也有异味
+你怎么就这么不管其他几个人这一年对你 ...</blockquote>
+圣素世有呀，在第六集，不过在第七集又被圣人厨打成运算符号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24035#       发表于 2025-2-15 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434033&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-15 19:50</a>
+现在想的话，素世认死理祥子才能复活ccc，怕不是之前时间里尝试过找其他成员碰过不少次壁了 ...</blockquote>
+灯一年没回信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一年都是看了不回，甚至是锁屏阅读的
+立希大概率是没灯我不跟你组
+祥子全频道封锁
+睦帮祥子单防，也不跟你说消息单陪（陪陪总比前面几个好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+我真的
+这比爱音惨太多了吧，真的要比吗
+
+*****
+
+####  595505568  
+##### 24036#       发表于 2025-2-15 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434066&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-15 19:52</a>
+圣素世有呀，在第六集，不过在第七集又被圣人厨打成运算符号了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就挂一集啊
+
+*****
+
+####  595505568  
+##### 24037#       发表于 2025-2-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434061&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 19:52</a>
+你是不是忘了素世为了复活c团搞的那堆事以及爱音为什么被称呼圣爱音</blockquote>
+我记得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但你告诉我前面一年的合法手段怎么一点没有用嘛
+
+*****
+
+####  刑部姬真可爱  
+##### 24038#       发表于 2025-2-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434033&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-15 19:50</a>
+
+现在想的话，素世认死理祥子才能复活ccc，怕不是之前时间里尝试过找其他成员碰过不少次壁了 ...</blockquote>
+这个go里其实画面伏笔都有，soyo给灯发过很多次信息，但灯都不回复，也经常去ring找立希，再然后就是和睦头培养感情外加旁敲侧击祥子的消息
+
+*****
+
+####  南宮凝香  
+##### 24039#       发表于 2025-2-15 19:54
+
+<blockquote>595505568 发表于 2025-2-15 19:46
+他们似乎忘记了，C团开始到解散一年后在干这个事情的是素世，现在车素世那么狠的时候忘记她遭遇的C团“冷 ...</blockquote>
+C 團解散了 （參照三角初華小姐一人退出了樂隊就完了的理論）
+
+現在狗團解散了嗎？
+
+*****
+
+####  堆雪若叶  
+##### 24040#       发表于 2025-2-15 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433518&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 18:42</a>
+
+呃，你说的这几个点倒是都是能解释的，
+
+1是并不是搁置live，而是耽搁了彩排之前的练习，ccc弹完春日影后g ...</blockquote>
+搁置live说的是把live的优先级放后了，立希批评爱音soyo说好要搞好live却不专心，结果最重视live的自己也翘了练习。灯挑明歌是写给祥子的更是这段情节的醋，说没有crychic和解mygo依然会表演这首歌就好比没有mygo准备live睦祥的问题依然能解决。但剧本的结论是两者即使毫无关系也要把这一点点破，联系在一块的目的就是在比较灯素希对两个团的态度。本来要说这也是三人逃避不了的选择找个时机拿出来挑明也无可厚非，但实际的做法却并非选择而是端水，mygo先以crychic为优先，crychic再让还mygo，wsd的烂炒就是为了这点不清不白。
+
+
+*****
+
+####  595505568  
+##### 24041#       发表于 2025-2-15 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434093&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 19:54</a>
+C 團解散了 （參照三角初華小姐一人退出了樂隊就完了的理論）
+
+現在狗團解散了嗎？ ...</blockquote>
+那C团解散前的操作呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，C团没全跑之前我看人挽留啥的也不是没做啊，不说已经解散的当下，就说那个时候她做错了什么吗
+
+*****
+
+####  kyonkoism  
+##### 24042#       发表于 2025-2-15 19:56
+
+so，每集内容都对得上的剧透有说我们的小包爱音小姐之后会得到救赎么，不会拉着被踢了的组个新母鸡卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cnlmaa  
+##### 24043#       发表于 2025-2-15 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434072&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:53</a>
+
+灯一年没回信，一年都是看了不回，甚至是锁屏阅读的
+
+立希大概率是没灯我不跟你组
+
+祥子全频道封锁</blockquote>
+其实就是MYGO播出的时候还没有那么多角色厨罢了，观众多了自然有人拿着尺量了
+
+但我作为乐子人看得挺开心的，这两天光lofter看厨子骂街就给我带来了不少快乐<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
