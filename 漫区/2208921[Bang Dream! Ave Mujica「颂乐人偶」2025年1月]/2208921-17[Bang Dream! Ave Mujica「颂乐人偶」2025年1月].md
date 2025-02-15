@@ -4766,3 +4766,108 @@ MYGO垫了，不管怎么写都会伤害到角色，后面真杀青就完全没�
 如果说演到现在谁最爽我一定选soyo之前还说人家是喜剧演员，现在看所有人都是ccc姨姥，只有人家爽姐正视 ...</blockquote>
 这不是盖棺材板吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24089#       发表于 2025-2-15 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434168&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 20:00</a>
+
+下一集mygo肯定会包饺子的，她们需要暂时退场，退场前肯定会描写一番团魂的。 ...</blockquote>
+就怕编剧再来个“公式化”团魂，像第一集那样爱音搁那耍宝，灯想看又不想看，素食绷着脸不咸不淡回复下，立希呵斥爱音别玩了，乐奈状况外，那就要第二次引爆了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 24090#       发表于 2025-2-15 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434322&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 20:15</a>
+
+当时看到第5，6集MYGO出场我就很慌，因为剧内剧外都表现出要被垫了的感觉。不知道其他粉在高兴什么。
+
+MYG ...</blockquote>
+其他粉丝真得是高兴吗，与其说是高兴倒不如像是质问为什么mago众人给人的观感远胜于鸡团那几个神人的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  是谁的书画  
+##### 24091#       发表于 2025-2-15 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434249&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 20:08</a>
+
+素世经历飞鸟山以及后面的事情才多少对大祥有免疫力了（只要独角兽和柿本不下死命令），灯皇反而让人有点 ...</blockquote>
+咱也说句实话，对这个只会瞪眼嗯嗯啊啊的🐧也挺难动手的，大祥也不是什么心理变态。
+
+但这也带来一个问题，大伙都期望这个只会瞪眼嗯嗯啊啊的🐧能做点啥，结果姐妹真的是跟在别人屁股后面一挪一挪的，看似做了很多，实则毫无作用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 24092#       发表于 2025-2-15 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泛式自己做快乐追番人倒还好，但他扩散的“我嘴笨……”系列话术看多了，已经有点超出他能控制的范围了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  595505568  
+##### 24093#       发表于 2025-2-15 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434353&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:18</a>
+主要這裡爽世是不需要聯絡的
+
+練習行程一定是預先安排了的</blockquote>
+我连为什么立希和爱音第六话莫名其妙的觉得素世又因为什么事情郁郁了都很奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我第五话没看到对应分镜啊，我看不懂啊真的，我第六话就开始不反复看全集了，因为解释不清的演出和信息缺失太多了
+
+*****
+
+####  Суслов  
+##### 24094#       发表于 2025-2-15 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434355&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 20:18</a>
+这不是盖棺材板吗</blockquote>
+从wsd到大部分观众恐怕都不这么想哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕ccc以后真不活动了，五个人也是度尽劫波姐妹在，相逢一笑泯恩仇，比之前视而不见强到不知哪里去了，这都是人soyo的功劳啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 24095#       发表于 2025-2-15 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433915&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 19:40</a>
+
+为爱音抱不平还行，这阅读理解大概是体育老师教的，不知道还以为玩乐队是结婚。
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+反正把爱音比黄部长我觉得异味（原因上面应该说过了）
+
+为了保爱音把立希一起车了更奇怪，相当于为了保黄部长你把小绿也拉来车了，哪有这样的啊
+
+*****
+
+####  南宮凝香  
+##### 24096#       发表于 2025-2-15 20:24
+
+<blockquote>595505568 发表于 2025-2-15 20:22
+我连为什么立希和爱音第六话莫名其妙的觉得素世又因为什么事情郁郁了都很奇怪，我第五话没看到对应分镜啊 ...</blockquote>
+這代表Soyo 小姐平時也是個Emo 人
+
+*****
+
+####  一心而用  
+##### 24097#       发表于 2025-2-15 20:24
+
+今晚
+<img src="https://p.sda1.dev/22/faae6e7ac2bd624389f0042edb4e018a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  迷雾塔  
+##### 24098#       发表于 2025-2-15 20:25
+
+最近这部番场外铺天盖地的，让人很好奇。不过我连她们人名和人头都没认清，只把祥子人脸比对成功了。毕竟也没真情实感追过，如果一口气赶到最新事发现场，感觉好刺激啊，就算吐槽也没什么激情了。感觉我还是完结再来看看风评再说了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

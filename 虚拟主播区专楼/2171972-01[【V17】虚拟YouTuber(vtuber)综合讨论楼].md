@@ -69,3 +69,11 @@ vspo在两国国技馆啊，<img src="https://static.saraba1st.com/image/smiley/
 
 全是PVP游戏没任何歌舞环节，跟虹不一样吧
 
+
+*****
+
+####  吃咸菜的  
+##### 1015#       发表于 2025-2-15 20:16
+
+确实，场地、时长、定价甚至主播都能对标the k4sen con，只是少了一天
+

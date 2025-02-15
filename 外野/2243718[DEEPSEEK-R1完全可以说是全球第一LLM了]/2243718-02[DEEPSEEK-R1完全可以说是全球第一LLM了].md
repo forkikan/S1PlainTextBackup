@@ -4561,3 +4561,11 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 是按照我之前发的这个教程吗https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA？我是按照上面来，就可 ...</blockquote>
 感谢，已经用上了，属实非常爽
 
+
+*****
+
+####  约翰里德  
+##### 1876#       发表于 2025-2-15 20:20
+
+今天硅基的v3 pro怎么了，卡爆了，r1却一点事没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
