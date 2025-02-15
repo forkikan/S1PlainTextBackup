@@ -9471,3 +9471,34 @@ mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感�
 
 那，情绪是会传染的
 
+
+*****
+
+####  天空塔书记官  
+##### 24538#       发表于 2025-2-16 01:39
+
+那说明情绪还是不够稳定
+
+看不懂在吵什么就不会共振了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Versedust  
+##### 24539#       发表于 2025-2-16 01:41
+
+你楼真开始讨论小姨双子说啦<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+双子假药一开始就有了，从OP 访谈 剧内细节都能熬出来这锅药，但是老登私生女也太狗血三流韩剧了
+舅舅全对的话只有素世能稍微挽回一点形象了，其余都不太像人
+
+*****
+
+####  plok201  
+##### 24540#       发表于 2025-2-16 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436986&amp;ptid=2208921" target="_blank">灵椿 发表于 2025-2-16 01:34</a>
+
+现在考虑到场外很难说打擦边球和直接做选择题哪个更消解🐶（我印象中“消解”这个词通常是在比较积极的句 ...</blockquote>
+因为成功消解才算积极啊，社区里都是车wsd根本没消解成功才用的消解
+
