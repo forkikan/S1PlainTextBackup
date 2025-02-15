@@ -2477,3 +2477,163 @@ nga专楼从昨晚开始传遍了，抽象的不行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hysjmr  
+##### 23891#       发表于 2025-2-15 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433323&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-15 18:11</a>
+ 这段是一边很现实元素，一边又把搁现实可能早就开撕或者合同上强度，只有二次元过家家才可能轻拿轻放的事 ...</blockquote>
+设定割裂的同时叙事又跳脱，时间线跳得飞起，以至于让人觉得是在藏信息
+
+*****
+
+####  风道北来  
+##### 23892#       发表于 2025-2-15 18:15
+
+ 本帖最后由 风道北来 于 2025-2-15 18:20 编辑 
+
+对比天元突破里卡米那便当后，西蒙消沉再崛起的剧情就能看出第七集最糟糕的点在哪。
+
+西蒙崛起的内因是他是挖洞的西蒙，这是人物的底层内核，即使被外部条件干扰也不会被打碎；外因是尼娅的认可与支持，这是勾动内因的导火索。
+
+回到大祥老师这里。大祥老师从解散C团开始就被暗地里拷打，从压力睦头人开始就被明面上拷打，如此漫长而持久的抽陀螺行为，监督用了多长时间完成大祥老师醒悟的转折？
+
+一分三十秒。soyo堵门到绞杀到话疗一共就用了一分三十秒。五分二十秒处大祥老师就开始睦门立雪了。
+
+对于一个贯穿两季的核心人物、隐藏的第一女主，这个待遇简直搞笑到落泪。
+
+后面的剧情也是一样。C团出殡本来是非常好的让大祥老师意识到自己的错误，继而重新审视鸡团的解散，完成重建的推动力——结果最后需要海铃阴阳怪气地贴上来；也能让狗团巩固感情继续前进，答谢第二季她们的付出——结果，嗯，还用我多说吗。
+
+大祥老师的人物塑造完全没有实现，导致这个人只能被推着走，甚至很难给她下定性的评语。而糟糕的大祥老师又占据了全剧核心，连带着毁了一票人的塑造。
+
+比起这个我觉得live没办好都不是特别要命的事，live难听也能凑合等下一场，人物毁了怎么办？season 3？手游？广播剧？访谈？
+
+我是倾向于商业的因素需要C团用这么难看的形式出（重）殡（组）。我很不喜欢这个。
+
+*****
+
+####  刑部姬真可爱  
+##### 23893#       发表于 2025-2-15 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433314&amp;ptid=2208921" target="_blank">无证madam 发表于 2025-2-15 18:09</a>
+
+对的时候进了对的楼
+
+以前另一栋楼不长这样</blockquote>
+正经开播后再来这栋楼才叫对的时候，还没开播前基本还是首页几位现在已经消失的鸡友的共振楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  grox133  
+##### 23894#       发表于 2025-2-15 18:16
+
+感觉大概率是真的，mujica海猫要素太浓
+
+*****
+
+####  南宮凝香  
+##### 23895#       发表于 2025-2-15 18:16
+
+那劇透就是把鍋丟給莫/睦 去給狗找補
+
+我覺得還是算了吧
+
+甩鍋連鎖是不會終結的
+
+當個同色丸山彩也沒什麼
+
+*****
+
+####  ArcadiaMartyr  
+##### 23896#       发表于 2025-2-15 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我从第一集开始对喵梦的操作就非常反感，并且知道祥子这啥都不敢干就是被编剧的大手摁住了
+可惜别人觉得是猫祥大战，我是祥子厨
+到现在，我只觉得mujica动画作践了祥睦的人设。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  堆雪若叶  
+##### 23897#       发表于 2025-2-15 18:18
+
+仔细想想无论crychic是要风光还是大葬需要扯上mygo这个团半毛钱关系吗。灯素希本来就是以crychic成员身份调解睦祥，各处强调crychic影响mygo的live对crychic和解有任何意义吗？如果删掉mygo要开live相关唯一改变情节的地方就是没有粉毛主动给她们腾舞台了，强行拗这一出摆明了就是拿crychic和mygo上称，最后两边端水不明不白好让场外打得头破血流。这剧本真不是不过脑子，烂炒心思花的确实不少。
+
+*****
+
+####  厚乳果珍爽  
+##### 23898#       发表于 2025-2-15 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433336&amp;ptid=2208921" target="_blank">暗示我7酱 发表于 2025-2-15 18:13</a>
+
+初华小姨说
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个好像也是老药了吧？只是没破产而已。
+
+
+*****
+
+####  十九号大侠  
+##### 23899#       发表于 2025-2-15 18:20
+
+大家滑坡到哪一步了
+
+*****
+
+####  Victorino  
+##### 23900#       发表于 2025-2-15 18:21
+
+<blockquote>大户爱 发表于 2025-2-15 18:08
+前面几集我最大不满就是，场外staff时隐时现就算了。
+
+喵梦犯下掀面具这种大错，祥子作为团队leader，还带 ...</blockquote>
+能共情喵梦，正是因为剧内祥子的反应太轻描淡写了，既然剧中人都不把这当回事，为啥观众还要当回事？直接视为世界观的一部分接受就好了
+
+*****
+
+####  天空塔书记官  
+##### 23901#       发表于 2025-2-15 18:21
+
+滑坡回第一集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 23902#       发表于 2025-2-15 18:22
+
+马后炮一下，播出第一集的时候我就说分镜和演出不如前作精致，感觉系构在分镜上的话语权被削减。有点怀疑能不能像mygo一样有打磨过的草蛇灰线
+
+不过那时大家都在顺风局，那是无人在意的角落<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 23903#       发表于 2025-2-15 18:22
+
+话说圣人的声优最近怎么没有发动画观想了啊
+
+*****
+
+####  hysjmr  
+##### 23904#       发表于 2025-2-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433384&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-15 18:20</a>
+ 大家滑坡到哪一步了</blockquote>
+在开诉苦大会呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 23905#       发表于 2025-2-15 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433370&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-15 18:18</a>
+
+仔细想想无论crychic是要风光还是大葬需要扯上mygo这个团半毛钱关系吗。灯素希本来就是以crychic成员身份调 ...</blockquote>
+现在扯上爱音场外都已经滑坡爱音退队go解散ccc复活了，不扯上爱音我都不敢想能滑到什么地步<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
