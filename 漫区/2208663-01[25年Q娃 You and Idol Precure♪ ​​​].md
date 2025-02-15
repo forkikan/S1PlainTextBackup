@@ -2333,3 +2333,15 @@ Q娃内斗还不容易吗
 <img src="https://files.catbox.moe/nxhrj9.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/jbibm1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 482#       发表于 2025-2-16 00:16
+
+今晚补完去年的之后一口气看了两话，熟悉的味道回来了
+
+不过粉主素体时哼的歌那个调调总让我出戏到龙珠超OP
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

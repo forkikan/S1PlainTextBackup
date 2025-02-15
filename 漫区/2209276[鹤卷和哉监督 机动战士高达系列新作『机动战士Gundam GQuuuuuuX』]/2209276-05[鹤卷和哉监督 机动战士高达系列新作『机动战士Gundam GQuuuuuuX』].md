@@ -13767,3 +13767,18 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 恶魔高达也有张嘴画面来着
 
+
+*****
+
+####  Sliurus  
+##### 6980#       发表于 2025-2-16 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435386&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-15 22:02</a>
+
+喵安启动欧米茄塞克缪其实是喵安主角论假药的一部分
+
+这个简而言之就是：
+
+喵安无论是身份性格技能都更符合传 ...</blockquote>
+性格冲动才是最传统的高达主角性格，从骡子到西布克都是比较冲动的类型
+

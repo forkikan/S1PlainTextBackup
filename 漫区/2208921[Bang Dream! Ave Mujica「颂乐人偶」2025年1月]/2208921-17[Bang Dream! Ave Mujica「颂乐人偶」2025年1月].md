@@ -8916,3 +8916,169 @@ mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团
 
 场外的大手啊，邦邦乐队只能五个人是无形铁律。
 
+
+*****
+
+####  595505568  
+##### 24485#       发表于 2025-2-16 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436525&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:15</a>
+说到底为什么不能七人live，爱音猫上去一起弹有问题嘛。回忆已经做的很烂的，中间插一两段mygo里回忆，就祥 ...</blockquote>
+其实还有一种，7个人，结果钢琴的声音和借来的吉他声音逐渐听不到了，也是一种演出方式，告诉你C团的缘份已经结束了
+
+*****
+
+####  ape-apple  
+##### 24486#       发表于 2025-2-16 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436525&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:15</a>
+说到底为什么不能七人live，爱音猫上去一起弹有问题嘛。回忆已经做的很烂的，中间插一两段mygo里回忆，就祥 ...</blockquote>
+不能，tft上的是名为crychic的团，鸡狗完结后对邦的 大隐藏也是crychic，上别的人都不行
+
+*****
+
+####  南宮凝香  
+##### 24487#       发表于 2025-2-16 00:18
+
+ 本帖最后由 南宮凝香 于 2025-2-16 00:20 编辑 
+
+真按這劇透拍， 黑最大的是燈
+
+狗團只有燈這單核
+
+她猶豫了團的正統存在理由就沒有了
+
+素世可以有二心
+
+立希可以有劣等感
+
+愛音可以逃
+
+貓可以失蹤
+
+但燈動搖了那狗團就完了
+
+說白了， 提出一輩子的那個人也去跑兩個團了
+
+那大家都去多找幾個家吧
+
+*****
+
+####  是谁的书画  
+##### 24488#       发表于 2025-2-16 00:18
+
+按那剧透只感觉大祥确实欠抽啊，怎么会有人能把角色做怎么脑残的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 24489#       发表于 2025-2-16 00:19
+
+结束乐队2.5了
+
+之前就有表演过吧好像?
+
+冠军粉该换阵地了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 24490#       发表于 2025-2-16 00:19
+
+不……所有说应该表现C团第七集完结的思路，我只能说都不正确，南辕北辙，场外场内C团终究都会迎来复辟，所以“我再也忘不了crychic了”，所以祥子并没说这是C团的终结，它根本不会在剧内解散
+
+*****
+
+####  大户爱  
+##### 24491#       发表于 2025-2-16 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436533&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-16 00:16</a>
+其实还有一种，7个人，结果钢琴的声音和借来的吉他声音逐渐听不到了，也是一种演出方式，告诉你C团的缘份 ...</blockquote>
+这个好，如果mujica重置，适合放在最后大和解回。
+现在这个mujica是不怎么协调的。
+
+*****
+
+####  z-hunter  
+##### 24492#       发表于 2025-2-16 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436525&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:15</a>
+
+说到底为什么不能七人live，爱音猫上去一起弹有问题嘛。回忆已经做的很烂的，中间插一两段mygo里回忆，就祥 ...</blockquote>
+你好，不行的。不是邦邦乐队只有5人的无形铁律，是第2天TFT的春日影是C团版的，有人插进来宣发效果就不好了，不是C团的了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以你现在知道了，为什么在唱完1首之后，一定要坚决再唱C团版的春日影
+
+很多人也奇怪为啥一定要再唱一首，像画蛇添足
+
+*****
+
+####  大户爱  
+##### 24493#       发表于 2025-2-16 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436557&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-16 00:19</a>
+不……所有说应该表现C团第七集完结的思路，我只能说都不正确，南辕北辙，场外场内C团终究都会迎来复辟，所 ...</blockquote>
+按剧透，下一集就彻底解散了。
+
+不按剧透，我也觉得c团该结束了。这剧标题叫母鸡卡呢。在mygo里c团还只是白月光，在母鸡卡你要借尸还魂也太过分了。
+
+*****
+
+####  大户爱  
+##### 24494#       发表于 2025-2-16 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436562&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 00:20</a>
+你好，不行的。不是邦邦乐队只有5人的无形铁律，是第2天TFT的春日影是C团版的，有人插进来宣发效果就不好 ...</blockquote>
+哈哈，场外的大手啊。
+
+*****
+
+####  ryuusu  
+##### 24495#       发表于 2025-2-16 00:21
+
+看过初祥姐妹的假药觉得小姨双子好像也没那么变态，比清告恢复旧姓带两女儿同居好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 24496#       发表于 2025-2-16 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436572&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:21</a>
+按剧透，下一集就彻底解散了。
+
+不按剧透，我也觉得c团该结束了。这剧标题叫母鸡卡呢。在mygo里c团还只是 ...</blockquote>
+然而真的是这样，场外请有序破防，不要死在剧场内<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 24497#       发表于 2025-2-16 00:24
+
+小姨说这个我想了半天，这不是雷雨吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  结衣小比取  
+##### 24498#       发表于 2025-2-16 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436344&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-15 23:52</a></blockquote>
+不是第一位了
+[7540L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67152384)
+
+*****
+
+####  595505568  
+##### 24499#       发表于 2025-2-16 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436558&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:19</a>
+这个好，如果mujica重置，适合放在最后大和解回。
+现在这个mujica是不怎么协调的。 ...</blockquote>
+最好是最后祥子自己说出来，已经不能平心静气弹不出春日影了，我认为伤痛文学就应该在美好的瞬间上产生裂痕后退却<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
