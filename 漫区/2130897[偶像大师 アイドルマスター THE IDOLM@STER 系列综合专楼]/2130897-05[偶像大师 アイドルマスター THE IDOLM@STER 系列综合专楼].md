@@ -490,3 +490,58 @@ Resilio Sync: B5RZSPOMRA7T67RBTWWEF423I2FTGEVCK
 
 [Massage the shrimP (英語發音)](https://www.youtube.com/watch?v=IIQ-5RCUqS8)
 
+
+*****
+
+####  wfhtony  
+##### 6925#       发表于 2025-2-16 02:10
+
+管马仕下个月1st Live之前会发售新专辑《彼方》（3/19发售），本专辑为企划的第一张专辑。
+<img src="https://tc2.wfhtony.space/images/2025/02/16/6dd22f9cb435a3858a426a522b89c898.jpg" referrerpolicy="no-referrer">
+
+专辑以「摇滚」为主题制作。具体收录曲见下：<blockquote>歌：vα-liv (灯里愛夏、上水流宇宙、レトラ)
+
+01. <strong>CQ</strong>
+
+　作詞・作曲・編曲：烏屋茶房
+
+02. <strong>FIELD ON ME</strong>
+
+　作詞：nyamura
+
+　作曲：safmusic, nyamura
+
+　編曲：safmusic
+
+03. <strong>DYE BAD DAY</strong>
+
+　作詞：松藤量平 (sixth floor)
+
+　作曲・編曲：和賀裕希 (sixth floor)
+
+04. <strong>SHOOTING STAR</strong>
+
+　作詞：Shogo (Rebrast)
+
+　作曲：Shogo, Tsubasa (Rebrast)
+
+　編曲：Tsubasa (Rebrast)
+
+05. <strong>RELOADING</strong> (＊Rock Arrange, Bonus Track)
+
+　作詞・作曲・編曲：大澤めい (BNSI)
+<img src="https://tc2.wfhtony.space/images/2025/02/16/537a2aebacb6716a6984d39bc71addc6.jpg" referrerpolicy="no-referrer"></blockquote>目前本专辑已在AsobiStore上开启预约（注意：本CD非限定专辑，预约内容为早鸟特典），定价为4000日元。
+
+早鸟特典为：リリイベ（嘉宾除了vα-liv三人之外，还有 烏屋茶房 和 大澤めい 这两位出席）的参加资格（抽选200名）。
+
+同时购买两张，会获得一张别版封面（Another Jacket，官方称其为「布教用特典」）。
+
+本专辑届时理论上会有数字版（CD有流通通贩，非限定），但[官方没有明言](https://www.youtube.com/watch?v=wL-Z-vjmMWc)的情况下，咱也不能吃准（
+
+伴奏也是，说不准有没有...
+
+另外，胜股P也为这张专辑下了初动目标：首周2000张。
+
+若达成目标，会制作新的开播用服装。
+<img src="https://tc2.wfhtony.space/images/2025/02/16/5d5760d7ca8e5f7ee2a2cbc85d74326b.jpg" referrerpolicy="no-referrer">
+
