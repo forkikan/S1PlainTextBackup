@@ -2307,3 +2307,11 @@ ps有人连上的吗
 
 打了三把把把有强退的，拼尽全力无法打过第一夜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 253#       发表于 2025-2-15 12:21
+
+我收回估计打个10小时就到头的话，1小时能有一盘网络支持进入第三天就是胜利，这游戏能有多耐玩根本不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
