@@ -1060,3 +1060,162 @@ WSD 就是傲慢/垃圾
 
 所以mujica是一个不看三次元访谈企划live就完全理解不了逻辑的东西 真正的二偶就是什么都看才没有信息差啊
 
+
+*****
+
+####  cxj649  
+##### 23766#       发表于 2025-2-15 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">想起粉毛也有一个高人气类C团队伍的
+
+<img src="https://img.saraba1st.com/forum/202502/15/155843zry1zf1cdq1fskdz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 15:58 上传
+
+也有歌的<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 23767#       发表于 2025-2-15 15:59
+
+早说了ccc写不好祸害的不只是鸡团，现在真写了什么结果大家都看得到
+
+*****
+
+####  天空塔书记官  
+##### 23768#       发表于 2025-2-15 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432498&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 15:56</a>
+你不能和武士道作对 笔在他手里</blockquote>
+但如果里剧本是为最终爆点服务的，那之后就一定会被展示给观众看，比如通过插叙或者倒叙的方式回补一部分剧情，毕竟烟花只有炸出来才会被人看到<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23769#       发表于 2025-2-15 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432518&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 16:00</a>
+
+但如果里剧本是为最终爆点服务的，那之后就一定会被展示给观众看，比如通过插叙或者倒叙的方式回补一部分 ...</blockquote>
+我的意思mujica是独角兽性癖大放松 而且其他人都没意见 只是改了细节 人设没怎么动
+
+*****
+
+####  安娜导函数  
+##### 23770#       发表于 2025-2-15 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432370&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:39</a>
+就不說武士道了，綾奈之前還說什麼這是要帶入墳墓的作品。
+
+稍微相信一下也很正常 ...</blockquote>
+你是编剧你写了这么一坨大的你不打算赶紧埋了难不成也要风光大葬一下<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 23771#       发表于 2025-2-15 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432478&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 15:54</a>
+
+毫无疑问ccc的核心是白祥 不是丰川的大手能突破次元壁吗</blockquote>
+mygo/ccc的核心是白祥  mujica/ccc的核心肯定是羊宫妃那
+
+*****
+
+####  滑稽Captain  
+##### 23772#       发表于 2025-2-15 16:03
+
+炒作当然是后期才搞的，一年前就定在1月播，自然有充足的时间把tft春日影的轴对在第七集，甚至这样切割的绫奈昨晚还转发了tft春日影那一条。
+
+很显然，剧本也是一开始写到这的时候就定了剧中的临时重组live，crychic从诞生之初就注定是两团的起点，临时重组也是设计好的又一重要节点
+
+—— 来自 samsung SM-F9360, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  相坂君  
+##### 23773#       发表于 2025-2-15 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432496&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:56</a>
+都是索尼系的人会上的比较多吗</blockquote>
+不止索尼系的，其他例如环球也有合作，但这频道最开始是推自己家人，有热度的艺人会受邀请，后来也有一些为了宣传自己的歌/组合/乐队而花钱上的
+想必ccc定是粉丝呼声高商业成绩如热中天，肯定是索尼邀请的，武士道一分钱都没花！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryuusu  
+##### 23774#       发表于 2025-2-15 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432496&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:56</a>
+
+都是索尼系的人会上的比较多吗</blockquote>
+自家女团都上过几次吧，坂道系小偶像和等爱都上过
+
+
+*****
+
+####  是谁的书画  
+##### 23775#       发表于 2025-2-15 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432512&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 15:59</a>
+
+想起粉毛也有一个高人气类C团队伍的
+
+也有歌的</blockquote>
+当时我看到这个我就觉得抽象，ykn这不得一脚踹飞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只能说，哪有什么场内场外，都是wsd的大手<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23776#       发表于 2025-2-15 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432496&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:56</a>
+
+都是索尼系的人会上的比较多吗</blockquote>
+
+咖位人氣實力你總要佔一個吧，其實你往下拉看一下之前上這個節目的，一般都是些什麼人，就知道什麼性質了。
+
+孤獨搖滾本身人氣就夠高了，再加上還是索尼親女兒，輕鬆啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+至於是不是索尼系的更容易上，沒統計過我不好說，但索尼本身日音就很強，索尼系的上的多完全不奇怪()
+
+而且這個節目還很紅，在日本和台灣都很多人看（
+
+我只能說武士道為了讓CCC上這個肯定花了非常非常大的價錢，
+
+一來CCC不是個現實活動的團，二來在之前的動畫裡，她是死的。想不到任何the first take會主動吻上去的可能性，只有武士道花錢。
+
+*****
+
+####  看穿一切的鱼  
+##### 23777#       发表于 2025-2-15 16:05
+
+难道春日影在霓虹如日中天吗，我是没在x上见过这三个字组合在一起<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23778#       发表于 2025-2-15 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432528&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 16:01</a>
+我的意思mujica是独角兽性癖大放松 而且其他人都没意见 只是改了细节 人设没怎么动 ...</blockquote>
+我的观点则是CCC作为一个爆点，其实起的是转移观众注意力的作用，为的是“掩盖”之后更大的爆点，好打观众一个措手不及，包括场外的炒作也是，如果wsd真想烂炒到底的话，那真挺弱智的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 23779#       发表于 2025-2-15 16:08
+
+但是怎么重要的场合，高尾还弹疵了，这比较尴尬
+

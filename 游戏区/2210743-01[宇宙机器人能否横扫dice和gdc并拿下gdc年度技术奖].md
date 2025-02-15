@@ -1217,3 +1217,14 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
 — from S1 Next Goose v3.3.96</blockquote>
 哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每一块都不会消失，有自己的独立物理互动，别以为这一点容易，玩过的游戏多点就知道，太多的游戏只能做个近似的模拟，而且会用爆炸消失的方式来取巧
 
+
+*****
+
+####  chizuru  
+##### 109#       发表于 2025-2-15 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430972&amp;ptid=2210743" target="_blank">墨染白泉 发表于 2025-2-15 12:21</a>
+
+所以最佳家庭为什么不是马趴呢</blockquote>
+要先问评选的人是否玩过空前盛会
+
