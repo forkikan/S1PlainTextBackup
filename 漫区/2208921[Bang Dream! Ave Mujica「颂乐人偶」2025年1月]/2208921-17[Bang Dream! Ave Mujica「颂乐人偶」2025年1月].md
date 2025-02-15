@@ -1777,3 +1777,145 @@ ep4的时候知道烂了
 
 前三集普普通通，第四集滴嘟滴嘟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 23831#       发表于 2025-2-15 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432976&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 17:12</a>
+
+大多数观众应该第四集酒店大战结束就明白要烂了，另一大部分的观众估计看见双重人格就开始调整预期了，而 ...</blockquote>
+纠正，是ccc团的烂演出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 23832#       发表于 2025-2-15 17:25
+
+第二集看到制作组对几个角色的刻画态度就有点明白要遭了，第四集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 23833#       发表于 2025-2-15 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433024&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-2-15 17:21</a>
+
+还能说啥好呢？从第4集以后你楼的反应就能看出来了，当这样一个作品在社区陷入不骂不足以彰显自己明见万里 ...</blockquote>
+这倒是<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 23834#       发表于 2025-2-15 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433023&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-15 17:20</a>
+
+第五集还好吧，那一段默剧我还是挺喜欢的，不过也是大概第五集讲的东西少，所以没感到有多崩坏吧 ...</blockquote>
+第五集默剧演出不错 但是继续拷打并且把所有问题搁置还搞出违约金，大小姐过家家这种台词。然后灯箱就应该解决的问题硬是要再拖到七集。
+
+*****
+
+####  qlipho  
+##### 23835#       发表于 2025-2-15 17:26
+
+第七集终于能看到某些楼友的真情实感了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NEWROMANCER  
+##### 23836#       发表于 2025-2-15 17:26
+
+看了前三集先行就觉得和MyGO前三集叙事有差距，但想了想这季可能为了迎合主题为了画面效果调整重心了。
+结果第四集出来那些惊悚效果我真没觉得惊奇到哪去，我压根不觉得有必要为了这点东西牺牲叙事。结果后面一集集告诉我他们好像真的很喜欢做墨提斯那点东西。
+
+*****
+
+####  天空塔书记官  
+##### 23837#       发表于 2025-2-15 17:26
+
+初华作为主唱不一定会有最多的戏份，毕竟乐队真正的核心的不是她，但她的戏份应该足够重量级，所以关于她的谜底最终会如何揭晓还是蛮让人感兴趣的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  capraeLinn  
+##### 23838#       发表于 2025-2-15 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433001&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 17:17</a>
+
+我倒是觉得第五第六集烂，这集还行。</blockquote>
++1 第七集ccc葬礼品起来多少有点味道，第五集甚至演出上多少还有点可圈可点的地方，第六集是纯纯烂完了，从头到尾突出一个呃呃呃
+
+*****
+
+####  FanFun  
+##### 23839#       发表于 2025-2-15 17:28
+
+第三集不拷打大猫转而拷打大祥，还为此搞出个里人格，就应该发觉这片剧情不对劲了。奈何这集却是泥潭评价最高的一集<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 23840#       发表于 2025-2-15 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我算看明白了，什么假药都吃只会害了你自己，现在假药破产了就疯狂黑泥是吧？
+
+第四集那么神经病的剧情还能接受，第五第六同样神经病的剧情也还能接受，怎么到了第七集就不行了呢？
+
+刀子终于砍到了自己身上的吧？
+
+
+*****
+
+####  刑部姬真可爱  
+##### 23841#       发表于 2025-2-15 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433024&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-2-15 17:21</a>
+
+还能说啥好呢？从第4集以后你楼的反应就能看出来了，当这样一个作品在社区陷入不骂不足以彰显自己明见万里 ...</blockquote>
+专楼的讨论氛围在我眼里算是不错的了，肯定有失望然后单纯来发泄情绪的，但是至少没有产生共振，不管是往哪边
+
+
+*****
+
+####  aptx8285144  
+##### 23842#       发表于 2025-2-15 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433071&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-15 17:28</a>
+
+第三集不拷打大猫转而拷打大祥，还为此搞出个里人格，就应该发觉这片剧情不对劲了。奈何这集却是泥潭评价最 ...</blockquote>
+我感觉最震惊的还是第五集，<strong>真把大祥变成真飞鸟第二（结合灯过来一起组乐队的发言更让人汗颜）</strong>，所以我虽然也很喜欢爱音，但另一方面还是建议爱音党冷静一下，这个剧本没被伤害的人物才是少数<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 23843#       发表于 2025-2-15 17:31
+
+我没记错的话第四五集你楼复读诡叙论演戏论，引经据典哇这里是个伏笔哇这里是个细节哇大的一定要来了的也不少好吧
+
+不骂不足以彰显明见万里说是
+
+*****
+
+####  MuramasaSP  
+##### 23844#       发表于 2025-2-15 17:31
+
+我还真没见过比这个楼讨论氛围更好的地方。
+
+真情实感破防的比例比任何地方都少，大部分人只给支持的言论加鹅，给反对言论扣鹅的情况很少，甚至角色厨都很少出没。
+
+*****
+
+####  是谁的书画  
+##### 23845#       发表于 2025-2-15 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433071&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-15 17:28</a>
+
+第三集不拷打大猫转而拷打大祥，还为此搞出个里人格，就应该发觉这片剧情不对劲了。奈何这集却是泥潭评价最 ...</blockquote>
+同感啊，让喵梦一直在队伍里头从第一集跳到第三集，受伤的却是睦的时候我就感觉到不对劲了。
+
+因为我从一开始就不认为邦可以驾驭同时处理两个以上的角色分歧的能力。
+

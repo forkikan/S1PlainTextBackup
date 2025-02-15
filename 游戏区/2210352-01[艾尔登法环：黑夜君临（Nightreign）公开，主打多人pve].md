@@ -2504,3 +2504,39 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 问一个蠢问题，怎么放职业技能啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实在没找到提示
 
+
+*****
+
+####  米纳啊  
+##### 273#       发表于 2025-2-15 17:28
+
+<blockquote>医生狼多 发表于 2025-2-15 17:21
+问一个蠢问题，怎么放职业技能啊实在没找到提示</blockquote>
+按三角+L2/R2。没关系，不是你一个人不知道咋用<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">看了机核的测评我才知道的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  医生狼多  
+##### 274#         楼主| 发表于 2025-2-15 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433076&amp;ptid=2210352" target="_blank">米纳啊 发表于 2025-2-15 17:28</a>
+按三角+L2/R2。没关系，不是你一个人不知道咋用看了机核的测评我才知道的
+
+论坛助手,iPhone ...</blockquote>
+感谢
+我还去操作指南页面找了，还重看了遍ucg测评<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一见大吉  
+##### 275#       发表于 2025-2-15 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433028&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-2-15 17:21</a>
+
+问一个蠢问题，怎么放职业技能啊实在没找到提示</blockquote>
+测试场里有按键提示。
+
+三角（Y键，探索调查）+r2（重攻击）和三角+l2（战技）
+
