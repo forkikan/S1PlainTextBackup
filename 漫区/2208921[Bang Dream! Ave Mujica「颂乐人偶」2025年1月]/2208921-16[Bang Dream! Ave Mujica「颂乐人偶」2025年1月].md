@@ -12862,3 +12862,25 @@ C團佔了狗團的3/5 （考慮到貓不參與事務， 實際上是3/4） 這�
 
 但告别了过去的新生C团也堂堂成立了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 23356#       发表于 2025-2-15 09:11
+
+<img src="https://img.saraba1st.com/forum/202502/15/091147khuban61ssnb1ahp.png" referrerpolicy="no-referrer">
+
+<strong>Z(_2D$@2I9(_YSF`DM}S55K.png</strong> (52.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 09:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/091151xau4mtaz1uuuttza.png" referrerpolicy="no-referrer">
+
+<strong></strong> (4.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 09:11 上传
+
