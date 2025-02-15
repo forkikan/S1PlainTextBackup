@@ -3493,3 +3493,185 @@ go对角色都是很温柔的（立希不好说，鸡就大手猛抽，一群人
 喵梦犯下掀面具这种大错，祥子作为团队leader，还带 ...</blockquote>
 最后一句话叔叔家有人吐槽过，鸡团下面放了一堆炸药，然后却是飞来一枚导弹炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 23977#       发表于 2025-2-15 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433693&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-15 19:12</a>
+
+结局出问题的水魔和推子都肉眼可见地冷了，能不能给武士道也降下天诛</blockquote>
+我猜今晚等大主播定完性，很多观众可能就转观望了，下集再没好活那就可以回到mygo前期的小圈子“爱好”了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 23978#       发表于 2025-2-15 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433688&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-15 19:11</a>
+
+鸡最让我不理解的不是独角兽剧本写呲了，而是柿本怎么变那么菜。
+
+鸡的剧本难度有目共睹，开播前就没指望能 ...</blockquote>
+所以柿本问题真的很大的（）
+
+*****
+
+####  wpcc  
+##### 23979#       发表于 2025-2-15 19:17
+
+现在还能看下去的到底是在看什么 我不知道除了武士道信还有谁能看下去哦
+
+*****
+
+####  天空塔书记官  
+##### 23980#       发表于 2025-2-15 19:17
+
+如果初华的下线是刻意而为之的，先从正常一点的角度分析，大概就会有两种可能，一是她的戏份本来就不多，二是她的出现会对剧情产生不能忽视的影响，既然立希和海玲的部分被编剧证实已经砍了，而睦祥的矛盾也暂时搁置，那之后剧情的权重可能就会集中在初华身上，她至少肯定是比海海铃和喵梦戏份多的吧，毕竟是要“深入塑造的角色”
+
+而且由于初华的主唱身份，她与乐队的联系肯定不次于祥子，所以还是会有那么一点可以期待的东西的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 23981#       发表于 2025-2-15 19:18
+
+ 本帖最后由 江口夕 于 2025-2-15 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433722&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 19:17</a>
+所以柿本问题真的很大的（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">明显独角兽占大头，不让祥见睦，肯定是独角兽的手笔，原案是独角兽，那么关键地方谁遇到谁这种监督是没权利的，除非原案是监督写的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  凉良  
+##### 23982#       发表于 2025-2-15 19:19
+
+整活是要有时间的，而现在mujica最缺少的就是时间。 
+
+*****
+
+####  刑部姬真可爱  
+##### 23983#       发表于 2025-2-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433700&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-15 19:13</a>
+
+祥子还挺有心机的，坚持站在这个区域等，就是让睦看得到，真进屋就等着坐到回家啦</blockquote>
+其实这里我在想祥子晚上是等多久，是不是她在等的时候迈巴赫也在等，然后这一想就感觉有点难绷，迈巴赫这个“梗”真的挺毁人设的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 23984#       发表于 2025-2-15 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433692&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 19:11</a>
+
+素世：那时候我是反面角色，对我不温柔是应该的（</blockquote>
+也很温柔。素世的爆发，先是被小祥给重创，然后再接着回忆，最后才是素世自爆。虽然大家可能猜到了。如果反过来那才叫爆。
+
+*****
+
+####  一心而用  
+##### 23985#       发表于 2025-2-15 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433728&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 19:18</a>
+明显独角兽占大头，不让祥见睦，肯定是独角兽的手笔，原案是独角兽，那么关键地方谁遇到谁这种监督是没权 ...</blockquote>
+柿本这第7话的锅绝对甩不掉，因为他是音响监督。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 23986#       发表于 2025-2-15 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433724&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 19:17</a>
+
+如果初华的下线是刻意而为之的，先从正常一点的角度分析，大概就会有两种可能，一是她的戏份本来就不多，二 ...</blockquote>
+主唱戏份要是真不多的话wsd等着被核心粉冲吧
+
+*****
+
+####  天空塔书记官  
+##### 23987#       发表于 2025-2-15 19:21
+
+我还是比较相信萌战吧那个基于占星术的神秘学假药的，如果独角兽真是以此设计人物和剧情，那能看的东西应该还有不少
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 23988#       发表于 2025-2-15 19:22
+
+初华下线两集，让我更坚信到时候一整集的第一人称视角是初华往事
+
+*****
+
+####  大户爱  
+##### 23989#       发表于 2025-2-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433719&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:16</a>
+我猜今晚等大主播定完性，很多观众可能就转观望了，下集再没好活那就可以回到mygo前期的小圈子“爱好”了 ...</blockquote>
+泛式前面几集就一直打预防针，圆滑的暗示了。
+“我们不当乐子人，我们当快乐人，快乐的看番”，
+这种话术也太狡猾了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+不过倒可以看看他能不能讲点新东西出来。 我想看点乐子拧着鼻子看瓶子的吐槽切片。
+什么玩意，就是把各大论坛烂梗吐槽复述一片，果然是论坛下水道，回声放大器，不带自己脑子.
+
+*****
+
+####  aptx8285144  
+##### 23990#       发表于 2025-2-15 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433240&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 17:54</a>
+
+鳥是整個立場直接被福田反轉成站在反方，
+
+然後就卡在那裡變成打手</blockquote>
+主要不仅仅是基神夫妇这些本来没有交集的人，更因为穆尼奥这个史黛拉事件的推手（<strong>他本来可以给史黛拉一个体面的死法，没人知道他和谁见面而又带回了什么</strong>）在种命后期顺风顺水，而鸟却成了小丑，放现在也能大战一万年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23991#       发表于 2025-2-15 19:24
+
+<blockquote>天空塔书记官 发表于 2025-2-15 19:17
+如果初华的下线是刻意而为之的，先从正常一点的角度分析，大概就会有两种可能，一是她的戏份本来就不多，二 ...</blockquote>
+問題是你相信在前七集中人物塑造全毁的Staff 能在剩下的六集中立下初華的人設嗎？
+
+*****
+
+####  66367749  
+##### 23992#       发表于 2025-2-15 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433702&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:13</a>
+从我个人角度出发，喵梦一分析，只能又蠢又坏。
+
+哪怕你不扯现实解约金的要素，喵梦这一通闹下来，纯粹也就 ...</blockquote>
+这行为只有出于意外或者搁mygo/ccc这种兴趣乐队还能解释解释，商业乐队按头角色这么做纯是在糟蹋角色弧光。喵梦是上京自力更生的半个社会人会不知道什么该干什么不该干？哪怕之前的假药事务所/丰川家在背后捣鬼都看着好点。
+
+*****
+
+####  ntrntr1  
+##### 23993#       发表于 2025-2-15 19:25
+
+笑死，万一那个剧透是真的，感觉现在争这些没任何意义，毕竟有想象力的还在后面呢。
+
+*****
+
+####  Devola  
+##### 23994#       发表于 2025-2-15 19:25
+
+你楼除了角色厨和河豚没其他类型的观众了，不好玩
+
+现在剧情音乐演出这三板斧你鸡一个都做不到，也就oped堪堪入耳
+
+武士道这副鬼样大概到死也做不出狗和少歌这种东西了
+
