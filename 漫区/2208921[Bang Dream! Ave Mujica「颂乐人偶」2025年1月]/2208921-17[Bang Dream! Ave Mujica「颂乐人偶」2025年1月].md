@@ -9428,3 +9428,46 @@ mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感�
 
 企划大手操办的这一切这个理由更能让人接受，自古原创番遇到上头干预就是翻车的开始
 
+
+*****
+
+####  灵椿  
+##### 24534#       发表于 2025-2-16 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436907&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 01:21</a>
+有一說一，
+
+按劇透來那就沒存在感危機了</blockquote>
+现在考虑到场外很难说打擦边球和直接做选择题哪个更消解🐶（我印象中“消解”这个词通常是在比较积极的句子里，怎么在动画社区里接触到的情景全都是消极的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ArcadiaMartyr  
+##### 24535#       发表于 2025-2-16 01:34
+
+白天还说你楼环境好呢。现在看也是彻底滑坡完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+纯良鸡友怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wpcc  
+##### 24536#       发表于 2025-2-16 01:37
+
+<blockquote>ArcadiaMartyr 发表于 2025-2-16 01:34
+白天还说你楼环境好呢。现在看也是彻底滑坡完了
+
+纯良鸡友怎么办啊
+</blockquote>
+没见过 第四集能不跑的都是嗜血的
+
+*****
+
+####  木板春香  
+##### 24537#       发表于 2025-2-16 01:37
+
+那，情绪是会传染的
+
