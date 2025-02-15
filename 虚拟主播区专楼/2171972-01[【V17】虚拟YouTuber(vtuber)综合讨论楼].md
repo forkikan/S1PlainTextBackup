@@ -35,3 +35,11 @@ idios之后的几个意外地没那么小废物，最新的那几个还以为已
 
 草，你虹这个把人家半年份的粉丝信当垃圾扔了也太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 1011#       发表于 2025-2-15 17:10
+
+vspo在两国国技馆啊，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

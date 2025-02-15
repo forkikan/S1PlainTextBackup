@@ -1493,3 +1493,140 @@ GlitterGreen只是有成员出国留学了，可没解散，有本事武士道�
 
 看来这女人真得在外面罚站吹吹冷风反省几天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 23805#       发表于 2025-2-15 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我个人来说这7集都看得挺开心的，
+
+虽然硬伤很多也是事实，也理解有些人不满，
+
+但还是不得不说必要的时候还是得远离社区讨论，
+
+特别是现在大部分人都在黑泥的时候，
+
+逆风向而行纯粹给自己和别人添堵而已
+
+*****
+
+####  御幸一也  
+##### 23806#       发表于 2025-2-15 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432858&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 16:57</a>
+
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+
+看到第4話就知道爛了。（秒答）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+只是還留有一點念想不敢相信真的那麼爛，到第5話徹底破產，是的就是那麼爛。
+
+*****
+
+####  十万年魂环  
+##### 23807#       发表于 2025-2-15 17:04
+
+世界观卡在哪里了，也不会有真正意义上的狠活，如果还是烂炒关系，感觉不如8点档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 23808#       发表于 2025-2-15 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432894&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 17:02</a>
+
+幻想怎么不会有，当时第二集的时候我还一瞬间幻想过大祥会维护说错话的睦呢，结果是一脸吃惊的表情 “责任 ...</blockquote>
+确实是在维护啊 睦头不给出站祥子的发言，祥子破防暴言。 作为起爆器其实还行吧。
+
+第七集无铺垫突然懂睦才是真的抽象。
+
+*****
+
+####  天空塔书记官  
+##### 23809#       发表于 2025-2-15 17:05
+
+在刚知道独角兽可能和监督决裂的时候我就预感到要遭，但前三集还算稳定发挥，之后第四集就能看出有意想要破坏mygo靠堆砌细节来推进剧情和塑造人物关系的定式，这就有点不太妙了，毕竟搞破坏性创新翻车才是常态，至于之后的连环炒作，嗯…也不太出乎意料就是了
+
+关键还是A团各个成员的描写还是不够多，乐团的结构也没有建立，所以还得继续再看看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  梦诗歌雪  
+##### 23810#       发表于 2025-2-15 17:05
+
+<blockquote>天空塔书记官 发表于 2025-2-15 16:14
+炒CCC和初华下线有可能都是为了之后的“大反转”服务，当所有人都在为“感动神回”落泪，或者忽略初华的时 ...</blockquote>
+可别大反转了，就怕这个。这么多集都是上集埋爆点下集开头无事发生，证明根本没有能力做好对爆点的回收，再来所谓大反转只会更加割裂。我现在的期望就是后面几集好好包饺子，别再集集爆了，态度诚恳点把鸡团组好，那这部动画整体还能给到一个+1，其中0.5是看在mygo打好的基础上给的
+
+*****
+
+####  aptx8285144  
+##### 23811#       发表于 2025-2-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432858&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 16:57</a>
+
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+第四话这个样子就知道不对劲了，第五话就发现是令和种命，赶紧转向乐子人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23812#       发表于 2025-2-15 17:09
+
+<blockquote>凉良 发表于 2025-2-15 16:57
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+從第三集開始我就說了第六/七集還沒起色就能拖去埋了
+
+現在是真可以拖去埋了
+
+*****
+
+####  capraeLinn  
+##### 23813#       发表于 2025-2-15 17:10
+
+ep4的时候知道烂了
+
+其实ep4前半做得也还好，但最后酒店之战真的是把制作组的底都给透出来了，当时看战吧假药就觉得像是给动画找补
+
+破防还是在ep6，又臭又长的双重人格戏码，生硬的信息交换和设定，给人看麻了
+
+
+*****
+
+####  天空塔书记官  
+##### 23814#       发表于 2025-2-15 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432928&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-15 17:05</a>
+可别大反转了，就怕这个。这么多集都是上集埋爆点下集开头无事发生，证明根本没有能力做好对爆点的回收， ...</blockquote>
+制造悬念也是一种悬念，如果之后真没有“大的”，那也是一种反转反转再反转
+
+但毕竟现在还是第七集不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 23815#       发表于 2025-2-15 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432858&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 16:57</a>
+
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+大多数观众应该第四集酒店大战结束就明白要烂了，另一大部分的观众估计看见双重人格就开始调整预期了，而第七集现在更大的声音自然是离不开爱音及go团的演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梦诗歌雪  
+##### 23816#       发表于 2025-2-15 17:12
+
+<blockquote>liekong 发表于 2025-2-15 17:04
+我个人来说这7集都看得挺开心的，
+
+虽然硬伤很多也是事实，也理解有些人不满，
+
+但还是不得不说必要的时候还 ...</blockquote>
+我也看得很开心，就羊姐跑调的时候觉得搞笑，但不影响这集整体还是一盘比较香的饺子，结果一看社区整个人傻了，怎么这么多刷-2这么多痛骂的，两天看了一堆讨论下来虽然能理解剧本编排上是有些硬伤但还是理解不了这么大的怒火是哪里来的，明明饺子包得还行，再不包饺子难道要爆到世界末日。你说想远离吧扛不住几乎每个群都会有人突然跳出来车一车，看看论坛吧专楼溢出来的也在外面发了好几个帖在车了，看看视频站吧首页也在车，弹幕更不用说了。那咋办呢，断网两个月等这波热度降完再上网呗，不然总忍不住想过去辩两句“第七集没有这么烂”的冲动
+
