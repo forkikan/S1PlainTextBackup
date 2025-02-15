@@ -268,3 +268,175 @@ VT真是互联网的终极形态
 
 看了圈场外消息我想跳船了，这片不值得跟，等盖棺了再说<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 23704#       发表于 2025-2-15 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431576&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-15 13:41</a>
+
+既然你总是不举证，我就帮你举了。这是我找到的2025年1月的监督访谈https://www.bilibili.com/opus/10091 ...</blockquote>
+看到坛友找的链接，不禁叹了一口气
+
+文章原出处是：[2890L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66885410)
+
+修改少量内容：[4115L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66972242)
+[原文](https://animageplus.jp/news/detail/96)
+
+*****
+
+####  MASKA-1  
+##### 23705#       发表于 2025-2-15 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432101&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 15:00</a>
+那又是啥
+
+—— 来自 鹅球 v3.3.96</blockquote>
+有人编的假访谈，内容有柿本拿铁棍威胁独角兽改剧本什么的，现在传得到处都是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|啊…这|
+
+查看全部评分
+
+*****
+
+####  aptx8285144  
+##### 23706#       发表于 2025-2-15 15:09
+
+<img src="https://img.saraba1st.com/forum/202502/15/150716otqsk49qq4p1v4cv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250215_121636.jpg</strong> (327.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 15:07 上传
+
+<strong>除非独角兽找制作组把自己的名字撤掉</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">（提醒一下高达GTO后面几部是没有今西名字的），否则口头切割是没有多大说服力的，虽说现在也有点迟了
+
+*****
+
+####  御幸一也  
+##### 23707#       发表于 2025-2-15 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67418830&amp;ptid=2208921" target="_blank">CRYCHIC 发表于 2025-2-14 03:25</a>
+
+永远怀念 @Aendst @星天观测 @相坂君 @PDQ4 @御幸一也 @前方暴雨预警 @御景 
+
+*没有特地翻旧账的意思，仅 ...</blockquote>
+來看樂子的，怎麼還有人招魂。
+
+現在這個劇情不就是狗友想看的嗎，狠狠融合不看go看不了mujica，
+
+雞解散全員廢人然後雞人要狗人一對一幫扶拯救，你們想看的不就是這個嗎。
+
+為什麼還那麼多人罵，不是很懂喔。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+第4話爛成那樣，第5話也沒有要解釋的意思，真喜歡avemujica的在這時候都看出端倪了。
+
+該跑的跑，不跑的都會降低期待。
+
+爛就爛了，那還能怎麼辦，又不是武士道股東，改變不了那跑就是了多大的事。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+反正一年多該做的都做了，沒人翻譯的時候該翻的我都翻了，沒什麼人送花籃的時候該送的也和朋友送了，
+
+二創也是和朋友約稿的畫的寫的都做了，爆米也是該買的碟沒少，現地有能力的都支持了沒法去的也都買配信，
+
+這樓之前的雞友我敢說大家都問心無愧，是真心喜歡過avemujica好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+我不做的有的是人做，大家不喜歡的也有的是人喜歡，反正我看日本人吃挺香的，
+
+武士道這又是新宿456又是the first take的砸大錢宣傳，祝他成功吧。
+
+現在很明顯看場外樂子已經比看動畫有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 怀沙汨罗| + 1|wsd不值得|
+| forgetit| + 2|好评加鹅|
+| 木板春香| + 1|享受当下|
+
+查看全部评分
+
+
+*****
+
+####  zhoujin8584  
+##### 23708#       发表于 2025-2-15 15:14
+
+顺便说一下比爆米花钱这些啥的真的好粉圈话术啊，已经脱离了作品讨论的范畴
+
+*****
+
+####  AshPenguin  
+##### 23709#       发表于 2025-2-15 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432146&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-15 15:08</a>
+
+看到坛友找的链接，不禁叹了一口气
+
+文章原出处是：2890L
+
+修改少量内容：4115L</blockquote>
+怪我。平时我都对专楼敬而远之的，只不过这次不吐不快罢了
+
+*****
+
+####  安娜导函数  
+##### 23710#       发表于 2025-2-15 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431552&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:37</a>
+千斤顶工具人别来奥</blockquote>
+什么千斤顶，明明只有粉色奶龙是安全套好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山ノ内花音  
+##### 23711#       发表于 2025-2-15 15:16
+
+鸡友期待的剧情就是弱化ccc
+结果wsd天天给ccc尽孝 
+导致片子烂完了 狗友也破防了
+充分说明了鸡友的眼光多有前瞻性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23712#       发表于 2025-2-15 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432186&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-15 15:14</a>
+顺便说一下比爆米花钱这些啥的真的好粉圈话术啊，已经脱离了作品讨论的范畴 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实挺正常的，本质还是偶像团体嘛。可惜有些人看不清，还以为自己比什么电竞圈二游痴ylg高贵。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  御幸一也  
+##### 23713#       发表于 2025-2-15 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431576&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-15 13:41</a>
+
+既然你总是不举证，我就帮你举了。这是我找到的2025年1月的监督访谈https://www.bilibili.com/opus/10091 ...</blockquote>
+樂了，我看這段怎麼那麼像我打的，結果還真是，什麼轉自S1又轉回來<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+順便確實沒提過本來想做個C團，但提過很多次本來就是要做個<strong>會解散的團</strong>。
+
+至於這個解散了的團為什麼會吃那麼多復活藥，可能是武士道太想賺這筆錢了吧。日本人喜歡，順從吧。
+
+而先有雞再有狗這個，最初是因為米澤太早被拉導致的誤會，後來訪談有提到結月她們也是2021年左右被拉的，就能大概知道雞狗是同時進行的。只是鼓手更早被敲定。
+

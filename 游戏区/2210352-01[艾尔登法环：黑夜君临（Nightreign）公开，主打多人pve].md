@@ -2440,3 +2440,36 @@ FS祖传netcode就别指望了，环本体联机时有的问题一个不少，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  feijitouge  
+##### 267#       发表于 2025-2-15 15:07
+
+上午第一把直接过了，用的女爵，好玩爱玩，希望正式版随机的内容足够多。以及我邮箱多中一个ps5的码：【JMPT-PNLH-33GQ】用掉了说一声。
+
+*****
+
+####  ArcadiaMartyr  
+##### 268#       发表于 2025-2-15 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算我是铁血魂小将，我也吹不动啊
+玩这游戏不如等别人直接做个法环mod
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  blz436  
+##### 269#       发表于 2025-2-15 15:09
+
+ 本帖最后由 blz436 于 2025-2-15 15:11 编辑 
+
+[https://x.com/fromsoftware_sp/status/1890644753600979074](https://x.com/fromsoftware_sp/status/1890644753600979074)
+
+ELDEN RING NIGHTREIGNネットワークテストにご参加いただいた皆様、誠にありがとうございました。本日、以下日時にて追加開催いたします。よろしければ引き続きご協力いただけますと幸いです。
+
+【開催時間】2025年2月15日（土）20:00～23:00
+
+今晚7点追加场了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
