@@ -13283,3 +13283,110 @@ mggm想破脑袋都想不到爱音一个摄像头能引流a友和电竞吃和管
 绫奈的代言人更有可能是高松灯（她现在的编剧身份与灯孤僻文学少女的对应），丰川祥子更像是她喜欢的某个 ...</blockquote>
 更咸湿了……
 
+
+*****
+
+####  天空塔书记官  
+##### 23396#       发表于 2025-2-15 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430101&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-2-15 10:39</a>
+二点五次元偶像企划，没有饭圈才是怪事吧</blockquote>
+然而这是动画，mygo的线下可没那么大影响力，所以才抽象
+
+要论乐队粉互撕，还得看老团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 23397#       发表于 2025-2-15 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430138&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 10:44</a>
+自我反思：按全社会人数占比讲，管人痴暂且不提，电竞粉是不是比动画宅更“正常”和“主流”。 ...</blockquote>
+这可真是在两坨里选一坨不那么臭的了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 23398#       发表于 2025-2-15 10:47
+
+虽然不至于外面滑坡的严重，但我对go的滤镜确实从小情侣之间的磨合期变成了七年之痒夫妻遇到老情人后但没法破镜重圆的凑合着过被还能离婚怎么滴的阶段（
+
+*****
+
+####  plok201  
+##### 23399#       发表于 2025-2-15 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱音胜在一个没人会讨厌，GO团5个人，虽然最出圈是soyo但是也有不少的人觉得太过了不喜欢
+
+剩下3个只能说想让被引流过来的人第一眼就喜欢上很难，现在热度带来的观众全是用的爱音当自己的锚点，你要赚热度的钱就只能好好承受这个反噬咯
+
+*****
+
+####  新HGCG  
+##### 23400#       发表于 2025-2-15 10:50
+
+MYGO循环是吧
+
+S%2R[R29X(]WRIKTATU()KQ.jpg
+(82.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/105006klq1byhx5h50mfqn.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yaneis  
+##### 23401#       发表于 2025-2-15 10:50
+
+至于鸡团，我想破脑袋都想不出为啥要重组，可能蜘蛛侠批上毒液黑化逼着小祥搞的吧
+
+*****
+
+####  wpcc  
+##### 23402#       发表于 2025-2-15 10:50
+
+<blockquote>plok201 发表于 2025-2-15 10:48
+爱音胜在一个没人会讨厌，GO团5个人，虽然最出圈是soyo但是也有不少的人觉得太过了不喜欢
+
+剩下3个只能说想 ...</blockquote>
+日本公司很难处理这种意外的中华炮 什么叫我剧本都写完了摄像头爆火了
+
+*****
+
+####  LeonsCat  
+##### 23403#       发表于 2025-2-15 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430004&amp;ptid=2208921" target="_blank">保真花生 发表于 2025-2-15 10:26</a>
+
+说起来这百合小姨文学不就是轻拍吗？</blockquote>
+艹
+[@棒读](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=181056) 
+
+*****
+
+####  wpcc  
+##### 23404#       发表于 2025-2-15 10:52
+
+<blockquote>yaneis 发表于 2025-2-15 10:50
+至于鸡团，我想破脑袋都想不出为啥要重组，可能蜘蛛侠批上毒液黑化逼着小祥搞的吧 ...</blockquote>
+为了11人四团 包寿司 本质广告片 线下live才是最重要的 谷子卖到天上去武士道也赚不到一分钱
+
+*****
+
+####  wpcc  
+##### 23405#       发表于 2025-2-15 10:54
+
+我已经想通了 既然铃奈有仁无有仁，柿本广大弃广大 木谷高明不高明，那我直接加入武士道 武堕一念起 天天见白祥 吃太好了
+
+ 不是串 你要看真的只能这样看才能不吃屎了 
+
+先把黑祥切了
+
