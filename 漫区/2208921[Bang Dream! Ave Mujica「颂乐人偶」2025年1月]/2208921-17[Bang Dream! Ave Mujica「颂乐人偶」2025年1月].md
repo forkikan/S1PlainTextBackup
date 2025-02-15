@@ -3295,3 +3295,201 @@ nga在宣泄情绪，狗吧** ...</blockquote>
 —— 来自  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为分析就在洗地，在做错事情没受到处罚之前，再怎么分析原因就是洗。
 
+
+*****
+
+####  御幸一也  
+##### 23962#       发表于 2025-2-15 19:06
+
+還浪費什麼時間討論，樂就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+這不就是泥樓看不慣雞友那些人想要的效果嗎，爆爆爆，不需要任何邏輯也不需要尊重角色，一切為爆服務<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+確實夠樂的武士道的動畫就該這樣看，我也不需要把這劇情過腦，只看一遍就直奔場外樂子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  thisisaspider  
+##### 23963#       发表于 2025-2-15 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433644&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-15 19:04</a>
+
+可是场内场外的表现都不像风光大葬
+
+场内狗团要live，偷摸0不写新歌，哭来兮苦音趴完了，爱音不上来说要彩排 ...</blockquote>
+从单集出发台词才是最决定性的吧，台词感觉写的就是C团已经过去了
+
+*****
+
+####  天空塔书记官  
+##### 23964#       发表于 2025-2-15 19:07
+
+还是A团内部的剧情太少了，让位于炒作和噱头的部分太多了，但如果还是按照故事最终会收束的方向来考虑，其实前边也不是完全没有有效的信息，只是可能不太起眼罢了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 23965#       发表于 2025-2-15 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433649&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 19:05</a>
+
+因为分析就在洗地，在做错事情没受到处罚之前，再怎么分析原因就是洗。 ...</blockquote>
+性格解析感觉和洗地还是有点距离的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 23966#       发表于 2025-2-15 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433637&amp;ptid=2208921" target="_blank">Min_FOrder 发表于 2025-2-15 19:03</a>
+
+你看，上面具有强大前瞻性的楼友这不就是大言不惭捂嘴不让讨论么，我说这讨论环境烂了也不冤枉他们吧？早 ...</blockquote>
+不是哥们，这楼谁捂嘴不让讨论了，你要想讨论你倒是发点你想讨论的东西出来啊，你想讨论的你都不发内容来这楼，你让其他不想讨论的人发吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23967#       发表于 2025-2-15 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433662&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 19:07</a>
+性格解析感觉和洗地还是有点距离的</blockquote>
+所以我才不太能理解洗黑二元论啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 23968#       发表于 2025-2-15 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433665&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:08</a>
+
+不是哥们，这楼谁捂嘴不让讨论了，你要想讨论你倒是发点你想讨论的东西出来啊，你想讨论的你都不发内容来 ...</blockquote>
+S1楼有权限吗，感觉不太可能出现捂嘴吧，感觉是斗争不过其他楼友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  forgetit  
+##### 23969#       发表于 2025-2-15 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433653&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 19:06</a>
+
+還浪費什麼時間討論，樂就完事了
+
+這不就是泥樓看不慣雞友那些人想要的效果嗎，爆爆爆，不需要任何邏輯也不 ...</blockquote>
+武士道是这样的
+
+*****
+
+####  灼眼的夏娜酱  
+##### 23970#       发表于 2025-2-15 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433653&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 19:06</a>
+
+還浪費什麼時間討論，樂就完事了
+
+這不就是泥樓看不慣雞友那些人想要的效果嗎，爆爆爆，不需要任何邏輯也不 ...</blockquote>
+我去，失踪人口回归<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 23971#       发表于 2025-2-15 19:11
+
+鸡最让我不理解的不是独角兽剧本写呲了，而是柿本怎么变那么菜。
+鸡的剧本难度有目共睹，开播前就没指望能把坑全填上(当然也没想到能呲成这样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+当时狗最吸引我的是分镜简洁有信息量，bgm恰到好处(点名那几首钢琴曲)，live中声音的演绎也能看出打磨，这一切都指向了兼任监督音监的柿本，但到了鸡分镜是生硬的，bgm是乱配的(pv里那几首bgm在正片一响我就ptsd)，刻意无比的插回忆仿佛把观众当弱智，如果爱音发觉素世在利用自己的桥段放到鸡来演，怕不是回忆要占两分钟。
+而这两个制作团队只差了一个写剧本的，难道独角兽对制作干预的力度就有这么大吗，真是这样的话某种程度上能理解为什么会起争执了。
+
+*****
+
+####  aptx8285144  
+##### 23972#       发表于 2025-2-15 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433303&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-15 18:07</a>
+
+go对角色都是很温柔的（立希不好说，鸡就大手猛抽，一群人当皇习惯了，还大喊抽的好 ...</blockquote>
+素世：那时候我是反面角色，对我不温柔是应该的（
+
+*****
+
+####  whzfjd  
+##### 23973#       发表于 2025-2-15 19:12
+
+结局出问题的水魔和推子都肉眼可见地冷了，能不能给武士道也降下天诛
+
+*****
+
+####  指南アキラ  
+##### 23974#       发表于 2025-2-15 19:13
+
+ 本帖最后由 指南アキラ 于 2025-2-15 19:15 编辑 
+
+祥子还挺有心机的，坚持站在这个区域等，就是让睦看得到，真进屋就等着坐到回家啦<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/15/190950wpttkqv46rl6qe6z.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子等待区域2.jpg</strong> (336.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/190843h9v5i2059i80ekln.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子等待区域1.jpg</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/190844u4dkauam1deaud4k.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子等待区域-睦视角.jpg</strong> (313.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:08 上传
+
+体力也不错<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/15/190949mhmku8wtjjbybj9t.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子等待区域-睦视角2.jpg</strong> (133.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:09 上传
+
+*****
+
+####  大户爱  
+##### 23975#       发表于 2025-2-15 19:13
+
+从我个人角度出发，喵梦一分析，只能又蠢又坏。
+
+哪怕你不扯现实解约金的要素，喵梦这一通闹下来，纯粹也就是为了散团闹而闹，她自己得罪一堆人，没有捞到什么好处。
+
+现在上综艺看似过得不错，那肯定也没有跟着最速武道馆蒸蒸日上的乐队有前途。
+
+而且对阵期间祥子完全是被按住了手脚，是个正常人，就喵梦所作所为，早就让她喝一壶了。
+
+就不知道后面鸡团重组，能怎么写喵梦。
+
+*****
+
+####  aptx8285144  
+##### 23976#       发表于 2025-2-15 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433307&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 18:08</a>
+
+前面几集我最大不满就是，场外staff时隐时现就算了。
+
+喵梦犯下掀面具这种大错，祥子作为团队leader，还带 ...</blockquote>
+最后一句话叔叔家有人吐槽过，鸡团下面放了一堆炸药，然后却是飞来一枚导弹炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
