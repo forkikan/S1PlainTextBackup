@@ -5311,3 +5311,205 @@ nzh能力低，泛式就强到哪儿去了吗都什么年代了还在用调整�
 开启爱傲天模式，家人们我又开始幻想了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">爱音那性格，波奇要是传功给她，技术估计能发挥110%。随时随地都是全力的吉他英雄
 
+
+*****
+
+####  cxj649  
+##### 24142#       发表于 2025-2-15 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434646&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:44</a>
+
+三次元是五个职业人，他们TFT搞砸了是职业生涯的问题，我还是分开看待的（资方安排工作你不干好也不行吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是肯定后续哪怕这季动画没有，但OVA啊剧场版啊，漫画啊，还有游戏日常啊
+
+非常恐怖<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 24143#       发表于 2025-2-15 20:47
+
+C團歲月就像一年戰爭一樣
+
+時間雖然是限定的
+
+但越塞越多東西在那裡
+
+遲早一個月內賞花 賞月 聖誕都全過了
+
+最後， 送一首 《鬼迷心竅》 給爽世小姐
+
+*****
+
+####  单脚着地  
+##### 24144#       发表于 2025-2-15 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434600&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 20:40</a>
+
+大莫老师因为不会弹吉他，所以被KO了
+
+爱音因为吉他太菜，所以被对内冷脸也很合理。</blockquote>
+是这样的，表情温情友好，其实内核实力至上<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 24145#       发表于 2025-2-15 20:48
+
+范式现在都成B站二次元漫评唯一指定话事人了，要知道母鸡卡可是B站买了版权力推的动画，大力喷是不可能大力喷的
+
+反观业务能力低下爱玩烂梗牛子豪没有那个包袱
+
+但有一说一看他喷不在意的或者讨厌的作品确实挺来劲的，毕竟收集贴吧B站论坛言论汇总再绘声绘色的一骨碌念出来也是功夫活嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未来起航  
+##### 24146#       发表于 2025-2-15 20:49
+
+真要整c团还不如等am整个故事结束后两团再搞台上和解，春日影改词变成大家的歌之后合唱。
+
+另外爱音最大弱点之音乐性不行，在mygo系每集——高情商：女女关系性，低情商：撕逼内斗洒狗血——的模式下根本不是问题。说的好像你们多重视音乐一样.jpg
+
+*****
+
+####  595505568  
+##### 24147#       发表于 2025-2-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434672&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 20:47</a>
+但是肯定后续哪怕这季动画没有，但OVA啊剧场版啊，漫画啊，还有游戏日常啊
+
+非常恐怖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，细节打磨还不如我跟别人跑团演角色来的细节，这群人简直吃白饭
+
+*****
+
+####  单脚着地  
+##### 24148#       发表于 2025-2-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434607&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:40</a>
+
+那就是Anon Tokyo 小姐 單人出道了
+
+那裡還玩學生樂隊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">邦邦世界从此多了一个SLASH
+
+*****
+
+####  595505568  
+##### 24149#       发表于 2025-2-15 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434675&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:47</a>
+C團歲月就像一年戰爭一樣
+
+時間雖然是限定的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是两周？我都不知道上学两周能干什么
+
+*****
+
+####  thisisaspider  
+##### 24150#       发表于 2025-2-15 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434644&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-15 20:44</a>
+
+还不如对偶彻底，直接让爱音进行一个跑和逃，然后撞进路过的海玲怀里忘记一切。
+
+场外固然还是会吵翻，但起 ...</blockquote>
+这点我可以确定，C团限时组合绝对不是为了排挤爱音。所以后面补的可能性很小。
+
+
+*****
+
+####  595505568  
+##### 24151#       发表于 2025-2-15 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434675&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:47</a>
+C團歲月就像一年戰爭一樣
+
+時間雖然是限定的</blockquote>
+又要练习又要出去玩，然后外面天还亮着，邦多利休息日不会出来玩，还穿校服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我都不知道他们的两周是不是丢掉时空裂隙里去了那么长
+
+*****
+
+####  一心而用  
+##### 24152#       发表于 2025-2-15 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f00db65059b6b5c3771e7817c3408c6e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fb3edbe53fc7daf9dcc5d340445f30eb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 24153#       发表于 2025-2-15 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434682&amp;ptid=2208921" target="_blank">kyonkoism 发表于 2025-2-15 20:48</a>
+
+范式现在都成B站二次元漫评唯一指定话事人了，要知道母鸡卡可是B站买了版权力推的动画，大力喷是不可能大力 ...</blockquote>
+这类网络主播在消费网络环境的同时，我最期待他们被反噬。毕竟也是观众的玩具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 24154#       发表于 2025-2-15 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 24155#       发表于 2025-2-15 20:55
+
+泛式现在已经没法乱说话了吧，否则要步LEX后尘去阿B门口下跪<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24156#       发表于 2025-2-15 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434741&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 20:54</a>
+这类网络主播在消费网络环境的同时，我最期待他们被反噬。毕竟也是观众的玩具 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵梦：背后一冷
+
+*****
+
+####  是谁的书画  
+##### 24157#       发表于 2025-2-15 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434668&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:46</a>
+
+爱音那性格，波奇要是传功给她，技术估计能发挥110%。随时随地都是全力的吉他英雄 ...</blockquote>
+<img src="https://i.miji.bid/2025/02/15/11fa9eb6db137afd9dd8756eb48d9bdd.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太他吗troll了我乐了
+
+*****
+
+####  loneyuki  
+##### 24158#       发表于 2025-2-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434340&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 20:16</a>
+
+错 123联播还能叫优秀 4看完就知道完结那天必定是垃圾的。看一集杀一集才是正确的 烂完了你都找不出纯粮m ...</blockquote>
+看完第四集你去杀，他们只会跟你说什么哦这里灯光不对那里易拉罐摆错了，这句是红字，那句没有月亮，感觉在跟神经病讲话
+
+*****
+
+####  kyonkoism  
+##### 24159#       发表于 2025-2-15 20:56
+
+下跪？☆奴！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 24160#       发表于 2025-2-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434753&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:55</a>
+
+泛式现在已经没法乱说话了吧，否则要步LEX后尘去阿B门口下跪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛子豪吐槽过自己专门负责开团的
+
