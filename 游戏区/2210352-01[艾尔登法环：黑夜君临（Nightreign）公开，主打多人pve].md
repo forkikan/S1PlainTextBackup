@@ -2487,3 +2487,12 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  budong  
+##### 271#       发表于 2025-2-15 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432600&amp;ptid=2210352" target="_blank"> 我就再氪一单 发表于 2025-2-15 16:11</a> blz436 发表于 2025-2-15 15:09 https://x.com/fromsoftware_sp/status/1890644753600979074 ELDEN RING NIGHTREIGNネットワークテストにご ... 这是日本时间吧，不是北京时间吧  —— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v2.5.4 </blockquote>
+北京时间比日本时间早一个小时来自: iPhone客户端
+

@@ -13410,3 +13410,11 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/48ec4d37bec5ac154af0798109cde56c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 6952#       发表于 2025-2-15 16:19
+
+原来一直都是这个表情，怪不得观后感想图里都画成这样
+

@@ -1269,3 +1269,32 @@ WSD 就是傲慢/垃圾
 這種情況速找自家旗下負責產短漫</blockquote>
 手游剧情都把谁和你们熟啊拍脸上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _47  
+##### 23784#       发表于 2025-2-15 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432020&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 14:50</a>
+GlitterGreen只是有成员出国留学了，可没解散，有本事武士道搞一出某天saya抛下ppp成员跑回CHiSPA打鼓的 ...</blockquote>
+别滑坡了，抛下ppp成员与跑回去打鼓是两个层面的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  MASKA-1  
+##### 23785#       发表于 2025-2-15 16:25
+
+<img src="https://p.sda1.dev/22/cda3c77c7a085b12b83f2c4894df50ba/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23786#       发表于 2025-2-15 16:27
+
+如果存在改剧本情况的话，大概就是把CCC从A团的故事连续性中摘离，单独作为一个炒作的点来使用，为的就是制造“神回”和之后剧情的反转形成期望反差<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
