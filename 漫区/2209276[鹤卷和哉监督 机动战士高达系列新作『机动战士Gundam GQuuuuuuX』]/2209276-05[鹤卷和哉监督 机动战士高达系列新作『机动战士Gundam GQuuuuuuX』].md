@@ -13299,3 +13299,35 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 1/1700 GQuuuuuuX版麦哲伦级
 [@hearyhat](https://x.com/hearyhat/status/1890328995859771781)
 
+
+*****
+
+####  王留美  
+##### 6944#       发表于 2025-2-15 11:17
+
+修司的大手（
+
+<img src="https://img.saraba1st.com/forum/202502/15/111656rnisnmrnvxss57vv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6758.jpeg</strong> (526.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/111656bzuhfyuokymxofsk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6756.jpeg</strong> (264.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/111656h6wyjhn972mulshm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6757.jpeg</strong> (97.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:16 上传
+

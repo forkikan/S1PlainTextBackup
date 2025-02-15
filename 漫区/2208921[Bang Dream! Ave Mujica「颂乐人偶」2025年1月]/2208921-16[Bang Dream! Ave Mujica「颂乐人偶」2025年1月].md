@@ -13615,3 +13615,68 @@ mygo是年轻人的第一部二偶 破的就是这群人
 <img src="https://p.sda1.dev/22/679156ef698c148c7b1a46c999f29402/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/94c88f74bcaf6cec70c2f75c3a0bc03f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 23427#       发表于 2025-2-15 11:18
+
+<blockquote>南宮凝香 发表于 2025-2-15 11:14
+你換到三次元偶像樂隊粉絲破防更厲害吧
+
+公司從現有兩個樂隊抽人組第三樂隊
+</blockquote>
+三次元为什么要破防？又不是砍live 是live变得更多了
+
+*****
+
+####  ads147147  
+##### 23428#       发表于 2025-2-15 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430373&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 11:10</a>
+播放量讨论度说话好吧</blockquote>
+星1小星星切片各种百万播放被代便下了继续上传继续百万，谁和谁比传播度。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刑部姬真可爱  
+##### 23429#       发表于 2025-2-15 11:22
+
+星一毕竟是真打中华炮，和go这种纯靠剧情和女女关系性然后大火的相比，个人感觉还是略输一筹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 23430#       发表于 2025-2-15 11:24
+
+<blockquote>wpcc 发表于 2025-2-15 11:18
+三次元为什么要破防？又不是砍live 是live变得更多了</blockquote>
+公司資源就這麼多
+
+你給了3C
+
+那雞狗就少了
+
+3C只拿了雞狗5個人
+
+那剩下那5人 跟團推不就少了資源？
+
+*****
+
+####  wpcc  
+##### 23431#       发表于 2025-2-15 11:25
+
+<blockquote>南宮凝香 发表于 2025-2-15 11:24
+公司資源就這麼多
+
+你給了3C
+
+那雞狗就少了
+</blockquote>
+live变多了你是一点不看啊 和黑武士道的没话说了 木圣伟大 11个人四个团 天才
+
