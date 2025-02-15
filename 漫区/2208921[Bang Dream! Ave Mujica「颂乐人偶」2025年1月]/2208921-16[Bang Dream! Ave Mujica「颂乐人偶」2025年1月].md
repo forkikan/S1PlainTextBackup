@@ -15972,3 +15972,164 @@ mujica现在没完结，确实没有这方面的采访。但是这前后两季�
 也没说片子没烂啊，这不是粉毛痴子因为编剧的大手伸到自己就开始给主子申冤到处拉屎骂其他角色甚至声优了显得奇异搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/c1df16579b1af09b4c0db19ba0615c0b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 23636#       发表于 2025-2-15 14:18
+
+迈巴赫姐粉丝以及路虎姐粉丝能不能收敛一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们吵起来和鸡目前的剧情一样难看
+
+*****
+
+####  Paaz  
+##### 23637#       发表于 2025-2-15 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431721&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:06</a>
+
+我不是说了这几个吧是核心圈子啊，核心圈子不重要难道指望引流来看个动画和奶龙炫狗二创的粉毛痴子爆米吗 ...</blockquote>
+二偶核心圈子算什么东西啊？二次元做个逻辑情感垃圾的动画和三次元靠别人写词作曲演出全靠简谱的乐队给你们共振你们竟然还真能打米了，看了邦邦前几季的介绍才知道这玩意原来从一开始就这么逆天，你们也算是被驯化的不错了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 已被封号| + 1||
+
+查看全部评分
+
+*****
+
+####  怀沙汨罗  
+##### 23638#       发表于 2025-2-15 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431767&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:14</a>
+你觉得现在的舆论是在乎前三个还是最后一个</blockquote>
+我确信你的理解能力是真的有问题了。你给我贴一个人的回复想证明什么观点？证明我刚说的几个大吧都是被角色厨控制了？证明你所谓的核心圈子很重要？我不太理解你的思维。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 23639#       发表于 2025-2-15 14:19
+
+CCC是属于过去的幽灵，本应该讲述曾经的故事，但却专注于现在的剧情，这也算是一种详略失当吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23640#       发表于 2025-2-15 14:19
+
+<blockquote>是谁的书画 发表于 2025-2-15 14:01
+其实素世这个是很好反转的。
+
+素世温柔以待的那些人都是什么人呢？大🐘，大睦大莫，🐧人，🐱人，这有一个算 ...</blockquote>
+还缺儿子吗 我要喝素世
+
+
+*****
+
+####  swessia  
+##### 23641#       发表于 2025-2-15 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">睦厨都是颜狗什么的，不要说的这么直白啊
+
+只复读睦可爱现在怎么也比剧情吃屎强<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  MuramasaSP  
+##### 23642#       发表于 2025-2-15 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431670&amp;ptid=2208921" target="_blank">ryuusu 发表于 2025-2-15 13:56</a>
+
+祥厨里白祥粉黑祥粉到底占几成啊？感觉到6话还厨祥的都爱那死倔无差创人味，到7一转白祥过于清澈就受不了 ...</blockquote>
+本祥厨喜好（脑补）的祥子：满脑子都只有自己，这里的自己并非现实利益，而是一个能满足自己、自洽的精神归宿，为此哪怕遭遇各种挫折也继续前进。用日本动画里很烂俗的概念“容身之地”（居场所），祥子在寻找容身之地这件事上极其积极，不是等待他人给予而是自己去创造，并且容身之地的建立是由内而外的，她在心中先描绘出了形象，再去现实世界里实现它。
+
+然而精神归宿并非仅靠自己一人就能成立，这也是祥子需要被拷打的地方，不能因为要创建自己的归宿就把别人当成人偶看待。我认为白祥黑祥的出发点都是一样，只不过是受到的压力不同而已。第七话与其说是白祥不如说是懦弱祥，在认识到自己对睦的伤害后被负罪感打垮，因此后面祥子还是要成长的，第七话不应该是正常状态。
+
+另外作为场外观众，还有一点就是道德高地。制作组似乎并不打算让祥子对灯素世道歉，她的道歉仅针对于睦，c团的解散的事则被归因于偶然和沟通不畅，在这一点上感觉作为祥厨已经完全败北了。
+
+*****
+
+####  是谁的书画  
+##### 23643#       发表于 2025-2-15 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431774&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:15</a>
+
+也没说片子没烂啊，这不是粉毛痴子因为编剧的大手伸到自己就开始给主子申冤到处拉屎骂其他角色甚至声优了 ...</blockquote>
+啊对的对的，所以事到如今大家都有错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+有人干了所以大家都干了，你这思维不还停留在5年前的互联网嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 23644#       发表于 2025-2-15 14:22
+
+都用ai了 干脆做个柿本一秒6棒速通独角兽的视频吧
+
+*****
+
+####  ccared  
+##### 23645#       发表于 2025-2-15 14:22
+
+邦吧紫吧我完全没去过，我说了企划粉接受程度和引流观众不一样是很正常的，在不同社区茧房共振当然会彼此攻击。
+
+可沟槽的战吧是个屁的核心圈子，从刀马旦开始战吧就只有在权限狗手下共振的河豚ylg，没有比战吧更符合跟风ylg定义的河豚吧了。
+
+*****
+
+####  DeltaStriker  
+##### 23646#       发表于 2025-2-15 14:24
+
+看完贴吧剧透 要是这变态剧透对了ccc复活还只是小事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  怀沙汨罗  
+##### 23647#       发表于 2025-2-15 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431832&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-15 14:22</a>
+邦吧紫吧我完全没去过，我说了企划粉接受程度和引流观众不一样是很正常的，在不同社区茧房共振当然会彼此攻 ...</blockquote>
++1，一个被权限狗操控的河豚一言堂，有营养的讨论屁都没有只有共振的假药，能被叫做核心圈子这辈子也是有了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  帝下室の年糕  
+##### 23648#       发表于 2025-2-15 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431790&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:18</a>
+我确信你的理解能力是真的有问题了。你给我贴一个人的回复想证明什么观点？证明我刚说的几个大吧都是被角 ...</blockquote>
+这就是我在楼里的回复啊，鸡早就烂了，但你不能只在编剧的大手伸到自己屁股的时候才狗急跳墙，现在的所谓大吧的舆论主流要是单纯批判动画的质量剧情角色塑造问题谁会有意见呢，一次是共振，二次是厌烦，三次就该反噬了，而且反噬已经开始<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 23649#       发表于 2025-2-15 14:26
+
+我这有个调整心态的办法，大家就不要把c团和鸡狗团看作前现任的关系，而是看成奥特曼和科特队的关系，奥特曼变身打怪兽是没有团魂吗，那是为了大家牺牲自己呀，这样是不是好受些了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 23650#       发表于 2025-2-15 14:27
+
+补了一下柿本1月的访谈确实有说修改了多版剧本，看来这黄泥巴掉进裤裆他是洗不干净了，在黑客黑进独角兽电脑偷出初版剧本之前没人能满意
+

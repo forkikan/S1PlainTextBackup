@@ -2396,3 +2396,37 @@ ps5 pro帧率优先都有明显卡顿<img src="https://static.saraba1st.com/imag
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  HATENA  
+##### 263#       发表于 2025-2-15 14:20
+
+<blockquote>usodakedo 发表于 2025-2-15 01:23
+没啥所谓的，魂或者现在的fs本来就是最下键最低级的阶级，早就在耻辱柱上了。
+
+但这次服务器还是这么拉是没 ...</blockquote>
+不想给边角料送高贵港服的钱没开xbox拉着我朋友下了pc试玩结果现在两个人连玩都玩不成
+
+*****
+
+####  blz436  
+##### 264#       发表于 2025-2-15 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428584&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-2-15 00:33</a>
+连上去的感觉网络质量怎样？还会有延迟斩吗？
+
+—— 来自 S1Fun</blockquote>
+FS祖传netcode就别指望了，环本体联机时有的问题一个不少，甚至能让你救不起人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  我就再氪一单  
+##### 265#       发表于 2025-2-15 14:22
+
+笑死我了，亚基尔飞进教堂里了，还站在墙上对着下面喷，三个人就站在那儿干瞪眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完美符合fs社公司文化是吧，自己做的东西自己都没玩过
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
