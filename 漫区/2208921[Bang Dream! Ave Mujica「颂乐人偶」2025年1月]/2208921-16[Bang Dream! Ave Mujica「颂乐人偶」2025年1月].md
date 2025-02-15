@@ -15256,3 +15256,126 @@ tft真不是小噱头 ccc真是主推</blockquote>
 
 要我说更不如说是青二推的，小羊的这个声音太容易让人记住了，属于只要多练练稳定性真的能拉出来唱的，至于是mygo，ccc或者别的什么企划倒是其次。这别说比用角色音拗个角色歌、过了季度就忘的声优歌手好，就是正经歌手也比单纯唱的对、唱的好的那种无聊角色要好。日音早就过了唱得真高、真响、真准的时代了。
 
+
+*****
+
+####  莱茵哈鲁特  
+##### 23575#       发表于 2025-2-15 13:28
+
+当初素世不成功不就是因为祥子不回头嘛。现在祥子回来了，一切都能解决了。素世的计划不就成功了吗？
+
+信不信如果爱音要强制回英国留学了。c团第二天就能复活。所以这一集越是谈她们对c团感情深，爱音就越是尴尬。
+
+核心还是在于剧情没有让c团变成“回不到的过去”，而是变成了“触手可及的现在”
+
+*****
+
+####  595505568  
+##### 23576#       发表于 2025-2-15 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431461&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-15 13:25</a>
+说起来素睦黄瓜这个联系点，就这么被轻易用掉了好不爽啊，感觉soyo像来送复活道具的，还是辅助的那种 ...</blockquote>
+那我也要说了，怎么没人想过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素世在MyGO开头那一年是几乎C团四个队友全都不似人的水平熬过来的，素世也有话要说了，我一年啥错事没有做拉人都拉不回来有人在乎我吗。素世这个鬼情况不就是那一年全不管她管C团最后自我变态出来的，爱音倒霉在给别人擦屁股，素世又何尝不是之前那个C团爱音，还得是擦屁股的传承我看是
+
+*****
+
+####  天空塔书记官  
+##### 23577#       发表于 2025-2-15 13:29
+
+但如果要讲睦祥以及A团与迷子的联系，想要绕过CCC还真是蛮难的，这和多惠和瑞依只有两个人可不一样，但感觉好像还是啥都没讲就很难蚌了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 23578#       发表于 2025-2-15 13:29
+
+真，真没有攻击队友嘛，我表示一个**的问号啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过对比一下睦厨确实还是比较安静的，前六集睦头这路边野狗看见都得吠两嘴的描写竟然只有少量外溢，只在角色吧内讨论
+
+*****
+
+####  z-hunter  
+##### 23579#       发表于 2025-2-15 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431448&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-15 13:23</a>
+
+这不是闹麻了吗，人隔壁鸡还有被逼出精神分裂的还被扔下一个月不管不顾也没见粉丝到处闹事鸣不平攻击队友啊 ...</blockquote>
+因为鸡这时候没有团魂，鸡是散了的状态，而观众和粉丝是期盼着后面的集数能重新塑造鸡的团魂。就这样也一样有人攻击大祥攻击海铃不做人嘛。。。
+
+狗团可不一样，狗可是经历了一季动画的塑造了所谓的“团魂”，也是被认为是团比较坚固的时候。而且因为动画优秀吸引了大量的人来看着“第二季”。
+
+现在你跟我说C团遗老都双标？那我第一季看的不是被背叛了？这狗团看似坚固实际散得不的了。所以就闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23580#       发表于 2025-2-15 13:30
+
+如果你把公司的规划和脚本家访谈和声优的访谈全部集合来看，你只有一个结果就是接受武士道然后去欣赏白祥表演。至于live粉丝其实和动画粉丝破防的点都不一样也没什么好说的。
+
+这就是二偶对比普通手游更加庞大的信息量 真正的什么都要看才没有信息差。
+
+*****
+
+####  南宮凝香  
+##### 23581#       发表于 2025-2-15 13:30
+
+<blockquote>天空塔书记官 发表于 2025-2-15 12:51
+所以为啥CCC不能和两团共存呢
+
+能不能简明解释一下</blockquote>
+就像之前有人說的
+
+沒安全感了
+
+3C 跟狗團是同一生態位，
+
+C團復辟本來就是懸在狗推頭上的達摩克利斯之劍
+
+這集動畫內看似解決了
+
+轉頭場外就大手急推3C
+
+這危機感立馬拉到120% 
+
+愛音可能沒感覺
+
+場外狗推大概已經到狗9集的愛音的狀態了
+
+這狀態只要不是全糖就大概都可以滑坡成你不愛我
+
+*****
+
+####  wpcc  
+##### 23582#       发表于 2025-2-15 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431496&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 13:30</a>
+
+因为鸡这时候没有团魂，鸡是散了的状态，而观众和粉丝是期盼着后面的集数能重新塑造鸡的团魂。就这样也一 ...</blockquote>
+监督是这么想的你问他去
+
+*****
+
+####  刑部姬真可爱  
+##### 23583#       发表于 2025-2-15 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431461&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-15 13:25</a>
+
+说起来素睦黄瓜这个联系点，就这么被轻易用掉了好不爽啊，感觉soyo像来送复活道具的，还是辅助的那种 ...</blockquote>
+三天三夜大于一切<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+后续剧情应该是免不了两人一起种黄瓜的，现在只是把当时的剪切线撤销了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 23584#       发表于 2025-2-15 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431436&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-2-15 13:21</a>
+
+没爬完全楼，问一下现在所谓的初华是小姨，祥子第8话要复活ccc是多大程度上的可信？ ...</blockquote>
+第二个比第一个稍微可信一点，第二个是有实绩的舅舅说的，但是原话只是复活没说哪个团。第一个的来源是聊天记录，中间二手传播次数挺多的。
+
