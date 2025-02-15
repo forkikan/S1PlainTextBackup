@@ -13401,3 +13401,12 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 麻球太可爱了
 
+
+*****
+
+####  岸浪白野  
+##### 6951#       发表于 2025-2-15 16:10
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/48ec4d37bec5ac154af0798109cde56c/image.jpg" referrerpolicy="no-referrer">
+

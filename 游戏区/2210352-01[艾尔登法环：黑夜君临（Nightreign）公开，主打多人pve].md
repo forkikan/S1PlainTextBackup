@@ -2473,3 +2473,17 @@ ELDEN RING NIGHTREIGNネットワークテストにご参加いただいた皆�
 
 今晚7点追加场了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就再氪一单  
+##### 270#       发表于 2025-2-15 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432154&amp;ptid=2210352" target="_blank">blz436 发表于 2025-2-15 15:09</a>
+https://x.com/fromsoftware_sp/status/1890644753600979074
+
+ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
+这是日本时间吧，不是北京时间吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

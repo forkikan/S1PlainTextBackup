@@ -1219,3 +1219,53 @@ mygo/ccc的核心是白祥  mujica/ccc的核心肯定是羊宫妃那
 
 但是怎么重要的场合，高尾还弹疵了，这比较尴尬
 
+
+*****
+
+####  wpcc  
+##### 23780#       发表于 2025-2-15 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432574&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 16:08</a>
+
+但是怎么重要的场合，高尾还弹疵了，这比较尴尬</blockquote>
+故意的 说明是真弹 不是录播奥！
+
+*****
+
+####  cxj649  
+##### 23781#       发表于 2025-2-15 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432551&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 16:04</a>
+
+当时我看到这个我就觉得抽象，ykn这不得一脚踹飞
+
+只能说，哪有什么场内场外，都是wsd的大手 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果这组合也真人演一场，也有点有趣
+
+
+*****
+
+####  天空塔书记官  
+##### 23782#       发表于 2025-2-15 16:14
+
+ 本帖最后由 天空塔书记官 于 2025-2-15 16:17 编辑 
+
+炒CCC和初华下线有可能都是为了之后的“大反转”服务，当所有人都在为“感动神回”落泪，或者忽略初华的时候，制作组突然跳出来“哈哈哈，没想到吧，之后会是这样的发展”，然后众人惊呼“好厉害的反转，真是从来没想到呢”
+
+这倒是挺符合所谓实验性创作者的嘴脸的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 23783#       发表于 2025-2-15 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432409&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 15:45</a>
+WSD 就是傲慢/垃圾
+
+這種情況速找自家旗下負責產短漫</blockquote>
+手游剧情都把谁和你们熟啊拍脸上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
