@@ -13868,3 +13868,33 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 确认玛秋我也说了玛秋的出现在当时完全是意外，第二天他本人去接触玛秋才是确认玛秋这个人，修司和红高达在当时的逗留不会是以玛秋会进入gqx为前提去做的。
 
+
+*****
+
+####  kuriri  
+##### 6986#       发表于 2025-2-16 02:25
+
+ 本帖最后由 kuriri 于 2025-2-16 02:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437117&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-16 02:10</a>
+
+这个第二段歌词的主视角应该是尼娅安，她和玛秋才是需要如果的人，另外现在也无法完全确认尼娅安的"你"指 ...</blockquote>
+但是plazma里修斯其实是存在的，就是mv里的米津玄師本人，两人穿着一样的宽松灰色长裤，米津外面套了一件红色ma-1夹克，正好象征红高。1分45秒左右他被手持荧光的军警压制，那画面好像红高背后有两把光剑，正是在side6与扎古混战的情景。
+
+WechatIMG436.jpg
+(105.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 02:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/022601nyu1cpdjui91y9zu.jpg" referrerpolicy="no-referrer">
+
+WechatIMG437.jpg
+(185.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 02:26 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/022602cpv3kmkkzrw19ji3.jpg" referrerpolicy="no-referrer">
+
