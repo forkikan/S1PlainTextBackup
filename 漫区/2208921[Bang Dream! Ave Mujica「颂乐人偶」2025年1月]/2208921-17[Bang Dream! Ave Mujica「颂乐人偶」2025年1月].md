@@ -9158,3 +9158,69 @@ mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团
 看到这张图突然才意识到灯和睦其实某种意义上有点像，当一个五人团队有两个拙于言辞或者说是沉默类型的人 ...</blockquote>
 C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员间完全靠爽姐当润滑剂，本来就无法长久<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenganmian  
+##### 24508#       发表于 2025-2-16 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436668&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-16 00:34</a>
+所以为什么要是小姨。我能理解见到空降的高颜值表姐妹指头痒了，姨和侄女这种关系不会让大头抢占身体吗。 ...</blockquote>
+就是要看大头和小头打架，打得越激烈越好看
+甚至还有母女百合这种流派
+
+*****
+
+####  天空塔书记官  
+##### 24509#       发表于 2025-2-16 00:37
+
+话说老登私生女的这种操作最近比较有名的一次是不是辉夜来着<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 24510#       发表于 2025-2-16 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436668&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-16 00:34</a>
+
+所以为什么要是小姨。我能理解见到空降的高颜值表姐妹指头痒了，姨和侄女这种关系不会让大头抢占身体吗。 ...</blockquote>
+  为了对应独角兽的性癖吧
+
+*****
+
+####  看穿一切的鱼  
+##### 24511#       发表于 2025-2-16 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436514&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-16 00:14</a>
+独角兽可能暗恋羊宫妃那
+
+所以才让自己代入的祥子和灯的爱情结晶ccc变成所有人的白月光，才让灯箱成为鸡狗 ...</blockquote>
+这祥子真能代入？一代一个不吱声吧，说好的凤傲天然后一点高光表现不给<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  烂片雷达  
+##### 24512#       发表于 2025-2-16 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436668&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-16 00:34</a>
+所以为什么要是小姨。我能理解见到空降的高颜值表姐妹指头痒了，姨和侄女这种关系不会让大头抢占身体吗。 ...</blockquote>
+我觉得可能以初华的脑回路可能觉得和祥子流着同样的血和祥子关系更近了反而更加兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leader01234  
+##### 24513#       发表于 2025-2-16 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436261&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-15 23:41</a>
+前7话好评率
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人</blockquote>
+差评率和第四集一样还算合理吧，这集抛开剧情地位确实和第四集一个烂的水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
