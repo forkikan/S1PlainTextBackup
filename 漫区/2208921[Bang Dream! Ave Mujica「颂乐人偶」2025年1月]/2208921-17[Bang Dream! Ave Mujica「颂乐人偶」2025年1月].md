@@ -2807,3 +2807,213 @@ wsd你就不能给鸡团人物一点正面弧光嘛<img src="https://static.sara
 
 wsd觉得ccc老好了，观众肯定老爱看了。
 
+
+*****
+
+####  z-hunter  
+##### 23923#       发表于 2025-2-15 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433437&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 18:29</a>
+
+回看起来，祥厨可能是攻击性最低的了，祥子被OOC和拷打几集了，厨子都在抗压。别的角色都不算OOC还能当正面 ...</blockquote>
+那只是因为那段时间祥厨没办法反击而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥只硬了狗13话的live和鸡的第1话，然后就一直被抽陀螺被拷打被踩地上。
+
+类比类似体育活动的球队粉丝，在球队成绩不好和输球的时候也攻击不了别人
+
+然后，然后就等来了第7话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 23924#       发表于 2025-2-15 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433410&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 18:25</a>
+
+制作质量确实不行</blockquote>
+mygo有很多画龙点睛的小细节，例如第2集爱素寒暄的时候，爽姐心不在焉地往楼上环顾，然后打断爱音决定上楼再聊
+
+这种小心思的细腻把握感觉是靠单集脚本或系构将想法告诉监督、甚至亲自指导、准确把握了人物心理弧线才能完成的演出
+
+目前鸡过半了未能见到同等水准的分镜，虽然也有莫提斯半边眼泪这样优秀的画面意向，可惜也没好好回收利用
+
+*****
+
+####  ape-apple  
+##### 23925#       发表于 2025-2-15 18:37
+
+如果刨掉国内，或者说本来也看不到国内消息。mujica眼下可以说是高歌猛进，不管是评分网站还是观看热度、周边销量，比mygo强太多了，简直要回归鼎盛时期，wsd其实并不觉得自己有问题 如果有 那也是老外的问题
+
+*****
+
+####  thisisaspider  
+##### 23926#       发表于 2025-2-15 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433463&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 18:32</a>
+
+笑死，我之前只是写了一点关于喵梦性格解析就被追着骂，还被扣喵粉的帽子，这也能叫攻击性低
+
+—— 来自  ...</blockquote>
+那你要先确定他们是祥厨身份在说话
+
+再确定你是不是把自己苦难扩大化了
+
+*****
+
+####  江口夕  
+##### 23927#       发表于 2025-2-15 18:38
+
+建议这里改成黑泥楼，隔壁再开一个，这楼已经没有讨论价值了，除了排泄和赞同排泄还有别的么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  相坂君  
+##### 23928#       发表于 2025-2-15 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然都在滑坡，但我挺喜欢第一话的处理，当初天真的我以为是剧情编排不够第一话节奏才这么快，把那些旧包袱抖掉，大家想知道的都说了，立马到下一阶段，还留了摘面具怎么办的悬念
+
+结果是给CCC让步，剧情才这么赶啊……
+
+第2话是我不满意的开始，脚本的大手刻意让她们忽略睦的状态，让整话都低气压，甚至第三话也是很刻意地让团队起争执，引出shi中shi的双重人格
+
+4话是直接把母鸡卡埋了，5话母鸡卡风光大葬，6只是在鸡动画坟上多踩几脚夯实泥土
+
+现在已经当作乐子看，wsd自己都不认真，何必呢
+
+*****
+
+####  zhzij111  
+##### 23929#       发表于 2025-2-15 18:38
+
+正经打饭圈大战的话，爱音厨打其他角色厨真说不好输不输吧。
+
+b站那个千早爱音你幸福吗播放量都干到82w了，路人粉这块拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 23930#       发表于 2025-2-15 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433482&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 18:36</a>
+
+那只是因为那段时间祥厨没办法反击而已大祥只硬了狗13话的live和鸡的第1话，然后就一直被抽陀螺被拷打被 ...</blockquote>
+是不是想念不存在的大女主剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 也是一种回旋镖
+
+*****
+
+####  liy30dlys  
+##### 23931#       发表于 2025-2-15 18:39
+
+我是到mujica开头一个月太火才开始看的，我感觉你把鸡团放在狗剧情里面当个敌团这样的定位做对比描写个两三话是合理的。要放整一季的剧情果然hold不住，尤其是前面给大祥老师铺的那么白。反观gbc的dd就算处理的好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 23932#       发表于 2025-2-15 18:39
+
+我要是wsd，我现在火速把立石凛，小日向美香和林鼓子录一期电台。
+
+羊宫妃那太大牌了算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 23933#       发表于 2025-2-15 18:41
+
+ 本帖最后由 天空塔书记官 于 2025-2-15 18:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433490&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 18:37</a>
+那你要先确定他们是祥厨身份在说话
+
+再确定你是不是把自己苦难扩大化了</blockquote>
+哦，那我确实翻了几个人的发言记录
+
+是祥党
+
+动辄“十五年未有之大女主”起手
+
+不是也难啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 23934#       发表于 2025-2-15 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433494&amp;ptid=2208921" target="_blank">相坂君 发表于 2025-2-15 18:38</a>
+
+虽然都在滑坡，但我挺喜欢第一话的处理，当初天真的我以为是剧情编排不够第一话节奏才这么快，把那些旧包袱 ...</blockquote>
+同样的，我觉得第一集节奏快是好事，以为编剧有太多东西写了，不会去描写C团往事。
+
+至少人物起来前不会写。
+
+结果还真串一起写了。只能说上当了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 23935#       发表于 2025-2-15 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433490&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 18:37</a>
+
+那你要先确定他们是祥厨身份在说话
+
+再确定你是不是把自己苦难扩大化了</blockquote>
+我还真有印象 完全不算不上追着骂 而且把编剧按头祥子管不了嘴不过喵梦当做输出论据 
+
+*****
+
+####  刑部姬真可爱  
+##### 23936#       发表于 2025-2-15 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433460&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-15 18:31</a>
+
+给舆论加码的不还是搁置自家live给别人写歌给别人递吉他，crychic和解本来就不需要让灯素希的mygo成员身 ...</blockquote>
+呃，你说的这几个点倒是都是能解释的，
+
+1是并不是搁置live，而是耽搁了彩排之前的练习，ccc弹完春日影后go开始彩排
+
+2给别人写歌这个点讲道理不是很值得抨击，没有ccc出现go团也依然会表演这首歌，只不过祥子在所以灯提一嘴写给祥子的
+
+3递吉他这个嘛，这个逻辑我是认的，不过大家都不喜欢我也就不多解释了
+
+4至于你说的这个成员身份垫的问题，我的理解是ccc在表演时通过独白结构了ccc的特殊性，表演结束时祥子鞠躬离开，灯素希三人对祥睦“无关心”，并在后面由爱音招呼大家开始开始go的彩排，反而是ccc身份垫给了go的身份
+
+5最后这个场外爆炸那确实是wsd自己烂炒的问题
+
+*****
+
+####  大户爱  
+##### 23937#       发表于 2025-2-15 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433493&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 18:38</a>
+建议这里改成黑泥楼，隔壁再开一个，这楼已经没有讨论价值了，除了排泄和赞同排泄还有别的么
+
+—— 来自 Xi ...</blockquote>
+真的，我几天都在场外看乐子。
+泥楼这都算黑泥，那没几个比这里更详平的地方了。
+nga在宣泄情绪，狗吧**战吧在鸡狗大战。b站就不说了，看评分就知道了。
+
+唯一好一点的是邦邦吧，但也在车爱厨。
+真的，到处都是战火，泥楼起码还在和平的讨论。<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 23938#       发表于 2025-2-15 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433517&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 18:42</a>
+
+我还真有印象 完全不算不上追着骂 而且把编剧按头祥子管不了嘴不过喵梦当做输出论据 
+
+ ...</blockquote>
+这不就是他们说的OOC吗。祥子没这么强硬。对应爱音也没这么圣人。
+
