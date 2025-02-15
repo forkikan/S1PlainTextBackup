@@ -4254,3 +4254,275 @@ so，每集内容都对得上的剧透有说我们的小包爱音小姐之后会
 
 但我作为乐子人看得挺开心的，这两天光lofter看厨子骂街就给我带来了不少快乐<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24044#       发表于 2025-2-15 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434072&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:53</a>
+
+灯一年没回信，一年都是看了不回，甚至是锁屏阅读的
+
+立希大概率是没灯我不跟你组
+
+祥子全频道封锁</blockquote>
+讲道理现在这个时间点真不能比，爽姐这几集化身情报素食后和祥睦关系迅速逆转升温，爱音这几集被“冷暴力”目前看来暂时看不到能有所补偿
+
+*****
+
+####  NaAgfykp  
+##### 24045#       发表于 2025-2-15 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434050&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 19:51</a>
+楼里，这个是我自己的留档，做纪念用的</blockquote>
+大概爬了一下，感觉很多都属于是演出来会比现在精彩，但已经没什么机会了的想法了。
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|那毕竟编剧不是我啊2333|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 24046#       发表于 2025-2-15 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434064&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 19:52</a>
+原来这么详细</blockquote>
+不过大多已经被证伪了，没什么参考价值
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 24047#       发表于 2025-2-15 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434132&amp;ptid=2208921" target="_blank">cnlmaa 发表于 2025-2-15 19:57</a>
+其实就是MYGO播出的时候还没有那么多角色厨罢了，观众多了自然有人拿着尺量了
+
+但我作为乐子人看得挺开心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就是当年没有粉丝导致的，这不还是回到了一模一样的事情谁遭遇了一部分以后舆情的差异吗，更何况是分镜、演出、台本操作严重失误的情况，还不是真的系构就想干的情况下。
+
+*****
+
+####  aptx8285144  
+##### 24048#       发表于 2025-2-15 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434086&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:54</a>
+
+我记得啊，但你告诉我前面一年的合法手段怎么一点没有用嘛</blockquote>
+所以你在这说明这是召集其他人过来组队然后找机会踢了对方的正常理由？先声明，我很喜欢素世在go团的心机塑造，认为哪怕在少女乐队番里当一个反派也是可以有个人魅力的（<strong>这对于很多少女乐队的受众估计很难理解</strong>），但这也不是给这话独角兽和柿本各种拙劣描写洗地的理由好吗？?
+
+*****
+
+####  凉良  
+##### 24049#       发表于 2025-2-15 20:00
+
+第四集后还有分析喵梦的价值吗 纯纯工具人
+
+*****
+
+####  大户爱  
+##### 24050#       发表于 2025-2-15 20:00
+
+下一集mygo肯定会包饺子的，她们需要暂时退场，退场前肯定会描写一番团魂的。
+
+*****
+
+####  595505568  
+##### 24051#       发表于 2025-2-15 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434159&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 19:59</a>
+所以你在这说明这是召集其他人过来组队然后找机会踢了对方的正常理由？先声明，我很喜欢素世在go团的心机 ...</blockquote>
+我给谁洗了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，我给他俩傻逼洗地？你在开什么玩笑，不是外面先开始牧场、表都开始用上导致的？
+
+*****
+
+####  thisisaspider  
+##### 24052#       发表于 2025-2-15 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434072&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:53</a>
+
+灯一年没回信，一年都是看了不回，甚至是锁屏阅读的
+
+立希大概率是没灯我不跟你组
+
+祥子全频道封锁</blockquote>
+因为不在剧中，背景板战力和痛苦没人能共情吧
+
+*****
+
+####  南宮凝香  
+##### 24053#       发表于 2025-2-15 20:01
+
+<blockquote>595505568 发表于 2025-2-15 19:56
+那C团解散前的操作呢，C团没全跑之前我看人挽留啥的也不是没做啊，不说已经解散的当下，就说那个时候她做 ...</blockquote>
+再回到三角初華小姐的理論
+
+一個人退隊的當下C團已經解散了
+
+解散後不理爽世小姐，
+
+雖然沒禮貌， 但是是說得過去的
+
+狗團又沒有解散 （至少還沒有）， 標準是不同的
+
+報，商，聯， 團隊基本的東西也做不到
+
+問題又回來了，
+
+人際關係這麼冷漠的C團，
+
+到底是那裡來這麼多的快樂回憶？
+
+祥子找她學姐進貨了？
+
+
+*****
+
+####  是谁的书画  
+##### 24054#       发表于 2025-2-15 20:02
+
+补偿，啥子补偿哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+素爽对待正常人的态度就是像对待立希或者爱音这样，姐妹儿不装以后对这两个人才算是做回人类。毕竟谁也不是什么圣人。
+
+*****
+
+####  66367749  
+##### 24055#       发表于 2025-2-15 20:03
+
+后面还是有希望整一两个抛开前面剧情不看的优秀单回的，动画毕竟是真人团和游戏的广告，搞点角色高光时刻让角色厨忘记前面的也不是不行。
+
+*****
+
+####  595505568  
+##### 24056#       发表于 2025-2-15 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434178&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 20:01</a>
+因为不在剧中，背景板战力和痛苦没人能共情吧</blockquote>
+其实都有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第二话、第三话灯看到素世消息直接回手塞回口袋和回头继续看桌子的，根本不应
+立希直到有灯的时候才被爱音推着勉强入座
+没有人在乎那段怎么回事而已，因为没有前面告诉你之前发生了什么
+
+*****
+
+####  595505568  
+##### 24057#       发表于 2025-2-15 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434183&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:01</a>
+再回到三角初華小姐的理論
+
+一個人退隊的當下C團已經解散了</blockquote>
+那你问分镜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我他妈也想知道啊，我前面楼里又不是没车过这个问题
+这集问题是只有那个傻狗2DCG段吗？
+需要打磨的东西一大堆好吧
+
+*****
+
+####  人又如何  
+##### 24058#       发表于 2025-2-15 20:05
+
+突然还蛮羡慕她们手机晾着对方好几天，我唯一能只读不回的只有老板了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 是谁的书画| + 1|羡慕你还活着|
+
+查看全部评分
+
+*****
+
+####  595505568  
+##### 24059#       发表于 2025-2-15 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434183&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:01</a>
+再回到三角初華小姐的理論
+
+一個人退隊的當下C團已經解散了</blockquote>
+什么叫做不到<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，第六话报 商 联不是都有吗
+第七话这剧情推进关键的部份细节都没有我都不知道他们想写什么，我都不指望他们记得该打磨的部份了
+
+*****
+
+####  wpcc  
+##### 24060#       发表于 2025-2-15 20:07
+
+<blockquote>凉良 发表于 2025-2-15 20:00
+第四集后还有分析喵梦的价值吗 纯纯工具人</blockquote>
+白祥新手村考验罢了
+
+*****
+
+####  ryuusu  
+##### 24061#       发表于 2025-2-15 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434183&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:01</a>
+
+再回到三角初華小姐的理論
+
+一個人退隊的當下C團已經解散了</blockquote>
+跟mana学来的理论吧，毕竟sumimi就俩人，不适用其他团<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24062#       发表于 2025-2-15 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434224&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-2-15 20:05</a>
+突然还蛮羡慕她们手机晾着对方好几天，我唯一能只读不回的只有老板了</blockquote>
+我找我以前大学室友说什么时候玩游戏都能三个礼拜后才被回消息，已经习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 24063#       发表于 2025-2-15 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434166&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 20:00</a>
+
+第四集后还有分析喵梦的价值吗 纯纯工具人</blockquote>
+当然有，如果编剧还清醒的话，喵梦这个角色实际上张力还挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 24064#       发表于 2025-2-15 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434137&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:58</a>
+讲道理现在这个时间点真不能比，爽姐这几集化身情报素食后和祥睦关系迅速逆转升温，爱音这几集被“冷暴力 ...</blockquote>
+如果说演到现在谁最爽我一定选soyo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前还说人家是喜剧演员，现在看所有人都是ccc姨姥，只有人家爽姐正视自己的内心积极行动，拳拳crychic之心天地可鉴日月可表。之前还蛐蛐人家借go还ccc的大计，说人家惊世智慧，现在大计已成，实乃天命所归。至于视ccc如手足视爱音如路人，此等小事不足挂齿
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 24065#       发表于 2025-2-15 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434184&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 20:02</a>
+
+补偿，啥子补偿哦
+
+素爽对待正常人的态度就是像对待立希或者爱音这样，姐妹儿不装以后对这两个人才算是做回 ...</blockquote>
+素世经历飞鸟山以及后面的事情才多少对大祥有免疫力了（只要独角兽和柿本不下死命令），灯皇反而让人有点害怕，因为大祥最毒的打好像没有<strong>直接</strong>命中她身上过，毕竟有立希这道防护墙随时在侧，所以第7话引发场外情绪爆发也是某种的必然
+
