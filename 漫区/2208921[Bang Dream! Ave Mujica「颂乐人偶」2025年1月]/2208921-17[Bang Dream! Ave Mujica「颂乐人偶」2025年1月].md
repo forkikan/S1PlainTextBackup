@@ -8193,3 +8193,217 @@ B部分正常来说不会上纲上线，你也没故意上纲上线，
 
 和我一起给泛哥哥认错吧。
 
+
+*****
+
+####  大户爱  
+##### 24416#       发表于 2025-2-15 23:40
+
+不歪楼了，真是一粉顶十黑。
+
+前面我举个例子说人不可能不出错，意思到了就行，没必要搞文字狱。
+
+还真有人一板一眼给我说，泛式不是故意的，如何如何。但你肯定是故意的。
+
+脑子不正常不是，以后少讨论点up主了。
+
+*****
+
+####  南宮凝香  
+##### 24417#       发表于 2025-2-15 23:40
+
+<blockquote>usodakedo 发表于 2025-2-15 23:34
+到了这个地步，泛式还在幻想给出什么让人信服的理由重组鸡或者什么好的女女关系性，那确实是真情流露了。
+
+ ...</blockquote>
+面具 顏 看起來強 神秘
+
+老鐘這邊自己基於上面四點二創了整年
+
+人氣會高是正常的， 
+
+因為就是基於人氣會高來自填屬性
+
+要是狗雞是接著播， 她人氣至少少1/4
+
+*****
+
+####  Yukino-Yukino  
+##### 24418#       发表于 2025-2-15 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正看你俩就越发理解为啥大鼻子叔叔说话要先叠几十层甲了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| liekong| + 1|是这样的|
+| 凉良| + 1|确实|
+
+查看全部评分
+
+*****
+
+####  AveMujica  
+##### 24419#         楼主| 发表于 2025-2-15 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436185&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 23:33</a>
+同接数呢（</blockquote>
+大概3256人
+
+*****
+
+####  一心而用  
+##### 24420#       发表于 2025-2-15 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436180&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-15 23:33</a></blockquote>
+前6话好评率
+ 第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+ 第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+ 第3话 83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
+ 第4话 82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
+ 第5话 85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
+ 第6话 85.5% 6.3% 4.1% 2.8% 1.4% 约3200人
+第7话 86.7% 3.5% 5.1% 1.8% 2.9% 约3300人
+
+*****
+
+####  pliee  
+##### 24421#       发表于 2025-2-15 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436253&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-15 23:40</a>
+
+反正看你俩就越发理解为啥大鼻子叔叔说话要先叠几十层甲了。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+然而看来叠甲并没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 24422#       发表于 2025-2-15 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436185&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 23:33</a>
+同接数呢（</blockquote>
+<img src="https://p.sda1.dev/22/49f366e7b7e71a805cb6094e2a476799/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 24423#       发表于 2025-2-15 23:42
+
+在这里问下，为什么我的鹅球不能回复别人，也不能发图存图
+
+*****
+
+####  是谁的书画  
+##### 24424#       发表于 2025-2-15 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436215&amp;ptid=2208921" target="_blank">Dpeey 发表于 2025-2-15 23:37</a>
+
+有人能告诉我独角兽和监督疑似决裂是啥情况吗我真的很好奇制作组内部是个什么状态 ...</blockquote>
+简而言之，哪怕是决裂了，这剧本的大纲基本上已经在之前定下了，哪怕没有也八成九成了。
+
+或许后面改了，也或许没改，这都不好说，没人知道。纯想象空间。
+
+以我个人的角度来看，我不算特别喜欢独角兽，所以我只能怀疑她多半作妖或者拖稿了。
+
+*****
+
+####  穷且坚强着  
+##### 24425#       发表于 2025-2-15 23:44
+
+我大概算是半个祥厨，对这种风暴中心的角色有偏爱
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">编剧无死角抽了6集祥子，第七集三分钟让祥子发生转变，这是真把观众当弱智了
+
+费尽心机绞尽脑汁的毁灭一个角色的一切又拿不出相应份量的转变这才是我第七集看得最生气的，前几集我一直在跟朋友说只要能把祥子角色形象重塑好我能捏着鼻子认可，结果端出来的东西是这样的
+
+灾难级的演出和live只是压死骆驼的最后一根杠铃罢了
+
+*****
+
+####  刑部姬真可爱  
+##### 24426#       发表于 2025-2-15 23:44
+
+霓虹金彻底疯了<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24427#       发表于 2025-2-15 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436216&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 23:37</a>
+
+你带入了会爽的 而且我本身就和独角兽差不多xp还能看六集白祥已经飞起来了 ...</blockquote>
+那铁棍柿本说或许是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 24428#       发表于 2025-2-15 23:45
+
+ 本帖最后由 安娜导函数 于 2025-2-15 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435826&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-15 22:51</a>
+所以喵梦独走就受到处罚了吗？
+
+说别人不应该拿结果论，你不也拿结果论了喵梦脱面具的理由吗？
+
+总不能摘了 ...</blockquote>
+我没说不是错的呀，而且摘面具和a团解体并不能说是因果关系，只能说是导火索。
+我只是觉得喵梦至少看起来还是个普通人类范畴的生物，母鸡卡剩下几个人现在看描写有几个还看起来是个人呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 24429#       发表于 2025-2-15 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436273&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 23:43</a>
+
+简而言之，哪怕是决裂了，这剧本的大纲基本上已经在之前定下了，哪怕没有也八成九成了。
+
+或许后面改了， ...</blockquote>
+除非真有当事者事后一五一十把讨论过程讲出来，这事情完全就是黑箱
+
+*****
+
+####  liekong  
+##### 24430#       发表于 2025-2-15 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">反驳你一句就直接滑坡成维护人家UP说的话不可质疑金科玉律了，这就是看mujica不得不尝的滑坡的一环吧
+
+*****
+
+####  AveMujica  
+##### 24431#         楼主| 发表于 2025-2-15 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436270&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-15 23:42</a>
+在这里问下，为什么我的鹅球不能回复别人，也不能发图存图</blockquote>
+去网页端认证手机
+
+*****
+
+####  usodakedo  
+##### 24432#       发表于 2025-2-15 23:46
+
+话说你b这次貌似没锁分？说好的大手呢？之前搜鸡的时候还会给我弹出来小广告，不知道是一次性的还是现在没了
+
+*****
+
+####  天空塔书记官  
+##### 24433#       发表于 2025-2-15 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436270&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-15 23:42</a>
+在这里问下，为什么我的鹅球不能回复别人，也不能发图存图</blockquote>
+应该是没认证，网页端切pc版就能看到了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -4220,3 +4220,14 @@ aiai这次状态比武藏野要好，但是东体音响垃圾
 
 mc猜中文挺有意思的，弥补了没有不可崩的遗憾
 
+
+*****
+
+####  Milarvoz  
+##### 26959#       发表于 2025-2-15 23:42
+
+aiai这状态真无敌了。爽死了。
+猜中文最后一个搞那么长不知道是谁想的，还想让台下一起说也太为难了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

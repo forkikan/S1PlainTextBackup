@@ -13733,3 +13733,24 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 哦，对，再加一个就是玛秋的哈罗，这个知道的东西也很多，比它的原主人黑拳女老板知道的还多。
 
+
+*****
+
+####  积木23ki  
+##### 6977#       发表于 2025-2-15 23:37
+
+喵安也算是“主人公”吧
+
+*****
+
+####  Aaa炒面面包批发  
+##### 6978#       发表于 2025-2-15 23:40
+
+到了一批，很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+竹老师伟大
+可惜二手市场上的胶片对我来说太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+还有杂志newtype上的上映前车轱辘话
+<img src="https://p.sda1.dev/22/54d5e27b41d73f283160c27d7a90201d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
