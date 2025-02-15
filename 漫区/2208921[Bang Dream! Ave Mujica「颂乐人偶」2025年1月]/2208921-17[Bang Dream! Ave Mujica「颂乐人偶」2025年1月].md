@@ -8407,3 +8407,243 @@ B部分正常来说不会上纲上线，你也没故意上纲上线，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24434#       发表于 2025-2-15 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436299&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-15 23:46</a>
+
+话说你b这次貌似没锁分？说好的大手呢？之前搜鸡的时候还会给我弹出来小广告，不知道是一次性的还是现在没 ...</blockquote>
+楼上有楼友说是大概锁了1分
+
+*****
+
+####  大户爱  
+##### 24435#       发表于 2025-2-15 23:48
+
+第七集你要说最大的问题，那我觉得也是祥子。
+
+大鼻子这点说的还是很好的，你花了六集去摧毁一个形象，那你至少要花同等的精力去重建它。
+
+现在太轻描淡写了。我们知道祥子血条空了，但你不可能血条空了，就把祥子打光堕了。感情soyo是抢人头的最后一刀。
+
+客观上，祥子成了mygo—mujiaca企划的中心角色，她立不起来，整个企划在剧情上就岌岌可危了。
+
+*****
+
+####  595505568  
+##### 24436#       发表于 2025-2-15 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436259&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-2-15 23:41</a>
+大概3256人</blockquote>
+谢谢楼主<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 24437#       发表于 2025-2-15 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436296&amp;ptid=2208921" target="_blank">AveMujica 发表于 2025-2-15 23:46</a>
+去网页端认证手机</blockquote>
+测试测试
+
+*****
+
+####  大户爱  
+##### 24438#       发表于 2025-2-15 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436295&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 23:46</a>
+反驳你一句就直接滑坡成维护人家UP说的话不可质疑金科玉律了，这就是看mujica不得不尝的滑坡的一环吧 ...</blockquote>
+谢谢你，我也理解泛式每次为什么要叠那么厚甲了。
+我也就上个论坛偶尔发几句，都能遇到您。大up主赚钱也不容易啊。
+
+*****
+
+####  非建政专用号  
+##### 24439#       发表于 2025-2-15 23:51
+
+想了下大象老师第七集能蹲木头人家门口客观上有一部分原因是因为坐上迈巴赫之后不用天天去上班打卡了
+现实要素抽了半天陀螺，还得是温暖祥爷把现实挡出去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厚乳果珍爽  
+##### 24440#       发表于 2025-2-15 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436289&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 23:45</a>
+
+我没说不是错的呀，而且摘面具和a团解体并不能说是因果关系，只能说是导火索。
+
+我只是觉得喵梦至少看起来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果说喵梦是宠物定位的话，剩下的四个人就是饲养人了，饲养人没养好宠物，伤人了，宠物有病，人也有病。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 24441#       发表于 2025-2-15 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436264&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-15 23:42</a></blockquote>
+准备去看你隔壁专版发的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">评分贴的，怎么发现你被禁言了
+
+*****
+
+####  南宮凝香  
+##### 24442#       发表于 2025-2-15 23:51
+
+祥子大概 8 - 10 話還要繼續抽打 （至少初華還沒抽她）
+
+所以這季好像很簡單就白了
+
+其實只是回了一點血去接受下一輪的抽打
+
+*****
+
+####  dqtql  
+##### 24443#       发表于 2025-2-15 23:52
+
+<img src="https://p.sda1.dev/22/cdb69780ee81fd72024cd97c20e5c420/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 24444#       发表于 2025-2-15 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436299&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-15 23:46</a>
+
+话说你b这次貌似没锁分？说好的大手呢？之前搜鸡的时候还会给我弹出来小广告，不知道是一次性的还是现在没 ...</blockquote>
+说是有锁，本来更惨烈，但是没啥用，不像其他番锁分可以打马虎眼，这片太多人盯着了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 24445#       发表于 2025-2-15 23:52
+
+说祥子3分钟转变的，其实祥子祸害一方的资本就是不破防啊，但第6集开始已经持续露血条了，第7集外力推着见睦，主动见睦，弹C团歌，也算是递进的治疗行为。
+
+但要我说这股自尊心确实没有 mygo 第一季素世心路揭秘来得逻辑闭合。
+
+*****
+
+####  595505568  
+##### 24446#       发表于 2025-2-15 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436280&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 23:44</a>
+霓虹金彻底疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟我们觉得不好好对待朋友同学已经是80了；他们真的能像动画里一样给你书丢水塘里、鞋子偷走、桌子上写东西、桌子上放花瓶，甚至GBC当时反80的被80都是他们自己的意识符号了，已经无法理解日本这块文化底色变样到什么地步了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  huxiaopao163  
+##### 24447#       发表于 2025-2-15 23:53
+
+泛式讲完mujica后上舰的多到念不完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  595505568  
+##### 24448#       发表于 2025-2-15 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436310&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:48</a>
+第七集你要说最大的问题，那我觉得也是祥子。
+
+大鼻子这点说的还是很好的，你花了六集去摧毁一个形象，那你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是祥子转变和包饺子的任务几乎把所有角色都按着头在运动，完全看不粗来弧光变化
+
+*****
+
+####  是谁的书画  
+##### 24449#       发表于 2025-2-15 23:53
+
+什么？！看母鸡卡的也都死光光啦，好！好！好消息再报来，终于来好消息了
+
+*****
+
+####  大户爱  
+##### 24450#       发表于 2025-2-15 23:54
+
+大祥好多抽的都是不必要的。第五六集，大部分内容抽她，除了给mygo做垫子，还有什么必要嘛。
+
+前面4集固然不好，但五六七集mygo角色的发挥，节奏上更是毁灭了母鸡卡的根基。
+因为这几集本应该留给母鸡卡成员自己来解决问题，塑造人物弧光的。
+
+*****
+
+####  MagicGiraffe  
+##### 24451#       发表于 2025-2-15 23:55
+
+霓虹人民喜欢，漏油算老几<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24452#       发表于 2025-2-15 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436340&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 23:51</a>
+
+祥子大概 8 - 10 話還要繼續抽打 （至少初華還沒抽她）
+
+所以這季好像很簡單就白了</blockquote>
+真假的，哪来的消息，大祥吃挺好的嘛
+
+*****
+
+####  木板春香  
+##### 24453#       发表于 2025-2-15 23:55
+
+  心悸主要还是熬夜和失眠不足容易诱发的
+
+*****
+
+####  ccared  
+##### 24454#       发表于 2025-2-15 23:55
+
+mujica终于晋升cn动画区的再见爱人了
+
+*****
+
+####  一心而用  
+##### 24455#       发表于 2025-2-15 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436337&amp;ptid=2208921" target="_blank">灼眼的夏娜酱 发表于 2025-2-15 23:51</a>
+准备去看你隔壁专版发的评分贴的，怎么发现你被禁言了</blockquote>
+因为发剧透贴了，没事这周有人发了，而且下周就解禁了。
+
+*****
+
+####  保真花生  
+##### 24456#       发表于 2025-2-15 23:57
+
+日本人是真的喜欢这一套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 24457#       发表于 2025-2-15 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436356&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-15 23:53</a>
+
+泛式讲完mujica后上舰的多到念不完
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+情绪价值的重要性啊
+
