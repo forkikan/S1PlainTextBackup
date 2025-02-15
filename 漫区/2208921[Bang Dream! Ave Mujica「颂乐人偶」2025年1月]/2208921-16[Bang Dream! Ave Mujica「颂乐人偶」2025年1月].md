@@ -15618,3 +15618,145 @@ mujica比mygo早？：实际上仅仅是之前有一份采访说的mu ...</block
 你去看23年的 顺便独角兽要写个十五年大女主这个思想就是毁灭鸡狗的核心问题 这个东西只会比23年更早 ...</blockquote>
 这有证据，武田绫乃和绫奈由仁子对谈那次就感觉到了，没有公平分配对角色的爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 23605#       发表于 2025-2-15 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431617&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:47</a>
+当独角兽创作出祥子和后宫群的一刹那就完蛋了真的</blockquote>
+按照当年对谈来看不就是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23606#       发表于 2025-2-15 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431613&amp;ptid=2208921" target="_blank">_47 发表于 2025-2-15 13:46</a>
+
+怎么现在才有人注意到go的团魂问题，go的团魂就是EP10，就是灯“组一辈子乐队”这个想法，动画里面就是用通 ...</blockquote>
+soyo也没放下 卧薪尝胆了 但是为了武士道卖四个团的愿望不能同意复婚 逗逗你的
+
+*****
+
+####  wpcc  
+##### 23607#       发表于 2025-2-15 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431624&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 13:48</a>
+
+按照当年对谈来看不就是吗，顺带也解释了高太尉为什么动画里这么改武田还会点头的，不都是这样的人吗 ...</blockquote>
+太爽了 我也想干这种事 我最喜欢的xp就是路边捡到大祥老师当他的普罗丢色
+
+*****
+
+####  看穿一切的鱼  
+##### 23608#       发表于 2025-2-15 13:51
+
+其实ccc只有大祥老师一个人放下了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  柴突猛进  
+##### 23609#       发表于 2025-2-15 13:51
+
+柿本已经说他不想塑造mygo是个关系很好的乐队了，至于团魂更是不存在的东西，真是烂完了，当初mygo这么好一部作品就给坑害成这样
+
+<img src="https://img.saraba1st.com/forum/202502/15/134941c4545ejv7ee0tfe5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3959.PNG</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/134941z3rz6od3ukfgd6fo.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3960.PNG</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 13:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  AshPenguin  
+##### 23610#       发表于 2025-2-15 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431561&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-15 13:39</a>
+
+怎么能有这么多自己脑补的弱智，我一条一条来辟谣：
+
+mujica比mygo早？：实际上仅仅是之前有一份采访说的mu ...</blockquote>
+你说这个mujica也有脚本会议也是反复推论出来的，这是从mygo访谈得到的推论还是原文就这么说的？
+
+mygo逻辑有瑕疵，但瑕不掩瑜。mujica这个逻辑要真是反复推论出来的，那说明武士道从木谷到绫奈都不觉得脚本有问题，这件事就更显得可笑了。
+
+*****
+
+####  天空塔书记官  
+##### 23611#       发表于 2025-2-15 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431610&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 13:46</a>
+我是觉得C团的事就应该在狗动画13话之后，搞个DLC就搞定，然后再进入鸡动画。
+
+当然了这会造成很多逻辑上 ...</blockquote>
+这个也不太好办，要讲CCC就没法避开春日影，这必然会涉及到祥子的过去和睦的心结，但事实却是讲了还是白讲，即使把前几集单独拿出去，之后要讲睦祥还是会扯到CCC，这尾巴还是会留着，就…很难受
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wpcc  
+##### 23612#       发表于 2025-2-15 13:55
+
+<blockquote>看穿一切的鱼 发表于 2025-2-15 13:51
+其实ccc只有大祥老师一个人放下了是吗
+
+—— 来自 S1Fun</blockquote>
+怎么说呢ccc等于心里按摩器 mujica才是要拿下的奖杯 不靠老登我和小姨和半身直接重登武道馆 家里有soyo妈妈亲亲 太几把无敌了
+
+*****
+
+####  稀勢のささ  
+##### 23613#       发表于 2025-2-15 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌了，只为了开音趴存在的乐队是吧，确实很多东西都能解释了
+
+*****
+
+####  怀沙汨罗  
+##### 23614#       发表于 2025-2-15 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431558&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 13:38</a>
+粉毛痴子已经在邦吧战吧紫吧人人喊打了，还隔这自以为无敌盾全网出征呢，真正的核心圈子会给这帮电竞驱二 ...</blockquote>
+你要不是串子那就真有点入魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ryuusu  
+##### 23615#       发表于 2025-2-15 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431577&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 13:41</a>
+
+虐黑祥捧白祥和小姨是绝对的独角兽私货 男监督是弄不出这种女频东西来的 ...</blockquote>
+祥厨里白祥粉黑祥粉到底占几成啊？感觉到6话还厨祥的都爱那死倔无差创人味，到7一转白祥过于清澈就受不了了
+
+*****
+
+####  wpcc  
+##### 23616#       发表于 2025-2-15 13:57
+
+<blockquote>ryuusu 发表于 2025-2-15 13:56
+祥厨里白祥粉黑祥粉到底占几成啊？感觉到6话还厨祥的都爱那死倔无差创人味，到7一转白祥过于清澈就受不了 ...</blockquote>
+黑祥粉现在拦着武士道赚钱了早该死了。而且你真看的下去黑祥吗 黑祥等于清告
+

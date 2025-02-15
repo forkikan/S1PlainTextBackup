@@ -2348,3 +2348,16 @@ ps有人连上的吗
 
 好粪的游戏，唯一的玩点是看魂卫兵嘴硬
 
+
+*****
+
+####  pzk  
+##### 258#       发表于 2025-2-15 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩了两小时终于有打进第二天的一把，结果突然掉线。
+等级太关键了，没等级啥玩意砍你都一刀死。
+
+和路人的配合只能用狗屎来形容，时间紧，打怪又危险，误入高等级营地又有人爱死磕，好歹给队友标点加句语音提示呗？
+
+手感也是稀碎，魂的动作配上角色比马还快的机动性，在火场救队友的时候可以说是十次能有五次挥空，后来我都只用远程来救队友了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
