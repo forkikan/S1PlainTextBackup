@@ -13100,3 +13100,89 @@ wsd几乎就明摆着告诉你ccc要重建了
 
 还有，回过头来看5、6两集是有大问题的，间接导致了第7集的恶劣观感
 
+
+*****
+
+####  保真花生  
+##### 23378#       发表于 2025-2-15 10:26
+
+说起来这百合小姨文学不就是轻拍吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 23379#       发表于 2025-2-15 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429865&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 10:07</a>
+
+有人觉得演出没问题，反正就是有人照顾得到有人照顾不到的，大祥大女主事实上多收点照顾很正常
+
+可我个人觉 ...</blockquote>
+冲声优还是太离谱了
+
+*****
+
+####  Deozlin  
+##### 23380#       发表于 2025-2-15 10:27
+
+ 本帖最后由 Deozlin 于 2025-2-15 10:28 编辑 
+
+anno这个热度是有点吓人
+
+今天凌晨2点也有1000+人在遛
+
+<img src="https://img.saraba1st.com/forum/202502/15/102703fsnhnnncbxuweqqf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1210.png</strong> (372.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 10:27 上传
+
+*****
+
+####  一心而用  
+##### 23381#       发表于 2025-2-15 10:28
+
+卡片战斗先导者06 千早爱音 第二次客串
+<img src="https://p.sda1.dev/22/605d7cf3cc0956578c46a92052b4f077/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  swessia  
+##### 23382#       发表于 2025-2-15 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱音这人气我是该笑呢还是哭呢
+
+前几天买爱音罗森立牌还被黄牛加价八块，不过能包邮忍了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 23383#       发表于 2025-2-15 10:33
+
+粉圈和电竞圈倒灌的福报啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 23384#       发表于 2025-2-15 10:34
+
+就不说这第七集演的狗团好似c团青春版了。
+
+有的人觉得c团真死了才比较奇怪，刚给c团安排了队服演唱会的烂炒之王武士道知道这件事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  FanFun  
+##### 23385#       发表于 2025-2-15 10:36
+
+电竞圈抽象圈厕妹合流的战斗力，杠杠的
+
