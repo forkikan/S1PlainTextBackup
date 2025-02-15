@@ -13721,3 +13721,108 @@ live变多了你是一点不看啊 和黑武士道的没话说了 木圣伟大 1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  是谁的书画  
+##### 23436#       发表于 2025-2-15 11:36
+
+想象你准备看mygo only的live，结果演到高潮突然场景一黑，立石凛和青木阳菜下去换了三个人上来整了段ccc限时重组春日影<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+那这算惊喜还是惊吓我不好说，但从目前来看wsd好像可能真会觉得这是惊喜。
+
+感动啊，你们怎么不感动呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 23437#       发表于 2025-2-15 11:37
+
+<img src="https://img.saraba1st.com/forum/202502/15/113521sdslmcrm9c9mr1ih.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250215112839.png</strong> (614.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:35 上传
+
+初华连着下线2集看来确实在憋大的，MYGO十三话大象老师写的剧本真要成回旋镖扎自己身上了。
+
+初华会因爱生恨用什么样的方式[咒杀]大象老师呢？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23438#       发表于 2025-2-15 11:37
+
+<blockquote>怀沙汨罗 发表于 2025-2-15 11:30
+怎么有人还一直强调什么电竞圈抽象圈和厕妹啊要贴标签邦邦难道就是什么上的了台面的策划吗？2.5次元手游加 ...</blockquote>
+道理是这个道理 所以破了圈重写剧本的话 还是日本人吗 更别提这个东西早就写完了
+
+*****
+
+####  南宮凝香  
+##### 23439#       发表于 2025-2-15 11:37
+
+投入量多了也沒多出一團的量
+
+別的不說，
+
+沒CCC， 這次TFT的宣發的資源就是雞的了
+
+*****
+
+####  wpcc  
+##### 23440#       发表于 2025-2-15 11:38
+
+<blockquote>南宮凝香 发表于 2025-2-15 11:37
+投入量多了也沒多出一團的量
+
+別的不說，
+</blockquote>
+tft是配合剧本的 剧本现在还没重建鸡呢
+
+
+*****
+
+####  wpcc  
+##### 23441#       发表于 2025-2-15 11:40
+
+爱音厨和ylg都不要负隅顽抗了 动画已经做完了 手游剧情都写完了 真不满去做空武士道吧 我看也就这样了
+
+*****
+
+####  w酱  
+##### 23442#       发表于 2025-2-15 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430601&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 11:36</a>
+想象你准备看mygo only的live，结果演到高潮突然场景一黑，立石凛和青木阳菜下去换了三个人上来整了段ccc限 ...</blockquote>
+有一说一啊
+live这么演肯定是好评啊
+难道还能是恶评
+
+观众没那么变态
+
+
+*****
+
+####  天空塔书记官  
+##### 23443#       发表于 2025-2-15 11:42
+
+其实要说“内部爱/恨”“皮套”这种说法好像还是二游圈开始的
+
+嘛，老东西早就跟不上时代了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23444#       发表于 2025-2-15 11:46
+
+<blockquote>天空塔书记官 发表于 2025-2-15 11:42
+其实要说“内部爱/恨”“皮套”这种说法好像还是二游圈开始的
+
+嘛，老东西早就跟不上时代了</blockquote>
+独角兽有前科的。而且最早是日本人和小说家弄出来的 二次元编剧有样学样罢了
+
