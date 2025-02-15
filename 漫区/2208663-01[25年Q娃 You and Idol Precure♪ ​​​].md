@@ -2309,3 +2309,27 @@ Q娃内斗还不容易吗
 
 犬q的粉主太边缘化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 481#       发表于 2025-2-15 20:30
+
+第03話　勇気を出して♪キュアウインクデビュー！
+
+脚本：いなばちあき
+
+絵コンテ：今千秋
+
+演出：飛田剛
+
+作画監督：小澤誠、片山敬介
+
+美術：戸杉奈津子
+
+新一年生歓迎会での合唱に向けて、練習に励むうた（CV.松岡美里）のクラス。伴奏者のなな（CV.髙橋ミナミ）は先日のピアノコンクールでの失敗を引きずっており、新一年生歓迎会の練習でもピアノを弾き間違えてしまう。そんなななを心配したうたは、昼休みにいっしょにお弁当を食べながら、歌でななを元気づける。ところがそのとき、プリルンがくしゃみをしたのをきっかけに、自分がキュアアイドルであることを明かしてしまう。放課後、うたに喫茶グリッターへ連れてきてもらったななは、うたの両親からうたが小さい頃、ピアノの発表会に出たときのことを聞かされ、幼い頃にうたと出会っていたことを思い出す。翌日、自分の演奏を楽しみに聞きにきてくれるはもりのためにもがんばろう、と決意しながらうたと登校するななだったが、そこにマックランダーがあらわれる。はもりがマックランダーにとりこまれていると知ったうたがキュアアイドルに変身し、広場へとマックランダーを誘いだす。驚き立ち止まるななだが──
+<img src="https://files.catbox.moe/fqaxl6.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/rpdsu1.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/nxhrj9.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/jbibm1.jpg" referrerpolicy="no-referrer">
+

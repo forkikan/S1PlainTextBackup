@@ -13552,3 +13552,25 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 性别骑士系统也太搞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 6965#       发表于 2025-2-15 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434281&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-15 20:11</a>
+
+匿名版有推测过欧米伽塞可缪的使用要求
+
+最后通过首席哥和玛秋的条件对比，得出结论是：当GQX在搭载阿尔法 ...</blockquote>
+肯定不是因为性别吧，如果是性别的话吉翁那边早测出来了吧。或者就是吉翁那边已经测出需要什么条件，但是达到这个条件很困难。
+
+但是目前看来这系统比ntd还成熟、且对驾驶员负担更小。但是是通过牺牲泛用性来达到的。
+
+*****
+
+####  虛無迴廊  
+##### 6966#       发表于 2025-2-15 20:30
+
+谁会设计限制性别的战斗系统，就算设计者崆峒也不是在这恐啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

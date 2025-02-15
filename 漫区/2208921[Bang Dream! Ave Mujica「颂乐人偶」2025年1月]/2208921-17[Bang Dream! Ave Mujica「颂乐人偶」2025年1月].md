@@ -4871,3 +4871,164 @@ MYG ...</blockquote>
 
 最近这部番场外铺天盖地的，让人很好奇。不过我连她们人名和人头都没认清，只把祥子人脸比对成功了。毕竟也没真情实感追过，如果一口气赶到最新事发现场，感觉好刺激啊，就算吐槽也没什么激情了。感觉我还是完结再来看看风评再说了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24099#       发表于 2025-2-15 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434395&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-15 20:21</a>
+
+泛式自己做快乐追番人倒还好，但他扩散的“我嘴笨……”系列话术看多了，已经有点超出他能控制的范围了
+
+— ...</blockquote>
+本来是说拿来结束“争论”缩壳挨打，现在反倒成了起手式搞道德绑架，只能说有影响力的up主真得谨言慎行，稍微有点梗就能给满世界传播和解构
+
+*****
+
+####  wpcc  
+##### 24100#       发表于 2025-2-15 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434350&amp;ptid=2208921" target="_blank">kyonkoism 发表于 2025-2-15 20:17</a>
+
+这不就符合了“除非是实在太想和一起看的人找话题 ”这个前置条件了么，杀mmr也是找话题！ ...</blockquote>
+讲道理我有独角兽致敬高达uc的完美剧本，可惜这里写不下！ 都能对的上号的
+
+*****
+
+####  是谁的书画  
+##### 24101#       发表于 2025-2-15 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433915&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 19:40</a>
+
+为爱音抱不平还行，这阅读理解大概是体育老师教的，不知道还以为玩乐队是结婚。
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+人家确实说了一辈子，要是这都不算结婚，我<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 24102#       发表于 2025-2-15 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434446&amp;ptid=2208921" target="_blank">迷雾塔 发表于 2025-2-15 20:25</a>
+最近这部番场外铺天盖地的，让人很好奇。不过我连她们人名和人头都没认清，只把祥子人脸比对成功了。毕竟也 ...</blockquote>
+那你现在已经进入最适合追这部番的状态了——乐子人模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 24103#       发表于 2025-2-15 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434431&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:24</a>
+這代表Soyo 小姐平時也是個Emo 人</blockquote>
+那应该是爱音一个人的反应，但是立希也是就很奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你问我我也想问为什么硬写没有回短信但是第六话手机上有个明显“了解”的表情包在上面，为什么要硬来三天三夜和一个月，逻辑和人物已经被塞到都合大纲里硬跑了我也很绝望啊
+
+*****
+
+####  forgetit  
+##### 24104#       发表于 2025-2-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434439&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-15 20:24</a>
+
+今晚</blockquote>
+米泽没有词条
+
+*****
+
+####  一心而用  
+##### 24105#       发表于 2025-2-15 20:28
+
+<img src="https://p.sda1.dev/22/5b809c2f6eca21c5b8ac0307c043d707/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24106#       发表于 2025-2-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434431&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:24</a>
+
+這代表Soyo 小姐平時也是個Emo 人</blockquote>
+指不定素世在那无数个大祥不回消息的夜里听了多少次水星记呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 24107#       发表于 2025-2-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434446&amp;ptid=2208921" target="_blank">迷雾塔 发表于 2025-2-15 20:25</a>
+
+最近这部番场外铺天盖地的，让人很好奇。不过我连她们人名和人头都没认清，只把祥子人脸比对成功了。毕竟也 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/15/202744gbgg30r5h78gzl0g.jpg" referrerpolicy="no-referrer">
+
+<strong>)JDH{1XF{PU{KSME4}@83KK_tmb.jpg</strong> (23.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 20:27 上传
+
+看着游行的人群其实不用知道他们在干嘛，想热闹就进去一起嗨，到时候再回家看新闻发生啥就行，片可以不看，梗可以先玩！
+
+*****
+
+####  南宮凝香  
+##### 24108#       发表于 2025-2-15 20:30
+
+<blockquote>是谁的书画 发表于 2025-2-15 20:26
+人家确实说了一辈子，要是这都不算结婚，我</blockquote>
+愛情這東西我明白， 但永遠是什麼
+
+*****
+
+####  595505568  
+##### 24109#       发表于 2025-2-15 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434492&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:30</a>
+愛情這東西我明白， 但永遠是什麼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结婚也说一辈子，然后我们看看东亚区结婚离婚率，
+吼吼吼夸张哦
+
+*****
+
+####  ryuusu  
+##### 24110#       发表于 2025-2-15 20:31
+
+乐队番又没live又没插入歌最难受，让初华多来几首新歌就调理好了
+
+
+*****
+
+####  595505568  
+##### 24111#       发表于 2025-2-15 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434515&amp;ptid=2208921" target="_blank">ryuusu 发表于 2025-2-15 20:31</a>
+乐队番又没live又没插入歌最难受，让初华多来几首新歌就调理好了</blockquote>
+不过如果第七话C团的歌唱好了我倒是真的怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，灯要是能全身心唱进去了就很吓人，那其实人物塑造隐雷埋了个大的。
+
+*****
+
+####  单脚着地  
+##### 24112#       发表于 2025-2-15 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了
+
+*****
+
+####  aptx8285144  
+##### 24113#       发表于 2025-2-15 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434482&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-15 20:28</a></blockquote>
+看到这张图突然才意识到灯和睦其实某种意义上有点像，当一个五人团队有两个拙于言辞或者说是沉默类型的人物，其实是挺危险的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">（一般二次元配置最好只有一个，特别是五人团队里）
+
+*****
+
+####  595505568  
+##### 24114#       发表于 2025-2-15 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434543&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:34</a>
+不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱音要是波奇那个实力早就被缺人的一线队伍拉走了，还有什么mygo啊
+
