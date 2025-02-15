@@ -9224,3 +9224,51 @@ C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  烂片雷达  
+##### 24514#       发表于 2025-2-16 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436692&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-16 00:37</a>
+这祥子真能代入？一代一个不吱声吧，说好的凤傲天然后一点高光表现不给
+
+—— 来自 S1Fun ...</blockquote>
+又不是所有人都爱代入风傲天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+又美又惨自尊又强也可以是很好的代入对象<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 24515#       发表于 2025-2-16 00:47
+
+看书，爬论坛，吃饭，打游戏，洗澡。。。。然后关掉灯躺床上，看着黑漆漆的天花板，脑海里只剩一个念头:果然，我还是喜欢丰川祥子
+
+*****
+
+####  刑部姬真可爱  
+##### 24516#       发表于 2025-2-16 00:50
+
+不是楼友们真就这么直白的开聊疑似剧透了吗，能不能给不想看剧透的一条活路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24517#       发表于 2025-2-16 00:51
+
+只有没看过go的才能骂独角兽 否则就是回旋镖 我还好没看
+
+
+*****
+
+####  dqtql  
+##### 24518#       发表于 2025-2-16 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436745&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-16 00:50</a>
+不是楼友们真就这么直白的开聊疑似剧透了吗，能不能给不想看剧透的一条活路
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+除非断网，躲不掉的。我逛贴吧发现剧透内容直接写在标题里也是麻了。
+
