@@ -4368,3 +4368,14 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 
 送乐人偶
 
+
+*****
+
+####  novalli  
+##### 426#       发表于 2025-2-15 20:44
+
+感觉我大概是破防了，不然也不会毫不犹豫的投-2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过说实话，看过的高开低走的作品也不是只有这一部，真失望到破防的也有过，但追番体验还是独一份，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

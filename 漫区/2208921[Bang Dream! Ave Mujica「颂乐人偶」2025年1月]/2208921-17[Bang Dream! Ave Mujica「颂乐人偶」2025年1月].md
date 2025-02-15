@@ -5032,3 +5032,282 @@ MYG ...</blockquote>
 不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱音要是波奇那个实力早就被缺人的一线队伍拉走了，还有什么mygo啊
 
+
+*****
+
+####  595505568  
+##### 24115#       发表于 2025-2-15 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434547&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 20:35</a>
+看到这张图突然才意识到灯和睦其实某种意义上有点像，当一个五人团队有两个拙于言辞或者说是沉默类型的人 ...</blockquote>
+C团里有两个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以C团没了（超载了）
+
+*****
+
+####  天空塔书记官  
+##### 24116#       发表于 2025-2-15 20:36
+
+不过就爱音的性格而言，她很难从一开始就耐下心来学吉他就是了，和她共同点很多的透子也是类似的情况<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ky刃  
+##### 24117#       发表于 2025-2-15 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434013&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:48</a>
+
+春日影那里应该直接用立希模糊想起自己live的时候其实敲错鼓，发现好像C团也没那么特别；素世那边用大量 ...</blockquote>
+C团的日常还是太少了，来个OVA补一下吧（
+
+*****
+
+####  595505568  
+##### 24118#       发表于 2025-2-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434563&amp;ptid=2208921" target="_blank">ky刃 发表于 2025-2-15 20:37</a>
+C团的日常还是太少了，来个OVA补一下吧（</blockquote>
+OVA就不要了，素世视角的漫画里能写一点就得了
+我只是谈这个演出问题用台本解决太草台了，还是说他要告诉你大家都没认真演出都在抛C团包袱准备走所以音乐也听不进去了
+
+*****
+
+####  ryuusu  
+##### 24119#       发表于 2025-2-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434526&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:32</a>
+
+不过如果第七话C团的歌唱好了我倒是真的怕了，灯要是能全身心唱进去了就很吓人，那其实人物塑造隐雷埋了 ...</blockquote>
+场外都活了说这些..而且剧中表现就是全身心唱的只是导演没让观众届到<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 24120#       发表于 2025-2-15 20:38
+
+ 本帖最后由 看穿一切的鱼 于 2025-2-15 20:39 编辑 
+
+我看wsd也别装了，c团ova，剧场版都整出来吧，**方方来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+soyo的漫画现在讲的也都是c团的事吧。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  是谁的书画  
+##### 24121#       发表于 2025-2-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434543&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:34</a>
+
+不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了 ...</blockquote>
+开启爱傲天模式，家人们我又开始幻想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 24122#       发表于 2025-2-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434526&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:32</a>
+
+不过如果第七话C团的歌唱好了我倒是真的怕了，灯要是能全身心唱进去了就很吓人，那其实人物塑造隐雷埋了 ...</blockquote>
+事实上你们嘴上这集没传达到什么，但恐怖就是实质C团实力C团团魂已经真真切切传达老钟每个人心中的
+
+这点非常恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24123#       发表于 2025-2-15 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434583&amp;ptid=2208921" target="_blank">ryuusu 发表于 2025-2-15 20:38</a>
+场外都活了说这些..而且剧中表现就是全身心唱的只是导演没让观众届到</blockquote>
+场外是场外…我个人也极其反对C团复活啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+我只是从如果你要这么干你最好有这个动机去做，因为柿本之前诗超绊没有翻过这种错误啊，逻辑讲不清啊
+
+*****
+
+####  thisisaspider  
+##### 24124#       发表于 2025-2-15 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434543&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:34</a>
+
+不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了 ...</blockquote>
+大莫老师因为不会弹吉他，所以被KO了
+
+爱音因为吉他太菜，所以被对内冷脸也很合理。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这也是末法少女乐队的一个侧面（<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky刃  
+##### 24125#       发表于 2025-2-15 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434056&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:51</a>
+
+合弹那里大家提出的比如说取消独白用其他回忆杀展示，或者用正常的唱法而不是这种难听的哭腔，可能观感会 ...</blockquote>
+C团剧情太少了，能回忆的东西不多，重复mygo10那种就好了，我就吃这种，真可惜
+
+*****
+
+####  南宮凝香  
+##### 24126#       发表于 2025-2-15 20:40
+
+<blockquote>单脚着地 发表于 2025-2-15 20:34
+不是，爱音要是有波奇那实力她一开始就不会是那行动策略，根本就不会有后面的故事了 ...</blockquote>
+那就是Anon Tokyo 小姐 單人出道了
+
+那裡還玩學生樂隊
+
+*****
+
+####  thisisaspider  
+##### 24127#       发表于 2025-2-15 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434547&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 20:35</a>
+
+看到这张图突然才意识到灯和睦其实某种意义上有点像，当一个五人团队有两个拙于言辞或者说是沉默类型的人 ...</blockquote>
+可以学猫猫用电波沟通
+
+*****
+
+####  迷雾塔  
+##### 24128#       发表于 2025-2-15 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434488&amp;ptid=2208921" target="_blank">kyonkoism 发表于 2025-2-15 20:29</a>
+
+看着游行的人群其实不用知道他们在干嘛，想热闹就进去一起嗨，到时候再回家看新闻发生啥就行，片可以 ...</blockquote>
+之前的游行是大家一起撒花，我现在要参加游行，感觉娱乐活动变成扔臭鸡蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24129#       发表于 2025-2-15 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434588&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 20:38</a>
+事实上你们嘴上这集没传达到什么，但恐怖就是实质C团实力C团团魂已经真真切切传达老钟每个人心中的
+
+这点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，归根结底还是演出打磨上出问题了
+
+*****
+
+####  未来起航  
+##### 24130#       发表于 2025-2-15 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433822&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 19:31</a>
+
+nzh除了情绪输出，基本上是最浅显观点的复读机
+
+但人家就是因为这样才能够成为一部分人的嘴替。他低下的 ...</blockquote>
+nzh能力低，泛式就强到哪儿去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都什么年代了还在用调整期待之类的话术。
+
+都是评论能力垃圾，一个当复读机，一个当好好好的缩头乌龟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 24131#       发表于 2025-2-15 20:43
+
+爱音咋可能单人出道呢，这人从一开始的想法就是出众而不离群，背后最好跟一帮拟人动物朋友，堪称东京德鲁伊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 24132#       发表于 2025-2-15 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434622&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:41</a>
+
+我都没感受到团魂，真有团魂你弹成这样还是赶紧解散吧，归根结底还是演出打磨上出问题了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是包括三次元C团结成
+
+*****
+
+####  595505568  
+##### 24133#       发表于 2025-2-15 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434624&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-15 20:42</a>
+nzh能力低，泛式就强到哪儿去了吗都什么年代了还在用调整期待之类的话术。
+
+都是评论能力垃圾，一个当复读 ...</blockquote>
+都低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哪里不好应该怎么改，调低预期以外指出的东西能不能专业点。再菜鸟的财报人也都会说调低预期和这是个垃圾股不要买，到这个体量了没有专业性真不行吧
+
+*****
+
+####  看穿一切的鱼  
+##### 24134#       发表于 2025-2-15 20:43
+
+话说tft会是打歪的中华炮吗，毕竟春日影在⏰鸡狗粉这火的没边，开live观众都合唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hysjmr  
+##### 24135#       发表于 2025-2-15 20:44
+
+还不如对偶彻底，直接让爱音进行一个跑和逃，然后撞进路过的海玲怀里忘记一切。
+场外固然还是会吵翻，但起码可以期待一个明确的回撤。
+现在这样，你都不知道staff有没有把这当个事
+
+*****
+
+####  ky刃  
+##### 24136#       发表于 2025-2-15 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434581&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:38</a>
+
+OVA就不要了，素世视角的漫画里能写一点就得了
+
+我只是谈这个演出问题用台本解决太草台了，还是说他要告诉 ...</blockquote>
+还是挺想看的，祥子独白的那4张图的日常，好可惜啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24137#       发表于 2025-2-15 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434631&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 20:43</a>
+我是包括三次元C团结成</blockquote>
+三次元是五个职业人<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">（
+
+*****
+
+####  斯大林的拖拉机  
+##### 24138#       发表于 2025-2-15 20:44
+
+被“我嘴笨”糊脸了这么久还不能证明泛式很强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶心人的能力比牛子豪的红温狂喷厉害多了
+
+*****
+
+####  是谁的书画  
+##### 24139#       发表于 2025-2-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434624&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-15 20:42</a>
+
+nzh能力低，泛式就强到哪儿去了吗都什么年代了还在用调整期待之类的话术。
+
+都是评论能力垃圾，一个当复读 ...</blockquote>
+我贬低nzh不代表我就在夸奖鼻子，就像我贬低大睦不代表我就在夸奖大莫，漫区双重人格二位一体罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24140#       发表于 2025-2-15 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434645&amp;ptid=2208921" target="_blank">ky刃 发表于 2025-2-15 20:44</a>
+还是挺想看的，祥子独白的那4张图的日常，好可惜啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 24141#       发表于 2025-2-15 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434587&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 20:38</a>
+
+开启爱傲天模式，家人们我又开始幻想了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">爱音那性格，波奇要是传功给她，技术估计能发挥110%。随时随地都是全力的吉他英雄
+
