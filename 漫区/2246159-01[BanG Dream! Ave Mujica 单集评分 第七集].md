@@ -4449,3 +4449,18 @@ Bangumi变成5.9了，其他动画有威力那么大的单集么？
 Bangumi变成5.9了，其他动画有威力那么大的单集么？</blockquote>
 哥们没看吹三？
 
+
+*****
+
+####  aptx8285144  
+##### 434#       发表于 2025-2-15 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436342&amp;ptid=2246159" target="_blank">一心而用 发表于 2025-2-15 23:51</a>
+
+前7话好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人</blockquote>
+如果以后有人吹日本人的音乐审美能力很强，我就告诉他第七话的鬼故事
+

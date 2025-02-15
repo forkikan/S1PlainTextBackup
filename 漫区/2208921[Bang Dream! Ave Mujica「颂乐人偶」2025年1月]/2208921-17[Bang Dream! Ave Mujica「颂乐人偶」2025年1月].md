@@ -8647,3 +8647,110 @@ mujica终于晋升cn动画区的再见爱人了
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 情绪价值的重要性啊
 
+
+*****
+
+####  595505568  
+##### 24458#       发表于 2025-2-15 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436368&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 23:54</a>
+大祥好多抽的都是不必要的。第五六集，大部分内容抽她，除了给mygo做垫子，还有什么必要嘛。
+
+前面4集固然 ...</blockquote>
+我是觉得第四话就该露血条了，5-8核心在给空心的人偶积累<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，9-13大跃迁
+然后现在感觉哪里不太对；C团这一脚可以再往前一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，断退路用的部份拿来包饺子了，有点奇异搞笑
+
+*****
+
+####  MagicGiraffe  
+##### 24459#       发表于 2025-2-15 23:58
+
+kol一哥当了几年，不得不服啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24460#       发表于 2025-2-15 23:59
+
+我甚至觉得这次Live要提前到第六话，给祥子一个第一人称Live然后最后看着弹完的双手觉得不属于自己都可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 24461#       发表于 2025-2-16 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">要是现在传的8-10剧透是真的那独角兽和柿本总要有一个进精神病院了
+
+*****
+
+####  厚乳果珍爽  
+##### 24462#       发表于 2025-2-16 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436413&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-2-16 00:00</a>
+
+要是现在传的8-10剧透是真的那独角兽和柿本总要有一个进精神病院了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧透是什么啊？发我一份啊，我也想颠一下
+
+
+*****
+
+####  aptx8285144  
+##### 24463#       发表于 2025-2-16 00:02
+
+看了看nico好评率，如果以后有人吹日本人的音乐审美能力很强，我就告诉他第七话的鬼故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保真花生  
+##### 24464#       发表于 2025-2-16 00:02
+
+查一下到底大绫老师和大柿老师谁是海猫爱好者
+
+*****
+
+####  保真花生  
+##### 24465#       发表于 2025-2-16 00:03
+
+你还别说最早鸡海报就有人指出很重海猫味
+
+*****
+
+####  大户爱  
+##### 24466#       发表于 2025-2-16 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436418&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-16 00:01</a>
+剧透是什么啊？发我一份啊，我也想颠一下</blockquote>
+[https://bbs.nga.cn/read.php?tid=43284684](https://bbs.nga.cn/read.php?tid=43284684)
+
+mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感觉是不同人的转述。
+
+虽然情节上很抽象，但即使是假的，感觉也蛮真的。
+
+*****
+
+####  是谁的书画  
+##### 24467#       发表于 2025-2-16 00:04
+
+看到了，挺变态的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我真怀疑会有人心梗
+
+*****
+
+####  灼眼的夏娜酱  
+##### 24468#       发表于 2025-2-16 00:06
+
+年龄接近的小姨组乐队/偶像组合，此事在re：stage里亦有记载，期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 24469#       发表于 2025-2-16 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436407&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 23:59</a>
+我甚至觉得这次Live要提前到第六话，给祥子一个第一人称Live然后最后看着弹完的双手觉得不属于自己都可以 ...</blockquote>
+mygo的戏份确实在mujica不好处理。如果是我，我会把和解和c团live放到后半部分， 母鸡卡解决一部分问题之后。
+
+不过按剧透，这个live可能是鸡团后面矛盾的引子。
+哦，也不用按剧透了，海玲表现那么明显了。
+
