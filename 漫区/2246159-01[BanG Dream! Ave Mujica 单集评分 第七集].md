@@ -4399,3 +4399,28 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 
 Bangumi变成5.9了，其他动画有威力那么大的单集么？
 
+
+*****
+
+####  qxs  
+##### 429#       发表于 2025-2-15 22:36
+
+这楼里二刷加分是什么定型文吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 430#       发表于 2025-2-15 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435400&amp;ptid=2246159" target="_blank">飞天意面怪 发表于 2025-2-15 22:05</a>
+ Bangumi变成5.9了，其他动画有威力那么大的单集么？</blockquote>
+有的，兄弟，有的
+
+
+*****
+
+####  北冥有鱼  
+##### 431#       发表于 2025-2-15 22:44
+
+第一次投了 -1，饺子没煮熟还是别端上来了
+

@@ -2530,3 +2530,14 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 记忆宝石1里那个小女孩是朱迪斯她奶奶吗？
 
+
+*****
+
+####  alucardcz  
+##### 7749#       发表于 2025-2-15 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435579&amp;ptid=2160194" target="_blank">希鲁夫 发表于 2025-2-15 22:22</a>
+
+记忆宝石1里那个小女孩是朱迪斯她奶奶吗？</blockquote>
+是。。。。。。（紫薯布丁
+

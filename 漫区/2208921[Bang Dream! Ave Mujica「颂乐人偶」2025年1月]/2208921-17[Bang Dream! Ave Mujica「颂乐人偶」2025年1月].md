@@ -7091,3 +7091,150 @@ tft比一场live的重量更重 索尼不是白收钱的</blockquote>
 
 能不能把ccc漫画动画了 给武士道找补一点啊
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24313#       发表于 2025-2-15 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435674&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 22:34</a>
+
+这个也是狗厨现在最大的阴影，而且这个阴影估计会笼罩到4月
+
+万一这几个月C团爆米成功的话，不敢想</blockquote>
+鸡房早就先塌了，这么几集下来我倒是觉得狗厨是在等待审判的刀子落下，最后果然挨刀子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24314#       发表于 2025-2-15 22:38
+
+原话 爱音是黄毛 这不是黄毛也被正主草了的剧情吗 和解了 
+
+*****
+
+####  ape-apple  
+##### 24315#       发表于 2025-2-15 22:38
+
+以live作为评价标准的话，反正我看能去完结后对邦的只会更多，很多人就是冲着完美版乐队的，所以很多人要崩溃了，票可能会更难抢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24316#       发表于 2025-2-15 22:38
+
+我真的笑了 大鼻子叔叔也是武士道真爱吧 还想看的流量吃饱饱啊 
+
+*****
+
+####  wpcc  
+##### 24317#       发表于 2025-2-15 22:40
+
+演都不演了 你这祥学长 和武士道串通一气啊
+
+*****
+
+####  凉良  
+##### 24318#       发表于 2025-2-15 22:41
+
+大鼻子不会只在战吧取材吧？ 祥子这光速变化不是到处都在车？
+
+*****
+
+####  影伴光生  
+##### 24319#       发表于 2025-2-15 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泛式能年年百大还是有水平的，看似在猛批实际上在消解情绪
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24320#       发表于 2025-2-15 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435742&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:41</a>
+
+大鼻子不会只在战吧取材吧？ 祥子这光速变化不是到处都在车？</blockquote>
+他是祥学长 觉得没人抽陀螺太好了
+
+
+*****
+
+####  wpcc  
+##### 24321#       发表于 2025-2-15 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435746&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-15 22:41</a>
+
+泛式能年年百大还是有水平的，看似在猛批实际上在消解情绪
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+以及带领祥学长跟随武士道光复c团了
+
+*****
+
+####  ape-apple  
+##### 24322#       发表于 2025-2-15 22:42
+
+lex之后哪有敢反主推番剧的，今天一看就知道大鼻子是小骂大帮忙了
+
+*****
+
+####  z-hunter  
+##### 24323#       发表于 2025-2-15 22:43
+
+ 本帖最后由 z-hunter 于 2025-2-15 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435711&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 22:38</a>
+
+鸡房早就先塌了，这么几集下来我倒是觉得狗厨是在等待审判的刀子落下，最后果然挨刀子了 ...</blockquote>
+不，鸡还有6集动画，还有勉强把房搭起来的机会，毕竟原创动画未知的舞台（虽然机会不大，按照剧透的话更是……
+
+不过狗已经没有动画了，戏份结束了，只能去抓手游剧情的稻草
+
+这不就是鸡房好像要塌了，狗厨在看热闹，以为自己是救世主，结果回头自己的房先塌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 24324#       发表于 2025-2-15 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435756&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 22:42</a>
+lex之后哪有敢反主推番剧的，今天一看就知道大鼻子是小骂大帮忙了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是有瓶子这种含马量极高的纯喷，不过现在也只敢打顺风团了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 24325#       发表于 2025-2-15 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435762&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 22:43</a>
+
+不，鸡还有6集动画，还有勉强把房搭起来的机会，毕竟原创动画未知的舞台（虽然机会不大，按照剧透的话更是 ...</blockquote>
+一想到第五集之后那一堆圣爱音来了都救了 对比现在就很幽默
+
+*****
+
+####  wpcc  
+##### 24326#       发表于 2025-2-15 22:45
+
+<img src="https://img.saraba1st.com/forum/202502/15/224508fyyqz4n74s7ytcfo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 22:45 上传
+
+屁股在哪已经很明显了 我去这下白祥学长共振了 挂着听完能笑死
+
+image.png
+(48.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202502/15/224502y2y2t2nk2yxky27y.png" referrerpolicy="no-referrer">
+
