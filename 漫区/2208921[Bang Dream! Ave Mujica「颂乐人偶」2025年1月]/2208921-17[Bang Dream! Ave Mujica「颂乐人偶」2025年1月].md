@@ -3866,3 +3866,133 @@ mujica是个在动画播出前就有不少乐团粉的乐队吧，动画对他�
 
 本身这个矛盾就是站不住脚的，完全是编剧自己硬来的矛盾。
 
+
+*****
+
+####  天空塔书记官  
+##### 24010#       发表于 2025-2-15 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433802&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 19:28</a>
+mujica是个在动画播出前就有不少乐团粉的乐队吧，动画对他们会有打击吗，感觉可能最多影响一下谷价。
+
+反 ...</blockquote>
+参考前辈团RAS，因为2/3季动画剧情的争议，所以并没有起到什么积极的宣传作用，完全是靠线下live的硬实力吸粉的，毕竟是专业(打工)乐队<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  指南アキラ  
+##### 24011#       发表于 2025-2-15 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433737&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 19:19</a>
+
+其实这里我在想祥子晚上是等多久，是不是她在等的时候迈巴赫也在等，然后这一想就感觉有点难绷，迈巴赫这 ...</blockquote>
+这个我也想过，感觉多半是停在睦家的私人停车场了，毕竟栅栏前那个斜坡就挺像是走车的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 24012#       发表于 2025-2-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433789&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-2-15 19:27</a>
+喵梦角色是在第四集毁掉的，纯为了炸团作出的发言，炸团对她这个事业心重的人来说有什么好处？
+
+前面摘面 ...</blockquote>
+利己是没问题，但第一集在一个商业乐队这么做和事务所没半点招呼，和队友也没半点招呼，真利己吗？（揭面之后这段整体逻辑就有点崩坏，导致剧里剧外都像洒洒水一样）
+按乐队整体来说，只要睦父母或者sumimi没炸，睦和初华这流量就像银行里的活期存折或者后背能源箱一样随时都能取用，并不以揭开早晚为转移的。
+
+*****
+
+####  安娜导函数  
+##### 24013#       发表于 2025-2-15 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433702&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 19:13</a>
+从我个人角度出发，喵梦一分析，只能又蠢又坏。
+
+哪怕你不扯现实解约金的要素，喵梦这一通闹下来，纯粹也就 ...</blockquote>
+个人同意喵梦的蠢和自私自利，但是你说大喵老师有多坏那我看不出，除非你觉得只要自私自利的人就是坏那我只好同意了。大喵老师摘面具是自私自利想涨流量，结果是风头出了结果流量并没有向着她这边来，说她蠢是没问题，但是你说她是有目的的拆团？在我看来喵梦的性格虽然是很自私的，但是目前刻画出来的并没有提现她是那种心机很重机关算尽的形象，相反我看到的是一个直来直往心里想什么嘴上就说什么的形象，她看不惯祥子糯叽叽的样子直接撂挑子太正常了，直性子没心眼才是我看到的这个角色的本底颜色。
+至少我自己看来母鸡卡这5个人目前刻画出来的形象，也就喵梦看起来是个有血有肉的人，其他不是神人就是伪人了。
+
+*****
+
+####  aptx8285144  
+##### 24014#       发表于 2025-2-15 19:39
+
+我看知乎上都有好几个人为爱音写帖子抱不平（虽然本来那里看go和鸡团的人也不少），这战争连续的广度有点超乎我想象，好像无法只归咎于贴吧的爱音党发疯<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 24015#       发表于 2025-2-15 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">为爱音抱不平还行，这阅读理解大概是体育老师教的，不知道还以为玩乐队是结婚。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  大户爱  
+##### 24016#       发表于 2025-2-15 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433882&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 19:38</a>
+个人同意喵梦的蠢和自私自利，但是你说大喵老师有多坏那我看不出，除非你觉得只要自私自利的人就是坏那我 ...</blockquote>
+损人利己当然就是坏啊。虽然最后结果没利到己。
+
+为了自己流量，擅自掀面具，怎么不是伤害初华和睦了。 也就是邦邦萌萌人的世界观了，不然sumini和睦父母的经纪人的大手早就打过来了。
+
+这世界上纯粹的坏本身也不多，大部分的坏不就是自私自利、损人利己。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  屑屑代沟尼亚  
+##### 24017#       发表于 2025-2-15 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为爱音抱不平的当然是路人
+
+非得滑坡到C团三踢二的是什么成分啊
+
+*****
+
+####  ky刃  
+##### 24018#       发表于 2025-2-15 19:45
+
+春日影那里，没独白的话，感觉效果会好点，不过像这样的mygo可能用过就不继续用，可惜了，软糯小祥哭哭真可爱啊
+
+*****
+
+####  595505568  
+##### 24019#       发表于 2025-2-15 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433915&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 19:40</a>
+为爱音抱不平还行，这阅读理解大概是体育老师教的，不知道还以为玩乐队是结婚。
+
+—— 来自 Xiaomi 23113RK ...</blockquote>
+他们似乎忘记了，C团开始到解散一年后在干这个事情的是素世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在车素世那么狠的时候忘记她遭遇的C团“冷暴力和八零”比这个还严重了吧，太好笑了，爱音惨啊，那素世这一年不惨吗？
+
+*****
+
+####  thisisaspider  
+##### 24020#       发表于 2025-2-15 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433823&amp;ptid=2208921" target="_blank">黑猫桑 发表于 2025-2-15 19:32</a>
+
+你在qq群里发那当然，基本都是gop要么就是玩客服小祥软糯小祥表情真美味的乐子人，祥黑狂欢
+
+现在变成这 ...</blockquote>
+我之前也觉得C团解散祥睦有原罪，也在想剧情怎么写。但第7集感觉编剧没这么想过。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
