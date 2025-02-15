@@ -2572,3 +2572,15 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 女爵绝对是最强角色，出伤性能强大简单粗暴，大雷黑妹没玩也没见过，鸟哥其实没大家说那么弱，找个匕首和矛老实盾搓留大复活队友还是挺安定的，但是造伤和高光就别想了。
 
+
+*****
+
+####  医生狼多  
+##### 279#         楼主| 发表于 2025-2-15 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433862&amp;ptid=2210352" target="_blank">ohi.02 发表于 2025-2-15 19:36</a>
+好想玩，现在哪里还能弄到测试资格
+
+—— 来自 S1Fun</blockquote>
+报名过了，现在想玩去tb买？有人倒卖
+

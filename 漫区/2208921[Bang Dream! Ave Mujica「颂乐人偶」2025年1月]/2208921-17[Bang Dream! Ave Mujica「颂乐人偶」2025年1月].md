@@ -4526,3 +4526,243 @@ so，每集内容都对得上的剧透有说我们的小包爱音小姐之后会
 素爽对待正常人的态度就是像对待立希或者爱音这样，姐妹儿不装以后对这两个人才算是做回 ...</blockquote>
 素世经历飞鸟山以及后面的事情才多少对大祥有免疫力了（只要独角兽和柿本不下死命令），灯皇反而让人有点害怕，因为大祥最毒的打好像没有<strong>直接</strong>命中她身上过，毕竟有立希这道防护墙随时在侧，所以第7话引发场外情绪爆发也是某种的必然
 
+
+*****
+
+####  南宮凝香  
+##### 24066#       发表于 2025-2-15 20:08
+
+<blockquote>595505568 发表于 2025-2-15 20:06
+什么叫做不到，第六话报 商 联不是都有吗
+
+第七话这剧情推进关键的部份细节都没有我都不知道他们想写什么 ...</blockquote>
+失蹤三天三夜
+
+鴿彩排前不先說
+
+真的有嗎？
+
+*****
+
+####  thisisaspider  
+##### 24067#       发表于 2025-2-15 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434183&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:01</a>
+
+再回到三角初華小姐的理論
+
+一個人退隊的當下C團已經解散了</blockquote>
+不是冰就是初恋啊
+
+*****
+
+####  迷雾塔  
+##### 24068#       发表于 2025-2-15 20:09
+
+现在这动画还推荐看吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 24069#       发表于 2025-2-15 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434255&amp;ptid=2208921" target="_blank">迷雾塔 发表于 2025-2-15 20:09</a>
+
+现在这动画还推荐看吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等完结才能下定论，就目前这情况，就算是屎，我也建议完结后再看。
+
+*****
+
+####  是谁的书画  
+##### 24070#       发表于 2025-2-15 20:11
+
+其实素世第六话拿鞋给大莫远程心理看诊那块儿还是可以磕点爱素的
+
+素世看眼手机上爱音的消息或许还是有那么几毫秒惦记爱音了，毕竟和一神经病困屋子里三天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 24071#       发表于 2025-2-15 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434248&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-15 20:08</a>
+
+如果说演到现在谁最爽我一定选soyo之前还说人家是喜剧演员，现在看所有人都是ccc姨姥，只有人家爽姐正视 ...</blockquote>
+睦：恩，但是我觉得同样是猫猫，白猫比之前遇到的紫猫好说话多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 24072#       发表于 2025-2-15 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433693&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-15 19:12</a>
+
+结局出问题的水魔和推子都肉眼可见地冷了，能不能给武士道也降下天诛</blockquote>
+水魔不仅商业上发挥不错
+
+甚至泥潭当年年度动画榜上排名也不低
+
+真水魔了那不叫天诛好吧
+
+
+*****
+
+####  Skymoon  
+##### 24073#       发表于 2025-2-15 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434255&amp;ptid=2208921" target="_blank">迷雾塔 发表于 2025-2-15 20:09</a>
+现在这动画还推荐看吗</blockquote>
+最好等它放完了再一口气补完，那样体验会好上许多，也不会受到社区的破防黑泥滑坡共振<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24074#       发表于 2025-2-15 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434251&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:08</a>
+失蹤三天三夜
+
+鴿彩排前不先說</blockquote>
+那你也解释不了为什么第六话素世能微妙卡着点带着mortis去RiNG是怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这叙事逻辑和画面细节处理就是奇怪啊，台本也奇怪啊，很多地方台本写的和分镜画面里有表情包往返是对不上的，我能怎么办
+
+*****
+
+####  天空塔书记官  
+##### 24075#       发表于 2025-2-15 20:12
+
+不太会推荐吧，除非是不会在意讨论环境的观众类型，如果第八集还是没有进入乐队重建的节奏，那就只能完结后再看了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 24076#       发表于 2025-2-15 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434053&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 19:51</a>
+ 那我能要个圣素世嘛 说重来就重来，我现在看无名乐队结团也有异味 你怎么就这么不管其他几个人这一年对你 ...</blockquote>
+你不能只在伤害别人的时候才去比惨
+
+*****
+
+####  南宮凝香  
+##### 24077#       发表于 2025-2-15 20:13
+
+ 本帖最后由 南宮凝香 于 2025-2-15 20:15 编辑 
+<blockquote>595505568 发表于 2025-2-15 20:12
+那你也解释不了为什么第六话素世能微妙卡着点带着mortis去RiNG是怎么回事啊，这叙事逻辑和画面细节处理就 ...</blockquote>
+
+她們Live 前沖刺， 每天都在加練
+
+實際上這動畫裡的人有一個算一個都是未開化的原始人
+
+一有事就一點也不交代的就鴿
+
+*****
+
+####  kyonkoism  
+##### 24078#       发表于 2025-2-15 20:13
+
+我觉得少女乐队动画都应该完结再看，无关风评，除非是实在太想和一起看的人找话题
+
+*****
+
+####  595505568  
+##### 24079#       发表于 2025-2-15 20:13
+
+第六话开始其实画面和台词就在讲各讲各的地方就不少了，我还在纳闷怎么没人提
+
+*****
+
+####  是谁的书画  
+##### 24080#       发表于 2025-2-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434255&amp;ptid=2208921" target="_blank">迷雾塔 发表于 2025-2-15 20:09</a>
+
+现在这动画还推荐看吗</blockquote>
+那真是不看不行啊，现在是最混乱的时候，也是最快乐的时候。
+
+之后是好是烂要是作鸟兽散了就没得乐子看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 24081#       发表于 2025-2-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434303&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 20:13</a>
+她們Live 前沖刺， 每天都在加練</blockquote>
+加练是第七话说加练两小时，但是具体前面啥情况没说吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 24082#       发表于 2025-2-15 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434202&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-15 20:03</a>
+
+后面还是有希望整一两个抛开前面剧情不看的优秀单回的，动画毕竟是真人团和游戏的广告，搞点角色高光时刻让 ...</blockquote>
+当时看到第5，6集MYGO出场我就很慌，因为剧内剧外都表现出要被垫了的感觉。不知道其他粉在高兴什么。
+
+MYGO垫了，不管怎么写都会伤害到角色，后面真杀青就完全没法补了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  楠城旧篱  
+##### 24083#       发表于 2025-2-15 20:15
+
+<blockquote>迷雾塔 发表于 2025-2-15 20:09
+现在这动画还推荐看吗</blockquote>
+喜欢场外的话速速同步
+
+*****
+
+####  hol_effect  
+##### 24084#       发表于 2025-2-15 20:15
+
+只能说在前几集看清了所有人都是编剧的人偶和自己和解后整个人都放松了，这几天在各个战场穿梭，还是得火烧到自己才知道疼，现在的念想就是评分到底能跌到多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24085#       发表于 2025-2-15 20:16
+
+<blockquote>kyonkoism 发表于 2025-2-15 20:13
+我觉得少女乐队动画都应该完结再看，无关风评，除非是实在太想和一起看的人找话题 ...</blockquote>
+错 123联播还能叫优秀 4看完就知道完结那天必定是垃圾的。看一集杀一集才是正确的 烂完了你都找不出纯粮mmr给你杀
+
+*****
+
+####  kyonkoism  
+##### 24086#       发表于 2025-2-15 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434340&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 20:16</a>
+
+错 123联播还能叫优秀 4看完就知道完结那天必定是垃圾的。看一集杀一集才是正确的 烂完了你都找不出纯粮m ...</blockquote>
+这不就符合了“除非是实在太想和一起看的人找话题 ”这个前置条件了么，杀mmr也是找话题！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 24087#       发表于 2025-2-15 20:18
+
+<blockquote>595505568 发表于 2025-2-15 20:14
+加练是第七话说加练两小时，但是具体前面啥情况没说吧</blockquote>
+主要這裡爽世是不需要聯絡的
+
+練習行程一定是預先安排了的
+
+台詞裡沒人知道爽世在搞什麼飛機
+
+*****
+
+####  thisisaspider  
+##### 24088#       发表于 2025-2-15 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434248&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-15 20:08</a>
+
+如果说演到现在谁最爽我一定选soyo之前还说人家是喜剧演员，现在看所有人都是ccc姨姥，只有人家爽姐正视 ...</blockquote>
+这不是盖棺材板吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

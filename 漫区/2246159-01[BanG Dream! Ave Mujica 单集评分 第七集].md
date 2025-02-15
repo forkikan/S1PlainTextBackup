@@ -4352,3 +4352,11 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 个别桥段有股紧急打补丁想让纯良观众开始同情角色的出戏味儿，比如祥子每天在睦家门口蹲点，以为能握到手结果手被扇了还刚好被指甲刮出血这种刻意到不能再刻意的桥段我是真受不了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 听着ed开始想念初华，还有点怀念起前四集摇摇欲坠即将暴走的疑似黑深残紧张悬疑拟人风味了，那种对我来说就是哪怕烂也能烂得更有乐趣一些<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fyzqwzh  
+##### 424#       发表于 2025-2-15 20:11
+
+真的是话太多了，全是独白
+
