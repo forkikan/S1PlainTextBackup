@@ -1397,3 +1397,46 @@ GlitterGreen只是有成员出国留学了，可没解散，有本事武士道�
 
 我还记得版主换成爱音灰色头像，感觉有些爱音党是不是还要做好心理准备，被边缘化都算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 23795#       发表于 2025-2-15 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们行不行，要切割赶紧切怎么跟个寡妇似的在这打滚。独角兽就这水平不是早就预警过了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  单脚着地  
+##### 23796#       发表于 2025-2-15 16:51
+
+这一季爱音来到舞台中心成为故事的主要人物不是摆明着不可能的幻想
+
+*****
+
+####  swessia  
+##### 23797#       发表于 2025-2-15 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要真狠就让wsd中华炮熄火，别爆米
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 23798#       发表于 2025-2-15 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432741&amp;ptid=2208921" target="_blank">第贰个十年 发表于 2025-2-15 16:36</a>
+骗骗兄弟们得了，别把自己也骗了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+啊，我只是在追番而已，又没想要骗谁
+
+提出假设不是为了证明，而是因为这本身就是一件有趣的事情不是吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
