@@ -6959,3 +6959,135 @@ C团的和解是相当难写的，至少不应该和第二幕的其他冲突一�
 
 总之，我突然想打游戏了，所以不往下写了。大家一定要记得去买锡纸帽啊。
 
+
+*****
+
+####  大户爱  
+##### 24301#       发表于 2025-2-15 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435516&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 22:16</a>
+睦头面具是喵梦摘的，但是初华面具可是她自己摘的
+你说喵梦她损人不利己那就纯粹是结果倒推了。
+首先母鸡 ...</blockquote>
+我说了有些人跟没上班一样，初华不在意，整个乐队和staff不在意，属于邦邦美好世界观。
+
+现实这种影响团队整体的重大决策，一个人独走，就是严重破坏整体团队利益。初华睦揭露身份的节点，肯定要和本人经纪团队再三协调的。
+
+母鸡卡拍完这么久了。论坛这么多舅舅剧透都遮遮掩掩。你一个这么火乐队，一个人想曝光队友就曝光，也就邦邦动画片了。
+
+更别说结果了，不说最后造就睦的双重人格。初华和睦的流量本来就在那里。你自己是擅作主张把公司的资产找个地方变现，然后还来邀功，不搞笑嘛。
+
+*****
+
+####  凉良  
+##### 24302#       发表于 2025-2-15 22:27
+
+啊 第十集把素食拉上去的不是灯么
+
+*****
+
+####  梅杜莎  
+##### 24303#       发表于 2025-2-15 22:28
+
+泛式评动画 真爱楼
+[https://bbs.saraba1st.com/2b/thread-1560812-1-1.html](https://bbs.saraba1st.com/2b/thread-1560812-1-1.html)
+
+*****
+
+####  十九号大侠  
+##### 24304#       发表于 2025-2-15 22:28
+
+我感觉吧，日本人作剧就喜欢把人脸谱化，之前盐对应就一直盐对应，以前看半条植树2的时候就觉得有些太刻意了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  江口夕  
+##### 24305#       发表于 2025-2-15 22:28
+
+ 本帖最后由 江口夕 于 2025-2-15 22:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">爱音这个会嫉妒是真想多了，爱音知道旧c团一个二重人格，一个老爹168亿，不会想这么多就让他们演的，这才是符合爱音人格的举动。
+你要说她会嫉妒只能说你压根不懂爱音。素世为什么只听到不在乎睦去找而不是听到不在乎c团也是这个原理。因为素世知道睦对祥子来说是不同的，这个肯定是忍不了的。就像祥厨忍不了祥不去找睦一样
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  刑部姬真可爱  
+##### 24306#       发表于 2025-2-15 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435623&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:27</a>
+
+啊 第十集把素食拉上去的不是灯么</blockquote>
+灯拉到台下，把素食拉上去的是爱音
+
+
+*****
+
+####  安娜导函数  
+##### 24307#       发表于 2025-2-15 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434403&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 20:22</a>
+我连为什么立希和爱音第六话莫名其妙的觉得素世又因为什么事情郁郁了都很奇怪，我第五话没看到对应分镜啊 ...</blockquote>
+大概默认大家都玩过手游知道輪符雨活动时候素世的风湿病犯过一次这次又不来排练估计是又犯了
+
+*****
+
+####  plok201  
+##### 24308#       发表于 2025-2-15 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435623&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:27</a>
+
+啊 第十集把素食拉上去的不是灯么</blockquote>
+严格来说真的上台那下是爱音拉的，越想越神经病，mygo那下演出一下子把2个人给补完了，这集来点这种也不至于这样
+
+*****
+
+####  z-hunter  
+##### 24309#       发表于 2025-2-15 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435585&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 22:23</a>
+
+tft比一场live的重量更重 索尼不是白收钱的</blockquote>
+这个也是狗厨现在最大的阴影，而且这个阴影估计会笼罩到4月
+
+万一这几个月C团爆米成功的话，不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+难听点说狗厨现在有点像在看鸡的热闹，结果自己的房先塌了哈哈
+
+*****
+
+####  wpcc  
+##### 24310#       发表于 2025-2-15 22:34
+
+<img src="https://img.saraba1st.com/forum/202502/15/223349ojh1195jnx4j15zi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 22:33 上传
+
+ 独角兽天天吃这种东西能不疯吗 吃的真的太好了
+
+*****
+
+####  whzfjd  
+##### 24311#       发表于 2025-2-15 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434285&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-15 20:11</a>
+
+水魔不仅商业上发挥不错
+
+甚至泥潭当年年度动画榜上排名也不低</blockquote>
+那是在播期间，完结后的开发程度跟火星比也没好多少
+
+*****
+
+####  wpcc  
+##### 24312#       发表于 2025-2-15 22:35
+
+能不能把ccc漫画动画了 给武士道找补一点啊
+
