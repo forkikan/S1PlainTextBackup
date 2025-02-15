@@ -13347,3 +13347,22 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 
 这手套虽然是flcl彩蛋，但设定上是牢修从垃圾堆翻出来的，希望有好好洗过吧（
 
+
+*****
+
+####  刺客ares  
+##### 6947#       发表于 2025-2-15 11:59
+
+<img src="https://img.saraba1st.com/forum/202502/15/115714djvn1snv38e3ijet.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0418.jpeg</strong> (101.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-15 11:57 上传
+
+啊？我还以为第一次见面玛秋是普通脸红呢
+
+原来表现成这样，那难怪被搂头都不生气
+

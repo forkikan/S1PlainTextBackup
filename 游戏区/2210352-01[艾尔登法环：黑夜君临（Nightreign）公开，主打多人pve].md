@@ -2299,3 +2299,11 @@ ps有人连上的吗
 这角色一开始的血量感觉连无用之人都不如，随便啥怪一刀就死</blockquote>
 虽然血量不如，但技能太强了。
 
+
+*****
+
+####  医生狼多  
+##### 252#         楼主| 发表于 2025-2-15 12:01
+
+打了三把把把有强退的，拼尽全力无法打过第一夜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -13941,3 +13941,146 @@ live这么演肯定是好评啊
 
 现在真的只有鸡能救狗了，鸡团内部抽象幽默就显得c团越好了，真没必要组两个乐队（
 
+
+*****
+
+####  天空塔书记官  
+##### 23456#       发表于 2025-2-15 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430674&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 11:46</a>
+你别装老东西了 二次元资历不如原神长的</blockquote>
+哈 ? 那我确实是老东西啊，米游我从崩一开始玩的，零几年就入宅了，我对现在的二游圈确实不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23457#       发表于 2025-2-15 11:57
+
+<blockquote>天空塔书记官 发表于 2025-2-15 11:56
+哈 ? 那我确实是老东西啊，米游我从崩一开始玩的，零几年就入宅了，我对现在的二游圈确实不懂啊
+
+—— 来 ...</blockquote>
+皮套动画这种东西上世纪就有 装什么
+
+*****
+
+####  Nana7ue  
+##### 23458#       发表于 2025-2-15 11:57
+
+<img src="https://img.saraba1st.com/forum/202502/15/115652tr457m7m5m5w5v5a.jpg" referrerpolicy="no-referrer">
+
+<strong>20250214_213936.jpg</strong> (176.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:56 上传
+
+*****
+
+####  AshPenguin  
+##### 23459#       发表于 2025-2-15 11:58
+
+为什么不能承认，从MyGo开始，很多人就是b站的引流机制，以及动画本身比较过硬的叙事和感情流吸引住的呢？这些人也叫ylg吗？那这些近似路人的庞大群体看不惯剧情到了难道不允许给低分写差评吗？
+
+再进一步，没这些做二创写假药的‘ylg’，就凭邦邦那个幽默3D动画能吸引多少人？
+
+再从纯商业的角度来说，本来做个不功不过的第二季，能在这个庞大的路人群体里拉到一小部分入坑手游入坑live，武士道可以因此大赚了。现在社区里全是因为糟糕剧情的蹦出来的帆船和伤心的一般路人，还有多少人愿意入坑邦邦呢？
+
+多年以后可能有一些人记得MyGo是个优秀的动画，但更多人记得的是武士道的炒作和回旋镖
+
+*****
+
+####  影伴光生  
+##### 23460#       发表于 2025-2-15 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430612&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 11:37</a>
+初华连着下线2集看来确实在憋大的，MYGO十三话大象老师写的剧本真要成回旋镖扎自己身上了。
+
+初华会因爱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接接二创《开膛手初华》
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 23461#       发表于 2025-2-15 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430720&amp;ptid=2208921" target="_blank">w酱 发表于 2025-2-15 11:53</a>
+但是ccc和go的关系不一样
+
+本质上一个自己人的排列组合耍别扭
+
+我是不懂为什么一定要切割掉</blockquote>
+很简单，因为鸡狗团推和c团推不是一伙人。
+一部分人只想看鸡狗团，一部分人都可以看，一部分人只想看c团。而现在看来只想看鸡狗的远大于后两者。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 23462#       发表于 2025-2-15 11:59
+
+<blockquote>AshPenguin 发表于 2025-2-15 11:58
+为什么不能承认，从MyGo开始，很多人就是b站的引流机制，以及动画本身比较过硬的叙事和感情流吸引住的呢？ ...</blockquote>
+武士道没想过中华炮的 他以为就卖卖播放和代理权 点播三集都没上海很说明问题了
+
+*****
+
+####  z-hunter  
+##### 23463#       发表于 2025-2-15 12:01
+
+制作组怎么可能会觉得自己做砸了，只会觉得我这样编排很酷呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们为什么不这样觉得？不会吧感受不到？
+
+人与人是不可能互相理解的，更不要说认知相差太远。现在还是环大陆好评呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中华炮那一些小声音又不影响赚钱。
+
+就算退一万步他们会看SNS会在意中文圈意见，现在也不能改了，工作嘛，只能硬着头皮上。赚钱嘛，不寒掺<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+所以现在也不过爱音厨狗厨二偶年轻粉的情绪发泄而已，过一段时间就消失不见了。更不要说JI动画还有6集，GO团的戏份已经完了，再有也只会在游戏里，短期内就别想着有什么挽回的机会了。
+
+还是看看JI动画接下来还有什么活和乐子好整吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  w酱  
+##### 23464#       发表于 2025-2-15 12:02
+
+ 本帖最后由 w酱 于 2025-2-15 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430771&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-15 11:59</a>
+
+很简单，因为鸡狗团推和c团推不是一伙人。
+
+一部分人只想看鸡狗团，一部分人都可以看，一部分人只想看c团 ...</blockquote>
+
+现在的社群氛围原来ccc和狗和鸡已经这么水火不容了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+刚看tft的评论区也不是这样啊，都挺正常的
+
+*****
+
+####  天空塔书记官  
+##### 23465#       发表于 2025-2-15 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430751&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 11:57</a>
+皮套动画这种东西上世纪就有 装什么</blockquote>
+那我确实不懂啊，那您就指点一二呗
+
+我一直都是自闭宅，自己看动画的，不混圈子，不会翻墙也不与同好交流，也确实不是什么婆罗门
+
+真正开始参与这方面的讨论还是从这一楼开始的，有啥冒犯就烦请您见谅喽<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23466#       发表于 2025-2-15 12:03
+
+<blockquote>w酱 发表于 2025-2-15 12:02
+现在的社群氛围原来ccc和狗和鸡已经这么水火不容了吗</blockquote>
+ccc动画剧情等于拆狗拆鸡 合理的
+
