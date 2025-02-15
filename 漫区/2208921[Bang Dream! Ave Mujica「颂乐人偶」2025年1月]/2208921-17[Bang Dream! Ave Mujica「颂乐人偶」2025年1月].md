@@ -5513,3 +5513,166 @@ C團歲月就像一年戰爭一樣
 泛式现在已经没法乱说话了吧，否则要步LEX后尘去阿B门口下跪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛子豪吐槽过自己专门负责开团的
 
+
+*****
+
+####  links8018  
+##### 24161#       发表于 2025-2-15 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67363189&amp;ptid=2208921" target="_blank">links8018 发表于 2025-2-6 23:28</a>
+
+话说下集soyo扇祥子一巴掌然后跑路不参与后续剧情的话，从人设角度来讲是不是mujica播出以来的最大赢家 ...</blockquote>
+牢素还是没能逃掉编剧的大手，被狠狠地拷打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 24162#       发表于 2025-2-15 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434668&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 20:46</a>
+
+爱音那性格，波奇要是传功给她，技术估计能发挥110%。随时随地都是全力的吉他英雄 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开局爱音的状态接受传功的话，感觉肉眼可见到处显摆不好好练习然后水平迅速下降的未来
+
+*****
+
+####  595505568  
+##### 24163#       发表于 2025-2-15 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434777&amp;ptid=2208921" target="_blank">links8018 发表于 2025-2-15 20:57</a>
+牢素还是没能逃掉编剧的大手，被狠狠地拷打了</blockquote>
+确实，第一分钟巨兽启动
+到了睦家门就，你分裂了？
+看本子伪人笑，你没事吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">完全不是人，是人偶啊
+
+*****
+
+####  刑部姬真可爱  
+##### 24164#       发表于 2025-2-15 20:59
+
+说到这些主播的反噬，我只能说隔壁台长楼是我近期看得最乐的楼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 24165#       发表于 2025-2-15 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434761&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 20:55</a>
+
+太他吗troll了我乐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">什么意思，我爱音只能低头做洗脚婢？否则就得当孤家寡人？Ds也是个小黑子
+
+*****
+
+####  未来起航  
+##### 24166#       发表于 2025-2-15 20:59
+
+爱音这茬无非是制作组天天压制角色成长性和行动力的结果。爱音角色弧光基本已经结束了（而且本来虚荣这么个问题也不算大），大祥几个人连个人形都没。爱音行动力不说满也是正常往上，其他的人均缩头乌龟。
+
+现男友看女友跟前男友一块叙旧确实心情复杂。但如果除你以外都是木讷痴呆和重度精神病，那还是做做善事好了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 24167#       发表于 2025-2-15 20:59
+
+<img src="https://p.sda1.dev/22/b1edcda11fed5891b78ba780558a75d0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 24168#       发表于 2025-2-15 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">小红书上二创也基本没了全在车
+
+我应该没信息茧房到全是宅宅的小红书吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 24169#       发表于 2025-2-15 21:01
+
+<img src="https://i.miji.bid/2025/02/15/c49d7217773c6ad25757d772b0a802fe.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 24170#       发表于 2025-2-15 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">不是，凭什么我浓就没有作为技术核心站C位被漂亮妹妹们争夺的世界线？！都是🐘学长？
+
+
+*****
+
+####  595505568  
+##### 24171#       发表于 2025-2-15 21:03
+
+反正对第七集脱脑分析后，发现编剧水平稀烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他们应该知道该怎么做
+第七话很多地方是
+需要这个事件
+需要两个主体
+祥子是固定主体
+剩下一个排除法找出来以后往里塞
+具体填充怎么做就很胡来
+为什么素世要拉着祥子进屋(因为她有肢体接触，行动力现在高)，为什么立希要去(因为不去来不及包饺子)，为什么要用黄瓜这个关键callback链接不痛不痒的部份(因为不用解释不了素世为什么来)
+为什么要爱音跟去看mortis表演破案(因为她看电视剧)
+因为这些角色身上带了可以不被筛选掉的tag
+前后链接又奇怪的要死
+为什么要素世笑(因为这里有需要看懂歌词本质的人)
+然后又开始一串排除法丢给素世，然后素世笑的部份一点分镜callback都不肯给
+然后需要爱音去递吉他 需要爱音去做什么事件
+这不是讲故事 这明明是春晚小品
+
+我根本不知道他们是不是对应该把哪些争议/非必要事项这部份坑选择泥土回填而不是把人物萝卜塞进去这件事情有敏感度，反正他们表现出来的是完全没有，比水友跑团还菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24172#       发表于 2025-2-15 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434812&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 21:01</a>
+
+不是，凭什么我浓就没有作为技术核心站C位被漂亮妹妹们争夺的世界线？！都是🐘学长？ ...</blockquote>
+<img src="https://i.miji.bid/2025/02/15/7dbe6cc207df23b0088dff22bca96876.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 24173#       发表于 2025-2-15 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434812&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 21:01</a>
+不是，凭什么我浓就没有作为技术核心站C位被漂亮妹妹们争夺的世界线？！都是🐘学长？ ...</blockquote>
+胸部不够大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24174#       发表于 2025-2-15 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434771&amp;ptid=2208921" target="_blank">loneyuki 发表于 2025-2-15 20:56</a>
+
+看完第四集你去杀，他们只会跟你说什么哦这里灯光不对那里易拉罐摆错了，这句是红字，那句没有月亮，感觉 ...</blockquote>
+红字就是翻译舅舅自己瞎几把加的 然后剧透给i你们爽死了
+
+*****
+
+####  一心而用  
+##### 24175#       发表于 2025-2-15 21:05
+
+<img src="https://p.sda1.dev/22/04165f59a2861d14a0f44c1bebe2fa9c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24176#       发表于 2025-2-15 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434812&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-15 21:01</a>
+
+不是，凭什么我浓就没有作为技术核心站C位被漂亮妹妹们争夺的世界线？！都是🐘学长？ ...</blockquote>
+武士道都是xxz 点了吧
+
