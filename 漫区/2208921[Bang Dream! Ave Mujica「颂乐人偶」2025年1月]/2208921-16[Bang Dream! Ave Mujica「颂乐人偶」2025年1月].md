@@ -16254,3 +16254,143 @@ CCC是属于过去的幽灵，本应该讲述曾经的故事，但却专注于�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  无证madam  
+##### 23663#       发表于 2025-2-15 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431721&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:06</a>
+
+我不是说了这几个吧是核心圈子啊，核心圈子不重要难道指望引流来看个动画和奶龙炫狗二创的粉毛痴子爆米吗 ...</blockquote>
+你说的核心圈子 是指半年前在这楼里进行激烈的cp斗争 只有我们的路线是正确的那群吗
+
+感觉跟电竞区皮套勾厕妹也没啥区别啊好像 
+
+*****
+
+####  DeltaStriker  
+##### 23664#       发表于 2025-2-15 14:38
+
+剧透mygo吧找吧 这里直接放感觉还是不太好（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  SakuraのOrigami  
+##### 23665#       发表于 2025-2-15 14:39
+
+看到鸡一专就只有7首给我气笑了（
+
+丫的wsd专门搞针对是吧（
+
+*****
+
+####  PascalLefèvre  
+##### 23666#       发表于 2025-2-15 14:39
+
+看动画也要争核心圈与否是否有点强迫症了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  看穿一切的鱼  
+##### 23667#       发表于 2025-2-15 14:39
+
+我觉得二次元不存在不是颜狗的吧，小睦不是还有三无和忠犬属性吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+路虎姐粉丝比迈巴赫姐多多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23668#       发表于 2025-2-15 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431914&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:34</a>
+我看是你理解能力有问题，关于作品包括我在内楼里很多人早就下判断烂完了，在楼里常驻的鸡友都已经跑路， ...</blockquote>
+粉毛痴子已经在邦吧战吧紫吧人人喊打了，还隔这自以为无敌盾全网出征呢，真正的核心圈子会给这帮电竞驱二游痴YLG好脸色吗，狗鸡可不是京吹那种一边倒的二元对立，粉毛终究只是个进不了核心圈子的狗团老2.5罢了
+
+你的原话，这就是你说的反噬吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来被你所说的核心三吧割席就是反噬，那还颇有躲进小楼成一统的做派。另外对着角色发情不就是最正统的二游痴作风吗？你这割席咋割到自己了，动漫高手纯度不够啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhoujin8584  
+##### 23669#       发表于 2025-2-15 14:43
+
+<blockquote>swessia 发表于 2025-2-15 14:20
+睦厨都是颜狗什么的，不要说的这么直白啊
+
+只复读睦可爱现在怎么也比剧情吃屎强</blockquote>
+主要还是本身对这季的大女主挂件有一定预期，自担在主角团里都知道要包饺子。现在剧情过半戏份能拉平，还有女主以外的保底cp，算是待遇很不错了。
+
+*****
+
+####  帝下室の年糕  
+##### 23670#       发表于 2025-2-15 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431940&amp;ptid=2208921" target="_blank">无证madam 发表于 2025-2-15 14:38</a>
+你说的核心圈子 是指半年前在这楼里进行激烈的cp斗争 只有我们的路线是正确的那群吗
+
+感觉跟电竞区皮套勾 ...</blockquote>
+现地看live搞翻译的不是核心，看奶龙灵感菇的是核心是吧
+虽然我不同意鸡友切割C狗团的观点和可能性，你就说按他们说的演是不是比现在好吧，至少不用拖狗下水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 23671#       发表于 2025-2-15 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430982&amp;ptid=2208921" target="_blank">海底铁锚 发表于 2025-2-15 12:22</a>
+从第三集键帽作妖到后面啥事没有，你就得承认🦄和柿本几乎不能判断角色善恶好坏了。而缺失了基础的判断能力 ...</blockquote>
+反正目前看下来2个团10个角色，除了隐身两话的金毛主唱，也就大喵老师看起来是个人，其他不是伪人就是神人要不圣人
+
+
+*****
+
+####  帝下室の年糕  
+##### 23672#       发表于 2025-2-15 14:45
+
+ 本帖最后由 帝下室の年糕 于 2025-2-15 14:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431967&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:42</a>
+粉毛痴子已经在邦吧战吧紫吧人人喊打了，还隔这自以为无敌盾全网出征呢，真正的核心圈子会给这帮电竞驱二 ...</blockquote>
+邦主吧和狗鸡讨论上游的战吧都成缩头了是吧，还得是我们大婊吧和屎黄色谣棍论坛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且你别急，反噬自然是越来越厉害越来越扩散的，昨天战吧还没那么多车粉毛痴子的贴呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23673#       发表于 2025-2-15 14:45
+
+核心三吧什麼時候出手救救我們母雞卡的評分
+
+換別的行業現在已經要開緊急會議看看要不要出公關稿了
+
+*****
+
+####  capraeLinn  
+##### 23674#       发表于 2025-2-15 14:46
+
+粉随偶像了属于是
+
+农在动画里受委屈了就会大声地表达出来，农推在被制作组迫害之后就会集中力量冲制作组；而且ep7（尤其前半）做得确实很糟糕，农推冲起来没什么阻碍的。
+
+睦在动画里受委屈了只会把错归因到自己身上，一个人躲起来内耗，苦一苦自己救救祥子；睦推被编剧的大手玩弄也只能一步步降低底线，从期待睦得到优秀塑造，到至少双重人格别是真的，到至少动画里能截几张睦的美颜不是吗。
+
+。。。至少动画里能截几张睦的美颜不是吗
+
+*****
+
+####  怀沙汨罗  
+##### 23675#       发表于 2025-2-15 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431933&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-15 14:37</a>
+能爆米的不叫核心圈，那什么才叫核心圈，ylg？二游痴？还是你这种顾左右而言他高高在上批判的未知生物？ ...</blockquote>
+按照正常人的理解，‌核心圈‌应该是指在一个组织或群体中最重要、最核心的一群人，他们通常是领导者、决策者，具有高度的权力和责任。
+这三吧有啥核心吗？是能和制作组沟通制作方向吗？我看你们对制作组也不满意呀。难不成是围攻角色厨或者出征b站大主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者是做wsd娇妻一边骂一边上供？还是说有什么释经权能开出观众身份？既然什么作用都没有，那叫什么核心？我看叫娇妻更好点。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
