@@ -3136,3 +3136,162 @@ nga在宣泄情绪，狗吧** ...</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  aptx8285144  
+##### 23950#       发表于 2025-2-15 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433294&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-15 18:04</a>
+
+我觉得第六集这反复车祥就已经过分了
+
+这还能圆回来人设吗？
+
+结果就是这个谁都不满意的局面了</blockquote>
+其实就是缺一根导火索，然后旧ccc的几个人对爱音这话态度上，柿本和独角兽处理得确实不够有温度，于是引爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23951#       发表于 2025-2-15 18:56
+
+在一個基本目標是把角色從2次元賣到3次元的動畫中不讓討論角色，
+
+這跟母雞卡不演唱有什麼分別？
+
+*****
+
+####  thisisaspider  
+##### 23952#       发表于 2025-2-15 18:57
+
+我觉得剧情还是能讨论的，前面太多东西没用上了。只是我对编剧失去信心了，不太想讨论。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 23953#       发表于 2025-2-15 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433581&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 18:55</a>
+
+这么说现在这楼里是不是只有我看好mujica，不，大祥传
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1 ...</blockquote>
+大祥传一路赢赢赢真的比这垃圾拷打接唐突饺子强太多了。
+
+*****
+
+####  刑部姬真可爱  
+##### 23954#       发表于 2025-2-15 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433581&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-15 18:55</a>
+
+这么说现在这楼里是不是只有我看好mujica，不，大祥传
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1 ...</blockquote>
+讲道理你现在这个“看好”的词出来，楼友针对你这个“看好”到底是指看好什么的的讨论，可能热情都比讨论后续剧情的热情高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未来起航  
+##### 23955#       发表于 2025-2-15 18:59
+
+个人视角的烂分这么几层：
+
+一层在大祥，一个黑化后完全非人类的角色，整个mujica期间宛如行尸走肉。损害别人还糟践自己且人性丢光，堪称eva明日香的究极恶堕劣化版。到现在还是想起来就恶心怎么能有这种垃圾的角色写法。
+
+（顺带一提这部分还和mygo部分遗留下来的一致。“过去软弱的我已经死了”这台词难道就不滑稽吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一层在以双重人格为代表的烂炒，以及影像能力全方面拉胯。直接导致炒作变成了纯小丑表演，并且浪费大把的时间。回头来看可以说木头人内心这么点大祥来大祥去的纷争根本不值得专门分裂出一个完整人格来，搞出墨提斯只显得她除了戏精和
+
+一层在以喵梦为代表的编剧莫名其妙的自相矛盾。自己把大祥写成一个理解不能的蠢物，然后化身喵梦骂一通“你写的舞台剧本无聊透顶”“你的觉悟真垃圾”（还在第7集直接点名大祥不像人）。这种自己挖坑自己碰瓷的写法很难绷。顺带把喵这么个工具给完全弄拧巴了。
+
+再一层给到其他...“细枝末节”。什么时间感错乱，什么台词全方面拉胯等等（这么重要的东西能是细节我也禁不住笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+至于社区讨论，黑子内部比红黑之间怕是还要大。同样觉着这集难看，a是嫌包饺子极度刻意，b是给角色打抱不平，各自的雷点在对面看可能压根不值一提：b觉着反正都要包饺子过程无所谓，a觉得爱音本来就是行动力最强加上弧光已经完成的角色，做点‘牺牲’属于这阶段的编剧能干出的最不意外的事儿了（
+
+比如我对黑暗大祥的塑造讨厌到极点，但哪个群都发了也没见几个反应和我一样激烈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厚乳果珍爽  
+##### 23956#       发表于 2025-2-15 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，还有6集，拉出一个mujica还是能做到的，就当mujica的诞生是从第八集才开始的就行了。
+
+*****
+
+####  半年  
+##### 23957#       发表于 2025-2-15 19:02
+
+<img src="https://img.saraba1st.com/forum/202502/15/190233qbq066arztu1b4a5.jpg" referrerpolicy="no-referrer">
+
+<strong>Gj0Uu1hbsAAlTVr.jpg</strong> (268.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:02 上传
+
+[https://x.com/Mochimochi42069/status/1890690487683580393/photo/1](https://x.com/Mochimochi42069/status/1890690487683580393/photo/1)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  半年  
+##### 23958#       发表于 2025-2-15 19:02
+
+<img src="https://img.saraba1st.com/forum/202502/15/190251vf3ww3kpwwi7wwpc.jpg" referrerpolicy="no-referrer">
+
+<strong>GjwU9UOacAEWjtp.jpg</strong> (395.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 19:02 上传
+
+[https://x.com/sasakirico/status/1890408993849282672/photo/1](https://x.com/sasakirico/status/1890408993849282672/photo/1)
+
+*****
+
+####  Min_FOrder  
+##### 23959#       发表于 2025-2-15 19:03
+
+<blockquote>江口夕 发表于 2025-2-15 18:55
+这么说现在这楼里是不是只有我看好mujica，不，大祥传。
+
+编剧这明显不是让大祥在沙滩起跑，是在负18层起 ...</blockquote>
+你看，上面具有强大前瞻性的楼友这不就是大言不惭捂嘴不让讨论么，我说这讨论环境烂了也不冤枉他们吧？早点脱身，享受观看，以后不管是顺风局还是逆风局都没必要打，这才正确
+
+*****
+
+####  厉飞雨  
+##### 23960#       发表于 2025-2-15 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可是场内场外的表现都不像风光大葬
+场内狗团要live，偷摸0不写新歌，哭来兮苦音趴完了，爱音不上来说要彩排，soyo跟偷摸0估计都想跟着大祥老师走了
+场外wsd一堆操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厚乳果珍爽  
+##### 23961#       发表于 2025-2-15 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433463&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 18:32</a>
+
+笑死，我之前只是写了一点关于喵梦性格解析就被追着骂，还被扣喵粉的帽子，这也能叫攻击性低
+
+—— 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为分析就在洗地，在做错事情没受到处罚之前，再怎么分析原因就是洗。
+
