@@ -13638,3 +13638,32 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 当然如果他再出击时的碎碎念有说他第一次开GQ或者以前没启动过Omega就赶鸭子上架那当我没说
 
+
+*****
+
+####  刺客ares  
+##### 6972#       发表于 2025-2-15 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435029&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-15 21:26</a>
+
+就算能启动普通塞可缪也不意味就一定能启动omega啊
+
+就盗摄片段给我的感觉来说，我觉得他是很确定的（而不 ...</blockquote>
+现在情报太少，可以观望正篇除了玛秋还会不会有其他人能启动欧米茄塞克缪
+
+如果没有的话可以视GQX为玛秋专机，也不知道吉翁是怎么造出来的
+
+霓虹其实在根据周边合影立牌，假药喵安也能启动欧米茄塞克缪（
+
+*****
+
+####  纪寞  
+##### 6973#       发表于 2025-2-15 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435029&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-15 21:26</a>
+
+就算能启动普通塞可缪也不意味就一定能启动omega啊
+
+就盗摄片段给我的感觉来说，我觉得他是很确定的（而不 ...</blockquote>
+我觉得不对，应该是之前就没启动过，不然没必要在启动时专门给夏利尔一个意味深长的镜头吧
+

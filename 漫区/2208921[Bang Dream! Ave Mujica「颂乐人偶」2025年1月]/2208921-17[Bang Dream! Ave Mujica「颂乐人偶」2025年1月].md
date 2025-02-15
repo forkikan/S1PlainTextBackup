@@ -6115,3 +6115,104 @@ R团早期也是各取所需，PP更是商业组团<img src="https://static.sara
 
 live没做好确实不应该，但是大主播把主要火力放到live没做好上，感觉太避重就轻了
 
+
+*****
+
+####  aptx8285144  
+##### 24222#       发表于 2025-2-15 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435094&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-15 21:33</a>
+
+我说了live唱得搞笑啊，这个不是聋子都听得出来，柿本広大挂名音监这锅跑不了。剧情逻辑上还是通顺的，要 ...</blockquote>
+其实我也是支持这话旧团对爱音的态度描写上不够有温度，而且也有人认为大祥其实也没有得到成长，而live不好只是最后一根稻草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 24223#       发表于 2025-2-15 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435107&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:34</a>
+是广大说狗团没有团魂那个乌合之众</blockquote>
+问题更大了，不管是日本本土的邦邦老受众，还是⏰欧美的新观众，不是想看完全没有团魂的团队一潭死水地进行什么事，嗜血观众也是想看爆炸的。在这之前mygo没有团魂还是某种暗规则，观众仍然希望成员之间有情绪联系，有主观能动性，现在明确把这件事放到台面上，就不能反过来教化观众看东西的姿势不对
+
+*****
+
+####  斯大林的拖拉机  
+##### 24224#       发表于 2025-2-15 21:38
+
+我支持大鼻子老师好吧，要不是楼友最憎恨的电竞ylg极端角色厨大量涌入，就凭老邦人的娇妻程度live做好了还不跪下来给武士道交钱？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 24225#       发表于 2025-2-15 21:38
+
+他都说出抛开人物逻辑不谈了，那确实是live开好了能再打一针类固醇啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 66367749| + 1|笑尿|
+
+查看全部评分
+
+*****
+
+####  Mr.Giraffe  
+##### 24226#       发表于 2025-2-15 21:40
+
+<img src="https://p.sda1.dev/22/8809e39746bf56f5c48949b4cfd19098/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 24227#       发表于 2025-2-15 21:40
+
+母鸡卡在路人风评都墙倒众人推完到出为爱音不值的mad赚眼泪和同情的阶段了，大鼻子叔叔还在这逆行盘这集live问题，呃呃
+
+*****
+
+####  Yukino-Yukino  
+##### 24228#       发表于 2025-2-15 21:41
+
+那live好不好确实很重要吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">go第十集其实我也觉得转变太快了，猫和灯的交互也相当神棍+都合。但灯的诗超绊确实能让人引起共鸣，就像好的剧情能让人感同身受一样，好的音乐也可以。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  北条早苗  
+##### 24229#       发表于 2025-2-15 21:42
+
+live做烂了问题当然大，就跟机甲片机战部分做烂的问题一样大
+母鸡卡的问题不只是某一集做坏的问题，是整个片的节奏都不对。第5集的大祥默剧可以说是全片最好的演出和情绪流，第5集又是给烂片盖棺的一集。迈巴赫违约金一出，第4集片尾的酒馆之战就没一个是人了。你不能只在抽陀螺的时候才用现实，但是又用少女乐队的世界观来解决问题吗。这种暴力对偶和全员工具人化一直蔓延到了狗团，最后就是稀烂的live彻底引爆了差评
+
+*****
+
+####  aptx8285144  
+##### 24230#       发表于 2025-2-15 21:42
+
+ 本帖最后由 aptx8285144 于 2025-2-15 21:44 编辑 
+
+做好只要把live做好，人物和逻辑对错快速粗暴不管让观众疯掉的心理准备吧，这次柿本都是本意是好的，执行坏了，<strong>结果却把问题暴露出来可以痛定思痛了（恩，柿本和独角兽还不一定认为有问题呢），下一次可不一定有这种”运气“</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 24231#       发表于 2025-2-15 21:44
+
+我现在非常好奇邦邦以后的live会变成什么样子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 24232#       发表于 2025-2-15 21:45
+
+说的也不能说不对，如果有高质量live确实能让人忽视很多不合理，就像如果有1个亿很多生活情感上的烦恼都可以无视，问题是没有。
+
