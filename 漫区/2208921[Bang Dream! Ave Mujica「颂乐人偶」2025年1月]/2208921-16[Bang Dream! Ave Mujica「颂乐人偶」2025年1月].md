@@ -16133,3 +16133,124 @@ CCC是属于过去的幽灵，本应该讲述曾经的故事，但却专注于�
 
 补了一下柿本1月的访谈确实有说修改了多版剧本，看来这黄泥巴掉进裤裆他是洗不干净了，在黑客黑进独角兽电脑偷出初版剧本之前没人能满意
 
+
+*****
+
+####  cccpprc  
+##### 23651#       发表于 2025-2-15 14:29
+
+<blockquote>虚无缥缈的光阴 发表于 2025-2-15 14:18
+迈巴赫姐粉丝以及路虎姐粉丝能不能收敛一点
+
+你们吵起来和鸡目前的剧情一样难看 ...</blockquote>
+迈巴赫姐粉丝已经被赶尽杀绝了
+
+路虎姐粉丝没那么大体量
+
+*****
+
+####  帝下室の年糕  
+##### 23652#       发表于 2025-2-15 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431832&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-15 14:22</a>
+邦吧紫吧我完全没去过，我说了企划粉接受程度和引流观众不一样是很正常的，在不同社区茧房共振当然会彼此攻 ...</blockquote>
+谁让几百万粉的大主播爱偷战吧呢，怎么不偷偷大B吧，是不想吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23653#       发表于 2025-2-15 14:31
+
+ 本帖最后由 怀沙汨罗 于 2025-2-15 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431857&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:25</a>
+这就是我在楼里的回复啊，鸡早就烂了，但你不能只在编剧的大手伸到自己屁股的时候才狗急跳墙，现在的所谓 ...</blockquote>
+我建议你可以看看别的讨论区，别在你所谓的核心三吧共振入脑了。第四集到第五集有多少剧情党的烂片雷达都疯狂报警你不知道？光是这栋楼多少人（包括我)在之前就表达过对剧情的担忧，你总不能视而不见吧？想着核心收缩就天下太平，那wsd的良苦用心岂不是白费了。国内的动画党，还是剧情为先，你所谓的角色厨也就那点风浪。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  零壹贰叁  
+##### 23654#       发表于 2025-2-15 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把我看笑了，大婊吧有什么东西偷啊
+
+
+*****
+
+####  wpcc  
+##### 23655#       发表于 2025-2-15 14:34
+
+<blockquote>MuramasaSP 发表于 2025-2-15 14:20
+本祥厨喜好（脑补）的祥子：满脑子都只有自己，这里的自己并非现实利益，而是一个能满足自己、自洽的精神 ...</blockquote>
+不如独角兽吃得通透
+
+*****
+
+####  帝下室の年糕  
+##### 23656#       发表于 2025-2-15 14:34
+
+ 本帖最后由 帝下室の年糕 于 2025-2-15 14:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431893&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:31</a>
+我建议你可以看看别的讨论区，别在你所谓的核心三吧共振入脑了。第四集到第五集有多少剧情党的烂片雷达都 ...</blockquote>
+我看是你理解能力有问题，关于作品包括我在内楼里很多人早就下判断烂完了，在楼里常驻的鸡友都已经跑路，现在说的是粉毛痴子ylg主导的骂都骂不准的畸形搞笑的舆论环境和引起的反噬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23657#       发表于 2025-2-15 14:35
+
+<blockquote>帝下室の年糕 发表于 2025-2-15 14:34
+我看是你理解能力有问题，关于作品包括我在内楼里很多人早就下判断烂完了，在楼里常驻的鸡友都已经跑路， ...</blockquote>
+鸡团想看的团魂已经没了 变成了白祥病毒 笑死
+
+*****
+
+####  wpcc  
+##### 23658#       发表于 2025-2-15 14:36
+
+<blockquote>swessia 发表于 2025-2-15 14:20
+睦厨都是颜狗什么的，不要说的这么直白啊
+
+只复读睦可爱现在怎么也比剧情吃屎强</blockquote>
+呆过吃谷群就知道为什么剧情这样了睦还能一个人加30
+
+*****
+
+####  天空塔书记官  
+##### 23659#       发表于 2025-2-15 14:36
+
+楼里有跑沪萝的吗，有点好奇<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 23660#       发表于 2025-2-15 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431847&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-15 14:24</a>
+
+看完贴吧剧透 要是这变态剧透对了ccc复活还只是小事了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+贴吧剧透发一下，我倒想看看有多变态
+
+*****
+
+####  Skymoon  
+##### 23661#       发表于 2025-2-15 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431849&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:24</a>
++1，一个被权限狗操控的河豚一言堂，有营养的讨论屁都没有只有共振的假药，能被叫做核心圈子这辈子也是有 ...</blockquote>
+能爆米的不叫核心圈，那什么才叫核心圈，ylg？二游痴？还是你这种顾左右而言他高高在上批判的未知生物？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23662#       发表于 2025-2-15 14:37
+
+某些人还真是大主播娇妻，一边看不上人家评论，另一方面又真把人当做动漫高手意见领袖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人觉得几个up主或者贴吧能够操纵风评吧？从第五话到现在风评每况愈下难不成都是背后的大手？到现在还不冲人家wsd而且想着割地抱团，我看这核心圈活该路边啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
