@@ -7238,3 +7238,217 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202502/15/224502y2y2t2nk2yxky27y.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 24327#       发表于 2025-2-15 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435765&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-15 22:44</a>
+
+还是有瓶子这种含马量极高的纯喷，不过现在也只敢打顺风团了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+现在骂鸡动画就是最大的顺风啊，但我猜他没这个胆量，叔叔有没有锁分？
+
+*****
+
+####  刑部姬真可爱  
+##### 24328#       发表于 2025-2-15 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435762&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 22:43</a>
+
+不，鸡还有6集动画，还有勉强把房搭起来的机会，毕竟原创动画未知的舞台（虽然机会不大，按照剧透的话更是 ...</blockquote>
+那这样说的话我猜鸡友得挨第二刀，要这么想还是鸡友惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑屑代沟尼亚  
+##### 24329#       发表于 2025-2-15 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435762&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 22:43</a>
+
+不，鸡还有6集动画，还有勉强把房搭起来的机会，毕竟原创动画未知的舞台（虽然机会不大，按照剧透的话更是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是狗厨房塌了也是因为给鸡盖房这帮逼人过来装修了一下
+
+我看这搭起来的机会不大啊
+
+*****
+
+####  是谁的书画  
+##### 24330#       发表于 2025-2-15 22:47
+
+这不对，我觉得不论是谁吧，能把这个情绪流理顺了都能够消解一部分的冲突。
+
+很多情况下冲突都是因为多人思潮下诞生的情绪浪潮，把一部分错误的原因逻辑性的理清楚，大部分人还是讲道理的。
+
+这也不算什么明骂暗捧，就是楼友之前讨论的，剧情其实是没什么问题，但是从塑造到制作到live都太差了。
+
+*****
+
+####  刑部姬真可爱  
+##### 24331#       发表于 2025-2-15 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435782&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 22:46</a>
+
+现在骂鸡动画就是最大的顺风啊，但我猜他没这个胆量，叔叔有没有锁分？ ...</blockquote>
+周五就已经骂过了啊
+
+*****
+
+####  wpcc  
+##### 24332#       发表于 2025-2-15 22:47
+
+祥all 泛世 你这个人真是只想到武士道呢 我真的会笑啊 你也是想看ccc的吧 
+
+*****
+
+####  wpcc  
+##### 24333#       发表于 2025-2-15 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435788&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 22:47</a>
+
+这不对，我觉得不论是谁吧，能把这个情绪流理顺了都能够消解一部分的冲突。
+
+很多情况下冲突都是因为多人思 ...</blockquote>
+他在给武士道复辟c团带路啊
+
+*****
+
+####  liekong  
+##### 24334#       发表于 2025-2-15 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435788&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 22:47</a>
+
+这不对，我觉得不论是谁吧，能把这个情绪流理顺了都能够消解一部分的冲突。
+
+很多情况下冲突都是因为多人思 ...</blockquote>
+“竟敢消解矛盾而不是像燃烧瓶那样情绪输出大骂，不是挑起观众负面情绪而是安抚观众，这一定是在挽尊”
+
+*****
+
+####  木板春香  
+##### 24335#       发表于 2025-2-15 22:50
+
+  没锁
+
+<img src="https://img.saraba1st.com/forum/202502/15/224843mnuniyzcv4ropchs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (361.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 22:48 上传
+
+现在6.8
+
+<img src="https://img.saraba1st.com/forum/202502/15/225000dwowftfy85w7r8b0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 22:50 上传
+
+*****
+
+####  厚乳果珍爽  
+##### 24336#       发表于 2025-2-15 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435516&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 22:16</a>
+
+睦头面具是喵梦摘的，但是初华面具可是她自己摘的
+
+你说喵梦她损人不利己那就纯粹是结果倒推了。
+
+首先母鸡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以喵梦独走就受到处罚了吗？
+
+说别人不应该拿结果论，你不也拿结果论了喵梦脱面具的理由吗？
+
+总不能摘了面具，通告增加了，所以摘面具就是好的吧？
+
+那因为通告增加，导致乐队规划被打乱，间接导致睦精神病发作，最后炸团，就不能说明摘面具是错的吗？
+
+*****
+
+####  595505568  
+##### 24337#       发表于 2025-2-15 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435665&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-15 22:33</a>
+大概默认大家都玩过手游知道輪符雨活动时候素世的风湿病犯过一次这次又不来排练估计是又犯了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那很有生活了，那我游戏里往前走的团魂你编剧怎么说忘就忘了
+
+*****
+
+####  ape-apple  
+##### 24338#       发表于 2025-2-15 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">情况还卜严峻，等锁分了就能让动物朋友心安理得骂了
+
+*****
+
+####  大户爱  
+##### 24339#       发表于 2025-2-15 22:52
+
+我一开始就知道大鼻子叔叔这么爱惜羽毛的人，会来圆场。
+
+直接讲制作者哪里想表达，没表达好，我觉得可以理解。
+
+但完全没想到他会直接说live不好，所以才这么多人喷。就是完全的避重就轻，默认大部分观众都不带脑子，且必须不带脑子。
+
+*****
+
+####  loneyuki  
+##### 24340#       发表于 2025-2-15 22:52
+
+剧情真的没问题吗，只是他痕迹明显到观众能理解他是想干啥
+
+观众能理解你的意图并觉得是该做这些事了=剧情写的没问题吗？
+
+*****
+
+####  凉良  
+##### 24341#       发表于 2025-2-15 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435813&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-15 22:50</a>
+
+没锁
+
+现在6.8</blockquote>
+锁了的 实际评分用插件看是五点几
+
+*****
+
+####  是谁的书画  
+##### 24342#       发表于 2025-2-15 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435802&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 22:49</a>
+
+他在给武士道复辟c团带路啊</blockquote>
+这我不表示好吧，他觉得live做好点大家能接受，我也不能敲他家门亲自和他讨论讨论死人必须好好死着比较好这件事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liekong  
+##### 24343#       发表于 2025-2-15 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435835&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 22:52</a>
+
+我一开始就知道大鼻子叔叔这么爱惜羽毛的人，会来圆场。
+
+直接讲制作者哪里想表达，没表达好，我觉得可以理 ...</blockquote>
+你这又断章取义了，他的原意是“Live好能少一些人骂”，跟你说的“Live不好才那么多人喷”完全是两个意思
+
+*****
+
+####  刑部姬真可爱  
+##### 24344#       发表于 2025-2-15 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435835&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 22:52</a>
+
+我一开始就知道大鼻子叔叔这么爱惜羽毛的人，会来圆场。
+
+直接讲制作者哪里想表达，没表达好，我觉得可以理 ...</blockquote>
+看他后面放剪片之后的弹幕和sc就知道了，他很懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -227,3 +227,16 @@ BV1uPP1ekEw4还是有的
 
 只能说人设和廉价机战确实是拖后腿了。就算是前世的画风，这3d黑皮也说不上很好看
 
+
+*****
+
+####  ashero  
+##### 262#       发表于 2025-2-15 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423291&amp;ptid=2124992" target="_blank">13街的居住民 发表于 2025-2-14 14:38</a>
+
+看了两集 越发想念evol 真的好喜欢
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+evol人设和发颠剧情真的无敌吧 还想再吃这口太难了
+

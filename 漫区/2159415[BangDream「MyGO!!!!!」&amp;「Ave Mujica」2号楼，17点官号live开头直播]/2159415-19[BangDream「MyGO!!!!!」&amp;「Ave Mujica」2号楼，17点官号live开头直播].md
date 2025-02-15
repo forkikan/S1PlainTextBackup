@@ -4181,3 +4181,32 @@ TFT绝对不是只能唱一遍，不相信杨姐的发挥
 
 听说i83无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 26955#       发表于 2025-2-15 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">萝这live质量真无敌了吧，现在的国内live我真没见过粉丝纯度那么高，那么会唱还会打call的，我感觉我周围ylgo也不少但是最后好多都被氛围给带进去开始狂舞了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ninokagami  
+##### 26956#       发表于 2025-2-15 22:51
+
+黑叫收尾，不敢想能有多爽
+[https://www.bilibili.com/video/BV1BUAKeLEuY](https://www.bilibili.com/video/BV1BUAKeLEuY)
+
+*****
+
+####  rollingusagi  
+##### 26957#       发表于 2025-2-15 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433122&amp;ptid=2159415" target="_blank">ml1642879 发表于 2025-2-15 17:35</a>
+抢到票的漏油记得来点repo啊</blockquote>
+前几首音响好像有点问题器乐全糊成一团，但是i83状态好的时候我真觉得是你邦第一主唱，她能带动拖沓的器乐把观众热情点燃。后面应该是休息时调整了下器乐正常了，那还能说啥呢，全场狂high就完事了。最后印象最深的是pa，这次pa的改编真是燃炸了，说真的没bd我觉得太可惜了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
