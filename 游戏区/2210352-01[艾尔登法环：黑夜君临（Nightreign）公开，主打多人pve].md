@@ -2496,3 +2496,11 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432600&amp;ptid=2210352" target="_blank"> 我就再氪一单 发表于 2025-2-15 16:11</a> blz436 发表于 2025-2-15 15:09 https://x.com/fromsoftware_sp/status/1890644753600979074 ELDEN RING NIGHTREIGNネットワークテストにご ... 这是日本时间吧，不是北京时间吧  —— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v2.5.4 </blockquote>
 北京时间比日本时间早一个小时来自: iPhone客户端
 
+
+*****
+
+####  医生狼多  
+##### 272#         楼主| 发表于 2025-2-15 17:21
+
+问一个蠢问题，怎么放职业技能啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实在没找到提示
+

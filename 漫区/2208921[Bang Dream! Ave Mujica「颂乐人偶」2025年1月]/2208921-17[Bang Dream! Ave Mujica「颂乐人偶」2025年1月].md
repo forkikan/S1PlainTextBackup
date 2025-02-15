@@ -1630,3 +1630,150 @@ ep4的时候知道烂了
 但还是不得不说必要的时候还 ...</blockquote>
 我也看得很开心，就羊姐跑调的时候觉得搞笑，但不影响这集整体还是一盘比较香的饺子，结果一看社区整个人傻了，怎么这么多刷-2这么多痛骂的，两天看了一堆讨论下来虽然能理解剧本编排上是有些硬伤但还是理解不了这么大的怒火是哪里来的，明明饺子包得还行，再不包饺子难道要爆到世界末日。你说想远离吧扛不住几乎每个群都会有人突然跳出来车一车，看看论坛吧专楼溢出来的也在外面发了好几个帖在车了，看看视频站吧首页也在车，弹幕更不用说了。那咋办呢，断网两个月等这波热度降完再上网呗，不然总忍不住想过去辩两句“第七集没有这么烂”的冲动
 
+
+*****
+
+####  天空塔书记官  
+##### 23817#       发表于 2025-2-15 17:16
+
+ 本帖最后由 天空塔书记官 于 2025-2-15 17:17 编辑 
+
+我从第一集开始就期待初华的剧情，只有看到她爆开或者结束神隐平稳下线才能终结这种期望，做好需要看完13集的心理准备还是不难的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  御幸一也  
+##### 23818#       发表于 2025-2-15 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432976&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 17:12</a>
+
+大多数观众应该第四集酒店大战结束就明白要烂了，另一大部分的观众估计看见双重人格就开始调整预期了，而 ...</blockquote>
+第7話才罵的就是典型巴掌沒打到自己臉上不知道痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 23819#       发表于 2025-2-15 17:16
+
+ 本帖最后由 ArcadiaMartyr 于 2025-2-15 17:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为“不要给mygo添麻烦啊！”
+我倒是能理解是staff太菜了，做的垃圾，所以人物崩坏什么的不在乎。
+好多人还是按照mygo那样一点点分析，可不是就觉得staff的xx角色有恶意了？
+归结到底，还是太菜<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  septer  
+##### 23820#       发表于 2025-2-15 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432962&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 17:10</a>
+
+制造悬念也是一种悬念，如果之后真没有“大的”，那也是一种反转反转再反转
+
+但毕竟现在还是第七集不是吗 ...</blockquote>
+13集动画，并不是说集集完美流畅才是合格的作品。
+
+用保险丝比喻一下，对我而言第四集相当于保险丝被击穿，后面再怎么找补都没用。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+除非它能全部撤掉，告诉我们全都在演舞台剧，全是舞台上的发生的梦结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 23821#       发表于 2025-2-15 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432858&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 16:57</a>
+
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是觉得第五第六集烂，这集还行。
+
+*****
+
+####  aptx8285144  
+##### 23822#       发表于 2025-2-15 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432978&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-15 17:12</a>
+
+我也看得很开心，就羊姐跑调的时候觉得搞笑，但不影响这集整体还是一盘比较香的饺子，结果一看社区整个人 ...</blockquote>
+虽然但是，羊宫这唱得，s1羊宫真爱楼里的人都觉得不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，虽然我觉得live问题只是第七话其中一个罢了
+
+*****
+
+####  看穿一切的鱼  
+##### 23823#       发表于 2025-2-15 17:18
+
+第四集开始就烂了，只是没想到能烂成这样阿<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 23824#       发表于 2025-2-15 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432978&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-15 17:12</a>
+
+我也看得很开心，就羊姐跑调的时候觉得搞笑，但不影响这集整体还是一盘比较香的饺子，结果一看社区整个人 ...</blockquote>
+沒關係，主場的日本人也看得很開心，有的是人喜歡，不用在意<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 23825#       发表于 2025-2-15 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432995&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-15 17:16</a>
+
+因为“不要给mygo添麻烦啊！”
+
+我倒是能理解是staff太菜了，做的垃圾，所以人物崩坏什么的不在乎。
+
+好多人 ...</blockquote>
+看到nga给立希做个一个一话之内的台词合订本，忘记保存了，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23826#       发表于 2025-2-15 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432997&amp;ptid=2208921" target="_blank">septer 发表于 2025-2-15 17:17</a>
+13集动画，并不是说集集完美流畅才是合格的作品。
+
+用保险丝比喻一下，对我而言第四集相当于保险丝被击穿， ...</blockquote>
+现在是击穿保险丝，那如果最后是把变电站整个炸掉不也是一种好结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  dqtql  
+##### 23827#       发表于 2025-2-15 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432978&amp;ptid=2208921" target="_blank">梦诗歌雪 发表于 2025-2-15 17:12</a>
+
+我也看得很开心，就羊姐跑调的时候觉得搞笑，但不影响这集整体还是一盘比较香的饺子，结果一看社区整个人 ...</blockquote>
+观众现在的怒火不单单针对第七集，而是对作为一个整体的前七集
+
+*****
+
+####  Skymoon  
+##### 23828#       发表于 2025-2-15 17:20
+
+第五集还好吧，那一段默剧我还是挺喜欢的，不过也是大概第五集讲的东西少，所以没感到有多崩坏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Min_FOrder  
+##### 23829#       发表于 2025-2-15 17:21
+
+还能说啥好呢？从第4集以后你楼的反应就能看出来了，当这样一个作品在社区陷入不骂不足以彰显自己明见万里的局面时，正常的讨论也就没有容身之地了。观感没有那么差的楼友早点认识到这个事实，赶紧脱离社区的黑泥就好
+
+*****
+
+####  只会双持开拓者  
+##### 23830#       发表于 2025-2-15 17:21
+
+前三集普普通通，第四集滴嘟滴嘟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
