@@ -4296,3 +4296,15 @@ ep7一上来校门之战一分半，车站过渡场景花了18秒暗示爱音和
 
 我服了，你前面角色和傀儡一样被剧情推着走我能当看不见，到了乐队最重要情绪释放的live演出这块居然能拉，音乐动画到最后把音乐性丢了，哥们你是来搞笑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 418#       发表于 2025-2-15 15:00
+
+上集打-1是我要求太高了，这集-2都不足以描述了
+
+但是细想第七集的问题也是五六集带来的，这集这么高速和面包饺子还没包好不就是因为之前——早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+最后吐槽一句，乐队企划live现场这么弄，真是压死骆驼的最后一根稻草，看到最后甚至在难绷的剧情里有点想笑
+

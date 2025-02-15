@@ -132,3 +132,139 @@ xhs都在关心umr
 
 查看全部评分
 
+
+*****
+
+####  MASKA-1  
+##### 23690#       发表于 2025-2-15 14:59
+
+你楼至少没有铁棍柿本
+
+*****
+
+####  阿兹尔  
+##### 23691#       发表于 2025-2-15 14:59
+
+你们跟一个搬史成性，成天除了泡在互联网就没事干，大周末就各个社区互搬暴论，以满足自己空虚的满足感的人掰扯这么久干啥
+
+*****
+
+####  cxj649  
+##### 23692#       发表于 2025-2-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432070&amp;ptid=2208921" target="_blank">无证madam 发表于 2025-2-15 14:56</a>
+
+这片烂不烂跟按不按鸡友的想法拍没有半点关系
+
+狗好看是好看在剧本的逻辑能承起ep7中 所有角色都认为自己 ...</blockquote>
+鸡厨之前切割话术就像推子的帽粉雌竞话术一样其实很猎奇的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23693#       发表于 2025-2-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432088&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-2-15 14:59</a>
+你楼至少没有铁棍柿本</blockquote>
+那又是啥<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 23694#       发表于 2025-2-15 15:00
+
+铁棍柿本，那木棍电棍是谁？木棍是一开始就被殴打出局的独角兽？电棍是mggm？
+
+*****
+
+####  怀沙汨罗  
+##### 23695#       发表于 2025-2-15 15:01
+
+本来正常讨论车制作组车wsd，某些人突然跳出来对什么粉毛痴开火，一副斗争拉满的鸡血样。后面更是搞出了什么“核心圈”的神论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2025年了，看个动画还要被划个369等的种姓，合着在核心三吧点下关注并讨论就拥有核心身份了。我还想是不是有什么特殊福利呢，原来这个核心就代表爆米啊？那看来我也算核心了<img src="https://p.sda1.dev/22/1b087e7f0f38722ffca56efc98ba9c71/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  怀沙汨罗  
+##### 23696#       发表于 2025-2-15 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432059&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-15 14:54</a>
+有些人就爱二元对立，难道核心观众＝全肯定吗？有爱有恨才是正常，别太二极管了 ...</blockquote>
+太是了大小姐，我算不算核心？<img src="https://p.sda1.dev/22/ae15ab4f2c7542e6f6dcd7199f35b1db/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 23697#       发表于 2025-2-15 15:02
+
+看错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lawliet.L  
+##### 23698#       发表于 2025-2-15 15:02
+
+CCC相关出现挺正常，不过我一直以为CCC复活会是手游剧情<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NEWROMANCER  
+##### 23699#       发表于 2025-2-15 15:02
+
+外面社区都开始信铁棍定型文了还聊各大社区真的有意义吗。你永远不知道和你对线或者和你共振的人是什么厨什么网龄什么亚文化圈层受众什么观影方式，要跨一大串平台甚至跨语言跨文化传递一些不知道加工多少遍的二手屎。面对一个纯粹的混沌状态，去揣测推理出运行原理真的有可能吗。
+
+
+*****
+
+####  木板春香  
+##### 23700#       发表于 2025-2-15 15:04
+
+VT真是互联网的终极形态
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|你说这个谁懂啊(|
+
+查看全部评分
+
+*****
+
+####  cxj649  
+##### 23701#       发表于 2025-2-15 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432100&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 15:00</a>
+
+鸡厨之前切割话术就像推子的帽粉雌竞话术一样其实很猎奇的</blockquote>
+再说下这几个话术就好像末日片里面一角在演女频宅斗一样
+
+*****
+
+####  虚无缥缈的光阴  
+##### 23702#       发表于 2025-2-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432115&amp;ptid=2208921" target="_blank">NEWROMANCER 发表于 2025-2-15 15:02</a>
+
+外面社区都开始信铁棍定型文了还聊各大社区真的有意义吗。你永远不知道和你对线或者和你共振的人是什么厨什 ...</blockquote>
+当年v圈也有人信中之人被stf用铁棍打的，这也是一种循环
+
+*****
+
+####  raii  
+##### 23703#       发表于 2025-2-15 15:07
+
+看了圈场外消息我想跳船了，这片不值得跟，等盖棺了再说<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
