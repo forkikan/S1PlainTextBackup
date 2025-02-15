@@ -13005,3 +13005,41 @@ C團佔了狗團的3/5 （考慮到貓不參與事務， 實際上是3/4） 這�
 如果初华小姨论是真的那我立马退坑</blockquote>
 那你得退两次
 
+
+*****
+
+####  是谁的书画  
+##### 23369#       发表于 2025-2-15 10:07
+
+有人觉得演出没问题，反正就是有人照顾得到有人照顾不到的，大祥大女主事实上多收点照顾很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可我个人觉得制作组不但剧内搞双标，剧外也要搞复活炒作就是没想着带爱音玩。那我认为爱音厨要闹了也太寄吧正常了。
+
+要是爱音是朝日六花那样的一条路边的人气，ok那没问题，谁care啊。
+
+但很遗憾的是爱音在国内的人气足够把列祖列宗加一起日了，还混杂着原a手粉，原麻辣，和新一代的萌二，战斗力就是当前zng互联网T0。
+
+那这不就成问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大祥要是有爱音这样的人气会有这样的问题吗？可凭借现今大祥这塑造我估计可难咯。
+
+那我觉得就没啥问题了，wsd场内场外都不干人事那被不是人的找上门也太对劲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  林云少校  
+##### 23370#       发表于 2025-2-15 10:12
+
+后面几集的剧透是不是全部出来了？
+
+*****
+
+####  林云少校  
+##### 23371#       发表于 2025-2-15 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429849&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 10:04</a>
+
+那你得退两次</blockquote>
+初华真的是祥子的小姨？
+

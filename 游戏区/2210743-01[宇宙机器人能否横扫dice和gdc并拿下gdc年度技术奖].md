@@ -1173,3 +1173,15 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
 真要说强大的地方就是量大管饱还能 ...</blockquote>
 你太狂妄了，你以为物理效果就是画面好吗？我看到小机器人介绍物理效果的视频，那个切木头的片段让我惊得说不出话，在我看来跟美末2的穿衣服拉绳子一样，炫技到天上去了，别的游戏真做不到
 
+
+*****
+
+####  高妹控  
+##### 105#       发表于 2025-2-15 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426198&amp;ptid=2210743" target="_blank">lilisipis 发表于 2025-2-14 19:23</a>
+小机器人能和野炊，老头环，博德3一个水平就真见鬼了</blockquote>
+你怎么不说提名全都不配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
