@@ -440,3 +440,111 @@ VT真是互联网的终极形态
 
 而先有雞再有狗這個，最初是因為米澤太早被拉導致的誤會，後來訪談有提到結月她們也是2021年左右被拉的，就能大概知道雞狗是同時進行的。只是鼓手更早被敲定。
 
+
+*****
+
+####  cxj649  
+##### 23714#       发表于 2025-2-15 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432202&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-15 15:16</a>
+
+鸡友期待的剧情就是弱化ccc
+
+结果wsd天天给ccc尽孝 
+
+导致片子烂完了 狗友也破防了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实弱化不了，再弱化底层剧情后续这玩意还会冒出来的
+
+虽然这次是化脓动脉大出血
+
+*****
+
+####  厄神之息  
+##### 23715#       发表于 2025-2-15 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在能发展成农厨大战邦结晶，鸡剧情无人关心的走向我是没想到的。也是侧面说明了路人全被这集吓跑了，只有粉丝留下来大乱斗了。也算是回归历史应有地位了。
+
+*****
+
+####  天空塔书记官  
+##### 23716#       发表于 2025-2-15 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431750&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 14:10</a>
+问题的重点还是因为CCC的部分对于A团剧情的推进作用未达预期，还占用了不小的篇幅，属于无效演出，至于这是 ...</blockquote>
+不是没人，只是没人回应
+
+所以楼里有人去了沪萝吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 23717#       发表于 2025-2-15 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432239&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 15:21</a>
+其实弱化不了，再弱化底层剧情后续这玩意还会冒出来的
+
+虽然这次是化脓动脉大出血 ...</blockquote>
+反正制作组就是选择了最错误的一条路线来解决ccc的问题就是了
+他们也为此付出了代价<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 23718#       发表于 2025-2-15 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432240&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 15:21</a>
+
+现在能发展成农厨大战邦结晶，鸡剧情无人关心的走向我是没想到的。也是侧面说明了路人全被这集吓跑了，只有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能什么走向，底层问题解决了啊
+
+虽然2个问题
+
+为啥一个乐队必须只能5人呢
+
+母鸡卡有必须原班原马重组吗
+
+*****
+
+####  水野貴弘  
+##### 23719#       发表于 2025-2-15 15:25
+
+这CCC真是夹不断的一坨屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 23720#       发表于 2025-2-15 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432160&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:09</a>
+
+來看樂子的，怎麼還有人招魂。
+
+現在這個劇情不就是狗友想看的嗎，狠狠融合不看go看不了mujica，
+
+雞解散全 ...</blockquote>
+这都已经不是拯救，对大祥已经和施舍没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 23721#       发表于 2025-2-15 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432202&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-15 15:16</a>
+
+鸡友期待的剧情就是弱化ccc
+
+结果wsd天天给ccc尽孝 
+
+导致片子烂完了 狗友也破防了</blockquote>
+畢竟誰能想到堂堂的mujica主唱能直接下線2話呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主唱什麼地位老邦人都懂的吧，都不說老邦人了，就現實和其他任何作品的邏輯來說，主唱都是一個樂團的門面。
+
+而為什麼說這個，因為三角初華和CCC是沒有任何關係的。強化CCC就必然要弱化她。
+
+現在是avemujica他連自己的臉都不要了，還能說什麼呢。
+
