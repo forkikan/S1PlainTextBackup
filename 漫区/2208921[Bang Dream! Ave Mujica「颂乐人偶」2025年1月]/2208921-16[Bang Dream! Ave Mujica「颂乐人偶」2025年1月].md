@@ -13446,3 +13446,172 @@ mygoMujica就是都市狗血剧白月光框架，但是**编剧和wsd完全不�
 滑坡的感觉大概就是如此</blockquote>
 ccc复活不是藏吗
 
+
+*****
+
+####  wpcc  
+##### 23412#       发表于 2025-2-15 11:07
+
+<blockquote>yaneis 发表于 2025-2-15 11:06
+mygoMujica就是都市狗血剧白月光框架，但是**编剧和wsd完全不明白死掉的白月光才是好白月光，半死不活那是 ...</blockquote>
+其实ccc不是重点 重点是武士道要捧的是哪几个
+
+*****
+
+####  الطائر  
+##### 23413#       发表于 2025-2-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429577&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-15 09:00</a>
+
+绫奈的代言人更有可能是高松灯（她现在的编剧身份与灯孤僻文学少女的对应），丰川祥子更像是她喜欢的某个 ...</blockquote>
+是被怪阿姨独角兽吓跑的一般路过女高中生
+
+<img src="https://img.saraba1st.com/forum/202502/15/110502ppmf2nffr63ggnfz.jpg" referrerpolicy="no-referrer">
+
+<strong>8e944bff9925bc31d3584cb118df8db1cb137071.jpg</strong> (571.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 11:05 上传
+
+*****
+
+####  z-hunter  
+##### 23414#       发表于 2025-2-15 11:08
+
+说实话我可是不信光是爱音厨能把B站的评分在1天内降1分以上的
+
+现在破防打低分的基本是MYGO这个团的粉吧，会来看JI动画的我能说大部分都是被GO动画的优秀吸引过来，然后才对这部"GO动画第二季“充满期待地追
+
+现在的情况就是无论是动画内动画外表演，C团都像要复活了，而这点是刺激着GO团厨最敏感的神经（毕竟第1季闹最大的就是素世复活C团。
+
+背后还有大人们只想着赚钱炒作的资本家的嘴脸
+
+现在这个时段这种氛围我想GO团厨都有一种被背叛了第一季动画的感觉，破防（打低分也是最自然的反应
+
+所以你说破防的只有爱音厨，个人觉得是没那么大能量的（我是不是太小看饭圈的力量了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23415#       发表于 2025-2-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430332&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 11:06</a>
+ccc复活不是藏吗</blockquote>
+啊，这算什么大的，复活就复活呗，又不是太出乎意料的事，关键是ave的故事要怎么演啊，这才第七集欸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 23416#       发表于 2025-2-15 11:08
+
+<blockquote>wpcc 发表于 2025-2-15 11:07
+其实ccc不是重点 重点是武士道要捧的是哪几个</blockquote>
+灯祥soyo，希睦是顺带的，那不还是ccc
+
+*****
+
+####  wpcc  
+##### 23417#       发表于 2025-2-15 11:08
+
+<blockquote>z-hunter 发表于 2025-2-15 11:08
+说实话我可是不信光是爱音厨能把B站的评分在1天内降1分以上的
+
+现在破防打低分的基本是MYGO这个团的粉吧，会 ...</blockquote>
+mygo是年轻人的第一部二偶 破的就是这群人
+
+*****
+
+####  ads147147  
+##### 23418#       发表于 2025-2-15 11:09
+
+年轻人第一部二偶不是星团1么。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 23419#       发表于 2025-2-15 11:09
+
+<blockquote>yaneis 发表于 2025-2-15 11:08
+灯祥soyo，希睦是顺带的，那不还是ccc</blockquote>
+你错了 下一个要捧的是sumimi 等着看反田扭腰吧 杨工的肉体完全不如啊
+
+*****
+
+####  yaneis  
+##### 23420#       发表于 2025-2-15 11:10
+
+想了想，ccc半死不活是桔梗，mygo是戈薇，灯素希是犬夜叉
+
+
+*****
+
+####  wpcc  
+##### 23421#       发表于 2025-2-15 11:10
+
+<blockquote>ads147147 发表于 2025-2-15 11:09
+年轻人第一部二偶不是星团1么。。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+播放量讨论度说话好吧
+
+*****
+
+####  yaneis  
+##### 23422#       发表于 2025-2-15 11:10
+
+<blockquote>wpcc 发表于 2025-2-15 11:09
+你错了 下一个要捧的是sumimi 等着看反田扭腰吧 杨工的肉体完全不如啊</blockquote>
+先把戏份给了再说吧（
+
+*****
+
+####  看穿一切的鱼  
+##### 23423#       发表于 2025-2-15 11:12
+
+白祥回没回来也不好说吧，而且编剧的仇人真的能被叫做主角吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 23424#       发表于 2025-2-15 11:13
+
+不爱洗澡的墨缇丝
+<img src="https://p.sda1.dev/22/d91e21e41bbea817c4eebfa26d52e77c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d963c42ee42fc53141b17c5561202dc8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/03ffae2e51ae5c7635000eba41720e19/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8b8783688122af61c02f8576d066e3eb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23425#       发表于 2025-2-15 11:14
+
+你換到三次元偶像樂隊粉絲破防更厲害吧
+
+公司從現有兩個樂隊抽人組第三樂隊
+
+把資源投在第三樂隊上
+
+除非被剩下的都是底邊，
+
+不然就是暴動了
+
+*****
+
+####  一心而用  
+##### 23426#       发表于 2025-2-15 11:15
+
+<img src="https://p.sda1.dev/22/ed3bbfb14078fbb5d035c1eb66f63e12/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1e4a425cf68f3f9391e76cd21576bcd1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f432951a53c39c9eb1c4d37e1eb6c7ed/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f2c784aa81b4af3a94d063147ae1480a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/679156ef698c148c7b1a46c999f29402/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/94c88f74bcaf6cec70c2f75c3a0bc03f/image.jpg" referrerpolicy="no-referrer">
+
