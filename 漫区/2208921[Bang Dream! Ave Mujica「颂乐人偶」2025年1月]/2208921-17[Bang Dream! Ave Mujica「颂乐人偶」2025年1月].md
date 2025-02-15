@@ -7452,3 +7452,182 @@ image.png
 直接讲制作者哪里想表达，没表达好，我觉得可以理 ...</blockquote>
 看他后面放剪片之后的弹幕和sc就知道了，他很懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人又如何  
+##### 24345#       发表于 2025-2-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434310&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 20:14</a>
+
+那真是不看不行啊，现在是最混乱的时候，也是最快乐的时候。
+
+之后是好是烂要是作鸟兽散了就没得乐子看了 ...</blockquote>
+呃，可以礼问这句“羡慕你还活着”，是说我在别处一时脑残的失言，还是手机回复这个事呢?<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聋与唬  
+##### 24346#       发表于 2025-2-15 22:56
+
+我觉得坛友反应是不是太激烈了？爱音就是随便玩玩乐队的娱乐选手，又不是跟其他人一样打职业的，真的在乎其他队友跟谁组队吗？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  大户爱  
+##### 24347#       发表于 2025-2-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435853&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 22:53</a>
+你这又断章取义了，他的原意是“Live好能少一些人骂”，跟你说的“Live不好才那么多人喷”完全是两个意思 ...</blockquote>
+少一些人骂，和多一些人喷。
+你自己捋一捋，这种情况不是一个意思。
+
+*****
+
+####  凉良  
+##### 24348#       发表于 2025-2-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435870&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-2-15 22:56</a>
+
+我觉得坛友反应是不是太激烈了？爱音就是随便玩玩乐队的娱乐选手，又不是跟其他人一样打职业的，真的在乎其 ...</blockquote>
+我觉得S1很不激动了
+
+*****
+
+####  影伴光生  
+##### 24349#       发表于 2025-2-15 22:56
+
+泛式做MAD还是有一手的，当初巨人宣战布告那段能直接出三个版本的剪辑，不知道这次能不能重启一期《让我剪剪》
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24350#       发表于 2025-2-15 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435870&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-2-15 22:56</a>
+
+我觉得坛友反应是不是太激烈了？爱音就是随便玩玩乐队的娱乐选手，又不是跟其他人一样打职业的，真的在乎其 ...</blockquote>
+观众气氛到这里了 你不能在观众都在同情爱音的时候指出她就是武士道的摄像头
+
+*****
+
+####  是谁的书画  
+##### 24351#       发表于 2025-2-15 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435868&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-2-15 22:56</a>
+
+呃，可以礼问这句“羡慕你还活着”，是说我在别处一时脑残的失言，还是手机回复这个事呢? ...</blockquote>
+羡慕你能不回老板消息还能活着，我发自真心
+
+*****
+
+####  大户爱  
+##### 24352#       发表于 2025-2-15 22:58
+
+我说了live确实也很重要，绝对是次要的。
+
+场外也是这样，好多观众不满意live，但大部分最不满意的肯定不是live，而是剧情和人物塑造。
+
+大鼻子叔叔自己知道这一点，但为了消解情绪用这种话术，就怎么说，蛮恶心的。
+
+后面讲剧情，你看他不也是知道问题在哪里。
+
+*****
+
+####  liekong  
+##### 24353#       发表于 2025-2-15 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435873&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 22:56</a>
+
+少一些人骂，和多一些人喷。
+
+你自己捋一捋，这种情况不是一个意思。</blockquote>
+“多一些人喷”和“那么多人喷”不是一个意思
+
+*****
+
+####  凉良  
+##### 24354#       发表于 2025-2-15 22:59
+
+唉 灯箱  TMD要是是第五集灯把祥拉起来这该TMD多美好
+
+*****
+
+####  wpcc  
+##### 24355#       发表于 2025-2-15 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435894&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-15 22:58</a>
+
+我说了live确实也很重要，绝对是次要的。
+
+场外也是这样，好多观众不满意live，但大部分最不满意的肯定不是 ...</blockquote>
+他现在已经沉浸在祥all怎么做的更好的幻想里面了 顺从主播就完事了
+
+*****
+
+####  十九号大侠  
+##### 24356#       发表于 2025-2-15 23:00
+
+大鼻子叔叔比牛至豪好多了，
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  whzfjd  
+##### 24357#       发表于 2025-2-15 23:01
+
+抛开角色和企划观瞻，好奇鸡现况和华语圈公认垃圾且高仇恨的高达创形者相比如何？谁更甚一筹。
+
+*****
+
+####  大户爱  
+##### 24358#       发表于 2025-2-15 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435902&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 22:59</a>
+“多一些人喷”和“那么多人喷”不是一个意思</blockquote>
+你要这么咬文嚼字，那等明天切片出来。我可以给大鼻子叔叔嚼一堆暴论出来。
+
+*****
+
+####  loneyuki  
+##### 24359#       发表于 2025-2-15 23:01
+
+瓶子那个确实不行，全程都在有一说一，一两个小时的其他内容加起来都没有那个高速公路逆行的笑话好笑
+
+*****
+
+####  人又如何  
+##### 24360#       发表于 2025-2-15 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435891&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 22:58</a>
+
+羡慕你能不回老板消息还能活着，我发自真心</blockquote>
+哦，我老板是那种喜欢看装作很高雅的文艺小视频，而且一群发就是几十个人，所以大家都习惯不回复他了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 24361#       发表于 2025-2-15 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435771&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 22:45</a>
+屁股在哪已经很明显了 我去这下白祥学长共振了 挂着听完能笑死</blockquote>
+我勒个大鼻子羁绊
+
+*****
+
+####  刑部姬真可爱  
+##### 24362#       发表于 2025-2-15 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435908&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-15 23:00</a>
+
+大鼻子叔叔比牛至豪好多了，
+
+—— 来自 S1Fun</blockquote>
+牛子作为我们的电子嘴替你还要他怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

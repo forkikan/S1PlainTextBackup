@@ -4569,3 +4569,14 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 
 今天硅基的v3 pro怎么了，卡爆了，r1却一点事没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 1877#       发表于 2025-2-15 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434382&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-15 20:20</a>
+
+今天硅基的v3 pro怎么了，卡爆了，r1却一点事没有</blockquote>
+我晚上用Pro 的V3一直报错，换了普通的V3反而能正常用了……
+

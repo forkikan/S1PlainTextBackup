@@ -13691,3 +13691,18 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 玛秋将原本属于喵安的命运给夺走了，就好像GQX夏亚夺走属于阿姆罗的命运一样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 6975#       发表于 2025-2-15 22:57
+
+<blockquote>刺客ares 发表于 2025-2-15 22:02
+喵安启动欧米茄塞克缪其实是喵安主角论假药的一部分
+
+这个简而言之就是：
+
+喵安无论是身份性格技能都更符合传 ...</blockquote>
+
+蜘蛛侠平行宇宙是吧
+
