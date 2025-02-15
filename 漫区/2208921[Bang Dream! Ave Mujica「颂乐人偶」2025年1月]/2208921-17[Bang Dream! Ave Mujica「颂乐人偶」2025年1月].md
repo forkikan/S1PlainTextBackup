@@ -1919,3 +1919,187 @@ ep4的时候知道烂了
 
 因为我从一开始就不认为邦可以驾驭同时处理两个以上的角色分歧的能力。
 
+
+*****
+
+####  ccared  
+##### 23846#       发表于 2025-2-15 17:34
+
+什么叫第四集开始不骂不足以证明自己明鉴万里，那前三集母鸡卡打分楼里至少七成以上打+2的理由我都看不懂在嗨个什么，是不是我也可以说这片子不夸不配做新时代二刺螈。
+
+至少很多人前三集狂嗨到第四集觉得不行的时候也给了自己的理由吧，想一棒子把这么多人打成独醒？
+
+*****
+
+####  稀勢のささ  
+##### 23847#       发表于 2025-2-15 17:34
+
+不是，怎么这集一放就变成go也不是啥逻辑严密的作品了，当初吹的时候可不是这么说的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 23848#       发表于 2025-2-15 17:35
+
+<blockquote>厚乳果珍爽 发表于 2025-2-15 17:28
+我算看明白了，什么假药都吃只会害了你自己，现在假药破产了就疯狂黑泥是吧？
+
+第四集那么神经病的剧情还能 ...</blockquote>
+第四集畢竟還有9 集可以兜底
+
+而且樣本數還少， 可以給制作組一點信任
+
+現在都過半了，
+
+樣本數加起來， 破防很正常吧
+
+破防也是靠一個一個瞬間的累積的
+
+*****
+
+####  zhzij111  
+##### 23849#       发表于 2025-2-15 17:36
+
+有一说一我一直在骂，不过我是个纯祥黑，没什么参考价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dqtql  
+##### 23850#       发表于 2025-2-15 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433120&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-2-15 17:34</a>
+
+不是，怎么这集一放就变成go也不是啥逻辑严密的作品了，当初吹的时候可不是这么说的
+
+ ...</blockquote>
+顺风的时候怎么吹都没问题啊
+
+*****
+
+####  刑部姬真可爱  
+##### 23851#       发表于 2025-2-15 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433101&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-15 17:31</a>
+
+我还真没见过比这个楼讨论氛围更好的地方。
+
+真情实感破防的比例比任何地方都少，大部分人只给支持的言论加 ...</blockquote>
+反过来想这也算是这个论坛人少的好处吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsd正在做很新的企划试验，不仅场内剧本对偶，场外也要人气对偶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 23852#       发表于 2025-2-15 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432202&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-15 15:16</a>
+
+鸡友期待的剧情就是弱化ccc
+
+结果wsd天天给ccc尽孝 
+
+导致片子烂完了 狗友也破防了</blockquote>
+鸡友那不叫前瞻性，而是在wsd大手的拷打顺序里不幸排了第一位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skymoon  
+##### 23853#       发表于 2025-2-15 17:37
+
+可问题现在也没哪个假药完全破产啊，倒黑泥主要是天天看一些若治真假舅舅后拼命滑坡导致的，但归根到底还是对编剧不信任<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 23854#       发表于 2025-2-15 17:38
+
+你说go剧情有多严谨吗那也不至于 毕竟要说严谨大概是经不起想的 不过10 12的live的氛围感确实上去了 把大家情绪都带动起来了 无视之前一些逻辑问题也没什么了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刑部姬真可爱  
+##### 23855#       发表于 2025-2-15 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433120&amp;ptid=2208921" target="_blank">稀勢のささ 发表于 2025-2-15 17:34</a>
+
+不是，怎么这集一放就变成go也不是啥逻辑严密的作品了，当初吹的时候可不是这么说的
+
+ ...</blockquote>
+脱坑回踩很正常
+
+*****
+
+####  天空塔书记官  
+##### 23856#       发表于 2025-2-15 17:39
+
+不过要真想评价ave作为少女乐队动画具体是个什么水平，也得能看到这支乐队再说，至于现在…还是在藏…<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 23857#       发表于 2025-2-15 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432858&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 16:57</a>
+其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在 ...</blockquote>
+第四集就知道差不多盖棺材板了，后面只是钉钉子
+
+
+*****
+
+####  南宮凝香  
+##### 23858#       发表于 2025-2-15 17:40
+
+<blockquote>aptx8285144 发表于 2025-2-15 17:30
+我感觉最震惊的还是第五集，真把大祥变成真飞鸟第二（结合灯过来一起组乐队的发言更让人汗颜），所以我虽 ...</blockquote>
+辱鳥了
+
+鳥腦子不行， 行動力拉滿的
+
+當然你是對的
+
+這季出場角色只要過了時數就沒有不崩的
+
+向使当初身便死，一生真伪复谁知 
+
+如果爽姐第六集完結後重病卧床
+
+現在她還是完美女人
+
+*****
+
+####  aptx8285144  
+##### 23859#       发表于 2025-2-15 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433158&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 17:40</a>
+
+辱鳥了
+
+鳥腦子不行， 行動力拉滿的</blockquote>
+说的是支撑主角独立人格的动力被”否定“（<strong>现在这种老友们过来施舍赐予的不算，因为太不对等了</strong>）这点和真飞鸟太像了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 23860#       发表于 2025-2-15 17:43
+
+第二集那个喵梦掀完面具无事发生，一群staff理所当然安排曝光后的行程，祥子嘴了一句就轻轻放过，我就觉得有问题啊。
+
+第三集继续抽大祥，喵梦继续莫名其妙这么跳，也很奇怪。谁给你的勇气和话语权，祥子你碰到这种傻逼怎么哑巴呢？
+
+这里其实很多人也觉得不对劲，不过场外讨论，全是祥厨喵梦厨（祥黑）大战，基本不会觉着这片子会烂。
+
+第四集，还有人觉得就最后片段有问题。前面睦人格转变，除了祥，其他人又莫名其妙接受了。也是一股伪人感。
+
+假药我也不说了，前面我就说，什么叙诡，都是自己骗自己，放在这片子里有什么必要，这片是
+少女乐队，不是什么悬疑片。
+
+不过我本身对母鸡卡也没抱多大感情，所以还好，看乐子心态居多。真有爱，可能当局者迷吧。
+
