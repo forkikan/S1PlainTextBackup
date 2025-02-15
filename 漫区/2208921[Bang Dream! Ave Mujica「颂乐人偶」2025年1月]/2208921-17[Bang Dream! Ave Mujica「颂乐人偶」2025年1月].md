@@ -740,3 +740,156 @@ ccc复活应该是23年封笔就定好的 独角兽超喜欢这个的</blockquot
 
 我刚想回一下的，才想起楼里某傻逼绿毛在京吹三的时候还在尬洗呢。所以邦邦核心受众有京吹的核心受众能买BD嘛，有的话至少可以看乐子。
 
+
+*****
+
+####  zhzij111  
+##### 23739#       发表于 2025-2-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432330&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 15:34</a>
+所以车不应该是车这点吗？都搁那“粉毛受委屈了（自己认为）所有人都要陪葬！”和“你算核心粉？你花钱有 ...</blockquote>
+农邦反复车是因为双方都有的吵，母鸡卡这个剧情是大多数人一致觉得烂，当天晚上就车完了，现在还车属于自言自语了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  御幸一也  
+##### 23740#       发表于 2025-2-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432329&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:34</a>
+
+原来以前大家觉得武士道会认真对待剧情吗</blockquote>
+就不說武士道了，綾奈之前還說什麼這是要帶入墳墓的作品。
+
+稍微相信一下也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23741#       发表于 2025-2-15 15:39
+
+能圆倒是能圆，只要过后能补全人物形象，给出角色的行为逻辑和动机就行，但耐不住到七集还是在藏啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 23742#       发表于 2025-2-15 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432309&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:32</a>
+
+只能說明武士道現在是要流量不要媽，這樣的企劃所有邏輯不服務角色，也不服務劇情，是服務爆點
+
+只要劇情夠 ...</blockquote>
+恶毒的角度来讲，如果不是柿本搞砸了这话的live，那现在外面开火的无论是极端粉丝还是温和的粉丝都会被当”无事生非“的人吧，说白了，第五话之后注定不只一个主要角色要当工具人或被垫（大祥还是第一个成为真飞鸟第二呢），引发不满只是程度区别
+
+*****
+
+####  skylah  
+##### 23743#       发表于 2025-2-15 15:39
+
+内鬼也不可能两集完全消失，正常思路难道不是该给点暗示么
+
+六七很明显为了招魂ccc献祭一切，还是不要对编剧擅自期待了，人压根没想到这一层<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 23744#       发表于 2025-2-15 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432352&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 15:37</a>
+初华最大问题这个CV表第一的角色的剧情知情权和人际交际权呢
+
+但凡她问海玲后去问立希或者灯爱还算一个正 ...</blockquote>
+可能有，但是观众看不到，就像之前月面小知识里的说的一样，“忘湖”一直在月的暗面，无法被观测<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KLHgg  
+##### 23745#       发表于 2025-2-15 15:42
+
+ 本帖最后由 KLHgg 于 2025-2-15 15:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432329&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-15 15:34</a>
+
+原来以前大家觉得武士道会认真对待剧情吗</blockquote>
+以前不会，但从未像现在这样认真烂炒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23746#       发表于 2025-2-15 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432347&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:37</a>
+
+我可以很肯定的告訴你，C團最初的底層邏輯就是為了被解散。
+
+我把所有訪談都看了不止一次，那兩個至尊說 ...</blockquote>
+谁复活ccc谁背锅吧 全锅。引入ccc这把枪开了一枪把大家都扎晕了是什么意思呢
+
+*****
+
+####  forgetit  
+##### 23747#       发表于 2025-2-15 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432370&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:39</a>
+
+就不說武士道了，綾奈之前還說什麼這是要帶入墳墓的作品。
+
+稍微相信一下也很正常 ...</blockquote>
+哎呀，<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 23748#       发表于 2025-2-15 15:45
+
+WSD 就是傲慢/垃圾
+
+這種情況速找自家旗下負責產短漫
+
+隨手來兩篇微糖的給狗團找補一下就能堵嘴了
+
+*****
+
+####  Lyzers  
+##### 23749#       发表于 2025-2-15 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432330&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 15:34</a>
+
+所以车不应该是车这点吗？都搁那“粉毛受委屈了（自己认为）所有人都要陪葬！”和“你算核心粉？你花钱有 ...</blockquote>
+觉得剧情傻逼和觉得角色被写崩写烂这两点又不冲突
+
+我还是那个想法，前面可以放大镜车鸡团细节，那现在放大镜车狗团细节也是一种延长线罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再说你楼前面也没少“都怪mygo把圈外人引来，我老邦邦人觉得你们都闹麻了”，聊资历也是系列作品不得不品的一环
+
+*****
+
+####  cxj649  
+##### 23750#       发表于 2025-2-15 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432380&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 15:41</a>
+
+可能有，但是观众看不到，就像之前月面小知识里的说的一样，“忘湖”一直在月的暗面，无法被观测
+
+——  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">爱音的MYGO能量有手游可以补
+
+但是初华如果下话出场是懵逼状态感觉一单纯低人际舔狗吧233
+
+*****
+
+####  山ノ内花音  
+##### 23751#       发表于 2025-2-15 15:46
+
+你说单纯是剧情ccc的live
+还可以理解成独角兽和柿本的爱
+场外直接上了the first take
+这可是你邦任何乐队有没有的待遇
+只能说武士道的高层也晕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
