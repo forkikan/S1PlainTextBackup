@@ -4409,3 +4409,13 @@ aider之前那篇博文吧，功能已经上线快两个礼拜了
 
 翻译不是用v3吗
 
+
+*****
+
+####  wjx1988124  
+##### 1866#       发表于 2025-2-15 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423739&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-14 15:14</a>
+DeepSeek缝合Claude，比单用R1/o1效果都好！GitHub揽星3k</blockquote>
+看了下，但是要两个官方的API啊。。
+
