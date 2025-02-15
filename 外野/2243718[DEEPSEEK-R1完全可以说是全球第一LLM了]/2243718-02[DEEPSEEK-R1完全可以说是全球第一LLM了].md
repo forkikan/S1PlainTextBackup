@@ -4529,3 +4529,24 @@ Cherry Studio   DeepSeek 生成 SD 绘图提示词.zip
 
 其他的用来建知识库就行
 
+
+*****
+
+####  requiem116  
+##### 1873#       发表于 2025-2-15 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429935&amp;ptid=2243718" target="_blank">断片集 发表于 2025-2-15 10:17</a>
+
+参考类脑的一个帖子https://discord.com/channels/1134557553011998840/1336904184674648167</blockquote>
+多谢分享
+
+*****
+
+####  larthasliu  
+##### 1874#       发表于 2025-2-15 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429854&amp;ptid=2243718" target="_blank">goranger 发表于 2025-2-15 10:05</a>
+
+https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
+感谢！
+
