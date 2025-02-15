@@ -893,3 +893,170 @@ WSD 就是傲慢/垃圾
 这可是你邦任何乐队有没有的待遇
 只能说武士道的高层也晕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  看穿一切的鱼  
+##### 23752#       发表于 2025-2-15 15:48
+
+是白祥病毒扩散到现实了吗，看看之后前辈团会不会有人舔祥老师？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 23753#       发表于 2025-2-15 15:48
+
+我之前有提过一个故意用高位视角欺骗观众的观点，即故事并不是没有推进，而是推进的过程观众看不到，是属于里世界的内容，但这套操作只有放在实验性动画里才合理，如果放在一般向作品里就是纯纯地耍猴
+
+搞不好ave就是这样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  forgetit  
+##### 23754#       发表于 2025-2-15 15:49
+
+武士道晕了吗，我觉得一直那样。。
+
+*****
+
+####  KLHgg  
+##### 23755#       发表于 2025-2-15 15:49
+
+ 本帖最后由 KLHgg 于 2025-2-15 15:51 编辑 
+
+剧本有没有被改过不好说
+
+正片这样角色前言不搭后语，行为动机模糊，配乐和打光乱来，无效情节充数，很像是在原来一版的半成品上拼凑了一坨爆点形成的产物
+
+这整部片子做出来就是为了炒作
+
+*****
+
+####  御幸一也  
+##### 23756#       发表于 2025-2-15 15:49
+
+我覺得可能很多人不太懂the first take的含金量，因為之前上這個的二次元團，只有孤獨搖滾。
+
+而孤獨搖滾是索尼親女兒，我都不敢想武士道為了讓CCC上這玩意兒花了多少錢。
+
+唉 順從吧，這真的是真愛了。反正mygo上不了，avemujica也上不了，可憐吶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AshPenguin  
+##### 23757#       发表于 2025-2-15 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432211&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:17</a>
+
+樂了，我看這段怎麼那麼像我打的，結果還真是，什麼轉自S1又轉回來
+
+順便確實沒提過本來想做個C團，但提 ...</blockquote>
+翻译辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+所以我在楼里也说了，ccc复出就是武士道想赚下一笔了，找了个炒作的点，说不定对编剧下了直接指示
+
+*****
+
+####  ellisnadie  
+##### 23758#       发表于 2025-2-15 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432446&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:49</a>
+我覺得可能很多人不太懂the first take的含金量，因為之前上這個的二次元團，只有孤獨搖滾。
+
+而孤獨搖滾是 ...</blockquote>
+甚至时间还精准对轴了了播出第二天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 23759#       发表于 2025-2-15 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432446&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:49</a>
+
+我覺得可能很多人不太懂the first take的含金量，因為之前上這個的二次元團，只有孤獨搖滾。
+
+而孤獨搖滾是 ...</blockquote>
+毫无疑问ccc的核心是白祥 不是丰川的大手能突破次元壁吗 
+
+*****
+
+####  天空塔书记官  
+##### 23760#       发表于 2025-2-15 15:55
+
+ 本帖最后由 天空塔书记官 于 2025-2-15 15:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432417&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 15:46</a>
+爱音的MYGO能量有手游可以补
+
+但是初华如果下话出场是懵逼状态感觉一单纯低人际舔狗吧233 ...</blockquote>
+不好说，观众能看到什么，取决于作者想让观众看什么，这本身就是一种信息差游戏
+
+如果ave真有一套只有内部才知道的里剧本，而做给观众看的，只是里剧本推进后的部分结果，那确实也是一种可能
+
+“最终解释权归制作组所有”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wpcc  
+##### 23761#       发表于 2025-2-15 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432475&amp;ptid=2208921" target="_blank">ellisnadie 发表于 2025-2-15 15:54</a>
+
+甚至时间还精准对轴了了播出第二天</blockquote>
+其实是同一天 因为半夜11点有购买力的社畜可能没空看 第二天下班看这个接tft 突然能接受EP7唱的这么烂了 
+
+*****
+
+####  forgetit  
+##### 23762#       发表于 2025-2-15 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432446&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-15 15:49</a>
+
+我覺得可能很多人不太懂the first take的含金量，因為之前上這個的二次元團，只有孤獨搖滾。
+
+而孤獨搖滾是 ...</blockquote>
+都是索尼系的人会上的比较多吗
+
+*****
+
+####  aptx8285144  
+##### 23763#       发表于 2025-2-15 15:56
+
+ 本帖最后由 aptx8285144 于 2025-2-15 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432351&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-15 15:37</a>
+
+剧情有啥好关心的，现在祥子放下自尊心认个怂，哭一下就全部解决了
+
+后面最大炸弹就初华，很明显祥子用这招 ...</blockquote>
+反正后面就算柿本把live开得再好，哭得再大声，我也不会和解<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 23764#       发表于 2025-2-15 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67432489&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 15:55</a>
+
+不好说，观众能看到什么，取决于作者想让观众看什么，这本身就是一种信息差游戏
+
+如果ave真有一套只有内 ...</blockquote>
+你不能和武士道作对 笔在他手里
+
+*****
+
+####  wpcc  
+##### 23765#       发表于 2025-2-15 15:58
+
+所以mujica是一个不看三次元访谈企划live就完全理解不了逻辑的东西 真正的二偶就是什么都看才没有信息差啊
+
