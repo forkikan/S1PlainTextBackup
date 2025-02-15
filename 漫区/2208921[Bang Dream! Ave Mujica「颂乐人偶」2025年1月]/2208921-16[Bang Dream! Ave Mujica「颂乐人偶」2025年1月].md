@@ -15760,3 +15760,105 @@ mygo逻辑有瑕疵，但瑕不掩瑜。mujica这个逻辑要真是反复推论�
 祥厨里白祥粉黑祥粉到底占几成啊？感觉到6话还厨祥的都爱那死倔无差创人味，到7一转白祥过于清澈就受不了 ...</blockquote>
 黑祥粉现在拦着武士道赚钱了早该死了。而且你真看的下去黑祥吗 黑祥等于清告
 
+
+*****
+
+####  帝下室の年糕  
+##### 23617#       发表于 2025-2-15 13:58
+
+ 本帖最后由 帝下室の年糕 于 2025-2-15 14:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431669&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 13:55</a>
+你要不是串子那就真有点入魔了所谓的邦邦人嘲讽二游痴更是一种特殊的幽默
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+你应该知道我说的二游痴是什么意思，只不过不适合在漫区多说罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在这几个吧划几下就是个拷打粉毛痴子的贴也是事实，而且是在吧务删帖的情况下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f2deacf192f0e66a066185ce2ecd2671/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 23618#       发表于 2025-2-15 13:59
+
+我看黑祥就是内部恨为了对抗内部爱的产物，现在说大祥是谁的皮套我是不信，除非她是抖m<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 23619#       发表于 2025-2-15 14:01
+
+其实素世这个是很好反转的。
+
+素世温柔以待的那些人都是什么人呢？大🐘，大睦大莫，🐧人，🐱人，这有一个算一个都是路边的精神病。素世对待这些人就是含有母性的，但换句话说这就是居高临下的。
+
+你们就是心理年龄不超过8岁的小孩，我要以温柔的幼教的态度来对你。
+
+对于立希和爱音这种有正常行为且思维健全的人，她就会以平等的态度来应对了，这恰好暴露出她原本性格的冷漠。
+
+当然以上都是我纯口嗨，放动画里就是刻板刻板刻板刻板。
+
+*****
+
+####  滑稽Captain  
+##### 23620#       发表于 2025-2-15 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431653&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-15 13:53</a>
+
+你说这个mujica也有脚本会议也是反复推论出来的，这是从mygo访谈得到的推论还是原文就这么说的？
+
+mygo逻 ...</blockquote>
+mujica现在没完结，确实没有这方面的采访。但是这前后两季说到底其实是一部动画，创作上是连续的，要是她们写mygo时候好好讨论，写mujica就躺平瞎写，那真的没有人类了，没道理吧
+
+*****
+
+####  怀沙汨罗  
+##### 23621#       发表于 2025-2-15 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431679&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 13:58</a>
+你应该知道我说的二游痴是什么意思，只不过不适合在漫区多说罢了
+现在这几个吧划几下就是个拷打粉毛痴子 ...</blockquote>
+这几个吧是什么影响很大的舆论场吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来bagumi，b站，泥潭，nga还有b吧这些大吧都被粉毛痴占据了。另外我可不知道你没头没尾开炮二游痴指的是啥，毕竟邦邦这种2.5次元老牌手游应该资历更纯吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厚乳果珍爽  
+##### 23622#       发表于 2025-2-15 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431679&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 13:58</a>
+
+你应该知道我说的二游痴是什么意思，只不过不适合在漫区多说罢了
+
+现在这几个吧划几下就是个拷打粉毛痴子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二游痴是这样的，各种入脑，搞饭圈那一套，太恶劣。 
+
+
+*****
+
+####  帝下室の年糕  
+##### 23623#       发表于 2025-2-15 14:06
+
+ 本帖最后由 帝下室の年糕 于 2025-2-15 14:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431702&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:03</a>
+这几个吧是什么影响很大的舆论场吗看来bagumi，b站，泥潭，nga还有b吧这些大吧都被粉毛痴占据了。另外我 ...</blockquote>
+我不是说了这几个吧是核心圈子啊，核心圈子不重要难道指望引流来看个动画和奶龙炫狗二创的粉毛痴子爆米吗，鸡友用killkiss销量证明自己实力了，粉毛痴子呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23624#       发表于 2025-2-15 14:07
+
+第一次见“邦吧战吧紫吧”和”二游痴”切割的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，不知道的还以为邦邦是什么高贵的原创动画大作呢？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  楠城旧篱  
+##### 23625#       发表于 2025-2-15 14:07
+
+朋友用ai生成的访谈传出去了，大家注意下
+

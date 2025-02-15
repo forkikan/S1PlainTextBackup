@@ -4550,3 +4550,14 @@ Cherry Studio   DeepSeek 生成 SD 绘图提示词.zip
 https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 感谢！
 
+
+*****
+
+####  翻滚吧熊犊子  
+##### 1875#       发表于 2025-2-15 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425627&amp;ptid=2243718" target="_blank">moekyo 发表于 2025-2-14 18:04</a>
+
+是按照我之前发的这个教程吗https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA？我是按照上面来，就可 ...</blockquote>
+感谢，已经用上了，属实非常爽
+
