@@ -9378,3 +9378,53 @@ C团一个头铁倔强怪、一个嘴臭怪、两个自闭儿童，当年成员�
 
 也有个拆队的从小地方来的又蠢又坏的紫发，还有一个双马尾队友。对上了，都对上了
 
+
+*****
+
+####  灵椿  
+##### 24530#       发表于 2025-2-16 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436435&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-16 00:04</a>
+https://bbs.nga.cn/read.php?tid=43284684
+
+mygo吧还有个不同聊天记录的剧透，情节和这个也能对上。感觉 ...</blockquote>
+这剧透我到现在才看，第七集在稍微兜了一点底（真的有在兜底吗）的情况下都能整出这么大的存在主义危机，按第七集的水平真这么演下去…<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 24531#       发表于 2025-2-16 01:21
+
+<blockquote>灵椿 发表于 2025-2-16 01:16
+这剧透我到现在才看，第七集在稍微兜了一点底（真的有在兜底吗）的情况下都能整出这么大的存在主义危机， ...</blockquote>
+有一說一，
+
+按劇透來那就沒存在感危機了
+
+要不死毬， 要不就活下去
+
+真的考驗來了， 過了就再不用擔心
+
+過不了就死了
+
+問題是提出要求的那個人基本上就是背鍋位了
+
+
+*****
+
+####  莱茵哈鲁特  
+##### 24532#       发表于 2025-2-16 01:25
+
+[https://www.bilibili.com/video/BV1K3ATe8EsV](https://www.bilibili.com/video/BV1K3ATe8EsV)
+
+看了这个二创，心情好多了。
+
+*****
+
+####  sauron.j  
+##### 24533#       发表于 2025-2-16 01:25
+
+企划大手操办的这一切这个理由更能让人接受，自古原创番遇到上头干预就是翻车的开始
+
