@@ -15862,3 +15862,113 @@ mujica现在没完结，确实没有这方面的采访。但是这前后两季�
 
 朋友用ai生成的访谈传出去了，大家注意下
 
+
+*****
+
+####  是谁的书画  
+##### 23626#       发表于 2025-2-15 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431558&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 13:38</a>
+
+粉毛痴子已经在邦吧战吧紫吧人人喊打了，还隔这自以为无敌盾全网出征呢，真正的核心圈子会给这帮电竞驱二 ...</blockquote>
+你说得对，都在拷打粉毛痴子，这片子风评烂完全是因为这帮皮套人痴电竞痴抽象痴<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+太对了，那咱们把这帮逼剔除吧，他们都不是真正的二刺螈。那之后你再看看还有多少活人不。
+
+咱邦多利能运营怎么多年全得指望着这“核心圈子”呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 23627#       发表于 2025-2-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431721&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-15 14:06</a>
+我不是说了这几个吧是核心圈子啊，核心圈子不重要难道指望引流来看个动画和奶龙炫狗二创的粉毛痴子爆米吗 ...</blockquote>
+我感觉你理解能力似乎有些问题，不会以为现在动画风评墙倒众人推都是因为角色厨吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">更不会以为你所谓的核心圈有多大能量吧？要真能量这么大怎么前几部邦邦靠你所谓的核心三吧就是路边啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 23628#       发表于 2025-2-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431729&amp;ptid=2208921" target="_blank">楠城旧篱 发表于 2025-2-15 14:07</a>
+朋友用ai生成的访谈传出去了，大家注意下</blockquote>
+具体内容是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁棍？
+
+*****
+
+####  天空塔书记官  
+##### 23629#       发表于 2025-2-15 14:10
+
+问题的重点还是因为CCC的部分对于A团剧情的推进作用未达预期，还占用了不小的篇幅，属于无效演出，至于这是一开始就定好的还是后期修改的，那就不得而知了
+
+如果在讲CCC的时候能涉及一些的睦祥的过去和立希海玲的一部分剧情的话，或许会让人能接受得多
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  楠城旧篱  
+##### 23630#       发表于 2025-2-15 14:12
+
+<blockquote>595505568 发表于 2025-2-15 14:10
+具体内容是什么铁棍？</blockquote>
+复制太长了，发图可能看不到
+
+总之对流言保持警惕
+
+*****
+
+####  595505568  
+##### 23631#       发表于 2025-2-15 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431697&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-15 14:02</a>
+mujica现在没完结，确实没有这方面的采访。但是这前后两季说到底其实是一部动画，创作上是连续的，要是她 ...</blockquote>
+我作为手游痴能说一句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少女前线1那个德国篇也是总制作人和制作人小姐妹团互相拉扯出来的吗。最后总制作人没发啥都管导致文案走向XP释放。
+我看mujica就像看少前1德国篇和结尾纪念礼盒诱发最终审判一样（
+
+*****
+
+####  595505568  
+##### 23632#       发表于 2025-2-15 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431756&amp;ptid=2208921" target="_blank">楠城旧篱 发表于 2025-2-15 14:12</a>
+复制太长了，发图可能看不到
+
+总之对流言保持警惕</blockquote>
+有柿本拿铁棍的部份吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我好像看到了
+
+*****
+
+####  帝下室の年糕  
+##### 23633#       发表于 2025-2-15 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431744&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-15 14:10</a>
+我感觉你理解能力似乎有些问题，不会以为现在动画风评墙倒众人推都是因为角色厨吧更不会以为你所谓的核心 ...</blockquote>
+你觉得现在的舆论是在乎前三个还是最后一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5f47e226fcd8791c44c799387ff5c389/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  聂宝楽楽  
+##### 23634#       发表于 2025-2-15 14:15
+
+我也看到铁棍的那个访谈了
+
+*****
+
+####  帝下室の年糕  
+##### 23635#       发表于 2025-2-15 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431742&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-15 14:09</a>
+你说得对，都在拷打粉毛痴子，这片子风评烂完全是因为这帮皮套人痴电竞痴抽象痴
+
+太对了，那咱们把这帮逼 ...</blockquote>
+也没说片子没烂啊，这不是粉毛痴子因为编剧的大手伸到自己就开始给主子申冤到处拉屎骂其他角色甚至声优了显得奇异搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c1df16579b1af09b4c0db19ba0615c0b/image.jpg" referrerpolicy="no-referrer">
+

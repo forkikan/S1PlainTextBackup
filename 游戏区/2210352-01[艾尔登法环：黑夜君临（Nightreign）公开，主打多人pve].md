@@ -2369,3 +2369,30 @@ ps有人连上的吗
 
 傻逼日本人对联网游戏该有的东西没点逼数
 
+
+*****
+
+####  vava  
+##### 260#       发表于 2025-2-15 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 什么垃圾玩意儿拿出来骗钱了
+
+*****
+
+####  blz436  
+##### 261#       发表于 2025-2-15 14:10
+
+野队交流纯靠地图打标<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，时间紧张无时无刻不在缩圈前找机会农魂升级+打精英拿武器/perk，两回成功见了三狼，一把初见杀3人同时被AOE炸翻车，另一把靠无敌的蚁刺和女爵的回避性能苟过了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  我就再氪一单  
+##### 262#       发表于 2025-2-15 14:14
+
+ps5 pro帧率优先都有明显卡顿<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
