@@ -1440,3 +1440,56 @@ GlitterGreen只是有成员出国留学了，可没解散，有本事武士道�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  十万年魂环  
+##### 23799#       发表于 2025-2-15 16:54
+
+才7集，后面还有活吧，急什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甲鱼  
+##### 23800#       发表于 2025-2-15 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">现在Soyo算不算间接性的完成了在mygo前几集想实现的目标
+
+
+*****
+
+####  凉良  
+##### 23801#       发表于 2025-2-15 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">其实我挺好奇楼友是真的到第七集才发觉烂了。还是第五第六集的节奏舒服了，情绪留对了，神回。只是屁股坐在那里了。
+
+*****
+
+####  fuwamoco  
+##### 23802#       发表于 2025-2-15 16:58
+
+第一集她不拦着小太妹立希一拳搂上去，白祥早就哭哭全招了
+
+
+*****
+
+####  楠城旧篱  
+##### 23803#       发表于 2025-2-15 17:02
+
+<blockquote>十万年魂环 发表于 2025-2-15 16:54
+才7集，后面还有活吧，急什么</blockquote>
+希望剧透是真的
+
+*****
+
+####  是谁的书画  
+##### 23804#       发表于 2025-2-15 17:02
+
+<img src="https://i.miji.bid/2025/02/15/d851eaacc4da68800d85c8de8c7fe3db.png" referrerpolicy="no-referrer">
+
+幻想怎么不会有，当时第二集的时候我还一瞬间幻想过大祥会维护说错话的睦呢，结果是一脸吃惊的表情 “责任在我”。之后又说大睦不站她这边更是没道理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在回想起来怎么到第七集大祥就又懂睦了。
+
+看来这女人真得在外面罚站吹吹冷风反省几天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
