@@ -14717,3 +14717,194 @@ ccc的和解是狗团内关系补完的必需品，在狗10后只是搁置了对
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那手游会单独实装一个ccc的团吗？还是到时候单独给3+2出个ccc衣服的卡就算完事了？
 
+
+*****
+
+####  wpcc  
+##### 23523#       发表于 2025-2-15 12:48
+
+我劝go友早日投武 不要再一意孤行了 剧本23年底就全写完了 甚至是先有mujica再有mygo的 清算独角兽就完事了 笔在她那里！
+
+*****
+
+####  wpcc  
+##### 23524#       发表于 2025-2-15 12:49
+
+<blockquote>厄神之息 发表于 2025-2-15 12:48
+那手游会单独实装一个ccc的团吗？还是到时候单独给3+2出个ccc衣服的卡就算完事了？ ...</blockquote>
+先出sumimi试试水
+
+*****
+
+####  nemuru_baka  
+##### 23525#       发表于 2025-2-15 12:49
+
+ 本帖最后由 nemuru_baka 于 2025-2-15 12:51 编辑 
+
+素世,立希独白算放下了前任还ok，但是看灯完全是假装放下了的表现哇。唱完了还要谢幕被爱音阻止，这展开往下走就该到“就当是感谢我对MYGO做的事，说你想和祥子组乐队”然后日剧跑了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，最后一集C团登上武道馆，爱音和新的乐队成员在下面看，然后官宣下一部动画，名字就叫新・avemujica吧。
+
+*****
+
+####  Суслов  
+##### 23526#       发表于 2025-2-15 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431102&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-15 12:39</a>
+可你鸡也拉不出一个柯哀这种全受众层人气top打角解啊。
+青山花几话就能拉出一个复杂神秘的观众童年白月光， ...</blockquote>
+白祥不是钦定的人气top吗，君不见第七集白祥模式一启动什么soyo什么rikki立刻倒戈卸甲以礼来降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+遵循台长看二次元破防的自救方法，我奉劝大家还是早日接受wsd要大炒特炒ccc，早日皈依ccc才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  w酱  
+##### 23527#       发表于 2025-2-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431179&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-15 12:48</a>
+那手游会单独实装一个ccc的团吗？还是到时候单独给3+2出个ccc衣服的卡就算完事了？ ...</blockquote>
+按照之前的经验
+不会出新乐队
+但是会出一堆混活骗抽卡是真的
+
+*****
+
+####  _47  
+##### 23528#       发表于 2025-2-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431093&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 12:38</a>
+说白了wsd烂炒太恶心了，它不急着在场外复活ccc，那还有得说，剧里刚播完葬礼现实给你马上复活，这不成了 ...</blockquote>
+这确实，wsd一下子多架马车全指向ccc真的是逆天操作，live这些藏到完结再公布会好些，不过TFT得留着，不然柿本的烂活春日影要把羊的风评拉向地狱了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  AshPenguin  
+##### 23529#       发表于 2025-2-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431164&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:46</a>
+
+我就问你mujica剧本是不是和mygo一起写完的？</blockquote>
+无语了，，写完了不能改？而且你独角兽女士自述2023年第四季之后至今没参与Mujica，直接切割。这说明什么？说明她写的东西或者她希望写的东西已经被改了，就在23年到24年之间
+
+*****
+
+####  wpcc  
+##### 23530#       发表于 2025-2-15 12:51
+
+<blockquote>Суслов 发表于 2025-2-15 12:49
+白祥不是钦定的人气top吗，君不见第七集白祥模式一启动什么soyo什么rikki立刻倒戈卸甲以礼来降你甭管演出 ...</blockquote>
+和解就完事了 白祥是真好吃 吃了
+
+*****
+
+####  厄神之息  
+##### 23531#       发表于 2025-2-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431194&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 12:49</a>
+
+先出sumimi试试水</blockquote>
+sumimi只有两人也能成团吗？那比ccc实装更突破了吧？
+
+*****
+
+####  aptx8285144  
+##### 23532#       发表于 2025-2-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431065&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-2-15 12:33</a>
+
+我看圣人厨跟死小的角除是一模一样的，话术和行为</blockquote>
+剧情烂了，就别指望每个党派都是理智客观而不会迁怒的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，连“剧情好，但是有点争议剧情安排”都容易引发撕逼，像死神小学生就是我现在非常厌恶的现状，老贼把常驻人物实际放在一个很安全环境，有惊无险是一开始就知道的动作片模式，直接导致主线力量对比的崩盘和单线透明的无聊
+
+*****
+
+####  天空塔书记官  
+##### 23533#       发表于 2025-2-15 12:51
+
+所以为啥CCC不能和两团共存呢
+
+能不能简明解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 23534#       发表于 2025-2-15 12:51
+
+<blockquote>wpcc 发表于 2025-2-15 12:42
+你给武士道交违约金吗 在mygo做完的时间点ccc复活的各种准备都做下去了。已经是命中注定的四团并行了 ...</blockquote>
+宣發方向也是一年前就決定了？
+
+這公司是真好幹
+
+我們的廣告都是修改到最後一刻
+
+所以WSD 是24 年就把25 年的大方向鎖死，
+
+接下來就閉眼開下去就行
+
+
+*****
+
+####  Fuero  
+##### 23535#       发表于 2025-2-15 12:54
+
+显然动画最后走的一定是某种意义上的HappyEnding不然阿b没法全季提前过审
+
+*****
+
+####  wpcc  
+##### 23536#       发表于 2025-2-15 12:54
+
+<blockquote>南宮凝香 发表于 2025-2-15 12:51
+宣發方向也是一年前就決定了？
+
+這公司是真好幹
+</blockquote>
+是23年 独角**剧本开始
+
+*****
+
+####  ape-apple  
+##### 23537#       发表于 2025-2-15 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431021&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-15 12:27</a>
+
+為什麼是一定？
+
+就算第2大市場完全吃不下3C</blockquote>
+国内花大钱的那一批反而最不介意C团重建与否，一部分声优粉丝看谁都是看，另一部分听歌的有歌就会买，而大多数浮动粉丝反而是声量最大的
+
+*****
+
+####  hysjmr  
+##### 23538#       发表于 2025-2-15 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431205&amp;ptid=2208921" target="_blank">_47 发表于 2025-2-15 12:50</a>
+ 这确实，wsd一下子多架马车全指向ccc真的是逆天操作，live这些藏到完结再公布会好些，不过TFT得留着，不 ...</blockquote>
+这种一眼刻意演出来的效果最多只会造一个不讨人喜欢的梗而已
+
+*****
+
+####  刑部姬真可爱  
+##### 23539#       发表于 2025-2-15 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431217&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 12:51</a>
+所以为啥CCC不能和两团共存呢
+
+能不能简明解释一下</blockquote>
+硬要说的话就是祖宗之法不可变，邦系列其他团也没有这样的操作，两边都想上两边都要上的多惠是反面例子，而同队的saya就是正面例子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 23540#       发表于 2025-2-15 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431217&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 12:51</a>
+ 所以为啥CCC不能和两团共存呢  能不能简明解释一下</blockquote>
+俄狄浦斯
+

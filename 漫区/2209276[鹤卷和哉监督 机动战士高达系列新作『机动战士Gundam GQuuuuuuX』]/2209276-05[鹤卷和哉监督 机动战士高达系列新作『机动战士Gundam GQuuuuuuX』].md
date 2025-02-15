@@ -13375,3 +13375,21 @@ MS-18E是自护尼克的吧，山寨高达后有没有搞出来都成问题。
 煤炉被小番茄大头攻占了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/7325f78fc913656cb89145ede4f12c22/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 6949#       发表于 2025-2-15 12:46
+
+ 本帖最后由 0aleph37 于 2025-2-15 12:50 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/15/124642akj61ibt018r04gt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-15 12:46 上传
+
+ <blockquote>如果追溯的话，从士郎先生在《攻壳机动队》中的突破性发言开始，机械SF的挑战就已经悄然开始了。手臂、腿部和末端的块状物越大，动画中的动作也会显得更为宏大，视觉效果也更好。与此同时，穿着笨重的滑雪靴全力奔跑，即使是人类也做不到。</blockquote><blockquote>相反，如果是那种挥动沉重末端部位时，由于惯性而让身体被拉动的、充满重量感的作画演出，那么那样的表现也会令人感动。</blockquote>
+
