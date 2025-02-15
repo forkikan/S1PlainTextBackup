@@ -6505,3 +6505,200 @@ live只是最后的稻草而已。确实有不带脑子图一乐的观众，你�
 
 说真的大鼻子这个live是核心问题 我是不认同的
 
+
+*****
+
+####  liekong  
+##### 24263#       发表于 2025-2-15 22:06
+
+你们也太着急批判了，要也等大鼻子叔叔说完再批判啊，他的意思是Live是最大的问题而不是除了Live都没问题，现在不就开始批判第七集的各种问题了
+
+*****
+
+####  ape-apple  
+##### 24264#       发表于 2025-2-15 22:06
+
+大鼻子现在当务之急是学穿孔欧美人搞reaction，对着新live痛哭流涕，这样还能挽回点作品的名气，就全推给live的话，下一集他可有的洗了
+
+*****
+
+####  ashero  
+##### 24265#       发表于 2025-2-15 22:07
+
+睿频关系性 前任文学的醍醐味是错过 但是第七集c团看起来就没有错过感 要是把爱音猫踢了不就重组了 哪怕有猫有爱音也能重组 但是被邦邦底层逻辑导致复合不了
+
+*****
+
+####  wpcc  
+##### 24266#       发表于 2025-2-15 22:07
+
+没往死里车 就是不客观
+
+*****
+
+####  凉良  
+##### 24267#       发表于 2025-2-15 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435407&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 22:06</a>
+
+你们也太着急批判了，要也等大鼻子叔叔说完再批判啊，他的意思是Live是最大的问题而不是除了Live都没问题， ...</blockquote>
+不是他意思是live做烂了导致没办法掩盖其他问题，把一直以来的问题暴露出来了。
+
+这点我不认同，祥子光速转变就把前面的问题全拉出来了。
+
+*****
+
+####  Dpeey  
+##### 24268#       发表于 2025-2-15 22:08
+
+到这个地步台上的故事对我来说已经没有意义了，我只想知道制作组内部发生了什么，独角兽为什么就被踢了，这监督是什么来头
+
+*****
+
+####  z-hunter  
+##### 24269#       发表于 2025-2-15 22:08
+
+ 本帖最后由 z-hunter 于 2025-2-15 22:12 编辑 
+
+你要说狗团要滑坡到没有团魂炸团大可不必，现在只不过是狗厨觉得被“背叛”了在情绪输出而已。人家武士道十本独角兽都不懂老中为什么会GET不到C团“葬礼”的美好，反而在滑坡狗团要解散了，我完全没有这个用意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等这个风头过了，剧情回到鸡团之后，狗厨该玩游戏的玩游戏去看LIVE的看LIVE买谷的买谷，狗厨也只能抱团游戏剧情的糖和第一季的动画了
+
+*****
+
+####  kyonkoism  
+##### 24270#       发表于 2025-2-15 22:08
+
+怎么还有独角兽被踢的梗的
+
+*****
+
+####  wpcc  
+##### 24271#       发表于 2025-2-15 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435433&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-15 22:08</a>
+
+你要说狗团要滑坡到没有团魂炸团大可不必，现在只不过是狗厨觉得被“背叛”了在情绪输出而已。人家武士道十 ...</blockquote>
+狗厨我明说了现在和圆规是一个尿性的 到时候必定要清算的 
+
+*****
+
+####  liekong  
+##### 24272#       发表于 2025-2-15 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435430&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:08</a>
+
+不是他意思是live做烂了导致没办法掩盖其他问题，把一直以来的问题暴露出来了。
+
+这点我不认同，祥子光速 ...</blockquote>
+真按他原话的话，那就是“Live做好了起码能让更多人意见没那么大”，对这部分人来说确实Live好就能掩盖问题，而确实会有这么一批人。
+
+而没有表达过什么“Live好就什么问题都没有，会让所有人满意”
+
+*****
+
+####  ape-apple  
+##### 24273#       发表于 2025-2-15 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435426&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 22:07</a>
+没往死里车 就是不客观</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">前七集下来，不考虑音乐和前作，这玩意在原创里确实菜比一个
+
+*****
+
+####  凉良  
+##### 24274#       发表于 2025-2-15 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435447&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-15 22:09</a>
+
+真按他原话的话，那就是“Live做好了起码能让更多人意见没那么大”，对这部分人来说确实Live好就能掩盖问 ...</blockquote>
+是啊 所以是掩盖，。但是我觉得祥子光速转变就让一切问题掩盖不了了。
+
+*****
+
+####  凉良  
+##### 24275#       发表于 2025-2-15 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435454&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 22:10</a>
+
+前七集下来，不考虑音乐和前作，这玩意在原创里确实菜比一个</blockquote>
+考虑音乐更是菜逼啊
+
+*****
+
+####  是谁的书画  
+##### 24276#       发表于 2025-2-15 22:12
+
+还有机会吗狗，接下来都是鸡的故事咧。
+
+别和我说手游补，手游真底边的，你动画都烂了那还有新人过去看新剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FanFun  
+##### 24277#       发表于 2025-2-15 22:12
+
+仅以第七集而言，最大的问题是live我没意见
+
+*****
+
+####  liekong  
+##### 24278#       发表于 2025-2-15 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435455&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:11</a>
+
+是啊 所以是掩盖，。但是我觉得祥子光速转变就让一切问题掩盖不了了。</blockquote>
+所以你不是他说的那批人啊，但客观来说是有除了你以外的另一批人吃这套，他这话都叠甲叠成这样了
+
+*****
+
+####  ape-apple  
+##### 24279#       发表于 2025-2-15 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435467&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-15 22:12</a>
+考虑音乐更是菜逼啊</blockquote>
+你就说killkiss卖得好不好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 24280#       发表于 2025-2-15 22:13
+
+狗在动画里是没希望了，狗厨也只能抱团手游剧情，不然怎么办，抱团二创吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 24281#       发表于 2025-2-15 22:14
+
+<blockquote>z-hunter 发表于 2025-2-15 22:08
+你要说狗团要滑坡到没有团魂炸团大可不必，现在只不过是狗厨觉得被“背叛”了在情绪输出而已。人家武士道十 ...</blockquote>
+我覺得正常人是Get 不到
+
+一面葬了
+
+一面上TFT 
+
+的葬禮的美好的
+
+這跟你讓克拉克肯特出席超人的葬禮，
+
+然後告訴我這葬禮很悲愴一樣
+
+如果WSD 真這樣想，
+
+我建議他們去驗腦子
+
+*****
+
+####  hysjmr  
+##### 24282#       发表于 2025-2-15 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435493&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 22:13</a>
+ 你就说killkiss卖得好不好吧</blockquote>
+沾了动画开播的光，我这种纯动画党也买了一盘。
+
+我说你能不能别妄想花钱的和不花钱的人泾渭分明了
+

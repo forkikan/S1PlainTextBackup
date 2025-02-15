@@ -2600,3 +2600,13 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 跟野吊通了一把 第一天boss亚人双人组 第二天龙装大树守卫 摸到尸山血海和死亡钩棒 也算是天胡爽局了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pzk  
+##### 282#       发表于 2025-2-15 22:07
+
+终于通了一把，还是用的法师。法师的大招除了前摇太大简直强无敌，开了就等于无限血无限蓝。
+但一技能的组合太难用了（单纯吸蓝倒还可以），跟卡尔一样，吸的属性不一样搓出来的招也不一样，但我又看不到元素组合表，每次要么是三魔力小弱鸡，要么是我自己也不懂的效果……
+打boss还能拿到个“漫步触发创星雨”的被动，不知道技能池深浅怎样，因为我第二个boss拿的也是创星雨<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
