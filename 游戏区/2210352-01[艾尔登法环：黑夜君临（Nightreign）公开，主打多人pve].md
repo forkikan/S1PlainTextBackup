@@ -2592,3 +2592,11 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 法师看拿到的法术或者战技，好用的法术然后吸魔复读就可以，大招加一个buff，根据造成的伤害回血回魔，所以灵魂激流这种的约等于无敌。
 
+
+*****
+
+####  鈴姉御肌  
+##### 281#       发表于 2025-2-15 21:32
+
+跟野吊通了一把 第一天boss亚人双人组 第二天龙装大树守卫 摸到尸山血海和死亡钩棒 也算是天胡爽局了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

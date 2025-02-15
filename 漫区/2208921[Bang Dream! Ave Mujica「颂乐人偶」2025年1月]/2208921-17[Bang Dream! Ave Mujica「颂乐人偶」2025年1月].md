@@ -5945,3 +5945,173 @@ R团早期也是各取所需，PP更是商业组团<img src="https://static.sara
 他们应该知道该怎么做</blockquote>
 稀烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 24204#       发表于 2025-2-15 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435004&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-15 21:23</a>
+稀烂吗别的都可以说烂，为了给crychic写这段挖空心思草蛇灰线好吧。安排立希这个时点去包的饺子既不是myg ...</blockquote>
+问题是对我来说都是独立的事件触发，你只是往上塞了触发卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，然后啥都不管了，这个事件能不能这么触发都不在乎
+水平稀烂是基于观众角度，如果他真的这么想干那我能说什么，祝他们和瑞穗女士一样长寿吧
+
+*****
+
+####  wpcc  
+##### 24205#       发表于 2025-2-15 21:29
+
+大鼻子叔叔是不是大鼻子姐姐附身了啊
+
+*****
+
+####  wpcc  
+##### 24206#       发表于 2025-2-15 21:30
+
+这也能洗啊 ？啊？大鼻子老师你能这样洗啊？是live的问题吗
+
+*****
+
+####  海底铁锚  
+##### 24207#       发表于 2025-2-15 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434794&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-15 20:59</a>
+说到这些主播的反噬，我只能说隔壁台长楼是我近期看得最乐的楼</blockquote>
+胎盘孝子楼几乎每页都有一个人输出GBC和哭友，明明GBC已经半年没消息了，到底是什么原因导致的呢 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ape-apple  
+##### 24208#       发表于 2025-2-15 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434898&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 21:11</a>
+邦邦不是，只要你想，怎么都能组成乐队吗。
+
+每个乐队的命题差异吧</blockquote>
+问题在于，mygo自己都不想多跟老邦路线拉上关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  看穿一切的鱼  
+##### 24209#       发表于 2025-2-15 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435068&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:30</a>
+这也能洗啊 ？啊？大鼻子老师你能这样洗啊？是live的问题吗</blockquote>
+大鼻子叔叔咋洗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Skymoon  
+##### 24210#       发表于 2025-2-15 21:33
+
+但live确实是重大问题啊，柿本广大真是一坨狗屎
+
+*****
+
+####  59268416  
+##### 24211#       发表于 2025-2-15 21:33
+
+大鼻子叔叔直播都6w观众了，台长来不得10w<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+台长开个直播盘盘吧
+
+*****
+
+####  ape-apple  
+##### 24212#       发表于 2025-2-15 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434922&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:13</a>
+你是真不看访谈啊 有说过mygo稳定了吗</blockquote>
+是柿本铁棍客那个吗
+
+*****
+
+####  梦诗歌雪  
+##### 24213#       发表于 2025-2-15 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67433002&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 17:18</a>
+
+虽然但是，羊宫这唱得，s1羊宫真爱楼里的人都觉得不行吧，虽然我觉得live问题只是第七话其中一个罢了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我说了live唱得搞笑啊，这个不是聋子都听得出来，柿本広大挂名音监这锅跑不了。剧情逻辑上还是通顺的，要是live把情感渲染到位也不至于这么多差评
+
+*****
+
+####  大户爱  
+##### 24214#       发表于 2025-2-15 21:33
+
+大鼻子叔叔偷换概念有一手的，母鸡卡这番口碑这么不好，是因为第七话支撑不起来，第七话支撑不起，是因为最好live不好。 
+
+只要live好了，逻辑都是次要的。任何番都是经不起吹毛求疵的。场外观众被打动，喜欢母鸡卡的人也会多起来。
+
+看了这段，让我对大鼻子预期下滑了。
+
+*****
+
+####  forgetit  
+##### 24215#       发表于 2025-2-15 21:33
+
+台长开过直播吗
+
+*****
+
+####  wpcc  
+##### 24216#       发表于 2025-2-15 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435082&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-15 21:32</a>
+
+大鼻子叔叔咋洗的我个人的看法是这集虽然节奏稀烂live烂完，但是他想表达什么我还是理解了，比5.6集强
+
+ ...</blockquote>
+四团共演的情况下会直接毁灭狗团的团魂 动画直接表现了这一点 所以应该叫ccc1和ccc2
+
+*****
+
+####  wpcc  
+##### 24217#       发表于 2025-2-15 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435092&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 21:33</a>
+
+是柿本铁棍客那个吗</blockquote>
+是广大说狗团没有团魂那个乌合之众
+
+*****
+
+####  天空塔书记官  
+##### 24218#       发表于 2025-2-15 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 24219#       发表于 2025-2-15 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435107&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:34</a>
+是广大说狗团没有团魂那个乌合之众</blockquote>
+我当时看了眼访谈，再看了眼游戏，我：啊？
+
+*****
+
+####  看穿一切的鱼  
+##### 24220#       发表于 2025-2-15 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435104&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-15 21:34</a>
+四团共演的情况下会直接毁灭狗团的团魂 动画直接表现了这一点 所以应该叫ccc1和ccc2 ...</blockquote>
+我看叫ccc1和ccc2还真没问题，当初要是这么叫或者直接炸梦4和5可能都没现在这么大节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  loneyuki  
+##### 24221#       发表于 2025-2-15 21:36
+
+live没做好确实不应该，但是大主播把主要火力放到live没做好上，感觉太避重就轻了
+

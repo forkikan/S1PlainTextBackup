@@ -13624,3 +13624,17 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 奥米伽塞克谬：有男不玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 6971#       发表于 2025-2-15 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434281&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-15 20:11</a>
+ 匿名版有推测过欧米伽塞可缪的使用要求 最后通过首席哥和玛秋的条件对比，得出结论是：当GQX在搭载阿尔法 ...</blockquote>
+就算能启动普通塞可缪也不意味就一定能启动omega啊
+就盗摄片段给我的感觉来说，我觉得他是很确定的（而不是尝试性的）去启动Omega，失败时候给我的感觉也是诧异应该可以的却不行而不是单纯的不行
+我更倾向于他以前(测试或训练的时候)是可以稳定的触发Omega的，但是这次因为某种外部因素(红敢达或者鸭子或者修司)导致启动失败
+
+当然如果他再出击时的碎碎念有说他第一次开GQ或者以前没启动过Omega就赶鸭子上架那当我没说
+
