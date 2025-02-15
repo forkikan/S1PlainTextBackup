@@ -2280,3 +2280,11 @@ ps有人连上的吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pzk  
+##### 250#       发表于 2025-2-15 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这角色一开始的血量感觉连无用之人都不如，随便啥怪一刀就死
+
