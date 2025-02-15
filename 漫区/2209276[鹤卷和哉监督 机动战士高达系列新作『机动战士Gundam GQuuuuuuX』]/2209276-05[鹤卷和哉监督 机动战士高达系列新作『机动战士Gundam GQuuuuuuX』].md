@@ -13582,3 +13582,14 @@ FRS的麻球好像根本没有盯人表情，拼装部大失算
 
 蝈蝈<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 6968#       发表于 2025-2-15 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434678&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-2-15 20:48</a>
+
+蝈蝈</blockquote>
+呱，我不要看啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

@@ -5676,3 +5676,207 @@ C團歲月就像一年戰爭一樣
 不是，凭什么我浓就没有作为技术核心站C位被漂亮妹妹们争夺的世界线？！都是🐘学长？ ...</blockquote>
 武士道都是xxz 点了吧
 
+
+*****
+
+####  cxj649  
+##### 24177#       发表于 2025-2-15 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434829&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 21:03</a>
+
+反正对第七集脱脑分析后，发现编剧水平稀烂
+
+他们应该知道该怎么做</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这编剧其实还好了，你这思维的编剧最灾难的是 小太刀右京
+
+*****
+
+####  楚暮秦朝  
+##### 24178#       发表于 2025-2-15 21:07
+
+唉怎么感觉现在二刺螈还没三次元女声优有意思，讨论环境也没啥可讨论得欲望了，现在对动画唯一期望就是能整个好点的演出和新歌了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24179#       发表于 2025-2-15 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434854&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 21:06</a>
+
+这编剧其实还好了，你这思维的编剧最灾难的是 小太刀右京</blockquote>
+我和独角兽一个思维之后说真的体验还不错 只要你能从第七集往后开始看
+
+*****
+
+####  wpcc  
+##### 24180#       发表于 2025-2-15 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434857&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-15 21:07</a>
+
+唉怎么感觉现在二刺螈还没三次元女声优有意思，讨论环境也没啥可讨论得欲望了，现在对动画唯一期望就是能整 ...</blockquote>
+三次元lslruler真的能讨论吗
+
+*****
+
+####  南宮凝香  
+##### 24181#       发表于 2025-2-15 21:08
+
+愛波奇行不通的主因是要是愛音有技術
+
+她一開始就不用去找燈組隊
+
+直接拿出吉他在班上秀就行
+
+那就變成究極陽角跟她前座的小動物
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 24182#       发表于 2025-2-15 21:08
+
+这下木柜子乐队王冠换人戴了
+
+*****
+
+####  595505568  
+##### 24183#       发表于 2025-2-15 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434854&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-15 21:06</a>
+这编剧其实还好了，你这思维的编剧最灾难的是 小太刀右京</blockquote>
+小太刀我直接枪毙好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我现在看到小太刀就跑，但这个单集编剧也不遑多让了，前一个是第六话该写的不写和时间轴混乱，第七话就是打游戏打日常副本乱上
+
+*****
+
+####  thisisaspider  
+##### 24184#       发表于 2025-2-15 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434857&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-15 21:07</a>
+
+唉怎么感觉现在二刺螈还没三次元女声优有意思，讨论环境也没啥可讨论得欲望了，现在对动画唯一期望就是能整 ...</blockquote>
+后面可以继续讨论，虽然我不看女声优，但如果能分享一些乐团情报再好不过了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 24185#       发表于 2025-2-15 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434834&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-15 21:04</a>
+
+胸部不够大</blockquote>
+笑得不像妖精<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 24186#       发表于 2025-2-15 21:09
+
+冷静下来想想，虽然我个人对圣人厨可以说是仇恨，但也确实没必要在剧内通过拷打角色找回场子，团魂是乐队的底色，如果说mygo给出来“不心灵相通的成员也可以成立乐队”，mujica第七集反而是推翻了这个命题，“还真是心灵相通的成员才能组织乐队”，场内自己递刀子，场外就不可能和平
+
+*****
+
+####  595505568  
+##### 24187#       发表于 2025-2-15 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434880&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-15 21:09</a>
+笑得不像妖精，不开玩笑，每次搞回忆杀，如果大祥在笑，仔细看会像蛊惑人心的妖精 ...</blockquote>
+还是笑的太天真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不对啊，Mygo12话她就已经有一堆迷妹了
+不能再加魅力值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，否则她要破坏平衡了（
+
+*****
+
+####  thisisaspider  
+##### 24188#       发表于 2025-2-15 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434882&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 21:09</a>
+
+冷静下来想想，虽然我个人对圣人厨可以说是仇恨，但也确实没必要在剧内通过拷打角色找回场子，团魂是乐队的 ...</blockquote>
+邦邦不是，只要你想，怎么都能组成乐队吗。
+
+每个乐队的命题差异吧
+
+*****
+
+####  hol_effect  
+##### 24189#       发表于 2025-2-15 21:11
+
+五万人看大鼻子叔叔讲大A<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 24190#       发表于 2025-2-15 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434898&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 21:11</a>
+邦邦不是，只要你想，怎么都能组成乐队吗。
+
+每个乐队的命题差异吧</blockquote>
+R团早期也是各取所需，PP更是商业组团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+蝶团四妈带一娃带的奇奇怪怪
+其实都很微妙，然后都有团魂了，但是mygo怎么有团魂还演成这样，我只能说不要同时完成两本剧本，除非你很自信你的判断和市场趋势一样（
+
+*****
+
+####  thisisaspider  
+##### 24191#       发表于 2025-2-15 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434900&amp;ptid=2208921" target="_blank">hol_effect 发表于 2025-2-15 21:11</a>
+
+五万人看大鼻子叔叔讲大A</blockquote>
+这个大A能涨回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24192#       发表于 2025-2-15 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434882&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-15 21:09</a>
+
+冷静下来想想，虽然我个人对圣人厨可以说是仇恨，但也确实没必要在剧内通过拷打角色找回场子，团魂是乐队的 ...</blockquote>
+你是真不看访谈啊 有说过mygo稳定了吗
+
+*****
+
+####  大户爱  
+##### 24193#       发表于 2025-2-15 21:13
+
+扫了一眼，讲了十分钟全在打圆场。太无聊了，以后看切片吧。
+
+爱惜羽毛到这个地步，讲什么都没有意义。
+
+*****
+
+####  影伴光生  
+##### 24194#       发表于 2025-2-15 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泛式都已经开始劝大家远离大A了，毕竟这回真难找补
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 24195#       发表于 2025-2-15 21:14
+
+断章取义：大主播说骂mujica的观众akkbkg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24196#       发表于 2025-2-15 21:14
+
+邦的世界观里是不是只有玩音乐的，牌佬还要偶像厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hol_effect  
+##### 24197#       发表于 2025-2-15 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434919&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-15 21:13</a>
+
+这个大A能涨回来吗</blockquote>
+主力出货中，建议割肉离场<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
