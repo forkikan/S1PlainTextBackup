@@ -11909,3 +11909,71 @@ syl同样化身【极端爱音厨】开始无限滑坡也是能收货最多小�
 觉得爱音受委屈不是应该集火素世。冤有头债有主，人是素世拖过去的，上一季最后素世都明着说不会忘记crychi ...</blockquote>
 你是真不知道现在爽世在一些地方的风评还是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 24763#       发表于 2025-2-16 15:06
+
+ 本帖最后由 zhzij111 于 2025-2-16 15:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439843&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:00</a>
+觉得爱音受委屈不是应该集火素世。冤有头债有主，人是素世拖过去的，上一季最后素世都明着说不会忘记crychi ...</blockquote>
+爽姐风评都从第六集圣素世俯冲爽➗了好吧，主要火力都是对准她的。
+她被骂确实也是最不冤枉的就是了，回c团笑得那个美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 24764#       发表于 2025-2-16 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439834&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-16 14:59</a>
+
+第7集反映了一个可怕的现象：主创没有对角色的爱
+
+这个人物是什么性格、说这句话的时候究竟在想什么、接 ...</blockquote>
+要说到这个点的话，第七集里爱音的待遇估计也是最能直观体现主创对角色并没有投入感情，写出来的故事就像完成任务——到什么时候应该有个什么事情什么人，一股脑全塞进去就完事。
+
+其实前面描写鸡团角色就已经有很明显的倾向了，只不过很多人当时还觉得大的在后面，这么写一定有他们的深意
+
+*****
+
+####  cxj649  
+##### 24765#       发表于 2025-2-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439886&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-16 15:06</a>
+
+爽姐风评都从第六集圣素世俯冲爽➗了好吧，主要火力都是对准她的
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最搞就是 立希，一起A，但单独说就纷纷表示可怜不会单独车
+
+
+*****
+
+####  凉良  
+##### 24766#       发表于 2025-2-16 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439886&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-16 15:06</a>
+
+爽姐风评都从第六集圣素世俯冲爽➗了好吧，主要火力都是对准她的。
+
+不过她被骂确实也是这集最不冤枉的就 ...</blockquote>
+主要火力肯定在祥子这啊 尤其NZH狂打顺风团
+
+*****
+
+####  怀沙汨罗  
+##### 24767#       发表于 2025-2-16 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439670&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 14:27</a>
+你就说是不是戾气和疯狂脑补吧，难道你们在正常讨论了？
+
+我觉得第七集挺好的，至少有我想看的。</blockquote>
+我列这组对比只是觉得你好笑。你有什么资格定性别人是否在正常讨论呢？先是贷款剧情堵嘴，后面又开始指责讨论环境了。最好笑的是整栋楼用词最激烈排泄最臭的应该是你吧？我不知道你指责他人的底气哪里来。
+还是说你习惯双重标准了？
+至于你说什么角色厨，抱歉我从头到尾对这些都不感兴趣。你也可以翻记录。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
