@@ -1190,3 +1190,22 @@ GP-31最后通牒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">看人说是BUG，要不换个门要不扔手雷，我用爆燃弩也有这情况
 
+
+*****
+
+####  Sannapolis  
+##### 5778#       发表于 2025-2-16 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437040&amp;ptid=2170852" target="_blank">galm2pixy 发表于 2025-2-16 01:48</a>
+为啥榴弹手枪有时候要往飞碟门里打很多枪才能打爆啊，而且跳个未能击穿的图标，一般都是一枪爆啊…… ...</blockquote>
+bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
+
+*****
+
+####  jy000129  
+##### 5779#       发表于 2025-2-16 09:11
+
+打牢能带燃爆手雷最好，既能炸虫巢又能清杂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">注意不要带那种摔炮火雷，要延迟爆炸的才能拆巢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
