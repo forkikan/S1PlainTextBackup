@@ -2404,3 +2404,44 @@ Q娃内斗还不容易吗
 
 第 03 集的 TVer 源（含日字）：magnet:?xt=urn:btih:ef1f1458ffb66e1fa1af601b5ceb89d29cbe88b2
 
+
+*****
+
+####  新HGCG  
+##### 490#       发表于 2025-2-16 08:37
+
+兰斯对本集Q娃评价如下
+
+<img src="https://img.saraba1st.com/forum/202502/16/083700dok8kwk00cm88f8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 08:37 上传
+
+*****
+
+####  jaewoongh_  
+##### 491#       发表于 2025-2-16 08:37
+
+蓝色的bank怎么找了位战姬组的外援负责
+
+<img src="https://img.saraba1st.com/forum/202502/16/083710s6ezwrnricmz9rwm.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-16 083645.png</strong> (480.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 08:37 上传
+
+*****
+
+####  キュアアイドル  
+##### 492#       发表于 2025-2-16 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437625&amp;ptid=2208663" target="_blank">新HGCG 发表于 2025-2-16 08:37</a>
+
+兰斯对本集Q娃评价如下</blockquote>
+草莓前辈和葵前辈就不是这样的！请不要低估我们青梅的羁绊！
+
