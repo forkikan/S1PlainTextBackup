@@ -14095,3 +14095,41 @@ abo世界观？那岂不是还得有个beta
 
 —— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  积木23ki  
+##### 7004#       发表于 2025-2-17 00:57
+
+ 本帖最后由 积木23ki 于 2025-2-17 01:02 编辑 
+
+围观了一天的雅虎打拍卖真是藏龙卧虎啊。。。
+喵球（虽然电影看完感觉左右应该互换一下）那个扑怀里的场面和麻球修司nt感应那两卡应该是目前价格最高的两卡，1k左右
+0079系虽然夏利亚和夏亚依然很高价但主角组更高……因为种类太多了
+嘛那两卡也可以说是究极名场面了……
+机体方面gqux启动的特写一骑绝尘同样也是1k＋，其他反而都比较便宜，就是电影票左右的价格
+
+*****
+
+####  ryanghj  
+##### 7005#       发表于 2025-2-17 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434281&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-15 20:11</a>
+匿名版有推测过欧米伽塞可缪的使用要求
+
+最后通过首席哥和玛秋的条件对比，得出结论是：当GQX在搭载阿尔法 ...</blockquote>
+abo世界观？那岂不是还得有个beta
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  makar0601  
+##### 7006#       发表于 2025-2-17 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441786&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-16 19:46</a>
+提个问，pv2里“太危险了，如果引发了泽克诺瓦的话”这句是在哪里出现的？
+
+ ...</blockquote>
+记得是原机师和大叔一起看女主打比赛，纯新手动作纯靠赛克缪本能反应躲，突然意识到这么肆意用赛克缪是不是有点恐怖
+

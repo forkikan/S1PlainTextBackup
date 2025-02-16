@@ -1021,3 +1021,13 @@ soyo也是，你态度软化可以，你不能是ccc时期的温柔爽啊？
 
 mygo和mujica想获得升华可以通过crychic和解来实现，但反过来并不是crychic的和解一定能凸显mygo和mujica的意义。对灯素希而言她们关于crychic的心结前七集中根本没有体现也没有影响mygo的活动，三人被卷入纯粹是因为和睦祥的关系。换言之无论最后是对crychic祛魅还是放下反而和她们最初对睦祥伸出援手无关，实质上就是把crychic的和解唐突插入到mygo的日常中。另一方面睦祥矛盾确实来自于crychic的遗留问题，但她们取得和解却和mujica完全脱钩甚至让mujica的重组需要更多理由。所以这时候出现crychic和解的情节对两个团都是尴尬局面，一个是凭空开大另一个直接空大，真正获得最大意义的则变成了crychic本身。
 
+
+*****
+
+####  swessia  
+##### 25244#       发表于 2025-2-17 07:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你在意本子本土的评价就算了，为啥还要在意邦邦白皮这路边一条都不如的声音？连gbc都打不过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
