@@ -10094,3 +10094,18 @@ mujica开局觉得祥子吊炸天&gt;失望
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  晓色暮云  
+##### 24597#       发表于 2025-2-16 09:58
+
+那不是特意让木看到嘛，还特意站木窗户下，章鱼的小心机要是以前也有就好咯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 24598#       发表于 2025-2-16 10:01
+
+说白了有时间和睦过家家了，放以前大祥还要去当客服呢。
+
