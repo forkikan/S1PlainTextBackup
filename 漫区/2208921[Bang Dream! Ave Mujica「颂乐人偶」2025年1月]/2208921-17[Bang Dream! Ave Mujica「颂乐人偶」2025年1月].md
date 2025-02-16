@@ -10639,3 +10639,43 @@ mujica这现在就是没给人足够的安全感，场内场外全是烂完了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">史上最狂应该是小祥以整个东京巨蛋为炼金阵以所有观众为祭品复活老妈，舞台落幕新月升起观众席已空无一人
 
+
+*****
+
+####  南宮凝香  
+##### 24649#       发表于 2025-2-16 11:28
+
+<blockquote>烂片雷达 发表于 2025-2-16 11:25
+史上最狂应该是小祥以整个东京巨蛋为炼金阵以所有观众为祭品复活老妈，舞台落幕新月升起观众席已空无一人 ...</blockquote>
+不夠狂
+
+應該是邀外三次元的觀眾一起為母雞卡打Call，
+
+到最後揭露原來這是煉成陣的一部分
+
+打Call 的全都會被當成賢者之石的材料
+
+*****
+
+####  DeltaStriker  
+##### 24650#       发表于 2025-2-16 11:33
+
+我倒是真想看呢 能真这么拍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  稀勢のささ  
+##### 24651#       发表于 2025-2-16 11:35
+
+111真炼吗
+
+*****
+
+####  plok201  
+##### 24652#       发表于 2025-2-16 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炼完还要祥子自己怀胎生出来是吧
+
