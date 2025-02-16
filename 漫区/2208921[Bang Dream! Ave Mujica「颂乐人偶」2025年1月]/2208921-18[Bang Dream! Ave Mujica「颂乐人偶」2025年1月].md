@@ -266,3 +266,87 @@ ccc和解别放在中途，别让老c团成员中途出场救祥子然后和解�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  thisisaspider  
+##### 25184#       发表于 2025-2-17 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443980&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-17 00:37</a>
+
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+睦祥希望重建C团被拒是一个可以写，功能很大，但不好把控的点。
+
+最后C团再次登场，除非这个是11人的C团。否则和前面的情节有强烈的冲突。有点弱智。
+
+*****
+
+####  杂灰  
+##### 25185#       发表于 2025-2-17 00:41
+
+本质上还是脚本稀烂导致情绪流一坨，低能演出让内容表达出现歧义，弱智音监更是恶心观众
+
+*****
+
+####  Skymoon  
+##### 25186#       发表于 2025-2-17 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443980&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-17 00:37</a>
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+只要live做得像go十三集银河战舰那幅模样，还是应该会有些好评的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 25187#       发表于 2025-2-17 00:42
+
+ 本帖最后由 zhzij111 于 2025-2-17 00:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443980&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-17 00:37</a>
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+c团现在在老中这边就是一坨💩，谁沾上都没救。大结局还搞c团那风评就真要维持在唯一指定爱圣和她的3个初生队友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 25188#       发表于 2025-2-17 00:44
+
+其实用错了地方，那个表情明显是读了空气后的选择。不过某专楼共振出来的杀人犯叙事，大概是可以用莫本人没意见来对冲的。
+
+*****
+
+####  白水潭的饿鬼  
+##### 25189#       发表于 2025-2-17 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444001&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-17 00:40</a>
+睦祥希望重建C团被拒是一个可以写，功能很大，但不好把控的点。
+
+最后C团再次登场，除非这个是11人的C团。 ...</blockquote>
+想想场内，第七话live 故意做烂
+想想场外，追加c团live 
+还有风漏油的死海古卷有载，非c团人演春日影毫无意义
+场外live 复刻13话live 不是一个很自然的点子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  blackeryuri2  
+##### 25190#       发表于 2025-2-17 00:45
+
+<blockquote>白水潭的饿鬼 发表于 2025-2-17 00:37
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+老实说这个疑似“剧透”一直让我很奇怪，第七集祥子明明自己心里说了c团“已经结束了”，后面为什么要重组？为了睦？就算是为了睦我也不能接受这种剧情，真的是烂无可烂的剧本
+
+*****
+
+####  plok201  
+##### 25191#       发表于 2025-2-17 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443980&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-17 00:37</a>
+
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+最后真的来CSGO春日影的话，那星团2和闪耀色彩得给母鸡卡送锦旗了<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
