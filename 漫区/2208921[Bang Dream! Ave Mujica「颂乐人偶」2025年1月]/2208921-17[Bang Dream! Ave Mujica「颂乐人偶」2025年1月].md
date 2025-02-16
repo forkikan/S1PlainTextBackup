@@ -13759,3 +13759,152 @@ WSD 想搞以C代狗 那就搞
 哎</blockquote>
 你邦何德何能跟这些相提并论，抬举了
 
+
+*****
+
+####  Alicest  
+##### 24920#       发表于 2025-2-16 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">别蹭jzgg好嘛，们jzgg起码做mv水平出色
+
+
+*****
+
+####  aptx8285144  
+##### 24921#       发表于 2025-2-16 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441201&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-16 18:23</a>
+
+社区现在这么反噬也是因为23年底开始go小鬼到处刷烂梗，很多人是巴不得看你坠机后来踩一脚的，真要一一分析 ...</blockquote>
+我感觉22年之后，极其看重百合cp的声音在宅圈开始放大化，导致很多片如果带有点百合元素，很容易一群人一拥而上“狂欢”（不管是正面还是负面，或者只是看个热闹），有时候不像是只是分析作品或表达喜爱，而像是一一次又一次的造神运动一般<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24922#       发表于 2025-2-16 18:35
+
+<blockquote>aptx8285144 发表于 2025-2-16 18:34
+我感觉22年之后，极其看重百合cp的声音在宅圈开始放大化，导致很多片如果带有点百合元素，很容易一群人一 ...</blockquote>
+ylg太多了 不懂真正的百合是什么
+
+*****
+
+####  半年  
+##### 24923#       发表于 2025-2-16 18:35
+
+<img src="https://img.saraba1st.com/forum/202502/16/183518vfgxfpqqvpqqxppq.jpg" referrerpolicy="no-referrer">
+
+<strong>Gj314E7bMAAnYRw.jpg</strong> (366.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 18:35 上传
+
+[https://x.com/why_agg/status/1890937773680435357/photo/1](https://x.com/why_agg/status/1890937773680435357/photo/1)
+
+*****
+
+####  木板春香  
+##### 24924#       发表于 2025-2-16 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441249&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 18:31</a>
+
+我感觉编剧也是分这黑白2种角色定位写的，很奇葩</blockquote>
+  那总不能一个人嘴硬状态和破防后的真心话就得当成不一样的人来处理吧，过于把观众当白痴了，角色不是一个简单的TAG啊，我想举的一个例子就是人狼村之谜的暴露模式，很多人嘴上说的和心里想的不一样，给别人感受也不一样，正因为这种心口不一，才让角色显得更加鲜活，如果用黑祥白祥去区分，反而显得祥子像个精神分裂了。
+
+*****
+
+####  厄神之息  
+##### 24925#       发表于 2025-2-16 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441216&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-16 18:25</a>
+
+不知道能不能换个角度理解，她的自尊在睦出事，mujica解散之后已经破裂了，所以才会接受姥爷的安排回家。 ...</blockquote>
+要硬圆肯定怎么说都行，但是被素世一句话导致化身读心侦探这个在我这肯定是洗不了的。你不能她前面对灯还在维持自尊，被一句不咸不淡的话就击碎最后体面的。更何况这个击碎和治愈她“不关心他人”这个顽疾丝毫不挂钩。你不能前一秒还是为了维持体面的高洁女王，下一秒倍捻咒就开始读心侦探程门立雪的，这个太变态了好吧。你除非说祥子这人本来就是这么关心他人的小天使。但两季看下来明显不是这么回事，哪怕你们说的“白祥”时期，她也没有关注过队友心理问题的举动。不关心他人这个问题显然不是被简单一句话就能被治愈的。你这么混过去，反正我是肯定不接受的
+
+*****
+
+####  cxj649  
+##### 24926#       发表于 2025-2-16 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441281&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-16 18:35</a>
+
+那总不能一个人嘴硬状态和破防后的真心话就得当成不一样的人来处理吧，过于把观众当白痴了，角色不是一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对的，这个也是大家有吐槽过的
+
+*****
+
+####  yakee  
+##### 24927#       发表于 2025-2-16 18:38
+
+说白了，现在多数人都是赢粉，你现在让他们看EVE，他们不喷死？
+就美里逗完小处男转头就找**，小处男病床卢管这两件事不得沸反盈天？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 24928#       发表于 2025-2-16 18:39
+
+<blockquote>yakee 发表于 2025-2-16 18:38
+说白了，现在多数人都是赢粉，你现在让他们看EVE，他们不喷死？
+
+就美里逗完小处男转头就找**，小处男病床卢 ...</blockquote>
+不一样 庵野秀明是抽观众的陀螺 不仅是抽角色的
+
+*****
+
+####  zhoujin8584  
+##### 24929#       发表于 2025-2-16 18:39
+
+看漏油盘素世突然间迷上了这个坏女人，之前的妈妈光环不够现在这个够劲。
+
+长崎素世将来大概会成长为一个抽烟喝酒打架烫头旷课损友劈腿养黄瓜的学生会长吧，太美味啦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 24930#       发表于 2025-2-16 18:41
+
+<blockquote>zhoujin8584 发表于 2025-2-16 18:39
+看漏油盘素世突然间迷上了这个坏女人，之前的妈妈光环不够现在这个够劲。
+
+长崎素世将来大概会成长为一个抽 ...</blockquote>
+？你看看0093的娜娜衣 就是soyo
+
+*****
+
+####  苏修  
+##### 24931#       发表于 2025-2-16 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441274&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-16 18:34</a>
+我感觉22年之后，极其看重百合cp的声音在宅圈开始放大化，导致很多片如果带有点百合元素，很容易一群人一 ...</blockquote>
+蒜22年7月，水22年10月，狗23年7月，蜇24年4月，狗25年1月
+其他地方我不知道，漫区确实在这几个时间点有较大的引流
+
+*****
+
+####  maritimus  
+##### 24932#       发表于 2025-2-16 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441294&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 18:36</a>
+
+要硬圆肯定怎么说都行，但是被素世一句话导致化身读心侦探这个在我这肯定是洗不了的。你不能她前面对灯还 ...</blockquote>
+哎，往后看吧，毕竟才演一半，我还是抱着一丝希望的
+
+*****
+
+####  Mr.Giraffe  
+##### 24933#       发表于 2025-2-16 18:43
+
+唉，这理科历史怎么这么坏啊😮‍💨
+
+*****
+
+####  fuwamoco  
+##### 24934#       发表于 2025-2-16 18:43
+
+月之森学生会可不是什么好地方
+

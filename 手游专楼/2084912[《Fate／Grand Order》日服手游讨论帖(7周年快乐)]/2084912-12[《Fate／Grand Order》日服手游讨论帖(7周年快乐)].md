@@ -653,3 +653,14 @@ https://m.bilibili.com/opus/1033632735051120642
 后者大家是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本早就出了恋姬啊....给爱莎送巧克力不是再正常不过了嘛
 
+
+*****
+
+####  廖化  
+##### 16336#       发表于 2025-2-16 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441279&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-16 18:35</a>
+
+日本早就出了恋姬啊....给爱莎送巧克力不是再正常不过了嘛</blockquote>
+但是昭烈祠是真的有人放巧克力啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
