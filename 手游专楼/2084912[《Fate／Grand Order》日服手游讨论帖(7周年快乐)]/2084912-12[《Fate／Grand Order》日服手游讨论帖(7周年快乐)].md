@@ -506,3 +506,30 @@ https://m.bilibili.com/opus/1033632735051120642
 
 这波是观音开小号自己跳出来了
 
+
+*****
+
+####  qixinno2  
+##### 16322#       发表于 2025-2-16 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没事就瞎JB缝 感觉真的傻逼
+
+*****
+
+####  exiaexa  
+##### 16323#       发表于 2025-2-16 18:05
+
+最难绷的是这甚至不是你月先造的谣
+看着一群急急人就很乐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 16324#       发表于 2025-2-16 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441054&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-16 18:04</a>
+
+没事就瞎JB缝 感觉真的傻逼</blockquote>
+不是，本子传说就是这样啊
+
