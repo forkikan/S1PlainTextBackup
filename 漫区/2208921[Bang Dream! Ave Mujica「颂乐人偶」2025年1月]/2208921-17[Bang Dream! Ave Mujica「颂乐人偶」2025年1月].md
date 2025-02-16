@@ -15531,3 +15531,139 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 
 不过别的不说，阿b上多的一张图目前可以暂定是女女关系性场景的相关图吧<img src="https://static.saraba1st.com/image/smiley/carton2017/478.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 25091#       发表于 2025-2-16 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441716&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 19:35</a>
+
+说到这个想起来了，这纯洁初华+人机海玲，是不是一下就让之前万字分析做mygo拉片的那个子非鱼成沙口了？ ...</blockquote>
+帮坛友看了下提到的这位UP主的视频信息
+
+他从2023年11月11日到2024年11月24日，分析到了MyGO动画第11话10分16秒，然后就暂停下来等Ave Mujica播放完毕了。
+
+后面出的都是些关于Ave Mujica的零散PV、OP、CM、不定期追番杂谈视频，相对于他本人的“万字解析”系列较短
+
+这位UP主抛开主观分析，挖细节的能力确实很强
+
+*****
+
+####  ykyin09  
+##### 25092#       发表于 2025-2-16 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有一说一我还是挺喜欢鸡的歌，今年还有希望来中国开live吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  南宮凝香  
+##### 25093#       发表于 2025-2-16 22:48
+
+這問題不用想吧
+
+愛燈 在MyGo 就是標準古早輕小說男女主角位
+
+燈在世界觀中心， 負責故事主調跟戰力
+
+愛音是誤入世界觀， Boy Meet Girl 中的Boy， 
+
+負責觸發故事 （所以戰力路邊一條也是理所當然的）
+
+你要說誰更中心， 這是少女樂隊世界， 那還是女主位比較重要
+
+*****
+
+####  ape-apple  
+##### 25094#       发表于 2025-2-16 22:49
+
+长话短说，我是今年初为了跟着看mujica才补了mygo，所以我甚至不觉得mygo是什么神作，跟友商比起来……挺穷，而且音乐并不能打动我
+
+说角色分配，我一直的看法是，灯是mygo的精神核心，灯情绪直接影响乐队发展；立希是队长，因为给压力而且情绪波动小；爱音是办事员，到哪都跑跑腿推进剧情；素世是智将，团队里比较有脑子的人；猫就是高级合成材料，对她没啥看法
+
+
+*****
+
+####  非建政专用号  
+##### 25095#       发表于 2025-2-16 22:51
+
+大莫老师原来会用手机，那之前拿鞋子打电话是真给压力爆了是吧
+这下真的是《一种新颖的精神疾病治疗方式》
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 25096#       发表于 2025-2-16 22:51
+
+那是不是说明楼里其实并没有多少“圣爱音”的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  liekong  
+##### 25097#       发表于 2025-2-16 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442574&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 21:35</a>
+
+其实我从mygo起就感觉爱音是个推动剧情的工具人了，她行动力是五人中最强的，作为编剧的大手十分好用，在这 ...</blockquote>
+是这样的，我觉得目前母鸡卡大爆炸最大的问题根源就是Staff眼中的Mygo跟我们老中眼中Mygo不一样，从各种Staff和CV访谈中都能看到他们对老中为什么那么喜欢Mygo感到如此疑惑就可见一斑
+
+*****
+
+####  南宮凝香  
+##### 25098#       发表于 2025-2-16 22:51
+
+<blockquote>天空塔书记官 发表于 2025-2-16 22:51
+那是不是说明楼里其实并没有多少“圣爱音”的粉丝
+
+—— 来自 鹅球 v3.3.96</blockquote>
+誰是主角跟你推誰又沒關係…….
+
+*****
+
+####  灵椿  
+##### 25099#       发表于 2025-2-16 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443193&amp;ptid=2208921" target="_blank">依旧ing 发表于 2025-2-16 22:44</a>
+有，我不看场外讨论一刷时候都没对前几集“冷落爱音”有任何具体感知，直到七话live结束后是爱音来说“还 ...</blockquote>
+是的，ccc刚演完让灯素希中的任一人（最好是真的干过复辟的素）来当拧绳人是最简单的解法，让爱来说有种mygo真的要不停喊话才能继续下去的感觉，怪的不行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25100#       发表于 2025-2-16 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443267&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 22:51</a>
+誰是主角跟你推誰又沒關係…….</blockquote>
+我是指的是观众眼中主观的“重要性”而不是是不是主角，额，是我表达的有问题
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 25101#       发表于 2025-2-16 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443257&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:51</a>
+
+那是不是说明楼里其实并没有多少“圣爱音”的粉丝
+
+—— 来自 鹅球 v3.3.96</blockquote>
+认为谁更重要，和“喜欢”并没有直接关系，用一个很讽刺的比喻就是，大祥和大瞄在我视线内的厌恶程度在这几话是反复超越对方的，结果现在成了戏份越多反而越惹人厌
+
+*****
+
+####  ape-apple  
+##### 25102#       发表于 2025-2-16 22:55
+
+武士道到底怎么看mygo和mujica，也许是个永远的迷了，第一部确实是创新了邦邦的关系，这已经是他们求生的极限，2020年之后bangdream基本上就是时刻准备解散，没想到创新之后火了起来。第二部剧本应该是一起写的，我认为是看到这边的走红之后误判局势，改了不少内容，导致独角兽出走，剧情更加狂野，也基本上失控了
+

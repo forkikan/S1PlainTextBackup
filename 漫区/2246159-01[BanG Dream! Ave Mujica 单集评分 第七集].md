@@ -4593,3 +4593,11 @@ live做得不太好
 
 这真的是人类能想出来的剧本？
 
+
+*****
+
+####  小市民_re  
+##### 447#       发表于 2025-2-16 22:54
+
+要不是还没看的时候脑测打了+0我这会儿真想打个+2，太幽默了，很久没有看动画看得这么开心了，这么做到笑点这么密集的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
