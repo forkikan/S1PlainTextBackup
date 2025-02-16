@@ -9910,3 +9910,84 @@ b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba
 为了自己流量，擅自掀面具，怎么不是伤害初华和睦了。  ...</blockquote>
 要说演出事故，mtm live弹到一半不弹了不一样是演出事故吗。不都是台上糊弄过去就翻篇的事情。
 
+
+*****
+
+####  江口夕  
+##### 24579#       发表于 2025-2-16 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica开局觉得祥子吊炸天&gt;失望
+莫女士刚出来觉得莫全是演的吊炸天&gt;失望
+
+所以你们对这片的预期是啥
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Wwwwwater  
+##### 24580#       发表于 2025-2-16 09:29
+
+往好点想，说不定只是半真半假放出来降低预期<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryuusu  
+##### 24581#       发表于 2025-2-16 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437837&amp;ptid=2208921" target="_blank">look900822 发表于 2025-2-16 09:24</a>
+
+要说演出事故，mtm live弹到一半不弹了不一样是演出事故吗。不都是台上糊弄过去就翻篇的事情。
+
+ ...</blockquote>
+这么说睦宕机时都给了staff配合祥即兴演出的画面，喵梦摘面具这边就还有解释成事务所知情的余地，加上4话摄影staff还表态 积极的意义上没mujica的风格，也不支持祥p那一套。
+
+*****
+
+####  thisisaspider  
+##### 24582#       发表于 2025-2-16 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437855&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 09:28</a>
+
+mujica开局觉得祥子吊炸天&gt;失望
+
+莫女士刚出来觉得莫全是演的吊炸天&gt;失望</blockquote>
+第七集出来觉得失望&gt;吊炸天<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 24583#       发表于 2025-2-16 09:32
+
+ 本帖最后由 江口夕 于 2025-2-16 09:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437873&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-16 09:31</a>
+第七集出来觉得失望&gt;吊炸天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是打反了
+觉得第七话一定会吊炸天&gt;失望
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 24584#       发表于 2025-2-16 09:32
+
+<blockquote>江口夕 发表于 2025-2-16 09:28
+mujica开局觉得祥子吊炸天&gt;失望
+
+莫女士刚出来觉得莫全是演的吊炸天&gt;失望
+</blockquote>
+覺得這是一片吊炸天的片
+
+*****
+
+####  江口夕  
+##### 24585#       发表于 2025-2-16 09:36
+
+ 本帖最后由 江口夕 于 2025-2-16 09:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为祥厨，祥没去找睦虽然偏离预期，但是更喜欢了。哪怕是烂女人也是相当美味。只能说独角兽这方面的口味还真和我一致
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
