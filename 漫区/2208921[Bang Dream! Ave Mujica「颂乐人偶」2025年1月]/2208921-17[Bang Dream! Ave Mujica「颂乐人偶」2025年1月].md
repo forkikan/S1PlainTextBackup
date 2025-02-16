@@ -15206,3 +15206,60 @@ Avemujica这种毁角色的动画出来（第七集这么说没问题吧）wsd�
 
 2025-2-16 21:39 上传
 
+
+*****
+
+####  aptx8285144  
+##### 25064#       发表于 2025-2-16 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442548&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 21:31</a>
+
+究竟还要把期待降到怎样一个程度才能毫无波澜的接受之后的故事，我感觉这真挺判断的。
+
+不是很想提起那个， ...</blockquote>
+可能我知道一定会包饺子，加上第五话发觉令和种命都大概率是上限后，于是自己主动去嘲笑也好，批评也好，过去以后感觉这些不会让自己真正破防<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 25065#       发表于 2025-2-16 22:02
+
+mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我寻思着就是独角兽没切割的世界线都不见得能处理掉当初自己给大祥埋的雷
+
+*****
+
+####  zhoujin8584  
+##### 25066#       发表于 2025-2-16 22:04
+
+记录一下真实评分，叔叔也顶不住牛处二次开团了
+
+<img src="https://img.saraba1st.com/forum/202502/16/220427f9395epwqq05pe2w.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-2aauK17T3cSsg-81.jpg</strong> (43.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 22:04 上传
+
+*****
+
+####  灼眼的夏娜酱  
+##### 25067#       发表于 2025-2-16 22:05
+
+看隔壁提到说李子有一个妹妹，逆输入初华双子可能性微增<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/16/220520iuai9l5s6j9ss6ia.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 22:05 上传
+
+*****
+
+####  厄神之息  
+##### 25068#       发表于 2025-2-16 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
