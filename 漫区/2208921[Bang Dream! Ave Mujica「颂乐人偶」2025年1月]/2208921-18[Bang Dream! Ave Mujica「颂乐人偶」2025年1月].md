@@ -636,3 +636,29 @@ wsd纯➗啊我超，真是骂了还想骂<img src="https://static.saraba1st.com
 
 这一周都不可消停的，等到下集动画，能给点细节给点糖给狗团的团魂（又或者没有哈哈，估计这波节奏才能压下去。现在就别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 25215#       发表于 2025-2-17 01:46
+
+<blockquote>z-hunter 发表于 2025-2-17 01:35
+还不懂吗不是什么“爱音厨”，这次第7话武士道得罪的是老中的全体狗厨（其实不止，下面可以继续说，哪有 ...</blockquote>
+四团并行毁灭动画团其实没毛病的 编剧讲不明白的
+
+*****
+
+####  cxj649  
+##### 25216#       发表于 2025-2-17 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444267&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-17 01:35</a>
+
+还不懂吗不是什么“爱音厨”，这次第7话武士道得罪的是老中的全体狗厨（其实不止，下面可以继续说，哪有 ...</blockquote>
+C团就是狗团上位替代
+
+场外场内没有合理的消失的理由
+
+就……底层设定只能5人让人卧槽的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+原因还是粉毛数值太没竞争力了233
+
