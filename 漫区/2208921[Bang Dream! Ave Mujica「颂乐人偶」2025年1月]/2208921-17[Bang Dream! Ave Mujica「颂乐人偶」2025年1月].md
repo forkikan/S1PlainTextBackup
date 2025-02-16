@@ -15404,3 +15404,66 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 我经历过的比较完整的党争事件就是06fsn动画了，saber唯粉 ...</blockquote>
 冷知识：fate粉丝男女比大致五五开，bangbang则是七三开<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  borrowface  
+##### 25080#       发表于 2025-2-16 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442872&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-16 22:11</a>
+
+你说得对，但不会真觉得日本人会反思吧</blockquote>
+爱反思不反思，到时候再去看财报，利润真有巨大下滑了我还高兴呢
+
+
+*****
+
+####  cxj649  
+##### 25081#       发表于 2025-2-16 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442968&amp;ptid=2208921" target="_blank">白水潭的饿鬼 发表于 2025-2-16 22:22</a>
+
+爱音就是圭一位，没有圭一他梨花一辈子陷在轮回里，但重要肯定还是梨花重要，谁让人家是主角呢
+
+要是爱音 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">K1其实按动画是正港的主役
+
+哪怕业卒，他的CV包子是能拿“主役”相关
+
+别问为啥，公式这么写的233
+
+*****
+
+####  aptx8285144  
+##### 25082#       发表于 2025-2-16 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442884&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:12</a>
+
+我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以
+
+如果认为灯在动画中更重要的，在此层加减 ...</blockquote>
+我是跟着主视角的感觉走，因此第一看过去就把爱音当女主，然后去找“男主”是谁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（非cp意义）
+
+
+*****
+
+####  MuramasaSP  
+##### 25083#       发表于 2025-2-16 22:31
+
+灯是mygo故事的第一核心，但爱音是观众代入或者投射目光最多的角色。把mygo-crychic视为完整作品的话，故事是由祥子开启的，单论mygo动画的话，故事是由爱音开启的。
+
+*****
+
+####  灵椿  
+##### 25084#       发表于 2025-2-16 22:32
+
+ 本帖最后由 灵椿 于 2025-2-16 22:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442884&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:12</a>
+我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以
+
+如果认为灯在动画中更重要的，在此层加减 ...</blockquote>
+骗鹅是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过这楼有对爱音和灯素希的互动没什么看法但又觉得mygo被狠狠垫了一波的人吗？毕竟除了没多少戏份的猫，只有爱音是纯mygo成员。不过灯素希这三人之间互动应该是可以粗略的分成指向mygo或ccc的吧（这个我没细想）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
