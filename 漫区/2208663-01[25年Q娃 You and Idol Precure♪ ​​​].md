@@ -2455,3 +2455,30 @@ Q娃内斗还不容易吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  raimouse  
+##### 494#       发表于 2025-2-16 08:57
+
+虽然蓝是天降青梅
+
+但是op里面箭头是紫吧
+
+
+*****
+
+####  暗黑能乐  
+##### 495#       发表于 2025-2-16 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">op真看不出来啥吧
+
+—— 来自 HONOR BVL-AN00, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jaewoongh_  
+##### 496#       发表于 2025-2-16 09:06
+
+米米目前为止只有一句台词，什么时候开始写啊啊啊啊啊啊
+
