@@ -12692,3 +12692,102 @@ ave的一切操作都是围绕着延长热度期和增加热度点来展开的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thisisaspider  
+##### 24828#       发表于 2025-2-16 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440318&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 16:15</a>
+
+这个其实是大祥或者黑祥的锅，哈气谜语人
+
+观众想揍一顿，但编剧一直不给让观众出气的角色载体233 ...</blockquote>
+祥子是第一个被肢体伤害的角色吧，虽然祥子也扑到过别人。
+
+*****
+
+####  cxj649  
+##### 24829#       发表于 2025-2-16 16:21
+
+ 本帖最后由 cxj649 于 2025-2-16 16:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440327&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-16 16:17</a>
+
+花田肯定会安排给巴掌的，独角兽虽然不会给巴掌，但大概率会用别的方式。十本搬出的第七集，啊，祝他幸福？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过仔细想了想立希见到大祥的时候，这个大祥已经是黑祥已经被追击处决后的也被人格修正后的白祥了233
+
+估计想了想也哎算了233
+
+*****
+
+####  真爱与热情  
+##### 24830#       发表于 2025-2-16 16:22
+
+是啊，反正俺看了几遍之后就觉得利息道歉，爱音让吉他这设计没啥问题来着（当然前提是只能这么安排），连着看的时候甚至有点感动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+问题就来了，在一个大部分时候演出大于逻辑的动画里面，演出没法调用观众的情绪，去代入角色的情感，反而要用放大镜来抠细节有没有问题，人设有没有崩塌。
+
+这问题真不是一般的大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最终兵器狂战  
+##### 24831#       发表于 2025-2-16 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440265&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 16:06</a>
+
+不过我有点好奇，黑白祥按标准谁是OB一串字母小姐呢233
+
+后续重组母鸡卡我是脑补不能白祥还能黑暗中二病23 ...</blockquote>
+其实你看，黑祥白祥只是因为经历原因导致做事风格不一样，本身人还是那个人。而从祥子最喜欢的人偶好像都是哥特风格来说，很可能单纯这人审美就是这么黑暗深邃幻想。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24832#       发表于 2025-2-16 16:24
+
+<blockquote>cxj649 发表于 2025-2-16 15:19
+但是游戏爱素双人CG不少的
+
+不如说 谁违抗谁</blockquote>
+手游也是自相矛盾的 动画更是假的
+
+
+*****
+
+####  南宮凝香  
+##### 24833#       发表于 2025-2-16 16:24
+
+<blockquote>是谁的书画 发表于 2025-2-16 16:04
+之前有楼友说不分析剧情不聊人物，只是一味的f@ker武士道的bin。所以我在就开始盘算究竟是从哪里开始导致第 ...</blockquote>
+以組一輩子樂隊為目標的話
+
+永遠都會有迷惘的， CCC 過去了也會有其他迷惘
+
+現在的問題是CCC 場外場內加起來看起來太強了
+
+新手村出來就打CCC
+
+像我這種狗P 覺得可能真打不過
+
+人覺得不安就是想吃糖，
+
+但畫面上給的糖又太少
+
+*****
+
+####  天空塔书记官  
+##### 24834#       发表于 2025-2-16 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440315&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-16 16:15</a>
+看第一遍时就觉得主创仿佛生怕C团live做的太声势浩大，在A团动画主场喧宾夺主了，结果弄巧成拙
+
+观众并不 ...</blockquote>
+大概主创现在还沉浸在“自我感动”中吧
+
+“看我用三分力打出了十分的效果，那之后的十分力有多强我自己都不敢想”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
