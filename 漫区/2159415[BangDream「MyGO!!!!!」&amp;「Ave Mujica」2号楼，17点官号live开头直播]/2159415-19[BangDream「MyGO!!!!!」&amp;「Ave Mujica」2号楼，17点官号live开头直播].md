@@ -4344,3 +4344,13 @@ aiai这状态真无敌了。爽死了。
 开场是茜鼓solo然后吉他弹唱，新曲印象操作感觉有点 ...</blockquote>
 <img src="https://p.sda1.dev/22/f3bb6319b6ffeaea5aa615553d2c11ee/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mono  
+##### 26967#       发表于 2025-2-17 02:15
+
+有没有人知道bangdream手游剧情和动画剧情是怎么协调的，有上下游一说吗
+
+游戏里剧情量很大 要是有钱能再做几季tv动画
+

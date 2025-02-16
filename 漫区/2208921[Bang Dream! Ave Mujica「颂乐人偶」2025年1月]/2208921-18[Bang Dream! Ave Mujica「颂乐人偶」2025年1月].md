@@ -732,3 +732,32 @@ mujica没必要把go团引入主线，写好日常团魂或者像mygo时期鸡�
 
 C团放最后确实是最容易的写法。甚至直接扔到手游算了，反正轻度用户不会在意这个。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  指向小狐  
+##### 25223#       发表于 2025-2-17 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430967&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-15 12:20</a>
+之前的推测一直都是会有CCC的登场，要不是在中段，要不是就是在最后，在最后就是一起包饺子，在中段就是暴 ...</blockquote>
+吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  blackeryuri2  
+##### 25224#       发表于 2025-2-17 02:17
+
+狗粉可以直接切割mujica动画的，比鸡粉好，鸡粉只剩下mujica动画了（）
+
+
+*****
+
+####  wpcc  
+##### 25225#       发表于 2025-2-17 02:23
+
+<blockquote>thisisaspider 发表于 2025-2-17 02:09
+C团放最后确实是最容易的写法。甚至直接扔到手游算了，反正轻度用户不会在意这个。 ...</blockquote>
+214的钱都交了不能不出！
+
