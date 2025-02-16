@@ -2746,3 +2746,16 @@ wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/imag
 本集浓度比预想的要低把nana的变q娃的理由拆成了姐妹两个，应该是故意降低浓度的。</blockquote>
 那个穿浅蓝长袖衬衫睡衣的画面真有点幻视，我还回看了六花的确认只是颜色接近<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 521#       发表于 2025-2-16 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440765&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-2-16 17:19</a>
+
+自从认识小歌后，我不但对钢琴有信心了，现在还能把钢琴举起来了
+
+所以，没问题的，友情是不会破裂的！ ...</blockquote>
+不会破裂 没说不会变质是吧
+

@@ -14216,3 +14216,54 @@ mygo的人物塑造就是能引起当代⏰网民共鸣的，连这么基础的�
 我感觉22年之后，极其看重百合cp的声音在宅圈开始放大化，导致很多片如果带有点百合元素，很容易一群人一 ...</blockquote>
 其实就是22年蒜和水魔吧，也是泥潭百综楼存在感开始强烈的时候，之前不管是刀马旦还是轻拍还是邦邦最开始的动画，嗑百合的人都是小众的小众，但恰恰这几个里面有不少都是长线企划，企划运营，扩圈，河豚不挑食，然后被大热番剧点爆，就像以前的战吧更像是宅男贴吧是长颈鹿贴吧，但现在的战吧毫无疑问是河豚贴吧一样。而且河豚里成分比单纯看动画的要复杂很多，只过分注重人物关系的话，思想很容易变得极端，再加上几个长期百合企划明显的染上了粉圈恶臭。
 
+
+*****
+
+####  wpcc  
+##### 24965#       发表于 2025-2-16 19:26
+
+<blockquote>hysjmr 发表于 2025-2-16 19:23
+你楼有些人就是旧话术复读而已，以前用偷来的电竞圈话术把自己说爽了，这次不过是路径依赖。
+
+mygo的人物塑 ...</blockquote>
+mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读！
+
+*****
+
+####  wpcc  
+##### 24966#       发表于 2025-2-16 19:27
+
+不承认动画是ccc1和ccc2的都可以滚了别影响武士道炒作
+
+*****
+
+####  hysjmr  
+##### 24967#       发表于 2025-2-16 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441653&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 19:26</a>
+
+mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读！</blockquote>
+你嘲讽也没用，作品做出来那就不是作者一个人的东西了，我相信这个道理你是懂的
+
+你可以说mygo的留白被中国观众在补全时填了不符合作者原意的内容，但你不能说观众对这个版本的mygo的喜爱是不存在的
+
+*****
+
+####  怀沙汨罗  
+##### 24968#       发表于 2025-2-16 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441626&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-16 19:23</a>
+其实就是22年蒜和水魔吧，也是泥潭百综楼存在感开始强烈的时候，之前不管是刀马旦还是轻拍还是邦邦最开始 ...</blockquote>
+这几年最大的乐子就是蒜的翻车，算是让河豚稍微收敛点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Versedust  
+##### 24969#       发表于 2025-2-16 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441653&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 19:26</a>
+mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读！</blockquote>
+独角兽是有的 柿本嘛。。
+
