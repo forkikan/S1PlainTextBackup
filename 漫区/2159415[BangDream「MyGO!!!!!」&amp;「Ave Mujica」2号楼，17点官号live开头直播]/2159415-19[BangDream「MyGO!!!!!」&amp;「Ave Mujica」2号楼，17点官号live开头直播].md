@@ -4231,3 +4231,13 @@ aiai这状态真无敌了。爽死了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ml1642879  
+##### 26960#       发表于 2025-2-16 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67435831&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2025-2-15 22:52</a>
+前几首音响好像有点问题器乐全糊成一团，但是i83状态好的时候我真觉得是你邦第一主唱，她能带动拖沓的器 ...</blockquote>
+听说又有家虎神人？
+

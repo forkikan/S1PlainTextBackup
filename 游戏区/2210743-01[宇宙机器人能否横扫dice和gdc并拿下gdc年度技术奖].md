@@ -1275,3 +1275,24 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
 18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的 ...</blockquote>
 评奖就看一乐，游戏游玩时间都很长，你指望评审都玩过每一款提名游戏吗？战神5那年老父亲的了最佳表演也名不符实，玩过传世不朽就知道女主角的角色有多复杂，且不说完全是真人出演，没有躲在动作捕捉技术后面。
 
+
+*****
+
+####  hu794  
+##### 114#       发表于 2025-2-16 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437594&amp;ptid=2210743" target="_blank">gane1010 发表于 2025-2-16 08:27</a>
+18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的 ...</blockquote>
+你这么一说才发现索尼的游戏全是偷的奖<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hu794  
+##### 115#       发表于 2025-2-16 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436984&amp;ptid=2210743" target="_blank">pgain2004 发表于 2025-2-16 01:34</a>
+https://b23.tv/vPXwZRq
+
+能不能先问问别人到底在哪里看过类似案例，而不是上来一句太狂妄呢？</blockquote>
+这个就是典型琐🐶，张口就来。
+
