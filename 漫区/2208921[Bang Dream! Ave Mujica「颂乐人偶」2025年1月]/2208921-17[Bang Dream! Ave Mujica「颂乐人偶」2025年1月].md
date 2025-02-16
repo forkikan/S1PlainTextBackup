@@ -10784,3 +10784,214 @@ mujica这现在就是没给人足够的安全感，场内场外全是烂完了�
 不就是渣男自残求前女友复合原谅的剧情嘛，核心就是我知道你还是在乎我，那我就自虐卖惨博同情，让你心一软就好复合了嘛。
 蓝祥不去牛郎店上班太可惜了呢
 
+
+*****
+
+####  阿兹尔  
+##### 24663#       发表于 2025-2-16 11:58
+
+小祥的问题好像不是舔狗太多，而是舔狗都不是正常人啊
+
+*****
+
+####  wpcc  
+##### 24664#       发表于 2025-2-16 11:59
+
+<blockquote>z-hunter 发表于 2025-2-16 11:55
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好 ...</blockquote>
+四团并行应该是武士道后期的思路 独角兽其实不想ccc出道的 整一集就行 武士道老登很喜欢ccc就三次元复活了
+
+*****
+
+####  怀沙汨罗  
+##### 24665#       发表于 2025-2-16 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438751&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 11:55</a>
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好 ...</blockquote>
+从剧本角度看，就是他们对动画信心满满，刻意安排和第七集对轴打一套组合拳，自信能再破圈收一波好评吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  gaayas  
+##### 24666#       发表于 2025-2-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438751&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 11:55</a>
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好 ...</blockquote>
+他们觉得第七集真的很好，大伙被ccc和解感动到了，3次元重组能狠狠收割一波<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  十九号大侠  
+##### 24667#       发表于 2025-2-16 12:04
+
+嗨呀，还是转战3次元团吧，我觉得白箱声优还挺可爱的，确实也长的不好看
+
+*****
+
+####  ryuusu  
+##### 24668#       发表于 2025-2-16 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438751&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 11:55</a>
+
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好 ...</blockquote>
+前面有讨论说是打歪的中华炮，顺便TFT真没那么有含金量，但wsd肯定是花了不少钱<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 24669#       发表于 2025-2-16 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">莫小姐大概活不久了
+
+众所周知母鸡卡里角色就是编剧嘴替
+
+祥子说了莫小姐是人偶那就是人偶，要成为人类那只能干掉人偶了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  z-hunter  
+##### 24670#       发表于 2025-2-16 12:07
+
+ 本帖最后由 z-hunter 于 2025-2-16 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438789&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 12:00</a>
+
+从剧本角度看，就是他们对动画信心满满，刻意安排和第七集对轴打一套组合拳，自信能再破圈收一波好评吧
+
+ ...</blockquote>
+我反而是觉得因为刻意安排和第7集对轴打宣发组合拳，所以才硬改了剧本一切都为了这一幕负责。
+
+这和独角兽和制作团队闹矛盾，鸡狗动画几乎同时制作，前后质量却差得那么远。人物塑造前后也是差天动地，反而解释得通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+先叠甲，我没有想替独角兽和十本和制作组洗白的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 24671#       发表于 2025-2-16 12:07
+
+[https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1](https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1)
+
+独角兽对黑刀之夜木头发言的解释我很满意，对爱素的关系理解也是更符合目前观众期望的，现在我开始真的相信母鸡卡是第2个兽娘2了
+
+*****
+
+####  wpcc  
+##### 24672#       发表于 2025-2-16 12:08
+
+ 本帖最后由 wpcc 于 2025-2-16 12:09 编辑 
+<blockquote>sephal 发表于 2025-2-16 12:07
+https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1
+
+独角兽对黑刀之夜木头发言的解释我很满意，对爱素的 ...</blockquote>
+
+细节问题所以独角兽滚了 独角兽也许想复活爱素 但是复活爱素有点不可能。因为她的爽点是 爱素是黄毛接盘，素祥是苦主牛回来 更爽了。爱素也是抽大象陀螺的一环 得弄的像一点
+
+*****
+
+####  澜灰-  
+##### 24673#       发表于 2025-2-16 12:09
+
+c团以后不整活我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉也是剧内外联动，宣传的一部分？mujica这宣传力度真蛮大的。
+
+但能有crychic 1st live吗，感觉太难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然还真有点想看
+
+
+*****
+
+####  怀沙汨罗  
+##### 24674#       发表于 2025-2-16 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438836&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-16 12:07</a>
+我反而是觉得因为刻意安排和第7集对轴打宣发组合拳，所以才硬改了剧本一切都为了这一幕负责。
+
+这和独角兽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你和我表达的意思没啥区别呀，无非就是先有鸡还是先有蛋的问题，但以现在这个罗生门的情况来看，我倾向是从制作组到公司没一个无辜的（包括独角兽）。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 24675#       发表于 2025-2-16 12:10
+
+<blockquote>澜灰- 发表于 2025-2-16 12:09
+c团以后不整活我是不信的
+
+感觉也是剧内外联动，宣传的一部分？mujica这宣传力度真蛮大的。
+</blockquote>
+我怕会场出说东北话的持刀魔人 感觉真有人忍不了吧
+
+*****
+
+####  澜灰-  
+##### 24676#       发表于 2025-2-16 12:13
+
+说起来上季灯那个本子上的内容还想回收的话，也许最后一集mygo就唱那首新歌？
+当然看起来可能导演已经当它回收完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 24677#       发表于 2025-2-16 12:13
+
+<blockquote>z-hunter 发表于 2025-2-16 11:55
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好 ...</blockquote>
+正常思路：
+
+1.雞/狗團內部出問題， 要找替身吃掉多出來的流量
+
+2.內部調研指 發現老C團的唯粉比雞/狗多
+
+實際思路：
+
+1. 4 》 3 〉 2
+
+2. 內部愛
+
+*****
+
+####  ads147147  
+##### 24678#       发表于 2025-2-16 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438703&amp;ptid=2208921" target="_blank">Lawliet.L 发表于 2025-2-16 11:49</a>
+那剑剑在哪里？</blockquote>
+原来爱音才是剑剑<img src="https://static.saraba1st.com/image/smiley/carton2017/357.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  forgetit  
+##### 24679#       发表于 2025-2-16 12:14
+
+<blockquote>sephal 发表于 2025-2-16 12:07
+https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1
+
+独角兽对黑刀之夜木头发言的解释我很满意，对爱素的 ...</blockquote>
+确实是()
+
+*****
+
+####  太二EricGuo  
+##### 24680#       发表于 2025-2-16 12:17
+
+我看祥子就是灰原哀而圣人厨就是兰粉，你要是看微博小红书等兰粉扎堆的地方也会以为灰原哀不配活着的
+

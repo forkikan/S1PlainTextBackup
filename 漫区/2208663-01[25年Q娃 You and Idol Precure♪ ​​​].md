@@ -2579,3 +2579,13 @@ Q娃内斗还不容易吗
 
 不要H之光！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒼風なな  
+##### 505#       发表于 2025-2-16 12:15
+
+不，我不会去学习怎么物理排除金发小女孩的
+
+偶像应该是带给人快乐和梦想的
+
