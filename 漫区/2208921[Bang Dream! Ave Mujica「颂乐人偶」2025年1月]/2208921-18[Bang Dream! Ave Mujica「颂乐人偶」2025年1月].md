@@ -578,3 +578,61 @@ byd楼里一直说剧透让我想起了猴子打字机
 大祥拉着睦去看了mygo的live，告诉她所有都已经过去了，你不要为过去的 ...</blockquote>
 wsd不只是要crychic和解而是要crychic上台，大手再接TFT和live和游戏。睦祥甚至都不知道为什么自己都没事了要被你们拉来RiNG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 25211#       发表于 2025-2-17 01:29
+
+不卖新歌就表示CCC不会作为一支独立乐队长久存在，“复活”只是炒作的一环
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 25212#       发表于 2025-2-17 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444245&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-17 01:27</a>
+wsd不只是要crychic和解而是要crychic上台，大手再接TFT和live和游戏。睦祥甚至都不知道为什么自己都没事 ...</blockquote>
+废话我能不知道吗，但是是个人都希望有个体面且没人受到伤害的剧情吧，人心都是肉长的，没人喜欢看爱音被踢皮球，也没爱看大祥一直一蹶不振。
+wsd纯➗啊我超，真是骂了还想骂<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  零壹贰叁  
+##### 25213#       发表于 2025-2-17 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444242&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 01:26</a>
+之前在s1看到有个说法，白皮默认不存在任何鉴赏能力。
+无论白皮的观点和评价与你的是否一致，你都当它是在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比较好笑的是有评论上来说自己对ep7的不满时
+下面就会有评论说bro，我知道你是哪国人了
+
+*****
+
+####  z-hunter  
+##### 25214#       发表于 2025-2-17 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443495&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 23:19</a>
+
+所以那些到处破防撒泼打滚的“粉毛痴”到底是哪来的啊，这我是真不太能理解
+
+大概只是单纯因为林子大了</blockquote>
+还不懂吗不是什么“爱音厨”，这次第7话武士道得罪的是老中的全体狗厨（其实不止，下面可以继续说，哪有体量那么打的“爱音厨”，能把B站的评分直接干掉2分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狗厨都是看着MYGO动画感动而喜欢这支乐队的，然后MUJICA作为狗动画的续篇，自然会有大量的狗厨涌进来看，还有狗团的戏份，所以这部分观众的人数会非常多
+
+现在第7话，各种演出各种分镜各种操作（包括场外，就是对狗团最大的“背叛”。虽然制作组并不是这样想的（大概，它们也不懂为啥老中粉丝会觉得是“背叛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”
+
+当然了得罪不止狗厨，还有鸡厨，MUJICA被垫了一半的动画给CCC这个团，当然了他们更早地就心死了。还有老邦邦人，因为10人3团是违背祖宗法的。再加上第7话这稀烂的节奏，人物塑造割裂，演出失败，走音live已经不是最差的那点了。。。
+
+理性的我们还是知道制作组并不是要解散GO团（至少现在不是，能在这里车编剧车监督车武士道，不理性的就只能到处破防扣分骂人，互联网有什么不能说的？（反正我从来没去B站打分
+
+所以这次第7话，是全方位的崩盘，你之前炒得有多热流量有多高，反噬就有多厉害。
+
+这一周都不可消停的，等到下集动画，能给点细节给点糖给狗团的团魂（又或者没有哈哈，估计这波节奏才能压下去。现在就别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
