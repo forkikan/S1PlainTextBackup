@@ -11824,3 +11824,35 @@ mujica在开播之前，这栋楼就已经聊了140层，往前翻的话很多�
 
 动画制作不是无的放矢，每个环节都是主动设计过，如果后面狗屁不通除了菜就是敷衍了。这也是不少人觉得两季之间场外一定出过重大变故的原因
 
+
+*****
+
+####  天空塔书记官  
+##### 24755#       发表于 2025-2-16 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cxj649  
+##### 24756#       发表于 2025-2-16 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">看了几个大主播的锐评，我自己想了想
+
+黑祥就是诞生于黑刀之夜的谜语人的时候
+
+亡于SOYO的绞杀，逻辑上真的是“亡于SOYO的绞杀”的（不是吐槽什么233）<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/472.png" referrerpolicy="no-referrer">虽然“太过于死于普攻”就是了
+
+*****
+
+####  厄神之息  
+##### 24757#       发表于 2025-2-16 14:53
+
+确实不是第七集才烂的，但是之前是每集都只有一点烂，几个kol和核心粉还可以一边眼看着火药桶不断加火药的情况下，一边往点燃的引信上浇水劝大家快跑，而第七集的烂不是单一的人物塑造烂，是各方各面的烂凑在一块了，伏笔收线收烂了，剧情结构分配分烂了，live做烂了，人设崩烂了，几乎都没好地方了。才成了一个强力引信，点爆了之前攒的火药桶，把大伙都炸上天了。
+
+只是我确实没想到最后大爆炸引发的结果是农厨要砸家当掀屋顶，在我看爱音受委屈的问题属于最不重要最不起眼的那一部分了，最大的问题还是剧情结构分配出了大毛病，转折生硬的问题，但是nobodycare~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
