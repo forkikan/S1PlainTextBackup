@@ -12909,3 +12909,100 @@ Soyo 本來就是全宇宙最懷念3C 的人， 笑得歡快點就歡快點吧
 
 然后第四话直接按土里，第五话节奏一慢下来基本就埋了。
 
+
+*****
+
+####  真爱与热情  
+##### 24844#       发表于 2025-2-16 16:44
+
+大祥老师这人就是非常不坦荡，必须要一个人去当面捅破那层窗户纸。与其说是被击穿，倒不如说她早就在那等着了。要是mygo第7集，大祥老师碰到的是修炼完成的大灯老师，早被拉上台当小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回头看她在mygo第1集的操作，她那点事情不是纯闹麻了。就是不肯说但是想让别人替她说，然后被语言大师木头人带崩
+
+*****
+
+####  Totokei  
+##### 24845#       发表于 2025-2-16 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发酵了几天现在观感是不是大夜老师那句呦西一样杀伤力了
+
+*****
+
+####  cxj649  
+##### 24846#       发表于 2025-2-16 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440521&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-2-16 16:44</a>
+
+大祥老师这人就是非常不坦荡，必须要一个人去当面捅破那层窗户纸。与其说是被击穿，倒不如说她早就在那等着 ...</blockquote>
+MYGO第7集手游补充也是睦头人带崩的<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 24847#       发表于 2025-2-16 16:47
+
+B站评分6.6了挺变态的，只能说情绪上来了真是挡也挡不住啊
+
+好歹为了中华炮做点什么把，wsd桑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wzm96816  
+##### 24848#       发表于 2025-2-16 16:51
+
+  关于环境问题，当年10集诗超绊后我当时就说不要太假药二创入脑了， 前几个月这个楼里我反复说这话。但没有用啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+ 当年很多人把素世和爱音当成欢喜冤家，在mygo动画后期场外已经形成势不可挡的东西了，素世的人设一直没变，观众其实到了10集以后也有很多人认为素世无可救药，认为爱音接盘太好心了，那个时候以爱素灯以及各种cp党镇压了舆论。祥子的二创，什么赛博祥子啥的我都没看，但我也理解大家看了一年多的二创。 但二创不是官方。
+
+还是mygo动画时举例，在第七集前 专楼的大家已经不止一个人猜出家道中落之类的话，她肯定以前是超高自尊的大小姐，甚至都猜出来第八集在大房子是障眼法，到了后期12集喵梦一眼看出来祥子处境不好。 
+
+但在13集前，观众其实各种假药为祥子找补，第七集后很多人说素世家里坑了祥子之类的，其实现在mujica的假药过度问题那时就已经有了，后面姐妹论，反抗论等，一切核心都是认为，祥子组mujica是个高大上的目的，她退c团是有苦衷，甚至其他人有锅。那时很多人不认为祥子就是被c团旧日幻影冲垮了，逃避一切组建了mujica。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 24849#       发表于 2025-2-16 16:52
+
+啧啧啧，现在已经不是动画的问题了
+
+刚去紫吧看了眼，闪彩被开盒了还行
+
+墙外也在四处出击
+
+这就是破防的角色厨吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Суслов  
+##### 24850#       发表于 2025-2-16 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440521&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-2-16 16:44</a>
+大祥老师这人就是非常不坦荡，必须要一个人去当面捅破那层窗户纸。与其说是被击穿，倒不如说她早就在那等着 ...</blockquote>
+现在看黑刀之夜前期的处理方式真没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  千千千千鸟  
+##### 24851#       发表于 2025-2-16 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+哪怕作为祥厨，我也觉得就集中火力在小祥塑造歪上就行了吧，别的角色真的只是连锁反应不要被牵连了。最多加一个双重人格傻逼设定毁故事和大喵犯错无代价惹人厌上吧
+
