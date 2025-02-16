@@ -533,3 +533,43 @@ https://m.bilibili.com/opus/1033632735051120642
 没事就瞎JB缝 感觉真的傻逼</blockquote>
 不是，本子传说就是这样啊
 
+
+*****
+
+####  Lawliet.L  
+##### 16325#       发表于 2025-2-16 18:08
+
+日本佛教会有意见吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 16326#       发表于 2025-2-16 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441081&amp;ptid=2084912" target="_blank">Lawliet.L 发表于 2025-2-16 18:08</a>
+日本佛教会有意见吗？</blockquote>
+他们但凡有那么一丁点作用，就该把玉藻前和ccc扔进不可燃垃圾桶
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 16327#       发表于 2025-2-16 18:14
+
+你月就喜欢野史大家都知道，槽点是XX野史也干了你月怎么就只认了这一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说难听点你配吗配几把啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  シャル  
+##### 16328#       发表于 2025-2-16 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441097&amp;ptid=2084912" target="_blank">exiaexa 发表于 2025-2-16 18:10</a>
+
+他们但凡有那么一丁点作用，就该把玉藻前和ccc扔进不可燃垃圾桶</blockquote>
+小玉本尊可是天照大神，给轩辕黄帝守坟的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这也没见本子跳出来喷啊
+
