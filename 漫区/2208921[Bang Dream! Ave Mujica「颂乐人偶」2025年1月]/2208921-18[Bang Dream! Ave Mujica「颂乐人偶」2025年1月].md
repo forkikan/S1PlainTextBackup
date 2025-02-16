@@ -473,3 +473,53 @@ byd楼里一直说剧透让我想起了猴子打字机
 
 概率不亚于陨石撞地球吧大概
 
+
+*****
+
+####  天空塔书记官  
+##### 25202#       发表于 2025-2-17 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444126&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-17 01:01</a>
+然而这段剧情对祥子的成长不如对睦的作用大。
+
+祥子还有很多问题要解决，C团优先级可以说不算高。但对睦来 ...</blockquote>
+关键还是CCC并不是作为“钥匙”而存在的，如果有心的话是可以直接从春日影接入祥子和睦的童年的，尤其是与祥子母亲有关的内容，祥子与春日影的情感共鸣明显强于其他人，这就可以作为一个切入的点，但显然并不存在这样的可能<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  零壹贰叁  
+##### 25203#       发表于 2025-2-17 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去看红迪邦版其实也有感受
+就是这群en老外是喂什么就吃什么的
+例如分享老钟评论说这集live不行引起了很多人不满，后面就有老外惊叹“这群人难道没从tomori的歌声中感受到悲伤吗”
+然后滑坡到老钟国情导致没法容忍所有不好
+
+很多人打好评大概率也是因为sakiko从阴影里走出来开心，然后抱怨老钟怎么这都要骂
+
+*****
+
+####  sauron.j  
+##### 25204#       发表于 2025-2-17 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443919&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-17 00:27</a>
+
+我个人是觉得，就是MYGO之所以好，就好在他在一个比较简单的框架下，把所有的精力都集中在了描写5个人身上
+
+ ...</blockquote>
+这就是一口气补完的观感往往比较好的原因
+
+以后有路人来补鸡狗两季动画，当他看到mujica第3、4集时脑内诗超绊和迷星叫的余韵还没褪呢，情绪流不易中断也不会用显微镜看片，注意力会集中在台面上的结果
+
+*****
+
+####  zhigui  
+##### 25205#       发表于 2025-2-17 01:18
+
+欧美那边的二次元老外不就是路边一条
+
+而看邦邦的欧美二次元更是比路边一条还不如<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
