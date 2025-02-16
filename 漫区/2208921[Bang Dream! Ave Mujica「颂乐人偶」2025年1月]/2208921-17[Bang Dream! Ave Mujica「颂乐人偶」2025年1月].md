@@ -16209,3 +16209,43 @@ soyo和立希是家庭、人际关系。灯则是对自我否定。C团存在时
 立本人的mygo更具物哀情节，强 ...</blockquote>
 但从物哀的角度来看ccc第七集重组也是败笔啊，对c团爱而不得的残缺美遗憾美荡然无存，如果不是大段独白反复念叨ccc结束了，真的能从哪里看出来ccc不能破镜重圆的理由吗？
 
+
+*****
+
+####  cxj649  
+##### 25149#       发表于 2025-2-16 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">说个事，爱灯祥，素睦以后日常肯定学校互动会增多
+
+这个在传统互动上最奇葩就是初华<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 25150#       发表于 2025-2-16 23:49
+
+不懂为啥粉毛那么多人发声就看看这几天那几个播放量高的MAD吧，评论区走一轮就行了，几个MAD的情绪感染力比第七集那个live强到不知道哪里去，MAD真有点鼻子一酸的
+
+而且这集爱音整一个局外人，连叫一声接下来mygo练习都要她自己说，制作组真的占点心理变态了
+
+*****
+
+####  天空塔书记官  
+##### 25151#       发表于 2025-2-16 23:51
+
+如果第七集的live能做好一点，也许真不会有这么大反应，但岛国人就是好这口也没啥办法就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 25152#       发表于 2025-2-16 23:54
+
+ 本帖最后由 天空塔书记官 于 2025-2-16 23:56 编辑 
+
+不过就目前wsd这个刻意制造“神回”的搞法，后边几集在海外翻车的概率也不是没有，看看它还能整啥活吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
