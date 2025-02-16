@@ -252,3 +252,22 @@ PC端的汉化甚至是开服不久的时候就有了。</blockquote>
 
 （除非他们觉得PV里四国语言太挤了还不想做四个视频）
 
+
+*****
+
+####  Jamaisvu  
+##### 1088#       发表于 2025-2-16 21:28
+
+<img src="https://img.saraba1st.com/forum/202502/16/212351wb4gqa0k811eznwk.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2737626-16f7ec4150-00000089.webp</strong> (122.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-16 21:23 上传
+
+找了一下废墟图书馆设定集末尾的翻译组感言，感觉还挺融洽的。
+
+（至于组内什么状况就不足为外人道也了...好像组长拿了一半以上的总薪酬）
+
