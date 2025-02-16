@@ -834,3 +834,16 @@ https://m.bilibili.com/opus/1033632735051120642
 
 秀吉有经验值在琥珀ace的版本，fgo目前战国从者也大多是咕哒咕哒系，真落地按那个版本来的话倒是和西游猴子没啥关系。
 
+
+*****
+
+####  白金口袋  
+##### 16353#       发表于 2025-2-17 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441938&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-2-16 06:04</a>
+
+应该是菌皇终于找到第三部怎么写的方向了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+战斗力终于要往savior级膨胀了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
