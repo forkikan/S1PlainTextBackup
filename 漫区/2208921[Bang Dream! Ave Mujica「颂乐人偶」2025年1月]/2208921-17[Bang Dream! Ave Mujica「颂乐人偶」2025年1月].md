@@ -11144,3 +11144,81 @@ https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ape-apple  
+##### 24695#       发表于 2025-2-16 12:34
+
+邦一直是这样，它本质上就是三次元女声优组合的动画宣传片，说得再极端点，你想搞2.5次元，最终结局一定是声优痴。官方也完全是往这个方向引导，国内这种孤立主义看问题反而是畸形发展
+
+*****
+
+####  千千千千鸟  
+##### 24696#       发表于 2025-2-16 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439010&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-16 12:32</a>
+还在灰原哀，要是灰原哀早期塑造和这20集的祥子一样，我愿意删除自己看过来自黑暗组织的女子的记忆
+
+—— ...</blockquote>
+祥厨表示要切割一下后7集了，mygo13集结尾是小祥形象最高光时刻，集白月光黑月光美惨强为一身，和后面7集不是一个概念<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 24697#       发表于 2025-2-16 12:36
+
+现在是不是wsd大赚特赚的时间线啊，以后能再好好打磨剧本出一个新乐队吗，
+
+*****
+
+####  黛冬優子  
+##### 24698#       发表于 2025-2-16 12:38
+
+你大祥配和灰原哀比么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 24699#       发表于 2025-2-16 12:41
+
+所以除了睦祥以外的鸡团3人的厨子怎么不冒头啊，戏份这么少还全垫了完全是工具人，没有不满的吗
+
+*****
+
+####  是谁的书画  
+##### 24700#       发表于 2025-2-16 12:42
+
+有的 兄弟 有的
+
+wsd的思维怪圈就是每个队伍里都要安排神人才行，就和广东人下馆子一定要点白灼芥兰一样。神人越多节目效果越好啊。
+
+相比之下要是真找个大多健全人的队伍反而显得格格不入了，虽然我也没点名RAS的意思
+
+*****
+
+####  稀勢のささ  
+##### 24701#       发表于 2025-2-16 12:42
+
+大祥粉丝还蛮有意思的
+
+*****
+
+####  怀沙汨罗  
+##### 24702#       发表于 2025-2-16 12:43
+
+我还去红迪看看，结果发现邦邦在海外完全就是路边啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这表现有人会觉得wsd对欧美自信起来了？
+<img src="https://p.sda1.dev/22/28385f956518d6a5f987b097e4219804/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  灼眼的夏娜酱  
+##### 24703#       发表于 2025-2-16 12:43
+
+你鸡狗所有人捆一块也不配合灰原哀比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

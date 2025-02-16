@@ -13908,3 +13908,13 @@ WechatIMG437.jpg
 但是plazma里修斯其实是存在的，就是mv里的米津玄師本人，两人穿着一样的宽松灰色长裤，米津外面套了一件 ...</blockquote>
 确实修司是存在的，那就只有第三段的纯陈述句歌词，前两段看歌词和意向都是两位女角色的。
 
+
+*****
+
+####  Gysumitka  
+##### 6988#       发表于 2025-2-16 12:41
+
+<img src="https://p.sda1.dev/22/bf68c1b7c6106205c55a1d1bad9277b9/image.jpg" referrerpolicy="no-referrer">
+凸
+[@Jinou_ rakugaki](https://x.com/Jinou_rakugaki/status/1890941265291726892)
+
