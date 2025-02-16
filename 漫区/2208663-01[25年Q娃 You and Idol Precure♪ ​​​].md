@@ -2686,3 +2686,14 @@ wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/imag
 
 命运的相遇（应该不会有 nana 在粉主和小紫之间，考虑选择哪一个，痛苦抉择的剧情吧    
 
+
+*****
+
+####  Rhantolk  
+##### 515#       发表于 2025-2-16 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440261&amp;ptid=2208663" target="_blank">MLP_102 发表于 2025-2-16 16:05</a>
+
+命运的相遇（应该不会有 nana 在粉主和小紫之间，考虑选择哪一个，痛苦抉择的剧情吧     ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有人在幻想蓝紫的
+
