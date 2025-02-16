@@ -10729,3 +10729,58 @@ mujica这现在就是没给人足够的安全感，场内场外全是烂完了�
 除了一点，女频这个词不一定准，独角兽的xp放女频多半也得被喷 ...</blockquote>
 武士道能同意小姨说明全家都不正常的
 
+
+*****
+
+####  wpcc  
+##### 24658#       发表于 2025-2-16 11:49
+
+<blockquote>ads147147 发表于 2025-2-16 11:46
+小姨文学上次不是嘲讽eva的么，现在真情书加一了。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+上一次这么大范围的被路人骂就是手游那个 亲妈后妈勉强算小姨吧…
+
+*****
+
+####  Lawliet.L  
+##### 24659#       发表于 2025-2-16 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438677&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-16 11:46</a>
+
+小姨文学上次不是嘲讽eva的么，现在真情书加一了。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那剑剑在哪里？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z-hunter  
+##### 24660#       发表于 2025-2-16 11:55
+
+话说有没有人脑洞一下武士道为什么要搞C团春日影上TFT？
+
+这个爆出来之前我都不知道TFT，但之后了解了一下好像挺牛的难度挺大的做广告要花的钱也不少
+
+还是应该在隔壁邦企划楼谈论这个话题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 24661#       发表于 2025-2-16 11:56
+
+小姨不就是照搬海猫鸣泣之时吗
+
+其实还好吧，反倒觉得没什么创意。。。
+
+*****
+
+####  安娜导函数  
+##### 24662#       发表于 2025-2-16 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437977&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-16 09:58</a>
+那不是特意让木看到嘛，还特意站木窗户下，章鱼的小心机要是以前也有就好咯 ...</blockquote>
+不就是渣男自残求前女友复合原谅的剧情嘛，核心就是我知道你还是在乎我，那我就自虐卖惨博同情，让你心一软就好复合了嘛。
+蓝祥不去牛郎店上班太可惜了呢
+
