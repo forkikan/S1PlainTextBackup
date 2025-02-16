@@ -11632,3 +11632,57 @@ WSD 既不是NBA 也不是高達
 
 现在看柿本推的简介写满战绩都有种浓浓的求撅感，评论区拷打只会让他爽到<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嵇翱u  
+##### 24738#       发表于 2025-2-16 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439315&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-16 13:23</a>
+
+前后都呼应不上了</blockquote>
+没毛病，最不喜欢表演都要分出第二人格去表演。吉他虽然不会唱歌但还是自己弹的，只是比不上能唱歌的吉他罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 24739#       发表于 2025-2-16 13:38
+
+亲手毁掉别人珍惜的东西感觉真爽吧
+
+
+*****
+
+####  forgetit  
+##### 24740#       发表于 2025-2-16 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439215&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 13:05</a>
+
+所以说已经不能正常讨论了，都出脑成这样了，还看这片干啥，还是说楼友也要觉醒第二人格。
+
+建议恢复无职 ...</blockquote>
+拉个横幅草
+
+*****
+
+####  江口夕  
+##### 24741#       发表于 2025-2-16 13:41
+
+ 本帖最后由 江口夕 于 2025-2-16 13:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439407&amp;ptid=2208921" target="_blank">forgetit 发表于 2025-2-16 13:40</a>
+拉个横幅草</blockquote>
+确实啊，拉个横幅说让你吃到屎了对不起，然后下跪，然后把片子下架。你们不就是这么想的么，我都帮你们说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议你们再继续共振下，把这实现了让小日子知道厉害
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  安娜导函数  
+##### 24742#       发表于 2025-2-16 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439166&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 12:57</a>
+我猜后面，大祥要效仿素世，拽她老爹去老妈墓地抽醒中登。当然这之前要解决立场问题，不能坐迈巴赫了
+
+—— ...</blockquote>
+不坐迈巴赫就要变黑箱了，肯定是要坐的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
