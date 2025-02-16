@@ -15136,3 +15136,73 @@ a团的那几个睦已收尾，三位新人物缺少地基，团内撕逼还怕�
 
 今天上海萝有人把热水玻都舞到本人眼前了，到时候要是鸡狗再来上海这帮神人会举什么横幅我不敢想。
 
+
+*****
+
+####  是谁的书画  
+##### 25059#       发表于 2025-2-16 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442602&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-16 21:38</a>
+
+祥学长最大的考验还在后面呢，说一个我已经贷款吃shi了一天的事：祥目前完全不承认mortis人格，然而观众 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">谢谢你的屎，这个杀人犯看的有点不适了。
+
+*****
+
+####  fuwamoco  
+##### 25060#       发表于 2025-2-16 21:51
+
+我已经原谅双重人格，原谅键帽拆团，原谅卑微大金毛消失，原谅人机雇佣兵，原谅十五年未有大陀螺了。
+
+接下来只要拉满女女关系性我还是能看下去，别整你那炒作了
+
+*****
+
+####  十万年魂环  
+##### 25061#       发表于 2025-2-16 21:52
+
+雷雨家族戏，就问爱看不爱看吧<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maritimus  
+##### 25062#       发表于 2025-2-16 21:54
+
+我觉得初华假药都挺可乐的，唯一不能接受的是初华成了睦2.0，祥子一喊就跟着重组乐队，那可太没意思了
+
+*****
+
+####  borrowface  
+##### 25063#       发表于 2025-2-16 21:57
+
+楼里有些人莫名其妙的说国内讨论是孤立主义的畸形现象人最好真的去采访一下真金白银去看bangdream演出的人是咋看mujica ep7的 [https://www.bilibili.com/video/BV12XATehEaP](https://www.bilibili.com/video/BV12XATehEaP)
+
+而且wsd新一期财报涉及到bangdream内容的，哪个模块没拿去年中国市场表现做展示已去显示未来盈利信心的，更别说周边部门写明了就是得益于中国市场暴增营业额达新高。
+
+Avemujica这种毁角色的动画出来（第七集这么说没问题吧）wsd整体怎么我不好说，真影响了周边销售，对应部门的人怕不是要骂死那些战犯。
+
+<img src="https://img.saraba1st.com/forum/202502/16/214927n757dtvzamtconat.png" referrerpolicy="no-referrer">
+
+<strong>2025-02-16 21 49 01.png</strong> (165.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/214217dimrgyi16kgr1i16.png" referrerpolicy="no-referrer">
+
+<strong>2025-02-16 21 41 50.png</strong> (205.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/213939lwzc3fkmdee00mbn.png" referrerpolicy="no-referrer">
+
+<strong>2025-02-16 21 33 42.png</strong> (111.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 21:39 上传
+
