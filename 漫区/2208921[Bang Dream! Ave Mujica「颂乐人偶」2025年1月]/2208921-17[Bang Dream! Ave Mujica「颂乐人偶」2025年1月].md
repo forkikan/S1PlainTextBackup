@@ -11724,3 +11724,61 @@ WSD 既不是NBA 也不是高達
 
   我来教你一个话术： 爱音对于mygo的定义是mygo！！！！！  5个！就是5个人 就算迷途了5个人也要在一起迷茫 ，  素食虽然嘲笑但心里也同意了这个说法，所以带了5根黄瓜过来代表CCC5个人，就算CCC已经死了，离开了自己的生长环境，但我们会记住CCC曾经存在过，5根黄瓜对应5个!  这也是一种爱素，哎呀，2个人的糖不是直球互动，而是潜移默化地改变另外一个人的心！
 
+
+*****
+
+####  艾ACC  
+##### 24747#       发表于 2025-2-16 14:16
+
+了解，散
+
+*****
+
+####  怀沙汨罗  
+##### 24748#       发表于 2025-2-16 14:18
+
+<img src="https://img.saraba1st.com/forum/202502/16/141457t2c3q7ql1wswtzcf.png" referrerpolicy="no-referrer">
+
+<strong>lQLPJwK2s6ynwFnMzc0EkbAQRRikImdViAeU913IV3sD_1169_205.png</strong> (49.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 14:14 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/141457sis62ferx92pvdsw.png" referrerpolicy="no-referrer">
+
+<strong>lQLPKHwwg5AKYFnNAQPNBMWwLuJYM-9oGU8HlPddyFd7Ag_1221_259.png</strong> (67.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 14:14 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/141457qporb7sm655sdw4d.png" referrerpolicy="no-referrer">
+
+<strong>lQLPJv8pNQfhQFnNAT3NBnWwCfW1APxTm80HlPddyFd7AQ_1653_317.png</strong> (68.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 14:14 上传
+
+太有反差效果了，这是某位义正言辞指责讨论环境不好的漏油发言，看不出他的“正常讨论”体现在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+lQLPJxvwHT6PgFnNAXPNBPGwHfTjNxlEXo0HlPddyFd7AA_1265_371.png
+(55.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 14:14 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/141457s9b3c11221azadrj.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  干早爱音  
+##### 24749#       发表于 2025-2-16 14:20
+
+mujica在开播之前，这栋楼就已经聊了140层，往前翻的话很多人现在就已经不见了。这不能说都是因为第七集瞬间蒸发的，而是随着每一集的播出，越来越多的人陆陆续续离开。
+
+真正离开都无声无息，或许出于各种原因，但是去那这个责怪还留在楼里的楼友...我觉得不对......
+
