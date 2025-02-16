@@ -1209,3 +1209,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qwased  
+##### 5780#       发表于 2025-2-16 13:18
+
+现在任务点交互的bug还是没修好啊，做到最后一个发射导弹的任务有个锁死活没法交互<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

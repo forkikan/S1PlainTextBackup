@@ -11526,3 +11526,52 @@ WSD 自己帶起的節奏
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神威难藏泪，MYGO，旗木祥VS宇智波素世。。。这活太乐了
 
+
+*****
+
+####  南宮凝香  
+##### 24729#       发表于 2025-2-16 13:16
+
+WSD 既不是NBA 也不是高達
+
+他是一間沒壟斷地位的普通公司
+
+我覺得算了吧， 這話題不會有共識的
+
+就跟祥喵的音樂性還是觀眾喜好重要一樣
+
+*****
+
+####  Min_FOrder  
+##### 24730#       发表于 2025-2-16 13:20
+
+<blockquote>江口夕 发表于 2025-2-16 13:05
+所以说已经不能正常讨论了，都出脑成这样了，还看这片干啥，还是说楼友也要觉醒第二人格。
+
+建议恢复无职 ...</blockquote>
+走了走了，别在这聊了，看24719L，你楼观众已经到了不跟着他们意见走就搞嘴臭人身攻击的地步了，还有啥意义呢
+
+
+*****
+
+####  Versedust  
+##### 24731#       发表于 2025-2-16 13:23
+
+<img src="https://img.saraba1st.com/forum/202502/16/132135td8d3ds70gdo2wjd.png" referrerpolicy="no-referrer">
+
+<strong>8ead48ed6f11fa9bcca48d31e8b7333e.png</strong> (63.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:21 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/132257rtxvgqpxwmm4x0x2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:22 上传
+
+前后都呼应不上了
+
