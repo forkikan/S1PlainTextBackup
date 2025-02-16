@@ -11222,3 +11222,100 @@ wsd的思维怪圈就是每个队伍里都要安排神人才行，就和广东�
 
 你鸡狗所有人捆一块也不配合灰原哀比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚德雷麦亚  
+##### 24704#       发表于 2025-2-16 12:44
+
+🐘都能碰瓷灰原哀了，幽默<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 24705#       发表于 2025-2-16 12:46
+
+<blockquote>怀沙汨罗 发表于 2025-2-16 12:43
+我还去红迪看看，结果发现邦邦在海外完全就是路边啊200多的讨论还不如人孤独摇滚预告的零头。再去看分区讨 ...</blockquote>
+紅迪 BangDream 本來就小眾中小眾
+
+6萬人， 還有一部分是老鐘的
+
+邦邦實際上也就兩岸+本土三個市場吧
+
+*****
+
+####  thisisaspider  
+##### 24706#       发表于 2025-2-16 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438975&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 12:27</a>
+
+阿姨现在放任翻译审核化身爱音厨剧透带节奏到底有什么好处</blockquote>
+草台<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 24707#       发表于 2025-2-16 12:48
+
+  字幕组给主播动态切片加戏又不是第一次了
+
+
+*****
+
+####  thisisaspider  
+##### 24708#       发表于 2025-2-16 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439029&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-16 12:34</a>
+
+邦一直是这样，它本质上就是三次元女声优组合的动画宣传片，说得再极端点，你想搞2.5次元，最终结局一定是 ...</blockquote>
+紫吧才是正统，其他地方的风评？臭看动画的罢了
+
+*****
+
+####  花スープ  
+##### 24709#       发表于 2025-2-16 12:51
+
+就是在闹钟，邦邦本来也是小众的，mygo 火之前身边相关圈子基本都是 LL 和爱马仕为主，mygo 火了以后我甚至能在工作群聊里看到有同事发 mygo 的表情包<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 24710#       发表于 2025-2-16 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439064&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-16 12:41</a>
+
+所以除了睦祥以外的鸡团3人的厨子怎么不冒头啊，戏份这么少还全垫了完全是工具人，没有不满的吗 ...</blockquote>
+你怎么不问乐奈厨去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 24711#       发表于 2025-2-16 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439095&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 12:46</a>
+紅迪 BangDream 本來就小眾中小眾
+
+6萬人， 還有一部分是老鐘的</blockquote>
+所以我很好奇说母鸡卡海外热度高的依据是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就之前那点基数稍微波动一下不是很正常嘛，更别说现在还有洋人以这动画开眼看老钟呢。<img src="https://p.sda1.dev/22/f0fdd12b41a759153c4e776fa0368c04/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/25d95b1ad879373af9054689f0ce80c9/image.jpg" referrerpolicy="no-referrer">推上这有多少讨论都是老钟过去的也数不清了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  105gun  
+##### 24712#       发表于 2025-2-16 12:52
+
+虽然事后再说有点马后炮，第四集以来的各种假药都挺内什么的。本质还是观众对mygo入脑太深，默认制作组能在mujica中保持上一作的水准。
+
+我不想说得太失礼，作为一个从来没对上一部动画入过脑的观众，看完mujica的前三集，我的第一反应是疑惑。我觉得大家冷静下来也能注意到，回顾前七集，mygo的许多叙事传统在mujica里是被完全抛弃的，不仅仅是仿照大河内搞爆点剧情的问题。
+
+一个完全冷静的观众，看到第四集的时候就该调整自己的预期了。作为第一幕的高潮，第四集无论如何也不该做成闹剧。但剧组执意要将这一集做成莫提斯老师的showcase，让她复读，让她与祥子演对手戏，设置场景，让她作出某些粉丝所谓的“美味的表情”，这就使得本就显得局促的一集雪上加霜。玩过国产二游的观众平时应该没少吃过这种类型的屎。
+
+当时我和我的朋友看完，我们很快就取得了一个共识：不管怎么说，从大莫老师上线，带领团队走向虚伪的欣欣向荣，到大莫老师因为自身的缺陷促成乐队解体，这个序列怎么着也不该挤在一集内讲完。现在这种做法，就是闹剧。
+
+看了这种剧，却依然对mygo入脑的观众，为了维持自己对剧组“高水准”的想象，就开始编排各种荒诞不经的说法。哪怕有些说法根本不可能会在mujica这种定位的剧中出现。我不会说观众提出的所有推测都是不着边际的，但第四集那时的盛况，只让人联想起芥川龙之介的蜘蛛之丝。五六集以来，观众心中的蜘蛛之丝换了一根又一根，终于在第七集丧心病狂的live中嗷的一声崩掉了。
+

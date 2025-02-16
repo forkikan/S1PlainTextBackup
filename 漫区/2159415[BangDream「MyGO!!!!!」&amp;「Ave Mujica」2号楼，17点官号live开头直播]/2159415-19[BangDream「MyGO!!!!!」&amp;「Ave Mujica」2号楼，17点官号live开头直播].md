@@ -4241,3 +4241,26 @@ aiai这状态真无敌了。爽死了。
 前几首音响好像有点问题器乐全糊成一团，但是i83状态好的时候我真觉得是你邦第一主唱，她能带动拖沓的器 ...</blockquote>
 听说又有家虎神人？
 
+
+*****
+
+####  rollingusagi  
+##### 26961#       发表于 2025-2-16 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438217&amp;ptid=2159415" target="_blank">ml1642879 发表于 2025-2-16 10:38</a>
+听说又有家虎神人？</blockquote>
+家虎还好，倒不是说没有，是这帮逼最后黑叫那段间奏想喊的时候结果刚一句耶出口下面就喷彩带直接把他们声音全盖住了。这次要说神人主要是一层看台有个哥们在最后萝她们闭麦谢场的时候大喊繋がりタイガ，我是三层看台的所以不太清楚，但根据内场的哥们表示这人好像被aiai狠狠的蹬了一眼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Milarvoz  
+##### 26962#       发表于 2025-2-16 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438217&amp;ptid=2159415" target="_blank">ml1642879 发表于 2025-2-16 10:38</a>
+听说又有家虎神人？</blockquote>
+这次安检不严，家虎大闪孔雀啥的神人从头到尾应有尽有，全干了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
