@@ -4571,3 +4571,15 @@ live做得不太好
 
 大伙别太较真，本来就没有角色，没有剧情，没有爱，只是一份赚米的工作而已啦。
 
+
+*****
+
+####  _47  
+##### 445#       发表于 2025-2-16 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436406&amp;ptid=2246159" target="_blank">aptx8285144 发表于 2025-2-15 23:59</a>
+如果以后有人吹日本人的音乐审美能力很强，我就告诉他第七话的鬼故事</blockquote>
+日本人在说是⏰不懂侘寂美学
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

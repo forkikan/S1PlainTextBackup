@@ -397,3 +397,42 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是我记忆又出现了偏差还是啥....泳装徐福怎么成了收巧克力的了
 
+
+*****
+
+####  Jamaisvu  
+##### 16312#       发表于 2025-2-16 17:23
+
+<img src="https://img.saraba1st.com/forum/202502/16/172101hbay4u1xm35gffad.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250216_171951.png</strong> (252 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-16 17:21 上传
+
+小町三破造型好正常啊，九相图只是简单地用功德轮上的日月沉浮隐喻了一下...
+
+这是缝了个千手观音吗？
+
+*****
+
+####  壳壳牛  
+##### 16313#       发表于 2025-2-16 17:27
+
+啊？缝观音菩萨？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Jamaisvu  
+##### 16314#       发表于 2025-2-16 17:27
+
+<blockquote>岸浪白野 发表于 2025-2-16 17:22
+</blockquote>
+确实挺重量级的，四大菩萨之一。怪不得三破只有三藏能搭上话...
+
+等以后哪次活动加成从者有小町和三藏，就可以该奶一下孙悟空落地了吧...
+

@@ -13258,3 +13258,65 @@ nm这才第七集<img src="https://static.saraba1st.com/image/smiley/face2017/00
 —— 来自 鹅球 v3. ...</blockquote>
 还是可以洗一下的，爽世的设定就是在go团才能做自己，爱啥表情就啥表情，在外面包括c团全是温柔微笑的虚假形象。看歌词笑是呼应了之前说的不理解灯的歌词，现在终于释怀了
 
+
+*****
+
+####  distrowatch  
+##### 24874#       发表于 2025-2-16 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440650&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 17:02</a>
+
+说句犯忌讳的现在车的最多的“你给她回电话！你怎么不回？”在我看反倒是比不怎么毁人设的描写。
+
+立希一直 ...</blockquote>
+这里的问题是立希前一天问了爱音睦的地址所以爱音也许能想到立希在哪里，但soyo是直接鸽了live前彩排去的睦家连立希都惊讶soyo怎么来了说明是没在群里通过气的，这个就很微妙了如果爱音在群里问两人在哪里时根本不知道这她们是在一起那理论上soyo也应该回一下，只能说制作组可能就没想到单纯在玩盐点子
+
+*****
+
+####  是谁的书画  
+##### 24875#       发表于 2025-2-16 17:17
+
+爽姐在CCC性压抑还是在mygo性压抑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 24876#       发表于 2025-2-16 17:18
+
+变脸和盐是爽世的特色，不可不品尝（最后有糖）
+
+【bangdream mygo活】轮符雨活动剧情
+[https://www.bilibili.com/video/BV1imHYeiERP/](https://www.bilibili.com/video/BV1imHYeiERP/)
+
+
+*****
+
+####  天空塔书记官  
+##### 24877#       发表于 2025-2-16 17:20
+
+还是我们二次元RAS令人安心，
+
+因为早就没人关注了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 24878#       发表于 2025-2-16 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440746&amp;ptid=2208921" target="_blank">distrowatch 发表于 2025-2-16 17:16</a>
+
+这里的问题是立希前一天问了爱音睦的地址所以爱音也许能想到立希在哪里，但soyo是直接鸽了live前彩排去的 ...</blockquote>
+不，之前经常有他们讨手机看，结果聊天信息就两个爱音的大表情搁那挂着根本没回复的情况吧，那说明他们可能平常真的很习惯无视爱音吧？我草怎么越说越变态了呢感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 24879#       发表于 2025-2-16 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440723&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-16 17:12</a>
+
+还是可以洗一下的，爽世的设定就是在go团才能做自己，爱啥表情就啥表情，在外面包括c团全是温柔微笑的虚 ...</blockquote>
+笑是可以装出来的，哭也许也可以，但是哭着笑出来，那是绝对装不了的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

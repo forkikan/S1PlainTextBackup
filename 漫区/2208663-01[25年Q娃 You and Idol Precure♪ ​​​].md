@@ -2707,3 +2707,22 @@ wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/imag
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  蒼風なな  
+##### 517#       发表于 2025-2-16 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439180&amp;ptid=2208663" target="_blank">キュアアイドル 发表于 2025-2-16 12:59</a>
+我们不是从小就相知相识的好朋友吗，我会一直为奈奈同学应援的，请不要物理排除我 ...</blockquote>
+自从认识小歌后，我不但对钢琴有信心了，现在还能把钢琴举起来了
+
+所以，没问题的，友情是不会破裂的！
+
+*****
+
+####  codezwei  
+##### 518#       发表于 2025-2-16 17:23
+
+女主也太有活力了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
