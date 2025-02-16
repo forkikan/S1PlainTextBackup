@@ -15015,3 +15015,29 @@ Mujica第七集的结束后，武士道全员回到会议室，绫奈由仁子�
 
 假药成真了初华厨第一个破大防<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">倒不如说现在还有初华厨吗
 
+
+*****
+
+####  zhoujin8584  
+##### 25047#       发表于 2025-2-16 21:22
+
+<blockquote>稀勢のささ 发表于 2025-2-16 20:28
+不是，就算真有冠军粉那人图你大祥啥啊，被抽脸的最速武道馆吗</blockquote>
+第七集祥学长反而会默默的小涨，毕竟终于回到了白祥原点，go团c团发挥完作用暂时不会出来占戏份，现在的场外情绪来的快去的也快。有了内驱力和行动力的大祥老师进入重组a团线，萌豚只需要提前脱敏完天降伦理梗，单推只需要花完钱了自诩WSD股东，围观群众散了咋不能吃呢。
+
+a团的那几个睦已收尾，三位新人物缺少地基，团内撕逼还怕抽不过一只猫吗，已剑指八、九集<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 25048#       发表于 2025-2-16 21:23
+
+一群神人玩乐队<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  helloo23  
+##### 25049#       发表于 2025-2-16 21:24
+
+初华厨… 目前是除了那张伟大的脸一无所有了
+
