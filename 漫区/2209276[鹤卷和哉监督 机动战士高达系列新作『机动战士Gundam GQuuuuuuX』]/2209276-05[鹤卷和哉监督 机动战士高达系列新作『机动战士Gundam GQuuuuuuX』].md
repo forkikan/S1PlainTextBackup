@@ -13936,3 +13936,38 @@ WechatIMG437.jpg
 X 上的 青木：“[https://t.co/KaIMey5Cwh” / X](https://t.co/KaIMey5Cwh” / X)</blockquote>
 吔西红柿啦！
 
+
+*****
+
+####  YU_JI  
+##### 6991#       发表于 2025-2-16 19:46
+
+提个问，pv2里“太危险了，如果引发了泽克诺瓦的话”这句是在哪里出现的？
+
+<img src="https://img.saraba1st.com/forum/202502/16/194647d3z9dq7cpzjj923c.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4118.png</strong> (192.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 19:46 上传
+
+*****
+
+####  王九的哥哥  
+##### 6992#       发表于 2025-2-16 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441786&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-16 19:46</a>
+提个问，pv2里“太危险了，如果引发了泽克诺瓦的话”这句是在哪里出现的？
+
+ ...</blockquote>
+准备让新高达出击的时候的对话……
+
+
+*****
+
+####  纪寞  
+##### 6993#       发表于 2025-2-16 19:53
+
+那请问看过的人，哈罗有没有亲眼见过修司，感觉修司带玛秋和尼娅安那个场景是没带哈罗才对
+

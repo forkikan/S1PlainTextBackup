@@ -2739,3 +2739,13 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 其实等正式版出来了，肯定有单机单人Mod，把缩圈触发改一下，让你慢慢刷，强度自然就上来了，独狼游玩体验也会好很多。
 
+
+*****
+
+####  blz436  
+##### 295#       发表于 2025-2-16 19:48
+
+Xbox也开始疯狂断线了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，大概率开放暗号联机的锅
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

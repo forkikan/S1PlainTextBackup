@@ -14327,3 +14327,69 @@ mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读�
 
 这说什么真货假货.....你邦是有哪对上床了吗，怎么真货假货都来了
 
+
+*****
+
+####  hysjmr  
+##### 24976#       发表于 2025-2-16 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441720&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 19:36</a>
+
+如何解释最大假货美帝爱素 我百合圈混了很久都吃不下这个 中国人吃得可欢了 证明不是我的问题 ...</blockquote>
+mygo属于是在刻画人物方面抱有足够的善意，有些恶心人的点刻意掩盖或避开了，比如日本人一看就知道千早爱音是go团路边一条，【圈子地位】在那里只能当团队唯一指定小丑的，但是原作里回避了这点，到中国人眼里就觉得这是高情商高行动力阳光JK歪嘴龙王归来的剧本，然后基于这个判断引出了爱素爱祥
+
+*****
+
+####  影伴光生  
+##### 24977#       发表于 2025-2-16 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441716&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 19:35</a>
+说到这个想起来了，这纯洁初华+人机海玲，是不是一下就让之前万字分析做mygo拉片的那个子非鱼成沙口了？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说第一季花了一年多都没解析完，第二季已经烂了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24978#       发表于 2025-2-16 19:50
+
+<blockquote>柯哀lv王道 发表于 2025-2-16 19:41
+这说什么真货假货.....你邦是有哪对上床了吗，怎么真货假货都来了</blockquote>
+第七集开播我手刃无数爱素头子 讲道理太爽了
+
+*****
+
+####  thisisaspider  
+##### 24979#       发表于 2025-2-16 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439332&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 13:25</a>
+
+对于cp厨我只想说一句话 你看到的cp都是按头甚至幻想出来的 六字母是真的 都十年了 ...</blockquote>
+ 那我问你 这个有含金量吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  假意不是虚情  
+##### 24980#       发表于 2025-2-16 19:51
+
+收集阿斯伯格和DID这些当时尚小单品贩卖，按需开关，和现实维持一种奇妙的关联，成功了给自己刷新战绩，失败了也能说是观众自己想太多，真够猾的
+
+
+*****
+
+####  aptx8285144  
+##### 24981#       发表于 2025-2-16 19:52
+
+话说爱灯也就罢了，毕竟在一起时间确实多，爱素真得不是“敌手”类型CP转世想象想多了造成的吗
+
+*****
+
+####  aptx8285144  
+##### 24982#       发表于 2025-2-16 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441502&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 19:05</a>
+
+箱子的动机ccc漫画有说</blockquote>
+就算漫画有说，原创动画把这么重要的事放漫画实在不妥
+
