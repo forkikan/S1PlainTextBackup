@@ -9991,3 +9991,69 @@ mujica开局觉得祥子吊炸天&gt;失望
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  晓色暮云  
+##### 24586#       发表于 2025-2-16 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丰川祥子就是不够坏啊，像mqm那样坏，这些天天车祥的恶心代入党就代入章鱼了
+
+*****
+
+####  ape-apple  
+##### 24587#       发表于 2025-2-16 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437793&amp;ptid=2208921" target="_blank">Wwwwwater 发表于 2025-2-16 09:15</a>
+下集还讲c团的事？那还有时间塑造a团其他角色吗？</blockquote>
+老惦记A团干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧外A团也lbyt了
+
+*****
+
+####  江口夕  
+##### 24588#       发表于 2025-2-16 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437899&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-16 09:38</a>
+丰川祥子就是不够坏啊，像mqm那样坏，这些天天车祥的恶心代入党就代入章鱼了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在不是代入海玲阴阳怪气么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  山ノ内花音  
+##### 24589#       发表于 2025-2-16 09:43
+
+如果第八集不提出重组ccc
+那就是第九集了
+
+*****
+
+####  helloo23  
+##### 24590#       发表于 2025-2-16 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 下一话海铃能有五分钟戏份就行……
+
+*****
+
+####  MASKA-1  
+##### 24591#       发表于 2025-2-16 09:45
+
+剑指下一集，接下来是史上最没有悬念的让七追六<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 24592#       发表于 2025-2-16 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">作为祥厨我比较失望的是第七集铁门拥抱之后小祥还是没有硬起来最后还是被立希推着走
+
+*****
+
+####  山ノ内花音  
+##### 24593#       发表于 2025-2-16 09:47
+
+第九集重组ccc 结局离开主唱初华 和真初华同居
+这剧本太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
