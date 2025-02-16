@@ -2603,3 +2603,16 @@ Q娃内斗还不容易吗
 
 2025-2-16 12:42 上传
 
+
+*****
+
+####  キュアアイドル  
+##### 507#       发表于 2025-2-16 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438882&amp;ptid=2208663" target="_blank">蒼風なな 发表于 2025-2-16 12:15</a>
+
+不，我不会去学习怎么物理排除金发小女孩的
+
+偶像应该是带给人快乐和梦想的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">我们不是从小就相知相识的好朋友吗，我会一直为奈奈同学应援的，请不要物理排除我
+
