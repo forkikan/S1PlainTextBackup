@@ -15263,3 +15263,83 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 25069#       发表于 2025-2-16 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442075&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-16 20:23</a>
+
+有依据吧，我感觉最明显的是爱音撩素世头发。挂贝斯就得了，撩头发这一幕很难说制作方没有那个意思。对我 ...</blockquote>
+贝斯带子压住头发了
+
+<img src="https://img.saraba1st.com/forum/202502/16/220938h1xex7jdnd744xxe.jpg" referrerpolicy="no-referrer">
+
+<strong>贝斯带子压住头发.jpg</strong> (151.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 22:09 上传
+
+*****
+
+####  thisisaspider  
+##### 25070#       发表于 2025-2-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442745&amp;ptid=2208921" target="_blank">borrowface 发表于 2025-2-16 21:57</a>
+
+楼里有些人莫名其妙的说国内讨论是孤立主义的畸形现象的人，最好去采访一下真金白银去看bangdream演出的人 ...</blockquote>
+你说得对，但不会真觉得日本人会反思吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25071#       发表于 2025-2-16 22:12
+
+我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以
+
+如果认为灯在动画中更重要的，在此层加减鹅时回复 灯
+
+如果认为爱音在动画中更重要的，在此层加减鹅时回复 爱音
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|灯|
+
+查看全部评分
+
+*****
+
+####  结衣小比取  
+##### 25072#       发表于 2025-2-16 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442191&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 20:38</a>
+
+话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不 ...</blockquote>
+雨夜，睦是打算帮祥子揽责，虽然说的确实是实话，但是在这个场合说的就是分担责任，部分分析可见[9512L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67217262)
+
+飞鸟山公园的沉默则是否认了Soyo的说词
+
+*****
+
+####  ape-apple  
+##### 25073#       发表于 2025-2-16 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442819&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 22:05</a>
+
+舅舅要是真的，最破防的绝对是大猫颜厨啊，之前还可以趁祥子下降期打打顺风团，躲在后面拷打拷打祥子，洗洗 ...</blockquote>
+你不用管这个，大喵男粉就是馋她身子，女粉大多数都是厕妹精神级别的，大喵不－不爱
+
+再说大喵后面还要昂然回归呢，对祥子输出一堆正论推动鸡团复活，对祥黑来说是加分项
+
