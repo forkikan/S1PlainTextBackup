@@ -14614,3 +14614,81 @@ c团的事动画里已经落幕了，go团也要等结尾包饺子才返场，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，就算真有冠军粉那人图你大祥啥啊，被抽脸的最速武道馆吗
 
+
+*****
+
+####  FanFun  
+##### 25006#       发表于 2025-2-16 20:30
+
+老看到河豚说的美帝是什么意思？
+
+*****
+
+####  厚乳果珍爽  
+##### 25007#       发表于 2025-2-16 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd应该好好认清闹钟的热度其实对整个企划来说没啥影响，因为是11区企划，闹钟热度没办法转化为收益。
+
+碟片，谷子，live，闹钟能贡献那样？能贡献多少？
+
+*****
+
+####  凉良  
+##### 25008#       发表于 2025-2-16 20:31
+
+我爬了前面几页 也没人说冠军粉是祥粉啊 唯一个提到的不也是说以拷打祥子为赢
+
+*****
+
+####  hysjmr  
+##### 25009#       发表于 2025-2-16 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442135&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-16 20:30</a>
+ 老看到河豚说的美帝是什么意思？</blockquote>
+一个作品在二创圈子里最受欢迎的CP。比如圆焰就是魔圆的美帝
+
+*****
+
+####  是谁的书画  
+##### 25010#       发表于 2025-2-16 20:32
+
+用电竞粉，二偶痴，皮套人，抽象来指代一整个群体本来就没有意义。
+
+现在的网络环境就是高度交融的，抛去这些又能剩下些什么呢？ 你就能判断隔空对话另一边的“遗佬”就是除了邦邦啥也不沾吗。
+
+在现在这个年代，抛出”电竞粉“这个代名词已经aoe不到任何人了。往大了说，当你抛出个抽象梗来搞笑的时候，你也干了，但你代表谁了吗，事实上你只是用了个烂梗引出自己的观点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺被一提，不是我洗白nzh，翻我就昨天的回复就能知道nzh这人在我这纯杂种。
+
+但是一个人的力量可以带动一点，全不能代表一整个舆论。mujica创作上不被⏰接受到现在这个局面是一个逐渐发展的过程，是从第四集开始期望逐步瓦解演变成的决堤。
+
+nzh一个人可没那么大能量，他顶多算是一部分最极端人的嘴替。
+
+
+*****
+
+####  厄神之息  
+##### 25011#       发表于 2025-2-16 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442151&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 20:32</a>
+
+一个作品在二创圈子里最受欢迎的CP。比如圆焰就是魔圆的美帝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">原来不是红蓝吗。。。。
+
+*****
+
+####  Versedust  
+##### 25012#       发表于 2025-2-16 20:37
+
+据说柿本甚至想删掉撩头发那段
+他就想塑造一个不熟但能开live的乐队
+而独角兽想塑造一个迷茫中前进的乐队
+斗争的结果是独角兽切割跑路了
+
+*****
+
+####  hysjmr  
+##### 25013#       发表于 2025-2-16 20:38
+
+话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不想翻🐔动画了
+
