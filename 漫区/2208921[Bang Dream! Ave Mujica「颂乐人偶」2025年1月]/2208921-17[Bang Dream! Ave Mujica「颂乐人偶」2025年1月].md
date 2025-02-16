@@ -10478,3 +10478,67 @@ C团成员并不是被魅惑了，只是在接触祥子的过程中觉醒了作�
 
 史上最狂堂堂登场
 
+
+*****
+
+####  66367749  
+##### 24632#       发表于 2025-2-16 10:58
+
+如果一转奇幻那还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 24633#       发表于 2025-2-16 10:59
+
+星二要翻身了
+<img src="https://p.sda1.dev/22/582e957f872d63037e1deeb4e2e1a7d9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 24634#       发表于 2025-2-16 11:00
+
+现在看到的舅舅假药版本是鸡团8话一集复活，然后9话睦想要ccc莫想要鸡团。这下感觉已经没有人是人类了。
+
+*****
+
+####  高贵的  
+##### 24635#       发表于 2025-2-16 11:00
+
+接下来的剧情应该是全力祥出击，大祥传正式启动，总不能还当陀螺抽吧，那制作组是有些变态了
+
+*****
+
+####  一心而用  
+##### 24636#       发表于 2025-2-16 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438205&amp;ptid=2208921" target="_blank">Nana7ue 发表于 2025-2-16 10:36</a></blockquote>
+小黄瓜：那我呢？
+[https://b23.tv/LbW3zS4](https://b23.tv/LbW3zS4)
+<img src="https://p.sda1.dev/22/fc7fa8fbca842ea875ea77b19184130b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/dc53d437127df22b34be5b1233c7d062/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 24637#       发表于 2025-2-16 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438338&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-16 10:59</a>
+
+星二要翻身了</blockquote>
+什么时候成为2.5次元企划的三国杀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 24638#       发表于 2025-2-16 11:07
+
+<img src="https://p.sda1.dev/22/dc036a3181089d342dfa4a1bf0aec03a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/77bf77687aeea4eaa27a03b6b37c89b1/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/e3b4e83e55f590c76fc67c7f712866cf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bb5470782fb2ea7c99b2384413aa679b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b8fa2c7dc8b3611255f22a5f2c089189/image.jpg" referrerpolicy="no-referrer">
+
