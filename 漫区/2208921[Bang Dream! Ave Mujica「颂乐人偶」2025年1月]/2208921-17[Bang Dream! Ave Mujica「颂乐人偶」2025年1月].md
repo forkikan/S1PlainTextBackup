@@ -14032,3 +14032,125 @@ ylg太多了 不懂真正的百合是什么
 祥子组建乐团的动机从来都是因为她自己。
 <img src="https://i.miji.bid/2025/02/16/4af9239528690e605d66839a9f4531c8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 24947#       发表于 2025-2-16 19:04
+
+说个在百合楼完全不能说的场外话题，引流电竞粉和抗吧群众现在确实是从圣人厨角度来打架的，人家根本不管前面到底多大矛盾，
+看见爱音受欺负就起了帮闲的心，等鸡完结他们就跑光了，剩下的温和爱厨趁早跑吧，不然反噬起来真的能把坟都推平了。
+爱厨也没有任何立场去车声优，因为其他声优不是有作品就是有背景，您家什么都没有，黑历史也挺要命，反过来车lsl的话，wsd不是优化就是雪藏，最后只有双输的局面
+
+*****
+
+####  wpcc  
+##### 24948#       发表于 2025-2-16 19:04
+
+<blockquote>thisisaspider 发表于 2025-2-16 18:56
+你这么概括那全都干了好吧</blockquote>
+你不是大少爷你理解不了大象的想法的
+
+*****
+
+####  烂片雷达  
+##### 24949#       发表于 2025-2-16 19:05
+
+母鸡卡到处充斥着先射箭再画靶的痕迹，很多角色的动机解释不清的
+
+*****
+
+####  怀沙汨罗  
+##### 24950#       发表于 2025-2-16 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441301&amp;ptid=2208921" target="_blank">yakee 发表于 2025-2-16 18:38</a>
+说白了，现在多数人都是赢粉，你现在让他们看EVE，他们不喷死？
+就美里逗完小处男转头就找**，小处男病床卢 ...</blockquote>
+看个动画哪有啥赢不赢的，又不是啥高门槛高投资的行动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 24951#       发表于 2025-2-16 19:05
+
+<blockquote>烂片雷达 发表于 2025-2-16 19:05
+母鸡卡到处充斥着先射箭再画靶的痕迹，很多角色的动机解释不清的</blockquote>
+箱子的动机ccc漫画有说
+
+*****
+
+####  66367749  
+##### 24952#       发表于 2025-2-16 19:06
+
+组乐队不为自己还能为谁，为某个别人组乐队吗？
+
+*****
+
+####  thisisaspider  
+##### 24953#       发表于 2025-2-16 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441491&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 19:04</a>
+
+你不是大少爷你理解不了大象的想法的</blockquote>
+行吧，当独角兽是大小姐，所以她理解了祥子的想法好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 24954#       发表于 2025-2-16 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441378&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-16 18:47</a>
+
+不同意，她创建C团的原因不是为了用音乐感动所有人。
+
+你忽略了最大的背景，祥子实在母亲死后才有动机创建 ...</blockquote>
+只要组乐队就能幸福了吗我倾向于1是她对自己母鸡卡经历的总结2是要维持高姿态对他人做批评不允许别人用高高在上的姿态向自己施以援手。
+
+至于你前面说的，他妈死了，为什么看了蝶演出就会选择组乐队呢？他期望从组乐队中得到什么来慰藉心灵呢？你要非说她组乐队是因为她妈死了！我觉得这个真是太牵强了。你可以说她因为死了至亲，导致她去看乐队演唱然后从中得到感动慰藉，然后想把感动传递延续，我可以认同。你说跟蝶团没关系，组乐队纯是是为了告慰亡母，那。。。也是一种个人理解好吧
+
+*****
+
+####  thisisaspider  
+##### 24955#       发表于 2025-2-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441503&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-16 19:06</a>
+
+组乐队不为自己还能为谁，为某个别人组乐队吗？</blockquote>
+不细究的话虹夏是
+
+
+*****
+
+####  刑部姬真可爱  
+##### 24956#       发表于 2025-2-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441496&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 19:05</a>
+
+看个动画哪有啥赢不赢的，又不是啥高门槛高投资的行动
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+真没有赢不赢吗，倒不如说正是因为非高门槛非高投资，反而是很容易就能获得“赢”这种情绪的途径吧<img src="https://static.saraba1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 24957#       发表于 2025-2-16 19:11
+
+<blockquote>厄神之息 发表于 2025-2-16 19:09
+只要组乐队就能幸福了吗我倾向于1是她对自己母鸡卡经历的总结2是要维持高姿态对他人做批评不允许别人用高 ...</blockquote>
+
+至亲死了内心是很空洞，开心不起来的。问就是邦多利组乐队真开心
+
+*****
+
+####  66367749  
+##### 24958#       发表于 2025-2-16 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441496&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 19:05</a>
+看个动画哪有啥赢不赢的，又不是啥高门槛高投资的行动
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+赢粉是真有的，特别是抽象/电竞/管人痴等杂交出来的人，顺风赢和踩头，逆风发泄排解情绪是刚需。
+
