@@ -14081,3 +14081,17 @@ X 上的 朝凪@冬コミ新刊出ました：“マチュ…デッかくなか�
 嘛那两卡也可以说是究极名场面了……
 机体方面gqux启动的特写一骑绝尘同样也是1k＋，其他反而都比较便宜，就是电影票左右的价格
 
+
+*****
+
+####  ryanghj  
+##### 7003#       发表于 2025-2-17 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67434281&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-15 20:11</a>
+匿名版有推测过欧米伽塞可缪的使用要求
+
+最后通过首席哥和玛秋的条件对比，得出结论是：当GQX在搭载阿尔法 ...</blockquote>
+abo世界观？那岂不是还得有个beta
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

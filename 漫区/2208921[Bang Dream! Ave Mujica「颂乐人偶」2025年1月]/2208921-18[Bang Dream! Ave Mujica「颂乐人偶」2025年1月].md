@@ -523,3 +523,58 @@ byd楼里一直说剧透让我想起了猴子打字机
 
 而看邦邦的欧美二次元更是比路边一条还不如<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 25206#       发表于 2025-2-17 01:18
+
+我又幻想了，我幻想wsd是这样处理的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+大祥拉着睦去看了mygo的live，告诉她所有都已经过去了，你不要为过去的事情自责。都怪我不好，对不起。
+之后灯素希三人看到台下的两人，下首歌突然开始敲响春日影的鼓点，把爱音搞懵的下意识看了素世一眼，傻猫在一旁high。一曲春日影插入过去的回忆，最后大家台上台下相视一笑。
+祥子拉着睦鞠了一躬，转头离开，从此再无黑刀之夜的阴霾了。
+
+大祥，你真不是人啊我超<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 25207#       发表于 2025-2-17 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444131&amp;ptid=2208921" target="_blank">dc5281 发表于 2025-2-17 01:01</a>
+
+就因为c团不是“解散”而是“被解散”，导致现在一和解就显得狗内部关系岌岌可危
+
+其实多搞点细节、演出之类 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最底层代码不是5人限制，没这限制，问题就解决了啊233
+
+
+*****
+
+####  零壹贰叁  
+##### 25208#       发表于 2025-2-17 01:25
+
+我其实更期待新歌的，而不是再把成人歌和春日影拉出来说
+你ccc送葬难道不卖个新歌？灯给歌词本这么好的伏线就这么随便收了？之前贴便利贴贴了个寂寞啊？便利贴的话不是也能作成歌？
+卖新歌都不会卖，我是真的服了
+
+*****
+
+####  老贝  
+##### 25209#       发表于 2025-2-17 01:26
+
+之前在s1看到有个说法，白皮默认不存在任何鉴赏能力。
+无论白皮的观点和评价与你的是否一致，你都当它是在放屁，没有任何参考价值就好。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 25210#       发表于 2025-2-17 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444210&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 01:18</a>
+
+我又幻想了，我幻想wsd是这样处理的
+
+大祥拉着睦去看了mygo的live，告诉她所有都已经过去了，你不要为过去的 ...</blockquote>
+wsd不只是要crychic和解而是要crychic上台，大手再接TFT和live和游戏。睦祥甚至都不知道为什么自己都没事了要被你们拉来RiNG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
