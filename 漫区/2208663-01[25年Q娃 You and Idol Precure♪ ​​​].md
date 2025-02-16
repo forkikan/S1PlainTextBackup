@@ -2361,3 +2361,46 @@ Q娃内斗还不容易吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/c1bd14a51136756a2c281684b4717cfa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MagicGiraffe  
+##### 485#       发表于 2025-2-16 07:55
+
+大招弹钢琴好优雅<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  himfsz  
+##### 486#       发表于 2025-2-16 08:00
+
+感觉nana之后不搞点什么奇怪设定的话，在粉紫的旁边不会很影薄吗？而且还要再追加两个
+
+
+*****
+
+####  jaewoongh_  
+##### 487#       发表于 2025-2-16 08:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">今千秋这脚本写得，塞爆啊，一集能把事情全交代清楚也未尝不是好事
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">动起来之后才发现蓝色的暴露度真的好高好高啊，不知道小朋友能不能顶住
+
+*****
+
+####  HGCG+  
+##### 488#       发表于 2025-2-16 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437527&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-2-16 08:00</a>
+感觉nana之后不搞点什么奇怪设定的话，在粉紫的旁边不会很影薄吗？而且还要再追加两个 ...</blockquote>
+让她越来越重就行了
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  咲良うた  
+##### 489#       发表于 2025-2-16 08:05
+
+第 03 集的 TVer 源（含日字）：magnet:?xt=urn:btih:ef1f1458ffb66e1fa1af601b5ceb89d29cbe88b2
+
