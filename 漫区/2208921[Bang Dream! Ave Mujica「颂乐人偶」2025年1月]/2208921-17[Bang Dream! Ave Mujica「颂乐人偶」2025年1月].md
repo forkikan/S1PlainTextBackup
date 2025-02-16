@@ -11052,3 +11052,95 @@ https://tieba.baidu.com/p/9496476284?see_lz=1&amp;pn=1
 
 素祥复合了我缺的寡妇感爽姐去哪找补啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 24686#       发表于 2025-2-16 12:24
+
+作为万代 武士道在地上的代言人 我告诫你们
+
+不要违抗已经最好的动画 不要违抗安排的商务 
+
+不要擅自妄想精神病院的护士能当主角
+
+不要妄想厕妹能写好给男人看的剧本
+
+顺从资本的大手才是真！
+
+*****
+
+####  ape-apple  
+##### 24687#       发表于 2025-2-16 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438137&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 10:25</a>
+如果WSD 只要核心現地民，
+
+那就不用搞一套那麼多宣發的動畫了…….</blockquote>
+滑铁卢大可不必，在老钟摸不到的推特上，mujica最近几集基本上都是播出后马上热度第一，去年有这个能力的还是gbc
+欧美打分网站和nico生放上，观众人数比mygo也明显高了一大截，从引流角度看，mujica已经成功了
+
+*****
+
+####  wpcc  
+##### 24688#       发表于 2025-2-16 12:27
+
+<blockquote>ape-apple 发表于 2025-2-16 12:26
+滑铁卢大可不必，在老钟摸不到的推特上，mujica最近几集基本上都是播出后马上热度第一，去年有这个能力的 ...</blockquote>
+中华炮的最大问题就是不通过代理无法变现我也不知道阿姨搞这一波yygq抽了多少
+
+*****
+
+####  wpcc  
+##### 24689#       发表于 2025-2-16 12:27
+
+阿姨现在放任翻译审核化身爱音厨剧透带节奏到底有什么好处
+
+*****
+
+####  wpcc  
+##### 24690#       发表于 2025-2-16 12:28
+
+你要分析mygo的中国地位 不仅要分析大主播 还要分析舅舅
+
+*****
+
+####  是谁的书画  
+##### 24691#       发表于 2025-2-16 12:29
+
+只是回归邦应有的地位，照本宣科的剧情，一以贯之的演出和弃疗的角色处理。舞台上只有灯光找到的角色是在表演，其他人拟人就完事咯。
+
+真可惜花道领域大神的事迹没被拍出来，要不然也能看到路人对摩卡的天台幻想时间有点啥反应了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 24692#       发表于 2025-2-16 12:30
+
+<blockquote>是谁的书画 发表于 2025-2-16 12:29
+只是回归邦应有的地位，照本宣科的剧情，一以贯之的演出和弃疗的角色处理。舞台上只有灯光找到的角色是在表 ...</blockquote>
+武士道的水平就这点 mygo之所以中国成功是因为你只看到了包饺子的上半 没看到饺子馅漏了重包的下半
+
+*****
+
+####  Суслов  
+##### 24693#       发表于 2025-2-16 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438896&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-2-16 12:17</a>
+我看祥子就是灰原哀而圣人厨就是兰粉，你要是看微博小红书等兰粉扎堆的地方也会以为灰原哀不配活着的 ...</blockquote>
+还在灰原哀，要是灰原哀早期塑造和这20集的祥子一样，我愿意删除自己看过来自黑暗组织的女子的记忆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 24694#       发表于 2025-2-16 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438966&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-16 12:26</a>
+滑铁卢大可不必，在老钟摸不到的推特上，mujica最近几集基本上都是播出后马上热度第一，去年有这个能力的 ...</blockquote>
+只要你的起点够低，那么怎么走都是向上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo在海外的热度不就这样，不如说中华炮才是wsd始料未及的。不如猜猜公司在接下来的规划需不需要考虑第二市场，如果就现在依然杂鱼的表现真能打开欧美市场，那也只能祝福了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
