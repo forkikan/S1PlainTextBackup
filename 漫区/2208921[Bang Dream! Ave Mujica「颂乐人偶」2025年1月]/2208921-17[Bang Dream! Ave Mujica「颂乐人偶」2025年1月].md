@@ -10542,3 +10542,67 @@ C团成员并不是被魅惑了，只是在接触祥子的过程中觉醒了作�
 <img src="https://p.sda1.dev/22/bb5470782fb2ea7c99b2384413aa679b/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/b8fa2c7dc8b3611255f22a5f2c089189/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山ノ内花音  
+##### 24639#       发表于 2025-2-16 11:08
+
+大概率是抽到第十一集
+
+*****
+
+####  是谁的书画  
+##### 24640#       发表于 2025-2-16 11:09
+
+这个制作组做出来的这坨真的有什么“解读”的义务吗我请问了<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+要是喜欢讨厌五五开那还有汴京的空间，现在全国内互联网支持的有0.5成吗。那舆论不就是一边倒。
+
+mujica这现在就是没给人足够的安全感，场内场外全是烂完了的消息，那只能降低预期了，起码到时候还有资本说“我当年就说过这事”
+
+祥子就好比你职业队伍里有一个4保1的大c，资源拉满缺从对线期开始就被抽到五迷三道，被爆杀完了再给你看段纪录片对内怎么怎么不和，怎么怎么红温。
+
+下赛季说家人们我反省了，我错了，都是我的锅，队友保我保的真没问题。但是让人看到希望了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  看穿一切的鱼  
+##### 24641#       发表于 2025-2-16 11:10
+
+小祥肯定是看出来拍掉自己手的其实是睦了，所以第二天才不敢进<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wpcc  
+##### 24642#       发表于 2025-2-16 11:11
+
+<blockquote>是谁的书画 发表于 2025-2-16 11:09
+这个制作组做出来的这坨真的有什么“解读”的义务吗我请问了
+
+要是喜欢讨厌五五开那还有汴京的空间，现在全 ...</blockquote>
+第四集过了还不看剧透的有一个算一个都改弃坑
+
+*****
+
+####  thisisaspider  
+##### 24643#       发表于 2025-2-16 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438410&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 11:09</a>
+
+这个制作组做出来的这坨真的有什么“解读”的义务吗我请问了
+
+要是喜欢讨厌五五开那还有汴京的空间，现在全 ...</blockquote>
+臭看动画的有什么义务。风越大，鱼越贵<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Versedust  
+##### 24644#       发表于 2025-2-16 11:15
+
+这集过后还在洗的不是鉴赏力低下就是带点白月光情节<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">至于揪着说前几集车祥子为什么这几集就车编剧的，只能说还在戏中，没有跳出戏外
+
