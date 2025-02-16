@@ -14946,3 +14946,72 @@ Mujica第七集的结束后，武士道全员回到会议室，绫奈由仁子�
 
 一想到后面还要整活，还能有什么大活吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuwamoco  
+##### 25041#       发表于 2025-2-16 21:08
+
+睦这种三无角色就是一面镜子，通过她细微的变化去塑造和她对手戏的角色。
+
+*****
+
+####  南宮凝香  
+##### 25042#       发表于 2025-2-16 21:10
+
+<blockquote>未来起航 发表于 2025-2-16 20:50
+官方唯一核心cp不就灯祥么。其他cp台词都是些日常闲白，就灯对祥把能用到的日式抒情台词全用上了 ...</blockquote>
+這劇情就算賣燈祥也賣不出吧，
+
+燈的呼喊只打了一點血
+
+到最後拉回來的是靠爽世的強人鎖女
+
+燈只在別人打光血條後才給話本
+
+以賣CP 角度
+
+整套母雞卡就是路邊一條
+
+素莫賣了一話
+
+到下一季素世又不管莫了
+
+集跟集之間根本沒連貫性
+
+*****
+
+####  wpcc  
+##### 25043#       发表于 2025-2-16 21:11
+
+<blockquote>天空塔书记官 发表于 2025-2-16 20:55
+话说爱素的粉丝群体是以男性为主还是女性为主啊
+
+我经历过的比较完整的党争事件就是06fsn动画了，saber唯粉 ...</blockquote>
+男人会喜欢这种官方不承认的东西吗
+
+
+*****
+
+####  maritimus  
+##### 25044#       发表于 2025-2-16 21:12
+
+我还是很期待后面整啥的，感觉如果适当的放弃mujica中一些人的塑造，还是可以把剩下的人整好的。希望motis人格有个解释，大祥展现一点发展，初华假药成真<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 25045#       发表于 2025-2-16 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442387&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-16 21:07</a>
+
+一想到后面还要整活，还能有什么大活吗</blockquote>
+前几天我看到你楼有人吐槽传说中的剧透太变态了，然后就不提了，一下子感觉用那句话表达就是：有什么不开心的事快点说出来让大家开心开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然我是坚持不管多么变态，还是要亲眼目睹而不是寻找哪个舅舅的剧透，这样才叫“惊喜”jpg
+
+*****
+
+####  Versedust  
+##### 25046#       发表于 2025-2-16 21:14
+
+假药成真了初华厨第一个破大防<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">倒不如说现在还有初华厨吗
+
