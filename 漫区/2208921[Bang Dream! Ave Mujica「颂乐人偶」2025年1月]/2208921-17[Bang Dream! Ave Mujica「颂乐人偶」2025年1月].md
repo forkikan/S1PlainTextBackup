@@ -13372,3 +13372,73 @@ nm这才第七集<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 不过其实成人歌写给祥子也没啥吧，毕竟春日影也是写给c团的不照样是go团弹了，如果不是猫来晚了这歌是不是可能真就是go团排了）
 
+
+*****
+
+####  FanFun  
+##### 24885#       发表于 2025-2-16 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440833&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-16 17:29</a>
+
+编剧想用哭笑表达的应该是怀念并告别过去的美好，这也不止素世一个人在哭笑。
+
+但是确实不妨碍这段烂到家 ...</blockquote>
+自白里说“曾相信这是命运”  “这只是普通的乐团“就是在给C团祛魅
+
+*****
+
+####  白色有角  
+##### 24886#       发表于 2025-2-16 17:35
+
+Go团现在应该也才成立两三个月左右？其实产出还挺高的仔细算算，碧天伴走诗超绊迷路日迷星叫轮符雨（？）
+
+我觉得车灯给祥子写歌是不顾go团的行为，有点太情绪化了）
+
+*****
+
+####  550616  
+##### 24887#       发表于 2025-2-16 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440774&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 17:20</a>
+
+还是我们二次元RAS令人安心，
+
+因为早就没人关注了</blockquote>
+RAS就是怪胎产物
+
+现实也不太行了
+
+7000人场次切起来也困难
+
+*****
+
+####  links8018  
+##### 24888#       发表于 2025-2-16 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440682&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 17:07</a>
+
+我也是V圈老观众了，但就这能闹到墙外去也是真没见过
+
+nm这才第七集</blockquote>
+v圈当时holo闹得比这个动静大不少吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凉良  
+##### 24889#       发表于 2025-2-16 17:41
+
+这次确实闹得特别大 感觉已经不是所谓轻度观众破防了 而是圈外来借机车人了。
+
+*****
+
+####  maritimus  
+##### 24890#       发表于 2025-2-16 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440844&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-16 17:31</a>
+
+牢祥能出7集被车7集就是因为心理描写0，编剧不会给你写的</blockquote>
+啊其实我想表达的就是春日影那段心声烂透了，属于编剧无能：没法包好c团解散祥睦和解饺子的同时，不让人误会c团复辟。所以不得不让角色自己说c团已经是过去式了。
+
+编剧在祥子身上给的篇幅很多，对她的心理表达的还比较清晰，我感觉祥子的心理可以理解，甚至有些感同身受。但是可能给的篇幅太多了，mujica其他人的剧情很难安排
+

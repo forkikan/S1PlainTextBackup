@@ -473,3 +473,36 @@ https://m.bilibili.com/opus/1033632735051120642
 
 考据佬的脑回路竟跟FGO编剧如此同步，惊了。
 
+
+*****
+
+####  廖化  
+##### 16319#       发表于 2025-2-16 17:37
+
+……等等，我给观音菩萨送情人节巧克力？？？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 16320#       发表于 2025-2-16 17:42
+
+我辣个艹
+
+观音出来干啥<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 16321#       发表于 2025-2-16 17:44
+
+ 本帖最后由 シャル 于 2025-2-16 17:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440825&amp;ptid=2084912" target="_blank">quanlix 发表于 2025-2-16 17:28</a>
+
+这啥啊就把观音给缝进去了？
+
+—— 来自 S1Fun</blockquote>
+小野小町是千手观音的化身吧
+
+这波是观音开小号自己跳出来了
+
