@@ -10109,3 +10109,124 @@ mujica开局觉得祥子吊炸天&gt;失望
 
 说白了有时间和睦过家家了，放以前大祥还要去当客服呢。
 
+
+*****
+
+####  zhzij111  
+##### 24599#       发表于 2025-2-16 10:07
+
+ 本帖最后由 zhzij111 于 2025-2-16 10:11 编辑 
+
+小祥心机得很，啥都知道，但之前忙事业懒得处理，现在事业烂完有时间了随便操作一下舔狗就都回来了，全剧唯一翻车点就是不知道第一舔狗是个精神病
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 24600#       发表于 2025-2-16 10:08
+
+小祥还故意无视墨缇丝 把墨缇丝弄自闭了
+
+
+*****
+
+####  千千千千鸟  
+##### 24601#       发表于 2025-2-16 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437962&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 09:56</a>
+
+睦门立雪不就是让对方知道自己知错了，你说卖惨也行，惩罚自己也行，对方没原谅那肯定不能前功尽弃。
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾ACC  
+##### 24602#       发表于 2025-2-16 10:09
+
+说实话挺没意思的。以前漏油还能讨论剧情走向，聊聊假药，娱乐，剧情，角色，人人都有光明的未来。
+
+现在呢？攻击角色，攻击编剧，攻击监督，互相攻击。连攻击得到不到位，都能用作细细品味的材料。
+
+唉，真得吃点好的吧。
+
+*****
+
+####  南宮凝香  
+##### 24603#       发表于 2025-2-16 10:10
+
+飽暖思淫欲
+
+回到大House 了，有時間就想拿回小右
+
+大象三遷現在看來也是沒用劇情
+
+還不如就讓她留在大House 但是去打工接濟中登算了
+
+*****
+
+####  江口夕  
+##### 24604#       发表于 2025-2-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437977&amp;ptid=2208921" target="_blank">晓色暮云 发表于 2025-2-16 09:58</a>
+那不是特意让木看到嘛，还特意站木窗户下，章鱼的小心机要是以前也有就好咯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里就不得不谈学校音乐室窗户能看到灯捡石子，同样的伎俩罢了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  wpcc  
+##### 24605#       发表于 2025-2-16 10:11
+
+所有不认可四团并行的都是违逆武士道的 所以手游能不能抽mana？
+
+
+*****
+
+####  山ノ内花音  
+##### 24606#       发表于 2025-2-16 10:12
+
+小祥还是太大小姐了 
+没有爬墙那种野性
+也有可能是因为被睦推开了 自信没了
+
+*****
+
+####  thisisaspider  
+##### 24607#       发表于 2025-2-16 10:14
+
+现在什么理论？祥子 不懂人心 -&gt; 人精 (new!)
+
+只能说人类确实是个"多首的怪物"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过心机祥子也不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24608#       发表于 2025-2-16 10:15
+
+你因为爱音是工具人破防 完全没必要 这个神人队伍总得来个正常人护士呀
+
+*****
+
+####  thisisaspider  
+##### 24609#       发表于 2025-2-16 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438031&amp;ptid=2208921" target="_blank">艾ACC 发表于 2025-2-16 10:09</a>
+
+说实话挺没意思的。以前漏油还能讨论剧情走向，聊聊假药，娱乐，剧情，角色，人人都有光明的未来。
+
+现在呢 ...</blockquote>
+所以楼友想看分析吗。第7集不是不能找细节分析，但从第5集开始，感觉怎么分析都像是给制作组找借口。有点不太体面，不想做。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 24610#       发表于 2025-2-16 10:17
+
+在阿b评论区看到小鬼攻击高松灯有艾滋，我就知道这部番的社群评论氛围已经彻底扭曲了
+
