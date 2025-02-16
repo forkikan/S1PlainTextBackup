@@ -2679,3 +2679,20 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plok201  
+##### 290#       发表于 2025-2-16 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437819&amp;ptid=2210352" target="_blank">洁西卡 发表于 2025-2-16 09:19</a>
+
+这游戏到底玩啥，共斗吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+就共斗闯关，大概看兄弟法环MOD太火了，想赚多一笔钱，刚好也用来测试一下制作组内部一些头脑风暴
+
+反正烂了也好甩锅
+
+其实按他缝了吃鸡玩法来看，本来可能是有100人吃鸡PVP部分的，发现自己没那个网络实力删了吧，谁知道服务器看着还是药丸
+
