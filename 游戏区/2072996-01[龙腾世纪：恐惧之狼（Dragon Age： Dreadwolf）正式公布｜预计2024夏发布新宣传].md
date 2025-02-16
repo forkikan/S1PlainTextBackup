@@ -1,0 +1,16 @@
+﻿
+*****
+
+####  xjtxp  
+##### 1250#       发表于 2025-2-16 21:01
+
+按DG的说法，那个DAI卖了1200万份说法真实性或许存疑？
+
+DG说他们并不很清楚游戏销量，EA告诉他们的不多，他似乎暗示DAI可能存在夸大销量情况——虽然我觉得应该不至于生造销量，如果达拉所说的DAI卖了1200万份真有夸大，那大概也是把退款的免费赠送的等全算上的统计学手法。
+
+以及虽然早就从生软离职的他，大概是出于交情与对dei等立场的问题（他真是gay)一直给DATV编剧及总监辩护的起劲，但他还是（起码10天前）没玩DATV<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，看来是没到为了这些事自虐的地步 
+
+<img src="https://pic2.zhimg.com/v2-5090b7f6ab26d1a00a20a1ad1146ce41_r.jpg" referrerpolicy="no-referrer">
+
+<img src="https://pic3.zhimg.com/v2-4c8fb0e6dfa262c4f9b003878197a900_r.jpg" referrerpolicy="no-referrer">
+

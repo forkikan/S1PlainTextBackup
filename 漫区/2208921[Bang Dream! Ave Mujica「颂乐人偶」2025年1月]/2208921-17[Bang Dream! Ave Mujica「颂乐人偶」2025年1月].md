@@ -14891,3 +14891,58 @@ Mujica第七集的结束后，武士道全员回到会议室，绫奈由仁子�
 排老二的叫苏修，老三叫欧盟，红蓝热度差一点</blockquote>
 啊？原来番茄炒蛋人气那么高吗？因为那个终极丧的学姐自杀线外传吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  非建政专用号  
+##### 25035#       发表于 2025-2-16 21:01
+
+大莫老师应该还得出来几集吧，不然初海喵视角就是神人队友突发恶疾弹不了吉他，过了一个多月又好了，这还包个p寿司，总不能一发病就靠祥爷的带手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 25036#       发表于 2025-2-16 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442313&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-16 20:56</a>
+话说可能是我印象不准确，灯和立希虽然也有过于明显性格表现，但是她们对其他人物也会有明显的反应，而无论 ...</blockquote>
+有时候就会显得睦作为一个角色，工具属性过强已显得过于好用（贬义 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hysjmr  
+##### 25037#       发表于 2025-2-16 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442317&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 20:56</a>
+ 啊？原来番茄炒蛋人气那么高吗？因为那个终极丧的学姐自杀线外传吗？</blockquote>
+不是，你没看懂我的解释，这是按国家实力（未更新）排名排的，不是按国旗颜色搞对应。圆焰是魔圆人气第一CP，所以它是实力第一的美帝。
+
+*****
+
+####  厄神之息  
+##### 25038#       发表于 2025-2-16 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442373&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 21:04</a>
+
+不是，你没看懂我的解释，这是按国家实力（未更新）排名排的，不是按国旗颜色搞对应。圆焰是魔圆人气第一 ...</blockquote>
+这下明白了。。。
+
+*****
+
+####  ape-apple  
+##### 25039#       发表于 2025-2-16 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442317&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 20:56</a>
+啊？原来番茄炒蛋人气那么高吗？因为那个终极丧的学姐自杀线外传吗？</blockquote>
+红黄人气还行，但是也没到前二，第一圆焰第二红蓝很稳定
+
+*****
+
+####  十万年魂环  
+##### 25040#       发表于 2025-2-16 21:07
+
+一想到后面还要整活，还能有什么大活吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
