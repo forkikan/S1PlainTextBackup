@@ -101,3 +101,52 @@ go的人物关系性爆炸了是主要原因，live唱的跟史一样是次要�
 因为第七集证明了前六集的烂是真的烂，人物塑造拉夸是真的拉夸，逻辑混乱是真的混乱，纯炒作是真的只剩下炒 ...</blockquote>
 基于假药（和二创）的乐观预期管理被打碎了
 
+
+*****
+
+####  天空塔书记官  
+##### 25170#       发表于 2025-2-17 00:17
+
+如果有岛国友人来发假药就好了
+
+毕竟老中人只会做“中药”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 25171#       发表于 2025-2-17 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443832&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-17 00:12</a>
+https://www.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67443448
+
+这是 ...</blockquote>
+你的观点我是同意的，mygo的存在意义就是让其中的成员相互扶持成长。
+但是作为一个终将面对且心照不宣的存在，这件事的出现终将导致mygo中一些成员对于未来发展的重新审视。
+以我的观点，如果将ccc彻底的结束，将这根弦彻底断掉，一定会牵动观众审视下mygo的一些基石。这是需要进行快速填补的。
+ccc的结束是必须也必然会发生的，但是最好不是现在，也最好最好别发生在祥子为主的故事里。
+
+
+*****
+
+####  烂片雷达  
+##### 25172#       发表于 2025-2-17 00:23
+
+我记得欧美不是很雷近亲cp，要是剧透是真的是不是很多人要破防了，鬼佬也要有自己的莉可丽丝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 25173#       发表于 2025-2-17 00:25
+
+确实第五集国内外就分差巨大。
+第五集国外觉得祥子是付出代价国内觉得是实锤大小姐过家家罪加一等
+
+*****
+
+####  blackeryuri2  
+##### 25174#       发表于 2025-2-17 00:26
+
+ccc和解别放在中途，别让老c团成员中途出场救祥子然后和解，直接放在最后，祥子成长为完全体后主动道歉说出真相，增加中途祥子自己的能动性，同时增加和解时的释然感，狗团鸡团各自安好
+
