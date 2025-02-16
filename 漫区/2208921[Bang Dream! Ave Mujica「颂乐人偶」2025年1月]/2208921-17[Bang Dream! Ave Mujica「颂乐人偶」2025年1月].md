@@ -14154,3 +14154,65 @@ ylg太多了 不懂真正的百合是什么
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 赢粉是真有的，特别是抽象/电竞/管人痴等杂交出来的人，顺风赢和踩头，逆风发泄排解情绪是刚需。
 
+
+*****
+
+####  怀沙汨罗  
+##### 24959#       发表于 2025-2-16 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441534&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-16 19:10</a>
+真没有赢不赢吗，倒不如说正是因为非高门槛非高投资，反而是很容易就能获得“赢”这种情绪的途径吧 ...</blockquote>
+赢感从何而来？热度还是质量呢？动画又不像体育队伍有稳定的群体组织，怎么形成情绪认同呢？我不太能理解<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  怀沙汨罗  
+##### 24960#       发表于 2025-2-16 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441549&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-16 19:12</a>
+赢粉是真有的，特别是抽象/电竞/管人痴等杂交出来的人，顺风赢和踩头，逆风发泄排解情绪是刚需。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画的顺风指的是什么状态啊？要踩头也得有个对象吧？我看更多的只是到处刷梗和发表情包而已吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  厄神之息  
+##### 24961#       发表于 2025-2-16 19:18
+
+电竞粉爱音是假的，爱赢那是实打实的，别觉得看动画没有输赢，那是幸好双城之战2烂掉了，要是双城2成了，你们现在看到的就不是什么农厨战邦孝这种小意思了，就是“高等欧美动画双城2大战低劣日本3d木柜子”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 24962#       发表于 2025-2-16 19:23
+
+ 本帖最后由 是谁的书画 于 2025-2-16 19:24 编辑 
+
+这本就无可厚非，互联网上没人喜欢天天输输输，绝大部分人都喜欢站强势的一方打顺风团啊。这有啥独醒的必要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+关键是以前这些人冲人，那是真能冲到改啊。只是面对日本人可能就是另外一回事了。
+
+*****
+
+####  hysjmr  
+##### 24963#       发表于 2025-2-16 19:23
+
+你楼有些人就是旧话术复读而已，以前用偷来的电竞圈话术把自己说爽了，这次不过是路径依赖。
+mygo的人物塑造就是能引起当代⏰网民共鸣的，连这么基础的事都看不明白属于是小圈子泡多真把自己当非人类了
+
+*****
+
+####  Renes  
+##### 24964#       发表于 2025-2-16 19:23
+
+ 本帖最后由 Renes 于 2025-2-16 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441274&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-16 18:34</a>
+
+我感觉22年之后，极其看重百合cp的声音在宅圈开始放大化，导致很多片如果带有点百合元素，很容易一群人一 ...</blockquote>
+其实就是22年蒜和水魔吧，也是泥潭百综楼存在感开始强烈的时候，之前不管是刀马旦还是轻拍还是邦邦最开始的动画，嗑百合的人都是小众的小众，但恰恰这几个里面有不少都是长线企划，企划运营，扩圈，河豚不挑食，然后被大热番剧点爆，就像以前的战吧更像是宅男贴吧是长颈鹿贴吧，但现在的战吧毫无疑问是河豚贴吧一样。而且河豚里成分比单纯看动画的要复杂很多，只过分注重人物关系的话，思想很容易变得极端，再加上几个长期百合企划明显的染上了粉圈恶臭。
+
