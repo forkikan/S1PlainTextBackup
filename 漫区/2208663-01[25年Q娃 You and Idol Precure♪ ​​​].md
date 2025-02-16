@@ -2697,3 +2697,13 @@ wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/imag
 命运的相遇（应该不会有 nana 在粉主和小紫之间，考虑选择哪一个，痛苦抉择的剧情吧     ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有人在幻想蓝紫的
 
+
+*****
+
+####  maoyou  
+##### 516#       发表于 2025-2-16 17:02
+
+这个男人一出来小蓝的挺好颜就有画面了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -13006,3 +13006,127 @@ B站评分6.6了挺变态的，只能说情绪上来了真是挡也挡不住啊
 
 哪怕作为祥厨，我也觉得就集中火力在小祥塑造歪上就行了吧，别的角色真的只是连锁反应不要被牵连了。最多加一个双重人格傻逼设定毁故事和大喵犯错无代价惹人厌上吧
 
+
+*****
+
+####  cxj649  
+##### 24852#       发表于 2025-2-16 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440576&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-16 16:53</a>
+
+现在看黑刀之夜前期的处理方式真没啥问题灯坐地上负责卖惨，最好是无声痛哭，哭得祥子心里发毛。rikki负 ...</blockquote>
+现在第7集也说几次睦头人全责啊233
+
+*****
+
+####  天空塔书记官  
+##### 24853#       发表于 2025-2-16 16:57
+
+疯了，全tm疯了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 24854#       发表于 2025-2-16 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440581&amp;ptid=2208921" target="_blank">千千千千鸟 发表于 2025-2-16 16:53</a>
+
+立希祥堕，是没什么问题，因为问题在小祥本身塑造上。整个mygo的情节不就建立在几个人想着C团想着小祥，所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑祥形态塑造一直用力过猛了233
+
+现在切成白祥形态后，观众有种 你谁啊
+
+*****
+
+####  是谁的书画  
+##### 24855#       发表于 2025-2-16 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440576&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-16 16:53</a>
+
+现在看黑刀之夜前期的处理方式真没啥问题灯坐地上负责卖惨，最好是无声痛哭，哭得祥子心里发毛。rikki负 ...</blockquote>
+我感觉soyo话有点密了是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抢答太多让祥子不好发挥也下不了台了
+
+*****
+
+####  thisisaspider  
+##### 24856#       发表于 2025-2-16 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440576&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-16 16:53</a>
+
+现在看黑刀之夜前期的处理方式真没啥问题灯坐地上负责卖惨，最好是无声痛哭，哭得祥子心里发毛。rikki负 ...</blockquote>
+那是谁问的小睦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 24857#       发表于 2025-2-16 16:58
+
+<blockquote>wzm96816 发表于 2025-2-16 16:51
+关于环境问题，当年10集诗超绊后我当时就说不要太假药二创入脑了， 前几个月这个楼里我反复说这话。但没 ...</blockquote>
+我在mujica动画播放期间都看到过不少疑问祥子为何组mujica的讨论。想要逃避终结crychic的痛苦，这个事情还要借角色之口说出来吗。
+
+*****
+
+####  xyion  
+##### 24858#       发表于 2025-2-16 16:59
+
+B站评分最有趣的还是打分人数，4w人实在太多了，越来越期待场外好戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  看穿一切的鱼  
+##### 24859#       发表于 2025-2-16 17:01
+
+黑刀之夜大祥刚从警局出来正上头呢，这局就没法打必散的。
+
+倒是她后面哭的时候上去抱上去一起哭可能有点说法，但是soyo没有追上去，小睦选择了凝视。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一年后soyo还想复辟确实是太晚了，趁着热乎还能拿下祥老师。
+
+*****
+
+####  天空塔书记官  
+##### 24860#       发表于 2025-2-16 17:01
+
+我这辈子都没想过就因为看个动画，就能搞出这么多事，畏惧了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  borrowface  
+##### 24861#       发表于 2025-2-16 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440557&amp;ptid=2208921" target="_blank">wzm96816 发表于 2025-2-16 16:51</a>
+
+关于环境问题，当年10集诗超绊后我当时就说不要太假药二创入脑了， 前几个月这个楼里我反复说这话。但没 ...</blockquote>
+但是mujica第一集，还有手游里“烦恼的作业”卡面剧情确实就是按照欢喜冤家这个路数去描写爱音还有soyo的关系的。
+
+*****
+
+####  厄神之息  
+##### 24862#       发表于 2025-2-16 17:02
+
+说句犯忌讳的现在车的最多的“你给她回电话！你怎么不回？”在我看反倒是比不怎么毁人设的描写。
+
+立希一直都是鸡狗十人里脸皮第二薄的人，仅次于祥子。之前狗里给爱音道歉夸爱音努力也是扭扭捏捏，夸完人还不忘补一句“那也是应该的”来遮掩。他作为实际队长昨天才说完“都给我好好干活别想那俩人了！”结果第二天自己登门还耽误训练了，让她回她肯定面子磨不开。所以她会让素世给她回帮她挽下尊。
+
+而素世就更不用说了，首先她对立希这边，基本官方创作显示的都是有机会就会戳对方软肋，嘴对方一下，看对面尴尬会暗爽嘲笑一下的损友形象。属于看到对方会很默契的同时给对方比出朝下大拇指级的损友。那有现在这种好机会你让她不趁机戳立希一下那是不可能的。至于爱音素世，那我早说过了她俩应该是真的没有关系很好很有灵魂链接。素世在官方剧情里对爱音品味表达的嫌弃，嘴她不把心思放正地方那都不是一次两次了。不回消息真的没有很异常。
+
+但是在台上发自内心的笑和看灯给祥子写歌笑的如此放肆这点，多少是有点变态的。武士道能这么写属实是神人了
+
+*****
+
+####  plok201  
+##### 24863#       发表于 2025-2-16 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440557&amp;ptid=2208921" target="_blank">wzm96816 发表于 2025-2-16 16:51</a>
+
+关于环境问题，当年10集诗超绊后我当时就说不要太假药二创入脑了， 前几个月这个楼里我反复说这话。但没 ...</blockquote>
+假药毕竟还是想看到一个有魅力的人，而不是现在这个陀螺年糕
+
+现在一创的大祥老师比那种劣质二创还要无聊
+
