@@ -10230,3 +10230,120 @@ mujica开局觉得祥子吊炸天&gt;失望
 
 在阿b评论区看到小鬼攻击高松灯有艾滋，我就知道这部番的社群评论氛围已经彻底扭曲了
 
+
+*****
+
+####  zhzij111  
+##### 24611#       发表于 2025-2-16 10:18
+
+ 本帖最后由 zhzij111 于 2025-2-16 10:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438062&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-16 10:14</a>
+现在什么理论？祥子 不懂人心 -&gt; 人精 (new!)
+
+只能说人类确实是个"多首的怪物"</blockquote>
+被按在地上雷普洗白之后就突然啥都懂了，还把她当个人而不是编剧包饺子工具人的话不就只能是之前懒得搭理舔狗，演出来确实也是舔狗不用呵护，想要的时候招一下手就回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  晓色暮云  
+##### 24612#       发表于 2025-2-16 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438080&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-16 10:17</a>
+
+在阿b评论区看到小鬼攻击高松灯有艾滋，我就知道这部番的社群评论氛围已经彻底扭曲了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">呃呃有点变态了，今天还看到牛大主播的嘴臭也挺恶心的
+
+*****
+
+####  wpcc  
+##### 24613#       发表于 2025-2-16 10:19
+
+<blockquote>单脚着地 发表于 2025-2-16 10:17
+在阿b评论区看到小鬼攻击高松灯有艾滋，我就知道这部番的社群评论氛围已经彻底扭曲了 ...</blockquote>
+没事这群人本身就不给武士道送钱 只要核心现地民能接受四个团就都不是问题
+
+*****
+
+####  wpcc  
+##### 24614#       发表于 2025-2-16 10:20
+
+<blockquote>zhzij111 发表于 2025-2-16 10:18
+被按在地上雷普洗白之后就突然啥都懂了，还把她当个人的话不就只能是之前懒得搭理舔狗，演出来确实也是舔 ...</blockquote>
+人性自走冰封印解除乱杀
+
+*****
+
+####  ryuusu  
+##### 24615#       发表于 2025-2-16 10:21
+
+其实7话live柿本操作能找补，可以说日本人吃这套是因为习惯看歌手小偶像跑调翻车了有真实感，但没想到这边听录音棚音源多容忍度低
+
+*****
+
+####  艾ACC  
+##### 24616#       发表于 2025-2-16 10:22
+
+<blockquote>thisisaspider 发表于 2025-2-16 10:17
+所以楼友想看分析吗。第7集不是不能找细节分析，但从第5集开始，感觉怎么分析都像是给制作组找借口。有点 ...</blockquote>
+有这个心就很好了。挺没必要。
+
+*****
+
+####  thisisaspider  
+##### 24617#       发表于 2025-2-16 10:24
+
+之前不是初华的卡片是 编制谎言吗 其他人是什么忘记了 有楼友给我发一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 24618#       发表于 2025-2-16 10:25
+
+ 本帖最后由 南宮凝香 于 2025-2-16 10:28 编辑 
+<blockquote>wpcc 发表于 2025-2-16 10:19
+没事这群人本身就不给武士道送钱 只要核心现地民能接受四个团就都不是问题 ...</blockquote>
+
+如果WSD 只要核心現地民，
+
+那就不用搞一套那麼多宣發的動畫了…….
+
+明顯是想擴圈但滑鐵盧
+
+也許不影響爆米， 但企劃明顯達不到目的
+
+我要是給老板一個廣告企劃，
+
+結果在第二大市場的路人口碑爆死
+
+我跟他說不要緊， 核心受眾還沒跑
+
+我老闆一個啤酒罐就飛向我臉了
+
+*****
+
+####  千千千千鸟  
+##### 24619#       发表于 2025-2-16 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438062&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-16 10:14</a>
+
+现在什么理论？祥子 不懂人心 -&gt; 人精 (new!)
+
+只能说人类确实是个"多首的怪物"</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">因为说白了小祥就是mygo+mujica这两个片的核心，丰川祥子崩了两个团都崩了，只要小祥不是个废人，观感多少都是有所保证的，所以哪怕是在假药里基本也不会让小祥变成废人吧
+
+*****
+
+####  wpcc  
+##### 24620#       发表于 2025-2-16 10:27
+
+<blockquote>南宮凝香 发表于 2025-2-16 10:25
+如果WSD 只要核心現地民，
+
+那就不用搞一套那麼多宣發的動畫了…….
+
+</blockquote>
+动画热度只要数字不要口碑的 核心还是能接受企划所有内容的人留下来爆米 动画只是广告 核心是中人
+
