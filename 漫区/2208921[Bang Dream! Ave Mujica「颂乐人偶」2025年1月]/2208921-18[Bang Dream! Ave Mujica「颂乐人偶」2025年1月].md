@@ -350,3 +350,84 @@ c团现在在老中这边就是一坨💩，谁沾上都没救。大结局还搞
 假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
 最后真的来CSGO春日影的话，那星团2和闪耀色彩得给母鸡卡送锦旗了<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 25192#       发表于 2025-2-17 00:48
+
+<blockquote>白水潭的饿鬼 发表于 2025-2-17 00:37
+假设后面的剧情，就按主流剧透猜，木箱尝试重组c团被拒，得知c团已无可能重建，然后13话11人四团大饺子，巅 ...</blockquote>
+其实我的理解所谓的重建ccc在第七集就结束了，a团三路人要跑步进场了，下集更可靠的说法是初华看ccc的社媒跟爱音联系上了，对应爱音声优说有一集只有她跟a团人录她只能贴着节约宝
+
+*****
+
+####  thisisaspider  
+##### 25193#       发表于 2025-2-17 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444030&amp;ptid=2208921" target="_blank">blackeryuri2 发表于 2025-2-17 00:45</a>
+
+老实说这个疑似“剧透”一直让我很奇怪，第七集祥子明明自己心里说了c团“已经结束了”，后面为什么要重 ...</blockquote>
+按现在祥子为了睦什么都肯做来说，只要睦有一点想组乐队的理由。
+
+祥子极大概率主动出击，无论睦是否是想复活C团。但对祥子来说，首选肯定找C团成员。
+
+非常顺利的逻辑。然后被拒后，就更有理由重组A团了。
+
+但现在的演出水平是否会导致评分再降很难说。
+
+*****
+
+####  天空塔书记官  
+##### 25194#       发表于 2025-2-17 00:51
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 00:52 编辑 
+
+按个人的想法就是CCC是祥子的过去，她只是逃离了但没有结束，否定过去就是否定现在，也无法迈向未来，所以要想让祥子成长就必须直面春日影，直面过去的自己，“结束”或者“延续”C团就会是必然的选择
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 25195#       发表于 2025-2-17 00:52
+
+初华在一联络本里的人里找了个既不直接涉及却参与其中还大嘴巴子的唐人也挺心机的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白水潭的饿鬼  
+##### 25196#       发表于 2025-2-17 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444045&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 00:48</a>
+其实我的理解所谓的重建ccc在第七集就结束了，a团三路人要跑步进场了，下集更可靠的说法是初华看ccc的社 ...</blockquote>
+也可能鸡团2集完成重建，第9集鸡团或10集live, 重建后初华爆炸，12集前解决初华，13集对bang 4团都有歌，终极大饺子，然后现实live 复刻13集live <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Skymoon  
+##### 25197#       发表于 2025-2-17 00:55
+
+我总感觉复辟c团然后被拒失败这一点不太对，因为场外wsd在狂炒c团，又是tft又是上台演出的，说明c团总会以一种朦胧的形式存在，照这样推理，wsd不太可能会在接下来的集数中又完全将c团否定掉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 25198#       发表于 2025-2-17 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443843&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 00:14</a>
+
+假药分两种，娱乐性和预测性
+
+预测性假药入脑肯定会破防，因为假药比官方逻辑还严密，人物塑造比官方还合理
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">娱乐假药成真我立刻给一万分好吧，赶紧把初华定义成格温蛛日本分蛛，后面5集给我狠狠的演初华蛛打日本金并丰川定治，最后藏不住了向伙伴们吐露真相，自己其实是别的时空穿越过来的！大伙纷纷表示理解随后母鸡卡！！！集结！她一边开着蜘蛛机甲在天上演坂本马戏，后边鸡狗9人组成瓦尔基里给她唱歌加buff。最后在歌声与火光中打败定治，告别这个时空的祥子和大家，回到自己的时空，回到了玛丽祥子刚给自己打电话要忘记一切的时候，旁白告诉你的邻家好妹妹初华帕克的故事才刚刚开始，镜头拉远。结尾给你个彩蛋，告诉你母鸡卡已并入漫威宇宙，后续初华本宇宙的母鸡卡故事电影三部曲正锐意制作中！敬请期待！
+
+这样的未来请速速端上来吧！我什么都会做的！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

@@ -4330,3 +4330,17 @@ aiai这状态真无敌了。爽死了。
 看了这抽象第7集之后甚至去下了游戏玩玩海星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 倒是为啥国际服只有英文，好歹给个日语呢
 
+
+*****
+
+####  一心而用  
+##### 26966#       发表于 2025-2-17 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442432&amp;ptid=2159415" target="_blank">聊nsy专用号 发表于 2025-2-16 21:14</a>
+茜情人节live记录
+
+鼓手开live好啊 好就好在啥也看不见
+
+开场是茜鼓solo然后吉他弹唱，新曲印象操作感觉有点 ...</blockquote>
+<img src="https://p.sda1.dev/22/f3bb6319b6ffeaea5aa615553d2c11ee/image.jpg" referrerpolicy="no-referrer">
+
