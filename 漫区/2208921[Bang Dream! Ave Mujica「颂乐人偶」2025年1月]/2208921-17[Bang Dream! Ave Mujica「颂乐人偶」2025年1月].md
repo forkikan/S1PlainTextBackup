@@ -11856,3 +11856,56 @@ mujica在开播之前，这栋楼就已经聊了140层，往前翻的话很多�
 
 只是我确实没想到最后大爆炸引发的结果是农厨要砸家当掀屋顶，在我看爱音受委屈的问题属于最不重要最不起眼的那一部分了，最大的问题还是剧情结构分配出了大毛病，转折生硬的问题，但是nobodycare~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  柴突猛进  
+##### 24758#       发表于 2025-2-16 14:58
+
+因为帮爱音说话（不是指爱音厨）是当下除了车编剧车武士道的最能让路人共情和发泄不满情绪的行为，所以就会看到突然多出了好多帮爱音说话的人
+syl同样化身【极端爱音厨】开始无限滑坡也是能收货最多小红点的行为<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sauron.j  
+##### 24759#       发表于 2025-2-16 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439809&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 14:53</a>
+
+确实不是第七集才烂的，但是之前是每集都只有一点烂，几个kol和核心粉还可以一边眼看着火药桶不断加火药的 ...</blockquote>
+第7集反映了一个可怕的现象：主创没有对角色的爱
+
+这个人物是什么性格、说这句话的时候究竟在想什么、接下来会做哪些反应，一概没有
+
+*****
+
+####  江口夕  
+##### 24760#       发表于 2025-2-16 15:00
+
+ 本帖最后由 江口夕 于 2025-2-16 15:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得爱音受委屈不是应该集火素世。冤有头债有主，人是素世拖过去的，上一季最后素世都明着说不会忘记crychic。既然滑坡就滑到底，扔臭鸡蛋
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  柴突猛进  
+##### 24761#       发表于 2025-2-16 15:02
+
+今天看完泛式锐评我也发现一个之前自己没注意到的点，就是母鸡卡连live这个支撑位都没有了，我就会担忧从这一集之后所有的live，都可能会充满编剧的傲慢，都可能被编剧以各种稀奇古怪的方式做成一坨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 24762#       发表于 2025-2-16 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439843&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:00</a>
+觉得爱音受委屈不是应该集火素世。冤有头债有主，人是素世拖过去的，上一季最后素世都明着说不会忘记crychi ...</blockquote>
+你是真不知道现在爽世在一些地方的风评还是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
