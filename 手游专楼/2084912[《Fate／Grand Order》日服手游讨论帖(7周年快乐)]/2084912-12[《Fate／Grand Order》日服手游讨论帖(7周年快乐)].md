@@ -826,3 +826,11 @@ https://m.bilibili.com/opus/1033632735051120642
 这个看你打算问日本的哪一派佛教了</blockquote>
 搞不好有的寺庙还会跟FGO联动，在门口摆小町三破的牌子，吸引年轻人过来打卡烧香<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ghostdio  
+##### 16352#       发表于 2025-2-17 03:04
+
+秀吉有经验值在琥珀ace的版本，fgo目前战国从者也大多是咕哒咕哒系，真落地按那个版本来的话倒是和西游猴子没啥关系。
+
