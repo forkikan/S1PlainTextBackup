@@ -2664,3 +2664,17 @@ Q娃内斗还不容易吗
 
 — from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  leleq  
+##### 513#       发表于 2025-2-16 15:53
+
+她好美<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+本集浓度比预想的要低把nana的变q娃的理由拆成了姐妹两个，应该是故意降低浓度的。
+
+wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+然后nana这性格确实后面没点花的很可能影薄。
+
