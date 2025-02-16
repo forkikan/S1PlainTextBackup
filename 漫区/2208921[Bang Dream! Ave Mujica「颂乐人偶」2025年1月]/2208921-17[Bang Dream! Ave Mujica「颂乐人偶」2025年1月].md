@@ -13320,3 +13320,55 @@ nm这才第七集<img src="https://static.saraba1st.com/image/smiley/face2017/00
 还是可以洗一下的，爽世的设定就是在go团才能做自己，爱啥表情就啥表情，在外面包括c团全是温柔微笑的虚 ...</blockquote>
 笑是可以装出来的，哭也许也可以，但是哭着笑出来，那是绝对装不了的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  柯哀lv王道  
+##### 24880#       发表于 2025-2-16 17:25
+
+素的那个大笑我还以为是因为立希嘴其他人不专心练习夸灯专心写歌词，结果写出来的是ccc的歌词，我看到那里给我也整笑了.....
+
+
+*****
+
+####  maritimus  
+##### 24881#       发表于 2025-2-16 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440793&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 17:23</a>
+
+笑是可以装出来的，哭也许也可以，但是哭着笑出来，那是绝对装不了的。 ...</blockquote>
+编剧想用哭笑表达的应该是怀念并告别过去的美好，这也不止素世一个人在哭笑。
+
+但是确实不妨碍这段烂到家了，编剧必须让角色把告别的心理说出来，不然百分百理解成大家想重建c团<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  看穿一切的鱼  
+##### 24882#       发表于 2025-2-16 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440833&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-16 17:29</a>
+
+编剧想用哭笑表达的应该是怀念并告别过去的美好，这也不止素世一个人在哭笑。
+
+但是确实不妨碍这段烂到家 ...</blockquote>
+牢祥能出7集被车7集就是因为心理描写0，编剧不会给你写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 24883#       发表于 2025-2-16 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我是今年才看的mujica，mygo还是过年前补的，看到你们这些情况，完全搞不懂，大概是药吃少了吧
+
+*****
+
+####  白色有角  
+##### 24884#       发表于 2025-2-16 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440800&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-16 04:25</a>
+素的那个大笑我还以为是因为立希嘴其他人不专心练习夸灯专心写歌词，结果写出来的是ccc的歌词，我看到那里 ...</blockquote>
+说来之前立希是不是提过谱曲不顺利可能赶不上下次live来着？这里她需要谱的是啥的曲啊？
+
+不过其实成人歌写给祥子也没啥吧，毕竟春日影也是写给c团的不照样是go团弹了，如果不是猫来晚了这歌是不是可能真就是go团排了）
+
