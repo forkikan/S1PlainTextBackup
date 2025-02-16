@@ -545,3 +545,80 @@ Resilio Sync: B5RZSPOMRA7T67RBTWWEF423I2FTGEVCK
 若达成目标，会制作新的开播用服装。
 <img src="https://tc2.wfhtony.space/images/2025/02/16/5d5760d7ca8e5f7ee2a2cbc85d74326b.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6926#       发表于 2025-2-16 19:01
+
+ 本帖最后由 wfhtony 于 2025-2-16 19:03 编辑 
+
+<img src="https://tc2.wfhtony.space/images/2025/02/16/34e6388fb4f664bb733ec5f542d1ff4a.jpg" referrerpolicy="no-referrer">
+
+「たくさん、食べてくださいねっ。」
+
+↓
+<img src="https://tc2.wfhtony.space/images/2025/02/16/4a99bce61d74e23523bbf05ee7d11f48.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/02/16/f74fa2572056bcef62cff06078684cf4.png" referrerpolicy="no-referrer">
+
+P「手球，該訓練了。」
+
+======
+
+Setlist（-初陣公演- 渋谷クラブクアトロ公演）：
+
+[開演時間：晝場：15:10 (UTC+9) | 夜場：18:25 (UTC+9)]
+
+・<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全員
+
+02. Campus mode!! // 全員
+
+→ 開場MC（MC①）</blockquote>
+・2nd block<blockquote>03. ツキノカメ // 春咲 暖
+
+04. 小さな野望 // 陽高真白
+
+05. Fighting My Way // 長月あおい（＊Long Intro ver.）
+
+→ MC②
+
+06. Choo Choo Choo // 陽高真白
+
+07. EGO // 長月あおい
+
+08. たいせつなもの // 春咲 暖（＊2024年度生日曲）
+
+→ MC③</blockquote>
+・3rd block + 安可<blockquote>09. Our Chant // 陽高真白（＊晝場）
+
+09. ヨルニテ // 春咲 暖（＊夜場）
+
+10. Howling over the World // 全員（＊晝場）
+
+10. ミラクルナナウ(゜∀゜)！ // 全員（＊夜場）
+
+→ MC④
+
+11. ENDLESS DANCE // 全員
+
+---安可---
+
+12. White Night! White Wish! // 全員（＊晝場）
+
+12. ハッピーミルフィーユ // 全員（＊夜場）
+
+→ 安可MC
+
+13. 初 // 全員
+
+[終演後留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+以下内容需要积分高于 500 才可浏览
+
+Resilio Sync: B4Q62WPFAF5VVGKNUOAQ365HXOPJV5KUO
+
+等下小美野上臺之後，學馬仕出道LIVE（全23場）結束。
+

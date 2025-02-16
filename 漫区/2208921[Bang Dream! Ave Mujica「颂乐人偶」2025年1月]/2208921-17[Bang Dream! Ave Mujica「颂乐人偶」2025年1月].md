@@ -13992,3 +13992,43 @@ ylg太多了 不懂真正的百合是什么
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wpcc  
+##### 24943#       发表于 2025-2-16 18:55
+
+<blockquote>thisisaspider 发表于 2025-2-16 18:47
+不同意，她创建C团的原因不是为了用音乐感动所有人。
+
+你忽略了最大的背景，祥子实在母亲死后才有动机创建 ...</blockquote>
+就是自己爽啊
+
+*****
+
+####  thisisaspider  
+##### 24944#       发表于 2025-2-16 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441424&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 18:55</a>
+
+就是自己爽啊</blockquote>
+你这么概括那全都干了好吧
+
+*****
+
+####  天空塔书记官  
+##### 24945#       发表于 2025-2-16 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 24946#       发表于 2025-2-16 19:01
+
+祥子组建乐团的动机从来都是因为她自己。
+<img src="https://i.miji.bid/2025/02/16/4af9239528690e605d66839a9f4531c8.png" referrerpolicy="no-referrer">
+
