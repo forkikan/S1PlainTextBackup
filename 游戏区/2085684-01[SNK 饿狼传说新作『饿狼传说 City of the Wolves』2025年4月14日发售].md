@@ -3416,3 +3416,29 @@ C罗不知道是本体内容还是DLC内容
 
 【《饿狼传说：群狼之城》卡恩·R·海莱因 宣布参战-哔哩哔哩】 [https://b23.tv/LqI7mqX](https://b23.tv/LqI7mqX)
 
+
+*****
+
+####  gameselect  
+##### 357#       发表于 2025-2-17 00:02
+
+剧透
+凯恩没有说谎，玛丽亚·海因莱因还活着，只是被绑架了
+
+*****
+
+####  gameselect  
+##### 358#       发表于 2025-2-17 00:04
+
+凯恩的部分出招表
+
+和隔壁维加类似，有些招改成指令了
+
+<img src="https://img.saraba1st.com/forum/202502/17/000359hxqprimbsqrist3v.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>b8916e6cbfc8c12096e6b49508234b0377058.jpg@1052w_!web-dynamic.webp</strong> (40.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:03 上传
+

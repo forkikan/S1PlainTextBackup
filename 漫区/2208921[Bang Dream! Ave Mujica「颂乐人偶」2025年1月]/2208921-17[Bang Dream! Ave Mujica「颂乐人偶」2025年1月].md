@@ -16249,3 +16249,91 @@ soyo和立希是家庭、人际关系。灯则是对自我否定。C团存在时
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Versedust  
+##### 25153#       发表于 2025-2-16 23:57
+
+我现在倒是期待舅舅剧透是真的，看海外观众还能不能哭得出来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25154#       发表于 2025-2-16 23:57
+
+第七集如果用的台风天音源，再给个圣人得到补贴的场景，我猜国内也不会大吵，但是，剧情的问题还是存在，只是在国内提前爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25155#       发表于 2025-2-16 23:59
+
+ 本帖最后由 是谁的书画 于 2025-2-17 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443697&amp;ptid=2208921" target="_blank">依旧ing 发表于 2025-2-16 23:45</a>
+
+但从物哀的角度来看ccc第七集重组也是败笔啊，对c团爱而不得的残缺美遗憾美荡然无存，如果不是大段独白反 ...</blockquote>
+因为这是ave mujica，不是mygo #2
+
+需要这个的从来都不是已经进入下一阶段的那3个人，而是仍然停留在过去的祥子。
+
+而很不合时宜的是这恰好是以祥子为中心的动画，这就必须让mygo的所有人接受被架在火上烤的局面。
+
+我今天下午恰好写了一段我自己的想法，大概是我对这个问题的答案。 
+[https://bbs.saraba1st.com/2b/for ... 208921&amp;pid=67440255](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67440255)
+
+“[color=var(--t)][backcolor=var(--bg)]如果crychic永远不“解散”，便不会消解mygo的存在，而是随着时间自然淡化。但是祥子的剧情推动却需要crychic做出牺牲，最后导致所有人都被架在火上烤。”
+
+*****
+
+####  白水潭的饿鬼  
+##### 25156#       发表于 2025-2-16 23:59
+
+重温了lga 风漏油的打字机，我突然理解了第七话为啥要把live 做烂了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+因为最后一话还有c团春日影<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 25157#       发表于 2025-2-17 00:00
+
+<blockquote>依旧ing 发表于 2025-2-16 23:45
+但从物哀的角度来看ccc第七集重组也是败笔啊，对c团爱而不得的残缺美遗憾美荡然无存，如果不是大段独白反 ...</blockquote>
+物哀 = 劇內說3C完結， 劇外3C集結
+
+這是行為藝術
+
+這要是算物哀我只能說這屆日本人不懂什麼叫一期一會
+
+*****
+
+####  海苹果suki  
+##### 25158#       发表于 2025-2-17 00:00
+
+人类很容易忽视自己以及忽视主流群体的文化特点。
+
+一个主流社会里的普通人也有自己的弱点（比如诈骗）、欲求、价值观，当然也会有攻击性，这些存在又被忽视的东西在跨文化交流中会变成自己的文化包袱
+
+不管怎么说，对各个群体抱着理解的心态总是有益的
+
+*****
+
+####  厚乳果珍爽  
+##### 25159#       发表于 2025-2-17 00:01
+
+讲真第七集比第五第六集好多了，前两集太抽象了。怎么第七集评价这么差？就因为ccc复活了还是live太差了？
+
+
+*****
+
+####  usodakedo  
+##### 25160#       发表于 2025-2-17 00:04
+
+因为第七集证明了前六集的烂是真的烂，人物塑造拉夸是真的拉夸，逻辑混乱是真的混乱，纯炒作是真的只剩下炒作。
+第七集只是一个引爆点，一个病危通知书，把原先的幻想假药都杀了个遍。
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
