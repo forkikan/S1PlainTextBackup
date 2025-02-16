@@ -11977,3 +11977,66 @@ syl同样化身【极端爱音厨】开始无限滑坡也是能收货最多小�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zhzij111  
+##### 24768#       发表于 2025-2-16 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439917&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-16 15:12</a>
+主要火力肯定在祥子这啊 尤其NZH狂打顺风团</blockquote>
+单说爱音受委屈这个模块，整集另说
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 24769#       发表于 2025-2-16 15:17
+
+<blockquote>Lyzers 发表于 2025-2-16 15:07
+要说到这个点的话，第七集里爱音的待遇估计也是最能直观体现主创对角色并没有投入感情，写出来的故事就像 ...</blockquote>
+爱素是我见过最假的美帝 违抗监督的旨意拉郎
+
+*****
+
+####  cxj649  
+##### 24770#       发表于 2025-2-16 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439946&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-16 15:17</a>
+
+爱素是我见过最假的美帝 违抗监督的旨意拉郎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是游戏爱素双人CG不少的
+
+
+*****
+
+####  江口夕  
+##### 24771#       发表于 2025-2-16 15:21
+
+ 本帖最后由 江口夕 于 2025-2-16 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439921&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:12</a>
+我列这组对比只是觉得你好笑。你有什么资格定性别人是否在正常讨论呢？先是贷款剧情堵嘴，后面又开始指责 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">什么叫贷款剧情堵嘴，我不是说了真没去看再滑坡不迟，当时剧情演到真没去看么，看看时间是几号的。你滑坡你就是对，对对对。赶紧骂。
+现在是个正常人都知道你没在讨论。你有在讨论？你不是在这输出我？搞笑的是你吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  高贵的  
+##### 24772#       发表于 2025-2-16 15:23
+
+对这种有大热度大争议的作品所谓的萌萌人的应许之地感觉只有高压统治的小社区了，毕竟我看那几个所谓的核心社区斗争的也挺激烈的
+
+*****
+
+####  怀沙汨罗  
+##### 24773#       发表于 2025-2-16 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439967&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:21</a>
+什么叫贷款剧情堵嘴，我不是说了真没去看再滑坡不迟，当时剧情演到真没去看么，看看时间是几号的。你滑坡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
