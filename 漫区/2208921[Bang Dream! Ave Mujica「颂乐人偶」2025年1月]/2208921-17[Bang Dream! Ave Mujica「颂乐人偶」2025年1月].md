@@ -11403,3 +11403,126 @@ WSD 自己帶起的節奏
 
 都说后面有很变态的内容，难道独角兽和柿本对大祥的态度就不变态吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，更别提面对这这种变态之爱，GO团老友们还或因此施舍，或因此当工具人
 
+
+*****
+
+####  南宮凝香  
+##### 24721#       发表于 2025-2-16 13:04
+
+<blockquote>江口夕 发表于 2025-2-16 12:57
+我猜后面，大祥要效仿素世，拽她老爹去老妈墓地抽醒中登
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1 ...</blockquote>
+效仿Soyo 就是在老登上班途中襲擊老登
+
+把他帶到中登面前，
+
+老登覺醒後登門立雪跟中登和解
+
+*****
+
+####  江口夕  
+##### 24722#       发表于 2025-2-16 13:05
+
+ 本帖最后由 江口夕 于 2025-2-16 13:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439209&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 13:04</a>
+效仿Soyo 就是在老登上班途中襲擊老登
+
+把他帶到中登面前，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说已经不能正常讨论了，都出脑成这样了，还看这片干啥，还是说楼友也要觉醒第二人格。
+建议恢复无职的情况直接把这片下架让想看的人看就完了。建议你们拉个横幅
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ape-apple  
+##### 24723#       发表于 2025-2-16 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439189&amp;ptid=2208921" target="_blank">Paaz 发表于 2025-2-16 13:00</a>
+你可真够m的，wsd拿出烂作使劲抽你你还要说这鞭子和你咬的口球简直天作之合
+
+不过你比sm玩家更变态的就是 ...</blockquote>
+我的意思很明确，做烂了就直接骂就行，不要指望wsd会改，或者会屈服于这边的市场压力，不然就还是两个擅自。又不是没听过NBA禁播故事
+
+*****
+
+####  wpcc  
+##### 24724#       发表于 2025-2-16 13:08
+
+<blockquote>Paaz 发表于 2025-2-16 13:00
+你可真够m的，wsd拿出烂作使劲抽你你还要说这鞭子和你咬的口球简直天作之合
+
+不过你比sm玩家更变态的就是 ...</blockquote>
+武士道这是事实 真不是滑坡 水魔变成这样 我还不是买风灵
+
+*****
+
+####  IVANLIAO  
+##### 24725#       发表于 2025-2-16 13:09
+
+柿本广大别认输啊，再来重置六个剧场版，把闹钟的恶评挂到电影院鞭尸，我算你是个人物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 24726#       发表于 2025-2-16 13:09
+
+黑铁的鱼影本土票房138亿，现实世界的138亿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+某些人蹭灰原哀骂角解之前先证明下鸡狗的商业价值比新兰高吧。
+
+
+*****
+
+####  ape-apple  
+##### 24727#       发表于 2025-2-16 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以我就不喜欢类比，咱们还是别聊死小了吧
+
+*****
+
+####  单脚着地  
+##### 24728#       发表于 2025-2-16 13:12
+
+<img src="https://img.saraba1st.com/forum/202502/16/131133ymwx9v4qvzczduuz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250216131055.png</strong> (86.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/131133z33oimpdtesboxqe.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250216131103.png</strong> (93.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/131133bcgz8enn6dh6de88.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250216131107.png</strong> (109.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/131133piitq9gqqgkrg09t.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250216130941.png</strong> (90.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/131133z8otlac8my9tqcb9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250216131025.png</strong> (101.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 13:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神威难藏泪，MYGO，旗木祥VS宇智波素世。。。这活太乐了
+
