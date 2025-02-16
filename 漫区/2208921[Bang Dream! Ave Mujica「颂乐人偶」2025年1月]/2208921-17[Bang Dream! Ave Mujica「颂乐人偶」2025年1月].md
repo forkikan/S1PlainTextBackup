@@ -15750,3 +15750,146 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 我是觉得如果staff那边真的明白老中这边喜欢Mygo的点是什么的话，Mujica很多雷点都可以避免的，而实际上 ...</blockquote>
 开播之前我预计的是各人孩子各人抱，没想到还是突出C团，作为商法的一部分的话，就完全可以理解了
 
+
+*****
+
+####  ape-apple  
+##### 25110#       发表于 2025-2-16 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443366&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 23:03</a>
+
+不过就目前岛国的反应来看，这烂炒在那边也算是成功了吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+至少比mygo成功太多了，现在每一集都上推特热搜，nico观众大概多了一半，好评率也不错，跟自己比算很好的
+
+*****
+
+####  北条早苗  
+##### 25111#       发表于 2025-2-16 23:06
+
+东京阿农就是狗里的观测者位，误入黑刀之夜后的ccc世界观，主要是负责修好小闭灯。爱灯水族馆之后，灯爱希的关系就已经完成，成为了狗团的基础
+之后修好爽姐狗团就成立了，毕竟猫就是个凑人头五人黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25112#       发表于 2025-2-16 23:07
+
+但也真的很难要求一个外国公司专门为国内口味定制商品就是了，尤其是存在不小文化差异的情况下，还是岛国这个国家
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 25113#       发表于 2025-2-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443257&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:51</a>
+
+那是不是说明楼里其实并没有多少“圣爱音”的粉丝
+
+—— 来自 鹅球 v3.3.96</blockquote>
+喜欢和重要性主角没啥关系吧，你真要说，mygo第二重要的人是立希啊，她推动乐队各项事务，还谱曲拉人想办法解决问题。这妨碍她人气低吗？
+
+爱音受欢迎是一因为她的性格很讨喜，二是她在团队充当的是类似家有儿女刘星这样的搞笑受气位，这种位置的角色观众缘是不会差的。三是她性格好的同时能动性很高，自身塑造也完整，剧情上充当了灯的钩子，和谁能搭上边炒cp拉郎非常方便。
+
+真要说mygo里我虽然最欣赏最喜欢的角色是立希，但对爱音这角色的喜欢基本上可以说不亚于立希的。爱音绝对是那种只能投一张挚爱票她不一定得第一，但要是能投两张票的话她排名绝对无出其右的那种角色
+
+
+*****
+
+####  天空塔书记官  
+##### 25114#       发表于 2025-2-16 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443416&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 23:09</a>
+喜欢和重要性主角没啥关系吧，你真要说，mygo第二重要的人是立希啊，她推动乐队各项事务，还谱曲拉人想办 ...</blockquote>
+就像KSM ?
+
+那还是更像丸山彩吧 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 25115#       发表于 2025-2-16 23:12
+
+现在谁更受喜爱意义也没那么大了，特别是不考虑卖钱角度，而剧本里也只有猫猫可以不受独角兽和柿本的“厚爱”了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 25116#       发表于 2025-2-16 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443345&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-16 23:00</a>
+
+鸡狗动画最让人难以理解的就是为什么同一个团队前后演出水平可以下滑到这个地步，狗动画里用镜头语言就能表 ...</blockquote>
+逻辑上最能讲通的是，wsd下了企划相关的死命令，团队没有能力在满足kpi的同时把故事改顺畅，并且引爆了内部分歧
+
+纯猜想，但这是无数具原创番的尸体告诉我的经验教训<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依旧ing  
+##### 25117#       发表于 2025-2-16 23:12
+
+长对白其实就是拎着观众耳朵灌输“这是ccc的风光大葬，不是mygo真要被抛弃了”。但自作聪明的跑调live、灾难的演出，反正我是听不进去这些说教的。
+
+看完番点进社媒又立马看见tft的c团录音还有4月live追加、手游歌曲上线，那一瞬间心境就和第九集爱音被点醒破防一模一样，各种细节剧情都串起来了。
+
+所谓“爱音厨”大量增殖也就在那一刻。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1||
+
+查看全部评分
+
+*****
+
+####  thisisaspider  
+##### 25118#       发表于 2025-2-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443193&amp;ptid=2208921" target="_blank">依旧ing 发表于 2025-2-16 22:44</a>
+
+有，我不看场外讨论一刷时候都没对前几集“冷落爱音”有任何具体感知，直到七话live结束后是爱音来说“还 ...</blockquote>
+我不理解，MYGO团是迷茫中前行。事实上，C团解散不是前C团3人迷茫的深层原因。
+
+C团解散确实引发了几人的内心迷茫。但他们在加入C团前就已经对人生开始迷茫了。
+
+soyo和立希是家庭、人际关系。灯则是对自我否定。C团存在时可能缓解了一部分。
+
+但由于各种原因，他们都没深入到成员的内心去。反而是MYGO的成立过程才是真正的成长。
+
+你说动画表现起来是，但这里真可以切换视角重新捋。
+
+*****
+
+####  xyion  
+##### 25119#       发表于 2025-2-16 23:15
+
+鸡比狗在演出上的巨大退步，最简单的解释就是创作团队失去了有效沟通。
+
+这个不用管剧情上的问题哪些柿本背，哪些独角兽背。从很大概率成立的事实，即两人有分歧-&gt;柿本拿了话语权-&gt;独角兽先摆烂后切割，出现上述情况并不意外。
+
+*****
+
+####  cxj649  
+##### 25120#       发表于 2025-2-16 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443257&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:51</a>
+
+那是不是说明楼里其实并没有多少“圣爱音”的粉丝
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我算爱音粉吧，不过没什么觉得爱音现在有多大委屈就是了
+

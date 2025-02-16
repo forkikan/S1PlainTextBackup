@@ -2820,3 +2820,13 @@ NANA但是是UTA
 
 不过我上面说了staff还是控制了浓度的，要是没有妹妹这事相似度就要爆表了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PrincessBanana  
+##### 527#       发表于 2025-2-16 23:08
+
+小歌变了Q娃鼻子都要翘到天上去了，直接憋不住自爆了也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
