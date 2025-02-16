@@ -11575,3 +11575,60 @@ WSD 既不是NBA 也不是高達
 
 前后都呼应不上了
 
+
+*****
+
+####  刑部姬真可爱  
+##### 24732#       发表于 2025-2-16 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439315&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-16 13:23</a>
+
+前后都呼应不上了</blockquote>
+与其说呼应不上，不如说后面这段是机械降神
+
+*****
+
+####  怀沙汨罗  
+##### 24733#       发表于 2025-2-16 13:24
+
+ 本帖最后由 怀沙汨罗 于 2025-2-16 13:26 编辑 
+
+有些人一边在抱怨讨论环境，又没贡献出点有营养的分析，光是在一旁做出捏鼻姿势不代表你没拉呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者说现在真有人能正经分析这都合的剧情和傀儡人物？就公认kol头子的大鼻子叔叔都洗不下去了，还有哪里是mmr的港湾唉。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 24734#       发表于 2025-2-16 13:25
+
+对于cp厨我只想说一句话 你看到的cp都是按头甚至幻想出来的 六字母是真的 都十年了
+
+*****
+
+####  怀沙汨罗  
+##### 24735#       发表于 2025-2-16 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439315&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-16 13:23</a>
+前后都呼应不上了</blockquote>
+给大🐘机械降神了，包括后面的黄瓜也是不知所云的呼应。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 24736#       发表于 2025-2-16 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439079&amp;ptid=2208921" target="_blank">灼眼的夏娜酱 发表于 2025-2-16 12:43</a>
+
+你鸡狗所有人捆一块也不配合灰原哀比啊</blockquote>
+在我看来大祥的“高光”还不如真得即救过灰原也救过贝姐的小兰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryuusu  
+##### 24737#       发表于 2025-2-16 13:29
+
+现在看柿本推的简介写满战绩都有种浓浓的求撅感，评论区拷打只会让他爽到<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
