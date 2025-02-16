@@ -12791,3 +12791,93 @@ ave的一切操作都是围绕着延长热度期和增加热度点来展开的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厄神之息  
+##### 24835#       发表于 2025-2-16 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440093&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-16 15:42</a>
+
+一觉醒来感觉越想越不对劲。
+
+本身C团拆团是鸡狗两团能建团的最大前提也是组出来团的根本动机。这下子C团饺 ...</blockquote>
+大祥的自尊装甲被素世一句“我全都知道了①型穿甲弹”给彻底击穿了我是真没想到的。那么一个高傲的人就因为被知道了处境就不装了。这感觉就好像“我其实早就不想演这高傲人设了，谢谢素世你给我这台阶下我可以不装了！”一样，真的无语，你画19集写个心比天高，自尊重于一切的人，让她一秒沦陷那你写那么多高自尊描写是为了什么呢你还不如说这是素政委的ccc间谍启动密码呢。
+
+*****
+
+####  lolisk  
+##### 24836#       发表于 2025-2-16 16:29
+
+要描写人物自然又要剧情符合假药爆爆爆，说实话13集哪够你这么整啊，要怪就怪这不是半年番，其他车轱辘话输出起来也没劲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这番明显属于放弃自然地描写情感这一个优势了，那么不如现在开始就爆爆爆，大莫人格分裂重拿轻放才是真的烂了，现在想想货款初华sns阴湿灯的假药算个屁啊，我贷款鸡能够发挥强项摒弃弱项，早日争取年一番宝座<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GBLMikuHatsune  
+##### 24837#       发表于 2025-2-16 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440315&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-16 16:15</a>
+
+看第一遍时就觉得主创仿佛生怕C团live做的太声势浩大，在A团动画主场喧宾夺主了，结果弄巧成拙
+
+观众并不 ...</blockquote>
+然后第二天就是TFT的春日影、合同live追加c团、游戏追加春日影的三连烂炒
+
+太不喧宾夺主了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 24838#       发表于 2025-2-16 16:31
+
+<blockquote>南宮凝香 发表于 2025-2-16 16:24
+以組一輩子樂隊為目標的話
+
+永遠都會有迷惘的， CCC 過去了也會有其他迷惘
+</blockquote>
+狗团漫画有没有的？
+
+*****
+
+####  稀勢のささ  
+##### 24839#       发表于 2025-2-16 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440315&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-16 16:15</a>
+
+看第一遍时就觉得主创仿佛生怕C团live做的太声势浩大，在A团动画主场喧宾夺主了，结果弄巧成拙
+
+观众并不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那能是怪观众反过来想吗 又是live又是tft的
+
+*****
+
+####  南宮凝香  
+##### 24840#       发表于 2025-2-16 16:33
+
+這段單論MyGo 的人邏輯是過得去的
+
+燈一向是貪心的單線程小企鵝， 你說她真一心向著3C 不要狗那不至於
+
+Soyo 本來就是全宇宙最懷念3C 的人， 笑得歡快點就歡快點吧
+
+問題主要是立希C墜得忘了自己隊長責任這點有點難挺，她可以感傷及高興， 但完事後她應該要是第一個回來擰繩的
+
+狗團 立希 + 愛音 基本上就擔起了九成的業務工作
+
+這兩人都在， 狗批是不會像現在這樣慌的
+
+
+*****
+
+####  cxj649  
+##### 24841#       发表于 2025-2-16 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440404&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 16:29</a>
+
+大祥的自尊装甲被素世一句“我全都知道了①型穿甲弹”给彻底击穿了我是真没想到的。那么一个高傲的人就因 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个是追击叠加暴击伤害而已
+
+之前被外公领回家，然后白月光灯看到丑态233
+
