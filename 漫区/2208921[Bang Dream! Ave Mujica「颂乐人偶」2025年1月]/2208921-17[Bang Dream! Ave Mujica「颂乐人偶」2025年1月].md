@@ -9771,3 +9771,22 @@ b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba
 
 别吧，要是那个初华小姨说舅舅剧透是真的话，祥子下一话又要试图复活C团也是真的了，那这个人物的塑造就彻底完蛋了，成了狗改不了吃屎的铁触声，让第七话本来就苍白的洗白就变得更小丑了。
 
+
+*****
+
+####  ape-apple  
+##### 24566#       发表于 2025-2-16 08:53
+
+说得好像现在舆论环境还有的救一样……本质娱乐公司而已，多打多爆米
+
+*****
+
+####  海底铁锚  
+##### 24567#       发表于 2025-2-16 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437658&amp;ptid=2208921" target="_blank">上条仁美 发表于 2025-2-16 08:46</a>
+别吧，要是那个初华小姨说舅舅剧透是真的话，祥子下一话又要试图复活C团也是真的了，那这个人物的塑造就彻 ...</blockquote>
+那就是分手炮没打过瘾想再来几次了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
