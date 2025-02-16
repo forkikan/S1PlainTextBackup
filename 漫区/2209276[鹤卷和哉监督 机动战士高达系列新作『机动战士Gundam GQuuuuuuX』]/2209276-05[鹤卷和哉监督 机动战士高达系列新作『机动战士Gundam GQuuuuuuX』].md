@@ -13971,3 +13971,26 @@ X 上的 青木：“[https://t.co/KaIMey5Cwh” / X](https://t.co/KaIMey5Cwh”
 
 那请问看过的人，哈罗有没有亲眼见过修司，感觉修司带玛秋和尼娅安那个场景是没带哈罗才对
 
+
+*****
+
+####  Gysumitka  
+##### 6994#       发表于 2025-2-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441841&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-16 19:53</a>
+那请问看过的人，哈罗有没有亲眼见过修司，感觉修司带玛秋和尼娅安见红高达那个场景是没带哈罗才对，那之后 ...</blockquote>
+之前刷到剧透有聊到
+pv哈罗那句“玛丘的mav，真正的mav”是在说玛秋和修司
+
+*****
+
+####  纪寞  
+##### 6995#       发表于 2025-2-16 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442202&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-2-16 20:39</a>
+
+之前刷到剧透有聊到
+
+pv哈罗那句“玛丘的mav，真正的mav”是在说玛秋和修司 ...</blockquote>
+我知道说这个话，但是我好奇哈罗有没有真的亲眼见过修司，因为印象里见红高那个场景是没带哈罗的吧。
+

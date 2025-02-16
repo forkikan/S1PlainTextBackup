@@ -14692,3 +14692,82 @@ nzh一个人可没那么大能量，他顶多算是一部分最极端人的嘴�
 
 话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不想翻🐔动画了
 
+
+*****
+
+####  影伴光生  
+##### 25014#       发表于 2025-2-16 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道在ave mujica对待爱音的态度多少有点看齐兽娘2里狗娘那一集，精准打击痛点了属于是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Versedust  
+##### 25015#       发表于 2025-2-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442191&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 20:38</a>
+话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不 ...</blockquote>
+怕自己一开口就坏事呗
+
+*****
+
+####  凉良  
+##### 25016#       发表于 2025-2-16 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442191&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 20:38</a>
+
+话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不 ...</blockquote>
+ccc因为觉得自己弹吉他不行 吉他唱不了歌
+
+飞鸟山和车站因为怕自己张嘴就坏事
+
+*****
+
+####  稀勢のささ  
+##### 25017#       发表于 2025-2-16 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442191&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-16 20:38</a>
+
+话说睦头为啥在黑刀之夜说组乐队没开心过，又为什么在飞鸟山之战光站在旁边瞧，有人能帮我捋一下吗，实在不 ...</blockquote>
+她是大祥舔狗又不是soyo舔狗，前者是为了帮大祥揽锅，后面那次为什么要有所动作？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高贵的  
+##### 25018#       发表于 2025-2-16 20:42
+
+睦应该是她不满意她的吉他演奏所以觉得组乐队不开心吧
+
+*****
+
+####  hysjmr  
+##### 25019#       发表于 2025-2-16 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442174&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 20:35</a>
+ 原来不是红蓝吗。。。。</blockquote>
+举了个不太好的例子<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 25020#       发表于 2025-2-16 20:47
+
+那到目前为止，mujica塑造的睦头还是太呆了。开播前我是抱着那张表情包的那种期待的……就是那张“惨成那样还不让人说，妈呀💧”<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，自己抗压默默吃瓜的感觉
+
+*****
+
+####  aptx8285144  
+##### 25021#       发表于 2025-2-16 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442189&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-16 20:37</a>
+
+据说柿本甚至想删掉撩头发那段
+
+他就想塑造一个不熟但能开live的乐队
+
+而独角兽想塑造一个迷茫中前进的乐队</blockquote>
+理论上来讲“不熟”能开乐队确实能写，但是这太考验剧本控制力，很容易会把人际关系的问题直接把团队都炸了（哪怕不考虑豚豚想找糖吃，这么写风险也很大），实际上鸡团就是这样不熟，然后最后内部越来越混乱，最后炸了
+

@@ -804,3 +804,14 @@ https://m.bilibili.com/opus/1033632735051120642
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大十字紅朔  
+##### 16350#       发表于 2025-2-16 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441081&amp;ptid=2084912" target="_blank">Lawliet.L 发表于 2025-2-16 18:08</a>
+
+日本佛教会有意见吗？</blockquote>
+这个看你打算问日本的哪一派佛教了
+
