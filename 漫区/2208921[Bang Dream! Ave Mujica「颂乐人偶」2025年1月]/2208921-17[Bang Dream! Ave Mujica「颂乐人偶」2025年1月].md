@@ -9728,3 +9728,13 @@ b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 24562#       发表于 2025-2-16 07:47
+
+想啥呢，大结局肯定两团联合开live啊。
+
+至于商业团为什么去ring开你别管
+
