@@ -9850,3 +9850,63 @@ b站那个爱音你幸福吗的视频破百万了<img src="https://static.saraba
 
 下集还讲c团的事？那还有时间塑造a团其他角色吗？
 
+
+*****
+
+####  老贝  
+##### 24573#       发表于 2025-2-16 09:19
+
+<blockquote>墨要求组ccc，说只有这个能让睦开心。</blockquote>
+
+好像还真没什么问题。到底为啥要回去重组Mujica，就为了再把不喜欢被人问父母的睦推到镜头前面去拷问吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 24574#       发表于 2025-2-16 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437355&amp;ptid=2208921" target="_blank">oyss 发表于 2025-2-16 06:00</a>
+韩国人还是认基督的多</blockquote>
+我记得中韩口味比较一致，对这话都是差评。
+
+*****
+
+####  上条仁美  
+##### 24575#       发表于 2025-2-16 09:20
+
+<blockquote>南宮凝香 发表于 2025-2-16 10:11
+這倒不怕， 
+
+可以甩鍋給老莫
+
+</blockquote>
+除了把老莫也拉一起成臭start beat以外并不会有区别好吧
+
+*****
+
+####  江口夕  
+##### 24576#       发表于 2025-2-16 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">能不能别假药了 之前自己吃假药自己擅自破防的还少么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  wwwttth  
+##### 24577#       发表于 2025-2-16 09:23
+
+那个剧透如果是真的话七集不是更烂了，祥子那副放下的演出都是假的？当初这个剧透是6话前出来的，我觉得6话这么搞怎么想怎么变态但反而可以理解（至少在剧情推进上很合理，比现在的合理的多），然后告诉我还是78两集分开结算的，那已经不是变态的问题了，我和编剧一定有一个不是人类。
+
+*****
+
+####  look900822  
+##### 24578#       发表于 2025-2-16 09:24
+
+<blockquote>大户爱 发表于 2025-2-15 19:42
+损人利己当然就是坏啊。虽然最后结果没利到己。
+
+为了自己流量，擅自掀面具，怎么不是伤害初华和睦了。  ...</blockquote>
+要说演出事故，mtm live弹到一半不弹了不一样是演出事故吗。不都是台上糊弄过去就翻篇的事情。
+
