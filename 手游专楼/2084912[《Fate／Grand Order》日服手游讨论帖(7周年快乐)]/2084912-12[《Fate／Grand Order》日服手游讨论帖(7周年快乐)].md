@@ -815,3 +815,14 @@ https://m.bilibili.com/opus/1033632735051120642
 日本佛教会有意见吗？</blockquote>
 这个看你打算问日本的哪一派佛教了
 
+
+*****
+
+####  Jamaisvu  
+##### 16351#       发表于 2025-2-16 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442235&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-2-16 20:42</a>
+
+这个看你打算问日本的哪一派佛教了</blockquote>
+搞不好有的寺庙还会跟FGO联动，在门口摆小町三破的牌子，吸引年轻人过来打卡烧香<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

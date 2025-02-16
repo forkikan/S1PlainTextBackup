@@ -713,3 +713,29 @@ ee9fe5528f31a023baff9e4a9a851111433177244.png
 
 本来一闪的乐趣就是在一个很low的低魔体系里放个使用门槛高的超模技能，这种反差才有爽感。现在这个拟真癌直接拆掉了爽感的根基，我看他要整成啥样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  东方定助  
+##### 166#       发表于 2025-2-16 22:20
+
+感觉不如仁王......怪设
+
+Gjyki8kbsAAB7Zp.jpg
+(277.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/221304qs35d2tbbx9i2ndx.jpg" referrerpolicy="no-referrer">
+
+Gj3uFAUaEAAGlKf.jpg
+(290.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/221304gd6j0q4j3n0d66vj.jpg" referrerpolicy="no-referrer">
+

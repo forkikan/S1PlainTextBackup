@@ -15343,3 +15343,64 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 
 再说大喵后面还要昂然回归呢，对祥子输出一堆正论推动鸡团复活，对祥黑来说是加分项
 
+
+*****
+
+####  fuwamoco  
+##### 25074#       发表于 2025-2-16 22:18
+
+有没有可能 大喵女粉也馋她身子，浑身上下充满荷尔蒙的女人
+
+*****
+
+####  是谁的书画  
+##### 25075#       发表于 2025-2-16 22:19
+
+没办法，大猫确实腿长也敢露。光看外表又甜又A，眼睛颜色也好看
+
+
+*****
+
+####  白水潭的饿鬼  
+##### 25076#       发表于 2025-2-16 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442884&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:12</a>
+我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以
+
+如果认为灯在动画中更重要的，在此层加减 ...</blockquote>
+爱音就是圭一位，没有圭一他梨花一辈子陷在轮回里，但重要肯定还是梨花重要，谁让人家是主角呢
+
+要是爱音主角位，这就是心跳片场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我补狗动画时一直把爱音当爱大爱代餐的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  hysjmr  
+##### 25077#       发表于 2025-2-16 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442884&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:12</a>
+ 我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以  如果认为灯在动画中更重要的，在此层加减 ...</blockquote>
+我建议你开个投票贴。顺带我觉得你这议题设置得不好，问“大家认为爱音在mygo中初始地位是否较低，一系列事件后，地位[该不该］在这个团队中上升”比较好
+
+个人观点。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 25078#       发表于 2025-2-16 22:24
+
+米泽茜这款的女声优里还真找不出几个
+
+*****
+
+####  Lawliet.L  
+##### 25079#       发表于 2025-2-16 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442311&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 20:55</a>
+
+话说爱素的粉丝群体是以男性为主还是女性为主啊
+
+我经历过的比较完整的党争事件就是06fsn动画了，saber唯粉 ...</blockquote>
+冷知识：fate粉丝男女比大致五五开，bangbang则是七三开<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
