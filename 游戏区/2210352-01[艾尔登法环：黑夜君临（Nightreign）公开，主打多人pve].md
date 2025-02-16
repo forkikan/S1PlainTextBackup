@@ -2696,3 +2696,16 @@ ELDEN RING NIGHTREIGNネットワークテストにご ...</blockquote>
 
 其实按他缝了吃鸡玩法来看，本来可能是有100人吃鸡PVP部分的，发现自己没那个网络实力删了吧，谁知道服务器看着还是药丸
 
+
+*****
+
+####  我就再氪一单  
+##### 291#       发表于 2025-2-16 12:18
+
+ 本帖最后由 我就再氪一单 于 2025-2-16 12:21 编辑 
+
+这游戏要正常体验的配置要求有点高，要两个能跟你一起玩且网络条件正常能连麦的朋友。
+组野队队友开局看到罗莱塔或者龙走不动道，那基本可以直接重开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最抽象的是一局组到过俩法师，把我给气笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个落地直接退，另一个全程仰卧起坐，wnm
+
