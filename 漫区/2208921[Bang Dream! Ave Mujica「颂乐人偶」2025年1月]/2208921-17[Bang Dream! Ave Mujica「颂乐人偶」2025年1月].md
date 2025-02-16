@@ -14523,3 +14523,94 @@ c团的事动画里已经落幕了，go团也要等结尾包饺子才返场，�
 
 到时候我看看主播怎么说
 
+
+*****
+
+####  厄神之息  
+##### 24996#       发表于 2025-2-16 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没爆之前我就说过爱素本来也就是观众根据剧中10集往后的两三个有趣小互动脑补的欢喜冤家向cp，是只存在于同人拉郎中的玩意，当时漏油是这么回我的 <blockquote>论这个是没有意义的，因为公式态度里灯就是go的核心，她的意志很大程度上可以代表这个团乃至成员的走向，但这也造成了一个问题，关系都深等于都不深：就像立希对灯明晃晃的大箭头不影响观众爱吃海希知己和爱希冤家，猫是被灯吸引来的甚至手游猫希活聊灯也不影响观众吃猫希，爱爽那个不退出宣言经过广播剧补丁之后就是属于这两人之间的关系性，就算动画篇幅最多的爱灯，也不影响观众吃灯祥白月光啊，写出来怎么表达怎么理解是一回事情，受众喜不喜欢是另一回事情</blockquote>
+
+就，也很有道理吧，你官方想的是一回事，民间同人怎么想是另一回事，此事在车万project中多有记载。甚至还有东方青贴这种极端随意的拉郎呢，你也不好说什么呗。
+
+*****
+
+####  CCauchy  
+##### 24997#       发表于 2025-2-16 20:18
+
+第七集有那么不堪吗？喵萌只做了简体字幕，合作的lolihose在喵萌字幕出来好几天之后都没更新，要弃坑了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  凉良  
+##### 24998#       发表于 2025-2-16 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442050&amp;ptid=2208921" target="_blank">CCauchy 发表于 2025-2-16 20:18</a>
+
+第七集有那么不堪吗？喵萌只做了简体字幕，合作的lolihose在喵萌字幕出来好几天之后都没更新，要弃坑了？
+
+ ...</blockquote>
+第七集定性整个前七集就是垃圾
+
+
+*****
+
+####  maritimus  
+##### 24999#       发表于 2025-2-16 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441836&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-16 19:52</a>
+
+话说爱灯也就罢了，毕竟在一起时间确实多，爱素真得不是“敌手”类型CP转世想象想多了造成的吗 ...</blockquote>
+有依据吧，我感觉最明显的是爱音撩素世头发。挂贝斯就得了，撩头发这一幕很难说制作方没有那个意思。对我而言属于和rikki的“我现在就很幸福”一个等级的暧昧
+
+*****
+
+####  凉良  
+##### 25000#       发表于 2025-2-16 20:23
+
+我觉得官方是真的把盐应对当成情趣了
+
+
+*****
+
+####  柯哀lv王道  
+##### 25001#       发表于 2025-2-16 20:23
+
+说实话现在cp全面滑坡本身也是剧情导致的，你说原作基础如何本身也只是给二创提供一个出发点而已，拿原作怎么样来指责二创的发展本身也是很无厘头的事，爱灯狗里戏份够多了吧，现在该滑不是一样滑
+
+*****
+
+####  怀沙汨罗  
+##### 25002#       发表于 2025-2-16 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441746&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-16 19:39</a>
+我不满的是有一些极端的豚豚潜台词总觉得剧情完蛋是因为有男性角色的“出现"，而忽略剧本框架上的那些问 ...</blockquote>
+与之相对，就是只要加点互动就可以无视剧情逻辑高呼甜甜甜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这样的观众和偶像剧受众也没区别啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  hysjmr  
+##### 25003#       发表于 2025-2-16 20:24
+
+说个不要认真的：第七集就好比小红书对账，把中国人民对美帝的美好想象完全打碎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（这个美帝不是说爱素但是我不想让别人借题发挥所以特地提一下）
+
+*****
+
+####  怀沙汨罗  
+##### 25004#       发表于 2025-2-16 20:25
+
+不是，还真有人觉得电竞粉抽象圈啥的不能做正常观众了？要我说二偶动画本来也没有多高水平需要多少鉴赏门槛啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  稀勢のささ  
+##### 25005#       发表于 2025-2-16 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，就算真有冠军粉那人图你大祥啥啊，被抽脸的最速武道馆吗
+
