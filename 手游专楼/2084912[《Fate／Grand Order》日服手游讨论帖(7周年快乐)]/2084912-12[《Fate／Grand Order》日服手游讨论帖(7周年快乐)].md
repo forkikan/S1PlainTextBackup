@@ -760,3 +760,27 @@ https://m.bilibili.com/opus/1033632735051120642
 
 反正都是猴子都用棍(战国无双
 
+
+*****
+
+####  angelooo  
+##### 16346#       发表于 2025-2-16 19:39
+
+<blockquote>longrider 发表于 2025-2-16 19:31
+快进到丰臣秀吉缝齐天大圣
+
+反正都是猴子都用棍(战国无双</blockquote>
+那国服和韩服都要炸裂了233
+
+*****
+
+####  xiongxingyu  
+##### 16347#       发表于 2025-2-16 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441689&amp;ptid=2084912" target="_blank">longrider 发表于 2025-2-16 19:31</a>
+
+快进到丰臣秀吉缝齐天大圣
+
+反正都是猴子都用棍(战国无双</blockquote>
+秀吉不是已经被猴哥收作小弟了吗（无双大蛇），烧个灵基请大圣上身也不是不能有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

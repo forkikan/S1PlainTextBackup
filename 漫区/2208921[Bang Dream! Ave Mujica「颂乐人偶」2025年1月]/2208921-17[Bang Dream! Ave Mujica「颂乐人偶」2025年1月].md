@@ -14267,3 +14267,63 @@ mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读�
 mygo有人物塑造是我听过的笑话 十本有这个想法吗 擅自解读！</blockquote>
 独角兽是有的 柿本嘛。。
 
+
+*****
+
+####  厄神之息  
+##### 24970#       发表于 2025-2-16 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说到这个想起来了，这纯洁初华+人机海玲，是不是一下就让之前万字分析做mygo拉片的那个子非鱼成沙口了？
+
+*****
+
+####  wpcc  
+##### 24971#       发表于 2025-2-16 19:36
+
+<blockquote>hysjmr 发表于 2025-2-16 19:29
+你嘲讽也没用，作品做出来那就不是作者一个人的东西了，我相信这个道理你是懂的
+
+你可以说mygo的留白被中 ...</blockquote>
+如何解释最大假货美帝爱素 我百合圈混了很久都吃不下这个 中国人吃得可欢了 证明不是我的问题
+
+*****
+
+####  wpcc  
+##### 24972#       发表于 2025-2-16 19:37
+
+<blockquote>怀沙汨罗 发表于 2025-2-16 19:30
+这几年最大的乐子就是蒜的翻车，算是让河豚稍微收敛点了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+蒜本质是bg 套个百合壳子 监督就喜欢做超人小丑
+
+*****
+
+####  小博禹  
+##### 24973#       发表于 2025-2-16 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439886&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-16 15:06</a>
+爽姐风评都从第六集圣素世俯冲爽➗了好吧，主要火力都是对准她的。
+不过她被骂确实也是这集最不冤枉的就 ...</blockquote>
+想笑没办法<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">不过根据剧透，后面手手会拒绝重组ccc，风评能回升的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 24974#       发表于 2025-2-16 19:39
+
+<blockquote>怀沙汨罗 发表于 2025-2-16 19:30
+这几年最大的乐子就是蒜的翻车，算是让河豚稍微收敛点了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+我不满的是有一些极端的豚豚潜台词总觉得剧情完蛋是因为有男性角色的“出现"，而忽略剧本框架上的那些问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柯哀lv王道  
+##### 24975#       发表于 2025-2-16 19:41
+
+这说什么真货假货.....你邦是有哪对上床了吗，怎么真货假货都来了
+
