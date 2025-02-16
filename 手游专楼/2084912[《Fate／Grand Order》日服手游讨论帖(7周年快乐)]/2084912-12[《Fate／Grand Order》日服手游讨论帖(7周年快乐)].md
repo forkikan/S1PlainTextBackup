@@ -573,3 +573,24 @@ https://m.bilibili.com/opus/1033632735051120642
 
 这也没见本子跳出来喷啊
 
+
+*****
+
+####  exiaexa  
+##### 16329#       发表于 2025-2-16 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441136&amp;ptid=2084912" target="_blank">シャル 发表于 2025-2-16 18:15</a>
+小玉本尊可是天照大神，给轩辕黄帝守坟的</blockquote>
+反正我觉得这种二创游戏，要么就大家都放开了一起疯，你脑洞不够大你就是菜
+要么就掀桌子大家都别玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最傻逼的就是自己骗自己的，奈何国内现在这环境，这类人真的太多了XD
+
+*****
+
+####  quanlix  
+##### 16330#       发表于 2025-2-16 18:23
+
+本子这传说本身就够野的，到时候去支持一波刺客信条影好了
+
