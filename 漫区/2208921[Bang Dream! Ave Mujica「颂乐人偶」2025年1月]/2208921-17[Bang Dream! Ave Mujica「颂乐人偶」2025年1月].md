@@ -12609,3 +12609,86 @@ ave的一切操作都是围绕着延长热度期和增加热度点来展开的�
 
 你觉得这不ooc，那只能说明你只爱mygo只关心mygo的角色，母鸡卡的剧情你是一点没往心里去过。
 
+
+*****
+
+####  cxj649  
+##### 24821#       发表于 2025-2-16 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440255&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 16:04</a>
+
+之前有楼友说不分析剧情不聊人物，只是一味的f@ker武士道的bin。所以我在就开始盘算究竟是从哪里开始导致第 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">邦邦比LL爱马仕好的就是
+
+能有后续
+
+*****
+
+####  cxj649  
+##### 24822#       发表于 2025-2-16 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440272&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 16:07</a>
+
+？你少看6集？前三集的木子米和大莫跟现在的是一个人了吗我请问了？祥子高贵了13集最放不下的就是骄傲和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑白祥也设定成2人格存在就算了233
+
+反正我脑补不能白祥是OB一串字母小姐
+
+*****
+
+####  刑部姬真可爱  
+##### 24823#       发表于 2025-2-16 16:11
+
+立希道歉反而是最能体现她性格特点和人物逻辑的剧情，只不过场外爆炸后没有必要去思考这到底合不合逻辑了
+
+
+*****
+
+####  ads147147  
+##### 24824#       发表于 2025-2-16 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440276&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 16:08</a>
+邦邦比LL爱马仕好的就是
+
+能有后续</blockquote>
+爱马仕都还好。。拉拉是钦定死了的高中毕业就不算学院偶像了，锁死的短命物哀设计，也难怪万代会失心疯搞什么毕业制的莲团。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 24825#       发表于 2025-2-16 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440212&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 15:58</a>
+
+自作聪明、自我感动、自欺欺人
+
+—— 来自 鹅球 v3.3.96</blockquote>
+看第一遍时就觉得主创仿佛生怕C团live做的太声势浩大，在A团动画主场喧宾夺主了，结果弄巧成拙
+
+观众并不领这个情，是反过来想的
+
+*****
+
+####  cxj649  
+##### 24826#       发表于 2025-2-16 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440293&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-16 16:11</a>
+
+立希道歉反而是最能体现她性格特点和人物逻辑的剧情，只不过场外爆炸后没有必要去思考这到底合不合逻辑了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个其实是大祥或者黑祥的锅，哈气谜语人
+
+观众想揍一顿，但编剧一直不给让观众出气的角色载体233
+
+*****
+
+####  ads147147  
+##### 24827#       发表于 2025-2-16 16:17
+
+花田肯定会安排给巴掌的，独角兽虽然不会给巴掌，但大概率会用别的方式。十本搬出的第七集，啊，祝他幸福？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
