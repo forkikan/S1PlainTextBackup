@@ -594,3 +594,62 @@ https://m.bilibili.com/opus/1033632735051120642
 
 本子这传说本身就够野的，到时候去支持一波刺客信条影好了
 
+
+*****
+
+####  森兰丸  
+##### 16331#       发表于 2025-2-16 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看别的国家的神话被2创整活时嘻嘻哈哈.....碰上自己熟悉的就破防了要开口大骂
+
+*****
+
+####  Jamaisvu  
+##### 16332#       发表于 2025-2-16 18:29
+
+反正小野小町是日本人，写设定时按日本那边的史料民俗考据也无可厚非，等出中国角色却按日本野史加设定再喷不迟...
+
+其实我最在意的还是这么重量级的角色为什么有四张绿卡...希望新绿拐尽快实装吧...
+
+
+*****
+
+####  廖化  
+##### 16333#       发表于 2025-2-16 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441229&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-16 18:28</a>
+
+看别的国家的神话被2创整活时嘻嘻哈哈.....碰上自己熟悉的就破防了要开口大骂
+
+ ...</blockquote>
+情人节给观音菩萨送巧克力搞麻辣仙人，和，情人节给关二爷送巧克力搞麻辣仙人，还是不一样的
+
+后者大家是不是更开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 16334#       发表于 2025-2-16 18:34
+
+ 本帖最后由 シャル 于 2025-2-16 18:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441229&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-16 18:28</a>
+
+看别的国家的神话被2创整活时嘻嘻哈哈.....碰上自己熟悉的就破防了要开口大骂
+
+ ...</blockquote>
+其实观音本相是男的
+
+那么送情人节巧克力给女相化身也不是不行？TS女菩萨啊
+
+*****
+
+####  森兰丸  
+##### 16335#       发表于 2025-2-16 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441245&amp;ptid=2084912" target="_blank">廖化 发表于 2025-2-16 18:30</a>
+
+情人节给观音菩萨送巧克力搞麻辣仙人，和，情人节给关二爷送巧克力搞麻辣仙人，还是不一样的
+
+后者大家是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本早就出了恋姬啊....给爱莎送巧克力不是再正常不过了嘛
+

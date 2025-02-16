@@ -13679,3 +13679,83 @@ a5是把前辈拿来踩然后无限制拖戏加打牌无意义毁灭世界观，
 但是确实不妨碍这段烂到家 ...</blockquote>
 其实能看出来柿本就只适合无台词演出，雰囲気会玩一手，但人数一多就手忙脚乱了，顾此失彼。必须要将演出降板才能交代清楚情节
 
+
+*****
+
+####  maritimus  
+##### 24912#       发表于 2025-2-16 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440987&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 17:54</a>
+
+我压根也没认为过有什么黑祥白祥这么一说。这个人物我觉得7集前内核一直挺统一的，那就是超高自尊与绝对自 ...</blockquote>
+不知道能不能换个角度理解，她的自尊在睦出事，mujica解散之后已经破裂了，所以才会接受姥爷的安排回家。之后只是逃避之前的一切，她不敢面对自己犯的错，也不敢找之前的队友。这样看的话，其实逃离c团和mujica解散的效果是差不多的。
+
+之后是素世等前队友发现问题，逼她面对睦，正面自己。另外通过live让她理解，就算犯下错也可以被原谅，c团对大家都是美好的回忆。
+
+*****
+
+####  wpcc  
+##### 24913#       发表于 2025-2-16 18:30
+
+<blockquote>南宮凝香 发表于 2025-2-16 17:05
+我知道你想說什麼
+
+WSD 想搞以C代狗 那就搞
+</blockquote>
+鸡和c都有漫画 狗的呢
+
+
+*****
+
+####  blackeryuri2  
+##### 24914#       发表于 2025-2-16 18:30
+
+别管她爹，万事太平，安心玩crychic，组一辈子crychic
+
+*****
+
+####  cxj649  
+##### 24915#       发表于 2025-2-16 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441143&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-16 18:15</a>
+
+我觉得所谓黑祥白祥就是观众觉得祥子是受了刺激就会发生改变的一种自我催眠，然而我眼里的祥子一直都是那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我感觉编剧也是分这黑白2种角色定位写的，很奇葩
+
+*****
+
+####  wpcc  
+##### 24916#       发表于 2025-2-16 18:31
+
+<blockquote>凉良 发表于 2025-2-16 17:41
+这次确实闹得特别大 感觉已经不是所谓轻度观众破防了 而是圈外来借机车人了。 ...</blockquote>
+车就车吧 木柜子德不配位的热度
+
+*****
+
+####  wpcc  
+##### 24917#       发表于 2025-2-16 18:32
+
+<blockquote>晓色暮云 发表于 2025-2-16 17:57
+现在这场外的疯狂有种熟悉的v圈味道，电竞圈也没那么喜欢开盒吧，二游不了解
+
+现在四处出击的小鬼成分太复 ...</blockquote>
+一波人 id熟的很
+
+*****
+
+####  Lawliet.L  
+##### 24918#       发表于 2025-2-16 18:33
+
+柿本倒是像低配JZGG<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 24919#       发表于 2025-2-16 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440691&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-16 17:08</a>
+
+哎</blockquote>
+你邦何德何能跟这些相提并论，抬举了
+
