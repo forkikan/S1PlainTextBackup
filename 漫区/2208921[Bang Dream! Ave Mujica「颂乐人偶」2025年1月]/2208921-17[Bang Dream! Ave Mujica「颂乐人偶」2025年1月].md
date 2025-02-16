@@ -15667,3 +15667,86 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 
 武士道到底怎么看mygo和mujica，也许是个永远的迷了，第一部确实是创新了邦邦的关系，这已经是他们求生的极限，2020年之后bangdream基本上就是时刻准备解散，没想到创新之后火了起来。第二部剧本应该是一起写的，我认为是看到这边的走红之后误判局势，改了不少内容，导致独角兽出走，剧情更加狂野，也基本上失控了
 
+
+*****
+
+####  南宮凝香  
+##### 25103#       发表于 2025-2-16 22:57
+
+<blockquote>天空塔书记官 发表于 2025-2-16 22:54
+我是指的是观众眼中主观的“重要性”而不是是不是主角，额，是我表达的有问题
+
+</blockquote>
+誰更重要跟你推誰也沒關係呀
+
+你直接開人氣投票不就行了？
+
+*****
+
+####  liekong  
+##### 25104#       发表于 2025-2-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443302&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-16 22:55</a>
+
+武士道到底怎么看mygo和mujica，也许是个永远的迷了，第一部确实是创新了邦邦的关系，这已经是他们求生的极 ...</blockquote>
+我是觉得如果staff那边真的明白老中这边喜欢Mygo的点是什么的话，Mujica很多雷点都可以避免的，而实际上并没有
+
+*****
+
+####  swessia  
+##### 25105#       发表于 2025-2-16 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">首先亮屁股 灯睦爱
+
+爱音mygo我就感受到工具属性了，爱音的个人回全剧最差，杂鱼偶像番水平
+
+更别提手游剧情里的刻板印象了
+
+所以母鸡卡里爱音变工具人我不意外，就是觉得有点惨必须配个挺王
+
+相比之下灯在母鸡卡里都塑造才是噩梦级，原本的剧情对位是灯对祥，素对睦，海对希，另外两队都算有高光，然而灯喊玩组乐队后就没了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 25106#       发表于 2025-2-16 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443315&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 22:57</a>
+誰更重要跟你推誰也沒關係呀
+
+你直接開人氣投票不就行了？</blockquote>
+我也想开投票贴来着，但我不会啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  北条早苗  
+##### 25107#       发表于 2025-2-16 23:00
+
+鸡狗动画最让人难以理解的就是为什么同一个团队前后演出水平可以下滑到这个地步，狗动画里用镜头语言就能表达的情绪流，到了鸡动画很多时候都靠角色直接用台词来引爆，ccc复活那段长独白可以说完全是灾难
+
+*****
+
+####  天空塔书记官  
+##### 25108#       发表于 2025-2-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443302&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-16 22:55</a>
+武士道到底怎么看mygo和mujica，也许是个永远的迷了，第一部确实是创新了邦邦的关系，这已经是他们求生的极 ...</blockquote>
+不过就目前岛国的反应来看，这烂炒在那边也算是成功了吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25109#       发表于 2025-2-16 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443317&amp;ptid=2208921" target="_blank">liekong 发表于 2025-2-16 22:57</a>
+
+我是觉得如果staff那边真的明白老中这边喜欢Mygo的点是什么的话，Mujica很多雷点都可以避免的，而实际上 ...</blockquote>
+开播之前我预计的是各人孩子各人抱，没想到还是突出C团，作为商法的一部分的话，就完全可以理解了
+

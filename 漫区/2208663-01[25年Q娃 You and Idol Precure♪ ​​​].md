@@ -2807,3 +2807,16 @@ NANA但是是UTA
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  leleq  
+##### 526#       发表于 2025-2-16 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441379&amp;ptid=2208663" target="_blank">66367749 发表于 2025-2-16 18:48</a>
+
+那个穿浅蓝长袖衬衫睡衣的画面真有点幻视，我还回看了六花的确认只是颜色接近 ...</blockquote>
+带点闷骚的气质上确实<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过我上面说了staff还是控制了浓度的，要是没有妹妹这事相似度就要爆表了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
