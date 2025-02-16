@@ -13130,3 +13130,131 @@ B站评分最有趣的还是打分人数，4w人实在太多了，越来越期�
 
 现在一创的大祥老师比那种劣质二创还要无聊
 
+
+*****
+
+####  木板春香  
+##### 24864#       发表于 2025-2-16 17:05
+
+<img src="https://img.saraba1st.com/forum/202502/16/170447jt2wwbeaze3vwzeb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 17:04 上传
+
+ 说的这个UP主？
+
+*****
+
+####  cxj649  
+##### 24865#       发表于 2025-2-16 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440646&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 17:01</a>
+
+我这辈子都没想过就因为看个动画，就能搞出这么多事，畏惧了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我在二游圈和V圈看过无数次了
+
+*****
+
+####  南宮凝香  
+##### 24866#       发表于 2025-2-16 17:05
+
+<blockquote>wpcc 发表于 2025-2-16 16:31
+狗团漫画有没有的？</blockquote>
+我知道你想說什麼
+
+WSD 想搞以C代狗 那就搞
+
+我大不了就當個邦邦逃兵， 讓手遊永遠停在C團來前
+
+*****
+
+####  天空塔书记官  
+##### 24867#       发表于 2025-2-16 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440665&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-16 17:05</a>
+说的这个UP主？</blockquote>
+对
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 24868#       发表于 2025-2-16 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440667&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 17:05</a>
+我在二游圈和V圈看过无数次了</blockquote>
+我也是V圈老观众了，但就这能闹到墙外去也是真没见过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+nm这才第七集<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 24869#       发表于 2025-2-16 17:08
+
+<img src="https://img.saraba1st.com/forum/202502/16/170734b4zz4aaop7aapof2.jpg" referrerpolicy="no-referrer">
+
+<strong>D9U~2AG$E[]}U0JH$KBI%IX_tmb.jpg</strong> (429.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 17:07 上传
+
+ 哎
+
+*****
+
+####  天空塔书记官  
+##### 24870#       发表于 2025-2-16 17:09
+
+这也是一种互联网造神运动的反噬
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 24871#       发表于 2025-2-16 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440557&amp;ptid=2208921" target="_blank">wzm96816 发表于 2025-2-16 16:51</a>
+关于环境问题，当年10集诗超绊后我当时就说不要太假药二创入脑了， 前几个月这个楼里我反复说这话。但没 ...</blockquote>
+不看二创爽姐这集表现都没法洗，笑得实在太淫荡了，跟狗团死妈脸一对比实在太双标了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wzm96816  
+##### 24872#       发表于 2025-2-16 17:11
+
+<blockquote>borrowface 发表于 2025-2-16 17:01
+但是mujica第一集，还有手游里“烦恼的作业”卡面剧情确实就是按照欢喜冤家这个路数去描写爱音还有soyo的 ...</blockquote>
+从mygo动画狗团最后一次live后，官方说法，mygo故事告一段落，之后一集多一点其实是mujica剧情了，到现在为止相当于八集多一些。爱音出现所有目的都是剧情工具人，当年第十三集场外就已经有爱音的粉丝说第十三集爱音像个卖爱灯的挂件了，只不过声音也被镇压了，这楼里很多人当年追过的。
+
+鸡第一话那时只是为了在狗团聊mujica的话题，让常识人爱音推进话题，不过肯定算卖了一点，只不过是断头了。
+
+手游剧情还是推荐看每个乐团的主线。主线以外你都当平行世界或者营业模式就行。
+
+*****
+
+####  maritimus  
+##### 24873#       发表于 2025-2-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440700&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-16 17:09</a>
+
+不看二创爽姐这集表现都没法洗，笑得实在太淫荡了，跟狗团死妈脸一对比实在太双标了
+
+—— 来自 鹅球 v3. ...</blockquote>
+还是可以洗一下的，爽世的设定就是在go团才能做自己，爱啥表情就啥表情，在外面包括c团全是温柔微笑的虚假形象。看歌词笑是呼应了之前说的不理解灯的歌词，现在终于释怀了
+
