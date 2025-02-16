@@ -15467,3 +15467,67 @@ mujica头上的最大乌云不是祥爸吗<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  是谁的书画  
+##### 25085#       发表于 2025-2-16 22:39
+
+看到某位楼友的头像和爱音这个话题有一瞬间会突然想起冢本秀一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maritimus  
+##### 25086#       发表于 2025-2-16 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442856&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-16 22:09</a>
+
+贝斯带子压住头发了</blockquote>
+这是个动画，贝斯带子压住头发本身就是刻意的，编剧大手的一部分
+
+
+*****
+
+####  天空塔书记官  
+##### 25087#       发表于 2025-2-16 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442884&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:12</a>
+我想做个调查，请楼友按照看mygo时的第一印象投票，加减鹅都可以
+
+如果认为灯在动画中更重要的，在此层加减 ...</blockquote>
+样本量太少了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  依旧ing  
+##### 25088#       发表于 2025-2-16 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443068&amp;ptid=2208921" target="_blank">灵椿 发表于 2025-2-16 22:32</a>
+
+骗鹅是吧
+
+不过这楼有对爱音和灯素希的互动没什么看法但又觉得mygo被狠狠垫了一波的人吗？毕竟除了没多少 ...</blockquote>
+有，我不看场外讨论一刷时候都没对前几集“冷落爱音”有任何具体感知，直到七话live结束后是爱音来说“还有mygo的彩排”，这句话一出我是真的觉得mygo被毁了。
+
+第七话拍的所有人人均祥子俘虏我都没意见，go团本来就建立在ccc解散的伤痛之上，五个人在go团报团取暖，合理。像轮符雨一边怀念c团美好一边知道回不去过去、“现在这样就好”太有MyGO的醍醐味了，我很喜欢。现在你柿本神医把这层伤痛直接治好了，那你得给我新的团队精神啊，总不能真的是“MyGO再怎么说也已经组好了，解散总归不太合适”吧？
+
+让且仅让c团5个人开live和解，go的其他成员就在台下看着，最后还是台下的人提醒五个c团成员还有go的彩排，这种剧情真的太灾难了
+
+*****
+
+####  aptx8285144  
+##### 25089#       发表于 2025-2-16 22:45
+
+已经有人考证这话睦家有个玩偶很像独角兽的头像了，这下柿本的罪证又增加了一枚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 25090#       发表于 2025-2-16 22:45
+
+周二先行图出来后不知道又是怎样的腥风血雨啊<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+不过别的不说，阿b上多的一张图目前可以暂定是女女关系性场景的相关图吧<img src="https://static.saraba1st.com/image/smiley/carton2017/478.png" referrerpolicy="no-referrer">
+

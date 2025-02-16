@@ -739,3 +739,23 @@ Gj3uFAUaEAAGlKf.jpg
 
 <img src="https://img.saraba1st.com/forum/202502/16/221304gd6j0q4j3n0d66vj.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOJO42  
+##### 167#       发表于 2025-2-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442951&amp;ptid=2210366" target="_blank">东方定助 发表于 2025-2-16 22:20</a>
+
+感觉不如仁王......怪设</blockquote>
+这次应该没雨宫庆太参与了吧
+
+*****
+
+####  uponutopia  
+##### 168#       发表于 2025-2-16 22:39
+
+怪设不如仁王是什么很丢脸的事情吗？仁王在很多方面都是同类型的天花板，比如怪设这块儿大概完爆5个鬼泣5吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">就算卡表新鬼武者做不过仁王也不丢人，而且现在爆的东西太少没什么好说的。
+
+买相不行倒是真的，没想到待遇和荒野差这么多，看上去资源甚至比不上龙信2。以前总觉得忍组的东西卖相太差看上去一股LOW味，现在这育碧的影和新鬼看上去也不承多让
+
