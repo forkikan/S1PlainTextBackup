@@ -784,3 +784,23 @@ https://m.bilibili.com/opus/1033632735051120642
 反正都是猴子都用棍(战国无双</blockquote>
 秀吉不是已经被猴哥收作小弟了吗（无双大蛇），烧个灵基请大圣上身也不是不能有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 16348#       发表于 2025-2-16 20:00
+
+ 本帖最后由 岸浪白野 于 2025-2-16 20:02 编辑 
+
+今年初出的3张卡都是一样的风格，参考文献和侧面全采用全都体现，就会成了野史集合体，后面出的人物也怕会是这样风格吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jackyhuang  
+##### 16349#       发表于 2025-2-16 20:04
+
+应该是菌皇终于找到第三部怎么写的方向了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
