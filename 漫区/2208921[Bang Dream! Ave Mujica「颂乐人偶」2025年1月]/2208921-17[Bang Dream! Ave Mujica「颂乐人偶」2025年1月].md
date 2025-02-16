@@ -13908,3 +13908,87 @@ ylg太多了 不懂真正的百合是什么
 
 月之森学生会可不是什么好地方
 
+
+*****
+
+####  北条早苗  
+##### 24935#       发表于 2025-2-16 18:44
+
+爽姐笑那段不是🍊演技烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 24936#       发表于 2025-2-16 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441351&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-16 18:43</a>
+月之森学生会可不是什么好地方</blockquote>
+花女和羽丘的学生会呢
+不过日后🐕🐔团这一届进三大校学生会时候
+好像是最正经的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 24937#       发表于 2025-2-16 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440987&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-16 17:54</a>
+
+我压根也没认为过有什么黑祥白祥这么一说。这个人物我觉得7集前内核一直挺统一的，那就是超高自尊与绝对自 ...</blockquote>
+不同意，她创建C团的原因不是为了用音乐感动所有人。
+
+你忽略了最大的背景，祥子实在母亲死后才有动机创建C团的。
+
+但事实上C团没有解决她最深处的需求，所以C团才会解散，所以她才说"只要组乐队就能幸福了吗"
+
+*****
+
+####  Alicest  
+##### 24938#       发表于 2025-2-16 18:49
+
+月之森听白皇的，学生会只是摆设啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 24939#       发表于 2025-2-16 18:50
+
+在我看来真有那么大的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+回看水魔楼这才哪到哪啊，甚至没有蛰楼当时的气氛绝望。更别提当年V圈还是鼎盛，V版流量力压群雄的时候。
+
+根本就没摸到真崩盘的阶段。
+
+*****
+
+####  枪聆弹语  
+##### 24940#       发表于 2025-2-16 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排毒血又是什么梗啊
+
+*****
+
+####  6030sylar  
+##### 24941#       发表于 2025-2-16 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439315&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-16 13:23</a>
+
+前后都呼应不上了</blockquote>
+后面还有三个人要收，只能机械降神让祥子瞬间懂了
+
+*****
+
+####  cxj649  
+##### 24942#       发表于 2025-2-16 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67441395&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-16 18:50</a>
+在我看来真有那么大的事吗
+
+回看水魔楼这才哪到哪啊，甚至没有蛰楼当时的气氛绝望。更别提当年V圈还是鼎盛 ...</blockquote>
+日常“年轻初”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2734,3 +2734,15 @@ wink这装束饰品确实容易幻视<img src="https://static.saraba1st.com/imag
 
 传奇偶像是蓝神役吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 520#       发表于 2025-2-16 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440170&amp;ptid=2208663" target="_blank">leleq 发表于 2025-2-16 15:53</a>
+她好美
+
+本集浓度比预想的要低把nana的变q娃的理由拆成了姐妹两个，应该是故意降低浓度的。</blockquote>
+那个穿浅蓝长袖衬衫睡衣的画面真有点幻视，我还回看了六花的确认只是颜色接近<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

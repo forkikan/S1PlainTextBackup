@@ -664,3 +664,34 @@ https://m.bilibili.com/opus/1033632735051120642
 日本早就出了恋姬啊....给爱莎送巧克力不是再正常不过了嘛</blockquote>
 但是昭烈祠是真的有人放巧克力啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 16337#       发表于 2025-2-16 18:49
+
+<blockquote>シャル 发表于 2025-2-16 18:34
+其实观音本相是男的
+
+那么送情人节巧克力给女相化身也不是不行？TS女菩萨啊 ...</blockquote>
+观世音信仰在各国各时代的形象各不相同吧，魏晋时期刚入中国还是印度同款男菩萨，唐宋时期可能为了亲民就变成女菩萨。
+
+话说搜了一下日本的观音信仰，有什么见性寺啊龙音寺的特供版，很难说不是渎神...
+
+*****
+
+####  angelooo  
+##### 16338#       发表于 2025-2-16 18:49
+
+太傻逼了，还好没抽
+
+
+*****
+
+####  cckuku  
+##### 16339#       发表于 2025-2-16 18:54
+
+唉我超，难道在日本人的世界观里，观音并不是一个什么不可触摸的角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉真的是⏰和本子的文化差异了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
