@@ -4494,3 +4494,18 @@ live做得不太好
 
 前面的还能给+0，这集太烂了，-2
 
+
+*****
+
+####  吴怀在  
+##### 438#       发表于 2025-2-16 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436342&amp;ptid=2246159" target="_blank">一心而用 发表于 2025-2-15 23:51</a>
+
+前7话好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人</blockquote>
+日本人真是太喜欢包寿司了
+
