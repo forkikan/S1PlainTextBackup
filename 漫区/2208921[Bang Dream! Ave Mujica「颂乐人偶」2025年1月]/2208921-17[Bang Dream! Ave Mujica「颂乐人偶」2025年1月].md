@@ -12040,3 +12040,187 @@ syl同样化身【极端爱音厨】开始无限滑坡也是能收货最多小�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江口夕  
+##### 24774#       发表于 2025-2-16 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439980&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:23</a>
+这么看你的预测水平和童厕差不多呀，说话也是顾左右而言他，不知道优越感哪里来呀。不要真批评了你又开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就说大环境是不是吧。现在环境很好，对对对
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  怀沙汨罗  
+##### 24775#       发表于 2025-2-16 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439967&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:21</a>
+什么叫贷款剧情堵嘴，我不是说了真没去看再滑坡不迟，当时剧情演到真没去看么，看看时间是几号的。你滑坡 ...</blockquote>
+肯定要输出你啊，至少我留一个档可以看看某个双重标准的家伙不好吗？还是说又开始转移话题了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 24776#       发表于 2025-2-16 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439984&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:24</a>
+肯定要输出你啊，至少我留一个档可以看看某个双重标准的家伙不好吗？还是说又开始转移话题了？
+
+—— 来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜错我是烂啊，但是你不讨论剧情，在这输出我是不是更烂
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  GBLMikuHatsune  
+##### 24777#       发表于 2025-2-16 15:26
+
+感觉基本死刑了呀，昨天看了会范式，上来就是直接劝退一部分观众让大家不用再看了，后续又说了一次第七集可以告别了
+
+这种情况下还能翻盘的动漫以前有过么，就剩6集、风评在低谷、还有至少三个角色的故事完全没展开，怎么想都是地狱级的难度啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 24778#       发表于 2025-2-16 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439992&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:26</a>
+我猜错我是烂啊，但是你不讨论剧情，在这输出我是不是更烂
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上 ...</blockquote>
+那倒不会，至少我是就事论事没有给自己立牌坊，总比某些一边喷粪一边还捂鼻子装作和他没关系的人好吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 24779#       发表于 2025-2-16 15:28
+
+ 本帖最后由 江口夕 于 2025-2-16 15:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440003&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:27</a>
+那倒不会，至少我是就事论事没有给自己立牌坊，总比某些一边喷粪一边还捂鼻子装作和他没关系的人好吧？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说大环境不好就是喷粪了，绝了。你就说环境好不好吧，一句话，说句现在讨论环境很好我立马滚蛋
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  zuckmydik  
+##### 24780#       发表于 2025-2-16 15:29
+
+偷的nga的之没办法车编剧的原因，就是因为角色在一个诡异角度上其实很符合逻辑
+
+这种角色豹变还不是类似于第七集大祥和木子米来到了会员制餐厅，然后素食和灯当服务员给他们上各种大便。
+
+如果真的是这种剧情，绝大部分人可以立马切割角色车编剧，因为这些人可以很自信的说出:“长崎素世怎么可能把屎拉到意面上然后让高松灯拌了喂给丰川祥子吃！编剧脑子有屎吧？”
+
+但是现在，观众可以自信的说出“Soyo根本不可能在Mygo团一副司马脸，到了C团就发春了！”“灯就不可能把爱音当空气突然变成大祥的舔狗！”“大祥就不可能随口给睦道歉两句不给go团3c道歉就把事情糊弄过去！”，然后对于这种“极度ooc”的情节发展欢乐地骂编剧吗？
+
+除了真能当义人的立希厨，都显然不能吧。编剧只是把mygo13集结束后最差劲，但是确实不怎么算ooc的剧情写出来了。
+
+*****
+
+####  cccpprc  
+##### 24781#       发表于 2025-2-16 15:30
+
+<blockquote>zhzij111 发表于 2025-2-16 08:58
+祥子风评本来就已经烂完，第七集她等于被编剧按地上把原来人格杀掉了，搞得现在黑祥都没有祥厨出来说话，拿 ...</blockquote>
+？啥爽的风评回来了？有这事？
+
+
+*****
+
+####  怀沙汨罗  
+##### 24782#       发表于 2025-2-16 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440009&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:28</a>
+说大环境不好就是喷粪了，绝了。你就说环境好不好吧，一句话，说句现在讨论环境很好我立马滚蛋，你以为我 ...</blockquote>
+讨论环境不好，但你这种先喷粪aoe的没资格说大环境——这点你明白吧？这就是我对你一以贯之的观点啦。<img src="https://p.sda1.dev/22/b11141c54af21fd2e27f84f1c7331bfe/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 24783#       发表于 2025-2-16 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440025&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:31</a>
+讨论环境不好，但你这种先喷粪aoe的没资格说大环境——这点你明白吧？这就是我对你一以贯之的观点啦。
+
+ ...</blockquote>
+你引用的话是我说过最正确的话，什么猜测剧情有啥用，这才是预测最准确的，确实除了排泄戾气一无是处
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  MASKA-1  
+##### 24784#       发表于 2025-2-16 15:33
+
+现在的问题是，观众对后续内容对staff没有任何期待和信任可言，信心被完全摧毁了。而这份期待和信任本来是通过go的13集和一年半空窗期积累下来的，是非常深厚的。如今彻底破灭之后，观众和官方之间只有比陌生人还冷漠的隔阂，观众只会用最无情的态度去审视后面的东西。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  怀沙汨罗  
+##### 24785#       发表于 2025-2-16 15:35
+
+ 本帖最后由 怀沙汨罗 于 2025-2-16 15:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440038&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 15:33</a>
+你引用的话是我说过最正确的话，什么猜测剧情有啥用，这才是预测最准确的，确实除了排泄戾气一无是处
+
+— ...</blockquote>
+哈哈哈哈哈哈，怎么转移话题了？最先暴露素质的不是你吗？你在这好像站在高地上指指点点，实际上啥有效意见都没输出，怎么有资格指责讨论环境？说的你不在其中一样。还是那句话，捂着鼻子的不一定没拉，特别你还拉最大一坨。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 24786#       发表于 2025-2-16 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67440052&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-16 15:35</a>
+哈哈哈哈哈哈，怎么转移话题了？最先暴露素质的不是你吗？你在这好像站在高地上指指点点，实际上啥有效意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又开始哈哈致胜法了，和小学生一样，告辞
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  zuckmydik  
+##### 24787#       发表于 2025-2-16 15:37
+
+<blockquote>江口夕 发表于 2025-2-16 15:33
+你引用的话是我说过最正确的话，什么猜测剧情有啥用，这才是预测最准确的，确实除了排泄戾气一无是处
+
+— ...</blockquote>
+拿着自己胡编乱造的假药当真事，真到了片子烂了开始怪大环境不行只有自己的品味最嗯，但是怎么行又说不出个一二三
+
+还跟楼上的吠舍同伴互刷起鹅来了
+
+哦对了，还是祥厨
+
+吠舍味溢出来了😓
+
+*****
+
+####  天空塔书记官  
+##### 24788#       发表于 2025-2-16 15:37
+
+只有吵架的时候，
+
+你楼才会有这么多人活跃啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2653,3 +2653,14 @@ Q娃内斗还不容易吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  HGCG+  
+##### 512#       发表于 2025-2-16 15:28
+
+这个侧眼美如画
+<img src="https://p.sda1.dev/22/7534a3f352cb4aa21b96c926859d6c8c/IMG_CMP_176697362.png" referrerpolicy="no-referrer">
+
+— from Sony 901SO, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
