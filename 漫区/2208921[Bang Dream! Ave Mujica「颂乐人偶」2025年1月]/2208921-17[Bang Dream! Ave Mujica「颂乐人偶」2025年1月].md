@@ -10347,3 +10347,68 @@ mujica开局觉得祥子吊炸天&gt;失望
 </blockquote>
 动画热度只要数字不要口碑的 核心还是能接受企划所有内容的人留下来爆米 动画只是广告 核心是中人
 
+
+*****
+
+####  wpcc  
+##### 24621#       发表于 2025-2-16 10:28
+
+所以为什么鸡是抄海猫的 武士道高层也很喜欢？
+
+*****
+
+####  wpcc  
+##### 24622#       发表于 2025-2-16 10:29
+
+<blockquote>千千千千鸟 发表于 2025-2-16 10:27
+因为说白了小祥就是mygo+mujica这两个片的核心，丰川祥子崩了两个团都崩了，只要小祥不是个废人，观感多 ...</blockquote>
+独角兽喜欢看这种废人吧大概 黑祥厨都给他干死了
+
+*****
+
+####  thisisaspider  
+##### 24623#       发表于 2025-2-16 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438137&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-16 10:25</a>
+
+如果WSD 只要核心現地民，
+
+那就不用搞一套那麼多宣發的動畫了…….</blockquote>
+所有日本企划引起的事故，最后都能滑坡到
+
+1. 日本人做错事只要土下座就行
+
+2. 资方不关心中国市场
+
+3. 制作组有反中倾向
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烂片雷达  
+##### 24624#       发表于 2025-2-16 10:35
+
+说不定小岛上真有丰川定治埋下的十吨黄金，只有他的私生女知道这个秘密，小祥去岛上找初华是为了从初华哪儿钓到黄金的消息
+
+*****
+
+####  Nana7ue  
+##### 24625#       发表于 2025-2-16 10:36
+
+<img src="https://img.saraba1st.com/forum/202502/16/103555cthby1yhyhm6iyyi.jpg" referrerpolicy="no-referrer">
+
+<strong>20250215_213458.jpg</strong> (104.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/16/103556te2ggztuvj2bbggt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-15-21-35-00-239_com.twitter.android-edit.jpg</strong> (106.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-16 10:35 上传
+

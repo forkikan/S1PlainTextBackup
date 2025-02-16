@@ -4624,3 +4624,11 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 
 官方app好像恢复可以连续回答了，虽然肯定还是有限制，但是比起固定一小时一次还是好太多了。
 
+
+*****
+
+####  千千千千鸟  
+##### 1883#       发表于 2025-2-16 10:30
+
+在类脑里学了几天然后用酒馆做了各种尝试，感觉单用R1效果还是挺一般的，感觉搞瑟瑟这块要先放一放了，等模型再进化吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
