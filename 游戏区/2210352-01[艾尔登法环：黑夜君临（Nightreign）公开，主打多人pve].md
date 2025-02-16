@@ -2757,3 +2757,13 @@ Xbox也开始疯狂断线了<img src="https://static.saraba1st.com/image/smiley/
 
 法环极速版，很难评，直播都把我看困了
 
+
+*****
+
+####  usodakedo  
+##### 297#       发表于 2025-2-17 02:08
+
+不太玩肉鸽游戏，不过之前我有个朋友有个评价我觉得说的有点道理，这游戏篇两晚基本能把人物成型的话，总觉得第三晚应该再加点内容，让玩家体会到构筑成型后的爽感，又或者加个纯刷boss的模式
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
