@@ -4321,3 +4321,12 @@ aiai这状态真无敌了。爽死了。
 
 2025-2-16 21:14 上传
 
+
+*****
+
+####  真爱与热情  
+##### 26965#       发表于 2025-2-16 23:25
+
+看了这抽象第7集之后甚至去下了游戏玩玩海星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+倒是为啥国际服只有英文，好歹给个日语呢
+

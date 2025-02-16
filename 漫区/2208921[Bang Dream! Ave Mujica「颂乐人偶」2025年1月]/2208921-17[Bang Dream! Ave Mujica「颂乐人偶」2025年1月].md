@@ -16025,3 +16025,111 @@ soyo和立希是家庭、人际关系。灯则是对自我否定。C团存在时
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  北条早苗  
+##### 25132#       发表于 2025-2-16 23:27
+
+鸡动画里的灯倒是不ooc，她和大祥都是满脑子只有自己的人，不同的是灯的底色是我全都要，大祥遇到事情先开跑
+567最灾难的是狗这参团几乎是毫无意义的，铺垫了这么多不如爽姐的月之森擒拿术和一句我全知道了。我原以为狗会用音乐修正大祥，现在看来只能说整个剧组都不相信音乐了，最后的结果就是放出如此灾难的ccc重聚live
+
+*****
+
+####  天空塔书记官  
+##### 25133#       发表于 2025-2-16 23:30
+
+寿司没法当饺子吃，虽然两者都蘸醋
+
+大概就是这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  maritimus  
+##### 25134#       发表于 2025-2-16 23:30
+
+感觉素世开盒技能不行，开了一季半还不如爱音一次开到家。如果一开始就拜托爱音找人是不是第一集就可以c团大和解
+
+*****
+
+####  xyion  
+##### 25135#       发表于 2025-2-16 23:31
+
+觉得爱音受委屈的观众如此多声量如此大，肯定有多个原因，身边统计学说俩个不常说的：
+
+1、讨厌祥子会加深对爱音的共情，其实国内对第五话的理解就和日本那边很不一样，再加上第七话祥子的塑造也一言难尽。
+
+2、没觉得爱音受多大委屈的人很多并不会发声，因为不提爱音受委屈鸡的4-7也很烂，懒得为烂片汴。
+
+*****
+
+####  aptx8285144  
+##### 25136#       发表于 2025-2-16 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443527&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-16 23:22</a>
+
+借爱音的由头来发泄对剧集的不满罢了，毕竟很多观众已经带入不了剩下八个神人了，看着还是爱音更容易共情 ...</blockquote>
+是的，我刚才说的“积怨已久”也是和这个代入不了那么多神人有关（你毕竟终究只是少女乐队番，当然，现在提这点已经是越来越讽刺），<strong>毕竟第五话末尾灯说出那句话开始我注意到爱音党已经有愤愤不平的情绪了，当然，我那时候第一反应还是这种邀请不是把大祥当真飞鸟第二吗？</strong>
+
+现在回头看，很多路到十字路口就是地狱难度的选择，独角兽和柿本要想让大部分观众满意是需要极高水平的，而他们驾驭不了
+
+*****
+
+####  cxj649  
+##### 25137#       发表于 2025-2-16 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">国内寿司是芥末酱油吧
+
+
+*****
+
+####  一心而用  
+##### 25138#       发表于 2025-2-16 23:32
+
+<img src="https://p.sda1.dev/22/3b5dafd70b7e1c4d467d3c04fba5c2b5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/28541fa9f229bd06be5c3745eef04f96/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 25139#       发表于 2025-2-16 23:33
+
+<img src="https://p.sda1.dev/22/a6de3ceeceb091c83377a7d1731da813/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/121deed5d5edadfc0394a8025f91f9ae/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25140#       发表于 2025-2-16 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443595&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-16 23:31</a>
+国内寿司是芥末酱油吧</blockquote>
+我的，醋是做寿司的时候放的，吃的时候蘸酱油，光想着寿司醋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  梅杜莎  
+##### 25141#       发表于 2025-2-16 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67443329&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 22:58</a>
+
+我也想开投票贴来着，但我不会啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+别开，开了铁定变人气投票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 25142#       发表于 2025-2-16 23:36
+
+红迪梗图
+<img src="https://p.sda1.dev/22/acde18dd3c20c305f11fd05075abd4b2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3305b5ce819f1f2ebe6e57a7095e081b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/40fcd75f121312b98e2f31dfc1ecf6c4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3305b5ce819f1f2ebe6e57a7095e081b/image.jpg" referrerpolicy="no-referrer">
+

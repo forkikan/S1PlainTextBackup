@@ -2838,3 +2838,28 @@ NANA但是是UTA
 
 不是，又是童年小回忆又是给予勇气，七七您是要竞争挺好萌吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在七七身上感受到了一丝丝重力
 
+
+*****
+
+####  Piano-Forest  
+##### 529#         楼主| 发表于 2025-2-16 23:31
+
+[https://x.com/HanyuXv/status/1890913593723404547](https://x.com/HanyuXv/status/1890913593723404547)
+
+本日放送した｢キミとアイドルプリキュア♪」にてキュアウインクの変身バンク担当させて頂きました。長い歴史のあるプリキュアの変身バンクを任せて頂き本当に嬉しいです！
+<img src="https://p.sda1.dev/22/c673426a2c065e1e44173e122a281aea/20250216_232713.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sugimoto_mi_ho_/status/1890922147767284212](https://x.com/sugimoto_mi_ho_/status/1890922147767284212)
+
+キミとアイドルプリキュア♪
+
+3話
+
+ウインクデビュー回👏😭👏
+
+ご視聴ありがとうございました✨💙✨
+<img src="https://p.sda1.dev/22/07651337b41c8ad7593843d8f16bcc4d/20250216_232646.jpg" referrerpolicy="no-referrer">
+
+#ValentinesDay
+<img src="https://p.sda1.dev/22/e2d184244e2b5f5903bbf2f45bd04dd8/20250216_232706.jpg" referrerpolicy="no-referrer">
+
