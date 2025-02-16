@@ -10057,3 +10057,40 @@ mujica开局觉得祥子吊炸天&gt;失望
 第九集重组ccc 结局离开主唱初华 和真初华同居
 这剧本太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 24594#       发表于 2025-2-16 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437926&amp;ptid=2208921" target="_blank">千千千千鸟 发表于 2025-2-16 09:46</a>
+作为祥厨我比较失望的是第七集铁门拥抱之后小祥还是没有硬起来最后还是被立希推着走 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是铁门了怎么硬，就算rape也要遵守基本法
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  千千千千鸟  
+##### 24595#       发表于 2025-2-16 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437940&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-16 09:49</a>
+
+都是铁门了怎么硬，就算rape也要遵守基本法
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版  ...</blockquote>
+妹抖不是每天都来开门让她进去吗，都确认睦头的心意了还在程门立雪就有点难蹦
+
+
+*****
+
+####  江口夕  
+##### 24596#       发表于 2025-2-16 09:56
+
+ 本帖最后由 江口夕 于 2025-2-16 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437945&amp;ptid=2208921" target="_blank">千千千千鸟 发表于 2025-2-16 09:50</a>
+妹抖不是每天都来开门让她进去吗，都确认睦头的心意了还在程门立雪就有点难蹦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦门立雪不就是让对方知道自己知错了，你说卖惨也行，惩罚自己也行，对方没原谅那肯定不能前功尽弃。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
