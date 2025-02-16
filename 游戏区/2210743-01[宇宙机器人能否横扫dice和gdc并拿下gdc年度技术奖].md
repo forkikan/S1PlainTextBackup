@@ -1249,3 +1249,18 @@ rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过
 哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每 ...</blockquote>
  https://b23.tv/vPXwZRq
 
+
+*****
+
+####  gane1010  
+##### 112#       发表于 2025-2-16 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424114&amp;ptid=2210743" target="_blank">kuarwbwe 发表于 2025-2-14 15:39</a>
+
+那我估计gdc年度也稳了。
+
+这下子要不是黑神话截胡了金摇杆，那今年又是一个大满贯作品了。
+
+ ...</blockquote>
+18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的游戏 然后搞笑的是各种奖项就是比不过战神4  <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">  
+
