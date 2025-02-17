@@ -1217,3 +1217,12 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 现在任务点交互的bug还是没修好啊，做到最后一个发射导弹的任务有个锁死活没法交互<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5781#       发表于 2025-2-17 14:27
+
+<img src="https://p.sda1.dev/22/fe9b5e9af7ca23f28a8a49044a630673/20250217_142543.jpg" referrerpolicy="no-referrer">
+老外又开始了，教唆箭头往丛林球上放新怪
+

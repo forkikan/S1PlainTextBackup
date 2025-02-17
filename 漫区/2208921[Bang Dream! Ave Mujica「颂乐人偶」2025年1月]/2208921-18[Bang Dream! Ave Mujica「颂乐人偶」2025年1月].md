@@ -4171,3 +4171,67 @@ mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote
 本质一拨人洗来洗去罢了 b站工作人员从管人 电竞 手游 动画 都是那几个人在带节奏烂抄 所以b站这几个区也 ...</blockquote>
 所以我只能说别这时候冲的爽，下次看到一起冲的人会冲你推的时候就麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以我选择不冲，不想吃回旋镖（
 
+
+*****
+
+####  595505568  
+##### 25547#       发表于 2025-2-17 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447975&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-17 14:13</a>
+蜜柑要上位不如要武士道真的复活C团主推，这样她就能真的抱上大腿了</blockquote>
+那确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，C团现在看下来是大人原因留在手上的底牌
+
+*****
+
+####  怀沙汨罗  
+##### 25548#       发表于 2025-2-17 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447920&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:07</a>
+错误的 爱音的同情牌是切入点。为什么不喷爱音 他不是角色吗 ？
+
+所有的路人有喷爱音的吗 没有，那不得了 ...</blockquote>
+那你得问wsd的神人监督神人剧本为什么花大力气写的写一个烂一个。为什么花大力气抽的祥子陀螺代入不了，为什么花大力气推的c团复活反而激化矛盾，只有一个人物彻底扁平化的工具人观感还算正常。那问题来了，你车的时候会不会挑一个趁手的工具呢？那这些人都是兵器厨吗？这些人不会在乎所谓的二偶圈规矩，他们只知道片子烂了需要发泄，就这么简单。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 25549#       发表于 2025-2-17 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448020&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 14:18</a>
+
+所以我只能说别这时候冲的爽，下次看到一起冲的人会冲你推的时候就麻了，所以我选择不冲，不想吃回旋镖（ ...</blockquote>
+要冲只能冲独角兽或者让独角兽写大纲的高层 mujica这个海猫是怎么抄出来把所有逻辑搞崩的呢
+
+*****
+
+####  wpcc  
+##### 25550#       发表于 2025-2-17 14:22
+
+所以真正的爱厨发现自己喜欢了两年的摄像头被人改成冲锋枪的心情是什么哈哈哈哈哈哈想到就高潮了 追原创就是这里爽
+
+*****
+
+####  zhoujin8584  
+##### 25551#       发表于 2025-2-17 14:22
+
+<blockquote>ddy2811 发表于 2025-2-17 14:06
+但只是这样的话点不炸啊上一季里遇到状况了就真的人不来了的</blockquote>
+毕竟灯皇是团魂，mygo说白了确实是灯皇想继续那就能一辈子，而且以灯祥的关系性，灯反而在第二季的go团练习保持全勤，做到这份上谁去戳破反而可能是炸团首锅了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 25552#       发表于 2025-2-17 14:23
+
+认真讨论3月上海快闪还有人去吗 会破发的话我就不去了
+
+
+*****
+
+####  aptx8285144  
+##### 25553#       发表于 2025-2-17 14:25
+
+种命里密涅瓦号最当人的舰长给狐狸陪葬了（你说这是爱的成分多一点还是工具选择多一点，都有吧），所以恪尽职守并为团队着想并不一定会有好的结局，因为你的权力不够，知道的秘密不够多
+

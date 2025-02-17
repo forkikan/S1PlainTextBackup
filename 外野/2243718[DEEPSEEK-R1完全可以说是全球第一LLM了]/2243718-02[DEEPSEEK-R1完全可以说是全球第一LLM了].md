@@ -4786,3 +4786,18 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 派欧云的一直非常正式的自我介绍，新开了十几个对话一模一样
 只能用其他ds破完甲再切换回去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mp5  
+##### 1899#       发表于 2025-2-17 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445825&amp;ptid=2243718" target="_blank">DeepFishing 发表于 2025-2-17 10:34</a>
+
+我跑了全量的R1，2.22bit感觉还行，问题是全量放进8*4090 48G不知道能不能获得足够的加速，CPU+GPU混合跑速 ...</blockquote>
+每秒10多token, 这速度的确可以了
+
+不过看过量化版本和非量化版本的比较, 差别还是挺明显的
+
+特别是编程上, 全血版基本可以顶一个中级水平的程序员
+
