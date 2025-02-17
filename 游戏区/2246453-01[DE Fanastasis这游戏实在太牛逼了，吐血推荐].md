@@ -860,3 +860,11 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 你是不是直接去海底隧道了？新人走异种洞窟——王国洞窟的线比较好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">发现海岸有岔路了，之前是一竿子捅到沉船BOSS那了
 
+
+*****
+
+####  秦南心  
+##### 69#       发表于 2025-2-17 21:16
+
+听起来还可以
+
