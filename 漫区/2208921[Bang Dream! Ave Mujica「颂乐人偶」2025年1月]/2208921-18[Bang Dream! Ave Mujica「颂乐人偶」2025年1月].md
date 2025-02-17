@@ -8943,3 +8943,15 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">讲道理卖爱祥是个高明之举，甚至早就可以开始卖了.这么搞可以大幅冲淡爱音之于CCC的外人感，我的朋友们丢下我转投她们的老朋友了 与 我和我的朋友们一起去拯救我们的朋友 是两种截然不同的观感
 
+
+*****
+
+####  diectt  
+##### 25982#       发表于 2025-2-18 02:10
+
+第一季是祥和睦不愿意重建c团，所以另外3人重建狗团做替代品
+
+第二季就应该是素立灯不愿意重建c团，所以另外2人重建鸡团做替代品
+
+多工整多对称<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
