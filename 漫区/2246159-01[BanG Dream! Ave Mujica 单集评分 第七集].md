@@ -4615,3 +4615,26 @@ LIVE要表达的情绪我是理解到了，但是表达的方式实在不怎么�
 
 +2还是没什么问题的，这片只能说只要不做Mujica，质量还是挺稳的。
 
+
+*****
+
+####  diectt  
+##### 449#       发表于 2025-2-17 18:16
+
+本来就不看好，想等完结一起补来着，看这么热闹没忍住补了
+
+不行，太乐了，笑的我合不拢嘴，绝对要+2
+
+
+*****
+
+####  cxj649  
+##### 450#       发表于 2025-2-17 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450447&amp;ptid=2246159" target="_blank">diectt 发表于 2025-2-17 18:16</a>
+
+本来就不看好，想等完结一起补来着，看这么热闹没忍住补了
+
+不行，太乐了，笑的我合不拢嘴，绝对要+2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这番补番和追番体验是不一样的
+

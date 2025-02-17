@@ -6834,3 +6834,82 @@ mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效�
 —— ...</blockquote>
 又在拉表，你真是数字的奴隶啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来告诉我85不是高是低吗？日本人觉得85好评，是很低的数字吗？你不管再怎么给数据下定义，这个也是良作的标准了，上午我就在说这一集很大程度上是中日思路的差别，你非得按心思解读数据，尊重你找到的数据吗？
 
+
+*****
+
+####  零壹贰叁  
+##### 25804#       发表于 2025-2-17 18:18
+
+灯祥情书最后也收的烂啊
+我是觉得不该用成人歌和春日影结束
+因为这两首歌其实表达的都是ccc时期的美好而不是说再见
+灯祥在这蓄力那么久，从mygo结尾的我成团之后想交笔记本用歌词传递说不出情感，和贴便利贴希望你幸福，怎么能是改词版人类歌的“想挽留”这种以及春日影的“请不要离开我”？
+
+纸条上写的不是很好吗“我不是想要回到过去而是想和你一起前行”，结果7集一出来真的回到过去了，哪有前行啊？
+
+
+*****
+
+####  ddy2811  
+##### 25805#       发表于 2025-2-17 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449232&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 16:13</a>
+
+汤武革命 比 宁有种乎 早了六百年吧 时间顺序就错了</blockquote>
+所以宁有种乎是汤武革命的发展，是由中下层民众主动提出的口号
+
+*****
+
+####  天空塔书记官  
+##### 25806#       发表于 2025-2-17 18:22
+
+额，现在放学了，还要补历史吗
+
+上晚自习 ? <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 25807#       发表于 2025-2-17 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450451&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-17 18:18</a>
+
+灯祥情书最后也收的烂啊
+
+我是觉得不该用成人歌和春日影结束
+
+因为这两首歌其实表达的都是ccc时期的美好而不 ...</blockquote>
+ 和祥子一起继续前行啊，再续前缘啊
+
+*****
+
+####  是谁的书画  
+##### 25808#       发表于 2025-2-17 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450451&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-17 18:18</a>
+
+灯祥情书最后也收的烂啊
+
+我是觉得不该用成人歌和春日影结束
+
+因为这两首歌其实表达的都是ccc时期的美好而不 ...</blockquote>
+当你回听超诗绊的时候才是感觉一个巨大的回旋镖直冲面门，算了狗已经烂了，现在看到是纯纯的回味啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说🐧纯渣女的，对谁都来舍不得你走，想传达给你这一套。
+
+*****
+
+####  零壹贰叁  
+##### 25809#       发表于 2025-2-17 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">牛魔的我昨为灯祥党想看的复合也不是这种啊
+
+*****
+
+####  滑稽Captain  
+##### 25810#       发表于 2025-2-17 18:25
+
+高松灯的底层逻辑确实是我全都要，不然go ep9也不会闹解散了
+
