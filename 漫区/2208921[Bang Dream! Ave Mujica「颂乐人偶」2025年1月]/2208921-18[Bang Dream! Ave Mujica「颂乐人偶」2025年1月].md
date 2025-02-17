@@ -3552,3 +3552,80 @@ mujica剧本定的太早了 来不及改成爱音大女主了
 
 虽然男sy睡粉消息频传，但男sy的偶像化进度比女sy差远了(不是没有，只是差远)，可能对男sy肉体沉迷的女宅宅就还好，宅男要去搞正统偶像可能带点对现充女人的恐惧，女宅宅去当二棒搞男团0难度
 
+
+*****
+
+####  天空塔书记官  
+##### 25487#       发表于 2025-2-17 13:17
+
+偶像无法脱离宅文化的圈层，而宅男就是御宅组的中流砥柱，搞男偶像除了宅女和性少数(或者破圈引现充，但也搞不过男团)注定没有多少受众，还不如直接乙女呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aritaatsu222  
+##### 25488#       发表于 2025-2-17 13:19
+
+之前看隔壁二偶吃拿nsy嘲棒女就好笑，从歌舞颜身材无一可赢，唯一能说的就是本职的配音，结果一卡车配得像屎的nsy，甚至nsy自己的二次元浓度都不怎样，最终只能大喊着什么财阀啊资本啊的走了
+
+*****
+
+####  怀沙汨罗  
+##### 25489#       发表于 2025-2-17 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447498&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 13:12</a>
+mujica剧本定的太早了 来不及改成爱音大女主了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看你是胡言乱语对线出错觉了吧，这哪里提到让爱音做大女主了？还是说你定义了那套二偶番规矩被打破迷乱了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25490#       发表于 2025-2-17 13:23
+
+二偶，二偶，如果没有了二次元的那层皮，宅宅也是不会推的，这就和V圈一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  aritaatsu222  
+##### 25491#       发表于 2025-2-17 13:24
+
+ 本帖最后由 aritaatsu222 于 2025-2-17 13:26 编辑 
+
+很简单，所以把二次元那层幻想撕掉的wsd就是罪人，鸡狗在我心里永远属于抬不起头的东西，大家都知道有人皇族有人洗脚，但你直接演出来就是不行，装也要装一下的，自己还承受不住自由搏击隐藏动态
+
+*****
+
+####  ape-apple  
+##### 25492#       发表于 2025-2-17 13:25
+
+也是现在日本传统偶像界走弱，二偶本质还是给硬件不够当专业偶像的人一条路子，毕竟配音不是不能学，长得丑点也可以灵活换赛道，都不行的话还可以去当V，这应该是最底层的出路了
+
+*****
+
+####  wpcc  
+##### 25493#       发表于 2025-2-17 13:25
+
+<blockquote>怀沙汨罗 发表于 2025-2-17 13:21
+我看你是胡言乱语对线出错觉了吧，这哪里提到让爱音做大女主了？还是说你定义了那套二偶番规矩被打破迷乱 ...</blockquote>
+爱音大女主就是中华炮开中
+
+*****
+
+####  595505568  
+##### 25494#       发表于 2025-2-17 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447573&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 13:21</a>
+我看你是胡言乱语对线出错觉了吧，这哪里提到让爱音做大女主了？还是说你定义了那套二偶番规矩被打破迷乱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能。日本人不喜欢这种边界感没有、虚荣心外显的角色是真的，毕竟他们自己文化圈是这样的，结果老中喜欢，文化格差。
+虽然我个人看到爱音这种队友也有点怕，因为我不擅长社交，阳角三分钟热度队友实在对付不来
+
