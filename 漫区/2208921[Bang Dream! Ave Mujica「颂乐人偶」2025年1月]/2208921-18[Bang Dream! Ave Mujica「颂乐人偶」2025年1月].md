@@ -6661,3 +6661,94 @@ mygo里演得好像不是这么回事啊。当然也可以脑补成大祥老师�
 
 建议漏油去格斗区开个股价贴
 
+
+*****
+
+####  怀沙汨罗  
+##### 25789#       发表于 2025-2-17 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450225&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 17:41</a>
+涨就是涨，多就是多，你现在做的都是在给自己的话找补基数再低，Nico观众也是在涨；前作再拉人，也是在mu ...</blockquote>
+我找补啥了，你自己生造我论点的问题我都给你理出来就叫找补吗？另外你觉得这种算拉新那是你的观点。我的观点很明确，哪怕所谓数字在涨，靠这种炒作方式而不是靠优良的动画，依然也只是在原来的层级蹦跶，改变不了路边的本质。按照你的统计方式，你炒作一两次有效果，n站第一话从2000涨到3000，但后面变本加厉地炒还是在3000，你觉得这真叫拉新？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  6030sylar  
+##### 25790#       发表于 2025-2-17 17:57
+
+ 本帖最后由 6030sylar 于 2025-2-17 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450154&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 17:32</a>
+拉看着还行纯粹是因为瘦死的骆驼比马大，手游一坨，幻日夜羽爆炸，星一二三疯狂作妖，日头看着比邦还短
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉游戏就是武士道运营的，武士道出人出力算拉的老臣了，现在游戏被运营神人玩完了，出的声优又退得差不多了，武士道就路边一条了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhzij111  
+##### 25791#       发表于 2025-2-17 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450115&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-17 17:27</a>
+要我说，隔壁NGA都复盘发现她SOYO一开始就是当代姜维，复兴大C初心不变了。你楼在这虚空比流水就很奇怪。
+
+ ...</blockquote>
+你楼车数据就是因为觉得nga闹麻了，老中再闹对武士道也影响有限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  呱基  
+##### 25792#       发表于 2025-2-17 17:59
+
+翻到最新看了半天，发现居然是在吵股价，那很有生活了漏油们
+
+*****
+
+####  天空塔书记官  
+##### 25793#       发表于 2025-2-17 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450332&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-17 17:57</a>
+拉游戏就是武士道运营的，武士道算拉的老臣了，现在游戏被运营神人玩完了，武士道就路边一条了
+
+—— 来 ...</blockquote>
+但起码本家业务还是蒸蒸日上不是
+
+指卖卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ape-apple  
+##### 25794#       发表于 2025-2-17 18:01
+
+ 本帖最后由 ape-apple 于 2025-2-17 18:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450331&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:57</a>
+
+我找补啥了，你自己生造我论点的问题我都给你理出来就叫找补吗？另外你觉得这种算拉新那是你的观点。我的 ...</blockquote>
+
+靠优良的动画<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你自己贴的良率就有，每一集85上下好评率，不高吗？只是因为2.5次元少女乐队就这样了 ，拉新也只是小范围。
+
+你不能跟绿黄乐队和巅峰滚比，就说因为比不过就路边一条，从来就是跟自己比，跟这些比起来，只是有机会数量级接近就是很大进步了，真挺无聊的，我不知道你要怎么解读，因为你把一切上涨的数字都看做无关紧要，holo时代我看过太多了，真没创意
+
+要是wsd真因为炒烂了直接砸了锅，那我跟你一起笑，但是现在没有这个趋势，一点也没有，骂作品可以，但是加进越多的经济指标只能是自己折磨自己
+
+*****
+
+####  零壹贰叁  
+##### 25795#       发表于 2025-2-17 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450098&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-17 17:25</a>
+我来找理由洗：睦喜欢弹吉他，但是因为吉他弹得不够好所以自卑，这两点不矛盾。就和我喜欢玩动作游戏但是 ...</blockquote>
+不太对
+睦是“不能让吉他唱歌”而不是弹得不好
+本质上是音乐表达的问题而不是技术
+如果祥子知道“睦无法认可自己的吉他演奏”就不会拉她组乐队并且压力她了，如果一开始就知道那祥子这个角色就纯符号啊
+我觉得正是因为祥子不理解所以前几话是那种态度以及一个月不见睦
+
