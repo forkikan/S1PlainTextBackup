@@ -886,3 +886,11 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 
 这游戏有感情线之类的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  afer  
+##### 72#       发表于 2025-2-17 21:50
+
+🐴一下
+
