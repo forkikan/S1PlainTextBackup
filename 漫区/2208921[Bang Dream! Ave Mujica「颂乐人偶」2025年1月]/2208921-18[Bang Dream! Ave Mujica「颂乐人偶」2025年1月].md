@@ -5477,3 +5477,97 @@ tft现在一百多万播放量，比搬运的B站播放量都高，mujica生放�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 25673#       发表于 2025-2-17 16:25
+
+<blockquote>高贵的 发表于 2025-2-17 15:03
+之前我觉得把一切锅都推给丰川家保角色形象然后后面一转斗财阀是很烂很不负责任的写法，但现在来看也是一条 ...</blockquote>
+就是很不负责很烂啊，第七集赶着和解卖盘，结果祥子直接知道了睦玩乐队不开心的正确答案，这种情节你都不能细想，细想就是你祥子都知道睦的状态还拉着她不开心也要陪你玩了。
+
+然后后面一转斗财阀小姨，百合界流行的小姨文学是要看年上年下在成长中细腻的挣扎与陪伴的情绪流的，你突然空降设定只为了回撤大祥的观感，那就沦为伦理梗了。
+
+啪的一下，哎哟，我们大女主追妻成功了，快来看快来看，这些都不能细想。
+
+说到底用了7集时间只是为了让主角回到原点这种设计就很烂了，所以祥厨现在才会抱着人偶论的假药继续上演尾生抱柱也不愿意接受编剧就在第一层这种第五集就端上来的事实。
+
+*****
+
+####  怀沙汨罗  
+##### 25674#       发表于 2025-2-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449264&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:17</a>
+三天的和三个月的比……行，这个你说什么就是什么，但是为什么不是别的时间别的团，而是这个时间的C团？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不客气，怕你不知道，我可以提醒一下其实你喜欢的绿黄色社会其实已经上过不止一次tft了，而且人家在ytb也有自己的频道，正常的人气是这个量级的<img src="https://p.sda1.dev/22/8a6f3d50ba50c994b04ac5d6c669ecc5/image.jpg" referrerpolicy="no-referrer">
+也就是说这个wsd努力炒作的大热女团的蓄力大绝也就相当于人家在这个频道随手一记平a的水平
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25675#       发表于 2025-2-17 16:30
+
+可是拿邦和黄绿色社会这种主流上层比是不是有点过于不恰当了啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ads147147  
+##### 25676#       发表于 2025-2-17 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">又想起当年代便给幻夜挽尊刷了百万播放的那天。。。。油土鳖这个播放量其实确实很容易造假。。。
+
+*****
+
+####  凉良  
+##### 25677#       发表于 2025-2-17 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449353&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 16:25</a>
+
+就是很不负责很烂啊，第七集赶着和解卖盘，结果祥子直接知道了睦玩乐队不开心的正确答案，这种情节你都不 ...</blockquote>
+祥子突然懂睦头吉他自卑真的是把我看得 啊？了
+
+*****
+
+####  天空塔书记官  
+##### 25678#       发表于 2025-2-17 16:33
+
+要比tft的话，还是和小孤独比吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 25679#       发表于 2025-2-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449416&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 16:30</a>
+可是拿邦和黄绿色社会这种主流上层比是不是有点过于不恰当了啊
+
+C团上是炒作的手段，而不是炒作成果的展示 ...</blockquote>
+看清楚谁先对比碰瓷人气量级的。这个频道正常保底就是百万量级，砸钱炒作半天就这水平还和人家随手一a对比，春秋笔法请免了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 25680#       发表于 2025-2-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449364&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:25</a>
+不客气，怕你不知道，我可以提醒一下其实你喜欢的绿黄色社会其实已经上过不止一次tft了，而且人家在ytb也 ...</blockquote>
+你不能只有在搞反差的时候才说wsd努力炒作，2.5次元水平不咋样长得也不好看，还真上了百万播放，都是⏰刷的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico和推特热度也都是刷的，有种当年开Excel计算holo驱逐出境之后原地倒闭的样子啊
+
+
+*****
+
+####  高贵的  
+##### 25681#       发表于 2025-2-17 16:33
+
+你真要比不应该去看这个tft视频的播放量随着时间的走势吗
+

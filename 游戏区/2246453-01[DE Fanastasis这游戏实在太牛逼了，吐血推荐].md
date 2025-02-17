@@ -601,3 +601,26 @@ Fanastasis的传送点给的非常大方，虽说能传送回根据地的红色�
 看上去就会是很对胃口的感觉感谢推荐，看到在打折立马买了，就是为啥看 steam 和 dl 好像买的都不是很多 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">因为de fanastasis是重置新版，原版是免费的，主要收入不是在DL和steam卖而是订阅。
 
+
+*****
+
+####  慕容断月  
+##### 46#       发表于 2025-2-17 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445929&amp;ptid=2246453" target="_blank">Duke72 发表于 2025-2-17 10:41</a>
+其实不算类型唯一，跟奶飞手和伊斯什么的前辈有很多相似之处，比如传送机制、探索模式还有隐藏门之类的设 ...</blockquote>
+个人愚见，个人愚见，同类两个名作我也挺想玩的但没汉化还是麻烦的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  慕容断月  
+##### 47#       发表于 2025-2-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449085&amp;ptid=2246453" target="_blank">Arisita 发表于 2025-2-17 15:58</a>
+楼主知道怎么全屏吗，窗口化也太小了点</blockquote>
+magpie+crt easymode滤镜，这是4K分辨率下显示效果非常好的搭配
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
