@@ -847,3 +847,14 @@ https://m.bilibili.com/opus/1033632735051120642
 —— 来自 鹅球 v3.3.96</blockquote>
 战斗力终于要往savior级膨胀了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ·Mephisto·  
+##### 16354#       发表于 2025-2-17 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442953&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-16 22:20</a>
+
+搞不好有的寺庙还会跟FGO联动，在门口摆小町三破的牌子，吸引年轻人过来打卡烧香 ...</blockquote>
+有记者采访过供奉芦屋道满的神社，给神主看了FGO道满的立绘，老神主沉默良久说：如果能让更多人了解道满，那也行吧（从这个反应来看说不定看的是满破<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
+

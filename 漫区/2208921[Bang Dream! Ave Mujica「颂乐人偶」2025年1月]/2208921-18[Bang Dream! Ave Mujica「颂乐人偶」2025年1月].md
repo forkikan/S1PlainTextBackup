@@ -1266,3 +1266,59 @@ GBC最后27和hina的和解其实就和这集ccc和解一样，谈逻辑嘛确�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刑部姬真可爱  
+##### 25266#       发表于 2025-2-17 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444876&amp;ptid=2208921" target="_blank">飞天意面怪 发表于 2025-2-17 08:48</a>
+
+作为mujica的云观众，我一直以为黄瓜退货后素会是最死硬的反crychic分子，结果就这？
+
+打个比方，家庭中被抛 ...</blockquote>
+这只能说明你没共感到素食的情绪，素食的想法讲道理mygo其实说得蛮清楚的
+
+
+*****
+
+####  aritaatsu222  
+##### 25267#       发表于 2025-2-17 09:02
+
+<blockquote>wpcc 发表于 2025-2-17 08:48
+成为五星的代价就是被独角兽抽陀螺还是算了吧 爱音当个一星NPC也挺好的</blockquote>
+说祥在故事里怎样怎样多少有点避重就轻，我姑且认为在这里的都是结晶吧，往前翻点都是真人团的东西，看起来也都是爆过米的，二偶究竟是咋回事大家都门儿清的，最抗压时的祥厨也不会怀疑自推在企划的唯一性和重要性，因为哪些角色是皇族那些角色是洗脚婢远在早早之前画人设选cv时就决定好了(以前邦那些没什么人气的长脸姐也是一眼负责洗脚，但现在抛弃这种比较露骨的作法了)，没有阶级跃迁这种事的，爱音cv定的时候就知道不会有什么地位了，鼓子虽然人气没问题，但邦邦的每个dr位都是洗脚，没有例外。
+
+*****
+
+####  wpcc  
+##### 25268#       发表于 2025-2-17 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444876&amp;ptid=2208921" target="_blank">飞天意面怪 发表于 2025-2-17 08:48</a>
+
+作为mujica的云观众，我一直以为黄瓜退货后素会是最死硬的反crychic分子，结果就这？
+
+打个比方，家庭中被抛 ...</blockquote>
+因为白祥病毒是底层逻辑 你没看漫画是理解不了卧薪尝胆的
+
+*****
+
+####  595505568  
+##### 25269#       发表于 2025-2-17 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444876&amp;ptid=2208921" target="_blank">飞天意面怪 发表于 2025-2-17 08:48</a>
+作为mujica的云观众，我一直以为黄瓜退货后素会是最死硬的反crychic分子，结果就这？
+
+打个比方，家庭中被抛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恰恰相反，她是最后最在乎怎么给C团下葬的C团忠诚守墓人，这是她第二个家，虽然已经结束了但是还没下葬…
+
+*****
+
+####  wpcc  
+##### 25270#       发表于 2025-2-17 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444901&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 08:52</a>
+
+你看立希，被垫那么久，粉丝安慰自己苦哈哈的方法都是调价低，好冲榜，爱音被垫了，回头一看调价冲榜还要 ...</blockquote>
+爱音厨价格飞到第一我不知道是谁的问题 但是我认识的爱音厨确实都退坑甩卖了 德不配位了这下
+
