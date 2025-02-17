@@ -2901,3 +2901,15 @@ cure wing和cure wink挺容易听错
 
 金发粉女人撩蓝发蓝女人，绝望的轮回又要开始了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 534#       发表于 2025-2-17 12:11
+
+直接把自己开了也太搞笑了
+
+青梅怎么输
+
+最喜欢的蓝毛居然是盾役 不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

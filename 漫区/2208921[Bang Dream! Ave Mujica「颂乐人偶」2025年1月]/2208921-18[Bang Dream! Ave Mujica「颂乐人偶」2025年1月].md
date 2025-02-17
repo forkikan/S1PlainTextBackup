@@ -2839,3 +2839,86 @@ wsd今日股价大涨16%，感谢哈耶克的大手
 但这是日本作品，素世想的其实是“你也太无礼了，有什么立场要挟我要不要退出”，日本观众也是这样想的，但是因为表现的萌所以可以接受
 然后就是第七集，事实证明了日本人就是这么想的，素世就是不爽，现在老钟终于醒悟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 25418#       发表于 2025-2-17 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446842&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-17 11:58</a>
+睦素在三天三夜前有什么明显线索吗？Mygo的时候爽每次去找给黄瓜浇水的睦基本都是在打机锋套祥子信息，感觉 ...</blockquote>
+CP互动的核心就是角色间持续的交集，这从一开始素世拥抱和pua睦就能看出来吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 25419#       发表于 2025-2-17 12:08
+
+纯理性说睦前期对soyo是歉意怜悯和监视。百合入脑来说，多少带点暗恋
+
+
+*****
+
+####  aptx8285144  
+##### 25420#       发表于 2025-2-17 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446898&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:04</a>
+
+“我不会退出mygo的，soyori也不要退出”“等等，不要这么大声”这个事在老中这反馈都是：哎呀爱音太可爱了 ...</blockquote>
+我不可以要挟你不能退出，你却可以计划把我踢出来是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25421#       发表于 2025-2-17 12:12
+
+日本爱音：喜欢跟风爱炫耀没品位，三分钟热度，说话失礼还唧唧歪歪，带点绿茶
+
+老中爱音：唐
+
+哎，就是偏爱不聪明的女人，真是原罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 25422#       发表于 2025-2-17 12:12
+
+柿本广大是对的，不是乱搞的（
+<img src="https://p.sda1.dev/22/89e8b5e630d40dc87dfd9b2be4090c69/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 25423#       发表于 2025-2-17 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446898&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:04</a>
+“我不会退出mygo的，soyori也不要退出”“等等，不要这么大声”这个事在老中这反馈都是：哎呀爱音太可爱了 ...</blockquote>
+虽然不爽但也没说不答应， soyo就是这么个女人，第一集不还是跟爱音去看live了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  单脚着地  
+##### 25424#       发表于 2025-2-17 12:15
+
+浴缸里的柿本：让我看看推特？怎么这么多骂我的⏰
+
+不好，再看看股价<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+“⏰闹麻了”<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25425#       发表于 2025-2-17 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446966&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 12:12</a>
+我不可以要挟你不能退出，你却可以计划把我踢出来是吧</blockquote>
+如果我说是呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我们这边想的乐队是多人一心同体，大家同等重要，但是邦邦不是啊，有明确的核心就有明确的边缘人，这一点其实并不好，但邦本身在日本就这样的热度，说明他们就这样的路线也不准备变了。从这一点看，评价撕裂是不是就可以解释了？
+
