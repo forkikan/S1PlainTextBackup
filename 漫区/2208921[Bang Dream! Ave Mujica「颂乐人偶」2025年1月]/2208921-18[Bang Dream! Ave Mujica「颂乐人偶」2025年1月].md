@@ -8013,3 +8013,48 @@ nico评价差评到时和国内差不多,147最高
 
 其实第7话出来之前大多数狗厨都没想过自己会被垫的，还在庆幸自己能救鸡团，soyo妈妈都快封圣了。然后，然后就莫名其妙地自己的房塌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 25908#       发表于 2025-2-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451702&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-17 21:03</a>
+
+不不，这话加速爆炸是因为第7话现在得罪的是看鸡动画最大的一个群体，狗厨。之前得罪的只是鸡厨，鸡动画7 ...</blockquote>
+除了猫猫，人类挡不住大祥的蛊惑光环是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 25909#       发表于 2025-2-17 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451685&amp;ptid=2208921" target="_blank">my707776310 发表于 2025-2-17 21:00</a>
+能回到它该有的位置是好事,鸡播之前看隔壁lga有人说狗"比肩甚至超越计程车",什么"狗超越动画领域到传统文学 ...</blockquote>
+计程车的剧本放近10年里我个人都觉得难有动画剧本能超越，都不说纯原创剧本了，鸡团开播前居然有粉丝这么狂嘛，这就是史上最狂嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 25910#       发表于 2025-2-17 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451421&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-17 20:27</a>
+
+那段介绍后面不就是解释木头觉得自己的音乐传达不出自己的心声么，吉他不会说话，又不是=等于木头不会弹， ...</blockquote>
+木头其实会说话的，问题是他选择封印了他的技能。
+
+演技来自她妈（演员）口才来自她爸（节目主持人），从小上电视被拿去比较，只要表现的好就是遗传到父母的优秀基因，就是所谓的不属于木头的东西，因此才封印了这个技能。
+
+所以才选择弹吉他，因为这个不是父母給的。
+
+*****
+
+####  陶矢  
+##### 25911#       发表于 2025-2-17 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451702&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-17 21:03</a>
+不不，这话加速爆炸是因为第7话现在得罪的是看鸡动画最大的一个群体，狗厨。之前得罪的只是鸡厨，鸡动画7 ...</blockquote>
+我甚至一开始以为这季是讲暗黑小祥驾驶商团母鸡卡碾碎一切，小寡妇发现已经不是一个世界的人了只能暗暗抹泪，结果越看越有搞头第六集二番战战场铺好就待第七集铁拳制裁，最后碎一地<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

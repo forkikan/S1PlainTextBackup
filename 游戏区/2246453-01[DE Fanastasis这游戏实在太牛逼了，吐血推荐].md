@@ -806,3 +806,57 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 
 这游戏避战还挺容易的，也有不怎么战斗通关的方法~
 
+
+*****
+
+####  雪地白狼  
+##### 64#       发表于 2025-2-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451675&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-17 20:58</a>
+
+我记得开局稍微跑一下酷可以收到第一个同伴，有俩人就会好起来了hh
+
+这游戏避战还挺容易的，也有不怎么战 ...</blockquote>
+已经捡到第一个同伴尸体了，不过没有宝珠好像没法开同伴那个雕像。我再找找
+
+*****
+
+####  kerbad  
+##### 65#       发表于 2025-2-17 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451647&amp;ptid=2246453" target="_blank">雪地白狼 发表于 2025-2-17 20:53</a>
+
+这难度真的平滑吗，硬刷了一个小时打不过第一个沉船后面的小怪</blockquote>
+沉船后面那个boss打完是直通海底隧道的，不从这走的话得后面从雷光崖下去或者从古书院进去（能不能先从大圣堂去玛吉贝克我忘了）。先走异种族洞窟就好打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alleriawr9  
+##### 66#       发表于 2025-2-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451715&amp;ptid=2246453" target="_blank">雪地白狼 发表于 2025-2-17 21:05</a>
+已经捡到第一个同伴尸体了，不过没有宝珠好像没法开同伴那个雕像。我再找找 ...</blockquote>
+主线是防火女说的海岸洞窟拿召唤宝石啊，回合制rpg队伍人数太重要了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  发条之心  
+##### 67#       发表于 2025-2-17 21:10
+
+<blockquote>雪地白狼 发表于 2025-2-17 20:53
+这难度真的平滑吗，硬刷了一个小时打不过第一个沉船后面的小怪</blockquote>
+你是不是直接去海底隧道了？新人走异种洞窟——王国洞窟的线比较好
+
+
+*****
+
+####  雪地白狼  
+##### 68#       发表于 2025-2-17 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451745&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-17 21:10</a>
+
+你是不是直接去海底隧道了？新人走异种洞窟——王国洞窟的线比较好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">发现海岸有岔路了，之前是一竿子捅到沉船BOSS那了
+
