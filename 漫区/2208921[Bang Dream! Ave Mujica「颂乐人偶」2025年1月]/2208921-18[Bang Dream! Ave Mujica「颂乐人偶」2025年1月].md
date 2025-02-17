@@ -8955,3 +8955,14 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 多工整多对称<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 25983#       发表于 2025-2-18 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453230&amp;ptid=2208921" target="_blank">沉默的苍穹基 发表于 2025-2-18 02:04</a>
+
+讲道理卖爱祥是个高明之举，甚至早就可以开始卖了.这么搞可以大幅冲淡爱音之于CCC的外人感，我的朋友们丢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">热知识：第五集爱音已经自称是大祥的朋友，而且大祥默认了
+
