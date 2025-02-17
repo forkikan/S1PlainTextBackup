@@ -5105,3 +5105,127 @@ wsd一看中华炮打的不错，下一个企划乐队里找个老中当成员�
 我觉得这种思想的传播就是一种奶头乐了 多的也不说了。王侯将相宁有种乎其实是贵族割据借用农民起义来掩 ...</blockquote>
 “汤武革命”是借“顺天应人”来建立合法性，“宁有种乎”就是农民起义军自己的口号，不能因为失败了或者被摘桃子了就否定这个
 
+
+*****
+
+####  天空塔书记官  
+##### 25636#       发表于 2025-2-17 15:55
+
+要想强调百合属性，怎么也得是终将、水魔那一挂的，轮不到SSSS<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25637#       发表于 2025-2-17 15:57
+
+你们楼是没有管理吗，还是已经被打击跑了，我不知道动画片里还有这种东西
+
+*****
+
+####  takerest  
+##### 25638#       发表于 2025-2-17 15:58
+
+<blockquote>天空塔书记官 发表于 2025-2-17 12:36
+爱素这cp能火起来本身就能说明问题了
+
+爱灯是mygo的主线</blockquote>
+这不纯制作组自己的锅？
+
+按照编剧独角兽🦄️的理解“喜欢第十话后爱音与素世的关系，不仅是朋友，更是一同前进的伙伴”你真照着这个方向拍老🀄️有闹的理由？
+
+所以说为什么不这样拍呢？
+
+*****
+
+####  厚乳果珍爽  
+##### 25639#       发表于 2025-2-17 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白河豚发癫溢出罢了。
+
+早上还有一个发癫溢出的楼被删了
+
+*****
+
+####  takerest  
+##### 25640#       发表于 2025-2-17 16:00
+
+<blockquote>ape-apple 发表于 2025-2-17 15:17
+我觉得拉新效果已经完全足够了，现在停播然后放到剧场版都比重做好，再说明白点，这些人想重做动画，没几 ...</blockquote>
+这破动画从哪拉新？环大陆拉新吗？
+
+
+*****
+
+####  595505568  
+##### 25641#       发表于 2025-2-17 16:01
+
+访谈这个问题…<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，毕竟邦2能写出赶不上Live和轻拍近亲百合的系构，我不知道她访谈里有些东西是不是真的她自己的想法
+
+*****
+
+####  aptx8285144  
+##### 25642#       发表于 2025-2-17 16:01
+
+刚才打开叔叔家结果推送给我一个柿本灰色头像的视频里面说一大早苏醒，下面一批人感慨确实是坏消息然后有人希望他去见祥妈，真是地狱笑话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 25643#       发表于 2025-2-17 16:01
+
+<blockquote>ddy2811 发表于 2025-2-17 15:53
+“汤武革命”是借“顺天应人”来建立合法性，“宁有种乎”就是农民起义军自己的口号，不能因为失败了或者 ...</blockquote>
+所以大家是不是想看喵梦乡下妹逆袭上位
+
+*****
+
+####  天空塔书记官  
+##### 25644#       发表于 2025-2-17 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449086&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 15:58</a>
+这不纯制作组自己的锅？
+
+按照编剧独角兽🦄️的理解“喜欢第十话后爱音与素世的关系，不仅是朋友，更是一 ...</blockquote>
+可是伙伴不止爱素啊，迷子有五个人
+
+而且岛国人眼中的关系未必和老中人眼中是同样的东西，就比如对爱音角色理解的差异
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 25645#       发表于 2025-2-17 16:02
+
+我也不能说节约宝、弄弄和李子是串子，毕竟都是提前写好的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，我以前也觉得访谈应该是真情实感，但我想了下这个东西要对外刊载，所以一定是官稿失真
+
+*****
+
+####  ape-apple  
+##### 25646#       发表于 2025-2-17 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449102&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 16:00</a>
+这破动画从哪拉新？环大陆拉新吗？</blockquote>
+tft现在一百多万播放量，比搬运的B站播放量都高，mujica生放送人数比mygo时代多一半，每一集之后X上都能上热搜榜，这不是拉新成功是什么？我觉得这一点都不承认，讨论基础就没有了
+
+*****
+
+####  ddy2811  
+##### 25647#       发表于 2025-2-17 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449119&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-17 16:01</a>
+
+所以大家是不是想看喵梦乡下妹逆袭上位</blockquote>
+相当一部分人是的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 25648#       发表于 2025-2-17 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老钟人多数把爱音当第一（男）主人公的
+
