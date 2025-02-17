@@ -782,3 +782,27 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这难度真的平滑吗，硬刷了一个小时打不过第一个沉船后面的小怪
 
+
+*****
+
+####  JamesDrapor  
+##### 62#       发表于 2025-2-17 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451635&amp;ptid=2246453" target="_blank">妄想中毒 发表于 2025-2-17 20:52</a>
+
+草，怪不得心之间最后四个记忆我一个都解锁不了，这后半段追加剧情完全没引导不看攻略真的不行 ...</blockquote>
+在心之间调查空的记忆祭坛基座，可以看到一些模糊的提示……什么“和血族女王有关的记忆”之类的。也不能说完全没有提示吧哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JamesDrapor  
+##### 63#       发表于 2025-2-17 20:58
+
+ 本帖最后由 JamesDrapor 于 2025-2-17 20:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451647&amp;ptid=2246453" target="_blank">雪地白狼 发表于 2025-2-17 20:53</a>
+
+这难度真的平滑吗，硬刷了一个小时打不过第一个沉船后面的小怪</blockquote>
+我记得开局稍微跑一下酷可以收到第一个同伴，有俩人就会好起来了hh
+
+这游戏避战还挺容易的，也有不怎么战斗通关的方法~
+
