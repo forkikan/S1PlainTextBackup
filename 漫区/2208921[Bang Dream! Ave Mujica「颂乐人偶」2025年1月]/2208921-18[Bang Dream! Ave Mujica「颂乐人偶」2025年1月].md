@@ -2605,3 +2605,113 @@ mygo播出前mujica大纲已经做完就剩细节问题 独角兽也是因为细
 
 有没有环大陆好评然后晋升代理人的可能性
 
+
+*****
+
+####  ads147147  
+##### 25395#       发表于 2025-2-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446588&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-17 11:35</a>
+
+所以爽世世看到睦送黄瓜这么生气追出去拍她脸上。。。什么意思，暗讽姐几个就是你们两床第间调情用的工具是 ...</blockquote>
+追出去的时候没生气，是睦说的那句“太好了”后才生气的。
+
+还是木头语音翻译器没在场的问题。
+
+*****
+
+####  swessia  
+##### 25396#       发表于 2025-2-17 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446617&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 11:37</a>
+追出去的时候没生气，是睦说的那句“太好了”后才生气的。
+
+还是木头语音翻译器没在场的问题。 ...</blockquote>
+这点莫小姐全责，莫小姐要是上号瞬间拿捏素世<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  jkl  
+##### 25397#       发表于 2025-2-17 11:42
+
+wsd今日股价大涨16%，感谢哈耶克的大手
+
+*****
+
+####  太二EricGuo  
+##### 25398#       发表于 2025-2-17 11:43
+
+死小兰解确实就是先进版本啊。
+国内国外各种有关没关的账号有关无关的人员有关无关的推文，就得狠狠的冲狠狠的维权，问就是矫枉必须过正，谁让人家伤害十四亿兰迷的朴素情感，没有兰迷的付出与爆米你死小屁都不是，狗官方就嗯要捧那罪该万死的灰原哀无视女主粉的诉求霸凌女主。
+你就说是不是完全一致嘛
+
+*****
+
+####  6030sylar  
+##### 25399#       发表于 2025-2-17 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446540&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-17 11:31</a>
+睦祥那隔着栏杆一抱 已经是私定终身了</blockquote>
+这隔门一抱绝对是独角兽写的，还有我的身体(墨)在拒绝你，但我的意识(睦)又想见你，太变态了(求更多)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cccpprc  
+##### 25400#       发表于 2025-2-17 11:44
+
+<blockquote>未来起航 发表于 2025-2-17 11:17
+真的不懂吗？
+
+柿本广大调研半天b站，总结mygo几大流行梗/要素：肥皂剧的爆爆爆，SOYO小丑表演，大祥各种 ...</blockquote>
+甚至现在这个全网车祥的画面都是在戏外给大祥过黑色生日呢
+
+原本是黑色生日的集数在干嘛大家都品鉴过啦
+
+
+*****
+
+####  刑部姬真可爱  
+##### 25401#       发表于 2025-2-17 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446588&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-17 11:35</a>
+
+所以爽世世看到睦送黄瓜这么生气追出去拍她脸上。。。什么意思，暗讽姐几个就是你们两床第间调情用的工具是 ...</blockquote>
+这点大家都讨论烂了，睦本意是看到素世现在又开心起来所以说太好了，但在素世看来就是睦这句话证明了睦一点点都不在乎ccc。
+
+说白了就是像一些搞笑剧中两个人明明在跨世界聊天却偏偏聊得下去然后各自产生误会造成喜剧一样，这里就是睦和素食跨世界聊天偏偏聊得下去却产生误会的悲情戏<img src="https://static.saraba1st.com/image/smiley/carton2017/473.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 25402#       发表于 2025-2-17 11:44
+
+<blockquote>ads147147 发表于 2025-2-17 11:37
+追出去的时候没生气，是睦说的那句“太好了”后才生气的。
+
+还是木头语音翻译器没在场的问题。 ...</blockquote>
+这下莫祥一体化了。白祥在能当场c团和解，莫在能让素世鸽掉狗团庆功宴去跟小黄瓜鏖战三天三夜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25403#       发表于 2025-2-17 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446574&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 11:34</a>
+
+柿本，独角兽这群人的本意应该不是让爱音被霸凌，而做出来有这种“效果”，只能说他们的脑子被🐶吃了 ...</blockquote>
+只能说终是业障在劫难逃了只能说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过福兮祸之所伏,祸兮福之所依。拨云见雾，总会有好事发生的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 25404#       发表于 2025-2-17 11:45
+
+这一集下来素睦素莫是不是已经跌停了
+
