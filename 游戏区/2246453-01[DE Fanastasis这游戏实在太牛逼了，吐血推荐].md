@@ -938,3 +938,18 @@ Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立
 
 问一下，狂信者妹妹是不是有不杀的路线？杀掉之后互动地上的血迹船长冒出来一个“。。。”，而且她说的要用什么东西交换我也没搞明白<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JamesDrapor  
+##### 75#       发表于 2025-2-18 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452938&amp;ptid=2246453" target="_blank">siriii 发表于 2025-2-18 00:38</a>
+
+问一下，狂信者妹妹是不是有不杀的路线？杀掉之后互动地上的血迹船长冒出来一个“。。。”，而且她说的要用 ...</blockquote>
+我理解应该是没有不杀的路线的，除了追加部分的某些角色。
+
+血迹的事情是这样：有因缘的角色会在血迹这里回忆起一些事情，但前提是你已经解锁了这个角色的对应部分记忆（黄色气体球）。所以现在不着急，最后会有专门的回收功能。
+
+另外，在很后面你才会了解到这些个初期boss的故事……
+

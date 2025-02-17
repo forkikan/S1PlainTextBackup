@@ -8736,3 +8736,62 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 鸡团这个商业乐队的噱头会落脚到哪呢，毕竟现在看这几位都不像是缺钱的主，流量曝光好像就大猫需要，还是说商业化运营能对音乐水平加buff？
 
+
+*****
+
+####  天空塔书记官  
+##### 25966#       发表于 2025-2-18 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452945&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-18 00:39</a>
+一切不仲的前提都得是曾经亲密过（或者至少营业过）——鸡团还没到不仲阶段呢
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+现在就是在营业啊，而我推的是RAS
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 25967#       发表于 2025-2-18 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453018&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-2-18 00:54</a>
+鸡团这个商业乐队的噱头会落脚到哪呢，毕竟现在看这几位都不像是缺钱的主，流量曝光好像就大猫需要，还是说 ...</blockquote>
+估计只能回归初心，玩乐队是为了开心吧
+商业化乐队的前四集一塌糊涂
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 25968#       发表于 2025-2-18 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453051&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-18 01:01</a>
+现在就是在营业啊，而我推的是RAS</blockquote>
+营业总比不营业好吧（看向狗团意有所指）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 25969#       发表于 2025-2-18 01:03
+
+我的观点反而是制作组故意的，立希刚夸完只有灯完成了mygo的作词工作，灯反手掏出一本我最近一直在重写ccc的老歌词给祥子。
+
+工作人员都能听哭，猫猫就是无聊脸，爱音就是半拉挺好颜鼓掌+输出记得还有mygo。
+
+而且特意说明这是占用mygo的彩排时间搞的和解live。
+
+他们知道他们在写什么，但他们还是这么干了。
+
+*****
+
+####  南宮凝香  
+##### 25970#       发表于 2025-2-18 01:05
+
+搞朋克的還扯種性不如別玩音樂了
+
