@@ -8160,3 +8160,18 @@ nico评价差评到时和国内差不多,147最高
 
 今天看一个转发ptt的对岸其实好多人也不爽爱音这把的待遇
 
+
+*****
+
+####  第贰个十年  
+##### 25922#       发表于 2025-2-17 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446898&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:04</a>
+“我不会退出mygo的，soyori也不要退出”“等等，不要这么大声”这个事在老中这反馈都是：哎呀爱音太可爱了 ...</blockquote>
+你可以说我擅自解读
+但我真不信编剧是想把素世塑造成“不爽”，即使是mujica到现在数不胜数的关系性怪味桥段，我也认为是主观上无恶意客观上做烂了。即使以哈耶克的大手的视点来看，都不会这样塑造一个要卖卡的角色。
+
+独角兽的访谈看了很多，非常能get到她想表达想创作的关系性，跟我在mygo里体会到的如出一辙。至于十本和mujica，不做评价
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
