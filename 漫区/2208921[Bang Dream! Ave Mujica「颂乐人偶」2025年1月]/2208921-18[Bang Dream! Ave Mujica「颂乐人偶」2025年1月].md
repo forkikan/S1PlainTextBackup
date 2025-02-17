@@ -2492,3 +2492,116 @@ mygo播出前mujica大纲已经做完就剩细节问题 独角兽也是因为细
 
 给点心理描写或者回忆杀真的会死吧
 
+
+*****
+
+####  厚乳果珍爽  
+##### 25383#       发表于 2025-2-17 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们二创都嗑够cp了，怎么还要要求在原作里磕cp啊？还补满足？是喂不饱的狼吗？
+
+*****
+
+####  66367749  
+##### 25384#       发表于 2025-2-17 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446266&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 11:08</a>
+哥们你真看过爱马仕吗云狗 爱马仕本身live就没有固定团的说法 新造团多得要死 你邦的手游难道现在是锁死 ...</blockquote>
+没别的意思，你看过动画吗
+
+*****
+
+####  ads147147  
+##### 25385#       发表于 2025-2-17 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446440&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 11:23</a>
+
+能把祥睦这种怎么写都应该至少工业糖水平的CP搞得磕不下去 真的太需要功力了
+
+给点心理描写或者回忆杀真的会 ...</blockquote>
+说是这么说，真写了工业糖精的cp，你们又嫌弃是工业糖精不好吃。。
+
+
+*****
+
+####  swessia  
+##### 25386#       发表于 2025-2-17 11:30
+
+ 本帖最后由 swessia 于 2025-2-17 11:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">睦祥大纲无非小章鱼满脑子都是自己肆意抽小木头，小木头实在受不了了开始狂抽小章鱼,然后不小心把鸡团抽炸了俩人都自闭了
+
+小章鱼吓尿了在go团帮助下和小木头和解
+
+小章鱼：为了小木头回来我什么都会做的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+小木头：小章鱼对不起我抽的太过火了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+至于执行出了问题那就是后话了
+
+*****
+
+####  fuwamoco  
+##### 25387#       发表于 2025-2-17 11:31
+
+睦祥那隔着栏杆一抱 已经是私定终身了
+
+*****
+
+####  qlipho  
+##### 25388#       发表于 2025-2-17 11:32
+
+小木头不拉小章鱼吸白色奶龙屁事没有， 马希洛太坏了
+
+*****
+
+####  凉良  
+##### 25389#       发表于 2025-2-17 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446521&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 11:29</a>
+说是这么说，真写了工业糖精的cp，你们又嫌弃是工业糖精不好吃。。</blockquote>
+工业糖精再不好吃也比现在相互仇杀好吧
+
+*****
+
+####  天空塔书记官  
+##### 25390#       发表于 2025-2-17 11:32
+
+岛国群众就是这么认为的
+
+一切责任都在小白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 25391#       发表于 2025-2-17 11:34
+
+<blockquote>是谁的书画 发表于 2025-2-17 11:18
+楼友想发泄一下角色被霸凌的不满无可厚非啦，只是别想着这种事会被改变就行
+
+有什么不高兴的就在楼里说说， ...</blockquote>
+柿本，独角兽这群人的本意应该不是让爱音被霸凌，而做出来有这种“效果”，只能说他们的脑子被🐶吃了
+
+*****
+
+####  嵇翱u  
+##### 25392#       发表于 2025-2-17 11:35
+
+已经不对动画里会讲睦祥童年抱有希望了，祥子童年显然跟初华后面要爆的绑定了，这也是mygo留下的扣子。睦祥还是等手游活动补完吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 25393#       发表于 2025-2-17 11:35
+
+所以爽世世看到睦送黄瓜这么生气追出去拍她脸上。。。什么意思，暗讽姐几个就是你们两床第间调情用的工具是吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鸡腿不足  
+##### 25394#       发表于 2025-2-17 11:36
+
+有没有环大陆好评然后晋升代理人的可能性
+
