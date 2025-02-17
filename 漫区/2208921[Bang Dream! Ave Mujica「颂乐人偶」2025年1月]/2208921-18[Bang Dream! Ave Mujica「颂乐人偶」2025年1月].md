@@ -4073,3 +4073,101 @@ wsd虽然压榨狠，但也算对企划声优很不错的了，看看老八不�
 第7集13W+同接呢，你能说谁就一定是“有的没的来踩一脚”？</blockquote>
 mujica集均也就200W 现在的规模声势是这级别配有的么
 
+
+*****
+
+####  hysjmr  
+##### 25537#       发表于 2025-2-17 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447925&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 14:08</a>
+ mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote>
+你觉得200w的声势应该是怎样的
+
+*****
+
+####  wpcc  
+##### 25538#       发表于 2025-2-17 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447925&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 14:08</a>
+
+mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote>
+什么圈的都能套个爱音同情盾来喷其他角色的时候这个社群就已经德不配位了 你看假面骑士圈都没电竞池来喷的
+
+*****
+
+####  595505568  
+##### 25539#       发表于 2025-2-17 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447936&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:10</a>
+什么圈的都能套个爱音同情盾来喷其他角色的时候这个社群就已经德不配位了 你看假面骑士圈都没电竞池来喷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去年看到的手游圈子的乐子我能二偶动画再看一次，互联网大洪水会冲死每一个人
+
+*****
+
+####  ddy2811  
+##### 25540#       发表于 2025-2-17 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447925&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 14:08</a>
+
+mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote>
+就是配有的，前面那么多楼在讨论作为二偶企划的特殊性了，自己往回翻翻嘛
+
+*****
+
+####  凉良  
+##### 25541#       发表于 2025-2-17 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447936&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:10</a>
+
+什么圈的都能套个爱音同情盾来喷其他角色的时候这个社群就已经德不配位了 你看假面骑士圈都没电竞池来喷 ...</blockquote>
+烂炒动画做烂了是这样啊  现在各路不不相关的UP出来蹭着踩 最类似不就是当年和V圈完全不沾边的凑热闹喷holo么
+
+*****
+
+####  wpcc  
+##### 25542#       发表于 2025-2-17 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447946&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 14:11</a>
+
+我去年看到的手游圈子的乐子我能二偶动画再看一次，互联网大洪水会冲死每一个人 ...</blockquote>
+本质一拨人洗来洗去罢了 b站工作人员从管人 电竞 手游 动画 都是那几个人在带节奏烂抄 所以b站这几个区也重合起来烂抄。娱乐业就是互相竞争互相融合的 你看电影圈死的不要死了 
+
+*****
+
+####  z-hunter  
+##### 25543#       发表于 2025-2-17 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447778&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:47</a>
+
+只能说可怜，🍊这个情况，摊上这个问题；怎么办嘛，wsd你要不在想想办法吧，这么努力的中之人也不是没发 ...</blockquote>
+蜜柑要上位不如要武士道真的复活C团主推，这样她就能真的抱上大腿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 25544#       发表于 2025-2-17 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447956&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 14:12</a>
+
+烂炒动画做烂了是这样啊  现在各路不不相关的UP出来蹭着踩 最类似不就是当年和V圈完全不沾边的凑热闹喷ho ...</blockquote>
+字幕组的就在翻译动画然后出来剧透 不点名 独轮车优良传统了
+
+
+*****
+
+####  zhoujin8584  
+##### 25545#       发表于 2025-2-17 14:15
+
+<blockquote>ddy2811 发表于 2025-2-17 14:02
+第7集13W+同接呢，你能说谁就一定是“有的没的来踩一脚”？</blockquote>
+那5W/13W的差评率确实可以这么说了，看的都是来看你怎么烂的，峰值表现不如第6集，说明节奏与演出上的败笔让很多追番er首播即快进了
+
+*****
+
+####  595505568  
+##### 25546#       发表于 2025-2-17 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447966&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:12</a>
+本质一拨人洗来洗去罢了 b站工作人员从管人 电竞 手游 动画 都是那几个人在带节奏烂抄 所以b站这几个区也 ...</blockquote>
+所以我只能说别这时候冲的爽，下次看到一起冲的人会冲你推的时候就麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以我选择不冲，不想吃回旋镖（
+
