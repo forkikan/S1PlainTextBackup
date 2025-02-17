@@ -485,3 +485,13 @@ DEMO打完了，确实挺好玩的。没砍主角性能，而且还有旋回和�
 
 说起来当年初代AC的设计概念就是机甲+地牢探索,这游戏旧系AC的操作+类魂,莫名的符合系列的初衷(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ehekatl  
+##### 46#       发表于 2025-2-18 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这demo远程最好使的背包技能在开局的选择的近战套装里，用血换弹药，配合小怪掉的血包基本不必担心续航。
+
+如果用CE锁推进可以飞到篝火对面能捡到一个射程伤害弹速都不错的热能肩炮。
+
