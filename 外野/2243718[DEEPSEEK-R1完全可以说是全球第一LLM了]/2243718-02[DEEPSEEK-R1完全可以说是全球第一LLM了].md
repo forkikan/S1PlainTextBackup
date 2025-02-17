@@ -4691,3 +4691,14 @@ chat box 啊
 chat box 啊</blockquote>
 chatbox没法联网
 
+
+*****
+
+####  Geronimo  
+##### 1890#       发表于 2025-2-17 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445184&amp;ptid=2243718" target="_blank">huruii7 发表于 2025-2-17 09:29</a>
+
+chatbox没法联网</blockquote>
+联网是api的功能啊，和chatbox没关系。
+
