@@ -7748,3 +7748,56 @@ https://m.gamer.com.tw/forum/C.php?bsn=31877&amp;page=&amp;snA=6914&amp;last=
 
 要求也不高，你狗回到小圈子自嗨就够了，成天万象天引以为是世不二出的名作，结果作为单纯的故事烂尾，作为卖角色的二偶动画失格，说句不是直接追猎，你们不会这都要岁吧
 
+
+*****
+
+####  木板春香  
+##### 25885#       发表于 2025-2-17 20:27
+
+ 那段介绍后面不就是解释木头觉得自己的音乐传达不出自己的心声么，吉他不会说话，又不是=等于木头不会弹，等于是把莫提斯实锤是一个用来解决社交但不会弹吉他的人格了，她一直以来的痛处就是表达能力不好，会引发各种误会，所以才会弹的很痛苦啊
+
+*****
+
+####  aritaatsu222  
+##### 25886#       发表于 2025-2-17 20:28
+
+<blockquote>borrowface 发表于 2025-2-17 20:21
+车爱音性格x
+
+通过立个爱音不惹日本人喜欢的靶子旁敲侧击论证中国人喜欢爱音是因为过度解读看不懂动画不懂 ...</blockquote>
+
+一股邦xz的味道还左引右引我的言论当论证，够噁心的，上来就说过我讨厌鸡狗邦了
+
+*****
+
+####  是谁的书画  
+##### 25887#       发表于 2025-2-17 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451384&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 20:21</a>
+
+所以我的主要指望在引流狗身上</blockquote>
+这就是我的专业范围了，已经在清算了宝宝<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+但mygo炸了也不是ylg的错，人也不能扇自己巴掌，只能往别人身上冲咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这盛世俨然已经如你所愿了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aritaatsu222  
+##### 25888#       发表于 2025-2-17 20:32
+
+如果不是这样我也不会来这楼发言，就是终于看到狗批倒台才敢来，还好我这一年一直坚信自己的判断相信wsd迟早玩脱，要是早就放下忽视现在可不会这么开心了
+
+*****
+
+####  usodakedo  
+##### 25889#       发表于 2025-2-17 20:33
+
+“信息密度”，“二刺螈红楼梦”，“万字解析”
+就说一点，在第七集之前实际上还有挺多人在给c团当初的解散造假药，但实际上就只是真的闹麻了不好好沟通而已。
+鸡里有不少可以回旋当初狗的情节，所以确实回到小圈子里比较好，不够各方面优秀的产品确实禁不起大众的审判，无论你说这大众有多少ylg成分吧，反正现在事实确实如此
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
