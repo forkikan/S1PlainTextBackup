@@ -7143,3 +7143,84 @@ mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效�
 
 这周大陆运营还敢开nsy直播吗
 
+
+*****
+
+####  aptx8285144  
+##### 25831#       发表于 2025-2-17 18:57
+
+<blockquote>sauron.j 发表于 2025-2-17 18:42
+灯祥、灯素都是十分遗憾的对手戏发展，两个无常场外因素发散前提下、就本篇刻画来讲最有化学反应的cp
+
+我 ...</blockquote>
+灯的人畜无害的原始程度比爱音还高（她伤害别人是需要独角兽和柿本找个恰当时间点说补刀的话那种脑控)，素世对她卸下防线的概率就会比其他人物高
+
+*****
+
+####  呱基  
+##### 25832#       发表于 2025-2-17 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450618&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 18:39</a>
+
+我一直以为祥子知道睦的真实原因不说并且还拉着她去组商业乐队，是因为她没有余裕去照顾她，弄个遮挡最大的 ...</blockquote>
+感觉你比编剧会写，说不定这么写祥子都能少挨点骂
+
+*****
+
+####  刑部姬真可爱  
+##### 25833#       发表于 2025-2-17 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450750&amp;ptid=2208921" target="_blank">剪切线 发表于 2025-2-17 18:55</a>
+
+这周大陆运营还敢开nsy直播吗</blockquote>
+开了还能伺候核心一些的圈子，不开连核心圈子也要得罪一下
+
+
+*****
+
+####  嵇翱u  
+##### 25834#       发表于 2025-2-17 19:00
+
+其实我在想所谓丰川家的黑暗，不会是被赶出门的那个小家吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，那门牌上不还写着丰川吗。
+反正祥爹已经人渣化了，坏事全让他背了算了，这样最后包饺子也不用拉上他。
+譬如祥爹当年去小岛私会情人，初华就是私生女，所以初祥才是姐妹，有了这种背叛祥妈伤害初华的事，祥子也可以和祥爹恩断义绝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 25835#       发表于 2025-2-17 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450715&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 18:51</a>
+1.你的胃口确实够好，一个季度排10名开外的能叫良作。我一般一个季度能看到五部能看的就高呼满足。
+2.“ ...</blockquote>
+那你真是动画痴子，原来一个季度还能看五部，而且是从上往下挑高分段看，良作不是靠你的嘴说的，其他数字也是，我怎么觉得你现在只会不断下定义这个数字不行那个数字很烂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你倒是一直在说基数小，有没有可能我早就告诉你了，2.5次元女声优乐队本身就小？你指望看见一路翻倍上升等到13集两万在线吗？本来就是你在这擅自用各种真人乐队或者里程碑作品来稀里糊涂跟mujica对比，比下去了就说mujica不过如此，那你这个比较确实跟冲蝗神人差不多，反正都是为了自己爽
+自己没说认不认市场，但是自己又特意在分析里提了老钟市场，你这不还是前后对不上，能不能有个单一的评价标准呢
+
+*****
+
+####  帝下室の年糕  
+##### 25836#       发表于 2025-2-17 19:02
+
+ 本帖最后由 帝下室の年糕 于 2025-2-17 19:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450596&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 18:36</a>
+这动画还德和位，德是指动画素质的话，位是指啥？是c团复活大活换来的热度是吧，我看这热度增长也就那样 ...</blockquote>
+我又不是股东，赢不赢，赢多大管我屁事，不是你在一会儿谈热度一会儿谈质量反复横跳吗？我也只是指出现在还在叫环大陆路边已经是不符合实际高高在上的意淫了，要不请您这位赛博土皇帝定义一个标准，低于这个标准就是路边一条，我一定听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零壹贰叁  
+##### 25837#       发表于 2025-2-17 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来之前还有个火烧祥爹ed黑色生日的假剧透
+现在看来真不如演这个
+
+*****
+
+####  ape-apple  
+##### 25838#       发表于 2025-2-17 19:04
+
+回来了，都回来了，冲蝗神人，反A雅士，真不如出去直接开mggm的牧场，2025年了都，能不能别把二游思路当成一切<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
