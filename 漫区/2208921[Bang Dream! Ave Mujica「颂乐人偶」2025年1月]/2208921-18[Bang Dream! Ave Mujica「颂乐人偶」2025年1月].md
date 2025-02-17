@@ -5389,3 +5389,91 @@ tft现在一百多万播放量，比搬运的B站播放量都高，mujica生放�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 25665#       发表于 2025-2-17 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449144&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-17 16:03</a>
+
+老钟人多数把爱音当第一（男）主人公的</blockquote>
+原创动画角度其实灯像男主，爱音像女主（不是CP角度)，只不过这个女主更有行动力一些，素世是暗线主要人物，大祥像影子主角，对于GO团时期而言
+
+*****
+
+####  天空塔书记官  
+##### 25666#       发表于 2025-2-17 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449215&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 16:11</a>
+反正我好几次发现访谈和剧情对不上，声优自己看全台本的情况下，怎么可能说这个，然后想了下这是一种宣发 ...</blockquote>
+外围本质就是宣发的一环，就像声优关系性营业一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 25667#       发表于 2025-2-17 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449227&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-2-17 16:13</a>
+真整出个为流量为上位不择手段的乐队少女的枭雄就故事性来说不也挺有意思的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25668#       发表于 2025-2-17 16:17
+
+ 本帖最后由 ape-apple 于 2025-2-17 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449240&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:14</a>
+
+闹麻了，你在楼里整天炒作海外热度多高，春秋笔法真是有意思。喏，这是你吹的一百万播放量在tft的含金量 ...</blockquote>
+
+三天的和三个月的比……行，这个你说什么就是什么，但是为什么不是别的时间别的团，而是这个时间的C团？商法确实有用啊
+
+顺便我一直挺喜欢黄绿色社会的，多谢你告诉我C团这个半吊子女声优组合播放量是什么级别
+
+*****
+
+####  cxj649  
+##### 25669#       发表于 2025-2-17 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449220&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 16:12</a>
+
+就第七集发个消息还你推我我推你，到了c团的场合就个个热泪盈眶、慈祥满目，狗团除了不熟有伙伴的味吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实第七集很苏联笑话的233
+
+估计牛子豪昨天破防的点也苏联笑话233
+
+*****
+
+####  天空塔书记官  
+##### 25670#       发表于 2025-2-17 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449255&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 16:15</a>
+主要是手法不好，如果是一个能在大人世界（视频网站）上披荆斩棘的30万粉-16岁女生YTBer，其实应该商业头 ...</blockquote>
+这…你看看B站的百大不就知道了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  高贵的  
+##### 25671#       发表于 2025-2-17 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449255&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 16:15</a>
+
+主要是手法不好，如果是一个能在大人世界（视频网站）上披荆斩棘的30万粉-16岁女生YTBer，其实应该商业头 ...</blockquote>
+所以我没提大猫，大猫就剧内的表现就突出一个知道剧本是怎么回事所以怎么作都无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25672#       发表于 2025-2-17 16:21
+
+互联网造神不过瞬息之间，有时候流量的风口和起飞的本人就是没啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
