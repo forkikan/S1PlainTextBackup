@@ -6913,3 +6913,84 @@ mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效�
 
 高松灯的底层逻辑确实是我全都要，不然go ep9也不会闹解散了
 
+
+*****
+
+####  非建政专用号  
+##### 25811#       发表于 2025-2-17 18:28
+
+现在是几对人在吵架，看着有点乱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  怀沙汨罗  
+##### 25812#       发表于 2025-2-17 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450442&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 18:15</a>
+又在拉表，你真是数字的奴隶啊来告诉我85不是高是低吗？日本人觉得85好评，是很低的数字吗？你不管再怎么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">牛，你张口就来的论点为了让你看得懂给你找找图片照顾你的理解能力还成奴隶了。放在一个季度里也就排十一十二位的也能叫良作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我看庸作还差不多。
+像你一样心证是最舒服的，反正生造完别人观点还能厚着脸皮若无其事地说什么“否定之否定”合着你自己理解错就一笔带过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还东拉西扯扯什么holo，关我屁事，我就讨论这破比动画。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  595505568  
+##### 25813#       发表于 2025-2-17 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450403&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-17 18:09</a>
+祥子之前一直知道睦左右为难还要让睦骗soyo呢。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是啥都知道最后还要做的事情祥子在Go里做了多少啊，这洗不清了
+
+*****
+
+####  borrowface  
+##### 25814#       发表于 2025-2-17 18:33
+
+有些人好赖话说了一堆，就差说出Mujica现在那么差是因为中国带火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/29b74d45c2c9f85bd7b0cae0c22433d4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  渡鸦骑士  
+##### 25815#       发表于 2025-2-17 18:34
+
+反正剧本应该改过的，有很多和剧情表现出来的意图不符的地方。
+其他就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25816#       发表于 2025-2-17 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450535&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 18:28</a>
+牛，你张口就来的论点为了让你看得懂给你找找图片照顾你的理解能力还成奴隶了。放在一个季度里也就排十一 ...</blockquote>
+又在定义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排十一十二的低吗？你定义庸作当然可以，bangumi一帮人定义庸作呢，日本人不这么认为啊，还是你替日本人定义了不是95分就是庸作？
+自己拿出来财报给老中市场加权重，自己反而不认16%涨幅很大，定义一堆数字都是错误的，所以你就赢了？你能不能真找到日本人稍微不满的证据再说话呢？
+
+*****
+
+####  milky658  
+##### 25817#       发表于 2025-2-17 18:35
+
+这楼成分越来越复杂了，能学语文(指阅读理解)，数学(数字分析)，英语(外网精选)，历史(当代姜维)，政治(王侯将相)，化学(炼金术)。知识越来越丰富了呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 25818#       发表于 2025-2-17 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450411&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 18:09</a>
+你到底是要谈客观的海外热度还是德不配位的问题，东京复仇者这么火和它的作品质量有关吗，能上TFT的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你想说这是证明实力还是wsd的大手？当然，再去掉什么孤独摇滚这些比不过的，剩下的就自然是比得过的了，赢麻了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
