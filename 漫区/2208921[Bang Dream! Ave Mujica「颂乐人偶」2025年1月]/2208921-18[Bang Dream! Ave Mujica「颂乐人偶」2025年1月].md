@@ -8175,3 +8175,20 @@ nico评价差评到时和国内差不多,147最高
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  第贰个十年  
+##### 25923#       发表于 2025-2-17 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447183&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 12:36</a>
+爱素这cp能火起来本身就能说明问题了
+
+爱灯是mygo的主线</blockquote>
+我不理解怎么就滑坡到爱素全靠二创了
+追逐戏、撩头发、别退出、最先叫昵称、十一集素世川剧变脸……那么多的关系性官方糖现在变成全靠二创，那这断层第一的二创热度为什么不是爱灯？不是爱祥？不是爱绘里？攻击就攻击，尬黑就没必要了
+
+“我很喜欢爱音和素世在第十集后的关系”——此事在凌奈由仁子访谈中亦有记载
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

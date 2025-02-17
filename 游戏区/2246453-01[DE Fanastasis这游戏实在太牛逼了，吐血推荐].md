@@ -894,3 +894,39 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 
 🐴一下
 
+
+*****
+
+####  游公子  
+##### 73#       发表于 2025-2-17 22:07
+
+简称为XG的是什么游戏
+
+Avatar
+
+“XG”可能指代以下几种游戏或相关概念：
+
+    《异度装甲》（Xenogears）
+
+    这是一款由史克威尔（现为史克威尔艾尼克斯）于1998年在PlayStation平台上发行的经典角色扮演游戏，全称为“Xenogears”，简称“XG”
+
+。
+
+《极限G赛车》（Extreme G Racing）
+
+这是一款以未来风格为主题的赛车游戏，英文全称为“Extreme G Racing”，简称“XG”
+
+。
+
+《吉他高手XG》（GuitarFreaks XG）
+
+这是一款由日本游戏公司KONAMI推出的音乐游戏，属于“吉他高手”系列的最新一代，简称“XG”
+
+。
+
+XG作为电子竞技俱乐部的简称
+
+Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立于2021年
+
+。
+
