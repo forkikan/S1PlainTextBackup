@@ -32,3 +32,18 @@ lz该不会是其乐那位？之后还出过问题吗？
 —— 来自 鹅球 v3.3.96</blockquote>
 暂时没出现过了，不过最近忙，玩的时间也比较少
 
+
+*****
+
+####  cc-2  
+##### 1409#       发表于 2025-2-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67439799&amp;ptid=2086469" target="_blank">无名的刀锋 发表于 2025-2-16 14:51</a>
+
+问问有人用过壹号本游侠x1吗，这个三合一看着还挺哄人的</blockquote>
+我之前也在这款和ALLY X之间犹豫
+
+不过壹号本风评貌似不大好
+
+贴吧也有看到说游侠这款有什么电流声
+
