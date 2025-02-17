@@ -764,3 +764,21 @@ https://bgm.tv/subject/topic/33083
 你说的这个地方在哪，我好像都没去过</blockquote>
 [https://motomiyaraimu.com/de-fanastasis-memo/](https://motomiyaraimu.com/de-fanastasis-memo/) 参考 追加シナリオ後半の攻略ルート 部分可以看到，最后还有几个小地方可以去，还挺感慨的
 
+
+*****
+
+####  妄想中毒  
+##### 60#       发表于 2025-2-17 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451308&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-17 20:11</a>
+
+https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の攻略ルート 部分可以看到，最后 ...</blockquote>
+草，怪不得心之间最后四个记忆我一个都解锁不了，这后半段追加剧情完全没引导不看攻略真的不行
+
+*****
+
+####  雪地白狼  
+##### 61#       发表于 2025-2-17 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这难度真的平滑吗，硬刷了一个小时打不过第一个沉船后面的小怪
+

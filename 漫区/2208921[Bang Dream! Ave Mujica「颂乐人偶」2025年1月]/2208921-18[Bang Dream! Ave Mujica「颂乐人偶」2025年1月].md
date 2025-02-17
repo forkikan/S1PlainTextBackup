@@ -7886,3 +7886,84 @@ https://www.youtube.com/watch?v=0RLDUHVOt5I
 这个乐队哥讲的自己作为真搞乐队的理解，很接近目前大陆的 ...</blockquote>
 完全正确 但是十本觉得 四个团是平等的 进了手游就是大混池呢 
 
+
+*****
+
+####  cxj649  
+##### 25895#       发表于 2025-2-17 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我有点好奇后藤爱音的话会怎么样
+
+*****
+
+####  ape-apple  
+##### 25896#       发表于 2025-2-17 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451400&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 20:23</a>
+我真佩服你脸不红心不跳歪曲话题的能力，还现在知道，我早在多少楼之前就告诉过你脱离基数谈涨幅没意义你 ...</blockquote>
+现在知道8%&gt;7%，知不知道50%是多大呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只是想知道你这种解释世界改造世界的力气，能不能用在扇自己的脸上，知道看财报不知道什么是波动和趋势是吧，那我来教教你，好评率可以扔进Excel出个图形，看看整体趋势是往上还是往下，再看看观众的存留率，别只会小学三年级加减乘除了哦，再重复一遍，知道8%&gt;7%，那知道50%是多大了吧
+
+*****
+
+####  a611611611  
+##### 25897#       发表于 2025-2-17 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451400&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 20:23</a>
+
+我真佩服你脸不红心不跳歪曲话题的能力，还现在知道，我早在多少楼之前就告诉过你脱离基数谈涨幅没意义你 ...</blockquote>
+这数据真的假的？怎么才四千不到？
+
+*****
+
+####  安娜导函数  
+##### 25898#       发表于 2025-2-17 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450667&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-17 18:44</a>
+没说睦不能弹啊
+只是说作为祥子，如果知道这事还拉人进乐队让人不开心，人家疯了之后一个月不见非要被soy ...</blockquote>
+纯粹是编剧已经不知道自己在写啥了，感觉就是大框架已经搭好咯，比如第四话要拆队，第七话要配合场外CCC上TFT搞一场CCC的live，然后具体每一话就纯粹现编，需要哪个工具人了现场拉，压根不在乎这人这样行事是否符合人设
+
+*****
+
+####  zhzij111  
+##### 25899#       发表于 2025-2-17 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451333&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 20:14</a>
+你觉得狗动画很好是你的事，你觉得我是二偶吃我很难过，我可讨厌这些狗玩意了，你狗剧本风评都吹到小胜计 ...</blockquote>
+怪不得看你今天发言都莫名其妙的，原来是来清算的，那我支持你，拍烂了确实该清算<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  滑稽Captain  
+##### 25900#       发表于 2025-2-17 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451593&amp;ptid=2208921" target="_blank">a611611611 发表于 2025-2-17 20:47</a>
+
+这数据真的假的？怎么才四千不到？</blockquote>
+会在nico看直播还投票的这个体量很正常
+
+*****
+
+####  aptx8285144  
+##### 25901#       发表于 2025-2-17 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451533&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-17 20:41</a>
+
+https://www.youtube.com/watch?v=0RLDUHVOt5I
+
+这个乐队哥讲的自己作为真搞乐队的理解，很接近目前大陆的 ...</blockquote>
+从第五话开始就是做好谁垫了谁的心理准备吧，反正要完蛋的不只是一个人物的人设，有一些观众可能不记得大🐘宣称不记得睦的时候叔叔家的评分已经开始掉的比较快了，这话不过是加速爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 25902#       发表于 2025-2-17 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451593&amp;ptid=2208921" target="_blank">a611611611 发表于 2025-2-17 20:47</a>
+
+这数据真的假的？怎么才四千不到？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就是这个体量，所以我不明白就这基数有啥好吹的。说句难听的b站几个头部up主直播吐槽mujica都有6w在线了
+
