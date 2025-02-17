@@ -6549,3 +6549,84 @@ IMG_1638.jpeg
 因为拉辉煌的时间刚好是这代日本人初高中的时候。
 所以长大的拉拉粉要多一些(然后被学马一网打尽)
 
+
+*****
+
+####  怀沙汨罗  
+##### 25779#       发表于 2025-2-17 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450156&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 17:32</a>
+自己说的自己不认是吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我算是知道我和什么逻辑思维的人在争了。
+某些人的观点:股价涨——赢——老钟闹麻了。
+我的观点:股价涨只是因为财报发了，和动画没关系（原话）——看看财报具体写了啥——哦里面写了几点关于中国市场的预期，说明wsd还是看重老钟市场的。
+
+你的观点:本人分析了财报里面提到对中国的预期——本人觉得股价上涨和老钟市场有关
+
+你现在能不能看出来问题了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25780#       发表于 2025-2-17 17:37
+
+唉，儿拉梦
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Skymoon  
+##### 25781#       发表于 2025-2-17 17:40
+
+服了，跟二游痴一样讨论什么流水股价，闹麻了
+
+*****
+
+####  ape-apple  
+##### 25782#       发表于 2025-2-17 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450198&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:37</a>
+我算是知道我和什么逻辑思维的人在争了。
+某些人的观点:股价涨——赢——老钟闹麻了。
+我的观点:股价涨只 ...</blockquote>
+涨就是涨，多就是多，你现在做的都是在给自己的话找补<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">基数再低，Nico观众也是在涨；前作再拉人，也是在mujica开播才实现常态化上趋势；再砸钱买量，tft上春日影也是近期高播放量数据。没意义，真的，反对数字没有用
+
+*****
+
+####  MuramasaSP  
+##### 25783#       发表于 2025-2-17 17:41
+
+<blockquote>hysjmr 发表于 2025-2-17 17:28
+mygo里演得好像不是这么回事啊。当然也可以脑补成大祥老师天花乱坠吹了一顿，被睦头一语道破天机，脸上挂 ...</blockquote>
+
+我没理解你的意思。mygo里睦自己家里玩吉他证明她还是喜欢的。觉得弹得不好确实是天降设定，但mygo也没有说她之前觉得自己弹的好。
+
+大祥老师天花乱坠吹了一顿是哪一段，想不起来了。
+
+*****
+
+####  595505568  
+##### 25784#       发表于 2025-2-17 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450115&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-17 17:27</a>
+要我说，隔壁NGA都复盘发现她SOYO一开始就是当代姜维，复兴大C初心不变了。你楼在这虚空比流水就很奇怪。
+
+ ...</blockquote>
+问题是现在是晋朝，她还复兴什么蜀啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangh  
+##### 25785#       发表于 2025-2-17 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449958&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 17:11</a>
+
+萝的剧情在两部剧场版，据看过的楼友反应很烂，出自柿本监督的大手
+
+而正传三季里就已经是大前辈完全体了 ...</blockquote>
+现在B站上高播放量的萝和ykn的视频和二创基本都来源于剧场版。所以我说鸡团剩下6集能有高质量live的话就还有点机会
+

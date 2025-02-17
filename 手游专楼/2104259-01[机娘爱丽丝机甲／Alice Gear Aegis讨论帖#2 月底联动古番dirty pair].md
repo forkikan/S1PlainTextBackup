@@ -136,3 +136,11 @@ dmm现在更新条款了，现绑jcb估计也来不及了吧，当时嫌麻烦�
 
 顺便现在氪金是个啥情况，去申请个有jcb的信用卡还来得及吗
 
+
+*****
+
+####  冰风血羽  
+##### 1382#       发表于 2025-2-17 17:40
+
+不知道，哪位有新卡的可以试试<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
