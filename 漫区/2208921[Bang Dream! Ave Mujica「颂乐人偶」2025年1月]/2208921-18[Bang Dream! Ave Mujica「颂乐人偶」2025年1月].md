@@ -1688,3 +1688,104 @@ mujica在路人眼中可能还是有一些热度的。</blockquote>
 
 只不过牢台一看就没钱当这种就为爷开心的金主。。。
 
+
+*****
+
+####  厚乳果珍爽  
+##### 25307#       发表于 2025-2-17 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真，mo老师的设定还不如说是睦演出来的能展现出睦的特点。
+
+到时候又有观众说，哎哟喂，这睦头怎么这么坏，然后吭哧吭哧的跑去mygo里找线索，然后大喊，伏笔伏笔。
+
+*****
+
+####  路人庚  
+##### 25308#       发表于 2025-2-17 10:10
+
+抛开第七集最后的两首歌，其实我想知道如何给大祥老师在知道木头人觉得自己吉他不行的情况下，前面又是拉着玩乐队又对木头哈气的这个行为找补（
+
+过去几天了还是没想到任何地方能弥补一下这样恶劣的观感
+
+
+*****
+
+####  结衣小比取  
+##### 25309#       发表于 2025-2-17 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444801&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 08:36</a>
+
+再来个抛砖引玉的说法哈，这个说法我不如对千早爱音地位中日看法有差距那么笃定。
+
+日本人对组团的理解跟中 ...</blockquote>
+抱歉，坛友说的这个“不退出宣言”指的是什么？在第十二话的哪里？刚才按着脑袋回忆了半天，没想起来
+
+*****
+
+####  ads147147  
+##### 25310#       发表于 2025-2-17 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445518&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 10:03</a>
+
+讲道理，感觉说现实企划或GBC都有点偏题了，主要就是这话柿本和独角兽细节描写上要是C团旧人们多给爱音一些 ...</blockquote>
+彩排这个桥段安排的真不太行。。还不如正式演出的时候让其他什么队临时没来，mygo先演了成为人类之歌后祥子和睦再上来凑时间演春日影。
+
+本来之前mygo演出也是顶班衔接，ccc复活同样靠顶班不也是很好的回扣设计，那我只能说看不懂制作现场到底是怎么想的，可能真觉得哭哭演唱拍的真好，必须给大家品味一下吧。。
+
+*****
+
+####  天空塔书记官  
+##### 25311#       发表于 2025-2-17 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445499&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-17 10:01</a>
+岛国那边mygo有点路边，童厕是有收藏集团魂的</blockquote><blockquote>这不但是剧情或者演出的问题，更是中日文化差异的体现，我们用中文的语境解读了mygo这部作品并把它推上“神坛”，而我们和wsd都没有意识到中日眼中的mygo其实是两部完全不同的作品，这也最终导致了评分的滑坡和观众群的逆反，让wsd精心准备的烂炒和中华炮炸在了膛里</blockquote>
+说到底还是因为wsd没搞清楚mygo在老中爆火的原因，以为真可以靠岛国人的思维在老中开拓市场<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 25312#       发表于 2025-2-17 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444876&amp;ptid=2208921" target="_blank">飞天意面怪 发表于 2025-2-17 08:48</a>
+
+作为mujica的云观众，我一直以为黄瓜退货后素会是最死硬的反crychic分子，结果就这？
+
+打个比方，家庭中被抛 ...</blockquote>
+如果看过MyGO动画第十三话Soyo和灯在天桥的对话，应该不会觉得她有反CRYCHIC情绪吧？
+
+虽然Ave Mujica动画第七话解散Live后并没有庆功宴，不过在Live结束后，Soyo就和其他成员继续准备MyGO乐队的活动，祥子向她们行礼时都是背对的，是否有一定程度满足坛友这个期望？
+
+<img src="https://img.saraba1st.com/forum/202502/17/101211nmz16i2hiq6wqqz7.jpg" referrerpolicy="no-referrer">
+
+<strong>Live结束后祥子行礼.jpg</strong> (508.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 10:12 上传
+
+*****
+
+####  ads147147  
+##### 25313#       发表于 2025-2-17 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">你拉真在中国火，真的用上海人打中华炮，不也搞的一团烂泥。不是wsd的问题，是日企都这个毛病，看不起中华市场有想要中华市场的钱，总觉得自己怎么做都可以被中华市场爱。
+
+*****
+
+####  zhoujin8584  
+##### 25314#       发表于 2025-2-17 10:15
+
+<blockquote>路人庚 发表于 2025-2-17 10:10
+抛开第七集最后的两首歌，其实我想知道如何给大祥老师在知道木头人觉得自己吉他不行的情况下，前面又是拉着 ...</blockquote>
+你说呢，连自诩祥厨的泛式都一边找补这是编剧突然让大祥看了剧本一边没忍住骂了句祥处
+
+*****
+
+####  cherryjia12  
+##### 25315#       发表于 2025-2-17 10:15
+
+愤怒的狗友(？)也算是打到棉花上了
+<img src="https://p.sda1.dev/22/247f8f170d4c65d42636cc7927c8bd85/image.jpg" referrerpolicy="no-referrer">
+

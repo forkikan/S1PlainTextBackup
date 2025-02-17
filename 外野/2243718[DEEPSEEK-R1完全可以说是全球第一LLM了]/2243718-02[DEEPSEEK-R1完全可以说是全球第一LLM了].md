@@ -4702,3 +4702,14 @@ chatbox没法联网
 chatbox没法联网</blockquote>
 联网是api的功能啊，和chatbox没关系。
 
+
+*****
+
+####  居于月上伊莫库  
+##### 1891#       发表于 2025-2-17 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444675&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-17 08:02</a>
+没错，这个真的很难解决，我用了非常详细的文风指导了，其实到这程度都不期待有多想象力了，就公式化就行 ...</blockquote>
+如果是玩类脑上别人车的卡，搭配的破限不同，生成结果也会大相径庭。
+还有玩一个剑与魔法的RP 隔段时间就要重点提醒它我们这不是科幻，让那些劳什子机械义肢义眼芯片啥的都滚蛋。不要再破坏我们DND 的世界观了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">。
+

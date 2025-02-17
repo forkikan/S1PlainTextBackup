@@ -126,3 +126,13 @@ dmm现在更新条款了，现绑jcb估计也来不及了吧，当时嫌麻烦�
 
 新墨镜，也太像眼罩了，不愧是你游。
 
+
+*****
+
+####  madcow  
+##### 1381#       发表于 2025-2-17 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">哎我就想要P站联动那套来着，看来是绝版了（
+
+顺便现在氪金是个啥情况，去申请个有jcb的信用卡还来得及吗
+
