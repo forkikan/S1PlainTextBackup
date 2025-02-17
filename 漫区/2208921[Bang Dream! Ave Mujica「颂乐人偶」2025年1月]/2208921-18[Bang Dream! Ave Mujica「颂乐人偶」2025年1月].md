@@ -6302,3 +6302,172 @@ tft一般都是两首
 
 萝团还是牛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 25754#       发表于 2025-2-17 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449956&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:11</a>
+拿股价说话就看得出你水平了，知道16%因为啥涨吗？知道有财报这种东西吗？知道财报公布是什么时候吗？知 ...</blockquote>
+乐，现在又进入你喜欢的领域了是吧，财报积极预期全是老中周边卖得好，根本不是tcg的关系呢，这个功劳你替根本揽下的？
+
+*****
+
+####  渡鸦骑士  
+##### 25755#       发表于 2025-2-17 17:14
+
+点赞比高是好事嘛……点赞比高只能说核心粉丝多，换句话来说就是一点新人都没引进来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 25756#       发表于 2025-2-17 17:15
+
+萝团动画只有那两部剧场版吗？年前下了个合集点开看过，就看了一部，给我吃顶了，感觉像TV总集篇。结果它没有TV原著？
+
+*****
+
+####  十九号大侠  
+##### 25757#       发表于 2025-2-17 17:15
+
+兄弟们，上杠杆做空wsd
+
+*****
+
+####  滑稽Captain  
+##### 25758#       发表于 2025-2-17 17:15
+
+☁️宝别在这提你那🇵🇭，管人痴看首播和这种企划看首播也不是一个概念啊
+
+*****
+
+####  天空塔书记官  
+##### 25759#       发表于 2025-2-17 17:16
+
+牛不牛另说，就萝初期的剧情如果放在前三季动画里也是足够重量级的，完全是沾了表现少的便宜<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 25760#       发表于 2025-2-17 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449946&amp;ptid=2208921" target="_blank">渡鸦骑士 发表于 2025-2-17 17:10</a>
+
+但是tft首播同接2万7只能说闹麻了。
+
+管人首播还有14万呢</blockquote>
+这个
+
+LL其实可能比邦邦低些233
+
+
+*****
+
+####  渡鸦骑士  
+##### 25761#       发表于 2025-2-17 17:16
+
+那不都是比动员能力嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+**是一个流量流动性很大的平台了。
+这首播这个水平只能说核心动员能力就这些啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25762#       发表于 2025-2-17 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450002&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 17:15</a>
+萝团动画只有那两部剧场版吗？年前下了个合集点开看过，就看了一部，给我吃顶了，感觉像TV总集篇。结果它没 ...</blockquote>
+原著在手游，剧场版是纯粉丝向的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 25763#       发表于 2025-2-17 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449983&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 17:14</a>
+乐，现在又进入你喜欢的领域了是吧，财报积极预期全是老中周边卖得好，根本不是tcg的关系呢，这个功劳你 ...</blockquote>
+啊？你也知道是大概率tcg这些小商品的关系，那你先列这个股票上涨的论据想证明啥？不会想证明一部还未完结的动画能影响股价10几个点吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  渡鸦骑士  
+##### 25764#       发表于 2025-2-17 17:18
+
+莲搞YouTube直播也能上万同接的。
+这种企划YouTube同接基本等于核心粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 25765#       发表于 2025-2-17 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450033&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:18</a>
+啊？你也知道是大概率tcg这些小商品的关系，那你先列这个股票上涨的论据想证明啥？不会想证明一部还未完 ...</blockquote>
+因为你说的基数低不算涨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己的话自己咽了吗？50%没意思，因为是基数低，那16%涨幅也没意思，因为基数低？你说和老中市场好预期有关，我说其实是跟老中市场关系不大，你说“啊还真是”，我都不知道你在反对什么，你不能只有股价涨的时候才和老中市场挂钩
+
+*****
+
+####  渡鸦骑士  
+##### 25766#       发表于 2025-2-17 17:21
+
+换个角度想吧，武士道把C团拉上tft肯定是想趁着机会炒炒热度刷刷大众的脸。那肯定是播放量高同接高，播放增长长期稳定才是更好的。
+
+*****
+
+####  凉良  
+##### 25767#       发表于 2025-2-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450038&amp;ptid=2208921" target="_blank">渡鸦骑士 发表于 2025-2-17 17:18</a>
+
+莲搞YouTube直播也能上万同接的。
+
+这种企划YouTube同接基本等于核心粉丝</blockquote>
+所以tymm把莲角色放在前面是邦更糊么
+
+*****
+
+####  怀沙汨罗  
+##### 25768#       发表于 2025-2-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449939&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 17:09</a>
+唉春秋笔法，唉毫无含金量，原来WSD这种臭底边公司随便砸钱就能做到最近12个视频里播放量前四（马上第二 ...</blockquote>
+怎么不敢正面回答路边网站又换个话题了？咋对比12个，不敢往前拉拉了？还有点赞量倍杀也敢拿出来吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还真是人云亦云。想必点赞多这么多一定是因为这歌比其他歌曲更好听吸引到路人粉了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  渡鸦骑士  
+##### 25769#       发表于 2025-2-17 17:24
+
+不知道，我不看tymm。
+但是邦这几年没有主心骨是真的。
+
+*****
+
+####  ape-apple  
+##### 25770#       发表于 2025-2-17 17:25
+
+涨50%，基数低，过；涨16%，基数低，过；但是当讨论为什么涨16%，就是因为老中市场预期好，这时候又有意义了？体感热度提高根本不用大拉表，看看p站和X就行，何必要解读各种数据呢？不爽就直说不爽，世界上德不配位的东西多了去了
+
+*****
+
+####  MuramasaSP  
+##### 25771#       发表于 2025-2-17 17:25
+
+<blockquote>零壹贰叁 发表于 2025-2-17 17:04
+这点我完全没办法和解
+
+怎么能知道的？怎么能？
+
+太随便了</blockquote>
+我来找理由洗：睦喜欢弹吉他，但是因为吉他弹得不够好所以自卑，这两点不矛盾。就和我喜欢玩动作游戏但是忍龙2重置玩得艰难有些自卑一样。祥子同时知道这两点，由于睦的确喜欢吉他所以可以拉着一起组mujica，至于弹得不够好自卑可以通过提高水平慢慢治。
+

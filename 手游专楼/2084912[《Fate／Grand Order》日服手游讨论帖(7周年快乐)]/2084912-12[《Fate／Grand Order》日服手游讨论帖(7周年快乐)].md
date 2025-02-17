@@ -918,3 +918,93 @@ https://m.bilibili.com/opus/1033632735051120642
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">观！音！菩！萨！
 
+
+*****
+
+####  gpx234mqx  
+##### 16361#       发表于 2025-2-17 17:18
+
+女菩萨已经有了啊
+
+只是大家不记得
+
+<img src="https://img.saraba1st.com/forum/202502/17/171839nviifvwwnfue1twe.png" referrerpolicy="no-referrer">
+
+<strong>A98A449E-7F60-46A7-BB38-C6EBF18C64A6.png</strong> (621.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 17:18 上传
+
+*****
+
+####  Jamaisvu  
+##### 16362#       发表于 2025-2-17 17:20
+
+小野小町的三破满破卡面：
+
+<img src="https://img.saraba1st.com/forum/202502/17/171904b076n5f04bqu5n4f.jpg" referrerpolicy="no-referrer">
+
+<strong>1739783888925.jpg</strong> (475.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-17 17:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/171904l38t4ds36d3mdcs9.jpg" referrerpolicy="no-referrer">
+
+<strong>1739783892698.jpg</strong> (363.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-17 17:19 上传
+
+四破又用回了灵基二造型，显得三破各方面都挺突兀的...
+
+
+*****
+
+####  gpx234mqx  
+##### 16363#       发表于 2025-2-17 17:24
+
+<blockquote>Jamaisvu 发表于 2025-2-17 17:20
+小野小町的三破满破卡面：
+
+</blockquote>
+总不能满破上观音吧
+
+*****
+
+####  angelooo  
+##### 16364#       发表于 2025-2-17 17:25
+
+满破好看，可惜三破整得什么烂活，pass
+
+*****
+
+####  gpx234mqx  
+##### 16365#       发表于 2025-2-17 17:26
+
+<img src="https://img.saraba1st.com/forum/202502/17/172509rpprkuvujzunpakk.png" referrerpolicy="no-referrer">
+
+<strong>EA067C34-5ED8-4B70-A580-602607441CF2.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 17:25 上传
+
+还是上杀生院应景
+
+*****
+
+####  Jamaisvu  
+##### 16366#       发表于 2025-2-17 17:27
+
+<blockquote>gpx234mqx 发表于 2025-2-17 17:24
+总不能满破上观音吧</blockquote>
+感觉可以把眼镜摘了，樱花树下布置点莲花，预示人性佛性在红尘中交织转换。现在这构图有点普通...
+
+说实话我现在无比想念九相图（笑）
+
