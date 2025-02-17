@@ -930,3 +930,11 @@ Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立
 
 。
 
+
+*****
+
+####  siriii  
+##### 74#       发表于 2025-2-18 00:38
+
+问一下，狂信者妹妹是不是有不杀的路线？杀掉之后互动地上的血迹船长冒出来一个“。。。”，而且她说的要用什么东西交换我也没搞明白<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

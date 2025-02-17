@@ -8567,3 +8567,43 @@ ave mujica本身就是毁灭一切，再重建一切，太对了<img src="https:
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 25960#       发表于 2025-2-18 00:39
+
+ave mujica的1st live的标题「Perdere Omnia」，意指「破坏一切」或「失去一切」。
+
+57032d89aa131705a074689a94849cc81459104794.jpg
+(190.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 00:38 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/003823x0uu88vo8r7oqgft.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 25961#       发表于 2025-2-18 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452907&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-18 00:32</a>
+看到ave声优的女女关系营业有点PTSD了
+
+不仲的警报在狂啸啊啊啊啊啊</blockquote>
+一切不仲的前提都得是曾经亲密过（或者至少营业过）——鸡团还没到不仲阶段呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 25962#       发表于 2025-2-18 00:41
+
+三路人抱团挺好的。
+
+mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟子里可只有主唱是真参与录制，现在搞得主唱去找鼓手外团营业，肿么回事呢
+

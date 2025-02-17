@@ -475,3 +475,13 @@ DEMO打完了，确实挺好玩的。没砍主角性能，而且还有旋回和�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  蓝雉  
+##### 45#       发表于 2025-2-18 00:43
+
+这游戏虽然很多地方都只有地雷社水平,但莫名越玩越有滋味,第一次打小心翼翼跟不死人似的,二周目直接穿轻甲闪转腾挪,跟AC6体验差不多了
+
+说起来当年初代AC的设计概念就是机甲+地牢探索,这游戏旧系AC的操作+类魂,莫名的符合系列的初衷(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
