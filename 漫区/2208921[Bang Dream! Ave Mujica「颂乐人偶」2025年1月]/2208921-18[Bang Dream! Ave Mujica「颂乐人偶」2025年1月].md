@@ -3054,3 +3054,132 @@ AG五个人是青梅竹马，爱音一个路边来的怎么跟肥玛丽比啊<im
 
 主要是立石凛配的也确实不错，很有角色弧光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  单脚着地  
+##### 25439#       发表于 2025-2-17 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447105&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-17 12:27</a>
+
+客观来说，虽然soyo陪伴睦的动机不纯，但是从mujica来看睦确实是缺陪伴的，soyo在春日影事变之前也并没有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是觉得这两当中隔了大象这一层，真的很难嗑起来。感觉跟穿着衣服泡澡一样
+
+*****
+
+####  天空塔书记官  
+##### 25440#       发表于 2025-2-17 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447101&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 12:26</a>
+爱灯还是有的，歌也不少
+
+但确实没啥热度就是了</blockquote>
+<img src="https://p.sda1.dev/22/9c0bf3093944507edc499174ed1de70c/image.jpg" referrerpolicy="no-referrer">
+
+好吧，还是爱素断层第一的问题<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  LeonsCat  
+##### 25441#       发表于 2025-2-17 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446697&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-17 11:45</a>
+
+这一集下来素睦素莫是不是已经跌停了</blockquote>
+从ave碟片要卖老莫玩偶来看，老莫是不会消失的，那素莫就有的卖。素睦就很难说了，你要说素莫vs睦莫水仙还可能。
+
+*****
+
+####  凉良  
+##### 25442#       发表于 2025-2-17 12:30
+
+之前财报不行也是因为十三个游戏憋了半天憋不出来发售啊。
+
+*****
+
+####  凉良  
+##### 25443#       发表于 2025-2-17 12:30
+
+mortis还有画面没回收怎么都不至于现在就没了
+
+*****
+
+####  Versedust  
+##### 25444#       发表于 2025-2-17 12:31
+
+明弦音好歹是爱灯合唱吧，也算半个曲子了
+
+*****
+
+####  ape-apple  
+##### 25445#       发表于 2025-2-17 12:31
+
+不错×
+时也命也√
+就lsl的日常情况，她这根本不是配音，是念台词，此处又有中日分歧：日本人觉得你配音就得展现技巧，就得有统一的日式ACG声线，中国人觉得配音的最高境界就是人皮合一，所以我觉得对lsl中日的态度都是有巨大矛盾的
+
+
+*****
+
+####  Versedust  
+##### 25446#       发表于 2025-2-17 12:33
+
+从来没人说过李世林配的好，虽然能看出有进步
+
+*****
+
+####  zhoujin8584  
+##### 25447#       发表于 2025-2-17 12:33
+
+虽然有时候意见也会立于小众，但现在也算看清了环大陆论据的堵嘴本质，也知道了厕人为什么能张口就来zng这种带种族歧视的口癖，毕竟不用缩写的时候他们也在“太君美滋滋，你们算老几”。
+
+*****
+
+####  南宮凝香  
+##### 25448#       发表于 2025-2-17 12:33
+
+股價升是因為WSD 財報提升了半年預期
+
+提升的主要原因是老鐘的預期業績上升
+
+有沒有影響那裡有這麼快能看出的
+
+真出結論時大部分人早已不在乎了
+
+*****
+
+####  刑部姬真可爱  
+##### 25449#       发表于 2025-2-17 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447119&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-17 12:28</a>
+
+反正我是觉得这两当中隔了大象这一层，真的很难嗑起来。感觉跟穿着衣服泡澡一样 ...</blockquote>
+与其说隔着祥不如说隔着ccc，只不过确实祥在ccc占的比重很大，mujica这几集倒是一直明里暗里解构素祥关系，但是由于睦祥写得太烂导致观感严重收到影响<img src="https://static.saraba1st.com/image/smiley/carton2017/473.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25450#       发表于 2025-2-17 12:36
+
+爱素这cp能火起来本身就能说明问题了
+
+爱灯是mygo的主线
+
+海希虽然戏份少，但也是最明确的官推
+
+爱素能火完全是被二创炒起来的，纯属意料外的情况
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 25451#       发表于 2025-2-17 12:36
+
+想了想爱音还有个初学者和新进乐队成员的设定，不，应该说场内场外都挂着一个“新手”的标签，被老钟的新观众喜欢简直再正常不过了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
