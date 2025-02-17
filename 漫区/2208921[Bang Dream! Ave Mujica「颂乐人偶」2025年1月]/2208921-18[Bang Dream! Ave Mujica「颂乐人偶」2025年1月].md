@@ -3629,3 +3629,125 @@ mujica剧本定的太早了 来不及改成爱音大女主了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能。日本人不喜欢这种边界感没有、虚荣心外显的角色是真的，毕竟他们自己文化圈是这样的，结果老中喜欢，文化格差。
 虽然我个人看到爱音这种队友也有点怕，因为我不擅长社交，阳角三分钟热度队友实在对付不来
 
+
+*****
+
+####  wpcc  
+##### 25495#       发表于 2025-2-17 13:28
+
+什么叫中华炮 就是爱音接盘mygo成功帮助打醒大象的世界线 不是大象觉醒ccc复活的世界线
+
+*****
+
+####  595505568  
+##### 25496#       发表于 2025-2-17 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过话说回三次元，Go团实际上积极参与营业的是蜜柑 林鼓子和刚刚开始营业的羊；lsl和青木这个参与度是真的差啊，咋回事啊；不会因为鸡团都喜欢团建有团魂，还有各种狗鸡同期好友之类的带着鼓羊柑玩以后，发现C团更好营业吧，这也逆输入了（
+
+*****
+
+####  安娜导函数  
+##### 25497#       发表于 2025-2-17 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444448&amp;ptid=2208921" target="_blank">_47 发表于 2025-2-17 03:28</a>
+有这种想法的话我建议还是先重看一遍MyGO。
+
+MyGO动画里面表述到的关系性都比较微妙，团魂在动画与手游里 ...</blockquote>
+就按mujica第七话目前这情况，CCC复活有什么问题嘛？哦，问题就是有个粉色奶龙还没踢掉对吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25498#       发表于 2025-2-17 13:29
+
+剧团 -》 3次偶像 -》2.5 -》VTB 真是自上而下的滑坡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是也不排除像我这样只喜欢看动漫小人对血肉皮囊完全没兴趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 25499#       发表于 2025-2-17 13:30
+
+<blockquote>595505568 发表于 2025-2-17 13:26
+可能。日本人不喜欢这种边界感没有、虚荣心外显的角色是真的，毕竟他们自己文化圈是这样的，结果老中喜欢 ...</blockquote>
+独角兽只想吧爱音当女女关系性的黄毛 十本想吧摄像头都删了！
+
+*****
+
+####  wpcc  
+##### 25500#       发表于 2025-2-17 13:31
+
+<blockquote>是谁的书画 发表于 2025-2-17 13:29
+剧团 -》 3次偶像 -》2.5 -》VTB 真是自上而下的滑坡啊
+
+但是也不排除像我这样只喜欢看动漫小人对血肉皮囊完 ...</blockquote>
+所以武士道也没想赚你的钱 因为小人是随时可以跑的 中人稳定度高得多 
+
+
+*****
+
+####  595505568  
+##### 25501#       发表于 2025-2-17 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447636&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 13:30</a>
+独角兽只想吧爱音当女女关系性的黄毛 十本想吧摄像头都删了！</blockquote>
+我觉得wsd想把lsl踢了倒是真的
+平时营业不积极 一营业就给你打重量级中华炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这人断不可留，邦TV效果也一坨
+
+*****
+
+####  cxj649  
+##### 25502#       发表于 2025-2-17 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447626&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:29</a>
+
+不过话说回三次元，Go团实际上积极参与营业的是蜜柑 林鼓子和刚刚开始营业的羊；lsl和青木这个参与度是真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点非常草生的
+
+*****
+
+####  wpcc  
+##### 25503#       发表于 2025-2-17 13:35
+
+<blockquote>595505568 发表于 2025-2-17 13:32
+我觉得wsd想把lsl踢了倒是真的
+
+平时营业不积极 一营业就给你打重量级中华炮
+
+这人断不可留，邦TV效果也一 ...</blockquote>
+到时候反攻倒算爱厨能不能打赵蛋 太无聊了
+
+*****
+
+####  怀沙汨罗  
+##### 25504#       发表于 2025-2-17 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447608&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:26</a>
+可能。日本人不喜欢这种边界感没有、虚荣心外显的角色是真的，毕竟他们自己文化圈是这样的，结果老中喜欢 ...</blockquote>
+啊？你和我说的是一个东西？你不要拿你们那套角色厨的逻辑来套别人，我单纯分析财报里wsd的野望罢了。另外你觉得爱音怎样和我没关系，我觉得现在mujica这部动画里面没有一个正常人——不值得真情实感。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25505#       发表于 2025-2-17 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447626&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:29</a>
+不过话说回三次元，Go团实际上积极参与营业的是蜜柑 林鼓子和刚刚开始营业的羊；lsl和青木这个参与度是真的 ...</blockquote>
+LSL不做评价
+
+青木更多的是性格的原因吧，还有她的重心应该是在隔壁的少歌
+
+鼓子是最纯正的偶像，纯血2.5，三个企划来回跑，早就轻车熟路了
+
+羊则是在逐渐适应了声优的营业方式
+
+至于小日向，正在努力挣扎的声优底层 ?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

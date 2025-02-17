@@ -880,3 +880,11 @@ https://m.bilibili.com/opus/1033632735051120642
 战斗力终于要往savior级膨胀了是吗</blockquote>
 快进到白情落地觉者（Ruler），还能赶上奏四这桌<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 16357#       发表于 2025-2-17 13:23
+
+日本作者按日本野史传说搞设定出日本人物，这其实是挺正常的事，反倒是我觉得废狗最近几年不思进取，盯着型月宇宙人和日本野史人出，文化自信过头了点
+
