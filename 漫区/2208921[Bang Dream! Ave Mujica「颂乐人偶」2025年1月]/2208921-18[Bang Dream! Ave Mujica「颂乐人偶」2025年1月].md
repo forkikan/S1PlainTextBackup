@@ -4324,3 +4324,48 @@ mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 25562#       发表于 2025-2-17 14:40
+
+有一說一，
+
+某2.5次元宅這麼想打趙彈就打呀
+
+沒人攔你的
+
+不用來來回回不停說的
+
+就是你要不要先問問你武爹意見
+
+*****
+
+####  aritaatsu222  
+##### 25563#       发表于 2025-2-17 14:40
+
+有一说一，皇族位洗脚位係属于客观事实，嫌难听可以说是c位和非c，但本质一个意思，我一直的态度就是二偶本来就该尽可能端水维系宅宅的泡泡不戳破
+
+*****
+
+####  怀沙汨罗  
+##### 25564#       发表于 2025-2-17 14:41
+
+ 本帖最后由 怀沙汨罗 于 2025-2-17 14:43 编辑 
+
+有些人气急败坏在场内没办法只能暗示声优的样子真好小丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Суслов  
+##### 25565#       发表于 2025-2-17 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448143&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:30</a>
+玩P社的up主播放最高的视频是怒喷mujica 我不好说啊</blockquote>
+人家喷一期母鸡卡就能超过喷p🐍这么多期，这不正说明母鸡卡火嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
