@@ -4235,3 +4235,92 @@ mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote
 
 种命里密涅瓦号最当人的舰长给狐狸陪葬了（你说这是爱的成分多一点还是工具选择多一点，都有吧），所以恪尽职守并为团队着想并不一定会有好的结局，因为你的权力不够，知道的秘密不够多
 
+
+*****
+
+####  是谁的书画  
+##### 25554#       发表于 2025-2-17 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447966&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:12</a>
+
+本质一拨人洗来洗去罢了 b站工作人员从管人 电竞 手游 动画 都是那几个人在带节奏烂抄 所以b站这几个区也 ...</blockquote>
+路人为什么不喷爱音啥的发言我就不评价了。
+
+看你的意思是专门有一群“圈外人“烂炒把作品带的发烂发臭评分6.5，天底下哪来的大手子又是作何用意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又想到你之前觉得大鼻子和wsd串通一气
+
+感觉有点过于对抗思维了，不知道我想的对不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 25555#       发表于 2025-2-17 14:30
+
+ 本帖最后由 zhzij111 于 2025-2-17 14:32 编辑 
+
+说实话，这母鸡卡动画做这么烂，看动画为主的真还有什么厨子吗，为啥你们总觉得什么爱圣厨被反噬好像很恐怖
+
+现实其实是老中真没几个人看你那个真人二偶，母鸡卡动画再像第七集这样平平无奇的烂两集就可以滚回小圈子当路边一条了，到时候剩下那几个结晶粉们确实可以在自己的小窝里再打场角色厨大战
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 25556#       发表于 2025-2-17 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448120&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 14:28</a>
+
+路人为什么不喷爱音啥的发言我就不评价了。
+
+看你的意思是专门有一群“圈外人“烂炒把作品带的发烂发臭评 ...</blockquote>
+玩P社的up主播放最高的视频是怒喷mujica 我不好说啊
+
+*****
+
+####  FanFun  
+##### 25557#       发表于 2025-2-17 14:31
+
+提醒一下，抛开日本本土不谈，在泥潭投票认为烂完了的是一半，给正面评价的也有四分之一
+不要定调全观众一致差评似的，外面这夸张划一的声势肯定是有受作品以外影响的
+
+*****
+
+####  wpcc  
+##### 25558#       发表于 2025-2-17 14:31
+
+你台长现在还不出来吃流量难道是要13级播完哭坟吗 吃不到大流量了呀 台长放弃矜持来吃吧 肯定比瓶子有说服力啊
+
+*****
+
+####  595505568  
+##### 25559#       发表于 2025-2-17 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448141&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-17 14:30</a>
+说实话，这母鸡卡动画做这么烂，看动画为主的真还有什么厨子吗，为啥你们总觉得什么爱圣厨被反噬好像很恐怖 ...</blockquote>
+不恐怖的，爱音这个角色会不会换中之人还是直接嘎掉都不知道的现在，LSL这个情况才是真的危险了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 25560#       发表于 2025-2-17 14:33
+
+<blockquote>595505568 发表于 2025-2-17 14:18
+所以我只能说别这时候冲的爽，下次看到一起冲的人会冲你推的时候就麻了，所以我选择不冲，不想吃回旋镖（ ...</blockquote>
+其实无所谓的，这一波的结果按惯例是大家以后各玩各的，大烟花炸完坍缩后守着5分剧的残骸打反击战只能选择💩当武器了，能接受的兵都没几个。
+
+大家都想在混战中喷个爽，以前xz是阴湿爱音厨，现在是直球攻击角色皇族洗脚婢技术力差，我一看后者出现就是看过剧透了爱音要被夸技术力先推翻go时期人设“吉他高天赋”骂个爽再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 25561#       发表于 2025-2-17 14:33
+
+互联网嘴替不过是图一乐，想要表达自己的看法还是自己说出来比较好，起码不会一直保持被动思维不是吗
+
+别嘴替到最后变外置大脑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
