@@ -7081,3 +7081,65 @@ mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效�
 
 灯的笔记本和素的黄瓜这回收的简直不如不写 
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 25825#       发表于 2025-2-17 18:49
+
+这还是ave mujica专楼吗？怎么说的我都看不懂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  怀沙汨罗  
+##### 25826#       发表于 2025-2-17 18:51
+
+ 本帖最后由 怀沙汨罗 于 2025-2-17 18:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450585&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 18:35</a>
+又在定义了排十一十二的低吗？你定义庸作当然可以，bangumi一帮人定义庸作呢，日本人不这么认为啊，还是 ...</blockquote>
+1.你的胃口确实够好，一个季度排10名开外的能叫良作。我一般一个季度能看到五部能看的就高呼满足。
+2.“自己拿出来财报给老中市场加权重，自己反而不认16%涨幅很大，定义一堆数字都是错误的，所以你就赢了？”
+你哪只眼睛看到我说16%的股价涨幅不大？又定义哪个你能列出来的数字是错的？好像大部分数据都是我列的吧？
+我可一直在说的是你所谓的nico生放送基数不大——当然你要认为2000-3000很大我也赞同了，开播之后也就在3000蹦跶没啥变化哦。
+还我加权重，wsd自己列出来的关我屁事，要打脸也是wsd在财报打你的脸，为什么要专门在财报列出来老钟市场。股市认不认是老钟市场，我可从来没有下判断。请你你不要再把自己臆测的观点按我头上了。希望我给你盘的这些逻辑，你能看明白。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25827#       发表于 2025-2-17 18:51
+
+因为现在没有ave聊，等下周剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 25828#       发表于 2025-2-17 18:53
+
+疯了，都疯了<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a611611611  
+##### 25829#       发表于 2025-2-17 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450619&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-17 18:39</a>
+
+回来了，都回来了，下一步就是牛子豪经典出品武士道似了。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+可以期待一下一三五厌女二四六厌男周日复读迈巴赫姐的节奏吗？
+
+*****
+
+####  剪切线  
+##### 25830#       发表于 2025-2-17 18:55
+
+这周大陆运营还敢开nsy直播吗
+
