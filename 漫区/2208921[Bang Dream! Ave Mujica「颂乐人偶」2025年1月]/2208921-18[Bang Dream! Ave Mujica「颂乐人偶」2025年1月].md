@@ -5702,3 +5702,204 @@ C团上是炒作的手段，而不是炒作成果的展示 ...</blockquote>
 祥子第三集不就是因为现在理解不了睦头想什么破防么</blockquote>
 第三集不是公认是妹妹向姐姐的无理取闹的撒娇么。。
 
+
+*****
+
+####  怀沙汨罗  
+##### 25695#       发表于 2025-2-17 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449553&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 16:39</a>
+有点弱智了，孤独摇滚也就800万和200万播放，时间排序最新一页更是一大票不过两百万的，邦邦能两天百万还 ...</blockquote>
+你之前没回我还以为你要点脸。现在咋又跳出来了。另外看不看的懂正常保底啥意思呀？还是你以为转载85万，官方120万是一个很值得骄傲的数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至可以碰瓷孤独摇滚了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Yukino-Yukino  
+##### 25696#       发表于 2025-2-17 16:45
+
+太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们这都在聊些啥。来个人给我概括下
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 25697#       发表于 2025-2-17 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449612&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 16:44</a>
+第三集不是公认是妹妹向姐姐的无理取闹的撒娇么。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">你楼当年公认了怎么一个观点出来？
+啊也不奇怪，当时这片才刚开始烂😅
+
+*****
+
+####  ads147147  
+##### 25698#       发表于 2025-2-17 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449639&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 16:46</a>
+
+你楼当年公认了怎么一个观点出来？
+
+啊也不奇怪，当时这片才刚开始烂😅</blockquote>
+毕竟第三集大家还有点希望嘛，第四集才开始分道扬镳开始吵架。
+
+*****
+
+####  帝下室の年糕  
+##### 25699#       发表于 2025-2-17 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449626&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:45</a>
+你之前没回我还以为你要点脸。现在咋又跳出来了。另外看不看的懂正常保底啥意思呀？还是你以为转载85万， ...</blockquote>
+数据摆在这你可以继续嘴硬没了⏰邦邦要凉透了，该去做空WSD股票了啊，现在正是大好机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楠城旧篱  
+##### 25700#       发表于 2025-2-17 16:47
+
+<blockquote>Yukino-Yukino 发表于 2025-2-17 16:45
+太变态了你们这都在聊些啥。来个人给我概括下
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+周四再来吧
+
+*****
+
+####  K·os  
+##### 25701#       发表于 2025-2-17 16:47
+
+楼友都开始嗯比播放量了确实是够无聊的，这些营销更主要的目的在于让这个片的观众感受到“哇，这真的很酷”，主要起到固定粉丝而不是吸引观众的作用，播放量这种东西是踏踏实实需要人头数的（当然你也可以直接嗯买，不过这就是论外了对吧），这种事实上处在小众领域的企划去和别人比人头是没有意义的
+
+*****
+
+####  凉良  
+##### 25702#       发表于 2025-2-17 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449612&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 16:44</a>
+
+第三集不是公认是妹妹向姐姐的无理取闹的撒娇么。。</blockquote>
+哪公认的 我还是理解的是祥子自以为帮睦出头结果睦根本不回应 感觉自己已经理解不了睦头了 出了个暴言
+
+唉 现在这些毫无意义了
+
+*****
+
+####  zhoujin8584  
+##### 25703#       发表于 2025-2-17 16:49
+
+<blockquote>天空塔书记官 发表于 2025-2-17 16:30
+可是拿邦和黄绿色社会这种主流上层比是不是有点过于不恰当了啊
+
+C团上是炒作的手段，而不是炒作成果的展示 ...</blockquote>
+唉，明明只要愿意先好好讲鸡团的故事，首上tft的，就是我们鸡团了。13集的大对邦ccc再直接完全体live场还有更大的惊喜而不是用拉跨的彩排给人没完的诈尸感，tft二上启用c团会是新的高峰而不是两家在害怕数据滑坡，大家都能吃到更好的。
+
+怎么会……像现在，在全网声讨中还没能听到鸡的新live，限量盘还没卖完，喜提小主唱三路人嘲称。姆们鸡团，怎么会……变成这样呢？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 25704#       发表于 2025-2-17 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449612&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 16:44</a>
+
+第三集不是公认是妹妹向姐姐的无理取闹的撒娇么。。</blockquote>
+在不懂睦和懂睦之间，祥不懂睦的形象会好一些
+
+*****
+
+####  ape-apple  
+##### 25705#       发表于 2025-2-17 16:49
+
+一个在日本本来就不上台面的2.5次元女声优乐队，长得不好看，水平也一般，能百万播放就不错了，跟绿黄社会比，跟孤独摇滚比，为了说赢不了真是煞费苦心，我早说过了不爽就骂，背书这个东西没有任何意义
+
+*****
+
+####  怀沙汨罗  
+##### 25706#       发表于 2025-2-17 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449569&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:40</a>
+现在也高啊，不是你想说明什么，84&gt;122？而且你不会不知道B站播放量本来就够虚的，现在百万播放确实是好 ...</blockquote>
+看来你真是不懂装懂，b站播放量可以刷土鳖站不能刷是吧？还是说官方号的播放量实打实转载的反而都是刷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/6fde0250f0b1bd391d62ed718aa12707/image.jpg" referrerpolicy="no-referrer">
+2000-3000的巨幅提升。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  凉良  
+##### 25707#       发表于 2025-2-17 16:50
+
+mujica待遇真的差的离谱了啊 节目没有 歌没有 塑造没有 
+
+*****
+
+####  ape-apple  
+##### 25708#       发表于 2025-2-17 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449692&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:50</a>
+看来你真是不懂装懂，b站播放量可以刷土鳖站不能刷是吧？还是说官方号的播放量实打实转载的反而都是刷的 ...</blockquote>
+为什么不能谈嘛，都可以谈，你不能只有在数据有利于自己的时候才谈数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000-3000不是涨吗，基数低，它也得涨啊，还是你觉得两天万人场也没什么意思？
+
+*****
+
+####  高贵的  
+##### 25709#       发表于 2025-2-17 16:53
+
+现在真的还有鸡团粉丝吗，那真的有点变态了，现在剧内我都不知道为啥要让那五个人回来重组鸡团
+
+*****
+
+####  zhoujin8584  
+##### 25710#       发表于 2025-2-17 16:53
+
+<blockquote>Yukino-Yukino 发表于 2025-2-17 16:45
+太变态了你们这都在聊些啥。来个人给我概括下
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+WSD精神股东与二次元萌豚与疯批鸡友狗推c遗祥厨各自各的输出，大概
+
+*****
+
+####  cxj649  
+##### 25711#       发表于 2025-2-17 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449684&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 16:49</a>
+
+唉，明明只要愿意先好好讲鸡团的故事，首上tft的，就是我们鸡团了。13集的大对邦ccc再直接完全体live场还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别说，这点只能C团，不然是日本那里炎上了
+
+*****
+
+####  帝下室の年糕  
+##### 25712#       发表于 2025-2-17 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449692&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:50</a>
+看来你真是不懂装懂，b站播放量可以刷土鳖站不能刷是吧？还是说官方号的播放量实打实转载的反而都是刷的 ...</blockquote>
+你都把N站这种快死的玩意儿拿出了我只能顺从了，看来Mygo的热度已经薄纱ll了，毕竟星团才2000人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 25713#       发表于 2025-2-17 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449631&amp;ptid=2208921" target="_blank">Yukino-Yukino 发表于 2025-2-17 16:45</a>
+
+太变态了你们这都在聊些啥。来个人给我概括下
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+总结一下：对于原创动画而言剧情已经烂了，只能争一些商业上的事了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 25714#       发表于 2025-2-17 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449654&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 16:47</a>
+数据摆在这你可以继续嘴硬没了⏰邦邦要凉透了，该去做空WSD股票了啊，现在正是大好机会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
