@@ -4775,3 +4775,14 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 
 火山引擎+Chatbox，我对话框里附件上传的word、pdf文档说不能识别？
 
+
+*****
+
+####  名居守  
+##### 1898#       发表于 2025-2-17 13:40
+
+派欧云的ds api好奇怪，带c字母开头的那个
+今天让智能体打招呼测试破甲有没有效果
+派欧云的一直非常正式的自我介绍，新开了十几个对话一模一样
+只能用其他ds破完甲再切换回去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

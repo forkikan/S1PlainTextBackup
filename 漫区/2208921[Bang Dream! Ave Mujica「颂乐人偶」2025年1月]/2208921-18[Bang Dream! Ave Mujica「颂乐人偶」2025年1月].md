@@ -3751,3 +3751,116 @@ LSL不做评价
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 25506#       发表于 2025-2-17 13:36
+
+金
+
+卖狗粉毛大女主，母鸡卡鸡毛大女主，结局两人放弃灯皇大象凑一对无双乱扣好不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（甜甜圈：你踏马不想活了？）
+
+*****
+
+####  ape-apple  
+##### 25507#       发表于 2025-2-17 13:36
+
+🐑一开始摆烂，但是现在也看出来了，鸡狗继续下去她绝对是真人赛道第一人啊，高尾也在推，但键盘怎么和主唱比人气
+
+*****
+
+####  zhoujin8584  
+##### 25508#       发表于 2025-2-17 13:36
+
+《BanG Dream!lt'MyGO!!!!!》第七集播出后，长崎素世大喊:为什么要演奏春日影!观众哈哈大笑
+
+《BanG Dream!Ave Mujica》第七集播出后，观众大喊:为什么要演奏春日影!长崎素世哈哈大笑
+
+*****
+
+####  595505568  
+##### 25509#       发表于 2025-2-17 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447685&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 13:36</a>
+LSL不做评价
+
+青木更多的是性格的原因吧，还有她的重心应该是在隔壁的少歌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 25510#       发表于 2025-2-17 13:38
+
+又烤优姐，<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">大阪富姐找份工作磨时间不当网游废人不好吗
+
+*****
+
+####  ape-apple  
+##### 25511#       发表于 2025-2-17 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447678&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 13:35</a>
+到时候反攻倒算爱厨能不能打赵蛋 太无聊了</blockquote>
+现在圣厨这幅德行，我觉得他们没准备活时间长了，lsl论黑历史绝对鸡狗第一，反噬起来下场也很难好，一脚踢开就完事了
+
+*****
+
+####  天空塔书记官  
+##### 25512#       发表于 2025-2-17 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447707&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:38</a>
+那也就是要营业的话积极性排队上蜜柑第一 鼓子职业性强第二 羊第三 青木和lsl就不排了，不知道会不会参与 ...</blockquote>
+没事猫猫已经人皮合一了，电波和盐就是小动物的一环，不可不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  斑驳的阴影  
+##### 25513#       发表于 2025-2-17 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445112&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 09:21</a>
+
+我看gbc就是阶级划分做得很好的作品，留下来的主角粉享受大女主待遇，配角粉也接受大女主的光环，嘴哭批大 ...</blockquote>
+mygo精彩的群像剧让很多人忘了鸡狗的起源就是灯祥二人（
+
+
+*****
+
+####  595505568  
+##### 25514#       发表于 2025-2-17 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447726&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 13:40</a>
+没事猫猫已经人皮合一了，电波和盐就是小动物的一环，不可不品尝
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+蜜柑要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，素世和蜜柑一点都没人皮合一啊…
+
+*****
+
+####  cxj649  
+##### 25515#       发表于 2025-2-17 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447713&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 13:38</a>
+
+现在圣厨这幅德行，我觉得他们没准备活时间长了，lsl论黑历史绝对鸡狗第一，反噬起来下场也很难好，一脚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这点搞笑就是动画和三次元反过来了
+
+*****
+
+####  aptx8285144  
+##### 25516#       发表于 2025-2-17 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447498&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 13:12</a>
+
+mujica剧本定的太早了 来不及改成爱音大女主了</blockquote>
+如果指的是大祥这样的“大女主”，真得谁爱当大女主让谁去当吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25517#       发表于 2025-2-17 13:44
+
+🍊很努力了，但是命里没火。相比之下鼓子算是给人观感最好的，职业2.5偶像，外形也算是给狗团扶贫了。🐑姐没什么可说的，声优路线起飞，只要愿意，鸡狗时代一姐就是她
+

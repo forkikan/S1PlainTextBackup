@@ -14370,3 +14370,22 @@ NT这玩意你不用就要死更多的人，没理由不好好研究。
 
 那有没有单挑环节<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7020#       发表于 2025-2-17 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447606&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-2-17 13:26</a>
+
+那有没有单挑环节</blockquote>
+应该没有，他俩是同阵营的
+
+喵安和牢修之间用的暗号是米哈尔同款的吉翁间谍暗号
+
+排除致敬要素，她很可能是在给side6内部安插的吉翁势力打工
+
+就像她哥也在给吉翁军打工当驾驶员一样
+
+很讽刺啊，明明是因为吉翁发动鲁姆会战才成了难民的兄妹，如今却都在给吉翁打工卖命<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
