@@ -4667,3 +4667,16 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 买了硅基流动的API，求一个好用的安卓AI客户端...最好是有联网搜索功能的</blockquote>
 chat box 啊
 
+
+*****
+
+####  千千千千鸟  
+##### 1888#       发表于 2025-2-17 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438625&amp;ptid=2243718" target="_blank">阿刚 发表于 2025-2-16 11:39</a>
+
+谷歌的想象力不够，但是r1最大的问题甚至不是他那些重口点子，是他的行文是固定模式化的定型文，就算叠很 ...</blockquote>
+没错，这个真的很难解决，我用了非常详细的文风指导了，其实到这程度都不期待有多想象力了，就公式化就行，结果没用，所以就很挫败<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+但别的模型又不想买，R1这价格正好到我能接受的程度。而且不止ghs能用。只能是等之后出R2啥的了
+

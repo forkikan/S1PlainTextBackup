@@ -22,3 +22,13 @@ DG说他们并不很清楚游戏销量，EA告诉他们的不多，他似乎暗�
 
 其实现在所谓的150W销量也是水分满满，这150W没算进退款的和赠送的，只是单纯计算登陆玩家，所以现在一直都没有公布最终销量。
 
+
+*****
+
+####  sosgame67  
+##### 1252#       发表于 2025-2-17 08:01
+
+dai的1200万销量我记得是epic免费送后的说法，大概率是包含了这部分数字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+至于datv这坨的150万游玩数字...捏脸demo和退款都是统计在内的，所以大家都估算它销量可能只有100万出头甚至不到100万 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
