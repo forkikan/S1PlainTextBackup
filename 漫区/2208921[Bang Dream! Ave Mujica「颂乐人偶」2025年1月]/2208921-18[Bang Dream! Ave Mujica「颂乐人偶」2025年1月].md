@@ -3301,3 +3301,128 @@ mortis还有画面没回收怎么都不至于现在就没了
 
 爱素好
 
+
+*****
+
+####  怀沙汨罗  
+##### 25463#       发表于 2025-2-17 12:49
+
+说到财报，似乎wsd的态度和某些张口闭口不在乎老钟市场的漏油不一样呀？财报里专门提到
+1.2024年中国市场是一般商品的增长点，并且未来将保持（真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+2.预计live商品海外销售将保持强劲势头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3.专门提到和b站合作播放mujica，吸引中国观众。
+说实话这财报36页ppt，“简体中文”和“中国”出现频率相当高了。我看wsd反而是对老钟爆米期待满满呀<img src="https://p.sda1.dev/22/061067b9138767b92e0eb1da266b47d0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  单脚着地  
+##### 25464#       发表于 2025-2-17 12:49
+
+<img src="https://img.saraba1st.com/forum/202502/17/124916d99qi6xv1nsqz6q6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000024076.jpg</strong> (78.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 12:49 上传
+
+*****
+
+####  Versedust  
+##### 25465#       发表于 2025-2-17 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447274&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:47</a>
+
+那你确实喝多了，我的意见就是最上面两行，你咬人也看准点</blockquote>
+你也喝多了，我都不知道你那个中国人觉得配音最高境界是人皮合一的结论是怎么得出来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 25466#       发表于 2025-2-17 12:51
+
+"为啥男乐队片不流行？"
+
+<img src="https://img.saraba1st.com/forum/202502/17/125135sbcftpl0tflbffev.jpg" referrerpolicy="no-referrer">
+
+<strong>1739767727076.jpg</strong> (94.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 12:51 上传
+
+
+*****
+
+####  ape-apple  
+##### 25467#       发表于 2025-2-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447289&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:49</a>
+你也喝多了，我都不知道你那个中国人觉得配音最高境界是人皮合一的结论是怎么得出来的 ...</blockquote>
+看lsl在B站下面的评价就在那放着，你可以把破防点说出来，不按你黑的姿势走你也难受吗？多大人了
+
+*****
+
+####  Versedust  
+##### 25468#       发表于 2025-2-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447310&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:52</a>
+
+看lsl在B站下面的评价就在那放着，你可以把破防点说出来，不按你黑的姿势走你也难受吗？多大人了 ...</blockquote>
+哥们，“中国人”是多大的概念你清楚吗？你是把你自己开除老钟籍了吗
+
+真觉得李世林人皮合一配的好的也是神人了
+
+*****
+
+####  ape-apple  
+##### 25469#       发表于 2025-2-17 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447331&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:54</a>
+哥们，“中国人”是多大的概念你清楚吗？你是把你自己开除老钟籍了吗
+
+真觉得李世林人皮合一配的好的也是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你纠结这个是因为什么呢？没能力去跟B站爱厨对线吗？我对lsl配音没有任何夸奖，但是你就因为我归纳了大多数国内观众的声音就不爽了？
+
+*****
+
+####  DeltaStriker  
+##### 25470#       发表于 2025-2-17 12:57
+
+你们说的男邦这部片全名是啥 好像确实没啥人提
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ccared  
+##### 25471#       发表于 2025-2-17 12:57
+
+合着mygo制作组在不知情的情况下创作了13集长度的格式塔心理学案例。
+这才是真的猴子打字机啊。
+
+*****
+
+####  ape-apple  
+##### 25472#       发表于 2025-2-17 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447331&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:54</a>
+哥们，“中国人”是多大的概念你清楚吗？你是把你自己开除老钟籍了吗
+
+真觉得李世林人皮合一配的好的也是 ...</blockquote>
+巨婴，彻彻底底的巨婴，我个人对这位的态度从来称不上正面，就因为不合网友黑屁的心意，所以就要接受拷打？那lsl黑和lsl厨也没差太多啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 25473#       发表于 2025-2-17 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447346&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:56</a>
+
+你纠结这个是因为什么呢？没能力去跟B站爱厨对线吗？我对lsl配音没有任何夸奖，但是你就因为我归纳了大多 ...</blockquote>
+大概是觉得你把我开除国籍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">配啥都像本人就是配音能力不行的体现啊
+
+至于那些觉得配的好的，我也没啥可说了
+

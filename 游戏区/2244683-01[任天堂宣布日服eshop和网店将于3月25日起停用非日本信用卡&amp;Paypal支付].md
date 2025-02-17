@@ -51,3 +51,15 @@
 
 说来到了switch，就是买全新到假盒“能玩就行”，不能支付这种小问题就……其实也没谁真的在意，点卡我个人觉得不太安全，因为虽然以前PSN和eshop买过并没出现问题，但在pc上gog有次贪便宜买了码，然而很久后gog删了我的游戏，我去问，它说游戏是用卡买的，然而买了马上取消了，经过几百年后他们发现这个问题，就删了我的游戏……
 
+
+*****
+
+####  startraveller  
+##### 237#       发表于 2025-2-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446103&amp;ptid=2244683" target="_blank">强尼高达 发表于 2025-2-17 10:54</a>
+上限额度是每天充值额度，一个月最高充10万，单次消费额度没有上限</blockquote>
+[https://www.ana.co.jp/ja/jp/amc/ana-pay/app/zandaka/](https://www.ana.co.jp/ja/jp/amc/ana-pay/app/zandaka/)
+
+余额也是有上限的
+

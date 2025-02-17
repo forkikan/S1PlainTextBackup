@@ -4765,3 +4765,13 @@ chat box 啊</blockquote>
 
 我跑了全量的R1，2.22bit感觉还行，问题是全量放进8*4090 48G不知道能不能获得足够的加速，CPU+GPU混合跑速度上不去
 
+
+*****
+
+####  chenke  
+##### 1897#       发表于 2025-2-17 12:54
+
+The 火山方舟(bot-) API doesn't support document understanding. You can use Chatbox AI Service for cloud-based document analysis, or download Chatbox Desktop App for local document analysis.
+
+火山引擎+Chatbox，我对话框里附件上传的word、pdf文档说不能识别？
+
