@@ -7801,3 +7801,88 @@ https://m.gamer.com.tw/forum/C.php?bsn=31877&amp;page=&amp;snA=6914&amp;last=
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  borrowface  
+##### 25890#       发表于 2025-2-17 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451430&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 20:28</a>
+
+一股邦xz的味道还左引右引我的言论当论证，够噁心的，上来就说过我讨厌鸡狗邦了 ...</blockquote>
+下次一定慢慢爬楼看完您的前后回复，给您心情照顾好了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aritaatsu222|-1|我都亮成分扣他鹅还拿我的理论当枪是不是他.|
+
+查看全部评分
+
+*****
+
+####  MuramasaSP  
+##### 25891#       发表于 2025-2-17 20:40
+
+<blockquote>结衣小比取 发表于 2025-2-17 20:20
+坛友说的是不是MyGO动画第3话07:51-07:57，祥子介绍睦的部分?</blockquote>
+那这个时候祥应该还不知道睦对自己的吉他弹奏失望。感觉已经到了一个怎么解释都不合理的地步了。
+
+*****
+
+####  滑稽Captain  
+##### 25892#       发表于 2025-2-17 20:41
+
+<img src="https://img.saraba1st.com/forum/202502/17/202901c36jt6wwyayqwkwx.png" referrerpolicy="no-referrer">
+
+<strong>BDC266E9ACA055D5964B9EB5E340D3DE.png</strong> (57.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 20:29 上传
+
+[https://www.youtube.com/watch?v=0RLDUHVOt5I](https://www.youtube.com/watch?v=0RLDUHVOt5I)
+
+这个乐队哥讲的自己作为真搞乐队的理解，很接近目前大陆的理解：能够理解ccc葬礼的感动，也能看出写ccc的结束是为的mygo之后更好地前进，但其实不希望动画真的让ccc临时复活，因为这会破坏mygo作为一支乐队的神性，甚至也用的前女友现女友来做了比喻。不过他也有利益相关，他mygo最喜欢爱音，他觉得最后爱音台下鼓掌的时候一定心情复杂（
+
+下面评论的太君也有几个说看了他的解说能一定程度理解中国为什么差评如潮了：
+
+“なるほど、確かにMyGO!!!!!視点、バンドマン視点で見てみると中国の方たちが批判していたことが腑に落ちました。
+
+自分はCRYCHIC目線でこの7話を最初から見ていたので凄く感動しました😭”
+
+“正直、批判してる海外勢の意見、腑に落ちて無かったんですけど、言語化してくれてわかった気がします。”
+
+“今　中国で炎上してる内容の一部が言語化されてて納得できました！”
+
+“中国で炎上してる理由、考え方そのまんまを語ってくれてありがとう、あっちの考え方が少しは理解できた気がする”
+
+*****
+
+####  wpcc  
+##### 25893#       发表于 2025-2-17 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451442&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 20:29</a>
+
+这就是我的专业范围了，已经在清算了宝宝
+
+但mygo炸了也不是ylg的错，人也不能扇自己巴掌，只能往别人身 ...</blockquote>
+是分割放松让大家认为狗团真的稳定了 十本和根本全责吧
+
+*****
+
+####  wpcc  
+##### 25894#       发表于 2025-2-17 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451533&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-17 20:41</a>
+
+https://www.youtube.com/watch?v=0RLDUHVOt5I
+
+这个乐队哥讲的自己作为真搞乐队的理解，很接近目前大陆的 ...</blockquote>
+完全正确 但是十本觉得 四个团是平等的 进了手游就是大混池呢 
+
