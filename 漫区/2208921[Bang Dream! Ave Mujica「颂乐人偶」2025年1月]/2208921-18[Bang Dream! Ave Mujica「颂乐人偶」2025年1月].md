@@ -5571,3 +5571,134 @@ C团上是炒作的手段，而不是炒作成果的展示 ...</blockquote>
 
 你真要比不应该去看这个tft视频的播放量随着时间的走势吗
 
+
+*****
+
+####  ape-apple  
+##### 25682#       发表于 2025-2-17 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449461&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:33</a>
+看清楚谁先对比碰瓷人气量级的。这个频道正常保底就是百万量级，砸钱炒作半天就这水平还和人家随手一a对 ...</blockquote>
+正常保底……神圣放逐那个视频是多少来着？第一次上tft随你消解，事实就是这个时间这个团，而不是其他时间其他团
+
+*****
+
+####  天空塔书记官  
+##### 25683#       发表于 2025-2-17 16:37
+
+上tft不就相当于上央视打广告吗
+
+目的是拉新啊，而不是刷数据<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 25684#       发表于 2025-2-17 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449463&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:33</a>
+你不能只有在搞反差的时候才说wsd努力炒作，2.5次元水平不咋样长得也不好看，还真上了百万播放，都是⏰刷 ...</blockquote>
+闹麻了，谁说过wsd不是炒作狗吗？你自己先来个雷氏对比法搞笑呢吧:
+“tft现在一百多万播放量，比搬运的B站播放量都高”拿官方对比转载，这对比也是有了。更好笑的是，现在转载的播放量是多少呢？<img src="https://p.sda1.dev/22/4959cfbb186c2eb93d1c4b612e612b11/image.jpg" referrerpolicy="no-referrer">
+84万，不需要平台加持，转载的播放就有这么多了。你这加持了怎么还只能吃个保底啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  怀沙汨罗  
+##### 25685#       发表于 2025-2-17 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449513&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 16:37</a>
+上tft不就相当于上央视打广告吗
+
+目的是拉新啊，而不是刷数据</blockquote>
+你知道是拉新就行，所以有人春秋笔法拿tft百万播放量来吹真是不害臊对吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 25686#       发表于 2025-2-17 16:39
+
+这个我只能说不如东映一根，当时爆裂绽放嗯是刷了1000多万，只能说如梦似幻般的不真实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 25687#       发表于 2025-2-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449364&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:25</a>
+不客气，怕你不知道，我可以提醒一下其实你喜欢的绿黄色社会其实已经上过不止一次tft了，而且人家在ytb也 ...</blockquote>
+有点弱智了，孤独摇滚也就800万和200万播放，时间排序最新一页更是一大票不过两百万的，邦邦能两天百万还叫路边吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 25688#       发表于 2025-2-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449517&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:37</a>
+闹麻了，谁说过wsd不是炒作狗吗？你自己先来个雷氏对比法搞笑呢吧:
+“tft现在一百多万播放量，比搬运的B ...</blockquote>
+现在也高啊，不是你想说明什么，84&gt;122？而且你不会不知道B站播放量本来就够虚的，现在百万播放确实是好的开始，先上个200万看看实力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还有，你还是聊聊🐔动画波播一次就上趋势一次，nico观众多一半的事吧
+
+*****
+
+####  ads147147  
+##### 25689#       发表于 2025-2-17 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449444&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 16:32</a>
+
+祥子突然懂睦头吉他自卑真的是把我看得 啊？了</blockquote>
+大祥母鸡卡第二集的时候就知道木头心里在说什么，还被写成台词说出来了，但是没人信。
+
+现在真的当了木头翻译器，观众又开始错愕怎么有这个技能多少不太行吧。。
+
+*****
+
+####  高贵的  
+##### 25690#       发表于 2025-2-17 16:41
+
+我的建议是进一步的数据挖掘，开始比各种数据的比例吧，我要看到血流成河
+
+*****
+
+####  凉良  
+##### 25691#       发表于 2025-2-17 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449580&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 16:41</a>
+
+大祥母鸡卡第二集的时候就知道木头心里在说什么，还被写成台词说出来了，但是没人信。
+
+现在真的当了木头 ...</blockquote>
+祥子第三集不就是因为现在理解不了睦头想什么破防么 
+
+*****
+
+####  天空塔书记官  
+##### 25692#       发表于 2025-2-17 16:43
+
+无聊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 25693#       发表于 2025-2-17 16:43
+
+两位至尊能否移步壁吧，我鼠标滚轮不好使，不想刷你们的大长图<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 25694#       发表于 2025-2-17 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449600&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 16:43</a>
+
+祥子第三集不就是因为现在理解不了睦头想什么破防么</blockquote>
+第三集不是公认是妹妹向姐姐的无理取闹的撒娇么。。
+

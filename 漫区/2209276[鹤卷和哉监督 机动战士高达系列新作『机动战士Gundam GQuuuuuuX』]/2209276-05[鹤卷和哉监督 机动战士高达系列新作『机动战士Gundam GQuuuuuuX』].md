@@ -14646,3 +14646,37 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 
 查看全部评分
 
+
+*****
+
+####  积木23ki  
+##### 7040#       发表于 2025-2-17 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449392&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-17 16:28</a>
+只是照片拍反了，蓝色竖线要在左边</blockquote>
+主要在意的是为什么看过电影的观众还会拍反 看过pv/正片都知道正确画面是什么样的 while看到四五个不同的卖家都是反过来拍的 神秘
+
+
+*****
+
+####  积木23ki  
+##### 7041#       发表于 2025-2-17 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449435&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-2-17 16:31</a>
+关于闻气味在X上看到点有意思的
+
+日语中的“ガンダ”一词源自梵语“गन्ध”（Gandha），其含义为「香味 ...</blockquote>
+其实痞子的新奥和和EVA里也有闻味道 感觉只是staff们的xp（
+当然这个解释我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gysumitka  
+##### 7042#       发表于 2025-2-17 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449507&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-2-17 16:37</a>
+其实痞子的新奥和和EVA里也有闻味道 感觉只是staff们的xp（
+当然这个解释我喜欢 ...</blockquote>
+关键是闻了之后才给她们见红高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
