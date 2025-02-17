@@ -8422,3 +8422,40 @@ nico评价差评到时和国内差不多,147最高
  计程车飞天的那段演出还不够精彩？？？我只能说每个人欣赏的角度不同了 ...</blockquote>
 额，很土啊，不是纯玩ET梗嘛
 
+
+*****
+
+####  wwwttth  
+##### 25946#       发表于 2025-2-17 23:41
+
+相比于模仿et那段，我更喜欢最后小女孩上车那段。就像psychopass天意剧场版我最喜欢最后朱爷举枪那段。相比于玩梗剧情这种将整个剧情瞬间收束的场景说实话更激动人心。
+
+*****
+
+####  天空塔书记官  
+##### 25947#       发表于 2025-2-17 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452572&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 23:24</a>
+其实我一直想说第八集大概会有对迷子的人物回撤，虽然爱音更多的是作为被迫害役和“工具人”存在，但应该是 ...</blockquote>
+总结一下，第七集中日文化差异的两点表现，一是CCC神回滤镜的失效，二是对于爱音角色状态感知的“钝感”，这很大程度上解释了wsd的烂炒在老中和岛国产生如此剧烈反差的原因
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  安娜导函数  
+##### 25948#       发表于 2025-2-17 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452264&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 22:31</a>
+所以独角兽像一条狗一样被踢出细节制作了</blockquote>
+BSR:你挡着我搞爆炒了，赶紧滚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 25949#       发表于 2025-2-17 23:45
+
+我是喜欢#4那集，对田中的刻画真的很传神，而且下笔又锐又利。比如他唐突吼同事那里一下子就把那种神经质的感觉演活了
+
