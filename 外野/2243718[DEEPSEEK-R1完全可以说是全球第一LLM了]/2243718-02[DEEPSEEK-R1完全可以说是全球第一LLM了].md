@@ -4713,3 +4713,35 @@ chatbox没法联网</blockquote>
 如果是玩类脑上别人车的卡，搭配的破限不同，生成结果也会大相径庭。
 还有玩一个剑与魔法的RP 隔段时间就要重点提醒它我们这不是科幻，让那些劳什子机械义肢义眼芯片啥的都滚蛋。不要再破坏我们DND 的世界观了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  gh1023  
+##### 1892#       发表于 2025-2-17 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445255&amp;ptid=2243718" target="_blank">Geronimo 发表于 2025-2-17 09:36</a>
+
+联网是api的功能啊，和chatbox没关系。</blockquote>
+不是的，page assist也可以联网用硅基流动的api啊，我现在就是想用一个安卓版本的page assist而已
+
+*****
+
+####  gh1023  
+##### 1893#       发表于 2025-2-17 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444652&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-17 07:53</a>
+
+chat box 啊</blockquote>
+好的，我先用用
+
+
+*****
+
+####  qqks  
+##### 1894#       发表于 2025-2-17 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444675&amp;ptid=2243718" target="_blank">千千千千鸟 发表于 2025-2-17 08:02</a>
+
+没错，这个真的很难解决，我用了非常详细的文风指导了，其实到这程度都不期待有多想象力了，就公式化就行 ...</blockquote>
+试试微调的？
+

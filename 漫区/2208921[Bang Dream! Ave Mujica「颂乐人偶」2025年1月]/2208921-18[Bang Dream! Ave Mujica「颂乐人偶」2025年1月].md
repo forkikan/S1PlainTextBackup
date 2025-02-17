@@ -1789,3 +1789,54 @@ mujica在路人眼中可能还是有一些热度的。</blockquote>
 愤怒的狗友(？)也算是打到棉花上了
 <img src="https://p.sda1.dev/22/247f8f170d4c65d42636cc7927c8bd85/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 25316#       发表于 2025-2-17 10:20
+
+怎么多年了还没意识到柿本就是条死猪吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25317#       发表于 2025-2-17 10:21
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 10:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445634&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 10:15</a>
+你拉真在中国火，真的用上海人打中华炮，不也搞的一团烂泥。不是wsd的问题，是日企都这个毛病，看不起中华 ...</blockquote>
+那我觉得wsd还是要比万代强得多，态度也更加认真，只不过是努力错了方向
+
+索尼和狗带这些财阀老钱才是纯纯的以恶心老中为乐，wsd起码是真想做生意的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 25318#       发表于 2025-2-17 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445592&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-2-17 10:10</a>
+抛开第七集最后的两首歌，其实我想知道如何给大祥老师在知道木头人觉得自己吉他不行的情况下，前面又是拉着 ...</blockquote>
+压根没想着洗吧，黑祥就是这么烂就是满脑子只有自己不在乎姐妹死活，现在变回白祥切割了，顺便代表黑祥原谅下舔狗们
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 25319#       发表于 2025-2-17 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445696&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 10:21</a>
+
+那我觉得wsd还是要比万代强得多，态度也更加认真，只不过是努力错了方向
+
+像索尼和狗带这些财阀老钱才是 ...</blockquote>
+咋说呢，大环境下wsd多少也会被带点影响的。
+
+记得b站热门的那个视频怎么评价祥子的，说怎么还有犯了错还不向受害者道歉反而要受害者向自己道歉的人，弹幕全是：日本确实是这样。
+
+我的表情只有：那确实。。。
+
