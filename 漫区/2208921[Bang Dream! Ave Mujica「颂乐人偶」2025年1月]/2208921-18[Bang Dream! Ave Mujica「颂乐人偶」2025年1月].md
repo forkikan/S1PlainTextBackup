@@ -4369,3 +4369,129 @@ mujica集均也就200W 现在的规模声势是这级别配有的么</blockquote
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  是谁的书画  
+##### 25566#       发表于 2025-2-17 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448151&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-17 14:31</a>
+
+提醒一下，抛开日本本土不谈，在泥潭投票认为烂完了的是一半，给正面评价的也有四分之一
+
+不要定调全观众一 ...</blockquote>
+虽然但是，用泥潭的评价应该不是最没实际参考性的嘛，多少人是串着投的
+
+我投的都是+2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 25567#       发表于 2025-2-17 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448250&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 14:40</a>
+
+有一说一，皇族位洗脚位係属于客观事实，嫌难听可以说是c位和非c，但本质一个意思，我一直的态度就是二偶本 ...</blockquote>
+道理是这样。但是楼里几个急头白脸的明显是边缘群体在意外围拢过来的正常人的审视下应激了
+
+*****
+
+####  wpcc  
+##### 25568#       发表于 2025-2-17 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448258&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 14:41</a>
+
+有些人气急败坏在场内没办法只能暗示声优的样子真好小丑这和宗教头头宣称的末日天火也没区别嘛。难不成muji ...</blockquote>
+清算爱厨的本质也是清算ylg 真的爱厨现在早退坑了 ylg下来攻击二偶生态 一把火就把二偶环境砸烂了 其他企划也别活了
+
+*****
+
+####  aptx8285144  
+##### 25569#       发表于 2025-2-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448151&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-2-17 14:31</a>
+
+提醒一下，抛开日本本土不谈，在泥潭投票认为烂完了的是一半，给正面评价的也有四分之一
+
+不要定调全观众一 ...</blockquote>
+提醒一下，十分厌恶这话的我投的是+0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 25570#       发表于 2025-2-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448302&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 14:45</a>
+虽然但是，用泥潭的评价应该不是最没实际参考性的嘛，多少人是串着投的
+
+我投的都是+2 ...</blockquote>
+这能有多少比例呢，总归是少数
+
+*****
+
+####  怀沙汨罗  
+##### 25571#       发表于 2025-2-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448328&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:48</a>
+清算爱厨的本质也是清算ylg 真的爱厨现在早退坑了 ylg下来攻击二偶生态 一把火就把二偶环境砸烂了 其他企 ...</blockquote>
+看你的样子，要不真去看看心理医生吧，别看动画看魔怔了。苦大仇深的，不知道还以为有什么阶级仇恨呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  wpcc  
+##### 25572#       发表于 2025-2-17 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448342&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 14:49</a>
+
+看你的样子，要不真去看看心理医生吧，别看动画看魔怔了。苦大仇深的，不知道还以为有什么阶级仇恨呢。
+
+ ...</blockquote>
+我一上其他地方就被人抓着骂 你这祥厨鸡吹 活该被狗吹打 怎么不能反击吗
+
+*****
+
+####  wpcc  
+##### 25573#       发表于 2025-2-17 14:51
+
+这群人毁灭管人生态的时候直接把我逼退坑了 德不配位的后果是整个圈子爆掉 
+
+*****
+
+####  Versedust  
+##### 25574#       发表于 2025-2-17 14:52
+
+班固已经5.7了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这集把go推都气得去打一星了，其实烂不至此
+
+*****
+
+####  Paaz  
+##### 25575#       发表于 2025-2-17 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448163&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 14:33</a>
+
+不恐怖的，爱音这个角色会不会换中之人还是直接嘎掉都不知道的现在，LSL这个情况才是真的危险了 ...</blockquote>
+你真的有股味，和我前两天回复的两个同一种味。
+
+喜欢爱音的也要喜欢她的声优？LSL算什么臭鱼烂虾，或者说这两个团除了羊哪个不是臭鱼烂虾，一群不能靠自己的实力出道的我粉她干啥？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楠城旧篱  
+##### 25576#       发表于 2025-2-17 14:53
+
+<blockquote>wpcc 发表于 2025-2-17 14:51
+这群人毁灭管人生态的时候直接把我逼退坑了 德不配位的后果是整个圈子爆掉  ...</blockquote>
+来去都是一帮人还真不是玩笑（惊
+
+*****
+
+####  aritaatsu222  
+##### 25577#       发表于 2025-2-17 14:54
+
+<blockquote>hysjmr 发表于 2025-2-17 14:47
+道理是这样。但是楼里几个急头白脸的明显是边缘群体在意外围拢过来的正常人的审视下应激了 ...</blockquote>
+虽然我也觉得鸡很烂，但毕竟我也觉得狗很烂，狗在垫立希那一刻我就觉得不行，这个作品的认知不够，只是垫立希立希人气不行，抽小祥祥厨清楚自推皇族地位坚韧不拔，盐爱音结果偏偏爱音真的是路边完全不能找捕，一切都可以预见
+
