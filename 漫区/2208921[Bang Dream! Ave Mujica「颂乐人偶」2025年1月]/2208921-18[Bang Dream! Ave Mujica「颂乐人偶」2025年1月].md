@@ -7536,3 +7536,32 @@ https://m.gamer.com.tw/forum/C.php?bsn=31877&amp;page=&amp;snA=6914&amp;last=
 
 原来孤独摇滚几位乐器都练出来了，这下又又被薄杀了
 
+
+*****
+
+####  怀沙汨罗  
+##### 25865#       发表于 2025-2-17 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450791&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 19:02</a>
+我又不是股东，赢不赢，赢多大管我屁事，不是你在一会儿谈热度一会儿谈质量反复横跳吗？我也只是指出现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 25866#       发表于 2025-2-17 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451085&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-17 19:45</a>
+
+原来孤独摇滚几位乐器都练出来了，这下又又被薄杀了</blockquote>
+索尼亲女儿和你开玩笑呢 本身内核就是适合传播的
+
+*****
+
+####  十九号大侠  
+##### 25867#       发表于 2025-2-17 19:50
+
+这每周四的b限不会就没了吧
+
