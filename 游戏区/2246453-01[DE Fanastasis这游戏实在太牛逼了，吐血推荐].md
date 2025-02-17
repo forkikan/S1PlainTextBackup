@@ -647,3 +647,18 @@ magpie+crt easymode滤镜，这是4K分辨率下显示效果非常好的搭配
 
 做精翻的大佬给顺路做了SD的60帧补丁。
 
+
+*****
+
+####  金戈画角  
+##### 50#       发表于 2025-2-17 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449622&amp;ptid=2246453" target="_blank">三度音 发表于 2025-2-17 16:44</a>
+
+汉化需要U盘倒腾。
+
+游戏区里就有帖子，Q群里也有。
+
+做精翻的大佬给顺路做了SD的60帧补丁。 ...</blockquote>
+非常感谢！这就折腾起来
+

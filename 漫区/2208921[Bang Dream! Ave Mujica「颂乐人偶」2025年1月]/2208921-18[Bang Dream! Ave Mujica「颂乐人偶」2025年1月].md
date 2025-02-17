@@ -5903,3 +5903,183 @@ WSD精神股东与二次元萌豚与疯批鸡友狗推c遗祥厨各自各的输�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ape-apple  
+##### 25715#       发表于 2025-2-17 16:54
+
+越来越像holo时代了，反正就是说这边市场多重要，你司必须得仰人鼻息……原来你骂人不是为了爽，而是真的觉得自己真的决定了一家海外公司生死吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1||
+
+查看全部评分
+
+*****
+
+####  takerest  
+##### 25716#       发表于 2025-2-17 16:54
+
+<blockquote>天空塔书记官 发表于 2025-2-17 16:33
+要比tft的话，还是和小孤独比吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+和小孤独比c团不是被薄纱成路边一条？
+
+*****
+
+####  怀沙汨罗  
+##### 25717#       发表于 2025-2-17 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449741&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 16:54</a>
+你都把N站这种快死的玩意儿拿出了我只能顺从了，看来狗鸡的热度已经薄纱ll了，毕竟星团才2000人 ...</blockquote>
+你眼睛长哪里呢，请看看是那个路边先自信满满拿n站这种路边数据对比热度的？还
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhoujin8584  
+##### 25718#       发表于 2025-2-17 16:55
+
+<blockquote>cxj649 发表于 2025-2-17 16:53
+别说，这点只能C团，不然是日本那里炎上了</blockquote>
+有没有可能我说得是ccc留到祥子2.0升级完再复活而不是用现在这个只要你回到原点一切自动和解的主线大纲
+
+*****
+
+####  凉良  
+##### 25719#       发表于 2025-2-17 16:56
+
+CCC就TM应该第十三集大和解 
+
+*****
+
+####  天空塔书记官  
+##### 25720#       发表于 2025-2-17 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449752&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 16:54</a>
+和小孤独比c团不是被薄纱成路边一条？</blockquote>
+起码都是二次元沾2.5不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ape-apple  
+##### 25721#       发表于 2025-2-17 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449743&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:54</a>
+凉不凉和我没关系呀，本来邦邦不就是路边吗，反正wsd这么炒下去乐子拉满，就是动画质量很难说了。当然2.5 ...</blockquote>
+自己反对自己是吧，没人说这玩意质量好，没人说邦邦和wsd不是路边一条，但是你直接生猛截图说怎么怎么不行也挺可乐的，我以为怎么也得搞个独立调查呢
+
+*****
+
+####  ape-apple  
+##### 25722#       发表于 2025-2-17 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449761&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:55</a>
+你眼睛长哪里呢，请看看是那个路边先自信满满拿n站这种路边数据对比热度的？还
+
+—— 来自 鹅球 v3.3.96- ...</blockquote>
+基数低=路边一条，涨幅大也是假的，只是因为基数低，多的一千Nico观众都是老中刷数据
+
+*****
+
+####  帝下室の年糕  
+##### 25723#       发表于 2025-2-17 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449743&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:54</a>
+凉不凉和我没关系呀，本来邦邦不就是路边吗，反正wsd这么炒下去乐子拉满，就是动画质量很难说了。当然2.5 ...</blockquote>
+唉，2.5次元宅，海外路边不是你说的吗，怎么数据打脸又转移话题到动画质量了，动画质量还用你说？赛博皇帝做不成了有点急了啊，不过要你这种网络巨婴承认自己放错屁了是比登天还难<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 25724#       发表于 2025-2-17 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449731&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-2-17 16:53</a>
+
+现在真的还有鸡团粉丝吗，那真的有点变态了，现在剧内我都不知道为啥要让那五个人回来重组鸡团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像百综楼有，正在阴湿圣人，不过还是我觉得太乐观了
+
+
+*****
+
+####  是谁的书画  
+##### 25725#       发表于 2025-2-17 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">看的我也好想下场吵架啊，但是我回完人就都不理我了
+感觉被拉嗨了，现在我也是千早爱音半身了。
+
+*****
+
+####  天空塔书记官  
+##### 25726#       发表于 2025-2-17 17:01
+
+唉…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 25727#       发表于 2025-2-17 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449807&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 16:59</a>
+唉，2.5次元宅，海外路边不是你说的吗，怎么数据打脸又转移话题到动画质量了，动画质量还用你说？赛博皇 ...</blockquote>
+你倒是长长眼睛看看谁先提路边网站数据的？你们俩打配合还能互相打脸的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  安娜导函数  
+##### 25728#       发表于 2025-2-17 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449211&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-17 16:11</a>
+我知道了
+
+大结局是爱音为了挽救卖狗和母鸡卡选择牺牲自己
+
+然后仓田真白出现把爱音带回邦邦星云</blockquote>
+你这结局是不是爱音从马西洛学姐那边进货吸多了倒在厕所里的幻觉呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+等一个爱音纹身变辣妹的本子<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 25729#       发表于 2025-2-17 17:03
+
+反正现在武士道靠卖holo卡还在赚钱呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 25730#       发表于 2025-2-17 17:03
+
+无所谓，武士道啥卡都卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  _47  
+##### 25731#       发表于 2025-2-17 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447628&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-17 13:29</a>
+就按mujica第七话目前这情况，CCC复活有什么问题嘛？哦，问题就是有个粉色奶龙还没踢掉对吧 ...</blockquote>
+仅就动画来论，ccc复活的问题就是ccc已经死了，第七话是各位彻底切割ccc的过程，我觉得这是不需要非常深入的共感与思考就能感受到的。场外wsd确实逆天。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

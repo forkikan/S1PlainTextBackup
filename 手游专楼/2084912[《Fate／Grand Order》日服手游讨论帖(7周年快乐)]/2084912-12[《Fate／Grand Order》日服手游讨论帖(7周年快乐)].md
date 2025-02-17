@@ -899,3 +899,14 @@ https://m.bilibili.com/opus/1033632735051120642
 日本作者按日本野史传说搞设定出日本人物，这其实是挺正常的事，反倒是我觉得废狗最近几年不思进取，盯着型 ...</blockquote>
 日本从者日本活动，有一半以上都是咕哒咕哒贡献的
 
+
+*****
+
+####  马桶3  
+##### 16359#       发表于 2025-2-17 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448586&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-2-17 15:11</a>
+
+日本从者日本活动，有一半以上都是咕哒咕哒贡献的</blockquote>
+是了，日本从者本来就有稳定的咕哒咕哒产出，结果周年啊，情人节啊，型月本社联动啊，逐渐开始外溢
+
