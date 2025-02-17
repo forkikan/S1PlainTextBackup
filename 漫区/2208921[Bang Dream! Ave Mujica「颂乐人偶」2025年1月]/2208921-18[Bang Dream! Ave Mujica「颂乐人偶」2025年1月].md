@@ -8887,3 +8887,47 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 给数据痴提供点数据
 
+
+*****
+
+####  小博禹  
+##### 25978#       发表于 2025-2-18 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453153&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-18 01:25</a>
+想到一个好玩的，希望后面卖一波爱祥，我看正论厨子是不是会破防
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+虽然不喜欢你们这种“为了恶心其他粉丝而磕cp”的想法，但是爱祥是对的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 25979#       发表于 2025-2-18 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453162&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-18 01:30</a>
+根据设定集里爱音八字眉的表情确实是不开心，不过武士道肯定没这个意思，它懂这个的话也不会这样安排剧情 ...</blockquote>
+以后软糯小祥会补偿爱音的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 25980#       发表于 2025-2-18 01:49
+
+看了下，第七话的剧情展开其实是意料之中。
+
+企鹅抓着大象老师说玩乐队基本就是这意思。
+
+差不多就是为了整CCC live把白祥和小黄瓜暂时回归了。
+
+我本来觉得倒是反过来，mygo唱ccc的歌
+
+不过既然决定要整CCC，哪怕是临时组CCC，爱音和猫就只能被迫挂机了。
+
+剧情我现在最迷惑的地方是，整了这么多活或者说所谓的怒涛展开，鸡团还有重建的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+总觉得我是不是少看一部bang dream crythic
+
