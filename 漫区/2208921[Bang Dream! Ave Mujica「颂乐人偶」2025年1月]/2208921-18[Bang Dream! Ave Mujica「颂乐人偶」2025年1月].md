@@ -4686,3 +4686,154 @@ b站草台班子罄竹难书
 一切都是过去重演 ，现在已经有一群人转发冲武手册了，疑似真想让wsd重做动画，因为不尊重观众holo-ASOUL-m ...</blockquote>
 我从2.5企划角度确实也希望能重置…这个对拉新完全是负效果<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，广告片不及格，Live也太少了，观赏性也不够
 
+
+*****
+
+####  天空塔书记官  
+##### 25598#       发表于 2025-2-17 15:14
+
+holo开始时还算有点正义性，后边就直接变成网络暴民狂欢了，SB一群<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 25599#       发表于 2025-2-17 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448607&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 15:12</a>
+
+我从2.5企划角度确实也希望能重置…这个对拉新完全是负效果，广告片不及格，Live也太少了，观赏性也不够 ...</blockquote>
+拉新的人起码要能跑live 跑live的人其实并不会认真分析动画 
+
+*****
+
+####  GBLMikuHatsune  
+##### 25600#       发表于 2025-2-17 15:14
+
+那真要追究一创，soyo不还有古早名梗催眠app么，时间上来看比mujica早放出来多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+懂了，mujica才是二创，甚至是三创
+
+
+*****
+
+####  wpcc  
+##### 25601#       发表于 2025-2-17 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448626&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 15:14</a>
+
+holo开始时还算有点正义性，后边就直接变成网络暴民狂欢了，SB一群
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+再说下去就不礼貌了 不行我得忍住不鉴
+
+*****
+
+####  楠城旧篱  
+##### 25602#       发表于 2025-2-17 15:16
+
+<blockquote>wpcc 发表于 2025-2-17 15:07
+我提一嘴某兽人手游联动mujica的东西已经做完了 还敢端上来吗</blockquote>
+保真吗1111111
+
+ hhhhhhhh
+
+*****
+
+####  595505568  
+##### 25603#       发表于 2025-2-17 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448629&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:14</a>
+拉新的人起码要能跑live 跑live的人其实并不会认真分析动画</blockquote>
+反正我觉得Mujica真要拉新的话Go至少出两首新的，鸡团至少4首新单曲和已经出的单曲两首live要挂出来强化演奏了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，以前邦2新曲含量爆炸的时候，live拉新效果确实厉害
+
+*****
+
+####  ape-apple  
+##### 25604#       发表于 2025-2-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448607&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 15:12</a>
+我从2.5企划角度确实也希望能重置…这个对拉新完全是负效果，广告片不及格，Live也太少了，观赏性也不够 ...</blockquote>
+我觉得拉新效果已经完全足够了，现在停播然后放到剧场版都比重做好，再说明白点，这些人想重做动画，没几个是因为剧情本身，而是觉得自己不受尊重了
+
+*****
+
+####  wpcc  
+##### 25605#       发表于 2025-2-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448642&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 15:16</a>
+
+反正我觉得Mujica真要拉新的话Go至少出两首新的，鸡团至少4首新单曲和已经出的单曲两首live要挂出来强化 ...</blockquote>
+我说c团有新歌全平台实装你会打我吗
+
+*****
+
+####  NameLess2501  
+##### 25606#       发表于 2025-2-17 15:17
+
+觉得对同一件事的看法不同和中日文化差异有关系。
+
+中国的主流认知是「王侯将相宁有种乎，翻身农奴把歌唱」突出一个平等。
+
+日本则是能当主人的狗，是我莫大的荣幸啊，比如邦邦RAS的Pareo，辉夜大小姐的早板爱。他们是能写出来也能接受这种奴隶角色的。
+
+所以相比之下，我们对不公正待遇更加敏感。
+
+*****
+
+####  高贵的  
+##### 25607#       发表于 2025-2-17 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448606&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 15:12</a>
+
+这个问题，昨天我说过，然而就不说五话开始了，哪怕从上周开始，素世几乎半绑架把大祥带到睦家，大祥后面 ...</blockquote>
+我这个想法是在第4、5集冒出来的，因为无论鸡团解散还是对“违约金”这种元素运用的都太抽象了，但现在来看制作组完全没这个想法就是了
+
+*****
+
+####  wpcc  
+##### 25608#       发表于 2025-2-17 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448663&amp;ptid=2208921" target="_blank">NameLess2501 发表于 2025-2-17 15:17</a>
+
+觉得对同一件事的看法不同和中日文化差异有关系。
+
+中国的主流认知是「王侯将相宁有种乎，翻身农奴把歌唱」 ...</blockquote>
+我觉得这种思想的传播就是一种奶头乐了 多的也不说了。王侯将相宁有种乎其实是贵族割据借用农民起义来掩饰自己改朝换代的合理性的。。。儒家法家思想能用两千年哪个真的宣传这个哦
+
+
+*****
+
+####  ape-apple  
+##### 25609#       发表于 2025-2-17 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你说的都对，太好了太是了，那有什么实际意义吗，沉迷这种叙事，你们为什么不看自己人的少女乐队，是没有吗
+
+*****
+
+####  楠城旧篱  
+##### 25610#       发表于 2025-2-17 15:22
+
+<blockquote>wpcc 发表于 2025-2-17 15:20
+我觉得这种思想的传播就是一种奶头乐了 多的也不说了。王侯将相宁有种乎其实是贵族割据借用农民起义来掩 ...</blockquote>
+“不行我得忍住不鉴”
+
+*****
+
+####  595505568  
+##### 25611#       发表于 2025-2-17 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448659&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:17</a>
+我说c团有新歌全平台实装你会打我吗</blockquote>
+春日影不是已经实装了嘛，还有啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 25612#       发表于 2025-2-17 15:23
+
+我是欢迎各大二创大手子发挥自己的创造力重写一个自己心目中的剧情的。
+毕竟动画该给的还是都给了的。
+至于武士道，不要抱任何期待<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

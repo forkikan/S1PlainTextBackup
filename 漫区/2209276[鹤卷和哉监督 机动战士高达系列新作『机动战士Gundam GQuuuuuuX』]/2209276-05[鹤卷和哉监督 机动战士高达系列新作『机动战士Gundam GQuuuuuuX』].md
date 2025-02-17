@@ -14535,3 +14535,21 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 首先他们二人都是难民出身，首席哥的履历明确他是鲁姆 ...</blockquote>
 首席哥会和马秋击剑吗<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7031#       发表于 2025-2-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448567&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-2-17 15:10</a>
+
+首席哥会和马秋击剑吗</blockquote>
+机体都已经NTR了，放过首席哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 7032#       发表于 2025-2-17 15:19
+
+成年男性军官击剑赢了矮子jk有什么意义吗？
+

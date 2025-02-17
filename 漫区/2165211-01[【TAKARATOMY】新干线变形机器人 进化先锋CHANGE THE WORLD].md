@@ -18,3 +18,13 @@ E5 隼号
 
 <img src="https://pic1.imgdb.cn/item/67b2c18ed0e0a243d4001b95.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  直推  
+##### 122#       发表于 2025-2-17 15:13
+
+E6 小町号
+
+<img src="https://pic1.imgdb.cn/item/67b2c26cd0e0a243d4001be0.webp" referrerpolicy="no-referrer">
+
