@@ -14971,3 +14971,14 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 只有跟牢 ...</blockquote>
 脑补太过，这里明明穿破烂背心是尼亚安觉得修司一脸穷逼靠不住样子，刚刚全副身家都掉水里了。
 
+
+*****
+
+####  纪寞  
+##### 7068#       发表于 2025-2-18 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452726&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-17 23:53</a>
+
+脑补太过，这里明明穿破烂背心是尼亚安觉得修司一脸穷逼靠不住样子，刚刚全副身家都掉水里了。 ...</blockquote>
+请问一下，您印象里哈罗有直接见过修司吗？还是通过玛秋才知道修司？
+
