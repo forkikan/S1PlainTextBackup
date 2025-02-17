@@ -2922,3 +2922,135 @@ CP互动的核心就是角色间持续的交集，这从一开始素世拥抱和
 如果我说是呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 我们这边想的乐队是多人一心同体，大家同等重要，但是邦邦不是啊，有明确的核心就有明确的边缘人，这一点其实并不好，但邦本身在日本就这样的热度，说明他们就这样的路线也不准备变了。从这一点看，评价撕裂是不是就可以解释了？
 
+
+*****
+
+####  hysjmr  
+##### 25426#       发表于 2025-2-17 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447002&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:16</a>
+ 如果我说是呢 我们这边想的乐队是多人一心同体，大家同等重要，但是邦邦不是啊，有明确的核心就有明确的 ...</blockquote>
+有核心不是坏事，就是叠加上日本人尊卑分明的底层逻辑，化学反应变炸弹了
+
+*****
+
+####  厄神之息  
+##### 25427#       发表于 2025-2-17 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446293&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 11:10</a>
+
+因为lsl也知道爱音是个摄像头地位 一辈子当不了主唱热度 也没必要靠邦起飞 ...</blockquote>
+说的好像她作为配音演员还有别的好角色能选似的，事实不就是她是只有一个角色有点知名度还不上心的究极摆烂王？她天天摆烂在老钟还有热度都要给隔壁李子馋哭了
+
+*****
+
+####  山ノ内花音  
+##### 25428#       发表于 2025-2-17 12:18
+
+有人说爱音没人理就像绯玛丽一呼零应一样属于迫害粉毛的底层设定 这是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 25429#       发表于 2025-2-17 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446969&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 12:12</a>
+
+日本爱音：喜欢跟风爱炫耀没品位，三分钟热度，说话失礼还唧唧歪歪，带点绿茶
+
+老中爱音：唐
+
+哎，就是偏爱不 ...</blockquote>
+爱音的人设在老钟眼里很吃香
+
+智商情商双高，曾任学生会长，对承诺很看重，虽然有爱慕虚荣的小缺点，但性格上的高光能掩盖住，而且到现在爱慕虚荣这一点已经完全看不出来了
+
+
+*****
+
+####  aritaatsu222  
+##### 25430#       发表于 2025-2-17 12:21
+
+不得不说，邦在这点上的确是先天问题，主唱就是比鼓手吸睛，帽偶尔都还能让绿卡当center，鼓手就算了
+
+但问题是，其实长崎素世跟千早爱音一样是洗脚位，只是长崎素世连人气爆的运气都没有，就只是一直洗脚
+
+*****
+
+####  Versedust  
+##### 25431#       发表于 2025-2-17 12:21
+
+AG五个人是青梅竹马，爱音一个路边来的怎么跟肥玛丽比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 25432#       发表于 2025-2-17 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447019&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-17 12:18</a>
+
+有人说爱音没人理就像绯玛丽一呼零应一样属于迫害粉毛的底层设定 这是真的吗 ...</blockquote>
+只谈“迫害”的话可以说是，但是也只能谈“迫害”，往其他方面发散对比的话就会更显得爱音真成了边缘人<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 25433#       发表于 2025-2-17 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447019&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-17 12:18</a>
+有人说爱音没人理就像绯玛丽一呼零应一样属于迫害粉毛的底层设定 这是真的吗 ...</blockquote>
+爱音是没有官方配cp，也不给c位曲子的平安民堇。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 25434#       发表于 2025-2-17 12:25
+
+绯玛丽还是队长呢，类似定位的彩彩更是pp的团魂和核心，爱音从一开始就是工具人啊，习惯迫害乐天的阳角也算是岛国二次元的常态了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 25435#       发表于 2025-2-17 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447073&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 12:24</a>
+爱音是没有官方配cp，也不给c位曲子的平安民堇。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+爱灯还是有的，歌也不少
+
+但确实没啥热度就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 25436#       发表于 2025-2-17 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446842&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-17 11:58</a>
+
+睦素在三天三夜前有什么明显线索吗？Mygo的时候爽每次去找给黄瓜浇水的睦基本都是在打机锋套祥子信息，感觉 ...</blockquote>
+客观来说，虽然soyo陪伴睦的动机不纯，但是从mujica来看睦确实是缺陪伴的，soyo在春日影事变之前也并没有向睦施加过多的压力，两人场外关系第一次大升温就是第10集灯和立希谈心时睦突然的闯入，就说了两句话但句句不离soyo，第二次就是黄瓜事件，但是此时大家都知道soyo的底色到底是什么样的人，所以都认为现在切的越狠，未来的回旋就会更强烈
+
+*****
+
+####  怀沙汨罗  
+##### 25437#       发表于 2025-2-17 12:27
+
+有些漏油是真傻还是装傻呀？股价涨是因为上周五公布财报了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人觉得一部还没完结的动画能影响股价10几个点吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 25438#       发表于 2025-2-17 12:27
+
+主要是立石凛配的也确实不错，很有角色弧光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
