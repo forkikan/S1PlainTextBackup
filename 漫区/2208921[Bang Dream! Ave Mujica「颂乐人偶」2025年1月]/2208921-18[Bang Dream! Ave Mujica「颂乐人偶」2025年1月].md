@@ -3426,3 +3426,83 @@ mortis还有画面没回收怎么都不至于现在就没了
 
 至于那些觉得配的好的，我也没啥可说了
 
+
+*****
+
+####  天空塔书记官  
+##### 25474#       发表于 2025-2-17 12:58
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 13:00 编辑 
+
+男邦点了个踩.jpg
+
+单纯还是因为轻百题材更容易被大多数人接受，尤其是男性受众，要是按二偶这个写法，男乐队不是耽美就是BL，哪个萌豚会愿意看，更别说爆金币了，同理像D5J那样搞过火也不太行，口味轻的只会敬而远之，所以wsd抽邦的资源去搞18＋纯属脑子被驴踢了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 25475#       发表于 2025-2-17 12:59
+
+男人玩乐队有个难以超越的巴萨那，很难的啦
+
+*****
+
+####  hysjmr  
+##### 25476#       发表于 2025-2-17 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447358&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-17 12:57</a>
+ 合着mygo制作组在不知情的情况下创作了13集长度的格式塔心理学案例。 这才是真的猴子打字机啊。 ...</blockquote>
+很难接受吧，但是确实有与之相配的奇迹发生了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25477#       发表于 2025-2-17 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447364&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:58</a>
+大概是觉得你把我开除国籍了吧配啥都像本人就是配音能力不行的体现啊
+
+至于那些觉得配的好的，我也没啥可 ...</blockquote>
+那你确实是焦虑了，快乐黑屁，理智损人才是正道
+
+
+*****
+
+####  梅杜莎  
+##### 25478#       发表于 2025-2-17 13:02
+
+《from ARGONAVIS》是以男子乐队为主题，由Bushiroad制作的基于《BanG Dream!》的全新男子乐队跨媒体企划，以电视动画、游戏、漫画、现实演唱会等形式展开，在2022年2月1日由Bushiroad子公司化，成立专门公司「株式会社ARGONAVIS」来负责此品牌的统筹营运。
+[https://zh.moegirl.org.cn/zh-hans/From_ARGONAVIS](https://zh.moegirl.org.cn/zh-hans/From_ARGONAVIS)
+
+男邦是这个吧
+
+*****
+
+####  天空塔书记官  
+##### 25479#       发表于 2025-2-17 13:03
+
+搞男乐队如果想扩大受众群体，只能是单纯的青春友情向或者轻bg，限制太大了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aritaatsu222  
+##### 25480#       发表于 2025-2-17 13:06
+
+同样都被叫2.5，二偶是女&gt;&gt;男，舞台剧是男&gt;&gt;女，发展方向就不一样
+
+
+*****
+
+####  岸波白野  
+##### 25481#       发表于 2025-2-17 13:07
+
+现在和木柜子乐队对位的是男运动番哇（不过你日去年小排球票房那凶样应该讲木柜子还不配）
+
