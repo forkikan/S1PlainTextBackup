@@ -1,0 +1,560 @@
+﻿
+*****
+
+####  blueelf  
+##### 1#       楼主       发表于 2025-2-17 00:57
+
+打的时候虽说没到茶饭不思的地步，但脑子也完全容不下其他游戏，两个手游的日常都懒得做了，过年有几天太忙只能放下游戏，忙完了重新捡起来完全没有倦怠感，拿起机子一分钟内就又沉迷进去，一个春节假期花了68个小时通关，之后就是贤者时间，找了几个RM游戏想把感觉找回来，但不管是勇战R还是帽子世界，体验跟Fanastasis都大不一样，玩一会就又陷入空虚之中，过了一周多了，连天国拯救2都没能把我从这种情绪中拉出来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">玩了30年电子游戏，这是我玩过探索寻路方面的最强游戏，没有之一，游戏的核心玩法非常简单，寻路，躲怪，找宝箱，尽管披了一层RPG的皮，但游戏并不鼓励重复战斗，数值方面设计的非常精巧，按正常流程走，只要把每张地图的BOSS打完，玩家角色的强度就足够应付下一张地图，并不需要硬刷小怪练级，这种纯靠探索驱动的乐趣真是太难得了这个游戏的绝大部分地图放在其他游戏里都能做个最终迷宫，下面这两张属于中型地图，类似或者超出这个规模的地图整个游戏有20多张
+
+<img src="https://img.saraba1st.com/forum/202502/17/003656ksbksr1jm11155yb.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (413.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:36 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/003700ofjjoxbiyujiwoz3.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (455.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:37 上传
+
+牛逼的是，这么多张地图，每一张都有每一张的特色，从小怪的行动路线，反应速度，应对小怪的机制，以及各式各样的机关谜题暗道，花样百出。而魂系那标志性的峰回路转柳暗花明，在这游戏可以说比比皆是，毫不夸张的说，黑魂123加血源，所有的隐藏要素和地图联通全部加起来比不上Fanastasis这一个游戏，地图做到这个份上的用心程度和巧思简直让人膜拜了开发者把RMVX通用素材用到了极致：地板裂缝、墙面色差、草丛缺口，每个像素异样都可能是隐藏通道，玩久了练就一副火眼金睛，再去玩其他RM游戏会不适应，画面上稍有异状都会下意识去调查。。。。还有些隐藏要素在画面上完全无异状，但记忆碎片里会有提示，游戏也贴心的给了个随时查看线索的快捷功能
+
+<img src="https://img.saraba1st.com/forum/202502/17/005216dsxekw0u0s7ejq75.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (130.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+制作人对地图节奏的把控能力很强，虽说流程就是一个迷宫接着一个迷宫，但我几乎没有厌烦的时候，除了每个迷宫的机制不同外，美术风格尽可能做出了差别，相邻迷宫地形差异也非常大，在逼仄的山洞或者室内跑上一个小时，下一个场景十有八九就是开阔的室外，雷光峰前后那部分特别明显，按正常流程，森林---洞穴---雷光峰---大圣堂---海底/试验室---图书馆---古代遗迹---无人村庄，每到一个地方玩家都有足够的新鲜感，另外游戏里虽然几乎没有人烟，但很多迷宫之间都会设置一个不小的无怪区域，同样塞满了隐藏要素，玩家可以在没有躲怪压力的情况下安心探索，做到了张弛有度
+
+<img src="https://img.saraba1st.com/forum/202502/17/005217mn8gr8jgnrrj8z50.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (83.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/005217t2s3q244ibh2c2hh.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (98.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/005215jqzxnis9dbld6444.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (114.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/005215jwykbk6xwmoky6r5.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (98.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+游戏跟其他媒介一个重要的区别是故事靠玩家来发掘，而Fanastasis在这一点上可以说做到了极致，游戏是非常琐碎的碎片化叙事，在拿到第一个宝珠之前甚至连一段演出过场都没有，玩家需要主动阅读数以千计的记忆碎片和文书去寻找真相，但跟魂系的语焉不详完全不同，这些都是当事人的心声，没有谎言，没有修饰，每一段文本都是某个普通人的人生切片：士兵日记中记录着战争背后的荒唐，魔术教师最后一个愿望是保护自己的学生，侩子手思考着死刑的意义。。。。**小小各个方面描绘了那个时代整个故事非常清晰，尤其是前篇，可以说玩家文本阅读的越仔细，对事件全貌越了解，得到的正反馈就越强，很多记忆初看可能不明所以，了解真相之后再回头想想才会豁然开朗，这也是多周目游玩的一个动力前篇尾声，当主角打开黑门到达某个修道院地下的时候，尽管已经对真相了解了七七八八，但看到那个场景还是浑身一激灵，那种亲手揭开历史真相的战栗感，远比被动观看过场动画震撼百倍，这样的感染力，我已经忘记什么时候曾在游戏内体会过了
+尽管游戏的重心不在战斗，但战斗这块做的并不含糊，法系/物理DPS，预防DEBUFF/上BUFF，闪避T/血T，每回合二动。。。主角加17个同伴18套技能，游戏把重点放在每个同伴的差异与装备搭配，而不是角色成长上，换一批队友，战斗的过程就大相径庭了
+
+<img src="https://img.saraba1st.com/forum/202502/17/005214wttaz4mnzivijnz7.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (88.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+RM游戏因为有庞大的曲库支持，选曲通常都很奢侈，Fanastasis也有多达104首BGM，其中变奏曲很少，不管是引擎自带还是原创，音乐水准非常高，例如流程里8个村庄的曲风都各不相同。卢克卢佩的配乐前半段还萧瑟的让人觉得悲伤，中途突然插入机械运转的杂音，玩家不用去探索就能感受到平静表象下的阴谋；魔女村的曲子让人宛如漫步在雨中，看着地上的泥泞中混杂着落叶和残花，联想到魔女这个群体日渐凋零的现实，对某位的行径多了一点点理解；而真结局后玩家到达了伊修托鲁，浪花声混着空灵旋律响起时，通关后的怅然若失竟化作了温暖的释怀
+
+<img src="https://img.saraba1st.com/forum/202502/17/005215wy99iehy5erhpz3y.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (58.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+让我选择一个玩过的游戏记忆消失重玩，在今年春节之前，我可能选择XG，可能选择BWS，可能选择死搁，而现在我只会选择Fanastasis，以前玩独立游戏时总是下意识会去考虑成本和素材的现实，会因为低售价对游戏的要求降低，但Fanastasis不一样，这个游戏是实打实的把我最近几年玩过的所有RPG秒的渣都不剩了，大巧不工，我也只能想到这个词，贫乏的语言很难描绘出这游戏的伟大之处，吐血推荐<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+7.jpg
+(106.17 KB, 下载次数: 1)
+
+下载附件
+
+2025-2-17 00:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/005216kiy6pp1baqjfffaq.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 9战斗力 +11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Viteeee| + 1|正经推荐游戏好评|
+| wmy458566315| + 2|真正的好游戏|
+| Duke72| + 1|个别boss必打，小怪全都可绕（除了某个暗杀.|
+| blackprice| + 1||
+| sosgame67| + 1|好评加鹅|
+| jy000129| + 1||
+| 红魔馆的糖| + 2|标记一下|
+| hootao| + 1|感谢推荐，有空试试|
+| alleriawr9| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  MobyDickStudio  
+##### 2#       发表于 2025-2-17 01:04
+
+楼主的地图是哪里找的？自己做的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  blueelf  
+##### 3#         楼主| 发表于 2025-2-17 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444147&amp;ptid=2246453" target="_blank">MobyDickStudio 发表于 2025-2-17 01:04</a>
+
+楼主的地图是哪里找的？自己做的吗</blockquote>
+QQ群里的热心网友拼的，群文件里有全套，群号：972766253
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MobyDickStudio| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  blackll7  
+##### 4#       发表于 2025-2-17 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444095&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-17 00:57</a>
+打的时候虽说没到茶饭不思的地步，但脑子也完全容不下其他游戏，两个手游的日常都懒得做了，过年有几天太忙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png">既然如此你可以来玩crystalproject了，这两个思路应该说最接近。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  慕容断月  
+##### 5#       发表于 2025-2-17 01:15
+
+虽然没通关，但小众楼里看到那位lz推荐后在steam版发售当日就买了
+
+我只想说这个和bleak faith forsaken并列全价买了血赚，甚至还想给作者钱的游戏
+
+它就是这个类型的唯一（日本那边把这个风格的游戏统称Nepheshel Like，因为游戏基础模式上同Nepheshel这个rm2003游戏）
+
+*****
+
+####  慕容断月  
+##### 6#       发表于 2025-2-17 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444181&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 01:13</a>
+
+既然如此你可以来玩crystalproject了，这两个思路应该说最接近。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+其实不太，因为游玩感受上fana类似由传统迷宫拼成的开放世界，有点类似环或者魂；而水晶计划则是有点xb、xbx和野炊的地图那个意思，还不太一样
+
+*****
+
+####  blackll7  
+##### 7#       发表于 2025-2-17 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444198&amp;ptid=2246453" target="_blank">慕容断月 发表于 2025-2-17 01:16</a>
+其实不太，因为游玩感受上fana类似由传统迷宫拼成的开放世界，有点类似环或者魂；而水晶计划则是有点xb、 ...</blockquote>
+非要说的话fanasis最接近的反而是超银，都是一图多解➕大量隐藏道路与破序列流程。魂反而偏线性了点。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qappip  
+##### 8#       发表于 2025-2-17 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444188&amp;ptid=2246453" target="_blank">慕容断月 发表于 2025-2-17 01:15</a>
+
+虽然没通关，但小众楼里看到那位lz推荐后在steam版发售当日就买了
+
+我只想说这个和bleak faith forsaken并 ...</blockquote>
+bleak faith forsaken 这个月更新dlc ，作者准备把以前素材利用起来，估计能看到以前预告那个超大旷野地图了
+
+*****
+
+####  kerbad  
+##### 9#       发表于 2025-2-17 01:42
+
+我在吹fanastasis的时候最爱用的形容就是密特罗德rpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），不过crystal project更倾向开放式跳跳乐大地图，跟fanastasis无数个机关密道联通箱庭的设计思路还是有区别的
+
+*****
+
+####  慕容断月  
+##### 10#       发表于 2025-2-17 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444273&amp;ptid=2246453" target="_blank">qappip 发表于 2025-2-17 01:37</a>
+bleak faith forsaken 这个月更新dlc ，作者准备把以前素材利用起来，估计能看到以前预告那个超大旷野地 ...</blockquote>
+好啊，还愿意出dlc可太好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  慕容断月  
+##### 11#       发表于 2025-2-17 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444217&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 01:20</a>
+非要说的话fanasis最接近的反而是超银，都是一图多解➕大量隐藏道路与破序列流程。魂反而偏线性了点。
+
+ ...</blockquote>
+是这样，不过我这个说法算是中日比较通用的描述吧，严格定义这确实是类银河战士RPG
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hootao  
+##### 12#       发表于 2025-2-17 06:39
+
+能剧透一下流程长度吗？
+
+等等，好像不需要，这游戏的流程要是真和超银差不多的话，我怕自己会卡关一辈子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  alleriawr9  
+##### 13#       发表于 2025-2-17 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444559&amp;ptid=2246453" target="_blank">hootao 发表于 2025-2-17 06:39</a>
+能剧透一下流程长度吗？
+
+等等，好像不需要，这游戏的流程要是真和超银差不多的话，我怕自己会卡关一辈子</blockquote>
+官方说法是35-85小时，正常玩基本上是要50小时以上的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杉田悠一  
+##### 14#       发表于 2025-2-17 07:19
+
+收个藏，看起来是我会喜欢的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  blueelf  
+##### 15#         楼主| 发表于 2025-2-17 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444181&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 01:13</a>
+
+既然如此你可以来玩crystalproject了，这两个思路应该说最接近。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这个的社区汉化刚出来就买了，因为逸剑的新版本，玩了几个小时暂时搁置了，到现在一直没捡起来，吸引力还是不够大
+
+这游戏在水域跳跃还好，不成功就直接回到原来的格子，但是在下方有陆地时跳跃失败就麻烦了，直接回到下面的区域，重来一遍可能很耗时，其实应该给个高处跌落损伤的，直接死掉回前一个格子就好了
+
+水晶计划的回合制看起来很现代化，行动条，仇恨线，BUFF时长应有尽有，游戏也是鼓励练级的，连地图都需要打小怪攒钱买，跟Fanastasis不是一个思路
+
+*****
+
+####  blackll7  
+##### 16#       发表于 2025-2-17 09:03
+
+ 本帖最后由 blackll7 于 2025-2-17 09:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444917&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-17 08:55</a>
+
+这个的社区汉化刚出来就买了，因为逸剑的新版本，玩了几个小时暂时搁置了，到现在一直没捡起来，吸引力还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为几个小时还没出教程区域呢，拿到山羊这游戏才刚开始。其实crystalproject也存在大量隐藏道路和破逆序路线，不过表现形式上两者不大一样，fanasis是视觉不可见的隐藏道路，而crystalproject则是隐藏在高低差下的隐藏路线，比起fanasis更隐藏。
+
+*****
+
+####  红魔馆的糖  
+##### 17#       发表于 2025-2-17 09:06
+
+剧情水准怎么样，女人塑造有意思不，这么大地图收集强迫症会不会迷路焦虑
+
+*****
+
+####  back57992  
+##### 18#       发表于 2025-2-17 09:09
+
+就潭友汉化的那个？玩了一回没玩进去 看样子要静下心来试试了
+
+*****
+
+####  jy000129  
+##### 19#       发表于 2025-2-17 09:11
+
+感谢分享
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kerbad  
+##### 20#       发表于 2025-2-17 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444973&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 09:03</a>
+
+因为几个小时还没出教程区域呢，拿到山羊这游戏才刚开始。其实crystalproject也存在大量隐藏道路和破逆序 ...</blockquote>
+我也就自己探出来一条直接从钓鱼场跳去红杉城的，还有只顾着找宝箱错过的骑龙跑沙漠路线的和看别人直接从赛鱼场游去海底神殿拿鱼的离谱路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。不知道还有啥
+
+*****
+
+####  blueelf  
+##### 21#         楼主| 发表于 2025-2-17 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444559&amp;ptid=2246453" target="_blank">hootao 发表于 2025-2-17 06:39</a>
+
+能剧透一下流程长度吗？
+
+等等，好像不需要，这游戏的流程要是真和超银差不多的话，我怕自己会卡关一辈子</blockquote>
+我68小时通关，但2/3的同伴回忆没收集全，隐藏BOSS没去打，连传送点都还剩了5个没开，通关后这些都可以慢慢收集
+
+另外我玩的时候没看过群里的地图也没怎么卡关，有两三个地方卡住了口头问了一下群友，被人一点就清楚了
+
+游戏里一个很大的好处是所有的东西都有提示，要么是画面上的要么是文字，而且虽然地图分块极多，但谜题并不会在特别大的范围内解答，最多也就是相邻两张地图（除了跟剧情关联的特殊门和密码锁），玩家需要的思考量不是很大，更多的要求是观察和专注
+
+*****
+
+####  lighttt  
+##### 22#       发表于 2025-2-17 09:23
+
+看到好几个推荐了，真有这么好玩吗，今天还打折了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  blackll7  
+##### 23#       发表于 2025-2-17 09:25
+
+ 本帖最后由 blackll7 于 2025-2-17 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445104&amp;ptid=2246453" target="_blank">kerbad 发表于 2025-2-17 09:20</a>
+
+我也就自己探出来一条直接从钓鱼场跳去红杉城的，还有只顾着找宝箱错过的骑龙跑沙漠路线的和看别人直接从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实带鱼神殿路线可以直接去雪山，还有一条城底步行subway路线直通恐龙岛，还有从高跳蘑菇那个山洞右侧隐藏水路直通最后期地图。
+
+*****
+
+####  InfiniteGyre  
+##### 24#       发表于 2025-2-17 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445128&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-17 09:23</a>
+我68小时通关，但2/3的同伴回忆没收集全，隐藏BOSS没去打，连传送点都还剩了5个没开，通关后这些都可以慢 ...</blockquote>
+通关后还能慢慢收集就好，这种大型rpg怕的就是错过一个东西只能下周目再来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  blueelf  
+##### 25#         楼主| 发表于 2025-2-17 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445129&amp;ptid=2246453" target="_blank">lighttt 发表于 2025-2-17 09:23</a>
+
+看到好几个推荐了，真有这么好玩吗，今天还打折了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+只要你能接受这个朴素的画面，这就是个没有短板的RPG，要探索有探索，要战斗有战斗，要剧情有剧情，要音乐有音乐
+
+满分10分，我剧情音乐给10分，战斗也能有9分，探索？探索120分，用最简单的玩法实现了最强的游戏性，堆料堆到量变引起质变
+
+*****
+
+####  mai6696  
+##### 26#       发表于 2025-2-17 09:30
+
+去年那个RPG帖子之后，这是第二次看人提到了。
+
+可以试试。
+
+话说Steam就有吧？（总不至于让我去DLsite
+
+*****
+
+####  Rebirth_DAN  
+##### 27#       发表于 2025-2-17 09:38
+
+有汉化吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看steam页面只支持日文
+
+*****
+
+####  sosgame67  
+##### 28#       发表于 2025-2-17 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445280&amp;ptid=2246453" target="_blank">Rebirth_DAN 发表于 2025-2-17 09:38</a>
+
+有汉化吗看steam页面只支持日文</blockquote>
+s1汉化帖有两个，直接搜索就有
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rebirth_DAN| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  blueelf  
+##### 29#         楼主| 发表于 2025-2-17 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444991&amp;ptid=2246453" target="_blank">红魔馆的糖 发表于 2025-2-17 09:06</a>
+
+剧情水准怎么样，女人塑造有意思不，这么大地图收集强迫症会不会迷路焦虑 ...</blockquote>
+非常极端的碎片化剧情，故事的总体框架不难掌握，但是要搞清楚事件的细微之处就要花力气了，群里通关的大多在讨论剧情，看文本越认真，越是细究，剧情的观感就越好
+
+另外这游戏比较传统，走的是重故事轻人物的路子，突出的是大时代下一个个小人物的悲歌，跟现在的二次元叙事不是一回事，当然也不是说没有人物刻画，同伴和故事里的主要人物刻画都很好，生命绽放出最后一缕光芒就是最璀璨的时候了
+
+至于收集，反正没有什么东西限时，通关后可以悠闲地对照WIKI来
+
+*****
+
+####  icebarrier  
+##### 30#       发表于 2025-2-17 10:25
+
+有汉化先mark
+
+*****
+
+####  Duke72  
+##### 31#       发表于 2025-2-17 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444188&amp;ptid=2246453" target="_blank">慕容断月 发表于 2025-2-17 01:15</a>
+虽然没通关，但小众楼里看到那位lz推荐后在steam版发售当日就买了
+
+我只想说这个和bleak faith forsaken并 ...</blockquote>
+其实不算类型唯一，跟奶飞手和伊斯什么的前辈有很多相似之处，比如传送机制、探索模式还有隐藏门之类的设计，在这些基础上改进了画风和一些探索、战斗上的便利性，还有融入了原创的故事和角色
+
+*****
+
+####  kerbad  
+##### 32#       发表于 2025-2-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445155&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 09:25</a>
+
+其实带鱼神殿路线可以直接去雪山，还有一条城底步行subway路线直通恐龙岛，还有从高跳蘑菇那个山洞右侧隐 ...</blockquote>
+草要不是你和我朋友提醒我都没发现监狱有房间到海底隧道，那个房间我正好没进去过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jimclack  
+##### 33#       发表于 2025-2-17 11:15
+
+舔图真的挺上头的，就是难度曲线有点忽高忽低的，而且很多前期去不了的地方后期容易忘掉，提示功能不太直观
+
+很多队友你能感受到可能有其独特build打法，但是网上讨论的太少难以抄作业
+
+剧情上是碎片叙事，但是前面看过的容易忘掉，和后面的也容易联系不起来，要是有一个剧情记录功能就更好了
+
+*****
+
+####  blackll7  
+##### 34#       发表于 2025-2-17 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446350&amp;ptid=2246453" target="_blank">jimclack 发表于 2025-2-17 11:15</a>
+舔图真的挺上头的，就是难度曲线有点忽高忽低的，而且很多前期去不了的地方后期容易忘掉，提示功能不太直观 ...</blockquote>
+不是难度忽高忽低，而是相邻地图之间的难度是跃迁的，鼓励你回头走其他路线去其他地方拿经验。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Deco  
+##### 35#       发表于 2025-2-17 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏在4K屏幕上的窗口能放大吗？我要瞎了
+
+*****
+
+####  blackll7  
+##### 36#       发表于 2025-2-17 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447397&amp;ptid=2246453" target="_blank">Deco 发表于 2025-2-17 13:02</a>
+这游戏在4K屏幕上的窗口能放大吗？我要瞎了</blockquote>
+de版应该按f5还是f7来着可以放大，如果不行可以上auto size或者小黄鸭
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  catabridge  
+##### 37#       发表于 2025-2-17 13:36
+
+<blockquote>Deco 发表于 2025-2-17 13:02
+这游戏在4K屏幕上的窗口能放大吗？我要瞎了</blockquote>
+可以用magpie 
+
+*****
+
+####  kerorara  
+##### 38#       发表于 2025-2-17 14:35
+
+rmva毕竟也是老东西了。
+如果没有自带窗口大小的功能话就得起强制缩放工具。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  吉姆.哈克  
+##### 39#       发表于 2025-2-17 15:22
+
+海底隧道溜溜冰滑的人都麻了。
+
+*****
+
+####  naclken.  
+##### 40#       发表于 2025-2-17 15:35
+
+这个地图容量让我想起了一个叫奥力给（orika）的小黄油
+
+但其地图的对比目标显然不是魂，而是仙剑1<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+各方面来说迷宫都只有折磨人的效果
+
+
+*****
+
+####  Viteeee  
+##### 41#       发表于 2025-2-17 15:43
+
+Black souls的那个“小怪会复生、每个怪都很难缠、资源越打越少”的魂式设计打起来压力就有点大，加上每个NPC都是谜语人，打了半天不知道为啥要继续探索。尤其是没有内置的地图全靠玩家自己记路的设计，只要放下一两个礼拜没玩就再也捡不起来了……<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+|另外勇战可是一|本|道迷宫都怕玩家走不明白、要特意加上NPC引导的超温柔型RPG，完全不是一个赛道啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">|
+

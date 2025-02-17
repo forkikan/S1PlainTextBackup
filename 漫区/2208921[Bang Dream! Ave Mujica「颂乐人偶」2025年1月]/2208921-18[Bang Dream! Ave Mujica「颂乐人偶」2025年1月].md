@@ -5042,3 +5042,66 @@ wsd一看中华炮打的不错，下一个企划乐队里找个老中当成员�
 先不管千佛的塑造问题，后续周边千佛和龙奈在一起的周边是真岛的十倍不只，足立和神林就是精神病人，一边 ...</blockquote>
 此事在电光超人片场亦有记载 狂出百合婚周边的动画有一个算一个都是BG走向
 
+
+*****
+
+####  天空塔书记官  
+##### 25631#       发表于 2025-2-17 15:46
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 15:48 编辑 
+
+因为古利特就是bg啊，一开始就告诉大家了，这是有原作的，轻百的部分纯粹是雨宫加的镜像宇宙私货，第二部更是直接直球bg，卖美少女周边只是因为更赚钱，就像eva狂出丽和明日香一样
+
+而石蒜一开始就是按照百合作品炒作的，这不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 25632#       发表于 2025-2-17 15:47
+
+这东西是哪一集的回旋镖 给我看笑了 
+
+3VQSS2128F1{9_(A%TL~W`A.jpg
+(128.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 15:47 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/154716f22h2xgi5uqjzega.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sephal  
+##### 25633#       发表于 2025-2-17 15:51
+
+我对中日反响差异的理解倒是挺简单的，因为我觉得大部分日本人都没脑子，所以能无脑地跟着编剧节奏走，也不会感觉到什么剧情不合理人物性格不对劲，反正一煽情春日影一启动人家就感动了，还能回过头问为啥中国人不哭，是没有感情吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 25634#       发表于 2025-2-17 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448969&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:47</a>
+这东西是哪一集的回旋镖 给我看笑了</blockquote>
+第九集结尾。
+
+记得声优访谈里明确了爱音确实是祝福灯去重组ccc，圣爱音的开始。
+
+所以爱音回mygo只是因为灯。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 25635#       发表于 2025-2-17 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448684&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:20</a>
+
+我觉得这种思想的传播就是一种奶头乐了 多的也不说了。王侯将相宁有种乎其实是贵族割据借用农民起义来掩 ...</blockquote>
+“汤武革命”是借“顺天应人”来建立合法性，“宁有种乎”就是农民起义军自己的口号，不能因为失败了或者被摘桃子了就否定这个
+
