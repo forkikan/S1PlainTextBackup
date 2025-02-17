@@ -1116,3 +1116,17 @@ https://m.bilibili.com/opus/1033632735051120642
 
 佛祖除外，这含金量
 
+
+*****
+
+####  exiaexa  
+##### 16376#       发表于 2025-2-17 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450870&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-17 19:14</a>
+
+折枝的贺图都知道把眼镜摘掉才好看：</blockquote>
+这照片是你吗？
+
+我觉得我是
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

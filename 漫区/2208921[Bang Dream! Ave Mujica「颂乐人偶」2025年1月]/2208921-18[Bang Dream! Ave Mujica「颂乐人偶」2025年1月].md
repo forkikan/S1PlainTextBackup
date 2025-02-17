@@ -7662,3 +7662,89 @@ https://m.gamer.com.tw/forum/C.php?bsn=31877&amp;page=&amp;snA=6914&amp;last=
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aritaatsu222  
+##### 25877#       发表于 2025-2-17 20:14
+
+<blockquote>zhzij111 发表于 2025-2-17 20:09
+狗动画好的很，爱圣厨凭啥帮你清算啊，别人又不看什么二偶
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你觉得狗动画很好是你的事，你觉得我是二偶吃我很难过，我可讨厌这些狗玩意了，你狗剧本风评都吹到小胜计程车，早该回落了
+
+*****
+
+####  是谁的书画  
+##### 25878#       发表于 2025-2-17 20:18
+
+还是素世太坏了，她根本不是一个绝情坏妈妈<img src="https://static.saraba1st.com/image/smiley/carton2017/473.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依旧ing  
+##### 25879#       发表于 2025-2-17 20:18
+
+幽默了，邦邦的国内演唱会追加是go在国内火了之后才有的，萝符号拉丝批ppp姨姥有一半都得是这两年gop转化增殖的。你指望邦批二偶痴帮你滑坡喷go动画，有点看不清自己是谁了
+
+*****
+
+####  结衣小比取  
+##### 25880#       发表于 2025-2-17 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450229&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-17 17:41</a>
+
+我没理解你的意思。mygo里睦自己家里玩吉他证明她还是喜欢的。觉得弹得不好确实是天降设定，但mygo也没有 ...</blockquote>
+坛友说的是不是MyGO动画第3话07:51-07:57，祥子介绍睦的部分?
+
+<img src="https://img.saraba1st.com/forum/202502/17/201859f25a8ti2ppjwjcex.gif" referrerpolicy="no-referrer">
+
+<strong>siaosdhaiosda(1).gif</strong> (296.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 20:18 上传
+
+
+*****
+
+####  aritaatsu222  
+##### 25881#       发表于 2025-2-17 20:21
+
+所以我的主要指望在引流狗身上
+
+*****
+
+####  borrowface  
+##### 25882#       发表于 2025-2-17 20:21
+
+ 本帖最后由 borrowface 于 2025-2-17 20:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450937&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 19:27</a>
+
+不过楼上各种车爱音性格不惹日本人喜欢的确实带点偏见了，你邦终究还是面向男性的企划，日本宅宅能把小女生 ...</blockquote>
+车爱音性格x
+
+通过立个爱音不惹日本人喜欢的靶子旁敲侧击论证中国人喜欢爱音是因为过度解读看不懂动画不懂二偶不懂邦邦不懂xxxx √
+
+*****
+
+####  怀沙汨罗  
+##### 25883#       发表于 2025-2-17 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451262&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 20:05</a>
+哎呀，嘴硬半天终于知道要带单位说话了吗那你知道不知道应该带背景比较播放量啊？张嘴闭嘴就是100多万播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这脸皮就够我学的了。
+好评率提升，指的是
+<img src="https://p.sda1.dev/22/d3fa54c376afac5798855c002f4a3f38/image.jpg" referrerpolicy="no-referrer">
+这几回从79好评飙升到85吗？还是说按你的算法，从引流高峰3600人跌到现在3300人，不知道8%和7%哪个比较大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aritaatsu222  
+##### 25884#       发表于 2025-2-17 20:25
+
+要求也不高，你狗回到小圈子自嗨就够了，成天万象天引以为是世不二出的名作，结果作为单纯的故事烂尾，作为卖角色的二偶动画失格，说句不是直接追猎，你们不会这都要岁吧
+
