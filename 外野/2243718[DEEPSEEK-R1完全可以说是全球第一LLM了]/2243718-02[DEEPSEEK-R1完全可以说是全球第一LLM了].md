@@ -4657,3 +4657,13 @@ https://github.com/getasterisk/deepclaude  应该是这个</blockquote>
 
 买了硅基流动的API，求一个好用的安卓AI客户端...最好是有联网搜索功能的
 
+
+*****
+
+####  约翰里德  
+##### 1887#       发表于 2025-2-17 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444032&amp;ptid=2243718" target="_blank">gh1023 发表于 2025-2-17 00:45</a>
+买了硅基流动的API，求一个好用的安卓AI客户端...最好是有联网搜索功能的</blockquote>
+chat box 啊
+
