@@ -4839,3 +4839,13 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 
 之前马斯克还吹过我们不是不开源Grok2, 是新的出了后我们开源上一代.倒是可以看看Grok2的模型有多大. 
 
+
+*****
+
+####  神剑烧鸡  
+##### 1903#       发表于 2025-2-18 01:19
+
+硅基的V3好像爆了？
+
+现在还有别的什么其他平台api推荐吗
+

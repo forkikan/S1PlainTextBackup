@@ -1168,3 +1168,16 @@ https://m.bilibili.com/opus/1033632735051120642
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  poor  
+##### 16380#       发表于 2025-2-18 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452337&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-2-17 22:46</a>
+然后被少女漫画拽下来更好笑了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那还是不太一样，前面一股一本正经给你演搞笑片的感觉，因为想活下去太过努力，观音看了大为感动，直接召唤你升天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+后面就开始玩尬的了。不过仔细想想，其实是一个日本人太喜欢看日本少女漫画，观音都拽不走的事，好像又有点合理
+
