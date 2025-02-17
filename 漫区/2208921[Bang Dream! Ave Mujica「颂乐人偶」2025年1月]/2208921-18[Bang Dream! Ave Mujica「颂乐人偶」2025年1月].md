@@ -8966,3 +8966,16 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 讲道理卖爱祥是个高明之举，甚至早就可以开始卖了.这么搞可以大幅冲淡爱音之于CCC的外人感，我的朋友们丢 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">热知识：第五集爱音已经自称是大祥的朋友，而且大祥默认了
 
+
+*****
+
+####  LeonsCat  
+##### 25984#       发表于 2025-2-18 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453074&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-18 01:05</a>
+
+搞朋克的還扯種性不如別玩音樂了</blockquote>
++1
+
+哭团享寿两周没人知道，MyGO故事开始的时候也压根没有小团体，从哪儿发明的“地位高的小团体”……
+
