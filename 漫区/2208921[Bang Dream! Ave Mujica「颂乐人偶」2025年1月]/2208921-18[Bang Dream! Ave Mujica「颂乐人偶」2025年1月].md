@@ -8833,3 +8833,26 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 下面最后一个想了解的悬念是和猫对视的到底墨还是睦了
 
+
+*****
+
+####  楚暮秦朝  
+##### 25974#       发表于 2025-2-18 01:25
+
+想到一个好玩的，希望后面卖一波爱祥，我看正论厨子是不是会破防<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhzij111  
+##### 25975#       发表于 2025-2-18 01:30
+
+ 本帖最后由 zhzij111 于 2025-2-18 01:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453087&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-18 01:07</a>
+其实我也在幻想，这话对爱音看着C团重聚时的表情和一些分镜（有人说过这些表情和设定集里的表情分类对得上 ...</blockquote>
+根据设定集里爱音八字眉的表情确实是不开心，不过武士道肯定没这个意思，它懂这个的话也不会这样安排剧情找骂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/a28549a2836cf692aaca41392583ea62/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
