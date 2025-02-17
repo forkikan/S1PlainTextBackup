@@ -662,3 +662,14 @@ magpie+crt easymode滤镜，这是4K分辨率下显示效果非常好的搭配
 做精翻的大佬给顺路做了SD的60帧补丁。 ...</blockquote>
 非常感谢！这就折腾起来
 
+
+*****
+
+####  发条之心  
+##### 51#       发表于 2025-2-17 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444973&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-17 09:03</a>
+
+因为几个小时还没出教程区域呢，拿到山羊这游戏才刚开始。其实crystalproject也存在大量隐藏道路和破逆序 ...</blockquote>
+垂直大地图确实玩得很爽，但crystal project的素材复用率太高导致隐藏路线很缺乏视觉引导（特别是首都省，正攻路线都很难找）。而且原版地图太空了，我打了更多装备+河畔营地两个mod收集体验才舒服一些。
+

@@ -6630,3 +6630,34 @@ mygo里演得好像不是这么回事啊。当然也可以脑补成大祥老师�
 而正传三季里就已经是大前辈完全体了 ...</blockquote>
 现在B站上高播放量的萝和ykn的视频和二创基本都来源于剧场版。所以我说鸡团剩下6集能有高质量live的话就还有点机会
 
+
+*****
+
+####  cxj649  
+##### 25786#       发表于 2025-2-17 17:47
+
+ 本帖最后由 cxj649 于 2025-2-17 17:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450247&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 17:43</a>
+
+问题是现在是晋朝，她还复兴什么蜀啊，能复兴嘛，不是时不我待？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">刘渊尊刘禅“孝怀皇帝”
+
+你以为她是姜维，你说现在是晋朝，好升格成刘渊也行<img src="https://static.saraba1st.com/image/smiley/carton2017/473.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25787#       发表于 2025-2-17 17:47
+
+我一直觉得独角兽对大睦有一个很土的设定，就是让大睦这个人整的很自闭，说话不利索，只能希望靠吉他对话。老抱着那吉他搁一旁自闭一晚上，估计复盘呢。所以弹疵了才那么崩溃，自己人话人话不会说，弹弹不了，哭哭了。
+
+这都是邦世界观music的力量啊，带给人幸福，也带给人不幸。
+
+
+*****
+
+####  凉良  
+##### 25788#       发表于 2025-2-17 17:51
+
+建议漏油去格斗区开个股价贴
+
