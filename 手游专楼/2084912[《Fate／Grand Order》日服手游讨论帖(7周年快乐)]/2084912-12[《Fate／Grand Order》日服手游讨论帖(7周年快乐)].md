@@ -1156,3 +1156,15 @@ https://m.bilibili.com/opus/1033632735051120642
 
 观音上身马上要升天那里笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 16379#       发表于 2025-2-17 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451758&amp;ptid=2084912" target="_blank">poor 发表于 2025-2-17 21:14</a>
+观音上身马上要升天那里笑死了</blockquote>
+然后被少女漫画拽下来更好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
