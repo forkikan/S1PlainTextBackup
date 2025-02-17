@@ -8215,3 +8215,14 @@ nico评价差评到时和国内差不多,147最高
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  结衣小比取  
+##### 25926#       发表于 2025-2-17 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451525&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-17 20:40</a>
+
+那这个时候祥应该还不知道睦对自己的吉他弹奏失望。感觉已经到了一个怎么解释都不合理的地步了。 ...</blockquote>
+这里的台词也可以理解成祥子对睦说在外面的时候就没必要像在家里的时候对自己要求那么高，轻松点来就好
+
