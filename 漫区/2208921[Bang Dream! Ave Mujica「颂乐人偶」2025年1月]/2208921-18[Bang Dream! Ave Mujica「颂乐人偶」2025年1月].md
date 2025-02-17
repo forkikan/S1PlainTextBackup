@@ -3183,3 +3183,121 @@ mortis还有画面没回收怎么都不至于现在就没了
 
 想了想爱音还有个初学者和新进乐队成员的设定，不，应该说场内场外都挂着一个“新手”的标签，被老钟的新观众喜欢简直再正常不过了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hysjmr  
+##### 25452#       发表于 2025-2-17 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447183&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 12:36</a>
+ 爱素这cp能火起来本身就能说明问题了  爱灯是mygo的主线</blockquote>
+爱素在中国观众眼中是一种对mygo和CCC关系的映射。
+
+于是，还是误解。
+
+*****
+
+####  天空塔书记官  
+##### 25453#       发表于 2025-2-17 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447209&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 12:40</a>
+爱素在中国观众眼中是一种对mygo和CCC关系的映射。
+
+于是，还是误解。</blockquote>
+唉…文化差异
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 25454#       发表于 2025-2-17 12:42
+
+<blockquote>南宮凝香 发表于 2025-2-17 12:33
+股價升是因為WSD 財報提升了半年預期
+
+提升的主要原因是老鐘的預期業績上升
+</blockquote>
+论据从来就是有利则用无利则弃的双标对待，你要是问怎么a团专辑限量还没抢完，他们又会说wsd不靠这点团活营收了。
+
+有的人买周边不是因为喜欢自推，而是直接去共情资本家做精神股东，拿着舔狗活该来踩头，整得好像人WSD看老🕰️就没包括自己了似的
+
+*****
+
+####  wpcc  
+##### 25455#       发表于 2025-2-17 12:44
+
+<blockquote>天空塔书记官 发表于 2025-2-17 12:29
+好吧，还是爱素断层第一的问题
+
+—— 来自 鹅球 v3.3.96</blockquote>
+杀的爽死我了 祥子龙王归来 爱音是绊脚石啊
+
+*****
+
+####  ape-apple  
+##### 25456#       发表于 2025-2-17 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447156&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:33</a>
+从来没人说过李世林配的好，虽然能看出有进步</blockquote>
+你疑似是有点喝多了，我说过她配的好吗？
+
+*****
+
+####  nemuru_baka  
+##### 25457#       发表于 2025-2-17 12:45
+
+爱素也不难理解吧，毕竟mygo能建立正常沟通对话的只有这两个人
+
+*****
+
+####  Versedust  
+##### 25458#       发表于 2025-2-17 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447252&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 12:44</a>
+
+你疑似是有点喝多了，我说过她配的好吗？</blockquote><blockquote>中国人觉得配音的最高境界就是人皮合一</blockquote>
+这是你自己说的
+
+*****
+
+####  天空塔书记官  
+##### 25459#       发表于 2025-2-17 12:47
+
+如果当初wsd真是一口气把两季一起放了，也许就不会有爱素什么事了，这也算是烂炒狗自找的吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25460#       发表于 2025-2-17 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447267&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-17 12:46</a>
+这是你自己说的</blockquote>
+那你确实喝多了，我的意见就是最上面两行，你咬人也看准点
+
+*****
+
+####  阿兹尔  
+##### 25461#       发表于 2025-2-17 12:47
+
+主推的都太清淡了，要不就特别难嗑
+
+*****
+
+####  6030sylar  
+##### 25462#       发表于 2025-2-17 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447254&amp;ptid=2208921" target="_blank">nemuru_baka 发表于 2025-2-17 12:45</a>
+
+爱素也不难理解吧，毕竟mygo能建立正常沟通对话的只有这两个人</blockquote>
+立希——直男
+
+灯——电波
+
+乐奈——根本不是人♪
+
+爱素好
+
