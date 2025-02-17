@@ -14522,3 +14522,16 @@ G救世主的意思不就说了不带地球玩殖民地之间自己都能打破�
 
 PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身处待着</strong>的画面呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 7030#       发表于 2025-2-17 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447552&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-17 13:18</a>
+
+看人物简介突然想到，首席哥和喵安也许是兄妹关系？
+
+首先他们二人都是难民出身，首席哥的履历明确他是鲁姆 ...</blockquote>
+首席哥会和马秋击剑吗<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+

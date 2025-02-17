@@ -4591,3 +4591,98 @@ b站草台班子罄竹难书
 提供一个想法，虽然鸡逻辑稀碎不堪，但一路稀碎到尾只要角色不出问题依然有基本盘，就算写成辉夜那样大小姐 ...</blockquote>
 现在是角色没有问题吗 不全是问题吗
 
+
+*****
+
+####  wpcc  
+##### 25588#       发表于 2025-2-17 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448436&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-17 14:59</a>
+
+盐系不是没有受众，隔壁円香不也是盐系，老钟和日本不都爱的要死，声优也配合在live上玩梗
+
+说到底不还是鸡 ...</blockquote>
+圆香一创就是和透一遍搞假百合一遍真抢男人的 真盐吗 plove俘虏一位！
+
+*****
+
+####  厚乳果珍爽  
+##### 25589#       发表于 2025-2-17 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画烂完了在这里哭爹喊娘也没用，动画不是手游，动画是已经做好了的，手游的话哭爹喊娘没准还能赏点糖给你，总不能立刻停播然后改个半年再播吧？
+
+*****
+
+####  aritaatsu222  
+##### 25590#       发表于 2025-2-17 15:06
+
+<blockquote>wpcc 发表于 2025-2-17 15:03
+现在是角色没有问题吗 不全是问题吗</blockquote>
+全是问题但为什么炎上点在角色，因为只有角色会带动共情，你们可能以为狗红了是因为剧本扎实，但并没有那么多观众那么在乎逻辑，况且我也不觉得扎实，把问题丢到后面解决还解决不了的彩笔剧本
+
+*****
+
+####  wpcc  
+##### 25591#       发表于 2025-2-17 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448526&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-17 15:06</a>
+
+动画烂完了在这里哭爹喊娘也没用，动画不是手游，动画是已经做好了的，手游的话哭爹喊娘没准还能赏点糖给你 ...</blockquote>
+我提一嘴某兽人手游联动mujica的东西已经做完了 还敢端上来吗
+
+*****
+
+####  595505568  
+##### 25592#       发表于 2025-2-17 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448479&amp;ptid=2208921" target="_blank">Paaz 发表于 2025-2-17 15:03</a>
+谢谢你告诉我这股味的名字叫做2.5次元厨子的味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">无语了，2.5企划视角去推断问题还有谁有不可控点都成了有股味了，它自己是融合媒体企划你总得要考虑一堆问题，动画现在这个情况和线下问题混在一起难道不该考虑问题在哪里吗。
+难道对着一个企划副产物单独讨论没问题吗，现在舆情不是都溢出到声优那边了嘛，没锁定在动画范畴里难道是假的吗，实事求是讨论对企划影响都成有股味了？
+
+*****
+
+####  wpcc  
+##### 25593#       发表于 2025-2-17 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448527&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 15:06</a>
+
+全是问题但为什么炎上点在角色，因为只有角色会带动共情，你们可能以为狗红了是因为剧本扎实，但并没有那 ...</blockquote>
+我觉得狗红了是迫害素食的 飞鸟山之战是卧薪尝胆 大家都是夫差，结果勾践真打赢了又不乐意看了
+
+*****
+
+####  ape-apple  
+##### 25594#       发表于 2025-2-17 15:09
+
+一切都是过去重演 ，现在已经有一群人转发冲武手册了，疑似真想让wsd重做动画，因为不尊重观众<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">holo-ASOUL-mujica，人永远是那帮人
+
+
+*****
+
+####  wpcc  
+##### 25595#       发表于 2025-2-17 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448565&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 15:09</a>
+
+一切都是过去重演 ，现在已经有一群人转发冲武手册了，疑似真想让wsd重做动画，因为不尊重观众holo-ASOUL-m ...</blockquote>
+最早应该是dnf玩家弄出来的独轮车
+
+*****
+
+####  aptx8285144  
+##### 25596#       发表于 2025-2-17 15:12
+
+<blockquote>高贵的 发表于 2025-2-17 15:03
+之前我觉得把一切锅都推给丰川家保角色形象然后后面一转斗财阀是很烂很不负责任的写法，但现在来看也是一条 ...</blockquote>
+这个问题，昨天我说过，然而就不说五话开始了，哪怕从上周开始，素世几乎半绑架把大祥带到睦家，大祥后面搞好几次睦门立雪不在意自己的身体健康，然后一路活跃到音乐大舞台，老登和他的保镖存在感是零，早就吐槽了，后期独角兽和柿本要是和我说这是幕后黑手“正常表现”，我建议他们去医院找医生看看自己的智商<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 25597#       发表于 2025-2-17 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448565&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 15:09</a>
+一切都是过去重演 ，现在已经有一群人转发冲武手册了，疑似真想让wsd重做动画，因为不尊重观众holo-ASOUL-m ...</blockquote>
+我从2.5企划角度确实也希望能重置…这个对拉新完全是负效果<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，广告片不及格，Live也太少了，观赏性也不够
+
