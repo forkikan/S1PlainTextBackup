@@ -8412,3 +8412,13 @@ nico评价差评到时和国内差不多,147最高
 说计程车缺少go7那种级别的神回</blockquote>
 计程车飞天的那段演出还不够精彩？？？我只能说每个人欣赏的角度不同了
 
+
+*****
+
+####  hysjmr  
+##### 25945#       发表于 2025-2-17 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452584&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-17 23:26</a>
+ 计程车飞天的那段演出还不够精彩？？？我只能说每个人欣赏的角度不同了 ...</blockquote>
+额，很土啊，不是纯玩ET梗嘛
+
