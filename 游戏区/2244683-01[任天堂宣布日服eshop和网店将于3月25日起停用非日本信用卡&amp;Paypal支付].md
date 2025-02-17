@@ -63,3 +63,14 @@
 
 余额也是有上限的
 
+
+*****
+
+####  清浦刹那  
+##### 238#       发表于 2025-2-17 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445275&amp;ptid=2244683" target="_blank">hlbb 发表于 2025-2-17 09:38</a>
+
+骏河屋不能用信用卡了吗？</blockquote>
+最近就买了这一单，不知道是不是都不能用了
+

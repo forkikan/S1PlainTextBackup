@@ -3864,3 +3864,130 @@ mujica剧本定的太早了 来不及改成爱音大女主了</blockquote>
 
 🍊很努力了，但是命里没火。相比之下鼓子算是给人观感最好的，职业2.5偶像，外形也算是给狗团扶贫了。🐑姐没什么可说的，声优路线起飞，只要愿意，鸡狗时代一姐就是她
 
+
+*****
+
+####  天空塔书记官  
+##### 25518#       发表于 2025-2-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447746&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:42</a>
+蜜柑要疯了，素世和蜜柑一点都没人皮合一啊…</blockquote>
+没办法谁让她是真正的洗脚位呢，还是贝斯手，猫猫响社太子，邦一贝李美丽还能卖卖萌呢，她就只有对夹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25519#       发表于 2025-2-17 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447749&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-17 13:43</a>
+这点搞笑就是动画和三次元反过来了</blockquote>
+所以圣厨不但不看动画也不看真人，真论起来这位现在是最不稳定因素，还敢以爱音名义打架，日本人心说老中确实不一样，恨一个人竟然还会用逆反心理搞事
+
+*****
+
+####  595505568  
+##### 25520#       发表于 2025-2-17 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447760&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 13:44</a>
+🍊很努力了，但是命里没火。相比之下鼓子算是给人观感最好的，职业2.5偶像，外形也算是给狗团扶贫了。🐑姐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说可怜，🍊这个情况，摊上这个问题；怎么办嘛，wsd你要不在想想办法吧，这么努力的中之人也不是没发展潜力的，加油吧，蜜柑
+
+
+*****
+
+####  zhoujin8584  
+##### 25521#       发表于 2025-2-17 13:47
+
+<blockquote>天空塔书记官 发表于 2025-2-17 13:36
+LSL不做评价
+
+青木更多的是性格的原因吧，还有她的重心应该是在隔壁的少歌</blockquote>
+直接输入三次元肯定就是大人的世界了，所谓君以国士待我，我以国士报之，君以众人待我，我以众人报之。
+
+那就不要怪二次元萌豚用脚投票了。人是社会关系的总和，东大的第一代二次元也都是叔叔阿姨辈了，为什么还选择二次元，顺风团为什么能开起来，日美这种老牌资本多次迭代后的纯宅圈大概确实理解不了吧。
+
+*****
+
+####  ddy2811  
+##### 25522#       发表于 2025-2-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444783&amp;ptid=2208921" target="_blank">ZHUzx0219 发表于 2025-2-17 08:32</a>
+
+虽然最开始有点调侃的意思，但我现在感觉mygo就当是那种团魂是一辈子关系不好的乐队也不是不行，就那种哪天 ...</blockquote>
+那就得闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在爱音和猫猫有情绪吗？
+
+*****
+
+####  aptx8285144  
+##### 25523#       发表于 2025-2-17 13:49
+
+<blockquote>z-hunter 发表于 2025-2-17 01:35
+还不懂吗不是什么“爱音厨”，这次第7话武士道得罪的是老中的全体狗厨（其实不止，下面可以继续说，哪有 ...</blockquote>
+是的，全方面的崩盘，甩锅给什么爱音厨是很搞笑的
+
+*****
+
+####  ape-apple  
+##### 25524#       发表于 2025-2-17 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447778&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:47</a>
+只能说可怜，🍊这个情况，摊上这个问题；怎么办嘛，wsd你要不在想想办法吧，这么努力的中之人也不是没发 ...</blockquote>
+说心善也是wsd，毕竟他们现在还维持全团运营，但是也一直没好好运营起来，🍊希望多赚几年钱吧
+
+*****
+
+####  怀沙汨罗  
+##### 25525#       发表于 2025-2-17 13:50
+
+神经，现在还有认为老钟喷都是因为所谓的爱音厨。我看路人一眼扫过去这样的神人乐队神人演出闹麻了的剧情只会一脚踩死，到时各家厨子缩回龟壳内部整风再说什么反噬的画面只觉得好笑，这和画个圈圈诅咒你有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">切割来切割去又能做什么。看不起路人看不起电竞圈看不起抽象圈，结果粉圈术语什么洗脚位用得倒一套一套的。天下乌鸦一般黑，看个动画就别定太多规矩了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 25526#       发表于 2025-2-17 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447791&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 13:50</a>
+说心善也是wsd，毕竟他们现在还维持全团运营，但是也一直没好好运营起来，🍊希望多赚几年钱吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 25527#       发表于 2025-2-17 13:52
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 13:53 编辑 
+
+小日向想搏出路，就只有练好贝斯，然后去别的2.5企划碰运气了，毕竟贝斯手是真缺啊，要不贝转吉也行
+
+或者提高业务水平，在wsd体系内再找一个长期饭票，鼓子和反田都进莉莉了，蜜柑也安排下呗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  595505568  
+##### 25528#       发表于 2025-2-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447802&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 13:52</a>
+小日向想搏出路，就只有练好贝斯，然后去别的2.5企划碰运气了，毕竟贝斯手是真缺啊，要不贝转吉也行
+
+或者 ...</blockquote>
+反正最近的新配音据说好很多了，加油吧蜜柑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望努力的人不会被辜负吧，虽然很多时候都会不如意就是了
+
+*****
+
+####  天空塔书记官  
+##### 25529#       发表于 2025-2-17 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447819&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 13:54</a>
+反正最近的新配音据说好很多了，加油吧蜜柑，希望努力的人不会被辜负吧，虽然很多时候都会不如意就是了 ...</blockquote>
+wsd虽然压榨狠，但也算对企划声优很不错的了，看看老八不就是吗，有机会就有起飞的可能，卷就是了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
