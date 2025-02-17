@@ -8459,3 +8459,13 @@ BSR:你挡着我搞爆炒了，赶紧滚<img src="https://static.saraba1st.com/i
 
 我是喜欢#4那集，对田中的刻画真的很传神，而且下笔又锐又利。比如他唐突吼同事那里一下子就把那种神经质的感觉演活了
 
+
+*****
+
+####  安娜导函数  
+##### 25950#       发表于 2025-2-17 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452589&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 23:27</a>
+额，很土啊，不是纯玩ET梗嘛</blockquote>
+如果你只看到ET梗，没看到这一场戏把前后所有人物串在了一起，那我也没啥可说的了
+
