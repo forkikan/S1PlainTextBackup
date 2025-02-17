@@ -14698,3 +14698,66 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 
 <img src="https://p.sda1.dev/22/ad99c2329e2e3122203ed65f74534ee5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 7044#       发表于 2025-2-17 17:05
+
+◤“特別映像”追加決定◢
+
+2月22日(土)より、本編映像の上映後に“特別映像”の追加が決定！
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』のその先の物語が垣間見える内容となっています。
+さらに同日からは、MX4Dと4DXの上映も開始！
+ぜひ劇場にてご確認ください！
+
+#GQuuuuuuX #ジークアクス
+
+醉了，这啥商法<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  oi99o  
+##### 7045#       发表于 2025-2-17 17:06
+
+屋檐了，海外能顺带吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Gysumitka  
+##### 7046#       发表于 2025-2-17 17:07
+
+怎么搞种自玩法，没被骂够吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 7047#       发表于 2025-2-17 17:09
+
+<img src="https://img.saraba1st.com/forum/202502/17/170929x40si04hrhp10hzu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 17:09 上传
+
+*****
+
+####  YU_JI  
+##### 7048#       发表于 2025-2-17 17:09
+
+这张麻球可爱呀
+
+
+*****
+
+####  RE㐅ia  
+##### 7049#       发表于 2025-2-17 17:12
+
+麻球卡哇伊
+

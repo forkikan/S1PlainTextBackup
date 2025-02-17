@@ -6083,3 +6083,222 @@ CCC就TM应该第十三集大和解
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  零壹贰叁  
+##### 25732#       发表于 2025-2-17 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449444&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 16:32</a>
+祥子突然懂睦头吉他自卑真的是把我看得 啊？了</blockquote>
+这点我完全没办法和解
+怎么能知道的？怎么能？
+太随便了
+
+*****
+
+####  ape-apple  
+##### 25733#       发表于 2025-2-17 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449837&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:02</a>
+你倒是长长眼睛看看谁先提路边网站数据的？你们俩打配合还能互相打脸的是吧
+
+—— 来自 鹅球 v3.3.96-alp ...</blockquote>
+50%涨幅不是涨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">那么wsd股价涨16%也不是涨了对吧，不如nvidia涨2%，怎么办呢，🐔团确实火了，路边两条照样咬人，还比路边一条咬得疼
+
+*****
+
+####  南宮凝香  
+##### 25734#       发表于 2025-2-17 17:05
+
+最直接的是發狗 6th 母雞1st 的預訂數據吧
+
+別的都虛的
+
+*****
+
+####  sakatta  
+##### 25735#       发表于 2025-2-17 17:05
+
+看不懂，看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 25736#       发表于 2025-2-17 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449858&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 17:03</a>
+无所谓，武士道啥卡都卖
+
+—— 来自 鹅球 v3.3.96</blockquote>
+wsd从来都是能赚钱啥都干吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途人偶的呐喊  
+##### 25737#       发表于 2025-2-17 17:07
+
+鸡狗在日本有没有热度到时候看对邦2w人能不能坐满就知道了，光靠⏰填不满2w人的场子
+
+*****
+
+####  wangh  
+##### 25738#       发表于 2025-2-17 17:08
+
+我前三季动画正片都没怎么看过，完全是通过切片live喜欢上萝团。所以同理我感觉鸡团还是能救回来的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 25739#       发表于 2025-2-17 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449798&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:58</a>
+基数低=路边一条，涨幅大也是假的，只是因为基数低，多的一千Nico观众都是老中刷数据 ...</blockquote>
+有mygo前作的情况下，1000增长赢！我相信wsd肯定很满意现在的成绩<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">既然你觉得热度挺多，那效果如何我们接着看呗，希望到时候别又是一群乐子人围观临终关怀了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tobelovedwow| + 1|切割啦！全靠自身努力|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 25740#       发表于 2025-2-17 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449885&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 17:05</a>
+wsd从来都是能赚钱啥都干吧</blockquote>
+wsd就是个印卡的，懂什么IP.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  渡鸦骑士  
+##### 25741#       发表于 2025-2-17 17:09
+
+话说邦邦历史上最大的场子是多少啊？
+
+*****
+
+####  帝下室の年糕  
+##### 25742#       发表于 2025-2-17 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449240&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 16:14</a>
+闹麻了，你在楼里整天炒作海外热度多高，春秋笔法真是有意思。喏，这是你吹的一百万播放量在tft的含金量 ...</blockquote><blockquote>你在楼里整天炒作海外热度多高，春秋笔法真是有意思。喏，这是你吹的一百万播放量在tft的含金量。说句难听的，wsd砸钱砸哪个团上都是这个播放</blockquote>唉春秋笔法，唉毫无含金量，原来WSD这种臭底边公司随便砸钱就能做到最近12个视频里播放量前四（马上第二），点赞数倍杀200万播放的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/566e734c205b5155eded88a41799ca45/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/991a7894e31ebe5801aaef2302899000/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/44c0282e024c0c1ed1ffa5aa7698347b/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 25743#       发表于 2025-2-17 17:10
+
+但是tft首播同接2万7只能说闹麻了。
+管人首播还有14万呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25744#       发表于 2025-2-17 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449923&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:08</a>
+有mygo前作的情况下，1000增长赢！我相信wsd肯定很满意现在的成绩既然你觉得热度挺多，那效果如何我们接 ...</blockquote>
+我现在就可以说，本土热度肯定没问题，第七集都打不垮的情况下，后面不管是二次复活C团还是小姨文学都不会炸的。从这一点出发才不会擅自期待，擅自失望
+
+*****
+
+####  怀沙汨罗  
+##### 25745#       发表于 2025-2-17 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449873&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 17:04</a>
+50%涨幅不是涨那么wsd股价涨16%也不是涨了对吧，不如nvidia涨2%，怎么办呢，🐔团确实火了，路边两条照样 ...</blockquote>
+拿股价说话就看得出你水平了，知道16%因为啥涨吗？知道有财报这种东西吗？知道财报公布是什么时候吗？知道财报预期写了啥吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 25746#       发表于 2025-2-17 17:11
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 17:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449922&amp;ptid=2208921" target="_blank">wangh 发表于 2025-2-17 17:08</a>
+我前三季动画正片都没怎么看过，完全是通过切片live喜欢上萝团。所以同理我感觉鸡团还是能救回来的 ...</blockquote>
+萝的剧情在两部剧场版，据看过的楼友反应很烂，出自柿本监督的大手
+
+而正传三季里就已经是大前辈完全体了，所以没啥参考的价值<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  废都刽子手  
+##### 25747#       发表于 2025-2-17 17:12
+
+wsd这么能炒作，后面ccc还会有新歌吗
+
+*****
+
+####  cxj649  
+##### 25748#       发表于 2025-2-17 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449763&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 16:55</a>
+
+有没有可能我说得是ccc留到祥子2.0升级完再复活而不是用现在这个只要你回到原点一切自动和解的主线大纲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">可能就是因为要上TLT才唐突写这第7集
+
+*****
+
+####  帝下室の年糕  
+##### 25749#       发表于 2025-2-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449959&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-2-17 17:12</a>
+wsd这么能炒作，后面ccc还会有新歌吗</blockquote>
+tft一般都是两首
+
+*****
+
+####  迷途人偶的呐喊  
+##### 25750#       发表于 2025-2-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449932&amp;ptid=2208921" target="_blank">渡鸦骑士 发表于 2025-2-17 17:09</a>
+话说邦邦历史上最大的场子是多少啊？</blockquote>
+上过西武巨蛋
+
+*****
+
+####  高贵的  
+##### 25751#       发表于 2025-2-17 17:13
+
+其他都还好说反正有乐队少女的世界观，最大的问题是喵梦，我实在不知道喵梦要怎么回归才有个还算过的去的观感
+
+*****
+
+####  _47  
+##### 25752#       发表于 2025-2-17 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449939&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-2-17 17:09</a>
+唉春秋笔法，唉毫无含金量，原来WSD这种臭底边公司随便砸钱就能做到最近12个视频里播放量前四（马上第二 ...</blockquote>
+春日影的点赞真的离谱，TFT这么久了第一次见点赞比例这么高的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  渡鸦骑士  
+##### 25753#       发表于 2025-2-17 17:14
+
+萝团还是牛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
