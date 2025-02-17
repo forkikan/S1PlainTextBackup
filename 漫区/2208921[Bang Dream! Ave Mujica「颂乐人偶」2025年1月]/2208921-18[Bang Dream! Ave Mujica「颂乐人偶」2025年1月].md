@@ -8553,3 +8553,17 @@ ET梗可以预见，一群人在水边也是前面看得出来有安排，但每
 
 ave mujica本身就是毁灭一切，再重建一切，太对了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 25959#       发表于 2025-2-18 00:32
+
+看到ave声优的女女关系营业有点PTSD了
+
+不仲的警报在狂啸啊啊啊啊啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
