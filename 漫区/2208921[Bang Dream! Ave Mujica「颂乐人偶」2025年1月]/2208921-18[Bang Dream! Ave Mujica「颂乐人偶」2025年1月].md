@@ -8979,3 +8979,30 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 哭团享寿两周没人知道，MyGO故事开始的时候也压根没有小团体，从哪儿发明的“地位高的小团体”……
 
+
+*****
+
+####  ads147147  
+##### 25985#       发表于 2025-2-18 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453162&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-18 01:30</a>
+根据设定集里爱音八字眉的表情确实是不开心，不过武士道肯定没这个意思，它懂这个的话也不会这样安排剧情 ...</blockquote>
+不太标准的挺好颜，这个表情很难有其他的意思。
+
+咋说呢，只能说爱音和猫猫确实也没听过原版春日影和成为人类歌，只不过第七集这个也不是什么原版春日影就是了。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 25986#       发表于 2025-2-18 06:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453194&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-18 01:47</a>
+虽然不喜欢你们这种“为了恶心其他粉丝而磕cp”的想法，但是爱祥是对的
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我从爱音音乐室堵门祥子的时候就在磕爱祥了（）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
