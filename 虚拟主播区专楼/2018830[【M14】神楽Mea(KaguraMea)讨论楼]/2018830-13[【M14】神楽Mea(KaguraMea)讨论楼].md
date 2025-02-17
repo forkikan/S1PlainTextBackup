@@ -2133,3 +2133,13 @@ dokidoki的一天
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sino__unnko3  
+##### 18036#       发表于 2025-2-17 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450457&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-2-17 18:18</a>
+和在意的男人+旧友五人组排ow，最开始一直玩莫伊拉雾子， 然后想练伊拉锐，被在意的男人在比赛途中说“能换 ...</blockquote>
+是原文就缺主语吗，是在想怎么这一段机器翻出来怎么看上去逻辑这么怪
+
