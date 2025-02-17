@@ -4823,3 +4823,19 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  泰坦失足  
+##### 1902#       发表于 2025-2-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448934&amp;ptid=2243718" target="_blank">lactone 发表于 2025-2-17 15:44</a>
+
+话说马圣今天晚上要发布grok3，号称最聪明的人工智能
+
+会不会又要开始咩鳖了</blockquote>
+能赢就见鬼了, Grok1吹开源吹多幽默, Grok2不吹开源吹多牛逼了. 结果一看" 马斯克xAI终于官宣API，定价是GPT-4o两倍"
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最多就是达到下O1级推理能力.现在有R1和Gemini2也不是啥新鲜事了.
+
+之前马斯克还吹过我们不是不开源Grok2, 是新的出了后我们开源上一代.倒是可以看看Grok2的模型有多大. 
+

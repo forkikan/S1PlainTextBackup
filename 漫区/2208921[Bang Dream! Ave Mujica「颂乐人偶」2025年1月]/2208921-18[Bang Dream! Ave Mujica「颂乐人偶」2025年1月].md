@@ -5229,3 +5229,163 @@ tft现在一百多万播放量，比搬运的B站播放量都高，mujica生放�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老钟人多数把爱音当第一（男）主人公的
 
+
+*****
+
+####  天空塔书记官  
+##### 25649#       发表于 2025-2-17 16:05
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 16:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449112&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 16:01</a>
+访谈这个问题…，我觉得场外先打稿子的概率大一点，大概率照本宣科，具体都这么想的，其实很难确定吧，毕竟 ...</blockquote>
+第二季赶不上是故意制造的戏剧冲突，很大原因是因为第一季已经玩了一次这样的套路，第一季赶上了、第二季没赶上，然后关岛剧场版又赶上了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 25650#       发表于 2025-2-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449119&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-17 16:01</a>
+
+所以大家是不是想看喵梦乡下妹逆袭上位</blockquote>
+大喵要是能以反派主角身份登上历史舞台，我很想看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hysjmr  
+##### 25651#       发表于 2025-2-17 16:06
+
+唐突念口号确实是尬，特别是王侯将相这种太大而化之的，好歹结合具体内容来说
+
+*****
+
+####  怀沙汨罗  
+##### 25652#       发表于 2025-2-17 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448354&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 14:51</a>
+我一上其他地方就被人抓着骂 你这祥厨鸡吹 活该被狗吹打 怎么不能反击吗 ...</blockquote>
+你在这反击谁呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虚空对线吗？还是说真像我说的以为躲到壳里放狠话就好了。要我说可能真不如去x找柿本对线痛快，毕竟人家真看的到，也是最大战犯。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 25653#       发表于 2025-2-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449119&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-17 16:01</a>
+
+所以大家是不是想看喵梦乡下妹逆袭上位</blockquote>
+我本质要看的是大莫协睦头已令祥子喵梦支持，然后祥子被mygo拯救唤醒睦头薄纱大莫归顺喵梦的音乐性之争，结果你告诉我小姨来了。。。我能说什么
+
+*****
+
+####  ape-apple  
+##### 25654#       发表于 2025-2-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449102&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 16:00</a>
+这破动画从哪拉新？环大陆拉新吗？</blockquote>
+查历史果然有用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑动画得了，但是从虚空的基础黑只能让自己未来更破防，一个做出来就是为了坑钱的动画片上王侯将相宁有种乎这种大思考，根本没意义
+
+*****
+
+####  wpcc  
+##### 25655#       发表于 2025-2-17 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449144&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-17 16:03</a>
+
+老钟人多数把爱音当第一（男）主人公的</blockquote>
+爱音方便ylg带入 是好的入口 没想到和大女主是完全相反的 给干成工具人了
+
+
+*****
+
+####  DARK_HGCG  
+##### 25656#       发表于 2025-2-17 16:11
+
+我知道了
+
+大结局是爱音为了挽救卖狗和母鸡卡选择牺牲自己
+
+然后仓田真白出现把爱音带回邦邦星云
+
+祥子指着星空对灯说，在爱音回来之前要靠我们自己啦
+
+*****
+
+####  cxj649  
+##### 25657#       发表于 2025-2-17 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">血统论老钟观众其实也双标的，尤其B站一堆短剧时候
+
+*****
+
+####  595505568  
+##### 25658#       发表于 2025-2-17 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449155&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 16:05</a>
+第二季赶不上是故意制造的戏剧冲突，很大原因是因为第一季已经玩了一次这样的套路，第一季赶上了、第二季 ...</blockquote>
+反正我好几次发现访谈和剧情对不上，声优自己看全台本的情况下，怎么可能说这个，然后想了下这是一种宣发<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25659#       发表于 2025-2-17 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449184&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:08</a>
+查历史果然有用黑动画得了，但是从虚空的基础黑只能让自己未来更破防，一个做出来就是为了坑钱的动画片上 ...</blockquote>
+错误的，千金难买爷欢心，狠狠的把互联网皇帝这个生态位做死咯。
+好活有赏，烂活杀头，有时候观点应该朴实一点。
+毕竟真要掏钱也是要开心的花出去。
+
+*****
+
+####  达达葱2  
+##### 25660#       发表于 2025-2-17 16:12
+
+<blockquote>wpcc 发表于 2025-2-17 16:10
+爱音方便ylg带入 是好的入口 没想到和大女主是完全相反的 给干成工具人了 ...</blockquote>
+什么是yjg
+
+*****
+
+####  takerest  
+##### 25661#       发表于 2025-2-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449124&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 16:02</a>
+
+可是伙伴不止爱素啊，迷子有五个人
+
+而且岛国人眼中的关系未必和老中人眼中是同样的东西，就比如对爱音角 ...</blockquote>
+就第七集发个消息还你推我我推你，到了c团的场合就个个热泪盈眶、慈祥满目，狗团除了不熟有伙伴的味吗？当然又有人要说这是爽世在调侃立希，没有针对爱音的意思，但你制作组的演出就是给人爱音不被人待见的感觉啊。说白了第七集完全打破了观众的安全感，台词上再怎么找补也拉不住观众滑坡了。这就是制作组应该避免而且不难的问题啊。
+
+*****
+
+####  高贵的  
+##### 25662#       发表于 2025-2-17 16:13
+
+真整出个为流量为上位不择手段的乐队少女的枭雄就故事性来说不也挺有意思的吗
+
+*****
+
+####  wpcc  
+##### 25663#       发表于 2025-2-17 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449028&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-2-17 15:53</a>
+
+“汤武革命”是借“顺天应人”来建立合法性，“宁有种乎”就是农民起义军自己的口号，不能因为失败了或者 ...</blockquote>
+汤武革命 比 宁有种乎 早了六百年吧 时间顺序就错了
+
+*****
+
+####  怀沙汨罗  
+##### 25664#       发表于 2025-2-17 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449136&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 16:03</a>
+tft现在一百多万播放量，比搬运的B站播放量都高，mujica生放送人数比mygo时代多一半，每一集之后X上都能 ...</blockquote>
+闹麻了，你在楼里整天炒作海外热度多高，春秋笔法真是有意思。喏，这是你吹的一百万播放量在tft的含金量。说句难听的，wsd砸钱砸哪个团上都是这个播放<img src="https://p.sda1.dev/22/2357049f3cdec8c6fa011b7e2d1cbb29/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

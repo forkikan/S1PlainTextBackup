@@ -583,3 +583,21 @@ Fanastasis的传送点给的非常大方，虽说能传送回根据地的红色�
 
 而且这些绿色传送点同样起到了划分迷宫探索阶段的作用，玩家的一次探索花费半小时左右就能找到绿色传送点，下一次探索，就是在新找到的绿色传送点周围进行，阶段性很明显，制作者并没有刻意去为难玩家，而是想尽办法缓解玩家在这么巨大的迷宫内探索的压力
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 44#       发表于 2025-2-17 16:06
+
+看上去就会是很对胃口的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">感谢推荐，看到在打折立马买了，就是为啥看 steam 和 dl 好像买的都不是很多
+
+*****
+
+####  blackll7  
+##### 45#       发表于 2025-2-17 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67449163&amp;ptid=2246453" target="_blank">平昭·南宫司卿 发表于 2025-2-17 16:06</a>
+
+看上去就会是很对胃口的感觉感谢推荐，看到在打折立马买了，就是为啥看 steam 和 dl 好像买的都不是很多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">因为de fanastasis是重置新版，原版是免费的，主要收入不是在DL和steam卖而是订阅。
+
