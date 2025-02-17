@@ -2139,3 +2139,94 @@ WSD是真靠MYGO这一波老钟市场看到救命稻草，
 那很好了，你wsd跟牲口一样呢，巴依老爷的鞭子你的身上雨点子下呢。嗯呵呵呵呵呵呵呵 ...</blockquote>
 现在跟风进来的哪里是在车wsd啊 都是对纸片人**羞辱呢
 
+
+*****
+
+####  hysjmr  
+##### 25349#       发表于 2025-2-17 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446106&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 10:55</a>
+ 现在跟风进来的哪里是在车wsd啊 都是对纸片人**羞辱呢</blockquote>
+这两种在现在这个局面已经可以画等号了，出脑是什么意思你应该明白吧
+
+*****
+
+####  ape-apple  
+##### 25350#       发表于 2025-2-17 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444962&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 09:02</a>
+说祥在故事里怎样怎样多少有点避重就轻，我姑且认为在这里的都是结晶吧，往前翻点都是真人团的东西，看起 ...</blockquote>
+这就是中日一开始有分歧的地方，也是邦老嗨一眼就看出来爱音是边缘人的地方，“如果千早爱音真的有那么重要，就根本不会让lsl来配音”
+
+*****
+
+####  6030sylar  
+##### 25351#       发表于 2025-2-17 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446036&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 10:50</a>
+都怪老中真的把mygo&amp;ave mujica当作好作品来衡量，其实就是坨卖广告的💩，一切责任均在老中！ ...</blockquote>
+做垃圾有做垃圾的责任，讨论wsd作品最后都会指向武士道傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">，nsy都很卖力营业，粉丝也很吃，但是跟粉丝和演员对着干的不是别人正是武士道自己
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 25352#       发表于 2025-2-17 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446127&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 10:56</a>
+
+这两种在现在这个局面已经可以画等号了，出脑是什么意思你应该明白吧</blockquote>
+不是，之前很多还能说是路人粉破防。 现在这种跟风来的就是享受顺风团踩头木柜子痴的快感， 
+
+
+*****
+
+####  嵇翱u  
+##### 25353#       发表于 2025-2-17 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445993&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 10:46</a>
+
+别背负人生了 祥子前两次背负人生啥结果啊</blockquote>
+她现在不是回老宅了吗，睦头可是能参加祥妈葬礼的，背负下没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 25354#       发表于 2025-2-17 11:01
+
+给我这个专门翻墙跑到声优推特底下撒泼打滚给手游打一星跑到萝团演唱会动态底下发狂的义愤填膺的路人粉看笑了
+
+*****
+
+####  天空塔书记官  
+##### 25355#       发表于 2025-2-17 11:01
+
+其实只要还想挣老中的钱，哈耶克的大手是会让外边的人想明白的，虽然普遍看不起二游，但P5X现在确实是一个比较正面的案例，阿特拉斯和世嘉能做到，其他岛国公司难道就做不到吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 25356#       发表于 2025-2-17 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446172&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 11:00</a>
+
+不是，之前很多还能说是路人粉破防。 现在这种跟风来的就是享受顺风团踩头木柜子痴的快感，  ...</blockquote>
+你对中国网民的扭曲程度有相当的误解，我们可是能嗑爱素的
+
+*****
+
+####  Versedust  
+##### 25357#       发表于 2025-2-17 11:01
+
+爱音一星卡可是叫“乐队的主心骨”啊
+
+*****
+
+####  aptx8285144  
+##### 25358#       发表于 2025-2-17 11:03
+
+主角团的主唱连续两集没有台词，这在历史上有先例吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

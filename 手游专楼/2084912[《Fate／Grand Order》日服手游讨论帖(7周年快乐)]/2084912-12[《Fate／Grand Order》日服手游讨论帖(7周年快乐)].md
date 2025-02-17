@@ -869,3 +869,14 @@ https://m.bilibili.com/opus/1033632735051120642
 秀吉有经验值在琥珀ace的版本，fgo目前战国从者也大多是咕哒咕哒系，真落地按那个版本来的话倒是和西游猴子 ...</blockquote>
 经验值系都三番两次说不作准了，就算真缝也没卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 16356#       发表于 2025-2-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444437&amp;ptid=2084912" target="_blank">白金口袋 发表于 2025-2-17 03:15</a>
+
+战斗力终于要往savior级膨胀了是吗</blockquote>
+快进到白情落地觉者（Ruler），还能赶上奏四这桌<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
