@@ -8931,3 +8931,15 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 总觉得我是不是少看一部bang dream crythic
 
+
+*****
+
+####  沉默的苍穹基  
+##### 25981#       发表于 2025-2-18 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453153&amp;ptid=2208921" target="_blank">楚暮秦朝 发表于 2025-2-18 01:25</a>
+想到一个好玩的，希望后面卖一波爱祥，我看正论厨子是不是会破防
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">讲道理卖爱祥是个高明之举，甚至早就可以开始卖了.这么搞可以大幅冲淡爱音之于CCC的外人感，我的朋友们丢下我转投她们的老朋友了 与 我和我的朋友们一起去拯救我们的朋友 是两种截然不同的观感
+
