@@ -2377,3 +2377,118 @@ WSD是真靠MYGO这一波老钟市场看到救命稻草，
 哈耶克的大手太爆笑了，爱看就看，不爱看就骂骂咧咧走，武士道不配赚你的钱。现在又要看又要我现在不喜欢你 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好熟悉的感觉，去年在手游版里也看过。
 
+
+*****
+
+####  Versedust  
+##### 25373#       发表于 2025-2-17 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446284&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 11:09</a>
+
+真要说的话，爱音声优在鸡狗两队10个人里，二偶营业上算是最不上心的那一批了。
+
+她和乐奈声优在活动里的各 ...</blockquote>
+这俩怕不是配完音后开摆了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 25374#       发表于 2025-2-17 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446338&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-17 11:14</a>
+
+好熟悉的感觉，去年在手游版里也看过。</blockquote>
+这句话是这样的 你无法逼迫创作者修改剧本就只能跑路 要么你进武士道改去
+
+*****
+
+####  梅杜莎  
+##### 25375#       发表于 2025-2-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445978&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-17 10:45</a>
+
+说到睦祥，虽然也是编剧的大手，但是祥子抱着牢莫时候说的那个“我什么都可以做”和她之前驳斥爽姐时候也对 ...</blockquote>
+祥睦的亲密度远高于祥爽，同样的话听起来感觉差远了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未来起航  
+##### 25376#       发表于 2025-2-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445604&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 10:11</a>
+说到底还是因为wsd没搞清楚mygo在老中爆火的原因，以为真可以靠岛国人的思维在老中开拓市场
+
+—— 来自 ...</blockquote>
+真的不懂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+柿本广大调研半天b站，总结mygo几大流行梗/要素：肥皂剧的爆爆爆，SOYO小丑表演，大祥各种幽默flag等回旋镖，立希忠犬表现，以及各种“哈？”气。
+除了SOYO执念结束了没法再小丑外，其他在鸡不都是量大管饱：每集必来几次“哈？”，立希继续忠犬表演，大祥脸都被回旋镖抽肿了。更不提史上最狂、发癫op等等炒作，各个qq群一点开就全是开播倒数那个鬼图颜艺的盛景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 25377#       发表于 2025-2-17 11:17
+
+ 本帖最后由 天空塔书记官 于 2025-2-17 11:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446316&amp;ptid=2208921" target="_blank">zaz5554 发表于 2025-2-17 11:12</a>
+哈耶克的大手太爆笑了，爱看就看，不爱看就骂骂咧咧走，武士道不配赚你的钱。现在又要看又要我现在不喜欢你 ...</blockquote>
+你这是在说啥 ? 我的意思是哈耶克的大手会事实上促进不同文化群之间的沟通，就像完美和阿特拉斯合作搞手游，所以希望其他的岛国公司也能试着和这边更多的接洽，这样起码会减少因为文化差异导致的冲突
+
+你不看我之前发言的吗，我从来没有因为破防骂过ave和wsd啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 25378#       发表于 2025-2-17 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446368&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-17 11:17</a>
+
+真的不懂吗？
+
+柿本广大调研半天b站，总结mygo几大流行梗/要素：肥皂剧的爆爆爆，SOYO小丑表演，大祥各种 ...</blockquote>
+mygo播出前mujica大纲已经做完就剩细节问题 独角兽也是因为细节不够卖百合才滚的 小姨独角兽全责 
+
+*****
+
+####  是谁的书画  
+##### 25379#       发表于 2025-2-17 11:18
+
+楼友想发泄一下角色被霸凌的不满无可厚非啦，只是别想着这种事会被改变就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有什么不高兴的就在楼里说说，比憋着强。
+
+*****
+
+####  单脚着地  
+##### 25380#       发表于 2025-2-17 11:20
+
+祥子眼里其实你爽就是个普通认识每两年的普通亲友，突然说要担负自己的人生那必然质疑，黄瓜那是光屁股一起长大的亲故，那自然是要担负她一生的。
+
+说穿了大象老师心理有一杆秤，根据她定的亲密程度把你们都分为三六九等了，白祥时期那种阳光的笑脸下其实也是存在厚重的壁垒的，只不过你被魅惑光环麻痹了感知不到而已
+
+
+*****
+
+####  zhoujin8584  
+##### 25381#       发表于 2025-2-17 11:22
+
+但反弹的声势于现实而言tft也是添柴的一部分。毕竟现实版crychic的产出力其实和sumimi一样定型了，就2首歌，与二次元作品中的塑造“灯词祥曲”双剑合璧的设定相落差的，是要把双核拆进两团才有更为发展性的活动，合体依旧是限时彩蛋。
+
+说得直白点就是，tft这个wsd花钱刷脸的地方，不投入给crychic，那必然是ave mujica上了。该说不说前七集wsd是有意塑造的鸡团三路人，鸡友至今本质祥单推捎带一点睦头人，没闹起来还有余裕串狗友破防。
+
+但是吧，mygo的共振扩散托起了mujica的前期演出，mujica赚的钱给crychic打广告，crychic广告打完也没有新歌了。大家都不得往生，活该你鸡团新专限量版5000张到现在都没卖完。日友重视气氛，战线却不会骗人。
+
+*****
+
+####  凉良  
+##### 25382#       发表于 2025-2-17 11:23
+
+能把祥睦这种怎么写都应该至少工业糖水平的CP搞得磕不下去 真的太需要功力了
+
+给点心理描写或者回忆杀真的会死吧
+
