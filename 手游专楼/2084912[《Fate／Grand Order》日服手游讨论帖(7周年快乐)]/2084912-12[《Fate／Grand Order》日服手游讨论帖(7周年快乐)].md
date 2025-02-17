@@ -858,3 +858,14 @@ https://m.bilibili.com/opus/1033632735051120642
 搞不好有的寺庙还会跟FGO联动，在门口摆小町三破的牌子，吸引年轻人过来打卡烧香 ...</blockquote>
 有记者采访过供奉芦屋道满的神社，给神主看了FGO道满的立绘，老神主沉默良久说：如果能让更多人了解道满，那也行吧（从这个反应来看说不定看的是满破<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  DARKGRAY  
+##### 16355#       发表于 2025-2-17 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444431&amp;ptid=2084912" target="_blank">ghostdio 发表于 2025-2-17 03:04</a>
+
+秀吉有经验值在琥珀ace的版本，fgo目前战国从者也大多是咕哒咕哒系，真落地按那个版本来的话倒是和西游猴子 ...</blockquote>
+经验值系都三番两次说不作准了，就算真缝也没卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

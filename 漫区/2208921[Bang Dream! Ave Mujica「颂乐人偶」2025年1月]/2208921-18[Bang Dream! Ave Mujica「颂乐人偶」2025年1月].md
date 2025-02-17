@@ -1918,3 +1918,143 @@ C+是这样子的，我在csgo里见过。
 
 今天看了B站视频推荐才知道一堆圈外up开始做母鸡卡第七集吐槽视频，不少游戏圈的，真的哈人
 
+
+*****
+
+####  结衣小比取  
+##### 25328#       发表于 2025-2-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445762&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-17 10:27</a>
+
+“我不会退出mygo的，soyori也不要退出”大概这个意思，也可能是13集我记混了 ...</blockquote>
+在这里<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202502/17/103544kzu51igi1u3uddym.jpg" referrerpolicy="no-referrer">
+
+<strong>hoadhasiodiaho.jpg</strong> (154.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 10:35 上传
+
+*****
+
+####  6030sylar  
+##### 25329#       发表于 2025-2-17 10:36
+
+ 本帖最后由 6030sylar 于 2025-2-17 10:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445604&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 10:11</a>
+
+说到底还是因为wsd没搞清楚mygo在老中爆火的原因，以为真可以靠岛国人的思维在老中开拓市场
+
+—— 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">所以就是老钟擅自破防，做动画的时候哪有考虑老钟的意见，在老钟爆火也只会让wsd以为他之前做的是对的而按思路做下去，
+
+而且这是二偶，最终指向都是让你去看现场live，能拉出来唱的必然会拉出来唱，ccc这现成的组合就必然会有
+
+也就老钟这里觉得ccc是必然是要按死在棺材里吧
+
+*****
+
+####  Lawliet.L  
+##### 25330#       发表于 2025-2-17 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445822&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-17 10:33</a>
+
+今天看了B站视频推荐才知道一堆圈外up开始做母鸡卡第七集吐槽视频，不少游戏圈的，真的哈人 ...</blockquote>
+薛定谔的热度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 25331#       发表于 2025-2-17 10:38
+
+以前小红书刷到mygo和mujica都是二创，现在都是骂的，或者是爱音退队流二创，这集影响还是大啊
+
+*****
+
+####  是谁的书画  
+##### 25332#       发表于 2025-2-17 10:39
+
+还没有意识到现在已经是点评mujica时代了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+是人是鬼是大物是条虫都可以点评两句，只能说mygo有够火，mujica也有够烂完。
+真的是好时代，乐完了给我
+
+
+*****
+
+####  南宮凝香  
+##### 25333#       发表于 2025-2-17 10:42
+
+真要說WSD 也是擅自期待老鐘的市場
+
+至於會不會擅自破防就要看下去了
+
+*****
+
+####  是谁的书画  
+##### 25334#       发表于 2025-2-17 10:43
+
+有一说一，在我看来是喵梦的塑造失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要是塑造成和爱音同生态位的受气包，天天被压力，回家打电话哭哭又努力的孩子。现在估计喵爱的cp都爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还都是⏰喜欢的
+
+*****
+
+####  凉良  
+##### 25335#       发表于 2025-2-17 10:43
+
+我寻思他WSD也没把中国市场服务好啊  超前点映三集这种中国也没份啊。 
+
+*****
+
+####  Суслов  
+##### 25336#       发表于 2025-2-17 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445822&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-17 10:33</a>
+今天看了B站视频推荐才知道一堆圈外up开始做母鸡卡第七集吐槽视频，不少游戏圈的，真的哈人 ...</blockquote>
+我搜个骂p社的视频都能看到up主还有骂母鸡卡的视频，播放比p社还高，只得感叹邦邦真火<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  66367749  
+##### 25337#       发表于 2025-2-17 10:44
+
+日本人真的不懂组队成员去组别的队会很敏感吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱马仕灰灰第二季的很大一部分主线内容是这种烦恼，更别提邦邦的乐队比爱马仕的组合要远远固定得多吧。
+
+*****
+
+####  天空塔书记官  
+##### 25338#       发表于 2025-2-17 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445744&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-17 10:25</a>
+咋说呢，大环境下wsd多少也会被带点影响的。
+
+记得b站热门的那个视频怎么评价祥子的，说怎么还有犯了错还 ...</blockquote>
+说点偏鉴证的话题，对老中来说，wsd是还有统战的价值，财阀则是彻底的反动，岛国的大环境一直是这样没错，这几年甚至还愈演愈烈，但我还是愿意相信沟通是可以解决相当一部分问题的，毕竟对于美好事物的追求是根植在人类心底的东西，这也是为什么“krkrdkdk”能在不同国家产生共鸣的原因，如果总是保持一种敌对的态度是注定无法相互理解的，学会适当转换视角，从不同的角度看待问题总不是一件坏事不是吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 25339#       发表于 2025-2-17 10:45
+
+说到睦祥，虽然也是编剧的大手，但是祥子抱着牢莫时候说的那个“我什么都可以做”和她之前驳斥爽姐时候也对应，祥子是有做好背负睦头人生觉悟才说的，但是睦祥这段实在太生硬了，搞得没啥感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 25340#       发表于 2025-2-17 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445901&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 10:39</a>
+
+还没有意识到现在已经是点评mujica时代了吗
+
+是人是鬼是大物是条虫都可以点评两句，只能说mygo有够火，mujic ...</blockquote>
+昨天我就说了现在已经不是所谓路人观众了，已经扩大到有的没的都来踩一脚痛打落水狗的状况了。
+
