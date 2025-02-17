@@ -2715,3 +2715,109 @@ wsd今日股价大涨16%，感谢哈耶克的大手
 
 这一集下来素睦素莫是不是已经跌停了
 
+
+*****
+
+####  安娜导函数  
+##### 25405#       发表于 2025-2-17 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442574&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-16 21:35</a>
+其实我从mygo起就感觉爱音是个推动剧情的工具人了，她行动力是五人中最强的，作为编剧的大手十分好用，在这 ...</blockquote>
+彩彩虽然天天被迫害，但是PP没彩彩早解散了，你说彩彩不是PP核心？？？
+
+*****
+
+####  刑部姬真可爱  
+##### 25406#       发表于 2025-2-17 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446697&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-17 11:45</a>
+
+这一集下来素睦素莫是不是已经跌停了</blockquote>
+三天三夜格调够高，这集莫手机发消息让soyo把祥赶走也能嗑，只要别去想她的逻辑，感受就好<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 25407#       发表于 2025-2-17 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445112&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 09:21</a>
+我看gbc就是阶级划分做得很好的作品，留下来的主角粉享受大女主待遇，配角粉也接受大女主的光环，嘴哭批大 ...</blockquote>
+我觉得是只有老中这边不理解，邦本质是真人为先，日本人看见番位就知道谁是主角谁是镶边，当然你也可以说是日本的娱乐圈糟粕
+
+*****
+
+####  天空塔书记官  
+##### 25408#       发表于 2025-2-17 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446727&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-17 11:47</a>
+彩彩虽然天天被迫害，但是PP没彩彩早解散了，你说彩彩不是PP核心？？？</blockquote>
+? ? ?
+
+我说的难道不是“爱音就像是没有核心地位的丸山彩”吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 25409#       发表于 2025-2-17 11:49
+
+<blockquote>刑部姬真可爱 发表于 2025-2-17 11:48
+三天三夜格调够高，这集莫手机发消息让soyo把祥赶走也能嗑，只要别去想她的逻辑，感受就好 ...</blockquote>
+这几个的动机怎么都绕不开祥子，最少都是月之森大三角
+
+
+*****
+
+####  Versedust  
+##### 25410#       发表于 2025-2-17 11:51
+
+只要写一点爱音和灯素希的MyGO样板戏都不会表现成这种灾难
+
+*****
+
+####  柯哀lv王道  
+##### 25411#       发表于 2025-2-17 11:53
+
+要看和什么时候比，如果和狗刚完结半身论刚出的时候比那肯定还是好多了.....
+
+*****
+
+####  rushsong  
+##### 25412#       发表于 2025-2-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444185&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-17 01:14</a>
+我去看红迪邦版其实也有感受
+就是这群en老外是喂什么就吃什么的
+例如分享老钟评论说这集live不行引起了很多 ...</blockquote>
+谁在意老外的品味？一堆垃圾烂尾zzzq的美漫还不是吹得绘声绘色，现在还喜欢吹老外审美的多少有点问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 25413#       发表于 2025-2-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445367&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 09:46</a>
+换了486你看？我肯定第一个骂</blockquote>
+你骂没有用，我骂也是，因为哭友也知道现在整个企划就是理名和她的四个合成组件既然最开始半年时间没有486的原配声优，后面没有也正常
+
+*****
+
+####  依旧ing  
+##### 25414#       发表于 2025-2-17 11:54
+
+给我这个水平捉急练习刻苦团内贝斯手被外团蓝毛海洋动物牛走的邦多利粉毛看笑了
+
+*****
+
+####  zhoujin8584  
+##### 25415#       发表于 2025-2-17 11:55
+
+<blockquote>刑部姬真可爱 发表于 2025-2-17 11:44
+这点大家都讨论烂了，睦本意是看到素世现在又开心起来所以说太好了，但在素世看来就是睦这句话证明了睦一 ...</blockquote>
+某种程度上，睦那个语气确实有让素世放下ccc让自己解脱罪恶感的意思，因为睦当时已经被祥子一聊过，一直拖着没答应加入鸡团就是想先让素世的状态恢复，回到mygo。（也可以理解为睦就是在这个时候告诉了祥子不开心的原因，但我无意替编剧找补）
+
+而素世的回复是你我别想两清，看似一时的悲剧反而给了后续素睦股反弹更大的张力，两个人有了继续纠缠下去的理由，明明看起来都绝交了还默默去帮忙照顾黄瓜田，仿佛静水深流。
+
