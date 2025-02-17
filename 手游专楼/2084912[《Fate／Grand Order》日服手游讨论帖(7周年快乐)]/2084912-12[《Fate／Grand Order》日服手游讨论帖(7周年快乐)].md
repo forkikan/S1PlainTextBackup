@@ -1050,3 +1050,49 @@ https://m.bilibili.com/opus/1033632735051120642
 
 人物写卡大概率是樱井光吧，樱井吹自己喜欢的角一直喜欢找旁人吹加各种要素叠加，这风格还是有点像的
 
+
+*****
+
+####  DARKGRAY  
+##### 16371#       发表于 2025-2-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450119&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-17 17:27</a>
+
+感觉可以把眼镜摘了，樱花树下布置点莲花，预示人性佛性在红尘中交织转换。现在这构图有点普通...
+
+说实 ...</blockquote>
+剧情都在为了回退，满破图肯定也不会留佛性啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 16372#       发表于 2025-2-17 19:08
+
+我看见满破图第一反应甚至跟月球没关系
+
+这大概就是鸣潮里折枝画师想象中的成品
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 16373#       发表于 2025-2-17 19:14
+
+<blockquote>exiaexa 发表于 2025-2-17 19:08
+我看见满破图第一反应甚至跟月球没关系
+
+这大概就是鸣潮里折枝画师想象中的成品</blockquote>
+折枝的贺图都知道把眼镜摘掉才好看：
+
+<img src="https://img.saraba1st.com/forum/202502/17/191220wbp99b1t61bb10ip.jpg" referrerpolicy="no-referrer">
+
+<strong>1739790709290.jpg</strong> (382.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-17 19:12 上传
+
+满破图戴眼镜睡觉该不会是为了表现“末法之世佛陀闭眼吧”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

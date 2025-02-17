@@ -7224,3 +7224,106 @@ mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效�
 
 回来了，都回来了，冲蝗神人，反A雅士，真不如出去直接开mggm的牧场，2025年了都，能不能别把二游思路当成一切<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 25839#       发表于 2025-2-17 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450814&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 19:04</a>
+
+回来了，都回来了，冲蝗神人，反A雅士，真不如出去直接开mggm的牧场，2025年了都，能不能别把二游思路当成 ...</blockquote>
+大部分差评观众就是这些人。。。正常的观众要么不看 还看的都是武士道信啊
+
+*****
+
+####  z-hunter  
+##### 25840#       发表于 2025-2-17 19:09
+
+因为现在过了几天了没事可做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+角色喷过了剧情车过了制作组骂过了，再重复也是在车轱辘。不像剧情神大众喜欢的时候可以发散思维
+
+狗厨一边惴惴不安希望下一集能找补让自己能好受一点不至于要切割，一边瑟瑟发抖武士道你快正式复活CCC啊好让我死心<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+鸡厨看着这剧透哭笑不得这八点档狗血剧是怎么回事啊，但我们还有6集，还有机会翻身的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+路过的就看着这些鸡狗厨角色厨乱战然后说一句哈哈哈你看看你们
+
+然后就这样阴湿到周四的下一集播出
+
+心理还健康的楼友我建议这几天去看一看别的好作品罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 25841#       发表于 2025-2-17 19:10
+
+怎么，不打了吗，无趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 25842#       发表于 2025-2-17 19:10
+
+爬楼好辛苦，有没有大手子总结一下，怎么就成hololive了
+
+*****
+
+####  wpcc  
+##### 25843#       发表于 2025-2-17 19:11
+
+<img src="https://img.saraba1st.com/forum/202502/17/191005jv4h0h1x34qgvss9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250213224432.png</strong> (138.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 19:10 上传
+
+ 漫画素食感觉自己不被人需要 我看她很愿意当大祥的母亲啊 很享受被人需要的感觉
+
+*****
+
+####  takerest  
+##### 25844#       发表于 2025-2-17 19:13
+
+搬个图，你爱音姐在日本也没楼内说的那么底边遭人嫌啊？
+
+fe5f5ecec3fdfc0369d46f91923f8794a5c2268b.jpg
+(36.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/191218h4h0chzxf4vdbhfx.jpg" referrerpolicy="no-referrer">
+
+a88c9a0828381f30a2e20f80ef014c086f06f040.jpg
+(58.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/191238ba7k0lazcz9ch0m9.jpg" referrerpolicy="no-referrer">
+
+a88c9a0828381f30a2e20f80ef014c086f06f040.jpg
+(58.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/191349xoikbjthpltosxo6.jpg" referrerpolicy="no-referrer">
+
+fe5f5ecec3fdfc0369d46f91923f8794a5c2268b.jpg
+(36.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/191352qlwyx9xwpzpcy94s.jpg" referrerpolicy="no-referrer">
+
