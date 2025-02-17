@@ -14835,3 +14835,19 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 
 第五周会有赤绿特典吗，期待一下
 
+
+*****
+
+####  岸浪白野  
+##### 7059#       发表于 2025-2-17 21:43
+
+原来oricon的新闻稿有大图版的
+
+<img src="https://img.saraba1st.com/forum/202502/17/214250gn0mu8x5077zs3g6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 21:42 上传
+

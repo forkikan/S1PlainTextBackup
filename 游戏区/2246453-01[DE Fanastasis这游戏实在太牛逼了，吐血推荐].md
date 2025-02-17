@@ -878,3 +878,11 @@ https://motomiyaraimu.com/de-fanastasis-memo/ 参考 追加シナリオ後半の
 发现海岸有岔路了，之前是一竿子捅到沉船BOSS那了</blockquote>
 你说的沉船BOSS是那个悬崖的海怪吗？那个是破序到中后期地图的守门怪，不是现在打的，等队伍满员再来吧
 
+
+*****
+
+####  约翰里德  
+##### 71#       发表于 2025-2-17 21:40
+
+这游戏有感情线之类的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

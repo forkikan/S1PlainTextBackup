@@ -8116,3 +8116,39 @@ nico评价差评到时和国内差不多,147最高
 <img src="https://p.sda1.dev/22/2754ad639240a5b9e2193541a6f95f33/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/f4390416d844f86e6ea507a2e6b55679/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  怀沙汨罗  
+##### 25918#       发表于 2025-2-17 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451588&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 20:47</a>
+现在知道8%&gt;7%，知不知道50%是多大呀我只是想知道你这种解释世界改造世界的力气，能不能用在扇自己的脸上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">既然你如此坚信wsd如今引到流反响好，不如猜猜新专的销量呗，和kill kiss对比如何？
+先声明啊，我可不是打嘴炮，之前也是支持过的<img src="https://p.sda1.dev/22/730f3bbacbd93929740f1fa334e83590/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  swessia  
+##### 25919#       发表于 2025-2-17 21:41
+
+你楼咋总是争论这些无聊的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 25920#       发表于 2025-2-17 21:42
+
+<blockquote>usodakedo 发表于 2025-2-17 21:30
+计程车的剧本个人觉得不是谜底厉害，而是整个企划足够严丝合缝，其实有挺多推理迷在动画播出前三集时，就通 ...</blockquote>
+你雞的角色跟劇本基本都是死的
+
+純看這周編劇想寫什麼
+
+上周跟今周的角色可以180度不同
+
