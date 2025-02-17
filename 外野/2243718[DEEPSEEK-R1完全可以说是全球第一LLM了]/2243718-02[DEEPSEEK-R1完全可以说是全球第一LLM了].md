@@ -4801,3 +4801,14 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 
 特别是编程上, 全血版基本可以顶一个中级水平的程序员
 
+
+*****
+
+####  jumbleh  
+##### 1900#       发表于 2025-2-17 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445806&amp;ptid=2243718" target="_blank">马志明 发表于 2025-2-17 10:31</a>
+
+这个贵一点的小爱同学一直有吧，确定是接入的DS么</blockquote>
+我试了一下，感觉不是
+

@@ -4837,3 +4837,151 @@ holo开始时还算有点正义性，后边就直接变成网络暴民狂欢了�
 毕竟动画该给的还是都给了的。
 至于武士道，不要抱任何期待<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 25613#       发表于 2025-2-17 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448532&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:07</a>
+
+我提一嘴某兽人手游联动mujica的东西已经做完了 还敢端上来吗</blockquote>
+联动mujica不是猜的么 没实锤吧
+
+*****
+
+####  天空塔书记官  
+##### 25614#       发表于 2025-2-17 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448663&amp;ptid=2208921" target="_blank">NameLess2501 发表于 2025-2-17 15:17</a>
+觉得对同一件事的看法不同和中日文化差异有关系。
+
+中国的主流认知是「王侯将相宁有种乎，翻身农奴把歌唱」 ...</blockquote>
+令王那和楚平方不是单纯的主从关系，而是互补的，某种意义上算是共轭主宠，所以在邦里其实并没有太多的传统日式人物，因为角色形象都太复杂了，但“读空气”是全体岛国人的集体意识，这和单纯的角色形象关系不是一个概念<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+<blockquote>爱音一直都是一个“看气氛”和“维护气氛”的角色，也就是岛国所谓的“读空气”，所以他们会很自然地接受爱音为“气氛”所牺牲，而因为社会文化环境的差异，老中这边不能接受爱音成为那个既定的“牺牲品”，而应该成为某种“大女主”(非贬义）的形象</blockquote>
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25615#       发表于 2025-2-17 15:26
+
+不行实在是忍不住了，外野的话就放到外野去讲不行吗，你在这复读王侯将相宁有种乎，哦哦，非常好，我也赞同，但是你可以做自己喜欢的，你可以看自己喜欢的，何必呢？木柜子乐队本身就是日本人搞出来的玩意，不看就得了呗
+
+*****
+
+####  595505568  
+##### 25616#       发表于 2025-2-17 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448654&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 15:17</a>
+我觉得拉新效果已经完全足够了，现在停播然后放到剧场版都比重做好，再说明白点，这些人想重做动画，没几 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Delicatus545  
+##### 25617#       发表于 2025-2-17 15:28
+
+爱音厨闹麻了，不是大小姐的舔狗还想要什么塑造，乖乖当工具人吧
+
+*****
+
+####  aptx8285144  
+##### 25618#       发表于 2025-2-17 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448683&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-2-17 15:20</a>
+
+我这个想法是在第4、5集冒出来的，因为无论鸡团解散还是对“违约金”这种元素运用的都太抽象了，但现在来 ...</blockquote>
+楼里其实有人表示这是“放养”，大祥“必然逃不出老登的手掌心"，然后就像历史级路人主唱一样，独角兽和柿本在这部动画里面根本不适合构思正常的反派戏份塑造<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 25619#       发表于 2025-2-17 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd一看中华炮打的不错，下一个企划乐队里找个老中当成员，设定就是老中留子，到时候才热闹。
+
+
+*****
+
+####  ltycomputer  
+##### 25620#       发表于 2025-2-17 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448769&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-17 15:30</a>
+
+wsd一看中华炮打的不错，下一个企划乐队里找个老中当成员，设定就是老中留子，到时候才热闹。 ...</blockquote>
+隔壁：这我熟，踩了两个雷了
+
+*****
+
+####  天空塔书记官  
+##### 25621#       发表于 2025-2-17 15:32
+
+踩雷  ?
+
+埋雷  !
+
+够使万代就是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 25622#       发表于 2025-2-17 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448546&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-17 15:08</a>
+
+无语了，2.5企划视角去推断问题还有谁有不可控点都成了有股味了，它自己是融合媒体企划你总得要考虑一堆 ...</blockquote>
+看来你的角度始终在声优这边，但是考虑到每个人喜好不同，所以你觉得最后打搅到声优确实也同样令我感到沮丧和遗憾 （抛开为何你之前对立石凛有格外输出不评价，因为我确实不了解声优文化和声优新闻，对2.5里面的2更感兴趣一些）
+
+但是以我的角度来看抛开对于偶像特别在意的特定群体（我们就在此称呼为紫好了）也同样有一群人对于其背后的配音演员并不感兴趣，更多的是来看一个相对之下比较热门有讨论度的动画片（我们就在此称呼为”电竞厨“好了）。
+
+我就是说啊，只是单纯的假设啊，有没有一种可能：
+
+有一小部分人只看动画，举例：[https://www.bilibili.com/video/BV1PiKPe4E4d/](https://www.bilibili.com/video/BV1PiKPe4E4d/)
+
+有一小部分人主推偶像看真人live，举例：[https://tieba.baidu.com/p/947791 ... ;cid=0#151650734928](https://tieba.baidu.com/p/9477918271?pid=151650734928&amp;cid=0#151650734928)
+
+也有一大部分人两者都沾，举例：[www.bilibili.com/video/BV1yBFHe4EWa/](http://www.bilibili.com/video/BV1yBFHe4EWa/)
+
+随着含量不一样，是偶像为主产物，还是动画为主产物是不定的。打个比方，看mygo的很多ylg们在这之前有没有可能只是听说”母柜子“才来看的。再打个比方，在LoveLive播放之前，也没人在意过什么出道首次配音的”偶像“声优，例如Pile。
+
+如果你一直明确的界定说一定要爱屋及乌的话，从我个人的角度出发，答案应该是否定的。而且显得有点过于在意配音演员像XXXX厨（当然这不是否定的意思）
+
+最后，我记得原神之前也有过声优和角色厨打架的事情，笑死，回首往昔，总感觉时光荏苒却从未变化。
+
+*****
+
+####  达达葱2  
+##### 25623#       发表于 2025-2-17 15:33
+
+<blockquote>凉良 发表于 2025-2-17 15:25
+联动mujica不是猜的么 没实锤吧</blockquote>
+明日方舟？
+
+*****
+
+####  aptx8285144  
+##### 25624#       发表于 2025-2-17 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448663&amp;ptid=2208921" target="_blank">NameLess2501 发表于 2025-2-17 15:17</a>
+
+觉得对同一件事的看法不同和中日文化差异有关系。
+
+中国的主流认知是「王侯将相宁有种乎，翻身农奴把歌唱」 ...</blockquote>
+国内有黄部长的PSTD，楼里之前列举财务报表什么的，其实京吹BD销量最后好像也是左肩的，NICO更不用说了，没有必要在意评价差异，此事莉可莉丝时就有记载（它还是年霸呢）
+
+当然了还有一个原因是，很多情绪的运量是第五话末就开始的
+
+*****
+
+####  595505568  
+##### 25625#       发表于 2025-2-17 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448714&amp;ptid=2208921" target="_blank">渡鸦骑士 发表于 2025-2-17 15:23</a>
+我是欢迎各大二创大手子发挥自己的创造力重写一个自己心目中的剧情的。
+毕竟动画该给的还是都给了的。
+至于 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，因为我最早以为mujica里是多个Live与商业谍战混一起的，然后第一话后：看来我想多了（）
+
