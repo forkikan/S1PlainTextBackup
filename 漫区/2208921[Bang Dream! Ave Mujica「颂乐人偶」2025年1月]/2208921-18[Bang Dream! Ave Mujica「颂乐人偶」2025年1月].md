@@ -1070,3 +1070,25 @@ mygo和mujica想获得升华可以通过crychic和解来实现，但反过来并
 
 真要聊泛少女乐队的话，欧美那边mygo真是没什么影响力，at榜上gbc直接和大热厕纸改打得有来有回，孤独摇滚更是不要提了，mygo相比之下的高评价都有点二偶痴强按头，反正我补完之后是真没感觉多精彩
 
+
+*****
+
+####  TANA  
+##### 25249#       发表于 2025-2-17 08:04
+
+<img src="https://img.saraba1st.com/forum/202502/17/080419do40egl8h84ezhle.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7783.jpeg</strong> (481.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 08:04 上传
+
+
+*****
+
+####  wpcc  
+##### 25250#       发表于 2025-2-17 08:12
+
+GBC要是有第二季反攻ndd我就不清算花田了。哪怕一辈子打不过NDD你多弄点正面的也好啊 学蜀汉是什么意思！
+
