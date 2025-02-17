@@ -6471,3 +6471,81 @@ LL其实可能比邦邦低些233
 太随便了</blockquote>
 我来找理由洗：睦喜欢弹吉他，但是因为吉他弹得不够好所以自卑，这两点不矛盾。就和我喜欢玩动作游戏但是忍龙2重置玩得艰难有些自卑一样。祥子同时知道这两点，由于睦的确喜欢吉他所以可以拉着一起组mujica，至于弹得不够好自卑可以通过提高水平慢慢治。
 
+
+*****
+
+####  cccpprc  
+##### 25772#       发表于 2025-2-17 17:27
+
+要我说，隔壁NGA都复盘发现她SOYO一开始就是当代姜维，复兴大C初心不变了。你楼在这虚空比流水就很奇怪。
+
+甚至基于复兴大C这个角度，第七集大祥跪了半集到头来像是大家给她道歉也能解释了——皇帝下罪己诏是一回事，大臣怎么痛哭流涕兴灭继绝又是另一回事啊。
+
+*****
+
+####  怀沙汨罗  
+##### 25773#       发表于 2025-2-17 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450066&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 17:21</a>
+因为你说的基数低不算涨啊自己的话自己咽了吗？50%没意思，因为是基数低，那16%涨幅也没意思，因为基数低 ...</blockquote>
+你真有基本的信息提取能力吗？我什么时候说股价涨是因为老钟“市场好预期高”？
+你帮我归因了？不是你先在讨论动画热度的时候提股价的？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  hysjmr  
+##### 25774#       发表于 2025-2-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450098&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-17 17:25</a>
+ 我来找理由洗：睦喜欢弹吉他，但是因为吉他弹得不够好所以自卑，这两点不矛盾。就和我喜欢玩动作游戏但是 ...</blockquote>
+mygo里演得好像不是这么回事啊。当然也可以脑补成大祥老师天花乱坠吹了一顿，被睦头一语道破天机，脸上挂不住才发表中二宣言的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 25775#       发表于 2025-2-17 17:32
+
+拉看着还行纯粹是因为瘦死的骆驼比马大，手游一坨，幻日夜羽爆炸，星一二三疯狂作妖，日头看着比邦还短<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 25776#       发表于 2025-2-17 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450121&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:27</a>
+
+你真有基本的信息提取能力吗？我什么时候说股价涨是因为老钟“市场好预期高”？
+
+你帮我归因了？不是你先 ...</blockquote>
+自己说的自己不认是吗
+
+IMG_1638.jpeg
+(285.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 17:31 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/173155j89jbc9wszzr4sab.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 25777#       发表于 2025-2-17 17:35
+
+已经看不懂漏油在吵什么了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 25778#       发表于 2025-2-17 17:35
+
+哦这么说来有一点值得说。
+因为拉辉煌的时间刚好是这代日本人初高中的时候。
+所以长大的拉拉粉要多一些(然后被学马一网打尽)
+
