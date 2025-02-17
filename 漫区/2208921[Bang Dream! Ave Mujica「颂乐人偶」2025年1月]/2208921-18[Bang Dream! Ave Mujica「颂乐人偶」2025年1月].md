@@ -8253,3 +8253,66 @@ nico评价差评到时和国内差不多,147最高
 
 毕竟阴湿厨子肯定是爆不过动物园的海量梗爆发的。
 
+
+*****
+
+####  怀沙汨罗  
+##### 25930#       发表于 2025-2-17 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452414&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 23:00</a>
+
+太搞笑了，你的赌就是不考虑killkiss已经爆一波的情况下，拿完全不能控制变量的新专和killkiss机械对比？ ...</blockquote>
+啊？买的人是买之前就知道killkiss专辑要爆吗？而且不是你信誓旦旦说日本热度涨了吗？照你说的日本那边企划欣欣向荣老钟销量又无所谓，排出了毒血未来销量更要爆呀？另外我先声明啊，数据都是我找的，你都是动动嘴，我实在受不了你这种滚刀肉才想着一劳永逸。要不你限定未来哪一张专辑？总不可能后面再也没自信超过吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那你这热度也太真实了。
+
+*****
+
+####  第贰个十年  
+##### 25931#       发表于 2025-2-17 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452264&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 22:31</a>
+所以独角兽像一条狗一样被踢出细节制作了</blockquote>
+确实，你说得对，十本才是mygomujica正统
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  怀沙汨罗  
+##### 25932#       发表于 2025-2-17 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452414&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 23:00</a>
+
+太搞笑了，你的赌就是不考虑killkiss已经爆一波的情况下，拿完全不能控制变量的新专和killkiss机械对比？ ...</blockquote>
+说个干脆点的，既然你老是张张嘴说这数据涨了那数据涨了，现在拿个可以量化的销量总没话说了吧？还是说killkiss销量也归功于这几集wsd的炒作？归功于tft破百万的播放了？拿出点你打滚的牛劲来，是男人就别怂。要赌多少你说，老子奖都抽过，不差你那点。
+
+*****
+
+####  ape-apple  
+##### 25933#       发表于 2025-2-17 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452465&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 23:07</a>
+
+啊？买的人是买之前就知道killkiss专辑要爆吗？而且不是你信誓旦旦说日本热度涨了吗？照你说的日本那边企 ...</blockquote>
+不是说了嘛，你真不如来个跳宝案子，赌挖眼折手别腿，看谁先叫疼，数据自己也不是看不见，不是单位不行就是基数低，不是跟三次元比就是跟里程碑比，主要解读方向就是不许说一个好字，反正就是突出一个赢赢赢。那你嘴硬一晚上干嘛，早点端出来呗
+
+*****
+
+####  ape-apple  
+##### 25934#       发表于 2025-2-17 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452481&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 23:10</a>
+
+说个干脆点的，既然你老是张张嘴说这数据涨了那数据涨了，现在拿个可以量化的销量总没话说了吧？还是说ki ...</blockquote>
+哎，这话一出我就知道，你也就这两下子了，就是斗个狠，就是比个咬牙瞪眼，前面在那拿财报说事，数据都没得说了“是男人就别怂”，我就问一句，你这给谁看呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 25935#       发表于 2025-2-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452492&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 23:12</a>
+
+不是说了嘛，你真不如来个跳宝案子，赌挖眼折手别腿，看谁先叫疼，数据自己也不是看不见，不是单位不行就 ...</blockquote>
+别废话了，要不是被你和绿毛两个家伙滚来滚去恶心到了我还懒得说，你说哪一张，接不接？不接就别回了，和你磨叽一天真心烦。你们俩白河豚总不至于连胆气都没了吧？
+

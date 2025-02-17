@@ -14925,3 +14925,18 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 
 鸭子叔叔说不定下次登场还是十九岁卜卜脆呢，轻松融入主角团<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakufa782  
+##### 7063#       发表于 2025-2-17 23:05
+
+而且新观众肯定对鸭子声优没那么强的映像绑定，以后的灵活度会很高
+
+*****
+
+####  WallHrolf  
+##### 7064#       发表于 2025-2-17 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">智龙迷城的人物立绘角度那么怪的吗，单纯是版权方提供图片问题还是游戏特色（
+
