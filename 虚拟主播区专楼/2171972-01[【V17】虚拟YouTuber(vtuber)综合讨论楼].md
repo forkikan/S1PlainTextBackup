@@ -197,3 +197,25 @@ P.S. 这次快闪店内毫不意外地男女比小于1:9，2楼买周边的时�
 
 最近是什么草台周吗，爆笑事件连续发生
 
+
+*****
+
+####  Devi_Lito  
+##### 1019#       发表于 2025-2-17 21:28
+
+这次虹7周年也和Animate Gratte进行了联动（惯例的奶油拉花饮料和印花糖霜曲奇，太会骗钱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202502/17/212753jbrzlxn0omqm0rpo.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250217212745.jpg</strong> (759.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 21:27 上传
+
+（为了拿明信片特典多点了2块曲奇凑单）
+
+曲奇的尺寸意外很大（和指偶对比），但味道挺一般的，糖霜部分真的太甜了。。饮料的奶油拉花部分相比之下倒是挺好喝的
+
+总体而言属于是正好在附近的情况下可以顺手打个卡的水平吧¯\_(ツ)_/¯
+

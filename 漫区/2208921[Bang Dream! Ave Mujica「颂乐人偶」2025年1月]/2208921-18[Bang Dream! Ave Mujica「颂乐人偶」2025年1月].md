@@ -8066,3 +8066,53 @@ nico评价差评到时和国内差不多,147最高
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">第7集这个跌丝袜大小姐白祥，很让人喷饭的
 
+
+*****
+
+####  my707776310  
+##### 25913#       发表于 2025-2-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451742&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-17 21:10</a>
+
+计程车的剧本放近10年里我个人都觉得难有动画剧本能超越，都不说纯原创剧本了，鸡团开播前居然有粉丝这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说计程车缺少go7那种级别的神回
+
+*****
+
+####  usodakedo  
+##### 25914#       发表于 2025-2-17 21:30
+
+计程车的剧本个人觉得不是谜底厉害，而是整个企划足够严丝合缝，其实有挺多推理迷在动画播出前三集时，就通过动画细节以及广播剧基本猜到了大部分设定，我自己在的小群就讨论的挺欢，最后男主病情揭开的那一刻，更多的是心有灵犀的感觉。不过缺点我个人觉得是人物更偏向日剧那种感觉，同时一些节奏上的把控也比较平，但其实更倾向喜好而不是缺点，个人还是很喜欢这部番的。
+
+与之相反的另一部带推理要素的我个人很喜欢的原创番是异度侵入，虽然后三集确实不咋地，但它在节奏把控一流，前十集是真的非常有信息量，所以做到了在观众不断提出各种猜测的情况下还在不断自己造新的惊喜。最绝的还是人物的快速塑造，男主秋人从亲情入手是非常讨巧且高效的做法，毕竟大部分人也都有家人，而个人觉得最大亮点的小春，从最初的为了抓犯人主动献身到中期让观众无法准确判断其善恶，再到最后“只值一滴眼泪”的名言，是非常优秀的人物弧光的展现。有一种说法是想描绘一个角色的内核就需要去描写这个角色自己面对重大抉择时的选择，而异度里让小春做的三次选择都让人印象深刻。
+
+反过来说，为什么鸡现在这样，一是它压根没用如计程车那样严丝合缝的剧本，只是很多观众误以为它有于是开始做假药，其次也没有异度那样对于人物刻画，尤其是有关于大象老师和木头人的，作为目前最重要的两个角色，前者的没有弧光，后者无法让人共情，那就别怪很多观众用爱音作为输出口了。
+
+*****
+
+####  稀勢のささ  
+##### 25915#       发表于 2025-2-17 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451593&amp;ptid=2208921" target="_blank">a611611611 发表于 2025-2-17 20:47</a>
+
+这数据真的假的？怎么才四千不到？</blockquote>
+这是nico的问题，星3都是2开头的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  my707776310  
+##### 25916#       发表于 2025-2-17 21:36
+
+现在鸡狗到是真快合成一部完整的异度侵入了
+
+*****
+
+####  烂片雷达  
+##### 25917#       发表于 2025-2-17 21:36
+
+做法猫睦大卖day1<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6aa877a99a9c04c38e9791fbca73aea2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e2fff6515aa701c4bd377a736900d44d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2754ad639240a5b9e2193541a6f95f33/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f4390416d844f86e6ea507a2e6b55679/image.jpg" referrerpolicy="no-referrer">
+
