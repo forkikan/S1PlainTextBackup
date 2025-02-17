@@ -7327,3 +7327,70 @@ fe5f5ecec3fdfc0369d46f91923f8794a5c2268b.jpg
 
 <img src="https://img.saraba1st.com/forum/202502/17/191352qlwyx9xwpzpcy94s.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 25845#       发表于 2025-2-17 19:17
+
+看惯管人上百万的票，觉得这个数字真是毫无波澜，二偶是不是确实是全面不如管人了
+
+*****
+
+####  怀沙汨罗  
+##### 25846#       发表于 2025-2-17 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450790&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 19:01</a>
+那你真是动画痴子，原来一个季度还能看五部，而且是从上往下挑高分段看，良作不是靠你的嘴说的，其他数字 ...</blockquote>
+又来神人逻辑了
+“那你真是动画痴子，原来一个季度还能看五部，而且是从上往下挑高分段看”
+我觉得吧，正常人看动画应该都是优先看高分的，也许你的口味不一样。如果你觉得一个季度看五部就算动画痴子了，那也行，只要一个季度有10几部“良作”，痴就痴吧。
+“自己没说认不认市场，但是自己又特意在分析里提了老钟市场，你这不还是前后对不上，能不能有个单一的评价标准呢”
+什么叫单一的评价标准？你应该看得懂我在图里的简单陈述吧？<img src="https://p.sda1.dev/22/9d8e8f9a949dde81362b201248110242/image.jpg" referrerpolicy="no-referrer">我总结的不都是wsd在最新财报提的？另外前后对不上又是指什么？我原话似乎没有作出这些信息对股市影响的任何评价吧？麻烦你真把自己的话说清楚，不要让人理解产生困难了谢谢。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 25847#       发表于 2025-2-17 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450885&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 19:17</a>
+
+看惯管人上百万的票，觉得这个数字真是毫无波澜，二偶是不是确实是全面不如管人了 ...</blockquote>
+管人同接都能破百万的 不点名 二偶入坑门槛要看完动画漫画游戏访谈live不然信息差麻了  管人看两个cp切片加直播天天看马上入脑完事。真正能当二偶追的管人我只认识六字母谢谢，这个东西他真有游戏访谈live。。。追起来是真的有大量的信息差，甚至有复辟
+
+*****
+
+####  aritaatsu222  
+##### 25848#       发表于 2025-2-17 19:21
+
+我觉得好嫌属于好榜高不一定有代表性，嫌榜高的一定有黑子团，毕竟只有anti才会去团建，好榜反而会有小透明占前排
+
+*****
+
+####  是谁的书画  
+##### 25849#       发表于 2025-2-17 19:22
+
+细看了一下，感觉我这套互联网皇帝的朴实论据还挺实用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aritaatsu222  
+##### 25850#       发表于 2025-2-17 19:23
+
+<blockquote>wpcc 发表于 2025-2-17 19:20
+管人同接都能破百万的 不点名 二偶入坑门槛要看完动画漫画游戏访谈live不然信息差麻了  管人看两个cp切片 ...</blockquote>
+哪里有破百万同接的管人，你冷静点
+
+*****
+
+####  wpcc  
+##### 25851#       发表于 2025-2-17 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450916&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 19:23</a>
+
+哪里有破百万同接的管人，你冷静点</blockquote>
+Aqua 显示是百万，实际后台也达到了73.5
+

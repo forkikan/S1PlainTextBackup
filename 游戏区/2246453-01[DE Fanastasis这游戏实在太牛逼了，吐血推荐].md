@@ -703,3 +703,24 @@ magpie+crt easymode滤镜，这是4K分辨率下显示效果非常好的搭配
 到最后的村庄伊修托鲁，游戏应该就算结束了吧，主角有了自己的房子，过普通人生活去了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说的这个地方在哪，我好像都没去过
 
+
+*****
+
+####  宇白顺  
+##### 55#       发表于 2025-2-17 19:16
+
+rpg maker游戏没点瑟瑟总觉得少了点什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alleriawr9  
+##### 56#       发表于 2025-2-17 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450656&amp;ptid=2246453" target="_blank">妄想中毒 发表于 2025-2-17 18:43</a>
+你说的这个地方在哪，我好像都没去过</blockquote>
+就是海岸洞窟传送点下面那个传送点，你应该还没解锁。打完最终boss还有不少剧情补完，参考简易攻略
+https://bgm.tv/subject/topic/33083
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
