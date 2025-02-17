@@ -753,3 +753,14 @@ https://bgm.tv/subject/topic/33083
 
 啊啊啊，好想看继续出外传啊。出必买。
 
+
+*****
+
+####  JamesDrapor  
+##### 59#       发表于 2025-2-17 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450656&amp;ptid=2246453" target="_blank">妄想中毒 发表于 2025-2-17 18:43</a>
+
+你说的这个地方在哪，我好像都没去过</blockquote>
+[https://motomiyaraimu.com/de-fanastasis-memo/](https://motomiyaraimu.com/de-fanastasis-memo/) 参考 追加シナリオ後半の攻略ルート 部分可以看到，最后还有几个小地方可以去，还挺感慨的
+

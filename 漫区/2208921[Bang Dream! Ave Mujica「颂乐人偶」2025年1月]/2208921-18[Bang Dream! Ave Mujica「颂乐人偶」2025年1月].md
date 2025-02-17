@@ -7627,3 +7627,38 @@ https://m.gamer.com.tw/forum/C.php?bsn=31877&amp;page=&amp;snA=6914&amp;last=
 哎呀，嘴硬半天终于知道要带单位说话了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你知道不知道应该带背景比较播放量啊？张嘴闭嘴就是100多万播放量不高，一看，噢，和绿黄色社会、孤独摇滚193比，可太有逻辑了，这辈子可太有了，人类是靠呼吸活着，你的前半生主要是靠各种赢学活着的
 要是不愿意承认85分这个绝对数量，那也可以给你个相对数量，就是从第一集到第七集，nico的好评率是慢慢上升的，你要怎么解释呢？是不是要说：观众都气跑了所以默认打1分，是这样吗？
 
+
+*****
+
+####  nowiner  
+##### 25874#       发表于 2025-2-17 20:08
+
+部分邦友可能没想到，相当数量的狗粉鸡粉从来不是2.5企划的受众，他们更关心动画。把某个角色和声优绑定，打包成偶像，属于二偶的亚文化，很多动画粉丝对此是陌生的
+
+有楼友暗戳戳地示意爱音的CV有黑历史，爱音厨会反噬
+
+但是，可能，对动画不满的不是（不只是）你们想象中的爱音厨
+
+我更赞同一位楼友，他说爱音只是喷动画的切入口
+
+*****
+
+####  凉良  
+##### 25875#       发表于 2025-2-17 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450855&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-17 19:13</a>
+
+搬个图，你爱音姐在日本也没楼内说的那么底边遭人嫌啊？</blockquote>
+这啥网站
+
+*****
+
+####  zhzij111  
+##### 25876#       发表于 2025-2-17 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451204&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 19:58</a>
+爱厨及引流狗要是能滑坡到把狗的动画也清算一下我是真的感谢了，一年来说几句狗坏话被追着杀好几次 ...</blockquote>
+狗动画好的很爱圣厨凭啥帮你喷啊，别人又不看什么二偶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
