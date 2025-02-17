@@ -4745,3 +4745,23 @@ chat box 啊</blockquote>
 没错，这个真的很难解决，我用了非常详细的文风指导了，其实到这程度都不期待有多想象力了，就公式化就行 ...</blockquote>
 试试微调的？
 
+
+*****
+
+####  马志明  
+##### 1895#       发表于 2025-2-17 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67428604&amp;ptid=2243718" target="_blank">脸宽 发表于 2025-2-15 00:36</a>
+
+小米也接入了deepseek了 打开小爱对他说打开深度思考模式。
+
+速度倒是很快，但是感觉很严，仅仅是角色扮演， ...</blockquote>
+这个贵一点的小爱同学一直有吧，确定是接入的DS么
+
+*****
+
+####  DeepFishing  
+##### 1896#       发表于 2025-2-17 10:34
+
+我跑了全量的R1，2.22bit感觉还行，问题是全量放进8*4090 48G不知道能不能获得足够的加速，CPU+GPU混合跑速度上不去
+
