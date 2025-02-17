@@ -8226,3 +8226,30 @@ nico评价差评到时和国内差不多,147最高
 那这个时候祥应该还不知道睦对自己的吉他弹奏失望。感觉已经到了一个怎么解释都不合理的地步了。 ...</blockquote>
 这里的台词也可以理解成祥子对睦说在外面的时候就没必要像在家里的时候对自己要求那么高，轻松点来就好
 
+
+*****
+
+####  ape-apple  
+##### 25927#       发表于 2025-2-17 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451898&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 21:36</a>
+
+“引流就是跟去年比，去年你邦的数据是2000多（其实应该是2000左右，照顾你的面子说多点）”行了。我说了 ...</blockquote>
+太搞笑了，你的赌就是不考虑killkiss已经爆一波的情况下，拿完全不能控制变量的新专和killkiss机械对比？那你早说呀，直接玩跳宝案子得了呗，斗个狠的赌对面不敢跟，之前弄出一大堆截图数据还以为你有什么大道理真本事呢，最后还是比大小啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 25928#       发表于 2025-2-17 23:04
+
+泥漏就是大A老师把楼里熏得都是大A味，还问怎么鸡友都不在鸡楼，比起来NGA的B一串字母都能处了，人家起码真在讨论动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuckmydik  
+##### 25929#       发表于 2025-2-17 23:06
+
+先争取不被滚厨gbc厨反观 再想动物园电竞粉的事吧
+
+毕竟阴湿厨子肯定是爆不过动物园的海量梗爆发的。
+
