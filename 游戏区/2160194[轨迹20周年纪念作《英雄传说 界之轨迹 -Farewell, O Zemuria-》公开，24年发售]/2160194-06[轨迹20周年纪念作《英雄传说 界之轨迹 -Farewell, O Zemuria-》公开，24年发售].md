@@ -2551,3 +2551,14 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 我现在觉得女神可能就在时至宝的盒子里，眼镜最后说的是人类没有打倒神，雷瓦丁计划也说了要屠神，单一个时 ...</blockquote>
 还不如猜盟主就是女神，盟主目前来看最少也是个水之至宝。
 
+
+*****
+
+####  椎名mahuyo  
+##### 7751#       发表于 2025-2-17 18:13
+
+<img src="https://p.sda1.dev/22/49fb4217b04dacb9e165bfc9751dc0e6/snn28qfz98as7gfzvvwa0mxl.jpg" referrerpolicy="no-referrer">
+剑女手办
+
+—— 来自 realme RMX3708, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

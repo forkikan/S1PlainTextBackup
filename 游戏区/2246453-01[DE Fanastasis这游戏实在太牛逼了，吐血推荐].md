@@ -681,3 +681,14 @@ magpie+crt easymode滤镜，这是4K分辨率下显示效果非常好的搭配
 
 真结局是什么，我打完魔女帝解锁心之间看后面就剩挑战魔界隐藏boss就没管了，后面还有别的结局？
 
+
+*****
+
+####  blueelf  
+##### 53#         楼主| 发表于 2025-2-17 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450376&amp;ptid=2246453" target="_blank">妄想中毒 发表于 2025-2-17 18:04</a>
+
+真结局是什么，我打完魔女帝解锁心之间看后面就剩挑战魔界隐藏boss就没管了，后面还有别的结局？ ...</blockquote>
+到最后的村庄伊修托鲁，游戏应该就算结束了吧，主角有了自己的房子，过普通人生活去了
+

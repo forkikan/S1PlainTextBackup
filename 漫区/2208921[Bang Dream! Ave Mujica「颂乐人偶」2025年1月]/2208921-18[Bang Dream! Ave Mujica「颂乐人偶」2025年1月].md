@@ -6752,3 +6752,85 @@ mygo里演得好像不是这么回事啊。当然也可以脑补成大祥老师�
 如果祥子知道“睦无法认可自己的吉他演奏”就不会拉她组乐队并且压力她了，如果一开始就知道那祥子这个角色就纯符号啊
 我觉得正是因为祥子不理解所以前几话是那种态度以及一个月不见睦
 
+
+*****
+
+####  fuwamoco  
+##### 25796#       发表于 2025-2-17 18:09
+
+祥子之前一直知道睦左右为难还要让睦骗soyo呢。
+
+*****
+
+####  影伴光生  
+##### 25797#       发表于 2025-2-17 18:09
+
+第七话告诉观众祥子实际上知道睦头人的真实想法，反而更像巨人里觉醒力量的艾伦了——没有信息差还能玩成这样？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  帝下室の年糕  
+##### 25798#       发表于 2025-2-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450331&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 17:57</a>
+我找补啥了，你自己生造我论点的问题我都给你理出来就叫找补吗？另外你觉得这种算拉新那是你的观点。我的 ...</blockquote><blockquote>哪怕所谓数字在涨，靠这种炒作方式而不是靠优良的动画，依然也只是在原来的层级蹦跶</blockquote><blockquote>闹麻了，你在楼里整天炒作海外热度多高，春秋笔法真是有意思。喏，这是你吹的一百万播放量在tft的含金量</blockquote>
+你到底是要谈客观的海外热度还是德不配位的问题，东京复仇者这么火和它的作品质量有关吗，能上TFT的至少不全是臭鱼烂虾吧，二次元乐队好像就一个孤独摇滚上了，能三天排到最近12个视频的前二算路边吗，而且看壁吧比较播放曲线春日影的正常多了，其他视频注水更明显<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+官推关注新增数也是本季第三，大概都是善良朴素的⏰路人在被引流吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+唉，果然要巨婴承认自己口嗨说错了比杀了他全家还难<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  怀沙汨罗  
+##### 25799#       发表于 2025-2-17 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450360&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-17 18:01</a>
+靠优良的动画你自己贴的良率就有，每一集85上下好评率，不高吗？只是因为2.5次元少女乐队就这样了 ，拉新 ...</blockquote>
+谁关心你holo不holo啊？你自己做管人痴关我屁事。另外nico网站85的好评率算高？麻烦你好好了解一下<img src="https://p.sda1.dev/22/d86bf01a2829cc9458c93bddf62e1fc9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  未来起航  
+##### 25800#       发表于 2025-2-17 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450270&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 17:47</a>
+我一直觉得独角兽对大睦有一个很土的设定，就是让大睦这个人整的很自闭，说话不利索，只能希望靠吉他对话。 ...</blockquote>
+🦄的省台词打法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忙着给灯祥写情书呢
+mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效果的就下线。其他角色再多写几句“哈？”，省力又出节目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wpcc  
+##### 25801#       发表于 2025-2-17 18:12
+
+<blockquote>未来起航 发表于 2025-2-17 18:11
+🦄的省台词打法忙着给灯祥写情书呢
+
+mygo的时候，狗有个猫，鸡有个木头人，隔几集讲句有节目效果的就下线 ...</blockquote>
+木头的自闭三无精神分裂把谷价拉飞了
+
+*****
+
+####  aritaatsu222  
+##### 25802#       发表于 2025-2-17 18:14
+
+需要找其他人给自己言论背书的人跟开口闭口大主播语录的没区别
+
+*****
+
+####  ape-apple  
+##### 25803#       发表于 2025-2-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450417&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 18:10</a>
+谁关心你holo不holo啊？你自己做管人痴关我屁事。另外nico网站85的好评率算高？麻烦你好好了解一下
+
+—— ...</blockquote>
+又在拉表，你真是数字的奴隶啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来告诉我85不是高是低吗？日本人觉得85好评，是很低的数字吗？你不管再怎么给数据下定义，这个也是良作的标准了，上午我就在说这一集很大程度上是中日思路的差别，你非得按心思解读数据，尊重你找到的数据吗？
+
