@@ -2058,3 +2058,84 @@ C+是这样子的，我在csgo里见过。
 是人是鬼是大物是条虫都可以点评两句，只能说mygo有够火，mujic ...</blockquote>
 昨天我就说了现在已经不是所谓路人观众了，已经扩大到有的没的都来踩一脚痛打落水狗的状况了。
 
+
+*****
+
+####  凉良  
+##### 25341#       发表于 2025-2-17 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445978&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-17 10:45</a>
+
+说到睦祥，虽然也是编剧的大手，但是祥子抱着牢莫时候说的那个“我什么都可以做”和她之前驳斥爽姐时候也对 ...</blockquote>
+别背负人生了 祥子前两次背负人生啥结果啊
+
+
+*****
+
+####  takerest  
+##### 25342#       发表于 2025-2-17 10:50
+
+<blockquote>6030sylar 发表于 2025-2-17 10:36
+所以就是老钟擅自破防，做动画的时候哪有考虑老钟的意见，在老钟爆火也只会让wsd以为他之前做的是对的而按 ...</blockquote>
+都怪老中真的把mygo&amp;ave mujica当作好作品来衡量，其实就是坨卖广告的💩，一切责任均在老中！
+
+*****
+
+####  6030sylar  
+##### 25343#       发表于 2025-2-17 10:50
+
+WSD是真靠MYGO这一波老钟市场看到救命稻草，
+
+当年搞DJ就是想把邦的人员平移，那时候邦就差不多到头了，结果被疫情干趴现在反而砍剩下邦（把当前爆火的项目放着去搞个冷热未知的新兴项目也是脑子瓦特）
+
+*****
+
+####  dqtql  
+##### 25344#       发表于 2025-2-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445957&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-17 10:43</a>
+
+我搜个骂p社的视频都能看到up主还有骂母鸡卡的视频，播放比p社还高，只得感叹邦邦真火
+
+—— 来自 鹅球 v ...</blockquote>
+不会长久的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吐槽恰完流量后留下一地鸡毛，邦邦重回应有的位置
+
+*****
+
+####  qlipho  
+##### 25345#       发表于 2025-2-17 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445978&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-17 10:45</a>
+
+说到睦祥，虽然也是编剧的大手，但是祥子抱着牢莫时候说的那个“我什么都可以做”和她之前驳斥爽姐时候也对 ...</blockquote>
+只能说下跪真没用，直接压住抱住，再嘴硬就<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25346#       发表于 2025-2-17 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445986&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 10:46</a>
+昨天我就说了现在已经不是所谓路人观众了，已经扩大到有的没的都来踩一脚痛打落水狗的状况了。 ...</blockquote>
+那很好了，你wsd跟牲口一样呢，巴依老爷的鞭子你的身上雨点子下呢。嗯呵呵呵呵呵呵呵
+
+*****
+
+####  怀沙汨罗  
+##### 25347#       发表于 2025-2-17 10:52
+
+怪老钟不知道二偶动画的平均水平是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，原来擅自破防还能这么用也是真滴牛批。
+顺带一提既然是要把人拉去看live，那么请问标题里的乐队mujica在七集主场表演过几次live呀，乐队主唱叫啥名字不太记得。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  凉良  
+##### 25348#       发表于 2025-2-17 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446071&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-17 10:52</a>
+
+那很好了，你wsd跟牲口一样呢，巴依老爷的鞭子你的身上雨点子下呢。嗯呵呵呵呵呵呵呵 ...</blockquote>
+现在跟风进来的哪里是在车wsd啊 都是对纸片人**羞辱呢
+
