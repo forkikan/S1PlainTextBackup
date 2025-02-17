@@ -1529,3 +1529,109 @@ mujica在路人眼中可能还是有一些热度的。
 沒有暴爹的命得了暴爹的病</blockquote>
 别慌，二偶企划没几个不想当暴爹的，最后都是大家都一样烂，只是有的人烂的早点，有的人烂的晚点罢了，毕竟暴雪那是真的烂了。
 
+
+*****
+
+####  wpcc  
+##### 25291#       发表于 2025-2-17 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445112&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 09:21</a>
+
+我看gbc就是阶级划分做得很好的作品，留下来的主角粉享受大女主待遇，配角粉也接受大女主的光环，嘴哭批大 ...</blockquote>
+换了486你看？我肯定第一个骂
+
+*****
+
+####  ads147147  
+##### 25292#       发表于 2025-2-17 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445256&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 09:36</a>
+
+因为都不是“纯粹”的原创动画，像我这样真心把动画故事和现实企划分开（哪怕有一天那两个人真得因病或其 ...</blockquote>
+现实世界不存在纯粹的动画故事的，毕竟再好的故事也是现实世界的人写出来的，避免不了现实世界的影响。
+
+再者说动画本身也得传达一种说服力，得说服受众喜欢我描写的角色或者故事，本身也代表着一种影响，隔离不开的。
+
+*****
+
+####  凉良  
+##### 25293#       发表于 2025-2-17 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445236&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-17 09:34</a>
+我觉得睦才是最惨的，花了这么多集，只坐实了祥子的跟班这一塑造。脑子里除了吉他就是祥子，至于原因和过去 ...</blockquote>
+所以说mortis对睦真的是致命问题花了那么多功夫塑造mortis把睦的弧光全吃了
+
+*****
+
+####  aptx8285144  
+##### 25294#       发表于 2025-2-17 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445329&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-17 09:42</a>
+
+要把观众转换为粉丝就是需要一些唯一性魔法的，相信自己跟作品角色的相遇有唯一性，相信作品的内容有唯一 ...</blockquote>
+二偶的这些东西，对于以前只是在意原创动画人物命运和剧情质量的人们来说简直就像“新世界的大门”，里面可不都是好的东西，既有真金白银，也有更多条条框框，观众们也有不少以前没有的要求，真得“不自由”jpg
+
+
+*****
+
+####  qlipho  
+##### 25295#       发表于 2025-2-17 09:50
+
+睦头cv要是菜点，都不会有双重人格这设定<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 25296#       发表于 2025-2-17 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445229&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-17 09:34</a>
+mujica在路人眼中可能还是有一些热度的。</blockquote>
+就这头像能算路人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 25297#       发表于 2025-2-17 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445229&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-17 09:34</a>
+mujica在路人眼中可能还是有一些热度的。</blockquote>
+老哥你看看头像哪里是路人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aritaatsu222  
+##### 25298#       发表于 2025-2-17 09:54
+
+<blockquote>aptx8285144 发表于 2025-2-17 09:49
+二偶的这些东西，对于以前只是在意原创动画人物命运和剧情质量的人们来说简直就像“新世界的大门”，里面 ...</blockquote>
+偶像产业提供的多巴胺不是一般动画片有的，花钱抽票远征打call小圈子线下团建就是很能把人抓进高强度的归属感里，普通的原创番一周看半个小时剩下六天水论坛做不到，但搞二偶企划恰了更多的米就有义务维持这种魔法，我是这么认为的，所以wsd确实是脸皮都不要的欠东西
+
+*****
+
+####  hysjmr  
+##### 25299#       发表于 2025-2-17 09:55
+
+哎我操，难怪台长一扮二偶痴就有真二偶痴哈气，他明显是对这种黑暗真实没有感性认识的，缺乏那股味被闻出不是自己人了属于是
+
+*****
+
+####  真爱与热情  
+##### 25300#       发表于 2025-2-17 09:55
+
+退黄瓜我怎么看就是素食以为木头人在yygq素食其实也没那么在意哭团，因为第8集又没站在她那边劝住大祥老师。
+
+只能说JK/JC就是眼睛里面都是自己的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 25301#       发表于 2025-2-17 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445367&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 09:46</a>
+换了486你看？我肯定第一个骂</blockquote>
+话不能怎么说，正因为主角是小孩姐才需要怎么一个486<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黄前部长需要一个同样的调解者“剑崎梨梨昴”吗，故事就怎么长，角色冲突了。
+但鸡团可没这种角色，调解还要靠外力，设定上就蛮怪的。
+
