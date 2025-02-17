@@ -2230,3 +2230,150 @@ WSD是真靠MYGO这一波老钟市场看到救命稻草，
 
 主角团的主唱连续两集没有台词，这在历史上有先例吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 25359#       发表于 2025-2-17 11:07
+
+没有画面说明就是故意的，所以需要等初华露面展开剧情时再评价，这不能作为批判wsd的理由<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 25360#       发表于 2025-2-17 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446106&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 10:55</a>
+
+现在跟风进来的哪里是在车wsd啊 都是对纸片人**羞辱呢</blockquote>
+看来你可能是第一次见过这场面。
+
+其实这既“不正常”，但也是最最最常见的“常态”了。
+
+十五年前还有人肉搜索，在一个世纪以前还有人血馒头，你要明白这是情景在非理想化现实里一次又一次的复播。
+
+我不是鲁迅，所以我选择混乱里最纯粹的享受。
+
+
+*****
+
+####  wpcc  
+##### 25361#       发表于 2025-2-17 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445966&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-17 10:44</a>
+
+日本人真的不懂组队成员去组别的队会很敏感吗爱马仕灰灰第二季的很大一部分主线内容是这种烦恼，更别提邦邦 ...</blockquote>
+哥们你真看过爱马仕吗云狗 爱马仕本身live就没有固定团的说法 新造团多得要死 你邦的手游难道现在是锁死五个人不串门吗？我都笑了你会不会看二偶啊 
+
+*****
+
+####  沉默的苍穹基  
+##### 25362#       发表于 2025-2-17 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">wsd：我本来就是来拉屎的，老中品屎官尝出来巧克力味儿于是叫来一帮人一起吃，现在我真拉出来一坨原味屎你们吃了犯恶心了也能怪我？
+
+*****
+
+####  wpcc  
+##### 25363#       发表于 2025-2-17 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446172&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 11:00</a>
+
+不是，之前很多还能说是路人粉破防。 现在这种跟风来的就是享受顺风团踩头木柜子痴的快感，  ...</blockquote>
+引流到电竞圈也是中文互联网传播速度的一个侧面。我的态度很简单 车资本没有用的话就顺从他 要么你自己ooc自嗨去
+
+*****
+
+####  老贝  
+##### 25364#       发表于 2025-2-17 11:09
+
+真要说的话，爱音声优在鸡狗两队10个人里，二偶营业上算是最不上心的那一批了。
+她和乐奈声优在活动里的各种应对突出一个公式，认识跑现地的朋友最反感就是这俩人。
+
+
+*****
+
+####  wpcc  
+##### 25365#       发表于 2025-2-17 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446284&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 11:09</a>
+
+真要说的话，爱音声优在鸡狗两队10个人里，二偶营业上算是最不上心的那一批了。
+
+她和乐奈声优在活动里的各 ...</blockquote>
+因为lsl也知道爱音是个摄像头地位 一辈子当不了主唱热度 也没必要靠邦起飞
+
+*****
+
+####  6030sylar  
+##### 25366#       发表于 2025-2-17 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445966&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-17 10:44</a>
+
+日本人真的不懂组队成员去组别的队会很敏感吗爱马仕灰灰第二季的很大一部分主线内容是这种烦恼，更别提邦邦 ...</blockquote>
+知道的，但是敏感的是去了不回来，第二季就这话题
+
+*****
+
+####  595505568  
+##### 25367#       发表于 2025-2-17 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446284&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 11:09</a>
+真要说的话，爱音声优在鸡狗两队10个人里，二偶营业上算是最不上心的那一批了。
+她和乐奈声优在活动里的各 ...</blockquote>
+我记得蜜柑和林鼓子之前很努力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，羊最近好多了
+
+*****
+
+####  6030sylar  
+##### 25368#       发表于 2025-2-17 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446284&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-17 11:09</a>
+
+真要说的话，爱音声优在鸡狗两队10个人里，二偶营业上算是最不上心的那一批了。
+
+她和乐奈声优在活动里的各 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">优姐有个活干不被家里说网游废人就是了
+
+*****
+
+####  zaz5554  
+##### 25369#       发表于 2025-2-17 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哈耶克的大手太爆笑了，爱看就看，不爱看就骂骂咧咧走，武士道不配赚你的钱。现在又要看又要我现在不喜欢你了你能不能变成我喜欢的样子不然我就要走了和当年的NGAholo民有什么区别
+
+*****
+
+####  无事忙  
+##### 25370#       发表于 2025-2-17 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445592&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-2-17 10:10</a>
+
+抛开第七集最后的两首歌，其实我想知道如何给大祥老师在知道木头人觉得自己吉他不行的情况下，前面又是拉着 ...</blockquote><blockquote>过去几天了还是没想到任何地方能弥补一下这样恶劣的观感</blockquote>
+这个没法想通，也没法帮你解释
+
+只能说估计是制作组突然想起来加一句 剧情bug也不管了
+
+因为前后不一致的问题太多，观众现在也没心情细细盘了，一起摆了
+
+*****
+
+####  wpcc  
+##### 25371#       发表于 2025-2-17 11:13
+
+我发现有的人是真不会看二偶这种2.5企划 这种企划从动画 游戏 漫画 cv访谈 livemc甚至监督访谈都是必要的，尤其是武士道这种烂抄公司你还得会看财报。
+
+我拿这套理论去看学马然后看到了羊羔我就知道这代黄大爹赢了
+
+*****
+
+####  厚乳果珍爽  
+##### 25372#       发表于 2025-2-17 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446316&amp;ptid=2208921" target="_blank">zaz5554 发表于 2025-2-17 11:12</a>
+
+哈耶克的大手太爆笑了，爱看就看，不爱看就骂骂咧咧走，武士道不配赚你的钱。现在又要看又要我现在不喜欢你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好熟悉的感觉，去年在手游版里也看过。
+
