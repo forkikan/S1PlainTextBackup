@@ -4812,3 +4812,14 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 这个贵一点的小爱同学一直有吧，确定是接入的DS么</blockquote>
 我试了一下，感觉不是
 
+
+*****
+
+####  lactone  
+##### 1901#       发表于 2025-2-17 15:44
+
+话说马圣今天晚上要发布grok3，号称最聪明的人工智能
+会不会又要开始咩鳖了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

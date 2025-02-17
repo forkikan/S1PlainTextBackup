@@ -4985,3 +4985,60 @@ wsd一看中华炮打的不错，下一个企划乐队里找个老中当成员�
 至于 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，因为我最早以为mujica里是多个Live与商业谍战混一起的，然后第一话后：看来我想多了（）
 
+
+*****
+
+####  wpcc  
+##### 25626#       发表于 2025-2-17 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448809&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 15:33</a>
+
+国内有黄部长的PSTD，楼里之前列举财务报表什么的，其实京吹BD销量最后好像也是左肩的，NICO更不用说了， ...</blockquote>
+莉可莉丝的核心就是BG 这个绝对是日本小丑和超人的故事 蝙蝠侠龙女士还在爬楼梯呢 百合是糖纸罢了
+
+只不过监督没能力做超级英雄片做了个劣质BG
+
+*****
+
+####  aptx8285144  
+##### 25627#       发表于 2025-2-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448843&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-17 15:35</a>
+
+莉可莉丝的核心就是BG 这个绝对是日本小丑和超人的故事 蝙蝠侠龙女士还在爬楼梯呢 百合是糖纸罢了
+
+只不过 ...</blockquote>
+先不管千佛的塑造问题，后续周边千佛和龙奈在一起的周边是真岛的十倍不只，足立和神林就是精神病人，一边和资方卖百合，另一边写轻BG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 25628#       发表于 2025-2-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448736&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 15:25</a>
+
+联动mujica不是猜的么 没实锤吧</blockquote>
+看来是我的内鬼比较快
+
+*****
+
+####  cxj649  
+##### 25629#       发表于 2025-2-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448663&amp;ptid=2208921" target="_blank">NameLess2501 发表于 2025-2-17 15:17</a>
+
+觉得对同一件事的看法不同和中日文化差异有关系。
+
+中国的主流认知是「王侯将相宁有种乎，翻身农奴把歌唱」 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得了吧，现在B站抖音短剧就是王侯将相宁有种
+
+*****
+
+####  wpcc  
+##### 25630#       发表于 2025-2-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448868&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-17 15:38</a>
+
+先不管千佛的塑造问题，后续周边千佛和龙奈在一起的周边是真岛的十倍不只，足立和神林就是精神病人，一边 ...</blockquote>
+此事在电光超人片场亦有记载 狂出百合婚周边的动画有一个算一个都是BG走向
+
