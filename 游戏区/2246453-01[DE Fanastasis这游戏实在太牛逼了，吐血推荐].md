@@ -724,3 +724,32 @@ https://bgm.tv/subject/topic/33083
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qappip  
+##### 57#       发表于 2025-2-17 19:56
+
+我是试下用steam dcek玩 就一个小窗口怎么放大？ 眼睛要瞎了。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  JamesDrapor  
+##### 58#       发表于 2025-2-17 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67450414&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-17 18:10</a>
+
+到最后的村庄伊修托鲁，游戏应该就算结束了吧，主角有了自己的房子，过普通人生活去了 ...</blockquote>
+我理解在那之后还有一个剧情分歧点的，和魔女有关。不过个人感觉意义不是很大……就是 白字→回魔女村破弃圣人契约
+
+另外我这个结局之后应该还是可以有继续追加的内容的啊，毕竟 白字→ 随着魔尘散尽，帝国那边也得给个说法啊
+
+我机制上唯一不满的地方就是游戏内地图它不连着（以及不能自动标记自己已经发现的隐藏路线），以及装备太多没有筛选机制。其他是真的无可挑剔……
+
+剧情上我其实对上古的上古更感兴趣，例如异种和人类最早的出现顺序？为什么混血如此重要？恶魔和人类的交易又是如何起源的呢？还有先王时代的各种事儿
+
+啊啊啊，好想看继续出外传啊。出必买。
+
