@@ -4680,3 +4680,14 @@ chat box 啊
 
 但别的模型又不想买，R1这价格正好到我能接受的程度。而且不止ghs能用。只能是等之后出R2啥的了
 
+
+*****
+
+####  huruii7  
+##### 1889#       发表于 2025-2-17 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444652&amp;ptid=2243718" target="_blank">约翰里德 发表于 2025-2-17 07:53</a>
+
+chat box 啊</blockquote>
+chatbox没法联网
+
