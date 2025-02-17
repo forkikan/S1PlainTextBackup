@@ -3991,3 +3991,85 @@ wsd虽然压榨狠，但也算对企划声优很不错的了，看看老八不�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 25530#       发表于 2025-2-17 13:58
+
+<blockquote>ddy2811 发表于 2025-2-17 13:48
+那就得闹啊现在爱音和猫猫有情绪吗？</blockquote>
+其实是有的，爱音和猫同为c团两外人，爱音就可以理解为猫猫的人间替，“无聊的女人”→“不需要我了吧，你们组crychic去吧”。
+
+爱音打电话催时猫猫也传来炸音响的吉他音
+
+c团到场时猫猫逃彩排→“舞台交给你们”
+
+c团借go团彩排时间唱live，猫猫又秒出现，“还没结束呢还有go团的彩排。”哦又要多等一首啊
+
+爱音只是作为人更读一层空气，还会借吉他，猫猫肯定是不会让人碰猫抓板的，自由自在自然不会强捧鼓掌和挺好颜，不内耗的孩子。
+
+*****
+
+####  595505568  
+##### 25531#       发表于 2025-2-17 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447841&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-17 13:58</a>
+wsd虽然压榨狠，但也算对企划声优很不错的了，看看老八不就是吗，有机会就有起飞的可能，卷就是了
+
+——  ...</blockquote>
+是这样的，期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 25532#       发表于 2025-2-17 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67445986&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-17 10:46</a>
+
+昨天我就说了现在已经不是所谓路人观众了，已经扩大到有的没的都来踩一脚痛打落水狗的状况了。 ...</blockquote>
+第7集13W+同接呢，你能说谁就一定是“有的没的来踩一脚”？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 25533#       发表于 2025-2-17 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447843&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 13:58</a>
+
+其实是有的，爱音和猫同为c团两外人，爱音就可以理解为猫猫的人间替，“无聊的女人”→“不需要我了吧， ...</blockquote>
+但只是这样的话点不炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上一季里遇到状况了就真的人不来了的
+
+*****
+
+####  aptx8285144  
+##### 25534#       发表于 2025-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447843&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-17 13:58</a>
+
+其实是有的，爱音和猫同为c团两外人，爱音就可以理解为猫猫的人间替，“无聊的女人”→“不需要我了吧， ...</blockquote>
+猫猫来看CCC风光大葬的真实原因搞不好是立希在微信里拿芭菲威逼利诱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，她在现场吃的声音可是第一个传入我耳朵
+
+*****
+
+####  wpcc  
+##### 25535#       发表于 2025-2-17 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447792&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-17 13:50</a>
+
+神经，现在还有认为老钟喷都是因为所谓的爱音厨。我看路人一眼扫过去这样的神人乐队神人演出闹麻了的剧情只 ...</blockquote>
+错误的 爱音的同情牌是切入点。为什么不喷爱音 他不是角色吗 ？
+
+所有的路人有喷爱音的吗 没有，那不得了。
+
+*****
+
+####  凉良  
+##### 25536#       发表于 2025-2-17 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67447882&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-2-17 14:02</a>
+
+第7集13W+同接呢，你能说谁就一定是“有的没的来踩一脚”？</blockquote>
+mujica集均也就200W 现在的规模声势是这级别配有的么
+
