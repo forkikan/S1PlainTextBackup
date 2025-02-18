@@ -4660,3 +4660,18 @@ LIVE要表达的情绪我是理解到了，但是表达的方式实在不怎么�
 
 —— 来自 Sony XQ-BE72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sdeplee  
+##### 453#       发表于 2025-2-18 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436342&amp;ptid=2246159" target="_blank">一心而用 发表于 2025-2-15 23:51</a>
+
+前7话好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人</blockquote>
+竟然还是全季好评率最高的一集 笑死
+

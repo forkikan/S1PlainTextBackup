@@ -9613,3 +9613,73 @@ LSL这种底边想跑路是多想不开 go团里面目前有能力有意愿单�
 ccc如果有新歌要卖，直接塞mygo里其实问题也不大，毕竟特典都是送的灯写给祥子的标签。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 不过4月23号发售的6单只有两首歌，位置不太够。
 
+
+*****
+
+####  天空塔书记官  
+##### 26043#       发表于 2025-2-18 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 26044#       发表于 2025-2-18 10:29
+
+怎么这就分行李了，隔壁夕阳红主唱女声优的顶点都没说分行李，你鸡狗这几个除了杨工和鼓子都是nbcs配吗？
+
+
+*****
+
+####  Versedust  
+##### 26045#       发表于 2025-2-18 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454613&amp;ptid=2208921" target="_blank">sdeplee 发表于 2025-2-18 10:23</a>
+LSL这种底边想跑路是多想不开 go团里面目前有能力有意愿单飞的只有羊一个人 现在wsd这各种脑瘫操作但凡她咖 ...</blockquote>
+但李世林真的是大小姐
+
+*****
+
+####  Суслов  
+##### 26046#       发表于 2025-2-18 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454303&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-18 09:56</a>
+主要是这样的，之前老邦也有旧团散伙后面重聚的戏码，现在国内这边不少假药都是建立在ccc必须死的才是好 ...</blockquote>
+大家看完动画理解是这样啊，只能说诗超绊和go13集把大家都骗过去了，这才是顶级叙诡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aritaatsu222  
+##### 26047#       发表于 2025-2-18 10:32
+
+看百综讨论渣女想起来gop还碰瓷过nana，但nana的出轨渣男真的被南京锁穿心创死了，高下立判
+
+*****
+
+####  山ノ内花音  
+##### 26048#       发表于 2025-2-18 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454324&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-18 09:58</a>
+爬了下樓真是鬧麻了，不會是覺得雞狗現在在日本熱度爆炸了吧
+
+拉新效果肯定是有，但也就那樣，新動畫都播了 ...</blockquote>
+武士道能觉得这种剧情有出圈的可能性
+也是这辈子有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+难道指的是烂出圈吗 那确实
+
+*****
+
+####  滑稽Captain  
+##### 26049#       发表于 2025-2-18 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454610&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-2-18 10:23</a>
+
+完整看了下，也就6-11分钟这段，发癫的国内观众能接受吧，多几秒都不行，紧接着就是
+
+ ...</blockquote>
+已经发癫的什么都要否定的那没办法了，本身对于三个团的关系之间的处理主轴能接受的还是不少的吧，只是被实际展现出来的方式点爆了，我自己也是觉得这集大纲上想法没问题的
+
