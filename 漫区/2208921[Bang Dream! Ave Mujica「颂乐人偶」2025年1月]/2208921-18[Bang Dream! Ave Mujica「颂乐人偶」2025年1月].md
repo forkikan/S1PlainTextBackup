@@ -13010,3 +13010,47 @@ MYGO第八话可是飞鸟山之战惊世一跪，mujica要是拿不出什么好�
 
 此事在小时代亦有记载
 
+
+*****
+
+####  吉草加文  
+##### 26360#       发表于 2025-2-18 20:48
+
+集美怎么还演上了
+
+<img src="https://img.saraba1st.com/forum/202502/18/204831xfdfdwdffwtacgfe.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_136855175540575.jpg</strong> (71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-18 20:48 上传
+
+
+*****
+
+####  aptx8285144  
+##### 26361#       发表于 2025-2-18 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460390&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-18 20:36</a>
+
+爆不爆从来不是问题，爆的烂才是问题。真要表演大祥晴天娃娃说不定有些人也会喜闻乐见，互联网就是这么嗜血 ...</blockquote>
+我觉得前面那些爆炸本质是来抽大祥的情况下，后面用大祥再把go团塑造给垫了顺带伤害一下爱音（虽然最后一点也许不是柿本和独角兽的本意），实在很愚蠢的操作，结果就是今天发问你楼还有祥厨吗？今天你有还有祥厨吗，这种灵魂嘲问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 26362#       发表于 2025-2-18 20:52
+
+gbc的爆也是符合角色气质的，毕竟都是一群上艺校或者直接辍学的社会人士，爆的无非也就是小镇青年厂姐厂妹那点东西，扇个巴掌飙个车也合理。但第一部里把成员家境具象化之后，为了配得上背景就要放大故事变形的幅度，开小货车的矛盾是10，坐迈巴赫（还是pullman<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）的矛盾就要上到100，但最后还是落在JK之间的关系性上，所以🐔团要不断往后压，越早端出来越撕裂，从这一点上我还挺理解他们的
+
+*****
+
+####  aritaatsu222  
+##### 26363#       发表于 2025-2-18 20:54
+
+<blockquote>吉草加文 发表于 2025-2-18 20:48
+集美怎么还演上了</blockquote>
+河豚知道腐女算河豚吗
+

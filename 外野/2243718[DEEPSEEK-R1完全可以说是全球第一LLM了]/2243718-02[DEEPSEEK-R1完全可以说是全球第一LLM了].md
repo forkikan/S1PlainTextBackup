@@ -4895,3 +4895,14 @@ Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2�
 
 马圣砸钱鸡血到这个程度也就这样了，感觉他造火箭还行，造ai是差了点
 
+
+*****
+
+####  有鱼  
+##### 1908#       发表于 2025-2-18 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460418&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-2-18 20:40</a>
+
+马圣砸钱鸡血到这个程度也就这样了，感觉他造火箭还行，造ai是差了点</blockquote>
+源神这个新模型完全就是强鳖新闻，就看鲸鱼哥啥时候有新的大的了
+
