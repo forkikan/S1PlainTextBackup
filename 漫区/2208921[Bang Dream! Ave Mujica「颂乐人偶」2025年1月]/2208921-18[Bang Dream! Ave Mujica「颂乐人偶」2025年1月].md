@@ -13487,3 +13487,60 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
 
 不如说就是大祥（主人公）痿了傻了结局
 
+
+*****
+
+####  zhoujin8584  
+##### 26409#       发表于 2025-2-18 21:59
+
+[一种分析](https://tieba.baidu.com/p/9504056097?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.78.1.1&amp;st=1739887134&amp;is_video=false&amp;unique=71181A165102899A31B7E949A9DE5AE2)
+
+<img src="https://img.saraba1st.com/forum/202502/18/215953mreeoozcjrgz5cg4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_700125760516576.jpg</strong> (815.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 21:59 上传
+
+*****
+
+####  aritaatsu  
+##### 26410#       发表于 2025-2-18 22:00
+
+之前滑那么多文化差异，我觉得真正的文化差异只有
+
+1不回消息很正常
+
+2阶级问题不重要
+
+这两点
+
+小圈子的上下等级更属于读空气文化的一部分，爱音路边的点不是上下等级，而且她不能做为剧情瞩目的中心，这个位置要让给主推
+
+然后偏偏1惹到爱厨2是牢中大部分人雷区，很无解
+
+*****
+
+####  是谁的书画  
+##### 26411#       发表于 2025-2-18 22:02
+
+ 本帖最后由 是谁的书画 于 2025-2-18 22:06 编辑 
+
+感受到了大祥和农的社会地位格差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大祥：一切的始作俑者，被人簇拥爱着，不用承担责任，别人向她认错，情绪爆炸
+
+农：纯路人，被队友嫌弃，没事也要接锅，没事挨人喷，情绪稳定
+
+逆天人设了属实
+
+不过别人是十五年未见之大女主，这么想倒也正常。只能为wsd的人气错判感到遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 26412#       发表于 2025-2-18 22:04
+
+不不不不，日本人对于已读不回看得比中国人还严重的多得多吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
