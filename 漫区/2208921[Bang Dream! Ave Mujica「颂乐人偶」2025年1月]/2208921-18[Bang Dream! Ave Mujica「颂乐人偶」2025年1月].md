@@ -14136,3 +14136,74 @@ go13结尾soyo和灯说的一辈子忘不了ccc都可以解读成对暗号，只
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 26458#       发表于 2025-2-18 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461627&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-18 23:23</a>
+但至少手游上 千早爱音 这角色待遇不错</blockquote>
+毕竟爱音的角色形象(不单指外貌）还是挺招人喜欢的，线索人物戏份也多
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  结衣小比取  
+##### 26459#       发表于 2025-2-18 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461625&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 23:23</a>
+
+看了一眼贴吧，才注意到红绿灯也来看过go团的演出，给爱音加油过，不知道是哪一集233 ...</blockquote>
+坛友说的这个嘛？
+
+<img src="https://img.saraba1st.com/forum/202502/18/233015vno3n7ixzaei0oo3.jpg" referrerpolicy="no-referrer">
+
+<strong>同学助威.jpg</strong> (451.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 23:30 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  南宮凝香  
+##### 26460#       发表于 2025-2-18 23:33
+
+<img src="https://img.saraba1st.com/forum/202502/18/233141ivhlab4hdhl9vq4h.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5669.png</strong> (501.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 23:31 上传
+
+WSD 知道自己不在乎樂團的關鍵人物嗎？
+
+*****
+
+####  zhoujin8584  
+##### 26461#       发表于 2025-2-18 23:33
+
+<blockquote>凉良 发表于 2025-2-18 22:53
+我都快理解不了大X传的意思了
+
+以前几个被叫大X传的不都是主角解决一切其他人全程工具人么。  祥子这前面七 ...</blockquote>
+并非……这算是一个性别敘诡，可以问一下身边的女性友人《大X传》是什么意思，也算是论坛里的女性萌萌人的一种小调戏
+
