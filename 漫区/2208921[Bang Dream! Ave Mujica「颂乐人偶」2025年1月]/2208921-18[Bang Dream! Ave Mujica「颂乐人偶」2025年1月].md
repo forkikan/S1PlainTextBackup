@@ -13448,3 +13448,42 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗<img src="http
 
 你楼说那位也喜欢大祥吗，感觉又要看到了大笑话一样的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高贵的  
+##### 26405#       发表于 2025-2-18 21:49
+
+要是大猫真是个没皮没脸纯势利的人，那喜欢上现在的祥子不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu  
+##### 26406#       发表于 2025-2-18 21:50
+
+56话那些，看起来很出的言行(不告而别，迈巴赫，一个月不找，不认识木头)，在编剧眼里不算罪过而是惩罚，这样一倒扣，23话加压木头的债从那个时候就算成是开始还，到第7话或许算堪堪还完，但牢中观众不这么认为，还突然又加上了明知道木头不满意演奏水平的债，罪加一等
+
+
+*****
+
+####  zhoujin8584  
+##### 26407#       发表于 2025-2-18 21:50
+
+<blockquote>helloo23 发表于 2025-2-18 21:38
+lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
+楼里激烈的粉圈斗争滑坡罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 26408#       发表于 2025-2-18 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460875&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 21:37</a>
+
+而且我感觉这周大祥对自己的领导力问题真得有什么深刻的反省吗，感觉没看出来，更多是她个人对睦的愧疚， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大祥其他哈气人什么的也就那样
+
+就算想看凤傲天的观众看到这白祥也痿了
+
+不如说就是大祥（主人公）痿了傻了结局
+
