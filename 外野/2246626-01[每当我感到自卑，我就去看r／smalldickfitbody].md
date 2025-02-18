@@ -1,0 +1,364 @@
+﻿
+*****
+
+####  东京打工妹  
+##### 1#       楼主       发表于 2025-2-18 13:59
+
+<img src="https://p.sda1.dev/22/1c3d03dc7ef5771a66110adeef70cdb9/image.jpg" referrerpolicy="no-referrer">
+里面全是希腊雕塑一般的健美身躯配着希腊雕塑般的微缩小牛，尤其是刻板印象里以大著称的白男居多，有的梆硬长度也只有个位数
+
+翻几个就会觉得自己这12，13的也不是什么大问题了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LANGWANG  
+##### 2#       发表于 2025-2-18 14:01
+
+打药打萎缩了....(希腊雕塑的身材很好，但代价是什么呢
+
+*****
+
+####  生年不满百  
+##### 3#       发表于 2025-2-18 14:01
+
+我记得白人跟黄人鸡儿平均数值差不多
+
+*****
+
+####  我是大鲨鱼1453  
+##### 4#       发表于 2025-2-18 14:02
+
+不如去看几个大dio男娘的视频洗洗眼，那么大的本钱最后也只能干这个，对吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  东京打工妹  
+##### 5#         楼主| 发表于 2025-2-18 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456932&amp;ptid=2246626" target="_blank">LANGWANG 发表于 2025-2-18 14:01</a>
+打药打萎缩了....(希腊雕塑的身材很好，但代价是什么呢</blockquote>
+看着应该大部分都是自然的，肩膀没外翻，体脂也是纸包鸡
+
+*****
+
+####  ak123  
+##### 6#       发表于 2025-2-18 14:02
+
+ 本帖最后由 ak123 于 2025-2-18 14:05 编辑 
+
+按照你的描述这吧不典型的九龙拉棺受害者，不光性能力，你的寿命也是他们的好几倍呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且不要觉得只有兽化贵物才用药，欧米很多天赋不好又想不练就维持低体脂和肌肉的也在用药,那边已经彻底烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小李子大脸猫  
+##### 7#       发表于 2025-2-18 14:04
+
+也就EDFC这种地方之前喜欢聚众划胖
+
+*****
+
+####  纸皮  
+##### 8#       发表于 2025-2-18 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">感觉你是观鸟爱好者
+
+*****
+
+####  变老的大二  
+##### 9#       发表于 2025-2-18 14:06
+
+请问是专门搜索之后点开nsfw的贴子去看男人dick的木柜子先生吗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 是挞不是派| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  痴货  
+##### 10#       发表于 2025-2-18 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 承认吧，其实你只是想看鸡儿，还要这么傲娇地找场子。
+
+“这鸡儿也俊，这蛋也小巧”.jpg
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nexus1| + 1||
+
+查看全部评分
+
+*****
+
+####  烤肉饭  
+##### 11#       发表于 2025-2-18 14:09
+
+说你不是给，大伙都不信。
+
+*****
+
+####  保科智子  
+##### 12#       发表于 2025-2-18 14:15
+
+12，13有什么问题，gay也有长度焦虑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  InfiniteGyre  
+##### 13#       发表于 2025-2-18 14:15
+
+Why are you gay?
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  暴力s  
+##### 14#       发表于 2025-2-18 14:17
+
+阿克琉斯之踵了说是
+
+*****
+
+####  Schwarzess  
+##### 15#       发表于 2025-2-18 14:29
+
+gay as fuck.
+you guy are gay as fuck.<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  东京打工妹  
+##### 16#         楼主| 发表于 2025-2-18 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457019&amp;ptid=2246626" target="_blank">保科智子 发表于 2025-2-18 14:15</a>
+12，13有什么问题，gay也有长度焦虑？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+主要我是血牛牛，平时只有4厘米小小一团，冷的时候甚至能缩到只探半个头
+到公共换衣室之类的地方多少是有点自卑的，总不能把自己搓硬了再换裤子吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ifrush  
+##### 17#       发表于 2025-2-18 14:34
+
+不吝赞美的评论看笑了，gay是不是就喜欢这一款的。
+
+*****
+
+####  Chanond  
+##### 18#       发表于 2025-2-18 14:38
+
+瞳孔地震<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂暴的菜鸡  
+##### 19#       发表于 2025-2-18 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢看牛就直说
+
+*****
+
+####  modedd  
+##### 20#       发表于 2025-2-18 14:45
+
+也就是说
+每当你陷入自卑，情绪低落的时候都会靠上互联网搜索男人的OO来看并以此振作起来?
+bro……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  方舟售票员  
+##### 21#       发表于 2025-2-18 14:49
+
+白男什么时候以大著称了？
+
+*****
+
+####  mandown  
+##### 22#       发表于 2025-2-18 15:11
+
+你去错地方了，应该去的是r/homosexuality
+
+*****
+
+####  赤月知佳  
+##### 23#       发表于 2025-2-18 15:13
+
+你看个几把<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jockeyjoestar  
+##### 24#       发表于 2025-2-18 15:30
+
+已阅 
+
+LZJJ小 
+
+*****
+
+####  hsyg  
+##### 25#       发表于 2025-2-18 15:36
+
+too much gay
+
+*****
+
+####  我的天呐  
+##### 26#       发表于 2025-2-18 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">gay
+
+*****
+
+####  masonknight  
+##### 27#       发表于 2025-2-18 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">太gay了
+
+*****
+
+####  ywydsd  
+##### 28#       发表于 2025-2-18 15:40
+
+你真的不是gay吗？！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  樽——見  
+##### 29#       发表于 2025-2-18 15:41
+
+这那的，想看牛牛直说
+
+*****
+
+####  首领  
+##### 30#       发表于 2025-2-18 15:46
+
+牛的，还能偷希腊雕塑雕图的。
+
+*****
+
+####  requiem116  
+##### 31#       发表于 2025-2-18 15:48
+
+点开看了下，小的倒是也挺小，但是身材并没有很好，lz其实就是想看吊吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 32#       发表于 2025-2-18 15:50
+
+13-14就是全球的平均长度
+
+*****
+
+####  auirerx  
+##### 33#       发表于 2025-2-18 15:50
+
+华语第一同性交友论坛
+
+*****
+
+####  ArowRocher  
+##### 34#       发表于 2025-2-18 15:53
+
+你再去/SPH享受一下被辱骂吧
+
+*****
+
+####  zhaozhuzhu  
+##### 35#       发表于 2025-2-18 15:58
+
+你是发帖机？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lilisipis  
+##### 36#       发表于 2025-2-18 16:10
+
+<blockquote>我是大鲨鱼1453 发表于 2025-2-18 14:02
+不如去看几个大dio男娘的视频洗洗眼，那么大的本钱最后也只能干这个，对吧 ...</blockquote>
+那么在哪里可以看到呢
+
+*****
+
+####  isis520  
+##### 37#       发表于 2025-2-18 17:31
+
+屁大点事，我勃起才10CM，但是这不妨碍我的战斗力
+
+前戏和持久力很重要，我年轻的时候一夜三次不成问题
+
+我也为之苦恼过，为此还问过迷路小姐姐，小姐姐说我这还可以，正常的
+
+*****
+
+####  GFF  
+##### 38#       发表于 2025-2-18 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458977&amp;ptid=2246626" target="_blank">isis520 发表于 2025-2-18 17:31</a>
+
+屁大点事，我勃起才10CM，但是这不妨碍我的战斗力
+
+前戏和持久力很重要，我年轻的时候一夜三次不成问题</blockquote>
+迷路小姐姐但凡情商正常都会这么说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你boqi 5cm也不影响
+
+*****
+
+####  月神夜  
+##### 39#       发表于 2025-2-18 18:26
+
+居然有这种地方
+
+小小的也很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aithinkso  
+##### 40#       发表于 2025-2-18 18:35
+
+Not interested.
+Anyway
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  寇马可  
+##### 41#       发表于 2025-2-18 18:45
+
+打了药jb会缩吧，属于本末倒置了
+
