@@ -11459,3 +11459,44 @@ wsd别卖蛋白棒了，改卖破壁菌子粉得了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 26207#       发表于 2025-2-18 13:50
+
+手游这套新图猫猫和灯也太像了，还以为两张都是灯
+
+*****
+
+####  单脚着地  
+##### 26208#       发表于 2025-2-18 13:53
+
+<img src="https://img.saraba1st.com/forum/202502/18/135246yj4ojne7o4b1ei7x.jpg" referrerpolicy="no-referrer">
+
+<strong>1000024121.jpg</strong> (158.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:52 上传
+
+上一季这一卡的画面让我相信大猫确实对祥子有意思<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 26209#       发表于 2025-2-18 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456651&amp;ptid=2208921" target="_blank">嵇翱u 发表于 2025-2-18 13:24</a>
+还得是手游端水吧，爱灯，猫灯，素希</blockquote>
+我最爱的爹妈组<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">好耶
+
+*****
+
+####  安娜导函数  
+##### 26210#       发表于 2025-2-18 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456704&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-18 13:31</a>
+海玲啥时候加入的Mygo?  我只是在想，那些觉得CCC真的下葬的人，如果后面母鸡卡也来一版春日影，要怎么圆 ...</blockquote>
+海玲是那种只要参与过都会算在自己记录里的那种吧，她也参与过mygo的排练，四舍五入也算加入过mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
