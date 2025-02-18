@@ -13675,3 +13675,150 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
 让观众的观感和 ...</blockquote>
 一个工期自由的动画，当然是要给得排场地排人员排幕后大半年的live让路的，拖两集动画片罢了，哪有炒作重要
 
+
+*****
+
+####  YF31  
+##### 26425#       发表于 2025-2-18 22:17
+
+ 本帖最后由 YF31 于 2025-2-18 22:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461101&amp;ptid=2208921" target="_blank">俾斯麥 发表于 2025-2-18 22:06</a>
+
+这事怪不到独角兽头上了，人家在23年底就切割了，母鸡卡更是连制作画面都没看到，全是柿本自己独断专权在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">签字的系构能这么轻易切割掉编剧责任，我看这中年樱花厕妹的推特办公还是挺有效的嘛。
+
+实际上只要她的名字还是Bangdream Avemujica的唯一系构，剧情崩坏的责任她就跑不掉。
+
+*****
+
+####  cxj649  
+##### 26426#       发表于 2025-2-18 22:17
+
+ 本帖最后由 cxj649 于 2025-2-18 22:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">我估计老钟绝大部分代入 爱音这个<strong>黄毛</strong>心虚越想越气暴走了
+
+另一个方面大祥现在塑造也烂尾的关系，大祥这个追妻火葬场力度实在不够了233
+
+*****
+
+####  aptx8285144  
+##### 26427#       发表于 2025-2-18 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461101&amp;ptid=2208921" target="_blank">俾斯麥 发表于 2025-2-18 22:06</a>
+
+这事怪不到独角兽头上了，人家在23年底就切割了，母鸡卡更是连制作画面都没看到，全是柿本自己独断专权在 ...</blockquote>
+但是独角兽的名字还在母鸡卡op画面里面呀<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，剧本统筹，你可以去翻，估计不是和几位脚本家有点交流，就是提供了一个大纲，锅不好说完全没有
+
+
+*****
+
+####  adretyu67.  
+##### 26428#       发表于 2025-2-18 22:22
+
+在怎么切割，这个第七话ccclive的大纲真能切割掉吗。。。
+
+*****
+
+####  aritaatsu  
+##### 26429#       发表于 2025-2-18 22:23
+
+ 本帖最后由 aritaatsu 于 2025-2-18 22:25 编辑 
+
+就算大量代代暴走也需要有一个引子，要真的只是箭头都给别人暴走了找的理由太烂也不会有那么多人共鸣
+
+&amp;
+
+作品没制作完就跑不代表就不用给作品负责了，与同事协调一样是责任与能力的一部分，除非有理由她是受到恶劣的不可抗力被职场80踢出，否则就只是角跑跑
+
+只要是这个作品的责任人，不管是写了烂了，还是没写烂了，都难辞其咎
+
+*****
+
+####  与太郎  
+##### 26430#       发表于 2025-2-18 22:23
+
+爱音第7话那个表情我看楼里不是提过吗
+
+感觉不如：[https://www.pixiv.net/artworks/127142032](https://www.pixiv.net/artworks/127142032)
+
+<img src="https://img.saraba1st.com/forum/202502/18/221932y4fvm4zttmccc5zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (257.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222052d1mhhvy4no61m9mx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (398.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222059zk5xetsq983ea90l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (302.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222115rklkcdlwx977w89d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222123tg388ajl67am3ggb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (301.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222129janzxz6dfq9ddm1u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (375.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222200sdmzhn4t4e3qevum.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (307.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222210x8g2dfhgdea3fgpu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (358.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222224xpnn58cfzk5fczlk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (349.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/222234od12w3yx32yd0izq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (228.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 22:22 上传
+
