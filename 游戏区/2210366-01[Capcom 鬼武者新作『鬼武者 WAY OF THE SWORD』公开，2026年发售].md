@@ -801,3 +801,18 @@ Gj3uFAUaEAAGlKf.jpg
 多边形上去了，没用的细节变多了，贴图胡掉了。光打的也很难看。
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 171#       发表于 2025-2-19 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461741&amp;ptid=2210366" target="_blank">Piano-Forest 发表于 2025-2-18 23:46</a>
+
+宫本武藏
+
+血气方刚的武者，为在剑道上登峰造极而现身京都。但其修行之路，恐会无比曲折离奇。</blockquote>
+背景一片黑，前景一片紅。可讀性與但丁爬樹根不相上下。
+
+真該換祇的美術總監來重做吧。
+

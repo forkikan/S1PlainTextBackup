@@ -14375,3 +14375,25 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 
 我觉得这段剧情应该就是导演留的暗示，说第七集后半剧情是小睦的幻想。
 
+
+*****
+
+####  小博禹  
+##### 26477#       发表于 2025-2-19 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462140&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-19 02:04</a>
+素世来送黄瓜的袋子，和当初小睦用的袋子是一模一样的，这太诡异了吧。。。
+
+从场外因素看，导演采访时还说 ...</blockquote>
+第七集都是梦，一切还可以重来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  高贵的  
+##### 26478#       发表于 2025-2-19 02:13
+
+如果母鸡卡是个有无限篇幅的动画那我觉得幻想说也不是没有可能，但并不是，那我就得问一问了拿半集出来耍一下观众的意义是？
+
