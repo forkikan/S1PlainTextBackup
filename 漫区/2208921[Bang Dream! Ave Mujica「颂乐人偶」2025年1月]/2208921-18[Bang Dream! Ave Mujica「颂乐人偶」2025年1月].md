@@ -11190,3 +11190,13 @@ CCC 卡包是在MyGo X 母雞卡 卡包出
 
 也难怪李子跟茜贴得多，跟别人贴也属实贴不上，本质上还是前后辈关系啊
 
+
+*****
+
+####  影伴光生  
+##### 26188#       发表于 2025-2-18 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说扒饭海铃的含金量还在上升，要不然确实难以理解为啥不能兼职那三十来个（含三分之二没人来的）乐队
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

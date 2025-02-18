@@ -1163,3 +1163,14 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blueelf  
+##### 93#         楼主| 发表于 2025-2-18 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456288&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-18 12:43</a>
+
+同一个图小怪和小怪数值跃升也很大，这个游戏是鼓励一个地图打不过去换一张的吧，我担心开的图一多就不记得 ...</blockquote>
+游戏有靠地图上小怪分色来区分强度，普通色是弱鸡，红色就是强敌，遇强敌万一在一两个轮次逃跑失败可能损失惨重，所以这样的设计让玩家一目了然，明白躲怪的重心在哪里
+

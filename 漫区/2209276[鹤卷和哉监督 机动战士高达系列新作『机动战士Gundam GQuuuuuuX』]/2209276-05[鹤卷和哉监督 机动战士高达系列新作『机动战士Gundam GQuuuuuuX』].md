@@ -15084,3 +15084,73 @@ GQX显示为未登记
 GQX显示为未登记</blockquote>
 对比右边扎古，AAA才是机体名吧，3LANK才是驾驶员名才对。另外这图哪来的
 
+
+*****
+
+####  YU_JI  
+##### 7076#       发表于 2025-2-18 12:59
+
+<blockquote>刺客ares 发表于 2025-2-18 12:03
+牢修在军团战登记的驾驶员名称为“AAA”
+
+红高达登记的机体名称为“3LANK”
+
+GQX显示为未登记
+</blockquote>
+AAA性感背心电波男（）
+
+*****
+
+####  刺客ares  
+##### 7077#       发表于 2025-2-18 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456350&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-18 12:52</a>
+
+对比右边扎古，AAA才是机体名吧，3LANK才是驾驶员名才对。另外这图哪来的</blockquote>
+
+第一批机械胶片里的，上面名称没说错，这个是电视里的军团战直播画面
+
+<img src="https://img.saraba1st.com/forum/202502/18/125801by4zyq5zdi41dltl.jpg" referrerpolicy="no-referrer">
+
+<strong>ba25ae4c5052c1fb3792e438dd39648.jpg</strong> (201.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 12:58 上传
+
+
+*****
+
+####  YU_JI  
+##### 7078#       发表于 2025-2-18 13:00
+
+ 本帖最后由 YU_JI 于 2025-2-18 13:03 编辑 
+<blockquote>刺客ares 发表于 2025-2-18 12:03
+牢修在军团战登记的驾驶员名称为“AAA”
+
+红高达登记的机体名称为“3LANK”
+
+GQX显示为未登记
+</blockquote>
+
+是blank吧，那个3是B的字体吧
+
+*****
+
+####  0aleph37  
+##### 7079#       发表于 2025-2-18 13:00
+
+编辑
+
+*****
+
+####  刺客ares  
+##### 7080#       发表于 2025-2-18 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456426&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-18 13:00</a>
+
+是blank吧，那个3是B的字体吧</blockquote>
+也有可能是特殊字体，但写的也太像3了
+
+用在这的意思是“BLANK”倒是都一样
+
