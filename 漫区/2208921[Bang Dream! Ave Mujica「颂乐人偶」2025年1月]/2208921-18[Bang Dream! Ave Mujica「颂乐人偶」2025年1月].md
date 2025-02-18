@@ -10505,3 +10505,124 @@ busuz第七话比较刻意的是墨主动下线换黄瓜上来。
 
 其实言情的进步还是有的，之前补朝贺庵大神的小早我啊，被渣的苦主前女友委曲求全，连月经来都担心不能草了男友会不会嫌弃自己，最后依然选择了主动分手抛弃渣男成为事业大女人
 
+
+*****
+
+####  ape-apple  
+##### 26121#       发表于 2025-2-18 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455383&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-18 11:26</a>
+要不你再仔细看看这几个“歌名”是什么东西呢</blockquote>
+草，真有人被骗了啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 26122#       发表于 2025-2-18 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455331&amp;ptid=2208921" target="_blank">丹德里恩 发表于 2025-2-18 11:23</a>
+
+原来海铃不是在串</blockquote>
+目前母鸡卡里出现的台词没有串的，海玲这里也没串的必要。
+
+只是这个嫉妒的说法，很微妙，不觉得目前的十本导演把握得住其中的平衡点。
+
+*****
+
+####  ape-apple  
+##### 26123#       发表于 2025-2-18 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455431&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-18 11:30</a>
+专辑名：一坨矢
+
+曲目：
+
+1、成人曲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">你猜我知不知道
+
+*****
+
+####  595505568  
+##### 26124#       发表于 2025-2-18 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455422&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 11:29</a>
+本子二次元还是进步慢了，白2浮气线不共戴天也就往楼下站几天，现在也还是楼下站几天，或者说社会停滞了。
+
+ ...</blockquote>
+日本89年后社会就按下暂停键了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在更是恶化了，没法子咯
+
+*****
+
+####  刑部姬真可爱  
+##### 26125#       发表于 2025-2-18 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455447&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 11:32</a>
+
+第五集之后对编剧的思考只剩下他是在第一层还是在第一层了吧</blockquote>
+应该是思考编剧属于负一层（逻辑失衡），零层（样板公式）还是第一层（平铺直叙）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 26126#       发表于 2025-2-18 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455479&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 11:34</a>
+
+草，真有人被骗了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我动画观众，不听歌的啊
+
+*****
+
+####  6030sylar  
+##### 26127#       发表于 2025-2-18 11:39
+
+乌咪铃肯定是被bro怼了一直惦记着，
+
+“立希骂我对鸡不上心所以我要复活鸡”
+
+就是立希全肯定bot，你小子暗恋立希直说啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 26128#       发表于 2025-2-18 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455447&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 11:32</a>
+
+第五集之后对编剧的思考只剩下他是在第一层还是在第一层了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是李子说的悬疑片，太刺激了
+
+
+*****
+
+####  595505568  
+##### 26129#       发表于 2025-2-18 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455524&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-18 11:37</a>
+我动画观众，不听歌的啊</blockquote>
+那就看封面一眼中文一坨shi（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我就出脑了
+
+*****
+
+####  wwwttth  
+##### 26130#       发表于 2025-2-18 11:40
+
+日本人这么喜欢内心独白小作文么，我看好多日本人觉得这是加分项，已经无法理解了。
+
+*****
+
+####  cherryjia12  
+##### 26131#       发表于 2025-2-18 11:41
+
+家人们切割真的有用
+看了眼b站现在风评已经成柿本罪大滔天兽娘二精神传人，🦄驼鹿再世剧本被改处处被针对
+🦄孝子有这翻访谈脑补的功夫不如众筹让🦄自己当监督<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+当然如果换🦄推特被冲一千条估计得跳了，那还是柿本来承担吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 26132#       发表于 2025-2-18 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还有睦头补习，其实是牢墨上过几天课发现不识字所以才缩家里吧（雾
+
