@@ -792,3 +792,12 @@ Gj3uFAUaEAAGlKf.jpg
 <img src="https://p.sda1.dev/22/6be8f75f01a265956b6b63b20484bbf7/20250218_233728.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/95b90c3a1a98c4c2fb5785119c80c48c/Onimusha-Way-of-the-Sword_2025_02-12-25_011.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 170#       发表于 2025-2-19 00:45
+
+多边形上去了，没用的细节变多了，贴图胡掉了。光打的也很难看。
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

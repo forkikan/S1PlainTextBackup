@@ -14312,3 +14312,29 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 大墨老师确实是老演员了，上一集还在那装模做样拿着个鞋打电话硬控素世三天三夜，这一集就被素世带着大象单 ...</blockquote>
 对头，非常刻意，这不是会用手机吗？
 
+
+*****
+
+####  凉良  
+##### 26472#       发表于 2025-2-19 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461750&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-2-18 23:48</a>
+
+大x传原本是指大如传，也就是甄嬛传后续如懿传，如懿传女主就是个跟甄嬛完全相反凡事不争不抢全靠手下当 ...</blockquote>
+那之前星2怎么被叫成大香传的
+
+*****
+
+####  蒹葭公子  
+##### 26473#       发表于 2025-2-19 00:52
+
+ 本帖最后由 蒹葭公子 于 2025-2-19 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461997&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-19 00:51</a>
+
+那之前星2怎么被叫成大香传的</blockquote>
+那纯粹是电竞烂哏吧……
+
+大香是对标大司、大飞的……
+
+顺便一提叫大祥老师也是这个哏，大X传是不会加老师的，你想想香音有没有被叫大香老师……
+
