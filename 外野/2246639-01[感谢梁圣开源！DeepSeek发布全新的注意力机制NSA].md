@@ -1,0 +1,360 @@
+﻿
+*****
+
+####  overflowal  
+##### 1#       楼主       发表于 2025-2-18 15:58
+
+[https://arxiv.org/abs/2502.11089](https://arxiv.org/abs/2502.11089)
+
+Deepseek官方就在Grok3发布时在推上发了论文，这个新的机制作用是在不损失性能的情况下，大幅加速训练和推理，特别是在长上下文场景
+
+<img src="https://img.saraba1st.com/forum/202502/18/155646debzprenixfe86eb.png" referrerpolicy="no-referrer">
+
+<strong>GkDUMe3aAAMyB04.png</strong> (156.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 15:56 上传
+
+*****
+
+####  moekyo  
+##### 2#       发表于 2025-2-18 16:03
+
+以后我也可以预测deepseek什么时候掏东西了 --&gt; 只要美国有任何AI相关的发布，后面就是了，真就追着打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡文分则能成  
+##### 3#       发表于 2025-2-18 16:04
+
+这真的不是故意的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这是第二次了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  星花  
+##### 4#       发表于 2025-2-18 16:07
+
+高端炒股。
+
+*****
+
+####  枯风瘦雪  
+##### 5#       发表于 2025-2-18 16:08
+
+源神刚展示了一把力大砖飞，DS就同步展示了一种精耕细作思路，梁sir这个团队很会玩
+
+*****
+
+####  gearh  
+##### 6#       发表于 2025-2-18 16:09
+
+Counter Hit
+
+*****
+
+####  中国人  
+##### 7#       发表于 2025-2-18 16:10
+
+Natively trainable Sparse Attention不是该缩写为NTSA吗，就是为了蹭NSA（美国国家安全局）吗？
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 8#       发表于 2025-2-18 16:11
+
+这是在打牌啊
+
+*****
+
+####  枯风瘦雪  
+##### 9#       发表于 2025-2-18 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458095&amp;ptid=2246639" target="_blank">中国人 发表于 2025-2-18 16:10</a>
+
+Natively trainable Sparse Attention不是该缩写为NTSA吗，就是为了蹭NSA（美国国家安全局）吗？ ...</blockquote>
+应该觉得稀疏性是最重要的技术特征吧，也合理的
+
+*****
+
+####  med  
+##### 10#       发表于 2025-2-18 16:15
+
+各种Attention不是刷文章利器么。。。
+
+*****
+
+####  无畏的巴利斯坦  
+##### 11#       发表于 2025-2-18 16:17
+
+“对不起，之前玩量化玩惯了”
+
+*****
+
+####  菠萝剑3000  
+##### 12#       发表于 2025-2-18 16:31
+
+不是这个专业的看不懂，有没有省流版的告诉我，这个论文对老马的股价有影响么？
+
+*****
+
+####  扶扶老奶奶  
+##### 13#       发表于 2025-2-18 16:41
+
+注意力惊人
+
+*****
+
+####  云卷花开  
+##### 14#       发表于 2025-2-18 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以长上下文大输出长度的 r1 新版本是不是快发布了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  nvis  
+##### 15#       发表于 2025-2-18 16:44
+
+狙击美股，常规操作而已
+
+*****
+
+####  sellboy  
+##### 16#       发表于 2025-2-18 16:47
+
+我感觉o3和grok3跑分模式的使用成本应该已经不对劲了，API开放的过程就拧巴，既不敢开价又不敢放任用，一种没法不亏只能少亏的态度。
+
+而DS我认为就是继续拓展了经济性可接受模型的性能空间。
+
+*****
+
+####  枯风瘦雪  
+##### 17#       发表于 2025-2-18 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458341&amp;ptid=2246639" target="_blank">菠萝剑3000 发表于 2025-2-18 16:31</a>
+
+不是这个专业的看不懂，有没有省流版的告诉我，这个论文对老马的股价有影响么？ ...</blockquote>
+还是延续了deepseek一贯的路线，在受限成本投入下提升模型训练效能降低训练成本，某种程度上也暗示了自己的下一代产品有望在长上下文场景取得进步
+
+和源神那个继续力大砖飞成倍算力换10%提升的成果算是南辕北辙吧，资本会怎么解读不好说，但是Deepseek在自己的路线上还有创新空间和创新成果对普惠性的大模型肯定是有好处的
+
+*****
+
+####  pwzzy  
+##### 18#       发表于 2025-2-18 16:53
+
+面向美股编程
+
+*****
+
+####  CR2  
+##### 19#       发表于 2025-2-18 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">谁说ds不会炒股，这不是控制股市是什么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  UNICORN00  
+##### 20#       发表于 2025-2-18 16:55
+
+抄底牢马（
+
+*****
+
+####  cleaner  
+##### 21#       发表于 2025-2-18 16:59
+
+真就做空美股是deepseek的盈利方式啊？
+
+*****
+
+####  Jussl  
+##### 22#       发表于 2025-2-18 16:59
+
+提前开空TSLA
+
+*****
+
+####  zzt955  
+##### 23#       发表于 2025-2-18 17:01
+
+这逼玩意还是闭源，你看有几个人用就完事了。
+
+*****
+
+####  nukacolamania  
+##### 24#       发表于 2025-2-18 17:04
+
+马督公治不了NSA，还治不了你NSA吗？
+
+明天就去把你门上<img src="https://static.saraba1st.com/image/smiley/animal2017/003.png" referrerpolicy="no-referrer">！
+
+<img src="https://p.sda1.dev/22/5df976cbdb37f1f91f4c34476cd947df/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  黑白君  
+##### 25#       发表于 2025-2-18 17:05
+
+我挺好奇DS团队这些预印本论文后面会正式发表吗？会发在NS上吗？
+
+*****
+
+####  masiro  
+##### 26#       发表于 2025-2-18 17:08
+
+高手过招
+
+*****
+
+####  帕拉米蒂斯  
+##### 27#       发表于 2025-2-18 17:09
+
+话说我好怕美国鬼子来暗杀梁文锋啊
+
+*****
+
+####  云梦泽岸  
+##### 28#       发表于 2025-2-18 17:10
+
+玩量化起家的，不得不联想为什么这时候发布消息了，属实不忘初心。
+
+*****
+
+####  endlessz  
+##### 29#       发表于 2025-2-18 17:11
+
+这个玩着爽，<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  feve9999  
+##### 30#       发表于 2025-2-18 17:15
+
+高端的量化只需要一次time的对齐，梁已经被开除国内量化圈了吧，玩的都不是一个东西了。
+
+*****
+
+####  鸳鸳相抱  
+##### 31#       发表于 2025-2-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458493&amp;ptid=2246639" target="_blank">sellboy 发表于 2025-2-18 16:47</a>
+
+我感觉o3和grok3跑分模式的使用成本应该已经不对劲了，API开放的过程就拧巴，既不敢开价又不敢放任用，一种 ...</blockquote>
+DS自己的服务器根本承载不了实际需求啊
+
+本质是目前的真实需求远超实际算力，但是即使是美帝大厂考虑到未来硬件成本的下降，也不敢现在采购得太多
+
+*****
+
+####  万恶淫猥手  
+##### 32#       发表于 2025-2-18 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">卷完这些卷卷多模态吧，球球了
+
+*****
+
+####  moekyo  
+##### 33#       发表于 2025-2-18 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458826&amp;ptid=2246639" target="_blank">万恶淫猥手 发表于 2025-2-18 17:19</a>
+
+卷完这些卷卷多模态吧，球球了</blockquote>
+一个不咋地的多模态已经开源啦
+
+*****
+
+####  秦南心  
+##### 34#       发表于 2025-2-18 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458035&amp;ptid=2246639" target="_blank">斯卡文分则能成 发表于 2025-2-18 16:04</a>
+
+这真的不是故意的么
+
+这是第二次了吧</blockquote>
+上一次是啥
+
+*****
+
+####  schneehertz  
+##### 35#       发表于 2025-2-18 17:28
+
+球球deepseek卷一下多模态吧，我早看closeai不爽了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Beams!  
+##### 36#       发表于 2025-2-18 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458899&amp;ptid=2246639" target="_blank">秦南心 发表于 2025-2-18 17:24</a>
+
+上一次是啥</blockquote>
+上一次是在星际之门准备搞一个星球大战一样的启动后，推出了R1
+
+*****
+
+####  moody032  
+##### 37#       发表于 2025-2-18 17:32
+
+多模态还有qwen啊
+
+*****
+
+####  qratosones1337  
+##### 38#       发表于 2025-2-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458079&amp;ptid=2246639" target="_blank">枯风瘦雪 发表于 2025-2-18 16:08</a>
+
+源神刚展示了一把力大砖飞，DS就同步展示了一种精耕细作思路，梁sir这个团队很会玩 ...</blockquote>
+实际上力大砖飞就是个笑话，Grok-3在榜单上也就好了一截而已（先不考虑到底是不是高分低能），没有质变，推理成本却高到必须卖40美元一个月的会员才能用，比ChatGPT Plus还贵一倍
+
+*****
+
+####  drodchang  
+##### 39#       发表于 2025-2-18 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459024&amp;ptid=2246639" target="_blank">qratosones1337 发表于 2025-2-18 17:36</a>
+
+实际上力大砖飞就是个笑话，Grok-3在榜单上也就好了一截而已（先不考虑到底是不是高分低能），没有质变， ...</blockquote>
+大力飞砖应该到头了。
+
+*****
+
+####  卡爹  
+##### 40#       发表于 2025-2-18 17:51
+
+这是幻方做空美股啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX733J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  nexus1  
+##### 41#       发表于 2025-2-18 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">多模态第一功能是不是看K线
+
+*****
+
+####  万恶淫猥手  
+##### 42#       发表于 2025-2-18 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458894&amp;ptid=2246639" target="_blank">moekyo 发表于 2025-2-18 17:24</a>
+
+一个不咋地的多模态已经开源啦</blockquote>
+那个 VL2 不大行的，本质上更像是早期研究作品。
+
+另外下论文下来看，发现 Wenfeng Liang 还是 co author？
+
