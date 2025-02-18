@@ -1348,3 +1348,68 @@ https://m.bilibili.com/opus/1033632735051120642
 由手机上传
 2025-2-18 17:45 上传
 
+
+*****
+
+####  シャル  
+##### 16394#       发表于 2025-2-18 18:17
+
+ 本帖最后由 シャル 于 2025-2-18 18:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458997&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-2-18 17:33</a>
+
+观音入风尘这事我前几天考据的时候正巧看到了，元杂剧《月明和尚度柳翠》里的锁骨菩萨：
+
+当初观音大士见 ...</blockquote>
+后面观音化身渔女就更新版本了
+
+公子哥们都想迎娶美人渔女，但渔女的条件是谁背出一整本金刚经还有啥经就嫁给谁
+
+等大家花了三年背完经书，渔女突然就死了‘
+
+路过的和尚说这是观音化身啊，在点化你们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+真的钓鱼不给炮，第一版嫖了观音变成大贤者那群人可不吃亏
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Jamaisvu  
+##### 16395#       发表于 2025-2-18 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459447&amp;ptid=2084912" target="_blank">シャル 发表于 2025-2-18 18:17</a>
+
+后面观音化身渔女就更新版本了
+
+公子哥们都想迎娶美人渔女，但渔女的条件是谁背出一整本金刚经还有啥经就 ...</blockquote>
+空军真就是钓渔佬躲不过的宿命啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 16396#       发表于 2025-2-18 19:05
+
+加杀狐宝具灭气四回合没有轮到源为朝，吃宝具重开
+你狗的高难只有运气要素这唯一一个难点了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  希望之花  
+##### 16397#       发表于 2025-2-19 06:38
+
+还改了双足飞龙和生命体的模组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
