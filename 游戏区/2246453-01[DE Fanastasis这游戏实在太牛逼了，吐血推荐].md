@@ -1244,3 +1244,11 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kyyytu  
+##### 100#       发表于 2025-2-18 16:29
+
+也是快通关了，记录下自己觉得恶心的地图，卡农之棺岩浆区，停尸房，魔界村，雪原，奉龙殿，海底滑冰区，算是恶心的各有特点的几张地图吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
