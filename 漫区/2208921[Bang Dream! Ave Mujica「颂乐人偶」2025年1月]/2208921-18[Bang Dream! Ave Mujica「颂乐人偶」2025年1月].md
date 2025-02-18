@@ -11727,3 +11727,59 @@ E 真人机，被编剧输入“你该嫉妒了”
 
 不是卡牌和周边时尚小垃圾么
 
+
+*****
+
+####  JY要塞  
+##### 26232#       发表于 2025-2-18 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">滚现在连手游都没有
+
+*****
+
+####  一心而用  
+##### 26233#       发表于 2025-2-18 15:12
+
+<img src="https://p.sda1.dev/22/99cd49004126ee06c9133d86c233f21f/006ffQwAgy1hyorjcy8ayj31hc0u07em.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 26234#       发表于 2025-2-18 15:14
+
+想看手游剧情比较好的还是来看RAS吧
+
+至于夕阳红那几章已经是下限了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 26235#       发表于 2025-2-18 15:14
+
+你邦手游反而是现在最不重要的东西了，之前收回来武士道自己运营停更两个月还历历在目
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  非建政专用号  
+##### 26236#       发表于 2025-2-18 15:14
+
+大象老师真是什么工作都能干，就是当不好领导
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 26237#       发表于 2025-2-18 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457523&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-18 15:12</a></blockquote>
+虽然这是睦头，但我要看牢墨识字班
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
