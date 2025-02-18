@@ -966,3 +966,11 @@ Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立
 血迹的事情是这样：有因缘的角色会在血迹这里 ...</blockquote>
 懂了，那我不用自我内耗了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiuwf  
+##### 77#       发表于 2025-2-18 09:19
+
+mark一下 不过RM游戏打折后还要80块钱 感觉还是贵了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
