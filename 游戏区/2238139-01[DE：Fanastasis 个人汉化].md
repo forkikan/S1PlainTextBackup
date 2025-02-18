@@ -62,3 +62,11 @@ bug，同时按两个方向概率斜着卡进去/出来
 
 马<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ftfkjb  
+##### 132#       发表于 2025-2-19 06:27
+
+还能斜着出来，下回卡住试试，感谢你，我卡住之前都走好久，白打那么多挫折感老强了。
+
