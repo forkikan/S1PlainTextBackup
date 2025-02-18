@@ -11634,3 +11634,65 @@ E 真人机，被编剧输入“你该嫉妒了”
 
 这波完美对应海玲是吧
 
+
+*****
+
+####  是谁的书画  
+##### 26222#       发表于 2025-2-18 14:36
+
+从第六集就能看出，海玲属于那种表面云淡风轻不问世事，其实内地里别人一激就忍不住想哈气。
+
+被小女友嘲讽了估计回家越想越气，有一种男人在外被老婆骂没本事的感觉。
+
+“我不是想证明我了不起，我是要告诉人家（立希）我失去的东西我一定要拿回来”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 26223#       发表于 2025-2-18 14:39
+
+这个片场只有猫猫不会被大祥蛊惑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu222  
+##### 26224#       发表于 2025-2-18 14:42
+
+<img src="https://img.saraba1st.com/forum/202502/18/144137ilqiskzks6ju68if.png" referrerpolicy="no-referrer">
+
+<strong>1000034736.png</strong> (74.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 14:41 上传
+
+给朋友发言存个档
+
+*****
+
+####  真爱与热情  
+##### 26225#       发表于 2025-2-18 14:42
+
+哭团的名字有没有版权的，要不重组哭团背刺所有人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。反正大莫老师肯定没意见
+
+
+*****
+
+####  安娜导函数  
+##### 26226#       发表于 2025-2-18 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457175&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-18 14:34</a>
+這貓怎麼長了高松燈面
+
+看了劇情， 回了血</blockquote>
+想到国服活动还要等半年…
+
+*****
+
+####  南宮凝香  
+##### 26227#       发表于 2025-2-18 14:45
+
+<blockquote>安娜导函数 发表于 2025-2-18 14:43
+想到国服活动还要等半年…</blockquote>
+我在台服更不知要等多久……..
+
