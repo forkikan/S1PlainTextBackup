@@ -13544,3 +13544,134 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
 
 不不不不，日本人对于已读不回看得比中国人还严重的多得多吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  俾斯麥  
+##### 26413#       发表于 2025-2-18 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460943&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 21:45</a>
+
+你楼说那位也喜欢大祥吗，感觉又要看到了大笑话一样的剧情，算了，随独角兽，柿本，wsd开心就好 ...</blockquote>
+这事怪不到独角兽头上了，人家在23年底就切割了，母鸡卡更是连制作画面都没看到，全是柿本自己独断专权在玩，真正让人搞不懂的是WSD为啥保柿本而弃用独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu  
+##### 26414#       发表于 2025-2-18 22:07
+
+真的假的，但我跟yhm交易的时候她们能读一整天后才回我，虽然也可能是因为跟我不熟()
+
+*****
+
+####  cxj649  
+##### 26415#       发表于 2025-2-18 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461104&amp;ptid=2208921" target="_blank">aritaatsu 发表于 2025-2-18 22:07</a>
+
+真的假的，但我跟yhm交易的时候她们能读一整天后才回我，虽然也可能是因为跟我不熟() ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请看去年水濑祈事件
+
+*****
+
+####  ape-apple  
+##### 26416#       发表于 2025-2-18 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461053&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 21:59</a>
+一种分析</blockquote>
+写的挺好，有心思看完这一整个帖子的话也可以挽回一部分观感，但是我就说一句哈，猫这里是爱音同路人吗，爱粉就不怕猫下一话直接补了个C团fl真完美，哦摩西罗伊哦那奴口？
+
+*****
+
+####  aritaatsu  
+##### 26417#       发表于 2025-2-18 22:09
+
+<blockquote>是谁的书画 发表于 2025-2-18 22:02
+感受到了大祥和农的社会地位格差
+
+大祥：一切的始作俑者，被人簇拥爱着，不用承担责任，别人向她认错，情绪 ...</blockquote>
+大祥人气也不低啊，就算到现在被抽完了也是保三争二(爱第一，跟睦争)
+
+人气控制失误的或许其实是灯，团内三都未必能保，粉丝消费能力跟猫都分不出上下(
+
+*****
+
+####  cxj649  
+##### 26418#       发表于 2025-2-18 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461113&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 22:08</a>
+
+写的挺好，有心思看完这一整个帖子的话也可以挽回一部分观感，但是我就说一句哈，猫这里是爱音同路人吗， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们才发现这些细节吗
+
+*****
+
+####  z-hunter  
+##### 26419#       发表于 2025-2-18 22:09
+
+其实都是细节问题，只要加一两句对白，加一些小动作，换一些场景，演出效果都不会这么灾难
+
+让观众的观感和导演想表现出来的场景会南辕北辙得那么厉害
+
+如果说第7话很赶了篇幅不够，那为什么5，6会拷打大祥的剧情会拖这么久这么浪费时间
+
+很难相信一个有过实绩的制作组会犯这种错误，所以只会想到他们是故意的，恶意的
+
+但我从来不会低估人的艹台程度，制作组可能真的那么蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aritaatsu  
+##### 26420#       发表于 2025-2-18 22:10
+
+<blockquote>cxj649 发表于 2025-2-18 22:08
+请看去年水濑祈事件</blockquote>
+那那些放置我的yhm真是太坏了，亏我拿文化差距给她们找捕
+
+*****
+
+####  ape-apple  
+##### 26421#       发表于 2025-2-18 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461127&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-18 22:09</a>
+
+你们才发现这些细节吗</blockquote>
+我从五集开始就跳车了，根本没看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 26422#       发表于 2025-2-18 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不好听的
+
+老钟基本大概 心虚
+
+法理，技术水平
+
+那个 你说谁我还不知道吗！！
+
+苏联笑话而已
+
+*****
+
+####  滑稽Captain  
+##### 26423#       发表于 2025-2-18 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461101&amp;ptid=2208921" target="_blank">俾斯麥 发表于 2025-2-18 22:06</a>
+
+这事怪不到独角兽头上了，人家在23年底就切割了，母鸡卡更是连制作画面都没看到，全是柿本自己独断专权在 ...</blockquote>
+虽然没看到制作画面，但依然全程参与了剧本，没必要替人家连自己写的剧本都切割了，给他俩分锅没有意义，脚本团那么多姐妹，难道也要一个一个分锅
+
+*****
+
+####  aritaatsu  
+##### 26424#       发表于 2025-2-18 22:14
+
+<blockquote>z-hunter 发表于 2025-2-18 22:09
+其实都是细节问题，只要加一两句对白，加一些小动作，换一些场景，演出效果都不会这么灾难
+
+让观众的观感和 ...</blockquote>
+一个工期自由的动画，当然是要给得排场地排人员排幕后大半年的live让路的，拖两集动画片罢了，哪有炒作重要
+
