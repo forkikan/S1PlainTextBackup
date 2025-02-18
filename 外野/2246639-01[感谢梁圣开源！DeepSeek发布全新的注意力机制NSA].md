@@ -544,3 +544,22 @@ DS自己的服务器根本承载不了实际需求啊
 
 个人感觉这次应该是幻方手里攒的内容比较多了，就先发布一个，也好保持自己的领先整个ai行业的身份
 
+
+*****
+
+####  长门柚虚  
+##### 61#       发表于 2025-2-19 06:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460493&amp;ptid=2246639" target="_blank">axhtj 发表于 2025-2-18 20:49</a>
+我们单位领导说也要部署d老师，真人人都做的d老师了</blockquote>
+高中校长都说要白板装ds，高中生哪有时间用这个，而且答案也不一定是对的。
+
+*****
+
+####  长门柚虚  
+##### 62#       发表于 2025-2-19 06:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461600&amp;ptid=2246639" target="_blank">sdeplee 发表于 2025-2-18 23:18</a>
+确实得小心车祸</blockquote>
+过年回家都十几个保镖围着呢，应该没事。
+
