@@ -14349,3 +14349,11 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 坛友说的这个嘛？</blockquote>
 绿毛可爱,建议携粉毛加入苏米米组成偶像银河战舰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Amiyanya  
+##### 26475#       发表于 2025-2-19 01:42
+
+立希姐姐这个点是打算当作下一个团成员的伏笔吗
+
