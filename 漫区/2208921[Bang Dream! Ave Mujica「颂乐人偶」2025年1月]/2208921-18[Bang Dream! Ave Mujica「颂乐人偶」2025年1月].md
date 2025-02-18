@@ -11262,3 +11262,112 @@ CCC 卡包是在MyGo X 母雞卡 卡包出
 
 wsd别卖蛋白棒了，改卖破壁菌子粉得了
 
+
+*****
+
+####  wzm96816  
+##### 26195#       发表于 2025-2-18 13:20
+
+那根前几天的假药与剧透对上了。
+
+也就是说后面还是拷打丰川祥子，前几集是她逃避到mujica被人打回现实，中间她变成人偶，被ccc几位拷打后稍微好了点，变成和睦在一起的人偶（她放下mujica想和睦过好日子），然后三路人开始集结mujica，继续拷打丰川祥子，甚至表面上睦没事，但暗地里小莫已经跟海铃她们勾搭上了（有剧透说海铃保莫）。
+
+*****
+
+####  wpcc  
+##### 26196#       发表于 2025-2-18 13:21
+
+<blockquote>wzm96816 发表于 2025-2-18 13:20
+那根前几天的假药与剧透对上了。
+
+也就是说后面还是拷打丰川祥子，前几集是她逃避到mujica被人打回现实，中 ...</blockquote>
+如果没有tft这个事情其实ccc还真是垫子 现在我不好说了
+
+*****
+
+####  ArcadiaMartyr  
+##### 26197#       发表于 2025-2-18 13:23
+
+这拷打也不好看啊，主要是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  嵇翱u  
+##### 26198#       发表于 2025-2-18 13:24
+
+<img src="https://img.saraba1st.com/forum/202502/18/132212c33rki1cbp2hpfkp.jpg" referrerpolicy="no-referrer">
+
+<strong>}`W4Z2NTH5FDJJ])0MQ$}1I_tmb.jpg</strong> (90.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132218flfjjy4k4zdy4h49.jpg" referrerpolicy="no-referrer">
+
+<strong>KV5~M6WKX_JI~GUZQR]CI67_tmb.jpg</strong> (197.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132223y9hsa4ssc16kb9dy.jpg" referrerpolicy="no-referrer">
+
+<strong>C`B25)E@]Y0EN[FCZ1`G$MV_tmb.jpg</strong> (151.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132225v0adjjd1wyjw7yzy.jpg" referrerpolicy="no-referrer">
+
+<strong>S@1_QS7{MNN4[Y`QMF3_(0P_tmb.jpg</strong> (239.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132239xzua8l0re0ojzajz.jpg" referrerpolicy="no-referrer">
+
+<strong>L)}G{S8L(RYJB9FHSC~ZOZ9_tmb.jpg</strong> (127.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132239goaux8oa8olaqgsp.jpg" referrerpolicy="no-referrer">
+
+<strong>}XG[0`S1}2WZ~TYOPNK_tmb.jpg</strong> (235.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132248du4vqubh9zhabnrq.jpg" referrerpolicy="no-referrer">
+
+<strong>}FDSG]YAZ(LCRK$[(4H2H5M_tmb.jpg</strong> (172.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132325qmz28v6by2k7m562.jpg" referrerpolicy="no-referrer">
+
+<strong>[3LA@MGD{V8HY[Y3]]T[J4W_tmb.jpg</strong> (201.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:23 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/132332r3y83eygkxl928ll.jpg" referrerpolicy="no-referrer">
+
+<strong>TLU(4S$C)WB3$W1A1Z{9503_tmb.jpg</strong> (103.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:23 上传
+
+还得是手游端水吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，爱灯，猫灯，素希
+

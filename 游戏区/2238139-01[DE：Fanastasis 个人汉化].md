@@ -19,3 +19,11 @@
 顺便分享一下我下载的可在安卓上运行的模拟器吧。祝大家玩乐愉快☆ﾟ･*:.｡.☆†_(ﾟ▽ﾟ*)β☆.｡.:*･ﾟ ...</blockquote>
 链接打不开啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萧藏韵  
+##### 127#       发表于 2025-2-18 13:26
+
+好人一生平安，感谢！
+
