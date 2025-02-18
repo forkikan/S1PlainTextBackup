@@ -11500,3 +11500,14 @@ wsd别卖蛋白棒了，改卖破壁菌子粉得了
 海玲啥时候加入的Mygo?  我只是在想，那些觉得CCC真的下葬的人，如果后面母鸡卡也来一版春日影，要怎么圆 ...</blockquote>
 海玲是那种只要参与过都会算在自己记录里的那种吧，她也参与过mygo的排练，四舍五入也算加入过mygo了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 26211#       发表于 2025-2-18 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456890&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-18 13:55</a>
+
+海玲是那种只要参与过都会算在自己记录里的那种吧，她也参与过mygo的排练，四舍五入也算加入过mygo了 ...</blockquote>
+ 那她不是当场说加油等Mygo的人考虑清楚吗？工牌都没戴呢！
+

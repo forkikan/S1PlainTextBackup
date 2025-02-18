@@ -4365,3 +4365,12 @@ aiai这状态真无敌了。爽死了。
 在练习室练习时，乐奈又一次擅自离开了。立希对此已经见怪不怪，但灯似乎从乐奈演奏的音乐中感受到了一些东西——
 <img src="https://p.sda1.dev/22/f5933d63d831c4573b4c80ac85b91767/Image_464820166063088.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26969#       发表于 2025-2-18 13:59
+
+[[日服][资讯][新活动] 2.19 ストレイキャット·プロローグ [更新卡面][更新剧情文本/机翻]](https://bbs.nga.cn/read.php?tid=43311103)
+下期活动剧情大半都是剧场版内容，新剧情有素希和凛凛子等人时候的闲聊，爱灯抓猫失败遇到owner，以及owner几句话让小猫乖乖参加排练<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看过剧场版的话算是平平无奇的一期
+
