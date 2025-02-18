@@ -2949,3 +2949,16 @@ cure wing和cure wink挺容易听错
 
 紫毛什么时候出来啊
 
+
+*****
+
+####  modedd  
+##### 539#       发表于 2025-2-18 10:41
+
+ 本帖最后由 modedd 于 2025-2-18 10:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453873&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-18 09:15</a>
+紫毛什么时候出来啊</blockquote>
+三人团开局，最晚也不会超过第六集
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

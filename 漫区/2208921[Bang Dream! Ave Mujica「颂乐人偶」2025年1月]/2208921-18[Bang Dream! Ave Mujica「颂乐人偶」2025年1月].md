@@ -9683,3 +9683,84 @@ LSL这种底边想跑路是多想不开 go团里面目前有能力有意愿单�
  ...</blockquote>
 已经发癫的什么都要否定的那没办法了，本身对于三个团的关系之间的处理主轴能接受的还是不少的吧，只是被实际展现出来的方式点爆了，我自己也是觉得这集大纲上想法没问题的
 
+
+*****
+
+####  aritaatsu222  
+##### 26050#       发表于 2025-2-18 10:38
+
+其实就是arcv三年战争一天结束跟女友当妈是后者更出名一样，即使前者真的在逻辑上更加离谱，后者埋了众多伏笔早有预谋，观众依然觉得后者伤害感情的程度更深更久
+
+*****
+
+####  diectt  
+##### 26051#       发表于 2025-2-18 10:39
+
+能不能别跟着上面那人的思路了，戏内拍炸了到戏外找理由，而且还是完全没依据的胡扯
+
+
+*****
+
+####  adretyu67.  
+##### 26052#       发表于 2025-2-18 10:40
+
+ 本帖最后由 adretyu67. 于 2025-2-18 10:41 编辑 
+
+busuz第七话比较刻意的是墨主动下线换黄瓜上来。
+
+话说回来双重人格切起来这么方便吗。
+
+黄瓜上号那就是冲着CCC去的。
+
+剩下爱音蹲地角都是顺利成章了。
+
+只能说sumimi大法好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+c团狗团鸡团闹了一圈不塑造就是最好的塑造，我缺的甜甜圈女士上那找
+
+*****
+
+####  南宮凝香  
+##### 26053#       发表于 2025-2-18 10:41
+
+ 本帖最后由 南宮凝香 于 2025-2-18 10:43 编辑 
+
+以現實樂隊來說沒問題呀
+
+現實樂隊又不賣女女關係性
+
+現實最多也就提桶跑路
+
+業餘樂隊合來不合散跟呼吸一樣
+
+*****
+
+####  御幸一也  
+##### 26054#       发表于 2025-2-18 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454723&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-18 10:34</a>
+
+武士道能觉得这种剧情有出圈的可能性
+
+也是这辈子有了
+
+难道指的是烂出圈吗 那确实 ...</blockquote>
+
+武士道就是這麼自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+就不說戶外廣告車站內廣告塞錢上the first take這種了，
+
+現在是連那幾本雜誌也全部上好上滿了，animage animedia megami，連newtype都塞錢上滿，是真的很有自信哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+下期animedia和megami還都是mujica特輯呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  渡鸦骑士  
+##### 26055#       发表于 2025-2-18 10:45
+
+主要看武士道这个搞法，八成打算之后出完母鸡卡剧场版总集篇。
+然后再来个C团一二部剪辑版总集篇。
+八年电影都有个说法了。
+现在看来已经起飞失败了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
