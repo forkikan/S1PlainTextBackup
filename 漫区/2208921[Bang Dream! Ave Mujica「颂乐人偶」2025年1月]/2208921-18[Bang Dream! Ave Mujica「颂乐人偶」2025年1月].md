@@ -13822,3 +13822,52 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
 
 2025-2-18 22:22 上传
 
+
+*****
+
+####  是谁的书画  
+##### 26431#       发表于 2025-2-18 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461194&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-18 22:17</a>
+
+我估计老钟绝大部分代入 爱音这个黄毛心虚越想越气暴走了
+
+另一个方面大祥现在塑造也烂尾的关系 ...</blockquote>
+有一说一啊，也不是说角色厨什么的，就单论我个人来讲，mygo mujica加起来一共10个人，除了爱音基本都算神人了。在怎么样的一群人里面喜欢一个相对之下大体正常（且粉毛虎牙略有唐氏）的角色我感觉不是一个很让人羞于承认的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+同时我也相信即便现在楼里说农这也不行那也不行的，但是去外面拉个投票我也敢保证爱音还是第一受欢迎角色。所以也没什么好心虚的，黄毛就黄毛了，有本事苦主之前别发疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 26432#       发表于 2025-2-18 22:30
+
+ 本帖最后由 zhzij111 于 2025-2-18 22:35 编辑 
+
+骂的难道不是c团这几个遗老就不能有点眼力见，凭什么还让爱音当圣人吗，她这两季是好事做尽四处出击帮忙，结果当不上团宠还天天被盐，现在组个c团又要她一个纯外人委屈自己搞助攻，合着好人就该受委屈（再搭配爽姐的淫笑观感更是毁天灭地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+这人直接退队去红绿灯乐队组轻音部是真能过得比现在爽多了的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 26433#       发表于 2025-2-18 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461275&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-18 22:30</a>
+
+有一说一啊，也不是说角色厨什么的，就单论我个人来讲，mygo mujica加起来一共10个人，除了爱音基本都算 ...</blockquote>
+是的，有本事苦主之前别发疯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 26434#       发表于 2025-2-18 22:35
+
+<blockquote>z-hunter 发表于 2025-2-18 22:09
+其实都是细节问题，只要加一两句对白，加一些小动作，换一些场景，演出效果都不会这么灾难
+
+让观众的观感和 ...</blockquote>
+毕竟这是大祥传，戏份上必然如此
+
