@@ -12338,3 +12338,20 @@ https://c.tieba.baidu.com/p/9492716995
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  凉良  
+##### 26294#       发表于 2025-2-18 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458598&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-18 16:55</a></blockquote>
+这图出自哪里啊
+
+
+*****
+
+####  ape-apple  
+##### 26295#       发表于 2025-2-18 17:44
+
+并非匿名，而是久经考验的99，第八集或者第九集复辟C团应该是确定了
+

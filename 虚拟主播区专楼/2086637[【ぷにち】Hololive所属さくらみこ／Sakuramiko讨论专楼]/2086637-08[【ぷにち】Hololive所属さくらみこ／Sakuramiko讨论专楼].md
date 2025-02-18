@@ -532,3 +532,30 @@ fbmicomet3人的关系就像是同盟国
 
 昨晚这也太惨烈了吧，一般人想要故意演还真做不到，只能说这就是这个人和MC这游戏的命运了，无论换了多少次新服务器还是逃不过的全lose，也算是刚好给FG新人当了一次反面教材
 
+
+*****
+
+####  holofan  
+##### 10792#       发表于 2025-2-17 21:22
+
+<img src="https://img.saraba1st.com/forum/202502/17/212238p123op3na23p96h1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 21:22 上传
+
+*****
+
+####  holofan  
+##### 10793#       发表于 2025-2-18 17:41
+
+<img src="https://img.saraba1st.com/forum/202502/18/174132kmmqzm1b71ts3b9p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 17:41 上传
+
