@@ -12283,3 +12283,58 @@ https://c.tieba.baidu.com/p/9492716995
 **wsd 把大家的信任都磨没了 ...</blockquote>
 主要这个舅舅之前几次剧透的基本都能对上，所以大家慌了
 
+
+*****
+
+####  aritaatsu222  
+##### 26288#       发表于 2025-2-18 17:30
+
+隔壁的es妹都能团建两栋楼，太变态了，把我逼跑的前国活动就是相方每年家族都要纳新妾，去年我推已经进家门了，今年要拉新的，我推帮着相方抓要逃跑的新老婆，並帮忙摁着方便相方洞房，要是我推粉丝有爱圣粉的战斗力就好了，可惜没有
+
+*****
+
+####  金钱与民主  
+##### 26289#       发表于 2025-2-18 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458896&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-18 17:24</a>
+
+欧西麻花街的框框一出场就自带谜题，而且虽然猜到的少但也有人猜到，木头要是对照应该从狗开始就加入自言自 ...</blockquote>
+要不咋说双重人格是臭棋呢？现实里DID是极为罕见的医学难题，WSD的编剧有谁仔细研究过？说白了就是想通过设计双重人格去满足剧情的需要，没准他们还觉得双重人格很好玩呢。昨天看WB上有人批评这种设计根本就是来自健康者的一种傲慢。
+
+*****
+
+####  凉良  
+##### 26290#       发表于 2025-2-18 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458924&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-18 17:27</a>
+主要这个舅舅之前几次剧透的基本都能对上，所以大家慌了</blockquote>
+我看他id确实像之前那个 但是我app好像选不了只看ta
+
+*****
+
+####  凉良  
+##### 26291#       发表于 2025-2-18 17:32
+
+认真说主唱三集出场一次台词两个字 这之前有乐队番是这样的吗
+
+
+*****
+
+####  江口夕  
+##### 26292#       发表于 2025-2-18 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458896&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-18 17:24</a>
+欧西麻花街的框框一出场就自带谜题，而且虽然猜到的少但也有人猜到，木头要是对照应该从狗开始就加入自言自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有从独角兽其他作品入手，只能说只有独角兽噶吃能做到
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  marlun  
+##### 26293#       发表于 2025-2-18 17:34
+
+终于爬完楼了，没想到这么爆
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
