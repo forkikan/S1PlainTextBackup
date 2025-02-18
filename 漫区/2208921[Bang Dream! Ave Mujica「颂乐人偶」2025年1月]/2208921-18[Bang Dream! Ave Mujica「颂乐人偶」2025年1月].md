@@ -14036,3 +14036,34 @@ Mujica动画与其说是缺少细节，倒不如说是有在刻意的减少描�
 
 2025-2-18 23:02 上传
 
+
+*****
+
+####  aptx8285144  
+##### 26449#       发表于 2025-2-18 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461505&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 23:04</a>
+
+来点手游爱素对谈，而今再看也是很有意思的一点，真的在思考在努力去做到一辈子的人不敢轻易说出口，时刻想 ...</blockquote>
+这点go动画时期就很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 26450#       发表于 2025-2-18 23:14
+
+轻诺必寡信，多易必多难
+
+*****
+
+####  aptx8285144  
+##### 26451#       发表于 2025-2-18 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461420&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-18 22:53</a>
+
+我都快理解不了大X传的意思了
+
+以前几个被叫大X传的不都是主角解决一切其他人全程工具人么。  祥子这前面七 ...</blockquote>
+突然想起来，以前骂有些大男主除了亚撒西以外啥都不会，而大祥连亚撒西都是死了的情况下要靠老友们强行唤醒，这种塑造实在很难评价<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
