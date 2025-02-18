@@ -9783,3 +9783,181 @@ c团狗团鸡团闹了一圈不塑造就是最好的塑造，我缺的甜甜圈�
 
 认真对比小时代，发现顾里可以说是集祥子的抽陀螺和爱音的箭头难民为一体的究极大女主，2里爹被创死，众叛亲离，好心对待的闺蜜眼里却只有前男友，3里闹家族黑暗，私生子，4得绝症，为了不拖累好姐妹，故意不说人话将好姐妹推走，以后再说狗是乐队小时代应该是无人能辩驳我了，每个点都能在go里找到
 
+
+*****
+
+####  与太郎  
+##### 26058#       发表于 2025-2-18 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454318&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-18 09:58</a>
+
+性价比比企谷这个说法有意思，他可能觉得“流于表面的人际关系”听起来更装逼。
+
+就跟蘑菇动不动“伪善” ...</blockquote>
+你要说无病呻吟，祥子退c团的理由就最全剧最大无病呻吟了
+
+*****
+
+####  aritaatsu222  
+##### 26059#       发表于 2025-2-18 10:58
+
+祥子跟ccc组个乐队放学后玩玩是领导，爱音为ccc前后奔波变一条，顾里给时代姐妹花花钱摆平住宿生活困难是领导，时代姐妹花为前男友与顾里撕破脸后变一条
+
+*****
+
+####  山ノ内花音  
+##### 26060#       发表于 2025-2-18 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454925&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-18 10:54</a>
+我记得你当初信誓旦旦鸡团的事情只会由鸡团解决，还拿监督的话来背书说鸡团动画和狗团没关系，早切割了后 ...</blockquote>
+按正常人的思路来写 这片也不会烂完啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0WHan0  
+##### 26061#       发表于 2025-2-18 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454925&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-18 10:54</a>
+
+我记得你当初信誓旦旦鸡团的事情只会由鸡团解决，还拿监督的话来背书说鸡团动画和狗团没关系，早切割了后 ...</blockquote>
+那不是因为22319楼施展了大复活术嘛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu222  
+##### 26062#       发表于 2025-2-18 11:00
+
+<blockquote>与太郎 发表于 2025-2-18 10:57
+你要说无病呻吟，祥子退c团的理由就最全剧最大无病呻吟了</blockquote>
+难道不是吗
+
+*****
+
+####  御幸一也  
+##### 26063#       发表于 2025-2-18 11:01
+
+笑麻了，『海鈴の嫉妬心』
+
+重組avemujica的核心是海鈴的嫉妒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARK_HGCG  
+##### 26064#       发表于 2025-2-18 11:02
+
+海铃的嫉妒变成了野心！
+
+<img src="https://img.saraba1st.com/forum/202502/18/110239d7ysssyye4huyr5b.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250218-120204.png</strong> (231.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:02 上传
+
+*****
+
+####  AveMujica  
+##### 26065#         楼主| 发表于 2025-2-18 11:03
+
+#8 Belua multorum es capitums.
+普通の少女たちの、特別だった居場所と思い出への訣別。
+そんなCRYCHICの演奏を見て生まれた海鈴の嫉妬心は、Ave Mujica復活の野心へと変貌していく。
+脚本：後藤 みどり
+絵コンテ：森田 紘吏
+演出：森田 紘吏
+CGディレクター：山之口 創
+<img src="https://p.sda1.dev/22/837d1ba1c19623bb2a3a4f384ff015b1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/58f4542c57f66395a1290b3fe03b59f5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/15dee2d5cd93f0a6ef96d89ef8bdae75/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/83e0ebc391963f580eaff8e91670a573/image.jpg" referrerpolicy="no-referrer">
+https://anime.bang-dream.com/avemujica/story/
+https://b23.tv/0ejp7kS
+
+*****
+
+####  aritaatsu222  
+##### 26066#       发表于 2025-2-18 11:03
+
+祥子觉得自己大眉笔，ccc和木头人离自己太近会受伤害所以一把推开，顾里觉得自己大眉笔，姐妹花离自己太近会受伤害所以一把推开
+
+但ccc和木头离开祥子后真的要死要活，姐妹花离开顾里后风生水起，看来顾里的判断水平还是比祥子高，高中生炒股专家vs高中生音乐专家是前者win
+
+*****
+
+####  ape-apple  
+##### 26067#       发表于 2025-2-18 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454124&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-18 09:38</a>
+我别的不说，现实里必须要营业的时候还是得营业吧，我也不说谁了；你说对吧🙃，go团你们营业的时候怎么回 ...</blockquote>
+真有意思，我说🐶团不营业，哥们说别带lsl节奏<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 26068#       发表于 2025-2-18 11:04
+
+ 本帖最后由 堀内爱里衣 于 2025-2-18 11:06 编辑 
+
+<strong>#8 Belua multorum es capitums.</strong>
+
+<img src="https://img.saraba1st.com/forum/202502/18/110307zecuogsxo3sopkom.png" referrerpolicy="no-referrer">
+
+<strong>①-1.png</strong> (1.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/110301nyjvpyf6jpkfuvkv.png" referrerpolicy="no-referrer">
+
+<strong>②-1.png</strong> (1.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/110403oqcrere5cinrsp6n.png" referrerpolicy="no-referrer">
+
+<strong>③-1.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:04 上传
+
+普通の少女たちの、特別だった居場所と思い出への訣別。
+
+そんなCRYCHICの演奏を見て生まれた海鈴の嫉妬心は、Ave Mujica復活の野心へと変貌していく。
+
+脚本：後藤 みどり
+
+絵コンテ：森田 紘吏
+
+演出：森田 紘吏
+
+CGディレクター：山之口 創
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+
+*****
+
+####  Суслов  
+##### 26069#       发表于 2025-2-18 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454779&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-18 10:40</a>
+busuz第七话比较刻意的是墨主动下线换黄瓜上来。
+
+话说回来双重人格切起来这么方便吗。
+
+黄瓜上号那就是冲着C ...</blockquote>
+有的兄弟有的，等后续进初华线包有mana女士戏份的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 26070#       发表于 2025-2-18 11:06
+
+ccc只有两周是锤了吗
+
