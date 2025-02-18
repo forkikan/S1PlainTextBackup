@@ -14067,3 +14067,72 @@ Mujica动画与其说是缺少细节，倒不如说是有在刻意的减少描�
 以前几个被叫大X传的不都是主角解决一切其他人全程工具人么。  祥子这前面七 ...</blockquote>
 突然想起来，以前骂有些大男主除了亚撒西以外啥都不会，而大祥连亚撒西都是死了的情况下要靠老友们强行唤醒，这种塑造实在很难评价<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 26452#       发表于 2025-2-18 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461407&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-18 22:51</a>
+
+在wsd里爱音就是路边一条，人家真不在乎
+
+—— 来自 鹅球 v3.3.96</blockquote>
+千早爱音 这角色还是在乎的
+
+前面漏油发的好嫌网爱音还是前列的233
+
+*****
+
+####  aritaatsu  
+##### 26453#       发表于 2025-2-18 23:19
+
+<blockquote>cxj649 发表于 2025-2-18 23:17
+千早爱音 这角色还是在乎的
+
+前面漏油发的好嫌网爱音还是前列的233</blockquote>
+正常人多神人少的时候神人会突出变成玛丽苏，但正常人少神人多时就会变成唯一人类，路径依赖让wsd错判，以前都是神人人气高的
+
+
+*****
+
+####  天空塔书记官  
+##### 26454#       发表于 2025-2-18 23:20
+
+好嫌之类的其实没啥参考价值，岛国那边好些投票都属于只能看个乐子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 26455#       发表于 2025-2-18 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461281&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-18 22:30</a>
+
+骂的难道不是c团这几个遗老就不能有点眼力见，凭什么还让爱音当圣人吗，她这两季是好事做尽四处出击帮忙， ...</blockquote>
+看了一眼贴吧，才注意到红绿灯也来看过go团的演出，给爱音加油过，不知道是哪一集233
+
+*****
+
+####  cxj649  
+##### 26456#       发表于 2025-2-18 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461614&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-18 23:20</a>
+
+好嫌之类的其实没啥参考价值，岛国那边好些投票都属于只能看个乐子
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+但至少手游上 千早爱音 这角色待遇不错
+
+*****
+
+####  Суслов  
+##### 26457#       发表于 2025-2-18 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461542&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 23:09</a>
+这点go动画时期就很明显了，go时期灯最后一次和爱音说一辈子这事，爱音说的也是我会好好努力，现在反而越 ...</blockquote>
+go13结尾soyo和灯说的一辈子忘不了ccc都可以解读成对暗号，只能说咱们ccc可太有团魂了，“组一辈子乐队”都快成践行塔基亚原则了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

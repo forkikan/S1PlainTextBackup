@@ -388,3 +388,21 @@ anyway,LC signed…
 
 大开眼界了，美国贴吧真的啥都有啊
 
+
+*****
+
+####  BearBorn  
+##### 45#       发表于 2025-2-18 23:17
+
+去看了一眼，身材完全没有到打药的地步，很多甚至连健身的痕迹都没有，小倒是都蛮小的…
+
+另外楼主这个消遣方式真的好怪<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  airfire  
+##### 46#       发表于 2025-2-18 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">受到了震撼，仔细想想这世界同时有爱现小jj和爱看小jj的男人，感觉好变态啊。
+
