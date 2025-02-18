@@ -15068,3 +15068,19 @@ GQX显示为未登记
 
 玛秋的驾驶员名称就是“MACHU”
 
+
+*****
+
+####  纪寞  
+##### 7075#       发表于 2025-2-18 12:52
+
+ 本帖最后由 纪寞 于 2025-2-18 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455838&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-18 12:03</a>
+
+牢修在军团战登记的驾驶员名称为“AAA”
+
+红高达登记的机体名称为“3LANK”
+
+GQX显示为未登记</blockquote>
+对比右边扎古，AAA才是机体名吧，3LANK才是驾驶员名才对。另外这图哪来的
+

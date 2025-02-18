@@ -11155,3 +11155,38 @@ CCC 卡包是在MyGo X 母雞卡 卡包出
 
 加上下一话，祥子和睦是不是目前十人中唯二有自习描写的角色？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 26184#       发表于 2025-2-18 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455730&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-18 11:53</a>
+独白真没什么吧......反正都要写c团了，由于时间所限，能写这么几个人对c团想法的空间也没多少了。趁着live ...</blockquote>
+独白这个问题就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出代替台词会不会不达意和台词掺杂进Live会不会不美观二选一的问题
+
+*****
+
+####  阿兹尔  
+##### 26185#       发表于 2025-2-18 12:46
+
+祥子太容易上瘾了，海铃本来没感觉，一看到ccc才发现自己忘不掉了，接下来就是几个祥子患者把祥子绑回鸡团
+
+*****
+
+####  595505568  
+##### 26186#       发表于 2025-2-18 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456309&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-18 12:46</a>
+祥子太容易上瘾了，海铃本来没感觉，一看到ccc才发现自己忘不掉了，接下来就是几个祥子患者把祥子绑回鸡团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛希罗罪大恶极🤣，养的菌子被后辈炼成浓缩孢子粉了，一口下去忘不了了
+
+*****
+
+####  ape-apple  
+##### 26187#       发表于 2025-2-18 12:49
+
+根据你鸡动画多写谁，谁就崩的实际情况看，下集海铃怕是也难逃一烂，尤其是现在是个观众都不觉得她有什么团队精神，怎么就连跳30个车all in 鸡团了？
+
+也难怪李子跟茜贴得多，跟别人贴也属实贴不上，本质上还是前后辈关系啊
+
