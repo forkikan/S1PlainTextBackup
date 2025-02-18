@@ -1140,3 +1140,16 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 这种超大地图让人想起了远星物语 但远星物语的图跑起来相当折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 91#         楼主| 发表于 2025-2-18 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455950&amp;ptid=2246453" target="_blank">偏執王 发表于 2025-2-18 12:13</a>
+
+这种超大地图让人想起了远星物语 但远星物语的图跑起来相当折磨了</blockquote>
+作者在游戏里的一些不起眼但十分关键的设计，**缓解了玩家面对巨型迷宫时的压力
+
+人性化设计这部分我编辑到主贴里去了，有些东西真的是每个制作者都该去学学
+
