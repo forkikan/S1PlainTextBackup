@@ -1222,3 +1222,57 @@ https://m.bilibili.com/opus/1033632735051120642
 快进到白情落地觉者（Ruler），还能赶上奏四这桌</blockquote>
 个人觉得他们整阿育王就是拿来当觉者的转轮王代餐的
 
+
+*****
+
+####  xiongxingyu  
+##### 16385#       发表于 2025-2-18 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454503&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2025-2-18 10:14</a>
+
+个人觉得他们整阿育王就是拿来当觉者的转轮王代餐的</blockquote>
+觉者设定得太死了，落地基本上就等同于OOC，根本没法安排正儿八经的互动剧情，这点阿育王就好多了，毕竟人的成分还是要大过佛的成分（至少会说人话）。这回观音套小野马甲落地估计也是类似考量，毕竟型月世界观下，“佛”的含金量还是很高的，单独落地很难不写崩，只能像这回活动里一样露一小手刷刷B格（取回佛性直接原地升天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。
+
+从剧情角度看，实际上缝了观音的小野小町这个从者是不成立的，你们要说不配其实也没问题，毕竟只要取回了佛性就会立马被夺舍成佛然后升天，一介女流诗人的灵基完全hold不住，玩家抽到手的三破变观音只不过是蘑菇的怜悯而已，以后登场也只会是小野小町，真要开三破灵基估计就像六章三藏一样要自爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  直钩  
+##### 16386#       发表于 2025-2-18 14:49
+
+这年头fgo喜欢出日本人也就算了，还尽是些知名度和路边野狗一样的日本人。知名度和路边野狗一样的日本人也就算了，还要狂吹抬高他们的逼格。真是够了。
+
+*****
+
+####  乾理央  
+##### 16387#       发表于 2025-2-18 15:09
+
+没看活动剧情，按我理解就是小町类似于普通人被观音植入了后门程序，观音能随时夺舍她来观察人间，但你又不能说她就是观音
+
+这样？
+
+*****
+
+####  gpx234mqx  
+##### 16388#       发表于 2025-2-18 15:17
+
+ 本帖最后由 gpx234mqx 于 2025-2-18 15:19 编辑 
+<blockquote>直钩 发表于 2025-2-18 14:49
+这年头fgo喜欢出日本人也就算了，还尽是些知名度和路边野狗一样的日本人。知名度和路边野狗一样的日本人也 ...</blockquote>
+
+不是啊，小野小町在日本知名度就像李白杜甫一样
+
+不然也不会有那么多小町传说
+
+你不能说本子是蛮夷小国就把本子古代有名歌人当野狗啊
+
+*****
+
+####  DARKGRAY  
+##### 16389#       发表于 2025-2-18 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456022&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2025-2-18 12:21</a>
+
+觉者设定得太死了，落地基本上就等同于OOC，根本没法安排正儿八经的互动剧情，这点阿育王就好多了，毕竟 ...</blockquote>
+我感觉纯粹就是为了整个不好处理的自灭这碟醋包的饺子，真的有想过写吗，真想写完全可以主线NPC的，类似几个希腊神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
