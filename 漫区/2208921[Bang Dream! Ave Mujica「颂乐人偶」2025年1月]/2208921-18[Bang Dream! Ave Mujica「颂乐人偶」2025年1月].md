@@ -11096,3 +11096,62 @@ CCC 卡包是在MyGo X 母雞卡 卡包出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  金钱与民主  
+##### 26178#       发表于 2025-2-18 12:36
+
+一个上午没看你楼，怎么快成紫吧分楼了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嵇翱u  
+##### 26179#       发表于 2025-2-18 12:36
+
+想起来地铁cm还有大喵拷打祥子的台词“大家可是把人生都交给你了，不明白吗？你是打算全部舍弃掉当逃兵吗”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+感觉真的是祥子已经没有玩乐队意图了然后被海喵绑着回去弹琴，这下挟祥子以令初华了
+
+*****
+
+####  Versedust  
+##### 26180#       发表于 2025-2-18 12:37
+
+海铃地铁广告那句真可能是退完之前队之后说的
+
+还有海铃为什么一定要加入母鸡卡啊，找个之前的队比如dis直接待住了不行吗
+
+*****
+
+####  木板春香  
+##### 26181#       发表于 2025-2-18 12:37
+
+<img src="https://img.saraba1st.com/forum/202502/18/123718xn1wjq1bahcyaphb.jpg" referrerpolicy="no-referrer">
+
+<strong>{8(KW%3%7{4B54H67TQK)~J.jpg</strong> (77.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 12:37 上传
+
+ 呼叫盟友，虎虎虎
+
+看小图的时候我还以为海玲拿个拖鞋准备打电话呢
+
+*****
+
+####  Ferrari  
+##### 26182#       发表于 2025-2-18 12:37
+
+这下海铃也把鸡团当家了，大家庭之魂燃烧！
+
+*****
+
+####  结衣小比取  
+##### 26183#       发表于 2025-2-18 12:39
+
+加上下一话，祥子和睦是不是目前十人中唯二有自习描写的角色？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
