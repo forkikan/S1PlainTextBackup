@@ -1132,3 +1132,11 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 实在卡关了加群问吧，我主帖编辑把群号加进去了，里面热心人很多的
 
+
+*****
+
+####  偏執王  
+##### 90#       发表于 2025-2-18 12:13
+
+这种超大地图让人想起了远星物语 但远星物语的图跑起来相当折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
