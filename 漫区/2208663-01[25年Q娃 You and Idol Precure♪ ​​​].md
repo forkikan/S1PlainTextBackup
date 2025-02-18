@@ -2962,3 +2962,16 @@ cure wing和cure wink挺容易听错
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pokemon最爱  
+##### 540#       发表于 2025-2-18 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453873&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-2-18 09:15</a>
+
+紫毛什么时候出来啊</blockquote>
+目前看标题第6集是心主场但是不变身，估计第7集变身吧。
+
+今年常驻直接公布了人间体所以肯定是传统的快速入队集合模式，不是去年前年那种名为常驻实为追加的处理。
+

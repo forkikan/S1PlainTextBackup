@@ -9961,3 +9961,92 @@ busuz第七话比较刻意的是墨主动下线换黄瓜上来。
 
 ccc只有两周是锤了吗
 
+
+*****
+
+####  御幸一也  
+##### 26071#       发表于 2025-2-18 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454925&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-18 10:54</a>
+
+我记得你当初信誓旦旦鸡团的事情只会由鸡团解决，还拿监督的话来背书说鸡团动画和狗团没关系，早切割了后 ...</blockquote>
+不是 我怒什麼怒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+這一年多來我喜歡avemujica，給你雞做的事都是我自願的，我又不是在投資，爛了我就跑唄，
+
+外面那麼多東西喜歡也不是一定要吊在這<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+雞團的事不自己解決不就是爛透了，所以這種狗友最愛看的劇情，為什麼那麼多人罵？我已經一轉樂子人了，太樂了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上条仁美  
+##### 26072#       发表于 2025-2-18 11:08
+
+ 本帖最后由 上条仁美 于 2025-2-18 12:10 编辑 
+
+日本人get不到老钟为啥那么多爱厨暴怒很正常
+
+在他们的社交里这种先来后到前辈后辈和カースト(种性)制是理所当然的
+
+爱音作为后来者就是得让着更早存在的小团体
+
+其实猫猫在里面的社交种性更低，最晚来年龄又最小，不过她不参与这些破事没波及到就是了 
+
+*****
+
+####  ape-apple  
+##### 26073#       发表于 2025-2-18 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454462&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-18 10:11</a>
+真按老中视角代入最该跑的是高尾
+
+这大女主嘛？这厨子觉得削人棍黑子当万恶之源的大女主？ ...</blockquote>
+老中视角也分为：最应该跑、最可能跑，祥子在本土真是灯下第二，mujica动画核心人物，有啥必要跑
+
+*****
+
+####  aritaatsu222  
+##### 26074#       发表于 2025-2-18 11:10
+
+小时代的极品女还有南湘，原生家庭家庭不幸，长相动人大校花，能力极强进公司就当高管，但家里被讨债选择与闺蜜撕破脸离去，富婆闺蜜心想可以养她一辈子，但南湘的自尊让她宁愿去陪酒也不要跟闺蜜坦白欠债真相，相信觉得祥子很美味的漏油也会很喜欢她的吧
+
+*****
+
+####  aritaatsu222  
+##### 26075#       发表于 2025-2-18 11:11
+
+郭碧婷不管是年轻时还是现在的长相也是明显爆杀大鼻子姐姐的，唉，小时代被误会太多了
+
+*****
+
+####  ape-apple  
+##### 26076#       发表于 2025-2-18 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454723&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-2-18 10:34</a>
+武士道能觉得这种剧情有出圈的可能性
+也是这辈子有了
+难道指的是烂出圈吗 那确实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">日本人真的喜欢斗财阀，也真的喜欢明珠蒙尘，爆火的必要不充分条件罢了，wsd主要是没能力落地
+
+
+*****
+
+####  sdeplee  
+##### 26077#       发表于 2025-2-18 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454693&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-18 10:31</a>
+
+但李世林真的是大小姐</blockquote>
+她顶多是家庭水平不错 不需要吃这碗饭大不了回家宅着找人嫁了 真大小姐还得看高尾女士
+
+*****
+
+####  厚乳果珍爽  
+##### 26078#       发表于 2025-2-18 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455042&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-2-18 11:04</a>
+
+#8 Belua multorum es capitums.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嫉妒心，海铃，不愧是史上最狂。神人乐队是吧？
+

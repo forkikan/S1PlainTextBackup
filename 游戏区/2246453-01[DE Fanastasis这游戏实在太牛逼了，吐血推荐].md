@@ -1093,3 +1093,16 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  约翰里德  
+##### 88#       发表于 2025-2-18 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454609&amp;ptid=2246453" target="_blank">alleriawr9 发表于 2025-2-18 10:23</a>
+船长室队里有船长就能开，巫女房间统一需要巫女钥匙，应该就在巫女boss后面
+
+论坛助手,iPhone ...</blockquote>
+不是这两个，就是路上的两个房子，木屋的那种
+还有问下把妹妹打死了下了异世界洞穴b2怎么走，都是石门打不开也没找到隐藏路线<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
