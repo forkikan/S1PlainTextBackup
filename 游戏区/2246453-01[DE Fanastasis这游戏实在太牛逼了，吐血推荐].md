@@ -953,3 +953,16 @@ Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立
 
 另外，在很后面你才会了解到这些个初期boss的故事……
 
+
+*****
+
+####  siriii  
+##### 76#       发表于 2025-2-18 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453045&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-18 00:59</a>
+
+我理解应该是没有不杀的路线的，除了追加部分的某些角色。
+
+血迹的事情是这样：有因缘的角色会在血迹这里 ...</blockquote>
+懂了，那我不用自我内耗了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
