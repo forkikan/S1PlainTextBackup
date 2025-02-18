@@ -4387,3 +4387,14 @@ aiai这状态真无敌了。爽死了。
 游戏里剧情量很大 要是有钱能再做 ...</blockquote>
 剧场版,OVA这些会做游戏剧情剪辑版，TV剧情目前没有重拍过游戏剧情，相反游戏重置过第一季动画（因为第一季动画作画太差）
 
+
+*****
+
+####  CyDiablo  
+##### 26971#       发表于 2025-2-18 23:48
+
+Happy birthday ましろ！  
+
+信澤 収 @canvas2929
+<img src="https://p.sda1.dev/22/54d2da12ed41997dc88cfbd2c2ab3b4f/1739893677942.jpg" referrerpolicy="no-referrer">
+

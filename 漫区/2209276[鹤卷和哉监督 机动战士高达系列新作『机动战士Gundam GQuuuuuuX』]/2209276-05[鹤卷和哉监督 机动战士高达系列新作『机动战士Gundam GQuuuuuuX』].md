@@ -15224,3 +15224,22 @@ aaa很像小朋友打游戏给角色起名あああ
 
 <img src="https://p.sda1.dev/22/94deb2130ce2c678f038e92481966e32/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 7088#       发表于 2025-2-18 23:46
+
+<img src="https://p.sda1.dev/22/62108c62d0cfc57996381cb05032d9d0/image.jpg" referrerpolicy="no-referrer">
+z高达第十集里捷利德这个算不算MAV战？
+
+
+*****
+
+####  57042711  
+##### 7089#       发表于 2025-2-18 23:53
+
+确实，挽尊哥通常都是两人一组出击的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -759,3 +759,36 @@ Gj3uFAUaEAAGlKf.jpg
 
 买相不行倒是真的，没想到待遇和荒野差这么多，看上去资源甚至比不上龙信2。以前总觉得忍组的东西卖相太差看上去一股LOW味，现在这育碧的影和新鬼看上去也不承多让
 
+
+*****
+
+####  Piano-Forest  
+##### 169#         楼主| 发表于 2025-2-18 23:46
+
+宫本武藏
+
+血气方刚的武者，为在剑道上登峰造极而现身京都。但其修行之路，恐会无比曲折离奇。
+
+面部模型：三船敏郎
+
+本作所描绘的主角年盛气强，是一位在腥风血雨中奋战，在泥泞中前行的武士。Capcom在塑造“宫本武藏”时，为了使这位武士的形象更加深入人心，
+
+因而参考了世界知名的武士演员——三船敏郎，作为角色形象。
+<img src="https://p.sda1.dev/22/228a45f6c73892087352d0d3d5f20cfb/20250218_233702.jpg" referrerpolicy="no-referrer">
+
+幻魔
+
+原本盘踞在地狱深处的残暴怪物，如今却现形于瘴气弥漫的京都之中。幻魔残虐不仁，穷凶极恶，让整个京都人心惶惶。
+
+一目笠
+
+操使刀剑、弓箭与盾牌的幻魔，经常三五成群一齐进攻。喜好残杀和啃食人类，贪欲无穷且肆意妄为。
+<img src="https://p.sda1.dev/22/ece2efb704009e3df56245376137bfd9/20250218_233722.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/98e8a9e657f8add4b087b40add2da2b7/Onimusha-Way-of-the-Sword_2025_02-12-25_009.jpg" referrerpolicy="no-referrer">
+
+秽
+
+力敌千钧的幻魔，能轻松挥舞巨大的兵器，将眼前的一切破坏殆尽。若其身躯被自己的鲜血浸染，力量还会愈发强悍。
+<img src="https://p.sda1.dev/22/6be8f75f01a265956b6b63b20484bbf7/20250218_233728.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/95b90c3a1a98c4c2fb5785119c80c48c/Onimusha-Way-of-the-Sword_2025_02-12-25_011.jpg" referrerpolicy="no-referrer">
+
