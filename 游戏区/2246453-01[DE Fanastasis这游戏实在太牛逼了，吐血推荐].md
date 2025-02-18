@@ -1230,3 +1230,17 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 真有卡关了建议加群发截图问，那边几百小时对游戏了如指掌的热心人多的很
 
+
+*****
+
+####  慕容断月  
+##### 99#       发表于 2025-2-18 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451195&amp;ptid=2246453" target="_blank">qappip 发表于 2025-2-17 19:56</a>
+我是试下用steam dcek玩 就一个小窗口怎么放大？ 眼睛要瞎了。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上 ...</blockquote>
+开fsr，难看就开像素模式
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

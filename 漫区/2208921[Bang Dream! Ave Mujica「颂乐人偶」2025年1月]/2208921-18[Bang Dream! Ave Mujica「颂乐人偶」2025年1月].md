@@ -11928,3 +11928,53 @@ E 真人机，被编剧输入“你该嫉妒了”
 前面一个动作像是过肩摔，估计是习惯性动作，突然反应过来赶紧转过身来受身护住soyo ...</blockquote>
 素祥你俩不会是真女同吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，祥子过肩摔还能取消防止连招把素世摔过去的。
 
+
+*****
+
+####  江口夕  
+##### 26253#       发表于 2025-2-18 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 取消后摇还行。超解变大解了是吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  南宮凝香  
+##### 26254#       发表于 2025-2-18 16:00
+
+是過肩摔但被Soyo 用體重壓制吧
+
+量級不同就是這樣
+
+*****
+
+####  凉良  
+##### 26255#       发表于 2025-2-18 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457685&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-18 15:27</a>
+楼里还有祥厨吗</blockquote>
+有啊       
+
+
+*****
+
+####  单脚着地  
+##### 26256#       发表于 2025-2-18 16:03
+
+<blockquote>[皆神孝介] 发表于 2025-2-18 15:36
+这里印象更深的是祥子躲若麦抢手机敏捷非凡
+
+另外不知道是不是错觉，不论是在MyGO动画还是现在Ave Mujica ...</blockquote>
+毕竟打工皇帝，我感觉她对和爽校门大战的时候心里有愧留手了
+
+*****
+
+####  ltycomputer  
+##### 26257#       发表于 2025-2-18 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457685&amp;ptid=2208921" target="_blank">达达葱2 发表于 2025-2-18 15:27</a>
+
+楼里还有祥厨吗</blockquote>
+有啊
+
