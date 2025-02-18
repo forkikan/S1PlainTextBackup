@@ -4877,3 +4877,13 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 由手机上传
 2025-2-18 20:00 上传
 
+
+*****
+
+####  overflowal  
+##### 1906#       发表于 2025-2-18 20:20
+
+Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2刀/6刀百万token
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
