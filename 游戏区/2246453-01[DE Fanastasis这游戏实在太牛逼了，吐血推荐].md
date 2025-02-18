@@ -974,3 +974,38 @@ Xtreme Gaming（XG）是一家中国的《DOTA2》电子竞技俱乐部，成立
 
 mark一下 不过RM游戏打折后还要80块钱 感觉还是贵了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 78#       发表于 2025-2-18 09:28
+
+我买了，不过这开头就被船上三兄贵野怪暴揍是怎么回事？
+谁说不用刻意练级的<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+还有到底有感情线吗<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerbad  
+##### 79#       发表于 2025-2-18 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454007&amp;ptid=2246453" target="_blank">约翰里德 发表于 2025-2-18 09:28</a>
+
+我买了，不过这开头就被船上三兄贵野怪暴揍是怎么回事？
+
+谁说不用刻意练级的
+
+还有到底有感情线吗 ...</blockquote>
+开头应该先右转去打修女，船上就是得高个三四级有了好点的装备再来的。以及感情线是不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  约翰里德  
+##### 80#       发表于 2025-2-18 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454053&amp;ptid=2246453" target="_blank">kerbad 发表于 2025-2-18 09:32</a>
+开头应该先右转去打修女，船上就是得高个三四级有了好点的装备再来的。以及感情线是不存在的 ...</blockquote>
+我看
+b站视频评论区下说最后可以选异性恋那是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
