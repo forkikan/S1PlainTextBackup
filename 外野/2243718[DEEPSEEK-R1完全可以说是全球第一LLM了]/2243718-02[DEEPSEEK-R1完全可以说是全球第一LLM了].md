@@ -4860,3 +4860,20 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 现在腾讯元宝的网页版号称满血，请问有人试过吗？我怎么感觉还是不如原版，回答问题有点似是而非。 ...</blockquote>
 腾讯元宝就是胡编乱造的，我问个港漫他给我扯出来一个19年的漫画，而且从角色到章节名全是自己杜撰的
 
+
+*****
+
+####  德尔惠净水器  
+##### 1905#       发表于 2025-2-18 20:00
+
+超过o1-mini、逼近o3-mini，DeepSeek-R1在新的贪吃蛇基准上拿下1801分
+
+<img src="https://img.saraba1st.com/forum/202502/18/200051r0uiksvvj6bg0iwi.jpg" referrerpolicy="no-referrer">
+
+<strong>174.jpg</strong> (273.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-18 20:00 上传
+
