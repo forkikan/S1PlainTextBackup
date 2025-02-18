@@ -11850,3 +11850,51 @@ E 真人机，被编剧输入“你该嫉妒了”
 
 无人在意的时候，lsl昨天和梦姨一起直播抽卡，并说出最喜欢春日影了，好在国内还不知道吧，不然就是提线木偶论，声优盾一套了
 
+
+*****
+
+####  [皆神孝介]  
+##### 26245#       发表于 2025-2-18 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456873&amp;ptid=2208921" target="_blank">单脚着地 发表于 2025-2-18 13:53</a>
+
+上一季这一卡的画面让我相信大猫确实对祥子有意思</blockquote>
+这里印象更深的是祥子躲若麦抢手机敏捷非凡<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+另外不知道是不是错觉，不论是在MyGO动画还是现在Ave Mujica动画已播出话数，制作组似乎总在暗示祥子身体素质出色
+
+*****
+
+####  天空塔书记官  
+##### 26246#       发表于 2025-2-18 15:38
+
+然后被体质较弱的素世扑倒
+
+什么女骑士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  好想看Mujica啊  
+##### 26247#       发表于 2025-2-18 15:41
+
+以祥子的身体能力，估计能一拳打死soyo，束手束脚发挥不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嵇翱u  
+##### 26248#       发表于 2025-2-18 15:43
+
+爽姐玩低音提琴也算不得体质弱吧，主要胸前装甲对于运动有一点限制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 26249#       发表于 2025-2-18 15:44
+
+第七场开场soyo主动出击看似占据优势又是绞杀又是拉人，但是差点就被大祥老师一招过肩摔制服了。
+
+不过比较奇怪的是大祥老师那下摔倒是怎么从脸朝地变成背着地
+
