@@ -10290,3 +10290,218 @@ busuz第七话比较刻意的是墨主动下线换黄瓜上来。
 
 那可真是十五年未有之戏弄观众了
 
+
+*****
+
+####  滑稽Captain  
+##### 26099#       发表于 2025-2-18 11:24
+
+柿本广大真是个铁串子，这样的动画不看mygo直接看mujica看不懂一点
+
+*****
+
+####  swessia  
+##### 26100#       发表于 2025-2-18 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">基本上母鸡卡里的台词都是编剧的判词，别想反转啥的
+
+相对的，剧情推动也都是通过台词嘴炮来的
+
+不得不说这舅舅太好当了，看到台本就完全知道了剧情
+
+*****
+
+####  厚乳果珍爽  
+##### 26101#       发表于 2025-2-18 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455238&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 11:17</a>
+
+跟高尾比家庭背景疑似是幽默了，但高尾除了👃之外事业心和能力都是很强的，如果lsl想待着，邦也没有毕业制 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3-7是新歌？还是翻唱？
+
+*****
+
+####  qlipho  
+##### 26102#       发表于 2025-2-18 11:25
+
+这不是说ccc才是概念神吗，海玲这么多乐队也栽了
+
+*****
+
+####  南宮凝香  
+##### 26103#       发表于 2025-2-18 11:26
+
+<blockquote>厚乳果珍爽 发表于 2025-2-18 11:24
+3-7是新歌？还是翻唱？</blockquote>
+5. 是靈感菇…….
+
+*****
+
+####  zhzij111  
+##### 26104#       发表于 2025-2-18 11:26
+
+ 本帖最后由 zhzij111 于 2025-2-18 11:27 编辑 
+
+这海铃也是个神人了，组乐队又没年龄要求，有必要看别人大团圆就把对归宿的要求降这么低，急着把自己塞回神人乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  滑稽Captain  
+##### 26105#       发表于 2025-2-18 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455238&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 11:17</a>
+
+跟高尾比家庭背景疑似是幽默了，但高尾除了👃之外事业心和能力都是很强的，如果lsl想待着，邦也没有毕业制 ...</blockquote>
+要不你再仔细看看这几个“歌名”是什么东西呢
+
+*****
+
+####  aritaatsu222  
+##### 26106#       发表于 2025-2-18 11:27
+
+<blockquote>wpcc 发表于 2025-2-18 11:21
+昨天b站串子运营直接发头图木门立雪我没给气死</blockquote>
+说什么都会做最后做的是对实际现况上根本没有用处的罚站就像是家暴男友的我一定会改一样，现在jj文的套路搞火葬场也都是渣男选择退出爱人身边，但隐藏身份在背后默默帮她摆平生活的困境，比方说帮睦找个心理医生加吉他老师但让美奈美告诉睦是妈妈做的，虽然一样土掉渣，但符合老中人温良的朴素价值观哈
+
+*****
+
+####  sdeplee  
+##### 26107#       发表于 2025-2-18 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455256&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-18 11:18</a>
+
+高尾也就‘不知道西瓜是圆的’这种程度吧，算不上真大小姐</blockquote>
+学钢琴一般小中产都能学 但能富养两个孩子钢琴学到拿国际奖项 老大还是已经混出头的地位的这种家庭  到不了祥子那个阶级也差不多是摸到睦头家的水平了
+
+*****
+
+####  595505568  
+##### 26108#       发表于 2025-2-18 11:28
+
+太过份了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不要P图啊
+
+*****
+
+####  御幸一也  
+##### 26109#       发表于 2025-2-18 11:29
+
+麻了，總覺得思考海鈴哪來的嫉妒心很弱智，但確實不太懂大姐你哪來的嫉妒心
+
+*****
+
+####  天空塔书记官  
+##### 26110#       发表于 2025-2-18 11:29
+
+怎么车完剧内，还要车剧外声优家庭的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aritaatsu222  
+##### 26111#       发表于 2025-2-18 11:29
+
+<blockquote>wpcc 发表于 2025-2-18 11:23
+独角兽还挺满意的你别说</blockquote>
+河豚跟腐女和言情的进展程度大概缺了十年有，感觉跟在人家屁股后面捡排泄物
+
+*****
+
+####  zhoujin8584  
+##### 26112#       发表于 2025-2-18 11:29
+
+本子二次元还是进步慢了，白2浮气线不共戴天也就往楼下站几天，现在也还是楼下站几天，或者说社会停滞了。
+
+接受，然后觉得无聊
+
+
+*****
+
+####  与太郎  
+##### 26113#       发表于 2025-2-18 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455238&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 11:17</a>
+
+跟高尾比家庭背景疑似是幽默了，但高尾除了👃之外事业心和能力都是很强的，如果lsl想待着，邦也没有毕业制 ...</blockquote>
+专辑名：一坨矢
+
+曲目：
+
+1、成人曲
+
+2、春日影
+
+3、two dollar
+
+4、叮咚鸡
+
+5、灵感菇
+
+6、宝宝肚肚打雷了
+
+7、🐧咕咕🐧嘎嘎
+
+*****
+
+####  huxiaopao163  
+##### 26114#       发表于 2025-2-18 11:30
+
+本来海玲就是骑士的象征，而且OP卡牌中蝎子，参考海猫鸣泣之时里，也是守护的含义。
+
+然后象征海玲的symbolI里的歌词“我在你目光的暗影处绘制革命 ”，应该就不是最初大家脑补的反抗祥子的革命，而是重建mujica的革命？
+
+*****
+
+####  Milarvoz  
+##### 26115#       发表于 2025-2-18 11:31
+
+动画里的剧情已经破碎到没什么好聊的了，越聊越伤心。那可不就只能车编剧和聊女声优了。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 26116#       发表于 2025-2-18 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455416&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-18 11:29</a>
+
+麻了，總覺得思考海鈴哪來的嫉妒心很弱智，但確實不太懂大姐你哪來的嫉妒心 ...</blockquote>
+第七话不就咬牙了，估摸是live瘾犯了
+
+*****
+
+####  刑部姬真可爱  
+##### 26117#       发表于 2025-2-18 11:31
+
+说明二次元只是假象，女声优才是真爱<img src="https://static.saraba1st.com/image/smiley/carton2017/478.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 26118#       发表于 2025-2-18 11:32
+
+<blockquote>丹德里恩 发表于 2025-2-18 11:23
+原来海铃不是在串</blockquote>
+第五集之后对编剧的思考只剩下他是在第一层还是在第一层了吧
+
+*****
+
+####  zhoujin8584  
+##### 26119#       发表于 2025-2-18 11:32
+
+<blockquote>刑部姬真可爱 发表于 2025-2-18 11:31
+说明二次元只是假象，女声优才是真爱</blockquote>
+很好很二次元老宅男
+
+*****
+
+####  aritaatsu222  
+##### 26120#       发表于 2025-2-18 11:33
+
+其实言情的进步还是有的，之前补朝贺庵大神的小早我啊，被渣的苦主前女友委曲求全，连月经来都担心不能草了男友会不会嫌弃自己，最后依然选择了主动分手抛弃渣男成为事业大女人
+
