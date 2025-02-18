@@ -12459,3 +12459,65 @@ https://c.tieba.baidu.com/p/9492716995
 —— 来自 鹅球 v3.3.96</blockquote>
 都跑不掉，灯必降低评价，祥子已经在谷底了怎么走都是向上，圣人后面还要圣，我觉得wsd有点嫌自己脖子痒了
 
+
+*****
+
+####  凉良  
+##### 26305#       发表于 2025-2-18 18:09
+
+不是怎么就快进到复辟CCC了
+
+*****
+
+####  厚乳果珍爽  
+##### 26306#       发表于 2025-2-18 18:10
+
+ 本帖最后由 厚乳果珍爽 于 2025-2-18 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459305&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-18 18:01</a>
+
+是的，双重人格出来后我对分析剧情已经没啥兴趣了。接下来谁知道他们还能整出啥玩意出来，要是祥子的父亲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">状态跟我差不多，我就想看接下来还能整啥烂活了。我设想的翔爹包饺子，大概就是再婚了，再婚对象是爽妈。
+
+*****
+
+####  一心而用  
+##### 26307#       发表于 2025-2-18 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459095&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-18 17:41</a>
+这图出自哪里啊</blockquote>
+群里的，没找到出处。
+
+*****
+
+####  凉良  
+##### 26308#       发表于 2025-2-18 18:11
+
+换上电脑了 确实是久经考验的舅舅
+
+但是这和CCC有啥关系
+
+*****
+
+####  595505568  
+##### 26309#       发表于 2025-2-18 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459391&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-18 18:09</a>
+不是怎么就快进到复辟CCC了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只有疑惑，手游怎么办
+
+*****
+
+####  凉良  
+##### 26310#       发表于 2025-2-18 18:12
+
+NMD第八集还在过渡回 这mujica到底怎么办啊 有本事你再出一季动画我什么都原谅你
+
+*****
+
+####  595505568  
+##### 26311#       发表于 2025-2-18 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459419&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-18 18:12</a>
+NMD第八集还在过渡回 这mujica到底怎么办啊 有本事你再出一季动画我什么都原谅你 ...</blockquote>
+我只能说我要重写Mujica启动了，商战在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
