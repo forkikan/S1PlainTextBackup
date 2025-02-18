@@ -4374,3 +4374,16 @@ aiai这状态真无敌了。爽死了。
 [[日服][资讯][新活动] 2.19 ストレイキャット·プロローグ [更新卡面][更新剧情文本/机翻]](https://bbs.nga.cn/read.php?tid=43311103)
 下期活动剧情大半都是剧场版内容，新剧情有素希和凛凛子等人时候的闲聊，爱灯抓猫失败遇到owner，以及owner几句话让小猫乖乖参加排练<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看过剧场版的话算是平平无奇的一期
 
+
+*****
+
+####  紫吹兰  
+##### 26970#         楼主| 发表于 2025-2-18 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444361&amp;ptid=2159415" target="_blank">mono 发表于 2025-2-17 02:15</a>
+
+有没有人知道bangdream手游剧情和动画剧情是怎么协调的，有上下游一说吗
+
+游戏里剧情量很大 要是有钱能再做 ...</blockquote>
+剧场版,OVA这些会做游戏剧情剪辑版，TV剧情目前没有重拍过游戏剧情，相反游戏重置过第一季动画（因为第一季动画作画太差）
+
