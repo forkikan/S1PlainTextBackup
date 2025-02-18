@@ -477,3 +477,13 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 任天堂新章
 
+
+*****
+
+####  superlink  
+##### 53#       发表于 2025-2-18 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计325后面就没纯ns游戏了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

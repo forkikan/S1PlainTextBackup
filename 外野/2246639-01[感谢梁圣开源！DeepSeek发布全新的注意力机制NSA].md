@@ -496,3 +496,11 @@ DS自己的服务器根本承载不了实际需求啊
 
 看了一下这个 NSA 还挺有意思的，应该还是在降成本上更进一步，估计后面 R1 之后的版本会继续扩大上下文
 
+
+*****
+
+####  炽十二翼  
+##### 56#       发表于 2025-2-18 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">ai炒股，很神奇吧？
+
