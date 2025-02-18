@@ -358,3 +358,38 @@ DS自己的服务器根本承载不了实际需求啊
 
 另外下论文下来看，发现 Wenfeng Liang 还是 co author？
 
+
+*****
+
+####  公交老司机  
+##### 43#       发表于 2025-2-18 17:56
+
+特斯拉盘前涨的不是挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 44#         楼主| 发表于 2025-2-18 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459225&amp;ptid=2246639" target="_blank">万恶淫猥手 发表于 2025-2-18 17:55</a>
+那个 VL2 不大行的，本质上更像是早期研究作品。
+
+另外下论文下来看，发现 Wenfeng Liang 还是 co author ...</blockquote>
+这论文都是梁文峰自己上传的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  neptunehs  
+##### 45#       发表于 2025-2-18 18:02
+
+ 本帖最后由 neptunehs 于 2025-2-18 18:03 编辑 
+
+上传时间16号
+那时候xai已经决定今天放grok3了么
+
+论文后面怎么还有一个纸面的结果对比
+是不是这几天就会有一个新模型被放出来啊（
+

@@ -12387,3 +12387,75 @@ https://c.tieba.baidu.com/p/9492716995
 
 没有的东西怎么看出来，又不是阴阳眼猫猫
 
+
+*****
+
+####  一个陆仁贾  
+##### 26299#       发表于 2025-2-18 17:57
+
+第八集，初华-英雄归来<img src="https://static.saraba1st.com/image/smiley/carton2017/299.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 26300#       发表于 2025-2-18 18:00
+
+下一集的初华:
+
+<img src="https://img.saraba1st.com/forum/202502/18/180036ckk1ddppdkdvnn1k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-02-18-18-00-19-09_2b95b5a1545d19ca955bcf1044f94582.jpg</strong> (310.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 18:00 上传
+
+*****
+
+####  金钱与民主  
+##### 26301#       发表于 2025-2-18 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459159&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-18 17:49</a>
+
+都和跟机械降神的东西太多了，除了did还有丰川家的大手跟staff的存在了。
+
+这一切就是为了一个炸团然后鞭打 ...</blockquote>
+是的，双重人格出来后我对分析剧情已经没啥兴趣了。接下来谁知道他们还能整出啥玩意出来，要是祥子的父亲是被自己老婆显灵给弄正常了我甚至还觉得不错呢，起码比双重人格像话点。
+
+*****
+
+####  zhzij111  
+##### 26302#       发表于 2025-2-18 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459122&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 17:44</a>
+并非匿名，而是久经考验的99，第八集或者第九集复辟C团应该是确定了</blockquote>
+那小闭灯的风评还有极大下探空间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  金钱与民主  
+##### 26303#       发表于 2025-2-18 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459188&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-18 17:51</a>
+
+按照柿本的自述双重人格不就是MyGO剧本里还没有，Ave Mujica后来加的吗
+
+没有的东西怎么看出来，又不是阴阳 ...</blockquote>
+阴阳眼猫猫也挺机械降神的，Mygo里有趣的女孩这种才是真电波，Mujica这个火眼金睛把我看笑了。
+
+
+*****
+
+####  ape-apple  
+##### 26304#       发表于 2025-2-18 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67459325&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-18 18:02</a>
+那小闭灯的风评还有极大下探空间
+
+—— 来自 鹅球 v3.3.96</blockquote>
+都跑不掉，灯必降低评价，祥子已经在谷底了怎么走都是向上，圣人后面还要圣，我觉得wsd有点嫌自己脖子痒了
+
