@@ -4849,3 +4849,14 @@ The 火山方舟(bot-) API doesn't support document understanding. You can use C
 
 现在还有别的什么其他平台api推荐吗
 
+
+*****
+
+####  上坂莲华  
+##### 1904#       发表于 2025-2-18 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438599&amp;ptid=2243718" target="_blank">titians 发表于 2025-2-16 11:36</a>
+
+现在腾讯元宝的网页版号称满血，请问有人试过吗？我怎么感觉还是不如原版，回答问题有点似是而非。 ...</blockquote>
+腾讯元宝就是胡编乱造的，我问个港漫他给我扯出来一个19年的漫画，而且从角色到章节名全是自己杜撰的
+

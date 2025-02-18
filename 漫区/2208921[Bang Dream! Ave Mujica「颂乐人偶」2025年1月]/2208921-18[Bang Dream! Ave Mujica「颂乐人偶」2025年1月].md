@@ -11200,3 +11200,65 @@ CCC 卡包是在MyGo X 母雞卡 卡包出
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  嵇翱u  
+##### 26189#       发表于 2025-2-18 13:06
+
+不过预告透的都是小事，感觉海玲说不定都占不了多少篇幅，主要可能还是大喵和睦妈，然后睦的家庭问题。毕竟场外说的也是第八话“开始”行动，海玲这集先提重组被拒，下集去退队然后再来提也行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 26190#       发表于 2025-2-18 13:06
+
+李子小姐今集有工資拿嗎？
+
+*****
+
+####  wwwttth  
+##### 26191#       发表于 2025-2-18 13:06
+
+原来鸡团是三个大明星/大小姐+2个穷鬼（一个蹭饭的一个想火的）的组合啊，我完全理解了。
+
+*****
+
+####  595505568  
+##### 26192#       发表于 2025-2-18 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456484&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-18 13:06</a>
+李子小姐今集有工資拿嗎？</blockquote>
+两个字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 26193#       发表于 2025-2-18 13:11
+
+日服286期活动预告：任务LIVE（课题）活动「ストレイキャット・プロローグ」
+
+开启时间：2月19日15时～2月26日20时59分（北京时间提前1小时）
+
+故事概述：在演播室的练习中，乐奈又擅自回去了。立希对此已经习以为常，只能感到无奈。然而，灯似乎从乐奈演奏的音乐中感受到了什么—— 
+
+原创曲追加：音一会（演唱：MyGO!!!!!）
+
+<img src="https://p.sda1.dev/22/1c21bc3cc5ae14d9b6c85fc0391ec0d6/image.jpg" referrerpolicy="no-referrer">
+
+[https://b23.tv/MnrtDwn](https://b23.tv/MnrtDwn)
+
+家人们还是来看一眼远方的mygo吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  66367749  
+##### 26194#       发表于 2025-2-18 13:12
+
+wsd别卖蛋白棒了，改卖破壁菌子粉得了
+

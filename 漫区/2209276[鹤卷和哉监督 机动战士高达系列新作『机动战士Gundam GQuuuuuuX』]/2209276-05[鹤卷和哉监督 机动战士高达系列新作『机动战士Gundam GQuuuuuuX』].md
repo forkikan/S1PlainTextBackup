@@ -15154,3 +15154,23 @@ GQX显示为未登记
 
 用在这的意思是“BLANK”倒是都一样
 
+
+*****
+
+####  YU_JI  
+##### 7081#       发表于 2025-2-18 13:10
+
+军团战的UI做的真好看啊，会不会军团战的背后运营也有说法的
+
+*****
+
+####  灵魂收割机  
+##### 7082#       发表于 2025-2-18 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456476&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-18 13:05</a>
+
+也有可能是特殊字体，但写的也太像3了
+
+用在这的意思是“BLANK”倒是都一样 ...</blockquote>
+应该就是B，这字体的A还缺一横呢。
+
