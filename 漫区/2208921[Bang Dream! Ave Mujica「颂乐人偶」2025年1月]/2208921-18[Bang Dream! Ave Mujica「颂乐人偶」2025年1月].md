@@ -10753,3 +10753,124 @@ live里一大段独白真的罗里吧嗦的，本来台词写的也不太行，�
 
 而且那一段独白起码是这脚本难得写出点想搞抒情的台词。相比之下这季以来毫无营养的片汤话闲白台词都要听吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个起码还略微有分析的价值
 
+
+*****
+
+####  天空塔书记官  
+##### 26145#       发表于 2025-2-18 11:54
+
+<blockquote>第二季的核心矛盾是KSM对乐队掌控力的不足，以及众人对羁绊牢固程度的担忧，多惠虽然没有，但其他人是有的，换到A团身上就更是如此了，她们之间没有羁绊，所以才会有需要建立羁绊的危机感，也就是重建A团的动机，至于A团三人为什么需要乐队作为自己的归宿，那是因为只有A团才能满足她们，这时候，A团就变成了第三季的RAS</blockquote>
+这也算能沾点边 … 吧 ?
+
+但是直言“嫉妒” ，额…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 26146#       发表于 2025-2-18 11:56
+
+给你加个设定，海玲也是看了ccc live才去练贝斯就完事了。
+
+*****
+
+####  shinoverse  
+##### 26147#       发表于 2025-2-18 11:56
+
+你要说抽象没素质，也就那样吧
+
+感觉不如盒√因为二创视频主引流动物园，所以开他个人信息的素质低
+
+*****
+
+####  ads147147  
+##### 26148#       发表于 2025-2-18 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455756&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-18 11:56</a>
+
+给你加个设定，海玲也是看了ccc live才去练贝斯就完事了。</blockquote>
+ccclive快变成士郎跳高了。。。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  hysjmr  
+##### 26149#       发表于 2025-2-18 11:57
+
+听起来像贝斯笑话
+
+*****
+
+####  66367749  
+##### 26150#       发表于 2025-2-18 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455573&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-2-18 11:41</a>
+家人们切割真的有用
+看了眼b站现在风评已经成柿本罪大滔天兽娘二精神传人，🦄驼鹿再世剧本被改处处被针对
+ ...</blockquote>
+塑造一个终极boss，打败他就能拯救一切嘛，有人就好这口的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 26151#       发表于 2025-2-18 11:58
+
+这段独白有啥分析价值……我只看见一个绝望的文盲编剧试图在有背景音乐的时候疯狂塞台词，但是日本人就认这套，剧本写着“此处开哭”他们就跟着哭
+
+*****
+
+####  刑部姬真可爱  
+##### 26152#       发表于 2025-2-18 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455730&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-18 11:53</a>
+
+独白真没什么吧......反正都要写c团了，由于时间所限，能写这么几个人对c团想法的空间也没多少了。趁着live ...</blockquote>
+分析的价值都被wsd场外ccc复活的烂炒给整没意义了
+
+*****
+
+####  南宮凝香  
+##### 26153#       发表于 2025-2-18 12:00
+
+快進到喵夢也是看了CCC Live 才決定當主播的
+
+*****
+
+####  天空塔书记官  
+##### 26154#       发表于 2025-2-18 12:00
+
+讨论“士郎跳高”还得是PPP吧
+
+要不就是蝶<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  高贵的  
+##### 26155#       发表于 2025-2-18 12:02
+
+嫉妒就算了，但要怎么得出因为嫉妒所以要复活鸡团，期待一手编剧的发挥好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 26156#       发表于 2025-2-18 12:03
+
+别问，现在剧本已经快进到直接挠你胳肢窝了，越往后国内的声音反而会越小，我觉得大多数人承受不了这种有形大手的行为
+

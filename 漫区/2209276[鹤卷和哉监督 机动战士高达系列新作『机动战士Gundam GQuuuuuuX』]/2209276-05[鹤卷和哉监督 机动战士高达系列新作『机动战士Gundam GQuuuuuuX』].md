@@ -15046,3 +15046,25 @@ PV1里甚至还有剧场版没出现的<strong>喵安脱了外套在牢修藏身
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  刺客ares  
+##### 7074#       发表于 2025-2-18 12:03
+
+<img src="https://img.saraba1st.com/forum/202502/18/120126ba1554lpufuj145p.jpg" referrerpolicy="no-referrer">
+
+<strong>0d0d0b963ea3430def33c7fd53684ed.jpg</strong> (441.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 12:01 上传
+
+牢修在军团战登记的驾驶员名称为“AAA”
+
+红高达登记的机体名称为“3LANK”
+
+GQX显示为未登记
+
+玛秋的驾驶员名称就是“MACHU”
+
