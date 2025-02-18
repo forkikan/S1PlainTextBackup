@@ -13120,3 +13120,73 @@ gbc的爆也是符合角色气质的，毕竟都是一群上艺校或者直接�
 
 在屎黄色嘲还能查到我一年间骂狗的言论，但屎黄色已经在回踩滑坡了，发过去没有打击感
 
+
+*****
+
+####  aritaatsu222  
+##### 26372#       发表于 2025-2-18 21:06
+
+当了一年互联网流氓的狗批能给碰瓷过的好作品说句不是就好了，gbc太打脸了也没真的拉开水平就算了，计程车nana红楼梦先来吧
+
+*****
+
+####  aritaatsu222  
+##### 26373#       发表于 2025-2-18 21:06
+
+网友确实不能惩罚互联网流氓，但互联网流氓会被wsd惩罚
+
+*****
+
+####  zhoujin8584  
+##### 26374#       发表于 2025-2-18 21:07
+
+ 本帖最后由 zhoujin8584 于 2025-2-18 21:09 编辑 
+
+好难用，跨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 26375#       发表于 2025-2-18 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460503&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 20:50</a>
+
+我觉得前面那些爆炸本质是来抽大祥的情况下，后面用大祥再把go团塑造给垫了顺带伤害一下爱音（虽然最后一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">其他人也只是这集被强压头，但后续可以回复原来的“人格”
+
+但是大祥呢，我只能说一路以来的“黑祥”轻易的“死了”
+
+*****
+
+####  与太郎  
+##### 26376#       发表于 2025-2-18 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460570&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-18 20:59</a>
+
+当开启创作的时候，这个时候并不能开出独角兽</blockquote>
+啊，我不是要让柿本背锅啊，你把柿本替换成“制作组”好了
+
+重点是睦的人设里DID这个设定大概率是创作后期才加上的
+
+*****
+
+####  高贵的  
+##### 26377#       发表于 2025-2-18 21:10
+
+哇是江南，那路明非是谁啊，大猫吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kyonkoism  
+##### 26378#       发表于 2025-2-18 21:10
+
+靠北，台长鸽了
+
+*****
+
+####  aritaatsu  
+##### 26379#       发表于 2025-2-18 21:12
+
+还真是破大防
+

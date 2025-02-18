@@ -42,3 +42,15 @@
 
 前面的朋友，你帖子我回复就出错，没法引用，我的链接是用idm下载的，你可试试。
 
+
+*****
+
+####  blackll7  
+##### 130#       发表于 2025-2-18 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460463&amp;ptid=2238139" target="_blank">ftfkjb 发表于 2025-2-18 20:45</a>
+这游戏还是有点问题，海底滑冰遇到两次进入死角，只能上下滑动出不来了。还没有传送道具魔法。 ...</blockquote>
+bug，同时按两个方向概率斜着卡进去/出来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
