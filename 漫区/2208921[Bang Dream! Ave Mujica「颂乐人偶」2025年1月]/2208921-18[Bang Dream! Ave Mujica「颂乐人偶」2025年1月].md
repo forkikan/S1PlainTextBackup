@@ -12577,3 +12577,25 @@ NMD第八集还在过渡回 这mujica到底怎么办啊 有本事你再出一季
 要是真演春日影还没爱音，你就看之后国内舆论怎么爆炸就完事了</blockquote>
 要是真演企鹅寻亲，你就看之后国内舆论怎么爆炸就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 26316#       发表于 2025-2-18 18:40
+
+下一话过渡回应该还好。
+
+国家队15话以后，我记得也有几话比较平静的。后面两个大考，睦莫关系+重组c团可以视为打叫龙+揭示外星人。然后攻略初华可以视为上太空+巨大02。
+
+海玲和喵梦甚至都轮不到被提及。
+
+
+*****
+
+####  天空塔书记官  
+##### 26317#       发表于 2025-2-18 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
