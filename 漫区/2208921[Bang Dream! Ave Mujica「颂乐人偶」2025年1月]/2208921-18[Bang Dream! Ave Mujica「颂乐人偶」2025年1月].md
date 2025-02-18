@@ -13190,3 +13190,107 @@ gbc的爆也是符合角色气质的，毕竟都是一群上艺校或者直接�
 
 还真是破大防
 
+
+*****
+
+####  aritaatsu  
+##### 26380#       发表于 2025-2-18 21:16
+
+<blockquote>ape-apple 发表于 2025-2-18 20:52
+gbc的爆也是符合角色气质的，毕竟都是一群上艺校或者直接辍学的社会人士，爆的无非也就是小镇青年厂姐厂妹 ...</blockquote>
+跟二游一样，为了骗氪背景不停提升角色的设定，像法特500年叠盒子叠到千年万年，但最终故事的落点都要回到女高中生搞乐队，彻底脱节
+
+*****
+
+####  是谁的书画  
+##### 26381#       发表于 2025-2-18 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460503&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 20:50</a>
+
+我觉得前面那些爆炸本质是来抽大祥的情况下，后面用大祥再把go团塑造给垫了顺带伤害一下爱音（虽然最后一 ...</blockquote>
+真打算狠狠的抽打的话，那是要把大祥抽到让观众感觉到可怜才能算抽到位了。
+
+现在的情况是，她没受到足够的“惩罚” （总有人给她兜底），大家都喜欢她（这甚至还包含喵梦，真是闹麻了），那这些所谓的抽打就只会越看越轻。
+
+我当然也没打算要求邦多利里面真出一个坏人，因为做不到。但是既然制作组就是设定了怎么一个人物，就应该真的去好好思考一下怎么样做才能给予这个角色足够的打击。
+
+把大祥逼迫到崩溃发疯乱吼乱叫彻底撕掉大小姐的皮，说不定会有更多看不得女孩子难过的成祥厨。
+
+*****
+
+####  是谁的书画  
+##### 26382#       发表于 2025-2-18 21:17
+
+终于给塞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cnlmaa  
+##### 26383#       发表于 2025-2-18 21:19
+
+这也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer"> 欸我乐子看到一半怎么人被塞了
+
+
+*****
+
+####  天空塔书记官  
+##### 26384#       发表于 2025-2-18 21:20
+
+说啥被塞了啊，这是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aritaatsu  
+##### 26385#       发表于 2025-2-18 21:21
+
+虽然木柜子闹麻算是恶意攻击，毕竟青春期少男女感情烦恼一直都是受欢迎的文艺话题，但触碰到现实的成人压力时，就会让人开始比较
+
+换言之，本来狗不是闹麻的，但编剧让她们闹麻了
+
+*****
+
+####  与太郎  
+##### 26386#       发表于 2025-2-18 21:24
+
+又翻了翻，贴几个写了对第7话有不满的日本人（即使是这几个人，总体上也还是持正向意见）
+
+[【感想】BanG Dream! Ave Mujica #7「Post nubila Phoebus.」](https://note.com/shuhei_sa/n/n89f6ffd52fa3)：①祥子什么时候知道睦“玩乐队不开心”的意思的；②soyo其实也应该给睦道歉；③モーティス还有救吗，要怎么处理；④祥子人格问题作为故事起点必然性太弱。
+
+[愛音、舞台装置になってはいけませんわ【Ave Mujica感想】](https://note.com/sanagihime/n/nfefa160f5b49#ca9728d4-089f-4e1d-ba71-c92fdc0da756)：爱音有点过于完美了，精神面也过于强大了，应该像前面一样更多表现她的纠结。
+
+[CRYCHIC再結成で感動できなかったオタクによるAve Mujica7話所感](https://note.com/oneone0929/n/n9b315394f873)：祥睦和解和C团再结成之间没有必然关联，演奏春日影告别过去稍显唐突。
+
+[CRYCHICの取り扱いを自分は勘違いしてたんだね(BanG Dream! Ave Mujica 7話の感想)](https://note.com/mamushi9/n/nb110b30ba34f#5333fe2f-ba5c-4893-8510-1eaa05ef7983):睦的双重人格设定真的是必要的吗？
+
+*****
+
+####  zhoujin8584  
+##### 26387#       发表于 2025-2-18 21:24
+
+是楼主有权限吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu  
+##### 26388#       发表于 2025-2-18 21:25
+
+攻击作品不行还是攻击gop河豚不行先给个准
+
+*****
+
+####  非建政专用号  
+##### 26389#       发表于 2025-2-18 21:25
+
+一般专楼有治外法权不是常识吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 26390#       发表于 2025-2-18 21:26
+
+估计是刷屏喷屎不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
