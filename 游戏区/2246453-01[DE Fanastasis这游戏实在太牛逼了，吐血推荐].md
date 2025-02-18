@@ -1066,3 +1066,11 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 玩了下，感觉就是走各种迷宫走到天荒地老。地下墓地那怪密 ...</blockquote>
 地下墓地正攻比反走舒服，不拿十字架那怪海确实很难接受
 
+
+*****
+
+####  约翰里德  
+##### 85#       发表于 2025-2-18 10:05
+
+船和那个海边女祭司的图都有不能打开的小房子，怎么开<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -9328,3 +9328,143 @@ soyo：第一步，找到saki；第二步，把话和saki说开；第三步，sa
 
 青木阳菜倒是真不好说，她明显是更看重自己吊gachi那个方向的，粉丝雄竞程度确实有点夸张。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 26018#       发表于 2025-2-18 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454212&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-18 09:47</a>
+
+道路是曲折的，前途是光明的，旧事物必将取代新事物
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+主要是这样的，之前老邦也有旧团散伙后面重聚的戏码，现在国内这边不少假药都是建立在ccc必须死的才是好故事，但是按目前的演出来看，wsd的想法应该是ccc活着才是ta用少女乐队赚钱的好故事。这点上几波人的理解是完全错位的。
+
+*****
+
+####  MuramasaSP  
+##### 26019#       发表于 2025-2-18 09:58
+
+<blockquote>与太郎 发表于 2025-2-18 09:52
+中日观众的直接差距是，日本观众大部分认为第7集这个剧情是「（CRYCHICに）ケジメをつける」，除了好き嫌い ...</blockquote>
+性价比比企谷这个说法有意思，他可能觉得“流于表面的人际关系”听起来更装逼。
+
+就跟蘑菇动不动“伪善”一样，通过刻奇地去贬低一般意义上的美好，去凸现“我们这个作品可不是可不是普普通通地歌颂美好，是有特殊意义的！”
+
+*****
+
+####  wpcc  
+##### 26020#       发表于 2025-2-18 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454297&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-18 09:55</a>
+
+立石凛哪点水平足够支持她单飞了，你说她是嫌活太累消极应对我都更信一点。
+
+青木阳菜倒是真不好说，她明显 ...</blockquote>
+我觉得一旦涉及到有人单飞拖死mygo不得不拉出ccc三次元复活这种理论是真的太吓人了
+
+*****
+
+####  fuwamoco  
+##### 26021#       发表于 2025-2-18 09:58
+
+这两有啥单飞的可能吗，有得压榨呢
+
+*****
+
+####  御幸一也  
+##### 26022#       发表于 2025-2-18 09:58
+
+爬了下樓真是鬧麻了，不會是覺得雞狗現在在日本熱度爆炸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拉新效果肯定是有，但也就那樣，新動畫都播了還沒拉到新觀眾那得多失敗，那肯定還是有新人的。但你說這有沒有到武士道預期，嗯，可能只有武士道知道<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+武士道這宣傳的砸錢力度，明顯是想要出圈那種，起碼也是在夢半個滾吧。
+
+但你看現在這樣子，好像水花也就那樣，當然這只是看推特的感覺，具體成績單還是要等BD和CD銷量呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+這是avemujica的動畫，主推的團nbcs問題已經很大，我覺得武士道策略錯了。
+
+上新宿456的應該是CCC，池袋的大廣告也應該還給CCC，這樣起碼推成功了一個CCC，對吧。
+
+而不是雞狗C大家都半死不活<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 26023#       发表于 2025-2-18 10:00
+
+不过比起lsl我更支持圣青木润 演个神棍猫 一集没一句人话这个真的太变态了
+
+*****
+
+####  wpcc  
+##### 26024#       发表于 2025-2-18 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454324&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-18 09:58</a>
+
+爬了下樓真是鬧麻了，不會是覺得雞狗現在在日本熱度爆炸了吧
+
+拉新效果肯定是有，但也就那樣，新動畫都播了 ...</blockquote>
+出发点是好的 武士道执行坏了是常有的 不然他怎么现在还是路边。。。
+
+*****
+
+####  老贝  
+##### 26025#       发表于 2025-2-18 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454319&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-18 09:58</a>
+我觉得一旦涉及到有人单飞拖死mygo不得不拉出ccc三次元复活这种理论是真的太吓人了 ...</blockquote>
+能信这个的真是这辈子有了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 26026#       发表于 2025-2-18 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454347&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-18 10:00</a>
+
+能信这个的真是这辈子有了。</blockquote>
+但是电竞天天有这种事，宙活为什么走不是为了钱 就是为了要指挥权就走了
+
+*****
+
+####  与太郎  
+##### 26027#       发表于 2025-2-18 10:01
+
+真单飞吗？
+
+柿本広大&amp;ゆにこ「愛音，你是不是想真人营业了」
+
+lsl「我的退路很多」
+
+刚好lsl也是在团期间读大学刚刚毕业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下一步就是控诉hibiki压榨声优，让声优当一辈子的junior了
+
+*****
+
+####  御幸一也  
+##### 26028#       发表于 2025-2-18 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454346&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-18 10:00</a>
+
+出发点是好的 武士道执行坏了是常有的 不然他怎么现在还是路边。。。</blockquote>
+只能說二流公司就是二流公司，avemujica這麼一手好牌能打爛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 26029#       发表于 2025-2-18 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454361&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-18 10:01</a>
+
+真单飞吗？
+
+柿本広大&amp;ゆにこ「愛音，你是不是想真人营业了」
+
+lsl「我的退路很多」</blockquote>
+所以杨姐是真的想跑 配个自闭症舔狗真的闹麻了 不知道怎么劝回来的 其他人目前就是商务猜猜没本人说过
+
