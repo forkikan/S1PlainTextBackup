@@ -14338,3 +14338,14 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 
 顺便一提叫大祥老师也是这个哏，大X传是不会加老师的，你想想香音有没有被叫大香老师……
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 26474#       发表于 2025-2-19 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461656&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-18 23:30</a>
+
+坛友说的这个嘛？</blockquote>
+绿毛可爱,建议携粉毛加入苏米米组成偶像银河战舰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
