@@ -487,3 +487,20 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Linkwjj  
+##### 54#       发表于 2025-2-18 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457903&amp;ptid=2246635" target="_blank">kuarwbwe 发表于 2025-2-18 15:51</a>
+
+那你任也说一下咋改呗。现在从锁信用卡，到改点数反馈全是麻烦玩家的。骂两句就骂呗。
+
+—— 来自 鹅球 v3. ...</blockquote>
+3/25停
+
+4/2新发布会
+
+你猜为啥接的这么近<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

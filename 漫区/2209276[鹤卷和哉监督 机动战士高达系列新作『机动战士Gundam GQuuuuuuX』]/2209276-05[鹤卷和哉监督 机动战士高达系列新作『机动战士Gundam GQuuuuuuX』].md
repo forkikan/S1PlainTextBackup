@@ -15243,3 +15243,28 @@ z高达第十集里捷利德这个算不算MAV战？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Piano-Forest  
+##### 7090#         楼主| 发表于 2025-2-18 23:58
+
+◤“特別映像”追加決定◢
+
+2月22日(土)より、本編映像の上映後に“特別映像”の追加が決定！
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』のその先の物語が垣間見える内容となっています。
+
+さらに同日からは、MX4Dと4DXの上映も開始！
+
+ぜひ劇場にてご確認ください！
+<img src="https://p.sda1.dev/22/427d15ac5f4243f5de21b57986ed29f6/20250218_235629.jpg" referrerpolicy="no-referrer">
+
+◤入プレ第5弾◢
+
+さらに、2月22日(土)からの入場者プレゼント第5弾は、こちらのイラストカードに決定！
+
+本作のアニメーションキャラクターデザイン・キャラクター総作画監督を務めた #池田由美 さんによる描き下ろしです！
+<img src="https://p.sda1.dev/22/5c10fdc436c117a58270cc7f9afa5bc7/20250218_235643.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a46527419720a56a9899c0b00746897c/20250218_022808.jpg" referrerpolicy="no-referrer">
+
