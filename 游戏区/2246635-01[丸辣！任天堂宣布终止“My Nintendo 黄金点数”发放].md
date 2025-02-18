@@ -465,3 +465,15 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 任任没急，GK先急了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  obiy  
+##### 52#       发表于 2025-2-18 22:38
+
+金币随风逝
+
+游戏梦断三月末
+
+任天堂新章
+

@@ -13871,3 +13871,51 @@ lsl怎么？前几天的现地敷衍已经进化成要单飞了吗</blockquote>
 让观众的观感和 ...</blockquote>
 毕竟这是大祥传，戏份上必然如此
 
+
+*****
+
+####  cxj649  
+##### 26435#       发表于 2025-2-18 22:37
+
+ 本帖最后由 cxj649 于 2025-2-18 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461281&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-18 22:30</a>
+
+骂的难道不是c团这几个遗老就不能有点眼力见，凭什么还让爱音当圣人吗，她这两季是好事做尽四处出击帮忙， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实灯自己上反而最好的，估计只会继续“灯皇！”吧
+
+爱音帮忙到现在太太微妙了233
+
+“圣好人”“圣黄毛”233
+
+*****
+
+####  高贵的  
+##### 26436#       发表于 2025-2-18 22:38
+
+可说是大祥传，但看官方第8集的情报祥子好像没啥主观能动性还是需要被推着走，已经不知道制作组的思路了，可能这就是史上最狂吧
+
+
+*****
+
+####  安娜导函数  
+##### 26437#       发表于 2025-2-18 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461324&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-18 22:37</a>
+其实灯自己上反而最好的，估计只会继续“灯皇！”吧
+
+爱音帮忙到现在太太微妙了233
+
+“圣好人”“圣黄毛”23 ...</blockquote>
+编剧设定中爱音不过是灯的电动轮椅罢了，没这个轮椅灯都走不动道的，怎么可能是灯行动起来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 26438#       发表于 2025-2-18 22:44
+
+<blockquote>zhzij111 发表于 2025-2-18 22:30
+骂的难道不是c团这几个遗老就不能有点眼力见，凭什么还让爱音当圣人吗，她这两季是好事做尽四处出击帮忙， ...</blockquote>
+其实这就是广告片，出脑一下，现在企划要求必须有个ccc live，换3名ccc遗老提那是真的一点都不在乎go了，反而就得安排会读空气的爱音提。
+
+当然情节设计上，占用排练时间到新歌变c歌，确实是制作有意而为之了
+
