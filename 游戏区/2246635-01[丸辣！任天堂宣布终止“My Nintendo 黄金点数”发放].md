@@ -381,3 +381,13 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  再迷  
+##### 43#       发表于 2025-2-18 17:04
+
+等着看新开的台服或者拆分之后的港服能不能给点力了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

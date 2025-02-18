@@ -12197,3 +12197,17 @@ https://c.tieba.baidu.com/p/9492716995
 
 <img src="https://p.sda1.dev/22/f1786b04465e7d03d6ca998edfc6a8c6/QQ图片20250218105555.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 26279#       发表于 2025-2-18 16:58
+
+我现在在听:
+
+[分享sumimi的单曲《Here, the world!》: http://163cn.tv/B2xO3TV (来自@网易云音乐)](http://163cn.tv/B2xO3TV)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
