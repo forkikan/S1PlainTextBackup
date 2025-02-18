@@ -2767,3 +2767,11 @@ Xbox也开始疯狂断线了<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  BareBears  
+##### 298#       发表于 2025-2-18 11:22
+
+看了一下别人玩，感觉是特别粉丝向的游戏。
+

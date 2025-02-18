@@ -10050,3 +10050,243 @@ ccc只有两周是锤了吗
 #8 Belua multorum es capitums.</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嫉妒心，海铃，不愧是史上最狂。神人乐队是吧？
 
+
+*****
+
+####  cccpprc  
+##### 26079#       发表于 2025-2-18 11:16
+
+<blockquote>厚乳果珍爽 发表于 2025-2-18 11:15
+嫉妒心，海铃，不愧是史上最狂。神人乐队是吧？</blockquote>
+“她SOYO是个贝斯我也是个贝斯”
+
+*****
+
+####  aritaatsu222  
+##### 26080#       发表于 2025-2-18 11:17
+
+老中人也喜欢明珠蒙尘和斗财阀啊，鸡狗只是把郭导十几年前玩的那套平移到二次元美少女jk身上再附赠几个nsy，土都土得要死，现在jj火葬场文都不稀罕，没觉得诗超绊有比时间煮雨好多少
+
+
+*****
+
+####  ads147147  
+##### 26081#       发表于 2025-2-18 11:17
+
+ 本帖最后由 ads147147 于 2025-2-18 11:18 编辑 
+
+明确写了海玲是因为嫉妒才开始重组啊。。。要我怎么评呢，您要是真的嫉妒应该去找立希下跪把soyo这个女人踢走自己进mygo。。。也可能是开过银河战舰再去mygo那条小船确实也不太适合。。。
+
+*****
+
+####  ape-apple  
+##### 26082#       发表于 2025-2-18 11:17
+
+ 本帖最后由 ape-apple 于 2025-2-18 11:22 编辑 
+
+跟高尾比家庭背景疑似是幽默了，但高尾除了👃之外事业心和能力都是很强的，如果lsl想待着，邦也没有毕业制，就一直待着呗。除非是极其重大问题wsd也不会踢人，但是只要把手上几个已有成员拼凑一下就是新团，姨姥热泪盈眶，那还确实有用，顺便C团一专已经出来了，抓紧看
+
+9d713ebe0d5ca9821658f1a99e45270f.jpeg
+(103.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/112215qttkrr922byy9tt3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 26083#       发表于 2025-2-18 11:17
+
+那离谱剧透的舅舅是不是透了海铃这集要宣誓忠诚
+
+*****
+
+####  与太郎  
+##### 26084#       发表于 2025-2-18 11:18
+
+我看独角兽和柿本的所有采访里，都说的是mygo和a团是一体两面的故事，是c团各自的延续，前面楼友是在哪里看到柿本说a团和c团无关的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+话说这个采访翻译有人发过吗
+
+<img src="https://img.saraba1st.com/forum/202502/18/111605yvo7jddf87oo1v81.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (430.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/111614cmwybagb2kuptpzz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (493.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/111624f9bcvzm886cci5qq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (511.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/111659ziw71hd1hmxiwdc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (476.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/111710pdwdozfvaaaf16f2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (549.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/18/111748kroey50xo6xe0eka.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (346.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 11:17 上传
+
+*****
+
+####  qlipho  
+##### 26085#       发表于 2025-2-18 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455155&amp;ptid=2208921" target="_blank">sdeplee 发表于 2025-2-18 11:13</a>
+
+她顶多是家庭水平不错 不需要吃这碗饭大不了回家宅着找人嫁了 真大小姐还得看高尾女士 ...</blockquote>
+高尾也就‘不知道西瓜是圆的’这种程度吧，算不上真大小姐
+
+*****
+
+####  aritaatsu222  
+##### 26086#       发表于 2025-2-18 11:18
+
+程门立雪这套短剧都不玩的，短剧现在虐渣要原谅就算是出来挡了一刀躺在地上求原谅观众都不一定吃
+
+*****
+
+####  御幸一也  
+##### 26087#       发表于 2025-2-18 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455246&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-18 11:18</a>
+
+我看独角兽和柿本的所有采访里，都说的是mygo和a团是一体两面的故事，是c团各自的延续，前面楼友是在哪里看 ...</blockquote>
+因為我引用監督的話說，可以不看go直接看mujica，之後就是他的解讀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aritaatsu222  
+##### 26088#       发表于 2025-2-18 11:20
+
+隔栅栏拥抱诉情更是土出渣渣。。。
+
+*****
+
+####  wpcc  
+##### 26089#       发表于 2025-2-18 11:20
+
+海玲你在干什么 你要和soyo抢人吗 都是贝斯怎么不能是我？
+
+*****
+
+####  wpcc  
+##### 26090#       发表于 2025-2-18 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455260&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-18 11:18</a>
+
+程门立雪这套短剧都不玩的，短剧现在虐渣要原谅就算是出来挡了一刀躺在地上求原谅观众都不一定吃 ...</blockquote>
+昨天b站串子运营直接发头图木门立雪我没给气死
+
+*****
+
+####  fuwamoco  
+##### 26091#       发表于 2025-2-18 11:21
+
+<blockquote>adretyu67. 发表于 2025-2-18 10:40
+busuz第七话比较刻意的是墨主动下线换黄瓜上来。
+
+话说回来双重人格切起来这么方便吗。
+
+黄瓜上号那就是冲着C ...</blockquote>
+还真是这么方便
+
+【美国首例被研究离解性身份障碍（DID）患者1956年访谈-哔哩哔哩】 https://b23.tv/KlANiz2
+
+*****
+
+####  wzm96816  
+##### 26092#       发表于 2025-2-18 11:21
+
+嗯，额，倒也不是不行，海铃mygo第十集，第十二集都在现场看着立希，第九集还亲身参与了mygo乐团，说过羡慕立希，哦想要归宿，在第二季通过立希也知道睦的现状，被立希说了后在自己想这些，最后第七集看完c团和解，就有了嫉妒的野心，从逻辑上勉强说的过去。
+
+希望第八集海铃多给点戏份和心理路程，否则太短戏份太少的话观感会差。
+
+*****
+
+####  zhoujin8584  
+##### 26093#       发表于 2025-2-18 11:22
+
+以前我会说鸡团下限是小时代，现在只能说碰瓷了，我是说mujica
+
+
+*****
+
+####  厚乳果珍爽  
+##### 26094#       发表于 2025-2-18 11:22
+
+[https://nga.178.com/read.php?tid=43300455](https://nga.178.com/read.php?tid=43300455)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁假药总结，相当乐了，到现在还活着的假药等于没了吧？
+
+*****
+
+####  wpcc  
+##### 26095#       发表于 2025-2-18 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67455289&amp;ptid=2208921" target="_blank">aritaatsu222 发表于 2025-2-18 11:20</a>
+
+隔栅栏拥抱诉情更是土出渣渣。。。</blockquote>
+独角兽还挺满意的你别说
+
+*****
+
+####  丹德里恩  
+##### 26096#       发表于 2025-2-18 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">原来海铃不是在串
+
+*****
+
+####  南宮凝香  
+##### 26097#       发表于 2025-2-18 11:23
+
+海子姐你也冰癮犯了？
+
+馬希洛賣給祥子的貨到底有多純？
+
+*****
+
+####  cccpprc  
+##### 26098#       发表于 2025-2-18 11:24
+
+<blockquote>aritaatsu222 发表于 2025-2-18 11:17
+老中人也喜欢明珠蒙尘和斗财阀啊，鸡狗只是把郭导十几年前玩的那套平移到二次元美少女jk身上再附赠几个nsy ...</blockquote>
+但是也没斗啊
+
+别告诉我说第十三集是把之前剧情缺失混乱的部分用初华回忆录补完吧
+
+那可真是十五年未有之戏弄观众了
+
