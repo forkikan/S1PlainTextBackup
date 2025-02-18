@@ -9105,3 +9105,66 @@ mujica强行大女主暴死小主唱，没了二次元幻想怎么卖碟，碟�
 
 说鸡狗两家真人团魂和动画相反，也是某种意义上的擅自解读了，到这个时间点上明眼人也能看出来：mygo真人团没啥团魂，戏内团魂也是3+2，鸡团戏内团魂等于零，戏外也是2+2+1，👃胖是一伙人，🦎李是一伙，梦姨营业力很强，不过也就那样
 
+
+*****
+
+####  御幸一也  
+##### 25997#       发表于 2025-2-18 09:37
+
+貶mujica動畫就算了，真人團也是被順勢踩上一腳了，“也就那樣”都來了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 25998#       发表于 2025-2-18 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454024&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-18 09:30</a>
+说鸡狗两家真人团魂和动画相反，也是某种意义上的擅自解读了，到这个时间点上明眼人也能看出来：mygo真人团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我别的不说，现实里必须要营业的时候还是得营业吧，我也不说谁了；你说对吧🙃，go团你们营业的时候怎么回事
+
+
+*****
+
+####  wpcc  
+##### 25999#       发表于 2025-2-18 09:40
+
+lsl我看是准备单飞了 就是戏路是不太窄了不好飞哦
+
+*****
+
+####  wpcc  
+##### 26000#       发表于 2025-2-18 09:40
+
+这温泉娘你能听得下去不笑也是神人了
+
+
+*****
+
+####  595505568  
+##### 26001#       发表于 2025-2-18 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454138&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-18 09:40</a>
+lsl我看是准备单飞了 就是戏路是不太窄了不好飞哦</blockquote>
+我只能说动画我先不管，场外一副C团要复活的架势总觉得是真人团的问题<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，现在不安的地方是爱音和LsL捆死了的情况下能不能跟之前一样换人了，如果LsL再这么下去现地都要不想看到她了吧
+
+*****
+
+####  wpcc  
+##### 26002#       发表于 2025-2-18 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454157&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-18 09:42</a>
+
+我只能说动画我先不管，场外一副C团要复活的架势总觉得是真人团的问题，现在不安的地方是爱音和LsL捆死了 ...</blockquote>
+四团共演是常态其实真不能这么整的 武士道我感觉是资源不够每个人都出场两个团弄了个这么个玩意 但是lsl实在太菜了单飞很有成绩吧 
+
+*****
+
+####  ads147147  
+##### 26003#       发表于 2025-2-18 09:43
+
+说起来ccc还真是按照爽姐当年的计划复活的。
+
+soyo：第一步，找到saki；第二步，把话和saki说开；第三步，saki被说服了，回归；第四部，睦你也回乐队吧。
+
+完美四步走，只不过中间有点波折罢了。
+

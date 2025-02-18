@@ -1009,3 +1009,15 @@ mark一下 不过RM游戏打折后还要80块钱 感觉还是贵了点<img src="
 我看
 b站视频评论区下说最后可以选异性恋那是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightangel  
+##### 81#       发表于 2025-2-18 09:40
+
+这游戏本身剧情就没多少吧，还扯啥感情线呢。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+玩了下，感觉就是走各种迷宫走到天荒地老。地下墓地那怪密度过于离谱根本不能躲，切下图还全复活也太恶心了。。。
+
+相比这作我果然更喜欢BS2，玩起来舒服多了。
+
