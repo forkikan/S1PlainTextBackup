@@ -11371,3 +11371,48 @@ wsd别卖蛋白棒了，改卖破壁菌子粉得了
 
 还得是手游端水吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，爱灯，猫灯，素希
 
+
+*****
+
+####  DARK_HGCG  
+##### 26199#       发表于 2025-2-18 13:28
+
+有没有可能海铃假装事不关己的雇佣兵
+
+其实是受过刺激于是通过在各个乐队埋暗雷破坏乐队取乐
+
+原来以为母鸡卡炸了其他人都会不幸很开心
+
+结果发现祥子找回C团了
+
+于是打算再炸一次母鸡卡
+
+*****
+
+####  安娜导函数  
+##### 26200#       发表于 2025-2-18 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456164&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-18 12:31</a>
+另外， 舅舅消息最扯的是海鈴會退了之前的樂隊
+
+結合場外WSD 的動向， 我只能說海子也是個頂級串子 ...</blockquote>
+那么海玲最后退出mygo了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  木板春香  
+##### 26201#       发表于 2025-2-18 13:31
+
+ 海玲啥时候加入的Mygo?  我只是在想，那些觉得CCC真的下葬的人，如果后面母鸡卡也来一版春日影，要怎么圆呢
+
+顺便：
+
+<img src="https://img.saraba1st.com/forum/202502/18/133245xz54wtzwbrzcuvtq.jpg" referrerpolicy="no-referrer">
+
+<strong>4BL0IB1)E{(5@C6}39U)$`C_tmb.jpg</strong> (109.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 13:32 上传
+
