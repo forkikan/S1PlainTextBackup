@@ -426,3 +426,14 @@ DS自己的服务器根本承载不了实际需求啊
 
 加强安保。。。
 
+
+*****
+
+####  mimighost  
+##### 49#       发表于 2025-2-18 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458341&amp;ptid=2246639" target="_blank">菠萝剑3000 发表于 2025-2-18 16:31</a>
+
+不是这个专业的看不懂，有没有省流版的告诉我，这个论文对老马的股价有影响么？ ...</blockquote>
+没啥影响，实验的模型小
+

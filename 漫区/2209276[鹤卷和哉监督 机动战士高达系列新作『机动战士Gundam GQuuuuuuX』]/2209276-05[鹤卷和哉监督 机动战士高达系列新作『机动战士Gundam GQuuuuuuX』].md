@@ -15214,3 +15214,13 @@ GQX显示为未登记
 
 aaa很像小朋友打游戏给角色起名あああ
 
+
+*****
+
+####  积木23ki  
+##### 7087#       发表于 2025-2-18 19:05
+
+这个应该是过渡卡吧，使劲盯半天才发现喵安不是完全黑的，也看到别人po的正常画面了，但这胶片本来不对光就是黑的这岂不是更黑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/94deb2130ce2c678f038e92481966e32/image.jpg" referrerpolicy="no-referrer">
+
