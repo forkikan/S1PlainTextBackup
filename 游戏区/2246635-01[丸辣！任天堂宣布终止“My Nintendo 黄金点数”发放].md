@@ -369,3 +369,15 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 价格啥的好商量，境外信用卡倒是救救啊
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 42#       发表于 2025-2-18 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67458446&amp;ptid=2246635" target="_blank">RockingHorse 发表于 2025-2-18 16:42</a>
+价格啥的好商量，境外信用卡倒是救救啊</blockquote>
+这个真救不了，日本政府定的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
