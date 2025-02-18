@@ -441,3 +441,16 @@ ps:sheet名显示为”已恢复_X"是因为游戏名字太长了，腾讯文档
 
 結局（瞬間交錯傳說Ⅱ）
 
+
+*****
+
+####  绿冰  
+##### 42#         楼主| 发表于 2025-2-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454516&amp;ptid=2209171" target="_blank">freedom12 发表于 2025-2-18 10:16</a>
+
+这次mii广场 繁中有官方译名
+
+選擇軟體圖示</blockquote>
+差点忘了，国行3DS当时是不是把擦肩功能都砍了？
+

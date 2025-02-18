@@ -9531,3 +9531,85 @@ lsl「我的退路很多」</blockquote>
 
 这样想灯素希从C团拆出来之后，立希是想提升自己能力当队长的，素世是想找个不用笑脸相迎的团队的，好像确实只有灯是最有可能回C的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 26036#       发表于 2025-2-18 10:17
+
+别天天把四团并行挂嘴上了，本来看到对邦确定就能猜到的现地会搞ccc重组，也就sumimi意外一点，两个一辈子不会再有新歌的动画限定团用来在重要的live当噱头炒作一下，还给分析上了，如果不是串的那真是有了
+
+*****
+
+####  wpcc  
+##### 26037#       发表于 2025-2-18 10:18
+
+武士道弄四个团的动机一下子破朔迷离了 什么叫作我一开始也没打算复活ccc只是剧本弄出来自己嗨的
+
+最终商业分析的时候动画其实就没打算改 
+
+但是把谁弄上TFT是最终矛盾点
+
+二偶不能完全脱离公司资源导向去分析动画的
+
+因为只看动画我当然可以说ccc和解了 接着各回各家
+
+*****
+
+####  wpcc  
+##### 26038#       发表于 2025-2-18 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454543&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-18 10:17</a>
+
+别天天把四团并行挂嘴上了，本来看到对邦确定就能猜到的现地会搞ccc重组，也就sumimi意外一点，两个一辈子 ...</blockquote>
+如果我说有新歌呢
+
+
+*****
+
+####  指南アキラ  
+##### 26039#       发表于 2025-2-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451533&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-17 20:41</a>
+
+https://www.youtube.com/watch?v=0RLDUHVOt5I
+
+这个乐队哥讲的自己作为真搞乐队的理解，很接近目前大陆的 ...</blockquote>
+完整看了下，也就6-11分钟这段，发癫的国内观众能接受吧，多几秒都不行，紧接着就是<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/18/102230rz0kvdc0w0sypdfp.jpg" referrerpolicy="no-referrer">
+
+<strong>DHASOIHDOFAODFA.jpg</strong> (161.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 10:22 上传
+
+*****
+
+####  sdeplee  
+##### 26040#       发表于 2025-2-18 10:23
+
+LSL这种底边想跑路是多想不开 go团里面目前有能力有意愿单飞的只有羊一个人 现在wsd这各种脑瘫操作但凡她咖位再大点早跑路远离这个神人企划了 
+
+鼓子青木各0.5 至少业务能力没问题也有别的饭票 没有什么事业上突破搞搞乐队赚个稳定工资也是一条路
+
+
+*****
+
+####  滑稽Captain  
+##### 26041#       发表于 2025-2-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454571&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-18 10:19</a>
+
+如果我说有新歌呢</blockquote>
+那把你的武士道社员证明拿出来看看吧，它就不存在在剧情之外还创造新歌的理由
+
+*****
+
+####  老贝  
+##### 26042#       发表于 2025-2-18 10:24
+
+ccc如果有新歌要卖，直接塞mygo里其实问题也不大，毕竟特典都是送的灯写给祥子的标签。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+不过4月23号发售的6单只有两首歌，位置不太够。
+

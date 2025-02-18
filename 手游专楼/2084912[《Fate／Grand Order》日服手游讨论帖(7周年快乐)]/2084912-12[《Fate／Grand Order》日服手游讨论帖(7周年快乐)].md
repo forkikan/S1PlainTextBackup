@@ -1181,3 +1181,44 @@ https://m.bilibili.com/opus/1033632735051120642
 那还是不太一样，前面一股一本正经给你演搞笑片的感觉，因为想活下去太过努力，观音看了大为感动，直接召唤你升天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 后面就开始玩尬的了。不过仔细想想，其实是一个日本人太喜欢看日本少女漫画，观音都拽不走的事，好像又有点合理
 
+
+*****
+
+####  poor  
+##### 16381#       发表于 2025-2-17 21:14
+
+观音上身马上要升天那里笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 16382#       发表于 2025-2-17 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67451758&amp;ptid=2084912" target="_blank">poor 发表于 2025-2-17 21:14</a>
+观音上身马上要升天那里笑死了</blockquote>
+然后被少女漫画拽下来更好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  poor  
+##### 16383#       发表于 2025-2-18 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67452337&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-2-17 22:46</a>
+然后被少女漫画拽下来更好笑了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+那还是不太一样，前面一股一本正经给你演搞笑片的感觉，因为想活下去太过努力，观音看了大为感动，直接召唤你升天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+后面就开始玩尬的了。不过仔细想想，其实是一个日本人太喜欢看日本少女漫画，观音都拽不走的事，好像又有点合理
+
+*****
+
+####  UNISONIA  
+##### 16384#       发表于 2025-2-18 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67446211&amp;ptid=2084912" target="_blank">marxel 发表于 2025-2-17 11:04</a>
+
+快进到白情落地觉者（Ruler），还能赶上奏四这桌</blockquote>
+个人觉得他们整阿育王就是拿来当觉者的转轮王代餐的
+

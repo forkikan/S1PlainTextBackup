@@ -622,3 +622,19 @@ Resilio Sync: B4Q62WPFAF5VVGKNUOAQ365HXOPJV5KUO
 
 等下小美野上臺之後，學馬仕出道LIVE（全23場）結束。
 
+
+*****
+
+####  Unlight  
+##### 6927#         楼主| 发表于 2025-2-18 10:23
+
+SACD到了，好tm大啊，这是黑胶尺寸的包装了。搞不好会头还得再卖一次黑胶
+
+<img src="https://img.saraba1st.com/forum/202502/18/102344gfg5zlfo32lcxg9k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1274.jpeg</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-18 10:23 上传
+

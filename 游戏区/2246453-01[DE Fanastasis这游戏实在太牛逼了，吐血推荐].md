@@ -1074,3 +1074,22 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 船和那个海边女祭司的图都有不能打开的小房子，怎么开<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寻狐  
+##### 86#       发表于 2025-2-18 10:19
+
+这个有汉化吗？我看STEAM没汉化啊
+
+*****
+
+####  alleriawr9  
+##### 87#       发表于 2025-2-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67454409&amp;ptid=2246453" target="_blank">约翰里德 发表于 2025-2-18 10:05</a>
+船和那个海边女祭司的图都有不能打开的小房子，怎么开</blockquote>
+船长室队里有船长就能开，巫女房间统一需要巫女钥匙，应该就在巫女boss后面
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
