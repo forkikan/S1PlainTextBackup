@@ -14284,3 +14284,13 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  remedios010000  
+##### 26469#       发表于 2025-2-19 00:24
+
+哪里说的要给CRYCHIC出新歌？春日影和人类歌不都是老歌么<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">wsd炒麻了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
