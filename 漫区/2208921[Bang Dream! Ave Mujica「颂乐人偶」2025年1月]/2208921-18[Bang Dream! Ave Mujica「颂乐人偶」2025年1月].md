@@ -14663,3 +14663,57 @@ https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
 https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
 这说法好像不如这个贴子最后一楼的大祥老师说<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 26503#       发表于 2025-2-19 09:35
+
+编辑了，有人发了
+
+*****
+
+####  半年  
+##### 26504#       发表于 2025-2-19 09:38
+
+<img src="https://img.saraba1st.com/forum/202502/19/093727af04vwwooocvvhjn.jpg" referrerpolicy="no-referrer">
+
+<strong>GkEPh4naIAAtca1.jpg</strong> (318.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:37 上传
+
+<strong>[https://x.com/sorawo5084/status/1891810469880463656/photo/1](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2210399&amp;pid=67462988) </strong>
+
+*****
+
+####  AlterDialog  
+##### 26505#       发表于 2025-2-19 09:38
+
+二游痴的味又憋不住了
+
+*****
+
+####  南宮凝香  
+##### 26506#       发表于 2025-2-19 09:39
+
+皮….皮套論！
+
+內部愛！
+
+主推！
+
+
+*****
+
+####  huxiaopao163  
+##### 26507#       发表于 2025-2-19 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462490&amp;ptid=2208921" target="_blank">Mkntoil 发表于 2025-2-19 08:15</a>
+
+狗ep3里祥子去灯家那一段，灯集齐的笔记本上写的都是平假名。感觉这个成为伏笔的可能性存疑？ ...</blockquote>
+类似小时候用平假名，但是长大以后用汉字，正常情况下应该不会再反过来
+
+而且mygo第三集看以前收藏的本子里，是没有mujica第七集这本的
+
