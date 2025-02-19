@@ -922,3 +922,46 @@ lyy爱素情人节后续
 ####  新HGCG  
 ##### 26726#       发表于 2025-2-19 21:37
 
+
+*****
+
+####  kyonkoism  
+##### 26727#       发表于 2025-2-19 21:38
+
+台长终于发了 再不发第八集都出了
+
+*****
+
+####  凉良  
+##### 26728#       发表于 2025-2-19 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468719&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-19 20:42</a>
+
+鸡团五个人拟人度最高的肯定的墨老师
+
+虽然墨老师是个4岁娃娃复读怪，但也比其他人像人多了。
+
+初华拟人度只 ...</blockquote>
+你怎么就肯定第九集开始描写了？
+
+*****
+
+####  金钱与民主  
+##### 26729#       发表于 2025-2-19 21:43
+
+B限也算好事，这个沸反盈天的节骨眼上，继续开B限和CV盾有啥区别？停了也好。
+
+
+*****
+
+####  安娜导函数  
+##### 26730#       发表于 2025-2-19 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468073&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-19 19:16</a>
+雞團的人度
+
+初華 》海鈴 〉莫老師 》 睦 〉                   大喵 》祥子</blockquote>
+我觉得吧
+雞團的人度
+海鈴 &gt; 莫老師 &gt; 大喵 &gt;初华 &gt;&gt;睦                &gt;&gt;&gt;祥子
+

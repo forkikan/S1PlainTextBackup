@@ -16442,3 +16442,13 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼�
 
 富野最近看的高达是哪一部(我就记得富野看了鬼灭)
 
+
+*****
+
+####  没取名啊  
+##### 7180#       发表于 2025-2-19 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469061&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-2-19 21:28</a>
+富野最近看的高达是哪一部(我就记得富野看了鬼灭)</blockquote>
+cca吧，和出渊裕一起拍访谈前看了开头几分钟<img src="https://p.sda1.dev/22/e126f54d700f26e55e77e3fe9694d9fd/image.jpg" referrerpolicy="no-referrer">
+
