@@ -1286,3 +1286,121 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厚乳果珍爽  
+##### 26763#       发表于 2025-2-19 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469735&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-19 22:55</a>
+
+错误的，哪怕WSD真像你吹的那样在日本牛逼坏了，也不代表他在中国市场就要当一头死猪把头埋地里。
+
+本⏰z ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老中热不热真没啥关系啊，老中这地方就决定了买碟买谷都麻烦，wsd真正能吃到老中热度的流量也就只有演唱会了，但是一年能开几场呢？
+
+*****
+
+####  凉良  
+##### 26764#       发表于 2025-2-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469942&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-19 23:23</a>
+初华粉丝已经承认金毛是弱智了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+遥想我金毛大侦探 555
+
+
+*****
+
+####  [皆神孝介]  
+##### 26765#       发表于 2025-2-19 23:47
+
+今天又看了一遍第七话，大概也是周四前最后一次了
+
+<img src="https://img.saraba1st.com/forum/202502/19/232546vudnzy61udnd8bib.jpg" referrerpolicy="no-referrer">
+
+<strong>图片1.jpg</strong> (395.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+祥子在立希回忆中的滤镜非常厚，所以本话对祥子也会哭才很惊讶吧，不过见了面忍不住发问又马上否认，真是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/19/232545vugrjk9x9kvu62c6.jpg" referrerpolicy="no-referrer">
+
+<strong>图片2.jpg</strong> (846.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+↓↓↓↓↓因为某个流传比较广的翻译，不知道给新观众解释过多少次立希其实并不比灯年纪小，不选择直升是想离开有姐姐影响力的环境<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/19/232548ndh2q2s72aoozv6h.png" referrerpolicy="no-referrer">
+
+<strong>图片3.png</strong> (880.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+动画里竟然点出来了，真是惊喜
+
+<img src="https://img.saraba1st.com/forum/202502/19/232544ecomalhhkvc8lmkv.jpg" referrerpolicy="no-referrer">
+
+<strong>图片4.jpg</strong> (521.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+看着立希和Soyo像真正的朋友一样聊天，好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/19/232545dejce82n8dfsqfqd.jpg" referrerpolicy="no-referrer">
+
+<strong>图片5.jpg</strong> (106.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+不过祥子在一旁插不进话，现在已经有隔阂了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+这里结合后面与乐奈的对视，感觉有点怪，标记下<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/19/232547pp9sd9d64txasuxh.jpg" referrerpolicy="no-referrer">
+
+<strong>图片6.jpg</strong> (653.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/232549d7hw7eax72rhwjz7.png" referrerpolicy="no-referrer">
+
+<strong>图片7.png</strong> (2.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+截两张本话最喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/19/232553i9upojzuujbbewbj.png" referrerpolicy="no-referrer">
+
+<strong>图片8.png</strong> (3.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/232551od55dsi5e5t5i11t.png" referrerpolicy="no-referrer">
+
+<strong>图片9.png</strong> (2.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 23:25 上传
+

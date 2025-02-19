@@ -1310,3 +1310,17 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 希望作者能加个官中，把国内玩家群做的那个放上去就行了，这样一个内容充实，完成度极高的精品JRPG，在中文圈明珠蒙尘实在是太可惜
 
+
+*****
+
+####  塔奇克马  
+##### 106#       发表于 2025-2-19 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457641&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-18 15:23</a>
+你现在队友是船长，金毛火法，绿毛魔物猎人？下地下墓地马上可以拿到物理输出的强角--双刀哥
+
+作者估计也 ...</blockquote>
+双刀吸血鬼最强物理吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">完了，我这里一直在坐冷板凳，<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">长矛哥咋样啊，一直用他
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

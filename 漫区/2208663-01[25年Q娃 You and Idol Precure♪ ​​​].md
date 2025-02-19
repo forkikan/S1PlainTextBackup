@@ -3063,3 +3063,14 @@ cure wing和cure wink挺容易听错
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">从什么时候开始男人就变成了悬在大友头顶上的达摩利克斯之剑呢
 
+
+*****
+
+####  pokemon最爱  
+##### 549#       发表于 2025-2-19 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468866&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-2-19 21:03</a>
+
+从什么时候开始男人就变成了悬在大友头顶上的达摩利克斯之剑呢</blockquote>
+蓝神全责（确信）
+
