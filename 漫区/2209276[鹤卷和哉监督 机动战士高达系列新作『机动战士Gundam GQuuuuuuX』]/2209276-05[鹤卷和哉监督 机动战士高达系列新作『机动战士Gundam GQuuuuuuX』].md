@@ -15904,3 +15904,40 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 赛程奖金主办方感觉都不会具体 ...</blockquote>
 可能是我记错了一下子找不到出处，但印象里鹤卷在某个场合说过至少有相当一部分主线是早上校园晚上打拳……
 
+
+*****
+
+####  积木23ki  
+##### 7135#       发表于 2025-2-19 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466001&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-19 15:42</a>
+可能是我记错了一下子找不到出处，但印象里鹤卷在某个场合说过至少有相当一部分主线是早上校园晚上打拳… ...</blockquote>
+这特么不就是银河美少年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  0aleph37  
+##### 7136#       发表于 2025-2-19 16:00
+
+校园戏修司都出场不了，麻球那是大小姐女校，喵安还能勉强混进去
+
+*****
+
+####  kuriri  
+##### 7137#       发表于 2025-2-19 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466129&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-19 16:00</a>
+
+校园戏修司都出场不了，麻球那是大小姐女校，喵安还能勉强混进去</blockquote>
+找到出处了
+
+1739952257727.jpg
+(117.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/160510lh42mkzu31ho2z34.jpg" referrerpolicy="no-referrer">
+

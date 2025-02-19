@@ -16057,3 +16057,45 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 </blockquote>
 没必要再搞ccc了，爽姐跟黑祥比是更重视家庭成员的那种，不需要一之濑这个家庭的虚壳。现在在mygo摆烂做甩手掌柜不爽就施展寡妇重力场惬意的很
 
+
+*****
+
+####  loneyuki  
+##### 26632#       发表于 2025-2-19 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461486&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 23:01</a>
+白天看到红绿灯这个称呼真是要笑死我，而且其实还有个很微妙的台词回旋镖，不知道有些爱音党注意到没有，g ...</blockquote>
+拉爱音回团只会在班内solo，听到素世也有问题之后追爱音一直追到天台顶上，mygo的时候我就觉得这段可以诛心，但当时感觉拿这种东西出来扣属实有点神经病了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 26633#       发表于 2025-2-19 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466039&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-19 15:49</a>
+
+不准确，大祥是北京老钱，爽姐是上海新钱，农是广州包租婆。
+
+农属于平时看着小康，48万R一年的留学学费父 ...</blockquote>
+而且高中生爱音买音响箱体还有效果器这些一次都好几万人民币随便买<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qlipho  
+##### 26634#       发表于 2025-2-19 16:01
+
+越说素希越好嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 26635#       发表于 2025-2-19 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466062&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-19 15:52</a>
+
+没必要再搞ccc了，爽姐跟黑祥比是更重视家庭成员的那种，不需要一之濑这个家庭的虚壳。现在在mygo摆烂做 ...</blockquote>
+说起来爽动画漫画手游里有提父兄吗
+
