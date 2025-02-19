@@ -5018,3 +5018,15 @@ Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2�
 腾讯元宝就是胡编乱造的，我问个港漫他给我扯出来一个19年的漫画，而且从角色到章节名全是自己杜撰的 ...</blockquote>
 元宝版R1对于自己搜出来的东西有迷之高权重信赖. 它根据营销号的瞎编文案告诉我赛文是泰罗的舅舅? 这营销号在营销号里都算的上瞎编的了
 
+
+*****
+
+####  jie2000  
+##### 1920#       发表于 2025-2-19 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461336&amp;ptid=2243718" target="_blank">faithlifer 发表于 2025-2-18 22:38</a>
+派欧算力云的大家觉得怎么样</blockquote>
+请求速率限制得太死了，一分钟才30次，翻译文章要等很久
+代金券只能在community版用，页面上又不说明，坑了我的余额
+其他还行，刘备文也能翻出来
+
