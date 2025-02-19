@@ -1151,3 +1151,79 @@ tft不说了，邦TV直接端上来最美好的无人，怎么可能是一集结
 
 莫老师到底哪里拟人了，只要反祥子就是拟人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cccpprc  
+##### 26749#       发表于 2025-2-19 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469666&amp;ptid=2208921" target="_blank">capraeLinn 发表于 2025-2-19 22:47</a>
+
+莫老师到底哪里拟人了，只要反祥子就是拟人是吧</blockquote>
+难道不是吗？
+
+*****
+
+####  高贵的  
+##### 26750#       发表于 2025-2-19 22:51
+
+就得学习wsd狠狠的炒作啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 26751#       发表于 2025-2-19 22:51
+
+mujica动画里伪人太多了
+
+*****
+
+####  capraeLinn  
+##### 26752#       发表于 2025-2-19 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469686&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-19 22:49</a>
+
+难道不是吗？</blockquote>
+那最似人类的岂不是，祥爹
+
+*****
+
+####  HereLink  
+##### 26753#       发表于 2025-2-19 22:53
+
+大莫老师连基本的心智和认知都有障碍，心理年龄指不定几岁呢。。。
+
+但是却tmd能够拿捏初华，这剧本到底是用什么部位写出来的？
+
+
+*****
+
+####  高贵的  
+##### 26754#       发表于 2025-2-19 22:55
+
+说到祥爹，这个角色要如何处理呢，我现在真觉得火龙烧仓也是个处理方法
+
+*****
+
+####  是谁的书画  
+##### 26755#       发表于 2025-2-19 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469516&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-19 22:25</a>
+
+为什么吵wsd没用，因为这玩意不是二游，都做完了躺硬盘里了（第几次这么说了来着），而且官方毕竟是日本人 ...</blockquote>
+错误的，哪怕WSD真像你吹的那样在日本牛逼坏了，也不代表他在中国市场就要当一头死猪把头埋地里。
+
+本⏰zng也没必要和日本人共情，他原作可以烂，场外可以炒，但是同样也要服务好另外一部分才行。要不然被推特爆破，声优被骚扰，我也觉得是你wsd自己后面公关做的不好，怪不得别人。人不能既要又要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 26756#       发表于 2025-2-19 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469735&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-19 22:55</a>
+
+错误的，哪怕WSD真像你吹的那样在日本牛逼坏了，也不代表他在中国市场就要当一头死猪把头埋地里。
+
+本⏰z ...</blockquote>
+wsd做完的时候压根没有中国市场这个概念 所以我说这个东西播一半做一半可能还能洗白一下 现在剧场版都洗不白十个神人了。
+
