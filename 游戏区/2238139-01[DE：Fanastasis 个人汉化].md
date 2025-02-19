@@ -98,3 +98,14 @@ steam买了但是不想电脑玩  牛子玩也不方便
 
 看隔壁帖子心动了
 
+
+*****
+
+####  JanShing  
+##### 136#       发表于 2025-2-19 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460479&amp;ptid=2238139" target="_blank">ftfkjb 发表于 2025-2-18 20:48</a>
+
+前面的朋友，你帖子我回复就出错，没法引用，我的链接是用idm下载的，你可试试。 ...</blockquote>
+复制到IDM也下载不了
+
