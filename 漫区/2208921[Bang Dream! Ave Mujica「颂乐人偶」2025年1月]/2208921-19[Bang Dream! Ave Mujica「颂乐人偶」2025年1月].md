@@ -1441,3 +1441,16 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  cxj649  
+##### 26770#       发表于 2025-2-20 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67470085&amp;ptid=2208921" target="_blank">[皆神孝介] 发表于 2025-2-19 23:47</a>
+
+今天又看了一遍第七话，大概也是周四前最后一次了
+
+祥子在立希回忆中的滤镜非常厚，所以本话对祥子也会哭才 ...</blockquote>
+第7集适合补番看<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
