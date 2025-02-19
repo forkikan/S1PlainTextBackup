@@ -1265,3 +1265,24 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 也许是因为悬疑故事的内在逻辑，在揭开谜底之前就是故意断开的
 
+
+*****
+
+####  mye  
+##### 26761#       发表于 2025-2-19 23:21
+
+我现在发现研究死海文书似乎比研究剧里细节后逻辑多了
+
+*****
+
+####  小博禹  
+##### 26762#       发表于 2025-2-19 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469714&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-19 22:53</a>
+大莫老师连基本的心智和认知都有障碍，心理年龄指不定几岁呢。。。
+
+但是却tmd能够拿捏初华，这剧本到底是用 ...</blockquote>
+初华粉丝已经承认金毛是弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

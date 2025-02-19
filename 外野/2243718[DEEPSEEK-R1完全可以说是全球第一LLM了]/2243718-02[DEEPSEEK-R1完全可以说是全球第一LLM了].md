@@ -5097,3 +5097,27 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  骨于野  
+##### 1928#       发表于 2025-2-19 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469139&amp;ptid=2243718" target="_blank">バーチャルS1er 发表于 2025-2-19 21:37</a>
+想问下现在用AI写同人小说的话，除了DS外哪个国产AI大模型最好用啊？</blockquote>
+claude
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  バーチャルS1er  
+##### 1929#       发表于 2025-2-19 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469887&amp;ptid=2243718" target="_blank">骨于野 发表于 2025-2-19 23:15</a>
+
+claude
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+这个我知道、我想国产里面的水平
+
