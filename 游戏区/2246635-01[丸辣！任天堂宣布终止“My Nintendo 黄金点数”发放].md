@@ -531,3 +531,20 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 索尼能走到今天，微软和任天堂都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mes  
+##### 58#       发表于 2025-2-19 17:31
+
+如没记错，金币银币什么币都会过期，去eshop真的就像去超市。
+
+*****
+
+####  karastar  
+##### 59#       发表于 2025-2-19 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464788&amp;ptid=2246635" target="_blank">cubesun 发表于 2025-2-19 12:43</a>
+索尼能走到今天，微软和任天堂都有责任</blockquote>
+索尼比老任更贵但是老任全责<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
