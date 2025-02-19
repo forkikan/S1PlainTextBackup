@@ -5087,3 +5087,13 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 
 想问下现在用AI写同人小说的话，除了DS外哪个国产AI大模型最好用啊？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 1927#       发表于 2025-2-19 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
