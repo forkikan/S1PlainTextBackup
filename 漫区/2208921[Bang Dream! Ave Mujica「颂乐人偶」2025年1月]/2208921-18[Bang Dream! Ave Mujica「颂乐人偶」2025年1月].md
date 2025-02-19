@@ -15566,3 +15566,47 @@ MyGO
 
 我谨代表鸡狗粉把剩下6集送给蝶团，你们没有动画，这下正好可以补上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Versedust  
+##### 26590#       发表于 2025-2-19 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464759&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-19 12:39</a>
+
+鸡粉现在还有敢大声笑的吗，好外女，姨姨给你当主唱来了~</blockquote>
+在未实锤之前不要下结论<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">虽然现在观众就期待这个
+
+
+*****
+
+####  ape-apple  
+##### 26591#       发表于 2025-2-19 13:06
+
+百综说的有一点是对的，官方为什么要给你团魂拉满的鸡狗？
+
+两季动画就讲了一个事：crychic为什么好，crychic为什么行，关键在于五个人关系好，是最好的我们
+
+以这个为基础，狗是复辟未成又良心发现的结果，鸡是……我也不知道，反正就这么组起来了
+
+wsd本身只能看到不仲团越来越火，以至于LL新作都要走玉玉风，但是我也觉得不会长久，等到了哪个阶段本土爆个大的就能刹车了
+
+*****
+
+####  zhoujin8584  
+##### 26592#       发表于 2025-2-19 13:08
+
+需要指出的是，做go的时期独角兽跟柿本是意见一致的，或许是那时候不需要太顾及商业性广告性这些影响动画的大人世界的大手。
+
+也就是眼下观众在复盘中的祛魅也逐渐过渡到了认清两团真相的地步，也不会再认为灯素的交底是什么忠于mygo的一厢情愿，而是迷路了也要前进，何况我一辈子也忘不了crychic，彼之迷路，吾之正途。
+
+大家对飞鸟山回忆杀擅自甜蜜的抽象也逐渐理解，那是你爽姐的来时路。
+
+<img src="https://img.saraba1st.com/forum/202502/19/130644t52z233x0zz6a525.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250219_125306.jpg</strong> (557.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 13:06 上传
+

@@ -15739,3 +15739,51 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 2025-2-19 12:41 上传
 
+
+*****
+
+####  刺客ares  
+##### 7124#       发表于 2025-2-19 13:00
+
+这么一看就连上了，所以这个未出现画面是打完军团战后喵安自己去了牢修的藏身处，
+
+等牢修确认回路零件能用，然后从军团战的奖金里付钱给她。
+
+可能牢修自己整备红高还比较麻烦，要花一些时间，她等不及就扎了个单马尾卷起袖子和牢修一起弄，
+
+期间康奇从牢修脑袋上跳走，往喵安身上爬，牢修对此开了个玩笑，于是喵安对牢修脸红了。
+
+这部分应该会作为后续的新增影像加入剧场版
+
+<img src="https://img.saraba1st.com/forum/202502/19/125126yu0dy55uythup5th.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/125137bgvexo1jye1iyxu7.png" referrerpolicy="no-referrer">
+
+<strong>d82d120272ab44f7b2667343153983b.png</strong> (40.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/125204nutoukt5u26tdof1.jpg" referrerpolicy="no-referrer">
+
+<strong>0e3ee11885cc2d9c21635f76463ca5a9_ae78f21fbe096b63405ccc784a338744ebf8ac14_tbpica.jpg</strong> (137.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/125214b4h88h6lddd8zhns.png" referrerpolicy="no-referrer">
+
+<strong>c4af968af9a92d209f58ae0db8eb6c8.png</strong> (38.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 12:52 上传
+

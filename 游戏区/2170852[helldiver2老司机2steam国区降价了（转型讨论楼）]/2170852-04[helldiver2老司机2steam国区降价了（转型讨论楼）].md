@@ -1297,3 +1297,12 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 做不了任务的bug触发几率更高了，打了4把有2把出现了终端无法交互/旗帜战备叫不下来的bug<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 还有奇奇怪怪的叫不了补给/捡不起弹药/被冲击波打进地底的bug，梦回首发了
 
+
+*****
+
+####  qwased  
+##### 5787#       发表于 2025-2-19 12:59
+
+<img src="https://p.sda1.dev/22/403685038e38fd9785fc7b820a122d3e/image.jpg" referrerpolicy="no-referrer">
+有毒吧，之前终端掉地下了拿铲子挖了半天挖出来，这次终端在天上，飞机降落不了，废了半天劲爬上去之后又无法起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
