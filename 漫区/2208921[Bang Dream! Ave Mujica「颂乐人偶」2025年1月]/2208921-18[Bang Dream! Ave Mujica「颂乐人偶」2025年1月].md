@@ -15124,3 +15124,83 @@ c团这几个人没有进展倒是符合逻辑，最有行动力的soyo，但是
 
 睦祥加压，a团爆，引入ccc，这么变态的大纲独角兽是切割不了的。估计是柿本老贼想了双重人格的馊点子，上半季全怪味了
 
+
+*****
+
+####  shinoverse  
+##### 26550#       发表于 2025-2-19 11:29
+
+……
+
+ 本帖最后由 shinoverse 于 2025-2-19 11:31 编辑 
+
+3话的时候还有热评觉得睦是本作林黛玉呢
+
+现在可能只有长相比较林黛玉……
+
+
+*****
+
+####  影伴光生  
+##### 26551#       发表于 2025-2-19 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464149&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-19 11:29</a>
+3话的时候还有热评觉得睦是本作林黛玉呢
+
+现在可能只有长相比较林黛玉……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转林黛玉倒拔垂杨柳的奇怪形象
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  老贝  
+##### 26552#       发表于 2025-2-19 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464087&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-19 11:24</a>
+
+c团这几个人没有进展倒是符合逻辑，最有行动力的soyo，但是无论她找谁都没用，灯直接不回她信息，多次找 ...</blockquote>
+
+是的，就和Mujica解散之后祥子一个月没有去找过睦一样，人际关系被强行冻结。
+
+ccc解散之后被冻一年，等到爱音回国入学羽丘，故事重启；Mujica解散之后被冻一月，等到爱音和灯重新和祥子产生联系，故事重启。用的方法全都一样简单粗暴而无脑。
+
+*****
+
+####  swessia  
+##### 26553#       发表于 2025-2-19 11:34
+
+莫小姐烂活也是活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 26554#       发表于 2025-2-19 11:36
+
+mortis本身就是究极烂活
+
+*****
+
+####  与太郎  
+##### 26555#       发表于 2025-2-19 11:37
+
+如果把接下来的剧情走向想得正常点
+
+那就是面对雇佣兵的复合申请，祥子为了睦的心理健康拒绝了
+
+雇佣兵表示你想来就来想走就走？玩乐队一定要开心吗？
+
+喵梦因为没了A团的话题性事业不顺，需要祥子复活A团
+
+而初华为了追求祥子，下定决心，把甜甜圈女士甩了
+
+「幸せである必要あるんですか」
+
+「みんなあんたに人生あげちゃってんの。全部見捨てて逃げるつもり？」
+
+「私、Ave Mujicaやるから」
+
+分别对应这三句台词
+

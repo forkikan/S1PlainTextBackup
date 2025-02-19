@@ -638,3 +638,17 @@ SACD到了，好tm大啊，这是黑胶尺寸的包装了。搞不好会头还�
 
 2025-2-18 10:23 上传
 
+
+*****
+
+####  Alleyht  
+##### 6928#       发表于 2025-2-19 11:29
+
+感谢平行儿力给我Da米重回G7的希望，但我只剩一井而你闪平行卡没法用普通叶月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小高真的是随时随刻都在劝退
+
+去批里批里看看剧情得了，后面还有平行铃木和暮光S铃木，看看我能撑到哪个池子才退游<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过这儿力也光堕了，是不是可以判断你闪剧情已经快没活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不再开个平行系列让闪P得个白血病吧
+
