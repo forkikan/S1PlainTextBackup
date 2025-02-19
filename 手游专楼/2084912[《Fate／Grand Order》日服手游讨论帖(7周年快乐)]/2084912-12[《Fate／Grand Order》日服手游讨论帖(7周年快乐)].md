@@ -1456,3 +1456,40 @@ https://m.bilibili.com/opus/1033632735051120642
 ----发送自 STAGE1 App for Android.</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反观某法老王
 
+
+*****
+
+####  大十字紅朔  
+##### 16402#       发表于 2025-2-19 12:37
+
+黑玛丽不是有诅咒特攻吗？感觉伤害好低啊
+
+*****
+
+####  yangun22  
+##### 16403#       发表于 2025-2-19 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464745&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-2-19 12:37</a>
+
+黑玛丽不是有诅咒特攻吗？感觉伤害好低啊</blockquote>
+她那个才30%的c类特攻，等于一个30宝威，当然不高
+
+*****
+
+####  大十字紅朔  
+##### 16404#       发表于 2025-2-19 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464912&amp;ptid=2084912" target="_blank">yangun22 发表于 2025-2-19 13:00</a>
+
+她那个才30%的c类特攻，等于一个30宝威，当然不高</blockquote>
+和团长的特攻哪个高？
+
+*****
+
+####  qixinno2  
+##### 16405#       发表于 2025-2-19 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是最强数值怪的力量
+
+【[FGO]苍崎青子红卡最优解 情人节高难3t】 [https://www.bilibili.com/video/BV1C6AheoEtD](https://www.bilibili.com/video/BV1C6AheoEtD)
+

@@ -15655,3 +15655,25 @@ mygo动画欠的ccc留到了mujica罢了。
 
 对ccc有戏份是有预期的，都知道独角兽最爱ccc，给a团整解散了是真没想到
 
+
+*****
+
+####  Nana7ue  
+##### 26597#       发表于 2025-2-19 13:44
+
+<img src="https://p.sda1.dev/22/594b0a4d885aea41e6837d22bf6da8ac/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 26598#       发表于 2025-2-19 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463643&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-19 10:41</a>
+睦头主要是太祥子跟班了。
+所以牢莫是肯定摁着睦头不肯放出来，放出来就瞬间和解了。</blockquote>
+睦本来就不需要祥和解吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">甚至睦头只会求祥子原谅自己<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
