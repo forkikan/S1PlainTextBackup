@@ -15978,3 +15978,44 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 楼友的格差社会思路还是不够劳保，看看知友</blockquote>
 这个基本上是姨学入脑了
 
+
+*****
+
+####  aptx8285144  
+##### 26625#       发表于 2025-2-19 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465932&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-19 15:32</a>
+
+楼友的格差社会思路还是不够劳保，看看知友</blockquote>
+不如直接一句话：丰川女公主的恩情还不完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 26626#       发表于 2025-2-19 15:38
+
+<blockquote>aptx8285144 发表于 2025-2-19 14:40
+始终当外人的话，对于二创的爱素就太嘲弄了，虽说二创也不一定非要看官方在干什么 ...</blockquote>
+两边单推确实都不磕了啊，不过cp粉历来是能共振什么角度都能磕的，此事在三次元rps美帝中亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 26627#       发表于 2025-2-19 15:38
+
+再簡單點：
+
+德川好， 天草壞
+
+
+*****
+
+####  jyhldlagen  
+##### 26628#       发表于 2025-2-19 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465971&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-19 15:38</a>
+再簡單點：
+
+德川好， 天草壞</blockquote>
+再简单点:尊王攘夷
+

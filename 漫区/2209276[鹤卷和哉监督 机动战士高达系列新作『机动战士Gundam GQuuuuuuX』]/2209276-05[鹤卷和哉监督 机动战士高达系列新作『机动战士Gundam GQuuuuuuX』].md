@@ -15869,3 +15869,38 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 也许剧场版就是唯一一场呢，TV一开始三人组就被抓走上舰了
 
+
+*****
+
+####  灵魂收割机  
+##### 7132#       发表于 2025-2-19 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465824&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-19 15:17</a>
+
+分别是gqux，gquux，gquuux……</blockquote>
+你还真别说<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 7133#       发表于 2025-2-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463334&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-19 10:06</a>
+
+英国那边4月才上剧场版？4月播TV版有点奇怪了……
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+电影院的消息是3月上啊：[https://www.myvue.com/film/gundam-gquuuuuux](https://www.myvue.com/film/gundam-gquuuuuux)
+
+*****
+
+####  kuriri  
+##### 7134#       发表于 2025-2-19 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465825&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-19 15:17</a>
+
+这种每次都可能死人，输方大概率被军警抓走的比赛，当然是打一次结一次钱
+
+赛程奖金主办方感觉都不会具体 ...</blockquote>
+可能是我记错了一下子找不到出处，但印象里鹤卷在某个场合说过至少有相当一部分主线是早上校园晚上打拳……
+
