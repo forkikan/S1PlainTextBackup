@@ -4720,3 +4720,14 @@ word
 
 女中学生撕逼，引来中二宅男假药幻想后重归正常小孩姐剧情，引发爆炸无数。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _47  
+##### 458#       发表于 2025-2-20 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465647&amp;ptid=2246159" target="_blank">AveMujica 发表于 2025-2-19 14:47</a>
+
+word</blockquote>
+稍微提个意见是Nico能不能也做个平均分的折线图，这样直观不少
+
