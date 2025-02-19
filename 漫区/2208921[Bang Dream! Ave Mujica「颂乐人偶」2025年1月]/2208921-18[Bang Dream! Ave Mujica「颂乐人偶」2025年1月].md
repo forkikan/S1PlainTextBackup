@@ -15372,3 +15372,48 @@ soyo在狗1-7话，行动力有，但是不够魔怔，还顾及社交礼仪，�
 别再分析了，你看隔壁不已经从GO时期的剧情找出罪证了</blockquote>
 你回一下隔壁，狗4 04:11就有爱音进教室和灯打招呼，但灯没理，要爱音故意拉椅子发出噪音，灯才回头看了眼，并回应<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 26572#       发表于 2025-2-19 12:09
+
+MyGO
+
+ 本帖最后由 ddy2811 于 2025-2-19 12:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463603&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-19 10:37</a>
+
+感觉睦这个受害者的形象也是越来越不讨喜了，卖惨卖得太多已经厌倦了</blockquote>
+卖惨不是来看你惨的，是看你怎么站起来的，这对祥睦都是一样的
+
+*****
+
+####  影伴光生  
+##### 26573#       发表于 2025-2-19 12:10
+
+所以说别靠近精神疾病患者，会变得不幸
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 26574#       发表于 2025-2-19 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464479&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-2-19 12:05</a>
+
+你回一下隔壁，狗4 04:11就有爱音进教室和灯打招呼，但灯没理，要爱音故意拉椅子发出噪音，灯才回头看了 ...</blockquote>
+爱音就像灯的舔狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ferrari  
+##### 26575#       发表于 2025-2-19 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">懒得争论剧情
+现在就抛出一个演了七话除了OP没听到一首新曲
+鸡团粉就没人说话了，包括日本人也一样
+他强调什么理解思路什么人物性格你们老中如何如何理都不理
+少女乐队主题听不到歌还能拦着我打低分不成
+

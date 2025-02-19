@@ -15668,3 +15668,33 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 夏亚和修司的就是后面宣布shf，真出这俩的frs不早预告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7118#       发表于 2025-2-19 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464434&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-2-19 12:00</a>
+
+修司的螃蟹怎么在喵安的frs里
+
+你们这啥呀</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/19/121105a7ggjdegiqyjey2m.png" referrerpolicy="no-referrer">
+
+<strong>1739937358471.png</strong> (399.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 12:11 上传
+
+此事场刊里早有记载（
+
+
+*****
+
+####  0aleph37  
+##### 7119#       发表于 2025-2-19 12:15
+
+比起被高达男妖精抱，更乐意被褐肤美少女抱的疑似夏亚小机器人
+
