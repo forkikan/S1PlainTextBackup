@@ -523,3 +523,11 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 忘了是哪个区了不支持主动放弃余额转区
 就是靠金币才能把余额全花完的
 
+
+*****
+
+####  cubesun  
+##### 57#       发表于 2025-2-19 12:43
+
+索尼能走到今天，微软和任天堂都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
