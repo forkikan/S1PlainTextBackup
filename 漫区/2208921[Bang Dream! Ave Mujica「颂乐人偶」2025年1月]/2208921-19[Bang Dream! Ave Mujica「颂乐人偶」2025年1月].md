@@ -90,3 +90,28 @@
 
 问题是其他几个就不止是中等偏上的问题了。
 
+
+*****
+
+####  cxj649  
+##### 26648#       发表于 2025-2-19 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466308&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-19 16:18</a>
+
+爱音去英国读高中的话估计奔着十年永居去的，英国私校现在一年五十万人民币搞不定了，十年花下来一般要花个 ...</blockquote>
+43w左右<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 26649#       发表于 2025-2-19 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466308&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-19 16:18</a>
+爱音去英国读高中的话估计奔着十年永居去的，英国私校现在一年五十万人民币搞不定了，十年花下来一般要花个 ...</blockquote>
+喵梦上的是公立音乐高中，学费比私立便宜，内部升学也方便
+
+所以说不定开销会少一些<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

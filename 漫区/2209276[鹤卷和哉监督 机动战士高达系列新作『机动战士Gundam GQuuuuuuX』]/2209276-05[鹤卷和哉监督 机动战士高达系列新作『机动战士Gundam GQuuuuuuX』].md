@@ -16014,3 +16014,32 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 而且要描写学校日常，结果玛秋的同学连一个有名有姓的都没有，反而是索冬舰上有全套人设？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 7145#       发表于 2025-2-19 16:28
+
+<img src="https://img.saraba1st.com/forum/202502/19/162802gct58iubiqxgbfxk.jpg" referrerpolicy="no-referrer">
+
+<strong>NE{X0~EB8}([FDSZBLSF4~H.jpg</strong> (167.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 16:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被重力束缚的不止灵魂（
+
+
+*****
+
+####  kuriri  
+##### 7146#       发表于 2025-2-19 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466394&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-19 16:26</a>
+
+奇怪的是，如果要和水魔一样全程决斗，那军团战的首战应该会安排更有名有姓的对手吧？
+
+水魔那边是学院第一 ...</blockquote>
+很有道理，我也想到了，主要是完全没有学校人设方面说不通，但也可能是还在藏，说不定未公布的同学里就有其他高达的驾驶员。
+
