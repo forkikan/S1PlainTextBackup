@@ -552,3 +552,14 @@ gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 
 刷到这个图想起了这个楼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yichengyu  
+##### 61#       发表于 2025-2-19 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456934&amp;ptid=2246626" target="_blank">生年不满百 发表于 2025-2-18 14:01</a>
+
+我记得白人跟黄人鸡儿平均数值差不多</blockquote>
+。。。。。。。有点夸张了昂
+

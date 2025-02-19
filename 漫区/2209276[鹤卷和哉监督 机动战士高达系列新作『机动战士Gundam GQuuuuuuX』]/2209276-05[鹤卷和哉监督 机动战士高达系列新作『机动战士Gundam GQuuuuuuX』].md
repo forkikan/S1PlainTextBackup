@@ -16266,3 +16266,21 @@ side6当局虽然对难民不好，但主角亲妈在那任职，本身也是普
 
 2025-2-19 17:14 上传
 
+
+*****
+
+####  纪寞  
+##### 7165#       发表于 2025-2-19 17:20
+
+看到上面玛秋这张卡，突然想起来，独角兽和菲尼克斯哪怕已经觉醒了也没有过驾驶舱没人的情况下爆甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuriri  
+##### 7166#       发表于 2025-2-19 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466895&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-19 17:12</a>
+
+不需要高层授意不可能的，又不是过家家，没紫婆或大基点头那可能让部队自己随意动的，直接在对话中表示是 ...</blockquote>
+就好像0080那样，军队乱来各怀鬼胎是很正常的事啊，gqx故事设定里吉翁对宇宙的控制力也并不强，想要新机体出场真的并不一定需要谁点头
+
