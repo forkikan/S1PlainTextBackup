@@ -15959,3 +15959,22 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 
 说起来ccc解散一年，soyo找睦没进展是不是就整天去ring骚扰立希了，她点东西都是“老样子”了
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 26623#       发表于 2025-2-19 15:32
+
+楼友的格差社会思路还是不够劳保，看看知友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/361fc69ad5328b5de9e0b3b2ddb01b46/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 26624#       发表于 2025-2-19 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465932&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-19 15:32</a>
+
+楼友的格差社会思路还是不够劳保，看看知友</blockquote>
+这个基本上是姨学入脑了
+
