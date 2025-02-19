@@ -15815,3 +15815,16 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 然后牢修来洗衣店，仨人一见面说几句话，新增画面部分就结束了
 
+
+*****
+
+####  kuriri  
+##### 7127#       发表于 2025-2-19 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464908&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-19 13:00</a>
+
+这么一看就连上了，所以这个未出现画面是打完军团战后喵安自己去了牢修的藏身处，
+
+等牢修确认回路零件能用 ...</blockquote>
+所以相当于夏亚在尼雅安身上乱爬？这是什么爱达与天鹅
+

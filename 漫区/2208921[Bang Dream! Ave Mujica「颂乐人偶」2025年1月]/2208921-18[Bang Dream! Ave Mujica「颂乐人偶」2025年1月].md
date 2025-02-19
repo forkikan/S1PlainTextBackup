@@ -15775,3 +15775,36 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 
 但是沒關係，有CCC遺佬兜底，對吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 26608#       发表于 2025-2-19 14:47
+
+会好起来的，起码不会再坏了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 26609#       发表于 2025-2-19 14:47
+
+<blockquote>105gun 发表于 2025-2-19 13:54
+抛开第七集的角色崩坏，以及一些所谓的过度反应不谈，这一集依然有着海量的硬伤，桥段狗血，转折生硬，煽情 ...</blockquote>
+你要更进一步的说
+
+你车牢祥还是在帮制作组补黑色生日的剧情呢
+
+赶紧逃出去啊魂淡
+
+
+*****
+
+####  Суслов  
+##### 26610#       发表于 2025-2-19 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465603&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 14:40</a>
+始终当外人的话，对于二创的爱素就太嘲弄了，虽说二创也不一定非要看官方在干什么 ...</blockquote>
+对二创是灾难，但对一创来说就是成功的叙事诡计，完全骗过了观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

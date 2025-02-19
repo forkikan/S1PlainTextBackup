@@ -4693,3 +4693,22 @@ LIVE要表达的情绪我是理解到了，但是表达的方式实在不怎么�
 </blockquote>
 你好打扰一下，请问这个图是用什么软件制作的(  )
 
+
+*****
+
+####  AveMujica  
+##### 456#         楼主| 发表于 2025-2-19 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463005&amp;ptid=2246159" target="_blank">因变量 发表于 2025-2-19 09:30</a>
+
+你好打扰一下，请问这个图是用什么软件制作的(  )</blockquote>
+word
+
+<img src="https://img.saraba1st.com/forum/202502/19/144730h0mdge1pbvdm5pt0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (442.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 14:47 上传
+

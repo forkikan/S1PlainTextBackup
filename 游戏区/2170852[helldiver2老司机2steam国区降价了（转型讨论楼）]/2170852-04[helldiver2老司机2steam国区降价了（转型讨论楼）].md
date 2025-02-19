@@ -1316,3 +1316,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DawnGuardian  
+##### 5789#       发表于 2025-2-19 14:56
+
+卖了1000多万份了都舍不得找几个测试吗，真替瑞典fw着急<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

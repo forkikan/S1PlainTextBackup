@@ -526,3 +526,13 @@ gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 难道前女友说我挺好的，真的不是在安慰我。。。？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 我老觉得自己小是因为阈值高了平时都是半勃冲的。。。？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 59#       发表于 2025-2-19 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456932&amp;ptid=2246626" target="_blank">LANGWANG 发表于 2025-2-18 14:01</a>
+打药打萎缩了....(希腊雕塑的身材很好，但代价是什么呢</blockquote>
+那古希腊雕像也是打药的吗？
+
