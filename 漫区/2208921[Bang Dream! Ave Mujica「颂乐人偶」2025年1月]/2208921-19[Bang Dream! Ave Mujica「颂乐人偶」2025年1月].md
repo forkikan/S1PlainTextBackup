@@ -442,3 +442,16 @@ x：gM4zFiJCWbz3G4y
 
 所以给大喵人设回撤的方式是让其他人变得更不是人就行了么，这也是计划的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 26679#       发表于 2025-2-19 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466376&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-19 16:24</a>
+
+主要还是她爸买了路虎，品味格差一下就上来了。
+
+他爸一定觉得自己老英伦了老帅了，带的农姐也这样了。 ...</blockquote>
+没买库里南真是让祥子大人见笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

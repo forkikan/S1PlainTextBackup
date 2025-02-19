@@ -16389,3 +16389,19 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼�
 简单，女装不就好了</blockquote>
 天才啊！！
 
+
+*****
+
+####  岸浪白野  
+##### 7176#       发表于 2025-2-19 18:55
+
+[X 上的 たくま朋正＠航宙軍8巻2/27発売：“#GQuuuuuuX #ジークアクス 「アルテイシアか！？」 [url]https://t.co/O8fSR1HP3s](https://x.com/yunckle19722000/status/1892032381600625116)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/19/185540kffq7df9qo49gbf4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 18:55 上传
+
