@@ -1253,3 +1253,15 @@ mercury到过了是吧
 
 什么时候来个官方中文 我记得这游戏是不是上了主机？
 
+
+*****
+
+####  blackll7  
+##### 106#         楼主| 发表于 2025-2-19 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464976&amp;ptid=2068019" target="_blank">woaimiyabi 发表于 2025-2-19 13:08</a>
+什么时候来个官方中文 我记得这游戏是不是上了主机？</blockquote>
+中文mod已经转正能直接换了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
