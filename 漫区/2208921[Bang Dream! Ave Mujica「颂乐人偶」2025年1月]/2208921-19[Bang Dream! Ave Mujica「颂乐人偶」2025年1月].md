@@ -401,3 +401,44 @@ x：gM4zFiJCWbz3G4y
 
 這季完結後就與我無關
 
+
+*****
+
+####  木板春香  
+##### 26677#       发表于 2025-2-19 18:27
+
+<img src="https://img.saraba1st.com/forum/202502/19/182730uafz80o7w0wafvvw.jpg" referrerpolicy="no-referrer">
+
+<strong>EGR4T_(EMX12I35K)WF@Q6J.jpg</strong> (237.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/182736dkhn6huqgofqkkrx.jpg" referrerpolicy="no-referrer">
+
+<strong>%7T4C6~)7(X9CO9C(BK[4_tmb.jpg</strong> (265.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/182750v7beg7evakga7pb8.gif" referrerpolicy="no-referrer">
+
+<strong>S@2$_4)1O(M[3{%(N)~BCJR.gif</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 18:27 上传
+
+*****
+
+####  sauron.j  
+##### 26678#       发表于 2025-2-19 18:28
+
+现在喵梦也被“对偶”得和爱音一样整齐了
+
+当年mygo一开始大家是有点不爽爱音的，后来发现其他人一个比一个抽象，相比之下她就只是小问题
+
+所以给大喵人设回撤的方式是让其他人变得更不是人就行了么，这也是计划的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
