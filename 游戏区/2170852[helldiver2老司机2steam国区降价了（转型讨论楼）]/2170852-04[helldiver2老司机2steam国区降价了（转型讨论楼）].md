@@ -1306,3 +1306,13 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 <img src="https://p.sda1.dev/22/403685038e38fd9785fc7b820a122d3e/image.jpg" referrerpolicy="no-referrer">
 有毒吧，之前终端掉地下了拿铲子挖了半天挖出来，这次终端在天上，飞机降落不了，废了半天劲爬上去之后又无法起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fallenevil  
+##### 5788#       发表于 2025-2-19 13:35
+
+司马箭头赶紧修修bug和闪退吧，nm昨天打的一把主线任务出bug不能交互，在哪儿转半天气得不行的时候闪退了，好了，直接关电脑睡觉
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
