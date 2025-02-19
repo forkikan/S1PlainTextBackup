@@ -14746,3 +14746,21 @@ https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
 
 有些人的臭味真的是溢出来的程度，一个昨天就没人回了的恶心人帖子还要到这楼里提故意传播
 
+
+*****
+
+####  ape-apple  
+##### 26510#       发表于 2025-2-19 10:05
+
+柿本广大知道自己是粉毛低水平虚荣吉他手吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">差不多得了，这时候还在分谁是忠臣谁是奸臣
+
+*****
+
+####  俾斯麥  
+##### 26511#       发表于 2025-2-19 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461209&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-18 22:19</a>
+
+但是独角兽的名字还在母鸡卡op画面里面呀，剧本统筹，你可以去翻，估计不是和几位脚本家有点交流，就是提 ...</blockquote>
+因为剧本大纲估计是早就写了的，这个不能去掉，但落实到具体制作时她到底还有没有话语权就不知道了，不是我给她洗，狗至少有三集是她担任了编剧的，鸡除了第一集是跟别人联合，后面到现在都再没有她担任编剧的部分，再到柿本被曝在制作时喜欢各种改剧本，看后面会是怎么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
