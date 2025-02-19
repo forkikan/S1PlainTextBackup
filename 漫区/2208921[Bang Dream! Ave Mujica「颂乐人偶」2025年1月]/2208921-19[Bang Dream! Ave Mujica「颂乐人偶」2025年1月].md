@@ -1507,3 +1507,17 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 至于复读，这俩都挺复读的，睦想求一个答案，也想找到能理解自己直言的人
 
+
+*****
+
+####  天空塔书记官  
+##### 26775#       发表于 2025-2-20 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67470231&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-20 00:18</a>
+这就是我一直不同意的观点了，虽然感觉说了无数次。
+
+总是抱着事已至此，先吃饭吧的态度；任由前院起火坐以 ...</blockquote>
+唉…那还能怎么说呢，wsd也许重视大陆的市场，但可能也没那么重视，毕竟它只是一家外国公司，基本盘在岛国，在中日文化差异导致的两极分化下，它大概只会觉得老中人闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
