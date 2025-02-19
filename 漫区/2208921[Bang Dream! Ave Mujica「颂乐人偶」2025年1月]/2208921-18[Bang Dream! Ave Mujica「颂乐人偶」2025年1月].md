@@ -15313,3 +15313,62 @@ soyo在狗1-7话，行动力有，但是不够魔怔，还顾及社交礼仪，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 26567#       发表于 2025-2-19 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464288&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-19 11:43</a>
+
+甜甜圈:其实真的只是同事，台上是百合营业，台下对后辈的关心罢了</blockquote>
+退一步而言，鸡团那群神人这都做不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 26568#       发表于 2025-2-19 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464372&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-2-19 11:53</a>
+
+soyo在狗1-7话，行动力有，但是不够魔怔，还顾及社交礼仪，如果是狗8那个状态，你高松灯不回信，直接堵公 ...</blockquote>
+我倒是觉得go8是不再那么顾及的起点，毕竟直接一改往日形象给睦头上压力，诗超绊之后go11开始破罐破摔，“毕竟丢脸也丢过了”，然后巅峰就是鸡7，直接逃课到别的学校门口堵人还在校门口拉拉扯扯的<img src="https://static.saraba1st.com/image/smiley/carton2017/473.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 26569#       发表于 2025-2-19 12:01
+
+累了，还是看点二创吧。
+<img src="https://p.sda1.dev/22/37ce6210f616f081bc0a58a7a31bcf23/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3708b30034e131473076046eeb4f2545/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/13a17aa5e4a874a285be7b4254d194c0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cf53c0ed546bfd83871ce4fc7e13a6d6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/068cbfeda712fc7ec962134203942fc7/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 26570#       发表于 2025-2-19 12:03
+
+有点偏差的mujica前7话
+<img src="https://p.sda1.dev/22/e38e63fa88b5c9010c246ac05f347b7c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ea504113aedf3516c9b07f1efbcfa0d3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/adf4653333791af3ea154bdd30e1f22a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fbab9c51e7ccd6f35d7e07361401d048/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/99dc58146d59d2cb49c240804656e481/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/86176bded838824d3cfcc4c02ccc3067/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2a6b69b1ca4f382434c805255335e304/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a886c9e42dc31c41e4b78dc986334dec/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 26571#       发表于 2025-2-19 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464319&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 11:47</a>
+
+别再分析了，你看隔壁不已经从GO时期的剧情找出罪证了</blockquote>
+你回一下隔壁，狗4 04:11就有爱音进教室和灯打招呼，但灯没理，要爱音故意拉椅子发出噪音，灯才回头看了眼，并回应<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

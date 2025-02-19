@@ -1413,3 +1413,46 @@ https://m.bilibili.com/opus/1033632735051120642
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  UNISONIA  
+##### 16398#       发表于 2025-2-19 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457576&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2025-2-18 15:17</a>
+
+不是啊，小野小町在日本知名度就像李白杜甫一样
+
+不然也不会有那么多小町传说</blockquote>
+严格来说小野小町地位更接近李清照这个级别一些，李杜毕竟是唐朝诗人第一第二，小町在六歌仙里都排不上前三的
+
+*****
+
+####  岸波白野  
+##### 16399#       发表于 2025-2-19 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457310&amp;ptid=2084912" target="_blank">直钩 发表于 2025-2-18 14:49</a>
+
+这年头fgo喜欢出日本人也就算了，还尽是些知名度和路边野狗一样的日本人。知名度和路边野狗一样的日本人也 ...</blockquote>
+这也是循祖宗之法了，知名度低（全球范围）怎么办，你去搜搜明治时期成型的鬼子“世界三大美女”这一说法还能震撼一整年
+
+*****
+
+####  ·Mephisto·  
+##### 16400#       发表于 2025-2-19 10:42
+
+日本人惯用的抬咖手法，搞一个世界XX榜单，分给中国一个，外国一个，日本一个
+
+
+*****
+
+####  qixinno2  
+##### 16401#       发表于 2025-2-19 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462292&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-2-19 06:38</a>
+
+还改了双足飞龙和生命体的模组
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反观某法老王
+

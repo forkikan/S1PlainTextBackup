@@ -15649,3 +15649,22 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 4chan 玩具版老哥日思夜想的夏亚shf看来有希望了
 
+
+*****
+
+####  积木23ki  
+##### 7116#       发表于 2025-2-19 12:00
+
+修司的螃蟹怎么在喵安的frs里
+你们这啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 7117#       发表于 2025-2-19 12:02
+
+ 本帖最后由 岸浪白野 于 2025-2-19 12:04 编辑 
+
+夏亚和修司的就是后面宣布shf，真出这俩的frs不早预告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
