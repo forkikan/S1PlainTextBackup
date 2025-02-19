@@ -16337,3 +16337,44 @@ side6当局虽然对难民不好，但主角亲妈在那任职，本身也是普
 强尼和松勇真影像化有没有版权问题？
 没有的话确实是好棋
 
+
+*****
+
+####  虛無迴廊  
+##### 7171#       发表于 2025-2-19 18:08
+
+怎么不算一种女难之相<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2241eda7c5cbc4a4e4434e3d9c54f450/CMP_20250219180629501.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/62079718c10ebf771fdcd81f82e424b7/CMP_20250219180629565.jpg" referrerpolicy="no-referrer">
+@Zoo0420
+
+*****
+
+####  Sliurus  
+##### 7172#       发表于 2025-2-19 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466129&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-19 16:00</a>
+
+校园戏修司都出场不了，麻球那是大小姐女校，喵安还能勉强混进去</blockquote>
+简单，女装不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 7173#       发表于 2025-2-19 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466929&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-19 17:15</a>
+
+X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼先行公開‼／ 明日稼働開始の #アーセナルベース ...</blockquote>
+第一张分镜跟什么运动番一样，流星锤太像篮球了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuriri  
+##### 7174#       发表于 2025-2-19 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467083&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-19 17:26</a>
+
+按照现在鹤卷访谈给我的感觉，可能后期的超展开和主角团这帮子人其实根本就没直接联系，联邦和吉翁的僵持因 ...</blockquote>
+我看鹤卷的访谈也是这种感觉，尤其他还提到了zz的前半段。但另一方面确实也有剧情的推动问题和其他高达机体的出场问题，所以应该不会到最后一集才超展开吧？
+
