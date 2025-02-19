@@ -602,3 +602,44 @@ x：gM4zFiJCWbz3G4y
 
 有理由怀疑本来计划就是四团并行，结果独角兽在第一季用力过猛造成了 Crythic 已死 MyGO 当立的假象，然后在第二季架空独角兽并通过削弱 MyGO、加强 Crythic 来找补
 
+
+*****
+
+####  zhzij111  
+##### 26696#       发表于 2025-2-19 19:54
+
+Crychic不过是个普通的乐队罢了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+但是mygo更普通啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 26697#       发表于 2025-2-19 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/470.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 26698#       发表于 2025-2-19 19:55
+
+感觉这周本来应该是🐑的b限，这下无了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  [皆神孝介]  
+##### 26699#       发表于 2025-2-19 19:55
+
+にゃむちチャンネル（Nyamuchi channel）第5回
+[https://www.bilibili.com/video/BV1WqA6eDERy/](https://www.bilibili.com/video/BV1WqA6eDERy/)
+
+里面全是软广告吧？
+
+不知明天若麦的戏份多不多<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
