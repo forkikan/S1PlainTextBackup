@@ -504,3 +504,13 @@ ns刚出的时候我都嫌这什么金币系统看着老旧不明了
 
 你猜为啥接的这么近<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亦饮阑珊  
+##### 55#       发表于 2025-2-19 09:03
+
+难搞出什么花样，估计是类似u点，能打9折。
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
