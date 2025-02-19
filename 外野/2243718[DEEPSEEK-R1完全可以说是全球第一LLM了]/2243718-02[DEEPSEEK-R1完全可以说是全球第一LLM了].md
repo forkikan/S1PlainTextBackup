@@ -5030,3 +5030,14 @@ Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2�
 代金券只能在community版用，页面上又不说明，坑了我的余额
 其他还行，刘备文也能翻出来
 
+
+*****
+
+####  陈八尺  
+##### 1921#       发表于 2025-2-19 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467768&amp;ptid=2243718" target="_blank">遗尿 发表于 2025-2-19 18:38</a>
+
+DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目前用淘宝买的DEEPL pro API账户，但是 ...</blockquote>
+从v2.5时代就开始在Luna用deepseek Api的过来人表示很好用，翻译效果极且无审查，只是现在翻译速度不行且常常连不上<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
