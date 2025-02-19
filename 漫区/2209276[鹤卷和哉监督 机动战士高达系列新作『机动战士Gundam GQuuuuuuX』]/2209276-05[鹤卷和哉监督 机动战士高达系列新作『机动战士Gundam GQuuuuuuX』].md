@@ -16326,3 +16326,14 @@ side6当局虽然对难民不好，但主角亲妈在那任职，本身也是普
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  王留美  
+##### 7170#       发表于 2025-2-19 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467315&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-19 17:49</a>
+ 无论NT部队还是NT研究所，都是基莉西亚手里的。 木马成员的谈话，他们直属上司好像是北宋之壶。 木马突入殖 ...</blockquote>
+强尼和松勇真影像化有没有版权问题？
+没有的话确实是好棋
+
