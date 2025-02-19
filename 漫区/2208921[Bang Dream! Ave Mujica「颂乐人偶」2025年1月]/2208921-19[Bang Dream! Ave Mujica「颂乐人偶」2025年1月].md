@@ -463,3 +463,25 @@ x：gM4zFiJCWbz3G4y
 
 可是就鸡团这5个人来说，猫梦不是第二不是人的那个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TAQ  
+##### 26681#       发表于 2025-2-19 19:10
+
+看mygo的时候我甚至把soyo当作盖茨比了，crychic就是黛茜，这个祥子老钱创造的玩物，给了soyo一个触及不到的幸福的错觉，导致她孤独地躲在大宅子里边整天幻想着crychic，最后杀死曾经的soyo的威尔逊就是mygo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 26682#       发表于 2025-2-19 19:16
+
+<blockquote>sauron.j 发表于 2025-2-19 18:28
+现在喵梦也被“对偶”得和爱音一样整齐了
+
+当年mygo一开始大家是有点不爽爱音的，后来发现其他人一个比一个 ...</blockquote>
+雞團的人度
+
+初華 》海鈴 〉莫老師 》 睦 〉                   大喵 》祥子
+
