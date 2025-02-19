@@ -5068,3 +5068,14 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 硅基流动的api是暂时用不了了吗</blockquote>
 用的了啊，你是不是挂梯子导致连接不畅
 
+
+*****
+
+####  qz66618  
+##### 1925#       发表于 2025-2-19 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468916&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-19 21:11</a>
+
+用的了啊，你是不是挂梯子导致连接不畅</blockquote>
+现在好了，可能是网络原因
+
