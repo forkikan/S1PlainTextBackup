@@ -14876,3 +14876,21 @@ b剧情没得聊的时候专楼就剩下拉屎和搬屎了
 
 成功把每个角色价值都榨干了是这样的，因为要爆，要狂，所以反复捶打祥子，反复让素世当调查员推剧情，反复折磨睦表现惨痛经历，倒是灯在这一部也还好，没疯狂拉人
 
+
+*****
+
+####  蓮華  
+##### 26524#       发表于 2025-2-19 10:50
+
+就睦这个大祥O棒中毒者的形象我看要好也难<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 26525#       发表于 2025-2-19 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463692&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-19 10:47</a>
+没单防吧，一直在找理由跑路或者干脆避而不答。</blockquote>
+基本算是防了一年，主要是不给出有效信息就算挡住了，爱音一来直接把信息茧房打了个对穿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你就说有没有单防吧，而且有人考据MyGO环节认为说睦这一年多没少来RiNG，估计立希都被封口了？不过就算那是假药从剧情上看素世确实蒙在鼓里蒙了一年不到，也算是被关住了，睦还是有单防实绩的，不管主观上是不是要单防
+

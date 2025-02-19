@@ -475,3 +475,11 @@ gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/124.png"
 
 4ch图区天天bbc和bwc战到昏天黑地，但留种的一个没有（双关）
 
+
+*****
+
+####  Dreamophobia  
+##### 54#       发表于 2025-2-19 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
