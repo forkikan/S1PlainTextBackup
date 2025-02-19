@@ -15836,3 +15836,11 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 都变成吉祥物了，这点福利就让让他吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 7129#       发表于 2025-2-19 15:06
+
+所以军团战是打一场结一次钱是吧，有啥赛程之类的吗？还是真就八角笼匹配大乱斗
+
