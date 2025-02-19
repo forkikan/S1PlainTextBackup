@@ -5041,3 +5041,11 @@ Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2�
 DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目前用淘宝买的DEEPL pro API账户，但是 ...</blockquote>
 从v2.5时代就开始在Luna用deepseek Api的过来人表示很好用，翻译效果极且无审查，只是现在翻译速度不行且常常连不上<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  atomicink  
+##### 1922#       发表于 2025-2-19 20:40
+
+百度的2周ds免费原来是昨天到期，今天用了一下就给我断掉了，然后百度智能云的电话短信都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
