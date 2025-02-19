@@ -16099,3 +16099,27 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 没必要再搞ccc了，爽姐跟黑祥比是更重视家庭成员的那种，不需要一之濑这个家庭的虚壳。现在在mygo摆烂做 ...</blockquote>
 说起来爽动画漫画手游里有提父兄吗
 
+
+*****
+
+####  刑部姬真可爱  
+##### 26636#       发表于 2025-2-19 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466150&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-19 16:04</a>
+
+说起来爽动画漫画手游里有提父兄吗</blockquote>
+没有
+
+*****
+
+####  金钱与民主  
+##### 26637#       发表于 2025-2-19 16:07
+
+ 本帖最后由 金钱与民主 于 2025-2-19 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466039&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-19 15:49</a>
+
+不准确，大祥是北京老钱，爽姐是上海新钱，农是广州包租婆。
+
+农属于平时看着小康，48万R一年的留学学费父 ...</blockquote>
+我觉得拿我国这边去硬套已经套不上了，比如祥这个家族背景，今天只能在生活在海峡对岸了。富人的生态更接近素那边。之前在Lofter上看到过类似的创作（好像叫赛里斯GO），什么素和睦在月森外国语中学就读啥的.......<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

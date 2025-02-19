@@ -536,3 +536,19 @@ gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 打药打萎缩了....(希腊雕塑的身材很好，但代价是什么呢</blockquote>
 那古希腊雕像也是打药的吗？
 
+
+*****
+
+####  真岛建设泥头车  
+##### 60#       发表于 2025-2-19 16:12
+
+<img src="https://img.saraba1st.com/forum/202502/19/161158n9rpklwkkeoxkoek.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 16:11 上传
+
+刷到这个图想起了这个楼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
