@@ -563,3 +563,18 @@ DS自己的服务器根本承载不了实际需求啊
 确实得小心车祸</blockquote>
 过年回家都十几个保镖围着呢，应该没事。
 
+
+*****
+
+####  枯风瘦雪  
+##### 63#       发表于 2025-2-19 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67461793&amp;ptid=2246639" target="_blank">yswm 发表于 2025-2-18 23:58</a>
+
+马斯克的xai没上市吧？
+
+估计不太好做空股票
+
+个人感觉这次应该是幻方手里攒的内容比较多了，就先发布一个， ...</blockquote>
+幻方“受限算力下的LLM工程优化”这个大课题要是能持续性产出成果就很让人安心
+
