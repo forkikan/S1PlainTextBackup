@@ -14801,3 +14801,78 @@ b剧情没得聊的时候专楼就剩下拉屎和搬屎了
 
 昨天更新游戏剧情了也没讨论度啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，咋办嘛，不搬点一眼典的楼里能为了无聊的东西吵架，那还是搬点奇怪的东西不行吗，增加点笑料（难道现在这个剧情有什么可聊的部分吗）
 
+
+*****
+
+####  阿兹尔  
+##### 26516#       发表于 2025-2-19 10:37
+
+感觉睦这个受害者的形象也是越来越不讨喜了，卖惨卖得太多已经厌倦了
+
+*****
+
+####  凉良  
+##### 26517#       发表于 2025-2-19 10:38
+
+有句说句前几天好像都比卓明谷高
+
+*****
+
+####  南宮凝香  
+##### 26518#       发表于 2025-2-19 10:40
+
+周三復健
+
+周四**待機
+
+然後周五至周日 打出狗頭
+
+周一二餘波
+
+*****
+
+####  syndrome2032  
+##### 26519#       发表于 2025-2-19 10:41
+
+睦头主要是太祥子跟班了。
+所以牢莫是肯定摁着睦头不肯放出来，放出来就瞬间和解了。
+
+这点上还是墨提斯好，小孩特有的天真和狡猾。
+
+
+*****
+
+####  aptx8285144  
+##### 26520#       发表于 2025-2-19 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463603&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-19 10:37</a>
+
+感觉睦这个受害者的形象也是越来越不讨喜了，卖惨卖得太多已经厌倦了</blockquote>
+这片，各个非人化严重，可能猫猫才是最健康的人类<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 26521#       发表于 2025-2-19 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463603&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-19 10:37</a>
+感觉睦这个受害者的形象也是越来越不讨喜了，卖惨卖得太多已经厌倦了</blockquote>
+主要是缺乏主体性…鸡里表现的主体性甚至不如狗里一根毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，怪奇怪的，上一季度能全方位单防素世的人怎么这一季成这样了
+
+*****
+
+####  syndrome2032  
+##### 26522#       发表于 2025-2-19 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463660&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-19 10:43</a>
+主要是缺乏主体性…鸡里表现的主体性甚至不如狗里一根毛，怪奇怪的，上一季度能全方位单防素世的人怎么这 ...</blockquote>
+没单防吧，一直在找理由跑路或者干脆避而不答。
+
+*****
+
+####  ape-apple  
+##### 26523#       发表于 2025-2-19 10:48
+
+成功把每个角色价值都榨干了是这样的，因为要爆，要狂，所以反复捶打祥子，反复让素世当调查员推剧情，反复折磨睦表现惨痛经历，倒是灯在这一部也还好，没疯狂拉人
+
