@@ -14894,3 +14894,77 @@ b剧情没得聊的时候专楼就剩下拉屎和搬屎了
 没单防吧，一直在找理由跑路或者干脆避而不答。</blockquote>
 基本算是防了一年，主要是不给出有效信息就算挡住了，爱音一来直接把信息茧房打了个对穿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你就说有没有单防吧，而且有人考据MyGO环节认为说睦这一年多没少来RiNG，估计立希都被封口了？不过就算那是假药从剧情上看素世确实蒙在鼓里蒙了一年不到，也算是被关住了，睦还是有单防实绩的，不管主观上是不是要单防
 
+
+*****
+
+####  Versedust  
+##### 26526#       发表于 2025-2-19 10:58
+
+明天过渡回估计没啥可爆的，顶多鸡团塑造再崩一些，没大活我都懒得看了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 26527#       发表于 2025-2-19 10:59
+
+睦头这形象不也是不断加压祥子和写双重人格的结果
+本来她和祥子就是两句话能解开的矛盾 主要问题明明在父母那
+
+*****
+
+####  aptx8285144  
+##### 26528#       发表于 2025-2-19 11:00
+
+ 本帖最后由 aptx8285144 于 2025-2-19 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463341&amp;ptid=2208921" target="_blank">俾斯麥 发表于 2025-2-19 10:06</a>
+
+因为剧本大纲估计是早就写了的，这个不能去掉，但落实到具体制作时她到底还有没有话语权就不知道了，不是 ...</blockquote>
+现在隔壁找罪证已经到了去GO时期找了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 26529#       发表于 2025-2-19 11:00
+
+mygo的木头人不说话还能让观众脑补出不少心理活动，mujica就只剩さきさき了，还不如不说
+
+*****
+
+####  老贝  
+##### 26530#       发表于 2025-2-19 11:02
+
+睦防了素世一年❌
+人际关系被冻结了一年，强行等爱音来了以后才开始重启☑️
+
+*****
+
+####  66367749  
+##### 26531#       发表于 2025-2-19 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463819&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 11:00</a>
+现在隔壁找罪证已经到了去GO时期找了，比如13话6分30秒开始爱音问灯是不是要去社团活动室，灯没理睬就去了 ...</blockquote>
+开电镜找片段穿凿附会也是很经典的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 26532#       发表于 2025-2-19 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463872&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-19 11:04</a>
+
+开电镜找片段穿凿附会也是很经典的了</blockquote>
+不过我看这罪证至少证明大祥传不是母鸡卡开始而是早就提前开演倒是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 26533#       发表于 2025-2-19 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463643&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-19 10:41</a>
+
+睦头主要是太祥子跟班了。
+
+所以牢莫是肯定摁着睦头不肯放出来，放出来就瞬间和解了。</blockquote>
+在这个几乎人人都在迁就祥子的动画里，Mortis充当了观众的某种嘴替，她第四话把祥子怼得缩成一团时怕不是除了祥厨以外的人都在喊【帅！Mortis】了，而且双重人格就是能让Mortis可以100%全权代表睦，甚至最开始能解释成这就是睦的心声，连带在Mortis的映衬下显得睦更像是祥子的跟班甚至“舔狗”了，因为说到底Mortis登场后并没有揭示祥睦二人更多的过去，Mortis指控祥子时没有出示任何其他的证据，观众只是默认Mortis说的一定对并自己照着已有剧情去套而已。现在Mortis越来越讨喜，只会导致睦的角色形象毁得越来越严重，而且想让Mortis退场？怎么可能。再就是随着Mortis登场，睦在戏里戏外都被鉴定为是被逼疯的，以睦都被逼疯了为基础论证睦比祥更惨是目前没有办法反驳的观点，何况Mortis自己指控是祥子把睦逼疯的。
+

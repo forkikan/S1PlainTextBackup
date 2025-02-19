@@ -483,3 +483,21 @@ gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/124.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yjmy705  
+##### 55#       发表于 2025-2-19 11:00
+
+欧美片里看着大的那些白男大多数都是做了假体手术的，就像隆胸一样，这在欧美那很普遍，我也是看了科普才知道。实际和亚洲没显著区别没有人均18cm的。
+
+真自然超越平均值的是尼哥。
+
+
+*****
+
+####  superwza  
+##### 56#       发表于 2025-2-19 11:04
+
+gay as fuck<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
