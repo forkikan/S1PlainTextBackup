@@ -965,3 +965,61 @@ B限也算好事，这个沸反盈天的节骨眼上，继续开B限和CV盾有�
 雞團的人度
 海鈴 &gt; 莫老師 &gt; 大喵 &gt;初华 &gt;&gt;睦                &gt;&gt;&gt;祥子
 
+
+*****
+
+####  天空塔书记官  
+##### 26731#       发表于 2025-2-19 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 26732#       发表于 2025-2-19 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">所以说之前为啥老是问不送 若叶睦 看医生，就是因为大莫老师比睦头人像人好么
+
+观众也是上帝视角的问题了
+
+*****
+
+####  新HGCG  
+##### 26733#       发表于 2025-2-19 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469183&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-19 21:43</a>
+
+B限也算好事，这个沸反盈天的节骨眼上，继续开B限和CV盾有啥区别？停了也好。 ...</blockquote>
+所以WSD是知道第7集中国差评的吧
+
+
+*****
+
+####  cxj649  
+##### 26734#       发表于 2025-2-19 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469332&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-19 22:03</a>
+
+所以WSD是知道第7集中国差评的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">武士道B站有官号运营，所以这边运营传达也不奇怪
+
+*****
+
+####  南宮凝香  
+##### 26735#       发表于 2025-2-19 22:06
+
+<blockquote>新HGCG 发表于 2025-2-19 22:03
+所以WSD是知道第7集中国差评的吧</blockquote>
+他們是人類
+
+*****
+
+####  zhoujin8584  
+##### 26736#       发表于 2025-2-19 22:08
+
+<blockquote>新HGCG 发表于 2025-2-19 21:37
+</blockquote>
+喵梦跟staff的关系一直挺好的，只能说mujica1.0是真的没签队内合同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
