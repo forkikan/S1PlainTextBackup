@@ -15418,3 +15418,72 @@ z高达第十集里捷利德这个算不算MAV战？
 
 喵安竟然和康奇关系这么紧密……不会是……某人又在找新的母亲了吧
 
+
+*****
+
+####  0aleph37  
+##### 7095#       发表于 2025-2-19 09:31
+
+<img src="https://img.saraba1st.com/forum/202502/19/093038jc676h6m996z1vcn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/093049f6vkm4mzxmlh0lip.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/093056sdh7vxhvbhvd0b7q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/093102bkpy07y7wuywpsg4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:31 上传
+
+<img src="https://img.saraba1st.com/forum/202502/19/093108rkgvhjzxoxxkjmxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:31 上传
+
+*****
+
+####  0aleph37  
+##### 7096#       发表于 2025-2-19 09:32
+
+5款未公开能从2k4-3k6，感觉都不是杂兵机的价格
+
+*****
+
+####  0aleph37  
+##### 7097#       发表于 2025-2-19 09:33
+
+发售时间最晚9月，能不能做梦一个半年番
+
+*****
+
+####  王留美  
+##### 7098#       发表于 2025-2-19 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463025&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-19 09:33</a>
+ 发售时间最晚9月，能不能做梦一个半年番</blockquote>
+这个密度应该是分割半年
+

@@ -14648,3 +14648,18 @@ https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
 
 也是玩上皮套了
 
+
+*****
+
+####  Paaz  
+##### 26502#       发表于 2025-2-19 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462710&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-19 08:58</a>
+
+柿本广大
+
+说爱音被排挤的原型是柿本广大被🦄排挤
+
+https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
+这说法好像不如这个贴子最后一楼的大祥老师说<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
