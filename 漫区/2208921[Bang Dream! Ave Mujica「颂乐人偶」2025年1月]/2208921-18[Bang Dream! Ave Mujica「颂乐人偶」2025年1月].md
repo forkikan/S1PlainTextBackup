@@ -15442,3 +15442,33 @@ MyGO
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 26579#       发表于 2025-2-19 12:32
+
+不过对于个性张力来说，消解=杀人，融合=皆杀，最符合二次元世界观的是共存后睦主墨彩，看看WSD会不会逆天而行吧
+
+*****
+
+####  z-hunter  
+##### 26580#       发表于 2025-2-19 12:33
+
+鸡团粉早就不敢说话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狗团干涉过多剧情他们已经够雷了，现在还发现用自己动画一半篇幅垫给的原来是CCC这个团而不是塑造鸡团，更加雷上加雷
+
+狗起码有自己的一部动画
+
+现在只不过CCC这个团波及到了狗，让狗疑似塌房了狗粉破防了，鸡粉才敢出来嘲笑狗粉你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过鸡粉还有一半动画可以期待，至于是否能挽回他们期待的那个舞台，就是未知的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  capraeLinn  
+##### 26581#       发表于 2025-2-19 12:35
+
+最合理的永远是睦墨同源，从来就是一个人，根本不需要搞那些有的没的，坚持一个若叶睦原则
+
