@@ -1051,3 +1051,57 @@ B限也算好事，这个沸反盈天的节骨眼上，继续开B限和CV盾有�
 即便被冲烂本社爆破也要继续当那逼死灵术士炒作勾吗？哈 ...</blockquote>
 其实就是b的运营天天剧透被抓了吧
 
+
+*****
+
+####  天空塔书记官  
+##### 26740#       发表于 2025-2-19 22:19
+
+ave又不是特供大陆市场的，既然本土反应还算不错，那接着炒也没问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 26741#       发表于 2025-2-19 22:21
+
+话说c团三个人出大象老师的黑名单了吗
+这么一想，后主阿祥解开黑名单不得马上看见长崎姜维的密信
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cxj649  
+##### 26742#       发表于 2025-2-19 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469477&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-19 22:21</a>
+
+话说c团三个人出大象老师的黑名单了吗
+
+这么一想，后主阿祥解开黑名单不得马上看见长崎姜维的密信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这时间点只是解开C团的吧
+
+*****
+
+####  aptx8285144  
+##### 26743#       发表于 2025-2-19 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469402&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-19 22:13</a>
+
+所以WSD是知道为什么第七集在中国被差评的原因吧
+
+即便被冲烂本社爆破也要继续当那逼死灵术士炒作勾吗？哈 ...</blockquote>
+现在剧本早就完成所有步骤，就差播放了，其他场外计划也来不及收了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 26744#       发表于 2025-2-19 22:25
+
+为什么吵wsd没用，因为这玩意不是二游，都做完了躺硬盘里了（第几次这么说了来着），而且官方毕竟是日本人，知道本土观众还是喜欢c团，所以飞速端上来联动
+
+tft不说了，邦TV直接端上来最美好的无人，怎么可能是一集结束，后面有得折腾
+

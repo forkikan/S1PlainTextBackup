@@ -1268,3 +1268,24 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 发一张群里收的群像图，楼主可以把它贴到首页（感觉可以提升宣传效果）
 
+
+*****
+
+####  shinnfin  
+##### 102#       发表于 2025-2-19 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然想起来这游戏到现在都没有个中文译名吗
+
+
+*****
+
+####  发条之心  
+##### 103#       发表于 2025-2-19 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469451&amp;ptid=2246453" target="_blank">shinnfin 发表于 2025-2-19 22:18</a>
+
+突然想起来这游戏到现在都没有个中文译名吗</blockquote>
+中文名很难翻译，因为词源来自多种语言然后作者将其强行拼接在了一起。
+
+目前比较好的译名可能是《圣者涅槃》，但会剧透<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
