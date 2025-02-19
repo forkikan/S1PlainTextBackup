@@ -1252,3 +1252,19 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 也是快通关了，记录下自己觉得恶心的地图，卡农之棺岩浆区，停尸房，魔界村，雪原，奉龙殿，海底滑冰区，算是恶心的各有特点的几张地图吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发条之心  
+##### 101#       发表于 2025-2-19 21:49
+
+<img src="https://img.saraba1st.com/forum/202502/19/214917zssii6tmwhb6bnxh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000014589.jpg</strong> (918.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 21:49 上传
+
+发一张群里收的群像图，楼主可以把它贴到首页（感觉可以提升宣传效果）
+

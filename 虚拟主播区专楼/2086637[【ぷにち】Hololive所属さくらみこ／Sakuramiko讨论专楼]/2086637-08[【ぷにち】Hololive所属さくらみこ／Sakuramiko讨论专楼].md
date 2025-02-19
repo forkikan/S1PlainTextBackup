@@ -698,3 +698,34 @@ sharp官方没有转发今天的直播推
 
 这到底是啥玩意
 
+
+*****
+
+####  holofan  
+##### 10806#       发表于 2025-2-19 21:12
+
+ 本帖最后由 holofan 于 2025-2-19 21:13 编辑 
+
+7万买个电饭锅
+
+<img src="https://img.saraba1st.com/forum/202502/19/211344bi55eiile3goi3zk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (484.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 21:13 上传
+
+*****
+
+####  holofan  
+##### 10807#       发表于 2025-2-19 21:47
+
+<img src="https://img.saraba1st.com/forum/202502/19/214742emrdlmd4eeueldfd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 21:47 上传
+
