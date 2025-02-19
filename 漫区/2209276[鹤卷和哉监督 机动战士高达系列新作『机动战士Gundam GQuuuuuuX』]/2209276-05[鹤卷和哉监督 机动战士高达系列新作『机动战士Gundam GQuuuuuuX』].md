@@ -15844,3 +15844,28 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 所以军团战是打一场结一次钱是吧，有啥赛程之类的吗？还是真就八角笼匹配大乱斗
 
+
+*****
+
+####  kuriri  
+##### 7130#       发表于 2025-2-19 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463018&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-19 09:32</a>
+
+5款未公开能从2k4-3k6，感觉都不是杂兵机的价格</blockquote>
+分别是gqux，gquux，gquuux……
+
+*****
+
+####  刺客ares  
+##### 7131#       发表于 2025-2-19 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465761&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-19 15:06</a>
+
+所以军团战是打一场结一次钱是吧，有啥赛程之类的吗？还是真就八角笼匹配大乱斗 ...</blockquote>
+这种每次都可能死人，输方大概率被军警抓走的比赛，当然是打一次结一次钱
+
+赛程奖金主办方感觉都不会具体写，说到底全剧一共能打几场比赛都不一定
+
+也许剧场版就是唯一一场呢，TV一开始三人组就被抓走上舰了
+

@@ -15911,3 +15911,51 @@ soyo道歉她在第二季的行动法理就失去了，反而从始至终都把�
 </blockquote>
 划小船是什么？
 
+
+*****
+
+####  与太郎  
+##### 26619#       发表于 2025-2-19 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465753&amp;ptid=2208921" target="_blank">aisakahammer 发表于 2025-2-19 15:04</a>
+
+说不喜欢灯的歌词，是因为唱出了心声，会让常年带着社交面具的soyo觉得没有安全感，失去了距离感，害怕自己 ...</blockquote>
+凑个对偶（）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|懂你|
+
+查看全部评分
+
+*****
+
+####  ml1642879  
+##### 26620#       发表于 2025-2-19 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465802&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 15:12</a>
+划小船是什么？</blockquote>
+花咲川女子职高
+
+*****
+
+####  南宮凝香  
+##### 26621#       发表于 2025-2-19 15:17
+
+<blockquote>aptx8285144 发表于 2025-2-19 15:12
+划小船是什么？</blockquote>
+花咲川……….
+
+*****
+
+####  阿兹尔  
+##### 26622#       发表于 2025-2-19 15:18
+
+说起来ccc解散一年，soyo找睦没进展是不是就整天去ring骚扰立希了，她点东西都是“老样子”了
+
