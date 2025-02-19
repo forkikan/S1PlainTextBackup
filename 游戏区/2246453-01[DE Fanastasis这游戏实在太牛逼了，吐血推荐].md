@@ -1297,3 +1297,16 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 定价高，或者说发行做得太差，steam就四十个评价
 
+
+*****
+
+####  blueelf  
+##### 105#         楼主| 发表于 2025-2-19 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469554&amp;ptid=2246453" target="_blank">Sutrid 发表于 2025-2-19 22:30</a>
+
+定价高，或者说发行做得太差，steam就四十个评价</blockquote>
+去年4月份才上的STEAM，之前是免费游戏，没有多语言，最重要的是画面朴素，只有上手玩了才能体会其魅力，视频传播的效果也不会多好，这就注定偏小众了
+
+希望作者能加个官中，把国内玩家群做的那个放上去就行了，这样一个内容充实，完成度极高的精品JRPG，在中文圈明珠蒙尘实在是太可惜
+
