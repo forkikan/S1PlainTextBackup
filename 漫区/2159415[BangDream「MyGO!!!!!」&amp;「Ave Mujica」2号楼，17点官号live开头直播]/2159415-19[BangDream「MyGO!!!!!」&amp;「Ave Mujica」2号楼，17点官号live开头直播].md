@@ -4426,3 +4426,13 @@ Happy birthday ましろ！  
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  rollingusagi  
+##### 26974#       发表于 2025-2-19 19:46
+
+突然发现mygo这五个都是零零后，但是ccc也一样全是零零后，当初鸡招人为啥就祥睦中之人要选零零后的原因是这个吗，真是一笔大棋啊wsd<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

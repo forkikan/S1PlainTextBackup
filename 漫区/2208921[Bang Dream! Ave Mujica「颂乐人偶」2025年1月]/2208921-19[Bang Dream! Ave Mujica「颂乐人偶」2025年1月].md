@@ -584,3 +584,21 @@ x：gM4zFiJCWbz3G4y
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Суслов  
+##### 26694#       发表于 2025-2-19 19:39
+
+刚开始还有人说没看出来ccc要复活，现在真是wsd之心——路人皆知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  花スープ  
+##### 26695#       发表于 2025-2-19 19:45
+
+有理由怀疑本来计划就是四团并行，结果独角兽在第一季用力过猛造成了 Crythic 已死 MyGO 当立的假象，然后在第二季架空独角兽并通过削弱 MyGO、加强 Crythic 来找补
+
