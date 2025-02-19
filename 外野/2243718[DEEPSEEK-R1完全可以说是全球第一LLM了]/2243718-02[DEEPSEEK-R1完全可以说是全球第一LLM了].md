@@ -4914,3 +4914,107 @@ Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2�
 
 派欧算力云的大家觉得怎么样
 
+
+*****
+
+####  lactone  
+##### 1910#       发表于 2025-2-17 15:44
+
+话说马圣今天晚上要发布grok3，号称最聪明的人工智能
+会不会又要开始咩鳖了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  泰坦失足  
+##### 1911#       发表于 2025-2-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67448934&amp;ptid=2243718" target="_blank">lactone 发表于 2025-2-17 15:44</a>
+
+话说马圣今天晚上要发布grok3，号称最聪明的人工智能
+
+会不会又要开始咩鳖了</blockquote>
+能赢就见鬼了, Grok1吹开源吹多幽默, Grok2不吹开源吹多牛逼了. 结果一看" 马斯克xAI终于官宣API，定价是GPT-4o两倍"
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最多就是达到下O1级推理能力.现在有R1和Gemini2也不是啥新鲜事了.
+
+之前马斯克还吹过我们不是不开源Grok2, 是新的出了后我们开源上一代.倒是可以看看Grok2的模型有多大. 
+
+*****
+
+####  神剑烧鸡  
+##### 1912#       发表于 2025-2-18 01:19
+
+硅基的V3好像爆了？
+
+现在还有别的什么其他平台api推荐吗
+
+*****
+
+####  上坂莲华  
+##### 1913#       发表于 2025-2-18 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67438599&amp;ptid=2243718" target="_blank">titians 发表于 2025-2-16 11:36</a>
+
+现在腾讯元宝的网页版号称满血，请问有人试过吗？我怎么感觉还是不如原版，回答问题有点似是而非。 ...</blockquote>
+腾讯元宝就是胡编乱造的，我问个港漫他给我扯出来一个19年的漫画，而且从角色到章节名全是自己杜撰的
+
+*****
+
+####  德尔惠净水器  
+##### 1914#       发表于 2025-2-18 20:00
+
+超过o1-mini、逼近o3-mini，DeepSeek-R1在新的贪吃蛇基准上拿下1801分
+
+<img src="https://img.saraba1st.com/forum/202502/18/200051r0uiksvvj6bg0iwi.jpg" referrerpolicy="no-referrer">
+
+<strong>174.jpg</strong> (273.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-18 20:00 上传
+
+*****
+
+####  overflowal  
+##### 1915#       发表于 2025-2-18 20:20
+
+Nebius的deepseek-R1 fast模式60 token/s，真的神了。就是价格到了2刀/6刀百万token
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  2017.05.04  
+##### 1916#       发表于 2025-2-18 20:40
+
+马圣砸钱鸡血到这个程度也就这样了，感觉他造火箭还行，造ai是差了点
+
+*****
+
+####  有鱼  
+##### 1917#       发表于 2025-2-18 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460418&amp;ptid=2243718" target="_blank">2017.05.04 发表于 2025-2-18 20:40</a>
+
+马圣砸钱鸡血到这个程度也就这样了，感觉他造火箭还行，造ai是差了点</blockquote>
+源神这个新模型完全就是强鳖新闻，就看鲸鱼哥啥时候有新的大的了
+
+*****
+
+####  faithlifer  
+##### 1918#       发表于 2025-2-18 22:38
+
+派欧算力云的大家觉得怎么样
+
+*****
+
+####  泰坦失足  
+##### 1919#       发表于 2025-2-19 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67456586&amp;ptid=2243718" target="_blank">上坂莲华 发表于 2025-2-18 13:16</a>
+
+腾讯元宝就是胡编乱造的，我问个港漫他给我扯出来一个19年的漫画，而且从角色到章节名全是自己杜撰的 ...</blockquote>
+元宝版R1对于自己搜出来的东西有迷之高权重信赖. 它根据营销号的瞎编文案告诉我赛文是泰罗的舅舅? 这营销号在营销号里都算的上瞎编的了
+
