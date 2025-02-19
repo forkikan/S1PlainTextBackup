@@ -16183,3 +16183,86 @@ frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过�
 
 但我估计最后结局要演大场面的话，就是大基找到借口派军队过去想趁机侵略side6，可能还会有手电筒。
 
+
+*****
+
+####  纪寞  
+##### 7160#       发表于 2025-2-19 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466756&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-19 16:57</a>
+
+剧情到中期，索冬这边兜不住的情况下，吉翁得知消息，派人来接手的可能性是很高的
+
+来的人可能是兰巴或者三 ...</blockquote>
+大概会有老角色也会有新角色，压轴的应该就是新角色boss，我猜应该是原定用于改造启动奥米加的定制强化人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuriri  
+##### 7161#       发表于 2025-2-19 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466773&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-19 16:59</a>
+
+我觉得从剧中卖胶的角度出发，夏利尔和side6这边基本也出不了什么新胶，那就只能指望side3那边。
+
+只靠夏 ...</blockquote>
+既然夏利尔部队有高达，自然其他部队也会有高达（还要考虑到联邦的隐藏机体），不需要最高层授意他们会自己出现的，故事可能就是大家一边逃避追捕一边帮修司寻找回家的办法，夏利尔则是想找回夏亚。
+
+*****
+
+####  纪寞  
+##### 7162#       发表于 2025-2-19 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466866&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-19 17:09</a>
+
+既然夏利尔部队有高达，自然其他部队也会有高达（还要考虑到联邦的隐藏机体），不需要最高层授意他们会自 ...</blockquote>
+不需要高层授意不可能的，又不是过家家，没紫婆或大基点头那可能让部队自己随意动的，直接在对话中表示是紫婆派还是大基派的不就行了。
+
+
+*****
+
+####  刺客ares  
+##### 7163#       发表于 2025-2-19 17:13
+
+现在剧中没有明面上的反派
+
+虽然基连和基西莉亚都活着，但显然不会往玛修二人组冲进side3一刀一个扎比家那种情况发展
+
+博美队是主角团后勤，安琪虽然水深但也不像是要害人的样子
+
+索冬虽然是吉翁军舰，但气氛也不像以往的高达反派舰，明显看出是往讨喜那边去写的
+
+side6当局虽然对难民不好，但主角亲妈在那任职，本身也是普通的好妈妈，不太像是反派
+
+主角团内也不像有反派卧底，喵安就算是反派也什么都做不到，大概只有被普通人一拳制服的强度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+牢修跳反倒是有威胁，但哈啰钦定真MAV，鹤卷又说哈啰的话很重要，那他应该也不会跳反<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以只能从side3那边空降反派了
+
+*****
+
+####  岸浪白野  
+##### 7164#       发表于 2025-2-19 17:15
+
+[X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼先行公開‼／ 明日稼働開始の #アーセナルベース FORSQUAD SEASON:01 本弾収録のパラレルカード ◤赤いガンダム(0085)◢ を初公開✨ [url]https://t.co/Zh6PF0kZmI](https://x.com/gundam_ab/status/1892139237912268936)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/19/171451c4sppojkos7owb46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 17:14 上传
+
+[X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼先行公開‼／ 明日稼働開始の #アーセナルベース FORSQUAD SEASON:01 本弾収録のシークレットカード ◤アマテ・ユズリハ(マチュ)◢ ◤シュウジ・イトウ◢ を公開✨ [url]https://t.co/uXOSelHw2J](https://x.com/gundam_ab/status/1892139470952247390)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/19/171424egc1hjaxzghrcgrg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 17:14 上传
+

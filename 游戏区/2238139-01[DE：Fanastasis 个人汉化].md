@@ -122,3 +122,18 @@ app下来后会让你再跳转下载RTP和rm插件
 装完就能玩了（以上需要梯子）
 不过键位不能改的简洁一点    比较不爽
 
+
+*****
+
+####  JanShing  
+##### 138#       发表于 2025-2-19 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465624&amp;ptid=2238139" target="_blank">shinnfin 发表于 2025-2-19 14:44</a>
+
+直接去joiplay官网下就行
+
+app下来后会让你再跳转下载RTP和rm插件
+
+装完就能玩了（以上需要梯子）</blockquote>
+添加游戏，识别不了Game.exe啊
+
