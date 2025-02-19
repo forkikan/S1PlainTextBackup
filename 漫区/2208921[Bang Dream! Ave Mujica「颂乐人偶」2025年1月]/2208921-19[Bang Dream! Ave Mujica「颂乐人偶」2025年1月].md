@@ -348,3 +348,56 @@ x：gM4zFiJCWbz3G4y
 
 鸡友狗友怕是已经躺平了，C团爱怎么样怎么样吧，宣发资源都堆到这边了
 
+
+*****
+
+####  zhoujin8584  
+##### 26672#       发表于 2025-2-19 18:18
+
+洗洗更健康。
+
+拿mygo第13话垫给mujica第0话的时候，某些人的嘴脸我都还记得，你mygo就是女高中生过家家，闹麻了，怎么能体会现实的真实的苦痛呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+结果就是写惯了jk关系性的编剧在陌生域也拔剑四顾心茫然，只能飞速降维断尾求生。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+至于观感，就不止天知道了。
+
+*****
+
+####  椎名mahuyo  
+##### 26673#       发表于 2025-2-19 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">WSD动画时间拖这么久到现在就是为了凑祥子生日加炒作C团，真是闹麻了，爱咋样咋样吧
+
+*****
+
+####  borrowface  
+##### 26674#       发表于 2025-2-19 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465932&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-19 15:32</a>
+楼友的格差社会思路还是不够劳保，看看知友</blockquote>
+我觉得这种就是反串
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 26675#       发表于 2025-2-19 18:21
+
+武士道真是**了哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 26676#       发表于 2025-2-19 18:25
+
+全天下都知道WSD 要復辟C 團
+
+祝他幸福，
+
+我反正不看2偶的，
+
+這季完結後就與我無關
+

@@ -16378,3 +16378,14 @@ X 上的 【公式】機動戦士ガンダム アーセナルベース：“＼�
 按照现在鹤卷访谈给我的感觉，可能后期的超展开和主角团这帮子人其实根本就没直接联系，联邦和吉翁的僵持因 ...</blockquote>
 我看鹤卷的访谈也是这种感觉，尤其他还提到了zz的前半段。但另一方面确实也有剧情的推动问题和其他高达机体的出场问题，所以应该不会到最后一集才超展开吧？
 
+
+*****
+
+####  kuriri  
+##### 7175#       发表于 2025-2-19 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467500&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-2-19 18:09</a>
+
+简单，女装不就好了</blockquote>
+天才啊！！
+
