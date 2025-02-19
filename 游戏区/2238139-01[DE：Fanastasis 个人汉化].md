@@ -70,3 +70,13 @@ bug，同时按两个方向概率斜着卡进去/出来
 
 还能斜着出来，下回卡住试试，感谢你，我卡住之前都走好久，白打那么多挫折感老强了。
 
+
+*****
+
+####  shinnfin  
+##### 133#       发表于 2025-2-19 10:06
+
+<img src="https://p.sda1.dev/22/edc0b3f85b86806c9f38042848df4e50/image.jpg" referrerpolicy="no-referrer">
+steam买了但是不想电脑玩  牛子玩也不方便
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">于是决定手机摸鱼玩  效果还可以
+
