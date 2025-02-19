@@ -40,3 +40,22 @@
 
 顶级声优痴<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好孩子不要学他
 
+
+*****
+
+####  MagisterPeditum  
+##### 2073#       发表于 2025-2-19 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67249348&amp;ptid=2152053" target="_blank">osore 发表于 2025-1-22 19:41</a>
+
+仁井学的配图文字很肉体</blockquote>
+把运动短裤裹在裤袜里的皆是该遭天谴的异端<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2074#       发表于 2025-2-19 19:34
+
+打牌声优终于出现了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
