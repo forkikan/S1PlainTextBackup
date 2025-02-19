@@ -14603,3 +14603,48 @@ wsd对anon在大陆的人气爆棚估计都是懵比的。。。
 继初华叙诡论之后，又开始睦头叙诡论了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 你们觉得就监督编剧的水平，他写的出这种东西嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hysjmr  
+##### 26497#       发表于 2025-2-19 09:19
+
+沟槽的索隐派<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 26498#       发表于 2025-2-19 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太变态了，这是啥啊
+
+*****
+
+####  天空塔书记官  
+##### 26499#       发表于 2025-2-19 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 26500#       发表于 2025-2-19 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462710&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-19 08:58</a>
+
+柿本广大
+
+说爱音被排挤的原型是柿本广大被🦄排挤
+
+https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
+一大早起来就给来看这种让人不适的东西，太过分了。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wwwwwater  
+##### 26501#       发表于 2025-2-19 09:25
+
+也是玩上皮套了
+

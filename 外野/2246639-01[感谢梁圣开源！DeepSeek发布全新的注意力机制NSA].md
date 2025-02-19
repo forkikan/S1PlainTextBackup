@@ -578,3 +578,25 @@ DS自己的服务器根本承载不了实际需求啊
 个人感觉这次应该是幻方手里攒的内容比较多了，就先发布一个， ...</blockquote>
 幻方“受限算力下的LLM工程优化”这个大课题要是能持续性产出成果就很让人安心
 
+
+*****
+
+####  overflowal  
+##### 64#         楼主| 发表于 2025-2-19 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462659&amp;ptid=2246639" target="_blank">枯风瘦雪 发表于 2025-2-19 08:52</a>
+幻方“受限算力下的LLM工程优化”这个大课题要是能持续性产出成果就很让人安心 ...</blockquote>
+他们算力不受限也会做的，算力又不是叠积木，大分布式系统会产生巨量算力损耗。没有好的infra，就是训个屁
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  枯风瘦雪  
+##### 65#       发表于 2025-2-19 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462934&amp;ptid=2246639" target="_blank">overflowal 发表于 2025-2-19 09:22</a>
+
+他们算力不受限也会做的，算力又不是叠积木，大分布式系统会产生巨量算力损耗。没有好的infra，就是训个 ...</blockquote>
+但其他科研力量（就是学术界）长期受困于算力不足无法进入大模型的核心科研创新，他们给出了一条promising的学术道路，就能带来更大范围的科研创新尝试和成果，所以无关于ds自己的先进性，而是改变了生态的玩法
+
