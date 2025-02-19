@@ -896,3 +896,29 @@ lyy爱素情人节后续
 
 阿莫都投了，若麦也快了
 
+
+*****
+
+####  Mkntoil  
+##### 26724#       发表于 2025-2-19 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463091&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-19 09:40</a>
+
+类似小时候用平假名，但是长大以后用汉字，正常情况下应该不会再反过来
+
+而且mygo第三集看以前收藏的本子 ...</blockquote>
+了解了，期待后续剧情发展会不会用到
+
+*****
+
+####  TANA  
+##### 26725#       发表于 2025-2-19 21:36
+
+想拿几个极端的个人行为就来堵大众的悠悠之口
+做梦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 26726#       发表于 2025-2-19 21:37
+
