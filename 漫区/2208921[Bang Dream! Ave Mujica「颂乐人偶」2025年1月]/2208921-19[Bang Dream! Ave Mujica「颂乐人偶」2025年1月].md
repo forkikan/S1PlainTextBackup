@@ -281,3 +281,41 @@ x：gM4zFiJCWbz3G4y
 
 还得是CCC（
 
+
+*****
+
+####  非建政专用号  
+##### 26665#       发表于 2025-2-19 17:46
+
+大象老师是不是又好久没接到晶哥电话了，祥爹也是自适应看守所啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  595505568  
+##### 26666#       发表于 2025-2-19 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467239&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-19 17:41</a>
+还得是CCC（</blockquote>
+为什么这个补充待发那么哈人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不要啊，邦TV上C团复活什么的（
+
+*****
+
+####  adretyu67.  
+##### 26667#       发表于 2025-2-19 17:51
+
+有点哈人了，下面就差CCC正式复活了是吧
+
+
+*****
+
+####  天空塔书记官  
+##### 26668#       发表于 2025-2-19 17:52
+
+小羊这公式照怎么和本人一点也不像啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
