@@ -218,3 +218,13 @@
 看到一个说法还挺有道理的，如果祥子愿意改当丰川老头子的女儿，那么小姨说就能恢复为姐妹说了 ...</blockquote>
 草，原来丰川老爷让祥子改辈分是因为比起小姨子文学更爱姐妹文学<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 26659#       发表于 2025-2-19 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466062&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-19 15:52</a>
+没必要再搞ccc了，爽姐跟黑祥比是更重视家庭成员的那种，不需要一之濑这个家庭的虚壳。现在在mygo摆烂做 ...</blockquote>
+C团时期能和立希共担照顾人的责任的情况下，还能时不时老夫老妻感的互动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，很难的吧
+
