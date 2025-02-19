@@ -14968,3 +14968,120 @@ mygo的木头人不说话还能让观众脑补出不少心理活动，mujica就�
 所以牢莫是肯定摁着睦头不肯放出来，放出来就瞬间和解了。</blockquote>
 在这个几乎人人都在迁就祥子的动画里，Mortis充当了观众的某种嘴替，她第四话把祥子怼得缩成一团时怕不是除了祥厨以外的人都在喊【帅！Mortis】了，而且双重人格就是能让Mortis可以100%全权代表睦，甚至最开始能解释成这就是睦的心声，连带在Mortis的映衬下显得睦更像是祥子的跟班甚至“舔狗”了，因为说到底Mortis登场后并没有揭示祥睦二人更多的过去，Mortis指控祥子时没有出示任何其他的证据，观众只是默认Mortis说的一定对并自己照着已有剧情去套而已。现在Mortis越来越讨喜，只会导致睦的角色形象毁得越来越严重，而且想让Mortis退场？怎么可能。再就是随着Mortis登场，睦在戏里戏外都被鉴定为是被逼疯的，以睦都被逼疯了为基础论证睦比祥更惨是目前没有办法反驳的观点，何况Mortis自己指控是祥子把睦逼疯的。
 
+
+*****
+
+####  老贝  
+##### 26534#       发表于 2025-2-19 11:09
+
+ 本帖最后由 老贝 于 2025-2-19 11:10 编辑 
+
+Mygo动画第一集，你说是ccc解散几周之后就开始的也没有什么问题。
+
+角色关系在一年里没有任何进展，整个故事在ccc解散到爱音回国之间是完全被冻结的。不仅仅只是行动上的原地踏步，连心理上都没有发生任何变化。
+
+*****
+
+####  syndrome2032  
+##### 26535#       发表于 2025-2-19 11:09
+
+大祥传只是mygo前面没刻意提吧。
+
+一句话炸团一首歌组团，13话节点甚至有点报复性质的鸡团初演。
+
+只不过谁能想到鸡团开播瞬间就变成人见人锤的软糯小祥了。
+
+*****
+
+####  俾斯麥  
+##### 26536#       发表于 2025-2-19 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463819&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 11:00</a>
+
+现在隔壁找罪证已经到了去GO时期找了，比如13话6分30秒开始爱音问灯是不是要去社团活动室，灯没理睬就去了 ...</blockquote>
+妈的这帮人都不用上班的吗.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MERCCCP  
+##### 26537#       发表于 2025-2-19 11:11
+
+昨天傍晚看最新的那个切片的评论区里樱花姨都成了白莲花救世主了
+
+奇异搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 26538#       发表于 2025-2-19 11:13
+
+顺带说个好笑的，初华不是被CV说像侦探吗？现在几乎是观众在当侦探调查初华了，和这个侦探位现在最契合的居然是素世，我觉得go里爱音也是这个担当。
+
+*****
+
+####  御幸一也  
+##### 26539#       发表于 2025-2-19 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463898&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-19 11:07</a>
+
+在这个几乎人人都在迁就祥子的动画里，Mortis充当了观众的某种嘴替，她第四话把祥子怼得缩成一团时怕不是 ...</blockquote>
+祥黑也是代入到mortis裡了，就這弱智塑造，還越來越討喜呢，爛的開端就是mortis這坨設定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 26540#       发表于 2025-2-19 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463819&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-19 11:00</a>
+现在隔壁找罪证已经到了去GO时期找了，比如13话6分30秒开始爱音问灯是不是要去社团活动室，灯没理睬就去了 ...</blockquote>
+支持手游作为正统世界线喵
+手游里可是好好交流了
+
+
+*****
+
+####  俾斯麥  
+##### 26541#       发表于 2025-2-19 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463898&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-19 11:07</a>
+
+在这个几乎人人都在迁就祥子的动画里，Mortis充当了观众的某种嘴替，她第四话把祥子怼得缩成一团时怕不是 ...</blockquote>
+现在有种假药是乐奈看出来演奏这个不是睦而是莫姐，真正的睦已经彻底睡死不会醒了，莫姐全权主导了这个身体，如果顺这个假药往前推的话，SOYO陪着莫姐三天三夜在干什么就很细思极恐了，我想到了已故蜀汉大将军姜维的复兴操作，只不过姜维失败了，而SOYO看着像要成功了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 26542#       发表于 2025-2-19 11:14
+
+拉片分析的战神还能扣站位的对应、黄瓜数量和袋子品牌、这集其实怎么解释其实都行的爱音的微妙态度，乃至乐奈的态度。
+
+但核心问题在场内场外都泥沙俱下的现在都不重要了，这种细节就是谁说谁都有理，赶紧把第八集端上来吧。
+
+*****
+
+####  Versedust  
+##### 26543#       发表于 2025-2-19 11:14
+
+剧透成真的时候不知道多少人去清算樱花姨<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+不过在一部烂掉的作品里反而成为了好活，能流传成经典那种
+
+*****
+
+####  御幸一也  
+##### 26544#       发表于 2025-2-19 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463957&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-19 11:13</a>
+
+顺带说个好笑的，初华不是被CV说像侦探吗？现在几乎是观众在当侦探调查初华了，和这个侦探位现在最契合的居 ...</blockquote>
+李子什麼時候說的我怎麼沒印象，有原文嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 26545#       发表于 2025-2-19 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463979&amp;ptid=2208921" target="_blank">御幸一也 发表于 2025-2-19 11:15</a>
+
+李子什麼時候說的我怎麼沒印象，有原文嗎</blockquote>
+这不是老早就有的CV访谈吗？貌似23年年底或者24年年初就有了？
+
