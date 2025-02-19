@@ -1289,3 +1289,11 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 目前比较好的译名可能是《圣者涅槃》，但会剧透<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sutrid  
+##### 104#       发表于 2025-2-19 22:30
+
+定价高，或者说发行做得太差，steam就四十个评价
+
