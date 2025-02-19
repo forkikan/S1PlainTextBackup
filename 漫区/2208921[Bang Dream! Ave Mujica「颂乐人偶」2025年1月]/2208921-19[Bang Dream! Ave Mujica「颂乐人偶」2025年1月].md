@@ -1404,3 +1404,30 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 2025-2-19 23:25 上传
 
+
+*****
+
+####  是谁的书画  
+##### 26766#       发表于 2025-2-19 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67470064&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-19 23:42</a>
+老中热不热真没啥关系啊，老中这地方就决定了买碟买谷都麻烦，wsd真正能吃到老中热度的流量也就只有演唱 ...</blockquote>
+我虽然不完全同意，但可能会是这样吧，正因如此才感觉真是难以理解。有时候确实能体会到思维模式的不同，只能遗憾有些日本企业还是太不想进步了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuwamoco  
+##### 26767#       发表于 2025-2-19 23:54
+
+若叶睦第三集对喵梦说得你怎么能说这么讨厌的话，和go第八集soyo对她说的话是一样的。喵睦迟早也要三天三夜。
+
+*****
+
+####  天空塔书记官  
+##### 26768#       发表于 2025-2-19 23:54
+
+想不想进步动画也是早就做完了，炒作的计划也是早就定下了，除非wsd真搞一版大陆特供，那还能咋办呢…接着看呗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
