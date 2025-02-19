@@ -183,3 +183,38 @@
 後面跟法孝正貼貼，</blockquote>
 是法孝直吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 26657#       发表于 2025-2-19 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466535&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-19 16:37</a>
+
+再一想有点难绷，其他富姐都是背景设定，只有大象被168亿和迈巴赫打了两巴掌
+
+—— 来自 S1Fun ...</blockquote>
+这不就是编剧没苦硬吃呗，搞得祥子的家庭背景人物甚至都是有名有姓的，邦在此之前，只有乐奈在剧场版史无前例的给了双亲的全名，到了Mujica祥睦的家人都有名有姓，而且出了不止一次的场，祥爷甚至有建模。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 非建政专用号| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ntrntr1  
+##### 26658#       发表于 2025-2-19 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466625&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-19 16:44</a>
+
+看到一个说法还挺有道理的，如果祥子愿意改当丰川老头子的女儿，那么小姨说就能恢复为姐妹说了 ...</blockquote>
+草，原来丰川老爷让祥子改辈分是因为比起小姨子文学更爱姐妹文学<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

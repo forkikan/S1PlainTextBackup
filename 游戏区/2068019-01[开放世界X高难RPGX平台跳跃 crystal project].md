@@ -1273,3 +1273,14 @@ mercury到过了是吧
 
 我觉得这游戏最大的缺陷是续航砍的太厉害，强烈建议加个战后能恢复满蓝的mod，消耗品回蓝太繁琐的，而且数量也不怎么够。
 
+
+*****
+
+####  blackll7  
+##### 108#         楼主| 发表于 2025-2-19 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465736&amp;ptid=2068019" target="_blank">wmy458566315 发表于 2025-2-19 15:01</a>
+
+我觉得这游戏最大的缺陷是续航砍的太厉害，强烈建议加个战后能恢复满蓝的mod，消耗品回蓝太繁琐的，而且数 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">FFoverhual倒是没用这个问题了，加了一堆回蓝被动，然而FF难度下杂鱼随意肉出天际。
+
