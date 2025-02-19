@@ -109,3 +109,16 @@ steam买了但是不想电脑玩  牛子玩也不方便
 前面的朋友，你帖子我回复就出错，没法引用，我的链接是用idm下载的，你可试试。 ...</blockquote>
 复制到IDM也下载不了
 
+
+*****
+
+####  shinnfin  
+##### 137#       发表于 2025-2-19 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465401&amp;ptid=2238139" target="_blank">JanShing 发表于 2025-2-19 14:12</a>
+复制到IDM也下载不了</blockquote>
+直接去joiplay官网下就行
+app下来后会让你再跳转下载RTP和rm插件
+装完就能玩了（以上需要梯子）
+不过键位不能改的简洁一点    比较不爽
+
