@@ -739,3 +739,65 @@ lyy爱素情人节后续
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 26710#       发表于 2025-2-19 20:55
+
+<blockquote>天空塔书记官 发表于 2025-2-19 20:47
+这不是回旋镖的问题，如果你觉得因为剧情去攻击声优和开盒up主也算是在商言商的话，表达不满可以，但要适 ...</blockquote>
+這就是偶像業呀
+
+偶像業是賣夢想的
+
+背叛粉絲夢想的偶像業公司就是這樣
+
+不寄刀片， 不去肉體襲擊，
+
+那其他都在理內
+
+順風能吃彈幕加持
+
+那逆風當然也要吃Anti 的彈幕
+
+開盒Up 主我覺得過火
+
+彈幕攻擊沒什麼的
+
+*****
+
+####  TANA  
+##### 26711#       发表于 2025-2-19 20:56
+
+我没攻击声优开盒UP主，谁开的你找谁去
+
+我觉得这事情不算完
+
+*****
+
+####  天空塔书记官  
+##### 26712#       发表于 2025-2-19 20:57
+
+嘛，我还觉得消停下的好，毕竟到时候弹幕会攻击谁，以及会不会有过激反应谁也说不准<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 26713#       发表于 2025-2-19 21:03
+
+哎，没有项目四独轮车看好为难，我的乐子没有了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 26714#       发表于 2025-2-19 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468102&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-19 19:20</a>
+
+祥子都这样了睦还是一直无脑舔，真的比大喵更像人吗</blockquote>
+反正大家都比不过猫猫像人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
