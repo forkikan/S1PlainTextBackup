@@ -723,3 +723,19 @@ lyy爱素情人节后续
 
 初华拟人度只是占了描写少的光！第九集开始就不拟人了！
 
+
+*****
+
+####  天空塔书记官  
+##### 26709#       发表于 2025-2-19 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468642&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-19 20:33</a>
+叔叔自己一開始爛炒標題點火
+
+現在吃回旋鏢也很符合這部的劇情</blockquote>
+这不是回旋镖的问题，如果你觉得因为剧情去攻击声优和开盒up主也算是在商言商的话，表达不满可以，但要适可而止，不能把自己的情绪负担当成可以为所欲为的借口
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
