@@ -674,3 +674,32 @@ WSD真NM停B限也太**了吧
 
 不停B限怎么办，满屏补上西武了我们回家还是crychic可爱捏，mggm出来说话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 26704#       发表于 2025-2-19 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468547&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-19 20:23</a>
+
+不停B限怎么办，满屏补上西武了我们回家还是crychic可爱捏，mggm出来说话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后日本人一看以为都要求复活C团是吧
+
+*****
+
+####  天空塔书记官  
+##### 26705#       发表于 2025-2-19 20:33
+
+凡事都要讲究个度，这次闹太过了，还是冷静下吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 26706#       发表于 2025-2-19 20:33
+
+叔叔自己一開始爛炒標題點火
+
+現在吃回旋鏢也很符合這部的劇情
+
