@@ -80,3 +80,13 @@ bug，同时按两个方向概率斜着卡进去/出来
 steam买了但是不想电脑玩  牛子玩也不方便
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">于是决定手机摸鱼玩  效果还可以
 
+
+*****
+
+####  lscow  
+##### 134#       发表于 2025-2-19 10:24
+
+感谢大佬汉化和分享
+
+玩了差不多26小时,这游戏小众玩的人少不是没有道理的
+

@@ -15592,3 +15592,29 @@ z高达第十集里捷利德这个算不算MAV战？
 
 这些条件都要的啊，其实他的条件还挺苛刻的。
 
+
+*****
+
+####  王留美  
+##### 7110#       发表于 2025-2-19 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463255&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-19 09:57</a>
+
+高达男角色哪有出过frs的，要出都是shf吧</blockquote>
+frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过高达的男角色而已，出普露之前还没出过UC角色呢
+
+话说真要出那肯定是螺鸭猫鸡狼这种等级的打头阵
+
+
+*****
+
+####  纪寞  
+##### 7111#       发表于 2025-2-19 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463451&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-19 10:19</a>
+
+frs出男角色不奇怪，其他作品那边一大堆，只是现在没出过高达的男角色而已，出普露之前还没出过UC角色呢
+
+ ...</blockquote>
+我觉得至少也不会是这次公布，毕竟85部分的应该都没有什么鸭子本人出场，真要出frs趁这次先行剧场版早该公布了
+
