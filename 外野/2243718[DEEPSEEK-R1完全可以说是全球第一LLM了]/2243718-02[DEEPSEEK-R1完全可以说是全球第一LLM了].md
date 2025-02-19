@@ -5049,3 +5049,22 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 
 百度的2周ds免费原来是昨天到期，今天用了一下就给我断掉了，然后百度智能云的电话短信都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 1923#       发表于 2025-2-19 21:05
+
+硅基流动的api是暂时用不了了吗
+
+
+*****
+
+####  秦南心  
+##### 1924#       发表于 2025-2-19 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67468880&amp;ptid=2243718" target="_blank">qz66618 发表于 2025-2-19 21:05</a>
+
+硅基流动的api是暂时用不了了吗</blockquote>
+用的了啊，你是不是挂梯子导致连接不畅
+
