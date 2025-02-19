@@ -14717,3 +14717,32 @@ https://ngabbs.com/read.php?tid=43312314 ...</blockquote>
 
 而且mygo第三集看以前收藏的本子里，是没有mujica第七集这本的
 
+
+*****
+
+####  结衣小比取  
+##### 26508#       发表于 2025-2-19 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462140&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-19 02:04</a>
+
+素世来送黄瓜的袋子，和当初小睦用的袋子是一模一样的，这太诡异了吧。。。
+
+从场外因素看，导演采访时还说 ...</blockquote>
+要解释的话，如果Soyo记不清，可能是她问过爱音了，爱音看到巧克力袋子时声称是她喜欢的
+
+<img src="https://img.saraba1st.com/forum/202502/19/094700nkqz2zkikzkul8e2.jpg" referrerpolicy="no-referrer">
+
+<strong>OUONFSADS.jpg</strong> (106.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-19 09:47 上传
+
+
+*****
+
+####  Paaz  
+##### 26509#       发表于 2025-2-19 09:54
+
+有些人的臭味真的是溢出来的程度，一个昨天就没人回了的恶心人帖子还要到这楼里提故意传播
+

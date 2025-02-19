@@ -227,3 +227,20 @@ P.S. 这次快闪店内毫不意外地男女比小于1:9，2楼买周边的时�
 
 乐天xswl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 1021#       发表于 2025-2-19 09:48
+
+笑死我了。
+你虹搞的这个单ID多抽选系统也挺让人难做的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾特娜  
+##### 1022#       发表于 2025-2-19 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果被乐天搞成了多次抽选的全部被判违规抽不到，相当于把核心粉全筛掉了，剩下只抽一次的轻度粉才有机会抽到
+

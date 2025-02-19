@@ -600,3 +600,17 @@ DS自己的服务器根本承载不了实际需求啊
 他们算力不受限也会做的，算力又不是叠积木，大分布式系统会产生巨量算力损耗。没有好的infra，就是训个 ...</blockquote>
 但其他科研力量（就是学术界）长期受困于算力不足无法进入大模型的核心科研创新，他们给出了一条promising的学术道路，就能带来更大范围的科研创新尝试和成果，所以无关于ds自己的先进性，而是改变了生态的玩法
 
+
+*****
+
+####  overflowal  
+##### 66#         楼主| 发表于 2025-2-19 09:45
+
+ 本帖最后由 overflowal 于 2025-2-19 09:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67462976&amp;ptid=2246639" target="_blank">枯风瘦雪 发表于 2025-2-19 09:26</a>
+但其他科研力量（就是学术界）长期受困于算力不足无法进入大模型的核心科研创新，他们给出了一条promisin ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png">学术界依然没入场券，Deepseek就算用的资源再少，也是2000张H800的集群。学术界实验室能给你凑一台8卡H800的服务器都上天了。
+实际上只要涉及分布式系统，学术界基本上就相当乏力了，没办法的。去大学学分布式系统，教授跟你讲也是讲谷歌的论文
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

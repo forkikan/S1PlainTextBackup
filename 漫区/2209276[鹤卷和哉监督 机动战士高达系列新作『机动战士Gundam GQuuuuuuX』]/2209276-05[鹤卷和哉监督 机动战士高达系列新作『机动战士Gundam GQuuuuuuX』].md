@@ -15508,3 +15508,46 @@ z高达第十集里捷利德这个算不算MAV战？
 5款未公开能从2k4-3k6，感觉都不是杂兵机的价格</blockquote>
 3600HG一眼是绿叔叔的基凯罗加
 
+
+*****
+
+####  Gysumitka  
+##### 7101#       发表于 2025-2-19 09:47
+
+都排到e了应该不是绿叔叔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 总不能他是boss
+
+*****
+
+####  王留美  
+##### 7102#       发表于 2025-2-19 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463097&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-19 09:42</a>
+ 你还别说，妮娅安确实是鸭子的好球区 他从19岁到死前一直喜欢十六七岁深肤色温柔少女，场刊里修司在场的情 ...</blockquote>
+怕不是鸭子要出frs了
+
+*****
+
+####  王留美  
+##### 7103#       发表于 2025-2-19 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67463018&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-19 09:32</a>
+ 5款未公开能从2k4-3k6，感觉都不是杂兵机的价格</blockquote>
+那两个2420的感觉是红扎和绿扎
+
+
+*****
+
+####  0aleph37  
+##### 7104#       发表于 2025-2-19 09:54
+
+ 本帖最后由 0aleph37 于 2025-2-19 09:56 编辑 
+
+3k6如果不是什么boss的MA的话，难不成是全装GQX？
+
+*****
+
+####  纪寞  
+##### 7105#       发表于 2025-2-19 09:57
+
+高达男角色哪有出过frs的，要出都是shf吧
+
