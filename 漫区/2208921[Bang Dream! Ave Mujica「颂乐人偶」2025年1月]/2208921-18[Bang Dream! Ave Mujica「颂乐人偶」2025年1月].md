@@ -15278,3 +15278,38 @@ mygo倒是还好，背景的一潭死水引入活水才能活动起来，本来�
 奇异搞笑 ...</blockquote>
 洗樱花姨本质是为了切割鸡和狗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梅杜莎  
+##### 26564#       发表于 2025-2-19 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464087&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-19 11:24</a>
+
+c团这几个人没有进展倒是符合逻辑，最有行动力的soyo，但是无论她找谁都没用，灯直接不回她信息，多次找 ...</blockquote>
+soyo在狗1-7话，行动力有，但是不够魔怔，还顾及社交礼仪，如果是狗8那个状态，你高松灯不回信，直接堵公寓门口拉出来聊天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 26565#       发表于 2025-2-19 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464322&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-19 11:47</a>
+
+话说目前为止，我只发现一个日本人批评mujica整体剧情，表示和开播前的期待值相比，mujica的剧情构成太随意 ...</blockquote>
+这位日本英杰和国内很多人观感可以说非常接近了，国内也是从第四话开始明确表达不满的
+
+*****
+
+####  zhzij111  
+##### 26566#       发表于 2025-2-19 11:55
+
+ 本帖最后由 zhzij111 于 2025-2-19 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67464149&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-19 11:29</a>
+3话的时候还有热评觉得睦是本作林黛玉呢
+
+现在可能只有长相比较林黛玉……</blockquote>
+祥子4大舔狗卖狗这边纯拖颜值后腿的，母鸡卡初华和睦都是t0颜值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
