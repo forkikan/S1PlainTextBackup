@@ -1539,3 +1539,20 @@ wsd做完的时候压根没有中国市场这个概念 所以我说这个东西�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那wsd烂炒一年把祥子在⏰的人气炒起来了也没见到动画后有一丝一毫的想抬人气的想法，主角都这样糟蹋更别说主役都不是的配角了。
 
+
+*****
+
+####  JustW  
+##### 26778#       发表于 2025-2-20 03:37
+
+wsd很可能和前几集的大多数观众一样觉得只要播完第x集一切就会好起来的
+
+*****
+
+####  ArcadiaMartyr  
+##### 26779#       发表于 2025-2-20 03:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然其他人都不是人，但是喵梦这个最正常的人却干着最恶心的事，不是最恶心的人吗？别人可能是蠢，她是纯纯的坏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
