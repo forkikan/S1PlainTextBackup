@@ -3162,3 +3162,18 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 你忽略了初华的作用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 要不是初华在仙台车站大战中莫名其妙的跑出来一句"我不会让mujica解散的，有成员退出就意味着解散"，那大喵老师不干了祥子再拉个代打鼓手不就好了嘛，何必解散呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  capraeLinn  
+##### 26918#       发表于 2025-2-20 12:49
+
+最直接的散团节点酒店之战做成这个鬼样子，再叠上谔谔双重人格，散团的锅清晰不了一点
+
+*****
+
+####  adretyu67.  
+##### 26919#       发表于 2025-2-20 12:51
+
+睦妈我的观感是不太好，团建鉴赏自己主演的电视剧也稍微有点自恋了。
+
