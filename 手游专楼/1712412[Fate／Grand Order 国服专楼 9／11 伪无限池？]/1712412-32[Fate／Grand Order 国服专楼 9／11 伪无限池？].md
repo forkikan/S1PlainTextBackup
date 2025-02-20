@@ -55,3 +55,11 @@
 
 铃鹿，太公望，RBA 找奥伯龙，算是比较省羁绊的大法了。就是RBA也快10羁绊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47021#       发表于 2025-2-20 12:01
+
+暴击队，需要看发牌，自出杀狐，正好杀狐用得也相对少
+
