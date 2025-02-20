@@ -2751,3 +2751,111 @@ WSD： 這條街是我說了算還是祥子說了算？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 26883#       发表于 2025-2-20 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472593&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 11:17</a>
+問題是燈也沒演出她對迷狗有什麼執著呀
+
+如果皇叔不執著只能單推復興漢室</blockquote>
+所以我之前说过灯因为“孤独症候群”，会对外界的刺激反应迟钝甚至无视，而又因为第七集是CCC的主场，关于迷子的部分会被置后，所以并不能因此认为灯缺少对迷子的感情，还需要看看接下会不会有相关的回补再下结论<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 26884#       发表于 2025-2-20 11:27
+
+ 本帖最后由 syndrome2032 于 2025-2-20 11:29 编辑 
+
+我倒是觉得剧情里的狗团存续没那么悲观。只要鸡团还能拉起来或者还有必要拉起来，祥睦二人组还是得回鸡团。
+
+现在问题就是整这么多鸡毛后的观感是这鸡团烂了就烂了吧。
+
+但是场外大手那就是一个c团的幽灵在ring上方盘旋了，这个是无解的。
+
+*****
+
+####  南宮凝香  
+##### 26885#       发表于 2025-2-20 11:29
+
+迷狗這種情況古典小說有兩種解法：
+
+一種是主公剛不可奪志
+
+另一種就是隊伍中的莽夫出來整隊 （古城張飛）
+
+問題是第七話後這兩條路都走不通
+
+*****
+
+####  zhoujin8584  
+##### 26886#       发表于 2025-2-20 11:30
+
+还有就是制作组确实认为自己在写大女主，不管是正面的主pv、第一集开篇的定场诗，还是侧面的鸡团三路人
+
+<img src="https://img.saraba1st.com/forum/202502/20/113000th4zj4ajz6myisyc.png" referrerpolicy="no-referrer">
+
+<strong>25667017400221702.png</strong> (95.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/112835wc9gm5z88u5lxn9i.png" referrerpolicy="no-referrer">
+
+<strong>26309717400220922.png</strong> (153.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 11:28 上传
+
+
+*****
+
+####  z-hunter  
+##### 26887#       发表于 2025-2-20 11:32
+
+剧情里狗团当然没有问题啦，难道武士道真的敢在剧情里解散狗团吗。这不可能，卡都出了那么久了三次元乐队也开了那么多live了投入了那么多资源。
+
+除非武士道真的很讨厌立石凛要踢开她，但立石女士只是底边中的底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但C团这块乌云会在狗团头上多久，就看接下来的操作了，无论是手游剧情动画剧情，还是其他宣传。你C团是雨过天晴了，狗团倒是乌云密布
+
+所以最近的滑坡还是可以理解的
+
+*****
+
+####  syndrome2032  
+##### 26888#       发表于 2025-2-20 11:32
+
+大祥老师怎么可能不是鸡团的主心骨。
+
+问题不就是大象老师把鸡团带崩了吗。
+
+*****
+
+####  天空塔书记官  
+##### 26889#       发表于 2025-2-20 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472652&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-20 11:23</a>
+所以说不是说ccc名义上重组卖狗名义上解散，而是c团遗老话说开之后实际上就重新形成c团小团体，爱猫这两 ...</blockquote>
+但有一点事实是无法否认的，CCC未来注定不会有多少新的产出，而灯一直在作新的词，立希也在谱新的曲，其他人也一直在参加乐队的排练，这就是迷子存在和羁绊的证明，没有音乐的乐队就如同没有生命的死物，幽灵就只是幽灵
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  z-hunter  
+##### 26890#       发表于 2025-2-20 11:36
+
+大祥的最大问题还是这么多集了毫无成长，无论是白祥还是黑祥。特别是在二偶这种企划里，无论是代入的还是老父亲式的，对于观众都难有好感
+
+剩下6集会有大逆转么？还对制作组抱有信心？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
