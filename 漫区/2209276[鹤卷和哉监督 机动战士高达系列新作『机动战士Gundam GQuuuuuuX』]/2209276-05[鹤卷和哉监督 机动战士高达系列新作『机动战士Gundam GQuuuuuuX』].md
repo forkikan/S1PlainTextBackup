@@ -17411,3 +17411,65 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 这样对比最直观确实多了5分钟</blockquote>
 话说第一张图是哪一天的时间啊，能指个路吗？
 
+
+*****
+
+####  YU_JI  
+##### 7255#       发表于 2025-2-21 00:58
+
+<blockquote>纪寞 发表于 2025-2-21 00:39
+还打黑拳的话，下场该打 夏利尔 + 艾格萨贝 的组合了吧，先夏利尔对红高、艾格萨贝对玛秋的分开一对一，最 ...</blockquote>
+这俩也跑去打拳也太搞耍了
+
+*****
+
+####  王留美  
+##### 7256#       发表于 2025-2-21 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480633&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-21 00:58</a>
+
+这俩也跑去打拳也太搞耍了</blockquote>
+知道了，夏利安专用里克大魔+艾格萨贝专用扎古（
+
+*****
+
+####  岸浪白野  
+##### 7257#       发表于 2025-2-21 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480549&amp;ptid=2209276" target="_blank">???????? 发表于 2025-2-21 00:48</a>
+
+话说第一张图是哪一天的时间啊，能指个路吗？</blockquote>
+就翻了下自己那边的消息记录想起有个2月5号的图而已
+
+*****
+
+####  YU_JI  
+##### 7258#       发表于 2025-2-21 01:14
+
+<blockquote>王留美 发表于 2025-2-21 01:08
+知道了，夏利安专用里克大魔+艾格萨贝专用扎古（</blockquote>
+决赛圈直接和紫婆大基打拳算了（
+
+*****
+
+####  ????????  
+##### 7259#       发表于 2025-2-21 01:16
+
+<blockquote>岸浪白野 发表于 2025-2-21 01:11
+就翻了下自己那边的消息记录想起有个2月5号的图而已</blockquote>
+原来是这样，主要是21号的时间已经和22号后的一样了，可能是官方显示问题吧，估计就是5分钟左右，或者加的时长不会反应在影院的列表上(好像别的影院就是这样)
+
+*****
+
+####  王留美  
+##### 7260#       发表于 2025-2-21 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480464&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-21 00:37</a>
+
+但是反过来说，应该是会有面具男的吧，还【没有】没有面具男的高达正传作品吧 ...</blockquote>
+鸭子啊
+
+有鸭子哪里还需要别人
+
+ZZ和CCA好像都没面具男吧
+

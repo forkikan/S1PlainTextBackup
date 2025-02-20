@@ -1369,3 +1369,24 @@ QQ20250221-003932.jpg
 
 中文版这里没熊
 
+
+*****
+
+####  blackll7  
+##### 114#         楼主| 发表于 2025-2-21 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480588&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-21 00:53</a>
+中文版这里没熊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这个档是装ff overhual mod，可能有些不一样。顺便一提，门口要三个水晶的守卫如果反复对话实际上可以直接打了进去。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  blueelf  
+##### 115#       发表于 2025-2-21 01:07
+
+<blockquote>blackll7 发表于 2025-2-21 00:59
+这个档是装ff overhual mod，可能有些不一样。顺便一提，门口要三个水晶的守卫如果反复对话实际上可以直 ...</blockquote>
+找到地方了，这段爬瀑布的跳跃真精彩啊
+
