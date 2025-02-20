@@ -11320,3 +11320,267 @@ soyo长得真好看，
 
 查看全部评分
 
+
+*****
+
+####  南条一间  
+##### 27746#       发表于 2025-2-21 00:48
+
+大莫老师靠着假扮motis帮助睦头维系mujica才从人格消杀中幸存下来，但之前睦头在人格切换上并没有表现出主导地位，反而是大莫老师把睦头人格关了三个月，也是大莫老师允许睦头才能和祥子见面。
+
+所以睦头被关期间又是在什么情况下可以获得外界信息的？在睦头人格被大莫老师放出来限时返场ccc后，且mujica已死，大莫老师又是怎么顶的号？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  金钱与民主  
+##### 27747#       发表于 2025-2-21 00:48
+
+现在还有人关心AM的死活吗？组队、创作都学赤坂明一笔带过不说，TM连live都一场，简直乐队番之耻。
+
+*****
+
+####  厄神之息  
+##### 27748#       发表于 2025-2-21 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480509&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-2-21 00:42</a>
+
+这里我要说一下 看过默默和时间小偷的都知道，故事最后高潮的关键情节是时间管理者把全世界的时间停下来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是这么个伏笔回收法吗？这下细节神作了
+
+*****
+
+####  zhzij111  
+##### 27749#       发表于 2025-2-21 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480553&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-21 00:48</a>
+现在还有人关心AM的死活吗？组队、创作都学赤坂明一笔带过不说，TM连live都一场，简直乐队番之耻。 ...</blockquote>
+不要尬黑，莫提斯很关心am死活
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 27750#       发表于 2025-2-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480517&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-21 00:43</a>
+有两个前提，是观众视角前提，实际上根本无法成为剧内人物行动的逻辑。
+
+1. 不能同时组MYGO和CCC。正常来说 ...</blockquote>
+那海玲为了重组鸡团又不能和其他团相容的描写倾向是几个意思?睦和海玲这俩人该是一个世界观的吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ntrntr1  
+##### 27751#       发表于 2025-2-21 00:49
+
+ 本帖最后由 ntrntr1 于 2025-2-21 00:50 编辑 
+<blockquote>北条早苗 发表于 2025-2-21 00:44
+下一集搞不好牢莫发动写轮眼模仿睦头人一下子学会弹吉他了，但是被阴阳猫给点出来了不是自己的吉他 ...</blockquote>
+
+然后在阴阳猫和母鸡卡其他神人队友的鼓励和特训下觉醒了自己的吉他之魂
+
+最后用吉他进行对决，决胜出谁才是真正的木子米
+
+“放弃吧...你的吉他...不会唱歌🎤”
+
+“但我不会因此鲨了你...小睦...我们以后一起...一起...弹吉他吧..."
+
+非天才人偶莫提斯的成人之路！
+
+*****
+
+####  DeltaStriker  
+##### 27752#       发表于 2025-2-21 00:50
+
+AM的死活？现在来看就是5个人最后彻底发癫 不组队开live戴上假面就不能活下去的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  木板春香  
+##### 27753#       发表于 2025-2-21 00:50
+
+  莫提斯也成为了会弹吉他的人类了，额卖的多！
+
+*****
+
+####  cnlmaa  
+##### 27754#       发表于 2025-2-21 00:51
+
+这集有没有睦厨破防，想看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 27755#       发表于 2025-2-21 00:51
+
+说白了，墨大概率是睦原生的表演天赋的碎片。吉他睦一直想抹杀掉这些她继承自父母的天赋，但这源于内心是消灭不掉的。
+
+*****
+
+####  是谁的书画  
+##### 27756#       发表于 2025-2-21 00:52
+
+到现在还觉得有点混乱，只想说一句话…这番这的好傻逼啊，真的好傻逼啊我超<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 27757#       发表于 2025-2-21 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢掉脑子看确实很乐
+睦对祥子太重了
+
+*****
+
+####  winterase  
+##### 27758#       发表于 2025-2-21 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480521&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 00:43</a>
+
+该买定离手了
+
+吉他睦vs莫缇丝，你们知道吗?</blockquote>
+我支持墨提斯当话事人，爱笑的莫姐才是众望所归
+
+
+*****
+
+####  Lyzers  
+##### 27759#       发表于 2025-2-21 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一集就又告诉你，老莫在生存本能和写轮眼加持下，被海姐点通任督二脉成为超级吉他人，在意识空间和吉他睦对邦，拼尽全力无法战胜，在最后关头认识到什么叫**，对波对赢成为主人格
+
+*****
+
+####  kenqqex  
+##### 27760#       发表于 2025-2-21 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480567&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-21 00:50</a>
+
+AM的死活？现在来看就是5个人最后彻底发癫 不组队开live戴上假面就不能活下去的展开
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+我也觉得到最后肯定又要重新戴上面具了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 27761#       发表于 2025-2-21 00:55
+
+我看完第七话的感想是鸡团还有必要存在吗。
+
+第八话倒是起码给了2个人重组鸡团的动力
+
+umr：还是鸡团好。
+
+motis：没有鸡团我要死了。
+
+*****
+
+####  天空塔书记官  
+##### 27762#       发表于 2025-2-21 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480559&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-21 00:49</a>
+那海玲为了重组鸡团又不能和其他团相容的描写倾向是几个意思?睦和海玲这俩人该是一个世界观的吧？
+
+——  ...</blockquote>
+控制欲发作了，因为嫉妒想要把祥子和木头绑在自己身边，也算是为了彻底“杀死”CCC(可能有对立希的某种情感在），但这与她佣兵的身份其实并不冲突
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  liekong  
+##### 27763#       发表于 2025-2-21 00:56
+
+这集我真的从头笑到尾，把我上集一度“虽然看得时候很乐，但想到本可以做得更好”的轻度破防心态一下子又扳回来了，太开心了
+
+为什么会有人觉得mujica是个现实主义、逻辑缜密的作品，放空脑袋享受这狂到没边的剧情才是真的。
+
+对了，pico是神作，pico是神作，pico是神作<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 27764#       发表于 2025-2-21 00:56
+
+这话看完，大象老师堪称千斤顶。场内受委屈，场外还要被观众喷，就差六月飞雪了
+
+*****
+
+####  北条早苗  
+##### 27765#       发表于 2025-2-21 00:56
+
+还在纠结母鸡卡的前后联系的没有领悟到，这只是一篇克苏鲁安价，还有被古神亲吻的骰子，睦头就是无貌之神的化身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 27766#       发表于 2025-2-21 00:56
+
+ 一下子觉得每次别人想入坑我就去推荐PICO入坑的行为的有含金量了
+
+*****
+
+####  哈曼的YY  
+##### 27767#       发表于 2025-2-21 00:57
+
+等不及看蚁人大战替身使了
+
+<img src="https://img.saraba1st.com/forum/202502/21/005650b11854587t9fw494.png" referrerpolicy="no-referrer">
+
+<strong>Image_240564252209107.png</strong> (61.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:56 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/005659pndna3t01atr3qgg.png" referrerpolicy="no-referrer">
+
+<strong>Image_240566171409800.png</strong> (85.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:56 上传
+
+*****
+
+####  沉默的苍穹基  
+##### 27768#       发表于 2025-2-21 00:57
+
+没了mujica墨提斯就会死，没有大祥就没有mujica，墨提斯拒绝见大祥
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">所以墨提斯前几集是在自杀玩吗
+
+*****
+
+####  影伴光生  
+##### 27769#       发表于 2025-2-21 00:57
+
+前面几集莫女士似乎可以主导身体控制权，又是特地刺激吉他睦，CCC和解前还要经她允许放人，结果这一集被吊起来打，为啥要把要鲨且能鲨自己的人格叫回来呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 27770#       发表于 2025-2-21 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480478&amp;ptid=2208921" target="_blank">yakee 发表于 2025-2-21 00:39</a>
+
+海玲这次PUA莫老师成了怎么办？
+
+一边祥子带着初华拉着木子米，另一边大喵海玲扯着莫老师吗？
+
+快点端上来吧 ...</blockquote>
+先知初华都告诉你了，“人偶就是人偶，别太放肆，没什么用”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
