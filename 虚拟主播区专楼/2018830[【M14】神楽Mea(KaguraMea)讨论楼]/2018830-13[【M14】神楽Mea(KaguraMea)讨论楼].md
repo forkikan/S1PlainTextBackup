@@ -2424,3 +2424,16 @@ signater+鹰宫撸啊撸联动
 
 这剩下三兄弟是谁啊
 
+
+*****
+
+####  sino__unnko3  
+##### 18062#       发表于 2025-2-21 01:29
+
+ 本帖最后由 sino__unnko3 于 2025-2-21 01:32 编辑 
+
+也不是之前群友说的独食班子那几个
+
+大概没见过？但有个id稍微有点印象。
+验证了。你咩之前拿小号一起打过，那就是discord里经典拉了几个有空玩lol的来<img src="https://p.sda1.dev/22/f768a07d29a8fcb88659cd48c489bea9/image.jpg" referrerpolicy="no-referrer">
+

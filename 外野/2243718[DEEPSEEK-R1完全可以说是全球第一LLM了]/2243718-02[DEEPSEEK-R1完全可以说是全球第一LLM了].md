@@ -5290,3 +5290,14 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 火山的还行,自己用比硅基快多了
 [https://www.volcengine.com/exper ... QY5&amp;rc=9TUTSLVP](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=9TUTSLVP)
 
+
+*****
+
+####  神剑烧鸡  
+##### 1945#       发表于 2025-2-21 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好好好，受尽硅基折磨了
+
+用了漏油的，传火一哈
+[https://www.volcengine.com/exper ... QY5&amp;rc=SQAK6ZMF](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=SQAK6ZMF)
+
