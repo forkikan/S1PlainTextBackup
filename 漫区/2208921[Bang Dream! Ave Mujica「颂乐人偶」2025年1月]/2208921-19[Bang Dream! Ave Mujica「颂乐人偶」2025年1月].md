@@ -4773,3 +4773,13 @@ bgm能不能实现我们sc都没达到的2.83分</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小不小姨根本没所谓了，都下线三集什么都没所谓了
 
+
+*****
+
+####  安娜导函数  
+##### 27090#       发表于 2025-2-20 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476313&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-20 18:17</a>
+黄大叔锐评看不下去了😂😂</blockquote>
+看不下去应该是台词里的一句 黄大叔不就是官方派出来炒作的嘛
+
