@@ -2418,3 +2418,11 @@ b站字幕一如既往的烂
 +2
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这集感受就是没看剧透真是太好了
 
+
+*****
+
+####  姜饼人  
+##### 274#       发表于 2025-2-21 04:24
+
++2黑暗版hhw实锤了，这一集后半我以为在看偶像活动
+
