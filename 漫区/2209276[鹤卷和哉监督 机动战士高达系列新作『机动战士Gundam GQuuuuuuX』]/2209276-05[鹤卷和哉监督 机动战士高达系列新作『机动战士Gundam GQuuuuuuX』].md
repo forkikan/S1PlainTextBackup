@@ -16737,3 +16737,23 @@ EVA何尝也不是二女一男一边上学一边打使徒<img src="https://stati
 老八访谈也大谈FLCL，他那第三段歌词就是从FLCL第四集来的 ...</blockquote>
 明明是mamimi类型的角色，不是mamimi役
 
+
+*****
+
+####  岸浪白野  
+##### 7209#       发表于 2025-2-20 18:21
+
+役是一样的角色定位和是完全搞不懂该怎么形容这角色是不同的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 积木23ki| + 1|sodayo|
+
+查看全部评分
+
