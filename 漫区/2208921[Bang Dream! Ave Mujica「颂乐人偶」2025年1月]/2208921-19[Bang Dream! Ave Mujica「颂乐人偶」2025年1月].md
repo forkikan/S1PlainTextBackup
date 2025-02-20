@@ -9930,3 +9930,244 @@ madane是下次见还是再见啊？
 
 <img src="https://p.sda1.dev/22/876019953f0a8dc65ffb427e559d70c9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 27618#       发表于 2025-2-20 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479567&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-20 23:21</a>
+
+真不是我说啊，祥子看着被木子米屠刀处刑的大莫在自己旁边嗷嗷直叫，也不阻拦，就掉两粒小珍珠意思意思。 ...</blockquote>
+睦和mortis都同台登场了，这不表明实际上是睦的内心世界吗，那么现实情况肯定就是祥子只能看见睦自言自语罢了，在外界根本没法干涉，换算到内心世界里实际上也和呆坐无动于衷没啥区别
+
+*****
+
+####  厚乳果珍爽  
+##### 27619#       发表于 2025-2-20 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看预告，好像真有祥子跟灯和爱音见面的情节，还鞠躬了，估计是求着重组ccc吧（让睦回来）？
+
+*****
+
+####  firestorm5  
+##### 27620#       发表于 2025-2-20 23:48
+
+还是被现实逻辑限制住了，这可是音乐番片场，想治疗或者人格整合包饺子的唯一方法就是开live<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 27621#       发表于 2025-2-20 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479974&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 23:47</a>
+
+木头的最初人格应该还是接近无口睦的，“莫提斯”可能就是因为祥子才分裂出的第一个人格，为的是应付外部世 ...</blockquote>
+主要是作为睦的“半身”的祥关于过去睦性格的台词也是分裂的，所以很难评啊很难评
+
+*****
+
+####  yy19  
+##### 27622#       发表于 2025-2-20 23:49
+
+<blockquote>kyonkoism 发表于 2025-2-20 23:20
+笑死我</blockquote>
+其实就是个心态问题罢了。人是会变的也好，知人知面不知心也罢。镜花水月也好，千面人形也罢。——如果梦是如此之美好，那不醒就不醒吧。
+
+死亡妹妹会远远陪着遗忘姐姐的XD
+
+*****
+
+####  ape-apple  
+##### 27623#       发表于 2025-2-20 23:49
+
+madane就是一般的拜拜，可以有下次见的意思。撒由那拉是正式再见，也有告别的意思，所以crychic<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  雪霜  
+##### 27624#       发表于 2025-2-20 23:49
+
+第三集墨提斯刚登场一口吞了睦搞得像小圆第三集吃了麻美的那只怪一样，现在才说其实墨提斯才是被吃的那个，说明这又是个当初为了爆点而不顾人物关系的地方，把人物关系都搞反的
+
+*****
+
+####  厚乳果珍爽  
+##### 27625#       发表于 2025-2-20 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479987&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-20 23:48</a>
+
+睦和mortis都同台登场了，这不表明实际上是睦的内心世界吗，那么现实情况肯定就是祥子只能看见睦自言自语 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个人自言自语也已经很可怕了，祥子没反应才是不正常的。
+
+*****
+
+####  天空塔书记官  
+##### 27626#       发表于 2025-2-20 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479999&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-20 23:49</a>
+主要是作为睦的“半身”的祥关于过去睦性格的台词也是分裂的，所以很难评啊很难评 ...</blockquote>
+所以还得看看有没有关于两人童年的解明，起码我之前关于愚神的推论还没破产，大方向还是没错的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 27627#       发表于 2025-2-20 23:51
+
+多重人格这种病，去医院医生都没法立刻给你下结论，都是当焦虑症，ptsd，抑郁症先治疗的。
+
+睦这种天生会演戏的，在心理医生眼里是地狱难度了，很多演员都有精神问题，看医生完全治不好。
+
+
+*****
+
+####  厚乳果珍爽  
+##### 27628#       发表于 2025-2-20 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480007&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-20 23:49</a>
+
+madane就是一般的拜拜，可以有下次见的意思。撒由那拉是正式再见，也有告别的意思，所以crychic ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这照片是爽世拍的，她说madane是什么意思？她能有什么意思？
+
+*****
+
+####  Trout  
+##### 27629#       发表于 2025-2-20 23:52
+
+好久没看到外公和祥爹了，还会有戏份吗？其他人的矛盾都能解决，外公和祥爹168亿的矛盾也太尖锐了。想到一个能把外公和祥爹包进饺子，弱智到逆天的结局，写出来给大伙乐一乐
+故事最后mujica重组成功，举办了一场特别的假面音乐会。假面音乐会上，演员不带假面，观众带假面。祥子在结尾唱响新歌“思念妈妈”，台下两位观众突然破防，嘎嘎大哭，抱成一团。曲终人散，观众摘下面具。抱成一团的两人才发现。，原来一位是祥爹，一位是外公。音乐的力量消弭了168亿的矛盾，让对立的二人找回了失落的亲情！二人相视一笑，世纪大和解。END。来自: iPhone客户端
+
+*****
+
+####  thisisaspider  
+##### 27630#       发表于 2025-2-20 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479851&amp;ptid=2208921" target="_blank">陶矢 发表于 2025-2-20 23:37</a>
+
+演一个可以应付医生的睦就可以了，真有这一集设定的这么牛逼，睦妈一切行为都说的通了，管好吃喝上学就行 ...</blockquote>
+现实是只要没对生活造成影响，精神病永远不会确诊。医生也不会认为是一种病。尤其是多重人格大都会模拟主人格生活。本质也被认为一种创伤保护机制。
+
+这点实际上很现实。
+
+*****
+
+####  南宮凝香  
+##### 27631#       发表于 2025-2-20 23:52
+
+代入到睦媽
+
+女兒是個三歲就有千面的怪物
+
+但老公一點都看不出來
+
+這就是典型恐怖片
+
+我跟太太和解了
+
+*****
+
+####  ntrntr1  
+##### 27632#       发表于 2025-2-20 23:53
+
+说起来，初华和大喵办公室就一个楼的，海铃宁愿去顺便找鼓手，重组也不找主唱。。。
+
+祥子更是一心只想当木兹米的贤肋助，已经忘了自己还有个青梅竹马了
+
+初华：为什么。。。没有一个人找我。。。我真的是....AVE MUJICA的一员吗（等电话）<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 27633#       发表于 2025-2-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479713&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 23:28</a>
+这部分基本上全对了</blockquote>
+我觉得母鸡卡获得团魂的过程很可能是反过来的，由其他人解决自己的问题，然后带动小祥，因为其他四人比较显著的问题也可以在祥子身上看见一部分：
+喵梦不顾大家的意见揭下众人的面具，祥子其实也并没有在意其他队员的情况；
+海铃对于乐队的冲突一直都是回避和防御的状态，祥子实际上也在持续回避睦的状态不佳；
+初华一直隐瞒着对祥子的感情以及第二集后的一些行动，祥子也对除了睦以外的所有人隐瞒着自己的家庭状况；
+睦一直为了祥子的Mujica不解散逼迫着自己，祥子何尝不是为了维持乐队的稳定逼迫自己做很多事情呢？
+所以海玲这次重组母鸡卡绝对不会成，甚至还会因为她自己的动机不纯而重演第一只乐队的创伤。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|差不多会是这样…吧|
+
+查看全部评分
+
+*****
+
+####  北条早苗  
+##### 27634#       发表于 2025-2-20 23:53
+
+下一集大祥重建ccc已经不够劲爆了，这集的睦头人完全就是走错片场的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 27635#       发表于 2025-2-20 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480010&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 23:50</a>
+
+一个人自言自语也已经很可怕了，祥子没反应才是不正常的。</blockquote>
+祥子在现实世界里肯定不是没反应，但是她肯定不敢真的动手去干涉睦和mortis大战，只能偶尔说两句话而已（而且话也不敢多说），那么在内心世界的视角看来祥子就和一动不动的人偶没啥区别。哦原来这也是人偶<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 27636#       发表于 2025-2-20 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">能写一个天生演员却不能写一个能靠谱治精神病的医生，还得是我们邦多利世界观啊
+
+*****
+
+####  南宮凝香  
+##### 27637#       发表于 2025-2-20 23:55
+
+這集倒是解答了Why Not CCC 了
+
+MyGo 關係不好，
+
+可是MyGo 沒有精神分裂的精神病呀！
+
+*****
+
+####  天空塔书记官  
+##### 27638#       发表于 2025-2-20 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480052&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-20 23:54</a>
+能写一个天生演员却不能写一个能靠谱治精神病的医生，还得是我们邦多利世界观啊 ...</blockquote>
+之后说不定会有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 27639#       发表于 2025-2-20 23:57
+
+有一说一DID现实世界也是罕见，外加精神病哪怕抑郁焦虑之类最常见的病，其实治不好也很正常。。。。灯得的那个疑似ASD，整个自闭谱系都是天生且只能干预（指装的像个正常人）不能治疗一点的
+
+治不好精神病倒是挺正常的。。。
+
+*****
+
+####  是谁的书画  
+##### 27640#       发表于 2025-2-20 23:57
+
+只有一种感觉，大祥在逐步变成她最喜欢的人偶，而始作俑者是参与其中所有人的有意为之
+
+挺恐怖的有一说一。
+

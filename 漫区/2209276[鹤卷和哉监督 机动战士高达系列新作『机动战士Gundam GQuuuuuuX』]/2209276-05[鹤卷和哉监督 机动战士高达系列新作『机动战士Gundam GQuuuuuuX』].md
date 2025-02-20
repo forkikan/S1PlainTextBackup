@@ -17222,3 +17222,23 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 
 怎么感觉高达讲话比牢修有人味，真是牢鸭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 7239#       发表于 2025-2-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479806&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-20 23:35</a>
+
+还有一张扫不清楚</blockquote>
+哪张？
+
+*****
+
+####  岸浪白野  
+##### 7240#       发表于 2025-2-20 23:53
+
+ 本帖最后由 岸浪白野 于 2025-2-20 23:56 编辑 
+
+编 辑
+
