@@ -2428,3 +2428,139 @@ WSD： 這條街是我說了算還是祥子說了算？
 
 祥子说似了那肯定是没似<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 26855#       发表于 2025-2-20 10:57
+
+這季是不存在成長的
+
+大家都是主打一個退步
+
+*****
+
+####  非建政专用号  
+##### 26856#       发表于 2025-2-20 10:58
+
+客服小祥还说过软弱的我已经死了
+大莫老师：欠爱了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Skymoon  
+##### 26857#       发表于 2025-2-20 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472195&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 10:44</a>
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+但纵观mygo和mujica这二十集，祥子说的每一句话基本都会被回旋镖，很难让人产生信任啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 26858#       发表于 2025-2-20 10:59
+
+爱音没有闹你们组Crychic去吧，而是主动让位置递吉他把舞台交给Crychic，算成长吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 26859#       发表于 2025-2-20 11:01
+
+滑个坡，已知“我只想要睦回来——&gt;一个多月啥事没干，连去看睦一眼都没有”
+
+可得“ccc已经不在了——&gt;正在筹备ccc回归计划”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 26860#       发表于 2025-2-20 11:01
+
+ 本帖最后由 厚乳果珍爽 于 2025-2-20 11:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472287&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-20 10:52</a>
+
+白祥就是个美好的梦，梦碎了得前进
+
+黑祥是过激态，黑得忘记了亲友
+
+本来指望的是，黑祥被拷打再成长，结果这 ...</blockquote>
+音乐人偶-灰祥 融合怪兽 
+
+等级10星 攻击力3500 防御力0
+
+融合条件 音乐键盘手-白祥+音乐蒙面-Oblivionis
+
+此卡也可以将墓地里的魔法卡crychic和陷阱卡ave mujica除外从额外特殊召唤
+
+此卡特殊召唤的回合只能守备表示
+
+只要此卡在场上，场上所有卡效果无效。
+
+*****
+
+####  非建政专用号  
+##### 26861#       发表于 2025-2-20 11:01
+
+成长了，奶龙要是这次当场跑路说你们去组ccc，那大伙真可以顺驴下坡重组ccc了，现在在那喊mygo彩排还能维持一下正统性
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  syndrome2032  
+##### 26862#       发表于 2025-2-20 11:02
+
+我倒是觉得黑祥本质也是滤镜，不过是祥子自己看自己的滤镜。
+
+白祥认为自己选择了中登拆了ccc吃苦了成长了，告别了过去软弱的自己成了黑祥。
+
+结果被狗团ver春日影破防组鸡团。
+鸡团炸了后就浑浑噩噩过了一个月直到老登迈巴赫堵门。
+
+第七话看似是重置成出厂白祥，其实同样是ccc姨姥跑来堵门，黑祥碎了一地不就只能白祥了。
+
+*****
+
+####  syndrome2032  
+##### 26863#       发表于 2025-2-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472411&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-20 11:01</a>
+滑个坡，已知“我只想要睦回来——&gt;一个多月啥事没干，连去看睦一眼都没有”
+
+可得“ccc已经不在了——&gt;正在 ...</blockquote>
+其实一个月不看睦头是说得过去的。
+
+人摆起烂来是真会这样的。
+
+*****
+
+####  ArcadiaMartyr  
+##### 26864#       发表于 2025-2-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472428&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-20 11:02</a>
+我倒是觉得黑祥本质也是滤镜，不过是祥子自己看自己的滤镜。
+
+白祥认为自己选择了中登拆了ccc吃苦了成长了 ...</blockquote>
+是可以这么理解，我也说所以得看后续
+(不过这动画已经这么烂了，也就纯看乐子了，不报期望
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  z-hunter  
+##### 26865#       发表于 2025-2-20 11:05
+
+其实邦TV上C团5人是可以预见到的，毕竟上了TFT花了大价钱做广告。
+
+这广告你跟我说没有后续没有相关配合宣传只用一次，我作为资本家如果我的员工拿着这样的企划书给我，我扭头就扔垃圾桶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后续宣传肯定会有，这点倒是不用太滑坡
+
+不过在隔壁NGA的邦邦手游企划转楼（有几个第7话做得挺好的人在抱团取暖，我问了为什么TFT上的是C团，不是MYGOY也不是MUJICA
+
+回答是TFT只能上一个团，但为了宣传426的两团对邦，为了对邦增加人气再炒一波，所以选择了两个团都有人的C团唱春日影，以后不会再用
+
+这个答复就…………挺奇特的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也算是一个角度解释
+

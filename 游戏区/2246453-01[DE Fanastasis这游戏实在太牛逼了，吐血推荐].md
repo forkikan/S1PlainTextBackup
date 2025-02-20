@@ -1397,3 +1397,14 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 <img src="https://p.sda1.dev/22/9d4df4f71574aae800aafc1bcb3d3254/image.jpg" referrerpolicy="no-referrer">
 什么魔物猎人  什么双刀哥  我感觉我的路线跟你们不太一样......突出一个随缘乱走
 
+
+*****
+
+####  JamesDrapor  
+##### 114#       发表于 2025-2-20 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471379&amp;ptid=2246453" target="_blank">Viteeee 发表于 2025-2-20 09:15</a>
+
+玩了一小会确实挺有趣的，但游戏内置地图上没有标记有点遭不住。昨天看到一扇锁着的门想着再来看看，今天就 ...</blockquote>
+剧情必须的门都会自动进笔记，要是不准备卷全收集其实不用太在意hh 反正海岸小房子我是通关之后回来逛才找到的hh
+
