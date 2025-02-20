@@ -2426,3 +2426,13 @@ b站字幕一如既往的烂
 
 +2黑暗版hhw实锤了，这一集后半我以为在看偶像活动
 
+
+*****
+
+####  ぽんぽこ仮面  
+##### 275#       发表于 2025-2-21 05:23
+
+ 本帖最后由 ぽんぽこ仮面 于 2025-2-21 05:24 编辑 
+
++2，我就说母鸡卡是搞笑番吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
