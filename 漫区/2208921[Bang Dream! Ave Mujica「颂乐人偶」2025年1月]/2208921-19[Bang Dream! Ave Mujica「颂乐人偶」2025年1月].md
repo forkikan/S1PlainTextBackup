@@ -5041,3 +5041,30 @@ lsl全责（不是
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  南宮凝香  
+##### 27115#       发表于 2025-2-20 21:52
+
+2.5 條打了一年復活賽，
+
+到作品完結那刻還有人覺得能打贏
+
+根本上是由Soyo 組成的讀者
+
+*****
+
+####  6030sylar  
+##### 27116#       发表于 2025-2-20 21:56
+
+<img src="https://img.saraba1st.com/forum/202502/20/215552urznujmj8zu46sln.png" referrerpolicy="no-referrer">
+
+<strong>FJP84(T[2J@2E$D}_0WHD%Y.png</strong> (74.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 21:55 上传
+
+巨大猫猫
+
