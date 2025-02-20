@@ -4973,3 +4973,71 @@ lsl全责（不是
 
 谢谢你 爱音
 
+
+*****
+
+####  Qing_Qi_2.0  
+##### 27109#       发表于 2025-2-20 21:36
+
+破防了，真破防了。看动画片十年第一次有这样的感觉，并不是嗷的一声就疯了。而是一种淡淡的悲伤。平时也想不起来mujica翻车的事，但偶尔因为什么鸡毛蒜皮事就会唤起我这段记忆，然后就是三分的悲伤。不是十分的悲伤，就是三分的悲伤，是在哔哩哔哩弹幕网只能打三分的悲伤。 
+
+但我一点也不后悔，从来没有想过要是没看过mygo-mujica就好了。因为那段每周等更新吃假药的时光是那么的快乐。看完最新一集后在个大社区中扫荡的时光是那么快乐。做没营养二创的时光是那么快乐。不会忘，我永远都不会忘。 
+
+对，我破防了。看个B动画片看的受伤。有人说这不健康。操您妈的，这就是老子的生活方式，让乐子人笑去吧。受伤是爱的证明，死亡是活着的证明。伤口碎裂，伤口愈合，最后变成一块淡淡的疤痕。我还会往前走！我还会往前走！我没钱买车，就是骑共享单车也要往前走！
+
+*****
+
+####  my707776310  
+##### 27110#       发表于 2025-2-20 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐的操作,学吧,学无止境
+
+
+*****
+
+####  adretyu67.  
+##### 27111#       发表于 2025-2-20 21:40
+
+差不多该从来没有在mygo开心过了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 27112#       发表于 2025-2-20 21:43
+
+ 本帖最后由 huxiaopao163 于 2025-2-20 21:44 编辑 
+
+唉，在播之前的最后一个小时里，我反而能静下心来，去做一下平时不能静下心来做的事
+
+比如去审一篇几乎没有图，全是公式，完全不考虑方便读者理解的文章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要是mujica这集不好看，就把这文章毙了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 27113#       发表于 2025-2-20 21:43
+
+<img src="https://img.saraba1st.com/forum/202502/20/214256r2x62zu8to5s1qx1.png" referrerpolicy="no-referrer">
+
+<strong>A4WVC6Y0UVQ`}E)GFADFG5I.png</strong> (83.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 21:42 上传
+
+弄弄不张嘴真好看
+
+*****
+
+####  第贰个十年  
+##### 27114#       发表于 2025-2-20 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477550&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-20 21:11</a>
+其实以前也有，咒回我就见过😂</blockquote>
+我还是第一次听说这么魔怔的事，我服了
+我再也不黑屁咒术德不配位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+能养出这种魔怔粉丝它是真有实力呀我看
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
