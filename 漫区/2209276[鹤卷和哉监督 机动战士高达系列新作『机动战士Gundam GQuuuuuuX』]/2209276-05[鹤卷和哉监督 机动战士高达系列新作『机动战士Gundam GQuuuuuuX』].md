@@ -16683,3 +16683,33 @@ EVA何尝也不是二女一男一边上学一边打使徒<img src="https://stati
 
 看懂这个就不会有什么厨豚大战了，谜底写在谜面上好吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 7204#       发表于 2025-2-20 17:59
+
+我现在对片子本身好像已经很无所谓了，就是谁能给我刚刚代孙这迷惑的卖胶法和什么时候主角机HG的国内现货价能下来
+
+*****
+
+####  0aleph37  
+##### 7205#       发表于 2025-2-20 18:03
+
+不是飞跃巅峰3吗
+
+
+*****
+
+####  灵魂收割机  
+##### 7206#       发表于 2025-2-20 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476125&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-20 17:53</a>
+
+如果FLCL是《特别的她》，那GQUX就是《特别的他》。
+
+这两部动画剧情简介格式都tm是一样的，
+
+男主角直太和女 ...</blockquote>
+结局夏亚跑了，修司追着夏亚也跑了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
