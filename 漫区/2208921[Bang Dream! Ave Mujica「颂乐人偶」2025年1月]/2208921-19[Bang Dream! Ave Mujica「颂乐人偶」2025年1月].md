@@ -3698,3 +3698,35 @@ WSD： 結束了？！！
 
 当然因为这个思路本身就很抽象。即使知道几个主创尤其绫奈可以说是最大遗老，也很难想象写了半天就是为了无限抬高Crychic地位，看个乐子就好。
 
+
+*****
+
+####  与太郎  
+##### 26968#       发表于 2025-2-20 16:21
+
+[https://note.com/crow_o/n/n1f689a1e4c0f](https://note.com/crow_o/n/n1f689a1e4c0f)
+[https://note.com/crow_o/n/n81fee4607a8e](https://note.com/crow_o/n/n81fee4607a8e)
+
+↑「人間になりたい」这个误会是为了让祥子和睦不直接和解，为C团合奏成人歌Ⅱ提供机会，从而顺水推舟演奏春日影
+
+
+*****
+
+####  秋月孝三  
+##### 26969#       发表于 2025-2-20 16:25
+
+黄大叔真的陨落了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 26970#       发表于 2025-2-20 16:26
+
+被wsd的大手抓去谁也找不到的地下室了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
