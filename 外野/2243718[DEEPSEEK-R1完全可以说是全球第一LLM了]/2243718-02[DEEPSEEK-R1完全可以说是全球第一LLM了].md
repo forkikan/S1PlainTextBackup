@@ -5214,3 +5214,15 @@ gork3网页端可以免费用了，思考和网页检索好像是不能一起点
 但是说ds算紫微斗数和八字都有一定概率瞎编，也可能是梅花易数瞎编也不容易分辨（ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算卦不都是瞎编吗，专业对口
 
+
+*****
+
+####  浅井惠  
+##### 1938#       发表于 2025-2-20 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67467768&amp;ptid=2243718" target="_blank">遗尿 发表于 2025-2-19 18:38</a>
+DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目前用淘宝买的DEEPL pro API账户，但是 ...</blockquote>
+和1921L意见相同，另外github搜deeplx有惊喜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

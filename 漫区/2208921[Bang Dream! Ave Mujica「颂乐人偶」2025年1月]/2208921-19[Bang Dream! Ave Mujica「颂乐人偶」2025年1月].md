@@ -3673,3 +3673,28 @@ WSD： 結束了？！！
 
 认为祥子的「人間になりたい」是对灯的误解，而且是故意这么写好把高潮放在春日影，之后顺势进行场外宣传
 
+
+*****
+
+####  ape-apple  
+##### 26966#       发表于 2025-2-20 16:08
+
+前面你楼还一直说我给wsd辩解<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实际上wsd配日本人也是什么锅配什么盖，本土观众看什么都是跟着官方走，除非实在分歧太大来自: iPhone客户端
+
+
+*****
+
+####  老贝  
+##### 26967#       发表于 2025-2-20 16:15
+
+ 本帖最后由 老贝 于 2025-2-20 16:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474816&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-20 15:39</a>
+
+但祥子是怎么由白转黑的？家庭豹变这种剧情不是编剧自己设计的？现在还要在家庭豹变这种源头明显不会被解 ...</blockquote>
+
+如果你要按这个Mujica前6集是对黑祥的所作所为进行报复的想法思考下去的话，那觉得在父亲已经无法振作的现状下，没有精力再陪Crychic玩乐队的祥子本身也属于要被修正的对象之一，只是没有黑祥那么严重。
+
+毕竟核心就是对一切做出破坏与切割Crychic人员的一次清算。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然因为这个思路本身就很抽象。即使知道几个主创尤其绫奈可以说是最大遗老，也很难想象写了半天就是为了无限抬高Crychic地位，看个乐子就好。
+
