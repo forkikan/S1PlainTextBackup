@@ -3805,3 +3805,43 @@ WSD： 結束了？！！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  阿兹尔  
+##### 26979#       发表于 2025-2-20 16:51
+
+喂喂喂，是医生吗？是的…是的…，黄大叔一直没醒……
+
+*****
+
+####  HereLink  
+##### 26980#       发表于 2025-2-20 16:51
+
+母鸡卡吧，母鸡卡内鬼吧，母鸡卡内鬼爆料吧，反母鸡卡吧，反反母鸡卡吧。。。。
+
+
+*****
+
+####  ads147147  
+##### 26981#       发表于 2025-2-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67475494&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 16:44</a>
+這證明之前的大量劇透爛炒就是大B在背後
+
+這周大B一戰略收縮就全消失了</blockquote>
+奉旨泄露炒热度这事，二游能有转换率卖卡，一个随便找个什么站都能看的动画有什么意义。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 26982#       发表于 2025-2-20 16:57
+
+路边消息，TFT春日影两百万了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
