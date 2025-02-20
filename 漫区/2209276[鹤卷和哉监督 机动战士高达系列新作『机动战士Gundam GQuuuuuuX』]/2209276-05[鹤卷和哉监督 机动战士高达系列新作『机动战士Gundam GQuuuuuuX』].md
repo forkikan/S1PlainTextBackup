@@ -16795,3 +16795,55 @@ mamimi还把主角当代餐，这剧情放今天怕不是要炸了（
 日常未必还存在，麻球的人物驱动力不就是打破日常吗</blockquote>
 现在看起来比较接近0080阿尔那种不懂自己平静生活多珍贵的类型，结尾也许会有获得成长后认真地填上进路调查表的画面
 
+
+*****
+
+####  0aleph37  
+##### 7214#       发表于 2025-2-20 18:47
+
+那就有点太普通了（而且说教意味好强）
+
+再者与黑泽访谈里说过的欲望的漩涡，混沌的质量也对应不上吧
+
+*****
+
+####  刺客ares  
+##### 7215#       发表于 2025-2-20 18:49
+
+律师听完剧情大纲是不是一眼看穿，你这就是FLCL啊，当我没看过？这写的第三段歌词像素级复刻，棒球砸头，天空下的飞机云，直太还真喜欢晴子
+
+<img src="https://img.saraba1st.com/forum/202502/20/184615jihz15aznx52anr1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0442.jpeg</strong> (184.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-20 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/184615s0o2o9qoa7q9kqc9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0449.jpeg</strong> (193.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-20 18:46 上传
+
+*****
+
+####  王留美  
+##### 7216#       发表于 2025-2-20 18:50
+
+作为another Z，你们把麻球看作卡缪的对位就好了
+
+就是不知道夏利安是不是和库瓦托罗一样不靠谱了
+
+
+*****
+
+####  Gysumitka  
+##### 7217#       发表于 2025-2-20 18:50
+
+明显对既定未来持否定态度吧，应该不会那么现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
