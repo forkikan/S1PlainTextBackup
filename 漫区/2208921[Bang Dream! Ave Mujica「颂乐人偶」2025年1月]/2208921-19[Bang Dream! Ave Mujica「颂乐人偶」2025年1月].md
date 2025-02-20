@@ -2029,3 +2029,35 @@ mygo最后几集祥子是大女主 ? 她不还朝睦哈气吗 ? 招募喵梦的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qlipho  
+##### 26821#       发表于 2025-2-20 09:50
+
+没什么意义，编剧需要大猫炸团，祥子看人的能力不重要了。mygo里都知道找熟人真希推荐鼓手，拉到海玲了按正常逻辑就该让海玲推荐鼓手
+
+
+*****
+
+####  金钱与民主  
+##### 26822#       发表于 2025-2-20 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471604&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-20 09:41</a>
+
+大祥老师组鸡团我觉得最大的问题还是忽视团友感情需求。
+
+要是真有扣扣空间被四抠一了没准还能多活会 ...</blockquote>
+这是当初13话就展示得很明显的玩意，很多人都基于此推测出Mujica会发生什么样的危机，然而几乎谁也没想到喵梦当场开自己和队友的盒，更没想到会有Mortis。
+
+*****
+
+####  天空塔书记官  
+##### 26823#       发表于 2025-2-20 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471666&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-2-20 09:50</a>
+没什么意义，编剧需要大猫炸团，祥子看人的能力不重要了。mygo里都知道找熟人真希推荐鼓手，拉到海玲了按正 ...</blockquote>
+那海铃只会推荐立希，bang第二季的故事可就真要重演了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

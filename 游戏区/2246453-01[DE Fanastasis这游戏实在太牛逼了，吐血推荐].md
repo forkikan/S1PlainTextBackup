@@ -1354,3 +1354,24 @@ b站视频评论区下说最后可以选异性恋那是怎么回事<img src="htt
 
 玩了一小会确实挺有趣的，但游戏内置地图上没有标记有点遭不住。昨天看到一扇锁着的门想着再来看看，今天就死活想不起来在哪张地图里了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发条之心  
+##### 110#       发表于 2025-2-20 09:52
+
+<blockquote>神秘未知 发表于 2025-2-20 04:12
+问一下，异种族地下墓地发现炼金术师尸体的地方有个雕像调查有异样，但是不知道怎么触发，是不是得等后续才 ...</blockquote>
+严格意义上不是后续路径，如果你开局选了另一条路线然后反向穿越地下墓地，这个地方就能打开了
+
+
+*****
+
+####  blackll7  
+##### 111#       发表于 2025-2-20 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471379&amp;ptid=2246453" target="_blank">Viteeee 发表于 2025-2-20 09:15</a>
+
+玩了一小会确实挺有趣的，但游戏内置地图上没有标记有点遭不住。昨天看到一扇锁着的门想着再来看看，今天就 ...</blockquote>
+有，调查以后会进入笔记，你开笔记能看到
+
