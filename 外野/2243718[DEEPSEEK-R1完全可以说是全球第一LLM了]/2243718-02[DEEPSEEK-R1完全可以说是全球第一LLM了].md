@@ -5262,3 +5262,31 @@ https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSAS
 已用，传火
 [https://www.volcengine.com/exper ... QY5&amp;rc=CZV2L3T4](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=CZV2L3T4)
 
+
+*****
+
+####  古畑任三郎2015  
+##### 1942#       发表于 2025-2-20 23:27
+
+我也来试试
+
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=PISKJO6K
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  icewind_yx  
+##### 1943#       发表于 2025-2-20 23:29
+
+用硅基流动的api写代码，cline效率极低，换火山云的终于爽起来了。飞一样的感觉。
+
+
+*****
+
+####  →熙←  
+##### 1944#       发表于 2025-2-20 23:31
+
+火山的还行,自己用比硅基快多了
+[https://www.volcengine.com/exper ... QY5&amp;rc=9TUTSLVP](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=9TUTSLVP)
+

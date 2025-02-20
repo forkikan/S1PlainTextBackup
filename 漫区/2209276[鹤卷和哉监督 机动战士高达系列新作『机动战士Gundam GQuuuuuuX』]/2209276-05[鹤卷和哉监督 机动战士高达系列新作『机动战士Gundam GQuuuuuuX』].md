@@ -17206,3 +17206,19 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 
 五分钟大概能讲些啥，感觉也就接着稍微讲一点后续吧？
 
+
+*****
+
+####  0aleph37  
+##### 7237#       发表于 2025-2-20 23:35
+
+<blockquote>“麻球？刚才早退了。最近好像很有干劲，找到想去的方向了吗？”(学校同学</blockquote><blockquote>“哈！ ？民间人士偶然乘坐高达取得惊人战果？……这种漫画般的展开，怎么可能！”（西顿号船员）</blockquote>
+还有一张扫不清楚
+
+*****
+
+####  虛無迴廊  
+##### 7238#       发表于 2025-2-20 23:37
+
+怎么感觉高达讲话比牢修有人味，真是牢鸭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

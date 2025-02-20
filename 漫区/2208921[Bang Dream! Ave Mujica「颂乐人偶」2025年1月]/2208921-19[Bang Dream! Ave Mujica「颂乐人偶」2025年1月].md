@@ -9014,3 +9014,597 @@ mo感觉有点像当年因为吉他其他人格都似了的时候躲起来的一
 
 其实也可以勉强差不多能说得过去？
 
+
+*****
+
+####  wwwttth  
+##### 27537#       发表于 2025-2-20 23:26
+
+完了，我看的那个舅舅又全对了，这片真是致敬海猫，包括在动画烂完这一点上。
+
+*****
+
+####  MuramasaSP  
+##### 27538#       发表于 2025-2-20 23:27
+
+<img src="https://img.saraba1st.com/forum/202502/20/232644g18w8py9dg89uu46.jpg" referrerpolicy="no-referrer">
+
+<strong>1000044856.jpg</strong> (186.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:26 上传
+
+有无坛友知道初华这里是在干啥。
+
+*****
+
+####  废马尔  
+##### 27539#       发表于 2025-2-20 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479569&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-20 23:21</a>
+
+说起这个才突然发觉海铃这话在其他乐队说的话语都证明，当初母鸡卡是发工资的或者说至少吃喝住行很方便， ...</blockquote>
+海指导不是说了他只要一支配队友队友就润了吗？所以她不敢指导
+
+*****
+
+####  aptx8285144  
+##### 27540#       发表于 2025-2-20 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479652&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-20 23:25</a>
+
+不不不，你去看战吧，一个帖子说这集可以说明编剧让假药破产了吧。底下全是喷ta看番不认真，随意滑坡，反 ...</blockquote>
+战吧这些人真神奇，有两个基本不是内鬼而是神人了（后期要是再告诉我是内鬼，那独角兽这些人要是还能在业界写脚本只能说业界太烂了），还能造假药也是绝了
+
+*****
+
+####  Onelooker  
+##### 27541#       发表于 2025-2-20 23:27
+
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了
+
+我还在幻想
+
+幻想下一集惊天逆转，伏笔回收，幻想多重人格只是一场梦，幻想用9.9分的木柜子动画狠狠给看独自升级的朋友上嘴脸
+
+*****
+
+####  爱莉希雅  
+##### 27542#       发表于 2025-2-20 23:27
+
+白祥和木子米都该被大莫老师塞小黑屋锁死，不do一万年不能出来
+
+*****
+
+####  Cortana  
+##### 27543#       发表于 2025-2-20 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479455&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-20 23:14</a>
+
+之前看到个回答说甚么mygo系的🔥是因为z世代广泛存在阿斯伯格多重人格玉玉症等人群blabla。只能说这么几集 ...</blockquote>
+mujica描写分离性身份识别障碍确实挺写实的，小睦发病时的幻视幻听、创伤闪回、现实解离、木僵状态都是很真实且细致的描写，这一集的“多重人格”也是，分裂出现的这一人格本身就是原有人格的一种需求，因此完全可能出现多个“人格”，但它们不是真正的人，而是患者的不同需求、不同侧面。所以出现多重“人格”反而是比较普遍的情况。
+
+*****
+
+####  zhzij111  
+##### 27544#       发表于 2025-2-20 23:28
+
+ 本帖最后由 zhzij111 于 2025-2-20 23:29 编辑 
+
+喵梦现在真是唯一指定正常人了吧，她的人设好歹也就止步于脑子不太好使的坏逼，放在少女乐队番可能很坏了，但放在我们精神病搞笑番母鸡卡也就是个小杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 27545#       发表于 2025-2-20 23:28
+
+<blockquote>厄神之息 发表于 2025-2-20 23:21
+真不是我说啊，祥子看着被木子米屠刀处刑的大莫在自己旁边嗷嗷直叫，也不阻拦，就掉两粒小珍珠意思意思。 ...</blockquote>
+我覺得木莫大戰是只在腦內， 外部看不到
+
+不然祥子的似人度也要提高
+
+*****
+
+####  huxiaopao163  
+##### 27546#       发表于 2025-2-20 23:28
+
+现在存在一个小睦 vs mortis，重建C团 vs 重建A团的斗争
+
+*****
+
+####  gaayas  
+##### 27547#       发表于 2025-2-20 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479697&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-20 23:27</a>
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了</blockquote>
+那你是真该去看看病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 27548#       发表于 2025-2-20 23:28
+
+ 本帖最后由 天空塔书记官 于 2025-2-20 23:31 编辑 
+<blockquote>海玲的判词是“恐惧”，我之前提到过恐惧的三重含义，即自我对外界的恐惧、自我对自我的恐惧、外界对自我的恐惧，而海玲可能在三方面都有对应
+
+现在我们来设想一下海玲初次乐队活动的可能经过，因为成员个人的某种原因，乐队内部出现了矛盾和冲突，海玲不想乐队解散所以选择深入干涉乐队的组织活动，但导致了乐队的其他人选择远离自己，最终分道扬镳
+
+对于乐队解散的恐惧是自我对外界的恐惧，也是海玲选择成为没有固定乐队的佣兵贝斯手的主要原因；因为害怕自己的过度干涉导致乐队再次解散是自我对自我的恐惧，所以海玲对乐队事务的参与程度通常都是点到为止；而因为海玲的某种个人特质导致乐队的其他成员不敢对她过分亲近则是外界对自我的恐惧，这是海玲所谓“恐惧”的本来面目</blockquote>
+这部分基本上全对了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+<blockquote>按照从音乐入手解析人物的角度，贝斯与鼓同为支撑乐曲结构的基底，应当是绿叶的定位，再加上“贝斯笑话”再怎么也很难和玫瑰花联系起来，但海玲则可能不一样，她的“绝对理性”和若即若离的社交距离保持表现出了某种自我抑制的倾向，尤其在职业装的选择上，海玲刻意地想要体现出专业化的形象，而不是突出自我的风格，与立希一样对外表现是对自我的否定，但本质却天差地别。立希是向内的消耗，强外在弱自我，而海玲则是在阻止自我向外扩张，强自我弱外在，虽然看似“冰冷”，但实际上作为某种自我防卫机制存在的“距离感控制”非常脆弱，就和ED中的玻璃罩一样易碎，但暴露在自然中的温室花朵真有那么脆弱无害吗
+
+花朵意味着视觉的焦点，而绿叶则是陪衬，而本该是绿叶的贝斯却变成了玫瑰，这意味整体画面观感的失衡，海玲可能本质是一个有强烈甚至可以说极端个人风格表现的演奏者，这也许就是海玲无法融入甚至会破坏乐队的真相
+
+所以“聪慧”的海玲决定用距离感来约束自己，以抑制自我的方式来配合他人，这是一种单方面的避让。但“聪慧”也有可能意味着“自作聪明”，这种避让并不包括对别人的认同与包容，本质上还是一种封闭自我的表现
+
+海玲与立希看似相同却又完全不同，在某种意义上又是绝对的互补，蔷薇的荆棘无法伤害大地，而植物的根系又能缝合大地的裂隙，海玲有时候能对立希做出稍微越界的举动就是因为立希可能是能接受自己并不怕自己个性伤害的那个人，海玲憧憬那样坚实的外在，但又克制着自己的行为，谨慎地维持自己与立希微妙的距离感
+
+但其他人呢，她们可以接受吗，也许没有A团的话，最适合海玲的乐队会是RAS，能够彻底地释放自我，但说到底单方面的避让还是没法演奏出融入集体的音符
+
+然而现在玻璃屏障已经岌岌可危，“难道我不值得信任吗？”失去了距离感的约束，不断膨胀的自我如同蔓生的荆棘，缠绕、捆绑、勒紧、穿刺，“玫瑰需以鲜血浇灌”，在玻璃容器中隔绝了许久的植物对鲜血的渴求只会更加强烈，用圣杯倾倒圣血，既然早就被打上了背叛的标记，那潜伏许久的蛰针又将向何处刺</blockquote>
+这部分基本上也对了，海铃的自我为中心和祥子的“高高再上”是差不多的东西，傲慢，海铃对自我价值的追求和实现是独立于其他人的，换言之，就是不在乎，所以海铃一定会给其他人造成伤害，估计之后会有相应的回旋镖打回来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 27549#       发表于 2025-2-20 23:29
+
+这么说来当时那张祥子抱着四个人偶的图，原本大家都以为祥子大女主组起了队，现在看来祥子才是人偶，被另外四个人用各种方式逼着重组mujica<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+mygo播完天天有观众问mygo团魂在哪，现在我们搞一个“史上最狂”乐队好让观众知道mygo原来不是没有团魂，而是没有对比<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 27550#       发表于 2025-2-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479671&amp;ptid=2208921" target="_blank">海洋队手下mayo 发表于 2025-2-20 23:26</a>
+
+爱喝这种粉也挺符合海玲效率厨人设的，不过这集看海玲确实对购物美容都有兴趣，也算小小增加点女子力了（有 ...</blockquote>
+喝粉纯纯是为了对抗家族节约宝基因吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 27551#       发表于 2025-2-20 23:29
+
+聊天记录舅可信度up up
+
+至少目前来看海玲和睦的立场都没说错，而且莫篇确实还没完结
+
+按照那个说法下集完结莫篇然后开始丰川家族戏
+
+有得乐了
+
+*****
+
+####  Cortana  
+##### 27552#       发表于 2025-2-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479560&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-20 23:20</a>
+
+这海玲也沾点精神分裂的样子我看，就被立希嘴了一句，一个片叶不沾身的人立刻就积极主动起来了，堪比大睦老 ...</blockquote>
+嗯……我感觉海玲是控制欲/权力欲因嫉妒而死灰复燃。
+
+*****
+
+####  安娜导函数  
+##### 27553#       发表于 2025-2-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479063&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-20 22:54</a>
+
+mujica重组的理由和存在的必要性随着集数增加一次次被挑战
+
+mujica存在的意义是这个作品的故事最终成立的底 ...</blockquote>
+mujica是邦多利世界观的阿卡姆疯人院，负责把这几个神人关起来锁死，这样想是不是就合理多了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rexzhanghao| + 1|就是这个味|
+
+查看全部评分
+
+*****
+
+####  borrowface  
+##### 27554#       发表于 2025-2-20 23:30
+
+倒不如说现在开始造假药才有市场，先前的演戏假药在这一集才真的有意义，毕竟结尾跟海玲的motis是不是睦头人干掉motis人格后演的这一疑点在这一集有着比较明确的能去讨论的地方
+
+*****
+
+####  aptx8285144  
+##### 27555#       发表于 2025-2-20 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479697&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-20 23:27</a>
+
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了</blockquote>
+假药破产一大半才是好事，早点清醒过来证明这是搞笑动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 27556#       发表于 2025-2-20 23:30
+
+<img src="https://img.saraba1st.com/forum/202502/20/233032yuadliaksjdjvvji.jpg" referrerpolicy="no-referrer">
+
+<strong>1)2Z%L8KT`[8E{RB1U}XYA4_tmb.jpg</strong> (93.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/233037udhd66jmmhkmdmrh.jpg" referrerpolicy="no-referrer">
+
+<strong>B]Y$)QROFXF2]ZXD}JDRXBF_tmb.jpg</strong> (83.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:30 上传
+
+变成古代政治剧了啊我看
+
+保莫派 vs 保睦派 你们知道吗
+
+*****
+
+####  刑部姬真可爱  
+##### 27557#       发表于 2025-2-20 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479683&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-20 23:27</a>
+
+有无坛友知道初华这里是在干啥。</blockquote>
+可能是过去在当偶像之前在兼职打工之类的？
+
+*****
+
+####  呆毛王赛高  
+##### 27558#       发表于 2025-2-20 23:31
+
+<img src="https://img.saraba1st.com/forum/202502/20/233104aq8zlf15hxgl1xrz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250220_233004.jpg</strong> (76.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:31 上传
+
+*****
+
+####  Renes  
+##### 27559#       发表于 2025-2-20 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479222&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-20 23:02</a>
+
+最后下集预告里，初华在挑什么东西啊？没看懂。</blockquote>
+在挑选蜘蛛战衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yy19  
+##### 27560#       发表于 2025-2-20 23:31
+
+<blockquote>zhigui 发表于 2025-2-20 22:58
+睦头本质就是人格大逃杀 因为演技和代入太厉害以至于演一个形象就生成一个人格
+
+直到吉他睦产生了自我意识  ...</blockquote>
+看到你这贴，我想起来，睦子米（睦头）喜爱上弹吉他，想借此摆脱父母遗传给她的一切，未必没有用这种手段来成为若叶睦的主人格甚至唯一人格的小心思/潜意识哦？！
+
+睦子米，说不定也是个坏孩子呢～
+
+
+*****
+
+####  厚乳果珍爽  
+##### 27561#       发表于 2025-2-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479566&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-20 23:21</a>
+
+这tm给我干哪来了，这真是mygo续作甚至这真是一个世界观吗</blockquote>
+有什么动画，前作是真实系，后面就变成超级系的？
+[https://www.saraba1st.com/2b/thread-2246920-1-1.html](https://www.saraba1st.com/2b/thread-2246920-1-1.html)
+
+(出处: Stage1st)
+
+*****
+
+####  tide777  
+##### 27562#       发表于 2025-2-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479683&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-20 23:27</a>
+有无坛友知道初华这里是在干啥。</blockquote>
+看着像后台放演出服的地方，应该是把祥子的演出服找出来闻吧
+
+*****
+
+####  安娜导函数  
+##### 27563#       发表于 2025-2-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479103&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-20 22:56</a>
+
+我只希望后续剧情里喵梦对祥子的正论是喵梦演出来的，她要是真情实感的正论，那我就要破防了 ...</blockquote>
+你从哪里看觉得喵梦对大祥老师正论是演的了？大喵老师这么多话下来基本都是心直口快心理咋想嘴里咋说的吧......
+
+
+*****
+
+####  fsfs_freeze  
+##### 27564#       发表于 2025-2-20 23:32
+
+我现在反而希望mujica别好起来，省的之后mujica粉丝反清倒算和mygo粉丝吵架<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 27565#       发表于 2025-2-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479565&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 23:21</a>
+
+果然睦祥的童年还是藏了东西，睦分裂的原因还是在祥子身上
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+不好说，这都是小墨和美奈美的一面之词。不过特地安排她们的话互相验证，又很有可信度。
+
+*****
+
+####  grox133  
+##### 27566#       发表于 2025-2-20 23:32
+
+我觉得如果这作有25集这种发展还能忍一下，但你后面还圆什么呢，这剧情都难以吐槽了，反正第7集还是救不回来
+
+*****
+
+####  千本blur  
+##### 27567#       发表于 2025-2-20 23:32
+
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。
+
+*****
+
+####  ape-apple  
+##### 27568#       发表于 2025-2-20 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479697&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-20 23:27</a>
+
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了</blockquote>
+虽然老台是个啥比，但是建议看看他那个看动画破防了怎么办，告诉自己这下动画都是一帮能力并不出众只是为了钱生硬制造的骗人买东西用超长广告
+
+*****
+
+####  Renes  
+##### 27569#       发表于 2025-2-20 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479254&amp;ptid=2208921" target="_blank">半年 发表于 2025-2-20 23:03</a>
+
+原来喝蛋白粉是减肥来着么，我一度怀疑会有海铃练肌肉的场景</blockquote>
+海铃是靠代餐勾兑蛋白粉来维持营养，也就是尽可能减少脂肪的摄入，只喝碳水+蛋白质+维生素这些
+
+现实这么搞，人的胃不仅会严重退化萎缩，消化系统失调，身体健康也维持不住
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 半年| + 1|原来如此|
+
+查看全部评分
+
+*****
+
+####  刑部姬真可爱  
+##### 27570#       发表于 2025-2-20 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479768&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-20 23:32</a>
+
+你从哪里看觉得喵梦对大祥老师正论是演的了？大喵老师这么多话下来基本都是心直口快心理咋想嘴里咋说的吧 ...</blockquote>
+我希望
+
+*****
+
+####  木板春香  
+##### 27571#       发表于 2025-2-20 23:33
+
+应该是参考日本那个名演员的灵感，从小和女儿就是敌对竞争对手状态吧
+
+*****
+
+####  影伴光生  
+##### 27572#       发表于 2025-2-20 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479225&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-20 23:02</a>
+之前那个巨量剧透不是说九话mujica就重组+live了吗？
+感觉目前的进度看应该来不及</blockquote>
+再不重组莫女士就要被抹杀了——赶鸭子上架了属于是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 27573#       发表于 2025-2-20 23:35
+
+松田圣子和神田沙也加?
+
+这个有一位楼友早就说过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fsfs_freeze  
+##### 27574#       发表于 2025-2-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479697&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-20 23:27</a>
+
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了</blockquote>
+就算真的重回巅峰，看我独自升级的人也不会看木柜子一眼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 27575#       发表于 2025-2-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479731&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-20 23:29</a>
+mujica是邦多利世界观的阿卡姆疯人院，负责把这几个神人关起来锁死，这样想是不是就合理多了 ...</blockquote>
+有道理，我现在更相信op里的五人就是疯人院完全体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 27576#       发表于 2025-2-20 23:35
+
+莫女士这是抢时间拯救自己了，比较好奇umr找谁给她当吉他老师
+
+*****
+
+####  Lyzers  
+##### 27577#       发表于 2025-2-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479697&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-20 23:27</a>
+
+感觉大伙都挺开心的
+
+为什么我看完这么难受呢，这一集一出动画是彻底判死刑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你很会幻想了
+
+*****
+
+####  jxzeroga0  
+##### 27578#       发表于 2025-2-20 23:35
+
+真挺好的，快速收掉大祥老师的C团拟人事迹尾巴，正式第一集讲母鸡卡众人就这么爆，很难想象还在藏的初华会有多乐的剧情了
+
+*****
+
+####  与太郎  
+##### 27579#       发表于 2025-2-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479528&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-2-20 23:18</a>
+
+睦第三集自言自语说属于睦的只有吉他，但是第八集”又“空降多人格设定的时候感觉把这个已经扔掉了。
+
+毕竟 ...</blockquote>
+答案是叙诡<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+第三集只是睦这个人格在念名为“睦”的剧本
+
+*****
+
+####  南宮凝香  
+##### 27580#       发表于 2025-2-20 23:35
+
+<blockquote>千本blur 发表于 2025-2-20 23:32
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+有看過恐怖片嗎？
+
+送醫就是木子明裝成正常人混過去
+
+接下來就是幹掉睦媽了
+
+*****
+
+####  澜灰-  
+##### 27581#       发表于 2025-2-20 23:35
+
+别的不说，睦老师可能变大boss倒是很符合我的心意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然感觉下集可能又瘪了
+
+*****
+
+####  aptx8285144  
+##### 27582#       发表于 2025-2-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479773&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-20 23:32</a>
+
+我现在反而希望mujica别好起来，省的之后mujica粉丝反清倒算和mygo粉丝吵架</blockquote>
+啥好起来，连组队出力最大那位都是工具人（海铃），真要细掰，鸡粉吵得过go粉？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 27583#       发表于 2025-2-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479779&amp;ptid=2208921" target="_blank">千本blur 发表于 2025-2-20 23:32</a>
+
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+你怎么知道精神医生不会被睦头人战胜呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被钦定的天生完美的演技，想演个精神医生还是简简单单的
+
+*****
+
+####  木板春香  
+##### 27584#       发表于 2025-2-20 23:36
+
+你为什么要组乐队？
+
+户山香澄：我听见了星之鼓动
+
+弦卷心：给世界带来笑容
+
+凑友希那：为了登上顶点
+
+高松灯：一辈子
+
+莫提斯：嘻嘻，我一定要活下去呀
+
+也是大突破了
+
+*****
+
+####  刑部姬真可爱  
+##### 27585#       发表于 2025-2-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479807&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-20 23:35</a>
+
+莫女士这是抢时间拯救自己了，比较好奇umr找谁给她当吉他老师</blockquote>
+看着像是海铃自己上了的样子<img src="https://static.saraba1st.com/image/smiley/carton2017/488.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 27586#       发表于 2025-2-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479750&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-20 23:31</a>
+
+可能是过去在当偶像之前在兼职打工之类的？</blockquote>
+A团集合排练可能是在仓库翻服装
+
+*****
+
+####  陶矢  
+##### 27587#       发表于 2025-2-20 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479779&amp;ptid=2208921" target="_blank">千本blur 发表于 2025-2-20 23:32</a>
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+演一个可以应付医生的睦就可以了，真有这一集设定的这么牛逼，睦妈一切行为都说的通了，管好吃喝上学就行
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
