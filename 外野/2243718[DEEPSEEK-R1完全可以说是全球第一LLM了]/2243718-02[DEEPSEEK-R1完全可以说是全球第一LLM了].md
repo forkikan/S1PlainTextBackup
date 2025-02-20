@@ -5204,3 +5204,13 @@ DeepSeek终于还是开始考虑融资了！
 
 gork3网页端可以免费用了，思考和网页检索好像是不能一起点，需**
 
+
+*****
+
+####  沙发果冻  
+##### 1937#       发表于 2025-2-20 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471504&amp;ptid=2243718" target="_blank">蕾丝 发表于 2025-2-20 09:30</a>
+但是说ds算紫微斗数和八字都有一定概率瞎编，也可能是梅花易数瞎编也不容易分辨（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算卦不都是瞎编吗，专业对口
+
