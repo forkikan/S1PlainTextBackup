@@ -3544,3 +3544,57 @@ ccc三个人在mygo，把积分带走了是这样的
 
 連練習也做不了的地步
 
+
+*****
+
+####  aptx8285144  
+##### 26954#       发表于 2025-2-20 15:08
+
+一想到海玲回心转意的原因之一竟然是这场难听的LIVE，就绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 26955#       发表于 2025-2-20 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474507&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 15:04</a>
+其他樂隊是有臉角色組的嗎？
+
+3C 跟打工樂隊的分別是它抽調了 雞 狗太多人了</blockquote>
+所以CCC不是结束了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cxj649  
+##### 26956#       发表于 2025-2-20 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474558&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 15:11</a>
+
+所以CCC不是结束了吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+但是是 场外没，场内观众是潜意识其实认可了C团233
+
+*****
+
+####  南宮凝香  
+##### 26957#       发表于 2025-2-20 15:13
+
+<blockquote>天空塔书记官 发表于 2025-2-20 15:11
+所以CCC不是结束了吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+WSD： 結束了？！！
+
+*****
+
+####  HereLink  
+##### 26958#       发表于 2025-2-20 15:14
+
+虽然ep7演出很崩溃，不过我觉得CCC哪怕不要祥子的否认，表现上也说明了绝对组不回来的，不是部分观众说的什么团魂吊打go的存在
+
+所以我自始至终不信祥子复辟CCC的所谓剧透，有也只可能是大莫老师发病了搞事，虽然也很变态就是了
+
