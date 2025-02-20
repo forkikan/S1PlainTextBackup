@@ -1220,3 +1220,149 @@ B part一看就不像人类写出来的，啊，或者应该说太人类了，�
 
 看乐了，太tm抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  呱基  
+##### 141#       发表于 2025-2-20 22:56
+
++1，我是**，我就喜欢海铃这样，可爱捏，就喜欢这口海希好吃<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呱基  
+##### 142#       发表于 2025-2-20 22:56
+
+土。狗竟然是屏蔽词……
+
+*****
+
+####  Perfectfullmoon  
+##### 143#       发表于 2025-2-20 22:57
+
++1分打给蛋白质女王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mokou1207  
+##### 144#       发表于 2025-2-20 22:57
+
++0，前半段太变态了，后半段又给我看乐了，刚好对冲
+
+*****
+
+####  StrengeMistake  
+##### 145#       发表于 2025-2-20 22:58
+
++2，Go团滚了这动画才能好看
+
+*****
+
+####  wangh  
+##### 146#       发表于 2025-2-20 22:59
+
+荒诞+恐怖+搞笑，很难得的看番体验，没道理不+2
+
+*****
+
+####  酒巻真希菜  
+##### 147#       发表于 2025-2-20 22:59
+
+可爱的莫提斯还在，有乐子看就+1
+
+*****
+
+####  z2150966  
+##### 148#       发表于 2025-2-20 22:59
+
++2！！笑了24分钟的一集还不能+2还有什么能！！！<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  夜火雷纹  
+##### 149#       发表于 2025-2-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479033&amp;ptid=2246911" target="_blank">长弓日月剑 发表于 2025-2-20 22:53</a>
+
++1，这集看完和台长和解了。确实这集像EVA25 26集一样，有7分EVA的功力了，不愧是老婆罗门 ...</blockquote>
+一时分不清你是在黑EVA还是在黑台长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言卿  
+##### 150#       发表于 2025-2-20 23:01
+
+对这部番甚至企划来说这集肯定是烂活
+
+但这集实在是太TM不可言喻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  schneehertz  
+##### 151#       发表于 2025-2-20 23:01
+
+太乐了，可惜这片不是搞笑片，乐完之后一地鸡毛
+
+-2
+
+
+*****
+
+####  xwr  
+##### 152#       发表于 2025-2-20 23:02
+
+我看了看海玲，只能+2了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Eiyuu  
+##### 153#       发表于 2025-2-20 23:02
+
+我也是多头人，能不能让我每个头都给个评分  看笑了
+
+*****
+
+####  只会双持开拓者  
+##### 154#       发表于 2025-2-20 23:02
+
+我怀疑除了喵梦每个人都是双重人格
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 155#       发表于 2025-2-20 23:03
+
++2 感觉看了一整集的逗乐小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 156#       发表于 2025-2-20 23:03
+
++2 海玲自顾自的说起自己的往事，那一刻大猫和屏幕前的观众同步了
+
+*****
+
+####  Niyah  
+##### 157#       发表于 2025-2-20 23:04
+
+全是演的，那个默默照料黄瓜，那个在雨里没有勇气撑开伞的女孩又算什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xxxcc  
+##### 158#       发表于 2025-2-20 23:05
+
+睦头人的人设怎么崩成这样，对祥子和c团的执念根本没有交代清楚。睦之所以是睦是因为有了吉他，别说是因为祥子
+
+*****
+
+####  tokimon  
+##### 159#       发表于 2025-2-20 23:06
+
+从女女性关系转型恐怖喜剧片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
