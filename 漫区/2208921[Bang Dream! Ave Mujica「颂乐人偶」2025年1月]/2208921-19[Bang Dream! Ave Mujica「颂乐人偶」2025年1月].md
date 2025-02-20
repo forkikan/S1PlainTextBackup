@@ -1710,3 +1710,16 @@ wsd很可能和前几集的大多数观众一样觉得只要播完第x集一切�
 
 剧里谁觉得是大喵炸的团了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大喵不过是拿走大祥许诺她的吧，犹豫不决最后导致解散的不是大祥自己吗
 
+
+*****
+
+####  wpcc  
+##### 26794#       发表于 2025-2-20 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471045&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-20 08:35</a>
+
+这片就没打算给所谓黑祥好脸色，各种明踩暗讽针对祥子。
+
+包括但不限于暗示Mujica靠背后资本助推才能最速武 ...</blockquote>
+白祥牌蓝冰谁吃谁知道
+
