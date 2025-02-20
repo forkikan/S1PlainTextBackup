@@ -3765,3 +3765,43 @@ WSD： 結束了？！！
 
 也可能是真平淡如水沒東西透
 
+
+*****
+
+####  ape-apple  
+##### 26975#       发表于 2025-2-20 16:42
+
+几个真99都是带人任务炒的，死海古卷那种才是真的消息多到溢出所以不断透露，黄大叔都混到紫吧小吧了 想按死不是随便嘛来自: iPhone客户端
+
+*****
+
+####  remediosOlOOOO  
+##### 26976#       发表于 2025-2-20 16:43
+
+母鸡卡就该让嗜血的观众自己写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/411be7d37133c496e40a612103a42383/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 26977#       发表于 2025-2-20 16:44
+
+這證明之前的大量劇透爛炒就是大B在背後
+
+這周大B一戰略收縮就全消失了
+
+*****
+
+####  天空塔书记官  
+##### 26978#       发表于 2025-2-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67475480&amp;ptid=2208921" target="_blank">remediosOlOOOO 发表于 2025-2-20 16:43</a>
+母鸡卡就该让嗜血的观众自己写
+</blockquote>
+什么余兴哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

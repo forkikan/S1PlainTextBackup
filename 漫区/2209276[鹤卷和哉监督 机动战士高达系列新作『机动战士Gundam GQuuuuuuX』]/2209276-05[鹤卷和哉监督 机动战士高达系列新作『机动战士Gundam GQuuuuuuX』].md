@@ -16601,3 +16601,24 @@ cca吧，和出渊裕一起拍访谈前看了开头几分钟<img src="https://p.
 
 果然还是觉得角盖眼睛上更合适
 
+
+*****
+
+####  PrincessBanana  
+##### 7196#       发表于 2025-2-20 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67416726&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-2-13 23:04</a>
+
+泥潭豚豚都不看好这片，大概是没厨豚大战的环节了</blockquote>
+看都看不到是要怎么战起来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  0aleph37  
+##### 7197#       发表于 2025-2-20 16:46
+
+看完先行剧场版豚豚嗷的一声全跑了
+
+现在是乙女和腐女的主场
+
