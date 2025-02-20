@@ -367,3 +367,12 @@ PoE呢？目前在订阅PoE，看要不要换一个
 PoE呢？目前在 ...</blockquote>
 都是自己搭的
 
+
+*****
+
+####  云在青天  
+##### 44#       发表于 2025-2-20 10:25
+
+y用火山云的，之前论坛有人分享教程，速度很快
+[https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)
+
