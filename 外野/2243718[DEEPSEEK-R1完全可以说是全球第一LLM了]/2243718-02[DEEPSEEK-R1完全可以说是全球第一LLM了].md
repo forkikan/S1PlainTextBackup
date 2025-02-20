@@ -5144,3 +5144,13 @@ DeepSeek终于还是开始考虑融资了！
 - 梁文锋对员工透露了前往马来西亚建立数据中心的想法，以便获得比H20更好的英伟达芯片，它在中国的竞争对手普遍都是这么曲线买卡的，可以绕过美国的出口管制。
 [https://weibo.com/1560906700/5135903949328729](https://weibo.com/1560906700/5135903949328729)
 
+
+*****
+
+####  SevenYuan23  
+##### 1931#       发表于 2025-2-20 08:56
+
+据说辟谣了<img src="https://p.sda1.dev/22/5bdd689df1baa075d67efb7ca45cfb27/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

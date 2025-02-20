@@ -1723,3 +1723,24 @@ wsd很可能和前几集的大多数观众一样觉得只要播完第x集一切�
 包括但不限于暗示Mujica靠背后资本助推才能最速武 ...</blockquote>
 白祥牌蓝冰谁吃谁知道
 
+
+*****
+
+####  刑部姬真可爱  
+##### 26795#       发表于 2025-2-20 08:52
+
+MORTIS这么“恨”祥，只能解释为这是白祥离家转校后在和睦相处的过程中逐渐对睦的压力造成的这个人格，所以即使喵梦摘面具是直接原因，但是祥依然是根本原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+但问题还是一句话，mygo都没有给双重人格埋伏笔，mujica这双重人格真的纯纯编剧的大手<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 26796#       发表于 2025-2-20 08:52
+
+“黑祥”的就不应该存在，或者说就没存在过，祥子就不是杀伐果断的性格，也没法成为“大女主”，不要把观众的期待擅自强加在角色身上，这和从下道口上高速然后惊呼:“怎么所有的车都在逆行?”一样滑稽可笑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
