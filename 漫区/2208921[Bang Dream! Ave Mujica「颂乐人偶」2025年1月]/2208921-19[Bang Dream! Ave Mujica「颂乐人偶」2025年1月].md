@@ -12529,3 +12529,30 @@ mujica就只有mortis没有睦了吧。
 
 这样看A1.0也不是非散不可，小命也保住了，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  澜灰-  
+##### 27858#       发表于 2025-2-21 03:13
+
+越想睦这个设定越带感啊，确实好这一口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过现在这个真是吉他睦吗，哪来的暴君<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为什么想重组c团感觉还需要补一下理由。
+
+海铃是控制狂的病根本没好的假药也还蛮有意思的。
+
+下集也许就喵梦骂醒人偶祥然后开live？还挺标准的。
+
+另外确实不能细想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 27859#       发表于 2025-2-21 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481041&amp;ptid=2208921" target="_blank">maritimus 发表于 2025-2-21 02:33</a>
+总感觉这个发展和之前的舅舅都对不上，是不是说明其实没有真舅</blockquote>
+wsd发现舅舅泄密紧急命令修改原文件(不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
