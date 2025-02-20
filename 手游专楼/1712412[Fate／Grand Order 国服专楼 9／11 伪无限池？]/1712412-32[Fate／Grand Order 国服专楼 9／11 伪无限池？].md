@@ -47,3 +47,11 @@
 
 借顶配水摩根打90++还要自出杀狐和奥，痛苦……空了翻翻有没有借巴姐的配队，福袋刚出的CBA给我狠狠上班口牙
 
+
+*****
+
+####  khxooo  
+##### 47020#       发表于 2025-2-20 11:56
+
+铃鹿，太公望，RBA 找奥伯龙，算是比较省羁绊的大法了。就是RBA也快10羁绊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
