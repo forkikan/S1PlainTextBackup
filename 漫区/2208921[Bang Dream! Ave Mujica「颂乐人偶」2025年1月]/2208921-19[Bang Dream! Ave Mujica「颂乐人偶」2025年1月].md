@@ -5176,3 +5176,248 @@ lsl全责（不是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还有萝莉海玲啊
 
+
+*****
+
+####  fansnake  
+##### 27130#       发表于 2025-2-20 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">有S1木柜子群吗 想进去看木柜子笑话 水群
+
+*****
+
+####  RPG-7  
+##### 27131#       发表于 2025-2-20 22:08
+
+确实是打工使人哈气，不打工了就修好了
+
+*****
+
+####  新HGCG  
+##### 27132#       发表于 2025-2-20 22:08
+
+“睦什么的一开始就不存在”
+
+*****
+
+####  新HGCG  
+##### 27133#       发表于 2025-2-20 22:09
+
+喵梦…………！
+
+*****
+
+####  cxj649  
+##### 27134#       发表于 2025-2-20 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478015&amp;ptid=2208921" target="_blank">fansnake 发表于 2025-2-20 22:08</a>
+
+有S1木柜子群吗 想进去看木柜子笑话 水群</blockquote>
+有啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 27135#       发表于 2025-2-20 22:09
+
+**妈 演技说复活！
+
+
+*****
+
+####  葉月翠名  
+##### 27136#       发表于 2025-2-20 22:10
+
+双重人格 X
+
+我装的 O<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这片子已经彻底疯了把
+
+*****
+
+####  Libartas  
+##### 27137#       发表于 2025-2-20 22:10
+
+黑泽城好劲<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 27138#       发表于 2025-2-20 22:10
+
+喵梦:我说了，她演的
+
+*****
+
+####  prinTTTT  
+##### 27139#       发表于 2025-2-20 22:11
+
+这片子干脆改名ave mutsumi吧，我想看群像剧啊在这写什么j8
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  有钱多买小人  
+##### 27140#       发表于 2025-2-20 22:11
+
+笑死，原来木头人才是这片主线？
+
+*****
+
+####  JustW  
+##### 27141#       发表于 2025-2-20 22:11
+
+怎么变睦走前面了，有问题
+
+*****
+
+####  影伴光生  
+##### 27142#       发表于 2025-2-20 22:11
+
+睦多头怪也太哈人了。。。接近逼疯亲妈和大喵的程度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 27143#       发表于 2025-2-20 22:11
+
+原来她妈是怕睦
+
+*****
+
+####  无音命题  
+##### 27144#       发表于 2025-2-20 22:12
+
+AVE母鸡卡   X
+
+演员木子美  O
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pliee  
+##### 27145#       发表于 2025-2-20 22:12
+
+啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  葉月翠名  
+##### 27146#       发表于 2025-2-20 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以下结论了把，无论是编剧还是看这个片子的人都需要去宛平南路600号。
+
+*****
+
+####  kenqqex  
+##### 27147#       发表于 2025-2-20 22:13
+
+我宣布这动画播到现在
+
+最变态的就在这里了！
+
+*****
+
+####  新HGCG  
+##### 27148#       发表于 2025-2-20 22:13
+
+考哥23333333
+
+*****
+
+####  JustW  
+##### 27149#       发表于 2025-2-20 22:13
+
+看笑了            
+
+*****
+
+####  凉良  
+##### 27150#       发表于 2025-2-20 22:14
+
+对着不同人演出不同人格。这什么逆天设定
+
+*****
+
+####  JustW  
+##### 27151#       发表于 2025-2-20 22:14
+
+真的要花几分钟解释这么中二的设定吗
+
+*****
+
+####  595505568  
+##### 27152#       发表于 2025-2-20 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478132&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-20 22:14</a>
+对着不同人演出不同人格。这什么逆天设定</blockquote>
+ 长崎素世：这不是她社交面具吗
+
+*****
+
+####  DeltaStriker  
+##### 27153#       发表于 2025-2-20 22:14
+
+所以最后真是5个人偶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太棒了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  无音命题  
+##### 27154#       发表于 2025-2-20 22:14
+
+太狠了，超乎想象
+
+*****
+
+####  阿兹尔  
+##### 27155#       发表于 2025-2-20 22:14
+
+先不谈这个苟史设定，睦的人格才是最应该消灭的吧
+
+*****
+
+####  有钱多买小人  
+##### 27156#       发表于 2025-2-20 22:15
+
+啊？人格吞噬也要对偶？？？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 27157#       发表于 2025-2-20 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478132&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-20 22:14</a>
+对着不同人演出不同人格。这什么逆天设定</blockquote>
+Persona！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  FeteFete  
+##### 27158#       发表于 2025-2-20 22:15
+
+我觉得挺有意思的，尤其时小睦拷打莫提斯老师
+
+*****
+
+####  tuatha  
+##### 27159#       发表于 2025-2-20 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426319&amp;ptid=2208921" target="_blank">tuatha 发表于 2025-2-14 19:44</a>
+其实莫才是真的睦，睦只是吉他成精罢了</blockquote>
+差不多吧（😅）
+
+*****
+
+####  aptx8285144  
+##### 27160#       发表于 2025-2-20 22:15
+
+莫女士这是要被睦杀了？<strong>一会而说睦不存在，一会儿说莫女士和睦都是不同的角色</strong>，感觉现在又回到母鸡卡的氛围，反正和音乐番感觉没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
