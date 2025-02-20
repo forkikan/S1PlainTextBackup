@@ -3953,3 +3953,72 @@ WSD： 結束了？！！
 
 我又幻想了，幻想wsd被老中简体字冲得不知所措，紧急重新做新的配音故事（汽笛声）来自: iPhone客户端
 
+
+*****
+
+####  1223122  
+##### 26996#       发表于 2025-2-20 17:41
+
+←   丨  →
+
+*****
+
+####  6030sylar  
+##### 26997#       发表于 2025-2-20 17:43
+
+上周隔离连整集截图的剧透都有，应该被整顿了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  HereLink  
+##### 26998#       发表于 2025-2-20 17:43
+
+今天的剧透格外谜语
+
+
+*****
+
+####  cayon  
+##### 26999#       发表于 2025-2-20 17:45
+
+jz人打进来我第一个跑
+
+*****
+
+####  cxj649  
+##### 27000#       发表于 2025-2-20 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">舅舅这太谜语了
+
+
+*****
+
+####  枪聆弹语  
+##### 27001#       发表于 2025-2-20 17:45
+
+抄袭冰雪奇缘elsanna
+
+*****
+
+####  6030sylar  
+##### 27002#       发表于 2025-2-20 17:46
+
+向左走向右走？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  z-hunter  
+##### 27003#       发表于 2025-2-20 17:47
+
+别乱幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人武士道都不觉得剧情有问题改什么剧情，而且1周是能爆肝改出来的吗，这根本不可能
+
+首先剧透的估计是B站内部人员吧，之前我看泄露祥子要重组C团，素世立希拒绝的剧透也是第7话老中这边节奏闹大了才放出来的
+
+估计是想平复一下众怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第8话肯定没有狗团什么戏份的，重点都在海铃或者喵梦那边。狗团的戏份已经基本结束了，狗厨不要有幻想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
