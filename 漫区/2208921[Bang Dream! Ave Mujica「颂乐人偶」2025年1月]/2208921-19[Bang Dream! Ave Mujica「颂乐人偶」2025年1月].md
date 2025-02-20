@@ -1941,3 +1941,91 @@ mygo最后几集祥子是大女主 ? 她不还朝睦哈气吗 ? 招募喵梦的�
 
 鸡团原来是四抠一吗。
 
+
+*****
+
+####  zhzij111  
+##### 26813#       发表于 2025-2-20 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471479&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 09:27</a>
+一个人拉队伍，四个人中两个人是关系户是吧，海铃还是职业佣兵，祥子真正招募的其实只有喵梦一个，这就是 ...</blockquote>
+确实，现在看小祥组队伍的能力也堪忧，4个队友两个是丰川姓氏带给她的，一个是有活就来的雇佣兵，唯一一个靠实力招揽的还是个脑子拎不清的蹭热度引流狗，真菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 26814#       发表于 2025-2-20 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471537&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-20 09:35</a>
+喵梦一眼看出祥子其实经济状况不好强装大小姐这点已经很明显在表达喵梦“段位”比祥子高了，毕竟自己赚钱这 ...</blockquote>
+12话聊天结果只能说是狼狈为奸各取所需。是13话抢手机，结果1话就直接被下克上了。
+
+*****
+
+####  南宮凝香  
+##### 26815#       发表于 2025-2-20 09:37
+
+兩個擅自就是動漫史上最大的屁話
+
+狗13話 祥白手組建了包含在狗版本逼格最高的大偶像+兵王兩個神秘助拳人的母雞卡
+
+兵王還發出了一輩子宣言
+
+大獲好評的出道了
+
+堅如磐石， 復權時刻 這又不是觀眾想的
+
+是制作組餵的
+
+誰能想到她不是磐石是小石
+
+*****
+
+####  天空塔书记官  
+##### 26816#       发表于 2025-2-20 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471496&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-20 09:29</a>
+【招募喵梦的时候也差点被怼到下不来台】咱俩看的是同一个12话吗？喵在12话只说了句“抱歉我不该选这么贵 ...</blockquote>
+<img src="https://p.sda1.dev/22/68cdf7e7b97ae38651df8bfc22b19de2/image.jpg" referrerpolicy="no-referrer">
+
+虽然我表述可能有问题，面对喵梦的试探，祥子心虚窘迫也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 26817#       发表于 2025-2-20 09:39
+
+而且两个用自己身体(？)勾引来的还是队内流量+实力大爹，不过不这样一个落魄高中生确实拉不起来队伍，别人没必要帮你，她们对你有爱那就不一样了
+
+*****
+
+####  qlipho  
+##### 26818#       发表于 2025-2-20 09:41
+
+别再想爹了，和睦头好好过日子吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 26819#       发表于 2025-2-20 09:41
+
+大祥老师组鸡团我觉得最大的问题还是忽视团友感情需求。
+
+要是真有扣扣空间被四抠一了没准还能多活会<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 26820#       发表于 2025-2-20 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471593&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-20 09:39</a>
+而且两个用自己身体(？)勾引来的还是队内流量+实力大爹，不过不这样一个落魄高中生确实拉不起来队伍，别人 ...</blockquote>
+所以祥子重组CCC一开始就是可行的，只要她肯拉得下脸，放得下身段<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -104,3 +104,15 @@ magpie或者小黄鸭给放大一下不是更好？
 这就是传说中的intel更稳定，amd小bug多吧</blockquote>
 amd小bug体现是莫名卡顿。该全屏不能全屏该运行不能运行大多数还是windows的bug
 
+
+*****
+
+####  暗示我7酱  
+##### 1415#       发表于 2025-2-20 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67457080&amp;ptid=2086469" target="_blank">mes 发表于 2025-2-18 14:21</a>
+昨天看看山寨性能掌机系统也移植了好多pc游戏，当然全是旧游戏，其实觉得不需要pc掌机这种东西，连笔记本都 ...</blockquote>
+老游戏 或者gal其实安卓平板模拟就足够了，win板光一个待机不行就被安卓爆了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
