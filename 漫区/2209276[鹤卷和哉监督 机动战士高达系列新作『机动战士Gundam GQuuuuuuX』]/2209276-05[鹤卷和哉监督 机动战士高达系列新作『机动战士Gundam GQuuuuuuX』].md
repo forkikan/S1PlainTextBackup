@@ -17319,3 +17319,58 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 《机动战士高达：阿森纳基地》（Mobile Suit Gundam Arsenal Base/機動戦士ガンダム アーセナルベース） ...</blockquote>
 所以面具男也可能不是gqx里的而是游戏里的是吧
 
+
+*****
+
+####  岸浪白野  
+##### 7246#       发表于 2025-2-21 00:31
+
+就是吐槽看到别的作品的面具男罢了
+
+*****
+
+####  oi99o  
+##### 7247#       发表于 2025-2-21 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480314&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-21 00:19</a>
+
+所以面具男也可能不是gqx里的而是游戏里的是吧</blockquote>
+游戏里收录的高达历代面具男
+
+*****
+
+####  王留美  
+##### 7248#       发表于 2025-2-21 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480314&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-21 00:19</a>
+ 所以面具男也可能不是gqx里的而是游戏里的是吧</blockquote>
+扯到AB的证言都当作第四面墙捏他就好了
+
+*****
+
+####  ????????  
+##### 7249#       发表于 2025-2-21 00:33
+
+<blockquote>Toby_dak 发表于 2025-2-20 23:11
+看了眼电影院的时间，最多多了5分钟。</blockquote>
+比起奇怪的是，21号的时间就和后面一样了，难道会有提前放特别影像的吗
+
+<img src="https://img.saraba1st.com/forum/202502/21/003247ydnddttddcdqd6ct.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250221_003137.jpg</strong> (139.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:32 上传
+
+*****
+
+####  gundammarkⅡ  
+##### 7250#       发表于 2025-2-21 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480314&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-21 00:19</a>
+所以面具男也可能不是gqx里的而是游戏里的是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">前段时间GQ第一批卡片，都是胶系的主角们在吐槽GQ的角色（前几页王留美聚聚有放上来），现在轮到GQ角色吐槽AB了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1292,3 +1292,27 @@ mercury到过了是吧
 
 初始收集三块水晶，除了苍白洞窟和悬崖海岸之外哪里还有一块？怎么找都找不到了
 
+
+*****
+
+####  blackll7  
+##### 110#         楼主| 发表于 2025-2-21 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480336&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-21 00:21</a>
+初始收集三块水晶，除了苍白洞窟和悬崖海岸之外哪里还有一块？怎么找都找不到了 ...</blockquote>
+仔细寻路，树上有一只熊提醒你左侧其实有被视角遮蔽的洞窟，穿过去还有中继点，后面爬瀑布。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  blueelf  
+##### 111#       发表于 2025-2-21 00:32
+
+<blockquote>blackll7 发表于 2025-2-21 00:27
+仔细寻路，树上有一只熊提醒你左侧其实有被视角遮蔽的洞窟，穿过去还有中继点，后面爬瀑布。
+
+—— 来自  ...</blockquote>
+这个左侧大概是在什么位置？渔场附近吗。
+

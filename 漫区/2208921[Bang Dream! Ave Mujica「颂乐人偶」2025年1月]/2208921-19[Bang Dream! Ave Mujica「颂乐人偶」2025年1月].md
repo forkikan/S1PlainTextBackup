@@ -10853,3 +10853,270 @@ MyGo 關係不好，</blockquote>
 
 那到底是不是脚本团队看到这个神奇的大纲一脸懵逼所以操作变形呢？
 
+
+*****
+
+####  zhoujin8584  
+##### 27702#       发表于 2025-2-21 00:28
+
+<blockquote>ArcadiaMartyr 发表于 2025-2-21 00:04
+说实话，这睦的人设是彻底毁了吧？mygo的睦是这样的人？？？
+
+</blockquote>
+「睦」是以吉他为锚点的，飞鸟山祥子已经在筹备鸡团了，自然不需要再重组CCC
+
+「Mortis」是以「睦」在鸡团的痛苦，作为她的坦出现的，所以她想要活着，就需要鸡团重组。
+
+不过这俩都不是祥子小时候那个「睦当然是会笑的啦」（go3）「你以前明明会说会笑的」（AM3）的那个青梅「睦」了，难怪回忆杀还没初祥多，姐们不是啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 27703#       发表于 2025-2-21 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480338&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 00:22</a>
+海鈴那裡能解釋
+
+她辭去母雞卡後 瘋狂購物後會手緊</blockquote>
+海玲不止有一个乐队兼职，而且可能还有其他音乐相关的工作，比如作曲或者扒谱什么的，她的“购物狂综合症”应该存在很长时间了，本质是对控制自我的补偿和解压的手段，而不是因为加入A团才有的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  梅杜莎  
+##### 27704#       发表于 2025-2-21 00:28
+
+Mortis故意用鞋打电话PUA Soyo不是当时就有的说法嘛
+
+第7话证实了她家客人来访流程确实和MYGO13话一样，要当事人同意才请进来，也就是说在Soyo进她房间前她就知道来的人是Soyo
+
+*****
+
+####  shinoverse  
+##### 27705#       发表于 2025-2-21 00:29
+
+看着若叶睦从内向善良笨拙小女孩到美丽破碎小女孩再到相柳九婴许德拉，而且它还告诉我这人自诞生就是个怪物
+
+武士道真有你的，屋檐了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡密sama  
+##### 27706#       发表于 2025-2-21 00:29
+
+这个deepseek是国内那个吗？那个不是今年一月的时候才出名的吗？<img src="https://p.sda1.dev/22/4df3cd045b20ca7fcdcaca42fce2082c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 27707#       发表于 2025-2-21 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480393&amp;ptid=2208921" target="_blank">卡密sama 发表于 2025-2-21 00:29</a>
+这个deepseek是国内那个吗？那个不是今年一月的时候才出名的吗？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+应该是恰好重名罢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 27708#       发表于 2025-2-21 00:30
+
+从海子姐过去的经历来看，她的掌控欲有一点强，以至于专门给自己设定阈值来生活，这次碰上不会弹吉他就要似的莫女士，真就激发了内心深处的欲望吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 27709#       发表于 2025-2-21 00:31
+
+ 本帖最后由 adretyu67. 于 2025-2-21 00:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480382&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-21 00:28</a>
+
+「睦」是以吉他为锚点的，飞鸟山祥子已经在筹备鸡团了，自然不需要再重组CCC
+
+「Mortis」是以「睦」在鸡团 ...</blockquote>
+「Mortis」的社交能力应该是来自那个会说会笑的对外表演出来的人格。
+
+但是幼祥毫无疑问也认识吉他睦，毕竟都说好下次一起演奏了。
+
+只能说祥子这个“以前你更能说笑的”的以前的跨度不好说了。
+
+*****
+
+####  南宮凝香  
+##### 27710#       发表于 2025-2-21 00:31
+
+<blockquote>zhoujin8584 发表于 2025-2-21 00:28
+「睦」是以吉他为锚点的，飞鸟山祥子已经在筹备鸡团了，自然不需要再重组CCC
+
+「Mortis」是以「睦」在鸡团 ...</blockquote>
+你的青梅睦已經死了
+
+殺了她的是我吉他睦噠！
+
+*****
+
+####  天空塔书记官  
+##### 27711#       发表于 2025-2-21 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480389&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-2-21 00:29</a>
+看着若叶睦从内向善良笨拙小女孩到美丽破碎小女孩再到相柳九婴许德拉，而且它还告诉我这人自诞生就是个怪物 ...</blockquote>
+其实这说的也没错，每个人诞生之初都是混沌的，只是睦因为某种(也许是家庭）原因混沌持续的时间更久而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 27712#       发表于 2025-2-21 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480382&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-21 00:28</a>
+「睦」是以吉他为锚点的，飞鸟山祥子已经在筹备鸡团了，自然不需要再重组CCC
+
+「Mortis」是以「睦」在鸡团 ...</blockquote>
+不是以不以吉他为锚点的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+主要是之前mygo那个还会为他人着想的睦，变成了等待祥子替她重建crychic的操盘手…
+关键是重组c团不就是要拆掉mygo…那她之前给soyo送黄瓜啥意思…现在又要拆掉别人的团，爱音和猫猫她不管不顾的吗?这还是之前mygo的睦?
+之前难道不是想塑造一个不想伤害别人但是却又由于笨拙伤害别人的形象吗？
+现在重组不就是变成了一个自私自利的操盘手?还要捏死mortis
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 27713#       发表于 2025-2-21 00:33
+
+幼睦还没这么哈人是因为病情不算严重，上了月之森吸了马希洛的菌子之后就彻底疯狂了，马希洛怎么这么坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 27714#       发表于 2025-2-21 00:33
+
+disruption那两大姐挺乐的  会不会这队更适合海玲  <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 27715#       发表于 2025-2-21 00:33
+
+莫提斯确实要堵上生命搞乐队，无惧死亡这个称号真贴切啊。
+
+*****
+
+####  卡密sama  
+##### 27716#       发表于 2025-2-21 00:33
+
+有点还是没懂啊，莫提斯没被吉他睦抹杀吗？为啥莫提斯还能占据身体啊？
+为啥母鸡卡的时候吉他睦承受不了了，承受不了压力也是表演的一环？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厄神之息  
+##### 27717#       发表于 2025-2-21 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480311&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-21 00:19</a>
+
+所以大祥从小到底知不知道若叶睦是多重人格，这半身也太塑料了吧</blockquote>
+不知道，她连小时候跟她玩的那个睦已经死了都不知道。她前面不是说了吗“你以前明明更爱说话更爱笑的！”严格来说，现在这个睦不是她的发小，是把她发小杀了然后占据了她发小身体的杀人狂吉他精<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 27718#       发表于 2025-2-21 00:34
+
+祥子说过，":睦才不做不到演戏。"，"C团已经解散了，绝无复活可能"
+
+太有意思了，剧本真的要开始挖掘这个了吗。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">期待度满分
+
+*****
+
+####  fsfs_freeze  
+##### 27719#       发表于 2025-2-21 00:34
+
+op里做鬼脸的是mortis还是吉他睦的内心<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 27720#       发表于 2025-2-21 00:35
+
+你什么时候产生了和海铃在一起的是牢莫的幻觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winterase  
+##### 27721#       发表于 2025-2-21 00:35
+
+莫姐还是有点菜的，好不容易抢到身体还把睦给关起来了，ep7又莫名其妙给人放出来了，只能说好似
+
+*****
+
+####  天空塔书记官  
+##### 27722#       发表于 2025-2-21 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480430&amp;ptid=2208921" target="_blank">mono 发表于 2025-2-21 00:33</a>
+disruption那两大姐挺乐的  会不会这队更适合海玲</blockquote>
+不太行，海铃这样的性格如果完全放开了是没有人会喜欢的，所以确实只有A团这样的怪人集合体才能接受真实的她<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 27723#       发表于 2025-2-21 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480435&amp;ptid=2208921" target="_blank">卡密sama 发表于 2025-2-21 00:33</a>
+
+有点还是没懂啊，莫提斯没被吉他睦抹杀吗？为啥莫提斯还能占据身体啊？
+
+为啥母鸡卡的时候吉他睦承受不了了 ...</blockquote>
+表现出来是没有，墨提斯还有戏份。不如说过场是有什么映射大于实际表现出来的。
+
+*****
+
+####  zhzij111  
+##### 27724#       发表于 2025-2-21 00:36
+
+ 本帖最后由 zhzij111 于 2025-2-21 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480311&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-21 00:19</a>
+所以大祥从小到底知不知道若叶睦是多重人格，这半身也太塑料了吧</blockquote>
+莫提斯不就是大祥老师喜欢的那个开朗睦，已经被小睦杀掉咯，现在这个抗压用的莫提斯二号苟延残喘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 27725#       发表于 2025-2-21 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480448&amp;ptid=2208921" target="_blank">winterase 发表于 2025-2-21 00:35</a>
+
+莫姐还是有点菜的，好不容易抢到身体还把睦给关起来了，ep7又莫名其妙给人放出来了，只能说好似 ...</blockquote>
+心软了。“搞得我才是坏人一样”
+
+*****
+
+####  天空塔书记官  
+##### 27726#       发表于 2025-2-21 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480448&amp;ptid=2208921" target="_blank">winterase 发表于 2025-2-21 00:35</a>
+莫姐还是有点菜的，好不容易抢到身体还把睦给关起来了，ep7又莫名其妙给人放出来了，只能说好似 ...</blockquote>
+因为本质是吉他睦放权的结果，否则“莫提斯”根本不会有机会拿到主导权
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
