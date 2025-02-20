@@ -10410,3 +10410,245 @@ MyGo 關係不好，</blockquote>
 睦头这塑造还能不毁吗，狗动画里你能看出她半点DID的迹象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 什么不善言语一颗心两面受伤，不开心是给大祥打掩护，自愿被PUA和送黄瓜是真心为爽，现在已经是纯抽象角色了
 
+
+*****
+
+####  ra2163  
+##### 27661#       发表于 2025-2-21 00:08
+
+难道不是睦妈不喜欢八面玲珑的形态才逐渐变成人偶形态的
+
+*****
+
+####  刑部姬真可爱  
+##### 27662#       发表于 2025-2-21 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480161&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-21 00:04</a>
+
+说实话，这睦的人设是彻底毁了吧？mygo的睦是这样的人？？？</blockquote>
+不要与mygo联系来折磨自己了<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 27663#       发表于 2025-2-21 00:09
+
+木头人现在的状态完全是武神300大后期的白武男 那么7重木头人和无尽木头人在路上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 27664#       发表于 2025-2-21 00:09
+
+這話出來
+
+之前賣了20話的睦 就消失了
+
+*****
+
+####  ntrntr1  
+##### 27665#       发表于 2025-2-21 00:09
+
+虽然睦人设变完了，该说不说还挺带感的，反正比痴情工具人带感多了 
+
+支持睦大BOSS
+
+最后初华大战天才人偶师木子米，比第七话样板戏好玩多了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HereLink  
+##### 27666#       发表于 2025-2-21 00:10
+
+其实也还好，暂时只有两个了，想办法不要再生了😂😂
+
+*****
+
+####  卡密sama  
+##### 27667#       发表于 2025-2-21 00:10
+
+睦这个多重人格怎么还讲啊，我以为上集就结束了。而且看结尾，海子姐要教莫提斯表演弹吉他？等于这多重人格还没结束？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厉飞雨  
+##### 27668#       发表于 2025-2-21 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">吉他睦要复辟苦来兮哭，那飞鸟山之战她为什么只是看着
+
+*****
+
+####  Lyzers  
+##### 27669#       发表于 2025-2-21 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还在考虑角色前后连续性，说实话也是爱母鸡卡爱的太深了
+
+*****
+
+####  南宮凝香  
+##### 27670#       发表于 2025-2-21 00:11
+
+<blockquote>DeltaStriker 发表于 2025-2-21 00:09
+木头人现在的状态完全是武神300大后期的白武男 那么7重木头人和无尽木头人在路上了吗
+
+—— 来自 鹅球 v3.3 ...</blockquote>
+結局是裝上愛音心臟的燈對邦用命換死睦頭，
+
+再假扮成睦頭留在母雞卡
+
+*****
+
+####  ntrntr1  
+##### 27671#       发表于 2025-2-21 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480219&amp;ptid=2208921" target="_blank">卡密sama 发表于 2025-2-21 00:10</a>
+
+睦这个多重人格怎么还讲啊，我以为上集就结束了。而且看结尾，海子姐要教莫提斯表演弹吉他？等于这多重人格 ...</blockquote>
+感觉是播放睦老师录像带逼天才演技莫老师自我学习<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+莫老师学会了睦老师破防，明明吉他是属于我自己的就搞笑了。。
+
+*****
+
+####  HereLink  
+##### 27672#       发表于 2025-2-21 00:12
+
+<blockquote>厉飞雨 发表于 2025-2-21 00:10
+吉他睦要复辟苦来兮哭，那飞鸟山之战她为什么只是看着</blockquote>
+祥子是第一优先级，而且她不愿意就不可能重组😃
+
+*****
+
+####  与太郎  
+##### 27673#       发表于 2025-2-21 00:12
+
+<img src="https://img.saraba1st.com/forum/202502/21/000941zd4q52dh9ec1cw6w.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_346984.jpg</strong> (308.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:09 上传
+
+睦はオレンジジュース
+
+直译：睦是橙汁
+
+答案是LCL
+
+*****
+
+####  ape-apple  
+##### 27674#       发表于 2025-2-21 00:12
+
+之前怎么把睦爸妈定罪怎么分析，恨不得要让睦爹妈坐实了虐待女儿。这一集出来，厉害了，原来在爹妈眼里睦是一个借腹出生的古神，身体里不知道多少灵魂，这回至少可以介绍为什么不带去医院了，谁敢管，半夜把屋子烧了都不犯法来自: iPhone客户端
+
+*****
+
+####  adretyu67.  
+##### 27675#       发表于 2025-2-21 00:12
+
+ 本帖最后由 adretyu67. 于 2025-2-21 00:14 编辑 
+
+我是觉得狗团和鸡团时期的两个睦完全就是不同的人了。
+
+除非你和我说狗团TV期间出来的也是一个解离出来的人格。
+
+但是鸡团TV第8话节点的睦想重建CCC其实倒是说得过去，第七话牢墨放了她出来搞CCClive导致她觉得CCC可以重建了。
+
+
+*****
+
+####  你妈的为什么  
+##### 27676#       发表于 2025-2-21 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没看剧透，最后是不是章鱼博士木兹米控制小祥，蜘蛛侠初华重力薄纱？
+
+*****
+
+####  08df1258c5ed098  
+##### 27677#       发表于 2025-2-21 00:15
+
+我喜欢的一集
+
+不过有个疑问：海玲说自己吃不胖是吹牛的吗？
+
+*****
+
+####  北条早苗  
+##### 27678#       发表于 2025-2-21 00:16
+
+不演飞鸟山怎么和爽姐三天三夜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在大祥已经被训成全程白祥形态了，整个鸡狗都是睦头的大手
+
+*****
+
+####  adretyu67.  
+##### 27679#       发表于 2025-2-21 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480272&amp;ptid=2208921" target="_blank">你妈的为什么 发表于 2025-2-21 00:15</a>
+
+没看剧透，最后是不是章鱼博士木兹米控制小祥，蜘蛛侠初华重力薄纱？</blockquote>
+应该是绿魔<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 27680#       发表于 2025-2-21 00:16
+
+现在看这个乐队能拖这么久才散大祥老师功不可没呀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fsfs_freeze  
+##### 27681#       发表于 2025-2-21 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480220&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-21 00:10</a>
+
+吉他睦要复辟苦来兮哭，那飞鸟山之战她为什么只是看着</blockquote>
+吉他睦的锚点之前一直在祥子吧，飞鸟山之战和黑刀之夜阶段重组ccc对祥子又没有好处，只是不知道ep7分手炮之后吉他睦的锚点是祥子还是ccc
+
+*****
+
+####  adretyu67.  
+##### 27682#       发表于 2025-2-21 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480275&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-2-21 00:15</a>
+
+我喜欢的一集
+
+不过有个疑问：海玲说自己吃不胖是吹牛的吗？</blockquote>
+吹的。台子上全是卡路里套餐，热量摄入控制的很死。
+
+虽然控制的很死，但是建模上她的脸确实比立希圆不少。
+
+*****
+
+####  Putredinus  
+##### 27683#       发表于 2025-2-21 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480175&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-21 00:05</a>
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+对哦还有这个意思，我就说为什么非要凑耳边说
+
+*****
+
+####  北条早苗  
+##### 27684#       发表于 2025-2-21 00:17
+
+已知牢莫是知道手机的，那为什么牢莫还拿芭蕾舞鞋打电话，搞不好是睦头上线和爽姐玩情趣play呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NEWROMANCER  
+##### 27685#       发表于 2025-2-21 00:18
+
+突然想起木谷高明卖蛋白棒这件事
+我不会能看到海铃联名款蛋白粉吧，那可太会炒作了武士道
+

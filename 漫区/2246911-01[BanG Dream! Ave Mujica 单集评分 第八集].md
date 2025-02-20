@@ -2074,3 +2074,34 @@ Ave mujica症候群，我看这不是海猫这是寒蝉啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  甲鱼  
+##### 234#       发表于 2025-2-21 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">我要看到大结局祥子全身金光和蓝色睦头人多重人格飞天打拳
+
+*****
+
+####  你妈的为什么  
+##### 235#       发表于 2025-2-21 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比第七话好，至少又有那种油门确定踩死但是不知道谁在打方向盘的感觉了
+
+*****
+
+####  old.just  
+##### 236#       发表于 2025-2-21 00:12
+
+有一说一。。。+2了，第七集 -2
+
+
+*****
+
+####  nnsgwhs  
+##### 237#       发表于 2025-2-21 00:16
+
++2 apart观感：这里不会要有jumpscare吧，哇果然来了，又是双重人格哈哈哈
+第四集感觉这片有当年初见鲨卷风的观感还真没错，希望能一直保持这种cult片的笑点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -17261,3 +17261,39 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 由手机上传
 2025-2-20 23:57 上传
 
+
+*****
+
+####  岸浪白野  
+##### 7242#       发表于 2025-2-21 00:10
+
+这样对比最直观确实多了5分钟
+
+<img src="https://img.saraba1st.com/forum/202502/21/001007w8ladylolyl0mnll.png" referrerpolicy="no-referrer">
+
+<strong>7[X}PFM[%1Z)@4~N}H6@@]P.png</strong> (123.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/001027mua1k0r9u1uf78ap.png" referrerpolicy="no-referrer">
+
+<strong>LFH`16ZR6]2[DZ45%H$EQ9K.png</strong> (60.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:10 上传
+
+*****
+
+####  kuriri  
+##### 7243#       发表于 2025-2-21 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480091&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-20 23:58</a>
+
+煤炉找了个清晰点的</blockquote>
+提到了奇怪的面具男诶，阿塞纳尔基地在以前的作品里有提过吗
+
+机翻：“阿塞纳尔基地，就像个傻乎乎的地方吧。哇，还有戴着奇怪面具的人呢，真有趣……如果这能完全解决问题就好了。啊，还是说说我们这边的事吧。”
+
