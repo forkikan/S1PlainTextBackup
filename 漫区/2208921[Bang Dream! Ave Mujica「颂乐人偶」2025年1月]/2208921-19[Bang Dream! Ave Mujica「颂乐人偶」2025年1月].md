@@ -4592,3 +4592,103 @@ CNM 把祥睦回忆放这集
 
 我一直是正常人啊（确信）
 
+
+*****
+
+####  是谁的书画  
+##### 27071#       发表于 2025-2-20 19:25
+
+真要大莫享年1个月，那前面塑造的意义是？
+
+*****
+
+####  HereLink  
+##### 27072#       发表于 2025-2-20 19:25
+
+不会真有重组CCC的烂活吧😓
+
+*****
+
+####  阿兹尔  
+##### 27073#       发表于 2025-2-20 19:27
+
+为了衬托睦祥情深罢，因你而起，也因你而结束，睦祥真正地成为彼此的半身，另一个人格都比不上的那种，太半身了
+
+*****
+
+####  Alicest  
+##### 27074#       发表于 2025-2-20 19:27
+
+我看鸡的期待已经是能烂到什么地步了
+bgm能不能实现我们sc都没达到的2.83分
+
+*****
+
+####  cccpprc  
+##### 27075#       发表于 2025-2-20 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476813&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-20 19:17</a>
+
+大祥传演了8集了，队友查无此人，太团队了我们母鸡卡
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你说初华查无此人还行
+
+队友存在感低的也就第六集吧
+
+而且大祥传这么演
+
+只能说远离女作者了
+
+*****
+
+####  凉良  
+##### 27076#       发表于 2025-2-20 19:29
+
+这个我会消失怎么感觉可能是初华说的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 27077#       发表于 2025-2-20 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476898&amp;ptid=2208921" target="_blank"> 凉良 发表于 2025-2-20 19:29</a> 这个我会消失怎么感觉可能是初华说的 </blockquote>
+消失是吧，我这么大一个粟米米呢，能说这个话的只有莫（或者后来者人格睦）来自: iPhone客户端
+
+*****
+
+####  影伴光生  
+##### 27078#       发表于 2025-2-20 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476735&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-20 19:07</a>
+感觉牛贝拉152的漫评比台长憋了一周的屁有意思
+
+我们a友太有面子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台长只能和祥父一桌，但是A团那是真被炸过的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 27079#       发表于 2025-2-20 19:33
+
+大墨老师就这样要消失了吗？
+<img src="https://p.sda1.dev/22/129f755a254e01b148fe8fce2f88c1e3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/4c1c1749a1d5382dbc9a4148285d2355/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/dba7cf615b88fa2bb8c59219153d3342/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bfa7837e91b400f720eab5e1eaa3ac0a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 27080#       发表于 2025-2-20 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476818&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-20 19:18</a>
+
+那个时候没有A或许你（也或许我）都还是正常人。</blockquote>
+唉，我一直都是a友，也一直都是正常人啊，，，
+
+当然或许也可以理解为一直都不正常，，，
+
