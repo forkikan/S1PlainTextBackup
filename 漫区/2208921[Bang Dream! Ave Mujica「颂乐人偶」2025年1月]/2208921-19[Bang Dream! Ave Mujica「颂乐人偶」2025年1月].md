@@ -4309,3 +4309,101 @@ CNM 把祥睦回忆放这集
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  HereLink  
+##### 27038#       发表于 2025-2-20 18:34
+
+真要是睦祥传就好了，第五集就应该开始了，嗯拖了这么久，讲个笑话，睦祥传过半了，睦祥间关系情报几乎是0😂😂
+
+*****
+
+####  是谁的书画  
+##### 27039#       发表于 2025-2-20 18:34
+
+今晚丰川祥子看起来是要当虾仁胸手了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 27040#       发表于 2025-2-20 18:35
+
+木箱王朝了
+
+
+*****
+
+####  天空塔书记官  
+##### 27041#       发表于 2025-2-20 18:37
+
+好，终于有点新东西了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 27042#       发表于 2025-2-20 18:37
+
+睦祥是真正的青梅竹马<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 27043#       发表于 2025-2-20 18:39
+
+哎，幼年期的蓝色章鱼...<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 27044#       发表于 2025-2-20 18:39
+
+感想：这么CV表第一的女士还在下线<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+4集啊4集
+
+
+*****
+
+####  废都刽子手  
+##### 27045#       发表于 2025-2-20 18:41
+
+<blockquote>非建政专用号 发表于 2025-2-20 18:31
+意思是母鸡卡2/3的内容是祥睦传
+
+编剧搁这作法复活祥母呢
+</blockquote>
+那后面会有国土练成吗
+
+*****
+
+####  sephal  
+##### 27046#       发表于 2025-2-20 18:41
+
+初华的台词不会是爱情买卖吧
+
+*****
+
+####  swessia  
+##### 27047#       发表于 2025-2-20 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">祥修好睦后，莫小姐就要下线了，只可惜下线过程有点小丑
+
+*****
+
+####  DeltaStriker  
+##### 27048#       发表于 2025-2-20 18:43
+
+你不能只在片没烂的时候才说喜欢无法预测的命运の舞台.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 27049#       发表于 2025-2-20 18:43
+
+初华是不是有点搞笑了，下线这么多集
+

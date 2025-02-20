@@ -16778,3 +16778,20 @@ EVA何尝也不是二女一男一边上学一边打使徒<img src="https://stati
 
 mamimi还把主角当代餐，这剧情放今天怕不是要炸了（
 
+
+*****
+
+####  虛無迴廊  
+##### 7212#       发表于 2025-2-20 18:35
+
+喵安先不说，牢修真是那个带着超酷的东西（kirakira）闯进主角无趣生活的神秘异性吧（顺带长得好看），这种类型角色以往绝大多数是女性，而且杀猪盘概率还挺高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 7213#       发表于 2025-2-20 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476415&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-20 18:29</a>
+日常未必还存在，麻球的人物驱动力不就是打破日常吗</blockquote>
+现在看起来比较接近0080阿尔那种不懂自己平静生活多珍贵的类型，结尾也许会有获得成长后认真地填上进路调查表的画面
+
