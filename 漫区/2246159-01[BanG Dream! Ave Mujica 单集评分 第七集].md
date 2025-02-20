@@ -4731,3 +4731,13 @@ word
 word</blockquote>
 稍微提个意见是Nico能不能也做个平均分的折线图，这样直观不少
 
+
+*****
+
+####  AveMujica  
+##### 459#         楼主| 发表于 2025-2-20 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67470430&amp;ptid=2246159" target="_blank">_47 发表于 2025-2-20 01:18</a>
+稍微提个意见是Nico能不能也做个平均分的折线图，这样直观不少</blockquote>
+没必要，nico基本上只看1率和5率，而本作差别不大
+
