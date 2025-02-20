@@ -12768,3 +12768,62 @@ soyo妈妈属于新钱想往上融圈子租的大平层
 
 我看要不下一部女神异闻录的主角就让睦来当好了
 
+
+*****
+
+####  ads147147  
+##### 27873#       发表于 2025-2-21 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480600&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 00:54</a>
+下一集就又告诉你，老莫在生存本能和写轮眼加持下，被海姐点通任督二脉成为超级吉他人，在意识空间和吉他睦 ...</blockquote>
+有一说一，爱音都能被特训出来。本来就有肌肉记忆的大墨老师练不出来才见鬼了。
+
+所以说第四集的时候别搞什么外援啥的，海玲直接按着睦的头说你给我通宵学，和初华一起特训一下，既满足了live条件也满足了祥子让睦回来的要求。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 27874#       发表于 2025-2-21 07:29
+
+<blockquote>路人庚 发表于 2025-2-21 02:19
+希望这片子也像海猫后面一样能有个威尔出来说前面的剧情那些是真的那些是假的（
+
+话说吉他睦觉得自己吉他不 ...</blockquote>
+後續吉他睦發現自己的吉他還是唱不了歌
+
+只有愛音的吉他物似主人， 比較糖，才能唱出歌
+
+下一集， 千早愛音之死
+
+
+*****
+
+####  Yugao  
+##### 27875#       发表于 2025-2-21 07:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">海玲就像打游戏卡关，没看攻略硬打的人
+
+*****
+
+####  ads147147  
+##### 27876#       发表于 2025-2-21 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480924&amp;ptid=2208921" target="_blank">YFIIII 发表于 2025-2-21 01:54</a>
+楼友们觉得单身妈妈奋斗几年内拿下六本木大平层豪斯、女高中生买完华伦天奴买亚历山大麦昆和小网红联动YSL ...</blockquote>
+最魔幻的感觉可能是，立希要海玲来顶soyo班的时候，可能真的没掏钱。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 27877#       发表于 2025-2-21 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481362&amp;ptid=2208921" target="_blank">Yugao 发表于 2025-2-21 07:34</a>
+海玲就像打游戏卡关，没看攻略硬打的人</blockquote>
+只有风暴才能击倒大树，fnndp.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
