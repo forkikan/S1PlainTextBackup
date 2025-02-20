@@ -3243,3 +3243,18 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 
 剧透在哪出的？
 
+
+*****
+
+####  玖羽  
+##### 26926#       发表于 2025-2-20 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473546&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-20 13:14</a>
+
+恐怕不能这么理解。
+
+像拉素世为什么是爱音先去表态这一点很多分析都指出过。
+
+而素世明确感谢的也是灯对她 ...</blockquote>
+我觉得原因很简单，很多人没注意到爱音那句“灯不惜跟我们吵架也要让你回来”<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
