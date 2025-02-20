@@ -5226,3 +5226,16 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  午夜钓者  
+##### 1939#       发表于 2025-2-20 21:59
+
+ 本帖最后由 午夜钓者 于 2025-2-20 22:03 编辑 
+
+火山引擎新活动 新用户用邀请链接注册能得15元代金券 大约357万token
+[https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=YXY6AFJ5](https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=YXY6AFJ5)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
