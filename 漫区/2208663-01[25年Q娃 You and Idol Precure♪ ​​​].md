@@ -3074,3 +3074,15 @@ cure wing和cure wink挺容易听错
 从什么时候开始男人就变成了悬在大友头顶上的达摩利克斯之剑呢</blockquote>
 蓝神全责（确信）
 
+
+*****
+
+####  modedd  
+##### 550#       发表于 2025-2-20 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67470073&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-2-19 23:45</a>
+蓝神全责（确信）</blockquote>
+看了看凯特君的面相，你这话未免太不吉利了点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
