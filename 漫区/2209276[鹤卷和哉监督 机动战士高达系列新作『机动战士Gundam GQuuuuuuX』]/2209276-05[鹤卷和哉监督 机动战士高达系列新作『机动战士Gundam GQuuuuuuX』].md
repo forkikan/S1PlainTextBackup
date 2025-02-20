@@ -16984,3 +16984,16 @@ GQX中麻球在故事开始前所感受到的和平的日常只不过是一种�
 假使只凭gqx一台高达真有如此伟力，让它在12话篇幅就把拍了快50年都没解决的问题给干完了这种事显然鹤卷 ...</blockquote>
 不一定要做到什么，但是实践是必要的
 
+
+*****
+
+####  wasssf  
+##### 7232#       发表于 2025-2-20 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477119&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-20 19:59</a>
+
+真的就太牛逼了，又放了半集
+
+一共13话都放出来1/3了吧？</blockquote>
+sunrise就得3啊 而且beginning 最后是ending的话 中间也就只能塞一个标题的样子
+

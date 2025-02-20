@@ -5239,3 +5239,14 @@ DEEPSEEK API 用来给LunaTranslator英译中好用不？和DEEPL比如何？目
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  セリア=キルミン  
+##### 1940#       发表于 2025-2-20 22:30
+
+https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=LG6G3MYI
+用了楼上的，试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

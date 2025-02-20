@@ -5825,3 +5825,683 @@ wsd这帮炒作狗，下集继续准时追就完事了——乐完了<img src="h
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yeo  
+##### 27211#       发表于 2025-2-20 22:26
+
+很乐。我宣布我原谅了母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dc5281  
+##### 27212#       发表于 2025-2-20 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不带脑子看这集也很奇怪，这海玲喵梦都换了个人吧
+
+*****
+
+####  oyss  
+##### 27213#       发表于 2025-2-20 22:26
+
+我看了个啥
+
+*****
+
+####  琉璃苑軒風  
+##### 27214#       发表于 2025-2-20 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这几集看下来，大祥才表现得像是真·双重人格。。。。
+
+*****
+
+####  金钱与民主  
+##### 27215#       发表于 2025-2-20 22:26
+
+十五年未有之大烂炒<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Huzps  
+##### 27216#       发表于 2025-2-20 22:26
+
+太好玩了，我必给+2
+
+*****
+
+####  电波通信  
+##### 27217#       发表于 2025-2-20 22:27
+
+看的时候一直在复读边台边台太边台了，不知道在演什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 27218#       发表于 2025-2-20 22:27
+
+大祥果然是疯了。
+
+*****
+
+####  紫苑寺美琴  
+##### 27219#       发表于 2025-2-20 22:27
+
+怎么说呢，脑袋里只剩下一个 乐 字了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFete  
+##### 27220#       发表于 2025-2-20 22:27
+
+好看好看！
+
+*****
+
+####  xuziang111  
+##### 27221#       发表于 2025-2-20 22:27
+
+太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 27222#       发表于 2025-2-20 22:27
+
+这集看得有一种中二病写的黑暗魔导书的味道，各种复杂设定都塞进去，但故事到底在讲什么说不清
+
+*****
+
+####  nt2013  
+##### 27223#       发表于 2025-2-20 22:27
+
+到了最后 就是全员人偶上台 对吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 27224#       发表于 2025-2-20 22:27
+
+初华台词居然真的只有一句
+
+*****
+
+####  thisisaspider  
+##### 27225#       发表于 2025-2-20 22:27
+
+真能重新认识角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 27226#       发表于 2025-2-20 22:27
+
+我i靠，祥子请求重组CCC是真的，他吗的
+
+*****
+
+####  十九号大侠  
+##### 27227#       发表于 2025-2-20 22:27
+
+这集搞笑画面那么多，演技说是不是证实了
+
+*****
+
+####  黑酒杯  
+##### 27228#       发表于 2025-2-20 22:27
+
+这集给我一种自暴自弃的摆烂感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 27229#       发表于 2025-2-20 22:28
+
+ 本帖最后由 影伴光生 于 2025-2-20 22:29 编辑 
+
+素晴2的感觉来了，单数集和双数集的观感完全不一样，就两班人马只看一眼对方做的上一话结尾，然后自由接龙的感觉
+睦莫左右互搏的时候祥子眼角有泪，也太变态了
+KTV里两杯饮料有3+2块冰块，其实是说的至少还有仨人格没出来是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gaayas  
+##### 27230#       发表于 2025-2-20 22:28
+
+比第七集好，看的更乐了，海玲和大墨这是sox素材吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  爱莉希雅  
+##### 27231#       发表于 2025-2-20 22:28
+
+大莫老师没毛病啊，这个舔狗睦就该塞回去，连同这个涂了冰的大象
+
+*****
+
+####  怀沙汨罗  
+##### 27232#       发表于 2025-2-20 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉真可以下判决书了，双重人格设定就是败笔中的败笔，而最恶心的是后面还要继续和这个败笔纠缠不清。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  盐盐盐盐盐  
+##### 27233#       发表于 2025-2-20 22:28
+
+海铃和喵梦这贝斯鼓也好吃啊，上周吃tksy这周海喵贝斯鼓cp系列
+
+mo最后到底要怎么和睦和解已成为am最大看点，睦好像也不怎么喜欢她但op明显最后am成团mo还在，c团话疗也结束了总不能又去集体话疗一次睦c团真的已经没了
+
+初华“双子论”估计也跑不了，不过我蛮早就设想过初华是顶了别人身份上京出道之类的故事（此事已有很多作品都写过），人偶成不了本人，初华顶别人身份的事可能要暴露
+
+*****
+
+####  阿兹尔  
+##### 27234#       发表于 2025-2-20 22:28
+
+现在最首要的目的不是消灭睦吗？
+
+*****
+
+####  cccpprc  
+##### 27235#       发表于 2025-2-20 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478406&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-2-20 22:27</a>
+
+大祥果然是疯了。</blockquote>
+我觉得被反复抽打差不多俩月现在才疯已经属于意志较为坚定了
+
+*****
+
+####  aptx8285144  
+##### 27236#       发表于 2025-2-20 22:29
+
+海铃这行动重组母鸡卡的动机至少我看来很牵强，因为这种神人团队无论是因为ccc还是最初的经历<strong>，即使有念旧母鸡卡也不应该是优先</strong>，<strong>而这话之后她是内鬼假药几乎破产</strong>，导致酒店大乱斗真得是放任混战
+
+*****
+
+####  十九号大侠  
+##### 27237#       发表于 2025-2-20 22:29
+
+还真有sox素材，好好好
+
+*****
+
+####  asion617  
+##### 27238#       发表于 2025-2-20 22:29
+
+作为动画挺烂, 作为给二创提供新素材整挺好的一集
+
+*****
+
+####  usodakedo  
+##### 27239#       发表于 2025-2-20 22:29
+
+话说这集对那个小姨文学的假药是论证了还是否定了来着？
+
+*****
+
+####  半年  
+##### 27240#       发表于 2025-2-20 22:29
+
+叙事节奏细碎，场景跳跃随意，角色行为抽象，互相对话电波
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">风评有点难救了吧
+
+
+*****
+
+####  JustW  
+##### 27241#       发表于 2025-2-20 22:29
+
+以及睦这个角色的抽象程度已经秒了整个邦邦其他所有角色了吧，我实在搞不懂到了第八集还要花近十分钟时间去讲解睦的“底层设定”是图什么
+
+*****
+
+####  阿兹尔  
+##### 27242#       发表于 2025-2-20 22:29
+
+所以初华智商低是不是坐实了
+
+*****
+
+####  千千千千鸟  
+##### 27243#       发表于 2025-2-20 22:29
+
+A团初华继续是空气，C团的白祥时间穿越过来，其他人全是神经病
+
+*****
+
+####  qiyu1234  
+##### 27244#       发表于 2025-2-20 22:30
+
+这下好了
+拧绳姐变成了海铃
+喵梦不置可否
+睦现在是莫提斯抢遥控器
+初华那边是祥子推所谓没所谓
+
+母鸡卡重组的最大的阻力变成了祥子本人
+
+下集看样子还要为了睦搞类似土下座的行动
+哎，服了
+
+*****
+
+####  oyss  
+##### 27245#       发表于 2025-2-20 22:30
+
+这拎包动作,前无古人
+
+*****
+
+####  thisisaspider  
+##### 27246#       发表于 2025-2-20 22:30
+
+双重人格已经上升到多重人格了，感觉已经深入到mujica的主线。可以开始假药了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Azcarlo  
+##### 27247#       发表于 2025-2-20 22:30
+
+虽然这片已经没有人类了，但确实是观感比较好的一集，而且乐子非常多。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+并且最后这个镜头切初华我觉得是有说法的，不会双子说假药成真了吧？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Milarvoz  
+##### 27248#       发表于 2025-2-20 22:30
+
+别管看了啥，就说乐不乐吧。最后海玲那段耳语快给我笑疯了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刑部姬真可爱  
+##### 27249#       发表于 2025-2-20 22:30
+
+双重人格真的是狗屎点子啊，啥都靠双重人格来推真的是无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  The_Ether_  
+##### 27250#       发表于 2025-2-20 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下一集没乌咪零出轨大莫，立希大闹我不看
+
+*****
+
+####  影伴光生  
+##### 27251#       发表于 2025-2-20 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478463&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-20 22:29</a>
+以及睦这个角色的抽象程度已经秒了整个邦邦其他所有角色了吧，我实在搞不懂到了第八集还要花近十分钟时间去 ...</blockquote>
+要是有5个人格，鸡团出谷子就可以一套9个了，跟隔壁9人企划看齐
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  acg_gyanc  
+##### 27252#       发表于 2025-2-20 22:30
+
+说实话现在木头人这条线就给我一种当年看少女歌剧香蕉线的感觉，看着写了一个很牛逼的爆点，实际完全收不住把整个片子都带跑歪了……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 27253#       发表于 2025-2-20 22:30
+
+比起一團狗屎的第七集
+
+這大概算是黑暗火鍋的級數
+
+也可能是我廚的人不用上場
+
+半身是個多重人格超演員， 這麼多年也發現不了，祥子，你就爛
+
+希姐我上一集語氣重了點
+
+海子也是個腦子不正常的， 教結他的臉弄得像潛規則一樣
+
+十五年的大主唱成功發薪！
+
+*****
+
+####  堆雪若叶  
+##### 27254#       发表于 2025-2-20 22:30
+
+这下应该能让所有人都放弃zqsg结束一切战争了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  于干  
+##### 27255#       发表于 2025-2-20 22:30
+
+挺好的，乐
+
+*****
+
+####  6030sylar  
+##### 27256#       发表于 2025-2-20 22:31
+
+<img src="https://img.saraba1st.com/forum/202502/20/223021nxccogfuk0q8co0a.png" referrerpolicy="no-referrer">
+
+<strong>6KSOQ0T@C)X%D{1RHBY`6.png</strong> (41.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 22:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">太油了
+
+<img src="https://img.saraba1st.com/forum/202502/20/223051bseomf7s8l7okf88.png" referrerpolicy="no-referrer">
+
+<strong>%4]9}@SSXG]XRN)$G$][I@8.png</strong> (47.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 22:30 上传
+
+孤寡老黄狗太惨了
+
+*****
+
+####  电波通信  
+##### 27257#       发表于 2025-2-20 22:31
+
+海玲是不是被塑造得太油了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">官方定位就这样啊？
+
+*****
+
+####  thisisaspider  
+##### 27258#       发表于 2025-2-20 22:31
+
+我缺的幼睦幼祥怎么没出现<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 27259#       发表于 2025-2-20 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478493&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 22:30</a>
+
+比起一團狗屎的第七集
+
+這大概算是黑暗火鍋的級數</blockquote>
+没事，老爸也没发现，老妈发现了，祥子没发现也说的过去
+
+*****
+
+####  新HGCG  
+##### 27260#       发表于 2025-2-20 22:31
+
+那啥这集B站同接多少？
+
+
+*****
+
+####  寒星  
+##### 27261#       发表于 2025-2-20 22:32
+
+我觉得睦的情节还行吧，双重人格深化下去也挺有趣的
+
+后半段真恶心坏了，一个角色半集之内自述完前世今生然后谐星化变成工具人，看的太下头了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wangh  
+##### 27262#       发表于 2025-2-20 22:32
+
+好看！有趣！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bieaeml  
+##### 27263#       发表于 2025-2-20 22:32
+
+第八集了给你整点从没铺垫过的设定，而且也看不出这些设定能咋地了，也许柿本是真觉得睦的多人格设定太cool了，自己太天才了吧<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 27264#       发表于 2025-2-20 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478532&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-20 22:31</a>
+
+那啥这集B站同接多少？</blockquote>
+12万加，那么多
+
+*****
+
+####  无音命题  
+##### 27265#       发表于 2025-2-20 22:32
+
+这话看玩就感觉现在一旦试图从台词角色剧情里面找逻辑就头疼
+
+上一话不是说想当人吗，怎么干的都不是人事儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 27266#       发表于 2025-2-20 22:33
+
+这集的海玲给我一种山田凉的既视感<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  怀沙汨罗  
+##### 27267#       发表于 2025-2-20 22:33
+
+这番现在不能带脑子去看，任何正经的分析都会被这监督和编剧强x🧠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当做一种新型的少女偶像乐队cult片看也许才是正确打开方式。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  kaion111  
+##### 27268#       发表于 2025-2-20 22:33
+
+抛开剧情不谈，这集演出正常了点，上集演出节奏就很奇怪
+
+过渡回还是得等后几集再评价
+
+*****
+
+####  aptx8285144  
+##### 27269#       发表于 2025-2-20 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478558&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-2-20 22:32</a>
+
+第八集了给你整点从没铺垫过的设定，而且也看不出这些设定能咋地了，也许柿本是真觉得睦的多人格设定太cool ...</blockquote>
+莫女士还说睦不存在过，我不知道睦党作何感想<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 27270#       发表于 2025-2-20 22:33
+
+这集不就挺不错的吗，多卖卖队内互动
+
+*****
+
+####  木板春香  
+##### 27271#       发表于 2025-2-20 22:33
+
+ 所以就是睦祥二人物语啊，一个个拆解反派的过去，讲述苦难，最后艰难成军，无聊到要死
+
+*****
+
+####  TAQ  
+##### 27272#       发表于 2025-2-20 22:33
+
+初华上一季和灯的星之共鸣不会是她人生智慧巅峰了吧
+
+*****
+
+####  SesameRin  
+##### 27273#       发表于 2025-2-20 22:33
+
+太变态了，从编剧到角色没一个人类<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  pliee  
+##### 27274#       发表于 2025-2-20 22:33
+
+海玲妈是照着节约画的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 27275#       发表于 2025-2-20 22:34
+
+这集一半讲睦底层设定，肉眼可见还远远没讲完；剩下一半海铃紧赶慢赶把自己的角色转变和前世今生全部交代完就去推动睦这条线的发展了。想想也挺变 态的。
+
+*****
+
+####  影伴光生  
+##### 27276#       发表于 2025-2-20 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478492&amp;ptid=2208921" target="_blank">acg_gyanc 发表于 2025-2-20 22:30</a>
+说实话现在木头人这条线就给我一种当年看少女歌剧香蕉线的感觉，看着写了一个很牛逼的爆点，实际完全收不住 ...</blockquote>
+蕉哥哥那个好歹两集就打住了，睦多头已经从第2集一路折腾到第8集了，而且看上去还没完事
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸波白野  
+##### 27277#       发表于 2025-2-20 22:34
+
+这集还真有点乐出无法预测的命运舞台那味，很多被透信息的呈现串联还是比预想有趣，但看预告这意思海玲这母鸡卡黄袍加身行动派是变相刺激了大象加速复辟CCC的进程吗，下集八成又得刀粉毛，可能得珍惜下这集这乐乐乐的氛围了
+
+*****
+
+####  南宮凝香  
+##### 27278#       发表于 2025-2-20 22:34
+
+<blockquote>无音命题 发表于 2025-2-20 22:32
+这话看玩就感觉现在一旦试图从台词角色剧情里面找逻辑就头疼
+
+上一话不是说想当人吗，怎么干的都不是人事儿 ...</blockquote>
+是人就不用想當人了
+
+*****
+
+####  未来起航  
+##### 27279#       发表于 2025-2-20 22:34
+
+琢磨半天这俩人格分别要重建鸡和ccc是什么意思，大概是木头人格需要的是亚撒西开party，莫提斯就想大舞台当戏精？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 27280#       发表于 2025-2-20 22:34
+
+这话之后，海铃不像内鬼，大瞄也不像内鬼，于是就只有初华还有内鬼可能性了，这酒店乱斗就是草台班子的混战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你楼当初内鬼假药这么多有啥意义
+
+
+*****
+
+####  非建政专用号  
+##### 27281#       发表于 2025-2-20 22:35
+
+这样，我个人建议大睦老师去火之国木叶村，找火影的借封印之书学一下多重影分身，然后爱组几个乐队组几个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 27282#       发表于 2025-2-20 22:35
+
+<img src="https://i.miji.bid/2025/02/20/f08751c53be44d534da6ef3b7221dc46.png" referrerpolicy="no-referrer">
+
+自己居然撇对了一部分，现在看来两个人个肯定要融合了，我纯战力论觉得莫缇丝打不过大睦嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 27283#       发表于 2025-2-20 22:35
+
+  我另外一个很在意的事，海玲其实天生很胖随妈吧，不想面对家人，拼命控制饮食才瘦下来的？ 这是我这一集唯一感兴趣的，其他剧情都猜到了，完全没有新鲜感
+
+<img src="https://img.saraba1st.com/forum/202502/20/223538sctcrn1ocvvv4r3o.jpg" referrerpolicy="no-referrer">
+
+<strong>GIO@X8J`B@[O38HZ6~92W_S_tmb.jpg</strong> (51.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 22:35 上传
+
+*****
+
+####  gammatau  
+##### 27284#       发表于 2025-2-20 22:35
+
+接下来是不是要告诉我蜘蛛侠初华其实是毒液假扮的，真的蜘蛛侠初华早就牺牲了
+
+*****
+
+####  cccpprc  
+##### 27285#       发表于 2025-2-20 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478590&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-20 22:33</a>
+
+所以就是睦祥二人物语啊，一个个拆解反派的过去，讲述苦难，最后艰难成军，无聊到要死 ...</blockquote>
+但是二人一个反派一个疯批这都不是无聊了好吧
+
+*****
+
+####  电波通信  
+##### 27286#       发表于 2025-2-20 22:35
+
+喵梦和睦妈那段对话的逻辑也有点迷，我跟不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 27287#       发表于 2025-2-20 22:36
+
+祥子和睦,这俩人直接是两个团的核心,其他都是工具人围着她俩转.
+
+*****
+
+####  WoLodEstt  
+##### 27288#       发表于 2025-2-20 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478305&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-20 22:22</a>
+
+我想问的问题是，MyGO里跟素世接触的到底是睦还是mortis…莫老师，你好惨啊 ...</blockquote>
+应该全是睦，睦在接触吉他后除了小墨的其他人格全都死光光了，知道母鸡卡睦被压力坏后小墨才有上线的机会
+
+*****
+
+####  稀勢のささ  
+##### 27289#       发表于 2025-2-20 22:36
+
+大祥老师不用上班了就是硬气
+

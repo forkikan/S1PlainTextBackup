@@ -1509,3 +1509,11 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 巴代洛克的宝物库有没有解法啊，下面两个宝箱都拿不了
 
+
+*****
+
+####  水边井  
+##### 124#       发表于 2025-2-20 22:35
+
+卡关了，王国洞窟的研究设施在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
