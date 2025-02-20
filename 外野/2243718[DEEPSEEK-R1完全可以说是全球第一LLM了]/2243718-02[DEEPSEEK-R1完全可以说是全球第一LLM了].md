@@ -5250,3 +5250,15 @@ https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSAS
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Idea  
+##### 1941#       发表于 2025-2-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478496&amp;ptid=2243718" target="_blank">セリア=キルミン 发表于 2025-2-20 22:30</a>
+https://www.volcengine.com/activity/deepseek?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=LG6G3MYI
+用了楼 ...</blockquote>
+已用，传火
+[https://www.volcengine.com/exper ... QY5&amp;rc=CZV2L3T4](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=CZV2L3T4)
+

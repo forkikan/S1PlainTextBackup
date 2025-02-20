@@ -16997,3 +16997,133 @@ GQX中麻球在故事开始前所感受到的和平的日常只不过是一种�
 一共13话都放出来1/3了吧？</blockquote>
 sunrise就得3啊 而且beginning 最后是ending的话 中间也就只能塞一个标题的样子
 
+
+*****
+
+####  王留美  
+##### 7233#       发表于 2025-2-20 23:10
+
+ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
+
+<img src="https://img.saraba1st.com/forum/202502/20/230546xiowr8e6g6krz8ie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230552uwwjo43ez98umoe9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (224.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230644r00uuga9qa2v0vtv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230652f2vbo34no8854zco.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230712jyy5aug2282yay3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (225.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230719dnb8mxpmnajxmn0n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (212.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230753h6wap58y600mywy5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230757fdy5cq2ykyyny83a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (190.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230913nso0gy12582cs05s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230920mnueeczugwfiwe7o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230928mvqvkeobb89okfcb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/230932edttjatttgexjyxf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/231006qqks3olppwsyhu8h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (236.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/231014t6wpcwuokmweu768.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (209.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:10 上传
+
+*****
+
+####  Toby_dak  
+##### 7234#       发表于 2025-2-20 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476961&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-20 20:38</a>
+
+5ch上说附加部分有10min，不知真伪</blockquote>
+看了眼电影院的时间，最多多了5分钟。
+

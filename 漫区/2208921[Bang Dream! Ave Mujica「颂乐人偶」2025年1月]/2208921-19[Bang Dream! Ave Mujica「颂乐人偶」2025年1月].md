@@ -8043,3 +8043,455 @@ Pico 不過是出生在沒母雞卡時代的凡夫
 
 墨提斯的复权时刻是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 27443#       发表于 2025-2-20 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479223&amp;ptid=2208921" target="_blank">airline114514 发表于 2025-2-20 23:02</a>
+
+这集一股种自的感觉，大家有头绪吗</blockquote>
+侮辱种自了，种自里主要人物们没有这么稀里糊涂的工具感<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zichuann  
+##### 27444#       发表于 2025-2-20 23:06
+
+每个人都是只有一套便装吗。
+
+*****
+
+####  セト  
+##### 27445#       发表于 2025-2-20 23:07
+
+看完这集有点理解所谓ai写出来的剧本是啥味道了
+
+*****
+
+####  厄神之息  
+##### 27446#       发表于 2025-2-20 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎呦，之前漏油还说祥子别变虾仁饭了，这下好了，吉他木子米自己先痛下杀手杀了一百多，留了一个大莫给她干活，这都不是虾仁饭了好吧，一骑当千，究极狂战士
+
+*****
+
+####  斯大林的拖拉机  
+##### 27447#       发表于 2025-2-20 23:07
+
+也就是说之前祥子说那个会说会笑的睦是应付祥子的专用人格，在睦头人拿到吉他之后被做掉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 27448#       发表于 2025-2-20 23:07
+
+ 本帖最后由 天空塔书记官 于 2025-2-20 23:09 编辑 
+
+不过还是多少有点过了，这集又是消费节约宝，又是消费梦以的，声优的逆输入不是这样玩的啊，唉，岛国的艺能届
+
+就像是看了一集下流整蛊电视节目一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑屑代沟尼亚  
+##### 27449#       发表于 2025-2-20 23:07
+
+ 本帖最后由 屑屑代沟尼亚 于 2025-2-20 23:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睦摸到吉他后就没分裂了吧
+
+估计也就跟小祥弹琴时那么大的年纪
+
+要不是因为祥子的事为了抗压才重新搞了个牢莫出来
+
+吉他睦能主控一辈子吧
+
+那还是现在这个小睦跟祥子呆的久
+
+*****
+
+####  Onelooker  
+##### 27450#       发表于 2025-2-20 23:07
+
+这是不是相当于直接否认了20集睦这个角色
+
+堪称古力特六花的烂活
+
+一码归一码，这多头怪物确实比双重人格这种抽象玩意要强一点，但不可能在一个动画21集整出来，太变态了
+
+*****
+
+####  刑部姬真可爱  
+##### 27451#       发表于 2025-2-20 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479309&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-20 23:07</a>
+
+也就是说之前祥子说那个会说会笑的睦是应付祥子的专用人格，在睦头人拿到吉他之后被做掉了 ...</blockquote>
+细思极恐<img src="https://static.saraba1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 27452#       发表于 2025-2-20 23:08
+
+结果转了一圈，多首的怪物是指千人千面的睦头人。
+
+只能说这几波下来反转的是挺有点快。
+
+*****
+
+####  z2150966  
+##### 27453#       发表于 2025-2-20 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479309&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-20 23:07</a>
+也就是说之前祥子说那个会说会笑的睦是应付祥子的专用人格，在睦头人拿到吉他之后被做掉了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">是的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qiyu1234  
+##### 27454#       发表于 2025-2-20 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还不如解释成海玲也是被鸡团唤醒了内心“真我”的神人，包括本集对莫提斯的耳语也是告诉她是“自己人”，其实鸡团是五个神经病组团，也有op背书，这样解释可能动机上还更通顺更有看点一些
+
+*****
+
+####  南宮凝香  
+##### 27455#       发表于 2025-2-20 23:08
+
+<blockquote>セト 发表于 2025-2-20 23:07
+看完这集有点理解所谓ai写出来的剧本是啥味道了</blockquote>
+AI： 我似人度比她們高
+
+*****
+
+####  大户爱  
+##### 27456#       发表于 2025-2-20 23:08
+
+这集太好笑啦，少女乐队的路子走不通，一走奇幻搞笑番也不是不可以。
+
+目前看来剧透有点真啊、之前不理解祥为了救睦去求大家重组ccc什么意思，重组就重组，什么叫为了救睦。
+
+哈哈哈，这下懂了，这是大墨和睦的生死时速啊。下一集应该就是重组ccc失败，鸡团live，和初华小姨的引子了。
+
+*****
+
+####  阿卡拉兰斯  
+##### 27457#       发表于 2025-2-20 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479306&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-20 23:07</a>
+哎呦，之前漏油还说祥子别变虾仁饭了，这下好了，吉他木子米自己先痛下杀手杀了一百多，留了一个大莫给她干 ...</blockquote>
+可是按这集讲的莫子是祥子女儿啊，你看睦子说要莎了莫子的时候她都哭了
+世上只有妈妈好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风道北来  
+##### 27458#       发表于 2025-2-20 23:08
+
+mygo的第二季是ave mujica就像大白鲨的续作是鲨卷风
+
+*****
+
+####  ntrntr1  
+##### 27459#       发表于 2025-2-20 23:08
+
+这集单看还蛮有意思的。。。
+
+感觉伪人感最强的还是祥子，就这么水灵灵的变成痴情傻白甜了。。。。
+
+睦大师这个设定看多了也懒得吐槽了，加油吧小莫 
+
+初华甚至下集预告还没啥画面，太惨了
+
+*****
+
+####  是谁的书画  
+##### 27460#       发表于 2025-2-20 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479306&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-20 23:07</a>
+
+哎呦，之前漏油还说祥子别变虾仁饭了，这下好了，吉他木子米自己先痛下杀手杀了一百多，留了一个大莫给她干 ...</blockquote>
+那谁能想到是这样子的精神分裂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点变态了
+
+*****
+
+####  dqtql  
+##### 27461#       发表于 2025-2-20 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479296&amp;ptid=2208921" target="_blank">zichuann 发表于 2025-2-20 23:06</a>
+
+每个人都是只有一套便装吗。</blockquote>
+3d动画里一套衣服就是一个新模型，做新模型很麻烦的
+
+*****
+
+####  三尖酸努努  
+##### 27462#       发表于 2025-2-20 23:09
+
+这集当日常喜剧看还怪好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来正确的观看姿势就是不带脑子当喜剧看
+
+*****
+
+####  adw667  
+##### 27463#       发表于 2025-2-20 23:09
+
+现在在我们面前的是：知名搞笑艺人和演员的爱情结晶，月之森的学生，人见人爱的瓷娃娃，新秀乐团颂乐人偶的吉他手，若叶睦们
+
+*****
+
+####  ntrntr1  
+##### 27464#       发表于 2025-2-20 23:09
+
+夺命八头睦
+
+*****
+
+####  whzfjd  
+##### 27465#       发表于 2025-2-20 23:10
+
+这集祥子的死相比第五集前半还重，有种告别了 CCC 终于坦然赴死的感觉。我觉得祥子还是有 B 数的，睦的要求不可能实现，所以只是觉得把自己这辈子赔给睦。下一集我估计最多就是求爱灯演一演或者去说服睦？
+
+*****
+
+####  6030sylar  
+##### 27466#       发表于 2025-2-20 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479234&amp;ptid=2208921" target="_blank">z2150966 发表于 2025-2-20 23:02</a>
+
+草 字幕组四川人是吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这是v总的ai翻译
+
+*****
+
+####  Hchan  
+##### 27467#       发表于 2025-2-20 23:10
+
+海猫两个搁这漫才表演是吧，海玲那段很干的往事陈述更像是一种节目效果，让观众产生和大猫一样“阿，是吗？（无关心）”的效果
+
+*****
+
+####  清江望月  
+##### 27468#       发表于 2025-2-20 23:10
+
+妈的，看这预告下一集大祥老师还真的要去为了大睦老师重组ccc啊？而且还当着人家爱音的面？
+
+还让人看？呸，恶心！我都关着灯！
+
+*****
+
+####  adw667  
+##### 27469#       发表于 2025-2-20 23:10
+
+“是我！杀了我！”
+“回答正确，动手吧”
+
+*****
+
+####  阿卡拉兰斯  
+##### 27470#       发表于 2025-2-20 23:10
+
+说真的，从海铃开始超市扫货开始我脑子里就自己响起来罐头笑声，下集预告莫子睦子对峙更是不知道为什么冒出了两句台词
+我是奶龙
+我才是奶龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 27471#       发表于 2025-2-20 23:11
+
+当初声优访谈信誓旦旦说请大家享受解密的乐趣，把大伙的关注点带偏七集。早说是不同于mygo低气压的搞笑动画不就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 27472#       发表于 2025-2-20 23:11
+
+对了，这一集日本人怎么看的，是不是又感→动↗了，就说了别在乎能不能让他们一起骂
+
+*****
+
+####  阿兹尔  
+##### 27473#       发表于 2025-2-20 23:11
+
+问题来了，是海希的清新感更好还是海喵的漫才组合更好
+
+*****
+
+####  刑部姬真可爱  
+##### 27474#       发表于 2025-2-20 23:11
+
+我已经分不清这到底是编剧的自嗨还是由于某些原因导致的摆烂放飞了，一想到这些剧情还是一创给角色定了型，就为由mygo关注bang企划的新鲜血液感到悲哀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 27475#       发表于 2025-2-20 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479203&amp;ptid=2208921" target="_blank">陶矢 发表于 2025-2-20 23:01</a>
+
+主要是前面几集剧情演的都是莫提斯想保护睦跟这个完全说不通了，太变态了不去想了
+
+—— 来自 nubia NX71 ...</blockquote>
+说得通的，因为莫从来没想过杀死睦，一直觉得自己是睦的附属品，莫一直想着两个人一起活下去
+
+所以海玲这集就是一语道破心中事，直接给莫提斯点醒了，原来我可以把睦撒了
+
+就跟那种古代政变局一样的，门客海玲对二皇子莫提斯说了句“彼可取而代之”，二皇子终于动了对太子动手的心思
+
+
+*****
+
+####  ntrntr1  
+##### 27476#       发表于 2025-2-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479419&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-20 23:11</a>
+
+问题来了，是海希的清新感更好还是海喵的漫才组合更好</blockquote>
+当然是海莫练琴三天三夜
+
+*****
+
+####  JustW  
+##### 27477#       发表于 2025-2-20 23:12
+
+话说还有人上一集觉得祥子下面几集就是骑着小莫开无双去复活母鸡卡走向美好未来了，结果看样子第九集也没有迹象，组团推动力都逐渐和祥子无关了
+
+*****
+
+####  tuatha  
+##### 27478#       发表于 2025-2-20 23:13
+
+玩乐队从来没有开心过的睦现在想复活ccc了看来第七集的威力还真是大，明明在mygo里面约等于什么都没做的
+
+*****
+
+####  fsfs_freeze  
+##### 27479#       发表于 2025-2-20 23:13
+
+这集突然让我想起自己在看前三集时的感慨：”这还是少女乐队吗？“，也不知道为什么反而是中间4567集烂上天时忘记了这句话<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nemuru_baka  
+##### 27480#       发表于 2025-2-20 23:13
+
+祥子落泪<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">“其实我也是双重人格”
+
+
+*****
+
+####  DeltaStriker  
+##### 27481#       发表于 2025-2-20 23:13
+
+我大概猜到海铃那个预告表情是怎么漏出来的了
+“啊对啊 是我让mortis杀了睦 睦以后就不存在了”
+“这样我就可信了吧 愿意和我组一辈子ave mujica了吗 丰川祥子”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  未来起航  
+##### 27482#       发表于 2025-2-20 23:14
+
+之前看到个回答说甚么mygo系的🔥是因为z世代广泛存在阿斯伯格多重人格玉玉症等人群blabla。只能说这么几集看下来要是多重人格都是这片写的这个古神模样那我确实是红脖子臭劳保<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 27483#       发表于 2025-2-20 23:14
+
+<img src="https://img.saraba1st.com/forum/202502/20/231346arz65c55wjn56rml.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:13 上传
+
+对不起，爱音，灯我要带走了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 27484#       发表于 2025-2-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479415&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-20 23:11</a>
+
+对了，这一集日本人怎么看的，是不是又感→动↗了，就说了别在乎能不能让他们一起骂 ...</blockquote>
+这集这么喜剧，应该问他们是不是开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 27485#       发表于 2025-2-20 23:14
+
+  祥子只是大家为了组母鸡卡才用得上的人偶啊
+
+*****
+
+####  斯大林的拖拉机  
+##### 27486#       发表于 2025-2-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479358&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-2-20 23:09</a>
+
+3d动画里一套衣服就是一个新模型，做新模型很麻烦的</blockquote>
+这个时候我们哭批不由得骄傲地挺起了胸膛
+
+*****
+
+####  zhzij111  
+##### 27487#       发表于 2025-2-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479252&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-20 23:03</a>
+大祥：你还是看上我的迈巴赫是吧，先声明老登的钱我也不是能随意支配的 ...</blockquote>
+丰川祥子，你也不想我退队把小睦弄疯吧，又买了一堆衣服没米花了，记得按时交朋友费哦<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 27488#       发表于 2025-2-20 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479457&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-20 23:14</a>
+
+对不起，爱音，灯我要带走了</blockquote>
+”我不是来拆散这个家的，我是来邀请你也加入这个家的“
+
+阳光点，阳光点，怎么就不能一起组小乐队了
+
+*****
+
+####  cxj649  
+##### 27489#       发表于 2025-2-20 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479419&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-20 23:11</a>
+
+问题来了，是海希的清新感更好还是海喵的漫才组合更好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">反正都是贝斯鼓
+
+*****
+
+####  6030sylar  
+##### 27490#       发表于 2025-2-20 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479350&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-2-20 23:08</a>
+
+mygo的第二季是ave mujica就像大白鲨的续作是鲨卷风</blockquote>
+是夺命n+1头鲨
+
