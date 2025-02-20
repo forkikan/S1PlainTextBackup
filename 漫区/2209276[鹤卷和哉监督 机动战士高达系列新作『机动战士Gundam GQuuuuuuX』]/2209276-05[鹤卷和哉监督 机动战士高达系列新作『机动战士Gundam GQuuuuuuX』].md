@@ -16934,3 +16934,23 @@ GQX中麻球在故事开始前所感受到的和平的日常只不过是一种�
 
 而且麻球都得到GQX了，就意味着她不再只是无力的空虚的少女，而获得了巨大的强大的”躯体“。
 
+
+*****
+
+####  王留美  
+##### 7227#       发表于 2025-2-20 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476938&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-2-20 19:34</a>
+ 场外不都是在卖双女主吗，劳修路边一条，估计不是跳反就是中途挂了。祈祷头顶的是鸭子保个小命吧 ...</blockquote>
+鸭子在喵安身上乱爬
+
+*****
+
+####  王留美  
+##### 7228#       发表于 2025-2-20 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476961&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-20 19:38</a>
+ 5ch上说附加部分有10min，不知真伪</blockquote>
+真的就太牛逼了，又放了半集
+一共13话都放出来1/3了吧？
+

@@ -4748,3 +4748,13 @@ bgm能不能实现我们sc都没达到的2.83分</blockquote>
 
 真有小姨那恐怕真要不如SC了😂
 
+
+*****
+
+####  天空塔书记官  
+##### 27087#       发表于 2025-2-20 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
