@@ -2164,3 +2164,57 @@ Ave mujica症候群，我看这不是海猫这是寒蝉啊
 
 离祥子越近越不似人类这个假药居然是真的，下集我们砍谁？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SorakadoAo  
+##### 245#       发表于 2025-2-21 00:39
+
+-2，梅姨阁诗人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Natsunagi  
+##### 246#       发表于 2025-2-21 00:39
+
+这集如果放到第四第五集出直接封神 现在出只能显得像小丑
+
+但如果忘掉前面7集且不带脑子看的话 还是很乐的
+
+并且初华再次下了判断 后面还有爆的
+
+我反正+2了
+
+*****
+
+####  helloo23  
+##### 247#       发表于 2025-2-21 00:39
+
+过去几周像一场梦 O.o 这集意外的还行？接下来要开始紧迫的让7追6了吗
+
+*****
+
+####  Hikiyaga⑧man  
+##### 248#       发表于 2025-2-21 00:41
+
+7集祛魅后这集不细究逻辑乐的程度可以+2了 但是部分对话写得像人机 彩笔监督扣一分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  naynaydes  
+##### 249#       发表于 2025-2-21 00:44
+
++2
+
+月之森神人辈出啊
+
+*****
+
+####  烟花缭乱  
+##### 250#       发表于 2025-2-21 00:46
+
++2，牢莫一定要肘赢啊
+

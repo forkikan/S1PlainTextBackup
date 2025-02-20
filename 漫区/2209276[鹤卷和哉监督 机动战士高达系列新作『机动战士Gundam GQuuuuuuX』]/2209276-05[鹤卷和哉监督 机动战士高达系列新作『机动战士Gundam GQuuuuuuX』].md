@@ -17374,3 +17374,30 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kuriri  
+##### 7251#       发表于 2025-2-21 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480412&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-21 00:31</a>
+
+扯到AB的证言都当作第四面墙捏他就好了</blockquote>
+但是反过来说，应该是会有面具男的吧，还【没有】没有面具男的高达正传作品吧
+
+*****
+
+####  纪寞  
+##### 7252#       发表于 2025-2-21 00:39
+
+还打黑拳的话，下场该打 夏利尔 + 艾格萨贝 的组合了吧，先夏利尔对红高、艾格萨贝对玛秋的分开一对一，最后再合流 2 v 2 的安排吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 7253#       发表于 2025-2-21 00:39
+
+但是我觉得麻球说的“ 变态假面男”……呃，“奇怪面具人”就是特指夏亚
+
+也不知道鸭子天天在修司头顶听麻球说自己是是“奇怪面具人”会不会萌生什么奇怪的感觉（
+

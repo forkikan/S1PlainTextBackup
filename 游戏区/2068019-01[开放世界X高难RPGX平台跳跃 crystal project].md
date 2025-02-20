@@ -1316,3 +1316,35 @@ mercury到过了是吧
 —— 来自  ...</blockquote>
 这个左侧大概是在什么位置？渔场附近吗。
 
+
+*****
+
+####  blackll7  
+##### 112#         楼主| 发表于 2025-2-21 00:35
+
+ 本帖最后由 blackll7 于 2025-2-21 00:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480419&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-21 00:32</a>
+
+这个左侧大概是在什么位置？渔场附近吗。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在断桥附近，很明显的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+QQ20250221-003904.jpg
+(345.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/003943x1nkrnt3zftkw1wo.jpg" referrerpolicy="no-referrer">
+
+QQ20250221-003932.jpg
+(292.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/003946vhzjh2ih3ik21i2j.jpg" referrerpolicy="no-referrer">
+
