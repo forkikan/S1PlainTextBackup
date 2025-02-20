@@ -376,3 +376,21 @@ PoE呢？目前在 ...</blockquote>
 y用火山云的，之前论坛有人分享教程，速度很快
 [https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA](https://mp.weixin.qq.com/s/sgJCcjS8v4l25c6tNCF3bA)
 
+
+*****
+
+####  UCXCU  
+##### 45#       发表于 2025-2-20 10:47
+
+这些第三方软件接入的有些是自己搞的还是找 deepseek 官方合作接入的？比如美的这种家电产品的 app 里面，最近发现有个 AI 居然也接入了 deepseek，根据网上说的测试了一下居然能答出来
+
+<img src="https://img.saraba1st.com/forum/202502/20/104708dmh175w77y792ycv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4772.PNG</strong> (980.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 10:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

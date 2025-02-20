@@ -2245,3 +2245,120 @@ Apart素希纯高光，真妈妈，真立德
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 26841#       发表于 2025-2-20 10:39
+
+<blockquote>未来起航 发表于 2025-2-20 10:32
+我是想不出怎么能严肃看待前几集鸡团解散的戏码的。🐘堕入人间这个剧本，正常人的写法是“我尽一切努力但受 ...</blockquote>
+其实本质就是柿本和独角兽这群人对黑祥的憎恨以及当白祥的舔狗都已经到了非常极端地步（WSD场外的烂炒导致要拖剧情则是另一个原因），这两极描写结果就是鸡团一群神人，GO团的塑造被垫
+
+*****
+
+####  老贝  
+##### 26842#       发表于 2025-2-20 10:41
+
+现在这个情况，已经很难不相信柿本和独角兽是真心憎恨那个想要切割Crychic和不向朋友做出情感反馈的黑祥了。
+
+写成这样就是为了把她往死里踩，踩到白祥不得不出来服软。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 26843#       发表于 2025-2-20 10:41
+
+<blockquote>金钱与民主 发表于 2025-2-20 10:29
+第一话不是过了新手保护期了么？都要上武道馆了。Mujica这个快进键按的太狠了，按牢台的说法就是创业期已 ...</blockquote>
+才一個月，
+
+网遊的新手期也沒過
+
+雞團這就像假面騎士剛拿了新型態
+
+下一話告訴你他在沒演出的地方大顯神威
+
+但集中演的是他新型態被路邊一條暴打
+
+
+*****
+
+####  厚乳果珍爽  
+##### 26844#       发表于 2025-2-20 10:44
+
+<img src="https://img.saraba1st.com/forum/202502/20/104226dp51tkqqzq53p4qq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250220104215.png</strong> (184.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 10:42 上传
+
+总有人滑坡ccc重组的，这句话可是祥子说的
+
+*****
+
+####  z-hunter  
+##### 26845#       发表于 2025-2-20 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466600&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-19 16:42</a>
+
+皇叔跟兩面（傲上而不辱下）二爺 ， 粗魯三爺有更久遠的歷史
+
+後面跟法正貼貼，</blockquote>
+艹，原来丰川孝直平时搞了那么多事捅了那么多幺蛾子
+
+但高松皇叔就是要和她贴贴是这个原因啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+诸葛爱音真是顶不住皇叔的诱惑进了重女群只能一辈子迷路了
+
+*****
+
+####  与太郎  
+##### 26846#       发表于 2025-2-20 10:45
+
+日本人也种命既视感了
+
+<img src="https://img.saraba1st.com/forum/202502/20/104343lt37gbr3qx2gvqr1.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220104335.jpg</strong> (60.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 10:43 上传
+
+有没有看过刀使ノ巫女的，也是这个味吗
+
+<img src="https://img.saraba1st.com/forum/202502/20/104400nxgr0ymmmga6k4iu.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220104237.jpg</strong> (161.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 10:44 上传
+
+*****
+
+####  南宮凝香  
+##### 26847#       发表于 2025-2-20 10:46
+
+另一個問題是白祥在（老鐘）觀眾中的魅力比（幻想中）的黑祥差遠了
+
+白祥也就靠藍冰，順風神，但觀眾都知道一到逆風白祥就要變逃祥了 
+
+重組了3C， 下次再有事的話也就一樣結局
+
+白祥根本就沒有成長
+
+*****
+
+####  天空塔书记官  
+##### 26848#       发表于 2025-2-20 10:47
+
+<img src="https://p.sda1.dev/22/ca8e3a4e4a37693b57b2986fe9c4ad3f/image.jpg" referrerpolicy="no-referrer">
+
+唉…白月光黑祥
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
