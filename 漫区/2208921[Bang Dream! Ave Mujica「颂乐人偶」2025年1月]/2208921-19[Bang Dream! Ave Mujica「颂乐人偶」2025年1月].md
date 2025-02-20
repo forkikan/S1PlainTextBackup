@@ -12357,3 +12357,50 @@ mortis不会弹吉他炸团
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  plok201  
+##### 27842#       发表于 2025-2-21 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478964&amp;ptid=2208921" target="_blank">莉缇娅 发表于 2025-2-20 22:50</a>
+
+话说海铃居然真的是有点油腻的设定吗？
+
+我还以为是单纯酷姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看她和立希的交流描写，这人比想象中整蛊倒是有预谋的
+
+*****
+
+####  PrincessBanana  
+##### 27843#       发表于 2025-2-21 02:02
+
+好消息：鸡团从少歌手中继承了龙骑精神续作称号
+坏消息：龙骑外传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈曼的YY  
+##### 27844#       发表于 2025-2-21 02:02
+
+半身真的是字面意义上的半个身子 真正的唯一归宿 没有特异点祥老师 小黄瓜也会消失 所以那么怕祥老师坏掉
+
+十五年未有之变态半身关系性堂堂揭露
+
+*****
+
+####  セト  
+##### 27845#       发表于 2025-2-21 02:04
+
+海铃这集就像一个大腕下场休息时跳出来暖场的小丑
+
+
+*****
+
+####  syndrome2032  
+##### 27846#       发表于 2025-2-21 02:06
+
+海玲那个劲霸男装是真的就冲着搞笑去的
+
