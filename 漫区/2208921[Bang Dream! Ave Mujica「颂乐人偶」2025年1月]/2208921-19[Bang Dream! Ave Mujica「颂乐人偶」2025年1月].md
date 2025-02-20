@@ -9608,3 +9608,325 @@ A团集合排练可能是在仓库翻服装
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Cortana  
+##### 27588#       发表于 2025-2-20 23:38
+
+现在的睦可能也是演的，为了把小祥拴住。小祥更是百分百演的，害怕自己再次伤害睦。
+
+*****
+
+####  oneoutsider  
+##### 27589#       发表于 2025-2-20 23:38
+
+角色性格和剧情都生硬转变，看不懂了，个人观感不如上集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 27590#       发表于 2025-2-20 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479826&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-20 23:36</a>
+
+你为什么要组乐队？
+
+户山香澄：我听见了星之鼓动
+
+弦卷心：给世界带来笑容</blockquote>
+海铃：为了钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 27591#       发表于 2025-2-20 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479779&amp;ptid=2208921" target="_blank">千本blur 发表于 2025-2-20 23:32</a>
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+前面我赞同你，这集我觉得可以稍微理解下睦妈。
+
+前面几集木头表现出来像是压力下的精神症状，这集演绎出来的像是天生的古神。
+
+前面几集还是现实要素的少女乐队番，现在都一转奇幻搞笑恐怖片了，你看过恐怖片里找医生治古神有好下场的吗？睦妈去找个驱灵师还差不多。
+
+*****
+
+####  zhzij111  
+##### 27592#       发表于 2025-2-20 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479773&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-20 23:32</a>
+我现在反而希望mujica别好起来，省的之后mujica粉丝反清倒算和mygo粉丝吵架</blockquote>
+你要说搞笑片这块反清倒算那肯定打不过，毕竟老一辈喜剧大师已经变成长崎姜维不搞笑了，新一辈精神病喜剧演员太超模了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 27593#       发表于 2025-2-20 23:39
+
+也别高兴的太早了，这个剧情节奏和发展，再加上舅舅的透，我感觉后面爆炸的可能性比玩成了高的多的多。
+
+只是把睦想象成一切的罪魁祸首之后，前面的事情就有很多别的解读了...比较兴奋
+
+*****
+
+####  Mika-S  
+##### 27594#       发表于 2025-2-20 23:39
+
+双重人格的戏码还在发力，留给初华的时间又又又不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 27595#       发表于 2025-2-20 23:39
+
+千人千面的怪物不就是无貌奈亚吗。确实是古神本尊降临了。
+
+*****
+
+####  天空塔书记官  
+##### 27596#       发表于 2025-2-20 23:39
+
+海铃能克制住自己靠的就是间隙性的报复消费，也就是“购物狂综合征”，她多个乐队的兼职收入也能支持她这样发泄
+
+这也算是里剧本的一环<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fsfs_freeze  
+##### 27597#       发表于 2025-2-20 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479821&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-20 23:36</a>
+
+啥好起来，连组队出力最大那位都是工具人（海铃），真要细掰，鸡粉吵得过go粉？ ...</blockquote>
+网络又不是讲理的地方，想吵总会找理由踩你头的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 27598#       发表于 2025-2-20 23:41
+
+突然意识到，硬控soyo三天三夜的，拿鞋子打电话就是演得，想要叫醒吉他睦是真的，但是用鞋子打电话就是为了把soyo扣在自己家，因为大墨老师知道自己这样演soyo肯定不会跑的。后面手机用的那么溜，soyo估计也搞清楚大墨老师演了自己了才放了她几天不管。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ra2163  
+##### 27599#       发表于 2025-2-20 23:41
+
+他这表诉感觉就不是什么双重人格，更像婴儿身体里塞进一个混沌的灵魂，从小就是演子了呀，说的话一点都不能信
+
+*****
+
+####  新HGCG  
+##### 27600#       发表于 2025-2-20 23:41
+
+我好兴奋呀
+
+<img src="https://img.saraba1st.com/forum/202502/20/234117n5fkkicmk4jcrtky.png" referrerpolicy="no-referrer">
+
+<strong>HCO@6[U~N}POU3ZN31J1.png</strong> (33.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:41 上传
+
+
+*****
+
+####  大户爱  
+##### 27601#       发表于 2025-2-20 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479803&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 23:35</a>
+松田圣子和神田沙也加?
+
+这个有一位楼友早就说过了</blockquote>
+别诋毁，人家只是母女关系没那么融洽，怎么呢
+
+沙也加多好多正常一个人啊，rip。
+
+*****
+
+####  北条早苗  
+##### 27602#       发表于 2025-2-20 23:42
+
+制作组真的知道自己在做一个什么动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 27603#       发表于 2025-2-20 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479779&amp;ptid=2208921" target="_blank">千本blur 发表于 2025-2-20 23:32</a>
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+还想着医院的事说明你还在用正常人的角度看这片，换个克苏鲁视角呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  清江望月  
+##### 27604#       发表于 2025-2-20 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479826&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-20 23:36</a>
+
+你为什么要组乐队？
+
+户山香澄：我听见了星之鼓动
+
+弦卷心：给世界带来笑容</blockquote>
+你这是要给大莫老师判死刑啊？嘻嘻我一定要活下去呀，这个梗它妙就妙说这话的人其实已经死了。
+
+*****
+
+####  刑部姬真可爱  
+##### 27605#       发表于 2025-2-20 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479914&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-20 23:42</a>
+
+制作组真的知道自己在做一个什么动画吗</blockquote>
+“史上最狂”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 27606#       发表于 2025-2-20 23:42
+
+大概是松田圣子生下江之岛盾子的世界线
+都是致敬
+
+*****
+
+####  厚乳果珍爽  
+##### 27607#       发表于 2025-2-20 23:42
+
+ 本帖最后由 厚乳果珍爽 于 2025-2-20 23:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202502/20/234220a6kla6pdfzxk7fqq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250220234202.png</strong> (278.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:42 上传
+
+这个八幡神社，就是她家吧？
+
+海玲住的地方其实离家不远，就是怕胖搬出去住了吧？
+
+*****
+
+####  阿卡拉兰斯  
+##### 27608#       发表于 2025-2-20 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479567&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-20 23:21</a>
+真不是我说啊，祥子看着被木子米屠刀处刑的大莫在自己旁边嗷嗷直叫，也不阻拦，就掉两粒小珍珠意思意思。 ...</blockquote>
+这不就是保大保小的问题嘛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 27609#       发表于 2025-2-20 23:43
+
+ 本帖最后由 zhzij111 于 2025-2-20 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479779&amp;ptid=2208921" target="_blank">千本blur 发表于 2025-2-20 23:32</a>
+这若叶睦妈真神人吧，看见自己小孩有精神问题不去医院挂号，反而感叹握草我生了个超级演员我跑了。 ...</blockquote>
+不到3岁就能见人说人话，见鬼说鬼话，还能凭心意杀自己人格的古神，睦妈没逃跑感觉已经是激素发力了，去啥精神病院，应该去寺庙驱邪才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  保真花生  
+##### 27610#       发表于 2025-2-20 23:44
+
+<img src="https://img.saraba1st.com/forum/202502/20/234427j7svm1207zi1aiy4.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (20.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:44 上传
+
+*****
+
+####  grox133  
+##### 27611#       发表于 2025-2-20 23:44
+
+为什么总有人觉得看医生能解决多重人格的问题？更何况睦这种无法在医学上定义为精神病
+
+*****
+
+####  Devola  
+##### 27612#       发表于 2025-2-20 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479826&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-20 23:36</a>
+
+你为什么要组乐队？
+
+户山香澄：我听见了星之鼓动
+
+弦卷心：给世界带来笑容</blockquote>
+破案了
+
+表面是吉他少女
+
+实际是后院魂5
+
+*****
+
+####  adretyu67.  
+##### 27613#       发表于 2025-2-20 23:45
+
+现在看起来睦头人是最不应该出现在这里的。
+
+她应该换个赛道比较合适
+
+*****
+
+####  qwased  
+##### 27614#       发表于 2025-2-20 23:46
+
+这都不是超级系了，明明是搞笑系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 27615#       发表于 2025-2-20 23:46
+
+<img src="https://img.saraba1st.com/forum/202502/20/234554satgafblbdg5bzbg.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250220234533.png</strong> (140.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:45 上传
+
+madane是下次见还是再见啊？
+
+前者还会搞事，后者就真的88了。
+
+*****
+
+####  天空塔书记官  
+##### 27616#       发表于 2025-2-20 23:47
+
+木头的最初人格应该还是接近无口睦的，“莫提斯”可能就是因为祥子才分裂出的第一个人格，为的是应付外部世界给自己造成的压力，以及使用演技，吉他睦则是后边出现占据主导地位的强势人格
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Wwwwwater  
+##### 27617#       发表于 2025-2-20 23:47
+
+<img src="https://p.sda1.dev/22/876019953f0a8dc65ffb427e559d70c9/image.jpg" referrerpolicy="no-referrer">
+
