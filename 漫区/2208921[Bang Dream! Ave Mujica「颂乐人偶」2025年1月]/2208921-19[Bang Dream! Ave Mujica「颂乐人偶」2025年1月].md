@@ -4692,3 +4692,51 @@ bgm能不能实现我们sc都没达到的2.83分
 
 当然或许也可以理解为一直都不正常，，，
 
+
+*****
+
+####  废都刽子手  
+##### 27081#       发表于 2025-2-20 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476880&amp;ptid=2208921" target="_blank">Alicest 发表于 2025-2-20 19:27</a>
+
+我看鸡的期待已经是能烂到什么地步了
+
+bgm能不能实现我们sc都没达到的2.83分</blockquote>
+先和隔壁刹那之花打一打
+
+*****
+
+####  Alicest  
+##### 27082#       发表于 2025-2-20 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476937&amp;ptid=2208921" target="_blank">废都刽子手 发表于 2025-2-20 19:34</a>
+先和隔壁刹那之花打一打</blockquote>
+平庸之烂何德何能和炒作狗比
+
+*****
+
+####  cccpprc  
+##### 27083#       发表于 2025-2-20 19:36
+
+如果按照贴吧舅舅党的说法
+
+那是可以实现2.83分的
+
+*****
+
+####  ads147147  
+##### 27084#       发表于 2025-2-20 19:38
+
+不会真的不如隔壁空气感吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  非建政专用号  
+##### 27085#       发表于 2025-2-20 19:41
+
+炒作狗而已，有兴趣去东映给卡面来打写剧本吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
