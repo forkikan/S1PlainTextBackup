@@ -16847,3 +16847,24 @@ mamimi还把主角当代餐，这剧情放今天怕不是要炸了（
 
 明显对既定未来持否定态度吧，应该不会那么现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 7218#       发表于 2025-2-20 18:57
+
+这种青春期少年少女经历一番之后懂得珍惜当下/日常可贵/anything的套路只有在日常/当下是作为一种真且善的境况时才是有意义的。
+
+GQX中麻球在故事开始前所感受到的和平的日常只不过是一种基于无知/视而不见的幻觉，喵安所代表的难民，以及外部吉翁与联邦的斗争才是真实的一角。
+
+
+*****
+
+####  创始’’’天翔  
+##### 7219#       发表于 2025-2-20 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67475444&amp;ptid=2209276" target="_blank">PrincessBanana 发表于 2025-2-20 16:40</a>
+
+看都看不到是要怎么战起来嘛</blockquote>
+没有必要面对一个必输的局好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，目前哪有什么利于豚豚的消息嘛
+

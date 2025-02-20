@@ -1446,3 +1446,19 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 输出带把弓打弱点前期也能有个五六百的回合均伤。我的前期组队就是火法影法绷带哥，输出到中期都够用。
 
+
+*****
+
+####  塔奇克马  
+##### 118#       发表于 2025-2-20 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473493&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-20 13:06</a>
+
+绷带哥主要用来辅助：
+
+能够上本作最有用的两个状态：幻视和沉默；独有的魔法闪避能力很强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">沉默确实好用
+
+顺便找到DE版本的地图 
+[https://x.com/5uHxQgGcyDUpxw5/status/1346718981986521088](https://x.com/5uHxQgGcyDUpxw5/status/1346718981986521088)
+

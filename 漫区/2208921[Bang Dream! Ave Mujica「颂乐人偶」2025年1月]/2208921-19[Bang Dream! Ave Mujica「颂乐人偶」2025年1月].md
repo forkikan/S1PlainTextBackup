@@ -4464,3 +4464,27 @@ CNM 把祥睦回忆放这集
 
 看看今晚有什么活<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 27057#       发表于 2025-2-20 18:54
+
+初华:所以说我数值面板高，颜值事业俱佳，中之人实力强，而且还是吉他主唱，但是被ban了3集？
+
+*****
+
+####  天空塔书记官  
+##### 27058#       发表于 2025-2-20 18:56
+
+看着起码不会无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 27059#       发表于 2025-2-20 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我的星星主唱啊
+
