@@ -1833,3 +1833,48 @@ MORTIS这么“恨”祥，只能解释为这是白祥离家转校后在和睦�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  与太郎  
+##### 26804#       发表于 2025-2-20 09:16
+
+喵梦的行为当然是制作组设计的，且制作组认为喵梦的行为不是错的
+
+喵梦代表“服务观众”，🐘代表“内在追求”
+
+只不过到目前为止，🐘的行为逻辑和艺术追求没关系，只是逃避现实的手段
+
+假如说要在这个层面完成对偶的话，或许可以让白祥回归之后写出一个惊天地泣鬼神感人至深的曲子
+
+然后喵梦被祥子的艺术追求折服纳头便拜，真心为了a团长远发展而尽力
+
+*****
+
+####  Суслов  
+##### 26805#       发表于 2025-2-20 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471182&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 08:52</a>
+“黑祥”的就不应该存在，或者说就没存在过，祥子就不是杀伐果断的性格，也没法成为“大女主”，不要把观众 ...</blockquote>
+go13的时候祥子可是一个人拉起来母鸡卡，后续的官方宣传也是c位，不是大女主也得是绝对核心吧，现在这个祥子可差的有点远
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 26806#       发表于 2025-2-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471362&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-20 09:13</a>
+你Mygo最后两话和Mujica的一人抱四偶公式海报不自己就在诱导观众往这个方向去想？这个时候说观众擅自期待 ...</blockquote>
+哈 ?
+
+mygo最后几集祥子是大女主 ? 她不还朝睦哈气吗 ? 招募喵梦的时候也差点被怼到下不来台，大女主就这，大怨妇还差不多
+
+至于海报，则可以通过神秘学假药解释
+
+<img src="https://p.sda1.dev/22/204846bed76d83e2d09b087630e97e06/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

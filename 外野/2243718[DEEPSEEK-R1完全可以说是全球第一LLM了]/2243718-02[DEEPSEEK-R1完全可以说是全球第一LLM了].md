@@ -5162,3 +5162,26 @@ DeepSeek终于还是开始考虑融资了！
 
 这种正文不说是谣言的笔法是真恶心啊
 
+
+*****
+
+####  蕾丝  
+##### 1933#       发表于 2025-2-20 09:22
+
+最近发现可以用ds来算梅花易数，太好玩了
+
+你的一款赛博算卦app<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电脑死机  
+##### 1934#       发表于 2025-2-20 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471439&amp;ptid=2243718" target="_blank">蕾丝 发表于 2025-2-20 09:22</a>
+
+最近发现可以用ds来算梅花易数，太好玩了
+
+你的一款赛博算卦app</blockquote>
+晚了，加的某个群里已经有一票人找ds算八字了
+

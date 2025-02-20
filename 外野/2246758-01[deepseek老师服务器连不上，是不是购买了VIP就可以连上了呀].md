@@ -347,3 +347,23 @@ PoE呢？目前在订阅PoE，看要不要换一个
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  1096beam  
+##### 42#       发表于 2025-2-20 09:19
+
+火山之前不是说是假满血而且审查机制较严吗？改回来了？
+
+*****
+
+####  kouym  
+##### 43#       发表于 2025-2-20 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471273&amp;ptid=2246758" target="_blank">thegodra 发表于 2025-2-20 09:02</a>
+
+硅基流动、火山方舟这种是他们自己搭建的，还是分销deepseek官方API的？里面其它的模型呢？
+
+PoE呢？目前在 ...</blockquote>
+都是自己搭的
+
