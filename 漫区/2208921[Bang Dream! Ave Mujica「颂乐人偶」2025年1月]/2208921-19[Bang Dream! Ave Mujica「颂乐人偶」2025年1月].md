@@ -3311,3 +3311,37 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 
 也就是说，是存在素世就此回不来，真的就重新找个人，把她替掉了的可能性的。
 
+
+*****
+
+####  الطائر  
+##### 26932#       发表于 2025-2-20 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473312&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-20 12:39</a>
+
+现在剧情里时间线祥睦还是15岁
+
+—— 来自 鹅球 v3.3.96</blockquote>
+谢谢，下意识按现实时间过了生日算了。剧情里现在是11月来着？
+
+*****
+
+####  玖羽  
+##### 26933#       发表于 2025-2-20 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473686&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-20 13:35</a>
+
+行胜于言，灯被人询问要不要素世的时候，她每次都没答出来，而她想到要拉人回乐队之后立刻就去拉爱音了， ...</blockquote>
+我认为你说的不对，第9话末尾已经相当于Soyo退队了，就差本人的一句话，灯又不傻，怎么可能不知道，即便如此，在立希的逼问下也不回答，意思就是要Soyo
+
+
+*****
+
+####  cxj649  
+##### 26934#       发表于 2025-2-20 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473797&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-20 13:48</a>
+
+谢谢，下意识按现实时间过了生日算了。剧情里现在是11月来着？</blockquote>
+是的，高一11月吧
+
