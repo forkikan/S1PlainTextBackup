@@ -1779,3 +1779,57 @@ ano看了祥子的演出，再加上队友的挽回，决定回到mygo（哪怕�
 
 唯一的问题可能就是把lsl抬咖抬得太高了
 
+
+*****
+
+####  wpcc  
+##### 26799#       发表于 2025-2-20 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471182&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 08:52</a>
+
+“黑祥”的就不应该存在，或者说就没存在过，祥子就不是杀伐果断的性格，也没法成为“大女主”，不要把观众 ...</blockquote>
+错误的 不是我要切出来的 是编剧的大手搞出来的 吃陀螺是黑箱 发蓝冰的是白祥
+
+*****
+
+####  wpcc  
+##### 26800#       发表于 2025-2-20 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471174&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-20 08:52</a>
+
+MORTIS这么“恨”祥，只能解释为这是白祥离家转校后在和睦相处的过程中逐渐对睦的压力造成的这个人格，所以 ...</blockquote>
+莫提斯是从小家教搞出来的 最近才赋予了名字罢了
+
+
+*****
+
+####  与太郎  
+##### 26801#       发表于 2025-2-20 09:10
+
+你别说，我还真看到有人从mygo少得可怜的几个镜头里附会了一个双重人格睦的二设
+
+柿本，你并不孤独，有人能理解你的脑回路口牙
+
+*****
+
+####  非建政专用号  
+##### 26802#       发表于 2025-2-20 09:10
+
+母鸡卡神人团体其实就三部分，大象，祥孝子以及孝子链，大喵
+大象老师最大的错就是把队友的孝心当成自己的领导能力了，误以为自己有能力领导大喵这种不在孝子链上的选手
+流量狗大喵入队没人压制迟早掀面具，换个祥孝子上去，全队跟紧大象领导不动摇，至少炸的晚一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  金钱与民主  
+##### 26803#       发表于 2025-2-20 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471182&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 08:52</a>
+“黑祥”的就不应该存在，或者说就没存在过，祥子就不是杀伐果断的性格，也没法成为“大女主”，不要把观众 ...</blockquote>
+你Mygo最后两话和Mujica的一人抱四偶公式海报不自己就在诱导观众往这个方向去想？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这个时候说观众擅自期待和祥子对待Soyo有何区别？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
