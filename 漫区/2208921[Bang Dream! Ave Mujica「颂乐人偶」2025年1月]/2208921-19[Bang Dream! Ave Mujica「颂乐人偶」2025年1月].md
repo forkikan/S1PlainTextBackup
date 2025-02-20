@@ -2564,3 +2564,99 @@ WSD： 這條街是我說了算還是祥子說了算？
 
 这个答复就…………挺奇特的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也算是一个角度解释
 
+
+*****
+
+####  sakatta  
+##### 26866#       发表于 2025-2-20 11:07
+
+这个解释好像确实没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 26867#       发表于 2025-2-20 11:07
+
+<blockquote>天空塔书记官 发表于 2025-2-20 10:47
+唉…白月光黑祥
+
+—— 来自 鹅球 v3.3.96</blockquote>
+是你祥三顾茅庐求若叶睦加入的，十几年的发小，说句心里话就碰米线了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">挺恶心的
+
+*****
+
+####  zhzij111  
+##### 26868#       发表于 2025-2-20 11:07
+
+ 本帖最后由 zhzij111 于 2025-2-20 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472195&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 10:44</a>
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+滑坡ccc重组其实不是说真用ccc这个名字重组，而是卖狗所谓在迷茫中一起前进的团魂本来就不堪一击，说c团只是个普通的乐队来祛魅，但狗团又有啥特殊的。
+
+现在你真有一辈子团魂的老c团人话说开了，c团遗老纷纷喜极而泣，这c团名义上复不复活又有啥区别，小团体没事就凑一起不带外人玩不也很合理。
+
+解决方法就是漏油说的卖爱祥，早点卖加深下爱祥关系让爱音从最上层加入c团小团体，把宠物猫打包上新c团就是个七人乐队了，这样做不说场外还要组5人c团烂炒，起码只看动画的人观感没问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 26869#       发表于 2025-2-20 11:07
+
+这倒也符合对wsd烂炒营销的预期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 26870#       发表于 2025-2-20 11:09
+
+已知设定里ccc裂成了鸡狗两团。
+那以后只要出现鸡狗对邦的场景那c团就随时可能诈尸。
+
+只能说c团诈尸的场景以后少不了的。
+
+*****
+
+####  老贝  
+##### 26871#       发表于 2025-2-20 11:10
+
+把黑祥当成白祥的某种错误进化形态可能会更好接受一点。前6集就是把错误形态纠正回来所必需的牺牲，用各种方式和角度证明了黑祥存在的错误性，打回白祥之后才轮到她真正的成长。
+写得我都想笑了，要真能做好这个那Mujica这动画某种意义上确实无敌了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 26872#       发表于 2025-2-20 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472478&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-20 11:07</a>
+滑坡ccc重组其实不是说真用ccc这个名字重组，而是卖狗所谓在迷茫中一起前进的团魂本来就不堪一击，说c团 ...</blockquote>
+迷子的特殊在于灯那句“组一辈子乐队”，在于诗超绊，除非wsd把mygo全给吃了，否则迷子就是会一直组下去，所以也没有滑坡解散的必要<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 26873#       发表于 2025-2-20 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472195&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 10:44</a>
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">素祥二人的回旋镖都快成世界概念了，越这么说越完蛋，那个炒作的祥子开心脸，按照EVA最终话的路数，就是“我可以生活在这！crychic可以继续下去！”然后背景音是键盘春日影
+
+*****
+
+####  南宮凝香  
+##### 26874#       发表于 2025-2-20 11:14
+
+白祥= 暴龍獸
+
+黑祥= 喪屍暴龍獸
+
+打回白祥沒問題
+
+你要給她機暴呀
+
