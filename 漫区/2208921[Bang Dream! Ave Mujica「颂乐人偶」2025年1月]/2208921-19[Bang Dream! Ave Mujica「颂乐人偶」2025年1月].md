@@ -3108,3 +3108,57 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 
 灯是组一辈子乐队的发起者，爱音是唯一真心认可一辈子乐队的支持者。所以诗超绊里，灯被初华点醒之后，去主动找的人只有爱音一个，乐奈是自己回来的，希是被乐奈拉回来的，素世甚至被灯潜意识里放弃了。
 
+
+*****
+
+####  玖羽  
+##### 26913#       发表于 2025-2-20 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473270&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-20 12:33</a>
+
+灯是组一辈子乐队的发起者，爱音是唯一真心认可一辈子乐队的支持者。所以诗超绊里，灯被初华点醒之后，去主动找的人只有爱音一个，乐奈是自己回来的，希是被乐奈拉回来的，素世甚至被灯潜意识里放弃了。</blockquote>
+这是错误的，爱音和Soyo在地铁口的对话说了，灯不惜跟我们吵架也要让你回来，被灯说服(顺从灯)之前，爱音和立希的态度可想而知
+
+*****
+
+####  天空塔书记官  
+##### 26914#       发表于 2025-2-20 12:37
+
+灯可没有放弃素世，诗超绊和诗朗诵一半都是为了素世，灯的底色就是“我全都要”，没有任何一个星体能逃脱黑洞的引力
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 26915#       发表于 2025-2-20 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472030&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-20 10:26</a>
+有一假药，睦头人是样子的亲生双子姐妹，祥妈是祥子小姨，祥子失忆忘记了。
+
+线索：两人都是16岁的高一学 ...</blockquote>
+现在剧情里时间线祥睦还是15岁
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 26916#       发表于 2025-2-20 12:40
+
+本话森美奈美戏份很多
+
+*****
+
+####  安娜导函数  
+##### 26917#       发表于 2025-2-20 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472845&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-20 11:42</a>
+现在还能争论散团是谁的锅吗，祥子是根本原因，喵梦是直接原因，挺清晰的吧。
+
+问题是祥子做的事为啥会导致 ...</blockquote>
+你忽略了初华的作用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+要不是初华在仙台车站大战中莫名其妙的跑出来一句"我不会让mujica解散的，有成员退出就意味着解散"，那大喵老师不干了祥子再拉个代打鼓手不就好了嘛，何必解散呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
