@@ -1517,3 +1517,32 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 卡关了，王国洞窟的研究设施在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发条之心  
+##### 125#       发表于 2025-2-20 22:38
+
+<blockquote>水边井 发表于 2025-2-20 22:35
+卡关了，王国洞窟的研究设施在哪里</blockquote>
+王国洞窟传送点向上直走
+
+*****
+
+####  水边井  
+##### 126#       发表于 2025-2-20 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478718&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-20 22:38</a>
+
+王国洞窟传送点向上直走</blockquote>
+刚看到，在一个隐藏门进去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  发条之心  
+##### 127#       发表于 2025-2-20 22:39
+
+<blockquote>水边井 发表于 2025-2-20 21:16
+巴代洛克的宝物库有没有解法啊，下面两个宝箱都拿不了</blockquote>
+解法是左中没有灯的地块和终点地块间有一条地下通道相连
+
