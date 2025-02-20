@@ -1546,3 +1546,25 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 巴代洛克的宝物库有没有解法啊，下面两个宝箱都拿不了</blockquote>
 解法是左中没有灯的地块和终点地块间有一条地下通道相连
 
+
+*****
+
+####  水边井  
+##### 128#       发表于 2025-2-20 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478745&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-20 22:39</a>
+
+解法是左中没有灯的地块和终点地块间有一条地下通道相连</blockquote>
+这个我知道，我能开上面两个门，但是下面那两个门不会开啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alleriawr9  
+##### 129#       发表于 2025-2-20 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479040&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-20 22:54</a>
+这个我知道，我能开上面两个门，但是下面那两个门不会开啊</blockquote>
+←↑↑↑←↓↓抜け道（往復）↓
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

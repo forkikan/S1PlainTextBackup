@@ -4436,3 +4436,17 @@ Happy birthday ましろ！  
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  月島まりな  
+##### 26975#       发表于 2025-2-20 22:48
+
+<img src="https://s2.loli.net/2025/02/20/OIbzZHVsD2eRFc9.png" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/02/20/MpzZXqQyhi7nLok.png" referrerpolicy="no-referrer">
+
+在无人关心的角落还是宣传一下🦋新曲
+[https://www.bilibili.com/video/BV1xfApekEkD/](https://www.bilibili.com/video/BV1xfApekEkD/)
+[https://bmu.lnk.to/Morfonica_Polyphonyscapetw](https://bmu.lnk.to/Morfonica_Polyphonyscapetw)
+<img src="https://s2.loli.net/2025/02/20/hvWdr9DwLXb8KVf.png" referrerpolicy="no-referrer">
+
