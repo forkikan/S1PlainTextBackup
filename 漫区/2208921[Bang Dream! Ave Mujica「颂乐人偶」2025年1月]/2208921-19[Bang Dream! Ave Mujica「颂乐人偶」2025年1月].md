@@ -3258,3 +3258,41 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 而素世明确感谢的也是灯对她 ...</blockquote>
 我觉得原因很简单，很多人没注意到爱音那句“灯不惜跟我们吵架也要让你回来”<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 26927#       发表于 2025-2-20 13:25
+
+贴吧暂无消息<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  老贝  
+##### 26928#       发表于 2025-2-20 13:26
+
+几个喜欢玩剧透的炒作X终于闭嘴了，好死。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HereLink  
+##### 26929#       发表于 2025-2-20 13:32
+
+孔子：你们都去看女乐了？女乐好看吗？能让你们增长学问吗？
+
+2.13：夫子，我去看了
+
+2.14：夫子，女乐不好看，我知错了
+
+2.20：夫子，报个备，女乐还是得看
+
+*****
+
+####  凉良  
+##### 26930#       发表于 2025-2-20 13:32
+
+不会真是WSD在炒吧 
+
