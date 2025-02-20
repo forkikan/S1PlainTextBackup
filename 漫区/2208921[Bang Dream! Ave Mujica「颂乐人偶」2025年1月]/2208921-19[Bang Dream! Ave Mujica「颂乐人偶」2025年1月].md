@@ -10171,3 +10171,242 @@ MyGo 關係不好，
 
 挺恐怖的有一说一。
 
+
+*****
+
+####  Суслов  
+##### 27641#       发表于 2025-2-20 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480059&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 23:55</a>
+這集倒是解答了Why Not CCC 了
+
+MyGo 關係不好，</blockquote>
+小闭灯已经在全力阿斯伯格了，但是跟分裂几百个人格比起来还是太不够看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 27642#       发表于 2025-2-21 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480084&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-20 23:57</a>
+
+只有一种感觉，大祥在逐步变成她最喜欢的人偶，而始作俑者是参与其中所有人的有意为之
+
+挺恐怖的有一说一。 ...</blockquote>
+我觉得这集人偶化得很明显了，跟白祥有很大不同，就像被睦牵着线一样
+
+*****
+
+####  thisisaspider  
+##### 27643#       发表于 2025-2-21 00:00
+
+这集大祥的人偶也没出现<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 27644#       发表于 2025-2-21 00:01
+
+现在大祥不就是睦的牵线人偶吗。
+
+被睦利用负罪感陪自己和推进重建CCC，
+
+*****
+
+####  北条早苗  
+##### 27645#       发表于 2025-2-21 00:01
+
+偷摸零也就玩玩石子，重力大了一点
+睦头这一本正经的在描述解离障碍也太变态了，这还是只剩下5集就完结的少女乐队片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 27646#       发表于 2025-2-21 00:02
+
+睦的多重分裂是症状加重的结果，一开始应该只有本体睦和“莫提斯”，现在占主导的吉他睦则是后边才产生的强势人格，这符合培养强势人格合并自我的治疗手段
+
+只有音乐/吉他才能拯救睦，这点应该是很明确的了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 27647#       发表于 2025-2-21 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷摸零只要没实锤那就顶多是个比一般人更敏感更脱线的个性，睦姐莫姐可是真给你演了出人格吞噬的大戏
+
+*****
+
+####  帆前  
+##### 27648#       发表于 2025-2-21 00:03
+
+想起我之前的双重人格猜想了，虽然剧情不可能猜中，但莫缇斯是小睦小时为了演好孩子诞生的人格这点没错
+<img src="https://p.sda1.dev/22/1c739f0f26aa4a5bfb82ea609292689f/Screenshot_20250220_234600.jpg" referrerpolicy="no-referrer">
+<strong>我大概盘明白这集什么意思了</strong>
+
+意思是若叶睦的人格分裂症是<strong>分为不分主次的阶段和分主副人格的阶段</strong>。
+<img src="https://p.sda1.dev/22/3eca899dca4f7fbd72d888c7b6802d18/Screenshot_20250220_221451_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<strong>本来若叶睦的人格是混乱无主的，在解触到吉他和祥子后，爱音乐的“小睦”这个人格固定下来成为主人格，其他人格被迫消失了。在crychic事件后，“小睦”心里留下了自责，所以在后来mujica事件中，“小睦”将自己存在意义的锚点更换为“祥子的乐队”。</strong>
+<img src="https://p.sda1.dev/22/3eca899dca4f7fbd72d888c7b6802d18/Screenshot_20250220_221451_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+在mujica事件后，由于“为了帮若叶睦”这个原因，“莫缇丝”这个人格得以分裂出来。
+<img src="https://p.sda1.dev/22/fc715101332fc4fd86f19fdc78729874/IMG_20250220_230631.jpg" referrerpolicy="no-referrer">
+
+所以“莫缇丝”才说，“小睦”和“莫缇丝”两个人格是因为祥子才诞生的，意思是若叶睦受crychic和mujica影响才固定了两个人格。
+<strong>主人格“小睦”是以“祥子的乐队”为固定自己存在意义的锚点，而“莫缇丝是以“若叶睦的mujica生活”为固定自己存在意义的锚点。</strong>
+<img src="https://p.sda1.dev/22/c6e29a085f9385329c948a665125860b/IMG_20250220_230646.jpg" referrerpolicy="no-referrer">
+
+所以这集的意思就是，副人格“莫缇丝”是为了“若叶睦的mujica生活”而存在的，如果不能搞好mujica，“莫缇丝”这个人格就要GG了。
+<img src="https://p.sda1.dev/22/d93f174b9b49e2ca7c9fe1cea86ad26f/Screenshot_20250220_220137_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+而主人格“小睦”是以“祥子的乐队”为固定自己存在意义的锚点，<strong>现在“小睦”主人格认为mujica已经没戏了，主张搞crychic。这会让“莫缇丝”因为失去价值而GG，所以莫缇丝为了争取活下来，要主张不搞crychic搞mujica。</strong>
+<img src="https://p.sda1.dev/22/692cd32ef3a73b7d29c36e3e1a8ae0c6/Screenshot_20250220_230443_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+“小睦”主人格就给了“莫缇丝”最后一次机会（不然就要启动杀毒软件了（大概）<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/4270f8e7847b6d43fac65a192dc5933c/Screenshot_20250220_230451_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 厚乳果珍爽| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  zhoujin8584  
+##### 27649#       发表于 2025-2-21 00:03
+
+<blockquote>南宮凝香 发表于 2025-2-20 23:28
+我覺得木莫大戰是只在腦內， 外部看不到
+
+不然祥子的似人度也要提高</blockquote>
+看得到，参考之前的滚楼梯，所以祥子才会哭，睦莫发病前莫说的话就是“我疯了都是因为你”这样
+
+*****
+
+####  zhigui  
+##### 27650#       发表于 2025-2-21 00:03
+
+突然想到一件事
+
+海玲当时看手机11：59到12：00
+
+其实不是自律
+
+已经是为了节食饿的要命 反复看手机时间祈祷快到12：00然后去吃蛋白粉吧
+
+*****
+
+####  fsfs_freeze  
+##### 27651#       发表于 2025-2-21 00:04
+
+那原来op里大祥的笑不是白祥的笑，是人偶的笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过感觉进了这神人乐队这两者基本上等价了
+
+*****
+
+####  天空塔书记官  
+##### 27652#       发表于 2025-2-21 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480149&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-21 00:03</a>
+突然想到一件事
+
+海玲当时看手机11：59到12：00
+
+其实不是自律</blockquote>
+这点也是和喵梦存在反差的，大喵才是真的自律<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 27653#       发表于 2025-2-21 00:04
+
+说实话，这睦的人设是彻底毁了吧？mygo的睦是这样的人？？？
+
+“祥子一定会为我重建crychic的”
+
+那你给soyo之前mygo演唱会完了送黄瓜干嘛？不是祝她新团幸福？现在要拆了mygo搞你的crychic？还是让祥子替你搞？啊？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  第贰个十年  
+##### 27654#       发表于 2025-2-21 00:04
+
+我的评价是，这跟寒蝉卒的魔法少女大战有什么区别？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你要说乐不乐，那是挺乐的，寒蝉卒的交叉拳我还乐疯了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都这样了，那不是只能顺从了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  seki_m  
+##### 27655#       发表于 2025-2-21 00:05
+
+<img src="https://img.saraba1st.com/forum/202502/21/000459d1gaeoi5o93g3eio.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250221-000424.png</strong> (775.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 00:04 上传
+
+*****
+
+####  Cavaliar  
+##### 27656#       发表于 2025-2-21 00:05
+
+祥子现在真就是满脑子只有睦的白祥人偶，成oblivionis了
+
+*****
+
+####  DeltaStriker  
+##### 27657#       发表于 2025-2-21 00:05
+
+<img src="https://p.sda1.dev/22/6637714a0c2fe140baedf185df3e4dc8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  高妹控  
+##### 27658#       发表于 2025-2-21 00:05
+
+不愧是天才，从小就在演，三岁就被家人发现了，这下理解喵梦的心情了，努力在天赋面前不值得一提<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+米泽茜是真能夹，喵梦这嗲嗲的声线和茜姨长相反差感越来越大了，某种意义上讲也是做配音的天才
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  单脚着地  
+##### 27659#       发表于 2025-2-21 00:07
+
+四集之前不少人心疼睦被大象老师伤害，指责大象老师没能力硬揽活，结果没想到这也能回旋镖，变成人偶看着自己人格分裂大战的神人青梅竹马，大象老师被坑惨了也只能欲哭无泪
+
+*****
+
+####  北条早苗  
+##### 27660#       发表于 2025-2-21 00:07
+
+睦头这塑造还能不毁吗，狗动画里你能看出她半点DID的迹象吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么不善言语一颗心两面受伤，不开心是给大祥打掩护，自愿被PUA和送黄瓜是真心为爽，现在已经是纯抽象角色了
+

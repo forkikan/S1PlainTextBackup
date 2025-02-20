@@ -2031,3 +2031,46 @@ Ave mujica症候群，我看这不是海猫这是寒蝉啊
 
 除此之外第八集本身内容倒还行，作为过渡回整的活不错，有几个地方的演出甚至可圈可点。但母鸡卡可只剩下五集了，现在这个走向后面真的能写好吗，多半只能回到女女关系性轻拿轻放了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 231#       发表于 2025-2-20 23:58
+
+ 本帖最后由 ArcadiaMartyr 于 2025-2-21 00:00 编辑 
+
+说实话，这睦的人设是彻底毁了吧？mygo的睦是这样的人？？？
+“祥子一定会为我重建crychic的”
+那你给soyo之前mygo演唱会完了送黄瓜干嘛？不是祝她心团幸福？现在要拆了mygo搞你的crychic？还是让祥子替你搞？啊？
+
+<img src="https://img.saraba1st.com/forum/202502/20/235804me7fnbxn8aw7ny2f.png" referrerpolicy="no-referrer">
+
+<strong>Image_1214451883162925.png</strong> (152.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  今城果天  
+##### 232#       发表于 2025-2-20 23:59
+
+-2
+不知道怎么看睦了
+要不把这音乐标签删了吧
+
+
+*****
+
+####  swessia  
+##### 233#       发表于 2025-2-21 00:05
+
+不知道该打多少分
+
+在思考，我到底厨的是哪个睦<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
