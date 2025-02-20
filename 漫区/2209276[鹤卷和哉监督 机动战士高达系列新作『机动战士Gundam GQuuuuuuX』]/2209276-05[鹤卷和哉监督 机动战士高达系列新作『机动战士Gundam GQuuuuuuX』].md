@@ -16563,3 +16563,11 @@ cca吧，和出渊裕一起拍访谈前看了开头几分钟<img src="https://p.
 
 看了看香港现在还有《王立宇宙军》在上映，狠狠买票<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 7193#       发表于 2025-2-20 13:56
+
+看了一下拼装部的胶，真是丑到生理不适啊，怎么会有这种配色的东西<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
