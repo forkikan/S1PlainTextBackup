@@ -3486,3 +3486,61 @@ ccc三个人在mygo，把积分带走了是这样的
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 要是某人是永久加兩隊你再看看是不是敵我矛盾？
 
+
+*****
+
+####  wpcc  
+##### 26949#       发表于 2025-2-20 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474419&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 14:54</a>
+
+要是某人是永久加兩隊你再看看是不是敵我矛盾？</blockquote>
+团推先打起来吧笑死
+
+*****
+
+####  是谁的书画  
+##### 26950#       发表于 2025-2-20 14:59
+
+今晚再怎么样也不会咋了，顶多吊两句。
+
+观众的预期早就谷底了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 26951#       发表于 2025-2-20 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474419&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 14:54</a>
+要是某人是永久加兩隊你再看看是不是敵我矛盾？</blockquote>
+冷知识，到目前为止RAS的主唱瑞依也还是在其他乐队有固定位置的雇佣兵<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  达达葱2  
+##### 26952#       发表于 2025-2-20 15:04
+
+图透的人被抓了所以不能发了对吧
+
+*****
+
+####  南宮凝香  
+##### 26953#       发表于 2025-2-20 15:04
+
+<blockquote>天空塔书记官 发表于 2025-2-20 14:59
+冷知识，到目前为止RAS的主唱瑞依也还是在其他乐队有固定位置的雇佣兵
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+其他樂隊是有臉角色組的嗎？
+
+3C 跟打工樂隊的分別是它抽調了 雞 狗太多人了
+
+要是只抽一個成員那還好說
+
+3C 是直接抽掉了狗大半隊
+
+連練習也做不了的地步
+
