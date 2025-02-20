@@ -2859,3 +2859,107 @@ WSD： 這條街是我說了算還是祥子說了算？
 
 剩下6集会有大逆转么？还对制作组抱有信心？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 26891#       发表于 2025-2-20 11:39
+
+<blockquote>天空塔书记官 发表于 2025-2-20 11:33
+但有一点事实是无法否认的，CCC未来注定不会有多少新的产出，而灯一直在作新的词，立希也在谱新的曲，其 ...</blockquote>
+WSD： 我又沒有說不出新歌
+
+*****
+
+####  zhoujin8584  
+##### 26892#       发表于 2025-2-20 11:39
+
+本集播前fanart
+
+睦莫水仙
+
+<img src="https://img.saraba1st.com/forum/202502/20/113926gyze1dy1lp5pjk5p.jpg" referrerpolicy="no-referrer">
+
+<strong>1740022701571.jpg</strong> (527.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 11:39 上传
+
+*****
+
+####  syndrome2032  
+##### 26893#       发表于 2025-2-20 11:40
+
+祥子能力还是没问题的，但是鸡团关键还是少个妈角色当和事佬或者说少个缓冲带。等等，该不会准备让代表爱的大猫老师上吧。
+
+*****
+
+####  阿兹尔  
+##### 26894#       发表于 2025-2-20 11:40
+
+剧透是不是等会就出了？
+
+*****
+
+####  半年  
+##### 26895#       发表于 2025-2-20 11:40
+
+<img src="https://img.saraba1st.com/forum/202502/20/114014xgt9fnkskt77ict9.jpg" referrerpolicy="no-referrer">
+
+<strong>GkJVYvkbAAAuYiY.jpg</strong> (317.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 11:40 上传
+
+[https://x.com/ssami0617/status/1892168684141162664/photo/1](https://x.com/ssami0617/status/1892168684141162664/photo/1)
+
+*****
+
+####  天空塔书记官  
+##### 26896#       发表于 2025-2-20 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472718&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-20 11:30</a>
+还有就是制作组确实认为自己在写大女主，不管是正面的主pv、第一集开篇的定场诗，还是侧面的鸡团三路人
+
+ ...</blockquote>
+祥林嫂也是故事讲述的主体，所以她也是大女主吗 ？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子是A团的绝对核心是没错，但这不说明她就必须是凡事一把抓的大女主，她的故事不是她自己一个人的故事，而是她和乐队其他四个人的故事，因为五个人的乐队才是乐队，少一个都不行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  HereLink  
+##### 26897#       发表于 2025-2-20 11:42
+
+现在还能争论散团是谁的锅吗，祥子是根本原因，喵梦是直接原因，挺清晰的吧。
+
+问题是祥子做的事为啥会导致这种局面，简直匪夷所思，这个双重人格在剧情上还是太离谱了。节目上压制喵梦，酒店里呛住初华，还有海铃“想找个归宿”的情报，祥子更是被吓得连话都说不清楚了，结果居然是个被两次速刷的心智不健全菜鸡😅
+
+太难洗了，除非后面惊天找补，不然这就是为了炸团嗯写出来的，不搞点机械降神睦就算真的压力爆了这团都很难炸。
+
+
+*****
+
+####  天空塔书记官  
+##### 26898#       发表于 2025-2-20 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472816&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-20 11:39</a>
+WSD： 我又沒有說不出新歌</blockquote><blockquote>注定不会有多少新的产出</blockquote>
+找人给企划写歌也是要花钱的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  未来起航  
+##### 26899#       发表于 2025-2-20 11:44
+
+狗团有没有团魂是一回事，把ccc当威胁就真的搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+q群就见到有人非得让爱音下一集跟大祥摊牌讲明不然就要破防。退一步讲，如果真的如你所想ccc成小团体了，到时你爱音摊这个牌还能拦住别人偷情不成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
