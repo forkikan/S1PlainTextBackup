@@ -3845,3 +3845,33 @@ WSD： 結束了？！！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  枪聆弹语  
+##### 26983#       发表于 2025-2-20 17:01
+
+原来南瓜哥说蹦跶不了多久是内鬼蹦跶不了多久吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HereLink  
+##### 26984#       发表于 2025-2-20 17:06
+
+<blockquote>枪聆弹语 发表于 2025-2-20 17:01
+原来南瓜哥说蹦跶不了多久是内鬼蹦跶不了多久吗</blockquote>
+甚至包括了自己是吧
+
+*****
+
+####  cxj649  
+##### 26985#       发表于 2025-2-20 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67475585&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-20 16:51</a>
+
+母鸡卡吧，母鸡卡内鬼吧，母鸡卡内鬼爆料吧，反母鸡卡吧，反反母鸡卡吧。。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不是 母鸡卡，但还是已经有了
+
+丰川祥子和千早爱音系列
+
