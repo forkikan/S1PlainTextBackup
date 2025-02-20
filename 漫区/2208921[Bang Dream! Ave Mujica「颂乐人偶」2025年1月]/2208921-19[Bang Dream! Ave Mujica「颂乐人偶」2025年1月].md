@@ -5421,3 +5421,407 @@ Persona！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" 
 
 莫女士这是要被睦杀了？<strong>一会而说睦不存在，一会儿说莫女士和睦都是不同的角色</strong>，感觉现在又回到母鸡卡的氛围，反正和音乐番感觉没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mkntoil  
+##### 27161#       发表于 2025-2-20 22:16
+
+这是睦的身体，该滚的是你吧！
+
+*****
+
+####  阿兹尔  
+##### 27162#       发表于 2025-2-20 22:16
+
+所以海铃为啥想和神经病组乐队啊？
+
+*****
+
+####  hysjmr  
+##### 27163#       发表于 2025-2-20 22:16
+
+唉，我居然没去看动画而是点进了这里<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先日日  
+##### 27164#       发表于 2025-2-20 22:17
+
+最难绷的一次<img src="https://p.sda1.dev/22/7a334c639427e9a5d330a713f5d0506c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 27165#       发表于 2025-2-20 22:17
+
+太好看了这集，从头乐到尾
+
+*****
+
+####  非建政专用号  
+##### 27166#       发表于 2025-2-20 22:17
+
+已经...没有...人类了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  新HGCG  
+##### 27167#       发表于 2025-2-20 22:17
+
+什么你也是款姐吗！
+
+*****
+
+####  阿兹尔  
+##### 27168#       发表于 2025-2-20 22:18
+
+原来海铃是真的为了钱啊
+
+*****
+
+####  icoywt  
+##### 27169#       发表于 2025-2-20 22:18
+
+这集真有意思啊，乐趣性满分<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高贵的  
+##### 27170#       发表于 2025-2-20 22:19
+
+商业乐队，启动！
+
+*****
+
+####  凉良  
+##### 27171#       发表于 2025-2-20 22:19
+
+不得不说 我看笑了 不带脑子确实很乐
+
+*****
+
+####  595505568  
+##### 27172#       发表于 2025-2-20 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是神人，报复消费的 精分的 木偶化的 确实实力派的 完全失踪的（
+
+*****
+
+####  影伴光生  
+##### 27173#       发表于 2025-2-20 22:19
+
+海子姐台词和表情回收的过于随意，真的会有人猜到应当海铃是喝汽水的结果吗？？？？？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenqqex  
+##### 27174#       发表于 2025-2-20 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478249&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-20 22:19</a>
+
+海子姐台词和表情回收的过于随意，真的会有人猜到应当海铃是喝汽水的结果吗？？？？？
+
+—— 来自 鹅球 v3. ...</blockquote>
+那是蛋白粉
+
+*****
+
+####  保真花生  
+##### 27175#       发表于 2025-2-20 22:20
+
+看动画不是图一乐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  595505568  
+##### 27176#       发表于 2025-2-20 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478249&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-20 22:19</a>
+海子姐台词和表情回收的过于随意，真的会有人猜到应当海铃是喝汽水的结果吗？？？？？
+
+—— 来自 鹅球 v3. ...</blockquote>
+不能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是啊；当年mygo很多台词回收羊很随便啊
+
+*****
+
+####  usodakedo  
+##### 27177#       发表于 2025-2-20 22:20
+
+这段我真看过，把人格和表演的设定硬融在一起，造成非常多的槽点然后剧情大崩溃，此事在最新最硬的坂本的日常里真有
+
+*****
+
+####  pliee  
+##### 27178#       发表于 2025-2-20 22:20
+
+海玲也是神人
+
+*****
+
+####  595505568  
+##### 27179#       发表于 2025-2-20 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478255&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-2-20 22:20</a>
+那是蛋白粉</blockquote>
+表情是喝汽水喝的
+
+*****
+
+####  新HGCG  
+##### 27180#       发表于 2025-2-20 22:21
+
+原来倒计时的表情是忍打嗝吗！！！！！！！！！！！！！！！！！！！！
+
+*****
+
+####  阿兹尔  
+##### 27181#       发表于 2025-2-20 22:21
+
+我果然说的对啊，母鸡卡剩下3人是最适合出来当相声jk3人组的
+
+*****
+
+####  黑酒杯  
+##### 27182#       发表于 2025-2-20 22:21
+
+想采访下睦厨心情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 27183#       发表于 2025-2-20 22:21
+
+海铃仿佛像赶时间一样疯狂地想办法完成自己的角色塑造，难绷
+
+*****
+
+####  my707776310  
+##### 27184#       发表于 2025-2-20 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就说乐没乐吧,这集出来谁还在意之前那堆玩意儿
+
+*****
+
+####  ykyin09  
+##### 27185#       发表于 2025-2-20 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">第九集预告最后那个金毛不会是真初华吧，真搞小姨文学啊
+
+*****
+
+####  595505568  
+##### 27186#       发表于 2025-2-20 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478283&amp;ptid=2208921" target="_blank">黑酒杯 发表于 2025-2-20 22:21</a>
+想采访下睦厨心情</blockquote>
+我想问的问题是，MyGO里跟素世接触的到底是睦还是mortis…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫老师，你好惨啊
+
+*****
+
+####  未来起航  
+##### 27187#       发表于 2025-2-20 22:23
+
+木头又在烂炒<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">噶掉一个人格是什么大事么？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 27188#       发表于 2025-2-20 22:23
+
+这一集的节奏出问题了吧，完全不明所以，台词也非常刻意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">水平真是一集比一集差。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  人又如何  
+##### 27189#       发表于 2025-2-20 22:23
+
+这小品不比第7集好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HereLink  
+##### 27190#       发表于 2025-2-20 22:23
+
+有没有什么线索能否定掉小姨说，这个我真的不想看到，其他的都还好😃
+
+*****
+
+####  影伴光生  
+##### 27191#       发表于 2025-2-20 22:23
+
+wsd这帮炒作狗，下集继续准时追就完事了——乐完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Chenlh  
+##### 27192#       发表于 2025-2-20 22:23
+
+我竟然看了一集全是mijica成员在行动，而且没有吵架（即使吵架也吵得很搞笑）的《ave mujica》，我太感动了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  borrowface  
+##### 27193#       发表于 2025-2-20 22:24
+
+海玲是搞笑角色啊
+
+*****
+
+####  ape-apple  
+##### 27194#       发表于 2025-2-20 22:24
+
+太有意思了，我得看一下今天这集，虽然已经弃两集了，希望不吐着看完来自: iPhone客户端
+
+*****
+
+####  零壹贰叁  
+##### 27195#       发表于 2025-2-20 22:24
+
+握草，真好看啊
+不过角色厨大概率会喷爆
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要演到莫提斯变主人格我真要打高分了，谁敢想睦头人是次人格啊
+
+*****
+
+####  阿兹尔  
+##### 27196#       发表于 2025-2-20 22:24
+
+无敌了，压缩得这么紧，只能把剩下几个人的塑造像催熟一样
+
+*****
+
+####  cybernetics31  
+##### 27197#       发表于 2025-2-20 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烂完了
+
+*****
+
+####  JustW  
+##### 27198#       发表于 2025-2-20 22:24
+
+说实话不太懂这片到底想拍什么
+
+*****
+
+####  Libartas  
+##### 27199#       发表于 2025-2-20 22:24
+
+这集真是各种意义上的神人动画，给我看爽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 27200#       发表于 2025-2-20 22:24
+
+确实要图一乐，不能带脑子看啊
+
+
+*****
+
+####  半年  
+##### 27201#       发表于 2025-2-20 22:24
+
+<img src="https://img.saraba1st.com/forum/202502/20/222452dqmf52f5jezf8f31.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250220222406.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 22:24 上传
+
+*****
+
+####  Litccc  
+##### 27202#       发表于 2025-2-20 22:25
+
+还以为mortis真死了，后半集都是木头人在演，看了最后的预告才发现mortis没死啊，无聊无聊🥱
+
+不过这集音监终于上线了，光论单集体验的话应该是母鸡卡开播以来最好的一集<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  airline114514  
+##### 27203#       发表于 2025-2-20 22:25
+
+古神回，最掉san的一集
+
+*****
+
+####  影伴光生  
+##### 27204#       发表于 2025-2-20 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67478335&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-2-20 22:24</a>
+握草，真好看啊
+不过角色厨大概率会喷爆
+真要演到莫提斯变主人格我真要打高分了，谁敢想睦头人是次人格啊 ...</blockquote>
+都抛出了更多人格的可能性，不妨大胆一点，最后是第三个人格把目前的睦莫都干掉上位
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 27205#       发表于 2025-2-20 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+先让我整理一下
+
+*****
+
+####  葉月翠名  
+##### 27206#       发表于 2025-2-20 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完全不知道这片子在表达什么了，是不是在某些人看来，这剧情属于女女之间的我操你你草我多人SOX
+
+太变态太亏贼了。
+
+*****
+
+####  怀沙汨罗  
+##### 27207#       发表于 2025-2-20 22:25
+
+另外有人感觉到预算问题吗？有几个静止和平移镜头非常生硬，明明有更好的处理的。这预算是被前四集烧光了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  tjshibc21  
+##### 27208#       发表于 2025-2-20 22:25
+
+这集挺乐 本着初华才是最后boss的观点
+
+不知道后面篇幅讲不讲的完 节奏已经很快了
+
+*****
+
+####  thisisaspider  
+##### 27209#       发表于 2025-2-20 22:26
+
+忍不住给+2了 什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 27210#       发表于 2025-2-20 22:26
+
+懂了，若叶家生了个agi出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
