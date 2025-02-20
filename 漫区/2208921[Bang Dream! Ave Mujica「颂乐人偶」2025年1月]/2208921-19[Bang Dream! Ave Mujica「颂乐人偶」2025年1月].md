@@ -4858,3 +4858,95 @@ b站已经有自己重写剧本+ai配音的第七集片段了，给番剧打mod�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏啦怎么感觉3次元这边ccc也比go更...
 
+
+*****
+
+####  6030sylar  
+##### 27099#       发表于 2025-2-20 21:16
+
+<img src="https://img.saraba1st.com/forum/202502/20/211622wgufbfns5q3xf3bq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 21:16 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 安娜导函数| + 1|你们5个人把日子过好比什么都强.|
+
+查看全部评分
+
+*****
+
+####  楠城旧篱  
+##### 27100#       发表于 2025-2-20 21:16
+
+<blockquote>十万年魂环 发表于 2025-2-20 20:05
+能点首时间煮雨吗</blockquote>
+提醒我了，开始循环
+
+*****
+
+####  CRYCHIC  
+##### 27101#       发表于 2025-2-20 21:18
+
+请支持有团魂的三次元乐队CRYCHIC
+
+
+*****
+
+####  wpcc  
+##### 27102#       发表于 2025-2-20 21:20
+
+go友在疑惑了，为什么C团三次元那么团结
+
+*****
+
+####  Versedust  
+##### 27103#       发表于 2025-2-20 21:22
+
+lsl全责（不是
+
+*****
+
+####  wpcc  
+##### 27104#       发表于 2025-2-20 21:23
+
+采访必看 cv盾甩锅啊
+
+*****
+
+####  与太郎  
+##### 27105#       发表于 2025-2-20 21:23
+
+武士道只发保底工资导致lsl没有干劲
+
+*****
+
+####  6030sylar  
+##### 27106#       发表于 2025-2-20 21:23
+
+<img src="https://img.saraba1st.com/forum/202502/20/212317n9s2o09h1grkgkzr.png" referrerpolicy="no-referrer">
+
+<strong>H[WF%}A0Z4]`R3S137~G76M.png</strong> (52.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/212339m44df44dgbvyg222.png" referrerpolicy="no-referrer">
+
+<strong>3PD]Q7~42Q0C5{MS@526LD2.png</strong> (3.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 21:23 上传
+
