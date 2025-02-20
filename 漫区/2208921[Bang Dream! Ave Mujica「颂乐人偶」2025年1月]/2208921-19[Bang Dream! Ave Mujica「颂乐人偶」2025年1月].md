@@ -3385,3 +3385,61 @@ mujica对人物的态度可以提炼为一个原则：当情节的下一个节�
 
 一转转进鸡去了 死海文书后面也没了啊
 
+
+*****
+
+####  adretyu67.  
+##### 26940#       发表于 2025-2-20 14:37
+
+本来讲的就不是狗而是CCC，奈何CCC的大部分成员都去狗了。
+
+从对偶说角度出发，狗团估计下面劝初华估计还要帮点忙吧。
+
+*****
+
+####  cxj649  
+##### 26941#       发表于 2025-2-20 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474001&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-20 14:10</a>
+
+说一句，原作不怕成仇家，就怕被作者钦定只有恨没有爱或者真的不熟，无头骑士异闻录里，平岛和静雄跟临原折 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是不是不熟啊，还是很扭曲的
+
+*****
+
+####  天空塔书记官  
+##### 26942#       发表于 2025-2-20 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474001&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-20 14:10</a>
+说一句，原作不怕成仇家，就怕被作者钦定只有恨没有爱或者真的不熟，无头骑士异闻录里，平岛和静雄跟临原折 ...</blockquote>
+无头那俩不一眼纯恨吗，我一直以为腐女就好这口，成田良悟又不是耽美写手
+
+至于爱素，因为是企划长线剧情的一部分，所以人物的关系是会演进的，也不是不能磕，虽然不熟是她们现在的相处关系，但迟早还是会熟的不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  滑稽Captain  
+##### 26943#       发表于 2025-2-20 14:42
+
+ccc三个人在mygo，把积分带走了是这样的
+
+*****
+
+####  太二EricGuo  
+##### 26944#       发表于 2025-2-20 14:42
+
+圣厨真就跟兰解一样在官约图底下维权呢
+
+*****
+
+####  cxj649  
+##### 26945#       发表于 2025-2-20 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是爽自己心里有愧
+
+爱音也GO10集后知道C团3人想什么，而且GO1011有立下誓言，而且现在挟灯令素希
+<img src="https://static.saraba1st.com/image/smiley/carton2017/468.png" referrerpolicy="no-referrer">
+
