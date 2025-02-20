@@ -2337,3 +2337,12 @@ Ave mujica症候群，我看这不是海猫这是寒蝉啊
 
 在知道没法带脑子看的情况下足够乐就可以+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kaildo  
+##### 266#       发表于 2025-2-21 01:47
+
++2
+b站字幕一如既往的烂
+

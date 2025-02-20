@@ -12274,3 +12274,86 @@ mortis不会弹吉他炸团
 大喵：“哦，真厉害呢”(无关心)
 海铃：(鼓掌👏🏻)
 
+
+*****
+
+####  huxiaopao163  
+##### 27834#       发表于 2025-2-21 01:48
+
+ 本帖最后由 huxiaopao163 于 2025-2-21 01:52 编辑 
+
+话说以前的睦，或者说是吉他睦，在此之前可能都是类似mygo里的好孩子，但是被大莫老师无情压制了那么长时间，感觉性格变得有点扭曲了
+
+然后通过C团演奏重新上位后，感觉不管是对mortis，还是对祥子，都变得有点强势或者病娇的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 27835#       发表于 2025-2-21 01:48
+
+人格吃鸡，此事在海猫EP6里也有记载
+岛上埋着丰川家的黄金，初华是老登的女儿也是三代目初华
+最后是青梅睦掌握身体跳海大祥跟着一起跳，白梦之茧之后大祥忘却一切成为ob一串字母
+
+*****
+
+####  FanFun  
+##### 27836#       发表于 2025-2-21 01:50
+
+ 本帖最后由 FanFun 于 2025-2-21 01:51 编辑 
+
+以前每次看到大墨大量戏份我都要批判怪力乱神
+
+看完这集我和解了，我顺从还不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 27837#       发表于 2025-2-21 01:50
+
+ 本帖最后由 ArcadiaMartyr 于 2025-2-21 01:52 编辑 
+
+吃鸡出来的人格，能是善茬？
+怕不是脑内舞台上演了一幕又一幕厮杀
+这不就是养蛊(本意)？百只毒虫互相厮杀，留出来的最后一只就是最毒的蛊
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑酒杯  
+##### 27838#       发表于 2025-2-21 01:53
+
+看了一圈还是不理解高呼“吓人”“古神”的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鸡团解散的原因不就是摘面具后睦被压力爆了吗？六集后来个这种设定我只觉得闹麻中二又出戏啊
+
+*****
+
+####  YFIIII  
+##### 27839#       发表于 2025-2-21 01:54
+
+楼友们觉得单身妈妈奋斗几年内拿下六本木大平层豪斯、女高中生买完华伦天奴买亚历山大麦昆和小网红联动YSL这三个里哪个更魔幻
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cxj649  
+##### 27840#       发表于 2025-2-21 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480894&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-21 01:45</a>
+
+初华和除了祥子之外的角色关系性为零啊两个同班同学都不怎么理她，海铃重组也不找她，大喵也不打招呼，就算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">2团10人最没和其他人私交的CV表第一的主唱
+
+
+*****
+
+####  陶矢  
+##### 27841#       发表于 2025-2-21 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480919&amp;ptid=2208921" target="_blank">黑酒杯 发表于 2025-2-21 01:53</a>
+看了一圈还是不理解高呼“吓人”“古神”的鸡团解散的原因不就是摘面具后睦被压力爆了吗？六集后来个这种设 ...</blockquote>
+有这个无敌的设定什么都能圆，压力？谁压力谁？看睦妈这集吓得，姐们秀秀演技给喵姆的教训罢了
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
