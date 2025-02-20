@@ -12827,3 +12827,56 @@ soyo妈妈属于新钱想往上融圈子租的大平层
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6030sylar  
+##### 27878#       发表于 2025-2-21 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481364&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-21 07:34</a>
+最魔幻的感觉可能是，立希要海玲来顶soyo班的时候，可能真的没掏钱。。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+魔幻什么，<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">乌咪铃就是暗恋立希，当然有求必应，钱什么的有什么所谓
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  6030sylar  
+##### 27879#       发表于 2025-2-21 07:42
+
+下集祥子又要组乐队了，大祥一有压力就想组乐队，第三次了，母亲的离世，父亲的颓废，这次是姐妹的生死
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  syndrome2032  
+##### 27880#       发表于 2025-2-21 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481349&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-21 07:27</a>
+有一说一，爱音都能被特训出来。本来就有肌肉记忆的大墨老师练不出来才见鬼了。
+
+所以说第四集的时候别搞 ...</blockquote>
+仙台之战的巡演那是第二天，赶鸭子上架肯定来不及。
+
+鸡团是在舞台排练前临时被牢莫炸了我不会吉他的。
+
+
+*****
+
+####  新HGCG  
+##### 27881#       发表于 2025-2-21 07:45
+
+？？？？
+
+<img src="https://img.saraba1st.com/forum/202502/21/074503flpqcez4rwcjer4l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 07:45 上传
+
