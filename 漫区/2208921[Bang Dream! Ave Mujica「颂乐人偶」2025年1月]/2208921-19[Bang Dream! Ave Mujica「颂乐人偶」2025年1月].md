@@ -2061,3 +2061,57 @@ mygo最后几集祥子是大女主 ? 她不还朝睦哈气吗 ? 招募喵梦的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 26824#       发表于 2025-2-20 09:58
+
+雞團會爆全宇宙都知道
+
+問題是第一話新手保護期也未過就爆了就是搞笑
+
+結果雞比有純內+打野時期的無名樂隊還更少存在的理由
+
+*****
+
+####  qlipho  
+##### 26825#       发表于 2025-2-20 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471635&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-20 09:44</a>
+
+所以祥子重组CCC一开始就是可行的，只要她肯拉得下脸，放得下身段
+
+但不重组就说明祥子追求的不是单纯的 ...</blockquote>
+C团本质五神人互相取暖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但几个人都端着
+
+*****
+
+####  阿兹尔  
+##### 26826#       发表于 2025-2-20 10:01
+
+不如讨论一下祥妈托孤睦头的可能性，祥妈这种温柔的人，应该不会把自己的孩子托孤给一个精神不太稳定还十分不会说话内向的孩子，祥子也说过睦头以前是会笑的，睦到底经历了什么才变成这样的，总不能是祥妈一句“以后拜托你了”，让睦整天内耗变成不会说话+祥子第一位原则吧
+
+
+*****
+
+####  安娜导函数  
+##### 26827#       发表于 2025-2-20 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471604&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-20 09:41</a>
+大祥老师组鸡团我觉得最大的问题还是忽视团友感情需求。
+
+要是真有扣扣空间被四抠一了没准还能多活会 ...</blockquote>
+4扣1不应该是大祥及她的孝子链扣你鸡喵姆喵姆嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 26828#       发表于 2025-2-20 10:04
+
+<blockquote>天空塔书记官 发表于 2025-2-20 09:23
+哈 ?
+
+mygo最后几集祥子是大女主 ? 她不还朝睦哈气吗 ? 招募喵梦的时候也差点被怼到下不来台，大女主就这 ...</blockquote>
+观众又不会都去看假药，既然要用这海报，那就别怪观众觉得这是大女主
+
