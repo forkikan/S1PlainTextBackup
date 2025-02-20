@@ -2409,3 +2409,12 @@ b站字幕一如既往的烂
 
 这集确实离谱啊可以说是最好的一集+2，8 5 6 2 3 1 4 7 在我这能圆上4 7觉得烂的部分了
 
+
+*****
+
+####  car123  
+##### 273#       发表于 2025-2-21 02:53
+
++2
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这集感受就是没看剧透真是太好了
+
