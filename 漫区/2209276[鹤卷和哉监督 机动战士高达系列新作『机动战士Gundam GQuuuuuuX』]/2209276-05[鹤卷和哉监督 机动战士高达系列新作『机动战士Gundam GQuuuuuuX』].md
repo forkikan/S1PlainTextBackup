@@ -16713,3 +16713,27 @@ EVA何尝也不是二女一男一边上学一边打使徒<img src="https://stati
 男主角直太和女 ...</blockquote>
 结局夏亚跑了，修司追着夏亚也跑了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7207#       发表于 2025-2-20 18:10
+
+<blockquote>0aleph37 发表于 2025-2-20 18:03
+不是飞跃巅峰3吗</blockquote>
+鹤卷访谈明牌喵安mamimi役，他自己都说漏嘴了
+
+老八访谈也大谈FLCL，他那第三段歌词就是从FLCL第四集来的，老八也干了
+
+*****
+
+####  0aleph37  
+##### 7208#       发表于 2025-2-20 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476255&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-20 18:10</a>
+
+鹤卷访谈明牌喵安mamimi役，他自己都说漏嘴了
+
+老八访谈也大谈FLCL，他那第三段歌词就是从FLCL第四集来的 ...</blockquote>
+明明是mamimi类型的角色，不是mamimi役
+
