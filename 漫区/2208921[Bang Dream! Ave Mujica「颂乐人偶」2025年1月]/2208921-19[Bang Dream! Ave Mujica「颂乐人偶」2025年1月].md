@@ -4830,3 +4830,31 @@ b站已经有自己重写剧本+ai配音的第七集片段了，给番剧打mod�
 入魔成这样我看这mygo粉丝是已 ...</blockquote>
 素厨被清算的失心疯了啊
 
+
+*****
+
+####  HereLink  
+##### 27096#       发表于 2025-2-20 21:11
+
+<blockquote>第贰个十年 发表于 2025-2-20 21:01
+b站已经有自己重写剧本+ai配音的第七集片段了，给番剧打mod我还真是第一次见
+
+入魔成这样我看这mygo粉丝是已 ...</blockquote>
+其实以前也有，咒回我就见过😂
+
+*****
+
+####  外骨骼  
+##### 27097#       发表于 2025-2-20 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477550&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-20 21:11</a>
+其实以前也有，咒回我就见过😂</blockquote>
+把2.5黏回去吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  my707776310  
+##### 27098#       发表于 2025-2-20 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏啦怎么感觉3次元这边ccc也比go更...
+

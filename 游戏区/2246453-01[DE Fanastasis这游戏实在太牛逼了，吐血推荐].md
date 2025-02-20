@@ -1478,3 +1478,26 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 说是社区里有翻译，我看社区没有找到啊。。。
 
+
+*****
+
+####  blackll7  
+##### 121#       发表于 2025-2-20 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477390&amp;ptid=2246453" target="_blank">周bp 发表于 2025-2-20 20:39</a>
+湿地宝物库最后怎么开啊，我已经把十个警报装置全关了，但是最后去宝物库的路上不是百分之百触发鱼人？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是要在不触发鱼人的情况下关闭，10个开关，鱼人的触发条件是地上的花，你要找到一条不走到花上面的路完成10个开关的关闭。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  塔奇克马  
+##### 122#       发表于 2025-2-20 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477390&amp;ptid=2246453" target="_blank">周bp 发表于 2025-2-20 20:39</a>
+湿地宝物库最后怎么开啊，我已经把十个警报装置全关了，但是最后去宝物库的路上不是百分之百触发鱼人？ ...</blockquote>
+10个全关 到仓库路上都不能踩草惊动鱼人的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
