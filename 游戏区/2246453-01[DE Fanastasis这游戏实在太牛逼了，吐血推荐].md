@@ -1429,3 +1429,20 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 溜冰场地图好大呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发条之心  
+##### 117#       发表于 2025-2-20 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67473334&amp;ptid=2246453" target="_blank">塔奇克马 发表于 2025-2-20 12:42</a>
+
+绷带闪避T 输出咋样啊~十多级感觉没啥特别的，
+
+溜冰场地图好大呀</blockquote>
+绷带哥主要用来辅助：
+
+能够上本作最有用的两个状态：幻视和沉默；全员魔法闪避能力后期很强
+
+输出带把弓打弱点前期也能有个五六百的回合均伤。我的前期组队就是火法影法绷带哥，输出到中期都够用。
+

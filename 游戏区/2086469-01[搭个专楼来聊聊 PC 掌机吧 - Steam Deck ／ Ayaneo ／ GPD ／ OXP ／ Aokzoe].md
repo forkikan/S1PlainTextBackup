@@ -116,3 +116,16 @@ amd小bug体现是莫名卡顿。该全屏不能全屏该运行不能运行大�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  mes  
+##### 1416#       发表于 2025-2-20 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471608&amp;ptid=2086469" target="_blank">暗示我7酱 发表于 2025-2-20 09:41</a>
+
+老游戏 或者gal其实安卓平板模拟就足够了，win板光一个待机不行就被安卓爆了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+老游戏就是给键鼠用的，这么说何必模拟，直接搞个破电脑、笔记本更好，也不需要便携，本来就是一边玩一边发呆的休闲游戏多。
+
