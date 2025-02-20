@@ -5185,3 +5185,14 @@ DeepSeek终于还是开始考虑融资了！
 你的一款赛博算卦app</blockquote>
 晚了，加的某个群里已经有一票人找ds算八字了
 
+
+*****
+
+####  蕾丝  
+##### 1935#       发表于 2025-2-20 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471485&amp;ptid=2243718" target="_blank">电脑死机 发表于 2025-2-20 09:27</a>
+
+晚了，加的某个群里已经有一票人找ds算八字了</blockquote>
+但是说ds算紫微斗数和八字都有一定概率瞎编，也可能是梅花易数瞎编也不容易分辨（
+
