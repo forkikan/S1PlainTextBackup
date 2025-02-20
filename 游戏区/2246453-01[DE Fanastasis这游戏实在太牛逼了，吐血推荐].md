@@ -1568,3 +1568,16 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  83913536  
+##### 130#       发表于 2025-2-21 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67453045&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-18 00:59</a>
+
+我理解应该是没有不杀的路线的，除了追加部分的某些角色。
+
+血迹的事情是这样：有因缘的角色会在血迹这里 ...</blockquote>
+请问这个专门的回收功能是在灵魂之间吗？到后期了一直没弄明白
+

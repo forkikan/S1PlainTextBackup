@@ -17297,3 +17297,25 @@ ARSENAL BASE  FORSQUAD SEASON 01 GQ相关卡汇总
 
 机翻：“阿塞纳尔基地，就像个傻乎乎的地方吧。哇，还有戴着奇怪面具的人呢，真有趣……如果这能完全解决问题就好了。啊，还是说说我们这边的事吧。”
 
+
+*****
+
+####  0aleph37  
+##### 7244#       发表于 2025-2-21 00:17
+
+<blockquote>kuriri 发表于 2025-2-21 00:11
+提到了奇怪的面具男诶，阿塞纳尔基地在以前的作品里有提过吗
+
+机翻：“阿塞纳尔基地，就像个傻乎乎的地方 ...</blockquote>
+《机动战士高达：阿森纳基地》（Mobile Suit Gundam Arsenal Base/機動戦士ガンダム アーセナルベース）是一款基于高达系列的卡牌即时战略街机游戏，于2021年1月28日宣布，预计将在同年晚些时候上市，旨在吸引以前的高达街机游戏玩家，在线预注册于2021年3月12日开始。
+
+*****
+
+####  kuriri  
+##### 7245#       发表于 2025-2-21 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480292&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-21 00:17</a>
+
+《机动战士高达：阿森纳基地》（Mobile Suit Gundam Arsenal Base/機動戦士ガンダム アーセナルベース） ...</blockquote>
+所以面具男也可能不是gqx里的而是游戏里的是吧
+

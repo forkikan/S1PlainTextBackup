@@ -2105,3 +2105,27 @@ Ave mujica症候群，我看这不是海猫这是寒蝉啊
 +2 apart观感：这里不会要有jumpscare吧，哇果然来了，又是双重人格哈哈哈
 第四集感觉这片有当年初见鲨卷风的观感还真没错，希望能一直保持这种cult片的笑点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DANAmya  
+##### 238#       发表于 2025-2-21 00:24
+
+这集的所谓“搞笑”完全是莫名其妙增加的人设和毫无逻辑的人物行为之上得来的，已经没有几个正常人了
+
+*****
+
+####  六道明  
+##### 239#       发表于 2025-2-21 00:25
+
+搞笑动画加2分，mujica动画减2分，0分
+
+*****
+
+####  Sleipnirω  
+##### 240#       发表于 2025-2-21 00:27
+
++2，太变态了，已经没有人类了，只有祥，只有睦，还有沟槽的月村海铃
+
+顶级搞笑动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

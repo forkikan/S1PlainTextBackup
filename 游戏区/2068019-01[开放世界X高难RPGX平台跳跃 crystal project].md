@@ -1284,3 +1284,11 @@ mercury到过了是吧
 我觉得这游戏最大的缺陷是续航砍的太厉害，强烈建议加个战后能恢复满蓝的mod，消耗品回蓝太繁琐的，而且数 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">FFoverhual倒是没用这个问题了，加了一堆回蓝被动，然而FF难度下杂鱼随意肉出天际。
 
+
+*****
+
+####  blueelf  
+##### 109#       发表于 2025-2-21 00:21
+
+初始收集三块水晶，除了苍白洞窟和悬崖海岸之外哪里还有一块？怎么找都找不到了
+
