@@ -1744,3 +1744,38 @@ MORTIS这么“恨”祥，只能解释为这是白祥离家转校后在和睦�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  航母掉头  
+##### 26797#       发表于 2025-2-20 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67466039&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-19 15:49</a>
+
+不准确，大祥是北京老钱，爽姐是上海新钱，农是广州包租婆。
+
+农属于平时看着小康，48万R一年的留学学费父 ...</blockquote>
+69套房的沪姐败在四合院京爷面前？
+
+*****
+
+####  与太郎  
+##### 26798#       发表于 2025-2-20 09:05
+
+MyGO爆改退队流/追妻火葬场流
+[https://www.zhihu.com/question/1502424680/answer/45268242421](https://www.zhihu.com/question/1502424680/answer/45268242421)
+
+我感觉不如改成衔尾蛇好了：
+
+mygo在第9话分崩离析，然后第10话不是mygo复合而是ave mujica试演（正好是一个铺垫，a团本来就爆火得太突然了）
+
+ano看了祥子的演出，再加上队友的挽回，决定回到mygo（哪怕在这里加入一些爱音私心描写都行吧）
+
+然后mujica还是随便你搞狗血，不论是双重人格、隐藏双子还是小姨文学都行
+
+但是第7话不能让ccc弹春日影，要让mygo弹，这样形成一个循环，mygo因为a团的表演再结成，mygo又成为了a团复活的契机
+
+后面再来一波贵圈真乱也无妨，最后一转包饺子4团连续live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+唯一的问题可能就是把lsl抬咖抬得太高了
+
