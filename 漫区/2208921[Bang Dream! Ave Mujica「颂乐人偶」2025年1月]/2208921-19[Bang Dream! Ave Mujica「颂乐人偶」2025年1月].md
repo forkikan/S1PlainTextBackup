@@ -4022,3 +4022,84 @@ jz人打进来我第一个跑
 
 第8话肯定没有狗团什么戏份的，重点都在海铃或者喵梦那边。狗团的戏份已经基本结束了，狗厨不要有幻想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 27004#       发表于 2025-2-20 17:48
+
+ 本帖最后由 ape-apple 于 2025-2-20 17:51 编辑 
+
+两路人马？祥睦海一条，喵睦妈一条？
+
+两种反应？祥睦复辟C团，希素反对，灯中立？
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+来自: iPhone客户端
+
+*****
+
+####  十九号大侠  
+##### 27005#       发表于 2025-2-20 17:49
+
+还不如讨论战力来的欢快啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 27006#       发表于 2025-2-20 17:50
+
+酱紫变态哒？那无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翼宿一  
+##### 27007#       发表于 2025-2-20 17:52
+
+就算要改，一周也是来不及的，虽然便宜 3D 但流程还是比传统动画的麻烦，就算不考虑送审的问题，现在要加剧情估计也得最后一两集才能看到了。要补救用场外招都更现实，但到现在也是什么都没做，死心吧 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 27008#       发表于 2025-2-20 17:55
+
+这四个表情是何意啊，豚豚可以离席了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 27009#       发表于 2025-2-20 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476134&amp;ptid=2208921" target="_blank">枪聆弹语 发表于 2025-2-20 17:55</a>
+
+这四个表情是何意啊，豚豚可以离席了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天降男人吗？
+
+*****
+
+####  oi99o  
+##### 27010#       发表于 2025-2-20 17:57
+
+木棉花都挂上首播页面了怎么可能还没片源
+
+<img src="https://img.saraba1st.com/forum/202502/20/175629hpwy96puelyny1nd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5236.png</strong> (233.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-20 17:56 上传
+
+*****
+
+####  HereLink  
+##### 27011#       发表于 2025-2-20 17:57
+
+天降男人怕不是整个企划都要被冲爆，应该不至于😂😂
+
+有可能是除了祥子之外四个人开会复盘？
+

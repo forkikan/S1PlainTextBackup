@@ -16658,3 +16658,28 @@ EVA何尝也不是二女一男一边上学一边打使徒<img src="https://stati
 
 青春幻影味也挺好，有完全不一样的成长背景的三人，产生短时间的交集最后还是回归各自的日常
 
+
+*****
+
+####  0aleph37  
+##### 7202#       发表于 2025-2-20 17:52
+
+真能回归日常吗？都世界迎向新时代了。
+
+*****
+
+####  刺客ares  
+##### 7203#       发表于 2025-2-20 17:53
+
+如果FLCL是《特别的她》，那GQUX就是《特别的他》。
+
+这两部动画剧情简介格式都tm是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，
+
+男主角直太和女二麻弥美遇到闯入他们生活的宇宙人春原晴子，
+
+女主角玛秋和女二妮娅安遇到闯入她们生活的神秘人修司伊藤。
+
+本质就是鹤卷gg套个高达的皮想复现自己做的最好的传奇OVA《FLCL》
+
+看懂这个就不会有什么厨豚大战了，谜底写在谜面上好吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
