@@ -3622,3 +3622,16 @@ WSD： 結束了？！！
 何况没有剧情就不会出新歌 ...</blockquote>
 场外也结束了其实，除了TFT和对邦拿出来炒热度，这支乐队基本上似了没什么区别。哦对了，可能手游隔几年会搞一次CCC混活吧😂
 
+
+*****
+
+####  wpcc  
+##### 26961#       发表于 2025-2-20 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67474633&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-2-20 15:19</a>
+
+场外没结束就没结束啊，和剧情内结束了有什么关系吗，为什么思路就是转不过来呢
+
+何况没有剧情就不会出新歌 ...</blockquote>
+出新歌可以靠手游 爱马仕多少年了不都是手游歌加live动画又不是年年有
+
