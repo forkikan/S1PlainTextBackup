@@ -4533,3 +4533,62 @@ CNM 把祥睦回忆放这集
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  圣血天使  
+##### 27065#       发表于 2025-2-20 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472718&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-20 11:30</a>
+
+还有就是制作组确实认为自己在写大女主，不管是正面的主pv、第一集开篇的定场诗，还是侧面的鸡团三路人
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么可能不是大女主，再说一遍，这是大小姐，你看本子那氛围，都是舔财团的，哪可能不给大小姐一个GE，这就是玛丽苏大女主啊
+
+*****
+
+####  zhzij111  
+##### 27066#       发表于 2025-2-20 19:17
+
+大祥传演了8集了，队友查无此人，太团队了我们母鸡卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 27067#       发表于 2025-2-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67476735&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-20 19:07</a>
+
+感觉牛贝拉152的漫评比台长憋了一周的屁有意思
+
+我们a友太有面子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+那个时候没有A或许你（也或许我）都还是正常人。
+
+*****
+
+####  sakatta  
+##### 27068#       发表于 2025-2-20 19:18
+
+还得是拉姐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲得确实好
+喜欢那句“希望ccc不是没人来，而且解散了”
+
+
+*****
+
+####  Aeons  
+##### 27069#       发表于 2025-2-20 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集有灯
+
+*****
+
+####  与太郎  
+##### 27070#       发表于 2025-2-20 19:23
+
+我一直是正常人啊（确信）
+

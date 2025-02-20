@@ -518,3 +518,13 @@ https://github.com/likuai2010/auto-installer ...</blockquote>
 
 确实连泥潭都有人开发客户端的话，菊花的homo next感觉真的成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 42#       发表于 2025-2-20 19:16
+
+这更新频次，一天两更
+
+——来自 [S1 Orange](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.2.4
+
