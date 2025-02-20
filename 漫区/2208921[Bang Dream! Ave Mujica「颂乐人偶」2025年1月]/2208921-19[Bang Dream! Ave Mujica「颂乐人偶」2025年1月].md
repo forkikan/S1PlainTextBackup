@@ -2362,3 +2362,69 @@ Apart素希纯高光，真妈妈，真立德
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  z-hunter  
+##### 26849#       发表于 2025-2-20 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472195&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 10:44</a>
+
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+第7话制作组确实是想告诉你CCC已经死了，无论是表演甚至在唱歌的时候加上独白都是在说这个
+
+结果是演出出来的效果，观众的感受，和场外大手都在表明，CCC是应该重组的
+
+那么是哪里出了问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实制作组都要在唱春日影的时候加上独白强调CCC已经死了，就是信心不足的表现
+
+*****
+
+####  syndrome2032  
+##### 26850#       发表于 2025-2-20 10:51
+
+场内感觉是给ccc盖棺了，场外这操作突出一个ccc随时可能诈尸。
+
+这ccc究竟是死还是不死了。
+
+*****
+
+####  ArcadiaMartyr  
+##### 26851#       发表于 2025-2-20 10:52
+
+白祥就是个美好的梦，梦碎了得前进
+黑祥是过激态，黑得忘记了亲友
+本来指望的是，黑祥被拷打再成长，结果这第七集直接给重置回白祥了(当然，还得看后续，但是现在就是这么个感觉)
+不是说不能拷打，而是拷打没成长，反而退回去了。那是几个意思？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  小博禹  
+##### 26852#       发表于 2025-2-20 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67472195&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-20 10:44</a>
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+祥p说的话又不作数<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 26853#       发表于 2025-2-20 10:53
+
+<blockquote>厚乳果珍爽 发表于 2025-2-20 10:44
+总有人滑坡ccc重组的，这句话可是祥子说的</blockquote>
+WSD： 這條街是我說了算還是祥子說了算？
+
+*****
+
+####  qlipho  
+##### 26854#       发表于 2025-2-20 10:55
+
+祥子说似了那肯定是没似<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
