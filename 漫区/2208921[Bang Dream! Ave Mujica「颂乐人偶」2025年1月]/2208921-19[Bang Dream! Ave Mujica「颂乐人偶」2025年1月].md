@@ -4273,3 +4273,39 @@ CNM 把祥睦回忆放这集
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 27034#       发表于 2025-2-20 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉聊天记录透反而是把最做人的部分放出来了
+
+*****
+
+####  huxiaopao163  
+##### 27035#       发表于 2025-2-20 18:29
+
+感觉第七集的c团内容真有可能是内心看电视，从目前的剧透来看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Hikiyaga⑧man  
+##### 27036#       发表于 2025-2-20 18:30
+
+贝拉这漫评做得还挺好 直接换赛道吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  非建政专用号  
+##### 27037#       发表于 2025-2-20 18:31
+
+意思是母鸡卡2/3的内容是祥睦传
+编剧搁这作法复活祥母呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
