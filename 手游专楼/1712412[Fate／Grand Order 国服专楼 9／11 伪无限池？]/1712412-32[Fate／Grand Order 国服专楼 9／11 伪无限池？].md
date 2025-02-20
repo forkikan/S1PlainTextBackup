@@ -81,3 +81,11 @@
 
 1宝仙女座+1宝BX+泳卡蒂，4T换好友的加成充能拐，稳定4T<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47024#       发表于 2025-2-20 20:24
+
+理论上只要刷出狂那一张红卡就行，至多5T了，杀狐总不见得被1面小怪打死吧
+

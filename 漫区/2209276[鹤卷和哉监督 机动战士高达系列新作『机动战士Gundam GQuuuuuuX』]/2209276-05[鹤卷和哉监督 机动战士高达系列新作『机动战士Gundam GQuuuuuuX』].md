@@ -16954,3 +16954,23 @@ GQX中麻球在故事开始前所感受到的和平的日常只不过是一种�
 真的就太牛逼了，又放了半集
 一共13话都放出来1/3了吧？
 
+
+*****
+
+####  CSWQ  
+##### 7229#       发表于 2025-2-20 20:15
+
+要按潭友的假药，那已经能预计到宇野常宽会怎么喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  虛無迴廊  
+##### 7230#       发表于 2025-2-20 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477055&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-20 19:51</a>
+……不存在两种生活，两种世界的对立。和平是值得歌颂的，但是摆在面前的是现实。现实是一个整体，大小姐 ...</blockquote>
+假使只凭gqx一台高达真有如此伟力，让它在12话篇幅就把拍了快50年都没解决的问题给干完了这种事显然鹤卷这个连正史角色多讲几句台词都觉得压力大的人也不会去做的
+
