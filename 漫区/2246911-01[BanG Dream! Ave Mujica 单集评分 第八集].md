@@ -2436,3 +2436,13 @@ b站字幕一如既往的烂
 
 +2，我就说母鸡卡是搞笑番吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 276#       发表于 2025-2-21 05:41
+
+本来想给加2，但是笑完之后又觉得真是蠢到家了，好似用谎言掩盖上一个谎言，最后越扯越离谱，虽然看着别人扯谎挺乐呵的，但心里也知道对方的信用值早就归零了。
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
