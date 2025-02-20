@@ -8495,3 +8495,522 @@ mygo的第二季是ave mujica就像大白鲨的续作是鲨卷风
 mygo的第二季是ave mujica就像大白鲨的续作是鲨卷风</blockquote>
 是夺命n+1头鲨
 
+
+*****
+
+####  厚乳果珍爽  
+##### 27491#       发表于 2025-2-20 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479339&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-20 23:08</a>
+
+这集太好笑啦，少女乐队的路子走不通，一走奇幻搞笑番也不是不可以。
+
+目前看来剧透有点真啊、之前不理解祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下可以跟契丹物语坐一桌了！
+
+*****
+
+####  山ノ内花音  
+##### 27492#       发表于 2025-2-20 23:17
+
+一想到祥子挨了一个月把半身逼成精神病的骂就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 27493#       发表于 2025-2-20 23:17
+
+ 本帖最后由 是谁的书画 于 2025-2-20 23:19 编辑 
+
+原来早有预谋，这是祥睦的陷阱啊。
+
+睦就是想要占有白祥，才伺机在黑刀之夜补上关键一刀。
+
+在等到小祥临近崩溃之前伺机诱导小祥去看mygo的第一次live，导致听到了春日影。
+
+确认mygo的解散危机解除，ccc再也不会重组以后，向自己的情敌素世献上小黄瓜作为“贺礼”
+
+加入mujica，再通过喵梦撕皮的事件毁掉mujica。
+
+让大祥彻底崩溃，最后再演一出戏。这样大祥就彻底是自己的了。
+
+*****
+
+####  Asukalangley33  
+##### 27494#       发表于 2025-2-20 23:17
+
+看到一个HELLSHAKE海玲的新烂梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+笑疯了
+
+我去看看那段好不好剪，感觉很有乐子
+
+*****
+
+####  南宮凝香  
+##### 27495#       发表于 2025-2-20 23:18
+
+黑祥以為自己殺了軟弱的自己很黑
+
+結果身邊是四個等級一百的神經病
+
+*****
+
+####  新HGCG  
+##### 27496#       发表于 2025-2-20 23:18
+
+<img src="https://img.saraba1st.com/forum/202502/20/231844tr422n32qi4if2sx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:18 上传
+
+*****
+
+####  Bieaeml  
+##### 27497#       发表于 2025-2-20 23:18
+
+睦第三集自言自语说属于睦的只有吉他，但是第八集”又“空降多人格设定的时候感觉把这个已经扔掉了。
+
+毕竟，你们不是还有彼此（指睦和墨提斯）么？<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 27498#       发表于 2025-2-20 23:19
+
+我承认睦祥是卖最大的了，这俩真可以锁死了
+
+*****
+
+####  ape-apple  
+##### 27499#       发表于 2025-2-20 23:19
+
+真契丹吧，在3D类里这都算是还行的，没想到就干了金碗装大便的事，整体越来越荒谬好笑了
+
+*****
+
+####  厉飞雨  
+##### 27500#       发表于 2025-2-20 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥老师是不是意识到自己的青梅竹马睦已经似了
+
+*****
+
+####  ccared  
+##### 27501#       发表于 2025-2-20 23:20
+
+应该是意识到自己的青梅竹马从来没有存在过，是个幻影。
+
+*****
+
+####  kyonkoism  
+##### 27502#       发表于 2025-2-20 23:20
+
+<img src="https://img.saraba1st.com/forum/202502/20/231934e4f2qjd25d2yygu5.jpg" referrerpolicy="no-referrer">
+
+<strong>NFX@FZTWV]~L{]JE@`NE2WK.jpg</strong> (52.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/231947izwf9899fk77487l.jpg" referrerpolicy="no-referrer">
+
+<strong>(V%C]YRDSTWJS9Z(6]2BFLJ.jpg</strong> (40.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/231952kdj4dn3v4jn55wdo.jpg" referrerpolicy="no-referrer">
+
+<strong>IOD3]ESH[I4AW]5TXO]Z9%7.jpg</strong> (49.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死我
+
+*****
+
+####  ads147147  
+##### 27503#       发表于 2025-2-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479528&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-2-20 23:18</a>
+睦第三集自言自语说属于睦的只有吉他，但是第八集”又“空降多人格设定的时候感觉把这个已经扔掉了。
+
+毕竟 ...</blockquote>
+原本人格大逃杀已经被吉他睦杀光吃鸡了，结果真要社交了又顶不住只好把之前干掉的几个拉出来复活帮忙顶班，这时候才有的大墨老师。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jaewoongh_  
+##### 27504#       发表于 2025-2-20 23:20
+
+我对所有的祥厨道歉，我错了，我不该黑屁祥子，我不该妄议祥子对睦头的态度，我不该诬陷祥子把睦头逼成精神病
+
+*****
+
+####  zhigui  
+##### 27505#       发表于 2025-2-20 23:20
+
+突然发现，大祥老师手下是不是只有初华一个忠臣了
+
+大喵摘面具和对线
+
+大莫老师把mujica爆了
+
+现在海玲也倒向了保莫派 跟铁血保睦派祥子作对了
+
+这也太三国杀了 1主公2反贼1内奸1忠臣
+
+甚至初华的设定还没展开
+
+万一呢，如果初华也是反骨仔就好笑了
+
+大祥老师将成为第一个手下四个反骨仔的乐队
+
+*****
+
+####  adretyu67.  
+##### 27506#       发表于 2025-2-20 23:20
+
+传奇影后若叶·黄瓜·睦
+
+*****
+
+####  清江望月  
+##### 27507#       发表于 2025-2-20 23:20
+
+这海玲也沾点精神分裂的样子我看，就被立希嘴了一句，一个片叶不沾身的人立刻就积极主动起来了，堪比大睦老师和大莫老师切换的速度了。
+
+*****
+
+####  pokemon最爱  
+##### 27508#       发表于 2025-2-20 23:20
+
+这集放空脑子当搞笑动画看还是很好评的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 27509#       发表于 2025-2-20 23:21
+
+<img src="https://p.sda1.dev/22/da118300d02d719741ed0a0aeab459d1/image.jpg" referrerpolicy="no-referrer">
+
+果然睦祥的童年还是藏了东西，睦分裂的原因还是在祥子身上<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 27510#       发表于 2025-2-20 23:21
+
+这tm给我干哪来了，这真是mygo续作甚至这真是一个世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 27511#       发表于 2025-2-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479348&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-2-20 23:08</a>
+
+可是按这集讲的莫子是祥子女儿啊，你看睦子说要莎了莫子的时候她都哭了
+
+世上只有妈妈好啊 ...</blockquote>
+真不是我说啊，祥子看着被木子米屠刀处刑的大莫在自己旁边嗷嗷直叫，也不阻拦，就掉两粒小珍珠意思意思。作为妈妈未免太狠心吧。不对，是看到此等恐怖场景这还不给她约个心理医生那作为人类都显得不大正常了。
+
+*****
+
+####  aptx8285144  
+##### 27512#       发表于 2025-2-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479467&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-20 23:14</a>
+
+丰川祥子，你也不想我退队把小睦弄疯吧，又买了一堆衣服没米花了，记得按时交朋友费哦
+
+—— 来自 鹅球 v ...</blockquote>
+说起这个才突然发觉海铃这话在其他乐队说的话语都证明，当初母鸡卡是发工资的<strong>或者说至少吃喝住行很方便</strong>，那酒店大混战时她像个旁观者动机就更无法解释了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，前几话的脚本随便翻翻都是漏洞
+
+*****
+
+####  fuwamoco  
+##### 27513#       发表于 2025-2-20 23:21
+
+<blockquote>Bieaeml 发表于 2025-2-20 23:18
+睦第三集自言自语说属于睦的只有吉他，但是第八集”又“空降多人格设定的时候感觉把这个已经扔掉了。
+
+毕竟 ...</blockquote>
+多重人格患者的不同人格有消失危机彼此敌对很正常。
+
+这也是为啥很多did患者接受治疗后病情会加重，比如首位确诊患者，在治疗后从三个人格分裂到20多。
+
+
+*****
+
+####  JustW  
+##### 27514#       发表于 2025-2-20 23:22
+
+生下来就自带114514人格的演技怪物看医生已经没用了
+
+*****
+
+####  adretyu67.  
+##### 27515#       发表于 2025-2-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479567&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-20 23:21</a>
+
+真不是我说啊，祥子看着被木子米屠刀处刑的大莫在自己旁边嗷嗷直叫，也不阻拦，就掉两粒小珍珠意思意思。 ...</blockquote>
+那个掉泪的祥子不见得是真实世界的祥子。
+
+那个场景已经从KTV里睦对祥子的请求变成了内心小剧场。
+
+*****
+
+####  thistimeforlife  
+##### 27516#       发表于 2025-2-20 23:22
+
+很好 让假药贩子们最终承认放弃思考 pico化 
+
+随手卖点cp和变态百合糖 让受众们去磕
+
+只要最后再把最后的live整好一点 让祥子的中二台本小剧场回来 就成了 
+
+唉，邦多利世界的过家家闹麻了，热度随时间散去，一切如常。
+
+至于人设，让手游和三次元来收拾吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Perfectfullmoon  
+##### 27517#       发表于 2025-2-20 23:22
+
+蛋白粉女王个人回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 27518#       发表于 2025-2-20 23:23
+
+海玲这集人设也丰满了好多，虽然被塑造成了一个神人。
+
+加上初华小姨，祥子被抽了六集陀螺,最后发现自己是队里唯一那个正常人。
+
+现在看鸡团炸团根本原因不是因为大祥，是因为大祥一开始就拉了四个精神病人。
+
+*****
+
+####  zhzij111  
+##### 27519#       发表于 2025-2-20 23:23
+
+睦这么变态搞得睦爹妈都快变正常人了，这丰川家真没啥黑暗真相了吧，除非你说睦是丰川基因改造人，那我确实信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lyuhiu  
+##### 27520#       发表于 2025-2-20 23:23
+
+合理怀疑海玲就是在母鸡卡时期花钱习惯大手大脚起来，现在消费习惯回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fsfs_freeze  
+##### 27521#       发表于 2025-2-20 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479528&amp;ptid=2208921" target="_blank">Bieaeml 发表于 2025-2-20 23:18</a>
+
+睦第三集自言自语说属于睦的只有吉他，但是第八集”又“空降多人格设定的时候感觉把这个已经扔掉了。
+
+毕竟 ...</blockquote>
+睦把mortis当过正常身边人来看待过吗，睦可能早就看mortis不爽了
+
+*****
+
+####  hulaoda007  
+##### 27522#       发表于 2025-2-20 23:23
+
+莫的意思大概是睦遇到吉他是多亏祥子，然后莫出现的直接原因ave组建的事也是祥子才是？
+
+*****
+
+####  remediosOlOOOO  
+##### 27523#       发表于 2025-2-20 23:23
+
+杀了我吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厚乳果珍爽  
+##### 27524#       发表于 2025-2-20 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479560&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-20 23:20</a>
+
+这海玲也沾点精神分裂的样子我看，就被立希嘴了一句，一个片叶不沾身的人立刻就积极主动起来了，堪比大睦老 ...</blockquote>
+可以解释成不高兴导致的，她的行为都是报复性的。
+
+*****
+
+####  kyonkoism  
+##### 27525#       发表于 2025-2-20 23:24
+
+<img src="https://img.saraba1st.com/forum/202502/20/232415bk46h4tblnbun3by.jpg" referrerpolicy="no-referrer">
+
+<strong>01KI@QLRSC4ZW24HDGD)A2F.jpg</strong> (84.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/232419e0z8fhzcg2w2elpz.jpg" referrerpolicy="no-referrer">
+
+<strong>_YU%({OPGG`~9%ZG@D8{V}1.jpg</strong> (172.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/232425oam54mxjxnhlc5ls.jpg" referrerpolicy="no-referrer">
+
+<strong>A@AIA8)KB$W9[RKA]7_RHS4.jpg</strong> (316.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 23:24 上传
+
+*****
+
+####  盐盐盐盐盐  
+##### 27526#       发表于 2025-2-20 23:24
+
+mo感觉有点像当年因为吉他其他人格都似了的时候躲起来的一个“备用人格”，借am才重见天日，其实兜兜转转回来虽然表现方式夸张了一点但是确实也就睦这个主人格和莫这个副人格俩人在，倒也没有太偏离前面的故事
+
+睦妈说的那么吓人的天生演员，我觉得好像和普通人在外也要见人说人话见鬼说鬼话本质也差不多啊，只不过睦能演的特别彻底不显露真正想法完全的迎合环境
+
+*****
+
+####  非建政专用号  
+##### 27527#       发表于 2025-2-20 23:25
+
+刚来，我是年一乐观众，你们少女乐队的设定是不玩乐队就去死这么硬核的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厚乳果珍爽  
+##### 27528#       发表于 2025-2-20 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现我动画看久了，确实能跟上日本人不一样的脑洞，虽然能跟上，但是不表示我会认同啊！
+
+*****
+
+####  大户爱  
+##### 27529#       发表于 2025-2-20 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479599&amp;ptid=2208921" target="_blank">thistimeforlife 发表于 2025-2-20 23:22</a>
+很好 让假药贩子们最终承认放弃思考 pico化 
+
+随手卖点cp和变态百合糖 让受众们去磕
+
+只要最后再把最后的live ...</blockquote>
+不不不，你去看战吧，一个帖子说这集可以说明编剧让假药破产了吧。底下全是喷ta看番不认真，随意滑坡，反驳说各种假药正在蒸蒸日上的。
+
+*****
+
+####  الطائر  
+##### 27530#       发表于 2025-2-20 23:25
+
+“今夜，睦头人将加入猎杀。”<img src="https://static.saraba1st.com/image/smiley/carton2017/484.png" referrerpolicy="no-referrer">
+
+快进到样子分裂出Ob一串字母女士人格，使用祥爹挪用丰川家168亿秘密开发的造梦装置，潜入睦头人大脑内正义三打一，最后Ob一串字母女士人格终极牺牲和睦头人同归于尽，墨老师和白祥作为共犯一起活下去。
+
+*****
+
+####  adretyu67.  
+##### 27531#       发表于 2025-2-20 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479617&amp;ptid=2208921" target="_blank">lyuhiu 发表于 2025-2-20 23:23</a>
+
+合理怀疑海玲就是在母鸡卡时期花钱习惯大手大脚起来，现在消费习惯回不去了 ...</blockquote>
+不是。这明显是报复性消费。
+
+明显她不是很想回家，于是打完电话出去报复性花钱了。
+
+就是那个劲霸男装的姿势实在太逗了
+
+*****
+
+####  海底铁锚  
+##### 27532#       发表于 2025-2-20 23:25
+
+所以mujica其实还是给钱的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 27533#       发表于 2025-2-20 23:25
+
+我觉得母鸡卡这设定用来写少女乐队偶像番太浪费了，应该用来写恐怖悬疑推理番，名字我也想好了，叫海猫鸣泣之时
+
+*****
+
+####  6030sylar  
+##### 27534#       发表于 2025-2-20 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479527&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-20 23:18</a></blockquote>
+手头紧
+
+借两皮
+
+*****
+
+####  海洋队手下mayo  
+##### 27535#       发表于 2025-2-20 23:26
+
+爱喝这种粉也挺符合海玲效率厨人设的，不过这集看海玲确实对购物美容都有兴趣，也算小小增加点女子力了（有点像灰原哀）
+
+本集海玲的描写其实感觉挺符合逻辑的 压抑的这种爆发形式（报复性消费）意外又合理，光速和喵梦坦白过去也挺真的（说明完全不觉得需要藏，只是无意识压抑了但自己没发觉）
+另外睦这设定一补看起来反倒还有救 终于不是魔法一般的人格分裂了
+
+这又不得不令人好奇明明这集海喵希莫都还不错 那之前那么掉价的人物表现究竟是什么，大祥为什么总是刻画的如此怪异<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大女主是指与动画制作人员斗争的大女主吗
+
+*****
+
+####  thisisaspider  
+##### 27536#       发表于 2025-2-20 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479235&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-20 23:02</a>
+
+祥子有点菜啊，从小就是青梅竹马，看不出来睦的真实情况</blockquote>
+祥子也有偏执属性，本身就是个自我为中心的人。别说看不透睦了，初华，灯一堆人可能都看不透。
+
+但确实和看透素世这个桥段有点背离。
+
+或者说这些人之前没有被祥子"正视"过，这么想素祥可以上分。然后睦崩了之后，祥子一瞬间懂睦。
+
+其实也可以勉强差不多能说得过去？
+

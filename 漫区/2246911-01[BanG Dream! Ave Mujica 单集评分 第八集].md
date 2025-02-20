@@ -1567,3 +1567,128 @@ umr这种就是典型的被放弃了的角色，出个人活动都无人在意�
 
 我草，＋2这么多是真的因为上一集结束滑到底了？但凡回暖一点就打2，这顶天不过＋1吧
 
+
+*****
+
+####  ArowRocher  
+##### 181#       发表于 2025-2-20 23:17
+
+除了没什么正事之外还挺好看的（没有说想看说正事的意思），想看的角色都登场了还挺卖的，给个+1
+
+*****
+
+####  刑部姬真可爱  
+##### 182#       发表于 2025-2-20 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479454&amp;ptid=2246911" target="_blank">阿尔巴尼亚 发表于 2025-2-20 23:13</a>
+
+我草，＋2这么多是真的因为上一集结束滑到底了？但凡回暖一点就打2，这顶天不过＋1吧 ...</blockquote>
+当你不用正常的眼光来看这部动画时，你会发现这集真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 美亚羽| + 1||
+
+查看全部评分
+
+*****
+
+####  Aloereed  
+##### 183#       发表于 2025-2-20 23:17
+
+-2.
+
+如果是搞笑动画我可以给+2<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 184#       发表于 2025-2-20 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479454&amp;ptid=2246911" target="_blank">阿尔巴尼亚 发表于 2025-2-20 23:13</a>
+我草，＋2这么多是真的因为上一集结束滑到底了？但凡回暖一点就打2，这顶天不过＋1吧 ...</blockquote>
+现在预期是精神病搞笑番，如果下集不搞笑了还得打-2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  darkendless  
+##### 185#       发表于 2025-2-20 23:19
+
++2，揭露了睦的本质，确实是最狂乐队动画
+
+*****
+
+####  厚乳果珍爽  
+##### 186#       发表于 2025-2-20 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无论这集再怎么好，动画结构决定了这片顶点就是+1了，长期給0，不好直接-1 -2走起。
+
+*****
+
+####  IL282  
+##### 187#       发表于 2025-2-20 23:21
+
++2 通过证实剧透给了我对下面5集的定心丸，作为回报+2
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凉良  
+##### 188#       发表于 2025-2-20 23:21
+
+我放弃了思考 笑个不停 +2
+
+
+*****
+
+####  remediosOlOOOO  
+##### 189#       发表于 2025-2-20 23:22
+
+沟槽的，睦头单推人要-2了，上午还在诋毁爱音厨，这下回旋镖光速暴击自己了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  EverNight  
+##### 190#       发表于 2025-2-20 23:24
+
++1，这特么设定交代是不是应该早点来啊？啊？
+
+剧情没推进去掉一分
+
+说起来，颂乐人偶原来说的真的是木子米啊。等各个木子米合并成人的那一天
+
+*****
+
+####  lhwang11  
+##### 191#       发表于 2025-2-20 23:24
+
+挺欢乐的，前上一集尬得开了倍速，这集一倍速笑得停不下来
+
+*****
+
+####  连天逢雨衣未干  
+##### 192#       发表于 2025-2-20 23:24
+
+比Pico 还搞笑(´･Д･)」
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 193#       发表于 2025-2-20 23:24
+
+-2 
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 象山晴太 月村手毬 全来精神病木柜子片场了
+
