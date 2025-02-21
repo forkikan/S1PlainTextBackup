@@ -15414,3 +15414,21 @@ VS
 说得好像第三集你能想到真给你写个第二人格，第四集你能想到这玩意到第八集还在写甚至展开成了睦姐天生演 ...</blockquote>
 这玩意现在感觉就是百合版的正解卡多，甚至还不如，人家写了7集的sf后才开始超能力混战，这玩意很早就是想出是一出<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 28102#       发表于 2025-2-21 12:28
+
+<img src="https://p.sda1.dev/22/4a901681c31db93e50c62da4771e6e8a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 28103#       发表于 2025-2-21 12:36
+
+制作组做的那些“穿帮镜头”其实就是在告诉观众，动画和现实是不一样的，毕竟宣传的也是“最狂”而不是“最现实”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
