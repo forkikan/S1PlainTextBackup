@@ -1765,3 +1765,101 @@ C团睦没有社交压力，C团炸了睦继续没有社交压力。
 
 事到如今，睦头和自己爹这样，祥子更应该别去搞什么商业乐队，在家里陪陪家人多好
 
+
+*****
+
+####  thisisaspider  
+##### 28257#       发表于 2025-2-21 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485815&amp;ptid=2208921" target="_blank">linchuanwangmou 发表于 2025-2-21 15:14</a>
+
+我没看懂，我问一下啊，吉他睦要组哭来西裤，然后墨提斯就会被干掉，所以墨提斯要组母鸡卡才不会死，已知本 ...</blockquote>
+等我看到结局再来告诉你<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草化木  
+##### 28258#       发表于 2025-2-21 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485741&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 15:06</a>
+
+喏
+
+—— 来自 鹅球 v3.3.96</blockquote>
+首先这种说法泛用性太强，哪部作品都能套用，除了纯喝茶的。
+
+其次“认知自我”需要各个角色要有连续的心路历程，而不是Ave Mujiaca这种一惊一乍式的突变，一会白祥一会黑祥，一会睦头人一会Mortis，一会无情打工人一会鸡团单推，也就喵梦还像个人样。
+
+再说现在Mujiaca显然缺少碰撞之后形成的共识，大伙各玩各的，之后都不知道怎么强行捏到一块去。
+
+*****
+
+####  野菜一日分  
+##### 28259#       发表于 2025-2-21 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一点都不在乎是演戏还是多重人格，如果多重人格是一种精神病，那把自己演戏演到这个程度跟精神病又有什么区别，就像高度发达的科技跟魔法无异，到头来这都是一个角色塑造的问题，当然多重人格的一个好处就是给了一个台阶下，迷茫的少女要活下去，披着面具的人也将活下去，这是我觉得这片唯一还能正常落地的方法，当然在演出思路的加持下，这种想法是没多大说服力。
+
+
+*****
+
+####  qlipho  
+##### 28260#       发表于 2025-2-21 15:40
+
+睦妈肯定毒亲啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，幼睦早慧加演艺能力拉满，小孩子对自我的认知少，她在孩子建立人格的阶段缩了
+
+*****
+
+####  琉璃苑軒風  
+##### 28261#       发表于 2025-2-21 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">难怪之前访谈说大猫不奇怪
+
+你的队友：
+
+多头怪古神
+
+蓝冰色孽大魔
+
+超凡双生蜘蛛侠
+
+科技怪人头尖尖星人
+
+而你只是个熊本乡下妹
+
+*****
+
+####  eyeego  
+##### 28262#       发表于 2025-2-21 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485414&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 14:29</a>
+想怎么样都可以，编剧甚至就可以告诉你睦就是被她妈为了名利拜信古神剩下的科斯小睦这都随意。
+
+但是不应 ...</blockquote>
+伏笔其实也不是没有 但是大家真没想到可以脱离现实到这种程度 那你还不如一上来给我看飞在天上的熊呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28263#       发表于 2025-2-21 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486043&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-21 15:37</a>
+首先这种说法泛用性太强，哪部作品都能套用，除了纯喝茶的。
+
+其次“认知自我”需要各个角色要有连续的心 ...</blockquote>
+因为音乐和A团
+
+喵梦虚浮，所以追求真物，实打实的演奏可以满足她；海玲失控，只能靠疯狂购物发泄自己，所以需要为乐队尽力负责消耗多余的精力；睦头想要通过演奏吉他脱离混沌建立稳定的自我，而祥子则需要修正自己的扭曲释放实现内外的平衡，释放创作欲望给自己建立一个归宿，至于初华，现在还不知道
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 28264#       发表于 2025-2-21 15:45
+
+这话多头怪古神已经成功逼迫蓝色章鱼表达了我会陪你一辈子发言了。
+
+超凡蜘蛛侠的药是不够大那就真的要变失败的人了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
