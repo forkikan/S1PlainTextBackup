@@ -5821,3 +5821,30 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 [https://www.volcengine.com/exper ... QY5&amp;rc=OO7C1OHA](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=OO7C1OHA)
 
+
+*****
+
+####  ranocchia  
+##### 1998#       发表于 2025-2-21 15:54
+
+接力
+[https://www.volcengine.com/exper ... QY5&amp;rc=5V58SMCW](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=5V58SMCW)
+
+*****
+
+####  zhywei  
+##### 1999#       发表于 2025-2-21 15:55
+
+[https://www.volcengine.com/exper ... QY5&amp;rc=7YMNA4RQ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=7YMNA4RQ)
+
+传火一下，配合应用还能实现联网推理
+
+*****
+
+####  aeolus039  
+##### 2000#       发表于 2025-2-21 15:57
+
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=W84VOXHX
+
+传一下，顺便元宝的ds能用吗？天天见广告
+
