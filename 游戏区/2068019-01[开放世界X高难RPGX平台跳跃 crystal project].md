@@ -1439,3 +1439,15 @@ QQ20250221-003932.jpg
 
 到了红杉国都，在首都开了一堆宝箱拿了一些手工装备，这些在冶炼屋升级需要的银锭银矿银粉在哪里拿的？还有优先买什么？好不容易攒了不到20银币，武器防具都贵的要命
 
+
+*****
+
+####  blackll7  
+##### 121#         楼主| 发表于 2025-2-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489015&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-21 21:46</a>
+到了红杉国都，在首都开了一堆宝箱拿了一些手工装备，这些在冶炼屋升级需要的银锭银矿银粉在哪里拿的？还有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">地图上散布着银矿，需要一点点去拿，看需要升几件吧，反正只是有数值的白板装。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
