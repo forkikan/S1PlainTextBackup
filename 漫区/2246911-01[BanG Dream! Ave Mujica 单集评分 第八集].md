@@ -2929,3 +2929,29 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 不管几个人格，都讨厌祥子才对吧，现在这不是把木头人给观众的好感也给毁掉 ...</blockquote>
 对的，第三集天降个莫提斯，这集更是重新造一个新的睦头人
 
+
+*****
+
+####  hyde_caesar  
+##### 329#       发表于 2025-2-21 13:58
+
+所以猫猫为啥只看出两个, 不应该是看到一群吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面_影  
+##### 330#       发表于 2025-2-21 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485079&amp;ptid=2246911" target="_blank">hyde_caesar 发表于 2025-2-21 13:58</a>
+所以猫猫为啥只看出两个, 不应该是看到一群吗</blockquote>
+因为死完了，传奇猎杀手木子米
+
+*****
+
+####  一心而用  
+##### 331#       发表于 2025-2-21 14:07
+
+第八话节奏榜来了！
+<img src="https://s3.bmp.ovh/imgs/2025/02/21/6f7d5d4ebbdb275d.jpg" referrerpolicy="no-referrer">
+

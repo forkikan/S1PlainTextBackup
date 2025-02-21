@@ -519,3 +519,157 @@ ave的一切操作都是围绕着延长热度期和增加热度点来展开的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  shinoverse  
+##### 28161#       发表于 2025-2-21 13:58
+
+ 本帖最后由 shinoverse 于 2025-2-21 13:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485055&amp;ptid=2208921" target="_blank">pandakun 发表于 2025-2-21 13:56</a>
+
+我看好多人说多重人格的设定是mygo完了后加的，有能印证的访谈之类的吗？还是单纯以讹传讹 ...</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 208921&amp;pid=67483499](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67483499)
+
+尚不清楚，只有渡濑结月这句话 <blockquote>我被明确告知睦有多重人格这一设定，确实是在MyGO结束mujica录音开始的时候。</blockquote>
+
+*****
+
+####  Versedust  
+##### 28162#       发表于 2025-2-21 13:58
+
+单集评分给+2不妨碍我给整体打低分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+乐得停不下来
+
+*****
+
+####  IVANLIAO  
+##### 28163#       发表于 2025-2-21 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484592&amp;ptid=2208921" target="_blank">105gun 发表于 2025-2-21 13:12</a>
+
+有的观众是真的跟低龄二游痴高度重合。对故事的欣赏能力停留在语文阅读理解水平。
+
+剧做成什么样是无所谓的 ...</blockquote>
+我们后现代观众已经进化到“故事是怎么读的”了，没收到通知吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 28164#       发表于 2025-2-21 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485063&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 13:57</a>
+
+我从一开始分析喵梦的性格就被祥党堵嘴，到现在被扣帽子早就习惯了，我只是把我想说的说出来了而已，所以 ...</blockquote>
+别在意。我现实挺忙，没时间多看几遍，看到有人分析还挺开心的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|十分感谢|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 28165#       发表于 2025-2-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485049&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-21 13:56</a>
+这几集演出不烂吗，我感觉演出烂的程度也不差于剧本</blockquote>
+这是我在第七集时候发的，重点还是企划方的“自我感动”和“自作聪明”，他们就是故意而为之，不是单纯的能力问题<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sxfox  
+##### 28166#       发表于 2025-2-21 14:00
+
+qq群的意思不是把本该讨论动画的专楼变成了楼友间互相共振和攻击的地方吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+对动画感受不一样有夸有赞的再正常不过了，哪怕是单纯输出情绪对着动画辱骂发癫都能算讨论的一环。
+
+上来就冲着讨论的人扣帽子，默认自己最人间清醒，还引得这么多人抱团加分不才是所谓二游痴最喜欢干的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 28167#       发表于 2025-2-21 14:00
+
+看到外野说短剧，确实有种当年NICO的妹痛RPG+导演小策那类超展开短剧的感觉，当然多少还是有美少女片的塑化剂。
+
+*****
+
+####  Lawliet.L  
+##### 28168#       发表于 2025-2-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485049&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-21 13:56</a>
+
+这几集演出不烂吗，我感觉演出烂的程度也不差于剧本</blockquote>
+最好的地方应该是第八集的KTV密闭空间，最差的应该是第七集的CCClive<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 28169#       发表于 2025-2-21 14:02
+
+我现在对第四集和解了，再品味第四集感觉不同了，墨宝是发自内心的不想死，才会在黑刀之夜2.0那么手足无措。
+
+第七集无法原谅，让吉他睦怀念ccc有一万种方法，真不需要烤羊live
+
+
+*****
+
+####  柯哀lv王道  
+##### 28170#       发表于 2025-2-21 14:04
+
+ktv里睦大黑影我还以为吞噬了莫，结果切了bpart还是莫在控制身体....你们两个到底谁是上位呀
+
+*****
+
+####  DD-963  
+##### 28171#       发表于 2025-2-21 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483875&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-21 12:00</a>
+
+祥子路径依赖，第三次了，母亲离世，父亲颓废，现在到姐妹犯病，一有压力就想组乐队
+
+—— 来自 鹅球 v3. ...</blockquote>
+要不祥子就跟睦组个类似SUMIMI一样的双人组合算了，别想着嚯嚯外面的人。 
+
+*****
+
+####  Lyzers  
+##### 28172#       发表于 2025-2-21 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一周过后又返回来讨论环境不行了，看来还是前几集没在泥楼被剥夺看动画权利，而且这周已经到了加鹅就算抱团了，我看着剥夺权利那几位加鹅也不少吧
+
+*****
+
+####  一心而用  
+##### 28173#       发表于 2025-2-21 14:07
+
+第八话节奏榜来了！
+
+<img src="https://s3.bmp.ovh/imgs/2025/02/21/6f7d5d4ebbdb275d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28174#       发表于 2025-2-21 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485144&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-21 14:04</a>
+ktv里睦大黑影我还以为吞噬了莫，结果切了bpart还是莫在控制身体....你们两个到底谁是上位呀 ...</blockquote>
+这个其实应该是显示双方实力差距的一种手法，第三集是睦弱莫强，现在是莫弱睦强
+
+换言之，睦和莫都是木头，两者其实没有本质区别<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

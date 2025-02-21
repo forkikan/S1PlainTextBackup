@@ -5772,3 +5772,14 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 传火
 
+
+*****
+
+####  精钢魔像  
+##### 1993#       发表于 2025-2-21 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484958&amp;ptid=2243718" target="_blank">StrangerJ 发表于 2025-2-21 13:48</a>
+
+火山云这个后付费是不是只有我用了这多token，需要付钱的时候才能用这个抵扣券啊？然后抵扣券有效期只有90 ...</blockquote>
+看费用记录像是电话费那样的月底清账式
+
