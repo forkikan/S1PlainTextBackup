@@ -2482,3 +2482,63 @@ A团这个风格能这么搞？最后搞完一圈说， ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  MASKA-1  
+##### 28321#       发表于 2025-2-21 16:48
+
+第二母鸡卡，开始重建
+https://x.com/xuserpost/status/1892803882805297471?s=19
+<img src="https://p.sda1.dev/22/760efefe5bcbc92b62b163356f9818e3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 28322#       发表于 2025-2-21 16:50
+
+其实我也同意ccc必须死，不彻底走出去的话大家都还是在羊水里泡着得不到成长，但是wsd不这么看……对了，这一集日本推特怎么说，是不是日本人又嗷嗷叫神作了
+
+*****
+
+####  梅杜莎  
+##### 28323#       发表于 2025-2-21 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486677&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-21 16:36</a>
+
+这么说睦或者莫指引素世去看祥子爹的意图是什么？</blockquote>
+楼里应该讨论过，想恶心一下祥子呗，祥子家那事儿被人听到都挺难堪的，更何况是直接看到
+
+只不过从结果来说，Mortis玩脱了
+
+*****
+
+####  天空塔书记官  
+##### 28324#       发表于 2025-2-21 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486536&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-21 16:22</a>
+薰哥哥戏路窄，跟睦这种啥都能演但她啥都不想演的感觉不在一个赛道上。不过我倒是挺想看五米零和薰哥哥两 ...</blockquote>
+熏的演技是“请神”，或者说“自我催眠”，其实更加可怕，她演谁就是谁
+
+看第二季第四集，她演怪盗，所以就能把请帖飞进水泥路面，甚至能带着李美丽“瞬移”
+
+她认为自己是天鹅，就能短时间内克服最大的弱点恐高症
+
+所以和搞笑角色比战力还是算了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 28325#       发表于 2025-2-21 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486840&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 16:51</a>
+薰的演技是“请神”，或者说“自我催眠”，其实更加可怕，她演谁就是谁
+
+看第二季第四集，她演怪盗，所以 ...</blockquote>
+神助拳，义和团，只因老钟闹大和
+

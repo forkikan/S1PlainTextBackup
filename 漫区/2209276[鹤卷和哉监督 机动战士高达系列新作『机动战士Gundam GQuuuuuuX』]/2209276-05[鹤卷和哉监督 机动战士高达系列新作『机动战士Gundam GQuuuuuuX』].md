@@ -17682,3 +17682,21 @@ X @mitotank
 
 看样子只有喵安的高光是分件，麻球应该还是贴纸
 
+
+*****
+
+####  岸浪白野  
+##### 7273#       发表于 2025-2-21 16:48
+
+ 本帖最后由 岸浪白野 于 2025-2-21 16:52 编辑 
+
+感觉以后会有拿玛秋这布偶水每日KPI图的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/21/164835sp3toz1n1snn1d5s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.71 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 16:48 上传
+
