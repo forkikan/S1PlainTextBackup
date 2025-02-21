@@ -2707,3 +2707,31 @@ m，w c i s，莫名其妙后半段就是边看边笑<img src="https://p.sda1.de
 
 +1，好歹回归一般二偶动画日常回水准线之上了，期待海铃吃多了的样子
 
+
+*****
+
+####  snaketora  
+##### 304#       发表于 2025-2-21 09:57
+
+早说你是搞笑片不就结了，虽然看的很乐，但看完后脑子在攻击我的品味，只能-1了
+
+
+*****
+
+####  CyDiablo  
+##### 305#       发表于 2025-2-21 10:01
+
+八八你怎么真的是奶牛猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">同人女最有见地的一集
+睦这个did的处理方式多少有点鸡贼吧
+mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时坏
+
++2 送给把贝斯寄放在好同学店里的邪恶奶牛猫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 306#       发表于 2025-2-21 10:04
+
++2
+虽然烂片警告响个不停，但的确乐出来了
+
