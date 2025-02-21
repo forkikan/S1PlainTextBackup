@@ -3542,3 +3542,61 @@ umr就是管人管爆炸了，所以想要又管人又不要背责任。
 刚看完。别说，这集比前面4-7都要有条理得多欸。主线很清晰，包袱也抖得不错 ...</blockquote>
 古神真的合理吗？
 
+
+*****
+
+####  天空塔书记官  
+##### 28413#       发表于 2025-2-21 19:19
+
+所以如果不是喜剧化了人物形象，海铃一定会是目前最让人讨厌的角色，极端自我、控制狂还是个不想负责的愉悦犯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 28414#       发表于 2025-2-21 19:19
+
+<blockquote>天空塔书记官 发表于 2025-2-21 19:19
+所以如果不是喜剧化了人物形象，海铃一定会是目前最让人讨厌的角色，极端自我、控制狂还是个不想负责的愉悦 ...</blockquote>
+起码还是人
+
+*****
+
+####  plok201  
+##### 28415#       发表于 2025-2-21 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">挺合理的，戏精把自己演出问题的题材，电影有动画有，现实为此自杀的演员也有
+
+虽然鸡狗两季动画，前面描写和铺垫都太少了，但是这点其实没啥问题，顶多观感确实差
+
+*****
+
+####  adretyu67.  
+##### 28416#       发表于 2025-2-21 19:21
+
+其实应该是第一次管爆炸以后就怂了不敢负责了。
+
+*****
+
+####  非建政专用号  
+##### 28417#       发表于 2025-2-21 19:21
+
+这么一想，日本那读空气的环境，海子能被四爆一感觉高低得管到人家拉屎时长了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  天空塔书记官  
+##### 28418#       发表于 2025-2-21 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487937&amp;ptid=2208921" target="_blank">wpcc 发表于 2025-2-21 19:19</a>
+起码还是人</blockquote>
+这样几个要素叠在一起在现实通常就是龙场起步，纯纯的反/社会/分子好吧，比只是设定唬人的多重人格可吓人多了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
