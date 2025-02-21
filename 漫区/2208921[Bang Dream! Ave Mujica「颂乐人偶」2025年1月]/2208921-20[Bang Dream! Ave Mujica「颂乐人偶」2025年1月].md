@@ -5273,3 +5273,38 @@ mygo这个片子能广泛引起情感共鸣也就是因为这个，也正因此�
 睦妈肯定毒亲啊，幼睦早慧加演艺能力拉满，小孩子对自我的认知少，她在孩子建立人格的阶段缩了 ...</blockquote>
 那么像mtm老爹那样看不出来就只觉得女儿挺好的反而就是正常家长了吗
 
+
+*****
+
+####  ccared  
+##### 28552#       发表于 2025-2-22 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489232&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-21 22:24</a>
+实际上现在最魔幻的剧情就是大喵前几天还在吃激辣拉面，现在就ysl联名单出一列产品
+另外ysl这类奢侈品出 ...</blockquote>
+其实吃激辣拉面那趴已经很离谱了。那大概率是地上波的综艺，还是单人化妆车，甚至是单人part。一般小偶像拍吃辣综艺是当绿叶去的，要请搞笑艺人压番，搞笑艺人的reaction才是红花。
+
+youtuber出身干到地上波刷脸的挺凤毛麟角了，抛去quizknock，fischer这种组团接通告的，比大喵老师走的远的就hikakin木下优树菜那寥寥几位，比大喵老师走的快的更是没有。
+
+
+*****
+
+####  syndrome2032  
+##### 28553#       发表于 2025-2-22 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490099&amp;ptid=2208921" target="_blank">look900822 发表于 2025-2-22 01:22</a>
+那么像mtm老爹那样看不出来就只觉得女儿挺好的反而就是正常家长了吗</blockquote>
+若叶睦的问题没法确定是幼年缺少母亲关心导致的价值观混乱(睦母实际行为)，还是天生古神体质(睦母说的)。
+
+*****
+
+####  syndrome2032  
+##### 28554#       发表于 2025-2-22 01:32
+
+ 本帖最后由 syndrome2032 于 2025-2-22 01:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490109&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-22 01:28</a>
+其实吃激辣拉面那趴已经很离谱了。那大概率是地上波的综艺，还是单人化妆车，甚至是单人part。一般小偶像 ...</blockquote>
+吃拉面其实怎么说呢，就算是演小丑也是正式综艺节目了吧。
+
+要知道之前大猫老师就是纯网红。
+
