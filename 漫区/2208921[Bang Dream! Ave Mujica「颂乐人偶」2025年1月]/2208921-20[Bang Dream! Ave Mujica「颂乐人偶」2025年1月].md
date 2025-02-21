@@ -4966,3 +4966,16 @@ soyo大战saki，但是高达音效
 
 2025-2-21 23:33 上传
 
+
+*****
+
+####  aptx8285144  
+##### 28523#       发表于 2025-2-21 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489512&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-21 23:11</a>
+
+临睡做一下人设回撤
+
+我先前讨厌双重人格这个设定，是因为我认为双重人格这个玩意必定要秘密、绝望、孤独这 ...</blockquote>
+其实还有“伸张正义”，参考不吉波普，但是这里吗，总不会真出现莫老师大战财阀的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
