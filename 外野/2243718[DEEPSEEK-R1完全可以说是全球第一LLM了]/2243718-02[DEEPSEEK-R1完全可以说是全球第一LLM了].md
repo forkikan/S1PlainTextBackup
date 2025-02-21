@@ -5876,3 +5876,30 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 传一下,正好硅基充的快用完了,看看火山的怎么样
 [https://www.volcengine.com/exper ... QY5&amp;rc=S4BKXK7X](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=S4BKXK7X)
 
+
+*****
+
+####  秦南心  
+##### 2004#       发表于 2025-2-21 16:08
+
+V3生成涩涩总是乱码和胡言乱语，，咋回事，硅基api尚且还好，派欧就全是胡话了，，真有审核吧
+
+
+*****
+
+####  Geronimo  
+##### 2005#       发表于 2025-2-21 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486261&amp;ptid=2243718" target="_blank">aeolus039 发表于 2025-2-21 15:57</a>
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=W84VOXHX
+
+传一下， ...</blockquote>
+能用啊，感觉和火山+chatbox的效果差不多，还不要钱
+
+*****
+
+####  名居守  
+##### 2006#       发表于 2025-2-21 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">派欧云肯定，我用其他家测试破限词让D老师根据自己特色介绍自己，就他家的会正儿八经的用官方的说辞
+

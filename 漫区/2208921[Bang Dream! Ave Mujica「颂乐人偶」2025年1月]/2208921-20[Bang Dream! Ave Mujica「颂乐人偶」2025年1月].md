@@ -2080,3 +2080,153 @@ mortis虽然临时占据了主人格的位置，但是小睦这个人格更稳�
 
 再问漏油一遍，睦真的比大喵更像人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 28282#       发表于 2025-2-21 16:07
+
+再问漏油一遍，睦真的比大喵更像人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28283#       发表于 2025-2-21 16:08
+
+再问漏油一遍，睦真的比大喵更像人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 28284#       发表于 2025-2-21 16:09
+
+第一集的时候大家还在讨论如何洗白大喵，结果第八集告诉你只有大喵至少算是个人类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  capraeLinn  
+##### 28285#       发表于 2025-2-21 16:10
+
+干嘛，还想用“人”来贬低我们多首的怪物吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 28286#       发表于 2025-2-21 16:11
+
+是觉得多重人格患者不配当人，还是觉得先天表演圣体不配当人。
+
+*****
+
+####  最终兵器狂战  
+##### 28287#       发表于 2025-2-21 16:12
+
+还要啥像人啊，零灯尤格萨隆可比凡人时髦多了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 28288#       发表于 2025-2-21 16:12
+
+海铃喜欢鸡团因为可以做二当家充分满足控制狂的需求啊
+
+“你是若叶家的大明星，得狠狠往死里卷”
+
+<img src="https://img.saraba1st.com/forum/202502/21/161102dn94i4cdzedw9bz1.png" referrerpolicy="no-referrer">
+
+<strong>jiodsosd.png</strong> (378.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 16:11 上传
+
+*****
+
+####  刑部姬真可爱  
+##### 28289#       发表于 2025-2-21 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486420&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-21 16:11</a>
+
+是觉得多重人格患者不配当人，还是觉得先天表演圣体不配当人。</blockquote>
+不是配不配的问题，而是像不像“正常”人的问题
+
+*****
+
+####  草化木  
+##### 28290#       发表于 2025-2-21 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486220&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 15:53</a>
+
+虽然ave十分异色，但还是能用这套框架去分析的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+MyGo还能说是歌是内心的呐喊，"天啊，这唱的简直就是我".jpg。
+
+A团这个风格能这么搞？最后搞完一圈说，天啊，原来大伙都是中二病？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28291#       发表于 2025-2-21 16:14
+
+别3p了，大象和古神的斗争已经结束了
+假设qq空间里大象在木头身下的时候说一句你真是高高在上，大莫老师直接顶号来一句小睦已经死了不得把人吓到切白象，发表一辈子宣言
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 28292#       发表于 2025-2-21 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486437&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 16:13</a>
+
+不是配不配的问题，而是像不像“正常”人的问题</blockquote>
+她都得病了，当然不属于正常范畴啊
+
+*****
+
+####  aptx8285144  
+##### 28293#       发表于 2025-2-21 16:15
+
+演到第八集竟然还给双重人格层层加码不说，还摆出要否定go时期睦的姿态，柿本和独角兽这群人说是失心疯了也不为过吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野菜一日分  
+##### 28294#       发表于 2025-2-21 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这片如果不是想一本正经搞笑，也没自己被自己说出的史上最狂骗到，那我认为想要达成的效果就像是西尾维新《少女不十分》里那样，你是异常的，但你还是能活下去，能得到幸福，这样再似人也无所谓，也能和mygo对的上。
+
+*****
+
+####  gammatau  
+##### 28295#       发表于 2025-2-21 16:15
+
+第一二集我就觉得，这乐队里3.5个人都是动机异常的神人（我只有avemujica了，听祥子的，和祥子贴贴，反正我就是来打工的），只有大喵一个的动机很正常接地气，大喵肯定会起重要作用。
+
+但是没想到你们不仅是动机异常，整个人都是异常的。
+
+*****
+
+####  天空塔书记官  
+##### 28296#       发表于 2025-2-21 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486441&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-21 16:13</a>
+MyGo还能说是歌是内心的呐喊，"天啊，这唱的简直就是我".jpg。
+
+A团这个风格能这么搞？最后搞完一圈说， ...</blockquote>
+“音乐是月光能给予人偶生命，音乐就是自我生命力的来源和自我价值实现的途径，只有在A团五个人才能成为真正的自己”
+
+大概会是这样<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 28297#       发表于 2025-2-21 16:16
+
+现在比较遗憾的是hhw被ban了，薰哥哥作为出了名的演技派角色不能和天赋怪物睦头人在动画里飚一下戏让人真的觉得可惜<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
