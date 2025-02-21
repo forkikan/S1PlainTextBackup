@@ -3026,3 +3026,78 @@ ave mujica，早在mygo的最后一集，就已经明确了这个乐队这个动
 
 确实这几集，很多地方演出手法和剧本编排不太行，但也是没把多重人格这个故事讲好，而不是这片根本不该有多重人格。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 28370#       发表于 2025-2-21 17:37
+
+又开始发（疑似）剧透聊（疑似）剧透了，就不能有点追原创番的乐趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 28371#       发表于 2025-2-21 17:39
+
+接下来几周的版本就是“与剧透的一样没意思” 和 “与剧透的不一样，和我想的不一样，烂完”
+
+网友精神状态再这么下去也可以组属于自己的母鸡卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 28372#       发表于 2025-2-21 17:39
+
+就現在的人偶祥，
+
+你讓她背負東西等同把東西放行李架
+
+*****
+
+####  刑部姬真可爱  
+##### 28373#       发表于 2025-2-21 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487291&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-21 17:35</a>
+
+我觉得睦的多重人格就是这片子要讲的主线，主要内容，为什么还老喜欢一口一个噱头炒作故事推进器的开喷？都 ...</blockquote>
+它要是能在mygo多来点多重人格的伏笔那应该会有更多人能接受，但空降一个设定下来很难让人不说这片不该有多重人格，当然演出和编剧菜也是事实<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 28374#       发表于 2025-2-21 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487327&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 17:41</a>
+
+它要是能在mygo多来点多重人格的伏笔那应该会有更多人能接受，但空降一个设定下来很难让人不说这片不该有 ...</blockquote>
+我好奇问一下，少女乐队题材里面有多重人格吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28375#       发表于 2025-2-21 17:43
+
+ 本帖最后由 adretyu67. 于 2025-2-21 17:45 编辑 
+
+鸡团的人偶就是每个人都有想要藏起来的一面。
+
+祥子是大小姐隐藏起来的家庭矛盾。
+
+睦是自我认知偏差。
+
+海玲是强烈控制欲。
+
+初华藏得东西目前不明，能看出来得只有对祥子的重女和隐藏ccc遗老（目前应该没人知道她是CCC粉丝吧）
+
+喵姆想要藏起来的东西同样不明，家人、流量、金钱都是现在已经知道的东西。
+
+*****
+
+####  usodakedo  
+##### 28376#       发表于 2025-2-21 17:44
+
+我一直觉得好的原创番所谓的“无法预测的舞台”，应该是这一幕假药是论证某某是蜘蛛侠，下一周正片端上来告诉你某某不是蜘蛛侠，但是通过前面的蛛丝马迹可以合理证明他是蝙蝠侠，而不是猛地空降设定和你说这其实是克苏鲁世界观，某某是从出生就被邪神赐福的怪物。
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
