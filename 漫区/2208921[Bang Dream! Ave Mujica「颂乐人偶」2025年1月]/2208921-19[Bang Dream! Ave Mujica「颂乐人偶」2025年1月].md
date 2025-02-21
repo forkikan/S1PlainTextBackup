@@ -14801,3 +14801,78 @@ VS
 
 这周宁可让睦的人格体系大乱斗到搞不清究竟在干什么，让海铃玩购物艺术，也不给go团上周的事找补，我想知道go的粉丝心情如何<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 28048#       发表于 2025-2-21 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483628&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 11:35</a>
+这周宁可让睦的人格体系大乱斗到搞不清究竟在干什么，让海铃玩购物艺术，也不给go团上周的事找补，我想知道 ...</blockquote>
+不不不，没有事就是好事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  LeonsCat  
+##### 28049#       发表于 2025-2-21 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481725&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 08:47</a>
+
+一個月武道館
+
+VS
+
+三個月聯名奢牌</blockquote>
+3&gt;&gt;1&gt;2
+
+3在理论上存在不需要复杂的运营，个人或者小团体能实现的，说难听点说不定炒币上天了呢。
+
+1和2都属于涉及的社会影响过于离谱，1好歹就是日本境内闹闹，2是涉及全球运营的，所以1&gt;2。
+
+
+*****
+
+####  adretyu67.  
+##### 28050#       发表于 2025-2-21 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483628&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 11:35</a>
+
+这周宁可让睦的人格体系大乱斗到搞不清究竟在干什么，让海铃玩购物艺术，也不给go团上周的事找补，我想知道 ...</blockquote>
+开头立希不就和海玲说了ccc不可能复活吗。
+
+预告里有祥子找灯和奶龙道谢，估计ccc复活这事还是要被拒掉。
+
+*****
+
+####  Lyzers  
+##### 28051#       发表于 2025-2-21 11:43
+
+大喵老师只接综艺节目，舞台剧抢不过甜甜圈，一个乡下高一妹哪来的大牌资源
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">考虑现实性怕不是拍好几部爱猫TV都要穿纸尿裤了
+
+
+*****
+
+####  aptx8285144  
+##### 28052#       发表于 2025-2-21 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483680&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-21 11:41</a>
+
+开头立希不就和海玲说了ccc不可能复活吗。
+
+预告里有祥子找灯和奶龙道谢，估计ccc复活这事还是要被拒掉。 ...</blockquote>
+说的可不只是CCC，粉色奶农上周在ccc遗老们面前宛如外人一样的待遇，那几个人要是毫无自觉，那只能说柿本独角兽这群人蠢到家了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28053#       发表于 2025-2-21 11:47
+
+结合现在的ave，再回顾mygo的设定和剧情，会发现这两部的架构其实更像是电波系轻小说，尤其是三神经那样的异色作品，核心主题与《物语》是类似的，从“异常者也能获得幸福”延伸到“虽然是异常者也能组乐队”，这就是所谓对少女乐队类型动画的突破，就从更加大胆的角色设定开始
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
