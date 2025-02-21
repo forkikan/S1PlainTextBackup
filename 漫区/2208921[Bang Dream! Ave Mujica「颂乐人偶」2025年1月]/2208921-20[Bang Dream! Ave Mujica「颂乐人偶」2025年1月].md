@@ -2230,3 +2230,100 @@ A团这个风格能这么搞？最后搞完一圈说， ...</blockquote>
 
 现在比较遗憾的是hhw被ban了，薰哥哥作为出了名的演技派角色不能和天赋怪物睦头人在动画里飚一下戏让人真的觉得可惜<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最终兵器狂战  
+##### 28298#       发表于 2025-2-21 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486441&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-21 16:13</a>
+
+MyGo还能说是歌是内心的呐喊，"天啊，这唱的简直就是我".jpg。
+
+A团这个风格能这么搞？最后搞完一圈说， ...</blockquote>
+也许可以 “天啊，万幸这唱的绝逼不是我”
+
+*****
+
+####  qlipho  
+##### 28299#       发表于 2025-2-21 16:17
+
+章鱼还是弱了点，该献祭真红人偶了
+
+*****
+
+####  是谁的书画  
+##### 28300#       发表于 2025-2-21 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486345&amp;ptid=2208921" target="_blank">航母掉头 发表于 2025-2-21 16:03</a>
+墨提斯明显还只是个孩子，大象准备进监狱么</blockquote>
+至少从第八集来看，莫提斯比吉他睦更早诞生，她最早不是因为mujica才出现的，而是“依傍”守护大睦才能够在大逃杀里存活。
+所以我也可以有理由怀疑她也可能是小象发小中的其中一个，拥有捉爱权<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 28301#       发表于 2025-2-21 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484592&amp;ptid=2208921" target="_blank">105gun 发表于 2025-2-21 13:12</a>
+
+有的观众是真的跟低龄二游痴高度重合。对故事的欣赏能力停留在语文阅读理解水平。
+
+剧做成什么样是无所谓的 ...</blockquote>
+故事是“怎么讲的”，那当然是靠2.5次元商业活动看完动画吸引大家去看live讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+有了前面的认识后再走一步就会认识到这种动画没必要怄气了，它就这样的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ltycomputer  
+##### 28302#       发表于 2025-2-21 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486494&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-2-21 16:18</a>
+
+故事是“怎么讲的”，那当然是靠2.5次元商业活动看完动画吸引大家去看live讲啊</blockquote>
+这种质量的动画，真的有人会在意后面live里的中二小剧场么
+
+*****
+
+####  与太郎  
+##### 28303#       发表于 2025-2-21 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485739&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 15:05</a>
+
+这个故事逻辑要看接的是mygo故事的逻辑还是mujica故事的逻辑，后者的故事逻辑那就会是挺好的 ...</blockquote>
+
+既然爱音在场，那大概率是要发挥作用的，制作组从第一集开始就让爱音当工具人，这时候用一下也很正常
+
+把制作组往坏了想的话，还可以是灯表示已经有MyGO了终究还是没法重组，然后爱音表示「睦ちゃんのためにもう一度Crychicやりなよ」<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  最终兵器狂战  
+##### 28304#       发表于 2025-2-21 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486474&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 16:16</a>
+
+现在比较遗憾的是hhw被ban了，薰哥哥作为出了名的演技派角色不能和天赋怪物睦头人在动画里飚一下戏让人真的 ...</blockquote>
+薰哥哥戏路窄，跟睦这种啥都能演但她啥都不想演的感觉不在一个赛道上。不过我倒是挺想看五米零和薰哥哥两个人互放油腻术看谁能把谁腻到恶心的。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28305#       发表于 2025-2-21 16:23
+
+请问台词：“过去那个软糯的我已经死了”是哪个角色发表的
+A、丰川祥子
+B、若叶睦
+C、莫提斯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  66367749  
+##### 28306#       发表于 2025-2-21 16:24
+
+我是真的不觉得这个闹麻剧本有很高的讨论价值，但看到有人评价睦祥的故事线是霸道古神爱上传奇调查员，真的把我给笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
