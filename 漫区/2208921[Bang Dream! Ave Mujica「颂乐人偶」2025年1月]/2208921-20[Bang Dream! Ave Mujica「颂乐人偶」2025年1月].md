@@ -3786,3 +3786,229 @@ T2     摩卡     日菜     多惠     高松灯     香澄
 
 T3     亚子
 
+
+*****
+
+####  最终兵器狂战  
+##### 28428#       发表于 2025-2-21 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488101&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 19:47</a>
+
+纯主观论神棍Tier啊：
+
+T0     弦卷心     若叶睦
+
+T1     幻觉姐     要乐奈</blockquote>
+菌子领域全展开的小白竟然都排不上号么？
+
+*****
+
+####  zhoujin8584  
+##### 28429#       发表于 2025-2-21 19:49
+
+然后海铃在被两任鼓手锐评你不值得信任的前提下还去把莫老师诱拐到家里说请相信我彼可取而代之，算不算骗小孩儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 28430#       发表于 2025-2-21 19:50
+
+不就是想把吉他人格嘎了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/478659f3d54bd7a6e1d3c526fb4873d6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 28431#       发表于 2025-2-21 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488111&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-21 19:49</a>
+然后海铃在被两任鼓手锐评你不值得信任的前提下还去把莫老师诱拐到家里说请相信我彼可取而代之，算不算骗小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是第四集结尾干这事儿，还有的搞，现在都第八集了，再整活要来不及了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 28432#       发表于 2025-2-21 19:51
+
+古神睦看上去牛逼哄哄，天生奈亚圣体。
+
+但是实际上她也就把能力用来pua大祥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  HereLink  
+##### 28433#       发表于 2025-2-21 19:51
+
+这地方我没看懂，为什么海铃就认可mortis了，要她成为本尊😄
+
+*****
+
+####  非建政专用号  
+##### 28434#       发表于 2025-2-21 19:52
+
+有没有奢侈品战士研究一下，海子姐挂着十几个袋子的展示肱头肌肉体强度大概什么水平，有丰川改造人水准吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 28435#       发表于 2025-2-21 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487825&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-2-21 19:05</a>
+
+海子姐不是一个无所吊谓的自由人吗，为啥要重组mujica
+
+是不是只能解释成海是为了看乐子 ...</blockquote>
+为了钱吧，你看她不是自己说了多亏现在的乐队才让自己母鸡卡<strong>解散后也能独立生活下去</strong>，母鸡卡给的钱多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 28436#       发表于 2025-2-21 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488051&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-21 19:38</a>
+
+感觉接下来5集会有3场Live，4首歌。
+
+原创歌曲中，「Ave Mujica」、「KiLLKiSS」、「Georgette Me, Georget ...</blockquote>
+黒のバースデイ
+
+見える　見える　見えないものが　ほら
+
+生まれ変わる　ああ　本当の私に
+
+b站官方翻译直接把 見えないものが 翻译成不可目视之物
+
+谁会想到指的是睦子阿
+
+
+*****
+
+####  liy30dlys  
+##### 28437#       发表于 2025-2-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487825&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-2-21 19:05</a>
+海子姐不是一个无所吊谓的自由人吗，为啥要重组mujica
+
+是不是只能解释成海是为了看乐子 ...</blockquote>
+因为一见迈巴赫误终身啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  syndrome2032  
+##### 28438#       发表于 2025-2-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488122&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-21 19:51</a>
+这地方我没看懂，为什么海铃就认可mortis了，要她成为本尊😄</blockquote>
+海玲要重建鸡团，就需要墨提斯弹吉他。
+墨提斯想要活下去也必须重建鸡团，但是她做不到平时自己处理社交，让睦头上台演奏。
+
+海玲指出了第四话那会就应该做的事了，菜就多练。
+
+*****
+
+####  YF31  
+##### 28439#       发表于 2025-2-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487791&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-21 18:59</a>
+
+大喵老师几个月联动高奢是不是丰川老头给的精神损失费（合力击杀古神的奖励）
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丰川家这种亏了168亿就要开社长的市级房地产企业，哪里给得起YSL联名这种待遇，能让YSL出联名款的咖位参考凯特王妃。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 非建政专用号| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  是谁的书画  
+##### 28440#       发表于 2025-2-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488108&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-21 19:49</a>
+
+菌子领域全展开的小白竟然都排不上号么？</blockquote>
+太人畜无害，没有战斗力啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cccpprc  
+##### 28441#       发表于 2025-2-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487825&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-2-21 19:05</a>
+
+海子姐不是一个无所吊谓的自由人吗，为啥要重组mujica
+
+是不是只能解释成海是为了看乐子 ...</blockquote>
+你看她组乐队拼职业到队友集体**就知道了
+
+这是个野心家
+
+现在有一个能掌权又不背锅的机会在面前，肯定要上的啊
+
+*****
+
+####  天空塔书记官  
+##### 28442#       发表于 2025-2-21 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488101&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 19:47</a>
+纯主观论神棍Tier啊：
+
+T0     弦卷心     若叶睦
+
+T1     幻觉姐     要乐奈</blockquote>
+还有“演神”濑田薰和“普通人”广町七深呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 28443#       发表于 2025-2-21 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487931&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 19:19</a>
+
+所以如果不是喜剧化了人物形象，海铃一定会是目前最让人讨厌的角色，极端自我、控制狂还是个不想负责的愉悦 ...</blockquote>
+不不不，现在是其他角色要么神隐要么疯癫
+
+只要有逻辑自洽塑造的角色都会令人喜爱
+
+*****
+
+####  syndrome2032  
+##### 28444#       发表于 2025-2-21 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488142&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-21 19:54</a>
+丰川家这种亏了168亿就要开社长的市级房地产企业，哪里给得起YSL联名这种待遇，能让YSL出联名款的咖位参 ...</blockquote>
+我觉得联名款这事不能太深究。
+
+喵姆咖位距离sumimi这种级别的偶像还是差很多的。
+
+*****
+
+####  是谁的书画  
+##### 28445#       发表于 2025-2-21 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488150&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 19:55</a>
+
+还有“演神”濑田薰和“普通人”广町七深呢</blockquote>
+都正常人，濑田在我这里排不上号，勉强算T4吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

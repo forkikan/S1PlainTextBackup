@@ -6045,3 +6045,22 @@ deepseek今天宣布再开源5个库，这下太平洋对面的巨头真的脸�
 
 我就想整点冷圈同人自娱自乐而已(Ｔ▽Ｔ)
 
+
+*****
+
+####  elect  
+##### 2020#       发表于 2025-2-21 19:49
+
+[https://www.volcengine.com/exper ... QY5&amp;rc=A6K9LQN1](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=A6K9LQN1)  
+
+接
+
+*****
+
+####  aeolus039  
+##### 2021#       发表于 2025-2-21 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486413&amp;ptid=2243718" target="_blank">Geronimo 发表于 2025-2-21 16:10</a>
+能用啊，感觉和火山+chatbox的效果差不多，还不要钱</blockquote>
+同一张图本家能认对元宝认不对，好怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
