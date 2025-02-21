@@ -4695,3 +4695,28 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 而跟ysl联名在现实中没有任何一个娱乐明星能做得到
 当然这件事也离制作组跟受众太远了，以至于这个一拍脑门的设定，实际上也没多大问题
 
+
+*****
+
+####  aptx8285144  
+##### 28500#       发表于 2025-2-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489100&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-21 22:01</a>
+
+突然想到一件事，现在剧中是什么时间？
+
+这个“重要时期”会不会说的是……考试？ ...</blockquote>
+说得真好，在母鸡卡里面搞乐队反而不如专心备考更利于身心健康<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 28501#       发表于 2025-2-21 22:33
+
+若叶睦现在是两个方案，
+1.让小睦控制祥子重组ccc。
+2.让墨提斯练琴重组mujica。
+不管那个方案若叶睦应该都能得到正反馈。哪怕搞mujica受伤也是小睦而不是若叶睦
+
+可见邦多利世界观下哪怕你是古神化身也是要搞乐队的。
+
