@@ -15432,3 +15432,61 @@ VS
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Lawliet.L  
+##### 28104#       发表于 2025-2-21 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484033&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 12:17</a>
+
+不管是契丹还是蝈蝈，都是边写剧本边拍动画，所以后期编剧突然觉得自己有了一个绝妙的点子后，动画就朝一去 ...</blockquote>
+那只能当成舞台装置了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 28105#       发表于 2025-2-21 12:40
+
+来去自如的现实性情节
+
+*****
+
+####  凉良  
+##### 28106#       发表于 2025-2-21 12:42
+
+事到如今 一个月速通武道馆已经是最平平无奇的设定了吧
+含金量不如小网红三个月让奢侈品出联名款
+
+*****
+
+####  Putredinus  
+##### 28107#       发表于 2025-2-21 12:42
+
+早期刻画出是祥子压力睦导致睦精神异常——&gt;祥子是加害者，睦是受害者（似乎还是完美受害者）
+
+到现在祥子反而被睦变人偶了——&gt;祥子变成了受害者，睦是加害者（似乎能看出睦是有意的行为）
+
+这就是之前说的悬疑推理吗<img src="https://static.saraba1st.com/image/smiley/carton2017/468.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 28108#       发表于 2025-2-21 12:44
+
+但ave目前真的可以确定为现实情节的只有生老病死，其他的都是舞台装置，这从最速武道馆开始就是明说了的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  戏谑二次元  
+##### 28109#       发表于 2025-2-21 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484283&amp;ptid=2208921" target="_blank">Putredinus 发表于 2025-2-21 12:42</a>
+早期刻画出是祥子压力睦导致睦精神异常——&gt;祥子是加害者，睦是受害者（似乎还是完美受害者）
+
+到现在祥子反 ...</blockquote>
+大家都以为杀人凶手是祥子，结果受害者才是凶手，早前的凶手是受害者。我已经和推理小说互相理解了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
