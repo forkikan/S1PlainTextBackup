@@ -3166,3 +3166,36 @@ soyo发的c团的状态是“再见了”
 
 海玲实在太有趣了
 
+
+*****
+
+####  my707776310  
+##### 355#       发表于 2025-2-21 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐是挺乐的,-2拿好
+
+*****
+
+####  ads147147  
+##### 356#       发表于 2025-2-21 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485180&amp;ptid=2246911" target="_blank">一心而用 发表于 2025-2-21 14:07</a>
+第八话节奏榜来了！</blockquote>
+想起丸山彩的ppp也是商业乐队来着。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ads147147  
+##### 357#       发表于 2025-2-21 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487195&amp;ptid=2246911" target="_blank">whzfjd 发表于 2025-2-21 17:24</a>
+soyo 为什么是已通过？</blockquote>
+初华视Xcrychic的账号，发现soyo发了道别推文，说明已经结束了。
+
+就看下一集祥子找灯提复合，灯怎么回复的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
