@@ -1492,3 +1492,67 @@ D团人不坏的，但是依然很难让海铃安心，原因是人太少吗？<
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ape-apple  
+##### 28235#       发表于 2025-2-21 15:09
+
+ 本帖最后由 ape-apple 于 2025-2-21 15:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485422&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-2-21 14:30</a>
+
+在英文圈里睦妈一跃成为邦多利最出生的家长</blockquote>
+英文圈啥比比例极高，他们是真的带入党，老是把自己的身心情况带入到角色上，然后高呼“啊这简直就是我”引之前给角色美黑就引起争议，后面还有加肥角色的，都是套自己那点事
+
+睦妈厨还是免了吧，但是看欧美带入党是真没话说，他们批评和夸奖都没啥实际意义
+
+*****
+
+####  刑部姬真可爱  
+##### 28236#       发表于 2025-2-21 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485720&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-21 15:04</a>
+
+少女乐队类型的作品，同时搞出现实的违约金问题、魔幻的多重人格分裂、灵异的猫猫阴阳眼，想一出是一出的， ...</blockquote>
+我倒是觉得主题已经呼之欲出了，我们看到的剧情以及场外的访谈信息告诉我们，amj真的就是一只神人乐队，没有krkr只有dkdk，大家都在乐队里犯病并互相之间形成了某种平衡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28237#       发表于 2025-2-21 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485742&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-21 15:06</a>
+真盘逻辑的话这集我有很多疑惑
+例如说睦的人格是为了适应不同环境创造的，那mygo里c团解散算不算一次环境剧 ...</blockquote>
+因为睦的稳定器是祥子，她在第三集之前是一直勉强运行的，直接导致“莫提斯”出现的原因是路线分歧争吵后祥子单方面对睦的“抛弃”，不想要沉默无口的睦，而是一个“更加能说话能表现”的睦<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  linchuanwangmou  
+##### 28238#       发表于 2025-2-21 15:14
+
+我没看懂，我问一下啊，吉他睦要组哭来西裤，然后墨提斯就会被干掉，所以墨提斯要组母鸡卡才不会死，已知本剧叫母鸡卡，那是不是最后结局就是墨提斯在海铃帮助下学会弹吉他重组母鸡卡，吉他睦没有再出来的必要了
+
+*****
+
+####  刑部姬真可爱  
+##### 28239#       发表于 2025-2-21 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485815&amp;ptid=2208921" target="_blank">linchuanwangmou 发表于 2025-2-21 15:14</a>
+
+我没看懂，我问一下啊，吉他睦要组哭来西裤，然后墨提斯就会被干掉，所以墨提斯要组母鸡卡才不会死，已知本 ...</blockquote>
+无论如何都会包饺子的，所以肯定会和解的<img src="https://static.saraba1st.com/image/smiley/carton2017/484.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 28240#       发表于 2025-2-21 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485703&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-21 15:03</a>
+
+缺乏父母的正反馈，只能自己给自己正反馈吧，把吉他作为不是从父母那继承来的才能，只是属于自己的东西 ...</blockquote>
+睦喜欢PP，可能还更早点。
+
