@@ -13745,3 +13745,127 @@ soyo妈妈属于新钱想往上融圈子租的大平层
 mortis不会弹吉他炸团</blockquote>
 仔细想想，初华也是第四集在车上被莫提斯给算计了，当时莫提斯认为祥子对睦有害，于是撺掇初华拖住祥子。初华则是痛快交出C位，没想到一集不到人财两空。
 
+
+*****
+
+####  zhzij111  
+##### 27957#       发表于 2025-2-21 09:45
+
+ 本帖最后由 zhzij111 于 2025-2-21 09:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482058&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-21 09:18</a>
+立希以后结婚了养得起海玲吗</blockquote>
+一个臭打工仔也就能买买抹茶芭菲，所以海希只能偷情，海祥才是正宫。海希似了，被物质条件击败了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 27958#       发表于 2025-2-21 09:45
+
+祥子把黑名单里的soyo放出来没，放出来会不会收到一大堆以前的信息啊
+
+*****
+
+####  syndrome2032  
+##### 27959#       发表于 2025-2-21 09:46
+
+鸡团第8话就是明白讲若叶睦这个人就是混沌本身了。
+
+因为天生的才能所以善于模仿的mortis
+因为吉他获得了自我认知的小睦
+
+但是吃鸡只是浮在潜意识之上的人格演变。
+潜意识海洋里真正的小黄瓜是什么样就谁都不知道。
+
+作为设定是很带感，但是真就把黄瓜人的塑造全不要了。
+
+*****
+
+####  非建政专用号  
+##### 27960#       发表于 2025-2-21 09:47
+
+大莫老师是不是前几集说过“吉他和乐队是小睦的东西，夺走了小睦会伤心”大概这个意思的东西
+当时以为是大莫老师给木头人留了个弹吉他的作用来活着
+现在一看就是木头人：你弹一下试试，看你睦姐捅不捅死你吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  梅斯之围  
+##### 27961#       发表于 2025-2-21 09:47
+
+虽然这是搞笑桥段，但是喝汽水喝太快真的会把胃撑破的（身边的人经历过的真事
+
+<img src="https://img.saraba1st.com/forum/202502/21/094438l44j24y1m00ymmx4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 09:44 上传
+
+*****
+
+####  ads147147  
+##### 27962#       发表于 2025-2-21 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482202&amp;ptid=2208921" target="_blank">星星狐 发表于 2025-2-21 09:35</a>
+第八集我不太懂，感觉是海玲这次充当了mygo里素世的角色，要把风崩离析的乐队重组？然后这次又是被睦背刺？ ...</blockquote>
+应该是立希的角色，第一次搞乐队自己干涉主义太强导致炸团，还在选拔表演上出丑，所以之后都是完全听安排的不干涉主义。
+现在母鸡卡炸团了，根本没人管事，又结合立希刺痛到自己痛处，悲愤化为力量，那就自己来管母鸡卡，重新回到第一次组队的那个状态。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lawliet.L  
+##### 27963#       发表于 2025-2-21 09:49
+
+这鸡团是真有活儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星星狐  
+##### 27964#       发表于 2025-2-21 09:50
+
+海玲的故事怎么好像在哪儿听过相反版本的？
+和朋友一起组乐队，重要演出日自己因为意外放了队友鸽子，之后队友还是对自己很温柔但是自己一直内心过不去最后退出了乐队。这也是邦邦世界观的事吗？
+
+话说如果海玲当时正好碰上这个正好缺了一个人的乐队，是不是就完美契合了？
+
+----发送自 [HUAWEI RTE-AL00,Android 12](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  DD-963  
+##### 27965#       发表于 2025-2-21 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482212&amp;ptid=2208921" target="_blank">sliencer 发表于 2025-2-21 09:36</a>
+
+大祥老师是挂件的原因是她也就只剩睦头人这个青梅竹马可以依靠了。
+
+现在就是告诉你，你依靠的这个也是个 ...</blockquote>
+初华：那我呢？
+
+*****
+
+####  syndrome2032  
+##### 27966#       发表于 2025-2-21 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482372&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-2-21 09:50</a>
+初华：那我呢？</blockquote>
+需要时开扣，不需要是路边的野狗。
+
+就这点来说我觉得小姨说和双子说的假药程度还是太低了。不够癫
+
+*****
+
+####  wpcc  
+##### 27967#       发表于 2025-2-21 09:53
+
+嘻嘻 还在抽大象陀螺 把半身也抽死拉
+
