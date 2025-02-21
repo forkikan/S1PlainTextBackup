@@ -5378,3 +5378,12 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 顺便问问，用沉浸式翻译破限翻译刘备，差不多20句有一句是会醒过来不给翻译的，有没有什么好的方法？
 
+
+*****
+
+####  翻滚吧熊犊子  
+##### 1954#       发表于 2025-2-21 09:21
+
+传火一下
+[https://www.volcengine.com/exper ... QY5&amp;rc=2MH6WNLJ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=2MH6WNLJ)
+

@@ -13382,3 +13382,123 @@ soyo妈妈属于新钱想往上融圈子租的大平层
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  月光润色  
+##### 27925#       发表于 2025-2-21 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这第八集给爷看乐了，好久没有看番开怀大笑过了，比搞笑番还有意思的好吧
+
+*****
+
+####  sliencer  
+##### 27926#       发表于 2025-2-21 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481994&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 09:11</a>
+
+你喵姐平易近人
+
+富貴了不忘記底下的老伙記</blockquote>
+打工人和打工人的差距可以很大，你看看学马仕的藤田琴音。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也有可能是因为打工战士打了30个团，其中包括母鸡卡这个最速武道馆传说的加持下
+
+*****
+
+####  厉飞雨  
+##### 27927#       发表于 2025-2-21 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ysl联名单开一列是目前全球顶流都没有的待遇
+还组什么乐队
+
+*****
+
+####  newtroll  
+##### 27928#       发表于 2025-2-21 09:18
+
+牛的，原来我还以为是白祥一个个把队友哄回来，现在看来还要海睦先把祥子舔回来，太大女主了我们母鸡卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 27929#       发表于 2025-2-21 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482007&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-21 09:12</a>
+报复性消费可能是因为海玲不装了放飞自我了，这样一来长期压抑的控制欲彻底爆发就成了重组鸡团的理由
+
+—— ...</blockquote>
+如果我没猜错的话，A团的每个人都对应一种心理异常，“购物狂综合症”必不可能是海铃加入A团后才有的，因为她兼职贝斯的工作可以支持她的开销，甚至可能还遗传了母亲的“暴食症”，她需要通过这种消费方式来对抗自己的进食欲望也说不定
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 27930#       发表于 2025-2-21 09:18
+
+立希以后结婚了养得起海玲吗
+
+*****
+
+####  蓮華  
+##### 27931#       发表于 2025-2-21 09:19
+
+<img src="https://img.saraba1st.com/forum/202502/21/091930urbiq5irbmira55q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7964.jpeg</strong> (256.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-21 09:19 上传
+
+*****
+
+####  YFIIII  
+##### 27932#       发表于 2025-2-21 09:19
+
+喵姐这是拿下来巅峰滨崎步都搞不定的代言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该安排上黄金马桶盖和依云洗澡水了
+
+*****
+
+####  syndrome2032  
+##### 27933#       发表于 2025-2-21 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482047&amp;ptid=2208921" target="_blank">sliencer 发表于 2025-2-21 09:17</a>
+打工人和打工人的差距可以很大，你看看学马仕的藤田琴音。
+
+也有可能是因为打工战士打了30个团，其中包括 ...</blockquote>
+鸡团应该是唯一给了umr权力的队伍，当然应该只是大祥老师沉迷世界观，日程打理让umr干了。
+
+结合第八话umr自述隐藏的很深的控制欲所以算了一通还是鸡团好倒是说得过去。
+
+
+*****
+
+####  南宮凝香  
+##### 27934#       发表于 2025-2-21 09:21
+
+<blockquote>fuwamoco 发表于 2025-2-21 09:18
+立希以后结婚了养得起海玲吗</blockquote>
+‘一般會社員’
+
+*****
+
+####  天空塔书记官  
+##### 27935#       发表于 2025-2-21 09:22
+
+海玲的音乐天赋可能比想象中更高，她在第八集自己房间开始时的镜头，可能代表着她除了兼职贝斯之外还有其他的收入来源，比如扒谱或者作曲之类的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  棍机凹升龙  
+##### 27936#       发表于 2025-2-21 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能让大喵老师回母鸡卡的理由我猜只有对挑战睦头的放弃，她现在的各种上位都是为了挑战怪物级天才
+
