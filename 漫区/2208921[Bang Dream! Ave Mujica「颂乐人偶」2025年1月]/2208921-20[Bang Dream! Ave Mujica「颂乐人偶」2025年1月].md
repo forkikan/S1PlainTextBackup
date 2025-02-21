@@ -5388,3 +5388,16 @@ youtuber出身干到地上波刷脸的挺凤毛麟角了，抛去quizknock，fis
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Licheus  
+##### 28561#       发表于 2025-2-22 03:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489875&amp;ptid=2208921" target="_blank">wzm96816 发表于 2025-2-22 00:19</a>
+
+mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的角色是 灯啊。灯的成长线比爱音要长很多。
+
+我第 ...</blockquote>
+蜘蛛侠：在想我的事？
+
