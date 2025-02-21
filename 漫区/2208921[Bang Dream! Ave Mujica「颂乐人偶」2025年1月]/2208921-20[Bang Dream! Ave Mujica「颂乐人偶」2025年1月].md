@@ -5377,3 +5377,14 @@ youtuber出身干到地上波刷脸的挺凤毛麟角了，抛去quizknock，fis
 <img src="https://p.sda1.dev/22/31adb624870884e2e8a4963166f563c6/image.jpg" referrerpolicy="no-referrer">
 又欺负我没看过剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 28560#       发表于 2025-2-22 02:45
+
+睦的双重人格应该算是故事的主线了吧，感觉初华的故事应该不会是睦的问题彻底解决完了才开始，而是应该并行的。
+甚至睦莫初的搏斗也是有可能的。（此事在开膛手初华中亦有记载）
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
