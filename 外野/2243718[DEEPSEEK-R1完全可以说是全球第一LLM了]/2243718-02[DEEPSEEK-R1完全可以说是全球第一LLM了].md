@@ -5996,3 +5996,30 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 点了楼上的继续传
 [https://www.volcengine.com/exper ... QY5&amp;rc=FUE8PEAN](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=FUE8PEAN)
 
+
+*****
+
+####  andychen  
+##### 2016#       发表于 2025-2-21 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67469962&amp;ptid=2243718" target="_blank">哈里-谢顿 发表于 2025-2-19 23:26</a>
+DeepSeek终于还是开始考虑融资了！
+
+来自The Information的独家报道：</blockquote>
+国资进去大概率，估计还会吸收一些民间资本
+
+deepseek今天宣布再开源5个库，这下太平洋对面的巨头真的脸都绿了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 2017#       发表于 2025-2-21 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67471218&amp;ptid=2243718" target="_blank">SevenYuan23 发表于 2025-2-20 08:56</a>
+据说辟谣了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+无风不起浪
+
+这块现在可是全球的焦点，因为各种原因暂时低调点对我们有好处
+
