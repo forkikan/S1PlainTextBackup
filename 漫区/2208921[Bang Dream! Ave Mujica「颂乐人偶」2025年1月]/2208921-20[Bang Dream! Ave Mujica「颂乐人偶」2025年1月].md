@@ -3101,3 +3101,68 @@ ave mujica，早在mygo的最后一集，就已经明确了这个乐队这个动
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  zhoujin8584  
+##### 28377#       发表于 2025-2-21 17:46
+
+铁血爱灯羊
+
+<img src="https://img.saraba1st.com/forum/202502/21/174615pqoao77qvllobaoo.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-3cxlZcT1kSeo-sg.jpg</strong> (122.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 17:46 上传
+
+*****
+
+####  天空塔书记官  
+##### 28378#       发表于 2025-2-21 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487338&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 17:43</a>
+我好奇问一下，少女乐队题材里面有多重人格吗</blockquote>
+RAS的鳰原令王那/PAREO、hhw的奥泽美咲/米歇尔这两个有点沾边，但相关内容不多也没那么严重
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 28379#       发表于 2025-2-21 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487327&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 17:41</a>
+
+它要是能在mygo多来点多重人格的伏笔那应该会有更多人能接受，但空降一个设定下来很难让人不说这片不该有 ...</blockquote>
+如果真留了伏笔，根本顶不住过去这一整年网友的发散程度，鸡开播前半年就给你万字解析全扒出来
+
+作为悬疑要素开播前就被人猜到也太致命了，还记得水魔的尴尬吗
+
+*****
+
+####  钦念以忱  
+##### 28380#       发表于 2025-2-21 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487327&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-21 17:41</a>
+
+它要是能在mygo多来点多重人格的伏笔那应该会有更多人能接受，但空降一个设定下来很难让人不说这片不该有 ...</blockquote>
+mygo和mujica是2部作品，2个不同的乐队，虽然mujica是mygo的续作，但邦邦动画系列之前也有三部动画，标题更是直接写第一季第二季第三季，也没规定后面的乐队主题要在前面有铺垫啊。
+
+mygo和mujica共享的主要是CCC团的故事，现在的新内容，影响到的最关键还是CCC团为何解散。睦的人设公开之后，大概率她对解散也是有推波助澜了的，也就是睦是一个带有灰色黑色的角色，不过这个我看mygo的时候也有感觉的，不能说完全空降。
+
+不过这个企划确实很奇葩，mygo已经是系列前所未有的灰色故事了，mujica更是进一步到了黑色，也不知道怎么通过的企划。但mujica会是一个（更加）黑色的故事，应该是比较明显的吧，我看完mygo，就能直接感觉到了，具体是黑成多重人格这种黑法，倒是没提前预料。
+
+
+*****
+
+####  usodakedo  
+##### 28381#       发表于 2025-2-21 17:52
+
+水魔的烂又不是因为谜底被猜到，而是节奏烂，人物烂，机战烂，op烂
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

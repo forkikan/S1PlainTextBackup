@@ -5970,3 +5970,20 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 传[https://www.volcengine.com/exper ... QY5&amp;rc=6S9S57BJ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=6S9S57BJ)
 
+
+*****
+
+####  vava  
+##### 2014#       发表于 2025-2-21 17:55
+
+ 本帖最后由 vava 于 2025-2-21 17:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487194&amp;ptid=2243718" target="_blank">kaoriarai 发表于 2025-2-21 17:24</a>
+
+是的，填的是创建的零代码应用的应用ID</blockquote>
+
+我今天按照这个流程部署了一遍，目前是可以正常联网的，你可以参考一下
+
+【🌋 字节火山引擎 x 🐳 DeepSeek R1 联网搜索赋能实操 🌍-哔哩哔哩】 https://b23.tv/jRlveiz
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
