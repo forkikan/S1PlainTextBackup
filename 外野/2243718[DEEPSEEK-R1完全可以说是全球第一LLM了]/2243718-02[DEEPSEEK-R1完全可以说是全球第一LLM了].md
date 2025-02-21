@@ -5913,3 +5913,15 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 传火一下, 火山的明显比其他的快不少<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vava  
+##### 2008#       发表于 2025-2-21 17:14
+
+ 本帖最后由 vava 于 2025-2-21 17:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482134&amp;ptid=2243718" target="_blank">kaoriarai 发表于 2025-2-21 09:27</a>
+
+火山引擎的这个联网模式，我找了几个教程，按照流程操作之后还是调用的训练内容，而不是联网搜索。</blockquote>
+添加模型那里的ID是填的bot开头那串吗
+

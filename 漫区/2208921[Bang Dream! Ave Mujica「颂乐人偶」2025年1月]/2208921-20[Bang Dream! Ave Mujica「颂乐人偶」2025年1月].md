@@ -2668,3 +2668,94 @@ Mortis已经展现出了一些她从睦妈那里学到的特质，她甚至在�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">尊滴？
 
+
+*****
+
+####  HereLink  
+##### 28334#       发表于 2025-2-21 17:07
+
+尊嘟假嘟也不重要了，我很想知道把角色这么写是为了什么😂😂
+
+*****
+
+####  sauron.j  
+##### 28335#       发表于 2025-2-21 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486912&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 16:57</a>
+
+电台楼里有位仁兄评论很有道理：其他姑且不论，大莫老师后面居然还能出现我是没想到的，看前面的演出我还以 ...</blockquote>
+第7集摆明了睦头的事没有解决，这属于车剧情车歪了
+
+*****
+
+####  阿兹尔  
+##### 28336#       发表于 2025-2-21 17:08
+
+初华的就这，那不还是路边一条，挂件主唱吗
+
+*****
+
+####  sakatta  
+##### 28337#       发表于 2025-2-21 17:09
+
+爱音那条真的不怕爱音厨爆炸吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 28338#       发表于 2025-2-21 17:09
+
+一眼假
+
+你喵姐都當上頂流了
+
+現在是誰背負誰？
+
+什麼中二音樂， 它能出聯名服裝嗎？
+
+*****
+
+####  天空塔书记官  
+##### 28339#       发表于 2025-2-21 17:11
+
+楼上反白是不是和黑字搞反了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 28340#       发表于 2025-2-21 17:12
+
+初华真的是主唱吗
+
+*****
+
+####  aptx8285144  
+##### 28341#       发表于 2025-2-21 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487028&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-21 17:08</a>
+
+第7集摆明了睦头的事没有解决，这属于车剧情车歪了</blockquote>
+但是第八集有一部分演出意图非常有误导性，摆出了睦杀掉莫老师的感觉，结果吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28342#       发表于 2025-2-21 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487078&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 17:12</a>
+
+但是第八集有一部分演出意图非常有误导性，摆出了睦杀掉莫老师的感觉，结果吗 ...</blockquote>
+内部斗争归内部斗争，但是外部关系上只用了一话就完成了之前19话的关系反转。
+
+这才是现在这个吉他睦可怕的地方。
+
+*****
+
+####  aptx8285144  
+##### 28343#       发表于 2025-2-21 17:14
+
+初华？这人是谁，怎么感觉没什么印象(无慈悲
+
