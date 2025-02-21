@@ -14317,3 +14317,101 @@ PPP的鼓手山吹沙绫，因为照顾生病的母亲没参加第一次演出�
 
 过剧情跟立人设都像是念说明书似的
 
+
+*****
+
+####  mye  
+##### 28004#       发表于 2025-2-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481433&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-21 08:03</a>
+
+看开头祥子说现在是关键时刻不能离开睦，海铃是怎么从祥子手里把莫带走的？ ...</blockquote>
+祥子，挂机
+
+*****
+
+####  swessia  
+##### 28005#       发表于 2025-2-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483019&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-21 10:44</a>
+
+初华也挺离谱的，5678连着4集一点主观能动性都没有，前作看着深藏不露，实际一碰就碎，教吉他这活还能被贝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">按照某个剧透说后面还是莫教的初华追回祥子的话术，不保真
+
+*****
+
+####  天空塔书记官  
+##### 28006#       发表于 2025-2-21 10:46
+
+海铃现在这样是可以预料的，当然也有可能是刚好对上了我的电波，至于睦和祥子，感觉还有可以挖掘的余地，毕竟关于她们的童年回忆还不完整，尤其是缺失祥子母亲的部分，所以还得再看看<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 28007#       发表于 2025-2-21 10:49
+
+<blockquote>Lawliet.L 发表于 2025-2-21 10:46
+多重人格这种核心诡计应该在大纲阶段就想出来吧</blockquote>
+但这不抽象吗…为什么要搞乐队？因为我害怕被体内另一个人格杀死。
+
+
+*****
+
+####  天空塔书记官  
+##### 28008#       发表于 2025-2-21 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483039&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 10:46</a>
+到目前为止几乎所有的关键剧情不都是突然两三句话就给你垫起来的吗
+
+过剧情跟立人设都像是念说明书似的 ...</blockquote>
+海铃的塑造从mygo就有意表现她的克制，这明显是不正常的，这次只不过是补充了她的一部分设定，包括购物狂、生活方式和家庭背景，其实并不算牵强
+
+至于睦，能看出来制作组确实下了功夫，并且还有东西在藏，所以现在的还不能做出整体评价，不过总比单纯搞个噱头要强
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿卡拉兰斯  
+##### 28009#       发表于 2025-2-21 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482965&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 10:38</a>
+这集最让我觉得变态的还得是编剧仿佛自己也找不出让母鸡卡复活的理由了，目前母鸡卡复活的驱动力，一个是海 ...</blockquote>
+复盘了一下，其实比这还变态
+因为海铃其实有冷面笑匠的铺垫，也有隐藏重女强控制欲的铺垫，所以这集仔细回味下发现属于咒术回战级别的意料之外情理之中
+作为偷税犯，上头有个祥子大小姐背锅，自己作为实权二把手实现控制欲，乐队大成功主流出道最速武道馆，队友都是神人也不会有负担，自己也是惊世智慧正在等回旋镖，某种意义上来说目前已经和睦祥一样相当贴合史上最狂了，绝对有独角兽的阴湿XP在里面的
+接下来就看小姨能不能爆个大的了，至于大喵我估计是放弃塑造了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28010#       发表于 2025-2-21 10:54
+
+已经理解编剧了，一开始加入阴阳眼的时候觉得是机械降神，现在先天古神一出场，有人灵视高也很合理了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gaayas  
+##### 28011#       发表于 2025-2-21 10:55
+
+大喵早塑造完了，还塑造啥，现在就剩初华了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  syndrome2032  
+##### 28012#       发表于 2025-2-21 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483083&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 10:49</a>
+但这不抽象吗…为什么要搞乐队？因为我害怕被体内另一个人格杀死。</blockquote>
+人格吃鸡不管是吉他睦还是mortis都是若叶睦的表象。
+
+参照睦妈的说法，吉他睦和mortis下面还藏着了不知道喜恶倾向标准的古神。吉他睦和mortis的存在是古神对外的自我保护机制。也就是这个古神把她吓到了。
+
