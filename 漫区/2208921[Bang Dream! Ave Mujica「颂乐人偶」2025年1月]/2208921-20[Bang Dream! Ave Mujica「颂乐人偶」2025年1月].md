@@ -3166,3 +3166,134 @@ mygo和mujica共享的主要是CCC团的故事，现在的新内容，影响到�
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  adretyu67.  
+##### 28382#       发表于 2025-2-21 17:56
+
+bangbang 23季连着还是很紧密的。
+
+不过因为我是重新看所以大致能够理解一些问题所在。
+
+二季度就26话的长度要做高祖和其他队伍，第三季还要宣传新团RAS。这不管怎么做都是要被抱怨的。
+
+*****
+
+####  huxiaopao163  
+##### 28383#       发表于 2025-2-21 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487352&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-21 17:44</a>
+
+我一直觉得好的原创番所谓的“无法预测的舞台”，应该是这一幕假药是论证某某是蜘蛛侠，下一周正片端上来告 ...</blockquote>
+演技的天才
+
+突然就开始表演的怪物
+
+喵梦对小睦的敬佩/恐惧
+
+人格之间对身体的争夺
+
+你曾经更爱笑更爱说话
+
+这集爆出的设定，前面算是有非常多的蛛丝马迹了吧。
+
+什么古神只是大家开玩笑的啊
+
+*****
+
+####  钦念以忱  
+##### 28384#       发表于 2025-2-21 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485742&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-2-21 15:06</a>
+
+真盘逻辑的话这集我有很多疑惑
+
+例如说睦的人格是为了适应不同环境创造的，那mygo里c团解散算不算一次环境剧 ...</blockquote>
+睦的吉他人格稳定成主人格之后，其他副人格就都死了，只有Mortis装成吉他苟活了下来，之后不再产生新人格。大莫老师也不是适应鸡团产生的，是之前就这两个人格了，一个弹吉他应对不了社交，就让另一个来。这个剧中都有讲的。
+
+小睦，看第三话，她甚至不知道自己有多重人格，以为吉他人格是刚产生的，吉他人格才知道更多的事情（其实也未必是事实），多重人格的病症就是每个人格很可能只知道部分内容。
+
+*****
+
+####  adretyu67.  
+##### 28385#       发表于 2025-2-21 17:58
+
+ 本帖最后由 adretyu67. 于 2025-2-21 18:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487427&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-21 17:56</a>
+
+演技的天才
+
+突然就开始表演的怪物
+
+喵梦对小睦的敬佩/恐惧</blockquote>
+但是这话吉他睦表皮下面的那个是有点可怕了。
+
+通过一系列举动诱导祥子发出了一辈子宣言。
+
+这种心态和心机确实不太健康。
+
+*****
+
+####  wpcc  
+##### 28386#       发表于 2025-2-21 17:59
+
+我看祥0是一辈子的了 黑白都是
+
+*****
+
+####  天空塔书记官  
+##### 28387#       发表于 2025-2-21 17:59
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487420&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-21 17:56</a>
+bangbang 23季连着还是很紧密的。
+
+不过因为我是重新看所以大致能够理解一些问题所在。</blockquote>
+没办法这是业界发展的大趋势，制作成本的上升要求制作者压缩篇幅，十几集的半季番也更适合现在短平快的流媒体平台，特摄那边奥的衰弱和这个也有很大的关系
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  狮子咕  
+##### 28388#       发表于 2025-2-21 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然前几集大家都在诋毁大喵老师
+
+
+*****
+
+####  plok201  
+##### 28389#       发表于 2025-2-21 18:02
+
+<blockquote>aptx8285144 发表于 2025-2-21 16:57
+电台楼里有位仁兄评论很有道理：其他姑且不论，大莫老师后面居然还能出现我是没想到的，看前面的演出我还以 ...</blockquote>
+讲道理，莫和猫产生联系之后这人就100%不会下线了，莫和爽世之间还算有个睦爽CP可以代替，而鸡团唯一能和猫对话的只有莫，明显是让两边产生交流的设置
+
+*****
+
+####  HereLink  
+##### 28390#       发表于 2025-2-21 18:03
+
+爆的新设定就算合理，对我的感情伤害还是太大了，我是真的没办法直视睦，🦄🍅这克苏鲁，大乌老师你就学吧，你那宿命之环写的是什么垃圾？
+
+*****
+
+####  阿兹尔  
+##### 28391#       发表于 2025-2-21 18:03
+
+前面大家也看不出来是演技啊，都觉得大喵是魔怔了
+
+*****
+
+####  aptx8285144  
+##### 28392#       发表于 2025-2-21 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487360&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-21 17:46</a>
+
+铁血爱灯羊</blockquote>
+重点是，如果拒绝也是有正当理由的<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
