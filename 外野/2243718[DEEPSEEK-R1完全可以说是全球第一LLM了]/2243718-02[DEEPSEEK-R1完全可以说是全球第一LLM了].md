@@ -5754,3 +5754,21 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 [https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=456X6KBZ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=456X6KBZ)  感谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 1991#       发表于 2025-2-21 13:48
+
+火山云这个后付费是不是只有我用了这多token，需要付钱的时候才能用这个抵扣券啊？然后抵扣券有效期只有90天，就是90天里得使劲用？
+没找到哪里能提前充钱用抵扣券的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王一唯不傲娇  
+##### 1992#       发表于 2025-2-21 13:52
+
+[https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=PEVT3I4E](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=PEVT3I4E)
+
+传火
+

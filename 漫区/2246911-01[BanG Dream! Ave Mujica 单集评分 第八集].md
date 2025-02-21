@@ -2900,3 +2900,32 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 
 剧情请保持继续发疯，彻底疯掉可能还能留一笔
 
+
+*****
+
+####  qxs  
+##### 326#       发表于 2025-2-21 13:47
+
+前面粉丝自适应还要二刷甚至多刷打+2，现在已经直接快进到自适应完毕了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 327#       发表于 2025-2-21 13:49
+
+ 本帖最后由 秦南心 于 2025-2-21 13:51 编辑 
+
+不管几个人格，都得写成讨厌祥子才对吧。
+
+现在这么搞不是把木头人给观众的好感也给毁掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大伙真觉得木头人可怜来着，结果你告诉大伙，这是她演的，莫提斯才是被她逼出来的，没活了啊
+
+*****
+
+####  6030sylar  
+##### 328#       发表于 2025-2-21 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484969&amp;ptid=2246911" target="_blank">秦南心 发表于 2025-2-21 13:49</a>
+
+不管几个人格，都讨厌祥子才对吧，现在这不是把木头人给观众的好感也给毁掉 ...</blockquote>
+对的，第三集天降个莫提斯，这集更是重新造一个新的睦头人
+

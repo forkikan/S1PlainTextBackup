@@ -358,3 +358,164 @@ image.png
 
 之后都去走廊拉屎了你又要说管不住括约肌了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 28147#       发表于 2025-2-21 13:46
+
+ 本帖最后由 ArcadiaMartyr 于 2025-2-21 13:48 编辑 
+
+不把专楼当qq群，是指望一人一个贴子在外面拉屎吗？就和战吧一样？当年刀使女巫时期百度把专楼模式炸了之后，一直就变成了随地大小便的野厕所。刀马旦时期愈演愈烈，到虹团开始根本看不了一点，全是发癫帖子假药帖子，正常人想在里面看点东西都难
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 28148#       发表于 2025-2-21 13:47
+
+<blockquote>回到剧情本篇，真正的问题不是这几集的演出有多烂，而是对企划方这种“自我感动”式的演出方式能不能把ave真正的谜底圆回来产生的质疑，现在我们已经吃到了“怪味饺子”，但仍然没有看到为包饺子解决的那瓶醋，也不排除之后会有“大反转”，实现剧情逆升的可能，但就目前这种一切让位给噱头和线下炒作的企划安排，我很怀疑之前的伏笔能不能与之后的CG回收达成自洽
+
+ave的一切操作都是围绕着延长热度期和增加热度点来展开的，从延时放送到前几集的重拿轻放都是如此，以第七集的演出举例，企划既想“创造”感动神回，又想与之后迷子与A团的演出形成反差，还要为CCC的线下活动造势，所以搞出了这种既刻意又草率的演出效果
+
+已知这只是第七集，真正的谜底还未解开，为“大的”做的铺垫都已经别扭成这样了，那最后的剧情和情绪就真的能实现自然回收吗
+
+不过就目前wsd这个刻意制造“神回”的搞法，后边几集在海外翻车的概率也不是没有，看看它还能整啥活吧</blockquote>
+不是想看回旋镖吗，都在这呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  圣血天使  
+##### 28149#       发表于 2025-2-21 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484705&amp;ptid=2208921" target="_blank">takerest 发表于 2025-2-21 13:24</a>
+
+所以说s1评分真的很不靠谱（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看母鸡卡跟看唐探一样，你要是把唐探1900当推理看，也就六分，当搞笑片看，顶多七分，当历史片看，起码给八分。母鸡卡你当乐队片看也给不了多高，但是我现在当乐子片看啊
+
+*****
+
+####  木板春香  
+##### 28150#       发表于 2025-2-21 13:50
+
+<img src="https://img.saraba1st.com/forum/202502/21/134952c0xf5xarkis5roxv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (518.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:49 上传
+
+专楼的一个好处是，起码是把人的想法集中起来，让不想看的人起码有个选择，起码你能多个角度知道别人是怎么想的
+
+*****
+
+####  单脚着地  
+##### 28151#       发表于 2025-2-21 13:51
+
+网友所谓的作品是否有逻辑性就是看故事发展是不是契合根据自己的经验论和固有逻辑推导出来的可能性展开，再辅以扯大旗，扣帽子和引经据典<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 28152#       发表于 2025-2-21 13:51
+
+<blockquote>这类观众永远也无法理解故事是“怎么讲的”，只能理解“讲了什么”</blockquote>然而各路“先锋文学家”，后现代痴子和放大镜“索隐派”就是在这条路上走到极致之后生产出来的冗渣啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有什么比对着自我实现的假药再生产的“二创入脑者”更先锋的呢
+
+*****
+
+####  thisisaspider  
+##### 28153#       发表于 2025-2-21 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484839&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 13:37</a>
+
+我对ave的目前的评价是“有趣”，对电波所以看得开心，但对于作品整体，则是需要等完结后再做评价，批判固 ...</blockquote>
+要不就把话说完直接离开，要不就留下来等结局再总结感想，其他的都是什么，连读者都配不上。
+
+
+*****
+
+####  天空塔书记官  
+##### 28154#       发表于 2025-2-21 13:53
+
+我在第三集的时候就在说舞台装置和过度演出的问题，结果老几位还在复读祥子抽陀螺和纠结喵梦摘面具，结果现在才后知后觉，化身婆罗门大肆批判，是不是多少带点喜剧情节了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  shinoverse  
+##### 28155#       发表于 2025-2-21 13:54
+
+更典型的例子不是NGA？狗播出时没开专版结果猴版给狗占满了
+
+鸡播出的时候才开了专版
+
+————————————————————
+
+即使当成QQ群，那现在这状态也总比充满了玉玉小妹的上个专楼强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Besthounddog  
+##### 28156#       发表于 2025-2-21 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481661&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-21 08:41</a>
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+现实中不少有不少贝斯就是因为队里找不到贝斯才转职的吉他。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  柯哀lv王道  
+##### 28157#       发表于 2025-2-21 13:56
+
+这几集演出不烂吗，我感觉演出烂的程度也不差于剧本
+
+*****
+
+####  未来起航  
+##### 28158#       发表于 2025-2-21 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484786&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 13:31</a>
+
+我想起当年国家队也有不少人喜欢拿差不多的说辞来说唉这故事写的太好了太深刻了
+
+要么是泥潭确实能定期引 ...</blockquote>
+国家队可以说是偶像厨锦织对gainax经典的拙劣模仿，那些个基本的点子都不算太错就是执行蠢得辣眼睛。
+
+鸡这属于纯炒作。比方说，多重人格的通用用法是作为展现角色内心剧烈矛盾的新手段。鸡的不然：几个人格闹来闹去，没有给木头人的角色弧光任何积极作用。
+
+把角色做成古神已经是极度的失败了：别人的角色塑造手段，要么是为了让观众能进一步靠近，和角色共情；要么反过来远离角色，给到更好的理性剖析和洞察的视角。鸡则是给角色徒增理解复杂度。
+
+木头童年可能的创伤不写了（直接改成了木头对周围人造成创伤<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">），对音乐的态度不展开，对友人的情感继续藏，就只剩继续往自己的人格设定表里瞎jb填。什么狗屁人偶，什么狗屁多重人格，who tm cares？
+
+而且说到没人在乎，话又说回剧里了：墨提斯这个干啥啥不成的废物小丑人格，这集又为了所谓活下去搁那呲牙咧嘴鬼哭狼嚎，可真有人在乎她的死活吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandakun  
+##### 28159#       发表于 2025-2-21 13:56
+
+我看好多人说多重人格的设定是mygo完了后加的，有能印证的访谈之类的吗？还是单纯以讹传讹
+
+*****
+
+####  天空塔书记官  
+##### 28160#       发表于 2025-2-21 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484999&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-21 13:51</a>
+要不就把话说完直接离开，要不就留下来等结局再总结感想，其他的都是什么，连读者都配不上。 ...</blockquote>
+我从一开始分析喵梦的性格就被祥党堵嘴，到现在被扣帽子早就习惯了，我只是把我想说的说出来了而已，所以希望大家都是这样，多分享交流而不是堵嘴吵架
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
