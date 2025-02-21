@@ -1451,3 +1451,17 @@ QQ20250221-003932.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  发条之心  
+##### 122#       发表于 2025-2-21 23:18
+
+ 本帖最后由 发条之心 于 2025-2-21 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489215&amp;ptid=2068019" target="_blank">blackll7 发表于 2025-2-21 22:22</a>
+
+地图上散布着银矿，需要一点点去拿，看需要升几件吧，反正只是有数值的白板装。
+
+没钱的话，应该是偷鸡路 ...</blockquote>
+没记错的话那里是个6000血的恐怖蘑菇人，我中期过去都会被开场的群攻打得大残。想问一下怎么控制杀（前期强控只有盗贼的催眠和挖眼吧，也只能撑三回合）
+

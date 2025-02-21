@@ -3207,3 +3207,15 @@ soyo 为什么是已通过？</blockquote>
 
 有没有一种可能，新的一集每个角色之间都会互换灵魂，而且是随机的，但是大家都在努力扮演对方的角色
 
+
+*****
+
+####  xyion  
+##### 359#       发表于 2025-2-21 23:18
+
++2
+
+只要放弃了脑子，就全是乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以即便邦纵容了独角兽的xp，实则也完全容不下吧
+

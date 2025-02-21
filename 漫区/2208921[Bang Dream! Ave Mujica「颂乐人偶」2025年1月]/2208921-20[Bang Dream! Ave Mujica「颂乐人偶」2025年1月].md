@@ -4848,3 +4848,67 @@ soyo大战saki，但是高达音效
 我先前讨厌双重人格这个设定，是因为我认为双重人格这个玩意必定要秘密、绝望、孤独这些内容一块出来才压得住，否则就是吕布骑狗闹麻了，而我并没有在剧中看到配得上这个设定的剧情。
 但是现在合适的玩意好像已经上桌，这下不得不提高期待了
 
+
+*****
+
+####  cccpprc  
+##### 28512#       发表于 2025-2-21 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489476&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-21 23:06</a>
+
+本来以为若叶睦是小心翼翼在祥子和soyo之间充当缓冲垫，希望两人走出阴影各自奔赴新生活。
+
+结果现在告诉我 ...</blockquote>
+所以别切割独角兽了
+
+独角兽的活都藏在这些细节里头啦
+
+但是现在ave这情绪流如同老年麻痹，故事逻辑呈现如英年早帕金森，角色塑造越多越没有灵魂，你这细节的血肉再丰满，有啥用啊
+
+*****
+
+####  新HGCG  
+##### 28513#       发表于 2025-2-21 23:17
+
+要乐奈2/22生日快乐！
+
+*****
+
+####  JustW  
+##### 28514#       发表于 2025-2-21 23:18
+
+感觉已经比花道仙人更胜一筹了。换到AG里就是美竹兰一心要解散乐队搞花道，原因是不搞花道我这个花道人格就要似了。最后又要复活乐队，原因是只搞花道我另一个乐队人格就要似了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这b剧本也太好写了
+
+*****
+
+####  DeltaStriker  
+##### 28515#       发表于 2025-2-21 23:19
+
+这个多重人格就是编剧对自己剧本的无限解释权啊 想怎么写就怎么写
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  aptx8285144  
+##### 28516#       发表于 2025-2-21 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489529&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-21 23:14</a>
+
+所以别切割独角兽了
+
+独角兽的活都藏在这些细节里头啦
+
+但是现在ave这情绪流如同老年麻痹，故事逻辑呈现如 ...</blockquote>
+因为扭转的过于剧烈，几乎就像否定了go时期的睦，因此也难怪睦吧不少人破防了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 28517#       发表于 2025-2-21 23:22
+
+[【若叶睦是多重人格障碍吗【精神病野生鉴定】】](https://www.bilibili.com/video/BV1wuNLeDEnV/)
+
+就说母鸡卡是照着诊断指南写的剧本吧
+
