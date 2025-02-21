@@ -4441,3 +4441,52 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  木板春香  
+##### 28475#       发表于 2025-2-21 21:18
+
+  这段信息还需要时间去验证啊 就是叽里咕噜扯了这么多 初华的戏份还有空嘛？
+
+*****
+
+####  aptx8285144  
+##### 28476#       发表于 2025-2-21 21:20
+
+ 本帖最后由 aptx8285144 于 2025-2-21 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488286&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-2-21 20:14</a>
+
+始终觉得炸团之后喵梦海子对初华态度差肯定是伏笔</blockquote>
+初华本身的问题姑且不论，那两个人在炸团后的一个月内对睦或大祥也几乎是不闻不问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，海铃想组团了才开始“不得不联系”她们，大瞄到现在为止更是迫不得已**（
+
+*****
+
+####  gammatau  
+##### 28477#       发表于 2025-2-21 21:20
+
+邦前面几作有出现过YSL吗
+
+也许邦世界的YSL就是个小牌子……
+
+*****
+
+####  是谁的书画  
+##### 28478#       发表于 2025-2-21 21:20
+
+吉他睦的CCC是不需要剩下3个人的，只要有她和白祥就够了，其他人不过是组件工具，多么沉重的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 28479#       发表于 2025-2-21 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">大祥这追妻火葬场
+
+*****
+
+####  阿兹尔  
+##### 28480#       发表于 2025-2-21 21:23
+
+初祥真能赢吗，沉重程度感觉不如睦祥啊
+
