@@ -15159,3 +15159,103 @@ VS
 考虑现实性怕不是拍好几部爱猫T ...</blockquote>
 不是甜甜圈捡漏的吗，大喵当初不拒的话美奈美亲自推荐怎么可能给别人
 
+
+*****
+
+####  单脚着地  
+##### 28079#       发表于 2025-2-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483875&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-21 12:00</a>
+
+祥子路径依赖，第三次了，母亲离世，父亲颓废，现在到姐妹犯病，一有压力就想组乐队
+
+—— 来自 鹅球 v3. ...</blockquote>
+组CCC的时候心态并不功利，纯粹是真被前辈的音乐感动了。第二次组A队那确实是为了钱，第三次是不是她来牵头组乐队都没定性呢，即使是也是为了救自己好姐妹性命。与其说路径依赖，不如说命运导致的巧合。。。别问，问就是帮多利世界神明的大手
+
+*****
+
+####  天空塔书记官  
+##### 28080#       发表于 2025-2-21 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483902&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 12:04</a>
+那国家队结尾大02上宇宙打外星人什么时候给**
+
+你可以二次元，但不能完全不顾及你自己花时间搭建好的舞台 ...</blockquote><blockquote>结合现在的ave，再回顾mygo的设定和剧情，会发现这两部的架构其实更像是电波系轻小说，尤其是三神经那样的异色作品，核心主题与《物语》是类似的，从“异常者也能获得幸福”延伸到“即使是异常者也能组乐队”，这就是所谓对少女乐队类型动画的突破，从更加大胆的角色设定开始</blockquote>
+所以说是创新啊，而且其实访谈中也有提过类似的说法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Skymoon  
+##### 28081#       发表于 2025-2-21 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483875&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-21 12:00</a>
+祥子路径依赖，第三次了，母亲离世，父亲颓废，现在到姐妹犯病，一有压力就想组乐队
+
+—— 来自 鹅球 v3. ...</blockquote>
+第三次组乐队祥子还不乐意呢，还不是被睦子米古神给推着走的，提线木偶罢了
+
+*****
+
+####  影伴光生  
+##### 28082#       发表于 2025-2-21 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483265&amp;ptid=2208921" target="_blank">凉良 发表于 2025-2-21 11:04</a>
+
+1234的能动性在哪你告诉我</blockquote>
+1集结尾主动摘面具，2集拉祥子进屋，3集塞甜甜圈，4集劝早睡
+
+至少是有行动的，5678纯NPC化了
+
+*****
+
+####  JustW  
+##### 28083#       发表于 2025-2-21 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483943&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 12:09</a>
+所以说是创新啊，而且其实访谈中也有提过类似的说法
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+一条前人都没走过的路不一定是一条绝妙无比的路，更可能是走过的人都死了的路。查重率0%.jpg
+
+而且这也不算前人没走过，我觉得还是没迷家疯
+
+*****
+
+####  MASKA-1  
+##### 28084#       发表于 2025-2-21 12:11
+
+是因为睦现在觉得c团里弹吉他开心所以要重组c团吗？
+
+<img src="https://img.saraba1st.com/forum/202502/21/121017n56ni6jmz7yv66yr.png" referrerpolicy="no-referrer">
+
+<strong>KN312VMMET`SIE~7XLN_]20.png</strong> (167.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 12:10 上传
+
+*****
+
+####  aptx8285144  
+##### 28085#       发表于 2025-2-21 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483943&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 12:09</a>
+
+所以说是创新啊，而且其实访谈中也有提过类似的说法
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+现在做的实在像契丹物语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 28086#       发表于 2025-2-21 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483931&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-21 12:08</a>
+
+不是甜甜圈捡漏的吗，大喵当初不拒的话美奈美亲自推荐怎么可能给别人</blockquote>
+那也要看是怎么捡的漏，不过倒也确实是，说不定后面写初华顺带把苏秘密也写个背后大手对抗丰川集团
+
