@@ -160,3 +160,49 @@ wtf？有没有一种可能，追求合理的戏剧性在任何一个平行宇�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要看实验，这逼片不是连《六翼天使之声》的一半都比不上吗，何况人家11个女人最后还能串成一个让人接受的大主题，你母鸡卡...好吧，我大概还是有那么一些要拍什么的思路的，但想必已经不可能让人信服了
 
+
+*****
+
+####  天空塔书记官  
+##### 28134#       发表于 2025-2-21 13:26
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 13:31 编辑 
+
+剧本是剧本，演出是演出，我觉得剧本的问题其实不是最大的，还是在于每集的剧情分配和演出安排，动画并不是文学那样的纯文字载体，脱离演出谈剧本就是不合理的，对于观感影响最大的实际是在于演出的“度”，而不但是人物设定和情节安排，显然ave现在就是存在演出过度的问题
+
+除非能拿到原始剧本，否则就没法排除“大人因素”的介入可能产生的影响
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 28135#       发表于 2025-2-21 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484592&amp;ptid=2208921" target="_blank">105gun 发表于 2025-2-21 13:12</a>
+
+有的观众是真的跟低龄二游痴高度重合。对故事的欣赏能力停留在语文阅读理解水平。
+
+剧做成什么样是无所谓的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想起当年国家队也有不少人喜欢拿差不多的说辞来说唉这故事写的太好了太深刻了
+
+要么是泥潭确实能定期引新注入新血液，要么是大伙是真的一直重复相同的悲剧
+
+
+*****
+
+####  whzfjd  
+##### 28136#       发表于 2025-2-21 13:34
+
+为了整点新花样把前作的方法论都扔掉，唉，日本人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 28137#       发表于 2025-2-21 13:35
+
+nga的轮回是永远有新的一批人在同一个版面共振成神经病。
+泥潭的轮回是永远有新的一批人在漫区把专楼当qq群。
+
