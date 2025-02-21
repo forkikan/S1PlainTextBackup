@@ -13020,3 +13020,50 @@ umr群发消息:重组mujica
 
 就好像叶月恋之于星团
 
+
+*****
+
+####  Cortana  
+##### 27894#       发表于 2025-2-21 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481119&amp;ptid=2208921" target="_blank">澜灰- 发表于 2025-2-21 03:13</a>
+
+越想睦这个设定越带感啊，确实好这一口
+
+不过现在这个真是吉他睦吗，哪来的暴君</blockquote>
+不是假药啊，过高的控制欲、刻意的距离感本来就是回避型依恋的特质之一。
+
+*****
+
+####  南宮凝香  
+##### 27895#       发表于 2025-2-21 08:30
+
+喵姐都上位到能出聯名衣服了
+
+為什麼還要回來陪精神病人玩
+
+妳也是M嗎？
+
+*****
+
+####  syndrome2032  
+##### 27896#       发表于 2025-2-21 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481585&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 08:30</a>
+喵姐都上位到能出聯名衣服了
+
+為什麼還要回來陪精神病人玩</blockquote>
+这话喵梦没同意参加umr的计划吧。
+
+对话结果感觉顶多就是你要是能把人拉齐了我自主刷新。
+
+*****
+
+####  大丈夫萌大乃  
+##### 27897#       发表于 2025-2-21 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481558&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-21 08:26</a>
+
+说起来怎么没人主动找初华啊，还是海铃拉群找的，小祥哪怕现在是人偶但是也恢复正常社交状态了，不给初华回 ...</blockquote>
+三集动画两字台词一条野狗无人问津<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
