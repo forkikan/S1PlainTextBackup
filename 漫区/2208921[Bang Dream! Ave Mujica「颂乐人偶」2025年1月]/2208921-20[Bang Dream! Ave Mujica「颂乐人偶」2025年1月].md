@@ -4979,3 +4979,33 @@ soyo大战saki，但是高达音效
 我先前讨厌双重人格这个设定，是因为我认为双重人格这个玩意必定要秘密、绝望、孤独这 ...</blockquote>
 其实还有“伸张正义”，参考不吉波普，但是这里吗，总不会真出现莫老师大战财阀的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cortana  
+##### 28524#       发表于 2025-2-21 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489616&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 23:27</a>
+没第八集还能套一套，第八集出来真差远了，生来就掌握无限战神这是海虎一家都达不到的高度 ...</blockquote>
+视频里有预言。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  aptx8285144  
+##### 28525#       发表于 2025-2-21 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67479685&amp;ptid=2208921" target="_blank">废马尔 发表于 2025-2-20 23:27</a>
+
+海指导不是说了他只要一支配队友队友就润了吗？所以她不敢指导</blockquote>
+独角兽和柿本这里太极端了，稳定军心或缝合关系的事情都没人去做，或者说做了竟然会被视为“支配”，真不知道他们脑子是怎么想的
+
+*****
+
+####  Victorino  
+##### 28526#       发表于 2025-2-21 23:51
+
+看到一种假药：第8话开头沉海的不是mortis人格，是吉他睦，在那之后会喝橙汁走在大祥前面的是比吉他睦更可怕的另一个人格
+
