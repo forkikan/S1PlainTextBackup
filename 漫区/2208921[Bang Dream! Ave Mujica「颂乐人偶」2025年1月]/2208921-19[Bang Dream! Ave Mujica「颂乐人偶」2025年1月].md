@@ -13502,3 +13502,104 @@ soyo妈妈属于新钱想往上融圈子租的大平层
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能让大喵老师回母鸡卡的理由我猜只有对挑战睦头的放弃，她现在的各种上位都是为了挑战怪物级天才
 
+
+*****
+
+####  sliencer  
+##### 27937#       发表于 2025-2-21 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482066&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-21 09:19</a>
+
+鸡团应该是唯一给了umr权力的队伍，当然应该只是大祥老师沉迷世界观，日程打理让umr干了。
+
+结合第八话um ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">毕竟自己能力强啊，小时候就组乐队差点出道，就你日那点市场无异于卷王成功。
+
+对于umr来说第七话ccc让自己重新意识到‘草原来乐队可以和平分手+重组’这点应该才是真正契机。
+
+当然了，就睦头人现在这么个Xbox Series X的状态，下一话再不解决问题我看umr就可以AFK了，团队炸弹你搞不定的
+
+*****
+
+####  刑部姬真可爱  
+##### 27938#       发表于 2025-2-21 09:25
+
+喵梦这联名其实也就那样吧，隔壁蝶团的透子（第五集sumimi拍照时和她们同台的那位）可是能引领时尚潮流，有自己时装品牌的女高中生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  国立凛凛  
+##### 27939#       发表于 2025-2-21 09:26
+
+为什么还要用多重人格来推动剧情，还以为上一集过后就再也不会提了
+
+*****
+
+####  syndrome2032  
+##### 27940#       发表于 2025-2-21 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482114&amp;ptid=2208921" target="_blank">sliencer 发表于 2025-2-21 09:25</a>
+毕竟自己能力强啊，小时候就组乐队差点出道，就你日那点市场无异于卷王成功。
+
+对于umr来说第七话ccc让自 ...</blockquote>
+卷乐队出道应该是umr自己那点小心思，所以被四个好姐妹们给鸽了。应该是早就看你不爽了我们也就玩票最后来个大的。
+
+*****
+
+####  天空塔书记官  
+##### 27941#       发表于 2025-2-21 09:27
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 09:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482066&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-21 09:19</a>
+鸡团应该是唯一给了umr权力的队伍，当然应该只是大祥老师沉迷世界观，日程打理让umr干了。
+
+结合第八话um ...</blockquote>
+我觉得不是，是因为立希两次直言把海铃破防了，还有CCC的表演，其实一开始海铃对A团的解散没多在意，毕竟见惯了，但她对立希确实有某种执念，立希给她的压力最终变成了她复活A团的动力，这也对应狐狸教会小王子“何为爱”的关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 27942#       发表于 2025-2-21 09:28
+
+虽然经过前面各种闹剧后抛出来睦的核心愈发荒诞，但又确实拼齐了Prelude的隐喻
+
+<img src="https://p.sda1.dev/22/abd986e31a6eb9579dd0583a4cfa87fd/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000139.035.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ac82ebd026062d233a1e1ce9fc150c59/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000141.202.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/68fe1cce3e0e7952b899db4a25e67c5d/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000142.643.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8c147a0b4ba75684de830bafe3f6d1d9/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000345.596.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6237a52ba206036004d13181e4e0a43a/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000602.079.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2de11815b48e6638dd06a3340bbd9174/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000605.703.jpg" referrerpolicy="no-referrer">
+
+真物本体人类人偶模糊不清正是睦不断角色扮演又自我发掘的状态，而莉伽自比切断线的人偶以及一直扮演不同角色也同样在指向睦。另一方面追逐人偶的瑠奈和祥子在这两集也有更多对应，甚至祥子如今的状态也和瑠奈一样开始逐渐消磨自我认知
+
+<img src="https://p.sda1.dev/22/bfb98c340731fb2ff6e075695aa33f0a/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000241.809.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ef1046fc9fbc76e1a93d8f494a5c509c/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000315.773.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ce37321bac9c399b61c624997e34e4df/_BraveDown.Com_ _Prelude_ _1736463514_ .mp4_000318.033.jpg" referrerpolicy="no-referrer">
+
+那么无论实际剧本表现如何，Prelude作为母鸡卡最初定调的宣传和正片确有呼应。不过另一方面Prelude也有明显联系电影纪子的餐桌，对白本身以及其余短片的情节其实都有很多出自纪子的餐桌，乃至母鸡卡正片里也有借鉴部分电影桥段。这样多重指代感觉是真的想在睦身上做存在主义的文章……反过来说其实五六七的crychic和解才是更无关的内容。不过也很难相信柿本绫奈没有其他场外因素就能把握好这个主题，现在只想知道怎么能和初华联系起来了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1||
+
+查看全部评分
+
+
+*****
+
+####  DD-963  
+##### 27943#       发表于 2025-2-21 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481564&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-2-21 08:27</a>
+
+真正常吗 感觉只是小黄瓜的提线人偶了 两个人学都不去上</blockquote>
+上集还抱怨睦的塑造又回去了，变回了祥子小跟班。没想到这集加个设定，只要睦姐领域展开，祥子才是挂件。
+

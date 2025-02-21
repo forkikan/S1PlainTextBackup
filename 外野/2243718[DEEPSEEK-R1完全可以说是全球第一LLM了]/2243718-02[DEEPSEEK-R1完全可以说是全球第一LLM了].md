@@ -5387,3 +5387,27 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 传火一下
 [https://www.volcengine.com/exper ... QY5&amp;rc=2MH6WNLJ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=2MH6WNLJ)
 
+
+*****
+
+####  kaoriarai  
+##### 1955#       发表于 2025-2-21 09:27
+
+火山引擎的这个联网模式，我找了几个教程，按照流程操作之后还是调用的训练内容，而不是联网搜索。
+
+<img src="https://img.saraba1st.com/forum/202502/21/092705t7c9l0ik721i33cz.png" referrerpolicy="no-referrer">
+
+<strong>bc8c2dc1-c189-479f-8e8a-e793a92e34ba.png</strong> (175.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 09:27 上传
+
+
+*****
+
+####  取名真是难  
+##### 1956#       发表于 2025-2-21 09:33
+
+传火传火：[https://www.volcengine.com/exper ... QY5&amp;rc=831YGQYC](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=831YGQYC)
+

@@ -145,3 +145,14 @@ app下来后会让你再跳转下载RTP和rm插件
 
 那些永久提升属性的道具是给主角好还是按职业分配好？
 
+
+*****
+
+####  远野乙姬  
+##### 140#       发表于 2025-2-21 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67376346&amp;ptid=2238139" target="_blank">ftfkjb 发表于 2025-2-8 17:48</a>
+
+顺便分享一下我下载的可在安卓上运行的模拟器吧。祝大家玩乐愉快☆ﾟ･*:.｡.☆†_(ﾟ▽ﾟ*)β☆.｡.:*･ﾟ ...</blockquote>
+请问一下，这个地址打不开，具体是哪个网站呀
+
