@@ -6243,3 +6243,12 @@ V3生成涩涩总是乱码和胡言乱语，，咋回事，硅基api尚且还好
 
 另外提醒一下，注册了以后除了生成自己的api，要在火山方舟的“开通管理”里面开通对应模型以后才能实现调用（开通是免费的），刚用的时候我还奇怪为什么连接失败来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Puchiko  
+##### 2040#       发表于 2025-2-22 07:14
+
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=6VVRHON4
+传火，刚注册试试
+
