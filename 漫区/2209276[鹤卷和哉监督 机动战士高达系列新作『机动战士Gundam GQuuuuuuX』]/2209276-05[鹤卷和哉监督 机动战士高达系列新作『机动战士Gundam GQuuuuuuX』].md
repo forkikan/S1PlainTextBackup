@@ -17557,3 +17557,11 @@ ZZ和CCA好像都没面具男吧
 明明应该是第一次参战却说了“又”的屑高达，是作为白高达参加时就有自我意识了还是 ...</blockquote>
 起码敢达里面真是有个人（
 
+
+*****
+
+####  积木23ki  
+##### 7267#       发表于 2025-2-21 14:45
+
+绿叔叔和夏亚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">gqux开播最意外的就是这俩的热度翻炒了
+

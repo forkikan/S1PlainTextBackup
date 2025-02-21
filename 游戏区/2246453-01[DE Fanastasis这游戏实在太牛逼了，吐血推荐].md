@@ -1611,3 +1611,16 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JamesDrapor  
+##### 134#       发表于 2025-2-21 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67480264&amp;ptid=2246453" target="_blank">83913536 发表于 2025-2-21 00:14</a>
+
+请问这个专门的回收功能是在灵魂之间吗？到后期了一直没弄明白</blockquote>
+是在最后阶段集齐了8个异界碎片打完隐藏Boss之后才能解锁的功能。
+
+在那里可以看到所有“阅览过的血迹剧情”，第一次看一定要在现实世界才行。不过那里会给出每一处血迹的大致地点，并且提示对应的角色。
+
