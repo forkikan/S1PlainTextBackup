@@ -1377,3 +1377,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 潜兵工会，是给潜兵们争取在解放星球的途中来一杯liber-tea吗？</blockquote>
 之前有讲过，会有排级战备和战旗，不过看起来想搞出来还是有点困难的
 
+
+*****
+
+####  qwased  
+##### 5796#       发表于 2025-2-22 03:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">队友卡在任务阀门上动不了还变成无敌状态了。。我怎么感觉上周都没这么频繁的bug啊
+
