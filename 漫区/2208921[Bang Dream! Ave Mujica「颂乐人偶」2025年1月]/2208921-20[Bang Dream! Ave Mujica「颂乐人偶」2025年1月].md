@@ -4732,3 +4732,76 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 
 属于是杀人诛心了。
 
+
+*****
+
+####  与太郎  
+##### 28503#       发表于 2025-2-21 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489100&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-21 22:01</a>
+
+突然想到一件事，现在剧中是什么时间？
+
+这个“重要时期”会不会说的是……考试？ ...</blockquote>
+这句肯定不是指功课，本身也只是是高1还在学数1
+
+时间7.25出道9.20解散，然后过了1个月，离期末还远
+
+暗逻辑：
+
+其实是祥子在校门口众目睽睽之下被巨大宝箱少女推倒并带走后就请假，导致流言发酵
+
+在流言平息之前祥子都要以照顾睦为名不去学校
+
+*****
+
+####  aptx8285144  
+##### 28504#       发表于 2025-2-21 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489232&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-21 22:24</a>
+
+实际上现在最魔幻的剧情就是大喵前几天还在吃激辣拉面，现在就ysl联名单出一列产品
+
+另外ysl这类奢侈品出 ...</blockquote>
+是圣罗兰品牌吗？国内对其想象力不丰富也正常，觉得大瞄只是一个“大红大紫”的明星（不要问为什么看似还是发愁有些工作接不到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 28505#       发表于 2025-2-21 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489359&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-21 22:46</a>
+这句肯定不是指功课，本身也只是是高1还在学数1
+
+时间7.25出道9.20解散，然后过了1个月，离期末还远</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是坐实了祥子被姬头四带走了的猜测吗（睦门立雪那段应该是除去在校时间的吧）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  syndrome2032  
+##### 28506#       发表于 2025-2-21 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489374&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-21 22:48</a>
+那不是坐实了祥子被姬头四带走了的猜测吗（睦门立雪那段应该是除去在校时间的吧）
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+睦门立雪那三个镜头是穿校服提包。应该是上学了，早退没早退就不知道了。
+
+*****
+
+####  半年  
+##### 28507#       发表于 2025-2-21 22:52
+
+[https://www.bilibili.com/video/BV1BSwoeXE7d](https://www.bilibili.com/video/BV1BSwoeXE7d)
+
+soyo大战saki，但是高达音效
+
+[https://www.bilibili.com/video/BV1ARAteDESa](https://www.bilibili.com/video/BV1ARAteDESa)
+
+ 不战斗就无法生存，我绝对不能死！ 
+
+笑死了
+
