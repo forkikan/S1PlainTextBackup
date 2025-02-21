@@ -4397,3 +4397,47 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202502/21/210350vf63amb4a9an9uba.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 28472#       发表于 2025-2-21 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488217&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-21 20:06</a>
+
+喵梦那间事务所不就是TGW旗下的，MINAMI国民演员和SUMIMI国民偶像也是TGW旗下的。 ...</blockquote>
+但现实中YSL专门出个联名得了格莱美也没用的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+代言倒是可能纯靠大公司背后运作有祖传资源之类的
+
+不过YSL会和村上隆一类的其他设计师或者特定IP联名
+
+懂了，我们喵姆自己就是自己的虚拟作品，自此，已成艺术<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Delicatus545  
+##### 28473#       发表于 2025-2-21 21:13
+
+大莫说她和睦是祥子创造的明显是唬祥子的吧，就是要把祥子作为自己的工具人。
+
+ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是大莫上号给大祥吹的枕边风呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是为了维持自己的存在
+
+
+*****
+
+####  天空塔书记官  
+##### 28474#       发表于 2025-2-21 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488735&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-21 21:07</a>
+被三连之后 木头的眼神变了
+
+ 意识到自己口不择言了  先观察反应：  羞怒交加 
+
+开始逃跑</blockquote>
+<img src="https://p.sda1.dev/22/e8e316b2ac301ce830821caf8c48a792/image.jpg" referrerpolicy="no-referrer">
+
+补上三连<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
