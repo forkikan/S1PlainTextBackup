@@ -4182,3 +4182,51 @@ T1     幻觉姐     要乐奈</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 28462#       发表于 2025-2-21 20:20
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 20:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488221&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 20:07</a>
+既然你怎么说了，那濑田算T3吧。七深不行，这是神棍排行，天才有天才的tier榜给她 ...</blockquote>
+行，那亚子呢，中二病 ? <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  彼岸之焰  
+##### 28463#       发表于 2025-2-21 20:24
+
+大莫实锤是祥子创造的，那另外 4 个有转正成实体的可能吗？正好观众也说没一个是人<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这不是呼应上了吗。
+另外，还能解决团魂问题，你问为啥要组 mujica，答案是祥子设定的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  是谁的书画  
+##### 28464#       发表于 2025-2-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488340&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 20:20</a>
+
+行，那亚子呢，中二病 ? 
+
+—— 来自 鹅球 v3.3.96</blockquote>
+亚子的神棍就是她觉得她很神棍，所谓越真越假，越假越真，这才是神棍，你懂什么！<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|懂|
+
+查看全部评分
+
