@@ -17793,3 +17793,13 @@ ntd独角兽也描述了："也就说光靠思考便可以对机体进行控制�
  本周胶片发完了，等下周新纸片了，买了几个a5的相框准备装这几次的特典</blockquote>
 就发完了啊
 
+
+*****
+
+####  积木23ki  
+##### 7281#       发表于 2025-2-22 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489776&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-21 23:59</a>
+就发完了啊</blockquote>
+22号开始就是喵球特典纸片了吧
+

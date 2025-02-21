@@ -6195,3 +6195,17 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nukacolamania  
+##### 2036#       发表于 2025-2-22 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486397&amp;ptid=2243718" target="_blank">秦南心 发表于 2025-2-21 16:08</a>
+V3生成涩涩总是乱码和胡言乱语，，咋回事，硅基api尚且还好，派欧就全是胡话了，，真有审核吧 ...</blockquote>
+不应该啊，V3搞黄只要破了甲突出一个四平八稳，R1才是胡言乱语的那个
+
+不过现在搞黄新宠是马院士的grok3<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
