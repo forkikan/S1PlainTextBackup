@@ -3297,3 +3297,30 @@ bangbang 23季连着还是很紧密的。
 铁血爱灯羊</blockquote>
 重点是，如果拒绝也是有正当理由的<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 28393#       发表于 2025-2-21 18:11
+
+ 本帖最后由 adretyu67. 于 2025-2-21 18:14 编辑 
+
+我对鸡团动画最大的感觉就是live开少了。
+
+狗团和GBC一比也少了，虽然GBC经常搞大量的兼用卡和万策尽的2d来提醒我确实是东阿尼血汗工厂出品。
+
+7话的ccc告别live应该就是特意搞得那么烂的。
+
+要不把狗团13话的当成鸡团0话来看吧。
+
+导致我现在补bangbang23季时候开心的不得了，哇你们怎么几乎话话开银趴啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EverNight  
+##### 28394#       发表于 2025-2-21 18:11
+
+提个问题，go团第10集时候和灯说爽世怎么办的到底是哪个人格？当时墨提斯还没出来，但是和吉他睦动机也对不上。
+
+看不懂当时的动机
+
