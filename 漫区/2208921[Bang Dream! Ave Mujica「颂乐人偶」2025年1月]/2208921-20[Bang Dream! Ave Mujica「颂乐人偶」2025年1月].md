@@ -1966,3 +1966,117 @@ mortis虽然临时占据了主人格的位置，但是小睦这个人格更稳�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fuwamoco  
+##### 28273#       发表于 2025-2-21 15:56
+
+若叶睦的情况很特殊，did和演技混杂在一起了。
+
+现在网上有很多人说自己是did患者，或者你看did患者的纪录片，你的第一反应是人格切换吗？不是的，你的第一反应是这个人一定是在演戏。是的，多重人格和演技真的很难区分，尤其是演员也经常有入戏太深无法回归正常人格的情况。【美国首例被研究离解性身份障碍（DID）患者1956年访谈】 [https://www.bilibili.com/video/B ... 393bcec3609acbb333e](https://www.bilibili.com/video/BV1kt411x7Kf/?share_source=copy_web&amp;vd_source=72dbc4a6334fd393bcec3609acbb333e)
+
+若叶睦的表演天赋让她在人格确立阶段（我们参考佛洛依德的理论，0-6岁），对自我的塑造产生了重大错误。儿童塑造人格是依赖外界环境的正反馈的，比如你为什么知道饭前便后洗手？是因为你在幼儿时期每次这样做会得到父母夸奖，逐渐养成了习惯。而若叶睦通过演技，可以获得超大量的外界反馈。在家像洋娃娃一样就会得到父亲的赞许，出门甜言蜜语就会得到周围人夸赞，去月之森面试成熟稳重就会得到校长称赞，和祥子温柔备至就能得到朋友。若叶睦在幼儿时期依赖表演不断塑造极大差异性的人格，加剧自我的认识缺乏，加上母亲对女儿的忽视，若叶睦是无法靠自己找到众多人格的共同点，形成完整的自我的。而且在性器期长时期缺乏母爱，使若叶睦本该经历的恋母期不复存在，加剧她情感缺失和人格塑造的困难。
+
+这时候最灾难的事发生了，上台说错话后，若叶睦对父母给予的物品产生了厌恶，而洋娃娃型人格此时获得了吉他，产生了巨大的自我。她通过吉他确定了自己是独一无二的睦，其他人格因此陷入沉睡，但洋娃娃睦这个人格缺陷非常大，因为她本身是儿童时期讨好父母树立的安静形象，是不需要社交，演技，言语这些能力的，而这些恰好是她的天赋，是割舍不掉的潜能，因此社交睦从人格清洗中活了下来，承担了潜意识里情绪垃圾桶的功能，把洋娃娃睦讨厌的东西全都塞进去。
+
+若叶睦的现状就是儿童时期人格塑造阶段，自我表演天赋，过早流量曝光，母爱缺失共同影响造成的悲剧。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|+1|
+
+查看全部评分
+
+*****
+
+####  ltycomputer  
+##### 28274#       发表于 2025-2-21 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486213&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-21 15:53</a>
+
+这题我会。莫小姐是睦崩溃后临时拉起的托管进程，根据临场环境只是紧急给了个表演库的权限。调用不了已经 ...</blockquote>
+大模型提示词攻击<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 28275#       发表于 2025-2-21 15:57
+
+ 本帖最后由 cxj649 于 2025-2-21 15:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486171&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-21 15:49</a>
+
+有一说一乐奈都能阴阳眼看出从来没见过的睦有两个灵魂了，还纠结睦精神病治不治疗的实在有点搞，奇幻世界观 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">而且这病治疗办法就是人格大逃杀
+
+我一直很好奇，观众去看医生治疗是以为的治疗是什么
+
+*****
+
+####  最终兵器狂战  
+##### 28276#       发表于 2025-2-21 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486252&amp;ptid=2208921" target="_blank">ltycomputer 发表于 2025-2-21 15:56</a>
+大模型提示词攻击</blockquote>
+此乃传奇黑客五米铃与赛博克总睦子米的较量。怕是只有爬上丰川塔顶的传奇能够与之相媲美罢。南无三。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 28277#       发表于 2025-2-21 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485894&amp;ptid=2208921" target="_blank">nemuru_baka 发表于 2025-2-21 15:21</a>
+
+莫提斯为什么不会弹吉他，为什么是复读机，其他的睦为什么就不是复读机这些都是为了炒作才写的吧。如果因为 ...</blockquote>
+多重人格理论上可以理解为一个身体若干个灵魂，多重人格确实可以不共享技能组，甚至还有记忆不互通的情况
+
+睦这里只是表现为性格不同的同一个人，且互相共享记忆，可能让你产生了精神分裂的错觉
+
+当然剧本这么写很难不怀疑制作组才是那个精神分裂的个体
+
+
+*****
+
+####  莉缇娅  
+##### 28278#       发表于 2025-2-21 16:02
+
+<blockquote>YFIIII 发表于 2025-2-21 01:54
+楼友们觉得单身妈妈奋斗几年内拿下六本木大平层豪斯、女高中生买完华伦天奴买亚历山大麦昆和小网红联动YSL ...</blockquote>
+那还是后面那个。
+
+*****
+
+####  浅倉透  
+##### 28279#       发表于 2025-2-21 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485727&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 15:05</a>
+
+答案是，
+
+祥子： 我忘了帶錢包， 這頓你們給我先墊， 狗咩馬賽 （鞠躬） ...</blockquote>
+財布ないわ
+
+*****
+
+####  航母掉头  
+##### 28280#       发表于 2025-2-21 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485867&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 15:18</a>
+
+区别就是，莫缇丝没死祥子捉爱可以玩两人3P，一会儿当1一会儿当0，纯纯享受 ...</blockquote>
+墨提斯明显还只是个孩子，大象准备进监狱么
+
+
+*****
+
+####  Mika-S  
+##### 28281#       发表于 2025-2-21 16:05
+
+再问漏油一遍，睦真的比大喵更像人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
