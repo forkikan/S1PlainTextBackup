@@ -4230,3 +4230,50 @@ T1     幻觉姐     要乐奈</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  有钱多买小人  
+##### 28465#       发表于 2025-2-21 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488038&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 19:35</a>
+把睦頭的行程拉爆
+
+出事鍋是祥背</blockquote>
+是的，海子姐那日程，不知道的怕不是以为什么手游在肝练度。
+
+这么一想，海子姐进队就好像借了富哥号卷总力战，钱都不用自己出。爽爆。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 28466#       发表于 2025-2-21 20:32
+
+一个月前我还说祥子面对的是高阶次元的大手，现在居然真给具象化了
+
+能撑这么久也是不容易
+
+*****
+
+####  syndrome2032  
+##### 28467#       发表于 2025-2-21 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488233&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-21 20:08</a>
+主要是她直接认定mortis了，还直接说成为本尊吧，我特别疑惑😂</blockquote>
+海玲看了第七话ccclive的。
+
+上台弹吉他的是小睦，下台拒绝她的也是小睦。
+那这个愿意来组队的若叶睦是谁不就只剩排除法了
+
+
+*****
+
+####  syndrome2032  
+##### 28468#       发表于 2025-2-21 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488298&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-21 20:15</a>
+其实大莫老师要活着不一定要母鸡卡吧，主要还是抓住木头不会社交的点，逼迫木头保留大莫来设交，只是母鸡卡 ...</blockquote>
+轻度社交也不需要啊。mortis存在的前提是童星或者鸡团那种采访轰炸。
+
+如果不是组了鸡团，小睦这个带点忧伤的无口吉他少女形象能坚持很久的。
+
