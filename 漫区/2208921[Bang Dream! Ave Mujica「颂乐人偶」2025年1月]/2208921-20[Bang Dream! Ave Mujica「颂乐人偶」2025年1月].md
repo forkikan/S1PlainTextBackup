@@ -4490,3 +4490,54 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 
 初祥真能赢吗，沉重程度感觉不如睦祥啊
 
+
+*****
+
+####  syndrome2032  
+##### 28481#       发表于 2025-2-21 21:25
+
+但是还是需要主唱 贝斯 鼓的。
+
+第七话前和第七话后的两个吉他睦变化之大都不像是同一个人格了。
+
+精分小剧场的吉他睦接受ccc已毁，在第七话ccclive后在ccc其他成员都接受ccc完结后，倒是她作妖表态需要ccc
+
+*****
+
+####  syndrome2032  
+##### 28482#       发表于 2025-2-21 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488853&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-21 21:22</a>
+大祥这追妻火葬场</blockquote>
+不要问为什么人在火葬场
+
+*****
+
+####  plazum  
+##### 28483#       发表于 2025-2-21 21:29
+
+感觉我有点动了真心了，在B站二创视频的评论区看到Mortis皮套的评论（ta评论过的视频还挺多的），我都会点进去楼中楼，然后给那些让牢莫不要死的评论挨个点赞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosones1337  
+##### 28484#       发表于 2025-2-21 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487825&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-2-21 19:05</a>
+海子姐不是一个无所吊谓的自由人吗，为啥要重组mujica
+
+是不是只能解释成海是为了看乐子 ...</blockquote>
+这个倒是好解释，海子姐控制欲爆棚，如果想放飞自我的话还真就只有这几个神人能陪她玩乐队，否则就只能压抑自己当雇佣兵
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 28485#       发表于 2025-2-21 21:31
+
+睦头的自我认知矛盾按照母鸡卡一贯高拿轻放的态度多半是找到理由共生完事。
+
+不过这样的话就没什么爆点了，作为大家都要有小秘密的共犯乐队。
+
