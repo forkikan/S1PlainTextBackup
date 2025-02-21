@@ -14260,3 +14260,60 @@ PPP的鼓手山吹沙绫，因为照顾生病的母亲没参加第一次演出�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一心而用  
+##### 27998#       发表于 2025-2-21 10:37
+
+现在知道这个镜头的含义了：
+<img src="https://p.sda1.dev/22/279ba2105a2ba0e086d5233867000da5/QQ图片20250221103445.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ac955cf50b707e73b81b12353ebb2a17/QQ图片20250221103449.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 27999#       发表于 2025-2-21 10:38
+
+这集最让我觉得变态的还得是编剧仿佛自己也找不出让母鸡卡复活的理由了，目前母鸡卡复活的驱动力，一个是海铃那个突然在一集之内被建立起来的嫉妒心理，一个是Mortis怕自己要被人格消灭，太诡异了。
+
+*****
+
+####  非建政专用号  
+##### 28000#       发表于 2025-2-21 10:39
+
+我是清醒的梦境，（脑内无缝自由搏击）
+你们噩梦中的怪物，（森美奈美亲自认证）
+千面的恶魔。（多重人格吃鸡大赛）
+在我的真正形态下颤抖吧！（再次有请受害者森美奈美）
+在死亡之神面前屈服吧！（不组乐队就去死）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  影伴光生  
+##### 28001#       发表于 2025-2-21 10:44
+
+初华也挺离谱的，5678连着4集一点主观能动性都没有，前作看着深藏不露，实际一碰就碎，教吉他这活还能被贝斯手给截胡
+
+*****
+
+####  Lawliet.L  
+##### 28002#       发表于 2025-2-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482965&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 10:38</a>
+
+这集最让我觉得变态的还得是编剧仿佛自己也找不出让母鸡卡复活的理由了，目前母鸡卡复活的驱动力，一个是海 ...</blockquote>
+多重人格这种核心诡计应该在大纲阶段就想出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 28003#       发表于 2025-2-21 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到目前为止几乎所有的关键剧情不都是突然两三句话就给你垫起来的吗
+
+过剧情跟立人设都像是念说明书似的
+

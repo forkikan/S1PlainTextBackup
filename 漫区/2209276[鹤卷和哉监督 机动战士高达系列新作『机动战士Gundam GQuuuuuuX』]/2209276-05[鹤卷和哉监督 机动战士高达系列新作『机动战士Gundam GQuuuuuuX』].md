@@ -17508,3 +17508,13 @@ ZZ和CCA好像都没面具男吧
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  虛無迴廊  
+##### 7264#       发表于 2025-2-21 10:41
+
+<blockquote>又是阿森纳基地？我明白的，现今能透露的事太少了就是如此吧</blockquote>……高达是这样说的
+<img src="https://p.sda1.dev/22/bcd4511488268b9cfaf2cbb29cf6c70c/IMG_20250221_102633.jpg" referrerpolicy="no-referrer">
+明明应该是第一次参战却说了“又”的屑高达，是作为白高达参加时就有自我意识了还是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
