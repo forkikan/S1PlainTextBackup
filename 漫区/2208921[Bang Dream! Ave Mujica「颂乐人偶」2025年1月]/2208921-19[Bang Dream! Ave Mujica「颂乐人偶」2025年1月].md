@@ -14972,3 +14972,190 @@ VS
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hysjmr  
+##### 28063#       发表于 2025-2-21 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483628&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 11:35</a>
+
+这周宁可让睦的人格体系大乱斗到搞不清究竟在干什么，让海铃玩购物艺术，也不给go团上周的事找补，我想知道 ...</blockquote>
+还有啥好找补的，他都这样了，就跟一个癌症晚期一样，我就不能让让他吗
+
+*****
+
+####  JustW  
+##### 28064#       发表于 2025-2-21 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483847&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 11:58</a>
+那就说说我自己吧，我曾经因为沉迷《希灵帝国》，有一段时间真以为自己就是主角陈俊；也因为沉迷侦探故事 ...</blockquote>
+像你这样的随便找个初中数都数不完，我为什么要害怕，难绷
+
+*****
+
+####  半年  
+##### 28065#       发表于 2025-2-21 11:59
+
+<img src="https://img.saraba1st.com/forum/202502/21/115955t58d3mamxd866nnf.jpg" referrerpolicy="no-referrer">
+
+<strong>GkPY21fbEAAfoYv (1).jpg</strong> (86.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 11:59 上传
+
+[https://x.com/December__fool/status/1892594925910331421/photo/1](https://x.com/December__fool/status/1892594925910331421/photo/1)
+
+*****
+
+####  6030sylar  
+##### 28066#       发表于 2025-2-21 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483766&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-21 11:50</a>
+其实吉他睦也不需要ccc吧，毕竟之前为了祥子都没有帮soyo重组c团，祥子优先级更高的话，为啥不二人出道呢， ...</blockquote>
+祥子路径依赖，第三次了，母亲离世，父亲颓废，现在到姐妹犯病，一有压力就想组乐队
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 28067#       发表于 2025-2-21 12:01
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483859&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 11:59</a>
+像你这样的随便找个初中数都数不完，我为什么要害怕，难绷</blockquote>
+那不就完了，这是岛国二次元作品，所以用二次元的逻辑去解释有什么不对吗
+
+您不会是抱持欣赏高雅艺术的心态来看动画的吧，不会吧，不会吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 28068#       发表于 2025-2-21 12:02
+
+生下来就有弹吉他的天赋 ➡️OK
+小时候因为什么创伤而人格分裂 ➡️OK
+老戏骨因为入戏分不清现实和虚拟人格分裂 ➡️勉强OK
+生来就是天生的演员、几岁就开始演戏演到进行了脑内人格大逃杀 ➡️什么jb
+
+
+*****
+
+####  Putredinus  
+##### 28069#       发表于 2025-2-21 12:04
+
+没搞啊B大会员，问一下 ，“你要成为本尊”是啊B的翻译吗？
+
+*****
+
+####  JustW  
+##### 28070#       发表于 2025-2-21 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483877&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 12:01</a>
+那不就完了，这是岛国二次元作品，所以用二次元的逻辑去解释有什么不对吗
+
+您不会是抱持欣赏高雅艺术的心 ...</blockquote>
+那国家队结尾大02上宇宙打外星人什么时候给**
+
+你可以二次元，但不能完全不顾及你自己花时间搭建好的舞台。昭和搞笑漫画里男主角可以一拳把女生揍飞，邦邦里敢不敢？
+
+*****
+
+####  aptx8285144  
+##### 28071#       发表于 2025-2-21 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483807&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 11:53</a>
+
+羊姐在場外補了
+
+羊姐好，柿本壞</blockquote>
+看了看贴吧，轮到睦吧破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28072#       发表于 2025-2-21 12:05
+
+相反这才是二次元文艺创作的正常操作，引入现实性元素不代表就是纪实作品，重要的是作品的逻辑自洽，而不是合乎现实的逻辑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 28073#       发表于 2025-2-21 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483888&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 12:02</a>
+
+生下来就有弹吉他的天赋 ➡️OK
+
+小时候因为什么创伤而人格分裂 ➡️OK
+
+老戏骨因为入戏分不清现实和虚拟人格 ...</blockquote>
+只能说我和你的观点差不多，挺傻逼的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+有一种在少女乐队动画片里看到时崎狂三一般的突兀感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 28074#       发表于 2025-2-21 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483900&amp;ptid=2208921" target="_blank">Putredinus 发表于 2025-2-21 12:04</a>
+没搞啊B大会员，问一下 ，“你要成为本尊”是啊B的翻译吗？</blockquote>
+是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  厉飞雨  
+##### 28075#       发表于 2025-2-21 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483697&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 11:43</a>
+大喵老师只接综艺节目，舞台剧抢不过甜甜圈，一个乡下高一妹哪来的大牌资源
+
+考虑现实性怕不是拍好几部爱猫T ...</blockquote>
+考虑现实性，娱乐圈哪怕混到全球顶流也就只能拿个ysl代言，大喵老师是联名单开产品线，这背景保守估计比丰川财团还要old money<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28076#       发表于 2025-2-21 12:07
+
+啊这，那第二季的第四集又该怎么解释
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 28077#       发表于 2025-2-21 12:07
+
+<blockquote>DARK_HGCG 发表于 2025-2-21 08:41
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+是播录像叫她自己学自己吧
+
+*****
+
+####  斯大林的拖拉机  
+##### 28078#       发表于 2025-2-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483697&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 11:43</a>
+大喵老师只接综艺节目，舞台剧抢不过甜甜圈，一个乡下高一妹哪来的大牌资源
+
+考虑现实性怕不是拍好几部爱猫T ...</blockquote>
+不是甜甜圈捡漏的吗，大喵当初不拒的话美奈美亲自推荐怎么可能给别人
+
