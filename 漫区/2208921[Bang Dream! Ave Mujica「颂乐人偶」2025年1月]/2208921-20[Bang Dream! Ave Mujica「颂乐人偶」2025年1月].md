@@ -1556,3 +1556,55 @@ D团人不坏的，但是依然很难让海铃安心，原因是人太少吗？<
 缺乏父母的正反馈，只能自己给自己正反馈吧，把吉他作为不是从父母那继承来的才能，只是属于自己的东西 ...</blockquote>
 睦喜欢PP，可能还更早点。
 
+
+*****
+
+####  天空塔书记官  
+##### 28241#       发表于 2025-2-21 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485815&amp;ptid=2208921" target="_blank">linchuanwangmou 发表于 2025-2-21 15:14</a>
+我没看懂，我问一下啊，吉他睦要组哭来西裤，然后墨提斯就会被干掉，所以墨提斯要组母鸡卡才不会死，已知本 ...</blockquote>
+不会，因为睦的演技是她无法舍弃的一部分，是她不被认可的自我，要想实现角色的成长，与自我的和解是必不可少的
+
+所以最后应该会是共存结局，毕竟wsd也要卖“莫提斯”的谷子不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 28242#       发表于 2025-2-21 15:18
+
+ 本帖最后由 木板春香 于 2025-2-21 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485838&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-21 15:16</a>
+
+睦喜欢PP，可能还更早点。</blockquote>
+ 那这个时间轴我就搞不清了。PP才是睦的理想形态嘛？
+
+可能她心里的音乐起源比被祥子认知到的状态更早
+
+*****
+
+####  是谁的书画  
+##### 28243#       发表于 2025-2-21 15:18
+
+区别就是，莫缇丝没死祥子捉爱可以玩两人3P，一会儿当1一会儿当0，纯纯享受
+
+
+*****
+
+####  nemuru_baka  
+##### 28244#       发表于 2025-2-21 15:21
+
+莫提斯为什么不会弹吉他，为什么是复读机，其他的睦为什么就不是复读机这些都是为了炒作才写的吧。如果因为mujica没有音乐性所以睦不会弹吉他，还是挺牵强的。只有睦的本意就是折磨祥子，故意不会弹吉他，表演多重人格才说得通。结论还是神人玩乐队。
+
+*****
+
+####  linchuanwangmou  
+##### 28245#       发表于 2025-2-21 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485860&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 15:18</a>
+
+不会，因为睦的演技是她无法舍弃的一部分，是她不被认可的自我，要想实现角色的成长，与自我的和解是必不 ...</blockquote>
+我还是不理解啊，这个多重人格到底是本体睦戏多演出来的还是确实有心理疾病啊，我看这一集的意思好像是她根本没病，纯演啊
+

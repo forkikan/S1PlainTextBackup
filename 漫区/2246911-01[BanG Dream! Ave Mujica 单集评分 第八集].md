@@ -3012,3 +3012,11 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 
 +2，太好笑了
 
+
+*****
+
+####  LLLLLuB  
+##### 338#       发表于 2025-2-21 15:17
+
+回味了一下，要是这一集是接在第4或5集后面，起码观感会好很多<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">对于母鸡卡的情绪线还是顺畅的
+
