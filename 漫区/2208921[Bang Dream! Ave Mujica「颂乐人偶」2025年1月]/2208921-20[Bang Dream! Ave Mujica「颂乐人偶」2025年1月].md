@@ -993,3 +993,196 @@ mujica现在这个结果可以说不管是酒店之夜还是CCC出殡还是双�
 大氵包氵包：莫姐的真实身份
 <img src="https://s3.bmp.ovh/imgs/2025/02/21/f1e68815fcf499a8.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 28202#       发表于 2025-2-21 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485053&amp;ptid=2208921" target="_blank">未来起航 发表于 2025-2-21 13:56</a>
+国家队可以说是偶像厨锦织对gainax经典的拙劣模仿，那些个基本的点子都不算太错就是执行蠢得辣眼睛。
+
+鸡 ...</blockquote>
+有的，哥们，有的，泥哥人气投票已经十倍杀睦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 28203#       发表于 2025-2-21 14:28
+
+<img src="https://p.sda1.dev/22/7c605227fbb12669ceb6f8dad979850a/0063tQWsgy1hyrzmbjqrsj30wr17ogqr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1c192014c93d5db52636fd0b94156e1d/008xBgkNgy1hys3s28bg3j30rs0yqk02.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 28204#       发表于 2025-2-21 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485313&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 14:20</a>
+
+制作方不能也不应该真把现实中的精神疾病完全照搬到动画作品里，这可以看做是某种伦理底线，所以对概念进行 ...</blockquote>
+想怎么样都可以，编剧甚至就可以告诉你睦就是被她妈为了名利拜信古神剩下的科斯小睦这都随意。
+
+但是不应该在第二季的第八集还搁这边不停的抛奇奇怪怪的设定，这种感觉就像墙上凿了一个窟窿，不停的搬设定来补这个窟窿，结果越补越大。
+
+谁管你制作组一开始是怎么想的呢？你要是真的一开始就是这个设定，为什么之前一点伏笔都没有呢？
+
+*****
+
+####  wpcc  
+##### 28205#       发表于 2025-2-21 14:29
+
+木头人就是荷鲁斯铁证。
+
+木头人杀了很多人格 恐虐神选
+
+木头人会演各种人格 奸奇神选
+
+木头人会种小黄瓜 纳垢神选
+
+木头人颜值很高 色孽神选 
+
+四神荷鲁睦
+
+我看白祥帝皇也顶不住吧 要不黑暗之王上号得了
+
+*****
+
+####  太二EricGuo  
+##### 28206#       发表于 2025-2-21 14:30
+
+在英文圈里睦妈一跃成为邦多利最出生的家长
+
+IMG_8961.JPG
+(241.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142935k7qff8u7vzzdf7ua.jpg" referrerpolicy="no-referrer">
+
+IMG_8959.JPG
+(298.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142936czznsp6hz6l0stlh.jpg" referrerpolicy="no-referrer">
+
+IMG_8960.JPG
+(281.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142937yvbboof4c8d2xl84.jpg" referrerpolicy="no-referrer">
+
+IMG_8963.JPG
+(376.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142937r4ydyq4kzy0d6rqr.jpg" referrerpolicy="no-referrer">
+
+IMG_8962.JPG
+(241.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142938f2g6zewv9wxxxwdm.jpg" referrerpolicy="no-referrer">
+
+IMG_8964.JPG
+(363.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142939v4hb330n00000xgu.jpg" referrerpolicy="no-referrer">
+
+IMG_8957.JPG
+(309.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142940miapaaabxlqdhdda.jpg" referrerpolicy="no-referrer">
+
+IMG_8958.JPG
+(328.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/142941dyr2jtfvfgrdivhi.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28207#       发表于 2025-2-21 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485217&amp;ptid=2208921" target="_blank">柯哀lv王道 发表于 2025-2-21 14:10</a>
+那为啥还没夺回身体控制权</blockquote>
+吉他睦给了“莫提斯”最后一次机会去尝试，如果失败就“抹杀”她，大概是这样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  HereLink  
+##### 28208#       发表于 2025-2-21 14:32
+
+这肯定毫无疑问吧😂
+
+这睦妈虽然工具人属性明显，但是也明显不是个人了。
+
+*****
+
+####  北条早苗  
+##### 28209#       发表于 2025-2-21 14:33
+
+我觉得柿本他们是自我感觉良好的，因为第8集还在搞对偶，睦头那句“总是做我不想你做的事情”就是复刻爽姐的
+只能说复读机是若叶睦这个机体的底层逻辑，搞不好从来没有开心过也是睦妈哪个片的台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28210#       发表于 2025-2-21 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485450&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-21 14:33</a>
+
+我觉得柿本他们是自我感觉良好的，因为第8集还在搞对偶，睦头那句“总是做我不想你做的事情”就是复刻爽姐 ...</blockquote>
+内心小电视最后就是飞鸟山再放送<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28211#       发表于 2025-2-21 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485414&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 14:29</a>
+想怎么样都可以，编剧甚至就可以告诉你睦就是被她妈为了名利拜信古神剩下的科斯小睦这都随意。
+
+但是不应 ...</blockquote>
+要说mygo的话，可能确实没有，因为ave的剧本应该是改过，要么就是故意藏着造反转、炒热度，但睦的情况第三集就已经在铺垫了，只是没有说明睦分裂的原因，当然现在还是没有，还在藏，至于天生演员，喵梦一直强调睦是“真物”，也就是表演本身，所以也不是无迹可寻<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 28212#       发表于 2025-2-21 14:36
+
+观众在现有的地基上左脚踩右脚地猜测，然后新的一集抛出新的设定，我在地下室，这下你们猜不到我有多狂了吧
+
