@@ -2515,3 +2515,26 @@ b站字幕一如既往的烂
 
 +2了，我了个蛋白粉超人啊
 
+
+*****
+
+####  tuatha  
+##### 284#       发表于 2025-2-21 07:58
+
+开始几集讨论商业乐队现实感的如何了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AP0rt_  
+##### 285#       发表于 2025-2-21 08:04
+
++2 Mujica已经彻底变成喜剧了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kongxian  
+##### 286#       发表于 2025-2-21 08:05
+
+屎味搞笑。制作组是觉得自己挺有幽默感？到底要拍什么
+
