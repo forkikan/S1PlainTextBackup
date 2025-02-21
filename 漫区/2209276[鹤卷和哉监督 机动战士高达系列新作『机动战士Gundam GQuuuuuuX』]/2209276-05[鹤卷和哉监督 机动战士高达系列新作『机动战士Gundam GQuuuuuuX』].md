@@ -17724,3 +17724,14 @@ X @mitotank
 
 因为认为奥米加表现比ntd强<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 7276#       发表于 2025-2-21 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488303&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-2-21 20:16</a>
+
+现在阿尔法和奥米加除了精神感应框架以外还有其他的猜测吗？我甚至猜是至少独角兽后的进一步发展的精神感应 ...</blockquote>
+你是说哪方面比ntd强
+

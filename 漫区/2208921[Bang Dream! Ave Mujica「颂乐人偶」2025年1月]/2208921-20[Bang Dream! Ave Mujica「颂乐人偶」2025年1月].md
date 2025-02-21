@@ -4541,3 +4541,28 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 
 不过这样的话就没什么爆点了，作为大家都要有小秘密的共犯乐队。
 
+
+*****
+
+####  fuwamoco  
+##### 28486#       发表于 2025-2-21 21:39
+
+五个人一起杀了墨提斯怎么样，完美的共犯乐队
+
+*****
+
+####  最终兵器狂战  
+##### 28487#       发表于 2025-2-21 21:41
+
+说实话要不是坛里和微博有阔佬解释，我都从来没听说过YSL这牌子。这些东西实在是离自己的日常生活太过于遥远了，以至于也没法区分皇上的锄头是不是金的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skymoon  
+##### 28488#       发表于 2025-2-21 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488896&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-21 21:27</a>
+不要问为什么人在火葬场</blockquote>
+也不要问追的“妻”是什么生物
+
