@@ -4605,3 +4605,66 @@ ccc创建是睦带祥子去看live推动的，指不定mujica的演剧点子是�
 
 这个“重要时期”会不会说的是……考试？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 28492#       发表于 2025-2-21 22:10
+
+有一说一，海铃身上的缺陷要是已经大于黑祥，立希很难忍她到现在的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 28493#       发表于 2025-2-21 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489100&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-21 22:01</a>
+
+突然想到一件事，现在剧中是什么时间？
+
+这个“重要时期”会不会说的是……考试？ ...</blockquote>
+查了下是的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/21/221231o6pu6vv32vvu6va9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 22:12 上传
+
+*****
+
+####  影伴光生  
+##### 28494#       发表于 2025-2-21 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489100&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-21 22:01</a>
+突然想到一件事，现在剧中是什么时间？
+
+这个“重要时期”会不会说的是……考试？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个财阀大小姐跟一个国民明星家孩子应该不会太在意考试成绩才对
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  老贝  
+##### 28495#       发表于 2025-2-21 22:13
+
+重要时期指的不是睦的康复期吗，人病情刚好转不多陪陪，第二天又不正常了祥子怎么办。
+
+*****
+
+####  帕林马哲理  
+##### 28496#       发表于 2025-2-21 22:14
+
+说实话，那个YSL也只是neta一下，伊夫·圣·罗兰本人堪称最伟大的服装设计师之一，而且他去世以后，应该不会有谁有那个排面还能搞这种联名了。大家还是理解为那种日本模仿小厂比较合适。
+
+
+*****
+
+####  MASKA-1  
+##### 28497#       发表于 2025-2-21 22:14
+
+祥子现在为了补偿之前对睦的亏欠，处于百依百顺状态。但是好像顺出问题了（毕竟无论是之前的压榨睦，还是现在顺从睦都不是健康的二人关系），估计还要修正两集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
