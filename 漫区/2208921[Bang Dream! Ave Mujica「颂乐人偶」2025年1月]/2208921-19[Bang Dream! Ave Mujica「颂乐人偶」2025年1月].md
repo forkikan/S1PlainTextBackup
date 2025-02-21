@@ -15510,3 +15510,72 @@ VS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">个人感觉观众对“让睦头人看医生”有了执念，虽然也不愿想不愿了解治疗方式是什么
 
+
+*****
+
+####  RJG丶one  
+##### 28112#       发表于 2025-2-21 12:58
+
+八幡海铃怎么一副减重手术后的食谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那手术指标是bmi30以上有并发症或者bmi40以上
+
+*****
+
+####  cxj649  
+##### 28113#       发表于 2025-2-21 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有是虽然海玲搞笑神人化，但这集海玲很符合现实逻辑的
+
+*****
+
+####  天空塔书记官  
+##### 28114#       发表于 2025-2-21 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484428&amp;ptid=2208921" target="_blank">RJG丶one 发表于 2025-2-21 12:58</a>
+八幡海铃怎么一副减重手术后的食谱那手术指标是bmi30以上有并发症或者bmi40以上 ...</blockquote>
+看海铃妈就知道了，遗传性肥胖吧应该是
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 28115#       发表于 2025-2-21 13:01
+
+<img src="https://img.saraba1st.com/forum/202502/21/130129wfrjfi4xhroj9iv9.jpg" referrerpolicy="no-referrer">
+
+<strong>X8QS1BFYPW[QU0J~{)R4{TN.jpg</strong> (201.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:01 上传
+
+*****
+
+####  cxj649  
+##### 28116#       发表于 2025-2-21 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">这病治疗方式就是他喵的人格吃鸡互杀啊！！
+
+
+*****
+
+####  天空塔书记官  
+##### 28117#       发表于 2025-2-21 13:04
+
+以前张柏芝主演的一部香港电影《购物狂》讲的就是类似海铃的情况，那里面也涉及了许多其他类型的心理问题和疾病，也算是我的心理学启蒙作品了，到现在还印象深刻
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 28118#       发表于 2025-2-21 13:04
+
+海玲有点类似麻婆神父的感觉
+
+平时是禁欲的、克制的，但是逐渐转变为愉悦的、反叛的
+
