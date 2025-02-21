@@ -2588,3 +2588,35 @@ m，w c i s，莫名其妙后半段就是边看边笑<img src="https://p.sda1.de
 
 嗝打出来的话各种意义上都会成为神回
 
+
+*****
+
+####  sakatta  
+##### 292#       发表于 2025-2-21 08:40
+
+-1
+
+莫名其妙的叙事，以及莫名其妙就要回来组建母鸡卡的海铃-2，搞笑女海铃+1，所以-1
+
+*****
+
+####  Victorino  
+##### 293#       发表于 2025-2-21 08:42
+
+有没有人觉得睦妈也不是一般人？一眼看穿喵梦是被睦的演技吓到了才拒绝演戏offer
+
+本身喵梦因为对睦的劣等感就放弃演技就是一个很诡异的事情（同样逻辑的话全高中除了年级第一之外的其他人都可以不用上课不用练题了），美奈美酱居然能跟她同频，而且还能确凿地判断这是最大的理由，真的是不知道怎么长的脑子了
+
+
+*****
+
+####  深空坍缩  
+##### 294#       发表于 2025-2-21 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481675&amp;ptid=2246911" target="_blank">Victorino 发表于 2025-2-21 08:42</a>
+
+有没有人觉得睦妈也不是一般人？一眼看穿喵梦是被睦的演技吓到了才拒绝演戏offer
+
+本身喵梦因为对睦的劣等感 ...</blockquote>
+身上都有直面古神的印记吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

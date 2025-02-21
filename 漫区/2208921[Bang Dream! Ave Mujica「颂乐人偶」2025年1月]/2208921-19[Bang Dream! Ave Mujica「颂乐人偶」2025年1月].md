@@ -13067,3 +13067,125 @@ umr群发消息:重组mujica
 说起来怎么没人主动找初华啊，还是海铃拉群找的，小祥哪怕现在是人偶但是也恢复正常社交状态了，不给初华回 ...</blockquote>
 三集动画两字台词一条野狗无人问津<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 27898#       发表于 2025-2-21 08:40
+
+<blockquote>syndrome2032 发表于 2025-2-21 08:07
+umr群发消息:重组mujica
+
+睦收到短信后mortis上号给umr发信:我要。</blockquote>
+关于短信，现在还没解释莫明明用鞋打电话却突然会发消息了，而且之前还有莫看到爱音手机后戒备的镜头，后续也没解释
+
+*****
+
+####  DARK_HGCG  
+##### 27899#       发表于 2025-2-21 08:41
+
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗
+
+*****
+
+####  Суслов  
+##### 27900#       发表于 2025-2-21 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481661&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-21 08:41</a>
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+此事在孤独摇滚中亦有记载
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  eyeego  
+##### 27901#       发表于 2025-2-21 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481661&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-21 08:41</a>
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+海玲只是要教她空气吉他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 27902#       发表于 2025-2-21 08:44
+
+<blockquote>plusSharp 发表于 2025-2-21 08:03
+看开头祥子说现在是关键时刻不能离开睦，海铃是怎么从祥子手里把莫带走的？ ...</blockquote>
+各回各家的，根据台词来说，并不留宿，互相限制不了行动
+
+*****
+
+####  syndrome2032  
+##### 27903#       发表于 2025-2-21 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481658&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-21 08:40</a>
+关于短信，现在还没解释莫明明用鞋打电话却突然会发消息了，而且之前还有莫看到爱音手机后戒备的镜头，后 ...</blockquote>
+鞋子当然不能打电话。
+
+就是为了诱捕soyorin或者打电话给扮演“医生”的假想人格吧。
+
+至于害怕手机就说不明白了，第七话开始就能正常的用手机收发信息了，硬要解释就是学会了。
+
+*****
+
+####  plok201  
+##### 27904#       发表于 2025-2-21 08:45
+
+不过目前有点向着并非多重人格，只不过睦自己演出一个多重人格的人进行逃避这种方向来发展
+
+不知道最后编剧会落在哪个点呢
+
+祥子想救半身，半身不想死，大猫想战胜戏精，海玲发现自己离不开这群神经病，这样分析下来，初华到时候的团魂肯定很爆笑
+
+pico败了，彻彻底底的败了，败在这“最狂”之下<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 27905#       发表于 2025-2-21 08:45
+
+<blockquote>DARK_HGCG 发表于 2025-2-21 08:41
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+靠譜，本質沒差那麼多
+
+教一個初學者足夠了
+
+*****
+
+####  zhoujin8584  
+##### 27906#       发表于 2025-2-21 08:45
+
+<blockquote>DARK_HGCG 发表于 2025-2-21 08:41
+没玩过乐器
+
+请问贝斯手教吉他靠谱吗</blockquote>
+我感觉海铃这回的塑造，下回可能也比较喜剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 27907#       发表于 2025-2-21 08:47
+
+一個月武道館
+
+VS
+
+三個月聯名奢牌
+
+VS
+
+兩年頂級大House
+
+都幾幾開？
+
