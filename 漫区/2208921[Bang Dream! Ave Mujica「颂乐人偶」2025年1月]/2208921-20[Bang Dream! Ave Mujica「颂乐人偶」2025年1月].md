@@ -4287,3 +4287,113 @@ T1     幻觉姐     要乐奈</blockquote>
 
 墨取代之夜，就是祥子否认洋娃娃睦存在价值的那句：我的世界只有mujica了。
 
+
+*****
+
+####  qiyu1234  
+##### 28470#       发表于 2025-2-21 21:03
+
+实际上是mujica 需要 mortis
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没几集了，可别把本剧核心乐队的存在意义抹杀了
+
+*****
+
+####  木板春香  
+##### 28471#       发表于 2025-2-21 21:07
+
+<img src="https://img.saraba1st.com/forum/202502/21/210318hmq40itmtbbop4wt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/210353z8js3d92dmnsxx6n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (441.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/210246i0ujl3i3if56av5c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (429.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/210425pz066fs26l6l0d8f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (296.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:04 上传
+
+  被三连之后 木头的眼神变了
+
+<img src="https://img.saraba1st.com/forum/202502/21/210501eg37awvzl223zzha.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (357.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:05 上传
+
+意识到自己口不择言了  先观察反应：
+
+<img src="https://img.saraba1st.com/forum/202502/21/210535yabosjojoqqsjoq7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:05 上传
+
+  
+
+<img src="https://img.saraba1st.com/forum/202502/21/210600m5aoqwj3111ywwuh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (358.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:06 上传
+
+羞怒交加 
+
+<img src="https://img.saraba1st.com/forum/202502/21/210627wc1rvoyr6ooanofv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (552.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:06 上传
+
+开始逃跑
+
+ 莫提斯 你来接管吧！
+
+<img src="https://img.saraba1st.com/forum/202502/21/210158glllfl56hnnhzfl5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (442.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:01 上传
+
+ 这段复盘就有意思了
+
+image.png
+(441.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/210350vf63amb4a9an9uba.png" referrerpolicy="no-referrer">
+
