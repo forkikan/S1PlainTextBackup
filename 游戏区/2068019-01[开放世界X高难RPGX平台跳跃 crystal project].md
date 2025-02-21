@@ -1421,3 +1421,13 @@ QQ20250221-003932.jpg
 看着有点像磁带妖怪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">磁带妖怪的地图设计水平距离这个有亿点点远..........
 
+
+*****
+
+####  kerorara  
+##### 119#       发表于 2025-2-21 12:19
+
+一上来就有个翻译错误。nan怎么能是南呢，这里是祖母的代称啊。
+
+发创意工坊看看作者怎么改。
+

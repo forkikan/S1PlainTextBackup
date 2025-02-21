@@ -15259,3 +15259,158 @@ VS
 不是甜甜圈捡漏的吗，大喵当初不拒的话美奈美亲自推荐怎么可能给别人</blockquote>
 那也要看是怎么捡的漏，不过倒也确实是，说不定后面写初华顺带把苏秘密也写个背后大手对抗丰川集团
 
+
+*****
+
+####  天空塔书记官  
+##### 28087#       发表于 2025-2-21 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483963&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 12:11</a>
+一条前人都没走过的路不一定是一条绝妙无比的路，更可能是走过的人都死了的路。查重率0%.jpg
+
+而且这也不 ...</blockquote>
+其实也可以理解为是把2.5次元乐队广告片做得更像传统动画作品了，毕竟创新翻车才是常态，但未必不会有受众喜欢，管人团的设定好像还要更抽象一点，所以这就是wsd的大方向应该没错了，把一部分资源投入转到线上的流媒体运营上来<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 28088#       发表于 2025-2-21 12:17
+
+不管是契丹还是蝈蝈，都是边写剧本边拍动画，所以后期编剧突然觉得自己有了一个绝妙的点子后，动画就朝一去不复返的方向疯狂暴走了。但母鸡卡是剧本乃至整个动画都早就做完了，还能出现这种情况，只能解释为把这些设定视为时尚单品+推动剧情的方便工具了。
+
+*****
+
+####  aptx8285144  
+##### 28089#       发表于 2025-2-21 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483986&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 12:13</a>
+
+那也要看是怎么捡的漏，不过倒也确实是，说不定后面写初华顺带把苏秘密也写个背后大手对抗丰川集团 ...</blockquote>
+现在都第八话结束了，6,7,8存在感为0的老登，以后还考虑对抗丰川集团，不如废了独角兽和柿本而去找deep写脚本吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 28090#       发表于 2025-2-21 12:22
+
+有没有考虑过连续3集只有一句“嗨”的家伙，观众还以为之后塑造有多大，其实算剧情回数可能也就只有两集的量，也就是和睦对等。很难不预期最后的观感是闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 28091#       发表于 2025-2-21 12:22
+
+大喵联名ysl表明这不可能是现实世界了。。就。。。就不要当真了。。。。
+
+难怪前几集喝个拿铁都扣扣搜搜的，这集海子解说请就请
+
+*****
+
+####  Lyzers  
+##### 28092#       发表于 2025-2-21 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484042&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 12:19</a>
+
+现在都第八话结束了，6,7,8存在感为0的老登，以后还考虑对抗丰川集团，不如废了独角兽和柿本而去找deep写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像第三集你能想到真给你写个第二人格，第四集你能想到这玩意到第八集还在写甚至展开成了睦姐天生演员，脑内经历了一次人格大吃鸡一样
+
+*****
+
+####  天空塔书记官  
+##### 28093#       发表于 2025-2-21 12:23
+
+与其真的描写童年阴影导致精神创伤，还不如就说是天生超能力更让人接受，这其实也是故意对现实元素迷糊化后的结果
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adw667  
+##### 28094#       发表于 2025-2-21 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483214&amp;ptid=2208921" target="_blank">星星狐 发表于 2025-2-21 10:59</a>
+问个问题，喝汽水要打嗝又怎么了？为什么海玲和喵梦表现的好像要发生什么大灾难一样？是因为日本女生觉得打 ...</blockquote>
+樱花妹上卫生间都要配bgm掩盖水声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 28095#       发表于 2025-2-21 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484079&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-2-21 12:22</a>
+大喵联名ysl表明这不可能是现实世界了。。就。。。就不要当真了。。。。
+
+难怪前几集喝个拿铁都扣扣搜搜的 ...</blockquote>
+大猫喝大杯拿铁扣扣搜搜倒不是真缺那杯钱，应该是怕发胖。
+
+
+*****
+
+####  AnnieLeonhart  
+##### 28096#       发表于 2025-2-21 12:24
+
+这集节约宝可以算职场霸凌了吧
+
+艺能饭确实难吃
+
+*****
+
+####  天空塔书记官  
+##### 28097#       发表于 2025-2-21 12:24
+
+相当于健身者的放纵餐，是类似的自我补偿机制<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 28098#       发表于 2025-2-21 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484106&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-2-21 12:24</a>
+这集节约宝可以算职场霸凌了吧
+
+艺能饭确实难吃</blockquote>
+还有海铃的CV冈田梦以
+
+毕竟岛国就是那个环境<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Putredinus  
+##### 28099#       发表于 2025-2-21 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483919&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-21 12:06</a>
+
+是
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+谢谢啦<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 28100#       发表于 2025-2-21 12:27
+
+<blockquote>ntrntr1 发表于 2025-2-21 12:22
+大喵联名ysl表明这不可能是现实世界了。。就。。。就不要当真了。。。。
+
+难怪前几集喝个拿铁都扣扣搜搜的 ...</blockquote>
+喵梦不喝拿铁是怕饮料发胖又不是没钱，而且现在混的好了是单飞以后的成就，虽然联动ysl是有点夸张了
+
+*****
+
+####  aptx8285144  
+##### 28101#       发表于 2025-2-21 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484088&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-21 12:23</a>
+
+说得好像第三集你能想到真给你写个第二人格，第四集你能想到这玩意到第八集还在写甚至展开成了睦姐天生演 ...</blockquote>
+这玩意现在感觉就是百合版的正解卡多，甚至还不如，人家写了7集的sf后才开始超能力混战，这玩意很早就是想出是一出<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
