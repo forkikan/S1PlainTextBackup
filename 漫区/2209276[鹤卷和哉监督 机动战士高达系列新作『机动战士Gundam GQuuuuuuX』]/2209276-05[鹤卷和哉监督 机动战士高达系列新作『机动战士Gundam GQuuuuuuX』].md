@@ -17828,3 +17828,25 @@ ntd独角兽也描述了："也就说光靠思考便可以对机体进行控制�
 
 阿B真熟练啊
 
+
+*****
+
+####  岸浪白野  
+##### 7284#       发表于 2025-2-22 04:57
+
+ 本帖最后由 岸浪白野 于 2025-2-22 05:01 编辑 
+
+草，谁拿高达是这样说的来当TAG啊，怎么给这个TAG也整了
+
+<img src="https://img.saraba1st.com/forum/202502/22/045312jpgbsaobb09k11bg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 04:53 上传
+
+Starting 2025/02/21 15:00 and runs until 2025/04/19 14:59 GMT.
+
+买到4月19号为止，刚好撑到TV开播
+
