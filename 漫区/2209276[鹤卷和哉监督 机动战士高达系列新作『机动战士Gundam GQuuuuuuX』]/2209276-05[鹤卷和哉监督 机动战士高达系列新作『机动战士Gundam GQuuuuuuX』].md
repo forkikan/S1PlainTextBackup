@@ -17735,3 +17735,43 @@ X @mitotank
 现在阿尔法和奥米加除了精神感应框架以外还有其他的猜测吗？我甚至猜是至少独角兽后的进一步发展的精神感应 ...</blockquote>
 你是说哪方面比ntd强
 
+
+*****
+
+####  岸浪白野  
+##### 7277#       发表于 2025-2-21 21:53
+
+[X 上的 青木：“[url]https://t.co/lsvTdEm5ik](https://x.com/bluearcadegames/status/1892837267862864182)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/21/215249ot78dq180qtqqqdw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:52 上传
+
+[X 上的 さしみ：“エイサイハラマチュコイ [url]https://t.co/cM9ryXLdS0](https://x.com/sasihmi/status/1892590039760060615)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202502/21/215318dk79k0ts7fuibz0k.gif" referrerpolicy="no-referrer">
+
+<strong>twitter_1892590039760060615.gif</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 21:53 上传
+
+*****
+
+####  纪寞  
+##### 7278#       发表于 2025-2-21 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488998&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-21 21:42</a>
+
+你是说哪方面比ntd强</blockquote>
+负担比ntd小多了，ntd最大的问题就是对驾驶员的精神负担小很多吧。目前没觉得玛秋开gqx有什么不便的地方。做成适合的nt坐上去就能启动就是因为负担就是很小不用计较吧，ntd还要个5分钟限制扫到nt能力才能启动，甚至还一直强调负担。
+
+ntd独角兽也描述了："也就说光靠思考便可以对机体进行控制了吗。不过这样驾驶员的身体应该负荷不了吧"，"ntd发动后的极限运作时间可以说只有5分钟"
+
+不过奥米加倒是还在nt上还要再加个特殊条件，可能这个特殊条件就是这个系统精神负担这么小的原因。
+
