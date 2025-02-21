@@ -206,3 +206,155 @@ wtf？有没有一种可能，追求合理的戏剧性在任何一个平行宇�
 nga的轮回是永远有新的一批人在同一个版面共振成神经病。
 泥潭的轮回是永远有新的一批人在漫区把专楼当qq群。
 
+
+*****
+
+####  天空塔书记官  
+##### 28138#       发表于 2025-2-21 13:37
+
+我对ave的目前的评价是“有趣”，对电波所以看得开心，但对于作品整体，则是需要等完结后再做评价，批判固然可以批判，但要是因为不合胃口就要发泄自己的戾气，那也大可不必
+
+我从一开始就明说了，ave可能会是一部失败的实验性动画作品，结果现在却被用来给自己扣帽子，那也真是一件可笑的事情
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大丈夫萌大乃  
+##### 28139#       发表于 2025-2-21 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483463&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-21 11:21</a>
+
+这梗传到日本了啊</blockquote>
+有翻译版吗,想看看乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28140#       发表于 2025-2-21 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484819&amp;ptid=2208921" target="_blank">ccared 发表于 2025-2-21 13:35</a>
+nga的轮回是永远有新的一批人在同一个版面共振成神经病。
+泥潭的轮回是永远有新的一批人在漫区把专楼当qq群 ...</blockquote>
+拉小团体评判异见者，这点确实很像QQ群
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  清江望月  
+##### 28141#       发表于 2025-2-21 13:40
+
+什么叫实验性动画作品啊？不会是说以一个多重人格的神人来当剧情推动器这种实验性吧？你要跟我说这是30年前的动画，那它可能带点实验性质。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 28142#       发表于 2025-2-21 13:41
+
+渴求的从不是什么逻辑严密的青春伤痕文学，而是少女们的变态百合故事啊！
+
+*****
+
+####  cxj649  
+##### 28143#       发表于 2025-2-21 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实大祥（独角兽？柿本？）给 墨提斯 的判词早“剧透”了
+
+<img src="https://img.saraba1st.com/forum/202502/21/134209r7bifmmemaym7m7b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1009.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134010oalnma4ryzhrx3n0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134025fzrxrr0yrspppztz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134036dqbyodce0oy1eeoe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134047paz6d48jaogaatp4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134103slv6kallhpfvofpq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/134112qacal2alhicjtaj2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:41 上传
+
+image.png
+(16.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 13:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/133947zo4o9wro2rk4w0r9.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lawliet.L  
+##### 28144#       发表于 2025-2-21 13:42
+
+目前观感和22/7差不多<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28145#       发表于 2025-2-21 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484875&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-21 13:40</a>
+什么叫实验性动画作品啊？不会是说以一个多重人格的神人来当剧情推动器这种实验性吧？你要跟我说这是30年前 ...</blockquote>
+监督从一开始就说了要做不一样的少女乐队动画，这不就是吗，所以要是做翻车了，不也是wsd活该吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 28146#       发表于 2025-2-21 13:43
+
+虽然但是，把专楼当QQ群不正是专楼的意义。该庆幸的不应该是大家都比较自主规制不随意大小便吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+之后都去走廊拉屎了你又要说管不住括约肌了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
