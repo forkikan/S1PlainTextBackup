@@ -5351,3 +5351,19 @@ youtuber出身干到地上波刷脸的挺凤毛麟角了，抛去quizknock，fis
 
 三角初华的判词「憑依型」，或许是在说她的一切其实都是模仿和表演，半个甜甜圈的特写镜头告诉我们她在学习マナ的做法，鹦鹉学舌「健康に良くない」也是，这样的话爱祥子或许也是，模仿曾经的某人的做法，所以才会表现出无能力的状态，都同居了还能放跑，也不知道找祥子住哪里——所以这些是指向双子说吗，这样的话感觉第八话末尾独白是在说初华了
 
+
+*****
+
+####  6030sylar  
+##### 28558#       发表于 2025-2-22 01:47
+
+<img src="https://img.saraba1st.com/forum/202502/22/014546sn9b2tn4tbb4n2nn.png" referrerpolicy="no-referrer">
+
+<strong>RNVDJDE4U8}1A0[0294J043.png</strong> (59.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 01:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">木箱这女女生女的扭曲关系太变态了
+
