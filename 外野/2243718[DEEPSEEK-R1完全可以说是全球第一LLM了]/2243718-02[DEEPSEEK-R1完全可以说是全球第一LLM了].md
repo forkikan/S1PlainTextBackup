@@ -5925,3 +5925,31 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 火山引擎的这个联网模式，我找了几个教程，按照流程操作之后还是调用的训练内容，而不是联网搜索。</blockquote>
 添加模型那里的ID是填的bot开头那串吗
 
+
+*****
+
+####  千秋难诉  
+##### 2009#       发表于 2025-2-21 17:21
+
+[https://www.volcengine.com/exper ... QY5&amp;rc=X34XV7ZM](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=X34XV7ZM)
+
+薪火相传
+
+
+*****
+
+####  kaoriarai  
+##### 2010#       发表于 2025-2-21 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487098&amp;ptid=2243718" target="_blank">vava 发表于 2025-2-21 17:14</a>
+
+添加模型那里的ID是填的bot开头那串吗</blockquote>
+是的，填的是创建的零代码应用的应用ID
+
+*****
+
+####  秦南心  
+##### 2011#       发表于 2025-2-21 17:25
+
+干，注册早了几天，填楼上码无用<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

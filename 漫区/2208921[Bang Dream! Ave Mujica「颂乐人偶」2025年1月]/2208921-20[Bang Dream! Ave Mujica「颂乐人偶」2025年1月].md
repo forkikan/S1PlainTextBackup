@@ -2759,3 +2759,165 @@ Mortis已经展现出了一些她从睦妈那里学到的特质，她甚至在�
 
 初华？这人是谁，怎么感觉没什么印象(无慈悲
 
+
+*****
+
+####  最终兵器狂战  
+##### 28344#       发表于 2025-2-21 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486840&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 16:51</a>
+薰的演技是“请神”，或者说“自我催眠”，其实更加可怕，她演谁就是谁
+
+看第二季第四集，她演怪盗，所以 ...</blockquote>
+这么哈人的么。。。果然就算对于邦多利的世界观来说hhw都显得太规格外了 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 28345#       发表于 2025-2-21 17:16
+
+不知道是不是二次瞎编的，不过托付人生这个，现在看没什么办法，三人同居这块我也不是很理解，死海文书貌似说的是二人，但邦邦又不太容易直接搞二人同居
+
+*****
+
+####  aptx8285144  
+##### 28346#       发表于 2025-2-21 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487103&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-21 17:14</a>
+
+内部斗争归内部斗争，但是外部关系上只用了一话就完成了之前19话的关系反转。
+
+这才是现在这个吉他睦可怕 ...</blockquote>
+说是可怕算客气的了，我在贴吧都看到不少睦党已经破防了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 28347#       发表于 2025-2-21 17:16
+
+唉，开播前还幻想 mujica 是能成为弥补 EVA 终和巨人遗憾的作品，没想到真成 TMD 巨人了（
+
+属于 21 世纪的真心为你何在。
+
+*****
+
+####  南宮凝香  
+##### 28348#       发表于 2025-2-21 17:18
+
+這劇透是真的話
+
+就是高尾小姐 跟李子小姐欠制作組錢了
+
+*****
+
+####  天空塔书记官  
+##### 28349#       发表于 2025-2-21 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487115&amp;ptid=2208921" target="_blank">最终兵器狂战 发表于 2025-2-21 17:16</a>
+这么哈人的么。。。果然就算对于邦多利的世界观来说hhw都显得太规格外了 
+ ...</blockquote>
+所以hhw被ban了啊，毕竟弦卷家真能造出钢铁(熊）侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 28350#       发表于 2025-2-21 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487078&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 17:12</a>
+
+但是第八集有一部分演出意图非常有误导性，摆出了睦杀掉莫老师的感觉，结果吗 ...</blockquote>
+说明第八集也是只是说了一半，有些设定还没有说完，多半第九集要睦和喵梦，演员对演员，才能揭露一些更深层的真相。
+
+*****
+
+####  KokutouMikiya  
+##### 28351#       发表于 2025-2-21 17:18
+
+最好是假的，还不够猎奇，第八集我以为终于要把双重人格端下去了结果直接端上来了古神，我现在比较期待十本猎奇的下限<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 28352#       发表于 2025-2-21 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486970&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-21 17:02</a>
+
+【剧透分拣】
+
+祥子以非常“猎奇”的方式背负人生，请祥厨要紧牙关</blockquote>
+是真的话，第八条太变态了，就现在这个情势，我都不敢想“百万农厨”们得闹成什么样。赛博扎小人得拉满了
+
+*****
+
+####  草化木  
+##### 28353#       发表于 2025-2-21 17:20
+
+不管怎么说Mortis还是很可爱的，这集过后可以肯定是不会死的了，就看是融合还是共存。
+
+*****
+
+####  阿兹尔  
+##### 28354#       发表于 2025-2-21 17:21
+
+海，喵这两条也挺好玩的:原来就我们两个是冲着工作来的？
+
+
+*****
+
+####  ape-apple  
+##### 28355#       发表于 2025-2-21 17:22
+
+我只能说我不知道，如果我猜的是对的，第七话爱音脸色其实是不好的，给后面爱音表示自己不想拆mygo打伏笔，然后就是灯犹豫要不要复辟，爱音跟灯可能要交流，然后指出路线问题
+
+*****
+
+####  zhoujin8584  
+##### 28356#       发表于 2025-2-21 17:24
+
+<blockquote>南宮凝香 发表于 2025-2-21 17:09
+一眼假
+
+你喵姐都當上頂流了
+</blockquote>
+舅舅总会带上个人色彩去解读，这篇明显是祥厨舅。但动画本身也是祥子中心，也不能说太有问题。
+
+唯一的问题是这是b站买的番并号称一刀不剪，真百可以救世，但真百救世不太可能
+
+*****
+
+####  adretyu67.  
+##### 28357#       发表于 2025-2-21 17:25
+
+mortis的任性和可爱是小孩子气的。
+
+所以哪怕假装打电话骗取soyo同情三天三夜大家倾向上都会更原谅，不如说是羡慕。
+
+第八话最后假装走不动要抱抱（追猫那次抱着吉他走完全程都没多抱怨一句）。
+
+但是这话的吉他睦或者说面具下浮现的若叶睦对大祥老师和CCC的独占欲是有点爆棚了。
+
+*****
+
+####  楠城旧篱  
+##### 28358#       发表于 2025-2-21 17:25
+
+剧透消息源是哪儿？
+
+*****
+
+####  usodakedo  
+##### 28359#       发表于 2025-2-21 17:26
+
+听说水魔因为真百而成为了河豚间的神作，鸡未尝不可
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  阿卡拉兰斯  
+##### 28360#       发表于 2025-2-21 17:26
+
+现在正是复权之时(存疑，现在已经便乘睦小姐人偶的大祥老师真能复权吗<img src="https://p.sda1.dev/22/9e817fe31d31f36e60b75919f311d097/image.jpg" referrerpolicy="no-referrer">
+

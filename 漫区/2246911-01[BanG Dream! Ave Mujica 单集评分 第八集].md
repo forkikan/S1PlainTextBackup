@@ -3092,3 +3092,14 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 
 -1，又回到了第三集的水平。柿本这波拿睦出来溜干得好啊，二三两集感觉睦的人设非常不对劲，但她是受害者，车她就变成你想搞受害者有罪论。睦是个相当自私对自我过度关注且可怕的弱者。无罪的受害者≠无恶，非常精彩的叙事诡计。
 
+
+*****
+
+####  whzfjd  
+##### 347#       发表于 2025-2-21 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485180&amp;ptid=2246911" target="_blank">一心而用 发表于 2025-2-21 14:07</a>
+
+第八话节奏榜来了！</blockquote>
+soyo 为什么是已通过？
+
