@@ -72,3 +72,14 @@
 
 它还真的就两人也选举…是不是有点儿太残酷了。
 
+
+*****
+
+####  csolfans  
+##### 1509#       发表于 2025-2-21 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488513&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-21 20:40</a>
+
+它还真的就两人也选举…是不是有点儿太残酷了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一如既往的nc
+
