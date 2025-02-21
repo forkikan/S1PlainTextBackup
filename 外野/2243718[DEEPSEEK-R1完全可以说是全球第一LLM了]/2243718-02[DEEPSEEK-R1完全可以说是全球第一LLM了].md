@@ -5549,3 +5549,14 @@ V3，gemini，死活不会算，无论怎么提示强调都不行，
 
 只有R1可以每次都按规则把总数值算出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vava  
+##### 1970#       发表于 2025-2-21 11:21
+
+俺也凑个热闹
+
+点击注册
+[https://www.volcengine.com/exper ... QY5&amp;rc=Y4KDFWBM](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=Y4KDFWBM)
+
