@@ -4012,3 +4012,91 @@ T1     幻觉姐     要乐奈</blockquote>
 还有“演神”濑田薰和“普通人”广町七深呢</blockquote>
 都正常人，濑田在我这里排不上号，勉强算T4吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 28446#       发表于 2025-2-21 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488154&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-21 19:56</a>
+不不不，现在是其他角色要么神隐要么疯癫
+
+只要有逻辑自洽塑造的角色都会令人喜爱 ...</blockquote>
+那是因为这是少女乐队片，海铃这套设定常见于各种犯罪类型片里的高智商反派
+
+嘛，硬要说的话，这类角色一般都很有魅力就是了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 28447#       发表于 2025-2-21 20:01
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488159&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-21 19:57</a>
+都正常人，濑田在我这里排不上号，勉强算T4吧</blockquote>
+熏的强度取决于她想演谁，而七深的天才程度和kkr基本持平，这俩哪个都是神棍
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 28448#       发表于 2025-2-21 20:03
+
+<blockquote>HereLink 发表于 2025-2-21 19:51
+这地方我没看懂，为什么海铃就认可mortis了，要她成为本尊😄</blockquote>
+‘此奇货可居’”
+
+
+*****
+
+####  thisisaspider  
+##### 28449#       发表于 2025-2-21 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488122&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-21 19:51</a>
+
+这地方我没看懂，为什么海铃就认可mortis了，要她成为本尊😄</blockquote>
+可以重看一下。
+
+海玲想组mujica，直接邀请睦祥被拒绝，堵门喵梦，喵梦说睦来就来，然后群发消息，只有墨回应了，所以就找墨。
+
+*****
+
+####  syndrome2032  
+##### 28450#       发表于 2025-2-21 20:04
+
+海玲的支配欲到不了反派层面。
+
+放到正常剧情展开应该是管多了出了篓子然后自己跑了。大家高兴终于少了个指手画脚的纱布但是一段时间后发现还是得有个人管事，然后双方都反省各让一步，最后和解归队。
+
+*****
+
+####  thisisaspider  
+##### 28451#       发表于 2025-2-21 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488142&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-21 19:54</a>
+
+丰川家这种亏了168亿就要开社长的市级房地产企业，哪里给得起YSL联名这种待遇，能让YSL出联名款的咖位参 ...</blockquote>
+喵梦那间事务所不就是TGW旗下的，MINAMI国民演员和SUMIMI国民偶像也是TGW旗下的。
+
+*****
+
+####  盐盐盐盐盐  
+##### 28452#       发表于 2025-2-21 20:06
+
+海铃想拉团队mo也想啊，这不是很简单的利益一致，海铃现在不在乎是不是睦本人了只要是睦这个身份重新回来能帮助她把这团队整合就行，这点其实有点凸显海铃的“疯狂”的，你想一般人哪能接受你人格分裂我不管了你给我学会弹吉他就行
+
+*****
+
+####  是谁的书画  
+##### 28453#       发表于 2025-2-21 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488186&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 20:01</a>
+
+熏的强度取决于她想演谁，而七深的天才程度和kkr基本持平，这俩哪个都是神棍</blockquote>
+既然你怎么说了，那濑田算T3吧。七深不行，这是神棍排行，天才有天才的tier榜给她<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

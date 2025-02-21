@@ -43,3 +43,11 @@
 
 这集打戏太强了，没有料理的环节就是好啊，给狗汉子道歉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 146#       发表于 2025-2-21 19:59
+
+这集绝对是狗汉子作画最拼命的一次，超长跟随镜头、马戏、大量打戏，夸张到了一个惊人的层级。黄毛女主难道真有望复活？
+

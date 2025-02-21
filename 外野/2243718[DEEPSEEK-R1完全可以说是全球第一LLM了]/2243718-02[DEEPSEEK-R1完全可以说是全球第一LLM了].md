@@ -6064,3 +6064,20 @@ deepseek今天宣布再开源5个库，这下太平洋对面的巨头真的脸�
 能用啊，感觉和火山+chatbox的效果差不多，还不要钱</blockquote>
 同一张图本家能认对元宝认不对，好怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sty9527  
+##### 2022#       发表于 2025-2-21 20:02
+
+[https://www.volcengine.com/exper ... QY5&amp;rc=ORMQ7RK1](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=ORMQ7RK1)   更新传火
+
+*****
+
+####  Geronimo  
+##### 2023#       发表于 2025-2-21 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488123&amp;ptid=2243718" target="_blank">aeolus039 发表于 2025-2-21 19:52</a>
+同一张图本家能认对元宝认不对，好怪</blockquote>
+本家是调教的最好的，网络搜索也是最强的，可惜梁老板不稀罕这三瓜两枣。
+
