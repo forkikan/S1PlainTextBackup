@@ -4501,3 +4501,12 @@ GkPEqVDa8AAB5LH.jpg
 
 我pico4呢 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26981#       发表于 2025-2-21 22:01
+
+<img src="https://p.sda1.dev/22/70aa9ab012d0f2070275a0dc7c9bd75d/Image_168502049393119.png" referrerpolicy="no-referrer">
+小猫生日卡，卡面剧情前篇应该是全员（？），后篇是猫希<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
