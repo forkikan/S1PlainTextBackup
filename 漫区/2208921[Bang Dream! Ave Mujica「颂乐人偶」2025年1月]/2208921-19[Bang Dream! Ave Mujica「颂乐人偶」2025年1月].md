@@ -14762,3 +14762,42 @@ MyGO时期的柿本： <blockquote>睦并不擅长交流，几乎是必然地，
 这一幕指向初华基本上算是明示实锤初华双子和小姨说了吧</blockquote>
 关键是双子说和小姨说在这个古神面前已经算不上什么特别严重的事了吧
 
+
+*****
+
+####  天空塔书记官  
+##### 28045#       发表于 2025-2-21 11:28
+
+其实所谓的“古神”并不可怕，睦的问题是许多演员都会遇到的，那就是“入戏太深”，分不清戏里戏外，而睦恰好就是个天生的演员罢了
+
+“看我非我，我看我我也非我
+
+装谁像谁，谁装谁谁就像谁”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  圣血天使  
+##### 28046#       发表于 2025-2-21 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481725&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-21 08:47</a>
+一個月武道館
+
+VS
+
+三個月聯名奢牌</blockquote>
+第一个后面有tgw集团，第三个鬼知道怎么买的，就大喵还算真实，好歹沾过母鸡卡的光还够努力，as还跟外星人联名卖过水呢
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  aptx8285144  
+##### 28047#       发表于 2025-2-21 11:35
+
+这周宁可让睦的人格体系大乱斗到搞不清究竟在干什么，让海铃玩购物艺术，也不给go团上周的事找补，我想知道go的粉丝心情如何<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
