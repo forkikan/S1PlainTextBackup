@@ -5009,3 +5009,65 @@ soyo大战saki，但是高达音效
 
 看到一种假药：第8话开头沉海的不是mortis人格，是吉他睦，在那之后会喝橙汁走在大祥前面的是比吉他睦更可怕的另一个人格
 
+
+*****
+
+####  plusSharp  
+##### 28527#       发表于 2025-2-21 23:55
+
+睦双重人格是台词明示的，灯阿斯伯格又是哪来的说法，真把疾病当“银弹”用？
+
+*****
+
+####  cauchua3  
+##### 28528#       发表于 2025-2-21 23:55
+
+Apart 最后大祥眼角有泪，应该理解为大祥看到睦一个人吵架，觉得是自己上压力，害的睦头成这样，愧疚流泪吧
+
+*****
+
+####  木板春香  
+##### 28529#       发表于 2025-2-21 23:57
+
+  就是说症状几乎完全吻合，但编剧没给实锤，灯也能正常生活上学
+
+*****
+
+####  plusSharp  
+##### 28530#       发表于 2025-2-21 23:58
+
+<blockquote>cauchua3 发表于 2025-2-21 23:55
+Apart 最后大祥眼角有泪，应该理解为大祥看到睦一个人吵架，觉得是自己上压力，害的睦头成这样，愧疚流泪吧 ...</blockquote>
+那个流泪场景应该是睦脑内新建的祥子，不是KTV里的祥子本人
+
+*****
+
+####  JustW  
+##### 28531#       发表于 2025-2-21 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489702&amp;ptid=2208921" target="_blank">Cortana 发表于 2025-2-21 23:45</a>
+视频里有预言。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+你再想想，真的是一回事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 28532#       发表于 2025-2-22 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489653&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-21 23:33</a>
+
+看到弱智图：</blockquote>
+打工战士推力100000的祥子 VS  购物狂魔臂力100000的贝斯手     
+
+*****
+
+####  DeltaStriker  
+##### 28533#       发表于 2025-2-22 00:02
+
+灯的阿斯伯格好歹剧里没明说 木头的无尽战神是实打实拿来玩烂了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

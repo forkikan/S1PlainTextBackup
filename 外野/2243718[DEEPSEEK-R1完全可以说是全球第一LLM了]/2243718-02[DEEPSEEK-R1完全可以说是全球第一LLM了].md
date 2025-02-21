@@ -6175,3 +6175,23 @@ deepseek今天宣布再开源5个库，这下太平洋对面的巨头真的脸�
 [https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=KWAA7RSQ](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=KWAA7RSQ)
 <img src="https://p.sda1.dev/22/6c80249fc8d29acbaf5c9566da146273/火山引擎邀请海报.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莫夜戎  
+##### 2034#       发表于 2025-2-21 23:59
+
+[https://www.volcengine.com/exper ... QY5&amp;rc=WVOL28DV](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=WVOL28DV)
+
+谢谢大家
+
+
+*****
+
+####  蒙蒙茶  
+##### 2035#       发表于 2025-2-22 00:06
+
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=U5ZJ8KXP
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
