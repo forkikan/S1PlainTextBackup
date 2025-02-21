@@ -17518,3 +17518,29 @@ ZZ和CCA好像都没面具男吧
 <img src="https://p.sda1.dev/22/bcd4511488268b9cfaf2cbb29cf6c70c/IMG_20250221_102633.jpg" referrerpolicy="no-referrer">
 明明应该是第一次参战却说了“又”的屑高达，是作为白高达参加时就有自我意识了还是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 7265#       发表于 2025-2-21 11:01
+
+ 本帖最后由 RE㐅ia 于 2025-2-21 11:05 编辑 
+
+看到这里我直接仰天大笑以表恍然大悟。天手让叶白天在学校里陪着喵安一起快乐姐妹生活，晚上化身麻球和牢修一起鬼混打黑拳。麻球是蜘蛛侠，喵安是玛丽简，牢修就是黑猫。还有绿叔叔你怎么还在这里啊（ 
+
+<img src="https://img.saraba1st.com/forum/202502/21/110533y26kx1mbrb33mklm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5F8615D0-5625-4512-B06C-04F03074C37C.jpeg</strong> (603.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 11:05 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/110552z550pstoo0vv59ij.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D4511102-C353-4E2F-BF66-656ED0CAF4E0.jpeg</strong> (90.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 11:05 上传
+

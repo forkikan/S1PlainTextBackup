@@ -14415,3 +14415,149 @@ PPP的鼓手山吹沙绫，因为照顾生病的母亲没参加第一次演出�
 
 参照睦妈的说法，吉他睦和mortis下面还藏着了不知道喜恶倾向标准的古神。吉他睦和mortis的存在是古神对外的自我保护机制。也就是这个古神把她吓到了。
 
+
+*****
+
+####  天空塔书记官  
+##### 28013#       发表于 2025-2-21 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483083&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 10:49</a>
+但这不抽象吗…为什么要搞乐队？因为我害怕被体内另一个人格杀死。</blockquote>
+错误的，搞乐队是睦的心理需求，也可以说是她自我治疗的手段，无论是“莫提斯”还是吉他睦，都需要通过音乐建立自我认知，因为只有音乐是属于睦自己的东西，其他的都是外界和父母的“馈赠”，而这些“馈赠”就是睦自我压力的来源，是她不想接受的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hysjmr  
+##### 28014#       发表于 2025-2-21 10:57
+
+灯的阿斯伯格是个一直没有钉死的设定，mygo的剧情展开也不靠这个，比起人设更像一个帮助观众理解角色的抓手。
+
+睦子米这个就离谱了，明明实锤了，还一直靠它推动剧情，却一直没有仔细探讨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，都说现实就是这样的，可是那股怎么方便怎么来的味却一直挥之不去
+
+*****
+
+####  fuwamoco  
+##### 28015#       发表于 2025-2-21 10:58
+
+喵睦接下来确实要大麦了吧，海玲是墨党，祥子是睦党，初华无所谓。大喵这一票将决定睦墨生死。
+
+*****
+
+####  单脚着地  
+##### 28016#       发表于 2025-2-21 10:58
+
+阁楼之月堪比亚楠甚至印斯茅斯，祥子是伊德海拉，睦是多首的怪物，海玲是接肢天使，初华是星之彩，若麦是阿梅利亚<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Суслов  
+##### 28017#       发表于 2025-2-21 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482965&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 10:38</a>
+这集最让我觉得变态的还得是编剧仿佛自己也找不出让母鸡卡复活的理由了，目前母鸡卡复活的驱动力，一个是海 ...</blockquote>
+不光母鸡卡复活的理由，ccc必须解散的理由也很牵强，只能靠剧中人物一遍一遍念台词强调。细究也没多大意思，还是编剧喂什么就吃什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿卡拉兰斯  
+##### 28018#       发表于 2025-2-21 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483181&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-21 10:57</a>
+灯的阿斯伯格是个一直没有钉死的设定，mygo的剧情展开也不靠这个，比起人设更像一个帮助观众理解角色的抓手 ...</blockquote>
+don't think, just feel
+认真你就输了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星星狐  
+##### 28019#       发表于 2025-2-21 10:59
+
+问个问题，喝汽水要打嗝又怎么了？为什么海玲和喵梦表现的好像要发生什么大灾难一样？是因为日本女生觉得打嗝声音丑态百出破坏形象所以死也不打嗝吗？喵梦有必要怕成这样吗？
+现场就海玲和喵梦两个人，私下聚会打个嗝又怎么了？
+
+----发送自 [HUAWEI RTE-AL00,Android 12](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  syndrome2032  
+##### 28020#       发表于 2025-2-21 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483181&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-21 10:57</a>
+灯的阿斯伯格是个一直没有钉死的设定，mygo的剧情展开也不靠这个，比起人设更像一个帮助观众理解角色的抓手 ...</blockquote>
+目前三个阶段都是因为睦头的多重人格推进的。
+
+吉他睦炸了导致鸡团爆炸。
+治疗吉他睦所以搞ccclive。
+mortis不想消失所以重建a团。
+
+谁才是公主啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 28021#       发表于 2025-2-21 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483214&amp;ptid=2208921" target="_blank">星星狐 发表于 2025-2-21 10:59</a>
+
+问个问题，喝汽水要打嗝又怎么了？为什么海玲和喵梦表现的好像要发生什么大灾难一样？是因为日本女生觉得打 ...</blockquote>
+好像还真挺严重的，某天选国V因为来这边呆久了松懈，回日本老家吃饭打嗝被自己老妈和姐姐狂喷<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28022#       发表于 2025-2-21 11:02
+
+CCC的必须解散的原因其实一直都很明确，那就是无法满足成员的需求，它就像一个无法随寄居蟹成长的螺壳，它的上限已经被定死，所以是必须丢弃的过去，但仍然可以被时不时地拿出来怀念，就像童年的玩具一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  假意不是虚情  
+##### 28023#       发表于 2025-2-21 11:04
+
+<blockquote>hysjmr 发表于 2025-2-21 10:57
+灯的阿斯伯格是个一直没有钉死的设定，mygo的剧情展开也不靠这个，比起人设更像一个帮助观众理解角色的抓手 ...</blockquote>
+太滑了，对着现实DID抄设定，让现实中的DID觉得在说自己，然后当玩偶耍弄，真有系统受刺激都不奇怪
+
+*****
+
+####  adretyu67.  
+##### 28024#       发表于 2025-2-21 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483214&amp;ptid=2208921" target="_blank">星星狐 发表于 2025-2-21 10:59</a>
+
+问个问题，喝汽水要打嗝又怎么了？为什么海玲和喵梦表现的好像要发生什么大灾难一样？是因为日本女生觉得打 ...</blockquote>
+就是社交形象问题。
+
+你日的风气就是这么拧巴。包括根据使用的台词来推断人物心情状态也是这样衍生
+
+*****
+
+####  凉良  
+##### 28025#       发表于 2025-2-21 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483019&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-21 10:44</a>
+
+初华也挺离谱的，5678连着4集一点主观能动性都没有，前作看着深藏不露，实际一碰就碎，教吉他这活还能被贝 ...</blockquote>
+1234的能动性在哪你告诉我
+
+*****
+
+####  qratosones1337  
+##### 28026#       发表于 2025-2-21 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482057&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 09:18</a>
+
+如果我没猜错的话，A团的每个人都对应一种心理异常，“购物狂综合症”必不可能是海铃加入A团后才有的，因 ...</blockquote>
+这下破案了，先导图那个表情还真是X欲大爆发，“椎名立希，我来X你了！”
+
