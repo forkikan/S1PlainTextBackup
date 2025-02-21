@@ -5535,3 +5535,17 @@ FPTQXVXR
 
 邀请码：OCZER9FA
 
+
+*****
+
+####  bwsusaga  
+##### 1969#       发表于 2025-2-21 11:06
+
+模型智力差异真挺大的，
+
+跑团时写了个多职业升级数值叠加的规则，
+
+V3，gemini，死活不会算，无论怎么提示强调都不行，
+
+只有R1可以每次都按规则把总数值算出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
