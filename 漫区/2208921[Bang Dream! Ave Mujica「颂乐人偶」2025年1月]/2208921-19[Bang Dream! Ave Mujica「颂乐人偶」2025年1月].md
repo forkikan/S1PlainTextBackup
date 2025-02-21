@@ -15490,3 +15490,23 @@ VS
 到现在祥子反 ...</blockquote>
 大家都以为杀人凶手是祥子，结果受害者才是凶手，早前的凶手是受害者。我已经和推理小说互相理解了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 28110#       发表于 2025-2-21 12:54
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484301&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-2-21 12:45</a>
+大家都以为杀人凶手是祥子，结果受害者才是凶手，早前的凶手是受害者。我已经和推理小说互相理解了 ...</blockquote>
+其实不能，假设我们接受睦“混沌”自我的设定，那第一个能够被称为“睦”的存在可能还是因为祥子才凝结的，所以祥子还是始作俑者，这对应了“莫提斯”说祥子创造了“我和睦”的发言<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 28111#       发表于 2025-2-21 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">个人感觉观众对“让睦头人看医生”有了执念，虽然也不愿想不愿了解治疗方式是什么
+
