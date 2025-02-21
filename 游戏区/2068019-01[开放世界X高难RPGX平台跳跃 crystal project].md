@@ -1410,3 +1410,14 @@ QQ20250221-003932.jpg
 
 看着有点像磁带妖怪
 
+
+*****
+
+####  blackll7  
+##### 118#         楼主| 发表于 2025-2-21 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482029&amp;ptid=2068019" target="_blank">moonlit 发表于 2025-2-21 09:15</a>
+
+看着有点像磁带妖怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">磁带妖怪的地图设计水平距离这个有亿点点远..........
+

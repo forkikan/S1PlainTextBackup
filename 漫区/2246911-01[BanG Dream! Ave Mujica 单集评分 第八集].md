@@ -2735,3 +2735,18 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 +2
 虽然烂片警告响个不停，但的确乐出来了
 
+
+*****
+
+####  saglork  
+##### 307#       发表于 2025-2-21 10:16
+
+-1 虽然看的很乐，但展开还是觉得各种莫名其妙，感觉各个都有双重人格，顺带🐘老师应该是脑容量不大够，哪怕被大豪斯迈巴赫滋润回了软糯形态，化身木头陪护，都没想起还有个被空巢放置了一个月的蜘蛛侠，多少有点幽默<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 308#       发表于 2025-2-21 10:19
+
+现在看这片和我当时看幸充q娃的心态一样了，虽然很烂但是确实很乐，虽然很乐但也确实很烂<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
