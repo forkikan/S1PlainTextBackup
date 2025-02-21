@@ -14876,3 +14876,99 @@ VS
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JustW  
+##### 28054#       发表于 2025-2-21 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483541&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 11:28</a>
+其实所谓的“古神”并不可怕，睦的问题是许多演员都会遇到的，那就是“入戏太深”，分不清戏里戏外，而睦恰 ...</blockquote>
+只看你说的这一段话已经足够二次元了
+
+*****
+
+####  阿兹尔  
+##### 28055#       发表于 2025-2-21 11:50
+
+其实吉他睦也不需要ccc吧，毕竟之前为了祥子都没有帮soyo重组c团，祥子优先级更高的话，为啥不二人出道呢，两个人家里背后有的是资源，哪怕是头猪都能火，更别说是实力强劲的美少女二人组合，还排除了其他人对队伍稳定性的干扰
+
+*****
+
+####  天空塔书记官  
+##### 28056#       发表于 2025-2-21 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483753&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 11:49</a>
+只看你说的这一段话已经足够二次元了</blockquote>
+我贴的那副对联是写梅兰芳的，这其实很现实<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  千千千千鸟  
+##### 28057#       发表于 2025-2-21 11:51
+
+怎么好像和剧透的内容差不多。该不会那个超级变态的剧透是真的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+真的又来一次和小姨谈恋爱？
+
+*****
+
+####  JustW  
+##### 28058#       发表于 2025-2-21 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483777&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 11:50</a>
+我贴的那副对联是写梅兰芳的，这其实很现实
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不是说对联
+
+*****
+
+####  ddy2811  
+##### 28059#       发表于 2025-2-21 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482479&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-21 09:58</a>
+
+睦头这千人千面却没有真正的自我设定只能当p剧场的boss，是当不了主角的。
+
+能当p主角最重要的一条就是拥 ...</blockquote>
+从没有自我到逐渐觉醒真我，最后真我和队友在迷宫里大战古神，这样也可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 28060#       发表于 2025-2-21 11:53
+
+<blockquote>aptx8285144 发表于 2025-2-21 11:44
+说的可不只是CCC，粉色奶农上周在ccc遗老们面前宛如外人一样的待遇，那几个人要是毫无自觉，那只能说柿本 ...</blockquote>
+羊姐在場外補了
+
+羊姐好，柿本壞
+
+
+*****
+
+####  草化木  
+##### 28061#       发表于 2025-2-21 11:54
+
+充分展现了什么叫“重复一次是悲剧、重复两次是喜剧、重复三次是闹剧”。
+
+倒灶事儿捯饬来捯饬去，编剧才是最需要去治治中二病的人。
+
+我有多重人格，真是太酷啦！.jpg
+
+*****
+
+####  天空塔书记官  
+##### 28062#       发表于 2025-2-21 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483784&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 11:51</a>
+不是说对联</blockquote>
+那就说说我自己吧，我曾经因为沉迷《希灵帝国》，有一段时间真以为自己就是陈俊；也因为沉迷侦探故事，差点也像凶手一样设定方案，我会这么想，不只是因为我对心理学感兴趣，也是因为我自己天生就是这样的人，所以，您会因此而感到害怕吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

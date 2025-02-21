@@ -2830,3 +2830,24 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 
 从评分留言来看将近一半是乐就完事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 318#       发表于 2025-2-21 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481301&amp;ptid=2246911" target="_blank">吴怀在 发表于 2025-2-21 06:44</a>
+
+倒是解释了为啥睦疯了一个月还关在卧室
+
+父母都把她当怪物看？</blockquote>
+到是变相解释这点了，我想知道柿本对以前那个木头人是一种什么样的心情，无比憎恨吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Amiyanya  
+##### 319#       发表于 2025-2-21 11:54
+
++0 咒术完结时我心中还一股落寞，定时蹲点的乐子没了，这会儿又端出一个集集有爆点的木柜子咒术。
+

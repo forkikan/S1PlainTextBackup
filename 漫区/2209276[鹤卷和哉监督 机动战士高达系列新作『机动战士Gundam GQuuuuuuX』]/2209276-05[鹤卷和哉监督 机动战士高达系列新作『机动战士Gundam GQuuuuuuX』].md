@@ -17544,3 +17544,16 @@ ZZ和CCA好像都没面具男吧
 
 2025-2-21 11:05 上传
 
+
+*****
+
+####  王留美  
+##### 7266#       发表于 2025-2-21 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482987&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-21 10:41</a>
+
+……高达是这样说的
+
+明明应该是第一次参战却说了“又”的屑高达，是作为白高达参加时就有自我意识了还是 ...</blockquote>
+起码敢达里面真是有个人（
+

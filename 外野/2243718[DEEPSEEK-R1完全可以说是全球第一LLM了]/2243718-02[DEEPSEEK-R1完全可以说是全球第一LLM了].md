@@ -5560,3 +5560,24 @@ V3，gemini，死活不会算，无论怎么提示强调都不行，
 点击注册
 [https://www.volcengine.com/exper ... QY5&amp;rc=Y4KDFWBM](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=Y4KDFWBM)
 
+
+*****
+
+####  酱豆腐  
+##### 1971#       发表于 2025-2-21 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67482655&amp;ptid=2243718" target="_blank">arwy 发表于 2025-2-21 10:12</a>
+https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=JYALPGBY
+
+邀请码：J ...</blockquote>
+这个代金券咋么用，也没看到预付费入口……而且还是5月到期
+
+
+*****
+
+####  剑鹰  
+##### 1972#       发表于 2025-2-21 11:51
+
+同凑热闹<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+[https://www.volcengine.com/exper ... QY5&amp;rc=X1PEB8UV](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=X1PEB8UV)
+
