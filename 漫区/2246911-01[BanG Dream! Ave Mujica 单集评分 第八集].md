@@ -2955,3 +2955,23 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 第八话节奏榜来了！
 <img src="https://s3.bmp.ovh/imgs/2025/02/21/6f7d5d4ebbdb275d.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 332#       发表于 2025-2-21 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬二创猫猫因为读心术经常看到不该看的东西，精神经常接受考验所以才这么电波
+
+
+*****
+
+####  一心而用  
+##### 333#       发表于 2025-2-21 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485204&amp;ptid=2246911" target="_blank">Lyzers 发表于 2025-2-21 14:09</a>
+
+致敬二创猫猫因为读心术经常看到不该看的东西，精神经常接受考验所以才这么电波 ...</blockquote>
+<img src="https://p.sda1.dev/22/279ba2105a2ba0e086d5233867000da5/QQ%E5%9B%BE%E7%89%8720250221103445.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ac955cf50b707e73b81b12353ebb2a17/QQ%E5%9B%BE%E7%89%8720250221103449.png" referrerpolicy="no-referrer">
+
