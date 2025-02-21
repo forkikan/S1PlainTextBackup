@@ -2975,3 +2975,25 @@ mujica这人物逻辑还是很好理顺，怪自洽的，表现手法时好时�
 <img src="https://p.sda1.dev/22/279ba2105a2ba0e086d5233867000da5/QQ%E5%9B%BE%E7%89%8720250221103445.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/ac955cf50b707e73b81b12353ebb2a17/QQ%E5%9B%BE%E7%89%8720250221103449.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mintslime  
+##### 334#       发表于 2025-2-21 14:22
+
+-2
+
+这片就是个阴湿霸凌咖厕妹写出来的二次元小时代，这话味实在太大，买买买和联动代言名牌看着真心一言难尽。
+
+强烈建议国产动画厂商去找gjm谈一版全女的小时代翻拍，再怎么烂也会有人为了这“细腻的女女关系性”买单的
+
+*****
+
+####  秦南心  
+##### 335#       发表于 2025-2-21 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484993&amp;ptid=2246911" target="_blank">6030sylar 发表于 2025-2-21 13:51</a>
+
+对的，第三集天降个莫提斯，这集更是重新造一个新的睦头人</blockquote>
+估计最后想告诉观众，玩吉他的睦头人才是真正获得了人性的睦，她只是想要跟大家玩乐队，她只是没有社会常识，才会用莫提斯伪装自己的真心，哇哇大哭，从魔女世界观回归邦邦的世界观，，皆大欢喜皆大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
