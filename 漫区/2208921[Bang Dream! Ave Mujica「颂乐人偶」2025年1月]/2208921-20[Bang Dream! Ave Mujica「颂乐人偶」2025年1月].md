@@ -5130,3 +5130,25 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 
 不会第七集就是祥子塑造的结束吧，之后跟爱音一样的剧情待遇把。不至于吧。另外结合两季的动画，soyo也是成长许多的。
 
+
+*****
+
+####  DeltaStriker  
+##### 28540#       发表于 2025-2-22 00:29
+
+现在这剧情意思就是白象就是完美的 不需要成长 现在已经倒退回去了 虽然是人偶 但是肯定不会长久 最后肯定是5人一起魔女化
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  杂灰  
+##### 28541#       发表于 2025-2-22 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489573&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 23:21</a>
+
+因为扭转的过于剧烈，几乎就像否定了go时期的睦，因此也难怪睦吧不少人破防了 ...</blockquote>
+本来独角兽就很会骗人，实际上没有这个设定，细想都能发现睦头的行为就是在两头恰，明明已经站队祥子了，知道soyo想复辟却又不拒绝soyo接近自己，也没有向soyo表明自己绝对不会支持复辟，甚至还让步，这是对和soyo的关系有需求的表现
+
+最美味的地方就在于第十集的时候睦头其实已经放弃开二矿了，并非出于求生欲望而是出于真正属于吉他睦这个人格的善意和愧疚去帮助soyo，结果自己好不容易挤出来的真心被soyo一脚踢飞<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
