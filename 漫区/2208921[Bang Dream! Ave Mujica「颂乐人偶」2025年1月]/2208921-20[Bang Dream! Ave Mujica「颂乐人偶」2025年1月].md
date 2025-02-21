@@ -3406,3 +3406,15 @@ bangbang 23季连着还是很紧密的。
 
 查看全部评分
 
+
+*****
+
+####  钦念以忱  
+##### 28401#       发表于 2025-2-21 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487527&amp;ptid=2208921" target="_blank">EverNight 发表于 2025-2-21 18:11</a>
+提个问题，go团第10集时候和灯说爽世怎么办的到底是哪个人格？当时墨提斯还没出来，但是和吉他睦动机也对不 ...</blockquote>
+睦希望和祥子过二人世界，不想有个素世被留在mygo之外以后干扰她。再说素世也算是吉他睦的朋友了。
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
