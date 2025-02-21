@@ -6031,3 +6031,17 @@ deepseek今天宣布再开源5个库，这下太平洋对面的巨头真的脸�
 
 [https://www.volcengine.com/exper ... QY5&amp;rc=RE91CIA5](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=RE91CIA5) 传火传火
 
+
+*****
+
+####  oh_my_god  
+##### 2019#       发表于 2025-2-21 19:38
+
+ 本帖最后由 oh_my_god 于 2025-2-21 19:40 编辑 
+
+刚刚在DeepSeek本体点深度思考再输入没有半点反应，甚至连服务器繁忙都是直接弹窗提示，而不是保留在对话里，太难了
+
+硅基流动也卡卡的
+
+我就想整点冷圈同人自娱自乐而已(Ｔ▽Ｔ)
+
