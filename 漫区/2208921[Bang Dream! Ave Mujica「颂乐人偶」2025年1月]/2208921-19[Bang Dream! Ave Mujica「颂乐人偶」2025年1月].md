@@ -15579,3 +15579,30 @@ VS
 
 平时是禁欲的、克制的，但是逐渐转变为愉悦的、反叛的
 
+
+*****
+
+####  天空塔书记官  
+##### 28119#       发表于 2025-2-21 13:08
+
+ 本帖最后由 天空塔书记官 于 2025-2-21 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67484504&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-21 13:04</a>
+海玲有点类似麻婆神父的感觉
+
+平时是禁欲的、克制的，但是逐渐转变为愉悦的、反叛的 ...</blockquote>
+不会，海铃从来都是一个愉悦犯，她的放纵大概是天生的，而且基本也没怎么禁过欲，她靠的是不定期的购物狂行为来发泄自己的压力，而不是单纯的压抑自我
+
+立希是不断地内耗，消解自我；而海铃则是相反的不断膨胀、增长自我，这两确实是天生一对
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 28120#       发表于 2025-2-21 13:10
+
+购物狂确实是心理疾病
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是神人之间的互相吸引吗
+
