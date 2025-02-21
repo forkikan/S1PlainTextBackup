@@ -2921,3 +2921,108 @@ mortis的任性和可爱是小孩子气的。
 
 现在正是复权之时(存疑，现在已经便乘睦小姐人偶的大祥老师真能复权吗<img src="https://p.sda1.dev/22/9e817fe31d31f36e60b75919f311d097/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 28361#       发表于 2025-2-21 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487178&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-21 17:22</a>
+我只能说我不知道，如果我猜的是对的，第七话爱音脸色其实是不好的，给后面爱音表示自己不想拆mygo打伏笔， ...</blockquote>
+第九话的预告有灯自己用望远镜看星星的画面，这与之前与祥子一起看星星是对应的，就是说灯现在已经脱离了祥子的保护和引导，学会了“自己走路”，所以重组CCC并进行乐队活动是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 28362#       发表于 2025-2-21 17:29
+
+本周节奏榜有了吗
+
+<img src="https://img.saraba1st.com/forum/202502/21/172859bq5hivb0wi9cihic.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-l037ZfT3cShy-sg.jpg</strong> (153.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 17:28 上传
+
+*****
+
+####  ape-apple  
+##### 28363#       发表于 2025-2-21 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487218&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-21 17:27</a>
+
+第九话的预告有灯自己用望远镜看星星的画面，这与之前与祥子一起看星星是对应的，就是说灯现在已经脱离了 ...</blockquote>
+我真希望剧透是不准的，这样能对未来有点欣喜，但是几个大节点都是对的
+
+*****
+
+####  老贝  
+##### 28364#       发表于 2025-2-21 17:29
+
+灯在回忆里不也是自己看星星，祥子一个人在旁边说个不停。
+
+*****
+
+####  草化木  
+##### 28365#       发表于 2025-2-21 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487120&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-21 17:16</a>
+
+说是可怕算客气的了，我在贴吧都看到不少睦党已经破防了</blockquote>
+睦：来者不善呐。
+
+Mortis：你才是来者。
+
+*****
+
+####  HereLink  
+##### 28366#       发表于 2025-2-21 17:30
+
+<blockquote>whzfjd 发表于 2025-2-21 17:16
+唉，开播前还幻想 mujica 是能成为弥补 EVA 终和巨人遗憾的作品，没想到真成 TMD 巨人了（
+
+属于 21 世纪的 ...</blockquote>
+go大酱之前直播来个很多观众期待mujica“拳打oddtaxi脚踢小圆”，给我惊呆了😂😂
+
+大主播直播居然敢这么直接的，生草。
+
+
+*****
+
+####  天空塔书记官  
+##### 28367#       发表于 2025-2-21 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67487239&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-21 17:29</a>
+我真希望剧透是不准的，这样能对未来有点欣喜，但是几个大节点都是对的 ...</blockquote>
+怎么证明，是因为有舅舅打了保票 ?
+
+未反白的部分不是假药吗
+
+我有点不太明白
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 28368#       发表于 2025-2-21 17:34
+
+剧透看多了没意思啊，真不能看
+
+*****
+
+####  钦念以忱  
+##### 28369#       发表于 2025-2-21 17:35
+
+我觉得睦的多重人格就是这片子要讲的主线，主要内容，为什么还老喜欢一口一个噱头炒作故事推进器的开喷？都从第3话讲到第8话，显然还要继续讲下去的内容，到现在还接受不了现实，总觉得这是什么噱头，马上就会不讲了，有没有可能这才是故事的主题。
+
+ave mujica，早在mygo的最后一集，就已经明确了这个乐队这个动画的主题是庄周梦蝶，是假面，是一丘之貉，开播之后更是把官中片名译为了颂乐人偶。多重人格，包括最后的治疗和人格融合（或不融合），极其贴合这一系列主题。
+
+确实这几集，很多地方演出手法和剧本编排不太行，但也是没把多重人格这个故事讲好，而不是这片根本不该有多重人格。
+
