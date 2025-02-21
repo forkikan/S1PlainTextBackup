@@ -1367,3 +1367,13 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xinfengj  
+##### 5795#       发表于 2025-2-22 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67483831&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-2-21 11:56</a>
+潜兵工会，是给潜兵们争取在解放星球的途中来一杯liber-tea吗？</blockquote>
+之前有讲过，会有排级战备和战旗，不过看起来想搞出来还是有点困难的
+
