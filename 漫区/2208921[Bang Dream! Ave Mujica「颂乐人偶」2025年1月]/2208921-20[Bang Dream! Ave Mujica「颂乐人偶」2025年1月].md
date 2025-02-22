@@ -7269,3 +7269,63 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 只能先等下话小剧场，8话结尾umr那话就是特意激化矛盾的。
 
+
+*****
+
+####  ryuusu  
+##### 28715#       发表于 2025-2-22 19:39
+
+邦3年的文化祭是改时间了还是被鸡狗跳过了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 28716#       发表于 2025-2-22 19:40
+
+ 本帖最后由 结衣小比取 于 2025-2-22 19:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493853&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-22 18:52</a>
+
+另外，问下楼友这动图是自己做的吗</blockquote>
+使用了PC播放器<strong>PotPlayer</strong>[版本:240618(1.7.22264)]的录制视频功能
+
+快捷键Alt+C
+
+设置参数，仅供参考
+
+<img src="https://img.saraba1st.com/forum/202502/22/193527op42xqr31p0ap8j4.jpg" referrerpolicy="no-referrer">
+
+<strong>参考参数.jpg</strong> (121.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 19:35 上传
+
+因为要给坛友展示比较小的细节（指甲），所以图像尺寸选了比较大的，没这个需求建议往小了选，或者换其他软件
+
+<img src="https://img.saraba1st.com/forum/202502/22/193526yxg5by37g7fyxyvz.jpg" referrerpolicy="no-referrer">
+
+<strong>参考参数2.jpg</strong> (10.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 19:35 上传
+
+然后用[这个网站](https://www.iloveimg.com/zh-cn/compress-image)在线压缩了一下，17.8 MB—&gt;2.62 MB
+
+不压缩就要考虑使用第三方图床
+
+如果源视频非内嵌字幕，可以关闭字幕显示再操作
+
+
+*****
+
+####  人又如何  
+##### 28717#       发表于 2025-2-22 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493748&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-22 18:27</a>
+
+哦，我忽略了中间夹着一天私服
+
+私服说明是周日，这样一来每一天都能连起来 ...</blockquote>
+嗯？日本高中周六也要上学吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
