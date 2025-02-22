@@ -6426,3 +6426,16 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 <img src="https://p.sda1.dev/22/7cd7bd659e623160c82aa1861d99ff15/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/1ef2f18136fc2294bc07147b211e0608/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 28652#       发表于 2025-2-22 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492432&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-22 13:55</a>
+
+目前复盘的话，好像也合理
+
+大祥过家家肯定不和staff好好沟通，蜘蛛侠也纯的可怕估计也是不沟通那种，偶 ...</blockquote>
+如果是个一般人写剧本，和staff关系最好的反而应该是初华，奈何独角兽这群人不是一般人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
