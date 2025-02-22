@@ -1683,3 +1683,14 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  水边井  
+##### 141#       发表于 2025-2-22 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491624&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-22 11:58</a>
+
+你应该是打完海怪立刻就去了吧，这张属于中期地图，正常流程不是跳海去的，先要走森林或者异种族洞窟那边 ...</blockquote>
+那艾梅尔妲现在一直在复读恶魔证明，我要干啥？
+
