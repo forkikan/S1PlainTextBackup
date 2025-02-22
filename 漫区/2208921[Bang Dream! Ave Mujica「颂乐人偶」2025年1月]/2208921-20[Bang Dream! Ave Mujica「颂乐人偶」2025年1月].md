@@ -8090,3 +8090,25 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 
 羊可是铁血灯祥人，甚至把我心危的曲子都说成是灯祥曲
 
+
+*****
+
+####  huxiaopao163  
+##### 28785#       发表于 2025-2-23 00:16
+
+ 本帖最后由 huxiaopao163 于 2025-2-23 00:21 编辑 
+
+有个想法，是说吉他睦小时候把模仿、表演、欺骗、洞悉人心的能力都隔离了出来，放到了mortis的身上
+
+但是在KTV包厢的最后，小睦不是杀死了mortis，而是把mortis吸收回来，也就是把这些能力夺回来。
+
+所以，后面和海玲在一起的mortis，其实是小睦演的。
+
+那小睦为啥要演mortis呢，重组mujica呢。因为小睦觉得单纯用C团的问题折磨祥子缺点意思，用两个团的问题，两只大手一起拉扯拿捏祥子更爽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然这个想法的矛盾点在于下集预告里睦和mortis还在吵架。不管了，反正感觉这样想很带感，也有可能真是这样，预告是某种误导哈哈。
+
+不过从这个想法可以延伸到，睦墨融合，不一定是he的融合，也可能是一种be式的融合。。。
+
+mortis那些超模的能力，去掉了小孩子的天真幼稚，加上了暴君睦更成熟一点的思维逻辑+阴暗想法<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
