@@ -6668,3 +6668,21 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 長期素食小姐還懂堵羽丘門 （兩次）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前海玲就吐槽过你自己联系啊233
 
+
+*****
+
+####  aptx8285144  
+##### 28671#       发表于 2025-2-22 16:24
+
+ 本帖最后由 aptx8285144 于 2025-2-22 16:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492984&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-22 15:54</a>
+
+初华问题在于前几集但凡她能去问立希或者爱灯还算有正常交际，毕竟她是知道C团的
+
+但这几集就感觉她交际面 ...</blockquote>
+稍等，你启发到我了，“还算有正常交际”这点让我突然想回想一下，初华有时被骂弱智，但是大家都能意识到这恐怕不是初华最初的风评，她当初可是个神秘而会说话的女人的风评，那答案就很明显了，是母鸡卡开播以来，独角兽和柿本已经有意无意地“尽量切断”了初华和go团旧人可能的相遇。
+
+正好，初华在go时期的戏份应该只比同样不是元老的大瞄多一些，也没有立希和海铃这种准cp交际点，所以画风骤然巨变（<strong>对位我之前分析的go团的人越多画风越偏青春，反之神经病一堆</strong>）还被批判是弱智女人的舞台已经僵硬地搭好了
+
+感觉今天已经快把独角兽和柿本这个剧本很多玩弄人物的僵硬感快看透了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
