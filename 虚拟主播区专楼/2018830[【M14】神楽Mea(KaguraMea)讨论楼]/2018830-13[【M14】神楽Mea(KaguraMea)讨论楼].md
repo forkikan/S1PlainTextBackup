@@ -2612,3 +2612,75 @@ signater+鹰宫撸啊撸联动
 这个是防狙击的图，上面游戏等级是167，咩现在是171级（
 主要是咩很讨厌狙击，然后就一直用这个来遮挡了
 
+
+*****
+
+####  TiHaru  
+##### 18080#       发表于 2025-2-22 13:33
+
+在和野兔打
+
+
+*****
+
+####  秋游刃  
+##### 18081#       发表于 2025-2-22 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491211&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-22 11:05</a>
+
+我今天早上4点的时候被告知8点起床，因为8点很紧，所以说是9点半。
+
+我跟你说过了，我8点就起床了，先起床 ...</blockquote>
+今天没漏游戏界面吧？是指匹配等待时，咩放的那张截图吗？
+
+*****
+
+####  sino__unnko3  
+##### 18082#       发表于 2025-2-22 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493407&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-2-22 17:25</a>
+今天没漏游戏界面吧？是指匹配等待时，咩放的那张截图吗？</blockquote>
+有<img src="https://p.sda1.dev/22/718b0e01c20c69cc0e6eb081f4592b77/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 18083#       发表于 2025-2-22 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493422&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-22 17:28</a>
+
+有</blockquote>
+读秒固定2分59，头像还是原来的锤子，这是一张截图，你咩等待匹配时，用来当遮挡画面的。
+
+顺便说一下，高飞匹配时也是这样放的一张截图。
+
+*****
+
+####  sino__unnko3  
+##### 18084#       发表于 2025-2-22 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493470&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-2-22 17:38</a>
+
+读秒固定2分59，头像还是原来的锤子，这是一张截图，你咩等待匹配时，用来当遮挡画面的。
+
+顺便说一下，高 ...</blockquote>
+没get到,指的是早上那场直播的那俩张随手画吗
+
+*****
+
+####  术士q  
+##### 18085#       发表于 2025-2-22 18:45
+
+ 本帖最后由 术士q 于 2025-2-22 18:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493422&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-22 17:28</a>
+有</blockquote>
+这个是防狙击的图，上面游戏等级是157，咩现在是171级（
+主要是咩很讨厌狙击，然后就一直用这个来遮挡了
+
+*****
+
+####  sino__unnko3  
+##### 18086#       发表于 2025-2-23 07:14
+
+奇怪了，怎么分类又变回去了，denger和king还在，rank少了一人
+
