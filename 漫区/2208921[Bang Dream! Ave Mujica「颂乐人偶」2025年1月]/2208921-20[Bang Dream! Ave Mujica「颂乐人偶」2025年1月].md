@@ -7208,3 +7208,13 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 这真还是少女乐队吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的好像不组乐队就去死很少女乐队一样
 
+
+*****
+
+####  adretyu67.  
+##### 28709#       发表于 2025-2-22 19:14
+
+为什么打牌会死人啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还是以前太krkrdkdk了
+
