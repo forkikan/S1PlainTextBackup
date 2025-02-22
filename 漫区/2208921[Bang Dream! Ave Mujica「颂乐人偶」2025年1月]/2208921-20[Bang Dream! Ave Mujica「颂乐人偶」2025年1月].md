@@ -7430,3 +7430,92 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 我没理解错的话剧透里的祥子为了只在小时候见过的初华，直接把现在这个相处时间更长的蜘蛛侠初华甩一边去了？
 
+
+*****
+
+####  与太郎  
+##### 28727#       发表于 2025-2-22 20:27
+
+ 本帖最后由 与太郎 于 2025-2-22 20:31 编辑 
+
+我觉得，如果要尽可能合理化两个剧本，这么解释是最合理的：
+
+为什么节约在MyGO时期没有接受相关演技指导？因为那并不必要。尽管我们可以认为祥子那句“睦也会笑”确实是在埋伏笔，但在睦本人都没有表现出异常的前提下，MyGO剧情里完全无视这个设定也是可以的（mortis在mujica成立前并不是一个稳定的人格）
+
+虽然小睦在mujica里的设定很夸张，但其实她也没有想要伤害除了mortis之外的人，消灭mortis也是为了让祥子不受伤害
+
+在飞鸟山一战的时候，睦对soyo复活ccc的请求表示沉默，是因为祥子此时已经和初华、睦约好建立新乐队，祥子不想复活ccc
+
+在mujica第7话中，睦在表演中一直在笑，也看到祥子感动落泪，并且祥子拒绝了海铃重组mujica的邀约，那么对于睦来说，其实已经没有不重组ccc的理由了
+
+在ktv那一幕则要和开头mortis的挣扎结合起来，因为mortis在听到海铃的邀约后将mujica作为自己最后的锚点，而mortis伤害了祥子，所以睦才要复活ccc来对抗
+
+说到底，还是千面魔王这个设定反派感太强了，所以观众潜意识里觉得睦之前的行动也都有深意，但那样解读的话两个剧本割裂感就太重了，和节约在MyGO中的演技也对不上
+
+行事特别有目的性，操纵周围的人的，仔细想想只是mortis吧，比如出租车上对初华，MyGO时期面对soyo的睦实在没有表现出任何反派的影子
+
+*****
+
+####  adretyu67.  
+##### 28728#       发表于 2025-2-22 20:31
+
+千面怪物最大的问题是，最后不管斗争还是和解的都是睦和莫。千面提过了吓完人就没了。
+
+*****
+
+####  与太郎  
+##### 28729#       发表于 2025-2-22 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494330&amp;ptid=2208921" target="_blank">firestorm5 发表于 2025-2-22 20:21</a>
+
+根据舅舅剧透的初华双子线，感觉祥子风评还有下探空间
+
+我没理解错的话剧透里的祥子为了只在小时候见过的初 ...</blockquote>
+制作组在mujica里狂抛设定已经让追番体验变得一团糟了，我选择尽可能不看剧透
+
+而且剧中支持初华双子说的线索还是比较多的，倒是所谓小姨说剧透的原文我一直没有去看，不知道是个什么逻辑
+
+*****
+
+####  一心而用  
+##### 28730#       发表于 2025-2-22 20:34
+
+lyy老师的2月22日（猫之日）要乐奈生日贺图
+<img src="https://p.sda1.dev/22/1a84886ecb536f294ac00fb00e4b39a4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d84376e15132731163380a586031efa3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/25120e814e2b6e7ed8c29b82941b09c8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c983163ca34d2f82d5ad73e5ec36716f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 28731#       发表于 2025-2-22 20:34
+
+<img src="https://img.saraba1st.com/forum/202502/22/203421ql5gmb5pfo36ftkh.jpg" referrerpolicy="no-referrer">
+
+<strong>QJT~}28K5C2I)~BXG9)Y.jpg</strong> (137.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 20:34 上传
+
+*****
+
+####  adretyu67.  
+##### 28732#       发表于 2025-2-22 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494392&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-22 20:33</a>
+
+制作组在mujica里狂抛设定已经让追番体验变得一团糟了，我选择尽可能不看剧透
+
+而且剧中支持初华双子说的 ...</blockquote>
+空调和仗助的关系
+
+
+*****
+
+####  yaneis  
+##### 28733#       发表于 2025-2-22 20:37
+
+感慨一句，前五集时我觉得祥子的变化和状态编剧都把握得很好，其他角色虽然很工具但只要祥子处理好就能鸡犬升天，结果（
+
