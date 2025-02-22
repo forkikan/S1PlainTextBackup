@@ -7254,3 +7254,18 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 如果不是丰川家的支援，出道上G:WAVE的资源确实也找不到其他来源了，所以这个时候祥子的心态就是我一定要向爷爷证明自己<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HereLink  
+##### 28713#       发表于 2025-2-22 19:34
+
+其实我感觉不组乐队墨就会死是假的，后面肯定有其他的解释🤔🤔
+
+*****
+
+####  adretyu67.  
+##### 28714#       发表于 2025-2-22 19:37
+
+只能先等下话小剧场，8话结尾umr那话就是特意激化矛盾的。
+
