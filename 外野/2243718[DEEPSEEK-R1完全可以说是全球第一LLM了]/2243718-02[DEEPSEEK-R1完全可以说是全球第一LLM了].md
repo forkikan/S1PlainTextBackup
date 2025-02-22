@@ -6291,3 +6291,11 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 楼上已用，继续传火
 [https://www.volcengine.com/exper ... QY5&amp;rc=Q37HBLXD](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=Q37HBLXD)
 
+
+*****
+
+####  bixinhaner  
+##### 2044#       发表于 2025-2-22 10:23
+
+求科普下，传火是火山的r1吗？满血版api吗，有什么优点啊
+

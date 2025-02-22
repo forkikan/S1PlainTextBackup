@@ -18005,3 +18005,53 @@ Starting 2025/02/21 15:00 and runs until 2025/04/19 14:59 GMT.
 那样也太讨好姨姥了 多来点</blockquote>
 鸭子“看到了时间”之后，如果这个世界线的拉拉存在且还活着，变成机魂了也要去找她好像也理所当然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 7296#       发表于 2025-2-22 10:18
+
+啊，要直接突入地球吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 特别映像塞了这么多信息？
+
+*****
+
+####  虛無迴廊  
+##### 7297#       发表于 2025-2-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490855&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-2-22 10:08</a>
+特别影像才30秒？能塞这么多信息？就这30秒也要找荒木哲郎来做？
+
+论坛助手,iPhone ...</blockquote>
+应该都是些一闪而过的镜头，看见吐槽画面没看懂就过去了的推文了
+
+*****
+
+####  Gysumitka  
+##### 7298#       发表于 2025-2-22 10:21
+
+如果玫瑰在地球，那是拉拉的可能性又大增了
+
+
+*****
+
+####  刺客ares  
+##### 7299#       发表于 2025-2-22 10:24
+
+<blockquote>虛無迴廊 发表于 2025-2-22 10:14
+鸭子“看到了时间”之后，如果这个世界线的拉拉存在且还活着，变成机魂了也要去找她好像也理所当然 ...</blockquote>
+鸭子：修司，赶紧带着我去找拉拉，绝对不能让阿姆罗先遇到她！
+
+牢修：高达说要去地球找一个印度女。
+
+玛秋：我跟你一起去。
+
+喵安：喵喵喵？
+
+*****
+
+####  岸浪白野  
+##### 7300#       发表于 2025-2-22 10:25
+
+[要去地球。。。高达是这样说的]
+[吉翁的下个战斗对手是自己人]
+
