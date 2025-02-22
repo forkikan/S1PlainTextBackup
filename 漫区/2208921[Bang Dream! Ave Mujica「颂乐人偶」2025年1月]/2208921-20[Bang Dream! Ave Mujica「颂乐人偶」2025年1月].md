@@ -6358,3 +6358,42 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 
 她的陪伴、苦恼与自责都不是伪物，不然她也不可能主动拜托mygo拉soyo一把，这个对她的吉他锚点来说本身并无意义。
 
+
+*****
+
+####  sauron.j  
+##### 28645#       发表于 2025-2-22 14:46
+
+目前的睦祥关系性和睦头的人设风格，一眼女性作者手笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 28646#       发表于 2025-2-22 14:50
+
+祥，移动
+<img src="https://p.sda1.dev/22/8fe35dc8ca0c2747a00c3158e4228030/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2935d10a54dd8f944207d7660bcc9b05/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 28647#       发表于 2025-2-22 14:51
+
+<img src="https://p.sda1.dev/22/a9658d4f57805b8fc374a83ada3fd746/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/11ad2070a79694b48b6e5ca39256a0d3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/4dbd25c4c58de3a58a2f6272f536063f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/53dbf811121f1a927827d50b25cc5fdc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  HereLink  
+##### 28648#       发表于 2025-2-22 14:53
+
+今天想到一个新的思路，现在的吉他睦才是稳定的单一人格。她出来之后其他的人格都死了，但是没有完全死，而是全部合体在一起变成了mortis，包括被祥子压力出来这个，也全部合体了🤔
+
+这样的话能解释为什么墨能在清洗中活下来，而且混杂模仿了很多人，因为他本身就是已经死亡的全部人格构成的，睦也根本杀不死她，她已经是所有死亡人格的化身了。
+
+以前是混乱混沌的人格群，吉他睦是单一的稳定点，她出来之后其他人格没有活动空间了，被迫合并在了一起。
+
