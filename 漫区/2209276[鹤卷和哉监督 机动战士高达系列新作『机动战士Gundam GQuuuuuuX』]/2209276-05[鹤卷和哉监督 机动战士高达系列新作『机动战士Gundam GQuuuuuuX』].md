@@ -19128,3 +19128,38 @@ WechatIMG450.jpg
 
 牢修真挂了谁来开得动这老爷机啊
 
+
+*****
+
+####  YU_JI  
+##### 7382#       发表于 2025-2-22 16:58
+
+<blockquote>虛無迴廊 发表于 2025-2-22 16:54
+牢修真挂了谁来开得动这老爷机啊</blockquote>
+这题我会，你去联邦找一个叫提姆雷的工程师，把他儿子叫来，让他来开
+
+
+*****
+
+####  az一串字母  
+##### 7383#       发表于 2025-2-22 17:00
+
+牢修死了，麻球岂不是成了死了mav的jk寡妇，美味，可以和夏利亚一桌了
+
+*****
+
+####  Gysumitka  
+##### 7384#       发表于 2025-2-22 17:03
+
+老爷机不用开了吧，拆掉直接把阿尔法和欧米伽装一起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuriri  
+##### 7385#       发表于 2025-2-22 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493279&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-22 16:58</a>
+
+这题我会，你去联邦找一个叫提姆雷的工程师，把他儿子叫来，让他来开</blockquote>
+话说在0079哈罗应该是阿姆罗自己造的吧？那现在的这个哈罗莫非……
+
