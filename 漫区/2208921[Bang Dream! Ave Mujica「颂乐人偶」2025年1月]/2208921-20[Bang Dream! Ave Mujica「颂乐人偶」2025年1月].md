@@ -8444,3 +8444,40 @@ mortis那些超模的能力，去掉了小孩子的天真幼稚，加上了暴�
 其实b站一直都是更准的，一个信息上的优势是b站需要完成先审后播，至少3集一审，也就是b站字幕组能够在掌 ...</blockquote>
 若叶睦本格，现在还存不存在不好说吧，或者是不是一个有意识的有想法的存在，还是未知的吧
 
+
+*****
+
+####  零壹贰叁  
+##### 28819#       发表于 2025-2-23 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495665&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-23 00:25</a>
+话说，看了眼战吧某个帖子，说木棉花繁体翻译在信达上超越了B战翻译，B站简体翻译有意无意的塞了意译的私货 ...</blockquote>
+没太大影响
+不管看哪个版本的人基本上都发出了差不多的评价
+都觉得烂
+我自己印象里争过的ep1是初华那句成为负担在坛里争过；祥爹看到soyo以为是祥子回来的那句“你终于肯回来了吗”“你回来了吗”
+以及ep6祥子的那句“我不认识睦”/“睦我不关心”
+
+说实话翻译差别其实不大，扭转不了人物印象，本质上还是塑造烂掉了
+
+
+*****
+
+####  AnnieLeonhart  
+##### 28820#       发表于 2025-2-23 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495992&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-23 02:14</a>
+
+说起来结尾的旁白为什么一直是初华念的</blockquote>
+我又要回顾下巨人痛史了，当年大家都觉得阿尔敏一直念旁白必有深意，最后回头一看其实就是选了井上麻里奈干这个活罢了
+
+*****
+
+####  oyss  
+##### 28821#       发表于 2025-2-23 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496004&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-23 02:20</a>
+
+其实b站一直都是更准的，一个信息上的优势是b站需要完成先审后播，至少3集一审，也就是b站字幕组能够在掌 ...</blockquote>
+原版字幕直接前面加人名的,没啥剧透的. 原本官方就没打算藏这个信息.
+
