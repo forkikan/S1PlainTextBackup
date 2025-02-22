@@ -8036,3 +8036,25 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 
 睦妈是真走错片场了，炮灰调查员roll了个大成功看到古神，往上不如要天师一眼看出不是一个人，往下不如大喵老师单纯：我草，姐们你人格分裂演的真好
 
+
+*****
+
+####  钦念以忱  
+##### 28780#       发表于 2025-2-23 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495247&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-22 22:55</a>
+
+邦邦的JK都是搞乐队不耽误学业的，办live不愁卖票。
+
+是GBC的世界太不抗造了。 ...</blockquote>
+邦邦人人读大学可能是独角兽女士的XP
+
+*****
+
+####  liy30dlys  
+##### 28781#       发表于 2025-2-23 00:02
+
+我感觉可以理解为现在所谓的睦就是ccc专用人格，莫就是mujica专用人格，和组ccc之前的人格都没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
