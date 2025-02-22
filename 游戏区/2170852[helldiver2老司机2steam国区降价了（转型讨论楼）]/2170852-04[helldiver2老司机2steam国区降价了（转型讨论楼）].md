@@ -1433,3 +1433,22 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 掠食刷佛里了，这下极致享受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MkChang  
+##### 5802#       发表于 2025-2-22 23:26
+
+佛里的n10确实比以前难一些，加上现在重甲刷新多了不少，以前四个人n10死不到五次现在基本都要死个十来次<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 5803#       发表于 2025-2-22 23:28
+
+今天看了个空爆单通的视频，也去试了试空爆。空爆真好玩，再也回不去了已经<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

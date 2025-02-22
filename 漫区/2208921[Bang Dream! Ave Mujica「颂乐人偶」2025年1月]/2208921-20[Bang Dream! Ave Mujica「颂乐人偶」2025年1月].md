@@ -7926,3 +7926,63 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 祥子在现实世界里肯定不是没反应，但是她肯定不敢真的动手去干涉睦和mortis大战，只能偶尔说两句话而已（ ...</blockquote>
 这能不一把抱住？看着手舞足蹈左右互搏不怕睦撞到东西？
 
+
+*****
+
+####  琉璃奇迹心似钻  
+##### 28770#       发表于 2025-2-22 23:16
+
+<blockquote>北条早苗 发表于 2025-2-21 00:07
+睦头这塑造还能不毁吗，狗动画里你能看出她半点DID的迹象吗
+
+什么不善言语一颗心两面受伤，不开心是给大祥打 ...</blockquote>
+
+请看MyGO第十集睦后黑手那段，注意睦开门前后睦出现之后的歌词
+
+<img src="https://img.saraba1st.com/forum/202502/22/231724hx9bt68a8p2t6p2z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250222_122506_tv.danmaku.bili.jpg</strong> (154.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 23:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/231733b4jrrwyydwo0j0bj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250222_122717_tv.danmaku.bili.jpg</strong> (121.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 23:17 上传
+
+*****
+
+####  hysjmr  
+##### 28771#       发表于 2025-2-22 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495328&amp;ptid=2208921" target="_blank">琉璃奇迹心似钻 发表于 2025-2-22 23:13</a>
+
+这能不一把抱住？看着手舞足蹈左右互搏不怕睦撞到东西？</blockquote>
+我的看法是祥子无论做了什么她在沉浸在自我中的睦眼里都是端端正正坐着的人偶。
+
+不过最后特写流泪也在暗示事情正在起变化，祥子开始能影响到睦头的精神世界了
+
+
+*****
+
+####  琉璃奇迹心似钻  
+##### 28772#       发表于 2025-2-22 23:21
+
+<blockquote>ape-apple 发表于 2025-2-21 00:12
+之前怎么把睦爸妈定罪怎么分析，恨不得要让睦爹妈坐实了虐待女儿。这一集出来，厉害了，原来在爹妈眼里睦是 ...</blockquote>
+睦妈说的不一定是事实，她在甩锅，注意她主演的剧的名称《失医》，她的论断是错误的诊疗意见。
+
+小孩子很小就是无完善的自我意识的，在最重要的孩童的人格形成时期，小睦因为从小暴露在公众视野压力过大，还被母亲害怕演技天赋，不得不分裂出社交人格和家里沉默的乖女儿两个基础人格
+
+*****
+
+####  刑部姬真可爱  
+##### 28773#       发表于 2025-2-22 23:24
+
+现在任何去找mygo里睦多重人格情节的所谓伏笔都是先画靶子再射箭，不要去思考，对身体不好<img src="https://static.saraba1st.com/image/smiley/carton2017/486.gif" referrerpolicy="no-referrer">
+
