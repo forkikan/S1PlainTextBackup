@@ -8112,3 +8112,24 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 
 mortis那些超模的能力，去掉了小孩子的天真幼稚，加上了暴君睦更成熟一点的思维逻辑+阴暗想法<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 28786#       发表于 2025-2-23 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说，看了眼战吧某个帖子，说木棉花繁体翻译在信达上超越了B战翻译，B站简体翻译有意无意的塞了意译的私货导致本身就很细节性的狗团互动和祥睦关系
+在简体翻译上出现了翻译走形
+
+*****
+
+####  cxj649  
+##### 28787#       发表于 2025-2-23 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495640&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-23 00:16</a>
+
+有个想法，是说吉他睦小时候把模仿、表演、欺骗、洞悉人心的能力都隔离了出来，放到了mortis的身上
+
+但是在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事进手游就由不得你了
+
