@@ -564,3 +564,20 @@ bro原来是凌波丽定位吗（
 
 <img src="https://img.saraba1st.com/forum/202502/22/235525bfjti3zvptbirtit.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 7441#       发表于 2025-2-23 00:06
+
+话说ed有定下来吗？
+
+*****
+
+####  岸浪白野  
+##### 7442#       发表于 2025-2-23 00:12
+
+米津玄師的已经定为主题曲就算TV动画上了也依然是会是动画的OP
+
+星街和NOMELON NOLEMON的称为挿入歌，动画ED是什么依然不知道
+
