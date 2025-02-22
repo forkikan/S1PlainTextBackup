@@ -18844,3 +18844,11 @@ X ⇒ 0
 
 能让一船人同意，只能是紫婆下命令了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 7364#       发表于 2025-2-22 15:35
+
+要去地球的话直接就是告诉你后面登场敌手全都是联邦系，纯生艹啊，鹤卷什么意思啊。
+

@@ -6439,3 +6439,32 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 大祥过家家肯定不和staff好好沟通，蜘蛛侠也纯的可怕估计也是不沟通那种，偶 ...</blockquote>
 如果是个一般人写剧本，和staff关系最好的反而应该是初华，奈何独角兽这群人不是一般人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  单脚着地  
+##### 28653#       发表于 2025-2-22 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">漏油拿自己的脑补来踩角色还说的这么信誓旦旦还真是有意思
+
+*****
+
+####  aptx8285144  
+##### 28654#       发表于 2025-2-22 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492649&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-22 14:34</a>
+
+如果之前对双重人格噱头是柿本的锅还是独角兽的锅有疑问的话，第八话古神睦基本钉死独角兽了吧。
+
+同时海铃 ...</blockquote>
+一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职乐队主顾对她的正面评价，甚至她自己回忆里过去的讲述甚至连沉重感都不是很足，只靠几个表情（包括对睦的）来描写她的问题，**冲淡了她的神人感，感觉以后还有描写
+
+*****
+
+####  HereLink  
+##### 28655#       发表于 2025-2-22 15:43
+
+<blockquote>aptx8285144 发表于 2025-2-22 15:42
+一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职 ...</blockquote>
+我怎么觉得已经在描写了？这最后那个耳语，感觉也不是什么精神正常的人😂
+
