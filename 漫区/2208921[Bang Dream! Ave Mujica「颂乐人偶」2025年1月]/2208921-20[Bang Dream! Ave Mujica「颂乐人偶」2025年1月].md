@@ -8433,3 +8433,14 @@ mortis那些超模的能力，去掉了小孩子的天真幼稚，加上了暴�
 
 与其说质疑翻译，不如说战吧屁股太明显，一直在用这种手段做安定剂安抚共振群体，骗想被骗的人。
 
+
+*****
+
+####  huxiaopao163  
+##### 28818#       发表于 2025-2-23 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496004&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-23 02:20</a>
+
+其实b站一直都是更准的，一个信息上的优势是b站需要完成先审后播，至少3集一审，也就是b站字幕组能够在掌 ...</blockquote>
+若叶睦本格，现在还存不存在不好说吧，或者是不是一个有意识的有想法的存在，还是未知的吧
+
