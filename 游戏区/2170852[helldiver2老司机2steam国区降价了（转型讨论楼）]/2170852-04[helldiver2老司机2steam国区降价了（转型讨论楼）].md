@@ -1404,3 +1404,14 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">想问一下看别人聊的时候说的次抛是一次性下来两发的那个火箭筒还是指四发的那个突击兵啊
 
+
+*****
+
+####  FLZB  
+##### 5799#       发表于 2025-2-22 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490647&amp;ptid=2170852" target="_blank">madcow 发表于 2025-2-22 09:29</a>
+
+想问一下看别人聊的时候说的次抛是一次性下来两发的那个火箭筒还是指四发的那个突击兵啊 ...</blockquote>
+两个的一次性筒子
+
