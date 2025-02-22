@@ -1868,3 +1868,14 @@ wiki说大教堂隐藏海岸的密码在圣人隐藏房间，这是哪里？</bl
 
 查看全部评分
 
+
+*****
+
+####  发条之心  
+##### 158#       发表于 2025-2-22 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493364&amp;ptid=2246453" target="_blank">reoch 发表于 2025-2-22 17:17</a>
+
+地下墓地那里，有个地方有很多坟墓，像小迷宫一样，旁边的提示也说最好边推边走，为什么我一个坟墓都推不动 ...</blockquote>
+跟随直觉，每个地方每个方向都推推看（说实话这张图我觉得设计得很差，要求玩家穷举）
+
