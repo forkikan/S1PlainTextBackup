@@ -661,3 +661,24 @@ SACD到了，好tm大啊，这是黑胶尺寸的包装了。搞不好会头还�
 原作
 <img src="https://p.sda1.dev/22/e75f7b98e6a5bdc92a9466a3b39ec45e/Image_1740016596921.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6930#       发表于 2025-2-22 17:33
+
+學馬仕女兒節的Season新曲《雪解けに》:
+<img src="https://tc2.wfhtony.space/images/2025/02/22/89091f7a193539757dedc9bcb4df658b.png" referrerpolicy="no-referrer">
+
+學馬仕的電腦版(DMM)預計下個月上線。
+<img src="https://tc2.wfhtony.space/images/2025/02/22/5d563c0a0b1bafe0680eb9b86f218917.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/02/22/a059706515f307019e7a26bcdfebdca6.png" referrerpolicy="no-referrer">
+
+======
+
+姬琦人的生日（3/5）賀圖：
+<img src="https://tc2.wfhtony.space/images/2025/02/22/e5446011a78faafcbbaadbff37118212.png" referrerpolicy="no-referrer">
+
+生日曲爲《Marble Heart》：
+<img src="https://tc2.wfhtony.space/images/2025/02/22/3d91a3420bb84b9d86816e5b33b250ef.png" referrerpolicy="no-referrer">
+
