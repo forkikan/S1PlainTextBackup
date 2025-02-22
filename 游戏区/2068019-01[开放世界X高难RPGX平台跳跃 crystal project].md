@@ -1485,3 +1485,14 @@ QQ20250221-003932.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blackll7  
+##### 125#         楼主| 发表于 2025-2-22 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489556&amp;ptid=2068019" target="_blank">发条之心 发表于 2025-2-21 23:18</a>
+
+没记错的话那里是个6000血的恐怖蘑菇人，我中期过去都会被开场的群攻打得大残。想问一下怎么控制杀（前期 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">专门去开个老号上去看了一眼，好像确实是改了，之前没有免疫毒和流血的
+

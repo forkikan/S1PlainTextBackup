@@ -5470,3 +5470,21 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  الطائر  
+##### 28567#       发表于 2025-2-22 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490401&amp;ptid=2208921" target="_blank">寒星 发表于 2025-2-22 07:50</a>
+
+我想到一个事，mujica是莫主场，活动也都是莫的名义，其他人顶多是个面具，莫可是真人格，莫现在还跑去学吉 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/22/093128r6ujju8h6t3u3jgn.jpg" referrerpolicy="no-referrer">
+
+<strong>Michael-Angelo-Batio-Quad-Guitar.jpg</strong> (32.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:31 上传
+
