@@ -7585,3 +7585,25 @@ lyy老师的2月22日（猫之日）要乐奈生日贺图
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 28740#       发表于 2025-2-22 21:01
+
+ 本帖最后由 aptx8285144 于 2025-2-22 21:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494360&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-22 20:27</a>
+
+我觉得，如果要尽可能合理化两个剧本，这么解释是最合理的：
+
+为什么节约在MyGO时期没有接受相关演技指导？ ...</blockquote>
+最简单的办法是直接把千面怪物当睦的黑暗面批判对方在撒谎然后消灭掉，留下善良人格共存，不过我一想起包饺子三个字就<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yaneis  
+##### 28741#       发表于 2025-2-22 21:05
+
+牢祥也是个每次抛骰子都能出1的绝世倒霉蛋了，一想到没有几集了害得被抽波大的我就笑出声（
+
