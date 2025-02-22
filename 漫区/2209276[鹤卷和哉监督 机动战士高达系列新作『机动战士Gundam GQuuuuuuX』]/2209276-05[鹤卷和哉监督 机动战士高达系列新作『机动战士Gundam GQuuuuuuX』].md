@@ -19194,3 +19194,41 @@ WechatIMG450.jpg
 
 新角色和米莱一样没眼白，竹给她画成这样肯定是有关系的吧？八洲家再设定一个妹妹出来？哈萨维喜提小姨？
 
+
+*****
+
+####  gamedreamer  
+##### 7389#       发表于 2025-2-22 17:16
+
+哈萨维喜提小姨也太有槽点了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzf111  
+##### 7390#       发表于 2025-2-22 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493344&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-22 17:14</a>
+
+场刊不是说了最后前夫哥还是错失米莱了吗</blockquote>
+没看过翻译版的场刊
+
+眼镜哥命中无缘啊<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 7391#       发表于 2025-2-22 17:21
+
+ 本帖最后由 ryanghj 于 2025-2-22 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493153&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-22 16:28</a>
+
+牢
+
+修，危</blockquote>
+麻球看倒地修司那段不是麻球看在座舱睡觉修司的睡脸吗
+
+特別映像大卖红蓝啊
+

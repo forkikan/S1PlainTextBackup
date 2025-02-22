@@ -6838,3 +6838,104 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 海玲对初华那么冷淡，估计是初华不想被海玲管推了很多海玲加的活，导致海玲对这个刺头心怀不满。车站那时候帮喵梦说话也很好理解了，喵梦这一闹，海玲的权利一下子就大起来了，从简单安排行程变成全团场外业务总管。
 
+
+*****
+
+####  玖羽  
+##### 28684#       发表于 2025-2-22 17:16
+
+新版深度叙诡说假药<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+即使不是真的，当悬疑二创看也值回票价了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+[https://tieba.baidu.com/p/9502655022?see_lz=1](https://tieba.baidu.com/p/9502655022?see_lz=1)
+
+*****
+
+####  小博禹  
+##### 28685#       发表于 2025-2-22 17:17
+
+母鸡卡被你们分析得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这真还是少女乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 28686#       发表于 2025-2-22 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493338&amp;ptid=2208921" target="_blank">寒星 发表于 2025-2-22 17:13</a>
+
+我本来觉得第八集后半段写海玲弄的很儿戏一笔带过，但是如果重点在最后跟莫的那一段交互的话，其实前面也可 ...</blockquote>
+如果朝好的地方想，也许是後藤绿和森田（演出）对十本这神人表示睦这深井冰个体已经给观众带来足够多的不适，再不缓解一下观众的压力，观众要疯了，所以用轻松手法写海铃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 28687#       发表于 2025-2-22 17:21
+
+鸡团真进手游还得再改编一道TV剧情吧。
+
+看看手游的编剧能不能调整得更合理一些。
+
+*****
+
+####  HereLink  
+##### 28688#       发表于 2025-2-22 17:22
+
+<blockquote>小博禹 发表于 2025-2-22 17:17
+母鸡卡被你们分析得
+
+这真还是少女乐队吗
+</blockquote>
+一般的少女乐队会出现现在这种画面吗🤔🤔
+
+我觉得现在每个人都应该放弃这是少女动画的认知，因为要是一转普通故事那就是又烂又无聊了，现在必须搞大活可能还有一线生机吧😂😂
+
+*****
+
+####  aptx8285144  
+##### 28689#       发表于 2025-2-22 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493362&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-22 17:17</a>
+
+母鸡卡被你们分析得
+
+这真还是少女乐队吗</blockquote>
+最迟也应该从第五话大祥被剥夺主角独立性那一刻起意识到这绝不是传统少女乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，当然，这不代表要认同不是传统 就可以这样炒作写剧情，比如剧本对角色很浓厚的工具使用感，以及扭曲变态的观念，还有车烂了的第七话等等等
+
+*****
+
+####  结衣小比取  
+##### 28690#       发表于 2025-2-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493006&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-22 15:58</a>
+
+就挺可怕的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/22/171809l52nkvggn9j52nsp.gif" referrerpolicy="no-referrer">
+
+<strong>[SubsPlease] BanG Dream! Ave Mujica - 08 (1080p) [6CF3A3E3].mkv_20250222_171458.gif</strong> (2.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 17:18 上传
+
+等会儿，看指甲的不是若麦吗？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 28691#       发表于 2025-2-22 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489359&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-21 22:46</a>
+
+这句肯定不是指功课，本身也只是是高1还在学数1
+
+时间7.25出道9.20解散，然后过了1个月，离期末还远</blockquote>
+根据坛友[玖羽](https://bbs.saraba1st.com/2b/space-uid-13058.html)考据的[Ave Mujica前五话时间线](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67321236)，推算的话，第八话铁定是过11月了
+
