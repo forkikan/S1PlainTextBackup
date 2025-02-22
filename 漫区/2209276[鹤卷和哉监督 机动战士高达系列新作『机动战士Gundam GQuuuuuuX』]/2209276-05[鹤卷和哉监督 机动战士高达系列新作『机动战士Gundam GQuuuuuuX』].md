@@ -18749,3 +18749,21 @@ X ⇒ 0
 联邦魔女：“让那个红高达驾驶员出来，我 ...</blockquote>
 红高内的夏亚：那是我年轻时犯下的错
 
+
+*****
+
+####  Earendil_C  
+##### 7355#       发表于 2025-2-22 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果还是要下地球，还有对手 ace，什么时候带上面具
+
+
+*****
+
+####  gamedreamer  
+##### 7356#       发表于 2025-2-22 14:40
+
+修司:现在的我是()，不是其他的任何人<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
