@@ -17850,3 +17850,84 @@ Starting 2025/02/21 15:00 and runs until 2025/04/19 14:59 GMT.
 
 买到4月19号为止，刚好撑到TV开播
 
+
+*****
+
+####  积木23ki  
+##### 7285#       发表于 2025-2-22 09:03
+
+高达说应该定档四月然后半年番，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 7286#       发表于 2025-2-22 09:03
+
+<img src="https://img.saraba1st.com/forum/202502/22/090337ms695m6c5mb5inxy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>75DD119F-51F5-4461-86C0-38230EF04C7C.jpeg</strong> (104.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/090337ulssgsj2oo2h7sa2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>269CFF4B-0D8A-4514-9546-ABA260628F17.jpeg</strong> (151.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/090337v63l4z36im9mlms4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9C410CA6-7F27-47C7-ADB6-E7D6B1A4DDD5.jpeg</strong> (168.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/090338osgznyrmtnrsjhre.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A1DE5D04-23D5-40F3-9844-A3D3C86A3E44.jpeg</strong> (162.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:03 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/090338y08n81n1nq12i81s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>61955D71-DF88-4364-9E7E-2466FC693C52.jpeg</strong> (260.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:03 上传
+
+*****
+
+####  RE㐅ia  
+##### 7287#       发表于 2025-2-22 09:06
+
+<img src="https://img.saraba1st.com/forum/202502/22/090655qrwcrzcjzcijcdpr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D500368F-B4AB-4010-A20F-B35F3C6B3498.jpeg</strong> (119.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/090655tqungu8it39kftwq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E2A8452A-B75A-4A82-96B4-D15254F2C757.jpeg</strong> (87.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 09:06 上传
+
+*****
+
+####  0aleph37  
+##### 7288#       发表于 2025-2-22 09:08
+
+假情报太多了
+

@@ -5457,3 +5457,16 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Cortana  
+##### 28566#       发表于 2025-2-22 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489768&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-21 23:58</a>
+你再想想，真的是一回事吗</blockquote>
+怎么就不是了，人格分裂本来就是无上限的，但不是所有人格都有自主性，完全可以只是个记忆的容器。小墨说的人格大逃杀很可能只是她自己夸张而已，幼睦时期到底有没有分裂出具有自主性的人格都不好说。
+何况小墨一个要死的副人格、美奈美一个高度自恋，她们的一面之词有多少可信度都不好说。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
