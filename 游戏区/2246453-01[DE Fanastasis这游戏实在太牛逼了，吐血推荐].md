@@ -1639,3 +1639,25 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 吐了，海底隧道什么逼图啊，一万张小地图传送点稀少还限制你移动
 
+
+*****
+
+####  blueelf  
+##### 137#         楼主| 发表于 2025-2-22 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491489&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-22 11:42</a>
+
+吐了，海底隧道什么逼图啊，一万张小地图传送点稀少还限制你移动，自带地图不区分不标注基本是个废功能，逃 ...</blockquote>
+这图算是被投诉最多的几张图之一了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不过小怪攻击性不强，也没什么拦路怪，无非就是强制解密有点花时间，慢慢探吧
+
+
+*****
+
+####  水边井  
+##### 138#       发表于 2025-2-22 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491518&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-22 11:46</a>
+
+这图算是被投诉最多的几张图之一了，不过小怪攻击性不强，也没什么拦路怪，无非就是强制解密有点花时间， ...</blockquote>
+而且这逼游戏找不到传送阵连回城都不给你回，死了只能从头走
+
