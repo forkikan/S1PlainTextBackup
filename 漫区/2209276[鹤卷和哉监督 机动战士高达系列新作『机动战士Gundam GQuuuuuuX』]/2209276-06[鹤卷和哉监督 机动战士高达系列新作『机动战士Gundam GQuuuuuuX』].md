@@ -231,3 +231,28 @@
 修司真的危险了吧</blockquote>
 大概说说牢修什么情况？
 
+
+*****
+
+####  灵魂收割机  
+##### 7422#       发表于 2025-2-22 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493622&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-2-22 18:07</a>
+
+24＋24有先例吗</blockquote>
+有差不多的，25+25<img src="https://static.saraba1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bird-lay  
+##### 7423#       发表于 2025-2-22 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494398&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-22 20:34</a>
+
+大概说说牢修什么情况？</blockquote>
+似乎魔女和红高达有仇，然后麻球说不会让你干掉修司的
+
+以及有个镜头似乎是红高达的流星锤被光束步枪爆了？
+
+不过播片又短又快，还没反应过来就播完了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
