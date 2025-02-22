@@ -18055,3 +18055,33 @@ Starting 2025/02/21 15:00 and runs until 2025/04/19 14:59 GMT.
 [要去地球。。。高达是这样说的]
 [吉翁的下个战斗对手是自己人]
 
+
+*****
+
+####  虛無迴廊  
+##### 7301#       发表于 2025-2-22 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490958&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-22 10:24</a>
+鸭子：修司，赶紧带着我去找拉拉，绝对不能让阿姆罗先遇到她！
+
+牢修：高达说要去地球找一个印度女。
+
+玛秋 ...</blockquote>
+喵安或许可以得到“存活的家人在地球”这样的信息作为行动目标？
+
+*****
+
+####  psycho_Gadfly  
+##### 7302#       发表于 2025-2-22 10:29
+
+有人说特别映象是1分多钟的样子
+
+IMG_7688.jpeg
+(284.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/102842rdxxosjewoxxxmj7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

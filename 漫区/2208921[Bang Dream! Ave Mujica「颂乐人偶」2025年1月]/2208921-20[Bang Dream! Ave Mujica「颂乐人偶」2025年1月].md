@@ -5533,3 +5533,35 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 那就有一个很有意思的假设了。
 要是，莫提斯的吉他会唱歌了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  swessia  
+##### 28572#       发表于 2025-2-22 10:28
+
+睦 不需要了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 28573#       发表于 2025-2-22 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490929&amp;ptid=2208921" target="_blank">渡鸦骑士 发表于 2025-2-22 10:20</a>
+那就有一个很有意思的假设了。
+要是，莫提斯的吉他会唱歌了呢？</blockquote><blockquote>如果考虑到A团最终还是会重组，说不定会出现吉他睦放弃主导权主动让“莫提斯”“杀死”自己，然后“莫提斯”选择了与吉他睦共存的戏码，也算是一种“洗白”，会让“莫提斯”的人设更加讨喜，也会让wsd的双面人物卡更好卖</blockquote>
+那也许这就是一种可能<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 28574#       发表于 2025-2-22 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489814&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-22 00:08</a>
+
+双重人格变多重人格事到如今谁会震惊，令人震惊的明明是如果真如睦妈所描述，那就是睦出生开始并未遭遇什么 ...</blockquote>
+谁会震惊吗？其实这话结束时我就突然想起隔壁电台批判超人幻想剧情的一项“罪名”就是后面还在追加设定，看到层主你提到这点就还是想起电台自第7话后连柿本都不敢批判的双标态度而想笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
