@@ -7185,3 +7185,26 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  假意不是虚情  
+##### 28707#       发表于 2025-2-22 18:58
+
+<blockquote>DeltaStriker 发表于 2025-2-22 16:57
+第9话能拼起来吗 感觉有种am有可能马上复活 但是am马上复活不太可能的感觉 除非写猫海挟mortis以令大象 然 ...</blockquote>
+估计拼起来live一次马上空中解体吧
+
+
+*****
+
+####  厄神之息  
+##### 28708#       发表于 2025-2-22 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493362&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-2-22 17:17</a>
+
+母鸡卡被你们分析得
+
+这真还是少女乐队吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的好像不组乐队就去死很少女乐队一样
+
