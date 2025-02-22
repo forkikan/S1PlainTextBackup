@@ -6350,3 +6350,15 @@ strawberry有几个r
 我也传个火，用了另外坛友帖子注册的
 [https://www.volcengine.com/exper ... QY5&amp;rc=HL9I37SA](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=HL9I37SA)
 
+
+*****
+
+####  bixinhaner  
+##### 2050#       发表于 2025-2-22 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491257&amp;ptid=2243718" target="_blank">Algie 发表于 2025-2-22 11:10</a>
+能弄成联网模式
+
+比硅基流动的响应快，不过我感觉和硅基的pro相比其实速度没差很多。。。</blockquote>
+api直连就支持联网？
+

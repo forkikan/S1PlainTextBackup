@@ -18362,3 +18362,55 @@ MSの中？でシュウジの寝顔を見つめるマチュ
 
 『魔女与战争』
 
+
+*****
+
+####  纪寞  
+##### 7323#       发表于 2025-2-22 11:54
+
+红高达：被85年的高达说太快了，我在做什么鬼梦
+
+*****
+
+####  Gysumitka  
+##### 7324#       发表于 2025-2-22 11:54
+
+夏利亚感叹的时候，会是夏亚上身or机魂辅助作战？
+
+*****
+
+####  gamedreamer  
+##### 7325#       发表于 2025-2-22 11:56
+
+为什么总在惦记着什么机魂操作呀
+就不能是修司的技术真的很强吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDNM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  az一串字母  
+##### 7326#       发表于 2025-2-22 12:00
+
+街机里牢修有这一句台词，当时看到就想起拉拉和骡子打的时候，拉拉说鸭子碍事，现在既然麻球会觉得修司太快了，那感觉说不定牢修打魔女时也会来一句这个
+
+<img src="https://img.saraba1st.com/forum/202502/22/115856sx5575t5x37dgt39.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250210_173724_com.huawei.himovie.local.jpg</strong> (297.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 11:58 上传
+
+*****
+
+####  Gysumitka  
+##### 7327#       发表于 2025-2-22 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491606&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-2-22 11:56</a>
+为什么总在惦记着什么机魂操作呀
+就不能是修司的技术真的很强吗？</blockquote>
+也不是否定修司技术水平
+夏利亚前面说红高里面果然不是夏亚，现在又说像夏亚，有这个对比
+
