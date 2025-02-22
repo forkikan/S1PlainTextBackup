@@ -19101,3 +19101,30 @@ X ⇒ 0
 
 2025-2-22 16:41 上传
 
+
+*****
+
+####  kuriri  
+##### 7380#       发表于 2025-2-22 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493213&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-22 16:41</a>
+
+联邦的魔女，追杀红高达的复仇鬼——</blockquote>
+不知道为什么，我现在越来越觉得长成这样的少女就应该开长成这样的高达
+
+WechatIMG450.jpg
+(34.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 16:52 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/165237l3gbihhgzd8xzg4g.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  虛無迴廊  
+##### 7381#       发表于 2025-2-22 16:54
+
+牢修真挂了谁来开得动这老爷机啊
+

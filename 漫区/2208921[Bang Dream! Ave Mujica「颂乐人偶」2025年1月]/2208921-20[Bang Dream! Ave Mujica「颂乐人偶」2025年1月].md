@@ -6732,3 +6732,43 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 只能说以初华对CCC的关注度却从来没有出现在任何ccc相关表演或者暴露对ccc的兴趣的地方就太奇怪了。
 
+
+*****
+
+####  sauron.j  
+##### 28675#       发表于 2025-2-22 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493206&amp;ptid=2208921" target="_blank">xyion 发表于 2025-2-22 16:39</a>
+
+描写不足在鸡里实在太多，按正常创作规律去推测"之后肯定还要写这个"，可能不是很能成立。
+
+我感觉创作团 ...</blockquote>
+海铃的搞笑感是刻意为之的演出，我认为是用来冲淡她的可怕本性，她这个性格用严肃风格去写太令人畏惧了
+
+*****
+
+####  aptx8285144  
+##### 28676#       发表于 2025-2-22 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493185&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-22 16:34</a>
+
+這個論點的主要破綻是大喵
+
+大喵老師基本上跟狗團是零連結</blockquote>
+觉得"只是"第四位是因为最近几周描写重心已经变了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"></strong>
+
+对了，终于意识到这里面还有一个问题，因为那时候并不能预测到双重人格，会一路变成多重人格到人格大战，所以睦还是很多老观众们心里的善良而笨拙的存在，整个睦的形象变化是一个时间过程的
+
+当我们发现大瞄撑死还是个人类的反派，对面却很难断言是正义伙伴下的多重人格且有无数分裂可能性，加上演出的可怕渲染，于是对大瞄的认同感就增加了，她从第一名或第二名变成了第四名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28677#       发表于 2025-2-22 16:55
+
+海玲的主要问题交待到这就差不多了。
+
+鸡团当务之急是先把已经爆胎的车赶紧拼起来先发动再说。
+
+假设10话有live，那9话无论如何都得把大致的车框架给拼出来。
+
