@@ -2600,3 +2600,15 @@ signater+鹰宫撸啊撸联动
 不过这样感觉也可以排除高飞的嫌疑了?看起来不像是说那种坏话的
 好朋友咩绘可爱
 
+
+*****
+
+####  术士q  
+##### 18079#       发表于 2025-2-22 18:45
+
+ 本帖最后由 术士q 于 2025-2-22 18:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493422&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-22 17:28</a>
+有</blockquote>
+这个是防狙击的图，上面游戏等级是167，咩现在是171级（
+主要是咩很讨厌狙击，然后就一直用这个来遮挡了
+
