@@ -6527,3 +6527,106 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 
 但这几集就感觉她交际面太窄了2333
 
+
+*****
+
+####  玖羽  
+##### 28661#       发表于 2025-2-22 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492931&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-22 15:42</a>
+
+一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职 ...</blockquote>
+你仔细看，海铃回忆第一个乐队的时候只有她一个人兴高采烈，其余四个人都拉着脸<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+但是在海铃的描述中这个乐队的氛围是非常正面的，只是最后不知为什么放了鸽子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+说明海铃并没有真的认识到自己控制欲的问题，只是通过理性判断压制控制欲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这一话也表明，海铃的高度自律是靠偶尔放纵维持的，就是说不是真的自律，只是在压制欲望<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+按照一般套路，这种长期被压制的欲望放纵出来是非常疯的，你说是吧立希<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28662#       发表于 2025-2-22 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492962&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-22 15:48</a>
+草</blockquote>
+但有好几支乐队都不再活动了，海玲能找谁
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 28663#       发表于 2025-2-22 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492976&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-22 15:51</a>
+
+我有这样“描写不足”的感觉，大概是因为母鸡卡前面神人描写的下限已经够多或者低了，海铃这种程度的异常 ...</blockquote>
+海玲也就正常现实乐队神人，而且这种别的乐队番又不是没有，山田凉就是<img src="https://static.saraba1st.com/image/smiley/carton2017/399.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28664#       发表于 2025-2-22 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492988&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-22 15:55</a>
+你仔细看，海铃回忆第一个乐队的时候只有她一个人兴高采烈，其余四个人都拉着脸
+
+但是在海铃的描述中这个乐 ...</blockquote><blockquote>海铃最大的问题是不断膨胀的自我，她的欲求是随时间不断增长的，因为她不会刻意地约束自己(好像只有对立希是例外，但也不好说，从她两次在立希头上放饮料的动作就能看出来越来越放肆），所以如果一旦消费行为不能再让她满足或者自己的财力不能再支持自己的消费行为，会走上不归路就是必然的结果，哦，对了，海铃还擅长数学，这一点很重要，擅长数学的人一般是很容易钻牛角尖的，也符合她控制狂的人设
+
+外加第八集还说明海铃有容貌焦虑和不良饮食习惯，以及比较严重的强迫倾向(在和喵梦聊天时看自己表面光滑修剪整齐的指甲)，说明她可能还有内分泌紊乱的情况
+
+(刚去看了一眼，海铃不是左撇子）
+
+这样的人就是天生的犯罪天才</blockquote>
+就挺可怕的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 28665#       发表于 2025-2-22 15:59
+
+战吧的新假药，《我们没有翅膀》
+<img src="https://p.sda1.dev/22/dd5ebc70a2899ba5e82bf1b9e78e0add/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5bf6de5f1321520cc7d1b8ee2c377730/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ea222f317e42b4d010307ddb5ed6b1fc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7f13f7180e6e59b16e67f30f20092460/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d947996cb52f3a2e709c2cba8d5d6388/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 28666#       发表于 2025-2-22 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492988&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-22 15:55</a>
+
+你仔细看，海铃回忆第一个乐队的时候只有她一个人兴高采烈，其余四个人都拉着脸
+
+但是在海铃的描述中这个乐 ...</blockquote>
+但是这里有两个关键点，一点是因为演出问题并没有刻意彰显海铃的问题（只有最后时刻对睦的耳边才有一点），二来更关键，就是我说的母鸡卡前面神人们的表演太多，<strong>比这更没下限的比比皆</strong>是，导致很容易对海铃这个过去有免疫力了
+
+
+*****
+
+####  南宮凝香  
+##### 28667#       发表于 2025-2-22 16:00
+
+初華就是被Ban 了
+
+長期素食小姐還懂堵羽丘門 （兩次）
+
+三角初華小姐只會在家抱枕狂哭還算是個人嗎？
+
+她有母雞卡工作群，有祥子的學校，有共同的相識
+
+所有其他人都是想聯絡就聯絡得上， 像這話的海喵海睦， 之前的素睦 素祥，希睦
+
+就她演得像天人永隔一樣
+
