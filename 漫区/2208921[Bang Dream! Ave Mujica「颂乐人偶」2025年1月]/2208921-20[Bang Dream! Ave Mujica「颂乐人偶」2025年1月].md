@@ -7519,3 +7519,20 @@ lyy老师的2月22日（猫之日）要乐奈生日贺图
 
 感慨一句，前五集时我觉得祥子的变化和状态编剧都把握得很好，其他角色虽然很工具但只要祥子处理好就能鸡犬升天，结果（
 
+
+*****
+
+####  adretyu67.  
+##### 28734#       发表于 2025-2-22 20:39
+
+因为前5集的主线不就是抽祥子吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堆雪若叶  
+##### 28735#       发表于 2025-2-22 20:46
+
+虽然本意肯定并非如此，但莫老师和睦争论crychic有没有结束阴差阳错成为了场外的复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫老师拿祥子的表现背书，睦还是坚持crychic并未结束，而对于一些场外观众即使加上祥子的心理活动也依然在怀疑crychic结束的真实性，结果凑巧对应上“大家都是戴着假面的我和你”。不过巧合的本质却都是因为“只选择看自己想看到的东西”，感觉有种荒诞的meta感。
+<img src="https://p.sda1.dev/22/19aea795d4ae9c9c97d736033ba82cf9/_Nekomoe kissaten_LoliHouse_ BanG Dream! Ave Mujica - 08 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_001144.135.jpg" referrerpolicy="no-referrer">
+
