@@ -6959,3 +6959,75 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 原来是邦献帝吗，祥子。
 
+
+*****
+
+####  adretyu67.  
+##### 28693#       发表于 2025-2-22 17:36
+
+ 本帖最后由 adretyu67. 于 2025-2-22 17:40 编辑 
+
+但是鸡团2.0还是得找个人想办法治下这群“满脑子只有自己”的神人的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不然重组起来也是下一次开爆胎。
+
+突然发现这句话基本能回旋镖鸡狗两团的所有人<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+有点套公式了
+
+*****
+
+####  aptx8285144  
+##### 28694#       发表于 2025-2-22 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493392&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-22 17:22</a>
+
+一般的少女乐队会出现现在这种画面吗🤔🤔
+
+我觉得现在每个人都应该放弃这是少女动画的认知，因为要是一转 ...</blockquote>
+之前说过，尽量以一种乐子人心态去看，然后冷静下来就会发现剧本更多的缺陷<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 28695#       发表于 2025-2-22 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对海喵已经放弃解读了，初看情况
+
+睦祥这俩神人赶紧修好吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  swessia  
+##### 28696#       发表于 2025-2-22 17:43
+
+回去重看了遍致命ID
+
+多重人格大逃杀是正常的心理治疗流程，那现在的吉他睦突突别的人格也很正常，无非莫小姐和观众太熟了舍不得死
+
+就看编剧是走kirakira路线共存还是现实路线被吃掉了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 28697#       发表于 2025-2-22 17:45
+
+從狗開始， 這系構就是正事的時間是特別短，
+
+間奏的時間特別長
+
+放到了狗裡就是CCC成團的日子比詩超絆前的冷戰期還要短
+
+放到雞裡是睦一兩個星期就被工作壓垮，
+
+但祥子一擺爛一個月就消失了
+
+雞團活著的時間已經比解散後短………
+
+這種非常出戲的時間安排我覺得是🦄的XP
+
