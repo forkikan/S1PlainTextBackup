@@ -5792,3 +5792,43 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 另外这段采访的日文原文有人发过吗
 [https://www.saraba1st.com/2b/for ... 21&amp;pid=67133652](https://www.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67133652)
 
+
+*****
+
+####  DeltaStriker  
+##### 28596#       发表于 2025-2-22 12:34
+
+可能是早有预谋吧<img src="https://p.sda1.dev/22/daa1f2b18f33050e9248005df5196bb8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 28597#       发表于 2025-2-22 12:34
+
+<blockquote>aptx8285144 发表于 2025-2-22 12:18
+我刚才转了一圈，反而感觉对这个剧本有更清醒认知了，其他分析或许还有求证过深的嫌疑，但有人指出一句大 ...</blockquote>
+母雞卡的組隊邏輯就是偏向本能欲望
+
+莫老師為了生存
+
+海鈴為了控制欲
+
+大喵為了名利欲
+
+蜘蛛俠為了**
+
+祥子為了逃避
+
+普通JK 本來就加不進去
+
+*****
+
+####  天空塔书记官  
+##### 28598#       发表于 2025-2-22 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
