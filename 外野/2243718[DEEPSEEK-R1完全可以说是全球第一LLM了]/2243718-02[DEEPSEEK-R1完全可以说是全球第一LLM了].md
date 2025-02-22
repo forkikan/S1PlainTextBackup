@@ -6299,3 +6299,27 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 
 求科普下，传火是火山的r1吗？满血版api吗，有什么优点啊
 
+
+*****
+
+####  Algie  
+##### 2045#       发表于 2025-2-22 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490954&amp;ptid=2243718" target="_blank">bixinhaner 发表于 2025-2-22 10:23</a>
+
+求科普下，传火是火山的r1吗？满血版api吗，有什么优点啊</blockquote>
+能弄成联网模式
+
+比硅基流动的响应快，不过我感觉和硅基的pro相比其实速度没差很多。。。
+
+再就是好像token均价便宜一点
+
+*****
+
+####  Algie  
+##### 2046#       发表于 2025-2-22 11:11
+
+strawberry有几个r
+
+你们r1推理这个要很久么
+

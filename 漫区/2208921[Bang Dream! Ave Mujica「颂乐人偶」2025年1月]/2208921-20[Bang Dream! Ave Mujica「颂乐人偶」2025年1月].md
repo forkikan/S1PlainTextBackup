@@ -5646,3 +5646,21 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 
 多重人格别的不说，拿来搞场外悬疑解谜确实方便<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 28582#       发表于 2025-2-22 11:12
+
+感觉mujica2.0的雏形这集都差不多打好基础了。
+
+海铃可以作曲
+
+睦老师剧作家
+
+初华写词
+
+大猫负责搞定大人
+
+祥子负责被扣
+
