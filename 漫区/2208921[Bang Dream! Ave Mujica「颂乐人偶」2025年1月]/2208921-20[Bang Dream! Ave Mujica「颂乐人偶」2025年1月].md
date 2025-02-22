@@ -7378,3 +7378,30 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  MASKA-1  
+##### 28722#       发表于 2025-2-22 19:59
+
+看到不少人觉得海铃这集性格唐突加属性，组建mujica的态度也变化太大。我倒是觉得挺顺滑，难道油腻海铃同人看多了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 28723#       发表于 2025-2-22 19:59
+
+ 本帖最后由 aptx8285144 于 2025-2-22 20:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489923&amp;ptid=2208921" target="_blank">杂灰 发表于 2025-2-22 00:31</a>
+
+本来独角兽就很会骗人，实际上没有这个设定，细想都能发现睦头的行为就是在两头恰，明明已经站队祥子了， ...</blockquote>
+我感觉吗，也就是美少女带来的滤镜，否则仔细品味就会觉得这个个体太可怕<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 28724#       发表于 2025-2-22 20:04
+
+海铃这人真挺恶劣的，立希一句话就让她不爽了几天，这集立希请客时也是一脸敌视，重组am的初始动机也是因为妒忌，如果是妒忌立希的话，海希关系也要重新审视了。
+
