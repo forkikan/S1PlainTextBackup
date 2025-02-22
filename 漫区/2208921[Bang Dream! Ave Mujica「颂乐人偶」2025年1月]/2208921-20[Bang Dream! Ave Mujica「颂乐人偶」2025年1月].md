@@ -7744,3 +7744,32 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 关于睦的人 ...</blockquote>
 社会派+设定系吧，还带点八嘎推理的性质
 
+
+*****
+
+####  aidjvscgv  
+##### 28754#       发表于 2025-2-22 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493412&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-22 17:26</a>
+
+喵梦摘面具事件目前有四个巨大受益者。
+
+喵梦：收获巨大流量，都能和代言奢侈品衣服了。
+
+海玲：从团队边缘人 ...</blockquote>
+已经确实是祥子的小姨了？
+
+*****
+
+####  真爱与热情  
+##### 28755#       发表于 2025-2-22 22:20
+
+虽然mujica这几个角色被摧残的不像样，但是我最喜欢的海玲更可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28756#       发表于 2025-2-22 22:21
+
+三角女士因为连续三集没有推进来给兄弟们发散，只能挑个传播最广的假药先扣她头上了
+
