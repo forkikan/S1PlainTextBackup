@@ -1548,3 +1548,18 @@ QQ20250221-003932.jpg
 
 现在出中文了吗？一直很想玩可是懒得啃
 
+
+*****
+
+####  kerorara  
+##### 131#       发表于 2025-2-23 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495885&amp;ptid=2068019" target="_blank">blacl253 发表于 2025-2-23 01:33</a>
+现在出中文了吗？一直很想玩可是懒得啃</blockquote>
+steam版本有中文汉化的创意工坊。
+下载游戏的时候甚至已经默认安装了。
+
+应该还有一些零碎的翻译错误，就像我楼里提到nan祖母被翻译成南了。但是报给作者他会修。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
