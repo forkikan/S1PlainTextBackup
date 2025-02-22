@@ -520,3 +520,30 @@ gqux明明可以借此画得更加安彦点
 
 麻球第二天去找涂鸦，涂鸦上有个红色的人形图案（特典场刊里出现的），修司看到麻球来在边上喷了个白的
 
+
+*****
+
+####  xwz  
+##### 7438#       发表于 2025-2-22 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492530&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-22 14:10</a>
+推上有宝批看了新增影像觉得联邦魔女像水莲
+
+还有一些repo觉得她像少女版米莱</blockquote>
+不会就叫加美尤吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  az一串字母  
+##### 7439#       发表于 2025-2-22 23:32
+
+<blockquote>刺客ares 发表于 2025-2-22 22:47
+他都看到时间了，是瞬间知道了很多神秘内情吧
+
+本来以为牢修就是玫瑰，结果不是，那牢修身份又成谜了。
+
+鸭 ...</blockquote>
+光pv开头那段吟唱就能看出来麻球其实对真正的天空和大海以及重力有点兴趣吧，但以前有side6的人际关系，外加她也没有手段去地球，这次遇到了个要去地球的，一同进过聊天室的牢修出现，这种兴趣一下子被点燃了所以就直接想跟着他去了吧。当然在别人眼里蛮像jk遇到crush一下子就被野男人拐走了
+

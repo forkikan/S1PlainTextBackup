@@ -17,3 +17,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  madcow  
+##### 53#       发表于 2025-2-22 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就我个人来说是希望跟FA那样杂鱼数量多点但是强度低点，难度可以扔给精英怪和BOSS。
+
+现在这样玩着AC但是跟魂一样一步步推进有点爽不起来
+
