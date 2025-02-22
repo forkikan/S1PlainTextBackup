@@ -1473,3 +1473,15 @@ QQ20250221-003932.jpg
 
 什么时候可以自由召唤陆行龙？我现在交了眼球拿了使用许可证，但是只能租用，下去了就没办法再上了，首都左边跳过了断桥，山口处骑龙跳不上去
 
+
+*****
+
+####  blackll7  
+##### 124#         楼主| 发表于 2025-2-22 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489982&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-22 00:44</a>
+什么时候可以自由召唤陆行龙？我现在交了眼球拿了使用许可证，但是只能租用，下去了就没办法再上了，首都左 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去城里的糖店和小孩们对话解谜，从下水道报点进入婴儿潮之家，然后从婴儿潮之家走垂降路线去城外拿些资源吧。woke陆行龙的话，注意学个赤魔的驱散就好打了，记不清会不会白风了，如果有白风就拿学者去学一个反转可以秒，反转在之前通往瀑布那条路的洞穴的一层的野人会用。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
