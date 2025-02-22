@@ -1385,3 +1385,14 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">队友卡在任务阀门上动不了还变成无敌状态了。。我怎么感觉上周都没这么频繁的bug啊
 
+
+*****
+
+####  保科智子  
+##### 5797#       发表于 2025-2-22 07:48
+
+昨晚碰到人死光了增援不下来，预算被贪了。
+箭头：我们更新了新的bugs（双重意味）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
