@@ -7128,3 +7128,36 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 ------------ 第6话 ------------</blockquote>
 参考本主题[23974L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67433700)的截图，应该把服装（穿校服应该是非休息日）和天气的变化也考虑进去，第七天祥子蹲了至少五天
 
+
+*****
+
+####  玖羽  
+##### 28702#       发表于 2025-2-22 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493685&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-22 18:17</a>
+
+参考本主题23974L的截图，应该把服装（穿校服应该是非休息日）和天气的变化也考虑进去，第七天祥子蹲了至 ...</blockquote>
+哦，我忽略了中间夹着一天私服
+
+私服说明是周日，这样一来每一天都能连起来
+
+*****
+
+####  玖羽  
+##### 28703#       发表于 2025-2-22 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493499&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-22 17:45</a>
+
+從狗開始， 這系構就是正事的時間是特別短，
+
+間奏的時間特別長</blockquote>
+冷知识：现在距离爱音从敦敦回国只过了半年多一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  adretyu67.  
+##### 28704#       发表于 2025-2-22 18:34
+
+还是CCC炸的太早了
+
