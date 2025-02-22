@@ -67,3 +67,13 @@
 
 战斗戏的时候给莲华外套下摆加长了吧，都成披风了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过帅就完事了
 
+
+*****
+
+####  stevenzero  
+##### 149#       发表于 2025-2-22 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491816&amp;ptid=2181381" target="_blank">haoshion 发表于 2025-2-22 12:21</a>
+战斗戏的时候给莲华外套下摆加长了吧，都成披风了不过帅就完事了</blockquote>
+这片妹子们的服饰风格都是制服外面加长外套，倒是挺对味的。
+

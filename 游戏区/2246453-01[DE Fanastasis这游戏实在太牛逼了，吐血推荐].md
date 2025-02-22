@@ -1776,3 +1776,15 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 这游戏有魂那种连续死两次负担就消失的设定吗</blockquote>
 有，但与魂有区别的地方在于经验和钱是分开的，死了只掉钱
 
+
+*****
+
+####  慕容断月  
+##### 150#       发表于 2025-2-22 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491484&amp;ptid=2246453" target="_blank">reoch 发表于 2025-2-22 11:42</a>
+有没有什么改键位的办法啊，还是习惯用wasd控制移动</blockquote>
+手柄玩吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
