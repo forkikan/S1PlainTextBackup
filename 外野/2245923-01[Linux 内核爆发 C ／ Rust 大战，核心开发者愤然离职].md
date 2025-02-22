@@ -68,3 +68,15 @@ linus最后还是忍不住下场了
 
 所以这真的不必是一个“全有或全无”的情况。
 
+
+*****
+
+####  tonyunreal  
+##### 132#       发表于 2025-2-22 20:52
+
+我还以为这种争执是为了迁就女人管人搞出来的 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+没想到真有这么多人捍卫编程语言
+
+我还是太年轻了
+
