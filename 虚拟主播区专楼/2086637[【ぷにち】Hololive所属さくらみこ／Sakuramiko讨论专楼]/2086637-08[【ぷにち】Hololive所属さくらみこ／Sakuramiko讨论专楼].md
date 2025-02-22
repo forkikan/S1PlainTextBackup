@@ -779,3 +779,54 @@ taiyaki今年还是一如既往的初日就开始在排长队的盛况，可见�
 
 2025-2-21 12:57 上传
 
+
+*****
+
+####  holofan  
+##### 10812#       发表于 2025-2-21 18:31
+
+<img src="https://img.saraba1st.com/forum/202502/21/183003tearkabwctkazbe9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/21/183019m6877k1w78tff7ef.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-21 18:30 上传
+
+空前的产能不足
+
+一个V的联动就能把sharp的本土产能干饱和
+
+*****
+
+####  holofan  
+##### 10813#       发表于 2025-2-22 12:52
+
+<img src="https://img.saraba1st.com/forum/202502/22/125025u1qt9fr2200qdqyq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/125205jf8s6qf56si1e6i2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 12:52 上传
+
+第一眼以为是AI图
+
+结果是前两天同人即卖会的时候sora跟raora说画miko本的插画的事
+
