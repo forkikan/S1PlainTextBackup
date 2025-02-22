@@ -18684,3 +18684,34 @@ X ⇒ 0
 
 又水莲又米莱的，那可以确定的应该是没有眼白
 
+
+*****
+
+####  gundammarkⅡ  
+##### 7349#       发表于 2025-2-22 14:20
+
+去地球是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/209334a5df3d67822f19bef05912bc1e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kuriri  
+##### 7350#       发表于 2025-2-22 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491267&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-22 11:11</a>
+
+这个联邦魔女看上去和玛秋差不多大，那就是17岁左右，一年战争时也就12岁，根本不是能参战的年龄，怎么就对 ...</blockquote>
+可能是在0079被夏亚驾驶的红高杀死的01高达的驾驶员的女儿或者妹妹吧
+
+
+*****
+
+####  mj240608414  
+##### 7351#       发表于 2025-2-22 14:25
+
+<blockquote>刺客ares 发表于 2025-2-22 11:11
+这个联邦魔女看上去和玛秋差不多大，那就是17岁左右，一年战争时也就12岁，根本不是能参战的年龄，怎么就对 ...</blockquote>
+日本动画出了名的不能看外表判断年龄
+
