@@ -256,3 +256,44 @@
 
 不过播片又短又快，还没反应过来就播完了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 7424#       发表于 2025-2-22 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493304&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-22 17:05</a>
+
+话说在0079哈罗应该是阿姆罗自己造的吧？那现在的这个哈罗莫非……</blockquote>
+平行世界改设定呗，gto的哈罗还是早就有的玩具呢，雷霆宙域的哈罗更是直接拿来实战了，这个世界0079都能整出来照射肩炮钢加农了，改个设定太正常不过了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 7425#       发表于 2025-2-22 21:32
+
+目前红高达的全套武装：
+
+光束步枪（疑似在17号卫星事件中丢失）
+
+盾牌（在side6对战gqx时掉件）
+
+光束军刀*2（目前仅存的武装）
+
+bit*6（所罗门掉件4个，side6掉件2个）
+
+流星锤（被联邦魔女摧毁）
+
+如果不上索冬进行补件，牢修在军团战真要开始手撕MS了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  g救世主高达  
+##### 7426#       发表于 2025-2-22 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493260&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-2-22 16:54</a>
+
+牢修真挂了谁来开得动这老爷机啊</blockquote>
+你高uc正史设定不是一堆能开的，菲尼克斯的机魂女莉塔，z高达男主卡缪<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，真把哈曼叫过来开高达也是轻轻松松，更不用说这个世界的鸭妹活的好好的，让他来开也够格阿
+
