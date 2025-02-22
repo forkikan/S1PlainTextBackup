@@ -7218,3 +7218,39 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 还是以前太krkrdkdk了
 
+
+*****
+
+####  白笛之音  
+##### 28710#       发表于 2025-2-22 19:22
+
+给vv表情包搜索器喂了点go和mujica的图。
+
+vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/22/192138d8k3cwcizoydu3ko.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-02-22 202043.png</strong> (293.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 19:21 上传
+
+*****
+
+####  非建政专用号  
+##### 28711#       发表于 2025-2-22 19:24
+
+不组乐队的话就无法生存
+
+假面骑士墨提斯，堂堂参上
+
+*****
+
+####  与太郎  
+##### 28712#       发表于 2025-2-22 19:27
+
+刚刚看了一下，祥子在MyGo第八话劝诱初华之后，回了一趟丰川家，这个时候应该就是找爷爷签投资协议了
+
+如果不是丰川家的支援，出道上G:WAVE的资源确实也找不到其他来源了，所以这个时候祥子的心态就是我一定要向爷爷证明自己<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
