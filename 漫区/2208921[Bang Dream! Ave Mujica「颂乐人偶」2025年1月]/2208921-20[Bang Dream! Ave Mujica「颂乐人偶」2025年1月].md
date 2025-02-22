@@ -6468,3 +6468,62 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职 ...</blockquote>
 我怎么觉得已经在描写了？这最后那个耳语，感觉也不是什么精神正常的人😂
 
+
+*****
+
+####  玖羽  
+##### 28656#       发表于 2025-2-22 15:48
+
+草
+
+<img src="https://img.saraba1st.com/forum/202502/22/154829xq66v8qb8dv5tdd8.jpg" referrerpolicy="no-referrer">
+
+<strong>07.jpg</strong> (23.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 15:48 上传
+
+*****
+
+####  cxj649  
+##### 28657#       发表于 2025-2-22 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492931&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-22 15:42</a>
+
+一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 28658#       发表于 2025-2-22 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492931&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-22 15:42</a>
+
+一丘之貉就是神人描写的另一种解释，不过话说回来这话对海铃的剧情描写太诙谐了加上，无论是她妈还是供职 ...</blockquote>
+海玲那段回忆，配一个喵梦不耐烦的回应，应该是在暗示它没有触及海玲问题的本质，而只是一个浅层的甚至是避重就轻的表达。所以特意用喵梦来消解这件事的沉重感。
+
+*****
+
+####  aptx8285144  
+##### 28659#       发表于 2025-2-22 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492939&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-22 15:43</a>
+
+我怎么觉得已经在描写了？这最后那个耳语，感觉也不是什么精神正常的人😂 ...</blockquote>
+我有这样“描写不足”的感觉，大概是因为母鸡卡前面神人描写的下限已经够多或者低了，海铃这种程度的异常甚至感觉还不够异常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 28660#       发表于 2025-2-22 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492877&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-22 15:29</a>
+
+如果是个一般人写剧本，和staff关系最好的反而应该是初华，奈何独角兽这群人不是一般人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">初华问题在于前几集但凡她能去问立希或者爱灯还算有正常交际，毕竟她是知道C团的
+
+但这几集就感觉她交际面太窄了2333
+
