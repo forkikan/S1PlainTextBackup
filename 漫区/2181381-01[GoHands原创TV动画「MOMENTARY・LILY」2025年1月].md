@@ -59,3 +59,11 @@
 
 这集有武器特写，女主武器最少是大剑+双刀+大提琴拼起来的
 
+
+*****
+
+####  haoshion  
+##### 148#       发表于 2025-2-22 12:21
+
+战斗戏的时候给莲华外套下摆加长了吧，都成披风了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过帅就完事了
+

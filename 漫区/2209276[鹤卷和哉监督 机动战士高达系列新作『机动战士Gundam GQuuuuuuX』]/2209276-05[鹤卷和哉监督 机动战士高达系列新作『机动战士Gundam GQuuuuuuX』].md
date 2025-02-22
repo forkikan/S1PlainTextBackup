@@ -18450,3 +18450,47 @@ MSの中？でシュウジの寝顔を見つめるマチュ
 
 2025-2-22 12:12 上传
 
+
+*****
+
+####  CSWQ  
+##### 7330#       发表于 2025-2-22 12:16
+
+说不定天赋异禀和胡索小朋友一样呢
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jojonathan  
+##### 7331#       发表于 2025-2-22 12:16
+
+喵安要当叛徒了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">还有联邦的魔女能不能活下来啊
+
+*****
+
+####  Sliurus  
+##### 7332#       发表于 2025-2-22 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491769&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-2-22 12:16</a>
+
+说不定天赋异禀和胡索小朋友一样呢
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+胡索从小就进行斯巴达式训练的
+
+
+*****
+
+####  纪寞  
+##### 7333#       发表于 2025-2-22 12:20
+
+那到底去不去地球啊，又说想写F91和80那样殖民卫星的故事，突然又跑出来说要去地球。
+
+*****
+
+####  Gysumitka  
+##### 7334#       发表于 2025-2-22 12:22
+
+沙仑玫瑰位置直接说了，包去的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 总不能玫瑰来打黑拳
+

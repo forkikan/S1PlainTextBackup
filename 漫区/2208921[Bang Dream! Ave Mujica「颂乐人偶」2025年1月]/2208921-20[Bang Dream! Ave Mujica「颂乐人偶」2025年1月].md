@@ -5758,3 +5758,24 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 此时背后传来声音  ...</blockquote>
 迷途之子续作：迷家
 
+
+*****
+
+####  aptx8285144  
+##### 28593#       发表于 2025-2-22 12:18
+
+ 本帖最后由 aptx8285144 于 2025-2-22 12:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491578&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-22 11:53</a>
+
+海鈴从外来，与坐谈，问海鈴曰：“吾C和弦与木公孰善？”海鈴曰：“木公不若君之善也‘ ...</blockquote>
+我刚才转了一圈，反而感觉对这个剧本有更清醒认知了，其他分析或许还有求证过深的嫌疑，但有人指出一句大瞄说的话：<strong>海铃你是受虐狂吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，而睦党的破防也是某种程度的必然
+
+*****
+
+####  ziqing  
+##### 28594#       发表于 2025-2-22 12:22
+
+刚刚看了下欧美流媒体数据，母鸡卡也太路边了，评分人数是独自升级的500分之一
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
