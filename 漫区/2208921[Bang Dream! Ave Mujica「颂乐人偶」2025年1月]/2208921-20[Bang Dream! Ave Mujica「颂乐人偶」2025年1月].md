@@ -7405,3 +7405,18 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 海铃这人真挺恶劣的，立希一句话就让她不爽了几天，这集立希请客时也是一脸敌视，重组am的初始动机也是因为妒忌，如果是妒忌立希的话，海希关系也要重新审视了。
 
+
+*****
+
+####  天空塔书记官  
+##### 28725#       发表于 2025-2-22 20:14
+
+ 本帖最后由 天空塔书记官 于 2025-2-22 20:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494216&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-2-22 20:04</a>
+海铃这人真挺恶劣的，立希一句话就让她不爽了几天，这集立希请客时也是一脸敌视，重组am的初始动机也是因为 ...</blockquote>
+“憧憬”和“嫉妒”本就是两面一体的，都是对方拥有了自己所缺少的东西，所以我觉得海铃想重组A团的目的之一就是为了“杀死”CCC，因为CCC也是初中组起来的乐队，历经波折还能聚到一起，而自己的乐队却分崩离析，成员大概也老死不相往来
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

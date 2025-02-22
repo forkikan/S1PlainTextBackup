@@ -1826,3 +1826,22 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 有个隐藏房间会告诉你只有从左边推才能推开
 
+
+*****
+
+####  zero33333  
+##### 155#       发表于 2025-2-22 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67444164&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-2-17 01:07</a>
+
+QQ群里的热心网友拼的，群文件里有全套，群号：972766253</blockquote>
+加群没人放行
+
+
+*****
+
+####  水边井  
+##### 156#       发表于 2025-2-22 20:11
+
+wiki说大教堂隐藏海岸的密码在圣人隐藏房间，这是哪里？
+
