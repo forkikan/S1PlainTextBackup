@@ -135,3 +135,16 @@
 
 另一个是上前面有人说过看过企划书的人说是季番
 
+
+*****
+
+####  纪寞  
+##### 7414#       发表于 2025-2-22 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493153&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-22 16:28</a>
+
+牢
+
+修，危</blockquote>
+这副官知道这么多东西吗？这发言有点怪啊。
+

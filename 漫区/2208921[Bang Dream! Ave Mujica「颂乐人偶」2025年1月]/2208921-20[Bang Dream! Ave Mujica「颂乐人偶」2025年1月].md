@@ -7161,3 +7161,27 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 还是CCC炸的太早了
 
+
+*****
+
+####  非建政专用号  
+##### 28705#       发表于 2025-2-22 18:49
+
+感觉一到大数字的环节，编剧都是闭眼随便roll一个的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  天空塔书记官  
+##### 28706#       发表于 2025-2-22 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493403&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-22 17:24</a>
+等会儿，看指甲的不是若麦吗？</blockquote>
+另外，问下楼友这动图是自己做的吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
