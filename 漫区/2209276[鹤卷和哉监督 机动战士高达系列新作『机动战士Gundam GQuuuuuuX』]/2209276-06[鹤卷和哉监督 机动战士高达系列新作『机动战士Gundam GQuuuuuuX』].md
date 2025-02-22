@@ -297,3 +297,27 @@ bit*6（所罗门掉件4个，side6掉件2个）
 牢修真挂了谁来开得动这老爷机啊</blockquote>
 你高uc正史设定不是一堆能开的，菲尼克斯的机魂女莉塔，z高达男主卡缪<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，真把哈曼叫过来开高达也是轻轻松松，更不用说这个世界的鸭妹活的好好的，让他来开也够格阿
 
+
+*****
+
+####  g救世主高达  
+##### 7427#       发表于 2025-2-22 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494789&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-22 21:32</a>
+
+目前红高达的全套武装：
+
+光束步枪（疑似在17号卫星事件中丢失）
+
+盾牌（在side6对战gqx时掉件）</blockquote>
+就开头红高达引起爆炸那个强度，tv第六集就开始跟独角兽一样放精神力波干人我都觉得没问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+u=4051794692,1280139584&amp;fm=253&amp;fmt=auto&amp;app=120&amp;f=JPEG.webp
+(29.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/213900i44agtzcr33atdb9.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
