@@ -7115,3 +7115,16 @@ mygo时期大喵主要戏份都指向爱音喜欢看的视频博主
 
 2025-2-22 17:48 上传
 
+
+*****
+
+####  结衣小比取  
+##### 28701#       发表于 2025-2-22 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493521&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-22 17:48</a>
+
+6、7、8话时间线，由于缺乏确定的锚点，其中包含大量推测
+
+------------ 第6话 ------------</blockquote>
+参考本主题[23974L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67433700)的截图，应该把服装（穿校服应该是非休息日）和天气的变化也考虑进去，第七天祥子蹲了至少五天
+
