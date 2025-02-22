@@ -1425,3 +1425,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  xinfengj  
+##### 5801#       发表于 2025-2-22 19:54
+
+掠食刷佛里了，这下极致享受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

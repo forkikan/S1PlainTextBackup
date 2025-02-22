@@ -7329,3 +7329,52 @@ vv老师一针见血啊<img src="https://static.saraba1st.com/image/smiley/face2
 私服说明是周日，这样一来每一天都能连起来 ...</blockquote>
 嗯？日本高中周六也要上学吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 28718#       发表于 2025-2-22 19:49
+
+<blockquote>ryuusu 发表于 2025-2-22 19:39
+邦3年的文化祭是改时间了还是被鸡狗跳过了</blockquote>
+沒有了，
+
+雞的時間推得像飛一樣 （連泳裝回也沒有！）
+
+明明顯是WSD 等不及想推第四年了
+
+
+*****
+
+####  与太郎  
+##### 28719#       发表于 2025-2-22 19:52
+
+劝诱初华→soyo找睦开盒小祥→飞鸟山之战
+
+那么这个时候，睦应该已经和小祥一起组mujica了
+
+所以soyo问睦要不要复活ccc，睦才沉默了，是不能而不是不想
+
+*****
+
+####  aptx8285144  
+##### 28720#       发表于 2025-2-22 19:52
+
+ 本帖最后由 aptx8285144 于 2025-2-22 19:54 编辑 
+
+......说得一生出来就具有演员天赋，然后搞出双重人格，多重人格甚至 否定人格都能把角色党骗进来杀就很有少女乐队番风格一样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 28721#       发表于 2025-2-22 19:54
+
+ 本帖最后由 天空塔书记官 于 2025-2-22 19:58 编辑 
+
+人确实就是从出生开始就会模仿啊，高级动物都是如此，这是生物的本能，只不过睦的能力太强了而已<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+演得太像，入戏太深，认不清哪个是自己，分不清戏里戏外
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
