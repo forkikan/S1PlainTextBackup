@@ -19257,3 +19257,34 @@ WechatIMG450.jpg
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  岸浪白野  
+##### 7395#       发表于 2025-2-22 17:47
+
+<img src="https://img.saraba1st.com/forum/202502/22/174750fje67yyjjjpgjfga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 17:47 上传
+
+*****
+
+####  jojonathan  
+##### 7396#       发表于 2025-2-22 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493515&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-22 17:47</a></blockquote>
+这样看在精密光学仪器边上装火神炮感觉更诡异了<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">不过这作至少火神炮尺寸是对的
+
+
+*****
+
+####  积木23ki  
+##### 7397#       发表于 2025-2-22 17:52
+
+山下：认真地介绍自己的设计思路
+拼装部：nm
+
