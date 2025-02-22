@@ -19040,3 +19040,64 @@ X ⇒ 0
 
 最后出现标题：魔女与战争
 
+
+*****
+
+####  Gysumitka  
+##### 7376#       发表于 2025-2-22 16:37
+
+<img src="https://p.sda1.dev/22/9c6e468196222ebefa6ea389ad42e309/image.jpg" referrerpolicy="no-referrer">
+
+机翻：果然一年战争胜利后的吉翁内战就是你这家伙搞的"基连的野望"对吧
+新登场的对手是个留着齐刘海的女生（好可爱），听说是曾经被红色高达用MAV击败过的，应该是01高达的驾驶员吧？
+那人开着拆掉加农炮的轻装加农型，到底该怎么称呼这种机型啊
+然后是吉姆。最让人期待的果然还是吉姆的登场...记得是淡绿色涂装，总有种像奥古阵营吉姆II的感觉呢。
+
+*****
+
+####  RE㐅ia  
+##### 7377#       发表于 2025-2-22 16:38
+
+<img src="https://img.saraba1st.com/forum/202502/22/163744djffxek44mee9txa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>631E7C38-5E19-448B-BFF1-86D2168771BA.jpeg</strong> (194.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202502/22/163744t43zuxuud3mapxxe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4CA8099A-B07F-4BC9-AE7C-677AD85FCF05.jpeg</strong> (221.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 16:37 上传
+
+*****
+
+####  岸浪白野  
+##### 7378#       发表于 2025-2-22 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493183&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-22 16:34</a>
+唔唔唔好想看啊盗录快点出现啊
+
+特别影像时长约3分钟</blockquote>
+前面早发过了
+
+
+*****
+
+####  刺客ares  
+##### 7379#       发表于 2025-2-22 16:41
+
+联邦的魔女，追杀红高达的复仇鬼——
+
+<img src="https://img.saraba1st.com/forum/202502/22/164155vfc08qek6q6wdcec.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0453.jpeg</strong> (13.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 16:41 上传
+
