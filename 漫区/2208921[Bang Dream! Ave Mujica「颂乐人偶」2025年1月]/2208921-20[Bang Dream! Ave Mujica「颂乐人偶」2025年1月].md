@@ -6405,3 +6405,15 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 
 金毛大狗狗属实惨了，舍不得碰的蓝色章鱼已经被恐怖黄瓜人当狗，被恐怖大只女当众SOX，下面可能要被恐怖支配人抓去背锅。
 
+
+*****
+
+####  抽搐一下  
+##### 28650#       发表于 2025-2-22 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492721&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-2-22 14:53</a>
+今天想到一个新的思路，现在的吉他睦才是稳定的单一人格。她出来之后其他的人格都死了，但是没有完全死，而 ...</blockquote>
+我也猜是有融合过，开始溺水那里看着像mortis但却是常服。上一集开始睦主动道歉也不像是原来的小睦会干的事
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
