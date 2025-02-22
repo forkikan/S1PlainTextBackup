@@ -6039,3 +6039,90 @@ wsd的烂炒到是切合这个唬头，我下意识得出一个元凶结论
 
 可惜了，ED真挺好听的
 
+
+*****
+
+####  假意不是虚情  
+##### 28615#       发表于 2025-2-22 13:27
+
+<blockquote>plusSharp 发表于 2025-2-21 23:55
+睦双重人格是台词明示的，灯阿斯伯格又是哪来的说法，真把疾病当“银弹”用？ ...</blockquote>
+灯是否真的是谱系并不重要，这和某些套皮历史神话人物那种对着wiki抄的一个味道，取材自什么很明显。
+
+*****
+
+####  aptx8285144  
+##### 28616#       发表于 2025-2-22 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492188&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-22 13:19</a>
+
+問題主要是母雞卡自己的劇情風格也是割裂的
+
+母雞卡跟迷狗風格不一樣是可以接受的</blockquote>
+怎么说呢，在中午，思路可能不清晰，有说不准地方多包涵，我目前印象当中是这样的，如果只有母鸡卡的这几个神人或者彼此面对时，或者说独自行动时，剧情是母鸡卡画风，但是一旦出现哪怕一个狗团的人，那剧情画风又会变得很像青春色彩，
+
+<strong>但是这里有根本上的矛盾割裂感是因为大祥和睦偏偏在go团<strong>时期</strong>就有一定的戏份</strong>，海铃和初华应该相对少一点，大瞄更少一点，于是乎很多风格看起来左右横挑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 28617#       发表于 2025-2-22 13:29
+
+当你失去自信的时候想想这个长崎素食，她曾经想用自己精湛的演技骗过古神睦头
+<img src="https://p.sda1.dev/22/5385469681735fbd9836fbcd5f853f5a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28618#       发表于 2025-2-22 13:30
+
+还是至今就一次live的含水量有点高了。
+
+*****
+
+####  阿兹尔  
+##### 28619#       发表于 2025-2-22 13:30
+
+喵梦和staff的关系好像莫名地好
+
+*****
+
+####  半年  
+##### 28620#       发表于 2025-2-22 13:30
+
+<img src="https://img.saraba1st.com/forum/202502/22/133044kzuum5mvkq53sx0j.jpg" referrerpolicy="no-referrer">
+
+<strong>GkQtlXsXIAARQ5l.jpg</strong> (473.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 13:30 上传
+
+[https://x.com/bpdyume/status/1892687881937858695/photo/1](https://x.com/bpdyume/status/1892687881937858695/photo/1)
+
+*****
+
+####  阿兹尔  
+##### 28621#       发表于 2025-2-22 13:32
+
+睦这个古神其实挺塑料的，对外屁用没有，soyo温柔对待一年，后面退黄瓜就破防
+
+*****
+
+####  aptx8285144  
+##### 28622#       发表于 2025-2-22 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492275&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-22 13:30</a>
+
+还是至今就一次live的含水量有点高了。</blockquote>
+别说含水了，还很难听（
+
+*****
+
+####  南宮凝香  
+##### 28623#       发表于 2025-2-22 13:34
+
+<blockquote>adretyu67. 发表于 2025-2-22 13:30
+还是至今就一次live的含水量有点高了。</blockquote>
+Live？ 羊叫！
+
