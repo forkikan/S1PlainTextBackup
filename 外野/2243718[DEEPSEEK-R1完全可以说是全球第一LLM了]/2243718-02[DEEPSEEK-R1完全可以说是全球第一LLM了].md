@@ -6372,3 +6372,14 @@ api直连就支持联网？
 
 传火
 
+
+*****
+
+####  Algie  
+##### 2052#       发表于 2025-2-22 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491633&amp;ptid=2243718" target="_blank">bixinhaner 发表于 2025-2-22 11:59</a>
+
+api直连就支持联网？</blockquote>
+不是，要另外折腾一下，具体可以搜一下教程
+

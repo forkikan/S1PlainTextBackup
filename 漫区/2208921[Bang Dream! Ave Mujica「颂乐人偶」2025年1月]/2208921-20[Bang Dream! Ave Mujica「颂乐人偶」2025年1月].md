@@ -5779,3 +5779,16 @@ mygo前期主视角是爱音，但剧情到了中期后 最核心 最重要的�
 
 —— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  与太郎  
+##### 28595#       发表于 2025-2-22 12:33
+
+mujica宣传自己是推理小说，观众以为是本格，柿本以为自己写的是新本格，其实这是个社会派（）
+
+关于睦的人设问题，既然声优本人都不知道多重人格设定，那从根本上来说MyGO时期观众能感受到的要素不会超出「裏表のある人」这个级别
+
+另外这段采访的日文原文有人发过吗
+[https://www.saraba1st.com/2b/for ... 21&amp;pid=67133652](https://www.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67133652)
+

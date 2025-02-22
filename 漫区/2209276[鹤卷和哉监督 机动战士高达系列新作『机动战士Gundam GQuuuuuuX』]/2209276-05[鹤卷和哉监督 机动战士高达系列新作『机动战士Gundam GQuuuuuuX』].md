@@ -18494,3 +18494,46 @@ MSの中？でシュウジの寝顔を見つめるマチュ
 
 沙仑玫瑰位置直接说了，包去的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 总不能玫瑰来打黑拳
 
+
+*****
+
+####  虛無迴廊  
+##### 7335#       发表于 2025-2-22 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491640&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-2-22 12:00</a>
+街机里牢修有这一句台词，当时看到就想起拉拉和骡子打的时候，拉拉说鸭子碍事，现在既然麻球会觉得修司太快 ...</blockquote>
+没用了就变脸，冷酷的坏男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psycho_Gadfly  
+##### 7336#       发表于 2025-2-22 12:26
+
+真去地球，写内斗，剧情暴走风险较大<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+但是好刺激，想看啊。。。（不行就切割<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 7337#       发表于 2025-2-22 12:28
+
+开始扯这些东西就感觉就完全不是季番能讲完的，保底24集分割放送了
+
+
+*****
+
+####  纪寞  
+##### 7338#       发表于 2025-2-22 12:30
+
+13集也包不下这么多东西啊，真怕出问题了。光地球降下就得塞一整集了。
+
+*****
+
+####  刺客ares  
+##### 7339#       发表于 2025-2-22 12:31
+
+确实，扯上联邦的人，再加上扎比家内战的背景，主线还要往地球去，还要讲三人关系性
+
+13集怎么都不可能塞得下了吧？
+
