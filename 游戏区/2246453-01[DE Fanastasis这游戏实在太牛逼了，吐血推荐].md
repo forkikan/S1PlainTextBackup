@@ -1800,3 +1800,13 @@ PS：既然你刚玩，我猜锁住的门对应海岸巫女的两个住处。两
 
 现在拿到油了....
 
+
+*****
+
+####  kerbad  
+##### 152#       发表于 2025-2-22 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67491489&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-22 11:42</a>
+吐了，海底隧道什么逼图啊，一万张小地图传送点稀少还限制你移动，自带地图不区分不标注基本是个废功能，逃 ...</blockquote>
+我看玩付费版的人都在吐槽大改过的海底隧道难走，我玩免费版的时候除了溜冰以外对这段图都没什么印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

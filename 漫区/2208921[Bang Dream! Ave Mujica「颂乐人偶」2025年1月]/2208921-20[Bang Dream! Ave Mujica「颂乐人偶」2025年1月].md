@@ -6630,3 +6630,28 @@ wsd非要这么极端，才纵容独角兽xp放出吧。鸡大纲上的大问题
 
 就她演得像天人永隔一樣
 
+
+*****
+
+####  玖羽  
+##### 28668#       发表于 2025-2-22 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67493021&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-22 16:00</a>
+
+初華就是被Ban 了
+
+長期素食小姐還懂堵羽丘門 （兩次）</blockquote>
+自卑吧，祥子对她来说是高高在上的大小姐，如果不谈假药，初华甚至可能不知道祥子的贫穷生活
+
+
+*****
+
+####  天空塔书记官  
+##### 28669#       发表于 2025-2-22 16:12
+
+所以喜剧化处理是对的，海铃的戏份明显被砍过了，篇幅不够没法当成新的故事焦点来展开
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
