@@ -18649,3 +18649,38 @@ X ⇒ 0
 
 数字“69”中，“6”与“9”互为倒影，首尾相接，构成一个完整的循环。如同αΩ既是开始又是终结。
 
+
+*****
+
+####  刺客ares  
+##### 7347#       发表于 2025-2-22 14:10
+
+推上有宝批看了新增影像觉得联邦魔女像水莲
+
+<img src="https://img.saraba1st.com/forum/202502/22/140401pnaq8qdeaeyj4r1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 14:04 上传
+
+还有一些repo觉得她像少女版米莱
+
+<img src="https://img.saraba1st.com/forum/202502/22/141030tb5sqbfczb18q5cs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 14:10 上传
+
+虽然年龄和米莱本人对不上，但可能有亲戚关系
+
+*****
+
+####  没取名啊  
+##### 7348#       发表于 2025-2-22 14:11
+
+又水莲又米莱的，那可以确定的应该是没有眼白
+
