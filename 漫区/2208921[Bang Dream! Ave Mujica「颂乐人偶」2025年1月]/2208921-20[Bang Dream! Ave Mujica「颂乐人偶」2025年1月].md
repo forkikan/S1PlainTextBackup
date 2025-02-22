@@ -7798,3 +7798,29 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 
 话说海铃似乎是独角兽以现实中一个兼职10个乐队的jk为原型写的
 
+
+*****
+
+####  发条之心  
+##### 28759#       发表于 2025-2-22 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67494421&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-22 20:37</a>
+
+感慨一句，前五集时我觉得祥子的变化和状态编剧都把握得很好，其他角色虽然很工具但只要祥子处理好就能鸡犬 ...</blockquote>
+逻辑上处理得可能没问题，但框架上已经烂完了
+
+*****
+
+####  cccpprc  
+##### 28760#       发表于 2025-2-22 22:52
+
+<img src="https://img.saraba1st.com/forum/202502/22/225150vh1izat1klilwmhh.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-3i8nK1oT3cSk0-sn.jpg</strong> (62.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-22 22:51 上传
+
+鸡这个神人剧情，真是让人产生愿往后不复生于少女乐队的感觉（确信）
+
