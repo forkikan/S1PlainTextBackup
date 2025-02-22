@@ -6467,3 +6467,13 @@ https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY
 传火
 [https://www.volcengine.com/exper ... QY5&amp;rc=KVG9DUBI](https://www.volcengine.com/experience/ark?utm_term=202502dsinvite&amp;ac=DSASUQY5&amp;rc=KVG9DUBI)
 
+
+*****
+
+####  脸宽  
+##### 2061#       发表于 2025-2-22 23:49
+
+在云服务器上第一次尝试docker-compose，然后全程靠 r1 解惑。第一次感觉让小白都能学明白
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

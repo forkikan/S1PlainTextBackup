@@ -1504,3 +1504,25 @@ QQ20250221-003932.jpg
 
 参加完鲑鱼比赛开了波塞冬神庙的传送，拿了庭院的钥匙，接下来去哪里？我看WIKI上说要开首都东侧的一扇门去峭壁，但是门在哪里？
 
+
+*****
+
+####  kerbad  
+##### 127#       发表于 2025-2-22 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495410&amp;ptid=2068019" target="_blank">blueelf 发表于 2025-2-22 23:27</a>
+
+参加完鲑鱼比赛开了波塞冬神庙的传送，拿了庭院的钥匙，接下来去哪里？我看WIKI上说要开首都东侧的一扇门去 ...</blockquote>
+就是庭院东侧的门，其实你一开始没钥匙的时候就能从陆行龙牧场跳跳乐过去，不过中间有条沟只能用龙加速跳
+
+
+*****
+
+####  blueelf  
+##### 128#       发表于 2025-2-22 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495525&amp;ptid=2068019" target="_blank">kerbad 发表于 2025-2-22 23:52</a>
+
+就是庭院东侧的门，其实你一开始没钥匙的时候就能从陆行龙牧场跳跳乐过去，不过中间有条沟只能用龙加速跳 ...</blockquote>
+城门口右侧那个吗？打开了只能上城墙，城墙右边被塔楼挡住了哪里都去不了啊？
+
