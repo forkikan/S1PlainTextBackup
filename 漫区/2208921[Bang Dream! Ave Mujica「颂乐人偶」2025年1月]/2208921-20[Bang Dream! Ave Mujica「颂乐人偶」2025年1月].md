@@ -7849,3 +7849,80 @@ mujica宣传自己是推理小说，观众以为是本格，柿本以为自己�
 
 是GBC的世界太不抗造了。
 
+
+*****
+
+####  hysjmr  
+##### 28763#       发表于 2025-2-22 23:05
+
+ 本帖最后由 hysjmr 于 2025-2-22 23:08 编辑 
+
+还是CCC和解写得太烂了，回忆C团快乐时光干嘛，应该回忆的是组成CCC之前各个成员的内耗啊，这不才是组乐队的初心吗
+
+日本人脑回路太惊奇，这个时候就是应该用开窗户的哲学，你说CCC伤害过大家，想想没有CCC更烂，大家自然而然就会念CCC的好了，这不比7集这个脑控和解强一万倍
+
+*****
+
+####  世界如此可爱  
+##### 28764#       发表于 2025-2-22 23:07
+
+草 虽然大家很多人认为睦头刚出生没几岁演技就出神入化非常扯淡，一点都不现实。
+
+但我突然想到母鸡卡TM和少歌是共用一个世界观的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+既然光三岁和恋五岁小孩时就能看懂歌剧，并且产生了成熟人格才能有的对闪耀的追逐和执念，而且还有长颈鹿和舞台装置。
+
+那TM睦头在邦邦片场变个异来个演绎之神神降好像也不是很难接受的事了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28765#       发表于 2025-2-22 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495293&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-22 23:05</a>
+
+还是CCC和解写得太烂了，回忆C团快乐时光干嘛，应该回忆的是组成CCC之前各个成员的内耗啊，这不才是组乐队 ...</blockquote>
+第七话还是有一句的
+ <blockquote>满脑子只有自己的我们</blockquote>
+
+感觉这话都快成鸡狗专用批评公式了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plusSharp  
+##### 28766#       发表于 2025-2-22 23:09
+
+莫回头看海铃的画面感觉上比第四集还开朗，如果没背吉他就完美了
+
+
+*****
+
+####  HereLink  
+##### 28767#       发表于 2025-2-22 23:10
+
+<blockquote>adretyu67. 发表于 2025-2-22 23:08
+第七话还是有一句的
+
+</blockquote>
+估计到结尾之后十个人都用得上😂😂
+
+*****
+
+####  海底铁锚  
+##### 28768#       发表于 2025-2-22 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495233&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-22 22:52</a>
+鸡这个神人剧情，真是让人产生愿往后不复生于少女乐队的感觉（确信）</blockquote>
+鸡这个剧情目前看下来有一点好，就是告诫观众生活中遇到这些神人尽量远离，沾染因果的下场就是被拖入无尽泥潭。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  琉璃奇迹心似钻  
+##### 28769#       发表于 2025-2-22 23:13
+
+<blockquote>fsfs_freeze 发表于 2025-2-20 23:54
+祥子在现实世界里肯定不是没反应，但是她肯定不敢真的动手去干涉睦和mortis大战，只能偶尔说两句话而已（ ...</blockquote>
+这能不一把抱住？看着手舞足蹈左右互搏不怕睦撞到东西？
+
