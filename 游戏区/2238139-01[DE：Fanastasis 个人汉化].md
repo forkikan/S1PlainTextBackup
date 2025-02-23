@@ -200,3 +200,21 @@ app下好也装了 没有跳转下载RTP啊
 app下好也装了 没有跳转下载RTP啊</blockquote>
 你先把游戏拷到手机里  它就会提示你该下什么了
 
+
+*****
+
+####  cym887  
+##### 145#       发表于 2025-2-23 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497308&amp;ptid=2238139" target="_blank">shinnfin 发表于 2025-2-23 12:03</a>
+
+你先把游戏拷到手机里  它就会提示你该下什么了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">该设置啥按键来着 现在只有方向键能使 进不了游戏
+
+*****
+
+####  cym887  
+##### 146#       发表于 2025-2-23 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不对 z能进游戏 但是读档失败了 有没有存档转换工具?
+
