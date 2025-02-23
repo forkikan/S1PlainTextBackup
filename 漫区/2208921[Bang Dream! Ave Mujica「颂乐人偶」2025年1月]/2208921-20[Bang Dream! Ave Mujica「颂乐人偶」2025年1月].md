@@ -9939,3 +9939,54 @@ DS这个分析也是上不去下不来卡在那了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  非建政专用号  
+##### 28944#       发表于 2025-2-23 16:14
+
+独角兽能自我代入点正常人吗，含神量100%了
+
+*****
+
+####  ads147147  
+##### 28945#       发表于 2025-2-23 16:15
+
+初华双子的意义在哪里，这里为了个莫名其妙的理由说嘿，我们的主唱大人其实是双子之一？莫名其妙 。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 28946#       发表于 2025-2-23 16:18
+
+说不定只是为了sumimi不解散(
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 28947#       发表于 2025-2-23 16:18
+
+我寻思了下，最后爆出来是一个人却带两人份的情吧。
+
+过去的真初华和祥子，现在的伪初华和祥子。一个人能做到双人份的重力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 28948#       发表于 2025-2-23 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498697&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-23 16:18</a>
+我寻思了下，最后爆出来是一个人却带两人份的情吧。
+
+过去的真初华和祥子，现在的伪初华和祥子。一个人能做 ...</blockquote>
+两个都是真初华吧，星星和月亮在童年回忆里都出现了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
