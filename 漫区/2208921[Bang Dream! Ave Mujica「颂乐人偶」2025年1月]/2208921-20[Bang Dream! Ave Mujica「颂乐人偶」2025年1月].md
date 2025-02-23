@@ -10369,3 +10369,25 @@ soyo一个人躺在大平层里玩手机的时候，接收到了灯对太空发�
 
 mujica目前碰不了空之境界不了一点，单说音乐OP和ED属于不好不坏的水平，比不上oblivious,傷跡和君が光に変えて行く ,bgm就算抛去第七集的两首歌也没有一段能和M09比
 
+
+*****
+
+####  cccpprc  
+##### 28984#       发表于 2025-2-23 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498524&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-23 15:48</a>
+
+闻气味这个太狗了武士道已经不满足于立传写经历了，要把生活癖好都插角色身上 ...</blockquote>
+立传写经历还行
+
+高尾家杀了柿本她妈么高尾的角色这么被安排啊
+
+*****
+
+####  Raven314  
+##### 28985#       发表于 2025-2-23 19:19
+
+看到楼友说初华气味控是李子逆输入，虽然不能否定这个可能，但是其实独角兽在轻拍魔女里也用了相似的设定<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/26c1a8f044e32334230c77d970e7ff7d/image.jpg" referrerpolicy="no-referrer">
+除此之外，帕皮卡同样是可可娜“小姨（妈妈闺蜜）”这部动画独角兽同样是系构最后还和制作组切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
