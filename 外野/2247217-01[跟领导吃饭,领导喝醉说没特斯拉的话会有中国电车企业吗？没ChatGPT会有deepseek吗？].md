@@ -410,3 +410,11 @@ chatgpt ...</blockquote>
 
 至于车，现实是东大救了特斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dongzi81  
+##### 48#       发表于 2025-2-24 05:29
+
+证明路径是要花很多很多钱的，发展中国家选择跟跑不是很明智吗╮(￣▽￣)╭
+
