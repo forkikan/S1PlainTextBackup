@@ -851,3 +851,15 @@ TV是4月番  不过这部如果是季番 根本讲不了多少东西呀 高�
 
 啊啊啊啊四月！！太好了
 
+
+*****
+
+####  王留美  
+##### 7471#       发表于 2025-2-23 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497995&amp;ptid=2209276" target="_blank">十万年魂环 发表于 2025-2-23 14:08</a>
+ 确实是阴间时间</blockquote>
+东京时间24:29就是北京时间23:29啊，日本那边可能略阴间但是这里刚刚好
+
+话说还真是新档期，日TV太有信心了
+
