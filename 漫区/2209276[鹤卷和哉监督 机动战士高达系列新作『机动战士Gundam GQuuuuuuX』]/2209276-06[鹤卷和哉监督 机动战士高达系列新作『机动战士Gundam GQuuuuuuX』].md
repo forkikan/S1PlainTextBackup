@@ -1577,3 +1577,18 @@ Gundam GQuuuuuuX Beginning Design Works
 
 —— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kuriri  
+##### 7532#       发表于 2025-2-24 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501867&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-2-24 02:53</a>
+
+红高对修司应该是亦父亦母的存在
+
+懂了，是司令和唯的合体</blockquote>
+再代入红高就是夏亚的话……
+
+夏亚就是亦父亦母的存在，太好了夏亚，你不用再寻找母亲了，因为你自己就是母亲
+
