@@ -164,3 +164,14 @@ app下来后会让你再跳转下载RTP和rm插件
 
 有人用sd玩过么？我试了下开60帧掉帧好严重 开30-40帧稳定点但还是有点卡
 
+
+*****
+
+####  cym887  
+##### 142#       发表于 2025-2-23 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67460479&amp;ptid=2238139" target="_blank">ftfkjb 发表于 2025-2-18 20:48</a>
+
+前面的朋友，你帖子我回复就出错，没法引用，我的链接是用idm下载的，你可试试。 ...</blockquote>
+idm下载 提示没有权限
+

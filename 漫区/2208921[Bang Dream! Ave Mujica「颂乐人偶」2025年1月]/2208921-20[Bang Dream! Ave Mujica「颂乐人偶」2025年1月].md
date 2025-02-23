@@ -8896,3 +8896,25 @@ MyGO的时候睦在这家KTV饮料机点的是什么没有明确说过，但是�
 
 另外睦走在前面也很正常，因为她本来就不是随便逛街是有目的地啊，走后面是想让睦脑控祥子往KTV走吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 28859#       发表于 2025-2-23 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">现阶段当然是睦只有两个，我的意思是就是第八集添加设定颠覆性过于巨大，不亚于天降个墨提丝，相当于重新造一个新的睦头人，
+mygo那个养黄瓜的小三无跟这第八集的人格古神当然可以是一个角色，但这是二偶企划，角色变化过大，有一部分观众会对这角色人品产生怀疑，这角色还卖吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  aptx8285144  
+##### 28860#       发表于 2025-2-23 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497138&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-23 11:29</a>
+
+现阶段当然是睦只有两个，我的意思是就是第八集添加设定颠覆性过于巨大，不亚于天降个墨提丝，相当于重新造 ...</blockquote>
+虽然但是，我觉得大瞄的变化也很大了，这姑且不论，如果按照最恶劣的解读，海玲这角色就不只是控制欲望强（如果只是领队角度，<strong>甚至都不能完全算缺点</strong>）而是有教唆犯和愉悦犯的潜质，这能卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
