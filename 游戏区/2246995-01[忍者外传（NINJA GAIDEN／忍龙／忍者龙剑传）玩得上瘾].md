@@ -474,3 +474,32 @@ FC美版叫Ninja Gaiden，Ninja外伝，然后外伝下面六个英文字母Gaid
 这也是为什么我认为NG可谓玩法结合叙事的巅峰之一，哪怕其剧情并不值论：它可贵地抓住了怎么让你／龍隼感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被枪兵一套绕后丝滑抹脖子，不好说谁更像忍者
 
+
+*****
+
+####  Xenor  
+##### 44#       发表于 2025-2-23 18:18
+
+感觉3D的忍龙都没2D好玩，人物一真实就缺少幻想，肌肉男主角一副凶相还长得跟异形一样，NS上的三作都吃灰一年多了连启都没启动过……感觉更偏向是个音乐节奏类游戏
+
+而2D忍龙好像又没这个好玩<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">至少打开能玩到1个小时，就是画面差了点甚至还不如FC
+
+<img src="https://img.saraba1st.com/forum/202502/23/181533n1gi4jvo17jenazb.jpg" referrerpolicy="no-referrer">
+
+<strong>r.jpg</strong> (317.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 18:15 上传
+
+*****
+
+####  逆城的风  
+##### 45#       发表于 2025-2-23 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499451&amp;ptid=2246995" target="_blank">Xenor 发表于 2025-2-23 18:18</a>
+感觉3D的忍龙都没2D好玩，人物一真实就缺少幻想，肌肉男主角一副凶相还长得跟异形一样，NS上的三作都吃灰一 ...</blockquote>
+这游戏叫啥？有点意思
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
