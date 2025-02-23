@@ -8962,3 +8962,71 @@ mygo那个养黄瓜的小三无跟这第八集的人格古神当然可以是一�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  与太郎  
+##### 28864#       发表于 2025-2-23 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497232&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 11:46</a>
+
+立希和海铃的人设和关系参考了前辈团PPP的吉他手多惠和RAS的初代佣兵瑞依，“兼职30多支乐队的贝斯手”源 ...</blockquote><blockquote>――そこは派手なキャラクターよりも、リアリティを優先したわけですね。そういった物語を描くにあたって、バンドのあり方や成り立ちについて調べることはあったのでしょうか？
+
+綾奈　実際にバンドをやっている高校生たちの様子を、けっこう調べましたね。小さなライブハウスを見に行ったり。海鈴（うみり）に反映したのですが、SNSで見ていたベースの子が、ある時期10個くらいバンドをかけ持ちしていて。
+
+――まるでセッションプレイヤーのように。
+
+綾奈　スーパーベーシストみたいな子って、本当にいるんだな～と。海鈴が「（バンドを）30個やってる」と言うのは、その子の話をもとにしています。10個からかなり盛りましたけど（笑）。</blockquote>是独角兽在网上视奸JK的时候，发现了一个加了10个乐队的，然后剧中放大到30个了
+
+*****
+
+####  aptx8285144  
+##### 28865#       发表于 2025-2-23 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497200&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-23 11:39</a>
+
+只能说哪怕按照NGA的全员恶人神人抱团论
+
+这神人也过头了
+
+有魅力的反派是很多的</blockquote>
+想起了全员恶玉.....少女乐队番看样子是“限制”十角两位大神的舞台，下次该去其他题材祸害一下吧（不是
+
+*****
+
+####  天空塔书记官  
+##### 28866#       发表于 2025-2-23 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495803&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-23 01:11</a>
+毕竟3+游戏，你邦在上学这方面正得跟老钟似的，非三大校那几个起码都要挂个艺校设定 ...</blockquote>
+除了还在初中的那两个，全员高中起步，不存在艺校，音乐高中和艺校不是一个概念，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  6030sylar  
+##### 28867#       发表于 2025-2-23 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497112&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-23 11:23</a>
+另外睦走在前面也很正常，因为她本来就不是随便逛街是有目的地啊，走后面是想让睦脑控祥子往KTV走吗 ...</blockquote>
+剧情的意思是这就是睦要跟祥子摊牌，在个私密的地方直观表达睦脑中左右互搏，逼祥子做抉择，然后祥子竟然是选择去复活ccc，其实放任牢墨去跟乌咪铃接触就已经暗示了若叶睦这个总体意识的倾向了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 28868#       发表于 2025-2-23 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497252&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-23 11:51</a>
+是独角兽在网上视奸JK的时候，发现了一个加了10个乐队的，然后剧中放大到30个了
+
+ ...</blockquote>
+所以说瑞依和海铃其实有同一个原型…emmm这性格反差真大啊，虽然主要是Raychell逆输入导致的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

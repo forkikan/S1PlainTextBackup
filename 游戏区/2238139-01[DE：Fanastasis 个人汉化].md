@@ -175,3 +175,18 @@ app下来后会让你再跳转下载RTP和rm插件
 前面的朋友，你帖子我回复就出错，没法引用，我的链接是用idm下载的，你可试试。 ...</blockquote>
 idm下载 提示没有权限
 
+
+*****
+
+####  cym887  
+##### 143#       发表于 2025-2-23 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67465624&amp;ptid=2238139" target="_blank">shinnfin 发表于 2025-2-19 14:44</a>
+
+直接去joiplay官网下就行
+
+app下来后会让你再跳转下载RTP和rm插件
+
+装完就能玩了（以上需要梯子）</blockquote>
+app下好也装了 没有跳转下载RTP啊
+
