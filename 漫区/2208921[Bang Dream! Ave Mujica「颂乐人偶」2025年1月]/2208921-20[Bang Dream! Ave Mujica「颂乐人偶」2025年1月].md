@@ -9799,3 +9799,62 @@ ep8：
 
 ds这么分析的
 
+
+*****
+
+####  zhoujin8584  
+##### 28932#       发表于 2025-2-23 15:36
+
+我怀疑下一集的推背感是因为需要回收的东西太多了，初华需要因为ccc破防，说明祥子这边还真能推动部分复辟进度，但是又不能真复辟，毕竟这是ave mujica的故事，祥子也被认定无法兼任，后面又要推莫的反弹，拉祥子组mujica，顺便把喵梦的输出回收，初华也得开始炸。最后莫反弹后又得因为第八话的旁白“人偶不是人”又要坠机，才能把live推迟到第十话吧。
+
+*****
+
+####  sauron.j  
+##### 28933#       发表于 2025-2-23 15:38
+
+这个2.5次元是不是中之人逆输入有点猛
+
+高尾 童子功钢琴、富家千金
+
+梦以 颜值焦虑、身材焦虑
+
+米泽茜 鼓手太拼命了
+
+节约宝 我吉他弹得太烂了
+
+李子 闻气味
+
+*****
+
+####  aptx8285144  
+##### 28934#       发表于 2025-2-23 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498331&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 15:12</a>
+
+假设初华也是一个模仿者，模仿的是自己的“姐妹”，而没有真正的“自我”，甚至是两个“初华”互相模仿，那 ...</blockquote>
+我刚才才意识到一个很简单的事实，“最狂”在绝大多时候不是一个褒义概念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  抽搐一下  
+##### 28935#       发表于 2025-2-23 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498302&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-2-23 15:08</a>
+
+说的是这个？</blockquote>
+对，是这个
+
+*****
+
+####  天空塔书记官  
+##### 28936#       发表于 2025-2-23 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498483&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-23 15:41</a>
+我刚才才意识到一个很简单的事实，“最狂”或者说“狂”这个字在绝大多时候不是一个褒义概念，那也难怪观 ...</blockquote>
+ave的“最狂”等同于“最神经”
+
+本来就不是褒义概念啊，从一开始预告出来的时候就是这感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
