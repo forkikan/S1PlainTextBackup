@@ -3609,3 +3609,15 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 想到了十几年前，战队从兽电开始到宇宙连续五年，年年反派有冷色调q娃配音的事了。那几年每年战队发新作情报猜今年轮到哪个q娃去挨打也是一大乐子（可惜在快警断掉了） ​​​
 
+
+*****
+
+####  cmyk1234  
+##### 603#       发表于 2025-2-23 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499531&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-2-23 18:35</a>
+所以呢？这几年加藤带大小姐写剧本所以大小姐再回Q娃片场就成了加藤关系户了？什么鬼逻辑。
+
+倒不如说相比 ...</blockquote>
+你说得对而且好
+
