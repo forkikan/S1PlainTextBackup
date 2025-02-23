@@ -9030,3 +9030,24 @@ mygo那个养黄瓜的小三无跟这第八集的人格古神当然可以是一�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 28869#       发表于 2025-2-23 12:02
+
+<blockquote>6030sylar 发表于 2025-2-23 11:55
+剧情的意思是这就是睦要跟祥子摊牌，在个私密的地方直观表达睦脑中左右互搏，逼祥子做抉择，然后祥子竟然 ...</blockquote>
+祥子选择说，这一次又选错了，这一次轮到大喵的大手把她摁回去搞鸡了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 28870#       发表于 2025-2-23 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497255&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 11:52</a>
+除了还在初中的那两个，全员高中起步，不存在艺校，音乐高中和艺校不是一个概念</blockquote>
+差不多意思，就是你以为这个角色是个社会人，他怎么都给你挂个在读好学生的身份
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

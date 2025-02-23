@@ -190,3 +190,13 @@ app下来后会让你再跳转下载RTP和rm插件
 装完就能玩了（以上需要梯子）</blockquote>
 app下好也装了 没有跳转下载RTP啊
 
+
+*****
+
+####  shinnfin  
+##### 144#       发表于 2025-2-23 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497218&amp;ptid=2238139" target="_blank">cym887 发表于 2025-2-23 11:44</a>
+app下好也装了 没有跳转下载RTP啊</blockquote>
+你先把游戏拷到手机里  它就会提示你该下什么了
+
