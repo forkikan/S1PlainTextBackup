@@ -1066,3 +1066,20 @@ OP（Gun Gale Online 2）
 
 喵安代表色是黄色=红色+绿色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  az一串字母  
+##### 7491#       发表于 2025-2-23 20:19
+
+ed什么的能不能拉熊光来一首
+
+
+*****
+
+####  虛無迴廊  
+##### 7492#       发表于 2025-2-23 20:23
+
+看见麻球这个正圆的头就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想到还有另一个豆丁敌役要跟麻球打起来就更想笑了，凶残恶犬打架但是两只吉娃娃.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
