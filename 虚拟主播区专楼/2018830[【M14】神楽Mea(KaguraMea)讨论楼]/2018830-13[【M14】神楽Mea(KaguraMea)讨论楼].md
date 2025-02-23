@@ -2705,3 +2705,19 @@ signater+鹰宫撸啊撸联动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sino__unnko3  
+##### 18089#       发表于 2025-2-24 00:26
+
+ 本帖最后由 sino__unnko3 于 2025-2-24 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501455&amp;ptid=2018830" target="_blank">术士q 发表于 2025-2-24 00:22</a>
+并不是直播内或者说和咩直接相关的。是指23年11月有传出字幕组解散。只是后面又不了了之。当时也很担心， ...</blockquote>
+据传苔姨介绍的，原霓虹B站分部的那位马内甲吧，据说跟你咩说过这边的坏话，
+有这些印象，但那时候还没存档的习惯，信息没剩多少
+后来应该是24年又雇了一位
+希望你咩没把时间线记错了
+
+你咩好像一直挺信赖马内甲
+
