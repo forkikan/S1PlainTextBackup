@@ -8918,3 +8918,47 @@ mygo那个养黄瓜的小三无跟这第八集的人格古神当然可以是一�
 现阶段当然是睦只有两个，我的意思是就是第八集添加设定颠覆性过于巨大，不亚于天降个墨提丝，相当于重新造 ...</blockquote>
 虽然但是，我觉得大瞄的变化也很大了，这姑且不论，如果按照最恶劣的解读，海玲这角色就不只是控制欲望强（如果只是领队角度，<strong>甚至都不能完全算缺点</strong>）而是有教唆犯和愉悦犯的潜质，这能卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cccpprc  
+##### 28861#       发表于 2025-2-23 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497171&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-23 11:34</a>
+
+虽然但是，我觉得大瞄的变化也很大了，这姑且不论，如果按照最恶劣的解读，海玲这角色就不只是控制欲望强 ...</blockquote>
+只能说哪怕按照NGA的全员恶人神人抱团论
+
+这神人也过头了
+
+有魅力的反派是很多的
+
+但是最有魅力反派潜质的角色你看现在下场是啥样的
+
+
+*****
+
+####  wsuFish  
+##### 28862#       发表于 2025-2-23 11:46
+
+<blockquote>与太郎 发表于 2025-2-23 11:23
+另外睦走在前面也很正常，因为她本来就不是随便逛街是有目的地啊，走后面是想让睦脑控祥子往KTV走吗 ...</blockquote>
+从前睦都是以祥子的跟班形式出现的，永远跟在祥子身后为了祥做事（包括对她来说其实很为难的事）。这一集祥子跟在睦的身后，是两者关系发生了颠倒，轮到祥子要为了睦去复辟c团了
+
+如果没有多重人格这些东西，这就是人物随剧情发展的正常变化，睦之前只是没有展露过自己的欲望。但有这些人格生生灭灭的烂炒设定，当睦做出她之前没做过的事时，就会有人认为这是个新人格出来了
+
+*****
+
+####  天空塔书记官  
+##### 28863#       发表于 2025-2-23 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495072&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-22 22:26</a>
+海铃（指正）
+
+话说海铃似乎是独角兽以现实中一个兼职10个乐队的jk为原型写的
+
+ ...</blockquote>
+立希和海铃的人设和关系参考了前辈团PPP的吉他手多惠和RAS的初代佣兵瑞依，“兼职30多支乐队的贝斯手”源出自RAS的舞台剧，编剧也是独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
