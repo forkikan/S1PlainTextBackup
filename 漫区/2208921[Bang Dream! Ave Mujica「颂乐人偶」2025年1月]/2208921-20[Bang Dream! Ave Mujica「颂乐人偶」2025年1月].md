@@ -10585,3 +10585,27 @@ mujica中的打破次元壁台词</blockquote>
 
 灵感来自于NGA的一篇帖子，从动画和漫画看漫画家人生经历，柿本也好独角兽也好这俩人真没有拿得出手的大作，人生经历也很有限，你让他们写全日本也许都有名有姓的家族的后代，他写的明白吗，很难的啦
 
+
+*****
+
+####  ntrntr1  
+##### 29004#       发表于 2025-2-23 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500123&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-23 20:13</a>
+
+说起来海神人这个逼消费就该让她也承担下赔偿金
+
+—— 来自 鹅球 v3.3.96</blockquote>
+天真的群友还在问这鸡团还有组的必要吗
+
+太天真了，208的工资恐怖如斯
+
+*****
+
+####  zhoujin8584  
+##### 29005#       发表于 2025-2-23 21:14
+
+泥漏一喘口气又开始滑坡盼飞祥了，牢祥这年纪签合同都得老登做担保的好吗，别说事务所本来就是丰川旗下的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+抵制过度皮套
+
