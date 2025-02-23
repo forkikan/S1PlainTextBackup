@@ -3631,3 +3631,14 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 结合我们法Q这里三木再进场简直相映成趣
 
+
+*****
+
+####  bilibilius  
+##### 605#       发表于 2025-2-23 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498954&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2025-2-23 17:00</a>
+
+加藤阳一干过数码宝贝应用兽的主编剧，在2018-2023年期间的爆钓-BarHunter（爆钓-条形码猎人）动画（万代 ...</blockquote>
+所以不是加藤阳一带出来的，只能说两人有长期合作关系
+
