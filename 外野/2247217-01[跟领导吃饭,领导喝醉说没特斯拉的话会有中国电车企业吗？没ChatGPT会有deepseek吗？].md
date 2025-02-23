@@ -386,3 +386,17 @@ LZ你是王自如吗
 
 是女领导吗？
 
+
+*****
+
+####  妖精喵喵  
+##### 46#       发表于 2025-2-24 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501562&amp;ptid=2247217" target="_blank">我爱喵喵 发表于 2025-2-24 00:46</a>
+油车专利都把持在老牌车企手里，老钟力主发展电车是必然的事，就算没有特斯拉也一定会走电车的路
+
+chatgpt ...</blockquote>
+你爱我啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
