@@ -1241,3 +1241,39 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 玛秋观察修司睡颜的同时，在尝试慢慢靠近他（揭示板吐槽像是要夜袭一样）
 
+
+*****
+
+####  drrrrrrrr  
+##### 7505#       发表于 2025-2-23 22:14
+
+喵安前几个画面都是复用剧场版的，忘了后面有没有新画面了，应该在藏。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Gysumitka  
+##### 7506#       发表于 2025-2-23 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500769&amp;ptid=2209276" target="_blank">drrrrrrrr 发表于 2025-2-23 22:14</a>
+喵安前几个画面都是复用剧场版的，忘了后面有没有新画面了，应该在藏。
+
+— from S1 Next Goose v3.3.96 ...</blockquote>
+玛丘是不是收到第二条短信了，有漏内容吗？
+
+
+*****
+
+####  0aleph37  
+##### 7507#       发表于 2025-2-23 22:20
+
+喵安到底在藏什么能撑得起二番位？背叛？卖红高达情报？
+
+*****
+
+####  虛無迴廊  
+##### 7508#       发表于 2025-2-23 22:23
+
+就算没有特殊的身份，只要能蹭个站在重要人物身边的机会，就不妨碍她在关键时刻突然干出点大事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1607,3 +1607,14 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 3月份上中文版</blockquote>
 真的假的，哪个服<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HEERO.W  
+##### 152#       发表于 2025-2-23 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498843&amp;ptid=2078383" target="_blank">modedd 发表于 2025-2-23 16:43</a>
+
+真的假的，哪个服啊</blockquote>
+说的是Last Origin下个月出台服中文，不是前面的新游
+
