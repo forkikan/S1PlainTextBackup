@@ -2044,3 +2044,26 @@ wiki说大教堂隐藏海岸的密码在圣人隐藏房间，这是哪里？</bl
 想问下这个游戏除去alt+enter全屏之外，有办法调节窗口大小吗？</blockquote>
 f5可以放大
 
+
+*****
+
+####  best32167  
+##### 173#       发表于 2025-2-23 13:56
+
+的确神作，相信S1老害们的品味
+
+之前不小心按了哪个键，小地图不显示了，求问下
+
+
+*****
+
+####  请问有猪扒饭吗  
+##### 174#       发表于 2025-2-23 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497915&amp;ptid=2246453" target="_blank">best32167 发表于 2025-2-23 13:56</a>
+
+的确神作，相信S1老害们的品味
+
+之前不小心按了哪个键，小地图不显示了，求问下 ...</blockquote>
+alt吧    
+
