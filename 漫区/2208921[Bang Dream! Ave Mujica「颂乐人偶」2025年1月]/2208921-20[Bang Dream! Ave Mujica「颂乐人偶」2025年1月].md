@@ -11024,3 +11024,12 @@ miho，自己的老搭档去世，但同时另一个大热偶像麻奈也去世�
 
 是有睦莫互换/睦演莫假药的
 
+
+*****
+
+####  zhoujin8584  
+##### 29040#       发表于 2025-2-24 02:26
+
+推荐一个让我虚空磕到海素的，有关睦的多重人格分析，全程干货和笑点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[【【Mujica】第八集补充的多重人格设定，推论出的超有趣发现和结论-哔哩哔哩】](https://b23.tv/p2frVyo)
+
