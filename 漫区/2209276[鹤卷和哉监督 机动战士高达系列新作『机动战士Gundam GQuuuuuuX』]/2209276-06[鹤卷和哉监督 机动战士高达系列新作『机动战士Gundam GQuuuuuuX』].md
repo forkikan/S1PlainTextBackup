@@ -863,3 +863,16 @@ TV是4月番  不过这部如果是季番 根本讲不了多少东西呀 高�
 
 话说还真是新档期，日TV太有信心了
 
+
+*****
+
+####  纪寞  
+##### 7472#       发表于 2025-2-23 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67495356&amp;ptid=2209276" target="_blank">bird-lay 发表于 2025-2-22 23:18</a>
+
+话说二刷注意到了一点之前没意识到的内容
+
+哈罗被安琪抱的时候跟抱猫一样，抱在怀里摸头闭眼，结果见到麻球 ...</blockquote>
+请问一下，那个特别映像里有人说有疑似引发泽克诺瓦的画面，那个是修司主动引发的吗？
+

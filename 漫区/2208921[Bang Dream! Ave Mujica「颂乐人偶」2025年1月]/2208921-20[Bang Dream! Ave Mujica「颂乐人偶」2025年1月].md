@@ -9574,3 +9574,91 @@ Y1S1，我要是喵梦，解散第一件事情应该就是退群，一群难伺�
 错了，是这集有重新分析的价值大家才重新开始审视之前整个故事的</blockquote>
 审视的结果是我看到不少睦党直接破防<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，而且说实话这个多重人格的空间过于巨大，真得是笔在十角手上很容易想怎么样就怎么样
 
+
+*****
+
+####  结衣小比取  
+##### 28916#       发表于 2025-2-23 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498143&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-2-23 14:34</a>
+
+第五集初华家还出现了另一把吉他</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/23/150834ntvww14jckfffg4t.jpg" referrerpolicy="no-referrer">
+
+<strong>其他吉他.jpg</strong> (127.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 15:08 上传
+
+说的是这个？
+
+*****
+
+####  单脚着地  
+##### 28917#       发表于 2025-2-23 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498272&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-23 15:03</a>
+
+如果不开上帝视角知道绝无生命危险的话，那睦这种类型的个体是不能说完全不能防的 ...</blockquote>
+佑天寺若麦：我这一生如履薄冰，你说，我能走到对岸吗？
+
+熊本来的乡下妹，无依无靠来东京想要播出一条阶级跃升的道路，会遇到的考验和危机那必然重于泰山。
+
+不敢搏命怎么成功！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 28918#       发表于 2025-2-23 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498254&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 15:00</a>
+
+那就是说，初华在祥子刚来自己家的时候是在藏自己的姐妹 ? 两个人其实一直住在一起 ? 祥子在的时候，屋里一 ...</blockquote>
+说的是祥子回忆里的和sumimi的初华不是同一个。
+
+*****
+
+####  结衣小比取  
+##### 28919#       发表于 2025-2-23 15:10
+
+<img src="https://img.saraba1st.com/forum/202502/23/150946wmef4i83eel3fkpb.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子的台词.jpg</strong> (35.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 15:09 上传
+
+这台词怎么看都是说睦以前点过橙汁的意思吧？
+
+
+*****
+
+####  天空塔书记官  
+##### 28920#       发表于 2025-2-23 15:12
+
+假设初华也是一个模仿者，模仿的是自己的“姐妹”，而没有真正的“自我”，甚至是两个“初华”互相模仿，那这可要比睦概念上的人格分裂可怕多了，这是现实意义上的两个人活成了一个人，如果真是这样，那ave确实担得起最狂之名 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 28921#       发表于 2025-2-23 15:13
+
+说不定结局这病就治好了，或者说写死不会恶化。我不知道有什么可担心的。还是说是担心所谓本睦的演技说导致人物形象反转？
+
+*****
+
+####  DeltaStriker  
+##### 28922#       发表于 2025-2-23 15:14
+
+治好？你不如说给Mortis找了个新身体更实际点吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
