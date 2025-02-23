@@ -3558,3 +3558,25 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pokemon最爱  
+##### 598#       发表于 2025-2-23 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498954&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2025-2-23 17:00</a>
+
+加藤阳一干过数码宝贝应用兽的主编剧，在2018-2023年期间的爆钓-BarHunter（爆钓-条形码猎人）动画（万代 ...</blockquote>
+所以呢？这几年加藤带大小姐写剧本所以大小姐再回Q娃片场就成了加藤关系户了？什么鬼逻辑。
+
+倒不如说相比加藤来说大小姐这边跟东映的关系更紧密些，跟爹一起写Decade小说、自己写初代Q娃的小说、参与魔法Q娃和拥抱Q娃的TV编剧、去年作为歌查德第三主笔、今年的No1战队，更别说爹和爷爷的事了。
+
+跟加藤合作多只能说是大小姐来偶Q编剧的原因之一，但恐怕算不上主因，也算不上什么关系户<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 599#       发表于 2025-2-23 18:37
+
+倒不如说我希望大小姐能多来写几集，她在法q负责的集数都不错，这集的完成度也很高
+
