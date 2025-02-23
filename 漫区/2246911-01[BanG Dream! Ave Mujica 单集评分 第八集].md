@@ -3362,3 +3362,18 @@ Ave Mujica niconico前8话好评率
 —— 来自 S1Fun</blockquote>
 也有可能是nico民什么屎都吃过了
 
+
+*****
+
+####  ads147147  
+##### 373#       发表于 2025-2-23 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496684&amp;ptid=2246911" target="_blank">ArcadiaMartyr 发表于 2025-2-23 10:03</a>
+日本萌萌人是什么都吃得下是吧
+
+—— 来自 S1Fun</blockquote>
+nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂为啥会有什么哇真烂，简直是兽娘2这种莫名其妙的感觉。有这类评价的人那怕看过一集兽娘2，游戏王ARCV又或者国王游戏吗。。
+
+想起隔壁锐评：我看过的烂片才叫烂片。
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
