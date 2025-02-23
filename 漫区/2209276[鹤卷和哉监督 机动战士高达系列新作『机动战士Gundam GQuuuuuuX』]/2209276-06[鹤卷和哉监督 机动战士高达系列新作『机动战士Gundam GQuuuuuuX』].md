@@ -734,3 +734,32 @@ X上的不剧透追加感想
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Gysumitka  
+##### 7457#       发表于 2025-2-23 13:42
+
+<img src="https://p.sda1.dev/22/2e29cdc8ffebb4fe5b0ae07c2a448ba4/image.jpg" referrerpolicy="no-referrer">
+黑泽总算出现了，也就是说到三月底还在上映
+
+*****
+
+####  zakufa782  
+##### 7458#       发表于 2025-2-23 13:43
+
+主角群里有一个没活动参加<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+tv4月8号开播
+
+*****
+
+####  Gysumitka  
+##### 7459#       发表于 2025-2-23 13:43
+
+ 本帖最后由 Gysumitka 于 2025-2-23 13:45 编辑 
+
+终于定了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> op是律师曲
+
+<img src="https://p.sda1.dev/22/f2bba916083d958d5d12df3814411e2e/image.jpg" referrerpolicy="no-referrer">
+
