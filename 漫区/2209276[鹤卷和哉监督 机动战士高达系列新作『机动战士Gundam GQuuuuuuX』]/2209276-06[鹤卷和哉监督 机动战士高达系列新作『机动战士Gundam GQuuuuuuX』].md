@@ -1306,3 +1306,51 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Gysumitka  
+##### 7511#       发表于 2025-2-23 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500914&amp;ptid=2209276" target="_blank">drrrrrrrr 发表于 2025-2-23 22:36</a>
+没注意有没有关于短信的内容
+怎么一用回复就报错啊</blockquote>
+网页实名后才能回复引用
+
+
+*****
+
+####  0aleph37  
+##### 7512#       发表于 2025-2-23 22:43
+
+<blockquote>刺客ares 发表于 2025-2-23 22:34
+专门让她雇主提了红高达有赏金
+
+再加上“もしも不意に出たあの声を きつく飲み込んでいれば”
+
+人设里有优 ...</blockquote>
+所以说这些内容根本算不上藏啊
+
+*****
+
+####  岸浪白野  
+##### 7513#       发表于 2025-2-23 22:45
+
+除了剧情真的还没到她的戏份喵安的二番位本来重点就是她和玛秋的对比。
+
+<img src="https://img.saraba1st.com/forum/202502/23/224332xfnyts6nl7ttsvzy.png" referrerpolicy="no-referrer">
+
+<strong>BO`}[HURJ(WGUMPZL4)8~9J.png</strong> (411.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 22:43 上传
+
+<img src="https://img.saraba1st.com/forum/202502/23/224339fy9u2717o9oo4v2b.png" referrerpolicy="no-referrer">
+
+<strong>[(I6WIG0G2)91P~)]2BVVRN.png</strong> (590.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 22:43 上传
+
