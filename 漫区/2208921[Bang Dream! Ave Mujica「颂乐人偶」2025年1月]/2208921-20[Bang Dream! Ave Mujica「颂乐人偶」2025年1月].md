@@ -10150,3 +10150,22 @@ emmm…有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 28962#       发表于 2025-2-23 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498842&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-23 16:43</a>
+
+最近重看空之境界才发现，‘杀掉弱小的我’是两仪式的台词；ob一串字母也是空境名曲；双重人格也是重要设定 ...</blockquote>
+其实有个本质区别在于，空之境界乃至月球系列都是有很多反派或者说对立面要干死的，双重人格是很好的强化战力工具作用，那么问题来了，莫女士或者说多莫女士，是打算去把大祥家的两位大人都杀了吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  look900822  
+##### 28963#       发表于 2025-2-23 17:00
+
+金毛怎么现在剧情就像是到时候海铃喵梦找齐队伍之后的赠品
+

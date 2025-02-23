@@ -2085,3 +2085,14 @@ alt吧   
 
 异种族神庙B2怎么前进的？绕了几遍没看到开关
 
+
+*****
+
+####  woshenc  
+##### 177#       发表于 2025-2-23 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497750&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-23 13:25</a>
+
+f5可以放大</blockquote>
+感谢啊！
+

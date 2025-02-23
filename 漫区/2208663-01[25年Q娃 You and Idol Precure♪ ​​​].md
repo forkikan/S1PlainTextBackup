@@ -3495,3 +3495,34 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 下午帮妈妈出门买东西的时候遇到了一位绑着侧马尾的女生，上来就握住我的手对很激动地对我说“我支持你们”，你们有什么头绪吗
 
+
+*****
+
+####  1096beam  
+##### 592#       发表于 2025-2-23 16:57
+
+这片尾饭撒练习目前还没有重复的，相比起某纪念作啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 593#       发表于 2025-2-23 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497886&amp;ptid=2208663" target="_blank">bilibilius 发表于 2025-2-23 13:51</a>
+哪里来的说法？井上亚树子参与Q娃片场比加藤阳一早多了</blockquote>
+加藤阳一干过数码宝贝应用兽的主编剧，在2018-2023年期间的爆钓-BarHunter（爆钓-条形码猎人）动画（万代、东映）、决斗大师（威世智、Brain's Base）动画、妖怪手表动画（Level-5、OLM）一直带井上亚树子写剧本。
+
+换句话说，井上亚树子在结束《拥抱光之美少女》的单元剧编剧之后，才成为了加藤阳一的关系户。
+
+*****
+
+####  renkan119  
+##### 594#       发表于 2025-2-23 17:05
+
+<blockquote>leleq 发表于 2025-2-23 15:34
+……不是这不就是Q娃传统艺人（搞笑）回增强版吗。
+
+人在纽约留学，又是真实艺人cv这不是标准路人吗你们在 ...</blockquote>
+这位OP都有出场 肯定是常驻啊
+
