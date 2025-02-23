@@ -1542,3 +1542,20 @@ Gundam GQuuuuuuX Beginning Design Works
 某 ...</blockquote>
 话不能这么说，实际上除了玛秋和尼娅安以外也没人见过他，有些人还以为红高里的还是夏亚。
 
+
+*****
+
+####  kuriri  
+##### 7530#       发表于 2025-2-24 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501466&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-2-24 00:24</a>
+
+有一点很有意思，所有人都对红高达很感兴趣，只有麻球对红高达没兴趣，反倒是对里面的人（修司）感兴趣
+
+某 ...</blockquote>
+如果修司是绫波丽的话，那红高或者小机器人就是……碇源堂啊！
+
+绫波丽：司令说，司令说，司令说
+
+修斯：高达说，高达说，高达说
+
