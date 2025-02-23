@@ -681,3 +681,19 @@ X上的不剧透追加感想
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  winda  
+##### 7451#       发表于 2025-2-23 12:27
+
+新角色魔女看描述一副水莲的纯良脸，很难想象她大概会是普露2那样偏凶悍的性格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 7452#       发表于 2025-2-23 12:30
+
+麻球不也是一副纯良脸，谁想的到是嗜血JK女莽夫
+
