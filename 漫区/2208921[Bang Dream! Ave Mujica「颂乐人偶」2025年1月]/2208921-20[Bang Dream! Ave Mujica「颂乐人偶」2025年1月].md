@@ -10741,3 +10741,33 @@ mujica显然不是啥类型片了，也不存在什么某某剧情占了太多�
 
 下次live回应该在第十话，算起来也是第七话，结构上居然，没毛病，不过这建立在mygo里有两个比较路边的角色，ave里也要有的基础上就是了
 
+
+*****
+
+####  最终兵器狂战  
+##### 29018#       发表于 2025-2-23 22:46
+
+<img src="https://img.saraba1st.com/forum/202502/23/224502x73ygy7sytdict7b.gif" referrerpolicy="no-referrer">
+
+<strong>魂5莫小姐.gif</strong> (92.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 22:45 上传
+
+海铃买那么多戒指可不是纯粹为了发泄的。她这是有备而来。
+
+经过海铃一夜艰苦特训后，终于使得莫小姐觉醒了二番目の记忆。
+
+莫小姐：“嘻嘻，我一定要活下去！”
+
+
+*****
+
+####  kenqqex  
+##### 29019#       发表于 2025-2-23 22:50
+
+【2小时带你梳理mujica真人小剧场【再GO三分钟特别篇】】 [https://www.bilibili.com/video/B ... c7c459dc1b01014d6ad](https://www.bilibili.com/video/BV1safVYvEEn/?share_source=copy_web&amp;vd_source=9a9a522437e8cc7c459dc1b01014d6ad)
+
+现在知道了一些人的基础设定之后看这些小剧场，清晰了很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

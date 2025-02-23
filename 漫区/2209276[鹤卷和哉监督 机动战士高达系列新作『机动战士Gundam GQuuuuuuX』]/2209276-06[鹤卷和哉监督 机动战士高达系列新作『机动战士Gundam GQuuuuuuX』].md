@@ -1354,3 +1354,50 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 2025-2-23 22:43 上传
 
+
+*****
+
+####  gamedreamer  
+##### 7514#       发表于 2025-2-23 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500713&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-23 22:04</a>
+揭示板多刷人对新预告的更多repo：
+
+联邦魔女向红高达复仇是因为她的MAV被红高达杀死了（存疑）
+
+魔女的台词 ...</blockquote>
+所以这个魔女到底长得什么样？我看有人说长得比较普通，一般像杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YU_JI  
+##### 7515#       发表于 2025-2-23 22:48
+
+<blockquote>gamedreamer 发表于 2025-2-23 22:46
+所以这个魔女到底长得什么样？我看有人说长得比较普通，一般像杂鱼
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+
+黑短发妹妹头，小个子豆豆眼，大概就这点特征，说实话这个世设的画风豆豆眼可太不杂鱼了（）
+
+*****
+
+####  az一串字母  
+##### 7516#       发表于 2025-2-23 22:48
+
+一旦认为红高里面是鸭子，牢修这个额头贴红高也太微妙了，哈基鸭，你就这么喜欢蓝发美少年吗。
+
+偷看睡相这事实在是太好色番茄了
+
+
+*****
+
+####  drrrrrrrr  
+##### 7517#       发表于 2025-2-23 22:52
+
+就像7504楼那样，瞳孔要更小，画风和其他大眼睛女性角色完全不一样，个头也很小
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
