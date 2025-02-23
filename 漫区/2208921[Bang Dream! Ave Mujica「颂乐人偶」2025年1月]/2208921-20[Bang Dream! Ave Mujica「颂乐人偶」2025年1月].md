@@ -10255,3 +10255,46 @@ emmm…有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 如果爱音是灯幻想出来的角色……
 [https://tieba.baidu.com/p/9517376673](https://tieba.baidu.com/p/9517376673)
 
+
+*****
+
+####  aptx8285144  
+##### 28972#       发表于 2025-2-23 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499072&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-23 17:21</a>
+
+说个鬼故事：MyGO和母鸡卡一共有10人  
+
+如果爱音是灯幻想出来的角色……</blockquote>
+这种弱智假药的前提是暗示素世在自己家和一个幻想者对决吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28973#       发表于 2025-2-23 17:29
+
+我记得b站有这个整活吧
+
+BV1uRPKeNEpy
+
+
+*****
+
+####  天空塔书记官  
+##### 28974#       发表于 2025-2-23 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499051&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 17:18</a>
+依据神秘学假药，初华回归元素正位的路径是最短的，是选择继续“模仿”还是选择成为自己，确实也是一个既 ...</blockquote>
+其实还有一种搞法，可以兼顾线下活动和线上炒作，两个“初华”都会音乐，只不过只有一个会唱歌，而另一个会编曲作词，这样李子就不用去学分身术了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 28975#       发表于 2025-2-23 17:33
+
+为了灯，甚至在家里对着空气演戏，<strong>造弱智假药的人一定是个深藏不露的素灯党<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"></strong>
+

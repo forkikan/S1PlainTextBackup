@@ -463,3 +463,14 @@ FC美版叫Ninja Gaiden，Ninja外伝，然后外伝下面六个英文字母Gaid
 
 当然，以上内容基本不包括Boss战
 
+
+*****
+
+####  东方定助  
+##### 43#       发表于 2025-2-23 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497363&amp;ptid=2246995" target="_blank">760194962 发表于 2025-2-23 12:15</a>
+
+这也是为什么我认为NG可谓玩法结合叙事的巅峰之一，哪怕其剧情并不值论：它可贵地抓住了怎么让你／龍隼感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被枪兵一套绕后丝滑抹脖子，不好说谁更像忍者
+
