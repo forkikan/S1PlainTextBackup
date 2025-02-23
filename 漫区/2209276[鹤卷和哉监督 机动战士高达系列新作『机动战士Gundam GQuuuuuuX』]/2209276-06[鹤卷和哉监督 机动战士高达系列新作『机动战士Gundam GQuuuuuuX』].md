@@ -1495,3 +1495,27 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 这对便宜父子的关系性也挺美妙的，反正一想到鸭子带娃就忍不住笑你也有今天，这娃还不是个向你寻求父爱的人
 
+
+*****
+
+####  岸浪白野  
+##### 7526#       发表于 2025-2-24 00:07
+
+X上的总结说今天直播的存档把GQ夏亚CV新祐树的俘获敌人的MS关于夏亚部分的说明删了
+
+还有
+
+新祐树 ：今后夏亚会…
+
+土屋 ：现在无论说什么都会涉及剧透
+
+这部分也删了
+
+*****
+
+####  王留美  
+##### 7527#       发表于 2025-2-24 00:10
+
+Gundam GQuuuuuuX Beginning Design Works
+[https://pan.baidu.com/s/1EiGiSIwsdCYKH9Uw8MOKwg?pwd=GQuX](https://pan.baidu.com/s/1EiGiSIwsdCYKH9Uw8MOKwg?pwd=GQuX)
+
