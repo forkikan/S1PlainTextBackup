@@ -9858,3 +9858,27 @@ ave的“最狂”等同于“最神经”
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6030sylar  
+##### 28937#       发表于 2025-2-23 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498468&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-23 15:38</a>
+
+这个2.5次元是不是中之人逆输入有点猛
+
+高尾 童子功钢琴、富家千金</blockquote>
+闻气味这个太狗了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">武士道已经不满足于立传写经历了，要把生活癖好都插角色身上
+
+*****
+
+####  天空塔书记官  
+##### 28938#       发表于 2025-2-23 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498524&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-23 15:48</a>
+闻气味这个太狗了武士道已经不满足于立传写经历了，要把生活癖好都插角色身上 ...</blockquote>
+那还是不如节约宝的胖脸以及梦以和海铃恶劣，这已经是在拿真人开涮了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
