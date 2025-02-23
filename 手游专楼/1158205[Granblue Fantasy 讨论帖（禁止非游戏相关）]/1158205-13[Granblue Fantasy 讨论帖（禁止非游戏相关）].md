@@ -24,3 +24,11 @@
 
 反正团前保底2张蓝纸，原地起一个就完了，没所谓的
 
+
+*****
+
+####  Geyorkias  
+##### 18205#       发表于 2025-2-23 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">卡天星器啊bro
+
