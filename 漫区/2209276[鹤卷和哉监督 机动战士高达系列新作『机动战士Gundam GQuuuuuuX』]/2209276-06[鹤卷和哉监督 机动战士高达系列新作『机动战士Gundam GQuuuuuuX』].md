@@ -1559,3 +1559,21 @@ Gundam GQuuuuuuX Beginning Design Works
 
 修斯：高达说，高达说，高达说
 
+
+*****
+
+####  ryanghj  
+##### 7531#       发表于 2025-2-24 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501806&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-24 02:12</a>
+如果修司是绫波丽的话，那红高或者小机器人就是……碇源堂啊！
+
+绫波丽：司令说，司令说，司令说
+
+修斯：高 ...</blockquote>
+红高对修司应该是亦父亦母的存在
+
+懂了，是司令和唯的合体
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
