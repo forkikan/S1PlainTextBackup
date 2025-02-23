@@ -697,3 +697,13 @@ X上的不剧透追加感想
 
 麻球不也是一副纯良脸，谁想的到是嗜血JK女莽夫
 
+
+*****
+
+####  gamedreamer  
+##### 7453#       发表于 2025-2-23 12:48
+
+今天的玩具情报会有新东西公布吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
