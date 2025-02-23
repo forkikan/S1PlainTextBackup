@@ -58,3 +58,20 @@ a社不搞星球大战tcg
 
 中文名叫 奇境幻旅
 
+
+*****
+
+####  记忆消失  
+##### 244#         楼主| 发表于 2025-2-23 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67477784&amp;ptid=2175566" target="_blank">琴酒 发表于 2025-2-20 21:47</a>
+
+a社不搞星球大战tcg
+
+开始搞法国那个altered了
+
+中文名叫 奇境幻旅</blockquote>
+哦，这个原来是A社搞的啊，难怪桌游味这么重<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+它那个革新，其实我觉得吧也掀不起什么水花。不过我总是欢迎革新者。
+
