@@ -1447,3 +1447,18 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 甚至她失去的那个MAV可能是指突入所罗门的塞拉
 
+
+*****
+
+####  Sliurus  
+##### 7522#       发表于 2025-2-23 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501119&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-23 23:15</a>
+
+所以霓虹有人猜这女孩是不是米莱的亲属，也就是八洲家的小女儿
+
+米莱本身就是NT，她的妹妹是NT也合理
+
+米莱 ...</blockquote>
+难道米莱死在鸭子手里，所以妹妹要对红高达复仇？
+
