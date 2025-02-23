@@ -3546,3 +3546,15 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 这位比较接近的就是偶活的那几个男偶像。op都有出场但50集里也就5集有戏份加上回忆一共出场10集左右
 
+
+*****
+
+####  maoyou  
+##### 597#       发表于 2025-2-23 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498549&amp;ptid=2208663" target="_blank">悲铃空幻 发表于 2025-2-23 15:52</a>
+难得Q娃里面有个真帅哥的角色不BG怪可惜的，希望BG</blockquote>
+年龄差在这里，八成不能成，白月光罢了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
