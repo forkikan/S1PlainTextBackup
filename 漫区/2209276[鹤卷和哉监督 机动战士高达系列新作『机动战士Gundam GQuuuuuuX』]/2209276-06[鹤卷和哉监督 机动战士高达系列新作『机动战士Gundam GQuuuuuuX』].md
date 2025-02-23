@@ -1039,3 +1039,30 @@ anyway主角团三人也是三原色红黄蓝（虽然喵是黑蓝配色但实�
 是的，我之前也觉得，而且也是男主三番位（</blockquote>
 刚好两个男性都不是寻常的男主性格，都有点垃圾佬属性
 
+
+*****
+
+####  UnrealApartheid  
+##### 7488#       发表于 2025-2-23 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499956&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-2-23 19:48</a>
+不过律师的歌做op画面不好剪吧，感觉怎么剪都怪怪的</blockquote>
+有一个参考例子就是松浦力的快速闪切风格的
+OP（Gun Gale Online 2）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YU_JI  
+##### 7489#       发表于 2025-2-23 20:13
+
+还挺好奇现在的khara做op是什么画风
+
+*****
+
+####  ryanghj  
+##### 7490#       发表于 2025-2-23 20:15
+
+喵安代表色是黄色=红色+绿色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

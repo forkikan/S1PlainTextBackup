@@ -10490,3 +10490,39 @@ mujica中的打破次元壁台词</blockquote>
 
 爆完了发现不好收于是天降迈巴赫。
 
+
+*****
+
+####  天空塔书记官  
+##### 28995#       发表于 2025-2-23 20:06
+
+然而动画早就做完了，没有空降一说
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 28996#       发表于 2025-2-23 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499931&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-23 19:46</a>
+正常流程的话这会大祥和睦早就双双空中飞人了。正常人哪这么耐草。
+二重人格治疗杀死人格本来就是好事，编 ...</blockquote>
+谁叫小祥血条厚，本来母鸡卡解散当一年客服发现根本还不上赔偿金之后就顺理成章的可以飞祥了。
+
+结果迈巴赫擅自跑出来承担人生，一口大奶给血又奶回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhzij111  
+##### 28997#       发表于 2025-2-23 20:13
+
+说起来海神人这个逼消费就该让她也承担下赔偿金
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
