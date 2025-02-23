@@ -723,3 +723,14 @@ X上的不剧透追加感想
 
 衣服都穿对应颜色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 7456#       发表于 2025-2-23 13:30
+
+新佑树这夏亚模仿的也太像了
+这个，不需要了(指大关)<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
