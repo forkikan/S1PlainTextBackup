@@ -3350,3 +3350,15 @@ Ave Mujica niconico前8话好评率
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Alicest  
+##### 372#       发表于 2025-2-23 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496684&amp;ptid=2246911" target="_blank">ArcadiaMartyr 发表于 2025-2-23 10:03</a>
+日本萌萌人是什么都吃得下是吧
+
+—— 来自 S1Fun</blockquote>
+也有可能是nico民什么屎都吃过了
+
