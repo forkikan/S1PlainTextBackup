@@ -2684,3 +2684,24 @@ signater+鹰宫撸啊撸联动
 
 奇怪了，怎么分类又变回去了，denger和king还在，rank少了一人
 
+
+*****
+
+####  sino__unnko3  
+##### 18087#       发表于 2025-2-24 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500944&amp;ptid=2018830" target="_blank">术士q 发表于 2025-2-23 22:41</a>
+和犬山哥的这个联动的内容，虽然说不知道是不是为了超天酱的歌这醋包的饺子（又或者说其实恰恰相反），还是 ...</blockquote>
+23年11月指的是？本地一下子没找到记录，哪怕是所谓捕风捉影的
+
+*****
+
+####  术士q  
+##### 18088#       发表于 2025-2-24 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501445&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-24 00:20</a>
+23年11月指的是？本地一下子没找到记录，哪怕是所谓捕风捉影的</blockquote>
+所谓字幕组解散，印象里是11月左右有那个消息，只是后面又不了了之。当时也很担心，然而什么都知道不了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

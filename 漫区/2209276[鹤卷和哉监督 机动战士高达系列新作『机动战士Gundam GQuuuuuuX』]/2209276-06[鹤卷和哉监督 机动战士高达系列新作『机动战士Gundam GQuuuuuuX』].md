@@ -1519,3 +1519,13 @@ X上的总结说今天直播的存档把GQ夏亚CV新祐树的俘获敌人的MS�
 Gundam GQuuuuuuX Beginning Design Works
 [https://pan.baidu.com/s/1EiGiSIwsdCYKH9Uw8MOKwg?pwd=GQuX](https://pan.baidu.com/s/1EiGiSIwsdCYKH9Uw8MOKwg?pwd=GQuX)
 
+
+*****
+
+####  ryanghj  
+##### 7528#       发表于 2025-2-24 00:24
+
+有一点很有意思，所有人都对红高达很感兴趣，只有麻球对红高达没兴趣，反倒是对里面的人（修司）感兴趣
+
+某种程度上来说修司确实是女主位，绫波丽是吧
+
