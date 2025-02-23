@@ -3448,3 +3448,14 @@ WING这样可爱不抢戏的男人还行
 
 好浓的BG味，估计豚豚要大量逃窜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bilibilius  
+##### 587#       发表于 2025-2-23 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497253&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2025-2-23 11:51</a>
+
+可是第四集-响凯特出场集-的编剧是井上亚树子，是加藤阳一带出来的关系户。 ...</blockquote>
+哪里来的说法？井上亚树子参与Q娃片场比加藤阳一早多了
+
