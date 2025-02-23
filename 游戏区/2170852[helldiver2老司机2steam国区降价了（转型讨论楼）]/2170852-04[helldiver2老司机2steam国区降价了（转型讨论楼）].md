@@ -1470,3 +1470,15 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 之前都没感觉南线简单，打了几天新东线再回去感觉就是在逛街<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5806#       发表于 2025-2-23 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496396&amp;ptid=2170852" target="_blank">unsh 发表于 2025-2-23 08:35</a>
+之前都没感觉南线简单，打了几天新东线再回去感觉就是在逛街</blockquote>
+牢能的强力单位都还没出呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在当然是逛街
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -3328,3 +3328,15 @@ Ave Mujica niconico前8话好评率
 第8话 85.9% 6.3% 4.0% 2.0% 1.8% 约3300人
 <img src="https://p.sda1.dev/22/f5af04c077783f1dfe33e5260c80fac3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 370#       发表于 2025-2-23 09:18
+
+核心受众的评价没啥变化，第七话估计还是哭腔live不行被打了不少5的。
+
+国内这边估计也是被气跑的也不会回来了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

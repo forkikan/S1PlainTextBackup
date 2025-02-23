@@ -8561,3 +8561,13 @@ Ave Mujica niconico前8话好评率
 看来就是这点日本基本盘
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  6030sylar  
+##### 28829#       发表于 2025-2-23 09:19
+
+睦现在包是一个不同于以前养黄瓜玩吉他的人格，<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">尽管设定很炸裂，但就是编剧随意用来方便推动剧情随意捏造形状的橡皮泥
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
