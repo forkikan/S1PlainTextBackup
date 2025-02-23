@@ -10169,3 +10169,28 @@ emmm…有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 金毛怎么现在剧情就像是到时候海铃喵梦找齐队伍之后的赠品
 
+
+*****
+
+####  LYCZERO  
+##### 28964#       发表于 2025-2-23 17:07
+
+ 本帖最后由 LYCZERO 于 2025-2-23 17:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498912&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-23 16:53</a>
+再阴谋论一点，其实从mygo开始就是两个初华换着出场，开导灯的初华和后边在ave当人机的初华其实不是同一个 ...</blockquote>
+没准莫提斯就是初华是第二人格呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+能用来减轻在业界中压力呢？
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  AshPenguin  
+##### 28965#       发表于 2025-2-23 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498942&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-23 16:58</a>
+
+其实有个本质区别在于，空之境界乃至月球系列都是有很多反派或者说对立面要干死的，双重人格是很好的强化 ...</blockquote>
+不一定真的杀了，可以是某种篡位。我记得某个假药里就有小姨夺了丰川老头的位
+
