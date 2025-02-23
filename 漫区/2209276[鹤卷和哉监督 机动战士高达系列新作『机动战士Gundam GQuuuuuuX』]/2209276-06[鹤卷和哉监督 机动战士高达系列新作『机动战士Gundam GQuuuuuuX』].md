@@ -1430,3 +1430,20 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  刺客ares  
+##### 7521#       发表于 2025-2-23 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501051&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-23 23:00</a>
+
+满地大眼萌的gqx世界混进了一个豆豆眼，太显眼了（）</blockquote>
+所以霓虹有人猜这女孩是不是米莱的亲属，也就是八洲家的小女儿
+
+米莱本身就是NT，她的妹妹是NT也合理
+
+米莱的妹妹在第三集登场，还可以与第二集的卡姆兰产生呼应和互动（谁想的，太损了）
+
+甚至她失去的那个MAV可能是指突入所罗门的塞拉
+
