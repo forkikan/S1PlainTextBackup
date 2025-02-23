@@ -1154,3 +1154,26 @@ ed什么的能不能拉熊光来一首
 为了那个新预告又去刷了一遍，感觉作画很稳啊，麻球动起来的作画都很精致。联邦的新机体，应该是吉姆吧，墨 ...</blockquote>
 请问一下泽克诺瓦是修司主动引发还是被未知人物引发的？
 
+
+*****
+
+####  drrrrrrrr  
+##### 7499#       发表于 2025-2-23 21:46
+
+看不出来啊，就一段驾驶室里闪起来的画面，只是和夏亚那时候很像。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  纪寞  
+##### 7500#       发表于 2025-2-23 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500616&amp;ptid=2209276" target="_blank">drrrrrrrr 发表于 2025-2-23 21:46</a>
+
+看不出来啊，就一段驾驶室里闪起来的画面，只是和夏亚那时候很像。
+
+— from S1 Next Goose v3.3.96 ...</blockquote>
+那真的有夏利尔那个副官说："红高达的驾驶员，如果你不是被选中的人会消失的啊"的画面吗？看上面有人提到，但其他repo倒是没见有人提到。但我很好奇这副官为什么会知道这种东西
+
