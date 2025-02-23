@@ -671,3 +671,13 @@ X上的不剧透追加感想
 
 2025-2-23 09:48 上传
 
+
+*****
+
+####  gamedreamer  
+##### 7450#       发表于 2025-2-23 10:04
+
+快进到时隔多年高达再次24+24<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -3340,3 +3340,13 @@ Ave Mujica niconico前8话好评率
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 371#       发表于 2025-2-23 10:03
+
+日本萌萌人是什么都吃得下是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
