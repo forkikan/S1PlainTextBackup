@@ -10413,3 +10413,54 @@ mujica目前碰不了空之境界不了一点，单说音乐OP和ED属于不好�
 
 国内这边评价爆炸主要是还是第七话为了整ccclive直接就不把奶龙当人和各种mygo成员之间关系不好导致的反噬吧。
 
+
+*****
+
+####  cccpprc  
+##### 28988#       发表于 2025-2-23 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499802&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-23 19:27</a>
+
+mujica中的打破次元壁台词</blockquote>
+实际上最打破次元壁的是第六集大祥的切割论吧
+
+大祥：我早跟你说C团鸡团全都不认识了
+
+*****
+
+####  adretyu67.  
+##### 28989#       发表于 2025-2-23 19:41
+
+第9话如果真的安排大祥找灯和爱音弯腰致谢顺便表示希望重组CCC。
+
+我倒是觉得奶龙的反应无所谓，但是灯的反应可能真的不好办。
+
+*****
+
+####  非建政专用号  
+##### 28990#       发表于 2025-2-23 19:42
+
+万象天引了一堆人过来听羊叫，没跑到wsd门口拉屎已经够可以了
+
+*****
+
+####  aptx8285144  
+##### 28991#       发表于 2025-2-23 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499828&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-23 19:32</a>
+
+能搞出羊叫live再加上制作周期，我觉得他们是清楚的。
+
+国内这边评价爆炸主要是还是第七话为了整ccclive直 ...</blockquote>
+伤害爱音严格来说只是<strong>最后一根稻草</strong>，前面神人乱斗与拷打大祥过度时候，如果参考叔叔家的评分已经跌到9.1附近了，5话出现迈巴赫后直接跌到9以下和种命一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 28992#       发表于 2025-2-23 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常流程的话这会大祥和睦早就双双空中飞人了。正常人哪这么耐草。
+二重人格治疗杀死人格本来就是好事，编剧拿这当时尚单品，压根没往痊愈那写。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
