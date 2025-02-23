@@ -10782,3 +10782,27 @@ mujica显然不是啥类型片了，也不存在什么某某剧情占了太多�
 讨论整个鸡狗进度，大喵老师从mygo时期的百元店带货小主播-鸡动画1-5话鸡团人气最路边的那个-吃辣大挑战-奢 ...</blockquote>
 估计大喵之后会因为被美奈美说“如果这你就怂了那你入不了这行”而想要杀回来吧
 
+
+*****
+
+####  卡密sama  
+##### 29021#       发表于 2025-2-23 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500794&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-23 22:18</a>
+鸡团2.0复活如果还是走商业乐队，最后还是老登的大手。
+
+如果不走商业乐队，那sumimi可能就真得解散了，劝海 ...</blockquote>
+不走商业的话，sumimi为啥会解散啊？如果不走商业，纯粹是个兴趣乐队，不怎么会挤占sumimi的活动时间吧？
+倒是之前母鸡卡走商业模式，sumimi没解散有点奇怪。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  DeltaStriker  
+##### 29022#       发表于 2025-2-23 23:47
+
+就算是业余乐队也要排练写歌啊 这些不要时间吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
