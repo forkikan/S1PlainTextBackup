@@ -1899,3 +1899,12 @@ wiki说大教堂隐藏海岸的密码在圣人隐藏房间，这是哪里？</bl
 
 编辑，已找到了
 
+
+*****
+
+####  塔奇克马  
+##### 161#       发表于 2025-2-23 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">老鼠法师强度是不是一般啊，或者说这游戏离法师强度都一般？
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打自警团长 塞拉没辅助buff的情况下 死亡战 3800伤害太爆炸了.不知道加满buff是什么伤害
+

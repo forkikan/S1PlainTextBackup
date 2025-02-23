@@ -8822,3 +8822,21 @@ ktv的自助饮料机一般就只有 ...</blockquote>
 <img src="https://p.sda1.dev/22/096d24ece4425d0598e817c8f23dbaff/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/253ccaa9862f8bc47538704b3cfff8ae/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 28852#       发表于 2025-2-23 11:09
+
+第七集后b站评论数反而更高了，炒作真的有用。
+
+
+*****
+
+####  zhoujin8584  
+##### 28853#       发表于 2025-2-23 11:16
+
+<blockquote>fuwamoco 发表于 2025-2-23 10:52
+看了下祥子应该是说，你之前那次点的是橙汁是吧，看来是b站翻译问题吧</blockquote>
+也不能说有问题，就是语气比较轻，也是刚出完回忆问是不是还要橙汁的意思
+

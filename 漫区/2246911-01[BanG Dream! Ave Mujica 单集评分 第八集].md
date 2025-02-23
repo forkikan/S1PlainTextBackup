@@ -3377,3 +3377,17 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 想起隔壁锐评：我看过的烂片才叫烂片。
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 374#       发表于 2025-2-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497010&amp;ptid=2246911" target="_blank">ads147147 发表于 2025-2-23 11:06</a>
+nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂为啥会有什么哇真烂，简直是兽娘2这种莫名其妙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概就是因为卖狗在中国成为了兽娘1级别的现象级吧。
+兽娘2当年光看角川的新闻都不想看了，赶去吃屎那可不就是去打低分咯。
+其他的没看过，这迷惑剧情赶得上迷家的死了活
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
