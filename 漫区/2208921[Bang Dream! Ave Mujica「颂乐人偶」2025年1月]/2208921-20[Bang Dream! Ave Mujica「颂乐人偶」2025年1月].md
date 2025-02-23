@@ -8840,3 +8840,59 @@ ktv的自助饮料机一般就只有 ...</blockquote>
 看了下祥子应该是说，你之前那次点的是橙汁是吧，看来是b站翻译问题吧</blockquote>
 也不能说有问题，就是语气比较轻，也是刚出完回忆问是不是还要橙汁的意思
 
+
+*****
+
+####  zhoujin8584  
+##### 28854#       发表于 2025-2-23 11:18
+
+<blockquote>syndrome2032 发表于 2025-2-23 09:14
+第七话和解的好评率看样子还是难以超越了。
+
+但是我是我真不喜欢第七话的live ...</blockquote>
+第七话分没那么高，是两头堵了，计算总分第八话还高点
+
+*****
+
+####  zhoujin8584  
+##### 28855#       发表于 2025-2-23 11:19
+
+<img src="https://img.saraba1st.com/forum/202502/23/111946bz7hd93d411n332q.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-ghtcZ1eT3cS14t-1fx.jpg</strong> (330.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 11:19 上传
+
+*****
+
+####  一心而用  
+##### 28856#       发表于 2025-2-23 11:21
+
+官方英推整活
+<img src="https://p.sda1.dev/22/97325c3d25f2e2dd4d978fe9368dc685/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 28857#       发表于 2025-2-23 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496898&amp;ptid=2208921" target="_blank">fuwamoco 发表于 2025-2-23 10:44</a>
+
+答案是这家店有芒果汁啊，之前点过</blockquote>
+怎又开始车果汁了，重复一下
+
+MyGO的时候睦在这家KTV饮料机点的是什么没有明确说过，但是这台饮料机就没有芒果汁
+<img src="https://img.saraba1st.com/forum/202502/20/235635iis696a96y64y9ca.jpg" referrerpolicy="no-referrer">
+
+明确点芒果汁的是在羽沢珈琲店
+<img src="https://img.saraba1st.com/forum/202502/20/235320xcppo7tzr17pyttq.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 28858#       发表于 2025-2-23 11:23
+
+另外睦走在前面也很正常，因为她本来就不是随便逛街是有目的地啊，走后面是想让睦脑控祥子往KTV走吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
