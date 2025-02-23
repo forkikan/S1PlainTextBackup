@@ -248,3 +248,15 @@ z确定  x取消  
 
 安好joiplay，然后添加游戏，pc上文件夹直接复制过来，然后选中game.exe就会添加成功，然后列表展示出来，点它，如果没插件会自动连接到官网下载支持包，安完就能玩了，甚至原来有存档直接就能读档。888/12/256下60帧。只有第一次战斗有个小停顿。
 
+
+*****
+
+####  alleriawr9  
+##### 150#       发表于 2025-2-23 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496715&amp;ptid=2238139" target="_blank">windhawind2 发表于 2025-2-23 10:10</a>
+有人用sd玩过么？我试了下开60帧掉帧好严重 开30-40帧稳定点但还是有点卡</blockquote>
+另一个汉化贴做了sd适配
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
