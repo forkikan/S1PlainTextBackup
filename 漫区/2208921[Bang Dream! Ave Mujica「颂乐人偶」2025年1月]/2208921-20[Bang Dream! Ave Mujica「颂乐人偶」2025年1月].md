@@ -10771,3 +10771,14 @@ mujica显然不是啥类型片了，也不存在什么某某剧情占了太多�
 
 现在知道了一些人的基础设定之后看这些小剧场，清晰了很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 29020#       发表于 2025-2-23 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498354&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-23 15:17</a>
+
+讨论整个鸡狗进度，大喵老师从mygo时期的百元店带货小主播-鸡动画1-5话鸡团人气最路边的那个-吃辣大挑战-奢 ...</blockquote>
+估计大喵之后会因为被美奈美说“如果这你就怂了那你入不了这行”而想要杀回来吧
+
