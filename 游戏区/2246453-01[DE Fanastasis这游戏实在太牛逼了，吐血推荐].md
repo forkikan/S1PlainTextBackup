@@ -1982,3 +1982,54 @@ wiki说大教堂隐藏海岸的密码在圣人隐藏房间，这是哪里？</bl
 
 3.推剧情专属：古代文字、恶魔语言学、形象快速显现
 
+
+*****
+
+####  水边井  
+##### 167#       发表于 2025-2-23 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497544&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-23 12:47</a>
+
+同情，估计是因为地图太多了
+
+推荐的理智：</blockquote>
+制图师有什么用？看不懂效果
+
+*****
+
+####  发条之心  
+##### 168#       发表于 2025-2-23 13:05
+
+<blockquote>水边井 发表于 2025-2-23 13:04
+制图师有什么用？看不懂效果</blockquote>
+给大地图，可以看区域之间的相对空间关系
+
+*****
+
+####  塔奇克马  
+##### 169#       发表于 2025-2-23 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497544&amp;ptid=2246453" target="_blank">发条之心 发表于 2025-2-23 12:47</a>
+
+同情，估计是因为地图太多了
+
+推荐的理智：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">制图师前置怎么解锁啊
+
+*****
+
+####  发条之心  
+##### 170#       发表于 2025-2-23 13:08
+
+ 本帖最后由 发条之心 于 2025-2-23 13:09 编辑 
+<blockquote>塔奇克马 发表于 2025-2-23 13:07
+制图师前置怎么解锁啊</blockquote>
+在后篇大雪原，估计你还没打到
+
+*****
+
+####  woshenc  
+##### 171#       发表于 2025-2-23 13:10
+
+想问下这个游戏除去alt+enter全屏之外，有办法调节窗口大小吗？
+
