@@ -11009,3 +11009,18 @@ miho，自己的老搭档去世，但同时另一个大热偶像麻奈也去世�
 
 豚豚磕到就是磕到了，但它不会把这些真正的摆到台面上去传达。之前有舅舅说普通观众可能会觉得初华爆的也是闹麻了，那就不能排除明面上的演出是小姨替你妈来爱你的可能<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 29039#       发表于 2025-2-24 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501604&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-24 00:58</a>
+
+确实对应MYGO集数会更合理，但无论对应哪个，这个剧的META元素已经板上钉钉了。
+
+不过这些会一笔带过还是 ...</blockquote>
+“既然人偶能模仿人类，那人类也能模仿人偶吧”   中二小剧场2nd
+
+是有睦莫互换/睦演莫假药的
+
