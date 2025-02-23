@@ -10464,3 +10464,29 @@ mujica中的打破次元壁台词</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  takerest  
+##### 28993#       发表于 2025-2-23 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499072&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-23 17:21</a>
+
+说个鬼故事：MyGO和母鸡卡一共有10人  
+
+如果爱音是灯幻想出来的角色……</blockquote>
+怎么连搏击俱乐部都出来了？
+
+
+*****
+
+####  adretyu67.  
+##### 28994#       发表于 2025-2-23 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499907&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-23 19:43</a>
+
+伤害爱音严格来说只是最后一根稻草，前面神人乱斗与拷打大祥过度时候，如果参考叔叔家的评分已经跌到9.1附 ...</blockquote>
+用力过猛为爆而爆的地方不少。
+
+爆完了发现不好收于是天降迈巴赫。
+
