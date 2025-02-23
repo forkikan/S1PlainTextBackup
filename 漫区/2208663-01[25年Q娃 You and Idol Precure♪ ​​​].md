@@ -3467,3 +3467,15 @@ WING这样可爱不抢戏的男人还行
 
 Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 589#       发表于 2025-2-23 15:34
+
+……不是这不就是Q娃传统艺人（搞笑）回增强版吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+人在纽约留学，又是真实艺人cv这不是标准路人吗你们在说什么……
+
+这集的男偶像出场倒是更像偶活了简直对标扫地僧啊
+
