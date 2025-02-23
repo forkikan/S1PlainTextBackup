@@ -10084,3 +10084,69 @@ Roselia「Stille Nacht, Rosen Nacht」上海追加公演
 
 有没有独角兽参考空境的假药
 
+
+*****
+
+####  w酱  
+##### 28957#       发表于 2025-2-23 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498842&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-23 16:43</a>
+最近重看空之境界才发现，‘杀掉弱小的我’是两仪式的台词；ob一串字母也是空境名曲；双重人格也是重要设定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">若叶睦苍崎橙子说
+
+*****
+
+####  天空塔书记官  
+##### 28958#       发表于 2025-2-23 16:44
+
+ 本帖最后由 天空塔书记官 于 2025-2-23 16:48 编辑 
+
+结合“失忆说”来发散一下“三角双子”，有没有可能“人机初华”是因为小时候生过一场大病或者遇到事故(溺水?）失忆了，所以只能靠另一个“初华”和她说的与祥子的童年回忆构建自我认知，所以才会对祥子如此执着又如此“陌生”
+
+因为这一个“初华”的人格就是靠祥子才建立起来的，但实际上确是虚假的回忆，所以才是没有内在自我的空壳人偶，和解的办法就是与祥子建立属于两人新的真实的回忆 ?
+
+“虽然我们没有过去，
+
+但我们可以拥有未来”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 28959#       发表于 2025-2-23 16:46
+
+<blockquote>钦念以忱 发表于 2025-2-23 16:38
+我之前看的分析在说独角兽是把自己的人生经历，尤其是背叛、痛苦、复权的经历，写成了剧本，对象就是祥子， ...</blockquote>
+這不就完蛋了
+
+一個半紅的陰濕中年廁妹的人生能背負豐川祥子的人生嗎？
+
+還真是滿腦子只有自己呢
+
+*****
+
+####  AshPenguin  
+##### 28960#       发表于 2025-2-23 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498851&amp;ptid=2208921" target="_blank">w酱 发表于 2025-2-23 16:44</a>
+
+若叶睦苍崎橙子说</blockquote>
+橙子那个摘眼镜应该就只是说话语气有变化
+
+两仪式的两个人格，平时根据需求切换，其中一个人格还真的死了。这样看有点像睦子米和大M老师
+
+
+*****
+
+####  天空塔书记官  
+##### 28961#       发表于 2025-2-23 16:53
+
+再阴谋论一点，其实从mygo开始就是两个初华换着出场，开导灯的初华和后边在ave当人机的初华其实不是同一个人 ?
+
+emmm…有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
