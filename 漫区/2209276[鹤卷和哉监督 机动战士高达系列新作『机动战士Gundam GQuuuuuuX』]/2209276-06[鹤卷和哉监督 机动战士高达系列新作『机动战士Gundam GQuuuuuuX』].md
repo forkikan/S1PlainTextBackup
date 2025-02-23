@@ -898,3 +898,31 @@ TV是4月番  不过这部如果是季番 根本讲不了多少东西呀 高�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 7475#       发表于 2025-2-23 17:21
+
+ 本帖最后由 岸浪白野 于 2025-2-23 17:24 编辑 
+
+达成电视台全部制霸
+
+<img src="https://img.saraba1st.com/forum/202502/23/171848le973rk190388189.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202502/23/171848le973rk190388189.png">
+
+<strong>O_1QA)]$F{V3EM5OVRB~)}H.png</strong> (124.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 17:18 上传
+
+这次也是让不少日本人回想起了2014年末的时候深夜看G复国
+
+<img src="https://img.saraba1st.com/forum/202502/23/172444yvtv4lv9nk41tnlz.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202502/23/172444yvtv4lv9nk41tnlz.png">
+
+<strong>image.png</strong> (55.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 17:24 上传
+

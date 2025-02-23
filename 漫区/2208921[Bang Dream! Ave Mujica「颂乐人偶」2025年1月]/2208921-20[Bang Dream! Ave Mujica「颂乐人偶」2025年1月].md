@@ -10194,3 +10194,64 @@ emmm…有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 其实有个本质区别在于，空之境界乃至月球系列都是有很多反派或者说对立面要干死的，双重人格是很好的强化 ...</blockquote>
 不一定真的杀了，可以是某种篡位。我记得某个假药里就有小姨夺了丰川老头的位
 
+
+*****
+
+####  zhzij111  
+##### 28966#       发表于 2025-2-23 17:18
+
+第6集之前你说要斗财阀我肯定说千万不要啊，现在你说要斗财阀我只能说搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 28967#       发表于 2025-2-23 17:18
+
+<img src="https://p.sda1.dev/22/f2101700388e616d6f6132f9841e93a1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ab45ac591291c53684354b89519d0b0d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d3fbf5fe4e4cc2aa81b10ddfacabdbad/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/022e034ff8941376b76e45a5c2f52cc7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c0007cf233c1b43b2c16c3dad007d26f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 28968#       发表于 2025-2-23 17:18
+
+<blockquote>最后一步红化又代表灵魂和个性的建立，而初华是目前看来A团中最没有个性的一个，所以在临近结尾也许会有觉醒自我，释放自己欲望，然后炸一次的可能</blockquote>
+依据神秘学假药，初华回归元素正位的路径是最短的，是选择继续“模仿”还是选择成为自己，确实也是一个既简单又艰难的决定
+
+我是很不想看到wsd搞“继承遗志”之类的烂活，毕竟是来自于现实的逆输入，所以如果“三角双子说”成立的话，我希望能看到两个“初华”一起站在台上<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 28969#       发表于 2025-2-23 17:19
+
+之前有人总结过整个mujica的时间线吗，mujica中时间跳跃的原因是不是和月相或者星象有关呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 28970#       发表于 2025-2-23 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67499023&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-2-23 17:13</a>
+
+不一定真的杀了，可以是某种篡位。我记得某个假药里就有小姨夺了丰川老头的位 ...</blockquote>
+赤板明：我很期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 28971#       发表于 2025-2-23 17:21
+
+说个鬼故事：MyGO和母鸡卡一共有10人 <img src="https://static.saraba1st.com/image/smiley/carton2017/477.png" referrerpolicy="no-referrer"> 
+
+如果爱音是灯幻想出来的角色……
+[https://tieba.baidu.com/p/9517376673](https://tieba.baidu.com/p/9517376673)
+

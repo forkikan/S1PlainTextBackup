@@ -3526,3 +3526,23 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 人在纽约留学，又是真实艺人cv这不是标准路人吗你们在 ...</blockquote>
 这位OP都有出场 肯定是常驻啊
 
+
+*****
+
+####  66367749  
+##### 595#       发表于 2025-2-23 17:21
+
+更像是2话女同学那种被饭撒到了的感觉吧。话说bg还是年龄接近的更对胃口一点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 596#       发表于 2025-2-23 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67498985&amp;ptid=2208663" target="_blank">renkan119 发表于 2025-2-23 17:05</a>
+
+这位OP都有出场 肯定是常驻啊</blockquote>
+那就不会设计在纽约留学了。
+
+这位比较接近的就是偶活的那几个男偶像。op都有出场但50集里也就5集有戏份加上回忆一共出场10集左右
+
