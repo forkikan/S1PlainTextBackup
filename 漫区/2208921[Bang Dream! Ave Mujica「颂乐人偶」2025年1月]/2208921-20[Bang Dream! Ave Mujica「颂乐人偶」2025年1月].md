@@ -9051,3 +9051,50 @@ mygo那个养黄瓜的小三无跟这第八集的人格古神当然可以是一�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  天空塔书记官  
+##### 28871#       发表于 2025-2-23 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497309&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-23 12:04</a>
+差不多意思，就是你以为这个角色是个社会人，他怎么都给你挂个在读好学生的身份
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+唉…女铜的学力歧视，就连ykn那样的真学渣也是本科(音乐特长），bang真是温柔的世界
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  lovcavil  
+##### 28872#       发表于 2025-2-23 12:14
+
+如果真逆输入李子的姐妹到初华姐妹说，也太搞了，武士道炒作上瘾了
+
+*****
+
+####  零壹贰叁  
+##### 28873#       发表于 2025-2-23 12:15
+
+ 本帖最后由 零壹贰叁 于 2025-2-23 12:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这么看其实ep7也是Nico母鸡卡差评率最高的一集之一
+和ep4并列
+
+*****
+
+####  南宮凝香  
+##### 28874#       发表于 2025-2-23 12:18
+
+<blockquote>与太郎 发表于 2025-2-23 11:51
+是独角兽在网上视奸JK的时候，发现了一个加了10个乐队的，然后剧中放大到30个了
+
+ ...</blockquote>
+這🦄怎麼這樣陰濕
+
+不是意淫客服小妹就是視奸JK
+

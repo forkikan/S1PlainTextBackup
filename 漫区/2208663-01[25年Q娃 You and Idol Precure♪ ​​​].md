@@ -3408,3 +3408,15 @@ WING这样可爱不抢戏的男人还行
 
 那个老大爷莫非也是什么重要人物吗？
 
+
+*****
+
+####  modedd  
+##### 583#       发表于 2025-2-23 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497253&amp;ptid=2208663" target="_blank">cmyk1234 发表于 2025-2-23 11:51</a>
+可是第四集-响凯特出场集-的编剧是井上亚树子，是加藤阳一带出来的关系户。 ...</blockquote>
+凯特君明显打最开始就确定是重要角色了啊，一个脚本不可能决定cv要找雪团男偶像吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
