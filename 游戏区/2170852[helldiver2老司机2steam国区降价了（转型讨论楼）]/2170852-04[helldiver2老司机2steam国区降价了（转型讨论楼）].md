@@ -1462,3 +1462,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 就是单走反重压力也指数上升了，碰到4、5只牛+泰坦只能麻溜润
 
+
+*****
+
+####  unsh  
+##### 5805#       发表于 2025-2-23 08:35
+
+之前都没感觉南线简单，打了几天新东线再回去感觉就是在逛街<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
