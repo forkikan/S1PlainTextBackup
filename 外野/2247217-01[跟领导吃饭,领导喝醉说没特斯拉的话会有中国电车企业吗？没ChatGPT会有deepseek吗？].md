@@ -400,3 +400,13 @@ chatgpt ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  御坂MKII  
+##### 47#       发表于 2025-2-24 03:27
+
+谁是 transformer 大力出奇迹到智慧涌现的第一个观测者就是随机性很大的事，东大西大的哪个谁是第一个观测者现在概率上其实没那么大差异。更别提工程优化和实践本身现在已经在不同的地方被独立发现了。只能说 openai 怕这怕那自己把自己整闭源确实是一件好事，少了很多没必要的争论<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+至于车，现实是东大救了特斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
