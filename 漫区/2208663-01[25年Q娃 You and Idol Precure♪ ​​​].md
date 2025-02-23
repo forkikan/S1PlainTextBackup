@@ -3234,3 +3234,22 @@ WING这样可爱不抢戏的男人还行
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  maoyou  
+##### 566#       发表于 2025-2-23 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496289&amp;ptid=2208663" target="_blank">renkan119 发表于 2025-2-23 08:00</a>
+4集了还是觉得偶像要素意义不明 只存在于上传个视频 甚至女王都是反对上传的 主角团也并没有什么特别想当偶 ...</blockquote>
+偶像只是个噱头罢了，你还真想看幼女动画出来卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 567#       发表于 2025-2-23 08:25
+
+红A马内甲啊，真是老妈子专业户
+
