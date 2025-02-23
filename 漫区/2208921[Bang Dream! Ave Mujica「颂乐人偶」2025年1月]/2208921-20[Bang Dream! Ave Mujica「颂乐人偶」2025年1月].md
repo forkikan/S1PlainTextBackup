@@ -10391,3 +10391,25 @@ mujica目前碰不了空之境界不了一点，单说音乐OP和ED属于不好�
 <img src="https://p.sda1.dev/22/26c1a8f044e32334230c77d970e7ff7d/image.jpg" referrerpolicy="no-referrer">
 除此之外，帕皮卡同样是可可娜“小姨（妈妈闺蜜）”这部动画独角兽同样是系构最后还和制作组切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 28986#       发表于 2025-2-23 19:27
+
+[mujica中的打破次元壁台词](https://tieba.baidu.com/p/9512047910)
+
+制作组怕不是一群巨魔，从头到尾都知道自己在干什么，玩弄观众
+
+
+*****
+
+####  adretyu67.  
+##### 28987#       发表于 2025-2-23 19:32
+
+ 本帖最后由 adretyu67. 于 2025-2-23 19:36 编辑 
+
+能搞出羊叫live再加上制作周期，我觉得他们是清楚的。
+
+国内这边评价爆炸主要是还是第七话为了整ccclive直接就不把奶龙当人和各种mygo成员之间关系不好导致的反噬吧。
+
