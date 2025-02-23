@@ -1277,3 +1277,32 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 就算没有特殊的身份，只要能蹭个站在重要人物身边的机会，就不妨碍她在关键时刻突然干出点大事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7509#       发表于 2025-2-23 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500803&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-2-23 22:20</a>
+
+喵安到底在藏什么能撑得起二番位？背叛？卖红高达情报？</blockquote>
+专门让她雇主提了红高达有赏金
+
+再加上“もしも不意に出たあの声を きつく飲み込んでいれば”
+
+人设里有优先考虑生存，还有主视角图与GQX的对立构图
+
+可能会变成表面上是朋友实际上是监视另外俩人的间谍吧
+
+但最后肯定会和米哈尔一样变成真伙伴<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drrrrrrrr  
+##### 7510#       发表于 2025-2-23 22:36
+
+没注意有没有关于短信的内容
+怎么一用回复就报错啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
