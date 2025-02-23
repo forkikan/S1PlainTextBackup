@@ -9478,3 +9478,42 @@ soyo面对用鞋子打电话找医生自言自语的墨提斯。
 
 所以当叔叔剧透第九话展开的时候。所谓快速展开就是又要炸一票了。
 
+
+*****
+
+####  抽搐一下  
+##### 28907#       发表于 2025-2-23 14:26
+
+<img src="https://img.saraba1st.com/forum/202502/23/142647q9q4xzneme4ut9tz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-23 14:26 上传
+
+这个大概是芒果汁
+
+*****
+
+####  抽搐一下  
+##### 28908#       发表于 2025-2-23 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497708&amp;ptid=2208921" target="_blank">Renes 发表于 2025-2-23 13:18</a>
+
+事到如今，看到还想带脑子认真分析剧情细节的人，感觉就和喵梦看到海铃想复辟母鸡卡的反应差不多了...抖M啊 ...</blockquote>
+管他和编剧对不对得上，假药写出来圆上了就是赢，成真了赢两遍。
+
+
+*****
+
+####  抽搐一下  
+##### 28909#       发表于 2025-2-23 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497499&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-23 12:40</a>
+
+双子论有过暗示，op里初华的剪影有个镜像的分裂。
+
+然后是在得知祥子走了以后还泡了2杯咖啡。如果多的那杯不 ...</blockquote>
+第五集初华家还出现了另一把吉他
+
