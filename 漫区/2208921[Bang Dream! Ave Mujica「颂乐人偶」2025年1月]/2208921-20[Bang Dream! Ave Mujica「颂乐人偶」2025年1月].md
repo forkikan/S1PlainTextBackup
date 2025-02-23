@@ -8571,3 +8571,24 @@ Ave Mujica niconico前8话好评率
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ads147147  
+##### 28830#       发表于 2025-2-23 09:26
+
+隔壁弹幕玩5是谄媚什么的，太搞了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 28831#       发表于 2025-2-23 09:27
+
+我建议就是编剧在第一层，别搞那么多假药，就看吉他睦和莫老师大对决大和解完事
+
+感觉很明显莫老师会重组母鸡卡成功但是因为底层逻辑「帮助小睦」来融合，这个「小睦」没必要变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+吉他睦态度的变化按照mygo来说她本来也挺睦后黑手的
+

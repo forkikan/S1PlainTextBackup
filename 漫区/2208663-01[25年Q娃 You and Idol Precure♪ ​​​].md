@@ -3273,3 +3273,13 @@ WING这样可爱不抢戏的男人还行
 
 牛批啊，得亏我今天没早起，待会看看怎么个事
 
+
+*****
+
+####  pokemon最爱  
+##### 570#       发表于 2025-2-23 09:35
+
+小女孩对年上帅哥春心萌动倒是可以理解吧，先看看后续再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+紫虽然没戏份但看杂志预告是要用2集时间塑造入队，我觉得其实可以接受吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
