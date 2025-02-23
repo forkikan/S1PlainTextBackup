@@ -10864,3 +10864,39 @@ mujica显然不是啥类型片了，也不存在什么某某剧情占了太多�
 
 把睦/莫当主角的话，你把6,7两集，当做睦/莫作为主角，成功攻略了mygo团和祥子，通过C团live的仪式，完全复活了暴君睦，也为睦莫的对立埋下伏笔
 
+
+*****
+
+####  thisisaspider  
+##### 29028#       发表于 2025-2-24 00:58
+
+<img src="https://img.saraba1st.com/forum/202502/24/005654xg5a5k5kl4kl5gyl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 00:56 上传
+
+确实对应MYGO集数会更合理，但无论对应哪个，这个剧的META元素已经板上钉钉了。
+
+不过这些会一笔带过还是真有藏东西，还要看后续。
+
+*****
+
+####  黑圆桌  
+##### 29029#       发表于 2025-2-24 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485389&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-21 14:27</a>
+
+大氵包氵包：莫姐的真实身份</blockquote>
+草，这个让我想起刚才看到的一个脑洞：
+
+人格排○流行
+
+人格果冻被大量冲进下水道
+
+被鱼吃了
+
+海底总动员，启动！
+
