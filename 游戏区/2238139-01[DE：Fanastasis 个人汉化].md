@@ -218,3 +218,15 @@ app下好也装了 没有跳转下载RTP啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不对 z能进游戏 但是读档失败了 有没有存档转换工具?
 
+
+*****
+
+####  shinnfin  
+##### 147#       发表于 2025-2-23 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497362&amp;ptid=2238139" target="_blank">cym887 发表于 2025-2-23 12:15</a>
+该设置啥按键来着 现在只有方向键能使 进不了游戏</blockquote>
+z确定  x取消  
+建议把键位放大到140％去掉enter escape 功能重复的
+还有几个按键是有用的   可以调位置
+

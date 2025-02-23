@@ -123,3 +123,17 @@
 LoveLive! Days 2025年4月号封面：五团横滨公演
 <img src="https://p.sda1.dev/22/efc520d1fce82a2f90f2c0402e12487a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1513#       发表于 2025-2-23 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67488513&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-21 20:40</a>
+它还真的就两人也选举…是不是有点儿太残酷了。</blockquote>
+还不如不选，直接两个并列算了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+也没说看板娘必须是一个两个还是三个四个不是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
