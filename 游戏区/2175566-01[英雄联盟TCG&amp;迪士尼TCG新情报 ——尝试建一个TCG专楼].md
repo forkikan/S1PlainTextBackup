@@ -83,3 +83,14 @@ a社不搞星球大战tcg
 
 突然发现rd竟然能排进前10？搜了下新卡卡面倒是挺好看的
 
+
+*****
+
+####  1096beam  
+##### 246#       发表于 2025-2-23 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500650&amp;ptid=2175566" target="_blank">はちたや 发表于 2025-2-23 21:53</a>
+
+突然发现rd竟然能排进前10？搜了下新卡卡面倒是挺好看的</blockquote>
+前两个月掉下去而已，一直都是前10守门员
+

@@ -10668,3 +10668,29 @@ mujica中的打破次元壁台词</blockquote>
 
 幽默霸凌，海铃也是本来有大把机会写好最后搞烂了，只会一个油腻铁T，幻视孙井
 
+
+*****
+
+####  DeltaStriker  
+##### 29011#       发表于 2025-2-23 22:09
+
+海铃当工具人也是早有预期了 早期人设感觉就是对标go芭菲猫的位置的 现在嘛……另一种意义的工具人<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/c9e2772556e4d33c23e23d75c7eb89e0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 29012#       发表于 2025-2-23 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 29013#       发表于 2025-2-23 22:14
+
+斗财阀当然是不实际的，先别说万一主创写的时候赤坂明附体吧，现在这个锐气全无的白人偶能合情合理切割老登就是胜利
+
