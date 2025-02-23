@@ -8592,3 +8592,12 @@ Ave Mujica niconico前8话好评率
 
 吉他睦态度的变化按照mygo来说她本来也挺睦后黑手的
 
+
+*****
+
+####  ape-apple  
+##### 28832#       发表于 2025-2-23 09:38
+
+为什么是初华念的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+我说这一集佐佐木李子就念俩字就领工资，制作方觉得这个钱花的不划算可以吗。战吧部部都上当，上的还一样，也不知道互相共振是为了什么
+
