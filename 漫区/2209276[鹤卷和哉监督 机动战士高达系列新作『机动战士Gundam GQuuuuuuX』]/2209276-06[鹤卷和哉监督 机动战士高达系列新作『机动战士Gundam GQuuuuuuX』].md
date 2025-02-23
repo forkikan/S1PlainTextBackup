@@ -1401,3 +1401,32 @@ GQX世界线夏亚用红高达拿到了击坠63台MS的战绩（存疑）
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  YU_JI  
+##### 7518#       发表于 2025-2-23 23:00
+
+满地大眼萌的gqx世界混进了一个豆豆眼，太显眼了（）
+
+*****
+
+####  虛無迴廊  
+##### 7519#       发表于 2025-2-23 23:04
+
+贴额头这个就是前边感想截图那个说差点以为修司跟红高达要kiss了心跳加速的镜头吧，机性恋确认<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 7520#       发表于 2025-2-23 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500989&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-2-23 22:48</a>
+一旦认为红高里面是鸭子，牢修这个额头贴红高也太微妙了，哈基鸭，你就这么喜欢蓝发美少年吗。
+
+偷看睡相这 ...</blockquote>
+卡缪:6嗷
+快进到墨镜修司<img src="https://static.saraba1st.com/image/smiley/carton2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
