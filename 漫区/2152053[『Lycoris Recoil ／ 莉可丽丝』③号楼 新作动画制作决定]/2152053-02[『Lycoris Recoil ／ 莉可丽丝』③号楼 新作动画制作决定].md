@@ -93,3 +93,11 @@
 
 泡面番今年能出吗
 
+
+*****
+
+####  Delicatus545  
+##### 2078#       发表于 2025-2-24 05:21
+
+好一点的ai图是能区分大小的，这个ai还是太差了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
