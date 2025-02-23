@@ -3288,3 +3288,15 @@ soyo 为什么是已通过？</blockquote>
 
 噶人们，考虑综合成本不要让妹妹穿个小皮鞋跟你赶二十分钟的路
 
+
+*****
+
+####  ads147147  
+##### 367#       发表于 2025-2-23 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496334&amp;ptid=2246911" target="_blank">ardente 发表于 2025-2-23 08:11</a>
+噶人们，考虑综合成本不要让妹妹穿个小皮鞋跟你赶二十分钟的路</blockquote>
+其实吧，大墨老师抱着吉他跟着猫猫跑到space旧址可能都不止30分钟了，走个十来分钟就和海玲闹脾气明显是见人说人话，见鬼说鬼话的撒娇，海玲就喜欢吃这套罢了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
