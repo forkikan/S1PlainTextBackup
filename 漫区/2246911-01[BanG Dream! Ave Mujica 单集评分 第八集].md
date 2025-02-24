@@ -3399,3 +3399,18 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 感觉母鸡卡、兽娘2和 ARCV 做 normalization 后确实差不多，只是绝对值高很多。
 
+
+*****
+
+####  kenqqex  
+##### 376#       发表于 2025-2-24 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67496684&amp;ptid=2246911" target="_blank">ArcadiaMartyr 发表于 2025-2-23 10:03</a>
+
+日本萌萌人是什么都吃得下是吧
+
+—— 来自 S1Fun</blockquote>
+我觉得看片看了10年20年的都不会觉得这片特别烂
+
+-----因为更烂的多得是
+
