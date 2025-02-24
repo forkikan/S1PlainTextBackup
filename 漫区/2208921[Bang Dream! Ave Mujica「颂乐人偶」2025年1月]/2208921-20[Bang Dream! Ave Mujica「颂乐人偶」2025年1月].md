@@ -12197,3 +12197,40 @@ https://x.com/whitecrown1107
 
 大金毛就是太有距离感了，不像爱音素世睦这些同学家人的，可以轻松的堵校门开盒，怕自己沉重的情感吓跑对方，幻视真姛了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29134#       发表于 2025-2-24 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505553&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-24 15:35</a>
+https://www.bilibili.com/video/BV1us411p7ks
+
+其实前作丸山家大姐比小妹爱音更抗压更圣了</blockquote>
+PP的事务所就是一切偶像业界草台班子的集合体，抽象的不得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cxj649  
+##### 29135#       发表于 2025-2-24 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505598&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-24 15:40</a>
+
+PP的事务所就是一切偶像业界草台班子的集合体，抽象的不得了
+
+要不是彩和千圣，PP早就是巨大丑闻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">迫害圣粉毛是传统是吧
+
+*****
+
+####  ziqing  
+##### 29136#       发表于 2025-2-24 15:46
+
+战吧这是啥逻辑，爱音咋就做3分吹10分了？祥子怎么就做10分骂负分了？
+<img src="https://p.sda1.dev/22/c2a731cf73691286a553609de8bcea2a/CMP_20250224154552439.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

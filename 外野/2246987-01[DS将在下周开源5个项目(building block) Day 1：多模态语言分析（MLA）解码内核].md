@@ -572,3 +572,36 @@ qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">“你怎么敢说自己不用？”
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“我基建都铺不开根本没法产生规模效应，只能手工酱人啊”
 
+
+*****
+
+####  d2loader  
+##### 51#       发表于 2025-2-24 15:36
+
+中国厂商绕过限制去王爷国都比去日本靠谱
+
+小日子还是算了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 52#       发表于 2025-2-24 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505523&amp;ptid=2246987" target="_blank">overflowal 发表于 2025-2-24 15:31</a>
+
+qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max就是不开源的。
+
+跟DeepSeek这种把最顶级模型 ...</blockquote>
+这么大的模型开了也没啥意义，不如把现有的Qwen开源家族维护好，毕竟中小尺寸模型需求量必然是更大的。说不定下一个发布的模型就是QwQ-72B
+
+*****
+
+####  Shinkirou  
+##### 53#       发表于 2025-2-24 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504080&amp;ptid=2246987" target="_blank">ryanghj 发表于 2025-2-24 12:01</a>
+日本连个万卡集群都拿不出来，还是算了吧</blockquote>
+周末看一个蛙的采访，请了搞npu的刘峻诚还说到日本要全力投资AI了，竟然连万卡都没吗？
+
