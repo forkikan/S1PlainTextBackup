@@ -868,3 +868,13 @@ chatgpt本身就是一种非常莽的尝试。
 
 但是炒股还是米帝天下第一，有特斯拉chatgpt成功在前，国内企业才好跟进圈钱
 
+
+*****
+
+####  长征5号  
+##### 95#       发表于 2025-2-24 12:04
+
+没东大还不知道什么时候发明火药呢，人家不是照样干你？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

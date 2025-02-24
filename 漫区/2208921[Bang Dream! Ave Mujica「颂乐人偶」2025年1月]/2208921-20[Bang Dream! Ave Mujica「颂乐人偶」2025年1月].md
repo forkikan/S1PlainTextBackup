@@ -11676,3 +11676,18 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上周看见农厨还能说是路人和角色厨合流了合理发泄，都这周了，还没随若叶睦的几百个人格一同消散的那肯定是极端农厨，不杀不行的。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 29092#       发表于 2025-2-24 11:56
+
+主要是一些所谓“路人爱音粉”都开始挤走波奇生态位了，太夸张了<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 29093#       发表于 2025-2-24 11:57
+
+我们纯良路人爱音厨早就切割三流邦邦拥抱孤独摇滚甚至魔圆了，狗鸡友还没接到通知吗
+
