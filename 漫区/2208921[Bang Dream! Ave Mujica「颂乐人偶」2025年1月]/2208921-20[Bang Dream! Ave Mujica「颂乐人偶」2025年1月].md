@@ -12359,3 +12359,27 @@ p站画师世界</blockquote>
 
 现在小莫这孩子也有点万雌王倾向了，素莫，莫睦，海莫，莫祥（恼
 
+
+*****
+
+####  adretyu67.  
+##### 29149#       发表于 2025-2-24 16:39
+
+莫这种社交人格倒是适合跑去活跃空气，起码能活跃一下表面空气<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+沙雕向剧情估计就变成四个爹带一个女儿了。
+
+*****
+
+####  钦念以忱  
+##### 29150#       发表于 2025-2-24 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505777&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-24 16:08</a>
+
+看了一个把首尔之春的PV改成睦莫之争的视频
+
+也许后面真是要玩睦莫之争，各方站队</blockquote>
+睦莫之争，祥子可能又要1打4了，莫上号，海玲支持莫，喵梦支持莫，初华不明，然后绝大部分观众也支持莫。
+
+下集一意孤行支持小睦，甚至可能为此去恳求复活crythic的祥子，有可能迎来声誉的新低。
+
