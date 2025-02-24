@@ -11970,3 +11970,31 @@ https://x.com/whitecrown1107
 
 在这集播出来之前我从没见过用“管人痴”形容海铃这种人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这又是哪个社区的发明
 
+
+*****
+
+####  qratosones1337  
+##### 29119#       发表于 2025-2-24 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504969&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-2-24 14:08</a>
+
+海玲不仅是管人痴，更是人际交往水平很烂的管人痴，第一个乐队炸掉之前其他成员表情不好不说，台前台后或 ...</blockquote>
+回忆起来鸡团对于海铃来说还真就是放飞自我的圣地，毕竟日程她安排，背锅大祥背，换了第二个团肯定不会这么爽
+
+*****
+
+####  hysjmr  
+##### 29120#       发表于 2025-2-24 14:19
+
+在这集播出来之前我从没见过用“管人痴”形容海铃这种人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这又是哪个社区的发明
+
+
+*****
+
+####  zhoujin8584  
+##### 29121#       发表于 2025-2-24 14:31
+
+<blockquote>hysjmr 发表于 2025-2-24 14:19
+在这集播出来之前我从没见过用“管人痴”形容海铃这种人的这又是哪个社区的发明 ...</blockquote>
+谐音梗，隔着网线没法扣钱<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
