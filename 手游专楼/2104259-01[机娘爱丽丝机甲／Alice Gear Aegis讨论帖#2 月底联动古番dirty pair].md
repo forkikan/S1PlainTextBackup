@@ -29,3 +29,16 @@
 
 第一张是无BUFF，第二张是自己放BUFF，第三张是纯粹的数值火力指数，第四章是每秒动作模组威力
 
+
+*****
+
+####  江戸前ルナ  
+##### 1386#         楼主| 发表于 2025-2-25 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506758&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-2-24 18:17</a>
+
+调查任务v2打下来感觉最难的就是lv250的无属性独眼巨人图。敌人巨硬像打石头，boss蓄力单人几乎无法打断， ...</blockquote>
+这个归纳太猛了，收藏了。
+
+无属性还是算自限吧，所有无属性的领头BOSS都有个格子可以赋予属性的。
+

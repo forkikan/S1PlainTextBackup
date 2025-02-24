@@ -13320,3 +13320,28 @@ c团的核心问题其实就是祥子逃避问题，想和解的话把话说开�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sauron.j  
+##### 29231#       发表于 2025-2-25 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508735&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-24 23:50</a>
+
+問題那樣就不能爛炒了
+
+像第五集讓愛燈花一大把時間跑到祥家，</blockquote>
+剧情功能上进豪宅是为了让灯看到钢琴破防，灯被拒绝后有了执念，才能触发学校楼梯遭遇战，再接着引发爽姐去堵门
+
+
+*****
+
+####  小博禹  
+##### 29232#       发表于 2025-2-25 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508743&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-24 23:52</a>
+初华这戏份好少，天天偷吸大象老师的体味，人走了就走了也不找，这人是不是有绿帽癖，享受着大象和各路女人 ...</blockquote>
+🐘这几集哪有和其他女人亲亲我我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
