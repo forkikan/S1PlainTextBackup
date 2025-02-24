@@ -12064,3 +12064,18 @@ https://x.com/whitecrown1107
 
 对人指手画脚太tm开心了啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 29126#       发表于 2025-2-24 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505249&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-24 14:52</a>
+
+“三角桑你在哪里，还有半小时就彩排了”
+
+“时间到了，喵姆子，走了”
+
+“若叶桑，该去下一个片场了，若叶 ...</blockquote>
+所以离了这群神人还真找不到第二个能让海铃这么放飞自我的团
+

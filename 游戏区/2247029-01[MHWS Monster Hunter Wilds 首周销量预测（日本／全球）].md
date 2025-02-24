@@ -427,3 +427,14 @@ steam 预购到首周的销售数据有啥规律可循吗 这5年首发 steam �
 
 光主机端首月就能买500w以上吧
 
+
+*****
+
+####  iou90  
+##### 46#         楼主| 发表于 2025-2-24 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505268&amp;ptid=2247029" target="_blank">缺德猫 发表于 2025-2-24 14:55</a>
+光主机端首月就能买500w以上吧</blockquote>
+投票是首周 墙头草自己数据为准
+它要不公布就没法儿 比如像 rebirth
+
