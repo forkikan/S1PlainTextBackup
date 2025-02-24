@@ -869,3 +869,13 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Sayuki1025  
+##### 92#       发表于 2025-2-25 07:43
+
+已经买了key<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
