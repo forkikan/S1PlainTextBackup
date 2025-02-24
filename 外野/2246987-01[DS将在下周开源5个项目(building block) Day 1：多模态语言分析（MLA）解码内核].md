@@ -605,3 +605,20 @@ qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max�
 日本连个万卡集群都拿不出来，还是算了吧</blockquote>
 周末看一个蛙的采访，请了搞npu的刘峻诚还说到日本要全力投资AI了，竟然连万卡都没吗？
 
+
+*****
+
+####  Khellendros  
+##### 54#       发表于 2025-2-24 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485504&amp;ptid=2246987" target="_blank">小野賢章 发表于 2025-2-21 14:40</a>
+
+还有可能是把联网搜索的机制开源</blockquote>
+联网搜索本来就是成熟技术
+
+大致就是用llm从用户输入中提取出关键字，喂给搜索引擎，搜索引擎抓取的网页内容精炼之后注入到提示词里面
+
+和模型是不是推理模型关系应该不大（至少对于deepseek的技术路线来说），可能推理模型占用的上下文会比较多或者拖慢响应速度？
+
+至于o1之前为啥一直不支持，呃，这就不清楚了，毕竟closed ai都没公布原理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
