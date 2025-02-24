@@ -1629,3 +1629,13 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 说的是Last Origin下个月出台服中文，不是前面的新游</blockquote>
 有官网了吗，我去预约一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vailla  
+##### 154#       发表于 2025-2-24 17:31
+
+应该是erolabs
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
