@@ -13136,3 +13136,26 @@ jk写死哈利没绷住
 niconico今晚放mygo全集 刚开始 https://live.nicovideo.jp/watch/lv347065671</blockquote>
 前面才8千人左右看，到第七话涨到一万二了
 
+
+*****
+
+####  Onelooker  
+##### 29219#       发表于 2025-2-24 22:34
+
+ 本帖最后由 Onelooker 于 2025-2-24 22:35 编辑 
+
+别骂了，先听我一个问题
+
+邦邦那个手游的人物形象也是3d做的吗，为什么二创可以用一个人的模型套另一个角色的动作，还是单纯绑了骨骼
+
+*****
+
+####  Versedust  
+##### 29220#       发表于 2025-2-24 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508340&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-24 22:34</a>
+别骂了，先听我一个问题
+
+邦邦那个手游的人物形象也是3d做的吗，为什么二创可以用一个人的模型套另一个角色 ...</blockquote>
+是live2D，可以在bestdori上预览，套动作倒是不熟，应该要本地改
+
