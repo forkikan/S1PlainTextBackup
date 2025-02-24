@@ -13159,3 +13159,24 @@ niconico今晚放mygo全集 刚开始 https://live.nicovideo.jp/watch/lv34706567
 邦邦那个手游的人物形象也是3d做的吗，为什么二创可以用一个人的模型套另一个角色 ...</blockquote>
 是live2D，可以在bestdori上预览，套动作倒是不熟，应该要本地改
 
+
+*****
+
+####  mono  
+##### 29221#       发表于 2025-2-24 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508340&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-24 22:34</a>
+
+别骂了，先听我一个问题
+
+邦邦那个手游的人物形象也是3d做的吗，为什么二创可以用一个人的模型套另一个角色 ...</blockquote>
+打歌时有3种可选
+
+live 2d （5个q版原地摇）
+
+即时演算便宜3d（可以自选人物 如 [https://www.bilibili.com/video/BV1Gr421J7eA/](https://www.bilibili.com/video/BV1Gr421J7eA/) )
+
+或者播片（就动画版的片段）
+
+剧情和地图对话都是live 2d
+
