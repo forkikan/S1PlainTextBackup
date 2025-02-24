@@ -1874,3 +1874,15 @@ khara的第一部TV吧 (?)
 
 这样也能解释为什么土屋弟说牢修台词很少，因为他就开头和结尾在<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 7556#       发表于 2025-2-24 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508365&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-2-24 22:41</a>
+当然还有一种展开，那就是泽克诺瓦触发，牢修和红高原地无了
+
+夏利亚大手立刻介入，把玛秋和联邦魔女原地逮 ...</blockquote>
+还是比较支持这种展开，现在麻球对牢修有点太上头了，再待在一起下去达不成三人若即若离的关系性的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
