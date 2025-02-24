@@ -11998,3 +11998,27 @@ https://x.com/whitecrown1107
 在这集播出来之前我从没见过用“管人痴”形容海铃这种人的这又是哪个社区的发明 ...</blockquote>
 谐音梗，隔着网线没法扣钱<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29122#       发表于 2025-2-24 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505044&amp;ptid=2208921" target="_blank">hysjmr 发表于 2025-2-24 14:19</a>
+在这集播出来之前我从没见过用“管人痴”形容海铃这种人的这又是哪个社区的发明 ...</blockquote>
+<img src="https://p.sda1.dev/22/eb0fe2a723ce37229629ce1159d436ec/image.jpg" referrerpolicy="no-referrer">
+
+管人概念的返璞归真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 29123#       发表于 2025-2-24 14:38
+
+<img src="https://p.sda1.dev/22/01ffe8a6c9f3654b0f1e09ee5c8e5343/1e97a99b033b5bb5d15f33d470d3d539b700bcb7.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5fa4bb00666eea48a42fc1300050b1e0/02389e3b5bb5c9ea0c7b10c99339b6003bf3b3b7.gif" referrerpolicy="no-referrer">
+
+<img src="https://s3.bmp.ovh/imgs/2025/02/24/ca6968537ac1cd6b.jpg" referrerpolicy="no-referrer">
+
