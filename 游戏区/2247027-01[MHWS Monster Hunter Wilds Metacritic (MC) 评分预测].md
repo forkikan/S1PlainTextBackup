@@ -859,3 +859,13 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  史蒂符  
+##### 91#       发表于 2025-2-25 07:35
+
+首发怪就29个，崛起40个，这tm拿着最多经费做最烂的怪猎，看来老玩家已经是怪猎的阻碍了，期待褒姒<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
