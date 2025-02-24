@@ -848,3 +848,23 @@ chatgpt本身就是一种非常莽的尝试。
 
 好奇 泥潭懂大妈的粉丝多吗？
 
+
+*****
+
+####  kouym  
+##### 93#       发表于 2025-2-24 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503608&amp;ptid=2247217" target="_blank">枯风瘦雪 发表于 2025-2-24 11:12</a>
+
+最早的大模型不是bert那条线的吗？GLM早期的技术路线我记得也是跟着bert走的 ...</blockquote>
+应该加个前缀限定 生成式大模型
+
+*****
+
+####  9号单开道岔  
+##### 94#       发表于 2025-2-24 11:53
+
+没有特斯拉也会有中国电车企业，没有chatgpt会有ds
+
+但是炒股还是米帝天下第一，有特斯拉chatgpt成功在前，国内企业才好跟进圈钱
+
