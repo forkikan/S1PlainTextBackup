@@ -629,3 +629,45 @@ Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发�
 
 —— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Gigax  
+##### 70#       发表于 2025-2-24 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508607&amp;ptid=2247027" target="_blank">nemuru_baka 发表于 2025-2-24 23:24</a>
+
+不太懂媒体这个终盘内容指的什么，感觉刷的要素一点也不少啊。怪的逼格不行的意思吗 ...</blockquote>
+几个评论区扫了一眼，怪不到30只，解禁怪没装备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 71#       发表于 2025-2-24 23:37
+
+竟然能有89，虽然投的85到89，但是说实话从预告到两次试玩下来心理预期是八十六七分，尤其是跟世界初次亮相的时候带给我的冲击比起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。第一次玩世界：我操这是我认识的怪猎吗，好爽。第一次玩荒野：我操这是我认识的怪猎吗，好不爽。
+
+*****
+
+####  clyde-wang  
+##### 72#       发表于 2025-2-24 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508678&amp;ptid=2247027" target="_blank">heseran 发表于 2025-2-24 23:37</a>
+竟然能有89，虽然投的85到89，但是说实话从预告到两次试玩下来心理预期是八十六七分，尤其是跟世界初次亮相 ...</blockquote>
+作为片手玩家，我第一次玩测试的时候就觉得，这TM片手戳不到伤口打JB啊…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+崛起好歹还能升龙和突进
+
+
+*****
+
+####  Humpy  
+##### 73#       发表于 2025-2-24 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508662&amp;ptid=2247027" target="_blank">Gigax 发表于 2025-2-24 23:35</a>
+几个评论区扫了一眼，怪不到30只，解禁怪没装备</blockquote>
+解禁怪没装备是咋回事…？
+
+打了总得掉素材吧，那素材是干啥的。
+不是和崛起的霸主差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
