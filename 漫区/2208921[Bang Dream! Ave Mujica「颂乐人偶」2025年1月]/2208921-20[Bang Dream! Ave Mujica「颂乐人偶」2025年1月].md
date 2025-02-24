@@ -11417,3 +11417,83 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 海铃其他乐队都是中途加入的，只有A团是作为初始成员，一开始也是希望A团可以成为自己的归宿；
 
+
+*****
+
+####  一心而用  
+##### 29070#       发表于 2025-2-24 10:14
+
+[https://weibo.com/7591672514/Pfzyq8eqE#comment](https://weibo.com/7591672514/Pfzyq8eqE#comment)
+<img src="https://p.sda1.dev/22/eae66ccd4d6e059b5b00e15b2c38cbce/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/62e41c1d02e6122c3b5e18c93904ec15/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/493198665aa0082821838c4b1e6ab07e/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f5b8e6c184f42222f32b931e80324851/4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 29071#       发表于 2025-2-24 10:17
+
+如果不开玩笑认真解读，海铃人生第一个乐队的失败，与其说是“管人痴”管得太多，不如说是不会换位思考，没有关注队友的想法
+
+第8集最后这里，表面上海铃好像是在满足mortis的需要，实际上只是海铃单方面觉得这对复活a团来说是有必要的
+
+海铃只是在第8话开头被祥子拒绝了，睦那时候的态度仍然是十分暧昧的，然而海铃和睦/mortis见面之后，似乎完全没有考虑说服睦，让睦同意重组a团的想法，明明这比让mortis从头学起容易许多啊
+
+海铃的心态在首次出道失败之后并没有根本性的变化，仍然是将自我强烈地「押し付け」的一个人，所以才叫无自觉的恐怖吧
+
+从这个角度说，d团的大姐姐虽然包容海铃，但并没有给海铃一个释放自我的空间
+
+*****
+
+####  一心而用  
+##### 29072#       发表于 2025-2-24 10:18
+
+妈妈上班 爸爸带娃
+[https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1p1AdehEyT/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+<img src="https://p.sda1.dev/22/280cdc4eb208b9dfe4ac078cfd139dd8/1.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b5f889855ec604130f88b0fcd8bb6249/2.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5da774b38f5e8f382f073b61941caa8f/3.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5654343d910f37ae9cd76728a4e18d67/4.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 29073#       发表于 2025-2-24 10:19
+
+狗是明制
+
+立希：首輔
+
+愛音： 內廠頭子
+
+素世： 閣員
+
+貓： 任性的新科狀元
+
+論權是立希高， 論遠近是愛音近
+
+素世在中間靠平衡吃飯
+
+貓遊離在世界之外
+
+*****
+
+####  fuwamoco  
+##### 29074#       发表于 2025-2-24 10:20
+
+为啥一定要包饺子，就不能祥子陷入四人欲望的牢笼，成为永恒的人偶不断被吸取养分结出恶之花吗
+
+*****
+
+####  ads147147  
+##### 29075#       发表于 2025-2-24 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503035&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-24 10:19</a>
+狗是明制
+
+立希：首輔</blockquote>
+喵应该是来买丝绸的外国人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

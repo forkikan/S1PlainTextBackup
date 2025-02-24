@@ -3663,3 +3663,15 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Parahure  
+##### 608#       发表于 2025-2-24 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502786&amp;ptid=2208663" target="_blank">离心 发表于 2025-2-24 09:50</a>
+咦?和我想的不一样，我还以为偶q国内外都会瞌呢？结果都不认为小歌和男偶像能成吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+因为男偶像的定位算是小歌的憧憬对象，而且还是年上，并且考虑到中之人的因素那应该不会成的。后面可能会发展成小歌单方面的恋心。像早期的q娃一样
+
