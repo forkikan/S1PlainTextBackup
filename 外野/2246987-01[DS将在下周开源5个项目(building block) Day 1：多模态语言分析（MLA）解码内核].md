@@ -445,3 +445,41 @@ openai和老黄会不会哭着给ds送钱求他们别继续开源了<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cube  
+##### 43#       发表于 2025-2-24 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503729&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-24 11:23</a>
+唯一不爽的就是有可能被日本人学去，但是感觉日本人就算有了这些也造不出来 ...</blockquote>
+日本发展AI也会被他美爹掐死，这点完全不用担心。
+
+*****
+
+####  moekyo  
+##### 44#         楼主| 发表于 2025-2-24 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504857&amp;ptid=2246987" target="_blank">ryanghj 发表于 2025-2-24 13:49</a>
+
+搜了一下是个千卡集群
+
+首先日本企业没有意愿投资，原因是日本没有AI人才，而日本没有AI人才的原因是没有 ...</blockquote>
+就单纯说购买算力卡这个，日本比我们简单太多了
+
+<img src="https://img.saraba1st.com/forum/202502/24/140641p2x74qbi0e11nxj2.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-24_14-06-21.png</strong> (156.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 14:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/24/140641ehpmlgjzg83t08wt.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-24_14-06-29.png</strong> (195.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 14:06 上传
+
