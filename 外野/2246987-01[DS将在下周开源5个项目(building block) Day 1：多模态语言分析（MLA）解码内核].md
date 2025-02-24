@@ -622,3 +622,11 @@ qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max�
 
 至于o1之前为啥一直不支持，呃，这就不清楚了，毕竟closed ai都没公布原理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 55#       发表于 2025-2-24 16:08
+
+MLA，Dual pipe，专家并行，联网搜索，还有啥
+

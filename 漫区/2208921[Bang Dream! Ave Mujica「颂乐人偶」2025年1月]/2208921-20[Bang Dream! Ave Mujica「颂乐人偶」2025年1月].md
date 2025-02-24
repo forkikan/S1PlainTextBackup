@@ -12305,3 +12305,32 @@ p站画师世界</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  huxiaopao163  
+##### 29144#       发表于 2025-2-24 16:08
+
+看了一个把首尔之春的PV改成睦莫之争的视频
+
+也许后面真是要玩睦莫之争，各方站队
+
+哦，这种事好像发生过了，就是那么什么演奏和表演之争
+
+
+*****
+
+####  天空塔书记官  
+##### 29145#       发表于 2025-2-24 16:12
+
+ 本帖最后由 天空塔书记官 于 2025-2-24 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505777&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-24 16:08</a>
+看了一个把首尔之春的PV改成睦莫之争的视频
+
+也许后面真是要玩睦莫之争，各方站队</blockquote>
+完全不一样，路线之争是祥子没法向队友说明音乐对团队的意义，以及不能把自己的音乐分享给其他人，而不是简单的表演什么的问题
+
+也就是说1.0时期，音乐是只属于祥子的，并没有乐队其他成员的份，所以对于其他人来说，音乐并不是必须的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
