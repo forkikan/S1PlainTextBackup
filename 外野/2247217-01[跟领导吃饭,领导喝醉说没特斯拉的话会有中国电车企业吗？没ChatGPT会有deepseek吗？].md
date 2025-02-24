@@ -735,3 +735,22 @@ chatgpt本身就是一种非常莽的尝试。
 
 董明珠都70了而且还浓妆，要论美丑看看年轻时候再论
 
+
+*****
+
+####  eippp  
+##### 80#       发表于 2025-2-24 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500885&amp;ptid=2247217" target="_blank">电话微波炉 发表于 2025-2-23 22:31</a>
+
+控制变量法。董明珠七十岁了，要跟同样七十岁的女人比</blockquote>
+比如说赵雅芝吗？
+
+
+*****
+
+####  scstriker  
+##### 81#       发表于 2025-2-24 10:10
+
+取决于你觉得0-1的难度有多大
+

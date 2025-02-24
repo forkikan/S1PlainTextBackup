@@ -11400,3 +11400,20 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  草化木  
+##### 29069#       发表于 2025-2-24 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502666&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-24 09:36</a>
+
+要说必然性，海铃不选D团而非要重组C团的理由是什么，D团不是“少女”乐队？ ...</blockquote>
+硬要解释的话也是可以的：
+
+海铃恰巧碰到了C团的解散演出；
+
+立希质疑海铃是不是A团的成员，不值得信任；
+
+海铃其他乐队都是中途加入的，只有A团是作为初始成员，一开始也是希望A团可以成为自己的归宿；
+
