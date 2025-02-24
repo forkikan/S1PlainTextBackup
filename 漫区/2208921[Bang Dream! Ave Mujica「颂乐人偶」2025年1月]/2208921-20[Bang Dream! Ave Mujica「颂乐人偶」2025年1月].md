@@ -12234,3 +12234,27 @@ PP的事务所就是一切偶像业界草台班子的集合体，抽象的不得
 
 —— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  天空塔书记官  
+##### 29137#       发表于 2025-2-24 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505620&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-24 15:45</a>
+迫害圣粉毛是传统是吧</blockquote><blockquote>爱音更多的是作为调节气氛的角色存在，定位是灯意志的延伸或者灯的“工具”，被盐和吃瘪甚至是被“霸凌”就是她的人设特征或者说萌点，如同没有了核心地位的丸山彩</blockquote>
+我早就说过了啊，这样的“阳角被迫害役”是常见的二次元人设，同为“丸山姐妹”的绯玛丽也是类似的情况，但这样的人物通常都很容易出彩就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 29138#       发表于 2025-2-24 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505622&amp;ptid=2208921" target="_blank">ziqing 发表于 2025-2-24 15:46</a>
+
+战吧这是啥逻辑，爱音咋就做3分吹10分了？祥子怎么就做10分骂负分了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">饭圈互踩而已，这图里的言论刚刚百综楼就有
+
+泥楼刚刚冒泡一个ID就也是持有这观点（？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
