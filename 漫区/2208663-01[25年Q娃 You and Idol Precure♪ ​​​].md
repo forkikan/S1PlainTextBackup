@@ -3675,3 +3675,11 @@ Q娃偶像恋爱禁止，最需要屑蓝神出面的一次<img src="https://stat
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 因为男偶像的定位算是小歌的憧憬对象，而且还是年上，并且考虑到中之人的因素那应该不会成的。后面可能会发展成小歌单方面的恋心。像早期的q娃一样
 
+
+*****
+
+####  最强惠酱  
+##### 609#       发表于 2025-2-24 12:34
+
+狗屎男人赶紧滚美国啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">还有角色歌，完了
+
