@@ -12529,3 +12529,40 @@ p站画师世界</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  plusSharp  
+##### 29165#       发表于 2025-2-24 19:24
+
+想不通crychic倒了以后mygo继续组下去的意义是什么，5人里只有猫是真喜欢吉他，soyo是被硬拉回去的，爱音是想炫耀（程度比喵梦轻点），灯是被祥子误导了，立希关注灯。动画里说的是“一起迷茫下去”，可也不一定非要是乐队形式才能凑在一起。
+
+
+*****
+
+####  堆雪若叶  
+##### 29166#       发表于 2025-2-24 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67507180&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-24 19:24</a>
+
+想不通crychic倒了以后mygo继续组下去的意义是什么，5人里只有猫是真喜欢吉他，soyo是被硬拉回去的，爱音是 ...</blockquote>
+因果倒置了，mygo是为了组乐队才会凑在一起，crychic才是不组乐队还可能做朋友
+
+*****
+
+####  mono  
+##### 29167#       发表于 2025-2-24 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505553&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-24 15:35</a>
+
+https://www.bilibili.com/video/BV1us411p7ks
+
+其实前作丸山家大姐比小妹爱音更抗压更圣了</blockquote>
+而且p*p可能工资很低
+
+彩和伊芙都在餐厅打工
+
+maya一直有乐器方面工作 可能也是打工
+
+只有hina和千圣是富姐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
