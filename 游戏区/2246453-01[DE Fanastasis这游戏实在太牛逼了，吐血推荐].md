@@ -2156,3 +2156,21 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  凉良  
+##### 184#       发表于 2025-2-24 18:35
+
+玩的有点晕 有没有wiki
+
+*****
+
+####  blueelf  
+##### 185#         楼主| 发表于 2025-2-24 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506866&amp;ptid=2246453" target="_blank">凉良 发表于 2025-2-24 18:35</a>
+
+玩的有点晕 有没有wiki</blockquote>
+[https://w.atwiki.jp/fanastasis/pages/11.html](https://w.atwiki.jp/fanastasis/pages/11.html)
+
