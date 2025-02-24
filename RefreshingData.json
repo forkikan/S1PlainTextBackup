@@ -3777,7 +3777,7 @@
     "lastedit": 1740403080,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -6408,10 +6408,10 @@
     "update": false
   },
   "2079854": {
-    "totalreply": 998,
+    "totalreply": 1000,
     "title": "[香格里拉·弗陇提亚 粪作猎人向神作发起挑战 TV动画化 2023.10]",
     "newtitle": "[香格里拉·弗陇提亚 粪作猎人向神作发起挑战 TV动画化 2023.10]",
-    "lastedit": 1740403575,
+    "lastedit": 1740436691,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 140848,
+    "totalreply": 140855,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1740435969,
+    "lastedit": 1740436572,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17082,10 +17082,10 @@
     "update": false
   },
   "2247189": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[猫粮这个东西，是不是有很多炒作宣传啊？]",
     "newtitle": "[猫粮这个东西，是不是有很多炒作宣传啊？]",
-    "lastedit": 1740432132,
+    "lastedit": 1740436573,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17127,10 @@
     "update": false
   },
   "2247197": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[考研美国人民忍耐力的提案来了，富人减大税，穷人加重税]",
     "newtitle": "[考研美国人民忍耐力的提案来了，富人减大税，穷人加重税]",
-    "lastedit": 1740429135,
+    "lastedit": 1740436573,
     "category": "外野",
     "active": true,
     "update": false
@@ -17541,10 +17541,10 @@
     "update": false
   },
   "2247027": {
-    "totalreply": 88,
+    "totalreply": 89,
     "title": "[MHWS Monster Hunter Wilds Metacritic (MC) 评分预测]",
     "newtitle": "[MHWS Monster Hunter Wilds Metacritic (MC) 评分预测]",
-    "lastedit": 1740424088,
+    "lastedit": 1740436689,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17609,6 +17609,15 @@
     "newtitle": "[【送福利】夏威夷最强海贼王降临！留言赢取《人中之龙8 外传》]",
     "lastedit": 1740431891,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2059879": {
+    "totalreply": 345,
+    "title": "[我的幸福婚约 动画化 2023年7月]",
+    "newtitle": "[我的幸福婚约 动画化 2023年7月]",
+    "lastedit": 1740436342,
+    "category": "漫区",
     "active": true,
     "update": false
   }
