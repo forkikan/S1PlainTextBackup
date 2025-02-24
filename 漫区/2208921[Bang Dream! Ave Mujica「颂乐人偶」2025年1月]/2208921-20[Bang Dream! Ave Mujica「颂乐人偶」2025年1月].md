@@ -12438,3 +12438,36 @@ p站画师世界</blockquote>
 
 饭圈大战是最无聊的，更无聊的是这种单方面共振阴湿，答案是别搬<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 29156#       发表于 2025-2-24 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506207&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-24 17:05</a>
+对比</blockquote>
+还以为看花眼，原来真有微信支付。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29157#       发表于 2025-2-24 17:20
+
+初华就没正经和祥子交心过，当然祥子应该也不准备和初华交心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+所以还是那句话，初华真的是mujica的主唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 29158#       发表于 2025-2-24 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506318&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-24 17:19</a>
+
+还以为看花眼，原来真有微信支付。。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+东京是这样的，便利店都已经支持微信和支付宝，再不济就是刷信用卡，除非是那种只接受纸币连刷卡机都没有的店。
+
