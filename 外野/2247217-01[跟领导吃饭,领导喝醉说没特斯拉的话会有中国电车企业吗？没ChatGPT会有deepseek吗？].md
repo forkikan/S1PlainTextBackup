@@ -878,3 +878,11 @@ chatgpt本身就是一种非常莽的尝试。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  芝村舞  
+##### 96#       发表于 2025-2-24 12:10
+
+没有中国会有韩国日本越南吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

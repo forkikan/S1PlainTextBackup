@@ -11691,3 +11691,51 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 我们纯良路人爱音厨早就切割三流邦邦拥抱孤独摇滚甚至魔圆了，狗鸡友还没接到通知吗
 
+
+*****
+
+####  595505568  
+##### 29094#       发表于 2025-2-24 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504048&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-24 11:56</a>
+主要是一些所谓“路人爱音粉”都开始挤走波奇生态位了，太夸张了</blockquote>
+波奇就是吉他妖精<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 29095#       发表于 2025-2-24 12:08
+
+顺带，圣厨品味高尊重角色和圣厨喜欢爱母训女文/爱音被祥爷收养说，还有圣厨喜欢的是爱音本人而不是套皮夺舍这三点，完全是不可能大三角。看见某些圣厨边说自己懂喜欢爱音这角色一边力捧爱母训女文把这文奉为一设我就想笑，爱妈要是这逼样，能养出她们口中善良包容有神性的爱音？不养出个究极鸡贼的小市民都烧高香了好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 29096#       发表于 2025-2-24 12:10
+
+啥? 啥? 啥? 这和爱音妈又有什么关系
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhzij111  
+##### 29097#       发表于 2025-2-24 12:16
+
+ 本帖最后由 zhzij111 于 2025-2-24 12:17 编辑 
+
+萌战吧祥厨角孝子多，b站圣厨多，脑残程度55开吧，都有股味，不过现在c团遗老厨共讨圣厨还是挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 29098#       发表于 2025-2-24 12:16
+
+百万爱厨到处发癫被反噬罢了，自找的
+
