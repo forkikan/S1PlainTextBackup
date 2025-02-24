@@ -13109,3 +13109,19 @@ jk写死哈利没绷住
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  是谁的书画  
+##### 29217#       发表于 2025-2-24 22:13
+
+就“我的妻子是小学生”那个漫画，你们听说过吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+凭借大睦的演技，告诉祥爹自己被祥母附身了过来拯救这个濒临破碎的家，最后再说自己夙愿以了安然成佛。
+
+当然也可以不成佛，嫁给祥爹当祥妈啥的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+这都是为了祥子啊，吉他睦，是你愿意做的吧？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
