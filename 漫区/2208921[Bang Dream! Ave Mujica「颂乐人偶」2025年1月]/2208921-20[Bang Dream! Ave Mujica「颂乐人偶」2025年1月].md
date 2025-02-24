@@ -12471,3 +12471,13 @@ p站画师世界</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 东京是这样的，便利店都已经支持微信和支付宝，再不济就是刷信用卡，除非是那种只接受纸币连刷卡机都没有的店。
 
+
+*****
+
+####  syndrome2032  
+##### 29159#       发表于 2025-2-24 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506286&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-24 17:15</a>
+是的，所以我才大胆预言大祥老师要1打4</blockquote>
+初华支持的是祥子，关avemujica什么事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
