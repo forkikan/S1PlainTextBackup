@@ -11739,3 +11739,36 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 百万爱厨到处发癫被反噬罢了，自找的
 
+
+*****
+
+####  琉璃奇迹心似钻  
+##### 29099#       发表于 2025-2-24 12:20
+
+<blockquote>DeltaStriker 发表于 2025-2-23 15:14
+治好？你不如说给Mortis找了个新身体更实际点吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+祥负责到底，生一个出来吧
+
+*****
+
+####  厄神之息  
+##### 29100#       发表于 2025-2-24 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504146&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-24 12:10</a>
+
+啥? 啥? 啥? 这和爱音妈又有什么关系</blockquote>
+一个逆天同人文，说爱妈看见爱音失落就上去安慰她，说只有你是完美的，你的朋友都是不值得被爱的残次品，文中对几个队友的家庭情况极尽歧视性字眼，在上上周被百万农厨奉为圭臬，捧成了一设，现在说是已经被冲的删掉了。
+
+*****
+
+####  595505568  
+##### 29101#       发表于 2025-2-24 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504195&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-24 12:16</a>
+萌战吧祥厨角孝子多，b站圣厨多，脑残程度55开吧，都有股味，不过现在c团遗老厨共讨圣厨还是挺乐的
+
+——  ...</blockquote>
+毕竟被一个文全A了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，然后本来想安慰自己是少数人，一看对方气势汹汹，直接各自为战开掐了，最后一对口径，就一个趋势线抓圣厨了
+
