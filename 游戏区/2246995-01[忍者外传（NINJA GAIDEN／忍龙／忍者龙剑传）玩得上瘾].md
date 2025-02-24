@@ -514,3 +514,11 @@ FC美版叫Ninja Gaiden，Ninja外伝，然后外伝下面六个英文字母Gaid
 没，说楼主，之前都还用“忍龙”，这回整个变成了“忍外”。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是标题叫了个外传：外传太生草了
 
+
+*****
+
+####  uponutopia  
+##### 47#       发表于 2025-2-24 11:23
+
+2025年才跑来模拟器玩忍龙的上来给台巴子翻译正名，太典了
+

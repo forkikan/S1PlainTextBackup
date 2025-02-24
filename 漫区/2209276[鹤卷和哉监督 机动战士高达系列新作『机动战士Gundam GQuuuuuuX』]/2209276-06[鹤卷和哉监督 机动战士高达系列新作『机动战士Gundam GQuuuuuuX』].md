@@ -1658,3 +1658,16 @@ khara的第一部TV吧 (?)
 
 还真不好说op画风
 
+
+*****
+
+####  UNINSTALL42  
+##### 7539#       发表于 2025-2-24 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503374&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-2-24 10:49</a>
+
+khara的第一部TV吧 (?)
+
+还真不好说op画风</blockquote>
+大概是第二部，之前有部子供向泡面
+
