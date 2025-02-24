@@ -12615,3 +12615,70 @@ mygo就是剩下4个支持企鹅那句一辈子的乐队，反正也没什么特
 
 其他都是打算靠迷狗維繫一輩子的連繫的
 
+
+*****
+
+####  一心而用  
+##### 29172#       发表于 2025-2-24 20:07
+
+<img src="https://p.sda1.dev/22/a48dc85594b05978a968438d0e34cd5f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/30b6cab5349738240a843eb2d668da0d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0d85f11b613cc85d4788494482916f66/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 29173#       发表于 2025-2-24 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502700&amp;ptid=2208921" target="_blank">look900822 发表于 2025-2-24 09:40</a>
+
+这个简单，对决的是扮成阿诺的灯</blockquote>
+造假药的人干脆把红绿灯的存在也看成灯假设出来的幻想吧，毕竟幻想者的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 29174#       发表于 2025-2-24 20:11
+
+<img src="https://p.sda1.dev/22/656c427251eb942214bcbd9309b9110a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f639b7285399ae8b07a151cee75c2303/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 29175#       发表于 2025-2-24 20:12
+
+我记得什么采访里不是说过mygo就是开live（大概是诗超绊）给脑子刻印得太深了才继续玩乐队的吗，某种意义上她们还挺本质的，台上开音part太爽了
+
+*****
+
+####  南宮凝香  
+##### 29176#       发表于 2025-2-24 20:13
+
+整個邦邦世界就只存在於高松燈的腦中
+
+邦高祖是看星星時幻想出來的
+
+蘭是 力量型的自己，
+
+小白 是入讀月之森有四個媽的自己
+
+*****
+
+####  南宮凝香  
+##### 29177#       发表于 2025-2-24 20:13
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-24 20:12
+我记得什么采访里不是说过mygo就是开live（大概是诗超绊）给脑子刻印得太深了才继续玩乐队的吗，某种意义上 ...</blockquote>
+你信柿本懂MyGo 不如信我是秦始皇
+
+*****
+
+####  盐盐盐盐盐  
+##### 29178#       发表于 2025-2-24 20:16
+
+<blockquote>南宮凝香 发表于 2025-2-24 20:13
+你信柿本懂MyGo 不如信我是秦始皇</blockquote>
+监督不如观众懂，有jk罗琳不懂哈利波特那味了
+

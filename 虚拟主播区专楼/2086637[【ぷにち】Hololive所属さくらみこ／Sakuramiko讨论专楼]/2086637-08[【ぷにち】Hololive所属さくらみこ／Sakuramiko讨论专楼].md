@@ -830,3 +830,28 @@ taiyaki今年还是一如既往的初日就开始在排长队的盛况，可见�
 
 结果是前两天同人即卖会的时候sora跟raora说画miko本的插画的事
 
+
+*****
+
+####  holofan  
+##### 10814#       发表于 2025-2-24 11:21
+
+<img src="https://img.saraba1st.com/forum/202502/24/111901g7qaijkezyia7ev5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 11:19 上传
+
+有人发现这人给各分店送的亲笔签名板上有店名的字写错了，一下子火了一群人特地跑那家店围观
+
+这下自证亲笔签名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10815#       发表于 2025-2-24 20:06
+
+笑死了半个月前跟马自立说好要一起MC拿鞘翅，马自立还从来没拿过想着第一次有机会拿然后，最开始两个人都没搞清楚约定的日期就没联系上，后面miko在播MC的时候马自立休了，现在马自立播MC结果miko休了，看看最后到底能不能实现了
+
