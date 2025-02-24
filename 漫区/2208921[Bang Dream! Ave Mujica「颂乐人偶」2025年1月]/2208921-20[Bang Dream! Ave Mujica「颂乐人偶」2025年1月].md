@@ -12079,3 +12079,19 @@ https://x.com/whitecrown1107
 “若叶桑，该去下一个片场了，若叶 ...</blockquote>
 所以离了这群神人还真找不到第二个能让海铃这么放飞自我的团
 
+
+*****
+
+####  6030sylar  
+##### 29127#       发表于 2025-2-24 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505249&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-24 14:52</a>
+“三角桑你在哪里，还有半小时就彩排了”
+
+“时间到了，喵姆子，走了”
+
+“若叶桑，该去下一个片场了，若叶 ...</blockquote>
+就是想当乐队爹吧，而且不用背锅的那种
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

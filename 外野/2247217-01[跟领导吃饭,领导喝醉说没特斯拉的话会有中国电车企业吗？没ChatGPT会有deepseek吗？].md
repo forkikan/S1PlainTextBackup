@@ -951,3 +951,22 @@ AI多核100%占用写报告，我端着咖啡摸鱼，这不是解放人性吗�
 
 我就两个字回他 咋了？
 
+
+*****
+
+####  archfriend12  
+##### 104#       发表于 2025-2-24 15:08
+
+等老钟来个真正的0-1，我吹爆好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johnnycz  
+##### 105#       发表于 2025-2-24 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505349&amp;ptid=2247217" target="_blank">archfriend12 发表于 2025-2-24 15:08</a>
+
+等老钟来个真正的0-1，我吹爆好吧。</blockquote>
+震爆发动机你现在就可以吹了
+
