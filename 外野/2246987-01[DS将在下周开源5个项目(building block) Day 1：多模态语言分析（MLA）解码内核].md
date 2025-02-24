@@ -516,3 +516,29 @@ openai和老黄会不会哭着给ds送钱求他们别继续开源了<img src="ht
 确实，我更正一下</blockquote>
 顺带27年估计十万卡集群已经普及了，百万卡集群开始部署，韩国其实也一样，万卡集群都拿不出来
 
+
+*****
+
+####  moekyo  
+##### 48#         楼主| 发表于 2025-2-24 15:22
+
+千问今晚不知道发啥<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202502/24/151927sifn1qfkijou3gih.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-24_15-19-13.png</strong> (32.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 15:19 上传
+
+而且其实他们也甩了论文出来，只是现在聚光灯都集中在DS这边了，虽然人家是拼实力赢来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202502/24/152104rmpwuw68pbh6wgpb.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-24_15-20-56.png</strong> (68.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 15:21 上传
+

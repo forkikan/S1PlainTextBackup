@@ -12095,3 +12095,37 @@ https://x.com/whitecrown1107
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  wwwttth  
+##### 29128#       发表于 2025-2-24 15:22
+
+说起来明明5人群没解散，第五集为啥初华会在学校问海铃联系不上祥子。
+
+感觉双子共用身份说有点依据，应该是一个音乐能力更强的“演出初华”和一个更爱祥子的“爱祥初华”，“演出初华”把祥子拐回家给“爱祥初华”享用，第五集散伙后因为乐队解散祥子离开两个初华间发生矛盾，“爱祥初华”丧失了祥子的联络手段。
+
+*****
+
+####  曼彻斯特联  
+##### 29129#       发表于 2025-2-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505462&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-24 15:22</a>
+
+说起来明明5人群没解散，第五集为啥初华会在学校问海铃联系不上祥子。
+
+感觉双子共用身份说有点依据，应该是 ...</blockquote>
+私信都不回话你还指望祥子在群里回话吗，而且除了海铃谁会在解散了的乐队群里发消息。
+
+*****
+
+####  厄神之息  
+##### 29130#       发表于 2025-2-24 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505462&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-24 15:22</a>
+
+说起来明明5人群没解散，第五集为啥初华会在学校问海铃联系不上祥子。
+
+感觉双子共用身份说有点依据，应该是 ...</blockquote>
+什么致命魔术
+
