@@ -483,3 +483,36 @@ openai和老黄会不会哭着给ds送钱求他们别继续开源了<img src="ht
 
 2025-2-24 14:06 上传
 
+
+*****
+
+####  ryanghj  
+##### 45#       发表于 2025-2-24 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504978&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-24 14:09</a>
+
+就单纯说购买算力卡这个，日本比我们简单太多了</blockquote>
+计划，实际上只到了800
+
+
+*****
+
+####  moekyo  
+##### 46#         楼主| 发表于 2025-2-24 14:23
+
+ 本帖最后由 moekyo 于 2025-2-24 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505046&amp;ptid=2246987" target="_blank">ryanghj 发表于 2025-2-24 14:19</a>
+
+计划，实际上只到了800</blockquote>
+确实，我更正一下，但是相对容易买卡这点还是成立的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 47#       发表于 2025-2-24 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505071&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-24 14:23</a>
+
+确实，我更正一下</blockquote>
+顺带27年估计十万卡集群已经普及了，百万卡集群开始部署，韩国其实也一样，万卡集群都拿不出来
+
