@@ -849,3 +849,13 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 找到不买的借口了，以后再说。
 
+
+*****
+
+####  hisousihou  
+##### 90#       发表于 2025-2-25 07:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次是真不行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
