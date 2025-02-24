@@ -101,3 +101,13 @@
 
 好一点的ai图是能区分大小的，这个ai还是太差了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2079#       发表于 2025-2-24 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大小不是可以用提示词定义的吗
+
+AI黑白图一方面风格不像彩图那么明显，另一方面数量少，我不太认得出来
+
