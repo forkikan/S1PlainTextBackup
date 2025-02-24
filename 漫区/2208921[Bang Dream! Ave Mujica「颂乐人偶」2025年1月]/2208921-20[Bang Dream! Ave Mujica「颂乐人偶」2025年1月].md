@@ -12682,3 +12682,14 @@ mygo就是剩下4个支持企鹅那句一辈子的乐队，反正也没什么特
 你信柿本懂MyGo 不如信我是秦始皇</blockquote>
 监督不如观众懂，有jk罗琳不懂哈利波特那味了
 
+
+*****
+
+####  aptx8285144  
+##### 29179#       发表于 2025-2-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67507234&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-24 19:31</a>
+
+因果倒置了，mygo是为了组乐队才会凑在一起，crychic才是不组乐队还可能做朋友 ...</blockquote>
+但是上帝视角看意味深长，CCC有两大神人（大祥和睦）和三个病情相对轻一点（姑且用这个说法）在一起做“朋友”真得比MAGO五个病情相对轻一点的陌生人在一起聊天开心吗，特别是当鸡团已经开始反噬旧时代的人设之时<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
