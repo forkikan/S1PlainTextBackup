@@ -12566,3 +12566,34 @@ maya一直有乐器方面工作 可能也是打工
 
 只有hina和千圣是富姐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mono  
+##### 29168#       发表于 2025-2-24 19:34
+
+niconico今晚放mygo全集 刚开始 [https://live.nicovideo.jp/watch/lv347065671](https://live.nicovideo.jp/watch/lv347065671)
+
+*****
+
+####  zhoujin8584  
+##### 29169#       发表于 2025-2-24 19:39
+
+剧内的反观也挺明显的，立希还在打工时间，其他成员一起求情通融，简直就是伏笔说银河战舰开的越快炸的越快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/24/193854lqwlz83wwkr2l4d3.png" referrerpolicy="no-referrer">
+
+<strong>16334817403968392.png</strong> (219.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 19:38 上传
+
+
+*****
+
+####  adretyu67.  
+##### 29170#       发表于 2025-2-24 19:42
+
+mygo就是剩下4个支持企鹅那句一辈子的乐队，反正也没什么特殊追求，就这样继续下去不就完了。
+
