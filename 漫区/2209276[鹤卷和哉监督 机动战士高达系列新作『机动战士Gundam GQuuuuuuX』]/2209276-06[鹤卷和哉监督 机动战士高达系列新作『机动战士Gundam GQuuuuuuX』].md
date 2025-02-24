@@ -1766,3 +1766,11 @@ khara的第一部TV吧 (?)
 那是台湾的</blockquote>
 吃这么好，酸了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">感谢解答
 
+
+*****
+
+####  -lilipeipei-  
+##### 7548#       发表于 2025-2-24 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">看完了，前半段真的很爽，有种0079重制的感觉
+
