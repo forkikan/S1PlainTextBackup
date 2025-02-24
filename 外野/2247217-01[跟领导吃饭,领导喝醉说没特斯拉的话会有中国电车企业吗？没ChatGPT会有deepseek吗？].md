@@ -886,3 +886,11 @@ chatgpt本身就是一种非常莽的尝试。
 
 没有中国会有韩国日本越南吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanghuangu  
+##### 97#       发表于 2025-2-24 12:42
+
+说明领导还没有从全人类发展的角度出发，思想觉悟不够高，多念几遍“人类命运共同体”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
