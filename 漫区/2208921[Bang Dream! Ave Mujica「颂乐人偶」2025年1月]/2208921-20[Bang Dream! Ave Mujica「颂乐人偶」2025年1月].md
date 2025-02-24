@@ -13087,3 +13087,25 @@ jk写死哈利没绷住
 说起来为什么海铃和立希关系不错？动画里唯独没讲过她俩认识的过程。像海铃这种不粘锅性格初遇对陌生人不友 ...</blockquote>
 独角兽说过想写海希相遇但动画没篇幅了
 
+
+*****
+
+####  oneoutsider  
+##### 29215#       发表于 2025-2-24 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508045&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-24 21:41</a>
+
+同學 + 常在Live House見面
+
+先搭話的一定是海鈴</blockquote>
+认识当然会认识，只是觉得两人性格的缘故如果没什么契机不会有深交而已。
+
+*****
+
+####  非建政专用号  
+##### 29216#       发表于 2025-2-24 22:05
+
+漏油有点太扭曲了，单纯为ccc不解散可以让祥母多活几年的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

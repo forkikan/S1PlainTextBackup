@@ -1809,3 +1809,16 @@ khara的第一部TV吧 (?)
 一是搞得像泽克诺瓦是修司要主动引发的，但仔细一想如果是修司主 ...</blockquote>
 可能是因为夏亚就不是被选中的人所以消失了，所以知道些什么吧
 
+
+*****
+
+####  纪寞  
+##### 7552#       发表于 2025-2-24 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508049&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-24 21:41</a>
+
+可能是因为夏亚就不是被选中的人所以消失了，所以知道些什么吧</blockquote>
+但是起初他们还觉得红高达里的是鸭子啊，突然就蹦这么一句，这种话得知道些内幕的人才能说得出吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且之前的泽克诺瓦明明是玫瑰引发的，鸭子还是莫名其妙地被卷进去的，这次搞得像是修司主动触发的又有点怪
+
