@@ -13180,3 +13180,29 @@ live 2d （5个q版原地摇）
 
 剧情和地图对话都是live 2d
 
+
+*****
+
+####  ads147147  
+##### 29222#       发表于 2025-2-24 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508340&amp;ptid=2208921" target="_blank">Onelooker 发表于 2025-2-24 22:34</a>
+别骂了，先听我一个问题
+
+邦邦那个手游的人物形象也是3d做的吗，为什么二创可以用一个人的模型套另一个角色 ...</blockquote>
+是2dlive，手绘的各个部件，骨骼通用的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Onelooker| + 1||
+
+查看全部评分
+

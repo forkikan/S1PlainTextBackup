@@ -476,3 +476,41 @@ A9都没有无脑给10么？
 A9都没有无脑给10么？</blockquote>
 A9这两年几乎就没有过10分吧....黑神话战神5都不是...
 
+
+*****
+
+####  敏感词好多  
+##### 54#       发表于 2025-2-24 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508480&amp;ptid=2247027" target="_blank">鶴来 发表于 2025-2-24 23:04</a>
+加了单人剧情我还以为会很高呢，投了90-94</blockquote>
+gs：比以往更强调故事性，但剧情一眼就能望到头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  clyde-wang  
+##### 55#       发表于 2025-2-24 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508505&amp;ptid=2247027" target="_blank">ナルバレック 发表于 2025-2-24 23:08</a>
+A9这两年几乎就没有过10分吧....黑神话战神5都不是...</blockquote>
+只是吐槽一下
+
+看起来都说后期需要等更新，那就和世界崛起一样了，终盘内容不多
+
+*****
+
+####  4700  
+##### 56#       发表于 2025-2-24 23:10
+
+<blockquote>这次剧情给我的感受是制作组为了让某些怪物的登场有个让人信服的理由而安排了这些剧情，虽然不能说是为了盘醋包了顿饺子，但其中有些部分就感觉略显生硬，看板娘和纳塔在剧情演出中也有一些尴尬和矛盾的地方，只能说剧情化的尝试值得鼓励，但剧本还有进步空间。相较之下，部分演出则比系列以往有了更多新意，我们的猎人主角和艾露猫也都能开口说话了，当然你也可以在设定里让猫猫改回原来的语言。</blockquote>
+是烈度传2吗
+
+*****
+
+####  无辄辄  
+##### 57#       发表于 2025-2-24 23:10
+
+Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发的玩家有福了。
+
