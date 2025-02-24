@@ -740,3 +740,11 @@ Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发�
 那刷解禁怪有啥意义，刷HR吗</blockquote>
 说是有一只怪能掉解禁素材，反复刷就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陆久舟  
+##### 80#       发表于 2025-2-25 00:37
+
+崛起我能买两份，荒原我都不想首发
+
