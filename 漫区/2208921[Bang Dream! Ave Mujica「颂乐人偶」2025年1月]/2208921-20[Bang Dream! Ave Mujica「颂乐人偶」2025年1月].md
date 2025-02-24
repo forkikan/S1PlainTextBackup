@@ -12811,3 +12811,64 @@ mujica 狗团互动我觉得问题第一大的是第七话anon那句“还有myg
 
 这话其实不该她说，该立希说。
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 29191#       发表于 2025-2-24 20:57
+
+<blockquote>南宮凝香 发表于 2025-2-24 20:55
+JK 是HP 的唯一作者
+
+邦是集體制作
+</blockquote>
+至少比没参与制作的观众懂，扯独角兽大旗的还知道人家俩同属主要制作人员能拼一拼，一句话监督不懂还甩不出两个其他主创对同一话题观点的我只能说反正比你懂信他比信你强
+
+*****
+
+####  南宮凝香  
+##### 29192#       发表于 2025-2-24 20:57
+
+雖然，
+
+真上台比誰對HP設定熟，
+
+JK 一定拚不過死忠
+
+但她能改設定
+
+你柿本哥哥能嗎？
+
+
+*****
+
+####  Versedust  
+##### 29193#       发表于 2025-2-24 21:01
+
+现在假药都没啥可看的，都是自顾自的为烂掉的剧情节奏找补，没啥意思
+还不如蜘蛛侠假药好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 29194#       发表于 2025-2-24 21:03
+
+这话说的 只要片拍出来是柿本授意的 不就等于直接改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 第8集之前有人会知道木头人不是双重人格而是格式塔吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Versedust  
+##### 29195#       发表于 2025-2-24 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67507796&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-24 20:57</a>
+雖然，
+
+真上台比誰對HP設定熟，
+
+JK 一定拚不過死忠</blockquote>
+我之前还以为双重人格是柿本加的
+看完第八集我怀疑就是独角兽干的了
+一般人想不出这么变态的发展<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
