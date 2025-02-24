@@ -579,3 +579,53 @@ Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发�
 
 不太懂媒体这个终盘内容指的什么，感觉刷的要素一点也不少啊。怪的逼格不行的意思吗
 
+
+*****
+
+####  heseran  
+##### 65#       发表于 2025-2-24 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508607&amp;ptid=2247027" target="_blank">nemuru_baka 发表于 2025-2-24 23:24</a>
+不太懂媒体这个终盘内容指的什么，感觉刷的要素一点也不少啊。怪的逼格不行的意思吗 ...</blockquote>
+看UCGB站测评的评论区有截图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  皮卡丘跑快快  
+##### 66#       发表于 2025-2-24 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508597&amp;ptid=2247027" target="_blank">KENN 发表于 2025-2-24 23:22</a>
+
+投入跟崛起不一样
+
+荒野经费一看就比rise多</blockquote>
+钱都花在刀把上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nancygreenlife  
+##### 67#       发表于 2025-2-24 23:30
+
+猜对了（85-89），不过上90的可能性还是微存
+
+*****
+
+####  iou90  
+##### 68#         楼主| 发表于 2025-2-24 23:30
+
+好像都提到变简单了 中老年开心
+最近两年玩 ff7 rebirth 玩动物井 玩 poe2 都太难了
+
+好简单 简单好
+
+*****
+
+####  ff2077  
+##### 69#       发表于 2025-2-24 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508635&amp;ptid=2247027" target="_blank">nancygreenlife 发表于 2025-2-24 23:30</a>
+猜对了（85-89），不过上90的可能性还是微存</blockquote>
+综合看的话根本上不了 只能说分平台打分还把分数给拉高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
