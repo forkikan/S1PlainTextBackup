@@ -11607,3 +11607,20 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 29086#       发表于 2025-2-24 10:59
+
+ 本帖最后由 ads147147 于 2025-2-24 11:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503408&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-24 10:53</a>
+祥子也是支持吉他睦的
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+与其说支持吉他睦，不如说支持的是若叶睦这个大集体，目前是大墨和吉他睦相互抢手柄不影响祥子对睦整体的包容。
+
+吉他睦很明显带着目的性的虐待祥子作为报复，等下一集祥子向灯爱低头请求重组ccc达成终极羞辱后吉他睦的使命差不多就该结束了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

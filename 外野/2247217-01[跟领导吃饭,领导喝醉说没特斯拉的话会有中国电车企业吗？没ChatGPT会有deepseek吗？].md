@@ -802,3 +802,11 @@ chatgpt本身就是一种非常莽的尝试。
 
 —— 来自 nubia NX733J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  mandown  
+##### 88#       发表于 2025-2-24 11:04
+
+没有老佛爷的赔款，根本不会有特斯拉和chatGPT，归根到底还是用的东大的钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
