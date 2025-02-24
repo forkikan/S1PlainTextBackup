@@ -11862,3 +11862,18 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 結果就是所有人都是抽象的神人
 
+
+*****
+
+####  Nana7ue  
+##### 29110#       发表于 2025-2-24 13:31
+
+https://x.com/whitecrown1107
+
+<img src="https://p.sda1.dev/22/eb0c0936af8b51189743390b969f15ec/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f224e424f857e7596d51421d60da0917/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9206acfa766695c7c2d0b3c70acc5095/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2a7365daea41dad96b8f2da3c5d770e5/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
