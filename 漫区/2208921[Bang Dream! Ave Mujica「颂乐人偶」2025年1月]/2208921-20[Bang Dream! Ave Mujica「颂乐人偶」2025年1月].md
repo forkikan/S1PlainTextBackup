@@ -11899,3 +11899,26 @@ https://x.com/whitecrown1107
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  qratosones1337  
+##### 29113#       发表于 2025-2-24 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502855&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-24 09:57</a>
+
+想成為演員的方法是去打鼓
+
+這就是母雞卡為什麼這麼荒誕的體現</blockquote>
+打鼓只是手段，核心目的是直面古神克服之前被古神打出的真伤——第八集美奈美直球点破“如果这你都遭不住那你不适合入这一行”，以大喵的性格肯定是不会就此认怂的
+
+*****
+
+####  qratosones1337  
+##### 29114#       发表于 2025-2-24 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502666&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-24 09:36</a>
+
+要说必然性，海铃不选D团而非要重组C团的理由是什么，D团不是“少女”乐队？ ...</blockquote>
+因为海铃本性是管人痴，在D团只能继续压抑本性当雇佣兵，只有母鸡卡这种神人团才能让她放飞自我
+
