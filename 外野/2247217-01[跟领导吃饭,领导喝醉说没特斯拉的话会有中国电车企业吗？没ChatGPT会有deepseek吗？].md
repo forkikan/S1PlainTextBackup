@@ -536,3 +536,47 @@ chatgpt ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  lilisipis  
+##### 62#       发表于 2025-2-24 08:29
+
+比亚迪零几年就开始投身电车了，没有特斯拉也会有电车。没chatGPT确实没有能想到大语言模型这块，没毛病，董明珠确实很丑
+
+*****
+
+####  前列腺  
+##### 63#       发表于 2025-2-24 08:33
+
+<img src="https://img.saraba1st.com/forum/202502/24/083254tq5jetj8dd3eui15.png" referrerpolicy="no-referrer">
+
+<strong>7031C1624B63B4A61D8C4E1F3E40E45B.png</strong> (224.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-24 08:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/24/083256hvilgb65k2v4btt3.png" referrerpolicy="no-referrer">
+
+<strong>6CE014E22791AE2F2CB07E5F2A82C4DE.png</strong> (219.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-24 08:32 上传
+
+
+*****
+
+####  一心而用  
+##### 64#       发表于 2025-2-24 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501276&amp;ptid=2247217" target="_blank">superzj87 发表于 2025-2-23 23:47</a>
+
+17年的账号在线4小时，被盗号了？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+一眼买号，只能下个ID见了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
