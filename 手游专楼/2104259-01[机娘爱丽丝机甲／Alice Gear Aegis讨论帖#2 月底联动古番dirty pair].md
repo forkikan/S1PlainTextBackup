@@ -16,3 +16,16 @@
 
 这大半年都在赶翻译，现在发布了终于可以爽一把调查了，开了通行证直接把不知道爆了多久的30次回避打空，酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1385#       发表于 2025-2-24 18:17
+
+调查任务v2打下来感觉最难的就是lv250的无属性独眼巨人图。敌人巨硬像打石头，boss蓄力单人几乎无法打断，放出系基本完蛋。我怀疑无属性格就是故意卡老队长进度，或者变相推销卖ST女演员。
+
+顺便转个最新的近战武器DPS一览
+[https://moshamosha.hateblo.jp/entry/2025/01/19/004730](https://moshamosha.hateblo.jp/entry/2025/01/19/004730)
+
+第一张是无BUFF，第二张是自己放BUFF，第三张是纯粹的数值火力指数，第四章是每秒动作模组威力
+
