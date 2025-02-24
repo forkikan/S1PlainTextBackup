@@ -1737,3 +1737,32 @@ khara的第一部TV吧 (?)
 
 鸭子（GQ）：是的，我和拉拉是有一个孩子
 
+
+*****
+
+####  积木23ki  
+##### 7545#       发表于 2025-2-24 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504519&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-2-24 12:58</a>
+香港本周四就要上映了，写了份观影指南供大家参考。</blockquote>
+有看到图片说IMAX会送主视觉图海报＋设定集，一般场会送机体胶片？
+
+*****
+
+####  oi99o  
+##### 7546#       发表于 2025-2-24 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505967&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-2-24 16:35</a>
+
+有看到图片说IMAX会送主视觉图海报＋设定集，一般场会送机体胶片？</blockquote>
+那是台湾的
+
+*****
+
+####  积木23ki  
+##### 7547#       发表于 2025-2-24 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505986&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-2-24 16:37</a>
+那是台湾的</blockquote>
+吃这么好，酸了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">感谢解答
+
