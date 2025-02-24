@@ -12409,3 +12409,32 @@ p站画师世界</blockquote>
 <img src="https://p.sda1.dev/22/4e74833442b1d883470f54f505e34103/005yAgf6ly1hyrx02cxojj31z00wrayu.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/5991d7a9fbc5463b46b1255774ca027f/005yAgf6ly1hyrx02pubjj30tz11u11e.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 29153#       发表于 2025-2-24 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506009&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-24 16:39</a>
+
+睦莫之争，祥子可能又要1打4了，莫上号，海玲支持莫，喵梦支持莫，初华不明，然后绝大部分观众也支持莫。 ...</blockquote>
+参考过去的战绩，初华好像从没有在队内问题给过祥子任何事实上的支持<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 29154#       发表于 2025-2-24 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506232&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-24 17:08</a>
+
+参考过去的战绩，初华好像从没有在队内问题给过祥子任何事实上的支持</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的，所以我才大胆预言大祥老师要1打4
+
+*****
+
+####  zhoujin8584  
+##### 29155#       发表于 2025-2-24 17:17
+
+饭圈大战是最无聊的，更无聊的是这种单方面共振阴湿，答案是别搬<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
