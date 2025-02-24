@@ -13125,3 +13125,14 @@ jk写死哈利没绷住
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  聊nsy专用号  
+##### 29218#       发表于 2025-2-24 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67507258&amp;ptid=2208921" target="_blank">mono 发表于 2025-2-24 19:34</a>
+
+niconico今晚放mygo全集 刚开始 https://live.nicovideo.jp/watch/lv347065671</blockquote>
+前面才8千人左右看，到第七话涨到一万二了
+

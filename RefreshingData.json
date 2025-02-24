@@ -3777,7 +3777,7 @@
     "lastedit": 1740403080,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 12831,
+    "totalreply": 12832,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1740403462,
+    "lastedit": 1740407781,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7893,10 +7893,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 69954,
+    "totalreply": 69955,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1740400580,
+    "lastedit": 1740407430,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 140631,
+    "totalreply": 140634,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1740407180,
+    "lastedit": 1740407781,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9216,10 +9216,10 @@
     "update": false
   },
   "2163563": {
-    "totalreply": 882,
+    "totalreply": 884,
     "title": "[夏日游戏节：《解限机》新预告公开！8月举行封闭测试]",
     "newtitle": "[《解限机》全球风暴测试 ｜ 2月23日正式开启]",
-    "lastedit": 1740406461,
+    "lastedit": 1740407652,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 15237,
+    "totalreply": 15238,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1740407180,
+    "lastedit": 1740407781,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9855,10 +9855,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 10002,
+    "totalreply": 10003,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1740407174,
+    "lastedit": 1740407528,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 29217,
+    "totalreply": 29218,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月 (禁止带图剧透)]",
-    "lastedit": 1740406576,
+    "lastedit": 1740407429,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 7552,
+    "totalreply": 7554,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1740405981,
+    "lastedit": 1740407781,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10638,10 +10638,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 80594,
+    "totalreply": 80602,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1740407180,
+    "lastedit": 1740407781,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10665,10 +10665,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 5791,
+    "totalreply": 5798,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1740407180,
+    "lastedit": 1740407781,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12128,15 +12128,6 @@
     "newtitle": "[推荐大家一个AI字幕和翻译软件]",
     "lastedit": 1739248217,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2156685": {
-    "totalreply": 53,
-    "title": "[冲方丁「再见，地球」动画化 2024年7月]",
-    "newtitle": "[冲方丁「再见，地球」动画化 2024年7月]",
-    "lastedit": 1739197703,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -13707,10 +13698,10 @@
     "update": false
   },
   "2246209": {
-    "totalreply": 1463,
+    "totalreply": 1464,
     "title": "[俄乌专楼-2025年2月版]",
     "newtitle": "[俄乌专楼-2025年2月版]",
-    "lastedit": 1740406229,
+    "lastedit": 1740407430,
     "category": "外野",
     "active": true,
     "update": false
@@ -16974,10 +16965,10 @@
     "update": false
   },
   "2247123": {
-    "totalreply": 207,
+    "totalreply": 208,
     "title": "[有没有什么上古老涩图 现在拿出来看依然很有感觉的？]",
     "newtitle": "[有没有什么上古老涩图 现在拿出来看依然很有感觉的？]",
-    "lastedit": 1740407055,
+    "lastedit": 1740407432,
     "category": "外野",
     "active": true,
     "update": false
@@ -17028,10 +17019,10 @@
     "update": false
   },
   "2246629": {
-    "totalreply": 100,
+    "totalreply": 102,
     "title": "[GROK3还是用不了哈]",
     "newtitle": "[GROK3还是用不了哈]",
-    "lastedit": 1740405627,
+    "lastedit": 1740407656,
     "category": "外野",
     "active": true,
     "update": false
@@ -17487,10 +17478,10 @@
     "update": false
   },
   "2247284": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[你们那边是怎么定义北方的，广州这边潜意识里下雪的地方就是北方]",
     "newtitle": "[你们那边是怎么定义北方的，广州这边潜意识里下雪的地方就是北方]",
-    "lastedit": 1740406461,
+    "lastedit": 1740407656,
     "category": "外野",
     "active": true,
     "update": false
@@ -17514,10 +17505,10 @@
     "update": false
   },
   "2247293": {
-    "totalreply": 53,
+    "totalreply": 56,
     "title": "[美国国会罕见介入，对中国拟在伦敦建造60万平方英尺的“超级大使馆”发出警告]",
     "newtitle": "[美国国会罕见介入，对中国拟在伦敦建造60万平方英尺的“超级大使馆”发出警告]",
-    "lastedit": 1740406229,
+    "lastedit": 1740407656,
     "category": "外野",
     "active": true,
     "update": false
@@ -17532,10 +17523,10 @@
     "update": false
   },
   "2247301": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[考研出成绩了]",
     "newtitle": "[考研出成绩了]",
-    "lastedit": 1740407055,
+    "lastedit": 1740407430,
     "category": "外野",
     "active": true,
     "update": false
@@ -17586,10 +17577,19 @@
     "update": false
   },
   "2247307": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[看地图感觉中国好看的海港城市真的很少]",
     "newtitle": "[看地图感觉中国好看的海港城市真的很少]",
-    "lastedit": 1740406820,
+    "lastedit": 1740407431,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2244644": {
+    "totalreply": 69,
+    "title": "[今年春晚这个儿童合唱《玉盘》是真不错吧]",
+    "newtitle": "[今年春晚这个儿童合唱《玉盘》是真不错吧]",
+    "lastedit": 1740407658,
     "category": "外野",
     "active": true,
     "update": false
