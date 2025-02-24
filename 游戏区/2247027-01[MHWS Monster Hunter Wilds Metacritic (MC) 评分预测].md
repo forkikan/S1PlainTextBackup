@@ -514,3 +514,68 @@ A9这两年几乎就没有过10分吧....黑神话战神5都不是...</blockquot
 
 Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发的玩家有福了。
 
+
+*****
+
+####  敏感词好多  
+##### 58#       发表于 2025-2-24 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508518&amp;ptid=2247027" target="_blank">无辄辄 发表于 2025-2-24 23:10</a>
+Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发的玩家有福了。</blockquote>
+倒不如问这几代有哪一作是首发玩家不吃屎的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  新世界的派蒙  
+##### 59#       发表于 2025-2-24 23:18
+
+我感觉有点寄阿，你个全新游戏和崛起坐一桌，图啥呢
+
+*****
+
+####  KENN  
+##### 60#       发表于 2025-2-24 23:18
+
+舔白皮爹大失败
+
+*****
+
+####  Gigax  
+##### 61#       发表于 2025-2-24 23:20
+
+连不会怎么钻研endgame的媒体都说终盘内容少，首发的玩家有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clyde-wang  
+##### 62#       发表于 2025-2-24 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508552&amp;ptid=2247027" target="_blank">新世界的派蒙 发表于 2025-2-24 23:18</a>
+我感觉有点寄阿，你个全新游戏和崛起坐一桌，图啥呢</blockquote>
+这么瞧不起崛起？崛起再怎么样也是卡表家销量第二的游戏
+
+而且崛起也有自己的优点，当然啦，如果是看平台看画面的，那崛起的优点就是没有
+
+
+*****
+
+####  KENN  
+##### 63#       发表于 2025-2-24 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508585&amp;ptid=2247027" target="_blank">clyde-wang 发表于 2025-2-24 23:21</a>
+这么瞧不起崛起？崛起再怎么样也是卡表家销量第二的游戏
+
+而且崛起也有自己的优点，当然啦，如果是看平台 ...</blockquote>
+投入跟崛起不一样
+荒野经费一看就比rise多
+
+*****
+
+####  nemuru_baka  
+##### 64#       发表于 2025-2-24 23:24
+
+不太懂媒体这个终盘内容指的什么，感觉刷的要素一点也不少啊。怪的逼格不行的意思吗
+

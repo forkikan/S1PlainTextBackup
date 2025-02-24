@@ -4549,3 +4549,15 @@ GkPEqVDa8AAB5LH.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 26986#       发表于 2025-2-24 23:21
+
+ 本帖最后由 平昭·南宫司卿 于 2025-2-24 23:24 编辑 
+
+国服刚好是 TIS 尾声的 PP 活，服装台词歌曲都是最完美的巧合，这下不得不狂冲了，这两天打了 700w+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 看 amita 哭哭真忍不住一起哭，希望还有下一次五人齐聚，amita 实在是太不容易了
+
