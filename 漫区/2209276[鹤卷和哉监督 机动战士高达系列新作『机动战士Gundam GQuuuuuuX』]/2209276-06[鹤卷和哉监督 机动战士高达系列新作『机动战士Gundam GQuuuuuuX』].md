@@ -1619,3 +1619,15 @@ Gundam GQuuuuuuX Beginning Design Works
 
 假设修司真是红高达跟泽克诺瓦在玫瑰的帮助下诞生的kirakira妖怪妖精，那这就是他亲爹娘啊，只有开高达跟涂鸦时眼里有光也能理解成只是黏父母了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 7536#       发表于 2025-2-24 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502617&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-2-24 09:30</a>
+裤袜脱落大尉很难不是男妈妈</blockquote>
+那我直接快进到修司在宇宙疯掉<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

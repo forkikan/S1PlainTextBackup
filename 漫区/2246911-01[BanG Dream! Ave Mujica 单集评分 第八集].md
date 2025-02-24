@@ -3414,3 +3414,20 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 -----因为更烂的多得是
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 377#       发表于 2025-2-24 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502595&amp;ptid=2246911" target="_blank">kenqqex 发表于 2025-2-24 09:29</a>
+我觉得看片看了10年20年的都不会觉得这片特别烂
+
+-----因为更烂的多得是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">没必要摆资历，觉得烂是一个主观感受
+它要不叫母鸡卡那确实是路边野狗，烂了也不会觉得特别烂。
+烂就烂在它叫母鸡卡是mygo的第二季
+不叫母鸡卡，谁管你这垃圾动画
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
