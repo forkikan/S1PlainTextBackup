@@ -431,3 +431,17 @@ openai和老黄会不会哭着给ds送钱求他们别继续开源了<img src="ht
 
 首先日本企业没有意愿投资，原因是日本没有AI人才，而日本没有AI人才的原因是没有投资，这属于是先有蛋还是先有鸡的问题
 
+
+*****
+
+####  御坂MKII  
+##### 42#       发表于 2025-2-24 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504857&amp;ptid=2246987" target="_blank">ryanghj 发表于 2025-2-24 13:49</a>
+搜了一下是个千卡集群
+
+首先日本企业没有意愿投资，原因是日本没有AI人才，而日本没有AI人才的原因是没有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">日本现在很多项目都是人种大混杂的，paypay 之类的都是有很多国人，甚至有的还有不少白皮
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
