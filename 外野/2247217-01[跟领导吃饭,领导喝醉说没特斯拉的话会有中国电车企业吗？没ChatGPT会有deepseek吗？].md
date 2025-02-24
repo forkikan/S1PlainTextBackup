@@ -491,3 +491,20 @@ chatgpt ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  utakata  
+##### 57#       发表于 2025-2-24 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500917&amp;ptid=2247217" target="_blank">大厨麦当牛 发表于 2025-2-23 22:36</a>
+ 虽然但是，董明珠这个年龄没有不丑的女人吧。 所以想不通她为啥现在想起来打造个人IP了。 ...</blockquote>
+所有的作妖都是董有意为之吧，目的是强化她自己和格力形象、消费者联想的绑定。只有这样了，那帮人才不好真的把她搞下去
+
+*****
+
+####  ellioe  
+##### 58#       发表于 2025-2-24 08:13
+
+那你就说没有永乐大典西方动物朋友还在树上摘果儿吃<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
