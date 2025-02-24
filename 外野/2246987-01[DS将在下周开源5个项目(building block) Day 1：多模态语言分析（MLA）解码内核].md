@@ -542,3 +542,33 @@ openai和老黄会不会哭着给ds送钱求他们别继续开源了<img src="ht
 
 2025-2-24 15:21 上传
 
+
+*****
+
+####  overflowal  
+##### 49#       发表于 2025-2-24 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67505461&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-24 15:22</a>
+
+千问今晚不知道发啥 
+
+而且其实他们也甩了论文出来，只是现在聚光灯都集中在DS这边了，虽然人家是拼实力赢 ...</blockquote>
+qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max就是不开源的。
+
+跟DeepSeek这种把最顶级模型直接开了的开源狂徒还是有很大区别的，不知道阿里会不会给他们松绑。
+
+*****
+
+####  jojog  
+##### 50#       发表于 2025-2-24 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67504967&amp;ptid=2246987" target="_blank">cube 发表于 2025-2-24 14:08</a>
+
+日本发展AI也会被他美爹掐死，这点完全不用担心。
+
+发展AI是需要全产业链的生态的，不是说训练出个大模型 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反过来想日本可以搞“纯天然无AI绿色内容产业”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">“你怎么敢说自己不用？”
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“我基建都铺不开根本没法产生规模效应，只能手工酱人啊”
+
