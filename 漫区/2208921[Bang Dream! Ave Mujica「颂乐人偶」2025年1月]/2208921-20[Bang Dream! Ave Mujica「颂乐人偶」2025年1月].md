@@ -11877,3 +11877,25 @@ https://x.com/whitecrown1107
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 29111#       发表于 2025-2-24 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  江口夕  
+##### 29112#       发表于 2025-2-24 13:43
+
+ 本帖最后由 江口夕 于 2025-2-24 13:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画估计是翻不了盘，大祥个人翻盘还是可能的。毕竟都抽那么多集了，说明制作组到企划都极度自信。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
