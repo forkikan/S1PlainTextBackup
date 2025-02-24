@@ -11569,3 +11569,41 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  试制甲炮  
+##### 29083#       发表于 2025-2-24 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503143&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-24 10:29</a>
+
+看到一个日本人对睦的人格形成问题的解读，感觉比较自然
+
+睦原本只是一个天生就有非凡表演才能的孩子，只是 ...</blockquote>
+对，我是基本认同这个观点的，需要补充的是，美奈美忽视女儿的情况除了先入为主，恐怕还有之前访谈所说的嫉妒心，把女儿看做竞争对手吧。再一个，我认为人格收束除了魅魔祥子和吉他的影响，恐怕还有一点就是美奈美发现女儿的潜力之后，就再也不带女儿上综艺之类的，睦无需再见人说人话见鬼说鬼话了。
+
+
+*****
+
+####  钦念以忱  
+##### 29084#       发表于 2025-2-24 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501859&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-24 02:44</a>
+睦莫问题其实指示出了ave可能的核心话题“重生为真实的自我”，吉他睦在取得意识后结束了多首怪兽的状态， ...</blockquote>
+最女神异闻录的一集，5人依次我就是你你就是我是吧
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  钦念以忱  
+##### 29085#       发表于 2025-2-24 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67502404&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-24 09:06</a>
+不考虑包饺子了，感觉很有可能不包饺子就是写一个序章接下来大家请看手游。
+
+看了一些弗洛伊德领域大神的分 ...</blockquote>
+祥子也是支持吉他睦的
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

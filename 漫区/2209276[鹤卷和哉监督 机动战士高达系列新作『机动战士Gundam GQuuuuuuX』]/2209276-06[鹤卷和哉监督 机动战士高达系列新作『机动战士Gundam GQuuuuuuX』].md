@@ -1645,3 +1645,16 @@ Gundam GQuuuuuuX Beginning Design Works
 
 高达说要去地球找玫瑰——其实是便宜爹带傻儿子去找便宜妈。
 
+
+*****
+
+####  AvenueIII  
+##### 7538#       发表于 2025-2-24 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67500126&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-2-23 20:13</a>
+
+还挺好奇现在的khara做op是什么画风</blockquote>
+khara的第一部TV吧 (?)
+
+还真不好说op画风
+
