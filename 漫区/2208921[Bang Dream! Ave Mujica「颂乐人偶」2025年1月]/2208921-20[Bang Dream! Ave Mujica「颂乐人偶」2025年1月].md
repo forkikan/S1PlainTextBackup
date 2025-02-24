@@ -13076,3 +13076,14 @@ jk写死哈利没绷住
 
 祥初三的时候她妈才死的
 
+
+*****
+
+####  AnnieLeonhart  
+##### 29214#       发表于 2025-2-24 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67507987&amp;ptid=2208921" target="_blank">oneoutsider 发表于 2025-2-24 21:31</a>
+
+说起来为什么海铃和立希关系不错？动画里唯独没讲过她俩认识的过程。像海铃这种不粘锅性格初遇对陌生人不友 ...</blockquote>
+独角兽说过想写海希相遇但动画没篇幅了
+
