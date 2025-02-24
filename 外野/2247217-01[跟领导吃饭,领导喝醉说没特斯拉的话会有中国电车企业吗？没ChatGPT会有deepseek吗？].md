@@ -810,3 +810,33 @@ chatgpt本身就是一种非常莽的尝试。
 
 没有老佛爷的赔款，根本不会有特斯拉和chatGPT，归根到底还是用的东大的钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  膛线  
+##### 89#       发表于 2025-2-24 11:09
+
+说董小姐很丑明显是发觉说了不该说的话往回找补
+
+此处应该有掌声
+
+
+*****
+
+####  枯风瘦雪  
+##### 90#       发表于 2025-2-24 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501081&amp;ptid=2247217" target="_blank">kouym 发表于 2025-2-23 23:08</a>
+
+没chagpt 大家可能还会把目光放在其他人工智能的方向 不像现在所有人都盯着大模型 ...</blockquote>
+最早的大模型不是bert那条线的吗？GLM早期的技术路线我记得也是跟着bert走的
+
+*****
+
+####  混沌的风  
+##### 91#       发表于 2025-2-24 11:13
+
+也不能说领导全错嘛，有人先过了河，肯定是帮助了后来人，指明了方向。
+
+至少少走了很多弯路。
+

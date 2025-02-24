@@ -11624,3 +11624,27 @@ soyo：她是谁？A：用来取代你的贝斯手。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 29087#       发表于 2025-2-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67503458&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-24 10:59</a>
+与其说支持吉他睦，不如说支持的是若叶睦这个大集体，目前是大墨和吉他睦相互抢手柄不影响祥子对睦整体的 ...</blockquote>
+并不是，祥子是很排斥Mortis的，这集她说会代替Crythic一直陪在睦身边，Mortis问哪个（睦），祥子直接卡壳了。
+上一集的诉求也是睦恢复原样。
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  玖羽  
+##### 29088#       发表于 2025-2-24 11:07
+
+草，老蒋的新假药<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+[https://www.bilibili.com/video/BV1wcPAeyEvq/](https://www.bilibili.com/video/BV1wcPAeyEvq/)
+
+3:46:57 人偶蜈蚣说（五个人依次为上一个人的人偶）
+

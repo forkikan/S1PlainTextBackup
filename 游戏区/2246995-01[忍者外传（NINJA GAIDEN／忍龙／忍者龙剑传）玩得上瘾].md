@@ -503,3 +503,14 @@ FC美版叫Ninja Gaiden，Ninja外伝，然后外伝下面六个英文字母Gaid
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  碎镜子  
+##### 46#       发表于 2025-2-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67486872&amp;ptid=2246995" target="_blank">梦窗 发表于 2025-2-21 16:54</a>
+
+没，说楼主，之前都还用“忍龙”，这回整个变成了“忍外”。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是标题叫了个外传：外传太生草了
+
