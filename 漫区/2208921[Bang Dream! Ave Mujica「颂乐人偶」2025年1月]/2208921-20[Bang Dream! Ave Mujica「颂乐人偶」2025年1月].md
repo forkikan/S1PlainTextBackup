@@ -12491,3 +12491,31 @@ p站画师世界</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一心而用  
+##### 29161#       发表于 2025-2-24 19:04
+
+佐佐木李子：第一堂鼓课
+[https://b23.tv/YgEshb8](https://b23.tv/YgEshb8)
+<img src="https://p.sda1.dev/22/bbf36fe4606c049cf53a6a475143722f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/17df24bb7decdf89fa3b780b3fb4c1dd/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 29162#       发表于 2025-2-24 19:10
+
+當主唱是沒前途的
+
+還是打鼓流量高 ！（指聯名奢牌）
+
+*****
+
+####  huxiaopao163  
+##### 29163#       发表于 2025-2-24 19:10
+
+一个猜测，双重人格是障眼法，小睦和莫都是演的，背后还有一个真正的若叶睦的人格、性格以及目的
+
