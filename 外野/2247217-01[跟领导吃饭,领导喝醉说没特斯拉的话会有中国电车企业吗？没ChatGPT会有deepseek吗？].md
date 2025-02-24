@@ -902,3 +902,18 @@ chatgpt本身就是一种非常莽的尝试。
 
 没有董明珠就没有领导你。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牙晓  
+##### 99#       发表于 2025-2-24 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501562&amp;ptid=2247217" target="_blank">我爱喵喵 发表于 2025-2-24 00:46</a>
+
+油车专利都把持在老牌车企手里，老钟力主发展电车是必然的事，就算没有特斯拉也一定会走电车的路
+
+chatgpt ...</blockquote>
+AI多核100%占用写报告，我端着咖啡摸鱼，这不是解放人性吗？
+
+当然，很多岗位因为这个没了，也有人失业，科技真的是双刃剑
+
