@@ -671,3 +671,72 @@ Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发�
 打了总得掉素材吧，那素材是干啥的。
 不是和崛起的霸主差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gigax  
+##### 74#       发表于 2025-2-24 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508708&amp;ptid=2247027" target="_blank">Humpy 发表于 2025-2-24 23:43</a>
+
+解禁怪没装备是咋回事…？
+
+打了总得掉素材吧，那素材是干啥的。</blockquote>
+看评论区说是不掉素材，等后续更新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Humpy  
+##### 75#       发表于 2025-2-24 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508731&amp;ptid=2247027" target="_blank">Gigax 发表于 2025-2-24 23:49</a>
+看评论区说是不掉素材，等后续更新</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">……这有点太过分了。
+
+那刷解禁怪有啥意义，刷HR吗
+
+*****
+
+####  TheCyrodiil  
+##### 76#       发表于 2025-2-24 23:54
+
+这钱还不如给伊津野呢，龙信2做好了，以后人就不念叨老滚了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 77#       发表于 2025-2-24 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508744&amp;ptid=2247027" target="_blank">Humpy 发表于 2025-2-24 23:52</a>
+
+……这有点太过分了。
+
+那刷解禁怪有啥意义，刷HR吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ucg评测里说的估计就是这事  再评测里看到“等更新“我还是有点崩不住
+
+*****
+
+####  clyde-wang  
+##### 78#       发表于 2025-2-24 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508708&amp;ptid=2247027" target="_blank">Humpy 发表于 2025-2-24 23:43</a>
+解禁怪没装备是咋回事…？
+
+打了总得掉素材吧，那素材是干啥的。</blockquote>
+霸主还可以做把武器呢
+
+这次是啥都没
+
+*****
+
+####  Gigax  
+##### 79#       发表于 2025-2-24 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508744&amp;ptid=2247027" target="_blank">Humpy 发表于 2025-2-24 23:52</a>
+
+……这有点太过分了。
+
+那刷解禁怪有啥意义，刷HR吗</blockquote>
+说是有一只怪能掉解禁素材，反复刷就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
