@@ -765,3 +765,34 @@ Ign说终盘内容少，加上这几次测试的灾难优化，可以说首发�
 
 MC已经90了，72家媒体
 
+
+*****
+
+####  屌丶哲  
+##### 83#       发表于 2025-2-25 01:20
+
+ 本帖最后由 屌丶哲 于 2025-2-25 01:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508994&amp;ptid=2247027" target="_blank">shinra-01 发表于 2025-2-25 01:03</a>
+
+MC已经90了，72家媒体</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/25/012022ft53it6eqzccr3e7.png" referrerpolicy="no-referrer">
+
+<strong>18615A14C1098D2B2931DE423361D95C.png</strong> (30.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 01:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/012024xcc9fduvlflxekne.png" referrerpolicy="no-referrer">
+
+<strong>6E973A227B0D76F7F1C875F534868D33.png</strong> (14.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 01:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演都不演了，最好的怪猎，内容最多
+
+“2025年内容最丰富的游戏”
+
