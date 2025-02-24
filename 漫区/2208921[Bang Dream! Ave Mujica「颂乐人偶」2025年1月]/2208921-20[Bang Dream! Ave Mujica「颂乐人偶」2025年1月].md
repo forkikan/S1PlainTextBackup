@@ -12334,3 +12334,13 @@ p站画师世界</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ziqing  
+##### 29146#       发表于 2025-2-24 16:19
+
+我最想吐槽的还是第八集后还多出一大批拿着第八集到处邀功的兽gachi，这些人真的还是人类吗？
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
