@@ -1098,3 +1098,19 @@ ChatGpt至少证明了LLM这条路在短时间内有走通了爆发性发展的�
 控制变量法。董明珠七十岁了，要跟同样七十岁的女人比</blockquote>
 和赵雅芝比呢？
 
+
+*****
+
+####  秦南心  
+##### 117#       发表于 2025-2-24 21:24
+
+他怎么不说没有丝绸之路西方还搁那中世纪烧异端<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eva02eva02  
+##### 118#       发表于 2025-2-24 21:32
+
+特斯拉不就是抄的比亚迪的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
