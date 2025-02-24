@@ -1684,3 +1684,29 @@ khara的第一部TV吧 (?)
 但这样的角色长时间放主角团里故事会很难讲吧
 回到马里奥模式的猜想，在前中期把红高跟修司用泽克诺瓦一起送地球去，这样追着修司的麻球，追着夏亚的索顿舰，搞丢目标不敢回去的喵安，目的地就可以达成一致了
 
+
+*****
+
+####  oi99o  
+##### 7541#       发表于 2025-2-24 12:58
+
+香港本周四就要上映了，写了份观影指南供大家参考。
+
+<img src="https://img.saraba1st.com/forum/202502/24/125134hfqqrregtaututdf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (255.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202502/24/125220mjbgw1wam72v199w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (315.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-24 12:52 上传
+
+另外gqx这次香港首周一般场次观影特典是“日本直送【主视觉插画卡一张】”，目前没有会搞特殊场次的情报。
+

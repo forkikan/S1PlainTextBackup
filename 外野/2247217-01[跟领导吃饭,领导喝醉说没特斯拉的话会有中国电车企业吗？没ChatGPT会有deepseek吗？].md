@@ -894,3 +894,11 @@ chatgpt本身就是一种非常莽的尝试。
 
 说明领导还没有从全人类发展的角度出发，思想觉悟不够高，多念几遍“人类命运共同体”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 98#       发表于 2025-2-24 12:56
+
+没有董明珠就没有领导你。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
