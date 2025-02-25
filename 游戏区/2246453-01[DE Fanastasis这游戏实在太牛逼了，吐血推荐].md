@@ -2541,3 +2541,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 准确的说是大更新优化版，没有重制</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">美术大加强+部分地图重做+新地图+新大迷宫够多了吧..........
 
+
+*****
+
+####  慕容断月  
+##### 220#       发表于 2025-2-26 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518493&amp;ptid=2246453" target="_blank">blackll7 发表于 2025-2-26 00:36</a>
+
+美术大加强+部分地图重做+新地图+新大迷宫够多了吧..........</blockquote>
+所以是大更新嘛
+

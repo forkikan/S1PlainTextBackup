@@ -654,3 +654,55 @@ layer住大喵隔壁，两人说过话，masking赞扬过大喵的技术。
 
 还在等吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 29661#       发表于 2025-2-26 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518525&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-26 00:42</a>
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+初歌……是故意的还是打错字了？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29662#       发表于 2025-2-26 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518576&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-26 00:49</a>
+
+初歌……是故意的还是打错字了？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+机翻没正确理解姓名吧
+
+
+*****
+
+####  金钱与民主  
+##### 29663#       发表于 2025-2-26 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518578&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-26 00:50</a>
+机翻没正确理解姓名吧
+
+看到外部压力就该明白了，老登应该还得有戏份</blockquote>
+我去搜了下，原图就是初歌……这是故意的还是不小心？
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/26031f9ec125a5759f7ceba9cd21d49f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大户爱  
+##### 29664#       发表于 2025-2-26 00:55
+
+重组ave mojica，老登不同意的话，你们得先把违约金还了啊。
+
+后面不好写就是这里，老登付了违约金有天然的道德和经济优势。
+
+后面无论怎么吵，还是得和老登和解。但只要违约金在这，鸡团几个人还是有天然的道德劣势。
+
+所以好多人抱着内鬼不放呢。
+
