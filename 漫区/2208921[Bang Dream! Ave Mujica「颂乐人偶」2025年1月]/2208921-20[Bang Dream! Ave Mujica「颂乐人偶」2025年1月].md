@@ -13834,3 +13834,38 @@ bang23是遇事不决香橙精神注入邦，乐队内部开会每个人说实�
 
 八集連立三個人人設也做不到就是制作組無能
 
+
+*****
+
+####  钦念以忱  
+##### 29264#       发表于 2025-2-25 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510525&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-25 10:29</a>
+
+其实我觉得mujica这次烂炒观感这么差有另一个重大的原因就是对于这种多角色、人物自身信息和关系性相对复杂 ...</blockquote>
+我觉得鸡团5人的人设根本就不行，就现在这点篇幅，大部分剧情都拿来写若叶睦的多重人格发病治病故事了，再扩写一倍又能写什么呢，鸡团剩下几个人的人设，吸引力就不太行啊，还掺杂了太多现实元素，充满了铜臭味，讲得再细一点，把逻辑理理顺，也不会变得多么更好看。
+
+倒是可以少写这5个人，多写写祥子编出来的avemujica世界观的舞台剧，感觉会更有趣一些。
+
+
+*****
+
+####  GBLMikuHatsune  
+##### 29265#       发表于 2025-2-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510631&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 10:44</a>
+
+這不成理由
+
+到第八集為止</blockquote>
+如果到第八集真的是只集中写睦莫祥且写不出来，那确实问题太大了。
+
+但是现在又有大篇幅给ccc，又有众多go角色来出工出力领工资，我觉得除了对单个角色的描写笔力不足以外，wsd从开始把这10（11）个人四个团的爱恨纠葛全放在鸡的13集里去解决，这个想法简直就是贪到极致，可以说是整体架构上规划的重大失误<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 29266#       发表于 2025-2-25 10:53
+
+那个小短剧世界观真的有趣吗
+
