@@ -700,3 +700,39 @@ https://github.com/deepseek-ai/DeepEP
 https://chat.qwen.ai</blockquote>
 感觉他们本来是想发了，结果一看claude3.7，又打上preview回炉去了
 
+
+*****
+
+####  Mac1024  
+##### 62#       发表于 2025-2-25 11:20
+
+zt:DeepSeek首日开源引硅谷深夜炸锅
+
+这个名为 FlashMLA 的开源项目，彻底改写了我的认知。
+
+当我第一次在 GitHub 上加载这个专为 Hopper GPU 打造的 MLA 解码内核时，64块页式 KV 缓存的设计让我眼前一亮。过去像处理短视频流这种变长序列时，显存碎片化能把算力吃掉近三成，但 FlashMLA 的分块并行计算硬是把H800的峰值算力顶到了580TFLOPS-﹣这相当于给每块 GPU 装上了涡轮增压器。
+
+最让我震撼的是项目文档里的一行小字：「已在生产环境部署」。这意味着我们团队花了半年攻关的显存优化难题， DeepSeek 早已在实战中跑通。开源当天，硅谷的朋友半夜给我发消息：你们中国人开源核武器都不打招呼吗？
+
+开源社区的狂欢来得比想象中更猛烈。
+
+短短6小时， GitHub 星标破5000。有开发者实测用 FlashMLA 处理长文本推理，吞吐量直接翻倍。更可怕的是这个项目的「传染性」某 AI 绘画平台接入后，单卡并发用户数从50飙到120，服务器成本砍掉40%。
+
+但真正让我后背发凉的是 DeepSeek 的布局。从 MoE 架构到 MLA 优化，他们正在用开源拆解大模型的「贵族门槛」。当行业还在争论千卡集群的可行性时，有人已经让单卡算力突破物理极限。
+
+这场开源风暴背后，藏着更深的行业变局。
+
+看看开发者论坛的热帖就知道：「以前觉得买不起H100是原罪，现在发现不会魔改 gpu 才是硬伤。」 FlashMLA 的开源就像打开了潘多拉魔盒﹣当算力利用率不再是秘密，中小团队也能用有限资源训练出顶尖模型。
+
+站在机房的轰鸣声中，我忽然想起三年前导师说的话：「 AI 革命的胜负手，从来不在模型参数量级。此刻监控屏上稳定的显存曲线，或许就是最好的证明。
+
+*****
+
+####  moekyo  
+##### 63#         楼主| 发表于 2025-2-25 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510791&amp;ptid=2246987" target="_blank">overflowal 发表于 2025-2-25 11:01</a>
+
+感觉他们本来是想发了，结果一看claude3.7，又打上preview回炉去了</blockquote>
+这个预览还是正式，对一般用户没什么影响吧，就一个免责声明似的东西，能用就好了，而且后面还会开源，可以爽用就行<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> <blockquote>Very soon, we are about to release the official version of QwQ-Max, and we will open-weight both QwQ-Max and Qwen2.5-Max under the license of Apache 2.0! Furthermore, we will also provide smaller variants, e.g., QwQ-32B, which can be deployed on local devices. Also, since a great number of users are expecting our APP, we are going to release an Android and iOS APP while we release our official QwQ-Max. </blockquote>
+
