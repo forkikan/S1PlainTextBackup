@@ -749,3 +749,31 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 </blockquote>
 成本直接砍4成？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 65#       发表于 2025-2-25 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510976&amp;ptid=2246987" target="_blank">Mac1024 发表于 2025-2-25 11:20</a>
+zt:DeepSeek首日开源引硅谷深夜炸锅
+
+这个名为 FlashMLA 的开源项目，彻底改写了我的认知。</blockquote>
+可惜相关技术对sd完全没用
+
+*****
+
+####  ryanghj  
+##### 66#       发表于 2025-2-25 14:25
+
+那看来输入缓存也会开源咯
+
+—— 来自 Xiaomi 2308CPXD0C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  一座恐怖屋  
+##### 67#       发表于 2025-2-25 14:26
+
+什么时候能更新封装到个人部署里
+
