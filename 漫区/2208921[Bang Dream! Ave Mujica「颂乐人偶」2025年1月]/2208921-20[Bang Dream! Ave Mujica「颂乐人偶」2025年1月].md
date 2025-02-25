@@ -15812,3 +15812,103 @@ tft的周三22:00卖狗啥意思啊，哪个周三啊，时区是哪啊</blockqu
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  看穿一切的鱼  
+##### 29448#       发表于 2025-2-25 20:39
+
+小姨已经是最温和的走向了，说不定能看到祥子·布兰度拦出租车呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 29449#       发表于 2025-2-25 20:39
+
+<img src="https://img.saraba1st.com/forum/202502/25/203946hqxc4bbco2kcx88g.jpg" referrerpolicy="no-referrer">
+
+<strong>1`GQ5LK[CZS@Z4326WZ]32L.jpg</strong> (32.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 20:39 上传
+
+*****
+
+####  天空塔书记官  
+##### 29450#       发表于 2025-2-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515639&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 20:09</a>
+现在还看不出来烂吗，我觉得是真的烂，日本人不知道怎么想</blockquote>
+单纯的烂是不会让人破防的，
+
+重点还是预期
+
+没预期的人早就没所谓了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 29451#       发表于 2025-2-25 20:41
+
+尼玛黑色生日不会是准备到TFT唱吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 29452#       发表于 2025-2-25 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514091&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-25 17:12</a>
+
+应该是讨厌红色吧，下个镜头是mortis对着立希哈气，恰好立希带着的领结也是红色的。 ...</blockquote>
+坛友提醒了我，之前没注意第六话Mortis对立希也有反应<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 
+
+不知道Mortis对红色的应激和美奈美有没有关系
+
+<img src="https://img.saraba1st.com/forum/202502/25/204132zhh8qvq8n3jisi77.jpg" referrerpolicy="no-referrer">
+
+<strong>Mortis愤怒1.jpg</strong> (288.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/204132tae6mipm9zftrk7l.jpg" referrerpolicy="no-referrer">
+
+<strong>Mortis愤怒2.jpg</strong> (331.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/204131vyabbb85zy4q55bx.jpg" referrerpolicy="no-referrer">
+
+<strong>Mortis愤怒3.jpg</strong> (367.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 20:41 上传
+
+
+*****
+
+####  ape-apple  
+##### 29453#       发表于 2025-2-25 20:43
+
+我真不觉得tft还能再花钱上第三次，所以🐔团真成了根不疼🦄不爱的孩子了
+
+*****
+
+####  看穿一切的鱼  
+##### 29454#       发表于 2025-2-25 20:46
+
+从隔壁舅舅来看祥厨已经可以打1分离场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
