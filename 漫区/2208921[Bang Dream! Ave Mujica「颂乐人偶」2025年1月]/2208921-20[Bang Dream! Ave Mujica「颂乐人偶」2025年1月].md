@@ -14282,3 +14282,48 @@ mygo 第2话:</blockquote>
 
 话说有啥超级英雄设定是嗅觉特别好的
 
+
+*****
+
+####  刑部姬真可爱  
+##### 29307#       发表于 2025-2-25 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511630&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-25 12:25</a>
+
+话说有啥超级英雄设定是嗅觉特别好的</blockquote>
+金刚狼
+
+*****
+
+####  烂片雷达  
+##### 29308#       发表于 2025-2-25 12:28
+
+祥说可以替代crychic陪在睦身边，但是睦仍然要坚持重组crychic
+是不是说明crychic里有祥替代不了也割舍不了的东西，也就是说睦很有可能暗恋tomori的歌声<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今城果天  
+##### 29309#       发表于 2025-2-25 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511630&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-25 12:25</a>
+话说有啥超级英雄设定是嗅觉特别好的</blockquote>
+设定上嗅觉强想得起来的有金刚狼、黑豹和夜魔侠
+
+
+*****
+
+####  empereur  
+##### 29310#       发表于 2025-2-25 12:35
+
+<blockquote>zhoujin8584 发表于 2025-2-25 12:25
+预告文本翻译</blockquote>
+为啥说喵梦深陷危机
+
+*****
+
+####  阿兹尔  
+##### 29311#       发表于 2025-2-25 12:37
+
+看来是4个成员赖着祥子不走的结局，终成大女主了这下。但是这值得吗
+
