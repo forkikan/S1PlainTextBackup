@@ -1019,3 +1019,24 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 —— 来自 S1Fun ...</blockquote>
 礼物不计入评测
 
+
+*****
+
+####  Sevenzerofive  
+##### 106#       发表于 2025-2-25 09:33
+
+分段式更新，真的等全部更新完再买也不迟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  leafS  
+##### 107#       发表于 2025-2-25 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509943&amp;ptid=2247027" target="_blank">Bruce33 发表于 2025-2-25 09:12</a>
+卡婊有这群粉丝难怪有恃无恐，泡狐龙这种纯纯的路边更新放第一弹都能找到这么新奇的角度洗，我也是长见识了 ...</blockquote>
+去nga看看感觉进了孝子大本营，还有人说分段更新完美解决后劲不足的问题，我都看笑了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
