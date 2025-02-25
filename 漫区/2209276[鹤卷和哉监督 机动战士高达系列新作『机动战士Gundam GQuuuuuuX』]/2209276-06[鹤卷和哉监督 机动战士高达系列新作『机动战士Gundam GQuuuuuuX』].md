@@ -2602,3 +2602,46 @@ khara这不会又搞一个G学出来吧
 gkids.com/films/mobile-suit-gundam-gquuuuuux/tickets/
 英文字幕的话，看你日语听力和英语阅读速度如何，要么一边特别好，要么两边都有个三脚猫水平，不然也是挺折磨的
 
+
+*****
+
+####  OrianaThomson  
+##### 7618#       发表于 2025-2-26 01:01
+
+卧槽有大药么
+
+*****
+
+####  Gaybird  
+##### 7619#       发表于 2025-2-26 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511648&amp;ptid=2209276" target="_blank">zksandy 发表于 2025-2-24 23:27</a>
+我这边AMC还没IMAX……不过电影院第一次看日语+英文字幕的，不知道反应的过来不 ...</blockquote>
+我看Gkids官网上统一是26号一天有imax的，如果你输了邮政编码附近还是没有，那应该是真没有了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+gkids.com/films/mobile-suit-gundam-gquuuuuux/tickets/
+英文字幕的话，看你日语听力和英语阅读速度如何，要么一边特别好，要么两边都有个三脚猫水平，不然也是挺折磨的
+
+*****
+
+####  Gaybird  
+##### 7620#       发表于 2025-2-26 05:56
+
+MAV的灵感果然是阿姆罗和拉拉吗……
+那样的话我要把いまはおやすみ的歌词贴一遍了
+
+こんな二人が巣立つとも
+
+ただ悲しみが果てなくて
+
+果てなくて
+
+あこがれる
+
+夢  それは夢  夢
+
+あした二人は血みどろで
+
+風に  風に  風に舞う
+
+加油啊麻球和修司！不要变成正史里的nt恋悲剧！
+
