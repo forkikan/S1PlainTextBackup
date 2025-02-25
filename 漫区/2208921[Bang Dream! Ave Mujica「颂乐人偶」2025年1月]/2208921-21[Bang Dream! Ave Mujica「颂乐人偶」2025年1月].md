@@ -482,3 +482,59 @@ lock或者chu2吧。硬要选选lock，23季讲的就是lock自己的追梦故�
 我們邦邦什麼時候變成這樣了</blockquote>
 这个好解释，案发现场是摄像头盲区，客观证据不足，而且睦不愿作证就行了
 
+
+*****
+
+####  天空塔书记官  
+##### 29645#       发表于 2025-2-25 23:45
+
+ 本帖最后由 天空塔书记官 于 2025-2-25 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517979&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 23:28</a>
+很满意，很能理解什么叫做kirakiradokidoki，
+
+有，第三季最终话为了包饺子莫名其妙就从2队对邦突然变成3队 ...</blockquote>
+三队同登武道馆是来自于现实中2019年的武道馆7th逆输入，这三队也是bang最初的三支实体乐队，其他的老团都是基本只有主唱线下活动的线上声优乐队，第四支要等到2020年的Morfonica，也就是仓田真白的蝶团
+
+二三季本来是要给RAS手游实装打广告的，结果被蝶团插队，后续资源配给也出了问题，只能说很可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 29646#       发表于 2025-2-25 23:46
+
+说明wsd就是这么个玩意，运营也运营不明白<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29647#       发表于 2025-2-25 23:50
+
+wsd最大的问题就是喜欢多点下注，结果因为体量不足总在资源分配上摔跟头，还遇上了对线下影响极大的“大灾变”，只能说天时地利人和都不沾了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 29648#       发表于 2025-2-25 23:51
+
+等等， 28日 就是邦邦十周年了吧
+
+星期四還整頂級爛活？
+
+一起來享受屎本獻給邦邦的情書吧
+
+
+*****
+
+####  adretyu67.  
+##### 29649#       发表于 2025-2-25 23:54
+
+ 本帖最后由 adretyu67. 于 2025-2-25 23:55 编辑 
+
+上周就说了超速展开把。
+
+只要一超速展开就要出问题，其实应该是意料之中了。
+
