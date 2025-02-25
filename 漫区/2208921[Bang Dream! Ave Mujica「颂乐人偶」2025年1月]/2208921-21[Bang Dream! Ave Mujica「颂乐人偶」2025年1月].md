@@ -809,3 +809,51 @@ AZ级别的赤石啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mkntoil  
+##### 29675#       发表于 2025-2-26 01:07
+
+ 本帖最后由 Mkntoil 于 2025-2-26 01:11 编辑 
+
+双子说存疑。杂志社打错字这种情况还是有可能发生的？
+
+*****
+
+####  adretyu67.  
+##### 29676#       发表于 2025-2-26 01:11
+
+但是这么重要的不该剧透出来，除非说第9话就要爆双子初华了才说得过去。
+
+*****
+
+####  非建政专用号  
+##### 29677#       发表于 2025-2-26 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518525&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-26 00:42</a>
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+挂机一个月是因为吸了一个月祥子枕头把味道吸干了，现在翻演出服来吸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  堆雪若叶  
+##### 29678#       发表于 2025-2-26 01:12
+
+所以初华真就是纯纯的傻白甜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡似了几个月灯素睦都要和祥子破镜重圆你才想到拿母鸡卡把人栓回来，之前解散下线真就完全局外人啊
+
+*****
+
+####  Alce79  
+##### 29679#       发表于 2025-2-26 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518635&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-2-26 01:02</a>
+
+AZ级别的赤石啊</blockquote>
+祥子在母鸡卡指定CP初华结局被切割给sumimi，我不敢想到时候节奏会有多大。
+
+要看几集丰川家的破事，祥子释怀后跟NPC组CP，初华继续上两趟班跟mana一起一休尼偶像团，祥子CP烂完。
+
