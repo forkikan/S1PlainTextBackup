@@ -2507,3 +2507,19 @@ khara的第一部TV吧 (?)
 不是说这个世界观的货币是个小瓶盖一样的东西吗，这钞票是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 khara这不会又搞一个G学出来吧
 
+
+*****
+
+####  王留美  
+##### 7607#       发表于 2025-2-25 23:35
+
+为什么我更建议看TV而不是剧场版，因为科瓦尔和迪米特里这种角色你不看TV就不知道，既然是为了补梗去看初代，那不如直接一步到位
+
+*****
+
+####  Gysumitka  
+##### 7608#       发表于 2025-2-25 23:41
+
+那现在玫瑰都不止一个，假药无从下手<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 
+或者沙仑玫瑰身份是可以经由后天习得
+

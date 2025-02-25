@@ -4600,3 +4600,14 @@ onp，还有一首mygo的TFT哦
 
 这是给mygo塞钱上TFT，然后mujica开Live吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 26991#         楼主| 发表于 2025-2-25 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515638&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2025-2-25 20:09</a>
+
+onp，还有一首mygo的TFT哦</blockquote>
+估计是星迷叫？当然要对应春日影的话倒是可以上诗超绊。
+
