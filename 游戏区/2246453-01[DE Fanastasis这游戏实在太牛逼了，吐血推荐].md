@@ -2462,3 +2462,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 为啥你们好像很早就能开理智之间的样子，宝珠解锁是不是在异种废村，但那里的木门我打不开，走不了祭司之道 ...</blockquote>
 钥匙就在废居住区那张地图，兵营往左走就能看到了
 
+
+*****
+
+####  Lamune  
+##### 213#       发表于 2025-2-25 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514133&amp;ptid=2246453" target="_blank">blackprice 发表于 2025-2-25 17:16</a>
+
+钥匙就在废居住区那张地图，兵营往左走就能看到了</blockquote>
+干，我看提示说钥匙在兵营另一边……在兵营外面掘地三尺了，没想到这么简单= =
+
