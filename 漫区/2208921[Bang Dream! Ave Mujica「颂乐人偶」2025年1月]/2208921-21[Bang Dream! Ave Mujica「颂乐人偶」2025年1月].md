@@ -538,3 +538,20 @@ wsd最大的问题就是喜欢多点下注，结果因为体量不足总在资�
 
 只要一超速展开就要出问题，其实应该是意料之中了。
 
+
+*****
+
+####  厚乳果珍爽  
+##### 29650#       发表于 2025-2-26 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mygo上tft了，又是烂炒吧？周四有mygo的live是吧？
+
+*****
+
+####  adretyu67.  
+##### 29651#       发表于 2025-2-26 00:05
+
+mygo上tft不算啥烂抄吧
+
+ccc上tft撞上第七话和解live进步到mygo解散转推ccc才算烂抄吧
+
