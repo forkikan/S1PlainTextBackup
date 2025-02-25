@@ -299,3 +299,74 @@ Mujica已经不是广告都能打成这样，而是为什么如此刻意的把�
 問題是母雞卡是曲高和寡的俗爛</blockquote>
 这能用曲高和寡来形容吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，骇人听闻吧（
 
+
+*****
+
+####  北条早苗  
+##### 29630#       发表于 2025-2-25 23:06
+
+狗动画在为什么演奏春日影之前的数据也是路边一条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+无非是烂炒之后能用诗超绊把吸引过来的观众都说服了
+
+*****
+
+####  adretyu67.  
+##### 29631#       发表于 2025-2-25 23:06
+
+曲高和寡程度大约和第七话live级别差不多吧
+
+*****
+
+####  ape-apple  
+##### 29632#       发表于 2025-2-25 23:08
+
+也是对不起跟我吵的那个楼友，mujica引来人了吗，也确实引来了一批，但是这点数据不够干啥的，我只希望真能破防老中观众，不是为了让wsd认错，是觉得没必要看这个东西
+
+
+*****
+
+####  天空塔书记官  
+##### 29633#       发表于 2025-2-25 23:10
+
+ 本帖最后由 天空塔书记官 于 2025-2-25 23:13 编辑 
+
+本来的目的和达成的结果不是一回事，在没失败之前怎么知道自己不会成功，况且还没完结呢，接着看呗，看笑话也是看
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29634#       发表于 2025-2-25 23:11
+
+虽然mujica可能会烂。
+
+但是我觉得因此补了bang23季还是挺开心的，也不算亏了
+
+人生几十年，260分钟的乐子也就是乐子。
+
+*****
+
+####  澜灰-  
+##### 29635#       发表于 2025-2-25 23:12
+
+ 本帖最后由 澜灰- 于 2025-2-25 23:15 编辑 
+
+来个最典中典的心里想着把人推下楼梯的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后就可以做二创了
+
+说起来现在剧透真的是满天飞，躲个剧透真不容易，锻炼手速了属于是
+
+*****
+
+####  595505568  
+##### 29636#       发表于 2025-2-25 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517787&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 23:11</a>
+虽然mujica可能会烂。
+
+但是我觉得因此补了bang23季还是挺开心的，也不算亏了</blockquote>
+抹布洗的一瞬，gei人生带来快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哇嘎里马斯
+
