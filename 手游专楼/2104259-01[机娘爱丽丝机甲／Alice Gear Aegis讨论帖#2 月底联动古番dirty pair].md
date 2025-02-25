@@ -66,3 +66,13 @@
 另外岛田居然又为 ...</blockquote>
 都有的，隐藏了你打几个点一般就见到。好像都贴着BOSS点的。
 
+
+*****
+
+####  冰风血羽  
+##### 1389#       发表于 2025-2-25 15:30
+
+才用券换了护士服活动奖励，马上就要复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
