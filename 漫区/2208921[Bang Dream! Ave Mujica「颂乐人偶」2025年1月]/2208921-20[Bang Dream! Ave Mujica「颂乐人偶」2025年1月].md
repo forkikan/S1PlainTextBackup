@@ -14948,3 +14948,59 @@ mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="h
 初华以此来交换大喵老师协助炸团
 事后避险两人故意见面的时候态度冷淡
 
+
+*****
+
+####  adretyu67.  
+##### 29371#       发表于 2025-2-25 17:40
+
+狗里初华开导灯的话说明她是懂主唱的定位。
+
+但是到鸡团下线这么久甚至疑似内鬼。
+
+总让人觉得这人是小祥&gt;鸡团，炸了鸡团有助于独占小祥，但是最后鸡团没了祥子也直接跑路三连了
+
+只能说输的有点多了。
+
+*****
+
+####  zhoujin8584  
+##### 29372#       发表于 2025-2-25 17:43
+
+ 本帖最后由 zhoujin8584 于 2025-2-25 17:44 编辑 
+
+捡一下漏油现成的，莫被AM散团打击自闭后，社会化程度还是跟着养父母及玩伴的参与不断提高的
+
+<img src="https://img.saraba1st.com/forum/202502/25/174125z3wnpizk7atgg2kt.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-4xxzZhT3cSlt-xs (1).jpg</strong> (170.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/174151gdkonfoeh1ehndde.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-gmmrZbT1kSem-sg.jpg</strong> (113.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/174202w73k4iwll4n4237k.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-803oZdT3cSlw-sz.jpg</strong> (150.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-25 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/174234sckkcnncautp8nim.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-1cdfZbT3cSlw-mz.jpg</strong> (108.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 17:42 上传
+
