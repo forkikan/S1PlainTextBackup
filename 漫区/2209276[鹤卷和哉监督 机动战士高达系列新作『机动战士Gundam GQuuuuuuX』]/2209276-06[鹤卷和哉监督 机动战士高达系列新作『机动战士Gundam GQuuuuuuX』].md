@@ -2008,3 +2008,11 @@ khara的第一部TV吧 (?)
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  gnihton314  
+##### 7565#       发表于 2025-2-25 10:39
+
+希望周六日还有imax场<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

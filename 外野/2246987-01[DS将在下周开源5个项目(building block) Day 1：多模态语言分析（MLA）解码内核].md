@@ -650,3 +650,16 @@ https://github.com/deepseek-ai/DeepEP
 昨天已经没有人讨论了今天更加不会有了吧
 太难懂了（
 
+
+*****
+
+####  moekyo  
+##### 58#         楼主| 发表于 2025-2-25 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510535&amp;ptid=2246987" target="_blank">neptunehs 发表于 2025-2-25 10:30</a>
+
+昨天已经没有人讨论了今天更加不会有了吧
+
+太难懂了（</blockquote>
+正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
