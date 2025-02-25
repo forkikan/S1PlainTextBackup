@@ -15397,3 +15397,80 @@ go团重组她拉人，c团重组她又抓人又送吉他，鸡团重组她不�
 
 進入最終章
 
+
+*****
+
+####  非建政专用号  
+##### 29408#       发表于 2025-2-25 19:47
+
+最近的还是立希吧，不选立希感觉要么是不想让海玲知道，要么是觉得奶龙好套话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  堆雪若叶  
+##### 29409#       发表于 2025-2-25 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515205&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 19:24</a>
+
+爱灯连体本来就是专攻灯祥的，所以反对声最大</blockquote>
+这么说来可以有睦祥素祥初祥独处但是再不能出现灯祥独处，到底是谁在害怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 29410#       发表于 2025-2-25 19:51
+
+<blockquote>adretyu67. 发表于 2025-2-25 19:31
+还有一张图，初华应该是手机看着看着怒目圆睁了，应该是真的突然下线1个月了。
+
+估计编剧的大手直接安排加 ...</blockquote>
+应该就是天文馆外了，带着帽子，黑夜，被灯睦刺激到了什么
+
+*****
+
+####  Toki_Ai  
+##### 29411#       发表于 2025-2-25 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">好家伙，nga专楼各种匿名破防。后面的剧情是有多烂才能弄成这样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 29412#       发表于 2025-2-25 19:52
+
+ 本帖最后由 天空塔书记官 于 2025-2-25 19:55 编辑 
+
+不一定真有多烂，而是一定不符预期
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 29413#       发表于 2025-2-25 19:52
+
+这个mujica突然回归实在是有点搞不清楚怎么串起来的，节奏有点快<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 29414#       发表于 2025-2-25 19:52
+
+没法出现灯祥独处我倾向于大祥老师哈气跑路一气呵成，闭灯追不上，必须安排阿侬轮椅才行。
+
+*****
+
+####  Versedust  
+##### 29415#       发表于 2025-2-25 19:53
+
+一会儿奥特曼一会儿奶龙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据死海文书，我不太期待爱初能有正向互动
+

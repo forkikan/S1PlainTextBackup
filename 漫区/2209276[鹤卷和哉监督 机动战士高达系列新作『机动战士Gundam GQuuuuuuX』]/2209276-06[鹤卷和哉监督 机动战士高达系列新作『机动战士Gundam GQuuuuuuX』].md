@@ -2309,3 +2309,24 @@ khara的第一部TV吧 (?)
 
 看了访谈就不会有这种想法了，企划初期先定下来的是麻球和喵安，类似top2的组合
 
+
+*****
+
+####  童话与星空  
+##### 7594#       发表于 2025-2-25 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514324&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-2-25 17:35</a>
+
+是命运的苹果，企鹅罐也是三人主角（其实是四个 还要加上苹果）论证完毕</blockquote>
+泽克诺瓦=改变了UC宇宙众人命运的命运换乘；红高达里的夏亚=企鹅帽里的桃果；红高达引导主角去找沙伦的玫瑰=企鹅帽引导主角去找企鹅罐。哇嘎里马死（）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 7595#       发表于 2025-2-25 19:45
+
+ 本帖最后由 岸浪白野 于 2025-2-25 19:47 编辑 
+
+去看场刊访谈和之前2月2号的舞台访谈repo对角色的描述
+不用对喵安乱猜和商业方面想太多了，这角色首先就复杂
+
