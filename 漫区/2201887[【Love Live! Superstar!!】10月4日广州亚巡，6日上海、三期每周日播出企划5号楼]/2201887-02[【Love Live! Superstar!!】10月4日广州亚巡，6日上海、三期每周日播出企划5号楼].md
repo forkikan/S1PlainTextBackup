@@ -173,3 +173,16 @@ LoveLive! Days 2025年4月号封面：五团横滨公演
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ViyViy  
+##### 1516#       发表于 2025-2-25 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514493&amp;ptid=2201887" target="_blank">starring 发表于 2025-2-25 17:54</a>
+
+不是莲吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+草，罪过，忘了还有个莲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莲后面才是青鸟团
+

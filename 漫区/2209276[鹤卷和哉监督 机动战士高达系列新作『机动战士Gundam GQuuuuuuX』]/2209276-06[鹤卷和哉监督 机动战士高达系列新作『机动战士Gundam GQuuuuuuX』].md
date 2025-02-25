@@ -2264,3 +2264,13 @@ khara的第一部TV吧 (?)
 
 只是坐骑翻了在催他起来啦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 7589#       发表于 2025-2-25 18:17
+
+卡拉的商法太baby了，我这周纸片已经买了五张了，下周的也好好看，想再多买几张，一张展示一张收藏剩下的到时传教用<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
