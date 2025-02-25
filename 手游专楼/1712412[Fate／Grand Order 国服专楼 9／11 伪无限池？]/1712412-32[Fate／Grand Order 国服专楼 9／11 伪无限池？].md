@@ -131,3 +131,13 @@
 
 单抽，金光！杀阶<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47030#       发表于 2025-2-25 19:41
+
+望月千代女可是我至今没有的几个常驻四星之一呢
+
+还有海伦娜，茨木，秦良玉
+
