@@ -579,3 +579,19 @@ ccc上tft撞上第七话和解live进步到mygo解散转推ccc才算烂抄吧
 
 結果MyGo 才是猴子打出莎士比亞的案例
 
+
+*****
+
+####  adretyu67.  
+##### 29654#       发表于 2025-2-26 00:30
+
+mujica剧本搞成这样，总觉得是写烂了还洋洋自得就比较神奇
+
+
+*****
+
+####  huxiaopao163  
+##### 29655#       发表于 2025-2-26 00:32
+
+说明双重人格是假的，是障眼法，两个人格都是若叶睦全程在演<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

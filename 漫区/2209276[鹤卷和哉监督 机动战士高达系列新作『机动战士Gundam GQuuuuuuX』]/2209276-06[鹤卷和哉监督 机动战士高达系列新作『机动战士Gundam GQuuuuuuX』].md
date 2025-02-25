@@ -2550,3 +2550,13 @@ khara这不会又搞一个G学出来吧
 
 剧场版没有部分单元剧其中包括初版绿叔叔TV39集的内容
 
+
+*****
+
+####  57042711  
+##### 7612#       发表于 2025-2-26 00:27
+
+看了初代高达也不一定能知道这些有点边缘的角色吧…更别说画风还有极大变化啥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
