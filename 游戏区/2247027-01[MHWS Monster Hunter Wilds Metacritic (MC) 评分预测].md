@@ -900,3 +900,18 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 懒得玩这种做完了一段段放的游戏了，打累死一更新所有装备珠子白配<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史蒂符  
+##### 95#       发表于 2025-2-25 08:18
+
+ 本帖最后由 史蒂符 于 2025-2-25 08:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509582&amp;ptid=2247027" target="_blank">厄斯沃穆 发表于 2025-2-25 08:03</a>
+崛起首发哪来40只怪
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+看了下记错了，37只
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
