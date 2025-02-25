@@ -966,3 +966,11 @@ mygo角色都很少出现这种抽了白抽的情况，甚至ccc复辟也只有s
 
 我还是认为是独角兽写的，因为不觉得柿本能写出这么大一条剧情线然后再拼进原剧本里，没这个能力知道嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 29690#       发表于 2025-2-26 02:03
+
+时间都花在双重人格上了比双重人格这件事的问题更严重。
+
