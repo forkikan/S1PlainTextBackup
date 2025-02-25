@@ -2267,3 +2267,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  JamesDrapor  
+##### 196#       发表于 2025-2-25 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512507&amp;ptid=2246453" target="_blank">水边井 发表于 2025-2-25 14:12</a>
+
+不得不说，这游戏引导其实还不错，每个人日墙的习惯不知不觉都培养出来了 ...</blockquote>
+那种“啊哈这个地方肯定有隐藏”而且还真有的感觉实在是爽
+
