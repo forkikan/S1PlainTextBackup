@@ -630,3 +630,14 @@ qwen因为公司战略绑着，有点藏着掖着，比如他们的qwen2.5 max�
 
 MLA，Dual pipe，专家并行，联网搜索，还有啥
 
+
+*****
+
+####  Azcarlo  
+##### 56#       发表于 2025-2-25 10:16
+
+今天是专家并行
+https://github.com/deepseek-ai/DeepEP
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1990,3 +1990,21 @@ khara的第一部TV吧 (?)
 
 有关特典的确实只有这一条
 
+
+*****
+
+####  oi99o  
+##### 7564#       发表于 2025-2-25 10:15
+
+笑了，香港上映首日只排了两场imax，其他都被哪吒占了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/25/101533ewrsjxeu3rotx1jw.png" referrerpolicy="no-referrer">
+
+<strong>img_5256.png</strong> (101.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 10:15 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
