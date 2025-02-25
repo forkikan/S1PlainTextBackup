@@ -2278,3 +2278,26 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 不得不说，这游戏引导其实还不错，每个人日墙的习惯不知不觉都培养出来了 ...</blockquote>
 那种“啊哈这个地方肯定有隐藏”而且还真有的感觉实在是爽
 
+
+*****
+
+####  神他妈的开胃菜  
+##### 197#       发表于 2025-2-25 14:56
+
+古代遗迹走到最后面四个雕像要怎么选，哪里有给答案吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  blackll7  
+##### 198#       发表于 2025-2-25 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512865&amp;ptid=2246453" target="_blank">神他妈的开胃菜 发表于 2025-2-25 14:56</a>
+古代遗迹走到最后面四个雕像要怎么选，哪里有给答案吗
+
+—— 来自 S1Fun</blockquote>
+看小地图
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
