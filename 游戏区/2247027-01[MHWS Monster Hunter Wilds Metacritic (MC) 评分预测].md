@@ -935,3 +935,31 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 不懂泡壶这种怪到底有任何分段更新的必要
 
+
+*****
+
+####  厄斯沃穆  
+##### 98#       发表于 2025-2-25 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509644&amp;ptid=2247027" target="_blank">史蒂符 发表于 2025-2-25 08:18</a>
+看了下记错了，37只
+
+—— 来自 S1Fun</blockquote>
+是34只。里面还有三狗龙王和风神这种凑数怪。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  史蒂符  
+##### 99#       发表于 2025-2-25 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509756&amp;ptid=2247027" target="_blank">厄斯沃穆 发表于 2025-2-25 08:42</a>
+是34只。里面还有三狗龙王和风神这种凑数怪。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+风神这种大型怪攻击频率又高，怎么是凑数，现在荒野评测说一半都是小型怪，再去掉凯龙这种，终盘值得反复10只顶天了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

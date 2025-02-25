@@ -3447,3 +3447,13 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 星团受众肯定比母鸡卡多一截，日本观众比例更是远高于，但Nico评分少1000多，都是什么日本人在Nico看母鸡卡……
 
+
+*****
+
+####  Schwarzess  
+##### 380#       发表于 2025-2-25 08:35
+
+贝斯手可以没声但必须有活，好纯的贝斯笑话。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
