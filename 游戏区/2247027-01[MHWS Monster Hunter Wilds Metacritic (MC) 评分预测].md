@@ -1195,3 +1195,11 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 确实不需要急着买啊，要联机的话，大家都等等就完事了，玩家有小团体的话啥时候买都不晚，怪猎又不可能和龙信2一样不给你更新了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leommoo  
+##### 124#       发表于 2025-2-26 00:23
+
+出评分前就买了，还是key想退都没门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

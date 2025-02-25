@@ -571,3 +571,11 @@ ccc上tft撞上第七话和解live进步到mygo解散转推ccc才算烂抄吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 29653#       发表于 2025-2-26 00:24
+
+結果MyGo 才是猴子打出莎士比亞的案例
+
