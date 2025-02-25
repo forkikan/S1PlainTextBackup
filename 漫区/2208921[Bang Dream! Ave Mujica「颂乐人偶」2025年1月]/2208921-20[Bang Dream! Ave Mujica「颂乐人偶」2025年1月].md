@@ -14327,3 +14327,58 @@ mygo 第2话:</blockquote>
 
 看来是4个成员赖着祥子不走的结局，终成大女主了这下。但是这值得吗
 
+
+*****
+
+####  Raven314  
+##### 29312#       发表于 2025-2-25 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511536&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 12:15</a>
+昨天截的图用上了，爱灯祥商谈的地点是立希打工的餐吧</blockquote>
+椅背完全不一样，看外面有学校的大门，应该是食堂<img src="https://p.sda1.dev/22/30b3b1dd4498be28880331f32d1c1d8d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 29313#       发表于 2025-2-25 12:45
+
+什么乌合之众<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 29314#       发表于 2025-2-25 12:46
+
+<blockquote>Raven314 发表于 2025-2-25 12:39
+椅背完全不一样，看外面有学校的大门，应该是食堂</blockquote>
+食堂不至于，但确实是约到学校旁边了
+
+*****
+
+####  帆前  
+##### 29315#       发表于 2025-2-25 12:47
+
+我喷了，小睦还真是真里亚啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">  
+<img src="https://p.sda1.dev/22/5e4622d3f0b97818ef6685e9dc51b595/Screenshot_20250225_101707_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+樱太郎  mortis饰 <img src="https://p.sda1.dev/22/b333d3839723b902b96d1275c958d8f2/Screenshot_20250225_100522_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+<strong>玩偶 樱太郎饰</strong>
+<img src="https://p.sda1.dev/22/b1e43bb409a5381f3fbc92d0b8b0d1aa/7ee823d2cc825e22.png" referrerpolicy="no-referrer">
+
+没有爱的话，就看不见
+
+——若叶睦
+
+*****
+
+####  南宮凝香  
+##### 29316#       发表于 2025-2-25 12:47
+
+<blockquote>zhoujin8584 发表于 2025-2-25 12:15
+昨天截的图用上了，爱灯祥商谈的地点是立希打工的餐吧</blockquote>
+Ring 的背景不一樣
+
+應該是別處
+
