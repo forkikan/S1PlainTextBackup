@@ -16121,3 +16121,89 @@ c团要复活了，初华气不气
 初华从爱音那得到情报后会觉得crychic要复活，反过来说就是祥子向灯请求的时候灯确实在犹豫，那后面灯睦初 ...</blockquote>
 既然能预告复活，那就肯定活不了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29476#       发表于 2025-2-25 21:07
+
+ 本帖最后由 天空塔书记官 于 2025-2-25 21:09 编辑 
+
+但灯很大概率在一集内就会反转
+
+所以其实就是故意炒热度点罢了
+
+当面拒绝还是犹豫后拒绝本质没啥区别
+
+灯又不是什么果断的性格
+
+都在预料之内
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  非建政专用号  
+##### 29477#       发表于 2025-2-25 21:11
+
+小闭灯大脑卡顿完要回答的时候发现旁边已经打了一圈架了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 29478#       发表于 2025-2-25 21:13
+
+灯和祥子组队
+
+和
+
+灯和祥子组CCC是两回事。
+
+既然灯都和莫?睦见面了，怎么也能知道点情况。
+
+*****
+
+####  DARK_HGCG  
+##### 29479#       发表于 2025-2-25 21:14
+
+哦哦噢噢噢哦哦哦哦哦哦哦！！！！
+
+<img src="https://img.saraba1st.com/forum/202502/25/211443cupn8cpuhg6rhrhu.jpg" referrerpolicy="no-referrer">
+
+<strong>img-a6699493afaf3e81119c78bc3b839440.jpg</strong> (23.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 21:14 上传
+
+初华对睦和灯居然是！
+
+*****
+
+####  swessia  
+##### 29480#       发表于 2025-2-25 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">莫小姐已经确定第十话被风光大葬了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cxj649  
+##### 29481#       发表于 2025-2-25 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516295&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 21:05</a>
+
+不要急，只是绝望，还没完蛋。
+
+估计9话灯风评要爆炸了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">现在啥叫完蛋啥叫绝望
+
+代入黄毛爱音吗<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
