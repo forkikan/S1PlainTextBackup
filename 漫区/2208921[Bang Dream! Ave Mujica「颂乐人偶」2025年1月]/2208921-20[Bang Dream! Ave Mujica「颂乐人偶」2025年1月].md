@@ -15968,3 +15968,156 @@ wsd这打法真有点变态吧，第7话剧情+ccc tft直接点炸了社区。�
 
 你怎么知道不是 索尼: 买两次送一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 29461#       发表于 2025-2-25 20:56
+
+一会狗团惨，ccc上TFT狗团哭哭。
+
+现在狗团上TFT，鸡团哭哭。
+
+下一步是啥？
+
+*****
+
+####  非建政专用号  
+##### 29462#       发表于 2025-2-25 20:56
+
+刚来，祥爹能不能上号来一句我想当摄影师
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  钦念以忱  
+##### 29463#       发表于 2025-2-25 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516085&amp;ptid=2208921" target="_blank">jzxdds123 发表于 2025-2-25 20:47</a>
+
+看了下nga专楼，那边有人说百合llx是大莫老师，感觉还挺有道理的，占据主线剧情，给其他人狂发箭头，最后在 ...</blockquote>
+为啥是15年未有，15年前的是哪位？
+
+*****
+
+####  金钱与民主  
+##### 29464#       发表于 2025-2-25 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516037&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 20:43</a>
+我真不觉得tft还能再花钱上第三次，所以🐔团真成了根不疼🦄不爱的孩子了 ...</blockquote>
+或者鸡团要进游戏半年后才能上？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 29465#       发表于 2025-2-25 20:58
+
+愛音， 你已經做得夠多
+
+妳可以去吃炒面了
+
+*****
+
+####  堆雪若叶  
+##### 29466#       发表于 2025-2-25 20:59
+
+鸡团上了sumimi能上吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29467#       发表于 2025-2-25 21:00
+
+比起烂炒，我还是对10th更感兴趣
+
+不知道会不会有特别篇看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  linhaitora  
+##### 29468#       发表于 2025-2-25 21:00
+
+这是……？
+
+<img src="https://img.saraba1st.com/forum/202502/25/210051p7n3uyxysethrthc.jpg" referrerpolicy="no-referrer">
+
+<strong>img-0742f8a22d6da4f5ad889f7bea927a43.jpg</strong> (35.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 21:00 上传
+
+
+*****
+
+####  Yukino-Yukino  
+##### 29469#       发表于 2025-2-25 21:02
+
+看了一眼nga，全滑完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  595505568  
+##### 29470#       发表于 2025-2-25 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516188&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 20:56</a>
+一会狗团惨，ccc上TFT狗团哭哭。
+
+现在狗团上TFT，鸡团哭哭。
+
+下一步是啥？</blockquote>
+下一步是鸡团能不能11话上TFT，我想看银河战舰的轰鸣
+
+*****
+
+####  adretyu67.  
+##### 29471#       发表于 2025-2-25 21:04
+
+一个想法，鸡狗对邦带sumimi玩就是准备拆sumimi了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 29472#       发表于 2025-2-25 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516236&amp;ptid=2208921" target="_blank">linhaitora 发表于 2025-2-25 21:00</a>
+
+这是……？</blockquote>
+c团要复活了，初华气不气
+
+*****
+
+####  堆雪若叶  
+##### 29473#       发表于 2025-2-25 21:05
+
+初华从爱音那得到情报后会觉得crychic要复活，反过来说就是祥子向灯请求的时候灯确实在犹豫，那后面灯睦初还要吵一轮。
+
+*****
+
+####  adretyu67.  
+##### 29474#       发表于 2025-2-25 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516236&amp;ptid=2208921" target="_blank">linhaitora 发表于 2025-2-25 21:00</a>
+
+这是……？</blockquote>
+不要急，只是绝望，还没完蛋。
+
+估计9话灯风评要爆炸了。
+
+*****
+
+####  adretyu67.  
+##### 29475#       发表于 2025-2-25 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516293&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-25 21:05</a>
+
+初华从爱音那得到情报后会觉得crychic要复活，反过来说就是祥子向灯请求的时候灯确实在犹豫，那后面灯睦初 ...</blockquote>
+既然能预告复活，那就肯定活不了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

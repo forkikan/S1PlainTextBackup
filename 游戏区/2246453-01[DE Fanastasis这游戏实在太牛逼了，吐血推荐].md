@@ -2486,3 +2486,15 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 当然，steam版你用撞车汉化带的第三方rgss解析器根本不需要这些，直接用steam输入系统就行了
 
+
+*****
+
+####  blackll7  
+##### 215#       发表于 2025-2-25 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513784&amp;ptid=2246453" target="_blank">猎人D 发表于 2025-2-25 16:38</a>
+能和神之天平、废都物语一样优化重制后就好了</blockquote>
+这已经是重制版了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
