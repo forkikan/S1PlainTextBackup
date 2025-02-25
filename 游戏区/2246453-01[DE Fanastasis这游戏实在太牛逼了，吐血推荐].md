@@ -2530,3 +2530,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 路上那么多记忆后面有办法能查看么
 
+
+*****
+
+####  blackll7  
+##### 219#       发表于 2025-2-26 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518161&amp;ptid=2246453" target="_blank">慕容断月 发表于 2025-2-25 23:44</a>
+
+准确的说是大更新优化版，没有重制</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">美术大加强+部分地图重做+新地图+新大迷宫够多了吧..........
+

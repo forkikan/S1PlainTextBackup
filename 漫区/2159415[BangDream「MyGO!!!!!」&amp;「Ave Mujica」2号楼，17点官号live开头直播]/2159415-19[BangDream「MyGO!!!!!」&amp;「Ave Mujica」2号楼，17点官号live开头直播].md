@@ -4611,3 +4611,14 @@ onp，还有一首mygo的TFT哦
 onp，还有一首mygo的TFT哦</blockquote>
 估计是星迷叫？当然要对应春日影的话倒是可以上诗超绊。
 
+
+*****
+
+####  滑稽Captain  
+##### 26992#       发表于 2025-2-26 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518162&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2025-2-25 23:44</a>
+
+估计是星迷叫？当然要对应春日影的话倒是可以上诗超绊。</blockquote>
+穿的6th那套衣服，端程山概率大一点吧。如果是迷星叫应该穿初始服，诗超绊/壱雫空应该穿动画op服
+
