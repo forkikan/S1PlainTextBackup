@@ -13908,3 +13908,69 @@ bang23是遇事不决香橙精神注入邦，乐队内部开会每个人说实�
 <img src="https://p.sda1.dev/22/e576b38a8e0b99e88f37a98a978791ce/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/71bd20a085eafacbdfc62170fd9692aa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 29271#       发表于 2025-2-25 11:08
+
+第九集预告
+
+*****
+
+####  与太郎  
+##### 29272#       发表于 2025-2-25 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510811&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-25 11:03</a>
+
+上层叙事，指坏心眼的蓝色魔女和念旁白的金色魔女</blockquote>
+BV1k5411Q7rm
+
+蓝色魔女不是说原型是这个《女巫》，还有翻拍电影的（虽然我只看过女巫把小孩变老鼠的剪辑片段）
+
+
+*****
+
+####  刑部姬真可爱  
+##### 29273#       发表于 2025-2-25 11:12
+
+soyo大饼脸按照以往的惯例是女女关系性爆点，第一张图我猜就是祥子找爱灯说打算重组ccc，第二张图又开始侦探装初华，看着像是招呼“内奸”过来一样，第三张喵老师拍美妆视频拍累了？
+
+*****
+
+####  zhoujin8584  
+##### 29274#       发表于 2025-2-25 11:14
+
+搬一个C团不可长久音乐性考据，灯祥刺猬学
+<blockquote>从音乐性上来讲，c团解散是很大概率的。
+核心在于灯祥两个人是冲突的，灯作为主唱，作词含有大量念白，并且特点鲜明，是灯自己的呐喊。这种风格的演唱需要有一段音域的真空来凸显灯的歌声，而键盘的音域全覆盖反而会掩盖灯。所以某种意义上，灯的乐队不需要键盘。
+灯在c团时期只写了春日影和成人歌两首温柔舒缓类型的歌，灯祥还可以共处，但是随着灯的成长，她的呐喊倾向会越来越强，写出go团时期风格的歌是迟早的事情。那时候灯祥在音乐上的矛盾就会出现了，两个人强行共存是抹杀彼此的音乐才华。祥子在音乐上还是有追求的，那时候她真可能会提出crychic和平解散的提议。</blockquote>
+
+*****
+
+####  adretyu67.  
+##### 29275#       发表于 2025-2-25 11:14
+
+soyo饼脸一脸沉重看背景应该是月之森校内，估摸是睦头邀请重组ccc了。
+
+大喵老师估计是又被睦头震撼一整年了
+
+*****
+
+####  AveMujica  
+##### 29276#         楼主| 发表于 2025-2-25 11:15
+
+#9 Ne vivam si abis.  
+企む海鈴、縋るモーティス、切迫するにゃむ、思い詰める初華。
+様々な思惑が糾われていく。
+脚本：和場 明子
+絵コンテ：梅津朋美(エディッツ)
+演出：大森 大地
+CGディレクター：大森 大地 
+<img src="https://p.sda1.dev/22/7e84263cef909599565806acf7fee960/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b3304750c6801f19b9a15d085b75f969/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a525523d8c5c187b4d41f02b9c02e7c0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/631ce79119f16dfa20fc40eb6a65bd30/image.jpg" referrerpolicy="no-referrer">
+https://anime.bang-dream.com/avemujica/story/
+https://b23.tv/nJCRuRy
+
