@@ -16471,3 +16471,153 @@ c团要复活了，初华气不气
 学生大战财阀不是来搞笑的吗，怎么展开都是搞笑动画</blockquote>
 这次也不是战财阀吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 29510#       发表于 2025-2-25 21:36
+
+ 本帖最后由 adretyu67. 于 2025-2-25 21:38 编辑 
+
+说实话，初华肯定不如睦头和小闭灯了解祥子啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+她甚至可能是最不了解祥子的那个，但是祥子说组队就组队，说付出就付出。
+
+但是她有一次走进过祥子心里吗。
+
+她的嫉妒心应该早点暴露出来的。
+
+*****
+
+####  天空塔书记官  
+##### 29511#       发表于 2025-2-25 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516614&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-25 21:34</a>
+学生大战财阀不是来搞笑的吗，怎么展开都是搞笑动画</blockquote>
+等进了PICO就是搞笑动画了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 29512#       发表于 2025-2-25 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不看剧透都不知道漏油在说什么了，
+
+*****
+
+####  cxj649  
+##### 29513#       发表于 2025-2-25 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516627&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 21:35</a>
+
+學生鬥財閥就沒有拍得好的
+
+就算有， 也不是三集可以拍出來的</blockquote>
+问题是好像没斗门阀啊
+
+也就可能初华是私生子而已233
+
+*****
+
+####  楠城旧篱  
+##### 29514#       发表于 2025-2-25 21:38
+
+<blockquote>十万年魂环 发表于 2025-2-25 21:34
+学生大战财阀不是来搞笑的吗，怎么展开都是搞笑动画</blockquote>
+现在还不是搞笑动画吗
+
+*****
+
+####  adretyu67.  
+##### 29515#       发表于 2025-2-25 21:39
+
+想了下，差不多理解为什么要安排这出戏了。
+
+应该是给机场铺垫的
+
+*****
+
+####  天空塔书记官  
+##### 29516#       发表于 2025-2-25 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516622&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 21:35</a>
+李茜对wsd来说就是外人呗，同理青木和菲姐也是，核心成员一个高尾一个节约，🐑都是后面才给的资源，老登思 ...</blockquote>
+青木的重心在少女歌剧，她可是响社自家人
+
+至于李子，有主唱位置就会有资源，没必要滑坡的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 29517#       发表于 2025-2-25 21:39
+
+Pico 也就只是生在沒母雞卡時代的凡夫
+
+母雞卡才是2025 最高的搞笑片
+
+
+*****
+
+####  cxj649  
+##### 29518#       发表于 2025-2-25 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516643&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-25 21:36</a>
+
+不看剧透都不知道漏油在说什么了，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是 灯犹豫一下 就NTR！！！！！！灯除！
+
+然后初华是私生子 就斗门阀!!!!!!!!!!!!!!
+
+*****
+
+####  adretyu67.  
+##### 29519#       发表于 2025-2-25 21:40
+
+鸡狗一起抓去circle看ppp live，接受邦高祖精神注入邦比较重要。
+
+*****
+
+####  看穿一切的鱼  
+##### 29520#       发表于 2025-2-25 21:41
+
+你鸡现在的目标应该是别烂过迷家了，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+反正我个素睦祥推已经心死了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gammatau  
+##### 29521#       发表于 2025-2-25 21:42
+
+ 本帖最后由 gammatau 于 2025-2-25 21:44 编辑 
+
+现在把没苦硬吃，莫名的复活苦来西苦爱音初华被靠边木头上演，搏击俱乐部，学生大战财团等问题都圆上还有最后一个办法
+
+设定马希洛学姐真的在卖xx，这样一切的抽象行为都可以用抽大了解释清楚
+
+*****
+
+####  cxj649  
+##### 29522#       发表于 2025-2-25 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我对这2个主唱剧情爆典没什么感觉
+
+对灯爆点感想是 ，代入黄毛爱音是吧
+
+对初华爆典感想是，为啥你们快到进斗门阀？
+
+*****
+
+####  Versedust  
+##### 29523#       发表于 2025-2-25 21:45
+
+一路往最狂搞笑动画狂奔了
+
