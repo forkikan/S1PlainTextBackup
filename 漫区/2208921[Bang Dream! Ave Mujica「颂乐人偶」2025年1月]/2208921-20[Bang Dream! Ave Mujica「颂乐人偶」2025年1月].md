@@ -16621,3 +16621,99 @@ Pico 也就只是生在沒母雞卡時代的凡夫
 
 一路往最狂搞笑动画狂奔了
 
+
+*****
+
+####  cxj649  
+##### 29524#       发表于 2025-2-25 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516709&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-2-25 21:42</a>
+
+现在把没苦硬吃，莫名的复活苦来西苦爱音初华被靠边木头上演，搏击俱乐部，学生大战财团等问题都圆上还有最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧透也没说斗门阀啊
+
+也就门阀贵圈乱
+
+*****
+
+####  阿兹尔  
+##### 29525#       发表于 2025-2-25 21:47
+
+这后面变态的女女关系性，感觉🦄应该是逃不了，到底之前谁在捧啊
+
+*****
+
+####  小博禹  
+##### 29526#       发表于 2025-2-25 21:48
+
+百综全锅（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 29527#       发表于 2025-2-25 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516508&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 21:25</a>
+
+李子小姐你是欠了WSD 錢嗎？</blockquote>
+高尾奏音是有什么把柄捏在柿本手上吧
+
+演一个如此抽风的角色
+
+*****
+
+####  十九号大侠  
+##### 29528#       发表于 2025-2-25 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516685&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-25 21:40</a>
+
+就是 灯犹豫一下 就NTR！！！！！！灯除！
+
+然后初华是私生子 就斗门阀!!!!!!!!!!!!!! ...</blockquote>
+兄啊，害我呀，我不想看剧透啊
+
+*****
+
+####  南宮凝香  
+##### 29529#       发表于 2025-2-25 21:49
+
+門閥這麼壞，不鬥它難不成還用它資源組雞2.0 嗎？
+
+至於燈，
+
+這是少女樂隊，
+
+心懷二隊約等於失貞
+
+我們大樂隊理學就是這樣
+
+
+*****
+
+####  Versedust  
+##### 29530#       发表于 2025-2-25 21:52
+
+辰二舅还真说鸡2.0有丰川集团赞助
+
+*****
+
+####  cxj649  
+##### 29531#       发表于 2025-2-25 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516793&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 21:49</a>
+
+門閥這麼壞，不鬥它難不成還用它資源組雞2.0 嗎？
+
+至於燈，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实灯那类剧情手游主线遍地都是吧
+
+*****
+
+####  Raven314  
+##### 29532#       发表于 2025-2-25 21:55
+
+斗财阀是滑坡出来的，家族戏才是真而且是舅舅喝醉酒后的主观想法
+至于又臭又长，ccc的戏份才是又臭又长眼看就要演到第十集去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
