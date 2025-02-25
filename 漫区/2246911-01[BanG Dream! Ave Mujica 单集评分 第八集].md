@@ -3500,3 +3500,11 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  迷途人偶的呐喊  
+##### 385#       发表于 2025-2-25 22:20
+
+1w6观众，94.9%的1率<img src="https://p.sda1.dev/22/21bda2dac7117ea398dab3f421590cd4/image.jpg" referrerpolicy="no-referrer">
+

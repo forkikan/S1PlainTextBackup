@@ -47,3 +47,13 @@
 
 话说轨道线给的3灯权能留着抽这赛季后面的人格吗？还是说只到六箱为止？我这赛季目前为止的人格已经齐了，能出新卡的话就留一留，不然就只能变成纽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  btnasi  
+##### 1097#       发表于 2025-2-25 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">协会分地区的 
+
+地区不同武器风格跟着装可能不同。
+
