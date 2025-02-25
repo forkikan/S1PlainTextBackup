@@ -14657,3 +14657,43 @@ mygo里爱音连练吉他都在天文部室了。她应该没加入天文部吧�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Raven314  
+##### 29344#       发表于 2025-2-25 15:10
+
+初华已经不是绑定祥子问题了，这集的简介
+<img src="https://p.sda1.dev/22/6b4ef97ce19652907b9706f213b00bea/image.jpg" referrerpolicy="no-referrer">
+已经用思い詰める形容初华了
+<img src="https://p.sda1.dev/22/ced5678f05ecbd990333b6a66b989ff5/image.jpg" referrerpolicy="no-referrer">
+这里想不开钻牛角尖的对象是祥子的话，怎么可能以后还会去贴别人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 29345#       发表于 2025-2-25 15:16
+
+ 本帖最后由 南宮凝香 于 2025-2-25 15:17 编辑 
+<blockquote>非建政专用号 发表于 2025-2-25 14:58
+懂了，小闭灯的创可贴上也有冰
+
+—— 来自 S1Fun</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/25/151350oti7iejoeole7jz7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5672.jpeg</strong> (112.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 15:13 上传
+
+你好， 是在口水裡
+
+詩超絆Soyo燈墜也是因為正面吃了一套口水攻擊
+
+為什麼雞六話祥子沒事？
+
+因為口水噴錯方向
+
