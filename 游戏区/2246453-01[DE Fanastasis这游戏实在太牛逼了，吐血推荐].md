@@ -2301,3 +2301,27 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  woshenc  
+##### 199#       发表于 2025-2-25 15:47
+
+有没有队员培养攻略？
+
+我昨天连续收了第4和第5个队员（枪妹和吸血鬼梵），超出编队指标了...哪几个比较好用呢？
+
+主角感觉就是个加血机器啊！
+
+*****
+
+####  woshenc  
+##### 200#       发表于 2025-2-25 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492737&amp;ptid=2246453" target="_blank">慕容断月 发表于 2025-2-22 14:56</a>
+
+手柄玩吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+居然支持手柄吗？我的xbox手柄怎么没反应哭了
+

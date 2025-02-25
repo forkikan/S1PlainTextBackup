@@ -14717,3 +14717,16 @@ mygo里爱音连练吉他都在天文部室了。她应该没加入天文部吧�
 已经用思い詰める形容初华了</blockquote>
 哎。。。初华为了守护东京的和平操碎了心啊。。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  DD-963  
+##### 29348#       发表于 2025-2-25 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513007&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-25 15:10</a>
+
+初华已经不是绑定祥子问题了，这集的简介
+
+已经用思い詰める形容初华了</blockquote>
+初华要是知道祥粘着睦，真要想不开了吧
+

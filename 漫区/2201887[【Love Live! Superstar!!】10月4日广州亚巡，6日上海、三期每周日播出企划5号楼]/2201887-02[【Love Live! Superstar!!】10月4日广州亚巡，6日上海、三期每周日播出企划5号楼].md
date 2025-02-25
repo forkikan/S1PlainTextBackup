@@ -137,3 +137,27 @@ LoveLive! Days 2025年4月号封面：五团横滨公演
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ViyViy  
+##### 1514#       发表于 2025-2-25 15:43
+
+2C老师的插画集，后面有机会再补画的话冬逑的手应该牵着的就是青鸟团的leader了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/25/153952oq8khsgscjknbhcu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.78 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 15:39 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/154041j5wprbzjlpjl5rgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (794.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 15:40 上传
+
