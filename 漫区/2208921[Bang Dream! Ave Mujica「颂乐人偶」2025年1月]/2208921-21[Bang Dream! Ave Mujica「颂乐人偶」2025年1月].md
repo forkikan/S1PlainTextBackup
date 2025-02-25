@@ -97,3 +97,76 @@
 
 恶向胆边生结果临门一脚缩了，事后回味自己怎么成了这么一个人确实看着挺憋屈的，但这TM不是少女乐队题材吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29611#       发表于 2025-2-25 22:47
+
+“论迹不论心，论心世上无完人”
+
+怎么想的是一回事，怎么做的是另一回事
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 29612#       发表于 2025-2-25 22:48
+
+所以鸡团其他角色刻意冷落初华是为啥，因为怕初华对自己动手吗
+
+*****
+
+####  adretyu67.  
+##### 29613#       发表于 2025-2-25 22:49
+
+问题是这点心思那还是比不过支配恶魔海铃和流量恶魔大喵啊。
+
+
+*****
+
+####  刑部姬真可爱  
+##### 29614#       发表于 2025-2-25 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517524&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-25 22:48</a>
+所以鸡团其他角色刻意冷落初华是为啥，因为怕初华对自己动手吗</blockquote>
+反过来一想，如果不是为了祥子，初华就会很搭理他们吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29615#       发表于 2025-2-25 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517524&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-25 22:48</a>
+
+所以鸡团其他角色刻意冷落初华是为啥，因为怕初华对自己动手吗</blockquote>
+初华这人倒不是满脑子只有自己，应该是满脑子只有祥子。
+
+回旋镖居然失效了
+
+*****
+
+####  北条早苗  
+##### 29616#       发表于 2025-2-25 22:54
+
+乌米铃和大喵在炸团的时候已经对大祥没有好印象了，对满脑子大祥的初华当然没有好感
+所以限定版ccc白祥有把初华拉出黑名单了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29617#       发表于 2025-2-25 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517555&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 22:51</a>
+初华这人倒不是满脑子只有自己，应该是满脑子只有祥子。
+
+回旋镖居然失效了 ...</blockquote>
+没有失效，初华脑中的那个祥子和现实也不是一个人，她对现实中的祥子其实并不了解，本质还是脑中只有自己<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
