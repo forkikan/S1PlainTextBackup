@@ -14871,3 +14871,42 @@ mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="h
 
 [Akn](https://x.com/akni105/status/1892944573002895708?t=1UagBiN-tF34dB5Yw6t34g&amp;s=19)
 
+
+*****
+
+####  与太郎  
+##### 29364#       发表于 2025-2-25 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513956&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-25 16:59</a>
+
+第二季这个爱音完全没有自己想法，一出场就是等着灯皇下命令执行，没命令了就搁边上张个嘴看神人们表演，这 ...</blockquote>
+其实还是表现了几次动摇的，就看下一集会不会让这种感情爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 29365#       发表于 2025-2-25 17:06
+
+想起第六集的时候，mortis还对着爱音哈气，镜头又给到了爱音的手机。。。
+
+虽然当时看不懂，但是联系到第七集，素世和立希都不想回爱音的信息，难道这才是目的？
+
+女人，你阻碍到我重组C团的伟大计划了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+所以第六集哈气是因为爱音发消息，妨碍到mortis的三天三夜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过现在mortis也叛变了，终结C团成了大多数人的共识
+
+
+*****
+
+####  钦念以忱  
+##### 29366#       发表于 2025-2-25 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514048&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-25 17:06</a>
+
+想起第六集的时候，mortis还对着爱音哈气，镜头又给到了爱音的手机。。。
+
+虽然当时看不懂，但是联系到第七 ...</blockquote>
+应该是讨厌红色吧，下个镜头是mortis对着立希哈气，恰好立希带着的领结也是红色的。
+

@@ -2440,3 +2440,25 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 为啥你们好像很早就能开理智之间的样子，宝珠解锁是不是在异种废村，但那里的木门我打不开，走不了祭司之道，钥匙也不知道在哪里，其他地图都探索到古代遗迹了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 211#         楼主| 发表于 2025-2-25 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513849&amp;ptid=2246453" target="_blank">reoch 发表于 2025-2-25 16:46</a>
+
+坦克练哪个有没有推荐的，现在练的是矿工</blockquote>
+每个T都有不同的玩法，人造人很有意思，战斗中自己可以用技能不停撑血，撑到后来血量甚至比BOSS还高了
+
+
+*****
+
+####  blackprice  
+##### 212#       发表于 2025-2-25 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514032&amp;ptid=2246453" target="_blank">Lamune 发表于 2025-2-25 17:05</a>
+
+为啥你们好像很早就能开理智之间的样子，宝珠解锁是不是在异种废村，但那里的木门我打不开，走不了祭司之道 ...</blockquote>
+钥匙就在废居住区那张地图，兵营往左走就能看到了
+
