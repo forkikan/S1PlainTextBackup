@@ -161,3 +161,15 @@ LoveLive! Days 2025年4月号封面：五团横滨公演
 
 2025-2-25 15:40 上传
 
+
+*****
+
+####  starring  
+##### 1515#       发表于 2025-2-25 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513303&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-25 15:43</a>
+2C老师的插画集，后面有机会再补画的话冬逑的手应该牵着的就是青鸟团的leader了</blockquote>
+不是莲吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

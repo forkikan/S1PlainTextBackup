@@ -2230,3 +2230,14 @@ khara的第一部TV吧 (?)
 
 对回转企鹅罐的致敬罢了，那什么时候致敬少革，虽然人人都要的红高达已经很蔷薇新娘了
 
+
+*****
+
+####  gamedreamer  
+##### 7585#       发表于 2025-2-25 17:51
+
+小机器人想象成鸭子的话，这个画面就有点
+总帅的母亲已经不限定性别了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
