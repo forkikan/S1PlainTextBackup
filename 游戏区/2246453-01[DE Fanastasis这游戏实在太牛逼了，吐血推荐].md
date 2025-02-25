@@ -2257,3 +2257,13 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 不得不说，这游戏引导其实还不错，每个人日墙的习惯不知不觉都培养出来了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  塔奇克马  
+##### 195#       发表于 2025-2-25 14:17
+
+魔法学院最终boss吃一堆dot，这太白给了吧，闪避t上完镜反不是能单挑吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -736,3 +736,16 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 感觉他们本来是想发了，结果一看claude3.7，又打上preview回炉去了</blockquote>
 这个预览还是正式，对一般用户没什么影响吧，就一个免责声明似的东西，能用就好了，而且后面还会开源，可以爽用就行<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> <blockquote>Very soon, we are about to release the official version of QwQ-Max, and we will open-weight both QwQ-Max and Qwen2.5-Max under the license of Apache 2.0! Furthermore, we will also provide smaller variants, e.g., QwQ-32B, which can be deployed on local devices. Also, since a great number of users are expecting our APP, we are going to release an Android and iOS APP while we release our official QwQ-Max. </blockquote>
 
+
+*****
+
+####  蜇灵  
+##### 64#       发表于 2025-2-25 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510976&amp;ptid=2246987" target="_blank">Mac1024 发表于 2025-2-25 11:20</a>
+zt:DeepSeek首日开源引硅谷深夜炸锅
+
+这个名为 FlashMLA 的开源项目，彻底改写了我的认知。
+</blockquote>
+成本直接砍4成？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
