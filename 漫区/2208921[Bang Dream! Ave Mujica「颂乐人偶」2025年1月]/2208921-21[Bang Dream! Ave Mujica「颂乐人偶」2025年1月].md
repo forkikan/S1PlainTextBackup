@@ -706,3 +706,106 @@ layer住大喵隔壁，两人说过话，masking赞扬过大喵的技术。
 
 所以好多人抱着内鬼不放呢。
 
+
+*****
+
+####  huxiaopao163  
+##### 29665#       发表于 2025-2-26 00:56
+
+应该是杂志社草台班子吧，不然用这种方式爆出双子说有点离谱了
+
+*****
+
+####  adretyu67.  
+##### 29666#       发表于 2025-2-26 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518596&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-26 00:54</a>
+
+我去搜了下，原图就是初歌……这是故意的还是不小心？</blockquote>
+双子论还能这么爆出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 29667#       发表于 2025-2-26 00:59
+
+不过初华都没办法的话，海玲能有啥办法呢。。。
+
+或者大莫老师上镜头搅动舆论？
+
+*****
+
+####  非建政专用号  
+##### 29668#       发表于 2025-2-26 00:59
+
+很久没有听过这么冷的冷笑话了，最好笑的是可能是真的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YetToCome  
+##### 29669#       发表于 2025-2-26 00:59
+
+就剧透的内容和访谈内容来说，仕本除了多重人格这个烂活以外应该是没有大动过独角兽的剧本的，这也符合独角兽还在系构上的事实。
+不清楚大祥老师现在这么烂的人设是击中独角兽哪根弦了，能让 mygo 和 mujica 总共11个人都能垫一下。爱音作为唯一和祥子扯不上关系的工具人反而塑造起来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Alce79  
+##### 29670#       发表于 2025-2-26 01:01
+
+那同居怎么说，跟现任还是跟真初华住？
+
+真是初华重力场全开最后被一个龙套NPC收割的剧情就蚌埠住了。
+
+*****
+
+####  zhoujin8584  
+##### 29671#       发表于 2025-2-26 01:01
+
+<blockquote>huxiaopao163 发表于 2025-2-26 00:42
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2</blockquote>
+社长：我们这个社是丰川集团的啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 29672#       发表于 2025-2-26 01:02
+
+ 本帖最后由 adretyu67. 于 2025-2-26 01:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518618&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-26 00:59</a>
+
+不过初华都没办法的话，海玲能有啥办法呢。。。
+
+或者大莫老师上镜头搅动舆论？ ...</blockquote>
+这个不难，和老登和解是live的一部分。而不是把和老登和解作为live的前置条件。
+
+或者mujica放弃商业出道，而是和大部分团一样从头走起。
+
+*****
+
+####  ddy2811  
+##### 29673#       发表于 2025-2-26 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518628&amp;ptid=2208921" target="_blank">Alce79 发表于 2025-2-26 01:01</a>
+
+那同居怎么说，跟现任还是跟真初华住？
+
+真是初华重力场全开最后被一个龙套NPC收割的剧情就蚌埠住了。 ...</blockquote>
+AZ级别的赤石啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 29674#       发表于 2025-2-26 01:05
+
+奶龙这个工具人用太多了
+鸡团开盒我在场，大象发病我传话，c团和解我鼓掌，初华急眼我指挥
+再用下去丰川家的带手没见到，奶龙的带手是真开眼了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
