@@ -4561,3 +4561,34 @@ GkPEqVDa8AAB5LH.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 看 amita 哭哭真忍不住一起哭，希望还有下一次五人齐聚，amita 实在是太不容易了
 
+
+*****
+
+####  滑稽Captain  
+##### 26987#       发表于 2025-2-25 20:09
+
+<img src="https://img.saraba1st.com/forum/202502/25/200937kmfwxff77tfe7mnf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 20:09 上传
+
+onp，还有一首mygo的TFT哦
+
+
+*****
+
+####  tjshibc21  
+##### 26988#       发表于 2025-2-25 20:14
+
+凛感觉好紧张
+
+*****
+
+####  sakatta  
+##### 26989#       发表于 2025-2-25 20:14
+
+太好了是MyGO!!!!!我们有救了
+

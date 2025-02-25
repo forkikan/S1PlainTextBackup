@@ -2473,3 +2473,16 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 钥匙就在废居住区那张地图，兵营往左走就能看到了</blockquote>
 干，我看提示说钥匙在兵营另一边……在兵营外面掘地三尺了，没想到这么简单= =
 
+
+*****
+
+####  慕容断月  
+##### 214#       发表于 2025-2-25 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513741&amp;ptid=2246453" target="_blank">woshenc 发表于 2025-2-25 16:32</a>
+
+原来如此，今天回去试试</blockquote>
+如果你使用xidi这个xinput转dinput插件的话，除了热插拔，还支持键盘映射，映射完了取消游戏默认的手柄按键响应的话，操控比原本的舒服
+
+当然，steam版你用撞车汉化带的第三方rgss解析器根本不需要这些，直接用steam输入系统就行了
+

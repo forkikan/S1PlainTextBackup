@@ -15548,3 +15548,88 @@ go团重组她拉人，c团重组她又抓人又送吉他，鸡团重组她不�
 
 又正好爱音奥特曼是唯一一个说人话的....
 
+
+*****
+
+####  DeltaStriker  
+##### 29422#       发表于 2025-2-25 20:07
+
+没那么复杂 就是mygo的时候交换过联系方式
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 29423#       发表于 2025-2-25 20:09
+
+因为要问ccc的事情去确认祥睦的态度啊，也不方便问那些参与的人。剩下两个就野猫和阿农了，野猫说不定初华也不认识更找不到，阿农就正好相反了，关键人还是大嘴巴<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ape-apple  
+##### 29424#       发表于 2025-2-25 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515461&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-25 19:52</a>
+不一定真有多烂，而是一定不符预期</blockquote>
+现在还看不出来烂吗，我觉得是真的烂，日本人不知道怎么想
+
+*****
+
+####  aptx8285144  
+##### 29425#       发表于 2025-2-25 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515574&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-25 20:04</a>
+
+都是谁喜欢看变态家族戏啊
+
+我记得这是个乐队动画</blockquote>
+第五话开始不就和乐队动画越来越没啥关系了吗，虽说第四话就已经写得很烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 29426#       发表于 2025-2-25 20:12
+
+和大明星聊天吹牛逼，下一集能不能来点奶龙唐笑，好久没听了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ape-apple  
+##### 29427#       发表于 2025-2-25 20:12
+
+我是服了，wsd活该在少女乐队里也算底边，这本子谁TM端上来的
+
+*****
+
+####  adretyu67.  
+##### 29428#       发表于 2025-2-25 20:13
+
+乐队动画（指鸡团第四话炸了，预期最速也得第十话才能组回来）
+
+活的时间可能还没死的时间长
+
+*****
+
+####  南宮凝香  
+##### 29429#       发表于 2025-2-25 20:14
+
+<blockquote>是谁的书画 发表于 2025-2-25 20:09
+因为要问ccc的事情去确认祥睦的态度啊，也不方便问那些参与的人。剩下两个就野猫和阿农了，野猫说不定初华 ...</blockquote>
+從另一個角度想，
+
+初華怎麼能肯定愛音知道C團發生什麼事？
+
+萬一出來後，
+
+‘愛音同學3C要重組你知道嗎？’
+
+‘？？！’
+
+那是打算兩人抱頭哭嗎？
+
