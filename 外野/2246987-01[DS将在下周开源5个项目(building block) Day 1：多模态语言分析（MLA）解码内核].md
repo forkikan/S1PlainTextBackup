@@ -816,3 +816,13 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 
 这下真是手把手教你做推理了
 
+
+*****
+
+####  tansapple  
+##### 72#       发表于 2025-2-25 16:44
+
+这才是真正的开源圣人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
