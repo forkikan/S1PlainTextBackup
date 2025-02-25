@@ -14927,3 +14927,24 @@ mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="h
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  小博禹  
+##### 29369#       发表于 2025-2-25 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67514043&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-25 17:06</a>
+其实还是表现了几次动摇的，就看下一集会不会让这种感情爆发了</blockquote>
+下一集能不能爆发拿下小祥<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 29370#       发表于 2025-2-25 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ysl很早就先找了初华
+初华以此来交换大喵老师协助炸团
+事后避险两人故意见面的时候态度冷淡
+

@@ -2128,3 +2128,88 @@ khara的第一部TV吧 (?)
 
 太卑鄙了这个新特典
 
+
+*****
+
+####  岸浪白野  
+##### 7574#       发表于 2025-2-25 17:25
+
+新闻稿的大图
+
+<img src="https://img.saraba1st.com/forum/202502/25/172515cc3k33k2ywgd2c4f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 17:25 上传
+
+*****
+
+####  0aleph37  
+##### 7575#       发表于 2025-2-25 17:26
+
+ 本帖最后由 0aleph37 于 2025-2-25 17:28 编辑 
+
+正脸麻球好英气，有种男孩子感
+
+侧颜修司反而有点妩媚？/柔弱？（露腋+侧身+前胸后背太牙白了
+
+背景里纸钞能理解，苹果是？
+
+*****
+
+####  王留美  
+##### 7576#       发表于 2025-2-25 17:28
+
+为什么是苹果？
+
+*****
+
+####  Gysumitka  
+##### 7577#       发表于 2025-2-25 17:29
+
+这阴影看着三人要被关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  刺客ares  
+##### 7578#       发表于 2025-2-25 17:31
+
+票房我开播前乐观预测是30，现在来看稳了，大概31到32那样吧，动员200W可能要卡了。
+
+满地钞票是暗示仨人因钱结缘吧
+
+苹果就，懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 7579#       发表于 2025-2-25 17:34
+
+禁果是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">或者地球的重力
+
+*****
+
+####  虛無迴廊  
+##### 7580#       发表于 2025-2-25 17:34
+
+苹果是、是回转企鹅罐！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  积木23ki  
+##### 7581#       发表于 2025-2-25 17:35
+
+是命运的苹果，企鹅罐也是三人主角（其实是四个 还要加上苹果）论证完毕
+
+*****
+
+####  0aleph37  
+##### 7582#       发表于 2025-2-25 17:36
+
+苹果？分辨善恶？伊甸园？
+
+苹果？命运换乘？
+
