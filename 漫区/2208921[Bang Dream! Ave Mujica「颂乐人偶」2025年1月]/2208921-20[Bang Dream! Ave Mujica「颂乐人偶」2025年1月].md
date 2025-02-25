@@ -16207,3 +16207,151 @@ c团要复活了，初华气不气
 
 代入黄毛爱音吗<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烂片雷达  
+##### 29482#       发表于 2025-2-25 21:16
+
+睦对祥和素的箭头都肉眼可见，唯独对灯的箭头任何人都没有发现，这才是真正的暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 29483#       发表于 2025-2-25 21:18
+
+十五年未有之大烂片，快点和兽娘2一桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 29484#       发表于 2025-2-25 21:18
+
+多少有点机翻破防了
+
+*****
+
+####  非建政专用号  
+##### 29485#       发表于 2025-2-25 21:18
+
+不是，大家都是日语n1吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhoujin8584  
+##### 29486#       发表于 2025-2-25 21:19
+
+<blockquote>非建政专用号 发表于 2025-2-25 21:18
+不是，大家都是日语n1吗
+
+—— 来自 S1Fun</blockquote>
+现在手机基本自带翻译挂件
+
+*****
+
+####  cxj649  
+##### 29487#       发表于 2025-2-25 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516440&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 21:18</a>
+
+十五年未有之大烂片，快点和兽娘2一桌吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个还得看本土和白皮的反应
+
+
+*****
+
+####  灵椿  
+##### 29488#       发表于 2025-2-25 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516405&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-2-25 21:14</a>
+哦哦噢噢噢哦哦哦哦哦哦哦！！！！
+
+初华对睦和灯居然是！</blockquote>
+这也太不妙了吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 29489#       发表于 2025-2-25 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515691&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 20:13</a>
+
+乐队动画（指鸡团第四话炸了，预期最速也得第十话才能组回来）
+
+活的时间可能还没死的时间长 ...</blockquote>
+我受不了了这还有活人吗
+
+*****
+
+####  zhzij111  
+##### 29490#       发表于 2025-2-25 21:21
+
+ 本帖最后由 zhzij111 于 2025-2-25 21:24 编辑 
+
+母鸡卡组建源动力一半由超强控制欲油腻女提供，一半由病娇女同蜘蛛侠提供，共同点还都是嫉妒ccc这个空气乐队
+
+要负责再次给这个逼乐队出资建精神病院的老登上辈子肯定是缺了大德了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 29491#       发表于 2025-2-25 21:22
+
+我猜后面可能会降低好评率，但整体还是好评居多，因为能看这个邦动画也是忠实邦奴了
+
+*****
+
+####  天空塔书记官  
+##### 29492#       发表于 2025-2-25 21:22
+
+这时候该有嗜血长颈鹿出来了
+
+“哇卡立马斯达”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新HGCG  
+##### 29493#       发表于 2025-2-25 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516463&amp;ptid=2208921" target="_blank">灵椿 发表于 2025-2-25 21:20</a>
+
+这也太不妙了吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+那个“主唱太拼了”越来越有可能是初华发的了
+
+*****
+
+####  十九号大侠  
+##### 29494#       发表于 2025-2-25 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么要看剧透呢，失去了很多乐趣呀
+
+*****
+
+####  南宮凝香  
+##### 29495#       发表于 2025-2-25 21:25
+
+李子小姐你是欠了WSD 錢嗎？
+
+*****
+
+####  非建政专用号  
+##### 29496#       发表于 2025-2-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516455&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 21:19</a>
+现在手机基本自带翻译挂件</blockquote>
+前面那张机翻能看懂，后面这张机翻只看懂了初华太重了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
