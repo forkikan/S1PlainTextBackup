@@ -2426,3 +2426,84 @@ khara的第一部TV吧 (?)
 好像在说一地苹果不是瞎放的，其实是圣经雅歌的典故？出处也和剧中反复提到的 ...</blockquote>
 懂了，玫瑰是小机器人，苹果是修司，修司是小机器人的良偶，小机器人是修司的佳人
 
+
+*****
+
+####  王留美  
+##### 7603#       发表于 2025-2-25 23:19
+
+索顿舰桥组的科瓦尔中尉在初代敢达登场于第33话，当时的军衔为少尉，技术士官，与赛蒙斯·艾·巴克罗夫中尉一起进行布劳·布罗的测试航行中遭遇了正在巡逻中的G装甲，因为其所在的布劳·布罗的左侧区块被敢达的光束步枪击中而死亡
+
+<img src="https://img.saraba1st.com/forum/202502/25/231834c38jbsbj7hih9i34.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6809.jpeg</strong> (357.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/231834tueo1y7io7oz6veb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6806.png</strong> (107.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202502/25/231834ubgfh090ksflzu09.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6807.jpeg</strong> (349.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 23:18 上传
+
+*****
+
+####  刺客ares  
+##### 7604#       发表于 2025-2-25 23:19
+
+<blockquote>az一串字母 发表于 2025-2-25 22:58
+配合这个假药来看，这张特典图里苹果几乎都是朝修司那个方向滚去。
+
+之前我有个想法，就是高达口中的玫瑰 ...</blockquote>
+唏，烟雾弹太多了
+
+沙仑玫瑰是唯一的吗，不知道
+
+沙仑玫瑰是人还是物品，不知道
+
+联邦知道沙仑玫瑰的存在吗，不知道
+
+高达的话是一定正确可信的吗，不知道
+
+地球玫瑰和所罗门玫瑰是同一存在吗，不知道
+
+牢修又到底是个什么东西，不知道
+
+为什么要在特典图画六个苹果，不知道
+
+满地的钞票又有什么深意，不知道
+
+真的找回看EVA分析神学那个意思了（
+
+
+*****
+
+####  刺客ares  
+##### 7605#       发表于 2025-2-25 23:22
+
+<blockquote>王留美 发表于 2025-2-25 23:19
+索顿舰桥组的科瓦尔中尉在初代敢达登场于第33话，当时的军衔为少尉，技术士官，与赛蒙斯·艾·巴克罗夫中尉 ...</blockquote>
+这哥们都安然无恙那表示希姆丝一定活着
+
+安琪姐可以卸妆戴眼镜了，掉马了
+
+*****
+
+####  AvenueIII  
+##### 7606#       发表于 2025-2-25 23:23
+
+不是说这个世界观的货币是个小瓶盖一样的东西吗，这钞票是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+khara这不会又搞一个G学出来吧
+

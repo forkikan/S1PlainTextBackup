@@ -370,3 +370,59 @@ Mujica已经不是广告都能打成这样，而是为什么如此刻意的把�
 但是我觉得因此补了bang23季还是挺开心的，也不算亏了</blockquote>
 抹布洗的一瞬，gei人生带来快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哇嘎里马斯
 
+
+*****
+
+####  阿兹尔  
+##### 29637#       发表于 2025-2-25 23:18
+
+说起来喵梦和海铃互动的那个新视频不就挺好的，评论区的评价也不错，甚至都有人说不想看祥子和睦的车轱辘话了，wsd，这就是你想要的效果吗
+
+*****
+
+####  plusSharp  
+##### 29638#       发表于 2025-2-25 23:19
+
+还不如老套点，初华真动手灯替睦挡了，受伤住院了一段时间不过没留下终身残疾，而睦独自跑了，后续祥子只能陪着初华然后和灯断交
+
+
+*****
+
+####  天空塔书记官  
+##### 29639#       发表于 2025-2-25 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517787&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 23:11</a>
+虽然mujica可能会烂。
+
+但是我觉得因此补了bang23季还是挺开心的，也不算亏了</blockquote>
+那冒昧打扰一下楼友，做个小调查，看完2/3季感觉如何，有不能接受的剧情吗
+
+最喜欢哪只乐队 ? 为什么喜欢 ?
+
+最喜欢哪个角色 ? 为什么喜欢 ?
+
+最讨厌哪个角色 ? 为什么讨厌 ?
+
+简略回答就可以，不胜感激
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  operatbig  
+##### 29640#       发表于 2025-2-25 23:20
+
+对我来说有变态女女关系性和撕逼扯头花就满足了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  非建政专用号  
+##### 29641#       发表于 2025-2-25 23:24
+
+wsd是真不懂烂炒，干脆第九集结尾初华把木头人推下去，第十集标题「莫提斯之死！」
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
