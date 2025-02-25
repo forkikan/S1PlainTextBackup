@@ -2853,3 +2853,16 @@ rank里面只剩野兔子
 
 但愿如此...
 
+
+*****
+
+####  shmilyhua  
+##### 18103#       发表于 2025-2-26 04:17
+
+ 本帖最后由 shmilyhua 于 2025-2-26 04:19 编辑 
+
+今天是哪首歌被版权了？看着不是Sony的。
+
+<img src="https://p.sda1.dev/22/f632a2449c34769775653de570623a55/image.jpg" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
