@@ -879,3 +879,24 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  厄斯沃穆  
+##### 93#       发表于 2025-2-25 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509511&amp;ptid=2247027" target="_blank">史蒂符 发表于 2025-2-25 07:35</a>
+首发怪就29个，崛起40个，这tm拿着最多经费做最烂的怪猎，看来老玩家已经是怪猎的阻碍了，期待褒姒
+
+——  ...</blockquote>
+崛起首发哪来40只怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  蓮華  
+##### 94#       发表于 2025-2-25 08:07
+
+懒得玩这种做完了一段段放的游戏了，打累死一更新所有装备珠子白配<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
