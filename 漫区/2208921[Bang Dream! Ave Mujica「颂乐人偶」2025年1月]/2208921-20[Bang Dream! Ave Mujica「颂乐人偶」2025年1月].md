@@ -15633,3 +15633,93 @@ go团重组她拉人，c团重组她又抓人又送吉他，鸡团重组她不�
 
 那是打算兩人抱頭哭嗎？
 
+
+*****
+
+####  一心而用  
+##### 29430#       发表于 2025-2-25 20:17
+
+lyy老师的爱素
+<img src="https://p.sda1.dev/22/65032a0aab1ecc89d8fc276b4d722c9d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/014ed4e18ae30025b57faeefbb807a1f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c4c70d4fb481105c3cca9e3799a4091d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/101d77f3942afd85c5732cf465ceea6a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 29431#       发表于 2025-2-25 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有要上tft了 这次是mygo上呢 啊咧 播的是啥剧来着
+
+*****
+
+####  DeltaStriker  
+##### 29432#       发表于 2025-2-25 20:20
+
+我们bang dream crychic destiny不上本剧名义主角团也很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhoujin8584  
+##### 29433#       发表于 2025-2-25 20:22
+
+tft的周三22:00卖狗啥意思啊，哪个周三啊，时区是哪啊
+
+*****
+
+####  kenqqex  
+##### 29434#       发表于 2025-2-25 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你索也恰烂钱配合wsd炒作 
+
+
+*****
+
+####  الطائر  
+##### 29435#       发表于 2025-2-25 20:23
+
+参考战吧最近几大流行贴的新假药来了：
+
+初华和爱音在天文馆之后一直有联系，两人交换信息共同解密Ave Mujica动画。她们相当于在母鸡卡世界观中，代表观众的两名女高中生莉伽和瑠奈。莉伽参加假面舞会结果被变成了人偶Doloris，瑠奈追逐莉伽也来到了假面舞会。在MyGo五人中，爱音是母鸡卡的资深观众。掌握动画内路人观众没有的情报，包括在天文馆认出SUMIMI的初华、持续关注喵梦的美妆博客、对森美奈美的台词了如指掌。爱音幸运地（不幸地）抽选到了母鸡卡武道会公演的票，也就是收到了参加假面舞会的邀请函，已经被拉入了母鸡卡的世界。这和全程观看动画的观众一样。大胆猜测，初华爱音二人组和动画观众是解密的竞争者。假如你们不能在二人之前解开母鸡卡的谜题，改变动画的结局，爱音就会被变成人偶，困在永不落幕的假面舞会里。
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/469.png" referrerpolicy="no-referrer">
+
+此前Ave Mujica解密活动回顾，解密者要获得更多线索，就要让狂气值的排名超过其他观众：
+
+【雜談】...歡迎到來，Ave Mujica的世界。來自狂氣上位者的AM團全方面解析
+[https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745](https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745)
+
+*****
+
+####  南宮凝香  
+##### 29436#       发表于 2025-2-25 20:24
+
+WSD 你這麼有錢嗎？
+
+*****
+
+####  ape-apple  
+##### 29437#       发表于 2025-2-25 20:24
+
+有一说一，这么快就上mygo，怕是播放量被薄纱了吧，我觉得主要是推你🐑姐
+
+*****
+
+####  tjshibc21  
+##### 29438#       发表于 2025-2-25 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515790&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 20:22</a>
+
+tft的周三22:00卖狗啥意思啊，哪个周三啊，时区是哪啊</blockquote>
+明天晚上9点
+
+*****
+
+####  沉默的苍穹基  
+##### 29439#       发表于 2025-2-25 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子大小姐想让我告白咯
+
