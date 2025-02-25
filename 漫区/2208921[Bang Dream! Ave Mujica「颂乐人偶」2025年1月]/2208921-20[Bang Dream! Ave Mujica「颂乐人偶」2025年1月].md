@@ -15197,3 +15197,50 @@ mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="h
 
 三家分祥，初氏代灯
 
+
+*****
+
+####  adretyu67.  
+##### 29391#       发表于 2025-2-25 19:20
+
+初华能见的人不多，爱音还真算一个选项
+
+*****
+
+####  南宮凝香  
+##### 29392#       发表于 2025-2-25 19:24
+
+<blockquote>adretyu67. 发表于 2025-2-25 19:20
+初华能见的人不多，爱音还真算一个选项</blockquote>
+立希表示她就坐在兩個座位之前
+
+*****
+
+####  zhoujin8584  
+##### 29393#       发表于 2025-2-25 19:24
+
+<blockquote>堆雪若叶 发表于 2025-2-25 18:55
+啊灯睦初？？初华这还在单钓爱音。这下不能黑连体婴了吧</blockquote>
+爱灯连体本来就是专攻灯祥的，所以反对声最大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 29394#       发表于 2025-2-25 19:25
+
+“爱音酱ave mujica 第八集，看♫过♫了♫吗♫”
+
+“？”
+
+*****
+
+####  adretyu67.  
+##### 29395#       发表于 2025-2-25 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67515201&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 19:24</a>
+
+立希表示她就坐在兩個座位之前</blockquote>
+一个上课睡觉，一个要么要么早退要么干脆不来上课<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不过初华应该知道立希，起码知道ccc的鼓手就坐她两个座位前
+
