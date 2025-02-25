@@ -1006,3 +1006,16 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  都是好事  
+##### 105#       发表于 2025-2-25 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509977&amp;ptid=2247027" target="_blank">史蒂符 发表于 2025-2-25 09:16</a>
+
+买的淘宝礼物也退不了款了，幸好当初7折买的，到时候先去差评
+
+—— 来自 S1Fun ...</blockquote>
+礼物不计入评测
+
