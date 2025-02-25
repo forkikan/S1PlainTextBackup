@@ -3488,3 +3488,15 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 小墨惨死（并不）前的悲鸣好有感觉，编剧的XP倒是可以肯定一下。
 
+
+*****
+
+####  ads147147  
+##### 384#       发表于 2025-2-25 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510114&amp;ptid=2246911" target="_blank">plazum 发表于 2025-2-25 09:34</a>
+光是杀人格无数这一点就不知道要怎么圆得回来</blockquote>
+人格大逃杀只是噱头，在我这的理解就是玩烂的弗洛伊德本我自我超我三人格相互攻陷罢了，但是为了逼格肯定不能就直接说小睦是自我，大墨是本我，若叶睦是超我。干脆弄点什么did的玩意噱头一下。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
