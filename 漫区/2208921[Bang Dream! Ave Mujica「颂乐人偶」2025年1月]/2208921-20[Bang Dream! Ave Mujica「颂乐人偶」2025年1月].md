@@ -14416,3 +14416,39 @@ Ring 的背景不一樣
 羽丘正门是有一个拱门的，但是墙上的路灯是同款，所以应该是后门附近供学生休息娱乐的地方
 <img src="https://p.sda1.dev/22/ccbe50dd7c70b491d4f8a8500c0b34fc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 29320#       发表于 2025-2-25 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511771&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-25 12:39</a>
+
+椅背完全不一样，看外面有学校的大门，应该是食堂</blockquote>
+图片窗户外面是不是二轮车的停车雨棚？
+
+
+*****
+
+####  Raven314  
+##### 29321#       发表于 2025-2-25 13:05
+
+ 本帖最后由 Raven314 于 2025-2-25 13:07 编辑 
+
+每次预告大部分信息不是烂炒就是不大重要的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  结衣小比取  
+##### 29322#       发表于 2025-2-25 13:06
+
+放大局部，灯和爱音除了杯子以外还点了其他东西，难道是吃饭的时候，祥子找过去的吗？
+
+<img src="https://img.saraba1st.com/forum/202502/25/130447s833dqyccll0slzq.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-02-25_13-04-18.jpg</strong> (94.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 13:04 上传
+
