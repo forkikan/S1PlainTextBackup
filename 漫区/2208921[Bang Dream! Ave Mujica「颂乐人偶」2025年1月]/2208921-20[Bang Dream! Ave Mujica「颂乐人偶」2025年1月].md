@@ -14534,3 +14534,35 @@ Ring 的背景不一樣
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  syndrome2032  
+##### 29332#       发表于 2025-2-25 13:47
+
+mygo里爱音连练吉他都在天文部室了。她应该没加入天文部吧。
+
+
+*****
+
+####  天空塔书记官  
+##### 29333#       发表于 2025-2-25 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510775&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-25 11:00</a>
+但要这么说的话，灯没法回避“歌词”完全是祥子单方面的误解这一问题，既然出发点就不对，那喵梦那句“说 ...</blockquote>
+CCC重聚可以，但不会作为一个乐队持续存在，灯在CCC时是祥子牵着她走路的，带领她走入了音乐的世界，而迷子的灯已经变成了绝对的核心，即使再眷恋，离巢的幼鸟也不可能回到过去羽翼的庇护，祥子也没法再担任灯的引导者的角色，那么放手就是正确的选择<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DD-963  
+##### 29334#       发表于 2025-2-25 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510545&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-25 10:32</a>
+
+理性讨论，初华直到母鸡卡动画结束，是不是都会只绑定祥子一个人，进手游里才会加入邦邦大乱炖的世界观 ...</blockquote>
+真奈：那我呢？
+
+不过第八集都提到真奈去出演话剧了，加上之前提到已经在接SOLO的工作，怕不是抢在初华前面出手离开SUMIMI。
+
