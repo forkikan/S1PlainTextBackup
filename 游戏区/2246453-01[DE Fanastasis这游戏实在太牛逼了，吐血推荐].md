@@ -2359,3 +2359,38 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 那我就让双刀梵替代长枪妹吧
 
+
+*****
+
+####  水边井  
+##### 203#       发表于 2025-2-25 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513534&amp;ptid=2246453" target="_blank">woshenc 发表于 2025-2-25 16:10</a>
+
+火法就是死刑人是吧？
+
+弓箭姐还没收到
+
+船长感觉没什么用，除去群体加攻防之外</blockquote>
+差不多，主角主堆肉和sp，反证武器适性强，带克制的武器也能打点小怪
+
+*****
+
+####  Aoye  
+##### 204#       发表于 2025-2-25 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513376&amp;ptid=2246453" target="_blank">woshenc 发表于 2025-2-25 15:51</a>
+
+居然支持手柄吗？我的xbox手柄怎么没反应哭了</blockquote>
+要在游戏启动前先启动手柄
+
+*****
+
+####  woshenc  
+##### 205#       发表于 2025-2-25 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513709&amp;ptid=2246453" target="_blank">Aoye 发表于 2025-2-25 16:29</a>
+
+要在游戏启动前先启动手柄</blockquote>
+原来如此，今天回去试试
+

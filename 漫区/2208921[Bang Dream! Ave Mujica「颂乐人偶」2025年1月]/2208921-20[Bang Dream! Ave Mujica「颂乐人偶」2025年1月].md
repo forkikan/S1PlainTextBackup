@@ -14754,3 +14754,51 @@ mygo里爱音连练吉他都在天文部室了。她应该没加入天文部吧�
 
 对着睦瞪眼哈气宛若金毛因为嫉妒疯狂撕咬主人床边的布娃娃吗，我可太期待咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  非建政专用号  
+##### 29352#       发表于 2025-2-25 16:26
+
+彼得帕克因为玛丽简大战诺曼奥斯本，合理
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安娜导函数  
+##### 29353#       发表于 2025-2-25 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512232&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-25 13:35</a>
+感觉这连体婴连了个寂寞，没有什么正面塑造，反而还搞得爱音像个工具人，灯像个没自主的人 ...</blockquote>
+mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GBLMikuHatsune  
+##### 29354#       发表于 2025-2-25 16:30
+
+怎么说呢，虽然很多人滑坡认为爱音现在纯纯的挂件位，但是我感觉爱灯这一组里粉毛还是掌握着关系的主动性的
+
+虽然灯有很多想法，比如想要拉祥子组乐队、给祥子写歌词、和ccc唱春日影，但是对这些爱音基本都推了一把，有种灯不知道怎么办等着爱音出手同意她干的味道。要是爱音明确反对或者生闷气估计灯会立马调头靠爱音。
+
+相比之下不考虑二创的素世，现在动画中的素世更加个体独立化，行动全部由自决定，与爱音的关系明显没有谁依附谁的味道。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+怕不是牢祥唱完ccc春日影的那一晚，小企鹅在床上被爱音扣到求饶，床单湿了个透，嗓子都喊哑了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29355#       发表于 2025-2-25 16:33
+
+【╰(⊙Д⊙)╮╭(⊙Д⊙)╯ 】木棉花MUSE放出《BanG Dream! Ave Mujica》若叶睦 Mortis 1小时 “不想走路”名场面纯享，每15分钟都会循环一次。
+
+ ​​​[http://t.cn/A610Fj0x](http://t.cn/A610Fj0x)
+
+? ? ?
+
+这又是什么烂活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
