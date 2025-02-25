@@ -14382,3 +14382,37 @@ Ring 的背景不一樣
 
 應該是別處
 
+
+*****
+
+####  南宮凝香  
+##### 29317#       发表于 2025-2-25 12:49
+
+<blockquote>烂片雷达 发表于 2025-2-25 12:28
+祥说可以替代crychic陪在睦身边，但是睦仍然要坚持重组crychic
+
+是不是说明crychic里有祥替代不了也割舍不了 ...</blockquote>
+二人是開不了音啪的
+
+答案是音啪
+
+*****
+
+####  cccpprc  
+##### 29318#       发表于 2025-2-25 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511174&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-25 11:41</a>
+
+喵梦代言都混上了，还没把那套罗兰11k给换掉，可能是在说明她根本就没在打鼓了。 ...</blockquote>
+想当初这套鼓还是大喵艰苦奋斗的证明呢
+
+大概是不忘本？
+
+*****
+
+####  Raven314  
+##### 29319#       发表于 2025-2-25 12:52
+
+羽丘正门是有一个拱门的，但是墙上的路灯是同款，所以应该是后门附近供学生休息娱乐的地方
+<img src="https://p.sda1.dev/22/ccbe50dd7c70b491d4f8a8500c0b34fc/image.jpg" referrerpolicy="no-referrer">
+
