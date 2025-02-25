@@ -2498,3 +2498,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kerbad  
+##### 216#       发表于 2025-2-25 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513784&amp;ptid=2246453" target="_blank">猎人D 发表于 2025-2-25 16:38</a>
+
+能和神之天平、废都物语一样优化重制后就好了</blockquote>
+没废都那人气还是别做废都的梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，更别说现在这个付费的决定版也是对比免费版优化过的
+

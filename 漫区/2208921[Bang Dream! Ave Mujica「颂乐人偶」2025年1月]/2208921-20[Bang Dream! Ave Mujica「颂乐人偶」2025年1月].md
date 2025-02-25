@@ -16919,3 +16919,148 @@ nga不是在滑小姨和狗血家族戏吗
 
 现在单人物已经无所谓了 动画整体要崩塌了
 
+
+*****
+
+####  天空塔书记官  
+##### 29554#       发表于 2025-2-25 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516950&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 22:03</a>
+有饭吃和wsd安排她们配角色是俩概念，本来邦系逆输入就很正常，有点大人的考虑也合理 ...</blockquote>
+再大人因素，青木都不会是wsd外人
+
+拿她举例子不合适
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29555#       发表于 2025-2-25 22:07
+
+但是还有个问题是。
+
+初华对祥子的独占欲和mujica有什么关系？
+
+初华想独占祥子需要搞mujica吗？
+
+*****
+
+####  Versedust  
+##### 29556#       发表于 2025-2-25 22:08
+
+这不是编剧一句话的事吗，现在不用考虑逻辑和合理性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 29557#       发表于 2025-2-25 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/25/220926ayd66jv2jdk6kljv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 22:09 上传
+
+*****
+
+####  adretyu67.  
+##### 29558#       发表于 2025-2-25 22:09
+
+终于只剩结晶了吗
+
+*****
+
+####  北条早苗  
+##### 29559#       发表于 2025-2-25 22:10
+
+这下真得主唱太拼命了是初华发了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 29560#       发表于 2025-2-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516947&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-2-25 22:03</a>
+这展开不挺爽吗？初华这暗面就是既意料之中又喜闻乐见的病娇女同塑造啊，nga到底在滑什么？他们到底觉得初 ...</blockquote>
+因为机翻原因吧，日语原文的害意被翻译成加害之意 
+<img src="https://p.sda1.dev/22/8889c9bebd2dcd01be6ca5aa4007c319/image.jpg" referrerpolicy="no-referrer">
+这样翻译好像初华气的要上去动手打人一样，但是也能翻译为恶意敌意
+而且这是小编的看图说话，用词不一定准确，这杂志里还写睦莫是双重人格呢，然而第八集里说是演技
+
+
+*****
+
+####  南宮凝香  
+##### 29561#       发表于 2025-2-25 22:11
+
+之前大部分喊小姨的其實不覺得會真來
+
+結果現在發覺好像是真要來了
+
+那當然慌了
+
+*****
+
+####  cxj649  
+##### 29562#       发表于 2025-2-25 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517027&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 22:09</a>
+
+终于只剩结晶了吗</blockquote>
+没有
+
+1w6人次呢
+
+<img src="https://img.saraba1st.com/forum/202502/25/221139tvtf764afxxutwet.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 22:11 上传
+
+*****
+
+####  刑部姬真可爱  
+##### 29563#       发表于 2025-2-25 22:12
+
+在滑的不是初华小姨说，而是初华之所以成为小姨的贵圈真乱在“舅舅”嘴里戏份很多，且疑似某男性角色在所有出场角色里最高光
+
+*****
+
+####  plusSharp  
+##### 29564#       发表于 2025-2-25 22:12
+
+这动画的每个角色怎么都很“半途而废”，喵梦想成名却连试镜都不敢去，祥子刚“不认识睦”转头就又“为了睦什么都愿意做”，初华想加害睦和灯也要“在最后一刻前停止”，人均未遂，也太一丘之貉了
+
+*****
+
+####  阿兹尔  
+##### 29565#       发表于 2025-2-25 22:12
+
+只能说母鸡卡还没散、祥子住在初华家里这个时期，是初华最开心的时候了，在她的脑子里:母鸡卡存在=小祥住我家
+
+*****
+
+####  刑部姬真可爱  
+##### 29566#       发表于 2025-2-25 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517076&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-25 22:12</a>
+
+这动画的每个角色怎么都很“半途而废”，喵梦想成名却连试镜都不敢去，祥子刚“不认识睦”转头就又“为了睦 ...</blockquote>
+海铃想组一辈子乐队但半途终止也算吧
+
+*****
+
+####  operatbig  
+##### 29567#       发表于 2025-2-25 22:15
+
+B战以后能把尝试把晋江那堆变态女同小说动画化吗？目前看还是挺有市场的嘛，我怕母鸡卡完结后就没类似的看了。
+
