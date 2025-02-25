@@ -14503,3 +14503,34 @@ Ring 的背景不一樣
 
 除此以外都是連體嬰
 
+
+*****
+
+####  6030sylar  
+##### 29328#       发表于 2025-2-25 13:33
+
+偷摸零外交大臣阿侬
+
+*****
+
+####  Skymoon  
+##### 29329#       发表于 2025-2-25 13:35
+
+感觉这连体婴连了个寂寞，没有什么正面塑造，反而还搞得爱音像个工具人，灯像个没自主的人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 29330#       发表于 2025-2-25 13:36
+
+为了配合灯的幻想朋友 anon，宁可不吃饭也要把自己的餐盘放在对面的位置上，祥子，你这温柔的家伙。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 29331#       发表于 2025-2-25 13:37
+
+关系好在一起也没啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本来就是第一季官配cp，泥潭对爱音过于阴湿<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
