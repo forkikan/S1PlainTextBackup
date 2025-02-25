@@ -17230,3 +17230,138 @@ bang第三季RAS争议已经够大了，这还不如RAS呢。
 
 破防DLC真无聊吧，还没母鸡卡动画有意思
 
+
+*****
+
+####  595505568  
+##### 29584#       发表于 2025-2-25 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516788&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-25 21:49</a>
+高尾奏音是有什么把柄捏在柿本手上吧
+
+演一个如此抽风的角色</blockquote>
+这下弄弄和蜜柑能玩到一起去有解释了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，都他妈是啥人设啊我靠（
+
+*****
+
+####  天空塔书记官  
+##### 29585#       发表于 2025-2-25 22:27
+
+像这种私生子或者分家子弟对本家子弟病态执着的剧情已经是岛国大家族戏的标准逻辑了
+
+问，就是阶级固化
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 29586#       发表于 2025-2-25 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517236&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-25 22:26</a>
+
+破防DLC真无聊吧，还没母鸡卡动画有意思</blockquote>
+我倒是觉得挺相辅相成的，乐趣在左脚蹬右脚中越来越高<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 29587#       发表于 2025-2-25 22:28
+
+说点我们不知道的，日本演剧类文艺作品就这么畸形有啥办法，真人电视剧电影都什么样了，就靠着动画争一口气呢
+
+*****
+
+####  北条早苗  
+##### 29588#       发表于 2025-2-25 22:28
+
+这剧透怎么看都太离谱了，小姨除了致敬海猫以外到底有什么用，大祥老师的罪也是忘记吗
+绫奈独角兽写给龟骑士07的情书吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 29589#       发表于 2025-2-25 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517269&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 22:28</a>
+说点我们不知道的，日本演剧类文艺作品就这么畸形有啥办法，真人电视剧电影都什么样了，就靠着动画争一口气 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缺乏社会改造了属于是，国内看不懂也很正常，毕竟落后又变异，我也看不懂（）
+只能说看了眼国内一批编剧情况，算了，比日本强点，就这样吧
+
+*****
+
+####  zhoujin8584  
+##### 29590#       发表于 2025-2-25 22:29
+
+<blockquote>南宮凝香 发表于 2025-2-25 22:25
+動畫，
+
+大家能接受看起來很時髦的壞人
+
+</blockquote>
+是的，害意这个听上去挺……雌竞味儿的，必须不能成才是。冤有头债有主，大家其实是乐见大金毛病娇化把祥子锁阁楼上的，但针对睦灯就怪味了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhzij111  
+##### 29591#       发表于 2025-2-25 22:31
+
+ 本帖最后由 zhzij111 于 2025-2-25 22:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517184&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-25 22:22</a>
+现在看到“推下楼梯”我就感觉灯可能会死但睦会无伤</blockquote>
+错了，为了创口贴出场，灯会自动给附近的人上易伤，她的轮椅爱圣就是最大受害者。
+
+所以应该是睦还觉得自己没事，但实际上已经被小闭灯偷偷上易伤了，又不敢切人格抗伤害，无防备直接摔死了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 29592#       发表于 2025-2-25 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517249&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-25 22:27</a>
+
+这下弄弄和蜜柑能玩到一起去有解释了，都他妈是啥人设啊我靠（</blockquote>
+Soyo不是亲女儿待遇？跟鸡这五条路边根本不是一个等级<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 29593#       发表于 2025-2-25 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517282&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 22:29</a>
+
+是的，害意这个听上去挺……雌竞味儿的，必须不能成才是。冤有头债有主，大家其实是乐见大金毛病娇化把祥 ...</blockquote>
+病娇除了监禁play，也有把情敌都给噶了的作风啊
+
+之前PV里有机场场景，我大致能理解为什么这里要这么安排。
+
+*****
+
+####  thisisaspider  
+##### 29594#       发表于 2025-2-25 22:33
+
+保底歌还行，看Live录像也挺好，今天有机会打算去下鸡Live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 29595#       发表于 2025-2-25 22:34
+
+13集能开一整集的live吗 11人4团
+
+*****
+
+####  zhoujin8584  
+##### 29596#       发表于 2025-2-25 22:34
+
+<blockquote>595505568 发表于 2025-2-25 22:29
+缺乏社会改造了属于是，国内看不懂也很正常，毕竟落后又变异，我也看不懂（）
+
+只能说看了眼国内一批编剧 ...</blockquote>
+国内近年也有关于文艺保守化的讨论，研究的样本正好是几十年来的各个版本的哪吒，一版比一版更孝，但又是成功的商业片。就，顺从<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

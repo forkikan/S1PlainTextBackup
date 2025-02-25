@@ -3508,3 +3508,11 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 1w6观众，94.9%的1率<img src="https://p.sda1.dev/22/21bda2dac7117ea398dab3f421590cd4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 386#       发表于 2025-2-25 22:32
+
+令和种命不过是母鸡卡的上限（连电台上上个视频都放起了这个主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
