@@ -826,3 +826,13 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 73#       发表于 2025-2-25 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512701&amp;ptid=2246987" target="_blank">Holyted 发表于 2025-2-25 14:37</a>
+我们公司总部（央企）搞了两年的大模型，DS出来直接被搞蒙了，现在正在研究干脆放弃自家那一套烂玩意，全面 ...</blockquote>
+啊，央企？现在这边基层都在来培训怎么用来办公了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

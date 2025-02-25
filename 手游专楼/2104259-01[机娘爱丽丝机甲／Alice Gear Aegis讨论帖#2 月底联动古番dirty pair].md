@@ -100,3 +100,16 @@
 
 话说，双子复刻，要来双子的ST了？万恶的双UP？
 
+
+*****
+
+####  不灭的旋律  
+##### 1391#       发表于 2025-2-25 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513566&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-2-25 16:13</a>
+
+不一定是靠BOSS点，这鬼格子我还见过隐藏了的。</blockquote>
+为了刺激和省时间都是直接日boss<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+估计就是琴村ST了，我想要新女演员啊
+

@@ -14827,3 +14827,47 @@ mujica目前的爱音就是灯的轮椅，还是霍金同款的那种<img src="h
 
 初华是炸团策划人，喵梦受初华指使搞破坏的可能性并不是0
 
+
+*****
+
+####  堆雪若叶  
+##### 29359#       发表于 2025-2-25 16:56
+
+爱灯从mygo开始就没有不在一块的时候，也就闹别扭才被初华偷了一次家，要说的话灯二会初华的时候爱音就在当工具人泄露mygo信息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 29360#       发表于 2025-2-25 16:58
+
+小祥还有啥要洗白的？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+难道是小时候对初华做了什么又始乱终弃吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhzij111  
+##### 29361#       发表于 2025-2-25 16:59
+
+第二季这个爱音完全没有自己想法，一出场就是等着灯皇下命令执行，这不挂件就没有挂件角色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 29362#       发表于 2025-2-25 17:02
+
+很喜欢一句话，初华就是独角兽给小祥拉的金瓜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 29363#       发表于 2025-2-25 17:02
+
+[Akn](https://x.com/akni105/status/1892944573002895708?t=1UagBiN-tF34dB5Yw6t34g&amp;s=19)
+
