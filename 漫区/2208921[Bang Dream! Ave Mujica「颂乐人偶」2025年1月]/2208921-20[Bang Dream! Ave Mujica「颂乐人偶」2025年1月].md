@@ -14580,3 +14580,43 @@ CCC重聚可以，但不会作为一个乐队持续存在，灯在CCC时是祥�
 
 sumimi不是解散了，只是没人来<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 29336#       发表于 2025-2-25 14:05
+
+我是觉得停止塑造甜甜圈女士也是个好事，万一炸出来甜甜圈女士也是个<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 29337#       发表于 2025-2-25 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512315&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-25 13:47</a>
+
+mygo里爱音连练吉他都在天文部室了。她应该没加入天文部吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天文社有学生会的强宣称
+
+*****
+
+####  swessia  
+##### 29338#       发表于 2025-2-25 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">可怜的爱音，被重力立场捕获后就再也逃脱不掉了
+
+不过这是不是也说明爱灯祥关系彻底正常化了，爱祥剑指手游
+
+
+*****
+
+####  刑部姬真可爱  
+##### 29339#       发表于 2025-2-25 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512472&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-25 14:07</a>
+
+可怜的爱音，被重力立场捕获后就再也逃脱不掉了
+
+不过这是不是也说明爱灯祥关系彻底正常化了，爱祥剑指手游 ...</blockquote>
+大概这集过完才能正常吧，看上集的下集预告灯还会有点纠结的
+
