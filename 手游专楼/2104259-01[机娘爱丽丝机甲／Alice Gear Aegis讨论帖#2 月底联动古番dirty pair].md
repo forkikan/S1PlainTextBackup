@@ -53,3 +53,16 @@
 另外岛田居然又为你游画新图了，你到底是回归还是叛变给个准啊不要左右横跳
 [https://x.com/colopl_alice/status/1894220784652227012](https://x.com/colopl_alice/status/1894220784652227012)
 
+
+*****
+
+####  江戸前ルナ  
+##### 1388#         楼主| 发表于 2025-2-25 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511944&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-2-25 12:57</a>
+
+几个无属性的boss都没看到变属性的debuff只能硬啃。今天发现居然还有lv300的无属性……
+
+另外岛田居然又为 ...</blockquote>
+都有的，隐藏了你打几个点一般就见到。好像都贴着BOSS点的。
+
