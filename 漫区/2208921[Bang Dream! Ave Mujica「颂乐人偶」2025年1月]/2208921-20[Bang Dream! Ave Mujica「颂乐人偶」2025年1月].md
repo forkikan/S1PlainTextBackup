@@ -15912,3 +15912,59 @@ tft的周三22:00卖狗啥意思啊，哪个周三啊，时区是哪啊</blockqu
 
 从隔壁舅舅来看祥厨已经可以打1分离场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29455#       发表于 2025-2-25 20:46
+
+ 本帖最后由 天空塔书记官 于 2025-2-25 20:48 编辑 
+
+ave的份肯定有,不上TFT也会有差不多的炒作，wsd不会错过这波热度的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jzxdds123  
+##### 29456#       发表于 2025-2-25 20:47
+
+看了下nga专楼，那边有人说百合llx是大莫老师，感觉还挺有道理的，占据主线剧情，给其他人狂发箭头，最后在live上上演零之镇魂曲风光大葬，这下真十五年未有之大女主了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  依旧ing  
+##### 29457#       发表于 2025-2-25 20:52
+
+wsd这打法真有点变态吧，第7话剧情+ccc tft直接点炸了社区。今天又放出来mygo也有tft。
+
+整个mujica感觉真的是武士道完全知道自己在干什么，但就是选择了最爆炸的炒作方式
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cccpprc  
+##### 29458#       发表于 2025-2-25 20:53
+
+所以赤坂明上号了嘛
+
+我缺的炒面大喵来补上啊
+
+*****
+
+####  DARK_HGCG  
+##### 29459#       发表于 2025-2-25 20:54
+
+莫非那个喷主唱的推是初华发的？
+
+*****
+
+####  asion617  
+##### 29460#       发表于 2025-2-25 20:55
+
+你怎么知道不是 索尼: 买两次送一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
