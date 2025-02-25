@@ -907,3 +907,24 @@ AZ级别的赤石啊</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 前面那句是初歌
 
+
+*****
+
+####  ntrntr1  
+##### 29685#       发表于 2025-2-26 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517184&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-25 22:22</a>
+
+现在看到“推下楼梯”我就感觉灯可能会死但睦会无伤</blockquote>
+你怎么知道阿灯就没有特殊能力！
+
+来自星星的神秘力量！她还在藏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KokutouMikiya  
+##### 29686#       发表于 2025-2-26 01:35
+
+多重人格这个活已经用掉8集篇幅了，而且还把若叶睦这个鸡核心角色的底色全给推翻了，这还不叫大改？
+

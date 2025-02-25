@@ -1518,3 +1518,14 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 最近是不是服务器越来越烂了，经常捡东西有个几秒的延迟，而且掉线越来越频繁。在这种延迟的情况下我虫子根本打不了，跑去人少的南线12分钟一把爽的不行。真好啊南线，也不知道阴间怪啥时候更新，能爽一把是一把了
 
+
+*****
+
+####  qwased  
+##### 5811#       发表于 2025-2-26 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513280&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2025-2-25 15:39</a>
+
+最近是不是服务器越来越烂了，经常捡东西有个几秒的延迟，而且掉线越来越频繁。在这种延迟的情况下我虫子根 ...</blockquote>
+感觉现在如果排到中文ID+鬼佬的房间就会很卡，如果是纯中文或者纯鬼佬都还行，我开了加速器，怀疑是因为回坑的国人基本都不开加速器导致的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
