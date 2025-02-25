@@ -1040,3 +1040,47 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  史蒂符  
+##### 108#       发表于 2025-2-25 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510105&amp;ptid=2247027" target="_blank">leafS 发表于 2025-2-25 09:33</a>
+去nga看看感觉进了孝子大本营，还有人说分段更新完美解决后劲不足的问题，我都看笑了
+
+—— 来自 鹅球 v3 ...</blockquote>
+孝子大本营还得是b站的生态世界小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nancygreenlife  
+##### 109#       发表于 2025-2-25 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509756&amp;ptid=2247027" target="_blank">厄斯沃穆 发表于 2025-2-25 08:42</a>
+
+是34只。里面还有三狗龙王和风神这种凑数怪。
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+荒野也是一大堆小动物啊，终盘怪也纯凑数
+
+*****
+
+####  lkvdea  
+##### 110#       发表于 2025-2-25 09:58
+
+还是等第一个DLC出来再买吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  医生狼多  
+##### 111#       发表于 2025-2-25 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509191&amp;ptid=2247027" target="_blank">传说中的天才 发表于 2025-2-25 03:02</a>
+一个最简单的例子就是太刀的突刺上捞突刺上捞之前都是两个键轮换按才行，到了荒野直接一直按突刺就行了， ...</blockquote>
+尖刺上挑一个键这个崛起就改成这样了
+
