@@ -16355,3 +16355,119 @@ c团要复活了，初华气不气
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  刑部姬真可爱  
+##### 29497#       发表于 2025-2-25 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516504&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-25 21:24</a>
+
+为什么要看剧透呢，失去了很多乐趣呀</blockquote>
+已经不是看不看剧透的问题了，而是这铺天盖地的剧透除非远离一切讨论社区，不然必然会被糊一脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 29498#       发表于 2025-2-25 21:30
+
+初华的情感其实是该有这么重的。
+
+她不想和小祥分开在鸡团解散后就该直接监禁play<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  非建政专用号  
+##### 29499#       发表于 2025-2-25 21:31
+
+现在的母鸡卡：大象，祥孝子，祥逆子，想当祥爹，大喵
+那还是孝子链母鸡卡正常点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cxj649  
+##### 29500#       发表于 2025-2-25 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我对财阀戏没什么感觉，不如说你们对这种戏反应过大是大赤害的么233
+
+*****
+
+####  灵椿  
+##### 29501#       发表于 2025-2-25 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516491&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-25 21:23</a>
+那个“主唱太拼了”越来越有可能是初华发的了</blockquote>
+用词这么过激，表现出来只是发个评论都算好的了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 29502#       发表于 2025-2-25 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516567&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-25 21:31</a>
+其实我对财阀戏没什么感觉，不如说你们对这种戏反应过大是大赤害的么233</blockquote>
+还是老动画看少了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 29503#       发表于 2025-2-25 21:34
+
+现在的观众纯良得可怕，罚他们看十部千禧年前后的有病意识流深夜档做一下脱敏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十万年魂环  
+##### 29504#       发表于 2025-2-25 21:34
+
+学生大战财阀不是来搞笑的吗，怎么展开都是搞笑动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楠城旧篱  
+##### 29505#       发表于 2025-2-25 21:35
+
+看到假后三集标题了，大伙注意下
+
+*****
+
+####  ape-apple  
+##### 29506#       发表于 2025-2-25 21:35
+
+李茜对wsd来说就是外人呗，同理青木和菲姐也是，核心成员一个高尾一个节约，🐑都是后面才给的资源，老登思维嘛，别太善良了
+
+*****
+
+####  烂片雷达  
+##### 29507#       发表于 2025-2-25 21:35
+
+明明泥潭评分除了第四集和第七集都是大半好评，哪里烂了，我看是角色厨在擅自破防<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 29508#       发表于 2025-2-25 21:35
+
+<blockquote>cxj649 发表于 2025-2-25 21:31
+其实我对财阀戏没什么感觉，不如说你们对这种戏反应过大是大赤害的么233</blockquote>
+學生鬥財閥就沒有拍得好的
+
+就算有， 也不是三集可以拍出來的
+
+*****
+
+####  cxj649  
+##### 29509#       发表于 2025-2-25 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516614&amp;ptid=2208921" target="_blank">十万年魂环 发表于 2025-2-25 21:34</a>
+
+学生大战财阀不是来搞笑的吗，怎么展开都是搞笑动画</blockquote>
+这次也不是战财阀吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
