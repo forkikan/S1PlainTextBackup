@@ -3457,3 +3457,26 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  plazum  
+##### 381#       发表于 2025-2-25 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485371&amp;ptid=2246911" target="_blank">秦南心 发表于 2025-2-21 14:25</a>
+
+估计最后想告诉观众，玩吉他的睦头人才是真正获得了人性的睦，她只是想要跟大家玩乐队，她只是没有社会常 ...</blockquote>
+光是杀人格无数这一点就不知道要怎么圆得回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 382#       发表于 2025-2-25 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67481675&amp;ptid=2246911" target="_blank">Victorino 发表于 2025-2-21 08:42</a>
+
+有没有人觉得睦妈也不是一般人？一眼看穿喵梦是被睦的演技吓到了才拒绝演戏offer
+
+本身喵梦因为对睦的劣等感 ...</blockquote>
+还真是，这个确实也缺乏交代
+
