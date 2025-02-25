@@ -663,3 +663,40 @@ https://github.com/deepseek-ai/DeepEP
 太难懂了（</blockquote>
 正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 59#       发表于 2025-2-25 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">今天教厂商怎么做MoE架构训练推理集群的通信
+
+*****
+
+####  moekyo  
+##### 60#         楼主| 发表于 2025-2-25 10:56
+
+顺带说一下，千问也发了推理模型的预览版，也支持联网，也是业界汪峰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://chat.qwen.ai](https://chat.qwen.ai)
+
+<img src="https://img.saraba1st.com/forum/202502/25/105421q6dprrf081i0z6b8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-25 at 10.51.22.png</strong> (485.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 10:54 上传
+
+
+*****
+
+####  overflowal  
+##### 61#       发表于 2025-2-25 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510741&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-25 10:56</a>
+
+顺带说一下，千问也发了推理模型的预览版，也支持联网，也是业界汪峰了
+
+https://chat.qwen.ai</blockquote>
+感觉他们本来是想发了，结果一看claude3.7，又打上preview回炉去了
+

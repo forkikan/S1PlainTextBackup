@@ -13869,3 +13869,42 @@ bang23是遇事不决香橙精神注入邦，乐队内部开会每个人说实�
 
 那个小短剧世界观真的有趣吗
 
+
+*****
+
+####  syndrome2032  
+##### 29267#       发表于 2025-2-25 10:58
+
+小短剧世界观是剧中剧，拿来给玩家对暗号猜人设和结局的。
+
+当然有必要。
+
+*****
+
+####  plusSharp  
+##### 29268#       发表于 2025-2-25 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67509912&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-25 09:07</a>
+
+这是我分析的CCC一定会解散的理由，祥子和灯的双核限制了众人的成长，反之也能作为三人组迷子的理由。 ...</blockquote>
+但要这么说的话，灯没法回避“歌词”完全是祥子单方面的误解这一问题，既然出发点就不对，那喵梦那句“说到底有什么必须是乐队形式的理由吗？”就很符合MyGo的现状。再加上我感觉CCC拆队本身就和灯无关而是祥子单方面的原因，毕竟就算祥子离队了灯还是“想着祥子写的歌词”，如果祥子那边不发生意外让CCC持续下去，灯继续配合祥子也没什么问题
+
+
+*****
+
+####  الطائر  
+##### 29269#       发表于 2025-2-25 11:03
+
+上层叙事，指坏心眼的蓝色魔女和念旁白的金色魔女
+
+*****
+
+####  一心而用  
+##### 29270#       发表于 2025-2-25 11:05
+
+第9话官方图透
+<img src="https://p.sda1.dev/22/1e65893eb4073db0603cb2bbdb28e6eb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5cad978d0d8cdde659dc2d9b3ff57429/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e576b38a8e0b99e88f37a98a978791ce/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/71bd20a085eafacbdfc62170fd9692aa/image.jpg" referrerpolicy="no-referrer">
+
