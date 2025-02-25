@@ -2174,3 +2174,13 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 玩的有点晕 有没有wiki</blockquote>
 [https://w.atwiki.jp/fanastasis/pages/11.html](https://w.atwiki.jp/fanastasis/pages/11.html)
 
+
+*****
+
+####  西弗  
+##### 186#       发表于 2025-2-25 10:11
+
+摸爬滚打20小时收集完四个回忆进门砍人果然是假结局<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+游戏还是不错玩，但有时候感觉到处都去过了就是找不到钥匙没法继续推进就还挺烦的，部分隐藏要素又没有任何没提示也太难找了
+
