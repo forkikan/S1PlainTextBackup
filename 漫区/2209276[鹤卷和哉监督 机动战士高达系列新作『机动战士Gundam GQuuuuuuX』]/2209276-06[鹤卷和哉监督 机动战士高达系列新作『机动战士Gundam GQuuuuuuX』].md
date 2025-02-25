@@ -2024,3 +2024,12 @@ khara的第一部TV吧 (?)
 
 這星期只有周六晚能看...
 
+
+*****
+
+####  Gaybird  
+##### 7567#       发表于 2025-2-25 12:11
+
+北美这边抠死了，imax就一天，什么特典都没有<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+27号准备带水魔世代小登一起去看
+
