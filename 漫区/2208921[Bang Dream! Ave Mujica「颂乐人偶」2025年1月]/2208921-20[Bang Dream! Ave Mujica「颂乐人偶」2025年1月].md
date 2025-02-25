@@ -16717,3 +16717,205 @@ Pico 也就只是生在沒母雞卡時代的凡夫
 斗财阀是滑坡出来的，家族戏才是真而且是舅舅喝醉酒后的主观想法
 至于又臭又长，ccc的戏份才是又臭又长眼看就要演到第十集去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 29533#       发表于 2025-2-25 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516816&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-25 21:52</a>
+
+辰二舅还真说鸡2.0有丰川集团赞助</blockquote>
+对的，我很奇怪剧透里没说斗门阀啊狗血另说，为啥都大喊大叫斗门阀233
+
+*****
+
+####  adretyu67.  
+##### 29534#       发表于 2025-2-25 21:56
+
+我宁肯看病娇化也不肯看斗财阀。
+
+但是舅舅是真爱这个
+
+*****
+
+####  Versedust  
+##### 29535#       发表于 2025-2-25 21:57
+
+可能是患上大赤老师PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+家族狗血戏欸，仿佛是三流韩剧一样
+
+*****
+
+####  天空塔书记官  
+##### 29536#       发表于 2025-2-25 21:58
+
+所谓斗财阀不就是狗血家庭戏吗
+
+就像星战核心就是那句“我是你爸”那样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 29537#       发表于 2025-2-25 21:59
+
+哦，还有小姨说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 29538#       发表于 2025-2-25 21:59
+
+所以初华的形象该咋救，感觉有点抽象。。
+
+
+*****
+
+####  wangh  
+##### 29539#       发表于 2025-2-25 22:01
+
+第八集最炸裂的莫睦大活也没人透出来啊，我觉得舅舅的剧透其实就和wsd的下集预告差不多的东西吧
+
+*****
+
+####  cxj649  
+##### 29540#       发表于 2025-2-25 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516887&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 21:59</a>
+
+哦，还有小姨说</blockquote>
+小姨说就是今天剧透吧
+
+*****
+
+####  adretyu67.  
+##### 29541#       发表于 2025-2-25 22:01
+
+ 本帖最后由 adretyu67. 于 2025-2-25 22:02 编辑 
+
+应该不会救了。鸡团5神人每个人都得有自己的私念。
+
+初华铺垫了这么久应该就是对祥子的独占欲。
+
+不如说总算养出来了。
+
+*****
+
+####  六道明  
+##### 29542#       发表于 2025-2-25 22:01
+
+泡面包装上还得写个内容以实物为准呢，这逼动画起个mujica的名字，广告放一大堆，结果一会ccc一会春日影，这不是骗人嘛
+
+*****
+
+####  adretyu67.  
+##### 29543#       发表于 2025-2-25 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516910&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-25 22:01</a>
+
+小姨说就是今天剧透吧</blockquote>
+小姨说很早就有了，真假未知。
+
+*****
+
+####  楠城旧篱  
+##### 29544#       发表于 2025-2-25 22:02
+
+<blockquote>wangh 发表于 2025-2-25 22:01
+第八集最炸裂的莫睦大活也没人透出来啊，我觉得舅舅的剧透其实就和wsd的下集预告差不多的东西吧 ...</blockquote>
+大胆点，都是炒作的一环
+
+*****
+
+####  Versedust  
+##### 29545#       发表于 2025-2-25 22:02
+
+剧透+舅舅言论=小姨
+
+*****
+
+####  南宮凝香  
+##### 29546#       发表于 2025-2-25 22:02
+
+戲中戲結局吧
+
+第十三話完結前
+
+祥子拍拍手
+
+‘大家喜歡我們母雞卡的世界觀嗎？ 接下來就是演奏的時間Desuwa’
+
+*****
+
+####  Raven314  
+##### 29547#       发表于 2025-2-25 22:03
+
+母鸡卡就是奔着五人都有阴暗面和全员恶人的方向塑造的，就是一丘之貉呗
+关键是能不能写好问题不只是剧情还有情绪调动，虽然第七集柿本翻车了
+所以后期观众很难抱有希望<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 29548#       发表于 2025-2-25 22:03
+
+这展开不挺爽吗？初华这暗面就是既意料之中又喜闻乐见的病娇女同塑造啊，nga到底在滑什么？他们到底觉得初华该怎么写？
+
+*****
+
+####  ape-apple  
+##### 29549#       发表于 2025-2-25 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516679&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-25 21:39</a>
+
+青木的重心在少女歌剧，她可是响社自家人，20年开始就是新一代的一番位
+
+至于李子，有主唱位置就会有资源 ...</blockquote>
+有饭吃和wsd安排她们配角色是俩概念，本来邦系逆输入就很正常，有点大人的考虑也合理
+
+*****
+
+####  天空塔书记官  
+##### 29550#       发表于 2025-2-25 22:04
+
+往好处想，灯唱CCC的歌难听，唱迷子的歌不就更好听了吗，这就是反差啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 29551#       发表于 2025-2-25 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67516920&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-25 22:01</a>
+
+小姨说很早就有了，真假未知。</blockquote>
+是说今天剧透其实没新鲜东西，这些爆点也之前就爆了
+
+百综楼之前小姨CP脑洞不少，但是今天舅舅又爆料确认一遍就为啥反而都大喊大叫了233
+
+*****
+
+####  adretyu67.  
+##### 29552#       发表于 2025-2-25 22:04
+
+初华主要是重力级发言，所以独占欲挺正常的。
+
+结果被摁着头下线3话最后回来最后还是独占欲收尾就有点大的就这吗
+
+*****
+
+####  Versedust  
+##### 29553#       发表于 2025-2-25 22:05
+
+nga不是在滑小姨和狗血家族戏吗
+
+现在单人物已经无所谓了 动画整体要崩塌了
+
