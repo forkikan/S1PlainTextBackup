@@ -14169,3 +14169,49 @@ mygo 第2话:</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 29297#       发表于 2025-2-25 12:02
+
+<blockquote>草化木 发表于 2025-2-25 11:41
+喵梦代言都混上了，还没把那套罗兰11k给换掉，可能是在说明她根本就没在打鼓了。 ...</blockquote>
+马上要重组了，必须一直练习不辍才是。她本来就是内务比较省的那种，居家服是纯色保守款，跟她出街的露肩款反差很大
+
+*****
+
+####  未来起航  
+##### 29298#       发表于 2025-2-25 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510525&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-2-25 10:29</a>
+其实我觉得mujica这次烂炒观感这么差有另一个重大的原因就是对于这种多角色、人物自身信息和关系性相对复杂 ...</blockquote>
+它双重人格花了多少时间，做出来的是什么效果？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大莫疯狂上蹿下跳，结果台词惊人得刻板，除了祥子吃史和戏精上身再没别的。
+有这神仙台词功底，给他26集都白搭
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  与太郎  
+##### 29299#       发表于 2025-2-25 12:06
+
+mujica剧中剧外有一个优势是确定的，就是成员实力强
+
+我看睿站那个鼓手解析，喵梦实力和虹夏不相伯仲
+
+但是虹夏是假的，茜老师的实力是真的
+
+*****
+
+####  zhzij111  
+##### 29300#       发表于 2025-2-25 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511299&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-25 11:52</a>
+太变态了，wsd要不明天宣布这个初华是男的吧，保证热度爆炸
+
+—— 来自 S1Fun ...</blockquote>
+金毛大舔狗全靠t0级的脸和身材顶住风评，变成男的真成丁真舔狗了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
