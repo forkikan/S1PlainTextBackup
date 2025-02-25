@@ -2238,3 +2238,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 马克一下，剧情有没有JRPG嗯刻板印象比如三鹿啥的？
 
+
+*****
+
+####  JamesDrapor  
+##### 193#       发表于 2025-2-25 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511879&amp;ptid=2246453" target="_blank">monikaca 发表于 2025-2-25 12:49</a>
+
+马克一下，剧情有没有JRPG嗯刻板印象比如三鹿啥的？</blockquote>
+不明显，但魂味儿倒是足足的。废墟世界观，有很多人想搞点事情但是都搞砸了
+
