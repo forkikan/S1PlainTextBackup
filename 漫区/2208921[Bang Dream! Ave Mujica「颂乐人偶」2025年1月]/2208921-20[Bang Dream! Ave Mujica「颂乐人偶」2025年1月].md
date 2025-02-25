@@ -17365,3 +17365,54 @@ Soyo不是亲女儿待遇？跟鸡这五条路边根本不是一个等级<img sr
 只能说看了眼国内一批编剧 ...</blockquote>
 国内近年也有关于文艺保守化的讨论，研究的样本正好是几十年来的各个版本的哪吒，一版比一版更孝，但又是成功的商业片。就，顺从<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 29597#       发表于 2025-2-25 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517336&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-25 22:34</a>
+
+13集能开一整集的live吗 11人4团</blockquote>
+ccc要还是春日影那还是免了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 29598#       发表于 2025-2-25 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517306&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-25 22:31</a>
+Soyo不是亲女儿待遇？跟鸡这五条路边根本不是一个等级</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好恶榜和谷子价格完全不是这回事吧（）
+
+*****
+
+####  adretyu67.  
+##### 29599#       发表于 2025-2-25 22:38
+
+13话就算对邦，我最担心的场下坐谁。
+
+狗动画里老团基本都来秀了脸表达狗团你办事我放心。
+
+鸡动画目前就一个layer住大喵隔壁，倒是台下谁来鼓掌？
+
+*****
+
+####  指南アキラ  
+##### 29600#       发表于 2025-2-25 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517029&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-25 22:10</a>
+
+因为机翻原因吧，日语原文的害意被翻译成加害之意 
+
+这样翻译好像初华气的要上去动手打人一样，但是也能 ...</blockquote>
+别相信她的话，这段两边对话应该单独看
+
+<img src="https://img.saraba1st.com/forum/202502/25/223511db3mydk3bgqtsmvt.jpg" referrerpolicy="no-referrer">
+
+<strong>森美奈美失医.jpg</strong> (627.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 22:35 上传
+
