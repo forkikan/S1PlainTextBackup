@@ -915,3 +915,23 @@ PS5版分数的确需要高一点，索尼这么卖力宣发，本来平台多�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jf8350143  
+##### 96#       发表于 2025-2-25 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67508662&amp;ptid=2247027" target="_blank">Gigax 发表于 2025-2-24 23:35</a>
+几个评论区扫了一眼，怪不到30只，解禁怪没装备</blockquote>
+解禁怪没装备就没装备吧，世界到曙光连着四个解禁怪只有弟弟龙打起来稍微舒服点的，剩下体验都是一坨，不想重复刷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  巨馍蘸酱  
+##### 97#       发表于 2025-2-25 08:35
+
+不懂泡壶这种怪到底有任何分段更新的必要
+
