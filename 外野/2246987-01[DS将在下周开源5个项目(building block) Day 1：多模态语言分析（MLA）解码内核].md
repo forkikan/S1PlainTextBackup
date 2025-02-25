@@ -808,3 +808,11 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 什么时候能更新封装到个人部署里</blockquote>
 你说的更新封装个人部署是什么意思，如果是指本地跑模型的话，现在买个16G的mac mini下个ollama就行了的，但是这东西对个人用户最大的瓶颈是硬件，就算DS再怎么魔法，也不可能优化到你一般民用硬件能给你跑个671B的全量模型，倒不如期待像是摩尔线程这些能来个大新闻啥的更加实际了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lewismain  
+##### 71#       发表于 2025-2-25 16:04
+
+这下真是手把手教你做推理了
+

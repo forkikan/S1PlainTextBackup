@@ -76,3 +76,27 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1390#         楼主| 发表于 2025-2-25 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511944&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-2-25 12:57</a>
+
+几个无属性的boss都没看到变属性的debuff只能硬啃。今天发现居然还有lv300的无属性……
+
+另外岛田居然又为 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/25/161326n6z0v09g80k85chq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250225161321.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 16:13 上传
+
+不一定是靠BOSS点，这鬼格子我还见过隐藏了的。
+
+话说，双子复刻，要来双子的ST了？万恶的双UP？
+
