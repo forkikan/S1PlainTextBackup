@@ -2033,3 +2033,16 @@ khara的第一部TV吧 (?)
 北美这边抠死了，imax就一天，什么特典都没有<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 27号准备带水魔世代小登一起去看
 
+
+*****
+
+####  zksandy  
+##### 7568#       发表于 2025-2-25 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511500&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-2-25 12:11</a>
+
+北美这边抠死了，imax就一天，什么特典都没有
+
+27号准备带水魔世代小登一起去看 ...</blockquote>
+我这边AMC还没IMAX……不过电影院第一次看日语+英文字幕的，不知道反应的过来不
+

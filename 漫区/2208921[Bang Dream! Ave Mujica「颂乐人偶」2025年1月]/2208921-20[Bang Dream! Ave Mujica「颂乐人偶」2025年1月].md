@@ -14231,3 +14231,54 @@ mujica剧中剧外有一个优势是确定的，就是成员实力强
 
 2025-2-25 12:13 上传
 
+
+*****
+
+####  shqingda_  
+##### 29302#       发表于 2025-2-25 12:20
+
+初华这手机怕不是15u，等着周四发布联名版（不是
+
+*****
+
+####  与太郎  
+##### 29303#       发表于 2025-2-25 12:20
+
+ 本帖最后由 与太郎 于 2025-2-25 12:21 编辑 
+
+哦，发错楼了我去
+
+*****
+
+####  Versedust  
+##### 29304#       发表于 2025-2-25 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67511052&amp;ptid=2208921" target="_blank">mono 发表于 2025-2-25 11:27</a>
+初华闻味找到了几个月前羽泽咖啡厅祥子坐过的位置 
+
+mygo 第2话:</blockquote>
+路人不会是同一个吧，发色和衣服一模一样
+
+
+*****
+
+####  zhoujin8584  
+##### 29305#       发表于 2025-2-25 12:25
+
+预告文本翻译
+
+<img src="https://img.saraba1st.com/forum/202502/25/122454za64pspsz74snta7.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-1ux0KqT3cSsa-56.jpg</strong> (25.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-25 12:24 上传
+
+*****
+
+####  wwwttth  
+##### 29306#       发表于 2025-2-25 12:25
+
+话说有啥超级英雄设定是嗅觉特别好的
+
