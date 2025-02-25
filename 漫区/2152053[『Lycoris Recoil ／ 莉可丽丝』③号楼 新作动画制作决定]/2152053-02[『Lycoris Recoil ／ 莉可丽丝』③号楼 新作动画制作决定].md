@@ -111,3 +111,11 @@
 
 AI黑白图一方面风格不像彩图那么明显，另一方面数量少，我不太认得出来
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2080#       发表于 2025-2-25 23:00
+
+大香蕉天天在群里搬ai图，我称之为ai领域大神<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

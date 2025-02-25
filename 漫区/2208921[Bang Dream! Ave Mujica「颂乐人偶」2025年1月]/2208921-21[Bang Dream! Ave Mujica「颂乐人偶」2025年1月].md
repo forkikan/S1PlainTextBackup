@@ -170,3 +170,132 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 29618#       发表于 2025-2-25 22:56
+
+ 本帖最后由 adretyu67. 于 2025-2-25 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517591&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-25 22:54</a>
+
+乌米铃和大喵在炸团的时候已经对大祥没有好印象了，对满脑子大祥的初华当然没有好感
+
+所以限定版ccc白祥有把 ...</blockquote>
+不要急，等祥子后悔莫及去追初华。
+
+事实证明，舔狗舔到最后一无所有是真理
+
+*****
+
+####  plusSharp  
+##### 29619#       发表于 2025-2-25 22:56
+
+<blockquote>北条早苗 发表于 2025-2-25 22:54
+乌米铃和大喵在炸团的时候已经对大祥没有好印象了，对满脑子大祥的初华当然没有好感
+
+所以限定版ccc白祥有把 ...</blockquote>
+好像没有祥子拉黑初华的描述，应该只是单纯没回复，不过soyo恐怕是还在祥子黑名单里
+
+*****
+
+####  ape-apple  
+##### 29620#       发表于 2025-2-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517451&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-25 22:43</a>
+
+然后我补充一点观点就是，你把母鸡卡和mygo的大纲丢给国内和独角兽一个作品量级的系构和游戏编剧主文案， ...</blockquote>
+日本人越来越写不了大剧情，这一点倒是根本不用质疑，所以任何妄图在盘子上建城堡的行为最后都失败了，很不幸，mujica就是
+
+*****
+
+####  595505568  
+##### 29621#       发表于 2025-2-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517591&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-25 22:54</a>
+乌米铃和大喵在炸团的时候已经对大祥没有好印象了，对满脑子大祥的初华当然没有好感
+所以限定版ccc白祥有把 ...</blockquote>
+素世：等等，我的拉黑解除了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 29622#       发表于 2025-2-25 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517621&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-25 22:56</a>
+日本人越来越写不了大剧情，这一点倒是根本不用质疑，所以任何妄图在盘子上建城堡的行为最后都失败了，很 ...</blockquote>
+同意，只能说不幸<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，浪费题材和努力的三次元乐队成员的付出了，广告都能打成这样也没谁了
+
+*****
+
+####  LeonsCat  
+##### 29623#       发表于 2025-2-25 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517339&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-25 22:34</a>
+
+国内近年也有关于文艺保守化的讨论，研究的样本正好是几十年来的各个版本的哪吒，一版比一版更孝，但又是 ...</blockquote>
+那是因为早期出了个哪吒闹海的异类，现在不过是均值回归。
+
+哪吒闹海这玩意又是啥呢，本质上粉碎三公一母的政宣片，但是又是华老时期所以也算嗡嗡嗡余波，这个加起来放到现在，甚至放到除了52-79以外上下五千年都属于异类。
+
+*****
+
+####  老贝  
+##### 29624#       发表于 2025-2-25 23:00
+
+Mujica已经不是广告都能打成这样，而是为什么如此刻意的把广告做成这样了。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 29625#       发表于 2025-2-25 23:02
+
+不如说做了一年做了个啥出来。
+
+俺寻思之前bangTV和mygo都没这么神经啊
+
+搞到现在我都觉得13话大live下面坐谁来祝福都成问题了。
+
+*****
+
+####  天空塔书记官  
+##### 29626#       发表于 2025-2-25 23:02
+
+因为爆爆爆才会有人看
+
+互联网时代，流量为王，不管最后活不活，先整了活再说
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 29627#       发表于 2025-2-25 23:04
+
+俗爛不是問題
+
+問題是母雞卡是曲高和寡的俗爛
+
+全世界的觀眾可能只有制作組裡的幾個人覺得這是好活
+
+*****
+
+####  阿兹尔  
+##### 29628#       发表于 2025-2-25 23:04
+
+怪不得睦和初华愿意以身入局帮助祥子，都这样了，把家产都给了估计也不会犹豫
+
+*****
+
+####  595505568  
+##### 29629#       发表于 2025-2-25 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67517708&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-25 23:04</a>
+俗爛不是問題
+
+問題是母雞卡是曲高和寡的俗爛</blockquote>
+这能用曲高和寡来形容吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，骇人听闻吧（
+
