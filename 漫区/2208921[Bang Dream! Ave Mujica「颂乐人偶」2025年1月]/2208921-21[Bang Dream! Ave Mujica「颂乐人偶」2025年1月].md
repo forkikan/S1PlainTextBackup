@@ -1097,3 +1097,44 @@ mygo角色都很少出现这种抽了白抽的情况，甚至ccc复辟也只有s
 
  是个用来骗其他观众触发PTSD的关键词，能骗到人就是很爽的，所以假舅舅假剧透那么多
 
+
+*****
+
+####  bbjajdd  
+##### 29701#       发表于 2025-2-26 07:30
+
+<img src="https://img.saraba1st.com/forum/202502/26/072921xx6bdxfb6b3ekgbk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028645.jpg</strong> (120.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 07:29 上传
+
+是的，这就是我们ave mujica的访谈
+
+终于上了杂志封面，标题/乐队名都打在上面了，这两位一定都是乐队成员吧
+
+ 三人访谈里不配上封面的那位如果不是路人，应该就是专门为了衬托这两位的垫子吧
+
+*****
+
+####  是谁的书画  
+##### 29702#       发表于 2025-2-26 07:31
+
+这片子真是越看越神，越看越有，太带派了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 29703#       发表于 2025-2-26 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518907&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-26 03:53</a>
+对的，我不太明白🐘她们和姥爷有矛盾吗，“斗财阀”是啥233
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+斗财阀是这些大赤老师作品看多了的ptsd。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
