@@ -2680,3 +2680,44 @@ https://www.bilibili.com/video/BV1LvPie8Ewv/
 
 2025-2-26 14:42 上传
 
+
+*****
+
+####  answer23  
+##### 29836#       发表于 2025-2-26 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521423&amp;ptid=2208921" target="_blank">Lawliet.L 发表于 2025-2-26 12:06</a>
+
+M和A的风格差别太大了，难以理解做成双生企划的理由，难道是在执行过程中大改？ ...</blockquote>
+睦头人格分裂是后期加的设定<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 29837#       发表于 2025-2-26 14:49
+
+若叶睦是那团黑影啊。
+
+莫（人偶）吞噬吉他睦时变形而成的东西，
+
+吉他睦发表“不需要”发言时背后的黑影
+
+那个是更倾向于生物自我保护的潜意识，也就是多头的怪兽。
+
+作为潜意识肯定是混沌无序的。
+
+
+*****
+
+####  yuryskov  
+##### 29838#       发表于 2025-2-26 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522527&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 14:17</a>
+
+雖然我們看姛
+
+但我們不是真正的彩虹屁</blockquote>
+姛三人行也算多元么？至少嬲或者嫐才算吧
+
+而且姛本身就是彩虹的一部分了
+
