@@ -4243,3 +4243,34 @@ mggm不吃鸡蛋我是不信的
 刚洗澡的时候想了想，鸡狗完全就够改头换面的（东）京圈格格故事，王健林孙女跟姜文女儿从小一起玩，后来又 ...</blockquote>
 八点档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，早说了八点档，换皮二次元罢了，不过说实话，偶像动画走向八点档也不是啥奇怪情况吧（
 
+
+*****
+
+####  岬开斗  
+##### 29980#       发表于 2025-2-26 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525827&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 21:48</a>
+刚洗澡的时候想了想，鸡狗完全就够改头换面的（东）京圈格格故事，王健林孙女跟姜文女儿从小一起玩，后来又 ...</blockquote>
+这下就能理解为啥一个月能去工体开演唱会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过喵梦为啥敢台上摘面具就更迷了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 29981#       发表于 2025-2-26 22:00
+
+蜜柑这是被要求拍照不能笑吗
+
+*****
+
+####  南宮凝香  
+##### 29982#       发表于 2025-2-26 22:03
+
+羊姐念經比唱歌好聽
+
+對我來說， 我要聽抒情慢歌我為什麼不去聽主流音樂
+
+小眾音樂講究的就是力度
+

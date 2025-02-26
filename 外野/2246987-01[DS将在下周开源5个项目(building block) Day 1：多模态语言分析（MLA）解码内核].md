@@ -956,3 +956,32 @@ DeepGEMM里面有个细节，ds发 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FeteFete  
+##### 84#       发表于 2025-2-26 22:00
+
+ JIT compiled FP8 kernels
+
+这个不知道是不是和Hooper架构强绑定
+
+如果不是可以拿来移植很多地方，比如我现在正在写的东西
+
+*****
+
+####  FeteFete  
+##### 85#       发表于 2025-2-26 22:02
+
+LyricZhao
+
+7 hours ago
+
+Collaborator
+
+I'm not sure whether it is hard to add other arch-support and maximize the performance. We may release new version if we get some other arch support, also, open-source community PRs are welcomed.
+
+看了一下开发者回复，好吧，没有arch-support 
+
+我还想白嫖pr呢
+
