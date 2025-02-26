@@ -867,3 +867,29 @@ deepgemm 也很强，这帮人完全可以 自己做驱动了
 —— 来自 鹅球 v3.3.96</blockquote>
 一眼DS
 
+
+*****
+
+####  moekyo  
+##### 77#         楼主| 发表于 2025-2-26 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525269&amp;ptid=2246987" target="_blank">cube 发表于 2025-2-26 20:25</a>
+
+英伟达股票上周好不容易回到140，真就被连续三天打回126了。</blockquote>
+在国产EUV出来之前，皮衣还能爽，只能说，我国科研人员还是得加油，这个才是绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moekyo  
+##### 78#         楼主| 发表于 2025-2-26 21:18
+
+其实今天和昨天的我很好奇，我点进去看代码，虽然看不懂，但是起码可以明确的是，代码行数的是不多的，昨天还看到这个，真的就只有DS这帮人花时间花精力去读文档和验证了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/26/211708ka5vegvbikeka793.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (358.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 21:17 上传
+
