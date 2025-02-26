@@ -2346,3 +2346,54 @@ mygo最立体的灯爱素，在两季动画都是集集几乎全勤
 
 这么说来，其实avemujica真正应该挖掘的是三角初华，她也有一个同学，又是业内人士可以随便编和喵梦的交情，外在形象也是个和蔼可亲大姐姐伪阳角。但初华被上了一个糟糕的看几条短信看一年的人设，又疑似藏着小姨这种大的，没法去当主角了。
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 29808#       发表于 2025-2-26 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522221&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-26 13:41</a>
+
+爱灯是同学，灯素是旧队友，关系好可以和组乐队螺旋上升，乐队崩了也可以继续演绎，很有描写空间。爱素还 ...</blockquote>
+金毛认识鸡团4人,狗团3人,外部还有个甜甜圈,多达8人的人际关系,愣是被编剧全砍光了,唱弹词曲的豪华配置完全没在剧中体现过,感觉像个政斗失败的废太子,从主角位一脚踹到路边<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryuusu  
+##### 29809#       发表于 2025-2-26 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522145&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-26 13:31</a>
+
+只能说不要看到处都在说斗老登，就觉得真的会斗老登，邦多利里的家长基本起到一个背景的作用，在开局的时候 ...</blockquote>
+鸡狗双亲存在感有点高<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">，10个人现在就喵初希家长没露面
+
+*****
+
+####  sauron.j  
+##### 29810#       发表于 2025-2-26 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521739&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-26 12:43</a>
+
+这两季动画叫ccc第一季第二季才没毛病
+
+在mygo里c团还算引子，留到mujica里就积重难返，但是在人物塑造和捧c ...</blockquote>
+没毛病，这两部片的创作思路就是一个普通jk乐队难产而死生下了两只怪物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 29811#       发表于 2025-2-26 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522287&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-2-26 13:49</a>
+
+金毛认识鸡团4人,狗团3人,外部还有个甜甜圈,多达8人的人际关系,愣是被编剧全砍光了,唱弹词曲的豪华配置完 ...</blockquote>
+我很难想象一个几条短信看一年，不行动的主角，该怎么拍。最关键三角初华为啥喜欢祥子还不能说，人物动机都不敢说的主角，也很难让观众共鸣。
+
+*****
+
+####  kooler2002  
+##### 29812#       发表于 2025-2-26 13:53
+
+我有个问题，为什么你们角色厨CP是两两配对，不能三人行的吗？
+

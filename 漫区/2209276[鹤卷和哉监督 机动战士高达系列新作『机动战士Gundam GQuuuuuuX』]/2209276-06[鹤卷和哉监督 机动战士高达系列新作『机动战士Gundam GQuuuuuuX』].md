@@ -2799,3 +2799,28 @@ MAV的灵感果然是阿姆罗和拉拉吗……
 <img src="https://p.sda1.dev/22/406c1d7273b921dcd6f0738ddded6c31/image.jpg" referrerpolicy="no-referrer">
 尼娅安和修司的姿势类似图下部石柱上的人物
 
+
+*****
+
+####  Gaybird  
+##### 7634#       发表于 2025-2-26 13:49
+
+0079的画风现在看也没有那么惨不忍睹吧
+先不提安彦还在的时候，安彦的画工简直是天神下凡级别<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+安彦不在的时候板野一郎也开始发力了，还有我很喜欢的中村一夫作监画的也很好
+除非你单独把作画崩坏剪出来，总体是感受不到很突出的崩坏（除了盾达）更多的是穷
+
+画面上来说劝退的点，我只能想到“大部分时间没有阴影”和“大量兼用卡”这两点
+而且0079的前期剧情很紧张，每一集都在打，新人很可能注意力被剧情拉走了
+至少我带入坑的小登是这么说的！看完前几集之后突然感受不到这是昭和动画
+
+*****
+
+####  Dr.Wondering  
+##### 7635#       发表于 2025-2-26 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522067&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-26 13:19</a>
+
+阿扎</blockquote>
+这怎么和az扯上关系的？az双男主不都对公主没多大感情，甚至互相之间也没擦出啥火花连轻bl都很难说得上
+
