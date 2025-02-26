@@ -2397,3 +2397,60 @@ mygo最立体的灯爱素，在两季动画都是集集几乎全勤
 
 我有个问题，为什么你们角色厨CP是两两配对，不能三人行的吗？
 
+
+*****
+
+####  zhoujin8584  
+##### 29813#       发表于 2025-2-26 14:03
+
+奇怪的漏油们，仿佛没有看过第三集，通过吉他找到了终于属于自己的东西同时排斥来自父母的天赋、光环，这些不都是写明白的东西么
+
+*****
+
+####  yuryskov  
+##### 29814#       发表于 2025-2-26 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522326&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-26 13:53</a>
+
+我有个问题，为什么你们角色厨CP是两两配对，不能三人行的吗？</blockquote>
+三人行要到爱生活去，大部分人还是被重力束缚的灵魂
+
+*****
+
+####  大丈夫萌大乃  
+##### 29815#       发表于 2025-2-26 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522324&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-26 13:53</a>
+
+我很难想象一个几条短信看一年，不行动的主角，该怎么拍。最关键三角初华为啥喜欢祥子还不能说，人物动机 ...</blockquote>
+其实可以解释为金毛把短信当成激励自己的动力,并不完全是出于对大象的星宇,然而编剧就是设定为星宇还不让金毛行动要藏到最后,不然金毛动起来可能影响已经定好的4集炸团7集CCC莱芙,终究还是编剧水平不行的牺牲品,可怜李子天天串还有两集工资都没领到<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 29816#       发表于 2025-2-26 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522043&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 13:16</a>
+職業樂隊拍職業事務很正常
+
+復刻2P 鬥事務所也沒有說不行的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直觉得大喵被美奈美用无法拒绝的对价收买，然后试探之后昧良心帮着拆队都比现在好看；初华要是能有一部临时的预缴费手机用来和丰川本家联系，纠结中无奈为了祥子更好的幸福背叛祥子，最后在滨海步行道旁边敲栏杆和金毛哭；因为知道了睦知情后崩溃和初华是内鬼，祥子突然万念俱灰。然后你再拉go团进来，祥子绝望中想放弃，最后跟她说睦想要继续下去后，想办法对线爷爷找到答案，回头借本家压力若叶家，把已经恢复到边界的睦和叛逃喵梦抓回来，让喵梦服苦役（） 海铃不可知否，知情不报，被立希点破后陷入纠结，然后全盘托出过去黑历史，祥子许诺让她当二把手，最后集结起来，再赶去小岛把自己破防好久的初华用“我要背负你的人生”的二度许诺拉回来。
+这个剧情应该不会太差吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在这个剧本太多刻意了
+
+*****
+
+####  kooler2002  
+##### 29817#       发表于 2025-2-26 14:04
+
+<blockquote>yuryskov 发表于 2025-2-26 14:03
+三人行要到爱生活去，大部分人还是被重力束缚的灵魂</blockquote>
+因为隔壁NGA那个打字舅说后面可能有3人CP。。。
+
+*****
+
+####  595505568  
+##### 29818#       发表于 2025-2-26 14:06
+
+甚至按照我的大纲预想，姥爷讨厌乐队，因为祥爹以前玩乐队骗祥子妈妈团团转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，姥爷进一步因为爱女去世叠加，爱恨扭曲了也是比较王道的写法，为什么不稳妥一点写成这样也很奇怪（
+
