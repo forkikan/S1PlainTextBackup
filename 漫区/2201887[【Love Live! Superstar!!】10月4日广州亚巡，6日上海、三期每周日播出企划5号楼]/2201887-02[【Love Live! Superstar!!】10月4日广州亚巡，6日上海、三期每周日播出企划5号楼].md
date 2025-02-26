@@ -186,3 +186,15 @@ LoveLive! Days 2025年4月号封面：五团横滨公演
 —— 来自 鹅球 v3.3.96</blockquote>
 草，罪过，忘了还有个莲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莲后面才是青鸟团
 
+
+*****
+
+####  ads147147  
+##### 1517#       发表于 2025-2-26 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513303&amp;ptid=2201887" target="_blank">ViyViy 发表于 2025-2-25 15:43</a>
+2C老师的插画集，后面有机会再补画的话冬逑的手应该牵着的就是青鸟团的leader了（忘了后面还有莲）</blockquote>
+好像不是严格按照角色编号顺序排列的，一开始还以为是按编号顺序。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
