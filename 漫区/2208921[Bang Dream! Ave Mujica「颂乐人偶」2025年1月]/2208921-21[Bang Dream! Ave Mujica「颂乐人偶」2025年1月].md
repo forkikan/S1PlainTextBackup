@@ -2891,3 +2891,45 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 海喵:她们仨同居了?我们乐队的工作需要这么紧密吗？
 
+
+*****
+
+####  小博禹  
+##### 29853#       发表于 2025-2-26 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523225&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-26 15:43</a>
+海喵:她们仨同居了?我们乐队的工作需要这么紧密吗？</blockquote>
+少女乐队是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 29854#       发表于 2025-2-26 15:52
+
+继老登是纯的之后，美奈美也是纯的了吗
+
+*****
+
+####  ntrntr1  
+##### 29855#       发表于 2025-2-26 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523206&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-2-26 15:39</a>
+
+不如这么编，初华是丰川老登资助的克隆技术用祥妈基因克隆的114514个克隆个体中比较有自主意识，靠个人奋斗 ...</blockquote>
+绿色头发 失败了会消失  
+
+众多复制体中存在的最优秀的一个 
+
+水星魔女说  
+
+*****
+
+####  是谁的书画  
+##### 29856#       发表于 2025-2-26 15:53
+
+在初华心中睦一定是那种又贱又装又pua的绿茶吧，后槽牙别咬太死，智齿会发炎的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
