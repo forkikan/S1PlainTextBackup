@@ -1510,3 +1510,48 @@ ave就完全上太空了
 
 大家可以開押了
 
+
+*****
+
+####  是谁的书画  
+##### 29735#       发表于 2025-2-26 10:15
+
+错误的，其他人我不知道，但大祥可以是所有人的奖杯，唯独不能是爽姐的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 29736#       发表于 2025-2-26 10:18
+
+百合楼正在吉列辱骂🐔对祥子内部恨，我不好说，觉得还是爱的，但是这种爱比恨还可怕，是溺爱，控制欲的爱，pua的爱，现在为止唯一好吃的就是素莫了吧，因为离祥子越远，创作者反而脑子越冷静
+
+*****
+
+####  天空塔书记官  
+##### 29737#       发表于 2025-2-26 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67520145&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-26 10:11</a>
+二三期在当时引起不满的主要原因也是因为固有粉丝
+二期垫ppp
+三期垫萝</blockquote>
+然而事实上却是没垫，第2季垫ppp把RAS垫成了反角，垫出了《Returns》；第三季垫萝，结果前边刚踩了萝，后边楚平方就自爆炸了RAS，这大概就是端水吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  阿兹尔  
+##### 29738#       发表于 2025-2-26 10:20
+
+海铃和喵梦也不错，损友感一直是比较好玩的，比较加分，而且远离各个黑洞
+
+*****
+
+####  是谁的书画  
+##### 29739#       发表于 2025-2-26 10:22
+
+哪里远离黑洞了，我听说有舅透露喵梦暗恋祥子来着，好离谱好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
