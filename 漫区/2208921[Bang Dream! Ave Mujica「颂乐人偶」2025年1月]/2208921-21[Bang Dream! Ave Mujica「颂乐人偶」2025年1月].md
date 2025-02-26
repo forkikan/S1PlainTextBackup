@@ -2933,3 +2933,43 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 29857#       发表于 2025-2-26 15:55
+
+唉，财阀
+
+唉，贵圈
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  K·os  
+##### 29858#       发表于 2025-2-26 15:55
+
+企鹅罐真的能叫讲明白吗，光是那个风格，路人就完全看晕了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ryuusu  
+##### 29859#       发表于 2025-2-26 16:01
+
+话又说回来，如果变态家族戏成真那就是金毛×3份的krkr 只要初妈够美貌温柔还骂什么老登，马上理解祥爷<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 29860#       发表于 2025-2-26 16:02
+
+要是完结后官号宣布，其实一开始我们就拍了两版动画，接下来我们要播导演剪辑解密版，就真的叫大活了
+
+虽然wsd铁定没这魄力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
