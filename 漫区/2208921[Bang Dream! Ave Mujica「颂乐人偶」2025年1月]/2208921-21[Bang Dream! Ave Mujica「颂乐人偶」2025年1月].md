@@ -3130,3 +3130,53 @@ mujica 卒！
 
 要wsd出钱宁愿出钱再烂炒一波<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 29875#       发表于 2025-2-26 16:54
+
+财阀搞个私生子不是正常操作吗，本来就没啥好骂的。倒是小祥初华一个吸引女同，一个病娇女同，祥爷该反思反思自己基因这块是不是出问题了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 29876#       发表于 2025-2-26 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523458&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-26 16:15</a>
+
+小睦就是吉他睦啊第八集只是把吉他睦的前身洋娃娃睦这一点补完了。</blockquote>
+吉他睦是吉他睦，但她这个人设有记忆缺失，就不能尽信。
+
+
+*****
+
+####  adretyu67.  
+##### 29877#       发表于 2025-2-26 17:00
+
+ 本帖最后由 adretyu67. 于 2025-2-26 17:02 编辑 
+
+怪女同不是世界观就这样吗，老登也没办法啊。
+
+*****
+
+####  zhoujin8584  
+##### 29878#       发表于 2025-2-26 17:03
+
+初祥龙族说，三角初华原本就是家族为丰川祥子准备的新娘<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29879#       发表于 2025-2-26 17:03
+
+搞女铜不比私生子阴谋夺权好
+
+bang世界还是太善良了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
