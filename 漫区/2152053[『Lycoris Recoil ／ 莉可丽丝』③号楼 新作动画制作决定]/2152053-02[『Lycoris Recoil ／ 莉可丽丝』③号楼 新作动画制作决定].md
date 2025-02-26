@@ -119,3 +119,13 @@ AI黑白图一方面风格不像彩图那么明显，另一方面数量少，我
 
 大香蕉天天在群里搬ai图，我称之为ai领域大神<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 2081#       发表于 2025-2-26 19:28
+
+蒜楼这边没人说3.22的AJ嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/14b3d87838762030386791d8f6cb12c6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1260867484fda8b0bd70b65a0cfcc952/image.jpg" referrerpolicy="no-referrer">
+

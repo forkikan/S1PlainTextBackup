@@ -94,3 +94,39 @@
 
 至于上面那个评测对于后半段的体验总结我并不完全认可，当然具体怎么样每个人心里都有杆秤，喜不喜欢玩过才知道，不要听风就是雨。
 
+
+*****
+
+####  空洞骑士  
+##### 105#       发表于 2025-2-26 19:24
+
+妈呀，4:3到16:9最大受害者出现了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202502/26/192034ea3kab0tlr4zar6r.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-02-26_19-19-57.png</strong> (106.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 19:20 上传
+
+*****
+
+####  alucardcz  
+##### 106#       发表于 2025-2-26 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524865&amp;ptid=2208135" target="_blank">空洞骑士 发表于 2025-2-26 19:24</a>
+
+妈呀，4:3到16:9最大受害者出现了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这不是能看到裤子吗（
+
+*****
+
+####  xunit  
+##### 107#       发表于 2025-2-26 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524865&amp;ptid=2208135" target="_blank">空洞骑士 发表于 2025-2-26 19:24</a>
+妈呀，4:3到16:9最大受害者出现了</blockquote>
+其实当年PSP版就是通过暴力裁切从4：3改成了16：9，然后通过摇杆控制裁切范围
+当时在PSP上玩n9，发现画面一直在抖，才知道自己机器的摇杆漂移了
+
