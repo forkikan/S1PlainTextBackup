@@ -4350,3 +4350,11 @@ bangdream的一天都应该有36小时的，可能也没有想象里那么忙
 现在知道海子姐到底给我什么感觉了，就是刻板印象里后海那种两条大花臂，闲下来就抽两口前门的摇滚驻场， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿兹尔  
+##### 29991#       发表于 2025-2-26 22:43
+
+感觉pico4里会有睦被krr黑科技分裂成睦和莫，然后莫跑去go团找soyo乐奈玩的剧情
+

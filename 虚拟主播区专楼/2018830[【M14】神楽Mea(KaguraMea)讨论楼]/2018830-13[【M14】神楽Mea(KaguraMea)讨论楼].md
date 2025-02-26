@@ -3017,3 +3017,23 @@ lol高手（✓）
 
 嘛不管怎么看都有点太离谱了，还是算了（）
 
+
+*****
+
+####  sino__unnko3  
+##### 18118#       发表于 2025-2-26 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524606&amp;ptid=2018830" target="_blank">术士q 发表于 2025-2-26 18:36</a>
+说起来，yuki（結城）（✓）
+lol高手（✓）
+咩桑好朋友（✓）</blockquote>
+她俩当年就是lol廃人
+
+
+*****
+
+####  thisisaspider  
+##### 18119#       发表于 2025-2-26 22:42
+
+真能再炒一世CP吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

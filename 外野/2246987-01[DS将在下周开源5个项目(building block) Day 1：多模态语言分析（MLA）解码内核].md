@@ -1003,3 +1003,61 @@ I'm not sure whether it is hard to add other arch-support and maximize the perfo
 梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
 都是打比赛的竞爷啊，顶级选手有小圈子的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈乔恩  
+##### 88#       发表于 2025-2-26 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526044&amp;ptid=2246987" target="_blank">精钢魔像 发表于 2025-2-26 22:22</a>
+梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
+不如说国内散户的对手盘太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Kanou  
+##### 89#       发表于 2025-2-26 22:38
+
+这个轻量级JIT还是要用nvcc编译成动态库的，kernel是从模板实时生成的
+
+
+*****
+
+####  御坂MKII  
+##### 90#       发表于 2025-2-26 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525828&amp;ptid=2246987" target="_blank">云卷花开 发表于 2025-2-26 21:48</a>
+瞄了一眼，还真是这样干的，我都能想到写这玩意的开发发现这事的时候有多恶心了
+不过比起他们咋干的我更 ...</blockquote>
+infra 扣性能的时候各种路子都会使<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我们考虑可维护性没搞，但是真有公司给 golang 打动态 patch 来针对性的魔改一些适合自己的 goroutine 调度器和内存 allocator 的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AstraZeneca  
+##### 91#       发表于 2025-2-26 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526044&amp;ptid=2246987" target="_blank">精钢魔像 发表于 2025-2-26 22:22</a>
+
+梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
+几亿人里卷信奥赛卷出来的
+
+*****
+
+####  ywj321  
+##### 92#       发表于 2025-2-26 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525785&amp;ptid=2246987" target="_blank">cube 发表于 2025-2-26 21:42</a>
+
+其实说白了，DS 团队这三天发布的都是NVIDIA自己团队应该干的活。
+
+老黄一边吹嘘AI，他手底下的人一边给 ...</blockquote>
+非业内人士的理解：
+
+   等于是DS相当于手机APP，这个APP发现安卓系统的运行问题，就改了安卓系统，让系统性能提升了10%
+
+是不是这样？
+
