@@ -2846,3 +2846,37 @@ MAV的灵感果然是阿姆罗和拉拉吗……
 
 话说明明泥潭有种命灵有革命机灵国家队灵也有水魔灵铁血灵，为啥不存在az灵？
 
+
+*****
+
+####  Lawliet.L  
+##### 7638#       发表于 2025-2-26 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522540&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-2-26 14:18</a>
+
+话说明明泥潭有种命灵有革命机灵国家队灵也有水魔灵铁血灵，为啥不存在az灵？ ...</blockquote>
+AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 7639#       发表于 2025-2-26 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522540&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-2-26 14:18</a>
+
+话说明明泥潭有种命灵有革命机灵国家队灵也有水魔灵铁血灵，为啥不存在az灵？ ...</blockquote>
+现在再看AZ的烂，已经没人zqsg了
+
+某些烂作完结几年后再提到还是有地缚灵气势汹汹出来辩经，
+
+某些烂作完结后一个星期就已经没人再提，仿佛没出现过
+
+前者点名那种事情不要啊，后者......那就多了去了
+
+*****
+
+####  az一串字母  
+##### 7640#       发表于 2025-2-26 14:36
+
+感觉GQ学要兴起了
+

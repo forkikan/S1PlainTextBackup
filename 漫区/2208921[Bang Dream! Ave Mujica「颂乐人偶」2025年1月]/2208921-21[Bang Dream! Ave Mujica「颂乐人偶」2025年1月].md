@@ -2565,3 +2565,52 @@ mygo最立体的灯爱素，在两季动画都是集集几乎全勤
 
 折中式组合，直接祥睦初三人观众接受不了，先放个多头睦进来某些观众就会“只要黄瓜睦回来怎么都行”
 
+
+*****
+
+####  ape-apple  
+##### 29830#       发表于 2025-2-26 14:30
+
+呐，如果你楼最后堕落到一部分人对另一部分人大喊“mujica其实哪里哪里很好，是你们看不懂”，就说明mujica真完了
+
+*****
+
+####  玖羽  
+##### 29831#       发表于 2025-2-26 14:30
+
+[https://www.bilibili.com/video/BV1LvPie8Ewv/](https://www.bilibili.com/video/BV1LvPie8Ewv/)
+
+这个说得不错，第8话的吉他睦是睦的白人偶，Mortis是睦的黑人偶
+
+我觉得可以理解成只有一白(吉他睦)一黑(Mortis)两个人偶，毕竟一千个人偶是不可能被描写的，简化成一白一黑比较容易接受，特别是，如果一个象征正面回忆(但不是好/善)，一个象征负面回忆(但不是坏/恶)，理论上还能把睦这个角色兜回来，并且深度也足够，千万别再玩花活了……
+
+吉他睦
+
+<img src="https://img.saraba1st.com/forum/202502/26/141615pst6yss2oo2cm868.jpg" referrerpolicy="no-referrer">
+
+<strong>871.jpg</strong> (198.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 14:16 上传
+
+主人格
+
+<img src="https://img.saraba1st.com/forum/202502/26/141614lpbb5u6z5qvj6uq4.jpg" referrerpolicy="no-referrer">
+
+<strong>529.jpg</strong> (170.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 14:16 上传
+
+主人格和另外两个人偶
+
+<img src="https://img.saraba1st.com/forum/202502/26/141615gnlp5naiczjk9zil.jpg" referrerpolicy="no-referrer">
+
+<strong>577.jpg</strong> (99.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 14:16 上传
+
