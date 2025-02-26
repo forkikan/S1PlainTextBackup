@@ -3031,3 +3031,33 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 虽然w ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我又幻想了，幻想mujica还有一个导演剪辑版来救场
 
+
+*****
+
+####  zhoujin8584  
+##### 29866#       发表于 2025-2-26 16:15
+
+<blockquote>钦念以忱 发表于 2025-2-26 16:10
+第三集是若叶睦给小睦这个人格编的人设啊，说的小睦从小不善言辞，和睦妈、祥子、Mortis三方的言论矛盾了 ...</blockquote>
+小睦就是吉他睦啊第八集只是把吉他睦的前身洋娃娃睦这一点补完了。
+
+*****
+
+####  K·os  
+##### 29867#       发表于 2025-2-26 16:17
+
+实话实说，到时候和mygo一样出两个总集篇剧场版，那不就是字面意思上的导演剪辑版
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 29868#       发表于 2025-2-26 16:19
+
+那可能性确实很大，毕竟是成熟商法
+
+就是不知道会补谁的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

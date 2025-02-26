@@ -2953,3 +2953,11 @@ AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static
 这叫留白好吧，就像党争作品里不能让男主角内心活动直接被观众看到，不然就没法党争了，到最后再揭露出来 ...</blockquote>
 只能说把az当党争片看的人有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 7648#       发表于 2025-2-26 16:18
+
+AZ这周就要上加料版总集篇剧场版了，看能不能把棺材板儿撬起来换个方向盖吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
