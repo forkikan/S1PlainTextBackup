@@ -3097,3 +3097,36 @@ B站有考据，绫奈大概是在22年底到23年初的时候完成的MyGO第13
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  huxiaopao163  
+##### 29872#       发表于 2025-2-26 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523549&amp;ptid=2208921" target="_blank">号为熊 发表于 2025-2-26 16:25</a>
+
+B站有考据，绫奈大概是在22年底到23年初的时候完成的MyGO第13集脚本，随后转入Mujica以及其他项目
+
+大概推 ...</blockquote>
+13集脚本这属于是每一集的具体细节了吧，故事大纲、核心设定这些应该要更早一些吧
+
+
+*****
+
+####  mye  
+##### 29873#       发表于 2025-2-26 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523368&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-26 16:02</a>
+
+要是完结后官号宣布，其实一开始我们就拍了两版动画，接下来我们要播导演剪辑解密版，就真的叫大活了
+
+虽然w ...</blockquote>
+mujica 卒！
+
+*****
+
+####  Raven314  
+##### 29874#       发表于 2025-2-26 16:41
+
+要wsd出钱宁愿出钱再烂炒一波<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
