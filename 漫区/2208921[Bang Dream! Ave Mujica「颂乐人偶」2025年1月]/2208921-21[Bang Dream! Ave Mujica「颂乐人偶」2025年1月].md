@@ -3344,3 +3344,50 @@ TFT 的圖一樣是接頭霸王
 
 最高的羊突然变成小个子灯，就很诡异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岬开斗  
+##### 29896#       发表于 2025-2-26 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518801&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-26 02:13</a>
+鸡团五人的角色塑造在Mygo完结时就已经初具成形了，然后WSD选择在Mujica直接给睦加了一个(多个)人格再重新 ...</blockquote>
+换个角度想，正是因为MyGO完结时初步成型，所以为了填之后的十三集内容才没活硬整。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  南宮凝香  
+##### 29897#       发表于 2025-2-26 17:43
+
+<img src="https://img.saraba1st.com/forum/202502/26/174128o7ubg27btyypgtac.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5673.jpeg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202502/26/174136tcldhhd09dc0kiid.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5674.webp</strong> (145.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 17:41 上传
+
+如果畫得好一點，
+
+我就要滑坡清算爽姐的嘴角角度問題是不是她沒有團魂了
+
+畫師， 是你守護了Soyo嗎？
+
+*****
+
+####  syndrome2032  
+##### 29898#       发表于 2025-2-26 17:44
+
+爽姐:在mygo从来没有开心过
+
