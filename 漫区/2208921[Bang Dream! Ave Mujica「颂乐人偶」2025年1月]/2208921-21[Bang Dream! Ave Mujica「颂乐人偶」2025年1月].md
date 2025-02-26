@@ -3180,3 +3180,52 @@ bang世界还是太善良了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 29880#       发表于 2025-2-26 17:07
+
+私生子夺权是我最闹不明白的地方。。。。。
+
+不考虑背景板，丰川家合计出场老中小三登+私生子一名。算上双子假药也就5个人。
+
+这家族都快变成纯一脉单传了。又不是N房内斗。
+
+
+*****
+
+####  天空塔书记官  
+##### 29881#       发表于 2025-2-26 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523955&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-26 17:07</a>
+私生子夺权是我最闹不明白的地方。。。。。
+
+不考虑背景板，丰川家合计出场老中小三登+私生子一名。算上双 ...</blockquote>
+我是说岛国文艺作品的大家族内斗的常见剧本，不是指ave<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DeltaStriker  
+##### 29882#       发表于 2025-2-26 17:09
+
+director's cut又不是remake 指望这个救……还是想想手游编剧当不当人比较现实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  岬开斗  
+##### 29883#       发表于 2025-2-26 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523968&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-26 17:08</a>
+我是说岛国文艺作品中大家族内斗的常见剧本，不是指ave
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+bang与金田一联动剧集《丰川家一族》
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
