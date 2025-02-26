@@ -1649,3 +1649,34 @@ nga昨晚上就从一个害意发散到初华对睦灯有杀意，甚至÷字辈
 
 初次的歌 比 初次的花 適合樂隊多了
 
+
+*****
+
+####  厚乳果珍爽  
+##### 29749#       发表于 2025-2-26 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519756&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-26 09:34</a>
+
+我再想了下，有点理解为啥祥爹能被骗168e了。
+
+这真是遗传。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得第一集里有个伏笔，翔妈说的：你的真诚是一种美德。
+
+翔爹包饺子估计就是从这里来的吧。
+
+*****
+
+####  一心而用  
+##### 29750#       发表于 2025-2-26 11:24
+
+weibo：陌麓stranger
+
+<img src="https://p.sda1.dev/22/e2ef886e013c47fb81984c350dffa515/006raim1gy1hyr8xgcel1j31qf2bwqsp.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e63cd15192ac3cf68099285280fc1684/006raim1gy1hyvy6qkv1cj31nq2cbwva.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/722367e03507813f9420413f9f2920d9/006raim1gy1hyvy6t3soqj31nq2cb4qp.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/68410b1e46951f41cfa017b460df173a/006raim1gy1hyvy6tuyotj31nq2cbnfi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/526aee203281843462559abae5cc80d2/006raim1gy1hyx86aywlkj31nq2cb474.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a343a6b698cf5960f7891ad45d3cdd31/006raim1gy1hyx86bu8t1j31nq2cbkep.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b05031ea6c60cc9dfa59a69f700dd5b3/006raim1gy1hyx86etqtyj31nq2cbqgj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d3d23839e51dcc1ce853e0c5b651331e/006raim1gy1hyx86fm8sgj31nq2cb4f5.jpg" referrerpolicy="no-referrer">
+
