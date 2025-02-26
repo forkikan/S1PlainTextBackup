@@ -4358,3 +4358,13 @@ bangdream的一天都应该有36小时的，可能也没有想象里那么忙
 
 感觉pico4里会有睦被krr黑科技分裂成睦和莫，然后莫跑去go团找soyo乐奈玩的剧情
 
+
+*****
+
+####  DeltaStriker  
+##### 29992#       发表于 2025-2-26 22:55
+
+mygo传奇第7人Mortis是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
