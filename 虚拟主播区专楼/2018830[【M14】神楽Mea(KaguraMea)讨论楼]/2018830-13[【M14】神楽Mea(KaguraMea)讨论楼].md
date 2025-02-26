@@ -2866,3 +2866,17 @@ rank里面只剩野兔子
 <img src="https://p.sda1.dev/22/f632a2449c34769775653de570623a55/image.jpg" referrerpolicy="no-referrer">
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  往世雷书  
+##### 18104#       发表于 2025-2-26 09:08
+
+<blockquote>术士q 发表于 2025-2-25 23:29
+内心平静不下来。
+
+急也没用，先睡觉吧。
+
+这样会是这边的结局吗?连最后的一点幻梦都做不得?</blockquote>
+至于吗，你是新粉吗，这种屁大的事也能喘不过气
+
