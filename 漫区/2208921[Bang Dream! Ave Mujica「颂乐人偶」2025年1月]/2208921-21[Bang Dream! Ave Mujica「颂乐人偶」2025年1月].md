@@ -2828,3 +2828,66 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 2025-2-26 15:25 上传
 
+
+*****
+
+####  玖羽  
+##### 29847#       发表于 2025-2-26 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523048&amp;ptid=2208921" target="_blank">沉默的苍穹基 发表于 2025-2-26 15:21</a>
+
+显然这种朴实王道展开不符合最狂二字</blockquote>
+企鹅罐的夏芽家跟这一模一样，外祖父都是一代建立帝国的刻板印象老资本家，都是看不上女婿把女婿赶走
+
+外孙女都是向着父亲，跟外祖父敌对，但是在这个过程中不知不觉地越来越被异化，越来越像外祖父
+
+叙事水准全方位比这个高，只用一话讲得明明白白，深度更是远超，甚至还全程搞笑
+
+*****
+
+####  ntrntr1  
+##### 29848#       发表于 2025-2-26 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫莫能加入这个家吗
+
+算了，你们三个把日子过得好好的比什么都重要。。。
+
+*****
+
+####  595505568  
+##### 29849#       发表于 2025-2-26 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523048&amp;ptid=2208921" target="_blank">沉默的苍穹基 发表于 2025-2-26 15:21</a>
+显然这种朴实王道展开不符合最狂二字</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按部就班都做不到就不要狂奔了（）
+你2Lz都跳不出来就要跳3A？wsd疯了我疯了（
+
+*****
+
+####  huxiaopao163  
+##### 29850#       发表于 2025-2-26 15:39
+
+看到个高清地铁cm图
+结合昨天的杂志图透，中间那个暴怒颜应该就是对睦和灯有敌意的状态吧，也符合杂志图透里夜晚的场景，以及戴着帽子背着包的户外状态。
+
+<img src="https://p.sda1.dev/22/1af7316e26088d1f37ad4dd3272178a8/IMG_CMP_203663843.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  厉飞雨  
+##### 29851#       发表于 2025-2-26 15:39
+
+不如这么编，初华是丰川老登资助的克隆技术用祥妈基因克隆的114514个克隆个体中比较有自主意识，靠个人奋斗出道的
+祥子是让丰川老登失望的后代
+睦是基于这个技术造出来的超级调整者<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 29852#       发表于 2025-2-26 15:43
+
+海喵:她们仨同居了?我们乐队的工作需要这么紧密吗？
+
