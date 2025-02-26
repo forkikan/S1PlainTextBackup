@@ -2973,3 +2973,61 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 虽然wsd铁定没这魄力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 29861#       发表于 2025-2-26 16:05
+
+ 本帖最后由 adretyu67. 于 2025-2-26 16:07 编辑 
+
+我倒是觉得能给老登露脸的时间也不多，又要拉人又得整队。
+
+按照对偶那就是10话整队live，12话鸡团完结live，13话还得安排鸡狗对邦。
+
+反正次次高拿轻放，怎么说，都有点习惯了。
+
+*****
+
+####  adretyu67.  
+##### 29862#       发表于 2025-2-26 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523368&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-26 16:02</a>
+
+要是完结后官号宣布，其实一开始我们就拍了两版动画，接下来我们要播导演剪辑解密版，就真的叫大活了
+
+虽然w ...</blockquote>
+就算要修那也是杀手游编剧的脑细胞。
+
+*****
+
+####  adretyu67.  
+##### 29863#       发表于 2025-2-26 16:08
+
+祥子和初华的差距，和亚子和巴的外貌差距差不多了。
+
+巴我总觉得是传说系列片场穿越过来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 29864#       发表于 2025-2-26 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522395&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-26 14:03</a>
+
+奇怪的漏油们，仿佛没有看过第三集，通过吉他找到了终于属于自己的东西同时排斥来自父母的天赋、光环，这些 ...</blockquote>
+第三集是若叶睦给小睦这个人格编的人设啊，说的小睦从小不善言辞，和睦妈、祥子、Mortis三方的言论矛盾了。
+
+*****
+
+####  庸necro  
+##### 29865#       发表于 2025-2-26 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523368&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-26 16:02</a>
+
+要是完结后官号宣布，其实一开始我们就拍了两版动画，接下来我们要播导演剪辑解密版，就真的叫大活了
+
+虽然w ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我又幻想了，幻想mujica还有一个导演剪辑版来救场
+
