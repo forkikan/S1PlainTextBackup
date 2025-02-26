@@ -2891,3 +2891,14 @@ rank里面只剩野兔子
 至于吗，你是新粉吗，这种屁大的事也能喘不过气</blockquote>
 这哥们一直是转播间的实时翻译呀
 
+
+*****
+
+####  术士q  
+##### 18106#       发表于 2025-2-26 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519552&amp;ptid=2018830" target="_blank">往世雷书 发表于 2025-2-26 09:08</a>
+至于吗，你是新粉吗，这种屁大的事也能喘不过气</blockquote>
+只是因为近期事情很多，比如考研出成绩还有六级还有毕设之类的，加上这件事一时有些混乱，心理上处理不过来。
+不过这样的话应该就是没问题了?那就放心了
+
