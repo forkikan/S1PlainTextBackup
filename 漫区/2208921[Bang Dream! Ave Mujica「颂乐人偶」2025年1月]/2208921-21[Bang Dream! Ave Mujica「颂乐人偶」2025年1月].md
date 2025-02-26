@@ -1219,3 +1219,19 @@ mygo角色都很少出现这种抽了白抽的情况，甚至ccc复辟也只有s
 
 退一万步最后老登真是mggm代入大手管到底，中登已经不知道还有什么存在的必要了，祥子现在这个状态还记得自己有个爹吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 29711#       发表于 2025-2-26 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518540&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-26 00:44</a>
+怎么都是喵梦作为联系点，ras的人会对鸡团其他人有兴趣吗</blockquote>
+只要A团继续参加演出活动，撞上只靠门票收益四处砸场子的RAS的概率是不小的，祥子是继楚平方之后第二个制作人定位的乐队核心，交流起来肯定会很有意思，pareo也算和“双重人格”沾点边，也许会和睦有啥共同语言，六花作为顶尖吉他手也能教木头吉他，主唱LAYER一直都是兼职贝斯佣兵，说不定早就认识海铃，对于处理乐队内矛盾也有经验可谈
+
+RAS是五个为live而生的音乐狂人，这和A团连音乐性对团队意义都搞不清楚的现状是完全相反的，碰撞起来肯定会非常有趣
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
