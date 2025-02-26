@@ -1316,3 +1316,62 @@ TFT的歌单出来了，迷子唱的是《潜在表明》，确实是很有灯�
 
 答案是偷摸零的纸都掺了企鹅冰，ccc白祥拿到歌词直接就心灵的呐喊，黑祥收集小纸条反复观看。而初华的歌词就只有赶紧作曲完成工作了
 
+
+*****
+
+####  天空塔书记官  
+##### 29719#       发表于 2025-2-26 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519650&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-26 09:20</a>
+答案是偷摸零的纸都掺了企鹅冰，ccc白祥拿到歌词直接就心灵的呐喊，黑祥收集小纸条反复观看。而初华的歌词 ...</blockquote>
+初华的词是按照祥子要求写的，但初华也看了灯的歌词，所以坍缩成了黑洞(?)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  兔耳僵尸  
+##### 29720#       发表于 2025-2-26 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519282&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-26 08:33</a>
+只要A团继续参加演出活动，撞上只靠门票收益四处砸场子的RAS的概率是不小的，祥子是继楚平方之后第二个制 ...</blockquote>
+真的有趣吗，这不纯纯拷打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 29721#       发表于 2025-2-26 09:26
+
+<blockquote>syndrome2032 发表于 2025-2-26 09:19
+这么一算那其实祥子亏欠初华的比睦更多。
+
+祥子意识里睦默认是友方，十几年的姐妹情。</blockquote>
+众所周知，母鸡卡的数值都是乱填的，我觉得可以理解为要结婚了突然想起来还有个多年没有联系的老朋友，微信说一下“我结婚了，你可得来捧个场”要份子钱，过了之后就不再联系，这样就合理多了
+
+
+*****
+
+####  老贝  
+##### 29722#       发表于 2025-2-26 09:32
+
+Mujica那边是祥子先作曲然后给到初华写词吧，和ccc那种灯先作词祥子根据词谱曲好像不一样。
+
+*****
+
+####  syndrome2032  
+##### 29723#       发表于 2025-2-26 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519692&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-26 09:26</a>
+众所周知，母鸡卡的数值都是乱填的，我觉得可以理解为要结婚了突然想起来还有个多年没有联系的老朋友，微 ...</blockquote>
+我再想了下，有点理解为啥祥爹能被骗168e了。
+
+这真是遗传。
+
+祥爹被合作的外人骗168e，
+祥子被合作的大喵摘了面具。
+
+大祥说初华肯定是被人骗买水晶的那个。现在看来初华买没买不知道，祥子肯定是先买了
+
