@@ -4311,3 +4311,24 @@ mggm不吃鸡蛋我是不信的
 
 海铃可以类比窦倩童吧
 
+
+*****
+
+####  沉默的苍穹基  
+##### 29987#       发表于 2025-2-26 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525882&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-26 21:58</a>
+这下就能理解为啥一个月能去工体开演唱会了
+不过喵梦为啥敢台上摘面具就更迷了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">万一喵梦也是老王的私生女呢
+
+
+*****
+
+####  fuwamoco  
+##### 29988#       发表于 2025-2-26 22:25
+
+你素姐在月之森可是大忙人，吹奏部要排练，上课要偷摸看睦头，下课要给同学笔记，有点空还要去浇黄瓜。
+
+所以每次回go团全职太太下班的状态，好不容易回家了还要看两娃一猫闹腾。
+
