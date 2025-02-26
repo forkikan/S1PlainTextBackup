@@ -4110,3 +4110,30 @@ Mana在剧情内的咖位可比鸡大多了……
 
 sumimi无所谓的，真奈对sumimi不上心
 
+
+*****
+
+####  天空塔书记官  
+##### 29965#       发表于 2025-2-26 21:03
+
+? 这和图中说的是同一个意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 29966#       发表于 2025-2-26 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525462&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-26 20:52</a>
+
+“别指望mygo团推了，当毒唯吧”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我个人就是感觉明说狗团同床异梦的异类团魂有点带感
+
+*****
+
+####  南宮凝香  
+##### 29967#       发表于 2025-2-26 21:06
+
+主唱太拚命了
+
