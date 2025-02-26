@@ -22,3 +22,38 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 什么情况，现在是AI在唱歌了吗？
 
+
+*****
+
+####  cxj649  
+##### 1694#       发表于 2025-2-26 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526389&amp;ptid=1487714" target="_blank">lanslort 发表于 2025-2-26 23:32</a>
+
+什么情况，现在是AI在唱歌了吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她3个号都转发了
+
+<img src="https://img.saraba1st.com/forum/202502/26/234901hkg4ksgznk4050cg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/26/234916sudx9zxwxa7lzq33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/26/234929nb4hyiwrwrrxyhy1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (472.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 23:49 上传
+
