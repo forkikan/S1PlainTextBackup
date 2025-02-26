@@ -1560,3 +1560,15 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 5815#       发表于 2025-2-27 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526492&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-2-26 23:56</a>
+现在机器人n10感觉真简单啊，虽然还是会被炸的到处飞，但随便打打就过了
+
+—— 来自 S1Fun ...</blockquote>
+重甲少了，有一管无后座基本能打完，我记得之前被打到退坑的时候n7就有漫山遍野的无畏追着玩家跑，机炮都撸冒烟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在机炮反而用不上
+
