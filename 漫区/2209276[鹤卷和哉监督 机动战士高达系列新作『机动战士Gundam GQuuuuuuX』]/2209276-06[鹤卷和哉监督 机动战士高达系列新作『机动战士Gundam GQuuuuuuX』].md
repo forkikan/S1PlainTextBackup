@@ -2789,3 +2789,13 @@ MAV的灵感果然是阿姆罗和拉拉吗……
 
 并不是很像
 
+
+*****
+
+####  Gysumitka  
+##### 7633#       发表于 2025-2-26 13:41
+
+看x上有人聊特典图画的是创造亚当
+<img src="https://p.sda1.dev/22/406c1d7273b921dcd6f0738ddded6c31/image.jpg" referrerpolicy="no-referrer">
+尼娅安和修司的姿势类似图下部石柱上的人物
+
