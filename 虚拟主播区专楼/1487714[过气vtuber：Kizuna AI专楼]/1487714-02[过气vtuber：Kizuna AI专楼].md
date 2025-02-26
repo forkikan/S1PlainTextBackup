@@ -14,3 +14,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新曲真好听，歌词也振奋人心，等下一首了
 
+
+*****
+
+####  lanslort  
+##### 1693#       发表于 2025-2-26 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 什么情况，现在是AI在唱歌了吗？
+

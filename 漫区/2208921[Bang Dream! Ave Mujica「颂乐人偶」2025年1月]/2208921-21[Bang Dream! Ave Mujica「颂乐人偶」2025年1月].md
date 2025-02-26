@@ -4428,3 +4428,33 @@ MyGo 隊員證
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ryuusu  
+##### 29998#       发表于 2025-2-26 23:30
+
+今天有咻卡和佐佐李的广播<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 29999#       发表于 2025-2-26 23:32
+
+<blockquote>kooler2002 发表于 2025-2-26 20:52
+“别指望mygo团推了，当毒唯吧”</blockquote>
+mygo#13爱音对初华的称呼没有加任何后缀，就是初华？
+
+
+*****
+
+####  与太郎  
+##### 30000#       发表于 2025-2-26 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526387&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-2-26 23:32</a>
+
+mygo#13爱音对初华的称呼没有加任何后缀，就是初华？</blockquote>
+sumimi的初华
+
+话说那里还暗示了初华一直关注前c团成员
+
