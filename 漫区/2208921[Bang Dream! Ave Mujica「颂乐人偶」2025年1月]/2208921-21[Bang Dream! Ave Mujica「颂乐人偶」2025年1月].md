@@ -3391,3 +3391,24 @@ TFT 的圖一樣是接頭霸王
 
 爽姐:在mygo从来没有开心过
 
+
+*****
+
+####  天空塔书记官  
+##### 29899#       发表于 2025-2-26 17:51
+
+其实素世装温柔还是很累的，她本质阴角
+
+不开心才是常态，在迷子反而轻松一点
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 29900#       发表于 2025-2-26 17:53
+
+只是soyo的嘴角吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对比真的是铁串子啊
+
