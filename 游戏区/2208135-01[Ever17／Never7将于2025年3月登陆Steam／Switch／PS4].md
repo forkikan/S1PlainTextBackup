@@ -62,3 +62,25 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">什么 你别骗我 敢改剧情？
 
+
+*****
+
+####  空洞骑士  
+##### 102#       发表于 2025-2-26 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524626&amp;ptid=2208135" target="_blank">forgetit 发表于 2025-2-26 18:40</a>
+
+这个是哪里的文章</blockquote>
+[https://www.kirikiribasara.com/2 ... n-a-sci-fi-classic/](https://www.kirikiribasara.com/2025/02/25/ever17-review-a-new-perspective-on-a-sci-fi-classic/)
+
+推上一搜就搜出来了，英文评测。
+
+*****
+
+####  苇原雪道  
+##### 103#       发表于 2025-2-26 19:02
+
+本来160就贵，还改剧情。。。我就不补票了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
