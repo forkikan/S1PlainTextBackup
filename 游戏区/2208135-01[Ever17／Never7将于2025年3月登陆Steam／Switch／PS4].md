@@ -149,3 +149,16 @@ https://www.kirikiribasara.com/2 ... n-a-sci-fi-classic/
 
 我本来就不太欣赏PSP上玩的版本的剧情，看看remastered会怎么处理
 
+
+*****
+
+####  Piano-Forest  
+##### 109#       发表于 2025-2-26 23:44
+
+[https://x.com/yuut/status/1894656486770708736](https://x.com/yuut/status/1894656486770708736)
+
+そんな言い訳を先にしておいてすみませんなんですけど、慣らしがてら #Ever17 リマスター発売お祝いらくがきを置いときます！
+
+おかえり！Ever17！
+<img src="https://p.sda1.dev/22/f1e992683c144b9caa158b3ebb931cb2/20250226_234103.jpg" referrerpolicy="no-referrer">
+
