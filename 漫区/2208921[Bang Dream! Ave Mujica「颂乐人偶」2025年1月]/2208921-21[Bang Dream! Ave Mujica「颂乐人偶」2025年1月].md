@@ -4163,3 +4163,44 @@ mggm不吃鸡蛋我是不信的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ape-apple  
+##### 29971#       发表于 2025-2-26 21:29
+
+同床异梦不叫异类团魂 ，叫没有团魂，C团解体是因为纯纯的外力而非个人思想，直到剧情第八集五个人也只是因为外力而不能组C团，灯素希的解决方法是想live的时候就找🐶当代餐
+
+
+*****
+
+####  ml1642879  
+##### 29972#       发表于 2025-2-26 21:34
+
+羊噶来说说唱的行吗，狗的歌基本没怎么听，三字经看的头大
+
+*****
+
+####  w酱  
+##### 29973#       发表于 2025-2-26 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525754&amp;ptid=2208921" target="_blank">ml1642879 发表于 2025-2-26 21:34</a>
+羊噶来说说唱的行吗，狗的歌基本没怎么听，三字经看的头大</blockquote>
+羊噶说比cd好听
+
+*****
+
+####  看穿一切的鱼  
+##### 29974#       发表于 2025-2-26 21:37
+
+剧情咖位有什么用，还不是垫子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 29975#       发表于 2025-2-26 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525731&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 21:29</a>
+同床异梦不叫异类团魂 ，叫没有团魂，C团解体是因为纯纯的外力而非个人思想，直到剧情第八集五个人也只是因 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五个人都在各自新团同床异梦？会吗（
+
