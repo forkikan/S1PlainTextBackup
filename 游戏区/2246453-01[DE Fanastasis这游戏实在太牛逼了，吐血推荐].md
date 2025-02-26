@@ -2600,3 +2600,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 海底隧道 大图
 
+
+*****
+
+####  JamesDrapor  
+##### 225#       发表于 2025-2-26 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518750&amp;ptid=2246453" target="_blank">reoch 发表于 2025-2-26 01:44</a>
+
+海底隧道的地图是不是改了，感觉和wiki上的不一样啊，给我溜麻了，有更新后的地图吗 ...</blockquote>
+基本上哪儿地上有露出来的灰色地板往哪走就没错，有一个思念体提示的
+

@@ -3508,3 +3508,35 @@ Soyo：
 初祥龙族说，三角初华原本就是家族为丰川祥子准备的新娘</blockquote>
 欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 29910#       发表于 2025-2-26 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524260&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 17:43</a>
+如果畫得好一點，
+
+我就要滑坡清算爽姐的嘴角角度問題是不是她沒有團魂了</blockquote>
+还真是，3个c团遗老在c团笑嘻嘻，回狗团都是司马脸，是时候清算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 29911#       发表于 2025-2-26 18:19
+
+蜜柑两边照片都没笑，画上肯定有人加入自己理解了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+其实没现在这么多场内外节奏区分crychic和mygo的soyo本来没什么问题。crychic让她觉得保持温柔的一面并非负担，而mygo是暴露阴暗的一面也可以，灯也点明过两边都是真实的她。但鸡里写成行动上厚此薄彼就纯纯烂炒了。
+
+
+*****
+
+####  syndrome2032  
+##### 29912#       发表于 2025-2-26 18:23
+
+上一个说ccc不开心的已经想着重组ccc了。
+这一个说mygo不开心的没准也是串子<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
