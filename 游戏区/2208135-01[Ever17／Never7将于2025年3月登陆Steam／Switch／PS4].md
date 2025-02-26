@@ -130,3 +130,22 @@
 其实当年PSP版就是通过暴力裁切从4：3改成了16：9，然后通过摇杆控制裁切范围
 当时在PSP上玩n9，发现画面一直在抖，才知道自己机器的摇杆漂移了
 
+
+*****
+
+####  760194962  
+##### 108#       发表于 2025-2-26 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524736&amp;ptid=2208135" target="_blank">空洞骑士 发表于 2025-2-26 18:59</a>
+
+https://www.kirikiribasara.com/2 ... n-a-sci-fi-classic/
+
+推上一搜就搜出来了，英文评测。
+
+看了一眼， ...</blockquote>
+还是希望有个显示4:3选项，不知道remastered怎么处理。
+
+另外这篇评测作者这么喜欢原版，可以当作“遗老” bias 排除处理了。
+
+我本来就不太欣赏PSP上玩的版本的剧情，看看remastered会怎么处理
+
