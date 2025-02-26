@@ -3412,3 +3412,42 @@ TFT 的圖一樣是接頭霸王
 
 只是soyo的嘴角吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对比真的是铁串子啊
 
+
+*****
+
+####  南宮凝香  
+##### 29901#       发表于 2025-2-26 17:56
+
+羊姐跟鼓子的嘴角是一致的
+
+團魂審核的壓力在Soyo 身上
+
+*****
+
+####  Суслов  
+##### 29902#       发表于 2025-2-26 17:59
+
+mygo是工作，crychic是生活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plazum  
+##### 29903#       发表于 2025-2-26 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519935&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-26 09:52</a>
+
+真奈视角是不是队友莫名其妙跑去组了个乐队，没多久乐队莫名其妙散了，过了一个多月队友莫名其妙炸了
+
+真奈：我草，神人！</blockquote>
+欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 29904#       发表于 2025-2-26 18:04
+
+爽姐有多少团魂全看阿农前一天晚上努了多少力<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
