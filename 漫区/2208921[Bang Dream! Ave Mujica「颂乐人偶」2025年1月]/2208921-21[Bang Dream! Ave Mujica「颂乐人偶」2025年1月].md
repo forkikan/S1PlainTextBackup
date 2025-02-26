@@ -3294,3 +3294,53 @@ TFT这图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 29891#       发表于 2025-2-26 17:24
+
+<blockquote>是谁的书画 发表于 2025-2-26 17:19
+上次tft的图和这张都感觉头画的怪怪的，有种要从脖子上滑下去的感觉</blockquote>
+明顯是拍真人AI 描圖後換頭
+
+WSD 花那麼多錢上去，
+
+結果在這裡省…….
+
+*****
+
+####  是谁的书画  
+##### 29892#       发表于 2025-2-26 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524086&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 17:21</a>
+
+TFT 的圖一樣是接頭霸王
+
+至少這次團服沒3C 的純色版那樣醜</blockquote>
+你说接头霸王吧，显然也不是，因为这衣服和比例明显是重新画过的，这就很让人费解了。
+
+*****
+
+####  一心而用  
+##### 29893#       发表于 2025-2-26 17:29
+
+鼓子接到一个中华娘角色<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/427078befde0120b009fb96c5dc40157/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 29894#       发表于 2025-2-26 17:31
+
+城姬 ? <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 29895#       发表于 2025-2-26 17:33
+
+最高的羊突然变成小个子灯，就很诡异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
