@@ -1796,3 +1796,88 @@ nga ...</blockquote>
 所以说，mygo和avemujica明明是同时企划的，为啥a团的人设这么潦草，一共5个人，除了2个CCC团老人，剩下3个 ...</blockquote>
 可能M和A一开始是平行企划，CCC是后来想出来的，这样二者才有了交集
 
+
+*****
+
+####  K·os  
+##### 29761#       发表于 2025-2-26 11:56
+
+go也是灯素爱主体啊，猫希起到一个开live的作用，开局就是灯的装备
+ave是初祥睦主体，之所以剧情一直难有进展，主要是主唱一直在ob，至于为什么主唱一直在ob，那我只能说，难说
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Victorino  
+##### 29762#       发表于 2025-2-26 11:56
+
+<blockquote>ape-apple 发表于 2025-2-26 10:10
+其实吧，当观众用蓝冰和企鹅冰来解释为什么角色之间关系性浓厚的原因时，基本上就意味着剧内根本没法解释， ...</blockquote>
+企鹅冰其实很好理解，所有被灯吸引的人（除了爱音）本质上都是喜欢阿斯伯格诗歌的文学少女，本质上是诗人脑残粉
+
+蓝冰……从soyo视角看其实没有很冰（她当时对四个前队友一视同仁），难解释的其实只有初华
+
+*****
+
+####  K·os  
+##### 29763#       发表于 2025-2-26 11:59
+
+灯祥关系好，不用多解释吧
+素祥，其实soyo比起祥子还是更喜欢crychic
+睦祥，现在来看睦之所以这么顺从祥，是因为ccc的负罪感，现在ccc消解，睦祥立场直接反转了
+初祥，让我们拭目以待（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 29764#       发表于 2025-2-26 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67520631&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 10:54</a>
+祥子的世界觀只有歌， 沒有舞
+
+被歌霸佔一生</blockquote>
+初歌确实是 主要是乐奈+爱音
+那祥子身边只有初歌是不是少了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 29765#       发表于 2025-2-26 12:00
+
+<img src="https://img.saraba1st.com/forum/202502/26/120020oa3vcdqjgukczzcq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7f1d4a447c7d1ff895bf5616a06c4d24.jpeg</strong> (61.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 12:00 上传
+
+*****
+
+####  钦念以忱  
+##### 29766#       发表于 2025-2-26 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521284&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-26 11:53</a>
+
+因为鸡炸了啊，所以炸了必须靠狗带。
+
+结果狗一帮人奶了这么久也没把祥子奶活，另一个适合干这活的主唱， ...</blockquote>
+狗里，爱灯素都是主角位，祥睦都是配角位，主角可以能动性很强跑来跑去推动剧情，配角可以无口或者谜语人。
+
+但到了鸡，睦祥才是主角，爱素都是配角，现在主角祥子还搁那谜语人，而且显然祥子的童年回忆和家族往事里还藏着大的不说，反而让2个配角跑来跑去。所以鸡的观感才这么糟糕，归根结底，鸡团的人设就没做好。
+
+狗团和C团的人设，绫奈都有写了，为了什么原因设计出了什么角色，角色设计的好，故事也就精彩好看，搞创作也简单。
+
+*****
+
+####  钦念以忱  
+##### 29767#       发表于 2025-2-26 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521302&amp;ptid=2208921" target="_blank">Lawliet.L 发表于 2025-2-26 11:54</a>
+
+可能M和A一开始是平行企划，CCC是后来想出来的，这样二者才有了交集</blockquote>
+我看访谈，一开始就是C团解散，变成2个团的故事。
+
