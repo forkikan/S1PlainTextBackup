@@ -3688,3 +3688,49 @@ TFT 這純粹是滑坡
 
 哎，在mygo就像形婚的女同，在C团就像开了房间并且带了一提包小玩具的女同
 
+
+*****
+
+####  天空塔书记官  
+##### 29929#       发表于 2025-2-26 19:07
+
+磕cp的尽头就是发电，哦，不磕也发电啊
+
+唉，丰矿的二刺猿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  与太郎  
+##### 29930#       发表于 2025-2-26 19:08
+
+祥莫原配说：
+[https://www.bilibili.com/video/BV1t2AUe2EFn/](https://www.bilibili.com/video/BV1t2AUe2EFn/)
+
+代表社交的mortis才是祥子最初的青梅竹马😀
+
+*****
+
+####  fuwamoco  
+##### 29931#       发表于 2025-2-26 19:09
+
+在睦接触到吉他的时间点前，墨确实是陪祥子玩的那个。
+
+
+*****
+
+####  my707776310  
+##### 29932#       发表于 2025-2-26 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"爽姐上一团玩的开心还是这一团玩的开心"
+
+*****
+
+####  非建政专用号  
+##### 29933#       发表于 2025-2-26 19:11
+
+木头人也不会玩，趁现在和大象是共轭孝子状态和大象老师做个十天半个月，以后大莫老师一顶号看着大象发现身体不由自主条件反射了，那还不是分分钟祥堕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
