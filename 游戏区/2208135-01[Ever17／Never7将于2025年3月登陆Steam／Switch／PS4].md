@@ -23,3 +23,15 @@
 
 ？？怎么还改剧情的，难崩
 
+
+*****
+
+####  Andariel  
+##### 98#       发表于 2025-2-26 18:26
+
+ 本帖最后由 Andariel 于 2025-2-26 18:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是大家嫌弃前半太无聊给你加速了么
+解密篇注重逻辑淡化情感冲突，感觉有点像中泽工那个双根的后半
+看看这次踢罐子和各线结尾生命标识个数严谨不严谨了
+

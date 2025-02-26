@@ -3540,3 +3540,24 @@ Soyo：
 上一个说ccc不开心的已经想着重组ccc了。
 这一个说mygo不开心的没准也是串子<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 29913#       发表于 2025-2-26 18:26
+
+話說，
+
+愛音 Soyo 燈 中間那團綠色是什麼東西？
+
+三次元中沒對應配件
+
+*****
+
+####  非建政专用号  
+##### 29914#       发表于 2025-2-26 18:29
+
+那团绿色的不是soyo的裙子吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
