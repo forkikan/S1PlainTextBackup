@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 143284,
+    "totalreply": 143285,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1740598088,
+    "lastedit": 1740599047,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10850,7 +10850,7 @@
     "newtitle": "[天久鹰央的推理病历表 TV动画化]",
     "lastedit": 1740339490,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2188662": {
@@ -11070,10 +11070,10 @@
     "update": false
   },
   "2179544": {
-    "totalreply": 1717,
+    "totalreply": 1718,
     "title": "[《天国：拯救2》正式公开，2025年2月4日发售]",
     "newtitle": "[《天国：拯救2》正式公开，2025年2月4日发售]",
-    "lastedit": 1740596889,
+    "lastedit": 1740598807,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17599,6 +17599,15 @@
     "title": "[企业／地方政府有必要本地跑deepseek吗？]",
     "newtitle": "[企业／地方政府有必要本地跑deepseek吗？]",
     "lastedit": 1740595334,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2247535": {
+    "totalreply": 41,
+    "title": "[举报了一个飞机上偷pai的猥琐男]",
+    "newtitle": "[举报了一个飞机上偷pai的猥琐男]",
+    "lastedit": 1740599049,
     "category": "外野",
     "active": true,
     "update": false
