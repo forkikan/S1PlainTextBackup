@@ -4057,3 +4057,56 @@ TFT怎么又上MYGO了，之前NGA的邦邦版那帮游戏粉说的因为只能�
 
 别期待素世有啥团魂时刻，起码pico之前你看不到
 
+
+*****
+
+####  adretyu67.  
+##### 29961#       发表于 2025-2-26 20:48
+
+比较好奇为啥还带sumimi玩，甜甜圈女士还有用吗。
+
+*****
+
+####  金钱与民主  
+##### 29962#       发表于 2025-2-26 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525428&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-26 20:48</a>
+比较好奇为啥还带sumimi玩，甜甜圈女士还有用吗。</blockquote>
+Mana在剧情内的咖位可比鸡大多了……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kooler2002  
+##### 29963#       发表于 2025-2-26 20:52
+
+<img src="https://img.saraba1st.com/forum/202502/26/205205tj77hukaii66r87r.jpg" referrerpolicy="no-referrer">
+
+<strong>-8390821801740565246719.jpg</strong> (105.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 20:52 上传
+
+“别指望mygo团推了，当毒唯吧”
+
+
+*****
+
+####  kooler2002  
+##### 29964#       发表于 2025-2-26 20:54
+
+<blockquote>adretyu67. 发表于 2025-2-26 20:48
+比较好奇为啥还带sumimi玩，甜甜圈女士还有用吗。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/26/205409chkwrrr5wsewotcs.jpg" referrerpolicy="no-referrer">
+
+<strong>10063998521740568176612.jpg</strong> (121.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 20:54 上传
+
+sumimi无所谓的，真奈对sumimi不上心
+
