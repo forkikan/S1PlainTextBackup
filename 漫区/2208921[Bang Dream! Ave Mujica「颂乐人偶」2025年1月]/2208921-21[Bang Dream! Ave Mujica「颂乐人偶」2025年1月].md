@@ -4368,3 +4368,33 @@ mygo传奇第7人Mortis是吧<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zhoujin8584  
+##### 29993#       发表于 2025-2-26 23:01
+
+等等，第6人是谁
+
+
+*****
+
+####  南宮凝香  
+##### 29994#       发表于 2025-2-26 23:05
+
+<blockquote>zhoujin8584 发表于 2025-2-26 23:01
+等等，第6人是谁</blockquote>
+海鈴
+
+MyGo 隊員證
+
+1號： 愛音
+
+2號 ：素世
+
+3號 ： 燈
+
+4號 ： Taki
+
+5號 ： 貓
+

@@ -1061,3 +1061,39 @@ infra 扣性能的时候各种路子都会使<img src="https://static.saraba1st.
 
 是不是这样？
 
+
+*****
+
+####  御坂MKII  
+##### 93#       发表于 2025-2-26 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526184&amp;ptid=2246987" target="_blank">ywj321 发表于 2025-2-26 22:47</a>
+非业内人士的理解：
+
+   等于是DS相当于手机APP，这个APP发现安卓系统的运行问题，就改了安卓系统，让系 ...</blockquote>
+app 改内核代码这种正常路子没法搞，可以理解为自己魔改了编程语言的系统库或者编译器生成汇编代码的逻辑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一座恐怖屋  
+##### 94#       发表于 2025-2-26 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67512842&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-25 14:54</a>
+
+你说的更新封装个人部署是什么意思，如果是指本地跑模型的话，现在买个16G的mac mini下个ollama就行了的 ...</blockquote>
+我的意思是目前我用了一个叫GPT4all的工具，里面可以随时选择下载集成ai模型在本地，所以我想问的是这些新的更新内容是不是也会能这么方便的面对个人用户更新使用，因为我不是很懂技术，只是在等着更方便的ai工具使用来解决问题，后面我觉得是不是会很快有团队来把这些提高生产力的东西包装成明确的工具，比如根据描述写工程代码，做网站，等直接落地的工具
+
+*****
+
+####  cube  
+##### 95#       发表于 2025-2-26 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526184&amp;ptid=2246987" target="_blank">ywj321 发表于 2025-2-26 22:47</a>
+
+非业内人士的理解：
+
+   等于是DS相当于手机APP，这个APP发现安卓系统的运行问题，就改了安卓系统，让系 ...</blockquote>
+APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层逻辑然后发现了一个非常不合理的运作方式，就自己打了个非官方补丁把这个问题修复了。
+
