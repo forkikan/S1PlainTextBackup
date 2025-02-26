@@ -2824,3 +2824,15 @@ MAV的灵感果然是阿姆罗和拉拉吗……
 阿扎</blockquote>
 这怎么和az扯上关系的？az双男主不都对公主没多大感情，甚至互相之间也没擦出啥火花连轻bl都很难说得上
 
+
+*****
+
+####  刺客ares  
+##### 7636#       发表于 2025-2-26 14:09
+
+要烂成AZ，那得玛秋最后一集嫁给卡姆兰
+
+喵安成残疾的路人，牢修死了或者蹲大牢
+
+鹤卷gg直接喜提某监督同款麻将脸<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+

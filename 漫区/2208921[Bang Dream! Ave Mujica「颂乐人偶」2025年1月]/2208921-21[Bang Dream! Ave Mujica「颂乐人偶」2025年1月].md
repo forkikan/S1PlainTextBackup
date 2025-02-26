@@ -2454,3 +2454,62 @@ mygo最立体的灯爱素，在两季动画都是集集几乎全勤
 
 甚至按照我的大纲预想，姥爷讨厌乐队，因为祥爹以前玩乐队骗祥子妈妈团团转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，姥爷进一步因为爱女去世叠加，爱恨扭曲了也是比较王道的写法，为什么不稳妥一点写成这样也很奇怪（
 
+
+*****
+
+####  sauron.j  
+##### 29819#       发表于 2025-2-26 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522395&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-26 14:03</a>
+
+奇怪的漏油们，仿佛没有看过第三集，通过吉他找到了终于属于自己的东西同时排斥来自父母的天赋、光环，这些 ...</blockquote>
+要知道很多人每周只看一遍新番然后不复盘的
+
+*****
+
+####  Mr.Giraffe  
+##### 29820#       发表于 2025-2-26 14:09
+
+十五年未有之三批大作
+
+
+*****
+
+####  楠城旧篱  
+##### 29821#       发表于 2025-2-26 14:10
+
+<blockquote>kooler2002 发表于 2025-2-26 13:53
+我有个问题，为什么你们角色厨CP是两两配对，不能三人行的吗？</blockquote>
+这是个复杂的问题
+
+人和人之间是不能互相理解的
+
+*****
+
+####  天空塔书记官  
+##### 29822#       发表于 2025-2-26 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  K·os  
+##### 29823#       发表于 2025-2-26 14:14
+
+光是两人cp，都可以随便分出四种立场，三人cp，怎么可能形成合力呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kooler2002  
+##### 29824#       发表于 2025-2-26 14:16
+
+<blockquote>K·os 发表于 2025-2-26 14:14
+光是两人cp，都可以随便分出四种立场，三人cp，怎么可能形成合力呢
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+他说的是可能结局三人同居。。。。
+
