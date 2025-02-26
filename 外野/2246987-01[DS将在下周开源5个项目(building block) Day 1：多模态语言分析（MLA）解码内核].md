@@ -846,3 +846,11 @@ deepgemm 也很强，这帮人完全可以 自己做驱动了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cube  
+##### 75#       发表于 2025-2-26 20:25
+
+英伟达股票上周好不容易回到140，真就被连续三天打回126了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
