@@ -2752,3 +2752,35 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  adretyu67.  
+##### 29842#       发表于 2025-2-26 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522918&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-26 15:05</a>
+
+花音和千圣，手游同居人，没想到吧</blockquote>
+这两是毕业了才碰一块去的吧。
+
+鸡团才高一
+
+*****
+
+####  595505568  
+##### 29843#       发表于 2025-2-26 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522944&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-26 15:08</a>
+这两是毕业了才碰一块去的吧。
+
+鸡团才高一</blockquote>
+这倒无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，有一就有二
+
+
+*****
+
+####  Raven314  
+##### 29844#       发表于 2025-2-26 15:14
+
+只能说同居也不奇怪，前面已经同居过有始有终嘛
+

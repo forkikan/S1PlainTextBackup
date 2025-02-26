@@ -2920,3 +2920,15 @@ AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static
 这怎么和az扯上关系的？az双男主不都对公主没多大感情，反过来也一样，甚至互相之间也没擦出啥火花连轻bl ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊奈帆还能说没多大，斯雷因我印象里舔飞了吧
 
+
+*****
+
+####  Dr.Wondering  
+##### 7645#       发表于 2025-2-26 15:13
+
+ 本帖最后由 Dr.Wondering 于 2025-2-26 15:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522898&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-2-26 15:03</a>
+
+伊奈帆还能说没多大，斯雷因我印象里舔飞了吧</blockquote>
+回忆了一下，好像确实挺舔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
