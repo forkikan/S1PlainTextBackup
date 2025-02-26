@@ -2880,3 +2880,25 @@ AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static
 
 感觉GQ学要兴起了
 
+
+*****
+
+####  积木23ki  
+##### 7641#       发表于 2025-2-26 14:40
+
+对比一下az这种构图  确实三人有一种各干各的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 7642#       发表于 2025-2-26 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522290&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-2-26 13:49</a>
+
+0079的画风现在看也没有那么惨不忍睹吧
+
+先不提安彦还在的时候，安彦的画工简直是天神下凡级别
+
+安彦不在的时 ...</blockquote>
+是的，一直到下地球前的节奏非常紧凑，倒是在地球的剧情比较像古早机器人动画
+
