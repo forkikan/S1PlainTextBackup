@@ -2580,3 +2580,23 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 这海底隧道也太乱了吧 关键wiki上的地图还对不上
 
+
+*****
+
+####  塔奇克马  
+##### 224#       发表于 2025-2-26 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524225&amp;ptid=2246453" target="_blank">凉良 发表于 2025-2-26 17:38</a>
+
+这海底隧道也太乱了吧 关键wiki上的地图还对不上</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/26/180819magobrfzkfm5oo33.jpg" referrerpolicy="no-referrer">
+
+<strong>海底隧道.jpg</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 18:08 上传
+
+海底隧道 大图
+

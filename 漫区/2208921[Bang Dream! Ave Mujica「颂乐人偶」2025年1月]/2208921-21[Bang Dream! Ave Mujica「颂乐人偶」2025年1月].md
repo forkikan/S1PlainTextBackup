@@ -3451,3 +3451,60 @@ mygo是工作，crychic是生活<img src="https://static.saraba1st.com/image/smi
 
 爽姐有多少团魂全看阿农前一天晚上努了多少力<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 29905#       发表于 2025-2-26 18:07
+
+双子说最大的用处是不是给祥子和甜甜圈一人分一个初华
+
+*****
+
+####  plazum  
+##### 29906#       发表于 2025-2-26 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523437&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-2-26 16:13</a>
+
+我又幻想了，幻想mujica还有一个导演剪辑版来救场</blockquote>
+导演剪辑版不还是柿本广大来剪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 29907#       发表于 2025-2-26 18:10
+
+身為審判座的一員， 
+
+我還是不能因為畫師而放過審判的工作：
+
+燈：
+
+姿勢 （搓手手） 跟嘴角角度一致， 把身體側一半以示跟愛音同一前進方向， 團魂合格
+
+Taki： 
+
+姿勢一樣， 嘴角略低， 考慮到原形的表情是一樣的， 團魂給過， 畫家抓去再改造
+
+Soyo：
+
+姿勢不一樣， 嘴角角度不一樣，團魂不合格
+
+*****
+
+####  北条早苗  
+##### 29908#       发表于 2025-2-26 18:10
+
+爽姐这下发动剪切线了
+
+
+*****
+
+####  plazum  
+##### 29909#       发表于 2025-2-26 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523914&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-26 17:03</a>
+
+初祥龙族说，三角初华原本就是家族为丰川祥子准备的新娘</blockquote>
+欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
