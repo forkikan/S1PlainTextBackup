@@ -993,3 +993,13 @@ I'm not sure whether it is hard to add other arch-support and maximize the perfo
 
 梁总是从哪里招到这么一群大神的？不可能是社招吧
 
+
+*****
+
+####  yeo  
+##### 87#       发表于 2025-2-26 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526044&amp;ptid=2246987" target="_blank">精钢魔像 发表于 2025-2-26 22:22</a>
+梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
+都是打比赛的竞爷啊，顶级选手有小圈子的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

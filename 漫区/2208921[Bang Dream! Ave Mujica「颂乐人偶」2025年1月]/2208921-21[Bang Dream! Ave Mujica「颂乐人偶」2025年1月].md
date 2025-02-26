@@ -4332,3 +4332,21 @@ mggm不吃鸡蛋我是不信的
 
 所以每次回go团全职太太下班的状态，好不容易回家了还要看两娃一猫闹腾。
 
+
+*****
+
+####  adretyu67.  
+##### 29989#       发表于 2025-2-26 22:30
+
+bangdream的一天都应该有36小时的，可能也没有想象里那么忙
+
+
+*****
+
+####  595505568  
+##### 29990#       发表于 2025-2-26 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525949&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 22:09</a>
+现在知道海子姐到底给我什么感觉了，就是刻板印象里后海那种两条大花臂，闲下来就抽两口前门的摇滚驻场， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
