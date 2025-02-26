@@ -1108,3 +1108,14 @@ APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层�
 我的意思是目前我用了一个叫GPT4all的工具，里面可以随时选择下载集成ai模型在本地，所以我想问的是这些 ...</blockquote>
 本周DS开源的这些东西，压根就不是给一般个人用户准备的，用来尽可能榨取出硬件的潜力，属于最上游的部份了，你说的写代码之类就属于最下游的基于大模型的生产和应用了。如果你想体验最新的模型写代码的话，现在最大路的就是充钱用cursor了，一个月20刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精钢魔像  
+##### 97#       发表于 2025-2-27 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526239&amp;ptid=2246987" target="_blank">一座恐怖屋 发表于 2025-2-26 22:58</a>
+
+我的意思是目前我用了一个叫GPT4all的工具，里面可以随时选择下载集成ai模型在本地，所以我想问的是这些 ...</blockquote>
+现在还不行。比如给ai 下指令写个遍历文件的代码，ai大概率会调os模块（python），你觉得os模块可能会有问题，而且你又知道应该用pathlib，再给ai下指令用path改写，ai也能完成得很好——但这个过程还是建立在使用者是行内人士的前提上，不是有了ai，就有免费的技术人员给你用了。
+
