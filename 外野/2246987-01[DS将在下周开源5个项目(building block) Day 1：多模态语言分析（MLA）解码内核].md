@@ -903,3 +903,30 @@ deepgemm 也很强，这帮人完全可以 自己做驱动了
 
 DeepGEMM里面有个细节，ds发现新版本nvcc编出来的fadd指令会有特定的bit被flip，进一步挖出这个bit是控制warp yield的。为了不依赖nvcc来获取这个yield的收益，干脆用脚本搞binary rewrite，手动给二进制里的指令改上这个bit。平地起飞10%的收益。老黄看了想连夜鞭打nvcc团队。
 
+
+*****
+
+####  FeteFete  
+##### 80#       发表于 2025-2-26 21:40
+
+<blockquote>燕山雪 发表于 2025-2-26 21:34
+还没时间看代码，如果deepgemm真如他们说的是jit，那真的牛逼。顺便转个推∶
+
+DeepGEMM里面有个细节，ds发 ...</blockquote>
+这个太底层了，连写cuda都不一定读得懂它说的啥
+
+
+*****
+
+####  cube  
+##### 81#       发表于 2025-2-26 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525753&amp;ptid=2246987" target="_blank">燕山雪 发表于 2025-2-26 21:34</a>
+
+还没时间看代码，如果deepgemm真如他们说的是jit，那真的牛逼。顺便转个推∶
+
+DeepGEMM里面有个细节，ds发 ...</blockquote>
+其实说白了，DS 团队这三天发布的都是NVIDIA自己团队应该干的活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+老黄一边吹嘘AI，他手底下的人一边给他糊弄事。
+
