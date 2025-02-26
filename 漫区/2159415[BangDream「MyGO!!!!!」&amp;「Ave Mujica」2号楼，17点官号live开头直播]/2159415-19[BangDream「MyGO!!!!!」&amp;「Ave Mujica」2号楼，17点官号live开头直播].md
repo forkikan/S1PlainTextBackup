@@ -4644,3 +4644,11 @@ MyGO!!!!!上TFT唱什么？
 卧槽怎么唱潜在表明<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/1a6798868dd65eb6acf58208448543e4/E834DFD0DF9972A94C1EC2E8EEA89DDF.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  老贝  
+##### 26995#       发表于 2025-2-26 08:52
+
+羊姐发挥最好的就是几首念诗吧，这首和音一会上谁都很稳，而且特色十分鲜明。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

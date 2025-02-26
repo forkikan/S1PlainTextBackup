@@ -1235,3 +1235,44 @@ RAS是五个为live而生的音乐狂人，这和A团连音乐性对团队意义
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 29712#       发表于 2025-2-26 08:52
+
+ 本帖最后由 天空塔书记官 于 2025-2-26 08:53 编辑 
+
+TFT的歌单出来了，迷子唱的是《潜在表明》，确实是很有灯的个人风格的一首歌
+
+<img src="https://p.sda1.dev/22/aadfb66b7b87baecbca082bc67c5bed4/image.jpg" referrerpolicy="no-referrer">
+
+来自微博:日_推
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  plusSharp  
+##### 29713#       发表于 2025-2-26 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519173&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-26 08:10</a>
+
+初华最搞笑的不就是这个蜜汁感情吗，人家祥子这么久没联系你，听春日影破防+广告牌才想起你让你帮忙，鸡团 ...</blockquote>
+其实要解释害意确实需要让她和祥子的关系远小于睦，不过初华连灯都比不上就有点过了，再这么下去就随便一个路人都比初华对祥子更重要
+
+*****
+
+####  syndrome2032  
+##### 29714#       发表于 2025-2-26 08:57
+
+对初华而言祥子优先级比mujica高。
+暂时不追加设定的话很难让初华找到关于mujica以外的动机。
+
+两个假药，双子说和小姨说加强的都是祥子和初华的联系，不是初华和mujica的联系。
+
+这定位应该是要被祥子劝回来，差不多就是狗天台之战再演一遍。
+
