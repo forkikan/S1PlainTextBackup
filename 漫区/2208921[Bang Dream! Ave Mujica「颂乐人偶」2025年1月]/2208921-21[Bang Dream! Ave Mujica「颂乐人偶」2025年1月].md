@@ -4468,3 +4468,24 @@ sumimi的初华
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  阿兹尔  
+##### 30002#       发表于 2025-2-27 00:08
+
+喵梦这个新视频，海铃是逗猫上瘾了
+
+
+*****
+
+####  syndrome2032  
+##### 30003#       发表于 2025-2-27 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526401&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-26 23:35</a>
+sumimi的初华
+
+话说那里还暗示了初华一直关注前c团成员</blockquote>
+初华最早认出灯就是通过那次live的动态 
+鸡团动画关于那次live加了个初华甚至在现场的分镜，不知道有什么特殊意义。
+
