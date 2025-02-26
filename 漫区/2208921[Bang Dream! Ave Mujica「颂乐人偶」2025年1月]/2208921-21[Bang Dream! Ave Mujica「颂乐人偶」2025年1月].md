@@ -4041,3 +4041,19 @@ TFT怎么又上MYGO了，之前NGA的邦邦版那帮游戏粉说的因为只能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说只有我觉得C团3人司马脸带感么
 
+
+*****
+
+####  kooler2002  
+##### 29960#       发表于 2025-2-26 20:47
+
+<img src="https://img.saraba1st.com/forum/202502/26/204646bltmxt9c9gmm8c88.jpg" referrerpolicy="no-referrer">
+
+<strong>-7437500151740564786322.jpg</strong> (92.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 20:46 上传
+
+别期待素世有啥团魂时刻，起码pico之前你看不到
+
