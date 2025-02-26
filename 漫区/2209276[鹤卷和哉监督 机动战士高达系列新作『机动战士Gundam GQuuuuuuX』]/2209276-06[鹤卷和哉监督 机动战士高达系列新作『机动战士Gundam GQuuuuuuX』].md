@@ -2932,3 +2932,24 @@ AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static
 伊奈帆还能说没多大，斯雷因我印象里舔飞了吧</blockquote>
 回忆了一下，好像确实挺舔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rhantolk  
+##### 7646#       发表于 2025-2-26 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522981&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-2-26 15:13</a>
+
+回忆了一下，确实挺舔的不过大公主的确无论对学霸还是对斯雷因都没啥友情以上的感情了，这样联想一下确实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫留白好吧，就像党争作品里不能让男主角内心活动直接被观众看到，不然就没法党争了，到最后再揭露出来。只不过最后去联姻了，就干脆不跟大伙说了最后给大家一点念想，就显得好像对俩男主都毫无想法一样了
+
+*****
+
+####  Dr.Wondering  
+##### 7647#       发表于 2025-2-26 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523031&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-2-26 15:19</a>
+
+这叫留白好吧，就像党争作品里不能让男主角内心活动直接被观众看到，不然就没法党争了，到最后再揭露出来 ...</blockquote>
+只能说把az当党争片看的人有福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

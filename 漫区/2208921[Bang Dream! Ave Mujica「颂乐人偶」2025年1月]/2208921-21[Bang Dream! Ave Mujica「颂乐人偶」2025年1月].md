@@ -2784,3 +2784,13 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 只能说同居也不奇怪，前面已经同居过有始有终嘛
 
+
+*****
+
+####  沉默的苍穹基  
+##### 29845#       发表于 2025-2-26 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522415&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-26 14:06</a>
+甚至按照我的大纲预想，姥爷讨厌乐队，因为祥爹以前玩乐队骗祥子妈妈团团转，姥爷进一步因为爱女去世叠加， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">显然这种朴实王道展开不符合最狂二字
+
