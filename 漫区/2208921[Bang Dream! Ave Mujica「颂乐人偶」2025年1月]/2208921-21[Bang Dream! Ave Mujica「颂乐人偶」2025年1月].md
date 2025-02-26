@@ -2794,3 +2794,37 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 甚至按照我的大纲预想，姥爷讨厌乐队，因为祥爹以前玩乐队骗祥子妈妈团团转，姥爷进一步因为爱女去世叠加， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">显然这种朴实王道展开不符合最狂二字
 
+
+*****
+
+####  kooler2002  
+##### 29846#       发表于 2025-2-26 15:25
+
+活字印刷一下舅舅，可以跳过。舅舅的意思说祥子不是丰川家独女，结局是祥子搬出去住，祥睦初三人同居，好像还有一条是住进睦家。
+
+如果结合小姨说就特别有意思，大概是老登生下初华私生女本来安置在自己事务所内，结果初华跑了出去。美奈美帮老爹藏妹妹，把初华拉到自家住，而且祥子也搬了出去。最后初睦祥三人同居
+
+<img src="https://img.saraba1st.com/forum/202502/26/152543nzlnhefngcnfflc0.jpg" referrerpolicy="no-referrer">
+
+<strong>-10380748611740554060560.jpg</strong> (45.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 15:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/26/152543dbyiszasq0yarvsl.jpg" referrerpolicy="no-referrer">
+
+<strong>4683489001740553585971.jpg</strong> (19.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 15:25 上传
+
+<img src="https://img.saraba1st.com/forum/202502/26/152543mpaadp7od9a4r4o6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250226_134445_gov.pianzong.androidnga.jpg</strong> (203.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-26 15:25 上传
+
