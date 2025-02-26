@@ -1555,3 +1555,34 @@ ave就完全上太空了
 
 哪里远离黑洞了，我听说有舅透露喵梦暗恋祥子来着，好离谱好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 29740#       发表于 2025-2-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519095&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-26 07:49</a>
+初歌也不錯
+
+燈這邊有音樂站左右，分別當肉體跟心靈之友</blockquote>
+那有个人应该会被翻译成舞或者呗之类的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，怎么就一个初歌…感觉好怪
+
+
+*****
+
+####  595505568  
+##### 29741#       发表于 2025-2-26 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67520219&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 10:18</a>
+百合楼正在吉列辱骂🐔对祥子内部恨，我不好说，觉得还是爱的，但是这种爱比恨还可怕，是溺爱，控制欲的爱， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">病态的作者团和倒霉的角色与皮下，我说实话这种爱作为个看番玩游戏无数的人来说，真的是很可怕的东西，有时候公事公办能更从场外考虑的工作型作者团更好吧
+
+*****
+
+####  adretyu67.  
+##### 29742#       发表于 2025-2-26 10:45
+
+睦对祥子的依附性太强了，所以多个莫走出去我是支持的。
+
+但是跑掉一个睦头又来一个初华，我劝大祥老师还是早点交门钥匙吧
+
