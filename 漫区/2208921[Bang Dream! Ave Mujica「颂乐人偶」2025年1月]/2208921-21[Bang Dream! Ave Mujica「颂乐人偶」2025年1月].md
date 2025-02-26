@@ -3061,3 +3061,39 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  号为熊  
+##### 29869#       发表于 2025-2-26 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522922&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-26 15:06</a>
+
+我觉得应该是先有mygo剧本，后有mujica剧本，再有mygo动画制作，最后是mujica动画制作。
+
+写mygo剧本的时候 ...</blockquote>
+B站有考据，绫奈大概是在22年底到23年初的时候完成的MyGO第13集脚本，随后转入Mujica以及其他项目
+
+大概推了一下时间线，Mujica写脚本的时候MyGO应该已经在做了
+
+*****
+
+####  Lawliet.L  
+##### 29870#       发表于 2025-2-26 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523496&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-26 16:19</a>
+
+那可能性确实很大，毕竟是成熟商法
+
+就是不知道会补谁的剧情</blockquote>
+希望是蜘蛛侠<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 29871#       发表于 2025-2-26 16:27
+
+说句实话，哪怕是出个mujica之谜暴露版剪辑不也只会让本来就无法理解的行为变成更没办法理解的脑回路问题吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
