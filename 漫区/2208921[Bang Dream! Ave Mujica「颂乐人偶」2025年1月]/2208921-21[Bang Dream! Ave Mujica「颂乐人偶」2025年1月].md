@@ -3734,3 +3734,22 @@ TFT 這純粹是滑坡
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  猫执事  
+##### 29934#       发表于 2025-2-26 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524726&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-26 18:57</a>
+
+从整个动画的剧情来说，mortis这个角色就不应该出现，祥厨对mujica动画的期望至少是大祥传吧，然后多重人格 ...</blockquote>
+开播前我预期各个角色花式拷打祥子，结果第四集全让莫提斯一人拷打完了
+
+
+*****
+
+####  zhoujin8584  
+##### 29935#       发表于 2025-2-26 19:20
+
+按需灵活变通，毒唯的时候直球辱骂，拉瓜的时候阴湿铁暗恋，打cp战的时候拆莫的cp养不熟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
