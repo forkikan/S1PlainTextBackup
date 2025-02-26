@@ -4630,3 +4630,17 @@ onp，还有一首mygo的TFT哦</blockquote>
 
 看了一眼外面，今晚是潜在表明啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26994#       发表于 2025-2-26 08:46
+
+MyGO!!!!!上TFT唱什么？
+肯定是迷星叫吧，毕竟是第一首歌
+壱雫空作为动画op也是实至名归
+穿这套衣服唱端程山也不错
+总不能是春日影（MyGO!!!!! ver.）
+卧槽怎么唱潜在表明<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1a6798868dd65eb6acf58208448543e4/E834DFD0DF9972A94C1EC2E8EEA89DDF.jpg" referrerpolicy="no-referrer">
+
