@@ -2721,3 +2721,34 @@ M和A的风格差别太大了，难以理解做成双生企划的理由，难道
 
 而且姛本身就是彩虹的一部分了
 
+
+*****
+
+####  adretyu67.  
+##### 29839#       发表于 2025-2-26 15:00
+
+同居结局大概率是假的。以后还是还得进手游呢，真没法锁这么死吧
+
+*****
+
+####  595505568  
+##### 29840#       发表于 2025-2-26 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522879&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-26 15:00</a>
+同居结局大概率是假的。以后还是还得进手游呢，真没法锁这么死吧</blockquote>
+花音和千圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，手游同居人，没想到吧
+
+
+*****
+
+####  huxiaopao163  
+##### 29841#       发表于 2025-2-26 15:06
+
+我觉得应该是先有mygo剧本，后有mujica剧本，再有mygo动画制作，最后是mujica动画制作。
+
+写mygo剧本的时候还没有睦太多设定，只是个配角，到把睦作为主角写的mujica剧本写作时，有了一些详细的设定，然后再反哺mygo剧本丰富一下小睦的前期剧情。
+
+最后等剧本都确定后，才开始正式制作动画。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

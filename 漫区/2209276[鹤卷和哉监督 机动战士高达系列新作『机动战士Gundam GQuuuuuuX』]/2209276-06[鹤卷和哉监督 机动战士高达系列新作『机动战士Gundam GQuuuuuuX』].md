@@ -2902,3 +2902,21 @@ AZ一开始都在吹虚渊吧，泥潭没多少虚厨吧<img src="https://static
 安彦不在的时 ...</blockquote>
 是的，一直到下地球前的节奏非常紧凑，倒是在地球的剧情比较像古早机器人动画
 
+
+*****
+
+####  刺客ares  
+##### 7643#       发表于 2025-2-26 15:03
+
+最终会在创新三人关系性上翻车吗榎戸gg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 7644#       发表于 2025-2-26 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67522340&amp;ptid=2209276" target="_blank">Dr.Wondering 发表于 2025-2-26 13:55</a>
+
+这怎么和az扯上关系的？az双男主不都对公主没多大感情，反过来也一样，甚至互相之间也没擦出啥火花连轻bl ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊奈帆还能说没多大，斯雷因我印象里舔飞了吧
+
