@@ -4652,3 +4652,13 @@ MyGO!!!!!上TFT唱什么？
 
 羊姐发挥最好的就是几首念诗吧，这首和音一会上谁都很稳，而且特色十分鲜明。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 26996#       发表于 2025-2-26 12:37
+
+武士道骗钱的东西来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+全是卡面，不知道是不是七个乐队都出，除hhw外都打算两抽拿个表情包停手
+<img src="https://p.sda1.dev/22/65da5f5bad6cca51237a4c9081b2639a/937be499-c4ee-4e4a-976e-30c00cdc4d2c.png" referrerpolicy="no-referrer">
+
