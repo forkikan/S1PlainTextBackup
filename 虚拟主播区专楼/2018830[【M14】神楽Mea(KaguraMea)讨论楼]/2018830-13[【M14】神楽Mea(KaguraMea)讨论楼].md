@@ -2880,3 +2880,14 @@ rank里面只剩野兔子
 这样会是这边的结局吗?连最后的一点幻梦都做不得?</blockquote>
 至于吗，你是新粉吗，这种屁大的事也能喘不过气
 
+
+*****
+
+####  十九号大侠  
+##### 18105#       发表于 2025-2-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519552&amp;ptid=2018830" target="_blank">往世雷书 发表于 2025-2-26 09:08</a>
+
+至于吗，你是新粉吗，这种屁大的事也能喘不过气</blockquote>
+这哥们一直是转播间的实时翻译呀
+

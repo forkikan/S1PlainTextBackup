@@ -1586,3 +1586,66 @@ ave就完全上太空了
 
 但是跑掉一个睦头又来一个初华，我劝大祥老师还是早点交门钥匙吧
 
+
+*****
+
+####  K·os  
+##### 29743#       发表于 2025-2-26 10:46
+
+在这个片场的每个人都是正常业界熟手，正常干活都是会干的
+是武士道的方针让他们放开搞，那只要是创作者，放开搞都会起飞的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 29744#       发表于 2025-2-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67520219&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 10:18</a>
+
+百合楼正在吉列辱骂🐔对祥子内部恨，我不好说，觉得还是爱的，但是这种爱比恨还可怕，是溺爱，控制欲的爱， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你能从柿÷的访谈里感受到对这个角色的爱你是这个👍 
+
+*****
+
+####  K·os  
+##### 29745#       发表于 2025-2-26 10:48
+
+爱一个角色不代表让这个角色过好日子，这种道理，坛友还会不懂吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Raven314  
+##### 29746#       发表于 2025-2-26 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519981&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-26 09:57</a>
+要是初华没有这个深情到逆天的人设，她也不可能帮祥子，邦邦其他cp还多少带点乱炖，初华对祥子的绑定属性估 ...</blockquote>
+那你是没看到nga和wb，全是在喷初华塑造单薄全靠关系性推剧情
+wb还有自称初华单推的想要wsd解绑初祥<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+nga昨晚上就从一个害意发散到初华对睦灯有杀意，甚至÷字辈准备好要往上初华头上套了
+
+*****
+
+####  南宮凝香  
+##### 29747#       发表于 2025-2-26 10:53
+
+離母雞卡片場越近， 角色越不幸
+
+*****
+
+####  南宮凝香  
+##### 29748#       发表于 2025-2-26 10:54
+
+<blockquote>595505568 发表于 2025-2-26 10:38
+那有个人应该会被翻译成舞或者呗之类的吧，怎么就一个初歌…感觉好怪</blockquote>
+
+祥子的世界觀只有歌， 沒有舞
+
+被歌霸佔一生
+
+初次的歌 比 初次的花 適合樂隊多了
+

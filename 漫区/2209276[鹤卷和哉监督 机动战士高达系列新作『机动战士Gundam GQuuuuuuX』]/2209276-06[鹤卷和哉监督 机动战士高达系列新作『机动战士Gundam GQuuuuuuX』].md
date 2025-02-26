@@ -2668,3 +2668,14 @@ MAV的灵感果然是阿姆罗和拉拉吗……
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  王留美  
+##### 7623#       发表于 2025-2-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67519735&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-2-26 09:30</a>
+
+新人看0079主张是补背景设定和角色关系吧，为了梗而补有点本末倒置。我在TVB看重播也记不清这些类似跑龙套 ...</blockquote>
+不用特别去记啊，有个大概的印象就好了，回头看的时候就会有“啊！”的感觉
+
