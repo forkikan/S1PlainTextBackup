@@ -836,3 +836,13 @@ zt:DeepSeek首日开源引硅谷深夜炸锅
 我们公司总部（央企）搞了两年的大模型，DS出来直接被搞蒙了，现在正在研究干脆放弃自家那一套烂玩意，全面 ...</blockquote>
 啊，央企？现在这边基层都在来培训怎么用来办公了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 74#       发表于 2025-2-26 20:10
+
+deepgemm 也很强，这帮人完全可以 自己做驱动了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

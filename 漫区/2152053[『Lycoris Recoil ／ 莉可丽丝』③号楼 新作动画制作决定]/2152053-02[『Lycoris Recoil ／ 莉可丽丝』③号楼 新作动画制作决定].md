@@ -129,3 +129,11 @@ AI黑白图一方面风格不像彩图那么明显，另一方面数量少，我
 <img src="https://p.sda1.dev/22/14b3d87838762030386791d8f6cb12c6/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/1260867484fda8b0bd70b65a0cfcc952/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2082#       发表于 2025-2-26 20:16
+
+打牌声优有时间了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
