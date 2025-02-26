@@ -1881,3 +1881,77 @@ ave是初祥睦主体，之所以剧情一直难有进展，主要是主唱一�
 可能M和A一开始是平行企划，CCC是后来想出来的，这样二者才有了交集</blockquote>
 我看访谈，一开始就是C团解散，变成2个团的故事。
 
+
+*****
+
+####  Lawliet.L  
+##### 29768#       发表于 2025-2-26 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521379&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-26 12:02</a>
+
+我看访谈，一开始就是C团解散，变成2个团的故事。</blockquote>
+M和A的风格差别太大了，难以理解做成双生企划的理由，难道是在执行过程中大改？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 29769#       发表于 2025-2-26 12:10
+
+按照塔罗牌的设定，CCC是零号牌“愚者”，迷子和A团则是由“愚者”分裂出的“女祭司”和“魔术师”，所以她们的关系应该是一早就确定好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/f48e672e107946255ddcefdf428b8c46/image.jpg" referrerpolicy="no-referrer">
+
+图源萌战吧神秘学假药贴<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  K·os  
+##### 29770#       发表于 2025-2-26 12:10
+
+看似差别很大，其实底层逻辑是一样的
+就是“关系不好的乐队”
+风格差别那是商业上的考量
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  一心而用  
+##### 29771#       发表于 2025-2-26 12:13
+
+三把🎸
+<img src="https://p.sda1.dev/22/76f2b60975276fc7f86f057b1be4ac13/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/228fbee60be02abe9d9dedadfce48c14/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b4a0119ff1e78c6d7ae98b1c9de0a5f1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 29772#       发表于 2025-2-26 12:13
+
+三↑角↓初↑华↓！ 
+为什么大象老师一找你组乐队就同意了？
+为什么你留着大象同居一个月？
+为什么你对灯睦抱有害意？
+（一号选手丰川清告起跑）别再说了！
+答案只有一个！
+（二号选手丰川老头开迈巴赫）闭嘴啊！
+三↑角↓初↑华↓！
+（三号选手丰川祥子后知后觉的起跑）
+你就是丰川祥子的小姨啊！（狂笑）
+（一二号选手假赛停在了路中央） （三号选手丰川祥子举起了奖杯若叶睦）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kk霖洞九  
+##### 29773#       发表于 2025-2-26 12:14
+
+所以现在剧情是一转FLIP FLAPPERS后半段了吗 谁是小姨?
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
