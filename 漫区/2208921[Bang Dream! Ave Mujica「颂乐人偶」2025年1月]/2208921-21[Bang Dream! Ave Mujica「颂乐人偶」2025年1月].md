@@ -4020,3 +4020,24 @@ crychic是工作，mygo才是生活啊！<img src="https://static.saraba1st.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 29958#       发表于 2025-2-26 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525039&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-2-26 19:50</a>
+TFT怎么又上MYGO了，之前NGA的邦邦版那帮游戏粉说的因为只能上一个团所以选了GO和MUJICA都有人的C团这个解 ...</blockquote>
+现在解释是每个主唱两次，搞不好sumimi也会上
+
+五人团是游戏限制，除非改变游戏机制，否则祖宗之法改不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 29959#       发表于 2025-2-26 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说只有我觉得C团3人司马脸带感么
+
