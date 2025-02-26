@@ -3085,3 +3085,20 @@ king今天都不在
 
 韩国人草
 
+
+*****
+
+####  sino__unnko3  
+##### 18125#       发表于 2025-2-27 02:00
+
+录播被版权了吗，最后这段消音了？还是app bug
+
+*****
+
+####  术士q  
+##### 18126#       发表于 2025-2-27 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526903&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-2-27 02:00</a>
+录播被版权了吗，最后这段消音了？还是app bug</blockquote>
+应该是消音了?下播前咩是有在最后告别的
+
