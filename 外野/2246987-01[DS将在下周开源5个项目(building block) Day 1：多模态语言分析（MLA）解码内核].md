@@ -1097,3 +1097,14 @@ app 改内核代码这种正常路子没法搞，可以理解为自己魔改了�
    等于是DS相当于手机APP，这个APP发现安卓系统的运行问题，就改了安卓系统，让系 ...</blockquote>
 APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层逻辑然后发现了一个非常不合理的运作方式，就自己打了个非官方补丁把这个问题修复了。
 
+
+*****
+
+####  moekyo  
+##### 96#         楼主| 发表于 2025-2-27 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526239&amp;ptid=2246987" target="_blank">一座恐怖屋 发表于 2025-2-26 22:58</a>
+
+我的意思是目前我用了一个叫GPT4all的工具，里面可以随时选择下载集成ai模型在本地，所以我想问的是这些 ...</blockquote>
+本周DS开源的这些东西，压根就不是给一般个人用户准备的，用来尽可能榨取出硬件的潜力，属于最上游的部份了，你说的写代码之类就属于最下游的基于大模型的生产和应用了。如果你想体验最新的模型写代码的话，现在最大路的就是充钱用cursor了，一个月20刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
