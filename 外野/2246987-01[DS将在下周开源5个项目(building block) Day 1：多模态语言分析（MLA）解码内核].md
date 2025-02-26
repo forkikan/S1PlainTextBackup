@@ -930,3 +930,29 @@ DeepGEMM里面有个细节，ds发 ...</blockquote>
 
 老黄一边吹嘘AI，他手底下的人一边给他糊弄事。
 
+
+*****
+
+####  FeteFete  
+##### 82#       发表于 2025-2-26 21:46
+
+<blockquote>燕山雪 发表于 2025-2-26 21:34
+还没时间看代码，如果deepgemm真如他们说的是jit，那真的牛逼。顺便转个推∶
+
+DeepGEMM里面有个细节，ds发 ...</blockquote>
+看了源代码有点哈人 上一次看到了类似风格的 是猜测英伟达某代显卡鸡寄存器级别的调度风格 用代码实现寄存器流水
+
+*****
+
+####  云卷花开  
+##### 83#       发表于 2025-2-26 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525753&amp;ptid=2246987" target="_blank">燕山雪 发表于 2025-2-26 21:34</a>
+还没时间看代码，如果deepgemm真如他们说的是jit，那真的牛逼。顺便转个推∶
+
+DeepGEMM里面有个细节，ds发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞄了一眼，还真是这样干的，我都能想到写这玩意的开发发现这事的时候有多恶心了
+不过比起他们咋干的我更好奇他们为啥这样干，是专门有人评估理论性能来定 kpi，奔着极限优化走的嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

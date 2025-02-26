@@ -4226,3 +4226,20 @@ mggm不吃鸡蛋我是不信的
 <img src="https://p.sda1.dev/22/07da8661176c4ec9befe807976ebda98/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/6c5a1c740dbd17853c0ebb286d9a5829/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 29978#       发表于 2025-2-26 21:48
+
+刚洗澡的时候想了想，鸡狗完全就够改头换面的（东）京圈格格故事，王健林孙女跟姜文女儿从小一起玩，后来又在某某附中认识了中关村某大佬的姑娘，后面成立新团也是京城摇滚圈子的红人和力捧的俩小花，也亏得一帮男大男高看得下去
+
+*****
+
+####  595505568  
+##### 29979#       发表于 2025-2-26 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525827&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-26 21:48</a>
+刚洗澡的时候想了想，鸡狗完全就够改头换面的（东）京圈格格故事，王健林孙女跟姜文女儿从小一起玩，后来又 ...</blockquote>
+八点档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，早说了八点档，换皮二次元罢了，不过说实话，偶像动画走向八点档也不是啥奇怪情况吧（
+

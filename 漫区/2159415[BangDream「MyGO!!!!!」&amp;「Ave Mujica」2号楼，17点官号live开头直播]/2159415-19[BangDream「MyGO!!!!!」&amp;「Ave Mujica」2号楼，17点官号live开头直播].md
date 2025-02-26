@@ -4705,3 +4705,12 @@ MyGO!!!!!上TFT唱什么？
 
 TFT版本听完后再去听CD版，wsd的混音是真的一坨（）
 
+
+*****
+
+####  CyDiablo  
+##### 27000#       发表于 2025-2-26 21:50
+
+潜在表明最好的还是live版<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">喜欢🐏姐一边晃悠一边嚎。
+这次也不错吧，念诗还是舒适区，希望能有200w播放
+
