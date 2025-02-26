@@ -3798,3 +3798,84 @@ MUJICA中期总结，盘盘《颂乐人偶》方针上存在的四大问题
 
 2025-2-26 19:31 上传
 
+
+*****
+
+####  是谁的书画  
+##### 29938#       发表于 2025-2-26 19:34
+
+我就怎么说吧，虽然我天天口嗨爽姐，但我觉得爽姐是五个人里面在mygo最稳定的。
+
+试问团里点将，谁现在日子过得最滋润？当然是爽姐。
+
+在mygo里头只要一不爽就可以摆出一副寡妇做派对谁都可以嘶牙咧嘴，想撒泼就撒泼，想求抱抱就得抱抱。
+
+mujica还得装模做样惺惺作态，回来mygo这才能叫小姐回家啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 29939#       发表于 2025-2-26 19:36
+
+<img src="https://p.sda1.dev/22/9208dcbe982359ca6785c78e37c26540/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 29940#       发表于 2025-2-26 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在已经到初华私生女说了么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  天空塔书记官  
+##### 29941#       发表于 2025-2-26 19:41
+
+希望木谷老登到时候别被打就行
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenqqex  
+##### 29942#       发表于 2025-2-26 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67524867&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-26 19:24</a>
+nbht固定三连：
+
+①我带你们吹→</blockquote>
+牛逼火腿反买，这下稳了
+
+
+*****
+
+####  Onelooker  
+##### 29943#       发表于 2025-2-26 19:44
+
+嚯嚯嚯，快闪还有野怪刷的哦
+
+*****
+
+####  老贝  
+##### 29944#       发表于 2025-2-26 19:44
+
+3月22那会儿只剩最后一集没播了吧，该跑的应该都跑了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 29945#       发表于 2025-2-26 19:47
+
+为了玩HBR五中一周没看动画，打算明天一起看，现在是什么版本了？
+
+看了下剧透看来之前的舅舅剧透基本都中了嘛，上集海喵对谈，睦要祥子复活C团，第9话就是素世立希拒绝，灯犹豫
+
+是不是初华有两个或者小姨都是真的了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
