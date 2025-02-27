@@ -13183,3 +13183,236 @@ ptt已经差评居多了<img src="https://static.saraba1st.com/image/smiley/face
 
 mortis有了自我，为了求生拼命演睦，劝祥子组mujica。和原本没有自我，一举一动都是演技的无面睦是两种境界。从第三集开始就被后者震撼到ptsd的喵梦看到前者蹩脚的苦情戏，自然觉得恶心了
 
+
+*****
+
+####  car123  
+##### 30833#       发表于 2025-2-28 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537347&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-2-28 01:03</a>
+
+你回去看mygo就是你的不对了
+
+把乐子变成苦涩味
+
+乐就要失心疯，这季度所有人都不是人了，你还去看她们还是 ...</blockquote>
+回去看到第十二集灯的那句“再也不会放开手”真的想哭，mujica里就被夺舍成只会企鹅叫的工具人了。
+
+不得不回去看，mygo对我就像c团一样，是忘不了的白月光啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 30834#       发表于 2025-2-28 01:06
+
+春日影破防之后出门泪奔抬头就是sumimi的小曲，初华是她交际圈里的音乐人
+母鸡卡1.0组团的目的就是大祥的私心想忘却关于ccc的一切，这也就是为什么初华听了直接想要摔睦头了
+
+*****
+
+####  一心而用  
+##### 30835#       发表于 2025-2-28 01:07
+
+刚刚看到
+<img src="https://p.sda1.dev/22/0b6092e2136c5ad782eb5c153650153f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 30836#       发表于 2025-2-28 01:07
+
+<img src="https://p.sda1.dev/22/65541dac619c2bf76b05d06652fda5b5/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 30837#       发表于 2025-2-28 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537383&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 01:07</a>
+刚刚看到</blockquote>
+好/坏消息：只有4集可以赤了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  枪聆弹语  
+##### 30838#       发表于 2025-2-28 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MGGM来华真被捅了，能不能变成历史事件
+
+*****
+
+####  一心而用  
+##### 30839#       发表于 2025-2-28 01:09
+
+官方fanart
+<img src="https://p.sda1.dev/22/eebcf3dd579ed49602eb1b416b4a7af2/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30840#       发表于 2025-2-28 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537351&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:03</a>
+我不是在和你讨论剧中角色到底是什么样，因为对我来说完全不可信的角色没有任何让我进入剧中世界去分析的 ...</blockquote>
+啊…这，这不就是为了烂炒吗
+
+对于ave来说，烂炒才是从始至终的重点
+
+过激是演出过度的问题，但从人物塑造来说其实没什么毛病
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<blockquote>ave的一切操作都是围绕着延长热度期和增加热度点来展开的</blockquote>
+这就是我讨论问题的前提
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 30841#       发表于 2025-2-28 01:09
+
+灯祥素睦海希都有杂志双人图了，剩下四个没得消化了（
+
+*****
+
+####  JustW  
+##### 30842#       发表于 2025-2-28 01:09
+
+祥子是因为恨mygo而建立母鸡卡这点没毛病吧，mygo里不就是这么演的，不如说母鸡卡开播后我才知道原来很多人不是这么想的
+
+*****
+
+####  Lyzers  
+##### 30843#       发表于 2025-2-28 01:10
+
+唉，确实也可惜，狗时期短短几句话就能写出来一个值得回味又讨喜的角色，鸡把这样的角色和他们带出来的故事毁了个一干二净
+
+*****
+
+####  影伴光生  
+##### 30844#       发表于 2025-2-28 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537401&amp;ptid=2208921" target="_blank">枪聆弹语 发表于 2025-2-28 01:08</a>
+MGGM来华真被捅了，能不能变成历史事件</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以百联ZX那个人流密度，铜仁之后想跑路是不大可能的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  最近卡池有毒吧  
+##### 30845#       发表于 2025-2-28 01:11
+
+<img src="https://p.sda1.dev/22/83d00aa42f26e90fda409ef23482d947/IMG_6AD9F8F06D55A2F183A6620D2661B95E.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 30846#       发表于 2025-2-28 01:11
+
+<blockquote>JustW 发表于 2025-2-28 01:09
+祥子是因为恨mygo而建立母鸡卡这点没毛病吧，mygo里不就是这么演的，不如说母鸡卡开播后我才知道原来很多人 ...</blockquote>
+我一开始的理论是被mygo刺激到了所以也想要个归属，但现在这些疑惑随着角色崩塌一起消散了（
+
+*****
+
+####  adretyu67.  
+##### 30847#       发表于 2025-2-28 01:11
+
+祥不就是听mygo春日影破防了所以组乐队吗。有啥好奇怪的。
+
+只不过她的做法完全不像是对mygo复仇的样子，更像是做出成绩满足自己。
+
+*****
+
+####  北条早苗  
+##### 30848#       发表于 2025-2-28 01:11
+
+wsd也是神人了，爱音约的公式fanart正好是和破防脸初华一起，太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30849#       发表于 2025-2-28 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537430&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-28 01:11</a>
+
+wsd也是神人了，爱音约的公式fanart正好是和破防脸初华一起，太变态了</blockquote>
+有一说一，这话初华的破防脸做的很真实。应该是真满意。
+
+
+*****
+
+####  天空塔书记官  
+##### 30850#       发表于 2025-2-28 01:13
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 01:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537414&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:09</a>
+祥子是因为恨mygo而建立母鸡卡这点没毛病吧，mygo里不就是这么演的，不如说母鸡卡开播后我才知道原来很多人 ...</blockquote>
+祥子不是恨迷子，而是在逃避和否定之前的自己，而且组建新乐队不是在迷子春日影后才有的想法，大概还是与所谓“对赌协议”有关，这个就看之后怎么解释了
+
+也就是在春日影之前，ave只是个提案，在受到刺激后，才变成了现实<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DeltaStriker  
+##### 30851#       发表于 2025-2-28 01:14
+
+可惜吗 当导演编剧都不尊重角色 把角色全部粉碎的时候 我不觉得角色本身有什么可惜的 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  JustW  
+##### 30852#       发表于 2025-2-28 01:14
+
+<blockquote>adretyu67. 发表于 2025-2-28 01:11
+祥不就是听mygo春日影破防了所以组乐队吗。有啥好奇怪的。
+
+只不过她的做法完全不像是对mygo复仇的样子，更 ...</blockquote>
+因为第二季开始祥子变成了上了武道馆也丝毫不满足的工作机器+控制狂，她到底想搞什么就谁也不知道了。只看第一季的话听春日影哭跑、找初华忘记一切、输出soyo、组建母鸡卡一套连招下来，肯定是自己破防了…
+
+*****
+
+####  JustW  
+##### 30853#       发表于 2025-2-28 01:16
+
+<blockquote>天空塔书记官 发表于 2025-2-28 01:13
+祥子不是恨迷子，而是在逃避和否定之前的自己，而且组建新乐队不是在迷子春日影后才有的想法，大概还是与 ...</blockquote>
+
+能别把你脑子里的东西当成大家都看过的动画内容的一部分来讨论吗，别人都不知道该怎么回你
+
+*****
+
+####  الطائر  
+##### 30854#       发表于 2025-2-28 01:16
+
+[https://x.com/mygo_itumo](https://x.com/mygo_itumo)
+[https://x.com/anon_dwbh](https://x.com/anon_dwbh)
+[https://x.com/uika_winwing](https://x.com/uika_winwing)
+
+*****
+
+####  盐盐盐盐盐  
+##### 30855#       发表于 2025-2-28 01:17
+
+祥子破防逃避组am这剧情倒没什么问题啊，总比自己退出自己破防还要复仇好点，但是莫得加入导致这故事现在没个合适的结束点了，你说搞复仇吧俗是俗了好歹目标明确就是和go团解决问题，莫这要素加进来以后各种折腾目标不明确了
+
+*****
+
+####  YF31  
+##### 30856#       发表于 2025-2-28 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537414&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:09</a>
+
+祥子是因为恨mygo而建立母鸡卡这点没毛病吧，mygo里不就是这么演的，不如说母鸡卡开播后我才知道原来很多人 ...</blockquote>
+这个小破乐队到底有什么值得她恨的我请问了，完全是柿畜自己脑子有病呕吐出来的一摊。
+

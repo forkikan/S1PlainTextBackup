@@ -2554,3 +2554,46 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 没想到开播前预告图是在这里回收吧。
 <img src="https://p.sda1.dev/22/d8f63ae0588f7b10dd6161d9507a031e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 282#       发表于 2025-2-28 01:07
+
+<img src="https://p.sda1.dev/22/2df5b010a5a390b8462d031905eaaf4e/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Duc_d'_Muka  
+##### 283#       发表于 2025-2-28 01:12
+
+ 本帖最后由 Duc_d'_Muka 于 2025-2-28 01:13 编辑 
+
+笑死，🐘混到现在地位连种命的鸟都不如，这个角色从第四集往后就不存在任何主观能动性了
+
+一部主角都不存在主观能动性的片还有必要存在么？
+
+*****
+
+####  ArcadiaMartyr  
+##### 284#       发表于 2025-2-28 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸟好歹犯病真的把鸡给击落了一次，这祥子是有啥战绩啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yaneis  
+##### 285#       发表于 2025-2-28 01:15
+
+还真没有，连木头都不是她杀的（
+
+*****
+
+####  shinoverse  
+##### 286#       发表于 2025-2-28 01:15
+
+现在才弃番岂不是既吃了翔又没看完乐子？不如往下看看这帮人还能整出什么活
+
