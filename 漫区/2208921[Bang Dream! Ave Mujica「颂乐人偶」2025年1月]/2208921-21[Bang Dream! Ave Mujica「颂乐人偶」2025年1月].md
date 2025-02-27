@@ -5414,3 +5414,73 @@ CCC终究只是一场梦，相遇是场巧合，散了就是散了，它固然�
 
 这么看来，百万爱音厨爆炸得很合情合理啊，mygo第9话爱音爆炸最关键原因其实也还是crythic，尤其是小灯疑似更喜欢crythic。
 
+
+*****
+
+####  adretyu67.  
+##### 30080#       发表于 2025-2-27 16:22
+
+ccc诈尸对mygo的存续动机有重大打击，没啥办法。
+
+最关键的，爱音没有选择权。
+
+她只能等灯选择或者放弃ccc
+
+
+*****
+
+####  595505568  
+##### 30081#       发表于 2025-2-27 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实你真要说的话，爱音在1-7展现出来的乐队归属感和为了维持乐队的参与感很低（其实游戏里现在也不算太投入），我没理解有什么可破防的，她也没在乎过无名乐队能维持多久（你自己说的下次Live之后再看的不是吗）
+
+*****
+
+####  adretyu67.  
+##### 30082#       发表于 2025-2-27 16:25
+
+爱音回狗团不还是灯拉的。
+
+虽然走个过场，但是过场也是很重要的。
+
+就算明天可能要当牛夫人，那今天的小甜甜还是得喊。
+
+*****
+
+####  钦念以忱  
+##### 30083#       发表于 2025-2-27 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531198&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-27 16:23</a>
+
+其实你真要说的话，爱音在1-7展现出来的乐队归属感和为了维持乐队的参与感很低（其实游戏里现在也不算太投 ...</blockquote>
+但爱音很喜欢灯和素世的，结果素世是个大骗子欺骗了爱音感情，灯也是个小骗子张口一辈子结果还忘不了crythic
+
+*****
+
+####  刑部姬真可爱  
+##### 30084#       发表于 2025-2-27 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531107&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-27 16:11</a>
+
+其实最好笑的事情是，立希11话会察言观色，结果第九话对峙的时候，没有听出素世离开前那句话里有哽咽，也 ...</blockquote>
+也可能是素世经常“骚扰”立希给立希弄烦了，也就睦头缺个关心自己的妈，不然素世这种不断用某件往事去打扰别人的行为确实挺烦的<img src="https://static.saraba1st.com/image/smiley/carton2017/475.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 30085#       发表于 2025-2-27 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531218&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-27 16:25</a>
+但爱音很喜欢灯和素世的，结果素世是个大骗子欺骗了爱音感情，灯也是个小骗子张口一辈子结果还忘不了cryt ...</blockquote>
+
+素世前几话就已经在“重新开始吧”，这不是早就有盘算了（
+
+*****
+
+####  595505568  
+##### 30086#       发表于 2025-2-27 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531233&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-27 16:27</a>
+也可能是素世经常“骚扰”立希给立希弄烦了，也就睦头缺个关心自己的妈，不然素世这种不断用某件往事去打 ...</blockquote>
+然后Go动画里只要拉的到灯就能光速回来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有办法解释的
+
