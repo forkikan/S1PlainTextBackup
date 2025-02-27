@@ -4579,3 +4579,16 @@ Mana在剧情内的咖位可比鸡大多了……
 —— 来自 鹅球 v3.3.96</blockquote>
 就怕下一集再来个剧情补丁，SUMIMI里面也是MANA带初华飞
 
+
+*****
+
+####  syndrome2032  
+##### 30012#       发表于 2025-2-27 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527860&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-2-27 09:56</a>
+就怕下一集再来个剧情补丁，SUMIMI里面也是MANA带初华飞</blockquote>
+不用补丁，应该是。
+
+sumimi里主唱是甜甜圈。
+鸡团动画开始初华也表示过更喜欢鸡团(但是考虑到鸡团有祥子，所以不好说)
+
