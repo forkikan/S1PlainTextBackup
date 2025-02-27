@@ -1247,3 +1247,13 @@ parallism algorithm
 梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
 梁总：<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道啊 我找人来炒股票的
 
+
+*****
+
+####  lactone  
+##### 108#       发表于 2025-2-27 12:43
+
+这帮人最厉害的是，国内大厂很多其实就在搞业务整合，模式创新，有啥用啥，很少有像这帮人真正做深度底层的创新的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
