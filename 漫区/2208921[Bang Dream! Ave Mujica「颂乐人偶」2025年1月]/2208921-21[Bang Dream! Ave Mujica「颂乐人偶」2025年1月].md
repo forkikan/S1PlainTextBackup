@@ -4774,3 +4774,38 @@ mujica本来就演得支离破碎了，前几集还不多给点歌出来让大�
 
 就算是开播前已发布的歌曲，也可以在剧中提一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 30030#       发表于 2025-2-27 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528784&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-27 11:34</a>
+
+所以这个薛定谔的现实就很奇怪
+
+你说从一开始就是老登在坐镇
+
+那没理由喵梦能摘面具免责</blockquote>
+我又幻想了，幻想一切其实是大女主祥子的计谋，初华其实是祥子的棋子，老登要被祥子赶下家主之位了
+
+*****
+
+####  南宮凝香  
+##### 30031#       发表于 2025-2-27 11:47
+
+只有兩首歌的樂隊速通武道館
+
+當紅二人團隊只會Here， the World
+
+草台之世的體現
+
+*****
+
+####  K·os  
+##### 30032#       发表于 2025-2-27 11:47
+
+这种有几首歌的问题其实就和动画人物有一衣柜一样的衣服是一样的，总之就这么个意思，理解一下就是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
