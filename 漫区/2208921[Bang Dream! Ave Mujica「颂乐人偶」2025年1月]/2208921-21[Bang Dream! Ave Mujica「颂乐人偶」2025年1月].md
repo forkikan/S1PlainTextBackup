@@ -7120,3 +7120,47 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 太好啦，这气氛与刑场无异，是我最喜欢的肃杀之气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 30225#       发表于 2025-2-27 21:55
+
+看到现在，我已经不知道是喜欢的角色戏份少还是不喜欢的角色画面多更让人难受了，甚至开始思考明明对第7集非常不满却不但没弃反而每周四接着第一时间就看
+
+*****
+
+####  蓮華  
+##### 30226#       发表于 2025-2-27 21:56
+
+何魁要杀庞大人<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lawliet.L  
+##### 30227#       发表于 2025-2-27 21:59
+
+气氛紧绷<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fuwamoco  
+##### 30228#       发表于 2025-2-27 21:59
+
+第四集之后就是烂片了，早就是看乐子心态了。睦墨能活下来就算胜利
+
+
+*****
+
+####  新HGCG  
+##### 30229#       发表于 2025-2-27 22:00
+
+母鸡卡待机！
+
+*****
+
+####  阿兹尔  
+##### 30230#       发表于 2025-2-27 22:03
+
+一开始就笑出来了，难绷
+
