@@ -1169,3 +1169,14 @@ APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层�
 https://chat.qwen.ai</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实我用得最多还是千问，毕竟Deepseek一天只回我两条消息
 
+
+*****
+
+####  秦南心  
+##### 102#       发表于 2025-2-27 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527762&amp;ptid=2246987" target="_blank">a37356205 发表于 2025-2-27 09:43</a>
+
+其实我用得最多还是千问，毕竟Deepseek一天只回我两条消息</blockquote>
+秘塔搜索没什么限制
+
