@@ -7060,3 +7060,11 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 应该是木头人吧，现在和大象玩主从play的日常漏一点出来都能把某个留人一个月相敬如宾最后只能发几条短信收 ...</blockquote>
 讲个笑话，初华唯一一次成功推进好感度的互动，是莫老师教她的手法
 
+
+*****
+
+####  ape-apple  
+##### 30219#       发表于 2025-2-27 21:38
+
+看🐔厕真是惨，感觉厕妹有这种心态也是很少的了，没几个内部毒唯互殴的，都是抱团取暖，或者嘴🐶或者嘴C<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
