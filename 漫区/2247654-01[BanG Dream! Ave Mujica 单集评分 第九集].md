@@ -2657,3 +2657,23 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 你们还+2就是为虎作伥的**<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 这是什么？把卖狗的感动还给我呀！！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BloodWingS  
+##### 294#       发表于 2025-2-28 01:46
+
+口口声声说要拍惊声尖叫，结果拍出来是惊声尖笑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草化木  
+##### 295#       发表于 2025-2-28 01:52
+
+0分：
+
+-2分给叙事；
+
++2分给小墨，小墨可爱；
+

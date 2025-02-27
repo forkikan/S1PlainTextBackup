@@ -14143,3 +14143,265 @@ mygo里演的不是复仇也得是多少带点嫉妒吧，不然我是真搞不�
 
 说实话在有完美演技的世界观里谈空气吉他和录音的区别也挺那个的，Mortis靠演技一比一复刻睦弹吉他的所有动作细节，那么能弹出一样的声音也只是相应的结果罢了
 
+
+*****
+
+####  thisisaspider  
+##### 30928#       发表于 2025-2-28 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537653&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-28 01:38</a>
+
+上一次陪牢莫找小睦要爽姐三天三夜，那这次小睦打复活赛要爽姐几天几夜吧 ...</blockquote>
+爽姐不是0治疗量？全是猫猫奶的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30929#       发表于 2025-2-28 01:48
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 01:51 编辑 
+
+所以睦的表演天赋真的很恐怖，“莫提斯”完全不懂音乐只靠看录像短时间内就能模仿三首歌演奏到“节奏微妙对不上”的程度，这让哪个演员看了都会害怕
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qwased  
+##### 30930#       发表于 2025-2-28 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537721&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-28 01:47</a>
+对着录音练习假弹这事本身就很奇怪。Mujica又没有睦的吉他音源，如果真的让墨上去演出，难不成其他人都陪着 ...</blockquote>
+看着意思不是假弹，是完全模仿动作但她本身不懂吉他所以会有微妙的误差
+说实话太超能力了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 30931#       发表于 2025-2-28 01:50
+
+ 本帖最后由 KokutouMikiya 于 2025-2-28 01:51 编辑 
+
+动机其实就是个起点，这动画现在的问题是角色的行为逻辑稀烂，每个人都跟中了模因病毒似的所有行动只能导向一个目标，海铃的这个问题最明显，想要归宿就不管三七二十一必须复活鸡团，完全不具备人的情感和感知，对外界的事态刺激毫无反应
+
+*****
+
+####  adretyu67.  
+##### 30932#       发表于 2025-2-28 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537733&amp;ptid=2208921" target="_blank">qwased 发表于 2025-2-28 01:48</a>
+
+看着意思不是假弹，是完全模仿动作但她本身不懂吉他所以会有微妙的误差
+
+说实话太超能力了 ...</blockquote>
+其实是挺难的。因为鸡团迟早是要搞新曲的。新曲可没东西让你1：1妇科。
+
+不过现在是死马当活马医，到时候还说不准呢。
+
+*****
+
+####  北条早苗  
+##### 30933#       发表于 2025-2-28 01:51
+
+海铃就是教牢莫卡bug啊，弹吉他这模块是属于若叶睦这一个系统的，但是牢莫无权限调用，只有小睦才有。牢莫有权限调用的是演技，演的是执行弹吉他的小睦。这也就启发了她最后嘻嘻我要活下去的时候直接在脑内演多一个小睦
+
+*****
+
+####  非建政专用号  
+##### 30934#       发表于 2025-2-28 01:51
+
+我是不懂佑天寺若麦在破防什么，千早爱音都没急
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW  
+##### 30935#       发表于 2025-2-28 01:51
+
+说白了海铃上一集对Mortis说的本物就是这个意思，学会吉他=靠演技一比一完美复刻吉他睦的动作=成为吉他睦的本物，现实里只能弹空气吉他只是因为你演技不够厉害罢了！
+
+
+*****
+
+####  qlipho  
+##### 30936#       发表于 2025-2-28 01:52
+
+墨提丝才是万能之人，软弱小祥什么躺赢狗
+
+*****
+
+####  sauron.j  
+##### 30937#       发表于 2025-2-28 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537656&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-28 01:38</a>
+
+为了不被弹幕和评论影响，我特地是关弹幕观看的mujica第9话，我个人觉得是很好评。
+
+剧情将c团和ji团的矛盾 ...</blockquote>
+因为很多人真的用三倍速看番的，连台词都看不清也不复盘就去社区骂了
+
+*****
+
+####  KokutouMikiya  
+##### 30938#       发表于 2025-2-28 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537753&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-28 01:51</a>
+我是不懂佑天寺若麦在破防什么，千早爱音都没急
+
+—— 来自 S1Fun</blockquote>
+她只是以为睦那里又在演还演得天衣无缝，对比自己的演技破防了
+
+*****
+
+####  帆前  
+##### 30939#       发表于 2025-2-28 01:53
+
+这集出来，已经，已经没有办法再期待主线了，我看啊，最合适的看番姿势就是躺下看整活了。就当这是鸡狗十人演的八点档电视剧，刚出道只能摊到点抽象剧本，有的演就不错了，mana友情客串。
+
+这集是怎么做到让人感觉每个角色都很僵硬的？
+
+人物僵硬度排名：小睦主人格，海铃，初华，祥子，小灯，小莫，mygo其余人，结尾大喵，mana酱
+
+首先这个小睦啊，我们一般认为在一个不以多重人格为主题的非战斗剧里，角色的多重人格最终应该是为文戏的表达而服务的，也就是说多重人格可以负责推进一部分剧情，但最终还是要回到反映角色心理，喻示着角色心理困境的变化。
+
+但是mujica特别依赖以角色的多重人格推动剧情，这就是所谓倒果为因，角色的心理困境和角色的多重人格呼应关系反了过来，现在角色的多重人格挣扎是因，困境成了果了。
+
+这个写法本末倒置了，所以会有大量的违和感。
+<img src="https://p.sda1.dev/22/cc17d67f07b70dd56073bdcdb483744d/Screenshot_20250227_223653_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+本集就是想说，小睦主人格把自己存在的意义又锚到c团上了，她虽然是以祥子和c团众人幸福为主要追求的，但却也陷入了过去的障碍中，最后被小莫击溃。
+
+如果再用反映角色心理的说法，就是“若叶睦”在两个乐队的选择方面陷入了迷茫，一方面觉得自己担任不了mujica吉他手，一方面觉得复活c团也是难为人。所以会先希望祥子恢复c团，后来又后悔畏缩，社会角色混乱，最后，为了避免“祥子因为她而难为大家”，出言劝退。
+<img src="https://p.sda1.dev/22/5d3780998dbcb5c21343862fbbc51b96/Screenshot_20250227_223638_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+虽然文戏定位可以解释，但是就剧情定位而言，已经是多重人格问题倒果为因，甚至喧宾夺主了。
+
+本来可以解释为小睦的矛盾心理，但就表现而言，已经是双重人格争夺存在意义的战斗了。文戏被当做武戏写，小睦这个角色立得偏执片面，小莫这个角色又立得太晚，显得缺乏可信度。
+<img src="https://p.sda1.dev/22/5ca0e12039cf00018c2ff7820833d14e/Screenshot_20250227_223806_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+本集的冲突突出一个混乱，用意拍得不清不楚，各个角色抱着自己的执念挣扎一番，没有一个人是在解决了过去问题的基础上对自己将来想要什么有着清醒的认识，大家只是在躁动中盲动，为了情感和私欲而胡乱挣扎。
+
+本集大概是想说，初华为了“被祥子抛弃的不安”而行动，海铃为了“被立希质疑的焦虑”而行动，祥子为了“补偿mtm的愧疚”而行动，小睦为了“确定自己存在的意义”而行动，没有一个人充分理解了现状，全都在自顾自贯地试图彻自己的意志，而忽略了他人的诉求。
+<img src="https://p.sda1.dev/22/d694c583b1deb39a0a07a0a074cc46b9/Screenshot_20250227_223244_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+剧情倘若只是如此，也未尝不可写好，关键是角色行为太僵硬了，只关注自己目的而忽略对外界客观判断也要有个度，搞得跟角色大脑都是单线程似的。
+
+况且台词之僵硬，亦难让人和解。而且角色都有点超出日常范畴的过激，甚至算是角色崩坏了。1.小睦主人格急着要恢复c团，直接叫初华闭嘴，令人难以想象这是主人格干出来的事。2.小睦主人格才得到祥子复活c团的进展，就在和莫缇丝的争夺战中败溃，这其中的逻辑，令人感到缺乏文戏对理由的支撑。3.初华闪过推搡小睦的念头，也令人感到违和。4.祥子认定组乐队会让小睦难过，但却是小睦想做的事情，而mujica则是对小睦绝对的危害，所以她要为了从莫缇丝手中救出小睦不惜试图复活c团而避免mujica复活，这其中的逻辑也很强行。祥子的推理和她的认知，都很缺判断力，很不看场合。5.小灯看到小睦就邀请最后撞上初华，这段相遇也很强行套路，是在消费mygo巧遇情境。6.海铃为了证明自己值得信任，不惜辞退兼职乐队，然后破防，其行动的老练与做决策的轻率相违和，其情绪的爆发铺垫不足。
+<img src="https://p.sda1.dev/22/bfa354b3222f2e727e0692b2381f7cec/Screenshot_20250227_223214_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+剧情倘若只是如此，也只是角色崩点罢了，关键是这个主线越来越不可名状了，究竟是怎样的用意，是要写鸡五人最终意识到crychic只是过去，一起让mujica重生才是未来？还是小睦又一次的失落回归戏。
+
+第一集显示祥子是因为蝶团才组乐队的，为什么小睦说是因为小灯的歌词？自己的文前后不一致，放在以前还可猜是睦灯认知相约美化现实，现在就，不见得不是剧本bug。
+<img src="https://p.sda1.dev/22/2d5f9d03fc9674faacda3591d6fc2d34/IMG_20250227_222857.jpg" referrerpolicy="no-referrer">
+
+枉我当初还分析了一番
+<img src="https://p.sda1.dev/22/5ca0e12039cf00018c2ff7820833d14e/Screenshot_20250227_223806_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+结果初华悲伤只有粗暴简单的过程，并没有什么细腻的过程，实在令人失望，只能看这番怎么整活了
+
+*****
+
+####  zhoujin8584  
+##### 30940#       发表于 2025-2-28 01:54
+
+<blockquote>厄神之息 发表于 2025-2-28 00:48
+和小祥完全的双向误解，她觉得“小祥在ccc好幸福，为了小祥的幸福，我要重组ccc！”小祥觉得“木子米一定 ...</blockquote>
+上集是别的理由，吉他睦需要在人格吃鸡中胜利，需要完全杀死对莫提斯的需要，只有ccc能提供这个环境。这集是cp向的理由，两者不互斥
+
+*****
+
+####  非建政专用号  
+##### 30941#       发表于 2025-2-28 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537768&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 01:53</a>
+她只是以为睦那里又在演还演得天衣无缝，对比自己的演技破防了</blockquote>
+别搞兄弟，我打全名的时候都是在当串子编段子，打外号才是讨论剧情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 30942#       发表于 2025-2-28 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537614&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:32</a>
+
+当年步梦夹脚都有一些人觉得是不是太重了，你想像一下要是换成步梦脑内把雪菜推下楼梯会变成如何 ...</blockquote>
+在LL里面一定会炎上吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 30943#       发表于 2025-2-28 01:54
+
+就是写轮眼啊，纯纯的能看就能复制，佐助在中忍考试时候刷刷复制前面的人写考卷时候也不知道自己在写什么吊东西的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 30944#       发表于 2025-2-28 01:54
+
+海铃现在干的事就和当初爱音说灯也不想上台当理由一样，甚至偏执到拿队伍全退了这种伤害自己的方式要挟人，太可怕了。
+
+*****
+
+####  qwased  
+##### 30945#       发表于 2025-2-28 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537763&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-28 01:52</a>
+因为很多人真的用三倍速看番的，连台词都看不清也不复盘就去社区骂了</blockquote>
+认真的吗，这集有任何一处演出和台词值得细品吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30946#       发表于 2025-2-28 01:55
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 01:57 编辑 
+
+所以喵梦才不会认可“莫提斯”，她追求的是更加纯粹的表演，纯粹的艺术表达，是“真物”而不是“伪物”，能做到这点的除了“睦”大概也就只有“请神上身”的濑田薰了，期待他们之后的互动
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KokutouMikiya  
+##### 30947#       发表于 2025-2-28 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537774&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-28 01:54</a>
+别搞兄弟，我打全名的时候都是在当串子编段子，打外号才是讨论剧情
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30948#       发表于 2025-2-28 01:57
+
+一想到老团里真的有认真磨练演技的角色，然后同一世界观出了一个生来写轮眼还把自己搞到114514人格的角色，很难绷
+
+*****
+
+####  NEWROMANCER  
+##### 30949#       发表于 2025-2-28 01:57
+
+其实最后一段十人齐聚的戏还是有意思的，梅津朋美用她的分镜调度和ring的布景设置把喵梦这个旁观者一直藏了起来，直到最后才露面。
+还是希望梅津朋美以后能当监督吧。柿本广大以后就好好做神椿，让thinker这个谜语人炒作水晶贩子收了好了。
+
+*****
+
+####  江口夕  
+##### 30950#       发表于 2025-2-28 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537783&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 01:55</a>
+所以喵梦才不会认可“莫提斯”，她追求的是更加纯粹的表演，纯粹的艺术表达，是“真物”而不是“伪物”，能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是，动画压根没表现出来。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
