@@ -6999,3 +6999,44 @@ Soyo 又被Pua 了
 
 初华:我给你们治治风湿(物理)
 
+
+*****
+
+####  南宮凝香  
+##### 30213#       发表于 2025-2-27 21:04
+
+把人送到星星上的主唱
+
+*****
+
+####  DeltaStriker  
+##### 30214#       发表于 2025-2-27 21:09
+
+fly me to the star（物理）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  zhoujin8584  
+##### 30215#       发表于 2025-2-27 21:11
+
+三角初华：我刚刚成功阻止了一场针对你的白月光和青梅竹马的犯罪行为
+
+丰川祥子：怎么做到的？
+
+三角初华：靠我的意志力
+
+*****
+
+####  Alce79  
+##### 30216#       发表于 2025-2-27 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67533364&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-27 21:00</a>
+
+只要靠克制自己就能守护东京的蜘蛛侠，彼得帕克你就学吧
+
+—— 来自 S1Fun</blockquote>
+616的彼得帕克被编剧化身保罗牛走了女友，大家的日子都不好过。
+
