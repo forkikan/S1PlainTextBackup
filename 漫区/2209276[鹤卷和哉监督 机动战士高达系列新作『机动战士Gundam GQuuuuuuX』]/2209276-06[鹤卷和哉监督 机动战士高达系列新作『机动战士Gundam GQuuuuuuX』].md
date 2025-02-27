@@ -3196,3 +3196,14 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 
 然后我很仔细听了也没听见考据哥说的那个什么所罗门冲击时候的拉拉的声音（
 
+
+*****
+
+####  纪寞  
+##### 7670#       发表于 2025-2-27 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531759&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-2-27 17:27</a>
+
+然后我很仔细听了也没听见考据哥说的那个什么所罗门冲击时候的拉拉的声音（ ...</blockquote>
+其实他们说的拉就是背景音中那个"拉——拉——"，和修司玛秋kirakira背景音那个是一样的。发散到拉拉是他们自己认为的，但现在又说地球搞到我也不确定了。
+
