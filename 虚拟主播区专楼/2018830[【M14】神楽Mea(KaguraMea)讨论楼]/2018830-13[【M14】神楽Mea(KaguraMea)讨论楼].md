@@ -3102,3 +3102,14 @@ king今天都不在
 录播被版权了吗，最后这段消音了？还是app bug</blockquote>
 应该是消音了?下播前咩是有在最后告别的
 
+
+*****
+
+####  shmilyhua  
+##### 18127#       发表于 2025-2-27 12:56
+
+昨天（或者按UTC+9是今天）的twitch audio_only。
+cowtransfer.com 输入传输口令 n26l89 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
