@@ -4566,3 +4566,16 @@ weibo：纯白的冠冕</blockquote>
 
 奈何上層都是SB
 
+
+*****
+
+####  DD-963  
+##### 30011#       发表于 2025-2-27 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525453&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-26 20:50</a>
+
+Mana在剧情内的咖位可比鸡大多了……
+
+—— 来自 鹅球 v3.3.96</blockquote>
+就怕下一集再来个剧情补丁，SUMIMI里面也是MANA带初华飞
+
