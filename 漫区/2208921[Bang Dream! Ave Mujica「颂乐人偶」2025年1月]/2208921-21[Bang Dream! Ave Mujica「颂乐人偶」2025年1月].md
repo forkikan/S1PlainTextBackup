@@ -4690,3 +4690,56 @@ weibo：纯白的冠冕</blockquote>
 
 但是各路图透不都基本没她吗
 
+
+*****
+
+####  岬开斗  
+##### 30023#       发表于 2025-2-27 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527708&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-27 09:35</a>
+
+既然是大小姐过家家，那么大人们当然不可能把作为过家家一部分的难绷面具当回事，而且从结果上也确实皆大 ...</blockquote>
+问题不是家大人怎么想，而是喵梦怎么敢。
+
+*****
+
+####  与太郎  
+##### 30024#       发表于 2025-2-27 11:26
+
+话说mujica开播以来剧内出了几首a团自己的歌，说好的听歌共鸣角色呢
+
+*****
+
+####  与太郎  
+##### 30025#       发表于 2025-2-27 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528682&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-27 11:24</a>
+
+问题不是家大人怎么想，而是喵梦怎么敢。</blockquote><blockquote>喵梦摘面具剧情总让我觉得后面应该有一双大手操纵，不然祥子的掌控力废物不说，背后赞助商也没有合约吗
+
+但是又想了想，另一个背靠大厂的a团也让紫色短发轻易炸团了，只能说这个a团草台班子一下可能也不太奇怪吧</blockquote>
+Impossible is Nothing
+
+*****
+
+####  滑稽Captain  
+##### 30026#       发表于 2025-2-27 11:28
+
+有的事情可以逆输入，有些事不行的呀，乐队成员关系不太好一开始就是企划的底层逻辑了
+
+
+*****
+
+####  adretyu67.  
+##### 30027#       发表于 2025-2-27 11:30
+
+ 本帖最后由 adretyu67. 于 2025-2-27 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528701&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-27 11:26</a>
+
+话说mujica开播以来剧内出了几首a团自己的歌，说好的听歌共鸣角色呢</blockquote>
+KTV里反复2首复读
+
+看剧情里应该是还有一些，比如说全国巡演你就不可能就2首反复loop
+
+sumimi不更夸张，剧内都已经说sumimi的新歌了，但是至今剧外sumimi就只有那首here the world
+
