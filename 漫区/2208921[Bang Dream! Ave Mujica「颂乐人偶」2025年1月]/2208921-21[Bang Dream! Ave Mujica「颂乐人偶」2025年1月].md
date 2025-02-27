@@ -5614,3 +5614,164 @@ ave动画目前两大滑坡起动机
 
 再加上Soyo先入为主地认为是她们几个得罪了祥子，这就更跳不出来了
 
+
+*****
+
+####  Skymoon  
+##### 30096#       发表于 2025-2-27 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531390&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-27 16:45</a>
+ave动画目前两大滑坡起动机
+
+一是千早爱音的高人气把观众对她的印象捧得超出了她在mygo中的实际地位
+
+二是打 ...</blockquote>
+然后剧中爱音整成了无人在意的工具人，祥子就更离谱了，感觉仿佛都换了个人似的，主观行动力不仅全没有了，还一直被抽打，真难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 30097#       发表于 2025-2-27 16:49
+
+爱音一被立希提醒素世就没想和你组乐队，立刻就反应过来素世之前一些微妙的发言。很明显她是知道的，只是没去往那方面想。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30098#       发表于 2025-2-27 16:49
+
+<blockquote>钦念以忱 发表于 2025-2-27 16:29
+所以我觉得爱音智商高记性好，但情商其实不高，也没啥朋友，和百万爱音厨的说法不同
+
+因为情商不高，所以 ...</blockquote>
+這是信息不對稱
+
+重新開始可以理解為再組一隊新樂隊
+
+神人才會理解素姐是想借屍還魂，重組3C
+
+*****
+
+####  Akari  
+##### 30099#       发表于 2025-2-27 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531390&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-27 16:45</a>
+
+ave动画目前两大滑坡起动机
+
+一是千早爱音的高人气把观众对她的印象捧得超出了她在mygo中的实际地位
+
+二是打 ...</blockquote>
+祥子问题真的超级大，我每次说她自私自利又自负就有人破防不承认，觉得我丢锅给她是祥黑。
+
+可是她真的就是这样的啊，而且就算到了第8话她还没能承认自己就是在挣扎。
+
+*****
+
+####  玖羽  
+##### 30100#       发表于 2025-2-27 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531390&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-27 16:45</a>
+
+ave动画目前两大滑坡起动机
+
+一是千早爱音的高人气把观众对她的印象捧得超出了她在mygo中的实际地位
+
+二是打 ...</blockquote>
+决定是否炎上的其实不是什么要素，而是：1) 欺诈、2) 迁怒。
+
+<strong>欺诈</strong>指的是受众之前普遍相信作品的剧情是某个走向的，但是实际的剧情不仅没有，甚至相反（无论是否故意），所以受众感觉自己被骗了；
+
+<strong>迁怒</strong>则是这个作品在其他某些方面非常不如人意，受众感觉自己被骗了，所以找出一个涉嫌欺骗受众的剧情当发作的借口。
+
+（当然，有些作品兼具以上二者）
+
+也就是说，导致炎上的根本原因是一种<strong>欺骗感</strong>（注意是欺骗“感”，和是否故意，以及是否真的构成欺骗没有关系），要素本身只是个由头。
+
+反过来说，哪怕具备所谓的炎上要素，如果：1) 事先说明剧情里有XXX；2) 作品做得很好导致受众产生移情，也不会被炎上。
+
+（可能只有踩红线这一个例外）
+
+
+*****
+
+####  swessia  
+##### 30101#       发表于 2025-2-27 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">567三话对母鸡卡是毁灭性的
+
+爱音和祥子老中炎上都是这三话的锅
+
+不理解为啥非得反复打年糕三话和组那又难听又演的烂的ccc live
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 30102#       发表于 2025-2-27 16:54
+
+爱音各种意义上和神乐光坐一桌，改变世界线的搅局者
+
+C团方面既是C团复辟的阻碍，也是C团成员和解的助推器
+
+mygo里她是爽姐北伐大计的起点，也是北伐失败的根本原因
+
+*****
+
+####  adretyu67.  
+##### 30103#       发表于 2025-2-27 16:55
+
+祥子现在不也被打年糕，被睦头下令去重组ccc了
+
+*****
+
+####  K·os  
+##### 30104#       发表于 2025-2-27 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531419&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-27 16:49</a>
+
+然后剧中爱音整成了无人在意的工具人，祥子就更离谱了，感觉仿佛都换了个人似的，主观行动力不仅全没有了 ...</blockquote>
+因为祥子的性格特点就是有事不服软不求人，什么都靠个人能力顶
+
+她自己都说了“能相信的只有自己”
+
+她这种情况下捅出一个她顶不住的大娄子然后坠机基本就是唯一结局
+
+正常的富家小姐哪会和她这样，出气离家出走能坚持个把月算强无敌了，祥子不仅顶住了甚至还创上业了，虽然创业失败人很受打击，但是某种意义上总比坚持不了打工跑回家强
+
+但是看不得祥子受苦的观众可能就不会这么觉得了
+
+*****
+
+####  天空塔书记官  
+##### 30105#       发表于 2025-2-27 16:56
+
+CCC就像麻醉品，中毒越深，越难摆脱，戒除的过程也必然伴随着严重的戒断反应，像第七集那样用丑陋的演出来把所有人带回现实某种意义上应该能算是一个正确的选择
+
+CCC并不美好，相反十分怪异丑陋，就像所有去除了幻觉滤镜的成瘾者眼中的世界一样，但这，就是现实
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Skymoon  
+##### 30106#       发表于 2025-2-27 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531449&amp;ptid=2208921" target="_blank">Akari 发表于 2025-2-27 16:51</a>
+祥子问题真的超级大，我每次说她自私自利又自负就有人破防不承认，觉得我丢锅给她是祥黑。
+
+可是她真的就 ...</blockquote>
+或许在前五集时我还会跟你辩辩，但现在我已经顺从神人编剧的大手了，所有角色都只是人偶罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30107#       发表于 2025-2-27 16:57
+
+第7话节点还有个场外因素是鸡狗对邦ccc复活和tft春日影吧。
+
+那会是真要滑坡到现实拆队组ccc了
+
