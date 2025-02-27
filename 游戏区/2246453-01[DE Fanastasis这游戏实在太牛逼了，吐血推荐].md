@@ -2810,3 +2810,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 我总感觉这游戏里的NPC写得挺苦闷 悲壮，但是做的事情好像很多都很.......不是人........ ...</blockquote>
 不用怀疑。非队友的剧情NPC基本上全都不是人，行事逻辑都不择手段
 
+
+*****
+
+####  JamesDrapor  
+##### 246#       发表于 2025-2-27 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530797&amp;ptid=2246453" target="_blank">西弗 发表于 2025-2-27 15:35</a>
+
+草，好吧，我一般是能不打尽量不打，居然这样，另一个再看看，谢了</blockquote>
+确认了一下，去卡侬之柩四层就是要杀罗贝尔，然后从他所在的房间左下用拷问室钥匙通过<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
