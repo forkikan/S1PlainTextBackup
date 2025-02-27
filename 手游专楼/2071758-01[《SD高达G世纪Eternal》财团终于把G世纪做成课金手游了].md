@@ -656,3 +656,22 @@ G世紀做成手遊一向都有這類問題
 
 今天放出了机体展示，十一分钟
 
+
+*****
+
+####  ztkong  
+##### 65#       发表于 2025-2-27 08:29
+
+按时间顺序，
+
+pv1
+[https://www.bilibili.com/video/B ... ad.video_card.click](https://www.bilibili.com/video/BV1M1KGepEgV/?spm_id_from=333.1387.upload.video_card.click)
+
+系统介绍pv
+[https://www.bilibili.com/video/B ... ge.video_card.click](https://www.bilibili.com/video/BV1obAzeTEj4/?spm_id_from=333.1387.homepage.video_card.click)
+
+11分钟的各参战作品pv
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1ZhPLerEXk/?spm_id_from=333.337.search-card.all.click)
+
+这游戏内测玩的还挺开心的，等4.16开服
+
