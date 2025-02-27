@@ -8261,3 +8261,407 @@ b站之前就锁分了吧，然后前一集还涨了0.2
 
 原来是睦法沙
 
+
+*****
+
+####  ape-apple  
+##### 30360#       发表于 2025-2-27 22:36
+
+每一集都没有任何进步，好像那个鬼打墙一样，不断重复一样的流程，我特别想知道，这种情节都是最差一档的烂番了吧，wsd从上到下没想着重新调整一下？
+
+
+*****
+
+####  ryuusu  
+##### 30361#       发表于 2025-2-27 22:37
+
+太冲击了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">像韩国人拍的，都太可怜了
+
+*****
+
+####  南宮凝香  
+##### 30362#       发表于 2025-2-27 22:37
+
+<blockquote>Delicatus545 发表于 2025-2-27 22:33
+初华你至于吗，你两个团组得，祥子组不得？</blockquote>
+初華： 在不被愛那團會被怎對待我還不知道嗎？
+
+看看甜甜圈小姐就知道祖宗家法的道理了
+
+*****
+
+####  非建政专用号  
+##### 30363#       发表于 2025-2-27 22:37
+
+ 本帖最后由 非建政专用号 于 2025-2-27 22:38 编辑 
+
+神回懂吗，这一回顶的上之前全部，爆就完事了，wsd的烂炒就学吧老哥们，学无止境
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhzij111  
+##### 30364#       发表于 2025-2-27 22:37
+
+这爱圣真得晋级爱音奥特曼了吧，感觉只有神性没有人性了要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  TAQ  
+##### 30365#       发表于 2025-2-27 22:37
+
+大喵直视深渊太久也带来了灵视的副作用吗
+
+*****
+
+####  影伴光生  
+##### 30366#       发表于 2025-2-27 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534497&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-2-27 22:25</a>
+卧槽太变态了，弹丸论破3精神继承人终于现身江湖了</blockquote>
+弹丸3那插两针/上潜意识滤镜虽然烂，也好过这一不小心摔死在内心深处的戏码
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 30367#       发表于 2025-2-27 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534826&amp;ptid=2208921" target="_blank">potenzh 发表于 2025-2-27 22:35</a>
+
+感觉集数不够阿 虽然mygo第九集时候也不会想到第十集能翻回来 但mujica活太多太密导致剧情推进太快显得儿戏 ...</blockquote>
+如果“翻过来”指重组母鸡卡，那真得独角兽和十本随时大笔一辉就可以，你看海林的人设和当初已经被命令到完全不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 30368#       发表于 2025-2-27 22:38
+
+神作，这就是我想看的，不过睦领饭盒那段也太搞了。
+
+*****
+
+####  乙津夢  
+##### 30369#       发表于 2025-2-27 22:38
+
+这双重人格设定真的是半路加的吗我请问了，剧情几乎是完全围绕这个设定展开了，很难想象原本的剧本到底是什么样了，怪不得独角兽要割席，柿本**是真的有点变态了
+
+*****
+
+####  风道北来  
+##### 30370#       发表于 2025-2-27 22:39
+
+这个傻叉的多重人格演出已经给我造成生理性不适了，泥给路打油
+
+*****
+
+####  plusSharp  
+##### 30371#       发表于 2025-2-27 22:39
+
+而且这动画真的有系列构成吗，上一集还是“祥子会为我重组crychic”的服从性测试睦，这集又成了“想让祥子幸福”，简直是少看一季的反差
+
+*****
+
+####  jxzeroga0  
+##### 30372#       发表于 2025-2-27 22:39
+
+太恶心了，先不说什么女同cp舔狗之类，那么大一个初华在场大祥老师脑子和说话都只有睦了，这种人还能有朋友真是奇迹。这一集看得如坐针毡，算是基本可以说烂完了。
+
+*****
+
+####  猫执事  
+##### 30373#       发表于 2025-2-27 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534766&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-27 22:34</a>
+
+这周怎么看都是睦的主场，初华虽然增加了台词，这路人感还是挺浓的</blockquote>
+还是独角戏，苦情戏。初华被接触了一堆角色，唯独没去和祥子产生互动。
+
+*****
+
+####  zxtree  
+##### 30374#       发表于 2025-2-27 22:39
+
+像ai生成的
+
+*****
+
+####  天空塔书记官  
+##### 30375#       发表于 2025-2-27 22:40
+
+ 本帖最后由 天空塔书记官 于 2025-2-27 22:41 编辑 
+
+因为灯无法再写出CCC的歌，所以以灯和祥子为核心组建的CCC就无法重组，而且作为吉他睦存在基点的演奏能力也被“莫提斯”复制，吉他睦的唯一性就被夺走，也就失去了力量，变得无比脆弱，才会如此轻易的“死亡”
+
+<img src="https://p.sda1.dev/22/bc06c78a25cd3d65f28c2826db480213/image.jpg" referrerpolicy="no-referrer">
+
+初华听过初版的春日影，知道灯再也无法复刻那种“死意”，而是变成了更积极向上的表达，所以灯“背叛”了CCC，背叛了最初组建CCC的祥子，也背叛了想拉着祥子一起溺水的自己，所以她才会愤怒
+
+<img src="https://p.sda1.dev/22/fd43daf17386305e95d5c1520b8c5628/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 30376#       发表于 2025-2-27 22:40
+
+全剧最正确的一句<img src="https://p.sda1.dev/22/510a47f79f4d776ec5994f54cbeb67ab/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  mono  
+##### 30377#       发表于 2025-2-27 22:40
+
+灯真的是迷うことに迷わない <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 30378#       发表于 2025-2-27 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534916&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-27 22:39</a>
+
+而且这动画真的有系列构成吗，上一集还是“祥子会为我重组crychic”的服从性测试睦，这集又成了“想让祥子 ...</blockquote>
+这是大莫演的<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 30379#       发表于 2025-2-27 22:41
+
+这集的神秘人设变化：
+
+1、初华由蜘蛛侠再变绿魔
+
+2、海铃教mortis假弹
+
+3、喵梦由野心家变为一个被吓破胆的杂兵
+
+4、睦真打算刻画成千面人魔吗，魔头怎么突然就摔死了
+
+5、野猫有趣无趣的评判标准原来不是ego，其实只是在当嗜血观众吗
+
+其他人也陆续杂鱼化，只有soyo像个正常人了
+
+等一手soyo唤醒睦
+
+*****
+
+####  huxiaopao163  
+##### 30380#       发表于 2025-2-27 22:41
+
+小睦死之前说的是：不准抢走我的角色。。。
+
+说到底小睦也只是个角色，若叶睦本体觉得她不需要了，自然就没了。
+
+*****
+
+####  是谁的书画  
+##### 30381#       发表于 2025-2-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534916&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-27 22:39</a>
+
+而且这动画真的有系列构成吗，上一集还是“祥子会为我重组crychic”的服从性测试睦，这集又成了“想让祥子 ...</blockquote>
+真的，上来我第一感觉就是“你她吗比的装什么装绿茶”，这纯纯坏心眼子使的自己都不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 30382#       发表于 2025-2-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534944&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-27 22:40</a>
+
+全剧最正确的一句
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+大瞄又评价了海林一句虐狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 30383#       发表于 2025-2-27 22:43
+
+<img src="https://p.sda1.dev/22/cffa005bf959cb818e4bf9e9cad17675/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 30384#       发表于 2025-2-27 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534970&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-2-27 22:41</a>
+
+这集的神秘人设变化：
+
+1、初华由蜘蛛侠再变绿魔
+
+2、海铃教mortis假弹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉他睦存在力被大莫老师夺了
+
+*****
+
+####  天空塔书记官  
+##### 30385#       发表于 2025-2-27 22:43
+
+这下CCC真结束了，
+
+还有人想滑坡迷子解散吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 30386#       发表于 2025-2-27 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534905&amp;ptid=2208921" target="_blank">乙津夢 发表于 2025-2-27 22:38</a>
+这双重人格设定真的是半路加的吗我请问了，剧情几乎是完全围绕这个设定展开了，很难想象原本的剧本到底是什 ...</blockquote>
+独角兽的百合痴女初华也不是什么好设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plusSharp  
+##### 30387#       发表于 2025-2-27 22:43
+
+<blockquote>cxj649 发表于 2025-2-27 22:40
+这是大莫演的</blockquote>
+前半段睦阻止莫学吉他那里是睦说了祥子在crychic看起来幸福 
+
+*****
+
+####  pp1349  
+##### 30388#       发表于 2025-2-27 22:44
+
+谁能把关于我看mujica的记忆从我脑子里删掉<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Renes  
+##### 30389#       发表于 2025-2-27 22:44
+
+他们难道没发现快不快乐根本不是在哪个乐队的问题，而是人的问题吗？
+
+*****
+
+####  sauron.j  
+##### 30390#       发表于 2025-2-27 22:44
+
+先别急，因为舅舅说“拉好扶手”，我就特意第一遍看的时候仔细看了台词，觉得的确要好好理一下脉络
+
+这波是自酒店大战后最接近万字解析的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 30391#       发表于 2025-2-27 22:44
+
+素食和立希如果不是公式不回复的话很正常人，但是被场外脑控公式不回复只能说也是伪人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 30392#       发表于 2025-2-27 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535014&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 22:43</a>
+
+这下CCC真结束了，
+
+还有人想滑坡迷子解散吗</blockquote>
+迷子解不解散还重要吗？核弹都砸下来了你还在意房子可能着火吗？
+
+*****
+
+####  阿兹尔  
+##### 30393#       发表于 2025-2-27 22:44
+
+所以后面初华跑了是因为祥子满嘴都是睦？那祥子为啥要去追回来？初华在她眼里看起来跟路人一样也不是很重要啊
+
+*****
+
+####  怀沙汨罗  
+##### 30394#       发表于 2025-2-27 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534997&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-27 22:42</a>
+大瞄又评价了海林一句虐狂</blockquote>
+这就是我们的正论猫猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  深渊之呗  
+##### 30395#       发表于 2025-2-27 22:45
+
+该说不说纯路人，
+歌呢？
+这动画片不是乐队番吗？怎么他妈快十集了唱的歌还没有战姬绝唱多？
+
+*****
+
+####  ntrntr1  
+##### 30396#       发表于 2025-2-27 22:45
+
+<blockquote>阿兹尔 发表于 2025-2-27 22:44
+所以后面初华跑了是因为祥子满嘴都是睦？那祥子为啥要去追回来？初华在她眼里看起来跟路人一样也不是很重要 ...</blockquote>
+你懂什么...不要小看...血缘的羁绊啊浑蛋xdd
+
+*****
+
+####  JustW  
+##### 30397#       发表于 2025-2-27 22:45
+
+三个字评价：闹麻了
+
+有请人格分裂领域大神为我们介绍一下在脑内建筑里失足摔死一个人格也是符合现实病症的吧
+
+*****
+
+####  lyuhiu  
+##### 30398#       发表于 2025-2-27 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华也太惨了，发现自己是代餐，现在还被用完就扔
+
+*****
+
+####  聊nsy专用号  
+##### 30399#       发表于 2025-2-27 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534819&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-2-27 22:35</a>
+
+不是 大猫也有看穿灵魂的能力吗
+
+那你不用纠结什么演员乐队了，直接直播通灵不牛逼多了 ...</blockquote>
+大猫能看出墨提斯假装木说这么感人的台词肯定恶心死了
+
+*****
+
+####  蓮華  
+##### 30400#       发表于 2025-2-27 22:46
+
+我都关着灯
+
