@@ -20,3 +20,23 @@
 刚一周目到第二张图了，动作演出还是爽到的，不过饭纲落的出招好迷，是对面空精后按武技吗？感觉多半按出来 ...</blockquote>
 普通饭纲不需要空精，对面动摇（精力槽闪红）就可以在三角挑空武技之后派生出来，闪华和天水影派生的饭纲就要蓄满+最后一下挑空时对面空精，不怎么常用。
 
+
+*****
+
+####  烛堡巡礼者  
+##### 3382#       发表于 2025-2-27 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527537&amp;ptid=2092342" target="_blank">zqqwe 发表于 2025-2-27 09:12</a>
+
+普通饭纲不需要空精，对面动摇（精力槽闪红）就可以在三角挑空武技之后派生出来，闪华和天水影派生的饭纲 ...</blockquote>
+原来是这样，之前没注意到红槽动摇状态<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 3383#       发表于 2025-2-27 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527555&amp;ptid=2092342" target="_blank">烛堡巡礼者 发表于 2025-2-27 09:15</a>
+原来是这样，之前没注意到红槽动摇状态</blockquote>
+你用隼流吧对面弹出大硬直就能a一下接风雷震落
+

@@ -759,3 +759,107 @@ SD高达G世纪永恒，来讲讲这次的母舰吧_1_ztkong_来自小红书网�
 
 <img src="https://img.saraba1st.com/forum/202502/27/090519mjoz9qo2bh8h2wyq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ztkong  
+##### 68#       发表于 2025-2-27 09:16
+
+首抽重置SSR是不限制的，可以凹到满意为止。可惜map的伤害和范围据官方说要削。。。
+
+<img src="https://img.saraba1st.com/forum/202502/27/091510a76xzqslq4zns7te.jpg" referrerpolicy="no-referrer">
+
+<strong>1100380034.jpg</strong> (365.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091510chi4o4iirrl7cz4l.jpg" referrerpolicy="no-referrer">
+
+<strong>1195663802.jpg</strong> (243.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091510wp4zyjarr8ypjypy.jpg" referrerpolicy="no-referrer">
+
+<strong>595630081.jpg</strong> (252.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091511m41xfng2wz4h8wtl.jpg" referrerpolicy="no-referrer">
+
+<strong>1701821920.jpg</strong> (196.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091511lpq7v2bonvpdrwdk.jpg" referrerpolicy="no-referrer">
+
+<strong>407342125.jpg</strong> (234.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091554d1o1uo25q6ovj62o.jpg" referrerpolicy="no-referrer">
+
+<strong>1132594083.jpg</strong> (337.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/091554a295hldh9kukwrr2.jpg" referrerpolicy="no-referrer">
+
+<strong>2136548383.jpg</strong> (308.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/090913bappp7eqpopzaqpz.jpg" referrerpolicy="no-referrer">
+
+<strong>sd高达g世纪永恒内测结束了，一些截图留念_6_ztkong_来自小红书网页版.jpg</strong> (461.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/090914usc4c57h51mhd52n.jpg" referrerpolicy="no-referrer">
+
+<strong>sd高达g世纪永恒内测结束了，一些截图留念_2_ztkong_来自小红书网页版.jpg</strong> (367.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/090914kbori0wbzv813rbi.jpg" referrerpolicy="no-referrer">
+
+<strong>sd高达g世纪永恒内测结束了，一些截图留念_1_ztkong_来自小红书网页版.jpg</strong> (410.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/090914ck46xmmm0bkipfkf.jpg" referrerpolicy="no-referrer">
+
+<strong>SD高达G世纪永恒，开服卡池机体预测及推荐_4_ztkong_来自小红书网页版.jpg</strong> (405.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:09 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/090914x7kkynsi5krssli4.jpg" referrerpolicy="no-referrer">
+
+<strong>SD高达G世纪永恒，开服卡池机体预测及推荐_1_ztkong_来自小红书网页版.jpg</strong> (423.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 09:09 上传
+
