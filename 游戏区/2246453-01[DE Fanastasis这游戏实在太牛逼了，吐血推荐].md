@@ -2630,3 +2630,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 这游戏同伴太多选择强迫症要犯了，感觉每个都还可以又每个都有问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有推荐的万用配置吗
 
+
+*****
+
+####  塔奇克马  
+##### 228#       发表于 2025-2-27 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529329&amp;ptid=2246453" target="_blank">红烧肉 发表于 2025-2-27 12:32</a>
+
+这游戏同伴太多选择强迫症要犯了，感觉每个都还可以又每个都有问题有推荐的万用配置吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">现在用的 闪避T 双刀哥 卖血双手战 打到第三个魔女了 第一个魔女用扔毒+流血过的 不知道算什么组合
+
