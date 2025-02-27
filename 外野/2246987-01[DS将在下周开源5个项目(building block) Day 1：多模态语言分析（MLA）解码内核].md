@@ -1156,3 +1156,16 @@ APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  a37356205  
+##### 101#       发表于 2025-2-27 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67510741&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-25 10:56</a>
+
+顺带说一下，千问也发了推理模型的预览版，也支持联网，也是业界汪峰了
+
+https://chat.qwen.ai</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实我用得最多还是千问，毕竟Deepseek一天只回我两条消息
+
