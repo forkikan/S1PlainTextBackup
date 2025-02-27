@@ -1801,3 +1801,87 @@ nmd从头笑到尾
 
 好猫觉得搞笑+2 坏猫觉得恶心-2 所以我决定=0
 
+
+*****
+
+####  狼影者瑞德克斯  
+##### 202#       发表于 2025-2-27 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535883&amp;ptid=2247654" target="_blank">もも的洞洞鞋 发表于 2025-2-27 23:24</a>
+
+从头笑到尾
+
+这集脚本太像ai生成的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乳AI了
+
+*****
+
+####  nnsgwhs  
+##### 203#       发表于 2025-2-27 23:27
+
+-2 没有上一集好笑，如果初华真给睦推下楼了，并且睦人格因此同时摔死能给+2
+
+*****
+
+####  矢吹奈子  
+##### 204#       发表于 2025-2-27 23:27
+
+喵梦真的和猫一样，一会儿哈气一会儿蹭人，好割裂
+
+*****
+
+####  Ditfran  
+##### 205#       发表于 2025-2-27 23:30
+
+谁来解释解释为什么海玲突然就变得这么执着于母鸡卡这个乐队了
+
+*****
+
+####  grox133  
+##### 206#       发表于 2025-2-27 23:30
+
++2+2就不管剧情怎么样，有没有逻辑，就问你好不好笑吧，这集而且名场面超多
+
+*****
+
+####  最强惠酱  
+##### 207#       发表于 2025-2-27 23:31
+
+每集都要不同手法死一遍，笑死了+2
+
+*****
+
+####  澜灰-  
+##### 208#       发表于 2025-2-27 23:31
+
+-2
+
+最烂的一集
+其实几个爆点我都还挺喜欢
+但逻辑啊演出啊
+全都不知道！
+
+能不能认为-2和+2是一批人打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  silversor  
+##### 209#       发表于 2025-2-27 23:32
+
+其实连着三集个人体感都还好，但这已经是第九集了...这结局怎么圆啊
+
+*****
+
+####  answer23  
+##### 210#       发表于 2025-2-27 23:33
+
+我倒是要看看你们到底能整什么活出来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 211#       发表于 2025-2-27 23:35
+
+<img src="https://p.sda1.dev/22/869b4e3d73b05e0b35f253e202a14334/image.jpg" referrerpolicy="no-referrer">
+
