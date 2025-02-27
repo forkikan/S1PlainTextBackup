@@ -5264,3 +5264,64 @@ Soyo 想復辟C團，
 对，实质矛盾就是要不要放弃素世，如果灯第一次去邀请爱音，爱音不反问素世而是接受下来，之后睦也不出场 ...</blockquote>
 那也要得有个睦不传递信息的理由吧，只要睦传递信息，那灯一定会再去拉素世，素世应该还是很难拒绝灯
 
+
+*****
+
+####  南宮凝香  
+##### 30070#       发表于 2025-2-27 15:48
+
+<blockquote>钦念以忱 发表于 2025-2-27 15:39
+对，实质矛盾就是要不要放弃素世，如果灯第一次去邀请爱音，爱音不反问素世而是接受下来，之后睦也不出场 ...</blockquote>
+不會，
+
+首先那裡愛音已經爆了， 不是輕飄飄的就能帶過
+
+假設在愛音沒爆時， 燈想要素世
+
+兩大燈衛兵是會根據方針行事的
+
+說白了， 愛希跟素世沒有敵我矛盾
+
+貝斯位放在那裡就是要人來，那為什麼不是Soyo
+
+那就是全團出動的傳統追妻火葬場
+
+狗9 話爆這麼大主要是把兩個個人回 （素世 + 愛音）疊在一起爆當最終爆點
+
+本質上這是兩個獨立事件
+
+Soyo 的是過去樂隊的幽靈
+
+愛音是她底層被肯定的欲求
+
+*****
+
+####  plazum  
+##### 30071#       发表于 2025-2-27 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529681&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-27 13:13</a>
+
+我猜测🦄的思路表达的意思是CCC本来解散就是一场误会，或者说是祥子的任性，只要祥子稳定CCC就回来了。结 ...</blockquote>
+还真是，好胃疼啊
+
+
+*****
+
+####  plazum  
+##### 30072#       发表于 2025-2-27 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489173&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-2-21 22:14</a>
+
+祥子现在为了补偿之前对睦的亏欠，处于百依百顺状态。但是好像顺出问题了（毕竟无论是之前的压榨睦，还是现 ...</blockquote>
+祥顺子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 30073#       发表于 2025-2-27 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67489617&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-2-21 23:28</a>
+
+理性讨论独角兽是不是喜欢写一个xp放出的小众剧本然后在观众察觉到不对劲前光速切割 ...</blockquote>
+太巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

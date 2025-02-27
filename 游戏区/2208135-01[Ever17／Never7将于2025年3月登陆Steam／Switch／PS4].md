@@ -162,3 +162,15 @@ https://www.kirikiribasara.com/2 ... n-a-sci-fi-classic/
 おかえり！Ever17！
 <img src="https://p.sda1.dev/22/f1e992683c144b9caa158b3ebb931cb2/20250226_234103.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  饭冢武也  
+##### 110#       发表于 2025-2-27 15:48
+
+说实话虽然谈不上文学性
+
+但是galgame脚本这种基本上可以说一言堂决定整个作品走向的创作
+
+把原作者踢出去，找新人来直接修改我觉得是非常不恰当的
+
