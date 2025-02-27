@@ -11108,3 +11108,314 @@ mggm是不是也牺牲下自己家人。 ...</blockquote>
 终结CCC复活的其实是灯，她已经回不到写出春日影的状态了，她的作品已经完全变成了迷子的风格，这就是所 ...</blockquote>
 确实这样比较合理。睦后面要怎么写呢？
 
+
+*****
+
+####  与太郎  
+##### 30635#       发表于 2025-2-27 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536237&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 23:42</a>
+
+如果是假弹应该是和录像对不上，而不是和录音,而且“莫提斯”练习的时候没有看谱，而是完全靠听感和录像来 ...</blockquote>
+这里其实有两个层面
+
+mortis自己没准是真的在练习的（水平怎么样另说）
+
+但是海铃的话只能解读为，她在教mortis假弹
+
+*****
+
+####  m99999  
+##### 30636#       发表于 2025-2-27 23:46
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-27 23:43
+之前从来没同意过n演n假药但是海铃这个哭我真怀疑是莫教她演的，太怪了为什么要哭啊，之前被说不能信任的时 ...</blockquote>
+如果原本没有大莫，叙事主线也不是莫，那么就可以解释了。祥子的拼命抗压可能在一定程度上让海玲困惑，甚至在鸡团解散后和立希聊天时发现自己缺了点什么。
+
+其实类似演出在第八集也是有的，但是演得太烂且在前面缺乏必要铺垫，看得出剧本裁剪的痕迹
+
+*****
+
+####  Hchan  
+##### 30637#       发表于 2025-2-27 23:46
+
+制作组对初华也太坏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真是恶意满满的一集，不过还是挺有趣的
+
+*****
+
+####  Libartas  
+##### 30638#       发表于 2025-2-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536284&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-27 23:45</a>
+确实这样比较合理。睦后面要怎么写呢？</blockquote>
+莫老师就是睦，睦就是莫老师呗，不再分人格各说各的的，这才算变成人类了
+
+*****
+
+####  adretyu67.  
+##### 30639#       发表于 2025-2-27 23:47
+
+也不是对初华太坏了，是大祥对初华一直就这态度。
+
+*****
+
+####  Cortana  
+##### 30640#       发表于 2025-2-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536029&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-27 23:30</a>
+
+我也有预感，无论十三集做成什么样子，在过一段时间后肯定会有人站出来说mujica其实没那么烂，也肯定会有 ...</blockquote>
+不需要以后吧，我一直觉得母鸡卡非常好。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fsfs_freeze| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  Cortana  
+##### 30641#       发表于 2025-2-27 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536029&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-27 23:30</a>
+
+我也有预感，无论十三集做成什么样子，在过一段时间后肯定会有人站出来说mujica其实没那么烂，也肯定会有 ...</blockquote>
+不需要以后吧，我一直觉得母鸡卡非常好。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fsfs_freeze| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  zhoujin8584  
+##### 30642#       发表于 2025-2-27 23:47
+
+<blockquote>DeltaStriker 发表于 2025-2-27 23:33
+怎么都说mortis假弹 完全没看出来
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+再说一遍没有假弹，莫小孩学会三首了！
+
+*****
+
+####  adretyu67.  
+##### 30643#       发表于 2025-2-27 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536284&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-27 23:45</a>
+
+确实这样比较合理。睦后面要怎么写呢？</blockquote>
+比较合理的展开是莫演多了也无法分清自己是谁了。
+
+*****
+
+####  南宮凝香  
+##### 30644#       发表于 2025-2-27 23:49
+
+原來母雞卡有三首歌
+
+我看KTV 還以為只有兩首！
+
+*****
+
+####  是谁的书画  
+##### 30645#       发表于 2025-2-27 23:49
+
+这集以后莫缇丝不久已经是若叶睦了吗？所有人一致赞同，我也赞同。
+
+吉他睦真的赶紧赶紧死去一边，不想看到了，好恶心的人设<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 30646#       发表于 2025-2-27 23:49
+
+整个烂活
+失去自我的无害人偶 Oblivionis！
+空心拙劣的自我模仿者 Mortis！
+掌控一切的绝对暴君 Timoris！
+亦步亦趋的追随者 Amoris！
+想要知晓爱 Doloris！
+我们是！恶人战队！ Ave Mujica！
+（爆炸）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  钦念以忱  
+##### 30647#       发表于 2025-2-27 23:49
+
+上一集还能说十五年一遇的大女主是睦头，这下睦头也不是了。
+
+*****
+
+####  南宮凝香  
+##### 30648#       发表于 2025-2-27 23:50
+
+睦就維持雙重人格呀
+
+這種方便的屬性不可能去掉的
+
+*****
+
+####  盐盐盐盐盐  
+##### 30649#       发表于 2025-2-27 23:50
+
+<blockquote>adretyu67. 发表于 2025-2-27 23:44
+不是，对莫来说，睦没了是必须要保密的事，她不可能和海铃交流这个啊。</blockquote>
+不是，我是说睦莫都是若叶睦本人演技演出来的人格这个设定，当初解散的时候海铃应该还只知道人格分裂莫很会演戏不会吉他的信息，突然就知道莫有生死问题了应该是莫又后来把ktv对祥子说过的那些设定和海铃也说了，不然海铃和祥子这番争论信息量是对不上的，但是海铃完全不震惊直接接着话讲
+
+*****
+
+####  Lyzers  
+##### 30650#       发表于 2025-2-27 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几集海子哥前面淡定冷漠地一笔，莫老师哇哇叫完还能淡定自若跟大祥老师打招呼再离场
+
+被立希突然之间就爱上鸡团了，不组这鸡团啊浑身像蚂蚁在爬，都要哭出来了
+
+*****
+
+####  zhigui  
+##### 30651#       发表于 2025-2-27 23:50
+
+<img src="https://img.saraba1st.com/forum/202502/27/235005godq7moawiova7m3.png" referrerpolicy="no-referrer">
+
+<strong>SC1J8QNOZ{URW$H6KZL5QLR.png</strong> (37.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 23:50 上传
+
+想过很路边没想到这么路边<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 30652#       发表于 2025-2-27 23:50
+
+主要是，睦以为c团回归可以帮到祥子，祥子以为c团回归可以帮到睦。俩人的意思其实都是消灭莫。只是这个祥和睦明明在第7话就都知道了c团是消逝的青春了。可她们理解了c团，却不理解互相。初华虽然暴躁老姐，但初华指出的也没错，真正的核心灯已经是m团的灯了。
+
+*****
+
+####  清江望月  
+##### 30653#       发表于 2025-2-27 23:51
+
+牺牲了10个人的塑造，就整出了这么弱智的剧情，这真的是一个上市公司能弄出来的剧本吗？
+
+*****
+
+####  jaewoongh_  
+##### 30654#       发表于 2025-2-27 23:51
+
+海玲也是个神人，你真要把这种东西当作自己的归宿吗
+
+*****
+
+####  DeltaStriker  
+##### 30655#       发表于 2025-2-27 23:51
+
+livehouse开着玩的乐队很正常吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zhoujin8584  
+##### 30656#       发表于 2025-2-27 23:52
+
+<blockquote>与太郎 发表于 2025-2-27 23:38
+不是，这真要是两三天就能真弹，那当初直接解散mujica是什么意思啊</blockquote>
+当时莫的自我认知还是她是为了帮助小睦而生的，不能抢主人格的东西，现在她想做主人格，就不一样了
+
+
+*****
+
+####  66367749  
+##### 30657#       发表于 2025-2-27 23:52
+
+当你为剧情的不合理反复找多重理由，或者找单独的制作人员分锅是谁毁了它，不停复盘如果这样会不会更好时就该意识到已经烂完了吧。只是拒绝承认相信而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30658#       发表于 2025-2-27 23:52
+
+ 本帖最后由 adretyu67. 于 2025-2-27 23:53 编辑 
+
+ppp组了一年多，动画第三季刚开场200多支乐队排200多。
+
+被RAS和roselia排名薄纱。最后半个月疯狂开live总算把投票追上去。
+
+常规操作，不算啥
+
+*****
+
+####  天空塔书记官  
+##### 30659#       发表于 2025-2-27 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536284&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-27 23:45</a>
+确实这样比较合理。睦后面要怎么写呢？</blockquote>
+拉吉他睦回来弹吉他，然后“莫提斯”来表演，“莫提斯”并没有因为音乐确立的自我认知，她的自我实现是靠辅助吉他睦来达成的，她代替不了吉他睦
+
+吉他睦为“白祥”而存在是对外对祥子，“莫提斯”因“黑祥”而诞生是对内对自己，但她们都是不完整的，就像“白祥”和“黑祥”也是不完整的祥子，想要成为真正的自己，就必须“和解与共存”，对于祥子来说则是“融合”/“调合”，最终实现对内与对外的平衡
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 30660#       发表于 2025-2-27 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536376&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-27 23:51</a>
+
+牺牲了10个人的塑造，就整出了这么弱智的剧情，这真的是一个上市公司能弄出来的剧本吗？ ...</blockquote>
+你就说它炒作成功不成功吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangh  
+##### 30661#       发表于 2025-2-27 23:54
+
+好看，比二到七集加起来都好看<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llllife  
+##### 30662#       发表于 2025-2-27 23:55
+
+剧透内容除了小姨和双子还有什么吗，看了这话突然感兴趣了（如果禁止剧透我编辑）
+
+*****
+
+####  雪菜碧池  
+##### 30663#       发表于 2025-2-27 23:55
+
+祥子是多重人格，一秒切黑白
+
+睦是多重人格
+
+初华是白日梦想家
+
+喵梦打开摄像头就是戴上面具
+
