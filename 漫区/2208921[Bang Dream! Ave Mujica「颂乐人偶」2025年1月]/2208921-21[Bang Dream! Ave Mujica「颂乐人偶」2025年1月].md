@@ -14405,3 +14405,209 @@ mygo里演的不是复仇也得是多少带点嫉妒吧，不然我是真搞不�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  adretyu67.  
+##### 30951#       发表于 2025-2-28 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537797&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:57</a>
+
+一想到老团里真的有认真磨练演技的角色，然后同一世界观出了一个生来写轮眼还把自己搞到114514人格的角色， ...</blockquote>
+彩是不太行，三年没转正。和睦这种天生童星确实是档次的差距。
+
+*****
+
+####  JustW  
+##### 30952#       发表于 2025-2-28 01:59
+
+喵梦怎么不认可Mortis了，她可是在第三集被Mortis震撼、在第四集劝Mortis走演技道路单飞、然后从那开始一直被打击到现在的
+
+*****
+
+####  adretyu67.  
+##### 30953#       发表于 2025-2-28 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537801&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-28 01:58</a>
+
+问题是，动画压根没表现出来。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+这话她百元带货失败以后自嘲的话就是大祥当初的理念<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+估计下一话就要变成艺术家了
+
+*****
+
+####  北条早苗  
+##### 30954#       发表于 2025-2-28 02:00
+
+说句不爱听的，素睦/莫真的王朝了吧
+9个人里就爽姐真的把睦和莫当成两个人有各自需求去对待了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 30955#       发表于 2025-2-28 02:00
+
+<blockquote>JustW 发表于 2025-2-28 00:52
+睦误解也不能全怪睦，毕竟我本想找补祥子在C团幸福在M团痛苦和乐队没关系是因为家中变故，但仔细一想，睦眼 ...</blockquote>
+太有意思了，其实从理性人的角度出发，祥子现在衣食无忧了重新组乐队只要她想就还能是CCC，不管乐队名字是什么，真过家家反而不用担心痛苦，只是这反而不符合小祥的追求，以她的心气恐怕更想要重启AM证明自己，如果还能找回来的话
+
+*****
+
+####  JustW  
+##### 30956#       发表于 2025-2-28 02:00
+
+<blockquote>adretyu67. 发表于 2025-2-28 01:58
+彩是不太行，三年没转正。和睦这种天生童星确实是档次的差距。</blockquote>
+还有薰和千圣呢，而且不久前还出了一张卡让千圣和花音谈演员心得，没想到如今版本更新这么快
+
+
+*****
+
+####  天空塔书记官  
+##### 30957#       发表于 2025-2-28 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537801&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-28 01:58</a>
+问题是，动画压根没表现出来。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+喵梦的话，有的，她一直在强调“睦子是真的”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 30958#       发表于 2025-2-28 02:02
+
+爽姐没拿到古神的谜面呢，先到起跑线吧
+
+*****
+
+####  阿兹尔  
+##### 30959#       发表于 2025-2-28 02:03
+
+<blockquote>北条早苗 发表于 2025-2-28 02:00
+说句不爱听的，素睦/莫真的王朝了吧
+
+9个人里就爽姐真的把睦和莫当成两个人有各自需求去对待了吧 ...</blockquote>
+海铃也算吧，但是有点不太当人
+
+*****
+
+####  sauron.j  
+##### 30960#       发表于 2025-2-28 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537782&amp;ptid=2208921" target="_blank">qwased 发表于 2025-2-28 01:54</a>
+
+认真的吗，这集有任何一处演出和台词值得细品吗</blockquote>
+哪有细品，我指听和看台词本身都没做到，至少得了解最浅层的表达吧
+
+
+*****
+
+####  天空塔书记官  
+##### 30961#       发表于 2025-2-28 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537809&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:59</a>
+喵梦怎么不认可Mortis了，她可是在第三集被Mortis震撼、在第四集劝Mortis走演技道路单飞、然后从那开始一直 ...</blockquote>
+但椅子上的人偶是睦，那时候“莫提斯”还没有完全成型<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  KokutouMikiya  
+##### 30962#       发表于 2025-2-28 02:03
+
+想起薰千圣的三次活动全是在讨论扮演与“我是谁”的问题，手游编剧最封神的三部曲。到你鸡直接病症化拿来扯头花，到现在也没碰到过若叶睦内在的问题，这个角色已经完全非人化了
+
+*****
+
+####  adretyu67.  
+##### 30963#       发表于 2025-2-28 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537815&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-28 02:00</a>
+
+说句不爱听的，素睦/莫真的王朝了吧
+
+9个人里就爽姐真的把睦和莫当成两个人有各自需求去对待了吧 ...</blockquote>
+这下真成寡妇了，还是双子杀了另外一个
+
+*****
+
+####  JustW  
+##### 30964#       发表于 2025-2-28 02:03
+
+其他人不是没意识到这是两个人，而是觉得另一个死了就死了吧
+
+*****
+
+####  JustW  
+##### 30965#       发表于 2025-2-28 02:05
+
+<blockquote>天空塔书记官 发表于 2025-2-28 02:03
+但椅子上的人偶是睦，那时候“莫提斯”还没有完全成型
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+
+你说的那是第二集睦台上断片，第三集睦已经被Mortis吃了
+
+*****
+
+####  烂片雷达  
+##### 30966#       发表于 2025-2-28 02:05
+
+这下可以定论冈田梦以是十个人里演技最差的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+平时冷无缺还能装装，到了需要情感波动的地方直接兜不住了开始棒读水平暴露无遗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 30967#       发表于 2025-2-28 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537745&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 01:50</a>
+
+动机其实就是个起点，这动画现在的问题是角色的行为逻辑稀烂，每个人都跟中了模因病毒似的所有行动只能导向 ...</blockquote>
+以人偶说却正好对应上角色的人偶化。甚至特意安排在角色遭遇挫折后的人偶化。而不是一开始就将角色写得很呆。很难说剧想表达什么。
+
+还是等结局吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 30968#       发表于 2025-2-28 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537824&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 02:02</a>
+喵梦的话，有的，她一直在强调“睦子是真的”
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的就是动画没有明确体现大猫到底是佩服睦还是佩服莫。不过其实已经无所谓了。
+牢爹也就罢了现在又多个神人睦妈，很难想象最后是he了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  KokutouMikiya  
+##### 30969#       发表于 2025-2-28 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537849&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-28 02:05</a>
+以人偶说却正好对应上角色的人偶化。甚至特意安排在角色遭遇挫折后的人偶化。而不是一开始就将角色写得很 ...</blockquote>
+你说得对，很早我就猜想过鸡最后是不是往人偶化来写，但是当时觉得太抽象以为根本不可能，结果就给我端上来了
+
+*****
+
+####  天空塔书记官  
+##### 30970#       发表于 2025-2-28 02:07
+
+睦的演技目前表现出的除了“椅子上的人偶”就是“莫提斯”的复刻能力，但复刻需要一个原本，这不是表演，而是机械性的重复，这也是“莫提斯”伪人感的由来，真正的表演者是成为角色而不是模仿角色
+
+所以“莫提斯”也注定无法成为“睦”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
