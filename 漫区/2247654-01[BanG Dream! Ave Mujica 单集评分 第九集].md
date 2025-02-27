@@ -1629,3 +1629,175 @@ boring
 
 +2，终于有live了，这才是少女乐队动画！
 
+
+*****
+
+####  ninokagami  
+##### 183#       发表于 2025-2-27 23:16
+
++2
+
+每周就指着这24分钟了，你要说上次有这个感觉那确实得回到mygo的时候<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Perfectfullmoon  
+##### 184#       发表于 2025-2-27 23:17
+
+电车上切换人格那段演出是目前为止观感最好的一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 105gun| + 1|这个确实|
+
+查看全部评分
+
+*****
+
+####  xxxcc  
+##### 185#       发表于 2025-2-27 23:18
+
++2，人物动机合情合理，剧情节奏环环相加
+
+*****
+
+####  稀勢のささ  
+##### 186#       发表于 2025-2-27 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535013&amp;ptid=2247654" target="_blank">风真人 发表于 2025-2-27 22:43</a>
+
+-2 
+
+全程看不到乌米玲喜欢mijuca到想要复活的动机，团队氛围很好？感情很深？ 还不如打工乐队轻松，你也中 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我能想到的只能是 她后知后觉发现自己在母鸡卡的日子里养成了大手大脚花钱的习惯，打工养不起自己了
+
+*****
+
+####  fwst  
+##### 187#       发表于 2025-2-27 23:18
+
+能让我笑出来的动画就是好动画
+
+*****
+
+####  渡鸦骑士  
+##### 188#       发表于 2025-2-27 23:19
+
++2，已经不能再乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  庸necro  
+##### 189#       发表于 2025-2-27 23:21
+
+不如抖音短剧逻辑通顺 -2
+
+*****
+
+####  もも的洞洞鞋  
+##### 190#       发表于 2025-2-27 23:21
+
+必须+2
+
+1分给这集贡献的表情包，1分给大喵老师的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+nmd从头笑到尾
+
+*****
+
+####  aptx8285144  
+##### 191#       发表于 2025-2-27 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535013&amp;ptid=2247654" target="_blank">风真人 发表于 2025-2-27 22:43</a>
+
+-2 
+
+全程看不到乌米玲喜欢mijuca到想要复活的动机，团队氛围很好？感情很深？ 还不如打工乐队轻松，你也中 ...</blockquote>
+母鸡卡发的钱多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 192#       发表于 2025-2-27 23:21
+
+爬了一下楼发现+2的理由大都已经不正经对待了，所以+2其实和-2差不多吧
+
+*****
+
+####  yozoraxsx  
+##### 193#       发表于 2025-2-27 23:21
+
+在+2-2犹豫 还是+2吧 看在传奇调查员大喵老师还在坚守人性的份上
+
+这片已经pop子化了 应该用pico画风 删掉剧情 每集十几个小单元
+
+*****
+
+####  Anley  
+##### 194#       发表于 2025-2-27 23:21
+
+-1
+
+属于是乐子也没看明白
+
+*****
+
+####  truepants  
+##### 195#       发表于 2025-2-27 23:21
+
+我在看寒蝉卒吗
+
+
+*****
+
+####  听牌小堇  
+##### 196#       发表于 2025-2-27 23:22
+
+-2
+
+等一周只能看20min，根本不够看，差评<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 197#       发表于 2025-2-27 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一还保有正常人思维的竟然是个有事上司顶，没事顶上司的厕妹网红
+
+*****
+
+####  もも的洞洞鞋  
+##### 198#       发表于 2025-2-27 23:24
+
+从头笑到尾
+
+这集脚本太像ai生成的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酒巻真希菜  
+##### 199#       发表于 2025-2-27 23:24
+
+-2反复横跳
+
+*****
+
+####  Bearbot  
+##### 200#       发表于 2025-2-27 23:25
+
+谁能告诉我，这几个人在干什么，还有人类吗？
+
+
+*****
+
+####  木板春香  
+##### 201#       发表于 2025-2-27 23:26
+
+好猫觉得搞笑+2 坏猫觉得恶心-2 所以我决定=0
+

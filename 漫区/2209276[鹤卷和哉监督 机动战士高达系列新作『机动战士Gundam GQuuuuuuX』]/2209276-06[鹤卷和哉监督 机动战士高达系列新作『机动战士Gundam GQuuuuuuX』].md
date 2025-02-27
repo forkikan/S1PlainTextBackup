@@ -3409,3 +3409,19 @@ mcl的特典场时间还稍好一点，不过肯定更难抢了
 
 希望tv不要引进<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我的心态很狭隘
 
+
+*****
+
+####  WallHrolf  
+##### 7686#       发表于 2025-2-27 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">如果不是流媒体而是上院线的话绝对纯亏的吧
+
+
+*****
+
+####  刺客ares  
+##### 7687#       发表于 2025-2-27 23:23
+
+微博发了，路画引进发行，要上了
+
