@@ -15503,3 +15503,38 @@ soyo这三天三夜可能就跟观音对悟空一样，逐渐发现莫是一个�
 
 2025-2-28 03:15 上传
 
+
+*****
+
+####  滑稽Captain  
+##### 31049#       发表于 2025-2-28 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538063&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-2-28 02:51</a>
+
+5厕都绷不住刷粪动画了，还有个yygq深得我心
+
+7話以降は叩いてもいいという風潮ひどすぎる
+
+7話はうーんっ ...</blockquote>
+刷屏クソアニメ、つまんね、打ち切れ的从第七集就在刷了，可能一直是同一个人
+
+*****
+
+####  楚暮秦朝  
+##### 31050#       发表于 2025-2-28 03:33
+
+本来没觉得，现在真觉得有点内部恨得味道了。这疯传箱子回旋镖也太多了吧，上集不组ccc这集要组，这集说鸡团不能复活下集就要复活，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">制作组到底想把大象老师塑造成什么样完全看不明白，每一集感觉就是一个新的人设。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 31051#       发表于 2025-2-28 03:35
+
+话说这集小睦突然死了确实有点怪啊，主要是发生在那个时间点太怪了。
+正常情况不应该是锚点不稳了才会死吗，当时得知小祥帮自己组建c团，小睦的人格应该更稳固才对呀，怎么就突然被反杀了呢。
+难道真是初华推下楼梯害的？
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

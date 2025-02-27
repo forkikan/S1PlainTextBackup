@@ -459,3 +459,11 @@ Leaf的《雫》《痕》以及《TOHEART》最大的特点在于覆盖全屏幕
 
 <img src="https://s3.bmp.ovh/imgs/2025/02/28/5909a0128f121b9b.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Quelaan  
+##### 43#       发表于 2025-2-28 03:32
+
+完全没接触过这系列，值得玩吗？
+
