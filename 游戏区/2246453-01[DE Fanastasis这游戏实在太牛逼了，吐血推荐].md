@@ -2622,3 +2622,11 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 海底隧道 大图</blockquote>
 感谢 原来我都探的差不多了…… 被WIKI误导了一直在往上探
 
+
+*****
+
+####  红烧肉  
+##### 227#       发表于 2025-2-27 12:32
+
+这游戏同伴太多选择强迫症要犯了，感觉每个都还可以又每个都有问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有推荐的万用配置吗
+
