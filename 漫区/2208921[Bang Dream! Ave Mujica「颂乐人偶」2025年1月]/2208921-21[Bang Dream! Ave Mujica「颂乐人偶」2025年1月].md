@@ -7050,3 +7050,13 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 30218#       发表于 2025-2-27 21:25
+
+<blockquote>非建政专用号 发表于 2025-2-27 21:19
+应该是木头人吧，现在和大象玩主从play的日常漏一点出来都能把某个留人一个月相敬如宾最后只能发几条短信收 ...</blockquote>
+讲个笑话，初华唯一一次成功推进好感度的互动，是莫老师教她的手法
+
