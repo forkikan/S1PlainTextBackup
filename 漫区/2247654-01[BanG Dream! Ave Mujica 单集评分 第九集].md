@@ -2820,3 +2820,12 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 -1，顺从了，虽然和第七集差不多烂但是更乐
 
+
+*****
+
+####  AP0rt_  
+##### 310#       发表于 2025-2-28 05:56
+
++2
+看完后我的脑子里不知道为什么一直在响战损版的托马斯小火车的bgm<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
