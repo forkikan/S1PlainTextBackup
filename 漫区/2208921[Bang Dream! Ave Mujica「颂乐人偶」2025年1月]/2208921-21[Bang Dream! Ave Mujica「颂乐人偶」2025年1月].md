@@ -6505,3 +6505,45 @@ kkr有世界观滤镜的，这是神族人才能有的特征。类似的还有�
 
 那架落灰的钢琴，C团葬礼后有没有再去碰过？
 
+
+*****
+
+####  小博禹  
+##### 30170#       发表于 2025-2-27 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531758&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 17:27</a>
+因为所谓的“白祥”也不是正常人，她是一个“重症晚期的病人”，所以由她所主导的乐队也不会是一个正常的 ...</blockquote>
+CCC才活了几周。。怎么就被束缚了，第一次live后就结束了呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还有所谓“白箱”不就是个母亲去世后在青梅、朋友陪伴下振作起来，一起组乐队享受青春的普通jc吗。。怎么被你说得跟这么奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 30171#       发表于 2025-2-27 18:33
+
+[test](https://img.nga.178.com/attachments/mon_202502/27/axw3Q2v-ec4hK26T3cSzk-k0.jpg)
+
+
+*****
+
+####  非建政专用号  
+##### 30172#       发表于 2025-2-27 18:34
+
+剩下这几集又要给精神病人治疗又要研究病因真的够吗，这还是有两个轻症患者的情况了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小博禹  
+##### 30173#       发表于 2025-2-27 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531885&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 17:41</a>
+还有所谓的抽陀螺和“拼尽全力无法战胜”其实都无法伤害到祥子，因为你无法重复杀死一个已死的人，根本原因 ...</blockquote>
+在母鸡卡里真没看到二刺螈的美好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
