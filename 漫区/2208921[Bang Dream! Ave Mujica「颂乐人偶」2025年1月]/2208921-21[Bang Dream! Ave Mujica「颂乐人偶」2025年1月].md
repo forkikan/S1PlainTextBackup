@@ -4743,3 +4743,34 @@ KTV里反复2首复读
 
 sumimi不更夸张，剧内都已经说sumimi的新歌了，但是至今剧外sumimi就只有那首here the world
 
+
+*****
+
+####  cccpprc  
+##### 30028#       发表于 2025-2-27 11:34
+
+所以这个薛定谔的现实就很奇怪
+
+你说从一开始就是老登在坐镇
+
+那没理由喵梦能摘面具免责
+
+如果老登是想故意挖坑玩捧杀，那不和喵梦有交易是很难做到的——然而没有证据
+
+
+*****
+
+####  与太郎  
+##### 30029#       发表于 2025-2-27 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528739&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-27 11:30</a>
+
+KTV里反复2首复读
+
+看剧情里应该是还有一些，比如说全国巡演你就不可能就2首反复loop</blockquote>
+主要是sumimi唱多唱少都只是附加值高低的问题，和角色塑造无关
+
+mujica本来就演得支离破碎了，前几集还不多给点歌出来让大家多脑补一下角色，感觉说不过去啊
+
+就算是开播前已发布的歌曲，也可以在剧中提一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
