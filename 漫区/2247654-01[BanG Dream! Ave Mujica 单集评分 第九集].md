@@ -2829,3 +2829,13 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 +2
 看完后我的脑子里不知道为什么一直在响战损版的托马斯小火车的bgm<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ぽんぽこ仮面  
+##### 311#       发表于 2025-2-28 06:16
+
+-2
+
+太平庸连搞笑都搞笑不起来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">果然是不能做严肃剧情，这节奏你说制作组做到一半被导弹炸过我都信好吧
+

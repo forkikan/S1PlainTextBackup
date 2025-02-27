@@ -467,3 +467,20 @@ Leaf的《雫》《痕》以及《TOHEART》最大的特点在于覆盖全屏幕
 
 完全没接触过这系列，值得玩吗？
 
+
+*****
+
+####  760194962  
+##### 44#       发表于 2025-2-28 06:12
+
+ 本帖最后由 760194962 于 2025-2-28 06:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537908&amp;ptid=2247492" target="_blank">wolf1997 发表于 2025-2-28 02:18</a>
+
+我之前在S1写过一篇从《16bit的感动》的考据引申Galgame历史的文章（在B站也发过专栏[https://www.bilibil](https://www.bilibil) ...</blockquote>
+谢谢，讲得很清楚:)
+
+那心跳回忆其实应该放在哪条线上？我还没玩过，只是有些大概了解
+
+我之前玩到过一部叫MOON的，虽然只玩了点开头，但估计是属于先有世界观后有角色的“老派”叙事风格
+[https://nexton-net.jp/~nexton/moon/index.html](https://nexton-net.jp/~nexton/moon/index.html)
+

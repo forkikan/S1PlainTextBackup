@@ -15616,3 +15616,27 @@ soyo这三天三夜可能就跟观音对悟空一样，逐渐发现莫是一个�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  寒星  
+##### 31058#       发表于 2025-2-28 06:08
+
+ 本帖最后由 寒星 于 2025-2-28 06:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538086&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-28 02:58</a>
+如果剧情不瞎搞，灯应该是稍微有些迷茫，如果其他队友不乐意，自己没必要坚持一个不会有结果的事，不会忘 ...</blockquote>
+这里应该也是暗指祥子吧，怎么做都是错，进不对，退也不对，组不对，不组也不对，动也不对，摆也不对<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+本质来说还是祥子做事都是靠本能和数值，顺的时候是白月光，不顺的时候怎么做都不对，mujica这几集下来，我感觉只有上帝视角，获取全部情报然后时光回溯才能做对了
+
+mygo最后灯的结论是迷路也无所谓，人迷路是正常的，只要走下去就好了
+
+那祥子被搞成这样，结局得出什么结论才能顺利进手游？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 31059#       发表于 2025-2-28 06:10
+
+为什么都认为喵梦能一眼看出是Mortis在演睦，如果是这样的话连续两次都没看出来的祥子这半身的含金量又提高了
+
