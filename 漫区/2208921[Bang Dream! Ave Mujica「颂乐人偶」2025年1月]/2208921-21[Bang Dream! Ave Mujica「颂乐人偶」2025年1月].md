@@ -6261,3 +6261,53 @@ kkr不参与任何此类讨论
 kkr完全是神族</blockquote>
 育美的肉体，熏的精神力也很抽象，下次记得把hhw都ban了
 
+
+*****
+
+####  天空塔书记官  
+##### 30151#       发表于 2025-2-27 17:41
+
+还有所谓的抽陀螺和“拼尽全力无法战胜”其实都无法伤害到祥子，因为你无法重复杀死一个已死的人，根本原因还是在祥子自己，看她是否愿意走出来而不是继续自闭
+
+如果祥子的原型确实参考了“抑郁症患者”，那她与现实最大的不同就是她真的可以靠自己来走出困境，因为她有那个能力，二次元真美好啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 30152#       发表于 2025-2-27 17:42
+
+kkr有世界观滤镜的，这是神族人才能有的特征。类似的还有能看到星星的和能看到鲸鱼的。
+
+大祥显然没这能力，所以终归是凡人。说她有神性我是不同意的。
+
+*****
+
+####  595505568  
+##### 30153#       发表于 2025-2-27 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531702&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-27 17:21</a>
+我发现素世退队也还是立希的锅，春日影之后素世先说为什么演奏春日影，再说祥子哭了（这时候素世并没有一定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 30154#       发表于 2025-2-27 17:44
+
+kkr那是年幼的基因原体吧。
+
+*****
+
+####  YF31  
+##### 30155#       发表于 2025-2-27 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都第九集了，还在"就是这样的，你祥符号活该啊"，就这么喜欢看一群舔狗舔烂人和烂人组乐队吗？喜欢一集干废牢C所有人的人设吗？
+你把丰川祥子写烂的直接后果就是绕着她转的一圈全是没苦硬吃的舔狗，真心觉得这样写没问题的人那我只能顺从。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
