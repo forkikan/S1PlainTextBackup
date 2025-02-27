@@ -2677,3 +2677,56 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 +2分给小墨，小墨可爱；
 
+
+*****
+
+####  真爱与热情  
+##### 296#       发表于 2025-2-28 02:06
+
+这就是连5厕都开始绷不住的含金量
+
+还是那句话，mujica这几个人有啥组乐队的内生性理由吗
+
+大祥跟睦就是一条蛇在咬自己的尾巴，睦为了祥子要组哭团，祥子为了睦也要组哭团。不禁让人想问，上集的睦想重组哭团是因为祥子吗
+
+海铃要组mujica是因为mujica的伙食太好了，还是工资高？
+
+初华可以说是贯彻人设了，舔祥急先锋
+
+这么看可能大猫组mujica的理由还要充分点，本质想证明自己
+
+大莫老师更是身后就是悬崖的狠人
+
+*****
+
+####  斯大林的拖拉机  
+##### 297#       发表于 2025-2-28 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537854&amp;ptid=2247654" target="_blank">真爱与热情 发表于 2025-2-28 02:06</a>
+这就是连5厕都开始绷不住的含金量
+
+还是那句话，mujica这几个人有啥组乐队的内生性理由吗
+
+大祥跟睦就是一条 ...</blockquote>
+《麦琪的礼物》嘛，柿本监督致敬欧亨利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍出来像戴佳伟自我拉扯
+
+*****
+
+####  小博禹  
+##### 298#       发表于 2025-2-28 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536538&amp;ptid=2247654" target="_blank">wuhhhh 发表于 2025-2-28 00:01</a>
+无法用语言形容一部烂出天外，每一节剧情都是灾难的少女乐队番。如果当初看魔法少女是震撼，现在看这部完全 ...</blockquote>
+悲报，有十三集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qwased  
+##### 299#       发表于 2025-2-28 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537720&amp;ptid=2247654" target="_blank">BloodWingS 发表于 2025-2-28 01:46</a>
+口口声声说要拍惊声尖叫，结果拍出来是惊声尖笑</blockquote>
+或者说进了米其林餐厅，服务员问你补胎还是换胎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

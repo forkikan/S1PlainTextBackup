@@ -14611,3 +14611,204 @@ mygo里演的不是复仇也得是多少带点嫉妒吧，不然我是真搞不�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 30971#       发表于 2025-2-28 02:08
+
+不过大猫应该没退路了，演员上不去，主播带不动货。哪怕不喜欢也必须去鸡团打鼓了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30972#       发表于 2025-2-28 02:09
+
+<blockquote>天空塔书记官 发表于 2025-2-28 02:07
+睦的演技目前表现出的除了“椅子上的人偶”就是“莫提斯”的复刻能力，但复刻需要一个原本，这不是表演，而 ...</blockquote>
+喵梦劝Mortis单飞的时候已经是Mortis代打一阵子且人格分裂被挑明了，无论喵梦信不信人格分裂，她都不至于突然到了第九集又看不上Mortis演技吧，不如说她一直坚持睦断片是演技才是最抽象的
+
+*****
+
+####  天空塔书记官  
+##### 30973#       发表于 2025-2-28 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537845&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 02:05</a>
+你说的那是第二集睦台上断片，第三集睦已经被Mortis吃了</blockquote>
+啊…这，是我记错了，抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 30974#       发表于 2025-2-28 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537870&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 02:09</a>
+
+喵梦劝Mortis单飞的时候已经是Mortis代打一阵子且人格分裂被挑明了，无论喵梦信不信人格分裂，她都不至于 ...</blockquote>
+等下话再说吧。
+
+照理来说这种双子假扮另一人的戏码不该这么快被戳穿的。
+
+*****
+
+####  阿兹尔  
+##### 30975#       发表于 2025-2-28 02:12
+
+接下来是什么，一集光速包完饺子然后进入初华祥子的家族线？
+
+*****
+
+####  江口夕  
+##### 30976#       发表于 2025-2-28 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537871&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 02:10</a>
+啊…这，是我记错了，抱歉
+
+—— 来自 鹅球 v3.3.96</blockquote>
+第三话并没有被完全吃掉，可以认为是过程，所以可以理解为是有一部分睦的演技，但是动画并没有做很明显的区分。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 30977#       发表于 2025-2-28 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537870&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 02:09</a>
+喵梦劝Mortis单飞的时候已经是Mortis代打一阵子且人格分裂被挑明了，无论喵梦信不信人格分裂，她都不至于 ...</blockquote>
+因为她不知道那是莫提斯，是在第四集大分裂的时候才知道的，而且她的执念镜头只有“椅子上的人偶”，第三集的即兴表演并没有出现<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 30978#       发表于 2025-2-28 02:13
+
+ 本帖最后由 JustW 于 2025-2-28 02:14 编辑 
+
+我一直不能理解的就是为什么要把演技和精神病混为一谈，精神病人都是演技高手还是演技高手都必须得精神病？一个喵梦一个睦妈，到现在也说不清睦到底是演技厉害还是有精神病，反正是莫名其妙就被打击到一个躲亲生女儿一个不能再起。虽然从现在来看应该是二者兼有吧，毕竟都能对着录像学吉他了，这不是有写轮眼是解释不了了。
+
+*****
+
+####  北条早苗  
+##### 30979#       发表于 2025-2-28 02:14
+
+睦头失去意识之后就把操纵权移交给真正的演技大师奈亚圣体原初若叶睦了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+多重人格那堆都只不过是原初若叶睦的角色而已，真正的大师演个椅子把大喵吓出ptsd不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 30980#       发表于 2025-2-28 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537826&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 02:03</a>
+海铃也算吧，但是有点不太当人</blockquote>
+怎么这两个都是贝斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 30981#       发表于 2025-2-28 02:14
+
+《若叶睦被墨提斯篡位找下自己问题》
+前面忘了
+你*怎么找自己问题，我大优势把墨提斯秒了，海玲他*一句话就小丑回魂顶号了我怎么打？我趁墨提斯睡觉顶号找高松灯遇上幻想杀手怎么打？问那那高松灯要不要重组c团支支吾吾话都说不明白，这他*不是要把人搞疯
+被玩到死，运营到死！
+抢到最后脑内洋馆年久失修把自己摔死了，弹幕来一句哎呀，你怎么不多找找自己问题？
+他*的，我在三层楼高的楼梯上滚下来没死，在他*脑子里摔死了，还有那个墨提斯，发现没我了要死了，最后来一句，哎呀，我要帮助小睦
+他*的，我被你搞死了诶，老子辛辛苦苦把大象玩弄与鼓掌之间，和她玩主从play，重组c团ing，这废物墨提斯最后来一句，哎呀，我扮演小睦不就好了
+老子玩吉他的只能吸蓝冰吸死懂吗，我不能像个孬种一样在脑子里摔死懂吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 30982#       发表于 2025-2-28 02:14
+
+10话重组办live
+
+11话揭露真相，初华跑路
+
+12话追人回来，继续live
+
+13话鸡狗对邦包饺子吧。
+
+老登可能会在背景里再提几句。不过我觉得初华比祥子大一辈的设定比较奇怪，也有可能是小姨的女儿。
+
+*****
+
+####  老贝  
+##### 30983#       发表于 2025-2-28 02:15
+
+<img src="https://img.saraba1st.com/forum/202502/28/021517n2m3mc2fll3h3y3y.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (268.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 02:15 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/021517w9ozcccull591jmc.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (151.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 02:15 上传
+
+墨练的第三首歌是什么，目前动画里就只出现过两首吧。
+
+*****
+
+####  zhoujin8584  
+##### 30984#       发表于 2025-2-28 02:16
+
+<blockquote>huxiaopao163 发表于 2025-2-28 01:32
+大猫小猫两人最后各一句，下集肯定有说法啊。。。
+
+比如下集说两只猫都看出来了莫在演之类的 ...</blockquote>
+小猫不是很正常吗？她本来就来看出来，而且之前她只认识墨提斯，交的朋友是墨，只是因为墨提斯的请求才出手救的睦。对于其中一个不认识的人格的死，朋友的吃鸡胜利，胜利完还要演一下消失的人格，演出的目的是反ccc，对go团有利，她乐见其成。
+
+*****
+
+####  wwwttth  
+##### 30985#       发表于 2025-2-28 02:17
+
+<blockquote>adretyu67. 发表于 2025-2-28 01:34
+小猫的评价很神奇，是有趣的女孩子。她平时评价是有趣的女人。
+
+但是看她还挺高兴的？？？ ...</blockquote>
+这个在mygo里就改过了
+
+*****
+
+####  堆雪若叶  
+##### 30986#       发表于 2025-2-28 02:17
+
+一开始还以为睦是醒来的时候发现自己刚好到灯家附近才去找灯的，结果看了看经堂在哪原来要她往回坐半个到一个时车才能到成为人类桥？难怪车上还是黄昏到灯家楼下天都黑了。
+<img src="https://p.sda1.dev/22/743235b8e8e40c9b1c8a18ffe8091041/_Nekomoe kissaten__BanG Dream! Ave Mujica__09__1080p__JPSC_.mp4_001428.182.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f6deb904d07ef27df5f2b1b8aac714ad/5.png" referrerpolicy="no-referrer">
+
+但结果也根本不知道睦为什么要大老远跑去找灯，电波无口仿佛脑波交流要一起去看星星。不过睦躲在灯后面扯扯灯衣服又觉得两只小动物其实还很合拍<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 30987#       发表于 2025-2-28 02:17
+
+祥子晾了初华这么久，居然能在后面这么点集数把感情提上来，不敢想象
+
+*****
+
+####  595505568  
+##### 30988#       发表于 2025-2-28 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537535&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 01:22</a>
+现在还有招魂独角兽环节吗</blockquote>
+有什么招魂的必要吗，RAS吃的独角兽答辩Mujica居然原来要重新吃一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我看这个婆娘确实该滚了，RAS苦完你路径依赖鸡团继续苦，神人了我看是
+
