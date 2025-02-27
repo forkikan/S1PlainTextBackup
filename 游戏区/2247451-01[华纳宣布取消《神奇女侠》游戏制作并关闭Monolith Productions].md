@@ -447,3 +447,15 @@ Monolith 成立至今做的游戏口碑基本都挺好的，中土世界两座�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Adrenaline!!!  
+##### 45#       发表于 2025-2-27 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529032&amp;ptid=2247451" target="_blank">mj240608414 发表于 2025-2-27 12:02</a>
+中土世界我记得销量没这么低吧，这样也砍了？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+中土世界没问题，神奇女侠这倒霉游戏拉扯了八年才是问题。
+

@@ -4819,3 +4819,33 @@ mujica本来就演得支离破碎了，前几集还不多给点歌出来让大�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是丰川的大手后面还有另一只大手，丰川大手就是靠这后面的大手起来的，所以丰川的大手就跟丰川小登一样中看不中用，关键局全拉
 
+
+*****
+
+####  ape-apple  
+##### 30034#       发表于 2025-2-27 12:04
+
+还是拿蜇举例子，蜇一部下来五首歌三个live，有三个特殊ed，全员服装都换了几遍。你鸡不是史上最狂少女乐队吗，快用神奇的mggm想想办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30035#       发表于 2025-2-27 12:08
+
+<blockquote>K·os 发表于 2025-2-27 11:47
+这种有几首歌的问题其实就和动画人物有一衣柜一样的衣服是一样的，总之就这么个意思，理解一下就是
+
+——  ...</blockquote>
+歌表多填幾首歌名又不用錢
+
+制作組就是在寫草台班子
+
+*****
+
+####  6030sylar  
+##### 30036#       发表于 2025-2-27 12:08
+
+mggm只能给你整活卖蛋白棒，钱是没有的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
