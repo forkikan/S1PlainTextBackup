@@ -5007,3 +5007,16 @@ CCC的问题和鸡团拆团理由的割裂感一样，存在一点创作者视�
 
 但编剧高估了自己对复杂剧本的情节分配能力，也高估了观众对线索和情绪的串联能力。大多数观众情绪流其实更适合的是将这些稀碎片段组合在一集的篇幅内集中释放
 
+
+*****
+
+####  cxj649  
+##### 30051#       发表于 2025-2-27 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529681&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-27 13:13</a>
+
+我猜测🦄的思路表达的意思是CCC本来解散就是一场误会，或者说是祥子的任性，只要祥子稳定CCC就回来了。结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上天朝滑坡和不满爆发也是因为这个啊
+
+早说了黄毛爱音
+
