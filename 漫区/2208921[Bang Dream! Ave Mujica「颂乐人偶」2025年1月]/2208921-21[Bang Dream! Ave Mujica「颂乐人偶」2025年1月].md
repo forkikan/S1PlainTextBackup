@@ -4611,3 +4611,24 @@ sumimi里主唱是甜甜圈。
 weibo：纯白的冠冕</blockquote>
 倒数第二三格呜咪铃可爱捏
 
+
+*****
+
+####  南宮凝香  
+##### 30015#       发表于 2025-2-27 10:54
+
+信不信就純粹看你想信什麼了
+
+只不過滑坡就是爽
+
+*****
+
+####  595505568  
+##### 30016#       发表于 2025-2-27 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527782&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 09:45</a>
+場外聲優都很努力
+
+奈何上層都是SB</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

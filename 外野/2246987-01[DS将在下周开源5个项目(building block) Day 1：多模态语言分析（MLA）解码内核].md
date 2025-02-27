@@ -1237,3 +1237,13 @@ parallism algorithm
 
 2025-2-27 10:30 上传
 
+
+*****
+
+####  holmesjerry  
+##### 107#       发表于 2025-2-27 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526044&amp;ptid=2246987" target="_blank">精钢魔像 发表于 2025-2-26 22:22</a>
+梁总是从哪里招到这么一群大神的？不可能是社招吧</blockquote>
+梁总：<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道啊 我找人来炒股票的
+
