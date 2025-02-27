@@ -12176,3 +12176,331 @@ winwing事务所就是tgw的产业啊。
 
 懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏
 
+
+*****
+
+####  JustW  
+##### 30733#       发表于 2025-2-28 00:26
+
+说白了再不给海铃这个配角安排一个建团动机，剩下想复活母鸡卡的就剩下一个不想死的Mortis和想上祥子的初华了，这动画更发展不下去了
+
+*****
+
+####  非建政专用号  
+##### 30734#       发表于 2025-2-28 00:26
+
+奶龙还不够串，没上去找神人们要个最喜欢的乐队，最喜欢的偶像，最喜欢的主播签名
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 30735#       发表于 2025-2-28 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536895&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 00:26</a>
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+为了“祥子的幸福”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 30736#       发表于 2025-2-28 00:27
+
+<img src="https://img.saraba1st.com/forum/202502/28/002706fxsysvwzbhnnbs1x.jpg" referrerpolicy="no-referrer">
+
+<strong>E14CB1081C5FC85BE28C0B35F2CA9162.jpg</strong> (18.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这集解答了为什么大喵老师对初华态度冷漠
+
+原来才5万粉的纯路边啊
+
+*****
+
+####  fuwamoco  
+##### 30737#       发表于 2025-2-28 00:27
+
+<blockquote>KokutouMikiya 发表于 2025-2-28 00:26
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+大祥全肯定机器人：大祥第七集ccc很开心，那我就要ccc回来。
+
+*****
+
+####  ryuusu  
+##### 30738#       发表于 2025-2-28 00:28
+
+最变态的是对初华的恶意啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30739#       发表于 2025-2-28 00:28
+
+<blockquote>KokutouMikiya 发表于 2025-2-28 00:26
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+因为吉他睦智商情商都堪忧，她观察发现C团时期祥子幸福+M团时期祥子痛苦，所以只要复活C团就一定会让祥子幸福了吧！然而这完全是倒因为果。
+
+*****
+
+####  216kk  
+##### 30740#       发表于 2025-2-28 00:28
+
+看到现在只能说是配得上op颜艺的剧情
+
+*****
+
+####  半年  
+##### 30741#       发表于 2025-2-28 00:28
+
+第九集了莫睦的剧情完全没有要收尾的迹象，占比这么多剧情还重，如果是24集+的半年番还差不多
+
+*****
+
+####  刑部姬真可爱  
+##### 30742#       发表于 2025-2-28 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536925&amp;ptid=2208921" target="_blank">ryuusu 发表于 2025-2-28 00:28</a>
+
+最变态的是对初华的恶意啊这种推情敌滚下楼的情节就算没有发生，但画面做出来就挺..在二偶无法被超越了吧 ...</blockquote>
+“史上最狂”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30743#       发表于 2025-2-28 00:29
+
+<blockquote>ryuusu 发表于 2025-2-28 00:28
+最变态的是对初华的恶意啊这种推情敌滚下楼的情节就算没有发生，但画面做出来就挺..在二偶无法被超越了吧 ...</blockquote>
+真推了也没事吧，反正睦又不是没滚过楼梯，一点事都没有（
+
+*****
+
+####  Huzps  
+##### 30744#       发表于 2025-2-28 00:30
+
+现在我最同情的是祥子厨，很难想象能坚持到这一集，爹不疼妈不爱的垫子角色，最大的作用就是当疯狂的背景板<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30745#       发表于 2025-2-28 00:30
+
+這部所有關於Why 的問題
+
+答案都是柿本逼的
+
+*****
+
+####  fuwamoco  
+##### 30746#       发表于 2025-2-28 00:30
+
+<blockquote>JustW 发表于 2025-2-28 00:29
+真推了也没事吧，反正睦又不是没滚过楼梯，一点事都没有（</blockquote>
+有一说一那是大头朝下丢出去
+
+*****
+
+####  adretyu67.  
+##### 30747#       发表于 2025-2-28 00:30
+
+大金毛基本上就是一连串打击，开场魂不守舍，然后除了组CCC就是组CCC，跑去找领导回复一个mujica凉了。
+
+差不多是属于嗷的一声疯特了的边缘了。
+
+*****
+
+####  Cortana  
+##### 30748#       发表于 2025-2-28 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536895&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 00:26</a>
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+她觉得小祥在c团时最开心。本质就是无法接受痛苦的当下而希望永远留在过去。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  海洋队手下mayo  
+##### 30749#       发表于 2025-2-28 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536843&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 00:22</a>
+按我前面汴京半天的结果就是海子姐don facking care的，实际上如果不是立希嘴了一句确实完全没在意好吧 ...</blockquote>
+那你就说立希嘴没嘴吧 嘴了那不就是开始care了吗 care开始了不就能无限增殖了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我只是说剧本就是这么演的，你觉得嘴一句这care不按常人的增殖速度就变成超级极端的辞职救莫不合常规逻辑 那又是另一回事，那也是他们牛逼编剧搞出一个对责任这玩意认识很极端的癫佬
+
+*****
+
+####  零壹贰叁  
+##### 30750#       发表于 2025-2-28 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">湾u都受不了了
+
+1.PNG
+(58.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:30 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/003039psysf3zfs742lyyq.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 30751#       发表于 2025-2-28 00:31
+
+这集是不是坐实了企鹅冰的存在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+初华吸完最后残余的蓝冰之后，一接触到企鹅冰两种上头嗷的一声就疯特了
+
+*****
+
+####  KokutouMikiya  
+##### 30752#       发表于 2025-2-28 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536931&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:28</a>
+因为吉他睦智商情商都堪忧，她观察发现C团时期祥子幸福+M团时期祥子痛苦，所以只要复活C团就一定会让祥子 ...</blockquote>
+服了。这逻辑真的是ai生成的吧。
+
+
+*****
+
+####  烂片雷达  
+##### 30753#       发表于 2025-2-28 00:32
+
+初华为什么只想推睦不想推灯
+难道根本原因不是睦祥两个人都无法割舍灯的歌词才重组哭啦西哭的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30754#       发表于 2025-2-28 00:32
+
+不要用磕cp和所谓女铜的关系性来解释一切好吗，人类的情感也不能用“想上床”来一以概之，所以根本不存在所谓的“情敌”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猫执事  
+##### 30755#       发表于 2025-2-28 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536925&amp;ptid=2208921" target="_blank">ryuusu 发表于 2025-2-28 00:28</a>
+
+最变态的是对初华的恶意啊这种推情敌滚下楼的情节就算没有发生，但画面做出来就挺..在二偶无法被超越了吧 ...</blockquote>
+演出效果也挺怪的，不如做成第一人称视角。
+
+*****
+
+####  一心而用  
+##### 30756#       发表于 2025-2-28 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536895&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 00:26</a>
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+其实主创本意是搞一个“麦琪的礼物”式的写法：祥子觉得睦因为mujica不幸福彩精分所以决定为了睦重组crychic，睦觉得祥子在crychic时才是开心的而在mujica时一点也不开心，还是crychic时期的白祥最好，所以重组crychic吧。
+但事实上就是两边都有误解都很别扭，本来互相为对方着想也没啥，就是太不顾其他几个人死活了，结果还有个真的有死活问题的大墨老师一下子剧情就乱套了起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rushsong  
+##### 30757#       发表于 2025-2-28 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535126&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-2-27 22:47</a>
+这就是日本人的侘寂美学么，那我真理解不了</blockquote>
+早说了现在日本人的审美不行，看看卖的好的都是些什么玩意，咒术，推子，东卍，租借女友<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 30758#       发表于 2025-2-28 00:34
+
+推睦的原因应该是初华的台词把。
+
+灯已经是mygo的人了，只剩一个ccc睦会坚持ccc。
+
+推谁还需要说吗
+
+*****
+
+####  阿兹尔  
+##### 30759#       发表于 2025-2-28 00:34
+
+推灯不行，灯太柔弱了，睦掉下楼梯还会切人格卡无敌帧，摔不死的
+
+*****
+
+####  JustW  
+##### 30760#       发表于 2025-2-28 00:34
+
+如果不用馋身子去解释的话，谁能解释通祥子身边围着一圈人为什么对祥子执着到又是可以毁灭自己又是可以毁灭别人的地步
+
+
+*****
+
+####  zhzij111  
+##### 30761#       发表于 2025-2-28 00:35
+
+睦厨还有活人吗，吉他睦是假的，墨提斯也是假的，只有巨大黑影古神睦是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  结衣小比取  
+##### 30762#       发表于 2025-2-28 00:35
+
+<img src="https://img.saraba1st.com/forum/202502/28/003354y771170ts1ft6q66.gif" referrerpolicy="no-referrer">
+
+<strong>ep9海玲的反应.gif</strong> (3.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:33 上传
+
+海玲是不是在睦说自己是认真的时候，才下定决心退出其他乐队的？
+
+不过这个诚意不太足，因为她的水平随时可以再加入新的
+
+<img src="https://img.saraba1st.com/forum/202502/28/003352ok6sd20upsuwpccg.gif" referrerpolicy="no-referrer">
+
+<strong>ep9CRYCHIC问答.gif</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:33 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/003351e8j2zb2qajbjbjb8.gif" referrerpolicy="no-referrer">
+
+<strong>ep1CRYCHIC问答.gif</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:33 上传
+
+另外相对立希这个问话，祥子沉默了4.713秒才回答，比第一话睦问她CRYCHIC要怎么办沉默（3.3秒）还长，期间Soyo都拿起杯子喝了口<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+（本帖有几个GIF，可能需要缓冲）
+
+*****
+
+####  yaneis  
+##### 30763#       发表于 2025-2-28 00:35
+
+性欲说是最能解释的了
+
+*****
+
+####  一心而用  
+##### 30764#       发表于 2025-2-28 00:36
+
+睦只会死于精神世界都摔下楼，物理世界是金刚不坏之身。
+
