@@ -7164,3 +7164,80 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 一开始就笑出来了，难绷
 
+
+*****
+
+####  cxj649  
+##### 30231#       发表于 2025-2-27 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">吉他睦无了（暂时）
+
+*****
+
+####  hollyween  
+##### 30232#       发表于 2025-2-27 22:07
+
+艹，是幻想，我错了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jobtownb  
+##### 30233#       发表于 2025-2-27 22:08
+
+草，op放完我以为要放赞助商鸣谢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cxj649  
+##### 30234#       发表于 2025-2-27 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/477.png" referrerpolicy="no-referrer">2只猫看破大莫老师
+
+*****
+
+####  aptx8285144  
+##### 30235#       发表于 2025-2-27 22:10
+
+笑死，大祥要求重组ccc，还表示不会给go添麻烦，如此“天才”的想法，素世表示当初我怎么没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xpisces  
+##### 30236#       发表于 2025-2-27 22:11
+
+我只能说名字起对了，五个人偶在演舞台剧，每一幕之间还没啥关系
+
+*****
+
+####  aptx8285144  
+##### 30237#       发表于 2025-2-27 22:12
+
+爱音陪这些<strong>已读不回家伙们太辛苦了</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 30238#       发表于 2025-2-27 22:13
+
+也太快了，前面这么多集搁这演睦祥传那么浪费时间干啥呢
+
+*****
+
+####  新HGCG  
+##### 30239#       发表于 2025-2-27 22:13
+
+这这喵梦好可怜
+
+<img src="https://img.saraba1st.com/forum/202502/27/221334yir256rxrib6xb28.gif" referrerpolicy="no-referrer">
+
+<strong>猫猫12343.gif</strong> (1.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:13 上传
+
