@@ -5484,3 +5484,76 @@ ccc诈尸对mygo的存续动机有重大打击，没啥办法。
 也可能是素世经常“骚扰”立希给立希弄烦了，也就睦头缺个关心自己的妈，不然素世这种不断用某件往事去打 ...</blockquote>
 然后Go动画里只要拉的到灯就能光速回来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有办法解释的
 
+
+*****
+
+####  钦念以忱  
+##### 30087#       发表于 2025-2-27 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531235&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-27 16:27</a>
+
+素世前几话就已经在“重新开始吧”，这不是早就有盘算了（</blockquote>
+所以我觉得爱音智商高记性好，但情商其实不高，也没啥朋友，和百万爱音厨的说法不同
+
+因为情商不高，所以没看出来素世的盘算，但记性很好立希一提就反应过来了
+
+*****
+
+####  adretyu67.  
+##### 30088#       发表于 2025-2-27 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531235&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-27 16:27</a>
+
+素世前几话就已经在“重新开始吧”，这不是早就有盘算了（</blockquote>
+可不止早有盘算了。回看你会发现无名乐队组成时候爽姐台词都在尽可能避开奶龙。
+
+奶龙可能被刚见面的soyorinlove给忽哟到了，心想月之森的大小姐就是厉害。
+
+
+*****
+
+####  玖羽  
+##### 30089#       发表于 2025-2-27 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530609&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 15:13</a>
+
+但鸡的连锁感也是最明显的，狗很明显的爱素二选一局面需要灯强烈的重力击坠她们世俗的理所应当的判断。
+
+鸡有睦有祥喵，有祥有初华，雇佣兵海铃被live改变想法从睦下手是表面上最快的重组实现路径。</blockquote>
+其实……老蒋提到的人偶蜈蚣说可能真的有合理性（五个人依次为上一个人的人偶）
+
+[https://www.bilibili.com/video/BV1wcPAeyEvq/](https://www.bilibili.com/video/BV1wcPAeyEvq/)（3:46:57）
+
+即使不用人偶蜈蚣这么变态的说法，这五个人的确有一种很强的影响链，只缺一个初始推动力（初华跟祥子绑定，祥子跟睦绑定，等等）
+
+现在这个推动力由海铃给了（先不管为什么），如果海铃能通过教吉他成功让睦跟自己绑定（先不论是哪个人格），这一连串一个接一个都能回来
+
+*****
+
+####  天空塔书记官  
+##### 30090#       发表于 2025-2-27 16:34
+
+ 本帖最后由 天空塔书记官 于 2025-2-27 16:36 编辑 
+
+初版的春日影其实是一首灵歌，一首充满死气的歌，而CCC就像是一场永不完结的葬礼，它的延续需要牺牲所有人的未来为代价，樱花树下埋着尸体，而樱花又在短暂而又和煦的春日里开放然后死亡，这就是生与死的一瞬
+
+这和我们普遍理解的怀念过去的美好而产生感动是完全不同的情绪，也是某种因为文化差异而产生的情感错位，所以岛国人大概真的不是很能理解大陆这边对于春日影和CCC的热衷和追捧，而由此产生的对于迷子危机感的滑坡效应也不在企划方的预计之内
+
+“尸体在说话”这就是CCC的本质
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mye  
+##### 30091#       发表于 2025-2-27 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531297&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-27 16:33</a>
+
+其实……老蒋提到的人偶蜈蚣说可能真的有合理性（五个人依次为上一个人的人偶）
+
+https://www.bilibili.co ...</blockquote>
+现在看起来是4个人和一个奴隶小祥
+
