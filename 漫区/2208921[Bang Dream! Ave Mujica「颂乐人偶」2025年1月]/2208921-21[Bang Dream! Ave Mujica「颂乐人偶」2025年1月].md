@@ -8665,3 +8665,538 @@ b站之前就锁分了吧，然后前一集还涨了0.2
 
 我都关着灯
 
+
+*****
+
+####  الطائر  
+##### 30401#       发表于 2025-2-27 22:46
+
+本集出场的人类
+
+若宫伊芙
+
+*****
+
+####  Yugao  
+##### 30402#       发表于 2025-2-27 22:46
+
+华老师现在开始在地板上写红字和紫字还有得救
+
+*****
+
+####  Libartas  
+##### 30403#       发表于 2025-2-27 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看似完全死局完全没有回旋余地的场面，那只能事已至此先唱歌了，此事在卖狗第十集亦有记载
+
+*****
+
+####  厄神之息  
+##### 30404#       发表于 2025-2-27 22:46
+
+l
+
+ 本帖最后由 厄神之息 于 2025-2-27 22:51 编辑 
+
+原来并不是，失望
+
+*****
+
+####  南宮凝香  
+##### 30405#       发表于 2025-2-27 22:46
+
+<blockquote>pp1349 发表于 2025-2-27 22:44
+谁能把关于我看mujica的记忆从我脑子里删掉
+
+—— 来自 鹅球 v3.3.96</blockquote>
+木谷哥哥說每個人都有一個Mortis，
+
+我覺得是對的
+
+我現在就需要一個莫老師來替我坦母雞卡的傷
+
+*****
+
+####  是谁的书画  
+##### 30406#       发表于 2025-2-27 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535014&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 22:43</a>
+
+这下CCC真结束了，
+
+还有人想滑坡迷子解散吗</blockquote>
+还隔这里CCC呢，现在八个人谁逃得掉名为大祥大睦的这坨屎<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 30407#       发表于 2025-2-27 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜得还真没错 是其他四个人想租母鸡卡（大喵似乎不想？）大祥不肯
+
+*****
+
+####  怀沙汨罗  
+##### 30408#       发表于 2025-2-27 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535067&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-27 22:45</a>
+三个字评价：闹麻了</blockquote>
+你别说，我现在真很期待那个x上所谓did老哥的万字解析<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  屑屑代沟尼亚  
+##### 30409#       发表于 2025-2-27 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上集睦还把莫压着打这集就摔死了 
+
+到底要**干嘛
+
+*****
+
+####  Versedust  
+##### 30410#       发表于 2025-2-27 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535080&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-27 22:46</a>
+
+本集出场的人类</blockquote>
+还有layer
+
+*****
+
+####  zhzij111  
+##### 30411#       发表于 2025-2-27 22:47
+
+爱圣这集自己搞自己已经无私到只能当奥特曼了。
+
+这番还像个人的就剩大喵和墨提斯了，一个小奸小恶，一个小屁孩，不过大喵迟早也要被伪人们同化，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Суслов  
+##### 30412#       发表于 2025-2-27 22:47
+
+谁都没有想到，被我们给予厚望的皆杀的若叶睦，如此儿戏地倒在了决赛上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大莫老师一顿操作，成功牺牲自己拯救无数若叶睦，掌声实至名归，伟大无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+我现在真的无比确信在母鸡卡里，描写越少人设越好。初华要是这集不出现就还是东京市民的好邻居，这集一认真塑造立马变成嫉妒心爆棚的暴力倾向变态舔狗，海玲一认真塑造立马变成死钻牛角尖的组团机器，偷摸零一认真塑造立马回滚成犹豫不决表达不能<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+最后，我好心疼mana女士啊，天天待在一个有暴力倾向的变态身边，不敢想初华在脑海里多少次想把碍事的mana女士扔出去，能活到现在真是亏了mana女士自己人美心善嘴还甜。我收回之前不要解散的愿望，sumimi赶紧解散吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蓮華  
+##### 30413#       发表于 2025-2-27 22:47
+
+<img src="https://img.saraba1st.com/forum/202502/27/224722ynjajlz2o7nltaha.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250227224713.png</strong> (26.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:47 上传
+
+这就是日本人的侘寂美学么，那我真理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dudideng  
+##### 30414#       发表于 2025-2-27 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要睦版本的
+
+0A4371D3FB035C7B74367FE72BF15666.gif
+(92.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:47 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/224729ya48n5l2t88a57jd.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 30415#       发表于 2025-2-27 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535011&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-27 22:43</a>
+
+吉他睦存在力被大莫老师夺了</blockquote>
+倒不如说初华那一推其实含有精神力攻击把睦击倒了呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+在精神世界表现重力是不是搞错了什么
+
+*****
+
+####  Victorino  
+##### 30416#       发表于 2025-2-27 22:48
+
+<blockquote>厄神之息 发表于 2025-2-27 22:46
+哈哈哈哈哈！这大莫还有记忆宫殿的，看过了就能在脑内一遍一遍的重放学细节，超能力+1百貌哈桑+十万三千册 ...</blockquote>
+不是啊，她是在别墅地下室里拿电视放录像啊，那段结束的时候有地下室实景镜头
+
+*****
+
+####  cscbzcbz  
+##### 30417#       发表于 2025-2-27 22:49
+
+爱音又当了一集信息传话筒，哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+越来越觉得莫缇丝真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 30418#       发表于 2025-2-27 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535119&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-2-27 22:47</a>
+
+爱圣这集自己搞自己已经无私到只能当奥特曼了。
+
+这番还像个人的就剩大喵和墨提斯了，一个小奸小恶，一个小 ...</blockquote>
+这集结尾是大喵老师逼格顶点
+
+*****
+
+####  猫执事  
+##### 30419#       发表于 2025-2-27 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535073&amp;ptid=2208921" target="_blank">lyuhiu 发表于 2025-2-27 22:45</a>
+
+初华也太惨了，发现自己是代餐，现在还被用完就扔</blockquote>
+第一集祥子就说了啊 你是那种容易被骗买水晶的人。
+
+*****
+
+####  usodakedo  
+##### 30420#       发表于 2025-2-27 22:49
+
+别看这集大喵老师人物塑造回撤了，小心下一集也中了催眠麦克风，反正也不是第一次了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 30421#       发表于 2025-2-27 22:50
+
+不行笑死我了哈哈哈哈哈哈
+
+虽然列举不出笑点但是就是莫名的想笑，大概这就是抽象的极致吧哈哈哈哈哈哈
+
+*****
+
+####  天空塔书记官  
+##### 30422#       发表于 2025-2-27 22:50
+
+这下“忘记一切”的回旋镖也飞回来了，如果初华小姨假说为真的话，祥子也许能代表一部分她对亲情的渴望，初华本以为是两个孤独的人报团取暖，却没想到只是祥子组乐队耍脾气才来找她忘记一切，那确实蛮伤人的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 30423#       发表于 2025-2-27 22:50
+
+🐘老师身上带🧊已经是底层设定了吧？不然没法解释怎么身边全是舔狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 30424#       发表于 2025-2-27 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535120&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-2-27 22:47</a>
+
+谁都没有想到，被我们给予厚望的皆杀的若叶睦，如此儿戏地倒在了决赛上采访一下各位睦厨的感受，反正我是看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大莫老师也快疯了
+
+不过我好奇大莫老师这下也是会失去自我了吧233
+
+*****
+
+####  新HGCG  
+##### 30425#       发表于 2025-2-27 22:51
+
+母鸡卡越看越讨厌祥子，但因为剧情一直在拷打祥子，所以看得很乐
+
+*****
+
+####  南宮凝香  
+##### 30426#       发表于 2025-2-27 22:51
+
+還不如真讓初華一推創死結他睦
+
+突然腦內戰鬥然後莫老師推死吉他睦
+
+這是在拍武神嗎？
+
+*****
+
+####  AnnieLeonhart  
+##### 30427#       发表于 2025-2-27 22:51
+
+所以初华是小姨应该可以盖章了吧
+
+*****
+
+####  6030sylar  
+##### 30428#       发表于 2025-2-27 22:51
+
+<img src="https://img.saraba1st.com/forum/202502/27/225130czhk58gknh8bepe8.png" referrerpolicy="no-referrer">
+
+<strong>Z)_3Z86}8X8C1KE`CA0R`9E_tmb.png</strong> (96.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 30429#       发表于 2025-2-27 22:51
+
+编剧愈是给大祥画面，愈让人感觉这家伙是真的没脑子不当人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tiro_finale  
+##### 30430#       发表于 2025-2-27 22:52
+
+初华问经纪人那段我笑得不行，大人的意思是已经预订了斗财阀戏码了吧，网红也有了，就安排喵梦以曝光丰川集团黑幕为理由相要挟吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏谑二次元  
+##### 30431#       发表于 2025-2-27 22:52
+
+初华还是太怂，只敢脑内推吉他睦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 30432#       发表于 2025-2-27 22:52
+
+喵梦一直执着睦的演技也挺变态的，不过不执着这个只能去溜祥子的冰才能绑定母鸡卡了，那还是执着睦的演技吧
+
+*****
+
+####  安娜导函数  
+##### 30433#       发表于 2025-2-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534480&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-27 22:25</a>
+
+大喵老师的评分是13.0,mvp!
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+第2话就坚定的大喵党表示一本满足，可惜最后还是要被编剧大寿按住包寿司，哎
+
+*****
+
+####  qratosones1337  
+##### 30434#       发表于 2025-2-27 22:52
+
+又看了一遍，不行最后台下小人给大墨鼓掌那段太乐了哈哈哈哈哈哈
+
+太TM抽象了哈哈哈哈哈
+
+*****
+
+####  Mika-S  
+##### 30435#       发表于 2025-2-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535080&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-27 22:46</a>
+
+本集出场的人类</blockquote>
+还有RAS的主唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30436#       发表于 2025-2-27 22:53
+
+<img src="https://img.saraba1st.com/forum/202502/27/225252xa6e9ekbage0vz4g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2017.jpeg</strong> (164.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:52 上传
+
+今日首绷
+
+*****
+
+####  wsuFish  
+##### 30437#       发表于 2025-2-27 22:53
+
+这是不是第一次10人共聚一堂
+
+最后两只猫都察觉了睦的异常，只不过一个喜欢一个觉得恶心。看来mortis的表演还是不够，非得是“本色”出演才能让喵梦畏惧。就是不知道为啥mortis突然反杀了，因为学会吉他了？
+
+粉毛镜头多，但其实没她啥事，在c团问题上除了传话她说啥都确实尴尬
+
+海玲偏执症犯了，初华发癫了，睦病情反复了，喵梦ptsd了，好一出六国大封相。演出剧情逻辑抛一边，狂确实是狂
+
+*****
+
+####  圣血天使  
+##### 30438#       发表于 2025-2-27 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉爱音经过留学和前13集跟别人比已经成熟的不像中学生了，soyo差一点，海玲原来以为成熟现在一看完全是中二啊，初华简直当偶像这么长时间一个祥子就爆了。这祥子就是我最讨厌的玛丽苏女主啊，思维完全不似人，然后所有人对她好感度ex，我不理解，我只觉得mygo和母鸡卡要是没有祥子换成别的大小姐能好太多了
+
+*****
+
+####  cxj649  
+##### 30439#       发表于 2025-2-27 22:53
+
+大喵小猫2只喵喵都是好猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 30440#       发表于 2025-2-27 22:53
+
+这集要真是环大陆好评那才是真正的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">以后提到这词都能想起母鸡卡第9集这不朽标杆了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  是谁的书画  
+##### 30441#       发表于 2025-2-27 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535200&amp;ptid=2208921" target="_blank">AnnieLeonhart 发表于 2025-2-27 22:51</a>
+
+所以初华是小姨应该可以盖章了吧</blockquote>
+盖章了，那大手的反应基本上算是纯的不能再纯了。双子估计也是真的了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 30442#       发表于 2025-2-27 22:53
+
+为什么不信我啊，我是秦始皇啊
+
+*****
+
+####  圣血天使  
+##### 30443#       发表于 2025-2-27 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535060&amp;ptid=2208921" target="_blank">深渊之呗 发表于 2025-2-27 22:45</a>
+
+该说不说纯路人，
+
+歌呢？
+
+这动画片不是乐队番吗？怎么他妈快十集了唱的歌还没有战姬绝唱多？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟前面比好歹有母鸡卡的歌了，不错了，做人要知足
+
+*****
+
+####  Victorino  
+##### 30444#       发表于 2025-2-27 22:54
+
+感觉睦智商很堪忧
+
+她明明知道一切不是吗，crychic时期祥为什么幸福，am时期又为什么不幸福，这原因不是显而易见吗，迈巴赫和TGW大手啊？
+
+*****
+
+####  plusSharp  
+##### 30445#       发表于 2025-2-27 22:54
+
+祥子连失去演技的莫都不能一眼识别出来，那如果莫当初不自爆身份持续演下去不就能彻底骗过祥子？
+
+*****
+
+####  ape-apple  
+##### 30446#       发表于 2025-2-27 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535107&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-2-27 22:47</a>
+
+你别说，我现在真很期待那个x上所谓did老哥的万字解析
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+欧美小啥比们是这样的，作品里出现个bmi超标的，“哇他们真尊重非标准身材者”，出现个有精神疾病的“哇他们真关注心理问题”，所以这位DID还是tmdDIE还是会很感动
+
+*****
+
+####  十九号大侠  
+##### 30447#       发表于 2025-2-27 22:54
+
+这集歌曲含量那么高，你就知足吧
+
+*****
+
+####  m99999  
+##### 30448#       发表于 2025-2-27 22:54
+
+我觉得作为路人观众看第九集很不错啊，够乐子。认真看或者有感情的观众估计很恶心吧，但是这个走向基本上是流量最大的那一种。
+
+*****
+
+####  Litccc  
+##### 30449#       发表于 2025-2-27 22:54
+
+感觉在看b站mygo二创系列，又看一集诚不欺我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30450#       发表于 2025-2-27 22:54
+
+wsd确实炒麻炒爽了，今晚的日推热搜成了一堆宝可梦里掺着母鸡卡了
+
+*****
+
+####  风道北来  
+##### 30451#       发表于 2025-2-27 22:55
+
+大睦大莫这队精神病半身就应该找个无人岛互抠到地老天荒，丰川老登掏钱每天空投补给就够了
+
+让其他人该干啥干啥拍13集vlog都比ave mujica这坨矢好看
+
+*****
+
+####  aptx8285144  
+##### 30452#       发表于 2025-2-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535206&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-27 22:51</a>
+
+编剧愈是给大祥画面，愈让人感觉这家伙是真的没脑子不当人啊</blockquote>
+其实这集我最不适的甚至不是大祥和睦而是最后几乎疯狂吵着要组母鸡卡的海铃，这家伙和当初的人设不仅仅越来越远，而且几乎把自己是编辑的大手命令她必须这么拼命写在脸上，这工具人即视感太浓了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 30453#       发表于 2025-2-27 22:55
+
+吉他睦真的脑子有问题吧  现在大祥回去搞母鸡卡那是正儿八经的大小姐过家家乐队有啥好痛苦的
+
+*****
+
+####  ape-apple  
+##### 30454#       发表于 2025-2-27 22:55
+
+需要我提一下吗，剧透里大喵会说祥子是自己的soulmate，还会和祥子相逢一笑泯恩仇，下集大概率回收“我们可是把人生都交给你了”，指望大喵拷打祥子怎么可能
+
+*****
+
+####  怀沙汨罗  
+##### 30455#       发表于 2025-2-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535234&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-27 22:52</a>
+第2话就坚定的大喵党表示一本满足，可惜最后还是要被编剧大寿按住包寿司，哎 ...</blockquote>
+反正大喵老师正论怪物的人设现在是立住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
