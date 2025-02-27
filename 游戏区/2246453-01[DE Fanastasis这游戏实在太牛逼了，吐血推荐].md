@@ -2781,3 +2781,21 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 —— 来自 HUAWEI ALN-AL80, Android 12上的 S1Ne ...</blockquote>
 不卡关的话20小时左右，后篇比较线性，有些东西找不到很可能卡关
 
+
+*****
+
+####  塔奇克马  
+##### 243#       发表于 2025-2-27 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我总感觉这游戏里的NPC写得挺苦闷 悲壮，但是做的事情好像很多都很.......不是人........
+
+*****
+
+####  Lamune  
+##### 244#       发表于 2025-2-27 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531264&amp;ptid=2246453" target="_blank">蓬莱妹红 发表于 2025-2-27 16:29</a>
+
+看起来不错，今天回去试试看，想问下这个游戏对练级的需求大么，玩龙头作品不太想重复打很多道中小怪，有没 ...</blockquote>
+这游戏好就好在，跟一般靠杂兵战拖时间的回合制jrpg相比，它是鼓励逃跑的
+
