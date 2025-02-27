@@ -1180,3 +1180,60 @@ https://chat.qwen.ai</blockquote>
 其实我用得最多还是千问，毕竟Deepseek一天只回我两条消息</blockquote>
 秘塔搜索没什么限制
 
+
+*****
+
+####  小野賢章  
+##### 103#       发表于 2025-2-27 10:26
+
+[https://github.com/deepseek-ai/DualPipe](https://github.com/deepseek-ai/DualPipe)
+
+DualPipe is an innovative bidirectional pipeline parallism algorithm introduced in the DeepSeek-V3 Technical Report. It achieves full overlap of forward and backward computation-communication phases, also reducing pipeline bubbles. For detailed information on computation-communication overlap, please refer to the profile data.
+
+*****
+
+####  FeteFete  
+##### 104#       发表于 2025-2-27 10:29
+
+<blockquote>小野賢章 发表于 2025-2-27 10:26
+https://github.com/deepseek-ai/DualPipe
+
+DualPipe is an innovative bidirectional pipeline parallism  ...</blockquote>
+parallism algorithm
+
+这个算也是惯例了
+
+*****
+
+####  overflowal  
+##### 105#       发表于 2025-2-27 10:29
+
+<img src="https://img.saraba1st.com/forum/202502/27/102831did5fx1qswtmwdxd.png" referrerpolicy="no-referrer">
+
+<strong>screenshot-20250227-102816.png</strong> (30.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 10:28 上传
+
+今天开源的新东西，用来把通信和计算重叠的算法，梁文峰是主要开发者，chad能量太强了
+
+
+*****
+
+####  moekyo  
+##### 106#         楼主| 发表于 2025-2-27 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527668&amp;ptid=2246987" target="_blank">mp5 发表于 2025-2-27 09:30</a>
+
+一个月20刀只是cursor的费用, 还要加上所用的大模型费用</blockquote>
+哈，我之前充过一个月的，Claude 3.5 Sonnet这些都是随便的用的啊，没有额外付费啊？
+
+<img src="https://img.saraba1st.com/forum/202502/27/103035d7xheic5yxied8xr.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2025-02-27 at 10.30.21.png</strong> (217.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 10:30 上传
+
