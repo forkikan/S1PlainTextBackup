@@ -6623,3 +6623,17 @@ CCC才活了几周。。怎么就被束缚了，第一次live后就结束了呀<
 
 但基本上能做到對方說就聽
 
+
+*****
+
+####  小博禹  
+##### 30180#       发表于 2025-2-27 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532481&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-27 19:04</a>
+我始终最好奇的是，独角兽为什么要整这个FW大祥老师
+
+二创为什么要弄无敌大祥，因为这个形象虽然超模，但是 ...</blockquote>
+也不需要无敌，但你至少当个人呀<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">母鸡卡里的小祥是陀螺是人偶，但绝对不是个正常人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
