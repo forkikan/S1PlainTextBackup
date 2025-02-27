@@ -15538,3 +15538,28 @@ soyo这三天三夜可能就跟观音对悟空一样，逐渐发现莫是一个�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  木板春香  
+##### 31052#       发表于 2025-2-28 03:43
+
+  可以是模仿上次若叶睦瘫在椅子上那次演出？ 莫提斯大部分名台词其实都在模仿吧
+
+*****
+
+####  千千千千鸟  
+##### 31053#       发表于 2025-2-28 03:46
+
+半夜睡醒就给我看这个？
+
+<img src="https://img.saraba1st.com/forum/202502/28/034530t30xp1t2vwwpxxpp.png" referrerpolicy="no-referrer">
+
+<strong>1111.png</strong> (94.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 03:45 上传
+
+这集看完唯一的感想，年度台词确定
+
