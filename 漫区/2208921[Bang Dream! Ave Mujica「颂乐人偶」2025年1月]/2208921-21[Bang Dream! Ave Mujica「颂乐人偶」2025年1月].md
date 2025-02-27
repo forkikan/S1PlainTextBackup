@@ -15594,3 +15594,13 @@ soyo这三天三夜可能就跟观音对悟空一样，逐渐发现莫是一个�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  最终兵器狂战  
+##### 31056#       发表于 2025-2-28 05:09
+
+初华的颜艺实在是。。。太美味了。这种看似道貌岸然，实际上理智随时会被洪水一样对祥子的独占欲和杏欲冲到粉碎的家伙真是看得太下饭了。我总觉着这人比起失败的woman越来越像米凯拉了。米凯拉也是金色的，托莉娜是紫色的。初华是金发紫瞳，这竟然是能对上。等初华压力爆了后放飞自我，把祥子一棍子敲晕然后给自己扒光衣服爬祥子背上后起名叫“丰川祥子，三角初华的王”，站在Ring楼顶上等爱音背着指纹盾大树矛开荒自己也不是没有这个可能。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+还有个很有意思的地方，实际上c团复活这个事情上，祥子和吉他睦完全就是在互相迁就的。这俩人都是一厢情愿觉得“睦/祥子是想复活C团的所以我也要复活C团”。果然就是要这种拧巴味才是话题作的醍醐味啊！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
