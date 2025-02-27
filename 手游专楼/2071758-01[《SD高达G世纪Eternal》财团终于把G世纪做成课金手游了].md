@@ -873,3 +873,17 @@ SD高达G世纪永恒，来讲讲这次的母舰吧_1_ztkong_来自小红书网�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ztkong  
+##### 70#       发表于 2025-2-27 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530344&amp;ptid=2071758" target="_blank">mj240608414 发表于 2025-2-27 14:39</a>
+
+这ui看着意外的挺不错的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+地图战斗动画流畅度也很高，卖像比总是loading的机战dd强多了。。。
+[https://www.bilibili.com/video/B ... ad.video_card.click](https://www.bilibili.com/video/BV1gwKNezEHW/?spm_id_from=333.1387.upload.video_card.click)
+

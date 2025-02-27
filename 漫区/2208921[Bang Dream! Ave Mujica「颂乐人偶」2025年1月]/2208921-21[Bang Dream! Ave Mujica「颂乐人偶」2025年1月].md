@@ -5060,3 +5060,30 @@ CCC的问题和鸡团拆团理由的割裂感一样，存在一点创作者视�
 
 问题来了，同等行动力+号召力的人是谁？
 
+
+*****
+
+####  z-hunter  
+##### 30055#       发表于 2025-2-27 14:45
+
+ 本帖最后由 z-hunter 于 2025-2-27 14:48 编辑 
+
+别一话逆转了，你看第7话就是拙劣模仿GO第10话诗超绊。。。
+
+前面一直都低低低气压，把祥子都抽得踩在地上了还在抽，结果观众们都觉得过分了
+
+第7话东施效颦，然后就搞砸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 30056#       发表于 2025-2-27 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530347&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-27 14:40</a>
+
+想了下，无名乐队解散，灯重新组狗团也就花了一话半的时间。
+
+主要还是有个两面爽姐在发癫。</blockquote>
+鸡团最大问题就是找不出个有行动力的人啊，这都病急乱投医到让海玲来行动复活鸡团了。
+
