@@ -7414,3 +7414,850 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 这是什么片来着（疑惑）
 
+
+*****
+
+####  Victorino  
+##### 30263#       发表于 2025-2-27 22:24
+
+<blockquote>ykyin09 发表于 2025-2-27 22:23
+睦不是在与墨提斯的搏斗中死了吗</blockquote>
+所以最后是mortis强行表演睦啊，但熟读表演学理论的喵梦看破了一切
+
+*****
+
+####  无音命题  
+##### 30264#       发表于 2025-2-27 22:24
+
+我投大喵老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 30265#       发表于 2025-2-27 22:24
+
+说句实话，有点狗血了
+
+*****
+
+####  新HGCG  
+##### 30266#       发表于 2025-2-27 22:24
+
+海铃的黑短袜
+
+<img src="https://img.saraba1st.com/forum/202502/27/222425qy3zlo335iws3osw.gif" referrerpolicy="no-referrer">
+
+<strong>图片20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:24 上传
+
+*****
+
+####  tjshibc21  
+##### 30267#       发表于 2025-2-27 22:24
+
+别说别的 你就说乐不乐吧 
+
+最后大混战太乐了
+
+*****
+
+####  nt2013  
+##### 30268#       发表于 2025-2-27 22:25
+
+剩下四集了 真的能平安落地么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Spasskaya  
+##### 30269#       发表于 2025-2-27 22:25
+
+看乐子都不知道笑点在哪了，感觉走进了精神病院
+
+*****
+
+####  新HGCG  
+##### 30270#       发表于 2025-2-27 22:25
+
+这抽大象太好看了这集必须+2
+
+*****
+
+####  人又如何  
+##### 30271#       发表于 2025-2-27 22:25
+
+我好想被母鸡卡**大脑产生快感了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀沙汨罗  
+##### 30272#       发表于 2025-2-27 22:25
+
+大喵老师的评分是13.0,mvp!
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 30273#       发表于 2025-2-27 22:25
+
+啥逼啊这玩意是啊啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  ykyin09  
+##### 30274#       发表于 2025-2-27 22:25
+
+话说初华听到母鸡卡不能重组是因为大人的原因，接了句"这么说，我的..."，别真是小姨吧
+
+*****
+
+####  Alexmacau8  
+##### 30275#       发表于 2025-2-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534412&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-2-27 22:23</a>
+睦不是在与墨提斯的搏斗中死了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大莫老师的演绎 后面把喵梦看破防了
+
+*****
+
+####  甲鱼  
+##### 30276#       发表于 2025-2-27 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">第10集快端上来把，太爽了
+
+*****
+
+####  kenqqex  
+##### 30277#       发表于 2025-2-27 22:25
+
+这动画怎么能一集比一集变态的
+
+告诉我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 30278#       发表于 2025-2-27 22:25
+
+卧槽太变态了，弹丸论破3精神继承人终于现身江湖了
+
+*****
+
+####  zhigui  
+##### 30279#       发表于 2025-2-27 22:26
+
+依托史啊感觉
+
+莫提斯和吉他睦的战力完全乱搞，想让莫赢就莫赢，想让睦赢就睦赢，甚至睦的似也莫名其妙的，你告诉我为啥人格空间会变出一个深渊呢
+
+祥子人设也是烂完了，wcsndm
+
+*****
+
+####  Victorino  
+##### 30280#       发表于 2025-2-27 22:26
+
+本集正式回收 灯犹豫 立希素世拒绝
+
+让我们看看小姨什么时候来
+
+初华回忆里有一幅油画，这是代表啥
+
+
+*****
+
+####  tuatha  
+##### 30281#       发表于 2025-2-27 22:26
+
+已经连搞笑都做不好了
+
+*****
+
+####  aptx8285144  
+##### 30282#       发表于 2025-2-27 22:26
+
+这是啥，唐探1900吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 30283#       发表于 2025-2-27 22:26
+
+还有人类吗我请问了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  自由的lu  
+##### 30284#       发表于 2025-2-27 22:26
+
+「恶心」
+
+*****
+
+####  轮太  
+##### 30285#       发表于 2025-2-27 22:26
+
+大莫老师站起来了！
+
+*****
+
+####  新HGCG  
+##### 30286#       发表于 2025-2-27 22:26
+
+谁要看第七集那种廉价的感动啊！
+
+就是要看这种全员疯逼啊！！！！！！！！！
+
+*****
+
+####  八木沼了一  
+##### 30287#       发表于 2025-2-27 22:26
+
+恶心，太恶心了
+
+*****
+
+####  天空塔书记官  
+##### 30288#       发表于 2025-2-27 22:27
+
+<img src="https://p.sda1.dev/22/dea11f6752c08e9c8855501e16db92ab/image.jpg" referrerpolicy="no-referrer">
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+现在还有人质疑丰川家的大手吗，我可太想看到这一幕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 30289#       发表于 2025-2-27 22:27
+
+剧情先不说，这集演出目前最差的一集了吧，各种转场切的莫名其妙的，连莫睦搏斗都做得毫无张力，初华拼命使各种颜艺完全带不起气氛，海铃哭得我不理解（你有啥好哭的啊？？），海希谈话那几个表情和分镜乱七八糟，甚至感觉连3d模型动作都调得异常僵硬像制作组全体开摆一样………你不是提前做完的片子吗也不存在工期赶不上问题啊
+
+*****
+
+####  novalli  
+##### 30290#       发表于 2025-2-27 22:27
+
+感觉现在不是第9集，是第19集，后面还有33集。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Mika-S  
+##### 30291#       发表于 2025-2-27 22:27
+
+啥意思，你是说现实中摔下楼梯屁事没有的人，在精神世界摔下去反而就没了吗，很难接受这种设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Azcarlo  
+##### 30292#       发表于 2025-2-27 22:27
+
+喵梦这两集也太嘴替了，这几个非人类真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哌啶  
+##### 30293#       发表于 2025-2-27 22:27
+
+🐘老师的风评还能再低吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 30294#       发表于 2025-2-27 22:27
+
+让海喵演完剩下的，全改成相声不好吗，这几个神经病的戏份有必要吗
+
+*****
+
+####  怀沙汨罗  
+##### 30295#       发表于 2025-2-27 22:27
+
+没看cast，这集音监是谁？怎么前半部分剧情很悬疑吗？感觉就像劣质电视剧无限制复用同一首bgm的恶俗感。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ape-apple  
+##### 30296#       发表于 2025-2-27 22:28
+
+太有意思了，我现在就是想知道日本人能不能吃下这坨，如果能，那我没什么好说的
+
+*****
+
+####  与太郎  
+##### 30297#       发表于 2025-2-27 22:28
+
+变态变态
+
+*****
+
+####  十九号大侠  
+##### 30298#       发表于 2025-2-27 22:28
+
+这bgm也跟吃屎了一样
+
+*****
+
+####  新HGCG  
+##### 30299#       发表于 2025-2-27 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534572&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-27 22:28</a>
+
+太有意思了，我现在就是想知道日本人能不能吃下这坨，如果能，那我没什么好说的 ...</blockquote>
+日本人连第七集都说好，怎么可能不喜欢这集
+
+*****
+
+####  是谁的书画  
+##### 30300#       发表于 2025-2-27 22:29
+
+我真的想不出编剧的狗脑子怎么想出怎么变态的剧情的，给我干哪来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30301#       发表于 2025-2-27 22:29
+
+沒情感的情感回
+
+燈這話與其說猶豫，
+
+不如說每個人都在她想好說什麼時便中斷對話
+
+既不夠狂， 又不好笑， 亦不夠爛
+
+無聊的一回
+
+*****
+
+####  6030sylar  
+##### 30302#       发表于 2025-2-27 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢墨刚想演就被两只猫戳穿
+
+至于蜘蛛侠，还是去压制自己的内心就行了
+
+*****
+
+####  cxj649  
+##### 30303#       发表于 2025-2-27 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534506&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-2-27 22:26</a>
+
+依托史啊感觉
+
+莫提斯和吉他睦的战力完全乱搞，想让莫赢就莫赢，想让睦赢就睦赢，甚至睦的似也莫名其妙的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实这个反而符合现实的
+
+人格大战就是这样的
+
+*****
+
+####  蓮華  
+##### 30304#       发表于 2025-2-27 22:29
+
+<img src="https://img.saraba1st.com/forum/202502/27/222900whv0f1pm0wh9pal0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250227222805.png</strong> (43.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:29 上传
+
+喊第七集感动流泪的傻逼日本人还感动不<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remedios010000  
+##### 30305#       发表于 2025-2-27 22:29
+
+喵梦回来一看睦头人不仅吉他技术到底了演技也到底了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">心魔秒除
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  非建政专用号  
+##### 30306#       发表于 2025-2-27 22:29
+
+拉屎的欲望正在高涨！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FanFun  
+##### 30307#       发表于 2025-2-27 22:29
+
+求求别再重复让睦/墨硬造冲突了，9集了真的腻歪了
+
+*****
+
+####  聊nsy专用号  
+##### 30308#       发表于 2025-2-27 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67038786&amp;ptid=2208921" target="_blank">桜庭千景 发表于 2024-12-28 00:12</a>
+
+尼楼一热真的是什么牛鬼蛇神都跑出来了，这么几页就连续刷出代餐论，喵梦搞事无错论，初华阴湿女炸c团论， ...</blockquote>
+还能说话吗
+
+*****
+
+####  thisisaspider  
+##### 30309#       发表于 2025-2-27 22:29
+
+太变态了，第10集还要等1个星期<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 30310#       发表于 2025-2-27 22:29
+
+很怀念第八集时大睦老师的战斗力，怎么才一个礼拜就从皇马变成了你抬
+
+*****
+
+####  Vacuolar  
+##### 30311#       发表于 2025-2-27 22:29
+
+这就是不要让故事最大矛盾只存在于设定的优秀反例，这困难程度随集数摇摆，之前解决不了的一下解决了，现在又突然难起来了，观众除了笑以外还能干嘛
+
+*****
+
+####  十九号大侠  
+##### 30312#       发表于 2025-2-27 22:30
+
+一定要这样毁角色吗
+
+*****
+
+####  Mkntoil  
+##### 30313#       发表于 2025-2-27 22:30
+
+太有信息差了这集
+
+
+*****
+
+####  南宮凝香  
+##### 30314#       发表于 2025-2-27 22:30
+
+這集就像在不停鞭3C的屍
+
+WSD 到底打算賣什麼？
+
+*****
+
+####  Devola  
+##### 30315#       发表于 2025-2-27 22:30
+
+武士道什么时候拍点b级片，太有才了
+
+本集唯二亮点
+
+伊芙
+
+俩贝斯联合gank鼓手
+
+*****
+
+####  aptx8285144  
+##### 30316#       发表于 2025-2-27 22:30
+
+大瞄的逼格维持到了这周结束，然而下周吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 30317#       发表于 2025-2-27 22:30
+
+太变态了，比前7集加起来都更变态，感觉像吔了很浓的屎<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏谑二次元  
+##### 30318#       发表于 2025-2-27 22:30
+
+等等，睦是怎么没的？
+
+*****
+
+####  ntrntr1  
+##### 30319#       发表于 2025-2-27 22:31
+
+迫不及待想看小姨子了（）
+
+*****
+
+####  阿兹尔  
+##### 30320#       发表于 2025-2-27 22:31
+
+初华的人设是真毁了，作为主唱数值拉满就是一个嫉妒心顶格的舔狗，无敌了
+
+
+*****
+
+####  秋月孝三  
+##### 30321#       发表于 2025-2-27 22:31
+
+<img src="https://img.saraba1st.com/forum/202502/27/223037hl0d12el1dx83tz8.jpg" referrerpolicy="no-referrer">
+
+<strong>GkzQEFxWMAABJ-5.jpg</strong> (135.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 22:30 上传
+
+确实好看<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 30322#       发表于 2025-2-27 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534604&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-2-27 22:29</a>
+
+其实这个反而符合现实的
+
+人格大战就是这样的</blockquote>
+那现实中存在双重人格在搏斗中莫名其妙就“死”掉的情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 30323#       发表于 2025-2-27 22:31
+
+睦莫的战斗力随着奇数回偶数回涨落
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀沙汨罗  
+##### 30324#       发表于 2025-2-27 22:31
+
+感觉现在说是乐队版咒回都是辱咒回了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就这集的水平可以说是和迷家一桌了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  影伴光生  
+##### 30325#       发表于 2025-2-27 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534651&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-2-27 22:30</a>
+等等，睦是怎么没的？</blockquote>
+意识空间摔死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 30326#       发表于 2025-2-27 22:31
+
+代表CCC的吉他睦“死了”说明重组CCC暂时是不可能了，那么“白祥”的崩坏就是在下集
+
+不会真把黑色生日放在十集以后吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  勤练带来力量  
+##### 30327#       发表于 2025-2-27 22:31
+
+没有人类了
+
+*****
+
+####  6030sylar  
+##### 30328#       发表于 2025-2-27 22:32
+
+所谓的小姨线根本没所谓，甚至初华其实是祥子亲妈都没所谓了
+
+*****
+
+####  cxj649  
+##### 30329#       发表于 2025-2-27 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534544&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-27 22:27</a>
+
+啥意思，你是说现实中摔下楼梯屁事没有的人，在精神世界摔下去反而就没了吗，很难接受这种设定啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一个美国电影也这样演的
+
+“小孩形象人格徒手秒杀成人形象人格”
+
+*****
+
+####  扶桑洛槿  
+##### 30330#       发表于 2025-2-27 22:32
+
+人设转折也太硬了啊，吉他睦的吉他属性也太弱了吧，没两下就被大莫老师剥夺了。是不是后面要告诉我第八集和大莫吵的睦不是吉他睦，是若叶睦本体，所以想整大祥的是若叶睦这个集体意识？
+
+还有初华那么疯，是怎么忍住一个月不见大祥的。
+
+还有这结尾，大喵是看出大莫在演戏骗大祥，还是单纯被同行压力看过家家不爽打算发神经？
+
+至于大祥，我只能祝她幸福，不出意料至少要被抽到11集，
+
+*****
+
+####  sauron.j  
+##### 30331#       发表于 2025-2-27 22:32
+
+8个人的信息差大战，这集够漏油汴京一周了
+
+*****
+
+####  暴走的包子  
+##### 30332#       发表于 2025-2-27 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们到底要几把干嘛啊啊啊啊啊啊啊，这真的是乐队番吗
+
+—— 來自 samsung SM-F9460, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿兹尔  
+##### 30333#       发表于 2025-2-27 22:32
+
+该猜这集后b站多少分了，我猜起码得掉到4.x分
+
+*****
+
+####  セト  
+##### 30334#       发表于 2025-2-27 22:32
+
+什么够吧东西
+
+*****
+
+####  莱茵哈鲁特  
+##### 30335#       发表于 2025-2-27 22:32
+
+两个字，神回！太精彩了，好久没看过这么激烈刺激的人际关系冲突了。还有超展开。
+
+对我来说彻底逆转对第七话的感受了。因为第七话并不是对c团的结束，而是后续让祥子和睦把c团和ji团放在天平上考量的引子。我觉得只有认真比较了两个团的价值之后，才能真正实现c团的终结。
+
+*****
+
+####  好much橘  
+##### 30336#       发表于 2025-2-27 22:32
+
+太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bgm像乱配的，演出像乱做的，话也是像乱说的，太变态了
+
+*****
+
+####  kenqqex  
+##### 30337#       发表于 2025-2-27 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534648&amp;ptid=2208921" target="_blank">lunaticfool 发表于 2025-2-27 22:30</a>
+
+太变态了，比前7集加起来都更变态，感觉像吔了很浓的屎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我和朋友每一集都是说你同一句话 这都变成金字塔了 变态成都 1+2+3...
+
+*****
+
+####  十九号大侠  
+##### 30338#       发表于 2025-2-27 22:33
+
+好烦，这种明明吃屎了，第十集还想吃的心态是怎么回事啊
+
+*****
+
+####  usodakedo  
+##### 30339#       发表于 2025-2-27 22:33
+
+b站之前就锁分了吧，然后前一集还涨了0.2
+
+*****
+
+####  yigua  
+##### 30340#       发表于 2025-2-27 22:33
+
+我到底看了个啥？？
+
+*****
+
+####  是谁的书画  
+##### 30341#       发表于 2025-2-27 22:33
+
+赶紧把睦鲨掉吧，你知道我一直是支持你的，纯纯的祸水啊
+
+*****
+
+####  Delicatus545  
+##### 30342#       发表于 2025-2-27 22:33
+
+初华你至于吗，你两个团组得，祥子组不得？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 30343#       发表于 2025-2-27 22:33
+
+我不信这集鬼佬和霓虹mmr还能嗯头说“你说的对，但根本没有那么烂”，到底是怎么整出这种又混乱又平淡的东西的，就好像自己失去了感觉一样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  戏谑二次元  
+##### 30344#       发表于 2025-2-27 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534730&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-2-27 22:33</a>
+好烦，这种明明吃屎了，第十集还想吃的心态是怎么回事啊</blockquote>
+这就是原创番的魅力啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 30345#       发表于 2025-2-27 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534667&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-27 22:31</a>
+
+那现实中存在双重人格在搏斗中莫名其妙就“死”掉的情况吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说呢，就是这么抽象啊
+
+*****
+
+####  盐盐盐盐盐  
+##### 30346#       发表于 2025-2-27 22:34
+
+比起初华什么毛病更好奇到底怎么把睦人格救回来，总不能真的玩角色更迭吧……喵梦明显也不爽莫蹩脚演技更想要睦人格，来个属于am的诗超绊又救睦也太重复了
+
+*****
+
+####  aptx8285144  
+##### 30347#       发表于 2025-2-27 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534665&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-27 22:31</a>
+
+初华的人设是真毁了，作为主唱数值拉满就是一个嫉妒心顶格的舔狗，无敌了 ...</blockquote>
+这周怎么看都是睦的主场，初华虽然增加了台词，这路人感还是挺浓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plusSharp  
+##### 30348#       发表于 2025-2-27 22:34
+
+莫的演技怎么突然就没了，我之前说如果不考虑现实的乐队企划那睦失去吉他技能就很好收尾，结果动画却是莫把演技丢了，这也太烂了
+
+*****
+
+####  吃货红毛  
+##### 30349#       发表于 2025-2-27 22:34
+
+睦的内心是个头脑特工队吗 在内心世界物理意义上被消灭就真的消灭了
+
+*****
+
+####  usodakedo  
+##### 30350#       发表于 2025-2-27 22:34
+
+对偶说是不是还没破产，那下一集是要包饺子吗？
+
+*****
+
+####  dudideng  
+##### 30351#       发表于 2025-2-27 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一堆睦那边一边鼓掌边哦哦哦哦的笑死了
+
+*****
+
+####  aptx8285144  
+##### 30352#       发表于 2025-2-27 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534713&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-27 22:32</a>
+
+该猜这集后b站多少分了，我猜起码得掉到4.x分</blockquote>
+叔叔家肯定会派一些机器人去控分的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏谑二次元  
+##### 30353#       发表于 2025-2-27 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534787&amp;ptid=2208921" target="_blank">dudideng 发表于 2025-2-27 22:34</a>
+一堆睦那边一边鼓掌边哦哦哦哦的笑死了</blockquote>
+哦没得多！
+
+*****
+
+####  南宮凝香  
+##### 30354#       发表于 2025-2-27 22:35
+
+大祥是個唯睦的人偶
+
+睦是個自私的小鬼
+
+莫假彈
+
+海鈴是偏執控制狂
+
+初華是舔狗
+
+大喵有PTSD
+
+還有四話，
+
+我要看看能救起誰
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 30355#       发表于 2025-2-27 22:35
+
+初华和睦头的脑内空间太变态了，这能不给+2是人啊
+
+*****
+
+####  gammatau  
+##### 30356#       发表于 2025-2-27 22:35
+
+不是 大猫也有看穿灵魂的能力吗
+
+那你不用纠结什么演员乐队了，直接直播通灵不牛逼多了
+
+*****
+
+####  potenzh  
+##### 30357#       发表于 2025-2-27 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉集数不够阿 虽然mygo第九集时候也不会想到第十集能翻回来 但mujica活太多太密导致剧情推进太快显得儿戏 
+
+*****
+
+####  cxj649  
+##### 30358#       发表于 2025-2-27 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534739&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-27 22:33</a>
+
+赶紧把睦鲨掉吧，你知道我一直是支持你的，纯纯的祸水啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉他睦无了，大莫老师获得主人格权限
+
+百万爱厨高兴才对，弹幕就是“好似”
+
+*****
+
+####  qiyu1234  
+##### 30359#       发表于 2025-2-27 22:36
+
+原来是睦法沙
+
