@@ -3306,3 +3306,36 @@ mcl的特典场时间还稍好一点，不过肯定更难抢了
 
 这有端联想怎么就成发散了？
 
+
+*****
+
+####  AvenueIII  
+##### 7678#       发表于 2025-2-27 19:48
+
+感觉这社团的大姐头肯定有什么内情，之前知乎说的战后虚无感只能说有但不多
+
+成片真的能保持这种制作水平吗，不会最后几集黑白吧（
+
+*****
+
+####  oi99o  
+##### 7679#       发表于 2025-2-27 19:51
+
+百老汇和MCL周末也开始排你高的imax场了，不过时间都不太阳间。不知道为什么门户网站都没收录，要去院线官网查看。
+
+<img src="https://img.saraba1st.com/forum/202502/27/194904kcs1mzbrbv8owo3m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/195008tozk8lkjj70s3s30.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 19:50 上传
+
