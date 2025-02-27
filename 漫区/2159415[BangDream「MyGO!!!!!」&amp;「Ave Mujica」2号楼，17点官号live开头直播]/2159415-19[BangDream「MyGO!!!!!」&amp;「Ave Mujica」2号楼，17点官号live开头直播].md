@@ -4724,3 +4724,30 @@ TFT版本听完后再去听CD版，wsd的混音是真的一坨（）
 <[img src="https://s2.loli.net/2025/02/27/LT4qjRvDdsw3FcO.jpg" referrerpolicy="no-referrer">
 （PPP三专采访）
 
+
+*****
+
+####  CyDiablo  
+##### 27002#       发表于 2025-2-27 13:31
+
+第三轮fes结束咯
+<img src="https://p.sda1.dev/22/efef1b94e3be8b4bb48e3d674d20149f/IMG_20250227_131909.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e2677b9b7680622281985c49736543b6/IMG_20250227_131917.jpg" referrerpolicy="no-referrer">
+
+日服PPP箱活组曲
+<img src="https://p.sda1.dev/22/f279c5b905979935a47975623f309a3e/1740633840155.jpg" referrerpolicy="no-referrer">
+
+️["ともに歩む未来の道標"活动剧情文本/机翻](https://bbs.nga.cn/read.php?tid=43390062&amp;_ff=664)
+
+[【【音频】とっておきAnswer - Poppin'Party-哔哩哔哩】](https://b23.tv/BhM5xH9)
+
+五⭐
+<img src="https://p.sda1.dev/22/6cb389931cc474a61cb3cd85041417b5/IMG_20250227_131925.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d0afb6d677251dae2201084bafc9fb5a/IMG_20250227_131933.jpg" referrerpolicy="no-referrer">
+四⭐
+<img src="https://p.sda1.dev/22/6b21b68745b61f1cd6b83ba59414f6fb/IMG_20250227_131941.jpg" referrerpolicy="no-referrer">
+三⭐
+<img src="https://p.sda1.dev/22/13ddc7f5829374b3e315e1125f49e932/IMG_20250227_131949.jpg" referrerpolicy="no-referrer">
+二⭐
+<img src="https://p.sda1.dev/22/81ee4cbc2adcadd57f02cb3e92855526/1740633522301.png" referrerpolicy="no-referrer">
+
