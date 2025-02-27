@@ -40,3 +40,16 @@
 原来是这样，之前没注意到红槽动摇状态</blockquote>
 你用隼流吧对面弹出大硬直就能a一下接风雷震落
 
+
+*****
+
+####  千里孤坟  
+##### 3384#       发表于 2025-2-27 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527555&amp;ptid=2092342" target="_blank">烛堡巡礼者 发表于 2025-2-27 09:15</a>
+
+原来是这样，之前没注意到红槽动摇状态</blockquote>
+注意忍流有专有的精弹机制，9f标准石火窗口里前4f弹到才有大硬直可以接饭刚落，非精弹基本没戏的。
+
+另外饭刚落挑空那下要近身，刀尖距离挑不起来只有个普通追伤回报。
+
