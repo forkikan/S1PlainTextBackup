@@ -3103,3 +3103,42 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 
 早知道今年有大的 就晚一年回来了
 
+
+*****
+
+####  oi99o  
+##### 7662#       发表于 2025-2-27 13:18
+
+香港特典场送设定集，明天下午三点开票
+
+<img src="https://img.saraba1st.com/forum/202502/27/131722opnilze9qkwuu7jx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (192.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 13:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/131728e5ikuncarcrrccd5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (228.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 13:17 上传
+
+*****
+
+####  andeloz  
+##### 7663#       发表于 2025-2-27 13:19
+
+开了好远的路才找到一家amc有放的
+
+
+*****
+
+####  AvenueIII  
+##### 7664#       发表于 2025-2-27 13:23
+
+屮，有特典场不早说
+
