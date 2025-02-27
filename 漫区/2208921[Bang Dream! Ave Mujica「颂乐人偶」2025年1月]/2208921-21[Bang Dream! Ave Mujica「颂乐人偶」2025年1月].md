@@ -13891,3 +13891,255 @@ mortis当时也不想让mujica解散
 
 上一次陪牢莫找小睦要爽姐三天三夜，那这次小睦打复活赛要爽姐几天几夜吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莱茵哈鲁特  
+##### 30904#       发表于 2025-2-28 01:38
+
+为了不被弹幕和评论影响，我特地是关弹幕观看的mujica第9话，我个人觉得是很好评。
+
+剧情将c团和ji团的矛盾引向了高潮，主题也变成了需要角色们确定mujica不是c团的替代品，不是因为回不到c团而不组c团，而是因为ji团比c团更好，才选择ji团。而这正是我想要的。
+
+但没想到看完之后，发现对这集评价很两极分化。s1的投票呈U型结构，讨厌的要比喜欢的多一点。我思考了一下原因，可能是因为现在剧情是由情节驱动，而非角色驱动，对角色形象产生了负面影响，比如海玲转变太生硬。而且对于角色厨来说，一些情节比较灾难。想想我如果是睦厨的话，估计也会很受不了，所以可以理解一些人会讨厌这样的剧情。
+
+*****
+
+####  adretyu67.  
+##### 30905#       发表于 2025-2-28 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537629&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 01:34</a>
+
+虽然现在的版本也是一坨，但老实说这个初设才是真的有大病，祥子要变成chu立方了，这怎么可能写好。这个 ...</blockquote>
+chu2最后是直接消解概念了。从敌对变成了良性竞争。
+
+鸡动画是直接把复仇淡化了
+
+*****
+
+####  舞野咲  
+##### 30906#       发表于 2025-2-28 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536616&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 00:06</a>
+
+有一个伏笔，“微妙的对不上”，不排除A团复出“莫提斯”搞砸需要吉他睦出来救场的可能性
+
+—— 来自 鹅 ...</blockquote>
+我看这里时理解的时mortis在假弹对手性，大家不是这样理解的么？看海铃的评价是要展现出更好的演技欸
+
+*****
+
+####  天空塔书记官  
+##### 30907#       发表于 2025-2-28 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537604&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-28 01:31</a>
+问题是为什么要做这种演出。是寻求刺激吗？很难看到这种不符合系列定位的画面吧 ...</blockquote>
+就是炒作啊
+
+ave目前目前搞的这些迷惑行为都是为了突破以往系列的风格(包括迷子靠堆砌细节展开故事的定式）所做出的所谓“创新”，事实就是结果并不怎么样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 30908#       发表于 2025-2-28 01:40
+
+ 本帖最后由 ArcadiaMartyr 于 2025-2-28 01:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537656&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-28 01:38</a>
+为了不被弹幕和评论影响，我特地是关弹幕观看的mujica第9话，我个人觉得是很好评。
+
+剧情将c团和ji团的矛盾 ...</blockquote>
+我是下载看的，完全不满意。
+初华那段脑补除了烂炒没有任何做出来的必要。
+脑内世界干死吉他睦，离谱。最后，猫猫的"有趣的女人"把这出烂戏提到了巅峰
+我真不觉得自己是睦厨(之前大概还像是别人口中的“祥厨”)，我只觉得角色是被彻底作践了。变成了编剧的颂剧人偶
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 30909#       发表于 2025-2-28 01:41
+
+本来就不是在真的教吉他啊，谁家吉他速成是直接对着演出画面学的
+
+*****
+
+####  yaneis  
+##### 30910#       发表于 2025-2-28 01:41
+
+<blockquote>莱茵哈鲁特 发表于 2025-2-28 01:38
+为了不被弹幕和评论影响，我特地是关弹幕观看的mujica第9话，我个人觉得是很好评。
+
+剧情将c团和ji团的矛盾 ...</blockquote>
+乐队是角色组成的，角色乱七八糟就算重组了乐队内核也是抽象的，更别说乐队里根本没一个人爱音乐的，全是表演派（
+
+*****
+
+####  天空塔书记官  
+##### 30911#       发表于 2025-2-28 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537625&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 01:34</a>
+小猫的评价很神奇，是有趣的女孩子。她平时评价是有趣的女人。
+
+但是看她还挺高兴的？？？ ...</blockquote>
+这个已经被店长改正了，以后都会是“有趣的女孩子”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Суслов  
+##### 30912#       发表于 2025-2-28 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537600&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 01:31</a>
+这个倒因为果了，就是因为复仇这个设定被废弃了才能看到现在的go团就是个路边业余学生乐队。 ...</blockquote>
+mygo里演的不是复仇也得是多少带点嫉妒吧，不然我是真搞不明白祥子组🐔到底是为了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 30913#       发表于 2025-2-28 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537677&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:41</a>
+
+本来就不是在真的教吉他啊，谁家吉他速成是直接对着演出画面学的</blockquote>
+我是觉得莫可能真的是在妇科手部动作。
+
+
+*****
+
+####  滑稽Captain  
+##### 30914#       发表于 2025-2-28 01:42
+
+只能说明柿本绫奈以及后藤和场小川等编剧团体想写变态阴暗的发展很久了，这次得到指令放开搞，不用krkrdkdk了，直接先整出变态原设来
+
+*****
+
+####  ntrntr1  
+##### 30915#       发表于 2025-2-28 01:43
+
+<blockquote>ml1642879 发表于 2025-2-28 00:12
+这妥妥的神作啊，拷打了20多集的恶人役迎来的惩罚是编剧告诉我她最珍视的人已经消失了，这不是神作是什么。 ...</blockquote>
+编剧：下集复活开启真爱大战线路
+
+*****
+
+####  JustW  
+##### 30916#       发表于 2025-2-28 01:43
+
+<blockquote>adretyu67. 发表于 2025-2-28 01:42
+我是觉得莫可能真的是在妇科手部动作。</blockquote>
+海铃和mortis就是这个打算吧，否则从零开始学吉他再怎么想速成也不会是这样学
+
+*****
+
+####  yaneis  
+##### 30917#       发表于 2025-2-28 01:43
+
+之前祥子和喵梦的表演和音乐之争让我以为祥子后面会有高光，展现强度的部分，海玲应该是祥子一派的，毕竟这是个乐队动画，站音乐有着天然正确的立场，现在看笑嘻了
+
+*****
+
+####  MuramasaSP  
+##### 30918#       发表于 2025-2-28 01:43
+
+<blockquote>莱茵哈鲁特 发表于 2025-2-28 01:38
+为了不被弹幕和评论影响，我特地是关弹幕观看的mujica第9话，我个人觉得是很好评。
+
+剧情将c团和ji团的矛盾 ...</blockquote>
+反对“讨厌的比喜欢的多一点”。很多人已经是“乐子人”（我厌恶乐子人）心态投的+2。
+
+*****
+
+####  非建政专用号  
+##### 30919#       发表于 2025-2-28 01:43
+
+我说墨指导脑内回放吉他速学三首歌，你说别带千早爱音节奏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 30920#       发表于 2025-2-28 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537663&amp;ptid=2208921" target="_blank">舞野咲 发表于 2025-2-28 01:39</a>
+我看这里时理解的时mortis在假弹对手性，大家不是这样理解的么？看海铃的评价是要展现出更好的演技欸 ...</blockquote>
+是对录音，而不是假弹，通过模仿动作来复现演奏和弹空气吉他不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 30921#       发表于 2025-2-28 01:45
+
+说了多少遍，不可能弹空气吉他。
+
+当初就是没睦的吉他音源闹到解散。
+
+*****
+
+####  JustW  
+##### 30922#       发表于 2025-2-28 01:45
+
+<blockquote>yaneis 发表于 2025-2-28 01:43
+之前祥子和喵梦的表演和音乐之争让我以为祥子后面会有高光，展现强度的部分，海玲应该是祥子一派的，毕竟这 ...</blockquote>
+这动画已经和乐队逐渐无关了，唯一有一丝可能和音乐产生点联系的吉他睦也“死”了，现在五个人没一个是想搞音乐的
+
+*****
+
+####  日野下花帆  
+##### 30923#       发表于 2025-2-28 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能不影响mygo，但是不影响mygo不太可能
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 30924#       发表于 2025-2-28 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537713&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:45</a>
+
+这动画已经和乐队逐渐无关了，唯一有一丝可能和音乐产生点联系的吉他睦也“死”了，现在五个人没一个是想 ...</blockquote>
+等饺子包完了可能好点。现在就是先把车装好上路再说。
+
+*****
+
+####  老贝  
+##### 30925#       发表于 2025-2-28 01:47
+
+对着录音练习假弹这事本身就很奇怪。Mujica又没有睦的吉他音源，如果真的让墨上去演出，难不成其他人都陪着她假弹不出声？
+
+如果是再找个人录，她的假弹还能匹配上吗。
+
+*****
+
+####  莱茵哈鲁特  
+##### 30926#       发表于 2025-2-28 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537699&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-2-28 01:43</a>
+
+反对“讨厌的比喜欢的多一点”。很多人已经是“乐子人”（我厌恶乐子人）心态投的+2。 ...</blockquote>
+可能是不敢大声说喜欢，所以才自称乐子人。
+
+毕竟现在仇恨mujica已经变成一种zzzq了。
+
+如果真的讨厌的人很多，那就该变成京吹3那样，没有所谓乐子人的存在空间了。
+
+*****
+
+####  JustW  
+##### 30927#       发表于 2025-2-28 01:47
+
+说实话在有完美演技的世界观里谈空气吉他和录音的区别也挺那个的，Mortis靠演技一比一复刻睦弹吉他的所有动作细节，那么能弹出一样的声音也只是相应的结果罢了
+
