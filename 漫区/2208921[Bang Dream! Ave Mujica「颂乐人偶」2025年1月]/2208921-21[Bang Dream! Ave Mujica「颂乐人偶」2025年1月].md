@@ -6547,3 +6547,39 @@ CCC才活了几周。。怎么就被束缚了，第一次live后就结束了呀<
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小博禹  
+##### 30174#       发表于 2025-2-27 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532062&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 18:03</a>
+如果参考睦演技论的话，祥子本来天天往睦那里报道到了睦反问“你怎么不去上学”的程度，结果当天睦在ktv ...</blockquote>
+可能只是单纯的补习完了，小祥是真的热爱学习的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Mkntoil  
+##### 30175#       发表于 2025-2-27 18:40
+
+安卓b站直接搜mujica不会直接弹出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30176#       发表于 2025-2-27 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532176&amp;ptid=2208921" target="_blank">Akari 发表于 2025-2-27 18:22</a>
+啊，我以为你说睦导致了祥子。
+
+如果是睦成因，我感觉首先和她演了太多东西有关。
+
+睦的问题在3话的小剧场 ...</blockquote>
+吉他睦可能是早就已经存在，但她一开始其实并不是占主导地位的那个，因为她太自闭了，与祥子印象中小时候的睦并不像，所以也许还存在过一个并不自闭的“开朗睦”，因为祥子的“需要”所以存在，甚至可能一度成为睦的“主人格”，但因为上述推论的变故，这个“人格”的主导位置让给了吉他睦，才有了现在的“若叶睦”，我是这么想的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
