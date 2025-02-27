@@ -3165,3 +3165,19 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 
 —— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AvenueIII  
+##### 7667#       发表于 2025-2-27 17:03
+
+<img src="https://img.saraba1st.com/forum/202502/27/170316q7w2ynlpwwi7w9f2.jpg" referrerpolicy="no-referrer">
+
+<strong>PXL_20250227_085926893.jpg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 17:03 上传
+
+特典海报A3大小
+

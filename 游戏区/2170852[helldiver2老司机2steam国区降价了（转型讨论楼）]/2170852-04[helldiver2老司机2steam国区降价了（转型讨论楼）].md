@@ -1619,3 +1619,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 这游戏服务器还是这么烂吗，还想着拉朋友一起玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 5821#       发表于 2025-2-27 17:04
+
+巨硬我cnm<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">一个24H2更新直接把我游戏弄崩了，cpu使用率变巨高不说还进不去，最后没办法只能回滚上个版本，跟箭头客服提了一下这事，但他们也只是说等未来补丁修正
+

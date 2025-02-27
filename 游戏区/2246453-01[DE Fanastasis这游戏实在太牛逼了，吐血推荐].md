@@ -2747,3 +2747,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 看起来不错，今天回去试试看，想问下这个游戏对练级的需求大么，玩龙头作品不太想重复打很多道中小怪，有没有类似于那种金银史莱姆的设计，或者道中小怪可以能躲就躲，稍微打打等级就够用啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 240#       发表于 2025-2-27 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531264&amp;ptid=2246453" target="_blank">蓬莱妹红 发表于 2025-2-27 16:29</a>
+
+看起来不错，今天回去试试看，想问下这个游戏对练级的需求大么，玩龙头作品不太想重复打很多道中小怪，有没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">理论上存在完全不遇敌（大概最终boss前三四个必打敌人）的路线，虽然实际上需要二周目倒着地图玩或者拆包完才行，大量看起来堵死路的boss都可以绕。以及解密可以消除路上的敌人并获得经验，总体来说是很鼓励玩家偷鸡的游戏。
+
