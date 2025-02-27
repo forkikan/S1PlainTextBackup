@@ -4600,3 +4600,14 @@ sumimi里主唱是甜甜圈。
 
 看谜子电台的都不信声优叠甲了，还抓着美帝不放的不看动画和电台也照样能嗑，互不干扰
 
+
+*****
+
+####  plazum  
+##### 30014#       发表于 2025-2-27 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67527641&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-27 09:26</a>
+
+weibo：纯白的冠冕</blockquote>
+倒数第二三格呜咪铃可爱捏
+
