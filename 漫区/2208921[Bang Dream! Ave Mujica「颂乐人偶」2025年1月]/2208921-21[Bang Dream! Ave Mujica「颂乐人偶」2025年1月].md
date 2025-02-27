@@ -15777,3 +15777,17 @@ mygo最后灯的结论是迷路也无所谓，人迷路是正常的，只要走�
 
 传奇作品，赢麻了，就是个赢！战吧已经在庆祝了！
 
+
+*****
+
+####  寒星  
+##### 31072#       发表于 2025-2-28 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538385&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 07:09</a>
+祥子怎么保证不给mygo添麻烦啊？本来团员专心一个团，现在部分成员要两头跑，而且核心主唱灯还要负责两团 ...</blockquote>
+对于祥子来说组ccc这件事是非做不可，而不是来问意见的，她要做的事是最大限度取得同意，而不是问“我能不能重组ccc”。
+
+丰川祥子这个人物向来都是这么做事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于“应该怎么做事态就不会怎么样了”这种，从来都不是创作的逻辑，最多就是事后拿来回味才会用
+
