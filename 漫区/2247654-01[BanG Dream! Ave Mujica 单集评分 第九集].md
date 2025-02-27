@@ -1885,3 +1885,144 @@ nmd从头笑到尾
 
 <img src="https://p.sda1.dev/22/869b4e3d73b05e0b35f253e202a14334/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wangh  
+##### 212#       发表于 2025-2-27 23:36
+
++2神回！！
+
+*****
+
+####  TiiTiiLL  
+##### 213#       发表于 2025-2-27 23:36
+
+能让人露出笑容的剧情，必须+2
+
+*****
+
+####  k1no  
+##### 214#       发表于 2025-2-27 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536016&amp;ptid=2247654" target="_blank">Ditfran 发表于 2025-2-27 23:30</a>
+
+谁来解释解释为什么海玲突然就变得这么执着于母鸡卡这个乐队了</blockquote>
+我猜是海玲执着于立希的评价，海希股大涨<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 215#       发表于 2025-2-27 23:38
+
++2 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好看，一集疯2个
+
+*****
+
+####  Lucy_Diamonds  
+##### 216#       发表于 2025-2-27 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536016&amp;ptid=2247654" target="_blank">Ditfran 发表于 2025-2-27 23:30</a>
+
+谁来解释解释为什么海玲突然就变得这么执着于母鸡卡这个乐队了</blockquote>
+海铃因为小时候留下了心理阴影 后来对待什么乐队都不真心 不负责
+
+结果mujica解散之后被立希骂了 破防了 觉得这么做不对
+
+看完crychic之后发现互相信任的乐队居然这么爽 自己也要搞
+
+所以想把之前犯过的错挽回了 重组mujica 和队友建立互相付出的信任关系
+
+这么一理就发现 Really？Distruption这么靠谱的大姐姐你不好好融入团队 你和大祥这群神人融入团队
+
+那可能还包含一些赎罪的心理了
+
+*****
+
+####  四月一日辻迁  
+##### 217#       发表于 2025-2-27 23:40
+
++2 这集真欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  capraeLinn  
+##### 218#       发表于 2025-2-27 23:40
+
++2 太好了，我推似了，哈哈
+
+*****
+
+####  Boliva  
+##### 219#       发表于 2025-2-27 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536017&amp;ptid=2247654" target="_blank">grox133 发表于 2025-2-27 23:30</a>
+
++2+2就不管剧情怎么样，有没有逻辑，就问你好不好笑吧，这集而且名场面超多 ...</blockquote>
+看到3C还可以和解，感觉我上我也行~
+
+*****
+
+####  wsuFish  
+##### 220#       发表于 2025-2-27 23:41
+
+当大家在争论c团复活与否时主要争议点在mortis的命也是命，我居然几乎没有什么感觉
+
+本来以为不会与双重人格和解的，但事到如今这一地神人面前好像也不是什么问题了。还有什么斗财阀双子星都快端上来吧。
+
+我一直觉得mygo之所以能在中文社区获得这么大的讨论度，关键之一在于敢于让角色表现缺陷，甚至是当坏人，从而带来了比一般偶像番更大的剧情空间。第二季更上一层楼，不仅有坏人，还有好多精神病人
+
+*****
+
+####  Yinacona  
+##### 221#       发表于 2025-2-27 23:42
+
++2
+
+连着投了5集 -2了这集是真的看出发自内心的笑容
+
+
+*****
+
+####  IVANLIAO  
+##### 222#       发表于 2025-2-27 23:43
+
+我不配评价，这是什么啊？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我真没见过.jpg
+
+*****
+
+####  Skyline_R  
+##### 223#       发表于 2025-2-27 23:43
+
+-2
+
+以后再也不黑虹团给重女包饺子了。bro以为自己是今敏在拍未麻的部屋，真就自信满满地塑造出纯种精神病了
+
+*****
+
+####  moras2694  
+##### 224#       发表于 2025-2-27 23:43
+
+好变态的发展。角色塑造和心路历程这种不存在的东西就不用聊了。
+这个双重人格真是一集一个新设定，集集都有新惊喜啊，直接把睦消灭了，不过公式反转肯定还是会有的。现在就比较娱乐了，🐔团到底咋组，这些角色最后到底啥状态。而且现在的cp都有点难嗑，初祥真有点普通，睦祥也很异味。-1
+
+*****
+
+####  creaiii  
+##### 225#       发表于 2025-2-27 23:43
+
+ 本帖最后由 creaiii 于 2025-2-27 23:45 编辑 
+
+日本人评价：不愧是中国霸权动画<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+-2
+
+*****
+
+####  seki_m  
+##### 226#       发表于 2025-2-27 23:44
+
+已经不知道在讲什么了，没有一个正常人
+
