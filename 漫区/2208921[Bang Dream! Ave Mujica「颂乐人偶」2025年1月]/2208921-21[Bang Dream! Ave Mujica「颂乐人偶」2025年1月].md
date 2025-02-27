@@ -7241,3 +7241,176 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 2025-2-27 22:13 上传
 
+
+*****
+
+####  蓮華  
+##### 30240#       发表于 2025-2-27 22:17
+
+恶心<img src="https://static.saraba1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DeltaStriker  
+##### 30241#       发表于 2025-2-27 22:17
+
+不是怎么还没起爆 你这只有4集了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 30242#       发表于 2025-2-27 22:19
+
+后面争执这段，真的太八点档了，二女争一夫既视感
+
+*****
+
+####  Huiiii  
+##### 30243#       发表于 2025-2-27 22:19
+
+如果气笑也算喜剧的话....
+
+*****
+
+####  琉璃苑軒風  
+##### 30244#       发表于 2025-2-27 22:19
+
+也就anon不会把饮料泼过去了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  刑部姬真可爱  
+##### 30245#       发表于 2025-2-27 22:19
+
+它这剧情一段一段的转折是正常人能做出来的吗？制作组不觉得生硬吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 30246#       发表于 2025-2-27 22:20
+
+大瞄说得很好：<strong>组什么母鸡卡，我不是受虐狂<strong></strong></strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，然而没办法后面大手肯定会启动的
+
+*****
+
+####  linchuanwangmou  
+##### 30247#       发表于 2025-2-27 22:20
+
+太脑残了
+
+*****
+
+####  fuwamoco  
+##### 30248#       发表于 2025-2-27 22:20
+
+这一集硬弄信息差来了，我真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 30249#       发表于 2025-2-27 22:21
+
+灯的人设算不算彻底毁了，虽然犹豫是正常的但是这人设已经回退到mygo第三集了吧…
+
+*****
+
+####  无音命题  
+##### 30250#       发表于 2025-2-27 22:21
+
+太狠了，超乎想象。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 30251#       发表于 2025-2-27 22:22
+
+我操，这是啥啊，受不了了
+
+*****
+
+####  阿兹尔  
+##### 30252#       发表于 2025-2-27 22:22
+
+乐奈:这几个傻逼干啥呢
+
+*****
+
+####  紫苑寺美琴  
+##### 30253#       发表于 2025-2-27 22:22
+
+一群神人啊最后这一幕，大喵这下学会特异功能了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 30254#       发表于 2025-2-27 22:22
+
+有什么毁不毁的 护灯的话术不是灯就是全都要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 都这样了别在意人设了楼友
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  西瓜不甜不甜  
+##### 30255#       发表于 2025-2-27 22:22
+
+「恶心」
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ykyin09  
+##### 30256#       发表于 2025-2-27 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">睦不是在与墨提斯的搏斗中死了吗
+
+*****
+
+####  sakatta  
+##### 30257#       发表于 2025-2-27 22:23
+
+看笑了，真看笑了
+
+*****
+
+####  Chenlh  
+##### 30258#       发表于 2025-2-27 22:23
+
+？？？？
+
+*****
+
+####  零壹贰叁  
+##### 30259#       发表于 2025-2-27 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都啥啊
+也太搞笑了
+
+*****
+
+####  凉良  
+##### 30260#       发表于 2025-2-27 22:23
+
+什么傻逼玩意哦
+
+*****
+
+####  阿兹尔  
+##### 30261#       发表于 2025-2-27 22:23
+
+大猫:我真的不想包饺子啊，一靠近这几个大小姐就变伪人，还能不能玩啊，恶心
+
+*****
+
+####  tuatha  
+##### 30262#       发表于 2025-2-27 22:23
+
+这是什么片来着（疑惑）
+
