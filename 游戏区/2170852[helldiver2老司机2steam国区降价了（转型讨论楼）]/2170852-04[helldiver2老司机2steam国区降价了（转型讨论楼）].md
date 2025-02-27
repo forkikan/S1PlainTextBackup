@@ -1627,3 +1627,14 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 巨硬我cnm<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">一个24H2更新直接把我游戏弄崩了，cpu使用率变巨高不说还进不去，最后没办法只能回滚上个版本，跟箭头客服提了一下这事，但他们也只是说等未来补丁修正
 
+
+*****
+
+####  xinfengj  
+##### 5822#       发表于 2025-2-27 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531555&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2025-2-27 17:04</a>
+
+巨硬我cnm一个24H2更新直接把我游戏弄崩了，cpu使用率变巨高不说还进不去，最后没办法只能回滚上个版本，跟 ...</blockquote>
+箭头的效率太低，不过反馈的人多的话能提高点优先级，他们客服还算尽职的
+

@@ -2758,3 +2758,13 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 看起来不错，今天回去试试看，想问下这个游戏对练级的需求大么，玩龙头作品不太想重复打很多道中小怪，有没 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">理论上存在完全不遇敌（大概最终boss前三四个必打敌人）的路线，虽然实际上需要二周目倒着地图玩或者拆包完才行，大量看起来堵死路的boss都可以绕。以及解密可以消除路上的敌人并获得经验，总体来说是很鼓励玩家偷鸡的游戏。
 
+
+*****
+
+####  阿露酱  
+##### 241#       发表于 2025-2-27 17:11
+
+好奇问一下。目前进度是找三个魔女，游戏大概还剩多少。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
