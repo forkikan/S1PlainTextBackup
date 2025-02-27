@@ -2704,3 +2704,17 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 问下哥布林洞窟的钥匙在哪，还有卡农之棺的四楼怎么去，实在是找不到了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JamesDrapor  
+##### 236#       发表于 2025-2-27 15:29
+
+ 本帖最后由 JamesDrapor 于 2025-2-27 15:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530678&amp;ptid=2246453" target="_blank">西弗 发表于 2025-2-27 15:22</a>
+
+问下哥布林洞窟的钥匙在哪，还有卡农之棺的四楼怎么去，实在是找不到了</blockquote>
+哥布林洞窟钥匙在雷光峰祠堂传送点出来的一个岩洞里，打一个精英怪“哥布林猎手艾德”拿到。
+
+卡侬之馆4F我记得是在3F打罗贝尔就能拿到钥匙，从拷问室进入来着……（忘记了，可能不准确
+
