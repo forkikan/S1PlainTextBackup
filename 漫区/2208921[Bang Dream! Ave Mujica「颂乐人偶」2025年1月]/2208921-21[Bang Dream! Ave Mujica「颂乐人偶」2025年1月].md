@@ -6931,3 +6931,13 @@ Soyo 又被Pua 了
 
 只是一个害意还好吧，不如说初华早就该重力成这样了吧
 
+
+*****
+
+####  天空塔书记官  
+##### 30206#       发表于 2025-2-27 20:30
+
+刚去看了PMM开WS的孤独摇滚简中限定，这也能Qave的，唉wsd凯子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
