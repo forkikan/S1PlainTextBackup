@@ -4714,3 +4714,13 @@ TFT版本听完后再去听CD版，wsd的混音是真的一坨（）
 潜在表明最好的还是live版<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">喜欢🐏姐一边晃悠一边嚎。
 这次也不错吧，念诗还是舒适区，希望能有200w播放
 
+
+*****
+
+####  月島まりな  
+##### 27001#       发表于 2025-2-27 08:49
+
+组一辈子乐队
+<[img src="https://s2.loli.net/2025/02/27/LT4qjRvDdsw3FcO.jpg" referrerpolicy="no-referrer">
+（PPP三专采访）
+
