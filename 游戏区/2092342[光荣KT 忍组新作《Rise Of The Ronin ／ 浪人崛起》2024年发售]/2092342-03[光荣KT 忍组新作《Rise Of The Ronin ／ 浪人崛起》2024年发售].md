@@ -85,3 +85,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">自认为打动作游戏还可以，不怕游戏难，就怕特别单调
 
+
+*****
+
+####  烛堡巡礼者  
+##### 3388#       发表于 2025-2-27 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530243&amp;ptid=2092342" target="_blank">牛肉粉小煎包 发表于 2025-2-27 14:28</a>
+
+最近也在犹豫要不要入这个，看怪猎难度那么低，估计也就玩一个周末。这游戏二周目好玩么，卧龙也还没玩，是 ...</blockquote>
+求痛快还是卧龙吧，浪人本体还是罐头，满屏问号那种的，不过浪人更简单（默认难度）
+
