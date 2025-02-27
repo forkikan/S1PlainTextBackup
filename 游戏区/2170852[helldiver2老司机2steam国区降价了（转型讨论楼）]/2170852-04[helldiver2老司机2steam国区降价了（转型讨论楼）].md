@@ -1572,3 +1572,50 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 —— 来自 S1Fun ...</blockquote>
 重甲少了，有一管无后座基本能打完，我记得之前被打到退坑的时候n7就有漫山遍野的无畏追着玩家跑，机炮都撸冒烟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在机炮反而用不上
 
+
+*****
+
+####  FLZB  
+##### 5816#       发表于 2025-2-26 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67513280&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2025-2-25 15:39</a>
+
+最近是不是服务器越来越烂了，经常捡东西有个几秒的延迟，而且掉线越来越频繁。在这种延迟的情况下我虫子根 ...</blockquote>
+从首发开始就有的问题，看每个人的网络质量，有一个卡比全队享福
+
+*****
+
+####  qwased  
+##### 5817#       发表于 2025-2-26 02:27
+
+现在不知道是卡比太多还是怎么回事，经常碰到敌人聚在一起发呆的，打着感觉都没啥压力了
+
+跟朋友4黑就很少这样，但是该掉线还是掉线
+
+*****
+
+####  风萧飒  
+##### 5818#       发表于 2025-2-26 23:56
+
+现在机器人n10感觉真简单啊，虽然还是会被炸的到处飞，但随便打打就过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qwased  
+##### 5819#       发表于 2025-2-27 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526492&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-2-26 23:56</a>
+现在机器人n10感觉真简单啊，虽然还是会被炸的到处飞，但随便打打就过了
+
+—— 来自 S1Fun ...</blockquote>
+重甲少了，有一管无后座基本能打完，我记得之前被打到退坑的时候n7就有漫山遍野的无畏追着玩家跑，机炮都撸冒烟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在机炮反而用不上
+
+*****
+
+####  qxs  
+##### 5820#       发表于 2025-2-27 08:21
+
+这游戏服务器还是这么烂吗，还想着拉朋友一起玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
