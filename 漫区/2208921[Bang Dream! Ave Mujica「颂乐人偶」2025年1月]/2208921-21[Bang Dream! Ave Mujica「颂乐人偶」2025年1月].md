@@ -15640,3 +15640,13 @@ mygo最后灯的结论是迷路也无所谓，人迷路是正常的，只要走�
 
 为什么都认为喵梦能一眼看出是Mortis在演睦，如果是这样的话连续两次都没看出来的祥子这半身的含金量又提高了
 
+
+*****
+
+####  寒星  
+##### 31060#       发表于 2025-2-28 06:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538304&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 06:10</a>
+为什么都认为喵梦能一眼看出是Mortis在演睦，如果是这样的话连续两次都没看出来的祥子这半身的含金量又提高 ...</blockquote>
+祥子本来是不认莫的，这集莫看起来跟睦差不多但是一下认出莫了，但是莫又开始装睦了，这下不好说还能不能认出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
