@@ -14812,3 +14812,153 @@ mygo里演的不是复仇也得是多少带点嫉妒吧，不然我是真搞不�
 现在还有招魂独角兽环节吗</blockquote>
 有什么招魂的必要吗，RAS吃的独角兽答辩Mujica居然原来要重新吃一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我看这个婆娘确实该滚了，RAS苦完你路径依赖鸡团继续苦，神人了我看是
 
+
+*****
+
+####  天空塔书记官  
+##### 30989#       发表于 2025-2-28 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537885&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 02:13</a>
+我一直不能理解的就是为什么要把演技和精神病混为一谈，精神病人都是演技高手还是演技高手都必须得精神病？ ...</blockquote>
+演技高手确实都会有些类似的问题，演戏把自己演进去搞抑郁的大把的是，所以专业演员通常需要掌握一定的心理防卫技能，以防止太过入戏导致自我认知与现实发生冲突
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 30990#       发表于 2025-2-28 02:19
+
+我觉得相比鸡团动画这队问题，RAS简直就是krkrdkdk的典范。
+
+从外卷的敌对变成了内部消化之相亲相爱一家人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 30991#       发表于 2025-2-28 02:21
+
+我他妈要笑死，连5厕都绷不住クソアニメ，还拿第七集中国人打差评打回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 30992#       发表于 2025-2-28 02:21
+
+木头人找小闭灯不是很明白吗，她不知道大象要重组ccc，只知道小闭灯的带冰歌词能吸引大象，遇上初华了才知道大象要mcga了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蒹葭公子  
+##### 30993#       发表于 2025-2-28 02:21
+
+我用乐子的心态看这集看爽了……
+
+说实话少女乐队动画的主唱展现出打牌王的颜艺还在脑内把队友推下楼梯这算前无古人了吧？
+
+难怪我一个现充朋友看了（故意推荐给他的）之后惊叹：“这少女乐队动画是这么癫的玩意儿吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kooler2002  
+##### 30994#       发表于 2025-2-28 02:21
+
+替代个屁啊，下集剧透说live吉他一响睦又回来了，然后莫很感动融合进睦里面了
+
+
+*****
+
+####  595505568  
+##### 30995#       发表于 2025-2-28 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537913&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 02:19</a>
+我觉得相比鸡团动画这队问题，RAS简直就是krkrdkdk的典范。
+
+从外卷的敌对变成了内部消化之相亲相爱一家人 ...</blockquote>
+chuchu的出发点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，至少看起来尊重音乐，而且热爱音乐
+祥子这个原设出发点完全没有音乐爱好者的成份啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 30996#       发表于 2025-2-28 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537901&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-28 02:17</a>
+一开始还以为睦是醒来的时候发现自己刚好到灯家附近才去找灯的，结果看了看经堂在哪原来要她往回坐半个到一 ...</blockquote>
+本来去找灯就是双重人格设定的便利给的都合情节，就是编剧想把这两人凑一起，方便等下遇见初华展开矛盾罢了
+
+*****
+
+####  帆前  
+##### 30997#       发表于 2025-2-28 02:24
+
+我觉得寒蝉卒说可以堂堂上位了
+
+<strong>“你就和她们组乐队去吧，我消失后你就会知道，只有我一个人最在乎你”</strong>
+<img src="https://p.sda1.dev/22/f1a741013ebb35bd1b052f1ad3c75f55/Screenshot_20250228_021506_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<strong>“啪！”（揍人声）
+
+“笨蛋！你最在乎我那种事情，我早就知道了！我从很久以前就知道了！我会让你好好交出吉他，一起前进！”</strong>
+<img src="https://p.sda1.dev/22/d14cbbce036e8d39d82c2ebde8ecbc1d/Screenshot_20250228_021629_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<strong>“我才不要！我就要和你一起在mujica里混日子！我想一直混日子！一直帮助你！”</strong>
+<img src="https://p.sda1.dev/22/d195afa9d22cbafda363673c44cfa24d/Screenshot_20250228_021746_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+不必强求对应关系，只可意会不可言传
+
+我有一计，引入少歌轮回设定，然后诡秘一笑：<strong>我们这是出题篇，究竟哪些集数是哪个时间线的呢？mujica鸣泣之时解题篇，敬请期待</strong>
+
+*****
+
+####  老贝  
+##### 30998#       发表于 2025-2-28 02:25
+
+不要说原案了，就现在的Mujica，你感觉对音乐有什么描写吗。
+
+之前戏剧和乐队更像是在发展路线选择上的争议，看不出有什么必须执着于音乐的感情。
+
+*****
+
+####  adretyu67.  
+##### 30999#       发表于 2025-2-28 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537923&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-28 02:22</a>
+
+chuchu的出发点，至少看起来尊重音乐，而且热爱音乐
+
+祥子这个原设出发点完全没有音乐爱好者的成份啊，这 ...</blockquote>
+现在这个剧情就很好卖卡吗。
+
+*****
+
+####  leader01234  
+##### 31000#       发表于 2025-2-28 02:26
+
+第四集完了就想p这个了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，原本觉得doom里德是被武士道夺走人生的🐘，现在来看可以套给所有人
+
+<img src="https://img.saraba1st.com/forum/202502/28/022624c6u2u2gg1a47a6qa.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_33427043187298.jpg</strong> (364.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 02:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  adretyu67.  
+##### 31001#       发表于 2025-2-28 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537938&amp;ptid=2208921" target="_blank">老贝 发表于 2025-2-28 02:25</a>
+
+不要说原案了，就现在的Mujica，你感觉对音乐有什么描写吗。
+
+之前戏剧和乐队更像是在发展路线选择上的争议 ...</blockquote>
+大祥老师是钢琴转的键盘，应该还是觉得得高雅点不能太表演了吧。
+
