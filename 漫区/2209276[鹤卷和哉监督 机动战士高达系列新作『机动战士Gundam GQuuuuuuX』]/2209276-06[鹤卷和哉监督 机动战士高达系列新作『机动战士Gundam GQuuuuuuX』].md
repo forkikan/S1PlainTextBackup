@@ -3142,3 +3142,26 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 
 屮，有特典场不早说
 
+
+*****
+
+####  xwr  
+##### 7665#       发表于 2025-2-27 13:42
+
+今天美国也上了，刚去看了imax。
+
+想来想去，0079部分很难以夏利亚的回忆插入进正片吧，只能搞个第0话或者特别篇。影院0079部分叫beginning，0085部分叫GQuuuuuuX。
+
+剧情部分现在看是两条线，夏利亚带队追寻红高达/夏亚，主角三人团打军团赛。
+
+*****
+
+####  hosilly  
+##### 7666#       发表于 2025-2-27 13:45
+
+居然还有特典场啊！还是设定集！
+但是我估计跟之前孤独摇滚的情况差不多，量不多，很快就派完了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+唉最快也是周六才能过去看<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
