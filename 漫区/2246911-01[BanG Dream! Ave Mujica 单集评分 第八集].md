@@ -3524,3 +3524,24 @@ nico差评榜上面的那些玩意才是封神榜，母鸡卡这边我都不懂�
 
 也就简中破防的厉害，湾湾那边台管的木棉花频道下面基本上都是其乐融融耍成一片，官方也爱切母鸡卡切片，现在已经被叫“睦棉花”了，还能看到一些湾湾专属的有意思的梗，属于现在少数还会去翻一下的母鸡卡社群
 
+
+*****
+
+####  mye  
+##### 388#       发表于 2025-2-27 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67506800&amp;ptid=2246911" target="_blank">星降る森 发表于 2025-2-24 18:25</a>
+
+星团受众肯定比母鸡卡多一截，日本观众比例更是远高于，但Nico评分少1000多，都是什么日本人在Nico看母鸡卡 ...</blockquote>
+nico mujica也是路边一条吧 比全修少40%播放 
+
+*****
+
+####  mye  
+##### 389#       发表于 2025-2-27 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529143&amp;ptid=2246911" target="_blank">Hchan 发表于 2025-2-27 12:14</a>
+
+也就简中破防的厉害，湾湾那边台管的木棉花频道下面基本上都是其乐融融耍成一片，官方也爱切母鸡卡切片，现 ...</blockquote>
+木棉花**mujica每集播放量好像还不足五万？
+
