@@ -4528,3 +4528,16 @@ weibo：纯白的冠冕
 <img src="https://p.sda1.dev/22/73186595e0e8cbb750cf5630aa098c0e/QQ图片20250227092124.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/a0195fb56c5b7c2852dc547daf02f3cd/QQ图片20250227092344.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 30008#       发表于 2025-2-27 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67525882&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-2-26 21:58</a>
+
+这下就能理解为啥一个月能去工体开演唱会了
+
+不过喵梦为啥敢台上摘面具就更迷了。</blockquote>
+既然是大小姐过家家，那么大人们当然不可能把作为过家家一部分的难绷面具当回事，而且从结果上也确实皆大欢喜（除了睦头的情况，这个外人无法预料）。唯一可能真的涉及到保密义务的只有初华，然而第一集里初华的面具还是她自己主动摘的
+

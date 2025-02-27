@@ -1130,3 +1130,29 @@ APP是应用层，这事相当于是DS团队挖到了NVCC这套代码的底层�
 
 不能，上面说的那些内容偏向于底层了，你这个属于应用层，隔得有点远
 
+
+*****
+
+####  mp5  
+##### 99#       发表于 2025-2-27 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526567&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-27 00:17</a>
+
+本周DS开源的这些东西，压根就不是给一般个人用户准备的，用来尽可能榨取出硬件的潜力，属于最上游的部份 ...</blockquote>
+一个月20刀只是cursor的费用, 还要加上所用的大模型费用<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  claymorep  
+##### 100#       发表于 2025-2-27 09:33
+
+ 本帖最后由 claymorep 于 2025-2-27 09:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67526184&amp;ptid=2246987" target="_blank">ywj321 发表于 2025-2-26 22:47</a>
+非业内人士的理解：
+
+   等于是DS相当于手机APP，这个APP发现安卓系统的运行问题，就改了安卓系统，让系 ...</blockquote>
+打个比方是deepseek是做windows的应用客户端时，发现win10有个系统bug导致运行效率不高，就做了个非官方系统补丁修复这个问题。不过这个补丁跟应用客户端都是独立的，人都可以用这个补丁
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
