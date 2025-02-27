@@ -6450,3 +6450,29 @@ kkr有世界观滤镜的，这是神族人才能有的特征。类似的还有�
 </blockquote>
 如果参考睦演技论的话，祥子本来天天往睦那里报道到了睦反问“你怎么不去上学”的程度，结果当天睦在ktv演了一通发病之后好像确实触发了小祥最后一板斧，给她吓回去上课了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是很微妙的情节设计
 
+
+*****
+
+####  天空塔书记官  
+##### 30166#       发表于 2025-2-27 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532020&amp;ptid=2208921" target="_blank">Akari 发表于 2025-2-27 17:59</a>
+想多了，1.0死亡的原因大概率只会和妈妈有关。※补充，妈妈之外应该也和家族有关，但是信息太少很难推断。 ...</blockquote>
+其实这里对应的是“更能说的睦”，因为某种变故，导致祥子“被迫性的成长”，祥子的改变也影响了睦和祥子原本的关系，那么对应之前祥子的睦的面具也就不再被需要，这个“人格”就可能被“杀死”或者“雪藏”，所以祥子才能看到沉默寡言的睦，当然这只是一种可能<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 30167#       发表于 2025-2-27 18:16
+
+ 本帖最后由 adretyu67. 于 2025-2-27 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532062&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 18:03</a>
+
+如果参考睦演技论的话，祥子本来天天往睦那里报道到了睦反问“你怎么不去上学”的程度，结果当天睦在ktv ...</blockquote>
+按照之前时间推定，再过一星期就是考试周了。
+
+这个时期乐队训练基本都会停止，还是得去学校的。
+

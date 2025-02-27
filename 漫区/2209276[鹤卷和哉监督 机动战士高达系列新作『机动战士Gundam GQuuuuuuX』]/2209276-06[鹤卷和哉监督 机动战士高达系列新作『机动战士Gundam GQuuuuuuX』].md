@@ -3223,3 +3223,15 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 
 2025-2-27 18:05 上传
 
+
+*****
+
+####  oi99o  
+##### 7672#       发表于 2025-2-27 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532073&amp;ptid=2209276" target="_blank">YESIARE 发表于 2025-2-27 18:05</a>
+注意了，英皇2/28卖的是3月7/8/9特典场的票</blockquote>
+woc，香港这几场时间也太阴间了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
