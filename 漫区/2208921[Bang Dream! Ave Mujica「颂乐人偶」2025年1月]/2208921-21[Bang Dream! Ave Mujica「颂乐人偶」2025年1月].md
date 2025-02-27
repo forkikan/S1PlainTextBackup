@@ -11419,3 +11419,321 @@ ppp组了一年多，动画第三季刚开场200多支乐队排200多。
 
 喵梦打开摄像头就是戴上面具
 
+
+*****
+
+####  kuhailz  
+##### 30664#       发表于 2025-2-27 23:56
+
+对日本人来说已读不回不算没礼貌的事吗
+
+*****
+
+####  非建政专用号  
+##### 30665#       发表于 2025-2-27 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536351&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-27 23:49</a>
+上一集还能说十五年一遇的大女主是睦头，这下睦头也不是了。</blockquote>
+怎么和我们十五年一遇的大女主莫提斯的一血说话的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 30666#       发表于 2025-2-27 23:57
+
+太变态了，这女同性恨剧本真是绫奈手笔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30667#       发表于 2025-2-27 23:57
+
+<blockquote>zhigui 发表于 2025-2-27 23:50
+想过很路边没想到这么路边</blockquote>
+我想了想
+
+PPP Afterglow 蝶團 這是一定有Follow
+
+1-A 的紅黃綠，凜凜子 等 親友團也有
+
+答案是沒臉角色不許追蹤MyGo！！！！！
+
+*****
+
+####  木板春香  
+##### 30668#       发表于 2025-2-27 23:58
+
+ 我出去买了2包瓜子看完只想到处找表情包发，蜘蛛侠打完人后续还真的要去斗财阀啊
+
+<img src="https://img.saraba1st.com/forum/202502/27/235834hoqxvprwazvh1m7q.png" referrerpolicy="no-referrer">
+
+<strong>C%O{W{5~O]{{~KG97([E{LR.png</strong> (69.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 23:58 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/235842gncu5nhpjuudmpfd.png" referrerpolicy="no-referrer">
+
+<strong>5DB9X3M__4`R_T77Q(~5{0P.png</strong> (352.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 23:58 上传
+
+*****
+
+####  zhoujin8584  
+##### 30669#       发表于 2025-2-27 23:58
+
+不妨大胆一点，小莫的演技喵梦根本不认，现在小莫会弹吉他，那小睦的复活说不定就是靠演技了
+
+*****
+
+####  非建政专用号  
+##### 30670#       发表于 2025-2-27 23:58
+
+一眼烂炒，就像莫提斯莫名其妙活了一样，木头人顶多过两集也莫名其妙活了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 30671#       发表于 2025-2-27 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536362&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-27 23:50</a>
+
+前几集海子哥前面淡定冷漠地一笔，莫老师哇哇叫完还能淡定自若跟大祥老师打招呼再离场
+
+被立希突然之间就爱 ...</blockquote>
+这次重组她是真出力了。
+
+又是指导莫吉他又是冲大猫家又是和初华同谋，
+
+除了不和祥子商量直接把祥子架在火上烤以外。
+
+*****
+
+####  akiomn  
+##### 30672#       发表于 2025-2-27 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了，全 都 不 是 人
+还是备战明天的荒野吧，就这吊样肯定是重拿轻放，下集睦就回来了
+只能说墨缇丝这角色占了那么多剧情，结果越来越让我恶心，不愧是制作组啊
+
+*****
+
+####  zhoujin8584  
+##### 30673#       发表于 2025-2-27 23:59
+
+<blockquote>llllife 发表于 2025-2-27 23:55
+剧透内容除了小姨和双子还有什么吗，看了这话突然感兴趣了（如果禁止剧透我编辑） ...</blockquote>
+没事，楼主已经把禁止剧透删了，不过还是多少遮掩一点，反白啊链接啥的，不要直接放
+
+*****
+
+####  siansian  
+##### 30674#       发表于 2025-2-27 23:59
+
+在《Ave Mujica》第九集的混沌叙事中，若以**战锤40K**的诡谲语汇重构其血肉，其情节可被解构为一场**亚空间腐化仪式**与**灵魂熔炉的崩毁**，裹挟着凡人乐音的无尽癫狂。  
+
+---
+
+### **亚空间低语的降临**  
+
+舞台的帷幕撕裂，露出其下**血肉圣歌堂**——五位使徒（Ave Mujica）的演出不再仅是旋律的共振，而是**混沌八芒星的活体图腾**。主唱三角初华的声线化作**奸奇之舌**，每一个音符都裹挟着**亚空间风暴的碎片**，将观众的灵能场域撕扯成熵增的漩涡。吉他手若叶睦的七弦琴弦如**纳垢脓疮中滋生的触须**，其弹奏的《Symbol I:△》不再是一曲，而是**颅骨献祭的倒计时**。舞台灯光化作**恐虐血神的凝视**，观众席间蔓延的欢呼声逐渐异变为**色孽信徒的喘息**。  
+
+---
+
+### **灵魂熔炉的崩解**  
+
+核心角色“大祥老师”丰川祥子，此刻已沦为**被诅咒的活圣人**。她昔日的“家族荣耀”实为**帝皇黄金王座下的谎言枷锁**，其父的堕落则是**混沌渗透的基因种子污染**。为维系乐队存续，她将成员灵魂质押于**黑暗机械教的契约**，每一场演出皆需以**灵能者的精神碎片**为燃料。而在第九集，这一契约的裂隙终于显现——贝斯手八幡海铃的**记忆回廊**被亚空间实体“Mortis”入侵，其意识被肢解为**千子巫师的无尽魔典残页**，唯有通过**红芭蕾舞鞋的颅骨通讯器**向虚妄的“医生”呼救，却只得到**寂静修女的空洞回响**。  
+
+---
+
+### **腐化仪式的终局**  
+
+若叶睦的“沉睡”实为**亚空间实体寄宿的温床**。其人格分裂的瞬间，舞台中央升起一座**黑石方尖碑**，碑文铭刻着Crychic乐队的**湮灭预言**。MyGO乐队成员如**被虫巢意志操控的基因窃取者**，以“春日影”的旋律为饵，试图将Ave Mujica拖入**网道深处的永恒战争**。最终，大祥老师举起象征**灵族魂石**的吉他拨片，释放出一道**伪帝的残光**，却反被其光芒灼伤——她的“救赎”不过是**四神棋局中的一枚卒子**，乐队的存在本身已成**恐惧之眼在现世的投影**。  
+
+---
+
+### **尾声：乌托邦的灰烬**  
+
+当剧集的评分如**灵族方舟世界的崩落**般坠向深渊，观众们的狂热与失望交织成**亚空间风暴的余波**。武士道的宣发策略宛如**钛帝国以太的虚伪承诺**，而角色们的命运则如**吞世者的血祭狂欢**，终将归于虚无。此乃**战锤宇宙的永恒真理**：凡人的挣扎不过是**黑暗诸神的笑谈**，而所谓“音乐梦想”，不过是**颅骨王座上一声微不足道的叹息**。
+
+*****
+
+####  JustW  
+##### 30675#       发表于 2025-2-27 23:59
+
+<blockquote>kuhailz 发表于 2025-2-27 23:56
+对日本人来说已读不回不算没礼貌的事吗</blockquote>
+对很好的朋友以外的人不会这么做吧，非常失礼
+
+*****
+
+####  thisisaspider  
+##### 30676#       发表于 2025-2-28 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536418&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 23:53</a>
+
+拉吉他睦回来弹吉他，然后“莫提斯”来表演，“莫提斯”并没有因为音乐确立的自我认知，她的自我实现是靠 ...</blockquote>
+那现在看不出是融合阶段，至少表现也太隐晦了。后面还有吉他睦归来的戏份吗。不太好写
+
+*****
+
+####  Libartas  
+##### 30677#       发表于 2025-2-28 00:00
+
+<img src="https://p.sda1.dev/22/d053508a6f7b96962578c7128bdb6223/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鉴定为柿本的猪脑根本处理不了这种经典哲学议题
+
+*****
+
+####  plusSharp  
+##### 30678#       发表于 2025-2-28 00:00
+
+其实祥睦是杀莫阵营，祥觉得莫还在就说明睦受到了压力，睦觉得是莫伤害了祥子，重组CCC只是一个杀莫的手段
+
+*****
+
+####  江口夕  
+##### 30679#       发表于 2025-2-28 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536519&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-28 00:00</a>
+那现在看不出是融合阶段，至少表现也太隐晦了。后面还有吉他睦归来的戏份吗。不太好写 ...</blockquote>
+莫名其妙死了自然也能莫名其妙活，比如弹吉他
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  thisisaspider  
+##### 30680#       发表于 2025-2-28 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536487&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 23:58</a>
+
+不妨大胆一点，小莫的演技喵梦根本不认，现在小莫会弹吉他，那小睦的复活说不定就是靠演技了 ...</blockquote>
+我觉得还是靠音乐，虽然音乐复活吉他睦合理，但已经超越帮邦邦的企划设定了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 30681#       发表于 2025-2-28 00:01
+
+之前的剧透有真掺假的部分
+比如九话mujica重组+live现在确认就是假的
+
+
+*****
+
+####  zhoujin8584  
+##### 30682#       发表于 2025-2-28 00:02
+
+<blockquote>zhoujin8584 发表于 2025-2-27 12:58
+看到对风小姨的进一步挖掘了，“爱音是最理解ccc的第6人”，结合对偶说，go5素世以退为进用live推立希出头 ...</blockquote>
+拉一下俺早上的引用的预测，还挺正确<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 30683#       发表于 2025-2-28 00:03
+
+武士道的Mo老师厨和C遗老都是什么畜生💩
+恶心，太tm恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/822191ebe2e0dff124bbc066d9e7c04b/MPV-00_21_52.582-N0001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 30684#       发表于 2025-2-28 00:04
+
+<blockquote>qiyu1234 发表于 2025-2-28 00:01
+之前的剧透有真掺假的部分
+
+比如九话mujica重组+live现在确认就是假的</blockquote>
+剧透一直晚一集，现在睦瓦特了，祥子其实心里没有那么抗拒AM
+
+*****
+
+####  ryuusu  
+##### 30685#       发表于 2025-2-28 00:04
+
+海铃一直在为不能被信任钻牛角尖，对mujica的执着立希有责任，不过这俩冷战都是立希在示弱<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30686#       发表于 2025-2-28 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536487&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 23:58</a>
+不妨大胆一点，小莫的演技喵梦根本不认，现在小莫会弹吉他，那小睦的复活说不定就是靠演技了 ...</blockquote>
+“莫提斯”的表演是故意而为之，是“伪物”；而睦的断线人偶是自然发生的，是“真物”
+
+某种意义上喵梦其实追求的是绝不会被时间洗刷，绝不会被观众抛弃的，“永恒的经典”“真正的表演艺术”“无法被复刻的奇迹”，是纯粹的艺术性…总之就是很抽象
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 30687#       发表于 2025-2-28 00:04
+
+两个祥孝子不是死了就是疯了，我看wsd确实是最大的祥黑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wwwttth  
+##### 30688#       发表于 2025-2-28 00:05
+
+我觉得不是故意惨真假的，舅舅应该是只能看到字幕进行翻译不知道具体集数和画面，所以会有一些集数和理解上的区别。
+
+*****
+
+####  Lyzers  
+##### 30689#       发表于 2025-2-28 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536502&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-27 23:59</a>
+
+这次重组她是真出力了。
+
+又是指导莫吉他又是冲大猫家又是和初华同谋，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题就是她为啥出这么大力啊？这鸡团比起前面三十个团好在哪啊
+
+*****
+
+####  与太郎  
+##### 30690#       发表于 2025-2-28 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536395&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 23:52</a>
+
+当时莫的自我认知还是她是为了帮助小睦而生的，不能抢主人格的东西，现在她想做主人格，就不一样了 ...</blockquote>
+不是抢不抢主人格的问题
+
+如果我们认为mortis可以速成吉他
+
+mortis当时也不想让mujica解散
+
+那不就只能理解为，mujica的其他人完全不考虑mortis/睦的想法，甚至不做“暂停”的打算，直接选择解散这么一个极端的做法
+
+这怕不是越描越黑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gameselect  
+##### 30691#       发表于 2025-2-28 00:05
+
+不知道这么说合不合适
+mygo相当于尸魂界篇或破面篇
+ave mujica是千年血战
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

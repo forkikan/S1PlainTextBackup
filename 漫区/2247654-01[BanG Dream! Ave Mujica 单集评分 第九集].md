@@ -2128,3 +2128,127 @@ Mygo 时期丰川祥子和 Crychic 作为背景发散魅魔体质果然还是矛
 
 加2妥妥的神作
 
+
+*****
+
+####  米德  
+##### 237#       发表于 2025-2-27 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集也是把我看的大爆笑了 必须+2
+
+*****
+
+####  sephal  
+##### 238#       发表于 2025-2-27 23:57
+
+0
+
+本来作为乐子人该好评，但是说实话这剧能把这么多精神不正常的人凑在一起，已经有点生理不适了，感觉应该把编剧和导演打包送到宛平南路600号
+
+*****
+
+####  Buttercry  
+##### 239#       发表于 2025-2-27 23:59
+
+精神病人作为剧情工具人真好用吧我说，没完了是吧，-2
+
+*****
+
+####  格林达姆  
+##### 240#       发表于 2025-2-28 00:00
+
+<img src="https://img.saraba1st.com/forum/202502/28/000019ljhvhg00h57pk7jg.jpg" referrerpolicy="no-referrer">
+
+<strong>K23.jpg</strong> (84.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 00:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发现全公司只有自己一个正常人是一种怎样的体验
+
+
+*****
+
+####  wuhhhh  
+##### 241#       发表于 2025-2-28 00:01
+
+无法用语言形容一部烂出天外，每一节剧情都是灾难的少女乐队番。如果当初看魔法少女是震撼，现在看这部完全就是全麻。有一个算一个，这番12集播完后全部滚出业界吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lickey  
+##### 242#       发表于 2025-2-28 00:01
+
+原来洗白大喵老师的方法就是把其他人都变成神人啊
+
+*****
+
+####  shinoverse  
+##### 243#       发表于 2025-2-28 00:02
+
+我要+2到完结为止哈哈哈哈哈哈哈
+
+太有意思了，先不提某几个人设和动画制作的秩序性，这种仿佛菜市口斩首般的有趣程度已经多久没看到过了？
+
+
+*****
+
+####  MuramasaSP  
+##### 244#       发表于 2025-2-28 00:02
+
+这种动画就不应该存在于世界上。
+
+*****
+
+####  scorbian  
+##### 245#       发表于 2025-2-28 00:02
+
++2
+
+没有人类了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maritimus  
+##### 246#       发表于 2025-2-28 00:04
+
++2 非常搞笑，爆爆爆，虽然已经不明白这些人在干嘛了，逻辑也没有了，但是颜艺都出来了，必须好评
+
+*****
+
+####  whzfjd  
+##### 247#       发表于 2025-2-28 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536222&amp;ptid=2247654" target="_blank">wsuFish 发表于 2025-2-27 23:41</a>
+
+当大家在争论c团复活与否时主要争议点在mortis的命也是命，我居然几乎没有什么感觉
+
+本来以为不会与双重人格 ...</blockquote>
+mygo 是早就知道素世是坏人，然后看坏人吃瘪，苦情戏演得也很自然充分。观众能充分共情素世。
+
+mujica 里很多角色的执念观众都无法理解：
+
+1. 海铃为什么觉得保 mortis 的命算是个理由
+
+2. 海铃怎么就缺信任到要掉小眼泪了
+
+3. 祥子为什么要当睦的狗（为什么选择这么贱的赎罪方式）
+
+4. 睦十几集不说话，为什么突然发癫要复活 C 团
+
+*****
+
+####  一个陆仁贾  
+##### 248#       发表于 2025-2-28 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535036&amp;ptid=2247654" target="_blank">聊nsy专用号 发表于 2025-2-27 22:44</a>
++2 
+
+初华脑补搞死墨提斯是致敬恶搞之家吗</blockquote>
+致敬超凡蜘蛛侠2电光人<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
