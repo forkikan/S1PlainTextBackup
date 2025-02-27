@@ -12504,3 +12504,266 @@ winwing事务所就是tgw的产业啊。
 
 睦只会死于精神世界都摔下楼，物理世界是金刚不坏之身。
 
+
+*****
+
+####  KokutouMikiya  
+##### 30765#       发表于 2025-2-28 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537007&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 00:33</a>
+其实主创本意是搞一个“麦琪的礼物”式的写法：祥子觉得睦因为mujica不幸福彩精分所以决定为了睦重组cryc ...</blockquote>
+我觉得问题是吉他睦不是一个对自身欲望这么坚决的人，历来都是顺从，很难想象她坚持要怎么怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 30766#       发表于 2025-2-28 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536981&amp;ptid=2208921" target="_blank">海洋队手下mayo 发表于 2025-2-28 00:31</a>
+
+那你就说立希嘴没嘴吧 嘴了那不就是开始care了吗 care开始了不就能无限增殖了嘛
+
+我只是说剧本就是这么演 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能顺从了
+
+*****
+
+####  南宮凝香  
+##### 30767#       发表于 2025-2-28 00:37
+
+<blockquote>烂片雷达 发表于 2025-2-28 00:32
+初华为什么只想推睦不想推灯
+
+难道根本原因不是睦祥两个人都无法割舍灯的歌词才重组哭啦西哭的吗 ...</blockquote>
+兩個可能
+
+一 她讀了詞看到燈回不去3C了， 沒必要殺
+
+二 燈不是搞笑角色， 殺了真會死
+
+*****
+
+####  阿兹尔  
+##### 30768#       发表于 2025-2-28 00:37
+
+只能从人的三大欲望之一的x欲来解释这帮人对祥子的执着了
+
+*****
+
+####  JustW  
+##### 30769#       发表于 2025-2-28 00:37
+
+<blockquote>KokutouMikiya 发表于 2025-2-28 00:36
+我觉得问题是吉他睦不是一个对自身欲望这么坚决的人，历来都是顺从，很难想象她坚持要怎么怎么样 ...</blockquote>
+只要把祥子搬出来就可以解决问题，一切都是为了祥子，祥子，伟大
+
+*****
+
+####  猫执事  
+##### 30770#       发表于 2025-2-28 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537002&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-2-28 00:32</a>
+
+初华为什么只想推睦不想推灯
+
+难道根本原因不是睦祥两个人都无法割舍灯的歌词才重组哭啦西哭的吗 ...</blockquote>
+睦是“讨厌的女人，如果没有你存在的话我就能留在阿姆罗（sakiko）的身边”。
+
+在初华看来，她作为青梅竹马走演艺路线尝试（阶级跃升）接近祥子。但睦在这两方面都比她更有优势
+
+*****
+
+####  qlipho  
+##### 30771#       发表于 2025-2-28 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">可以确定是wsd疯了
+
+*****
+
+####  adretyu67.  
+##### 30772#       发表于 2025-2-28 00:39
+
+确实是疯了，虽然剧情能看懂。
+
+但是这样塑造角色是真的不怕炎上吗。
+
+*****
+
+####  JustW  
+##### 30773#       发表于 2025-2-28 00:39
+
+如果推的是灯，哪怕是脑内想象，那未来鸡狗两团的粉丝可有的打了
+
+*****
+
+####  KokutouMikiya  
+##### 30774#       发表于 2025-2-28 00:39
+
+我现在唯一想知道的是小时候到底发生过什么能让初华对祥子有这么强的执念，甚至已经发展到了一对一的占有欲，就算救过命也不至于这样吧
+
+*****
+
+####  与太郎  
+##### 30775#       发表于 2025-2-28 00:39
+
+看了几个访谈截图，感觉柿本对于自己拍出了什么东西没有b数啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30776#       发表于 2025-2-28 00:39
+
+初華除了鋁銅外已經解釋不了行為邏輯
+
+*****
+
+####  猫执事  
+##### 30777#       发表于 2025-2-28 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537064&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 00:37</a>
+
+只能从人的三大欲望之一的x欲来解释这帮人对祥子的执着了</blockquote>
+唐僧肉是吧
+
+*****
+
+####  天空塔书记官  
+##### 30778#       发表于 2025-2-28 00:40
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 00:41 编辑 
+
+目前对祥子的箭头
+
+灯是因为祥子拯救了自己，睦估计也一样，初华认为祥子和自己一样同病相连(都是丰川家的人偶)，而素世的执念是对于CCC的，而不是祥子
+
+所以并不需要“性欲”来解释
+
+还想着一开始祥子和初华说自己人偶的来历吗，那就是初华占有欲爆发的根本原因
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 30779#       发表于 2025-2-28 00:41
+
+大祥老师身上插满回旋镖的人，小时候在岛上说过长大了开着迈巴赫来娶你过门都不奇怪，可怜的纯真岛民还当真了
+
+*****
+
+####  一心而用  
+##### 30780#       发表于 2025-2-28 00:41
+
+<img src="https://p.sda1.dev/22/074e57aa5b42dc1c022b6c3c08f2d545/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 30781#       发表于 2025-2-28 00:42
+
+<blockquote>天空塔书记官 发表于 2025-2-28 00:40
+目前对祥子的箭头
+
+灯是因为祥子拯救了自己，睦估计也一样，初华认为祥子和自己一样同病相连(都是丰川家的 ...</blockquote>
+初华这表现你觉得用同病相连能解释通吗
+
+*****
+
+####  草化木  
+##### 30782#       发表于 2025-2-28 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67490132&amp;ptid=2208921" target="_blank">草化木 发表于 2025-2-22 01:36</a>
+
+后续大概率是按这集的演技天赋的解释方向来走，睦通过某种方式找到“本心”之后融合进化成真·若叶睦。不然 ...</blockquote>
+只是没想到是这种奇怪的方式融合，令人感叹。
+
+这几集反复出现的黑影应该就是未成形的真·若叶睦的人格，现实中都逐渐展现出自身欲求、脑内剧场时强时弱的小睦、小墨，说明主人格在进行取舍：
+
+小睦需要从祥子的幸福，转为追求自己的幸福（所以睦头人“死”了，由小墨来演出这一点）；
+
+小墨要从用演技迎合他人，转向面对自我（所以喵梦会说“恶心”）；
+
+殊途同归，最后可能会有脑内剧场的黑影具象化、与现实合而为一的演出画面。
+
+*****
+
+####  KokutouMikiya  
+##### 30783#       发表于 2025-2-28 00:42
+
+退一万步就算真是女同也不至于啊，暗恋不得导致产生这种程度负面情感，难道不是本子里才会发生的事情
+
+*****
+
+####  收纳袋  
+##### 30784#       发表于 2025-2-28 00:42
+
+要不最后一集来个梦结局吧，这样大伙都幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rushsong  
+##### 30785#       发表于 2025-2-28 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536029&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-2-27 23:30</a>
+我也有预感，无论十三集做成什么样子，在过一段时间后肯定会有人站出来说mujica其实没那么烂，也肯定会有 ...</blockquote>
+台湾和日本那边不是一直都好评吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  扶桑洛槿  
+##### 30786#       发表于 2025-2-28 00:43
+
+<blockquote>聋与唬 发表于 2025-2-28 00:24
+这剧情也太变态了，大祥老师要把不听话的大莫杀了，只保留对大祥言听计从的木头人。这还是少女乐队吗？
+
+— ...</blockquote>
+我知道大祥人设已经很烂了，但也别说的好像大祥为了操纵睦一样。
+
+大祥真的只想为了吉他睦的痛苦去赎罪罢了，而莫和大祥对立，单纯就是大莫要靠组母鸡卡活下去，但大祥宁愿让莫死也不打算委屈吉他睦罢了。
+
+*****
+
+####  JustW  
+##### 30787#       发表于 2025-2-28 00:44
+
+<blockquote>rushsong 发表于 2025-2-28 00:43
+台湾和日本那边不是一直都好评吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+台湾并没有吧，差评还挺多的
+
+*****
+
+####  kivz  
+##### 30788#       发表于 2025-2-28 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537083&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:39</a>
+如果推的是灯，哪怕是脑内想象，那未来鸡狗两团的粉丝可有的打了</blockquote>
+推自己人就不打嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 30789#       发表于 2025-2-28 00:45
+
+灯皇会拒绝重组的，
+但是当大祥发现睦子米又消失了，初华黑化了，又要打电话给谁忘记一切呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rushsong  
+##### 30790#       发表于 2025-2-28 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537149&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:44</a>
+台湾并没有吧，差评还挺多的</blockquote>
+油土鳖和ptt还有巴哈姆特都是好评为主
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

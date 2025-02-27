@@ -2441,3 +2441,69 @@ U型评分说明了什么，说明了我们这部片还是有受众满意的！
 
 主打的就是一个你永远想不到下一句台词是什么 太变态了
 
+
+*****
+
+####  qwased  
+##### 270#       发表于 2025-2-28 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">纯搞笑片，笑得停不下来
+
+这一集连台词质量都彻底崩盘了，所有角色的台词都是一片浆糊根本不知道要干嘛
+
+*****
+
+####  哩子ayil  
+##### 271#       发表于 2025-2-28 00:37
+
++2
+
+太快乐了，开播的时候我还在跟朋友吐槽我很害怕热门番遇到粉圈打架那看动画会很难受，但是这个动画完美地讨好了我一个乐子人并创飞了所有角色厨，场内场外都让我非常快乐
+
+特别是看作为燃烧瓶看到瓶子红温面目扭曲实在是乐得第二天都要回犯罪现场回味
+
+*****
+
+####  风畔鹤  
+##### 272#       发表于 2025-2-28 00:37
+
+-2呕<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/02/28/RgaCD69Snyq7tzN.png" referrerpolicy="no-referrer">
+
+*****
+
+####  car123  
+##### 273#       发表于 2025-2-28 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536603&amp;ptid=2247654" target="_blank">whzfjd 发表于 2025-2-28 00:05</a>
+
+mygo 是早就知道素世是坏人，然后看坏人吃瘪，苦情戏演得也很自然充分。观众能充分共情素世。
+
+mujica 里 ...</blockquote>
+是的，人物动机，尤其是感情方面根本没有到位，走马灯一样把大纲过完，观众人都傻了只能跟着笑<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 274#       发表于 2025-2-28 00:40
+
+true entertainment！
+
+
+*****
+
+####  一心而用  
+##### 275#       发表于 2025-2-28 00:42
+
+<img src="https://p.sda1.dev/22/5994721351489427e223efdb957c3f26/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  saglork  
+##### 276#       发表于 2025-2-28 00:43
+
+-2
+莫老师这恐怖片还要拍几集啊，半夜看片很渗人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想来想去最不能接受的是海玲，这nm跟中了催眠APP一样，她到底想干啥谁能告诉我<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
