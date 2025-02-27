@@ -2252,3 +2252,88 @@ mujica 里很多角色的执念观众都无法理解：
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kivz  
+##### 249#       发表于 2025-2-28 00:07
+
+wsd在写nm呢，都几把一坨💩
+
+*****
+
+####  雪菜碧池  
+##### 250#       发表于 2025-2-28 00:07
+
+不仅mygo切割了
+
+连祥子都要切割，真正的祥子已经死了在第五话，而睦死在了mygo
+
+*****
+
+####  秦南心  
+##### 251#       发表于 2025-2-28 00:07
+
+不知道在看啥，毫无行为逻辑
+
+*****
+
+####  xwr  
+##### 252#       发表于 2025-2-28 00:07
+
++2吧，我想看看还能怎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ubox  
+##### 253#       发表于 2025-2-28 00:08
+
++1，上一集感觉就是制作组烂炒的抖音切片合集，剧情几乎没有推进，这集虽然全员颠婆但C团重组和双重人格又拉出来继续翻炒，连小猫都拉进来当看戏观众，what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  whzfjd  
+##### 254#       发表于 2025-2-28 00:08
+
+我建议这周六泛大帅也来个暴怒颜，鸡狗饭这下就可以三位一体了。
+
+
+*****
+
+####  积木23ki  
+##### 255#       发表于 2025-2-28 00:12
+
+我上次笑这么开心还是看碧蓝之海<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑疯了
+
+*****
+
+####  赛文欧德  
+##### 256#       发表于 2025-2-28 00:13
+
+-2
+女乐不好看，也不能涨学问<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 257#       发表于 2025-2-28 00:15
+
+太可惜了，这样的乐子只剩下四周了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YF31  
+##### 258#       发表于 2025-2-28 00:16
+
+这狗屎动画是不是给谁画面谁就要变÷啊，兼任三十多个乐队的贝斯手，让吉他手重新上台的方式居然是让她学着假弹？？？？？
+
+卧槽里的，在音乐动画里，一个知名乐队成员，居然他妈的要靠骗人假弹重组乐队？对得起舞台和音乐吗沟槽的。
+
+这不得不退了，赶紧让disruption把她也开除滚蛋算了，一点乐队人对音乐的尊重都没有了，他妈的这个剧本怎么能让过的啊。
+

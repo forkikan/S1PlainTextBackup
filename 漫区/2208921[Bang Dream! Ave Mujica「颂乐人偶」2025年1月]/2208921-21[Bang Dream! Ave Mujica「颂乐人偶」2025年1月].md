@@ -11737,3 +11737,204 @@ ave mujica是千年血战
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 30692#       发表于 2025-2-28 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536519&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-28 00:00</a>
+那现在看不出是融合阶段，至少表现也太隐晦了。后面还有吉他睦归来的戏份吗。不太好写 ...</blockquote>
+有一个伏笔，“微妙的对不上”，不排除A团复出“莫提斯”搞砸需要吉他睦出来救场的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 30693#       发表于 2025-2-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536608&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 00:05</a>
+
+问题就是她为啥出这么大力啊？这鸡团比起前面三十个团好在哪啊</blockquote>
+鸡团1.0能满足她的权力欲望，去别的团只能当打工仔。
+
+*****
+
+####  影伴光生  
+##### 30694#       发表于 2025-2-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536159&amp;ptid=2208921" target="_blank">helloo23 发表于 2025-2-27 23:38</a>
+海铃演赌博启示录？我要看这个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孕吧有海子姐破产之后继续加杠杆的二创
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fuwamoco  
+##### 30695#       发表于 2025-2-28 00:07
+
+肯定是要融合的，吉他睦已经压制不住墨了。
+
+意识空间里本来吉他睦要靠ccc即将重组这事杀死墨了，吉他突然掉了下来。这说明潜意识深处的若叶睦在保护墨。栏杆的突然断裂代表着潜意识对吉他睦这个面具的舍弃，执着回到不喜欢的风格的ccc，不符合若叶睦潜意识的想法，坠入深渊意味着重回意识深处。
+
+最后墨的自我挣扎向潜意识伸手，随着她越来越靠近潜意识，最终会和之前的人格们和解融合，终将掌控心灵。
+
+*****
+
+####  聋与唬  
+##### 30696#       发表于 2025-2-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535602&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-27 23:10</a>
+吉他睦自己摔死在自己的人格里我就觉得很奇怪啊
+
+mujica死了，莫缇丝也没死，活蹦乱跳怎么久，驾驶舱说抢就 ...</blockquote>
+没准编剧真没想那么多，就是精神世界里人格也可以摔死
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  huxiaopao163  
+##### 30697#       发表于 2025-2-28 00:08
+
+ 本帖最后由 huxiaopao163 于 2025-2-28 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536169&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 23:38</a>
+
+感觉是莫的演技能被喵梦认出来，但喵梦的心魔其实一直是睦的演技（本色），看到莫演反而觉得恶心 ...</blockquote>
+但是睦妈也认出来幼年睦的演技了，也觉得恶心了。但不代表幼年睦没有演技，或者失去演技了啊。。。
+
+而且就算睦妈认出来了，但是睦爸等一般人是认不出来的，能骗过大部分人的话，就应该是演技很厉害的意思吧。
+
+如今的mortis和喵梦，应该也是类似的情况
+
+*****
+
+####  海洋队手下mayo  
+##### 30698#       发表于 2025-2-28 00:08
+
+海铃开始想重组不就是因为被立希说不对队友的大病负责，这集不就是塑造一个事业狂决定辞职陪自己重度心理疾病女儿治疗的老父亲，一琢磨要负责到底就极端到“把乐队操守和其他道德抛了呗 老娘饿死，道德败坏 社会死亡也要救活你啊大莫！”这么极端势必要被纠正的
+
+编剧直接跳过了为什么海铃知道没了大莫若叶就要完蛋，莫名其妙就知道这种重要情报了。只能说看台词似乎是这个意思 就是逻辑乱七八糟的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这集我也觉得看得挺开心的，这动画可真是无法预测的乐子
+
+*****
+
+####  JustW  
+##### 30699#       发表于 2025-2-28 00:10
+
+可能单纯母鸡卡赚的多吧，原来需要兼职三十家才能维持超高消费，之后只干一家就行了
+
+*****
+
+####  雪菜碧池  
+##### 30700#       发表于 2025-2-28 00:10
+
+还用舅舅吗这逼动画你说他用心写了写得像坨屎
+
+你说他没用心，处处对照mygo，买狗第十话超诗絆，这个肯定也是第十话才有演出
+
+*****
+
+####  shinoverse  
+##### 30701#       发表于 2025-2-28 00:11
+
+[今宵は飄逸なエゴイスト(Live ver) ～ Egoistic Flowers.](https://music.163.com/#/song?id=561307037)
+
+这么重要的事怎么不早说，害的我误会了20集，早说我就换模式看剧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 30702#       发表于 2025-2-28 00:12
+
+重新看了下内心小剧场，
+
+最后吉他睦掉下去以后窗外出现的黑影就是若叶睦，她说的话是“不要抢走我的角色”，用的是吉他睦的台词。
+
+结论：吉他睦没死透。
+
+*****
+
+####  ml1642879  
+##### 30703#       发表于 2025-2-28 00:12
+
+这妥妥的神作啊，拷打了20多集的恶人役迎来的惩罚是编剧告诉我她最珍视的人已经消失了，这不是神作是什么。
+
+*****
+
+####  天空塔书记官  
+##### 30704#       发表于 2025-2-28 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536608&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 00:05</a>
+问题就是她为啥出这么大力啊？这鸡团比起前面三十个团好在哪啊</blockquote>
+因为主导权，海玲的兼职乐队都是固定的串场位置，而不是核心，现在她有可能成为A团的核心，所以才会孤注一掷，也算是某种执念或者“赎罪”吧，像她那么聪明的人不可能不知道自己当初为什么会被四踢一，即使一开始不知道，现在也已经想明白了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  扶桑洛槿  
+##### 30705#       发表于 2025-2-28 00:13
+
+<blockquote>hulaoda007 发表于 2025-2-27 23:50
+主要是，睦以为c团回归可以帮到祥子，祥子以为c团回归可以帮到睦。俩人的意思其实都是消灭莫。只是这个祥和 ...</blockquote>
+按第八集来看，是睦要求祥子重建ccc的吧，毕竟睦和莫那段对手戏大祥应该全程围观的吧，而且祥子前半段真的没打算组ccc来帮睦。
+
+但第九集睦人设又反转成为了祥子才要求重建ccc的。就八，九集的吉他睦和莫的表现，估摸若叶睦还有打算折磨大祥的底层逻辑。
+
+*****
+
+####  Victorino  
+##### 30706#       发表于 2025-2-28 00:14
+
+<blockquote>zhigui 发表于 2025-2-27 23:50
+想过很路边没想到这么路边</blockquote>
+没商业出道的放学后过家家乐队不就是这样吗
+
+*****
+
+####  zhigui  
+##### 30707#       发表于 2025-2-28 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536546&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-28 00:01</a>
+
+之前的剧透有真掺假的部分
+
+比如九话mujica重组+live现在确认就是假的</blockquote>
+往后推一集就对了
+
+那个剧透还说的8集素希拒绝灯犹豫爱旁边看戏，现在看来内容是对的，但是集数差了一集
+
+而且按这个走向看往后推一集第十集mujica重组+live也是对的，因为睦莫问题必须得下集解决，更何况mujica到现在还没有新歌，下集必须得有live了
+
+*****
+
+####  JustW  
+##### 30708#       发表于 2025-2-28 00:15
+
+吉他睦肯定没死，但那个黑影难道不只是回忆台词的一种表现手法吗，否则mortis之后还急什么，其他114514个人偶乐什么
+
+*****
+
+####  Lyzers  
+##### 30709#       发表于 2025-2-28 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了满足管理欲/为了赚大米重组前阵子完全dont facking care的神人乐队，组不出来就要掉小珍珠，这就是最狂乐队动画吔
+
+*****
+
+####  天空塔书记官  
+##### 30710#       发表于 2025-2-28 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536726&amp;ptid=2208921" target="_blank">扶桑洛槿 发表于 2025-2-28 00:13</a>
+按第八集来看，是睦要求祥子重建ccc的吧，毕竟睦和莫那段对手戏大祥应该全程围观的吧，而且祥子前半段真 ...</blockquote>
+是睦以为祥子要重建CCC和祥子以为睦要重建CCC，这就是因为沟通失效而产生的误会 ，悲剧性的麦琪的礼物<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
