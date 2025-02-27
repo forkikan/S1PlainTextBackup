@@ -1443,3 +1443,189 @@ boring
 
 找回了当年追vvv的感觉，谢谢wsd<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斑驳的阴影  
+##### 161#       发表于 2025-2-27 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535407&amp;ptid=2247654" target="_blank">何でやねん 发表于 2025-2-27 23:01</a>
+
+祥子你又开始了，最后大喵老师把我想说的都说了
+
+老实说我并不觉得这些人一起同时组三个乐队有什么问题欸 ...</blockquote>
+只要抛弃邦邦星球组乐队=结婚的设定确实可以三个乐队没毛病的！
+
+*****
+
+####  天王寺凯伊姆  
+##### 162#       发表于 2025-2-27 23:06
+
+别的不说，这句怎么这么快啊
+
+*****
+
+####  fsfs_freeze  
+##### 163#       发表于 2025-2-27 23:06
+
+-1
+
+本来想-2但这一集算是唯一把我看笑了的一集所以加一分<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 164#       发表于 2025-2-27 23:07
+
+节奏烂完 -2
+母鸡卡四人人设烂完-2，喵梦原地踏步
+莫小姐疯狂求生欲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然你是整个节奏烂完的罪魁祸首，但为了你+1
+
+还有bgm烂完
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  屑屑代沟尼亚  
+##### 165#       发表于 2025-2-27 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢掉脑子+2 带上脑子-2 
+
+对冲一下给个0好了
+
+*****
+
+####  -SLSL-  
+##### 166#       发表于 2025-2-27 23:08
+
+看的大脑升级了
+
+彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！
+
+*****
+
+####  宅🍐eriri  
+##### 167#       发表于 2025-2-27 23:08
+
++2，把逻辑抛弃之后mujica已经无敌了，是前任文学救了mujica
+
+*****
+
+####  mono  
+##### 168#       发表于 2025-2-27 23:09
+
++1  我越来越好奇怎么结局了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  13431941181  
+##### 169#       发表于 2025-2-27 23:09
+
++2
+
+太扭曲啦，我喜欢
+
+*****
+
+####  林云少校  
+##### 170#       发表于 2025-2-27 23:09
+
+大喵最后的kimo还是挺爽的
+
+*****
+
+####  ashero  
+##### 171#       发表于 2025-2-27 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太变态了 必须+2
+
+*****
+
+####  天王寺凯伊姆  
+##### 172#       发表于 2025-2-27 23:11
+
+<blockquote>aptx8285144 发表于 2025-2-27 22:52
+因为上集像搞笑烂片，这集像迷家</blockquote>
+像吗，迷家后期真没母鸡卡这后期这么疯吧，迷家后期是无聊
+
+*****
+
+####  shokuji  
+##### 173#       发表于 2025-2-27 23:11
+
+史上最狂乐队动画就是九集了没干什么乐队事吗
+
+到现在还没有鸡的新live，下集估计也不会有
+
+*****
+
+####  萌二  
+##### 174#       发表于 2025-2-27 23:11
+
+上集包的饺子在哪里 越来越混乱了
+
+*****
+
+####  cnlmaa  
+##### 175#       发表于 2025-2-27 23:11
+
++2 看完觉得脸有点酸，揉了揉发现原来是因为笑容一直挂在脸上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Litccc  
+##### 176#       发表于 2025-2-27 23:13
+
+看完第九集终于明白了，祥子只是奈亚拉托提普在人间选中的另一个化身罢了，祥爹祥妈这种天天相处的的疯的疯死的死，几个美少女一见大祥就成了狂信徒，从小关系好的现在已经成人格分裂和偏执狂了，猫猫这种灵视高的从来不敢直视祥子，只敢背对着古神化身偷偷吃巴菲回san值
+
+*****
+
+####  styc  
+##### 177#       发表于 2025-2-27 23:13
+
+-2，喵梦最后说出了我的感想
+
+*****
+
+####  Skymoon  
+##### 178#       发表于 2025-2-27 23:14
+
+-2
+恶心，烂片
+
+*****
+
+####  yanghuangu  
+##### 179#       发表于 2025-2-27 23:15
+
+你就说是不是史上最狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">+2
+
+*****
+
+####  ArcadiaMartyr  
+##### 180#       发表于 2025-2-27 23:15
+
+迷家都比不过mujica
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  pp1349  
+##### 181#       发表于 2025-2-27 23:15
+
+我已经把预期已经调整到能在你b/抖音刷到的那种人物抽风，情绪在连续的两个镜头里可以做到完全不同，剧情完全没逻辑且标题党的脑残小短剧水平了大家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以这集我给+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿卵真是牛逼  
+##### 182#       发表于 2025-2-27 23:16
+
++2，终于有live了，这才是少女乐队动画！
+

@@ -9633,3 +9633,358 @@ Screenshot_2025-02-27-22-58-39-837_tv.danmaku.bili.jpg
 
 看动画最要紧开心（雾）
 
+
+*****
+
+####  cxj649  
+##### 30498#       发表于 2025-2-27 23:06
+
+ 本帖最后由 cxj649 于 2025-2-27 23:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535465&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-27 23:03</a>
+
+话又说回来mygo众人精神状态如此稳定再听到重组c团已经是波澜不惊，这mygo的治疗效果惊人呐，反观am五个心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实狗团不在意观众所在意冷落爱音的话，其实都很正常的
+
+我个人觉得狗团相关纯属观众自己找不自在233
+
+*****
+
+####  aptx8285144  
+##### 30499#       发表于 2025-2-27 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535425&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-27 23:02</a>
+
+十五年一遇的大女主到底在哪里</blockquote>
+初华到是毫无疑问像十五年之路人主唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 30500#       发表于 2025-2-27 23:06
+
+<blockquote>莱茵哈鲁特 发表于 2025-2-27 23:03
+要是一定说机械降神就是坏的，那jojo打boss全靠机械降神。所以用双重人格推进剧情发展我觉得并没有什么不可 ...</blockquote>
+主要是柿本没有心，瞎jb演出。其实我相信这个大纲没有大改，只不过可能柿本觉得独角兽刻画的那些东西骨子里就是过家家，过家家又不够刺激，干脆下猛药。
+
+这个剧情大纲下，如果作为重要线索的大莫老师一开始就不存在，那么大纲就只能靠丰川家这条暗线推动了。矛盾强度本来就不足，成品可能会更水
+
+*****
+
+####  圣血天使  
+##### 30501#       发表于 2025-2-27 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535425&amp;ptid=2208921" target="_blank">新HGCG 发表于 2025-2-27 23:02</a>
+
+十五年一遇的大女主到底在哪里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">古早版玛丽苏大女主祥子你不喜欢吗，国家顶级集团大小姐，周围人对她好感度锁定最高，思维不似人还有人惯着她，你还想女主怎样嘛
+
+*****
+
+####  Onelooker  
+##### 30502#       发表于 2025-2-27 23:07
+
+剧透是对的，还好我第七集就去把剧透看完了
+
+要不然晚上十点看到小姨真顶不住
+
+*****
+
+####  ads147147  
+##### 30503#       发表于 2025-2-27 23:07
+
+我不理解，给初华设置双胞胎姐妹的理由在哪里，木头搞性格分裂已经足够推进故事了，收尾来个双胞胎太莫名其妙了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 30504#       发表于 2025-2-27 23:08
+
+<blockquote>cxj649 发表于 2025-2-27 23:06
+其实狗团不在意观众所在意冷落爱音的话，其实都很正常的</blockquote>
+爱音在群聊里发消息没人回是底层逻辑没什么奇怪的（手游里也是这样）
+
+我一直不认为am里mygo角色塑造不好，顶多也就是灯有点行动力不够
+
+*****
+
+####  adretyu67.  
+##### 30505#       发表于 2025-2-27 23:08
+
+ 本帖最后由 adretyu67. 于 2025-2-27 23:10 编辑 
+
+这话我觉得没什么问题啊。
+
+mygo虽然几个已读不回，但是最后还是表态回不到过去，就是不想组CCC。
+
+睦莫之争符合我之前一个脑洞，睦消失，出于某些原因莫必须假装睦，只有回到鸡团的舞台上才能扮演自己。就是演出形式和被大小猫一眼看穿导致伪装没有任何意义。
+
+莫这个角色是无罪的，为了让她加入神人乐队鸡团，就是演出搞笑了，还真能在意识空间里摔死，虽然应该是摔进深渊被本体吃了吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+大猫是直视古神后遗症发作了，再这样去当不了演员还是去打鼓吧。
+
+*****
+
+####  楠城旧篱  
+##### 30506#       发表于 2025-2-27 23:08
+
+我要看时间煮雨mad
+
+哈哈哈哈哈哈
+
+*****
+
+####  Renes  
+##### 30507#       发表于 2025-2-27 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535456&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-27 23:03</a>
+
+要是一定说机械降神就是坏的，那jojo打boss全靠机械降神。所以用双重人格推进剧情发展我觉得并没有什么不可 ...</blockquote>
+别洗了，JOJO是超能力战斗漫，我看的就是最后怎么铺垫出这个降神，这个降神演出效果好不好，如果乔鲁诺和老板打到一半布加拉提开始唱歌于是他们一起组乐队给意大利人民带来快乐那也是大烂片没的洗。
+
+*****
+
+####  liy30dlys  
+##### 30508#       发表于 2025-2-27 23:08
+
+然后你跟我说这集给ccc睦盖棺的话，其实第7话那首春日影复活ccc睦完全可以拿掉不影响推进吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这集确实比前两集有意思了点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  未来起航  
+##### 30509#       发表于 2025-2-27 23:08
+
+初华搞笑是搞笑了点，表现出来的东西比起人格搞吉列豆蒸的那位起码正常多了。
+
+这又绕回到mygo去了：大祥立am的动机就过于迷惑。b站官号的头像图很好地体现了这一点：大祥立am有着非常幽微的报复心。不过在变回圣白祥之后报复的动机也不能说完全消失（家里破事还在）但也跑了大半了。那就得跟黑化复仇期间搭进来的主唱交代交代<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 30510#       发表于 2025-2-27 23:09
+
+ 本帖最后由 蓮華 于 2025-2-27 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535438&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-2-27 23:02</a>
+
+草 mujica解散真的是因为丰川家的大手啊......
+
+这集蜘蛛侠终于出来了。</blockquote>
+现在还算没玩进去？？？你滤镜也太重了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  qiyu1234  
+##### 30511#       发表于 2025-2-27 23:09
+
+最后只能靠狗血家庭悬疑剧挽救🐘的塑造了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然已经崩了，但亡羊补牢，给主人公一个高光吧，这动画是真的没几集了
+
+*****
+
+####  Libartas  
+##### 30512#       发表于 2025-2-27 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要说鸡的主旨是人偶变成人的话，鸡7到现在倒是没啥问题，而且这个b对仗真的是集集不落
+
+*****
+
+####  cxj649  
+##### 30513#       发表于 2025-2-27 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535552&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-27 23:08</a>
+
+爱音在群聊里发消息没人回是底层逻辑没什么奇怪的（手游里也是这样）
+
+我一直不认为am里mygo角色塑造不好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是啊
+
+*****
+
+####  wwwttth  
+##### 30514#       发表于 2025-2-27 23:10
+
+<blockquote>gammatau 发表于 2025-2-27 22:35
+不是 大猫也有看穿灵魂的能力吗
+
+那你不用纠结什么演员乐队了，直接直播通灵不牛逼多了 ...</blockquote>
+大猫是看出来是演技啊，人家觉得你演技吊不代表看不出你在演啊
+
+*****
+
+####  是谁的书画  
+##### 30515#       发表于 2025-2-27 23:10
+
+吉他睦自己摔死在自己的人格里我就觉得很奇怪啊
+
+mujica死了，莫缇丝也没死，活蹦乱跳怎么久，驾驶舱说抢就抢。
+
+CCC也还没彻底敲定的玩完了，吉他睦摔死了在自己的世界里，更何况吉他睦也不是因为CCC诞生的，是因为吉他。除非她自断双手，要不然这人格怎么紫砂？
+
+这有逻辑吗我请问了？
+
+除了编剧找不到理由只能叫吉他睦自行了断，然后美名其曰“戏剧性冲突”，我实在不知道这算哪门子处理。
+
+这能算意外吗？这只能算是灾难啊！
+
+*****
+
+####  未来起航  
+##### 30516#       发表于 2025-2-27 23:10
+
+话说按照这种啥都回不去了只能硬着头皮往前走的剧内气氛，木头人格大概是真的死透了罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 30517#       发表于 2025-2-27 23:10
+
+太无敌了编剧，百万爱音厨自己不用找编剧每集都能端子弹上来
+
+要我说最大的圣厨是wsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 30518#       发表于 2025-2-27 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535602&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-27 23:10</a>
+吉他睦自己摔死在自己的人格里我就觉得很奇怪啊
+
+mujica死了，莫缇丝也没死，活蹦乱跳怎么久，驾驶舱说抢就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为要从人偶便乘人啊
+
+*****
+
+####  modkingr  
+##### 30519#       发表于 2025-2-27 23:11
+
+这集完爆第七集
+
+
+*****
+
+####  刑部姬真可爱  
+##### 30520#       发表于 2025-2-27 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535552&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-27 23:08</a>
+
+爱音在群聊里发消息没人回是底层逻辑没什么奇怪的（手游里也是这样）
+
+我一直不认为am里mygo角色塑造不好 ...</blockquote>
+主要是这个点子不搞笑啊，而且也重复了好几次，也没有做什么能拉回观感的剧情，不就成了表面“搞笑”的虐角色<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 30521#       发表于 2025-2-27 23:12
+
+让人不禁觉得这还是邦多利吗，有没有老邦邦人再给我讲解一下。
+
+但结局还是要看的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30522#       发表于 2025-2-27 23:12
+
+只不过对mygo的睦是极其不友好。
+
+吉他睦直接被反杀到只剩小莫。
+
+这塑造真的要逼死一堆人吧。
+
+*****
+
+####  sauron.j  
+##### 30523#       发表于 2025-2-27 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535438&amp;ptid=2208921" target="_blank">Qing_Qi_2.0 发表于 2025-2-27 23:02</a>
+
+草 mujica解散真的是因为丰川家的大手啊......
+
+这集蜘蛛侠终于出来了。</blockquote>
+莫学会了吉他，吉他睦作为自主性的锚点被拆毁了，表现上就是自我认知遭到消解
+
+但是后面还有个巨大若叶睦黑影，事情没这么简单
+
+*****
+
+####  新HGCG  
+##### 30524#       发表于 2025-2-27 23:12
+
+<img src="https://img.saraba1st.com/forum/202502/27/231245v5zfeln2eff2wswg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 23:12 上传
+
+*****
+
+####  沼蝇  
+##### 30525#       发表于 2025-2-27 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535649&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-27 23:12</a>
+莫学会了吉他，吉他睦作为自主性的锚点被拆毁了，表现上就是自我认知遭到消解
+
+但是后面还有个巨大若叶睦 ...</blockquote>
+莫提斯学的不是假弹吗
+
+*****
+
+####  m99999  
+##### 30526#       发表于 2025-2-27 23:13
+
+<blockquote>sauron.j 发表于 2025-2-27 23:12
+莫学会了吉他，吉他睦作为自主性的锚点被拆毁了，表现上就是自我认知遭到消解
+
+但是后面还有个巨大若叶睦 ...</blockquote>
+大概人格分裂会变成常态，这个破乐队就是要一种撕裂的摇摇欲坠的状态
+
+*****
+
+####  阿兹尔  
+##### 30527#       发表于 2025-2-27 23:13
+
+睦的人格分裂要玩到第几话啊，两个大小姐因为这事演出来多少逆天剧情了
+
+*****
+
+####  天空塔书记官  
+##### 30528#       发表于 2025-2-27 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535602&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-2-27 23:10</a>
+吉他睦自己摔死在自己的人格里我就觉得很奇怪啊
+
+mujica死了，莫缇丝也没死，活蹦乱跳怎么久，驾驶舱说抢就 ...</blockquote>
+吉他睦重组CCC的本意是“救”祥子，但现在重组乐队无望，祥子也就无法再回到“白祥”的状态，那与“白祥”联系密切的吉他睦也就失去了存在的意义，所以她“死”了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 30529#       发表于 2025-2-27 23:14
+
+ 本帖最后由 JustW 于 2025-2-27 23:15 编辑 
+
+这剧本估计也没改多少，樱花百合同人女的味道太大了，母鸡卡角色被各种能挑动同人女神经的设定塞满塞爆了。当你还在想祥子身上是不是涂冰了、初华是不是也有病、睦的多重人格是不是闹麻了，日推的同人女已经在兴奋了。能让一个塞满自己xp的本子搬上银幕，这是多少人的梦想（
+
+*****
+
+####  盐盐盐盐盐  
+##### 30530#       发表于 2025-2-27 23:15
+
+<blockquote>刑部姬真可爱 发表于 2025-2-27 23:12
+主要是这个点子不搞笑啊，而且也重复了好几次，也没有做什么能拉回观感的剧情，不就成了表面“搞笑”的虐 ...</blockquote>
+她谈的话题太尴尬了soyo立希一时间也不好回什么就干脆不回了而已，对爱音而言这就是随口一说的话题对她俩那还是有点严肃的，不是当场就能随便聊天回两句的事
+
