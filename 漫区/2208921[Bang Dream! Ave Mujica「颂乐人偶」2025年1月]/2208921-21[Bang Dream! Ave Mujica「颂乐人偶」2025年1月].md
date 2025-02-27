@@ -7068,3 +7068,55 @@ fly me to the star（物理）<img src="https://static.saraba1st.com/image/smile
 
 看🐔厕真是惨，感觉厕妹有这种心态也是很少的了，没几个内部毒唯互殴的，都是抱团取暖，或者嘴🐶或者嘴C<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 30220#       发表于 2025-2-27 21:45
+
+不看了，不管看得笑死还是气死都会影响精致睡眠，这次绝对在播送前躺下睡觉
+我们明天见
+
+*****
+
+####  septer  
+##### 30221#       发表于 2025-2-27 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67533867&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-2-27 21:45</a>
+
+不看了，不管看得笑死还是气死都会影响精致睡眠，这次绝对在播送前躺下睡觉
+
+我们明天见 ...</blockquote>
+动画可以不看，但是坛友的reaction还是不能错过<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 30222#       发表于 2025-2-27 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67533885&amp;ptid=2208921" target="_blank">septer 发表于 2025-2-27 21:47</a>
+动画可以不看，但是坛友的reaction还是不能错过</blockquote>
+明天起来看完爬楼一口气看个痛快
+不然我自己也变成节目效果又要熬夜了，已经被折磨678三个晚上了，还是45早起看的比较爽<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 30223#       发表于 2025-2-27 21:50
+
+无论什么厕最后都是反刍和共振
+
+完全的无意义行为
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 30224#       发表于 2025-2-27 21:52
+
+太好啦，这气氛与刑场无异，是我最喜欢的肃杀之气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
