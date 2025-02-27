@@ -5374,3 +5374,43 @@ CCC终究只是一场梦，相遇是场巧合，散了就是散了，它固然�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 30077#       发表于 2025-2-27 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531032&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 16:03</a>
+狗9 話就是為了爆把Taki 小姐變成了超莽夫
+
+正常人的做法是先開小會把Soyo 不玩的事說清楚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实最好笑的事情是，立希11话会察言观色，结果第九话对峙的时候，没有听出素世离开前那句话里有哽咽，也很僵硬（明明C团老人这俩人应该是私底下解散后一年见面最多的人之一）
+
+
+*****
+
+####  钦念以忱  
+##### 30078#       发表于 2025-2-27 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67530901&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 15:48</a>
+
+不會，
+
+首先那裡愛音已經爆了， 不是輕飄飄的就能帶過</blockquote>
+我回看了一下，爱音爆发的原因其实和avemujica第7话以来的完全一致，立希突然问了一句小灯你更喜欢crythic么，这个问题灯答不上来，其实这个问题和选爱音还是选素也无关，等于立希连滑了两个坡。
+
+最后爱音失望离开的时候，也是说的灯你和素世一起去组crythic吧。
+
+最后爱灯素的互动，是避开了这个crythic的问题的，最后解决方案也很单纯，素世要退队产生的矛盾，在发现素世并非坚决要退队之后半强制地把人拉回来，就解决了。
+
+立希连续滑坡的，选爱音还是选素世，以及小灯是否更喜欢crythic，在整个矛盾的解决过程中都被绕开了。
+
+现在avemujica糟糕就糟糕在，直面这些问题了，结果mygo团还不是主角。
+
+*****
+
+####  钦念以忱  
+##### 30079#       发表于 2025-2-27 16:18
+
+这么看来，百万爱音厨爆炸得很合情合理啊，mygo第9话爱音爆炸最关键原因其实也还是crythic，尤其是小灯疑似更喜欢crythic。
+
