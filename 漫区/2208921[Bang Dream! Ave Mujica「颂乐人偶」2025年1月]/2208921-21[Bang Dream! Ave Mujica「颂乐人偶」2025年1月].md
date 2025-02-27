@@ -6637,3 +6637,62 @@ CCC才活了几周。。怎么就被束缚了，第一次live后就结束了呀<
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ads147147  
+##### 30181#       发表于 2025-2-27 19:18
+
+ 本帖最后由 ads147147 于 2025-2-27 19:22 编辑 
+
+适合当反派，不适合当主角。
+
+这种很强的反派你准备洗白都会折损角色魅力的。。。
+
+这点上jojo做的挺好，给你看看boss回忆丰满下角色，但是该被主角团打死还是会被打死。可惜少女乐队还是二偶那套总想着端水，又端不好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 30182#       发表于 2025-2-27 19:24
+
+三角初华，开庭！
+
+<img src="https://img.saraba1st.com/forum/202502/27/192408qa9kkkrazchg1c5x.png" referrerpolicy="no-referrer">
+
+<strong>105445317406549392.png</strong> (99.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/192418t9fybjmhbflmy9bh.png" referrerpolicy="no-referrer">
+
+<strong>108034117406550202.png</strong> (73.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 19:24 上传
+
+*****
+
+####  一心而用  
+##### 30183#       发表于 2025-2-27 19:26
+
+<img src="https://p.sda1.dev/22/854763f9feed7fb23b687db5f61ad822/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a3e9ee925578509ec2360ee67db14553/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1c5008877f91b36eb680f3f505409235/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ead9cfbf4216a4fa440faafca1bf60a3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 30184#       发表于 2025-2-27 19:27
+
+<img src="https://p.sda1.dev/22/410468add13e840effb738802606c412/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6b9ef817bfe6bf14e04b069fb2da091f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9a6de5a0b78651919f7a261bbb4df53c/image.jpg" referrerpolicy="no-referrer">
+

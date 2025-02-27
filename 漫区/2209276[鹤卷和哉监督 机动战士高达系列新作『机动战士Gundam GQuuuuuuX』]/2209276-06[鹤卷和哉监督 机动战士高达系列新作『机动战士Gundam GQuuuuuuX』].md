@@ -3257,3 +3257,21 @@ woc，香港这几场时间也太阴间了吧
 
 有人知道嘉禾MEGABOX IMAX场送不送海报吗
 
+
+*****
+
+####  oi99o  
+##### 7675#       发表于 2025-2-27 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532452&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-2-27 19:00</a>
+
+有人知道嘉禾MEGABOX IMAX场送不送海报吗</blockquote>送的
+
+<img src="https://img.saraba1st.com/forum/202502/27/192150pc1sks11h11hsl6g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 19:21 上传
+
