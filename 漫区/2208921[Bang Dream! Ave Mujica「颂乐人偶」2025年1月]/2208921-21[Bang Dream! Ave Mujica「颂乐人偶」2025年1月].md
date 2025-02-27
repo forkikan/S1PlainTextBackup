@@ -6725,3 +6725,70 @@ CCC才活了几周。。怎么就被束缚了，第一次live后就结束了呀<
 剧透勿引
 本集初睦祥推全部遭重 
 
+
+*****
+
+####  plazum  
+##### 30188#       发表于 2025-2-27 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532682&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-27 19:29</a>
+
+请教漏油反白代码</blockquote>[color=White]就像这样[/color]复制代码就像这样←
+
+*****
+
+####  是谁的书画  
+##### 30189#       发表于 2025-2-27 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">口挖库奈？
+
+*****
+
+####  南宮凝香  
+##### 30190#       发表于 2025-2-27 19:43
+
+我再重複一次：
+
+距離母雞卡片場越近， 角色越不幸
+
+*****
+
+####  一心而用  
+##### 30191#       发表于 2025-2-27 19:43
+
+还请来了
+<img src="https://p.sda1.dev/22/913cd823e92551ab1e0a1de282cd7d6c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 30192#       发表于 2025-2-27 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532801&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 19:43</a>
+我再重複一次：
+
+距離母雞卡片場越近， 角色越不幸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实，容易分到符号一串辈，人设也会爆炸
+
+
+*****
+
+####  一心而用  
+##### 30193#       发表于 2025-2-27 19:44
+
+我之前就感觉到这一话的差评会超越第7话，看来确实如此。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 30194#       发表于 2025-2-27 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531796&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 17:31</a>
+
+嚴格來說沒有，
+
+她只說了一起辦演唱會 就被斷法了</blockquote>
+这里的剧情对话其实有点狡猾的，第一次拉爱音必须失败，所以爱音的回复是素世怎么办，第二次拉爱音必须成功，所以爱音的回复是不是说不需要我么，这两个回话顺序是没法改的。从第一次失败到第二次成功，最主要的变化，就是灯得知了素世也在迷茫。
+
+而且灯说了需要爱音，并没有完全打消爱音的顾虑，是要到我和你和素世都迷子了，才最终打动的爱音。
+
