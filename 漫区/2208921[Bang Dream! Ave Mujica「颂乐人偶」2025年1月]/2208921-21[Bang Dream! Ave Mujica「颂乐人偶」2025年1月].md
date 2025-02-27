@@ -5020,3 +5020,27 @@ CCC的问题和鸡团拆团理由的割裂感一样，存在一点创作者视�
 
 早说了黄毛爱音
 
+
+*****
+
+####  cxj649  
+##### 30052#       发表于 2025-2-27 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529777&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 13:26</a>
+
+说实话，滑坡真没意思
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">等天朝观众对C团的“劣等感”消失再说呗
+
+*****
+
+####  南宮凝香  
+##### 30053#       发表于 2025-2-27 14:33
+
+我覺得是制作組的感情跟普通人類不同
+
+這八話的抽大祥陀螺， 普通觀眾有多少能共感？
+
+好想成為人類是制作組從心發出的呼喚
+
