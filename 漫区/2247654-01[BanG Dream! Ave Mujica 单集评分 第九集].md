@@ -2517,3 +2517,40 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 官方MAD
 
+
+*****
+
+####  OvertheSky  
+##### 278#       发表于 2025-2-28 01:00
+
+-1，不投-2的原因是我是结晶
+
+*****
+
+####  bolitao  
+##### 279#       发表于 2025-2-28 01:01
+
+笑得停不下来，但是 -2
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Gandalf  
+##### 280#       发表于 2025-2-28 01:01
+
+去年没开播的时候还以为是下一个蝈蝈，这下还不如蝈蝈
+
+确实过瘾，+2
+
+
+*****
+
+####  一心而用  
+##### 281#       发表于 2025-2-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537065&amp;ptid=2247654" target="_blank">风畔鹤 发表于 2025-2-28 00:37</a>
+-2呕</blockquote>
+没想到开播前预告图是在这里回收吧。
+<img src="https://p.sda1.dev/22/d8f63ae0588f7b10dd6161d9507a031e/image.jpg" referrerpolicy="no-referrer">
+

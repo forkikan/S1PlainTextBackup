@@ -12941,3 +12941,245 @@ ptt已经差评居多了<img src="https://static.saraba1st.com/image/smiley/face
 如果初华是小姨，自己的父亲没有人情，自己的姐姐早逝，而自己的母亲可能也 ...</blockquote>
 先不谈这个小姨设定是不是纯sb，就算考虑这个设定初华这幅表现也是相当过火的，恐怕得去以前的韩剧里面找（be like经典的一时上头推了孕妇导致流产），而且初华这个角色完全就是同人女最爱写的，你看不出来也没什么
 
+
+*****
+
+####  北条早苗  
+##### 30808#       发表于 2025-2-28 00:57
+
+初华：丰川祥子有罪
+初华：丰川祥子的罪令人死亡（指小睦）
+
+*****
+
+####  yaneis  
+##### 30809#       发表于 2025-2-28 00:57
+
+书记官对鸡还是太爱了（
+
+*****
+
+####  cxj649  
+##### 30810#       发表于 2025-2-28 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537228&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-2-28 00:51</a>
+
+第3到4集时祥子还因为不把木头送医院治双重人格被车，令人感慨（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了没用，大莫老师是个非暴力有正常交际人格
+
+*****
+
+####  天空塔书记官  
+##### 30811#       发表于 2025-2-28 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537246&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 00:53</a>
+还是没理解星象馆那段戏的前提。
+
+莫扛着吉他在地铁上也看着视频练琴-疲惫睡着切换人格-睦去灯家。</blockquote>
+是去找灯谈重组CCC的事，可以看作是某种由潜意识主导的梦游，因为睦现在的人格并不稳定，随时都有可能切换<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  太太  
+##### 30812#       发表于 2025-2-28 00:57
+
+祥子就算变回白祥了对待初华的态度也还是路边一条啊，难得这集两人终于碰面了连正眼都不瞧一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 30813#       发表于 2025-2-28 00:57
+
+我第七集彻底出脑后对这动画只剩下疑惑了
+
+*****
+
+####  car123  
+##### 30814#       发表于 2025-2-28 00:58
+
+回去看mygo简直无法相信是前后紧接着的两季
+
+*****
+
+####  oneoutsider  
+##### 30815#       发表于 2025-2-28 00:58
+
+刚看完第7集，我还能说服自己用看mygo时的心境期待mujica接下来的发展，但接下来8，9两集，我发现已经不可能了，剧情已经烂完不再期待，但又做不到像许多潭友那样途中一转乐子人，不讲逻辑和观感，剧情一直爆下去就行。现在只想看看最后怎么强行包饺子吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30816#       发表于 2025-2-28 00:59
+
+白祥对初华也是一年发一条信息然后不回的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  car123  
+##### 30817#       发表于 2025-2-28 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537305&amp;ptid=2208921" target="_blank">oneoutsider 发表于 2025-2-28 00:58</a>
+
+刚看完第7集，我还能说服自己用看mygo时的心境期待mujica接下来的发展，但接下来8，9两集，我发现已经不可 ...</blockquote>
+就算当乐子也很难受，看完这集回去看了看mygo第12集，再回来看mujica感觉就像看兽娘第二季一样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30818#       发表于 2025-2-28 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537265&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:55</a>
+先不谈这个小姨设定是不是纯sb，就算考虑这个设定初华这幅表现也是相当过火的，恐怕得去以前的韩剧里面找 ...</blockquote>
+但那只是想了想，这和幻想自己暴揍老板或者老师其实也没什么不同不是，而且初华意识到了自己的不对，这不就说明她实际上做不到那样狠毒的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  狼影者瑞德克斯  
+##### 30819#       发表于 2025-2-28 01:02
+
+如果这集还是环大陆好评，我就不得不怀疑我们看到的是不是大陆特供版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 30820#       发表于 2025-2-28 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537265&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:55</a>
+
+先不谈这个小姨设定是不是纯sb，就算考虑这个设定初华这幅表现也是相当过火的，恐怕得去以前的韩剧里面找 ...</blockquote>
+要是初华把睦推下去摔死了睦人格只剩个莫。。。
+
+我觉得这剧情就更神必了
+
+
+*****
+
+####  草化木  
+##### 30821#       发表于 2025-2-28 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537246&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 00:53</a>
+
+还是没理解星象馆那段戏的前提。
+
+莫扛着吉他在地铁上也看着视频练琴-疲惫睡着切换人格-睦去灯家。</blockquote>
+墨应该是从海铃家坐地铁回去，因为练琴+不停看视频模仿（+走了15分钟的路）太累睡着了。
+
+至于为什么切人格切得和喝水一样自然，可以强行解释为睦头人的回光返照，临死前的挣扎罢了（
+
+*****
+
+####  梅杜莎  
+##### 30822#       发表于 2025-2-28 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537246&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 00:53</a>
+
+还是没理解星象馆那段戏的前提。
+
+莫扛着吉他在地铁上也看着视频练琴-疲惫睡着切换人格-睦去灯家。</blockquote>
+上个场景她在海玲家吧，她可能是过去给海玲展示一下练习模仿成果，然后回家途中睡着了
+
+*****
+
+####  ArcadiaMartyr  
+##### 30823#       发表于 2025-2-28 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537314&amp;ptid=2208921" target="_blank">car123 发表于 2025-2-28 01:00</a>
+就算当乐子也很难受，看完这集回去看了看mygo第12集，再回来看mujica感觉就像看兽娘第二季一样 ...</blockquote>
+你回去看mygo就是你的不对了
+把乐子变成苦涩味
+乐就要失心疯，这季度所有人都不是人了，你还去看她们还是人的时候的影像，当然心里不是滋味了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 30824#       发表于 2025-2-28 01:03
+
+哪怕是白祥也就觉得初华就是个小时候见过几次面的人，平时也没什么交流的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30825#       发表于 2025-2-28 01:03
+
+<blockquote>天空塔书记官 发表于 2025-2-28 01:00
+但那只是想了想，这和幻想自己暴揍老板或者老师其实也没什么不同不是，而且初华意识到了自己的不对，这不 ...</blockquote>
+我不是在和你讨论剧中角色到底是什么样，因为对我来说完全不可信的角色没有任何让我进入剧中世界去分析的价值，我是在说制作组把假想镜头拍出来虚晃一枪是很过火的，这不是常人能用的手法，要么是同人脑发作要么是为了烂炒
+
+*****
+
+####  6030sylar  
+##### 30826#       发表于 2025-2-28 01:04
+
+<img src="https://p.sda1.dev/22/b704b0c94c07f8dd3c29524ac810ebbc/image.jpg" referrerpolicy="no-referrer">这是之前的杂志图吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ArcadiaMartyr  
+##### 30827#       发表于 2025-2-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537348&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-28 01:03</a>
+哪怕是白祥也就觉得初华就是个小时候见过几次面的人，平时也没什么交流的 ...</blockquote>
+那她非要给初华打电话 让她忘记这一切？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 30828#       发表于 2025-2-28 01:04
+
+人物塑造全是漏洞不少见，少见的是对待人物的态度，mygo主视角爱音，鸡里被反复无视，强化团内路边一条的印象，更恐怖的是他们还是故意的。灵魂人物祥子，强度是没有的，优点全是设定里的，缺点是要放在聚光灯下的，一路抄底。半身木头，过于抽象了没法总结。前期恶役喵梦，全是对的。第一次见过角色定位如此奇怪的动画
+
+*****
+
+####  影伴光生  
+##### 30829#       发表于 2025-2-28 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537246&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 00:53</a>
+还是没理解星象馆那段戏的前提。
+
+莫扛着吉他在地铁上也看着视频练琴-疲惫睡着切换人格-睦去灯家。</blockquote>
+莫坐电车去找猫/海，睡着之后睦切出来去找灯？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ArcadiaMartyr  
+##### 30830#       发表于 2025-2-28 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537351&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:03</a>
+我不是在和你讨论剧中角色到底是什么样，因为对我来说完全不可信的角色没有任何让我进入剧中世界去分析的 ...</blockquote>
+是的，这种手段一般也就展现角色的病态会使用，或者是有某些特殊设定。(雏见泽综合症)
+放在初华这儿，我只觉得烂炒…除非是初华真的也有神经病…她要是雏见泽出身，那确实说得通了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  最近卡池有毒吧  
+##### 30831#       发表于 2025-2-28 01:05
+
+莫提斯真可爱啊...
+
+*****
+
+####  wsuFish  
+##### 30832#       发表于 2025-2-28 01:06
+
+<blockquote>huxiaopao163 发表于 2025-2-28 00:08
+但是睦妈也认出来幼年睦的演技了，也觉得恶心了。但不代表幼年睦没有演技，或者失去演技了啊。。。
+
+而且 ...</blockquote>
+睦妈和喵梦之前的感情是一样的，不是恶心而是害怕。是灵视高的人一窥无面之神的真面目后产生的畏惧。而睦爸和祥子这样的灵视低的人与睦相处多年什么也察觉不到
+
+mortis有了自我，为了求生拼命演睦，劝祥子组mujica。和原本没有自我，一举一动都是演技的无面睦是两种境界。从第三集开始就被后者震撼到ptsd的喵梦看到前者蹩脚的苦情戏，自然觉得恶心了
+
