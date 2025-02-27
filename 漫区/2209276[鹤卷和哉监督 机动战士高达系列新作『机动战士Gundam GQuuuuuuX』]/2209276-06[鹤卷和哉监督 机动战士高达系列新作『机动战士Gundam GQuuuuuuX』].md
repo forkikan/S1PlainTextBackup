@@ -3207,3 +3207,19 @@ HK的版本没有新的一分钟预告吗<img src="https://static.saraba1st.com/
 然后我很仔细听了也没听见考据哥说的那个什么所罗门冲击时候的拉拉的声音（ ...</blockquote>
 其实他们说的拉就是背景音中那个"拉——拉——"，和修司玛秋kirakira背景音那个是一样的。发散到拉拉是他们自己认为的，但现在又说地球搞到我也不确定了。
 
+
+*****
+
+####  YESIARE  
+##### 7671#       发表于 2025-2-27 18:05
+
+注意了，英皇2/28卖的是3月7/8/9特典场的票
+
+<img src="https://img.saraba1st.com/forum/202502/27/180500ehlfwwlswhypyhy3.png" referrerpolicy="no-referrer">
+
+<strong>1740650693265.png</strong> (82.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 18:05 上传
+

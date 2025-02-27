@@ -2768,3 +2768,16 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  blueelf  
+##### 242#         楼主| 发表于 2025-2-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67531631&amp;ptid=2246453" target="_blank">阿露酱 发表于 2025-2-27 17:11</a>
+
+好奇问一下。目前进度是找三个魔女，游戏大概还剩多少。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 S1Ne ...</blockquote>
+不卡关的话20小时左右，后篇比较线性，有些东西找不到很可能卡关
+
