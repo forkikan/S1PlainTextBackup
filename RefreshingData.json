@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 31061,
+    "totalreply": 31062,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1740695649,
+    "lastedit": 1740696009,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10629,12 +10629,12 @@
     "update": false
   },
   "2186670": {
-    "totalreply": 422,
+    "totalreply": 423,
     "title": "[《文明7》2025年发售预定]",
     "newtitle": "[《文明7》2025年2月11日发售]",
-    "lastedit": 1739854340,
+    "lastedit": 1740696128,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2210399": {
@@ -11465,15 +11465,6 @@
     "active": false,
     "update": false
   },
-  "2245277": {
-    "totalreply": 74,
-    "title": "[发个我的：西安高强度旅游（和网上攻略完全不一样）]",
-    "newtitle": "[发个我的：西安高强度旅游（和网上攻略完全不一样）]",
-    "lastedit": 1739486293,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2245381": {
     "totalreply": 128,
     "title": "[你日的大米怎么涨个没完了]",
@@ -11733,15 +11724,6 @@
     "lastedit": 1740688811,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2245687": {
-    "totalreply": 74,
-    "title": "[既然都聊了WOW，有人来聊聊EVE吗]",
-    "newtitle": "[既然都聊了WOW，有人来聊聊EVE吗]",
-    "lastedit": 1739486408,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2188167": {
@@ -14985,10 +14967,10 @@
     "update": false
   },
   "2173399": {
-    "totalreply": 453,
+    "totalreply": 454,
     "title": "[宝可梦传说Z-A，2025年发售，gf开发]",
     "newtitle": "[宝可梦传说Z-A，2025年发售，gf开发]",
-    "lastedit": 1740695409,
+    "lastedit": 1740696127,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17136,10 +17118,10 @@
     "update": false
   },
   "2247547": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[突如其来的被AI降维打击了]",
     "newtitle": "[突如其来的被AI降维打击了，2.27更新]",
-    "lastedit": 1740677650,
+    "lastedit": 1740696367,
     "category": "外野",
     "active": true,
     "update": false
@@ -17537,6 +17519,15 @@
     "newtitle": "[西游记书里是不是没有能杀死孙悟空的方法？]",
     "lastedit": 1740684372,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1536704": {
+    "totalreply": 405,
+    "title": "[19.07『平凡职业造就世界最强／ ARIFURETA／ ありふれた』专楼]",
+    "newtitle": "[19.07『平凡职业造就世界最强／ ARIFURETA／ ありふれた』专楼]",
+    "lastedit": 1740696023,
+    "category": "漫区",
     "active": true,
     "update": false
   }

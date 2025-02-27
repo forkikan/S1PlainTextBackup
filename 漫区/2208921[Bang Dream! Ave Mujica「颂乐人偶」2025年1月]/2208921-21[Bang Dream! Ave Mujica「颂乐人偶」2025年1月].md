@@ -15662,3 +15662,13 @@ mygo最后灯的结论是迷路也无所谓，人迷路是正常的，只要走�
 
 一开始我就知道那剧透很真，就等着看小姨文学了。
 
+
+*****
+
+####  海洋队手下mayo  
+##### 31062#       发表于 2025-2-28 06:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538116&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 03:08</a>
+不知道为啥，海铃这一哭，她的形象在我脑海里和隔壁偶像大师的毛毬微妙地重合了，感觉下一秒就要变成那个努 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姐姐说什么我做什么软糯小孩祥子 呀打呀打小孩大莫 呀打呀打小孩二号海铃，我们母鸡卡根本宝宝乐队 
+
