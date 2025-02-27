@@ -13416,3 +13416,245 @@ wsd也是神人了，爱音约的公式fanart正好是和破防脸初华一起�
 祥子是因为恨mygo而建立母鸡卡这点没毛病吧，mygo里不就是这么演的，不如说母鸡卡开播后我才知道原来很多人 ...</blockquote>
 这个小破乐队到底有什么值得她恨的我请问了，完全是柿畜自己脑子有病呕吐出来的一摊。
 
+
+*****
+
+####  天空塔书记官  
+##### 30857#       发表于 2025-2-28 01:19
+
+我觉得目前ave就是一直重复制造爆点和重拿轻放，还有为了延长热度期故弄玄虚制造悬念，不肯老老实实地讲故事，一切只为噱头和炒作服务，这才是最大的问题
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yaneis  
+##### 30858#       发表于 2025-2-28 01:19
+
+ 本帖最后由 yaneis 于 2025-2-28 01:21 编辑 
+
+话说回来，到现在为止表演派算不算一直在赢啊，音乐派死光了都，编剧嘴替，永远正确的大喵老师也是表演派，这真的是乐队吗（
+
+*****
+
+####  风道北来  
+##### 30859#       发表于 2025-2-28 01:19
+
+ 本帖最后由 风道北来 于 2025-2-28 01:20 编辑 
+
+大祥原本的设定应该是看似端庄大方的大小姐实则是娇惯、任性、自我中心还爱撒娇的妹系角色。踢飞队友——哎卧槽你们没了我还挺开心——啊啊啊你们这帮坏人我要干碎你们，这一套换成哇哇大叫的小鬼来演不是很通顺吗
+
+只不过打工养爹记导致二创普遍发生奇妙的偏移，使观众对她的预期完全跑偏了
+
+现在台上这个生物的设定是什么我不太好说
+
+*****
+
+####  Lyzers  
+##### 30860#       发表于 2025-2-28 01:19
+
+可惜就可惜在，狗跟鸡是系列作而且是同一帮人写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 30861#       发表于 2025-2-28 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537484&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-28 01:17</a>
+祥子破防逃避组am这剧情倒没什么问题啊，总比自己退出自己破防还要复仇好点，但是莫得加入导致这故事现在没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我本来脑补的第二季是祥子搞假面乐队磕磕绊绊，但是坎坷过后也算是有了团魂，最后亮明了身份和mygo对邦，把假面乐队这个酷的劲儿延续下去。谁成想第二季变成现在这个抽象玩意儿。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 30862#       发表于 2025-2-28 01:19
+
+看到现在还能对鸡动画抱有草蛇灰线伏脉千里的希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就这个从第三话开始一集一个设定的睦头人，不就是怎么变态怎么来吗，小猫都成编剧的嘴替了，有趣的女人，你们不觉得有趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30863#       发表于 2025-2-28 01:19
+
+<blockquote>YF31 发表于 2025-2-28 01:17
+这个小破乐队到底有什么值得她恨的我请问了，完全是柿畜自己脑子有病呕吐出来的一摊。 ...</blockquote>
+大概就和美竹兰看前队友开live破防差不多心理吧，我过这么惨你们没了我却还挺好
+
+*****
+
+####  MuramasaSP  
+##### 30864#       发表于 2025-2-28 01:20
+
+我一直都觉得祥子是破防后为了逃避组的mujica。
+
+但是和“恨”这个词差距还是很大的。怎么就恨上了？
+
+*****
+
+####  影伴光生  
+##### 30865#       发表于 2025-2-28 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537505&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-2-28 01:19</a>
+大祥原本的设定应该是看似端庄大方的大小姐实则是娇惯、任性、自我中心还爱撒娇的妹系角色。踢飞队友——哎 ...</blockquote>
+祥爹都已经下线三集了，真不如假药一把火烧了那样发挥点作用吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  海洋队手下mayo  
+##### 30866#       发表于 2025-2-28 01:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd可能觉得mygo解决问题还太理想化，现在这样搞很新颖很戏剧 但他们好像没想到狗血浮夸+角色全部是极端笨蛋互相冲撞的剧情 很多人小时候被老妈抢走电视的时候已经受够了
+
+*****
+
+####  modkingr  
+##### 30867#       发表于 2025-2-28 01:21
+
+真的好喜欢这集最后部分要乐奈对于墨提斯扮演若叶睦的评价，【有趣的女孩】，真是一句充满了黑色幽默的顶级CALLBACK
+
+*****
+
+####  YF31  
+##### 30868#       发表于 2025-2-28 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537514&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 01:19</a>
+
+大概就和美竹兰看前队友开live破防差不多心理吧，我过这么惨你们没了我却还挺好 ...</blockquote>
+那她不去恨酒桶中登，不去恨老登，不去恨不给工作的打工老板，就他妈看到一群人唱个歌就恨上了？神经病吗？
+
+
+*****
+
+####  阿兹尔  
+##### 30869#       发表于 2025-2-28 01:22
+
+现在还有招魂独角兽环节吗
+
+*****
+
+####  岬开斗  
+##### 30870#       发表于 2025-2-28 01:22
+
+自己退出的然后“怨恨”别人？
+最后还能“完成复仇”？
+很难说和现在这版哪个更烂。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 30871#       发表于 2025-2-28 01:23
+
+访谈的意思是初期设定里鸡是为了把狗踩脚底下才建立的乐队，但现在已经为了未来加入大家庭而妥协成大家看到的样子了，祥子也谈不上恨意了只是带有怒气，然而mygo里也不难看出原设的痕迹。
+
+*****
+
+####  ml1642879  
+##### 30872#       发表于 2025-2-28 01:23
+
+第七集是真过放弃的念头，但这集让我决定怎么都要看完<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  夜游宫  
+##### 30873#       发表于 2025-2-28 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537488&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 01:17</a>
+
+这个小破乐队到底有什么值得她恨的我请问了，完全是柿畜自己脑子有病呕吐出来的一摊。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也许只是恨那个白色的自己。
+
+*****
+
+####  阿兹尔  
+##### 30874#       发表于 2025-2-28 01:24
+
+现在已经乐完这个变态剧情了，再发酵一下明天美美去看角色厨破防
+
+*****
+
+####  huxiaopao163  
+##### 30875#       发表于 2025-2-28 01:25
+
+ 本帖最后由 huxiaopao163 于 2025-2-28 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537374&amp;ptid=2208921" target="_blank">wsuFish 发表于 2025-2-28 01:06</a>
+
+睦妈和喵梦之前的感情是一样的，不是恶心而是害怕。是灵视高的人一窥无面之神的真面目后产生的畏惧。而睦 ...</blockquote>
+这样的话反转太多次了，先反转睦是在演，还要再反转不是睦的真正演技，而是一种求饶的拙劣演技。
+
+而现场的大部分人，还在第一层，完全没有看出mortis在演
+
+此时的剧情，反转一次刚刚好，让大家发现mortis在演。
+
+多反转一次就有点怪了，大家反而会怀疑喵梦在说些什么，故事节奏也会很怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这是从场外分析啊，从场内的话。我觉得幼年睦的一切研究也充满目的性，为了应对具体场景，比如面试、讨好爸爸妈妈等等。
+
+和mortis这次的表演没有本质区别。而且我觉得mortis演得挺好。
+
+*****
+
+####  影伴光生  
+##### 30876#       发表于 2025-2-28 01:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在初华幻想推睦下去的画面里并没有吉他，但是现实中的睦/莫是一直抱着吉他的，这里是作画失误还是另有所指
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  草化木  
+##### 30877#       发表于 2025-2-28 01:26
+
+全剧最大的败笔之一就是没把祥子立住，没有把她因为现实的经济压力、落魄的现状+高自尊导致的对Go团的嫉妒、为了逃离家庭环境不停push自己，这一过程完整的心路历程展现出来，一集就爆完了。
+
+搞得A团的组建就很迷，不知道为什么要去组这个乐队，“我只剩下Ave Mujica了”这句台词也完全无法让人共情。
+
+*****
+
+####  adretyu67.  
+##### 30878#       发表于 2025-2-28 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537559&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-28 01:25</a>
+
+在初华幻想推睦下去的画面里并没有吉他，但是现实中的睦/莫是一直抱着吉他的，这里是作画失误还是另有所指
+
+ ...</blockquote>
+连落地的声音也没有。应该就是告诉你是脑补，不是现实发生的
+
+*****
+
+####  天空塔书记官  
+##### 30879#       发表于 2025-2-28 01:26
+
+都第九集了还在藏，wsd是真喜欢这套啊
+
+虽然能看明白这剧本想写的是啥，但这动画属实是看着有点累，真得出剪辑版吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JustW  
+##### 30880#       发表于 2025-2-28 01:27
+
+<blockquote>岬开斗 发表于 2025-2-28 01:22
+自己退出的然后“怨恨”别人？
+
+最后还能“完成复仇”？
+
+很难说和现在这版哪个更烂。</blockquote>
+现在这版也差不多吧，如今回看mygo里祥子输出soyo那集不是更幽默了，多大仇
+
