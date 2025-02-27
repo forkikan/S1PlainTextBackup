@@ -6901,3 +6901,33 @@ Soyo 又被Pua 了
 
 看完第九集滑坡的我：事已至此，先车祥吧
 
+
+*****
+
+####  swessia  
+##### 30203#       发表于 2025-2-27 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532812&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-27 19:44</a>
+我之前就感觉到这一话的差评会超越第7话，看来确实如此。</blockquote>
+舅舅下结论了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不信了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 30204#       发表于 2025-2-27 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67533114&amp;ptid=2208921" target="_blank">swessia 发表于 2025-2-27 20:19</a>
+舅舅下结论了？不得不信了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+没有没有，我不是舅舅，也没有问他这一话剧透。
+
+*****
+
+####  adretyu67.  
+##### 30205#       发表于 2025-2-27 20:21
+
+只是一个害意还好吧，不如说初华早就该重力成这样了吧
+
