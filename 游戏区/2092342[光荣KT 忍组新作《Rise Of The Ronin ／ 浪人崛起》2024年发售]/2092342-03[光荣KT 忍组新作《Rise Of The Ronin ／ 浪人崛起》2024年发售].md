@@ -96,3 +96,11 @@
 最近也在犹豫要不要入这个，看怪猎难度那么低，估计也就玩一个周末。这游戏二周目好玩么，卧龙也还没玩，是 ...</blockquote>
 求痛快还是卧龙吧，浪人本体还是罐头，满屏问号那种的，不过浪人更简单（默认难度）
 
+
+*****
+
+####  duraa  
+##### 3389#       发表于 2025-2-27 15:44
+
+就护眼而论，不推荐任何人玩卧龙<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
