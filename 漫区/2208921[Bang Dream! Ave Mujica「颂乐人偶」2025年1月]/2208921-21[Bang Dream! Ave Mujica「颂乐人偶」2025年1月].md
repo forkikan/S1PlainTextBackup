@@ -15393,3 +15393,61 @@ yysy，那段木头是真的瘫了不是在表演吧</blockquote>
 灯皇就不可能同意组ccc，编剧都借初华口表明了灯皇写的已经是狗团的词了已经回不去了，甚至灯皇的犹豫都有 ...</blockquote>
 能不能现实一点，CCC就是底层逻辑。不要到时候结束了，mygo一点团魂都没再来破防
 
+
+*****
+
+####  阿兹尔  
+##### 31040#       发表于 2025-2-28 03:08
+
+不知道为啥，海铃这一哭，她的形象在我脑海里和隔壁偶像大师的毛毬微妙地重合了，感觉下一秒就要变成那个努努状态了
+
+
+*****
+
+####  真爱与热情  
+##### 31041#       发表于 2025-2-28 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538069&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-28 02:54</a>
+反正这一话扭转了我对第七话的看法，第七话的合奏就是为了要让祥子和睦看到重组c团的希望，之后再讲为什么 ...</blockquote>
+不同意，mygo甚至就是哭团借壳上市的那个壳。替代品就真的有必要马上掰扯明白组团的理由吗，或者是凭什么替代品马上就能取代正主。要是能靠当面对质就取代哭团在祥睦心中的地位，那还叫个鬼的替代品。
+关键是mujica成立以来，5个人从未积累过互相的感情，所以才显得重组mujica毫无理由。
+无名乐队重生成mygo可是经历了9集的拉扯来积累感情打破心之壁的，而且还有大灯老师这种活着的团魂拴住所有人。
+
+*****
+
+####  蒹葭公子  
+##### 31042#       发表于 2025-2-28 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538106&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-28 03:05</a>
+
+能不能现实一点，CCC就是底层逻辑。不要到时候结束了，mygo一点团魂都没再来破防 ...</blockquote>
+要串自己去串，我基本只是个看乐子的路人，没有楼里真情实感的粉丝这么好脾气。
+
+在我面前搞不知所谓的发言我会直球辱骂的。
+
+*****
+
+####  盐盐盐盐盐  
+##### 31043#       发表于 2025-2-28 03:10
+
+祥子自己都说保证不给mygo添麻烦，剧中人没人觉得不可以参加复数乐队呀，只不过在灯素希眼里又回头搞c团已经没那个必要了，最多也就是给睦“临终关怀”陪她过家家，要不要出于人道把这个形式弄回来的问题，我还挺喜欢立希和soyo的态度的，一个是确认祥子自己的意思不要是又为了睦如何而是祥子自己想不想搞，一个是让祥子想想到底是不是真的睦就只有再搞c团才幸福，祥子这样无条件顺从也是一种不清醒的盲目状态了
+
+
+*****
+
+####  thisisaspider  
+##### 31044#       发表于 2025-2-28 03:13
+
+所有解释手段都失效的情况下，接下来只能用精神分析看啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 31045#       发表于 2025-2-28 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538124&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-28 03:10</a>
+祥子自己都说保证不给mygo添麻烦，剧中人没人觉得不可以参加复数乐队呀，只不过在灯素希眼里又回头搞c团已 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">而且在一堆伪人中，只有soyo还关心mortis
+她是实打实的关心mortis和睦两个人
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

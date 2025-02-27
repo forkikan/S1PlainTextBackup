@@ -1654,3 +1654,11 @@ bug，用榴弹手枪打有时候会吞子弹，换手雷炸就问题
 
 社区说是bug了
 
+
+*****
+
+####  xinfengj  
+##### 5825#       发表于 2025-2-28 03:10
+
+还有7小时左右失败时突然空间站飞鹰变成了36天才能捐出来，然后全图三场保卫战瞬间狂暴，机器人虫子光能三线解放速度狂飙到一小时20%，绝地潜兵恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
