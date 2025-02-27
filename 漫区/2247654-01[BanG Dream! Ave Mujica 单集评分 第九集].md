@@ -1287,3 +1287,159 @@ boring
 
 +2，这么欢乐的剧情你们还在讨论逻辑，有多想不开，趁早放弃思考比较好。
 
+
+*****
+
+####  onion0201  
+##### 142#       发表于 2025-2-27 22:56
+
+看麻了，真看麻了
+
+*****
+
+####  Fakerの幻影  
+##### 143#       发表于 2025-2-27 22:57
+
+-2，狂热向烂片奔去
+留给母鸡卡的时间差不多了
+
+*****
+
+####  十九号大侠  
+##### 144#       发表于 2025-2-27 22:57
+
+乐奈骗我们干啥，这还能有趣啊
+
+*****
+
+####  幻想风靡_  
+##### 145#       发表于 2025-2-27 22:58
+
+最后两只猫的锐评让我笑出声了，+1
+
+*****
+
+####  沃尔斯·弗兰德  
+##### 146#       发表于 2025-2-27 22:59
+
++2 大喵小喵已经给我们这集的评论了！
+
+有趣的女孩子！<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+恶心！ <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 147#       发表于 2025-2-27 22:59
+
+感谢柿本和独角兽让我一个年轻宅宅也能体会到老宅追番吃屎的感受，+2
+
+*****
+
+####  leleq  
+##### 148#       发表于 2025-2-27 23:00
+
+夫子：你们是不是又去看女乐了？女乐那么好看？女乐能让你们涨学识？
+
+*****
+
+####  qxs  
+##### 149#       发表于 2025-2-27 23:00
+
+-2 就是最大的尊重啊 认可努力了好吧
+
+*****
+
+####  Chemgshyi  
+##### 150#       发表于 2025-2-27 23:00
+
++2，在与现实毫无呼应的幻想空间里把自己摔死，过于莫名其妙以至于无比滑稽，21世纪最精彩的荒诞喜剧！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  takitaki  
+##### 151#       发表于 2025-2-27 23:01
+
+-2，不赖。
+
+素姐，真回不去了吗？别说回不去这种话
+
+*****
+
+####  何でやねん  
+##### 152#       发表于 2025-2-27 23:01
+
+祥子你又开始了，最后大喵老师把我想说的都说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老实说我并不觉得这些人一起同时组三个乐队有什么问题欸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ArcadiaMartyr  
+##### 153#       发表于 2025-2-27 23:02
+
+太乐了，已经无语了
+-2
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  创始’’’天翔  
+##### 154#       发表于 2025-2-27 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535094&amp;ptid=2247654" target="_blank">猫执事 发表于 2025-2-27 22:46</a>
+
+要是在祥子面前来这个表情  是不是能给+2</blockquote>
+还真是，这么狂气的表情我可太爱了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dunphy  
+##### 155#       发表于 2025-2-27 23:03
+
+-2 给我干哪儿来了这是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  沼蝇  
+##### 156#       发表于 2025-2-27 23:04
+
+要不干脆混合一下，组一个大乐队
+
+*****
+
+####  Sloudy  
+##### 157#       发表于 2025-2-27 23:04
+
+这集节奏也太糟糕了，比第四第七集观感还差<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">完全看不懂在干啥，哪怕纯乐子心态也只能给-2了
+
+*****
+
+####  剪切线  
+##### 158#       发表于 2025-2-27 23:04
+
++2，非常搞笑，梅津的分镜和大森的演出保证了下限，作为搞笑片已经是神作了
+
+*****
+
+####  林云少校  
+##### 159#       发表于 2025-2-27 23:05
+
+-1
+
+乐不起来了这集，好迷
+
+*****
+
+####  斑驳的阴影  
+##### 160#       发表于 2025-2-27 23:05
+
+找回了当年追vvv的感觉，谢谢wsd<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

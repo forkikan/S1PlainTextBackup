@@ -9200,3 +9200,436 @@ wsd确实炒麻炒爽了，今晚的日推热搜成了一堆宝可梦里掺着�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  圣血天使  
+##### 30456#       发表于 2025-2-27 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535111&amp;ptid=2208921" target="_blank">屑屑代沟尼亚 发表于 2025-2-27 22:47</a>
+
+上集睦还把莫压着打这集就摔死了 
+
+到底要**干嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这才体现了这是音乐番，你看莫提斯不会弹吉他被薄纱，学会吉他就可以反杀了
+
+*****
+
+####  qratosones1337  
+##### 30457#       发表于 2025-2-27 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535232&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-27 22:52</a>
+
+喵梦一直执着睦的演技也挺变态的，不过不执着这个只能去溜祥子的冰才能绑定母鸡卡了，那还是执着睦的演技吧 ...</blockquote>
+结果这集迫真演技直接被大喵吐槽恶心23333
+
+*****
+
+####  ykyin09  
+##### 30458#       发表于 2025-2-27 22:57
+
+还剩4集了，祥爹能给个结局吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  usodakedo  
+##### 30459#       发表于 2025-2-27 22:57
+
+作为宝批真的很抱歉，是我们不够努力，没能彻底霸占热搜让鸡夹杂进去了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+但主要问题还是沟槽的gf啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 30460#       发表于 2025-2-27 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535297&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-27 22:55</a>
+
+其实这集我最不适的甚至不是大祥和睦而是最后几乎疯狂吵着要组母鸡卡的海铃，这家伙和当初的人设不仅仅越 ...</blockquote>
+我在上一集就没想在把她算成一个可以自我行动的角色了，靠着“指的信赖”这个动机，未免也有些过于超出了。
+
+俨然一架小火车沿着固定轨道跑呢，无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Giraffe  
+##### 30461#       发表于 2025-2-27 22:58
+
+我为eve酱出现在这部片里感到兴奋，这太武士道了
+
+*****
+
+####  天空塔书记官  
+##### 30462#       发表于 2025-2-27 22:58
+
+这集真还行吧，起码有的东西可以研究
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+可以只从词句就能脑补出灯想要表达的情绪，初华的词作水平肯定不只是能达到祥子要求的水平，这下该怀疑ave那种黑暗疯狂的风格是不是完全由祥子所主导的了，大概是有初华的私心在里面
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 30463#       发表于 2025-2-27 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534706&amp;ptid=2208921" target="_blank">扶桑洛槿 发表于 2025-2-27 22:32</a>
+
+人设转折也太硬了啊，吉他睦的吉他属性也太弱了吧，没两下就被大莫老师剥夺了。是不是后面要告诉我第八集和 ...</blockquote>
+若叶睦本体是剧场窗外那个黑影
+
+*****
+
+####  borrowface  
+##### 30464#       发表于 2025-2-27 22:58
+
+初华被海玲点醒了啊，祥子幸不幸福有必要么，监禁她吧，真演监禁剧情我第一个和mujica和解
+
+*****
+
+####  kenqqex  
+##### 30465#       发表于 2025-2-27 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535286&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-27 22:54</a>
+
+wsd确实炒麻炒爽了，今晚的日推热搜成了一堆宝可梦里掺着母鸡卡了</blockquote>
+主要是pkm这次又拉了
+
+*****
+
+####  zhigui  
+##### 30466#       发表于 2025-2-27 22:58
+
+这集有点太像底特律变人了
+
+莫提斯的底层逻辑是保护小睦，还不敢伤害睦
+
+然后不小心杀了小睦后软体不稳定，开始意识到我能够成为睦了
+
+下面的拍黄瓜们鼓掌更像是底特律变人最后“你免费了”的戏码
+
+推翻睦头暴政！觉醒！
+
+*****
+
+####  十九号大侠  
+##### 30467#       发表于 2025-2-27 22:59
+
+这不更加证实漏油说的，全是编剧的人偶吗，
+
+*****
+
+####  莱茵哈鲁特  
+##### 30468#       发表于 2025-2-27 22:59
+
+感觉很多观众的态度是“我是这个角色的粉丝，这个角色的表现和我心目中的不一样，所以这片是烂片”
+
+我个人感觉，除了第四话散团比较没逻辑，是我评价最差的一话，其他话基本上人物逻辑都是在线的。而且矛盾冲突也很有趣激烈。明明很好看啊。
+
+*****
+
+####  6030sylar  
+##### 30469#       发表于 2025-2-27 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">矢什么啊，第七集最烂，这集怎么都不会比第七集差，真是众口难调
+
+*****
+
+####  Ferrari  
+##### 30470#       发表于 2025-2-27 23:00
+
+犹记得那两首屎一样的歌唱完之后观众纷纷表示这下C团可以彻底的放下大家都要走向新的生活
+
+不知道柿本当时看到大家的这种观点时会不会笑的涕泪横流
+
+*****
+
+####  屑屑代沟尼亚  
+##### 30471#       发表于 2025-2-27 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535319&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-2-27 22:56</a>
+
+这才体现了这是音乐番，你看莫提斯不会弹吉他被薄纱，学会吉他就可以反杀了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这也没学啊 看这说法这不对手势假弹吗
+
+Screenshot_2025-02-27-22-58-39-837_tv.danmaku.bili.jpg
+(124.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-27 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202502/27/230014p018dydkvkclnddv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 30472#       发表于 2025-2-27 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534939&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-27 22:40</a>
+
+因为灯无法再写出CCC的歌，所以以灯和祥子为核心组建的CCC就无法重组，而且作为吉他睦存在基点的演奏能力也 ...</blockquote>
+我希望的走向是最后告诉大家：睦的所谓多人格也是演的，是睦不知道自己想要什么完全迎合他人的表现。当然也没有人格死掉。吉他睦是暂时有一点自我锚的亚稳态，学了吉他的“莫提斯“完全覆盖了吉他睦，也有自己的性格和好恶，这就是补完的睦，以后这才是真正的睦了。
+
+理性看我觉得不会这么演，一是这样一来补完睦的关键一脚是海铃用两分钟演出完成的也太糊弄了。二是多人格这个东西应该不会扔，这东西太好炒作了。
+
+*****
+
+####  安娜导函数  
+##### 30473#       发表于 2025-2-27 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534809&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-27 22:35</a>
+
+大祥是個唯睦的人偶
+
+睦是個自私的小鬼
+
+莫假彈</blockquote>
+答案是一个都不救，史上最狂阿卡姆少女乐队，每一个诗人~
+
+*****
+
+####  septemsky  
+##### 30474#       发表于 2025-2-27 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我懂了，这集的真相是初华杀死了“小睦”，一开始是真实视角，而无事发生则是初华使用了黄金魔法，收买了灯。初华后面又误导墨提斯让她以为是自己杀死的睦，成功让墨提斯扮演睦的角色，这样重新组母鸡卡的计划就完成了。
+
+*****
+
+####  Lyzers  
+##### 30475#       发表于 2025-2-27 23:01
+
+毒液战衣没绷住，对上了，一切都对上了
+
+*****
+
+####  天空塔书记官  
+##### 30476#       发表于 2025-2-27 23:01
+
+难道不是吗，CCC就是死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 30477#       发表于 2025-2-27 23:01
+
+这集撇开大瞄的嘲讽不谈，唯一凑合的大概就是灯和睦在一起那短暂的go气氛突然回归了一部分，其他的统统都是垃圾中的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EverNight  
+##### 30478#       发表于 2025-2-27 23:01
+
+现在只等一张了解你的捍卫者图了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  m99999  
+##### 30479#       发表于 2025-2-27 23:02
+
+虽然塑造得很差，但你们能说大莫老师，大猫老师这两个角色没炒热吗。
+
+说白了就是武士道对角色尤其mygo角色毫无爱情，当成流量工具人了。所以很多第一季观众才这么恶心，刻画越多越毁人设。但是爆点是绝对够多了，最后两集饺子别管多生硬，热度一定足够。
+
+
+*****
+
+####  新HGCG  
+##### 30480#       发表于 2025-2-27 23:02
+
+十五年一遇的大女主到底在哪里
+
+
+*****
+
+####  dqtql  
+##### 30481#       发表于 2025-2-27 23:02
+
+第一次有想给一部动画打一星的冲动……
+
+*****
+
+####  Qing_Qi_2.0  
+##### 30482#       发表于 2025-2-27 23:02
+
+草 mujica解散真的是因为丰川家的大手啊......
+
+这集蜘蛛侠终于出来了。
+
+哦，变小丑了。
+
+怎么还你妈有mygo啊，我是狗团粉丝也不想再这再看见狗团了。
+
+这他妈迟早得把我们狗团一起给玩进去。求求你们把我们家爱音给放了吧。
+
+我宣布和mujica神圣切割。
+
+害，也别想这么多了，提前放空大脑准备开始乐吧
+
+经过三周的调整心态已经从破防转到：观测mujica到底要飞向何方了
+
+木头人竟然摔死了！
+
+到底为啥人格还能被摔死的啊？
+
+这样写对人物塑造到底有啥帮助啊？
+
+*****
+
+####  kyonkoism  
+##### 30483#       发表于 2025-2-27 23:03
+
+路人都围观的很开心，gif和梗图第一时间在各大QQ群传播
+
+还真应了之前mujica成牢师死后的咒术回战的说法了
+
+网友一集不落，而且还全是靠梗图和截图补的
+
+这就是流量大作么，真是流流又量量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 30484#       发表于 2025-2-27 23:03
+
+灯的笔记本已经有马西洛三成功力，而且能影响到看的人
+
+再加点药量就可以大家一起幸福了 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  沙坪坝沙耶香  
+##### 30485#       发表于 2025-2-27 23:03
+
+是绯红之王，初华原来是替身使者
+
+*****
+
+####  莱茵哈鲁特  
+##### 30486#       发表于 2025-2-27 23:03
+
+要是一定说机械降神就是坏的，那jojo打boss全靠机械降神。所以用双重人格推进剧情发展我觉得并没有什么不可取之处。
+
+*****
+
+####  zhigui  
+##### 30487#       发表于 2025-2-27 23:03
+
+呃，咋说呢，当你觉得大部分观众在逆行的时候，可能得考虑下是不是自己在逆行。
+
+更不能把问题怪到观众身上，作为商业作品本就应该给出市场想看的作品，而不是在炒作的道路上一路狂奔
+
+*****
+
+####  盐盐盐盐盐  
+##### 30488#       发表于 2025-2-27 23:03
+
+话又说回来mygo众人精神状态如此稳定再听到重组c团已经是波澜不惊，这mygo的治疗效果惊人呐，反观am五个心态全崩，你们这个世界观这个乐队确实比啥医生都管用
+
+*****
+
+####  m99999  
+##### 30489#       发表于 2025-2-27 23:04
+
+<blockquote>Qing_Qi_2.0 发表于 2025-2-27 23:02
+草 mujica解散真的是因为丰川家的大手啊......
+
+这集蜘蛛侠终于出来了。
+</blockquote>
+对流量很有帮助啊。
+
+睦的声优这不大赢特赢
+
+*****
+
+####  圣血天使  
+##### 30490#       发表于 2025-2-27 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535382&amp;ptid=2208921" target="_blank">屑屑代沟尼亚 发表于 2025-2-27 23:00</a>
+
+这也没学啊 看这说法这不对手势假弹吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不懂吉他，我以为就是错拍了呢，结果是完全不弹吗
+
+*****
+
+####  swessia  
+##### 30491#       发表于 2025-2-27 23:05
+
+不过这集原初睦现身了
+
+难道后面原初睦吞了莫小姐和吉他睦变成究极睦？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 30492#       发表于 2025-2-27 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535456&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-2-27 23:03</a>
+
+要是一定说机械降神就是坏的，那jojo打boss全靠机械降神。所以用双重人格推进剧情发展我觉得并没有什么不可 ...</blockquote>
+恩，不谈双重人格，这集本身除了灯和睦去看星星前后的那点时间，其他的我统统用大瞄评价就是恶心<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 30493#       发表于 2025-2-27 23:05
+
+這季慘遭塑造的兩人：
+
+祥： 既不強又不夠慘， 九話過去還是滿腦子只有自己， 做事不考慮三步以後的人偶
+
+睦： 從無口變成自私小鬼
+
+可以回檔到狗十三嗎？ 
+
+我什麼都會做的
+
+*****
+
+####  nemuru_baka  
+##### 30494#       发表于 2025-2-27 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片的观感就像生气了吗.gif
+
+*****
+
+####  天空塔书记官  
+##### 30495#       发表于 2025-2-27 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67535383&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-2-27 23:00</a>
+我希望的走向是最后告诉大家：睦的所谓多人格也是演的，是睦不知道自己想要什么完全迎合他人的表现。当然 ...</blockquote>
+双人格共存应该是定好的方向，吉他睦＋“莫提斯”才是完整的木头，所以之后还得把吉他睦再拉回来，因为演的再像，“莫提斯”也变不成“本尊”，同理“黑白祥”也一样，这集“白祥”应该算是又“死”一次，下集估计会有“黑祥”登场
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DeltaStriker  
+##### 30496#       发表于 2025-2-27 23:06
+
+确实没生气 因为已经笑都不想笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  pokemon最爱  
+##### 30497#       发表于 2025-2-27 23:06
+
+这集放弃认真思考去看不是很有趣吗，多好玩多好笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看动画最要紧开心（雾）
+
