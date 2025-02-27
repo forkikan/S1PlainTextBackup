@@ -12767,3 +12767,177 @@ winwing事务所就是tgw的产业啊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  kivz  
+##### 30791#       发表于 2025-2-28 00:46
+
+这b动画要是能直球来句wsd傻逼那还能笑笑，现在还是死了吧，对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 30792#       发表于 2025-2-28 00:47
+
+第八集
+
+大墨老师：我不要死，你还需要我
+
+吉他睦：不需要的是你
+
+大墨老师：（鬼叫）
+
+（但偷偷把大墨老师放出来了）
+
+第九集
+
+大墨老师：我不要死，你还需要我
+
+吉他睦：啊我死了
+
+大墨老师：你怎么死了
+
+感觉同一句台词反复说几遍结果就能不一样
+
+*****
+
+####  海洋队手下mayo  
+##### 30793#       发表于 2025-2-28 00:47
+
+ 本帖最后由 海洋队手下mayo 于 2025-2-28 00:48 编辑 
+
+按这种一个比一个极端的塑造，如果要合理理解的话那必定是远超常人的超级强欲/女人*5 （不论是什么欲）
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 会拐到性欲那也可以谅解的吧，不也是欲
+
+*****
+
+####  zzs2338645  
+##### 30794#       发表于 2025-2-28 00:47
+
+大祥做没做不谈，海铃才是那个教唆杀人的，而大莫是事实杀人犯啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 30795#       发表于 2025-2-28 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536897&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:26</a>
+
+说白了再不给海铃这个配角安排一个建团动机，剩下想复活母鸡卡的就剩下一个不想死的Mortis和想上祥子的初华 ...</blockquote>
+但问题是造成这种局面的就是系构自己
+
+*****
+
+####  厄神之息  
+##### 30796#       发表于 2025-2-28 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67536895&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-2-28 00:26</a>
+
+懒得仔细看了，来问问漏油，为啥睦就铁了心要ccc回来？她是个这么强欲的人吗，还是单纯的人设崩坏 ...</blockquote>
+和小祥完全的双向误解，她觉得“小祥在ccc好幸福，为了小祥的幸福，我要重组ccc！”小祥觉得“木子米一定要重组ccc，ccc对木子米很重要，为了木子米我要重组ccc”
+
+只是问题是，他他妈上集不是这么演的啊！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 30797#       发表于 2025-2-28 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537122&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 00:42</a>
+初华这表现你觉得用同病相连能解释通吗</blockquote>
+“我只有祥子了”这句话够吗
+
+如果初华是小姨，自己的父亲没有人情，自己的姐姐早逝，而自己的母亲可能也已经早逝，现在身边只有侄女一个亲人，怎么可能没有执念，在加上一起度过的童年时光和可能存在的双子里设定，无论是失忆重构人格还是继承另一个的意志，祥子都是还能把初华锚定在现实的唯一锚点，不要小瞧人类对亲情的渴望啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lzhjr  
+##### 30798#       发表于 2025-2-28 00:49
+
+这话仿佛唯一人物动机符合预期的就是祥子被人问“你自己想不想组C团”时她也只是满怀憋屈还是咽下去回答一句“是的”<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yaneis  
+##### 30799#       发表于 2025-2-28 00:51
+
+第3到4集时祥子还因为不把木头送医院治双重人格被车，令人感慨（
+
+*****
+
+####  JustW  
+##### 30800#       发表于 2025-2-28 00:52
+
+睦误解也不能全怪睦，毕竟我本想找补祥子在C团幸福在M团痛苦和乐队没关系是因为家中变故，但仔细一想，睦眼里祥子不知怎么的前两集开始又回退白祥版本了，那看来果然还是C团的原因吧！
+
+
+*****
+
+####  厉飞雨  
+##### 30801#       发表于 2025-2-28 00:52
+
+wsd大概觉得已读不回是个很好玩的梗，玩了不知多少次了
+
+*****
+
+####  qlipho  
+##### 30802#       发表于 2025-2-28 00:53
+
+箱子已经不想玩乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 只能打电波女版本，重女版本牡蛎
+
+*****
+
+####  adretyu67.  
+##### 30803#       发表于 2025-2-28 00:53
+
+还是没理解星象馆那段戏的前提。
+
+莫扛着吉他在地铁上也看着视频练琴-疲惫睡着切换人格-睦去灯家。
+
+奇怪了，她练吉他在家就行，有必要出门吗。
+
+*****
+
+####  6030sylar  
+##### 30804#       发表于 2025-2-28 00:53
+
+<img src="https://p.sda1.dev/22/5aa620988c5c6d2bb42b5dd00474c2c3/image.jpg" referrerpolicy="no-referrer">立希这红着脸问，是不是以为乌咪铃对睦头了什么r18的事
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 30805#       发表于 2025-2-28 00:54
+
+重组CCC是抛弃自我为睦而活，重组ave是自己的“野心”为自己的而活，现在祥子就是处于这样两难的境地，但实际上是可以全都要的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  零壹贰叁  
+##### 30806#       发表于 2025-2-28 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537159&amp;ptid=2208921" target="_blank">rushsong 发表于 2025-2-28 00:45</a>
+油土鳖和ptt还有巴哈姆特都是好评为主
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+ptt已经差评居多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 30807#       发表于 2025-2-28 00:55
+
+<blockquote>天空塔书记官 发表于 2025-2-28 00:49
+“我只有祥子了”这句话够吗
+
+如果初华是小姨，自己的父亲没有人情，自己的姐姐早逝，而自己的母亲可能也 ...</blockquote>
+先不谈这个小姨设定是不是纯sb，就算考虑这个设定初华这幅表现也是相当过火的，恐怕得去以前的韩剧里面找（be like经典的一时上头推了孕妇导致流产），而且初华这个角色完全就是同人女最爱写的，你看不出来也没什么
+
