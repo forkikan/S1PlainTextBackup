@@ -4849,3 +4849,31 @@ mggm只能给你整活卖蛋白棒，钱是没有的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Lawliet.L  
+##### 30037#       发表于 2025-2-27 12:15
+
+加钱没门儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 30038#       发表于 2025-2-27 12:17
+
+这里，咋哇撸多也没有live，不照样上到mygo里了，geogette me就放进去呗，还有其他的歌也行，一共就两首来回放，除了基本画面都挺穷的
+
+
+*****
+
+####  号为熊  
+##### 30039#       发表于 2025-2-27 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67523632&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-26 16:35</a>
+
+13集脚本这属于是每一集的具体细节了吧，故事大纲、核心设定这些应该要更早一些吧 ...</blockquote>
+柿本绫奈的访谈给我的感觉是大概率没有
+
+不过柿本好像也说过MyGO剧本推进过程中出现了需要修改Mujica大纲的情况吧
+
