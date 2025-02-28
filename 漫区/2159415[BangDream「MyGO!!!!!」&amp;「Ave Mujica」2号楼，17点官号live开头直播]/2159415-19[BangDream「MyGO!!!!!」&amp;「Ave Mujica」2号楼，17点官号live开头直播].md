@@ -4784,3 +4784,13 @@ ars和otae也可以
 
 [[CHS]BanG Dream! It's MyGO!!!!! 雨中祈晴   第3話](https://comic-growl.com/episode/2550912964996119373)
 
+
+*****
+
+####  6030sylar  
+##### 27006#       发表于 2025-2-28 15:17
+
+v那几首终于买回来了<img src="https://p.sda1.dev/22/f772984d15f09554353f7153118a672f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
