@@ -1283,3 +1283,17 @@ https://github.com/deepseek-ai/3FS
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  V5Style  
+##### 111#       发表于 2025-2-28 10:08
+
+这已经不是Open AI还是Closed AI的区别了，已经完全是降维打击了。
+
+DeepSeek：让我这个做量化的告诉你们应该如何研究AI<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+预测以后AI研究的重点将不再单独局限于LLM，而是扩展到任何可以促进AI技术发展的领域，包括但不仅限于各种系统。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
