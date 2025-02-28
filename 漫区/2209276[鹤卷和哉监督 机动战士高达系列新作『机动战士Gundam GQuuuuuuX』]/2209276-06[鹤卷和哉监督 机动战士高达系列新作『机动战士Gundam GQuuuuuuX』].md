@@ -4127,3 +4127,30 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
 
 这么说来，痞子反而是这部片子里最高达的部分了。
 
+
+*****
+
+####  Oshino  
+##### 7727#       发表于 2025-2-28 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546348&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-2-28 23:03</a>
+
+可是为什么一定要宅社高达是高达呢。
+
+既然都给鹤卷做了，那当然是鹤卷呀。</blockquote>
+因为它挂了高达的名字啊，还能让人不把它当高达看吗？反正这高达也是插卡带上机的，换个名字变成原创萝卜片合理性upup了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 7728#       发表于 2025-2-28 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546372&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 23:09</a>
+
+因为它挂了高达的名字啊，还能让人不把它当高达看吗？反正这高达也是插卡带上机的，换个名字变成原创萝卜 ...</blockquote>
+那其实……挂了高达名字而不怎么高达的高达也挺多的吧。
+
+何况这么个怪名字上来就是告诉你随意一点，我是这么觉得的。
+
+既然插入时机和传达的感情都是到位的，高达不高达可以放松一点。
+

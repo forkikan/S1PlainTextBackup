@@ -8076,3 +8076,25 @@ Anon 比Raina 五十音在前面
 
 但问题是从剧里吉他睦莫名其妙自掐着和吉他在摆在地上这一幕要看这一点出来，emmm感觉像是在做语文阅读理解题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 31797#       发表于 2025-2-28 23:15
+
+之前看某些日本作品讲什么“伪善”，“自我满足”，“感动自己”总感觉是在无病呻吟，水平不够还硬要讲大道理。
+
+结果反而是没有什么深度的mujica里的祥，睦才真的让我感觉到：原来这就是自我满足，无谓的牺牲，把重组一个回不去的乐队当作是自己单方面的奉献，已经超越了简单的“没苦硬吃”
+
+*****
+
+####  灼眼的夏娜酱  
+##### 31798#       发表于 2025-2-28 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545562&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-28 20:51</a>
+
+好消息说一个，可能没有小姨文学了
+
+坏消息，也许私生子是冯川清告搞的，又变成姐妹不伦文学了 ...</blockquote>
+真的假的？初祥姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
