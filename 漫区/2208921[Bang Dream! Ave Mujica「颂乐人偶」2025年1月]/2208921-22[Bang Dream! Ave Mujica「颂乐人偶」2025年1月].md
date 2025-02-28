@@ -548,3 +548,206 @@ a团对这版本‘有睦就行’的负罪祥完全没意义<img src="https://s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  武男  
+##### 31126#       发表于 2025-2-28 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539250&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 09:33</a>
+
+海子是我都跟三十個**斷了
+
+你怎麼還不跟我復合呀！</blockquote>
+辞工建A团，舍我更负其谁？
+
+初华同协力，何愁A团不昌?
+
+九伐mago，以断立希久念。
+
+Ave Mujica遗志，已成泡影
+
+担贝斯重担，当兴复A团，还于live
+
+*****
+
+####  ads147147  
+##### 31127#       发表于 2025-2-28 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539250&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 09:33</a>
+海子是我都跟三十個**斷了
+
+你怎麼還不跟我復合呀！</blockquote>
+对于海玲来说这相当于把自己经济来源断掉了，如果母鸡卡不能复活，这个月还能不能付得起房租还是个问题。
+
+（不过先把自己暴力消费的东西先挂雅虎拍卖低价卖了应该还能撑住。）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 31128#       发表于 2025-2-28 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539250&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 09:33</a>
+海子是我都跟三十個**斷了
+
+你怎麼還不跟我復合呀！</blockquote>
+这逻辑对女性来说还挺实际的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 31129#       发表于 2025-2-28 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539229&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 09:31</a>
+灯的歌词一次就能传达到祥子的内心，初华的歌词这辈子能打动祥子吗</blockquote>
+一个有些黑暗的猜想，基于编织谎言和结网蜘蛛的设定，A团的歌词就是初华结的网，通过文字暗示的方式pua祥子，削弱她的精神，让她更容易被自己掌控，最终把祥子留在自己的身边，但显然她玩砸了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 31130#       发表于 2025-2-28 09:37
+
+有一说一，海玲没和mygo说我要退出mygo，所以其实也没真的全断了。
+
+再者最后一集肯定要对邦了，说不定还要和解大合唱呢。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 31131#       发表于 2025-2-28 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">这么多已读不回 不会就是鸡单集脚本之间的真实状态吧
+
+*****
+
+####  jaewoongh_  
+##### 31132#       发表于 2025-2-28 09:39
+
+楼友说得对，目前在母鸡卡的身上看不到哪怕一点的乐队关系性
+
+*****
+
+####  aptx8285144  
+##### 31133#       发表于 2025-2-28 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67529046&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-27 12:04</a>
+
+还是拿蜇举例子，蜇一部下来五首歌三个live，有三个特殊ed，全员服装都换了几遍。你鸡不是史上最狂少女乐队 ...</blockquote>
+母鸡卡确实快要不如蛰了，除了ED以外鸡团的音乐我完全没有听的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 31134#       发表于 2025-2-28 09:39
+
+这一集的最后一幕争吵戏真的非常喜欢，看的我大脑在颤抖，太愉悦了
+
+
+*****
+
+####  钦念以忱  
+##### 31135#       发表于 2025-2-28 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537604&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-2-28 01:31</a>
+
+问题是为什么要做这种演出。是寻求刺激吗？很难看到这种不符合系列定位的画面吧 ...</blockquote>
+我觉得毫无意义啊，之前的吉他睦上号去见灯，我也觉得没啥用，看起来就是为了之后的这出脑内杀人戏铺垫用的。
+
+*****
+
+####  一心而用  
+##### 31136#       发表于 2025-2-28 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539250&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 09:33</a>
+
+海子是我都跟三十個**斷了
+
+你怎麼還不跟我復合呀！</blockquote>
+<img src="https://p.sda1.dev/22/125577ef51b83826937be5eb16ce2789/QQ图片20250228085958.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31137#       发表于 2025-2-28 09:41
+
+海铃没啥好担心的吧。先断了表示忠诚。
+
+万一没组成也就是继续打工找下家继续当流浪武士。
+
+这话她找大猫时候撞上了layer。layer虽然是ras主唱+贝斯，但是她还有其他乐队兼职来着
+
+*****
+
+####  阿兹尔  
+##### 31138#       发表于 2025-2-28 09:41
+
+这次总该没有环大陆好评了吧
+
+*****
+
+####  plusSharp  
+##### 31139#       发表于 2025-2-28 09:43
+
+重新想了一下，也许莫不是在睦掉下去之后突然不会演了才被喵梦看出来，而是要在祥子面前硬装睦确实难度太高了，毕竟她之前都跟祥子自爆过了，很难装作什么都没发生过，并且她自己讨厌祥子，睦又突然下线，能主动去见祥子已经很强了
+
+*****
+
+####  zhoujin8584  
+##### 31140#       发表于 2025-2-28 09:43
+
+<blockquote>阿兹尔 发表于 2025-2-28 08:30
+如果睦脑内斗争是吉他睦赢了，一直缠着要重组c团，那祥子还会蹦出什么话术来折磨go团的大伙(ps:睦这两集的 ...</blockquote>
+所以有剧透的情况下其实能接受暂时罚下场，她为了消除自己的“痛苦”人格，而选择让祥子来承接这份外化的痛苦，是很自私的行为。mygo祥哪怕是生春日影的气也会对素世说“那个乐队怎么办？”哪怕是为祥子考虑也不会为难她去重组ccc，这不符合朴素道德。何况mygo睦本就是促成mygo正式成团的人。
+
+*****
+
+####  syndrome2032  
+##### 31141#       发表于 2025-2-28 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539317&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 09:39</a>
+母鸡卡确实快要不如蛰了，除了ED以外鸡团的音乐我完全没有听的欲望</blockquote>
+什么，鸡团有音乐吗。
+
+9话上来莫倒带练我差点没笑出来，以为op出问题了
+
+*****
+
+####  一心而用  
+##### 31142#       发表于 2025-2-28 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539344&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 09:41</a>
+
+这次总该没有环大陆好评了吧</blockquote>
+好像5ch破防了，听说的，没去看。
+
+*****
+
+####  真爱与热情  
+##### 31143#       发表于 2025-2-28 09:45
+
+合唱可海星，有哪首歌是能同时代表mygo跟mujica的吗
+
+*****
+
+####  syndrome2032  
+##### 31144#       发表于 2025-2-28 09:45
+
+春 日 影<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 31145#       发表于 2025-2-28 09:45
+
+那只能是春日影吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
