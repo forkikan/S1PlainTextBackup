@@ -1234,3 +1234,150 @@ Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号</blockquote>
 最初的创作还有更尖锐的故事……这是嫌现在还不够尖锐吗</blockquote>
 现在的问题不是尖锐而是儿戏吧。
 
+
+*****
+
+####  usodakedo  
+##### 31190#       发表于 2025-2-28 10:46
+
+但靠着精神病女同制造出的矛盾，与其说让人感到尖锐，不如说“寒蝉卒”更适合作为形容词
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  GBLMikuHatsune  
+##### 31191#       发表于 2025-2-28 10:46
+
+这鸡到现在为止的剧本，不就是那种十岁出头、没有文学素养和笔力的中二小女生写的自嗨玛丽苏文么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+各种加什么多重人格、互为半身这种设定，但是写出来又是一坨屎。笔下角色充满了无意义的自我感动，作者自我感觉良好越写越停不住然后还觉得是好活。
+
+藏些什么所谓的“惊天大逆转”、搞些没意义的剧本编排（回旋镖、对偶之类），这味儿太熟悉啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 31192#       发表于 2025-2-28 10:46
+
+<img src="https://p.sda1.dev/22/06ff8babb8bf1f856001336aa6ffd1ab/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  盗号找不回  
+##### 31193#       发表于 2025-2-28 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539831&amp;ptid=2208921" target="_blank">甲鱼 发表于 2025-2-28 10:35</a>
+
+原来是WSD的大手
+
+Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可去tmd吧，3年整了26集，后一半到现在干的稀碎，承认自己能力不行就这么难吗
+
+*****
+
+####  ads147147  
+##### 31194#       发表于 2025-2-28 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539933&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 10:43</a>
+最初的创作还有更尖锐的故事……这是嫌现在还不够尖锐吗</blockquote>
+看采访来看，祥子最后还能回大宅，不好说是让祥子变得更讨厌还是角色不要再崩下去的设计了，看十本的想法可能是后者，但是大家觉得应该是前者。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 31195#       发表于 2025-2-28 10:48
+
+给祥子身上加这么多神必设定，还不如一个爱好虚荣伦敦逃兵的粉色奶龙写的好
+
+*****
+
+####  ads147147  
+##### 31196#       发表于 2025-2-28 10:48
+
+还是十本太菜。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  airline114514  
+##### 31197#       发表于 2025-2-28 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539978&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-28 10:46</a>
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+种命还在上分
+
+*****
+
+####  天空塔书记官  
+##### 31198#       发表于 2025-2-28 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539851&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 10:37</a>
+恐怖故事，mygo200关注，阿侬东京600多还是多少，反正比mygo多，初华5w粉，这3个都是推特账号。
+
+大喵的 ...</blockquote>
+初华这个大概只是自己的个人账号，而不是组合的公式号，或者公关用账号，估计sumimi的粉丝都在组合的公式号上，真奈说过自己也开始接其他的工作，说明她的个人用账号也会发布自己的其他个人的活动信息或者日常营业内容，所以粉丝应该不少，而初华，除了ave就没有其他的额外工作，因为“保密”的需要还不能摆明自己的身份，所以吃不到ave的流量，解密后，风头还被睦抢走，在紧接着就是炸团，没人关注是正常情况，这个私人账号只是建了然后放在那里，除了个人的死忠粉没有人会在意一个不怎么活动的“死账号”<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 31199#       发表于 2025-2-28 10:51
+
+虽然但是，今天是反田叶月24岁生日。
+
+@纯田まな 
+<img src="https://p.sda1.dev/22/a7a635b09ef8ddab7303262c56f6e667/4508e79bgy1hyzl3xsjvoj20u011itae.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c08efa018e91144a487b16bfe217ddb8/4508e79bgy1hyzl3y2ss1j20u011i75s.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ml1642879  
+##### 31200#       发表于 2025-2-28 10:53
+
+我看完访谈只感觉柿本广大尽力了，原案CBA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 31201#       发表于 2025-2-28 10:55
+
+<img src="https://p.sda1.dev/22/f67e9c7997eda28702d62a7f310adc6a/4508e79bgy1hyzguoi5suj23402c0tse.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3e502ab1324938f7a87ea615a2b3395a/4508e79bly8hz02q9ff4jj21kw16otme.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0f57168378139d3bb089e66a4ae20e24/4508e79bgy1hz03jq1cjkj21400u07bn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bdf8f1a6c4f199352a2288ebc717dcad/4508e79bgy1hyzmdp518mj20wq17mtib.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f718e9eaaff9f4f4ff95174024c5eff4/4508e79bgy1hyzl4zb1rmj20w21kwn62.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0e318b9db331404eb8203012129ac8e4/4508e79bgy1hyzl4yp4j8j23402c07wi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f0207a4cf6bb6759672ec7cc340c83f5/4508e79bgy1hyzl4xf2prj217m0wqgwl.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/84d77c70e37d03254f69a5558c932253/4508e79bgy1hyzmej738ej213z0u0akb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31202#       发表于 2025-2-28 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539704&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 10:22</a>
+
+你都把音乐节和商业乐队上武道馆比了，我能说什么。
+
+再说了你都去现场了，谁在巡演前夜第一个退团把团炸 ...</blockquote>
+你要是说社会化生产，那第四集代入到职场，就是某重大业务的需要走审批流程A，要么通过要么否决之后重新走流程B。结果我们的神人领导大祥突然发疯，对于A和B都不满意但自己也拿不出一个可行的解决方案，死活拖着不批一直把项目拖黄。这种情况下下面的员工一怒之下离职有什么难以理解的么？按正常公司流程上面要追责必然只能追责到领导，下面员工无论如何都不可能背锅。
+
+别忘了在炸团之前演出已经确定要砸锅了，而砸锅的核心原因是大祥那句“我要睦回来”。当然你也可以说吉他睦会崩坏是因为键帽摘面具，但问题是按照大祥自己的承诺，面具本来也要摘，以现在的情报来看大祥这边给吉他睦的善后那必然是没有的（甚至连善后的意识都没有），那不是早晚都得炸？
+
+*****
+
+####  厚乳果珍爽  
+##### 31203#       发表于 2025-2-28 10:56
+
+[https://b23.tv/y6KRKsy](https://b23.tv/y6KRKsy) 访谈的翻译有了
+

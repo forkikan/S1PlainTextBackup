@@ -1305,3 +1305,28 @@ DeepSeek：让我这个做量化的告诉你们应该如何研究AI<img src="htt
 
 完结散花，可以预见，后面DS会自研算计芯片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 113#       发表于 2025-2-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528148&amp;ptid=2246987" target="_blank">overflowal 发表于 2025-2-27 10:29</a>
+
+今天开源的新东西，用来把通信和计算重叠的算法，梁文峰是主要开发者，chad能量太强了 ...</blockquote>
+这个是梁文锋本行啊。
+
+*****
+
+####  overflowal  
+##### 114#       发表于 2025-2-28 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539221&amp;ptid=2246987" target="_blank">Azcarlo 发表于 2025-2-28 09:31</a>
+
+最后一天是文件系统
+
+https://github.com/deepseek-ai/3FS
+
+太哈人了，为了训练大模型写了个文件系统？？？</blockquote>
+这个是幻方时就有的，不过确实是为了训练模型做的。原来市面上有的方案不适合大模型训练的场景。
+
