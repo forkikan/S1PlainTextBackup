@@ -7228,3 +7228,43 @@ soyo不够堕落，还有自主行动能力，没有被祥子判定为需要照�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  与太郎  
+##### 31722#       发表于 2025-2-28 19:06
+
+这一集其实符合柿本一开始的口径，那就是完全的「作り物」
+
+mortis是假扮睦的不说了，和睦的演技相比，喵梦的演技又是假的
+
+海铃教mortis假弹
+
+祥子一味逃避，说着为睦好，连mortis假装睦都认不出来
+
+初华想象中的和祥子的羁绊都是假的，是祥子的借口
+
+不论是从mujica的口号来说还是从剧情对偶的层面来说，下一话都应该是逆转这些假的东西，「建前だけで構築される人間関係から、本物みたいなものが生まれる」
+
+就是按制作组现在的状态来看，估计塑造仍然会是一坨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fuochai  
+##### 31723#       发表于 2025-2-28 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542955&amp;ptid=2208921" target="_blank">曼彻斯特联 发表于 2025-2-28 15:26</a>
+
+从第六话开始不就这样了，没有刻画明确的人格转换规则导致的。</blockquote>
+倒不是说身体控制的，我是说哪个比较强势mortis从有逼格到吃瘪，睦醒不了想叫醒，醒了又不乐意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+到现在睦又被反杀了
+
+
+*****
+
+####  الطائر  
+##### 31724#       发表于 2025-2-28 19:14
+
+乐奈说有趣的女孩子时，看着的方向是喵梦来的方向，所以……
+
