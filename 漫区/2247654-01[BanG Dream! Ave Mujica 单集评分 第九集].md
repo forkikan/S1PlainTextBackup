@@ -3431,3 +3431,17 @@ mygo时期我们看初华海铃也都觉得很像人
 
 只要监督还是柿本（与独角兽闹翻版），那么只要有篇幅的人物，塑造就只会是惨遭塑造，早晚都会变得不像人的，disruption像人只是因为出场少
 
+
+*****
+
+####  ads147147  
+##### 370#       发表于 2025-2-28 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543469&amp;ptid=2247654" target="_blank">Victorino 发表于 2025-2-28 16:24</a>
+mygo时期我们看初华海铃也都觉得很像人
+
+只要监督还是柿本（与独角兽闹翻版），那么只要有篇幅的人物，塑 ...</blockquote>
+这个说法好眼熟啊，星团2，回来了，一切都回来了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
