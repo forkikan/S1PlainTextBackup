@@ -3320,3 +3320,11 @@ disruption？？？？？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">现在最难想象的是，鸡团5个人后续还要上手游卖卡的，现在这角色塑造真的能吸引人氪金抽卡吗？
 
+
+*****
+
+####  百合烟草  
+##### 361#       发表于 2025-2-28 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根据对偶说，这一集应该是对标兽娘2的家犬回吧，期待之后的展开了
+

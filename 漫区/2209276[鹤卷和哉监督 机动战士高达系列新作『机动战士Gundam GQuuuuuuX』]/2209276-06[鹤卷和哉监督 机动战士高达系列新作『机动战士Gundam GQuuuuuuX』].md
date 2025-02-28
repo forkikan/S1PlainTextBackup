@@ -3749,3 +3749,16 @@ image.png
 
 早上在hk看完，只能说TV版完结后评分能比水魔高就算胜利
 
+
+*****
+
+####  中野梓  
+##### 7710#       发表于 2025-2-28 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542532&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-28 14:34</a>
+
+一般的推测是TV“第一话”从85开始放
+
+但是之前（或者之后）可能会有TV SP或者网络播放把0079的部分单独放 ...</blockquote>
+期待在内地电影院里看到
+
