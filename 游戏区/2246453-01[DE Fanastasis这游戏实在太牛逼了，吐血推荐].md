@@ -2912,3 +2912,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 求问一下，magpie只能把这个窗口从一丁点直接放大成全屏吗？可以配置成只放大到一定大小的窗口吗？ ...</blockquote>
 f5可以改
 
+
+*****
+
+####  DDWarrior  
+##### 256#       发表于 2025-3-1 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546926&amp;ptid=2246453" target="_blank">水边井 发表于 2025-3-1 01:14</a>
+
+f5可以改</blockquote>
+F5确实可以，但是又觉得分辨率有点低...
+
