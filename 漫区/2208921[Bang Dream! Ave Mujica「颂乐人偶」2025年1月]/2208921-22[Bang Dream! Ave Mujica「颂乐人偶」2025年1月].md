@@ -8242,3 +8242,13 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 
 面试被刷之后看到这么混沌的剧情还是没绷住不由自主笑了出来，这就是母鸡卡的魔力吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  澜灰-  
+##### 31813#       发表于 2025-3-1 00:57
+
+刚回顾了一下寒蝉卒14，15集
+和mujca和解了
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
