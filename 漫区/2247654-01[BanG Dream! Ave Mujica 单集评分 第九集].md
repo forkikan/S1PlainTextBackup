@@ -3389,3 +3389,45 @@ disruption？？？？？
 
 用流行的乐队夫妻论，这相当于海铃和disruption二位都没有正式告白交往（py关系），难道要这两位先自顾自把海铃当女友来yy吗？太变态了吧
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 367#       发表于 2025-2-28 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543308&amp;ptid=2247654" target="_blank">Victorino 发表于 2025-2-28 16:09</a>
+对啊，海铃自己要拒绝，怎么邀请都没用
+
+用流行的乐队夫妻论，这相当于海铃和disruption二位都没有正式告 ...</blockquote>
+…好歹disruption比鸡团这堆拟人更像人一点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  木板春香  
+##### 368#       发表于 2025-2-28 16:21
+
+<img src="https://img.saraba1st.com/forum/202502/28/162122op4qv872e88n4ph8.jpg" referrerpolicy="no-referrer">
+
+<strong>D3[4S)J9N7H)KS}O5%TJ2Q5_tmb.jpg</strong> (412.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 16:21 上传
+
+*****
+
+####  Victorino  
+##### 369#       发表于 2025-2-28 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543381&amp;ptid=2247654" target="_blank">ArcadiaMartyr 发表于 2025-2-28 16:17</a>
+
+…好歹disruption比鸡团这堆拟人更像人一点
+
+—— 来自 鹅球 v3.3.96</blockquote>
+mygo时期我们看初华海铃也都觉得很像人
+
+只要监督还是柿本（与独角兽闹翻版），那么只要有篇幅的人物，塑造就只会是惨遭塑造，早晚都会变得不像人的，disruption像人只是因为出场少
+

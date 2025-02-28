@@ -6053,3 +6053,65 @@ nga声称5ch也破防了：​[吐槽氵][讨论]第九集一出，本子那边�
 
 初华要是真小姨，那还是太宠祥子了啊，这就是血缘关系的力量吗
 
+
+*****
+
+####  syndrome2032  
+##### 31620#       发表于 2025-2-28 16:19
+
+就算是小姨也解释不了重力成黑洞了啊。
+不如说小姨算半个妈，情感应该更偏宽容和保护。
+
+你说是双子死了一个，剩下一个决定把去世那个的情感继承下来倒是说得过去。
+
+*****
+
+####  木板春香  
+##### 31621#       发表于 2025-2-28 16:22
+
+EP9 欢乐节奏榜
+
+<img src="https://img.saraba1st.com/forum/202502/28/162210kdn2nwwbf6wj6vnz.jpg" referrerpolicy="no-referrer">
+
+<strong>D3[4S)J9N7H)KS}O5%TJ2Q5_tmb.jpg</strong> (412.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 16:22 上传
+
+*****
+
+####  南宮凝香  
+##### 31622#       发表于 2025-2-28 16:23
+
+是姨也是姐 （老登提了一把輩份）
+
+對偶 睦祥
+
+是姨也是妹
+
+*****
+
+####  阿兹尔  
+##### 31623#       发表于 2025-2-28 16:24
+
+亲人会有那么恐怖的独占欲吗，还是站在长辈的角度怕祥子跟睦学坏了
+
+*****
+
+####  595505568  
+##### 31624#       发表于 2025-2-28 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543416&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 16:19</a>
+就算是小姨也解释不了重力成黑洞了啊。
+不如说小姨算半个妈，情感应该更偏宽容和保护。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到别人脑洞说初华和瑞穗算不算另一种岁数差很大的双子🤣（双子说+小姨说）
+然后回过味来发现这个也能解释很多东西（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只能说组合起来看就能解释初华为什么那么重了，于己于瑞穗于祥子，血缘的 青梅的 代餐的 补偿的 沉重情感的四重奏，你不溺爱谁会溺爱啊（
+
+*****
+
+####  庸necro  
+##### 31625#       发表于 2025-2-28 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">到第九集还在争谁对谁错就像在垃圾堆里找哪个碎片更完整更好看一样
+
