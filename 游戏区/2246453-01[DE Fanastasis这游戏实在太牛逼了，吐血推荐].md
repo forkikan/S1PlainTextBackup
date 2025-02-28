@@ -2855,3 +2855,14 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 后期走路就能刷，也能用魔石直接买。敞开用就得了！
 
+
+*****
+
+####  CnIV  
+##### 250#       发表于 2025-2-28 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540123&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-28 10:59</a>
+
+后期走路就能刷，也能用魔石直接买。敞开用就得了！</blockquote>
+谢谢~那就放心了，理论上应该也是放开用的
+

@@ -4853,3 +4853,42 @@ mujica整部剧目前都是闹麻了，人设一集一个样，所以跨集内�
 
 不过感觉和你也鸡同鸭讲了。
 
+
+*****
+
+####  aptx8285144  
+##### 31511#       发表于 2025-2-28 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542198&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:58</a>
+
+不吵了，aoe一下，母鸡卡放到现在就是五个不正常人。能完全共情他们多多少少都不正常。
+
+至少到现在，除了 ...</blockquote>
+因为初华，睦两个表情和设定都有“伪人”的味道了，海玲上一话甚至按照坏的解读是“愉悦犯”，大祥前期被拷打到什么逻辑都没了，有人和我说了睦和黑祥算伪人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大喵和海玲的坏归坏但是大喵起码还是人类范畴内的反派，海玲还有隐蔽性
+
+*****
+
+####  sauron.j  
+##### 31512#       发表于 2025-2-28 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541631&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-2-28 13:02</a>
+
+很难想象炸团之后大初老师的划小船中专互动是和路边一条一样在人家小两口戚戚我我的时候跑过去甩一句我要玩 ...</blockquote>
+走之前瞪了一眼立希，海铃问立希你对她做啥了
+
+就是这个用意
+
+*****
+
+####  荷包的荷包  
+##### 31513#       发表于 2025-2-28 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542123&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 13:48</a>
+
+因为大喵是目前编剧位一还没写炸的角色啊，她剧情里的行动从开始到现在都起码能和她的人设（性格、出身、 ...</blockquote>
+没炸吗不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+第一话摘面具已经是功名在此一举的狂气毒狗了，还能又退化成有苦衷的小资认真上进奋斗女
+
+不过也对，作为十五年一遇的大女主，别管怎么作死只要大手护住不死，那她就是对的，有能<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
