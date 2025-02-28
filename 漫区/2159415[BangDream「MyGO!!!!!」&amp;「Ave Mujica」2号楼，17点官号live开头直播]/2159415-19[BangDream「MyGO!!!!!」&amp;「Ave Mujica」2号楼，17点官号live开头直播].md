@@ -5054,3 +5054,26 @@ BanG Dream新作迷你动画52话制作决定
 
 だれかの心臓になれたなら可是有C6的部分啊()
 
+
+*****
+
+####  Devola  
+##### 27028#       发表于 2025-2-28 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545993&amp;ptid=2159415" target="_blank">ml1642879 发表于 2025-2-28 22:03</a>
+
+说，你想给谁开FL</blockquote>
+等武士道动杀心
+
+不说了，阿姨们的三专已购入
+
+*****
+
+####  CyDiablo  
+##### 27029#       发表于 2025-2-28 22:40
+
+Happy birthday 薫！  
+
+信澤 収 @canvas2929
+<img src="https://p.sda1.dev/22/b79d7bc0f2349757cf0b71de31b3d4a1/1740753555599.jpg" referrerpolicy="no-referrer">
+
