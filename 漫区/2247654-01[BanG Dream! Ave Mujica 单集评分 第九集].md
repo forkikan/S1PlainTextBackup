@@ -2892,3 +2892,28 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 好笑吗？感觉不如木子米和mortis抢吉他撞破栏杆摔死好笑。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 317#       发表于 2025-2-28 08:00
+
+猫猫like路人路过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空气先生  
+##### 318#       发表于 2025-2-28 08:00
+
++2 郭敬明来了都要唱征服
+
+
+*****
+
+####  ads147147  
+##### 319#       发表于 2025-2-28 08:07
+
+上一话还说这个剧本应该是古典主义的大墨老师要弑父娶母了，这集果然就把作为父亲的吉他睦打死，试图和祥子组乐队（娶母），都说了整什么多重人格糊弄观众，其实还是弗洛伊德那套东西。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
