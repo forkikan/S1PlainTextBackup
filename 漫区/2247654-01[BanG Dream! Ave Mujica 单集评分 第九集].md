@@ -3526,3 +3526,11 @@ mygo时期我们看初华海铃也都觉得很像人
 
 有病为什么不去治(指睦头人
 
+
+*****
+
+####  废都刽子手  
+##### 380#       发表于 2025-3-1 00:28
+
++1 接受了设定的话就无所谓逻辑了，有精神病的人也是人，至少不是伪人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
