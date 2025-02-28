@@ -7334,3 +7334,80 @@ mortis是假扮睦的不说了，和睦的演技相比，喵梦的演技又是�
 
 陪伴跟她要什麼就給什麼是不同的
 
+
+*****
+
+####  金钱与民主  
+##### 31730#       发表于 2025-2-28 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545088&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-28 19:38</a>
+哦我还有一个更精彩的车祥点：想重组鸡团那肯定要直面老登
+
+但是先不说违约金的事，老登最大的罪过也就是私 ...</blockquote>
+对啊，付了违约金后，祥子爷爷在孙女面前就是立于不败之地，唯独祥子没有资格去反他，初华要是私生女实锤了反倒有资格，但岂不又没可能让祥子有所成长了。说白了祥子的角色形象已经彻底毁了，哪怕真跳了都要被说逃避。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Raven314  
+##### 31731#       发表于 2025-2-28 19:52
+
+祥子反抗老登可能是
+要求老登恢复初华私生子名分呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 31732#       发表于 2025-2-28 19:54
+
+还不如写爷爷突然似了比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大象和初华有任何比较拟人的理由说得动爷爷吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  6030sylar  
+##### 31733#       发表于 2025-2-28 19:55
+
+<img src="https://img.saraba1st.com/forum/202502/28/195510wyz3tyt3yzy3aolt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 19:55 上传
+
+猫猫对猫猫
+
+*****
+
+####  戏谑二次元  
+##### 31734#       发表于 2025-2-28 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545155&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-28 19:52</a>
+祥子反抗老登可能是
+要求老登恢复初华私生子名分呗</blockquote>
+还不如让丰川老登把祥子献给夏亚总帅开MA去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 31735#       发表于 2025-2-28 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">恢复私生子名分，这个就太恶心了，而且到最后也解释不了祥子到底怎么选，我看选谁都不对啊
+
+*****
+
+####  6030sylar  
+##### 31736#       发表于 2025-2-28 19:56
+
+<img src="https://img.saraba1st.com/forum/202502/28/195603le40gusbrnncts6c.png" referrerpolicy="no-referrer">
+
+<strong>E_Z34)EDINQ`EO]_8K`_U@H.png</strong> (73 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 19:56 上传
+
