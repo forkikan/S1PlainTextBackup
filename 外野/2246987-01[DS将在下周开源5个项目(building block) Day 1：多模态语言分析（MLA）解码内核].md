@@ -1356,3 +1356,23 @@ https://github.com/deepseek-ai/3FS
 
 做实事的人真的能发光
 
+
+*****
+
+####  cube  
+##### 118#       发表于 2025-2-28 11:58
+
+对比一下CHATGPT4.5今天公布的这个奇低的效率和司马的价格。
+
+奥特曼你没活可以去咬打火机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nukacolamania  
+##### 119#       发表于 2025-2-28 12:07
+
+加油，欧美那几家是不是全面开放搞黄就看DS卷到什么程度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

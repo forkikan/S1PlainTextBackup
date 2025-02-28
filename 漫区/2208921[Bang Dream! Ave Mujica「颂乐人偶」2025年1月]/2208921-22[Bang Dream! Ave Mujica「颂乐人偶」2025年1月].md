@@ -2818,3 +2818,212 @@ ps：睦的面具是被喵梦摘的
 
 她阳光一点黑暗一点能改变她是不是一个出生的事实吗？
 
+
+*****
+
+####  天空塔书记官  
+##### 31333#       发表于 2025-2-28 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540916&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 11:57</a>
+所以Soyo 脫魅了
+
+姐跪下求你回來當命運共同體你不要</blockquote>
+素世在第七集的时候就已经和CCC告别了，就是CCC公式号最后一次更新<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  千千千千鸟  
+##### 31334#       发表于 2025-2-28 11:59
+
+怎么还在分析睦精神分裂是谁的锅啊。第四集还可以说是被祥和喵逼出来的，现在已经揭示了她天生就是精神病精神分裂症，吉他睦也不是完美受害人，已经杀掉了N个人格取得主导权，最后自己还被反杀变成死人了。监督说这不是病理性的我是嗤之以鼻的。
+
+也因为天生精神病，前面演的祥自责、喵害怕都成了笑话了
+
+*****
+
+####  qratosones1337  
+##### 31335#       发表于 2025-2-28 12:00
+
+ 本帖最后由 qratosones1337 于 2025-2-28 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540921&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 11:57</a>
+
+从上到下不待见那前面的粉丝是哪来的？又是丰川的大手？但这时候又说大祥混成这样活该了，全自动适应大手 ...</blockquote>
+巧了，第九集明着告诉你有大手存在了——戴着个难绷面具导致很多商单都没法接，你说经纪公司待不待见？真正可能涉及到保密的也就初华，结果初华面具还是她自己摘的，经纪公司不点头她敢这么搞？中层领导顶着上下压力胡搞被掀翻，那是真活该——正常公司也没有这种中层领导。现实中的正常中层领导就算不会做人惹得下面怨声载道也不至于连个向上管理都做不明白。
+
+*****
+
+####  YF31  
+##### 31336#       发表于 2025-2-28 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540919&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:57</a>
+
+你把大祥明摆着全锅的事强行扣给大喵，那不就是学长么？尤其还是第九集，截止到目前大喵是全团最正常人类 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">太全锅了，难怪喵厨日日能爆典，祝你们都有这么一个像火一样的东北女人同事。
+
+*****
+
+####  盗号找不回  
+##### 31337#       发表于 2025-2-28 12:00
+
+<blockquote>https://www.bilibili.com/video/BV1fXAdeREJS/</blockquote>、<blockquote>https://www.bilibili.com/video/BV1AX9wY9EzU/</blockquote>还是贴出来看看职业乐队咋说吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟我想法一致，祥子就是不行
+
+*****
+
+####  qlipho  
+##### 31338#       发表于 2025-2-28 12:01
+
+ 本帖最后由 qlipho 于 2025-2-28 12:02 编辑 
+
+泥漏玩二游的太少了 大祥就是编剧爽写go剧情后收不回来，垫了给新皇族了。有没有效果就另说了（说句虚假宣传润了最好）
+
+*****
+
+####  ape-apple  
+##### 31339#       发表于 2025-2-28 12:01
+
+还有一个压根没法细想的事，搁在《神推武道》片场是炸团大事的私联，在mujica这如吃饭喝水，初华一个pm就让爱音跟她私下见面，咱也不知道这个是什么意思，不过和妄想杀人犯，脑内开膛手比起来已经是最小的罪过了
+
+*****
+
+####  Skymoon  
+##### 31340#       发表于 2025-2-28 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540919&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:57</a>
+你把大祥明摆着全锅的事强行扣给大喵，那不就是学长么？尤其还是第九集，截止到目前大喵是全团最正常人类 ...</blockquote>
+无敌了，大祥全锅，你爹大猫知道吗
+
+*****
+
+####  Суслов  
+##### 31341#       发表于 2025-2-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540778&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:47</a>
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗 ...</blockquote>
+从场外来说剧情节奏早就崩了，时间只够给🐘老师单方面提要求，灯和爱音的反应是能省就省
+从场内来说白🐘模式一启动无论什么要求大家都会同意是母鸡卡世界观的底层逻辑，人家大小姐能想着你路边🐶团就已经是天恩浩荡了。再说了🐘老师说过的话多了，什么“命运共同体”什么“crychic已经结束了”，你看她几时当回事过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Skymoon  
+##### 31342#       发表于 2025-2-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540919&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:57</a>
+你把大祥明摆着全锅的事强行扣给大喵，那不就是学长么？尤其还是第九集，截止到目前大喵是全团最正常人类 ...</blockquote>
+你有没有看过第八集的，太变态了吧
+
+*****
+
+####  modkingr  
+##### 31343#       发表于 2025-2-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538304&amp;ptid=2208921" target="_blank">JustW 发表于 2025-2-28 06:10</a>
+
+为什么都认为喵梦能一眼看出是Mortis在演睦，如果是这样的话连续两次都没看出来的祥子这半身的含金量又提高 ...</blockquote>
+因为喵梦对于【演技】的感知是在第八话被睦的亲妈盖章了的直觉，对于睦的状态谁都能误会喵梦不会
+
+*****
+
+####  qratosones1337  
+##### 31344#       发表于 2025-2-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540963&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 12:00</a>
+
+太全锅了，难怪喵厨日日能爆典，祝你们都有这么一个像火一样的东北女人同事。 ...</blockquote>
+那毕竟我们是普通打工人，不会自动代入领导。啊，说起来你这套“有人离职了所以他背绩效”的逻辑还真是领领又导导啊233333
+
+*****
+
+####  Skymoon  
+##### 31345#       发表于 2025-2-28 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540993&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:02</a>
+那毕竟我们是普通打工人，不会自动代入领导。啊，说起来你这套“有人离职了所以他背绩效”的逻辑还真是领 ...</blockquote>
+但你爹大猫真在第八集代入了你所谓的领导，认为明明是成员的锅却让领导背了
+
+*****
+
+####  阿兹尔  
+##### 31346#       发表于 2025-2-28 12:04
+
+<blockquote>Суслов 发表于 2025-2-28 12:02
+从场外来说剧情节奏早就崩了，时间只够给🐘老师单方面提要求，灯和爱音的反应是能省就省
+
+从场内来说白🐘 ...</blockquote>
+还是爽世把人看得太善良了，居然真信了，还因为这事在二创里当了一年的小丑，结果到了鸡团，人家就不在乎这回事
+
+*****
+
+####  qratosones1337  
+##### 31347#       发表于 2025-2-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540982&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:01</a>
+
+无敌了，大祥全锅，你爹大猫知道吗</blockquote>
+那么如何在“我想要睦回来”的前提下把演出应付过去呢23333
+
+*****
+
+####  qratosones1337  
+##### 31348#       发表于 2025-2-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541013&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:04</a>
+
+但你爹大猫真在第八集代入了你所谓的领导，认为明明是成员的锅却让领导背了 ...</blockquote>
+“我想让睦回来”
+
+*****
+
+####  盗号找不回  
+##### 31349#       发表于 2025-2-28 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540908&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:57</a>
+
+目前大祥还是不顾及他人，初华都没被正眼看过。后面家族戏该怎么演，明示大手的助力，大手也不想看你接着玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真这么演我敬他是条汉子，虽然完美符合人设，但是真这么演我要继续+2了，但是我猜得包饺子：姥爷你看我们这乐队的羁绊有多深！我们已经明悟母鸡卡的意义了！我要跟她们走下去！
+
+*****
+
+####  whzfjd  
+##### 31350#       发表于 2025-2-28 12:06
+
+想起了传说系列的马场英雄，虽然也是几代元老，但一朝发昏就是身败名裂失去所有
+
+*****
+
+####  一心而用  
+##### 31351#       发表于 2025-2-28 12:07
+
+【官方中字】『BanG Dream! It's MyGO!!!!! 雨中祈晴』第3话「春日影」 ​​​
+<img src="https://p.sda1.dev/22/47084381e6de371d6d05d5dba37cad70/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/892b1d9c7dcadff612b8b5b166e04e79/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/569d908c10220723dbbf57c3edcecc88/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9d472fbed4b6c871937d79751590f0ea/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/35e8a0422f17fc971f6ccd170d0c4d46/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b514ff1740a8d69874f576fa4bd5fcd2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/173ca096a0ab7bbd80c9de77dc65f6a4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/66d5718f48f2c4fb5776df6288ece3b7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b8ce6cd9af4a4188d586b357dc9758f7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2ab75e4576947c746d4354ad10ad60f8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7b6e9ac106e6a2431c925cb469e81ecc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/90c9e360df2d0ca3c0d22ba0270dcc0c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9b5574d40dc5279befaf34dc1cb1bff1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/49b668cd45571a9e151f55e4ffadb8d7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/07fc796ae198cc3b94d4f9b739d0eed1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b9050d7d337c48b89b0e1ca4a00791b0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/13e3667a5854b163358920048c68f90a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5bf970a80e5ccb71e9660c7dfad8ecf9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Skymoon  
+##### 31352#       发表于 2025-2-28 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541028&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:05</a>
+那么如何在“我想要睦回来”的前提下把演出应付过去呢23333</blockquote>
+别转移话题，你说大祥全锅，我就辩你这个，但我可没说什么大祥没锅的话
+
