@@ -5327,3 +5327,109 @@ https://weibo.com/1195908387/5139019394452597
 也就是按 ...</blockquote>
 这就是故意的，如果大喵真只摘自己的话那道德和利益都最大化了，现在落得个道心破碎的下场也是咎由自取
 
+
+*****
+
+####  Versedust  
+##### 31553#       发表于 2025-2-28 14:44
+
+我现在只想看非邦世界观的废案<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 31554#       发表于 2025-2-28 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在倒是能理解羊为啥采访没那个团魂了，CTM的，我是羊我也怕被绑定角色啊
+
+*****
+
+####  大户爱  
+##### 31555#       发表于 2025-2-28 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542598&amp;ptid=2208921" target="_blank">66367749 发表于 2025-2-28 14:41</a>
+能产生这种争论本身就能说明动画做的有多崩了，这角色全是编剧的紫薇牺牲品 ...</blockquote>
+这剧崩和车角色都是已经发生的既定事实。
+
+我只是不能理解怎么还能有反过去踩一捧一来圆剧情和角色行为的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AnnieLeonhart  
+##### 31556#       发表于 2025-2-28 14:46
+
+说起来这会应该有柜子和西洋柜子们的reaction了吧
+
+不会这集还是环大陆好评吧
+
+*****
+
+####  K·os  
+##### 31557#       发表于 2025-2-28 14:48
+
+推特自然还是一片祥和，当然实际上日本人也是有觉得双重人格戏实在太多了的
+鬼佬的大脑就比较简单，很多都在说“哇哦 初华居然想杀人”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大户爱  
+##### 31558#       发表于 2025-2-28 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542621&amp;ptid=2208921" target="_blank">plok201 发表于 2025-2-28 14:45</a>
+我现在倒是能理解羊为啥采访没那个团魂了，CTM的，我是羊我也怕被绑定角色啊 ...</blockquote>
+声优鉴赏力也就那回事。
+羊主要正经配音事业有成，没必要绑死在二偶上，可能真听了樱小姐的忠告，没学会樱小姐的表面来事。
+
+*****
+
+####  qratosones1337  
+##### 31559#       发表于 2025-2-28 14:48
+
+ 本帖最后由 qratosones1337 于 2025-2-28 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542597&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 14:41</a>
+
+本来打一串字，还想说两个月上武道馆放现实已经不可想象了，你就知足吧。不带你，你都没这个摘面具的机会。 ...</blockquote>
+两个月这个时间显然是舞台装置，因为必须要维持少女乐队的设定所以要极限压缩时间（学校那边的时间轴是刚性的），做不得数。在此基础上，你有没有想过你这套“知足吧”的理论已经是标准的老板PUA话术了？既然要知足，那之前画饼的事就一笔勾销了？“没有公司就没有你的今天，所以奖金之类的事情就算了”？
+
+然后先不说时间轴的问题，喵梦最近的进展也没有特别离谱——综艺，网红和演戏本身就是三个不同的赛道，喵梦走综艺路线混得还不错，不代表网红账号也能蒸蒸日上，倒不如说天天上综艺肯定会没时间更新视频。能拿到试镜的机会也说明起码知名度上是不缺的。
+
+*****
+
+####  DD-963  
+##### 31560#       发表于 2025-2-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539575&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 10:03</a>
+
+初華也才5萬追蹤，
+
+MyGo！！！！！ 200 跟蹤， 但都是少女樂隊的精銳</blockquote>
+初华是职业的，MYGO好像没有事务所，也许5W粉里有事务所买的水军
+
+
+*****
+
+####  钦念以忱  
+##### 31561#       发表于 2025-2-28 14:51
+
+“同时，我们也改变了作品的结构，决定每一季分别聚焦于不同的乐队。”
+
+也不知道这里的我们具体是谁，我看这个决定就是整个企划最大的功臣，好歹留了一部好作品mygo下来，目前看来mygo也不是不能和avemujica切割的。
+
+*****
+
+####  大户爱  
+##### 31562#       发表于 2025-2-28 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542647&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 14:48</a>
+两个月这个时间显然是舞台装置，因为必须要维持少女乐队的设定所以要极限压缩时间（学校那边的时间轴是刚 ...</blockquote>
+和你没什么好说了，希望你真的上过班…
+
+*****
+
+####  真爱与热情  
+##### 31563#       发表于 2025-2-28 14:54
+
+羊宫女士我记得是互联网大手子来着，段位高一点也很正常
+

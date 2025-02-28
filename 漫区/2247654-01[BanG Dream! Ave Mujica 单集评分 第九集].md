@@ -3312,3 +3312,11 @@ disruption？？？？？
 总体而言这集演的不错，所以想批评本集，最后还是得回到第四集否定掉舞台本身——你演你这b双重人格干嘛
 既+2又-2，0
 
+
+*****
+
+####  LLLLLuB  
+##### 360#       发表于 2025-2-28 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">现在最难想象的是，鸡团5个人后续还要上手游卖卡的，现在这角色塑造真的能吸引人氪金抽卡吗？
+
