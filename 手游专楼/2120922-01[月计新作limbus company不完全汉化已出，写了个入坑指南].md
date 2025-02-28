@@ -113,3 +113,60 @@
 由手机上传
 2025-2-26 18:20 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 1101#       发表于 2025-2-28 18:26
+
+新卡池，第五赛季人格炎拳事务所格里高尔和常驻人格东部五协会唐吉诃德，双三星卡池：
+
+<img src="https://img.saraba1st.com/forum/202502/28/182705ldsu2aqxxzmb8exb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250228_182019.jpg</strong> (300.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-28 18:27 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/182308yfj30mfsremefez0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250228_182036.jpg</strong> (221.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-28 18:23 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/182308z8fqxvvvf70h4qqz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250228_182059.jpg</strong> (214.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-28 18:23 上传
+
+东五唐一股子国潮味...五协一般都有呼吸技能，绿光特效有些像破裂，也许和五默一个类型？
+
+<img src="https://img.saraba1st.com/forum/202502/28/182308tn4a7khc1mzk4m51.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250228_182115.jpg</strong> (219.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-28 18:23 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/182309ez9pqp3huut7a7ub.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250228_182149.jpg</strong> (224.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-2-28 18:23 上传
+
+听语音是死在游乐园的前任女代表的弟弟，攻击方式是喷火器。看他嚎得那么悲伤我还以为能像红艳浮一样自爆呢...并不能但也有AOE。
+

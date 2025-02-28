@@ -88,3 +88,27 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这打角给的buff根本不明显啊 这所长还会回血 怎么打
 
+
+*****
+
+####  v22325  
+##### 16414#       发表于 2025-2-28 18:30
+
+<img src="https://img.saraba1st.com/forum/202502/28/183004nxtzl0qt90j9jt9d.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250228182950.jpg</strong> (165.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自动编队一次过了……BUFF叠多了还行，还好最后有个战续 差点就差一回合过不了  这比上两次简单啊
+
+
+*****
+
+####  quanlix  
+##### 16415#       发表于 2025-2-28 18:32
+
+开了老外的技能树，这外星人奏章没了啊
+
